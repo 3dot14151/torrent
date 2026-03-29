@@ -6,7 +6,7 @@ Buddha Bar - Buddha-Bar Elements (2020) [AAC|~324 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176772.jpg" />
+  <img src="Z:/picture/005/save_picture_176772.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176760.jpg" />
+  <img src="Z:/picture/005/save_picture_176760.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Dua Lipa - Future Nostalgia (2020) [AAC|~311 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176664.jpg" />
+  <img src="Z:/picture/004/save_picture_176664.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dua Lipa, The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [AAC|~299 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176605.jpg" />
+  <img src="Z:/picture/004/save_picture_176605.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Uniform - Shame (2020) [AAC|~334 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176052.jpg" />
+  <img src="Z:/picture/004/save_picture_176052.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Stvore - One (2020) [AAC|~344 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176046.jpg" />
+  <img src="Z:/picture/004/save_picture_176046.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Leæther Strip - Æppreciation II (2018) [AAC|~351 Kbps] <ebm, industrial, dark 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176009.jpg" />
+  <img src="Z:/picture/004/save_picture_176009.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Leæther Strip - Æppreciation III Deutsche Wælle (2018) [AAC|~344 Kbps] <ebm, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176004.jpg" />
+  <img src="Z:/picture/004/save_picture_176004.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Leæther Strip - Æppreciation (2014) [AAC|~344 Kbps] <ebm, industrial, dark ele
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175970.jpg" />
+  <img src="Z:/picture/004/save_picture_175970.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Leæther Strip - Æppreciation IV (2020) [AAC|~359 Kbps] <ebm, industrial, dark 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175966.jpg" />
+  <img src="Z:/picture/004/save_picture_175966.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Scarlet - Obey the Queen (2020) [AAC|~335 Kbps] <Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175940.jpg" />
+  <img src="Z:/picture/004/save_picture_175940.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175921.jpg" />
+  <img src="Z:/picture/004/save_picture_175921.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - Sexy Xmas Jazz (Erotic Lounge Music For Intimate Christmas Moments) (2020) 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175849.jpg" />
+  <img src="Z:/picture/004/save_picture_175849.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - Советский Новый год (2019) [AAC|~281 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175797.jpg" />
+  <img src="Z:/picture/004/save_picture_175797.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Best of Smooth Lounge, Vol. 1 (A Finest Selection of Chill & Modern Bar Tra
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175176.jpg" />
+  <img src="Z:/picture/004/save_picture_175176.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - The Forest Chill Lounge, Vol. 16 (Deep Moods Music with Smooth Ambient & Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175121.jpg" />
+  <img src="Z:/picture/004/save_picture_175121.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - The Forest Chill Lounge, Vol. 17 (Deep Moods Music with Smooth Ambient & Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175085.jpg" />
+  <img src="Z:/picture/004/save_picture_175085.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - The Forest Chill Lounge, Vol. 12 (2018) [AAC|~308 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173899.jpg" />
+  <img src="Z:/picture/004/save_picture_173899.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - The Forest Chill Lounge, Vol. 9 (2016) [AAC|~323 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173893.jpg" />
+  <img src="Z:/picture/004/save_picture_173893.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - The Forest Chill Lounge, Vol. 11 (2017) [AAC|~313 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173868.jpg" />
+  <img src="Z:/picture/004/save_picture_173868.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - The Forest Chill Lounge, Vol. 15 (2019) [AAC|~314 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173856.jpg" />
+  <img src="Z:/picture/004/save_picture_173856.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - The Forest Chill Lounge, Vol. 8 (2016) [AAC|~323 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173837.jpg" />
+  <img src="Z:/picture/004/save_picture_173837.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - The Forest Chill Lounge, Vol. 13 (2018) [AAC|~311 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173828.jpg" />
+  <img src="Z:/picture/004/save_picture_173828.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - The Forest Chill Lounge, Vol. 14 (2019) [AAC|~309 Kbps] <Chillout, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173816.jpg" />
+  <img src="Z:/picture/004/save_picture_173816.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - The Forest Chill Lounge, Vol. 6 (2015) [AAC|~305 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173809.jpg" />
+  <img src="Z:/picture/004/save_picture_173809.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ VA - The Forest Chill Lounge, Vol. 4 (2014) [AAC|~315 Kbps] <Chillout, Lounge, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173748.jpg" />
+  <img src="Z:/picture/004/save_picture_173748.jpg" />
 </div>
 
 

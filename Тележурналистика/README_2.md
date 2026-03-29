@@ -1,3 +1,134 @@
+###  Публикация: 1444036   (1034952) от 31.01.2021
+
+Чудо техники с Сергеем Малозёмовым (31.01.2021) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сайт заблокировали, страница не найдена! Как мошенники обманывают вас в Интернете, создавая поддельные сервисы по продаже билетов и оказанию фальшивых услуг? Как распознать подвох?Удивительный прозрачный телевизор: как работает чудо-устройство? Автоматический туалет для кошек, работающий без наполнителя, банный чан, в котором можно париться даже гипертоникам, — что (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96680B31DE19FD066023F8E36364070ABFA5052F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444203   (1034941) от 31.01.2021
+
+Надоело умирать (2020) WEBRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034941.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ближайшее время человечеству грозит гибель. С повышением комфорта и интеллектуального уровня людей понижается репродуктивная способность человечества. Наши герои пытаются ответить на мучительный вопрос «быть или не быть?». Человечеству «надоело умирать». Мир спасет только любовь. Композитор картины Кирилл Толмацкий транслирует через свои тексты и музыку главную (   Читать дальше...   )Производство: Россия / Close Up ProductionЖанр: Документальный, криминал, драма, музыкаРежиссер: Александр Вишневский, Артур ТадевосянСубтитры: ОтсутствуютПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE59FEEFB0748B2753201EF9C1BB2587782FB47C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444205   (1034431) от 02.02.2021
+
+Надоело умирать (2020) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034431.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ближайшее время человечеству грозит гибель. С повышением комфорта и интеллектуального уровня людей понижается репродуктивная способность человечества. Наши герои пытаются ответить на мучительный вопрос «быть или не быть?». Человечеству «надоело умирать». Мир спасет только любовь. Композитор картины Кирилл Толмацкий транслирует через свои тексты и музыку главную (   Читать дальше...   )Производство: Россия / Close Up ProductionЖанр: Документальный, криминал, драма, музыкаРежиссер: Александр Вишневский, Артур ТадевосянСубтитры: ОтсутствуютПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C81BDE9D45F95B8524D72F42A6E1B1C1D6D77208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618390   (1034170) от 11.03.2023
+
+Живая еда с Сергеем Малозёмовым (11.03.2023) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пельмешки без спешки: как их правильно жарить и варить? И правда ли пельмени полезнее всего есть с уксусом? Что пельмени несут здоровью и чем опасен синдром дырявого кишечника?
+«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADC8E2D4CBE27038AE3F42D7EC173B96372F8BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618742   (1033885) от 12.03.2023
+
+Следствие вели... (12.03.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033885.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Кадриль на костях». 1984 г., г. Горький. В одном из домов был найден паспорт без вести пропавшего мужчины, а из-подо льда на местном канале выловлен мертвый человек. Вскоре в подвале пенсионер обнаружил труп, распиленный пополам… Погибшим оказался мужчина, чей паспорт нашли в том же подвале. Как были связаны все эти события? Кому помешал примерный семьянин с темным (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09D7A0927C745A5AA93739F6DF6692917A59B372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618634   (1033883) от 12.03.2023
 
 Жизнь других с Жанной Бадоевой. Анкара (12.03.2023) SATRip [H.264]
@@ -6,7 +137,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033883.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033554.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033282.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033025.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032318.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031916.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031126.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031105.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030963.jpg" />
 </div>
 
 
@@ -244,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030692.jpg" />
 </div>
 
 
@@ -270,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030216.jpg" />
 </div>
 
 
@@ -296,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030094.jpg" />
 </div>
 
 
@@ -322,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029743.jpg" />
 </div>
 
 
@@ -348,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029726.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029239.jpg" />
 </div>
 
 
@@ -401,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028738.jpg" />
 </div>
 
 
@@ -427,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028668.jpg" />
 </div>
 
 
@@ -453,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028522.jpg" />
 </div>
 
 
@@ -479,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028220.jpg" />
 </div>
 
 
@@ -505,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027769.jpg" />
 </div>
 
 
@@ -531,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027658.jpg" />
 </div>
 
 
@@ -542,136 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E69896D1EBF3759128A93BB5587D1FD77C02EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452604   (1027594) от 07.03.2021
-
-Чудо техники с Сергеем Малозёмовым (07.03.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделано с умом: чем удивляет современная мебель? Осторожно, горячо: правда ли сушка феном вредит волосам? А также — одежда из кроличьей шерсти и бритва для головы.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6EE6EA583BD219AD958DE3F35D915FFAC88FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452784   (1027577) от 07.03.2021
-
-Своих не бросаем (2019) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027577.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета фильма — работа казахстанского поискового отряда на Синявинских болотах Ленинградской области, где во времена Блокады воевали дивизии, сформированные в КазССР. Однако ни хронология, ни география не имеют значения: спустя 75 лет после окончания Великой Отечественной войны она всё ещё продолжается. До сих пор из далекого Казахстана люди приезжают сражаться (   Читать дальше...   )Производство: КазахстанЖанр: Документальный, военныйРежиссер: Матвей ШестаковСубтитры: ОтсутствуютПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93047185D1429F50D12A88D9BE6197E321AC8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452765   (1027565) от 07.03.2021
-
-Следствие вели... (07.03.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027565.jpg" />
-</div>
-
-
-###  Подробнее
-
-1972 год, Энгельс. В городе орудует маньяк. Почему сыщикам пришлось обратиться к астрологу? Что случилось в городском кинотеатре? И какую роль в этом деле сыграл саратовский калач?Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеСубтитры: ОтсутствуютПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4238BC5F7ED5F29FFAE624D4DA271CC66DD678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452364   (1027533) от 07.03.2021
-
-Женщина / Woman (2019) DVB [H.264/1080i-LQ] [MVO]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всемирный проект, собравший рассказы 2000 женщин из 50 стран мира. Героини проекта делятся историями на темы материнства, образования, брака и финансовой независимости, говорят о менструации и сексуальности. Здесь вы услышите голоса женщин, которые впервые смогли поделиться своей историей. Большую часть фильма составляют истории, рассказанные от первого лица, — сотни (   Читать дальше...   )Телекомпания: Франция / Hope ProductioЖанр: ДокументальныйПеревод: Многоголосый профессиональный (Первый канал)Субтитры: Русские (Teletext)Продолжительность: 01:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C868E2DAD347296D4BD6DCBCDCA72E02D93038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453533   (1026854) от 11.03.2021
-
-Человек неунывающий (2020) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Портрет русского человека, составленный из множества образов. Герои фильма – простые люди, которые своей жизнью отвечают на вечные вопросы: в чем смысл бытия, что такое счастье, что значит любить свою родину. Их сила – в способности изо дня в день делать свое дело, не падать духом и всегда верить в лучшее.Телекомпания: Россия / Продюсерский центр Андрея КончаловскогоЖанр: ДокументальныйРежиссер: Андрей Кончаловский, Екатерина Вещева, Евгений ГригорьевСубтитры: ОтсутствуютПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046D06BCB591FB6B906015DF9FDBFFBBC0298C43
 ```
 
 https://mybot314.ru/tekegram_catalog/

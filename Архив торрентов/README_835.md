@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859680.jpg" />
+  <img src="Z:/picture/008/save_picture_859680.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Toshinden [Wii] [NTSC-J] [Japan] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859671.jpg" />
+  <img src="Z:/picture/008/save_picture_859671.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859663.jpg" />
+  <img src="Z:/picture/008/save_picture_859663.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Timmy Trumpet (Unreleased ID’s) - DJ Mag Top 100 DJs Virtual Festival (2021-09
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859658.jpg" />
+  <img src="Z:/picture/008/save_picture_859658.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_859629.jpg" />
+  <img src="Z:/picture/009/save_picture_859629.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859559.jpg" />
+  <img src="Z:/picture/008/save_picture_859559.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Edge 94.0.992.31 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859546.jpg" />
+  <img src="Z:/picture/008/save_picture_859546.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Opera 79.0.4143.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859544.jpg" />
+  <img src="Z:/picture/008/save_picture_859544.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Mp3tag 3.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859541.jpg" />
+  <img src="Z:/picture/008/save_picture_859541.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ MAGIX Movie Edit Pro 2022 Premium 21.0.1.87 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859531.jpg" />
+  <img src="Z:/picture/008/save_picture_859531.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ MAGIX Video Pro X13 19.0.1.121 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859523.jpg" />
+  <img src="Z:/picture/008/save_picture_859523.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Tales from the Borderlands: Episode One — Zer0 Sum (2014) [En/Ru] [OS X Native
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859448.jpg" />
+  <img src="Z:/picture/008/save_picture_859448.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ CrystalDiskInfo 8.12.8 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859437.jpg" />
+  <img src="Z:/picture/008/save_picture_859437.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Tixati 2.85 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859427.jpg" />
+  <img src="Z:/picture/008/save_picture_859427.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859422.jpg" />
+  <img src="Z:/picture/008/save_picture_859422.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Etcher 1.6.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859419.jpg" />
+  <img src="Z:/picture/008/save_picture_859419.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859410.jpg" />
+  <img src="Z:/picture/008/save_picture_859410.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859372.jpg" />
+  <img src="Z:/picture/008/save_picture_859372.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859371.jpg" />
+  <img src="Z:/picture/008/save_picture_859371.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859369.jpg" />
+  <img src="Z:/picture/008/save_picture_859369.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859368.jpg" />
+  <img src="Z:/picture/008/save_picture_859368.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859367.jpg" />
+  <img src="Z:/picture/008/save_picture_859367.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859366.jpg" />
+  <img src="Z:/picture/008/save_picture_859366.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859365.jpg" />
+  <img src="Z:/picture/008/save_picture_859365.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ CyberLink PowerDirector Ultimate 20.0.2106.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859362.jpg" />
+  <img src="Z:/picture/008/save_picture_859362.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Maxthon Browser 6.1.2.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859361.jpg" />
+  <img src="Z:/picture/008/save_picture_859361.jpg" />
 </div>
 
 

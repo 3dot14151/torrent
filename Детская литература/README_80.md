@@ -1,3 +1,29 @@
+###  Публикация: 1538134   (664513) от 19.03.2022
+
+Керри Райан, Джон Парк Дэвис | Карта Куда Угодно. Сердце Потока. Книга 4 (2021) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потерянное Солнце вырвалось на свободу. Родной город Фина, Пристань Клучанед, разрушен, а Пиратская Река стремительно превращается в чёрное застойное болото. Существование всех бесчисленных миров под угрозой. К тому же Фин и Маррилл столкнулись с предательством самого близкого друга. И теперь вынуждены сражаться с ним, а в союзниках — вчерашний враг. Чтобы остановить (   Читать дальше...   )Жанр: Детская литература, Фантастика, ПриключенияПеревод: Татьяна БушуеваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D310FC22B4D468E47F7EE7FC7F867940341219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538179   (664510) от 19.03.2022
 
 Самуил Маршак | Где обедал воробей (1987) [PDF]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664510.jpg" />
+  <img src="Z:/picture/008/save_picture_664510.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664425.jpg" />
+  <img src="Z:/picture/008/save_picture_664425.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663435.jpg" />
+  <img src="Z:/picture/008/save_picture_663435.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663433.jpg" />
+  <img src="Z:/picture/008/save_picture_663433.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662396.jpg" />
+  <img src="Z:/picture/008/save_picture_662396.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661378.jpg" />
+  <img src="Z:/picture/008/save_picture_661378.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661375.jpg" />
+  <img src="Z:/picture/008/save_picture_661375.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661283.jpg" />
+  <img src="Z:/picture/008/save_picture_661283.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661093.jpg" />
+  <img src="Z:/picture/008/save_picture_661093.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660809.jpg" />
+  <img src="Z:/picture/008/save_picture_660809.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660336.jpg" />
+  <img src="Z:/picture/008/save_picture_660336.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660257.jpg" />
+  <img src="Z:/picture/008/save_picture_660257.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660255.jpg" />
+  <img src="Z:/picture/008/save_picture_660255.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660215.jpg" />
+  <img src="Z:/picture/008/save_picture_660215.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660168.jpg" />
+  <img src="Z:/picture/008/save_picture_660168.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660129.jpg" />
+  <img src="Z:/picture/008/save_picture_660129.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660117.jpg" />
+  <img src="Z:/picture/008/save_picture_660117.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660066.jpg" />
+  <img src="Z:/picture/008/save_picture_660066.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659249.jpg" />
+  <img src="Z:/picture/008/save_picture_659249.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659247.jpg" />
+  <img src="Z:/picture/008/save_picture_659247.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659243.jpg" />
+  <img src="Z:/picture/008/save_picture_659243.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659237.jpg" />
+  <img src="Z:/picture/008/save_picture_659237.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659226.jpg" />
+  <img src="Z:/picture/008/save_picture_659226.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659212.jpg" />
+  <img src="Z:/picture/008/save_picture_659212.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658555.jpg" />
+  <img src="Z:/picture/008/save_picture_658555.jpg" />
 </div>
 
 
@@ -654,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A19614A945914DBB873C7EF5E781163ABFA1B322
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539461   (658205) от 25.03.2022
-
-Аманда Луззадер | Русалочка(Луззадер) [3 книги] (2021-2022) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга 1. Талисман забытых земель. ISBN: 978-5-17-137473-0. Год: 2021
-Бринн Финли идет в среднюю школу. И оказывается единственной русалочкой в классе, не способной творить магию! А без магических способностей нельзя стать стражем моря, как все остальные русалки. В школе и дома Бринн приходится притворяться умелой волшебницей, но она понимает, что долго ее ложь не (   Читать дальше...   )Жанр: Детская литература, ФантастикаПеревод: Нина СеменоваФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1DC926E0095F99D911248C889E28DCE315BC4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

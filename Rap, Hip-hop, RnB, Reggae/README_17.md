@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635702.jpg" />
+  <img src="Z:/picture/008/save_picture_635702.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Two Feet - Momentum (2017)  EP [MP3|320 Kbps] <Trap, ChillTrap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634754.jpg" />
+  <img src="Z:/picture/008/save_picture_634754.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Guf, Slim - GuSli (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634751.jpg" />
+  <img src="Z:/picture/008/save_picture_634751.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633487.jpg" />
+  <img src="Z:/picture/008/save_picture_633487.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ N1NT3ND0 (Баста) - Папа на рэйве (2019) [FLAC|Lossless|WEB-DL|tr
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633349.jpg" />
+  <img src="Z:/picture/008/save_picture_633349.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Guf - Опять (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631360.jpg" />
+  <img src="Z:/picture/008/save_picture_631360.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631359.jpg" />
+  <img src="Z:/picture/008/save_picture_631359.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627684.jpg" />
+  <img src="Z:/picture/008/save_picture_627684.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627317.jpg" />
+  <img src="Z:/picture/008/save_picture_627317.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ A$AP Rocky (ASAP Rocky) - TESTING (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625793.jpg" />
+  <img src="Z:/picture/008/save_picture_625793.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Knowledge the Pirate - Flintlock (2018) Sword & Skull Edition [FLAC|Lossless|tra
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620761.jpg" />
+  <img src="Z:/picture/008/save_picture_620761.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Noize MC - XV (2019) Live [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620352.jpg" />
+  <img src="Z:/picture/008/save_picture_620352.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618624.jpg" />
+  <img src="Z:/picture/008/save_picture_618624.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Joss Stone - Water For Your Soul (2015) [MP3|320 кб/с]<R&B, Pop>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615937.jpg" />
+  <img src="Z:/picture/008/save_picture_615937.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Pure... 90s R&B (2014) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <R&B>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613253.jpg" />
+  <img src="Z:/picture/008/save_picture_613253.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Miyagi & Эндшпиль - Умшакалака (feat. Amigo) (2017) [MP3|320 K
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612463.jpg" />
+  <img src="Z:/picture/008/save_picture_612463.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kool Keith - Controller of Trap (2018) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606807.jpg" />
+  <img src="Z:/picture/008/save_picture_606807.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Sexy Soul R&B For Late Night Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606779.jpg" />
+  <img src="Z:/picture/008/save_picture_606779.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ TRUEтень, Красное Дерево - Кадык (2022) [MP3|320 Kbps] <Ra
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605933.jpg" />
+  <img src="Z:/picture/008/save_picture_605933.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Beyonce & Jay-Z (The Carters) - Everything Is Love (2018) [FLAC|Lossless|WEB-DL|
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604965.jpg" />
+  <img src="Z:/picture/008/save_picture_604965.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Mr. Lif & Brass Menažeri (Mr. Lif & Brass Menazeri) - Resilient (2017) [FLAC|Lo
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604824.jpg" />
+  <img src="Z:/picture/008/save_picture_604824.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Alai Oli, Хмыров - Последний из ушедших (2022) [FLAC|Los
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604326.jpg" />
+  <img src="Z:/picture/008/save_picture_604326.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Thomas Mraz - EMOTIONAL - 8 (2014) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604143.jpg" />
+  <img src="Z:/picture/008/save_picture_604143.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Neroche - Sleeping On The Ceiling (2017) [FLAC|Lossless|Web-DL|tracks] <Chillhop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603592.jpg" />
+  <img src="Z:/picture/008/save_picture_603592.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601665.jpg" />
+  <img src="Z:/picture/008/save_picture_601665.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Jay-Z - 4:44 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600106.jpg" />
+  <img src="Z:/picture/008/save_picture_600106.jpg" />
 </div>
 
 

@@ -1,3 +1,197 @@
+###  Публикация: 1780895   (70351) от 20.02.2025
+
+Футбол. Лига Чемпионов 2024-2025. 1/16 финала. ПСВ (Нидерланды) - Ювентус (Италия) (19.02.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. 1/16 финала. ПСВ (Нидерланды) - Ювентус (Италия) (19.02.2025)
+СУДЬЯ Винчич Славко (Словения)
+СТАДИОН «ПСВ» (Эйндховен)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 02:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22B389442CFFBB134ADEF557AB4F9C44EBE93412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780854   (70350) от 20.02.2025
+
+Футбол. Лига Чемпионов 2024-2025. 1/16 финала. ПСЖ (Франция) - Брест (Франция) (19.02.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. 1/16 финала. ПСЖ (Франция) - Брест (Франция) (19.02.2025)
+СУДЬЯ Оливер Майкл (Нортумберленд, Англия)
+СТАДИОН «Парк де Пренс» (Париж)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D5CB5DD207BF694E815C3C725879B0EC9126F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780820   (70341) от 20.02.2025
+
+Футбол. Лига Чемпионов 2024-2025. 1/16 финала. Реал (Мадрид, Испания) - Манчестер Сити (Англия) (19.02.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. 1/16 финала. Реал (Мадрид, Испания) - Манчестер Сити (Англия) (19.02.2025)
+СУДЬЯ Ковач Иштван (Румыния)
+СТАДИОН «Сантьяго Бернабеу» (Мадрид)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4070B8D3F3E4195FD827EEADF6D276008F433B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781066   (70336) от 21.02.2025
+
+Хоккей. Турнир четырёх наций 2025. Финал. США - Канада (21.02.2025) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. Турнир четырёх наций 2025. Финал. США - Канада (21.02.2025) СТАДИОН «Ти-Ди Гарден» (Бостон) Зрителей: 17850Телекомпания: Setanta SportsЖанр: Спорт, хоккейЯзык озвучки: русский, английскийПродолжительность: 03:13:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E751AF1A5710F9BE97C217DF384BA852811DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781054   (70318) от 21.02.2025
+
+Футбол. Кубок Азии. Молодежный турнир (до 20 лет) 3-тур. Группа B. Ирак (U20) - Иордания (U20) (19.02.2025) WEBRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70318.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 февраля 2025, Культурный и спортивный центр Лунхуа (Шэньчжэнь, Китай)
+Ирак - Иордания. Кубок Азии U20. Молодежный турнир (до 20 лет) 3-тур. Группа B.
+
+Тренеры: Эмад Мохаммед, Питер Мейндертсма(   Читать дальше...   )Телекомпания: СтартЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081504584FD25B506BE207966CC77D4AE635AE43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781309   (70257) от 22.02.2025
+
+Футбол. Чемпионат Италии 2024/25. Серия А, 25-й тур Парма - Рома (16.02.2025) TVRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Матч Итальянской серии-А, Парма - Рома. 25-й тур (16 февраля 2025)
+Команды занимают 18 и 9 строчки в таблице чемпионата.
+«Рома» безусловно будет сегодня играть только на победу – если шансов побороться за Лигу Чемпионов откровенно мало, то за место в первой семерке римляне бороться способны вполне. Очевидно, что у «Пармы» в такой ситуации шансов остаться без пропущенных (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74881C29E5F02CD12F76C92975E2386C0DDEC1FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781431   (70196) от 23.02.2025
+
+НХЛ 2024-2025. Вашингтон Кэпиталз - Питтсбург Пингвинз (22.02.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70196.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 февраля 2025, суббота. 23:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 207 зрителей (98% при вместимости 18 673)
+Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Дэн О'Рурк (Калгари, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9E3B65F9CA5D4E3BCD46D7466BE2520A463ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781500   (70193) от 23.02.2025
 
 Футбол. Кубок Азии. Молодежный турнир (до 20 лет) 3-тур. Группа D. Япония (U20) -   Корея (U20) (20.02.2025) WEBRip [H.264]
@@ -6,7 +200,7 @@
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70193.jpg" />
 </div>
 
 
@@ -35,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70172.jpg" />
 </div>
 
 
@@ -62,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70169.jpg" />
 </div>
 
 
@@ -89,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70116.jpg" />
 </div>
 
 
@@ -115,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70096.jpg" />
 </div>
 
 
@@ -143,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70082.jpg" />
 </div>
 
 
@@ -170,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70081.jpg" />
 </div>
 
 
@@ -197,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70074.jpg" />
 </div>
 
 
@@ -223,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70041.jpg" />
 </div>
 
 
@@ -251,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70023.jpg" />
 </div>
 
 
@@ -278,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70022.jpg" />
 </div>
 
 
@@ -305,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69999.jpg" />
 </div>
 
 
@@ -332,7 +526,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Квалифик�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69988.jpg" />
 </div>
 
 
@@ -358,7 +552,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Спринт (01.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69987.jpg" />
 </div>
 
 
@@ -384,7 +578,7 @@ MotoGP. Этап 01 из 22. Гран-при Таиланда. Гонка (02.03
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69939.jpg" />
 </div>
 
 
@@ -410,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69903.jpg" />
 </div>
 
 
@@ -437,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69901.jpg" />
 </div>
 
 
@@ -463,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69859.jpg" />
 </div>
 
 
@@ -490,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69849.jpg" />
 </div>
 
 
@@ -502,194 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88C26C54EE48877AEC61776DFDFDF6A6B2DD9871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783328   (69830) от 05.03.2025
-
-Футбол. Лига Чемпионов 2024/2025. 1/8 финала. Обзор матчей (04.03.2025) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол.Лига Чемпионов 2024/2025. 1/8 финала. Обзор матчей (04.03.2025)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 00:24:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5F429F05CE5D4154E90EFDC0A8B40819AF8803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783327   (69826) от 05.03.2025
-
-НХЛ 2024/2025. Питтсбург Пингвинз - Колорадо Эвеланш (04.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69826.jpg" />
-</div>
-
-
-###  Подробнее
-
-5 марта 2025, среда. 05:00 МСК. Стадион: Болл-Арена (Денвер, США), 18 037 зрителей (99% при вместимости 18 147)
-Главный судья: Тревор Хансон (Ричмонд, Канада); Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: ALTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B97D301BA8FBBFDFE89FE8FDBCD8EA1BF6D170E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783333   (69823) от 05.03.2025
-
-Футбол. Лига Чемпионов 2024-2025. 1/8 финала. ПСВ (Нидерланды) - Арсенал (Англия) (04.03.2025) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол. Лига Чемпионов 2024-2025. 1/8 финала. ПСВ (Нидерланды) - Арсенал (Англия) (04.03.2025)
-СУДЬЯ Хиль Мансано (Дон-Бенито, Испания)
-СТАДИОН «ПСВ» (Эйндховен)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE865E801D8ED9B066039038F8D5170D7DA4ECC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783524   (69800) от 06.03.2025
-
-НХЛ 2024-2025. Вашингтон Кэпиталз - Нью-Йорк Рейнджерс (05.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69800.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 марта 2025, четверг. 03:30 МСК. Стадион: Мэдисон Сквер Гарден (Нью-Йорк, США), 18 006 зрителей (100% при вместимости 18 006)
-Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Брэд Ковачик (Вудсток, Канада); Линейный: Мэтт Макферсон (Энтигониш, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8371A855635685FB20D63B2EC0594782C5DBE054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783530   (69793) от 06.03.2025
-
-Футбол. Лига Чемпионов 2024/2025. 1/8 финала. Обзор матчей (05.03.2025) HDTVRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футбол.Лига Чемпионов 2024/2025. 1/8 финала. Обзор матчей (05.03.2025)Телекомпания: ОккоЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 00:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA96B108BA52F7A699D5347B818AFF7B20B95C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783972   (69675) от 08.03.2025
-
-НХЛ 2024/2025. Питтсбург Пингвинз - Вегас Голден Найтс (07.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69675.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 марта 2025, суббота. 06:00 МСК. Стадион: Ти-Мобайл Арена (Парадайс, США), 18 219 зрителей (97% при вместимости 18 702)
-Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D12DE59A5A1845BB3D1F47DA09BE8E50190561C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783968   (69674) от 08.03.2025
-
-НХЛ 2024-2025. Детройт Ред Уингз - Вашингтон Кэпиталз (07.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69674.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 марта 2025, суббота. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Митч Даннинг (Текумсе, Канада); Главный судья: Джон Макисаак (Труро, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344E6537A94D7579B8C1965F81AA3AE1812B2B41
 ```
 
 https://mybot314.ru/tekegram_catalog/

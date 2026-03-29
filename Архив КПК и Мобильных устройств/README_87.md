@@ -1,3 +1,31 @@
+###  Публикация: 1267252   (266571) от 06.12.2018
+
+Triple Triad 1.4.0 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triple Triad является популярной карточной игрой в Final Fantasy VIII.
+
+В соответствии с Final Fantasy VIII Ultimania карточная игра была создана человеком по имени Орлан, который модифицировал гадальные карты для использования в игре, и дал официальное название "Triple Triad".  В Triple Triad первоначально играли среди солдат, но вскоре игра распространилась (   Читать дальше...   )Релиз состоялся: 23.11.2018Разработчик: SnakeULTIMATEПоддерживаемая ОС: Android 4.1 и вышеЖанр: Карточная играЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB22B2B0C1471DB71E2237F6509815BE4F9FB640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192204   (263374) от 16.12.2017
 
 Шри Шри Рави Шанкар - Собрание всех  видео лекций, выступлений, медитаций, практик (2017) DVDRip [H.264] [MP4|1280x720]
@@ -6,7 +34,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263374.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261280.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261255.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261246.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260791.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260355.jpg" />
+  <img src="Z:/picture/005/save_picture_260355.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260322.jpg" />
+  <img src="Z:/picture/005/save_picture_260322.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259700.jpg" />
+  <img src="Z:/picture/005/save_picture_259700.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259668.jpg" />
+  <img src="Z:/picture/005/save_picture_259668.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259429.jpg" />
+  <img src="Z:/picture/005/save_picture_259429.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259188.jpg" />
+  <img src="Z:/picture/005/save_picture_259188.jpg" />
 </div>
 
 
@@ -301,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259167.jpg" />
+  <img src="Z:/picture/005/save_picture_259167.jpg" />
 </div>
 
 
@@ -328,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259157.jpg" />
+  <img src="Z:/picture/005/save_picture_259157.jpg" />
 </div>
 
 
@@ -354,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258949.jpg" />
+  <img src="Z:/picture/005/save_picture_258949.jpg" />
 </div>
 
 
@@ -381,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258669.jpg" />
+  <img src="Z:/picture/005/save_picture_258669.jpg" />
 </div>
 
 
@@ -407,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258650.jpg" />
+  <img src="Z:/picture/005/save_picture_258650.jpg" />
 </div>
 
 
@@ -433,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258415.jpg" />
+  <img src="Z:/picture/005/save_picture_258415.jpg" />
 </div>
 
 
@@ -459,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258373.jpg" />
+  <img src="Z:/picture/005/save_picture_258373.jpg" />
 </div>
 
 
@@ -485,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257356.jpg" />
+  <img src="Z:/picture/005/save_picture_257356.jpg" />
 </div>
 
 
@@ -511,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257340.jpg" />
+  <img src="Z:/picture/005/save_picture_257340.jpg" />
 </div>
 
 
@@ -537,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257275.jpg" />
+  <img src="Z:/picture/005/save_picture_257275.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256227.jpg" />
+  <img src="Z:/picture/005/save_picture_256227.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256206.jpg" />
+  <img src="Z:/picture/005/save_picture_256206.jpg" />
 </div>
 
 
@@ -619,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255860.jpg" />
+  <img src="Z:/picture/005/save_picture_255860.jpg" />
 </div>
 
 
@@ -645,39 +673,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255857.jpg" />
+  <img src="Z:/picture/005/save_picture_255857.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Biofrenzy: Frag The Zombies - очень разнообразный зомби шутер. Разработчики предоставляют уйму оружия для борьбы с толпами кровожадных зомби. Убивать их одно удовольствие ... по случайности может замедлиться время при убийстве очередного зомби и вы увидите как красиво он разлетится на куски мяса
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497999   (255851) от 19.05.2012
-
-[Игра] (Android 2.1+) Temple Run v1.3(Аркада / Runner)
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почувствуйте нагнетающую атмосферу старинного храма и попытайтесь убежать от злых духов. Это будет вызвано тем, что Вы когда-то искали священного идола и наконец его нашли. Он находился в таинственном и загадочном храме и как только Вы его забрали, проснулись стражники святыни. Теперь стоит одна задача перед главным персонажем игры, как можно быстрей убежать от них и не попасться им в руки. Но просто так убежать не получится.Жанр: Аркада / Runner
 
 ## Скачать торент
 ```bash

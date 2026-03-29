@@ -6,7 +6,7 @@ LibreOffice [Portable] 3.3.2 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813764.jpg" />
+  <img src="Z:/picture/008/save_picture_813764.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PeaZip 7.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813747.jpg" />
+  <img src="Z:/picture/008/save_picture_813747.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Opera GX 68.0.3618.112 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813746.jpg" />
+  <img src="Z:/picture/008/save_picture_813746.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813681.jpg" />
+  <img src="Z:/picture/008/save_picture_813681.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ CPU-Z 1.98 Portable by ALEX [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813678.jpg" />
+  <img src="Z:/picture/008/save_picture_813678.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Ventoy 1.0.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813676.jpg" />
+  <img src="Z:/picture/008/save_picture_813676.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Chromium 65.0.3315.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813665.jpg" />
+  <img src="Z:/picture/008/save_picture_813665.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ GoodSync Enterprise 10.11.8.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813606.jpg" />
+  <img src="Z:/picture/008/save_picture_813606.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ NetBalancer 10.0.2 Build 2324 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813602.jpg" />
+  <img src="Z:/picture/008/save_picture_813602.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Telegram Desktop 2.1.6+ Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813596.jpg" />
+  <img src="Z:/picture/008/save_picture_813596.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Cockos REAPER 6.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813593.jpg" />
+  <img src="Z:/picture/008/save_picture_813593.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Mozilla Thunderbird 45.0.0 Portable by PortableApps [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813575.jpg" />
+  <img src="Z:/picture/008/save_picture_813575.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Mozilla Thunderbird 45.0.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813561.jpg" />
+  <img src="Z:/picture/008/save_picture_813561.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813512.jpg" />
+  <img src="Z:/picture/008/save_picture_813512.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Opera GX 68.0.3618.112 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813461.jpg" />
+  <img src="Z:/picture/008/save_picture_813461.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ MediaHuman YouTube Downloader 3.9.9.38 (1305) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813460.jpg" />
+  <img src="Z:/picture/008/save_picture_813460.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ HWiNFO 6.26 Build 4160 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813448.jpg" />
+  <img src="Z:/picture/008/save_picture_813448.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813414.jpg" />
+  <img src="Z:/picture/008/save_picture_813414.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VirtualBox 5.0.18.106667 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813404.jpg" />
+  <img src="Z:/picture/008/save_picture_813404.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Easy CD-DA Extractor Ultimate v2011.0.0.0 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813319.jpg" />
+  <img src="Z:/picture/008/save_picture_813319.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ USDownloader 1.3.5.9 Portable (25.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813301.jpg" />
+  <img src="Z:/picture/008/save_picture_813301.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Icecream Screen Recorder PRO 6.21 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813262.jpg" />
+  <img src="Z:/picture/008/save_picture_813262.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ GOM Player 2.3.0 Build 5248 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813243.jpg" />
+  <img src="Z:/picture/008/save_picture_813243.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813216.jpg" />
+  <img src="Z:/picture/008/save_picture_813216.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Extreme Picture Finder 3.34.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813183.jpg" />
+  <img src="Z:/picture/008/save_picture_813183.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Insofta 3D Text Commander 3.0.3 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813166.jpg" />
+  <img src="Z:/picture/008/save_picture_813166.jpg" />
 </div>
 
 

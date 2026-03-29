@@ -1,3 +1,110 @@
+###  Публикация: 1826426   (162034) от 19.10.2025
+
+Книжная серия | Страницы советской и российской истории [58 книг] (2020-2025) [FB2, PDF]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая читателям книжная серия рассказывает, прежде всего, о людях эпохи. Это попытка отразить многогранность отечественной истории через судьбы и истории людей, внесших вклад в развитие и изменение страны, а также оказавших значительное влияние на современников. Среди героев серии – политики, военачальники, общественные и религиозные деятели, выдающиеся представители (   Читать дальше...   )Жанр: История, биографииИздательство: РОССПЭН, АФК «Система», Политическая энциклопедияФормат: FB2, PDFКачество: Изначально электронное (ebook), OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E31F07CA5ADB904A103A214A25E0336E6B327D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826183   (161959) от 19.10.2025
+
+Книжная серия | Мировой компьютерный бестселлер. Гейм-дизайн [19 книг] (2020-2025) [FB2, PDF]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь современного человека плотно связана с видеоиграми. Даже если вы не играете сами, в вашем окружении наверняка найдутся заядлые геймеры, а новости из индустрии игр зачастую не обходят и вас стороной. Это положение дел приводит к вопросам: а что же такое видеоигры и какое место они занимают в жизни человека?
+В серии "Мировой компьютерный бестселлер. Гейм-дизайн" (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ЭксмоФормат: FB2, PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1D514AFE50BDA32C52B699170F0B91817DEBB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433147   (161783) от 19.12.2020
+
+Книжная серия | Агент ГРУ. Триллер, написанный военным разведчиком [11 книг] (2016-2020) [EPUB]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых «зашифрованных» серий. Автор Александр Шувалов, сам в прошлом сотрудник подразделения особого назначения, так ловко выстраивает интригу сюжета, что даже очень осведомленный читатель порой до самой последней главы не предполагает, какой будет развязка. Романы о политических войнах и их тайных участниках – агентах ГРУ и западных спецслужб. У читателя (   Читать дальше...   )Жанр: Боевики, Шпионские детективы, ТриллерыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256F1CE68ED6EEC4AB9C82FE5077871DB68824F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599153   (160010) от 22.12.2022
+
+Книжная серия | Детектив-лабиринт [59 книг] (2013-2022) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детектив-лабиринт это "страшные" детективы и триллеры.
+Существует ли потусторонний мир или это просто антураж для оставшихся в далеком прошлом готических романов? Герои остросюжетных книг точно знают ответ на этот вопрос. Они обладают магическими способностями и распутывают странные преступления, которые никак нельзя объяснить законами реального мира.
+Книжная (   Читать дальше...   )Жанр: Детектив, ТриллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21252265F7C6F10DE1DB225EC72BC8A1F2885B1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 807093   (158528) от 20.12.2015
 
 Книжная серия | Сто оттенков любви [60 книг. Обновляемая] (2012-2015) [FB2]
@@ -6,7 +113,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158528.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156868.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156699.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156679.jpg" />
 </div>
 
 
@@ -121,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155727.jpg" />
 </div>
 
 
@@ -147,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155640.jpg" />
 </div>
 
 
@@ -175,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154073.jpg" />
 </div>
 
 
@@ -202,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153526.jpg" />
 </div>
 
 
@@ -228,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151267.jpg" />
 </div>
 
 
@@ -254,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144050.jpg" />
 </div>
 
 
@@ -281,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143585.jpg" />
 </div>
 
 
@@ -307,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143016.jpg" />
 </div>
 
 
@@ -334,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142777.jpg" />
 </div>
 
 
@@ -362,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141450.jpg" />
 </div>
 
 
@@ -388,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139797.jpg" />
 </div>
 
 
@@ -414,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138942.jpg" />
 </div>
 
 
@@ -440,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138828.jpg" />
 </div>
 
 
@@ -467,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137071.jpg" />
 </div>
 
 
@@ -493,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136691.jpg" />
 </div>
 
 
@@ -522,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136079.jpg" />
 </div>
 
 
@@ -549,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135897.jpg" />
 </div>
 
 
@@ -576,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135560.jpg" />
 </div>
 
 
@@ -588,117 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A9850FB0E7097060D731892D19523B01931C61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593163   (135124) от 23.12.2012
-
-Подборка | Фантастика на английском языке
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вашему вниманию сборник фантастики на английском языке. В него входит более 600 книг более чем 100 авторов. Коллекция собиралась долго и кропотливо в туманных дебрях IRC.
-
-Все книги в формате FB2 (если вам нужен другой формат, поставьте себе бесплатный библиотечный софт Calibre, скормите ему книги и спокойно преобразуйте все в любой из поддерживаемых форматов без забот и мучений).
-
-Книги почти на любой вкус (разве что практически отсутствует fantasy) – от почти по-детски наивных, сказочных, добрых работ Клиффорда Саймака до стремительных, ураганного темпа киберпанковских рассказов Чарлза Штросса; от классического юмора Роберта Асприна с его  Phule’s Company до весьма специфического юмора Against a Dark Background Иана Бэнкса; от фантастики, сконцентрированной на характерах героев, как в цикле Starsiders Дэвида Гэррольда, до «жесткой научной фантастики» Tau Zero Пола Андерсона или космической оперы Алистера  Рейнольдса с его серией Revelation Space. Есть даже, по сути, альтернативная история, представленная (   Читать дальше...   )Жанр: ФантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE96319C2A9A496485359BCEB4379DBF235CB19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679696   (135105) от 26.11.2023
-
-Книжная серия | Мир приключений (1980 - 1991) [DJVU]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Мир приключений», издательства «Лумина», печаталось с 1980 по 1991 год. Всего было издано 40 томов.Жанр: Фантастика, ПриключенияИздательство: ЛуминаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6C142B51D296C318AF00A1C22909AE2E672BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593154   (135072) от 23.12.2012
-
-Библиотека "Внеклассное чтение" (315 книг) [2003-2012] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135072.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Внеклассное чтение издается с 2003 года. Подборка книг потрясает - собраны самые интересные (и самые лучшие) книги со всего света для детей и юношества. Да, такой литературой не стыдно воспитывать молодежь.
-Большинство книг хочется перечитывать не раз.
-Книги собраны в серию, согласно неофициального списка ОЗОНа; главную роль при выборе издания играло наличие иллюстраций (книги, в основном, для молодежи), потом перевод.
-Издательства: АСТ, Астрель, Пушкинская библиотека, Вагриус, Транзиткнига, Азбука-классика, (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E85959AD1C93FCB3B28332B5137457FAEDC909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682277   (131632) от 06.12.2023
-
-Книжная серия | Великие романы [12 книг] (2018-2023) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131632.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Великие романы» (изд. «АСТ») - это номинанты и лауреаты ведущих литературных премий, новинки, ставшие бестселлерами, и легендарные романы прошлых лет, определившие развитие зарубежной литературы, но никогда не издававшиеся в России. Это книги, о которых говорят, книги, определяющие мировой литературный процесс, культовые тексты, выход которых на русском языке ждали (   Читать дальше...   )Жанр: Современная зарубежная проза, Социально-психологическая фантастика, Научная ФантастикаИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A74D17B568977C3852C5CB2BF4E40116E9C6E45
 ```
 
 https://mybot314.ru/tekegram_catalog/

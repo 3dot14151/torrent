@@ -1,3 +1,138 @@
+###  Публикация: 1463809   (524145) от 25.06.2022
+
+Translate Tab 2.0.17 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Так уж сложилось, что потребность переводить возникает у многих и часто. Это может быть как несколько слов, так и какая нибудь статейка с зарубежного сайта по интересующей тематике. И скорее всего сегодняшний пользователь выберет переводчик Google Translate, как наиболее удобный сервис online перевода. Неудобность лишь в том, что в браузере, в который нужно все время (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2021Разработчик: Alex IzvekovПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD07E84154FB82357E37ECECFE7F45B877895D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313404   (523641) от 09.07.2019
+
+WinZip Pro 7.0.4521 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523641.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinZip — мощный архиватор, который поможет легко и удобно сжимать и шифровать любые файлы, экономя место на диске и оптимизируя почтовые вложения. Архивация файлов не только позволяет уменьшить занимаемое файлами пространство, но и позволит отправлять архивы с комплектами документов по e-mail.
+WinZip предоставляет пользователям лучшие характеристики и функции WinZip (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2019Разработчик: WinZipПоддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61F08C5CD919A9204486636545AC761CA3C8BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559745   (523547) от 26.06.2022
+
+inMusic Brands BFD3 for Mac 3.4.4 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523547.jpg" />
+</div>
+
+
+###  Подробнее
+
+BFD3 создан для великолепного музыкального воспроизведения и предлагает столько глубины звучания, сколько вам нужно. Просматривайте целые пресеты, быстро компилируйте пользовательские наборы или формируйте любой звук барабана, который вы хотите, перенастраивая, демпфируя и обрабатывая несколько микрофонов с помощью мощного внутреннего механизма микширования. Встроенная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.06.2022Разработчик: © 2021 inMusic Brands Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99BB15EC21A941FE6698896B80FF44576F59B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928075   (523288) от 15.08.2015
+
+Screens 3.6.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screens VNC - Удалённый доступ к вашему компьютеру
+Находясь на другом конце страны, города или офиса, удобно создать быстрое подключение и решить задачу на другом компьютере, помочь  друзьям и сотрудникам с вопросами настройки, установки приложений и помощи в различных вопросах. Screens 3 является приложением от команды Edovia, представленное в 2011 году. Клиент для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14  августа 2015Разработчик: Bryan Edovia Inc.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E24993BCCF51009DAABE7595B29CE34377E9B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928040   (523210) от 15.08.2015
+
+DM1 - The Drum Machine 2.0.1 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523210.jpg" />
+</div>
+
+
+###  Подробнее
+
+DM1 - The Drum Machine - лучшая драм-машина для Mac.
+DM1 мощная "винтажная" драм-машина. Она превращает ваш Mac в веселую и творческую машину создания ударных ритмов. Легкая и быстрая в использовании, с 99 превосходными наборами ударных и красивой  графикой, DM1 была разработана для классного развлечения.
+
+В мире музыкального софта на настольных компьютерах (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: Jul 31, 2015Разработчик: Fingerlab SARLПоддерживаемая ОС: OS X 10.9  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0876AB28AD7F3A59F29AAF3934E19563D9AC3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592937   (523093) от 15.08.2015
 
 Jaksta 1.4.2 [En]
@@ -6,7 +141,7 @@ Jaksta 1.4.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523093.jpg" />
+  <img src="Z:/picture/008/save_picture_523093.jpg" />
 </div>
 
 
@@ -34,7 +169,7 @@ Resume Templates - Design 3.2.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522600.jpg" />
+  <img src="Z:/picture/008/save_picture_522600.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ Submerge 3 v3.9.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522044.jpg" />
+  <img src="Z:/picture/008/save_picture_522044.jpg" />
 </div>
 
 
@@ -88,7 +223,7 @@ RapidWeaver 8 v8.9.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521991.jpg" />
+  <img src="Z:/picture/008/save_picture_521991.jpg" />
 </div>
 
 
@@ -115,7 +250,7 @@ MacGourmet Deluxe 4.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521989.jpg" />
+  <img src="Z:/picture/008/save_picture_521989.jpg" />
 </div>
 
 
@@ -141,7 +276,7 @@ Nik Complete 5 Collection by DxO v5.0.1 CR2 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521836.jpg" />
+  <img src="Z:/picture/008/save_picture_521836.jpg" />
 </div>
 
 
@@ -168,7 +303,7 @@ DiskWarrior [Bootable USB/DVD] 5.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521260.jpg" />
+  <img src="Z:/picture/008/save_picture_521260.jpg" />
 </div>
 
 
@@ -195,7 +330,7 @@ Alfred 5 Powerpack 5.0 EA5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520879.jpg" />
+  <img src="Z:/picture/008/save_picture_520879.jpg" />
 </div>
 
 
@@ -222,7 +357,7 @@ WebTorrent Desktop for Mac 0.24.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520749.jpg" />
+  <img src="Z:/picture/008/save_picture_520749.jpg" />
 </div>
 
 
@@ -248,7 +383,7 @@ Acronis True Image 2016 (2.0.5531) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520312.jpg" />
+  <img src="Z:/picture/008/save_picture_520312.jpg" />
 </div>
 
 
@@ -277,7 +412,7 @@ GuitarFineTune 9.7.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519835.jpg" />
+  <img src="Z:/picture/008/save_picture_519835.jpg" />
 </div>
 
 
@@ -303,7 +438,7 @@ start 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519828.jpg" />
+  <img src="Z:/picture/008/save_picture_519828.jpg" />
 </div>
 
 
@@ -329,7 +464,7 @@ PowerPhotos 1.9.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519774.jpg" />
+  <img src="Z:/picture/008/save_picture_519774.jpg" />
 </div>
 
 
@@ -355,7 +490,7 @@ SignFlow - eSign PDF Editor for Mac 1.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519773.jpg" />
+  <img src="Z:/picture/008/save_picture_519773.jpg" />
 </div>
 
 
@@ -381,7 +516,7 @@ Steinberg VST Live Pro 1.10.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519720.jpg" />
+  <img src="Z:/picture/008/save_picture_519720.jpg" />
 </div>
 
 
@@ -407,7 +542,7 @@ IconFly 3.11 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518867.jpg" />
+  <img src="Z:/picture/008/save_picture_518867.jpg" />
 </div>
 
 
@@ -434,7 +569,7 @@ Acon Digital AudioLava for Mac 2.1.2 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518861.jpg" />
+  <img src="Z:/picture/008/save_picture_518861.jpg" />
 </div>
 
 
@@ -460,7 +595,7 @@ Acon Digital Acoustica Premium Edition 7.4.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518793.jpg" />
+  <img src="Z:/picture/008/save_picture_518793.jpg" />
 </div>
 
 
@@ -486,7 +621,7 @@ ExpanDrive 2022.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518779.jpg" />
+  <img src="Z:/picture/008/save_picture_518779.jpg" />
 </div>
 
 
@@ -513,7 +648,7 @@ Affinity Photo 1.3.5 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518286.jpg" />
+  <img src="Z:/picture/008/save_picture_518286.jpg" />
 </div>
 
 
@@ -542,7 +677,7 @@ BlueHarvest 6.2.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518270.jpg" />
+  <img src="Z:/picture/008/save_picture_518270.jpg" />
 </div>
 
 
@@ -556,146 +691,6 @@ BlueHarvest -  утилита, помогающая автоматизирова
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD08B2FBDCDA7EDD108C69D834D918FB3B7AA366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929955   (516901) от 21.08.2015
-
-Noiseless Pro 1.1.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое простое и продвинутое программное обеспечение шумоподавления. Получите яркие, естественно выглядящие изображения без шума, сохраняя детали и цвет Ваших фотографий.
-Noiseless Pro вдыхает новую жизнь в каждую фотографию! Делая фотографии при слабом освещении, каждый смартфон, компактная камера или DSLR создают "шум", маленькие цветные или легкие веснушки, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 августа 2015Разработчик: MacPhun LLCПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB97C4B2EAD0573F97A3BEF45DC0934F8FC90C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930294   (516136) от 22.08.2015
-
-Typed for Mac 1.2 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый минималистичный и красивый блокнот для Mac OS.
-Одной из уникальный функций Typed для OS X является режим концентрации — в настройках программы можно выбрать одну из 8 мелодий.
-
-Готовый текст можно экспортировать в HTML формат, чтобы затем просто скопировать его и вставить на сайт или куда-то еще. Дизайн программы выполнен на среднем уровне, все элементы выполнены (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16.07.2015Разработчик: RealMac SoftWareПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2ECFFB09CC871B51FD32F8B8F53E9F0511A2D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559866   (515427) от 04.07.2022
-
-Parallels Desktop 18 for Mac Pro Edition Technical Preview
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parallels® Desktop 18 for Mac Technical Preview — удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей.
-Parallels® Desktop 18 for Mac Technical Preview позволяет использовать собственные устройства (то есть реализовать подход BYOD) и обеспечить поддержку Windows-приложений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.06.2022Разработчик: Parallels International GmbHПоддерживаемая ОС: macOS Mojave 10.14.6+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574EA1B774ABD15F3BCCF8839C890DA9397A34E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561476   (513317) от 06.07.2022
-
-Microsoft Office 2021 for Mac LTSC v16.62 VL [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office LTSC 2021 — это последняя версия производительного программного обеспечения корпорации Майкрософт, доступная организациям в рамках соглашения о корпоративном лицензировании.
-
-Office LTSC 2021 не Office, которые доступны в Microsoft 365 (или Office 365). Например, если вы развернули Приложения Microsoft 365 для предприятий (ранее Office 365 профессиональный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.06.2022Разработчик: © 2022 Microsoft CorporationПоддерживаемая ОС: macOS Catalina 10.15+Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D8E07CCCFDEEEB16A9ECE1A5867448180C3DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931168   (512926) от 25.08.2015
-
-IconKit 4.0.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для создания (генерации) иконок для Mac OSX. С помощью IconKit вы легко сможете создавать иконки разных размеров и для разных устройств - это элементарно, просто перетащите изображение размером 1024х1024 на рабочее поле программы.
-
-Основные возможности:
-• Интуитивный интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 августа 2015Разработчик: Mojtaba KomeiliПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA90A02C17014D93EF1C758FCE0414F6D5FC1999
 ```
 
 https://mybot314.ru/tekegram_catalog/

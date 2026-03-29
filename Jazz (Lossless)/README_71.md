@@ -1,3 +1,121 @@
+###  Публикация: 1012606   (793822) от 01.05.2016
+
+Count Basie & His Atomic Band - Complete Live At The Crescendo 1958 (2016) 5CD, Phono Records[FLAC|Lossless|tracks + .cue] <Big Band, Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793822.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Moten Swing #1 [05:51]
+02.Cute #1 [03:51]
+03.Sweetie Cakes [04:29](   Читать дальше...   )Жанр: Big Band, Swing, Mainstream JazzПродолжительность: 05:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5394D2F8E0592345139EE8EAB874C5655B5E19AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386594   (793791) от 30.05.2020
+
+B.B. King - Live At The Regal (1964) [FLAC|Lossless|tracks] <Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live At The Regal — концертный альбом Би Би Кинга. Вышел в 1965 году на лейбле ABC Records. Запись была сделана 21 ноября 1964 года на концерте в Чикаго в Regal Theater.
+
+В 2003 году журнал Rolling Stone поместил альбом Live At The Regal на 141 место своего списка «500 величайших альбомов всех времён». В списке 2012 года альбом находится также на 141 месте.01. Every Day I Have The Blues (2:39)
+02. Sweet Little Angel (4:12)
+03. It's My Own Fault (3:36)
+04. How Blue Can You Get (3:37)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BFCDACCAED73A9F388CEF2DF3864F2F877E0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122971   (793720) от 06.04.2017
+
+The Bob Brookmeyer Quartet - Oslo (1986) 1997,  Concord [FLAC|Lossless|tracks + .cue] <Post-Bop,Cool, West Coast Jaz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With The Wind And The Rain In Your Hair (5:18)
+02. Oslo (5:11)
+03. Later Blues (5:07)
+04. Detour Ahead (8:14)(   Читать дальше...   )Жанр: Post-Bop,Cool, West Coast JazПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3365517ABC0CBAB91A81BDD662F6E26541B77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122904   (793719) от 06.04.2017
+
+Edward Simon - Poesia (2009) CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.My Love For You (take 1) [03:30]
+ 02.Winter [07:09]
+ 03.Giant Steps [09:47]
+ 04.One for J.P. [05:19](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC48F247A79DC3F74891F2835C46E81535D6E96F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122883   (793717) от 06.04.2017
 
 Ike Quebec - With A Song In My Heart (1962) Remaster, 2012, EMI Music [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +124,7 @@ Ike Quebec - With A Song In My Heart (1962) Remaster, 2012, EMI Music [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793717.jpg" />
+  <img src="Z:/picture/008/save_picture_793717.jpg" />
 </div>
 
 
@@ -35,7 +153,7 @@ Billy Cobham - Life & Times (1976) 2000, Wounded Bird [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793713.jpg" />
+  <img src="Z:/picture/008/save_picture_793713.jpg" />
 </div>
 
 
@@ -64,7 +182,7 @@ Francis Albert Sinatra & Antonio Carlos Jobim - Francis Albert Sinatra & Antonio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793674.jpg" />
+  <img src="Z:/picture/008/save_picture_793674.jpg" />
 </div>
 
 
@@ -93,7 +211,7 @@ Billie Holiday - My Man (1995) Series Success [APE|Lossless|image + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793673.jpg" />
+  <img src="Z:/picture/008/save_picture_793673.jpg" />
 </div>
 
 
@@ -122,7 +240,7 @@ Miles Davis - Kind Of Blue (1958) 2CD, 2010, Not Now Music[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793631.jpg" />
+  <img src="Z:/picture/008/save_picture_793631.jpg" />
 </div>
 
 
@@ -151,7 +269,7 @@ Buddy Rich - The Solos (1976, 1977) 2014, Lightyear Entertainment [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793617.jpg" />
+  <img src="Z:/picture/008/save_picture_793617.jpg" />
 </div>
 
 
@@ -177,7 +295,7 @@ Ray Conniff - The Real... Ray Conniff (2014) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793422.jpg" />
+  <img src="Z:/picture/008/save_picture_793422.jpg" />
 </div>
 
 
@@ -206,7 +324,7 @@ Herman Chittison - 1945 - 1950 (2003) Classics [FLAC|Lossless|tracks + .cue] <St
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793065.jpg" />
+  <img src="Z:/picture/008/save_picture_793065.jpg" />
 </div>
 
 
@@ -235,7 +353,7 @@ Charlie Haden & Hank Jones - Come Sunday (2011) Universal [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793064.jpg" />
+  <img src="Z:/picture/008/save_picture_793064.jpg" />
 </div>
 
 
@@ -264,7 +382,7 @@ Red Norvo - The Modern Red Norvo (1945 - 1951) 2CD, 2002, Savoy Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792981.jpg" />
+  <img src="Z:/picture/008/save_picture_792981.jpg" />
 </div>
 
 
@@ -293,7 +411,7 @@ Stephanie Nakasian - Lullaby In Rhythm: A Tribute To June Christy (2002) V.S.O.P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792970.jpg" />
+  <img src="Z:/picture/008/save_picture_792970.jpg" />
 </div>
 
 
@@ -322,7 +440,7 @@ Jens Sondergaard Quartet & Bob Rockwell - More Golson (2012) Stunt Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792883.jpg" />
+  <img src="Z:/picture/008/save_picture_792883.jpg" />
 </div>
 
 
@@ -351,7 +469,7 @@ Elsie Bianchi Trio - Atlantis Blues (1962) 2004, Sonorama [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792882.jpg" />
+  <img src="Z:/picture/008/save_picture_792882.jpg" />
 </div>
 
 
@@ -380,7 +498,7 @@ Black Art Jazz Collective - Presented by the Side Door Jazz Club (2014) 2016, Su
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792877.jpg" />
+  <img src="Z:/picture/008/save_picture_792877.jpg" />
 </div>
 
 
@@ -409,7 +527,7 @@ Walt Dickerson - Four Classic Albums 1961 - 1962 (2016) 2CD, Avid Jazz [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792711.jpg" />
+  <img src="Z:/picture/008/save_picture_792711.jpg" />
 </div>
 
 
@@ -438,7 +556,7 @@ Glenn Miller And The Army Air Force Band - Rare Broadcast: Performances from 194
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792689.jpg" />
+  <img src="Z:/picture/008/save_picture_792689.jpg" />
 </div>
 
 
@@ -467,7 +585,7 @@ Wayne Shorter - The All Seeing Eye 1965 (1994) Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792645.jpg" />
+  <img src="Z:/picture/008/save_picture_792645.jpg" />
 </div>
 
 
@@ -496,7 +614,7 @@ Pauline Alpert - Keyboard Wizards Of The Gershwin Era, Volume I (1943, 1944) 199
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792533.jpg" />
+  <img src="Z:/picture/008/save_picture_792533.jpg" />
 </div>
 
 
@@ -525,7 +643,7 @@ Valery Ponomarev & Benny Golson meet Jazz Old Trio - Mission In Siberia (1997) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792529.jpg" />
+  <img src="Z:/picture/008/save_picture_792529.jpg" />
 </div>
 
 
@@ -554,7 +672,7 @@ Vainoras and the altar of the drill - Self titled (2017) [FLAC|Lossless|Web-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792498.jpg" />
+  <img src="Z:/picture/008/save_picture_792498.jpg" />
 </div>
 
 
@@ -583,7 +701,7 @@ Scott Bradlee's Postmodern Jukebox - Fake Blues (2017) [FLAC|Lossless|Web-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792377.jpg" />
+  <img src="Z:/picture/008/save_picture_792377.jpg" />
 </div>
 
 
@@ -613,7 +731,7 @@ Art Pepper - Goin' Home (1984) Victor [FLAC|Lossless|image + .cue] <Post-Bop, Pi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792276.jpg" />
+  <img src="Z:/picture/008/save_picture_792276.jpg" />
 </div>
 
 
@@ -627,122 +745,6 @@ Art Pepper - Goin' Home (1984) Victor [FLAC|Lossless|image + .cue] <Post-Bop, Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5240A8AE4EDA6122B6E3E14138E864365D8CA95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274616   (792275) от 08.01.2019
-
-Crusaders - Ghetto Blaster (1984) [FLAC|Lossless|image + .cue] <Funk-jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792275.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dead End (04:58)
-2. Gotta Lotta Shakalada (03:54)
-3. New Moves (04:16)
-4. Zalal'e Mini (Take It Easy) (06:12)(   Читать дальше...   )Жанр: Funk-jazzПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AE2665AEF9BD770AABA897BD507900456550D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201543   (792265) от 25.01.2018
-
-David "Fathead" Newman - Lone Star Legend: Still Hard Times • Resurgence! (1980, 1982) 1997, 32 Jazz [APE|Lossless|image + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Must Change [04:36]
-02. Mama Lou [05:55]
-03. Davey Blue [09:16]
-04. Carnegie Blues [08:29](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB19EA1269130A8449B4C326E1A51BEB92861A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201558   (792264) от 25.01.2018
-
-Elsie Bianchi - The Sweetest Sound (1965) 2016, MPS [FLAC|Lossless|image + .cue] <Vocal Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teach Me Tonight [03:13]
-02. Fallin' in Love with Love [04:03]
-03. Little Bird [03:07]
-04. A Sleepin' Bee [03:52](   Читать дальше...   )Жанр: Vocal Jazz, Piano JazzПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0DF4DC26DECC7E1435E5078E09446B404BEB714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201554   (792260) от 25.01.2018
-
-Caterina Valente - The Jazz Singer (1954, 1955) 2017, Jazzhaus [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After You've Gone [03:10]
-02. I Ain't Gonna Tell You [02:25]
-03. They Can't Take That Away from Me [02:34]
-04. Pennies from Heaven [02:17](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A3B1263AF99DF48458C2918F79D1EF2C16CB35
 ```
 
 https://mybot314.ru/tekegram_catalog/

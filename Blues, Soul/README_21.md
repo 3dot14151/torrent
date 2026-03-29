@@ -1,3 +1,32 @@
+###  Публикация: 922983   (566464) от 30.07.2015
+
+VA - Muddy Waters 100 (2015) [MP3|320 кб/с]<Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got My Mojo Workin' (Feat. Shemekia Copeland) (4:11)
+02. Still A Fool (Feat. Derek Trucks) (3:51)
+03. I Be's Troubled (Feat. Bob Margolin) (3:26)
+04. I'm Ready (Feat. Johnny Winter) (3:06)(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F902C3CF9BFF808445322383D1C81F3B27ECD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044521   (565503) от 20.08.2016
 
 Studebaker John And The Hawks - Eternity's Descent (2016) [MP3|320 Kbps] <Blues Rock>
@@ -6,7 +35,7 @@ Studebaker John And The Hawks - Eternity's Descent (2016) [MP3|320 Kbps] <Blues 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565503.jpg" />
+  <img src="Z:/picture/008/save_picture_565503.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Walter Trout - The Outsider (2008) [MP3|320 kbps]<Blues-Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563807.jpg" />
+  <img src="Z:/picture/008/save_picture_563807.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - British Blues Cuts (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562263.jpg" />
+  <img src="Z:/picture/008/save_picture_562263.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Ted Drozdowski's Scissormen - Love & Life (2015) [MP3|320 кб/с]<Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561036.jpg" />
+  <img src="Z:/picture/008/save_picture_561036.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Buddy Guy - Born To Play Guitar (2015) [MP3|320 кб/с]<Chicago Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560923.jpg" />
+  <img src="Z:/picture/008/save_picture_560923.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Howard "Guitar" Luedtke And Blue Max - Face To Face With The Blues (1996) False 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560462.jpg" />
+  <img src="Z:/picture/008/save_picture_560462.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Christone Kingfish Ingram - Kingfish (2019) [MP3|320 Kbps] <Blues, Electric Blue
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558166.jpg" />
+  <img src="Z:/picture/008/save_picture_558166.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Joanne Shaw Taylor - Blues From The Heart Live (2022) Live [MP3|320 Kbps] <Blues
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558091.jpg" />
+  <img src="Z:/picture/008/save_picture_558091.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Subluna - Subluna (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557018.jpg" />
+  <img src="Z:/picture/008/save_picture_557018.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Kenny Wayne Shepherd Band - Lay It On Down (2017) Limited Edition [MP3|320 Kbps]
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556872.jpg" />
+  <img src="Z:/picture/008/save_picture_556872.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Vanessa Collier - Honey Up (2018) [MP3|320 Kbps] <Blues, Funk>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556592.jpg" />
+  <img src="Z:/picture/008/save_picture_556592.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Two Timer - The Big Easy (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556283.jpg" />
+  <img src="Z:/picture/008/save_picture_556283.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ William F. Souffreau (of Irish Coffee) - Tobacco Fields (2017) [MP3|320 Kbps] <B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554671.jpg" />
+  <img src="Z:/picture/008/save_picture_554671.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Keb' Mo' - Oklahoma (2019) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553921.jpg" />
+  <img src="Z:/picture/008/save_picture_553921.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Greg Serrato - Holy Smokes (1999) [MP3|256 Kbps] <Electric Blues, Blues Rock, Ch
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551935.jpg" />
+  <img src="Z:/picture/008/save_picture_551935.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Joe Gorfinkle & Friends - Take A Chance (2012) [MP3|320 Kbps] <Modern Electric B
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544920.jpg" />
+  <img src="Z:/picture/008/save_picture_544920.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Bootleggers - Heart Of Dixie (2012) [MP3|320 Kbps] <Blues, Country, Southern Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544907.jpg" />
+  <img src="Z:/picture/008/save_picture_544907.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Jeremy Spencer - Bend In The Road (2012) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544863.jpg" />
+  <img src="Z:/picture/008/save_picture_544863.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Deb Rhymer - Don't Wait Up (2018) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544656.jpg" />
+  <img src="Z:/picture/008/save_picture_544656.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Delgres - Mo Jodi (2018) Extended Gold Edition, 2019, Groupe Yapuka [MP3|320 Kbp
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543533.jpg" />
+  <img src="Z:/picture/008/save_picture_543533.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ The Record Company - All Of This Life (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542431.jpg" />
+  <img src="Z:/picture/008/save_picture_542431.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Phantom Blues Band - Inside Out (2011) [MP3|320 кб/с]<Funky Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541401.jpg" />
+  <img src="Z:/picture/008/save_picture_541401.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Christ Ruest & Gene Taylor - It's Too Late Now (2017) [MP3|320 Kbps] <Chicago Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541050.jpg" />
+  <img src="Z:/picture/008/save_picture_541050.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Nighttime Lovers Vol.25 (2016) [MP3|320 Kbps] <Electronic, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540645.jpg" />
+  <img src="Z:/picture/008/save_picture_540645.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Bar Room Blues: A 12-Track Program (2004) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538674.jpg" />
+  <img src="Z:/picture/008/save_picture_538674.jpg" />
 </div>
 
 
@@ -722,38 +751,6 @@ VA - Bar Room Blues: A 12-Track Program (2004) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B973304B3B412D2ED0C62C4C876F9DB54979F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532343   (538554) от 07.08.2012
-
-Divin' Ducks - 5 albums (1992 - 1998) [MP3|224-320 кб/с]<Hard Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-1992 - Rapes The World
-1994 - An Eye For An Eye..A Tooth For A Tooth
-1995 - Gutter Rhymes
-1998 - Both Ends Burning
-1998 - Brewed And Bottled - Alive!(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 03:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E942B885A6F8D40A7C9A2FB2B1C2BD51451D7F18
 ```
 
 https://mybot314.ru/tekegram_catalog/

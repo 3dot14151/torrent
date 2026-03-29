@@ -6,7 +6,7 @@ Elmedia Player Pro 7.12 (build 2164)  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769374.jpg" />
+  <img src="Z:/picture/008/save_picture_769374.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ XnViewMP 0.96.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769368.jpg" />
+  <img src="Z:/picture/008/save_picture_769368.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ R-Drive Image 6.3 Build 6305 + BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769356.jpg" />
+  <img src="Z:/picture/008/save_picture_769356.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Files Inspector Pro 2.0 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769352.jpg" />
+  <img src="Z:/picture/008/save_picture_769352.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Zentimo xStorage Manager 2.3.2.1280 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769349.jpg" />
+  <img src="Z:/picture/008/save_picture_769349.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PDF Expert 2.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769344.jpg" />
+  <img src="Z:/picture/008/save_picture_769344.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ iMazing 2.11.7 (build 13717) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769337.jpg" />
+  <img src="Z:/picture/008/save_picture_769337.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Honeyview 5.33 Build 5429 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769333.jpg" />
+  <img src="Z:/picture/008/save_picture_769333.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ WhatsApp 2.2025.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769332.jpg" />
+  <img src="Z:/picture/008/save_picture_769332.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Topaz Gigapixel AI 5.0.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769327.jpg" />
+  <img src="Z:/picture/008/save_picture_769327.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ UltraISO Premium Edition 9.7.3.3629 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769323.jpg" />
+  <img src="Z:/picture/008/save_picture_769323.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ The KMPlayer 4.2.2.41 repack by cuta (build 4) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769306.jpg" />
+  <img src="Z:/picture/008/save_picture_769306.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ CCleaner 5.68.7820 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769305.jpg" />
+  <img src="Z:/picture/008/save_picture_769305.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ iSpy 7.2.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769301.jpg" />
+  <img src="Z:/picture/008/save_picture_769301.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ AutoRuns 13.98 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769292.jpg" />
+  <img src="Z:/picture/008/save_picture_769292.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Adobe After Effects 2020 17.1.1.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769291.jpg" />
+  <img src="Z:/picture/008/save_picture_769291.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ BusyCal 3 v3.10.2 (build 401026) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769264.jpg" />
+  <img src="Z:/picture/008/save_picture_769264.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Amadeus Pro  2.8.4 (build 2518) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769262.jpg" />
+  <img src="Z:/picture/008/save_picture_769262.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ BusyContacts 1.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769261.jpg" />
+  <img src="Z:/picture/008/save_picture_769261.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Deckset 2.0.18 (build 2582) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769259.jpg" />
+  <img src="Z:/picture/008/save_picture_769259.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ FontLab 7 v7.1.3.7478 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769256.jpg" />
+  <img src="Z:/picture/008/save_picture_769256.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ FontExplorer X Pro 7 v7.1.0 CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769254.jpg" />
+  <img src="Z:/picture/008/save_picture_769254.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Slidepad 1.0.33 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769253.jpg" />
+  <img src="Z:/picture/008/save_picture_769253.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Wattagio 1.10.1 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769251.jpg" />
+  <img src="Z:/picture/008/save_picture_769251.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Geekbench 5 v5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769247.jpg" />
+  <img src="Z:/picture/008/save_picture_769247.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Notability 4.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769245.jpg" />
+  <img src="Z:/picture/008/save_picture_769245.jpg" />
 </div>
 
 

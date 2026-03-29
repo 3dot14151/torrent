@@ -6,7 +6,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872083.jpg" />
+  <img src="Z:/picture/008/save_picture_872083.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Castro Premium 2.2.1 (build 40) [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871043.jpg" />
+  <img src="Z:/picture/008/save_picture_871043.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870880.jpg" />
+  <img src="Z:/picture/008/save_picture_870880.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870783.jpg" />
+  <img src="Z:/picture/008/save_picture_870783.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Geometry Solver Pro v1.30 [Ru/Multi] - приложение для решени�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869966.jpg" />
+  <img src="Z:/picture/008/save_picture_869966.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ RoughAnimator v1.4.1 [En/Ru] - программа для создания пок
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869962.jpg" />
+  <img src="Z:/picture/008/save_picture_869962.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868943.jpg" />
+  <img src="Z:/picture/008/save_picture_868943.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Memento Database Pro 4.7.5 [Rus/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868456.jpg" />
+  <img src="Z:/picture/008/save_picture_868456.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868076.jpg" />
+  <img src="Z:/picture/008/save_picture_868076.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865274.jpg" />
+  <img src="Z:/picture/008/save_picture_865274.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865061.jpg" />
+  <img src="Z:/picture/008/save_picture_865061.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865032.jpg" />
+  <img src="Z:/picture/008/save_picture_865032.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Drainworks 1.3.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863768.jpg" />
+  <img src="Z:/picture/008/save_picture_863768.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863495.jpg" />
+  <img src="Z:/picture/008/save_picture_863495.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Pool Break Pro v1.7.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863412.jpg" />
+  <img src="Z:/picture/008/save_picture_863412.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Golf Battle 3D 1.1.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863396.jpg" />
+  <img src="Z:/picture/008/save_picture_863396.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863312.jpg" />
+  <img src="Z:/picture/008/save_picture_863312.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Dark Nova 1.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863254.jpg" />
+  <img src="Z:/picture/008/save_picture_863254.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863003.jpg" />
+  <img src="Z:/picture/008/save_picture_863003.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862836.jpg" />
+  <img src="Z:/picture/008/save_picture_862836.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862780.jpg" />
+  <img src="Z:/picture/008/save_picture_862780.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Traffic Monitor Plus 6.5.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862761.jpg" />
+  <img src="Z:/picture/008/save_picture_862761.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862669.jpg" />
+  <img src="Z:/picture/008/save_picture_862669.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Polarr Photo Editor v6.00.44 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862510.jpg" />
+  <img src="Z:/picture/008/save_picture_862510.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ MP3 Cutter v3.7.1 Pro [Ru/En] и v3.8.2 Ad-Free [Ru/En]  - Создаем сво
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861914.jpg" />
+  <img src="Z:/picture/008/save_picture_861914.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861838.jpg" />
+  <img src="Z:/picture/008/save_picture_861838.jpg" />
 </div>
 
 

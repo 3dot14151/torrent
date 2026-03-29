@@ -1,4 +1,84 @@
 https://t.me/izofen
+###  Публикация: 1861990   (1063103) от 
+
+Вожди Атлантиды / Warlords of Atlantis (1978) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английские ученые отправляются на поиски затерянных цивилизаций на научном судне. При первом же погружении батисферы на нее нападают плавающие чудовища и утаскивают в... подводный город, где укрываются остатки затонувшей Атлантиды.
+Местные вожди способны управлять тварями вроде гигантского спрута или доисторических амфибий как своими механизмами. К тому же, они способны (   Читать дальше...   )Производство: Великобритания / Atkins World Enterprises, EMI Films Ltd.Жанр: ужасы, фантастика, фэнтези, приключенияРежиссер: Кевин КоннорАктеры: Даг Макклур, Питер Гилмор, Шэйн Риммер, Лиа Броди, Майкл Гозард, Хэл Гэлили, Джон Ратценбергер, Дерри Пауэр, Дональд Биссет, Эшли НайтПеревод: Дублированный ("Ленфильм"), двуголосый профессиональный (НТВ), авторский (Ю. Живов, А. Дольский)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE176BDBBEFF129450BF2985EB0E5D8092AB6D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860803   (1062114) от 
+
+Величайший любовник в мире / The World's Greatest Lover (1977) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит в Голливуде 1920-х годов. Герой Уайлдера, булочник Руди Хикмэн, принимает участие в конкурсе, среди участников которого сам Рудольф Валентино. И хотя Руди совсем не актёр, но как это обычно бывает в комедиях положений, ему отчаянно везёт.Производство: США / 20th Century Fox Film Corporation, Jouer LimitedЖанр: KомедияРежиссер: Джин УайлдерАктеры: Джин Уайлдер, Кэрол Кейн, Дом ДеЛуис, Фриц Фельд, Марк Силберман, Роберт Болл, Рэндольф Доббс, Сэнди Роветта, Ханна Дин, Рита КондеПеревод: Многоголосый профессиональный, Первый каналЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8BA4F75425D75016C005E683C5DD1ED12699DB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860561   (1061931) от 
+
+Гадкая такса / The Ugly Dachshund (1966) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрэн Гаррисон переживает волнительный период, потому что её такса-чемпионка, Данке, ждёт щенков, и девушка надеется, что один из них тоже станет чемпионом. Но во время визита к ветеринару её мужа Джима уговаривают на то, чтобы Данке выкормила щенка датского дога, которого бросила мать. Джим решает оставить датского дога у себя.
+В результате у Брутуса возникает проблема: (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: комедия, семейныйРежиссер: Норман ТокарьАктеры: Дин Джонс, Сюзанн Плешетт, Чарльз Рагглз, Келли Тордсэн, Парли Баэр, Боб Кино, Мако, Чарльз Лэйн, Дон Амес. Алекс БоллПеревод: Двуголосый профессиональный (Студия"ИНИС")Язык озвучки: Русский, итальянский, английскийСубтитры: ОтсутствуютПродолжительность: 01:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE7D0EFBD04BC25415987F0FCA4817C771C865E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859851   (1061561) от 
 
 Блеф / Bluff storia di truffe e di imbroglioni (1976) BDRip [H.264]
@@ -7,7 +87,7 @@ https://t.me/izofen
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061561.jpg" />
+  <img src="Z:/picture/005/save_picture_1061561.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061384.jpg" />
+  <img src="Z:/picture/005/save_picture_1061384.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061356.jpg" />
+  <img src="Z:/picture/005/save_picture_1061356.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061241.jpg" />
+  <img src="Z:/picture/005/save_picture_1061241.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060917.jpg" />
+  <img src="Z:/picture/005/save_picture_1060917.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060812.jpg" />
+  <img src="Z:/picture/005/save_picture_1060812.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060328.jpg" />
+  <img src="Z:/picture/009/save_picture_1060328.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059823.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059514.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059421.jpg" />
+  <img src="Z:/picture/005/save_picture_1059421.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059225.jpg" />
+  <img src="Z:/picture/005/save_picture_1059225.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059218.jpg" />
+  <img src="Z:/picture/005/save_picture_1059218.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059101.jpg" />
+  <img src="Z:/picture/005/save_picture_1059101.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059028.jpg" />
+  <img src="Z:/picture/005/save_picture_1059028.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058591.jpg" />
+  <img src="Z:/picture/005/save_picture_1058591.jpg" />
 </div>
 
 
@@ -403,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058188.jpg" />
+  <img src="Z:/picture/005/save_picture_1058188.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057815.jpg" />
+  <img src="Z:/picture/005/save_picture_1057815.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057812.jpg" />
+  <img src="Z:/picture/005/save_picture_1057812.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057809.jpg" />
+  <img src="Z:/picture/005/save_picture_1057809.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057597.jpg" />
+  <img src="Z:/picture/005/save_picture_1057597.jpg" />
 </div>
 
 
@@ -535,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057270.jpg" />
+  <img src="Z:/picture/005/save_picture_1057270.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057180.jpg" />
+  <img src="Z:/picture/005/save_picture_1057180.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056775.jpg" />
+  <img src="Z:/picture/005/save_picture_1056775.jpg" />
 </div>
 
 
@@ -598,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDD079D5F3E9C4A93CCC0DC4A7DDD96F418BCEF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853742   (1056584) от 14.02.2026
-
-Отсюда и в вечность / Отныне и во веки веков / From Here to Eternity (1953) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основан на одноимённом романе Джеймса Джонса (1941)... Американский военный гарнизон на Гавайях. Идет обычная мирная жизнь военного гарнизона: дурные командиры, столкновение характеров и даже любовь... Роберт Ли Пруит после несчастного случая переведён в другую часть. Способный боксёр, он отказывается выступать на ринге, ибо во время тренировочного боя нанёс своему (   Читать дальше...   )Производство: США / Columbia PicturesЖанр: драма, мелодрама, военныйРежиссер: Фред ЦиннеманнАктеры: Бёрт Ланкастер, Монтгомери Клифт, Дебора Керр, Донна Рид, Фрэнк Синатра, Филип Обер, Мики Шонесси, Гарри Беллэвер, Эрнест Боргнайн, Джек Уорден, Джон Дэннис, Мерл Трэвис, Тим Райан, Артур Кигэн, Барбара МоррисонПеревод: профессиональный многоголосый (HTB+), профессиональный двухголосый (Светла; SomeWax), авторский (Алексей медведев)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52452E4F7AD25024FD7946BC67AFF0F526E13738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853116   (1056426) от 11.02.2026
-
-Терминатор / The Terminator (1984) DVDRip [Extended Edition]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056426.jpg" />
-</div>
-
-
-###  Подробнее
-
-История противостояния солдата Кайла Риза и киборга-терминатора, прибывших в 1984 год из пост-апокалиптического будущего, где миром правят машины-убийцы, а человечество находится на грани вымирания.Производство: США, Великобритания / Cinema 84, Euro Film Funding, Hemdale Films, Pacific WesternЖанр: фантастика, боевик, триллерРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Майкл Бин, Линда Хэмилтон, Пол Уинфилд, Лэнс Хенриксен, Рик Россович, Бесс Мотта, Эрл Боэн, Дик Миллер, Шон Шеппс и др.Перевод: Дублированный (Blu-Ray, CCE + вставки AlSoDi project & SkyeFilmTV (на расширенные эпизоды)), многолосый профессиональный (Позитив-Мультимедиа + вставки VO Михаил Бирюков (на расширенные эпизоды))Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903EF1AAD96D6A3DFF7F61255698AB98A119D93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849799   (1053587) от 24.01.2026
-
-Александр Великий / Alexander the Great (1956) HDTVRip [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Греция в огне. Большая часть когда-то великих городов повержена в прах. Крохотная горная Македония пока сдерживает удар. Молодой сын царя Александр решает, что пришло время избавить страну от коварных соседей, на протяжении веков приходящих с войной на ее землю. Грозная сила обрушивается на врагов, покоряет все новые страны, объединяя народы и расширяя границы империи. (   Читать дальше...   )Производство: Испания, США / C.B. Films S.A., Rossen FilmsЖанр: драма, военный, биография, историяРежиссер: Роберт РоссенАктеры: Ричард Бёртон, Фредрик Марч, Клэр Блум, Бэрри Джонс, Гарри Эндрюс, Стенли Бейкер, Ниалл МакГиннис, Питер Кушинг, Майкл Хордерн, Мариса де ЛесаПеревод: Двуголосый профессиональный (НТВ+)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A32648C7725125FFED2C259FA9D87EBC343797
 ```
 
 https://mybot314.ru/tekegram_catalog/

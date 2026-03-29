@@ -1,3 +1,109 @@
+###  Публикация: 1428173   (180801) от 01.12.2020
+
+Principle 5.14 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_180801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Principle — приложение для Mac OS, которое позволяет в два счета создать анимацию элементов пользовательского интерфейса и сгенерировать его интерактивный прототип. Будь то многоэкранное приложение или просто придуманный вами контрол, так просто и быстро реализовать это раньше не позволял ни один сервис.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: Hooper Software LLCПоддерживаемая ОС: 10.13 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44ADC1D7C16DFFCAF241C11F38DB8958A12BF700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428081   (180734) от 01.12.2020
+
+Movavi Video Suite for Mac 2021 v21.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_180734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite 2021 - все для монтажа видео на macOS: создание видеороликов, конвертация файлов, запись экрана и многое другое. Удобный инструмент дистанционной работы и обучения.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A0F7571031C816083417717CBAD21AE2CEB9ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428311   (180724) от 01.12.2020
+
+Pixelmator Pro 2.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_180724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator Pro — это невероятно мощный, красивый и простой в использовании редактор изображений, созданный специально для работы на Mac.
+
+Много неразрушающих про-инструментов редактирования позволяют наилучшим образом обрабатывать фото, создавать отличные композиции, чертить, окрашивать, применять потрясающие эффекты, делать красивые надписи и изменять изображения, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6185695C64922DD36501C22A7E1A5BBDF170914F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428181   (180720) от 01.12.2020
+
+Movavi Screen Recorder 21.0.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_180720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простая и функциональная программа для записи всего, что происходит на экране вашего Mac. Захватывайте и сохраняйте на жесткий диск видео и музыку из интернета, записывайте разговоры в Skype и игровой процесс, создавайте собственные видеоуроки. Программа крайне проста в освоении и не требует никаких специальных навыков. Установите настройки записи, снимите видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2020Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: Mac OS Х® 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE04ACF77C8566927CC3C96E8A3AF5F32648C6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666192   (180253) от 03.10.2023
 
 PopClip 2023.9 [Multi/Ru]
@@ -6,7 +112,7 @@ PopClip 2023.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180253.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ UctoX 2 v2.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180229.jpg" />
+  <img src="Z:/picture/005/save_picture_180229.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ Receipts 1.9.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180226.jpg" />
+  <img src="Z:/picture/005/save_picture_180226.jpg" />
 </div>
 
 
@@ -90,7 +196,7 @@ EazyDraw 10.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180225.jpg" />
+  <img src="Z:/picture/005/save_picture_180225.jpg" />
 </div>
 
 
@@ -116,7 +222,7 @@ Movie Collector Pro 20.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180223.jpg" />
+  <img src="Z:/picture/005/save_picture_180223.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180219.jpg" />
+  <img src="Z:/picture/005/save_picture_180219.jpg" />
 </div>
 
 
@@ -170,7 +276,7 @@ Rottenwood 1.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180216.jpg" />
+  <img src="Z:/picture/005/save_picture_180216.jpg" />
 </div>
 
 
@@ -196,7 +302,7 @@ Dark Reader for Safari 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180202.jpg" />
+  <img src="Z:/picture/005/save_picture_180202.jpg" />
 </div>
 
 
@@ -223,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180190.jpg" />
+  <img src="Z:/picture/005/save_picture_180190.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ PCDJ DEX 3.15.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180166.jpg" />
+  <img src="Z:/picture/005/save_picture_180166.jpg" />
 </div>
 
 
@@ -275,7 +381,7 @@ JPEG SILKYPIX Photography 10 v10.2.9.2 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180147.jpg" />
+  <img src="Z:/picture/005/save_picture_180147.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ Serial 2 v2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180143.jpg" />
+  <img src="Z:/picture/005/save_picture_180143.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ Numi 3.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180139.jpg" />
+  <img src="Z:/picture/005/save_picture_180139.jpg" />
 </div>
 
 
@@ -355,7 +461,7 @@ Network Kit X 8.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180122.jpg" />
+  <img src="Z:/picture/005/save_picture_180122.jpg" />
 </div>
 
 
@@ -381,7 +487,7 @@ Zoc Terminal 8.01.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180056.jpg" />
+  <img src="Z:/picture/005/save_picture_180056.jpg" />
 </div>
 
 
@@ -407,7 +513,7 @@ Bartender 4 v4.0.28b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180054.jpg" />
+  <img src="Z:/picture/005/save_picture_180054.jpg" />
 </div>
 
 
@@ -434,7 +540,7 @@ App Cleaner & Uninstaller Pro 7.2 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179906.jpg" />
+  <img src="Z:/picture/005/save_picture_179906.jpg" />
 </div>
 
 
@@ -463,7 +569,7 @@ GrandTotal 7 v7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179438.jpg" />
+  <img src="Z:/picture/005/save_picture_179438.jpg" />
 </div>
 
 
@@ -491,7 +597,7 @@ Transfer 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179436.jpg" />
+  <img src="Z:/picture/005/save_picture_179436.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ SiteSucker 4.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179427.jpg" />
+  <img src="Z:/picture/005/save_picture_179427.jpg" />
 </div>
 
 
@@ -546,7 +652,7 @@ Mitti 1.5.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179420.jpg" />
+  <img src="Z:/picture/005/save_picture_179420.jpg" />
 </div>
 
 
@@ -574,7 +680,7 @@ Movist 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179418.jpg" />
+  <img src="Z:/picture/005/save_picture_179418.jpg" />
 </div>
 
 
@@ -587,110 +693,6 @@ Movist является простым в использовании и мощн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA54FF575FE78C1CFD5A4BCCB7F2F77186055C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428623   (179413) от 03.12.2020
-
-SSH Config Editor Pro 2.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования (с графическим предварительным просмотром), а также любой другой вариант SSH конфигурации.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: Petr HejkalПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF88913535CCC1517B35105B369878C6C1727E1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428604   (179387) от 03.12.2020
-
-4K YouTube to MP3 3.13.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179387.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F117893A1300CDF68443E15AA2A67A2FD585D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428615   (179378) от 03.12.2020
-
-Yoink 3.5.11 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yoink представляет собой посредника, который позволяет упростить доступность файлов. После установки приложения в левой части экрана появляется панель Yoink. Теперь если необходимо переместить файл с одного стола в окно открытое на другом, можно просто перетащить его в панель Yoink. Соответственно на перейдя на другой рабочий стол, просто перетягиваем файл из панели. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.11.2020Разработчик: Eternal Storms SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39B6283DCA7B9706C870EED0C607D1AF297B39A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428640   (179310) от 03.12.2020
-
-DEVONthink Pro Office/Server 3 v3.6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Devonthink Pro Office — программное обеспечение для хранения, организации и поиска электронных документов. Devonthink Pro Office в некотором роде можно назвать Вашим вторым мозгом, хранящим все цифровые файлы, будь то PDF-файлы, электронные письма, документы Word, или даже мультимедиа. Devonthink чрезвычайно гибок и легко настраивается под Ваши потребности. А если (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2020Разработчик: DEVONsphere™Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5018A7242A4A79B7BB789FC27252869832DAAEB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

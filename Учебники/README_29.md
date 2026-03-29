@@ -1,3 +1,56 @@
+###  Публикация: 1013421   (776770) от 06.05.2016
+
+С.Е. Щеклеин, О.Л. Ташлыков (ред.) | Атомные электростанции с реакторами на быстрых нейтронах с натриевым теплоносителем [2 части] (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассмотрены основные сведения из ядерной и нейтронной физики, физики и кинетики ядерных реакторов на быстрых нейтронах с натриевым теплоносителем. Приведены особенности обслуживания систем и оборудования с натриевым теплоносителем. Описаны тепловые схемы, основное оборудование и системы атомных электростанций с реакторами БН-600 и БН-800. Рассмотрены особенности (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB49602945E82A2D89BE926F597E71C1115F593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211525   (776754) от 09.03.2018
+
+В.В. Титков, Ф.Х. Халилов | Перенапряжения и молниезащита (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дано понятие об электрических перенапряжениях. Рассмотрены основные характеристики перенапряжений: величина (кратность), форма, повторяемость и широта охвата сети. Проанализированы основные источники перенапряжений в сетях низкого (до 1 кВ), среднего (6–35 кВ), высокого (110 кВ и выше) напряжений.
+Проведена классификация внешних и внутренних перенапряжений. Даны (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:224A2DE1F181E14205A89BABFB4228B5C577181C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013960   (776407) от 07.05.2016
 
 В.С. Рябенький | Введение в вычислительную математику (2008) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776407.jpg" />
+  <img src="Z:/picture/008/save_picture_776407.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775001.jpg" />
+  <img src="Z:/picture/008/save_picture_775001.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774391.jpg" />
+  <img src="Z:/picture/008/save_picture_774391.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_774302.jpg" />
+  <img src="Z:/picture/005/save_picture_774302.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774288.jpg" />
+  <img src="Z:/picture/008/save_picture_774288.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773448.jpg" />
+  <img src="Z:/picture/008/save_picture_773448.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773442.jpg" />
+  <img src="Z:/picture/008/save_picture_773442.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773190.jpg" />
+  <img src="Z:/picture/008/save_picture_773190.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773089.jpg" />
+  <img src="Z:/picture/008/save_picture_773089.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773009.jpg" />
+  <img src="Z:/picture/008/save_picture_773009.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771906.jpg" />
+  <img src="Z:/picture/008/save_picture_771906.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769927.jpg" />
+  <img src="Z:/picture/008/save_picture_769927.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768685.jpg" />
+  <img src="Z:/picture/008/save_picture_768685.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768522.jpg" />
+  <img src="Z:/picture/008/save_picture_768522.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768520.jpg" />
+  <img src="Z:/picture/008/save_picture_768520.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767759.jpg" />
+  <img src="Z:/picture/008/save_picture_767759.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767682.jpg" />
+  <img src="Z:/picture/008/save_picture_767682.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767620.jpg" />
+  <img src="Z:/picture/008/save_picture_767620.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767606.jpg" />
+  <img src="Z:/picture/008/save_picture_767606.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767555.jpg" />
+  <img src="Z:/picture/008/save_picture_767555.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767495.jpg" />
+  <img src="Z:/picture/008/save_picture_767495.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767491.jpg" />
+  <img src="Z:/picture/008/save_picture_767491.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767083.jpg" />
+  <img src="Z:/picture/008/save_picture_767083.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767040.jpg" />
+  <img src="Z:/picture/008/save_picture_767040.jpg" />
 </div>
 
 
@@ -623,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49C5797A1D0D7BE2D7CB075A1362A6F79FFF1607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125595   (766955) от 16.04.2017
-
-Г.И. Журов и др. | Основы современной цифровой фотографии (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766955.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии изложены основы фотографии, рассмотрено устройство и принцип работы фотоаппаратов и объективов, изложены основные принципы компьютерной обработки фотографий, необходимые для создания, ретуширования и восстановления фотографий. Подробно рассмотрена работа с RAW форматами, панорамными фотографиями, стереоизображениями. Рассмотрен процесс создания (   Читать дальше...   )Жанр: Фотография, хоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B03C7E9C6A9303BCA6BAF21118F5F70EC7D089
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125524   (766154) от 17.04.2017
-
-А.Г. Цыпкин, Г.Г. Цыпкин | Математические формулы (1985) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены основные формулы алгебры, геометрии (включая дифференциальную геометрию и векторное исчисление), тригонометрии. Широко представлены формулы и основные понятия и теоремы математического анализа. Приведены таблицы основных интегралов.
-Для широкого круга специалистов и учащейся молодежи.Жанр: СправочникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8971E7A5DACB07CC6B9F634E595CE455F3FD5B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

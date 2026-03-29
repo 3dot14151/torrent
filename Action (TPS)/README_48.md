@@ -1,3 +1,159 @@
+###  Публикация: 1776659   (28909) от 02.02.2025
+
+Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.130.1.0/dlc) Repack DjDI [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достичь большего. Вместе. Невероятная сила симбиота становится серьезным вызовом для Питера Паркера и Майлза Моралеса. В этой части знаменитой франшизы им предстоит искать баланс между личной жизнью, дружбой и долгом, призывающим помогать людям. Паучье чутье зудит. Надевайте маску и совершайте подвиги, играя за отважных борцов со злом в «Marvel Человек-Паук 2» на (   Читать дальше...   )Тип издания: RepackРазработчик: Insomniac Games, Nixxes SoftwareЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A202DED153F515DA75F75C92019F78607F598276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778777   (28172) от 09.02.2025
+
+Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack DjDI [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд самоубийц: Конец Лиги справедливости – это бросающий вызов жанру шутер от третьего лица от Rocksteady Studios, создателей трилогии Batman: Arkham. Примкните к новобранцам печально известной оперативной группы Икс под командованием Аманды Уоллер (он же Отряд самоубийц). Харли Квинн, Дэдшот, Капитан Бумеранг и Король Акул вынуждены приступить к выполнению миссии (   Читать дальше...   )Тип издания: RepackРазработчик: Rocksteady StudiosЖанр: Action, Shooter, Open world, Beat 'em up (Brawler), Third person, 3DЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DAFB3C2D29D61E7973A19F3F655F95FDE825DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779179   (27895) от 12.02.2025
+
+Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд самоубийц: Конец Лиги справедливости – это бросающий вызов жанру шутер от третьего лица от Rocksteady Studios, создателей трилогии Batman: Arkham. Примкните к новобранцам печально известной оперативной группы Икс под командованием Аманды Уоллер (он же Отряд самоубийц). Харли Квинн, Дэдшот, Капитан Бумеранг и Король Акул вынуждены приступить к выполнению миссии (   Читать дальше...   )Тип издания: RepackРазработчик: Rocksteady StudiosЖанр: Action, Shooter, Open world, Beat 'em up (Brawler), Third person, 3DЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B577E4AF363D953AD7CCD216ABA632180058B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779491   (27788) от 13.02.2025
+
+Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack Wanterlude [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд самоубийц: Конец Лиги справедливости – это бросающий вызов жанру шутер от третьего лица от Rocksteady Studios, создателей трилогии Batman: Arkham. Примкните к новобранцам печально известной оперативной группы Икс под командованием Аманды Уоллер (он же Отряд самоубийц). Харли Квинн, Дэдшот, Капитан Бумеранг и Король Акул вынуждены приступить к выполнению миссии (   Читать дальше...   )Тип издания: RepackРазработчик: Rocksteady StudiosЖанр: Action, Shooter, Open world, Beat 'em up (Brawler), Third person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96CB6587B87BAD1174FC9ADFBD9FBD1E5C54DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779486   (27738) от 13.02.2025
+
+Suicide Squad: Kill the Justice League (2024) [Ru/Multi] (1.0.6.0/dlc) Repack Decepticon
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд самоубийц: Конец Лиги справедливости – это бросающий вызов жанру шутер от третьего лица от Rocksteady Studios, создателей трилогии Batman: Arkham. Примкните к новобранцам печально известной оперативной группы Икс под командованием Аманды Уоллер (он же Отряд самоубийц). Харли Квинн, Дэдшот, Капитан Бумеранг и Король Акул вынуждены приступить к выполнению миссии (   Читать дальше...   )Тип издания: RepackРазработчик: Rocksteady StudiosЖанр: Action, Shooter, Open world, Beat 'em up (Brawler), Third person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:195D47896720338BC730D331A510896DC0DF8DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779932   (27579) от 15.02.2025
+
+Suicide Squad: Kill the Justice League (2024) [Multi] (1.0.6.0/dlc) Scene Rune [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отряд самоубийц: Конец Лиги справедливости – это бросающий вызов жанру шутер от третьего лица от Rocksteady Studios, создателей трилогии Batman: Arkham. Примкните к новобранцам печально известной оперативной группы Икс под командованием Аманды Уоллер (он же Отряд самоубийц). Харли Квинн, Дэдшот, Капитан Бумеранг и Король Акул вынуждены приступить к выполнению миссии (   Читать дальше...   )Тип издания: SceneРазработчик: Rocksteady StudiosЖанр: Action, Shooter, Open world, Beat 'em up (Brawler), Third person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40008D8A67B5FEB1C36C349B7B9F28672396E83B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779901   (27551) от 15.02.2025
 
 Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17156603) Repack FitGirl [Darkness Trilogy]
@@ -6,7 +162,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17156603) Repack FitGirl [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27551.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (Build 17156603) Repack seleZen [
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27521.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27155.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Bully (2008) [Ru] (1.2) Repack EXROW [Scholarship Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27019.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Overlord + Raising Hell (2007) [Ru] (1.4/dlc) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26941.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Dino Crisis 2 (2002) [Multi] (1.0hf2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26842.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Dino Crisis (2000) [Multi] (1.0hf2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26819.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Crisis Core Final Fantasy VII Reunion (2022) [Ru/Multi] (1.03) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26733.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Overlord 2 (2009) [Ru] (1.0) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26597.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack Wanterlude
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26368.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Sleeping Dogs (2014) [Ru/Multi] (1.0/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26306.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26220.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Tomb Raider IV-VI Remastered (2025) [Ru/Multi] (1.0.0) License GOG [Darkness Tri
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26130.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25912.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Warhammer 40,000: Space Marine (2011) [Ru/Multi] (1.0.1) Repack Decepticon [Anni
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25459.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Memory Lost (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25458.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Memory Lost (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25346.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Gungrave G.O.R.E (2022) [Ru/Multi] (67402/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25154.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Remnant II (2) (2023) [Ru/Multi] (453.438/dlc) Repack seleZen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24937.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Star Wars Jedi: Survivor (2023) [Ru/Multi] (1.0.0.11/dlc) Repack Decepticon [Del
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24853.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ STAR WARS Jedi: Survivor продолжит повествование о жиз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90C982026CD04E5C107EB6E11BDCFF3465C0B352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784790   (24825) от 13.03.2025
-
-Control (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Ultimate Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрушающее присутствие захватило Федеральное бюро контроля... Только вы в силах остановить его. Весь мир становится вашим оружием в грандиозной битве со зловещим врагом в многомерных непредсказуемых условиях. Политика сдерживания провалилась, на карту поставлена жизнь человечества. Вы сможете восстановить контроль?Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Немецкий, Французский, ИспанскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9029C9E27A818EB5D3095F6F3FEE287CFED4F3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784787   (24795) от 13.03.2025
-
-Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack dixen18 [Ultimate Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрушающее присутствие захватило Федеральное бюро контроля... Только вы в силах остановить его. Весь мир становится вашим оружием в грандиозной битве со зловещим врагом в многомерных непредсказуемых условиях. Политика сдерживания провалилась, на карту поставлена жизнь человечества. Вы сможете восстановить контроль?Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579495B1EF24DDCDBC3BFB57CCACECAFE71EC34A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785176   (24745) от 14.03.2025
-
-Assassin's Creed Unity (2014) [Ru/Multi] (1.5.0/dlc) Repack Decepticon
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Assassin’s Creed Единство - приключенческий экшн, который перенесет вас в Париж времен Французской революции. Вы узнаете историю Арно – юноши, по воле случая оказавшегося втянутым в кровавые события того периода. Вас ждут новые возможности в управлении персонажем. Изменяйте и внешний вид предметов, и их технические характеристики. Вы сможете играть в Assassin’s Creed (   Читать дальше...   )Тип издания: RepackРазработчик: UbisoftЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8913F61284736A9804A52A1387DE4C4B1CFAA5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785004   (24732) от 14.03.2025
-
-Robin Hood: Sherwood Defenders (2025) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый герой английских баллад противостоит силам коварного шерифа Ноттингема в игре Robin Hood: Sherwood Defenders! Участвуйте в обороне, отбивая волны наступающих врагов, как с помощью сооружений, так и заставляя Робина бросаться в гущу битвы!Тип издания: RepackРазработчик: MeanAstronautsЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2315865A5BA4C69E8F04BD2747ABF8270DBEB39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785241   (24626) от 15.03.2025
-
-Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack DjDI
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гайде 3 - это долгожданное продолжение серии "Гайде", которое сюжетно свяжет первую и вторую части. Как и прежде, это игра о героине, запертой в странном комплексе, полном тайн, ловушек и врагов. 6 новых тематических зон подарят Вам незабываемые ощущения потерянности, безысходности и отчаяния. Расчехляйте свои пистолеты и отвертки, вытряхивайте мусор из (   Читать дальше...   )Тип издания: RepackРазработчик: Haydee InteractiveЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Итальянский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF85535FE66183CE601028E2AB185729B72EE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785468   (24536) от 16.03.2025
-
-Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack seleZen
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название игры Assassin's Creed IV: Black Flag целиком и полностью отражает ее суть. Как известно, черный флаг – первый и самый очевидный признак корабля пиратов, ведь ни одна шхуна не ходила под знаменем «Веселого Роджера», за исключением пиратских, разумеется. Именно тематике морских разбойников была посвящена четвертая часть славно известной серии Ассасин Крид, (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montréal, Ubisoft Toronto, Ubisoft BucharestЖанр: Экшен, Ролевые игры, ПриключeнияЯзык озвучки: Русский, Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:513F69A1AB1838A06286B976A66F3D982CF9953E
 ```
 
 https://mybot314.ru/tekegram_catalog/

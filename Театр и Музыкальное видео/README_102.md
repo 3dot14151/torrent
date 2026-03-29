@@ -1,3 +1,183 @@
+###  Публикация: 582457   (314866) от 01.12.2012
+
+Дорога без возврата (2012) SATRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сцены фильма-мюзикла "Дорога без возврата", снятого группой "ESSE" на основе сценической постановки рок-оперы по мотивам Саги A. Сапковского "Ведьмак"
+ Фильм-мюзикл «Дорога без возврата» - это мюзикл о любви и предательстве, жажде власти и стремлении к жизни, ценности свободы, и необходимости борьбы за неё . За 120 минут мы постарались рассказать зрителям о войне и жестокости, о любви и преданности, о героике и мистике, о вневременных ценностях и презрении их. Этот фильм рассчитан на широкую аудиторию, его могут смотреть — и любители рок-музыки, фэнтези, и просто интересующиеся новым в музыке и рок-опере.
+
+Информация о фильме-мюзикле "Дорога без возврата" авторах мюзикла и исполнителях ролей, группе ESSE и рок-опере по мотивам саги "Ведьмак" ждет Вас на официальном сайте группы "ESSE" http://esse-online.com
+ Подробнее о фильме-мюзикле
+http://esse-online.com/tag/film-myuzikl-doroga-bez-vozvrata/1."Пророчество Итлины"
+2."Ласточка"
+3."Эсси"
+4."Геральт"
+5."Шаэрраведд"
+6."Йеннифэр"
+7."Башня Чайки"
+8."Час презрения" Внимание! Видеоряд насыщен хроникой, эмоциональными кадрами и сценами, и видео не рекомендуется к просмотру эмоционально возбудимым людям и детям.
+9."Это зря"
+10."Единорог"(   Читать дальше...   )Жанр: МюзиклРежиссер: Евгений ПронинАктеры: Вячеслав Майер, Людмила Дымкова, Дарья Пронина, Юрий Скляр, Михаил Папченков, Мария Осадчая, Константин Ильин, Ольга Струкова, Олег ГончаровПеревод: Отсутствует (оригинал)Продолжительность: 14 серий по   00:05:00-00:15:00 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BB8392E9312D5D7D9CD463B4CCBA595BD35717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181660   (314633) от 11.11.2017
+
+СЛОТ - #REDLIVE (2017) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314633.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 февраля 2016 года в клубе «RED» состоялась презентация одной из самых успешных работ группы – альбома «Septima». Выступление, где прозвучали все главные песни этого релиза, а также нетленные СЛОТ-хиты, было запечатлено на видео и теперь выходит на DVD и в цифровой аудио версии. Огненная энергетика и безудержный драйв с тяжёлыми гитарными риффами, хлёсткими речитативами (   Читать дальше...   )1. Реинкарнация
+2. Доска
+3. Лего
+4. Мочит, как хочет!(   Читать дальше...   )Производство: РоссияЖанр: AlternativeСубтитры: НетПродолжительность: 01:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F62A63D4C738144B1DD3F7D64FFC2547B0B2E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182434   (314216) от 11.11.2017
+
+Ленинград / Вояж (2017) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая группа «Ленинград» и ее лидер, любитель крепкого словца Сергей Шнуров, представили клип к композиции "Вояж"Производство: РоссияЖанр: Rock, SkaПродолжительность: 00:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C63562C8C127F9B53309060F366E5FB5129D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182274   (314087) от 11.11.2017
+
+Сборник клипов - Philizz "Back To The 90s" (episode 7) (2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Серия видеомиксов популярных клипов 90-х годов - седьмая часть, заключительная. Энергичная танцевальная музыка в стиле Eurodance, Techno и Hardcore. Танцуем под легендарную музыку 90-х!
+- Разбивка по трекам отсутствует.Ramirez – El Gallinero
+The Prodigy – Out Of Space
+Captain Jack – Captain Jack
+JX – You Belong To Me(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8F1F4E573D33FD9A55B0E4E9061568C5B6C5DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259899   (314045) от 06.11.2018
+
+Юбилейный вечер поэта Михаила Гуцериева (2018.11.04) HDTV [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314045.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь своего юбилея Михаил Гуцериев приглашает телезрителей на творческий праздник. В этот вечер на Кремлевской сцене прозвучат самые популярные песни, которые были написаны поэтом в разные годы его творчества: "Вишнёвые розы", "Мы боимся любить", "Неделимые", "Осенняя любовь", "Я скучаю по нам по прежним", "Любовь-отрава", (   Читать дальше...   )01 Николай Басков и Игорь Николаев - Вишневая любовь
+02 Алла Пугачева - Не звони
+03 Алла Пугачева - Тянет сердце руки
+04 Филипп Киркоров - Химера(   Читать дальше...   )Телекомпания: НТВЖанр: ТВ-шоу, концертСубтитры: ОтсутствуютПродолжительность: 01:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE02CE1315E53D94F6B86EC8DA7494C23228377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332437   (313894) от 20.10.2019
+
+Квартирник НТВ у Маргулиса. Группа Грот (19.10.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_313894.jpg" />
+</div>
+
+
+###  Подробнее
+
+К Евгению Маргулису пришла рэп-команда «Грот». Омичи Виталий Евсеев и Дмитрий Геращенко создали группу в 2009 году и сразу же выпустили дебютный EP «Никто, кроме нас». Он вызвал мощнейший резонанс, а группа в одночасье стала популярной. В 2019 году команда празднует юбилей — 10 лет на сцене. В разговоре с ведущим они вспомнили самые интересные истории из творческой (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF656B47EB6FFE5072552ED6687B0D1F85306E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181862   (313822) от 11.11.2017
 
 Delain - Live At Paradiso (2017) BDRip [H.264/1080p-LQ]
@@ -6,7 +186,7 @@ Delain - Live At Paradiso (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313822.jpg" />
+  <img src="Z:/picture/008/save_picture_313822.jpg" />
 </div>
 
 
@@ -35,7 +215,7 @@ Status Quo: Pictures - Live At Montreux (2009) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313252.jpg" />
+  <img src="Z:/picture/008/save_picture_313252.jpg" />
 </div>
 
 
@@ -64,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313214.jpg" />
+  <img src="Z:/picture/008/save_picture_313214.jpg" />
 </div>
 
 
@@ -90,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313038.jpg" />
+  <img src="Z:/picture/008/save_picture_313038.jpg" />
 </div>
 
 
@@ -119,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312868.jpg" />
+  <img src="Z:/picture/008/save_picture_312868.jpg" />
 </div>
 
 
@@ -145,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312726.jpg" />
+  <img src="Z:/picture/008/save_picture_312726.jpg" />
 </div>
 
 
@@ -171,7 +351,7 @@ Overkill - The Grinding Wheel (Bonus DVD) (2017) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312470.jpg" />
+  <img src="Z:/picture/008/save_picture_312470.jpg" />
 </div>
 
 
@@ -200,7 +380,7 @@ Enrique Iglesias ft. Descemer Bueno & Gente de Zona Bailando (2014) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312197.jpg" />
+  <img src="Z:/picture/008/save_picture_312197.jpg" />
 </div>
 
 
@@ -226,7 +406,7 @@ Andrea Bocelli (Андреа Бочелли) & David Foster (Дэвид Фост
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312093.jpg" />
+  <img src="Z:/picture/008/save_picture_312093.jpg" />
 </div>
 
 
@@ -256,7 +436,7 @@ Destruction - A Savage Symphony - The History Of Annihilation (2010) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312051.jpg" />
+  <img src="Z:/picture/008/save_picture_312051.jpg" />
 </div>
 
 
@@ -285,7 +465,7 @@ Selena Gomez - Good For You (2015) HDTVRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311924.jpg" />
+  <img src="Z:/picture/008/save_picture_311924.jpg" />
 </div>
 
 
@@ -311,7 +491,7 @@ VA - Осенний марафон № 207: Коктейль Хит Новино
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311754.jpg" />
+  <img src="Z:/picture/008/save_picture_311754.jpg" />
 </div>
 
 
@@ -340,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311497.jpg" />
+  <img src="Z:/picture/008/save_picture_311497.jpg" />
 </div>
 
 
@@ -370,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311309.jpg" />
+  <img src="Z:/picture/008/save_picture_311309.jpg" />
 </div>
 
 
@@ -398,7 +578,7 @@ The Best of...(vol.2) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310183.jpg" />
+  <img src="Z:/picture/008/save_picture_310183.jpg" />
 </div>
 
 
@@ -425,7 +605,7 @@ Iced Earth - Festivals Of The Wicked (2011) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309951.jpg" />
+  <img src="Z:/picture/008/save_picture_309951.jpg" />
 </div>
 
 
@@ -451,7 +631,7 @@ Lacrimosa - Live in Moscow 19.11.2015 (2015) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309827.jpg" />
+  <img src="Z:/picture/008/save_picture_309827.jpg" />
 </div>
 
 
@@ -480,7 +660,7 @@ Peter Gabriel - Secret World Live (2012) BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_309764.jpg" />
+  <img src="Z:/picture/005/save_picture_309764.jpg" />
 </div>
 
 
@@ -515,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309479.jpg" />
+  <img src="Z:/picture/008/save_picture_309479.jpg" />
 </div>
 
 
@@ -541,7 +721,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308942.jpg" />
+  <img src="Z:/picture/008/save_picture_308942.jpg" />
 </div>
 
 
@@ -556,168 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D2A88FEFA87B3FD94EE77A6CC825B286F09B63B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 265360   (308831) от 04.12.2010
-
-Alice Cooper: Theatre of Death - Live At Hammersmith (2009) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крестный отец всего шок-рока, Элис Купер, снял последнее выступление в рамках своего турне 2009 года "Theatre of Death World Tour", которое состоялось 6 декабря 2009 года в легендарном зале Hammersmith Apollo - London. "Theatre Of Death" очень отличалось от всего, что все видели раньше. Всегда ожидаешь неожиданное от непредсказуемого Элиса Купера... (   Читать дальше...   )Жанр: RockПеревод: ОригинальныйПродолжительность: 01:32:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4652155C06F3ABFDDC60D9807763E26FC415C514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 418553   (308776) от 04.12.2011
-
-ДиДюЛя. Большой концерт в Кремле (2011.12.03) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308776.jpg" />
-</div>
-
-
-###  Подробнее
-
-ДиДюЛя - легендарный гитарист-виртуоз, один из самых востребованных на постсоветском пространстве. ДиДюЛя дал тысячи аншлаговых представлений в разных странах. Участник и победитель престижнейших конкурсов и фестивалей, композитор и продюсер, он организовал собственную, уникальную супергруппу, состоящую из виртуозов-профессионалов всего мира. ДиДюЛя нашёл свой, ни (   Читать дальше...   )01.Посылка из Румынии
-02.Русская
-03.Легкий бриз
-04.Сатиновые берега(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A4422663D2802217FC9ED0FEABB560B6BDBBA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 729544   (308752) от 02.12.2013
-
-Muse - Live in Rome (The Unsustainable Tour) (2013) [1080p] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Supremacy
-03. Panic Station
-04. Plug In Baby(   Читать дальше...   )Производство: США, Великобритания / Warner Bros., Helium-3Жанр: Alternative RockРежиссер: Мэтт АскемПродолжительность: 01:35:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB672CF6F6C498B82831252648C1E106A19E63B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266194   (308315) от 04.12.2010
-
-Adriano Celentano - Greatest Video. Vol.1 (2010) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПеревод: ОригинальныйПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A55789F90AEA708D09E5F71540A983A37055D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584646   (307911) от 04.12.2012
-
-Гига, ST, Хамиль - С новым годом, мама (2012 г.)[H264] HDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний клипЖанр: RapПродолжительность: 00:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72ECE1FA14CE90CB958E67FB060F13875D31584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584559   (307902) от 04.12.2012
-
-Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A677D89200DBA9F11D92F28160DB1AC21A5D46A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

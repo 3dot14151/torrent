@@ -1,3 +1,113 @@
+###  Публикация: 799539   (520922) от 12.07.2019
+
+Книжная серия | Lady Fantasy [49 книг. Обновляемая] (2012-2019) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lady Fantasy - серия переводных романов как в жанре фэнтези и мистики, так и антиутопии, главными персонажами которых выступают девушки. Многие книги на русском языке издаются впервые. Оформление — Ильи Кучмы.
+
+"С детских лет ее учили убивать. К восемнадцати она стала самой известной женщиной-ассасином во всем королевстве. И даже из мрачных каторжных подземелий, (   Читать дальше...   )Жанр: Ужасы и Мистика, Триллеры, Зарубежное фэнтези, Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4338CC031C93D3872402E11634A4B27570B943E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928787   (520536) от 18.08.2015
+
+Книжная серия | Ирония любви [56 книг] (2008-2013) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любовь - это не только морковь.
+Любовь - это еще и ирония.
+И в этой серии женщины-писательницы иронизируют напропалую.
+Потому что "Russian леди лучше всех на свете" и для них: "Не пойман - не муж", а уж если пойман, то "Хомут да любовь".Жанр: Современные любовные романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F56EF7FF9907FD1025B841BC678E9040019194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928793   (520404) от 18.08.2015
+
+Книжная серия | Мастера современной прозы [58 книг] (1970-2002) [FB2, PDF ]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520404.jpg" />
+</div>
+
+
+###  Подробнее
+
+В серию «Мастера современной прозы» входят книги выдающихся писателей XX века, внесших наибольший вклад в мировую литературу.
+Каждый том является собранием избранных произведений конкретного автора и сопровождается подробной статьей о его творчестве.Жанр: Современная прозаФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FAAB377B3CC7C222029DE4B9C1CEC77FECD6910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 373457   (518704) от 09.08.2011
+
+Книжная серия | Зал славы зарубежной фантастики [27 книг] (1992-1998) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_518704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия классической фантастики знаменитых зарубежных авторов, выпускавшаяся издательством «Альтерпресс» с 1993 по 1998 годы. В серию вошло 20 выпусков, с 21 выпуска издательство сменило название серии на «Зал славы всемирной фантастики».Жанр: ФантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879033A01F0F73BD12A91F83A3BB5CDA7C270E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929765   (518331) от 20.08.2015
 
 Книжная серия | Классический английский роман [15 книг] (2011-2013) [FB2]
@@ -6,7 +116,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518331.jpg" />
+  <img src="Z:/picture/008/save_picture_518331.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518287.jpg" />
+  <img src="Z:/picture/008/save_picture_518287.jpg" />
 </div>
 
 
@@ -64,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518271.jpg" />
+  <img src="Z:/picture/008/save_picture_518271.jpg" />
 </div>
 
 
@@ -90,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518204.jpg" />
+  <img src="Z:/picture/008/save_picture_518204.jpg" />
 </div>
 
 
@@ -119,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514444.jpg" />
+  <img src="Z:/picture/008/save_picture_514444.jpg" />
 </div>
 
 
@@ -145,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513313.jpg" />
+  <img src="Z:/picture/008/save_picture_513313.jpg" />
 </div>
 
 
@@ -171,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513264.jpg" />
+  <img src="Z:/picture/008/save_picture_513264.jpg" />
 </div>
 
 
@@ -198,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512246.jpg" />
+  <img src="Z:/picture/008/save_picture_512246.jpg" />
 </div>
 
 
@@ -225,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511308.jpg" />
+  <img src="Z:/picture/008/save_picture_511308.jpg" />
 </div>
 
 
@@ -253,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511295.jpg" />
+  <img src="Z:/picture/008/save_picture_511295.jpg" />
 </div>
 
 
@@ -280,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510410.jpg" />
+  <img src="Z:/picture/008/save_picture_510410.jpg" />
 </div>
 
 
@@ -307,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510158.jpg" />
+  <img src="Z:/picture/008/save_picture_510158.jpg" />
 </div>
 
 
@@ -340,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509946.jpg" />
+  <img src="Z:/picture/008/save_picture_509946.jpg" />
 </div>
 
 
@@ -368,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509884.jpg" />
+  <img src="Z:/picture/008/save_picture_509884.jpg" />
 </div>
 
 
@@ -396,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509858.jpg" />
+  <img src="Z:/picture/008/save_picture_509858.jpg" />
 </div>
 
 
@@ -424,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509848.jpg" />
+  <img src="Z:/picture/008/save_picture_509848.jpg" />
 </div>
 
 
@@ -451,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509826.jpg" />
+  <img src="Z:/picture/008/save_picture_509826.jpg" />
 </div>
 
 
@@ -478,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509375.jpg" />
+  <img src="Z:/picture/008/save_picture_509375.jpg" />
 </div>
 
 
@@ -506,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509004.jpg" />
+  <img src="Z:/picture/008/save_picture_509004.jpg" />
 </div>
 
 
@@ -535,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507797.jpg" />
+  <img src="Z:/picture/008/save_picture_507797.jpg" />
 </div>
 
 
@@ -561,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506346.jpg" />
+  <img src="Z:/picture/008/save_picture_506346.jpg" />
 </div>
 
 
@@ -588,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505954.jpg" />
+  <img src="Z:/picture/008/save_picture_505954.jpg" />
 </div>
 
 
@@ -600,117 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFE46ECBE4C599308ED4E525F15158ADD5F64EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932400   (505068) от 02.09.2015
-
-Подборка книг | Старая недобрая...[9 книг] (2013-2015) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недобрая старая Англия» - серия мистических романов и документальных книг об Англии XIX века "американской казашки" Екатерины Коути, которой соавторствуют Елена Клемм и Кэрри Гринберг. ...Оказывается, будет еще и «Недобрая старая Франция».
-
-Кэрри Гринберг, Надя Дрейк. Талант марионетки
-Провинциальную актрису Жюли Дигэ принимают на работу в один из самых (   Читать дальше...   )Жанр: Мистика, Детектив, ТриллерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0834F5B258B5A97FB37711D9AB8280892D33A8AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249111   (504118) от 14.07.2022
-
-Книжная серия | Некрономикон. Миры Говарда Лавкрафта [13 книг] (2010 - 2016) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504118.jpg" />
-</div>
-
-
-###  Подробнее
-
-На данный момент «Некрономикон. Миры Говарда Лавкрафта» наиболее полное собрание сочинений мастера литературы ужасов - писателя, не опубликовавшего при жизни ни одной книги, но ставшего маяком и ориентиром целого жанра, кумиром как широких читательских масс, так и рафинированных интеллектуалов, неиссякаемым источником вдохновения для кинематографистов. Сам Борхес (   Читать дальше...   )Жанр: Мистика, УжасыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E07B322F8AE422D2729D818D4C91B38E6F9A233D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 886057   (500938) от 06.09.2015
-
-Книжная серия | На линии фронта. Правда о войне [44 книги.Обновляемая] (2006-2011) [FB2, DJVU, PDF, DOC]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500938.jpg" />
-</div>
-
-
-###  Подробнее
-
-«На линии фронта. Правда о войне» - серия военно-документальной литературы. Это - воспоминания, мемуары, размышления, переживания непосредственных участников Великой Отечественной Войны. Как воевали снайперы - пишет снайпер; что творилось в штрафбатах - вспоминает командир штрафбата; летчики, разведчики, артиллеристы, танкисты написали для нас эти книги, потому что (   Читать дальше...   )Жанр: Мемуары, документалистикаФормат: FB2, DJVU, PDF, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD256734A6A77F41606326F92B338AFD2D790F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541448   (500861) от 31.08.2012
-
-Книжная серия | Шарм (565 книг) [1994-2012] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старейшая в нашей стране серия исторических любовных романов, успешно существующая долгое время.
-Десятки писательниц и сотни романов, ставших любимыми для целого поколения читательниц. Увлекательные сюжеты...
-Бурные страсти...
-Красивые любовные сцены...
-Книги серии Шарм будут популярны, пока на свете еще остаются женщины, мечтающие о ЛЮБВИ и РОМАНТИКЕ!Жанр: Любовный романФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B6D25330E2C2963C44E4DE9937EC6BB1B40DB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

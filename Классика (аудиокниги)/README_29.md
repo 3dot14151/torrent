@@ -1,3 +1,108 @@
+###  Публикация: 550159   (457410) от 22.09.2012
+
+Александр Пушкин | Стихотворения 1814-1836 г. [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457410.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем издании собраны самые известные стихотворения А.С. Пушкина, вошедшие в сокровищницу мировой литературы. По этой книге читатель проследит становление могучего поэтического духа Пушкина от первых шутливых лицейских стихов до поздней философской и любовной лирики.
+ Поэта называют великим, когда в его творчестве выражено все самое главное, самое необходимое (   Читать дальше...   )Жанр: Классическая поэзия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC28F0C28A261D0AB28FF553E6D3C49C357C12D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408539   (455770) от 12.09.2020
+
+Николай Полевой | Рассказы русского солдата (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455770.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Рассказы русского солдата» - повесть выдающегося русского писателя Николая Алексеевича Полевого (1796-1846). *** Собеседник главного героя делится воспоминаниями о войне, превратностях службы и собственной жизни. Другими известными произведениями автора являются «Блаженство безумия», «Краковский замок», «Живописец», «Эмма», «Дедушка русского флота», «Елена Глинская», (   Читать дальше...   )Жанр: Повесть, биографияПродолжительность: 02:27:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590D851AEB2C626D0438BF857921335416D56616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569138   (455566) от 11.08.2022
+
+Антон Чехов | Рассказы. Повести. Пьесы (2022) [MP3, Джахангир Абдуллаев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами 123-й том Библиотеки Всемирной Литературы (БВЛ), впервые переведенный в звуковой формат для любителей аудиолитературы, людей с ослабленным зрением и незрячих. В 123-й том БВЛ входят избранные произведения А. П. Чехова: 25 рассказов, 6 повестей и 4 пьесы.Жанр: КлассикаПродолжительность: 37:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278476E831D03040BCA2C1F3822E1DAFAE940D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201041   (455169) от 12.09.2020
+
+Марк Твен | Моя автобиография (сборник рассказов) [А. Клюквин, А. Бордуков, В. Смехов] [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455169.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Моя автобиография» — в своих произведениях Марк Твен описывал простых американских рабочих, так называемые «низы», именно у них он брал образы, ситуации, характеры. Возможно, поэтому произведения писателя пользовались таким огромным успехом: ведь источником для них была сама жизнь.Жанр: классика, рассказы, юмор
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5026C757FCF73C3F28E0703733E2C19F294D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551441   (452431) от 24.09.2012
 
 Александр Сергеевич Пушкин | Полтава (1981) [MP3, Алексей Консовский и др.]
@@ -6,7 +111,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452431.jpg" />
+  <img src="Z:/picture/008/save_picture_452431.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451967.jpg" />
+  <img src="Z:/picture/008/save_picture_451967.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451661.jpg" />
+  <img src="Z:/picture/008/save_picture_451661.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449725.jpg" />
+  <img src="Z:/picture/008/save_picture_449725.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448994.jpg" />
+  <img src="Z:/picture/008/save_picture_448994.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448991.jpg" />
+  <img src="Z:/picture/008/save_picture_448991.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448852.jpg" />
+  <img src="Z:/picture/008/save_picture_448852.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446060.jpg" />
+  <img src="Z:/picture/008/save_picture_446060.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444804.jpg" />
+  <img src="Z:/picture/008/save_picture_444804.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444395.jpg" />
+  <img src="Z:/picture/008/save_picture_444395.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444281.jpg" />
+  <img src="Z:/picture/008/save_picture_444281.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443181.jpg" />
+  <img src="Z:/picture/008/save_picture_443181.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441973.jpg" />
+  <img src="Z:/picture/008/save_picture_441973.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440790.jpg" />
+  <img src="Z:/picture/008/save_picture_440790.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440647.jpg" />
+  <img src="Z:/picture/008/save_picture_440647.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439963.jpg" />
+  <img src="Z:/picture/008/save_picture_439963.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439596.jpg" />
+  <img src="Z:/picture/008/save_picture_439596.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438306.jpg" />
+  <img src="Z:/picture/008/save_picture_438306.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437528.jpg" />
+  <img src="Z:/picture/008/save_picture_437528.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437503.jpg" />
+  <img src="Z:/picture/008/save_picture_437503.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437016.jpg" />
+  <img src="Z:/picture/008/save_picture_437016.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437013.jpg" />
+  <img src="Z:/picture/008/save_picture_437013.jpg" />
 </div>
 
 
@@ -576,110 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6892365853277331DDA10AEE736750F02E5FF630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571191   (436122) от 20.08.2022
-
-Вальтер Скотт | Квентин Дорвард (2022) [MP3, Владислав Погиба]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию исторический роман знаменитого английского писателя Вальтера Скотта «Квентин Дорвард» (1823), повествующий о временах Льежского восстания и франко-шотландского альянса и ставший первым европейским романом автора. Молодому авантюристу из обедневшего рода, стрелку шотландской гвардии короля Людовика XI Квентину Дорварду поручено сопровождать (   Читать дальше...   )Жанр: Классика, Исторический романПродолжительность: 16:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56F2A52D16390D97737802E1B91B23542BC36620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555137   (433521) от 02.10.2012
-
-Мигель де Сервантес Сааведра | Хитроумный идальго Дон Кихот Ламанчский [2011] [MP3, Георгий Тараторкин и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_433521.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хитроумный идальго Дон Кихот Ламанчский» (El ingenioso hidalgo Don Quijote de la Mancha) — роман испанского писателя Мигеля де Сервантеса Сааведры о приключениях одноимённого героя. Был опубликован в двух томах. Первый вышел в 1605 году, а второй в 1615 году. Этот роман, впоследствии переведённый на все европейские языки, поныне является одной из популярнейших книг (   Читать дальше...   )Жанр: аудиоспектакльИздательство: Запись интернет-трансляции «Радио России»
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165560   (432454) от 13.09.2017
-
-Лев Толстой | Исповедь. Повести и рассказы (2009) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432454.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящий сборник произведений Л.Н. Толстого включены автобиографическое произведение "Исповедь" (1879-1882), излагающее в художественной форме идеи толстовства и при жизни писателя запрещенная в России духовной цензурой, а также повести и рассказы разных лет.Жанр: КлассикаПродолжительность: 08:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8315512276DCF98D6FB3E0D8E17D99DFE778B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063172   (432373) от 17.10.2016
-
-Антон Чехов | Сказки Мельпомены и другие рассказы (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: классическая прозаПродолжительность: 03:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BACFBCEB8CFC250CD710FCBF856CD9C4B94174
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1591551   (187254) от 18.11.2022
+
+Amon Acid - Cosmogony (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Doom, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parallel Realm
+02. Hyperion
+03. Death on the Altar
+04. Demolition Wave(   Читать дальше...   )Жанр: Psych, Doom, StonerПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C059A40F2FC1771AB9BD18F9AE8497E23C5C9C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591473   (187251) от 18.11.2022
+
+Doctor Doom - A Shadow Called Danger (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Back To Yourself
+02. What They Are Trying To Sell
+03. Ride On
+04. Connected By The Worst(   Читать дальше...   )Жанр: Heavy RockПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28C8ABF9DAECF9DF8F8009A1CE67315A47DD5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591544   (187247) от 18.11.2022
 
 Witchfinder - Forgotten Mansion (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Doom, Stoner, Sludge>
@@ -6,7 +64,7 @@ Witchfinder - Forgotten Mansion (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187247.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Wildness - Resurrection (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187208.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Bad Company - Bad Company (1974) Remastered /1994, Swan Song/ [FLAC|Lossless]<Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186975.jpg" />
+  <img src="Z:/picture/005/save_picture_186975.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Rising Wings - Reach (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AO
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186480.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ The Who - Quadrophenia (1973) Super Deluxe, 2014, Geffen [FLAC|Lossless|WEB-DL|t
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186441.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Guns N’ Roses - Anarchy In The Uk (2020) 2023, SMOKIN'[FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186422.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Bonfire - 3 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186415.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ The Who - Tommy (1969) Super Deluxe, 2014, Geffen [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186412.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Yawning Man - Pot Head (2016) Reissue, Remastered, 2023, Ripple Music [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186290.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Bang Camaro - Bang Camaro I-III (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_186053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186053.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Orbiter - A Goddamn Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185581.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Desert Wave - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185573.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ West Alley - A Night To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185517.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Odonata - Gravitational Perturbation (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185342.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Snakebite Delight - Swamp Walker (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185123.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Cardinal Point - Man Or Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184906.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Captain Black Beard - Neon Sunrise (2022) Japanese Edition [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184560.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ The Jokers - Rock And Roll Bones (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184547.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Chez Kane - Powerzone (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184538.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Dune Sea - 3 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184497.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ L.A. Guns - Renegades (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184412.jpg" />
+  <img src="Z:/picture/004/save_picture_184412.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ We Killed The Lion - Boogie Shoe Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183272.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Mister Earthbound - Shadow Work (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183243.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Foreigner - The Can't Slow Down: B-Sides and Extra Tracks (2020) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183208.jpg" />
+  <img src="Z:/picture/004/save_picture_183208.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Foreigner - The Can't Slow Down: B-Sides and Extra Tracks (2020) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC4A9C2CD4A6022E3ABA65FF0B6FAF59B29BC373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427492   (183025) от 28.11.2020
-
-AC/DC - Power Up (2020) Japan Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Realize 3:37
-02 Rejection 4:06
-03 Shot In The Dark 3:05
-04 Through The Mists Of Time 3:32(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA44706DB6D209AAFA2887132ECA3ACE79566C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592664   (182592) от 24.11.2022
-
-Riot In The Attic - Those Who Donґt Belong (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Sin & Wine
-02 Drag Me Down
-03 Soma (Part I)
-04 Wandering Dog(   Читать дальше...   )Жанр: Heavy Rock, Stoner, GrungeПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D42A85C605543D3E381C10136B476948AC8E341
 ```
 
 https://mybot314.ru/tekegram_catalog/

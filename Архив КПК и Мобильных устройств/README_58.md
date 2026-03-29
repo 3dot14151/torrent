@@ -1,3 +1,29 @@
+###  Публикация: 916620   (542904) от 05.08.2015
+
+OneDrive 3.3.1 Final [Ru] - Облачное хранилище от Microsoft
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиент для облачного хранилища от Microsoft. OneDrive — это централизованное бесплатное интернет-хранилище на все случаи жизни для всех ваших персональных файлов, доступ к которым можно получить с помощью устройства Android, компьютера (ПК или Mac) и любого другого устройства, которое вы используете. Кроме того, вы можете использовать OneDrive для бизнеса в качестве (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 05.08.15Разработчик: Microsoft CorporationПоддерживаемая ОС: Android 4.0 +Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB21CAF77282C98E31ED8C48D063824F8BED17C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924727   (542818) от 05.08.2015
 
 UNKILLED v0.0.7 Mod [En]
@@ -6,7 +32,7 @@ UNKILLED v0.0.7 Mod [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542818.jpg" />
+  <img src="Z:/picture/008/save_picture_542818.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Out There:  Edition 2.1 [Multi/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542794.jpg" />
+  <img src="Z:/picture/008/save_picture_542794.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ File Manager HD (Tablet) 1.8.3 - Файловый менеджер [Програ
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541758.jpg" />
+  <img src="Z:/picture/008/save_picture_541758.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541638.jpg" />
+  <img src="Z:/picture/008/save_picture_541638.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540820.jpg" />
+  <img src="Z:/picture/008/save_picture_540820.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540520.jpg" />
+  <img src="Z:/picture/008/save_picture_540520.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540506.jpg" />
+  <img src="Z:/picture/008/save_picture_540506.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540283.jpg" />
+  <img src="Z:/picture/008/save_picture_540283.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538814.jpg" />
+  <img src="Z:/picture/008/save_picture_538814.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537864.jpg" />
+  <img src="Z:/picture/008/save_picture_537864.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537851.jpg" />
+  <img src="Z:/picture/008/save_picture_537851.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Can Knockdown 2 v1.0.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537108.jpg" />
+  <img src="Z:/picture/008/save_picture_537108.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Can Knockdown 3 Full v 1.27 + Мод [En/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536952.jpg" />
+  <img src="Z:/picture/008/save_picture_536952.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Defenders v1.8.60680-1.8.60683 Мод [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536825.jpg" />
+  <img src="Z:/picture/008/save_picture_536825.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536439.jpg" />
+  <img src="Z:/picture/008/save_picture_536439.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536044.jpg" />
+  <img src="Z:/picture/008/save_picture_536044.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536024.jpg" />
+  <img src="Z:/picture/008/save_picture_536024.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Fleksy Keyboard - Happy Typing 6.2.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535165.jpg" />
+  <img src="Z:/picture/008/save_picture_535165.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Plague Inc. v.1.10.2 Мод [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534827.jpg" />
+  <img src="Z:/picture/008/save_picture_534827.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ KeepSafe Plus v3.7 [Ru/Multi] - скрытие ваших личных фото 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534360.jpg" />
+  <img src="Z:/picture/008/save_picture_534360.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ PlayerXtreme - Media Player v0.10.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534267.jpg" />
+  <img src="Z:/picture/008/save_picture_534267.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ Rutube v26.0.68 Ad-Free by Alex.Strannik [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533272.jpg" />
+  <img src="Z:/picture/008/save_picture_533272.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532554.jpg" />
+  <img src="Z:/picture/008/save_picture_532554.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532187.jpg" />
+  <img src="Z:/picture/008/save_picture_532187.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ Five Nights at Freddy's 4 1.00 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531018.jpg" />
+  <img src="Z:/picture/008/save_picture_531018.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ Five Nights at Freddy's 4 1.00 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEC1AEE40E2A0F33812DE4E3EED575D6A46D1C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050919   (530572) от 12.09.2016
-
-Rocket Viper 2 2.41 [En]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rocket Viper 2 - Вторая часть стала намного сложение и интересней. Кроме того, в игре очень много хороших нововведений, включая великолепную боевую систему (бесчисленное количество комбо и спец. ударов), новых персонажей, число которых увеличилось до 13, большое количество новых разнообразных врагов и три режима сложности на выбор. Так же стоит отметить небольшую, (   Читать дальше...   )Тип издания: НеофициальныйРелиз состоялся: 2013Разработчик: VolcanicПоддерживаемая ОС: Android 2.3 и вышеЖанр: Arcade, FightingЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D269D1752BFFA1F8255F1F98E2BC14D785DD1FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

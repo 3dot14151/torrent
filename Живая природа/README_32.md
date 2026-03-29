@@ -1,3 +1,55 @@
+###  Публикация: 496935   (253229) от 15.05.2012
+
+BBC: Как вырастить планету. Свет несущий жизнь [выпуск 1]/ How to Grow a Planet. Life from Light (2012) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_253229.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом сериале профессор Ийан Стюарт рассказывает нам о новой, увлекательной версии истории формирования биогенеза, которую прошла наша планета. Показывая нам, сколь велики изменения, которые были вызваны, прежде всего обитателями растительного царства. Его рассказ повествует о древней эволюции представителей флоры и фауны Земли.Жанр: ДокументальныйПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DD57AF7600A53C01162F18DEFD822DAED936F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497030   (253185) от 15.05.2012
+
+NHK: Дикая жизнь Серенгети [2 серии]/ Wildlife the Serengeti (2009) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_253185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серенгети - национальный парк на севере Танзании. Под строгую охрану взяты полторы тысячи гектаров Восточно-Африканского плоскогорья. Болота, саванны, галерейные леса. Исключительное разнообразие антилоп; зебры, газели, львы, леопарды, гепарды и более 200 видов птиц.Жанр: Документальный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2084630438D30F626470BA2F5ECC581F937D3ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836471   (253109) от 11.11.2025
 
 Земля ночью в цвете / Earth at Night in Color (2021) WEB-DL [H.264/1080p] (сезон 2, серии 1-6 из 6) ViruseProject [VO]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253109.jpg" />
+  <img src="Z:/picture/005/save_picture_253109.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252901.jpg" />
+  <img src="Z:/picture/005/save_picture_252901.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251137.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249714.jpg" />
+  <img src="Z:/picture/004/save_picture_249714.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248314.jpg" />
+  <img src="Z:/picture/005/save_picture_248314.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246036.jpg" />
+  <img src="Z:/picture/004/save_picture_246036.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245981.jpg" />
+  <img src="Z:/picture/004/save_picture_245981.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245914.jpg" />
+  <img src="Z:/picture/004/save_picture_245914.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245895.jpg" />
+  <img src="Z:/picture/004/save_picture_245895.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245891.jpg" />
+  <img src="Z:/picture/004/save_picture_245891.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245792.jpg" />
+  <img src="Z:/picture/004/save_picture_245792.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245748.jpg" />
+  <img src="Z:/picture/004/save_picture_245748.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245507.jpg" />
+  <img src="Z:/picture/004/save_picture_245507.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245054.jpg" />
+  <img src="Z:/picture/004/save_picture_245054.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245003.jpg" />
+  <img src="Z:/picture/004/save_picture_245003.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244747.jpg" />
+  <img src="Z:/picture/004/save_picture_244747.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244718.jpg" />
+  <img src="Z:/picture/004/save_picture_244718.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244531.jpg" />
+  <img src="Z:/picture/004/save_picture_244531.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244460.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244457.jpg" />
+  <img src="Z:/picture/004/save_picture_244457.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244102.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243896.jpg" />
+  <img src="Z:/picture/004/save_picture_243896.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243890.jpg" />
+  <img src="Z:/picture/004/save_picture_243890.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243724.jpg" />
+  <img src="Z:/picture/004/save_picture_243724.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78746728AFCC6F1F5A36EA9FFA6A31EF24F6034E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539798   (243278) от 27.03.2022
-
-Край семи тысяч озёр (2018) DVB [H.264]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм об озере Алаколь.Производство: КазахстанЖанр: документальный, природаРежиссер: Галым ДоскенЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4738EFD374DACC0A9C5B0531D4C4934323D729D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633794   (243198) от 17.05.2023
-
-Животные, изменившие мир (Где медом намазано) (2023) WEB-DLRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда в древности человек начал одомашнивать животных, то с каждым из них ему пришлось устанавливать контакт — эмоциональный или психологический. Наши предки учитывали самые важные особенности дикого зверя, прежде чем сделать его своим союзником и помощником. Коровы и козы стадные животные? Значит, создадим им условия, в которых они смогут жить среди сородичей. Собака (   Читать дальше...   )Производство: Россия, ЕМГЖанр: документальный, научно-познавательныйРежиссер: Илья ЦыгановЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07292002736B4B62D3E74CC72ACEA8ED2A2B08C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1067981   (380009) от 01.11.2016
+
+Santiano - 3 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue | image + .cue] <Folk, Rock, World>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_380009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкая группа из Фленсбурга. Исполняет музыку в различных народных жанрах, преимущественно это немецкая народная музыка, ирландская народная музыка и морская песня шанти. Имя Santiano было взято из песни шанти «Santiano» также известной как O Santianna (All on the Plains of Mexico), которая стала популярной в 1961 году благодаря исполнению Юга Офрэ.2012 - Bis ans Ende der Welt. В Германии альбом получил статус пятикратно платинового
+(продано более 1 млн. копий).
+2013 - Mit den Gezeiten. В Германии альбом получил статус бриллиантового
+(продано более 750 тыс. копий).(   Читать дальше...   )Жанр: Folk, Rock, WorldПродолжительность: 03:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809052115E21D05F8B7FEA7F79BB194CFF215FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253770   (379614) от 11.10.2018
+
+Constance Demby - Sanctum Sanctuorum (2003) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alleluiah (05:44)
+02. Invocation (12:54)
+03. Formless Presence (06:13)
+04. Gateway (08:00)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1BACB0D4DCE1F28F69510B93D1C652ABC09374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253769   (379613) от 11.10.2018
 
 Constance Demby - Faces of the Christ (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
@@ -6,7 +64,7 @@ Constance Demby - Faces of the Christ (2000) [FLAC|Lossless|tracks + .cue] <NewA
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379613.jpg" />
+  <img src="Z:/picture/008/save_picture_379613.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Constance Demby - Spirit Trance (2004) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379526.jpg" />
+  <img src="Z:/picture/008/save_picture_379526.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Constance Demby - Set Free (The Definitive Edition) (2006) [FLAC|Lossless|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379525.jpg" />
+  <img src="Z:/picture/008/save_picture_379525.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Constance Demby - Ambrosial Waves – Healing Waters (2011) [FLAC|Lossless|image
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379442.jpg" />
+  <img src="Z:/picture/008/save_picture_379442.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Selectio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377887.jpg" />
+  <img src="Z:/picture/008/save_picture_377887.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377656.jpg" />
+  <img src="Z:/picture/008/save_picture_377656.jpg" />
 </div>
 
 
@@ -183,7 +241,7 @@ David Arkenstone - David Arkenstone: The Collection (2020) [FLAC|Lossless|WEB-DL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376535.jpg" />
+  <img src="Z:/picture/008/save_picture_376535.jpg" />
 </div>
 
 
@@ -212,7 +270,7 @@ Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376456.jpg" />
+  <img src="Z:/picture/008/save_picture_376456.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376345.jpg" />
+  <img src="Z:/picture/008/save_picture_376345.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [M
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376341.jpg" />
+  <img src="Z:/picture/008/save_picture_376341.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tra
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376176.jpg" />
+  <img src="Z:/picture/008/save_picture_376176.jpg" />
 </div>
 
 
@@ -319,7 +377,7 @@ Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376166.jpg" />
+  <img src="Z:/picture/008/save_picture_376166.jpg" />
 </div>
 
 
@@ -348,7 +406,7 @@ Gregorian Prayers - 50 Must-Have Mystic Gregorian Pop Remixes (2012) [MP3|320 Kb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376026.jpg" />
+  <img src="Z:/picture/008/save_picture_376026.jpg" />
 </div>
 
 
@@ -377,7 +435,7 @@ Hans Zimmer - Eclipse (OST from Dune) [Trailer Version] (2020) [FLAC 2.0|44/24|t
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376011.jpg" />
+  <img src="Z:/picture/008/save_picture_376011.jpg" />
 </div>
 
 
@@ -403,7 +461,7 @@ David Lanz - Norwegian Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375962.jpg" />
+  <img src="Z:/picture/008/save_picture_375962.jpg" />
 </div>
 
 
@@ -432,7 +490,7 @@ V.A. - Bappi Lahiri - Disco Dancer, Kasam Paida Karne Wale Ki, Tarzan (2000) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_375539.jpg" />
+  <img src="Z:/picture/005/save_picture_375539.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Howard Drossin & RZA - Человек с железными кулаками (20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375454.jpg" />
+  <img src="Z:/picture/008/save_picture_375454.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Music of the Shamans (Музыка шаманов)
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_375013.jpg" />
+  <img src="Z:/picture/005/save_picture_375013.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Armik - Cafe Romantico (2004) [MP3|320 Kbps] <Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374945.jpg" />
+  <img src="Z:/picture/008/save_picture_374945.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Kike Fernandez - 100 Tangos Inolvidables (2010) [MP3|192 кб/с]<Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374863.jpg" />
+  <img src="Z:/picture/008/save_picture_374863.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ VA - Astral Dreams. Insomnia Help Sleeping Music (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374343.jpg" />
+  <img src="Z:/picture/008/save_picture_374343.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373682.jpg" />
+  <img src="Z:/picture/008/save_picture_373682.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Sarah Schachner - Call of Duty: Infinite Warfare (Original Soundtrack) (2016) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373679.jpg" />
+  <img src="Z:/picture/008/save_picture_373679.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Caravelli - Caravelli in Moscow (1982) 1999, Reissue, Boheme Music [MP3|320 Kbps
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373007.jpg" />
+  <img src="Z:/picture/008/save_picture_373007.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Caravelli - Caravelli in Moscow (1982) 1999, Reissue, Boheme Music [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0A54D4DC0B28E118F440F5056390EE37A9BB8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254437   (372993) от 14.10.2018
-
-Roberto Danova - Panpipe moods (2001) [FLAC|Lossless|image + .cue] <Pop, Instrumental, Pan Flute, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What A Wonderful World
-02. Don't Cry For Me Argentina
-03. Misty
-04. Killing Me Softly With His Song(   Читать дальше...   )Жанр: Instrumental, Pan Flute, Easy ListeningПродолжительность: 01:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97F29D0A3368ED00E4971A0A0E9CC8A999399DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254373   (372992) от 14.10.2018
-
-Chris Piorkowski - Piano: Romantic Collection (2011) [MP3|320 Kbps] <Instrumental Pop, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Belle Amitie (2:35)
-02. Celibataire (2:56)
-03. Le Piano (2:50)
-04. Reconnaissant (2:56)(   Читать дальше...   )Жанр: Instrumental Pop, PianoПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2F51464A9BA26DF6962F23EA1B98931257A551
 ```
 
 https://mybot314.ru/tekegram_catalog/

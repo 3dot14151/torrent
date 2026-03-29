@@ -1,3 +1,55 @@
+###  Публикация: 1799692   (16401) от 29.05.2025
+
+ENDLESS Dungeon (2023) [Ru/Multi] (1.6.11053/dlc) Repack FitGirl [Last Wish Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16401.jpg" />
+</div>
+
+
+###  Подробнее
+
+ENDLESS Dungeon - это уникальный тактический roguelite-экшен с элементами tower defense, действие которого происходит в отмеченной наградами вселенной ENDLESS. Исследуйте давно заброшенную космическую станцию в одиночку или с друзьями в сетевом режиме. Соберите отряд героев из экипажа разбившегося корабля и защитите кристалл от бесконечной орды врагов... или погибните (   Читать дальше...   )Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: Экшены, СтратегииЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC66A4A7C77378BC44CA8FAD23609B2434842F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623378   (16336) от 30.05.2025
+
+9 Years of Shadows (2023) [Ru/Multi] (1.0.41) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16336.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 Years of Shadows – метроидвания, рассказывающая о молодой женщине по имени Европа. Благородное происхождение помогло ей завершить проклятие, попавшее на её народ. Её способности могут помочь всем странам вернуть краски жизни и процветания. Игрок контролирует Европу, перемещается по двумерным территориям и сталкивается с многочисленными трудностями.Тип издания: LicenseРазработчик: Halberd StudiosЖанр: Экшны, ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Испанский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608F5663B2A1C685BF5D5A72055EE9596898A9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689642   (16185) от 31.05.2025
 
 Astral Ascent (2023) [Ru/Multi] (1075/dlc) License GOG
@@ -6,7 +58,7 @@ Astral Ascent (2023) [Ru/Multi] (1075/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16185.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.0) Repack Let
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16163.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.0/dlc) Repack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15972.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Disney Illusion Island Starring Mickey & Friends (2025) [Multi] (1.1/dlc) Licens
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15952.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Iron Meat (2024) [Ru/Multi] (1.1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15909.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Death Roads: Tournament (2023) [Multi] (1.0.7.123) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15212.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Rayman 3: Hoodlum Havoc (2003) [Ru/En] (1.0.0) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15168.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.4.110480/dlc) Scene Rune
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14706.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Geometry Dash (2014) [En] (2.207) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14628.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Cuphead (2017) [Ru/Multi] (1.3.4/dlc) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14555.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Rain World (2017) [Ru/Multi] (1.10.4/dlc) Repack Other s [Complete Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14329.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Oirbo (2023) [En] (1.5.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14044.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack EXROW
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13819.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Pocket Bravery (2023) [Multi] (2.05/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12807.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.4.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12587.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Ship of Fools (2022) [Ru/Multi] (1.5.2.613fe2f3/dlc) Repack Let'sРlay [Aquapoca
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12481.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12380.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Spiritfall (2024) [Ru/Multi] (1.6.27) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12211.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11265.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Loophole (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10965.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Xeno Rangers (2025) [Ru/Multi] (1.0.19B) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10930.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10710.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Through the Nightmares (2025) [Multi] (1.0.4) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9885.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9662.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89CB1BD6FFA26A215DC3C87EA753861DA871BF49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809750   (9653) от 01.08.2025
-
-Ninja Gaiden: Ragebound (2025) [Ru/Multi] (1.0) Scene Rune
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ninja Gaiden: Ragebound - совершенно новая игра с боковой прокруткой в серии Ninja Gaiden от разработчиков Blasphemous - меняет представление о классических сюжетных платформерах в зрелищном, захватывающем и сложном приключении ниндзя.Тип издания: SceneРазработчик: The Game KitchenЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA024FFE9E885AB1265620F4C6A0D3C67F9B129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809974   (9556) от 02.08.2025
-
-NINJA GAIDEN: Ragebound (2025) [Ru/Multi] (CS36158) Repack FitGirl [Soundtrack Edition]
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9556.jpg" />
-</div>
-
-
-###  Подробнее
-
-NINJA GAIDEN: Ragebound - совершенно новая игра с боковой прокруткой в серии Ninja Gaiden от разработчиков Blasphemous - меняет представление о классических сюжетных платформерах в зрелищном, захватывающем и сложном приключении ниндзя. Наше повествование начинается с того, как Рю Хаябуса отправляется в Америку, чтобы исполнить волю своего отца. Пока героя нет, барьер (   Читать дальше...   )Тип издания: RepackРазработчик: The Game KitchenЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081AB5CC852A9F8CC70F38D80CD866A05F546AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

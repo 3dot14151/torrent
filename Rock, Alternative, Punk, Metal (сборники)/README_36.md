@@ -1,3 +1,146 @@
+###  Публикация: 1083125   (275699) от 14.12.2016
+
+VA - Rock Collection 1997 (2016) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01
+
+01. Foo Fighters - Doll
+02. Fates Warning - A Pleasant Shade of Gray: Part I(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 29:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CFB19A398D5FE953423A4C9F62BCBE11FB7151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083105   (275597) от 14.12.2016
+
+VA - Rock Collection 1996 (2016) [MP3|320 Kbps] <Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01
+
+01. Ayreon - Actual Fantasy
+02. Opeth - Advent(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 29:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972CB235F041F93AB660DF8B5BD0F3F802CDC1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083441   (274732) от 15.12.2016
+
+VA - Ramification Rock Gallery (2CD) (2016) [MP3|128-320 Kbps] <Rock, Alternative, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274732.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+001. Sky Architects - Alleviate 4:39
+002. In Mourning - Fire And Ocean 6:19
+003. Kari Rueslatten - Battle Forevermore 3:51(   Читать дальше...   )Жанр: Rock, Alternative, Hard RockПродолжительность: 15:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BE911BB6728C17883524F05EA6C36BE2AF9794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942786   (274124) от 02.12.2017
+
+Prodigy & Rammstein - 1000% (2002-2003) [MP3|320 кб/с]<Electronic, Breakbeat, NDH, Industrial Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prodigy 1000% (2002)
+Rammstein 1000% (2003)Жанр: Electronic, Breakbeat, NDH, Industrial MetalПродолжительность: 02:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA4B676D94CF093B7A907353A58FB00C212C192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337496   (273699) от 11.11.2019
+
+VA - End Time Vision: Hard Rock And Metal Selection (2019) [MP3|320 Kbps] <Hard Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273699.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dedicate - A Reason
+002. Minus - Action
+003. Dprive - Sub-Version
+004. Choice To Make - Think Twice(   Читать дальше...   )Жанр: Hard Rock, Metal, AlternativeПродолжительность: 07:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860B717CDF50802C65080C49AB966A2566F08C73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 48749   (271779) от 30.11.2018
 
 Moscowallica - A Russian Tribute to MetallicA '2000
@@ -6,7 +149,7 @@ Moscowallica - A Russian Tribute to MetallicA '2000
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271779.jpg" />
+  <img src="Z:/picture/008/save_picture_271779.jpg" />
 </div>
 
 
@@ -35,7 +178,7 @@ VA - 50 Лучших Баллад Навсегда (2014) [MP3|320 кб/с]<Rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270742.jpg" />
+  <img src="Z:/picture/008/save_picture_270742.jpg" />
 </div>
 
 
@@ -64,7 +207,7 @@ Within Temptation - Edge of the World (Compilation) (2019) 2CD [MP3|320 Kbps] <S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269556.jpg" />
 </div>
 
 
@@ -93,7 +236,7 @@ VA - Welcome Aboard: Advanced Rock Box (2019) [MP3|320 Kbps] <Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268129.jpg" />
+  <img src="Z:/picture/008/save_picture_268129.jpg" />
 </div>
 
 
@@ -122,7 +265,7 @@ VA - Heavy Metal Collections Vol. 5 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, S
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266907.jpg" />
 </div>
 
 
@@ -151,7 +294,7 @@ VA - Heavy Metal Collections Vol. 1 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, P
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266834.jpg" />
 </div>
 
 
@@ -180,7 +323,7 @@ VA - Time Of Revelation: Hard Rock Box (2018) [MP3|320 Kbps] <Hard Rock, Alterna
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266654.jpg" />
 </div>
 
 
@@ -209,7 +352,7 @@ VA - Heavy Metal Collections Vol. 3 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, P
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265923.jpg" />
 </div>
 
 
@@ -238,7 +381,7 @@ VA - Hard Rock Division Vol.02 (2017) [MP3|320 Kbps] <Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265849.jpg" />
 </div>
 
 
@@ -267,7 +410,7 @@ VA - Heavy Metal Collections Vol. 2 (5CD) (2017) [MP3|320 Kbps] <Heavy, Power, P
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265845.jpg" />
 </div>
 
 
@@ -296,7 +439,7 @@ VA - Heavy Metal Collections Vol. 4 (6CD) (2017) [MP3|320 Kbps] <Heavy, Power, P
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265764.jpg" />
 </div>
 
 
@@ -325,7 +468,7 @@ VA - Maximum Alternative (2017) [MP3|320 Kbps] <Rock Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265093.jpg" />
 </div>
 
 
@@ -354,7 +497,7 @@ VA - Classic Rock Antems (2017) [MP3|320 Kbps] <Classic Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265036.jpg" />
 </div>
 
 
@@ -383,7 +526,7 @@ VA - Lady In Rock Music (2017) [MP3|320 Kbps] <Rock, Melodic Progressive Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264107.jpg" />
 </div>
 
 
@@ -412,7 +555,7 @@ VA - 70's Monday Morning Lights (2017) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263105.jpg" />
 </div>
 
 
@@ -441,7 +584,7 @@ VA - Hard Rock Division Vol.03 (2017) [MP3|320 Kbps] <Hard Rock, Alterhative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262072.jpg" />
 </div>
 
 
@@ -470,7 +613,7 @@ VA - Alternative Meaning (2017) [MP3|320 Kbps] <Alternative, Indie, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261939.jpg" />
 </div>
 
 
@@ -499,7 +642,7 @@ VA - The Iron Apocalypse (2025) [MP3|320 Kbps] <Metal, Death, Black>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261536.jpg" />
 </div>
 
 
@@ -528,7 +671,7 @@ VA - Сказочный том II (2013-2025) [MP3|320 Kbps] <Folk rock, Post pu
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257990.jpg" />
+  <img src="Z:/picture/005/save_picture_257990.jpg" />
 </div>
 
 
@@ -557,7 +700,7 @@ VA - Solo Projects From Queen (1973-2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256721.jpg" />
+  <img src="Z:/picture/005/save_picture_256721.jpg" />
 </div>
 
 
@@ -586,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256199.jpg" />
+  <img src="Z:/picture/005/save_picture_256199.jpg" />
 </div>
 
 
@@ -606,169 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8C11B9008EC8D07A5DCEACAF2EA7E737214BF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627827   (254917) от 22.04.2023
-
-VA - Compilation  part 17 Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Horses - Alone
-02. Jamie N Commons - Not Gonna Break Me Valor
-03. L.A. Guns - I  Love to Change the World
-04. Stephane Huguenin - Stay By My Side(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DECE352B23EB4DEDFC5402AD31C8B96FD25D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498140   (253838) от 17.05.2012
-
-Моральный кодекс - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Реки и горы
-02. Первый Снег
-03. Meine Liebe
-04. На Рассвете
-05. Я Выбираю тебя
-06. Давай Сбежим
-07. Кошки
-08. Клавдия
-09. Дети лета
-10. Шукаю Тебе(   Читать дальше...   )2012Жанр: RockПродолжительность: 02:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81120722E3BCF2467899EA64158C2B1E2FA2EFFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497767   (253783) от 17.05.2012
-
-VA - Рок в Авто (2012) [MP3|160-320 кб/с]<Heavy Metal , Hard Rock , Glam Metal, Thrash Metal, Alternative Metal, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papa Roach - Last Resort
- 02. Red Hot Chili Peppers - Can't Stop
- 03. Breed 77 - Zombie
- 04. Helloween - Future World(   Читать дальше...   )Жанр: Heavy Metal , Hard Rock , Glam Metal, Thrash Metal, Alternative Metal, Power MetalПродолжительность: 04:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECC6580AA6B9B54AF411DAE9B5A62284E22433C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494991   (251061) от 10.05.2012
-
-Гарик Сукачев - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251061.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дорожная
- 2. Звезда микрорайона
- 3. Моя бабушка курит трубку
- 4. Бродяга
- 5. Свободу Анджеле Дэвис!
- 6. Playboy
- 7. За окошком месяц май
- 8. Сантехник
- 9. Я обожаю jazz
- 10. Знаю я, есть края…(   Читать дальше...   )2012Жанр: RockПродолжительность: 03:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A146820A032BAF7D39B08A7F49AB83EE60A200F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494974   (251013) от 10.05.2012
-
-Сергей Галанин - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Юрий Гагарин
-2. Ангел
-3. Твоя душа
-4. Давай
-5. Я хочу пить с тобой
-6. Интерзона
-7. Собачий вальс
-8. Чертополох
-9. Я далеко
-10. Альтернативная любовь(   Читать дальше...   )2012Жанр: RockПродолжительность: 01:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555654EC7AB70C759C0068163217B79FB602F218
 ```
 
 https://mybot314.ru/tekegram_catalog/

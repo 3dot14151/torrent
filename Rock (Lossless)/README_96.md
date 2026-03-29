@@ -1,3 +1,149 @@
+###  Публикация: 1248949   (438015) от 22.09.2018
+
+Mark Rowen - Radiance (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Move [00:01:47]
+02. My Shadow Walks Alone [00:05:15]
+03. Feel Like Letting Go [00:05:37]
+04. On The Blue Horizon [00:05:01](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B63451328CB953E38639DF363FD947FC9FDCC72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323382   (437691) от 03.09.2019
+
+Самое большое простое число - Наверное, точно (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Северное сияние (2:16)
+ 02. В мире придурков (4:27)
+ 03. Злой (3:22)
+ 04. Часы (3:44)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:254E877235CAB3F54F397131DBEE33DF0146F271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707460   (437596) от 05.10.2013
+
+Yes - Close To The Edge (1972) Hybrid SACD /2012, Audio Fidelity/ [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close To The Edge (18:47)
+02. And You And I (10:11)
+03. Siberian Khatru (8:55)Жанр: Progressive RockПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBAB8EF1F7EA653C96FDDF715377E81ACCB7BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423154   (437561) от 20.09.2020
+
+Bob Seger - 23 Albums (1969 - 2018) 36 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Classic Rock>
+
+>>След.
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боб Сигер (англ. Bob Seger, полное имя Роберт Кларк Сигер - Robert Clark Seger, 6 мая 1945г.) — американский рок-музыкант и автор песен.
+Родился 6 мая 1945 г. Начал карьеру в музыке в 1961 г. После нескольких лет локальной известности в родном городе Детройт, в 1968-м Сигер собрал команду "The Bob Seger System", и, подписав контракт с "Capitol Records", (   Читать дальше...   )Список альбомов:
+1969 - Ramblin' Gamblin' Man
+1970 - Mongrel
+1972  - Smokin' O.P.'sЖанр: Classic RockПродолжительность: 28:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D207B89BC2CCB39DBB5264BE53350EEBA5F0B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 829008   (437423) от 07.10.2014
+
+David Knopfler - 9 альбомов (1983-2006) [FLAC, APE|Lossless|tracks + .cue, image + .cue] <Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_437423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+Нопфлер вырос в Ньюкасле-апон-Тайн, где учился в Госфортской Средней Школе. Сын архитектора, переехавшего в Великобританию ещё до рождения детей, Дэвид рос в Ньюкасле-на-Тайне. В возрасте 11 лет он овладел гитарой, фортепиано и барабанной установкой и в 14 лет уже исполнял свои песни в фолк-клубах. После учёбы в Бристольском политехническом институте он (   Читать дальше...   )01. Steel Wheels (3:46)
+02. Fire Down Below (4:37)
+03. Sophie's Songs (5:45)
+04. Somebody Kind (4:39)(   Читать дальше...   )Жанр: Rock, Folk-rockПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96E0E93B8825033EAE8AE623A36C0EB3709FD77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410372   (436220) от 21.09.2020
 
 Lowrider - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Desert, Stoner Rock>
@@ -6,7 +152,7 @@ Lowrider - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Desert, Stoner Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436220.jpg" />
+  <img src="Z:/picture/008/save_picture_436220.jpg" />
 </div>
 
 
@@ -35,7 +181,7 @@ Symphorce - Unresticted (2010) [FLAC|Lossless|image + .cue] <Heavy-Power Metal>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435564.jpg" />
+  <img src="Z:/picture/008/save_picture_435564.jpg" />
 </div>
 
 
@@ -64,7 +210,7 @@ John Lennon - Anthology (1998) /4CD Boxset/ [FLAC|track+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435512.jpg" />
+  <img src="Z:/picture/008/save_picture_435512.jpg" />
 </div>
 
 
@@ -94,7 +240,7 @@ Kiss - Hotter Than Hell (1974) + Unmasked (1980) (1999) [WavPack|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434489.jpg" />
+  <img src="Z:/picture/008/save_picture_434489.jpg" />
 </div>
 
 
@@ -123,7 +269,7 @@ Bigelf - 5 альбомов (1996 - 2014) [FLAC|image+.cue|tracks+.cue|Lossless]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434298.jpg" />
+  <img src="Z:/picture/008/save_picture_434298.jpg" />
 </div>
 
 
@@ -152,7 +298,7 @@ Magic Dance - Remnants (2020) [FLAC|Lossless|image + .cue] <Melodic  Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434036.jpg" />
+  <img src="Z:/picture/008/save_picture_434036.jpg" />
 </div>
 
 
@@ -181,7 +327,7 @@ Bill Champlin - Livin' For Love (2021) Japanese Edition [FLAC|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434032.jpg" />
+  <img src="Z:/picture/008/save_picture_434032.jpg" />
 </div>
 
 
@@ -210,7 +356,7 @@ Generation Radio - Generation Radio (2022) Japanese Edition [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433945.jpg" />
+  <img src="Z:/picture/008/save_picture_433945.jpg" />
 </div>
 
 
@@ -239,7 +385,7 @@ Deep Purple - Bombay Calling (Live in 95) (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433841.jpg" />
+  <img src="Z:/picture/008/save_picture_433841.jpg" />
 </div>
 
 
@@ -268,7 +414,7 @@ Bad Company - Rock 'N' Roll Fantasy: The Very Best Of Bad Company (2015) [FLAC|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433813.jpg" />
+  <img src="Z:/picture/008/save_picture_433813.jpg" />
 </div>
 
 
@@ -297,7 +443,7 @@ Smokie - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433733.jpg" />
+  <img src="Z:/picture/008/save_picture_433733.jpg" />
 </div>
 
 
@@ -326,7 +472,7 @@ Antimatter - 6 альбомов + компиляция (2001 - 2015) Discography
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433102.jpg" />
+  <img src="Z:/picture/008/save_picture_433102.jpg" />
 </div>
 
 
@@ -356,7 +502,7 @@ Gary Hoey - Monster Surf (2005) [FLAC|Lossless|tracks + .cue] <Surf, Instrumenta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432688.jpg" />
+  <img src="Z:/picture/008/save_picture_432688.jpg" />
 </div>
 
 
@@ -385,7 +531,7 @@ Colin James - Blue Highways (2016) [FLAC|Lossless|image + .cue] <Blues Rock, Blu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432521.jpg" />
+  <img src="Z:/picture/008/save_picture_432521.jpg" />
 </div>
 
 
@@ -414,7 +560,7 @@ Phil Collins - The Singles (2016) Expanded Edition [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432143.jpg" />
+  <img src="Z:/picture/008/save_picture_432143.jpg" />
 </div>
 
 
@@ -443,7 +589,7 @@ En Minor - When The Cold Truth Has Worn Its Miserable Welcome Out (2020) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431984.jpg" />
+  <img src="Z:/picture/008/save_picture_431984.jpg" />
 </div>
 
 
@@ -472,7 +618,7 @@ VA - Eric Clapton: Life in 12 Bars (2018) 2CD, Compilation [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431031.jpg" />
+  <img src="Z:/picture/008/save_picture_431031.jpg" />
 </div>
 
 
@@ -501,7 +647,7 @@ Cracked Machine - Gates of Keras (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Ps
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429983.jpg" />
+  <img src="Z:/picture/008/save_picture_429983.jpg" />
 </div>
 
 
@@ -530,7 +676,7 @@ SPACE DEER - The Forest (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psych
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429839.jpg" />
+  <img src="Z:/picture/008/save_picture_429839.jpg" />
 </div>
 
 
@@ -559,7 +705,7 @@ La Maschera Di Cera - S.E.I. (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429744.jpg" />
+  <img src="Z:/picture/008/save_picture_429744.jpg" />
 </div>
 
 
@@ -587,7 +733,7 @@ Ace Frehley - Origins, Vol 2 (2020) [FLAC|Lossless|image + .cue] <Classic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429742.jpg" />
+  <img src="Z:/picture/008/save_picture_429742.jpg" />
 </div>
 
 
@@ -601,148 +747,6 @@ Ace Frehley - Origins, Vol 2 (2020) [FLAC|Lossless|image + .cue] <Classic Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFFA21B26BC200B940D531557A404242E345016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410939   (429739) от 24.09.2020
-
-Fleetwood Mac - Live in Helsinki (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Homework (Live: Helsinki, Finland Sep 1969) (03:51)
-02. Man Of The World (Live: Helsinki, Finland Sep 1969) (03:05)
-03. Like It This Way (Live: Helsinki, Finland Sep 1969) (05:14)
-04. Only You (Live: Helsinki, Finland Sep 1969) (04:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C1CAD4744AC87703FB00A32FA6C932E0E90C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411083   (429616) от 24.09.2020
-
-David Bowie - I'm Only Dancing (The Soul Tour 74) (2020) 2xCD, Limited Edition [FLAC|Lossless|tracks + .cue] <Rock, Soul, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429616.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Introduction - Memory Of A Free Festival
-02. Rebel Rebel
-03. John, I’m Only Dancing (Again)(   Читать дальше...   )Жанр: Rock, Soul, GlamПродолжительность: 01:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079D6D4D7B3977BB3B0F414CB1FF7EC6FEB1E65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165838   (428173) от 15.09.2017
-
-Foo Fighters - Concrete And Gold (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428173.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. T-Shirt (1:23)
- 2. Run (5:23)
- 3. Make It Right (4:39)
- 4. The Sky Is A Neighborhood (4:05)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65121E984F19DDDFDAA791FCE909B1996179EBBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064283   (428050) от 19.10.2016
-
-Emerson, Lake & Powell - Emerson, Lake & Powell (1986) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Score (9:09)
-02. Learning to Fly (3:51)
-03. The Miracle (7:04)
-04. Touch and Go (3:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DB155EC3E43359F82EA4ED7FCCADF9C9FEF46F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571941   (427504) от 24.08.2022
-
-VA - One Way Street: A Tribute To Aerosmith (2001) [FLAC|Lossless|image + .cue] <Glam, Hard, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eat The Rich (4:17)Жанр: Glam, Hard, Blues RockПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F5896EA4D967B750754C7C658E23AEB4E4574A
 ```
 
 https://mybot314.ru/tekegram_catalog/

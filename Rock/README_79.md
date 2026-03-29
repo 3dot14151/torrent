@@ -1,3 +1,32 @@
+###  Публикация: 1579935   (232122) от 30.09.2022
+
+Def Leppard - X (2002) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_232122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now	4:00
+02. Unbelievable	4:02
+03. You're So Beautiful	3:33
+04. Everyday	3:11(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F045C76080E37C96ECCC45EF460061C5E532ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580029   (232112) от 30.09.2022
 
 Def Leppard - Def Leppard (2015) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
@@ -6,7 +35,7 @@ Def Leppard - Def Leppard (2015) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232112.jpg" />
+  <img src="Z:/picture/005/save_picture_232112.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mourning Knight - A World of Dreams (2023) [MP3|320 Kbps] <Progressive Rock, Sym
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231988.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Quidam - Sny Aniołów (Sny Aniolow) (1998) Remaster, 2023, GAD Records [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231844.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Def Leppard - Diamond Star Halos (2022) Limited Edition [MP3|320 kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231816.jpg" />
+  <img src="Z:/picture/005/save_picture_231816.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ King Crimson - Mister Stormy's Monday Selection, Vol. 10 (2023) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231389.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Residents - 13th Anniversary Show - Live In The USA (1986) Reissue, Remaster
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231379.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Feuerschwanz - Fegefeuer (2023) 3CD, Digital Deluxe Album [MP3|320 Kbps] <Gothic
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231107.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Meddle Reimagined - A Tribute To Pink Floyd (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230653.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Road Trip Country Rock (2023) [MP3|320 Kbps] <Country, Country Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230448.jpg" />
+  <img src="Z:/picture/004/save_picture_230448.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Rock - Best of 2022 Explicit [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230378.jpg" />
+  <img src="Z:/picture/005/save_picture_230378.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Рок Легенди України (2002-2006) Рок Легенды Ук
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230253.jpg" />
+  <img src="Z:/picture/005/save_picture_230253.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Roxette - Rarities (1995) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230134.jpg" />
+  <img src="Z:/picture/005/save_picture_230134.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Roxette - Have A Nice Day (1999) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230122.jpg" />
+  <img src="Z:/picture/005/save_picture_230122.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Roxette - Room Service (2001) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230113.jpg" />
+  <img src="Z:/picture/005/save_picture_230113.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Rock Workout 2023 (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230017.jpg" />
+  <img src="Z:/picture/005/save_picture_230017.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Roxette - Charm School (2011) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229888.jpg" />
+  <img src="Z:/picture/005/save_picture_229888.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - 20 Original Debut-Albums by 20 Rock & Roll Stars (2015) 10CD [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229114.jpg" />
+  <img src="Z:/picture/004/save_picture_229114.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Roxette - Travelling (2012) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229030.jpg" />
+  <img src="Z:/picture/004/save_picture_229030.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Roxette - Good Karma (2016) [OGG Vorbis|480 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228943.jpg" />
+  <img src="Z:/picture/004/save_picture_228943.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Little Feat - Dixie Chicken (1973) 2CD, Deluxe Edition, Remaster, 2023, Rhino - 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228627.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Avi Rosenfeld & Marco Buono - Tell Me Something (2020) [MP3|320 Kbps] <Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228075.jpg" />
+  <img src="Z:/picture/005/save_picture_228075.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ The Ryszard Kramarski Project - Sounds From The Past (2018) [MP3|320 Kbps] <Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228063.jpg" />
+  <img src="Z:/picture/005/save_picture_228063.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Avi Rosenfeld - Be The Moon (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228051.jpg" />
+  <img src="Z:/picture/005/save_picture_228051.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Avi Rosenfeld & Caz Mera - It's Late (2020) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227994.jpg" />
+  <img src="Z:/picture/005/save_picture_227994.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Ady & The Hop Pickers - Are You Ready Guys? (2020) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227974.jpg" />
+  <img src="Z:/picture/005/save_picture_227974.jpg" />
 </div>
 
 
@@ -716,34 +745,6 @@ Ady & The Hop Pickers - Are You Ready Guys? (2020) [MP3|320 Kbps] <Rockabilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:046FEE604EF68A9B4A64C73CBCB9F4D43EA42175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649807   (227882) от 30.07.2023
-
-Little Feat - Sailin' Shoes (1972) 2CD, Deluxe Edition, Remaster, 2023, Rhino - Warner Records [MP3|320 Kbps] <Southern Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Sailin’ Shoes (2023 Remaster)
-Disc 2: Hotcakes, Outtakes, Rarities & Thank You! I’ll Eat It Here: Live at the Palladium, Los Angeles, CA 8/28/71Жанр: Southern Rock, Blues RockПродолжительность: 2CD, 01:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A50BD4BF2F648AB0D1FA6BA608F5901E15D4194
 ```
 
 https://mybot314.ru/tekegram_catalog/

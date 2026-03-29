@@ -6,7 +6,7 @@ QOwnNotes 20.6.0 Build 5746 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791798.jpg" />
+  <img src="Z:/picture/008/save_picture_791798.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Firefox Browser 77.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791783.jpg" />
+  <img src="Z:/picture/008/save_picture_791783.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Viber 13.1.0.56 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791781.jpg" />
+  <img src="Z:/picture/008/save_picture_791781.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BestReminder v2019.01.09.09 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791695.jpg" />
+  <img src="Z:/picture/008/save_picture_791695.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Subtitle Edit 3.5.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791691.jpg" />
+  <img src="Z:/picture/008/save_picture_791691.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Sticky Password Premium 8.2.1.226 (промо Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791656.jpg" />
+  <img src="Z:/picture/008/save_picture_791656.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791654.jpg" />
+  <img src="Z:/picture/008/save_picture_791654.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ SUMo Pro 5.8.10.412 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791652.jpg" />
+  <img src="Z:/picture/008/save_picture_791652.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ CPU-Z 1.83.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791619.jpg" />
+  <img src="Z:/picture/008/save_picture_791619.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Mozilla Thunderbird 52.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791616.jpg" />
+  <img src="Z:/picture/008/save_picture_791616.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Core Temp 1.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791604.jpg" />
+  <img src="Z:/picture/008/save_picture_791604.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ SMPlayer 18.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791569.jpg" />
+  <img src="Z:/picture/008/save_picture_791569.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Calibre 3.16.0 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791556.jpg" />
+  <img src="Z:/picture/008/save_picture_791556.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ KeePass Password Safe 2.41 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791539.jpg" />
+  <img src="Z:/picture/008/save_picture_791539.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Auslogics BoostSpeed 10.0.3.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791513.jpg" />
+  <img src="Z:/picture/008/save_picture_791513.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ USDownloader 1.3.5.9 Portable (25.01.2018) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791511.jpg" />
+  <img src="Z:/picture/008/save_picture_791511.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ O&O BlueCon Admin + Tech Edition 15.6 Build 6006 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791493.jpg" />
+  <img src="Z:/picture/008/save_picture_791493.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ CrystalDiskMark 6.0.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791485.jpg" />
+  <img src="Z:/picture/008/save_picture_791485.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Adobe Acrobat Pro DC 2019.010.20069 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791483.jpg" />
+  <img src="Z:/picture/008/save_picture_791483.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ DesktopOK 9.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791453.jpg" />
+  <img src="Z:/picture/008/save_picture_791453.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Complete Internet Repair 5.0.1.3852 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791448.jpg" />
+  <img src="Z:/picture/008/save_picture_791448.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2198 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791428.jpg" />
+  <img src="Z:/picture/008/save_picture_791428.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ MSI Kombustor 4.1.14.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791420.jpg" />
+  <img src="Z:/picture/008/save_picture_791420.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Any Video Converter Professional 7.1.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791413.jpg" />
+  <img src="Z:/picture/008/save_picture_791413.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Sonic Academy - ANA 2.0.3 r2 VSTi, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791409.jpg" />
+  <img src="Z:/picture/008/save_picture_791409.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ WinNTSetup 3.8.8.5 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791408.jpg" />
+  <img src="Z:/picture/008/save_picture_791408.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 854523   (309255) от 27.11.2015
+
+Бернард Корнуэлл | Собрание сочинений [56 книг] (1996-2015) [FB2] [Обновляемая]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_309255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бернард Корнуэлл (англ. Bernard Cornwell, 23 февраля 1944) — английский писатель и репортер, автор исторических романов про королевского стрелка Ричарда Шарпа. Бернард Корнуэлл родился в Лондоне в 1944 году. Это был «ребенок войны» — его отец был канадский летчик, а мать служила во вспомогательных частях ВВС. Его усыновила семья из Эссекса, принадлежавшая религиозной (   Читать дальше...   )Жанр: Исторические приключения, Историческая прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE3293D51EC53F2D633D687F087749E94F299EB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076558   (308890) от 27.11.2016
 
 Виктор Лугинин | Нанопанк (2015) [MP3]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308890.jpg" />
+  <img src="Z:/picture/008/save_picture_308890.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308183.jpg" />
+  <img src="Z:/picture/008/save_picture_308183.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308177.jpg" />
+  <img src="Z:/picture/008/save_picture_308177.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308170.jpg" />
+  <img src="Z:/picture/008/save_picture_308170.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui | Руководство по тополо
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308133.jpg" />
+  <img src="Z:/picture/008/save_picture_308133.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308079.jpg" />
+  <img src="Z:/picture/008/save_picture_308079.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308077.jpg" />
+  <img src="Z:/picture/008/save_picture_308077.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307978.jpg" />
+  <img src="Z:/picture/008/save_picture_307978.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307972.jpg" />
+  <img src="Z:/picture/008/save_picture_307972.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307903.jpg" />
+  <img src="Z:/picture/008/save_picture_307903.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307898.jpg" />
+  <img src="Z:/picture/008/save_picture_307898.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307879.jpg" />
+  <img src="Z:/picture/008/save_picture_307879.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307857.jpg" />
+  <img src="Z:/picture/008/save_picture_307857.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307678.jpg" />
+  <img src="Z:/picture/008/save_picture_307678.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307577.jpg" />
+  <img src="Z:/picture/008/save_picture_307577.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306594.jpg" />
+  <img src="Z:/picture/008/save_picture_306594.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306580.jpg" />
+  <img src="Z:/picture/008/save_picture_306580.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306566.jpg" />
+  <img src="Z:/picture/008/save_picture_306566.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306423.jpg" />
+  <img src="Z:/picture/008/save_picture_306423.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305996.jpg" />
+  <img src="Z:/picture/008/save_picture_305996.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305774.jpg" />
+  <img src="Z:/picture/008/save_picture_305774.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305668.jpg" />
+  <img src="Z:/picture/008/save_picture_305668.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305599.jpg" />
+  <img src="Z:/picture/008/save_picture_305599.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305559.jpg" />
+  <img src="Z:/picture/008/save_picture_305559.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305555.jpg" />
+  <img src="Z:/picture/008/save_picture_305555.jpg" />
 </div>
 
 
@@ -658,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FE8925956937DBFFD1C384297772164910C3FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585190   (305487) от 05.12.2012
-
-Андрей Левицкий, Алексей Бобл | Наемники фортуны [2012] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Егор Разин - пилот-наемник. Он убивает, потому что за это платят, но теперь пришел его черед умирать. И единственным спасением становится опасный эксперимент, из-за которого он попадает в эпицентр войны с неведомым врагом - некрозом, уничтожающим саму реальность...
-В сборник вошли романы "Пароль: "Вечность"" А.Левицкого, А.Бобла и "Падение небес" А.Бобла из фантастического цикла "Технотьма".Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04627AA82B829C6E593393B29E42E1AC10DF3DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

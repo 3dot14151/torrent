@@ -1,3 +1,56 @@
+###  Публикация: 1125595   (766955) от 16.04.2017
+
+Г.И. Журов и др. | Основы современной цифровой фотографии (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766955.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены основы фотографии, рассмотрено устройство и принцип работы фотоаппаратов и объективов, изложены основные принципы компьютерной обработки фотографий, необходимые для создания, ретуширования и восстановления фотографий. Подробно рассмотрена работа с RAW форматами, панорамными фотографиями, стереоизображениями. Рассмотрен процесс создания (   Читать дальше...   )Жанр: Фотография, хоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40B03C7E9C6A9303BCA6BAF21118F5F70EC7D089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125524   (766154) от 17.04.2017
+
+А.Г. Цыпкин, Г.Г. Цыпкин | Математические формулы (1985) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены основные формулы алгебры, геометрии (включая дифференциальную геометрию и векторное исчисление), тригонометрии. Широко представлены формулы и основные понятия и теоремы математического анализа. Приведены таблицы основных интегралов.
+Для широкого круга специалистов и учащейся молодежи.Жанр: СправочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8971E7A5DACB07CC6B9F634E595CE455F3FD5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214009   (765745) от 20.03.2018
 
 А.Г. Сергеев, В.В. Терегеря | Метрология, стандартизация и сертификация (2011) [DjVu]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765745.jpg" />
+  <img src="Z:/picture/008/save_picture_765745.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765413.jpg" />
+  <img src="Z:/picture/008/save_picture_765413.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765392.jpg" />
+  <img src="Z:/picture/008/save_picture_765392.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765373.jpg" />
+  <img src="Z:/picture/008/save_picture_765373.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764518.jpg" />
+  <img src="Z:/picture/008/save_picture_764518.jpg" />
 </div>
 
 
@@ -140,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764485.jpg" />
+  <img src="Z:/picture/008/save_picture_764485.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764328.jpg" />
+  <img src="Z:/picture/008/save_picture_764328.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763442.jpg" />
+  <img src="Z:/picture/008/save_picture_763442.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763440.jpg" />
+  <img src="Z:/picture/008/save_picture_763440.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763433.jpg" />
+  <img src="Z:/picture/008/save_picture_763433.jpg" />
 </div>
 
 
@@ -272,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763346.jpg" />
+  <img src="Z:/picture/008/save_picture_763346.jpg" />
 </div>
 
 
@@ -298,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763343.jpg" />
+  <img src="Z:/picture/008/save_picture_763343.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763338.jpg" />
+  <img src="Z:/picture/008/save_picture_763338.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763227.jpg" />
+  <img src="Z:/picture/008/save_picture_763227.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762644.jpg" />
+  <img src="Z:/picture/008/save_picture_762644.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762235.jpg" />
+  <img src="Z:/picture/008/save_picture_762235.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762233.jpg" />
+  <img src="Z:/picture/008/save_picture_762233.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762225.jpg" />
+  <img src="Z:/picture/008/save_picture_762225.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762140.jpg" />
+  <img src="Z:/picture/008/save_picture_762140.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762126.jpg" />
+  <img src="Z:/picture/008/save_picture_762126.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762122.jpg" />
+  <img src="Z:/picture/008/save_picture_762122.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761993.jpg" />
+  <img src="Z:/picture/008/save_picture_761993.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761903.jpg" />
+  <img src="Z:/picture/008/save_picture_761903.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761901.jpg" />
+  <img src="Z:/picture/008/save_picture_761901.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD26C667BF737CC0D486326ED168135C29E68EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522057   (761776) от 05.01.2022
-
-Б.Ю. Васильев | Автоматизированный электропривод машин и установок горного производства [2 тома] (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761776.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первом томе учебника рассмотрены история развития автоматизированного электропривода, общие сведения об электроприводах, основные вопросы механики, энергетики и совместимости электропривода. Рассмотрены преобразователи частоты автоматизированных электроприводов различных структур, а также основные типы модуляционных систем управления: системы фазной, синусоидальной, (   Читать дальше...   )Жанр: Горное дело, электроприводыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3AF166EDF64061FD85962DAD096DD1714BC77A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522019   (761774) от 05.01.2022
-
-С.М. Кривель | Динамика полета. Расчет летно-технических и пилотажных характеристик самолета (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761774.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии в краткой форме изложена методика приближенного расчета летно-технических характеристик самолета и оценки его пилотажных свойств, предлагается простой расчетный метод выбора параметров автоматической системы управления самолетом (обеспечения устойчивости и управляемости), обеспечивающих заданные пилотажные характеристики самолета. Изложенная методика прошла (   Читать дальше...   )Жанр: СамолетостроениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9D2198E9765B5DB7081395A4DF064DB06F1001
 ```
 
 https://mybot314.ru/tekegram_catalog/

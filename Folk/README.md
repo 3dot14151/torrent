@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057567.jpg" />
+  <img src="Z:/picture/005/save_picture_1057567.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Vayper - Матерные частушки (Алексей Иванов) (2026) 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054009.jpg" />
+  <img src="Z:/picture/005/save_picture_1054009.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044418.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Шедевры цыганской музыки, 4 Альбома (2000) [MP
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043501.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Super Djata Band - 3 Albums (1982-2022) [MP3|320 Kbps] <World Music>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038587.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ VA - Top Country Soul of a Nation (2023) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038102.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Mi
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034352.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - Spring Break 2023: Country Hits (2023) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031194.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030267.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Nativ
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019973.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005257.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - Country Legends (12CD) (2005) [MP3|320 кб/с]<Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992170.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Mashrou' Leila - Ibn El Leil (2015) [MP3|320 кб/с] <Ethnic, Indie, Pop Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984472.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ VA - Women's Songs - Native Traditions (2011) [MP3|320 Kbps] <Native American>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978723.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978184.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ VA - 100 Greatest Modern Country Songs (2020) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969689.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ VA - 100 Greatest Country The Best Hits from Nashville And Beyond (2020) [MP3|32
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966086.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ VA - Raise the Roof: Country Bands (2020) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963212.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Of Monsters And Men - 3 Albums, 4 EP & singles (2011-2015) [MP3|320 кб/с]<Ind
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961826.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ The Red Hot Chilli Pipers - Live At The Lake (2014) Live [MP3|320 Kbps] <Folk, W
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953653.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Leo Kottke - Standing In My Shoes (1997) [MP3|320 кб/с] <Folk, World, Country
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947004.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945798.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942318.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Prem Joshua - 18 альбомов (1991 - 2014) [MP3|160-320 kbps]<World, New ag
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934182.jpg" />
 </div>
 
 
@@ -712,7 +712,7 @@ African Head Charge - Songs Of Praise (1990) [MP3|320 кб/с] <Reggae, Dub>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922789.jpg" />
 </div>
 
 
@@ -741,7 +741,7 @@ Santiano - 3 альбома (2012 - 2015) [MP3|320 кб/с] <Pop, Rock, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918527.jpg" />
 </div>
 
 

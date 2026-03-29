@@ -1,3 +1,232 @@
+###  Публикация: 1620919   (245804) от 22.03.2023
+
+Laibach - Sketches Of The Red Districts (2023) [FLAC 2.0|48/24|WEB-DL|tracks] <Industrial, Neo-Classical, Experimental, Ambient, Spoken-Word>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 01. 06. 1924 [00:04:09]
+02 - Glück Auf! [00:06:33]
+03 - Moralna Zaslomba [00:05:09]
+04 - Smrt In Pogin [00:06:08](   Читать дальше...   )Жанр: Industrial, Neo-Classical, Experimental, Ambient, Spoken-WordПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2895E481C4B41BCAFB20D46CD884D8332EDAEF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620006   (245766) от 20.03.2023
+
+Iron Mask - Studio Albums (7 releases) (2002-2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iron Mask — пауэр-метал группа, основанная в 2002 году бельгийским гитаристом Душаном Петросси.2002 - Revenge Is My Name
+2005 - Hordes of The Brave
+2009 - Shadow Of The Red Baron
+2011 - Black As DeathЖанр: Power MetalПродолжительность: 07:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEE5C8B9D56C0E9B03E31FD29055D6688793BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623839   (245564) от 03.04.2023
+
+Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock, Funk / Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Funk / Soul, PopПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620710   (245485) от 21.03.2023
+
+Suzi Quatro - If You Knew Suzi (1978/1982) Bulgaria [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245485.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Не Променяй Съдбата Ми • Don't Change My Luck • Не меняй мою судьбу
+A2 Изморен От Чакане • Tired Of Waiting • Уставшая от ожидания
+A3 Самоубийство • Suicide
+A4 Ийви • Evie(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE96EE67321586B880F149F2CEE24276EF85A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540582   (245259) от 30.03.2022
+
+Демонстрационный диск DTS 5.1 CD-Audio #9 (2022) [DTS 5.1 CD-DA| 44.1/16|image+.cue|DVD-Audio] <Pop, Classic, Electronic...>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KRAFTWERK - Elektro kardiogramm
+02. BRYAN FERRY - Windswept
+03. GILLIAN WEIR - Pierre Petit: concerto for organ
+04. BILLIE MYERS - Kiss the Rain(   Читать дальше...   )Продолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E95577421439156E4685A6BA4DA0467C0E5498A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624222   (245188) от 05.04.2023
+
+The Twins - Hold on to your Dreams (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245188.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Hold On To Your Dreams (Rock Version) 4:16
+A2 Love Can Change It All 3:40
+A3 Time Will Tell 3:47
+A4 What Do You Live For 4:06(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8967413514C5C77F8BC9E912ADDF3055BB071D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631112   (245169) от 04.05.2023
+
+Roma Vayspapir - Traumerei (Reverie) (1988) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Classical, Romantic, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+Concerto no.2 in B minor
+Composed By – Giovanni Bottesini
+01. 1 I. Allegro moderato(   Читать дальше...   )Жанр: Classical, Romantic, BaroqueПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C8337BCB9053E9CBE0BC3BD8A93930889A4B12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621149   (245044) от 23.03.2023
+
+VA («Червоны гитары», М. Родович, Д. Фардон, Саймон и Гарфанкель) - Не Задирай Носа (1972) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245044.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 «Червоны гитары» - Не Задирай Носа
+(С. Краевский – М. Гашинский)
+A2 Марыля Родович - Баллада О Поезде
+(А. Зелинский - А. Осецка)(   Читать дальше...   )Жанр: PopПродолжительность: 00:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624768   (244997) от 07.04.2023
 
 Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Synth-pop>
@@ -6,7 +235,7 @@ Seal - Human Being (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Sy
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244997.jpg" />
+  <img src="Z:/picture/004/save_picture_244997.jpg" />
 </div>
 
 
@@ -35,7 +264,7 @@ LondonBeat - Speak (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244978.jpg" />
+  <img src="Z:/picture/004/save_picture_244978.jpg" />
 </div>
 
 
@@ -64,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244756.jpg" />
+  <img src="Z:/picture/004/save_picture_244756.jpg" />
 </div>
 
 
@@ -93,7 +322,7 @@ ORM, Kamelie - Tropic (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244688.jpg" />
+  <img src="Z:/picture/004/save_picture_244688.jpg" />
 </div>
 
 
@@ -122,7 +351,7 @@ Dreamtale - Studio Albums (8 releases) (2002-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244082.jpg" />
 </div>
 
 
@@ -151,7 +380,7 @@ Seal - Seal (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Downtempo, Soul>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244039.jpg" />
+  <img src="Z:/picture/004/save_picture_244039.jpg" />
 </div>
 
 
@@ -180,7 +409,7 @@ Robbie Williams - The Heavy Entertainment Show 2LPs (2016)  [FLAC 2.0|192/24|ima
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244034.jpg" />
+  <img src="Z:/picture/004/save_picture_244034.jpg" />
 </div>
 
 
@@ -209,7 +438,7 @@ Berlin - Pleasure Victim (1982)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244011.jpg" />
+  <img src="Z:/picture/004/save_picture_244011.jpg" />
 </div>
 
 
@@ -238,7 +467,7 @@ David Essex - Rock On (1973) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244006.jpg" />
+  <img src="Z:/picture/004/save_picture_244006.jpg" />
 </div>
 
 
@@ -267,7 +496,7 @@ The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243948.jpg" />
+  <img src="Z:/picture/004/save_picture_243948.jpg" />
 </div>
 
 
@@ -296,7 +525,7 @@ Bucks Fizz - Writing On The Wall (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243825.jpg" />
+  <img src="Z:/picture/004/save_picture_243825.jpg" />
 </div>
 
 
@@ -325,7 +554,7 @@ Barclay James Harvest - Gone To Earth (1977) [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243704.jpg" />
+  <img src="Z:/picture/004/save_picture_243704.jpg" />
 </div>
 
 
@@ -354,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243695.jpg" />
+  <img src="Z:/picture/005/save_picture_243695.jpg" />
 </div>
 
 
@@ -383,7 +612,7 @@ Samantha Fox - Touch Me (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243651.jpg" />
+  <img src="Z:/picture/004/save_picture_243651.jpg" />
 </div>
 
 
@@ -412,7 +641,7 @@ Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243620.jpg" />
+  <img src="Z:/picture/004/save_picture_243620.jpg" />
 </div>
 
 
@@ -439,7 +668,7 @@ VA - The Absolute Sound (2013) Compilation [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Cl
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243610.jpg" />
+  <img src="Z:/picture/004/save_picture_243610.jpg" />
 </div>
 
 
@@ -468,7 +697,7 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0|192/24|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243585.jpg" />
+  <img src="Z:/picture/004/save_picture_243585.jpg" />
 </div>
 
 
@@ -497,7 +726,7 @@ Blazon Stone - Studio Albums (7 releases) (2013-2021) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243402.jpg" />
+  <img src="Z:/picture/005/save_picture_243402.jpg" />
 </div>
 
 
@@ -510,235 +739,6 @@ Blazon Stone - шведская хэви-метал/пауэр-метал гру
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627110   (243370) от 17.04.2023
-
-Karel Zich - The Best Of Karel Zich (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk Rock, Soft Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243370.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Watching Your TV (Na Prvním Programu)
-A2 With Her Glasses On (Měla Na Očích Brýle)
-A3 You Taste Of The Meadow (Máš Chuť Majoránky)
-A4 Kilimanjaro (Kilimanžáro)(   Читать дальше...   )Жанр: Folk Rock, Soft Rock, Rock & RollПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A421E812EBF042767196AF5C4BAD1D13E7767FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633294   (243325) от 15.05.2023
-
-StormWarrior - Studio Albums (6 releases) (2002-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243325.jpg" />
-</div>
-
-
-###  Подробнее
-
-StormWarrior — пауэр-метал-группа из Германии, основанная в 1998 году вокалистом и гитаристом Ларсом Рамке и барабанщиком Андре Шуманном, к которым позднее присоединились гитарист Скотт Болтер и бас-гитарист Тим Зайнет.2002 - Stormwarrior
-2004 - Northern Rage
-2008 - Heading Northe
-2011 - Heathen WarriorЖанр: Power/Speed MetalПродолжительность: 05:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FA93F21C7CABF936F40DA99D146619844104F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627034   (243295) от 17.04.2023
-
-Woodkid - The Golden Age (2013) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Golden Age
-02. Run Boy Run
-03. The Great Escape
-04. Boat Song(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88BCBDF1BDCA787069819A2385B14439366D9C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539354   (243251) от 27.03.2022
-
-Rolling Stones - Steel Wheels (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243251.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sad Sad Sad
-A2 Mixed Emotions
-A3 Terrifying
-A4 Hold On To Your Hat(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D680485C374BF47113F110DBA13F16E43D63A5F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623884   (243215) от 03.04.2023
-
-Rainbow - Down To Earth (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF84881BE5C299EBD6ED99465AB5C841ED24A179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539789   (243174) от 27.03.2022
-
-The Rolling Stones - Tattoo You (1981) Series: Nice Price, 1987 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243174.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Start Me Up
-A2 Hang Fire
-A3 Slave
-A4 Little T & A(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16E4AD61C6AD3EEEFF5F7BF3E6204BD4DD851EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627156   (243080) от 18.04.2023
-
-Taboo - Ten Hundred Thousand (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243080.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tabu 1:53
-A2 Demand 4:58
-A3 Sexy Girl (LP Version) 4:57
-A4 Moving In The Midnight 5:50(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:100367999221F87BB153636235C47021470FC9AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623196   (243057) от 01.04.2023
-
-Space - Magic Fly (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Ambient, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243057.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1  Пристегните Ремни 5:59
-A2  Баллада 2:17
-A3  Танго В Космосе 4:28
-A4  Наваждение 3:32(   Читать дальше...   )Жанр: Ambient, DiscoПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9514D5598BBA53B05794638FFB68692CA58A6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

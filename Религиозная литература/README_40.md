@@ -1,3 +1,83 @@
+###  Публикация: 669147   (720095) от 17.06.2013
+
+Старчество [1997 (Репринт 1910)] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мысли Святых Отцов о необходимости и пользе старческого руководства в духовной жизни. По творениям преподобного Германа Зосимовского.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9DC498C00A7FEE58D9A318B7E2C254C38CA9671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 669491   (719864) от 17.06.2013
+
+Преподобный Макарий Египетский | Духовные беседы [1994] (Репринт 1904) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_719864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Макарий родился около 300 года в Нижнем Египте в селении Птинапор. В раннем возрасте по желанию родителей вступил в брак, но рано овдовел. После смерти жены Макарий углубился в изучение Священного Писания. Похоронив родителей Макарий удалился в ближайшую к селению пустыню и стал послушником при проживавшем там старце-отшельнике. Проезжавший через Птинапор (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA3A80ED470A84DF72DB56A8D48D2DA30D0F6B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023936   (719820) от 07.06.2016
+
+Г.Е. Бесстремянная | Христианство и Библия в Японии [2 книги] (2006) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_719820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследование посвящено проникновению христианства в Японию и переводам Библии на японский язык.
+В первой части работы рассказывается о миссионерской деятельности и истории переводов римо-католической церкви, протестантских церквей и Русской Духовной Миссии в Японии в XVI —XX веках.
+Прослеживается история возникновения каждого из православных богослужебных текстов (   Читать дальше...   )Жанр: МонографияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781FF60666435F37DE1E61DE8C1567368039F55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129811   (718699) от 30.04.2017
 
 прот. Александр Милеант (ред.) | На пороге жизни и смерти (1997) [PDF, DJVU]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718699.jpg" />
+  <img src="Z:/picture/008/save_picture_718699.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718698.jpg" />
+  <img src="Z:/picture/008/save_picture_718698.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718694.jpg" />
+  <img src="Z:/picture/008/save_picture_718694.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718530.jpg" />
+  <img src="Z:/picture/008/save_picture_718530.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717747.jpg" />
+  <img src="Z:/picture/008/save_picture_717747.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717669.jpg" />
+  <img src="Z:/picture/008/save_picture_717669.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717666.jpg" />
+  <img src="Z:/picture/008/save_picture_717666.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717656.jpg" />
+  <img src="Z:/picture/008/save_picture_717656.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717485.jpg" />
+  <img src="Z:/picture/008/save_picture_717485.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716888.jpg" />
+  <img src="Z:/picture/008/save_picture_716888.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716885.jpg" />
+  <img src="Z:/picture/008/save_picture_716885.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716792.jpg" />
+  <img src="Z:/picture/008/save_picture_716792.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716629.jpg" />
+  <img src="Z:/picture/008/save_picture_716629.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715853.jpg" />
+  <img src="Z:/picture/008/save_picture_715853.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714422.jpg" />
+  <img src="Z:/picture/008/save_picture_714422.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714324.jpg" />
+  <img src="Z:/picture/008/save_picture_714324.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714322.jpg" />
+  <img src="Z:/picture/008/save_picture_714322.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714321.jpg" />
+  <img src="Z:/picture/008/save_picture_714321.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714319.jpg" />
+  <img src="Z:/picture/008/save_picture_714319.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714256.jpg" />
+  <img src="Z:/picture/008/save_picture_714256.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714255.jpg" />
+  <img src="Z:/picture/008/save_picture_714255.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714254.jpg" />
+  <img src="Z:/picture/008/save_picture_714254.jpg" />
 </div>
 
 
@@ -584,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714250.jpg" />
+  <img src="Z:/picture/008/save_picture_714250.jpg" />
 </div>
 
 
@@ -595,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2D171A69C9082F1D2F4E1937F2049B8687CBA50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024684   (714249) от 10.06.2016
-
-Архимандрит Тихон (Агриков) | Матерь Света [2 книги] (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Схиархимандрит Пантелеимон (Агриков) не искал славы. Он долгие годы скитался, жил в полной безвестности. Преподавать ему не давали, служить тоже. Но слава к нему пришла. Более полутора тысяч человек участвовали в погребении отца Пантелеимона. Свое последнее пристанище на земле он нашел за алтарем храма Благовещения Пресвятой Богородицы в селе Тайнинском под Москвой, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7DA1005372100E5E37A4DD248F24529F25FD4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024676   (714248) от 10.06.2016
-
-Монах Симеон Афонский | Птицы небесные или странствия души в объятиях Бога (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714248.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первой части книги повествуется об удивительной истории жизни самого автора, о трудных путях поиска Бога в различные периоды жизни нашей страны и о становлении в монашеской жизни под руководством выдающегося старца и духовника архимандрита Кирилла (Павлова). Это повествование служит духовным стержнем нелегкого процесса преображения души - начала молитвенной жизни (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467E9B3D766BF75796E6045CDA9B2F716321DB69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024739   (714243) от 10.06.2016
-
-Дмитрий Гришин | Сергей и Елизавета (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга историка Дмитрия Борисовича Гришина посвящена жизненному пути Великого князя Сергея Александровича, видного государственного деятеля России, и его супруги, святой Великой княгини Елизаветы Федоровны. На основе огромного документального материала в ней впервые столь правдиво, ярко и всесторонне представлена сложная, полная драматизма судьба Великого князя Сергея. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FAC5947123077ACA44158FA3EAB1ABBC7527667
 ```
 
 https://mybot314.ru/tekegram_catalog/

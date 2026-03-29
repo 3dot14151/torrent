@@ -1,3 +1,107 @@
+###  Публикация: 1763724   (8333) от 12.08.2025
+
+RAID: World War II (2017) [Ru/Multi] (25.02/dlc) Repack Let'sРlay [Special Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8333.jpg" />
+</div>
+
+
+###  Подробнее
+
+RAID: World War II - это захватывающий кооперативный шутер для четырех игроков, отправляющий вас в Европу времен Второй мировой войны. Только вы с друзьями сможете остановить безжалостный натиск нацистского зверя. Четверо военнопленных - Стерлинг, Ривит, Курган и Вольфганг - получили свободу благодаря «миссис Уайт», тайному агенту британской разведки: ей нужны бойцы, (   Читать дальше...   )Тип издания: RepackРазработчик: Lion game LionЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF78B7D35C2C91C41DBC0C9BEA0998F8E5DAD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811869   (8294) от 12.08.2025
+
+Deadzone: Rogue (2025) [Ru/Multi] (1.0 Build 19557379) Scene Rune
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deadzone: Rogue - это roguelite-шутер от первого лица, действие которого разворачивается в космосе. Прорывайтесь сквозь орды враждебных машин, комбинируйте мощные улучшения и элементы, чтобы создать свой билд, и становитесь сильнее с каждым забегом - в одиночку или в кооперативе. Вы просыпаетесь на борту ISS-X, не помня, кто вы. Там легион бродячих машин, и они быстро (   Читать дальше...   )Тип издания: SceneРазработчик: Prophecy GamesЖанр: ЭкшеныЯзык озвучки: Английский, Японский, Китайский (традиционный, упрощенный)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63C92ED27821DC4B166152B1E968642BA5C64764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812124   (8176) от 13.08.2025
+
+Abyssus (2025) [Ru/Multi] (1.0) Scene Rune
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе с друзьями окунитесь в стремительный многопользовательский шутер Abyssus. Сражайтесь на великолепных, созданных вручную уровнях в этом приключении в жанре «упрощенного рогалика», которое проверит ваши тактические навыки на прочность. Используйте мощное оружие, питаемое силой глубин, и оснастите его древними технологиями, чтобы получить преимущество над врагами. (   Читать дальше...   )Тип издания: SceneРазработчик: DoubleMoose GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47545901E9F8AF8FCCF2493DCC897A2E04554E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812075   (8173) от 13.08.2025
+
+Call of Duty: Modern Warfare II (2) (2022) [Ru/Multi] (9.7/9.40) Repack FitGirl
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8173.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Duty Modern Warfare 2 (2022) - шутер от первого лица, представляющий собой новую главу в одноименной франшизе. Представлен совершенно новый сюжет и огромное количество новых механик. Улучшен искусственный интеллект в одиночном приключении, полностью обновлена физика воды и механика плавания, переработано управление транспортными средствами и многое другое.Тип издания: RepackРазработчик: Infinity Ward, Raven Software, Beenox, Treyarch, High Moon Studios, Sledgehammer Games, Activision Shanghai, Demonware, Toys for BobЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7B270688C4DBF718AD0268BCE1D4A3E523B681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812115   (8156) от 13.08.2025
 
 Abyssus (2025) [Ru/Multi] (1.0) Repack seleZen
@@ -6,7 +110,7 @@ Abyssus (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8156.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Abyssus (2025) [Ru/Multi] (1.0.1.50519/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7943.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4.23098619) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7827.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Project Downfall (2022) [Ru/Multi] (1.0.6.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7826.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Impaler Gold (2022) [Ru/Multi] (1.1.653) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7799.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7784.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Call of Duty Modern Warfare III (2023) [Ru/En] (10.4) Repack Decepticon [Campaig
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7778.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Wizordum (2023) [En] (1.0.09.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7608.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2 Update 1 Build 2708229) Repac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7567.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Call of Duty Modern Warfare III (2023) [Ru/Multi] (10.4/10.24) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7375.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7362.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ RoboCop: Rogue City - Unfinished Business (2025) [Ru/Multi] (HotFix 3/dlc) Licen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7162.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Blood West (2023) [Ru/Multi] (4.5.1 rc1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7158.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Ikarus Parkour (2025) [Ru/Multi] (2.83) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6962.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6726.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Wolfenstein: The Old Blood (2015) [Ru/En] (1.0.0.0) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6704.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (6.5.0.1331/dlc) Let'sРlay Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6702.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Beyond Citadel (2025) [En] (0.99b) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6485.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (build 19692871) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6332.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Ghostrunner (2020) [Ru/Multi] (42507.446/dlc) Repack Wanterlude [Complete Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6164.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Dying Light (2016) [Ru/En] (1.53.0/dlc) Repack Wanterlude [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6046.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (0.5) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6037.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (0.5) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01AEDA88302384F2B03574EBEC5A5EEC00F2BDD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814626   (6030) от 25.08.2025
-
-S.T.A.L.K.E.R.: Shadow of Chornobyl (2025) [Ru/Multi] (1.2) Repack dixen18 [Enhanced Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зона - бывшая территория отчуждения вокруг Чернобыльской атомной электростанции, полная непостижимых чудес и жутких угроз. Самое опасное место на всей Земле, ставшее еще загадочнее в результате таинственной катастрофы в 2006 году. Аномалии с драгоценными артефактами, голодные мутанты и охотники на чужое имущество наполнили эти земли вместе со сталкерами, которые (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC95E02E7177D31CE79BA61FF2110813DB75851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814993   (5628) от 28.08.2025
-
-Enemy Front (2014) [Ru/Multi] (1.0/dlc) Repack Let'sРlay
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enemy Front - это шутер от первого лица, действие которого разворачивается во время Второй мировой войны, где игроки берут на себя роль военного корреспондента Роберта Хокинса, а затем вступают в ряды польского сопротивления для борьбы против нацистов. Игра предлагает историю о диверсионных операциях и партизанской борьбе в контексте реальных исторических событий, (   Читать дальше...   )Тип издания: RepackРазработчик: CI GamesЖанр: ЭкшеныЯзык озвучки: Английский, Французский, ПольскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38DDD4563F211074CEDEC2EE59898F281E0CCE7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771781   (5591) от 28.08.2025
-
-Echo Point Nova (2024) [Ru/Multi] (2.1) Repack FitGirl [Digital Deluxe Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5591.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателей Severed Steel! Сыграйте в шутер от первого лица и погрузитесь в необъятный открытый мир. Вы можете поиграть сами или в компании из 4 друзей! Вы - космический исследователь, и ваш корабль потерпел крушение на загадочной планете. На ней уже орудует безжалостная организация наемников, запустившая свои лапы в древнюю технологию для создания опустошительного (   Читать дальше...   )Тип издания: RepackРазработчик: Greylock StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC367710F39671413746ECB727645F46EE57D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815169   (5553) от 28.08.2025
-
-Echo Point Nova (2024) [Ru/Multi] (2.11) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5553.jpg" />
-</div>
-
-
-###  Подробнее
-
-От создателей Severed Steel! Сыграйте в шутер от первого лица и погрузитесь в необъятный открытый мир. Вы можете поиграть сами или в компании из 4 друзей! Вы - космический исследователь, и ваш корабль потерпел крушение на загадочной планете. На ней уже орудует безжалостная организация наемников, запустившая свои лапы в древнюю технологию для создания опустошительного (   Читать дальше...   )Тип издания: RepackРазработчик: Greylock StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F4B7FD3423AE76974F31C62F8DA1DAC5044E7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

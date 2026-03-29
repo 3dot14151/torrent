@@ -1,3 +1,119 @@
+###  Публикация: 1551264   (590246) от 15.05.2022
+
+Fausto Ferraiuolo Trio - Il Dono (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Island [4:52]
+02. Three [4:19]
+03. Rue de la Vega [5:26]
+04. O Impro Mio [4:59](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD29476D132214685030599BA0E30FB9CC7FD01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551267   (590245) от 15.05.2022
+
+Luigi Martinale French Trio - Mercj (2019) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pop Imagination [5:28]
+02. It Ain't Necessarily So [5:04]
+03. Puccini [3:09]
+04. Sundial Time [6:00](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84FC23B6582944C91B4B4DA32162FB5206644CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551324   (590239) от 15.05.2022
+
+Kammerflimmer Kollektief - Teufelskamin (2011) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Dark Jazz, Experimental Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coricidin Boogie (4:31)
+02. Never Collapse, Always Dazzle ! (3:56)
+03. Teufelskamin Jam #1 (10:22)
+04. Shangrila (1:43)(   Читать дальше...   )Производство: Staubgold – staubgold digital 16Жанр: Nu Jazz, Dark Jazz, Experimental RockПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF0633CDB0A46D970360CC73A5E451912B4E66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551323   (590227) от 15.05.2022
+
+Kammerflimmer Kollektief - Désarroi (Desarroi) (2015) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Dark Jazz, Experimental Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Désarroi #1: Mayhem! (3:52)
+02. Désarroi #2: grundstürzend (5:33)
+03. Free Form Freak-Out (6:06)
+04. Evol Jam (Edit) (4:55)(   Читать дальше...   )Производство: Staubgold – staubgold 136Жанр: Nu Jazz, Dark Jazz, Experimental RockПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723975DA8F7D1A66FF56D5DC27C68534FB92F4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917029   (590001) от 10.07.2015
 
 Nils Gessinger - Pass-ion (2011) [FLAC|tracks+.cue]<Jazz, Funk, Fusion>
@@ -6,7 +122,7 @@ Nils Gessinger - Pass-ion (2011) [FLAC|tracks+.cue]<Jazz, Funk, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590001.jpg" />
+  <img src="Z:/picture/008/save_picture_590001.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Woody Herman - Four Classic Albums (1958 - 1962) 2CD, 2015, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589781.jpg" />
+  <img src="Z:/picture/008/save_picture_589781.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Melanie Durrant - Anticipation (2015) [FLAC|tracks+.cue]<Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589609.jpg" />
+  <img src="Z:/picture/008/save_picture_589609.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Charenee Wade - Offering: The Music of Gil Scott-Heron & Brian Jackson (2015) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589568.jpg" />
+  <img src="Z:/picture/008/save_picture_589568.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Charnett Moffett - Internet (2006) Piadrum Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589433.jpg" />
+  <img src="Z:/picture/008/save_picture_589433.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Charnett Moffett - For The Love Of Peace (2004) Piadrum Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589431.jpg" />
+  <img src="Z:/picture/008/save_picture_589431.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Charnett Moffett - Beauty Within (1989) Blue Note Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589398.jpg" />
+  <img src="Z:/picture/008/save_picture_589398.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Buddy De Franco (DeFranco) - The Complete Verve Recordings Of The Buddy De Franc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589001.jpg" />
+  <img src="Z:/picture/008/save_picture_589001.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Oscar Peterson - The Classic Verve Albums Collection (1957 - 1962) 4CD, 2018, En
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588524.jpg" />
+  <img src="Z:/picture/008/save_picture_588524.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Allan Holdsworth - Дискография 21 альбом (1976-2009) 23 CD [Wav
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588296.jpg" />
+  <img src="Z:/picture/008/save_picture_588296.jpg" />
 </div>
 
 
@@ -299,7 +415,7 @@ Eric Seva - Nomade Sonore (2015) Gaya Music Production [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588198.jpg" />
+  <img src="Z:/picture/008/save_picture_588198.jpg" />
 </div>
 
 
@@ -328,7 +444,7 @@ Arild Andersen, Clive Bell, Mark Wastell - Tales Of Hackney (2019) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588195.jpg" />
+  <img src="Z:/picture/008/save_picture_588195.jpg" />
 </div>
 
 
@@ -357,7 +473,7 @@ Cotonete - Super-vilains (2019) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588193.jpg" />
+  <img src="Z:/picture/008/save_picture_588193.jpg" />
 </div>
 
 
@@ -386,7 +502,7 @@ Harold Land - Take Aim (1960) /2012, Blue Note/[FLAC|tracks+.cue]<Jazz, Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588077.jpg" />
+  <img src="Z:/picture/008/save_picture_588077.jpg" />
 </div>
 
 
@@ -415,7 +531,7 @@ Bobby Hutcherson - The View From The Inside (1976) /2013, Blue Note/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588076.jpg" />
+  <img src="Z:/picture/008/save_picture_588076.jpg" />
 </div>
 
 
@@ -444,7 +560,7 @@ Maysa - Back 2 Love (2015) [FLAC|tracks|WEB-DL]<Smooth Jazz, R&B, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587996.jpg" />
+  <img src="Z:/picture/008/save_picture_587996.jpg" />
 </div>
 
 
@@ -473,7 +589,7 @@ Scott Henderson · Gary Willis & Tribal Tech - Primal Tracks (1994) 2008 Compila
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587524.jpg" />
+  <img src="Z:/picture/008/save_picture_587524.jpg" />
 </div>
 
 
@@ -502,7 +618,7 @@ Chris Standring - Soul Express (2006) [FLAC|Lossless|image + .cue] <Crossover Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587467.jpg" />
+  <img src="Z:/picture/008/save_picture_587467.jpg" />
 </div>
 
 
@@ -531,7 +647,7 @@ Andrew Hill - Andrew!!! (1964) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587030.jpg" />
+  <img src="Z:/picture/008/save_picture_587030.jpg" />
 </div>
 
 
@@ -560,7 +676,7 @@ Charles Earland - Leaving This Planet (1973) /2014, Universal/[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587029.jpg" />
+  <img src="Z:/picture/008/save_picture_587029.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ Zoot Sims - Tenorly (1950/1953) /1993, Disques Vogue/[FLAC|tracks+.cue]<Jazz, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586983.jpg" />
+  <img src="Z:/picture/008/save_picture_586983.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ Rebecca Kilgore - Make Someone Happy (2005) Audiophile Records [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586813.jpg" />
+  <img src="Z:/picture/008/save_picture_586813.jpg" />
 </div>
 
 
@@ -632,122 +748,6 @@ Rebecca Kilgore - Make Someone Happy (2005) Audiophile Records [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D003F3AC7741B944CF595E189959784EDA6192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552520   (586750) от 21.05.2022
-
-Ahmad Jamal - The Complete Ahmad Jamal Trio Argo Sessions (1956 - 1962) 9CD, 2010, Mosaic Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586750.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Volga Boatman [3:50]
-02. On Green Dolphin Street [3:18]
-03. How About You [5:27](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 09:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252657B68847070B27B78F3CF7646A972939618B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040504   (586577) от 05.08.2016
-
-Gil Evans - Svengali (1973) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Modern Big Band, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Thoroughbred [06:38]
- 02.Blues in Orbit [10:18]
- 03.Eleven [01:45]
- 04.Cry of Hunger [10:23](   Читать дальше...   )Жанр: Modern Big Band, Jazz FusionПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA61C7145D7555193BCDB250BB096A4B5E54630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040511   (586547) от 05.08.2016
-
-Dannie Richmond - Plays Charles Mingus (1980) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fables Of Fobous [13:22]
- 02.Good Bye Pork Pye [04:47]
- 03.Nostalgia In Times Square [04:49]
- 04.Noddin' Your Head Blues [05:10](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4AAC44C9798EB93D926D98357C7F5CA53D860B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040400   (586542) от 05.08.2016
-
-Mary Stallings - But Beautiful (2013) [FLAC|Lossless|tracks + .cue] <Straght-ahead Jazz, Jazz Standards>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dedicated to You
-02. Just A Gigolo
-03. Some Other Spring
-04. But Beautiful(   Читать дальше...   )Жанр: Straght-ahead Jazz, Jazz StandardsПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68DA6024583D44D1B7D357B3D73A719A30971136
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Babymetal - The Other One (2023) [FLAC|Lossless|WEB-DL|tracks] <J-Metal, Modern 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245073.jpg" />
+  <img src="Z:/picture/004/save_picture_245073.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Heterogeneous Andead - Chaotic Fragments (2022) [FLAC|Lossless|WEB-DL|tracks] <M
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240902.jpg" />
+  <img src="Z:/picture/004/save_picture_240902.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Anthem - Crimson & Jet Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239404.jpg" />
+  <img src="Z:/picture/005/save_picture_239404.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Anthem - Crimson & Jet Black (2023) Japanese Edition, 3xCD [WavPack|Lossless|ima
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233817.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Swing Of the Dead - 1 альбом (2013) [FLAC|Lossless] <Touhou, Vocal, Doujin
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229999.jpg" />
+  <img src="Z:/picture/005/save_picture_229999.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Analyze - — Endless Winter (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless]
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229944.jpg" />
+  <img src="Z:/picture/005/save_picture_229944.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mayhem and Melancholy - 1 альбом (2010) [FLAC|Lossless] <Touhou, Vocal, Do
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229918.jpg" />
+  <img src="Z:/picture/005/save_picture_229918.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ AniPix - 4 альбома (2008-2009) Touhou Vocal /Doujin/ [FLAC|Lossless] <J-P
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229894.jpg" />
+  <img src="Z:/picture/005/save_picture_229894.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Sound Bullet Hell - 1 альбом (2009) [FLAC|Lossless] <Touhou, Instrumental,
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229838.jpg" />
+  <img src="Z:/picture/005/save_picture_229838.jpg" />
 </div>
 
 
@@ -288,7 +288,7 @@ Take it Happy!! - 1 альбом (2011) [FLAC|Lossless] <Touhou, Vocal, Doujin O
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229815.jpg" />
+  <img src="Z:/picture/004/save_picture_229815.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ LUNATIC TOHO - 1 альбом (2013) [FLAC|Lossless] <Touhou, Vocal, Doujin Onga
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229774.jpg" />
+  <img src="Z:/picture/004/save_picture_229774.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ The Universal Mind Records - 3 альбома (2009) [FLAC|Lossless] <Touhou, In
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229751.jpg" />
+  <img src="Z:/picture/004/save_picture_229751.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ floater-io - 4 альбома (2010-2012) Touhou Instrumental /Doujin/ [FLAC|Los
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229652.jpg" />
+  <img src="Z:/picture/004/save_picture_229652.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Floating Cloud - 7 альбомов (2010-2013) Touhou Instrumental /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229551.jpg" />
+  <img src="Z:/picture/004/save_picture_229551.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ flap+frog - 13 альбомов (2008-2013) Touhou Instrumental /Doujin/[FLAC|Lo
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229390.jpg" />
+  <img src="Z:/picture/004/save_picture_229390.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Yura Hatsuki × Seraph — Princess of the Blue Flame (2014) /Doujin/ <Gothic Ro
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229254.jpg" />
+  <img src="Z:/picture/004/save_picture_229254.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Further Ahead Of Warp - 5 альбомов (2012-2014) Touhou Vocal /Doujin/ [MP
 >>Doujin Music
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228556.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Tsugumi - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin On
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228049.jpg" />
+  <img src="Z:/picture/005/save_picture_228049.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Stygian Riverside - 6 альбомов (2008-2011) [FLAC|Lossless] <Touhou, Voca
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227453.jpg" />
+  <img src="Z:/picture/005/save_picture_227453.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Galneryus - Under The Force Of Courage (2015) [MP3|320 кб/с] <Neo-Classical M
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227414.jpg" />
+  <img src="Z:/picture/005/save_picture_227414.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ AncientChronicle - 7 альбомов (2008-2010) Touhou Instrumental /Doujin/ [
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227312.jpg" />
+  <img src="Z:/picture/005/save_picture_227312.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ EGOIST (chelly) - 1 альбом, 3 сингла (2011-2012) [MP3|320 кб/с]<J
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222708.jpg" />
+  <img src="Z:/picture/005/save_picture_222708.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ EXILE - 18 альбомов, 41 сингл (2001-2012) [MP3|128-320 кб/с]<J-P
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222559.jpg" />
+  <img src="Z:/picture/005/save_picture_222559.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Dame AGE inc. — Touhou Kouma Ginyuuroku (2010) Touhou Instrumental /Doujin/ [F
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222444.jpg" />
+  <img src="Z:/picture/005/save_picture_222444.jpg" />
 </div>
 
 
@@ -753,7 +753,7 @@ D.N.A. Softwares - 2 альбома (2009-2010) Touhou Instrumental /Doujin/ [FL
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222013.jpg" />
+  <img src="Z:/picture/005/save_picture_222013.jpg" />
 </div>
 
 
@@ -781,7 +781,7 @@ Sun Flower Field - 4 альбомa (2009-2011) [FLAC|Lossless] <Touhou, Vocal, I
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221978.jpg" />
+  <img src="Z:/picture/005/save_picture_221978.jpg" />
 </div>
 
 

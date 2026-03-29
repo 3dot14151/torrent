@@ -1,3 +1,61 @@
+###  Публикация: 1296927   (175645) от 09.10.2023
+
+Shakra - 19 Albums (1992-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стремительная карьера швейцарского хард-рокового квинтета из Берна началась в 1997 году. Группу образовали пятеро молодых музыкантов: Роджер Таннер (ударные), Томас Мастер (гитара), Оли Линдер (бас), Пит Видмар (вокал) и Том Блунье (гитара) (последние двое играли раньше в "Ruckus"). Практически сразу после своего основания группа записала одно демо и через (   Читать дальше...   )--------------------------
+
+01. The Answer (4:38)
+02. Hang on Ruby (3:25)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' Heavy |Продолжительность: 16:32:03 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CF36563AF7F36E6196C00F6095A58AB391D5DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595736   (174622) от 07.12.2022
+
+Classless Act - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All That We Are (Acoustic) [00:03:55]
+02. Time To Bleed (Acoustic) [00:03:06]
+03. This Is For You (Acoustic) [00:03:25]
+04. Classless Act (Acoustic) [00:03:17]Жанр: Hard RockПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2390AACF29F0B59A3155CBC5347CDFFB76F62C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596144   (174065) от 08.12.2022
 
 Newman - Ignition (2020) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
@@ -6,7 +64,7 @@ Newman - Ignition (2020) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174065.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Shocking Blue - 18 albums, 1 Box-set, 43CD (1967-2017) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173734.jpg" />
+  <img src="Z:/picture/004/save_picture_173734.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Fuzzy Grass - The Revenge of the Blue Nut (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173383.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Kiss - Destroyer (1976) 4CD (45th Anniversary Deluxe Ed.) (Remastered-2021) [FLA
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173346.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ The Who - Live At Leeds (1970) Deluxe Edition, 2014, Geffen [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172338.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Rival Sons - Lightbringer (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171924.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sixty Nine Crash - Songs Of Love & Fury (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171399.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Alex Destruction - A Tribute To Guns N' Roses Greatest (2023) [FLAC|Lossless|WEB
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171393.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Shakra - High Noon (2016) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170747.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ IT'sALIE - Emosphere (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170525.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Sabu - Banshee (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170500.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Motley Crue - Shout At The Devil (40th Anniversary) (1983) Remastered, 2023, BMG
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170284.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Fuzzy Duck - Fuzzy Duck (1971) Reissue, 1993, Repertoire Records [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170000.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Silverhead | Detective - 4 albums (1972-2016) [FLAC|Lossless|image + .cue] <Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169911.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Journey - Live in Concert at Lollapalooza (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169868.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Hannon Tramp - Hannon Tramp (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Glam
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169836.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - No Ballads: Hard Rock (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169364.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ JPS Project - Crossing Over (1989) Reissue, 2021, 20th Century Music [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169225.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ John Norum - Gone To Stay (2022) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169163.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Deep Purple - Extras: The Infinite B-Sides and Bonus Songs (Live) (2022) [FLAC 2
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168814.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Bodkin - Bodkin (1972) 3CD [FLAC|Lossless|image + .cue | tracks+.cue] <Progressi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168629.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Cats In Space - Diamonds - The Best Of Cats In Space (2021) [FLAC|Lossless|WEB-D
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168616.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Killakoi - Beta (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168444.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Me and the Rest - Bulletproof (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168427.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Me and the Rest - Bulletproof (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF95C5FAA7E49145BB1894CAC5661B68141F9FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596656   (168189) от 12.12.2022
-
-Skid Row - The Gang's All Here (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell Or High Water (4:41)
-02. The Gang's All Here (3:38)
-03. Not Dead Yet (2:49)
-04. Time Bomb (4:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BF243ED27D77AC88CC3F53F82CE02CB10367C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672553   (168121) от 29.10.2023
-
-Bonafide - Are You Listening? (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Blues-Rock, Heavy Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Listening? [00:04:17]
-02. Hero To Zero [00:03:34]
-03. Salvation [00:05:28]
-04. Who's The Boss [00:02:11](   Читать дальше...   )Жанр: Hard-Rock, Blues-Rock, Heavy Rock'n'RollПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0D365259313646F3F10F1F2E603F8E3BC54611
 ```
 
 https://mybot314.ru/tekegram_catalog/

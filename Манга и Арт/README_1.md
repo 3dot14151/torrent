@@ -6,7 +6,7 @@ Lucy ~The Eternity She Wished For~ (2016) [En/Multi] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846422.jpg" />
+  <img src="Z:/picture/008/save_picture_846422.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Kodoku ni Kiku Yuri / Одинокая лилия (2011) [Ru] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842852.jpg" />
+  <img src="Z:/picture/008/save_picture_842852.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Sunrider: First Arrival & Mask of Arcadius / Санрайдер: Первое п
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842727.jpg" />
+  <img src="Z:/picture/008/save_picture_842727.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Underdog | Under dog | Сумеречный пёс (2008-2009) [1-17 гл.] [Р�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841948.jpg" />
+  <img src="Z:/picture/008/save_picture_841948.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Highschool Romance (2015) [En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839441.jpg" />
+  <img src="Z:/picture/008/save_picture_839441.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Sunrider: Liberation Day / Санрайдер: День освобождения
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835943.jpg" />
+  <img src="Z:/picture/008/save_picture_835943.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Angel Beats! - Heaven's Door / Ангельские ритмы! Врата ра�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834386.jpg" />
+  <img src="Z:/picture/008/save_picture_834386.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816406.jpg" />
+  <img src="Z:/picture/008/save_picture_816406.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Solo Leveling | Поднятие уровня в одиночку (том 18-20)
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809379.jpg" />
+  <img src="Z:/picture/008/save_picture_809379.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ The Zombie Knight | Dark Steel Soldier | Рыцарь-зомби (Солдат �
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799981.jpg" />
+  <img src="Z:/picture/008/save_picture_799981.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Kimetsu no Yaiba | Demon Slayer | Клинок, рассекающий демо�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790139.jpg" />
+  <img src="Z:/picture/008/save_picture_790139.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Death Marching to the Parallel World Rhapsody | Марш Смерти в рап�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783875.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Overgeared | Saenal Park | Во всеоружии (2015 и далее) [51 то
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780964.jpg" />
+  <img src="Z:/picture/008/save_picture_780964.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Overlord | Владыка (2014) [9 томов (34 глав + SP)] [Манга] 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780464.jpg" />
+  <img src="Z:/picture/008/save_picture_780464.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Gekkou | Moonlight | Лунный свет (2010) [1 том] [Ранобэ] [Р�
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779212.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ NEKOPARA Vol.1 (2014) [Ru/Multi] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777771.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Cartagra ~Affliction of the Soul~ / Cartagra ~Tsuki kurui no Yamai~ (2005) [En] 
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777506.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Kara no Shoujo / Девушка в скорлупе (2008) [Ru/En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777420.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Tsukihime Plus+Disk (2001) [Ru/En/Jp] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777106.jpg" />
+  <img src="Z:/picture/008/save_picture_777106.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Sakura Beach (2015) [Ru/En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777067.jpg" />
+  <img src="Z:/picture/008/save_picture_777067.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Tsukihime (2000) [Ru/En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777063.jpg" />
+  <img src="Z:/picture/008/save_picture_777063.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Forgotten, Not Lost (2016) [Ru/En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776721.jpg" />
+  <img src="Z:/picture/008/save_picture_776721.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Those Without Names / Без имён (2016) [Ru/En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776693.jpg" />
+  <img src="Z:/picture/008/save_picture_776693.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Cupid / Купидон (2015) [Ru/En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776692.jpg" />
+  <img src="Z:/picture/008/save_picture_776692.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775954.jpg" />
+  <img src="Z:/picture/008/save_picture_775954.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Royal Trap / Королевская Западня (2013) [Ru/En] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775948.jpg" />
+  <img src="Z:/picture/008/save_picture_775948.jpg" />
 </div>
 
 

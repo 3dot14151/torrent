@@ -6,7 +6,7 @@ WinCatalog 2017 17.05 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793369.jpg" />
+  <img src="Z:/picture/008/save_picture_793369.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GPU-Z 2.32.0 RePack by druc [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793355.jpg" />
+  <img src="Z:/picture/008/save_picture_793355.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793351.jpg" />
+  <img src="Z:/picture/008/save_picture_793351.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MKVToolNix 47.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793349.jpg" />
+  <img src="Z:/picture/008/save_picture_793349.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Topaz DeNoise AI 2.2.1 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793347.jpg" />
+  <img src="Z:/picture/008/save_picture_793347.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Driver Booster Pro 7.5.0.742 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793337.jpg" />
+  <img src="Z:/picture/008/save_picture_793337.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Paint.NET 4.2.12 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793336.jpg" />
+  <img src="Z:/picture/008/save_picture_793336.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SideFx Houdini FX 15.0.459 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793333.jpg" />
+  <img src="Z:/picture/008/save_picture_793333.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Google Chrome 50.0.2661.94 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793323.jpg" />
+  <img src="Z:/picture/008/save_picture_793323.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wise Disk Cleaner 9.46.662 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793311.jpg" />
+  <img src="Z:/picture/008/save_picture_793311.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793293.jpg" />
+  <img src="Z:/picture/008/save_picture_793293.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ K-Lite Codec Pack 15.5.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793283.jpg" />
+  <img src="Z:/picture/008/save_picture_793283.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793278.jpg" />
+  <img src="Z:/picture/008/save_picture_793278.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Windows and Office ISO Download Tool 4.30 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793241.jpg" />
+  <img src="Z:/picture/008/save_picture_793241.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ oCam 382.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793239.jpg" />
+  <img src="Z:/picture/008/save_picture_793239.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Pixia 4.81a RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793236.jpg" />
+  <img src="Z:/picture/008/save_picture_793236.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793223.jpg" />
+  <img src="Z:/picture/008/save_picture_793223.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ CyberLink PhotoDirector 7 Ultra 7.0.7504.0 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793213.jpg" />
+  <img src="Z:/picture/008/save_picture_793213.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ KMS Tools Portable 01.05.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793200.jpg" />
+  <img src="Z:/picture/008/save_picture_793200.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Reallusion CrazyTalk Pipeline 8.03.1620.1 + Resource Pack [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793194.jpg" />
+  <img src="Z:/picture/008/save_picture_793194.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Scanitto Pro 3.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793187.jpg" />
+  <img src="Z:/picture/008/save_picture_793187.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793174.jpg" />
+  <img src="Z:/picture/008/save_picture_793174.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Telegram Desktop 1.0.29 + Portable [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793140.jpg" />
+  <img src="Z:/picture/008/save_picture_793140.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Directory Lister Pro 2.18.0.294 Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793138.jpg" />
+  <img src="Z:/picture/008/save_picture_793138.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Lunacy 0.95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793102.jpg" />
+  <img src="Z:/picture/008/save_picture_793102.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Rufus 2.13 (Build 1081) Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793101.jpg" />
+  <img src="Z:/picture/008/save_picture_793101.jpg" />
 </div>
 
 

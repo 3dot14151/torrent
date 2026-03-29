@@ -6,7 +6,7 @@ VA - Pop Nostalgia (Popular Songs From The Past Revisited) (2022) [AAC|~319 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736890.jpg" />
+  <img src="Z:/picture/008/save_picture_736890.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736881.jpg" />
+  <img src="Z:/picture/008/save_picture_736881.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736794.jpg" />
+  <img src="Z:/picture/008/save_picture_736794.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736664.jpg" />
+  <img src="Z:/picture/008/save_picture_736664.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736604.jpg" />
+  <img src="Z:/picture/008/save_picture_736604.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Sunrise Meditation, Vol. 03 (2020) [AAC|~315 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736450.jpg" />
+  <img src="Z:/picture/008/save_picture_736450.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ VA - WorldOrgaNic 2022 (2022) [AAC|~324 Kbps] <Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736449.jpg" />
+  <img src="Z:/picture/008/save_picture_736449.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ VA - Electronic Moon (The Chill Out Journey), Vol. 4 (2022) [AAC|~313 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736448.jpg" />
+  <img src="Z:/picture/008/save_picture_736448.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ VA - Electronic Moon (The Chill Out Journey), Vol. 3 (2022) [AAC|~322 Kbps] <Lou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736447.jpg" />
+  <img src="Z:/picture/008/save_picture_736447.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ VA - Sunrise Meditation, Vol. 07 (2021) [AAC|~330 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736446.jpg" />
+  <img src="Z:/picture/008/save_picture_736446.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ VA - 3xA Music The Best of 2021 (2022) [AAC|~335 Kbps] <Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736445.jpg" />
+  <img src="Z:/picture/008/save_picture_736445.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ VA - Sunrise Meditation, Vol. 01 (2020) [AAC|~314 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736444.jpg" />
+  <img src="Z:/picture/008/save_picture_736444.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - Sunrise Meditation, Vol. 09 (2021) [AAC|~322 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736442.jpg" />
+  <img src="Z:/picture/008/save_picture_736442.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ VA - Sunrise Meditation, Vol. 02 (2020) [AAC|~317 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736441.jpg" />
+  <img src="Z:/picture/008/save_picture_736441.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Sunrise Meditation, Vol. 08 (2021) [AAC|~315 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736440.jpg" />
+  <img src="Z:/picture/008/save_picture_736440.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ VA - Flowers of Chillout (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736438.jpg" />
+  <img src="Z:/picture/008/save_picture_736438.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ VA - Fireplace Chill, Vol. 8 (2022) [AAC|~324 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736436.jpg" />
+  <img src="Z:/picture/008/save_picture_736436.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ VA - Clinique The Best of 2021 (2022) [AAC|~331 Kbps] <Progressive House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736435.jpg" />
+  <img src="Z:/picture/008/save_picture_736435.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VA - Sunrise Meditation, Vol. 06 (2020) [AAC|~311 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736434.jpg" />
+  <img src="Z:/picture/008/save_picture_736434.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ VA - Sunrise Meditation, Vol. 05 (2020) [AAC|~327 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736432.jpg" />
+  <img src="Z:/picture/008/save_picture_736432.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ VA - Sunrise Meditation, Vol. 10 (2021) [AAC|~314 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736427.jpg" />
+  <img src="Z:/picture/008/save_picture_736427.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ VA - The Art Of Leisure (Nu Soul, Retro Pop and New Easy Wave) (2022) [AAC|~321 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736426.jpg" />
+  <img src="Z:/picture/008/save_picture_736426.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ VA - Sunrise Meditation, Vol. 11 (2022) [AAC|~316 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736414.jpg" />
+  <img src="Z:/picture/008/save_picture_736414.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736375.jpg" />
+  <img src="Z:/picture/008/save_picture_736375.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ VA - Downtempo Lounge & Chillwave, Vol. 4 (2021) [AAC|~314 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735433.jpg" />
+  <img src="Z:/picture/008/save_picture_735433.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ VA - Downtempo Lounge & Chillwave, Vol. 2 (2021) [AAC|~322 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735432.jpg" />
+  <img src="Z:/picture/008/save_picture_735432.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ BookReader 5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762956.jpg" />
+  <img src="Z:/picture/008/save_picture_762956.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Art Text 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762953.jpg" />
+  <img src="Z:/picture/008/save_picture_762953.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Paul van Dyk - Raveline Mix Sessions 021 (2010) [MP3|192 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762936.jpg" />
+  <img src="Z:/picture/008/save_picture_762936.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ CrystalDiskInfo 7.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762878.jpg" />
+  <img src="Z:/picture/008/save_picture_762878.jpg" />
 </div>
 
 
@@ -125,7 +125,7 @@ Download Master 6.16.1.1595 RePack (&Portable) by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762875.jpg" />
+  <img src="Z:/picture/008/save_picture_762875.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762874.jpg" />
+  <img src="Z:/picture/008/save_picture_762874.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762842.jpg" />
+  <img src="Z:/picture/008/save_picture_762842.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762837.jpg" />
+  <img src="Z:/picture/008/save_picture_762837.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762831.jpg" />
+  <img src="Z:/picture/008/save_picture_762831.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762826.jpg" />
+  <img src="Z:/picture/008/save_picture_762826.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Alaska - The Mesozoic Era (2010) [MP3|320 kbps]<Drum & Bass, Drumfunk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762820.jpg" />
+  <img src="Z:/picture/008/save_picture_762820.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ VA - Русская застольная 1 (2010) [MP3|256 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762809.jpg" />
+  <img src="Z:/picture/008/save_picture_762809.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Sunlounger feat. Zara Taylor - Found (2010) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762807.jpg" />
+  <img src="Z:/picture/008/save_picture_762807.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Hard Disk Sentinel Pro 5.20 Build 9372 Final RePack (& Portable) by KpoJIuK  [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762768.jpg" />
+  <img src="Z:/picture/008/save_picture_762768.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ IObit Driver Booster Pro 5.3.0.752 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762750.jpg" />
+  <img src="Z:/picture/008/save_picture_762750.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762745.jpg" />
+  <img src="Z:/picture/008/save_picture_762745.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762740.jpg" />
+  <img src="Z:/picture/008/save_picture_762740.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762724.jpg" />
+  <img src="Z:/picture/008/save_picture_762724.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - This Is The Best Ever Reggae Music (2010) 6CD Set  [MP3|~245 кб/с (V0)] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762721.jpg" />
+  <img src="Z:/picture/008/save_picture_762721.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762718.jpg" />
+  <img src="Z:/picture/008/save_picture_762718.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Air Explorer Pro 1.8.3 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762713.jpg" />
+  <img src="Z:/picture/008/save_picture_762713.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Boys Noize - Mayday (2016) [MP3|320 кб/с] <Electro, Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762711.jpg" />
+  <img src="Z:/picture/008/save_picture_762711.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762710.jpg" />
+  <img src="Z:/picture/008/save_picture_762710.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Platinum software v 1.0 (24.05.2010) v 1.0 [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762699.jpg" />
+  <img src="Z:/picture/008/save_picture_762699.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762694.jpg" />
+  <img src="Z:/picture/008/save_picture_762694.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762666.jpg" />
+  <img src="Z:/picture/008/save_picture_762666.jpg" />
 </div>
 
 

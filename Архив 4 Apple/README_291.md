@@ -1,3 +1,109 @@
+###  Публикация: 1537162   (668973) от 15.03.2022
+
+macOS 12 Monterey 12.3 (Installer) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668973.jpg" />
+</div>
+
+
+###  Подробнее
+
+macOS Monterey открывает новые возможности для общения, обмена данными и творчества. Пользуйтесь улучшенными функциями аудио и видео, такими как пространственное аудио и режим «Портрет». Легко справляйтесь с делами благодаря таким мощным инструментам, как фокусирование, быстрые заметки и группы вкладок в Safari. Переключайтесь между устройствами благодаря трансляции (   Читать дальше...   )Тип издания: InstallerРелиз состоялся: 14.03.2022Разработчик: © 2020 Apple, Inc.Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6644ACF266249B7EC491CF8DEEBC0FBE7885E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137136   (668951) от 25.05.2017
+
+Path Finder v7.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов, управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.05.2017Разработчик: CocoatechПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1FE6E02B75B8669E2B49F0329FB340D99C50AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291529   (668797) от 25.03.2019
+
+Movist 2.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
+
+Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.12.2018Разработчик: MovistПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979F6D87D441DEF4D7D01AEFBA06FD040D625391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537250   (668721) от 15.03.2022
+
+Adobe Photoshop for Mac 2022 v23.2.2 U2B [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop - новая, следующая за CC 2020 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 1990-2022 AdobeПоддерживаемая ОС: macOS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A552BB0AC817D261CE7D62D8656A4E62FDD66B31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537330   (668720) от 15.03.2022
 
 Microsoft Office 2021 for Mac LTSC v16.59 VL [Multi/Ru]
@@ -6,7 +112,7 @@ Microsoft Office 2021 for Mac LTSC v16.59 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668720.jpg" />
+  <img src="Z:/picture/008/save_picture_668720.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ iMazing 2.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668410.jpg" />
+  <img src="Z:/picture/008/save_picture_668410.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ DjVu Reader Pro 2.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668408.jpg" />
+  <img src="Z:/picture/008/save_picture_668408.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ SketchUp Pro 2019 v19.0.6840 [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668404.jpg" />
+  <img src="Z:/picture/008/save_picture_668404.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ Flume Pro 2.8.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668174.jpg" />
+  <img src="Z:/picture/008/save_picture_668174.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ Do Your Data Recovery Professional 6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668101.jpg" />
+  <img src="Z:/picture/008/save_picture_668101.jpg" />
 </div>
 
 
@@ -171,7 +277,7 @@ Lingon X v5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667989.jpg" />
+  <img src="Z:/picture/008/save_picture_667989.jpg" />
 </div>
 
 
@@ -198,7 +304,7 @@ Coda 2.5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667988.jpg" />
+  <img src="Z:/picture/008/save_picture_667988.jpg" />
 </div>
 
 
@@ -225,7 +331,7 @@ TinkerTool System 5.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667939.jpg" />
+  <img src="Z:/picture/008/save_picture_667939.jpg" />
 </div>
 
 
@@ -253,7 +359,7 @@ SoftRAID 5.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667931.jpg" />
+  <img src="Z:/picture/008/save_picture_667931.jpg" />
 </div>
 
 
@@ -282,7 +388,7 @@ Magic Sort List 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667902.jpg" />
+  <img src="Z:/picture/008/save_picture_667902.jpg" />
 </div>
 
 
@@ -310,7 +416,7 @@ RightFont 6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667901.jpg" />
+  <img src="Z:/picture/008/save_picture_667901.jpg" />
 </div>
 
 
@@ -337,7 +443,7 @@ Smooze Pro 2.0.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667899.jpg" />
+  <img src="Z:/picture/008/save_picture_667899.jpg" />
 </div>
 
 
@@ -363,7 +469,7 @@ Do Your Data Recovery Pro 8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667848.jpg" />
+  <img src="Z:/picture/008/save_picture_667848.jpg" />
 </div>
 
 
@@ -391,7 +497,7 @@ Downie 4 v4.4.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667840.jpg" />
+  <img src="Z:/picture/008/save_picture_667840.jpg" />
 </div>
 
 
@@ -419,7 +525,7 @@ Project Office Pro 10.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667838.jpg" />
+  <img src="Z:/picture/008/save_picture_667838.jpg" />
 </div>
 
 
@@ -445,7 +551,7 @@ Path Finder 2124 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667837.jpg" />
+  <img src="Z:/picture/008/save_picture_667837.jpg" />
 </div>
 
 
@@ -471,7 +577,7 @@ Sublime Text 3 Dev (3132) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667819.jpg" />
+  <img src="Z:/picture/008/save_picture_667819.jpg" />
 </div>
 
 
@@ -498,7 +604,7 @@ Nova 9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667787.jpg" />
+  <img src="Z:/picture/008/save_picture_667787.jpg" />
 </div>
 
 
@@ -525,7 +631,7 @@ ScreenFlow 10 v10.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667785.jpg" />
+  <img src="Z:/picture/008/save_picture_667785.jpg" />
 </div>
 
 
@@ -553,7 +659,7 @@ AirMail Pro 5 v5.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667777.jpg" />
+  <img src="Z:/picture/008/save_picture_667777.jpg" />
 </div>
 
 
@@ -580,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667640.jpg" />
+  <img src="Z:/picture/008/save_picture_667640.jpg" />
 </div>
 
 
@@ -591,115 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:749BA1521458334F17E53CB2A88CABB41F2C5BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224326   (667232) от 09.05.2018
-
-Transmit 5.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Transmit представляет собой отличный FTP (File Transfer Protocol), SFTP, S3 (Amazon.com файл-хостинг) и iDisk / WebDAV клиент, который позволяет загружать, выгружать и удалять файлы через Интернет, с продуманным, простым и интуитивно-понятным интерфейсом, высокой скоростью передачи/приема файлов, прекрасной стабильностью. Теперь Transmit подключается к 10 новым облачным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Panic IncПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F82FC2AAC3524707CBCCE1E8EB7601964E60030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224149   (667178) от 09.05.2018
-
-DEVONthink Pro Office 2.9.17 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Devonthink Pro Office — программное обеспечение для хранения, организации и поиска электронных документов. Devonthink Pro Office в некотором роде можно назвать Вашим вторым мозгом, хранящим все цифровые файлы, будь то PDF-файлы, электронные письма, документы Word, или даже мультимедиа. Devonthink чрезвычайно гибок и легко настраивается под Ваши потребности. А если (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Devontechnologies, LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D794A67ED9E3C1B950FB1442CB92CB4F82E4821
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137693   (666829) от 27.05.2017
-
-File Cabinet Pro 4.1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666829.jpg" />
-</div>
-
-
-###  Подробнее
-
-File Cabinet Pro  - менеджер документов из строки меню
-Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
-
-Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 мая 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80C50DB61DE511EF270E9A63ABE86807CEE4EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137773   (666828) от 27.05.2017
-
-QLab Pro 4.0.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666828.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.
-
-Нужно обрезать начало и конец аудиотрека? Это можно с легкостью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2017Разработчик: Figure 53, LLC.Поддерживаемая ОС: OS X 10.10 или более поздняя версияЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06168BB91FDE129B274D5DFDC8735ACD23063A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

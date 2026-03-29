@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776190.jpg" />
+  <img src="Z:/picture/008/save_picture_776190.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Blaze Bayley - Infinite Entanglement (2016) [FLAC|Lossless|image + .cue] <Heavy 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776186.jpg" />
+  <img src="Z:/picture/008/save_picture_776186.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ DigitalPuffy - Nemesis (2015) EP, Авторская раздача [MP3|320 к�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776184.jpg" />
+  <img src="Z:/picture/008/save_picture_776184.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776183.jpg" />
+  <img src="Z:/picture/008/save_picture_776183.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776170.jpg" />
+  <img src="Z:/picture/008/save_picture_776170.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ R-Studio 8.0 Build 164464 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776163.jpg" />
+  <img src="Z:/picture/008/save_picture_776163.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776154.jpg" />
+  <img src="Z:/picture/008/save_picture_776154.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Air Explorer Pro 1.8.2 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776145.jpg" />
+  <img src="Z:/picture/008/save_picture_776145.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ AIMP 4.02 Build 1717 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776142.jpg" />
+  <img src="Z:/picture/008/save_picture_776142.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Air Explorer Pro 1.8.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776140.jpg" />
+  <img src="Z:/picture/008/save_picture_776140.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Cookie 5.7.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776134.jpg" />
+  <img src="Z:/picture/008/save_picture_776134.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776133.jpg" />
+  <img src="Z:/picture/008/save_picture_776133.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776131.jpg" />
+  <img src="Z:/picture/008/save_picture_776131.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Downie 3.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776130.jpg" />
+  <img src="Z:/picture/008/save_picture_776130.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ VA - Black Hole Recordings Miami (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776120.jpg" />
+  <img src="Z:/picture/008/save_picture_776120.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Anvir Task Manager 8.0.4 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776117.jpg" />
+  <img src="Z:/picture/008/save_picture_776117.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776110.jpg" />
+  <img src="Z:/picture/008/save_picture_776110.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776109.jpg" />
+  <img src="Z:/picture/008/save_picture_776109.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ djay Pro 1.3.1 + Complete FX Pack [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776108.jpg" />
+  <img src="Z:/picture/008/save_picture_776108.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Anvir Task Manager 8.0.4 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776106.jpg" />
+  <img src="Z:/picture/008/save_picture_776106.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776096.jpg" />
+  <img src="Z:/picture/008/save_picture_776096.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776093.jpg" />
+  <img src="Z:/picture/008/save_picture_776093.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776092.jpg" />
+  <img src="Z:/picture/008/save_picture_776092.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776077.jpg" />
+  <img src="Z:/picture/008/save_picture_776077.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ R-Studio 8.0 Build 164464 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776074.jpg" />
+  <img src="Z:/picture/008/save_picture_776074.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776070.jpg" />
+  <img src="Z:/picture/008/save_picture_776070.jpg" />
 </div>
 
 

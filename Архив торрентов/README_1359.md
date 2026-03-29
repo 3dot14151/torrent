@@ -6,7 +6,7 @@ Ableton Live Suite 10 v10.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746096.jpg" />
+  <img src="Z:/picture/008/save_picture_746096.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BlueStacks App Player 4.50.0.1043 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746092.jpg" />
+  <img src="Z:/picture/008/save_picture_746092.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sysinternals Suite Portable 03.06.2013 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746069.jpg" />
+  <img src="Z:/picture/008/save_picture_746069.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ The KMPlayer 4.0.8.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746052.jpg" />
+  <img src="Z:/picture/008/save_picture_746052.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746048.jpg" />
+  <img src="Z:/picture/008/save_picture_746048.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ GenArts Sapphire Plugin 9.021 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746040.jpg" />
+  <img src="Z:/picture/008/save_picture_746040.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ WinPE 10 Sergei Strelec (x64) 2016.05.24 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746038.jpg" />
+  <img src="Z:/picture/008/save_picture_746038.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746014.jpg" />
+  <img src="Z:/picture/008/save_picture_746014.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Opera 52.0.2871.40 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746011.jpg" />
+  <img src="Z:/picture/008/save_picture_746011.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ LibreOffice 6.0.2 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746009.jpg" />
+  <img src="Z:/picture/008/save_picture_746009.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Glary Utilities Pro 5.95.0.117 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746007.jpg" />
+  <img src="Z:/picture/008/save_picture_746007.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ MyDraw 2.1.2 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745999.jpg" />
+  <img src="Z:/picture/008/save_picture_745999.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745996.jpg" />
+  <img src="Z:/picture/008/save_picture_745996.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ SIV (System Information Viewer) 4.53 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745989.jpg" />
+  <img src="Z:/picture/008/save_picture_745989.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745988.jpg" />
+  <img src="Z:/picture/008/save_picture_745988.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ ICE Book Reader Professional 9.6.4 + Lang Pack + Skin Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745966.jpg" />
+  <img src="Z:/picture/008/save_picture_745966.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Audirvana Plus 3.2.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745963.jpg" />
+  <img src="Z:/picture/008/save_picture_745963.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745945.jpg" />
+  <img src="Z:/picture/008/save_picture_745945.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Red Giant Shooter Suite 13.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745938.jpg" />
+  <img src="Z:/picture/008/save_picture_745938.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Google Chrome 65.0.3325.181 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745898.jpg" />
+  <img src="Z:/picture/008/save_picture_745898.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ MKVToolNix 22.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745894.jpg" />
+  <img src="Z:/picture/008/save_picture_745894.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Acoustica Premium Edition 7.0.56 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745893.jpg" />
+  <img src="Z:/picture/008/save_picture_745893.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ AIMP 4.51 Build 2070 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745890.jpg" />
+  <img src="Z:/picture/008/save_picture_745890.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ FileOptimizer 12.61.2265 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745883.jpg" />
+  <img src="Z:/picture/008/save_picture_745883.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ DxO Optics Pro 10.4.0 Build 480 Elite [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745865.jpg" />
+  <img src="Z:/picture/008/save_picture_745865.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745837.jpg" />
+  <img src="Z:/picture/008/save_picture_745837.jpg" />
 </div>
 
 

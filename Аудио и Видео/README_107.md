@@ -6,7 +6,7 @@ VA - Deep Forest 2021 (2022) [AAC|~330 Kbps] <Afro House, Tech House, Minimal / 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727880.jpg" />
+  <img src="Z:/picture/008/save_picture_727880.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727529.jpg" />
+  <img src="Z:/picture/008/save_picture_727529.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727410.jpg" />
+  <img src="Z:/picture/008/save_picture_727410.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727356.jpg" />
+  <img src="Z:/picture/008/save_picture_727356.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727302.jpg" />
+  <img src="Z:/picture/008/save_picture_727302.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727184.jpg" />
+  <img src="Z:/picture/008/save_picture_727184.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727019.jpg" />
+  <img src="Z:/picture/008/save_picture_727019.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726987.jpg" />
+  <img src="Z:/picture/008/save_picture_726987.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726985.jpg" />
+  <img src="Z:/picture/008/save_picture_726985.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Billy Joel - Japanese Singles Collection -Greatest Hits- (2021) [AAC|~335 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726603.jpg" />
+  <img src="Z:/picture/008/save_picture_726603.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VA - Ikarus Festival 2016 (2016) [AAC|~324 Kbps] <Deep House, Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726587.jpg" />
+  <img src="Z:/picture/008/save_picture_726587.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726584.jpg" />
+  <img src="Z:/picture/008/save_picture_726584.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ King’s Man: Начало / The King's Man (2021) BDRip [720p] ATV
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726425.jpg" />
+  <img src="Z:/picture/008/save_picture_726425.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726409.jpg" />
+  <img src="Z:/picture/008/save_picture_726409.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726321.jpg" />
+  <img src="Z:/picture/008/save_picture_726321.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725863.jpg" />
+  <img src="Z:/picture/008/save_picture_725863.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725611.jpg" />
+  <img src="Z:/picture/008/save_picture_725611.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725096.jpg" />
+  <img src="Z:/picture/008/save_picture_725096.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725092.jpg" />
+  <img src="Z:/picture/008/save_picture_725092.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725079.jpg" />
+  <img src="Z:/picture/008/save_picture_725079.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725037.jpg" />
+  <img src="Z:/picture/008/save_picture_725037.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725022.jpg" />
+  <img src="Z:/picture/008/save_picture_725022.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Wellness Vibes (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724824.jpg" />
+  <img src="Z:/picture/008/save_picture_724824.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724820.jpg" />
+  <img src="Z:/picture/008/save_picture_724820.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ VA - Hot Feelings (2022) [AAC|~294 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724817.jpg" />
+  <img src="Z:/picture/008/save_picture_724817.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724689.jpg" />
+  <img src="Z:/picture/008/save_picture_724689.jpg" />
 </div>
 
 

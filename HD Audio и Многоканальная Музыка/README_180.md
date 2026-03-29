@@ -1,3 +1,234 @@
+###  Публикация: 1777281   (71059) от 05.02.2025
+
+Enshine - Studio Albums (3 releases) (2013-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enshine - международное сотрудничество музыкантов из Швеции и Франции.2013 - Origin
+2015 - Singularity
+2021 - Transcending Fire (EP)Жанр: Melodic Death/Doom MetalПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC10EB2ED900E5178C8D3F38993A0BCDA728281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777528   (71013) от 06.02.2025
+
+Heiri Kanzig & Michael Zisman - Lost & Found (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bass Song (5:02)
+02.  Quem Disse (3:22)
+03.  Children's Song (5:07)
+04.  Vivo Sonhando (5:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BFF4EA68CC304FADE33FD5C909B689A89FC38E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777594   (71012) от 06.02.2025
+
+Naima Quartet - Evergreen (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Empty Pool (3:51)
+02.  Samphire (7:04)
+03.  Riverman (6:08)
+04.  Ezéquiel Célada - Apple Tree (5:38)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160A0756E4105CBEC09EFBA7017008D68386BF17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777543   (71010) от 06.02.2025
+
+Human Production Music & Jon Spanyol - New York Jazz (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  On Swing Street (3:30)
+02.  Unforgettable Christmas (2:41)
+03.  Lucky In Love (2:35)
+04.  Moving Day (2:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3A94040495F24F472990B46C3C6A8EC9B09D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777713   (71009) от 06.02.2025
+
+To Be or Not - Echoes of Answer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zen (4:39)
+02.  That Time Is Your Time (3:23)
+03.  Spin (3:22)
+04.  Why This Way (6:46)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76724FFDD5AEC79BF467FB56F80E931C35369BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777714   (71007) от 06.02.2025
+
+VA - Into the Holiday Groove - A Qobuz Exclusive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael Wollny - Lady Madonna (4:14)
+02.  Tim Lefebvre - Tutto (5:12)
+03.  Joel Lyssarides - Stay Now (2:50)
+04.  Daniel García Trio - Gates to the Land of Wonders (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70FFB3463D23A77ECFA1460BA14B63B20E8A530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777626   (71005) от 06.02.2025
+
+Natia - The Album (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When I Fall in Love (3:12)
+02.  Sifter (6:13)
+03.  Don't Give Up (7:30)
+04.  That Girl (3:52)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183BA2B0B4CFBACA211F6EF85D015303D4F2C538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777719   (71004) от 06.02.2025
+
+Wild Love Tigress - On The Prowl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Funk, Soul, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Tread On Me (3:13)
+02.  Brown Baggin' (3:23)
+03.  I Plead the Fifth (4:53)
+04.  Ballad #001 (5:17)(   Читать дальше...   )Жанр: Funk, Soul, JazzПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E4E93B244307CBE15517D32AFA1DB88E989DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777553   (70990) от 06.02.2025
 
 Jean-Maxime Pinta Quintet - For the Peace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -6,7 +237,7 @@ Jean-Maxime Pinta Quintet - For the Peace (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70990.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Kimmo Salminen - Love House (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70988.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Nico's Trio - Standard's Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70987.jpg" />
 </div>
 
 
@@ -93,7 +324,7 @@ Bill Moio - Try This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70986.jpg" />
 </div>
 
 
@@ -122,7 +353,7 @@ Peter Erskine & JAM Music Lab All-Stars - Vienna to Hollywood: Impressions of E.
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70983.jpg" />
 </div>
 
 
@@ -151,7 +382,7 @@ Nel Begley - Small Flame (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70982.jpg" />
 </div>
 
 
@@ -180,7 +411,7 @@ Dream Theater - Parasomnia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70977.jpg" />
 </div>
 
 
@@ -209,7 +440,7 @@ Canterra - Studio Albums (2 releases) (2016-2020) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70973.jpg" />
 </div>
 
 
@@ -236,7 +467,7 @@ Majestica - Power Train (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70949.jpg" />
 </div>
 
 
@@ -265,7 +496,7 @@ Dreamland - Studio Albums (3 releases) (2005-2009) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70939.jpg" />
 </div>
 
 
@@ -293,7 +524,7 @@ Beans & Fatback - Hold Fast (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70938.jpg" />
 </div>
 
 
@@ -322,7 +553,7 @@ Thorbjorn (Thorbjørn) Risager and The Black Tornado - House Of Sticks (2025) [F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70885.jpg" />
 </div>
 
 
@@ -351,7 +582,7 @@ Tommy Castro & The Painkillers - Closer To The Bone (2025) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70884.jpg" />
 </div>
 
 
@@ -380,7 +611,7 @@ Nessa Barrett - Aftercare (2024) Deluxe, 2025, Warner Records [FLAC 24/48|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70867.jpg" />
 </div>
 
 
@@ -409,7 +640,7 @@ Squid - Cowards (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Rock, Krautroc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70809.jpg" />
 </div>
 
 
@@ -438,7 +669,7 @@ Biig Piig - 11:11 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & In
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70804.jpg" />
 </div>
 
 
@@ -467,7 +698,7 @@ Inhaler - Open Wide (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Alte
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70803.jpg" />
 </div>
 
 
@@ -496,7 +727,7 @@ Paul Anka - Paul Anka (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70793.jpg" />
 </div>
 
 
@@ -510,239 +741,6 @@ Paul Anka - Paul Anka (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E81AEC0FA9B99E6863D6951B16CC6FE128D02657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778883   (70785) от 10.02.2025
-
-The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Deathrock, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70785.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Last Band — шведская рок-группа из Гётеборга, начала свою деятельность в начале 2011 года.2012 - Mean Machine
-2015 - Rats of Gothenburg
-2016 - The Fall
-2018 - HisingenЖанр: Hard Rock, Deathrock, ThrashПродолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FA646273187BF14D039B0B1D3BB77DF69967CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779213   (70747) от 12.02.2025
-
-Frank Sinatra - Sinatra Sings...Of Love And Things (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Come Fly with Me (03:19)
- 02 - I Get a Kick out of You (02:57)
- 03 - I've Got You Under My Skin (03:46)
- 04 - I've Got a Crush on You (02:17)(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A89E78EBC198F11ACF40C48975EF6C0808D415F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779231   (70735) от 12.02.2025
-
-LØLØ (LOLO) - falling for robots & wishing i was one (2024) Deluxe Edition, 2025, Hopeless Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 intro [00:00:55]
-02 omg [00:02:34]
-03 faceplant [00:02:42]
-04 2 of us [00:02:46](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064FFAF17343E5892DD8298CDD071C95BF72AEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779238   (70733) от 12.02.2025
-
-Miss Tess - Cher Reve (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Louisiana (3:55)
-02.  Ride That Train (3:28)
-03.  Nobody Wins (3:27)
-04.  Lord, I Need Somebody Bad Tonight (4:07)(   Читать дальше...   )Жанр: Blues, Country, JazzПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0947CA95FBE36172EEA650F60D780421C42195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779219   (70713) от 12.02.2025
-
-Louis Philippson - Exposition (2025) (2CD) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andante festivo (Arr. for Piano by Jan-Peter Klöpfel) (3:17)
-02.  Jasmine (2:39)
-03.  Wagner Rheingold Vorspiel Variation (From Rheingold, WWV 86a, Arr. for 2 Pianos by Jan-Peter Klöpfel) (2:32)
-04.  Ravel Bolero Variation (After Bolero, M. 81, Arr. for Piano by Tim Allhoff) (2:34)(   Читать дальше...   )Жанр: Classical
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110A992B678D1A8ABBBE70551836E9E361AF874C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779527   (70670) от 13.02.2025
-
-Carmen Consoli - Terra Ca Nun Senti (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Buttana di to ma - Canta e cunta (05:05)
- 02 - Masino (04:02)
- 03 - Fiori d'arancio (03:43)
- 04 - Il pendio dell'abbandono (03:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506E9946CD5AD7583A4C7E290535AE5861855760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779533   (70666) от 13.02.2025
-
-Dynazty - Game of Faces (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy-Power Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call of the Night (3:35)
-02. Game of Faces (3:15)
-03. Devilry of Ecstasy (3:26)
-04. Die to Survive (3:58)(   Читать дальше...   )Жанр: Heavy-Power Metal, Hard RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC1E0F6E1FBDB273256D262B598A48DF20EE676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779618   (70639) от 14.02.2025
-
-Crazy Lixx - Thrill Of The Bite (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведские хард-рокеры CRAZY LIXX выпустят новый студийный альбом “Thrill Of The Bite” 14 февраля 2025 года на лейбле Frontiers Music Srl.
-“Thrill Of The Bite” обещает поднять музыку CRAZY LIXX на новые высоты. На альбоме масса мощных гимнов, запоминающихся риффов и мелодий, зажигательных гитарных соло и могучей энергетики, которую фэны уже привыкли ждать от группы. (   Читать дальше...   )01.    Highway Hurricane  03:36
-02.    Who Said Rock N’ Roll Is Dead  03:02
-03.    Little Miss Dangerous  06:10
-04.    Call Of The Wild   04:14(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4583DDDAB3DDFC9B3566715980B0860BED5B984F
 ```
 
 https://mybot314.ru/tekegram_catalog/

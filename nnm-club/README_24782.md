@@ -1,48 +1,22 @@
-###  Публикация: 1802952   (65955) от 20.06.2025
+###  Публикация: 1794327   (67326) от 28.04.2025
 
-Газета | Тайны СССР №3 (26) (февраль 2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877C8EEB1BF52FB184841B0F95648A021F53CD56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802872   (65954) от 20.06.2025
-
-Фоны - kaleriia - Envato - Red Hair Backgrounds - SHRLWZE [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Kawaii School Supplies Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-15 фонов с рыжими волосами.Формат: JPGРазрешение файлов: 5000 x 3333
+Кавайный клипарт с изображенем школьных принадлежностей.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C870A97AA75A1E0DDDB5C06D733A08B8A79066A1
+magnet:?xt=urn:btih:C4F2A514B601EB207F911207CB30386A01DF3926
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,115 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802817   (65953) от 20.06.2025
+###  Публикация: 1794370   (67325) от 28.04.2025
 
-Revelation - Inner Harbor (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Harbor
-02. Terribilita
-03. Rebecca at the Well
-04. Eve Separated(   Читать дальше...   )Жанр: Progressive, Doom MetalПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC7D2F415FC08C746BCA7156715E78AD8FD1A73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802916   (65952) от 20.06.2025
-
-Selvforakt - Ormstukken (2025) [MP3|320 Kbps] <Black, Sludge Metal, Crust>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fortapt
-02. Undergang
-03. Nålebyen
-04. For alltid(   Читать дальше...   )Жанр: Black, Sludge Metal, CrustПродолжительность: 00:29:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43C1106C60403238FE8727279D860B250DA8ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802998   (65951) от 20.06.2025
-
-Leverage - Gravity (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Shooting Star
-02 – Tales of the Night
-03 – Hellbound Train
-04 – Moon of Madness(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2CBFE45BCD52A5731191E3968A0F2E6466F6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802929   (65950) от 20.06.2025
-
-Sonata Arctica - Silence (2001) Released, 2017, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Power Metal>
+Manowar - Fighting the World (1987) Reissue, 2024, Listenable Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - ...Of Silence
-02 - Weballergy
-03 - False News Travel Fast
-04 - The End Of This Chapter(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:16
+A1. Fighting The World (03:46)
+A2. Blow Your Speakers (03:36)
+A3. Carry On (04:09)
+A4. Violence And Bloodshed (03:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1091AB78D33067BE80935D751FA5CEB8A6DC7C8F
+magnet:?xt=urn:btih:6A223F401AF040E32B97808020136468DD5BF5C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802639   (65949) от 20.06.2025
+###  Публикация: 1794272   (67324) от 28.04.2025
 
-Me'Shell NdegеOcello - Cookie: The Anthropological Mixtape (2002) [FLAC|Lossless|tracks + .cue] <Rap, Hip Hop>
+Растровый клипарт - Designworld - Creative Fabrica - Dusty Blue Floral Clipart [PNG]
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dead Nigga Blvd., Part 1 - 3:04
-02. Hot Night - 4:32
-03. Interlude: blah blah blah, dyba dyba dyba - 0:40
-04. Priorities 1-6 - 3:43(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:11:19
+Растровый клипарт с изображениями цветов.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:764A8B05B337481B04411FD135D8E7F9ACBAF778
+magnet:?xt=urn:btih:A565C9AA6344B4F359D270741264B2D70DAE8FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +79,400 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802907   (65948) от 20.06.2025
+###  Публикация: 1794339   (67323) от 28.04.2025
 
-Imperial Triumphant - Alphaville (2020) [FLAC|Lossless|image + .cue] <Black Metal, Technical Death Metal, Avantgarde>
+Агния Барто | Сказки для самых маленьких. Детям (2000) [MP3, Вера Васильева]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агния Львовна Барто (1906–1981) – советский детский поэт, писатель, сценарист, лауреат Ленинской и Сталинской премии второй степени. Её стихи в нашей стране знает каждый ребёнок.
+Весёлые, добрые и простые стихи А.Л. Барто заставят даже самых серьезных и неулыбчивых малышей на время забыть свою серьёзность.
+В этой аудиокниге есть крошечные стихотворения для крошечных (   Читать дальше...   )Жанр: Русская литература для детей, стихиИздательство: Росмэн-АудиоПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E91275D2C266C61970713227D2539FC31B2E62F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794185   (67322) от 28.04.2025
+
+Растровый клипарт - Designworld - Creative Fabrica - Watercolor Rainbow Paint Splash Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображениями брызг краски в радужной расцветке.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC8870833B567A2EB362B3438FBCFD08EF0802AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794343   (67321) от 28.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Summer Vacation Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на  тему летних каникул.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB078E9C941565FA7F514B509DC70115559CE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794342   (67320) от 28.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Kawaii Animals Sublimation Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кавайный клипарт с изображениями животных для сублимационного дизайна.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4768A3926B23F6B4620AA4CC1A33708F4262BA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794195   (67319) от 28.04.2025
+
+Паттерны - Free PSD Templates - Stars Pattern Set [JPG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные узоры со звёздочками.Формат: JPG, AI, PSD, EPSРазрешение файлов: 2084 x 2084 - 2085 x 2084
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E81239D84DF15359CEA85E8D0E323859EE9A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794297   (67318) от 28.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - River Landscape Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с речными пейзажами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7B429CD96C012DC0AECE23ECAB331179EB1578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794222   (67317) от 28.04.2025
+
+Gene Pitney - 24 Hours From Tulsa. Greatest Hits Series Vol.1 (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67317.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Twenty Four Hours From Tulsa
+A2 It Hurts To Be In Love
+A3 Half Heaven - Half Heartache
+A4 Billy You're A Friend(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6458A3354B9683E31997B122D8EB67AED552C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794352   (67316) от 28.04.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Kawaii Capybara Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кавайный клипарт с изображениями капибары.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5442E790659C7E16F5E2FF5D6E2552BBE0D8ADB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794202   (67315) от 28.04.2025
+
+Паттерны - Free PSD Templates - Leaves Patterns [JPG, PNG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные узоры с изображениями листьев.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 1042 x 2085 - 1043 x 2085
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1C2F396A8405374A453D5ACD33068ACE816272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794186   (67314) от 28.04.2025
+
+Растровый клипарт - Designworld - Creative Fabrica - Watercolor Flower Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный цветочный клипарт.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CC4E9C44E0B8E332F5AAB8F0696C93AAE5ECCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794191   (67313) от 28.04.2025
+
+Паттерны - Free PSD Templates - Textile Pattern Template [JPG, PNG, AI, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор бесплатных текстильных узоров в векторе и растре.Формат: JPG, PNG, AI, PSDРазрешение файлов: 385 x 424 - 1155 x 1269
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F21662633FF6CF2337D5C1A940DD24DE2FEEB1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794139   (67312) от 28.04.2025
+
+Ущелье Аламасов (1937) WEBRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монгольская экспедиция, возглавляемая профессором Джамбоном, и группа советских исследователей отправляется через пустыню в Аламасские горы, где предположительно находятся большие месторождения нефти. Среди членов экспедиции оказывается диверсант, по наводке которого на экспедицию совершается нападение...Производство: СССР / СоюздетфильмЖанр: боевик, военный, драма, приключенияРежиссер: Владимир ШнейдеровАктеры: Никита Батуханов, Ир. Кан, Иван Коваль-Самборский, Ли Ден Тен, Николай Мичурин, Николай Поплавский, Даниил Сагал, Петр Савин, Юлия Цай, Петр АржановСубтитры: отсутствуют, в некоторых сценах поясняющие интертитрыПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2C54F0B9484637EF1D141C7CBCDD4682D2D1D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794346   (67311) от 28.04.2025
+
+Паттерны - Free PSD Templates - Diamond Pattern Set [JPG, PNG, AI, PSD, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Орнаменты (паттерны) с изображениями бриллиантов.Формат: JPG, PNG, AI, PSD, EPSРазрешение файлов: 501 x 501 - 2085 x 2084
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24A8708035920CC54651256BBCDD8CEEFA6B335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794034   (67310) от 28.04.2025
+
+VA - Franz Schubert – Night Wanderer (1997) [FLAC|Lossless|tracks + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67310.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Piano Trio N°. 2 In E-flat - Andante Con Moto -10:52
+Piano – Trio Di Trieste
+2. Ave Maria
+Arranged By – Mischa Maisky - 5:32(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037622EA6732DFA29AA35B958B23A15131B31A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794331   (67309) от 28.04.2025
+
+The Weepies - Hideaway (2008) [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Rotted Futures
-2. Excelsior
-3. City Swine
-4. Atomic Age(   Читать дальше...   )Жанр: Black Metal, Technical Death Metal, AvantgardeПродолжительность: 00:59:23
+01. Can't Go Back Now    [0:02:17.66]
+02. Orbiting    [0:02:55.09]
+03. Hideaway    [0:02:46.51]
+04. Wish I Could Forget    [0:02:56.71](   Читать дальше...   )Жанр: Acoustic, Indie Rock, Pop RockПродолжительность: 00:44:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC19245A6C73C31AA7802002578018689C5EBB9E
+magnet:?xt=urn:btih:3172792EC8CA60EE382C321D56BE36F3C6FED7DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +480,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802988   (65947) от 20.06.2025
+###  Публикация: 1794286   (67308) от 28.04.2025
 
-Alestorm - The Thunderfist Chronicles (2025) Deluxe Version, 3CD, Napalm Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Power-Metal>
+Растровый клипарт - inpixell.studio - Creative Fabrica - Boho Teddy Bear Baby Shower Clipart [PNG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-• 01. Hyperion Omniriff (Instrumental) (5:30)
-• 02. Killed to Death by Piracy (Instrumental) (3:20)
-• 03. Banana (Instrumental) (3:44)
-• 04. Frozen Piss 2 (Instrumental) (4:38)(   Читать дальше...   )Жанр: Power-MetalПродолжительность: 3CD, 02:42:03
+Клипарт с изображением плюшевого мишки.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4AC7CC9C64EF8C890E97BEAA40F40FD4C7BE94FB
+magnet:?xt=urn:btih:D0C3B4D74160E4B205B4408648DFDE556ABAE6BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +506,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802851   (65946) от 20.06.2025
+###  Публикация: 1794313   (67307) от 28.04.2025
 
-Last Grasp - Southern Malaise (2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Post-Punk>
+Растровый клипарт - inpixell.studio - Creative Fabrica - Pink Ocean Animals Clipart [PNG]
 
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Under the Limestone [00:03:19]
-02. Southern Ennui [00:04:06]
-03. Fruit Bat Baby [00:02:15]
-04. Florida Cryptid [00:02:26](   Читать дальше...   )Жанр: Darkwave, Post-PunkПродолжительность: 00:30:43
+Клипарт с изображением морских животных в розовых тонах.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D94A6A23613DC03056E2BF96CEB2EAC4F0DE3A46
+magnet:?xt=urn:btih:9D089BD939031A33C4BFF3A497B9E281A397F96C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,168 +532,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802798   (65945) от 20.06.2025
+###  Публикация: 1794227   (67306) от 28.04.2025
 
-SanMinor - Шаг вперед (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65945.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Женские уста
-2.Истина (Remix)
-3.Корабли твои мечты (Remix)
-4.Жара(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D73B0E2DBC14F1CE911A58BA5829C9022A21F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802921   (65944) от 20.06.2025
-
-VA - Ori Uplift - Uplifting Only Episode 645 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ADOVE – Lavender Field (Intro Edit) (Pre-Release Pick)
-02. Ronny K. vs Ziki – Memories (New World Remix)
-03. Twin View – Papillon (Sergey Salekhov Remix)
-04. XiJaro & Pitch – Unite Again (Corrado Baggieri Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADC51E9C463960D0538531FEAF4C93D0D699ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803049   (65943) от 21.06.2025
-
-Фредерик Содди | История атомной энергии (2025) [MP3, Георгий Попов]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65943.jpg" />
-</div>
-
-
-###  Подробнее
-
-«История атомной энергии» — научно-популярная книга английского радиохимика, лауреата Нобелевской премии по химии Фредерика Содди (1877–1956)
-Книга представляет огромный историко-научный и культурный интерес как уникальная оценка полувекового развития ядерной физики с позиций одного из её основателей.Жанр: Учебная и научно-популярная литератураИздательство: Нигде не купишьПродолжительность: 15:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BDEE6630CFDCC3F0B0EC4640FF0007F1BE6FE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803188   (65942) от 21.06.2025
-
-Маленький-удаленький (1938) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65942.jpg" />
-</div>
-
-
-###  Подробнее
-
-О футбольном матче между козлами и зайцами, закончившемся, несмотря на все ухищрения вероломных козлов, в пользу зайчишек. Одним словом, сказка для детей - в реальной жизни бывает, что не все так радужно заканчивается...Производство: СССР / МосфильмЖанр: кукольный, детский, короткометражныйРежиссер: Валентин КадочниковСубтитры: отсутствуютПродолжительность: 00:14:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B46F0A25284C7EB67579051DF0A5E52638E7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803098   (65941) от 21.06.2025
-
-GoGo Penguin - Necessary Fictions (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Electronic, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Umbra
-02 – Fallowfield Loops
-03 – Forgive the Damages (feat. Daudi Matsiko)
-04 – What We Are and What We Are Meant to Be(   Читать дальше...   )Жанр: Jazz, Electronic, InstrumentalПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CBABF1F57FDFE1121D108FC48475C2A8C8F4808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803114   (65940) от 21.06.2025
-
-Caravan Palace - Dusty House Mix (Mixed) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
+Andrew Duncanson - California Trap (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. City Cook (Shiny Mob Remix) (Mixed)
-02. Moonshine (Bakermat Remix) (Mixed)
-03. Russian (Mixed)
-04. Tattoos (Mixed)(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 01:00:17
+01. Relearning to Climb (3:00)
+02. Naw Naw Naw (4:29)
+03. Hold Me Back (3:02)
+04. California Trap (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44B847E59058D7B2631D4B4963F7E10C4F77A20E
+magnet:?xt=urn:btih:96DF046B296E08F3C74068DBF2F7CCA062AF6A65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,28 +561,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803103   (65939) от 21.06.2025
+###  Публикация: 1794316   (67305) от 28.04.2025
 
-Itinerum - Resurgence (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+Растровый клипарт - inpixell.studio - Creative Fabrica - Pink Ocean Animals Clipart [PNG]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. The Nobodies
-2. My Serenity
-3. Mother Of Chaos
-4. Till Dawn Do Us Apart(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:34:21
+Клипарт с изображением морских животных в розовых тонах.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5457515BBCA2E33FCFD42D35A6480FEE6FB456DF
+magnet:?xt=urn:btih:222884DA80B9F4322C3381A0A2FE3C94424FEE6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,25 +587,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803051   (65938) от 21.06.2025
+###  Публикация: 1794323   (67304) от 28.04.2025
 
-Газета | Тайны СССР №6 (55) (март 2020) [PDF]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Kawaii School Supplies Clipart [PNG]
 
->>Журналы
->>Другие журналы
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+Кавайный клипарт с изображенем школьных принадлежностей.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4B468C81C699BE756CC16282809745D7D7E2808
+magnet:?xt=urn:btih:6E28232ADC16268ACCF49FA7E9B80BA88F39B2E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,25 +613,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803067   (65937) от 21.06.2025
+###  Публикация: 1794197   (67303) от 28.04.2025
 
-Газета | Тайны СССР №16 (65) (август 2020) [PDF]
+Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Stars & Rainbow Digital Papers [JPG]
 
->>Журналы
->>Другие журналы
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+Клипарт со звёздами и радугами в пастельных тонах.
+Сгенерировано ИИ.Формат: JPGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA90C47F3F48194D16EB362A916C25B3F6906DCB
+magnet:?xt=urn:btih:9E265F426A8E1998C2F77CD9D5CE557C35415037
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,78 +640,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803068   (65936) от 21.06.2025
+###  Публикация: 1794371   (67302) от 28.04.2025
 
-TikTok Private Plus v40.5.5 Mod by TikTok + Plugin Update 2.8 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65936.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом Моде можно выкладывать видео для РФ.
-TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 20.06.2025Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E5D6822C9F95CC7F51F703F8E41773F815BC4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803047   (65935) от 21.06.2025
-
-Журнал | Дачный спец №6 (июнь 2025) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65935.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дачный спец» — журнал для всех, чья жизнь так или иначе связана с работой и отдыхом на земле. Независимо от уровня знаний в дачных делах, любой человек найдет в журнале именно то, что ему нужно: мнения и обзоры от известных в своей области специалистов, советы опытных дачников и садоводов, планировочные решения и мастер-классы от профессиональных дизайнеров, проверенные (   Читать дальше...   )Жанр: СадоводствоИздательство: ООО "Издательская группа "КАРДОС"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85FF519C11CF3B3C617BCB086C8F976C2374261A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803086   (65934) от 21.06.2025
-
-Мы из джаза (1983) DVDRemux
+Юная любовь / Young Romance (1915) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказ об истории советской эстрадной музыки двадцатых годов прошлого века. Одессит Костя собирает джазбэнд. Он убежден в том, что джаз - пролетарское искусство. Свободные музыканты Степан, Жора и саксофонист Двора Его Императорского Величества Иван Бавурин не сразу проникаются новой музыкой. А потом они вынуждены доказывать в социалистическую эпоху право на то, (   Читать дальше...   )Производство: СССР, к\с МосфильмЖанр: Комедия, МьюзиклРежиссер: Карен ШахназаровАктеры: Игорь Скляр, Александр Панкратов-Черный, Николай Аверюшкин, Петр Щербаков, Елена Цыплакова, Евгений Евстигнеев, Леонид Куравлев, Борислав Брондуков, Лариса Долина, Юрий ВасильевСубтитры: отсутствуютПродолжительность: 01:23:32
+Милая лирическая комедия. Молодой человек и юная девушка работают рядовыми клерками в большом универмаге. Они незнакомы друг с другом, но имеют одинаковый склад характера - романтический. И оба, не сговариваясь, решаются потратить все свои сбережения, но хотя бы недельку пожить в роскошном отеле на побережье, изображая из себя великосветских особ. Ну, и конечно же, (   Читать дальше...   )Производство: США / Jesse L. Lasky Feature Play CompanyЖанр: мелодрама, драма, немое киноРежиссер: Джордж МелфордАктеры: Эдит Тальяферро, Флоренс Дагмар, Том Форман, Фредерик Уилсон, Аль Эрнест Гарсиа, Маршалл МакКей, Гарри Де Вир, Дж. Паркс Джонс, Виолет Дрю, миссис Льюис МакКордПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:58:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57ACF6603B61895CCEF9D169327BD611BBFB0566
+magnet:?xt=urn:btih:9FAFA4F14CF34D15C9D66003D37971DAD6E0843B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,107 +666,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803132   (65933) от 21.06.2025
+###  Публикация: 1794349   (67301) от 28.04.2025
 
-Журнал | Юность №3 (832) (март 2025) [PDF]
+НХЛ. Кубок Стэнли 2025 (Плей офф. 1-й раунд, 4-й матч) Вашингтон Кэпиталз - Монреаль Канадиенс (27.04.2025) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
 
->>Журналы
->>Другие журналы
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Юность» — литературно-художественный иллюстрированный журнал для молодёжи. Выходит в Москве с 1955 года. Журнал был основан по инициативе Валентина Катаева, который стал первым главным редактором и был снят с этой должности за публикацию повести «Звёздный билет» Василия Аксёнова.
-До 1991 орган Союза писателей СССР, в дальнейшем независимое издание.Жанр: Публицистика, проза, поэзияИздательство: АНП "Редакция журнала "Юность"Формат: PDFКачество: Обработанный скан
+28 апреля 2025, понедельник. 01:30 МСК, 1/8 финала. 4-й матч. Стадион: Белл-центр (Монреаль, Канада), 21 105 зрителей (100% при вместимости 21 105)
+Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Главный судья: Дэн О'Рурк (Калгари, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Эндрю Смит (Китченер, Канада)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:06:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6DE65C1F229F2148C25964FA2E524EC74DF64C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803147   (65932) от 21.06.2025
-
-Kiss - Love Gun (1977) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Stole Your Love [3:05]
-02 - Christine Sixteen [3:13]
-03 - Got Love For Sale [3:29]
-04 - Shock Me [3:47](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, RockПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773D635F7705AC1D61FD3B6D3FB1D18C0986B5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799252   (65931) от 21.06.2025
-
-Друзья (1938) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о жизни народов Северного Кавказа вскоре после революции 1917 года. В основу фильма положены факты биографии С. М. Кирова, явившегося прообразом героя картины коммуниста Алексея.Производство: СССР / ЛенфильмЖанр: военный, биография, историяРежиссер: Лев Арнштам, Виктор ЭйсымонтАктеры: Борис Бабочкин, Ирина Зарубина, Николай Черкасов, Степан Каюков, Котэ Даушвили, Серафима Бирман, Александр Борисов, Иван Назаров, Юлия Предтеченская, Павел ГайдебуровСубтитры: русские (пояснительные интертитры), в некоторых эпизодахПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3D84A3FB4D3FECBF11ACCBE46C8E15FBA0D6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803062   (65930) от 21.06.2025
-
-Auto Reply: автоответчик v5.2 Mod by Alex.Strannik [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой и удобный автоответчик, поддерживающий работу с Facebook, WhatsApp и Skypе. Позволяет создавать шаблоны ответных сообщений и  отвечать  в групповые чаты. Поддерживает фильтрацию по контактам. Включите автоматический ответ одним касанием, нет необходимости устанавливать сложные требования. Автоответчик отправляет автоматический ответ всем, кто обращается к (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.06.2025Разработчик: TechInnate SolutionsПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5F2CD28A20B20C0B9BA1C95D7660EB009BBD53
+magnet:?xt=urn:btih:25BEBD5C3E524122292C1D87965F21D362DD9634
 ```
 
 https://mybot314.ru/tekegram_catalog/

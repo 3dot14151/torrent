@@ -1,3 +1,107 @@
+###  Публикация: 266414   (766605) от 28.01.2019
+
+Блокада: Фильм 1: Лужский рубеж, Пулковский меридиан (1974) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766605.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному роману А.Чаковского. Одна из самых известных работ Михаила Ершова четырёхсерийная киноэпопея "Блокада", за которую он получил Золотую медаль имени Довженко, создавалась мастером на протяжении семи лет. Фильм посвящен мужеству и стойкости жителей Ленинграда в период с сентября 1941 года по январь 1944 года, который вошел в историю Великой (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Военный, ДрамаРежиссер: Михаил ЕршовАктеры: Юрий Соломин, Михаил Ульянов, Юозас Будрайтис, Станислав Станкевич, Владислав Стржельчик, Альберт Печников, Владимир Волчик, Алексей Преснецов, Герберт Дмитриев, Азамат Багиров, Георгий Гегечкори, Юрий Алексеев, Борис Аракелов, Сергей Харченко, Николай Федорцов, Данута Столярская, Ирина Акулова, Евгений Лебедев, Даниил Сагал, Владимир Трещалов, Николай Трофимов, (   Читать дальше...   )Продолжительность: ~ 02:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1962DAD914F89435A18A38BE1731BB26B6B4FEAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 146421   (766602) от 28.01.2019
+
+Counter Strike: Source - Южная Осетия / South Osetia (2006) [Ru] (1.0) Unofficial
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сounter Strike Source: Южная Осетия — это вторая версия мода, в котором у вас будет возможность принять участие в боевых действиях, происходивших на территории Южной Осетии летом 2008 года. В моде представлено практически всё грузинское вооружение, новые карты и текстуры.Тип издания: UnofficialРазработчик: ValveЖанр: MMO Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9783F9E1F7524B6B28EDB1F470D47742D00D9E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213752   (766489) от 19.03.2018
+
+ZORIN OS 12.3 ULtimate 12.3 [X64] ISO
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zorin OS — дистрибутив Linux, основанный на Ubuntu, который направлен на то, чтобы создать интерфейс, как можно более похожий на Windows Explorer в Microsoft Windows. Это делается с целью облегчить переход с Windows в Linux-подобную операционную систему. В Zorin OS используются приложения, которые могут изменить внешний вид операционной системы так, чтобы она напоминала (   Читать дальше...   )Язык интерфейса: Мультиязычный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F2DE7BE912E8CC16B0E7948DE6C2AFAF5AC2A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126153   (765925) от 17.04.2017
+
+О любви (2017) WEB-DL [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Петербурженка Нина — студентка, жена молодого красавца-профессора, который знает китайский язык и учения Поднебесной, похоже, лучше, чем окружающую российскую действительность. Нина убеждена, что супружеская верность и смирение и есть любовь. Но всё меняется, когда в её жизни появляется банкир Сергей.Производство: Россия, Studio 2-B-2 entertainmentЖанр: МелодрамаРежиссер: Владимир БорткоАктеры: Анна Чиповская, Алексей Чадов, Мария Миронова, Александр Лыков, Дмитрий Певцов, Светлана Хомич, Ольга Павлюкова, Клавдия БеловаПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD38FE2A02D7A019FDE42856F2CCA9EE22421368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126257   (765918) от 17.04.2017
 
 proDAD Mercalli V4 Plugins for Adobe 4.0.477.1: Stabilizer + CMOS Correction 1.0 RePack by Team VR (x64) [En]
@@ -6,7 +110,7 @@ proDAD Mercalli V4 Plugins for Adobe 4.0.477.1: Stabilizer + CMOS Correction 1.0
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765918.jpg" />
+  <img src="Z:/picture/008/save_picture_765918.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ Metro: Last Light Redux (2014) [Ru/Multi] (1.0.0.3) Repack Other s [Bundle Editi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765912.jpg" />
+  <img src="Z:/picture/008/save_picture_765912.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ Metro 2033 Redux (2014) [Ru/Multi] (1.0.0.3) Repack Other s [Bundle Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765910.jpg" />
+  <img src="Z:/picture/008/save_picture_765910.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765898.jpg" />
+  <img src="Z:/picture/008/save_picture_765898.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765826.jpg" />
+  <img src="Z:/picture/008/save_picture_765826.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.01.28 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765819.jpg" />
+  <img src="Z:/picture/008/save_picture_765819.jpg" />
 </div>
 
 
@@ -167,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765816.jpg" />
+  <img src="Z:/picture/008/save_picture_765816.jpg" />
 </div>
 
 
@@ -193,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765789.jpg" />
+  <img src="Z:/picture/008/save_picture_765789.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765788.jpg" />
+  <img src="Z:/picture/008/save_picture_765788.jpg" />
 </div>
 
 
@@ -247,7 +351,7 @@ Acronis BootCD 10PE x86/x64 by naifle (19.03.2018) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765623.jpg" />
+  <img src="Z:/picture/008/save_picture_765623.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_765124.jpg" />
+  <img src="Z:/picture/005/save_picture_765124.jpg" />
 </div>
 
 
@@ -300,7 +404,7 @@ TNod User & Password Finder 1.6.2 Beta 3 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765033.jpg" />
+  <img src="Z:/picture/008/save_picture_765033.jpg" />
 </div>
 
 
@@ -326,7 +430,7 @@ Genesis Alpha One (2019) [Ru/En] (1.0) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764987.jpg" />
+  <img src="Z:/picture/008/save_picture_764987.jpg" />
 </div>
 
 
@@ -352,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764982.jpg" />
+  <img src="Z:/picture/008/save_picture_764982.jpg" />
 </div>
 
 
@@ -378,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_764945.jpg" />
+  <img src="Z:/picture/005/save_picture_764945.jpg" />
 </div>
 
 
@@ -404,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764673.jpg" />
+  <img src="Z:/picture/008/save_picture_764673.jpg" />
 </div>
 
 
@@ -435,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764188.jpg" />
+  <img src="Z:/picture/008/save_picture_764188.jpg" />
 </div>
 
 
@@ -461,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_764160.jpg" />
+  <img src="Z:/picture/005/save_picture_764160.jpg" />
 </div>
 
 
@@ -487,7 +591,7 @@ Adguard 6.2.346.1819 Beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764094.jpg" />
+  <img src="Z:/picture/008/save_picture_764094.jpg" />
 </div>
 
 
@@ -513,7 +617,7 @@ TechSmith Camtasia Studio 9.0.4 Build 1948 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764090.jpg" />
+  <img src="Z:/picture/008/save_picture_764090.jpg" />
 </div>
 
 
@@ -539,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_764087.jpg" />
+  <img src="Z:/picture/005/save_picture_764087.jpg" />
 </div>
 
 
@@ -565,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764082.jpg" />
+  <img src="Z:/picture/008/save_picture_764082.jpg" />
 </div>
 
 
@@ -576,115 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:829C4E3C69CB6DA13B97258AABBA1D2EED676E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279365   (764034) от 31.01.2019
-
-ESET Endpoint Security 5.0.2272.7 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последняя версия из пятой линейки продуктов ESET на момент публикации релиза.
-Проактивная защита рабочих станций с многоуровневым обнаружением вредоносных программ.
-Благодаря встроенным модулям — Антивирус, Антишпион, Персональный брандмауэр и Веб-контроль — решение ESET Endpoint Security обеспечивает комплексную защиту от известных и ранее неизвестных видов угроз. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4915C38D031427CAD24DFB94F6FC9EB7E66458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121581   (764010) от 03.01.2022
-
-Prana Breath / Праническое дыхание (Пранаяма) v9.4.2_3 Guru [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необходимо собраться с мыслями? Быстро и безопасно снять стресс? Вечерний приступ аппетита? Вам поможет Prana Breath - бесплатное приложение для удобных занятий дыхательною гимнастикой! Подойдет для практикующих йогу, а также для тех, кто старается вести здоровый образ жизни.Тип издания: Пиратка (Guru)Релиз состоялся: 21.11.2021Разработчик: Oleksandr AlbulПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E7953714A4A0C8507CC38DBF48CF1E6D39BCC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521283   (764007) от 03.01.2022
-
-Гарри Поттер 20 лет спустя: Возвращение в Хогвартс / Harry Potter 20th Anniversary: Return to Hogwarts (2022) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэниэл Рэдклифф, Руперт Гринт и Эмма Уотсон встретятся со своими коллегами и впервые за долгие годы окажутся в стенах Хогвартса.Производство: США, Великобритания / Casey Patterson Entertainment, Pulse, Pulse Films, Warner Bros. Television, Warner Horizon Television, Warner Horizon Uned TelevisionЖанр: документальный, семейныйРежиссер: Эрен Криви, Джо Перлман, Джорджо ТестиАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Джейсон Айзекс, Рэйф Файнс, Хелена Бонем Картер, Гари Олдман, Альфред Энок, Бонни Райт, Эванна Линч, Робби Колтрейн, Том Фелтон, Крис Коламбус, Мэттью Льюис, Имелда СтонтонПеревод: Профессиональный, многоголосый (Amedia)Субтитры: АнглийскиеПродолжительность: 01:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE9BD910DFEF1FBB2C1F252F04953FB4A5BD3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213996   (763852) от 22.03.2018
-
-Windows 10 Pro 1709 x86/x64 by kuloymin v12.4 (esd) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальных образах от MSDN: ru_windows_10_multi-edition_version_1709_updated_dec_2017.
-Удалены некоторые APPX, стандартные темы, отключено несколько компонентов, активирован протокол Samba.
-Очищена папка WinSxS\Backup.
-Очищена папка WinSxS\ManifestCache.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3561161044B974B962169E7338A2E41599C87F
 ```
 
 https://mybot314.ru/tekegram_catalog/

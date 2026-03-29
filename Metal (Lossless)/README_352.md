@@ -1,3 +1,90 @@
+###  Публикация: 1744584   (105257) от 22.08.2024
+
+Cognitive Dissonance - Return To The Flame (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He Who Saw 07:48
+02. Return to the Flame 09:12
+03. The Digital Veil 06:39
+04. Experimentation X09 02:09(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5153F163D38E683C19535BF1F5AE6B921AC87B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744429   (105256) от 22.08.2024
+
+Bloodcrown - Sound of Flesh and Bone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When wolves (04:03)
+02. Sword cut (03:32)
+03. Other I (03:52)
+04. Sound of flesh and bone (03:58)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6658AC0F260FEBABFD3CC37B206C4EE8D915BF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744759   (105219) от 23.08.2024
+
+Within the Ruins - Phenomena II (2024) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Castle In The Sky (5:05)
+02. Daywalker (4:40)
+03. Demon Killer (5:18)
+04. Level 12 (4:42)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D50C3318E138DBE05D74BA3AEF7BB0CEB40E943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744813   (105217) от 23.08.2024
 
 Miss May I - Apologies Are For The Weak (Re-Recorded 15th Anniversary Edition) (2009) Reissue, 2024, Solid State Records [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
@@ -6,7 +93,7 @@ Miss May I - Apologies Are For The Weak (Re-Recorded 15th Anniversary Edition) (
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105217.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Dampf - No Angels Alive (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105213.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Zeal & Ardor - GREIF (2024) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105212.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Paralydium - Universe Calls (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105207.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ All For Metal - Gods Of Metal (Year Of The Dragon) (2024) [FLAC|Lossless|WEB-DL|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105204.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Furnace - Trojan Hearse (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105159.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ This Ending - Crowned In Blood (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105038.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Kissin' Dynamite - Back With A Bang (2024) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105031.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Grimskull - Gathering Shadows (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104993.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Fostermother - Echo Manor (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104991.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Impaled Nazarene - Absence of War Does Not Mean Peace (2001) Reissue, 2002, Fono
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104974.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Deliver The Galaxy - Bury Your Gods (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104969.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Leprous - Melodies Of Atonement (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104966.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Rezet - Rezet (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104930.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Black Wings - Whispers of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104920.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Super Sabre - Steel Wings (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104913.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Gotham City - The Early Years (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104908.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Attaxe - Braving The Tempest (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104891.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Ousiodes - The Forest (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104887.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Byron Nemeth - Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104861.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ DemonDown - The Rise Of The Devil (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104851.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Jurelia - Hinnos de Libertaz (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Prog Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104847.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Drakkar - Spread Your Wings (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104843.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Drakkar - Spread Your Wings (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:761F3A2F55FC0D1A98B46496BABF439EB7A8BD81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746836   (104837) от 02.09.2024
-
-Matthew Sting - Brave (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rise Up High (feat. Scott Wallace)
-02. Sons Of The Scottish Land
-03. Mist Of Time (feat. Scott Wallace)
-04. Battle Cry(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2F5CB0C9484E114CA7149108ACC46B51186F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746900   (104805) от 02.09.2024
-
-Breaklight - I (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break Your Neck (04:48)
-02. Fate (04:21)
-03. There's No Escape For Us (05:02)
-04. Palace Of Shame (04:49)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B47B88CDCC6B2D7900E1BF708FA89236CECD3C88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747042   (104799) от 03.09.2024
-
-Ragnar​ö​k - Schicksal der G​ö​tter, Tod der Menschen und Ende der Welten (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Pagan Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prolog - Weissagung (09:06)
-02. Praeludium ad Fortunam Deorum (04:04)
-03. I. Akt - Hass und Missgunst (05:46)
-04. II. Akt - Fimbulwinter (11:39)(   Читать дальше...   )Жанр: Progressive, Pagan Black MetalПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A1B37591C4646101466BCE756A77FBF3332B32
 ```
 
 https://mybot314.ru/tekegram_catalog/

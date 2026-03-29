@@ -1,3 +1,90 @@
+###  Публикация: 1188282   (275074) от 02.12.2017
+
+Blodulv - Blodulv (2003) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Regulus - Peaceraper
+02. Legion Murdergoat
+03. Jormungrund
+04. Odium(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA83F232BD0E2D5546B4531999BA0C68A8099AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188287   (275027) от 02.12.2017
+
+Blodulv - III - Burial (2005) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Burial
+03. Imperium Sanctum (Bleeding Mercury)
+04. Tank Warfare(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34FC1C21AFEFCA23A094D1855649F7FC8D7554A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188421   (275025) от 02.12.2017
+
+Thormenthor - Abstract Divinity (1994) [APE|Lossless|image + .cue] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstract divinity
+02. The proportional dream
+03. Encircled by aura sphere
+04. Nothing expanded(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC95211B58C382D9FA7EBED4479CAF97E7573F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188457   (275023) от 02.12.2017
 
 Nepal - Ideologia (1995) [APE|Lossless|image + .cue] <Thrash Metal>
@@ -6,7 +93,7 @@ Nepal - Ideologia (1995) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275023.jpg" />
+  <img src="Z:/picture/008/save_picture_275023.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Master's Hammer - Ritual (1991) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275022.jpg" />
+  <img src="Z:/picture/008/save_picture_275022.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Saul Blanch Revancha - Refugiado (2006) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275017.jpg" />
+  <img src="Z:/picture/008/save_picture_275017.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Nepal - Demos Originales + Ineditos (2012) [APE|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275013.jpg" />
+  <img src="Z:/picture/008/save_picture_275013.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Mirzadeh - Ancient Rites (2003) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275010.jpg" />
+  <img src="Z:/picture/008/save_picture_275010.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Nepal - Manifiesto (1997) [APE|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275008.jpg" />
+  <img src="Z:/picture/008/save_picture_275008.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Mirzadeh - Desired Mythic Pride (2014) [FLAC|Lossless|image + .cue] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275001.jpg" />
+  <img src="Z:/picture/008/save_picture_275001.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Section A - Wall of Silence (2016) [FLAC|Lossless|image + .cue] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274861.jpg" />
+  <img src="Z:/picture/008/save_picture_274861.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Crematory - Live Insurrection (2017) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274741.jpg" />
+  <img src="Z:/picture/008/save_picture_274741.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ The Unguided - And the Battle Royale (2017) [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274723.jpg" />
+  <img src="Z:/picture/008/save_picture_274723.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Septicflesh - Codex Omega (2017) [FLAC|Lossless|image + .cue] <Symphonic Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274719.jpg" />
+  <img src="Z:/picture/008/save_picture_274719.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Hell in the Club - See You on the Dark Side (2017) Japan[FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274622.jpg" />
+  <img src="Z:/picture/008/save_picture_274622.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Arch Enemy - Will To Power (2017) [FLAC|Lossless|image + .cue] <Modern Metal, MD
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274462.jpg" />
+  <img src="Z:/picture/008/save_picture_274462.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Stormthrash - Systematic Annihilation (2017) Japan [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274457.jpg" />
+  <img src="Z:/picture/008/save_picture_274457.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Epysode - Obsessions (2011) Reissue, 2012, Фоно [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274206.jpg" />
+  <img src="Z:/picture/008/save_picture_274206.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Lake of Tears - Greatest Tears Vol. II (2004) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273064.jpg" />
+  <img src="Z:/picture/008/save_picture_273064.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Lake of Tears - Greatest Tears Vol. I (2004) Compilation [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273060.jpg" />
+  <img src="Z:/picture/008/save_picture_273060.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Panphage - Jord (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272706.jpg" />
+  <img src="Z:/picture/008/save_picture_272706.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ Cirith Gorgor - Cirith Gorgor (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272540.jpg" />
+  <img src="Z:/picture/008/save_picture_272540.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Elite - Bifrost (2006) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272539.jpg" />
+  <img src="Z:/picture/008/save_picture_272539.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Elite - Kampen (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272538.jpg" />
+  <img src="Z:/picture/008/save_picture_272538.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Cirith Gorgor - Der Untergang (2014) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272537.jpg" />
+  <img src="Z:/picture/008/save_picture_272537.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ God Forbid - Earthsblood (2009) [FLAC|Lossless|image + .cue] <Thrash Metal, Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272534.jpg" />
+  <img src="Z:/picture/008/save_picture_272534.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ God Forbid - Earthsblood (2009) [FLAC|Lossless|image + .cue] <Thrash Metal, Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15503C107B3B691FAC7F01B116D0B20AC9C71EFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188607   (272532) от 04.12.2017
-
-Cirith Gorgor - Firestorm Apocalypse (2003) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The gates of hell
-02. Degeneration of mankind
-03. Arcane illusion
-04. Prelude to the final holocaust(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FFB757F0962287775A0D72CE09B9EA72CFF4C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188572   (272478) от 04.12.2017
-
-Elite - We Own The Mountains (2008) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Volvens Vinterseid
-02. Amanita Muscaria
-03. Winter Moon King
-04. Likmyren(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B36D78C3DFC0999EF6CDBEA23CAEBDB57358F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188546   (272472) от 04.12.2017
-
-Elm Street - Barbed Wire Metal (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barbed Wire Metal (03:44)
-02. The Devil's Servants (03:59)
-03. Elm St's Children (05:40)
-04. Heavy Metal Power (05:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9887DA8D977B1BD38E09CB05F7BF329B6515D17
 ```
 
 https://mybot314.ru/tekegram_catalog/

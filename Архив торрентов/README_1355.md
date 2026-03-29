@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747423.jpg" />
+  <img src="Z:/picture/008/save_picture_747423.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747422.jpg" />
+  <img src="Z:/picture/008/save_picture_747422.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747385.jpg" />
+  <img src="Z:/picture/008/save_picture_747385.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747156.jpg" />
+  <img src="Z:/picture/008/save_picture_747156.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747060.jpg" />
+  <img src="Z:/picture/008/save_picture_747060.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747037.jpg" />
+  <img src="Z:/picture/008/save_picture_747037.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746968.jpg" />
+  <img src="Z:/picture/008/save_picture_746968.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746967.jpg" />
+  <img src="Z:/picture/008/save_picture_746967.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746958.jpg" />
+  <img src="Z:/picture/008/save_picture_746958.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746957.jpg" />
+  <img src="Z:/picture/008/save_picture_746957.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746956.jpg" />
+  <img src="Z:/picture/008/save_picture_746956.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746938.jpg" />
+  <img src="Z:/picture/008/save_picture_746938.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ RegScanner 2.55 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746918.jpg" />
+  <img src="Z:/picture/008/save_picture_746918.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ FileZilla 3.49.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746914.jpg" />
+  <img src="Z:/picture/008/save_picture_746914.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ FilePane 1.9.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746906.jpg" />
+  <img src="Z:/picture/008/save_picture_746906.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746903.jpg" />
+  <img src="Z:/picture/008/save_picture_746903.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Free Studio 6.6.15.523 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746898.jpg" />
+  <img src="Z:/picture/008/save_picture_746898.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746894.jpg" />
+  <img src="Z:/picture/008/save_picture_746894.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Mozilla Thunderbird 78.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746837.jpg" />
+  <img src="Z:/picture/008/save_picture_746837.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Internet Download Manager 6.25 Build 19 Final RePack (& Portable) by D!akov [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746824.jpg" />
+  <img src="Z:/picture/008/save_picture_746824.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746823.jpg" />
+  <img src="Z:/picture/008/save_picture_746823.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ SnippetsLab 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746792.jpg" />
+  <img src="Z:/picture/008/save_picture_746792.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Cass McCombs - Tip of the Sphere (2019) [FLAC|Lossless|tracks + .cue] <Indie Fol
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746791.jpg" />
+  <img src="Z:/picture/008/save_picture_746791.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Clearview 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746790.jpg" />
+  <img src="Z:/picture/008/save_picture_746790.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746788.jpg" />
+  <img src="Z:/picture/008/save_picture_746788.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746787.jpg" />
+  <img src="Z:/picture/008/save_picture_746787.jpg" />
 </div>
 
 

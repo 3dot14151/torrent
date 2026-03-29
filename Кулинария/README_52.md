@@ -1,3 +1,30 @@
+###  Публикация: 498622   (255763) от 19.05.2012
+
+Н.Н. Макарова | Раздельное питание и похудение (принципы, голодание, диеты, рецепты...) [1998] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_255763.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подарочном издании «Раздельное питание» в доступной форме излагаются основы и тонкости сравнительно новой системы рационального питания человека, которая поможет Вам укрепить физическое и нравственное здоровье, всесторонне улучшить эффективность каждого дня своей жизни.
+Раздельное питание и похудение, советы по кулинарной технике, принцип раздельного питания, оздоровительное голодание, полноценное питание, диеты здоровья, рецептыФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498776   (255755) от 19.05.2012
 
 А.А.Ананьев | Супы [1957] [PDF]
@@ -6,7 +33,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255755.jpg" />
+  <img src="Z:/picture/005/save_picture_255755.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255747.jpg" />
+  <img src="Z:/picture/005/save_picture_255747.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255740.jpg" />
+  <img src="Z:/picture/005/save_picture_255740.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255705.jpg" />
+  <img src="Z:/picture/005/save_picture_255705.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254353.jpg" />
+  <img src="Z:/picture/005/save_picture_254353.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253976.jpg" />
+  <img src="Z:/picture/005/save_picture_253976.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253941.jpg" />
+  <img src="Z:/picture/005/save_picture_253941.jpg" />
 </div>
 
 
@@ -195,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253204.jpg" />
+  <img src="Z:/picture/005/save_picture_253204.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253201.jpg" />
+  <img src="Z:/picture/005/save_picture_253201.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253074.jpg" />
+  <img src="Z:/picture/005/save_picture_253074.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252904.jpg" />
+  <img src="Z:/picture/005/save_picture_252904.jpg" />
 </div>
 
 
@@ -303,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252745.jpg" />
+  <img src="Z:/picture/005/save_picture_252745.jpg" />
 </div>
 
 
@@ -329,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252329.jpg" />
+  <img src="Z:/picture/004/save_picture_252329.jpg" />
 </div>
 
 
@@ -355,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251381.jpg" />
+  <img src="Z:/picture/004/save_picture_251381.jpg" />
 </div>
 
 
@@ -381,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251171.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251130.jpg" />
 </div>
 
 
@@ -434,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249793.jpg" />
+  <img src="Z:/picture/004/save_picture_249793.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249212.jpg" />
+  <img src="Z:/picture/004/save_picture_249212.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242552.jpg" />
+  <img src="Z:/picture/005/save_picture_242552.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239737.jpg" />
+  <img src="Z:/picture/004/save_picture_239737.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237964.jpg" />
+  <img src="Z:/picture/004/save_picture_237964.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233273.jpg" />
+  <img src="Z:/picture/005/save_picture_233273.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230040.jpg" />
+  <img src="Z:/picture/005/save_picture_230040.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229318.jpg" />
+  <img src="Z:/picture/004/save_picture_229318.jpg" />
 </div>
 
 
@@ -647,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229311.jpg" />
+  <img src="Z:/picture/004/save_picture_229311.jpg" />
 </div>
 
 
@@ -658,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2EF320AB07E3E7E2008661ADF8C459BEE7076DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267915   (229046) от 09.12.2018
-
-Евгений Сулес | Мир виски и виски мира (2017) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство виски – искусство, которому, по самым скромным подсчетам, уже половина тысячи лет. Но и потребление виски – не меньшее искусство. Поэтому энциклопедические данные о виски в книге известного эксперта и писателя Евгения Сулеса приправлены личными историями любви к этому напитку и людям, размышлениями и «лирическими отступлениями». Здесь важна атмосфера (   Читать дальше...   )Жанр: Алкогольные напитки, Интересные фактыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA04CE8A7EFF587471F9639C82A511C7C763346
 ```
 
 https://mybot314.ru/tekegram_catalog/

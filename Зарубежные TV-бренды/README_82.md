@@ -1,3 +1,109 @@
+###  Публикация: 1247026   (456831) от 13.09.2018
+
+NG. Легенда о хрустальном черепе / Legend of the Crystal Skulls (2008) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это один из самых таинственных и противоречивых предметов в мире - хрустальный череп, который называют "роковым" черепом. Легенда о нем легла в основу голливудского блокбастера 2008 г, а человек, сделавший его знаменитым, был Индианой Джонсом, который в реальной жизни был отчаянным авантюристом и археологом-грабителем. Этот и другие черепа положили начало (   Читать дальше...   )Производство: Великобритания, Picture Films, Smithsonian Networks, National Geographic ChannelЖанр: Документальный, исследованиеРежиссер: Тилман РеммПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: АнглийскиеПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B422E227106DBB0F980386709FBA26563AC1B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319371   (456441) от 25.08.2019
+
+History Channel. Династия Трампов / Biography: The Trump Dynasty (2019) HDTVRip [H.264/1080p-LQ] (серии 3 из 3)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал расскажет о жизни 45-го президента Соединенных Штатов и его семьи.Производство: США, Left/Right, A+E Networks, History ChannelЖанр: Документальный, биография, историяРежиссер: Бэнкс ТерверПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:708B593A842E31761BC8235D04064C073AD94118
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551021   (455393) от 23.09.2012
+
+BBC: Выдающиеся женщины ХХ столетия. Амелия Эрхарт / Extraordinary Women.  Amelia Earhart (2011) SATRip [10 из 13]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455393.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Выдающиеся женщины ХХ столетия" - документальный сериал канала BBC о великих женщинах своего времени, преодолевших трудности на своем пути и добившихся успехов каждая в своем направлении. Грейс Келли, Коко Шанель, Одри Хепберн, Индира Ганди, мадам Чан Кайши, Амелия Эрхарт... Ими восхищались и восхищаются миллионы людей во всем мире, их любили и ненавидели, а иногда даже боялись. Они доказали, что женщина тоже может достичь высот в своем деле и одержали победу. Казалось, у них было все: власть, богатство и восхищение. Но помимо головокружительного успеха, в жизни этих женщин случались страдания и личные трагедии...Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27522138A9E7D7286E45AF78906F0373AA1EBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 2484   (454979) от 30.09.2015
+
+BBC: Нацизм: Предостережение истории (1999) DVDRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочетание военной кинохроники (часть которой представлена никогда не публиковавшимися ранее цветными (!) материалами), красочных карт и схем, а также компьютерной графики и специально аранжированной музыки великих композиторов — все это позволяет современному зрителю ярче и рельефнее представить и понять события тех далеких дней.
+
+Второй фильм серии разоблачает широко (   Читать дальше...   )Жанр: Документальный, Хроники, История
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269512E4AA00AFCD1E020B2A921BE6141FD9BC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 523685   (454781) от 23.09.2012
 
 Discovery: Фантасты-предсказатели (Пророки научной фантастики). Мэри Шелли [сезон 1 серия 1]/ Prophets of Science Fiction. Mary Shelly (2011) HDTVRip
@@ -6,7 +112,7 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454781.jpg" />
+  <img src="Z:/picture/008/save_picture_454781.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ NG: Взгляд изнутри: Северная Корея - тогда и с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454733.jpg" />
+  <img src="Z:/picture/008/save_picture_454733.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ NGW: Удивительные летучие мыши / Incredible Bats (2016) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454684.jpg" />
+  <img src="Z:/picture/008/save_picture_454684.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454675.jpg" />
+  <img src="Z:/picture/008/save_picture_454675.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ NG. Мафия. Тото Риина / Mafia Confidential. Toto Riina (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454640.jpg" />
+  <img src="Z:/picture/008/save_picture_454640.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ BBC. Загадки квантовой физики / The Secrets of Quantum Phy
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454311.jpg" />
+  <img src="Z:/picture/008/save_picture_454311.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ NG: Международный аэропорт Дубай. Серия 2 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453852.jpg" />
+  <img src="Z:/picture/008/save_picture_453852.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453386.jpg" />
+  <img src="Z:/picture/008/save_picture_453386.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453376.jpg" />
+  <img src="Z:/picture/008/save_picture_453376.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ BBC: Атлантида была здесь / Atlantis: the Evidence (2010) IPTV
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453244.jpg" />
+  <img src="Z:/picture/008/save_picture_453244.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ Discovery: Плутон: первая встреча / Direct from Pluto-The Fir
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453238.jpg" />
+  <img src="Z:/picture/008/save_picture_453238.jpg" />
 </div>
 
 
@@ -294,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453163.jpg" />
+  <img src="Z:/picture/008/save_picture_453163.jpg" />
 </div>
 
 
@@ -320,7 +426,7 @@ BBC Horizon: В какой Вселенной мы находимся? / Which U
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453102.jpg" />
+  <img src="Z:/picture/008/save_picture_453102.jpg" />
 </div>
 
 
@@ -346,7 +452,7 @@ NG: Исследователь 2.0 / Explorer (2015) HDTV [H.264/1080i] (8 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453076.jpg" />
+  <img src="Z:/picture/008/save_picture_453076.jpg" />
 </div>
 
 
@@ -372,7 +478,7 @@ NG. Нападение нацистов на США (Атака нацистов
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452648.jpg" />
+  <img src="Z:/picture/008/save_picture_452648.jpg" />
 </div>
 
 
@@ -398,7 +504,7 @@ History Channel. Погода, изменившая ход истории / Weat
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452422.jpg" />
+  <img src="Z:/picture/008/save_picture_452422.jpg" />
 </div>
 
 
@@ -424,7 +530,7 @@ Discovery. Самая странная погода на Земле / Strangest 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452414.jpg" />
+  <img src="Z:/picture/008/save_picture_452414.jpg" />
 </div>
 
 
@@ -450,7 +556,7 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452361.jpg" />
+  <img src="Z:/picture/008/save_picture_452361.jpg" />
 </div>
 
 
@@ -476,7 +582,7 @@ BBC: Мужчина и Женщина / The Human Sexes (1997) [H.264] DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452350.jpg" />
+  <img src="Z:/picture/008/save_picture_452350.jpg" />
 </div>
 
 
@@ -502,7 +608,7 @@ Discovery: Ледяное золото / Ice Cold Gold (2015) HDTVRip (3 сез�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451032.jpg" />
+  <img src="Z:/picture/008/save_picture_451032.jpg" />
 </div>
 
 
@@ -528,7 +634,7 @@ National Geographic: Американские транссексуалы / Ameri
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450279.jpg" />
+  <img src="Z:/picture/008/save_picture_450279.jpg" />
 </div>
 
 
@@ -555,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448889.jpg" />
+  <img src="Z:/picture/008/save_picture_448889.jpg" />
 </div>
 
 
@@ -566,111 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2E3BFF06488628E0CF17FCE8780746C9515379E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248047   (448481) от 17.09.2018
-
-NG: Голливудская наука. Чудо машины / Hollywood Science. Amazing Vehicles (2006) HDTVRip [H.264/720p-LQ] (Сезон 1, серии 3 из 5)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как Голливуд создаёт на экране невозможное. И посмотрите, какие технические ухищрения помогают ему в этом!Производство: США, Prometheus Entertainment, National Geographic ChannelЖанр: Документальный, познавательный, научно-популярныйПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии х~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506BC5F44CFA7188076366BD88636C1BA6D02428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248019   (448476) от 17.09.2018
-
-NGW: Прекрасная Америка: Величественный Северо-Запад. В тени Скалистых Гор / The Mighty Northwest (2018) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с жизнью дикой природы на Северо-Западе Америки.
-Жизнь в долинах Скалистых Гор и на склонах бьет ключом, но животным здесь для выживания приходится преодолевать целый ряд трудностей.Производство: США, Red Rock Films, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5989C1C717F985506B6F782C41EA3A7DBC66797B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248031   (448320) от 17.09.2018
-
-NGW: Национальные парки Америки / America's National Parks (2017-2018) HDTVRip [H.264/1080p-LQ] (Сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соединенные Штаты Америки являются домом для некоторых из самых невероятных национальных парков в мире. Йеллоустоун, Йосемити и Гранд-Каньон - это лишь некоторые из природных чудес, которые может представить страна. Настройтесь на невиданные ранее кадры этой волшебной среды и уникальных животных, которые ее населяют.Производство: США, NDR Naturfilm, Studio Hamburg DocLights, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Генри М. Микс, Ян Кочачевский, Ян Хафт, Уве Андерс, Оливер ГетцльПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C5A33F6556B447B505BC8ABEEE082A85A45B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247852   (448199) от 17.09.2018
-
-BBC: Каковы размеры Вселенной? / How Big is the Universe? (2012) HDTV [H.264/1080i-LQ] (Сезон 49, эпизод 4)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это один из самых загадочных вопросов, который ученые могут задать: насколько велика Вселенная, в которой мы живем? Эта серия цикла Горизонт расскажет нам об амбициозном проекте космологов, которые создают самую большую карту в истории - карту Вселенной. И она страннее, чем кто-либо мог себе представить - Вселенная без конца, Вселенная, которая простирается далеко (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, научно-популярный, космосРежиссер: Кенни СкоттПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87B1475A2F1A61457E482D83F17B59C2ECE1138D
 ```
 
 https://mybot314.ru/tekegram_catalog/

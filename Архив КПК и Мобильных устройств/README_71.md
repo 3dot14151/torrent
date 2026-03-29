@@ -1,3 +1,29 @@
+###  Публикация: 1063534   (416018) от 24.10.2016
+
+Дестини включает радио / Destiny Turns on the Radio (1995) WEB-DLRip [H.264] [MP4|1024x576]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_416018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джулиан Годдард бежит из тюрьмы и сразу направляется в Лас-Вегас, где надеется найти свою любовь Люсиль и, возможно, друга Торо с деньгами, из-за которых он и сел в тюрьму. Но Люсиль живет с хозяином казино, а друг бормочет о Дьяволе, вместе с которым деньги исчезли в ночную грозу на дне пересохшего теперь бассейна. Если бы Торо знал, что подвез Джулиана в Лас-Вегас (   Читать дальше...   )Производство: США / Rysher Entertainment, Savoy PicturesЖанр: Фэнтези,  Комедия, КриминалРежиссер: Джек БэранАктеры: Дилан МакДермотт, Нэнси Трэвис, Джеймс ЛеГрос, Квентин Тарантино, Джеймс Белуши, Джанет Кэрролл, Дэвид Кросс, Ричард Эдсон, Боб Голдтуэйт, Бэрри Шебака Хенли, Лиза Джейн Перски, Сара Триггер, Трейси УолтерПеревод: Многоголосый закадровый - (НТВ+), Одноголосый закадровый - (Андрей Гаврилов)Язык субтитров: АнглийскийПродолжительность: 01:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F592801AF5766FFD40A402BC4DBE77BAB011A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947943   (415751) от 18.10.2015
 
 AVL Pro Antivirus & Security 2.0.1 [Ru/Multi]
@@ -6,7 +32,7 @@ AVL Pro Antivirus & Security 2.0.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415751.jpg" />
+  <img src="Z:/picture/008/save_picture_415751.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415672.jpg" />
+  <img src="Z:/picture/008/save_picture_415672.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ VK mp3 mod версия 44/520 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415655.jpg" />
+  <img src="Z:/picture/008/save_picture_415655.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ AntTek Explorer EX Pro 5.5 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415630.jpg" />
+  <img src="Z:/picture/008/save_picture_415630.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Advanced Download Manager Pro 5.0.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415488.jpg" />
+  <img src="Z:/picture/008/save_picture_415488.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Battery Widget Reborn Pro 2.2.5 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415394.jpg" />
+  <img src="Z:/picture/008/save_picture_415394.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Iride UI - Icon Pack 1.5.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415318.jpg" />
+  <img src="Z:/picture/008/save_picture_415318.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ HD Full Screen Caller ID Pro 2.4.6 [Ru] - Фото вызывающего або
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415110.jpg" />
+  <img src="Z:/picture/008/save_picture_415110.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413916.jpg" />
+  <img src="Z:/picture/005/save_picture_413916.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Submarine Crusher 1.0.3  [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413702.jpg" />
+  <img src="Z:/picture/005/save_picture_413702.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Alarm Plus Millenium 4.0 [Ru] - Многофункциональный буди�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413593.jpg" />
+  <img src="Z:/picture/008/save_picture_413593.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413407.jpg" />
+  <img src="Z:/picture/005/save_picture_413407.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413404.jpg" />
+  <img src="Z:/picture/005/save_picture_413404.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Nostalgia.NES Pro 1.12.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413337.jpg" />
+  <img src="Z:/picture/008/save_picture_413337.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413097.jpg" />
+  <img src="Z:/picture/005/save_picture_413097.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Apparatus 1.0.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_411234.jpg" />
+  <img src="Z:/picture/005/save_picture_411234.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_411116.jpg" />
+  <img src="Z:/picture/005/save_picture_411116.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ Teron - Icon Pack 1.0.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411105.jpg" />
+  <img src="Z:/picture/008/save_picture_411105.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ Tekken 3 (конвертированная с Sony PS) для SE Xperia Play (п
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_410756.jpg" />
+  <img src="Z:/picture/005/save_picture_410756.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ TuneIn Radio Pro v29.8.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409799.jpg" />
+  <img src="Z:/picture/008/save_picture_409799.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ YouTube Creator Studio v1.4.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409469.jpg" />
+  <img src="Z:/picture/008/save_picture_409469.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ Smart Cover 4.0.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409344.jpg" />
+  <img src="Z:/picture/008/save_picture_409344.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ Duolingo 3.10.3 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409038.jpg" />
+  <img src="Z:/picture/008/save_picture_409038.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ BlueStacks App Player 0.7.5 Beta 1 [MULTi / Русский]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_409012.jpg" />
+  <img src="Z:/picture/005/save_picture_409012.jpg" />
 </div>
 
 
@@ -649,7 +675,7 @@ Garmin: City Navigator Europe NTU 2016.20 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408938.jpg" />
+  <img src="Z:/picture/008/save_picture_408938.jpg" />
 </div>
 
 
@@ -660,32 +686,6 @@ Garmin: City Navigator Europe NTU 2016.20 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C97D37844CD7ECE92A77256F9B01C909D450622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948626   (408044) от 22.10.2015
-
-Сын за отца (2014) WEBRip [H.264] (серии 1-24 из 24) [MP4|640х360]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вадим — молодой человек строгих нравов и чётких жизненных правил. Он обожает свою невесту, мать и отца, любит и умеет делать свою работу. Вадим хорошо понимает, чего хочет в жизни и знает, как добиться поставленной цели. Однако резкий поворот судьбы в одночасье ломает весь выстроенный вокруг Вадима мир, открыв глаза на его истинное происхождение и вынуждая пересмотреть (   Читать дальше...   )Производство: РоссияЖанр: Криминал, ДрамаРежиссер: Резо Гигинеишвили, Леван КогуашвилиАктеры: Антон Макарский, Алексей Горбунов, Татьяна Лютаева, Денис Никифоров, Светлана Устинова, Марина Дюжева, Александр Феклистов, Марина Коняшкина, Антон Шурцов, Виталий Кищенко, Николай Шатохин, Анна Халилулина, Александр Барановский, Валентин Терехов, Мартиньш Вилсонс, Алина Сергеева, Пётр Баранчеев, Яна Сексте, Михаил Негин, Владимир Алфёров, Наталья ВинтиловаПродолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E9DCE5C1F49D65EB1891B2D01061F98B9E8589
 ```
 
 https://mybot314.ru/tekegram_catalog/

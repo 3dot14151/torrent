@@ -6,7 +6,7 @@ Counter-Strike: Global Offensive [Ru/En/Multi24] (Steam-Rip/1.17.3.0) 2012 | RG 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510140.jpg" />
+  <img src="Z:/picture/008/save_picture_510140.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lost Horizon  [Ger] (L) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510093.jpg" />
+  <img src="Z:/picture/008/save_picture_510093.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Swordsman (2015) [Ru/En] (0.0.30) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509815.jpg" />
+  <img src="Z:/picture/008/save_picture_509815.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ The Amazing Spider-Man [Ru/En/Multi6] (RePack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509492.jpg" />
+  <img src="Z:/picture/008/save_picture_509492.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Darksiders II: Death Lives - Limited Edition [Ru] (Repack/Upd.1) 2012 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509411.jpg" />
+  <img src="Z:/picture/008/save_picture_509411.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509406.jpg" />
+  <img src="Z:/picture/008/save_picture_509406.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ The Amazing Spider-Man [Ru] (RePack/1.0) 2012 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509310.jpg" />
+  <img src="Z:/picture/008/save_picture_509310.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Dark Souls: Prepare To Die Edition [Ru/En/Multi9] (L/1.0) 2012 [Без табл�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509199.jpg" />
+  <img src="Z:/picture/008/save_picture_509199.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508993.jpg" />
+  <img src="Z:/picture/008/save_picture_508993.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Transformers: Fall of Cybertron [En] (RePack) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508308.jpg" />
+  <img src="Z:/picture/008/save_picture_508308.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Hitman: Sniper Challenge (NoDVD/1.0 + FIX) 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508298.jpg" />
+  <img src="Z:/picture/008/save_picture_508298.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Angry Birds Seasons [En] (L/2.5.0) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508292.jpg" />
+  <img src="Z:/picture/008/save_picture_508292.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Transformers: War for Cybertron / Трансформеры: Битва за Ки
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508109.jpg" />
+  <img src="Z:/picture/008/save_picture_508109.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Crookz - The Big Heist (2015) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507765.jpg" />
+  <img src="Z:/picture/008/save_picture_507765.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Satellite Reign (2015) [En] (1.02) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507764.jpg" />
+  <img src="Z:/picture/008/save_picture_507764.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Zero Tsukihami no Kamen (Fatal Frame4 Mask of the Lunar Eclipse) [JPN] [NTSC-J] 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507276.jpg" />
+  <img src="Z:/picture/008/save_picture_507276.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Project CARS (2015) [Ru/Multi] (3.0/dlc) Repack YelloSOFT [Digital Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506892.jpg" />
+  <img src="Z:/picture/008/save_picture_506892.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Satellite Reign (2015) [En] (2.0.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506833.jpg" />
+  <img src="Z:/picture/008/save_picture_506833.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Angry Birds Space (L/1.3.0) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506269.jpg" />
+  <img src="Z:/picture/008/save_picture_506269.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Armello (2015) [Ru/Multi] License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505052.jpg" />
+  <img src="Z:/picture/008/save_picture_505052.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Volume (2015) [Ru/Multi] (1.1.00) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505003.jpg" />
+  <img src="Z:/picture/008/save_picture_505003.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Jagged Alliance: Crossfire [Ru] (RePack/1.0.1) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504845.jpg" />
+  <img src="Z:/picture/008/save_picture_504845.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Galaxy on Fire 2. Full HD [Ru] (RePack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504795.jpg" />
+  <img src="Z:/picture/008/save_picture_504795.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Damnation [Ru/En] (RePack/1.0) 2009 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504670.jpg" />
+  <img src="Z:/picture/008/save_picture_504670.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Dark Souls: Prepare To Die Edition [En/Ru/Multi9] (Repack/1.0) 2012 | SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504486.jpg" />
+  <img src="Z:/picture/008/save_picture_504486.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Dark Souls: Prepare To Die Edition [Ru] (Repack/1.0.0.1) 2012 | {AVG}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504392.jpg" />
+  <img src="Z:/picture/008/save_picture_504392.jpg" />
 </div>
 
 

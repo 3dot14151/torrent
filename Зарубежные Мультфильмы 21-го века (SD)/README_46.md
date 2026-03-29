@@ -1,3 +1,110 @@
+###  Публикация: 1265194   (276353) от 26.11.2018
+
+Босс-молокосос / The Boss Baby (2017) DVD5 [Custom]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта актуальная во все времена история для взрослых и детей рассказывается от лица семилетнего брата новорожденного — фантазера Тима, который ревнует его к родителям. Но главный герой — совсем не простой ребенок, он обладает лидерскими задатками, уже носит деловые костюмы и во всем видит бизнес-задачу.
+Однажды Тим узнает о готовящемся заговоре, целью которого является (   Читать дальше...   )Производство: США / 20th Century Fox, DreamWorks AnimationЖанр: Мультфильм, фэнтези, комедия, семейныйРежиссер: Том МакГратПерсонажи: Алек Болдуин, Майлз Кристофер Бакши, Тоби Магуайр, Стив Бушеми, Джимми Киммел, Лиза Кудроу, Конрад Вернон, Джеймс МакГрат, Дэвид Сорен, ВивиЭнн ЙиПеревод: Дублированный (лицензия)Субтитры: Русские, английские, эстонские, латышские, литовские, украинскиеПродолжительность: 01:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:994447DF5808F6061A6A95F887FE55B3BA339234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188114   (275432) от 01.12.2017
+
+Дозор джунглей / Les as de la jungle (2017) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_275432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пингвин Морис тигрового окраса уверен, что он и в самом деле тигр — герой, в котором нуждаются джунгли. Вместе со своей энергичной командой разношерстных животных под названием «Дозор джунглей» он неусыпно стоит на страже справедливости и покоя. С переменным успехом, конечно, но они стараются. Однако вскоре ему предстоит столкнуться с невероятно коварным и безжалостным (   Читать дальше...   )Производство: Франция / TAT Productions, Master Films, Vanilla Seed, France Télévisions, Centre National de la Cinématographie (CNC), Région Midi-Pyrénées, Procirep, AngoaЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Дэвид АлоАктеры: Пол Борн, Филипп Бозо, Паскаль Касанова, Эммануэль Кюртиль, Мишель Меля, Селин Монсарра, Лоран Морто, Жан-Филипп Пюмартин, Барбара Тиссье, Алексис ТомассианПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC007D78FE86216E6005AA05187C1217CE6AF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188362   (274253) от 02.12.2017
+
+Скуби-Ду! Нападение Меха-Пса / Scooby-Doo! Mecha Mutt Menace (2013) DVDRemux [EN / RU Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_274253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команде придется сразиться с Меха-Псом, революционным луноходом на радиоуправлении.Производство: США, Warner Bros. AnimationЖанр: Рисованная анимация, Комедия, ПриключенияРежиссер: Виктор КукАктеры: Мэттью Лиллард, Минди Кон, Фрэнк Уэлкер, Грей ДеЛайл и др.Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: русские, английскиеПродолжительность: 00:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A171BA2BB2CFC3FF6FBC34F2155010110623BA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083340   (273125) от 16.12.2016
+
+Аисты / Storks (2016) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аисты приносят детей… или, во всяком случае, раньше приносили. Теперь же они занимаются доставкой посылок для огромного сайта интернет-продаж. Джуниор, лучший аист в курьерской компании, должен пойти на повышение, но он случайно активирует машину для создания детей и получает очаровательную, но совершенно незапланированную девочку.
+
+Пытаясь доставить эту «посылку» (   Читать дальше...   )Производство: США / Warner Bros. Pictures, Warner Bros. AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Николас Столлер, Даг СвитлэндПерсонажи: Энди Сэмберг, Кэти Краун, Келси Грэммер, Дженнифер Энистон, Тай Бурелл, Антон Старкман, Кигэн-Майкл Ки, Джордан Пил, Дэнни Трехо, Стив ГликманПеревод: Дублированный (iTunes)Язык субтитров: Русский (форс., полные) Английский (полные, SDH)Продолжительность: 01:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7B4B1ABF921C323CAA206D7DA108B63873CFC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083266   (273123) от 16.12.2016
 
 Кубо. Легенда о самурае / Kubo and the Two Strings (2016) BDRip
@@ -6,7 +113,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273123.jpg" />
+  <img src="Z:/picture/008/save_picture_273123.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273076.jpg" />
+  <img src="Z:/picture/008/save_picture_273076.jpg" />
 </div>
 
 
@@ -60,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273066.jpg" />
+  <img src="Z:/picture/008/save_picture_273066.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272620.jpg" />
+  <img src="Z:/picture/008/save_picture_272620.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271551.jpg" />
+  <img src="Z:/picture/008/save_picture_271551.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271470.jpg" />
+  <img src="Z:/picture/008/save_picture_271470.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270387.jpg" />
+  <img src="Z:/picture/008/save_picture_270387.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269930.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269850.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269289.jpg" />
 </div>
 
 
@@ -274,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268619.jpg" />
 </div>
 
 
@@ -300,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265494.jpg" />
 </div>
 
 
@@ -326,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265259.jpg" />
 </div>
 
 
@@ -352,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265201.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265190.jpg" />
 </div>
 
 
@@ -404,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264034.jpg" />
 </div>
 
 
@@ -430,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262519.jpg" />
 </div>
 
 
@@ -456,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262170.jpg" />
 </div>
 
 
@@ -482,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260887.jpg" />
 </div>
 
 
@@ -508,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260807.jpg" />
 </div>
 
 
@@ -534,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260514.jpg" />
+  <img src="Z:/picture/005/save_picture_260514.jpg" />
 </div>
 
 
@@ -560,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260465.jpg" />
+  <img src="Z:/picture/005/save_picture_260465.jpg" />
 </div>
 
 
@@ -571,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9DF7EDF4238E6A36E1C8B4E8A52209651FDE756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504568   (260428) от 02.06.2012
-
-Марица / Mariza (2008) [H.264] WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старый рыбак долго пытается убедить своего осла подняться на крутую извилистую дорогу острова. Казалось бы уже ничего не поможет, но старик всё же находит способ заставить осла занести ношу на гору.Жанр: короткометражный анимационный фильмРежиссер: Константин КристаллисПерсонажи: Рыбак и осликПеревод: Без слов / НемойПродолжительность: 00:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6CA9B42BAD0B388F0BB2E17C9DD56784E2A63F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504545   (260235) от 01.06.2012
-
-Пьяный блюз / Alkiblues (2008) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот до чего доводит злоупотребление алкоголем, или "как начинается "белочка"Жанр: короткометражный анимационный фильмРежиссер: Аrtur MangusПерсонажи: подвыпивший мужичокПеревод: Без слов / НемойПродолжительность: 00:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA69BC34CAA1415240759925F8F7D59371A3D936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503771   (260001) от 31.05.2012
-
-Отважная Лифи / Leafie, a Hen Into the Wild (2011) BDRip [KOR / RU Sub, EN Sub]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неугомонная курочка Лифи оставляет уютную сытую жизнь на птицефабрике и отправляется в лес. Волей случая она спасает маленького утенка от ласки и берет его под свое крыло. Веселые и опасные приключения ждут эту странную парочку.Жанр: мультфильм, драма, приключения, семейныйРежиссер: Сон-Юн АПерсонажи: Курочка, утенок, выдра и др.Перевод: ОтсутствуетЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3143AA4571369330595A8CE941E82B3C227BCD8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504128   (259960) от 31.05.2012
-
-Александр Великий / Alexander the Great (2006) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259960.jpg" />
-</div>
-
-
-###  Подробнее
-
-История жизни величайшего полководца всех времен — Александра Македонского в новом полнометражном мультфильме. Маленький Александр, воспитанным философом Аристотелем мечтал стать героем как легендарный Ахиллес. Когда персидский император Дарий коварно убивает его отца, царя Филиппа, юный Александр собирает армию, чтобы отомстить. Его путь ведет в столицу Дария — (   Читать дальше...   )Жанр: история, приключенияРежиссер: Daehong KimПерсонажи: Александр Македонский, царь Филипп, император Дарий и др.Перевод: ДублированныйПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4279DC1F7611D0F55837AD81C65A5A4FF390DF94
 ```
 
 https://mybot314.ru/tekegram_catalog/

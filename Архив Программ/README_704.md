@@ -1,3 +1,29 @@
+###  Публикация: 1027747   (694298) от 20.06.2016
+
+Soft4Boost Any Audio Record 4.9.9.403 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатная утилита, которая позволяет записывать звуковые данные с различных источников, таких как микрофон, виниловые пластинки, аудио CD, видеоигры, интернет-радиопередачи, программы типа Real Player и Skype.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4A54F3064C5074C3E649576E9603DDD6636484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027762   (694296) от 20.06.2016
 
 Набор обновлений UpdatePack-XPSP3-Rus Live 16.6.20 [Ru]
@@ -6,7 +32,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694296.jpg" />
+  <img src="Z:/picture/008/save_picture_694296.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Soft4Boost AMPlayer 3.8.5.299 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694289.jpg" />
+  <img src="Z:/picture/008/save_picture_694289.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Process Lasso Pro 8.9.8.12 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694286.jpg" />
+  <img src="Z:/picture/008/save_picture_694286.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Vivaldi 1.2.490.43 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694282.jpg" />
+  <img src="Z:/picture/008/save_picture_694282.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Soft4Boost PC Win Booster Free 9.3.9.563 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694281.jpg" />
+  <img src="Z:/picture/008/save_picture_694281.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Autorun Organizer 4.43 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694260.jpg" />
+  <img src="Z:/picture/008/save_picture_694260.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Reg Organizer 8.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694244.jpg" />
+  <img src="Z:/picture/008/save_picture_694244.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ One Commander 3.4.40.1 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694243.jpg" />
+  <img src="Z:/picture/008/save_picture_694243.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ IcoFX 3.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694241.jpg" />
+  <img src="Z:/picture/008/save_picture_694241.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ On1 Photo 10.5.0.2943 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694175.jpg" />
+  <img src="Z:/picture/008/save_picture_694175.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Freemake Video Converter 4.1.9.18 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694167.jpg" />
+  <img src="Z:/picture/008/save_picture_694167.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Advanced Onion Router 0.3.0.24 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694161.jpg" />
+  <img src="Z:/picture/008/save_picture_694161.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ GeoGebra 6.0.599.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694157.jpg" />
+  <img src="Z:/picture/008/save_picture_694157.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Ant Download Manager Pro 1.19.3 Build 72843 (promo GAOTD) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694152.jpg" />
+  <img src="Z:/picture/008/save_picture_694152.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ AIMP 5.02 Build 2366 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694135.jpg" />
+  <img src="Z:/picture/008/save_picture_694135.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ jv16 PowerTools 7.3.1.1372 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694134.jpg" />
+  <img src="Z:/picture/008/save_picture_694134.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Viber 17.1.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694128.jpg" />
+  <img src="Z:/picture/008/save_picture_694128.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ K-Lite Codec Pack Update 14.8.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694073.jpg" />
+  <img src="Z:/picture/008/save_picture_694073.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Cockos - REAPER 5.973 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694063.jpg" />
+  <img src="Z:/picture/008/save_picture_694063.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Skype 8.41.0.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694057.jpg" />
+  <img src="Z:/picture/008/save_picture_694057.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ CrystalDiskInfo 7.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694053.jpg" />
+  <img src="Z:/picture/008/save_picture_694053.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ GOM Player 2.3.3 Build 5254 Final Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694050.jpg" />
+  <img src="Z:/picture/008/save_picture_694050.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ DxO Optics Pro 11.0.0 Build 11397 Elite [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694038.jpg" />
+  <img src="Z:/picture/008/save_picture_694038.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ XnViewMP 0.96.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694031.jpg" />
+  <img src="Z:/picture/008/save_picture_694031.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ SIV (System Information Viewer) 5.51 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694023.jpg" />
+  <img src="Z:/picture/008/save_picture_694023.jpg" />
 </div>
 
 
@@ -641,34 +667,6 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1122C2D04057F7171454B13D38361A4E3BB8FFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403224   (694019) от 18.08.2020
-
-Balabolka 2.15.0.751 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа "Балаболка" предназначена для чтения вслух текстовых файлов.
-Для воспроизведения звуков человеческого голоса могут использоваться
-любые речевые синтезаторы, установленные на компьютере.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651EB6CE2934D6516831F75778FB9546CA469BDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

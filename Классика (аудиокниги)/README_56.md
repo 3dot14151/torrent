@@ -1,3 +1,115 @@
+###  Публикация: 1824593   (128823) от 15.10.2025
+
+Михаил Лермонтов | Маскарад (Радиопостановка) (1993) [MP3, Андрей Толубеев, Ирина Мазуркевич и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русские писатели XIХ – начала ХХ века.
+Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
+Драма «Маскарад» (годы написания: 1835-1836) М.Ю. Лермонтова в четырёх действиях, написанная в стихах. Произведение повествует о петербургском обществе 1830-х годов…
+(   Читать дальше...   )Жанр: Русская литература, классика, драма, пьесаИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 02:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A324965C1974F6F5BBAAB295E41AD13A95D1E720
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683335   (128695) от 10.12.2023
+
+Дмитрий Фурманов | Чапаев (2013) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выдающийся русский советский писатель-прозаик, революционер, военный и политический деятель Дмитрий Андреевич Фурманов (1891–1926) был участником гражданской войны, комиссаром 25-й Чапаевской дивизии.
+Роман «Чапаев» – самое значительное произведение писателя о гражданской войне.
+
+«Чапаевскую славу родили не столько его героические дела, сколько сами окружающие его (   Читать дальше...   )Жанр: Русская литература, советская классика, романИздательство: МедиаКнигаПродолжительность: 12:20:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E2EF5B5106A85961C69120398143B46155D9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824097   (128619) от 14.10.2025
+
+Александр Дюма | Трилогия о Генрихе Наваррском (Книга 3). Сорок пять (2025) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Париж охвачен смутой. После изгнания герцога Алансонского, брата и наследника короля Франции, столица погружается в хаос, расползаются слухи, плетется сеть заговоров и интриг. Кто спасет Генриха III? Кто остановит амбициозного герцога де Гиза? В этой смертельной игре нет логики и справедливости – только борьба за выживание!
+В водовороте исторических событий появляется (   Читать дальше...   )Жанр: Классика, история, приключенияИздательство: АрдисПродолжительность: 31:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D199E9355FB6D160C30BFE3E50B9A13210DAF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824096   (128618) от 14.10.2025
+
+Александр Дюма | Трилогия о Генрихе Наваррском (Книга 2). Графиня де Монсоро (2025) [MP3, Алексей Багдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркая смесь истории, драмы и приключений в незабываемых декорациях Франции конца XVI века, во времена гугенотских войн. «Графиня де Монсоро» продолжает серию книг, начатую романом «Королева Марго», и расширяет историческую панораму, посвященную эпохе Валуа.
+В центре сюжета храбрый и благородный граф Луи де Бюсси, преданный герцогу Анжуйскому и страстно влюбленный (   Читать дальше...   )Жанр: Классика, история, приключенияИздательство: АрдисПродолжительность: 37:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6A2EA720CD0ED562A17C6D809D2EA492B001D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 325330   (128501) от 11.12.2023
 
 Валерий Брюсов | Избранное (2007) [MP3, Анатолий Фролов]
@@ -6,7 +118,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128501.jpg" />
 </div>
 
 
@@ -34,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128484.jpg" />
 </div>
 
 
@@ -61,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128455.jpg" />
 </div>
 
 
@@ -89,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128383.jpg" />
 </div>
 
 
@@ -118,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128382.jpg" />
 </div>
 
 
@@ -147,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128361.jpg" />
 </div>
 
 
@@ -175,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128352.jpg" />
 </div>
 
 
@@ -203,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128340.jpg" />
 </div>
 
 
@@ -230,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128325.jpg" />
 </div>
 
 
@@ -256,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128292.jpg" />
 </div>
 
 
@@ -283,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128244.jpg" />
 </div>
 
 
@@ -310,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128238.jpg" />
 </div>
 
 
@@ -338,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128236.jpg" />
 </div>
 
 
@@ -366,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128216.jpg" />
 </div>
 
 
@@ -394,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128213.jpg" />
 </div>
 
 
@@ -421,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128100.jpg" />
 </div>
 
 
@@ -448,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128094.jpg" />
 </div>
 
 
@@ -475,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128092.jpg" />
 </div>
 
 
@@ -504,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128090.jpg" />
 </div>
 
 
@@ -532,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127929.jpg" />
 </div>
 
 
@@ -560,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127914.jpg" />
 </div>
 
 
@@ -587,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127909.jpg" />
 </div>
 
 
@@ -600,118 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:641CECD0458F8C246305AB2A68642192D97878E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 420691   (127906) от 15.12.2023
-
-Маргарет Митчелл | Унесённые ветром (2007) [MP3, Инна Сытник]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый роман американской писательницы Маргарет Митчелл «Унесённые ветром» стал бестселлером с первых же дней своего появления и продолжает оставаться им вот уже семь десятилетий.
-История Скарлетт О'Хара, представительницы знатного рода южан, пережившей ужасы гражданской войны 1861-1865 гг., утратившей богатство, положение, привычный образ жизни и едва не лишившейся (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: БиблиофоникаПродолжительность: 29:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:434C0B32CDEC0196DB63FED718BC89DED1BCEB18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 426672   (127899) от 15.12.2023
-
-Маргарет Митчелл | Унесённые ветром (2005) [MP3, Евгений Терновский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: «Истории любви».
-«Говорящая книга» – явление для всех нас с детства знакомое, и, одновременно, совершенно новое. XXI век позволил на легком маленьком CD уместить толстый книжный том, на много часов чтения. Сберегая время и драгоценное зрение, теперь можно получать информацию самым простым и естественным способом. Именно на слух младенец начинает постигать (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПродолжительность: 28:25:12
-
-Проходят годы и годы, но «Унесенные ветром» не стареют, и теперь уже новым читателям и читательницам, а вернее для «Говорящей книги» – слушателям и слушательницам, предстоит смеяться и плакать, любить и страдать, бороться и надеяться вместе с великолепной Скарлетт О'Хара.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEA526CA8AEF3AEFCBD83A709E3162178722C18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684445   (127796) от 15.12.2023
-
-Джейн Остин | Эмма (2020) [MP3, Наталия Казначеева]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Золотая классика мировой литературы.
-Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
-«Эмма» (1816) – четвёртый большой роман Джейн (Остен) Остин, последний, опубликованный при её жизни. Самое едкое, точное и саркастичное (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ООО «Эвербук» , StorySide ABПродолжительность: 17:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452F334855FBE77A47855B6A337C637A637B473C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684525   (127791) от 15.12.2023
-
-Джейн Остин | Мэнсфилд-парк (2020) [MP3, Ольга Плетнёва]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Золотая классика мировой литературы.
-Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
-Фанни, взятую на воспитание богатыми родственниками, ежедневно третируют высокомерные тетушки и кузины. Однако добродетели девушки: ее (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ООО «Эвербук», StorySide ABПродолжительность: 19:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391C698175B4C25EB339F1192C2883EB12133600
 ```
 
 https://mybot314.ru/tekegram_catalog/

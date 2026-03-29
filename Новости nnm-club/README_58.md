@@ -1,3 +1,107 @@
+###  Публикация: 1417547   (855691) от 27.09.2021
+
+Amnesia: Rebirth (2020) [Ru/Multi] (1.4) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы не решаетесь даже дышать. Тварь в считанных сантиметрах от вас. И она жаждет насытиться охватившим вас ужасом. И вот вы, согнувшись, крадетесь во тьме, пытаясь подавить страх и заглушить голос, что таится внутри. «Я тебя знаю. И знаю, на что ты способна».Тип издания: LicenseРазработчик: Frictional GamesЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5F76586EBD406AAC01458AA62A1FFF05A98C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473695   (855690) от 27.09.2021
+
+Новый порядок / Nuevo orden (2020) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскошная свадьба представителей высшего класса прерывается явлением непрошенных гостей - в стране начинаются бунты, сопровождающиеся ростом классовой ненависти и всплеском насилия.Производство: Мексика, Франция / Les Films d'Ici, Teorema FilmsЖанр: ДрамаРежиссер: Мишель ФранкоАктеры: Найан Гонсалес Норвинд, Фернандо Куаутле, Диего Бонета, Саманта Язарет Анайя, Луна Арболедас, Дарио Язбек Берналь, Патрисия Берналь, Айелен Бонасина, Мануэль Буэно, Хорхе Луис Чавез КабальероПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские, английские, итальянскиеПродолжительность: 01:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F409C650E53080B9AD4F6FCF2925833197DD6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 875271   (855504) от 07.03.2015
+
+Невидимки (2013) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855504.jpg" />
+</div>
+
+
+###  Подробнее
+
+В канун Нового года удивительное событие навсегда меняет жизнь главного героя: он становится невидимкой! Правда, понимает он это не сразу, так как уже привык к тому, что его никто не замечает и не принимает всерьез. Очень быстро войдя во вкус новой жизни и своих супер способностей, он вдруг обнаруживает, что он такой не один!Производство: РоссияЖанр: Комедия, ФантастикаРежиссер: Сергей КомаровАктеры: Илья Любимов, Екатерина Гусева,Гоша Куценко, Андрей Мерзликин, Ирина Розанова, Иван Чуваткин, Вера Борисенкова, Зураб Гурцкая, Владимир Дыховичный, Петр ВинсПеревод: Перевод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161FE4E9F4FF1D96AD2828AE65A0B502844DCB16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000598   (854978) от 27.03.2016
+
+Samorost 3 (2016) [Ru/Multi] (1.0) License GOG
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_854978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Samorost 3 — приключенческая исследовательская игра-головоломка от создателей известных игр Machinarium и Botanicula. Это самый амбициозный проект Amanita Design на сегодняшний день на основе популярных инди-игр Samorost и Samorost 2. Samorost 3 следует вслед за любопытным космическим гномом, путешествующим по космосу с помощью волшебной флейты и стремящимся добраться (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: AdventureЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CB4DD346A90848F99D0E2920EB9566426C6983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000207   (854976) от 27.03.2016
 
 5-я волна / The 5th Wave (2016) WEBRip [H.264/720p-LQ] [Line]
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854976.jpg" />
+  <img src="Z:/picture/008/save_picture_854976.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Space Engineers (2013) [Ru/Multi] (beta 01.124) Repack Crisis2010 [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854973.jpg" />
+  <img src="Z:/picture/008/save_picture_854973.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854844.jpg" />
+  <img src="Z:/picture/008/save_picture_854844.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854843.jpg" />
+  <img src="Z:/picture/008/save_picture_854843.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854832.jpg" />
+  <img src="Z:/picture/008/save_picture_854832.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854121.jpg" />
+  <img src="Z:/picture/008/save_picture_854121.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_854080.jpg" />
+  <img src="Z:/picture/005/save_picture_854080.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ S.T.A.L.K.E.R.: Call of Pripyat - Anomaly (2021) [Ru/En] (1.5.1) Repack/Mod koto
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853980.jpg" />
+  <img src="Z:/picture/008/save_picture_853980.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853828.jpg" />
+  <img src="Z:/picture/008/save_picture_853828.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853826.jpg" />
+  <img src="Z:/picture/008/save_picture_853826.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853368.jpg" />
+  <img src="Z:/picture/008/save_picture_853368.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853365.jpg" />
+  <img src="Z:/picture/008/save_picture_853365.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853364.jpg" />
+  <img src="Z:/picture/008/save_picture_853364.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853217.jpg" />
+  <img src="Z:/picture/008/save_picture_853217.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852747.jpg" />
+  <img src="Z:/picture/008/save_picture_852747.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_852451.jpg" />
+  <img src="Z:/picture/009/save_picture_852451.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852367.jpg" />
+  <img src="Z:/picture/008/save_picture_852367.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_852326.jpg" />
+  <img src="Z:/picture/005/save_picture_852326.jpg" />
 </div>
 
 
@@ -483,7 +587,7 @@ VideoReg Pro 6.81 [Ru] - Видеорегистратор
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852116.jpg" />
+  <img src="Z:/picture/008/save_picture_852116.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ Mortal Kombat: Komplete Edition (2011) [PS3] [EUR] 4.30 [Cobra ODE / E3 ODE PRO 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851604.jpg" />
+  <img src="Z:/picture/008/save_picture_851604.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ Deus Ex: Mankind Divided  (2016) [Ru/Multi] (1.16.761.0/dlc) License SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851388.jpg" />
+  <img src="Z:/picture/008/save_picture_851388.jpg" />
 </div>
 
 
@@ -561,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851387.jpg" />
+  <img src="Z:/picture/008/save_picture_851387.jpg" />
 </div>
 
 
@@ -572,110 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CB40DFF9FD049122A50AFF85F5908D12CA1050F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377561   (851002) от 22.04.2020
-
-Comodo Internet Security Premium 12.2.2.7036 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comodo Internet Security - бесплатное комплексное решение безопасности. Включает антивирус и антишпион, фаервол с контент-фильтром, проактивную защиту HIPS, виртуальную среду - песочницу. Защищает от вирусов, интернет-атак и вредоносных веб-сайтов. Comodo Internet Security предлагает всестороннюю, комплексную защиту от внутренних и внешних угроз - новых и еще неизвестных. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99CA3F73206742F60D96404A8230C8A11DE9D511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377320   (850989) от 22.04.2020
-
-ДАУ. Дегенерация / DAU. Degeneration (2020) WEBRip [H.264/1080p-LQ] [PR]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850989.jpg" />
-</div>
-
-
-###  Подробнее
-
-СССР, 1950-е. Секретный НИИ проводит научные и оккультные эксперименты над животными и людьми по созданию идеального человека. Генерал КГБ и его подчиненные закрывают глаза на эротические похождения директора Института, на скандальные дебоши выдающихся ученых и на их жестокие и безумные исследования. Однажды в лабораторию под видом испытуемых прибывают представители (   Читать дальше...   )Производство: Германия, Украина, Великобритания, Россия / Phenomen Berlin Filmproduktions, Phenomen Ukraine, PhenomenЖанр: ДрамаРежиссер: Илья Хржановский, Илья ПермяковАктеры: Владимир Ажиппо, Дмитрий Каледин, Ольга Шкабарня, Алексей Блинов, Виктория Скицкая, Максим Марцинкевич, Зоя Попова, Алина Алексеева, Алексей Трифонов, Кристина ВолошинаПеревод: Не требуется (Русский)Субтитры: АнглийскиеПродолжительность: 06:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14D3390C61D14D82F77A401EADD774E98DA174FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305401   (850746) от 10.03.2011
-
-Спецслужбы: троллинг в сети (2011) HDRip [720p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_850746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ни для кого не секрет, что сегодня телевизионная аудитория уверенным темпом снижает свою численноcть, и всё больше и больше людей перестают смотреть телевизор, предпочитаю ему интернет. В начале февраля 2011 года было объявлено о создании "Жанр: Документальный, Телепередача, ВидовойПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09FB98182CFB821908B0F3585547468599C4884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317379   (850672) от 30.09.2021
-
-Атака мертвецов: Осовец (2018) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850672.jpg" />
-</div>
-
-
-###  Подробнее
-
-6 августа 1915 года. После нескольких безуспешных попыток штурма позиций русской армии командование немецких войск решается на новую. Накануне атаки на позиции немцев доставляют баллоны с хлором. О готовящемся применении химического оружия случайно узнаёт подпоручик Котлинский, но у него нет времени и возможности защитить своих людей. Всё, что ему остаётся — настроить (   Читать дальше...   )Производство: Россия, Беларусь / SerB Production, WargamingЖанр: Короткометражный, военныйРежиссер: Василий ЧигинскийАктеры: Иван Добронравов, Александр Вдовин, Анвар Либабов, Витас Эйзенах, Ярослав Химченко, Дмитрий Буренков, Алексей Шемес, Роман Фомин, Павел Балабанов, Петр СтупинСубтитры: ОтсутствуютПродолжительность: 00:23:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DB28780D0DBAFB61036953C1A3BD72FBE7D769
 ```
 
 https://mybot314.ru/tekegram_catalog/

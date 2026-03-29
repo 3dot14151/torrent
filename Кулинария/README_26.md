@@ -1,3 +1,31 @@
+###  Публикация: 1023226   (725729) от 04.06.2016
+
+Джин Стоун | Вилки вместо ножей. Простой путь к здоровью (2016) [EPUB]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практическое руководство по здоровому питанию от ведущих экспертов.
+Какое простое изменение может защитить вас от проблем с сердцем, диабета и рака? Ученые и исследователи, занимавшиеся знаменитым проектом "Вилки против ножей", нашли свой ответ - цельная, непереработанная и растительная пища может спасти вашу жизнь.
+К такому выводу пришли эксперты, среди (   Читать дальше...   )Жанр: Кулинария, ЗдоровьеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CACDC0F205ECB4F681199C067D77F931CBD066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 891610   (725505) от 23.04.2015
 
 Т. В. Плотникова | Кулинарная книга моей свекрови (2005) [PDF]
@@ -6,7 +34,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725505.jpg" />
+  <img src="Z:/picture/008/save_picture_725505.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724857.jpg" />
+  <img src="Z:/picture/008/save_picture_724857.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724711.jpg" />
+  <img src="Z:/picture/008/save_picture_724711.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724316.jpg" />
+  <img src="Z:/picture/008/save_picture_724316.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722741.jpg" />
+  <img src="Z:/picture/008/save_picture_722741.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722641.jpg" />
+  <img src="Z:/picture/008/save_picture_722641.jpg" />
 </div>
 
 
@@ -163,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721720.jpg" />
+  <img src="Z:/picture/008/save_picture_721720.jpg" />
 </div>
 
 
@@ -189,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721458.jpg" />
+  <img src="Z:/picture/008/save_picture_721458.jpg" />
 </div>
 
 
@@ -215,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721338.jpg" />
+  <img src="Z:/picture/008/save_picture_721338.jpg" />
 </div>
 
 
@@ -243,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720671.jpg" />
+  <img src="Z:/picture/008/save_picture_720671.jpg" />
 </div>
 
 
@@ -270,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719946.jpg" />
+  <img src="Z:/picture/008/save_picture_719946.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719629.jpg" />
+  <img src="Z:/picture/008/save_picture_719629.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719610.jpg" />
+  <img src="Z:/picture/008/save_picture_719610.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716963.jpg" />
+  <img src="Z:/picture/008/save_picture_716963.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715852.jpg" />
+  <img src="Z:/picture/008/save_picture_715852.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714724.jpg" />
+  <img src="Z:/picture/008/save_picture_714724.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714284.jpg" />
+  <img src="Z:/picture/008/save_picture_714284.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713706.jpg" />
+  <img src="Z:/picture/008/save_picture_713706.jpg" />
 </div>
 
 
@@ -480,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713701.jpg" />
+  <img src="Z:/picture/008/save_picture_713701.jpg" />
 </div>
 
 
@@ -506,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712954.jpg" />
+  <img src="Z:/picture/008/save_picture_712954.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711409.jpg" />
+  <img src="Z:/picture/008/save_picture_711409.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711282.jpg" />
+  <img src="Z:/picture/008/save_picture_711282.jpg" />
 </div>
 
 
@@ -587,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710330.jpg" />
+  <img src="Z:/picture/008/save_picture_710330.jpg" />
 </div>
 
 
@@ -613,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709292.jpg" />
+  <img src="Z:/picture/008/save_picture_709292.jpg" />
 </div>
 
 
@@ -639,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709142.jpg" />
+  <img src="Z:/picture/008/save_picture_709142.jpg" />
 </div>
 
 
@@ -650,34 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CE8922F9FCCDB94C7C6FB3D309161A6635F9D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286937   (708972) от 04.03.2019
-
-Дарья Близнюк | Светлый день. Пасхальные рецепты для уютного семейного праздника (2019) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте свой пасхальный стол по-настоящему волшебным! Украсьте его нежнейшей медовой пасхой (или ореховой?), шоколадным куличом, воздушной бриошью и другими невероятными лакомствами!
-
-А вашим помощником и вдохновителем станет Дарья Близнюк (@zhabcka), умелый кулинар, фуд-блогер и замечательный фотограф.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12233B3E48F0C172B97C3E6115490E4F0F175CB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

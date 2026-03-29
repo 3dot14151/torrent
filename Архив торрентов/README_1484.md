@@ -6,7 +6,7 @@ Hirschmann Industrial HiVision 07.0.02 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716151.jpg" />
+  <img src="Z:/picture/008/save_picture_716151.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ PhotoFiltre Studio X 10.12.1 Extended Build R1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716145.jpg" />
+  <img src="Z:/picture/008/save_picture_716145.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ hr - Task timer as simple as it's name 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716143.jpg" />
+  <img src="Z:/picture/008/save_picture_716143.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ VA - Summer Trance (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716142.jpg" />
+  <img src="Z:/picture/008/save_picture_716142.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Soft Organizer 5.10 Final RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716139.jpg" />
+  <img src="Z:/picture/008/save_picture_716139.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Permute 2.1.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716137.jpg" />
+  <img src="Z:/picture/008/save_picture_716137.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Boinx mimoLive 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716136.jpg" />
+  <img src="Z:/picture/008/save_picture_716136.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ FontDoctor 10.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716135.jpg" />
+  <img src="Z:/picture/008/save_picture_716135.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Alternate File Shredder 1.880 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716125.jpg" />
+  <img src="Z:/picture/008/save_picture_716125.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ PeaZip 6.4.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716062.jpg" />
+  <img src="Z:/picture/008/save_picture_716062.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Tenorshare Any Data Recovery Pro 6.0.0.0 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716040.jpg" />
+  <img src="Z:/picture/008/save_picture_716040.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Soft Organizer 5.10 RePacK by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716028.jpg" />
+  <img src="Z:/picture/008/save_picture_716028.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ CloudMagic Email 7.12.46 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716027.jpg" />
+  <img src="Z:/picture/008/save_picture_716027.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Tiёsto - Just Be (Remixed) (2005) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716022.jpg" />
+  <img src="Z:/picture/008/save_picture_716022.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ ProduKey 1.90 Portabe [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715973.jpg" />
+  <img src="Z:/picture/008/save_picture_715973.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Adguard 6.2.356.1877 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715971.jpg" />
+  <img src="Z:/picture/008/save_picture_715971.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Soft Organizer 5.10 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715952.jpg" />
+  <img src="Z:/picture/008/save_picture_715952.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715951.jpg" />
+  <img src="Z:/picture/008/save_picture_715951.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ pdfFactory Pro 5.37 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715945.jpg" />
+  <img src="Z:/picture/008/save_picture_715945.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Mozilla Firefox 47.0 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715943.jpg" />
+  <img src="Z:/picture/008/save_picture_715943.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ VSO ConvertXToDVD 4.1.17.362 Final [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715929.jpg" />
+  <img src="Z:/picture/005/save_picture_715929.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Kali Linux 2017.1 (ex. BackTrack) [Аудит безопасности, хаки
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715867.jpg" />
+  <img src="Z:/picture/008/save_picture_715867.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Microsoft Office 2013 SP1 Select Edition 15.0.4919.1002 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715865.jpg" />
+  <img src="Z:/picture/008/save_picture_715865.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Be Focused Pro (aka Pomodoro Time Pro) 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715854.jpg" />
+  <img src="Z:/picture/008/save_picture_715854.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Wise Registry Cleaner Pro 9.5.5.625 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715851.jpg" />
+  <img src="Z:/picture/008/save_picture_715851.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ AudioGrail 7.11.0.214 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715849.jpg" />
+  <img src="Z:/picture/008/save_picture_715849.jpg" />
 </div>
 
 

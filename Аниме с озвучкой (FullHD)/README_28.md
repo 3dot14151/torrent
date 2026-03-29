@@ -1,3 +1,30 @@
+###  Публикация: 1670807   (171680) от 22.10.2023
+
+Семь главенствующих мечей | Nanatsu no Maken ga Shihai Suru | Reign of the Seven Spellblades [2023, TV, 15 из 15] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приходит весна, и в Академию магии Кимберли зачисляются полные энтузиазма первогодки. Всем им не терпится начать обучение, чтобы постичь искусство волшебства и стать полноправными магами. Но на вступительной церемонии происходит неожиданное: на ребят нападает самый настоящий тролль. Одолеть его удаётся только благодаря стараниям двух первогодок — прилежного парня (   Читать дальше...   )Производство: Япония / Студия J.C. StaffЖанр: Приключения, фэнтезиРежиссер: Мацунэ МасатоЯзык озвучки: Русский многоголосый, закадровый; Японский
+- Hekomi, Hoopoe, Nuts, SlivciS, WhiteCrow (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 15 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF064D21259C9C08B60E9908F52BC89030CA859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667282   (168721) от 28.10.2023
 
 Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тысячелетняя кровавая война [2022, TV, 13 из 13 эп.] BDRip 1080p AV1 10-bit raw+rus
@@ -6,7 +33,7 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тыся
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168721.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168652.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167061.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я стала злодей�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167032.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Dr. Stone / Доктор Стоун [2019, TV, 24 ep] WEB-DL 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165344.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163693.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162898.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ Fate/Stay Night | Судьба: Ночь схватки [2006, TV, 24 из 24] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161597.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ Fate/Stay Night Unlimited Blade Works | Судьба: Ночь схватки. �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161594.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ Fate/Zero | Судьба: Начало [2011, TV, 25 из 25] BDRip 1080p HEVC 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161585.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ Iria Zeiram The Animation | Iria: Zeiram The Animation | Ирия: Зейрам 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161112.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ Dallos | Даллас [1983, OVA, 4 из 4] BDRip 1080p HEVC 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161104.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ Shihaisha no Tasogare | Twilight of the Dark Master | Сумерки Повел�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160826.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ Psycho Diver: Mashou Bosatsu | Psycho Diver: Soul Siren | Психо-нырял�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160822.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ Shingeki no Kyojin: The Final Season (2023) | Attack on Titan The Final Season (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160736.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ Meitantei Holmes | Sherlock Hound | Великий детектив Холмс [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160576.jpg" />
 </div>
 
 
@@ -428,7 +455,7 @@ Meitantei Holmes: Aoi Ruby no Maki / Kaitei no Zaihou no Maki | Sherlock Hound: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160568.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ Midnight Eye Gokuu II | Goku II: Midnight Eye | Гоку II: Полуночны�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160112.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ Midnight Eye Gokuu | Goku: Midnight Eye | Гоку: Полуночный гла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160098.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159678.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ Gekijouban Fate/Stay Night: Heaven's Feel | Судьба: Ночь схватк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159513.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159119.jpg" />
 </div>
 
 
@@ -587,7 +614,7 @@ Shingeki no Kyojin Season 2 | Attack on Titan Season 2 | Атака титано
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159046.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158783.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156386.jpg" />
 </div>
 
 
@@ -654,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EBE6E9EDB56A8E4A64641D7E15390D57B482DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563246   (156319) от 27.12.2022
-
-Люцифер и бисквитный молот | Hoshi no Samidare | Lucifer and the Biscuit Hammer [2022, TV, 24 из 24] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Амамия Юхи — простой японский школьник, который абсолютно ничем не выделяется среди сверст... Ой, погодите-ка! Это с ним ящерица только что заговорила?! Что-что она там сказала?! Мир может оказаться расколот вдребезги мощью невероятного Бисквитного молота? Звучит совершенно безумно! Особенно та часть, где говорится про какой-то Бисквитный молот... Однако мир нужно (   Читать дальше...   )Производство: Япония / Студия Naz, JumondouЖанр: Приключения, фэнтезиРежиссер: Наканиси НобуакиЯзык озвучки: Русский многоголосый, закадровый (AniLibria.TV), ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 24 серий по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E540B08FC1DA1E4F35506600585797118461B8FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

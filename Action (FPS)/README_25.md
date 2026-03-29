@@ -1,3 +1,113 @@
+###  Публикация: 552226   (447562) от 26.09.2012
+
+Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. Shift
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект, объединяющий элементы шутера от первого лица, гоночного боевика и классической ролевой игры.
+
+Действие разворачивается на Пандоре — малонаселенной пустынной планете, где законы переписываются ежедневно — при помощи оружия. Все местное население сосредоточено на небольших аванпостах, расположенных на границе принадлежащих людям территорий, известных как Приграничные земли. Единственная достопримечательность на Пандоре — таинственное Хранилище, скрывающее несметные сокровища, якобы спрятанные представителями высокоразвитой инопланетной цивилизации многие века назад.
+
+Солдат или охотник, сирена или берсерк — выбрав одного из четырех персонажей, каждый из которых обладает уникальными навыками, игрок отправиться на поиски Хранилища. Можно попытаться добраться до сокровищ в одиночку, однако лучше найти союзников, чтобы сражаться с ними плечом к плечу. (   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8644F4F15ED90B6EC34E265C8D68E94DBBB476D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552289   (447555) от 26.09.2012
+
+The Chronicles of Riddick Gold [Ru/En] (RePack/1.0.0.1) 2009 | Audioslave
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447555.jpg" />
+</div>
+
+
+###  Подробнее
+
+«The Chronicles of Riddick Gold» содержит как оригинальную «The Chronicles of Riddick: Escape From Butcher Bay», так и продолжение этого потрясающего стелс-экшена «Chronicles of Riddick: Assault on Dark Athena»! В «Escape From Butcher Bay» вы оказываетесь в тюрьме максимально строго режима «Бухта Мясника» (Butcher Bay), расположенной на удаленной внеземной уголовной колонии. Ни одному заключенному никогда еще не удавалось сбежать оттуда. Учреждение состоит из нескольких крыльев с повышающимся уровнем охраны, а подземные шахтные разработки населяют опасные агрессивные твари.
+Главным героем игры является Ричард Б. Риддик, «сыграл» и озвучил которого ключевой персонаж обоих фильмов, положивших начало франшизе, - Вин Дизель. Риддик, пойманный охотником за головами Вильямом Дж. Джонсом, является психопатом-убийцей, которого недавно перевели в Butcher Bay и который намерен использовать все доступные средства, чтобы в ней надолго не задержаться. Для этого ему придется пройти три круга ада этого страшного заведения (зоны single-max, double-max и наконец triple-max, в которой заключенных помещают в криогенный сон и пробуждают каждый день всего на две минуты для проведения необходимых процедур), а также познакомиться со зловещими обитателями канализаций и шахт.
+Сюжет «Assault on Dark Athena» начинается сразу после событий первой части. Случилось так, что Джонс, который и доставил изначально Риддика в «Бухту Мясника», помог ему и сбежать оттуда. На его корабле, находясь в состоянии анабиоза, они оказываются затянутыми на «Темную Афину» (Dark Athena) - гигантский корабль наемников, управляемый Гейл Ревас и ее заместителем Скиннером. Риддику удается избежать пленения, после чего ему предстоит попытаться освободить пленников, включая бывшего капитана «Темной Афины», а также помочь маленькой девочке Линн, прячущейся в вентиляционных шахтах. И когда Риддику после тяжелых испытаний наконец удается на эвакуационном шаттле покинуть забитый под завязку автоматизированными бездушными дронами корабль, судьба опять наносит ему тяжелый удар... Неужели ему снова придется вернуться на «Темную Афину».(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st Person / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Английский / Русский (2 вида)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C4DEB7B748DF1442D70A3B1403A23741F07D28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399769   (446499) от 15.08.2022
+
+Hellpoint (2020) [Ru/Multi] (495/dlc) License GOG (обновляемая)
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_446499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hellpoint - Action RPG в жутком фантастическом сеттинге. Исследуйте Ирид Ново, заброшенную космическую станцию, откройте страшные тайны ее прошлого. Сражайтесь с мерзкими монстрами и всемогущими космическими богами. Если вы не справитесь в одиночку, позовите на помощь друга.Тип издания: LicenseРазработчик: Cradle GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3369A54E60B70FEF8EC2721B1A4C0E53DD359B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297245   (445878) от 30.08.2019
+
+World War Z (2019) [Ru/Multi] (1.30) Repack =nemos=
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_445878.jpg" />
+</div>
+
+
+###  Подробнее
+
+World War Z — это напряженный командный шутер на четверых игроков с видом от третьего лица и одиночным режимом, в котором несметные орды зомби безудержно стремятся настичь оставшихся в живых людей. В World War Z — наследнице одноименного блокбастера от Paramount Pictures — вас ждет сверхдинамичный игровой процесс. Исследуйте новые сюжетные линии и узнавайте персонажей (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Survival horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A60037B389FDCA45C9ED2BB00CD1CB9223D9ABD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248348   (443794) от 19.09.2018
 
 Transference (2018) [Ru/Multi] (1.0) License CODEX
@@ -6,7 +116,7 @@ Transference (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443794.jpg" />
+  <img src="Z:/picture/008/save_picture_443794.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Dead Island: Riptide (2016) [Ru] (1.4.1.1.13/dlc) Repack =nemos= [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443456.jpg" />
+  <img src="Z:/picture/008/save_picture_443456.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ Dishonored (2013) [Ru/En] (1.4.1/dlc) Repack Other s [Game of the Year Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443388.jpg" />
+  <img src="Z:/picture/008/save_picture_443388.jpg" />
 </div>
 
 
@@ -84,7 +194,7 @@ Borderlands: Game of the Year Edition [Ru/En/Multi5] (L/1.41/4 DLC) 2010
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442813.jpg" />
+  <img src="Z:/picture/008/save_picture_442813.jpg" />
 </div>
 
 
@@ -114,7 +224,7 @@ Dead Island (2016) [Ru/Multi] (1.1.2/1.1.2/1.0/dlc) Repack R.G. Catalyst [Defini
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441178.jpg" />
+  <img src="Z:/picture/008/save_picture_441178.jpg" />
 </div>
 
 
@@ -140,7 +250,7 @@ Dead Island: Game of the Year Edition (2011) [Ru] (1.3.0/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441111.jpg" />
+  <img src="Z:/picture/008/save_picture_441111.jpg" />
 </div>
 
 
@@ -166,7 +276,7 @@ White Day: A Labyrinth Named School (2017) [Ru/Multi] (1.06/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441044.jpg" />
+  <img src="Z:/picture/008/save_picture_441044.jpg" />
 </div>
 
 
@@ -192,7 +302,7 @@ BioShock Infinite (2014) [Ru] (1.1.25.5165/dlc) Repack xatab [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439030.jpg" />
+  <img src="Z:/picture/008/save_picture_439030.jpg" />
 </div>
 
 
@@ -218,7 +328,7 @@ Rage: Anarchy Edition [MULTi3/+] (L/1.0.29.712/2 DLC) 2011 | SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437782.jpg" />
+  <img src="Z:/picture/008/save_picture_437782.jpg" />
 </div>
 
 
@@ -246,7 +356,7 @@ Hot Lava (2020) [Ru/Multi] (1.0.431329) SteamRip Goldberg
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437557.jpg" />
+  <img src="Z:/picture/008/save_picture_437557.jpg" />
 </div>
 
 
@@ -272,7 +382,7 @@ Infinity Runner (2014) [En] (1.0) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437313.jpg" />
+  <img src="Z:/picture/008/save_picture_437313.jpg" />
 </div>
 
 
@@ -298,7 +408,7 @@ STALINGRAD ABATIS (2018) [Ru/En/De] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436835.jpg" />
+  <img src="Z:/picture/008/save_picture_436835.jpg" />
 </div>
 
 
@@ -324,7 +434,7 @@ THORNYWAY (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436393.jpg" />
+  <img src="Z:/picture/008/save_picture_436393.jpg" />
 </div>
 
 
@@ -350,7 +460,7 @@ Help (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436357.jpg" />
+  <img src="Z:/picture/008/save_picture_436357.jpg" />
 </div>
 
 
@@ -376,7 +486,7 @@ DOOM 64 (2020) [Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435331.jpg" />
+  <img src="Z:/picture/008/save_picture_435331.jpg" />
 </div>
 
 
@@ -402,7 +512,7 @@ BioShock 2 Remastered (2016) [Ru/Multi] (1.0.121755) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434039.jpg" />
+  <img src="Z:/picture/008/save_picture_434039.jpg" />
 </div>
 
 
@@ -428,7 +538,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432017.jpg" />
+  <img src="Z:/picture/008/save_picture_432017.jpg" />
 </div>
 
 
@@ -454,7 +564,7 @@ Call of Duty 2 (2005) [Ru] (1.3) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432001.jpg" />
+  <img src="Z:/picture/008/save_picture_432001.jpg" />
 </div>
 
 
@@ -480,7 +590,7 @@ The Darkness II (2012) [Ru/En] (1.1) Repack R.G. Механики [Limited Editi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428464.jpg" />
+  <img src="Z:/picture/008/save_picture_428464.jpg" />
 </div>
 
 
@@ -506,7 +616,7 @@ Earthfall (2018) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428057.jpg" />
+  <img src="Z:/picture/008/save_picture_428057.jpg" />
 </div>
 
 
@@ -532,7 +642,7 @@ Blood: One Unit Whole Blood (1998) [En] (1.21hf/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427000.jpg" />
+  <img src="Z:/picture/008/save_picture_427000.jpg" />
 </div>
 
 
@@ -558,7 +668,7 @@ Serious Sam Anthology (2001-2013) [Ru/Multi] (1.05/1.07/2.080.00/206580/263699/1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426993.jpg" />
+  <img src="Z:/picture/008/save_picture_426993.jpg" />
 </div>
 
 
@@ -569,110 +679,6 @@ Serious Sam Double D - это аркадный платформер про пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ABA11668E56901C79F31549F410ABF3EEB215C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452325   (425102) от 25.08.2022
-
-ELDERBORN (2020) [Ru/Multi] (1.09/dlc) License GOG [Metal AF Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантазийный слэшер от первого лица в стиле «хеви-метал» с жесткими рукопашными боями и развитием персонажа в стиле Dark Souls. В эру легенд варварским племенам нужен новый темный мессия. Игрок становится беспощадным убийцей, которому предстоит раскрыть древние тайны в обреченном городе и своими руками создать собственную судьбу.Тип издания: LicenseРазработчик: HyperstrangeЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AFF8C3FC2B748F45568AB037AB2C58E7F0D91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250693   (423891) от 28.09.2018
-
-Deliver Us The Moon: Fortuna (2018) [En] (1.0.0) License HOODLUM
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры Deliver Us The Moon разворачивается в ближайшем будущем, в котором человечество исчерпало природные ресурсы Земли. Пытаясь разрешить энергетический кризис, мировые державы создали Мировое Космическое Агентство и обнаружили на Луне новый перспективный источник энергии. МКА колонизировало Луну и организовало поставки на Землю, но однажды ночью связь с (   Читать дальше...   )Тип издания: LicenseРазработчик: KeokeN InteractiveЖанр: Adventure, Action, 3D, 3rd Person, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C671528C424549DEA80ED6AAE0A4F340DAAAD14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246979   (423554) от 18.10.2010
-
-Wolfenstein [Ru] (Repack/1.1) 2009 | R.G.Spieler
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_423554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие будет происходить во время Второй Мировой Войны, но все события выдуманные. Игрокам предстоит сыграть за BJ Blazkowicz агента OSA. Играя за агента, вам придется сражаться с солдатами, потусторонними существами и монстрами, созданными нацистскими учеными для порабощения мира. К вашим услугам также будут параллельное измерение. Вам придется это исследовать, (   Читать дальше...   )Тип издания: Repack (Лицензии)Разработчик: Raven Software, Endrant StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064766   (422942) от 21.10.2016
-
-Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru] (84.4) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Painkiller Overdose, самостоятельное дополнение к восхитительно кровавому шутеру от первого лица. Возьмите крутую пушку. Встретив того, кто вам не понравится, используйте по назначению. Повторите. Расстреливайте и взрывайте в свое удовольствие. Не оглядывайтесь: крутые парни так не делают. Восполняйте здоровье и бегите навстречу новой толпе демонов. Бейте, взрывайте, (   Читать дальше...   )Тип издания: LicenseРазработчик: Mindware StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусссскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE9E0AF10617B0E7723612A240BFE47CBE09D60
 ```
 
 https://mybot314.ru/tekegram_catalog/

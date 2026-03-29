@@ -1,3 +1,108 @@
+###  Публикация: 1585119   (223281) от 20.10.2022
+
+Arturia Augmented GRAND PIANO 1.0.0 STANDALONE, VSTi, VSTi3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Arturia выпустила Augmented GRAND PIANO - виртуальный инструмент высокого качества для использования в производстве звука в кинематографии, а также игр и любой другой среде где требуется качественный звук клавишных.
+Augmented GRAND PIANO обеспечивает множество выразительных, современных и абстрактных фортепианных звуков, прекрасно записанных, объединенных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C01941C946A297D9FE6CDC1938FDAB4971E784
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425031   (223276) от 19.11.2020
+
+Toontrack - Superior Drummer 3 v3.2.3 STANDALONE, VSTi, VSTi3, x64 Update RePack by TEAM V.R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное обновление профессиональной виртуальной ударной установки от Toontrack Music . Superior Drummer - это простота интерфейса EZdrummer с расширенным набором функций: новый микшер , встроенные эффекты (эквалайзер, фильтры, гейт, компрессор, энвелопер) и др. Superior Drummer является профессиональным барабанным флагманским сэмплером от фирмы Toontrack Music. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1D5604179EB8D0A054AAC69E63C3064A8B90BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425383   (222152) от 20.11.2020
+
+Serato - Sample 1.3.0 VSTi (x64) RePack by VR [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_222152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виртуальный фразовый семплер Sample, плагин формата VST, имеет функции подбора семплов, определения тональности и темпа, реверсирования, одноголосного и полифонического проигрывания, синхронизации. Используются технологии маркеров Cue Point и цветового кодирования уровнеграммы из программы Serato DJ, а также алгоритм изменения тональности и продолжительности аудио (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E0D488A03B167DCD4AB574F89FB59E3066B9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342981   (221273) от 04.12.2019
+
+Denise Audio - Bad Tape 1.0.1 VST, VST3, AAX (x86/x64) Retail [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_221273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Denise Audio выпустила Bad Tape, описываемый как «плагин эффекта повреждения записи». Он сосредоточен на создании экстремальных артефактов ленты.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD875D28A48FF6D866768D12B8B76CD4C9BA8396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269766   (217382) от 16.12.2018
 
 GiliSoft Audio Recorder Pro 8.1.0 [Multi/Ru]
@@ -6,7 +111,7 @@ GiliSoft Audio Recorder Pro 8.1.0 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217382.jpg" />
+  <img src="Z:/picture/005/save_picture_217382.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Unfiltered Audio - TRIAD 1.0.0 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215531.jpg" />
+  <img src="Z:/picture/005/save_picture_215531.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ Reaper 7.49 RePack (& Portable) by elchupacabra [En/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212130.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ MAGIX Samplitude Pro X8 Suite 19.0.0.23112 + Sam INI Tool 3.4 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209743.jpg" />
 </div>
 
 
@@ -115,7 +220,7 @@ Hexachords - ORB Producer Suite 3.0.1 VSTi, VSTi 3 (x64) RePack by MOCHA [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209181.jpg" />
+  <img src="Z:/picture/005/save_picture_209181.jpg" />
 </div>
 
 
@@ -143,7 +248,7 @@ UJAM Finisher Plug-Ins 01.2023 VST, VST 3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209000.jpg" />
+  <img src="Z:/picture/005/save_picture_209000.jpg" />
 </div>
 
 
@@ -170,7 +275,7 @@ Mixxx 2.3.5 (x64) [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208783.jpg" />
 </div>
 
 
@@ -198,7 +303,7 @@ Klevgrand Plug-ins 02.2023 VST / VSTi, VST 3 / VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207930.jpg" />
+  <img src="Z:/picture/005/save_picture_207930.jpg" />
 </div>
 
 
@@ -225,7 +330,7 @@ MAGIX Sound Forge Pro 16.1.3 Build 68 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207378.jpg" />
+  <img src="Z:/picture/005/save_picture_207378.jpg" />
 </div>
 
 
@@ -251,7 +356,7 @@ ViWizard Audio Converter 3.9.0.59 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207246.jpg" />
+  <img src="Z:/picture/005/save_picture_207246.jpg" />
 </div>
 
 
@@ -277,7 +382,7 @@ MAGIX SOUND FORGE Audio Studio 16.1.2.57 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206724.jpg" />
+  <img src="Z:/picture/005/save_picture_206724.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ MAGIX SOUND FORGE Audio Cleaning Lab 4 26.0.0.23 (x64) Portable by 7997 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206696.jpg" />
+  <img src="Z:/picture/005/save_picture_206696.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ Avid Sibelius Ultimate 2019.5.0 Build 1469 RePack by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204059.jpg" />
+  <img src="Z:/picture/004/save_picture_204059.jpg" />
 </div>
 
 
@@ -359,7 +464,7 @@ Avid Sibelius Ultimate 2022.9 Build 1464 RePack by OctaneS [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204043.jpg" />
+  <img src="Z:/picture/004/save_picture_204043.jpg" />
 </div>
 
 
@@ -388,7 +493,7 @@ Xfer Records - Serum & SerumFX 1.36b3 STANDALONE, VSTi, VSTi 3, AAX (x86/x64) Re
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202513.jpg" />
+  <img src="Z:/picture/004/save_picture_202513.jpg" />
 </div>
 
 
@@ -414,7 +519,7 @@ Synapse Audio - DUNE 3 3.6.5 VSTi, VSTi 3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202426.jpg" />
 </div>
 
 
@@ -442,7 +547,7 @@ U-he - Uhbik 2.0.0 VST 3, CLAP, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202425.jpg" />
 </div>
 
 
@@ -468,7 +573,7 @@ BABY Audio - Smooth Operator Pro 1.2 VST, VST 3, AAX RePack by TCD [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202424.jpg" />
 </div>
 
 
@@ -495,7 +600,7 @@ AIR Music Technology - Hybrid 3.2.0 STANDALONE, VSTi, VSTi 3 (x64) RePack by TCD
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202423.jpg" />
 </div>
 
 
@@ -521,7 +626,7 @@ Modartt - Pianoteq 8.4.3 Pro STANDALONE, VSTi, VSTi 3, AAX RePack (& Portable) b
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202422.jpg" />
 </div>
 
 
@@ -547,7 +652,7 @@ MAGIX Sound Forge Pro 18.0.0 Build 21 Portable by conservator [Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202376.jpg" />
 </div>
 
 
@@ -573,7 +678,7 @@ Arturia - Pigments 6.0.4 STANTALONE, VSTi, VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202374.jpg" />
 </div>
 
 
@@ -585,112 +690,6 @@ Arturia Pigments 6 включает шесть типов синтеза, отм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:103353C256E11FA7E4F7660EA1E27623BE9538A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617733   (201607) от 08.03.2023
-
-KORG Collection 4 (03.2023) Standalone, VSTi, VSTi 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция KORG представляет собой набор программных синтезаторов, которые тщательно воссоздают аутентичный звук и поведение некоторых легендарных синтезаторов Korg для сегодняшних и будущих времён. Набор программного синтезатора охватывает широкий спектр синтеза от ранних аналоговых шедевров, таких как MS-20 и Polysix, до цифровых хитов, таких как рабочие станции (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34AC3CBDFC99555361477D11EE0B2936F49EE8F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619190   (201329) от 15.03.2023
-
-OpenMPT 1.30.11.00 + Portable [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта программа создана для ценителей создания собственной музыки.
-OpenMPT абсолютно бесплатен и позволяет вам создавать и воспроизводить отличную музыку на вашем компьютере. Основанный на оригинальном ModPlug Tracker, написанном Оливье Лапиком, OpenMPT является свободным программным обеспечением и поддерживает широкий спектр форматов модулей и предлагает интуитивно (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1229103087E85FA266C43D62B6D6F7A332A5E9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619531   (201171) от 16.03.2023
-
-iZotope RX 10 Audio Editor Advanced 10.4.0 + Plugins (x64) Portable by 7997 [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201171.jpg" />
-</div>
-
-
-###  Подробнее
-
-RX уже давно является популярным пакетом для ремонта и полировки звука для фильмов, телевидения, музыки, подкастов, видеоигр, библиотек сэмплов и многого другого.
-В RX 10 есть интеллектуальные способы поиска и устранения самых сложных проблем со звуком, независимо от того, являетесь ли вы создателем контента, музыкальным продюсером или профессионалом постпродакшна. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBB788896BFBCA44EEAFC5FE716481BE1F0A4AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620960   (200924) от 22.03.2023
-
-Native Instruments - Battery 4 4.3.0 Standalone, VSTi, VSTi 3, AAX + Factory Library 1.1.0 [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Native Instruments Battery - профессиональный сэмплер ударных. Повсеместное использование данного семплера стало возможным благодаря низким требованиям к ресурсам системы, простоте использования и совместимости с огромным числом форматов семплов. Изюминкой Battery стала матрица, размерность которой может быть изменена пользователем в зависимости от кол-ва загружаемых (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA55AD7C67BE7CC503348E81A74FB7EBCEE285F
 ```
 
 https://mybot314.ru/tekegram_catalog/

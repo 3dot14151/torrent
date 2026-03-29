@@ -6,7 +6,7 @@
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263430.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262669.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261687.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261294.jpg" />
+  <img src="Z:/picture/005/save_picture_261294.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ANK Со., Ltd | HTML/CSS. Вся веб-разработка в схемах и
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257825.jpg" />
+  <img src="Z:/picture/005/save_picture_257825.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257790.jpg" />
+  <img src="Z:/picture/005/save_picture_257790.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257699.jpg" />
+  <img src="Z:/picture/005/save_picture_257699.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257696.jpg" />
+  <img src="Z:/picture/005/save_picture_257696.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257677.jpg" />
+  <img src="Z:/picture/005/save_picture_257677.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257662.jpg" />
+  <img src="Z:/picture/005/save_picture_257662.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257661.jpg" />
+  <img src="Z:/picture/005/save_picture_257661.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257660.jpg" />
+  <img src="Z:/picture/005/save_picture_257660.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256802.jpg" />
+  <img src="Z:/picture/005/save_picture_256802.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256780.jpg" />
+  <img src="Z:/picture/005/save_picture_256780.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255585.jpg" />
+  <img src="Z:/picture/005/save_picture_255585.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255584.jpg" />
+  <img src="Z:/picture/005/save_picture_255584.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Stephen DeStefano | Animating SwiftUI Applications (2023) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255502.jpg" />
+  <img src="Z:/picture/005/save_picture_255502.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255242.jpg" />
+  <img src="Z:/picture/005/save_picture_255242.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255182.jpg" />
+  <img src="Z:/picture/005/save_picture_255182.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Maxime Labonne | Hands-On Graph Neural Networks Using Python (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255048.jpg" />
+  <img src="Z:/picture/005/save_picture_255048.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Dylan Meeus | Functional Programming in Golang (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254907.jpg" />
+  <img src="Z:/picture/005/save_picture_254907.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Eric Sarrion | JavaScript from Frontend to Backend (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254735.jpg" />
+  <img src="Z:/picture/005/save_picture_254735.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Marian Montagnino | Building Modern CLI Applications in Go (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254583.jpg" />
+  <img src="Z:/picture/005/save_picture_254583.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Robert Benefield | Lean DevOps: A Practical Guide to On Demand Service Delivery 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254532.jpg" />
+  <img src="Z:/picture/005/save_picture_254532.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Alberto Gonzalez | Linux Server Cookbook (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254531.jpg" />
+  <img src="Z:/picture/005/save_picture_254531.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Jaime Buelta | Python Automation Cookbook, 2nd Edition (2020) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254525.jpg" />
+  <img src="Z:/picture/005/save_picture_254525.jpg" />
 </div>
 
 

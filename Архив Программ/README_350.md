@@ -6,7 +6,7 @@ Waterfox Current G3.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872709.jpg" />
+  <img src="Z:/picture/008/save_picture_872709.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GIMP 2.10.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872708.jpg" />
+  <img src="Z:/picture/008/save_picture_872708.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ditto Clipboard Manager 3.24.214.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872704.jpg" />
+  <img src="Z:/picture/008/save_picture_872704.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Unity Pro 2019.2.21f1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872690.jpg" />
+  <img src="Z:/picture/008/save_picture_872690.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ActivePresenter Pro Edition 8.0.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872688.jpg" />
+  <img src="Z:/picture/008/save_picture_872688.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Pale Moon 28.9.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872685.jpg" />
+  <img src="Z:/picture/008/save_picture_872685.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Unity Pro 2018.4.19f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872682.jpg" />
+  <img src="Z:/picture/008/save_picture_872682.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ AutoRuns 13.7 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872632.jpg" />
+  <img src="Z:/picture/008/save_picture_872632.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Adobe Animate 2021 21.0.9.42677 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872590.jpg" />
+  <img src="Z:/picture/008/save_picture_872590.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ SUMo Pro 5.10.14.452 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872572.jpg" />
+  <img src="Z:/picture/008/save_picture_872572.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ BestReminder v2020.04.09.19 Covid Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872565.jpg" />
+  <img src="Z:/picture/008/save_picture_872565.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Sharp World Clock 4.85 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872524.jpg" />
+  <img src="Z:/picture/008/save_picture_872524.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ CPU-Z 1.78.3 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872505.jpg" />
+  <img src="Z:/picture/008/save_picture_872505.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ OCCT 4.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872496.jpg" />
+  <img src="Z:/picture/008/save_picture_872496.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ R-Drive Image Technician 6.3 Build 6300 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872455.jpg" />
+  <img src="Z:/picture/008/save_picture_872455.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Microsoft Visual Studio 2019 Community 16.5.0 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872449.jpg" />
+  <img src="Z:/picture/008/save_picture_872449.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Microsoft Visual Studio 2019 Professional 16.5.0 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872443.jpg" />
+  <img src="Z:/picture/008/save_picture_872443.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.0 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872438.jpg" />
+  <img src="Z:/picture/008/save_picture_872438.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ ABViewer Enterprise 14.1.0.61 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872436.jpg" />
+  <img src="Z:/picture/008/save_picture_872436.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ ACDSee Ultimate 10.3 Build 894 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872415.jpg" />
+  <img src="Z:/picture/008/save_picture_872415.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Avira Phantom VPN Pro 2.5.1.27035 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872404.jpg" />
+  <img src="Z:/picture/008/save_picture_872404.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ User Time Control Center 4.9.4.6 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872385.jpg" />
+  <img src="Z:/picture/008/save_picture_872385.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Microsoft Visual Studio Community/Professional/Enterprise 2015 14.0.25431.01 Upd
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872383.jpg" />
+  <img src="Z:/picture/008/save_picture_872383.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ ACDSee Pro 10.3 Build 675 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872380.jpg" />
+  <img src="Z:/picture/008/save_picture_872380.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ R-Studio 8.13 Build 176093 Network Edition RePack (& portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872345.jpg" />
+  <img src="Z:/picture/008/save_picture_872345.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Acme CAD Converter 2019 8.9.8.1510 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872342.jpg" />
+  <img src="Z:/picture/008/save_picture_872342.jpg" />
 </div>
 
 

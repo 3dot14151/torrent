@@ -1,3 +1,81 @@
+###  Публикация: 299373   (877399) от 23.02.2011
+
+NG: Путешествие на край Вселенной / Journey to the Edge of the Universe (2008) BDRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_877399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это путешествие увлекает нас к истокам зарождения жизни, Столпам Мироздания, давая возможность заглянуть далеко за облака космической пыли, туда, где рождаются огромные звезды, даря Вселенной свой свет, а может быть и жизнь…Жанр: ДокументальныйРежиссер: Явар АббасПеревод: ДублированныйПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BBB4DC6B95B3F614B61865BA44B6759ECEFFEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103647   (873209) от 19.02.2017
+
+Nat Geo Wild: Землеройка-убийца / Killer Shrew (2014) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_873209.jpg" />
+</div>
+
+
+###  Подробнее
+
+В области не столь далёкой владыки налетают с небес, чтобы убить, а простолюдины внизу должны копаться в земле, чтобы найти объедки. Здесь находится одно необыкновенное млекопитающее, Рыцарь Тьмы. Один из самых примечательных видов на Земле, закованный в абсолютно непримечательное тело. Это животное использует эхолокацию как летучая мышь и пользуется ядом как змея, (   Читать дальше...   )Телекомпания: США, студия Red Rocks Films, National Geographic CannelЖанр: ДокументальныйРежиссер: Дженни АпостолПеревод: Одноголосый закадровый, профессиональный,  Студия "Велес"Продолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44B19A631B5C6EEEFB9A26B44991803479F35B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374707   (872339) от 10.04.2020
+
+NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_872339.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме мы расскажем о двух львах, которые переплыли через реку в Намибии и присоединились к двум львицам в заповеднике Селинда. У этих двух семей появились шесть львят, о жизни которых и пойдет речь в этой истории.Производство: Ботсвана, Южная Африка, Wildlife Films Botswana for National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Беверли Жубер, Дерек ЖуберПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF8287BFD36BC1BE76D9750CEAEE1AB9E5164FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374399   (872213) от 10.04.2020
 
 Инстинкт выживания / Primal Survivor (2015) WEB-DL [H.264/1080p] (сезон 1, серии 8 из 8)
@@ -6,7 +84,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872213.jpg" />
+  <img src="Z:/picture/008/save_picture_872213.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG. Тайны истории. Распутин / Mystery Files. Rasputin (2009)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870266.jpg" />
+  <img src="Z:/picture/008/save_picture_870266.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ NG Потерянный рай Африки / Africa`s Lost Eden (2009) HDTVRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869958.jpg" />
+  <img src="Z:/picture/008/save_picture_869958.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Nat Geo Wild: Секретный кубинский риф / Cuba's Secret Reef 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869830.jpg" />
+  <img src="Z:/picture/008/save_picture_869830.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Nat Geo Wild: Дикие острова: Невиданные острова / U
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869825.jpg" />
+  <img src="Z:/picture/008/save_picture_869825.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ NG: Суперспособности животных / Animal Superpowers (2012
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864413.jpg" />
+  <img src="Z:/picture/008/save_picture_864413.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ NG: Дикая Флорида  / Wild Florida (2013) BDRip [H.264/720p] (сер�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855970.jpg" />
+  <img src="Z:/picture/008/save_picture_855970.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ NG: Дикая природа России / Wild Russia (2009) BDRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854303.jpg" />
+  <img src="Z:/picture/008/save_picture_854303.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Nat Geo Wild: Зимний сезон / Wild Winter (2016) HDTVRip [H.264/720p-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848518.jpg" />
+  <img src="Z:/picture/008/save_picture_848518.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Nat Geo Wild: Дикие земли Европы / Europe's Great Wilderness (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848367.jpg" />
+  <img src="Z:/picture/008/save_picture_848367.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ NGW. Львы: как братья стали королями / Lion Brothers: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846389.jpg" />
+  <img src="Z:/picture/008/save_picture_846389.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ NG: Затерянные сокровища Майя / Lost Treasures of the May
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846130.jpg" />
+  <img src="Z:/picture/008/save_picture_846130.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ NG: Дикая природа России / NG: Wild Russia (2009) HDTVRip (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845646.jpg" />
+  <img src="Z:/picture/008/save_picture_845646.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843107.jpg" />
+  <img src="Z:/picture/008/save_picture_843107.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843098.jpg" />
+  <img src="Z:/picture/008/save_picture_843098.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ NG. Бушующие миры: Смертоносная пыль / Storm Worlds:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843019.jpg" />
+  <img src="Z:/picture/008/save_picture_843019.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ NG: Марс: Один день на красной планете / Mars: One D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842550.jpg" />
+  <img src="Z:/picture/008/save_picture_842550.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ National Geographic. Охотники на питонов. Нашествие з
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841531.jpg" />
+  <img src="Z:/picture/008/save_picture_841531.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841425.jpg" />
+  <img src="Z:/picture/008/save_picture_841425.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841424.jpg" />
+  <img src="Z:/picture/008/save_picture_841424.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840946.jpg" />
+  <img src="Z:/picture/008/save_picture_840946.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838200.jpg" />
+  <img src="Z:/picture/008/save_picture_838200.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837849.jpg" />
+  <img src="Z:/picture/008/save_picture_837849.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A515459263D14A89518297FDD01E18F467369073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380619   (832939) от 03.05.2020
-
-Сила племени / Survive the Tribe (2014) WEB-DL [H.264/1080p] (сезон 1, серии 6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячи лет племена борются за свое выживание на самых суровых землях в мире. Его зовут Хэйзен Одел и он - инструктор по выживанию и гид по дикой природе. Он хочет обучаться у лучших, поэтому путешествует по самым отдаленным уголками земного шара, чтобы бросить вызов сложнейшим испытаниям. Чтобы преодолеть их, он должен научиться выживать в природе, используя лишь (   Читать дальше...   )Производство: Великобритания, Icon Films, National GeographicЖанр: Документальный, путешествия, экстримРежиссер: Алекс Паркинсон, Джордж Пальеро, Адриан Макфарлейн, Стивен ШирманПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 6 x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79FBFF35108B918FD09914BE2ABADC34D902DFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658187   (832293) от 09.04.2016
-
-NG. Загадки Библии. Воины-тамплиеры / The Secret Bible. Knights Templar (2007) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тамплиерами (храмовниками) назывались члены католического духовно-рыцарского ордена, основанного в Иерусалиме в 1118 году. Таинственные и могущественные воины-крестоносцы навсегда вошли в историю и стали легендой. По законам, установленным после завоевания Иерусалима, в течение 200 лет тамплиеры владели огромными землями в Европе, от Шотландии и до самой Азии. Однако (   Читать дальше...   )Жанр: Документальный, исторический, научно-познавательныйисторияПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:48:02
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502091   (831732) от 12.10.2021
-
-NG. Грядет шторм / Gathering Storm (2020) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот глобальный сериал, представляющий собой уникальный обзор самых жестоких штормов планеты, снят на основе свидетельств людей, которые работают в море в основных ураганных центрах планеты. Наблюдение за ураганами ведется здесь с помощью сотен кинокамер, установленных на кораблях и нефтяных платформах в соответствии с соглашениями о доступе, заключенными на длительный (   Читать дальше...   )Производство: США, KEO Films, National GeographicЖанр: Документальный, научно-популярный, метеорология, катастрофыПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15C0E5017422EE0D76430E8EBCB6D1150E034F0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

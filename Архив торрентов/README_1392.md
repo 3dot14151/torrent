@@ -6,7 +6,7 @@ Vinegar 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738488.jpg" />
+  <img src="Z:/picture/008/save_picture_738488.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Fix My iPhone 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738471.jpg" />
+  <img src="Z:/picture/008/save_picture_738471.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ HDCleaner 2.014 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738465.jpg" />
+  <img src="Z:/picture/008/save_picture_738465.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Wondershare PDFelement Pro 8.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738463.jpg" />
+  <img src="Z:/picture/008/save_picture_738463.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Mirillis Action! 4.24.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738455.jpg" />
+  <img src="Z:/picture/008/save_picture_738455.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Internet Download Manager 6.40 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738428.jpg" />
+  <img src="Z:/picture/008/save_picture_738428.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ AlterPDF Pro 5.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738422.jpg" />
+  <img src="Z:/picture/008/save_picture_738422.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ TweakPower 2.007 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738420.jpg" />
+  <img src="Z:/picture/008/save_picture_738420.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ CCleaner 5.89.9385 Professional / Business / Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738393.jpg" />
+  <img src="Z:/picture/008/save_picture_738393.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Mozilla FireFox 96.0.2.8054 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738387.jpg" />
+  <img src="Z:/picture/008/save_picture_738387.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ CCleaner 5.89.9385 Free / Professional / Business / Technician_Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738386.jpg" />
+  <img src="Z:/picture/008/save_picture_738386.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Notepad++ 8.2.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738383.jpg" />
+  <img src="Z:/picture/008/save_picture_738383.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Adobe Acrobat Reader для PDF 21.10.0.19962.Beta Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738380.jpg" />
+  <img src="Z:/picture/008/save_picture_738380.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ R-Drive Image System Recovery Media Creator 7.0 Build 7001 RePack (& Portable) b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738378.jpg" />
+  <img src="Z:/picture/008/save_picture_738378.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Master PDF Editor 5.8.30 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738353.jpg" />
+  <img src="Z:/picture/008/save_picture_738353.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ UnHackMe 13.30.2022.0111 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738350.jpg" />
+  <img src="Z:/picture/008/save_picture_738350.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ FXSound Pro 1.1.14.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738346.jpg" />
+  <img src="Z:/picture/008/save_picture_738346.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738332.jpg" />
+  <img src="Z:/picture/008/save_picture_738332.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738266.jpg" />
+  <img src="Z:/picture/008/save_picture_738266.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ BatchOutput PDF 2.3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738183.jpg" />
+  <img src="Z:/picture/008/save_picture_738183.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Mic Drop 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738182.jpg" />
+  <img src="Z:/picture/008/save_picture_738182.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Posterino 3 v3.11.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738181.jpg" />
+  <img src="Z:/picture/008/save_picture_738181.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ GoodNotes 5 v5.7.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738180.jpg" />
+  <img src="Z:/picture/008/save_picture_738180.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Author 8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738179.jpg" />
+  <img src="Z:/picture/008/save_picture_738179.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Dropzone 4 Pro v4.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738178.jpg" />
+  <img src="Z:/picture/008/save_picture_738178.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ WonderPen 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738176.jpg" />
+  <img src="Z:/picture/008/save_picture_738176.jpg" />
 </div>
 
 

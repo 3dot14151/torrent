@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810366.jpg" />
+  <img src="Z:/picture/008/save_picture_810366.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Amin Yousefinejad - Implicit Point (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810364.jpg" />
+  <img src="Z:/picture/008/save_picture_810364.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810363.jpg" />
+  <img src="Z:/picture/008/save_picture_810363.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810362.jpg" />
+  <img src="Z:/picture/008/save_picture_810362.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810361.jpg" />
+  <img src="Z:/picture/008/save_picture_810361.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Acharné (Acharne) - Innocence and Suburbia (2017) Seppüku Records [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810360.jpg" />
+  <img src="Z:/picture/008/save_picture_810360.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ ApowerREC 1.5.1.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810343.jpg" />
+  <img src="Z:/picture/008/save_picture_810343.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810330.jpg" />
+  <img src="Z:/picture/008/save_picture_810330.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810307.jpg" />
+  <img src="Z:/picture/008/save_picture_810307.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810306.jpg" />
+  <img src="Z:/picture/008/save_picture_810306.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810305.jpg" />
+  <img src="Z:/picture/008/save_picture_810305.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810304.jpg" />
+  <img src="Z:/picture/008/save_picture_810304.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810303.jpg" />
+  <img src="Z:/picture/008/save_picture_810303.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810302.jpg" />
+  <img src="Z:/picture/008/save_picture_810302.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810301.jpg" />
+  <img src="Z:/picture/008/save_picture_810301.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810300.jpg" />
+  <img src="Z:/picture/008/save_picture_810300.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810299.jpg" />
+  <img src="Z:/picture/008/save_picture_810299.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810298.jpg" />
+  <img src="Z:/picture/008/save_picture_810298.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810297.jpg" />
+  <img src="Z:/picture/008/save_picture_810297.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810296.jpg" />
+  <img src="Z:/picture/008/save_picture_810296.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Together 3.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810289.jpg" />
+  <img src="Z:/picture/008/save_picture_810289.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810269.jpg" />
+  <img src="Z:/picture/008/save_picture_810269.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Cornelius + Cretu - Cornelius + Cretu (1992) LP [MP3|320 Kbps] <Electronic, Pop,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810263.jpg" />
+  <img src="Z:/picture/008/save_picture_810263.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Invisor - Media File Inspector 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810259.jpg" />
+  <img src="Z:/picture/008/save_picture_810259.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ David Sylvian - Brilliant Trees / Words With The Shaman (1984) USA edition, 1994
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810257.jpg" />
+  <img src="Z:/picture/008/save_picture_810257.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ Photos Exif Editor 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810254.jpg" />
+  <img src="Z:/picture/008/save_picture_810254.jpg" />
 </div>
 
 

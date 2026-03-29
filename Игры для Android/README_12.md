@@ -6,7 +6,7 @@
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323317.jpg" />
+  <img src="Z:/picture/008/save_picture_323317.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Johnny Trigger v1.11.5 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321901.jpg" />
+  <img src="Z:/picture/008/save_picture_321901.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Cookies Must Die v1.1.2 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321777.jpg" />
+  <img src="Z:/picture/008/save_picture_321777.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Age of Civilizations II v1.014177-ELA [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321671.jpg" />
+  <img src="Z:/picture/008/save_picture_321671.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Plants vs. Zombies™ Heroes v1.36.42 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321541.jpg" />
+  <img src="Z:/picture/008/save_picture_321541.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Who Are You, Mr. Cooper? v1.11 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319549.jpg" />
+  <img src="Z:/picture/008/save_picture_319549.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Sky: Дети Света v0.11.2 (156351) [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319453.jpg" />
+  <img src="Z:/picture/008/save_picture_319453.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317932.jpg" />
+  <img src="Z:/picture/008/save_picture_317932.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Warlords of Aternum v1.11.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312839.jpg" />
+  <img src="Z:/picture/008/save_picture_312839.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Brawl Stars v30.242 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312492.jpg" />
+  <img src="Z:/picture/008/save_picture_312492.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Among Us v2020.10.22 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312397.jpg" />
+  <img src="Z:/picture/008/save_picture_312397.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ FRONTLINE COMMANDO 2 v3.0.3 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310504.jpg" />
+  <img src="Z:/picture/008/save_picture_310504.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Civilization Revolution 2 v1.4.4 [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306651.jpg" />
+  <img src="Z:/picture/008/save_picture_306651.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Plague Inc. v1.18.0 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305889.jpg" />
+  <img src="Z:/picture/008/save_picture_305889.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Real Monster Fishing 2020 v0.1.178 [Ru/Multi] (обновляемая)
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302006.jpg" />
+  <img src="Z:/picture/008/save_picture_302006.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Jetpack Joyride v1.34.1 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297746.jpg" />
+  <img src="Z:/picture/008/save_picture_297746.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Sky Force 2014 v1.41 [Ru]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297196.jpg" />
+  <img src="Z:/picture/008/save_picture_297196.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Hitman: Sniper 1.7.75196 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291420.jpg" />
+  <img src="Z:/picture/008/save_picture_291420.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Furry Pet Hospital v1.0 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291031.jpg" />
+  <img src="Z:/picture/008/save_picture_291031.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ CatchaAll v1.2 [En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280022.jpg" />
+  <img src="Z:/picture/008/save_picture_280022.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Tacticool v0.945 [Ru/En]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267429.jpg" />
+  <img src="Z:/picture/008/save_picture_267429.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261600.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Jewel Legend: игра три в ряд v3.18.3 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261021.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Wordhane - игра в слова v1.9954 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260775.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257952.jpg" />
+  <img src="Z:/picture/005/save_picture_257952.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Ocean Match / Рыбки: Три в ряд v3.3.0 Mod by vadj [Ru/Multi]
 >>Игры для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256747.jpg" />
+  <img src="Z:/picture/005/save_picture_256747.jpg" />
 </div>
 
 

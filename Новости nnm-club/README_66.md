@@ -1,3 +1,108 @@
+###  Публикация: 1115458   (825682) от 18.03.2017
+
+Набор обновлений UpdatePack7R2 17.3.15 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC59B8BEF1CF18BDEBE4F5B486046E47A1C0AD9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115819   (825661) от 18.03.2017
+
+Proteus 8 Professional 8.6 SP2 Build 23525 RePack [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Proteus Professional — пакет программ для автоматизированного проектирования электронных схем. Пакет представляет собой систему схемотехнического моделирования, базирующуюся на основе моделей электронных компонентов принятых в PSpice. Отличительной чертой пакета Proteus Professional является возможность моделирования работы программируемых устройств: микроконтроллеров, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1465F4FC192C560A8B9083268EB5D8B3DA4A0C21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113919   (825657) от 18.03.2017
+
+Новогодний корпоратив / Office Christmas Party (2016) WEB-DLRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда сестра героя, генеральный директор компании, угрожает брату закрыть его филиал, он устраивает эпическую рождественскую вечеринку, чтобы заполучить большого клиента и спасти фирму. Однако праздник выходит из-под контроля..Производство: США, Bluegrass Films, DreamWorks Pictures, DreamWorks SKGЖанр: КомедияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Бейтмен, Оливия Манн, ТиДжей Миллер, Дженнифер Энистон, Кейт МакКиннон, Кортни Б. Вэнс, Джиллиан Белл, Роб Кордри, Ванесса Байер, Рэндолл ПаркПеревод: Многоголосый закадровый, профессиональный (Синема УС)Продолжительность: 01:45:41Реклама: Присутствуют голосовые и текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBCD11653BC8B3710E9140DC99F0C883B6E078C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325478   (825622) от 07.05.2020
+
+PowerTube 4.5.1 [Ru/En] (Авторская раздача)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825622.jpg" />
+</div>
+
+
+###  Подробнее
+
+PowerTube поможет скачать ваши любимые видео и музыку с огромного списка сайтов.
+Поддерживаются такие сайты как YouTube, ivi.ru, 1tv, twitch.tv, Яндекс Музыка и многие другие(~1000 сайтов)Тип издания: ЛицензияРелиз состоялся: 13.09.2019Разработчик: RazarПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9ECE6182DCAD7119B5A77407132B5391E4D88F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066418   (825515) от 01.01.2018
 
 Tanki X (2016) [Ru] (29.12.17) License
@@ -6,7 +111,7 @@ Tanki X (2016) [Ru] (29.12.17) License
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825515.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825510.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824893.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Nexus: The Jupiter Incident HD (2016) [Ru/Multi] (1.02) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824506.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824505.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Kingdom (2015) [En/Multi] (1.2.0) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824503.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824484.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824096.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823955.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_823941.jpg" />
+  <img src="Z:/picture/009/save_picture_823941.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ Ultimate Adobe Photoshop Plug-ins Bundle 2015.03 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823933.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ Clover 3.5.4.20416 beta [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823840.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4498.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823812.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823731.jpg" />
 </div>
 
 
@@ -376,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823131.jpg" />
 </div>
 
 
@@ -402,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823130.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823112.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822572.jpg" />
 </div>
 
 
@@ -482,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822465.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822443.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822231.jpg" />
+  <img src="Z:/picture/008/save_picture_822231.jpg" />
 </div>
 
 
@@ -562,117 +667,13 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_822144.jpg" />
+  <img src="Z:/picture/005/save_picture_822144.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Исследовательская группа из университета Кобэ (Kobe University), Япония, разработала технологию, позволяющую создавать устройства хранения информации, способные обеспечить сохранность записанных в них данных на протяжении одной тысячи лет. Кроме этого, чипы такой памяти имеют показатель плотности записи информации, сопоставимые с аналогичным показателем современных жестких дисков.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143124   (821993) от 03.01.2018
-
-Bulletstorm (2017) [Ru/Multi] (1.1.12212.0/upd2/dlc) Repack =nemos= [Full Clip Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - Грейсон Хант, некогда элитный киллер Dead Echo. После крушения корабля вы оказались на заброшенной планете-курорте Стигия и должны сделать выбор: спасаться или отомстить предателю. Bulletstorm: Full Clip Edition – яркий и до странности уместный ремастер мясного Bulletstorm, вышедшего шесть с лишним лет назад. Несмотря на отсутствие каких-либо качественных изменений (   Читать дальше...   )Тип издания: RepackРазработчик: People Can FlyЖанр: Action, Shooter, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B32FBF1ED5F61676CF355C319B7FDD334942B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116692   (821945) от 20.03.2017
-
-Изгой-один: Звёздные войны. Истории / Rogue One: A Star Wars Story (2016) HDRip [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сопротивление собирает отряд для выполнения особой миссии — надо выкрасть чертежи самого совершенного и смертоносного оружия Империи. Возглавляет бойцов неуправляемая и бесстрашная Джин Эрсо, у которой в этом самоубийственном задании есть и личные мотивы. Не всем суждено вернуться домой, но герои готовы к этому, ведь на кону судьба Галактики.Производство: США, Allison Shearmur Productions, Black Hangar Studios, Lucasfilm Ltd., Walt Disney Studios Motion PicturesЖанр: Фантастика, Боевик, ПриключенияРежиссер: Гарет ЭдвардсАктеры: Фелисити Джонс, Мадс Миккельсен, Алан Тьюдик, Донни Йен, Бен Мендельсон, Форест Уитакер, Диего Луна, Джонатан Арис, Риз Ахмед, Артур Л. БернштейнПеревод: Дублированый (Чистый звук)Продолжительность: 02:14:30Реклама: Присутствуют вставки голосовой и текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0EAB0E198EC33763ECE60B108A2AB47EEDC8214
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116743   (821942) от 20.03.2017
-
-Kaspersky Internet Security 2017 17.0.0.611 (without Secure Connection) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Internet Security 2017 - комплексный Антивирус Касперского, который предлагает расширенные возможности: Безопасные платежи, Виртуальная клавиатура, Родительский контроль и Контроль программ. Новая версия обеспечивает комплексную защиту от всех видов вредоносных программ и интернет-угроз за счет комбинации облачных, проактивных и антивирусных технологий, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A7F0F42890AFC63ABDA2284CA393952001C7B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007495   (821292) от 15.04.2016
-
-Российские ученые разработали безопасную квантовую коммуникационную систему дальнего действия
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_821292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Область информационной безопасности становится все актуальней с каждым днем. Если немногим ранее этой области уделяли внимание только крупные компании, банки и государственные организации, то сейчас информационной безопасностью занимаются специалисты предприятий малого бизнеса и даже индивидуальные пользователи. Однако, используемые сейчас алгоритмы шифрования несовершенны, (   Читать дальше...   )
 
 ## Скачать торент
 ```bash

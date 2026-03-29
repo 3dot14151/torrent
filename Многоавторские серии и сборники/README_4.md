@@ -1,3 +1,118 @@
+###  Публикация: 602563   (997499) от 13.01.2013
+
+Книжная серия | Русское поле (11 книг) [1996-1997] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русское поле - серия отечественной фантастики, в которой планировалось издавать, как классиков жанра, так и малоизвестных авторов. За время существования в серии были изданы прекрасные сборники рассказов Сергея Другаля и Олега Корабельникова, четырехтомник Кира Булычева, а также несколько романов молодых авторов.
+Параллельно Русскому полю в идентичном оформлении издавалась серия переводной фантастикиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3ECBA9ED524F63A53E9CAB2F69E66473BFA0B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602379   (997373) от 13.01.2013
+
+"Мир книги" | Книжная серия "Классика приключенческого романа" (46 томов) [2007 – 2010] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классика приключенческого романах - серия издательств Литература и Мир книги, запущенная в 2007 году. В ней издаются и популярные приключенческие произведения, и малоизвестные романы.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7660171D82E772069D81A9FFB35146F9FE14304A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602839   (997171) от 14.01.2013
+
+Книжная серия "Боевик от Александра Мазина" (16 томов) [2005-2009] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Боевик от Александра Мазина включает в себя не только книги Мазина, но и других авторов. Боевики на грани фантастики.
+Список книг:
+Михаил Ахманов. 	Наемник
+Михаил Ахманов. 	Наследник
+Александр Золотько. 	Мент для новых русских
+Александр Золотько. 	Мент. Правосудие любой ценой
+Александр Золотько. 	Мент. Разборки под прикрытием
+Александр Золотько. 	Мент. Рождество по-новорусски
+Евгений Костюченко. 	Сафари для русских мачо
+Александр Мазин. 	Инквизитор 1. Я - Инквизитор(   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0906B7A3CF3159A348F563F230B98FDF2F247B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570565   (997114) от 14.01.2013
+
+Книжная серия | Поединок (8 книг) [1975-1993] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поединок - ежегодные сборники издательства «Московский рабочий», в которые включались военные, приключенческие, детективные романы, повести и рассказы советских писателей.
+Всего было издано 19 антологий. Первый выпуск вышел в 1975 году, девятнадцатый - в 1993.Жанр: Детектив, приключениеФормат: FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603659   (996400) от 17.01.2013
 
 Крылов | Книжная серия "Внеклассная история" (13 книг) [2006-2007] [FB2]
@@ -6,7 +121,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996400.jpg" />
 </div>
 
 
@@ -33,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996398.jpg" />
 </div>
 
 
@@ -68,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996392.jpg" />
 </div>
 
 
@@ -94,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995463.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995019.jpg" />
 </div>
 
 
@@ -150,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995001.jpg" />
 </div>
 
 
@@ -179,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994975.jpg" />
 </div>
 
 
@@ -207,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994673.jpg" />
 </div>
 
 
@@ -234,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994490.jpg" />
 </div>
 
 
@@ -261,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994434.jpg" />
 </div>
 
 
@@ -289,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994399.jpg" />
 </div>
 
 
@@ -317,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993999.jpg" />
 </div>
 
 
@@ -343,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993990.jpg" />
 </div>
 
 
@@ -371,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993943.jpg" />
 </div>
 
 
@@ -401,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993369.jpg" />
 </div>
 
 
@@ -436,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990829.jpg" />
 </div>
 
 
@@ -465,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990595.jpg" />
 </div>
 
 
@@ -492,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990048.jpg" />
 </div>
 
 
@@ -521,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989963.jpg" />
 </div>
 
 
@@ -549,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989960.jpg" />
 </div>
 
 
@@ -576,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989951.jpg" />
 </div>
 
 
@@ -604,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988160.jpg" />
 </div>
 
 
@@ -615,113 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50F80B6B05DBBEF143D65426F84D2AFC6DBBDFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562977   (988026) от 31.01.2013
-
-Книжная серия "Темный город 2" [2004-2006] [FB2](Обновлено 30 января 2013)
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книжная серия "Темный город-2" продолжила серию "Темный город" в 2004 году и выпускалась до 2006 года.
- Были закончены некоторые циклы, начатые в предыдущей серии (например, цикл Сомтоу "Вампирский Узел").
- Книги издавались в мягкой, но яркой обложке, на которой прочти всегда присутствовали вампирские клыки, готовые оттяпать вам палец, или что-то еще...Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABEDA3FC5E57EC288DAC74862ED53B03F18BCBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611384   (987910) от 31.01.2013
-
-"Олма-Пресс" | Книжная серия "Досье" (94 тома) [1997-2008] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987910.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Досье» — уникальная историческая серия. Много тайн и загадок хранит новая история России. Авторы серии — популярные писатели, историки, признанные мастера «литературы факта» рассказывают читателю о том, что происходило в нашей стране в XX веке. Тайны, загадки, интриги, вожди, провокации и секретные операции, закулисные «игры» и становление новой русской демократии. В книгах серии — воспоминания, документы, рассекреченные папки, сенсации, суперсенсации и антисенсации.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DC6E57F0CC4EAE7061B9D1CB7F0060695033CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475284   (987732) от 31.01.2013
-
-Книжная серия "Премия Букера. Избранное" (25 книг) [2003-2005] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта серия вобрала в себя произведения, которые были лауреатами и номинанты на известную Букеровскую премию. Данная серия была одобрена Букеровским комитетом.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504F380A5A01E206B68E40B19431CB6FDFDE3867
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 848500   (984065) от 04.01.2016
-
-Книжная серия | Всемирная история в романах [89 книг. Обновляемая] (1993-2015) [FB2, DJVU]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984065.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Всемирная история в романах» - серия лучшей исторической прозы, издается с 2006 года. С 1993 по 1996 год выходила в издательствах «Новая книга» и «Дрофа», а с 2006 года в другом оформлении издает «Вече».
-Печатаются наиболее интересные исторические романы, дилогии, трилогии как отечественных, так и зарубежных мастеров пера.Жанр: Исторический романФормат: FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6154948D797123C0731E80574285F875AFBA2759
 ```
 
 https://mybot314.ru/tekegram_catalog/

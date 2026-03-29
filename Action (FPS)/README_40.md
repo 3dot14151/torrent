@@ -1,3 +1,118 @@
+###  Публикация: 596215   (131221) от 30.12.2012
+
+Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru] (L) 2009
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый тактический шутер от City Interactive- Вы играете за наемника, работающего на правительство в
+организации называемой "Armed Forces Corp." Все, что вас интересует это деньги, и вы их получите- Для
+этого необходимо пробраться в небоскреб окулированный террористами... Всего будет восемь миссий, в
+которых вам придется кроме обычного огнестрельного оружия использовать различное снаряжение,
+например очки ночного видения и противогаз. После выполнения очередной миссии вам будут платить
+деньги, на которые вы сможете расширять свой арсенал, приобретая новых виды оружия.
+(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A31F38E8F5216FC55CD34CC96FDD389632D4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596303   (131194) от 30.12.2012
+
+Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011 | 2xDVD5
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131194.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Call of Juarez: Картель» переносит действие знаменитой серии шутеров про Дикий Запад в наши дни, сохраняя при этом атмосферу и динамику интерактивного вестерна.
+
+История начинается с взрыва, устроенного членами наркокартеля в здании Министерства юстиции США. Разорвавшаяся бомба унесла жизни сотен людей, но это только начало. Правительство приходит к выводу, что члены преступной организации, скорее всего, уже проникли в ряды властных структур. Единственный шанс остановить мафию — собрать отряд особого назначения из верных людей. Выбор падает на агента ФБР Ким Эванс, которая провела детство на улицах среди преступников и негодяев, Эдди Гуэрру, работника Управления по борьбе с наркотиками, увлекающегося азартными играми, и Бена Маккола, потомка героя оригинальной игры Рея Маккола.
+
+В процессе расследования игроки пройдут через множество испытаний и совершат путешествие из Лос-Анджелеса в загадочный Хуарес, а по пути побывают в Аризоне и Нью-Мексико.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскиеЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDC70A41CADF281DFEAF05472EC8735562BC632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597045   (130631) от 31.12.2012
+
+Devastation / Опустошение [En/Ru] (Rip) 2003 | R.G. Catalyst
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Опустошение - это совершенно новый командный высокотехнологичный 3D-шутер с видом от первого лица, созданный на основе графического движка "Unreal" следующего поколения. Игрока ожидает глобальное погружение в пост-апокалиптический этап развития нашей планеты. Теперь нет рая, нет даже ада - есть только земля, где всем правит коррумпированное правительство и есть те, кто хочет восстановить мир, вернув права народу. Гангстерские разборки, наемные убийцы, бывшие военные - каждый хочет свое и каждый готов приложить все усилия для достижения поставленной перед собой задачи. "Опустошение" это новый шаг в жанре 3D FPS, качественная графика, реалистичная система повреждений, полностью интерактивная окружающая среда и многое другое - все это только малая часть того, что вы увидите в "Опустошении".(   Читать дальше...   )Тип издания: RipЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CF132198DF4D80072ED7AEF92CB849F3753804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479318   (130114) от 02.05.2012
+
+Global Operations [Ru] (RePack) 2002 | Pilotus
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Global Operations - экшн от первого лица, максимально приближенный к реальности. Уж компания Electronic Arts об этом явно позаботилась. Вас ждут 10 самых горячих точек современности, которые перекочевали к вам на компьютеры - это Чечня, Шри-Ланка, Бейрут, юг Китайского моря.
+На каждом уровне тщательно воссозданные здания с шикарными экстерьерами и интерьерами, фотореалистичные (   Читать дальше...   )Тип издания: RePackРазработчик: Barking Dog StudiosЖанр: Тактический трехмерный шутер от первого лицаЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525605   (129343) от 21.01.2022
 
 Clive Barker's Undying (2001) [En] (1.1hf) License GOG
@@ -6,7 +121,7 @@ Clive Barker's Undying (2001) [En] (1.1hf) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129343.jpg" />
 </div>
 
 
@@ -32,7 +147,7 @@ Borderlands 2 (2012) [Ru/En] (Build 9218157/dlc) Repack Wanterlude [Game of the 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128839.jpg" />
 </div>
 
 
@@ -58,7 +173,7 @@ Ready or Not (2023) [Multi] (39903) Repack DjDI [Supporter Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127014.jpg" />
 </div>
 
 
@@ -84,7 +199,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125261.jpg" />
 </div>
 
 
@@ -110,7 +225,7 @@ S.E.C.U. (2023) [Ru/En] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124491.jpg" />
 </div>
 
 
@@ -136,7 +251,7 @@ Hedon Bloodrite (2019) [En] (2.4.2/dlc) License GOG [Extra Thicc Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124013.jpg" />
 </div>
 
 
@@ -162,7 +277,7 @@ GoreBox (2023) [En] (14.9.3) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123604.jpg" />
 </div>
 
 
@@ -188,7 +303,7 @@ Blood: Fresh Supply (2019) [Ru/En] (1.9.10-1/dlc) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122863.jpg" />
 </div>
 
 
@@ -214,7 +329,7 @@ Serious Sam 3: BFE (2011) [Ru/Multi] (3.0.3.0.261096/dlc) Repack Other s [Gold E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121480.jpg" />
 </div>
 
 
@@ -240,7 +355,7 @@ Heretic + Heretic 2 (1994, 1998) [Ru/En] (1.0) Repack/Rip Pilotus
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118212.jpg" />
 </div>
 
 
@@ -266,7 +381,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) Repack Decepticon [Deluxe Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117894.jpg" />
 </div>
 
 
@@ -292,7 +407,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117125.jpg" />
 </div>
 
 
@@ -318,7 +433,7 @@ Green Hell (2019) [Ru/Multi] (2.7.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117097.jpg" />
 </div>
 
 
@@ -344,7 +459,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (1.07) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116819.jpg" />
 </div>
 
 
@@ -370,7 +485,7 @@ Skibidi Toilets: Invasion (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116793.jpg" />
 </div>
 
 
@@ -396,7 +511,7 @@ Turok 3: Shadow of Oblivion Remastered (2023) [Ru/Multi] (1.1.2381.1623) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116631.jpg" />
 </div>
 
 
@@ -422,7 +537,7 @@ The Carrier and Crows (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116623.jpg" />
 </div>
 
 
@@ -448,7 +563,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115957.jpg" />
 </div>
 
 
@@ -474,7 +589,7 @@ Singularity (2010) [Ru/En] (1.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115951.jpg" />
 </div>
 
 
@@ -500,7 +615,7 @@ Seed of the Dead: Sweet Home (2021) [Multi] (2.103/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115657.jpg" />
 </div>
 
 
@@ -526,7 +641,7 @@ Dying Light 2: Stay Human (2022) [Ru] (1.15.1/dlc) Repack Other s [Reloaded Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115630.jpg" />
 </div>
 
 
@@ -552,7 +667,7 @@ Fossilfuel 2 (2024) [Multi] (1.0.1) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115269.jpg" />
 </div>
 
 
@@ -563,110 +678,6 @@ Fossilfuel 2 забрасывает игроков в затопленный и�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE097DAFCD65F3D3B3DE7C42F2F390F34AF659F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703625   (114906) от 01.03.2024
-
-WRATH: Aeon of Ruin (2019) [Ru/Multi] (1.5) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114906.jpg" />
-</div>
-
-
-###  Подробнее
-
-WRATH: Aeon of Ruin – шутер от первого лица, созданный на движке первого Quake от создателей Макса Пейна, Дюка Нюкема и других подобных эпичных игр. Данный игровой процесс только для сильных духом, ведь количество монстров и стрельбы просто зашкаливает! Бегайте и прыгайте по зловещим уровням, чтобы сражаться с многочисленными противниками из самого разнообразного (   Читать дальше...   )Тип издания: RepackРазработчик: KillPixel Games, Slipgate IronworksЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C949B841117C62D41F8C3182630C76CEC4FB2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704157   (114574) от 03.03.2024
-
-Hospital of the Undead (2024) [Ru/Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hospital of the Undead погружает вас в леденящую душу борьбу за выживание от первого лица. Вы очнулись в дезориентированном состоянии, оказавшись запертым в стенах больницы, кишащей нежитью. Ваша цель ясна: сбежать. Но добиться свободы оказывается не так-то просто. Больница, окутанная мраком, превращается в лабиринт с запертыми дверями и таящимися угрозами. Чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: HassaanAsifЖанр: Action, FPSЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D6E87582108B8B5745E0FBDA0599C44D6B2878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710504   (112672) от 27.03.2024
-
-Fida Puti Samurai (2022) [En] (1.0b) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fi da Puti Samurai погружает геймеров в перестрелки, происходящие в сеттинге ретро-футуристического киберпанка. Юзеры будут передвигаться по карте от первого лица и стрелять по приближающимся врагам на арене. В процессе прохождения, игрокам придется посещать процедурно сгенерированные локации городов. Получится путешествовать между разными регионами, отбиваясь от (   Читать дальше...   )Тип издания: RepackРазработчик: Zanardi and LizaЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E80B41476197702B6E5376DE329A302BDAE56D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822976   (104418) от 09.10.2025
-
-Deadlink (2022) [Ru/Multi] (1.2.32484) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deadlink – научно-фантастический шутер с видом от первого лица, события которой разворачиваются в мире далекого будущего. Все локации оформлены в стиле киберпанка, а сам мир представлен классической антиутопией. Все большее могущество набрали мегакорпорации, которые укрепили свою экономическую силу и проводят множество теневых сделок, приносящие миллиарды. Главный (   Читать дальше...   )Тип издания: LicenseРазработчик: Gruby EntertainmentЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA2744E75EF707DBFF643096E41FB932D146016D
 ```
 
 https://mybot314.ru/tekegram_catalog/

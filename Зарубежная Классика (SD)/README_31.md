@@ -1,3 +1,81 @@
+###  Публикация: 1504019   (815942) от 21.10.2021
+
+Скотт из Антарктики / Scott of the Antarctic (1948) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Фолкон Скотт — капитан королевского флота Великобритании, полярный исследователь, один из первооткрывателей Южного полюса, возглавивший две экспедиции в Антарктику: «Дискавери» (1901—1904) и «Терра Нова» (1912—1913). Во время второй экспедиции Скотт вместе с ещё четырьмя участниками похода достиг Южного полюса 17 января 1912 года, но обнаружил, что их на несколько (   Читать дальше...   )Производство: Великобритания, Ealing StudiosЖанр: боевик, драма, приключения, биографияРежиссер: Чарльз ФрендАктеры: Джон Миллз, Диана Черчилль, Харольд Уоррендер, Энн Фёрт, Дерек Бонд, Реджинальд Бекуив, Джеймс Робертсон Джастис, Кеннет Мор, Норман Уильямс, Джон ГрегсонПеревод: одноголосый любительский (Олег Воротилин)Субтитры: Русские (Антон Каптелов), английскиеПродолжительность: 01:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7C5A6DBCB0F5D1B4FB3E7763D84A0DB22762FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006955   (815696) от 18.04.2016
+
+Человек без звезды / Man Without a Star (1955) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кочующий с места на место бывалый ковбой Демпси Рэй встречает во время своих странствий юного Джеффа, вместе с которым находит работу на ранчо. Став хорошим наставником для юноши в обучении ковбойскому мастерству, Дэмпси невольно втягивается в противостояние их хозяйки тем фермерам, которые огораживают свои владения колючей проволокой. Их ранчо не огорожено и это (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Кинг ВидорАктеры: Кирк Дуглас, Джинн Крейн, Клер Тревор, Уильям Кэмпбелл, Ричард Бун, Джей С. Флиппен, Мирна Хансен, Мара Кордей, Эдди Уоллер, Шеб ВулиПеревод: Авторский (С.Кузнецов)Субтитры: ОтсутствуютПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0742E2CCC5879453E410B73CC258544C3212B44C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 315898   (815319) от 30.03.2011
+
+Джоси Уэйлс – человек вне закона / The Outlaw Josey Wales (1976) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815319.jpg" />
+</div>
+
+
+###  Подробнее
+
+В классическом вестерне «Джоси Уэйлс — человек вне закона» Клинт Иствуд, предстаёт в роли отважного героя, напоминающего его знаменитого Человека Без Имени, впервые появившегося в культовой картине «За пригоршню долларов».  Но, в отличие от хладнокровного персонажа классической трилогии Серджио Леоне, у Джоси Уэйлса есть имя, сердце и… праведный гнев! Отомстив за зверское убийство своей семьи, Джоси Уэйлс пускается «в бега».   Теперь он — человек вне закона, которого преследует банда кровожадных убийц. Компанию одинокому мстителю в его опасном путешествии составит группа изгоев (среди них Сондра Локк и вождь Дэн Джордж), которых Уэйлс и станет защищать в предстоящих переделках.Жанр: Вестерн, Боевик, ТриллерРежиссер: Клинт ИствудАктеры: Клинт Иствуд,  Вождь Дэн Джордж,  Сондра Лок,  Билл МакКинни,  Джон Вернон,  Пола Трумен,  Сэм Боттомс,  Geraldine Keams,  Вудроу Парфри,  Джойс ДжеймисонПеревод: Многоголосый закадровыйПродолжительность: 02:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C620F85EAB07142EEBB5649E9448AFBA2B223D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 315680   (815159) от 30.03.2011
 
 Королева Шантеклера / La Reina del Chantecler (1962) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815159.jpg" />
+  <img src="Z:/picture/008/save_picture_815159.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815065.jpg" />
+  <img src="Z:/picture/008/save_picture_815065.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813848.jpg" />
+  <img src="Z:/picture/008/save_picture_813848.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813790.jpg" />
+  <img src="Z:/picture/008/save_picture_813790.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813576.jpg" />
+  <img src="Z:/picture/008/save_picture_813576.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813178.jpg" />
+  <img src="Z:/picture/008/save_picture_813178.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812885.jpg" />
+  <img src="Z:/picture/008/save_picture_812885.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812684.jpg" />
+  <img src="Z:/picture/008/save_picture_812684.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811970.jpg" />
+  <img src="Z:/picture/008/save_picture_811970.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811620.jpg" />
+  <img src="Z:/picture/008/save_picture_811620.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811483.jpg" />
+  <img src="Z:/picture/008/save_picture_811483.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811449.jpg" />
+  <img src="Z:/picture/008/save_picture_811449.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811156.jpg" />
+  <img src="Z:/picture/008/save_picture_811156.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810788.jpg" />
+  <img src="Z:/picture/008/save_picture_810788.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810075.jpg" />
+  <img src="Z:/picture/008/save_picture_810075.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809042.jpg" />
+  <img src="Z:/picture/008/save_picture_809042.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808570.jpg" />
+  <img src="Z:/picture/008/save_picture_808570.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807844.jpg" />
+  <img src="Z:/picture/008/save_picture_807844.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807251.jpg" />
+  <img src="Z:/picture/008/save_picture_807251.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807000.jpg" />
+  <img src="Z:/picture/008/save_picture_807000.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806040.jpg" />
+  <img src="Z:/picture/008/save_picture_806040.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806016.jpg" />
+  <img src="Z:/picture/008/save_picture_806016.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805855.jpg" />
+  <img src="Z:/picture/008/save_picture_805855.jpg" />
 </div>
 
 
@@ -592,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF54DE4D60A9098E2241E0FA5BC042FC5786198A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 679877   (805720) от 18.05.2020
-
-Большой побег / The Great Escape (1963) HDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американские, британские и канадские военнопленные осуществляют массовый побег из немецкого лагеря во время Второй мировой войны.Производство: США/The Mirisch CorporationЖанр: Драма, Триллер, ПриключенияРежиссер: Джон СтёрджесАктеры: Стив МакКуин, Джеймс Гарнер, Ричард Аттенборо, Джеймс Дональд, Чарльз Бронсон, Дональд Плезенс, Джеймс Коберн, Ханнес Мессемер, Дэвид МакКаллум, Гордон ДжексонПеревод: Двуголосый закадровый, НТВ+Продолжительность: 02:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A4E612178F27CE600B8A0334130B1FAC77A407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197535   (804112) от 13.01.2018
-
-Я стеснительный, но я лечусь (Я робкий, но я лечусь) / Je suis timide... mais je me soigne (1978) WEB-DLRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кассир Пьер Рено — милый человек. Но слишком застенчивый. Вот, например: Пьер влюбился. Но он не может открыться своей избраннице. И поэтому страдает, ходит вокруг да около, краснеет, бледнеет. В общем, Пьер принимает решение лечиться от своей застенчивости. А добрым доктором становится итальянец-авантюрист Альдо. Вместе они отправляются на Лазурный берег навстречу (   Читать дальше...   )Производство: Франция / Albina Productions S.a.r.l., Fideline FilmsЖанр: КомедияРежиссер: Пьер РишарАктеры: Пьер Ришар, Альдо Маччоне, Жак Франсуа, Мими Кутелье, Катрин Лашанс, Робер Дальбан, Жан-Клод Массулье, Жак Фаббри, Робер Кастель, Рауль ДэлфозПеревод: Многоголосый x2Субтитры: отсутствуютПродолжительность: 01:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F539BC642932FA21639A2FE5166A7A519376F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318813   (803475) от 05.04.2011
-
-Голубой ангел / Der blaue Engel (1930) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Иммануил Рат работает преподавателем в средней школе, его ученики в свободное от учебы время посещают ночной портовый кабачок «Голубой Ангел», где танцует и поет обворожительная Лола.
-Ее откровенные фото из кабаре школяры разглядывают на уроках и тем самым мешают учебному процессу. Рат решает посетить ночной клуб, чтобы положить конец всей этой непристойности, (   Читать дальше...   )Производство: Германия, Universum Film A.G.Жанр: Драма, музыка, экранизацияРежиссер: Джозеф фон ШтернбергАктеры: Эмиль Яннингс, Марлен Дитрих, Курт Геррон, Роза Валетти, Ганс Альберс, Райнхольд Бернт, Эдуард фон Винтерштайн, Ханс Рот, Рольф Мюллер, Роланд ВарноПеревод: Двуголосый профессиональныйСубтитры: Русские вшитые отключаемыеПродолжительность: 01:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DED0B30311F2DBC80B5B851666CF99A9FCEAE8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

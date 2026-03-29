@@ -1,3 +1,32 @@
+###  Публикация: 1044789   (558975) от 23.08.2016
+
+Игорь Борщенко | Большая книга упражнений для спины: комплекс «Умный позвоночник» (2016) [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_558975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – суперхит Игоря Анатольевича Борщенко, нейрохирурга, кандидата медицинских наук. Комплекс упражнений «Умный позвоночник» давно стал бестселлером № 1 по данной теме!
+Вы сможете узнать:
+– почему у вас болит спина;
+– как избавиться от поясничного прострела;(   Читать дальше...   )Жанр: Медицина, Спорт, фитнесФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57444891A6DCA69DFD3E8A4DBCDA9A4A555E8E8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153662   (556941) от 28.07.2017
 
 Юрий Константинов | Лечение золотом болезней сердца, радикулита, бронхита, хронической усталости... (2017) [FB2, EPUB]
@@ -6,7 +35,7 @@
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556941.jpg" />
+  <img src="Z:/picture/008/save_picture_556941.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556888.jpg" />
+  <img src="Z:/picture/008/save_picture_556888.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556172.jpg" />
+  <img src="Z:/picture/008/save_picture_556172.jpg" />
 </div>
 
 
@@ -85,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555659.jpg" />
+  <img src="Z:/picture/008/save_picture_555659.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554985.jpg" />
+  <img src="Z:/picture/008/save_picture_554985.jpg" />
 </div>
 
 
@@ -137,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554711.jpg" />
+  <img src="Z:/picture/008/save_picture_554711.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552760.jpg" />
+  <img src="Z:/picture/008/save_picture_552760.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552258.jpg" />
+  <img src="Z:/picture/008/save_picture_552258.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551415.jpg" />
+  <img src="Z:/picture/008/save_picture_551415.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550817.jpg" />
+  <img src="Z:/picture/008/save_picture_550817.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550750.jpg" />
+  <img src="Z:/picture/008/save_picture_550750.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550413.jpg" />
+  <img src="Z:/picture/008/save_picture_550413.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549068.jpg" />
+  <img src="Z:/picture/008/save_picture_549068.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545981.jpg" />
+  <img src="Z:/picture/008/save_picture_545981.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543020.jpg" />
+  <img src="Z:/picture/008/save_picture_543020.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540829.jpg" />
+  <img src="Z:/picture/008/save_picture_540829.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540673.jpg" />
+  <img src="Z:/picture/008/save_picture_540673.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539103.jpg" />
+  <img src="Z:/picture/008/save_picture_539103.jpg" />
 </div>
 
 
@@ -488,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538573.jpg" />
+  <img src="Z:/picture/008/save_picture_538573.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537120.jpg" />
+  <img src="Z:/picture/008/save_picture_537120.jpg" />
 </div>
 
 
@@ -544,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537021.jpg" />
+  <img src="Z:/picture/008/save_picture_537021.jpg" />
 </div>
 
 
@@ -570,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531884.jpg" />
+  <img src="Z:/picture/008/save_picture_531884.jpg" />
 </div>
 
 
@@ -596,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530448.jpg" />
+  <img src="Z:/picture/008/save_picture_530448.jpg" />
 </div>
 
 
@@ -622,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530155.jpg" />
+  <img src="Z:/picture/008/save_picture_530155.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Нетрадиционная медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529961.jpg" />
+  <img src="Z:/picture/008/save_picture_529961.jpg" />
 </div>
 
 
@@ -662,32 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82A1EBDC3E23BF66C3C2D16B5685EF6D627BB221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240296   (529544) от 10.08.2018
-
-Матвей Волгин | Большой справочник народной медицины. 3000 рецептов из более 300 лекарственных растений (2018) [PDF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знания о целебной силе растений накапливались на протяжении столетий нашими предками. И в XXI веке медицина, несмотря на могучий арсенал средств, находящихся в ее распоряжении, продолжает обращаться к опыту поколений. Врач и народный целитель Матвей Волгин более 70 лет собирал самые эффективные рецепты. Структура справочника настолько проста и удобна, что даже человек, (   Читать дальше...   )Жанр: Нетрадиционная медицинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C838A4A8F379BDD1EE32F091AED8AF301102E32F
 ```
 
 https://mybot314.ru/tekegram_catalog/

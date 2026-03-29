@@ -1,3 +1,90 @@
+###  Публикация: 1504247   (237075) от 23.10.2021
+
+Toledo Steel - Heading For The Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Writing's On The Wall
+02. On The Loose
+03. Into The Unknown
+04. Smoke And Mirrors(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3180425A4E05983F4AD06FCC89520C18E2A328C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607882   (237073) от 28.01.2023
+
+Liquid Steel - Mountains Of Madness (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traveller In Time
+02. Victim Of The Night
+03. Heavy Metal Fire
+04. Mountains Of Madness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178AC384C5D0C03C9CA33BC0EAC0E5CDF851EA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630761   (237060) от 02.05.2023
+
+Gamma Ray - Blast from the Past (2000) 3xCD, Compilation, Reissue, Remastered, 2023, Ear Music [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237060.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Welcome [00:56]
+02. Lust for Life [05:26]
+03. Heaven Can Wait [04:29](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F122AF5D9426EC32ED0B05FC10478CE3E6701B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452104   (237041) от 05.03.2021
 
 Cannabis Corpse - Choice Nugs (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -6,7 +93,7 @@ Cannabis Corpse - Choice Nugs (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237041.jpg" />
+  <img src="Z:/picture/005/save_picture_237041.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Sintage - Paralyzing Chains (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237035.jpg" />
+  <img src="Z:/picture/005/save_picture_237035.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Trauma - Ominous Black (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237025.jpg" />
+  <img src="Z:/picture/005/save_picture_237025.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Evermore - In Memoriam (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237008.jpg" />
+  <img src="Z:/picture/005/save_picture_237008.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Catalyst Crime - Catalyst Crime (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237004.jpg" />
+  <img src="Z:/picture/005/save_picture_237004.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Max Enix - Far From Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236991.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Neurotech - Ave Neptune (2023) [FLAC|Lossless|WEB-DL|tracks] <Cyber Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236983.jpg" />
+  <img src="Z:/picture/005/save_picture_236983.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Saint Deamon - League Of The Serpent (2023) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236971.jpg" />
+  <img src="Z:/picture/005/save_picture_236971.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Signo Rojo - There Was a Hole Here (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236970.jpg" />
+  <img src="Z:/picture/005/save_picture_236970.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Dust Prophet - One Last Look Upon The Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236965.jpg" />
+  <img src="Z:/picture/005/save_picture_236965.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Angus McSix - Angus McSix And The Sword Of Power (2023) [FLAC|Lossless|WEB-DL|tr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236962.jpg" />
+  <img src="Z:/picture/005/save_picture_236962.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Obelyskkh - The Ultimate Grace Of God (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236955.jpg" />
+  <img src="Z:/picture/005/save_picture_236955.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Hex A.D. - Funeral Tango for Gods & Men (2021) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236953.jpg" />
+  <img src="Z:/picture/005/save_picture_236953.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Black Reflex - Black Reflex (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236945.jpg" />
+  <img src="Z:/picture/005/save_picture_236945.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Ancient Wisdom - A Celebration in Honor of Death (2021) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236908.jpg" />
+  <img src="Z:/picture/005/save_picture_236908.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Kaledon - Legend Of The Forgotten Reign - Chapter VII: Evil Awakens (2022) [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236903.jpg" />
+  <img src="Z:/picture/005/save_picture_236903.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Cline's Mind - Vortex Of Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236902.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Anasazi - cause & consequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236878.jpg" />
+  <img src="Z:/picture/005/save_picture_236878.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Sepultura - A-Lex (2009) Remaster, 2021, BMG Rights Management [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236872.jpg" />
+  <img src="Z:/picture/005/save_picture_236872.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Disturbed - Prayer (2002) Maxi-Single [FLAC|Lossless|tracks + .cue] <Nu Metal, A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236843.jpg" />
+  <img src="Z:/picture/005/save_picture_236843.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Livlos - And Then There Were None (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236827.jpg" />
+  <img src="Z:/picture/005/save_picture_236827.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Disturbed - Live and Indestructible (2008) [FLAC|Lossless|tracks + .cue] <Nu Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236822.jpg" />
+  <img src="Z:/picture/005/save_picture_236822.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Gartraada - A Night Of Winter Solstice (2013) [FLAC|Lossless|image + .cue] <Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236815.jpg" />
+  <img src="Z:/picture/005/save_picture_236815.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ Gartraada - A Night Of Winter Solstice (2013) [FLAC|Lossless|image + .cue] <Atmo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F38A9A3FD694BA974B7B0665741F303C43BFE0DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608660   (236805) от 31.01.2023
-
-Cancervo - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arera [00:04:08]
-02. Herdsman of Grem [00:05:31]
-03. The Cult of Armentarga [00:04:02]
-04. Devil's Coffin [00:05:37](   Читать дальше...   )Жанр: Psychedelic, Stoner, Doom MetalПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0E9A60B686F9A926488B7A2B5EAFBA0394CE47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631271   (236780) от 04.05.2023
-
-Deathstars - Everything Destroys You (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is (3:42)
-02. Midnight Party (3:44)
-03. Anti All (4:05)
-04. Everything Destroys You (3:56)(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09B3A324F5A1035757CA0E29301F70CB4928004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608656   (236778) от 31.01.2023
-
-Destronomer - The Two Horns (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. March
-02. Bin Diver
-03. Autonaught
-04. Core Fallen(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 00:49:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B65DA043EDEB79087A519455FF97FC96904DE633
 ```
 
 https://mybot314.ru/tekegram_catalog/

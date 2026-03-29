@@ -6,7 +6,7 @@ BBC: Секреты космических войн / Space War Secrets (2020) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797340.jpg" />
+  <img src="Z:/picture/008/save_picture_797340.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797338.jpg" />
+  <img src="Z:/picture/008/save_picture_797338.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC. Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797118.jpg" />
+  <img src="Z:/picture/008/save_picture_797118.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796686.jpg" />
+  <img src="Z:/picture/008/save_picture_796686.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Удивительный мир данных / The Joy of Data (2016) HDTVR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796508.jpg" />
+  <img src="Z:/picture/008/save_picture_796508.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. Взломщики кодов. Забытые герои Блетчли-П�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796056.jpg" />
+  <img src="Z:/picture/008/save_picture_796056.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. Искусство стран Бенилюкса / The High Art of the Low 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794625.jpg" />
+  <img src="Z:/picture/008/save_picture_794625.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BBC. Искусство Германии / Art of Germany (2010) HDTVRip (сер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794581.jpg" />
+  <img src="Z:/picture/008/save_picture_794581.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ BBC. Искусство Испании / The Art of Spain (2008) SATRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794569.jpg" />
+  <img src="Z:/picture/008/save_picture_794569.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ BBC. Искусство России / The Art of Russia (2009) HDTVRip (сер�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794495.jpg" />
+  <img src="Z:/picture/008/save_picture_794495.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ BBC: Бог любит Уганду / God Loves Uganda (2013) WEBRip [H.264/1080
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793857.jpg" />
+  <img src="Z:/picture/008/save_picture_793857.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ BBC: Серенгети / Serengeti (2019) BDRip [H.264/720p] (сезон 1, с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793340.jpg" />
+  <img src="Z:/picture/008/save_picture_793340.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ BBC: Планеты / The Planets (2019) HDTVRip [H.264/720p-LQ] (сезон 1, 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792317.jpg" />
+  <img src="Z:/picture/008/save_picture_792317.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ BBC: Сексуальная эксплуатация малолетних в Я�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792288.jpg" />
+  <img src="Z:/picture/008/save_picture_792288.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BBC. Голубая планета 2 / Blue Planet II (2017) UHD BDRemux [H.265/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791893.jpg" />
+  <img src="Z:/picture/008/save_picture_791893.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791397.jpg" />
+  <img src="Z:/picture/008/save_picture_791397.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ BBC. Время / Time (2006) DVDRip [H.264] (серии 1-4 из 4)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790169.jpg" />
+  <img src="Z:/picture/008/save_picture_790169.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789790.jpg" />
+  <img src="Z:/picture/008/save_picture_789790.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ BBC. Живая природа Японии / Japan: Earth's Enchanted Islands (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788035.jpg" />
+  <img src="Z:/picture/008/save_picture_788035.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BBC: Вулканы Солнечной системы (Космические В
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788014.jpg" />
+  <img src="Z:/picture/008/save_picture_788014.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ BBC: Шпионы в дикой природе / Spy in the Wild (2017) BDRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787964.jpg" />
+  <img src="Z:/picture/008/save_picture_787964.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787592.jpg" />
+  <img src="Z:/picture/008/save_picture_787592.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ BBC: Краш-диета: Большой эксперимент / The Big Crash 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781819.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ BBC: Как найти любовь по интернету / How to Find Love O
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780220.jpg" />
+  <img src="Z:/picture/008/save_picture_780220.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ BBC. Сокровища Инда / Treasures of the Indus (2014) HDTV  [H.264/10
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778083.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ BBC: Венера без прикрас / Venus Uncovered: Ancient Goddess of Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777113.jpg" />
+  <img src="Z:/picture/008/save_picture_777113.jpg" />
 </div>
 
 

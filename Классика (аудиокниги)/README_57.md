@@ -1,3 +1,115 @@
+###  Публикация: 420691   (127906) от 15.12.2023
+
+Маргарет Митчелл | Унесённые ветром (2007) [MP3, Инна Сытник]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитый роман американской писательницы Маргарет Митчелл «Унесённые ветром» стал бестселлером с первых же дней своего появления и продолжает оставаться им вот уже семь десятилетий.
+История Скарлетт О'Хара, представительницы знатного рода южан, пережившей ужасы гражданской войны 1861-1865 гг., утратившей богатство, положение, привычный образ жизни и едва не лишившейся (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: БиблиофоникаПродолжительность: 29:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:434C0B32CDEC0196DB63FED718BC89DED1BCEB18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 426672   (127899) от 15.12.2023
+
+Маргарет Митчелл | Унесённые ветром (2005) [MP3, Евгений Терновский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «Истории любви».
+«Говорящая книга» – явление для всех нас с детства знакомое, и, одновременно, совершенно новое. XXI век позволил на легком маленьком CD уместить толстый книжный том, на много часов чтения. Сберегая время и драгоценное зрение, теперь можно получать информацию самым простым и естественным способом. Именно на слух младенец начинает постигать (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПродолжительность: 28:25:12
+
+Проходят годы и годы, но «Унесенные ветром» не стареют, и теперь уже новым читателям и читательницам, а вернее для «Говорящей книги» – слушателям и слушательницам, предстоит смеяться и плакать, любить и страдать, бороться и надеяться вместе с великолепной Скарлетт О'Хара.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEA526CA8AEF3AEFCBD83A709E3162178722C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684445   (127796) от 15.12.2023
+
+Джейн Остин | Эмма (2020) [MP3, Наталия Казначеева]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Золотая классика мировой литературы.
+Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
+«Эмма» (1816) – четвёртый большой роман Джейн (Остен) Остин, последний, опубликованный при её жизни. Самое едкое, точное и саркастичное (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ООО «Эвербук» , StorySide ABПродолжительность: 17:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452F334855FBE77A47855B6A337C637A637B473C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684525   (127791) от 15.12.2023
+
+Джейн Остин | Мэнсфилд-парк (2020) [MP3, Ольга Плетнёва]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Золотая классика мировой литературы.
+Джейн (Остен) Остин (1775–1817) – знаменитая английская писательница классической литературы, романистка, прославившаяся остроумным и проницательным изображением провинциального общества.
+Фанни, взятую на воспитание богатыми родственниками, ежедневно третируют высокомерные тетушки и кузины. Однако добродетели девушки: ее (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ООО «Эвербук», StorySide ABПродолжительность: 19:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391C698175B4C25EB339F1192C2883EB12133600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684448   (127788) от 15.12.2023
 
 Джейн Остин | Гордость и предубеждение (2011) [MP3, Вячеслав Герасимов]
@@ -6,7 +118,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127788.jpg" />
 </div>
 
 
@@ -33,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127738.jpg" />
 </div>
 
 
@@ -60,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127735.jpg" />
 </div>
 
 
@@ -88,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127732.jpg" />
 </div>
 
 
@@ -115,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127712.jpg" />
 </div>
 
 
@@ -143,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127711.jpg" />
 </div>
 
 
@@ -170,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127710.jpg" />
 </div>
 
 
@@ -197,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127493.jpg" />
 </div>
 
 
@@ -225,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127487.jpg" />
 </div>
 
 
@@ -252,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127480.jpg" />
 </div>
 
 
@@ -279,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127367.jpg" />
 </div>
 
 
@@ -307,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127318.jpg" />
 </div>
 
 
@@ -334,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127158.jpg" />
 </div>
 
 
@@ -360,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127150.jpg" />
 </div>
 
 
@@ -387,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127149.jpg" />
 </div>
 
 
@@ -415,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127052.jpg" />
 </div>
 
 
@@ -443,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127050.jpg" />
 </div>
 
 
@@ -469,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127048.jpg" />
 </div>
 
 
@@ -496,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127044.jpg" />
 </div>
 
 
@@ -524,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127042.jpg" />
 </div>
 
 
@@ -551,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127041.jpg" />
 </div>
 
 
@@ -579,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126885.jpg" />
 </div>
 
 
@@ -592,116 +704,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:086981B9A0559780E1858F0F1AAC315B9734A994
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685938   (126874) от 20.12.2023
-
-Жорж Санд | Замок Персмон (2020) [MP3, Людмила Быкова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жорж Санд (1804–1876) – французская писательница. Настоящее имя – Аврора Дюпен. Автор многочисленных романов и повестей: «Индиана» (1832), «Орас» (1841–1842), «Консуэло» (1842–1843) и др., мемуаров «История моей жизни» (1854–1855).
-Последний из романов Жорж Санд, написанный вскоре после событий Парижской Коммуны. Запутанные интриги, сильные чувства, яркие характеры (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ИДДКПродолжительность: 05:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6AB7449E452C5BBD35BFC1D8A70358E4CD8506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685926   (126872) от 20.12.2023
-
-Жорж Санд | Грех господина Антуана (2011) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жорж Санд (1804–1876) – французская писательница. Настоящее имя – Аврора Дюпен. Автор многочисленных романов и повестей: «Индиана» (1832), «Орас» (1841–1842), «Консуэло» (1842–1843) и др., мемуаров «История моей жизни» (1854–1855).
-В 1845 году на страницах газеты «Эпоха» печатался социальный роман «Грех господина Антуана». Главный герой романа фабрикант Кардонне (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 15:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2ADA908926D4DC849442CD3B7C58AF867284A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685932   (126871) от 20.12.2023
-
-Жорж Санд | Чёртово болото (2017) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Классика на все времена.
-Жорж Санд (1804–1876) – французская писательница. Настоящее имя – Аврора Дюпен. Автор многочисленных романов и повестей: «Индиана» (1832), «Орас» (1841–1842), «Консуэло» (1842–1843) и др., мемуаров «История моей жизни» (1854–1855).
-Представляем вашему вниманию аудиоверсию повести известной французской писательницы Жорж Санд «Чёртово (   Читать дальше...   )Жанр: Зарубежная литература, классика, повестьИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:914577EA535F104BF87505FF7C9C787088C4C854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685876   (126862) от 20.12.2023
-
-Жорж Санд | Книга 2. Графиня Рудольштадт (2022) [MP3, Юлия Тархова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XIX век. Зарубежная проза.
-Жорж Санд (1804–1876) – французская писательница. Настоящее имя – Аврора Дюпен. Автор многочисленных романов и повестей: «Индиана» (1832), «Орас» (1841–1842), «Консуэло» (1842–1843) и др., мемуаров «История моей жизни» (1854–1855).
-Аудиостудия «Ардис» предлагает вам послушать в исполнении Юлии Тарховой книгу о Консуэло, принадлежащую (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 23:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6798988C5E131936FA94756379AB6D96D20A7AFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

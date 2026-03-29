@@ -1,3 +1,206 @@
+###  Публикация: 1623441   (243607) от 01.04.2023
+
+VA - Новинки С Разных Популярных мп3 Сайтов ver. 125 (2023) [MP3|320 Kbps] <Club, Dance, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dance:
+01. Audino, ELMY & Franz Kolo - Pump It Up (Extended Mix)
+02. Blondie - Heart of glass (Ayur Tsyrenov remix)
+03. Bob Sinclar - Rock This Party (Rakurs & EwellicK Radio Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 04:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5715394CE1599F5A8126F802625C53A779F53D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622148   (243603) от 30.03.2023
+
+VA - Country Dark Rock (2023) [MP3|320 Kbps] <Country, Blues, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Saraceno - Dogs of War [02:57]
+02. Dominic Marsh, Jonny Jones - Dark Cloud [02:21]
+03. Brother Dege - Too Old to Die Young [03:44]
+04. Chris Lewis, Dominic Marsh - Devil's Country [02:42](   Читать дальше...   )Жанр: Country, Blues, RockПродолжительность: 04:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A6A6DEAE147E4A875722F37B5FAE98C9196C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621981   (243545) от 30.03.2023
+
+VA - Top 100 DJs Chart (24-March-2023) (2023) [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta, Bebe Rexha - I'm Good (Blue)
+02. Wuki - Edge of Seventeen
+03. The Him, Oceans - Fool Me
+04. Mau P - Drugs From Amsterdam(   Читать дальше...   )Жанр: Pop, Dance, Electro, TechnoПродолжительность: 04:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C2D0EDE89227924E262E762FFCC7A1C746099A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622641   (243425) от 31.03.2023
+
+VA - 00s Anthems (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 The Killers - Mr. Brightside.mp3
+02 Lady Gaga - Bad Romance.mp3
+03 The Black Eyed Peas - I Gotta Feeling.mp3
+04 Evanescence - Bring Me To Life.mp3(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 06:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95148B522EEFA15FA70D89FFC5B7C58C2656062B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613263   (243366) от 18.02.2023
+
+VA - Flex All Night: Electronic Dance Mix (2023) [MP3|320 Kbps] <Synthwave, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243366.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Boys Noize - Greenpoint
+002. Mike Dean - Nothing Yet
+003. Borshulyak - Flex All Night
+004. Siguiente Tecnologia - Long Staycation(   Читать дальше...   )Жанр: Synthwave, Dance, ElectronicПродолжительность: 11:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F0DF1E4C289BDA07838E1A6E46A803B39950780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544627   (241846) от 16.04.2022
+
+VA - Music News vol.181 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241846.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Farina feat. Ryan Castro - Fiesta (02:56)
+ 002. 44neverluv feat. WENARO - Имя (02:08)
+ 003. Able Faces - Need You Tonight (02:40)
+ 004. AIZZO - Ray of Light (02:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 06:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE6C62F2292DFF9160FDC2895AA2AB049365D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635365   (241844) от 25.05.2023
+
+VA - Sommer Party (2023) [MP3|320 Kbps] <Dance, Synthpop, Electro House, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_241844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Schulte, R3HAB - Waterfall
+02. Feid, Sean Paul - Nina Bonita
+03. badmomzjay, Domiziana - Auf die Party
+04. Glass Animals - Heat Waves(   Читать дальше...   )Жанр: Dance, Synthpop, Electro House, ClubПродолжительность: 02:53:29 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1488174DE78F25A58B4504A73240D750FD6E27A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623943   (241795) от 09.04.2023
 
 VA - Top 100 DJs Chart 31-03-2023 [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
@@ -6,7 +209,7 @@ VA - Top 100 DJs Chart 31-03-2023 [MP3|320 Kbps] <Pop, Dance, Electro, Techno>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241795.jpg" />
+  <img src="Z:/picture/004/save_picture_241795.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - ЕвроХит Топ 40 Europa Plus 12.08.2022 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241626.jpg" />
+  <img src="Z:/picture/004/save_picture_241626.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - The Official UK Top 40 Singles Chart 24.04.2020 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241557.jpg" />
+  <img src="Z:/picture/004/save_picture_241557.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - В машине с музыкой Vol.296 (2022) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241339.jpg" />
+  <img src="Z:/picture/004/save_picture_241339.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241328.jpg" />
+  <img src="Z:/picture/004/save_picture_241328.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - Дискотека 2022 Dance Club Vol. 211 от NNNB [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241225.jpg" />
+  <img src="Z:/picture/004/save_picture_241225.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Зайцев.нет Лучшие новинки Апреля (2022) [MP3|32
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241000.jpg" />
+  <img src="Z:/picture/004/save_picture_241000.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - Kings of Dance (2023) [MP3|320 Kbps] <Dancehall, Afro House, R&B, Reggae>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240905.jpg" />
+  <img src="Z:/picture/004/save_picture_240905.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - The Best of Dance (2022) [MP3|320 Kbps] <Europop, Dance, Deep House, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239946.jpg" />
+  <img src="Z:/picture/004/save_picture_239946.jpg" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - Motivation Mix 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239927.jpg" />
+  <img src="Z:/picture/004/save_picture_239927.jpg" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Alright Feelings Dances (2023) [MP3|320 Kbps] <Dance, Synthpop, Electro Hou
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239899.jpg" />
+  <img src="Z:/picture/004/save_picture_239899.jpg" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - Жирные Хиты Весны Remix NNM (2022) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239795.jpg" />
+  <img src="Z:/picture/004/save_picture_239795.jpg" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Music News vol.258 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239382.jpg" />
+  <img src="Z:/picture/005/save_picture_239382.jpg" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - I Love Ballads - Part XII (2016) [MP3|224 Kbps] <Rock, Pop, Chanson>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238979.jpg" />
+  <img src="Z:/picture/005/save_picture_238979.jpg" />
 </div>
 
 
@@ -412,7 +615,7 @@ VA - Hits Disco and Pop Dance - Part VI (2016) [MP3|256 Kbps] <Pop, Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238969.jpg" />
+  <img src="Z:/picture/005/save_picture_238969.jpg" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - Не спи за баранкой 6 (Музыка в машину) (2022) [
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238691.jpg" />
+  <img src="Z:/picture/005/save_picture_238691.jpg" />
 </div>
 
 
@@ -470,7 +673,7 @@ VA - The Official UK Top 100 Singles Chart 21.04.2023 [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238627.jpg" />
+  <img src="Z:/picture/005/save_picture_238627.jpg" />
 </div>
 
 
@@ -499,7 +702,7 @@ VA - Solid Gold Hits (2022) [MP3|320 Kbps] <New Wave, Euro Disco, Rhythm & Blues
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238351.jpg" />
+  <img src="Z:/picture/005/save_picture_238351.jpg" />
 </div>
 
 
@@ -528,7 +731,7 @@ VA - Shazam Хит-парад World Top 200 Апрель (2022) [MP3|320 Kbps] <
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237930.jpg" />
+  <img src="Z:/picture/004/save_picture_237930.jpg" />
 </div>
 
 
@@ -542,209 +745,6 @@ VA - Shazam Хит-парад World Top 200 Апрель (2022) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82DC1F20C25B199E81BC6276C10A9DDF6070551B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640314   (237449) от 17.06.2023
-
-VA - Bedroom Jams 2 (2023) [MP3|320 Kbps] <Pop, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tank - When We (5:35)
-02. The Weeknd - The Morning (5:19)
-03. The Weeknd - The Zone (5:15)
-04. H.E.R. - Slide (Remix) (feat. Pop Smoke) (4:57)(   Читать дальше...   )Жанр: Pop, R&B, OtherПродолжительность: 03:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC6E49750D327630D4A3034CA9F1FFAFFE3F11C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630812   (237098) от 02.05.2023
-
-VA - Funky Music Sunshine The Groove (2023) [MP3|320 Kbps]  <Indie Dance, Club Music, Nu Disco, Funky House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown feat. The Soulboyz - Ain't No Mountain High Enough (Original Mix)
-02. GhostMasters & The GrooveBand - I Kissed The Girl (Extended Mix)
-03. Da Funk Junkies - Funk All In Your Mind (Radio Edit)
-04. Discoloverz & Rick Marshall - Back From Outta Space (Original Mix)(   Читать дальше...   )Жанр: Indie Dance, Club Music, Nu Disco, Funky HouseПродолжительность: 02:52:45 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16486F6388EDD05683993B22529BF373FD0CD91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630945   (236495) от 03.05.2023
-
-VA - Music News vol.259 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236495.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ANNA ASTI - Верю в Тебя (04:10)
- 002. 52Ghz feat. Pakseeva - Выстрелил в Упор (02:19)
- 003. 3333 - Повелась (02:48)
- 004. A Boogie Wit Da Hoodie feat. DJ Spinking - Timeless (Sped Up Version) (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 09:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7D24AE7BF326FE81AB7A2494854630897CBDFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631571   (235877) от 08.05.2023
-
-VA - Музыка для машины Vol.14 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nazar Drago - Only Time Can Save Me (02:41)
-02. Мурад Магомедов - За Тобой Пойду (03:37)
-03. Dndm - Bad Love (04:03)
-04. Свят - Пьяно На Пиано (03:03)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A16EFD83E4B9511477526A15C2E66882F4973457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458066   (235813) от 28.03.2021
-
-VA - The Official UK Top 100 Singles Chart 26.03.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235813.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nathan Evans, 220 Kid, Billen Ted - Wellerman (Sea Shanty / 220 Kid X Billen Ted Remix) 1:57
-002. A1 X J1 - Latest Trends 2:38
-003. Justin Bieber, Daniel Caesar, Giveon - Peaches 3:18
-004. Nightcrawlers, Riton, Mufasa & Hypeman - Friday (Feat. Mufasa & Hypeman) (Dopamine Re-Edit) 2:49(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:24:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A5022BCD3D697E13A4F8B5BCC5452B9C6AE9221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632182   (235553) от 09.05.2023
-
-VA - Music News vol.262 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235553.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лена Князева - Наказана (Euphoria Remix) (03:36)
- 002. Ahzee - Break You Open (03:03)
- 003. Alina Eremia feat. Aerozen - Ultimul Nivel (02:52)
- 004. Almarie - Невесомость (Amenor Remix) (03:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E96F6FAA2173EC6676EC2B0DE84F32DD55268AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631552   (235461) от 08.05.2023
-
-VA - B машину ремиксы Vol.32 (2023) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 84 Feat. & Lookbuffalo - Чисто Папа (Remix) (02:52)
-02. Gabry Ponte Feat. & Alessandra - Dance Dance (Gabry Ponte Vip Mix) (02:26)
-03. Aihan - Тихий Океан (Orkenoff Remix) (03:32)
-04. Faustix  - I Gotta Bounce (Huts & Charlie Ray Remix) (02:04)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE37BB391C7857A25C607520433304D4D8D94FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

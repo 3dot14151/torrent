@@ -6,7 +6,7 @@ Acoustica Premium Edition 7.3.17 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806392.jpg" />
+  <img src="Z:/picture/008/save_picture_806392.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HitPaw Screen Recorder 1.2.3.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806385.jpg" />
+  <img src="Z:/picture/008/save_picture_806385.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MediaHuman YouTube to MP3 Converter 3.9.8.19 (0901) RePack (& Portable) by ZVSRu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806371.jpg" />
+  <img src="Z:/picture/008/save_picture_806371.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PeaZip 7.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806341.jpg" />
+  <img src="Z:/picture/008/save_picture_806341.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Autorun Organizer 5.12 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806318.jpg" />
+  <img src="Z:/picture/008/save_picture_806318.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sigil 1.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806311.jpg" />
+  <img src="Z:/picture/008/save_picture_806311.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806302.jpg" />
+  <img src="Z:/picture/008/save_picture_806302.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WinCatalog 2017 17.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806277.jpg" />
+  <img src="Z:/picture/008/save_picture_806277.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Opera GX 68.0.3618.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806272.jpg" />
+  <img src="Z:/picture/008/save_picture_806272.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Glary Utilities Pro 5.142.0.168 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806266.jpg" />
+  <img src="Z:/picture/008/save_picture_806266.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ PC Cleaner Pro 8.1.0.16 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806253.jpg" />
+  <img src="Z:/picture/008/save_picture_806253.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ NirLauncher Package 1.23.53 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806247.jpg" />
+  <img src="Z:/picture/008/save_picture_806247.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806237.jpg" />
+  <img src="Z:/picture/008/save_picture_806237.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ MediaHuman YouTube Downloader 3.9.8.19 (0901) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806186.jpg" />
+  <img src="Z:/picture/008/save_picture_806186.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ KLS Backup 2017 Professional 9.0.2.8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806184.jpg" />
+  <img src="Z:/picture/008/save_picture_806184.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WinScan2PDF 5.41 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806157.jpg" />
+  <img src="Z:/picture/008/save_picture_806157.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806152.jpg" />
+  <img src="Z:/picture/008/save_picture_806152.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Serif Affinity Photo 1.10.3.1191 + Content RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806151.jpg" />
+  <img src="Z:/picture/008/save_picture_806151.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Boilsoft Video Joiner 9.1.7 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806149.jpg" />
+  <img src="Z:/picture/008/save_picture_806149.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ ByClick Downloader Premium 2.3.17 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806146.jpg" />
+  <img src="Z:/picture/008/save_picture_806146.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Revo Uninstaller Free 2.3.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806143.jpg" />
+  <img src="Z:/picture/008/save_picture_806143.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Topaz DeNoise AI 3.3.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806138.jpg" />
+  <img src="Z:/picture/008/save_picture_806138.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Text Editor Pro 9.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806034.jpg" />
+  <img src="Z:/picture/008/save_picture_806034.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Revo Uninstaller Free 2.1.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806024.jpg" />
+  <img src="Z:/picture/008/save_picture_806024.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Display Driver Uninstaller 18.0.2.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806020.jpg" />
+  <img src="Z:/picture/008/save_picture_806020.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Wise Auto Shutdown 1.7.7.96 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806019.jpg" />
+  <img src="Z:/picture/008/save_picture_806019.jpg" />
 </div>
 
 

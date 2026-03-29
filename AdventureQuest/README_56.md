@@ -1,3 +1,81 @@
+###  Публикация: 1562402   (212739) от 09.07.2022
+
+Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Играйте за Флинта, который, как может, присматривает за парком своей бабушки, чтобы он стал отличным местом для отдыха. Обустраивайте парк по вкусу туристов и стройте то, о чем они просят. Вас ждут причудливые персонажи, занимательные диалоги и интересные задания. Знакомьтесь с туристами и узнавайте о старых тайнах, связанных с лесом. Ищите спрятанное сокровище. (   Читать дальше...   )Тип издания: LicenseРазработчик: Fabien WeibelЖанр: Action, Ролевая игра, ExplorationЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1350A8683EEA11EF24504E3BDA724C918B4EB9E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831044   (212531) от 28.10.2025
+
+Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для вас сбывается самый большой страх контрабандиста - попасть в зону отчуждения, двадцать миль смерти и разложения, окружённые нависающими, удушающими стенами, воздвигнутыми после коллапса. Одинокая, потерянная, с ограниченными ресурсами - таково ваше текущее положение в зоне. Вам придётся решать загадки на местности, контролировать ресурсы и бороться за жизнь и (   Читать дальше...   )Тип издания: RepackРазработчик: Headware GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, ЯпонскийЯзык интерфейса: Русский, Английский, Испанский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D3985C8880E4E3C3DC634DF5F24E743A85E73FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565761   (211978) от 25.07.2022
+
+Sinking Island (2007) [Ru/Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_211978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бенуа Сокаль – признанный мастер жанра адвенчур, подаривший миру компьютерных игр множество незабываемых персонажей и прекрасных сюжетов. В 2002 году мы путешествовали по заснеженным пустошам Syberia, в 2006 – исследовали таинственные джунгли в Paradise, сейчас пришло время для нового приключения.Тип издания: LicenseРазработчик: White Birds ProductionsЖанр: Adventure, Point-and-click, MysteryЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB113710CC96CD461FF87575FFC4742146ABED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566676   (211616) от 30.07.2022
 
 Big Earth (2022) [En] (1.0) License SKIDROW
@@ -6,7 +84,7 @@ Big Earth (2022) [En] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211616.jpg" />
+  <img src="Z:/picture/005/save_picture_211616.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (Build 8905722) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211561.jpg" />
+  <img src="Z:/picture/005/save_picture_211561.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Swallow (2022) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211525.jpg" />
+  <img src="Z:/picture/005/save_picture_211525.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ PARANECRO (2022) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211450.jpg" />
+  <img src="Z:/picture/005/save_picture_211450.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ South of the Circle (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211135.jpg" />
+  <img src="Z:/picture/005/save_picture_211135.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211125.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ No Longer Home (2021) [Multi] (1.3.3) License GOG [Farewell Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210940.jpg" />
+  <img src="Z:/picture/005/save_picture_210940.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairli
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210838.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ My Destiny (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210487.jpg" />
+  <img src="Z:/picture/005/save_picture_210487.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210195.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210068.jpg" />
+  <img src="Z:/picture/005/save_picture_210068.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Legend of Kyrandia - Book One (1992) [Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209314.jpg" />
+  <img src="Z:/picture/005/save_picture_209314.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Manhole (1994) [En] (2.0.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208506.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Twinsen's Little Big Adventure 2 Classic (1997) [Multi] (3.2.4.3/dlc) License GO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207645.jpg" />
+  <img src="Z:/picture/005/save_picture_207645.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фа
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207448.jpg" />
+  <img src="Z:/picture/005/save_picture_207448.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Notch - The Innocent LunA: Eclipsed SinnerS (2012) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206669.jpg" />
+  <img src="Z:/picture/005/save_picture_206669.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Inheritance of Crimson Manor (2022) [Multi] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206465.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206436.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Hidden Folks (2017) [Ru/Multi] (2.1.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206434.jpg" />
+  <img src="Z:/picture/005/save_picture_206434.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205689.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205685.jpg" />
+  <img src="Z:/picture/004/save_picture_205685.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205679.jpg" />
+  <img src="Z:/picture/004/save_picture_205679.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ As Dusk Falls (2022) [Ru/Multi] (1.0 Build 9076338) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205416.jpg" />
+  <img src="Z:/picture/005/save_picture_205416.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ As Dusk Falls — это оригинальная интерактивная д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB13018EE0FCEB293F75C57B7975690AAAC1397B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581967   (205205) от 07.10.2022
-
-The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проведите рабочий день в роли средневекового немецкого доктора чумы Освальда Келлера. Ставьте диагнозы, назначайте лечение и даже делайте операции. Вам также придется столкнуться с народным невежеством и противостоять суевериям. Это опасная работа, но это ваш единственный шанс найти причину Черной смерти. The Plague Doctor of Wippra - это короткое приключение в жанре (   Читать дальше...   )Тип издания: LicenseРазработчик: ElectrocosmosЖанр: Приключение, Квест, ИсторическаяЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5D2AB68968F22B1163C015B0AF00189D365981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584280   (205116) от 18.10.2022
-
-Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бьёрн Тонен - тот ещё неряха и владелец антикварного магазина, живущий в Париже. Однажды ночью он возвращается домой пьяным и становится жертвой ограбления. Вынужденный начать собственное расследование, заручившись помощью соседки Сандры, он постепенно осознаёт, что стал участником весьма запутанной истории. Удастся ли нашим героям узнать всю правду?..Тип издания: LicenseРазработчик: COWCATЖанр: Приключение, Квест, КомeдияЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBFA80943A5A0C0D3FB0003D6E1051D22E3124A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585000   (205009) от 20.10.2022
-
-A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то за морем лежит таинственный остров… ты слышишь его зов? Жестокий, искаженный темными силами мир снова ждет своих юных героев. Амиция и Гуго отправляются на юг, чтобы начать новую жизнь вдали от чумы и помочь Гуго обуздать родовое проклятие. Но силы Гуго просыпаются вновь, – и вот они, полчища крыс, несущие на серых спинах смерть и разрушение. Брат и сестра (   Читать дальше...   )Тип издания: RepackРазработчик: Asobo StudioЖанр: Приключение, Экшны, СтелсЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D756C67B3DC1FA12AEDF3BC0A8FEFD3C18BB410
 ```
 
 https://mybot314.ru/tekegram_catalog/

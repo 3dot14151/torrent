@@ -1,25 +1,25 @@
-###  Публикация: 1809662   (64652) от 01.08.2025
+###  Публикация: 1802648   (66026) от 18.06.2025
 
-VA - 25 Years Of Anjuna Mixed By Dom Donnelly (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+Chris & Mike - unique (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Electronic
->>House
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hiatus Feat. Dad - Delam (Original Mix) 02:37
-02. Lakou Mizik & Joseph Ray - Simbi Nan Dlo (Original Mix) 06:09
-03. Andrew Bayer & Ane Brun - Hold On To You (Ryan Davis Revisit) 04:40
-04. Leaving Laurel - Sometimes It’s Scary But It’s Still Just You And Me (Original Mix) 06:34(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 02:04:11
+01.  COLOURS (5:16)
+02.  UNIQUE (5:26)
+03.  RESPECT (6:34)
+04.  TYPICAL (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C6ACFB1385AF55B4AD2A6CD6F2CB37565F1BFC4
+magnet:?xt=urn:btih:D03BA55C84A9ADA7A845D6D6C948AD9C2413ED18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809794   (64651) от 01.08.2025
+###  Публикация: 1802666   (66025) от 18.06.2025
 
-VA - Rimini Summer Party, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+Fred Hostetler - Blues Back Pages (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Electronic
->>House
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66025.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Naze - Onde Di Suono (Original Mix) 05:21
-02. Abdy - Trigger (Original Mix) 03:04
-03. Opul - Pulso Eterno (Original Mix) 03:48
-04. Gordon Raddei - Fourteen (Original Mix) 06:01(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:51:50
+01.  Hey Corporate Vandals (3:22)
+02.  Your Mind Is on Vacation (4:15)
+03.  Taming the Wolf (7:13)
+04.  Deep Deep Well (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D111C56461181EFABF660B8E6B1F3B5E5A1ED962
+magnet:?xt=urn:btih:294CFA61F8239B254C910B8CF5927DE30A99585C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809754   (64650) от 01.08.2025
+###  Публикация: 1802672   (66024) от 18.06.2025
 
-VA - Armin van Buuren - A State Of Trance 1236 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Leo Cookman - Everyone Left (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66024.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Armin van Buuren & JOA – Heavy (Future Favorite)
-02. Markus Schulz & Ahmed Helmy ft. Sarah Howells – Tempted
-03. Calvin Harris ft. Clementine Douglas – Blessings (Cassian Remix)
-04. Bolier & Yasmin Jane – Airwaves (Ørjan Nilsen Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:41
+01.  You Don't Know (3:44)
+02.  In Mine (3:26)
+03.  Let Her Go (3:09)
+04.  Sleeping Dogs (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5111A17F668F209F7887E09FCB1928B8C08B31B
+magnet:?xt=urn:btih:66A3A70A4397936A2CE5BBB383118092190A8A7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809881   (64649) от 01.08.2025
+###  Публикация: 1802659   (66023) от 18.06.2025
 
-Карина Демина | Эльфийский бык (Книги 1-2) (2024) [MP3, Ирина Арефьева]
+David Cooper - David Cooper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мудростью своей Император разом избавился от двух проблем: излишка молодых магов, нарушающих тишину столичной жизни, и недостатка магов в провинции. И высочайшим указом повелел оным магам служением доказать свою полезность. Вот и выпало кому-то пожары торфяные гасить, кому-то – яблоневую плодожорку бороть, а кому-то повышать поголовье пингвинов на земле Франца-Иосифа. (   Читать дальше...   )Жанр: Фэнтези, юморИздательство: Аудиокнига своими рукамиПродолжительность: 27:36:55
+01.  On My Way Back Home (3:56)
+02.  Shine On (4:01)
+03.  This Rain's Just Passing Through (3:30)
+04.  We Give You Praise (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE8EE3D9DD06C952076614E05084275258F130F7
+magnet:?xt=urn:btih:6E596BEDFB50AADBDDF24E14AC28AF58D9606D2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809764   (64648) от 01.08.2025
+###  Публикация: 1802671   (66022) от 18.06.2025
 
-VA - Anjunadeep Explorations Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+Kjartan Hesthagen, Ledfoot, Markus O. Klyve, Tim Scott McConnell - Plain Simple Honesty (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Electronic
->>House
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blu Attic - Till I Lose Myself (Extended Mix) [6:17]
-02. LAR - First Signs Of Sun (Extended Mix) [7:29]
-03. Chris Luno - Calmy (Extended Mix) [5:29]
-04. Maty Owl - Ametista (Extended Mix) [5:49](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 06:19:24
+01.  All You Ever Had (4:10)
+02.  Plain Simple Honesty (3:48)
+03.  My Empty Heart (4:57)
+04.  Burning Blue (2:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F11893E96DB42E8A289F2CB07573E05C3BC8AB3C
+magnet:?xt=urn:btih:C1F04359E2C1D883773CA6549477454AD149AC1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809646   (64647) от 01.08.2025
+###  Публикация: 1802652   (66021) от 18.06.2025
 
-Маша Распутина - Любовное настроение (2004) [MP3|320 Kbps] <Pop>
+Clementine Moss - Clem & Clearlight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Pop
->>Отечественная поп-музыка
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Мечта [00:03:58]
-02 - Льётся музыка [00:06:24]
-03 - Я останусь с тобой [00:06:18]
-04 - Душа моя беспутная [00:04:18](   Читать дальше...   )Жанр: PopПродолжительность: 01:03:56
+01.  Hey Sweetheart (6:52)
+02.  Bar Broad Blues (4:21)
+03.  Coming to Meet the Blues (4:11)
+04.  Lt Blues (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D3ECB97A11292F38C5B090CF90AA8A3ADF0C623
+magnet:?xt=urn:btih:51C7AA1A82AD246CD67A6194B0D6A3F3F4AE358E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,26 +172,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809742   (64646) от 01.08.2025
+###  Публикация: 1802675   (66020) от 18.06.2025
 
-Брайан Трейси | 21 способ получить работу, которую вы хотите (2006) [MP3, О.Середа]
+Los Angeles Side Hustle - Los Angeles Side Hustle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Брайан Трейси — известнейший автор книг по вопросам самореализации и лидерства. Имеет ученую степень магистра в области коммерции. Занимает президентский пост компании своего имени. В 2003 году принимал участие в выборах губернатора Калифорнии.
-С 1981 года Брайан Трейси проводит различные семинары и тренинги, где в популярной форме излагает принципы достижения успеха (   Читать дальше...   )Жанр: БизнесИздательство: Парадигма-К, АудиоТренерПродолжительность: 01:17:00
+01.  Bloodshot Eyes (3:45)
+02.  In the Night (3:06)
+03.  Junker's Blues (3:12)
+04.  Can't No Grave Hold My Body Down (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17EBBA1B2EED2D73555282DB5141ABAC766E4861
+magnet:?xt=urn:btih:B35019F7B712E2F52FE7150C10B56D8A6F622C32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -196,25 +201,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809871   (64645) от 01.08.2025
+###  Публикация: 1802643   (66019) от 18.06.2025
 
-Игорь Соловьев | Сапфир забвения (2025) [MP3, Сергей Дидок]
+BunnyDad - Past Journey (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Череда жестоких убийств сотрясает город Вигельбург, едва оправившийся от ран гражданской войны. Странный выбор жертв, таинственные знаки оставляемые на их телах. Это дело абы кому не поручишь. К счастью для города, у верховного судьи есть подходящая кандидатура. Но сумеет ли главный герой разгадать загадку этих смертей? И что скрывается за его собственным прошлым?Жанр: фантастика, детективИздательство: Издательская студия БукЛабПродолжительность: 09:34:53
+01.  Blues Song (2:59)
+02.  Cry Wolf (3:17)
+03.  Hard Time Blues (3:15)
+04.  I Gotta Pay the Blues Man (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F637239DD639F4F12D656623946B6F4008ECCB0
+magnet:?xt=urn:btih:9B5DED5EE8FB531C0CD3C43B785608255F84DD31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,25 +230,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809719   (64644) от 01.08.2025
+###  Публикация: 1802550   (66018) от 18.06.2025
 
-Тимофей Кулабухов | Системная нежить. (Том 5) (2025) [MP3, Иван Караваев]
+e-Dancer, Kevin Saunderson, Dantiez - e-Dancer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Зло рано или поздно поднимет голову чтобы всех съесть. Но иногда на это зло найдётся другое зло, с большой дубиной и пойдёт нести мир, любовь и причинять посмертное миролюбие.Жанр: Фантастика, боевик, LitRPGИздательство: Пересадочная станцияПродолжительность: 11:44:04
+01. Melodica [00:04:03]
+02. Emotions [00:03:38]
+03. Dancer [00:03:32]
+04. Frequency [00:05:07](   Читать дальше...   )Жанр: DanceПродолжительность: 00:42:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:33986F756079EDCE4F6E0B80DF464FB33F7509F5
+magnet:?xt=urn:btih:714B4D3729B8A2AA42B701D07289A67AB930DDD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,25 +259,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809753   (64643) от 01.08.2025
+###  Публикация: 1802678   (66017) от 18.06.2025
 
-Звуковые библиотеки - Tamuz Samples - TIMELESS DRUMS VOL.2 [WAV]
+Mick Clarke - Mozelle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем « Timeless Drums Vol. 2 » — где классическая теплота встречается с фанковыми, душевными и диско-битами, дополненными грубыми, грязными лупами. Более 300 файлов, каждый из которых передаёт душевную сущность винтажных грувов и привносит чистую энергию в любой микс.Формат: WAV
+01.  Mozelle (4:38)
+02.  Somebody Been Talkin' (3:43)
+03.  As Long as I Have You (4:14)
+04.  Too Late Brother (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:399DE2E601F8D6CD3C3D5AC528AF0AC1BCD93196
+magnet:?xt=urn:btih:CD39B3CB1D4814168F19CC1D8370EE8B715CE521
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,21 +288,280 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 946390   (64642) от 01.08.2025
+###  Публикация: 1802684   (66016) от 18.06.2025
 
-Каникулы / Vacation (2015) WEB-DL [H.264/720p-LQ] [звук с TS]
+Paul Steward - You Can Dance to My Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Can Dance to My Blues (3:38)
+02.  808 Blues (2:33)
+03.  Omo Phola - Ride With Me (Paul Mix) (2:59)
+04.  Aishiteru (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830BEF03CE789D24883A7B83B4A9D71D58B2F4B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802603   (66015) от 18.06.2025
+
+Seth MacFarlane - Blue Skies (2022) Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's You or No One [2:50]
+02. No Moon at All [2:23]
+03. You'll Get Yours [2:46]
+04. A Hundred Years from Today [3:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00221FFCD21171E19E4EF76459612EFF89608147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802686   (66014) от 18.06.2025
+
+Pieces Of A Dream - We Got This (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heading Out (4:02)
+02.  We Got This (4:37)
+03.  I'm On My Way (3:56)
+04.  Take A Stroll (4:03)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943C896EDA0C6F3733D272963C8349159E65891D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802661   (66013) от 18.06.2025
+
+НХЛ. Кубок Стэнли 2025. Финал. 6-й матч.  Эдмонтон Ойлерз - Флорида Пантерз (17.06.2025) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66013.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 июня 2025, среда 03:00 МСК, Финал. 6-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 983 зрителя (103% при вместимости 19 434)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Крис Руни (Бостон, США); Линейный: Девин Берг (Китченер, Канада); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейЯзык озвучки: Русский, английскийПродолжительность: 03:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:771326AFE4BED5165783564C676011C9CD26FCA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802682   (66012) от 18.06.2025
+
+Nicole Lawrence - Time In Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Green In The Valley (3:07)
+02.  He's Gone (3:29)
+03.  You Don't Know About Me (2:55)
+04.  Dayz Were Dancing (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398ACA5D71725242125E16AE48F4BE54ED531DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802669   (66011) от 18.06.2025
+
+Grace Potter - Medicine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Before The Sky Falls (4:54)
+02.  Losing You (4:04)
+03.  That Phone (4:32)
+04.  Money (3:44)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71260D03EE35686879370B42BE384F0B3934CE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802581   (66010) от 18.06.2025
+
+AJ Tracey - Don't Die Before You're Dead (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Outta Sight [2:01]
+02 - Second Nature [2:46]
+03 - 3rd Time Lucky [2:40]
+04 - Crush [3:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB8B6F65CCABE0963948E309373091950626601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802543   (66009) от 18.06.2025
+
+Сергей Тимошенко - Опер (2025) [MP3|320 Kbps] <Авторская песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Опер [00:05:24]
+02 - Ни шагу назад [00:02:48]
+03 - Бросок в рай [00:03:32]
+04 - Ледяной рассвет [00:03:48](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3550438EF2BCED635CF29EE03EEBBBAA284A5A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802547   (66008) от 18.06.2025
+
+Darkness - Conclusion & Revival (2025) Remaster [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conclusion and Revival (Remastered) [00:02:56]
+02. Soldiers (Remastered) [00:04:29]
+03. The Omniscient (Remastered) [00:03:52]
+04. Under Control (Remastered) [00:04:26](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11620FD46B870DC363453B87C80871FD56B56292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796451   (66007) от 18.06.2025
+
+Корни / Frewaka (2024) WEBRip [DVO] [AD]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Расти Гризвольд — молодой отец и примерный семьянин, который очень хочет сплотить семью и воссоздать каникулы из своего детства. Вместе с супругой и двумя сыновьями он решает совершить незабываемое путешествие через всю страну, конечной целью которого станет самый лучший тематический парк Америки. Все тщательно спланировав, они отправляются в дорогу, надеясь, что (   Читать дальше...   )Производство: США | Warner Bros Pictures, New Line Cinema, Ratpac EntertainmentЖанр: Комедия, ПриключенияРежиссер: Джон Фрэнсис Дейли, Джонатан М. ГолдштейнАктеры: Эд Хелмс, Кристина Эпплгейт, Скайлер Джизондо, Стил Стеббинс, Крис Хемсворт, Лесли Манн, Чеви Чейз, Беверли Д’Анджело, Чарли Дэй, Катрин МиссалПеревод: Дублированный (звук с TS)Язык субтитров: АнглийскийПродолжительность: 01:38:59
+После самоубийства матери, с которой она не общалась, Ши получает предложение подработать сиделкой у пожилой женщины в сельской местности. Та живет в большом доме поодаль от деревни, постоянно твердит, что за ней могут прийти некие они, и заставляет Ши соблюдать множество нелепых правил. Но вскоре девушке начинает казаться, что её подопечная не страдает деменцией (   Читать дальше...   )Производство: Ирландия / Cine4, DoubleBand Films, Fís Éireann / Screen IrelandЖанр: ужасыРежиссер: Эйслинн КларкАктеры: Клэр Моннелли, Бридь Ни Няхьтинь, Александра Быстржицкая, Клер Баррет, Шарлотта Брэдли, Тара Бретнэк, Grace Collender, Пидар Кокс, Jim Cunningham, Дороти Даффи и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:43:34Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
@@ -300,25 +573,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809859   (64641) от 01.08.2025
+###  Публикация: 1802580   (66006) от 18.06.2025
 
-Роман Романович | Ловец знаний (Книга 2). Охота (2025) [MP3, Александр Чистяков]
+AJ Tracey - Don't Die Before You're Dead (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роман Романович – псевдоним молодого талантливого писателя, который стал известен благодаря своим сериалам в жанре бояръ-аниме. Сейчас у творчества автора тысячи поклонников, которые с нетерпением ждут продолжения его историй. Представляем в аудиоформате вторую книгу из длинного цикла писателя «Ловец знаний» – роман «Охота». Бастард Эрано, красавец и ловелас, становится (   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: 1С-ПаблишингПродолжительность: 09:47:06
+01 - Outta Sight [2:01]
+02 - Second Nature [2:46]
+03 - 3rd Time Lucky [2:40]
+04 - Crush [3:19](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF9DC092B81B6E2A7EEF7A13AFDE6CBA97EC715B
+magnet:?xt=urn:btih:07CF67A4A4BCD5FD9391F34B456D20A38DCE1947
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,27 +602,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809878   (64640) от 01.08.2025
+###  Публикация: 1802640   (66005) от 18.06.2025
 
-Карина Демина | Я - Миха (Книги 1-5) (2022-2024) [MP3, Юджин Найт]
+Bubbles Brown - Colombian Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У него осталось лишь имя и еще горячее желание убить мага, что превратил его в создание быстрое, смертоносное и абсолютно преданное хозяину. Правда, с преданностью дело как-то не заладилось, но стоит ли о том говорить? Вот Миха и не стал. Просто подождал удобного момента, чтобы перерезать глотку магу и свалить из проклятого города.
-Куда?
-Не важно. Мир велик, а на (   Читать дальше...   )Жанр: Фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 84:22:58
+01.  Peru (4:48)
+02.  Hold Keep Rock #2 (2:36)
+03.  Funky Jump (3:36)
+04.  In My Room (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FBBEE47C26EF056B31FE333120C9D7F88A7F6277
+magnet:?xt=urn:btih:1C801EE27C0A8D00442708D0ECDF674DCB0E20AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,25 +631,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809873   (64639) от 01.08.2025
+###  Публикация: 1802655   (66004) от 18.06.2025
 
-Михаил Игнатов | Кровь (Книги 1-4) (2023-2024) [MP3, Никита Петров]
+Crosscut - No Easy Way to Work (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мало кто осмелится бросить вызов нашему Малому Дому. Тысячу лет назад, пройдя посвящение, я мог бы вернуть ему былую славу, стать достойным титула и меча моего отца. А сейчас он убьет меня своими руками, если узнает, что во мне проснулась проклятая кровь.Жанр: Фэнтези, приключенияИздательство: Аудиокнига своими рукамиПродолжительность: 48:35:19
+01.  No Easy Way To Work (4:57)
+02.  Come Go Dancing (4:18)
+03.  Sinners Blues (5:03)
+04.  Been There Done That Blues (5:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:517B9AC7C6BC8EFD44406E8E42B24786ED720624
+magnet:?xt=urn:btih:DB2D09F6C89EFC1142E40A0800B111D3EABBE9F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -380,25 +660,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809825   (64638) от 01.08.2025
+###  Публикация: 1802650   (66003) от 18.06.2025
 
-Пресеты - G-Presets - Campfire Presets [XMP]
+Clay Bottom Jug Busters - Too Tight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда Дон впервые поделилась своим видением пресетов Campfire, она сделала это так, словно делилась чем-то сентиментальным и по-настоящему важным для неё. Панорамным обзором детских воспоминаний, связанных с восходами солнца, бодрящими купаниями в ледниковых озёрах и ночами у костра в палатках под бескрайним небом дикой природы. Было очевидно, что она знает этот (   Читать дальше...   )Формат: XMP
+01.  Stealin' Stealin' (3:31)
+02.  Cave Man Blues (3:02)
+03.  Bring It With You When You Come (2:19)
+04.  Everybody's Talking About Sadie Green (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7172500A5F3BC83B73B72ED4EFF0BD517DCB2AF
+magnet:?xt=urn:btih:4842F306C91585A75C86234AC59FAB0846C17078
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,52 +689,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809834   (64637) от 01.08.2025
+###  Публикация: 1802668   (66002) от 18.06.2025
 
-Юрий Винокуров, Олег Сапфир | Орден Архитекторов (Книга 11) (2025) [MP3, Роман Попов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я всё ближе и ближе подбираюсь к пониманию того, кто на самом деле является кукловодом. Нет, я знал изначально, что во всём виноваты Тени, но кажется, я нашёл главного их миньона. Он носит цилиндр, является редким мудаком и живёт в Африке.
-Казалось бы, где Лихтенштейн, а где Африка? Но, что такое для Архитектора жалкие расстояния внутри одного мира, когда нужно хлопнуть (   Читать дальше...   )Жанр: фэнтези, приключения, попаданцыИздательство: ЛитРесПродолжительность: 09:25:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716DDAC8408832B41FD59EC4A261BA6EA6DE1DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809858   (64636) от 01.08.2025
-
-Преображение мамы / The Making Over of Mother (1916) WEBRip [H.264/720p]
+Гнездо в перьях / The Feathered Nest (1916) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Коротенькая забавная история. Из серии юмора на все времена. Мужчина получает от жены приятную новость - к ним едет её мама (по-русски тёща). Почему-то мистер не в восторге :). А женщина-то спокойная, невзрачная - овдовев, совсем махнула на себя рукой. Вот любящая дочка с подружкой и решили "подмолодить" маму. Ну, все эти женские штучки - припарки, помады, (   Читать дальше...   )Производство: США / Christie Film CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Хорас ДэвейАктеры: Нил Барнс, Бетти Компсон, Стелла Адамс, Этель Линн, Дэйв МоррисПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:12:58
+"Гнездо в перьях" - это такая английская идиома, её символическое значение: домашний очаг, комфортное и уютное жилище, ассоциирующееся с теплом, заботой и защитой. Не знаю как это связать с сюжетом фильма. Ибо в нем рассказывается о злоключениях барышни - простой фермерской дочке, нежданно-негаданно получившей большое наследство. История, впрочем как и (   Читать дальше...   )Производство: США / Keystone Film CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Фрэнк ГриффинАктеры: Чарльз Мюррэй, Луиза Фазенда, Гарри Букер, Уэйлэнд Траск, Фрэнк Опперман, Элла ХайнсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:28:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84E3976344447C5DD89666BC61EB86C61F87E7B8
+magnet:?xt=urn:btih:50BFFE6DF026784FAB8B98CC5A67F6B7689A7730
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,251 +715,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809800   (64635) от 01.08.2025
+###  Публикация: 1802670   (66001) от 18.06.2025
 
-Donald Byrd - Four Classic Albums (1955, 1956) 2CD, 2014, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Larry Kurtz & The Lawbreakers - Take Ride (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hank's Other Tune [7:34]
-02. All Night Long [17:13]
-03. Boo-Lu [6:49]
-04. Flickers [6:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:30:55
+01.  HEADWATERS HILL COUNTRY (4:33)
+02.  I'M A CARPENTER (5:14)
+03.  ONE STEP ON THE DEVIL (4:35)
+04.  WRONG SIDE OF THE DOOR (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F9A2F4E9E1462AA77F80BDDFF2FD2247D0247FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809759   (64634) от 01.08.2025
-
-VA - Ori Uplift - Uplifting Only Episode 651 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Komarov – Fading Star (Simply Drew Remix)
-02. U-G – Shikisai
-03. DreamLife & Grande Piano with Agata Pasternak – Never Again
-04. Manuel Le Saux, Db Mokk – Inferno (Pre-Release Pick)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:259261D3E793A6FD321DAA82BE1A8B201E1C2854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809561   (64633) от 01.08.2025
-
-Sidney Bechet - Four Classic Albums: Third Set (1955 - 1958) 2CD, 2022, Avid Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J'Ai Deux Amours - Ce N'est Que Votre Main, Madame [3:42]
-02. Au Secours [2:26]
-03. Premier Bal [3:24]
-04. Le Train Du Vieux Noir [2:00](   Читать дальше...   )Жанр: Dixieland, Swing, New Orleans JazzПродолжительность: 02:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAE6C4AA670F00554CDE422BB6BD3249ACD89AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809776   (64632) от 01.08.2025
-
-Heavens Gate - Menergy (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teleshoot 0:49
-02. Worldmachine 3:39
-03. Teleshoot 0:12
-04. Mastermind 3:59(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E561AEB00061A00034C63224FC4C8179D312EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809717   (64631) от 01.08.2025
-
-Тимофей Кулабухов | Системная нежить. (Том 3) (2025) [MP3, Иван Караваев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система не отстанет от тебя, Игрок! Даже смерть или изгнание не прекращают игры.Жанр: Фантастика, боевик, LitRPGИздательство: Пересадочная станцияПродолжительность: 08:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:793791B1992C3ABBF5A11B31467DD0E6EA58FAB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809755   (64630) от 01.08.2025
-
-Bengal Tigers - Cry Havoc (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tear You To Shreds (04:37)
- 02. Penetrator (04:07)
- 03. Cry Havoc (05:02)
- 04. Under The Tower (06:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8F72FE4A3CF8E88234F8C4B227B9384DA54580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809901   (64629) от 01.08.2025
-
-Findroid | Возвращение демонического мастера (Книга 4) (2024) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64629.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Возвращение демонического мастера» – роман, четвертая книга одноименного цикла, жанр героическое фэнтези. Гор Вей вернулся, укрепившись в крепости ордена Божественной Кары он задумал что-то, что может перевернуть расклад сил во внешних витках. Нейт, вместе со Странниками гор и учениками школы Багрового возмездия отправляется туда чтобы остановить его, даже не подозревая (   Читать дальше...   )Жанр: фэнтезиИздательство: ИДДКПродолжительность: 09:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC7D63DE5131CC67A804D9992D8E637699A7791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809670   (64628) от 01.08.2025
-
-Юрий Кривицкий - 2 Albums (2019, 2011) [MP3|320 Kbps] <Pop, Chanson>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Человек не любивший меня [00:02:46]
-02. Друзьям [00:04:12]
-03. Три дня [00:03:46]
-04. Календарная осень  (с Натали Черняк) [00:04:40](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 2 CD, 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AEE93FCACDA2C229ECDD6B9E53A25C8F6433943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809718   (64627) от 01.08.2025
-
-Тимофей Кулабухов | Системная нежить. (Том 4) (2025) [MP3, Иван Караваев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система запускает восстание умертвий, Бог Машин мечтает поглотить Землю, а мир под ногами пылает. Есть только один путь – вперёд. Система даёт тебе ещё один шанс, игрок...Жанр: Фантастика, боевик, LitRPGИздательство: Пересадочная станцияПродолжительность: 08:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950118982FA72DDC7DFFEF77219F696B5B8E4827
+magnet:?xt=urn:btih:694C3C5E185EA5C3EBE9B8CCDF712CD850B80E5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

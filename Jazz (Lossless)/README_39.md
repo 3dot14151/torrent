@@ -1,3 +1,119 @@
+###  Публикация: 1368206   (910895) от 19.03.2020
+
+Hugh Masekela - Hope (2003) [FLAC|Lossless|image + .cue] <Jazz, Folk, World, & Country>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abangoma (The Healers)
+02. Uptownship
+03. Mandela (Bring Him Home!)
+04. Grazin' In The Grass(   Читать дальше...   )Жанр: Jazz, Folk, World, & CountryПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80381566602D7DDFF463CA6FD82FDC4BD9E32065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368300   (910874) от 19.03.2020
+
+Peter White - Music For Starlux Airlines (2019) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying High
+02. Island Getaway
+03. Peaceful
+04. Fun in the Sun(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1FDA78BAC87BE2068E37769AF8ECB12B7F1572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990694   (910047) от 26.02.2016
+
+Thierry Lang - Guide Me Home (2000) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Prelude To Sadness [05:41]
+ 02.In Your Own Sweet Way [02:40]
+ 03.Guide Me Home 'Jazz' [04:24]
+ 04.The Days Of Wine and Roses [05:04](   Читать дальше...   )Жанр: Post-Bop, CoolПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95BA7F9FCF9E12C67CDA681DBFBA0E31DB1B2C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990380   (909999) от 26.02.2016
+
+Duke Ellington - The Blanton-Webster Band (1940-1942) 3CD, 1986, Bluebird Records[FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909999.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.You, You Darlin' [03:25]
+02.Jack The Bear [03:19]
+03.Ko-Ko [02:45](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 03:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4766F486F2DB9D1B34ED91A60BBFF4196E6E0145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368499   (909222) от 20.03.2020
 
 Jelly Roll Morton - Classic Jazz Archive 1923 - 1939 (2004) 2CD, Membran Music [FLAC|Lossless|tracks + .cue] <Ragtime, New Orleans Jazz, Stride>
@@ -6,7 +122,7 @@ Jelly Roll Morton - Classic Jazz Archive 1923 - 1939 (2004) 2CD, Membran Music [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909222.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Parov Stelar Trio - The Invisible Girl (2013) [FLAC (tracks+cue)|Lossless]<Nu Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909083.jpg" />
 </div>
 
 
@@ -61,7 +177,7 @@ Houston Person - Island Episode (1997) Prestige[FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909032.jpg" />
 </div>
 
 
@@ -90,7 +206,7 @@ Rita Marcotulli - A Pino (2016) Live [FLAC|Lossless|tracks + .cue] <Jazz, Fusion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909031.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ Idris Muhammad - Legends Of Acid Jazz (1970, 1971) 1996, Prestige[APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909030.jpg" />
 </div>
 
 
@@ -148,7 +264,7 @@ Max Greger - Tanzen' 96 (1995) Polydor[APE|Lossless|tracks + .cue] <Big Band, Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908971.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ VA - Calm Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908719.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ VA - Jazz and Blues on Edison , volume 1 (1920-1929) 2006, Document Records[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908180.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Aziza Mustafa Zadeh - Contrasts II (2007) Jazziza Records[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908121.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Konstantin Klashtorni - Groove Jazz N Chill #2 (2012) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908091.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ Konstantin Klashtorni - Groove Jazz N Chill #3 (2013) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908072.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ Yves Teicher - Fiddler On The Groove (1997) BMG [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907507.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ Sal Nistico - Heavyweights (1961, 1962) 2002, Milestone[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907441.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Max Kaminsky & Pee Wee Russell - At The Copley Terrace (1945) 1996, Jazzology[AP
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907433.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Thea Mann - Sentimentally Yours (1996) HDCD[FLAC|Lossless|image + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907341.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ Chet Baker Sextet - Chet Is Back! (1962) 2003, Bluebird[FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907335.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ Viktoria Tolstoy - Meet Me At The Movies (2017) [FLAC|Lossless|WEB-DL|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907326.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Mingus Dynasty - Chair In The Sky (1979) Remaster, 2013, Warner[FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906798.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Sonny Rollins - Saint Thomas (1951-1962) 3CD, 2014, Le Chant Du Monde[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906441.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Jeff Golub - Do It Again (2002) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905709.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Jeff Golub - Dangerous Curves (2000) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905696.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ Quincy Jones - Four Classic Albums Plus 1953 - 1961 (2013) 2CD, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905649.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:577E9292D5042C8A237000EB1A6B3B9D6F8C96A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099357   (905447) от 01.02.2017
-
-The Ned Irving Quintet - Round & Round (1996) Rafsky Records[FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Round & Round [05:13]
- 02.The Long Road [06:58]
- 03.We Didn't Know Then [06:18]
- 04.Afbatu [05:58](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B6024F981B0F068A1A648F3CDC436C99B287BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099361   (905418) от 01.02.2017
-
-Weslia Whitfield - Teach Me Tonight (1997) HighNote[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's A Most Unusual Day [02:35]
- 02.I've Heard That Song Before [05:34]
- 03.Almost Like Being In Love [03:07]
- 04.Teach Me Tonight [04:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067C74EB1E3ACA4ED1955D57337ECAD782AE6756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099354   (905326) от 01.02.2017
-
-Thelonious Monk - Straight, No Chaser (1967) 2002, Sony[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Locomotive [06:41]
- 02.I Didn't Know About You (Take 4) [06:53]
- 03.Straight, No Chaser [11:29]
- 04.Japanese Folk Song [16:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:16:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DED53FCDCBDD212903E5BF7D3A2AEE6DDAB0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099375   (905316) от 01.02.2017
-
-Camera Soul - Connections (2017) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connections
-02. Help Yourself
-03. Black Cat
-04. Trip(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D99102CC0CB36FEFE389B714A265F5A654A42F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

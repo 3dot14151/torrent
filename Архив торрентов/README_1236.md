@@ -6,7 +6,7 @@ R-Studio 8.0 Build 164486 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775068.jpg" />
+  <img src="Z:/picture/008/save_picture_775068.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775067.jpg" />
+  <img src="Z:/picture/008/save_picture_775067.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Coming soon 2.81 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775066.jpg" />
+  <img src="Z:/picture/008/save_picture_775066.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ John 00 Fleming - Alter Ego (2016) [MP3|320 кб/с] <Psy-Trance , Progressive P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775065.jpg" />
+  <img src="Z:/picture/008/save_picture_775065.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Bioshock Дилогия  [Ru/En] (RePack) 2007-2010 | R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775053.jpg" />
+  <img src="Z:/picture/008/save_picture_775053.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Piriform CCleaner Professional 5.41.6446 RePack (& Portable) by elchupacabra  [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775039.jpg" />
+  <img src="Z:/picture/008/save_picture_775039.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ CCleaner 5.41.6446 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775038.jpg" />
+  <img src="Z:/picture/008/save_picture_775038.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Adobe Flash Player 29.0.0.113 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775036.jpg" />
+  <img src="Z:/picture/008/save_picture_775036.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775027.jpg" />
+  <img src="Z:/picture/008/save_picture_775027.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Adobe Flash Player 29.0.0.113 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775026.jpg" />
+  <img src="Z:/picture/008/save_picture_775026.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775021.jpg" />
+  <img src="Z:/picture/008/save_picture_775021.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Microsoft .NET Framework 4.7.2 Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775020.jpg" />
+  <img src="Z:/picture/008/save_picture_775020.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Default Folder X 5.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775018.jpg" />
+  <img src="Z:/picture/008/save_picture_775018.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ DiskDigger 1.20.9.2707 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775014.jpg" />
+  <img src="Z:/picture/008/save_picture_775014.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Allavsoft Video Downloader Converter 3.16.9.6959 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_775013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_775013.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ MediaHuman Youtube Downloader 3.9.9.11 (2101) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775012.jpg" />
+  <img src="Z:/picture/008/save_picture_775012.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ EssentialPIM Pro Business Edition 8.13 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775006.jpg" />
+  <img src="Z:/picture/008/save_picture_775006.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774996.jpg" />
+  <img src="Z:/picture/008/save_picture_774996.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774991.jpg" />
+  <img src="Z:/picture/008/save_picture_774991.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Mozilla Firefox 47.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774988.jpg" />
+  <img src="Z:/picture/008/save_picture_774988.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Downie 2.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774983.jpg" />
+  <img src="Z:/picture/008/save_picture_774983.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Lehmann - Lehmanized (2013) [MP3|320 кб/с]<Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774957.jpg" />
+  <img src="Z:/picture/008/save_picture_774957.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ SLIMUS (Slim) - Ферма (2019) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774946.jpg" />
+  <img src="Z:/picture/008/save_picture_774946.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Skype 8.37.0.98 Portable by FoxxApp [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774942.jpg" />
+  <img src="Z:/picture/008/save_picture_774942.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Format Factory 4.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774936.jpg" />
+  <img src="Z:/picture/008/save_picture_774936.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Anvir Task Manager 8.0.5 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774931.jpg" />
+  <img src="Z:/picture/008/save_picture_774931.jpg" />
 </div>
 
 

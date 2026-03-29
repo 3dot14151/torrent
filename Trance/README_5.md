@@ -1,3 +1,206 @@
+###  Публикация: 1621141   (1030986) от 25.03.2023
+
+VA - VA Trance 2023 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Larssen - Time Machine (Original Mix) [6:46]
+02. Sybranax - Binary Star (Original Mix) [6:21]
+03. Nick Osta5h - Deja Vu (Original Mix) [7:01]
+04. Atti Master & PUNK JUNGLE - Enter The Future (Extended Mix) [5:56](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFBB8ECAD59BAD8DB48E7ADF04C6FA5B7FB73AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448543   (1030701) от 18.02.2021
+
+VA - Aly & Fila - FSOE Top 20: February (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila & Plumb - Somebody Loves You (Extended Mix)
+02. Dan Stone - Vice Versa (Extended Mix)
+03. Paul Denton - Existence (Extended Mix)
+04. James Dymond - Jupiter & Beyond (Extended Mix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 01:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE81BEF205265F2D0D1D27B9158416280226AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448899   (1030481) от 19.02.2021
+
+VA - The World Series Of Trance Vol.1 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming - The 10th Life (Original Mix)
+02. Carlo Mathaye - Digitalize (Hiroki Nagamine Remix)
+03. Jens Lonnberg - Red Skies (Radio Edit)
+04. Chris Turner - Phat Giraffe (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B390EB7D3A9E365BE5068240001D66E2DF678A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448893   (1030475) от 19.02.2021
+
+VA - Global Trance Masters Vol.1 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neo Kekkonen - Mirage (Intro Mix)
+02. Dirkie Coetzee & Corrie Theron - Engel (Original Mix)
+03. Feel-X & Robin Vane - Found Myself (A&M Remix)
+04. Chris SX - Go! (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D39C7862D00BBF2E643A59C144364A9BF48D649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448896   (1030473) от 19.02.2021
+
+VA - Global Trance Masters Vol.2 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rafael Osmo - Into The Night (Original Mix)
+02. René Ablaze vs. Pluton & Alex Trinnity - Air Tones (Club Mix)
+03. Matt Skyer - Green (Rob Corbo Remix)
+04. André Visior - Moonraker (Alexander Popov & Broning Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9745F55E5364F3FD3726F7D73ADEDF9EA312D92E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448870   (1030472) от 19.02.2021
+
+VA - Black Hole Trance Music 02-21 (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Ottaviani - Spellbound (Extended Mix)
+02. Estuera - Umbra (Extended Mix)
+03. Dennis Sheperd x EKE - Playing With Fire (Extended Mix)
+04. Christina Novelli - Numb (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC791D2252BF86099E176D1C4F4D0942408D87BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622301   (1030269) от 28.03.2023
+
+VA - Raz Nitzan - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raz Nitzan & Maria Nayler - Nothing Breaks Like A Heart (Radio Edit) [4:20]
+02. Raz Nitzan & Fenna Day - Room For Doubt (Original Mix) [3:34]
+03. Susana & Raz Nitzan - Fall Into Trust (Original Mix) [3:48]
+04. Raz Nitzan & Denise Rivera - The Last To Know (Original Mix) [2:52](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677CDDACD82347EA97526C9FCF85C8CEB4A037EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450032   (1029317) от 24.02.2021
 
 VA - Ferry Corsten - Resonation Vol.1 (2021) [MP3|320 Kbps] <Trance, Progressive House>
@@ -6,7 +209,7 @@ VA - Ferry Corsten - Resonation Vol.1 (2021) [MP3|320 Kbps] <Trance, Progressive
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029317.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - Black Hole Trance Music 03-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025295.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ Complex Numbers - Техно-опера "Мы, XXII век" (2018) [MP3|320 Kbps
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022811.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Black Hole Trance Music 04-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020281.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Black Hole Trance Music 05-21 (2021) [MP3|320 Kbps] <Trance, Uplifting Tran
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014809.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - Dream Dance Vol. 91 (2021) 3CD [MP3|320 Kbps] <Trance, Progressive, Dance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006254.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Trance Dance - Back to the 90s (2019) 2CD [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004066.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - Dream Dance Vol.88 (2020) [MP3|320 Kbps] <Trance, Progressive House, Vocal 
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001885.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Wave of Trance Vol.1 (2013) [MP3|320 кб/с]<Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990578.jpg" />
 </div>
 
 
@@ -273,7 +476,7 @@ VA - Black Hole Trance Music 01-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTranc
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984915.jpg" />
 </div>
 
 
@@ -302,7 +505,7 @@ VA - Defragmentation (Mixed by DJ Бинокль) (2008) [MP3|320 Kbps] <Trance,
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963270.jpg" />
 </div>
 
 
@@ -331,7 +534,7 @@ DJ Иван Ионов - Soundcheck - Summer Non Stop (2005) [MP3|320 Kbps] <Tra
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963222.jpg" />
 </div>
 
 
@@ -360,7 +563,7 @@ VA - Dreaming - Mixed by Dj Anna Lee (2007) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963213.jpg" />
 </div>
 
 
@@ -389,7 +592,7 @@ Dj Donatas VZ - Nobody Harder - Volume Zero (2004) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963210.jpg" />
 </div>
 
 
@@ -418,7 +621,7 @@ DJ Aligator Project - The Sound Of Scandinavia (2002) [MP3|320 Kbps] <Trance, Eu
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960738.jpg" />
 </div>
 
 
@@ -447,7 +650,7 @@ VA - Suanda Winter Vol. 3 (2016) [MP3|320 кб/с] <Trance, Chillout>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954839.jpg" />
 </div>
 
 
@@ -476,7 +679,7 @@ VA - Silent Shore Records - The Best Of (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954016.jpg" />
 </div>
 
 
@@ -505,7 +708,7 @@ VA - Best 10 Trance Of The Year (2016) [MP3|320 Kbps] <Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953904.jpg" />
 </div>
 
 
@@ -534,7 +737,7 @@ VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950787.jpg" />
 </div>
 
 
@@ -548,206 +751,6 @@ VA - Atmosfera Records Best Of 2016 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:730889C090C28D327B2E1B4F93E31870BC5BFAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090358   (947684) от 06.01.2017
-
-VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dario Synth - Without You (Michael D remix) (06:43)
-02. Sancho - Domi9 (06:01)
-03. Ilya Goryachev - Gold Waters (06:23)
-04. Veselin Tasev - Don't Kill The Love (extended mix) (07:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D29763D2D1123346F019ED0326F33CF07AB75D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090407   (947531) от 06.01.2017
-
-VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz feat. CeCe Peniston - Make You Fall 04:31
-02. Dash Berlin feat. Kate Walsh - When You Were Around 02:59
-03. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (Den Rize Remix) 03:45
-04. MaRLo feat. Sarah Swagger - Always Be Around 03:57(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172835   (947454) от 09.02.2010
-
-DJ Eco - Подборка синглов (2007 - 2010) [MP3|320 kbps] <Uplifting Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Uplifting Trance, Progressive
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362732   (946572) от 25.02.2020
-
-VA - Black Hole Trance Music 02-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giuseppe Ottaviani - Moscow River (Extended Mix) 05:36
-02. Lowland & Ylona - Machines Have Hearts (Andy Duguid Extended Remix) 05:32
-03. Cold Blue - Colors (Extended Mix) 08:27
-04. Andy Moor & Somna & Blu Eyes - Up In Smoke (Extended Mix) 05:58(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26C2C2B9C91E7F4072E42CFC36AFB372F92B485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983033   (945228) от 05.02.2016
-
-Tiesto - Elements Of Life (Remixed - Extended Mixes) (2016) [MP3|320 кб/с] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto - Ten Seconds Before Sunrise (First State Remix) (7:57)
-02. Tiesto feat. JES - Everything (Cosmic Gate Remix) (8:48)
-03. Tiesto feat. Julie Thompson - Do You Feel Me (Roger Martinez Remix) (7:09)
-04. Tiesto - Carpe Noctum (Fire Element Mix) (7:15)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 03:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07812DC4A4221A0734C30DC8F1E4BBF4D723CE13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091250   (944857) от 08.01.2017
-
-VA - Best Of Trancer 2016 (Mixed by Nick Turner) (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic - Desire Of My Heart (Original Mix) (8:59)
-02. Kir Tender - Always Alive (George Crusher Remix) (8:08)
-03. Alex Shevchenko - Ivory Tower (Chronosapien Remix) (7:18)
-04. Syntouch - Hidden Loneliness (Original Mix) (6:38)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7FC2CA6AFFA1EA1698B7727EEA1F105FCD34E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983500   (943745) от 06.02.2016
-
-VA - Global DJ Broadcast Top 20 January 2016 (With Markus Schulz) (2016) [MP3|320 кб/с] <Trance, House, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Nifra - The Creation (Prague) (Transmission Theme 2015) (07:27)
-02. Arkham Knights - Knightfall (Original Mix) (07:02)
-03. M.I.K.E Push vs Rank 1 - Zenith (Original Mix) (08:59)
-04. Solarstone & Gai Barone - Fata Morgana (Extended Mix) (09:15)(   Читать дальше...   )Жанр: Trance, House, Progressive TranceПродолжительность: 02:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081CA925E08C30B293CEA6767760F6ABA233BADD
 ```
 
 https://mybot314.ru/tekegram_catalog/

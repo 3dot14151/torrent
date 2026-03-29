@@ -6,7 +6,7 @@ Vreid - Solverv (2015) [MP3|320 кб/с]<Melodic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433934.jpg" />
+  <img src="Z:/picture/008/save_picture_433934.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Arch Enemy - Deceivers (2022) [MP3|320 kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433848.jpg" />
+  <img src="Z:/picture/008/save_picture_433848.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Vous Autres - Sel de Pierre (2020) [MP3|320 Kbps] <Post-Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431989.jpg" />
+  <img src="Z:/picture/008/save_picture_431989.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Corrupt-R - Awakening (2020) [MP3|320 Kbps] <Modern Metal, Djent Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431930.jpg" />
+  <img src="Z:/picture/008/save_picture_431930.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ AxeWound - Vultures (2012) [MP3|320 кб/с]<Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431782.jpg" />
+  <img src="Z:/picture/008/save_picture_431782.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ Huntress - Static (2015) [MP3|320 кб/с]<Thrash metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431735.jpg" />
+  <img src="Z:/picture/008/save_picture_431735.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ensiferum - Two Paths (2017) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430307.jpg" />
+  <img src="Z:/picture/008/save_picture_430307.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ NZM - Time's Running Out (2020) [MP3|320 Kbps] <Heavy / Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429842.jpg" />
+  <img src="Z:/picture/008/save_picture_429842.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Elmsfire - Wings Of Reckoning (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427638.jpg" />
+  <img src="Z:/picture/008/save_picture_427638.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Centvrion - V (2015) [MP3|320 кб/с]<Heavy, Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427370.jpg" />
+  <img src="Z:/picture/008/save_picture_427370.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Wolfheart - Constellation Of The Black Light (2018) [MP3|320 Kbps] <Melodic Deat
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426888.jpg" />
+  <img src="Z:/picture/008/save_picture_426888.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Brainstorm - Midnight Ghost (2018) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426885.jpg" />
+  <img src="Z:/picture/008/save_picture_426885.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Stratovarius - Enigma: Intermission II (2018) [MP3|320 Kbps] < Melodic Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426768.jpg" />
+  <img src="Z:/picture/008/save_picture_426768.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Perpetual Dreams - A New Rising (2016) [MP3|320 Kbps] <Melodic Heavy Metal, Hard
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426369.jpg" />
+  <img src="Z:/picture/008/save_picture_426369.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Grave Digger - Symbol Of Eternity (2022) [MP3|320 Kbps] <Heavy Metal, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425515.jpg" />
+  <img src="Z:/picture/008/save_picture_425515.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Metallica - The Woodstock Sessions (Live'99) (2020) [MP3|320 Kbps] <Thrash Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424973.jpg" />
+  <img src="Z:/picture/008/save_picture_424973.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Skyliner - Condition Black (2016) [MP3|320 Kbps] <Heavy, Progressive, Power Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424402.jpg" />
+  <img src="Z:/picture/008/save_picture_424402.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Eisenwut - Herrschaft Der Leere (2017) [MP3|320 Kbps] <Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424263.jpg" />
+  <img src="Z:/picture/008/save_picture_424263.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Hell Boulevard - Inferno (2016) [MP3|320 Kbps] <Industrial Metal, Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424210.jpg" />
+  <img src="Z:/picture/008/save_picture_424210.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Thulcandra - Under A Frozen Sun (2011) [MP3|320 kbps]<Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424108.jpg" />
+  <img src="Z:/picture/008/save_picture_424108.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ BeforeTheCalm - Anchors (2020) [MP3|~245 Kbps (V0)] <Progressive Metalcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423328.jpg" />
+  <img src="Z:/picture/008/save_picture_423328.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Goldenhall - Collide (2020) [MP3|320 Kbps] <Symphonic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423157.jpg" />
+  <img src="Z:/picture/008/save_picture_423157.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Circus Maximus - Isolated Chapters (2019) EP [MP3|320 Kbps] <Power Metal, Progre
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423101.jpg" />
+  <img src="Z:/picture/008/save_picture_423101.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Anaal Nathrakh - A New Kind Of Horror (2018) [MP3|320 Kbps] <Industrial Black Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422540.jpg" />
+  <img src="Z:/picture/008/save_picture_422540.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Liv Sin (ex-Sister Sin) - Burning Sermons (2019) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421321.jpg" />
+  <img src="Z:/picture/008/save_picture_421321.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Anaal Nathrakh - Endarkenment (2020) [MP3|320 Kbps] <Black Metal, Grindcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420632.jpg" />
+  <img src="Z:/picture/008/save_picture_420632.jpg" />
 </div>
 
 

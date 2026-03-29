@@ -1,3 +1,237 @@
+###  Публикация: 1795370   (11843) от 11.07.2025
+
+Union of Gnomes (2024) [Ru/Multi] (1.5.28) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Union of Gnomes погружает вас в причудливую революцию. Здесь нет сказочного счастья. В этой карточной roguelike от Hoolignomes вам предстоит разработать стратегию освобождения гномов. Подумайте о колодостроении с изюминкой - все дело в том, чтобы собрать идеальный отряд борцов за свободу. Забудьте о том, что нужно нажимать кнопки, чтобы добиться победы. Здесь главное (   Читать дальше...   )Тип издания: LicenseРазработчик: HoolignomesЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1185E36E390604E2D4E21095F0079B6945284F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806314   (11735) от 12.07.2025
+
+LUNAR Remastered Collection (2025) [Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте Lunar Remastered Collection - заветный подарок для всех ценителей ролевых игр. В этом сборнике вы найдёте сразу две игры - Lunar: Silver Star Story и Lunar 2: Eternal Blue, да не простые, а с иголочки, в новом обличье. Улучшенная графика, обновлённый звук, а также уйма других нововведений. В Lunar: Silver Star Story мы знакомимся с Алексом, парнем, грезящим (   Читать дальше...   )Тип издания: RepackРазработчик: Game ArtsЖанр: Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Японский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B7617D4EB2FE718C4B4B48F849ADE4FB68C6DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806307   (11732) от 12.07.2025
+
+My Time At Portia (2019) [Ru/Multi] (2.0.141719/dlc) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните новую жизнь в очаровательном городе Портии! Восстановите мастерскую своего отца и верните ей былую славу! Выполняйте заказы, выращивайте урожай, заботьтесь о животных и заводите друзей среди своеобразных обитателей очаровательного постапокалиптического мира! Вооружившись справочником и старым верстаком отца, вы будете заниматься собирательством, добывать (   Читать дальше...   )Тип издания: RepackРазработчик: Pathea GamesЖанр: Симулятор, ПриключениеЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Китайский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Китайский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09AB23B261F61E81B7F0B15BADA88EB1EC2AC18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807031   (11339) от 16.07.2025
+
+Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.110/dlc) Scene Rune
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба Забытых Королевств - в ваших руках... Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition возвращает вас обратно в Невервинтер! Темные силы снова рыщут по Фаэруну, разоряя все на своем пути. Как будто в поиске чего-то... что вы уже нашли. Только вы, носитель осколка, можете остановить Короля Теней и его армию и не дать ему осквернить ваши родные (   Читать дальше...   )Тип издания: SceneРазработчик: Aspyr MediaЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AAF0F404720C698334728868B3243C424C99DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807037   (11338) от 16.07.2025
+
+Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.110/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition возвращает вас обратно в Невервинтер! Темные силы снова рыщут по Фаэруну, разоряя все на своем пути. Как будто в поиске чего-то... что вы уже нашли. Только вы, носитель осколка, можете остановить Короля Теней и его армию и не дать ему осквернить ваши родные земли. Удастся ли вам спасти Фаэрун, или вы падете (   Читать дальше...   )Тип издания: RepackРазработчик: Aspyr MediaЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:614B554D705DA854084C44AC43163C7DFDCF0E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807115   (11267) от 17.07.2025
+
+Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.110/dlc) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судьба Забытых Королевств - в ваших руках... Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition возвращает вас обратно в Невервинтер! Темные силы снова рыщут по Фаэруну, разоряя все на своем пути. Как будто в поиске чего-то... что вы уже нашли. Только вы, носитель осколка, можете остановить Короля Теней и его армию и не дать ему осквернить ваши родные (   Читать дальше...   )Тип издания: RepackРазработчик: Aspyr MediaЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46E4FFE4102B2767BB47AE4757575CF6E01F250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807291   (11147) от 18.07.2025
+
+Striving for Light (2021) [Ru/Multi] (1.0.0.0c) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совмещая глубокую проработку билдов из Action RPG, таких как Path of Exile и Diablo, с динамичным геймплеем roguelite в духе Hades, Striving for Light - это экшен-RPG, где вы расширяете и формируете уникальный бесконечный skilltree. Сражайтесь в тёмных, постоянно меняющихся мирах, собирайте мощную добычу, создавайте и улучшайте оружие до легендарного уровня, открывайте (   Читать дальше...   )Тип издания: RepackРазработчик: Igniting Spark GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1192733AD6D55D870A13D95ADD6EB5A1185B6A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807270   (11064) от 18.07.2025
+
+Dragon Ball Z: Kakarot (2020) [Ru/Multi] (1.30/dlc) Repack FitGirl [Legendary Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dragon Ball Z: Kakarot – долгожданное продолжение серии игр Dragon Ball Z. Игра сделана по мотивам манги и аниме сериала «Драконий Жемчуг». Главный герой Сон Гоку – протагонист вселенной; нам предстоит отправиться с ним в приключение и узнать его историю. События разворачиваются во вселенной «Dragon Ball Z»; развитие происходящего дополнено сайд-квестами и различными (   Читать дальше...   )Тип издания: RepackРазработчик: CyberConnect2 Co. Ltd.Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E9B21513BA3E8FCBAD9AA36DDD99F8E1869659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807419   (11018) от 19.07.2025
+
+Warspace 2 (2025) [Ru/Multi] (1.00/dlc) Repack FitGirl [Supporter Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одиночки или группы пилотируют звездолеты в процедурно создаваемой галактике, самостоятельно прокладывая маршрут сквозь вселенную. Этот космический шутер работает как с подключением к сети, так и без него, что открывает доступ к одиночному путешествию вне кооперативного режима. Основная деятельность сосредоточена на сражениях, торговле ресурсами и создании экипировки.Тип издания: RepackРазработчик: Magic Game ArtЖанр: Экшены, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A758F3514D56FB50A03B9676116FC7FE4527509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807424   (10991) от 19.07.2025
 
 DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack seleZen
@@ -6,7 +240,7 @@ DOOMER SIMULATOR (2025) [Ru/En] (0.9.1) Repack seleZen
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10991.jpg" />
 </div>
 
 
@@ -32,7 +266,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10943.jpg" />
 </div>
 
 
@@ -58,7 +292,7 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack Let'sРlay [Complete Collection
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10919.jpg" />
 </div>
 
 
@@ -84,7 +318,7 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2.2489/dlc) Repack
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10837.jpg" />
 </div>
 
 
@@ -110,7 +344,7 @@ Cyberpunk 2077 (2020) [Ru/Multi] (2.3/dlc) Repack FitGirl [Ultimate Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10821.jpg" />
 </div>
 
 
@@ -136,7 +370,7 @@ Dark Envoy (2023) [Ru/Multi] (1.7.1.73935) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10730.jpg" />
 </div>
 
 
@@ -162,7 +396,7 @@ The Rangers In The South (2025) [Ru/Multi] (3.0.3) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10715.jpg" />
 </div>
 
 
@@ -188,7 +422,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10641.jpg" />
 </div>
 
 
@@ -214,7 +448,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10635.jpg" />
 </div>
 
 
@@ -240,7 +474,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10590.jpg" />
 </div>
 
 
@@ -266,7 +500,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067) Scene Tenoke
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10456.jpg" />
 </div>
 
 
@@ -292,7 +526,7 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067/dlc) Repack FitGirl [Deluxe E
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10449.jpg" />
 </div>
 
 
@@ -318,7 +552,7 @@ SWORD ART ONLINE Fractured Daydream (2024) [Ru/Multi] (1.4.0.0/dlc) Scene Rune
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10337.jpg" />
 </div>
 
 
@@ -344,7 +578,7 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.9.2) Repack Pioneer
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10291.jpg" />
 </div>
 
 
@@ -370,7 +604,7 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4184/dlc) Repack Let'
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10245.jpg" />
 </div>
 
 
@@ -396,7 +630,7 @@ Rekindled Trails (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10180.jpg" />
 </div>
 
 
@@ -422,7 +656,7 @@ Abiotic Factor (2024) [Ru/Multi] (1.0.0.20061/dlc) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10170.jpg" />
 </div>
 
 
@@ -433,240 +667,6 @@ Abiotic Factor - это научный экшен с видом от перво�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAAB88F76419FF72049001DE29034BFAC164D261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809076   (10110) от 28.07.2025
-
-M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда разумные роботы остаются без своих создателей, они создают цивилизацию и имитируют эмоции. Не сумев их контролировать, они погружаются в гражданскую войну и разделяются на три фракции. Под руководством учёного по имени Эннига, стремящегося восстановить прежний мир, игрокам предстоит проникнуть в вражескую территорию и одним ударом устранить лидеров всех трёх (   Читать дальше...   )Тип издания: RepackРазработчик: StickyStoneStudioЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Китайский (традиционный) и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский (традиционный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C05CD63A08A2C477C06A1826BDCE8CF337B257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759198   (10018) от 29.07.2025
-
-Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.10.5/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зовите друзей, выбирайте любимую черепашку и спасайте мастера Сплинтера из лап клана Фут в приключении-рогалике! Осваивайте навыки ниндзя, объединяйтесь в отчаянной совместной игре по сети и локально и покоряйте знаковые локации Нью-Йорка.Тип издания: RepackРазработчик: Super Evil MegacorpЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FF5E6D7E863DE43B7D2A9ADB79FB412161F3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793308   (9895) от 30.07.2025
-
-The Last Spell (2023) [Ru/Multi] (1.2.20.2.s.de/dlc) Repack Let'sРlay [Complete Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9895.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Last Spell - это тактическая ролевая игра с элементами roguelite, в которой вам предстоит оборонять город от полчищ смертоносных врагов. Наступил апокалипсис… В безрассудной попытке остановить войну, сотрясающую мир десятилетиями, маги устроили Катаклизм. Огромные сгустки чистой магии уничтожили практически все. Мир обволок таинственный фиолетовый туман, в котором (   Читать дальше...   )Тип издания: RepackРазработчик: Ishtar GamesЖанр: Экшены, Инди, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57739091DA5DC594C67BFAA4F696EAE2A0A7778E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809335   (9886) от 30.07.2025
-
-WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178111/dlc) Repack seleZen [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит в землях Шу, в мрачные и неспокойные времена заката династии Мин. Империю раздирают междоусобицы, а таинственная хворь порождает кошмарных чудовищ. Вы играете за Учан, бывалую пиратку и грозу морей, потерявшую память. Ей предстоит столкнуться с призраками прошлого и выжить после заражения жуткой Пернатой хворью. Исследуйте глубины Шу, собирайте (   Читать дальше...   )Тип издания: RepackРазработчик: LeenzeeЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Английский, Китайский (упрощенный), ЯпонскийЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA367719DAFB09790F17A2E8BC1A2226087A218E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793515   (9707) от 01.08.2025
-
-Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57661/dlc) Repack Wanterlude [Deluxe Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возглавьте Экспедицию 33 и уничтожьте Художницу, чтобы она никогда больше не смогла нарисовать смерть. Исследуйте мир чудес, созданный на основе Прекрасной эпохи Франции, и побеждайте уникальных врагов в пошаговой ролевой игре с механикой реального времени.Тип издания: RepackРазработчик: Sandfall InteractiveЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB8E1E001F3E62E03AB8DACFA23DBDE9B88A94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779690   (9599) от 02.08.2025
-
-Avowed (2025) [Ru/Multi] (1.5.1.0/dlc) Repack Let'sРlay [Premium Edition]
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Живые земли, загадочный остров, полный приключений и опасностей! Avowed - фэнтезийная ролевая игра с видом от первого лица, разработанная знаменитой студией Obsidian Entertainment. Ее действие разворачивается в мире Эоры, уже знакомом игрокам по серии Pillars of Eternity. Живые земли - это остров, где в воздухе гудит древняя магия, растения могут (   Читать дальше...   )Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A018071E943FB4E857EE4EFB00DB4AD3D8E926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809982   (9560) от 02.08.2025
-
-Achilles: Survivor (2025) [Ru/Multi] (1.0.9290) Repack FitGirl
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Твоя легенда растёт с каждой попыткой. Achilles: Survivor - это динамичный bullet heaven для одного игрока, действие которого разворачивается в Древней Греции. Играй за Ахилла - или за одну из легендарных душ, сбежавших из Тартара - и прорубайся через бесконечные волны врагов. Строй смертоносные сооружения, усиливай свои силы и становись сильнее с каждой попыткой. (   Читать дальше...   )Тип издания: RepackРазработчик: Dark Point GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850F4E161BB83648307C82E3BF6837F3FED2BD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792221   (9511) от 03.08.2025
-
-Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) Repack Wanterlude [Digital Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9511.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество пало под натиском монстров. Теперь народу Фельдума приходится скрываться за кирпичными стенами и заборами, отводящими внимание, которые строят лидеры. Радость и удовольствие стали непозволительной роскошью для большинства оставшихся в живых. Не о таком будущем они мечтали... Отправляйтесь в поход под покровом ночи и освободите свой мир!Тип издания: RepackРазработчик: Primal Game StudioЖанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA37A93F35E00004271F08A08CAC4B8C2989078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727984   (9505) от 03.08.2025
-
-ARK: Survival Evolved (2017) [Ru/Multi] (360.1/dlc) Repack FitGirl [Ultimate Survivor Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир - ARK: Survival Evolved - это полный опасностей сеттинг, в котором не только динозавры, но и прочие существа будут пытаться вас убить. Особенно опасными становятся люди. В игре нет никакого интересного сюжета, зато есть огромный открытый мир, в котором вам предстоит строить свою базу, охотиться с группой людей (ваших друзей), атаковать, обороняться, делать оружие (   Читать дальше...   )Тип издания: RepackРазработчик: Studio Wildcard, Instinct Games, Efecto Studios, Virtual Basement LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC887AA7C9A5E4A1C720E8A2D966AF76A81F4E1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

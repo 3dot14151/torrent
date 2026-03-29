@@ -1,3 +1,55 @@
+###  Публикация: 1684564   (127730) от 16.12.2023
+
+Need For Speed: Porsche Unleashed (2000) [Ru/En] (3.5) Repack Decepticon
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed: Porsche Unleashed – одна из лучших игр серии Need for Speed, вышла в марте 2000 года и почти сразу очутилась на верхушках многих мировых чартов. В этой части разработчики сделали упор на автомобили марки Porsche, представив почти весь модельный ряд компании, начиная с шестидесятых годов прошлого века. Благодаря этому геймеры могли покататься как на (   Читать дальше...   )Тип издания: RepackРазработчик: EA CanadaЖанр: Racing, SimulatorЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59033D3B40561934DA9D8FADDFE6D045AE9E0667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684840   (127537) от 17.12.2023
+
+Need for Speed: Hot Pursuit 2 (2002) [Ru/En] (2.42) Repack Decepticon
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может утолить жажду скорости? Только очередная часть легендарных гонок. Более 20 роскошных автомобилей от ведущих мировых производителей. Два режима игры - чемпионат и уличные гонки с полицией - по 33 уровня в каждом. Доступна игра за полицию в качестве "копа", где вы можете вызывать подкрепление, вертолеты, сбрасывающие бомбы на злостных нарушителей, (   Читать дальше...   )Тип издания: RepackРазработчик: EA SeattleЖанр: Racing, SimulatorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA222026170E98282C9D9517109FF0EC1CBE671E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684809   (126978) от 20.12.2023
 
 Jazz Jackrabbit 2 - Holiday Hare 2023 (1998-2023) [Multi] (5.12+/0.95) Repack/Mod Roger_Stone
@@ -6,7 +58,7 @@ Jazz Jackrabbit 2 - Holiday Hare 2023 (1998-2023) [Multi] (5.12+/0.95) Repack/Mo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126978.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Heroes of Might and Magic III: Complete (1999) [Ru/En] (4.0/dlc) Repack Deceptic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125674.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125554.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/Multi] (2.5b) Repack ale
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125500.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Painkiller: Overdose / Painkiller: Передозировка (2007) [Ru/En] (1.
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125261.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Shattered Union / Shattered Union: Захват США (2005) [Ru] (1.00x) Repac
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125121.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ The Lord of the Rings: The Battle for Middle-earth (2004) [Ru/En] (1.03) Repack 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124991.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123838.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Blood: One Unit Whole Blood (1998-2016) [En] (12.2016) Repack/Mod 1nomok [BloodC
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121051.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Descent + Descent II (1995-1996) [Ru/En] (0.58-1/dlc) Mod [DXX Rebirth]
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119417.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Perimeter 2: New Earth / Периметр 2: Новая Земля (2008) [Ru] (
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119387.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Dungeon Siege: Legends of Aranna / Осада подземелья: Легенд
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119382.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Star Wars: Jedi Knight II - Jedi Outcast (2002) [Multi] (1.04) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119052.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118040.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ General Strategic Simulations Inc. Anthology (1994-2000) [En] License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118027.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117898.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Cossacks: Back to War / Казаки. Снова война (2002) [Ru/En] (1.35
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116991.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Alexander (2004) [Ru] (1.60) Repack Decepticon
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116625.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ The Bard's Tale ARPG: Remastered and Resnarkled (2004) [Ru/Multi] (2.2.b) Licens
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114758.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Velen 2.0 / Велен 2.0 (2019) [Ru/Multi] (2.1.3) License
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109854.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ World Rally Fever: Born on the Road (1996) [En] (1.01) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104420.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Bad Blood [En] (RePack) 1990 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102644.jpg" />
+  <img src="Z:/picture/005/save_picture_102644.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Stronghold Crusader (Rip) [Ru] 2003 | maestro1997
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102536.jpg" />
 </div>
 
 
@@ -604,65 +656,13 @@ Battle Master [En] (RePack) 1991 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102380.jpg" />
+  <img src="Z:/picture/005/save_picture_102380.jpg" />
 </div>
 
 
 ###  Подробнее
 
 Замечательная фэнтезийная стратегия с ролевыми элементами в реальном времени. Главное, что здесь радует, - мы наконец-то можем выбрать себе расу по душе.Мы предстаём в игре в виде полководца, которому необходимо выбрать определённый класс (воин, лучник, маг и так далее). У него есть собственный перечень характеристик, растущих со временем (их значение во многом будет влиять на исход битв), и инвентарь, так как помимо сражений в игре можно будет иногда находить артефакты, которые повысят те или иные способности нашего героя.Тип издания: RePackЖанр: СтратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489931   (102193) от 30.04.2012
-
-A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 1991-1992 | Pilotus
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть дилогии Savage Frontier. Есть возможность перенести персонажей из первой части.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489915   (102075) от 29.04.2012
-
-Desert Strike: Return to the Gulf и Jungle Strike (RePack) [En] 1994-1995 | Pilotus
-
->>Win Старые Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jungle Strike – это доведенный до ума Desert Strike, пусть и с энным количеством новинок. Геймплей, по большому счету, остался без изменений. Нам всё так же предстоит управлять вертолетом, у которого кончаются топливо и патроны, запасы которых нам надо постоянно пополнять, а также получает повреждения броня, которую надо восстанавливать. На мой взгляд, очень удачным нововведением стало появление новых транспортных средств. Это просто находка, которая в свое время не дала серии Страйков превратиться в средненькую «мыльную оперу» и затеряться на просторах посредственных игр.Тип издания: RePackЖанр: Аркадная леткалкаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash

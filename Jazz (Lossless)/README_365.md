@@ -1,3 +1,119 @@
+###  Публикация: 1775933   (29380) от 29.01.2025
+
+Joe Pass & John Pisano - Duets (1991) 1996, Pablo [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone Together [6:04]
+02. Baileywick [2:47]
+03. S'il vous plait [2:40]
+04. Lonely Woman [3:40](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55E947264D8276698BA617346EF866EF88452ED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775927   (29379) от 29.01.2025
+
+Arlee Leonard, Cleave Guyton & Igor Dmitriev Trio - Status Quo (2008) 2024, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Announcement [0:48]
+02. Just Friends [7:59]
+03. Arlee Leonard - talk [0:33]
+04. Almost Like Being In Love [4:31](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 01:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4660CD980B540BB276D14769AA2E4291E11DDB88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783372   (25619) от 05.03.2025
+
+VA - Pop International Hits Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Lounge, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sarah Jane Morris - Yesterday (3:31)
+02.  Bossa Nostra - Roxanne (Nao Ligar) (2:52)
+03.  P@t - Too Much (DU:AL Acustic Breeze Edit) (3:24)
+04.  Faraa - Wild World (4:43)(   Читать дальше...   )Жанр: Jazz, Lounge, Bossa NovaПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962A66BF9C9B8E113A615D7AF0AED97F7D1EB43C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784502   (25000) от 11.03.2025
+
+Travelin' Light - Makin' Whoopee (1993) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Swing, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Micro [4:24]
+02. Wabash Blues [3:21]
+03. China Boy [3:39]
+04. You Are My Sunshine [3:55](   Читать дальше...   )Жанр: Swing, DixielandПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E613C0255C9318DD4F175B21A7A1CB1623205EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011245   (23736) от 23.03.2025
 
 Freddie Hubbard - Gleam (1975) 2CD, 2012, Wounded Bird Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -6,7 +122,7 @@ Freddie Hubbard - Gleam (1975) 2CD, 2012, Wounded Bird Records[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23736.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Papik & Laura Lanzillo - La Gatta (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23543.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Vintage Jazz Ballads: Timeless Romantic Standards (2025) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22156.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Chris Connor - Chris Connor (1956) 1991, Atlantic [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21217.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Clark Terry And His Orchestra - Featuring Paul Gonsalves (1959) 2001, Storyville
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20699.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Jeff Libman - Feet Off the Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20696.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Steve Blayer - Vermont Wanderer (1996) Ermatell Records[FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20364.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Eileen Sharkey - Lessons Of Love (2000) Self-Released [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19775.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Brian Simpson - Midnight Groove (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19774.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Charles Rouse - Two Is One (1974) 1992, Strata-East [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19756.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Joe Newman - Quintet At Count Basie's (1961) 2005, Verve Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18828.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Beegie Adair - The Great American Songbook (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18822.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Dizzy Gillespie - Jambo Caribe (1964) 1998, Verve Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17564.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Boney James - Morning Sax (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17562.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Dee Alexander - Songs My Mother Loves (2014) Blujazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17295.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Dianne Reeves - That Day... (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17089.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Joe Pass - For Django (1964) 1998, BGO Records [FLAC|Lossless|tracks + .cue] <Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16870.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Jazz Funk Soul - Simpatico (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz , J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16806.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Shelly Manne & His Men - Swinging Sounds, Vol.4 (1956) 1996, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16779.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Carl Cox - Philly Strut (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16687.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Konstantin Klashtorni - Summer Favorites (2025) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16653.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Lemek - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16652.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Lemek - Boundless (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E179832C800882E529781A110CA90E497FD337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811026   (16650) от 07.08.2025
-
-Love Suggestions - Chilly Summertime (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Life Is Love (4:44)
-02.  It's Our Time (5:46)
-03.  What Makes You Beautiful (4:37)
-04.  Clarity (4:36)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5FC65A4B8DE5840ED2E93F318240D6AB95B253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811031   (16646) от 07.08.2025
-
-Mark Winkler - Hold On (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hold On (5:13)
-02.  A Little Taste (4:17)
-03.  If I Were a Bell (3:54)
-04.  Cat Women on the Moon (4:11)(   Читать дальше...   )Жанр: Lounge, Smooth Jazz, Contemporary JazzПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BB3A76229C7B62FF4DCC4AF5592C873ACCE4AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811037   (16641) от 07.08.2025
-
-Will Sumner - Rivers (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  West of Five (4:06)
-02.  Dawn Patrol (4:10)
-03.  Riptides (3:53)
-04.  Rad Pack (3:35)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE339879039AE4D268E3B3B1F0F5A89E5491DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799515   (16527) от 28.05.2025
-
-Duke Ellington - Ellington Uptown / The Liberian Suite / Masterpieces By Ellington (1947 - 1952) 2CD, 2018, Poll Winners Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mood Indigo [15:32]
-02. Sophisticacted Lady [11:33]
-03. The Tattooed Bride [11:48]
-04. Solitude [8:30](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56146571442DF973359DD15FFB7F893CAA947851
 ```
 
 https://mybot314.ru/tekegram_catalog/

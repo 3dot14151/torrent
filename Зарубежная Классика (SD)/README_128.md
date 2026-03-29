@@ -1,3 +1,81 @@
+###  Публикация: 1807340   (11081) от 18.07.2025
+
+Шейн / Shane (1953) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сценарий основан на одноимённом романе Джека Шефера (1949)... Джо и Мэрион Старретт вместе с сыном борются за выживание на своём ранчо в суровом приграничном городке. Однажды к ним приезжает всадник Шейн и просит воды для себя и своей лошади. Через некоторое время он уже помогает семье защищать ранчо от злодея Райкера, захватывающего земли под пастбища для скота... (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: драма, вестернРежиссер: Джордж Стивенс ст.Актеры: Алан Лэдд, Джин Артур, Ван Хефлин, Брендон Де Уайлд, Джек Пэланс, Бен Джонсон, Эдгар Бьюкенен, Эмиль Мейер, Элиша Кук мл., Дуглас Спенсер, Джон Диркес, Эллен Корби, Пол МакВей, Джон Миллер, Эдит ЭвансонПеревод: авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: английские SDHПродолжительность: 01:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7354FA70A36236379CC24075D5C93F84AE6A530B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807768   (10507) от 24.07.2025
+
+Самая красивая женщина мира / La donna più bella del mondo (1955) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный фильм о счастливой истории любовной связи самой красивой женщины мира начала 20-го века, оперной певицы Лины Кавальери и русского князя Барятинского.Производство: Италия, Франция / G.E.S.I. Cinematografica, Sédif ProductionsЖанр: драма, мелодрама, комедияРежиссер: Роберт З. ЛеонардАктеры: Джина Лоллобриджида, Витторио Гассман, Роберт Алда, Анн Вернон, Тамара Леес, Джино Синимберги, Нанда Примавера, Энцо Бильотти, Марко Тулли, Рольф ТаснаПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, итальянскийСубтитры: Русские (Forced), итальянскиеПродолжительность: 01:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F063495E649A31D41A6E56202AD8976A68CFECB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809789   (9452) от 03.08.2025
+
+Человек из Кентукки / The Kentuckian (1955) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9452.jpg" />
+</div>
+
+
+###  Подробнее
+
+20-е года 19 века. Большой Эли Уэйкфилд и его сын Маленький Эли - закаленные искатели приключений. Для осуществления своей давней мечты - поселиться на границе Техаса, они отправляются в путешествие. Путь оказывается не прост, но сложнее всего бороться не с дикой природой, а с опасными людьми.Производство: США / Hecht-Lancaster ProductionsЖанр: драма, вестернРежиссер: Берт ЛанкастерАктеры: Берт Ланкастер, Дайян Фостер, Диана Линн, Джон МакИнтайр, Уна Меркел, Джон Кэрредин, Джон Лител, Риз Уильямс, Эдвард Норрис, Уолтер МэттауПеревод: Двуголосый профессиональный, авторскийЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8C135AC5F62555F151B7BE5633C188A37EFB0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988492   (9302) от 05.08.2025
 
 Конец агента W4C (при содействии собаки пана Фоустки) / Konec agenta W4C prostrednictvim psa pana Foustky (1967) [H.264/HDTV 1080i]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9302.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9157.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8792.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8169.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7354.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7157.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6716.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6662.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5898.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4798.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3368.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3215.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3208.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3175.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3057.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2643.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2519.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2074.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1388.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1220.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1169.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1000.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_574.jpg" />
 </div>
 
 
@@ -597,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBE6F6737038E968AE2CD643F50939D58890F199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820655   (328) от 28.09.2025
-
-Алая женщина / La femme ecarlate (1969) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ева и Жюльен жили в Ницце и любили друг друга, по крайней мере так думала сама молодая девушка Ева. Но Жюльен предаёт её, и кроме того все её деньги потеряны. Ева решает убить предателя и после покончить с собой. А пока она даёт себе одну неделю и отправляется в Париж, чтобы прожить это время прекрасно и проститься со всем — с миром, людьми, Парижем, жизнью, а потом (   Читать дальше...   )Производство: Франция, Италия / Les Films de l'Epée, Les Films de la Boétie, Produzioni Europee Associati (PEA)Жанр: комедияРежиссер: Жан ВалерАктеры: Моника Витти, Морис Роне, Робер Оссейн, Клаудио Брук, Альбер Симоно, Люсьен Рембур, Моник Мелинан, Симона Бах, Робер Роллис, Сабина СунПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, испанский, французскийСубтитры: ОтсутствуютПродолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C1536342DAA78D5356A3D063DFA158CB5A0C7E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820905   (21) от 29.09.2025
-
-Саади / Saadia (1953) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой врач Хенрик, потерявший возлюбленную во время войны, приезжает работать в Марокко. Здесь он познакомился и подружился с принцем Си Лахссеном. Однажды, объезжая окрестные поселения со своим другом, Хендрик спасает жизнь прекрасной девушке Саади…Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Драма, ПриключенияРежиссер: Альберт ЛевинАктеры: Корнел Уайлд, Мел Феррер, Рита Гэм, Мишель Симон, Сирил Кьюсак, Ванда Рота, Марсель Понсен, Энтони Марлоу, Элен Валье, Махюб Бен БрахимПеревод: Одноголосый любительский (Andi999)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C69884AA58C9943DF2B2F61BF2EA6A32EE7809C
 ```
 
 https://mybot314.ru/tekegram_catalog/

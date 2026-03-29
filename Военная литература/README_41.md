@@ -1,3 +1,30 @@
+###  Публикация: 1172441   (392830) от 08.10.2017
+
+Сергей Жевалов | Анти-Суворов. «Ледокол» опровергнут! (2016) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_392830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фальсификатор-ревизионист от истории В. Суворов-Резун вслед за Геббельсом заявил, что Германия 22 июня 1941 года совершила не вероломное, без объявления войны, нападение на Советский Союз, а… «превентивный» удар.
+Автор, используя архивные материалы, воспоминания советских, германских, английских и американских участников Второй мировой войны, работы ведущих историков (   Читать дальше...   )Жанр: Военная история, Исторические исследованияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F23FBBA760927E019CBD419F3DBB03C5D64499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569971   (391738) от 03.11.2012
 
 Д.Дегтев, Ю.Борисов, Д.Зубов | "Ишак" против мессера. Испытание войной в небе Испании. 1936-1939 [2012] [PDF]
@@ -6,7 +33,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391738.jpg" />
+  <img src="Z:/picture/008/save_picture_391738.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391629.jpg" />
+  <img src="Z:/picture/008/save_picture_391629.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390806.jpg" />
+  <img src="Z:/picture/008/save_picture_390806.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390521.jpg" />
+  <img src="Z:/picture/008/save_picture_390521.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389291.jpg" />
+  <img src="Z:/picture/008/save_picture_389291.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387481.jpg" />
+  <img src="Z:/picture/008/save_picture_387481.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386962.jpg" />
+  <img src="Z:/picture/008/save_picture_386962.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385316.jpg" />
+  <img src="Z:/picture/008/save_picture_385316.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384836.jpg" />
+  <img src="Z:/picture/008/save_picture_384836.jpg" />
 </div>
 
 
@@ -242,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384656.jpg" />
+  <img src="Z:/picture/008/save_picture_384656.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384476.jpg" />
+  <img src="Z:/picture/008/save_picture_384476.jpg" />
 </div>
 
 
@@ -295,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383385.jpg" />
+  <img src="Z:/picture/008/save_picture_383385.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383058.jpg" />
+  <img src="Z:/picture/008/save_picture_383058.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380996.jpg" />
+  <img src="Z:/picture/008/save_picture_380996.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380940.jpg" />
+  <img src="Z:/picture/008/save_picture_380940.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380418.jpg" />
+  <img src="Z:/picture/008/save_picture_380418.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380321.jpg" />
+  <img src="Z:/picture/008/save_picture_380321.jpg" />
 </div>
 
 
@@ -458,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379468.jpg" />
+  <img src="Z:/picture/008/save_picture_379468.jpg" />
 </div>
 
 
@@ -484,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379463.jpg" />
+  <img src="Z:/picture/008/save_picture_379463.jpg" />
 </div>
 
 
@@ -510,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379417.jpg" />
+  <img src="Z:/picture/008/save_picture_379417.jpg" />
 </div>
 
 
@@ -537,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379408.jpg" />
+  <img src="Z:/picture/008/save_picture_379408.jpg" />
 </div>
 
 
@@ -563,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379275.jpg" />
+  <img src="Z:/picture/008/save_picture_379275.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378151.jpg" />
+  <img src="Z:/picture/008/save_picture_378151.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375775.jpg" />
+  <img src="Z:/picture/008/save_picture_375775.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374264.jpg" />
+  <img src="Z:/picture/008/save_picture_374264.jpg" />
 </div>
 
 
@@ -653,33 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F01F6E74DE391855BA16DCC1A329123198E053BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176079   (374226) от 20.10.2017
-
-Алексей Пишенков | Последний бой. Кто освободил Прагу? (2017) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374226.jpg" />
-</div>
-
-
-###  Подробнее
-
-К сожалению, история Второй мировой войны является излюбленной темой для самых разных спекуляций в угоду различным политическим интересам. Особенно этим любят заниматься наши бывшие союзники по Варшавскому договору.
-Бои 4–11 мая 1945 г. в Праге, последней европейской столице, находившейся в руках гитлеровских войск, как раз являются одним из подобных случаев – до (   Читать дальше...   )Жанр: Военная историяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF24F4020C3E6852EDD19D21F07EEF7C4F65DD02
 ```
 
 https://mybot314.ru/tekegram_catalog/

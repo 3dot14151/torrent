@@ -1,3 +1,133 @@
+###  Публикация: 1028232   (692681) от 21.06.2016
+
+Shadow Defender 1.4.0.635 RePack by D!akov [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Defender – программа, аналогичная программе ShadowUser, позволяющей поставить систему в режим тени - Shadow mode, при котором невозможны ни удаление важной информации, ни атака вирусов. Данная утилита также обеспечивает защиту компьютера и конфиденциальности информации, предотвращает нежелательные и злонамеренные изменения в вашем компьютере, позволяет загружаться (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C850530E3F7D57F2F3173E5078BDEC5597393897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027994   (692678) от 21.06.2016
+
+CoolUtils Total Audio Converter 5.2.0.148 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двупанельного (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF90956F6A33235DEAD432A21DAB10CD57235CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028131   (692676) от 21.06.2016
+
+TSR Watermark Image Software Pro 3.5.6.1 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для нанесения так называемых "водяных знаков" на фото и иные изображения. Программа позволяет использовать в качестве такого знака как текст, так и графику. Водяной знак может быть настроен - пользователь волен выбрать цвет, уровень прозрачности, расположение и его размер (в процентах). Поддерживается программой изменения размера итогового изображения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A4B0AFE24478BB58CAF13CBC1A542509DB8433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028099   (692675) от 21.06.2016
+
+AnyMP4 PDF Converter Ultimate 3.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692675.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyMP4 PDF Converter - это мощная программа, которая поможет вам конвертировать PDF файлы в Word, Excel, текстовые файлы, изображения (JPEG, PNG, GIF, BMP, PCX, TGA, TIFF), в формат электронных книг (ePub) и формат HTML. Программа поддерживает режимы пакетного и частичного преобразования, имеет приятный и понятный интерфейс.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54EE863F3789A66D6B1153E9BA80B667A6C2C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028239   (692671) от 21.06.2016
+
+CoolUtils Total Audio Converter 5.2.0.148 RePack by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двупанельного (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCD8403AABCF1CCED20A00D95FEBF51B048CE23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028187   (692584) от 21.06.2016
 
 CoolUtils Total Vectorize 1.0.0 Portable by irokkezz [Multi/Ru]
@@ -6,7 +136,7 @@ CoolUtils Total Vectorize 1.0.0 Portable by irokkezz [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692584.jpg" />
+  <img src="Z:/picture/008/save_picture_692584.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ CCleaner 5.19.5633 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692583.jpg" />
+  <img src="Z:/picture/008/save_picture_692583.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ CoolUtils Total Mail Converter 5.1.164 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692582.jpg" />
+  <img src="Z:/picture/008/save_picture_692582.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ Mumble 1.2.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692571.jpg" />
+  <img src="Z:/picture/008/save_picture_692571.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ CCleaner 5.19.5633 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692567.jpg" />
+  <img src="Z:/picture/008/save_picture_692567.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ CoolUtils Total CSV Converter 2.1.153 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692493.jpg" />
+  <img src="Z:/picture/008/save_picture_692493.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ Ashampoo WinOptimizer 14.00.01 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692489.jpg" />
+  <img src="Z:/picture/008/save_picture_692489.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ DesktopSnowOK 3.03 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692485.jpg" />
+  <img src="Z:/picture/008/save_picture_692485.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ Mandelbulb 3D 1.91 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692483.jpg" />
+  <img src="Z:/picture/008/save_picture_692483.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ One Commander 3.4.41.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692397.jpg" />
+  <img src="Z:/picture/008/save_picture_692397.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ SeaMonkey 2.53.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692395.jpg" />
+  <img src="Z:/picture/008/save_picture_692395.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ K-Lite Codec Pack Update 16.8.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692394.jpg" />
+  <img src="Z:/picture/008/save_picture_692394.jpg" />
 </div>
 
 
@@ -310,6 +440,33 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534737   (692390) от 03.03.2022
+
+Mirillis Action! 4.26.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_692390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для записи игр «Action!» — это множество полезных инструментов и функций, которые позволяют записывать игры как никогда легко и просто. Благодаря наглядному интерфейсу нужная функция находится мгновенно, а загрузить записанные игры на популярные видеопорталы можно за пару щелчков мыши.
+Программа для записи игр «Action!» не требовательна к компьютеру: передовой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F57CD64135AFFBC091F6012184624D109BC063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534678   (692389) от 03.03.2022
 
 digiKam 7.6.0 [Multi/Ru]
@@ -318,7 +475,7 @@ digiKam 7.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692389.jpg" />
+  <img src="Z:/picture/008/save_picture_692389.jpg" />
 </div>
 
 
@@ -344,7 +501,7 @@ Opera GX 84.0.4316.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692388.jpg" />
+  <img src="Z:/picture/008/save_picture_692388.jpg" />
 </div>
 
 
@@ -372,7 +529,7 @@ WifiChannelMonitor 1.42 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692374.jpg" />
+  <img src="Z:/picture/008/save_picture_692374.jpg" />
 </div>
 
 
@@ -398,7 +555,7 @@ Opera Developer 40.0.2267.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692372.jpg" />
+  <img src="Z:/picture/008/save_picture_692372.jpg" />
 </div>
 
 
@@ -424,7 +581,7 @@ FastStone Photo Resizer 3.6 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692370.jpg" />
+  <img src="Z:/picture/008/save_picture_692370.jpg" />
 </div>
 
 
@@ -450,7 +607,7 @@ MediaHuman Audio Converter 1.9.6.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692364.jpg" />
+  <img src="Z:/picture/008/save_picture_692364.jpg" />
 </div>
 
 
@@ -476,7 +633,7 @@ Skype 8.81.0.268 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692282.jpg" />
+  <img src="Z:/picture/008/save_picture_692282.jpg" />
 </div>
 
 
@@ -502,7 +659,7 @@ OBS Studio 27.2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692272.jpg" />
+  <img src="Z:/picture/008/save_picture_692272.jpg" />
 </div>
 
 
@@ -515,163 +672,6 @@ OBS Студия - бесплатное программное обеспече�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0007C27CB3A3F0CCA377AD0555F93F78172AFD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028126   (692255) от 21.06.2016
-
-AutoPlay Menu Builder 8.0 build 2450 RePack (& Portable) by TryRooM [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощная программа для создания автозапуска на ваши CD-DVD носители. Изначально, после запуска, можно немного растеряться, так как функций перед нами многовато, но это только плюс, так как вы сможете все детально настроить, скачать AutoPlay Menu Builder можно ниже.
-Если с фантазией плохо, можно воспользоваться готовыми шаблонами и подкорректировать их под себя. Вы (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1321BD2B7F7BAF20C6022577AAFD52610160C97B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028105   (692254) от 21.06.2016
-
-Auslogics BoostSpeed 9.0.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550EC7117D9567755AD3CD894BAF4F9DD2650603
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028059   (692252) от 21.06.2016
-
-StartIsBack++ 1.3 RePack by D!akov [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692252.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartIsBack++ возвращает в Windows 10 полнофункциональную кнопку запуска меню Пуск, такую же как и в Windows 7. Восстанавливает оригинальное стартовое меню Windows 7 со всеми его возможностями: поиск, перетащить, вставить, недавно использованные приложения. Можно изменить внешний вид меню Пуск, в том числе выбрать другую иконку кнопки "Пуск", изменить цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFEFF60A420A9C69577E9417E80528C2CCF3DF62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403323   (692233) от 19.08.2020
-
-Brave Browser 1.12.112 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищенный веб-браузер на базе Chromium, построенный на принципах блокировки раздражающих объявлений и предотвращения мониторинга активности со стороны навязчивых рекламных трекеров. Насладитесь более быстрым и приятным серфингом в Интернете без раздражающих рекламных модулей и навязчивых трекеров, используя привлекательный и интуитивный браузер Brave.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E180C79B3F9831DACAD106B8CDE4E31FE6A080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288901   (692208) от 13.03.2019
-
-Photo Supreme 4.3.3.2004 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Supreme - вспомогательная программа для владельцев цифровых фотокамер. Самый мощный и удобный каталогизатор изображений. С помощью Photo Supreme можно импортировать изображения с цифровых камер, просматривать, создавать каталоги, архивировать, редактировать, распечатывать, отсылать по электронной почте, создавать слайд-шоу, публиковать изображения в Интернете, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7217F46CAB3034C0E8D9762C436FD5E5B1DED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403422   (692181) от 19.08.2020
-
-Brave Browser 1.12.114 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1704880BB316236ADD10E32232E08B8839921F0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,169 @@
+###  Публикация: 1078766   (297929) от 02.12.2016
+
+Джоаккино Россини - Севильский цирюльник / Gioachino Rossini - Il Barbiere di Siviglia (2005) BDRip (2 части) [H.264/720p] [IT]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_297929.jpg" />
+</div>
+
+
+###  Подробнее
+
+XVIII век, Севилья. Граф Альмавива влюблен в прекрасную Розину, которую неусыпно охраняет от чужих взглядов ее опекун - доктор Бартоло. Старик мечтает сам жениться на Розине - богатой наследнице. Цирюльник Фигаро, мастер на все руки (и парикмахер, и хирург, и ветеринар, и почтальон) готов помочь графу в его сердечных делах за определенную плату. Тем более, что Розина (   Читать дальше...   )Производство: Испания, Opus Arte, Teatro Real, Mediapro MMVЖанр: ОпераРежиссер: Анхель Луис Рамирес, Эмилио СахиАктеры: Хуан Диего Флорес, Бруно Пратико, Мария Байо, Пьетро Спаньоли, Руджеро Раймонди, Марко Монклоа, Сусана Гордон, Энрике Санчез Рамос, Антонио Ортега, Хосе Антонио СангиноСубтитры: Английские, немецкие, французские, испанскиеПродолжительность: 2 x ~ 01:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3945897EB397C8AD24D31F2AE9C235A33DF308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078468   (297662) от 02.12.2016
+
+Василий Шукшин - Рассказы Шукшина, 2 части (2015) SATRip  (Театр наций)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_297662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль по рассказам Василия Макаровича Шукшина "Стёпкина любовь", "Сапожки", "Микроскоп", "Игнаха приехал", "Беспалый", "Жена мужа в Париж провожала", "Срезал", "В воскресенье мать-старуха", "Стёпка".
+Зритель не увидит на сцене привычной инсценировки каждого рассказа. Никто (   Читать дальше...   )Производство: Россия, Театр нацийЖанр: СпектакльРежиссер: Алвис ХерманисАктеры: Евгений Миронов, Чулпан Хаматова, Юлия Свежакова, Юлия Пересильд, Наталья Ноздрина, Александр Гришин (I), Дмитрий Журавлев, Павел Акимкин, Александр НовинПродолжительность: 2 х ~ 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F64A909D1D5863CA8361A504878083D73534DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 731148   (297008) от 07.12.2013
+
+Смешная девчонка / Funny Girl (1968) BDRip [H.264/720p-LQ] [Hi10P]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_297008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Мюзикл, Драма, Мелодрама, Комедия, БиографияРежиссер: Уильям УайлерАктеры: Барбара Стрейзанд, Омар Шариф, Кэй Медфорд, Энн Френсис,Уолтер Пиджон, Ли Аллен,Мэй Куэстел,Джералд Мор,Фрэнк Фэйлен,Митти ЛоуренсПеревод: Дублированный, Профессиональный (многоголосый закадровый), Авторский (одноголосый закадровый)Язык субтитров: Русский (песни), Английский, Английский SDHФормат: MKVПродолжительность: 02:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862355E12EA354E38C66196A5275869D32AFB999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184467   (296941) от 19.11.2017
+
+Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296941.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Это 2я часть сборника. Смотрите слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
+061 Бейбит Корган - Сок-сок
+062 Mysterions - Неге ундемедин
+063 Дастан Оразбеков - Сезим(   Читать дальше...   )Жанр: PopПродолжительность: 03:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB81AC541393D0D626E66420C9DECE5AAAF8F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184757   (296750) от 19.11.2017
+
+Сборник клипов - Best Hits 80 от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296750.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
+058 Tina Turner - Simply The Best
+059 Sandra - Maria Magdalena
+060 Lisa Stansfield - All Around The World(   Читать дальше...   )Жанр: PopПродолжительность: 03:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF54D5903ED92CBD62018A2CE3F78EEBE8BC9C36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915191   (296684) от 19.11.2017
+
+AC/DC - Live at River Plate (2009/2011) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись грандиозного тура AC/DC «Black Ice World Tour», снятая 32 HD камерами в декабре 2009 года. 200 000 фанатов, собравшихся на три шоу в Буэнос Айресе, приветствовали группу после 13 лет отсутствия в Аргентине.01. Rock n Roll Train
+02. Hell Ain't a Bad Place to Be
+03. Back in Black
+04. Big Jack(   Читать дальше...   )Производство: США, Columbia RecordsЖанр: Hard RockРежиссер: David MalletПродолжительность: 01:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86EF71C25062ADEFAE472ED386C87285F9D2B1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961813   (296560) от 03.12.2015
 
 VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
@@ -6,7 +172,7 @@ VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296560.jpg" />
+  <img src="Z:/picture/008/save_picture_296560.jpg" />
 </div>
 
 
@@ -35,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295563.jpg" />
+  <img src="Z:/picture/008/save_picture_295563.jpg" />
 </div>
 
 
@@ -61,7 +227,7 @@ Queen - Live At The Rainbow '74 (2014) SD BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295330.jpg" />
+  <img src="Z:/picture/008/save_picture_295330.jpg" />
 </div>
 
 
@@ -90,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295195.jpg" />
+  <img src="Z:/picture/008/save_picture_295195.jpg" />
 </div>
 
 
@@ -117,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295119.jpg" />
+  <img src="Z:/picture/008/save_picture_295119.jpg" />
 </div>
 
 
@@ -146,7 +312,7 @@ Dream Theater - Live At Luna Park (2013) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294987.jpg" />
+  <img src="Z:/picture/008/save_picture_294987.jpg" />
 </div>
 
 
@@ -175,7 +341,7 @@ Flo Rida - Collection Video Clip ( 2010 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294715.jpg" />
+  <img src="Z:/picture/008/save_picture_294715.jpg" />
 </div>
 
 
@@ -204,7 +370,7 @@ Celine Dion - Live at Tokyo Dome (2018) DVD5 [custom]
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294695.jpg" />
+  <img src="Z:/picture/008/save_picture_294695.jpg" />
 </div>
 
 
@@ -233,7 +399,7 @@ VA - Зимний марафон № 209: Дискотека с доставко
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294585.jpg" />
+  <img src="Z:/picture/008/save_picture_294585.jpg" />
 </div>
 
 
@@ -262,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294480.jpg" />
+  <img src="Z:/picture/008/save_picture_294480.jpg" />
 </div>
 
 
@@ -288,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293895.jpg" />
+  <img src="Z:/picture/008/save_picture_293895.jpg" />
 </div>
 
 
@@ -314,7 +480,7 @@ Sting - 25 Years. Rough, Raw & Unreleased: Live at Irving Plaza  (2011) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293737.jpg" />
+  <img src="Z:/picture/008/save_picture_293737.jpg" />
 </div>
 
 
@@ -343,7 +509,7 @@ P J Harvey - On Tour Please Leave Quietly (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293506.jpg" />
+  <img src="Z:/picture/008/save_picture_293506.jpg" />
 </div>
 
 
@@ -372,7 +538,7 @@ Tom Waits "Burma Shave" (2006) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293155.jpg" />
+  <img src="Z:/picture/008/save_picture_293155.jpg" />
 </div>
 
 
@@ -401,7 +567,7 @@ Rihanna feat. Jay-Z - Umbrella (2007) 540p HDTV
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293122.jpg" />
+  <img src="Z:/picture/008/save_picture_293122.jpg" />
 </div>
 
 
@@ -427,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292872.jpg" />
+  <img src="Z:/picture/008/save_picture_292872.jpg" />
 </div>
 
 
@@ -456,7 +622,7 @@ Pitbull - (Collection Video Clip) (2011 - 2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292758.jpg" />
+  <img src="Z:/picture/008/save_picture_292758.jpg" />
 </div>
 
 
@@ -485,7 +651,7 @@ Iron Maiden - Death On The Road (2006) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292751.jpg" />
+  <img src="Z:/picture/008/save_picture_292751.jpg" />
 </div>
 
 
@@ -517,7 +683,7 @@ Ageless rock (2015) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292639.jpg" />
+  <img src="Z:/picture/008/save_picture_292639.jpg" />
 </div>
 
 
@@ -546,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291372.jpg" />
+  <img src="Z:/picture/008/save_picture_291372.jpg" />
 </div>
 
 
@@ -557,172 +723,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:928B53A9FD97504FD2742CA3097D268C4BEA9C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185549   (291230) от 22.11.2017
-
-David Guetta feat. Rihanna - Who's That Chick (2010) 540p HDTV
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный видеоклип David Guetta feat. Rihanna - Who's That Chick.Жанр: Музыкальный видеоклип.Субтитры: отсутствуютПродолжительность: 00:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F155C8F39B492685A10C0B18F91E85D6C473931
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897000   (290894) от 22.11.2017
-
-Дмитрий Хворостовский. Большой праздничный концерт - Песни Великой Победы (2015) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самые известные песни военных лет к празднованию Великой Победы исполняет всемирно известный русский баритон Дмитрий Хворостовский. Концерт организован ВДНХ при поддержке правительства Москвы.01. Вот солдаты идут
-02. Минуты тишины
-03. Дороги
-04. Темная ночь(   Читать дальше...   )Производство: ВГТРКЖанр: Музыка, КонцертРежиссер: ВГТРКАктеры: Дмитрий ХворостовскийПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8DA2139FC1BF6A638C428A2293B859154CD57DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962822   (290747) от 06.12.2015
-
-Celtic Woman (2004) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290747.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	–Chloу Agnew "Last Rose Of Summer" (Intro)/"Walking In The Air"	4:22
-2	–Meav Ni Mhaolchatha  "Danny Boy" (A Cappella)  3:26
-(Choir – Aontas Choral Group)
-3	–Mairead Nesbitt	"The Butterfly" 3:02(   Читать дальше...   )Жанр: Celtic, Folk, New Age, CrossoverПеревод: ОтсутствуетЯзык субтитров: English, Francais, Deutsch, Espanol, Italiano, Portugues, NederlandsПродолжительность: 01:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F6EE0BF0D80F73EE7256CD7924053C11EF40704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962865   (290605) от 06.12.2015
-
-Большой праздничный концерт в Кремле: "Триколор ТВ" — 10 лет (05.12.2015) HDTVRip [720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Олешко, ведущий Первого канала: "В юбилейные дни принято дарить особые подарки, и потому получать удивительные, творческие подарки от народных артистов особенно приятно".
-Всего за 10 лет работы зрительская аудитория спутникового оператора "Триколор ТВ" достигла 11,6 миллионов российских семей, а сам оператор по праву получил звание народного. (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: КонцертПродолжительность: 01:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42991DA03C8BF010D574FA1DB6F5AEEF4F833184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880068   (290553) от 06.12.2015
-
-Девичник club (2014) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Россия, МДТ имени А.С.Пушкина, кинокомпания "Вигорос"Жанр: КомедияРежиссер: Надежда АракчееваАктеры: Вера Алентова, Мария Аронова, Лариса Голубкина, Борис Дьяченко, Екатерина СибиряковаПродолжительность: 02:21:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA80F3A0F2B1B2A4129CD875BCAC0ABDD3D47904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185718   (289517) от 23.11.2017
-
-The Jeff Healey Band - Live At Montreux 1999 (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джефф со своей группой несколько раз выступал на этом фестивале... Это один из его концертов,сыгранный в далеком 1999-м,сделанный позже на DVD. В возрасте одного года у Джеффа Хили обнаружили редкую болезнь - рак сетчатки. Несмотря на слепоту, Хили самостоятельно выучился играть на гитаре и трубе и со времени превратился в одного из самых известных и популярных гитаристов (   Читать дальше...   )01. My Little Girl
-02. Stop Breakin' Down
-03. Third Degree
-04. I Think I Love You Too Much(   Читать дальше...   )Производство: Швейцария, Montreux Jazz FestivalЖанр: Блюз-рокСубтитры: отсутствуютПродолжительность: 01:23:13 + 00:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6671621B6FD7D6973FD4031F7E45C5A5D2190DCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

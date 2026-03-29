@@ -1,3 +1,32 @@
+###  Публикация: 1184082   (301500) от 17.11.2017
+
+Надежда Бережная | В Бога веровать хочу: духовные стихи для детей (2009) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301500.jpg" />
+</div>
+
+
+###  Подробнее
+
+В наше время мало издаётся православных стихов для детей. В стихах Надежды Бережной выражена главная мысль - с малых лет человеку необходимо жить с Богом, следовать во всех своих делах и поступках Заповедям Божиим.
+
+«Бог дитя на руки взял -
+И Апостолам сказал,(   Читать дальше...   )Жанр: Православие, ПоэзияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37AEDB4845F79A467687EF022C617F9031A91A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961312   (301422) от 01.12.2015
 
 Геннадий Аксенов | Бажоный [Повесть] (1995) [FB2]
@@ -6,7 +35,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301422.jpg" />
+  <img src="Z:/picture/008/save_picture_301422.jpg" />
 </div>
 
 
@@ -33,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301415.jpg" />
+  <img src="Z:/picture/008/save_picture_301415.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300754.jpg" />
+  <img src="Z:/picture/008/save_picture_300754.jpg" />
 </div>
 
 
@@ -86,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300615.jpg" />
+  <img src="Z:/picture/008/save_picture_300615.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300537.jpg" />
+  <img src="Z:/picture/008/save_picture_300537.jpg" />
 </div>
 
 
@@ -138,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300470.jpg" />
+  <img src="Z:/picture/008/save_picture_300470.jpg" />
 </div>
 
 
@@ -164,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300468.jpg" />
+  <img src="Z:/picture/008/save_picture_300468.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300460.jpg" />
+  <img src="Z:/picture/008/save_picture_300460.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300343.jpg" />
+  <img src="Z:/picture/008/save_picture_300343.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300328.jpg" />
+  <img src="Z:/picture/008/save_picture_300328.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300320.jpg" />
+  <img src="Z:/picture/008/save_picture_300320.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300284.jpg" />
+  <img src="Z:/picture/008/save_picture_300284.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300241.jpg" />
+  <img src="Z:/picture/008/save_picture_300241.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300151.jpg" />
+  <img src="Z:/picture/008/save_picture_300151.jpg" />
 </div>
 
 
@@ -374,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299969.jpg" />
+  <img src="Z:/picture/008/save_picture_299969.jpg" />
 </div>
 
 
@@ -402,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299965.jpg" />
+  <img src="Z:/picture/008/save_picture_299965.jpg" />
 </div>
 
 
@@ -428,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299956.jpg" />
+  <img src="Z:/picture/008/save_picture_299956.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299955.jpg" />
+  <img src="Z:/picture/008/save_picture_299955.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299687.jpg" />
+  <img src="Z:/picture/008/save_picture_299687.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299627.jpg" />
+  <img src="Z:/picture/008/save_picture_299627.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299438.jpg" />
+  <img src="Z:/picture/008/save_picture_299438.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299437.jpg" />
+  <img src="Z:/picture/008/save_picture_299437.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299432.jpg" />
+  <img src="Z:/picture/008/save_picture_299432.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299131.jpg" />
+  <img src="Z:/picture/008/save_picture_299131.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299119.jpg" />
+  <img src="Z:/picture/008/save_picture_299119.jpg" />
 </div>
 
 
@@ -654,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A73D77C83A573857A61E157ACA595885BC093059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961729   (299078) от 02.12.2015
-
-А. Рахманова (сост.) | Военно-патриотическая хрестоматия для детей (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Патриота можно воспитать по-разному. Можно внушить беззаветную преданность к своему государству. Можно убедить, что главное - защищать родину с оружием в руках в случае беды. Можно доказать, что во имя интересов своей страны надо быть всегда готовым на жертвы и подвиги. А можно очень просто привить любовь к Отечеству: с детства читать сказки, былины, рассказы, романы (   Читать дальше...   )Жанр: Военно-историческая литература для детейФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97962C8AB40533BA262537FE8D87C2FFA2810677
 ```
 
 https://mybot314.ru/tekegram_catalog/

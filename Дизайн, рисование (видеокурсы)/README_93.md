@@ -1,3 +1,30 @@
+###  Публикация: 1693138   (122082) от 19.01.2024
+
+Udemy, Canopy Games, Paul Caggegi | Illustrating with the Grease Pencil in Blender 2.92 (2021) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grease Pencil позволяет иллюстрировать (а также анимировать) непосредственно в 3D-интерфейсе Blender. Поначалу это может показаться странным, но создавать контент с помощью Grease Pencil просто и весело!
+В этом курсе Пол проведет вас от основ - настройки интерфейса и навигации, инструментов, использования кистей и раскрашивания - до завершенного проекта, который (   Читать дальше...   )Производство: Udemy, Canopy GamesЖанр: Иллюстрации, Grease PencilЯзык озвучки: АнглийскийПродолжительность: 05:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4596C13F591CD7F0C76C919EED6FE3F4202B8069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693133   (122059) от 19.01.2024
 
 Color school, Анна Давидян | Фотография в интерьере (2023) WEB-DL [AD] [RU]
@@ -6,7 +33,7 @@ Color school, Анна Давидян | Фотография в интерьер
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122059.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ lectoroom, Елена Базанова | Подсолнухи акварелью
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121881.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma с нуля �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121657.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Artilike, Жанна Губина | Акварельный видеокурс - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121565.jpg" />
 </div>
 
 
@@ -122,7 +149,7 @@ Enterclass, Анна Хопта | Белое на белом (2023) WEB-DL [AD] 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121534.jpg" />
 </div>
 
 
@@ -148,7 +175,7 @@ Udemy, Phil Ebiner | Affinity Photo Complete Guide to Photo Editing in Affinity 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120694.jpg" />
 </div>
 
 
@@ -177,7 +204,7 @@ Bazanova Art, Ольга Базанова | Практика художника 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120551.jpg" />
 </div>
 
 
@@ -205,7 +232,7 @@ Mircourse, Ольга Привалова | Художник-дизайнер и�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120533.jpg" />
 </div>
 
 
@@ -233,7 +260,7 @@ Bazanova Art, Ольга Базанова | Как начать писать м�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120514.jpg" />
 </div>
 
 
@@ -262,7 +289,7 @@ Artefacto school, Любовь Титова | Цветы и стеклянные
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120497.jpg" />
 </div>
 
 
@@ -290,7 +317,7 @@ Blender Market, Ducky 3D | Intro To Motion Graphics (Blender Course) (2023) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120401.jpg" />
 </div>
 
 
@@ -316,7 +343,7 @@ Udemy, Daren Perincic | 2024 Blender Beginner Course - Create Cinematic Scenes (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120207.jpg" />
 </div>
 
 
@@ -343,7 +370,7 @@ Solid Factory, Антон Ильин | SolidWorks. Базовый курс (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120204.jpg" />
 </div>
 
 
@@ -369,7 +396,7 @@ VideoSmile, Дмитрий Кузнецов | Супер Photoshop (2023) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119589.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ Gumroad, Eric Huang | 3D PBR Sci-Fi Corridor Tutorial For Game Production (2019)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117077.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Blender Material Nodes Master: Create Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116963.jpg" />
 </div>
 
 
@@ -451,7 +478,7 @@ Udemy, GameDev.tv Team, Stephen Woods | Geometry Nodes in Blender 4: Create Comp
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116962.jpg" />
 </div>
 
 
@@ -479,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116469.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ Jcenters | C разбега в синематик (2023) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116466.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116311.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116284.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ Gustavo Pezzi | 3D Computer Graphics Programming (2023) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116264.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ Raffo VFX, Patreon | Уроки с сайта Patreon по VFX в Blender (2024)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115948.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma - с нуля
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115647.jpg" />
 </div>
 
 
@@ -675,7 +702,7 @@ Skillbox, Андрей Миронов, Екатерина Воронина | И�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115146.jpg" />
 </div>
 
 
@@ -689,34 +716,6 @@ Skillbox, Андрей Миронов, Екатерина Воронина | И�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:076C50072FAC5B708478D854CB1CD268EBE78D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703480   (115129) от 29.02.2024
-
-Compositing Academy, Alex Hanneman | NK707: Deep Compositing in Nuke (2024) WEB-DL [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115129.jpg" />
-</div>
-
-
-###  Подробнее
-
-NK707: Глубокий композитинг в Nuke (NK707: Deep Compositing in Nuke)
-В Академии композитинга мы уделяем приоритетное внимание практическому опыту. Алекс, оттачивавший свои навыки в таких известных студиях, как Weta, ILM, Sony и MPC, привносит в курс реальные методы и идеи.
-На этом курсе вы познакомитесь с основами глубокого композитинга, будете использовать высококачественные (   Читать дальше...   )Производство: Compositing AcademyЖанр: Обучающие видеоматериалы с NukeЯзык озвучки: АнглийскийПродолжительность: 05:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F09E845F6B814731571CE62CB9AAEB6E25C4BAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

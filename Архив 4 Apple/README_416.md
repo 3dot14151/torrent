@@ -1,3 +1,107 @@
+###  Публикация: 1416573   (367349) от 16.10.2020
+
+Audirvana 3.5.41 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2020Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CBBC8FB7E1DB6EC1BAA197015BA228AA9997778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416610   (367250) от 16.10.2020
+
+Navicat Premium 15.0.22 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2020Разработчик: PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E90483881E84A5EA3E3D123276FDDD32A2EC30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176620   (367235) от 23.10.2017
+
+Ветреная река / Wind River (2016) WEB-DLRip [480p] iPod
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367235.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пустыне на территории индейской резервации «Ветреная река» егерь Кори Ламберт находит изувеченное тело молодой девушки. Опытный охотник с трагическим прошлым, он берется помочь в расследовании этого дела агенту ФБР Джейн Бэннер, которая оказывается в мире, полном загадок и насилия. Но смогут ли они противостоять зловещим силам этих мест, где сама природа пропитана (   Читать дальше...   )Производство: СШАЖанр: Боевик, триллер, криминал, детективРежиссер: Тейлор ШериданАктеры: Джереми Реннер, Элизабет Олсен, Джон Бернтал, Келси Эсбиль, Джулия Джонс, Тео Брионес, Апесанахкват, Грэм Грин, Танту Кардинал, Эрик ЛанжПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A1A5862FEAB14B0E02C5F1C7CE4620D2D4C467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416572   (367184) от 16.10.2020
+
+Native Instruments Kontakt 6 v6.4.0 Fixed [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_367184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Native InstrumentsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D41C3CAB5FDBB8EB1A88B772072E073745BFCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416637   (367070) от 16.10.2020
 
 Capture One 21 Pro Beta1 [Multi/Ru]
@@ -6,7 +110,7 @@ Capture One 21 Pro Beta1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367070.jpg" />
+  <img src="Z:/picture/008/save_picture_367070.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Framer Studio v74 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366869.jpg" />
+  <img src="Z:/picture/008/save_picture_366869.jpg" />
 </div>
 
 
@@ -62,7 +166,7 @@ iFinance 4.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366793.jpg" />
+  <img src="Z:/picture/008/save_picture_366793.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ Unibox 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366552.jpg" />
+  <img src="Z:/picture/008/save_picture_366552.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ Hands Off! 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366547.jpg" />
+  <img src="Z:/picture/008/save_picture_366547.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ Affinity Designer Beta 1.7.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366515.jpg" />
+  <img src="Z:/picture/008/save_picture_366515.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ EagleFiler 1.8.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366514.jpg" />
+  <img src="Z:/picture/008/save_picture_366514.jpg" />
 </div>
 
 
@@ -197,7 +301,7 @@ Librarian Pro 5 v5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366511.jpg" />
+  <img src="Z:/picture/008/save_picture_366511.jpg" />
 </div>
 
 
@@ -223,7 +327,7 @@ File Juicer 4.79 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366509.jpg" />
+  <img src="Z:/picture/008/save_picture_366509.jpg" />
 </div>
 
 
@@ -251,7 +355,7 @@ Optimage 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366507.jpg" />
+  <img src="Z:/picture/008/save_picture_366507.jpg" />
 </div>
 
 
@@ -277,7 +381,7 @@ NCH WavePad Mater 9.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366505.jpg" />
+  <img src="Z:/picture/008/save_picture_366505.jpg" />
 </div>
 
 
@@ -303,7 +407,7 @@ Smooze 1.7.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366503.jpg" />
+  <img src="Z:/picture/008/save_picture_366503.jpg" />
 </div>
 
 
@@ -329,7 +433,7 @@ Deckset 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366502.jpg" />
+  <img src="Z:/picture/008/save_picture_366502.jpg" />
 </div>
 
 
@@ -357,7 +461,7 @@ Tune Sweeper 4.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366501.jpg" />
+  <img src="Z:/picture/008/save_picture_366501.jpg" />
 </div>
 
 
@@ -383,7 +487,7 @@ EverWeb 3 v3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366500.jpg" />
+  <img src="Z:/picture/008/save_picture_366500.jpg" />
 </div>
 
 
@@ -411,7 +515,7 @@ RapidWeaver 8 v 8.3.0 (build 20799) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366499.jpg" />
+  <img src="Z:/picture/008/save_picture_366499.jpg" />
 </div>
 
 
@@ -439,7 +543,7 @@ Mocha Pro 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366414.jpg" />
+  <img src="Z:/picture/008/save_picture_366414.jpg" />
 </div>
 
 
@@ -467,7 +571,7 @@ Elmedia Player Pro 7.51(1825) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366385.jpg" />
+  <img src="Z:/picture/008/save_picture_366385.jpg" />
 </div>
 
 
@@ -495,7 +599,7 @@ BetterTouchTool 3 v3.202 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366384.jpg" />
+  <img src="Z:/picture/008/save_picture_366384.jpg" />
 </div>
 
 
@@ -521,7 +625,7 @@ Amadeus Pro 2.6.1 (2197) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366379.jpg" />
+  <img src="Z:/picture/008/save_picture_366379.jpg" />
 </div>
 
 
@@ -547,7 +651,7 @@ MacX Video Converter Pro 6.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366377.jpg" />
+  <img src="Z:/picture/008/save_picture_366377.jpg" />
 </div>
 
 
@@ -574,7 +678,7 @@ Artstudio Pro 2.2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366372.jpg" />
+  <img src="Z:/picture/008/save_picture_366372.jpg" />
 </div>
 
 
@@ -585,118 +689,6 @@ Artstudio Pro 2.2.11 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD44378E61167FF58290AC407F136D79C1B90100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327836   (366371) от 29.09.2019
-
-iSkysoft Video Converter Ultimate 11.5.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366371.jpg" />
-</div>
-
-
-###  Подробнее
-
-iSkysoft Converter  для Mac. Сделайте все это - конвертируйте, загружайте, редактируйте видео и записывайте. Копируйте, скачивайте, конвертируйте и записывайте в одном пакете. Converter предоставляет универсальное решение для управления мультимедиа. В дополнение к предоставлению всех функций iSkysoft Converter, он предлагает возможность копировать диск, создавать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2019Разработчик: iSkysoft StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD8275B137CD7F8DFDAF7A2B89FF8EBED824072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327760   (366369) от 29.09.2019
-
-Geekbench 5 v5.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
-Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
-
-Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2019Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48F72A4D436A13876666DAA154F41580CAA2BC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328115   (366368) от 29.09.2019
-
-Leaf 5.1.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Leaf интуитивно понятная читалка для RSS новостей
-Leaf является удивительным для чтения новостей для вашего Mac. Читайте, делитесь и пользуйтесь поиском новости на всех ваших любимых веб-сайтов.
-
-Leaf проще как по функциям, так и по внешнему виду. В читалке появилась поддержка  Feedly, так что теперь без проблем можно переключаться между Leaf, ReadKit и Reeder с синхронизацией (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2019Разработчик: Rocky Sand StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AD79A91736D388EB3DEB39DF5FF514108B4348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255254   (366364) от 17.10.2018
-
-WonderPen 1.5.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366364.jpg" />
-</div>
-
-
-###  Подробнее
-
-WonderPen - приложение для как для профессиональных, так и для писателей любителей.
-
-WonderPen - простой в использовании текстовый редактор с поддержкой Markdown с поддержкой полноэкранного режима. Документы могут быть экспортированы в качестве Image, PDF, HTML и т.д. WonderPen поддерживает автоматическое сохранение при редактировании, возможность добавления заметок (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2018Разработчик: Yingjie WuПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2927723DDE20FE9F11AE45F7030BADFCB80800D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

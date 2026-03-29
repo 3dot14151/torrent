@@ -1,3 +1,90 @@
+###  Публикация: 1807088   (65222) от 19.07.2025
+
+Юрий Сучков - Коллекция (1994-2025) [MP3|~245 Kbps (V0)] <Chanson, Post-Punk, Monolog>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Коллекция: 1994 - 2025. Total Time: 31 CD, 28:63:07:
+16 Albums. Дата выпуска: 1994 - 2020. Total Time: 16 CD, 18:55:52:
+1994 Гитара(   Читать дальше...   )Жанр: Chanson, Post-Punk, MonologПродолжительность: 31CD, 28:63:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09A2DD0D39C0A20D4B34088011ACDAE67E7BD6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728811   (53791) от 10.06.2024
+
+Игорь Тальков - Коллекция (2022) [MP3|320 Kbps] <Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник лучших композиций поэта и композитора Игоря Талькова. Многим сейчас не хватает такой настоящей поэзии в музыке, ироничной, умной, смысловой и лиричной. Всюду завалено всё пустой безликой и в большинстве бездарной попсой. Созданной для самолюбования и отупения молодёжи. Все треки взяты с фирменных CD изданий, без ремастеринга и всяких вмешательств. Оригинальное (   Читать дальше...   )01. Солнце уходит на запад
+02. Друзья-товарищи
+03. Летний дождь
+04. Звезда(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 04:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510F91A01C7FCEB7C819DEA01BC5A70FADCF7837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759966   (36968) от 17.11.2024
+
+VA - Да здравствуют музы! (2009) [MP3|320 Kbps] <Авторская песня>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Олег Митяев-Дорожные жалобы [00:02:51]
+02 - Марина Есипенко, Вениамин Смехов-Из Евгения Онегина [00:00:50]
+03 - Вениамин Смехов-Простите верные дубравы [00:01:00]
+04 - Марина Есипенко-Паж, или пятнадцатый год [00:01:37](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2DDFB0E622BA6DC860A6CD8FB1A1B5BD0A1F183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769705   (32639) от 29.12.2024
 
 VA - Новогодний Шансон (2024) [MP3|320 Kbps] <Chanson, Pop>
@@ -6,7 +93,7 @@ VA - Новогодний Шансон (2024) [MP3|320 Kbps] <Chanson, Pop>
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32639.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32473.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31772.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31531.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18241.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1174.jpg" />
 </div>
 
 

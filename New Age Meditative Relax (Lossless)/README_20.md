@@ -1,3 +1,32 @@
+###  Публикация: 1167467   (417319) от 20.09.2017
+
+Richard Evans - Breathe (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age, Solo Piano, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Reflection (7:17)
+ 02. The Road To Here (6:07)
+ 03. Rising (8:49)
+ 04. Meditation (6:41)(   Читать дальше...   )Жанр: New Age, Solo Piano, RelaxПродолжительность: 01:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EFE1B756A010D50F3C76A26E2F26A7198DBDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1251671   (415500) от 02.10.2018
 
 Sherry Finzer & Mark Holland - Somewhere New (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
@@ -6,7 +35,7 @@ Sherry Finzer & Mark Holland - Somewhere New (2018) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415500.jpg" />
+  <img src="Z:/picture/008/save_picture_415500.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Phil Thornton - Pure Crystal Bowls (2016) [FLAC|Lossless|tracks] <New Age, Medit
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414571.jpg" />
+  <img src="Z:/picture/008/save_picture_414571.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Medwyn Goodall - Moon Goddess 2 (2012) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414110.jpg" />
+  <img src="Z:/picture/008/save_picture_414110.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Cafe Del Mar - Classical (2013) [FLAC|Lossless|image + .cue] <Instrumental,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411200.jpg" />
+  <img src="Z:/picture/008/save_picture_411200.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Nature Sounds Nature Music - Zen One: Relaxing Vibes For Sleep & Yoga & Meditati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410835.jpg" />
+  <img src="Z:/picture/008/save_picture_410835.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Louis Landon - Healing Hearts 3 - Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409747.jpg" />
+  <img src="Z:/picture/008/save_picture_409747.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Abdulrahman Zaibak - The Current (Instrumental) (2017) [FLAC|Lossless|WEB-DL|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409313.jpg" />
+  <img src="Z:/picture/008/save_picture_409313.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Guido Negraszus - Secret Paradise (Cafe Chillout & Dream Lounge) [FLAC|Lossless|
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407908.jpg" />
+  <img src="Z:/picture/008/save_picture_407908.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Richard Evans - Seaside: Solo Piano (2008) [FLAC|Lossless|tracks] <New Age, Solo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403104.jpg" />
+  <img src="Z:/picture/008/save_picture_403104.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Brian Crain - Sienna (2003) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399533.jpg" />
+  <img src="Z:/picture/008/save_picture_399533.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Delerium - Music Box Opera (2012) [FLAC|Lossless]<New Age, Ambient, Chillout, Do
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396755.jpg" />
+  <img src="Z:/picture/005/save_picture_396755.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Roger Subirana - The Round Dimension (2017) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394842.jpg" />
+  <img src="Z:/picture/008/save_picture_394842.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Medwyn Goodall - Medicine Woman (The Lost Tracks) (2017) [FLAC|Lossless|tracks] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391149.jpg" />
+  <img src="Z:/picture/008/save_picture_391149.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Eshana - Kalpana (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Spiritual
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387755.jpg" />
+  <img src="Z:/picture/008/save_picture_387755.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Tantric Music Masters - Fertility Energy of Couple’s Yoga (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387414.jpg" />
+  <img src="Z:/picture/008/save_picture_387414.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Meditation Music Masters, Reiki Tribe - Erotic Side of Yoga (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387405.jpg" />
+  <img src="Z:/picture/008/save_picture_387405.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387288.jpg" />
+  <img src="Z:/picture/008/save_picture_387288.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ VA - Visions (1995) [FLAC|Lossless|tracks + .cue] <New Age,Instrumental,Jazz>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385551.jpg" />
+  <img src="Z:/picture/008/save_picture_385551.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ Age of Echoes - Into Eternity (2018) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385447.jpg" />
+  <img src="Z:/picture/008/save_picture_385447.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Junichi Kamiyama - The Best Musics for Overcoming Anxiety and the Stress Managem
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385347.jpg" />
+  <img src="Z:/picture/008/save_picture_385347.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Wychazel - Beneath an Autumn Moon (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385325.jpg" />
+  <img src="Z:/picture/008/save_picture_385325.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Peter Kater - Dancing On Water (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385250.jpg" />
+  <img src="Z:/picture/008/save_picture_385250.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Constance Demby - Sonic Immersion (1996) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381765.jpg" />
+  <img src="Z:/picture/008/save_picture_381765.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381764.jpg" />
+  <img src="Z:/picture/008/save_picture_381764.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381762.jpg" />
+  <img src="Z:/picture/008/save_picture_381762.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EABAFEE5B7AD9561BDA8B0F0FA4C03507C42668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253560   (381760) от 10.10.2018
-
-Constance Demby - Sunborne (1980) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Dawning (08:22)
-02.Darkness of Space (06:38)
-03.Lift Thine Eyes (09:14)
-04.Sunborne (14:58)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95830E67178A34019F0110B8DFB4904531335AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

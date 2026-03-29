@@ -1,3 +1,107 @@
+###  Публикация: 1433499   (57429) от 06.05.2024
+
+NG: Самые страшные стихийные бедствия: Торнадо / Ultimate Disaster: Tornado (2006) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя архивные кадры, компьютерную графику и мнения специалистов, серия фильмов канала National Geographic "Самые страшные стихийные бедствия" рассказывает о наиболее грозных силах природы - вулаканах, землетрясениях, цунами, торнадо. Каждая серия прослеживает их силу и последствия - от самых слабых до тех, которые могут привести к невиданной доныне (   Читать дальше...   )Производство: США, Новая Зеландия, Natural History New Zealand Ltd., National GeographicЖанр: Документальный, природа, катаклизмыРежиссер: Jeff SwimmerПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCE833179667AD783FC47A8087348D8F62F750A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316558   (56180) от 18.05.2024
+
+BBC: Луи Теру. Разговоры с анорексией / Talking to Anorexia (2019) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документалист Луи Теру пытается разобраться в сути анорексии, психического расстройства с самым высоким уровнем смертности. Луи посещает два крупнейших лондонских стационара для взрослых пациентов с расстройствами пищевого поведения, где он встречается с женщинами всех возрастов с разной степенью тяжести заболевания. Открывая для себя то, какую ужасающую власть имеет (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, исследованиеРежиссер: Эллена ВудУчастники: Луи Теру, Фрэнсис Коннан, Джеймс КеллиПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECA597D10659403C796076086128EDF214129C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1725615   (55457) от 25.05.2024
+
+NG: Расследования Авиакатастроф / Mayday / Air Crash Investigation (2024) WEBRip [H.264/720p] (сезон 24, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реконструкция реальных воздушных катастроф, интервью с авиационным специалистами и очевидцами происшествий.Производство: Канада / Cineflix Productions, National GeographicЖанр: документальный, история, катастрофыРежиссер: Тим Волочатюк, Марк Мэйнгай, Джордж Д’АматоУчастники: Джонатан Арис, Стивен Богарт, Джон Кокс, David и др.Перевод: Двухголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B831E6B6ADA84C599E57843A8818D528957452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689074   (55251) от 27.05.2024
+
+PBS. Экспедиция со Стивом Бакшоллом / Expedition with Steve Backshall (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) Pazl Voice
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал знакомит с британским натуралистом и исследователем Стивом Бакшоллом, который вместе со съемочной командой отправляется в самые удаленные и еще неизученные уголки планеты, чтобы бросить вызов своей удаче и навыкам выживания в дикой природе. Его путешествия охватывают весь земной шар: непролазные джунгли Южной Америки, заснеженные леса России, (   Читать дальше...   )Производство: Великобритания, True To Nature, UKTVЖанр: документальный, природа, приключения, путешествияРежиссер: Али МэйУчастники: Стив Бакшолл, Aldo Kane, Katy Fraser, Tamsin Gay, Anna Place, Кит Патридж, Nick Allinson, Libby Peter, Sarah McNair-Landry, Guillermo de AndaПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245D3DD0A400217516C91A62E32DCF38D089ECD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438824   (53809) от 10.06.2024
 
 Секс времён холодной войны / The XY factor: Sex in the Cold War (2002) TVRip
@@ -6,7 +110,7 @@
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53809.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ PBS. Величайшие природные памятники планеты /
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53265.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC: Планета Земля 3 / Planet Earth III (2023) BDRip [H.264/1080p] (
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53048.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51485.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51425.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51323.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Animal Planet & BBC: Сурикаты / The Meerkats (2008) BDRip [H.264/1080p]
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50624.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50558.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49658.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49582.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49045.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ BBC. Истоки жизни (Первая жизнь с Дэвидом Атте
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49033.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG: Пираты: Больше, чем легенда / Pirates: Behind the Lege
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47509.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG: Покорители океана / OceanXplorers (2024) WEB-DL [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45013.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ BBC: Конкорд. Гонка на сверхзвуковой скорости
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44906.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44249.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ Discovery: 11 сентября: когда башни упали / 9/11: After T
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43951.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43283.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40688.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39794.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39217.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38760.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F02542388FC80D3847020E276FACBEAD2F9B246A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759980   (37624) от 11.11.2024
-
-Похищение инопланетянами в Манхэттене / The Manhattan Alien Abduction (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) Flarrow Films
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37624.jpg" />
-</div>
-
-
-###  Подробнее
-
-В документальном сериале рассказывается удивительная история Линды Наполитано, жительницы Нью-Йорка, которая утверждает, что была похищена инопланетянами. 30 ноября 1989 года Наполитано, мать двоих детей и домохозяйка, сообщила о своём похищении. По её словам, она была поднята из окна своей квартиры на двенадцатом этаже в Нижнем Манхэттене и перенесена к Бруклинскому (   Читать дальше...   )Производство: США / NetflixЖанр: документальный, сверхъестественноеРежиссер: Вивьенн Перри, Дэниэл ВернонУчастники: Кэрол Рейни, Линда Наполитано, Питер Роббинс, Джонни Наполитано, Стив Наполитано, Розмари, Джон, Сара Лахлан, Тим Ахерн, Росс СэмбриджПеревод: Многоголосый профессиональный (Flarrow Films)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full), английские (Forced, Full, SDH)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACACBCE2E52C5598933643DE6E08CA6E432E687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758214   (37614) от 11.11.2024
-
-Говорит Зодиак / This Is the Zodiac Speaking (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) Red Head Sound
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37614.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом документальном сериале, посвящённом реальным преступлениям, семья, стремящаяся к раскрытию тайны, делится уликами и свидетельствами, касающимися главного подозреваемого в серии убийств, известных как «убийства Зодиака».Производство: США / Netflix, AMPLEЖанр: документальный, криминалРежиссер: Филип Лотт, Эри МаркУчастники: Дэвид Сивотер, Конни Сивотер, Дон Сивотер, Роберт Грейсмит, Дон Дистефано, Дж.С. Смит, Марлен Додж, Или Грин, Рита Уильямс, Дэрин Элворд, Мелоди Барджер, Ширли Леонард, Крис Чэмберс, Терри Пойсер, Том Войт, Сюзанна Райан, Элайджа Ван Зантен, Отем АйвиПеревод: Многоголосый профессиональный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские (SDH)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBD6117CC89E9B581D7724834888DBB0F4CBE07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727979   (37341) от 14.11.2024
-
-History Channel: Древние пришельцы / Ancient Aliens (2024) WEB-DL [H.264/1080p] (сезон 20, серии 1-20 из 20) Влад Дорф
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37341.jpg" />
-</div>
-
-
-###  Подробнее
-
-В телесериале рассказывается о различных аспектах теории палеоконтакта и высказываются предположения, что исторические тексты, археологические свидетельства и легенды народов мира содержат доказательства контактов человека с внеземными цивилизациями в прошлом.Производство: США / Prometheus Entertainment, A&E Television Networks, LLC., History ChannelЖанр: документальный, фантастика, историяРежиссер: Джон Леви, Кевин Барнс, Keith GuintoУчастники: Роберт Клотуорти, Джорджо А. Цукалос, Дэвид Чайлдресс, Уильям Генри, Джонатан Янг, Эрих фон Деникен, Джейсон Мартелл, Джордж Нури, Дэвид Уилкок, Andrew CollinsПеревод: Одноголосый любительский (Влад Дорф)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английскиеПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66C60804711713955713E4A3A11BB6A7CD11051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762163   (36293) от 24.11.2024
-
-NG: Конкистадоры: Взлет и падение / Conquistadors: The Rise and Fall (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Pazl Voice
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот документальный сериал проливает свет на суровую правду, окружающую драматическую волну экспансии Европы с 1492 года после высадки Колумба в Карибском море.Производство: США / Dash Pictures, NTM ProductionsЖанр: документальный, историяРежиссер: Джеймс Вули, Дэниэл ШарпАктеры: Кристиан КамаргоПеревод: Многоголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Full)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE503CDB620999CA9768D0DA2B42F01069D7A58
 ```
 
 https://mybot314.ru/tekegram_catalog/

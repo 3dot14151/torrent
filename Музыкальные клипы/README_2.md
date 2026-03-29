@@ -1,3 +1,87 @@
+###  Публикация: 605695   (995366) от 20.01.2013
+
+Dance Hits 90's - Retro Dance Party (2011) [H.264] DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка - EurodanceПродолжительность: vol.1: 02:50:21,
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FF8F00C7E5F8D13A629214B5961560C8F27A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606962   (994639) от 22.01.2013
+
+Лучшие клипы / The best videos of all time (Pop, Sexy) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angus and Julia Stone - Big Jet Plane
+02. Pussycat Dolls - Don't Cha
+03. Chica Bomb - Sexy
+04. Нюша - Воспоминание(   Читать дальше...   )Жанр: Музыка, Pop, Sexy, Dance, HouseПродолжительность: 01:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DC77AB62214043740DBE27A22A2796670D7E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607111   (994637) от 22.01.2013
+
+Лучшие клипы / The best videos of all time (Rock'n'roll) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Richard - Lucille
+02. Bill Haley And His Comets - Vive La Rock 'N' Roll
+03. AC DC - That's the Way I Wanna Rock N' Roll
+04. Britney Spears - I Love Rock 'N' Roll(   Читать дальше...   )Жанр: Музыка, Rock, Rock'n'rollПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85A64ECB7F1C1CCEF837049CBCBB0047FAE871E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608230   (994136) от 24.01.2013
 
 Armin van Buuren feat. Fiora - Waiting For The Night (2013) [H.264/1080p] WEBRip
@@ -6,7 +90,7 @@ Armin van Buuren feat. Fiora - Waiting For The Night (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994136.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ Lindsey Stirling and the Piano Guys - Mission Impossible (2013) [H.264/1080p] WE
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993983.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993278.jpg" />
 </div>
 
 
@@ -84,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993219.jpg" />
 </div>
 
 
@@ -111,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993218.jpg" />
 </div>
 
 
@@ -140,7 +224,7 @@ Becky G feat Will.I.Am - Problem [The Monster Remix] (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992790.jpg" />
 </div>
 
 
@@ -166,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991733.jpg" />
 </div>
 
 
@@ -195,7 +279,7 @@ David Guetta Feat. Taio Cruz & Ludacris - Little Bad Girl (2011) BDRip [h.264,10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991231.jpg" />
 </div>
 
 
@@ -221,7 +305,7 @@ Inna - Endless (2011) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991229.jpg" />
 </div>
 
 
@@ -247,7 +331,7 @@ Ke$ha / Kesha - C'Mon (2013) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991157.jpg" />
 </div>
 
 
@@ -273,7 +357,7 @@ Gotye ft. Kimbra - Somebody That I Used To Know (2011) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991153.jpg" />
 </div>
 
 
@@ -299,7 +383,7 @@ Linkin Park - Burn It Down (2012) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991112.jpg" />
 </div>
 
 
@@ -325,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990828.jpg" />
 </div>
 
 
@@ -354,7 +438,7 @@ Tom Boxer feat. Antonia - Shake It Mama (2011) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990343.jpg" />
 </div>
 
 
@@ -380,7 +464,7 @@ Avril Lavigne - What The Hell (2011) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990253.jpg" />
 </div>
 
 
@@ -406,7 +490,7 @@ Avril Lavigne - Alice (2010) BDRip [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990225.jpg" />
 </div>
 
 
@@ -432,7 +516,7 @@ Rihanna - Diamonds (2012) HDRemux [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990073.jpg" />
 </div>
 
 
@@ -458,7 +542,7 @@ BAZUKA - Stand Up (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989230.jpg" />
 </div>
 
 
@@ -484,7 +568,7 @@ Lindemann (2015-2019) WEB-DL [H.264/1080p-LQ] (12 видеоклипов)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988865.jpg" />
 </div>
 
 
@@ -513,7 +597,7 @@ Flo Rida - Whistle (2012) HDRemux [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987256.jpg" />
 </div>
 
 
@@ -539,7 +623,7 @@ Shakira ft. Dizzee Rascal  - Loca (2010) HDRemux [h.264,1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987098.jpg" />
 </div>
 
 
@@ -565,7 +649,7 @@ Shakira - Addicted To You (2012) HDRemux [h.264,1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987009.jpg" />
 </div>
 
 
@@ -591,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986984.jpg" />
 </div>
 
 
@@ -605,87 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39CF25D75032969F9286108527943B83C825430E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612440   (986705) от 01.02.2013
-
-Mylene Farmer - Je te dis tout (2013) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13827629989978522B80FE3F7363B34D6CE6E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355006   (985875) от 24.01.2020
-
-Сборник клипов - Свежий Русский Хит от ALEXnROCK часть 1 (2019) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985875.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые современные клипы. Обложка и блины для дисков в раздаче. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK00. Русский Хит — Вступление
-01. Ольга Бузова — Лайкер
-02. Макс Барских — Моя любовь
-03. Zivert — Beverly Hills(   Читать дальше...   )Жанр: PopПродолжительность: 05:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350CF6223E2502343BC3385F2920628AB7B9640B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971308   (985476) от 03.01.2016
-
-Звёздные войны: Музыкальное путешествие (видео) / Star Wars: A Musical Journey (2005) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иэн МакДайармид показывает клипы из 6 эпизодов легендарной фантастики компании «ЛукасАртс», сопровождённые музыкой Королевского филармонического оркестра и хора.Производство: СШАЖанр: МузыкаРежиссер: Типпи БушкинАктеры: Иен МакДермид (Ian McDiarmid)Перевод: ОтсутствуетПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A798FAA59BB73D9DCF4FB8C73DC60B63CFBD33
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1332274   (311679) от 21.10.2019
+
+Laura Sullivan - Paris Enjoue (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_311679.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. La vie en rose (Instrumental)	01:54
+2. La vie en rose (Solo Piano)	01:54
+3. Les Champs-Élysées (Instrumental)	02:20
+4. Les Champs-Élysées (Solo Piano)	02:20(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B5DA7086849D678C757935B0569332A0C64172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845447   (311027) от 28.11.2014
+
+Альфред Шнитке - Сказка странствий (музыка из к/ф) (2004) [FLAC|Lossless]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_311027.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 ноября исполнилось 80 лет со дня рождения Альфре́да Га́рриевича Шни́тке (нем. Alfred Schnittke; 1934—1998). Это имя советского-российского композитора, пожалуй самое известное за рубежом на сегодняшний день. Не ординарные взгляды  выдающегося музыканта-философа на всевозможные аспекты искусства ХХ столетия и искусства прошедших столетий, на исполнительскую (   Читать дальше...   )01. Под рождество (Из к/ф 'Сказка странствий', 1983)  (3:43)
+02. Сказка странствий (Из к/ф 'Сказка странствий', 1983)  (2:10)
+03. Вальс-раздолье (Из к/ф 'Сказка странствий', 1983)  (3:54)
+04. По радуге (Из к/ф 'Приключения Травки', 1976)  (1:46)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC5D49E151CECA6A3A3548A6E7DB854390D0412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584448   (310400) от 03.12.2012
 
 Ансамбль БЛАГОВЕСТ - Славянский глас (2012) [FLAC|Lossless]<Folklore>
@@ -6,7 +64,7 @@
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310400.jpg" />
+  <img src="Z:/picture/008/save_picture_310400.jpg" />
 </div>
 
 
@@ -41,7 +99,7 @@ Jeff Smart - Super Moon (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310209.jpg" />
+  <img src="Z:/picture/008/save_picture_310209.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ Wayne Gratz - Spring Rain / Piano and Rainfall (2005) [FLAC|tracks+.cue]<New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310196.jpg" />
+  <img src="Z:/picture/008/save_picture_310196.jpg" />
 </div>
 
 
@@ -99,7 +157,7 @@ Dori Freeman - Letters Never Read (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310088.jpg" />
+  <img src="Z:/picture/008/save_picture_310088.jpg" />
 </div>
 
 
@@ -128,7 +186,7 @@ Lee Ann Womack - The Lonely, The Lonesome & The Gone (2017) [FLAC|Lossless|track
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309958.jpg" />
+  <img src="Z:/picture/008/save_picture_309958.jpg" />
 </div>
 
 
@@ -157,7 +215,7 @@ David Arkenstone - Emotional Piano Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309561.jpg" />
+  <img src="Z:/picture/008/save_picture_309561.jpg" />
 </div>
 
 
@@ -186,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309452.jpg" />
+  <img src="Z:/picture/008/save_picture_309452.jpg" />
 </div>
 
 
@@ -215,7 +273,7 @@ Carolyn Southworth - By the Sea (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309289.jpg" />
+  <img src="Z:/picture/008/save_picture_309289.jpg" />
 </div>
 
 
@@ -244,7 +302,7 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308948.jpg" />
+  <img src="Z:/picture/008/save_picture_308948.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308863.jpg" />
+  <img src="Z:/picture/008/save_picture_308863.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019)
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308806.jpg" />
+  <img src="Z:/picture/008/save_picture_308806.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308625.jpg" />
+  <img src="Z:/picture/008/save_picture_308625.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Olga Stankevich (Ольга Станкевич) - Alone with the City (2014) [FL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307772.jpg" />
+  <img src="Z:/picture/008/save_picture_307772.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Kathryn Louderback - Christmas Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307703.jpg" />
+  <img src="Z:/picture/008/save_picture_307703.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307688.jpg" />
+  <img src="Z:/picture/008/save_picture_307688.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307677.jpg" />
+  <img src="Z:/picture/008/save_picture_307677.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307650.jpg" />
+  <img src="Z:/picture/008/save_picture_307650.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307615.jpg" />
+  <img src="Z:/picture/008/save_picture_307615.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ The O'Neill Brothers - Calming Piano for Comfort (2019) [FLAC|Lossless|WEB-DL|tr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307496.jpg" />
+  <img src="Z:/picture/008/save_picture_307496.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307488.jpg" />
+  <img src="Z:/picture/008/save_picture_307488.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Hans Zimmer & Lorne Balfe - The Journey: Champions (Original Soundtrack) (2018) 
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307337.jpg" />
+  <img src="Z:/picture/008/save_picture_307337.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307294.jpg" />
+  <img src="Z:/picture/008/save_picture_307294.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307293.jpg" />
+  <img src="Z:/picture/008/save_picture_307293.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307291.jpg" />
+  <img src="Z:/picture/008/save_picture_307291.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0C4CDC835E86E32D38618BD2079B4147E3A3943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077001   (306787) от 28.11.2016
-
-Kris Kristofferson - Live At The Big Sur Folk Festival (2016) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306787.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. If You Don't Like Hank Williams (2:09)
- 2. The Law Is For Protection Of The People (3:28)
- 3. Band Introduction (1:28)
- 4. The Pilgrim, Chapter 33 (3:27)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D680430182903BD13C16A335AF033929829815EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077171   (306601) от 28.11.2016
-
-Harlow Monroe - Piano Christmas (2016) [MP3|320 Kbps] <Instrumental, Jazz, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All I Want for Christmas (02:51)
-02.  Baby, It's Cold Outside (03:29)
-03.  Breath of Heaven (04:41)
-04. Christmas Time Is Here (02:24)(   Читать дальше...   )Жанр: Instrumental, Jazz, Easy ListeningПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BD4A63FEE01471B573143A2AE0C759144CC26F
 ```
 
 https://mybot314.ru/tekegram_catalog/

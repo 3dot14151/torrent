@@ -1,3 +1,140 @@
+###  Публикация: 1545421   (614795) от 19.04.2022
+
+Araxis Merge Pro Edition 2022.5706 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_614795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение для двух и трехстороннего сравнения / слияния файлов и синхронизации папок от компании Araxis. Используйте данную утилиту, чтобы сравнивать, понимать и объединять различные версии источника кодов, веб-страницы и другие текстовые файлы и даже текст, копированный и вставленный с другого приложения.
+Araxis Merge – это обязательное приложение для разработчиков (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.04.2022Разработчик: © 1993–2022 ARAXIS LTD.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F03D13E822B48744B128B8ACE2436B6CA2D468
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912093   (614228) от 24.06.2015
+
+Graphic Styles 2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_614228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Graphic Styles  содержит набор высококачественных изображений, которые помогут вам создать  уникальные презентации в Keynote для иллюстрации ваших слайд-шоу, информационных бюллетеней или любого другого контента. Эта великолепная коллекция придаст вашим презентациям эксклюзивность если включить в неё оригинальные рамки, символы, графический шрифт и т.д.
+
+Все изображения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 июня 2015Разработчик: JumsoftПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D036C1E2D61FDD189BB94862E90CA7926454B037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912114   (614068) от 24.06.2015
+
+Set for MS Word 2.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_614068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Set for MS Word - коллекция из 445 современных шаблонов для Microsoft Word. Они созданы для бизнеса и личного пользования и призваны в значительной степени сосредоточить внимание на качестве дизайна. Каждый макет имеет очень хорошее качество, которое поможет обратить внимание к деталям.  Удобство использования  и  творчество.
+
+Пакет включает в себя типы шаблонов, которые (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 июня 2015Разработчик: JumsoftПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CE6F681CAA0201FA6FDD2015F7DF50B60F038F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296185   (613312) от 16.04.2019
+
+Excentro 1.9.26 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613312.jpg" />
+</div>
+
+
+###  Подробнее
+
+Excentro - программа для создания декоративных гильоширных элементов. Является воплощением некой абстрактной гильоширной машины. Благодаря реализованной в Excentro механической аналогии, процесс освоения программы приобретет дополнительную наглядность, простоту и легкость. Построение гильоширного элемента в Excentro имеет древовидную "иерархическую" структуру, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: ExcourseПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1A89AE3A14486E972957BFD5AE64BF16066AB45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037431   (613252) от 24.07.2016
+
+Pure Music 3.0.6 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_613252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pure Music  представляет собой программный музыкальный сервер с высоким качеством звучания, который основан на известном Pure для воспроизведения винила  и может интегрироваться с iTunes, который  Pure Music  использует в качестве базы данных и организатора плейлиста.
+
+Поддерживает все cовместимые аудио форматы такие как: WAVE, MP3, AAC, AIFF, Apple Lossless и FLACТип издания: OS X SoftwareРелиз состоялся: 06 июня 2016Разработчик: Channel DПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBE200ED4CA6C3984C67C49F678784F042550309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545609   (613156) от 20.04.2022
 
 Final Draft 12 v12.0.5 [En]
@@ -6,7 +143,7 @@ Final Draft 12 v12.0.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613156.jpg" />
+  <img src="Z:/picture/008/save_picture_613156.jpg" />
 </div>
 
 
@@ -34,7 +171,7 @@ WiFi Signal: Status Monitor  4.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613040.jpg" />
+  <img src="Z:/picture/008/save_picture_613040.jpg" />
 </div>
 
 
@@ -60,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613019.jpg" />
+  <img src="Z:/picture/008/save_picture_613019.jpg" />
 </div>
 
 
@@ -86,7 +223,7 @@ Adobe Character Animator 2022 v22.3 U2B [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612783.jpg" />
+  <img src="Z:/picture/008/save_picture_612783.jpg" />
 </div>
 
 
@@ -113,7 +250,7 @@ Plisterine 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612021.jpg" />
+  <img src="Z:/picture/008/save_picture_612021.jpg" />
 </div>
 
 
@@ -142,7 +279,7 @@ Raya Pro 3.0 - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611942.jpg" />
+  <img src="Z:/picture/008/save_picture_611942.jpg" />
 </div>
 
 
@@ -171,7 +308,7 @@ BusyContacts 1.6.6 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611545.jpg" />
+  <img src="Z:/picture/008/save_picture_611545.jpg" />
 </div>
 
 
@@ -198,7 +335,7 @@ Simplify 3.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610994.jpg" />
+  <img src="Z:/picture/008/save_picture_610994.jpg" />
 </div>
 
 
@@ -225,7 +362,7 @@ OS X Server 5.1.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609760.jpg" />
+  <img src="Z:/picture/008/save_picture_609760.jpg" />
 </div>
 
 
@@ -253,7 +390,7 @@ Movavi Media Player 2.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605078.jpg" />
+  <img src="Z:/picture/008/save_picture_605078.jpg" />
 </div>
 
 
@@ -279,7 +416,7 @@ Movavi Video Editor 5 Plus 5.4.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604983.jpg" />
+  <img src="Z:/picture/008/save_picture_604983.jpg" />
 </div>
 
 
@@ -305,7 +442,7 @@ PDF Decrypter Pro 2.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604852.jpg" />
+  <img src="Z:/picture/008/save_picture_604852.jpg" />
 </div>
 
 
@@ -332,7 +469,7 @@ uTorrent 1.8.7 (42417) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604690.jpg" />
+  <img src="Z:/picture/008/save_picture_604690.jpg" />
 </div>
 
 
@@ -358,7 +495,7 @@ Compress Any Video 3.3.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604582.jpg" />
+  <img src="Z:/picture/008/save_picture_604582.jpg" />
 </div>
 
 
@@ -387,7 +524,7 @@ Sublime Merge Build 2071 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604426.jpg" />
+  <img src="Z:/picture/008/save_picture_604426.jpg" />
 </div>
 
 
@@ -413,7 +550,7 @@ miCal - the missing calendar 1.0.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604395.jpg" />
+  <img src="Z:/picture/008/save_picture_604395.jpg" />
 </div>
 
 
@@ -442,7 +579,7 @@ Convert to MP4 PRO 2.0.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604338.jpg" />
+  <img src="Z:/picture/008/save_picture_604338.jpg" />
 </div>
 
 
@@ -471,7 +608,7 @@ GoodNotes 5 v5.9.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604324.jpg" />
+  <img src="Z:/picture/008/save_picture_604324.jpg" />
 </div>
 
 
@@ -498,7 +635,7 @@ BitMedic AntiVirus & Malware Security 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604138.jpg" />
+  <img src="Z:/picture/008/save_picture_604138.jpg" />
 </div>
 
 
@@ -526,7 +663,7 @@ RPN Calculator 4.6.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603978.jpg" />
+  <img src="Z:/picture/008/save_picture_603978.jpg" />
 </div>
 
 
@@ -552,7 +689,7 @@ Trim Any Video 2.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603976.jpg" />
+  <img src="Z:/picture/008/save_picture_603976.jpg" />
 </div>
 
 
@@ -566,143 +703,6 @@ Trim Any Video 2.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38FD81B3FF4D753C49847535BD918FE495654D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547109   (603972) от 26.04.2022
-
-Rotate & Flip Any Video 2.2 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поворот и отражение любого видео - 2 режима. Исправить, флаг / перекодировать.
-Супер прост в использовании. Всего 3 шага
-1. Перетащите любое видео
-2. Установите нужную ориентацию, вращая или переворачивая(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2020Разработчик: © www.nacentApps.comПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BC1638E283E00CAFC91B1CA2BAD971C1A72696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546962   (603971) от 26.04.2022
-
-Compress Any Video PRO 2.2.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сжимайте любое видео — легко уменьшайте размер файла.
-Супер прост в использовании. Всего 3 шага
-1. Перетащите любое видео
-2. Введите размер файла или используйте ползунок, чтобы указать размер выходного файла(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.06.2020Разработчик: © www.nacentApps.comПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DB9B03151647B806854D7969861EAC13633C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547103   (603969) от 26.04.2022
-
-Pelican - Clipboard Manager 1.2.0 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повысьте эффективность, скорость и производительность с помощью Pelican Clipboard Manager. Получите доступ и используйте свою историю копирования. Никаких лишних функций, быстро, безопасно.Тип издания: macOS SoftwareРелиз состоялся: 18.01.2022Разработчик: © 2022 SmartAlone.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Испанский и Турецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687A044EA8C3B05D025677609975D07F1D0BF6BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547220   (603470) от 27.04.2022
-
-inPixel 2.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакетная обработка изображений, папок и множественных представлений. Преобразование, изменение размера, переименование, добавление водяных знаков, настройка, улучшение, применение фильтров, эффектов, создание значков и наборов значков, изменение цветового пространства.
-Создайте пресет, и все готово. inPixel всегда будет рядом с вами, в фоновом режиме или в строке (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: © 2022 Quentin AppsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB0FDC31EEFED882B09B3BEF8B8A0B27DCFF9E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547228   (603459) от 27.04.2022
-
-Photo & Video HDR 1.6 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603459.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением  Photo & Video HDR Ваши фотографии и видео больше не будут прежними. Просто перетащите изображение или видео и придайте стиль HDR всему своему любимому содержимому. Вы можете создать совершенно новый вид с помощью полного набора элементов управления и фильтров. Никаких ограничений, только творчество.Тип издания: macOS SoftwareРелиз состоялся: 05.11.2020Разработчик: © 2022 Quentin AppsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE9300D64F90807BF51E2DA9A3C6AEE8F7F5CF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

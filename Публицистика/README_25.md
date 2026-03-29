@@ -1,3 +1,81 @@
+###  Публикация: 1206826   (781630) от 15.02.2018
+
+Михаил Веллер | Веритофобия (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название новой книги Михаила Веллера «Веритофобия» поясняется в первых ее строках: «Ужас правды, неумение видеть правду, нежелание знать ее». Она о том, как с детства нам ловко и радостно мешают видеть мир собственными глазами и иметь собственные мысли. Это и судьба нынешнего поколения, и секреты Советского Союза, и скандальные страницы русской культуры. Автор разоблачает (   Читать дальше...   )Жанр: Современная русская литература, Психологическая прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E3A974E9168C5E201BD9B5B1D7A465A59E0A6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391336   (781030) от 20.06.2020
+
+Норберт Винер | Бывший вундеркинд. Детство и юность (2001) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_781030.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Бывший вундеркинд» создатель кибернетики Норберт Винер рассказывает о своих первых шагах в математике и жизни. Эта книга приобрела огромную популярность за рубежом и спустя почти 50 лет переведена на русский язык. Книга адресована широкому кругу читателей, интересующихся историей математики.Жанр: АвтобиографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC19F077FDD8BA56DE6BA2AC260FB532159CEFA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391340   (781028) от 20.06.2020
+
+Норберт Винер | Я — математик. Дальнейшая жизнь вундеркинда (2001) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_781028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая читателю книга "Я - математик" представляет собой вторую часть автобиографии недавно умершего американского ученого Норберта Винера. Имя Винера стало широко известно во всем мире после появления в 1948 году его книги "Кибернетика", сыгравшей очень большую роль в оформлении кибернетики как самостоятельной дисциплины, рассматривающей (   Читать дальше...   )Жанр: АвтобиографияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE727FE55CDE5414D56786FBDBB4063AAF60CAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207153   (780897) от 17.02.2018
 
 М. Ф. Иоэльсон, М. И. Бах (сост., ред.) | Буржуазные ученые о закате капитализма (1929) [PDF]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780897.jpg" />
+  <img src="Z:/picture/008/save_picture_780897.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780588.jpg" />
+  <img src="Z:/picture/008/save_picture_780588.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780400.jpg" />
+  <img src="Z:/picture/008/save_picture_780400.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780077.jpg" />
+  <img src="Z:/picture/008/save_picture_780077.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779473.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779271.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779255.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779215.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779202.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779150.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778876.jpg" />
 </div>
 
 
@@ -303,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778861.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778715.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778711.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778706.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778705.jpg" />
 </div>
 
 
@@ -437,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778661.jpg" />
 </div>
 
 
@@ -465,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778167.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778159.jpg" />
 </div>
 
 
@@ -519,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777819.jpg" />
 </div>
 
 
@@ -548,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777517.jpg" />
 </div>
 
 
@@ -576,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777480.jpg" />
 </div>
 
 
@@ -602,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776899.jpg" />
+  <img src="Z:/picture/008/save_picture_776899.jpg" />
 </div>
 
 
@@ -613,84 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99996BACCA9DAFA3A172400B4A1A11C482C3B038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211757   (776875) от 09.03.2018
-
-Вл. Мирошевский | Буржуазные юношеские организации в Германии (1924) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уяснить себе развитие буржуазного юношеского движения можно только в сопоставлении с теми объективными общественными условиями, которые вызвали это движение к жизни. Если буржуазные организации молодежи играли и играют весьма значительную роль в социальной жизни Германии (достаточно вспомнить хотя бы о фашистских союзах молодежи, образующих основные боевые силы воинствующей (   Читать дальше...   )Жанр: История, политология, религиоведение, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8DCB6A798C826D77814CAD951FD129CDD2237D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 895657   (776688) от 06.05.2016
-
-Книжная серия | Вожди Советского Союза [13 книг.Обновляемая] (2012-2013) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776688.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вожди Советского Союза» - серия книг о политических деятелях СССР. Каждая книга - это сборник документальных произведений российских и зарубежных авторов.Жанр: История, Военная История, Биография и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA102134DA9495656E585F3D5A28B886827437D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014597   (776021) от 08.05.2016
-
-Кевин Фонг | EXTREMES. На пределе. Границы возможностей человеческого организма (2016) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — о хрупкости и одновременно невероятной стойкости человеческого организма. Дипломированный астрофизик, инженер и врач Кевин Фонг на реальных примерах из жизни и врачебной практики показывает, как ведёт себя наше тело в экстремальных условиях — при гипотермии, ожогах, травмах, инфекции — и рассказывает, как наука и практическая медицина научились побеждать (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3211439CB02162FB1E7FB894D3B3ECF73C2D709F
 ```
 
 https://mybot314.ru/tekegram_catalog/

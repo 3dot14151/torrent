@@ -6,7 +6,7 @@ FontViewOK 4.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799117.jpg" />
+  <img src="Z:/picture/008/save_picture_799117.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rufus 2.13 Build 1078 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799115.jpg" />
+  <img src="Z:/picture/008/save_picture_799115.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiseesoft HD Video Converter 8.2.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799112.jpg" />
+  <img src="Z:/picture/008/save_picture_799112.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Firefox Browser 94.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799098.jpg" />
+  <img src="Z:/picture/008/save_picture_799098.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Privacy Eraser Free 5.17.0 Build 4067 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799095.jpg" />
+  <img src="Z:/picture/008/save_picture_799095.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ WonderFox HD Video Converter Factory Pro 24.2 RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799077.jpg" />
+  <img src="Z:/picture/008/save_picture_799077.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Win+X Menu Editor 2.7.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799057.jpg" />
+  <img src="Z:/picture/008/save_picture_799057.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Text Editor Pro 18.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799056.jpg" />
+  <img src="Z:/picture/008/save_picture_799056.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Java SE Development Kit 17.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799052.jpg" />
+  <img src="Z:/picture/008/save_picture_799052.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.04.03 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799043.jpg" />
+  <img src="Z:/picture/008/save_picture_799043.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Windows 10 Manager 2.0.8 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799042.jpg" />
+  <img src="Z:/picture/008/save_picture_799042.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Skype 8.78.0.159 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799041.jpg" />
+  <img src="Z:/picture/008/save_picture_799041.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799040.jpg" />
+  <img src="Z:/picture/008/save_picture_799040.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Waterfox Current G4.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799037.jpg" />
+  <img src="Z:/picture/008/save_picture_799037.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Adobe Animate CC 2017.2 16.2.0.24 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799029.jpg" />
+  <img src="Z:/picture/008/save_picture_799029.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ KLS Backup 2021 Professional 11.0.0.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799028.jpg" />
+  <img src="Z:/picture/008/save_picture_799028.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Sandboxie 5.53.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799027.jpg" />
+  <img src="Z:/picture/008/save_picture_799027.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Blackmagic Design Fusion Studio 17.4.1 Build 8 (x64) Portable by rsloadNET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799025.jpg" />
+  <img src="Z:/picture/008/save_picture_799025.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ HitPaw Screen Recorder 1.2.4.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799021.jpg" />
+  <img src="Z:/picture/008/save_picture_799021.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ JetBrains ReSharper Ultimate 2017.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799020.jpg" />
+  <img src="Z:/picture/008/save_picture_799020.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ VidCoder 6.42 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799019.jpg" />
+  <img src="Z:/picture/008/save_picture_799019.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Java SE Runtime Environment 8.0.3110.11 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799016.jpg" />
+  <img src="Z:/picture/008/save_picture_799016.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Avidemux 2.8.0 Nightly(r211027) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799015.jpg" />
+  <img src="Z:/picture/008/save_picture_799015.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ SamDrivers 21.10 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799012.jpg" />
+  <img src="Z:/picture/008/save_picture_799012.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Autodesk AutoCAD MEP 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799005.jpg" />
+  <img src="Z:/picture/008/save_picture_799005.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Firefox Browser 91.3.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798991.jpg" />
+  <img src="Z:/picture/008/save_picture_798991.jpg" />
 </div>
 
 

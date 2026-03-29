@@ -1,3 +1,81 @@
+###  Публикация: 1301486   (881329) от 05.04.2020
+
+SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_881329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если директор SinTEK Industries распространяет таблетки, изменяющие ДНК, – значит, пора пересмотреть законы морали. Если все та же коварная женщина-биохимик собирается захватить мир при помощи армии мутантов, – значит, пора переписать золотое правило нравственности. Вы – полковник Джон Блэйд, начальник самого известного частного охранного агентства Фрипорта. Элексис (   Читать дальше...   )Тип издания: LicenseРазработчик: Ritual EntertainmentЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BCACB0FB9E1D111C7DB6F68BDF0234B1ADB543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996430   (880282) от 13.03.2016
+
+7554 (2012) [Ru] (1.0.0.1/dlc/tr) Repack =nemos=
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры происходит исключительно в так называемую Первую вьетнамскую войну (против французских колониальных войск), которую только через десяток лет сменила гораздо более, гм, популярная Вторая («По приказу дяди Хо уничтожим американских агрессоров», «Мисс Сайгон», Джейн Фонда в Ханое, «Апокалипсис сегодня», деревня Сонгми и все такое). Что ж, выбор Emobi интересный (   Читать дальше...   )Тип издания: RepackРазработчик: Emobi Games.Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: ВьетнамскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4EC6CAF7D4E5008DF32294A959B4C45871E2A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871759   (876864) от 23.02.2015
+
+Thief (2014) [Ru/En] (1.7 u8/dlc) Repack R.G. Games [Master Thief Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам позарез нужно что-то украсть – вы обратились по адресу. В Городе, полном опасностей, есть лишь один человек, способный выполнить самый сложный заказ. По сравнению с ним бледнеют жестокий барон Норткрест и его алчная стража, таинственная Королева попрошаек, пламенные революционеры и обитатели уличного «дна». Его зовут Гарретт, и он в совершенстве владеет (   Читать дальше...   )Тип издания: Переупакованная лицензияРазработчик: Eidos-Montréal и Nixxes Software BVЖанр: Action / 3D / 1st Person / StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1242D232E82BA79116A54C869CE4830141CA2D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996999   (876581) от 15.03.2016
 
 Unknown Battle (2016) [Ru/En] (1.0) License FANiSO
@@ -6,7 +84,7 @@ Unknown Battle (2016) [Ru/En] (1.0) License FANiSO
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876581.jpg" />
+  <img src="Z:/picture/008/save_picture_876581.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ Borderlands 2 (2013) [Ru/En] (1.8.4/dlc) Repack R.G. Механики [Game of t
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872400.jpg" />
+  <img src="Z:/picture/008/save_picture_872400.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ DOOM VFR (2017) [Ru/Multi] (6.1.1.1930) Repack xatab [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872165.jpg" />
+  <img src="Z:/picture/008/save_picture_872165.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ ANNIE: Last Hope (2020) [Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872161.jpg" />
+  <img src="Z:/picture/008/save_picture_872161.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ Obscuritas (2016) [En/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870988.jpg" />
+  <img src="Z:/picture/008/save_picture_870988.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ Medal of Honor: Pacific Assault (2004) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870229.jpg" />
+  <img src="Z:/picture/008/save_picture_870229.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Star Trek: Elite Force II (2003) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869370.jpg" />
+  <img src="Z:/picture/008/save_picture_869370.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ Star Trek: Voyager Elite Force (2000) [Multi] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869368.jpg" />
+  <img src="Z:/picture/008/save_picture_869368.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Shadow Warrior: Anthology (1997-2016) [Ru/Multi] (1.1.6/1.5.0/1.1.2/1.1.9.0/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869140.jpg" />
+  <img src="Z:/picture/008/save_picture_869140.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ NecroVisioN: Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869125.jpg" />
+  <img src="Z:/picture/008/save_picture_869125.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ NecroVision (2009) [Ru] (1.2) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867219.jpg" />
+  <img src="Z:/picture/008/save_picture_867219.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ Beyond Enemy Lines (2017) [En] (30120) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867212.jpg" />
+  <img src="Z:/picture/008/save_picture_867212.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ The Town of Light (2016) [Ru/Multi] (2.2/dlc) Repack Other s [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865912.jpg" />
+  <img src="Z:/picture/008/save_picture_865912.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ NecroVision (2009) [Ru] (1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865475.jpg" />
+  <img src="Z:/picture/008/save_picture_865475.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ Burn / Пекло (2007) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861963.jpg" />
+  <img src="Z:/picture/008/save_picture_861963.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ Absent Mind (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861903.jpg" />
+  <img src="Z:/picture/008/save_picture_861903.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ Soldier of Fortune: Payback (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860902.jpg" />
+  <img src="Z:/picture/008/save_picture_860902.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ Among the Innocent: A Stricken Tale (2017) [En] (1.004) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860111.jpg" />
+  <img src="Z:/picture/008/save_picture_860111.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ Far Cry Franchise [Ru/En/Multi] (Steam-Rip) 2004-2012 | R.G. Игроманы
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857708.jpg" />
+  <img src="Z:/picture/008/save_picture_857708.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ DESYNC (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851389.jpg" />
+  <img src="Z:/picture/008/save_picture_851389.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Quake: Enhanced (2021) [Ru/Multi] (7211438/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850670.jpg" />
+  <img src="Z:/picture/008/save_picture_850670.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ Rogue Warrior (2009) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847764.jpg" />
+  <img src="Z:/picture/008/save_picture_847764.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ In Sound Mind (2021) [Ru/Multi] (1.01.0916) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847280.jpg" />
+  <img src="Z:/picture/008/save_picture_847280.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ In Sound Mind (2021) [Ru/Multi] (1.01.0916) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60977E824796647679A03CCF2DBF41DE6486AA97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499703   (847262) от 02.10.2021
-
-S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыля (2007) [Ru] (1.0006) Repack West4it
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847262.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 год. Шесть лет прошло с момента Второй катастрофы, затмившей события апреля 1986 года. Действие игры происходит в Чернобыльской зоне отчуждения, превратившейся из места, где ломались судьбы, в угрозу всему человечеству. Свои тайны Зона раскрывает неохотно, через силу, и редкий герой сможет добраться до самого ее сердца и узнать – какая опасность поджидает его (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4728F8D18D52629D6B7FD95DC05E3727EEB2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112591   (840868) от 09.03.2017
-
-Homefront: The Revolution (2016) [Ru/En] (1.078.1055/dlc) Repack R.G. Revenants [Freedom Fighter Bundle]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Homefront: The Revolution – это шутер от первого лица, в котором вы должны возглавить силы Сопротивления в партизанской войне против превосходящих сил противника. Все ваши действия будут влиять на живой, дышащий открытый мир – ваша ячейка Сопротивления и вы сможете вдохновить угнетённых гражданских на восстание и превратить оккупацию в революцию.Тип издания: RepackРазработчик: Dambuster StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21709FBEBE349BDE84747D6904F8E09CE5BA4319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112700   (840858) от 09.03.2017
-
-One Sole Purpose (2017) [En] (1.0) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840858.jpg" />
-</div>
-
-
-###  Подробнее
-
-One Sole Purpose - это приключенческий экшен, в котором игроки могут управлять временем и гравитацией. Сюжет повествует о Майкле, брате известного инженера, пропавшего при странных обстоятельствах. Майкл отправляется на поиски брата, постепенно погружаясь в пучину настоящего безумия.Тип издания: LicenseРазработчик: Sameer HireziЖанр: Action, Adventure, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF8F73A6675967DFB16745607E52C6F86BC7D2D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

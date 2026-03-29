@@ -1,3 +1,56 @@
+###  Публикация: 1526748   (737288) от 27.01.2022
+
+Осенние сны (1987) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737288.jpg" />
+</div>
+
+
+###  Подробнее
+
+В белорусской деревеньке Вешки осталось только трое стариков. Добрая Ганна потеряла на войне мужа и троих детей. Правда, остался еще один сын, но жизнь у него не сложилась - сидит в тюрьме. От сварливого Микиты дети давно сбежали в город. Трудолюбивый Василь тоже давно живет один. Единственный сын лишь изредка шлет отцу письма из далеких краев. У мужиков на все на (   Читать дальше...   )Производство: СССР / БеларусьфильмЖанр: ДрамаРежиссер: Игорь ДобролюбовАктеры: Сергей Плотников, Галина Макарова, Борис Новиков, Александр Лабуш, Александр ТимошкинСубтитры: ОтсутствуютПродолжительность: 01:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B9F7E09FFBA59A77CB754AF18F1B74853EEAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 787332   (736670) от 17.05.2014
+
+Последнее дело комиссара Берлаха (2 серии) (1972) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_736670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухсерийный политический детектив по мотивам повести Фридриха Дюренматта "Подозрение".
+Комисар полиции Берлах (Николай Симонов) в послевоенной Швейцарии разыскивает скрывающихся нацистских преступников. Узнав, что под вымышленным именем одной из клиник руководит бывший врач-нацист, тяжело больной Берлах определяется туда на лечение...Жанр: Драма, триллер, детективРежиссер: Василий ЛевинАктеры: Николай Симонов, Андрей Попов, Николай Волков старший, Светлана Коркошко, Николай Гринько, Ева Мурниеце, Людмила Войнова-Крутикова, Артур Димитерс, Волдемар Акуратерс, Александр Бениаминов, Улдис Ваздикс, Игорь Варпа, Лидия Пупуре, Вольдемар Дудиньш, Раиса Лунёва, Арис Розенталь, Паул БуткевичПродолжительность: 01:02:28 + 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B706E008302F229DDD12F0AA03F414609FD0DD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 787834   (736004) от 18.05.2014
 
 Пегий пес, бегущий краем моря (1990) DVDRip [H.264]
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736004.jpg" />
+  <img src="Z:/picture/008/save_picture_736004.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735983.jpg" />
+  <img src="Z:/picture/008/save_picture_735983.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735755.jpg" />
+  <img src="Z:/picture/008/save_picture_735755.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735562.jpg" />
+  <img src="Z:/picture/008/save_picture_735562.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735317.jpg" />
+  <img src="Z:/picture/005/save_picture_735317.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735314.jpg" />
+  <img src="Z:/picture/005/save_picture_735314.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735313.jpg" />
+  <img src="Z:/picture/008/save_picture_735313.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735308.jpg" />
+  <img src="Z:/picture/008/save_picture_735308.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735150.jpg" />
+  <img src="Z:/picture/005/save_picture_735150.jpg" />
 </div>
 
 
@@ -242,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734371.jpg" />
+  <img src="Z:/picture/008/save_picture_734371.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733666.jpg" />
+  <img src="Z:/picture/005/save_picture_733666.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732628.jpg" />
+  <img src="Z:/picture/008/save_picture_732628.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731388.jpg" />
+  <img src="Z:/picture/008/save_picture_731388.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731294.jpg" />
+  <img src="Z:/picture/008/save_picture_731294.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730413.jpg" />
+  <img src="Z:/picture/008/save_picture_730413.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728684.jpg" />
+  <img src="Z:/picture/008/save_picture_728684.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726961.jpg" />
+  <img src="Z:/picture/008/save_picture_726961.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726251.jpg" />
+  <img src="Z:/picture/008/save_picture_726251.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725603.jpg" />
+  <img src="Z:/picture/008/save_picture_725603.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725093.jpg" />
+  <img src="Z:/picture/008/save_picture_725093.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725036.jpg" />
+  <img src="Z:/picture/008/save_picture_725036.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723801.jpg" />
+  <img src="Z:/picture/005/save_picture_723801.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723798.jpg" />
+  <img src="Z:/picture/005/save_picture_723798.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723672.jpg" />
+  <img src="Z:/picture/008/save_picture_723672.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A65B92FB30411B60F787CE445DC358126B8B8E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326794   (723650) от 22.04.2011
-
-Конец императора тайги (1978) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723650.jpg" />
-</div>
-
-
-###  Подробнее
-
-1922 год — время, когда в Хакасии шли изнурительные бои красных с бандой атамана Соловьева. Фильм воспроизводит одну из малоизвестных страниц биографии Аркадия Гайдара (Голикова), когда он юношей был назначен командиром отряда ЧОНа (частей особого назначения).Производство: СССР, Киностудия им. М. ГорькогоЖанр: приключения, биографияРежиссер: Владимир СарухановАктеры: Андрей Ростоцкий, Иван Краско, Герман Качин, Юрий Майнагашев, Олег Балакин, Асанкул Куттубаев, Светлана Чебодаева-Чаптыкова, Данута Столярская, Виталий Канзычаков, Нина СарухановаПродолжительность: 01:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B3CED7092804C094397590DD16DA14F4F9BA17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668454   (723563) от 15.06.2013
-
-Песни моря (1971) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самодеятельный музыкальный коллектив румынских студентов всячески стремится попасть на Сочинский фестиваль эстрадной песни. Но чтобы сделать это, им нужно понравиться представителю фестиваля, который должен послушать их песни. Ребята даже не предполагают, что этим представителем окажется очень красивая русская девушка...Производство: СССР, Румыния / Мосфильм, "Бухарест"Жанр: Мьюзикл, комедияРежиссер: Франчиск МунтянуАктеры: Дан Спэтару (Михай), Наталья Фатеева (Нина), Ион Дикисяну, Штефан Бэникэ, Думитру Кесса, Рэка Ногь, Эмиль Хосу, Петер ПаульхоферПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8802FFDB979690842B1E5A9B71A3C26129A54BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

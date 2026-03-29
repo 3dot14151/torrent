@@ -1,3 +1,61 @@
+###  Публикация: 1797391   (66800) от 16.05.2025
+
+VA - Ori Uplift - Uplifting Only Episode 640 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kohta Imafuku – Best Wishes (Tsuki Shizumutoki Intro Remix)
+02. The Avengers – Yugen
+03. XiJaro & Pitch x JKult – United In Dreams (Breakdown Of The Week)
+04. A.R.D.I. – The Tribute(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73639212A693F1EB1747EFC6123F2C50F85A7578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797388   (66798) от 16.05.2025
+
+VA - Armin van Buuren - A State Of Trance 1225 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Dish & EYNKA ft. Wrabel – Midnight
+02. Hel:sløwed & Lovlee – Left Of Us
+03. Something Good – Love Shop
+04. Bowers & Bidwell – All I Need(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6EA74CDA0B990289094B2F36CF9CB738F5AE1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798647   (66602) от 23.05.2025
 
 VA - Armin van Buuren - A State Of Trance 1226 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -6,7 +64,7 @@ VA - Armin van Buuren - A State Of Trance 1226 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66602.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Ori Uplift - Uplifting Only Episode 641 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66589.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Ori Uplift - Uplifting Only Episode 642 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66370.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Armin van Buuren - A State Of Trance 1227 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66369.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Markus Schulz - Global DJ Broadcast World Tour, Epic Club Prague, Czech Republic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66269.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Armin van Buuren - A State Of Trance 1229 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66135.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Korolova - Live @ Legia Stadium (Warsaw, Poland) (2025-06-05) [MP3|320 Kbps] <Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66120.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Ori Uplift - Uplifting Only Episode 644 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66114.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Johnny de City - Mashup Avenue 027 (2025-05-30) [MP3|320 Kbps] <Dance, Electro P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66111.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ VA - Armin van Buuren - A State Of Trance 1230 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65956.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ VA - Ori Uplift - Uplifting Only Episode 645 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65944.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ Markus Schulz - Global DJ Broadcast: Sunrise Set (2025-06-19) [MP3|320 Kbps] <Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65820.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ John Summit - Live @ Club Space Miami, United States (2025-05-03) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65810.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ GOODBOYS - Live From RADi Club @ INS Land, Shanghai, China (2025-04-30) [MP3|320
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65768.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Lane 8 - Summer 2025 Mixtape (2025-06-18) [MP3|320 Kbps] <Progressive House, Mel
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65560.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ Third Party - Live @ Party People (The Dome at Grand Central Hall Liverpool) (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65528.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ VA - Ori Uplift - Uplifting Only Episode 647 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65488.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ VA - Armin van Buuren - A State Of Trance 1233 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65402.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ VA - Ori Uplift - Uplifting Only Episode 648 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65393.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Oliver Heldens - Live  @ Marquee Skydeck, The Edge NYC, United States (2025-06-2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65387.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Steve Angello - Live @ Ibiza Global Festival, Spain (2025-07-05) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65386.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Markus Schulz - Global DJ Broadcast World Tour (Ciné Saigon, Vietnam) (2025-07-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65384.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Frank Walker - Live @  Progressive House Never Died Tour, REBEL Toronto, Canada 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65354.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ VA - Armin van Buuren - A State Of Trance 1234 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65274.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ VA - Armin van Buuren - A State Of Trance 1234 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6206E1EDD334D0AE896BFBFD1FAA93448C7B80CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807289   (65267) от 18.07.2025
-
-VA - Ori Uplift - Uplifting Only Episode 649 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic – Roses (Intro Mix)
-02. Sandro Mireno & Jan Miller – Here Comes The Rain (Uplifting Classic)
-03. Para X – Calista
-04. REX.W – Eternal Afterglow(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0F808D2529AE18B3F6CFCCACA8E211AC88983F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808501   (64956) от 25.07.2025
-
-VA - Armin van Buuren - A State Of Trance 1235 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Hausman - I'm Feelin' Ya (John Grand Remix)
-02.	Armin van Buuren & JOA - Heavy (Tune Of The Week)
-03.	Marcos - Sensate
-04.	Somna & Adara - Somewhere Dreams Come True(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B64DBD730C9CD03429CDEC5174C301CCA36A7F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

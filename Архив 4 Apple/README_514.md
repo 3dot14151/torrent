@@ -1,3 +1,107 @@
+###  Публикация: 1440360   (238898) от 16.01.2021
+
+Crescendo Masters 6.02 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Crescendo Masters для написания музыкальных заметок и создания музыкальных партитур на Mac.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3819C5FA0A1A97C372D98AF4DCCD929A778CABBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440171   (238891) от 16.01.2021
+
+QuickLens 2.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как UI-дизайнер / разработчик, естественно изучить пользовательский интерфейс, созданный вами или другими. Будь то выбранные поля, угол, используемый в значке, длина или ограничивающая рамка некоторого элемента, используемые цвета или просто приближение к пикселям. QuickLens предлагает набор инструментов, которые позволяют выполнять все эти и многие другие действия.Тип издания: macOS SoftwareРелиз состоялся: 08.01.2021Разработчик: PIXELINGENE LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE4D7E23D631A52F5F8411FA0FD39524907AEF59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623051   (238868) от 31.03.2023
+
+DJ Mix Pads 2 - Remix Version 5.5.17 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238868.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ Mix Pads 2 - Remix Version - это уникальное приложение для музыкантов, которая включает все необходимое для создания битов.Тип издания: macOS SoftwareРелиз состоялся: 20.03.2023Разработчик: © 2023 Music Paradise, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45BCED2299B837987937FA9A5411CF9BA6EB3742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547203   (238852) от 27.04.2022
+
+Logic Pro X 10.7.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logic Pro X — самая совершенная версия Logic. Мощные инструменты для профессионального создания музыки, обработки и микширования звука встроены в современный интерфейс для быстрого получения качественных результатов и удобства работы — где бы Вы ни находились. В Logic Pro X входит огромная коллекция музыкальных инструментов, эффектов и лупов — всё, что нужно для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.04.2022Разработчик: © 2004-2022 Apple Inc.Поддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90617CA5945EBDD6337BADD82A50846A39EDDFD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577396   (238849) от 18.09.2022
 
 Squeezer 2.5.1 [En]
@@ -6,7 +110,7 @@ Squeezer 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238849.jpg" />
+  <img src="Z:/picture/005/save_picture_238849.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ djay - DJ App & AI Mixer 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238841.jpg" />
+  <img src="Z:/picture/005/save_picture_238841.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Aiseesoft Mac FoneLab for Android 5.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238825.jpg" />
+  <img src="Z:/picture/005/save_picture_238825.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ Desktop Stickers 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238818.jpg" />
+  <img src="Z:/picture/005/save_picture_238818.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ CloudMounter 4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238814.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ Millumin 4.16.e [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238812.jpg" />
+  <img src="Z:/picture/005/save_picture_238812.jpg" />
 </div>
 
 
@@ -165,7 +269,7 @@ TinkerTool System 6 v6.96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238810.jpg" />
+  <img src="Z:/picture/005/save_picture_238810.jpg" />
 </div>
 
 
@@ -191,7 +295,7 @@ Live Wallpaper & Themes 4K Pro 16.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238809.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ FSNotes 4 v4.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238808.jpg" />
+  <img src="Z:/picture/005/save_picture_238808.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ A Better Finder Attributes 7 v7.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238798.jpg" />
+  <img src="Z:/picture/005/save_picture_238798.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Nova 11.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238797.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ Dash 6.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238776.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ SecuritySpy 5.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238771.jpg" />
+  <img src="Z:/picture/005/save_picture_238771.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ Blocs 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238756.jpg" />
+  <img src="Z:/picture/005/save_picture_238756.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ PowerPhotos 1.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238738.jpg" />
+  <img src="Z:/picture/005/save_picture_238738.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ Wondershare Recoverit 9.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238737.jpg" />
+  <img src="Z:/picture/005/save_picture_238737.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Capture One 23 Pro 16.1.3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238679.jpg" />
+  <img src="Z:/picture/005/save_picture_238679.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ Author 6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238678.jpg" />
+  <img src="Z:/picture/005/save_picture_238678.jpg" />
 </div>
 
 
@@ -482,7 +586,7 @@ Display Maid 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238668.jpg" />
+  <img src="Z:/picture/005/save_picture_238668.jpg" />
 </div>
 
 
@@ -508,7 +612,7 @@ ImageRanger Pro Edition 1.7.9.1706 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238661.jpg" />
+  <img src="Z:/picture/005/save_picture_238661.jpg" />
 </div>
 
 
@@ -534,7 +638,7 @@ PowerPhotos 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238654.jpg" />
+  <img src="Z:/picture/005/save_picture_238654.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ Affinity Designer Beta 1.9.0.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238647.jpg" />
+  <img src="Z:/picture/005/save_picture_238647.jpg" />
 </div>
 
 
@@ -572,111 +676,6 @@ Affinity Designer — самое быстрое, удобное и точное 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89B3993AA2F73E8FBB2CACF96EE645485BE3CC71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441953   (238637) от 23.01.2021
-
-Find Any File (FAF) 2.3.b2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C1F82BB28361F366BACA043755AA46B9DB35B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623342   (238636) от 01.04.2023
-
-Bigasoft Video Downloader Pro for Mac 3.25.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bigasoft Video Downloader Pro - это популярный одношаговый онлайн-загрузчик и конвертер видео, который помогает быстро загружать и конвертировать видеофайлы для воспроизведения на персональном компьютере, портативном устройстве, мобильном телефоне, mp4-плеере, Apple телевидении и т. д. Мощный инструмент Video Downloader может сохранять онлайн-видео в формате HD, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.03.2023Разработчик: © 2022 Bigasoft CorporationПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E5677F2CE1D04C0DA348BF08C39DA32AAE1C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442150   (238622) от 24.01.2021
-
-ColorWell 7.2.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238622.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре macOS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезная утилита в любом наборе инструментов хорошего веб-дизайнера и ее можно легко настроить для работы на панели инструментов или открыть при помощи глобальной горячей клавиши.Тип издания: macOS SoftwareРелиз состоялся: 24.01.2021Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8A6F446EEA2F2881D67E1658B9B9111471FC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442223   (238616) от 24.01.2021
-
-Hookshot 1.17.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hookshot - позволяет привязывать окна с помощью перетаскивания, сочетаний клавиш или строки меню.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2021Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48C57A3D9E59C054B305BAB72B7F8D5903EA19F
 ```
 
 https://mybot314.ru/tekegram_catalog/

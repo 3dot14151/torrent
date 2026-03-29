@@ -1,3 +1,121 @@
+###  Публикация: 469388   (82897) от 18.03.2012
+
+Серия книг "Экспансия" [2003-2007] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Экспансия пришла на смену серии Российская боевая
+фантастика в 2003 году, даже оформление похоже. Хотя
+некоторые произведения дублируются (чтобы, так сказать,
+освежить память), в Экспансии стали печатать продолжения
+циклов и сериалов, начатых РБФ.
+
+Также серия отличается тем, что в книги включались по несколько
+романов, повестей и рассказов одного автора (т. е., выпускались
+авторские сборники).2003-2007Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC95A982B6A3B4A438C27C22A4C52F910CDA55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469816   (82872) от 18.03.2012
+
+Серия книг | «Ravenloft» [1994-1997] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ravenloft — это вымышленный сеттинг, созданный на основе ролевой системы Dungeons & Dragons. Рэйвенлофт достаточно сильно отличается от традиционных миров D&D, таких как Forgotten Realms и Greyhawk. Книги и настольные ролевые игры обычно ставят целью запугать читателя (игрока), герои в подобных произведениях описываются как беспомощные перед величием окружающего зла.
+ В 1983 году Трейси и Лаура Хикмен работали над ролевым приключением по системе AD&D в жанре готики. Модуль был назван "Ravenloft" и имел большой успех у игроков. Вскоре увидело свет приключение Ravenloft 2: The House on Gryphon Hill, которое стало не менее популярным, чем его предшественник. Первое официальное издание сеттинга под названием "Realms of Horror" произошло в 1990 году, в 1994 году оно было переработано и расширено, в 1997 году вышло второе издание под названием "Domains of Dread". За историю Рэйвенлофта в свет вышло более 80 ролевых книг и более десяти художественных романов. Ravenloft написан (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED2E4A82A0084998E83FB9AD67D25F1943F065F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469363   (82847) от 18.03.2012
+
+Серия книг "Global Book" [2010-2011] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Global Book выходит с ноября 2010 года. В ней издаются
+произведения современных зарубежных авторов различной
+ сюжетной направленности. В серии печатаются как абсолютно
+новые произведения, впервые выходящие на русском языке, так
+и переиздания.2010-2011Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4BF703A03C4769009071FF1561053B894F73AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468442   (82499) от 16.03.2012
+
+Книжная серия "Иллюминатор" в 93 книгах [1999-2009] [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Иллюминатор» – первый из масштабных и долгосрочных книжных проектов «Иностранки».
+Задуманная как продолжатель и наследник традиций знаменитой и памятной миллионам российских читателей «Библиотеки журнала «Иностранная литература», серия «Иллюминатор» стала собранием настоящего золотого фонда мировой литературы ХХ и начала ХХI века.1999-2009Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF409D5D4D08F65B0BB57E3D991101D4908A78AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467472   (82094) от 14.03.2012
 
 Элджернон Блэквуд, Густав Майринк, Брэм Стокер, Уильям Хоуп Ходжсон | "Гримуар" Серия из 6 книг [2004-2011] [FB2]
@@ -6,7 +124,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82094.jpg" />
 </div>
 
 
@@ -32,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81703.jpg" />
 </div>
 
 
@@ -61,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81695.jpg" />
 </div>
 
 
@@ -89,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81637.jpg" />
 </div>
 
 
@@ -119,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81467.jpg" />
 </div>
 
 
@@ -145,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81427.jpg" />
 </div>
 
 
@@ -173,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81150.jpg" />
 </div>
 
 
@@ -202,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81025.jpg" />
 </div>
 
 
@@ -228,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79782.jpg" />
 </div>
 
 
@@ -256,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78982.jpg" />
 </div>
 
 
@@ -283,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78159.jpg" />
 </div>
 
 
@@ -313,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78065.jpg" />
 </div>
 
 
@@ -340,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77239.jpg" />
 </div>
 
 
@@ -370,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76557.jpg" />
 </div>
 
 
@@ -397,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76368.jpg" />
 </div>
 
 
@@ -426,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76219.jpg" />
 </div>
 
 
@@ -452,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65772.jpg" />
 </div>
 
 
@@ -478,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64002.jpg" />
 </div>
 
 
@@ -504,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63968.jpg" />
 </div>
 
 
@@ -530,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63944.jpg" />
 </div>
 
 
@@ -556,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63857.jpg" />
 </div>
 
 
@@ -582,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63856.jpg" />
 </div>
 
 
@@ -593,116 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B07A7F696655AE06FBB1839861385FDECEE33D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720376   (57748) от 03.05.2024
-
-Книжная серия | Океан [13 книг] (1972 - 1987) [DJVU]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «Океан», издательства «Детская литература», 1972-1987.
-
-В серии издано 13 томиков книг, первые три тома издавались раз в два года, начиная с четвертого тома книги печатались ежегодно.Жанр: ПриключенияИздательство: Детская литератураФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E98B94C4D33A0DF731E00B5086678B8D25E6C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536010   (57469) от 06.05.2024
-
-Книжная серия | «Военная боевая фантастика» [42 книги] (2021-2024) [FB2] [Обновляемая]
-
->>След.
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая серия от издательства АСТ в жанре альтернативной истории.
-***
-Глупо вышло: часовой выстрелил на движение – и привет. Ну а дальше – ад или рай. Вот только выяснилось, что в списках умерших меня нет. Оказалось, я попал, причём попал конкретно. В июнь 1941 года. Хорошо хоть, не прогадал с просьбой и получил почти безразмерное магическое Хранилище. Так что все (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54AB0C0FA2E5E8CD30D0E89E69FA355DD9D0ECA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643123   (54747) от 01.06.2024
-
-Книжная серия | «Новая фантастика. Возвышение» [8 книг] (2023-2024) [FB2] [Обновляемая]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия современного российского фэнтези, в которой представлено всё многообразие жанра — от классических приключений волшебников в родных магических мирах до попаданчества, бояръ-аниме и ЛитРПГ. Все произведения издаются впервые.
-***
-Магия и сверхсилы? Боги и демоны? Кто знает, что случится с тем, чей жизненный путь не вплетён в общее полотно мира. Так начинается (   Читать дальше...   )Жанр: Героическое фэнтези, ПопаданцыИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9AA103BDEFB6B25B84DCDD260389AB8C91F686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821274   (52292) от 01.10.2025
-
-Книжная серия | Уолт Дисней. Нерассказанные истории [64 книги] (2004-2023) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Disney вот уже более ста лет создаёт увлекательнейший мир сказок и волшебства, который нежно любят тысячи детей и уже взрослых людей по всему свету. И каждый год ряды чудесных персонажей, созданных этой компанией, пополняются, и библиотека невероятных историй становится всё больше. В серии «Уолт Дисней. Нерассказанные истории» представлены книги по всем (   Читать дальше...   )Жанр: Фантастика, фэнтези, приключенияИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75704BA9C7514BCF11AE664995FB9FA41DF1A2DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

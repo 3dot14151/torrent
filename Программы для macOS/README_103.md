@@ -1,3 +1,140 @@
+###  Публикация: 1327892   (366367) от 29.09.2019
+
+Elasty 2.0.3 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elasty - панель инструментов для того, чтобы настроить фильмы на Mac OS X со многими расширенными функциями. Можете импортировать различные форматы фильма из любого источника, включая прямой доступ к iPhoto и носителям iMovie. Можете также использовать iSight непосредственно, из Elasty, чтобы импортировать изображение или анимацию.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CreaceedПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A7919C269D6C48EDFC08A0987342D3E29A2FD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255289   (366231) от 17.10.2018
+
+Outline 3.21.3 [En/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Outline для Maс это интуитивное приложение для заметок с удобной организацией рабочего пространства: блокноты, секции, группы секций и страницы помогут Вам содержать записи в порядке независимо от сложности их структуры.
+
+Outline для Маc идеален для студентов, преподавателей, врачей, юристов, руководителей и всех, чья повседневная жизнь включает ведение записей любого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2018Разработчик: © GORILLIZED CORPORATIONПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0635E311AE3ADC15E48E9C7D26D75FB081B7398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255183   (366055) от 17.10.2018
+
+Disk Expert 2.9 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение позволяет находить файлы и папки большого размера на вашем Маc. Приложение сканирует жесткий диск, визуально отображает использование дискового пространства и составляет отчет, содержащий список самых огромных файлов и папок.
+
+Поддерживаются все типы устройств хранения: HDD, CD/DVD диски, съемные USB-диски, смонтированные DMG-образы и сетевые диски SMB. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2018Разработчик: NektonyПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDA1E4CDD4AAAF853A1B77FBCD8060A1476190C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327737   (366016) от 29.09.2019
+
+ActiveDock 1.15 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Application Launcher, улучшенный Dock для MacOS, альтернатива Apple Dock, uBar, HyperDock.
+ActiveDock - полная замена Apple Dock с функциями настройки. Инструменты для более быстрого переключения между приложениями и окнами и управления окнами из предварительного просмотра на док-станции.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MacPlus SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DD0B78BD2AB9EBAB750BF0C18F5FCDD68D4666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327975   (365874) от 29.09.2019
+
+FileMaker Pro 18 Advanced v18.0.3.317 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365874.jpg" />
+</div>
+
+
+###  Подробнее
+
+FileMaker Pro — это мощное и удобное программное обеспечение для создания пользовательских приложений, беспрепятственно работающих на iPad, iPhone, Windows, Mac и в браузерах.
+
+Легко создавайте собственные пользовательские приложения, соответствующие уникальным и постоянно меняющимся потребностям вашего бизнеса. Источником вдохновения для вас могут стать встроенные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: FileMaker, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3BADAFC0F9302F9E78C46D9259D91EE539D523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416827   (365246) от 17.10.2020
 
 Music Tag Editor 2 v5.4.3 [Multi]
@@ -6,7 +143,7 @@ Music Tag Editor 2 v5.4.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365246.jpg" />
+  <img src="Z:/picture/008/save_picture_365246.jpg" />
 </div>
 
 
@@ -34,7 +171,7 @@ Microsoft Edge for Mac 86.0.622.43 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365115.jpg" />
+  <img src="Z:/picture/008/save_picture_365115.jpg" />
 </div>
 
 
@@ -60,7 +197,7 @@ Ample Sound Ample Guitar T III v3.3.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365100.jpg" />
+  <img src="Z:/picture/008/save_picture_365100.jpg" />
 </div>
 
 
@@ -86,7 +223,7 @@ iStopMotion 3.8.2 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365029.jpg" />
+  <img src="Z:/picture/008/save_picture_365029.jpg" />
 </div>
 
 
@@ -112,7 +249,7 @@ GN Infographics for Adobe Photoshop - Templates 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365019.jpg" />
+  <img src="Z:/picture/008/save_picture_365019.jpg" />
 </div>
 
 
@@ -140,7 +277,7 @@ TableEdit Pro 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364355.jpg" />
+  <img src="Z:/picture/008/save_picture_364355.jpg" />
 </div>
 
 
@@ -168,7 +305,7 @@ Kite Compositor 1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363192.jpg" />
+  <img src="Z:/picture/008/save_picture_363192.jpg" />
 </div>
 
 
@@ -196,7 +333,7 @@ IINA 0.0.14.1 (Build 55) [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362822.jpg" />
+  <img src="Z:/picture/008/save_picture_362822.jpg" />
 </div>
 
 
@@ -222,7 +359,7 @@ SnapMotion 3.1.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361796.jpg" />
+  <img src="Z:/picture/008/save_picture_361796.jpg" />
 </div>
 
 
@@ -251,7 +388,7 @@ Orion PDF Author 2 v2.20.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361668.jpg" />
+  <img src="Z:/picture/008/save_picture_361668.jpg" />
 </div>
 
 
@@ -277,7 +414,7 @@ Mail Pilot 3 v3.0 (7810)b [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361643.jpg" />
+  <img src="Z:/picture/008/save_picture_361643.jpg" />
 </div>
 
 
@@ -304,7 +441,7 @@ Movavi Screen Capture Studio 10 v10.0.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361243.jpg" />
+  <img src="Z:/picture/008/save_picture_361243.jpg" />
 </div>
 
 
@@ -332,7 +469,7 @@ Video Converter Movavi 8 v8.0.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361240.jpg" />
+  <img src="Z:/picture/008/save_picture_361240.jpg" />
 </div>
 
 
@@ -359,7 +496,7 @@ Serial 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361204.jpg" />
+  <img src="Z:/picture/008/save_picture_361204.jpg" />
 </div>
 
 
@@ -387,7 +524,7 @@ Smart Zipper Pro 3.70 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361193.jpg" />
+  <img src="Z:/picture/008/save_picture_361193.jpg" />
 </div>
 
 
@@ -414,7 +551,7 @@ MyBrushes - Sketch, Paint, Design 2.1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361187.jpg" />
+  <img src="Z:/picture/008/save_picture_361187.jpg" />
 </div>
 
 
@@ -442,7 +579,7 @@ Image2Icon Pro 2.9.2 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361040.jpg" />
+  <img src="Z:/picture/008/save_picture_361040.jpg" />
 </div>
 
 
@@ -468,7 +605,7 @@ Enolsoft DjVu to PDF 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360365.jpg" />
+  <img src="Z:/picture/008/save_picture_360365.jpg" />
 </div>
 
 
@@ -496,7 +633,7 @@ WiFi Explorer 2.0.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360280.jpg" />
+  <img src="Z:/picture/008/save_picture_360280.jpg" />
 </div>
 
 
@@ -525,7 +662,7 @@ Bubble Translate 1.1 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360159.jpg" />
+  <img src="Z:/picture/008/save_picture_360159.jpg" />
 </div>
 
 
@@ -552,7 +689,7 @@ TunesKit Video Repair 1.0.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360097.jpg" />
+  <img src="Z:/picture/008/save_picture_360097.jpg" />
 </div>
 
 
@@ -563,138 +700,6 @@ TunesKit Video Repair 1.0.0 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:636D765FB980CB7E6C21860E9391A567BA1ECEE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417272   (359975) от 19.10.2020
-
-Waves 11 Complete 11.0.60 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью законченный парк виртуальных эффектов и инструментов от A до Z наивысшего качества и с поддержкой 64-разрядных систем! С более быстрыми сканированием, загрузкой и обработкой, Waves V11 открывает новые измерения мощности высокопроизводительных плагинов. Пожалуй, самое известное имя в мире среди производителей профессиональных аудио эффектов обработки. Мастеринг, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2020Разработчик: Waves Audio Ltd.Поддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708C5745C661F7CE5B39831BB70612EA0EA9D138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417313   (359870) от 19.10.2020
-
-Waves 12 Complete v12.0.8 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полностью законченный парк виртуальных эффектов и инструментов от A до Z наивысшего качества и с поддержкой 64-разрядных систем! С более быстрыми сканированием, загрузкой и обработкой, Waves V11 открывает новые измерения мощности высокопроизводительных плагинов. Пожалуй, самое известное имя в мире среди производителей профессиональных аудио эффектов обработки. Мастеринг, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2020Разработчик: Waves Audio Ltd.Поддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425B1AC39AD7456632826F69839FC0A7AD8B567C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577230   (359611) от 17.09.2022
-
-Master of Typing - Мастер Печати 3: Практика v.3.3.14 (15.13.4) [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master of Typing создан для тех, кто хочет научиться печатать на ощупь. Многие современные люди почти живут, сидя за компьютером. Вот почему быстрая печать сейчас очень важна. Сенсорный набор текста - это метод набора текста всеми десятью пальцами без наблюдения за клавиатурой. Быстрая печать позволяет не только сэкономить время, но и уменьшить переключение внимания.Тип издания: macOS SoftwareРелиз состоялся: 03.09.2022Разработчик: © 2022 Learn & Practice Labs LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0148F401176097A05A1A6A8A2D7F9212F215438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256045   (359033) от 20.10.2018
-
-Super Eraser Pro 2.5.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Super Eraser Pro мощное программное обеспечение обработки изображений для удаления ненужных объектов, масштабирования, удаления шумов и тд.. Super Eraser Pro волшебным образом масштабирует изображение или удаляет нежелательные элементы, такие как: водяные знаки, даты, люди, здания и т.д. без изменения важного визуального контента.
-
-Программа работает на уникальном (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2018Разработчик: Art StudioПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B5B66B359007FCDDB79F1D0C644AF606834710
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255869   (359029) от 20.10.2018
-
-Tipard Mac Video Converter Ultimate 9.2.10 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359029.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы хотите скачать видео с YouTube, Vimeo и других веб-сайтов по обмену видео на Mac? Вам нужно копировать и конвертировать DVD / видео в любые популярные форматы видео, такие как MP4, FLV, AVI? Вы хотите преобразовать 4K видео в 4K / 1080p, конвертировать 2D видео в 3D-формат? Или хотите повернуть или улучшить качество видео, чтобы получить неожиданный визуальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2018Разработчик: Tipard StudioПоддерживаемая ОС: macOS 10.5 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AE52A32CB660678010C45420AC74D2694CE69E
 ```
 
 https://mybot314.ru/tekegram_catalog/

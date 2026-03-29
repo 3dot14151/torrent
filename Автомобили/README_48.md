@@ -1,3 +1,32 @@
+###  Публикация: 822881   (455336) от 29.09.2014
+
+[BMW MOTORRAD] (03.2014 29-я редакция) Иллюстрированное руководство по ремонту
+
+>>Автомобили
+>>Автомобильные мультимедийные материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455336.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD „Repair and Service Data BMW Motorrad“ (RSD) содержит технические сервисные данные с разбивкой на следующие типы информации:
+Указания по ремонту и техническому обслуживанию МОТОЦИКЛОВ BMW
+Руководства по регламентным работам
+Руководства по ремонту(   Читать дальше...   )Язык интерфейса: Английский, РусскийФормат: ISO
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7713F4AE6855798FA1E52E1384D13343D25B9E19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942567   (453901) от 01.10.2015
 
 Журнал | 5 колесо №10 (октябрь 2015) [PDF]
@@ -6,7 +35,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453901.jpg" />
+  <img src="Z:/picture/008/save_picture_453901.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453790.jpg" />
+  <img src="Z:/picture/008/save_picture_453790.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453788.jpg" />
+  <img src="Z:/picture/008/save_picture_453788.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450097.jpg" />
+  <img src="Z:/picture/008/save_picture_450097.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449666.jpg" />
+  <img src="Z:/picture/005/save_picture_449666.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448966.jpg" />
+  <img src="Z:/picture/008/save_picture_448966.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448838.jpg" />
+  <img src="Z:/picture/008/save_picture_448838.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448589.jpg" />
+  <img src="Z:/picture/008/save_picture_448589.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447337.jpg" />
+  <img src="Z:/picture/008/save_picture_447337.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447010.jpg" />
+  <img src="Z:/picture/008/save_picture_447010.jpg" />
 </div>
 
 
@@ -266,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445972.jpg" />
+  <img src="Z:/picture/008/save_picture_445972.jpg" />
 </div>
 
 
@@ -292,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445404.jpg" />
+  <img src="Z:/picture/008/save_picture_445404.jpg" />
 </div>
 
 
@@ -318,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445344.jpg" />
+  <img src="Z:/picture/008/save_picture_445344.jpg" />
 </div>
 
 
@@ -344,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444399.jpg" />
+  <img src="Z:/picture/008/save_picture_444399.jpg" />
 </div>
 
 
@@ -370,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444146.jpg" />
+  <img src="Z:/picture/008/save_picture_444146.jpg" />
 </div>
 
 
@@ -397,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443297.jpg" />
+  <img src="Z:/picture/008/save_picture_443297.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443210.jpg" />
+  <img src="Z:/picture/008/save_picture_443210.jpg" />
 </div>
 
 
@@ -450,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442933.jpg" />
+  <img src="Z:/picture/008/save_picture_442933.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441716.jpg" />
+  <img src="Z:/picture/008/save_picture_441716.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439827.jpg" />
+  <img src="Z:/picture/008/save_picture_439827.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438314.jpg" />
+  <img src="Z:/picture/008/save_picture_438314.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438196.jpg" />
+  <img src="Z:/picture/008/save_picture_438196.jpg" />
 </div>
 
 
@@ -581,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437706.jpg" />
+  <img src="Z:/picture/008/save_picture_437706.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437221.jpg" />
+  <img src="Z:/picture/008/save_picture_437221.jpg" />
 </div>
 
 
@@ -634,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437062.jpg" />
+  <img src="Z:/picture/008/save_picture_437062.jpg" />
 </div>
 
 
@@ -646,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDE4F795AE3F949A86D2FC2B592AB3D38725ECD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323685   (433894) от 05.09.2019
-
-Журнал | Alles Auto DE №9 (сентябрь 2019) [PDF] [De]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433894.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сентябрьском выпуске ALLES AUTO предлагается сравнение кем приятней водить между Honda Civic Type R и Ford Fiesta ST. Всю информацию о новой Skoda Octavia также можно найти в брошюре.
-А так же в номере: BMW 1er \u0026 3er Touring, Mercedes CLA Shooting Brake, Mercedes EQC, Renault Clio, Audi SQ8 TDI, Porsche Cayenne Coupe, Ford Mondeo Traveler Hybrid, Nissan Leaf (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A319ED0DC2BC64DC4F6AA1D48162ADD3056EDDC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

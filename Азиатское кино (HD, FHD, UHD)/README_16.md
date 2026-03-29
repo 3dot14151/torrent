@@ -1,3 +1,108 @@
+###  Публикация: 1495236   (882382) от 11.09.2021
+
+Радуга над островом Цзиньмынь / Kinmonto ni kakeru hashi / Rainbow Over Kinmon (1962) WEB-DL [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_882382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осень 1958 года. Доктор Такэй стоит на палубе грузового судна, наблюдая вдалеке тёмные очертания острова Цзиньмынь. В его голове бурлит поток воспоминаний трёхлетней давности, когда он работал в госпитале в Токио и лечил раненых солдат с линии фронта Корейской войны. Он вспоминает, как встретил женщину по имени Ли Чун, которая приехала с Тайваня, чтобы увидеть своего (   Читать дальше...   )Производство: Япония, Nikkatsu, Central Motion PicturesЖанр: Боевик, военный, драма, история, мелодрамаРежиссер: Акинори МацуАктеры: Юдзиро Исихара, Ва Ян, Идзуми Асикава, Хидэаки Нитани, Тан Баоюнь, Сиро Осака, Чиа Чи Ву, Кэн Яманоути, Йинг Ли, Коон-Чунг ЛиПеревод: Авторский (Олег Воротилин)Субтитры: АнглийскиеПродолжительность: 01:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0E7144B223106E48C8E346DCEEB827ED09D8124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495227   (882260) от 11.09.2021
+
+Врата дракона / Long men fei jia / The Flying Swords of Dragon Gate (2011) BDRip [H.264/1080p-LQ] [Open Matte]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_882260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно древней легенде каждые 60 лет сильнейшая песчаная буря смывает песок, под которым спрятан Золотой город, полный сокровищ. В ожидании бури в гостинице Врата Дракона собирается разномастная компания охотников за сокровищами Золотого города. Тут и император одной из китайских провинций и тайный министр другой провинции и две банды наемных убийц. Все они жаждут (   Читать дальше...   )Производство: Китай / Beijing Liangzi Group, Beijing Poly-bona Film Publishing Co. LtdЖанр: Боевик, ПриключенияРежиссер: Цуй ХаркАктеры: Джет Ли, Чжоу Сюнь, Чэнь Кунь, Луньмэй Квай, Юйчунь Ли, Мевис Фэн, Фан Сю-Вонг, Цзя-Хуэй Лю, Цзянькуй Сунь, Чиэнь ШэнПеревод: ДублированныйСубтитры: английскиеПродолжительность: 02:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F3D53136263C0EDBA636244C88346085CB53FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372858   (881442) от 05.04.2020
+
+Зверь / Biseuteu (2019) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_881442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двум детективам, которые терпеть друг друга не могут, приходится действовать сообща, чтобы расследовать шокирующее убийство.Производство: Корея Южная / Next Entertainment World, Studio & NewЖанр: Детектив, боевик, криминал, триллерРежиссер: Ли Джон-хоАктеры: Ли Сон-мин, Ю Джэ-мён, Чон Хе-джин, Чхве Даниель, Ким Хо-джон, Ким Бён-чхун, Ан Щи-ха, Ли Сан-хи, Ким Хон-пха, Ок Ча-ёнПеревод: Дублированный (iTunes)Субтитры: Русские (Full), Английские (Full)Продолжительность: 02:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC86CBCAF76588FDA5AF31EAAE9C0AA2E0160CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996207   (880631) от 13.03.2016
+
+Отверженные / Fong juk (2006) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Макао, 1998 год. Власть в Макао переходит от португальских колониальных властей к правительству КНР. Остров становится ареной ожесточенной борьбы за сферы влияния между местной мафией и бандитскими группировками с материка.
+На фоне этих событий и разворачивается центральный конфликт фильма: двое гонконгских киллеров прибывают на Макао, чтобы по заданию босса расправится (   Читать дальше...   )Производство: Гонконг / Media Asia Films, Milky Way Image CompanyЖанр: Боевик, Триллер, КриминалРежиссер: Джонни ТоАктеры: Энтони Вонг Чау-Санг, Френсис Нг, Саймон Ям, Ник Чунг, Ричи Рен, Рой Чунг, Джози Хо, Сует Лам, Ка Танг Лам, Сиу-Фай ЧунгПеревод: Авторский, Профессиональный (многоголосый, закадровый)Субтитры: Русские, английские (вшитые, отключаемые)Продолжительность: 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D61DD3AAE249063F8B4B62CA2D84A6CF75FF73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373371   (879925) от 06.04.2020
 
 Ужасающая одержимость / Mayaku baishun G-men: Kyofu no niku jigoku / The Horrible Obsessions (1972) WEB-DL [H.264/1080p] [VO]
@@ -6,7 +111,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879925.jpg" />
+  <img src="Z:/picture/005/save_picture_879925.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879721.jpg" />
+  <img src="Z:/picture/005/save_picture_879721.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879067.jpg" />
+  <img src="Z:/picture/005/save_picture_879067.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878939.jpg" />
+  <img src="Z:/picture/005/save_picture_878939.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878475.jpg" />
+  <img src="Z:/picture/005/save_picture_878475.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878461.jpg" />
+  <img src="Z:/picture/005/save_picture_878461.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878260.jpg" />
+  <img src="Z:/picture/005/save_picture_878260.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876710.jpg" />
+  <img src="Z:/picture/005/save_picture_876710.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876562.jpg" />
+  <img src="Z:/picture/005/save_picture_876562.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876112.jpg" />
+  <img src="Z:/picture/005/save_picture_876112.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875961.jpg" />
+  <img src="Z:/picture/008/save_picture_875961.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875775.jpg" />
+  <img src="Z:/picture/005/save_picture_875775.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875126.jpg" />
+  <img src="Z:/picture/005/save_picture_875126.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874635.jpg" />
+  <img src="Z:/picture/005/save_picture_874635.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874344.jpg" />
+  <img src="Z:/picture/005/save_picture_874344.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872862.jpg" />
+  <img src="Z:/picture/008/save_picture_872862.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870945.jpg" />
+  <img src="Z:/picture/008/save_picture_870945.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870934.jpg" />
+  <img src="Z:/picture/008/save_picture_870934.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869791.jpg" />
+  <img src="Z:/picture/008/save_picture_869791.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ J2: J Возмездие / J2: J Retribusi (2021) WEB-DL [H.264/1080p-LQ] [АVO]
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869662.jpg" />
+  <img src="Z:/picture/008/save_picture_869662.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868813.jpg" />
+  <img src="Z:/picture/008/save_picture_868813.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866464.jpg" />
+  <img src="Z:/picture/008/save_picture_866464.jpg" />
 </div>
 
 
@@ -565,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BDF4755F26B1FEB48056F09A59627A65D57749E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497315   (866459) от 21.09.2021
-
-Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастеру Ип Ману снова приходится использовать вин-чун по прямому назначению, когда бандитская группировка пытается подмять под себя местную школу.Производство: Китай, Гонконг / Golden Harvest Company, Dreams Salon Entertainment Culture, Henan Film & TV Production Group Henan Film StudioЖанр: Боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Йен, Линн Хун, Макс Чжан, Майк Тайсон, Патрик Там, Карена Нг, Луис Чхён, Кент Чэн, Люн Ка-Янь, Дэнни ЧаньПеревод: Дублированный , Многоголосый профессиональныйЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98927D3C4DB0FF38F06C959E61F76B606C876E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497349   (864868) от 22.09.2021
-
-Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастеру Ип Ману снова приходится использовать вин-чун по прямому назначению, когда бандитская группировка пытается подмять под себя местную школу.Производство: Китай, Гонконг / Golden Harvest Company, Dreams Salon Entertainment Culture, Henan Film & TV Production Group Henan Film StudioЖанр: Боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Йен, Линн Хун, Макс Чжан, Майк Тайсон, Патрик Там, Карена Нг, Луис Чхён, Кент Чэн, Люн Ка-Янь, Дэнни ЧаньПеревод: Дублированный , Многоголосый профессиональныйЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6C51447CB7CBA05FB9585B367A0309A354AC53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497482   (864866) от 22.09.2021
-
-Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастеру Ип Ману снова приходится использовать вин-чун по прямому назначению, когда бандитская группировка пытается подмять под себя местную школу.Производство: Китай, Гонконг / Golden Harvest Company, Dreams Salon Entertainment Culture, Henan Film & TV Production Group Henan Film StudioЖанр: Боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Йен, Линн Хун, Макс Чжан, Майк Тайсон, Патрик Там, Карена Нг, Луис Чхён, Кент Чэн, Люн Ка-Янь, Дэнни ЧаньПеревод: Дублированный, Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54CE0CAF98BE60D9D491B01F9CDBFCCAD226E9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497467   (864788) от 22.09.2021
-
-Ип Ман 3 / Ip Man 3 / Yip Man 3 (2015) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастеру Ип Ману снова приходится использовать вин-чун по прямому назначению, когда бандитская группировка пытается подмять под себя местную школу.Производство: Китай, Гонконг / Golden Harvest Company, Dreams Salon Entertainment Culture, Henan Film & TV Production Group Henan Film StudioЖанр: Боевик, драма, биография, историяРежиссер: Уилсон ИпАктеры: Донни Йен, Линн Хун, Макс Чжан, Майк Тайсон, Патрик Там, Карена Нг, Луис Чхён, Кент Чэн, Люн Ка-Янь, Дэнни ЧаньПеревод: Дублированный, Многоголосый профессиональный, АвторскийЯзык озвучки: Русский, КитайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE9E77D064259A1CDCB97A020B6175CB1EA6D525
 ```
 
 https://mybot314.ru/tekegram_catalog/

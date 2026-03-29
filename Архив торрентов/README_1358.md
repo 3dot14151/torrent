@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746355.jpg" />
+  <img src="Z:/picture/008/save_picture_746355.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746345.jpg" />
+  <img src="Z:/picture/008/save_picture_746345.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinX HD Video Converter Deluxe 5.9.4 Build on Apr 1 2016 RePack by FoXtrot [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746340.jpg" />
+  <img src="Z:/picture/008/save_picture_746340.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Display Driver Uninstaller 15.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746324.jpg" />
+  <img src="Z:/picture/008/save_picture_746324.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Sticky Password Premium 8.2.1.228 (промо Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746317.jpg" />
+  <img src="Z:/picture/008/save_picture_746317.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ EaseUS Todo Backup for Mac 3.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746314.jpg" />
+  <img src="Z:/picture/008/save_picture_746314.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ TechTool Pro 11.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746307.jpg" />
+  <img src="Z:/picture/008/save_picture_746307.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Zero + portable 0.18.0.21 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746306.jpg" />
+  <img src="Z:/picture/008/save_picture_746306.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PortExpert +  Portable 1.7.5.15 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746303.jpg" />
+  <img src="Z:/picture/008/save_picture_746303.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746263.jpg" />
+  <img src="Z:/picture/008/save_picture_746263.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746255.jpg" />
+  <img src="Z:/picture/008/save_picture_746255.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ The KMPlayer 4.0.8.1 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746251.jpg" />
+  <img src="Z:/picture/008/save_picture_746251.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Picosmos Tools 1.5.1 Portable by poni-koni [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746243.jpg" />
+  <img src="Z:/picture/008/save_picture_746243.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Viber 10.0.0.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746216.jpg" />
+  <img src="Z:/picture/008/save_picture_746216.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ BlueStacks Tweaker 5.10.2 beta Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746203.jpg" />
+  <img src="Z:/picture/008/save_picture_746203.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ WhatsApp 0.3.2043 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746202.jpg" />
+  <img src="Z:/picture/008/save_picture_746202.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746176.jpg" />
+  <img src="Z:/picture/008/save_picture_746176.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Readiris Corporate 15.2.0 Build 8693 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746172.jpg" />
+  <img src="Z:/picture/008/save_picture_746172.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746170.jpg" />
+  <img src="Z:/picture/008/save_picture_746170.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ PowerISO 6.6 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746165.jpg" />
+  <img src="Z:/picture/008/save_picture_746165.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ MediaHuman YouTube Downloader 3.9.9.65 (1301) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746150.jpg" />
+  <img src="Z:/picture/008/save_picture_746150.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Total Commander Ultima Prime 8.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746147.jpg" />
+  <img src="Z:/picture/008/save_picture_746147.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Phase One Capture One Pro 22 15.0.1.4 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746146.jpg" />
+  <img src="Z:/picture/008/save_picture_746146.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ ActivePresenter Professional Edition 7.2.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746129.jpg" />
+  <img src="Z:/picture/008/save_picture_746129.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Allavsoft Video Downloader Converter 3.15.6.6666 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746128.jpg" />
+  <img src="Z:/picture/008/save_picture_746128.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Juvenile - Project English (2001) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746120.jpg" />
+  <img src="Z:/picture/008/save_picture_746120.jpg" />
 </div>
 
 

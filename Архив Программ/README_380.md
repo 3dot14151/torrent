@@ -6,7 +6,7 @@ SeaMonkey 2.53.9.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852642.jpg" />
+  <img src="Z:/picture/008/save_picture_852642.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Paint.NET 4.3.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852639.jpg" />
+  <img src="Z:/picture/008/save_picture_852639.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CrystalDiskInfo 8.12.9 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852637.jpg" />
+  <img src="Z:/picture/008/save_picture_852637.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ OBS Studio 27.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852634.jpg" />
+  <img src="Z:/picture/008/save_picture_852634.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ CrystalDiskInfo 8.12.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852631.jpg" />
+  <img src="Z:/picture/008/save_picture_852631.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Inkscape 1.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852630.jpg" />
+  <img src="Z:/picture/008/save_picture_852630.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Stellarium 0.21.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852628.jpg" />
+  <img src="Z:/picture/008/save_picture_852628.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ CyberLink PowerDVD Ultra v10.0.2701 Ru/En PORTABLE
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852554.jpg" />
+  <img src="Z:/picture/008/save_picture_852554.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ CyberLink PowerDVD 10.0 Build 2701.51 Mark II Ultra [Multi\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852459.jpg" />
+  <img src="Z:/picture/008/save_picture_852459.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Wise Folder Hider Pro 4.3.9 [Multi/Ru] (акция "Comss")
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852442.jpg" />
+  <img src="Z:/picture/008/save_picture_852442.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Wallpaper Engine 1.7.12 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852433.jpg" />
+  <img src="Z:/picture/008/save_picture_852433.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ MAGIX Vegas Pro 19.0 Build 381 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852427.jpg" />
+  <img src="Z:/picture/008/save_picture_852427.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ CyberLink PowerDVD 10.0.2701 Mark II Ultra (RePack by Lisabon)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852366.jpg" />
+  <img src="Z:/picture/008/save_picture_852366.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Adobe Acrobat Pro DC 2021.007.20095 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852315.jpg" />
+  <img src="Z:/picture/008/save_picture_852315.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Mail.Ru Облако 15.04.0211 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852253.jpg" />
+  <img src="Z:/picture/008/save_picture_852253.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Mozilla Firefox 46.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852199.jpg" />
+  <img src="Z:/picture/008/save_picture_852199.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ PicturesToExe Deluxe 9.0.2 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852173.jpg" />
+  <img src="Z:/picture/008/save_picture_852173.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ GoldWave 6.27 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852091.jpg" />
+  <img src="Z:/picture/008/save_picture_852091.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852045.jpg" />
+  <img src="Z:/picture/008/save_picture_852045.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ TSR Watermark Image Software Pro 3.5.5.6 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852040.jpg" />
+  <img src="Z:/picture/008/save_picture_852040.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ ThunderSoft Flash to Video Converter 2.3.8.0 RePack (& Portable) by 78Sergey-Din
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852038.jpg" />
+  <img src="Z:/picture/008/save_picture_852038.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Ultra Adware Killer 4.2.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852037.jpg" />
+  <img src="Z:/picture/008/save_picture_852037.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Tipard Video Converter Ultimate 9.0.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851987.jpg" />
+  <img src="Z:/picture/008/save_picture_851987.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Tipard Video Enhancer 1.0.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851985.jpg" />
+  <img src="Z:/picture/008/save_picture_851985.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Tipard All Music Converter 7.1.52 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851971.jpg" />
+  <img src="Z:/picture/008/save_picture_851971.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Icecream Screen Recorder Pro 4.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851967.jpg" />
+  <img src="Z:/picture/008/save_picture_851967.jpg" />
 </div>
 
 

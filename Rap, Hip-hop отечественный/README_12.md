@@ -6,7 +6,7 @@ bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245817.jpg" />
+  <img src="Z:/picture/004/save_picture_245817.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242092.jpg" />
+  <img src="Z:/picture/004/save_picture_242092.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242064.jpg" />
+  <img src="Z:/picture/004/save_picture_242064.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-H
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241976.jpg" />
+  <img src="Z:/picture/004/save_picture_241976.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241737.jpg" />
+  <img src="Z:/picture/004/save_picture_241737.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241733.jpg" />
+  <img src="Z:/picture/004/save_picture_241733.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Booker - Выбери жизнь (2021) [MP3|320 Kbps] <Rap, Alternative, Punk>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241565.jpg" />
+  <img src="Z:/picture/004/save_picture_241565.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ ChipaChip & Sam Wick - I'm Sorry (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241472.jpg" />
+  <img src="Z:/picture/004/save_picture_241472.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241465.jpg" />
+  <img src="Z:/picture/004/save_picture_241465.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241454.jpg" />
+  <img src="Z:/picture/004/save_picture_241454.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Kuba - Albomba (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241435.jpg" />
+  <img src="Z:/picture/004/save_picture_241435.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ ZippO - Фитиль 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241419.jpg" />
+  <img src="Z:/picture/004/save_picture_241419.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241401.jpg" />
+  <img src="Z:/picture/004/save_picture_241401.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241391.jpg" />
+  <img src="Z:/picture/004/save_picture_241391.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Loqiemean - Контроль (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241382.jpg" />
+  <img src="Z:/picture/004/save_picture_241382.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241375.jpg" />
+  <img src="Z:/picture/004/save_picture_241375.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ OBLADAET - PLAYERS CLUB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241365.jpg" />
+  <img src="Z:/picture/004/save_picture_241365.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241350.jpg" />
+  <img src="Z:/picture/004/save_picture_241350.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241342.jpg" />
+  <img src="Z:/picture/004/save_picture_241342.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Sagath - Necrotica 2 (Remix Pack) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241317.jpg" />
+  <img src="Z:/picture/004/save_picture_241317.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Jahmal TGK - СНЕГОПАД Underground (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241311.jpg" />
+  <img src="Z:/picture/004/save_picture_241311.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240058.jpg" />
+  <img src="Z:/picture/004/save_picture_240058.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Sagath - Necrotica 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235342.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Kussani - жизнь наоборот (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235307.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233523.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232857.jpg" />
 </div>
 
 

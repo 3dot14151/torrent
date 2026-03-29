@@ -1,3 +1,55 @@
+###  Публикация: 1556949   (557079) от 11.06.2022
+
+Испания. Солнечное королевство / Aerial Spain (2013) WEB-DL [H.264/1080p] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557079.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Испании есть то, что отличает её от всех других мест на земле. Это солнце, которое светит почти 365 дней в году. Оно нагревает песок на пляжах, проникает в морскую бездну, мерцает в долинах. Его лучи озаряют города и деревни Испании, превращая эту страну в настоящее солнечное королевство.Производство: Испания, Four Luck BananaЖанр: документальный, путешествия, историяРежиссер: Рубен АрталехоПеревод: дублированный (Первый ТВЧ)Субтитры: английскиеПродолжительность: 3x ~00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6AAEEB827B1B9FB9A24B1DA7A7E8CFB1885B54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556985   (556436) от 12.06.2022
+
+Прогулка по Калининграду (2010) TVRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас умеет нажатием нескольких кнопок прокладывать во всемирной паутине путь к нужной информации. Процесс этот называется маршрутизацией баз данных. А знаете ли вы, что решение загадки о кенигсбергских мостах подтолкнуло члена Петербургской академии наук Леонарда Эйлера к созданию основ теории такой маршрутизации? До второй мировой войны Кенигсбергом назывался (   Читать дальше...   )Производство: Россия, Russian Travel Guide TVЖанр: документальный, научно-познавательный, история, география, путешествиеРежиссер: Сергей ДудкинЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C84F2B82AD3256BD29F8D61343845B9A2DFB69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557281   (556105) от 13.06.2022
 
 Дикие люди. Новая Зеландия / Where the Wild Men Are (2020) HDTV [H.264/1080i]
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556105.jpg" />
+  <img src="Z:/picture/008/save_picture_556105.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552859.jpg" />
+  <img src="Z:/picture/008/save_picture_552859.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552717.jpg" />
+  <img src="Z:/picture/008/save_picture_552717.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Viasat Nature: Тайны мировых озер / The Secret Life of Lakes (La
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552286.jpg" />
+  <img src="Z:/picture/008/save_picture_552286.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551789.jpg" />
+  <img src="Z:/picture/008/save_picture_551789.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551009.jpg" />
+  <img src="Z:/picture/008/save_picture_551009.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550943.jpg" />
+  <img src="Z:/picture/008/save_picture_550943.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550937.jpg" />
+  <img src="Z:/picture/008/save_picture_550937.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550934.jpg" />
+  <img src="Z:/picture/008/save_picture_550934.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549057.jpg" />
+  <img src="Z:/picture/008/save_picture_549057.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546456.jpg" />
+  <img src="Z:/picture/008/save_picture_546456.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546431.jpg" />
+  <img src="Z:/picture/008/save_picture_546431.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541912.jpg" />
+  <img src="Z:/picture/008/save_picture_541912.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541434.jpg" />
+  <img src="Z:/picture/008/save_picture_541434.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541426.jpg" />
+  <img src="Z:/picture/008/save_picture_541426.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541013.jpg" />
+  <img src="Z:/picture/008/save_picture_541013.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540508.jpg" />
+  <img src="Z:/picture/008/save_picture_540508.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538848.jpg" />
+  <img src="Z:/picture/008/save_picture_538848.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538409.jpg" />
+  <img src="Z:/picture/008/save_picture_538409.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537377.jpg" />
+  <img src="Z:/picture/008/save_picture_537377.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536540.jpg" />
+  <img src="Z:/picture/008/save_picture_536540.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536453.jpg" />
+  <img src="Z:/picture/008/save_picture_536453.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536432.jpg" />
+  <img src="Z:/picture/008/save_picture_536432.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535157.jpg" />
+  <img src="Z:/picture/008/save_picture_535157.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AF38228D09D211586A8DEEDE5D9956812071DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533022   (534629) от 09.08.2012
-
-Взгляд сверху. Изумрудный остров. Путешествие из Донегола в Керри / Sky View. The Emerald Isle. A Journey from Donegal to Kerry (2007) HDTVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не всегда и не каждому туристу удается увидеть новую для него страну с высоты облаков и птичьего полета. Увидеть этапы и геометрию застройки городов. Окинуть одним взглядом горный хребет или береговую линию моря.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4C301CB62BFD797A45AD25818CF990038F51687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533021   (534430) от 09.08.2012
-
-Взгляд сверху. Сердце Италии. Путешествие из Флоренции в Рим / Sky View. he Heart Of Italy. A Journey from The Florence to Rome (2007) HDTVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не всегда и не каждому туристу удается увидеть новую для него страну с высоты облаков и птичьего полета. Увидеть этапы и геометрию застройки городов. Окинуть одним взглядом горный хребет или береговую линию моря.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E50C956F76DF933941FD3CEE1EC4982ECA2660
 ```
 
 https://mybot314.ru/tekegram_catalog/

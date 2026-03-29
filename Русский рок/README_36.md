@@ -1,3 +1,119 @@
+###  Публикация: 1282429   (745158) от 12.02.2019
+
+7Б - Атмосфера (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем уру-ру! Вот и пришло время подытожить полувековой итог моего земного пути этим Атмосферным музыкальным альбомом и представить его вам в качестве подарка и ответов на всё! Хочу выразить огромное спасибо и низкий поклон всем моим любимым и родным людям и дорогим уважаемым коллегам, друзьям и поклонникам. СПАСИБО за вашу Любовь, Музу, безграничное терпение, заботу, (   Читать дальше...   )1. Рок жив! (feat. Влад Демьян)
+2. ВПЭН (Верный пёс этого неба)
+3. Сны весны
+4. Ночное лето(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E441C4A940D3E09CB31A849997360B911B6232D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020634   (745137) от 26.05.2016
+
+Тайм-Аут - Всё лучшее в одном (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Люди как люди
+02. Я люблю кататься
+03. Осколки зла
+04. Буратино(   Читать дальше...   )Жанр: RockПродолжительность: 01:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53506E4FA604E96686304A9D0526C4A8A105AB57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217256   (744763) от 03.04.2018
+
+7000$ - Цена победы (2018) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цена победы
+02. Человек человеку волк
+03. Королевство теней
+04. Голоса звучат(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208075A344DF22974623EAB6494AB9F7DF103273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217277   (744522) от 03.04.2018
+
+План Ломоносова - Альбом №4 (2018) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зубодробительный, оглушительный и в тоже время романтичный новый альбом от "Плана Ломоносова", который все мы ждали 4 года. После экспериментов с Маяковским мы сделали по-панковски простой, добротный и душевный альбом. Рекомендуется к прослушиванию на предельной громкости!45. Москва-Питер
+46. Калинов Гр.Об.
+47. Гаражная лирика
+48. Ни к чему(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42EBA69B444644C6A03831C3EC8395D819E1723B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282690   (743738) от 13.02.2019
 
 Nagart - Секреты оборотня (2019) [MP3|320 Kbps] <Punk Rock>
@@ -6,7 +122,7 @@ Nagart - Секреты оборотня (2019) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743738.jpg" />
+  <img src="Z:/picture/008/save_picture_743738.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ PunKrot - Д.А.С.Т. (2015) [MP3|320 кб/с]<Punk-Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743487.jpg" />
+  <img src="Z:/picture/008/save_picture_743487.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743363.jpg" />
+  <img src="Z:/picture/008/save_picture_743363.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742705.jpg" />
+  <img src="Z:/picture/008/save_picture_742705.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ Zazemlenie - Почти в одиночестве. Часть 2 (2018) [MP3|320 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742398.jpg" />
+  <img src="Z:/picture/008/save_picture_742398.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742192.jpg" />
+  <img src="Z:/picture/008/save_picture_742192.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Louna - Колыбельная / Лопасти / Так / Другие (2018) 4
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742050.jpg" />
+  <img src="Z:/picture/008/save_picture_742050.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740743.jpg" />
+  <img src="Z:/picture/008/save_picture_740743.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739113.jpg" />
+  <img src="Z:/picture/008/save_picture_739113.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ Garlic Kings - Громко · Крепко · Честно (2022) [MP3|320 Kbps
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739026.jpg" />
+  <img src="Z:/picture/008/save_picture_739026.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738433.jpg" />
+  <img src="Z:/picture/008/save_picture_738433.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737425.jpg" />
+  <img src="Z:/picture/008/save_picture_737425.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737376.jpg" />
+  <img src="Z:/picture/008/save_picture_737376.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736905.jpg" />
+  <img src="Z:/picture/008/save_picture_736905.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ VA - Полигон Records. Лучшее 2021 [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736884.jpg" />
+  <img src="Z:/picture/008/save_picture_736884.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736873.jpg" />
+  <img src="Z:/picture/008/save_picture_736873.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736187.jpg" />
+  <img src="Z:/picture/008/save_picture_736187.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ Stay Away - Punk Rock Matters (2022) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735865.jpg" />
+  <img src="Z:/picture/008/save_picture_735865.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734966.jpg" />
+  <img src="Z:/picture/008/save_picture_734966.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ AYOKI - Дети Света (2019) [MP3|320 kbps] <Alternative Metal, Female Voc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734798.jpg" />
+  <img src="Z:/picture/008/save_picture_734798.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734762.jpg" />
+  <img src="Z:/picture/008/save_picture_734762.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734562.jpg" />
+  <img src="Z:/picture/008/save_picture_734562.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:806EAF8D958E0875C575AABBFE4D662B200843A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528852   (733979) от 03.02.2022
-
-Элизиум - 8 альбомов, 8 синглов, 6 Live's, 3 сборника, 1 Сплит (1998-2021) [MP3|320 kbps] <Cosmos-Rock, Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733979.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Элизиум» — российская рок-группа из Нижнего Новгорода, основанная её бас-гитаристом и лидером Дмитрием Кузнецовым в 1995 году. За историю существования группы в её составе сменилось множество участников; помимо её лидера Дмитрия Кузнецова, наиболее старым из них, остающимся в группе до сих пор, является вокалист Александр Телехов (в составе с 1997 года). В настоящее (   Читать дальше...   )1998 - Домой!
-2002 - Все острова
-2003 - Космос
-2005 - На окраинах вселеннойЖанр: Cosmos-Rock, Punk-RockПродолжительность: 19:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2005984CF23C8B0C6F5B56D5936CB3C042907A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528943   (733566) от 04.02.2022
-
-Пётр Налич - Vivamus (2022) [MP3|320 Kbps] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733566.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Izza Love
-2. Sampo
-3. Бури
-4. За море(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081F19AD8D8AE6BCBC1944823CE5792E5C96753F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528942   (733542) от 04.02.2022
-
-ГОРШЕНЕВ - Фауст (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733542.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пролог на небесах
-2. Духи
-3. Знакомство с Мефистофелем
-4. Бес огня(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5AD22A7AF9BDD54BC508F814C65210557E7269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529253   (733066) от 05.02.2022
-
-The Чиж & Co - На поле танки грохотали (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На поле танки грохотали
-2. Солдат на привале
-3. Тучи над городом встали
-4. Вот пуля просвистела... (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FA64D4797EACEFA31E06861F8E361086CCE32E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

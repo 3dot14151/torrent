@@ -1,3 +1,81 @@
+###  Публикация: 1840646   (1047322) от 06.12.2025
+
+Midnight Scenes: The Nanny (2021) [En] (1.0a) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1047322.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Няня" - это короткая интерактивная история ужасов о сверхъестественном. Следуйте за братьями и сестрами Оливером и Тиной в их поисках своей няни после того, как она исчезла посреди ночи. Добро пожаловать в новое измерение ужаса. Добро пожаловать в "Полуночные сцены". В сегодняшнем эпизоде "Полуночных сцен" мы следим за Оливером и Тиной, (   Читать дальше...   )Тип издания: LicenseРазработчик: White Blanket GamesЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59FD3D98B39346CCC7AEF8E9FD445F69BAF90AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840641   (1047321) от 06.12.2025
+
+Midnight Scenes Episode 2 (2020) [Ru/Multi] (1.19a) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1047321.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сегодняшней серии «Полуночных сцен» мы с доктором Ричардом П. Гриффином отправимся в самый ужасный полет в его жизни. Вы попали в измерение ужаса. Добро пожаловать в Midnight Scenes. Погасите свет и окунитесь в таинственный мир Midnight Scenes: The Goodbye Note. Знакомьтесь с миром игры, решайте загадки, очень сильно бойтесь. Атмосферный черно-белый пиксельный (   Читать дальше...   )Тип издания: LicenseРазработчик: White Blanket GamesЖанр: Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72A769D12E34077E322FC75C16001445932B3CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840636   (1047320) от 06.12.2025
+
+The Librarian (2020) [Ru/Multi] (1.03a) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1047320.jpg" />
+</div>
+
+
+###  Подробнее
+
+В библиотеку Лиз пробралось что-то неизведанное. Ей нужно все выяснить. Она же библиотекарь, в конце-то концов. В библиотеке что-то не так. Налейте себе чашечку кофе и насладитесь таинственным миром игры Tihe Librarian. Исследуйте, решайте загадки и спасите библиотеку! Кропотливо прорисованный колоритный пиксель-арт. Много загадок для вашего развлечения. Атмосферный (   Читать дальше...   )Тип издания: LicenseРазработчик: White Blanket GamesЖанр: Приключенческие игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651AD829CAF8C53F570499AEB6C200292B3975CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840332   (1047305) от 04.12.2025
 
 Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack seleZen
@@ -6,7 +84,7 @@ Detroit: Become Human (2020) [Ru/Multi] (12158144) Repack seleZen
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047305.jpg" />
+  <img src="Z:/picture/005/save_picture_1047305.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Disney Dreamlight Valley (2023) [Ru/Multi] (1.20.2.42/dlc) Repack Other s [Ultim
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047300.jpg" />
+  <img src="Z:/picture/005/save_picture_1047300.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Silly Polly Beast (2025) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047065.jpg" />
+  <img src="Z:/picture/005/save_picture_1047065.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (739124) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046972.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Please Be Happy (2022) [En ] (2.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046863.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Galador: The Prince and the Coward / Галадор: Проклятие Прин
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046734.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Split Fiction (2025) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046712.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ MiSide (2024) [Ru/Multi] (0.93L) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046675.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Myst (2021) [Ru/Multi] (3.0.9) Repack Necros [VR]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046639.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Disney Villains Cursed Cafe (2025) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046627.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Fran Bow (2015) [Ru/Multi] (11189293) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046556.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Riven (2024) [Ru/Multi] (1.7.5) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046555.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Sable (2021) [Multi] (4.3.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046373.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Interrogation: You Will Be Deceived (2019) [En] (1.1.9.a1704342) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046307.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ September 7th (2023) [Ru/En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045614.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Children of Silentown (2023) [Ru/Multi] (1.0.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045449.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ My Grandparents' Christmas Mystery (2022) [En] (Build 10272844) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045356.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045009.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ American Fugitive (2019) [Ru/Multi] (1.1.19095) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043114.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Remothered: Broken Porcelain (2020) [Ru/Multi] (1.4.5.1) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042642.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ The Book of Bondmaids (2021) [Ru/Multi] (1.84/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042577.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Walking Dead: The Telltale Definitive Series (2020) [Ru/Multi] (1.6/dlc) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042374.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ DARQ (2019) [Ru/Multi] (2.3.1/dlc) License GOG [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042210.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ DARQ – игра про мальчика по имени Ллойд, котор
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:246C3BB1A7B3D576110FC305D72CE7C5BA75B268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071003   (1041225) от 11.02.2023
-
-Twinsen's Little Big Adventure Classic / Relentless: Twinsen's Adventure (1994) [Multi] (3.2.3.2/dlc) License GOG
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра выполнена в псевдо-трёхмерной изометрической перспективе. Все персонажи и транспортные средства в игре состоят из полигонов, что позволяет свободно вращать и передвигать их. Игровой мир делится на сцены - небольшие части игры, которые активны в данный момент. Когда игрок покидает сцену, игра автоматически сохраняется. После выполнения некоторых заданий игроку (   Читать дальше...   )Тип издания: LicenseРазработчик: Adeline Software InternationalЖанр: Приключение, Экшны, ГоловоломкаЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8D0CF2A17C8791C37FBE6CFEFCFD0EA27F9DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609896   (1040965) от 12.02.2023
-
-GRUNND (2023) [En] (1.016d) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040965.jpg" />
-</div>
-
-
-###  Подробнее
-
-GRUNND - это уникальная приключенческая игра с запоминающейся визуальной стилистикой и глубоким, продуманным сюжетом. В конец рабочего дня главный герой садится в поезд и безуспешно пытается бороться со сном. Открыв глаза мужчина понимает, что проехал свою станцию и судорожно спрыгивает на первой попавшейся станции. Неизвестный ранее город кажется абсолютно обычным, (   Читать дальше...   )Тип издания: LicenseРазработчик: SEKTAHOUSEЖанр: Приключeние, Квeст, ДрaмаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD4120D8682033781CE54EBFA3B27BCCECCFDA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613791   (1039218) от 19.02.2023
-
-Fear of the Dark (2023) [Ru/Multi] (Build 10576095) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сначала ты спрашиваешь себя: “Где я? Что я здесь делаю?” Но совсем скоро тебя начинает волновать лишь один вопрос - “Как мне отсюда выбраться и спастись?!” Запутанные катакомбы внешне вполне знакомого здания сбивают с толку, а темнота и жуткие находки вселяют настоящий ужас. Кто жил здесь? Что за проклятье настигло несчастного отца-одиночку? Что стало с его сыном? (   Читать дальше...   )Тип издания: RepackРазработчик: UltramarineGamesЖанр: Adventure (Horror), 1st Person, 3DЯзык субтитров: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B984BBEC619814863294C4284DB7BD826A1F04AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

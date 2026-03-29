@@ -1,3 +1,55 @@
+###  Публикация: 942434   (453739) от 01.10.2015
+
+Журнал | В мире науки №10 (октябрь 2015) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_453739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «В мире науки» - это "Scientific American" на русском языке. Издание адресовано как научной и технической интеллигенции, так и широкому кругу образованных читателей, стремящихся быть в курсе последних достижений мировой научной мысли. На его страницах активно обсуждаются наиболее актуальные проблемы современной науки, вопросы ее места и роли в современном (   Читать дальше...   )Жанр: Научно-популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A46DF86601EE16F18E27A21BF2C9D6AC63E893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551606   (452972) от 24.09.2012
+
+Журнал | В мире науки №10 [октябрь 2012] [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452972.jpg" />
+</div>
+
+
+###  Подробнее
+
+усская версия самого известного в мире ежемесячного научного обзорного журнала «SCIENTIFIC AMERICAN». Русская версия-это перевод американского номера с дополнением статей российских ученых. Издание адресовано как научной и технической интеллигенции, так и широкому кругу образованных читателей. На страницах журнала активно обсуждаются наиболее актуальные проблемы современной науки, вопросы ее места и роли в современном мире, ответственности ученых за судьбы человечества, взаимодействия науки с обществом и государством. Публикуются также наиболее интересные статьи ведущих российских ученых, новости науки и научной жизни, рецензии на книги.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B22828DD12C35DE8EF596B172B65714EFF7C16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551443   (452807) от 24.09.2012
 
 Журнал | Зарубежное военное обозрение №8 [август 2012] [PDF]
@@ -6,7 +58,7 @@
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452807.jpg" />
+  <img src="Z:/picture/008/save_picture_452807.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451637.jpg" />
+  <img src="Z:/picture/008/save_picture_451637.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451495.jpg" />
+  <img src="Z:/picture/008/save_picture_451495.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450933.jpg" />
+  <img src="Z:/picture/008/save_picture_450933.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450736.jpg" />
+  <img src="Z:/picture/008/save_picture_450736.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450635.jpg" />
+  <img src="Z:/picture/008/save_picture_450635.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450617.jpg" />
+  <img src="Z:/picture/008/save_picture_450617.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450452.jpg" />
+  <img src="Z:/picture/008/save_picture_450452.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449533.jpg" />
+  <img src="Z:/picture/008/save_picture_449533.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448742.jpg" />
+  <img src="Z:/picture/008/save_picture_448742.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448488.jpg" />
+  <img src="Z:/picture/008/save_picture_448488.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445064.jpg" />
+  <img src="Z:/picture/008/save_picture_445064.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444733.jpg" />
+  <img src="Z:/picture/008/save_picture_444733.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444657.jpg" />
+  <img src="Z:/picture/008/save_picture_444657.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444507.jpg" />
+  <img src="Z:/picture/008/save_picture_444507.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442948.jpg" />
+  <img src="Z:/picture/008/save_picture_442948.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440374.jpg" />
+  <img src="Z:/picture/008/save_picture_440374.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439254.jpg" />
+  <img src="Z:/picture/008/save_picture_439254.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436093.jpg" />
+  <img src="Z:/picture/008/save_picture_436093.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435243.jpg" />
+  <img src="Z:/picture/008/save_picture_435243.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435234.jpg" />
+  <img src="Z:/picture/008/save_picture_435234.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432903.jpg" />
+  <img src="Z:/picture/008/save_picture_432903.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432897.jpg" />
+  <img src="Z:/picture/008/save_picture_432897.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431444.jpg" />
+  <img src="Z:/picture/008/save_picture_431444.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B59B86D6E640FD1958AA76D21608DE7AEFD5E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165861   (430461) от 14.09.2017
-
-Журнал | В мире науки №7 (июль 2017) [PDF, DJVU]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российское издание Scientific American, которое адресовано как научной и технической интеллигенции, так и широкому кругу образованных читателей, стремящихся быть в курсе последних достижений мировой научной мысли. На его страницах активно обсуждаются наиболее актуальные проблемы современной науки, вопросы ее места и роли в современном мире, ответственности ученых (   Читать дальше...   )Жанр: Научно-информационный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EFA11BCCCDD305F7E9DD7592DF63CE0773191D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165870   (430455) от 14.09.2017
-
-Журнал | В мире науки №5-6 (май-июнь 2017) [PDF, DJVU]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российское издание Scientific American, которое адресовано как научной и технической интеллигенции, так и широкому кругу образованных читателей, стремящихся быть в курсе последних достижений мировой научной мысли. На его страницах активно обсуждаются наиболее актуальные проблемы современной науки, вопросы ее места и роли в современном мире, ответственности ученых (   Читать дальше...   )Жанр: Научно-информационный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93DA3671E8EBAEA233E72359625A21B252C10A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

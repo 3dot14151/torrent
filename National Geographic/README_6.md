@@ -1,3 +1,82 @@
+###  Публикация: 733136   (795250) от 29.04.2016
+
+NG. Храм фашизма / Nazi Temple of DOOM (2012) HDTVRip [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795250.jpg" />
+</div>
+
+
+###  Подробнее
+
+2001-ый год. В глубинах одного из Баварских озёр сделано невероятное открытие - найдена золотая чаша весом около 10 килограмм, которая использовалась для проведения нацистами мистических ритуалов. Все, кто прикасался к этому артефакту, отмечали его невероятную и необъяснимую мощь... Способна ли эта золотая чаша раскрыть одну из величайших тайн нацистов и объяснить (   Читать дальше...   )Жанр: Документальный, познавательный, история, военный, политика, исследованиеПеревод: Одноголосый закадровый (профессиональный, студия АРК-ТВ)Продолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3031F1A5B02D7CB54D430440291FB42454350DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509764   (793855) от 13.11.2021
+
+Индийский леопард / India's Wild Leopards (2020) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кошачьи - одно из самых разнообразных семейств хищников на Земле. И в Индии их больше, чем в любой другой стране мира. Но с развитием городов диким кошкам Индии грозит серьезная опасность. Знакомьтесь, два особых вида леопардов, живущих в самых отделенных уголках страны. Из-за их силы, выносливости и ума они считаются самыми ловкими большими кошками в мире. Однако (   Читать дальше...   )Производство: Индия, Felis Creations Private Limited, National GeographicЖанр: Документальный, флора, фаунаРежиссер: Сандеш КадурПеревод: Одноголосый профессиональный (Велес)Субтитры: АнглийскиеПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D2B5E3731DD4C4ABF938F20AA9018CCEFF01572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200740   (793690) от 23.01.2018
+
+NG: Карта ада / Map of Hell (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный актер Дэнни Трехо исследует секреты человеческого воображения. Он анализирует страшные видения, созданные за три тысячи лет, начиная от древней Греции, через средневековую христианскую Европу, до современной Америки. Современная графика позволит зрителям перейти в царство тьмы.
+Дэнни Трехо спрашивает - "Что случается с плохими парнями после смерти?", (   Читать дальше...   )Производство: США, National Geographic StudiosЖанр: Документальный, история, религияРежиссер: Джулиан ДжонсПеревод: Двуголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838AC5452C6752423C8B51EC4914A57F31825454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122704   (793370) от 06.04.2017
 
 NG: В Поисках гигантского осьминога / Search for the Giant Octopus (2009) HDTV [H.264/1080i-LQ]
@@ -6,7 +85,7 @@ NG: В Поисках гигантского осьминога / Search for the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793370.jpg" />
+  <img src="Z:/picture/008/save_picture_793370.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ NGW: Сесил: Наследие короля / Cecil: The Legacy of a King (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792749.jpg" />
+  <img src="Z:/picture/008/save_picture_792749.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2015) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792713.jpg" />
+  <img src="Z:/picture/008/save_picture_792713.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ NG: Мегазаводы / Megafactories (2011-2012) HDTVRip [H.264/720p] (5 с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792700.jpg" />
+  <img src="Z:/picture/008/save_picture_792700.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ NG: Спасти Нотр-Дам / Saving Notre-Dame / Sauver Notre-Dame (2020) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792431.jpg" />
+  <img src="Z:/picture/008/save_picture_792431.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791776.jpg" />
+  <img src="Z:/picture/008/save_picture_791776.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ NGW: Дикие охотники. Волки и шакалы / Wild Hunters. Wol
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791201.jpg" />
+  <img src="Z:/picture/008/save_picture_791201.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791194.jpg" />
+  <img src="Z:/picture/008/save_picture_791194.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791193.jpg" />
+  <img src="Z:/picture/008/save_picture_791193.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ NGW: Дикие охотники. Медведи / Wild Hunters. Bears (2019) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791190.jpg" />
+  <img src="Z:/picture/008/save_picture_791190.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791144.jpg" />
+  <img src="Z:/picture/008/save_picture_791144.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788783.jpg" />
+  <img src="Z:/picture/008/save_picture_788783.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ NGW: Львицы: борьба за выживание / Lions: The Hunt For Su
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788338.jpg" />
+  <img src="Z:/picture/008/save_picture_788338.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ NG. Аляска: Новое Поколение / Life Below Zero: Next Generati
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788313.jpg" />
+  <img src="Z:/picture/008/save_picture_788313.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788148.jpg" />
+  <img src="Z:/picture/008/save_picture_788148.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788142.jpg" />
+  <img src="Z:/picture/008/save_picture_788142.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788141.jpg" />
+  <img src="Z:/picture/008/save_picture_788141.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ NGW: Рожденные в Африке. Школа выживания / Born in
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787593.jpg" />
+  <img src="Z:/picture/008/save_picture_787593.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ NG: Инстинкт выживания. Острова / Primal survivor. Islan
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787545.jpg" />
+  <img src="Z:/picture/008/save_picture_787545.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ NGW: Пир гризли / Feast of the Grizzly (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787220.jpg" />
+  <img src="Z:/picture/008/save_picture_787220.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786803.jpg" />
+  <img src="Z:/picture/008/save_picture_786803.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786661.jpg" />
+  <img src="Z:/picture/008/save_picture_786661.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ Nat Geo Wild: Уцелевшая природа Европы / Europe's Last Wil
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786097.jpg" />
+  <img src="Z:/picture/008/save_picture_786097.jpg" />
 </div>
 
 
@@ -591,84 +670,6 @@ Nat Geo Wild: Уцелевшая природа Европы / Europe's Last Wil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:837F1F4FA14220346328AF95E0ABDFDBAC308CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124247   (785892) от 10.04.2017
-
-NG: От колыбели до могилы / Cradle to Grave (2016) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Производство: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс ТовеллАктеры: Джордж Р. Робертсон, Дэн Дюран, Джилл Фраппье, Ванесса СмитПеревод: ДублированныйПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7ED8C4DC888788431D5487C0F7CD8EEB104F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124456   (785571) от 12.04.2017
-
-От колыбели до могилы / Cradle to Grave (2016) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Телекомпания: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс Товелл / James TovellПеревод: ДублированныйПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CADAD2EC3B8CBF61369C11BA73E1BBFAD59DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124550   (785563) от 12.04.2017
-
-От колыбели до могилы / Cradle to Grave (2016) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользуясь волшебством последних достижений Дэвида Бэрлоу в области визуальных эффектов, мы расскажем вам об устройстве человеческого тела. Вы узнаете о том, как на него влияет внешняя среда, как оно развивается и умирает в этом путешествии с заранее известным финалом, которое мы называет жизнь. Следя за жизнью нашего героя Адама, мы раскроем невероятные изменения (   Читать дальше...   )Телекомпания: США, Pioneer Film and Television ProductionsЖанр: Документальный, познавательный, здоровьеРежиссер: Джеймс Товелл / James TovellПеревод: ДублированныйПродолжительность: 01:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329BC20ED33F292CA14E3E886411053565B31628
 ```
 
 https://mybot314.ru/tekegram_catalog/

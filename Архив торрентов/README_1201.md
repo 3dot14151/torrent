@@ -6,7 +6,7 @@ SuperDuper! 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780249.jpg" />
+  <img src="Z:/picture/008/save_picture_780249.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780246.jpg" />
+  <img src="Z:/picture/008/save_picture_780246.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ GoodSync Enterprise 10.7.8.8 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780237.jpg" />
+  <img src="Z:/picture/008/save_picture_780237.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Publisher - ВК Постинг v1.2.6 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780229.jpg" />
+  <img src="Z:/picture/008/save_picture_780229.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780226.jpg" />
+  <img src="Z:/picture/008/save_picture_780226.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ FastStone Capture 8.8 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780217.jpg" />
+  <img src="Z:/picture/008/save_picture_780217.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Soft4Boost Document Converter 5.2.5.735 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780211.jpg" />
+  <img src="Z:/picture/008/save_picture_780211.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Movavi Screen Capture Studio 9.2.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780206.jpg" />
+  <img src="Z:/picture/008/save_picture_780206.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ CrystalDiskInfo 7.5.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780203.jpg" />
+  <img src="Z:/picture/008/save_picture_780203.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Rainlendar Pro 2.14 Build 155 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780200.jpg" />
+  <img src="Z:/picture/008/save_picture_780200.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780199.jpg" />
+  <img src="Z:/picture/008/save_picture_780199.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Wirecast Pro 8.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780195.jpg" />
+  <img src="Z:/picture/008/save_picture_780195.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Kingdom Come: Deliverance (2018) [Ru/Multi] (1.2.5) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780167.jpg" />
+  <img src="Z:/picture/008/save_picture_780167.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ SoftMaker Office Professional 2018 rev 923.0130  RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780162.jpg" />
+  <img src="Z:/picture/008/save_picture_780162.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Kali Linux 2018.1 (ex. BackTrack) [Аудит безопасности, хаки
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780148.jpg" />
+  <img src="Z:/picture/008/save_picture_780148.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ cFosSpeed 10.26 Build 2312 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780145.jpg" />
+  <img src="Z:/picture/008/save_picture_780145.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ DriverPack Solution 17.7.73.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780144.jpg" />
+  <img src="Z:/picture/008/save_picture_780144.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Craft The World v.1.4.014/dlc (2014) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780143.jpg" />
+  <img src="Z:/picture/008/save_picture_780143.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Paulina Cassidy - Drawing Up A Storm (2018) Projekt Records [FLAC|Lossless|WEB-D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780114.jpg" />
+  <img src="Z:/picture/008/save_picture_780114.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Surfalone - Surfalone (2018) [FLAC|Lossless|WEB-DL|tracks] <Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780098.jpg" />
+  <img src="Z:/picture/008/save_picture_780098.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Icecream Screen Recorder PRO 5.20.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780096.jpg" />
+  <img src="Z:/picture/008/save_picture_780096.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Things 3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780091.jpg" />
+  <img src="Z:/picture/008/save_picture_780091.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Movavi Photo Editor 5 v5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780088.jpg" />
+  <img src="Z:/picture/008/save_picture_780088.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780085.jpg" />
+  <img src="Z:/picture/008/save_picture_780085.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Wise Video Downloader 2.72.109 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780082.jpg" />
+  <img src="Z:/picture/008/save_picture_780082.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Duplicate File Detective 6.1.62 Enterprise [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780080.jpg" />
+  <img src="Z:/picture/008/save_picture_780080.jpg" />
 </div>
 
 

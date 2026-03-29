@@ -1,3 +1,83 @@
+###  Публикация: 1299104   (600748) от 30.04.2019
+
+Владимир Воронов | Рассекречено. Правда об острых эпизодах советской эпохи (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600748.jpg" />
+</div>
+
+
+###  Подробнее
+
+За десятилетия самые острые эпизоды советской эпохи обросли множеством мифов.
+Убийство советских дипкурьеров в феврале 1926 года, которые везли крупную партию фальшивых фунтов стерлингов. Попытка военного мятежа в августе 1934 года, подготовку к которому прозевали чекисты.
+«Операция Х» – участие советских спецслужб в Гражданской войне в Испании. Угрозы, подстерегавшие (   Читать дальше...   )Жанр: Биографии и мемуары, Спецслужбы, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697C1DFD341F5AC32A513CDA4487B3CBE2B60FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299042   (600669) от 30.04.2019
+
+Наталья Лэнг | Англия, которую вы не знали (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы знаете, что five o’clock на самом деле начинается в 16.00, а типичный завтрак англичанина – это не овсянка. Откуда взялось блюда Fish & Chips? Почему традиционные английские пудинги и пироги не сладкие? Как есть Жабу-в-норке? Что такое «время пиммса»? Почему город стоит на сэндвичах с беконом? Как выглядит купальная машина, и зачем принимать душ с друзьями? (   Читать дальше...   )Жанр: Публицистика, Путеводители, ЭтнографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52EEC4D40B1B3C4B0EC94D266F85F7E032F77ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913904   (600419) от 01.07.2015
+
+Григорий Луговский | О природе сакрального. К истокам духовного опыта (2015) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обращаясь к истокам идеи сакрального, обнаружим, что она далеко не позитивна. Архаические традиции понимали сакральное двояко: как благое, так и опасное; как носитель силы творения и изобилия, так и чреватое смертью, или разрушением. Из этой амбивалентности вытекало, что общение с сакральным требует специфической практики и может быть поручено лишь специалистам. (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC99B14C98CB87CB3394AA174121F23C832D2244
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149472   (600303) от 11.07.2017
 
 М. Аликата | Антонио Грамши - основатель Итальянской коммунистической партии (1957) [DJVU]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600303.jpg" />
+  <img src="Z:/picture/008/save_picture_600303.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600279.jpg" />
+  <img src="Z:/picture/008/save_picture_600279.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600122.jpg" />
+  <img src="Z:/picture/008/save_picture_600122.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600077.jpg" />
+  <img src="Z:/picture/008/save_picture_600077.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600049.jpg" />
+  <img src="Z:/picture/008/save_picture_600049.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600032.jpg" />
+  <img src="Z:/picture/008/save_picture_600032.jpg" />
 </div>
 
 
@@ -169,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599967.jpg" />
+  <img src="Z:/picture/008/save_picture_599967.jpg" />
 </div>
 
 
@@ -195,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599963.jpg" />
+  <img src="Z:/picture/008/save_picture_599963.jpg" />
 </div>
 
 
@@ -223,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598395.jpg" />
+  <img src="Z:/picture/008/save_picture_598395.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598372.jpg" />
+  <img src="Z:/picture/008/save_picture_598372.jpg" />
 </div>
 
 
@@ -275,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598172.jpg" />
+  <img src="Z:/picture/008/save_picture_598172.jpg" />
 </div>
 
 
@@ -301,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598164.jpg" />
+  <img src="Z:/picture/008/save_picture_598164.jpg" />
 </div>
 
 
@@ -327,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597871.jpg" />
+  <img src="Z:/picture/008/save_picture_597871.jpg" />
 </div>
 
 
@@ -353,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597748.jpg" />
+  <img src="Z:/picture/008/save_picture_597748.jpg" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597747.jpg" />
+  <img src="Z:/picture/008/save_picture_597747.jpg" />
 </div>
 
 
@@ -405,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596384.jpg" />
+  <img src="Z:/picture/008/save_picture_596384.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596189.jpg" />
+  <img src="Z:/picture/008/save_picture_596189.jpg" />
 </div>
 
 
@@ -459,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596098.jpg" />
+  <img src="Z:/picture/008/save_picture_596098.jpg" />
 </div>
 
 
@@ -486,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595855.jpg" />
+  <img src="Z:/picture/008/save_picture_595855.jpg" />
 </div>
 
 
@@ -514,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594887.jpg" />
+  <img src="Z:/picture/008/save_picture_594887.jpg" />
 </div>
 
 
@@ -540,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593505.jpg" />
+  <img src="Z:/picture/008/save_picture_593505.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593407.jpg" />
+  <img src="Z:/picture/008/save_picture_593407.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593381.jpg" />
+  <img src="Z:/picture/008/save_picture_593381.jpg" />
 </div>
 
 
@@ -605,84 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40703E775EEC66170DAA839559DA9F1FAF263515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300342   (593201) от 06.05.2019
-
-Г. Л. Розанов | План «Барбаросса». Замыслы и финал (1970) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — историко-документальный очерк об агрессии фашистской Германии против Советского Союза. Подготовка и поход гитлеровцев против страны социализма показаны в книге как бы «изнутри»: читатель присутствует на тайных сборищах немецких промышленников и банкиров, где определялись главные направления агрессии, на совещаниях военных и политических вожаков третьего (   Читать дальше...   )Жанр: История, политология, дипломатия, документалистика, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFBA902EDFF5CEF77C8F9D62BCF30421236D794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233525   (592938) от 30.06.2018
-
-Олдос Хаксли | Возвращение в дивный новый мир (2018) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Олдоса Хаксли «Возвращение в дивный новый мир» была впервые опубликована в далеком 1958 году – и тем интереснее читается она в наши дни: ведь в этой работе великий английский писатель и философ, в своей полемичной манере, провел параллели между западной цивилизацией буржуазного «золотого века» 1950-х и антиутопическим тоталитарным «потребительским раем», описанным (   Читать дальше...   )Жанр: Зарубежная публицистика, Социальная философия, ЭссеПеревод: Александр АнваерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1A737D264BD5D1A4C92C3B91C1D03AE758BB27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300678   (592716) от 07.05.2019
-
-Владимир Познер | Немецкая тетрадь. Субъективный взгляд (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592716.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Когда мне было неполных пятнадцать лет, мой отец, горячий сторонник СССР, коммунист по убеждениям, хотя и не член партии, попал в черные списки и лишился источника заработка. Советское правительство предложило ему работу в берлинском отделении «Совэкспортфильма», мы уехали в Восточную Германию, то есть именно в ту страну, куда я ни за что ехать не хотел», – так (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3FA5766597DDCA4FA3C3CDFBC18142AAF474FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

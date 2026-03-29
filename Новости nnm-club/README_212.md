@@ -1,3 +1,162 @@
+###  Публикация: 1423847   (295149) от 15.11.2020
+
+Образовательный центр Сириус обрел эксклюзивный статус
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_295149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Президент РФ Владимир Путин наделил образовательный центр Сириус особым статусом. На совещании 13 ноября глава государства объявил о превращении наукограда в федеральную территорию и определил амбициозные цели для уникальной площадки. Для главы государства Сириус имеет особое значение, констатируют  в политической среде.Онлайн-заседание попечительского совета фонда (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185182   (294632) от 20.11.2017
+
+qBittorrent 4.0.0 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свободный кросс-платформенный клиент файлообменной сети BitTorrent. qBittorrent - абсолютно бесплатный, без рекламы, мощный и простой при работе клиент. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CB6B8B4E036ADE0DDE392E3FF345FA0ED576E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179045   (294579) от 20.11.2017
+
+Очень странные дела / Загадочные события / Stranger Things (2017) WEBRip [H.264/720p-LQ] (сезон 2, серии 1-9 из 9) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие сериала разворачивается в 80-х годах в тихом провинциальном городке. Благоприятное течение местной жизни нарушает загадочное исчезновение подростка по имени Уилл. Выяснить обстоятельства дела полны решимости родные мальчика и местный шериф. Также события затрагивают лучшего друга Уилла — Майка. Он начинает собственное расследование. Майк уверен, что близок (   Читать дальше...   )Производство: США, 21 Laps Entertainment, Monkey MassacreЖанр: ужасы, фантастика, фэнтези, триллер, драма, детективРежиссер: Мэтт Даффер, Росс Даффер, Шон Леви, Эндрю Стэнтон, Ребекка ТомасАктеры: Вайнона Райдер, Дэвид Харбор, Финн Вулфхарт, Милли Бобби Браун, Гейтен Матараццо, Кейлеб МакЛохлен, Ной Шнапп, Сэди Синк, Наталия Дайер, Чарли Хитон и др.Перевод: многоголосый закадровый, профессиональный - LostFilmСубтитры: русские, английскиеПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF32F9A0E18B837CBD8494AF3C54ADE2C563CD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262309   (294466) от 15.11.2018
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2018.11.14 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081581B44C718F54C543A0682D3E96969561E052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334270   (294355) от 29.10.2019
+
+Blackmagic Design DaVinci Resolve Studio (16.1.0.55) Portable by XpucT [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294355.jpg" />
+</div>
+
+
+###  Подробнее
+
+DaVinci Resolve 16 — первый в мире программный продукт с поддержкой 8K, который позволяет на профессиональном уровне выполнять редактирование и цветокоррекцию видео, сводить аудиодорожку и добавлять визуальные эффекты. Для моментального перехода между разными страницами достаточно одного щелчка мыши. Кроме того, DaVinci Resolve 16 Studio — единственное приложение (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A90D64ABDFAE451CEBD5C2D7875EE306DD1D85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333773   (294351) от 29.10.2019
+
+Windows 10 (v1909) x64 HSL/PRO by KulHunter v1.0 (esd) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка основана на официальном образе от MDSN: ru_windows_10_consumer_editions_version_1909
+_x64_dvd_f74288fc.iso
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол Samba.
+Удалена папка PerfLogs.(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304F094F89FB87D7C464CAEF4235912A96B0D638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962051   (294272) от 04.12.2015
 
 Acronis True Image 19.0.6027 + Universal Restore 11.5.39006 + Disk Director 12.0.3223 BootCD/USB (x86/x64 UEFI) [Ru]
@@ -6,7 +165,7 @@ Acronis True Image 19.0.6027 + Universal Restore 11.5.39006 + Disk Director 12.0
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294272.jpg" />
+  <img src="Z:/picture/008/save_picture_294272.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294268.jpg" />
+  <img src="Z:/picture/008/save_picture_294268.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ SketchUp Pro 2016 v16.0.19912 (x64) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294256.jpg" />
+  <img src="Z:/picture/008/save_picture_294256.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_293642.jpg" />
+  <img src="Z:/picture/005/save_picture_293642.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293091.jpg" />
+  <img src="Z:/picture/008/save_picture_293091.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293067.jpg" />
+  <img src="Z:/picture/008/save_picture_293067.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292595.jpg" />
+  <img src="Z:/picture/008/save_picture_292595.jpg" />
 </div>
 
 
@@ -188,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292535.jpg" />
+  <img src="Z:/picture/008/save_picture_292535.jpg" />
 </div>
 
 
@@ -215,7 +374,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2019.10.29 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292453.jpg" />
+  <img src="Z:/picture/008/save_picture_292453.jpg" />
 </div>
 
 
@@ -241,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292316.jpg" />
+  <img src="Z:/picture/008/save_picture_292316.jpg" />
 </div>
 
 
@@ -267,7 +426,7 @@ Linux Mint 17.3 Rosa (Mate, Cinnamon) [32bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292308.jpg" />
+  <img src="Z:/picture/008/save_picture_292308.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ AusLogics BoostSpeed 8.1.2.0 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292265.jpg" />
+  <img src="Z:/picture/008/save_picture_292265.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ Adobe Illustrator CC 2015.2.0 19.2.0 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292257.jpg" />
+  <img src="Z:/picture/008/save_picture_292257.jpg" />
 </div>
 
 
@@ -347,7 +506,7 @@ Adobe Audition CC 2015.1 8.1.0.162 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292252.jpg" />
+  <img src="Z:/picture/008/save_picture_292252.jpg" />
 </div>
 
 
@@ -373,7 +532,7 @@ Helldivers (2015) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292248.jpg" />
+  <img src="Z:/picture/008/save_picture_292248.jpg" />
 </div>
 
 
@@ -399,7 +558,7 @@ Adobe After Effects CC 2017 (v14.0.1) Multilingual
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291199.jpg" />
+  <img src="Z:/picture/008/save_picture_291199.jpg" />
 </div>
 
 
@@ -425,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291177.jpg" />
+  <img src="Z:/picture/008/save_picture_291177.jpg" />
 </div>
 
 
@@ -451,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291002.jpg" />
+  <img src="Z:/picture/008/save_picture_291002.jpg" />
 </div>
 
 
@@ -477,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_290949.jpg" />
+  <img src="Z:/picture/005/save_picture_290949.jpg" />
 </div>
 
 
@@ -503,7 +662,7 @@ deepin 15.8 [x86_x64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290800.jpg" />
+  <img src="Z:/picture/008/save_picture_290800.jpg" />
 </div>
 
 
@@ -514,165 +673,6 @@ deepin — дистрибутив Linux, основанный на пакетн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:874257DDBFF15DEBA39C576C47D5BFDE95DEB03E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262970   (290692) от 17.11.2018
-
-A Way Out (2018) [Ru/Multi] (1.0.62) Repack R.G. Механики
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели игры Brothers - A Tale of Two Sons представляют вам A Way Out, приключение, предназначенное исключительно для совместного прохождения. Вам предстоит сыграть роль одного из двух заключенных, затеявших дерзкий побег из тюрьмы.Тип издания: RepackРазработчик: HazelightЖанр: Action, Adventure, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0446ADA15644322AD1EC9E31C10F881CBEED17F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145039   (290649) от 21.12.2009
-
-Мерлин / Merlin (2008) TVRip / Сезон 2 (13 серий из 13) / [WestFilm.TV]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевство Камелот погружено в хаос. Чародейство и волшебство сеют смуту среди людей. Пришедший к власти Утер Пендрагон запрещает колдовство под страхом смерти, изгоняет волшебников, убивает всех драконов, оставляя в назидание лишь одного. Через 20 лет в Камелот прибывает Мерлин, уроженец маленькой деревушки, рождённый с волшебными способностями. Он становится помощником (   Читать дальше...   )Жанр: Фэнтези, Приключения, ДрамаРежиссер: James HawesАктеры: Colin Morgan, John Hurt, Anthony Head, Katie McGrath, Eve Myles, Richard Wilson, Caroline Faber, Gary Oliver, Ed Coleman, Bradley James, Angel Coulby, Louise DylanПеревод: Двухголосный закадровыйЯзык субтитров: русский, английскийПродолжительность: ~43 минуты серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185710   (290622) от 22.11.2017
-
-TechSmith Camtasia Studio 9.1.1 Build 2546 RePack by KpoJIuK  [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Camtasia Studio - мощная утилита для записи изображения с экрана в видеофайлы различных форматов, имеется возможность редактирования видео, есть встроенные Macromedia Flash (SWF) и видео проигрыватели. Camtasia захватывает действия и звуки в любой части Windows-систем и сохраняет в файл стандарта AVI. Сделанное при помощи программы видео можно экспортировать в один (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B5CF408A88F8742E29CBE19BCDE9730754FC14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185597   (290620) от 22.11.2017
-
-Winamp Pro 5.666 Build 3516 Final Repack by elchupacabra (21.11.2017)  [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Winamp – популярный, проверенный временем медиаплеер. Воспроизводит файлы в форматах MP3, OGG, AAC, WAV, MOD, XM, S3M, IT, MIDI и т.д., поддерживает воспроизведение видео (AVI, ASF, MPEG, NSV). Есть возможность смены скинов, большое количество настроек и параметров, модуль визуализации, медиа-библиотека и многое другое.Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446C920F61BF92B38D03A96ACC239DFD15C6CB8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334518   (290589) от 31.10.2019
-
-⚡ Tutanota: Почему «социальное рейтингование» — это страшно
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_290589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Массовая слежка повсюду вокруг нас, и потенциальные последствия должны волновать вас.
-Это неделя свободных высказываний [скорее всего, намёк на речь Цукерберга и заявление ProtonMail. — редакция]. Так давайте же взглянем на худшего врага свободы слова: массовую слежку и её последствия. Современная форма массовой слежки — онлайн-наблюдение — проста, дешева и молниеносна. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334748   (290516) от 31.10.2019
-
-WebForMySelf | Python. Полное руководство (2019) [unpacked]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый раздел является квинтэссенцией тщательно отобранной (только то, что востребовано и применимо в реальной жизни) актуализированной исчерпывающей теоретической базы по Питону последней версии и многочисленных практических занятий для обязательного закрепления полученных знаний и самопроверки.
-
-Второй большой раздел видеокурса полностью посвящен изучению библиотеки (   Читать дальше...   )Жанр: Программирование, PythonФормат: unpackedПродолжительность: 23:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7479FBC8246BA64A4F66EC84241435C7079AA47
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1774999   (71465) от 25.01.2025
+
+Labÿrinth (Labyrinth) - In The Vanishing Echoes Of Goodbye (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71465.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Welcome Twilight (5:46)
+• 02. Accept The Changes (7:24)
+• 03. Out Of Place (5:02)
+• 04. At The Rainbow's End (5:10)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F934818BE8B4CBDAB18D1C7A7A595FBBACA0F641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775246   (71464) от 25.01.2025
+
+Larkin Poe - Bloom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Country, Blues_Rock, Americana>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mockingbird (4:06)
+02.  Easy Love, Pt. 1 (4:07)
+03.  Little Bit (4:06)
+04.  Bluephoria (4:33)(   Читать дальше...   )Жанр: Country, Blues_Rock, AmericanaПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676BDC46C9544A8FF3E7DEF8DE1F0EBEE5BF1603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775252   (71463) от 25.01.2025
+
+Keziah Jones - Alive & Kicking (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Soul , Blues , Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kpafuca (Live at Clout Africa Studio, Lagos) (4:44)
+02.  Beautiful Emilie (Live at Clout Africa Studio, Lagos) (5:19)
+03.  Dear Mr Cooper (Live at Clout Africa Studio, Lagos) (5:04)
+04.  Wisdom Behind The Smile (Cash) (Live at Clout Africa Studio, Lagos) (5:16)(   Читать дальше...   )Жанр: Soul , Blues , FunkПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B1F3B4344F747E85F7A4802C4161655663B4D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775355   (71442) от 26.01.2025
+
+Горячие головы (Hotheads) - 2 Albums (2003, 2005) Remastered, 2025, Creative Media [FLAC 24/48|Lossless|WEB-DL|tracks] <Russian pop, Euro House, Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вверх-вниз! (Remastered 2025) [00:03:32]
+02. Алла Пугачева (Remastered 2025) [00:03:46]
+03. Самая лучшая! (Remastered 2025) [00:03:46]
+04. Ням-ням-ням (Remastered 2025) [00:03:28](   Читать дальше...   )Жанр: Russian pop, Euro House, EuropopПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D5750D7AAA5F5118F9C1106C040A23EE268AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775284   (71437) от 26.01.2025
+
+Faith No More - Studio Albums (7 releases) (1985-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Avant-garde/Alternative Rock/Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Faith No More — американская рок-группа из Сан-Франциско, Калифорния, образованная в 1979 году.1985 - We Care A Lot
+1987 - Introduce Yourself
+1989 - The Real Thing
+1992 - Angel Dust(   Читать дальше...   )Жанр: Avant-garde/Alternative Rock/MetalПродолжительность: 06:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68402504DA0E2A4CF3880C7D87C6A2254F97EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775553   (71428) от 27.01.2025
+
+Einherjer - Studio Albums (11 releases) (1995-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Viking Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Einherjer — викинг-метал-группа из Хаугесунна, Норвегия, основанная в 1993 году.1995 - Aurora Borealis - Leve Vikinganden
+1996 - Dragons Of The North
+1997 - Far Far North (EP)
+1998 - Odin Owns Ye AllЖанр: Viking MetalПродолжительность: 08:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B27A6D0169E0315C86052A29A7BE725007642604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775206   (71424) от 27.01.2025
+
+Soelaas - Salvus Ab Inferis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, House, Melodic House & Techno, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71424.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Essence (5:35)
+• 02. No Turning Back (6:25)
+• 03. Bare With Me (6:16)
+• 04. Nothing Stops Us (4:56)(   Читать дальше...   )Жанр: Electronic, House, Melodic House & Techno, TechnoПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1E7A2DCB457486DCC758FD7807E79ABDA22497
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775212   (71422) от 27.01.2025
+
+Carmen McRae - Sings Love Songs (2025) Remastered [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71422.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Mr. Magic (Original Long Version (2024 Remaster)) (14:10)
+• 02. No More Blues (Live (2024 Remaster)) (4:21)
+• 03. Them There Eyes (Live (2024 Remaster)) (1:57)
+• 04. Take Five (Live (2024 Remaster)) (3:17)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADADF70454362B54AEEBED92EE585DBCC6C294F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775199   (71413) от 27.01.2025
 
 Mal Waldron - The Recordings (2016) Remastered, 2025, ZOROTY [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Hard Bop, Post-Bop>
@@ -6,7 +238,7 @@ Mal Waldron - The Recordings (2016) Remastered, 2025, ZOROTY [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71413.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ The Ferrymen - Iron Will (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Met
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71410.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ In Extremo - Kompass zur Sonne (2020) Extended Edition [FLAC 24/44.1|Lossless|WE
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71409.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ David Rose - My Happy Space (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71400.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Fontamar Consort - Ramour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Ja
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71386.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Andy Middleton Quartet - Water and Sky (2025) [FLAC 24/88.2|Lossless|WEB-DL|trac
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71385.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Atmospheric Trio - Following Polaris (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71384.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Hvalfugl - Bag Vore Øjne Strømmer Drømme Sagte Forbi (2025) [FLAC 24/96|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71383.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Jesper Zeuthen Empty Pocket Sextet - GNIST (2025) [FLAC 24/96|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71381.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Jakob Dinesen - Slow Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71380.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Jackson Potter - small things (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71379.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Jonne Aaron (Negative ) - Studio Albums (5 releases) (2012-2021) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71377.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Black Cat Hoodoo - Music Heros (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71373.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Judy Wexler - No Wonder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71372.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Diego Banchero Trio - Gathered Lectures from a Lifetime (2025) [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71325.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Labyrinth (Italy) - Studio Albums (11 releases) (1996-2025) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71278.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Kim Wilde - Closer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth-pop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71272.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Deep Forest - Live Machine (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71262.jpg" />
 </div>
 
 
@@ -513,239 +745,6 @@ Deep Forest - Live Machine (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F76B445665D20B05CA61BE122EE076A6CED3C1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776590   (71253) от 01.02.2025
-
-Decius - Decius Vol. II (Splendour & Obedience) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Disco, Acid House, Deep House, Indie Dance, House, Tech House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth Of A Smirk [00:05:39]
-02. Walking In The Heat [00:04:52]
-03. Queen Of 14th St [00:05:51]
-04. Ghent [00:05:46](   Читать дальше...   )Жанр: Acid Disco, Acid House, Deep House, Indie Dance, House, Tech HouseПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66603EF0A2892AD71D6B4AC478E8068A67CF044B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776424   (71246) от 01.02.2025
-
-Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) Live [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Guitar, Instrumental Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Vai - Gravitas (G3 Reunion Live) [1:44]
-02. Steve Vai - Avalancha (G3 Reunion Live) [7:25]
-03. Steve Vai - Little Pretty Intro (G3 Reunion Live) [1:54]
-04. Steve Vai - Little Pretty (G3 Reunion Live) [6:37](   Читать дальше...   )Жанр: Rock, Guitar, Instrumental Rock, Hard RockПродолжительность: 02:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B5415A84F26490F116FC7612734DEE942414F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776533   (71236) от 01.02.2025
-
-Mogwai - The Bad Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <post-rock, Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Gets You Back [00:06:40]
-02. Hi Chaos [00:05:24]
-03. What Kind Of Mix Is This? [00:04:11]
-04. Fanzine Made Of Flesh [00:04:34](   Читать дальше...   )Жанр: post-rock, Alternative & IndieПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D149C3574E5B3F2BA55512A3452C4DEB6BAB4B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776605   (71200) от 02.02.2025
-
-Omnium Gatherum - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Omnium Gatherum - метал-группа из Финляндии, основанная осенью 1996 года.
-Хотя группа в основном следует по пути мелодичного дэт-метала, во многих их работах чувствуется сильное влияние прогрессивного металла, особенно в их поздних альбомах. На их творчество оказали влияние такие группы, как At the Gates, In Flames, Dissection, Dark Tranquillity, а также Iron Maiden, (   Читать дальше...   )2003 - Spirits and August Light
-2004 - Years In Waste
-2007 - Stuck Here on Snakes Way
-2008 - The RedshiftЖанр: Melodic Death MetalПродолжительность: 09:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94D5C17CAB79E3E64671CF4284F6F4660E75B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776622   (71198) от 02.02.2025
-
-Robin Verheyen, Billy Hart, Drew Gress - Liftoff (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tripping in Times Square (4:15)
-02. The Bounce (6:13)
-03. Sur La Route De Tamba (4:38)
-04. Soul Searching (6:24)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB792B257EC82891DBB6E8CA5701444FE7364D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776680   (71185) от 02.02.2025
-
-David Rose - Romantic Dining Music (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Velvet Skies (3:45)
-02. La Dolce Vita (2:16)
-03. Moonlit Rendezvous (3:47)
-04. Sounds of Tranquility (3:12)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B432C9F2CA54E9AF202D0A935F4AEFE4C8E8CD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776681   (71183) от 02.02.2025
-
-Rui Fernandes - Para Dois Corações (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amarantango (5:27)
-02. Escola do Marão (5:18)
-03. Ares de Milonga (5:37)
-04. Linha do Corgo (9:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1849E2E44D0E09AE027D398D8AD5F4DD8E5DAD40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776689   (71182) от 02.02.2025
-
-The Exu - The Exu (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riddle Me This (3:54)
-02. Know Time (3:38)
-03. B4B (3:02)
-04. Pancakes (2:25)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDED62B118CE9E7BE304AE22949A372FF6C37754
 ```
 
 https://mybot314.ru/tekegram_catalog/

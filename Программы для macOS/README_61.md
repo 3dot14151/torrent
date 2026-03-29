@@ -1,3 +1,141 @@
+###  Публикация: 1284449   (728954) от 21.02.2019
+
+NetWorker 5.3.2 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728954.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker - небольшая и очень простая утилита, которая из строки меню, подскажет вам текущую скорость download/upload и статистику за период - текущая/предыдущая неделя, месяц и год.Тип издания: macOS SoftwareРелиз состоялся: 17.02.2019Разработчик: Sascha SimonПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский, Немецкий и упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EC23CDB5C47B436A5144296C3A54F0AA1F1ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022488   (728937) от 02.06.2016
+
+Paste 1.1.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paste — менеджер истории буфера обмена для Mac
+Paste хранит всё, что вы когда-либо копировали в буфер обмена, и позволяет воспользоваться историей копирования, когда она вновь понадобится. Работает – притаившись в фоном режиме системы и, следит за историей скопированных данных. Готов в любой момент предоставить на выбор нужный фрагмент из истории буфера обмена.
+ (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 апреля 2016Разработчик: WirelessheadsПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7366A3C8B005A77BAC3C5493F14BBC2280B91585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128316   (728791) от 24.04.2017
+
+iPIN - Secure PIN & Password Safe 2.25 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы должны запомнить несколько ПИН-кода и паролей? Для различных кредитных карт, онлайн-банкинга, токена безопасности, учетных записей электронной почты и т. Д.?
+
+IPIN - и ваши PIN-коды и пароли всегда под рукой. Доступ с максимальной скоростью, как можно безопаснее и, если хотите, синхронизацией через iCloud в любое время на вашем iPhone, iPod touch, iPad и устройствах (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 февраля 2017Разработчик: IBILITIES, INCЯзык интерфейса: Английский, Французский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F39E0F65678BC4AF8D3125100D4722D587DEF982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128354   (728790) от 24.04.2017
+
+Taskly - Accomplish Today 1.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Taskly - Выделите время для ежедневных задач с простым и интуитивно понятным интерфейсом.
+Активная задача будет видна в вашей строке меню с обратным отсчетом, чтобы вы были сосредоточены на том, что делать, и сколько времени остается для этого. Добавьте столько задач, сколько хотите, и играйте и приостанавливайте их по своему усмотрению, но обязательно завершите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.04.2017Разработчик: Victor FagerströmПоддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F0BA52983D11F54023182B8305B6B0D04DBC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128400   (728659) от 24.04.2017
+
+iStat 3.02 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728659.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat является весьма подробным приложением удаленного мониторинга, что позволяет проверить жизненную статистику для Mac, ПК и серверов из любой точки мира.
+iStat отображает огромный диапазон детальной статистике системы, включая процессор, память, дисковое пространство, использование сети, температуры, скорости вращения вентиляторов и многое другое.
+
+• Монитор Mac, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2016Разработчик: Bjango Pty LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BE96DA7E9C55FD8B719F33DCA9303EFC8F58C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128244   (728306) от 24.04.2017
 
 Adobe Dreamweaver CC 2017.1 (17.1) [Multi/Ru]
@@ -6,7 +144,7 @@ Adobe Dreamweaver CC 2017.1 (17.1) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728306.jpg" />
+  <img src="Z:/picture/008/save_picture_728306.jpg" />
 </div>
 
 
@@ -33,7 +171,7 @@ KeyKey 1.0.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728245.jpg" />
+  <img src="Z:/picture/008/save_picture_728245.jpg" />
 </div>
 
 
@@ -62,7 +200,7 @@ Movavi PDFChef for Mac 2022 v22.2.0 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727827.jpg" />
+  <img src="Z:/picture/008/save_picture_727827.jpg" />
 </div>
 
 
@@ -88,7 +226,7 @@ Boxy: email client for "Inbox by Gmail" 1.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727698.jpg" />
+  <img src="Z:/picture/008/save_picture_727698.jpg" />
 </div>
 
 
@@ -117,7 +255,7 @@ Mate Translate 8.1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727635.jpg" />
+  <img src="Z:/picture/008/save_picture_727635.jpg" />
 </div>
 
 
@@ -144,7 +282,7 @@ Things 2.8.12 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727560.jpg" />
+  <img src="Z:/picture/008/save_picture_727560.jpg" />
 </div>
 
 
@@ -172,7 +310,7 @@ Warp 3.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727554.jpg" />
+  <img src="Z:/picture/008/save_picture_727554.jpg" />
 </div>
 
 
@@ -200,7 +338,7 @@ Corporate Templates - Business Stationery 3.1.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727446.jpg" />
+  <img src="Z:/picture/008/save_picture_727446.jpg" />
 </div>
 
 
@@ -228,7 +366,7 @@ Folder Icon Maker 1.5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727442.jpg" />
+  <img src="Z:/picture/008/save_picture_727442.jpg" />
 </div>
 
 
@@ -255,7 +393,7 @@ Themes Mill - Templates for Keynote 4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727441.jpg" />
+  <img src="Z:/picture/008/save_picture_727441.jpg" />
 </div>
 
 
@@ -283,7 +421,7 @@ Resume Lab for Pages - Templates Bundle 1.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727439.jpg" />
+  <img src="Z:/picture/008/save_picture_727439.jpg" />
 </div>
 
 
@@ -311,7 +449,7 @@ Corel Painter 2022 v22.1.0.121  [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727394.jpg" />
+  <img src="Z:/picture/008/save_picture_727394.jpg" />
 </div>
 
 
@@ -338,7 +476,7 @@ CodeDrop - Gist client 1.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726698.jpg" />
+  <img src="Z:/picture/008/save_picture_726698.jpg" />
 </div>
 
 
@@ -364,7 +502,7 @@ URI Handler – Open With Picker 1.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726695.jpg" />
+  <img src="Z:/picture/008/save_picture_726695.jpg" />
 </div>
 
 
@@ -390,7 +528,7 @@ Drag and Drop Manager 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726693.jpg" />
+  <img src="Z:/picture/008/save_picture_726693.jpg" />
 </div>
 
 
@@ -416,7 +554,7 @@ InstaCal 1.9.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726590.jpg" />
+  <img src="Z:/picture/008/save_picture_726590.jpg" />
 </div>
 
 
@@ -443,7 +581,7 @@ Vivaldi 2.3.1440.48 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726571.jpg" />
+  <img src="Z:/picture/008/save_picture_726571.jpg" />
 </div>
 
 
@@ -469,7 +607,7 @@ Canvas X Draw 7.0.2 fix [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726519.jpg" />
+  <img src="Z:/picture/008/save_picture_726519.jpg" />
 </div>
 
 
@@ -495,7 +633,7 @@ Cisdem DataRecovery 4.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726463.jpg" />
+  <img src="Z:/picture/008/save_picture_726463.jpg" />
 </div>
 
 
@@ -521,7 +659,7 @@ Business Template Lab - Templates for Pages 3.1.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726450.jpg" />
+  <img src="Z:/picture/008/save_picture_726450.jpg" />
 </div>
 
 
@@ -550,7 +688,7 @@ Flush Memory 2.1.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726368.jpg" />
+  <img src="Z:/picture/008/save_picture_726368.jpg" />
 </div>
 
 
@@ -564,143 +702,6 @@ Flush Memory - это обязательный инструмент, котор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3C34909100626493031F7982F344DC9938226BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128893   (726361) от 26.04.2017
-
-Lyn 1.8.9 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lyn - просмотрщик и браузер изображений
-Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
-
-Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 апреля 2017Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.7.4 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7C737E0043E68D40314FEED21904C77685FDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128921   (726346) от 26.04.2017
-
-DoYourData Super Eraser for Mac 5.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726346.jpg" />
-</div>
-
-
-###  Подробнее
-
-DoYourData Super Eraser предлагает безопасное решение по удалению информации для пользователей Mac, помогая навсегда уничтожить данные без возможности восстановления.
-Приложение навсегда удалит выбранные файлы/папки, полностью отформатирует жесткий диск (если требуется) или медиа носитель. Программа также навсегда сотрет информацию об удаленных/утерянных данных и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2017Разработчик: Do Your DataПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A39A6EFD58A4B886DDE3000E5A2C38FE9F1965AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023141   (726232) от 04.06.2016
-
-PhotoDesk for Instagram 4.0.0 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Instagram - простой и элегантный способ поделиться своими фотографиями с друзьями.
-Приложение PhotoDesc привносит часть функциональности Instagram прямо на ваш Mac и практически все, что вы можете делать в Instagram на своем iPhone, вы можете делать в PhotoDesc на своем Mac.
-
-PhotoDesk позволяет вам просматривать, получать новости и уведомления, сохранять изображения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 мая 2016Разработчик: Benedikt TerhechteПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF79876425666FCB66BB41E107A2C7C6051FB84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530912   (726010) от 13.02.2022
-
-ZBrush 2022.0.5 [En]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixologic ZBrush - программа для трёхмерного моделирования, созданная компанией Pixologic. Созданный с уникальным неповторимым интерфейсом, ZBrush предлагает наиболее продвинутые технологии для художников. ZBrush создает множество возможностей творить и вдохновляет творческий процесс. Возможность создавать с помощью скульптинга модели с миллионами полигонов в ZBrush (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2022 Pixologic Inc.Поддерживаемая ОС: macOS X 10.11 or newerЯзык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FC5A7A4E0A9120A9996632E1DC7F18228FE0CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399846   (725236) от 02.08.2020
-
-Clockey 2.0.2d [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clockey 2 - менеджер часов в мировом формате, который позволяет вам добавлять время из любого часового пояса в строку меню. Он имеет чистый и элегантный дизайн, который позволяет легко управлять вашими часами.Тип издания: macOS SoftwareРелиз состоялся: 10.05.2020Разработчик: NICE APPS.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373CB9697299C373F2CCB69101A71A3773F7DA8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,85 @@
+###  Публикация: 1507439   (798473) от 04.11.2021
+
+Валерий Духанин | Знакомство с Православием, или Начало познания духовного мира (2011) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга приоткрывает дверь в мир Православия, знакомит с основами вероучения Русской Православной Церкви. Для того, чтобы искренне верить, жить единой жизнью с Церковью, необходимо знать, понимать, что такое Православие. Эта книга ответит на многие Ваши вопросы. В Кого мы веруем? Как познать Бога? Кто такие святые? Что такое Церковь и церковные Таинства? Для чего (   Читать дальше...   )Жанр: Православие. Религиозно-просветительское изданиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8716093D852B8644F329834B7792F2618CA1A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507555   (798292) от 05.11.2021
+
+Свято-Серафимо-Саровский мужской монастырь (изд.) | Свято-Серафимо-Саровский мужской монастырь [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798292.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Стяжи дух мирен и тысячи вокруг тебя спасутся" - эти слова преподобного Серафима Саровского определяют главное призвание человека - стать чадом Божиим по благодати, стяжать Божественный дух и сосредоточить его в себе. С этой целью приходят люди в обитель, чтобы через отречение от собственной воли покориться воли Христовой.
+
+На Воронежской земле был основан (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BBBF2BF005B1FD8B46FCD6D8F308F72C4170F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507863   (798130) от 06.11.2021
+
+Святитель Иоанн (Максимович) | Царский путь Креста Господня, вводящий в Жизнь Вечную (1996) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие люди часто недоумевают, почему случаются с ними те или иные скорби, и задаются вопросом: зачем они посылаются человеку?
+
+На эти вопросы даёт ясный ответ книга «Царский путь Креста Господня». В ней дан полный анализ скорбей, с которыми встречается человек на пути спасения. Святые отцы глубоко и всесторонне раскрыли значение скорбей, их нравственную сущность (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E20CACE52FCD4ED892794884292B6F97E4B8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508097   (797948) от 07.11.2021
 
 А.Ф. Чернавский | Православие и успех в жизни (2010) [PDF, DJVU]
@@ -6,7 +88,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797948.jpg" />
+  <img src="Z:/picture/008/save_picture_797948.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797647.jpg" />
+  <img src="Z:/picture/008/save_picture_797647.jpg" />
 </div>
 
 
@@ -60,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797642.jpg" />
+  <img src="Z:/picture/008/save_picture_797642.jpg" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797497.jpg" />
+  <img src="Z:/picture/008/save_picture_797497.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797487.jpg" />
+  <img src="Z:/picture/008/save_picture_797487.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797457.jpg" />
+  <img src="Z:/picture/008/save_picture_797457.jpg" />
 </div>
 
 
@@ -164,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796867.jpg" />
+  <img src="Z:/picture/008/save_picture_796867.jpg" />
 </div>
 
 
@@ -190,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796659.jpg" />
+  <img src="Z:/picture/008/save_picture_796659.jpg" />
 </div>
 
 
@@ -218,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796378.jpg" />
+  <img src="Z:/picture/008/save_picture_796378.jpg" />
 </div>
 
 
@@ -246,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795990.jpg" />
+  <img src="Z:/picture/008/save_picture_795990.jpg" />
 </div>
 
 
@@ -272,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795977.jpg" />
+  <img src="Z:/picture/008/save_picture_795977.jpg" />
 </div>
 
 
@@ -298,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795923.jpg" />
+  <img src="Z:/picture/008/save_picture_795923.jpg" />
 </div>
 
 
@@ -326,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795681.jpg" />
+  <img src="Z:/picture/008/save_picture_795681.jpg" />
 </div>
 
 
@@ -354,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795639.jpg" />
+  <img src="Z:/picture/008/save_picture_795639.jpg" />
 </div>
 
 
@@ -380,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795637.jpg" />
+  <img src="Z:/picture/008/save_picture_795637.jpg" />
 </div>
 
 
@@ -408,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795590.jpg" />
+  <img src="Z:/picture/008/save_picture_795590.jpg" />
 </div>
 
 
@@ -434,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795558.jpg" />
+  <img src="Z:/picture/008/save_picture_795558.jpg" />
 </div>
 
 
@@ -460,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795510.jpg" />
+  <img src="Z:/picture/008/save_picture_795510.jpg" />
 </div>
 
 
@@ -486,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795069.jpg" />
+  <img src="Z:/picture/008/save_picture_795069.jpg" />
 </div>
 
 
@@ -512,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795067.jpg" />
+  <img src="Z:/picture/008/save_picture_795067.jpg" />
 </div>
 
 
@@ -538,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795059.jpg" />
+  <img src="Z:/picture/008/save_picture_795059.jpg" />
 </div>
 
 
@@ -566,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795058.jpg" />
+  <img src="Z:/picture/008/save_picture_795058.jpg" />
 </div>
 
 
@@ -592,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795057.jpg" />
+  <img src="Z:/picture/008/save_picture_795057.jpg" />
 </div>
 
 
@@ -603,86 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D6BFB81983D909329FA0F5B0B3CAD68E1B8D8D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273504   (795051) от 05.01.2019
-
-А. Б. Вербицкий, В. В. Броунштейн (сост.) | Знатные люди Страны Советов о религии (1939) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высказывания о религии знатных людей нашей страны: депутатов Верховных Советов СССР и союзных республик, героев Советского Союза, ученых, стахановцев социалистической промышленности и сельского хозяйства, врачей, артистов и др.
-
-Книга раскрывает антинаучную и реакционную сущность всякой религии: христианской, мусульманской, иудейской и других, мешающих строительству (   Читать дальше...   )Жанр: История, политология, религиоведение, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E55D8C518AD8520C64D98A6832C572FB210D4A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274177   (795041) от 05.01.2019
-
-А.В. Крамер | Раскол русской Церкви в середине XVII века (2011) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга А.В.Крамера "Причины, начало и последствия раскола русской Церкви в середине XVII в." была издана в 2005 году. Ее содержание точно соответствует названию. Наибольший интерес в ней вызывают размышления автора о последствиях раскола. Многие из этих последствий не ушли в прошлое и участвуют в формировании образа жизни в России и в наше время, что должно (   Читать дальше...   )Жанр: Монография, история РоссииФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71C993DBD158CD45FB35F6D44DBB0135477AE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274180   (795040) от 05.01.2019
-
-Лилия Юсуфжановна Тугушева, Александр Леонович Хосроев | Хуастванифт (Манихейское покаяние в грехах) (2008) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795040.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлена публикация тюркской версии манихейского сочинения «Хуастванифт», осуществленная на основе рукописи из рукописного собрания Санкт-Петербургского филиала Института востоковедения РАН. Рукопись на бумаге, датируемая Х-XI вв и переписанная на территории Восточного Туркестана, донесла до нас в относительно полном виде одно из важнейших манихейских (   Читать дальше...   )Жанр: МанихействоФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB533ECAEB6DF3838A588848A66C1686F42C82E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

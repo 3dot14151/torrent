@@ -1,3 +1,108 @@
+###  Публикация: 1516033   (167728) от 09.12.2021
+
+OnyX 4.1.4 for macOS Monterey 12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложения для настройки macOS бывают разных форм и цен, и вы можете выбрать то, которое соответствует вашим потребностям, будь оно сосредоточено на поиске и исправлении как можно большего количества системных ошибок и проблем или на повышении общей производительности вашего Mac.
+Универсальный инструмент для обслуживания, настройки и очистки системы Утилита OnyX (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2021Разработчик: © 2021 Titanium SoftwareПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5C0FA059B7F3F4147099B4D329E1A5A5C5AC76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1516014   (167726) от 09.12.2021
+
+Cisco AnyConnect Secure Mobility Client for Mac 4.10.04065 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisco AnyConnect Secure Mobility Client предлагает удаленным сотрудникам удобный и защищенный доступ к корпоративной сети когда угодно и откуда угодно с любого устройства без рисков для организации.Тип издания: macOS SoftwareРелиз состоялся: 09.12.2021Разработчик: CiscoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D074A62F301CD0F764FBB0130A14F27316C5881F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597073   (167683) от 13.12.2022
+
+Finder Windows 1.5.4 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Finder Windows — это плавающая панель, которая дает вам мгновенный доступ к списку открытых окон Finder в любое время. Это решает ежедневную «борьбу» с попытками добраться до нужных папок среди постоянно меняющегося беспорядка открытых окон. Теперь вы можете просто мельком взглянуть на список и выбрать нужное окно. Или мгновенно закройте те, которые вам больше не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022 Finder Windows.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7365081DFEC809A0C01DA68E326A3C07431754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597088   (167666) от 13.12.2022
+
+uDock 3.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167666.jpg" />
+</div>
+
+
+###  Подробнее
+
+μDock - это легкое системное расширение для вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 10.12.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFD7A61BF809EC8F32DF700C5D9A3A38DFEBC2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344953   (167663) от 13.12.2019
 
 Adobe Lightroom Classic 2020 9.1 [Multi]
@@ -6,7 +111,7 @@ Adobe Lightroom Classic 2020 9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167663.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Downie 4 v.4.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167618.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ Capture One 22 Pro [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167599.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Skynet 2019.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167593.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ M3U Edit 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167591.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167586.jpg" />
 </div>
 
 
@@ -169,7 +274,7 @@ Export for iTunes 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167580.jpg" />
 </div>
 
 
@@ -195,7 +300,7 @@ Downie 3 v3.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167576.jpg" />
 </div>
 
 
@@ -223,7 +328,7 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 27) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167569.jpg" />
 </div>
 
 
@@ -251,7 +356,7 @@ OmniPlayer Pro - Media Player 2.0.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167567.jpg" />
 </div>
 
 
@@ -277,7 +382,7 @@ Secret Folder Pro 10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167565.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ RAW Converter 2 v2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167551.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ Internet Status 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167502.jpg" />
 </div>
 
 
@@ -356,7 +461,7 @@ Mac FoneLab iOS Unlocker 1.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167485.jpg" />
 </div>
 
 
@@ -382,7 +487,7 @@ Alfred PowerPack 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167482.jpg" />
 </div>
 
 
@@ -409,7 +514,7 @@ TechSmith Camtasia 2022 Studio 2022.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167474.jpg" />
 </div>
 
 
@@ -435,7 +540,7 @@ JRiver Media Center 25 v25.0.123 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167470.jpg" />
 </div>
 
 
@@ -461,7 +566,7 @@ Adguard for Mac 2.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167457.jpg" />
 </div>
 
 
@@ -487,7 +592,7 @@ Wondershare Recoverit 10.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167438.jpg" />
 </div>
 
 
@@ -514,7 +619,7 @@ EdgeView 4.3.7[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167401.jpg" />
 </div>
 
 
@@ -540,7 +645,7 @@ Allegorithmic Substance Alchemist 2019.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167399.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ MWeb Pro 4.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167394.jpg" />
 </div>
 
 
@@ -578,113 +683,6 @@ MWeb поддерживает расширенный синтаксис Github: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3382314251252F26AA5EAC442A3219E7909DD754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597167   (167352) от 13.12.2022
-
-Adguard 2.9.2 nightly [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022 AdguardПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E8E2317DBC98842AA2602BEEA4C2E11214DEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673024   (167351) от 30.10.2023
-
-Magic Disk Cleaner 2.4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magic Disk Cleaner находит и удаляет временные файлы, которые занимают много места. Приложение работает молниеносно и мгновенно освобождает место на диске.Тип издания: macOS SoftwareРелиз состоялся: 25.09.2023Разработчик: © 2022-2023 Sascha SimonПоддерживаемая ОС: macOS 11.0 и вышеЯзык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987936D3CD3E954CD2A7C083E5E36B27F8BA4511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673020   (167319) от 30.10.2023
-
-Disk Xray 4.1.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Xray - утилита для просмотра статистки о жестком диске, поиска дубликатов файлов и содержит в себе инструменты для очистки.
-Folder scanner - визуально анализирует диск / папку и позволяет определить большие файлы и папки на жестком диске (дисках).
-• Сканирование любого из ваших дисков (локальный, удаленный, сетевые или портативные), или просто папку.
-• Создает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2023Разработчик: © Naraak StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C27F3CC121B2C363C86DF7299C74255AF38B4DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597165   (167317) от 13.12.2022
-
-Navicat Premium 16.1.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762E7C89407510F140F38A86AB3B11EA3FDD4A3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

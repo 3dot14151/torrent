@@ -1,3 +1,82 @@
+###  Публикация: 1390171   (745076) от 16.07.2020
+
+Встреть меня в Сент-Луисе / Meet Me in St. Louis (1944) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сент-Луис. 1903 год. Алонсо Смит, преуспевающий бизнесмен, живет со своей женой Энн, дочерьми Эстер, Тути, Роуз, Агнесс, сыном Лоном, капризным дедушкой и служанкой.
+Дочь Роуз кокетничает с одним кавалером дома и переписывается с другим, уехавшим в колледж, а Эстер помолвлена с мальчиком, живущим в соседнем доме. Когда Алонсо получает повышение по службе и ему необходимо (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, Драма, Мелодрама, Комедия, СемейныйРежиссер: Винсент МиннеллиАктеры: Джуди Гарлэнд, Маргарет О’Брайэн, Мэри Астор, Люсиль Бремер, Леон Эймс, Том Дрэйк, Марджори Майн, Гарри Девенпорт, Джун Локхарт, Генри Х. Дэниелс мл.Перевод: Многоголосый профессиональныйСубтитры: Русские, английские (Full, SDH)Продолжительность: 01:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23FBD2412C4780E49FC0EF5C615E42CE76030B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280218   (745029) от 12.02.2019
+
+Дымовой сигнал / Smoke Signal (1955) WEB-DLRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Капитан Харпер приезжает в форт, осажденный индейцами народа Юты. Очевидной причиной осады является желание ютов освободить армейского дезертира капитана Бретта Холлидея, который перешел на их сторону, и был арестован комендантом форта. Но Бретт рассказывает о себе совершенно другую историю. У небольшой группы выживших остается единственный шанс на спасение — отправиться (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: Боевик, Драма, ВестернРежиссер: Джерри ХопперАктеры: Дэна Эндрюс, Пайпер Лори, Рекс Ризон, Уильям Тэлман, Милберн Стоун, Дуглас Спенсер, Гордон Джонс, Уильям Шэллерт, Роберт Дж. Уилки, Уильям ФиппсПеревод: Одноголосый закадровый (NezPerce)Субтитры: ОтсутствуютПродолжительность: 01:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9BFF44BF337478E9A04F93A8FFEEEEFFE8B9AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018395   (744859) от 26.05.2016
+
+...иначе мы рассердимся / ...altrimenti ci arrabbiamo! (1974) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил да был один мафиози местного значения. И задумал он, по совету своего верного психолога, возвыситься, разорив беззащитный парк аттракционов и построив на его месте огромный небоскрёб. И всё бы у него получилось, если бы под горячую руку распоясавшихся рэкетиров не попалась дюна-багги, любимый автомобиль двух приятелей - голубоглазого красавца и медведоподобного (   Читать дальше...   )Производство: Италия, ИспанияЖанр: Боевик, комедияРежиссер: Марчелло ФондатоАктеры: Теренс Хилл, Бад Спенсер, Пэтти Шепард, Деогратиас Уэрта, Джон Шарп, Мануэль де Блас, Луис Барберо, Дональд Плезенс, Эмилио Лагуна, Рафаэль АльбачинПеревод: Профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F9B0792CB467508B10162C6C32D281D27ABE49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018411   (744849) от 26.05.2016
 
 Эмигрант /  L'emigrante (1973) DVDRip
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744849.jpg" />
+  <img src="Z:/picture/008/save_picture_744849.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744519.jpg" />
+  <img src="Z:/picture/005/save_picture_744519.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743804.jpg" />
+  <img src="Z:/picture/008/save_picture_743804.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743403.jpg" />
+  <img src="Z:/picture/008/save_picture_743403.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743335.jpg" />
+  <img src="Z:/picture/008/save_picture_743335.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743113.jpg" />
+  <img src="Z:/picture/008/save_picture_743113.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743013.jpg" />
+  <img src="Z:/picture/008/save_picture_743013.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742565.jpg" />
+  <img src="Z:/picture/008/save_picture_742565.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742158.jpg" />
+  <img src="Z:/picture/008/save_picture_742158.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742115.jpg" />
+  <img src="Z:/picture/008/save_picture_742115.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741634.jpg" />
+  <img src="Z:/picture/008/save_picture_741634.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740865.jpg" />
+  <img src="Z:/picture/008/save_picture_740865.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740859.jpg" />
+  <img src="Z:/picture/008/save_picture_740859.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740789.jpg" />
+  <img src="Z:/picture/008/save_picture_740789.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740749.jpg" />
+  <img src="Z:/picture/008/save_picture_740749.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740602.jpg" />
+  <img src="Z:/picture/008/save_picture_740602.jpg" />
 </div>
 
 
@@ -425,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740548.jpg" />
+  <img src="Z:/picture/008/save_picture_740548.jpg" />
 </div>
 
 
@@ -451,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740056.jpg" />
+  <img src="Z:/picture/008/save_picture_740056.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739927.jpg" />
+  <img src="Z:/picture/008/save_picture_739927.jpg" />
 </div>
 
 
@@ -504,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739762.jpg" />
+  <img src="Z:/picture/008/save_picture_739762.jpg" />
 </div>
 
 
@@ -530,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738115.jpg" />
+  <img src="Z:/picture/008/save_picture_738115.jpg" />
 </div>
 
 
@@ -556,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737936.jpg" />
+  <img src="Z:/picture/008/save_picture_737936.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737669.jpg" />
+  <img src="Z:/picture/008/save_picture_737669.jpg" />
 </div>
 
 
@@ -594,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0C06E1229F8F6BDBDAB4FB42DBA2CB3802B2365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391473   (737474) от 22.07.2020
-
-Представитель закона / Lawman (1971) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шериф приезжает в маленький городок, намереваясь арестовать нескольких ковбоев, пристреливших по пьяной лавочке несчастного старика. И, хотя все население городка встречает его с ненавистью и проклятиями, это лишь вызывает улыбку на его лице.Производство: США / Scimitar FilmsЖанр: ВестернРежиссер: Майкл УиннерАктеры: Берт Ланкастер, Роберт Райан, Ли Дж. Кобб, Роберт Дювалл, Шири Норт, Альберт Сэлми, Ричард Джордан, Джон МакГайвер, Ральф Уэйт, Джон БекПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD380C58EC9BA536EA06E26C36D674302F533F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521110   (737263) от 27.01.2022
-
-Девушка в розовом платье / The Girl in the Red Velvet Swing / Девушка на красных бархатных качелях (1955) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатый и знаменитый нью-йоркский 47-летний архитектор Стэнфорд Уайт кладет глаз на 16-летнюю модель и певичку кабаре Эвелин Несбит. Но по достижении девушки 20-летнего возраста на ней женится молодой миллионер Гарри Тау. Но Гарри никак не может обуздать свою ревность, зная о влечении Уайта к его жене. Однажды Гарри замечает в кафе, как Уайт вожделенно смотрит на (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, Мелодрама, Криминал, Биография, ИсторияРежиссер: Ричард ФлайшерАктеры: Рэй Милланд, Джоан Коллинз, Фарли Грейнджер, Лютер Эдлер, Корнелия Отис Скиннер, Гленда Фаррелл, Фрэнсис Фуллер, Филип Рид, Гэйл Роббинс, Джеймс ЛаморПеревод: Авторский, Юрий МедведевСубтитры: ОтсутствуютПродолжительность: 01:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6822FABC63C0FE4B78511A429DEE4AC78A6A223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521265   (736860) от 28.01.2022
-
-Навахо Джо / Navajo Joe (1966) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джо Навахо - единственный выживший в кровавой резне, устроенной в поселении бандой Дункана. В числе прочих жителей была и жена Джо. Он клянется отомстить за смерть любимой и вступает в схватку с Дунканом и его людьми.Производство: Италия, Испания / C.B. Films S.A., Dino de Laurentiis CinematograficaЖанр: ВестернРежиссер: Серджио КорбуччиАктеры: Берт Рейнолдс, Альдо Самбрель, Николетта Макиавелли, Фернандо Рей, Таня Лопер, Франка Полезелло, Лючия Модуньо, Пьер Крессуа, Роберто Паолетти, Нино ИмпаратоПеревод: Многоголосый профессиональный, двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A6DFC8F36BE6B44805FD07D1B34F28BFF58052
 ```
 
 https://mybot314.ru/tekegram_catalog/

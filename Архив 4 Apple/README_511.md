@@ -1,3 +1,110 @@
+###  Публикация: 1573042   (239509) от 29.08.2022
+
+Yoink 3.6.83 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yoink представляет собой посредника, который позволяет упростить доступность файлов. После установки приложения в левой части экрана появляется панель Yoink. Теперь если необходимо переместить файл с одного стола в окно открытое на другом, можно просто перетащить его в панель Yoink. Соответственно не перейдя на другой рабочий стол, просто перетягиваем файл из панели. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.08.2022Разработчик: © 2011-2022, Eternal Storms SoftwareПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED2DF1F92F39A51624AC41212DAC12DD13F4456
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573016   (239503) от 29.08.2022
+
+RAW Power 3.4.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2022Разработчик: © 2021 Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B157E30147BA96335F00DA24F85BD8BAF7EDE7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423568   (239498) от 13.11.2020
+
+Storyist 4 v4.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Storyist для Mac OS - является мощной средой для работы писателей и сценаристов, которую по достоинству оценят как профессиональные писатели, так и те, для кого написание историй - просто хобби. Storyist включает в себя текстовый редактор, заметки, планировщик, конвертер в epub и Kindle и пр. Программа поможет организовать и упорядочить все части вашей истории. Ведь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.2020Разработчик: Storyist Software LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDE9FA7F2384ADCFD8304F1412C2A5606099AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472630   (239494) от 26.05.2021
+
+Magic Sort List 3.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239494.jpg" />
+</div>
+
+
+###  Подробнее
+
+У вас есть список чего-либо, который не отсортирован и не имеет таблицы, но готовой к его сортировке? Не отчаивайтесь, Magic Sort List поможет вам в этом.
+Magic Sort List поставляется с нашим революционным механизмом сортировки, который мы усовершенствовали и доработали за прошедшие годы.
+Другое приложение для данных целей хорошо сортирует алфавитный список, но не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2021Разработчик: Complete Magic AppsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD6CB72EE33BF7367FEC231EC71007945128EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472748   (239487) от 26.05.2021
 
 GlanceCal 1.6 [En]
@@ -6,7 +113,7 @@ GlanceCal 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239487.jpg" />
+  <img src="Z:/picture/004/save_picture_239487.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ SwitchGlass 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239484.jpg" />
+  <img src="Z:/picture/004/save_picture_239484.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ HitPaw Watermark Remover 1.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239481.jpg" />
+  <img src="Z:/picture/004/save_picture_239481.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ ImageRanger Pro Edition 1.8.2.1754 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239480.jpg" />
+  <img src="Z:/picture/004/save_picture_239480.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ Vellum 3.3.3 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239479.jpg" />
+  <img src="Z:/picture/004/save_picture_239479.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Acorn 6 v6.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239477.jpg" />
+  <img src="Z:/picture/004/save_picture_239477.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ Serial 2 v2.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239460.jpg" />
+  <img src="Z:/picture/004/save_picture_239460.jpg" />
 </div>
 
 
@@ -193,7 +300,7 @@ Data Guardian 6 v.6.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239457.jpg" />
+  <img src="Z:/picture/004/save_picture_239457.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ Scrutiny 12 v.12.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239448.jpg" />
+  <img src="Z:/picture/004/save_picture_239448.jpg" />
 </div>
 
 
@@ -246,7 +353,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.0.1887 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239447.jpg" />
+  <img src="Z:/picture/004/save_picture_239447.jpg" />
 </div>
 
 
@@ -274,7 +381,7 @@ Receipts 1.9.10b5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239441.jpg" />
+  <img src="Z:/picture/004/save_picture_239441.jpg" />
 </div>
 
 
@@ -302,7 +409,7 @@ Unclutter 2.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239425.jpg" />
+  <img src="Z:/picture/004/save_picture_239425.jpg" />
 </div>
 
 
@@ -329,7 +436,7 @@ BusyCal 3 v3.11.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239424.jpg" />
+  <img src="Z:/picture/004/save_picture_239424.jpg" />
 </div>
 
 
@@ -356,7 +463,7 @@ Hookshot 1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239422.jpg" />
+  <img src="Z:/picture/004/save_picture_239422.jpg" />
 </div>
 
 
@@ -382,7 +489,7 @@ Yate 6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239417.jpg" />
+  <img src="Z:/picture/004/save_picture_239417.jpg" />
 </div>
 
 
@@ -410,7 +517,7 @@ PatterNodes 2 v2.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239413.jpg" />
+  <img src="Z:/picture/004/save_picture_239413.jpg" />
 </div>
 
 
@@ -437,7 +544,7 @@ Timemator 2 v2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239407.jpg" />
+  <img src="Z:/picture/004/save_picture_239407.jpg" />
 </div>
 
 
@@ -463,7 +570,7 @@ BusyContacts 1.4.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239400.jpg" />
+  <img src="Z:/picture/004/save_picture_239400.jpg" />
 </div>
 
 
@@ -491,7 +598,7 @@ Iridient Developer 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239391.jpg" />
+  <img src="Z:/picture/004/save_picture_239391.jpg" />
 </div>
 
 
@@ -517,7 +624,7 @@ Dropshare 5.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239378.jpg" />
+  <img src="Z:/picture/004/save_picture_239378.jpg" />
 </div>
 
 
@@ -545,7 +652,7 @@ Texpad 1.8.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239370.jpg" />
+  <img src="Z:/picture/004/save_picture_239370.jpg" />
 </div>
 
 
@@ -571,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239367.jpg" />
+  <img src="Z:/picture/005/save_picture_239367.jpg" />
 </div>
 
 
@@ -582,112 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACD7DF77948EF3B31536DC929194E6307A87B01F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423919   (239361) от 14.11.2020
-
-TextSoap 8 v8.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239361.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextSoap для Mac OS - Поможет подчистить текстовые документы различных форматов. TextSoap удалит из текста ненужные символы, пробелы и отступы. Грамотно отформатирует параграфы и устранит множество других проблем и ошибок в оформлении, позволив придать документу желаемый, опрятный вид. TextSoap автоматически исправляет множество проблем и ошибок в тексте, экономя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Unmarked Software, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D39FC185EE6C625920EBC5E3E5ED218FB3EC0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423815   (239338) от 14.11.2020
-
-Downcast 2.9.58 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downcast , популярное приложение подкаста iOS теперь доступно для OS X! Загрузка, проигрывание и синхронизация ** Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
-
-Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Enterprises LLCПоддерживаемая ОС: macOS 10.13.2 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E31FA0B77F7F2992A7A402F43E88B91C618F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638310   (239337) от 07.06.2023
-
-Infuse PRO 7.5.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 07.07.2023Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99916EB93AD9914C38A86982065DB19128026E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423850   (239324) от 14.11.2020
-
-Middle 1.5.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2020Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E99E0979CFB52263C5117BFC3E182577A5F4673
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1411047   (429481) от 24.09.2020
+
+Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная война [2019, Movie] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта детективная история с элементами социальной сатиры начинается за день до летних каникул, когда внезапно пропадают все мальчики из первого класса средней школы в центре Токио. Несчастный случай? Массовое похищение? На самом деле, мальчишки просто заперлись в здании заброшенной фабрики, находящемся у русла реки. Это «зона освобождения», откуда они при поддержке (   Читать дальше...   )Производство: студия Ajia-dou / 亜細亜堂Жанр: драмаРежиссер: Мурано ЮтаПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26EE32F8789C94F582FC00BCB5C1EDCC947729E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374501   (429066) от 24.09.2020
 
 Fruits Basket 2nd Season | Корзинка фруктов [ТВ-2, сезон II ] [2020, TV, 25] WEBRip 720p raw
@@ -6,7 +32,7 @@ Fruits Basket 2nd Season | Корзинка фруктов [ТВ-2, сезон I
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429066.jpg" />
+  <img src="Z:/picture/008/save_picture_429066.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Phantom in the Twilight | Фантом в сумерках [2018, TV, 12] WEBRip
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428232.jpg" />
+  <img src="Z:/picture/008/save_picture_428232.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Gundam Build Divers | Гандам: Сконструированные дайв�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428078.jpg" />
+  <img src="Z:/picture/008/save_picture_428078.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Oda Nobuna no Yabou  / Великие помыслы Оды Нобуны  [2012,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425904.jpg" />
+  <img src="Z:/picture/008/save_picture_425904.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424954.jpg" />
+  <img src="Z:/picture/008/save_picture_424954.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Kanojo, Okarishimasu | Rent-A-Girlfriend | Девушка напрокат [2020
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424783.jpg" />
+  <img src="Z:/picture/008/save_picture_424783.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Appare Ranman! | Аппарэ-Ранман | Небо в цвету! [2020, TV, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424638.jpg" />
+  <img src="Z:/picture/008/save_picture_424638.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ Classroom Crisis / Кризис в классе [2015, TV, 13] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422931.jpg" />
+  <img src="Z:/picture/008/save_picture_422931.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ Houkago Teibou Nisshi / Дневник послешкольного пирса [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422431.jpg" />
+  <img src="Z:/picture/008/save_picture_422431.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Uzaki-chan wa Asobitai! / Uzaki-chan Wants to Hang Out! / Узаки хочет 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422300.jpg" />
+  <img src="Z:/picture/008/save_picture_422300.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Deca-Dence / Дека-Данс [2020, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422294.jpg" />
+  <img src="Z:/picture/008/save_picture_422294.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Toaru Kagaku no Railgun T / A Certain Scientific Railgun T / Некий науч
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422281.jpg" />
+  <img src="Z:/picture/008/save_picture_422281.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Lapis Re:Lights | Лазурные огни [2020, TV, 12 из 12 эп.] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420085.jpg" />
+  <img src="Z:/picture/008/save_picture_420085.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ Made in Abyss: Fukaki Tamashii no Reimei | Made in Abyss: Dawn of the Deep Soul 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420077.jpg" />
+  <img src="Z:/picture/008/save_picture_420077.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420014.jpg" />
+  <img src="Z:/picture/008/save_picture_420014.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ Peter Grill to Kenja no Jikan  / Peter Grill and the Philosopher's Time / Пёт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420007.jpg" />
+  <img src="Z:/picture/008/save_picture_420007.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ Monster Musume no Oisha-san / Monster Girl Doctor / Доктор для деву
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420006.jpg" />
+  <img src="Z:/picture/008/save_picture_420006.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Ongaku Shoujo (2018) / Музыкальные Девчонки [2018, TV, 12] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419701.jpg" />
+  <img src="Z:/picture/008/save_picture_419701.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Happy Sugar Life | Сладкая жизнь [2018, TV, 12 эп.] WEB-DL 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419497.jpg" />
+  <img src="Z:/picture/008/save_picture_419497.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Campione! / Campione! Matsurowanu Kamigami to Kami Koroshi no Maou / Чемпи�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418244.jpg" />
+  <img src="Z:/picture/008/save_picture_418244.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ Souten no Ken: Regenesis | Кулак синих небес: Перерожде�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415340.jpg" />
+  <img src="Z:/picture/008/save_picture_415340.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ Aguu: Tensai Ningyou | Агу: Куклы-гении [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415160.jpg" />
+  <img src="Z:/picture/008/save_picture_415160.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Kekkai Sensen | Blood Blockade Battlefront | Фронт кровавой бло�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415115.jpg" />
+  <img src="Z:/picture/008/save_picture_415115.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ High Score Girl | Девчонка не промах [2018, TV, 12] HDTVRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414987.jpg" />
+  <img src="Z:/picture/008/save_picture_414987.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Hero Mask | Маска героя [2018, Web, 15] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414326.jpg" />
+  <img src="Z:/picture/008/save_picture_414326.jpg" />
 </div>
 
 
@@ -653,34 +679,6 @@ Hero Mask | Маска героя [2018, Web, 15] WEBRip 720p raw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E6090609C680CA729325477F38E9AE6F88E9A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325418   (414324) от 14.09.2019
-
-Hero Mask (2019) | Маска героя (2019) [2019, Web, 9] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сериала Hero Mask.
-
-Джеймс Блад - хладнокровный офицер, работающий в элитном отделе «Специальной службы по борьбе с преступностью» (SSC) в отделении столичной полиции. Сара Синклер - подчиненная королевскому прокурору Монике Кэмпбелл, ставшая свидетелем того, как последняя внезапно упала замертво во время работы над громким делом с участием LIVE Corporation. (   Читать дальше...   )Производство: Япония, Studio PierrotЖанр: приключения, фантастикаРежиссер: Аоки ХироясуПеревод: Геннадий МаксимовЯзык озвучки: ЯпонскийСубтитры: ass, внешние, русскиеПродолжительность: 9 эпизодов по ~25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50950AB2F0C6B0FF24539BCF516845A2CD969401
 ```
 
 https://mybot314.ru/tekegram_catalog/

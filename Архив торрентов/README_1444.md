@@ -6,7 +6,7 @@ Typinator 7.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726342.jpg" />
+  <img src="Z:/picture/008/save_picture_726342.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Comics Zone 1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726341.jpg" />
+  <img src="Z:/picture/008/save_picture_726341.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726277.jpg" />
+  <img src="Z:/picture/008/save_picture_726277.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Internet Download Manager 6.28 Build 7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726269.jpg" />
+  <img src="Z:/picture/008/save_picture_726269.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ The KMPlayer 4.2.2.22 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726268.jpg" />
+  <img src="Z:/picture/008/save_picture_726268.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726263.jpg" />
+  <img src="Z:/picture/008/save_picture_726263.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ TechSmith SnagIt 2019.1.1 Build 2860 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726256.jpg" />
+  <img src="Z:/picture/008/save_picture_726256.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ PhotoFiltre Studio X 10.12.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726252.jpg" />
+  <img src="Z:/picture/008/save_picture_726252.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726249.jpg" />
+  <img src="Z:/picture/008/save_picture_726249.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726242.jpg" />
+  <img src="Z:/picture/008/save_picture_726242.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Tenorshare 4uKey - Password Manager 1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726241.jpg" />
+  <img src="Z:/picture/008/save_picture_726241.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726238.jpg" />
+  <img src="Z:/picture/008/save_picture_726238.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ WinX DVD Ripper Platinum 8.5.0.192 Build 01.04.2017 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726237.jpg" />
+  <img src="Z:/picture/008/save_picture_726237.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ventoy 1.0.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726234.jpg" />
+  <img src="Z:/picture/008/save_picture_726234.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726191.jpg" />
+  <img src="Z:/picture/008/save_picture_726191.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ AppMonster Pro Backup Restore 3.5.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726187.jpg" />
+  <img src="Z:/picture/008/save_picture_726187.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726179.jpg" />
+  <img src="Z:/picture/008/save_picture_726179.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726115.jpg" />
+  <img src="Z:/picture/008/save_picture_726115.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726106.jpg" />
+  <img src="Z:/picture/008/save_picture_726106.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ ZD Soft Screen Recorder 9.4 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726079.jpg" />
+  <img src="Z:/picture/008/save_picture_726079.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Windows 10 (v21h2) x64 LTSC 2021 by KulHunter v1.3 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726075.jpg" />
+  <img src="Z:/picture/008/save_picture_726075.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ EagleGet 2.0.4.11 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726067.jpg" />
+  <img src="Z:/picture/008/save_picture_726067.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ The Bat! Professional 8.8.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726041.jpg" />
+  <img src="Z:/picture/008/save_picture_726041.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ FastStone Image Viewer 5.7 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726011.jpg" />
+  <img src="Z:/picture/008/save_picture_726011.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726003.jpg" />
+  <img src="Z:/picture/008/save_picture_726003.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ IObit Uninstaller 5.4.0.119 Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725994.jpg" />
+  <img src="Z:/picture/008/save_picture_725994.jpg" />
 </div>
 
 

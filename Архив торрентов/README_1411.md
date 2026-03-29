@@ -6,7 +6,7 @@ GeoGebra 6.0.596.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733854.jpg" />
+  <img src="Z:/picture/005/save_picture_733854.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz DeNoise AI 2.2.3 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733851.jpg" />
+  <img src="Z:/picture/008/save_picture_733851.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CudaText 1.108.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733850.jpg" />
+  <img src="Z:/picture/005/save_picture_733850.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Auslogics File Recovery 9.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733849.jpg" />
+  <img src="Z:/picture/005/save_picture_733849.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Everything 1.4.1.987 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733842.jpg" />
+  <img src="Z:/picture/008/save_picture_733842.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ save2pc Ultimate 5.6.1.1606 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733839.jpg" />
+  <img src="Z:/picture/008/save_picture_733839.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733819.jpg" />
+  <img src="Z:/picture/008/save_picture_733819.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ UltraISO Premium Edition 9.7.5.3716 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733814.jpg" />
+  <img src="Z:/picture/005/save_picture_733814.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Auslogics Disk Defrag Ultimate 4.11.0.7 Repack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733805.jpg" />
+  <img src="Z:/picture/008/save_picture_733805.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Honeyview 5.34 Build 5543 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733803.jpg" />
+  <img src="Z:/picture/008/save_picture_733803.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ UltraISO Premium Edition 9.7.5.3716 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733800.jpg" />
+  <img src="Z:/picture/008/save_picture_733800.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Auslogics Duplicate File Finder 8.5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733798.jpg" />
+  <img src="Z:/picture/005/save_picture_733798.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Auslogics Disk Defrag Pro 9.5.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733797.jpg" />
+  <img src="Z:/picture/005/save_picture_733797.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Movavi Video Converter 20.2.1 Premium RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733776.jpg" />
+  <img src="Z:/picture/008/save_picture_733776.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Kaspersky Lab Products Remover 1.0.1513 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733775.jpg" />
+  <img src="Z:/picture/005/save_picture_733775.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ UltraISO Premium Edition 9.7.5.3716 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733774.jpg" />
+  <img src="Z:/picture/008/save_picture_733774.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Topaz Video Enhance AI 1.4.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733766.jpg" />
+  <img src="Z:/picture/008/save_picture_733766.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733746.jpg" />
+  <img src="Z:/picture/008/save_picture_733746.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Discord 0.0.306 b64191 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733736.jpg" />
+  <img src="Z:/picture/008/save_picture_733736.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Auslogics Driver Updater 1.24.0.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733727.jpg" />
+  <img src="Z:/picture/005/save_picture_733727.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733722.jpg" />
+  <img src="Z:/picture/008/save_picture_733722.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Tor Browser Bundle 9.5.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733718.jpg" />
+  <img src="Z:/picture/005/save_picture_733718.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733628.jpg" />
+  <img src="Z:/picture/008/save_picture_733628.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733602.jpg" />
+  <img src="Z:/picture/008/save_picture_733602.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Calibre 5.36.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733554.jpg" />
+  <img src="Z:/picture/008/save_picture_733554.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Microsoft Edge 98.0.1108.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733550.jpg" />
+  <img src="Z:/picture/005/save_picture_733550.jpg" />
 </div>
 
 

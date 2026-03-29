@@ -6,7 +6,7 @@ Icecream Slideshow Maker PRO 3.49 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787202.jpg" />
+  <img src="Z:/picture/008/save_picture_787202.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CleanMyPC 1.9.10.1942 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787200.jpg" />
+  <img src="Z:/picture/008/save_picture_787200.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LibreOffice 6.1.4 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787197.jpg" />
+  <img src="Z:/picture/008/save_picture_787197.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MediaHuman YouTube Downloader 3.9.9.11 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787196.jpg" />
+  <img src="Z:/picture/008/save_picture_787196.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PreSonus - Studio One Professional 4.1.2.50657 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787194.jpg" />
+  <img src="Z:/picture/008/save_picture_787194.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ PrintMyFonts 19.1.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787184.jpg" />
+  <img src="Z:/picture/008/save_picture_787184.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Ashampoo UnInstaller 8.00.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787180.jpg" />
+  <img src="Z:/picture/008/save_picture_787180.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Download Master 6.17.2.1613 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787177.jpg" />
+  <img src="Z:/picture/008/save_picture_787177.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ CCleaner Professional (5.52.6967) Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787175.jpg" />
+  <img src="Z:/picture/008/save_picture_787175.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ NVIDIA GeForce Desktop 417.71 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787172.jpg" />
+  <img src="Z:/picture/008/save_picture_787172.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Skype 8.37.0.98 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787164.jpg" />
+  <img src="Z:/picture/008/save_picture_787164.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ CCleaner Professional Plus 5.52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787155.jpg" />
+  <img src="Z:/picture/008/save_picture_787155.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ CCleaner 5.52.6967 Free_Professional_ Business_Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787152.jpg" />
+  <img src="Z:/picture/008/save_picture_787152.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Adobe Photoshop CC 2019 (20.0.2) x64 Portable by punsh (with Plugins) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787150.jpg" />
+  <img src="Z:/picture/008/save_picture_787150.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ RegCool 1.201 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787096.jpg" />
+  <img src="Z:/picture/008/save_picture_787096.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ FinePrint Software (FinePrint 11.05 / pdfFactory Pro 8.05) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787079.jpg" />
+  <img src="Z:/picture/008/save_picture_787079.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ FinePrint 11.05 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787073.jpg" />
+  <img src="Z:/picture/008/save_picture_787073.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Emurasoft EmEditor Professional 21.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787071.jpg" />
+  <img src="Z:/picture/008/save_picture_787071.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Wise Care 365 Pro 6.1.3.600 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787065.jpg" />
+  <img src="Z:/picture/008/save_picture_787065.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Futuremark PCMark 10 Professional Edition 2.1.2532 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787047.jpg" />
+  <img src="Z:/picture/008/save_picture_787047.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ ZW3D 2022 SP [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787046.jpg" />
+  <img src="Z:/picture/008/save_picture_787046.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ SoftPerfect RAM Disk 4.3.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787044.jpg" />
+  <img src="Z:/picture/008/save_picture_787044.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ WinToHDD 5.4 Release 1 Free / Pro / Enterprise / Technician RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787037.jpg" />
+  <img src="Z:/picture/008/save_picture_787037.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Detwinner 2.03.010 (& Portable) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786971.jpg" />
+  <img src="Z:/picture/008/save_picture_786971.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ ABBYY FineReader 14.0.107.212 Enterprise RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786923.jpg" />
+  <img src="Z:/picture/008/save_picture_786923.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Alien Skin Exposure X4 Bundle v4.0.1.26 49029 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786922.jpg" />
+  <img src="Z:/picture/008/save_picture_786922.jpg" />
 </div>
 
 

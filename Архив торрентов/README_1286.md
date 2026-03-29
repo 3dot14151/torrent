@@ -6,7 +6,7 @@ Howard Givens & Craig Padilla - Being of Light (2017) Spotted Peccary [FLAC|Loss
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765775.jpg" />
+  <img src="Z:/picture/008/save_picture_765775.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765772.jpg" />
+  <img src="Z:/picture/008/save_picture_765772.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ AMD Radeon Software Adrenalin Edition 18.3.3 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765760.jpg" />
+  <img src="Z:/picture/008/save_picture_765760.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Disk Expert 2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765754.jpg" />
+  <img src="Z:/picture/008/save_picture_765754.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ ScreenFlow 7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765748.jpg" />
+  <img src="Z:/picture/008/save_picture_765748.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Eve - Scorpion (2001)  [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765739.jpg" />
+  <img src="Z:/picture/008/save_picture_765739.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ BookReader 5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765722.jpg" />
+  <img src="Z:/picture/008/save_picture_765722.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Iridient Developer 3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765721.jpg" />
+  <img src="Z:/picture/008/save_picture_765721.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ SRWare Iron 65.0.3400.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765718.jpg" />
+  <img src="Z:/picture/008/save_picture_765718.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ ReviverSoft PC Reviver 3.3.5.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765715.jpg" />
+  <img src="Z:/picture/008/save_picture_765715.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Ummy Video Downloader 1.65 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765708.jpg" />
+  <img src="Z:/picture/008/save_picture_765708.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ K-Lite Codec Pack 14.0.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765671.jpg" />
+  <img src="Z:/picture/008/save_picture_765671.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Windows Firewall Control 5.3.0.0 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765643.jpg" />
+  <img src="Z:/picture/008/save_picture_765643.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Revo Uninstaller Pro 3.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765637.jpg" />
+  <img src="Z:/picture/008/save_picture_765637.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765611.jpg" />
+  <img src="Z:/picture/008/save_picture_765611.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765591.jpg" />
+  <img src="Z:/picture/008/save_picture_765591.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Shrek Forever After: The Game / Шрэк Навсегда [RePack]  {10+} [En] |
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765570.jpg" />
+  <img src="Z:/picture/008/save_picture_765570.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765558.jpg" />
+  <img src="Z:/picture/008/save_picture_765558.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765557.jpg" />
+  <img src="Z:/picture/008/save_picture_765557.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765556.jpg" />
+  <img src="Z:/picture/008/save_picture_765556.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Who's Afraid Of 138?! (Mini Mix 001) - Armada Music (2017) [MP3|320 Kbps] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765547.jpg" />
+  <img src="Z:/picture/008/save_picture_765547.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VA - Destinations Vol.4 (Compiled By Cubixx) (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765521.jpg" />
+  <img src="Z:/picture/008/save_picture_765521.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Mindy Smith - Stupid Love (2009) [FLAC|Lossless|tracks + .cue] <Country,Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765519.jpg" />
+  <img src="Z:/picture/008/save_picture_765519.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Dan Guidance - Island In The Sky (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765513.jpg" />
+  <img src="Z:/picture/008/save_picture_765513.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Collin Raye - Love Songs (2000) [FLAC|Lossless|tracks + .cue] <Country,Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765509.jpg" />
+  <img src="Z:/picture/008/save_picture_765509.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765507.jpg" />
+  <img src="Z:/picture/008/save_picture_765507.jpg" />
 </div>
 
 

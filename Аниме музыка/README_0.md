@@ -6,7 +6,7 @@ Higurashi no Naku Koro ni | Когда плачут цикады (2006-2016) [FL
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886507.jpg" />
+  <img src="Z:/picture/005/save_picture_886507.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Oshi ga Budoukan Itte Kuretara Shinu | Если мой кумир споёт н�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886505.jpg" />
+  <img src="Z:/picture/005/save_picture_886505.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Show by Rock!! Mashumairesh!! | Рок-шоу! (2020) (2020) [MP3|320 Kbps] <OST
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884790.jpg" />
+  <img src="Z:/picture/005/save_picture_884790.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cross Ange -Tenshi to Ryuu no Rondo- OST (2014-2015|FLAC) <OP|ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_882506.jpg" />
+  <img src="Z:/picture/008/save_picture_882506.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Da Yu Hai Tang / Big Fish & Begonia (2016) [FLAC|Lossless|image+.cue] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846416.jpg" />
+  <img src="Z:/picture/008/save_picture_846416.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Sawano Hiroyuki [nZk] - Лучшие вокальные работы [nZk] 2 | B
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837313.jpg" />
+  <img src="Z:/picture/008/save_picture_837313.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Fractale OP&ED Single - Harinezume [Azuma Hitomi] (FLAC)
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832002.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Fuuka OST (2017) [MP3|320 kbps] <OST>
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827797.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Fuuka OST (2017) [FLAC|tracks] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826057.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ VALKYRIE DRIVE -MERMAID- | Импульс Валькирии (2016) [FLAC|Lossle
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822204.jpg" />
+  <img src="Z:/picture/008/save_picture_822204.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ THE iDOLMASTER Cinderella Girls OST (2014-2016) [FLAC|Lossless|26 CD] <OST+OP+ED
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807300.jpg" />
+  <img src="Z:/picture/008/save_picture_807300.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ STUDIO GHIBLI SONGS NEW EDITION + Music Box (2015) [FLAC|Lossless|WEB-24-48|trac
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796616.jpg" />
+  <img src="Z:/picture/008/save_picture_796616.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ RADWIMPS - Weathering With You (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786641.jpg" />
+  <img src="Z:/picture/008/save_picture_786641.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ RADWIMPS - Weathering With You -Complete Version- (2019) [FLAC 2.0|48/24|tracks|
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786640.jpg" />
+  <img src="Z:/picture/008/save_picture_786640.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Princess Connect! Re:Dive Theme Song - Soredemo Tomo ni Aruite Iku & Lost Prince
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783842.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ BNA Theme Song - Ready to & NIGHT RUNNING (2020) [FLAC 2.0|48/24|tracks|WEB-DL] 
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783839.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Re: Zero | Re: Life in a different world from zero ORIGINAL SOUND TRUCK (2016) [
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783837.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ BNA Complete album (2020) [FLAC|lossless|tracks+.cue] <OST+OP+ED+Insert Songs>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768253.jpg" />
+  <img src="Z:/picture/008/save_picture_768253.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762359.jpg" />
+  <img src="Z:/picture/008/save_picture_762359.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ The Tokyo Philharmonic Orchestra - Pretty Guardian Sailor Moon 25th Anniversary 
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761879.jpg" />
+  <img src="Z:/picture/008/save_picture_761879.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ The Tokyo Philharmonic Orchestra - Pretty Guardian Sailor Moon Classic Concert A
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760198.jpg" />
+  <img src="Z:/picture/008/save_picture_760198.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ V.A. - Sailor Moon The 25th Anniversary Memorial Tribute (2018) [MP3|320 Kbps] <
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758498.jpg" />
+  <img src="Z:/picture/008/save_picture_758498.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Trinity Seven | Святая семёрка [2014-2019][MP3|320 Kbps][18CD] <OST
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758379.jpg" />
+  <img src="Z:/picture/008/save_picture_758379.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Frontier Aja - Koumajou Densetsu OST (2009-2011) [FLAC|Lossless] <OST, Touhou, J
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756046.jpg" />
+  <img src="Z:/picture/008/save_picture_756046.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Oedo wa Nemurenai! OST (1993) [FLAC|Lossless|tracks] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734146.jpg" />
+  <img src="Z:/picture/008/save_picture_734146.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Kokoro ga Sakebitagatterunda. (Kokosake) / The Anthem of the Heart / Сердц�
 >>Аниме OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705593.jpg" />
+  <img src="Z:/picture/008/save_picture_705593.jpg" />
 </div>
 
 

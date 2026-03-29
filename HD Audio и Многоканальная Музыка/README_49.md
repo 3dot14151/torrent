@@ -1,3 +1,235 @@
+###  Публикация: 1625184   (241666) от 10.04.2023
+
+The Buggles - The Age Of Plastic (1980)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+
+1 Living In The Plastic Age 5:12
+2 Video Killed The Radio Star 4:08(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA844F0F87A5271B2A70BF0F697A865BDC188928
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625441   (241189) от 10.04.2023
+
+Secret Service - Jupiter Sign (1984)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+
+A1 Jupiter Sign 4:52
+A2 Love Cannot Be Wrong 2:53(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AEE7B7496BEBF2E16E72A476987597A1982B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625084   (241158) от 10.04.2023
+
+The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Robot (6:02)
+ 02. I Wouldn’t Want to Be Like You (3:22)
+ 03. Some Other Time (4:05)
+ 04. Breakdown (3:54)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:540B7805436D59B21B712C6A8EF19504A106173B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059485   (241130) от 17.04.2022
+
+Blood Sweat & Tears - Nuclear Blues (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Fusion, Jazz-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241130.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Agitato
+A2 Nuclear Blues
+A3 Manic Depression
+A4 I'll Drown In My Own Tears(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870CCC4AEC2CFDDB9256C0A841EED98487B4E19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042678   (241112) от 17.04.2022
+
+VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Hard Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Б. Тихомиров - Заставка "Место Встречи"
+02. "Эй Си Ди Си" - Для Тех, Кто Любит Рок
+03. "Статус-Кво" - Меня Не Провести
+04. "Роллинг Стоунз" - Удовлетворние(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0021F9F5C6A6B45209431AF991C6FCC9C5603033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631131   (241108) от 04.05.2023
+
+А. Ведерников, ф-но - С. Прокофьев - Пьесы (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical, Modern>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дивертисмент, Соч. 43-бис • Divertimento, Op. 43-bis
+A1 Moderato Molto, Ritmato
+A2 Ноктюрн • Nocturne
+A3 Танец • Dance(   Читать дальше...   )Жанр: Classical, ModernПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C31A62EF58657C3F36CFC4CDE2FF26DAB380AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058930   (241081) от 17.04.2022
+
+VA - Для Вас, Женщины! (1975 - 1989) Серия 13LP [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Отиева - Сон про Джанет
+02. Группа «Ласковый май» - Лето
+03. Жанна Агузарова - Когда-нибудь
+04. Группа «Женсовет» - Женсовет(   Читать дальше...   )Жанр: PopПродолжительность: 08:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFE70E25FBE7BAFBFED3C7DC454C1C7948648FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041389   (240900) от 18.04.2022
+
+Orchestra Caravelli - Оркестр Каравелли (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop,  Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240900.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Малышка (Ma Petite Chose)
+A2 Японские Картинки (Le Samourai)
+A3 Ночь В Буэнос-Айресе (Una Noche En Buenos Aires)
+A4 Тайфун Над Кагосимой (Typhon Sur Kagoshima)(   Читать дальше...   )Жанр: Jazz, Pop,  Easy ListeningПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD29B15E3D3D3C545BC9D4F02D6F0772A978AA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036083   (240885) от 18.04.2022
 
 ВИА Акварели - Солнечный Луч В Моем Сердце (1979) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
@@ -6,7 +238,7 @@
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240885.jpg" />
+  <img src="Z:/picture/004/save_picture_240885.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ VA - Пулсиращи Ноти 1 (1984) [APE 2.0 24/96|image+.cue (Vinyl-Rip)]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240263.jpg" />
+  <img src="Z:/picture/004/save_picture_240263.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ VA - Девочка Моя Синеглазая - Песни В. Дорохин�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240202.jpg" />
+  <img src="Z:/picture/004/save_picture_240202.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ DIO - Легенды Зарубежного Рока (2001) Compilation, Unoffic
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240023.jpg" />
+  <img src="Z:/picture/004/save_picture_240023.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Thomas Anders - Whispers (1991) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239963.jpg" />
+  <img src="Z:/picture/004/save_picture_239963.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Yello - Stella (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239947.jpg" />
+  <img src="Z:/picture/004/save_picture_239947.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ VA - Русская Балалайка (1968) [FLAC 1.0|96/24|image+.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239937.jpg" />
+  <img src="Z:/picture/004/save_picture_239937.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Heretic - Studio Albums (4 releases) (1986-2017) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239913.jpg" />
+  <img src="Z:/picture/004/save_picture_239913.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239834.jpg" />
+  <img src="Z:/picture/004/save_picture_239834.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239802.jpg" />
+  <img src="Z:/picture/004/save_picture_239802.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239608.jpg" />
+  <img src="Z:/picture/004/save_picture_239608.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Yello - One Second (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239544.jpg" />
+  <img src="Z:/picture/004/save_picture_239544.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Tom Jones - Tom Jones Sings She's A Lady (1971) [FLAC 2.0|96/24|image+.cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239353.jpg" />
+  <img src="Z:/picture/004/save_picture_239353.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Fishbone - Fishbone (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239216.jpg" />
+  <img src="Z:/picture/004/save_picture_239216.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Beseech - Studio Albums (6 releases) (1998-2016) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238977.jpg" />
+  <img src="Z:/picture/004/save_picture_238977.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Europe - Дискография (14 albums) (1983-2017) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238954.jpg" />
+  <img src="Z:/picture/005/save_picture_238954.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Kraftwerk - Computerwelt (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-p
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238933.jpg" />
+  <img src="Z:/picture/005/save_picture_238933.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238862.jpg" />
+  <img src="Z:/picture/005/save_picture_238862.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628145   (238861) от 22.04.2023
-
-Оркестр Поля Мориа (Paul Mauriat) - Под музыку Вивальди (1980) Мелодия [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-
-1. Под музыку Вивальди · Sur Un Air Du Vivaldi 3:02
-2. Pulstar 3:29(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636742   (238726) от 01.06.2023
-
-Royal Hunt - Studio Albums (17 releases) (1992-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Royal Hunt — англоязычная рок-группа из Дании, основанная в 1989 году.1992 - Land Of Broken Hearts
-1994 - Clown In The Mirror
-1995 - Moving Target
-1997 - ParadoxЖанр: Melodic Progressive MetalПродолжительность: 15:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B0B5087FB0EB57093151DDDB49017BE5EA1041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572762   (238688) от 28.08.2022
-
-The Eagles - Hotel California (1976) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Classic Rock, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotel California 06:31
-02. New Kid In Town 05:04
-03. Life In The Fast Lane 04:46
-04. Wasted Time 04:57(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C004DD414FBDA0CE6D7969B09FC0FD8175984FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628957   (238506) от 25.04.2023
-
-Duran Duran - Notorious (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238506.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Notorious
-A2 American Science
-A3 Skin Trade
-A4 A Matter Of Feeling(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18B0B3CA005E4E029B8627AEA5DB9DBB3F4830C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628701   (238489) от 24.04.2023
-
-Amon Amarth - Studio Albums (13 releases) (1996-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amon Amarth — шведская метал-группа, играющая в жанре мелодичный дэт-метал. Название группы значит «Роковая гора» на синдарине, эльфийском языке, и отсылает к горе Ородруин из романа Дж. Р. Р. Толкина «Властелина Колец». Основной тематикой группы является германо-скандинавская мифология. Музыку Amon Amarth составляет сочетание гроулинга с «тяжелыми» мелодиями и эпическими (   Читать дальше...   )1996 - Sorrow Throughout The Nine Worlds
-1998 - Once Sent From The Golden Hall
-1999 - The Avenger
-2001 - The CrusherЖанр: Melodic Death MetalПродолжительность: 10:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5951C6CF42EB48D5DADE0E5EF44A5514BEAC3E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639148   (238458) от 12.06.2023
-
-Shakra - Studio Albums (13 releases) (1998-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shakra — швейцарская рок-группа, основанная в конце 1990-х годов.1998 - Shakra
-1999 - Moving Force
-2001 - Power Ride
-2003 - RisingЖанр: Hard RockПродолжительность: 11:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817EAB28176C895D92D157F58724122BEE6215DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137826   (238423) от 30.04.2022
-
-VA (Юрий Антонов, Александр Серов, Александр Градский) - Снегири (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238423.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Юрий Антонов - Снегири
-A2 Александр Серов - Признание
-B  Александр Градский - Памяти Джордано Бруно
-=================================(   Читать дальше...   )Жанр: PopПродолжительность: 00:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87FB0F582AB4026A874A9029F2DF0EF5D2CE59C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628719   (238422) от 24.04.2023
-
-Дискоклуб 4 - Ансамбль Мелодия/VA - Популярная Зарубежная Мозаика / Популярные Русские Песни и Романсы (1982) 2 LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Folk, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238422.jpg" />
-</div>
-
-
-###  Подробнее
-
-LP1
-Мелодия – С 60—17297-98
-00:37:26
-Популярная Зарубежная Мозаика(   Читать дальше...   )Жанр: Jazz, Folk, Easy Listening
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C24632EB75B7B83B40E4204A830CFA1C6EBE7EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

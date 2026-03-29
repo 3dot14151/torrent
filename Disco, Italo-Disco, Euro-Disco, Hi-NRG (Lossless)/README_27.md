@@ -6,7 +6,7 @@ Systems In Blue - Anthology 2003-2023 (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48063.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Digital Emotion - Arcade Serenade (2024) Unofficial [FLAC|Lossless|image + .cue]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47657.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Gazebo - From Pasha with Love (Vinyl Release) (2024) Maxi Single [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47214.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Niel De One - Retrospectiva (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47023.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Loni Cash - The Album (2013) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Synthpop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46807.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ L'Imperatrice - Pulsar (2024) [FLAC|Lossless|WEB-DL|tracks] <French-Disco, Indie
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46597.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Amadeus Liszt - The Collection (Original Mike Mareen Master Tape Series) (2022) 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43863.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ VA - 80's Disco Reworked (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Pop Da
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43678.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Giorgio Moroder - Radio Edits, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Elec
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43180.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Cerrone - Discoset 1 (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42812.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dschinghis Khan - Best Of: 45 Jahre (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40661.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Peter Griffin - Step By Step (1981) [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39669.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Peter Griffin - Hurricane Is Coming (1980) [FLAC|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39664.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Boney M. - Christmas With Boney M. (2007) Compilation, Reissue, Remastered [FLAC
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36498.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Android (Marc Hartman and Imro van Hetten) - Spaceman's Return (2022) [FLAC|Loss
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36476.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Patrick Cowley - From Behind (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35518.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Mflex Sounds - Flashback Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35307.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Mflex Sounds - Flashback Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35302.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mflex Sounds - Flashback Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35300.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ AlimkhanOV A. - Black (The 4th Album) (2024) [FLAC|Lossless|tracks + .cue] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33789.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Ken Laszlo - Hey Hey Guy Don't Cry Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32610.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Mflex Sounds - Misleading Truth (Volumes) (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29591.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Mflex Sounds - Synthmagic (Italo Essentials Volumes) (2025) [FLAC|Lossless|WEB-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29589.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Mflex Sounds - Bad Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29584.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Daro-X - After The Rain (2025) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29130.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Village People - Gold (2019) 3 x CD [FLAC|Lossless|image + .cue] <Disco, Pop, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27822.jpg" />
 </div>
 
 

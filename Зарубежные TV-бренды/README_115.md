@@ -1,3 +1,107 @@
+###  Публикация: 1433599   (156038) от 21.12.2020
+
+Мир природы: Слоны - долгая дорога домой / Natural World. Elephants Without Borders (2009) HDTVRip [H.264/720p] (сезон 27, серия 11)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слонам в Ботсване живется хорошо, даже очень хорошо! Но местное население обеспокоено этим благополучием, поскольку считает, что такое количество слонов представляет потенциальную угрозу их жилищам и огородам... Они считают, что 60 000 слонов нужно просто убить. Ученый Майк Чейз занимается изучением этих могучих животных. С помощью современной телеметрической аппаратуры (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)&Animal PlanetЖанр: Документальный, природа, фаунаРежиссер: Майк ХолдингПеревод: Одноголосый закадровый, профессиональный (Селена Интернешнл)Субтитры: АнглийскиеПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0459B0816868234186620311C187AE3D6BA516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430104   (155631) от 21.12.2020
+
+Восемь смертных грехов (2020) WEB-DL [H.264/1080p] (серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>Мир будущего
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цикл документальных передач посвящён 8 смертным грехам современного цивилизованного человечества. Все эти грехи описал в своей книге "Оборотная сторона зеркала" в 1973 году нобелевский лауреат, австрийский учёный Конрад Лоренц. Главный вопрос, на который пытаются найти ответ учёные всего мира, красной нитью проходит через все 8 серий - "Куда движется (   Читать дальше...   )Производство: Россия, т/к "Россия-Культура", ВГТРК, ООО "Под знаком Пи"Жанр: Документальный, цивилизацияРежиссер: Михаил КузовенковЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 8 x ~00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C830D30682E184463532D917EEDD24DF8D296900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521662   (155568) от 23.12.2015
+
+BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155568.jpg" />
+</div>
+
+
+###  Подробнее
+
+В солнечной системе немало спутников, но наша Луна уникальна. Она оказывает огромное влияние на Землю, поддерживает стабильность нашего Мира. Что стало бы с нами если бы не Луна?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A7551043D13E1DDFC1FD8BFE8892D4ECE86E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600728   (155565) от 28.12.2022
+
+NG: Расследования Авиакатастроф / Спецвыпуск / Air Crash Investigation (2021) WEB-DLRip [H.264/720p-LQ] (сезон 4, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реконструкция реальных воздушных катастроф, интервью с авиационными специалистами и очевидцами происшествий.Производство: Канада, Cineflix Productions, Galaxie Productions, NF Inc.Жанр: документальный, история, реальное ТВРежиссер: Тим Волочатюк, Джордж Д’Амато, Su RynardПеревод: Одноголосый профессиональный - Студия «Велес»Язык озвучки: русскийПродолжительность: каждая серия ~00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CD2C335556FF0D08CA66619328C333EFCB8DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600727   (155421) от 28.12.2022
 
 NG: Расследования Авиакатастроф / Mayday / Air Crash Investigation (2021) WEB-DLRip [H.264/720p-LQ] (сезон 21, серии 1-10 из 10)
@@ -6,7 +110,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155421.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155373.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ NG: Загадка Кероса / Keros: The mystery of the broken figurines (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155030.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154962.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154871.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153378.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ NG: Суперсооружения: Саграда Фамилья / Megastructur
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153324.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ NG: Доисторические монстры Гитлера / Hitler's Jurass
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153250.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ NG: Дикая природа России / Wild Russia (2009) HDTVRip [H.264/7
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152773.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152735.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Animal Planet: Беловежская пуща: первозданный лес 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152642.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ BBC. Эйнштейны от природы / Animal Einsteins (2021) DVB  [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152360.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ NGW: Дикие дельфины / Wild Dolphins (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152218.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ Animal Planet: Летающие челюсти. Прогулка с белыми
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152151.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151871.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151630.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ NG: Службы безопасности портов: Гамбург / Port Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151507.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ NGW: Дикая Аляска: Арктическое лето / Wild Alaska. Arc
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151460.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ NG: История Эмиратов / History of the Emirates (2019) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151334.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151247.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ Discovery: Мятеж: / Mutiny: Survival On The Oceans (2017) HDTVRip [H.264/72
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151185.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151177.jpg" />
 </div>
 
 
@@ -565,111 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:854F1D9BCC1517683C0D3DA829E52A242D679402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968861   (151059) от 25.12.2015
-
-Viasat History: BBC: Железные дороги в годы Первой мировой войны / Michael Portillo's Railways of the Great War (2014) HDTVRip [H.264/720p-LQ] (серии 1-5 из 5)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151059.jpg" />
-</div>
-
-
-###  Подробнее
-
-К 1914 году локомотивы существовали в Великобритании уже на протяжении целого столетия. Железные дороги пересекали всю Европу, на континенте царило благополучие и спокойствие, быстро развивалась промышленность, однако именно она принесла с собой смертельное оружие. И в 1914 году разразилась механизированная война. В этой программе британский журналист Майкл Портильо (   Читать дальше...   )Телекомпания: Великобритания, FreMantleMedia Ltd. for BBCЖанр: Документальный, история, железные дорогиРежиссер: Tom RichardsonВ ролях: Ведущий - Майкл ПортильоПеревод: Профессиональный (одноголосый), переведено и озвучено на студии "SDI Media"
-перевод Натальи Малашонок, текст читает Михаил КарасиковПродолжительность: 5x~00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5CE39F595881665F784992802C4D0A6522E72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434524   (150383) от 24.12.2020
-
-Тайны анатомии (Мозг) (2020) WEBRip
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто сейчас читает эти строки: вы или ваш мозг? На этот раз мы исследуем совсем небольшую часть человеческого организма: которая разместилась в пределах скромной черепной коробки, однако влияет на всё в этой жизни и потребляет огромное количество энергии. Для чего нам нужен мозг. Как он формирует наш мир и что называет реальностью. Где внутри него хранится «флешка» (   Читать дальше...   )Телекомпания: Россия, ООО "ЕМГ"Жанр: Документальный, исследование, наукаРежиссер: Яна ВарлашкинаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D7B7FC6CF9D0332960703DA0F4B41B27C9AA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677589   (150118) от 18.11.2023
-
-Discovery: Чикаго времен Аль Капоне / Al Capone's Chicago (2003) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коррупция, громкие преступления и звуки выстрелов сделали знаменитым этот город. В прошлом, Чикаго был городом джаза, незаконной торговли алкоголем. Безжалостные гангстеры, засекреченные агенты ФБР, а также контрабандисты спиртного стали его неотъемлемой частью. Но в суматохе сегодняшнего города скрыты тайны прошлого. За новыми фасадами зданий можно найти следы Чикаго (   Читать дальше...   )Производство: США / Discovery Communications, Adams County ProductionsЖанр: Документально-постановочныйРежиссер: Том ДженнингсПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71EA5A4B9E30A002A0890A9838DCEDE55EE2B81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456606   (149790) от 18.11.2023
-
-Дух времени: За пределами / InterReflections (2020) WEB-DLRip [H.264/1080p] [MVO]
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149790.jpg" />
-</div>
-
-
-###  Подробнее
-
-В поисках нового, более гуманного общества контркультурная революция берёт мир штурмом. В этой части трилогии мы оглядываемся назад и задаёмся вопросом как человечеству вообще удалось столько продержаться.Производство: США, Gentle Machine ProductionsЖанр: Документальный, фантастикаРежиссер: Питер ДжозефУчастники: Голди Хоффман, Шайа Луна, Крис Грабер, Рэйчел Оуэнс, Вероника Фаррен, Молли Малин, Микаэл Мэттссон, Грегори Нибел, Майкл Маринаццио, Шон РензеттиПеревод: Многоголосый любительскийЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 02:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5D0EDAC4FE1A4C1EDDEF07BF126D2B1D79C5235
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ James Bond 007 Трилогия [Ru/En] (RePack) 2002-2010 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570039.jpg" />
+  <img src="Z:/picture/008/save_picture_570039.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lumo (2016) [Ru/Multi] (1.07.18) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570036.jpg" />
+  <img src="Z:/picture/008/save_picture_570036.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Prototype 2: RedNet Edition (RePack/1.0) [Ru] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570004.jpg" />
+  <img src="Z:/picture/008/save_picture_570004.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ James Cameron's Avatar: The Game (RePack/1.02) [Ru/En] 2009 | VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569995.jpg" />
+  <img src="Z:/picture/008/save_picture_569995.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0/upd2) Repack =nemos= [Episod
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569985.jpg" />
+  <img src="Z:/picture/008/save_picture_569985.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wicked Monsters Blast! [Wii] [NTSC] [Eng] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569015.jpg" />
+  <img src="Z:/picture/008/save_picture_569015.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Prototype Дилогия [Ru/En] (RePack) 2009-2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568209.jpg" />
+  <img src="Z:/picture/008/save_picture_568209.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Prototype 2 (Crack) [Multi12/+] (2012) {Steam006/FLT}
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568146.jpg" />
+  <img src="Z:/picture/008/save_picture_568146.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Sengoku Basara 4 Sumeragi (2015) [PS3] [JPN] 4.60 [License] [Jp]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567919.jpg" />
+  <img src="Z:/picture/008/save_picture_567919.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Train Fever (2015) [Ru/Multi] (build 5446/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567907.jpg" />
+  <img src="Z:/picture/008/save_picture_567907.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ King's Quest: Chapter 1 (2015) [En/De/Fr] License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567803.jpg" />
+  <img src="Z:/picture/008/save_picture_567803.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Orcs Must Die! 2 [Ru] (RePack) 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567561.jpg" />
+  <img src="Z:/picture/008/save_picture_567561.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Orcs Must Die! 2 [Ru/En] (RePack) 2012 l Mailchik
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566784.jpg" />
+  <img src="Z:/picture/008/save_picture_566784.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Orcs Must Die! 2 (P) [Ru/En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566637.jpg" />
+  <img src="Z:/picture/008/save_picture_566637.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ Apotheon (2015) [En] (1.03) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566572.jpg" />
+  <img src="Z:/picture/008/save_picture_566572.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ GOD EATER 3 (2019) [Ru/Multi] (1.3) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566565.jpg" />
+  <img src="Z:/picture/008/save_picture_566565.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Orcs Must Die! 2 [Ru] (RePack) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566480.jpg" />
+  <img src="Z:/picture/008/save_picture_566480.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Inversion (Lossless Repack/5.48.0.0) [Ru] 2012 l R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566476.jpg" />
+  <img src="Z:/picture/008/save_picture_566476.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Binary Domain (RePack/update 2) [Ru] 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566475.jpg" />
+  <img src="Z:/picture/008/save_picture_566475.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Orcs Must Die! 2 [Ru/En] (Steam-Rip) 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566362.jpg" />
+  <img src="Z:/picture/008/save_picture_566362.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Orcs Must Die 2 [Ru/En/Multi9] (Steam-Rip/1.0.0.257) 2012 l R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566348.jpg" />
+  <img src="Z:/picture/008/save_picture_566348.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Prototype 2 (Repack/1.0) [Ru] 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566291.jpg" />
+  <img src="Z:/picture/008/save_picture_566291.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Hard Reset. Extended Edition [Ru/En] (RePack/1.51.0.0) 2011 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566285.jpg" />
+  <img src="Z:/picture/008/save_picture_566285.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Prototype 2: RedNet Edition (RePack/1.0) [Ru] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566171.jpg" />
+  <img src="Z:/picture/008/save_picture_566171.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ The Banner Saga 2 (2016) [En/Multi] (2.32.380) License PROPHET
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565028.jpg" />
+  <img src="Z:/picture/008/save_picture_565028.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Orcs Must Die / Бей орков [Ru/En/Multi9] (Steam-Rip/1.0.0.2416) 2011 l R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564577.jpg" />
+  <img src="Z:/picture/008/save_picture_564577.jpg" />
 </div>
 
 

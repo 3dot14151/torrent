@@ -1,3 +1,81 @@
+###  Публикация: 1773591   (3068) от 13.09.2025
+
+Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) Repack Let'sРlay [Complete edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте миры с помощью божественных титанов. Выстраивайте симбиотические экосистемы и вдохновляйте человечество своими творениями. Их достижения будут открывать новые возможности. Вновь станьте богом в Reus 2, возглавив могучих гигантов, чья власть над стихиями позволяет вам формировать миры, создавать экосистему ресурсов и обеспечивать процветание человеческих (   Читать дальше...   )Тип издания: RepackРазработчик: Abbey GamesЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D9498F59D473053FA22629E6020D05A28B0A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817794   (3029) от 13.09.2025
+
+Kaiserpunk (2025) [Ru/Multi] (1.01.010/dlc) Repack Let'sРlay [Supporter Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Покорите мир в Kaiserpunk - глобальном градостроительном симуляторе, действие которого разворачивается в альтернативной версии 20-го века, где из пепла Первой мировой войны восстали многочисленные города-государства, жаждущие власти. Развивайте промышленность империи, наращивайте военную мощь и побеждайте соперников. Приведите свою империю к мировому господству в (   Читать дальше...   )Тип издания: RePackРазработчик: Overseer GamesЖанр: Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E960954363864F6987084A9398CDFA25D3E1CE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758915   (2276) от 18.09.2025
+
+Frostpunk 2 (2024) [Ru/Multi] (1.4.0-552065/dlc) Repack LetsPlay [Deluxe Edition]
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frostpunk 2 открывает новые грани жанра выживания города. Вам предстоит стать Наместником и спасать город в ряде суровых испытаний, которые обрушились лавиной на заснеженный постапокалиптический пейзаж. Стройте районы, учитывайте нужды жителей, а также улаживайте конфликты между фракциями. Только вы сможете управлять разрастающимся поселением и сделать из него процветающий (   Читать дальше...   )Тип издания: RepackРазработчик: 11 bit studiosЖанр: Симуляторы, СтратегииЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBC9CF86F851755BA395E7D02421892B27A9566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622774   (2270) от 18.09.2025
 
 Terra Nil (2023) [Ru/Multi] (1.2.10) License GOG
@@ -6,7 +84,7 @@ Terra Nil (2023) [Ru/Multi] (1.2.10) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2270.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ TerraScape (2024) [Ru/Multi] (1.2.0.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2269.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Stronghold Crusader: Definitive Edition (2025) [Ru/Multi] (1.05) Repack Let'sРl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2268.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Rising Lords (2020) [Multi] (1.3.5) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2259.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1736.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ City Game Studio: a tycoon about game dev (2019) [Ru/Multi] (1.24.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1409.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Against the Storm (2022) [Ru/Multi] (1.8.12r/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1393.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0) Repack dixen18
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1378.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.4.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_727.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.250900) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_714.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) License GOG [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_683.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Kingdom Rush 5: Alliance TD (2024) [Ru/Multi] (6.00.114/dlc) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_429.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.42d/dlc) Repack Other s [Complete Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Yes, Your Grace 2 Snowfall (2025) [Ru/Multi] (1.0.10962) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101.jpg" />
 </div>
 
 

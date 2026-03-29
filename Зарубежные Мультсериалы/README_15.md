@@ -1,3 +1,55 @@
+###  Публикация: 1279613   (764294) от 31.01.2019
+
+Кунг-фу панда: Лапки судьбы / Kung Fu Panda: The Paws of Destiny (2018) WEB-DLRip (Сезон 1, Серии 13 из 13)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре юные панды из Затерянной деревни случайно приобретают в магической пещере древнюю и могущественную силу мастеров энергии ци. И теперь им надо научиться ее контролировать. Ну а в этом им поможет никто иной, как Воин Дракона.Производство: США, DreamWorks Animation TelevisionЖанр: Мультфильм, Боевик, Приключения, Комедия, Семейный, ФэнтезиРежиссер: Лэйн Луэрас, Джеймс Вуттон, ...Перевод: Дублированный (SDI Media)Субтитры: ОтсутствуютПродолжительность: 13 х ~00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28710229F88AECB9A21FC90C654C00A1B1FB65FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279636   (764225) от 31.01.2019
+
+Кунг-фу панда: Лапки судьбы / Kung Fu Panda: The Paws of Destiny (2018) WEB-DL [H.264/1080p-LQ] (Сезон 1, Серии 13 из 13)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четыре юные панды из Затерянной деревни случайно приобретают в магической пещере древнюю и могущественную силу мастеров энергии ци. И теперь им надо научиться ее контролировать. Ну а в этом им поможет никто иной, как Воин Дракона.Производство: США, DreamWorks Animation TelevisionЖанр: Мультфильм, Боевик, Приключения, Комедия, Семейный, ФэнтезиРежиссер: Лэйн Луэрас, Джеймс Вуттон, ...Перевод: Дублированный (SDI Media)Субтитры: Русские, английские, арабские, немецкие, испанские, французские, хинди, индонезийские, итальянские, корейские, голландские, польские, португальские, турецкиеПродолжительность: 13 х ~00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E549D0CA6981B16D348A11266EE65AC630642A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 203538   (763792) от 24.05.2010
 
 Симпсоны 20 сезон / The Simpsons Season 20  (2008-2009) SATRip [ENG]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763792.jpg" />
+  <img src="Z:/picture/008/save_picture_763792.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763733.jpg" />
+  <img src="Z:/picture/008/save_picture_763733.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763720.jpg" />
+  <img src="Z:/picture/008/save_picture_763720.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762408.jpg" />
+  <img src="Z:/picture/008/save_picture_762408.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ Lego: Рыцари Нексо /  Lego: Nexo Knights (2015) WEBRip (сезон 1,
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762321.jpg" />
+  <img src="Z:/picture/008/save_picture_762321.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761643.jpg" />
+  <img src="Z:/picture/008/save_picture_761643.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761642.jpg" />
+  <img src="Z:/picture/008/save_picture_761642.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760905.jpg" />
+  <img src="Z:/picture/008/save_picture_760905.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760182.jpg" />
+  <img src="Z:/picture/008/save_picture_760182.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758918.jpg" />
+  <img src="Z:/picture/008/save_picture_758918.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757105.jpg" />
+  <img src="Z:/picture/008/save_picture_757105.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757014.jpg" />
+  <img src="Z:/picture/008/save_picture_757014.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756668.jpg" />
+  <img src="Z:/picture/008/save_picture_756668.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755189.jpg" />
+  <img src="Z:/picture/008/save_picture_755189.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754894.jpg" />
+  <img src="Z:/picture/008/save_picture_754894.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754883.jpg" />
+  <img src="Z:/picture/008/save_picture_754883.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754667.jpg" />
+  <img src="Z:/picture/008/save_picture_754667.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754353.jpg" />
+  <img src="Z:/picture/008/save_picture_754353.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753731.jpg" />
+  <img src="Z:/picture/008/save_picture_753731.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750917.jpg" />
+  <img src="Z:/picture/008/save_picture_750917.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749140.jpg" />
+  <img src="Z:/picture/008/save_picture_749140.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748820.jpg" />
+  <img src="Z:/picture/008/save_picture_748820.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748113.jpg" />
+  <img src="Z:/picture/008/save_picture_748113.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748107.jpg" />
+  <img src="Z:/picture/008/save_picture_748107.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8545CAB1B83E9F94190FFBC6C43D61445DC31609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889472   (747421) от 18.04.2015
-
-Чаггингтон: Веселые паровозики / Chuggington (2008-2011) DVDRip [H.264] (Сезон 1-3, Серии 1-92)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чаггингтон – необычный веселый городок, население которого состоит из паровозиков. все транспортные средства дружат между собой, радуются жизни и постоянно открывают в своей жизни что-то новое.
-В центре городка Чаггингтон находится депо – место, где постоянно собираются важные паровозы, чтобы осуществлять доставку грузов. пытаются освоить это дело три маленьких веселых (   Читать дальше...   )Производство: Великобритания / LudorumЖанр: Мультфильм, СемейныйРежиссер: Сара Болл / Sarah Ball, Сяо-дун Сюй / Xiao-dong XuАктеры: Бриджид Хэррингтон, Тони Террачьяно, Морган Овертон, Имоджен Бэйли, Мария Дарлинг, Чарли Джордж, Энди Найман, Пол Патинг, Изабелла Пальмиери, Тревор УайтПеревод: Профессиональный (дублированный)Продолжительность: Серия по ~00:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F14B5F437955500E6904B79494C97160A330233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664840   (747228) от 04.06.2013
-
-Адские соседи / Соседи из Ада / Neighbors from Hell (2010) HDTVRip (1 сезон, 1-10 серии)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747228.jpg" />
-</div>
-
-
-###  Подробнее
-
-До Сатаны доходит слух об изобретении Petromundo, огромным глобальным конгломератом, бура, способного досверлить до центра планеты, где можно обнаружить место его обитания. Его Темнейшество в ярости посылает на поверхность своего самого лучшего демона Бальтазара со всей его семьей, который обладает энциклопедическими знаниями о человеческой жизни благодаря любви (   Читать дальше...   )Жанр: Комедия, Рисованная анимацияРежиссер: Джон Райс, Рэймонд С. ПерсиПерсонажи: Роберт Париджи, Пэм Брэйди, Марианн Гарджер,Пол Александр, Пол МендельсонПеревод: Многоголосый закадровый, 2х2Формат: AVIПродолжительность: 10 x 00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6E58CF2849AF648A8BF6C81525A1E29E6B5285
 ```
 
 https://mybot314.ru/tekegram_catalog/

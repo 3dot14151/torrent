@@ -1,3 +1,31 @@
+###  Публикация: 101826   (325187) от 21.11.2014
+
+Отцы и дети (Экранизация  романа И.С. Тургенева.) (2008) SATRip
+
+>>След.
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_325187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знакомый всем конфликт поколений. Ровесники Аркадий Кирсанов и Евгений Базаров — абсолютно разные по мировоззрению люди. В то время как первый более склонен опираться на мнение старшего поколения, второй совершенно отрицает его.
+
+И корит своего приятеля за излишнюю мягкотелость, считая что тот находится под сильным влиянием своих отца и дяди, время которых по его (   Читать дальше...   )Производство: Россия, кинокомпания "Рекун-синема" по заказу Первого каналаЖанр: ДрамаРежиссер: Авдотья СмирноваАктеры: Александр Устюгов, Анна Цуканова, Сергей Юрский, Наталья Тенякова, Андрей Смирнов, Анатолий Васильев, Дарья Белоусова, Александр СкотниковПродолжительность: 02:48:50 (01:25:24 + 01:23:26)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 292571   (324379) от 22.11.2014
 
 Ребенок к ноябрю (1992) DVDRip
@@ -6,7 +34,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324379.jpg" />
+  <img src="Z:/picture/008/save_picture_324379.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_324285.jpg" />
+  <img src="Z:/picture/005/save_picture_324285.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_324279.jpg" />
+  <img src="Z:/picture/005/save_picture_324279.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_324241.jpg" />
+  <img src="Z:/picture/005/save_picture_324241.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324208.jpg" />
+  <img src="Z:/picture/008/save_picture_324208.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324107.jpg" />
+  <img src="Z:/picture/008/save_picture_324107.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324106.jpg" />
+  <img src="Z:/picture/008/save_picture_324106.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323806.jpg" />
+  <img src="Z:/picture/008/save_picture_323806.jpg" />
 </div>
 
 
@@ -214,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323695.jpg" />
+  <img src="Z:/picture/008/save_picture_323695.jpg" />
 </div>
 
 
@@ -240,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323694.jpg" />
+  <img src="Z:/picture/008/save_picture_323694.jpg" />
 </div>
 
 
@@ -266,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323468.jpg" />
+  <img src="Z:/picture/008/save_picture_323468.jpg" />
 </div>
 
 
@@ -292,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323261.jpg" />
+  <img src="Z:/picture/008/save_picture_323261.jpg" />
 </div>
 
 
@@ -318,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_323072.jpg" />
+  <img src="Z:/picture/005/save_picture_323072.jpg" />
 </div>
 
 
@@ -344,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_322885.jpg" />
+  <img src="Z:/picture/005/save_picture_322885.jpg" />
 </div>
 
 
@@ -372,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_322875.jpg" />
+  <img src="Z:/picture/005/save_picture_322875.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322443.jpg" />
+  <img src="Z:/picture/008/save_picture_322443.jpg" />
 </div>
 
 
@@ -424,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321930.jpg" />
+  <img src="Z:/picture/008/save_picture_321930.jpg" />
 </div>
 
 
@@ -451,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321726.jpg" />
+  <img src="Z:/picture/008/save_picture_321726.jpg" />
 </div>
 
 
@@ -477,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321677.jpg" />
+  <img src="Z:/picture/008/save_picture_321677.jpg" />
 </div>
 
 
@@ -504,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321065.jpg" />
+  <img src="Z:/picture/008/save_picture_321065.jpg" />
 </div>
 
 
@@ -530,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320858.jpg" />
+  <img src="Z:/picture/008/save_picture_320858.jpg" />
 </div>
 
 
@@ -556,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_320388.jpg" />
+  <img src="Z:/picture/005/save_picture_320388.jpg" />
 </div>
 
 
@@ -584,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_320227.jpg" />
+  <img src="Z:/picture/005/save_picture_320227.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_320221.jpg" />
+  <img src="Z:/picture/005/save_picture_320221.jpg" />
 </div>
 
 
@@ -636,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_320196.jpg" />
+  <img src="Z:/picture/005/save_picture_320196.jpg" />
 </div>
 
 
@@ -649,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 264044   (319859) от 29.11.2010
-
-Влюблен и безоружен (2010) SATRip-AVC
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основные события фильма происходят в учебном центре МЧС в наши дни. В центре начинает работу инструктором по дзюдо молодая девушка по имени Александра. У нее нелегкая задача — за две недели подготовить к ответственным соревнованиям группу военнослужащих из младшего офицерского состава. Лейтенант Авдеев затевает «войну» против Саши, но Александра не привыкла проигрывать.Жанр: МелодрамаРежиссер: Анарио МамедовФормат: AVCПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26AF85A90B9F31DCA29C7E257C3B0173B6ADBF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

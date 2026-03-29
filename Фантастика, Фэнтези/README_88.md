@@ -1,3 +1,58 @@
+###  Публикация: 1135488   (680641) от 19.05.2017
+
+Брайан К. Эвенсон | Мученик (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Dead Space» (Мёртвый космос).
+
+Род человеческий не ведал о том, что еще в час своего рождения он был проклят на многие века вперед. Что его будущее – это мир, в котором мертвецы вернутся к жизни.
+Все началось у берегов полуострова Юкатан. Чтобы изучить лежащую в кратере подводного вулкана океана археологическую находку, была организована дорогостоящая (   Читать дальше...   )Жанр: Зарубежная фантастика, Зарубежное фэнтези, Зарубежные детективы, Научная фантастика, Триллеры, Ужасы и МистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B468FA475EECD78438A24697C2C8B2E79AC3862D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135584   (680640) от 19.05.2017
+
+Игорь Вереснев, Игорь Минаков | Аборигены галактики (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество – самая могущественная цивилизация Галактики. Она не только освоила отдаленные планеты, но и охотно помогает отсталым «братьям по разуму». Особенно привечают на Земле аборигенов с планеты Медея, на 99 процентов идентичных людям. Медианцы умеют понравиться, понравиться до такой степени, что Совет Земной Федерации принял специальный закон, разрешающий (   Читать дальше...   )Жанр: Боевая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBACF7361257FE00599EBA37DF3064D1CC67F507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029674   (680078) от 27.06.2016
 
 Яна Алексеева | Оковы равновесия (2016) [FB2]
@@ -6,7 +61,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680078.jpg" />
+  <img src="Z:/picture/008/save_picture_680078.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680036.jpg" />
+  <img src="Z:/picture/008/save_picture_680036.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679993.jpg" />
+  <img src="Z:/picture/008/save_picture_679993.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679179.jpg" />
+  <img src="Z:/picture/008/save_picture_679179.jpg" />
 </div>
 
 
@@ -119,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678993.jpg" />
+  <img src="Z:/picture/008/save_picture_678993.jpg" />
 </div>
 
 
@@ -145,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678978.jpg" />
+  <img src="Z:/picture/008/save_picture_678978.jpg" />
 </div>
 
 
@@ -173,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678887.jpg" />
+  <img src="Z:/picture/008/save_picture_678887.jpg" />
 </div>
 
 
@@ -201,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678880.jpg" />
+  <img src="Z:/picture/008/save_picture_678880.jpg" />
 </div>
 
 
@@ -227,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678869.jpg" />
+  <img src="Z:/picture/008/save_picture_678869.jpg" />
 </div>
 
 
@@ -255,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678730.jpg" />
+  <img src="Z:/picture/008/save_picture_678730.jpg" />
 </div>
 
 
@@ -283,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678589.jpg" />
+  <img src="Z:/picture/008/save_picture_678589.jpg" />
 </div>
 
 
@@ -311,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678027.jpg" />
+  <img src="Z:/picture/008/save_picture_678027.jpg" />
 </div>
 
 
@@ -339,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678014.jpg" />
+  <img src="Z:/picture/008/save_picture_678014.jpg" />
 </div>
 
 
@@ -367,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677943.jpg" />
+  <img src="Z:/picture/008/save_picture_677943.jpg" />
 </div>
 
 
@@ -395,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677657.jpg" />
+  <img src="Z:/picture/008/save_picture_677657.jpg" />
 </div>
 
 
@@ -423,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677298.jpg" />
+  <img src="Z:/picture/008/save_picture_677298.jpg" />
 </div>
 
 
@@ -451,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677283.jpg" />
+  <img src="Z:/picture/008/save_picture_677283.jpg" />
 </div>
 
 
@@ -479,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677263.jpg" />
+  <img src="Z:/picture/008/save_picture_677263.jpg" />
 </div>
 
 
@@ -507,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677140.jpg" />
+  <img src="Z:/picture/008/save_picture_677140.jpg" />
 </div>
 
 
@@ -535,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677139.jpg" />
+  <img src="Z:/picture/008/save_picture_677139.jpg" />
 </div>
 
 
@@ -561,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677123.jpg" />
+  <img src="Z:/picture/008/save_picture_677123.jpg" />
 </div>
 
 
@@ -587,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677019.jpg" />
+  <img src="Z:/picture/008/save_picture_677019.jpg" />
 </div>
 
 
@@ -614,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676754.jpg" />
+  <img src="Z:/picture/008/save_picture_676754.jpg" />
 </div>
 
 
@@ -640,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676605.jpg" />
+  <img src="Z:/picture/008/save_picture_676605.jpg" />
 </div>
 
 
@@ -654,58 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD4C5C78E4A13FD821E913A1CCB480D2AD02652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030236   (676405) от 29.06.2016
-
-Людмила Ример | Ветер с Юга. Книга 1 (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычный школьник Никита Краснов оказывается пленником популярной компьютерной игры и попадает в виртуальное государство «Нумерия». Теперь ему и ещё двенадцати юным геймерам из разных стран предстоит сразиться с интриганами, которые рвутся к власти, пройти все уровни сложной игры и получить шанс вернуться домой.Жанр: Боевая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F52201573DB1576D7FC7A00D7DE2EDEFD1A0D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030228   (676402) от 29.06.2016
-
-Лоис Дункан | Тайна школы Блэквуд (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кит Горди поступает в закрытую школу под названием Блэквуд, в которой учатся всего четыре девушки… Что их объединяет? И какие тайны скрывает это жуткое здание, которое раньше принадлежало странному чудаку, чья семья погибла в пожаре?Жанр: Ужасы, ТриллерПеревод: Екатерина КолябинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52409FD498EED6AE49C4136D680D88113BE9F2F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

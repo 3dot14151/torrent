@@ -1,3 +1,61 @@
+###  Публикация: 1557004   (556472) от 12.06.2022
+
+Yet Again - Revival (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revolution
+02. Media Lies
+03. Freedom Ain't Free
+04. Groundhog Day(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8A604432F564B5F9E34FC606B3A40800FEDE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556923   (556464) от 12.06.2022
+
+Darian And Friends - Lost Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Traditional Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Run (Michael Stavrakakis)
+02. Lost Horizons (Ty Christian)
+03. The Things I Want To Be (Anders Engberg)
+04. Eyes Of An Angel (Giorgia Colleluori)(   Читать дальше...   )Жанр: Hard Rock, Traditional Heavy MetalПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE1766286A498B64282B2AFD9956151693E59E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556918   (556397) от 12.06.2022
 
 MegaSnake - Charming (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ MegaSnake - Charming (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556397.jpg" />
+  <img src="Z:/picture/008/save_picture_556397.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Kingdom Come - Classic Album Collection 1988-1991 (2019) 3CD Remastered [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556111.jpg" />
+  <img src="Z:/picture/008/save_picture_556111.jpg" />
 </div>
 
 
@@ -63,7 +121,7 @@ Bloody Heels - Rotten Romance (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556099.jpg" />
+  <img src="Z:/picture/008/save_picture_556099.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ Raider - Runaway (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556094.jpg" />
+  <img src="Z:/picture/008/save_picture_556094.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ Hardbone - Tailor-Made (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554691.jpg" />
+  <img src="Z:/picture/008/save_picture_554691.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ Hardbone - Bone Hard (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554684.jpg" />
+  <img src="Z:/picture/008/save_picture_554684.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Hardbone - This Is Rock'n'Roll (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554507.jpg" />
+  <img src="Z:/picture/008/save_picture_554507.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ Kiss - The Best Of Kiss Volume 2 (2004) [FLAC|Lossless|image + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554031.jpg" />
+  <img src="Z:/picture/008/save_picture_554031.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Joker - Joker (1990) 1991, TECP-25726 [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553291.jpg" />
+  <img src="Z:/picture/008/save_picture_553291.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ Buckcherry - Warpaint (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552876.jpg" />
+  <img src="Z:/picture/008/save_picture_552876.jpg" />
 </div>
 
 
@@ -295,7 +353,7 @@ Vasco Rossi - Stupido Hotel (2001) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551934.jpg" />
+  <img src="Z:/picture/008/save_picture_551934.jpg" />
 </div>
 
 
@@ -324,7 +382,7 @@ David Byron - 5 albums, 6CD (1975-2008) [FLAC|Lossless|image + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551891.jpg" />
+  <img src="Z:/picture/008/save_picture_551891.jpg" />
 </div>
 
 
@@ -353,7 +411,7 @@ Blue Tears - The Innocent Ones (2006) [FLAC|Lossless|tracks + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551028.jpg" />
+  <img src="Z:/picture/008/save_picture_551028.jpg" />
 </div>
 
 
@@ -382,7 +440,7 @@ Snаке Неаd Rituаl - Сеrеmоniаl Тhundеr (2016) [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549326.jpg" />
+  <img src="Z:/picture/008/save_picture_549326.jpg" />
 </div>
 
 
@@ -411,7 +469,7 @@ Andy Timmons - And-Thology I & II - The Lost Ear X-tacy Tapes (2001) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549243.jpg" />
+  <img src="Z:/picture/008/save_picture_549243.jpg" />
 </div>
 
 
@@ -440,7 +498,7 @@ The Screaming Jets - Do Ya (2008) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549174.jpg" />
+  <img src="Z:/picture/008/save_picture_549174.jpg" />
 </div>
 
 
@@ -469,7 +527,7 @@ King Company - One For The Road (2016) Jараnеsе Еditiоn [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549169.jpg" />
+  <img src="Z:/picture/008/save_picture_549169.jpg" />
 </div>
 
 
@@ -498,7 +556,7 @@ The Dead Daisies - Make Some Noise (2016) [FLAC|Lossless|image+.cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549166.jpg" />
+  <img src="Z:/picture/008/save_picture_549166.jpg" />
 </div>
 
 
@@ -527,7 +585,7 @@ Kiss - Kiss Rock Vegas (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549102.jpg" />
+  <img src="Z:/picture/008/save_picture_549102.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ Wonderworld - 2 альбома: Wonderworld, II (2014,2016) [FLAC|Lossless|track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548267.jpg" />
+  <img src="Z:/picture/008/save_picture_548267.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Ace Frehley - Origins Vol. 1 (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547361.jpg" />
+  <img src="Z:/picture/008/save_picture_547361.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ Icon - 4 альбома (1984 - 1989) [FLAC|Lossless|image + .cue|tracks + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547075.jpg" />
+  <img src="Z:/picture/008/save_picture_547075.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ Shotgun - Dallasian Rock (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Classic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546533.jpg" />
+  <img src="Z:/picture/008/save_picture_546533.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Stereoside - Hellbent (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Grun
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545803.jpg" />
+  <img src="Z:/picture/008/save_picture_545803.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Stereoside - Hellbent (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Grun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35D0E5578F79EB87E59EADCEFE012FB5AC964E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557218   (542830) от 14.06.2022
-
-Profound Less - Love Crusader (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come on Baby [00:04:01]
-02. Love Crusader [00:03:01]
-03. Love on a Distance [00:02:39]
-04. Hold on to Love [00:04:16](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B54998AF59FBA6DD9A57DA1C8EA610FB6257AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557256   (542703) от 14.06.2022
-
-Shaman's Harvest - Rebelator (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Your Skin [03:23]
-02. Toe the Line [03:52]
-03. Flatline [03:26]
-04. Voices [04:00](   Читать дальше...   )Жанр: Hard Rock, Alternative MetalПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E647D4B661D6B47CAD4D4408EF44BDF73DDCE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

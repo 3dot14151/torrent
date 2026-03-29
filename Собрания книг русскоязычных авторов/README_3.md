@@ -1,3 +1,58 @@
+###  Публикация: 809381   (935076) от 11.02.2016
+
+Александр Север | Собрание сочинений [20 книг.Обновляемая] (2009-2015) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935076.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Смерть шпионам!» – в годы Великой Отечественной советским военным контрразведчикам удалось воплотить этот лозунг в жизнь, уничтожив или нейтрализовав практически всю агентуру противника.
+«Переиграть» сотрудников «Смерша» удалось лишь Джеймсу Бонду, да и то в кино. В реальности же его коллегам из разведслужб Третьего Рейха пришлось признать собственное поражение, (   Читать дальше...   )Жанр: История, Документальная литература, CпецслужбыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3188A4BB5D4C8731EB9E859EBDBA9134E7836A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986851   (928665) от 15.02.2016
+
+Александр Золотько | Собрание сочинений [41 книга] (1998-2016) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928665.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алекса́ндр Ка́рлович Золотько́ (27 марта 1963 года, Харьков) — украинский писатель, директор фестиваля «Звёздный Мост» до 2009 года. С 1997 года известен как автор криминальных боевиков. Также, пишет фантастику.
+
+В 1995 году из одного Харьковского издательства получил предложение написать книгу о войне между Украиной и Россией. Через полтора года книга (   Читать дальше...   )Жанр: Боевая фантастика, Детективная фантастика, Космическая фантастика, Фэнтези, БоевикФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7FC381485F2F4889DDABB4C1E710012DD6B4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 286982   (928639) от 25.01.2011
 
 Афанасий Фет | Полное собрание стихотворений (в 2 томах) [1912] [DJVU]
@@ -6,7 +61,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928639.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926907.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926359.jpg" />
 </div>
 
 
@@ -90,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921245.jpg" />
 </div>
 
 
@@ -116,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919984.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918120.jpg" />
 </div>
 
 
@@ -169,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912823.jpg" />
 </div>
 
 
@@ -198,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911896.jpg" />
 </div>
 
 
@@ -224,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911486.jpg" />
 </div>
 
 
@@ -252,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910142.jpg" />
 </div>
 
 
@@ -280,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906104.jpg" />
 </div>
 
 
@@ -306,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895325.jpg" />
 </div>
 
 
@@ -333,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891318.jpg" />
 </div>
 
 
@@ -359,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890744.jpg" />
 </div>
 
 
@@ -385,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890541.jpg" />
 </div>
 
 
@@ -413,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888612.jpg" />
+  <img src="Z:/picture/005/save_picture_888612.jpg" />
 </div>
 
 
@@ -441,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885960.jpg" />
+  <img src="Z:/picture/005/save_picture_885960.jpg" />
 </div>
 
 
@@ -467,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884391.jpg" />
+  <img src="Z:/picture/005/save_picture_884391.jpg" />
 </div>
 
 
@@ -493,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883573.jpg" />
+  <img src="Z:/picture/005/save_picture_883573.jpg" />
 </div>
 
 
@@ -521,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882335.jpg" />
+  <img src="Z:/picture/005/save_picture_882335.jpg" />
 </div>
 
 
@@ -549,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882146.jpg" />
+  <img src="Z:/picture/005/save_picture_882146.jpg" />
 </div>
 
 
@@ -577,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878183.jpg" />
+  <img src="Z:/picture/005/save_picture_878183.jpg" />
 </div>
 
 
@@ -605,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871238.jpg" />
+  <img src="Z:/picture/008/save_picture_871238.jpg" />
 </div>
 
 
@@ -632,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870610.jpg" />
+  <img src="Z:/picture/008/save_picture_870610.jpg" />
 </div>
 
 
@@ -644,59 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C328D52F702FBC2FE72AFE57DF0FA4432AD7ED92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496981   (867868) от 20.09.2021
-
-Аркадий и Георгий Вайнеры | Сборник произведений [91 книга] (1967-2014) [PDF, FB2, DJVU]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Вайнеры, Аркадий Александрович (13 января 1931, Москва — 24 апреля 2005, Москва) и Георгий Александрович (10 февраля 1938, Москва — 12 июня 2009, Нью-Йорк) — соавторы множества книг и киносценариев.
-Книги братьев Вайнеров написаны на основе собственной криминалистической практики. Первая совместная книга братьев Вайнеров – повесть «Часы для мистера Келли» (   Читать дальше...   )Жанр: Современная проза, Советский детектив, Полицейский детективФормат: PDF, FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FF2591B85C39E742DD9405A79FDA0E38D81424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998688   (867598) от 20.03.2016
-
-Юрий Поляков | Собрание сочинений [47 книг] (1980-2016) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ю́рий Миха́йлович Поляко́в (р. 1954) — советский и российский писатель, поэт, драматург. Главный редактор «Литературной газеты» — с 2001 года. Юрий Михайлович Поляков родился 12 ноября 1954 года в Москве, в рабочей семье. По его собственному признанию, огромное влияние на Юрия Полякова оказала учительница литературы И.А.Осокина. В 1972 году Юрий Поляков (   Читать дальше...   )Жанр: Современная проза, ЮморФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FFE2FDC90710DD7857578C45A61EFA61B2B3C9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

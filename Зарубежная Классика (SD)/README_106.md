@@ -1,3 +1,82 @@
+###  Публикация: 1653944   (203879) от 28.08.2023
+
+Великая иллюзия / La grande illusion / Grand Illusion (1937) HDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая мировая война. Самолет французских летчиков Морешаля и Больде сбит немецким асом фон Рауффенштайном, но оба пилота остались живы и попали в лагерь для военнопленных. Там же находятся несколько британских офицеров, с которыми новички объединяются в работе над тоннелем для побега.
+  После победы французов на Западном фронте Морешаля, Болдье и остальных французских (   Читать дальше...   )Производство: Франция, R.A.C. (Réalisation d'art cinématographique)Жанр: военный, драмаРежиссер: Жан РенуарАктеры: Жан Габен, Дита Парло, Пьер Френе, Эрих фон Штрогейм, Жюльен Каретт, Жорж Пекле, Вернер Флориан, Жан Дасте, Сильвен Иткин, Гастон МодоПеревод: Многоголосый профессиональный (DVD-Магия)Язык озвучки: русский, французскийСубтитры: РусскиеПродолжительность: 01:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDB9992487CB40C756AAEC92BE1B23729542E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654703   (203855) от 28.08.2023
+
+Засыпай, мой малыш / Rock-a-Bye Baby (1958) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клейтон Пул (Джерри Льюис), телемастер из маленького городка Мидвейла, с детства безнадёжно влюблён в Карлу Неплз (Мерилин Максвелл), ставшую кинозвездой Голливуда. И когда Карла попросила его на время съёмок очередного блокбастера присмотреть за её новорожденным ребёнком, он с готовностью согласился. Знал бы он, какой сюрприз его ждёт! Справился ли Клейтон с ролью (   Читать дальше...   )Производство: США / York Pictures CorporationЖанр: комедия, мюзиклРежиссер: Фрэнк ТэшлинАктеры: Джерри Льюис, Мэрилин Максвелл, Конни Стивенс, Реджинальд Гардинер, Сальваторе Баккалони, Ганс Конрид, Изобел Элсом, Джеймс Глисон, Ида Мур, Гари Льюис, Хоуп ЭмерсонПеревод: Одноголосый любительский, Andre1288Язык озвучки: Русский, английский, немецкийСубтитры: Русские (Songs, Full), английские, немецкиеПродолжительность: 01:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0F1CBFAB2862862C7139CD55564A031BBE9C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423504   (203722) от 21.01.2023
+
+Прекрасный ноябрь / Un bellissimo novembre / That Splendid November (1969) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_203722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состоятельный сицилианский клан собирается на родовой вилле отметить очередную годовщину смерти одного из членов семьи, отца юноши Нино. Самой последней на виллу прибыла неугомонная красавица, тетя Четтина, которую Нино не видел два года, а встретившись, вдруг понял, что безумно влюблен в нее. Первая любовь оказалась не только волнующим, но и горьким жизненным уроком, (   Читать дальше...   )Производство: Италия, Франция / Adelphia Compagnia Cinematografica, Les Productions Artistes AssociésЖанр: ДрамаРежиссер: Мауро БолоньиниАктеры: Джина Лоллобриджида, Габриэле Ферцетти, Андре Лоуренс, Паоло Турко, Даниэль Годе, Маргарита Лосано, Изабелла Савона, Жан Мокорп, Коррадо Гайпа, Этторе РиботтаПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3B29366C555F1F380C45EBBAFCAE1877B59900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 618875   (203642) от 23.01.2023
 
 Кэрри / Carrie (1976) BDRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203642.jpg" />
+  <img src="Z:/picture/004/save_picture_203642.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203607.jpg" />
+  <img src="Z:/picture/004/save_picture_203607.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203475.jpg" />
+  <img src="Z:/picture/004/save_picture_203475.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203367.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202925.jpg" />
+  <img src="Z:/picture/004/save_picture_202925.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202905.jpg" />
+  <img src="Z:/picture/004/save_picture_202905.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202603.jpg" />
+  <img src="Z:/picture/004/save_picture_202603.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202597.jpg" />
+  <img src="Z:/picture/004/save_picture_202597.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202593.jpg" />
+  <img src="Z:/picture/004/save_picture_202593.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202553.jpg" />
+  <img src="Z:/picture/004/save_picture_202553.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202485.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202232.jpg" />
+  <img src="Z:/picture/004/save_picture_202232.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201727.jpg" />
+  <img src="Z:/picture/005/save_picture_201727.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201595.jpg" />
+  <img src="Z:/picture/005/save_picture_201595.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201509.jpg" />
+  <img src="Z:/picture/005/save_picture_201509.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201493.jpg" />
+  <img src="Z:/picture/005/save_picture_201493.jpg" />
 </div>
 
 
@@ -428,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201386.jpg" />
+  <img src="Z:/picture/005/save_picture_201386.jpg" />
 </div>
 
 
@@ -454,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201186.jpg" />
+  <img src="Z:/picture/005/save_picture_201186.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201147.jpg" />
+  <img src="Z:/picture/005/save_picture_201147.jpg" />
 </div>
 
 
@@ -507,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_201001.jpg" />
+  <img src="Z:/picture/004/save_picture_201001.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200927.jpg" />
+  <img src="Z:/picture/005/save_picture_200927.jpg" />
 </div>
 
 
@@ -559,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200660.jpg" />
+  <img src="Z:/picture/005/save_picture_200660.jpg" />
 </div>
 
 
@@ -585,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200396.jpg" />
+  <img src="Z:/picture/005/save_picture_200396.jpg" />
 </div>
 
 
@@ -596,85 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3525425C34B78D2CEC33E2DC8191CF10938259D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618671   (200284) от 06.04.2023
-
-Звуки музыки / The Sound of Music (1965) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в австрийском Зальцбурге накануне Второй мировой войны. Молодая девушка по имени Мария, оставшись сиротой, находит приют в женском монастыре и готовится стать монахиней. Однако в силу своего жизнелюбия ей это удается с трудом, и настоятельница монастыря понимает, что такой путь — не для ее юной послушницы.
-Марии предлагают место гувернантки (   Читать дальше...   )Производство: США / 20th Century Fox Film Corporation, Robert Wise ProductionsЖанр: Мюзикл, Драма, Мелодрама, Семейный, БиографияРежиссер: Роберт УайзАктеры: Джули Эндрюс, Кристофер Пламмер, Чармиан Карр, Николас Хэммонд, Хезер Мензес, Дуан Чейз, Дебби Тёрнер, Ким Карат, Анджела Картрайт, Ричард ХейднПеревод: Дублированный, многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские (Songs, Full), английскиеПродолжительность: 02:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E90B92FBA88955DD126BAD3651F7D0A28707CED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619081   (200263) от 07.04.2023
-
-Молодой Уинстон / Young Winston (1972) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по книге Уинстона Черчилля «Мои молодые годы: преданное служение». Юные годы Черчилля предстают в воспоминаниях Черчилля старого: детство, школа-интернат, родители, авантюры в Индии и Судане, участие в качестве военного корреспондента в Англо-бурской войне, избрание в парламент.Производство: Великобритания / Open Road Films (II)Жанр: драма, военный, биографияРежиссер: Ричард АттенбороАктеры: Саймон Уорд, Питер Селлиер, Рональд Хайнс, Дино Шафик, Джон Миллз, Энн Бэнкрофт, Расселл Льюис, Пэт Хейвуд, Роберт Шоу, Лоуренс НэйсмитПеревод: Многоголосый профессиональный (5 канал СПб)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 02:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E258E1144AB6BDD2E71394EF948A7B7AE59D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619028   (200134) от 10.04.2023
-
-Дорога в Гонконг / The Road to Hong Kong (1962) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарри Тёрнер и Честер Бэбкок — неудачливые актёры водевиля, постоянно находящиеся в поисках заработка. Судьба сталкивает их с Дианой — агентом секретной правительственной организации «3-й Эшелон», а потом со злодеями, которые хотят отправить на Луну ракету с оборудованием, которое поможет им покорить Землю.Производство: Великобритания / Melnor FilmsЖанр: мюзикл, фантастика, комедияРежиссер: Норман ПанамаАктеры: Бинг Кросби, Боб Хоуп, Джоан Коллинз, Роберт Морли, Уолтер Готелл, Феликс Эйлмер, Алан Гиффорд, Мишель Мок, Катя Дуглас, Роджер ДельгадоПеревод: Двуголосый профессиональный (НТВ+)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A49F378D137F8A37776F2887D1CA91F300855B
 ```
 
 https://mybot314.ru/tekegram_catalog/

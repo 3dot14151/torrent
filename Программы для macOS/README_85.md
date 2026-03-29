@@ -1,3 +1,143 @@
+###  Публикация: 929955   (516901) от 21.08.2015
+
+Noiseless Pro 1.1.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое простое и продвинутое программное обеспечение шумоподавления. Получите яркие, естественно выглядящие изображения без шума, сохраняя детали и цвет Ваших фотографий.
+Noiseless Pro вдыхает новую жизнь в каждую фотографию! Делая фотографии при слабом освещении, каждый смартфон, компактная камера или DSLR создают "шум", маленькие цветные или легкие веснушки, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 августа 2015Разработчик: MacPhun LLCПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB97C4B2EAD0573F97A3BEF45DC0934F8FC90C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930294   (516136) от 22.08.2015
+
+Typed for Mac 1.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_516136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый минималистичный и красивый блокнот для Mac OS.
+Одной из уникальный функций Typed для OS X является режим концентрации — в настройках программы можно выбрать одну из 8 мелодий.
+
+Готовый текст можно экспортировать в HTML формат, чтобы затем просто скопировать его и вставить на сайт или куда-то еще. Дизайн программы выполнен на среднем уровне, все элементы выполнены (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16.07.2015Разработчик: RealMac SoftWareПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2ECFFB09CC871B51FD32F8B8F53E9F0511A2D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559866   (515427) от 04.07.2022
+
+Parallels Desktop 18 for Mac Pro Edition Technical Preview
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallels® Desktop 18 for Mac Technical Preview — удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей.
+Parallels® Desktop 18 for Mac Technical Preview позволяет использовать собственные устройства (то есть реализовать подход BYOD) и обеспечить поддержку Windows-приложений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.06.2022Разработчик: Parallels International GmbHПоддерживаемая ОС: macOS Mojave 10.14.6+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574EA1B774ABD15F3BCCF8839C890DA9397A34E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561476   (513317) от 06.07.2022
+
+Microsoft Office 2021 for Mac LTSC v16.62 VL [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Office LTSC 2021 — это последняя версия производительного программного обеспечения корпорации Майкрософт, доступная организациям в рамках соглашения о корпоративном лицензировании.
+
+Office LTSC 2021 не Office, которые доступны в Microsoft 365 (или Office 365). Например, если вы развернули Приложения Microsoft 365 для предприятий (ранее Office 365 профессиональный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.06.2022Разработчик: © 2022 Microsoft CorporationПоддерживаемая ОС: macOS Catalina 10.15+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D8E07CCCFDEEEB16A9ECE1A5867448180C3DDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931168   (512926) от 25.08.2015
+
+IconKit 4.0.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_512926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для создания (генерации) иконок для Mac OSX. С помощью IconKit вы легко сможете создавать иконки разных размеров и для разных устройств - это элементарно, просто перетащите изображение размером 1024х1024 на рабочее поле программы.
+
+Основные возможности:
+• Интуитивный интерфейс(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 августа 2015Разработчик: Mojtaba KomeiliПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA90A02C17014D93EF1C758FCE0414F6D5FC1999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931302   (512868) от 25.08.2015
 
 Troga - Translate. Forget. Recall. Repeat 1.7.3 [En]
@@ -6,7 +146,7 @@ Troga - Translate. Forget. Recall. Repeat 1.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512868.jpg" />
+  <img src="Z:/picture/008/save_picture_512868.jpg" />
 </div>
 
 
@@ -33,7 +173,7 @@ Wondershare Filmora 6.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512665.jpg" />
+  <img src="Z:/picture/008/save_picture_512665.jpg" />
 </div>
 
 
@@ -62,7 +202,7 @@ Hider 2 2.2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508919.jpg" />
+  <img src="Z:/picture/008/save_picture_508919.jpg" />
 </div>
 
 
@@ -90,7 +230,7 @@ Paragraphs 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507066.jpg" />
+  <img src="Z:/picture/008/save_picture_507066.jpg" />
 </div>
 
 
@@ -119,7 +259,7 @@ Bumpr 1.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503820.jpg" />
+  <img src="Z:/picture/008/save_picture_503820.jpg" />
 </div>
 
 
@@ -146,7 +286,7 @@ PowerPhotos 2.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503817.jpg" />
+  <img src="Z:/picture/008/save_picture_503817.jpg" />
 </div>
 
 
@@ -172,7 +312,7 @@ Color Folder 3.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503722.jpg" />
+  <img src="Z:/picture/008/save_picture_503722.jpg" />
 </div>
 
 
@@ -198,7 +338,7 @@ Kingpin Private Browser 2.0.24 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501671.jpg" />
+  <img src="Z:/picture/008/save_picture_501671.jpg" />
 </div>
 
 
@@ -225,7 +365,7 @@ Project Office Pro 10.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500583.jpg" />
+  <img src="Z:/picture/008/save_picture_500583.jpg" />
 </div>
 
 
@@ -251,7 +391,7 @@ Switch Pro 4 v4.5.7 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500500.jpg" />
+  <img src="Z:/picture/008/save_picture_500500.jpg" />
 </div>
 
 
@@ -278,7 +418,7 @@ Smarky 2.12.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499751.jpg" />
+  <img src="Z:/picture/008/save_picture_499751.jpg" />
 </div>
 
 
@@ -304,7 +444,7 @@ beQUIETsimple 3.45 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499745.jpg" />
+  <img src="Z:/picture/008/save_picture_499745.jpg" />
 </div>
 
 
@@ -331,7 +471,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.20.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499740.jpg" />
+  <img src="Z:/picture/008/save_picture_499740.jpg" />
 </div>
 
 
@@ -358,7 +498,7 @@ SILKYPIX JPEG Photography 10 v10.2.20.0 [EN]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499719.jpg" />
+  <img src="Z:/picture/008/save_picture_499719.jpg" />
 </div>
 
 
@@ -384,7 +524,7 @@ Color Ray 1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499715.jpg" />
+  <img src="Z:/picture/008/save_picture_499715.jpg" />
 </div>
 
 
@@ -410,7 +550,7 @@ Clobbr - test endpoint speed 1.5.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499713.jpg" />
+  <img src="Z:/picture/008/save_picture_499713.jpg" />
 </div>
 
 
@@ -437,7 +577,7 @@ FTP Disk for Mac 1.4.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499708.jpg" />
+  <img src="Z:/picture/008/save_picture_499708.jpg" />
 </div>
 
 
@@ -463,7 +603,7 @@ PCDJ DEX PRO 3 v3.18.0.0 U2B [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498590.jpg" />
+  <img src="Z:/picture/008/save_picture_498590.jpg" />
 </div>
 
 
@@ -489,7 +629,7 @@ MDB ACCDB Viewer 2.2.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498579.jpg" />
+  <img src="Z:/picture/008/save_picture_498579.jpg" />
 </div>
 
 
@@ -518,7 +658,7 @@ Couverture 1.1.4 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498533.jpg" />
+  <img src="Z:/picture/008/save_picture_498533.jpg" />
 </div>
 
 
@@ -544,7 +684,7 @@ Scroll 2.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497790.jpg" />
+  <img src="Z:/picture/008/save_picture_497790.jpg" />
 </div>
 
 
@@ -555,138 +695,6 @@ Scroll 2.4.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24AF8476F577C97A24A7B8998127DC4F4ED4B25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564967   (497787) от 21.07.2022
-
-ColorWell 7.3.5.1 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497787.jpg" />
-</div>
-
-
-###  Подробнее
-
-ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре macOS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезная утилита в любом наборе инструментов хорошего веб-дизайнера и ее можно легко настроить для работы на панели инструментов или открыть при помощи глобальной горячей клавиши.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9838E0732E9DFBFA7CF07606A5919FDD60F67532
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564895   (497782) от 21.07.2022
-
-PCalc 4.10.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497782.jpg" />
-</div>
-
-
-###  Подробнее
-
-PCalc  - мощный калькулятор. PCalc - представляет собой полнофункциональный научный калькулятор для Mac с поддержкой шестнадцатеричных, восьмеричных и двоичных расчетов, а также режим программируемых функций и обширный набор модулей преобразования. Очень наглядна «лента печати» выполняемых операций и получаемых значений (наподобие ленты кассового аппарата).
-PCalc (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 1992 - 2022 James ThomsonПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5DFE30E75779EFB87B14468889AC53A15741FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564985   (497737) от 21.07.2022
-
-Invisible 2.5.7.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Invisible - надежная и ориентированная на пользователя утилита, которая позволяет защитить паролем ваши данные и скрыть свои личные данные с помощью нескольких щелчков мыши
-Invisible является простым в использовании и очень интуитивным инструментом, который предоставляет своим пользователям самый простой способ, чтобы скрыть и защитить свои личные данные от посторонних (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506666EE91A220570254257339FF0FD6356949EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564899   (497735) от 21.07.2022
-
-WebToLayers 1.3.2 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497735.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebToLayers преобразует веб-сайты в документы Photoshop. Другими словами, приложение позволяет создавать скриншоты веб-страниц, сохраняя каждый элемент в отдельном слое. Приложение сэкономит вам много времени при перепроектировании или улучшении существующих веб-страниц.Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2012-2021 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DB77FC4D6BF24692B738327BAFE75E0EDADBC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565018   (497723) от 21.07.2022
-
-SSH Config Editor Pro 2.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования (с графическим предварительным просмотром), а также любой другой вариант SSH конфигурации.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2016-2022 HejkiПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1594D2AE6DF9047F0FDDB60280B276EC11941961
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1633808   (252209) от 17.05.2023
+
+Udemy, Nikolay Naydenov | Absolute Beginners Substance Painter Course (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_252209.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите основы Substance Painter, запекание и текстурирование. В качестве бонуса - рендеринг в Marmoset!
+Меня зовут Нико, и я занимаюсь созданием персонажей уже более десяти лет. В этом курсе я покажу вам, как начать работать с Substance Painter и создать красивые текстуры для ваших моделей, создав металлические доспехи, рога, золотые вставки и светящиеся глаза для (   Читать дальше...   )Производство: UdemyЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: АнглийскийПродолжительность: 06:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775DCDE7C37E81543B96E885A38B379E0FD14A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633909   (252203) от 17.05.2023
 
 Timesavervfx, Александр Ежов | Анимация фотографий с помощью 3Д в Davinci Resolve Fusion и нейросетей (2022) WEB-DL [RU]
@@ -6,7 +33,7 @@ Timesavervfx, Александр Ежов | Анимация фотографи�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252203.jpg" />
+  <img src="Z:/picture/004/save_picture_252203.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Udemy, Nikolay Naydenov | 3D Character Sculpting in Blender - Viking Edition (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252199.jpg" />
+  <img src="Z:/picture/004/save_picture_252199.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Udemy, Артем Яковлев | Blender 2023 - полный базовый к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252138.jpg" />
+  <img src="Z:/picture/004/save_picture_252138.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Rebelway, Urban Bradesko | Meteor in Houdini and Karma (2021) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250193.jpg" />
+  <img src="Z:/picture/004/save_picture_250193.jpg" />
 </div>
 
 
@@ -119,7 +146,7 @@ Udemy, Motion Guru | Complete Modeling & Animating a Drone in Blender 3.0 (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250151.jpg" />
+  <img src="Z:/picture/004/save_picture_250151.jpg" />
 </div>
 
 
@@ -147,7 +174,7 @@ Liveclasses, Андрей Козьяков | Adobe Illustrator: Расширен
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250080.jpg" />
+  <img src="Z:/picture/004/save_picture_250080.jpg" />
 </div>
 
 
@@ -173,7 +200,7 @@ SideFx, Attila Torok | Sexy Explosions in Houdini 18.5 (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250049.jpg" />
+  <img src="Z:/picture/004/save_picture_250049.jpg" />
 </div>
 
 
@@ -200,7 +227,7 @@ Rebelway, Nick Chamberlain | 8 Essential Compositing Techniques: Free Webinar (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250043.jpg" />
+  <img src="Z:/picture/004/save_picture_250043.jpg" />
 </div>
 
 
@@ -227,7 +254,7 @@ Rebelway, Urban Bradesko | Free Houdini Plugin: Using the Axiom Solver in Houdin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250040.jpg" />
+  <img src="Z:/picture/004/save_picture_250040.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ Scott Eaton | Portraiture and Facial Anatomy Week 1-6 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249988.jpg" />
+  <img src="Z:/picture/004/save_picture_249988.jpg" />
 </div>
 
 
@@ -280,7 +307,7 @@ Scott Eaton | Anatomy for Artists Week 1-8 (2012) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249968.jpg" />
+  <img src="Z:/picture/004/save_picture_249968.jpg" />
 </div>
 
 
@@ -306,7 +333,7 @@ CGcircuit, Steven Knipping | Applied Houdini Particles II-V (2017) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249957.jpg" />
+  <img src="Z:/picture/004/save_picture_249957.jpg" />
 </div>
 
 
@@ -332,7 +359,7 @@ CGMA, Johannes Richter | VEX in Houdini with Johannes Richter (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249942.jpg" />
+  <img src="Z:/picture/004/save_picture_249942.jpg" />
 </div>
 
 
@@ -358,7 +385,7 @@ Gumroad, Chris Legaspi | Shading Techniques in Photoshop (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249931.jpg" />
+  <img src="Z:/picture/004/save_picture_249931.jpg" />
 </div>
 
 
@@ -385,7 +412,7 @@ CGcircuit, Tyler Bay | Houdini For The Artist Modeling I (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249780.jpg" />
+  <img src="Z:/picture/004/save_picture_249780.jpg" />
 </div>
 
 
@@ -412,7 +439,7 @@ CGMA, Adam Swaab | Abstract FX in Houdini (2019) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249779.jpg" />
+  <img src="Z:/picture/004/save_picture_249779.jpg" />
 </div>
 
 
@@ -438,7 +465,7 @@ Helloluxx, Rich Nosworthy | Houdini In Bloom (2021) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249765.jpg" />
+  <img src="Z:/picture/004/save_picture_249765.jpg" />
 </div>
 
 
@@ -464,7 +491,7 @@ Junichiro Horikawa | VEX for Algorithmic Design Part 1-6 (2020-2021) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249751.jpg" />
+  <img src="Z:/picture/004/save_picture_249751.jpg" />
 </div>
 
 
@@ -490,7 +517,7 @@ CGMA, Ben Keeling | Advanced Substance for Environment Art (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249749.jpg" />
+  <img src="Z:/picture/004/save_picture_249749.jpg" />
 </div>
 
 
@@ -516,7 +543,7 @@ Wingfox, Amit Ginni Patpatia | Intro to Unreal Lighting (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249717.jpg" />
+  <img src="Z:/picture/004/save_picture_249717.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ Rebelway, Sjors De Laat | The Basics of Substance Designer for Realtime FX (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249708.jpg" />
+  <img src="Z:/picture/004/save_picture_249708.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ hipflask, Fraser Shiers | Houdini Made Easy The Core Essentials (2019) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249695.jpg" />
+  <img src="Z:/picture/004/save_picture_249695.jpg" />
 </div>
 
 
@@ -597,7 +624,7 @@ Enterclass, Татьяна Каштальян | Нарциссы пастель�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249430.jpg" />
+  <img src="Z:/picture/004/save_picture_249430.jpg" />
 </div>
 
 
@@ -624,7 +651,7 @@ Unreal Engine, Paulo Souza | Profiling and Optimization in UE4 | Unreal Indie De
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249391.jpg" />
+  <img src="Z:/picture/004/save_picture_249391.jpg" />
 </div>
 
 
@@ -651,7 +678,7 @@ Epic Games, Wes Bunn | UMG UI Inventory Unreal Engine (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249387.jpg" />
+  <img src="Z:/picture/004/save_picture_249387.jpg" />
 </div>
 
 
@@ -662,33 +689,6 @@ Epic Games, Wes Bunn | UMG UI Inventory Unreal Engine (2014) PCRec [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB9ED836978FF23B890FD01239339A7156485E69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833993   (248608) от 02.11.2025
-
-Vertex, Дмитрий Зиновьев | Основы конструирования в Компас - 3D v19 (2020) PCRec [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный практический видеокурс нацелен на быстрое, легкое и системное вхождение в среду САПР КОМПАС-3D v19.
-Данный курс будет идеальным как для начинающих в работе с САПР, так и для повышения квалификации сотрудников конструкторских отделов малых и средних, построении таких отделов или при переходе на новый программный комплекс и при составлении учебных программ в (   Читать дальше...   )Производство: VertexЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD4F613920583966A04EC0047DDE066C4157B20
 ```
 
 https://mybot314.ru/tekegram_catalog/

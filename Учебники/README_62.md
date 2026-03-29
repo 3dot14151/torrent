@@ -1,3 +1,57 @@
+###  Публикация: 1324109   (429595) от 07.09.2019
+
+В.В. Тропин и др. | Надежность электроснабжения: практикум (2017) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надежность системы электроснабжения является одним из важнейших показателей качества системы. Если система не обладает необходимой степенью надежности, то все остальные показатели качества теряют свое практическое значение, поскольку они не могут быть полноценно использованы в эксплуатации.
+Практикум содержит рекомендации по курсу «Надежность электроснабжения».
+Предназначен (   Читать дальше...   )Жанр: Электротехника, энергетикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B10FAC42F2A902E8F2A6A49ADA3850089E9287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571693   (429555) от 23.08.2022
+
+И.П. Жеребцов | Электрические и магнитные цепи (1987) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429555.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге в популярной форме изложены основы устройства и работы электрических н магнитных цепей, применяемых в радиоэлектронике. Рассмотрены электрические цепи постоянного и переменного то­ка, их важнейшие элементы, электромагнитные явления и магнитные цепи, выпрямительные устройства, электроизмерительные приборы. Первое издание вышло в 1982 г. Настоящее издание дополнено (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5474B9D0DFE63CD41A87CA2364C818CFC118747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324275   (427165) от 08.09.2019
 
 Т.И. Кириллова и др. | Компьютерная графика AutoCAD 2018 (2019) [PDF]
@@ -6,7 +60,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427165.jpg" />
+  <img src="Z:/picture/008/save_picture_427165.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427155.jpg" />
+  <img src="Z:/picture/008/save_picture_427155.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426449.jpg" />
+  <img src="Z:/picture/008/save_picture_426449.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425179.jpg" />
+  <img src="Z:/picture/008/save_picture_425179.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425164.jpg" />
+  <img src="Z:/picture/008/save_picture_425164.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424548.jpg" />
+  <img src="Z:/picture/008/save_picture_424548.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424535.jpg" />
+  <img src="Z:/picture/008/save_picture_424535.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424355.jpg" />
+  <img src="Z:/picture/008/save_picture_424355.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423944.jpg" />
+  <img src="Z:/picture/008/save_picture_423944.jpg" />
 </div>
 
 
@@ -253,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423760.jpg" />
+  <img src="Z:/picture/008/save_picture_423760.jpg" />
 </div>
 
 
@@ -279,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423756.jpg" />
+  <img src="Z:/picture/008/save_picture_423756.jpg" />
 </div>
 
 
@@ -305,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421598.jpg" />
+  <img src="Z:/picture/008/save_picture_421598.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421434.jpg" />
+  <img src="Z:/picture/008/save_picture_421434.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421268.jpg" />
+  <img src="Z:/picture/008/save_picture_421268.jpg" />
 </div>
 
 
@@ -385,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420490.jpg" />
+  <img src="Z:/picture/008/save_picture_420490.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419451.jpg" />
+  <img src="Z:/picture/008/save_picture_419451.jpg" />
 </div>
 
 
@@ -438,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417309.jpg" />
+  <img src="Z:/picture/008/save_picture_417309.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417305.jpg" />
+  <img src="Z:/picture/008/save_picture_417305.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416873.jpg" />
+  <img src="Z:/picture/008/save_picture_416873.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416684.jpg" />
+  <img src="Z:/picture/008/save_picture_416684.jpg" />
 </div>
 
 
@@ -545,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416567.jpg" />
+  <img src="Z:/picture/008/save_picture_416567.jpg" />
 </div>
 
 
@@ -571,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416358.jpg" />
+  <img src="Z:/picture/008/save_picture_416358.jpg" />
 </div>
 
 
@@ -597,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416348.jpg" />
+  <img src="Z:/picture/008/save_picture_416348.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416340.jpg" />
+  <img src="Z:/picture/008/save_picture_416340.jpg" />
 </div>
 
 
@@ -634,59 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD75A3084D8821B134BB5D885000B43C22EA3A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325207   (416203) от 13.09.2019
-
-Т.В. Воронченко | Основы бухгалтерского учета. Учебник и практикум (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416203.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике представлены основы бухгалтерского учета, исторические и методические аспекты его возникновения и развития. Особенностью издания является системный взгляд на предмет и метод учета и комплексный подход к рассмотрению их взаимосвязей и взаимозависимостей. В учебник включен практикум, содержащий тесты и задачи для практических (семинарских) занятий и самостоятельной (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC4DF64183BCD85628E7B4599972AB236680DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065173   (416178) от 24.10.2016
-
-В.И. Галкин, Е.В. Пелевин | Промышленная электроника и микроэлектроника (2006) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416178.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии рассмотрены технологические процессы изготовления изделий микроэлектроники, их диагностика, расчеты параметров типовых электрических схем и элементов электронной техники, представлены основные технико-экономические показатели участка, цеха при производстве изделий микроэлектроники.
-Для студентов средних профессиональных учебных заведений.Жанр: ЭлектроникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEAD52610756C8971A9100DAB9270C8992ADDC2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

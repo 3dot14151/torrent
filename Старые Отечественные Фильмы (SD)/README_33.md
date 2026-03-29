@@ -1,3 +1,55 @@
+###  Публикация: 567997   (644938) от 08.06.2015
+
+Территория (1978) DVDRip
+
+>>След.
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644938.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноименного романа Олега Куваева. Управление треста "Северстрой" решает прикрыть территорию, где идут поиски уже ненужного олова. Директор Чинков не согласен с решением и предлагает своим партиям заняться разведкой золотоносного месторождения. В случае неудачи он потеряет все, но это его не пугает. В итоге на территории найдено золото.Жанр: Приключения, ДрамаРежиссер: Александр СуринАктеры: Донатас Банионис, Владимир Летенков, Юрий Шерстнёв, Евгений Герасимов, Нина Засухина, Виктор Адеев, Леонтий Полохов, Владимир Ломизов, Дмитрий Кузнецов (II), Николай Волков (III), Валентин Печников, Михаил Глузский, Николай Засухин, Александр Тавакай, Зоя ЧоодуПродолжительность: 01:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A52F3BC1038876D7684A681E2FAA3E031940DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227523   (644732) от 27.05.2018
+
+Человек уходит за птицами (1975) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644732.jpg" />
+</div>
+
+
+###  Подробнее
+
+По летописям событий древнего времени. Юный поэт Фарух у птиц научился вольной песне, у народа - силе слова и надежде на лучшее будущее. Тернистый путь проходит поэт в поисках счастья и правды. Встретившись с жестокостью и несправедливостью, Фарух понимает, что ждать счастья бессмысленно. Он берет в руки меч и клянется бороться за справедливость и счастье своего (   Читать дальше...   )Производство: СССР, УзбекфильмЖанр: ДрамаРежиссер: Али ХамраевАктеры: Джахонгир (Джаник) Файзиев, Дилором Камбарова, Абдугани Саидов, Наргиз Авазова, Мелис Абзалов, Хикмат Латыпов, Бахтиер Ихтияров, Болот Бейшеналиев, Леонард Бабаханов, А. Атакулов, М. Атабаев, Шухрат Иргашев, Яхьё Файзуллаев, Джамал Хашимов, А. Муратова, Машраб Юнусов, Гульча (Гульбустон) Ташбаева.Продолжительность: 01:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEE8A669A64E7EDAA7848BA151AAC0B90220475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541581   (644520) от 03.04.2022
 
 Серая мышь (1988) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644520.jpg" />
+  <img src="Z:/picture/008/save_picture_644520.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642555.jpg" />
+  <img src="Z:/picture/008/save_picture_642555.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642074.jpg" />
+  <img src="Z:/picture/008/save_picture_642074.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640618.jpg" />
+  <img src="Z:/picture/008/save_picture_640618.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640102.jpg" />
+  <img src="Z:/picture/008/save_picture_640102.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640098.jpg" />
+  <img src="Z:/picture/008/save_picture_640098.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639998.jpg" />
+  <img src="Z:/picture/008/save_picture_639998.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639997.jpg" />
+  <img src="Z:/picture/008/save_picture_639997.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638943.jpg" />
+  <img src="Z:/picture/008/save_picture_638943.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638803.jpg" />
+  <img src="Z:/picture/008/save_picture_638803.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638706.jpg" />
+  <img src="Z:/picture/008/save_picture_638706.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638273.jpg" />
+  <img src="Z:/picture/008/save_picture_638273.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637781.jpg" />
+  <img src="Z:/picture/008/save_picture_637781.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637059.jpg" />
+  <img src="Z:/picture/008/save_picture_637059.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634861.jpg" />
+  <img src="Z:/picture/008/save_picture_634861.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631809.jpg" />
+  <img src="Z:/picture/008/save_picture_631809.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631532.jpg" />
+  <img src="Z:/picture/008/save_picture_631532.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_630866.jpg" />
+  <img src="Z:/picture/005/save_picture_630866.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630140.jpg" />
+  <img src="Z:/picture/008/save_picture_630140.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629852.jpg" />
+  <img src="Z:/picture/008/save_picture_629852.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629519.jpg" />
+  <img src="Z:/picture/008/save_picture_629519.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628693.jpg" />
+  <img src="Z:/picture/008/save_picture_628693.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627230.jpg" />
+  <img src="Z:/picture/008/save_picture_627230.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626607.jpg" />
+  <img src="Z:/picture/008/save_picture_626607.jpg" />
 </div>
 
 
@@ -624,59 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFFD7DC5F0DA6277FE659DAF4ECE29A94383BBDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 802414   (626371) от 06.07.2014
-
-Двойной капкан (1985) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во главе группы преступников, перепродающих за границу шедевры искусства, стоят администратор ночного бара Адамсон и основатель "дела" Блумберг. Милиции удается арестовать последнего, но, за недостаточностью улик, его отпускают на свободу. Адамсон не хочет делиться со своим уже "засвеченным" партнером, а Блумберг , чтобы вернуть свои деньги и (   Читать дальше...   )Производство: Рижская киностудияЖанр: Детектив, КриминалРежиссер: Алоиз БренчАктеры: Улдис Лиелдидж, Арийс Гейкинс, Хелга Данцберга, Константин Бердиков, Альгис Матулионис, Лилита Озолиня, Юрис ЛеяскалнсПродолжительность: 02:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:814D4F537A68B22EA3B4F3EACDADC754591F2229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 801985   (626357) от 06.07.2014
-
-Черный треугольник (3 серии) (1981) DVB
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический революционный детектив по роману Юрия Кларова.
-В январе 1918 года происходит одно из самых громких преступлений первых лет революции - ограбление Патриаршей Ризницы Московского Кремля. Следственная группа МУРа во главе с Леонидом Косачевским начинает расследование. Но коллекция уникальных бриллиантов и золотые оклады икон будто бы растворились в воздухе. (   Читать дальше...   )Жанр: Детектив, КриминалРежиссер: Сергей ТарасовАктеры: Константин Григорьев, Анатолий Ромашин, Жанна Болотова, Альгимантас Масюлис, Всеволод Сафонов, Борис Химичев, Ольга Барнет, Леонид Кулагин, Юрий Смирнов, Виктор Чеботарев, Алексей Миронов, Борис Хмельницкий, Николай Дупак, Юрий Дубровин, Михаил Погоржельский, Леонид Марков, Соломон Соколовский, Эдуард Володарский, Вацлав Дворжецкий, Гений ЮхтинПродолжительность: 3 x ~ 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92483B080C64BABB1EFFEDC50B9116C26216E54D
 ```
 
 https://mybot314.ru/tekegram_catalog/

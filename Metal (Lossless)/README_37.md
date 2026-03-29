@@ -1,3 +1,90 @@
+###  Публикация: 1481360   (1008347) от 03.07.2021
+
+Into the Fray - Into the Fray (2021) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Centurion [00:05:17]
+02. Demian [00:05:26]
+03. Pentagrammed Sun [00:03:55]
+04. Make Them Rot [00:06:29](   Читать дальше...   )Жанр: Groove MetalПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C744680729B87A25316A8FA675895C9344092452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481349   (1008343) от 03.07.2021
+
+Born Of Osiris - Angel or Alien (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poster Child [00:04:36]
+02. White Nile [00:03:49]
+03. Angel or Alien [00:04:27]
+04. Waves [00:03:08](   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850B8F0010F82B10D215F06C7E00A8DE8D311892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481399   (1008342) от 03.07.2021
+
+At The Gates - The Nightmare Of Being (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spectre Of Extinction
+02. The Paradox
+03. The Nightmare Of Being
+04. Garden Of Cyrus(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B87BC6FB16181A1B12B98EB22E1275D73D60657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481322   (1008333) от 03.07.2021
 
 Nile - 13 Studio Albums (1994-2019) 13xCD [FLAC|Lossless|image + .cue] <Technical Death Metal>
@@ -6,7 +93,7 @@ Nile - 13 Studio Albums (1994-2019) 13xCD [FLAC|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008333.jpg" />
 </div>
 
 
@@ -37,7 +124,7 @@ Lost In Grey - Under the Surface (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008133.jpg" />
 </div>
 
 
@@ -66,7 +153,7 @@ Babylon Rising - O.B.S.O.L (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008014.jpg" />
 </div>
 
 
@@ -95,7 +182,7 @@ Crypta - Echoes Of The Soul (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008003.jpg" />
 </div>
 
 
@@ -124,7 +211,7 @@ Van Canto - To The Power Of Eight (2021) [FLAC|Lossless|image + .cue] <A Capella
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007913.jpg" />
 </div>
 
 
@@ -153,7 +240,7 @@ Converge - Unloved And Weeded Out (2003) [FLAC|Lossless|image + .cue] <Chaotic H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007912.jpg" />
 </div>
 
 
@@ -182,7 +269,7 @@ Desaster - Churches Without Saints (2021) [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007903.jpg" />
 </div>
 
 
@@ -211,7 +298,7 @@ As Night Falls - Awareness (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007771.jpg" />
 </div>
 
 
@@ -240,7 +327,7 @@ HellLight - Until The Silence Embraces (2021) [FLAC|Lossless|image + .cue] <Fune
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007631.jpg" />
 </div>
 
 
@@ -269,7 +356,7 @@ Pastore - Phoenix Rising (2017) Japanese Edition [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007481.jpg" />
 </div>
 
 
@@ -298,7 +385,7 @@ Aphonic Threnody - The All Consuming Void (2021) [FLAC|Lossless|image + .cue] <F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007479.jpg" />
 </div>
 
 
@@ -327,7 +414,7 @@ Thelemite - Thelemism (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007475.jpg" />
 </div>
 
 
@@ -356,7 +443,7 @@ Tearfall - Wasted Days (2005) [FLAC|Lossless|image + .cue] <Gothic Metal, Goth R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007472.jpg" />
 </div>
 
 
@@ -385,7 +472,7 @@ Vicious Rumors - Celebration Decay (2020) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007455.jpg" />
 </div>
 
 
@@ -414,7 +501,7 @@ Kambrium - Synthetic ERA (2021) 2xCD [FLAC|Lossless|WEB-DL|tracks] <Sympho Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007194.jpg" />
 </div>
 
 
@@ -443,7 +530,7 @@ Maniak Cop - Maniak Cop (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007193.jpg" />
 </div>
 
 
@@ -472,7 +559,7 @@ Mourn The Light - Suffer, Then We’re Gone (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007189.jpg" />
 </div>
 
 
@@ -501,7 +588,7 @@ Mayhem - Atavistic Black Disorder & Kommando (2021) EP [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007185.jpg" />
 </div>
 
 
@@ -531,7 +618,7 @@ Van Canto - Trust In Rust (2018) [FLAC|Lossless|image + .cue] <A Capella Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007163.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ Heavy Smasher - Heavy Smasher (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007025.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ Helevorn - 4 Albums (2005-2019) [FLAC|Lossless|image + .cue] <Doom Metal, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007024.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ Blessed Child - Monolith (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007022.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ Twisted - Minds (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007018.jpg" />
 </div>
 
 
@@ -661,96 +748,6 @@ Twisted - Minds (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB80382B2DE6A2A605EC620C5B844061A6AE9ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483180   (1007000) от 12.07.2021
-
-Darkthrone - Eternal Hails (2021) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkthrone — метал-группа из Норвегии. В период с 1986 по 1987 года группа именовалась Black Death, с 1987 года стала называться Darkthrone.
-
-Участники записи:
-Cover (Cover Artist)– David A. Hardy(   Читать дальше...   )01.His Master's Voice
-02. Hate Cloak
-03. Wake Of The Awakened
-04. Voyage To A North Pole Adrift(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB016DF11FD733224B5350FF592B164D870C85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483259   (1006912) от 13.07.2021
-
-Dream Troll - The Knight Of Rebellion (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time For Vengeance
-02. Velvet Drawbridge
-03. Mons Ominosus
-04. Lost In The Pages(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55FA36CA433F41E96FB909A068C194C0FFDB161B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483255   (1006907) от 13.07.2021
-
-Dream Troll - Second To None (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steel Winged Warrior
-02. I Will Not Die Today
-03. The Lawmaker
-04. Chrome Skull Viper(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D339CA7FF76A6BF56F81BCA09D73B256EEF76A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

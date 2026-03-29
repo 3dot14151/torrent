@@ -1,3 +1,90 @@
+###  Публикация: 1731296   (107749) от 20.06.2024
+
+Vulgar Devils - Witches Wheel (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Awaken The Night
+02 - Bringing Hell
+03 - Lost Souls Of Fire
+04 - Black Talons Of Evil(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30CCC76901F326C6FF69D6AE19AE5290730B7DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731365   (107739) от 20.06.2024
+
+Magma Rise - To Earth to Ashes to Dust (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - To Earth to Ashes to Dust (00:07:08)
+02 - Into My Aeon (00:05:16)
+03 - Cloudcatcher (00:05:03)
+04 - From the Heights from the Ground (00:05:32)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E102B88C4EC51C368B6E6A5943202512C4B56867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731342   (107738) от 20.06.2024
+
+Magma Rise - Lazy Stream of Steel (2010) [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time's Been Given (06:14)
+02. For Those... (05:22)
+03. Standby (06:12)
+04. Tombstone Eyes (06:07)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09148DD07E1AE5D45F1EF2FA273A483616797B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731360   (107736) от 20.06.2024
 
 Magma Rise - Neither Land nor Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
@@ -6,7 +93,7 @@ Magma Rise - Neither Land nor Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107736.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Seven Spires - A Fortress Called Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107661.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Malignancy - Ignorance Is Bliss (2001) Compilation [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107660.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Malignancy - Intrauterine Cannibalism (1999) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107658.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Membaris - Poetry of Chaos (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107657.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Malignancy - Eugenics (2012) [FLAC|Lossless|image + .cue] <Brutal Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107656.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Dezperadoz - Moonshiner (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107607.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Cainites - Revenant (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107587.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Fervent Hate - In Rot We Trust (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107586.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Eynomia - Sea of Tears (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107576.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Within Temptation - Worlds Collide Tour (2024) Live in Amsterdam [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107524.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ V.A. - Split Torso Trauma (2011) Split [FLAC|Lossless|image + .cue] <Brutal Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107519.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Antropofagus - No Waste of Flesh (1999) [FLAC|Lossless|image + .cue] <Brutal Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107517.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Cavalera - Schizophrenia (2024) Re-Recorded [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107511.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Memphis May Fire - Remade In Misery (2022) [FLAC|Lossless|tracks + .cue] <Post-H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107503.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Battlesnake - The Rise And Demise Of The Motorsteeple (2024) [FLAC|Lossless|WEB-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107501.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Antropofagus - Alive Is Good... Dead Is Better (2001) EP, Released, 2001, Beyond
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107500.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Antropofagus - Methods of Resurrection Through Evisceration (2017) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107498.jpg" />
 </div>
 
 
@@ -527,7 +614,7 @@ The Hounds Of Hasselvander - Another Dose Of Life (2021) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107495.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ Benighted - Ekbom (2024) 2 x CD [FLAC|Lossless|image + .cue] <Death Metal, Grind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107494.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ Rifflord - 39 Serpent Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107482.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ Or Not - Violence & Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107474.jpg" />
 </div>
 
 
@@ -643,7 +730,7 @@ Mass Infection - Atonement for Iniquity (2007) [FLAC|Lossless|image + .cue] <Bru
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107463.jpg" />
 </div>
 
 
@@ -657,93 +744,6 @@ Mass Infection - Atonement for Iniquity (2007) [FLAC|Lossless|image + .cue] <Bru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D687854E945532A7A52D6EFEE8748BE39BFEF9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732423   (107462) от 25.06.2024
-
-Mass Infection - The Age of Recreation (2009) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enslave the Earth
-02. Furious Annihilation
-03. Savagery Incarnate
-04. Enthralled in Deception(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D475D92751FE336800ED65CBE428221B402D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732430   (107461) от 25.06.2024
-
-Mass Infection - For I Am Genocide (2014) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praised By All The Entities
-02. The Scourge Of Living Forms
-03. Hierarchy Of The Highest Abomination
-04. Beholding The Throne(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8720F8E39A828945B71E2E62ED48DEAFDAF9D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732523   (107458) от 25.06.2024
-
-Mordaza - El orden del caos (2020) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Hedor De La Inmundicia
-02. Amok
-03. Toro De Falaris
-04. Necropsia(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A38CF5762E21A42369F4C2A232AFE3E9E1FE68FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

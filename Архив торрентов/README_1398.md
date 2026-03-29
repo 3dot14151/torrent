@@ -6,7 +6,7 @@ Dannic - Fonk Radio (099-201) (2018-2020) [MP3|192-320 Kbps] <Electro House, Pro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736966.jpg" />
+  <img src="Z:/picture/008/save_picture_736966.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ World Clock Deluxe 4.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736941.jpg" />
+  <img src="Z:/picture/008/save_picture_736941.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ System Toolkit 5.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736939.jpg" />
+  <img src="Z:/picture/008/save_picture_736939.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ ArchCommander 2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736935.jpg" />
+  <img src="Z:/picture/008/save_picture_736935.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736934.jpg" />
+  <img src="Z:/picture/008/save_picture_736934.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ NetWorker Pro 8.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736932.jpg" />
+  <img src="Z:/picture/008/save_picture_736932.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ EverWeb (Standalone) 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736928.jpg" />
+  <img src="Z:/picture/008/save_picture_736928.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ MaxCommander 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736923.jpg" />
+  <img src="Z:/picture/008/save_picture_736923.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Grids for Instagram 7.0.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736919.jpg" />
+  <img src="Z:/picture/008/save_picture_736919.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Mac FoneLab Android Data Recovery 3.1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736913.jpg" />
+  <img src="Z:/picture/008/save_picture_736913.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ BlueHarvest 8 v8.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736911.jpg" />
+  <img src="Z:/picture/008/save_picture_736911.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ K-Lite Codec Pack Update 16.7.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736902.jpg" />
+  <img src="Z:/picture/008/save_picture_736902.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ FoneLab Data Retriever 1.2.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736898.jpg" />
+  <img src="Z:/picture/008/save_picture_736898.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ MediaHuman YouTube Downloader 3.9.9.67 (2501) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736897.jpg" />
+  <img src="Z:/picture/008/save_picture_736897.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Microsoft Edge 97.0.1072.76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736896.jpg" />
+  <img src="Z:/picture/008/save_picture_736896.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Acoustica Premium Edition 7.3.25 (x64) RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736891.jpg" />
+  <img src="Z:/picture/008/save_picture_736891.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ PrivaZer 4.0.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736886.jpg" />
+  <img src="Z:/picture/008/save_picture_736886.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ HiBit Uninstaller 2.7.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736883.jpg" />
+  <img src="Z:/picture/008/save_picture_736883.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Process Lasso Pro 10.4.3.24 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736882.jpg" />
+  <img src="Z:/picture/008/save_picture_736882.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736878.jpg" />
+  <img src="Z:/picture/008/save_picture_736878.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Perfectly Clear WorkBench 4.0.1.2226 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736875.jpg" />
+  <img src="Z:/picture/008/save_picture_736875.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ WinMerge 2.16.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736874.jpg" />
+  <img src="Z:/picture/008/save_picture_736874.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ AutoRuns 14.08 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736869.jpg" />
+  <img src="Z:/picture/008/save_picture_736869.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Maxthon Browser 6.1.3.1001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736866.jpg" />
+  <img src="Z:/picture/008/save_picture_736866.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Sublime Text Build 4126 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736865.jpg" />
+  <img src="Z:/picture/008/save_picture_736865.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Planner 5D Premium 4.8.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736859.jpg" />
+  <img src="Z:/picture/008/save_picture_736859.jpg" />
 </div>
 
 

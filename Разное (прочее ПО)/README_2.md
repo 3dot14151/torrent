@@ -1,3 +1,82 @@
+###  Публикация: 1586166   (204733) от 26.10.2022
+
+Windows DesktopPack 22.10 [Multi/Ru]  (Авторская раздача)
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_204733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это набор программного обеспечения (офисный пакет, графические и музыкальные редакторы, антивирусы, архиваторы, интернет-браузеры, программы верстки и дизайна и другие) для MS Windows, которые имеют открытый исходный код или бесплатны для распространения.
+В его состав входят программы для решения широкого круга задач, являющихся свободными функциональными аналогами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF782504F2142C574A388836BE4514D1BD6E18C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630396   (199143) от 30.04.2023
+
+EarthView 7.7.1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_199143.jpg" />
+</div>
+
+
+###  Подробнее
+
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822626B82D8531407C02C79DC8C9CF25BF5C5A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074519   (198308) от 16.05.2023
+
+Fujikura Data connection 12 series 1.0.3.0 + Manual [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разное (прочее ПО)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный образ диска для оптического сварочного аппарата Fujikura 12S и 12R. Необходимое ПО для снятия показаний о качестве произведенных сварок на аппарате, сохранения или восстановления ранее сохраненных настроек, и т. д, а так же для автоматического обновления микропрограммы (прошивки) аппарата. Набор инструкций, драйверов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481C5468F00D032E364F6D975A4E07E64714AA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642062   (196548) от 25.06.2023
 
 X-Mouse Button Control 2.20.5 + Portable [Multi/Ru]
@@ -6,7 +85,7 @@ X-Mouse Button Control 2.20.5 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196548.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Aura (Аура леса) 2.8.10m.216 RePack (& Portable) by elchupacabra + MP3 �
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174258.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ ADB AppControl 1.8.2 Extended portable by GPFault [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172171.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Tenorshare 4uKey for Android 2.2.2.4 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163099.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ Multi Image Kitchen 3.8.0 |DC 29.11.2021| [Multi/Ru] (Обновляемая а�
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148941.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139391.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ f.lux v4.134 [En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114559.jpg" />
 </div>
 
 
@@ -192,7 +271,7 @@ Find Same Images OK 5.41 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110879.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86646.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ Microsoft Windows Dancer + Windows XP Media Center Edition 2005 Screensavers [En
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83164.jpg" />
 </div>
 
 
@@ -278,7 +357,7 @@ Text Editor Pro 32.1.1 + Portable + Bonus [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67359.jpg" />
 </div>
 
 
@@ -304,7 +383,7 @@ VapeCalc+ Reborn 3.1.3000 + Portable [Ru/En/De/Bel] (Авторская обно
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63559.jpg" />
 </div>
 
 
@@ -332,7 +411,7 @@ FPS Monitor 5472 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59373.jpg" />
 </div>
 
 
@@ -360,7 +439,7 @@ NonCompressibleFiles 4.71 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57311.jpg" />
 </div>
 
 
@@ -387,7 +466,7 @@ Freeplane 1.11.14 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55916.jpg" />
 </div>
 
 
@@ -413,7 +492,7 @@ Hallo northern sky 4.3.2 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53112.jpg" />
 </div>
 
 
@@ -441,7 +520,7 @@ Unit Converter 16.08.2024 [Multi]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46618.jpg" />
 </div>
 
 
@@ -467,7 +546,7 @@ Microsoft .Net Packages AIO 12.11.24 RePack by xetrin [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36416.jpg" />
 </div>
 
 
@@ -493,7 +572,7 @@ ADB AppControl 1.8.6 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35283.jpg" />
 </div>
 
 
@@ -520,7 +599,7 @@ EarthView 7.11.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25202.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ NetSarang Xmanager Power Suite 8.0.0006 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24373.jpg" />
 </div>
 
 
@@ -572,7 +651,7 @@ Eric's Movie DataBase (EMDB) 5.36 [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22625.jpg" />
 </div>
 
 
@@ -598,7 +677,7 @@ Hydra Launcher 3.6.2 + Portable [Multi/Ru]
 >>Разное (прочее ПО)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12269.jpg" />
 </div>
 
 
@@ -609,86 +688,6 @@ Hydra - это игровой лаунчер с собственным встр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E637718FF8DC8A71A81A4AABFFF37EBD64E18F51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808633   (10385) от 25.07.2025
-
-PrintMyFonts 24.8.31 Portable [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10385.jpg" />
-</div>
-
-
-###  Подробнее
-
-PrintMyFonts - программа для печати и экспорта шрифтов. Когда у вас в системе большое количество шрифтов (а чаще всего, при длительном использовании компьютера даже обычным пользователем, эта цифра ближе к 300), то ориентироваться среди них становится не очень просто.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D32AE1FD4B45F434FBD0E7C47F01E52E20FE45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808668   (10270) от 26.07.2025
-
-PageEdit 2.5.0 (x64) [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10270.jpg" />
-</div>
-
-
-###  Подробнее
-
-PageEdit изначально разрабатывался как замена функции «Просмотр книги», которая была в старых версиях Sigil. Однако его также можно использовать как визуальный XHTML-редактор общего назначения.
-
-Это полностью бесплатное программное обеспечение с открытым исходным кодом написано и поддерживается исключительно добровольцами. В команду разработчиков PageEdit входят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D69DE765DD8AB1B72FB8B376381AFB720313DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808659   (10267) от 26.07.2025
-
-Sigil 2.6.0 [Multi/Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>Разное (прочее ПО)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sigil — программа представляет собой мощный редактор электронных книг в формате EPUB, позволяющий не только редактировать, но также создавать собственные электронные книги с собственным дизайном. Множество полезных функций, возможность настройки параметров конфигурации приложения делают данное программное обеспечение достаточно эффективным при работе с электронными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADEFCB05E4F0487ABB44870633F6A8AB77F107A
 ```
 
 https://mybot314.ru/tekegram_catalog/

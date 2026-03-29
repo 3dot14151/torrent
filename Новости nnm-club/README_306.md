@@ -1,3 +1,159 @@
+###  Публикация: 1777227   (1246) от 24.09.2025
+
+Kingdom Come: Deliverance II (2) (2025) [Ru/Multi] (1.4.1/dlc) Repack SE7EN [Gold Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kingdom Come: Deliverance II – это продолжение культовой реалистичной ролевой игры, действие которой разворачивается в начале XV века в исторической Богемии. Погрузитесь в суровую эпоху, где каждое принятое решение имеет далеко идущие последствия, а жизнь средневековых людей наполнена как будничными заботами, так и драматическими поворотами судьбы.Тип издания: RepackРазработчик: Warhorse StudiosЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBB08FBF03CE948F1DCB6CF5EBD28C05DDAE396F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819663   (1185) от 24.09.2025
+
+Первое достижение: 1000 релизов от mikos74
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1185.jpg" />
+</div>
+
+
+###  Подробнее
+
+ Первое достижение: 1000 релизов от mikos74 Дорогие друзья и гости клуба...Закончились летние каникулы и отпуска, релизёры возвращаются к суровым трудовым будням. А что может скрасить тяжёлую рабочую неделю - так это создание пары-тройки классных релиза.Ну а сегодня, наш виновник торжества, впервые попадает в эту рубрику. Прошу любить и жаловать: специалист по классическому (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819565   (1109) от 25.09.2025
+
+Фантастическая четвёрка: Первые шаги / The Fantastic Four: First Steps (2025) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рид Ричардс, Бен Гримм, Сью Сторм и её брат Джонни должны защитить Землю от космического бога Галактуса и его приспешника - Серебряного Сёрфера. И если план Галактуса поглотить всю планету и всех её жителей кажется недостаточно ужасающим, ситуация внезапно становится личной.Производство: Великобритания, США, Канада, Новая Зеландия / Marvel Studios, Walt Disney Studios Motion PicturesЖанр: фантастика, боевик, приключенияРежиссер: Мэтт ШекманАктеры: Педро Паскаль, Ванесса Кирби, Эбон Мосс-Бакрак, Джозеф Куинн, Ральф Айнесон, Джулия Гарнер, Наташа Лионн, Пол Уолтер Хаузер, Сара Найлз, Марк ГэтиссПеревод: Дублированный (MovieDalen, укр. LeDoyen)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, Full), английские (Forced, Full, SDH), украинские (Forced, Full) и др.Продолжительность: 01:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00D97848883598FC37CA7ABD5B2C57AA8371A634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788747   (1107) от 25.09.2025
+
+Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0c/dlc) Repack Let'sРlay [Supporter Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1107.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Tainted Grail: The Fall of Avalon» - это серьезная ролевая игра от первого лица в открытом мире, созданном в стиле мрачного фэнтези по мотивам легенд о короле Артуре. Вас ждет сложноустроенная, разветвленная сюжетная линия, в которой ваши решения будут определять наследие короля Артура и результат напряженной 600-летней борьбы для всего мира.Тип издания: RepackРазработчик: QuestlineЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0CBBB3AF824DCA906401072B7D0D52D184A3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1816205   (931) от 26.09.2025
+
+Cronos: The New Dawn (2025) [Ru/Multi] (20250923_1314-326654/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cronos: The New Dawn - это новое слово в жанре survival horror. Выживайте в жестоких пустошах будущего, сражайтесь с кошмарными монстрами убивайте их до того, как они сольются в нечто худшее, путешествуйте в прошлое, чтобы собрать заблудшие души и раскрыть причину катастрофы, положившей конец человечеству. Приспособьтесь или умрите.Тип издания: RepackРазработчик: Bloober TeamЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E92E246A5E4431E0BB5BC74E0256A477D4B59E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820066   (866) от 26.09.2025
+
+Internet Download Manager 6.42 Build 47 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D78C54BD5A05D07C01E887C56DE5361D2F0D6E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819994   (736) от 27.09.2025
 
 Windows 10 Pro 22H2 19045.6332 x64 by SanLex [Lightweight] [Ru-En] (2025.09.25)
@@ -6,7 +162,7 @@ Windows 10 Pro 22H2 19045.6332 x64 by SanLex [Lightweight] [Ru-En] (2025.09.25)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_736.jpg" />
 </div>
 
 
@@ -33,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_726.jpg" />
 </div>
 
 
@@ -59,7 +215,7 @@ Wartales (2021) [Ru/Multi] (1.0.43355/dlc) License GOG [The Mercenaries Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_722.jpg" />
 </div>
 
 
@@ -85,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_697.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Vintage Culture - Culture Shock 001-146 (2021-2025) [MP3|320 Kbps] <House, Tech 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_447.jpg" />
 </div>
 
 
@@ -141,7 +297,7 @@ MultiBoot 2k10 7.40 Unofficial [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_441.jpg" />
 </div>
 
 
@@ -167,7 +323,7 @@ Hitman: Blood Money / Hitman: Кровавые деньги (2006) [Ru] (1.2) Re
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_440.jpg" />
 </div>
 
 
@@ -193,7 +349,7 @@ Palworld (2024) [Ru/Multi] (0.6.7.79736) Repack R.G. Alkad [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_195.jpg" />
 </div>
 
 
@@ -219,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_194.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ Palworld (2024) [Ru/Multi] (0.6.7.79736) Repack SE7EN [Early Access]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_193.jpg" />
 </div>
 
 

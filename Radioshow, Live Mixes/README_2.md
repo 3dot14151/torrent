@@ -1,3 +1,61 @@
+###  Публикация: 1453892   (1026623) от 13.03.2021
+
+Gabriel & Dresden - AFTR:HRS SESSIONS 03 (2021-03-11) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CRi - Stranger
+02. Alex O’Rion - Cuprum
+03. Emil Berliner - Aoede
+04. Mind Against - Walking Away(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A0F713C1A0B3CD71AC3D895DE663AFBFD752B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455049   (1025827) от 18.03.2021
+
+Lane 8 - Spring 2021 Mixtape (2021-03-16) [MP3|320 Kbps] <Deep House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. Frankey & Sandrino - Xrain
+03. ID - ID
+04. ID - ID(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 03:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0386CF16C06C6BF626EC470DE4CC3D5941594427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457980   (1024258) от 27.03.2021
 
 Blasterjaxx - Live @ Exclusive Water Tower Set (2021-03-25) [MP3|320 Kbps] <Hard Dance, Big Room>
@@ -6,7 +64,7 @@ Blasterjaxx - Live @ Exclusive Water Tower Set (2021-03-25) [MP3|320 Kbps] <Hard
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024258.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ David Guetta - Tomorrowland Friendship Mix (2021-03-25) [MP3|320 Kbps] <Electro 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024254.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ The Blizzard - AVACast Guest Mix (2021-03-29) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022302.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Specia
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021782.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021432.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Korolova - Live @ Zanzibar, Tanzania (2021-03-26) [MP3|320 Kbps] <Deep House, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021321.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Korolova - Live @ Tanzania (2021-04-09) [MP3|320 Kbps] <Deep House, Progressive 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021317.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Drumstone - AFTR:HRS SESSIONS 04 (2021-04-15) [MP3|320 Kbps] <Deep House, Progre
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020861.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Mike Williams - Live @ Duif' Church, Netherlands (2021-04-09) [MP3|320 Kbps] <Fu
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020837.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Korolova - Live @ Farsha Cafe Sharm El Sheikh, Egypt (2021-04-23) (2021) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019135.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ SPINNIN' - Best of Tiesto (2021-05-09) [MP3|320 Kbps] <Big Room, Future House, D
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016586.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Korolova - Live @ Kamianets - Podilskyi, Ukraine(2021-05-07) [MP3|320 Kbps] <Pro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016572.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Laidback Luke - Tomorrowland Friendship Mix (2021-05-20) [MP3|320 Kbps] <House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013867.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Korolova - AFTR:HRS SESSIONS 06 (2021-06-10) [MP3|320 Kbps] <Deep House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010496.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Vintage Culture - Live @ Defected Livestream, Brazil (2021-06-11) [MP3|320 Kbps]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010359.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Lane 8 - Summer 2021 Mixtape (2021-06-15) [MP3|320 Kbps] <Deep House, Progressiv
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010200.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Kaskade - Live @ Marquee New York, United States 2019-12-31 [MP3|~245 Kbps (V0)]
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004312.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Hardwell - Hardwell On Air Yearmix 2019 (2019) [MP3|~245 Kbps (V0)] <Electro Hou
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004305.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Andrew Rayel - Find Your Harmony Radioshow Yearmix 2019 (2020-01-01) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004299.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Above & Beyond - Live @ The New York Expo Center, United States 2019-12-31 [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003010.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Rydex - Trancemission Marathon 2019 (2019-12-31) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002765.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Pete Tong & The Heritage Orchestra and Jules Buckley - Ibiza Classics - Live at 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002757.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech Ho
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001191.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Aurosonic - EOYC 2015 (2015) [MP3|320 кб/с] <Trance,Progressive Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975748.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Aurosonic - EOYC 2015 (2015) [MP3|320 кб/с] <Trance,Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24FE2CBE68BF153945EDE582C19D699F1DE05826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817967   (969166) от 17.01.2016
-
-Traxtorm records - Hardcore Italia podcast 1-106 (2011-2016) (обновляемая)[MP3|128 кб/с]<Hardcore>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01) Koozah - Stand up
-02) DJ Mad Dog - Rewind #TiH (Xcite remix)
-03) Piecemaker - Brutal deluxe
-04) Alien T feat. MC Alee - Our light #TiH(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB97AECF3805D96F0F01EABC295F44CFA689B160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863215   (967662) от 19.01.2016
-
-DJ S.I.D.R. - Keep It Ob'ecore Podcast # 1-20 (2013-2015) [MP3|320 кб/с]<Happy Hardcore, Hardcore, Rave>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Prospect - I Just Wanna Feel (UK Hardcore Edit)
-02. Re-Con & Demand ft. Mandy Edge - I'm Sorry (Original Mix)
-03. Eufeion & Patch - Crash
-04. UniqForm - Oooo Fuck(   Читать дальше...   )Жанр: Happy Hardcore, Hardcore, RaveПродолжительность: 23:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCED436A21C0C87E465DBBB4ED5454FCE4B3CF6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

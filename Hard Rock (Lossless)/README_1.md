@@ -1,3 +1,61 @@
+###  Публикация: 1604790   (1045223) от 15.01.2023
+
+Bad Sister - Where Will You Go (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lose Or Win (4:19)
+02. Feels Like Lov (3:51)
+03. Bright Lights (4:20)
+04. Don't Need Me (4:39)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D5167F154D1F906D5497B7E95D9489E928F6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164389   (1045130) от 15.01.2023
+
+The Sweet (Sweet) - 38 albums, 3 Box-sets, 78CD (1971-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Glam Rock, Classic Rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sweet (до 1974 года The Sweet) — британская рок-группа, образовавшаяся в Лондоне, Англия, в 1968 году. Первую известность The Sweet получили в начале 1970-х годов благодаря серии бабблгам-синглов, затем — на своём творческом пике — стали частью британского глэм-рок-движения; наконец, утяжелили звук и приблизились к хард-роковому звучанию. Альбомы Sweet не становились (   Читать дальше...   )--------------------------
+
+01. Blockbuster! (3:14)
+02. Fox On The Run (3:24)(   Читать дальше...   )Жанр: Glam Rock, Classic Rock, Pop Rock |Продолжительность: 3d 1:23:23 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DF9B66FF3C3379108F9C2BEC7215298CC463B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605381   (1044964) от 17.01.2023
 
 Epic Symphonic Rock - Epic Symphonic Rock (Live) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classical, Covers>
@@ -6,7 +64,7 @@ Epic Symphonic Rock - Epic Symphonic Rock (Live) (2022) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044964.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Lillasyster - Stormtrooper Boombox (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044561.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Black Star Riders - Wrong Side of Paradise (2023) Special Edition [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044540.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Half Life - Like A Jungle (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044535.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ John B King - A Kings Tale (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044413.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ StreetLore - StreetLore (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044328.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Black Paisley - Human Nature (2022) [FLAC|Lossless|image + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044325.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Autograph - Beyond (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044323.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Driptorch - Deadrock City Nights (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044258.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Padre Cuervo - Padre Cuervo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044257.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Teresa James - With a Little Help from Her Friends (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044216.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Barnabas Sky - What Comes To Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044166.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Uriah Heep - Chaos & Colour (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043906.jpg" />
 </div>
 
 
@@ -385,7 +443,7 @@ Ronnie Romero - Raised On Heavy Radio (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043843.jpg" />
 </div>
 
 
@@ -414,7 +472,7 @@ Landfall - Elevate (2022) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043758.jpg" />
 </div>
 
 
@@ -443,7 +501,7 @@ Sabu - Banshee (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043757.jpg" />
 </div>
 
 
@@ -472,7 +530,7 @@ KLEE Project - Living in Confusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043658.jpg" />
 </div>
 
 
@@ -501,7 +559,7 @@ Freeroad - Do What You Feel! (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043649.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ Crowne - Operation Phoenix (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043641.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ Ken Hensley - Cold Autumn Sunday (Expanded Edition) (2023) [FLAC|Lossless|WEB-DL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043622.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ ThunderMother - Heat Wave (2020) Limitеd Еditiоn [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042546.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ The Winery Dogs - III (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042364.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Sainted Sinners - Taste It (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041797.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ Phil Campbell and The Bastard Sons - We're The Bastards (2020) [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041687.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ Phil Campbell and The Bastard Sons - We're The Bastards (2020) [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BC18AF797DC5418D418AC1E7E5972C89CFA4E3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438348   (1041185) от 08.01.2021
-
-Corey Taylor - GMFT (2020) [FLAC|Lossless|image + .cue] <Alt. Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HWY 666
-02. Black Eyes Blue
-03. Samantha's Gone
-04. Meine Lux(   Читать дальше...   )Жанр: Alt. Rock, Hard RockПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D5F5F71160271B9D86FAC224BD89A1D8BE0C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438397   (1041174) от 08.01.2021
-
-Sammy Hagar & The Circle - Lockdown 2020 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funky Feng Shui (01:13)
-02. Won't Get Fooled Again (02:09)
-03. Good Enough (02:04)
-04. Three Little Birds (02:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8CC326D5F0ABEAC6BFF8AF3B5821BE1AF5F6E46
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1718136   (58793) от 23.04.2024
+
+М убийца / M - Eine Stadt sucht einen Morder (1931) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58793.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Берлине полиция сбилась с ног, пытаясь найти маньяка, убившего нескольких девочек. Обнаруженные улики не дают ключей к разгадке. Между тем, убийства продолжаются... Жителями города постепенно овладевает паранойя — они готовы учинить самосуд над каждым, кто заговорит с ребёнком на улице, и даже начинают подозревать своих соседей... В поисках маньяка полиция проводит (   Читать дальше...   )Производство: Германия / Nero-Film AGЖанр: криминал, детектив, триллерРежиссер: Фриц ЛангАктеры: Петер Лорре, Эллен Видман, Инге Ландгут, Отто Вернике, Теодор Лоос, Фриц Одемар, Пол Кемп, Тео ЛингенПеревод: профессиональный многоголосыйЯзык озвучки: русский, немецкийСубтитры: русские (Видеоимпульс; Е.Клавдиенко), английскиеПродолжительность: 01:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F91EC26B4ED99E272E4C969135B8AE45EDD8FFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718169   (58681) от 24.04.2024
+
+Пейзаж в тумане / Topio stin omihli / Landscape in the Mist (1988) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58681.jpg" />
+</div>
+
+
+###  Подробнее
+
+История, рассказанная в фильме , на вид простая, детская. Брат и сестра, сбежавшие из дома, от матери - девочка лет одиннадцати и мальчик лет пяти,- бредут по дороге строго на север, из Греции в Германию, где живёт их отец (мать солгала им, чтобы не говорить правду). После многочисленных злоключений они достигают вожделенной границы и гибнут, переходя её. Даже не (   Читать дальше...   )Производство: Греция, Франция, Италия / Basic Cinematografica, Rai Due, Greek Television ET-1Жанр: драмаРежиссер: Тео АнгелопулосАктеры: Михалис Зик, Таня Палайологу, Стратос Цорцоглу, Димитрис Каберидис, Герасимос Скиадаресис, Василис Коловос, Ева Котаманиду, Вангелис Казан, Кириакос КатриваносПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, греческийСубтитры: русские (семья ГД), английскиеПродолжительность: 02:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E2FB4FE7942B6664D14E79C5424E216BED527C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717984   (58561) от 25.04.2024
+
+Дети райка (2 серии из 2) / Les Enfants du Paradis (1945) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в Париже 20-30-х 19-го века. Фильм повествует историю куртизанки и четырёх мужчин - мима, актёра, преступника и аристократа, — которые любят её совершенно по-разному. Это обширный рассказ о безответной любви, тайных романах, ревности и страсти в мире театра, преступности и аристократии. «Дети райка» - это бедняки, занимающие галёрку театров (   Читать дальше...   )Производство: Франция / Pathé Consortium Cinéma, Société Nouvelle Pathé CinémaЖанр: драма, мелодрамаРежиссер: Марсель КарнеАктеры: Арлетти, Жан-Луи Барро, Пьер Брассёр, Марсель Эрран, Пьер Ренуар, Мария Казарес, Гастон Модо, Фабьен Лорис, Марсель Пере, Пьер Пало, Этьен Декру, Жана Маркен, Марсель Монтиль, Луи ФлорансиПеревод: дублированный, профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:47:47 + 01:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F250AD9F7D0F84220F7D6F74FAAF82E9025794A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718112   (58456) от 26.04.2024
 
 Ребенок Розмари / Rosemary's Baby (1968) BDRip  [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58456.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56818.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56754.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56362.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55890.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55870.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55753.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55570.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55516.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55470.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55084.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55021.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54917.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54802.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53359.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53342.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52922.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52851.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52837.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52670.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52247.jpg" />
 </div>
 
 
@@ -561,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51924.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51331.jpg" />
 </div>
 
 
@@ -598,86 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B014B69B78C90756C54A2332C39E1CFB08017F8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733192   (51274) от 02.07.2024
-
-Манон / Manon (1949) BDRip [H.264] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51274.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Манон Леско перенесена в первые послевоенные годы. Робер Дегриё, солдат армии французских повстанцев, встречает Манон, когда разъяренная толпа пытается линчевать девушку за сотрудничество с немцами. Робер берет несчастную под стражу до суда, но, очарованный её красотой, бежит вместе с ней в Париж. Добравшись до столицы, молодые люди оказываются под влиянием (   Читать дальше...   )Производство: Франция / AlcinaЖанр: драма, криминалРежиссер: Анри-Жорж КлузоАктеры: Серж Реджани, Мишель Оклер, Сесиль Обри, Андре, Раймонд Суплекс, Андре Вальми, Анри Вильбер, Элена Мансон, Дора Долль, Симона ВалерПеревод: Многоголосый любительский (Студия 56)Язык озвучки: русский, французскийСубтитры: русский, английскийПродолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528A2FD328C8E7DAED21F62B61BF499A430D7951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734535   (51086) от 04.07.2024
-
-Ангелы ада / Hell's Angels (1930) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два брата - Монти и Рой - после начала Первой мировой войны добровольно вступают в Королевские военно-воздушные силы. Они получают опасное задание - уничтожить военный завод в Германии. Знаменитый фильм Ховарда Хьюза был первым, в котором использовалась техника Техниколор. К тому же он был самым дорогим в истории кинематографа, пока его рекорд не побил "Унесенные (   Читать дальше...   )Производство: США / The Caddo CompanyЖанр: драма, военныйРежиссер: Говард Хьюз, Эдмунд Гулдинг, Джеймс УэйлАктеры: Бен Лион, Джеймс Холл, Джин Харлоу, Джон Дарроу, Люсьен Приваль, Фрэнк Кларк, Рой Уилсон, Дуглас Гилмор, Джейн Уинтон, Эвелин ХоллПеревод: Двуголосый профессиональный (Студия Эллегия)Язык озвучки: русский, английскийСубтитры: русские (full, SDH), английские, французские, испанские, румынскиеПродолжительность: 02:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A53114976CAB418C4CE399094B9A8D58BD075D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735986   (50377) от 11.07.2024
-
-Станция Бховани / Bhowani Junction (1956) DVDRip   [DVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50377.jpg" />
-</div>
-
-
-###  Подробнее
-
-По роману "Железнодорожный узел Бховани" Джона Мастерса, родившегося в Калькутте.
-1947 год. Сразу после второй мировой войны Великобритания была вынуждена освободить Индию от колониальной зависимости. Желая сделать это организованно, командование английских войск разработало план постепенного вывода своих вооруженных сил.
-Но борющиеся за власть всевозможные (   Читать дальше...   )Производство: США, Великобритания / Metro-Goldwyn-Mayer (MGM)Жанр: драма, мелодрама, приключения, история, экранизацияРежиссер: Джордж КьюкорАктеры: Ава Гарднер, Стюарт Грейнджер, Билл Треверс, Абрахам Соуфер, Френсис Мэтьюз, Марн Мэйтленд, Питер Иллинг, Эдвард Чэпман, Фрида Джексон, Лайонел ДжеффрисПеревод: Двуголосый профессиональныйЯзык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC19DDB69D5CFB76A0AFF7A7AC97250AB162F92
 ```
 
 https://mybot314.ru/tekegram_catalog/

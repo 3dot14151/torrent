@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769990.jpg" />
+  <img src="Z:/picture/008/save_picture_769990.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PowerISO 6.2 DC 08.04.2015 RePacK by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769969.jpg" />
+  <img src="Z:/picture/008/save_picture_769969.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CoolUtils Total Image Converter 5.1.70 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769962.jpg" />
+  <img src="Z:/picture/008/save_picture_769962.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769951.jpg" />
+  <img src="Z:/picture/008/save_picture_769951.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PowerISO 6.2 DC 08.04.2015 RePack by cuta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769934.jpg" />
+  <img src="Z:/picture/008/save_picture_769934.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PowerISO 6.2 DC 08.04.2015 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769932.jpg" />
+  <img src="Z:/picture/008/save_picture_769932.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NXPowerLite Desktop 6.2.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769929.jpg" />
+  <img src="Z:/picture/008/save_picture_769929.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Studies 1.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769920.jpg" />
+  <img src="Z:/picture/008/save_picture_769920.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Creative Convert 1.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769918.jpg" />
+  <img src="Z:/picture/008/save_picture_769918.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Alfred 4 Powerpack 4.1 (build1164) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769917.jpg" />
+  <img src="Z:/picture/008/save_picture_769917.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Chaotica 2.0.25 Beta Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769915.jpg" />
+  <img src="Z:/picture/008/save_picture_769915.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Icecream PDF Split and Merge Pro 2.04 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769899.jpg" />
+  <img src="Z:/picture/008/save_picture_769899.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Book Collector Pro 20.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769891.jpg" />
+  <img src="Z:/picture/008/save_picture_769891.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Blocs 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769890.jpg" />
+  <img src="Z:/picture/008/save_picture_769890.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Wondershare DVD Creator 6.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769889.jpg" />
+  <img src="Z:/picture/008/save_picture_769889.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Downie 4 v4.0.15 (Build 4122) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769886.jpg" />
+  <img src="Z:/picture/008/save_picture_769886.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769884.jpg" />
+  <img src="Z:/picture/008/save_picture_769884.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Privacy Eraser Free 5.0 Build 3532 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769882.jpg" />
+  <img src="Z:/picture/008/save_picture_769882.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769881.jpg" />
+  <img src="Z:/picture/008/save_picture_769881.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ BetterZip 5 v5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769880.jpg" />
+  <img src="Z:/picture/008/save_picture_769880.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769878.jpg" />
+  <img src="Z:/picture/008/save_picture_769878.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769876.jpg" />
+  <img src="Z:/picture/008/save_picture_769876.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ HyperSnap 8.05.01 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769859.jpg" />
+  <img src="Z:/picture/008/save_picture_769859.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769853.jpg" />
+  <img src="Z:/picture/008/save_picture_769853.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769852.jpg" />
+  <img src="Z:/picture/008/save_picture_769852.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Navicat Premium 15.0.17 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769851.jpg" />
+  <img src="Z:/picture/008/save_picture_769851.jpg" />
 </div>
 
 

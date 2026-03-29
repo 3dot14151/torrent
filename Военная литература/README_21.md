@@ -1,3 +1,29 @@
+###  Публикация: 507929   (680599) от 09.06.2012
+
+А.Б.Жук | Стрелковое оружие. Револьверы, пистолеты, пистолеты-пулеметы, винтовки, автоматы [1992] [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аннотация: Издание содержит сведения о ручном стрелковом оружии (кроме пулеметов), выпущенном в разных странах со времени появления унитарных патронов до наших дней. Рукопись книги создана путем исправления и дополнения текста и иллюстраций двух ранее опубликованных работ автора "Револьверы и пистолеты", "Винтовки и автоматы". Книга рассчитана на широкий круг читателей, интересующихся развитием оружия и военного дела.1992Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4BD5A2EC505CE6988BF13A6E80C429FE419535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 877245   (677925) от 20.03.2019
 
 Сергей Патянин | Гордость британского флота. Легкие крейсера типа «Таун» (2014) [PDF]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677925.jpg" />
+  <img src="Z:/picture/008/save_picture_677925.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677193.jpg" />
+  <img src="Z:/picture/008/save_picture_677193.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677043.jpg" />
+  <img src="Z:/picture/008/save_picture_677043.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676794.jpg" />
+  <img src="Z:/picture/008/save_picture_676794.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676480.jpg" />
+  <img src="Z:/picture/008/save_picture_676480.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676110.jpg" />
+  <img src="Z:/picture/008/save_picture_676110.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675417.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675347.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674291.jpg" />
+  <img src="Z:/picture/008/save_picture_674291.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674160.jpg" />
+  <img src="Z:/picture/008/save_picture_674160.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672157.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_671843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_671843.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670911.jpg" />
+  <img src="Z:/picture/008/save_picture_670911.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670457.jpg" />
+  <img src="Z:/picture/008/save_picture_670457.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670139.jpg" />
+  <img src="Z:/picture/008/save_picture_670139.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668516.jpg" />
+  <img src="Z:/picture/008/save_picture_668516.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668425.jpg" />
+  <img src="Z:/picture/008/save_picture_668425.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666674.jpg" />
+  <img src="Z:/picture/008/save_picture_666674.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666003.jpg" />
+  <img src="Z:/picture/008/save_picture_666003.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665845.jpg" />
+  <img src="Z:/picture/008/save_picture_665845.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665330.jpg" />
+  <img src="Z:/picture/008/save_picture_665330.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665308.jpg" />
+  <img src="Z:/picture/008/save_picture_665308.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664041.jpg" />
+  <img src="Z:/picture/008/save_picture_664041.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660007.jpg" />
+  <img src="Z:/picture/008/save_picture_660007.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659162.jpg" />
+  <img src="Z:/picture/008/save_picture_659162.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11342C06B6A934B172A72DD52FC39AE29D9AD840
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902719   (658963) от 30.05.2015
-
-Ольга Кузьменко и др. | Знаменитые загадки истории (2014) [FB2, EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многовековая история человечества хранит множество загадок. Эта книга поможет читателю приоткрыть завесу над тайнами исторических событий и явлений различных эпох – от древнейших до наших дней, расскажет о судьбах многих легендарных личностях прошлого: короля Макбета, Жанны д’Арк, Екатерины Медичи, Александра I и Наполеона. Здесь вы найдете новые интересные версии (   Читать дальше...   )Жанр: ИсторияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D10BA9806ECDAB03C63EEDF34EFA0E3F159B2B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,115 @@
+###  Публикация: 1328694   (361230) от 01.10.2019
+
+Yate 5 v5.0.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB398D3A9184AD8E7C3D67BFAF86ABA5977A5BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328476   (361227) от 01.10.2019
+
+PopClip 2019.9.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361227.jpg" />
+</div>
+
+
+###  Подробнее
+
+PopClip предлагает достаточно удобный способ работы с текстом в Mac OS X – такой же, как в iOS. Помимо копирования, вырезания и вставки, приложение позволяет выполнять быстрый поиск в Интернете, открывать ссылки и почтовые адреса в тексте, искать определения в словаре и даже исправлять неправильно написанные слова.
+
+PopClip появляется на экране при выделении мышью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2019Разработчик: Nicholas MooreПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C462968E3E71FB0B2E0AE38DC6A29F54A8BCDBD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328392   (361225) от 01.10.2019
+
+Duplicate Photos Fixer Pro 2.14 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
+
+Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.09.2019Разработчик: Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Японский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C24AF03D24993EB42C14859FB596209DFF0084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328387   (361221) от 01.10.2019
+
+Meta 1.9.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
+С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2019Разработчик: Benjamin JaegerПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AC807EA4128FDEC919DE8A5AB54C3CB90B72AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328545   (361219) от 01.10.2019
 
 Macgo Blu-ray Player Pro 3.3.18 [En]
@@ -6,7 +118,7 @@ Macgo Blu-ray Player Pro 3.3.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361219.jpg" />
+  <img src="Z:/picture/008/save_picture_361219.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ QuarkXPress 2018 v14.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361217.jpg" />
+  <img src="Z:/picture/008/save_picture_361217.jpg" />
 </div>
 
 
@@ -58,7 +170,7 @@ ScreenFlow 8 v8.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361216.jpg" />
+  <img src="Z:/picture/008/save_picture_361216.jpg" />
 </div>
 
 
@@ -87,7 +199,7 @@ Airy 3.10.242 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361214.jpg" />
+  <img src="Z:/picture/008/save_picture_361214.jpg" />
 </div>
 
 
@@ -116,7 +228,7 @@ Synalyze It! Pro 1.23.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361199.jpg" />
+  <img src="Z:/picture/008/save_picture_361199.jpg" />
 </div>
 
 
@@ -145,7 +257,7 @@ DropDMG 3.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361149.jpg" />
+  <img src="Z:/picture/008/save_picture_361149.jpg" />
 </div>
 
 
@@ -172,7 +284,7 @@ FontDoctor 10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361121.jpg" />
+  <img src="Z:/picture/008/save_picture_361121.jpg" />
 </div>
 
 
@@ -200,7 +312,7 @@ Forecast Bar 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361100.jpg" />
+  <img src="Z:/picture/008/save_picture_361100.jpg" />
 </div>
 
 
@@ -229,7 +341,7 @@ CloudMounter 3.5 (584) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361037.jpg" />
+  <img src="Z:/picture/008/save_picture_361037.jpg" />
 </div>
 
 
@@ -255,7 +367,7 @@ iLock 2.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360961.jpg" />
+  <img src="Z:/picture/008/save_picture_360961.jpg" />
 </div>
 
 
@@ -284,7 +396,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom (Complete) 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360864.jpg" />
+  <img src="Z:/picture/008/save_picture_360864.jpg" />
 </div>
 
 
@@ -312,7 +424,7 @@ MathType 7.3.1 (379) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360831.jpg" />
+  <img src="Z:/picture/008/save_picture_360831.jpg" />
 </div>
 
 
@@ -339,7 +451,7 @@ Money Pro 1.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360717.jpg" />
+  <img src="Z:/picture/008/save_picture_360717.jpg" />
 </div>
 
 
@@ -368,7 +480,7 @@ Swinsian 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360695.jpg" />
+  <img src="Z:/picture/008/save_picture_360695.jpg" />
 </div>
 
 
@@ -397,7 +509,7 @@ WonderPen 1.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360691.jpg" />
+  <img src="Z:/picture/008/save_picture_360691.jpg" />
 </div>
 
 
@@ -425,7 +537,7 @@ Topaz Gigapixel AI 4.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360657.jpg" />
+  <img src="Z:/picture/008/save_picture_360657.jpg" />
 </div>
 
 
@@ -451,7 +563,7 @@ Reeder 4 v4.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360607.jpg" />
+  <img src="Z:/picture/008/save_picture_360607.jpg" />
 </div>
 
 
@@ -477,7 +589,7 @@ Nova 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360604.jpg" />
+  <img src="Z:/picture/008/save_picture_360604.jpg" />
 </div>
 
 
@@ -504,7 +616,7 @@ Geekbench 5 v5.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360601.jpg" />
+  <img src="Z:/picture/008/save_picture_360601.jpg" />
 </div>
 
 
@@ -533,7 +645,7 @@ Logoist 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360548.jpg" />
+  <img src="Z:/picture/008/save_picture_360548.jpg" />
 </div>
 
 
@@ -561,7 +673,7 @@ Microsoft Office Standard 2019 v.16.18.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360461.jpg" />
+  <img src="Z:/picture/008/save_picture_360461.jpg" />
 </div>
 
 
@@ -588,7 +700,7 @@ Boom 2 v1.6.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360411.jpg" />
+  <img src="Z:/picture/008/save_picture_360411.jpg" />
 </div>
 
 
@@ -599,114 +711,6 @@ Boom 2 является уникальным приложением для пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:405897C56D1F926ECB04C27C82527E2C851B9EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951857   (360410) от 30.10.2015
-
-Amadeus Pro 2.2.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 октября 2015Разработчик: HairerSoftПоддерживаемая ОС: Mac OS X 10.9.5+Язык интерфейса: Английский, Французский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE0E379B9ED2CFE63368DBB8EE33646F1AAC276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417184   (360401) от 19.10.2020
-
-Paw 3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый продвинутый инструмент API для Mac
-Paw является полнофункциональным HTTP-клиентом, который позволяет тестировать API.
-Здесь вы можете с лёгкостью формировать запросы (начиная от HTTP-заголовков, заканчивая телом POST и данными авторизации), тут же проверять их на наличие ошибок (например, отсутствие необходимых полей OAuth или неверный Content-Type), затем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2020Разработчик: Paw Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056B26D866682E8B5D23E510B015633B44DECAC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417288   (360256) от 19.10.2020
-
-IP Scanner Pro 3.99 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360256.jpg" />
-</div>
-
-
-###  Подробнее
-
-IP Scanner Pro - сканер локальной сети для Mac OS X
-IP Scanner - приложение сканирует локальную сеть для установления всех компьютеров и устройств с IP-адресом. Результаты сканирования могут быть организованы так, как вам будет удобно. Как только устройство будет определено, ему можно присвоить любое имя и иконку, для более легкого распознавания в общем списке.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2020Разработчик: 10base-t interactiveПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B9F0C428BEAB139D915B46CAE3976017E30056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417186   (360244) от 19.10.2020
-
-Coda 2 v2.7.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактор для веб-разработчиков. Сделайте свой код красивым вместе с Coda!
-Текстовый редактор, передача файлов, SVN, CSS-редактор, терминал, доступ к книгам по разработке и многое другое. Всего насчитывается порядка ста функций, например, встроенный редактор MySQL, живые подсказки кода, в CSS редактор встроены всплывающие палитры цветов и внедрен режим просмотра результата (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2020Разработчик: Panic, IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246FD00C23F9B1108B2DDF3620EF065C85DD666B
 ```
 
 https://mybot314.ru/tekegram_catalog/

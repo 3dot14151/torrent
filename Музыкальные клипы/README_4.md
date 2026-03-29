@@ -1,3 +1,93 @@
+###  Публикация: 616196   (974857) от 10.02.2013
+
+Гэри Мур / Gary Moore - Ballads & Blues 1982-1994 (1994) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие баллады великого виртуоза....01. Always Gonna Love You
+02. Still Got the Blues
+03. Empty Rooms
+04. Parisienne Walkways (live 1992)
+05. Separate Ways
+06. Story of the Blues
+07. Midnight Blues (live 1990)
+08. Jumpin' at Shadows (live 1992)
+09. The Loner
+10. Still Got the Blues (live 1990)Жанр: Музыка, Blues
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A903AE67B9924C1D96F4876DB5ADF688D47004E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357258   (974326) от 03.02.2020
+
+Зверские инстинкты & Леша Закон - 5 Music Video (2014-2019) WEB-DL [H.264/480p/720p]-LQ <Turbo-Chanson>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зверские инстинкты (2014) ''Маньяк''
+Зверские инстинкты (2019) ''Бензопила'' (Николай Мухин)
+Зверские инстинкты (2019) ''Буёвщина'' (''ВдРоВа'' cover)
+Зверские инстинкты (2019) ''Зараза'' (Александр Дюмин cover)(   Читать дальше...   )Производство: Zymotic Productions UltraЖанр: Turbo-ChansonПродолжительность: 00:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0FA24A7F3CDB3DCD83A2D30A4AC34162503974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617540   (972478) от 12.02.2013
+
+Crystal Lake feat. Beth - Dear God (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C9BA189BF073A4952274300922C591A9FC1A0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617600   (972461) от 12.02.2013
 
 Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
@@ -6,7 +96,7 @@ Shakira - Antes de las Seis (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972461.jpg" />
 </div>
 
 
@@ -32,7 +122,7 @@ Shakira - Je L'Aime a Mourir (Live from Paris) (2011) [1080i] BDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972353.jpg" />
 </div>
 
 
@@ -58,7 +148,7 @@ BAZUKA - Shake Dat Ass (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972350.jpg" />
 </div>
 
 
@@ -84,7 +174,7 @@ Delerium - Days Turn Into Nights (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972275.jpg" />
 </div>
 
 
@@ -110,7 +200,7 @@ DVJ Bazuka - Run (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972200.jpg" />
 </div>
 
 
@@ -136,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971758.jpg" />
 </div>
 
 
@@ -162,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971741.jpg" />
 </div>
 
 
@@ -188,7 +278,7 @@ Romantic Collection (Hits 1983-2001)TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971675.jpg" />
 </div>
 
 
@@ -214,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971671.jpg" />
 </div>
 
 
@@ -242,7 +332,7 @@ VA - Зимний марафон № 219: Самые сливки Нового �
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970575.jpg" />
 </div>
 
 
@@ -271,7 +361,7 @@ Babooshka (Александр Константинов) - 7 Music Videos (2019-2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969634.jpg" />
 </div>
 
 
@@ -300,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969633.jpg" />
 </div>
 
 
@@ -329,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969394.jpg" />
 </div>
 
 
@@ -358,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969258.jpg" />
 </div>
 
 
@@ -385,7 +475,7 @@ Tom Boxer & Morena - Las Vegus (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968794.jpg" />
 </div>
 
 
@@ -411,7 +501,7 @@ N'Klabe ft. Yomo - Me Gustas Muchisimo (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968675.jpg" />
 </div>
 
 
@@ -437,7 +527,7 @@ Depeche Mode – The Best Of Videos (Volume 1) (2007) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968530.jpg" />
 </div>
 
 
@@ -466,7 +556,7 @@ Paramore -  Now (2013) [1080p] HDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967734.jpg" />
 </div>
 
 
@@ -492,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967688.jpg" />
 </div>
 
 
@@ -518,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967560.jpg" />
 </div>
 
 
@@ -544,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967348.jpg" />
 </div>
 
 
@@ -570,7 +660,7 @@ Dj Vj Magrao - Festa Mix Volume 1 (2013) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966183.jpg" />
 </div>
 
 
@@ -596,7 +686,7 @@ VA - Зимний марафон № 220: Зимний Снегопад Хито
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965412.jpg" />
 </div>
 
 
@@ -610,90 +700,6 @@ VA - Зимний марафон № 220: Зимний Снегопад Хито
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1655826636DC41B1D153115735325D22B451B364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359222   (964934) от 11.02.2020
-
-Сборник клипов 01 (02.2020) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник зарубежных и отечественных видеоклипов за февраль 202001_Francesca Lombardo - Call Me Wrong
-02_Боронина - Малолетка
-03_Milk Sugar, Münchner Symphoniker, Euphonica - Right Here, Right Now
-04_МАЧЕТЕ - Никуда не смыться(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F264249F1B1E5C1F4405E7307086D3098D60C23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 619111   (964048) от 19.02.2013
-
-BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, HouseПродолжительность: 00:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3E9C1F354FF00B031A155202E6931A3C14D141E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359616   (964011) от 12.02.2020
-
-Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 4 (2020) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся сила энергия и мощь понастоящему крутой музыки! Это 4я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 4 — Intro
-01. Def Leppard — Let’s Get Rocked
-02. Offspring — Gotta Get Away
-03. Lee Aaron — Some Girls Do(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DA6B0B7BE3848C150851034293B197E4FB36BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

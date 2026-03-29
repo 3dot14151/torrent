@@ -1,3 +1,108 @@
+###  Публикация: 1262124   (298670) от 13.11.2018
+
+NG: Из истории Второй мировой войны. Гражданская война / Inside WWII. The People's War (2018) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солдаты и гражданские лица рассказывают леденящие душу истории о самых крупных баталиях Второй мировой войны, и о том, как они умирали день за днем, час за часом, секунда за секундой.Производство: США, National GeographicЖанр: Документальный, историяПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA52ABC6099A1A60301BB4A37CD3AF6FDB2C858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262104   (298602) от 13.11.2018
+
+NGW: Дикая природа Перу: арена боев – Анды. Добро пожаловать в джунгли / Wild Peru: Andes Battleground (2018) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Существует три Перу: одна часть представляет собой дождевые леса, другая - предгорья Анд, а третья - пустынное побережье Тихого океана. В течение двух часов вы познакомитесь со всеми этими такими различными средами обитания.
+В юго-восточном Перу есть регион под названием "Мадре-де-Дьос", который представляет собой огромный ливневый лес. Но несмотря на то, (   Читать дальше...   )Производство: Новая Зеландия, Natural History New Zealand, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Лорн ТаунендПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9EA8D977E5B30329BCA8C6D075F3446F68AA06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262111   (298593) от 13.11.2018
+
+NGW. Голый землекоп: Самый странный супергерой в природе / Naked Molerat. Nature's Weirdest Superhero (2017) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Внешний вид - это еще не все. Несмотря на свою неприглядную наружность, голому землекопу можно позавидовать. Он живет до преклонного возраста, никогда не болеет и практически не чувствителен к боли.Производство: Германия, Taglicht Media, ZDF and ARTE, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Герберт ОствальдПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF5CFDCDB5ACA64920E7EFCE87F93947C9AD1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423742   (297335) от 14.11.2020
+
+BBC. Кракатау. Последние дни / Krakatoa. The Last Days (2006) DVDRemux (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_297335.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1883 году звук взрыва, потрясшего Кракатау, разнесся на тысячи миль - это было одно из мощнейших известных истории извержений. Вызванные взрывом чудовищные волны вздымались наподобие гор, доходя до 30 м в высоту; одна за другой низвергались они на соседние острова. Берега Суматры и Явы изменились до неузнаваемости. Знакомые места можно было найти разве только по (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документально-постановочный, катастрофа, реконструкцияРежиссер: Сэм МиллерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F165DC3F81C8E5AFF9C8A06FED3AF6ED03E36016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262080   (296779) от 14.11.2018
 
 NG. Космический шаттл: триумф и трагедия / The Space Shuttle: Triumph and Tragedy (2018) DVB (Серии 2 из 2)
@@ -6,7 +111,7 @@ NG. Космический шаттл: триумф и трагедия / The Sp
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296779.jpg" />
+  <img src="Z:/picture/008/save_picture_296779.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296711.jpg" />
+  <img src="Z:/picture/008/save_picture_296711.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Discovery: Шерпа / Sherpa (2015) HDTVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295718.jpg" />
+  <img src="Z:/picture/008/save_picture_295718.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NG: Широкий взгляд с Кэлом Пенном / The Big Picture wit
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295474.jpg" />
+  <img src="Z:/picture/008/save_picture_295474.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ BBC: Чудеса жизни. Серии №1-5 из 5 / Wonders of Life (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295459.jpg" />
+  <img src="Z:/picture/008/save_picture_295459.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294686.jpg" />
+  <img src="Z:/picture/008/save_picture_294686.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294518.jpg" />
+  <img src="Z:/picture/008/save_picture_294518.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292681.jpg" />
+  <img src="Z:/picture/008/save_picture_292681.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ NG: Дикий Йеллоустоун: Волчица /  Wild Yellowstone: She W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292642.jpg" />
+  <img src="Z:/picture/008/save_picture_292642.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ BBC: Horizon. Эпоха больших данных / Horizon. Age of Big Data 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292504.jpg" />
+  <img src="Z:/picture/008/save_picture_292504.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291977.jpg" />
+  <img src="Z:/picture/008/save_picture_291977.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ NG: Международный аэропорт Дубай. Серия 6 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291623.jpg" />
+  <img src="Z:/picture/008/save_picture_291623.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ NG: Международный аэропорт Дубай. Серия 7 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291454.jpg" />
+  <img src="Z:/picture/008/save_picture_291454.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290878.jpg" />
+  <img src="Z:/picture/008/save_picture_290878.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ NG: Возмездие / Avenging Evil (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289613.jpg" />
+  <img src="Z:/picture/008/save_picture_289613.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ NG: Международный аэропорт Дубай. Серия 1 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288719.jpg" />
+  <img src="Z:/picture/008/save_picture_288719.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288054.jpg" />
+  <img src="Z:/picture/008/save_picture_288054.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ NG: Международный аэропорт Дубай. Серия 9 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287937.jpg" />
+  <img src="Z:/picture/008/save_picture_287937.jpg" />
 </div>
 
 
@@ -476,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287407.jpg" />
+  <img src="Z:/picture/008/save_picture_287407.jpg" />
 </div>
 
 
@@ -502,7 +607,7 @@ NG: Международный аэропорт Дубай. Серия 8 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287344.jpg" />
+  <img src="Z:/picture/008/save_picture_287344.jpg" />
 </div>
 
 
@@ -528,7 +633,7 @@ NGW: TerraMater. Дикая природа Уганды / Wild Uganda (2018) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286130.jpg" />
+  <img src="Z:/picture/008/save_picture_286130.jpg" />
 </div>
 
 
@@ -554,7 +659,7 @@ Discovery. Священная сталь / Sacred Steel Bikes (2016) HDTVRip [H.
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286082.jpg" />
+  <img src="Z:/picture/008/save_picture_286082.jpg" />
 </div>
 
 
@@ -565,112 +670,6 @@ Discovery. Священная сталь / Sacred Steel Bikes (2016) HDTVRip [H.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CF19E08A2F8D3A5C1543A8E0A816899392BA0C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261906   (285723) от 08.12.2016
-
-Discovery: Невидимые миры. Вода / Invisible Worlds. Water (2010) HDTVRip [720p]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вода повсюду и в ней спрятаны таинственные силы. Теперь технология может показать, что всё время находится прямо перед нашими глазами. Вода из крана принимает невообразимые формы. Крошечный червь обладает силой контролировать мозг. Красивые, но смертельные формы жизни в океане. И микроскопическая лаборатория, способная спасти вашу жизнь.
-
-Добро пожаловать в невидимый (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3819D17F4CA5842C9EC1158FBC9569566FEB659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262475   (284205) от 21.11.2018
-
-BBC. Российская империя: Династия Романовых / Empire of the Tsars: Romanov Russia with Lucy Worsley (2016) HDTVRip [H.264/1080p-LQ] (3 серии из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реформация России. Доктор Люси Уорсли углубляется в мир начала династии Романовых, чьё правление берёт истоки от 16-летнего Михаила Романова до Петра Великого, который решил реформировать и модернизировать Россию.Производство: Великобритания, ВВСЖанр: Документальный, историяРежиссер: Джон ДасПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3D40E64439CD0E6730BFC9D7553BFB2759ACF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155794   (283892) от 26.11.2017
-
-BBC: Забытые британские рабовладельцы / Britain's Forgotten Slave Owners (2015) DVB (Серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почти два века эти документы пребывали в забвении, даже среди историков. Рабский труд служил двигателем британской экономики. Когда его наконец отменили, рабовладельцы потребовали компенсации, сумма ее равнялась 17 млрд. сегодняшних фунтов. Эти деньги легли в основание современного мира.Производство: Великобритания, BBC History Production LondonЖанр: Документальный, история, исследованияРежиссер: Джеймс Ван Дер Пул, Бен КричтонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:48:25+00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F9B0E7338AFC9787CFEEBE710C8AD356ABEF90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186933   (283738) от 26.11.2017
-
-Мир без микробов / Un monde sans microbe (A world without microbes) (2016) DVB
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что бы произошло, если бы, как по мановению волшебной палочки, все микробы вдруг исчезли с нашей планеты? Будет ли возможна при этом жизнь? К каким последствиям приведет исчезновение этого невидимого мира? Окунитесь в увлекательный мир бесконечно малого...Производство: Франция, AB Productions & Docland YardЖанр: Документальный, научно-познавательный, исследованияРежиссер: Марианна КрамерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3FF56D3D9256615C3A838F677A0BFB58EE683A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Angry Birds [En] (L/2.2.0) 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558494.jpg" />
+  <img src="Z:/picture/008/save_picture_558494.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Binary Domain [Ru/En] (RePack/1.0.0.1) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558492.jpg" />
+  <img src="Z:/picture/008/save_picture_558492.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_558484.jpg" />
+  <img src="Z:/picture/005/save_picture_558484.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Death Rally [En] (P/1.00.20.023) 2012 l THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558399.jpg" />
+  <img src="Z:/picture/008/save_picture_558399.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Splinter Cell: Blacklist (2013) [Multi] (Update 1.01) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557908.jpg" />
+  <img src="Z:/picture/008/save_picture_557908.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Thief Simulator (2018) [Ru/Multi] (1.08b) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557754.jpg" />
+  <img src="Z:/picture/008/save_picture_557754.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Battle Brothers (2017) [Ru] (1.3.0.18/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557746.jpg" />
+  <img src="Z:/picture/008/save_picture_557746.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ House Flipper (2018) [Ru/Multi] (1.17/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557745.jpg" />
+  <img src="Z:/picture/008/save_picture_557745.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ The Long Dark (2017) [Ru/Multi] (1.52.48486) Repack xatab [Episode 1-2]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557740.jpg" />
+  <img src="Z:/picture/008/save_picture_557740.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ No Man's Sky (2016) [Ru/Multi] (1.0/upd3/dlc) Repack YelloSOFT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557424.jpg" />
+  <img src="Z:/picture/008/save_picture_557424.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.0) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556810.jpg" />
+  <img src="Z:/picture/008/save_picture_556810.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556757.jpg" />
+  <img src="Z:/picture/008/save_picture_556757.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.0) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556340.jpg" />
+  <img src="Z:/picture/008/save_picture_556340.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Jump Force (2019) [Ru/Multi] (1.07) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555714.jpg" />
+  <img src="Z:/picture/008/save_picture_555714.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Obduction (2016) [Ru/Multi] (1.0) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553393.jpg" />
+  <img src="Z:/picture/008/save_picture_553393.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.32.38) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553383.jpg" />
+  <img src="Z:/picture/008/save_picture_553383.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Offworld Trading Company (2016) [Ru/Multi] (1.8.13592/dlc) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553375.jpg" />
+  <img src="Z:/picture/008/save_picture_553375.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Neverwinter: Storm Kings Thunder (2016) [Ru] (NW.65.20160801c.9) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552655.jpg" />
+  <img src="Z:/picture/008/save_picture_552655.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ The Banner Saga 2 (2016) [Ru/Multi] (2.32.59) License GOG [Deluxe Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552570.jpg" />
+  <img src="Z:/picture/008/save_picture_552570.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Pro Evolution Soccer 2017 Demo (2016) [PS3] [EUR] 4.21 [Repack] [Ru/En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551666.jpg" />
+  <img src="Z:/picture/008/save_picture_551666.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Dungeons 2 (2016) [Ru/Multi] (1.6.1/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551636.jpg" />
+  <img src="Z:/picture/008/save_picture_551636.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ The Bureau: XCOM Declassified (2013) [Ru/En] (1.0/DLC) RePack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550889.jpg" />
+  <img src="Z:/picture/008/save_picture_550889.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ King's Bounty Anthology / Антология King's Bounty (2008-2012) [Ru] Repa
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549943.jpg" />
+  <img src="Z:/picture/008/save_picture_549943.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Factorio (2016) [Ru/Multi] (0.14.1-Experimental Build) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549798.jpg" />
+  <img src="Z:/picture/008/save_picture_549798.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Underrail (2015) [En] (1.0.1.10) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549778.jpg" />
+  <img src="Z:/picture/008/save_picture_549778.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ S.W.I.N.E. HD Remaster (2019) [Ru/Multi] (1.4.1731) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549179.jpg" />
+  <img src="Z:/picture/008/save_picture_549179.jpg" />
 </div>
 
 

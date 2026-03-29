@@ -1,3 +1,107 @@
+###  Публикация: 1279530   (765249) от 30.01.2019
+
+National Geographic. Возмездие / Avenging Evil (2018) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это одна из самых необычных историй о мести. Шесть миллионов евреев погибли во время Второй мировой войны, но в 1946 году перед судом предстала только кучка нацистов, а большинство из виновных в смерти этих людей никогда не ответили за свои преступления. Для многих жертв гитлеризма это было вопиющей несправедливостью. Ранее непубликовавшиеся рассказы и эксклюзивные (   Читать дальше...   )Производство: Канада, Caravan Media, Global Road Entertainment, National GeographicЖанр: Документальный, война, историяРежиссер: Ник ГринПеревод: Документальный дубляж студии «Велес» (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE870B02792646EE8152969CDAD85877E825C35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125885   (765214) от 18.04.2017
+
+Тайны древности / Ancient Mysteries (2016) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сокровища прошлого хранят свои секреты, которые попытается разгадать группа ученых. Надо ли говорить о том, что эти энтузиасты планируют применить в своей работе всё имеющееся в их распоряжении ультрасовременное оборудование и по ходу дела раскроют телезрителям новые величайшие тайны о жизни далёких предков и мироздании в целом.Производство: Blink Entertainment Ltf, ВеликобританияЖанр: ДокументальныйПеревод: Двухголосый закадровый профессиональныйПродолжительность: 6 x ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E945EF2902FFF506124952EB564AF42F81F5DBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276394   (765087) от 30.01.2019
+
+NG. Откуда берутся диктаторы (Корни диктатуры) / Making A Dictator (2018) HDTVRip [H.264/720p-LQ] (1-3 серия из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и когда рождается диктатура? Каковы симптомы грядущей тирании? Каковы характеристики диктаторов? В начале небольшой группы доверенных людей достаточно, чтобы поверить в силу личности. Диктатура может быть угрозой, которая повлияет на современный мир. Как показывает история, диктаторы часто побеждают во время экономических кризисов. Затем они слушают тех, кто (   Читать дальше...   )Производство: США, National GeographicЖанр: Документальный, история, биографияПеревод: Документальный дубляж студии «Велес» (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 3 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5F1077E6F43D71E8BFB2C5E393317C43B856DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126658   (765038) от 18.04.2017
+
+NG: Разгадка египетских тайн / Egypt unwrapped (2008) HDTVRip  [H.264/720p-LQ] (Серии 1-5; 8; из 8)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765038.jpg" />
+</div>
+
+
+###  Подробнее
+
+История древнего Египта... Чего в ней больше — достоверных фактов или захватывающих воображение легенд и мифов? Этот сериал представит новый взгляд на самые известные тайны Египта. Гидом в этом захватывающем путешествии в глубь веков станет знаменитый египтолог, генеральный секретарь комитета древностей Египта доктор Захи Хавасс. Вам предстоит узнать подлинную историю (   Читать дальше...   )Производство: Великобритания, Atlantic Productions, FremantleMedia Enterprises for National GeographicЖанр: Документальный, история, археология, исследования, мифы, загадки, тайныРежиссер: Дуг Ховарт, Дэвид ЛиПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 5x~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90A1254D64A72591385A7E9116699279158883C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394316   (764434) от 04.07.2020
 
 Чувство прекрасного / The sense of beauty (2019) IPTVRip (серии 1-6 из 6)
@@ -6,7 +110,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764434.jpg" />
+  <img src="Z:/picture/008/save_picture_764434.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Animal Planet: Хищник в городе: лев на свободе / Urban 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764381.jpg" />
+  <img src="Z:/picture/008/save_picture_764381.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Инстинкт выживания: Китай. Яростная река /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764301.jpg" />
+  <img src="Z:/picture/008/save_picture_764301.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: Инстинкт выживания: Пустыни / Primal survivor: Deser
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764300.jpg" />
+  <img src="Z:/picture/008/save_picture_764300.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763116.jpg" />
+  <img src="Z:/picture/008/save_picture_763116.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC. Horizon: Возможно ли создать звезду на Земле?
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762635.jpg" />
+  <img src="Z:/picture/008/save_picture_762635.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC. Horizon. Как развить творческие способности?
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762630.jpg" />
+  <img src="Z:/picture/008/save_picture_762630.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG. Грандиозные переезды - Перенос древнего Е
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761953.jpg" />
+  <img src="Z:/picture/008/save_picture_761953.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG: Просто магия / General Magic (2018) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761878.jpg" />
+  <img src="Z:/picture/008/save_picture_761878.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761726.jpg" />
+  <img src="Z:/picture/008/save_picture_761726.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761572.jpg" />
+  <img src="Z:/picture/008/save_picture_761572.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ BBC. Все о космосе / The Complete Cosmos (1998) DVDRip [1, 2 сери
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761318.jpg" />
+  <img src="Z:/picture/008/save_picture_761318.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ BBC: Утерянные города Египта / Egypt's Lost Cities (2011) [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761299.jpg" />
+  <img src="Z:/picture/008/save_picture_761299.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Discovery: Новый Мир. Метро будущего / Discovery: Next Worl
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760973.jpg" />
+  <img src="Z:/picture/008/save_picture_760973.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ NG: Взгляд изнутри. Крупнейший круизный лайн�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760785.jpg" />
+  <img src="Z:/picture/008/save_picture_760785.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ BBC. Древний Египет: Жизнь и смерть в Долине Ц�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760691.jpg" />
+  <img src="Z:/picture/008/save_picture_760691.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760680.jpg" />
+  <img src="Z:/picture/008/save_picture_760680.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ NGW: Огромная акула-молот / Mega Hammerhead (2016) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760336.jpg" />
+  <img src="Z:/picture/008/save_picture_760336.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ NGW: Дикие острова гигантов / Savage Island Giants (2016) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760328.jpg" />
+  <img src="Z:/picture/008/save_picture_760328.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ BBC Horizon: Остановить мужские самоубийства / Stop
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760255.jpg" />
+  <img src="Z:/picture/008/save_picture_760255.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760192.jpg" />
+  <img src="Z:/picture/008/save_picture_760192.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ BBC: Рождение человечества. Битва за планету �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759540.jpg" />
+  <img src="Z:/picture/008/save_picture_759540.jpg" />
 </div>
 
 
@@ -566,120 +670,6 @@ BBC: Рождение человечества. Битва за планету �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B5170ED8A4815732F2E25D042B665A6EE51EFCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541305   (759394) от 26.04.2014
-
-BBC: Тайны Тихого океана (6 серий из 6) / BBC: South Pacific (Wild Pacific) (2009) BDRip [720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один океан, двадцать тысяч островов, четверть общего количества воды в мире… Это южная часть Тихого океана. Его название общеизвестно, но и через 230 лет после эпического путешествия капитана Кука этот обширный океан остается малоизученным. В этой бескрайней синеве отдельные острова — приют для разнообразной редкой живности. И это один из самых чистых океанов. Бирюзовое море, острова как на открытках — похоже на земной рай. Но всё не так, как кажется…Жанр: ДокументальныйПеревод: Профессиональный одноголосыйПродолжительность: 6 x ~ 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C773CCF669ADEB2296A72FDEBFF9F9E8231621E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551926   (759303) от 26.04.2014
-
-ВВС: Тело человека (сериал) / The Human Body (1998) [H.264] DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал «Тело человека» — это очень необычный и увлекательный рассказ о том, как в действительности функционирует организм человека, как взаимодействуют между собой его основные системы и органы.
-
-Уникальные технологии съемки с использованием миниатюрных видеокамер, внедряемых в человеческое тело, и применение специально разработанной компьютерной графики, позволяют изумленному зрителю как бы изнутри проследить за работой и основными этапами развития организма человека: с момента зачатия до рождения, от младенчества к юности, от возраста половой зрелости к старости, угасанию и смерти.
-
-Сериал состоит из 8 фильмов по 50 минут:
-1. История жизни
-2. Обыкновенное чудо
-3. Первые шаги
-4. Период полового созревания
-5. Мозг человека(   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 06:33:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 716782   (758975) от 18.05.2016
-
-BBC: Исаак Ньютон: Последний чародей (Последний из магов) / Isaac Newton: The Last Magician (2013) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие считают Исаака Ньютона величайшим гением всех времён. При жизни его считали полубогом науки. Ньютон раскрыл саму природу света, что позволило нам изучить Вселенную. Благодаря нему мы можем рассчитывать движение и предсказывать изменения. Он объяснил силу, объясняющую всю Вселенную точной математической формулой - Закон всемирного тяготения.
-Ньютона почитают (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документально-постановочный, историяРежиссер: Ренни БартлетПеревод: Двухголосый закадровый профессиональный (Видеофильм ТВ)Субтитры: английские
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3482D5066CD1F485E2392B7EF43203C910937E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017856   (758966) от 18.05.2016
-
-Тайны невидимого мира / Mysteries of   the Unseen World (2013) HDRip [VO]
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм покажет разные закоулки мира. Покажет и расскажет про то, что раньше никто и никогда не видел и не слышит. То, что лежат за пониманием обычного мировоззрения и кажется на грани фантастики. Речь будет идти и о том, что существует, но то что упускает человеческий глаз. Миры, которые сложно заметить не вооруженным взглядом...Производство: США / Day's End PicturesЖанр: Документальный, Научно-популярныйРежиссер: Луи ШварцбергПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DC9DD990E0C3185D9EC3148BF2EE46C0063211F
 ```
 
 https://mybot314.ru/tekegram_catalog/

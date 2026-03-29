@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846748.jpg" />
+  <img src="Z:/picture/008/save_picture_846748.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alternate File Shredder 2.070 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846745.jpg" />
+  <img src="Z:/picture/008/save_picture_846745.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NetBalancer 9.17.3 Build 2303 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846695.jpg" />
+  <img src="Z:/picture/008/save_picture_846695.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Unity Pro 2018.4.20f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846685.jpg" />
+  <img src="Z:/picture/008/save_picture_846685.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Grids for Instagram 6.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846679.jpg" />
+  <img src="Z:/picture/008/save_picture_846679.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ SILKYPIX Developer Studio Pro 7.0.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846678.jpg" />
+  <img src="Z:/picture/008/save_picture_846678.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Pet Shop Boys - Super (2016) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846674.jpg" />
+  <img src="Z:/picture/008/save_picture_846674.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ IsMyLcdOK 2.72 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846673.jpg" />
+  <img src="Z:/picture/008/save_picture_846673.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Windows Firewall Control 4.7.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846669.jpg" />
+  <img src="Z:/picture/008/save_picture_846669.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_846667.jpg" />
+  <img src="Z:/picture/005/save_picture_846667.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846662.jpg" />
+  <img src="Z:/picture/008/save_picture_846662.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Rising Dust - Pollination (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846657.jpg" />
+  <img src="Z:/picture/008/save_picture_846657.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Dropzone 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846650.jpg" />
+  <img src="Z:/picture/008/save_picture_846650.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Stand Up (2017.03.05) HDTV [H.264/1080i-LQ] (сезон 6, выпуск 3)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846646.jpg" />
+  <img src="Z:/picture/008/save_picture_846646.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ EZ CD Audio Converter 5.4.0.1 Ultimate Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846644.jpg" />
+  <img src="Z:/picture/008/save_picture_846644.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846635.jpg" />
+  <img src="Z:/picture/008/save_picture_846635.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Ultra Mood - The Story About The Unknown Hero (2020) [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846616.jpg" />
+  <img src="Z:/picture/008/save_picture_846616.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Rhinoceros 6 v6.24 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846615.jpg" />
+  <img src="Z:/picture/008/save_picture_846615.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ AnyTrans for iOS 8.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846614.jpg" />
+  <img src="Z:/picture/008/save_picture_846614.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Wondershare Filmora 9 v9.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846611.jpg" />
+  <img src="Z:/picture/008/save_picture_846611.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Mirillis Action! 4.6.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846610.jpg" />
+  <img src="Z:/picture/008/save_picture_846610.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Emurasoft EmEditor Professional 19.8.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846607.jpg" />
+  <img src="Z:/picture/008/save_picture_846607.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ NetBalancer 9.17.3 Build 2303 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846601.jpg" />
+  <img src="Z:/picture/008/save_picture_846601.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Teorex PhotoStitcher 1.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846597.jpg" />
+  <img src="Z:/picture/008/save_picture_846597.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846594.jpg" />
+  <img src="Z:/picture/008/save_picture_846594.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846590.jpg" />
+  <img src="Z:/picture/008/save_picture_846590.jpg" />
 </div>
 
 

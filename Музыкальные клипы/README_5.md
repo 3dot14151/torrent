@@ -1,3 +1,87 @@
+###  Публикация: 1359222   (964934) от 11.02.2020
+
+Сборник клипов 01 (02.2020) WEB-DLRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник зарубежных и отечественных видеоклипов за февраль 202001_Francesca Lombardo - Call Me Wrong
+02_Боронина - Малолетка
+03_Milk Sugar, Münchner Symphoniker, Euphonica - Right Here, Right Now
+04_МАЧЕТЕ - Никуда не смыться(   Читать дальше...   )Жанр: Dance, Pop, RnBПродолжительность: 02:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F264249F1B1E5C1F4405E7307086D3098D60C23F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619111   (964048) от 19.02.2013
+
+BAZUKA - Make Your Move (2013) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance, HouseПродолжительность: 00:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E9C1F354FF00B031A155202E6931A3C14D141E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359616   (964011) от 12.02.2020
+
+Сборник клипов - Rock & Metal Video Collection от ALEXnROCK часть 4 (2020) WEBRip [H.264/1080p-LQ] [upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вся сила энергия и мощь понастоящему крутой музыки! Это 4я часть сборника. Ремастеринг видео и звука. Обложка и блин для диска в раздаче. Да пребудет с нами энергия музыки!. Все лучшее для вас. ALEXnROCK00. Rock & Metal 4 — Intro
+01. Def Leppard — Let’s Get Rocked
+02. Offspring — Gotta Get Away
+03. Lee Aaron — Some Girls Do(   Читать дальше...   )Жанр: RockПродолжительность: 02:43:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DA6B0B7BE3848C150851034293B197E4FB36BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359419   (962993) от 13.02.2020
 
 Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/1080p/720p-LQ] <Symphonic Power Metal>
@@ -6,7 +90,7 @@ Nightwish, Tarja Turunen - 27 Music Clips (1998-2020) WEB-DL [VP9/H.264/2160p/10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962993.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961654.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ VA - Зимний марафон № 221: Продвинутые Зимние Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960807.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960469.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960464.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ Diplo ft. Gent & Jawns - Butter's Theme (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960319.jpg" />
 </div>
 
 
@@ -177,7 +261,7 @@ ABBA – Number Ones (2006) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958192.jpg" />
 </div>
 
 
@@ -206,7 +290,7 @@ R.E.M. – In View: The Best Of R.E.M. 1988-2003 (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957286.jpg" />
 </div>
 
 
@@ -235,7 +319,7 @@ Mylene Farmer – Music Videos II & III (2000) DVDRip (MPEG-2, PCM)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957219.jpg" />
 </div>
 
 
@@ -264,7 +348,7 @@ Mylene Farmer – Music Videos II & III (2000) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957198.jpg" />
 </div>
 
 
@@ -293,7 +377,7 @@ Eruption - One Way Ticket (1979) TVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956547.jpg" />
 </div>
 
 
@@ -319,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955877.jpg" />
 </div>
 
 
@@ -348,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955675.jpg" />
 </div>
 
 
@@ -377,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955554.jpg" />
 </div>
 
 
@@ -406,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955512.jpg" />
 </div>
 
 
@@ -435,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955066.jpg" />
 </div>
 
 
@@ -461,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955042.jpg" />
 </div>
 
 
@@ -490,7 +574,7 @@ VA - Зимний марафон № 222: Праздничный Зимний Х
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954431.jpg" />
 </div>
 
 
@@ -519,7 +603,7 @@ VH-1 Russia - Сборник Видеоклипов (2007) DVD5 vh1
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951601.jpg" />
 </div>
 
 
@@ -548,7 +632,7 @@ Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music En
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951414.jpg" />
 </div>
 
 
@@ -577,7 +661,7 @@ Modern Talking – The Final Album: The Ultimate DVD (2003) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951014.jpg" />
 </div>
 
 
@@ -606,7 +690,7 @@ VA – Fetenhits: The Real Classics (2002) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949881.jpg" />
 </div>
 
 
@@ -635,7 +719,7 @@ Little Richard - Long Tall Sally (Хищник / Predator) (2013) [H.264/1080p] 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_948978.jpg" />
+  <img src="Z:/picture/009/save_picture_948978.jpg" />
 </div>
 
 
@@ -649,90 +733,6 @@ Little Richard - Long Tall Sally (Хищник / Predator) (2013) [H.264/1080p] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E50B74098E2EF600B984FDBB1791105E5569D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857896   (948355) от 11.01.2015
-
-Инфинити - Крылья (2014) [1080p] [hand made 60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: MKVПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0787182C69D07A479EDD901BBD13D0607A286418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982441   (948132) от 03.02.2016
-
-Sade – Life Promise Pride Love (1993) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Programme Start (0:10)
-02. Your Love Is King (3:37)
-03. Smooth Operator (Red Eye) (8:27)
-04. Hang On To Your Love (3:59)(   Читать дальше...   )Жанр: Smooth Jazz, DowntempoПеревод: ОтсутствуетПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C96D72D1A6CD02B7097100F035A13A566C37D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982327   (947991) от 03.02.2016
-
-Michael Jackson – HIStory - Video Greatest Hits (1995) 2000 Sony Music Video,  DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Program Start
-02. Brace Yourself
-03. Billie Jean
-04. The Way You Make Me Feel(   Читать дальше...   )Жанр: Pop Rock, Downtempo, DiscoПеревод: ОтсутствуетПродолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC179D3398A95ABCA35FDDFD5D71D0E8214ADCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

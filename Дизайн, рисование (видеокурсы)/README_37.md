@@ -1,3 +1,30 @@
+###  Публикация: 1544956   (605682) от 24.04.2022
+
+CGcircuit, Arihant Gupta | Introduction to Vellum Grains in Houdini (2020) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605682.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы увидите некоторые методики работы с солвером Vellum Grains, от самых простых до более продвинутых. Vellum – это новый мощный солвер, который появился в Houdini 17. Он позволяет художнику быстро и просто работать с симуляциями.
+Этот курс был разработан для уверенных пользователей Houdini, которые хотят научиться пользоваться Vellum Grains. Он даст (   Читать дальше...   )Производство: CGcircuitЖанр: СимуляцияЯзык озвучки: Русский (отдельным файлом)Продолжительность: 01:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9345ACFA6A7B9021F49F700890B695D62223D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544952   (605676) от 24.04.2022
 
 CGcircuit, Florian Bard | Disintegration Effect I - The Head (2020) PCRec [RU]
@@ -6,7 +33,7 @@ CGcircuit, Florian Bard | Disintegration Effect I - The Head (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605676.jpg" />
+  <img src="Z:/picture/008/save_picture_605676.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Rohan Dalvi | Patterns and textures in Houdini (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605673.jpg" />
+  <img src="Z:/picture/008/save_picture_605673.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Masterclass, Margaret Atwood | Margaret Atwood Teaches Creative Writing (2018) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605608.jpg" />
+  <img src="Z:/picture/008/save_picture_605608.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ The Art of Aaron Blaise, Lyndon Ruddy | The Art of the Storyboard with Lyndon Ru
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605607.jpg" />
+  <img src="Z:/picture/008/save_picture_605607.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ The Gnomon Workshop, Scott Robertson | How to Render Matte Surfaces Vol. 1-3 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605600.jpg" />
+  <img src="Z:/picture/008/save_picture_605600.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ Yiihuu, Han Yang | Creating A Sci-fi Short Film - The Lander (2018) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605598.jpg" />
+  <img src="Z:/picture/008/save_picture_605598.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ The Gnomon Workshop, Scott Robertson | Basic Perspective Form Drawing (2015) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605590.jpg" />
+  <img src="Z:/picture/008/save_picture_605590.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605488.jpg" />
+  <img src="Z:/picture/008/save_picture_605488.jpg" />
 </div>
 
 
@@ -216,7 +243,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics II: Generative Art 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604321.jpg" />
+  <img src="Z:/picture/008/save_picture_604321.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics I: Introduction to 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604294.jpg" />
+  <img src="Z:/picture/008/save_picture_604294.jpg" />
 </div>
 
 
@@ -269,7 +296,7 @@ Skillshare, Joshua Davis | Processing - Programming Graphics III: Painting with 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604258.jpg" />
+  <img src="Z:/picture/008/save_picture_604258.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Levelup.Digital, Phil Liu | Creating a Fantasy Trim Texture (2020) PCRec [EN, RU
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603311.jpg" />
+  <img src="Z:/picture/008/save_picture_603311.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ ArtStation, Amir Kabiri | 8 Facade Material: Building Material + Tutorials (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603310.jpg" />
+  <img src="Z:/picture/008/save_picture_603310.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ MIX Training, Varomix | The Nature of Vex (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603305.jpg" />
+  <img src="Z:/picture/008/save_picture_603305.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ SideFX, Delano Athias | Character Animation in Houdini (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603300.jpg" />
+  <img src="Z:/picture/008/save_picture_603300.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602384.jpg" />
+  <img src="Z:/picture/008/save_picture_602384.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ CGcircuit, Steven Knipping​ | Applied Houdini Rigids I version 2.0 (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602373.jpg" />
+  <img src="Z:/picture/008/save_picture_602373.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600125.jpg" />
+  <img src="Z:/picture/008/save_picture_600125.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ Artstation, Tyler Smith | Intro to UE4 VFX: Smoke and Dust (2014) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599850.jpg" />
+  <img src="Z:/picture/008/save_picture_599850.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ ArtStation, Tyler Smith | Intro to UE4 VFX: Waterfall (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599581.jpg" />
+  <img src="Z:/picture/008/save_picture_599581.jpg" />
 </div>
 
 
@@ -536,7 +563,7 @@ Artstation, Jonas Ronnegard | Substance Masters Vol.1 (2020) Blu-ray [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599580.jpg" />
+  <img src="Z:/picture/008/save_picture_599580.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create old realistic cannon (2022)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599578.jpg" />
+  <img src="Z:/picture/008/save_picture_599578.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ FlippedNormals | Sculpting a Realistic Female Face in ZBrush (2019) PCRec [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599307.jpg" />
+  <img src="Z:/picture/008/save_picture_599307.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ Artstation, Henry Chervenka | Hard Surface ZBrush Tutorial / Modeling A UH-60 Ro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599305.jpg" />
+  <img src="Z:/picture/008/save_picture_599305.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ Allegorithmic, Wes McDermott | Substance with Unity (2014) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597897.jpg" />
+  <img src="Z:/picture/008/save_picture_597897.jpg" />
 </div>
 
 
@@ -656,33 +683,6 @@ Allegorithmic, Wes McDermott | Substance with Unity (2014) PCRec [RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3AF356652A92F5CA69FD260EE9751AD205CD2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548531   (597895) от 03.05.2022
-
-Allegorithmic, Wes McDermott | Substance Designer Intermediate-Advanced Tutorials (2014) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная подборка уроков нацелена на расширение знаний по программам Substance Designer, общий курс разделён на две темы:
-Первая "Создание процедурного материала горной породы" и вторая "Создание текстурного атласа" Более подробно смотрите в промороликах курсаПроизводство: AllegorithmicЖанр: Создание процедурного материалаЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 03:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582B66878F4CB515F90536415DF5B7D3510D1369
 ```
 
 https://mybot314.ru/tekegram_catalog/

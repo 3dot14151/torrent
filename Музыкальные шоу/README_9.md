@@ -1,3 +1,29 @@
+###  Публикация: 1014447   (776326) от 07.05.2016
+
+Танцы. Битва сезонов (2016.05.07) SATRip (Выпуск 7)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776326.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 марта в 19:30 на телеканале ТНТ стартует новое шоу – «ТАНЦЫ. Битва сезонов». Лучшие участники двух сезонов самого масштабного танцевального проекта страны встретятся лицом к лицу на одной сцене. Мы все так давно этого ждали! Борьба развернется за приз в 3 000 000 рублей и звание – «Лучший из лучших танцоров страны». Наставники шоу Егор Дружинин и Мигель сформируют (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467C4DEE9CBE5067FAD8721FE5D54F7AD406AF12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014868   (775682) от 09.05.2016
 
 Танцы. Битва сезонов (07.05.2016) WEB-DLRip [H.264/720p-LQ] (выпуск 7)
@@ -6,7 +32,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775682.jpg" />
+  <img src="Z:/picture/008/save_picture_775682.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770279.jpg" />
+  <img src="Z:/picture/008/save_picture_770279.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770145.jpg" />
+  <img src="Z:/picture/008/save_picture_770145.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769527.jpg" />
+  <img src="Z:/picture/008/save_picture_769527.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769526.jpg" />
+  <img src="Z:/picture/008/save_picture_769526.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769519.jpg" />
+  <img src="Z:/picture/008/save_picture_769519.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769512.jpg" />
+  <img src="Z:/picture/008/save_picture_769512.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769511.jpg" />
+  <img src="Z:/picture/008/save_picture_769511.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769439.jpg" />
+  <img src="Z:/picture/008/save_picture_769439.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768746.jpg" />
+  <img src="Z:/picture/008/save_picture_768746.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768736.jpg" />
+  <img src="Z:/picture/008/save_picture_768736.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768694.jpg" />
+  <img src="Z:/picture/008/save_picture_768694.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768124.jpg" />
+  <img src="Z:/picture/008/save_picture_768124.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768115.jpg" />
+  <img src="Z:/picture/008/save_picture_768115.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767996.jpg" />
+  <img src="Z:/picture/008/save_picture_767996.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767116.jpg" />
+  <img src="Z:/picture/008/save_picture_767116.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765911.jpg" />
+  <img src="Z:/picture/008/save_picture_765911.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765854.jpg" />
+  <img src="Z:/picture/008/save_picture_765854.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765790.jpg" />
+  <img src="Z:/picture/008/save_picture_765790.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761784.jpg" />
+  <img src="Z:/picture/008/save_picture_761784.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761653.jpg" />
+  <img src="Z:/picture/008/save_picture_761653.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761375.jpg" />
+  <img src="Z:/picture/008/save_picture_761375.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760247.jpg" />
+  <img src="Z:/picture/008/save_picture_760247.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759725.jpg" />
+  <img src="Z:/picture/008/save_picture_759725.jpg" />
 </div>
 
 
@@ -645,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758531.jpg" />
+  <img src="Z:/picture/008/save_picture_758531.jpg" />
 </div>
 
 
@@ -656,35 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AC3696E9A8A9A7D7F5F6EB745EFB549152C8857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522840   (755055) от 09.01.2022
-
-Рождество с Григорием Лепсом (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия праздничного концерта «Рождество с Григорием Лепсом», где вместе с именитым артистом соберутся звезды российской эстрады, чтобы подвести итоги уходящего года, поздравить зрителей с Новым годом и исполнить любимые песни. В этот вечер на сцену Crocus City Hall выйдут Филипп Киркоров, Тимати, Валерий Меладзе, Ани Лорак, Юлианна Караулова, Ваня Дмитриенко, (   Читать дальше...   )01. Григорий Лепс «Я поднимаю руки»
-02. Григорий Лепс «Я счастливый»
-03. Григорий Лепс и Тимати «Лондон»
-04. Филипп Киркоров «Одна ночь в Бангкоке»(   Читать дальше...   )Производство: Россия | "ЖАРА ТВ"Телекомпания: НТВЖанр: ТВ-шоу, музыкаПродолжительность: 01:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3652303844C2834CD96197AA51736C4486B54F93
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,112 @@
+###  Публикация: 1540439   (653994) от 29.03.2022
+
+DirEqual 4.4.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653994.jpg" />
+</div>
+
+
+###  Подробнее
+
+DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
+Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0218A5BF91A24DB4E29C3C4026555139D443C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540254   (653972) от 29.03.2022
+
+Adobe InCopy 2022 v17.2 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe InCopy - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
+Adobe InCopy  входит в состав Creative Cloud. Поэтому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2022Разработчик: © 1999-2022 Adobe SystemsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12B7B9E656B7F126FDDE6F95C0C50B78885C517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540381   (653959) от 29.03.2022
+
+Navicat Premium 16.0.12 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CD2C2C655A29100717B7676D0A63DA024F2786
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141019   (653947) от 08.06.2017
+
+Instant Translate – translator, dictionary, voice 2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переводите даже за пределами браузера!
+Большое и удобное всплывающее окно, к которому всегда есть доступ из панели задач.
+Также вы можете назначить горячую клавишу, чтобы открывать его ещё быстрее!
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июня 2017Разработчик: Andrii Liakh, Oleksii ChernikovПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D733275EFED15E4A7464874ED38C1150E4037B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141002   (653855) от 08.06.2017
 
 SteerMouse 5.1.1 [En]
@@ -6,7 +115,7 @@ SteerMouse 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653855.jpg" />
+  <img src="Z:/picture/008/save_picture_653855.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653853.jpg" />
+  <img src="Z:/picture/008/save_picture_653853.jpg" />
 </div>
 
 
@@ -61,7 +170,7 @@ Carbon Copy Cloner 5.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653767.jpg" />
+  <img src="Z:/picture/008/save_picture_653767.jpg" />
 </div>
 
 
@@ -90,7 +199,7 @@ iMazing 2.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653757.jpg" />
+  <img src="Z:/picture/008/save_picture_653757.jpg" />
 </div>
 
 
@@ -117,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653749.jpg" />
+  <img src="Z:/picture/008/save_picture_653749.jpg" />
 </div>
 
 
@@ -143,7 +252,7 @@ Coda 2.6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653659.jpg" />
+  <img src="Z:/picture/008/save_picture_653659.jpg" />
 </div>
 
 
@@ -170,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653474.jpg" />
+  <img src="Z:/picture/008/save_picture_653474.jpg" />
 </div>
 
 
@@ -196,7 +305,7 @@ Civilization VI / Civilization 6 / Цивилизация 6. Версия 1.0.0.
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653455.jpg" />
+  <img src="Z:/picture/008/save_picture_653455.jpg" />
 </div>
 
 
@@ -222,7 +331,7 @@ The Incredible Adventures of Van Helsing III v. 1.0.1 (2015) [En] [OS X Wineskin
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653106.jpg" />
+  <img src="Z:/picture/008/save_picture_653106.jpg" />
 </div>
 
 
@@ -248,7 +357,7 @@ Gemini 1.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653005.jpg" />
+  <img src="Z:/picture/008/save_picture_653005.jpg" />
 </div>
 
 
@@ -275,7 +384,7 @@ FileMaker Pro Advanced 14.0 (1.175) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652876.jpg" />
+  <img src="Z:/picture/008/save_picture_652876.jpg" />
 </div>
 
 
@@ -303,7 +412,7 @@ Ammonite 1.23 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652766.jpg" />
+  <img src="Z:/picture/008/save_picture_652766.jpg" />
 </div>
 
 
@@ -329,7 +438,7 @@ Auto Refresh Page 1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652765.jpg" />
+  <img src="Z:/picture/008/save_picture_652765.jpg" />
 </div>
 
 
@@ -355,7 +464,7 @@ PwGenerator 1.10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652763.jpg" />
+  <img src="Z:/picture/008/save_picture_652763.jpg" />
 </div>
 
 
@@ -384,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652761.jpg" />
+  <img src="Z:/picture/008/save_picture_652761.jpg" />
 </div>
 
 
@@ -410,7 +519,7 @@ Outline 3.2203.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652726.jpg" />
+  <img src="Z:/picture/008/save_picture_652726.jpg" />
 </div>
 
 
@@ -437,7 +546,7 @@ Money Pro - Personal Finance 2.7.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652722.jpg" />
+  <img src="Z:/picture/008/save_picture_652722.jpg" />
 </div>
 
 
@@ -464,7 +573,7 @@ SiteSucker Pro 4.4.1 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652714.jpg" />
+  <img src="Z:/picture/008/save_picture_652714.jpg" />
 </div>
 
 
@@ -490,7 +599,7 @@ Joyoshare UltFix 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652711.jpg" />
+  <img src="Z:/picture/008/save_picture_652711.jpg" />
 </div>
 
 
@@ -516,7 +625,7 @@ RightFont 5 v5.4.1 (2474) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652666.jpg" />
+  <img src="Z:/picture/008/save_picture_652666.jpg" />
 </div>
 
 
@@ -543,7 +652,7 @@ Typora 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652639.jpg" />
+  <img src="Z:/picture/008/save_picture_652639.jpg" />
 </div>
 
 
@@ -569,7 +678,7 @@ A Better Finder Attributes 6 v6.05 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652560.jpg" />
+  <img src="Z:/picture/008/save_picture_652560.jpg" />
 </div>
 
 
@@ -580,116 +689,6 @@ A Better Finder Attributes позволить изменить дату созд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A566D4E6BB78712FDF17C87D610E92F32D24F528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540485   (652535) от 30.03.2022
-
-iStat Menus 6 v6.62 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652535.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2022Разработчик: © 2022 Bjango Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7291B91F0F32349D2872B938911E16D1BFB6D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291583   (652490) от 26.03.2019
-
-Morph Age Pro 4.3.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Morph Age Pro мощный инструмент для высококачественного морфинга и варпинга(деформации) цифровых изображений и видеофрагментов для Mac OS X.
-Результаты работы с программой могут быть сохранены в виде видеоролика. Программа позволяет плавно регулировать изменения изображения с помощью направляющих кривых. Версия PRO может работать с видео, в то время как стандартная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2019Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:859705E20EC3EEF0E37BFECC6A2BA4862E44BB36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291792   (652484) от 26.03.2019
-
-Elmedia Player Pro 7.2.1 (1778) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
-
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8854B6A38581F5E0B07A8556401B000FCE5E757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141134   (652455) от 09.06.2017
-
-iExplorer 4.1.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
-
-iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июня 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF664D1E64CEA6CB41C42EAF77C9261960C7767
 ```
 
 https://mybot314.ru/tekegram_catalog/

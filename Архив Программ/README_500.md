@@ -6,7 +6,7 @@ Nox App Player 6.0.3.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790356.jpg" />
+  <img src="Z:/picture/008/save_picture_790356.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe components: Flash Player 32.0.0.114 + AIR 32.0.0.89 + Shockwave Player 12.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790316.jpg" />
+  <img src="Z:/picture/008/save_picture_790316.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mailbird Pro 2.5.27.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790313.jpg" />
+  <img src="Z:/picture/008/save_picture_790313.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790309.jpg" />
+  <img src="Z:/picture/008/save_picture_790309.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Movavi Video Converter 18.1.1 Premium RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790301.jpg" />
+  <img src="Z:/picture/008/save_picture_790301.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790296.jpg" />
+  <img src="Z:/picture/008/save_picture_790296.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ LightShot 5.4.0.35 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790288.jpg" />
+  <img src="Z:/picture/008/save_picture_790288.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Revo Uninstaller Pro 3.2.0 Final Repack (& Portable) by Litoy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790287.jpg" />
+  <img src="Z:/picture/008/save_picture_790287.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ WizTree 4.06 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790276.jpg" />
+  <img src="Z:/picture/008/save_picture_790276.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ ISO Workshop 10.7 Pro RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790267.jpg" />
+  <img src="Z:/picture/008/save_picture_790267.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Wise Care 365 Pro 6.1.2.597 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790219.jpg" />
+  <img src="Z:/picture/008/save_picture_790219.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FabFilter - Total Bundle 2021.11.16 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790217.jpg" />
+  <img src="Z:/picture/008/save_picture_790217.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Opera 81.0.4196.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790212.jpg" />
+  <img src="Z:/picture/008/save_picture_790212.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Spotify 1.1.72.439 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790207.jpg" />
+  <img src="Z:/picture/008/save_picture_790207.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Bandizip 7.22 Build 45958 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790206.jpg" />
+  <img src="Z:/picture/008/save_picture_790206.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ SamDrivers 18.19 DVD - Сборник драйверов для Windows [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790186.jpg" />
+  <img src="Z:/picture/008/save_picture_790186.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ KMSAuto Lite 1.4.8 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790183.jpg" />
+  <img src="Z:/picture/008/save_picture_790183.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Adobe Photoshop CC 2019 20.0.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790180.jpg" />
+  <img src="Z:/picture/008/save_picture_790180.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ TweakPower 2.004 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790174.jpg" />
+  <img src="Z:/picture/008/save_picture_790174.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Futuremark 3DMark 2.21.7312 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790173.jpg" />
+  <img src="Z:/picture/008/save_picture_790173.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Blender 2.93.6 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790170.jpg" />
+  <img src="Z:/picture/008/save_picture_790170.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Firefox Browser 94.0.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790168.jpg" />
+  <img src="Z:/picture/008/save_picture_790168.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Topaz Gigapixel AI 5.7.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790164.jpg" />
+  <img src="Z:/picture/008/save_picture_790164.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Format Factory 5.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790162.jpg" />
+  <img src="Z:/picture/008/save_picture_790162.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Allavsoft Video Downloader Converter 3.24.0.7990 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790160.jpg" />
+  <img src="Z:/picture/008/save_picture_790160.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Topaz Gigapixel AI 5.7.1 RePack (& portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790157.jpg" />
+  <img src="Z:/picture/008/save_picture_790157.jpg" />
 </div>
 
 

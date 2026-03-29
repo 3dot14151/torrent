@@ -1,3 +1,32 @@
+###  Публикация: 1243643   (490227) от 28.08.2018
+
+VA - Big Room Sessions, Vol. 3 (2018) [MP3|320 Kbps] <Club, Funky, Progressive, Groove, Tribal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_490227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disfunktion - Wokkasaki (Rocking J Remix)
+02. Peter Brown, Ann Bailey - Let Me Go (Instrumental Mix)
+03. Reza, Nicole Tyler - Take Me Home (Original Mix)
+04. Jay Ronko, Josh Newson - Push (Original Mix)(   Читать дальше...   )Жанр: Club, Funky, Progressive, Groove, TribalПродолжительность: 05:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7702707C06532B91CCC4B7DE99835F8C8F864100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055741   (485887) от 23.09.2016
 
 VA - 60 Top-Hits: Milestones in Music (2014) Box set [MP3|320 Kbps] <Pop, Rock>
@@ -6,7 +35,7 @@ VA - 60 Top-Hits: Milestones in Music (2014) Box set [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485887.jpg" />
+  <img src="Z:/picture/008/save_picture_485887.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dua Lipa & The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [MP3|320 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485308.jpg" />
+  <img src="Z:/picture/008/save_picture_485308.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Lana Del Rey - Honeymoon (2015) [MP3|320 кб/с]<Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485288.jpg" />
+  <img src="Z:/picture/008/save_picture_485288.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Sertab Erener - Kirik Kalpler Albumu (2016) [MP3|320 Kbps] <Turkish Pop, Pop Roc
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484186.jpg" />
+  <img src="Z:/picture/008/save_picture_484186.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ The Runaway Club - Apollo (2016) [MP3|320 Kbps] <80's Electronic Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484162.jpg" />
+  <img src="Z:/picture/008/save_picture_484162.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ VA - Top Hits Estate (2018) 3CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484107.jpg" />
+  <img src="Z:/picture/008/save_picture_484107.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ The Runaway Club - The Runaway Club (2014) [MP3|320 кб/с]<80's Electronic Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483922.jpg" />
+  <img src="Z:/picture/008/save_picture_483922.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ VA - The Best Ballad Covers (2018) [MP3|320 Kbps] <Soul, Power Pop, Disco, Gospe
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483868.jpg" />
+  <img src="Z:/picture/008/save_picture_483868.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ VA - Танцевальный рай: Disco Remix 16/17 (2016) [MP3|320 Kbps] <P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483772.jpg" />
+  <img src="Z:/picture/008/save_picture_483772.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ Chris De Burgh - A Better World (2016) [MP3|320 Kbps] <Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483616.jpg" />
+  <img src="Z:/picture/008/save_picture_483616.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ VA - All Time Summer Hits (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482332.jpg" />
+  <img src="Z:/picture/008/save_picture_482332.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ DJ Piligrim - Om (2016) [MP3|320 Kbps] <Pop, Dance, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481667.jpg" />
+  <img src="Z:/picture/008/save_picture_481667.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ Beyonce - Renaissance (2022) [MP3|320 Kbps] <R&B, Soul, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480261.jpg" />
+  <img src="Z:/picture/008/save_picture_480261.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ Lana Del Rey - 17 альбомов (2007-2012) [MP3|128-320 кб/с]<Indie Pop\A
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479897.jpg" />
+  <img src="Z:/picture/008/save_picture_479897.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Inna - I Am The Club Rocker (2011) [MP3|320 kbps]<Electropop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478425.jpg" />
+  <img src="Z:/picture/008/save_picture_478425.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Future Soundz (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478196.jpg" />
+  <img src="Z:/picture/008/save_picture_478196.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Charlee Remitz - Bright White Trims (2015) [MP3|320 Kbps] <Alternative Pop, Indi
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477707.jpg" />
+  <img src="Z:/picture/008/save_picture_477707.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Kristy Thirsk - Phoenix (2014) [MP3|320 Kbps] <Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477601.jpg" />
+  <img src="Z:/picture/008/save_picture_477601.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Judy Jackson - Electric Love (1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Di
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477471.jpg" />
+  <img src="Z:/picture/008/save_picture_477471.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Chips - Having A Party (1982) LP [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477469.jpg" />
+  <img src="Z:/picture/008/save_picture_477469.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - The Best Acoustic Album In The World...Ever! (2022) [MP3|320 Kbps] <Pop, Ro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476313.jpg" />
+  <img src="Z:/picture/008/save_picture_476313.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Platinum Blonde - Standing in the Dark (1983) Remastered, 2014, Columbia [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475854.jpg" />
+  <img src="Z:/picture/008/save_picture_475854.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Jasmine Thompson - Another Bundle of Tantrums (2014) [MP3|320 кб/с]<Indie Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475703.jpg" />
+  <img src="Z:/picture/008/save_picture_475703.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Festivalbar '78  (1978) 2LP [MP3|320 Kbps] <Electronic, Disco, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474141.jpg" />
+  <img src="Z:/picture/008/save_picture_474141.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Craig David - Following My Intuition (2016) Deluxe Edition [MP3|320 Kbps] <Pop, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470947.jpg" />
+  <img src="Z:/picture/008/save_picture_470947.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Craig David - Following My Intuition (2016) Deluxe Edition [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D935654E7C3A11B149FB3978850F5D577636013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320642   (469378) от 19.08.2019
-
-Kish Mauve - Black Heart (2009) [MP3|320 Kbps] <Alternative Pop, Electropop, Electroclash>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lose Control
-02. Matthew
-03. I Don't Care
-04. In My Kitchen(   Читать дальше...   )Жанр: Alternative Pop, Electropop, Electroclash, Synthpop, Indie Pop, Dance-PopПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF5B51A97EDF7DBC911E2F70847E073118A5969
 ```
 
 https://mybot314.ru/tekegram_catalog/

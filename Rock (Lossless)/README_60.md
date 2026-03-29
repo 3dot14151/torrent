@@ -1,3 +1,148 @@
+###  Публикация: 1535770   (682373) от 08.03.2022
+
+Beth Hart - A Tribute To Led Zeppelin (2022) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_682373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Whole Lotta Love
+2. Kashmir
+3. Stairway To Heaven
+4. The Crunge(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E7BC5A1C73B20BAB20C788BD6AE4D1483BDEF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796773   (682020) от 16.06.2014
+
+Deluge Grander - The Form Of The Good (2009) [FLAC|Lossless|image + .cue]<Symphonic Prog, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_682020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Before the Common Era   (5:24)
+02.  The Tree Factory   (14:09)
+03.  Common Era Caveman   (6:27)
+04.  Aggrandizement   (19:13)(   Читать дальше...   )Жанр: Symphonic Prog, Progressive RockПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5520325730E8879A59DCB83962E2D589FD7960BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289891   (681973) от 18.03.2019
+
+Fleetwood Mac - Transmission Impossible (2018) 3CD, Remastered, Compilation [FLAC|Lossless|tracks + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_681973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chain (03:37)
+02. Dreams (04:39)
+03. Isn't It Midnight (04:42)
+04. Oh Well (04:50)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F938882D7075D6C67F6FC4B6A0E6A704CD848B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289823   (681970) от 18.03.2019
+
+The Doors - Transmission Impossible (2019) 3CD, Remastered, Compilation [FLAC|Lossless|tracks + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_681970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End (12:27)
+02. Moonlight Drive (06:51)
+03. Back Door Man (05:27)
+04. People Are Strange (02:36)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F6DAD99A78CF206CDEE23C819D3A219E816638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796769   (681928) от 16.06.2014
+
+Deluge Grander - August In The Urals (1996) [FLAC|Lossless|image + .cue]<Symphonic Prog, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_681928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Inaugural Bash   (26:56)
+02.  August in the Urals   (15:51)
+03.  Abandoned Mansion Afternoon   (12:13)
+04.  A Squirrel   (8:44)(   Читать дальше...   )Жанр: Symphonic Prog, Progressive RockПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFA333BDDAB5534FA7B57E2B084C7751FB2C5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 796765   (681711) от 16.06.2014
 
 Beth Hart - 37 Days (2007) 2011, Smartfeller and David Wolff [FLAC|Lossless|image + .cue]<Rock, Blues Rock>
@@ -6,7 +151,7 @@ Beth Hart - 37 Days (2007) 2011, Smartfeller and David Wolff [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681711.jpg" />
+  <img src="Z:/picture/008/save_picture_681711.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Diezel - Classic Album Collection (2011) 5 CD [FLAC|Lossless]<Rock, Soul, Blues>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_681610.jpg" />
+  <img src="Z:/picture/005/save_picture_681610.jpg" />
 </div>
 
 
@@ -70,7 +215,7 @@ Charles Manson - Lie: The Love and Terror Cult (1968) 1987, Awareness Records [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681092.jpg" />
+  <img src="Z:/picture/008/save_picture_681092.jpg" />
 </div>
 
 
@@ -99,7 +244,7 @@ Neil Young - Transmission Impossible (2018) 3CD, Remastered, Compilation [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680308.jpg" />
+  <img src="Z:/picture/008/save_picture_680308.jpg" />
 </div>
 
 
@@ -128,7 +273,7 @@ Paul McCartney And Wings - Wild Life (1971) 3CD, Super Deluxe Box Set Universal 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680222.jpg" />
+  <img src="Z:/picture/008/save_picture_680222.jpg" />
 </div>
 
 
@@ -157,7 +302,7 @@ It Bites - The Big Lad In The Windmill (1986) [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679403.jpg" />
+  <img src="Z:/picture/008/save_picture_679403.jpg" />
 </div>
 
 
@@ -186,7 +331,7 @@ VA - Capital Gold Legends (2001) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678687.jpg" />
+  <img src="Z:/picture/008/save_picture_678687.jpg" />
 </div>
 
 
@@ -215,7 +360,7 @@ Maps & Atlases - Lightlessness Is Nothing New (2018) [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678490.jpg" />
+  <img src="Z:/picture/008/save_picture_678490.jpg" />
 </div>
 
 
@@ -244,7 +389,7 @@ Jonathan Coulton - Some Guys (2019) [FLAC|Lossless|tracks + .cue] <Rock, Soft Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678487.jpg" />
+  <img src="Z:/picture/008/save_picture_678487.jpg" />
 </div>
 
 
@@ -273,7 +418,7 @@ Elephant Plaza - Momentum (2016) [FLAC|Lossless|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678474.jpg" />
+  <img src="Z:/picture/008/save_picture_678474.jpg" />
 </div>
 
 
@@ -302,7 +447,7 @@ Billy Joel - 2000 Years: The Millennium Concert (2000) 2xCD [APE|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678466.jpg" />
+  <img src="Z:/picture/008/save_picture_678466.jpg" />
 </div>
 
 
@@ -331,7 +476,7 @@ Chicago - The Heart Of Chicago (1989) Unofficial Release [APE|Lossless|image + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678459.jpg" />
+  <img src="Z:/picture/008/save_picture_678459.jpg" />
 </div>
 
 
@@ -360,7 +505,7 @@ The Night Game - The Night Game (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678342.jpg" />
+  <img src="Z:/picture/008/save_picture_678342.jpg" />
 </div>
 
 
@@ -389,7 +534,7 @@ Chris de Burgh - The Very Best 1977-1994 (1994) Unofficial Release [APE|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678181.jpg" />
+  <img src="Z:/picture/008/save_picture_678181.jpg" />
 </div>
 
 
@@ -418,7 +563,7 @@ Slithey Tove - Big Top (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676698.jpg" />
+  <img src="Z:/picture/008/save_picture_676698.jpg" />
 </div>
 
 
@@ -447,7 +592,7 @@ Au Revoir Borealis - Tienken (2001) EP [FLAC|Lossless|tracks + .cue] <Rock, Shoe
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676683.jpg" />
+  <img src="Z:/picture/008/save_picture_676683.jpg" />
 </div>
 
 
@@ -476,7 +621,7 @@ Bob Seger And The Silver Bullet Band - Against the Wind (1980) [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676469.jpg" />
+  <img src="Z:/picture/008/save_picture_676469.jpg" />
 </div>
 
 
@@ -505,7 +650,7 @@ Grails - 8 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Psychede
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675078.jpg" />
 </div>
 
 
@@ -538,7 +683,7 @@ Radioactive - X.X.X. (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675016.jpg" />
 </div>
 
 
@@ -567,7 +712,7 @@ VA - Women in Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674977.jpg" />
 </div>
 
 
@@ -596,7 +741,7 @@ Korai Orom - 11 albums (1995-2010) [FLAC|Lossless] <Psychedelic / Progressive / 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674881.jpg" />
 </div>
 
 
@@ -614,151 +759,6 @@ Korai Orom - 11 albums (1995-2010) [FLAC|Lossless] <Psychedelic / Progressive / 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030305   (674793) от 30.06.2016
-
-Jeff Liberman - Songwriter / Musician (2016) [FLAC|Lossless|tracks] <Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  This Mystery    03:26
-02.  Euphoria    04:00
-03.  These Blues    04:02
-04.  MBR    02:30(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C007AA8D34710A3D959AAFAC14C262A00B49651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536342   (674622) от 12.03.2022
-
-Find Me - Lightning In A Bottle (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survive
-02. Far From Over (Frank Stallone cover)
-03. Sail Away
-04. Back To You(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2445AC320B8774DADFBF3D739F798AE0126194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136441   (673237) от 23.05.2017
-
-Rabbitt - A Croak and a Grunt in the Night (1977) 2006, Remastered [APE|Lossless|image + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.C. Rabin In D-Minor [0:00:25.40]
-02. I Sleep Alone [0:02:52.50]
-03. A Croak & A Grunt In The Night [0:02:36.50]
-04. Everybody's Cheating [0:04:09.09](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C56B347E20F5CA8F8991961A9E60604747F0AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136513   (673140) от 23.05.2017
-
-The Sensational Alex Harvey Band - Hot City: The 1974 Unreleased Album (2009) [FLAC|Lossless|image + .cue] <Glam-rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vambo [0:04:46.06]
-02. Man In The Jar [0:05:06.00]
-03. Hey You [0:00:43.54]
-04. Long Haired Music [0:05:05.06](   Читать дальше...   )Жанр: Glam-rockПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C28D26D53F7909FAD9B259BFB132649BF76983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536721   (672882) от 13.03.2022
-
-Lana Lane - Neptune Blue (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, Prog Related>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remember Me (5:16)
-02. Under The Big Sky (5:19)
-03. Really Actually (5:34)
-04. Come Lift Me Up (6:27)(   Читать дальше...   )Жанр: Melodic Rock, Prog RelatedПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05772E49DF1ABAF9AF1319EB2D91C0120F0ECB93
 ```
 
 https://mybot314.ru/tekegram_catalog/

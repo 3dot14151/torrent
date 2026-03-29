@@ -1,3 +1,61 @@
+###  Публикация: 1420027   (335616) от 30.10.2020
+
+Jim Brickman - Christmas Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jim Brickman - I'll Be Home For Christmas
+02. Winter Wonderland
+03. O Tannenbaum
+04. Snowflake(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F2DD76FA5FE2420CA2B1BBF439F1F07DCA5519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074258   (335562) от 20.11.2016
+
+Cigarettes After Sex - I. (2012) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop, Indie Pop, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing's Gonna Hurt You Baby
+02. I'm a Firefighter
+03. Dreaming of You
+04. Starry EyesЖанр: Dream Pop, Indie Pop, AmbientПродолжительность: 00:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EFFC702A4E87437EBEDB8153821334D7C90DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181324   (335072) от 06.11.2017
 
 VA - Stranger Things / Очень странные дела (Music from the Netflix Original Series) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -6,7 +64,7 @@ VA - Stranger Things / Очень странные дела (Music from the Netf
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335072.jpg" />
+  <img src="Z:/picture/008/save_picture_335072.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Leo Rojas - Leo Rojas (2017) [MP3|320 Kbps] <Native american, Ethnic, Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335067.jpg" />
+  <img src="Z:/picture/008/save_picture_335067.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334984.jpg" />
+  <img src="Z:/picture/008/save_picture_334984.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - 24 Golden Instrumental Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334664.jpg" />
+  <img src="Z:/picture/008/save_picture_334664.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Various Artists - The Pianist OST (2002) [MP3|320 kbps]<Classical>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334385.jpg" />
+  <img src="Z:/picture/005/save_picture_334385.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334071.jpg" />
+  <img src="Z:/picture/008/save_picture_334071.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Kontor Top Of The Clubs 2020.03 (2020) [MP3|320 Kbps] <House, Club House, P
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333820.jpg" />
+  <img src="Z:/picture/008/save_picture_333820.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Los clasicos argentinos Tango - Vol.04 (1996) [MP3|128 кб/с]<Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333777.jpg" />
+  <img src="Z:/picture/008/save_picture_333777.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Kontor Top Of The Clubs 2020.04 (2020) [MP3|320 Kbps] <House, Club-House, D
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333767.jpg" />
+  <img src="Z:/picture/008/save_picture_333767.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333706.jpg" />
+  <img src="Z:/picture/008/save_picture_333706.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Richard Clayderman - The Ultimate Collection (2005) 3CD [APE|Lossless]<Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333691.jpg" />
+  <img src="Z:/picture/008/save_picture_333691.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ Michel Pépé - La montagne sacrée (Michel Pepe - La montagne sacree) (2019) [M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333646.jpg" />
+  <img src="Z:/picture/008/save_picture_333646.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ Trevor Jones / Randy Edelman - Последний из могикан / The Last
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333602.jpg" />
+  <img src="Z:/picture/008/save_picture_333602.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ Mythos - Iridescence (1997) [OGG Vorbis|484 Kbps] <Pop, Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333495.jpg" />
+  <img src="Z:/picture/008/save_picture_333495.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ Mythos - The Reality Of A Dreamer (2000) [OGG Vorbis|484 Kbps] <Electronic, New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333492.jpg" />
+  <img src="Z:/picture/008/save_picture_333492.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Mythos - Eternity (2002) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333365.jpg" />
+  <img src="Z:/picture/008/save_picture_333365.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Mythos - Purity (2006) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333362.jpg" />
+  <img src="Z:/picture/008/save_picture_333362.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333361.jpg" />
+  <img src="Z:/picture/008/save_picture_333361.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Dog Music - Christmas Piano Music For Dogs, Sleeping Music For Pets, Dog Music &
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333022.jpg" />
+  <img src="Z:/picture/008/save_picture_333022.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Pulp Fiction / Криминальное чтиво - Soundtrack (1994) [ape+cue+
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332992.jpg" />
+  <img src="Z:/picture/008/save_picture_332992.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Lorne Balfe & Jesper Kyd - Assassin's Creed Revelations (2011) [MP3|320 kbps]<OS
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332675.jpg" />
+  <img src="Z:/picture/008/save_picture_332675.jpg" />
 </div>
 
 
@@ -609,7 +667,7 @@ John Powell & Lily Allen - Pan | Пэн: Путешествие в Нетлан�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332526.jpg" />
+  <img src="Z:/picture/008/save_picture_332526.jpg" />
 </div>
 
 
@@ -638,7 +696,7 @@ VA - Идеальный голос / Pitch Perfect OST (2012) [MP3|320 Kbps] <So
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332481.jpg" />
+  <img src="Z:/picture/008/save_picture_332481.jpg" />
 </div>
 
 
@@ -667,7 +725,7 @@ Louis Landon - Heartfelt Solo Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332341.jpg" />
+  <img src="Z:/picture/008/save_picture_332341.jpg" />
 </div>
 
 
@@ -681,64 +739,6 @@ Louis Landon - Heartfelt Solo Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F12CAD707680494587DC7392B1280020FE167F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420627   (331896) от 01.11.2020
-
-James Last & Richard Clayderman - Traummelodien (1990) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonnenschein über den Wolken
-02. Karussell der Liebe
-03. Aliscia
-04. Distant Love(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6A4A5C869A0BD0DD21F8332E0CE8EAAC336D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420649   (331270) от 02.11.2020
-
-VA - Идеальный голос / Ultimate Pitch Perfect OST (2015) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna Kendrick - Cups (When I'm Gone) Pop Version (2:08)
-02. The Treblemakers - Don't Stop the Music (3:05)
-03. The Outfit - 212 vs. Bust a Move (1:27)
-04. The Treblemakers - Let it Whip (2:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDFEF10540172BD2168F92AFE9B6090DD7E6176
 ```
 
 https://mybot314.ru/tekegram_catalog/

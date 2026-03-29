@@ -1,3 +1,83 @@
+###  Публикация: 1082061   (280156) от 11.12.2016
+
+М.Г. Селезнев, С.В. Тищенко и д.р. (пер.) | Ветхий Завет [Перевод с древнееврейского] [13 книг] (1999-2005) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_280156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветхий Завет – вероучительный текст двух мировых религий, который представляет собой один из прекраснейших литературных образцов древности. Заново открыть для читателей литературную и эстетическую сторону этого памятника – еще одна задача, которая стоит перед создателями русского перевода. Может ли считаться точным и правдивым перевод, если высокую литературу он (   Читать дальше...   )Жанр: Священное ПисаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294F70F5B63E0ED8379CAF147C7582B19DDB6F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336328   (279254) от 07.11.2019
+
+В.Ю. Григорьева | «Согласникъ» из рукописи РНБ. Соловецкое собрание № 690/752: Публикация, исследование и интерпретация памятника (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_279254.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издании впервые представлены подробное исследование и научная трактовка памятника музыкально-теоретической мысли середины XVII века - Согласника из рукописи РНБ Соловецкого собрания № 690/752, л. 107-107 об. Это уникальное музыкальное руководство безпометного периода посвящено описанию объёма и структуры обиходного звукоряда.
+
+Согласник построен его автором по (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9271EB51E28E742C6F81E1128F1970B13776CBC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336515   (279253) от 07.11.2019
+
+В.М. Зоберн (автор-составитель) | Чистые души. Рассказы о святых женщинах [Сборник] (2014) [PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_279253.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли истории о женщинах, живших в разное время в разных концах света. Кто в юности, кто в зрелости – все они предпочли торжеству плоти духовное подвижничество. Блаженная Матрона Московская, Блаженная Ксения Петербуржская, затворница Досифея, святая благоверная княгиня Анна Кашинская, святая равноапостольная Нина и другие подвижницы от древности до нашего (   Читать дальше...   )Жанр: ХристианствоФормат: PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1471C37BA309BE94328964CC2867625539722D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336517   (279171) от 07.11.2019
 
 Наталия Черных | Приходские повести: рассказы о духовной жизни (2015) [PDF, FB2]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279171.jpg" />
+  <img src="Z:/picture/008/save_picture_279171.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278884.jpg" />
+  <img src="Z:/picture/008/save_picture_278884.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278629.jpg" />
+  <img src="Z:/picture/008/save_picture_278629.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277826.jpg" />
+  <img src="Z:/picture/008/save_picture_277826.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277535.jpg" />
+  <img src="Z:/picture/008/save_picture_277535.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277530.jpg" />
+  <img src="Z:/picture/008/save_picture_277530.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277370.jpg" />
+  <img src="Z:/picture/008/save_picture_277370.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277247.jpg" />
+  <img src="Z:/picture/008/save_picture_277247.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277020.jpg" />
+  <img src="Z:/picture/008/save_picture_277020.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276514.jpg" />
+  <img src="Z:/picture/008/save_picture_276514.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276072.jpg" />
+  <img src="Z:/picture/008/save_picture_276072.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275004.jpg" />
+  <img src="Z:/picture/008/save_picture_275004.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274740.jpg" />
+  <img src="Z:/picture/008/save_picture_274740.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274701.jpg" />
+  <img src="Z:/picture/008/save_picture_274701.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273775.jpg" />
+  <img src="Z:/picture/008/save_picture_273775.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273722.jpg" />
+  <img src="Z:/picture/008/save_picture_273722.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272636.jpg" />
+  <img src="Z:/picture/008/save_picture_272636.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272572.jpg" />
+  <img src="Z:/picture/008/save_picture_272572.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272304.jpg" />
+  <img src="Z:/picture/008/save_picture_272304.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272294.jpg" />
+  <img src="Z:/picture/008/save_picture_272294.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272219.jpg" />
+  <img src="Z:/picture/008/save_picture_272219.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271673.jpg" />
+  <img src="Z:/picture/008/save_picture_271673.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270638.jpg" />
+  <img src="Z:/picture/008/save_picture_270638.jpg" />
 </div>
 
 
@@ -597,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A861C188BEA2DCED8C6C4703642BECA75A5C07D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338343   (269875) от 15.11.2019
-
-Священник Владимир Архипов | Книга о радости и страдании (2018) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путь человеческой жизни достаточно сложен и тернист: каждый день мы сталкиваемся с проблемами и попадаем в ситуации, в которых нам может быть трудно, больно и страшно. Как при этом не отчаиваться и проходить испытания с радостью в сердце, уповая во всем на Господа? Книга протоиерея Владимира Архипова поможет вам найти ответ на этот вопрос.Жанр: ХристианствоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF8F939E860E39529AF613C3CD974A1535B8BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338151   (269869) от 15.11.2019
-
-Архимандрит Наум (Байбородин) (сост.) | Как очистить свой ум и сердце: По творениям святых отцов (2019) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269869.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге архимандрит Наум (Байбородин; 1927-2017) собрал изречения снятых отцов о том, что такое чистота ума и сердца, как её достичь, какие препятствия ожидают подвижника на этом пути, а также о цели этого делания — стяжании «ума Христова» и обожении человека.Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09083FCB09B2409F8F58CC2BC1E4FF1C65CA7A10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338350   (269849) от 15.11.2019
-
-В.П. Филимонов | Как создаются легенды. Под маской Православия. Допустима ли неправда в Церкви? (2012) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269849.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре на строго документальной основе разоблачается мифотворческая деятельность и ложь настоятеля подворья несуществующего монастыря священника Г. Беловолова относительно происхождения и истории иконы «Аз есмь с вами и никтоже на вы».Жанр: Христианская литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B413ACAF4AC603B62B23764DAFB77FBF1791000
 ```
 
 https://mybot314.ru/tekegram_catalog/

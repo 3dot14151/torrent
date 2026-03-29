@@ -6,7 +6,7 @@ Waterfox 56.0.4.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785359.jpg" />
+  <img src="Z:/picture/008/save_picture_785359.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785357.jpg" />
+  <img src="Z:/picture/008/save_picture_785357.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Erasure - Singles: EBX4 (2018) [MP3|320 Kbps] <Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785342.jpg" />
+  <img src="Z:/picture/008/save_picture_785342.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ BlueStacks Tweaker 5.9.0 beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785339.jpg" />
+  <img src="Z:/picture/008/save_picture_785339.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Deep Sky Derelicts v.1.1.1 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785337.jpg" />
+  <img src="Z:/picture/008/save_picture_785337.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Wise System Monitor 1.4.9.119 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785336.jpg" />
+  <img src="Z:/picture/008/save_picture_785336.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Viber 9.9.6.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785334.jpg" />
+  <img src="Z:/picture/008/save_picture_785334.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ JRiver Media Center 24.0.74 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785331.jpg" />
+  <img src="Z:/picture/008/save_picture_785331.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785326.jpg" />
+  <img src="Z:/picture/008/save_picture_785326.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785323.jpg" />
+  <img src="Z:/picture/008/save_picture_785323.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785315.jpg" />
+  <img src="Z:/picture/008/save_picture_785315.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ SpeedCommander Pro 17.30.8900 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785313.jpg" />
+  <img src="Z:/picture/008/save_picture_785313.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ V.A. - Blank & Jones present So80s (So Eighties) Vol.11 (2018) [FLAC|Lossless|WE
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785312.jpg" />
+  <img src="Z:/picture/008/save_picture_785312.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785305.jpg" />
+  <img src="Z:/picture/008/save_picture_785305.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ JetBrains ReSharper Ultimate 2017.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785304.jpg" />
+  <img src="Z:/picture/008/save_picture_785304.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785295.jpg" />
+  <img src="Z:/picture/008/save_picture_785295.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785277.jpg" />
+  <img src="Z:/picture/008/save_picture_785277.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ WinUtilities Pro 15.1 RePack by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785270.jpg" />
+  <img src="Z:/picture/008/save_picture_785270.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ PIDKey Lite 1.61 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785264.jpg" />
+  <img src="Z:/picture/008/save_picture_785264.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Avira Free Antivirus 15.0.34.20 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785263.jpg" />
+  <img src="Z:/picture/008/save_picture_785263.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ foobar2000 1.3.19 Final DarkOne + DUIFoon Portable by MC Web (19.01.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785259.jpg" />
+  <img src="Z:/picture/008/save_picture_785259.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785253.jpg" />
+  <img src="Z:/picture/008/save_picture_785253.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ One Chat - All in one Messenger 4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785250.jpg" />
+  <img src="Z:/picture/008/save_picture_785250.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ AnyTrans for iOS 7.0.4 (build 20190107) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785248.jpg" />
+  <img src="Z:/picture/008/save_picture_785248.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Windows 10 Manager 2.2.3 Final  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785231.jpg" />
+  <img src="Z:/picture/008/save_picture_785231.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Unreal Commander 3.57 Build 1285 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785221.jpg" />
+  <img src="Z:/picture/008/save_picture_785221.jpg" />
 </div>
 
 

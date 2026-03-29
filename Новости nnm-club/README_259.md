@@ -1,3 +1,160 @@
+###  Публикация: 1088316   (139612) от 30.12.2016
+
+Gulman 4: Still alive (2016) [En] (1.0) License PLAZA
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139612.jpg" />
+</div>
+
+
+###  Подробнее
+
+2029 год. Транснациональная корпорация Metacorps на островах в Тихом океане обнаружила комплекс древних сооружений. Спустя месяц, все данные по этой находке были засекречены. Международное правительство отправляет к острову разведывательный отряд, который должен выяснить с какой целью раскопки на острове были засекречены. Вместе с отрядом отправляется Гульмэн, агент (   Читать дальше...   )Тип издания: LicenseРазработчик: Serzhantov AleksandrЖанр: Action (Shooter), 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:717A75A4F7A9A384898456E36919524859867F9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999165   (139260) от 30.12.2017
+
+Life Is Strange (2015) [Ru/Multi] (1.0.0.397609) Repack R.G. Catalyst [Episode 1-5]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Life is Strange – эпизодическое приключение, события которого развиваются в вымышленном городе Аркадия Бэй, что в Орегоне. История о дружбе, которая могла быстро закончиться если бы не внезапно открытый талант Мэкс. Она нашла в себе дар - возможность перематывать время. Но еще неясно, как это точно работает и к чему может привести.Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Русский (Эпизод 1 и 5)Язык субтитров: Русский, Английский  и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2A24437EA6FDFE1DFA82BD9E19BC6772EE0E61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348605   (138826) от 30.12.2019
+
+Снег на рабочем столе (Snow on DeskTop) 1.4.1 Portable by Deodatto [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая программа - с помощью которой, Вы можете запустить снежинки на Вашем Рабочем столе. Программа, совсем не мешает при работе за компьютером. За окном солнце, а хочется снега, и программа Вам в этом поможет. Теперь, устроить зиму не так сложно, нужно только запустить программу и будет снег. Если Вам не хватает снега, то эта программа для ВАС. Если же снежинки (   Читать дальше...   )Язык интерфейса: Русский,  Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5E4E8ED087081A96C1EADB5FC9FC1EF9C7DCAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679113   (138759) от 24.11.2023
+
+SolidWorks 2024 SP0.1 Premium RePack by xetrin [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138759.jpg" />
+</div>
+
+
+###  Подробнее
+
+SolidWorks – система автоматизированного проектирования, инженерного анализа и подготовки производства изделий любой сложности и назначения.
+SolidWorks является ядром интегрированного комплекса автоматизации предприятия, с помощью которого осуществляется поддержка жизненного цикла изделия в соответствии с концепцией CALS-технологий, включая двунаправленный обмен (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F3B6151253CBAB9941DD18C0A13050F8F5D575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272575   (138499) от 30.12.2018
+
+Эксперты назвали самую востребованную профессию 2019 года в России
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аналитики портала "SuperJob.ru" изучили потенциальный спрос на специалистов в области IT-технологий и составили список вакансий, которые будут востребованы в 2019 году.Так, из-за высокого темпа развития мобильных приложений в следующем году продолжится рост спроса на разработчиков приложений для iOS и Android. Но пока что конкуренция в данном сегменте довольно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520683   (138326) от 30.12.2021
+
+Матрица: Воскрешение / The Matrix Resurrections (2021) WEB-DLRip [H.264/1080p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138326.jpg" />
+</div>
+
+
+###  Подробнее
+
+В двух реальностях Нео снова придется выбирать, следовать ли за белым кроликом. Выбор, пусть и иллюзорный, все еще остается единственным путем в Матрицу или из нее, что более опасно, чем когда-либо.Производство: США / NPV Entertainment, Silver Pictures, Village Roadshow Pictures, Warner Bros.Жанр: Фантастика, боевикРежиссер: Лана ВачовскиАктеры: Киану Ривз, Кэрри-Энн Мосс, Яхья Абдул-Матин II, Джонатан Грофф, Джессика Хенвик, Нил Патрик Харрис, Джада Пинкетт Смит, Приянка Чопра Джонас, Кристина Риччи, Ламбер ВильсонПеревод: Дублированный, профессиональный многоголосый, авторский одноголосыйЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (forced, 2 х full, SDH), Украинские (forced), Английские (full, SDH)Продолжительность: 02:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A910E19DBD2672A1ACC981D3CB277F6C81BD08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520953   (138308) от 30.12.2021
 
 Adobe Premiere Pro 2022 22.1.2.1 RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +163,7 @@ Adobe Premiere Pro 2022 22.1.2.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138308.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Hitman Absolution: Professional Edition [Ru/En/Multi8] (Lossless Repack/1.0.444.
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138297.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ Zuma's Revenge (2009) [Ru/En] (1.0) Unofficial
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138287.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ Proteus 8 Professional 8.8 SP1 (Build 27031) with Advanced Simulation [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138262.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138224.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137736.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_137644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_137644.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137531.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137445.jpg" />
 </div>
 
 
@@ -243,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137368.jpg" />
 </div>
 
 
@@ -270,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137301.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137285.jpg" />
 </div>
 
 
@@ -322,7 +479,7 @@ Adobe Photoshop Touch 1.7.7 [Ru/Multi] - Фотошоп для планшето�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137275.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137249.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ Aero Glass for Windows 10 RS 1.5.1 RePack by PainteR [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137203.jpg" />
 </div>
 
 
@@ -400,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_137165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_137165.jpg" />
 </div>
 
 
@@ -427,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137146.jpg" />
 </div>
 
 
@@ -454,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137113.jpg" />
 </div>
 
 
@@ -480,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137086.jpg" />
 </div>
 
 
@@ -506,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137072.jpg" />
 </div>
 
 
@@ -517,167 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36E2B3D2F748F0AA184B2C010F457D8DC2C35649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338813   (137064) от 31.12.2019
-
-Мандалорец / The Mandalorian (2019) UHD WEB-DL [H.265/2160p-LQ] [4K, HDR, 10-bit] (сезон 1, серии 1-8 из 8) AMS [AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm Ltd., Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Кайл Пацек, Брендан Уэйн, Тейт Флетчер, Бернард Баллен, Александра Гилман, Ник Нолти, Карл Уэзерс и др.Перевод: Многоголосый профессиональный - AMS (Adiós Muchachos Studio)Субтитры: английскиеПродолжительность: ~00:35:00 серияРеклама: присутствуют аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A2FE83EF735BD4EEA3DE1AFE415BBEBFFECE21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338741   (137061) от 31.12.2019
-
-Мандалорец / The Mandalorian (2019) WEB-DLRip (сезон 1, серии 1-8 из 8) Lostfilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Lucasfilm, Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Кайл Пацек, Брендан Уэйн, Тейт Флетчер, Бернард Баллен, Александра Гилман, Ник Нолти, Карл Уэзерс и др.Перевод: Многоголосый закадровый, профессиональный - LostfilmСубтитры: русские (forced) - серии с 1 по 3, английские - отдельноПродолжительность: ~00:38:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319EB83088F66A5D94BBF9F7E754CA7F02C1B576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 21527   (137036) от 31.12.2021
-
-Кино (?) Нерукотворный альбом. ( Пир во время чумы) [MP3|128] <Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137036.jpg" />
-</div>
-
-
-###  Подробнее
-
-В августе будет уже целых 17 лет с того дня, как страну облетела весть о гибели лидера группы «Кино». Несмотря на срок давности, Цой остается фигурой, почитаемой не только старыми поклонниками, но и молодежью.
-
-Поэтому появление его неизвестного альбома вызвало одновременно радость и сомнения. В интернете неожиданно появилась ссылка на оцифрованную запись 27 песен (   Читать дальше...   )1. Дорога зовёт
-2. Я понял, я знаю
-3. Я ухожу в тень  (И у наших звезд есть свет)
-4. Эта игра не для меня(   Читать дальше...   )Жанр: русский рок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBFA7F05F9B7D6EC20EB4D859215C7805CDB7F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200139   (137021) от 31.12.2021
-
-Fade to Silence (2019) [Ru/Multi] (1.0.2025hf) Repack West4it
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вам предстоит играть за Эша, прирожденного лидера, которого терзает его собственный разум, исследовать ледяные земли, опустошенные мировой катастрофой, и собирать материалы, без которых построить убежище и выжить невозможно. В мире, где ресурсов становится все меньше, даже такие простые задачиТип издания: RepackРазработчик: Black Forest GamesЖанр: RPG, Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C152150D53C0F6B99C688E3160C588139D8F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338543   (137018) от 31.12.2021
-
-Клаус / Klaus (2019) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодого почтальона отправляют на работу в заснеженную деревушку с крайне недружелюбными и негостеприимными жителями. Там он встречает странного создателя игрушек, и между ними завязывается необычная дружба.Производство: Испания / The SPA Studios, Aniventure, Atresmedia CineЖанр: Мультфильм, семейный, фэнтези, комедия, приключенияРежиссер: Серджо ПаблосПеревод: Дублированный (Невафильм)Язык озвучки: Русский, румынский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH).. и др. (см. Mediainfo)Продолжительность: 01:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A0F3DFB00A14365AA43EEA90A9066650F71B281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824129   (136914) от 16.10.2025
-
-Музей ВМС США поздравил американский флот постом с российским крейсером "Варяг"
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_136914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Национальный морской музей подразделений специального назначения ВМС США поздравил американский флот с 250-летием постом с фотографией российского ракетного крейсера "Варяг", на это обратил внимание в соцсети X журналист The Wall Street Journal Дэвид Браун."Это российский ракетный крейсер", — написал он, репостнув поздравление музея ВМС США.Пост (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

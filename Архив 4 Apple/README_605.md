@@ -1,3 +1,109 @@
+###  Публикация: 1345045   (168342) от 13.12.2019
+
+Wattagio 1.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wattagio информирует вас о текущем состоянии батареи и помогает снизить энергопотребление. Гибкие настройки в приложении предоставляют параметры для настройки вашего профиля в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Volodymyr NehodovПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011868686C61CB21386B59AF1CC6AA561789BA13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596865   (168339) от 12.12.2022
+
+SILKYPIX JPEG Photography 11E v.11.2.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168339.jpg" />
+</div>
+
+
+###  Подробнее
+
+С SILKYPIX JPEG Photography вы можете раскрыть свой творческий потенциал. Улучшите свои фотографии в формате JPEG, сделанные цифровыми камерами, смартфонами и другими устройствами. Используйте инструменты четкости для настройки резкости, кисть выделения от руки и другие инструменты. Создайте высококачественную фотографию, которую вы себе представляли, когда делали (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022 Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94898F461412C172882225780D69AC84A500BE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345021   (168333) от 13.12.2019
+
+Kiwi for Gmail 2.0.31 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kiwi for Gmail - Полноценный клиент электронной почты для Gmail на Mac. С точки зрения функциональности он мало отличается от веб-сайта, зато дизайн порадует ценителей красивых интерфейсов.
+
+Kiwi for Gmail единственное в своем роде приложение, которое поддерживает все функции Gmail, По сути это тот же веб-интерфейс, но обернутый в дружелюбную оболочку и не зависим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.12.2019Разработчик: Zive, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C871CEF5952589BBE9D6DC453438A27CAC75EDDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596861   (168321) от 12.12.2022
+
+SILKYPIX Developer Studio Pro 11E v.11.0.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168321.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.12.2022Разработчик: © 2022, Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0AC3D4E724B2969DCDAA41F58251531C739B1D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672836   (168320) от 29.10.2023
 
 Cookie 7.1.2 [Multi]
@@ -6,7 +112,7 @@ Cookie 7.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168320.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Rocket Typist Pro 3.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168308.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ Exposure Software Blow Up 3 v3.1.4.276 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168306.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ TG Pro (Temperature Gauge Pro) 2.85 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168295.jpg" />
 </div>
 
 
@@ -116,7 +222,7 @@ AnyGo 5.9.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168290.jpg" />
 </div>
 
 
@@ -142,7 +248,7 @@ Jettison 1.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168288.jpg" />
 </div>
 
 
@@ -171,7 +277,7 @@ Live Wallpaper & Themes 4K Pro 14.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168267.jpg" />
 </div>
 
 
@@ -197,7 +303,7 @@ System Dashboard Pro 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168215.jpg" />
 </div>
 
 
@@ -223,7 +329,7 @@ CADintosh X 8.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168178.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ MediaHuman Youtube Downloader 3.9.9.29 (build 0412) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168158.jpg" />
 </div>
 
 
@@ -278,7 +384,7 @@ Scapple 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168157.jpg" />
 </div>
 
 
@@ -304,7 +410,7 @@ Sensei 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168152.jpg" />
 </div>
 
 
@@ -330,7 +436,7 @@ Multitouch 1.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168087.jpg" />
 </div>
 
 
@@ -358,7 +464,7 @@ OmniFocus Pro 3.15.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168084.jpg" />
 </div>
 
 
@@ -385,7 +491,7 @@ FSNotes 4 v4.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168064.jpg" />
 </div>
 
 
@@ -411,7 +517,7 @@ Privatus 6.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168059.jpg" />
 </div>
 
 
@@ -437,7 +543,7 @@ Wirecast 16.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168054.jpg" />
 </div>
 
 
@@ -463,7 +569,7 @@ SpamSieve 2.9.41 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168053.jpg" />
 </div>
 
 
@@ -491,7 +597,7 @@ PullTube 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168049.jpg" />
 </div>
 
 
@@ -517,7 +623,7 @@ Duplicate Photos SweeperOff 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168041.jpg" />
 </div>
 
 
@@ -543,7 +649,7 @@ Airtool 2 v2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168036.jpg" />
 </div>
 
 
@@ -569,7 +675,7 @@ Data Guardian 6 v.6.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168034.jpg" />
 </div>
 
 
@@ -580,114 +686,6 @@ Data Guardian 6 v.6.0.2 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E3471CF89A9EFD05223D59961A7240140C52258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431460   (168028) от 13.12.2020
-
-Cisdem ContactsMate 5 v5.6.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программное обеспечение Cisdem ContactsMate — эффективное решение для управления контактными данными. Приложение позволяет осуществлять резервное копирование всей контактной информации, редактировать поля контактных данных, а также экспортировать адресную книгу в форматы CSV, vCard, TXT, DocX, HTML, Excel, обеспечивая удобное резервное копирование и синхронизацию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8AFB7A476F03390B3E8BF2CE9732E8714CB8167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431458   (168025) от 13.12.2020
-
-Alarm Clock Pro 13 v13.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приходилось ли вам слышать такое выражение как хронофаги? Так называют людей, которые ничего никогда не успевают. Как вы думаете, почему? Да потому что не умеют планировать свои дела! А ведь именно планирование является одним из залогов успеха во всех делах и гарантией того, что они будут исполнены в сро
-
-Alarm Clock Pro представляет собой многофункциональный будильник (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.12.2020Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C66FF0248879BEA2BFF7205E5537C4657AAAEF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431418   (168022) от 13.12.2020
-
-ImageRanger Pro Edition 1.7.8.1679 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168022.jpg" />
-</div>
-
-
-###  Подробнее
-
-ImageRanger - программа позволит найти все нужные изображения в одном сеансе поиска, в нем же можно найти наборы данных внутри самой картинки к которым относятся как определение лица так координаты GPS.Тип издания: macOS SoftwareРелиз состоялся: 12.12.020Разработчик: XtSense GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0602E06184179601B7004D2869E503CE66AB4EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431475   (168019) от 13.12.2020
-
-Invisible 2.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Invisible - надежная и ориентированная на пользователя утилита, которая позволяет защитить паролем ваши данные и скрыть свои личные данные с помощью нескольких щелчков мыши
-
-Invisible является простым в использовании и очень интуитивным инструментом, который предоставляет своим пользователям самый простой способ, чтобы скрыть и защитить свои личные данные от посторонних (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.12.2020Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DBA8DA41A991DE1936450161172DDE02BD94F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1241856   (493667) от 26.08.2018
+
+Уходя - уходи (1978) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_493667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незаметный и скромный бухгалтер Сулин часто попадает в полусмешные-полугрустные ситуации - часто робеет, боится идти наперекор хоть кому-то.. Пока однажды случай не помог ему вспомнить, что в юности он был решительным и отважным. Что произошло после этого - смотрите и смейтесь вместе с героями этой весёлой и ироничной комедииПроизводство: СССР / ЛенфильмЖанр: Комедия, ДрамаРежиссер: Виктор ТрегубовичАктеры: Виктор Павлов, Людмила Гурченко, Марина Трегубович, Николай Рыбников, Наталья Андрейченко, Наталья Гундарева, Олег Кононов, Федор Одиноков, Надежда Вихрова, Николай Сытин, Наталья Дмитриева, Владимир Пожидаев, Елена Мельникова, Елена ПавловскаяПродолжительность: 01:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD165900EB35E6687DEE1FA1D743DD8F4BF8C4CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053820   (492067) от 20.09.2016
+
+Крупный выигрыш (1980) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_492067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крановщик Гарник в первый же день своего ухода на пенсию выигрывает "Запорожец" - и становится личным шофером всех близких и дальних родственников...Производство: СССР, АрменфильмЖанр: КомедияРежиссер: Альберт МкртчянАктеры: Фрунзик Мкртчян, Люся Оганесян, Леонард Саркисов, Генрих Алавердян, Нерсес Оганесян, Шаум Казарян, Гарегин Асланян, Карен Джанибекян, Мисаил Галоян, Артуш ГедакянПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A2551416C8F8D385C244AAC31D8F25E8975269
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243375   (491893) от 27.08.2018
 
 Миллионы Ферфакса (1980) DVDRip [H.264]
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491893.jpg" />
+  <img src="Z:/picture/008/save_picture_491893.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491005.jpg" />
+  <img src="Z:/picture/008/save_picture_491005.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490251.jpg" />
+  <img src="Z:/picture/008/save_picture_490251.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489084.jpg" />
+  <img src="Z:/picture/008/save_picture_489084.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486580.jpg" />
+  <img src="Z:/picture/008/save_picture_486580.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485165.jpg" />
+  <img src="Z:/picture/008/save_picture_485165.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483736.jpg" />
+  <img src="Z:/picture/008/save_picture_483736.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482598.jpg" />
+  <img src="Z:/picture/008/save_picture_482598.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481615.jpg" />
+  <img src="Z:/picture/008/save_picture_481615.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481599.jpg" />
+  <img src="Z:/picture/008/save_picture_481599.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479845.jpg" />
+  <img src="Z:/picture/008/save_picture_479845.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479457.jpg" />
+  <img src="Z:/picture/008/save_picture_479457.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473659.jpg" />
+  <img src="Z:/picture/008/save_picture_473659.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473643.jpg" />
+  <img src="Z:/picture/008/save_picture_473643.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473100.jpg" />
+  <img src="Z:/picture/008/save_picture_473100.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472114.jpg" />
+  <img src="Z:/picture/008/save_picture_472114.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470474.jpg" />
+  <img src="Z:/picture/008/save_picture_470474.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470423.jpg" />
+  <img src="Z:/picture/008/save_picture_470423.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470066.jpg" />
+  <img src="Z:/picture/008/save_picture_470066.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469649.jpg" />
+  <img src="Z:/picture/008/save_picture_469649.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469037.jpg" />
+  <img src="Z:/picture/008/save_picture_469037.jpg" />
 </div>
 
 
@@ -567,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467699.jpg" />
+  <img src="Z:/picture/008/save_picture_467699.jpg" />
 </div>
 
 
@@ -595,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467660.jpg" />
+  <img src="Z:/picture/008/save_picture_467660.jpg" />
 </div>
 
 
@@ -621,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467233.jpg" />
+  <img src="Z:/picture/008/save_picture_467233.jpg" />
 </div>
 
 
@@ -632,58 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68053428091C47EC7D4C7A980B2EA963C3D63A60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058935   (466080) от 02.10.2016
-
-Однажды осенью (1977) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражный телевизионный фильм режиссёра Вадима Гнедкова, поставленный по рассказу алтайского писателя Евгения Гущина "Красные лисы" в 1977 году.Главные герои фильма - молодая доярка и механизатор, жители обыкновенного сибирского села. Их любовь вдруг стала не только их личным делом, а смятением, завистью, болью многих людей.Производство: СССР, НовосибирсктелефильмЖанр: Короткометражный, ДрамаРежиссер: Вадим ГнедковАктеры: Альберт Дорожко, Ирина Нахаева, Дмитрий Бутенко, Михаил Стрелков, Т. Лосева, Анастасия Гаршина, И. Баранов, Евгений Лемешонок, М. Манюнин, Л. СумниковаПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEBCFE4158A58FC0B291749855BDB40F3C07E12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058942   (465968) от 02.10.2016
-
-Конец Чёрных рыцарей (1969) WEBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465968.jpg" />
-</div>
-
-
-###  Подробнее
-
-О разоблачении советскими разведчиками неонацистской организации «Черные рыцари», которая пыталась возродить фашистское движение в Европе. Действие происходит в 1956 году во Франции.Производство: СССР, Центральное телевидениеЖанр: Детектив, ДрамаРежиссер: Вячеслав БровкинАктеры: Борис Иванов, Леонид Евтифьев, Геннадий Некрасов, Ирина Карташёва, Сергей Цейц, Константин Михайлов, Вячеслав Бутенко, Андрей Цимбал, Владимир Шурупов, Михаил ПогоржельскийПродолжительность: 01:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33250445B26CB067E7416D4828DF98978C304CC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

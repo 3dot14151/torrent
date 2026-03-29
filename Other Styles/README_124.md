@@ -1,3 +1,61 @@
+###  Публикация: 1177837   (355630) от 28.10.2017
+
+Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные дела 2 (A Netflix Original Series Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkin in Hawkins (02:36)
+02. Home (01:50)
+03. Eulogy (03:40)
+04. On the Bus (02:04)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119B32CC7F7AC50BF627D0F5B10F507630FA4E14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177833   (355501) от 28.10.2017
+
+Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ragnarok Suite (08:53)
+02. Running Short on Options (02:47)
+03. Thor: Ragnarok (01:10)
+04. Weird Things Happen (01:47)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0517EC09545EA89654164F9A15C343172FC05818
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177834   (355496) от 28.10.2017
 
 Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -6,7 +64,7 @@ Mark Mothersbaugh - Thor: Ragnarok / Тор Рагнарёк (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355496.jpg" />
+  <img src="Z:/picture/008/save_picture_355496.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355312.jpg" />
+  <img src="Z:/picture/008/save_picture_355312.jpg" />
 </div>
 
 
@@ -70,7 +128,7 @@ Behzad - 4 albums (1999 - 2007) [MP3|320 кб/с]<New age, Flamenco, Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_355050.jpg" />
+  <img src="Z:/picture/005/save_picture_355050.jpg" />
 </div>
 
 
@@ -105,7 +163,7 @@ David Arkenstone - Desert Spa (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Rel
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354445.jpg" />
+  <img src="Z:/picture/008/save_picture_354445.jpg" />
 </div>
 
 
@@ -134,7 +192,7 @@ Greg Maroney - Fall (2018) [MP3|320 Kbps] <New Age, Instrumental>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354271.jpg" />
+  <img src="Z:/picture/008/save_picture_354271.jpg" />
 </div>
 
 
@@ -163,7 +221,7 @@ Ernest Lyons - Sleep Naturally (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354266.jpg" />
+  <img src="Z:/picture/008/save_picture_354266.jpg" />
 </div>
 
 
@@ -192,7 +250,7 @@ Toskana & Chakra's Dream - Chakra Meditation Music (2018) [MP3|320 Kbps] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354150.jpg" />
+  <img src="Z:/picture/008/save_picture_354150.jpg" />
 </div>
 
 
@@ -221,7 +279,7 @@ Two Steps from Hell - Illumina (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353864.jpg" />
+  <img src="Z:/picture/008/save_picture_353864.jpg" />
 </div>
 
 
@@ -250,7 +308,7 @@ VA - Dreamline 3 (2017) [MP3|320 Kbps] <New Age, Balearic, Leftfield>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353705.jpg" />
+  <img src="Z:/picture/008/save_picture_353705.jpg" />
 </div>
 
 
@@ -279,7 +337,7 @@ VA - Cytus OST v.5.0.0 (2013) [MP3|128-192 Kbps] <Soundtrack>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353701.jpg" />
+  <img src="Z:/picture/008/save_picture_353701.jpg" />
 </div>
 
 
@@ -306,7 +364,7 @@ Carlos Rodrigo - Argentine Tango (2001) [MP3|~160 кб/с (V4)]<Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353514.jpg" />
+  <img src="Z:/picture/008/save_picture_353514.jpg" />
 </div>
 
 
@@ -335,7 +393,7 @@ VA - The Bodyguard (Original Soundtrack Album) (1992) Japanese Edition [FLAC|ima
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353506.jpg" />
+  <img src="Z:/picture/008/save_picture_353506.jpg" />
 </div>
 
 
@@ -364,7 +422,7 @@ Jean Michel Jarre - Revolutions (1988) Remastered / 2015, Sony Music / [FLAC|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353431.jpg" />
+  <img src="Z:/picture/008/save_picture_353431.jpg" />
 </div>
 
 
@@ -393,7 +451,7 @@ Jose Dolores y su Sax Maravilloso - Sax Romantico (2015) [MP3|256 кб/с]<Saxop
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353414.jpg" />
+  <img src="Z:/picture/008/save_picture_353414.jpg" />
 </div>
 
 
@@ -422,7 +480,7 @@ Music Factory - Romantic Saxophone (2014) [MP3|256 кб/с]<Saxophone, Instrumen
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353314.jpg" />
+  <img src="Z:/picture/008/save_picture_353314.jpg" />
 </div>
 
 
@@ -451,7 +509,7 @@ Back to Earth - Secret Spaces (1998) [FLAC|Lossless|tracks + .cue] <New age, Ins
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352939.jpg" />
+  <img src="Z:/picture/008/save_picture_352939.jpg" />
 </div>
 
 
@@ -480,7 +538,7 @@ Mehdi - Christmas Treasures (2001) [FLAC|Lossless|tracks + .cue] <New age, Instr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352786.jpg" />
+  <img src="Z:/picture/008/save_picture_352786.jpg" />
 </div>
 
 
@@ -509,7 +567,7 @@ Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [FLAC|tracks
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352767.jpg" />
+  <img src="Z:/picture/008/save_picture_352767.jpg" />
 </div>
 
 
@@ -538,7 +596,7 @@ Curtis Macdonald - Breeze (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352482.jpg" />
+  <img src="Z:/picture/008/save_picture_352482.jpg" />
 </div>
 
 
@@ -567,7 +625,7 @@ Thomas Barquee - The Sound of Om (2003) [FLAC|Lossless|tracks + .cue] <Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352374.jpg" />
+  <img src="Z:/picture/008/save_picture_352374.jpg" />
 </div>
 
 
@@ -596,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352360.jpg" />
+  <img src="Z:/picture/008/save_picture_352360.jpg" />
 </div>
 
 
@@ -631,7 +689,7 @@ Michel Pepe - La purete de l'Esprit (2016) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352177.jpg" />
+  <img src="Z:/picture/008/save_picture_352177.jpg" />
 </div>
 
 
@@ -660,7 +718,7 @@ Jim Brickman - Hope (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352175.jpg" />
+  <img src="Z:/picture/008/save_picture_352175.jpg" />
 </div>
 
 
@@ -689,7 +747,7 @@ Reuel - Transformation (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352131.jpg" />
+  <img src="Z:/picture/008/save_picture_352131.jpg" />
 </div>
 
 
@@ -703,64 +761,6 @@ Reuel - Transformation (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13C4212CF20C69A5A22F19AB4C2A900A328DF755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072076   (352004) от 13.11.2016
-
-Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival (02:51)
-02. Heptapod B (03:43)
-03. Sapir- Whorf (01:17)
-04. Hydraulic Lift (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D567A4E7C6F25201CBD0AA13720D65BA9C4CB5C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072728   (352003) от 13.11.2016
-
-L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень странные дела (Soundtrack Highlights and Inspirations) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Things Theme Extended (01:32)
-02. Kids (02:40)
-03. Nancy & Barb (01:07)
-04. Chromatic Mechanics 2 (03:40)(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaveПродолжительность: 00:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BB9FBBA149017393077AD1E9E2888CDB3CDFB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,113 @@
+###  Публикация: 1425624   (220843) от 21.11.2020
+
+Photomatix Pro Standalone Program 6 v6.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photomatix Pro – программа для профессиональных фотографов и продвинутых любителей. Photomatix Pro комбинирует любое число различных кадров в сцене с высокой контрастностью в одно изображение с деталями и всеми тенями. Photomatix Pro – автономная система, которая расширяет динамический диапазон фотографов.
+
+Photomatix может автоматически создавать HDR изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2020Разработчик: HDRsoftПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D633444FC3FC0B5E6B0F386FFFDFA59DF7F7606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084465   (220813) от 18.12.2016
+
+VueScan Pro 9.5.63 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220813.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan — программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 декабря 2016Разработчик: Hamrick SoftwareПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAAB9F4E185FEBB094467902EA80D90E114E3DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966334   (220801) от 17.12.2015
+
+Pacifist 3.5.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pacifist — удобная распаковка .pkg
+Если вы являетесь активным пользователем Mac OS, то вполне вероятно, что однажды вам уже было необходимо открыть файл с расширением .pkg. Сделать это можно при помощи нескольких способов, но приложение под названием Pacifist позволяет сделать это наиболее быстро и удобно.
+
+Pacifist – приложение, которое открывает пакеты Mac OS X (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 декабря 2015Разработчик: CharlesSoftПоддерживаемая ОС: 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCBCC482B95DC2E7F407F222BCCB7219C5C3A265
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425612   (220728) от 21.11.2020
+
+Jump Desktop (RDP, VNC, Fluid) 8.6.19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jump Desktop (RDP & VNC) - программа, которая делает доступной возможность подключиться к вашему удаленному рабочему столу используя протокол RDP и VNC!
+Существует множество приложения для удаленного управления рабочим столом вашего компьютера, однако многие из них не подходят рядовым пользователям по ряду причин. Какие — то слишком простые, работают некачественно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2020Разработчик: Phase Five SystemsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1B7A4C4E829220C57EBEE42960A8BFC9811460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425502   (220521) от 21.11.2020
 
 Adobe Zii 2021 - Universal Patcher 6.0.3 [En]
@@ -6,7 +116,7 @@ Adobe Zii 2021 - Universal Patcher 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220521.jpg" />
+  <img src="Z:/picture/005/save_picture_220521.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Adobe Premiere Rush v1.5.38 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220468.jpg" />
+  <img src="Z:/picture/005/save_picture_220468.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ Adobe InDesign 2020 15.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220453.jpg" />
+  <img src="Z:/picture/005/save_picture_220453.jpg" />
 </div>
 
 
@@ -84,7 +194,7 @@ Total Video Converter Pro 4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220397.jpg" />
+  <img src="Z:/picture/005/save_picture_220397.jpg" />
 </div>
 
 
@@ -111,7 +221,7 @@ CrossOver 21.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220380.jpg" />
+  <img src="Z:/picture/005/save_picture_220380.jpg" />
 </div>
 
 
@@ -138,7 +248,7 @@ Boom 2 v1.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220354.jpg" />
+  <img src="Z:/picture/005/save_picture_220354.jpg" />
 </div>
 
 
@@ -165,7 +275,7 @@ CleanMyMac X 4.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220353.jpg" />
+  <img src="Z:/picture/005/save_picture_220353.jpg" />
 </div>
 
 
@@ -193,7 +303,7 @@ OmniGraffle Pro 7.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220301.jpg" />
+  <img src="Z:/picture/005/save_picture_220301.jpg" />
 </div>
 
 
@@ -219,7 +329,7 @@ Feeder 4 v.4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220276.jpg" />
 </div>
 
 
@@ -246,7 +356,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220268.jpg" />
+  <img src="Z:/picture/005/save_picture_220268.jpg" />
 </div>
 
 
@@ -273,7 +383,7 @@ Capture One 21 Pro Beta 5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220239.jpg" />
+  <img src="Z:/picture/005/save_picture_220239.jpg" />
 </div>
 
 
@@ -300,7 +410,7 @@ FonePaw iOS Transfer for Mac 5.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220217.jpg" />
 </div>
 
 
@@ -326,7 +436,7 @@ Magic Battery 7.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220186.jpg" />
 </div>
 
 
@@ -353,7 +463,7 @@ Commander One PRO 1.2.1668 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220185.jpg" />
+  <img src="Z:/picture/005/save_picture_220185.jpg" />
 </div>
 
 
@@ -382,7 +492,7 @@ Scrutiny 12.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220180.jpg" />
 </div>
 
 
@@ -409,7 +519,7 @@ Adobe Photoshop Lightroom Classic CC 2019 v8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220153.jpg" />
+  <img src="Z:/picture/005/save_picture_220153.jpg" />
 </div>
 
 
@@ -435,7 +545,7 @@ Luxion KeyShot Pro 10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220139.jpg" />
+  <img src="Z:/picture/005/save_picture_220139.jpg" />
 </div>
 
 
@@ -461,7 +571,7 @@ Wirecast Pro 11.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219984.jpg" />
+  <img src="Z:/picture/005/save_picture_219984.jpg" />
 </div>
 
 
@@ -487,7 +597,7 @@ Capture One Pro 9.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219919.jpg" />
+  <img src="Z:/picture/005/save_picture_219919.jpg" />
 </div>
 
 
@@ -514,7 +624,7 @@ XCOrganizer 1.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219901.jpg" />
+  <img src="Z:/picture/005/save_picture_219901.jpg" />
 </div>
 
 
@@ -540,7 +650,7 @@ DirEqual 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219892.jpg" />
+  <img src="Z:/picture/005/save_picture_219892.jpg" />
 </div>
 
 
@@ -567,7 +677,7 @@ Mac DVDRipper Pro 10.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219885.jpg" />
+  <img src="Z:/picture/005/save_picture_219885.jpg" />
 </div>
 
 
@@ -579,113 +689,6 @@ Mac DVDRipper Pro 10.0.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEB60637E3C4998FFC040C2174A6299B01DA78D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651995   (219878) от 09.08.2023
-
-MetaImage for Mac 2.5.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219878.jpg" />
-</div>
-
-
-###  Подробнее
-
-MetaImage - это идеальный инструмент для чтения, записи и редактирования метаданных изображений. Это первый редактор, который позволяет редактировать теги EXIF, IPTC и XMP, а также MakerNotes в красивом и знакомом интерфейсе.
-Приложение разработано для улучшения вашего рабочего процесса. Пользователи могут создавать и управлять пресетами. Кроме того, для географических (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.08.2023Разработчик: © 2012-2023 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41515B68AA98005410B4812A37EE919E28C69417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514118   (219844) от 02.12.2021
-
-Boxy SVG 3  v3.71.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: © 2021 Jaroslaw FoksaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D1595519A9B17491B68546B921E2B946BCEC2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514226   (219838) от 02.12.2021
-
-Filmage Converter-ConvertVideo 1.1.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filmage Converter - это быстрый и простой в использовании видео конвертер. Для использования этого конвертера не требуется никаких настроек и технических знаний.
-Filmage Converter позволяет конвертировать видео, извлекать аудио из видео, редактировать видео, обрезать и обрезать видео и многое другое с помощью расширенных инструментов редактирования.
-Filmage Converter (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: © 2021 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAD698F3188367D308026215F2E27C77E192079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652001   (219837) от 09.08.2023
-
-MetaRename for Mac 1.0.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219837.jpg" />
-</div>
-
-
-###  Подробнее
-
-MetaRename — это удобный инструмент для фотографов и видеооператоров, которым необходимо регулярно управлять обширными коллекциями файлов. Используя MetaRename, вы можете легко переименовывать и упорядочивать свои фотографии и видео на основе метаданных, таких как модель камеры, дата съемки и местоположение, что упрощает поиск нужных файлов, когда они вам нужны.Тип издания: macOS SoftwareРелиз состоялся: 08.08.2023Разработчик: © 2012-2023 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C857A3D6596205E534D900256130D0EA4DC9E50
 ```
 
 https://mybot314.ru/tekegram_catalog/

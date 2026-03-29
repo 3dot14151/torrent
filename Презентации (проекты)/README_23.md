@@ -1,3 +1,107 @@
+###  Публикация: 1129388   (722033) от 28.04.2017
+
+Проекты - VideoHive - Flat And Fun Promo - 19712577 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_722033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flat And Fun Promo - проект АЕ для рекламы, презентаций, модного показа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1E1B09BDD0E1250C495CFFBB605DD2D86C66B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790478   (721948) от 27.05.2014
+
+VideoHive – Logistics Company Delivery Promo - 6372794 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_721948.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора: Этот проект поможет вам показать процесс экспресс(быстрой) доставки товара от отправителя до получателя. Проект сделан без использования внешних плагинов. Просто добавьте ваш логотип и текст и все готово. Все цвета легко можно поменять.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41B222349334A90EB5BA2DD0D1626DEBA9BB45A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129368   (721941) от 28.04.2017
+
+Проекты - VideoHive - Fast YouTube Promo / Intro - 19707480 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_721941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fast YouTube Promo / Intro - это хорошая и быстрая возможность для любого блогера сделать свой канал YouTube более стильным и красивым. Проект может быть использован для игрового канала, корпоративного канала, рекламы, презентации, портфолио. Можно так же использовать в любых социальных сетях, что бы произвести впечатление на публику.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E10AF9E8AE5035AC82EAC10E80D31F15453C98F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023686   (721914) от 06.06.2016
+
+Проекты - VideoHive - Glitch Opener - 12842089 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_721914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cглаженный шаблон глюк открывалка, который является стильным интро для вашего фильма!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF024FB9CAE73FFFF0CA195134CBE5F6A85CAE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023751   (721708) от 06.06.2016
 
 Проекты - VideoHive - Giant Cinematic Demo [AEP]
@@ -6,7 +110,7 @@
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721708.jpg" />
+  <img src="Z:/picture/008/save_picture_721708.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721206.jpg" />
+  <img src="Z:/picture/008/save_picture_721206.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719927.jpg" />
+  <img src="Z:/picture/008/save_picture_719927.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719870.jpg" />
+  <img src="Z:/picture/008/save_picture_719870.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719724.jpg" />
+  <img src="Z:/picture/008/save_picture_719724.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719605.jpg" />
+  <img src="Z:/picture/008/save_picture_719605.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719589.jpg" />
+  <img src="Z:/picture/008/save_picture_719589.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717773.jpg" />
+  <img src="Z:/picture/008/save_picture_717773.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716423.jpg" />
+  <img src="Z:/picture/008/save_picture_716423.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716350.jpg" />
+  <img src="Z:/picture/008/save_picture_716350.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715712.jpg" />
+  <img src="Z:/picture/008/save_picture_715712.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715610.jpg" />
+  <img src="Z:/picture/008/save_picture_715610.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714780.jpg" />
+  <img src="Z:/picture/008/save_picture_714780.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713802.jpg" />
+  <img src="Z:/picture/008/save_picture_713802.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713404.jpg" />
+  <img src="Z:/picture/008/save_picture_713404.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713310.jpg" />
+  <img src="Z:/picture/008/save_picture_713310.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712642.jpg" />
+  <img src="Z:/picture/008/save_picture_712642.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712515.jpg" />
+  <img src="Z:/picture/008/save_picture_712515.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711629.jpg" />
+  <img src="Z:/picture/008/save_picture_711629.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711623.jpg" />
+  <img src="Z:/picture/008/save_picture_711623.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711476.jpg" />
+  <img src="Z:/picture/008/save_picture_711476.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711266.jpg" />
+  <img src="Z:/picture/008/save_picture_711266.jpg" />
 </div>
 
 
@@ -566,116 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CA6F63182A2F2DDAE4F544CF6A285C099B1B16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219726   (711263) от 15.04.2018
-
-Проекты - VideoHive - World War Broadcast Package Vol.2 - 15758420 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711263.jpg" />
-</div>
-
-
-###  Подробнее
-
-World War Broadcast Package - это широковещательный пакет для телевизионных передач.
-Создайте свою собственную трехмерную сцену битвы в стиле стоп-кадра / замедленного движения.
-Вы можете изменять текстуры, анимацию камеры и многое другое.
-В пакет включено: шаблон для вступления, переход, интерактивная карта, нижняя треть, шаблон биографий, шаблон технических параметров.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6C7307B5DA71BA9E5C65312249421E9E55F53C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219808   (711262) от 15.04.2018
-
-Проекты - VideoHive - Broadcast Promo 4K - 20731575 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Broadcast Promo 4K - это профессиональный, высококачественный, хорошо организованный и простой в настройке проект, который состоит из модулей. Вы можете изменить длину каждого модуля.
-Вы можете использовать любую часть проекта по своему усмотрению.
-Используйте этот проект для своего канала Youtube, своего блога, трансляционного ТВ, фильма или телешоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27D20EAA6649B8D62AFB73F0A6EE57F29722B72B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219624   (711260) от 15.04.2018
-
-Проекты - VideoHive - Animated Map Path v.3 - 17511599 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711260.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОбновлениеФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A4887D7F79CB6CFA93DDD4407B0F9939ED42D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286590   (710361) от 03.03.2019
-
-Проекты - VideoHive - Instagram Stories Bundle (v.1) - 22068283 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продвигайте свои продукты, события, сообщения в блогах, делитесь своими мыслями, вдохновляющими цитатами, забавными и полезными фактами в Instagram, Facebook и других социальных сетях. Произведите впечатление на вашу аудиторию с помощью этого шаблона AE.
-Первая версия проекта.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B049D15C22EF3E5CABE73C2821C8F25637DB376
 ```
 
 https://mybot314.ru/tekegram_catalog/

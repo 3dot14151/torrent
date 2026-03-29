@@ -1,3 +1,134 @@
+###  Публикация: 454741   (1037654) от 21.01.2021
+
+А. Диброва | Поделки из соленого теста (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем не обязательно быть профессиональным художником или волшебником, чтобы смастерить из соленого теста маленькое чудо и испытать радость творчества. Эта книга воспитает в вашем ребенке художественный вкус, поможет развить пространственное мышление и обучит его основам композиции раньше, чем он откроет для себя значения этих понятий.
+Следуя пошаговым инструкциям, (   Читать дальше...   )Жанр: Поделки своими рукамиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74821492FAC52BAA2B5980E0C674DED1F1E5E8F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350260   (1037651) от 21.01.2021
+
+И.А. Лыкова | Лепка из пластилина. Букашки на лугу (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект включает технологические карты с "пошаговым" показом техники создания игрушек из пластилина. На одной стороне карты нагладно показана изобразительная техника - способ создания образа по методу "шаг за шагом", на другой стороне представлены варианты образов или сюжетные композиции.Жанр: Детские поделкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52AC845704617EE93D868A611FFC3CAAA70E360C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 350274   (1037642) от 21.01.2021
+
+И.А. Лыкова | Лепка из пластилина. Цирк (2007) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект включает технологические карты с "пошаговым" показом техники создания игрушек из пластилина. На одной стороне карты нагладно показана изобразительная техника - способ создания образа по методу "шаг за шагом", на другой стороне представлены варианты образов или сюжетные композиции.Жанр: Детские поделкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F1549C7686D8D5841DD4F9AF464DE7F5B09EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504301   (1037608) от 21.01.2021
+
+И.А. Ермакова | Игры с мячом для самых маленьких (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Подвижные Игры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игры с мячом для самых маленьких от  до 3 лет. Многие мамы, когда еще только ждут малыша начинают пользоваться большим надувным ортопедическим мячиком — фитболом! На нем так удобно лежать, чтобы снять нагрузку со спины на последних сроках беременности. А для будущего малыша — это прекрасный тренажер. В этой книге вы найдете подробный инструктаж с картинками, как (   Читать дальше...   )Жанр: Активные игрыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DD41F5FDCFF46FA97B24AD88EF91F0B98E3F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 736785   (1037409) от 22.01.2021
+
+Юлия Иванова | Шоколадно-аппетитная история (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники этой истории – и коренные жители Южной Америки, и испанские мореплаватели, которые впервые привезли какао-бобы в Европу, и представители испанской, французской и русской знати. Книга рассказывает о том, как на протяжении веков в разных странах люди открывали для себя рецепты приготовления любимого лакомства.Жанр: Детская образовательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113AABC01828AB0C2D096E5278A7B4120BBC45C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441759   (1037406) от 22.01.2021
 
 Ирина Андржеевская | Биология. Сильное мышление через открытые задачи (2021) [PDF]
@@ -6,7 +137,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037406.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037381.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037360.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037359.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037357.jpg" />
 </div>
 
 
@@ -140,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037342.jpg" />
 </div>
 
 
@@ -169,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037335.jpg" />
 </div>
 
 
@@ -195,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037333.jpg" />
 </div>
 
 
@@ -221,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037244.jpg" />
 </div>
 
 
@@ -249,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037216.jpg" />
 </div>
 
 
@@ -276,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037164.jpg" />
 </div>
 
 
@@ -304,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037135.jpg" />
 </div>
 
 
@@ -330,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037103.jpg" />
 </div>
 
 
@@ -358,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037097.jpg" />
 </div>
 
 
@@ -384,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037092.jpg" />
 </div>
 
 
@@ -410,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037077.jpg" />
 </div>
 
 
@@ -436,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037073.jpg" />
 </div>
 
 
@@ -462,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037056.jpg" />
 </div>
 
 
@@ -488,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036945.jpg" />
 </div>
 
 
@@ -514,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036865.jpg" />
 </div>
 
 
@@ -541,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036859.jpg" />
 </div>
 
 
@@ -554,142 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:456052743B270619526EABCCEAE414ABB4B1F556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485436   (1036796) от 24.01.2021
-
-Пол Б. Дэвис | Драконы Рисуем акварельными красками (2011) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в мир магии и волшебства! Эта необыкновенная книга познакомит вас с самыми опасными сказочными существами - драконами - и расскажет, как научиться рисовать разнообразных драконов акварельными красками. Вы научитесь создавать фантастические картины с помощью простых приемов работы с акварелью и узнаете, как рисовать каждую деталь фигуры дракона - (   Читать дальше...   )Жанр: Живопись, рисованиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B401532565592B2821514950EAEB103AFE794B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544151   (1036793) от 24.01.2021
-
-Е. Немешаева | Рисуем пальчиками. Первые уроки рисования (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите несказанное удовольствие от рисования пальчиками! Каждому ребенку понравится окунуть пальчик в краску и оставить отпечаток на бумаге. Это позволит даже самым маленьким познать радость творчества. Все рисунки в этой книге выполнены кончиками пальцев, ладонью или кулачком, что позволяет придумывать разнообразные формы и сюжеты. Несложно стать профессионалом (   Читать дальше...   )Жанр: Учебно-методическое пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28AA84D1C019D69BB576D1D61AB947B0F127B8BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665138   (1036791) от 24.01.2021
-
-Стенли Молцмен | Рисуем пейзаж (2003) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американский художник рассказывает и показывает, как отображать на бумаге или картоне деревья, траву, снег, камни, облака, водоемы и прочие красоты загородной природы.
-Для широкого круга начинающих художников-графиков.
-Ученики, с которыми я имею дело на протяжении многих лет, спрашивают, что вдохновляло меня при создании такой-то картины или каким сортом карандашей (   Читать дальше...   )Жанр: Изобразительное исскуствоФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AFA6C437E67DD04D6CFCCB14A918015B598F1C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442557   (1036634) от 25.01.2021
-
-Алиса Ткачева | Наблюдаем и изучаем. Животные (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга "Животные" не только расскажет юному читателю об удивительном животном мире, но и позволит самому поучаствовать в жизни лесных обитателей, ведь в ней множество интерактивных заданий, которые помогут усвоить материал и просто весело провести время.
-
-Где живут животные? Кто и как готовит на зиму запасы? Как понять, кто прошел по тропинке по следам? (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA67E5CC54E98446B0378BAEA61C6F2693BB1D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442546   (1036629) от 25.01.2021
-
-Виктория Ригарович | Моя копилка тайн. Копилка тайн для маленьких принцесс (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036629.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ты держишь в руках волшебную книгу. Да-да, именно волшебную, ведь она поможет тебе из обычной девочки превратиться в настоящую принцессу. И для этого тебе не понадобятся золотая корона, роскошный замок и красивая карета.
-
-Загляни в копилку тайн - и ты узнаешь, как ухаживать за кожей и волосами, какие выбрать упражнения для утренней зарядки, как подобрать стильную (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB08C6E38E69DA326013DC0E9F11895DB5967CE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

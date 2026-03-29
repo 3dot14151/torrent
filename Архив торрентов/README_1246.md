@@ -6,7 +6,7 @@ VA - Summer Vibes Beats 1 (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773266.jpg" />
+  <img src="Z:/picture/008/save_picture_773266.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Advanced Installer 17.1.2 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773246.jpg" />
+  <img src="Z:/picture/008/save_picture_773246.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Mozilla Firefox ESR 52.7.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773241.jpg" />
+  <img src="Z:/picture/008/save_picture_773241.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773233.jpg" />
+  <img src="Z:/picture/008/save_picture_773233.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Olivier Orand (Hol Baumann) - Related (2017) O'Breath [FLAC|Lossless|WEB-DL|trac
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773229.jpg" />
+  <img src="Z:/picture/008/save_picture_773229.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773214.jpg" />
+  <img src="Z:/picture/008/save_picture_773214.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773199.jpg" />
+  <img src="Z:/picture/008/save_picture_773199.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773192.jpg" />
+  <img src="Z:/picture/008/save_picture_773192.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ jv16 PowerTools 2017 4.1.0.1703 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773191.jpg" />
+  <img src="Z:/picture/008/save_picture_773191.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773186.jpg" />
+  <img src="Z:/picture/008/save_picture_773186.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ TreeSize Professional 6.3.7.1230 RePack by Kopejkin [Ua/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773185.jpg" />
+  <img src="Z:/picture/008/save_picture_773185.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Daum PotPlayer 1.7.1915 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773184.jpg" />
+  <img src="Z:/picture/008/save_picture_773184.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Ultra SKM - PANORAMA (2018) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773174.jpg" />
+  <img src="Z:/picture/008/save_picture_773174.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ FastStone Image Viewer 6.9 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773173.jpg" />
+  <img src="Z:/picture/008/save_picture_773173.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Easy MP3 Splitter 3.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773172.jpg" />
+  <img src="Z:/picture/008/save_picture_773172.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773168.jpg" />
+  <img src="Z:/picture/008/save_picture_773168.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Relaunch - Experience (2016) [MP3|320 кб/с] <Trance, Progressive House, Chill
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773160.jpg" />
+  <img src="Z:/picture/008/save_picture_773160.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773153.jpg" />
+  <img src="Z:/picture/008/save_picture_773153.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Qbserve 1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773151.jpg" />
+  <img src="Z:/picture/008/save_picture_773151.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Shimo 4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773150.jpg" />
+  <img src="Z:/picture/008/save_picture_773150.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Icecream Slideshow Maker 1.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773148.jpg" />
+  <img src="Z:/picture/008/save_picture_773148.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Free Studio 6.6.10.511 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773147.jpg" />
+  <img src="Z:/picture/008/save_picture_773147.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ ARCA Menards Series-2020. 3-й Этап. Талладега 200. Гонка / AR
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773124.jpg" />
+  <img src="Z:/picture/008/save_picture_773124.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ ImageRanger Pro Edition 1.7.2.1543 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773108.jpg" />
+  <img src="Z:/picture/008/save_picture_773108.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ App Cleaner & Uninstaller Pro 7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773104.jpg" />
+  <img src="Z:/picture/008/save_picture_773104.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ PDF Expert 2.3.2 (494) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773096.jpg" />
+  <img src="Z:/picture/008/save_picture_773096.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432952.jpg" />
+  <img src="Z:/picture/008/save_picture_432952.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - My Whole Life: Hip-Hop Collection (2019) [MP3|320 Kbps] <Hip Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425361.jpg" />
+  <img src="Z:/picture/008/save_picture_425361.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Team Dogz: 200 Rap Hits (Vol.01) (2019) [MP3|227-320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416721.jpg" />
+  <img src="Z:/picture/008/save_picture_416721.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Ultimate Collection RnB and Hip Hop (2017) [MP3|320 Kbps] <RnB, Hip Hop
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414554.jpg" />
+  <img src="Z:/picture/008/save_picture_414554.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Это Весь РЭП (2003) [MP3|128 Kbps] <Рэп, Хип-Хоп>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413597.jpg" />
+  <img src="Z:/picture/008/save_picture_413597.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Team Dogz: 170 Rap Hits (Vol.02) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412597.jpg" />
+  <img src="Z:/picture/008/save_picture_412597.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Hip-Hop Mega Hits (2022) CD, Compilation [MP3|320 Kbps] <Hip Hop, Gangsta, 
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410199.jpg" />
+  <img src="Z:/picture/008/save_picture_410199.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Rap: All Facts (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409078.jpg" />
+  <img src="Z:/picture/008/save_picture_409078.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Worldwide Rap Singles - Сентябрь 2020 (2020) [MP3|320 Kbps] <Rap, H
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408200.jpg" />
+  <img src="Z:/picture/008/save_picture_408200.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Hip-Hop Contest (2018) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387569.jpg" />
+  <img src="Z:/picture/008/save_picture_387569.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Beatport Dancehall: Sound Pack #186 (2020) [MP3|320 Kbps] <Dancehall, Riddi
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385511.jpg" />
+  <img src="Z:/picture/008/save_picture_385511.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Straight Outta Tennessee (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383501.jpg" />
+  <img src="Z:/picture/008/save_picture_383501.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Grace & Mercy: Hip-Hop Soul Control (2019) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383496.jpg" />
+  <img src="Z:/picture/008/save_picture_383496.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - In My Feelings: Lyric Rnb Compilation (2019) [MP3|320 Kbps] <Rhythm And Blu
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383386.jpg" />
+  <img src="Z:/picture/008/save_picture_383386.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Hip Hop Raised Me (2018) [MP3|320 Kbps] <Hip Hop, Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379446.jpg" />
+  <img src="Z:/picture/008/save_picture_379446.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Sunshine People (2019) [MP3|320 Kbps] <Dancehall, Reggae, Latin>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366215.jpg" />
+  <img src="Z:/picture/008/save_picture_366215.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Madness R&B: Sunny Radio Collection (2019) [MP3|320 Kbps] <R&B, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366034.jpg" />
+  <img src="Z:/picture/008/save_picture_366034.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Rap Battle 200 (2018) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365895.jpg" />
+  <img src="Z:/picture/008/save_picture_365895.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Rap Constellation: The New Concert (2019) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363392.jpg" />
+  <img src="Z:/picture/008/save_picture_363392.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Alive And Free: Grand Hip-Hop Collection (2019) [MP3|320 Kbps] <Hip-Hop, Ra
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363390.jpg" />
+  <img src="Z:/picture/008/save_picture_363390.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Seryoga (Серёга) - FightClub99 (2015) [MP3|320 кб/с]<Rap, Hip-hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355457.jpg" />
+  <img src="Z:/picture/008/save_picture_355457.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Reggae: The House Of Love (2017) [MP3|192-320 Kbps] <Reggae, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353457.jpg" />
+  <img src="Z:/picture/008/save_picture_353457.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - 100 Greatest 00s R&B Hits (2020) [MP3|320 Kbps] <R&B>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353255.jpg" />
+  <img src="Z:/picture/008/save_picture_353255.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Rhythm And Blues: Maximum Live (2018) [MP3|320 Kbps] <RnB, Soul>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351894.jpg" />
+  <img src="Z:/picture/008/save_picture_351894.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Golden A Capella (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351884.jpg" />
+  <img src="Z:/picture/008/save_picture_351884.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop, RnB, Reggae (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348411.jpg" />
+  <img src="Z:/picture/008/save_picture_348411.jpg" />
 </div>
 
 

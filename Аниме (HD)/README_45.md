@@ -1,3 +1,29 @@
+###  Публикация: 1235917   (141921) от 28.12.2018
+
+Hataraku Saibou | Cells at Work! | Клетки за работой [2018, TV, 13+SP] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человеческое тело в среднем состоит из 60 триллионов клеток, каждая выполняет свою работу. Однако когда мы ранимся, вирусы или бактерии вторгаются в наш организм или у нас возникает аллергическая реакция, то все — от тихих, но смертоносных лейкоцитов до умных нейронов — должны действовать сообща, чтобы противостоять кризису.Производство: Студия David Production / デイヴィッドプロダクションЖанр: комедияРежиссер: Судзуки КэнъитиПеревод: SovetRomantica (1-13), laci (1-13+SP)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 13 эп. по 25 мин. + 1SP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE60E07336E6BEECD61D0CC7714FAE693176879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252948   (141801) от 28.12.2018
 
 Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai / Rascal Does Not Dream of Bunny Girl Senpai / Эта глупая свинья не понимает мечту девочки-зайки! [2018, TV, 13] HDTV 720p raw
@@ -6,7 +32,7 @@ Seishun Buta Yarou wa Bunny Girl Senpai no Yume o Minai / Rascal Does Not Dream 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141801.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tenchi Muyou! Ryououki Dai Yon-ki / Тэнти - лишний! Рё-о-ки 4 [2
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141766.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Sengoku Night Blood | Ночная кровь эпохи Сенгоку [2017, T
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141593.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141548.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Shoujo Shuumatsu Ryokou | Поход девочек после конца све
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141298.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Beastars | Выдающиеся звери [2019, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140524.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Watashi, Nouryoku wa Heikinchi dette Itta yo ne! | Разве я не проси
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140445.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Rail Romanesque | Романтика рельсов [ТВ-1][2020, TV, 12 эп.]
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140444.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Assassins Pride | Гордость убийцы [2019, TV, 12 эп.] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140417.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ No Guns Life | Жизнь без оружия [ТВ-1] [2019, TV, 12 эп.] WEBR
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140292.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Comet Lucifer | Комета Люцифера [2015, TV, 12 эп.] HDTVRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140260.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Maou-jou de Oyasumi | Sleepy Princess in the Demon Castle | Сон в замке
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140167.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Taimadou Gakuen 35 Shiken Shoutai / 35-й учебный взвод Антима
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140144.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Kaginado | Кагинадо | Key и всякое [2021, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139958.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Shokugeki no Souma: San no Sara | Food Wars! The Third Plate | Кулинарн�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139685.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Idolish Seven: Second Beat! | Семёрка идолов (ТВ-2) [2020, TV, 15
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139163.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Argonavis from Bang Dream! Animation | Аргонавис из "Ура мечт�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139111.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Vinland Saga / Сага о Винланде [2019, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138583.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Noblesse | Дворянство [2020, TV, 13] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138107.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Magatsu Wahrheit: Zuerst | MWZ | Бедствие Вархайта [2020, TV, 12
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138066.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Kamisama ni Natta hi / The Day I Became a God / День, когда я стал
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138029.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Dogeza de Tanondemita | I Tried Asking While Kowtowing | Умоляя на ко�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137986.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Kabukichou Sherlock | Case File nº221: Kabukicho | Шерлок из Кабук
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137914.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ TsukiPro The Animation / ЦукиПро Аниме [2017, TV, 13] WEBRip 720p ra
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137828.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137800.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4651928BCFF67DD0B8D20BE12EC79C6412EEA45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186826   (137797) от 31.12.2017
-
-Itsudatte Bokura no Koi wa 10 Centi Datta. | Our Love Has Always Been 10 Centimeters Apart. | Мы всегда были в 10 сантиметрах друг от друга. [2017, TV, 6] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья ветка этой истории, в этот раз не полнометражный фильм, а 6-серийное аниме, расскажет про отношения Мио и Харуки, которые всегда рядом, всего в 10 сантиметрах друг от друга, но всё никак не могут преодолеть это расстояние.Производство: Lay-duceЖанр: романтика, повседневностьРежиссер: Намба ХитосиПеревод: AniplayЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 6 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89AD7EEDEDBE7ACF72F7BEEF92D0C302277FEFA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

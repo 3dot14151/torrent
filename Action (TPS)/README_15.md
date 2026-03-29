@@ -1,3 +1,159 @@
+###  Публикация: 1022741   (726884) от 03.06.2016
+
+Senran Kagura: Shinovi Versus (2016) [En/Ja] (1.0) License SKIDROW
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senran Kagura: Shinovi Versus — это новая экшен игра от Японской студии XSEED Games, которая рассказывает о девушках-ниндзя (Шиноби) и имеет множество комбо и супер атак, при которых одежда врагов и самих героинь разрывается на маленькие клочья. В игре представлено 20 уникальных Шиноби-войнов, каждый из которых имеет свое собственное уникальное оружие, технику ведения (   Читать дальше...   )Тип издания: LicenseРазработчик: TamsoftЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Японский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADF96F6003108FB73DF6B47657060DA1F57C1E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399613   (726132) от 01.08.2020
+
+Blades of Time (2012) [Ru/Multi] (1.0/dlc) License GOG [Limited Edition]
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аюми - бесстрашная охотница за сокровищами. Она великолепно вооружена и необычайно прекрасна. В поисках ценных трофеев девушка отправляется на таинственный и, конечно же, полный опасностей остров. Как выяснилось, это место богато не только сокровищами - оно буквально пропитано гнетущей магией Хаоса. А очень скоро Аюми поймет, что остров скрывает множество древних (   Читать дальше...   )Тип издания: LicenseРазработчик: Gaijin EntertainmentЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: Русский, Английский, Французский, Испанский и другиеЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDD12D4C1ADAF868F40311421D4C7BF5CED90A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216502   (722832) от 09.04.2018
+
+Mafia III / Мафия 3 (2016) [Ru/Multi] (1.090.0/dlc) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_722832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во Вьетнаме Линкольн Клэй понял одно: семья - это не те, с кем ты вырос, а те, за кого ты готов умереть. Но когда итальянская мафия наносит удар в спину черной преступной группировке, когда-то заменившей Линкольну семью, он создает новую семью на руинах старой и принимается мстить, жестоко и умело. Если собрать правильных людей и не бояться замарать руки, можно подняться (   Читать дальше...   )Тип издания: LicenseРазработчик: Hangar 13Жанр: Action (Shooter), Racing (Cars), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:252A8BA942E9DCAA8D001EB2EB0B6C0BA224690D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218730   (720909) от 10.04.2018
+
+Extinction (2018) [Multi] (1.0) Repack Other s [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_720909.jpg" />
+</div>
+
+
+###  Подробнее
+
+По легенде они — Ravenii, наступающие орды кровожадных чудовищ ростом 45 метров, желающих истребить человечество. Вы — один из последних Стражей мира, солдат по имени Avil, обученный воевать с полчищами Ravenii. Уничтожайте великанов, защищайте города и помогайте беженцам. Враги нападают с земли и воздуха, так что нужно быстро определять стратегию. Для этого в игре (   Читать дальше...   )Тип издания: RepackРазработчик: Iron GalaxyЖанр: Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED867680B605A292DBFC98B422BC2C907AD78807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218863   (718985) от 11.04.2018
+
+The Last Hope: Atomic Bomb - Crypto War (2018) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжающаяся борьба между бандитами, террористами и президентом Джоном Трампом (John Trump) теперь переключилась на криптовалютность. Ваша миссия, хотя и не так просто, как может показаться, заключается в том, чтобы найти криптовалютные фермы и уничтожить их, тем самым положить конец этой бессмысленной войне раз и навсегда!Тип издания: LicenseРазработчик: Atomic Fabrik, Cristian ManolachiЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1166EE8B82E5915E742D0AD1D258BE161B396A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263567   (716269) от 28.02.2019
+
+Sunset Overdrive (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunset Overdrive — это площадка для всех постапокалиптических возможностей. Прыгайте, скользите и бегайте по стенам Сансет-сити, пользуясь смертоносным и необычным арсеналом. Полная свобода, уникальное оружие, изменяемые умения — все это полностью переформатирует жанр шутеров и создает большое и циничное приключение.Тип издания: RepackРазработчик: Insomniac Games, Blind Squirrel GamesЖанр: 3rd Person, Action, ShooterЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7B5164157F1916B2FAD270A0D7F8B9B38B9649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938678   (715121) от 09.06.2016
 
 Resident Evil 3 (2000) [Ru] (1.1) Repack Kalash49
@@ -6,7 +162,7 @@ Resident Evil 3 (2000) [Ru] (1.1) Repack Kalash49
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715121.jpg" />
+  <img src="Z:/picture/008/save_picture_715121.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714495.jpg" />
+  <img src="Z:/picture/008/save_picture_714495.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ HeadHunter / Охотник за головами (2001) [Ru/Multi] (0.5.8.2) Re
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714037.jpg" />
+  <img src="Z:/picture/008/save_picture_714037.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2/dlc) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713068.jpg" />
+  <img src="Z:/picture/008/save_picture_713068.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/En] (1.0/upd2) Repack =nemos= [Хbох
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713056.jpg" />
+  <img src="Z:/picture/008/save_picture_713056.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Driver: San Francisco (2012) [Ru/Multi] (1.04.1114) Reрack R.G. Механик�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713054.jpg" />
+  <img src="Z:/picture/008/save_picture_713054.jpg" />
 </div>
 
 
@@ -163,7 +319,7 @@ Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Decepticon [Ultimate Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712231.jpg" />
+  <img src="Z:/picture/008/save_picture_712231.jpg" />
 </div>
 
 
@@ -189,7 +345,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (130418) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711259.jpg" />
+  <img src="Z:/picture/008/save_picture_711259.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ Senran Kagura: Shinovi Versus (2016) [Jp/En] (1.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711196.jpg" />
+  <img src="Z:/picture/008/save_picture_711196.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ Onechanbara Z2: Chaos (2016) [Jp/En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711065.jpg" />
+  <img src="Z:/picture/008/save_picture_711065.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ Aragami (2016) [Ru/Multi] (01.08/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710278.jpg" />
+  <img src="Z:/picture/008/save_picture_710278.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ Silent Hill: Homecoming (2009) [Ru/En] (1.0) RePack Audioslave
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707691.jpg" />
+  <img src="Z:/picture/008/save_picture_707691.jpg" />
 </div>
 
 
@@ -320,7 +476,7 @@ The Swarm / Симбионт [Ru] (RePack) 2008 | Apple
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707227.jpg" />
+  <img src="Z:/picture/008/save_picture_707227.jpg" />
 </div>
 
 
@@ -347,7 +503,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) License RELOADED [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705883.jpg" />
+  <img src="Z:/picture/008/save_picture_705883.jpg" />
 </div>
 
 
@@ -373,7 +529,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704696.jpg" />
+  <img src="Z:/picture/008/save_picture_704696.jpg" />
 </div>
 
 
@@ -399,7 +555,7 @@ Eternity: The Last Unicorn (2019) [Ru/Multi] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704692.jpg" />
+  <img src="Z:/picture/008/save_picture_704692.jpg" />
 </div>
 
 
@@ -425,7 +581,7 @@ SIFU (2022) [Ru/Multi] (1.5.3.369/dlc) Repack Other s [Digital Deluxe Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704643.jpg" />
+  <img src="Z:/picture/008/save_picture_704643.jpg" />
 </div>
 
 
@@ -451,7 +607,7 @@ The Surge (2017) [Ru/Multi] (1.0.40559/dlc) Repack =nemos= [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703977.jpg" />
+  <img src="Z:/picture/008/save_picture_703977.jpg" />
 </div>
 
 
@@ -477,7 +633,7 @@ Eternity: The Last Unicorn (2019) [Ru/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702943.jpg" />
+  <img src="Z:/picture/008/save_picture_702943.jpg" />
 </div>
 
 
@@ -503,7 +659,7 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702843.jpg" />
+  <img src="Z:/picture/008/save_picture_702843.jpg" />
 </div>
 
 
@@ -514,162 +670,6 @@ Past Cure (2018) [Ru/Multi] (1.0/upd3) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAC8884FBF48F988D705068D1CA7444B9B5BAC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132707   (700231) от 09.05.2017
-
-Bayonetta (2017) [Ru/Multi] (1.0) Repack R.G. Origami
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный директор PlatinumGames Хидэки Камия, создавший знаменитые Resident Evil и Devil May Cry, а также компания SEGA запускают одну из самых прославленных action-игр всех времен на ПК. Байонетта. Единственная выжившая из старинного клана ведьм, сохранявшего равновесие между светом, тьмой и хаосом.Тип издания: RepackРазработчик: PlatinumGamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2DDBDC028E1C5C298BB27243CB67836B696381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221388   (694813) от 24.04.2018
-
-Deadly Tropics (2018) [En] (1.00) License PLAZA
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deadly Tropics - действие происходит на прекрасном тропическом острове. Но всю экзотику нивелируют опасные зомби, которые охраняют остров. Ваша задача - выжить и найти способ выбраться из этого смертельного места.Тип издания: LicenseРазработчик: Corpix GamesЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE670E3628D35456F23447106F4D52C383F318C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216709   (693410) от 12.03.2019
-
-Sniper Elite: Berlin 1945 (2005) [Multi] (1.0) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весна 1945. Ужасы Второй мировой подходят к концу… Советские и немецкие войска сошлись в кровопролитной битве за Берлин. Последняя надежда нацистов - работа по созданию атомной бомбы. Вы - снайпер-диверсант, заброшенный в Берлин, чтобы уничтожить всех фашистов, имеющих отношение к ядерным секретам, и примкнувших к ним предателей. Замаскировавшись под немецкого пехотинца, (   Читать дальше...   )Тип издания: LicenseРазработчик: MC2Жанр: Шутер, Экшн, ИсторическаяЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEA5844957DD8CE980FB09E449DAD6AEA11F8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135066   (692773) от 25.04.2018
-
-The Surge (2017) [Ru/Multi] (1.0.40559/upd10/dlc) Repack Other s [Complete Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в CREO – корпорацию, которая спасает мир! Отныне вы в числе ее сотрудников. И в первый же день случается катастрофа. Сознание ускользает, вы проваливаетесь в темноту... Придя в себя, вы обнаружите, что экипированы высокотехнологичным экзоскелетом, а еще вчера процветающий комплекс превращен в руины. Вышедшие из-под контроля роботы, спятившие от страха (   Читать дальше...   )Тип издания: RepackРазработчик: Deck13Жанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA08C8B7979B0DFC6FC1B30A23FDD92A04903EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888802   (691136) от 10.05.2015
-
-Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.1) SteamRip R.G. Origins
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691136.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лос-Сантос – город солнца, старлеток и вышедших в тираж звезд. Некогда предмет зависти всего западного мира, ныне это пристанище дрянных реалити-шоу, задыхающееся в тисках экономических проблем. В центре всей заварухи – троица совершенно разных преступников, отчаянно пытающихся ухватить удачу за хвост в непрекращающейся борьбе за место под солнцем. Бывший член уличной (   Читать дальше...   )Тип издания: Цифровая лицензияРазработчик: Rockstar North, Rockstar San Diego и Rockstar LeedsЖанр: Action (Shooter) / Racing (Cars) / 3D / 1st Person / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Испанский (Мексиканский), Корейский, Польский, Бразильский Португальский, Традиционный Китайский, ЯпонскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Испанский (Мексиканский), Корейский, Польский, Бразильский Португальский, Традиционный Китайский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0F04304AC7BF1A378AC0A776D84AF0165D91D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221837   (690951) от 26.04.2018
-
-Bullet Witch (2018) [Multi] (1.0) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Армия восставших демонов загнала человечество на грань вымирания. Единственный, кто стоит на их пути - это женщина в черном, с длинным ружьем, похожим на метлу ведьмы и её магические способности. Может, она опустилась с небес. Возможно, ад выплюнул ее обратно. В любом случае, это все, что есть у людей. Остановите полчища монстров и зажгите искру сопротивления человечества!Тип издания: LicenseРазработчик: Marvelous, Inc.Жанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE07DDD2D2951F8C0CEDA067E7C084EDA594E58
 ```
 
 https://mybot314.ru/tekegram_catalog/

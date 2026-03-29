@@ -1,3 +1,83 @@
+###  Публикация: 1314267   (520339) от 13.07.2019
+
+Диакон Георгий Максимов | Вне Церкви нет спасения (2012) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему святые отцы говорят, что только крещеный и уверовавший во Христа человек может спастись? Как быть с теми у кого «объективно не было возможности узнать Православие»? Почему мало спасающихся? Для чего Бог создал тех, про кого знал, что они не спасутся? Почему после смерти невозможно покаяние? Что такое в действительности рай и ад? На эти и другие вопросы отвечает (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF (для букридеров)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF9CB491CF166374D1B8E4263D8C85FA2A3B249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241658   (519286) от 18.08.2018
+
+Архимандрит Кирилл Костопулос | Папство - это ересь (2003) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_519286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предложенное вашему вниманию издание представляет собой рассуждения известного греческого богослова архимандрита Кирилла (Костопулоса) об основных экклезиологических и догматических расхождениях между Православной Церковью и Римо-католицизмом. Разумеется, эта проблематика не является чем-то новым для русской богословской мысли: она более чем достаточно была освещена (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F504AABA47677166C89D1A86F5AC6C20A5135FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241948   (517186) от 20.08.2018
+
+Н.С. Посадский (сост.) | Путём отцов. О служении святых Небесному Отечеству и народу [Сборник] (2014) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_517186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Христос говорит о Себе, что Он не для того пришёл, чтобы Ему служили, но чтобы послужить и отдать душу Свою для искупления многих (Мф. 20, 28). Тем самым Он показал всем Своим последователям пример настоящего служения людям, в основе которого лежит не угождение себе и человеческому в человеке, но жертва.
+
+Святые подвижники своей жизнью, служением ближнему, а через (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C42B4447AF50DAA86CBA5DD66A2BDD9ED16D785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311620   (517144) от 16.07.2019
 
 Протопресвитер Феодор Зисис | Битва за Православие (2010) [FB2, DOC, PDF]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517144.jpg" />
+  <img src="Z:/picture/008/save_picture_517144.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517091.jpg" />
+  <img src="Z:/picture/008/save_picture_517091.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516633.jpg" />
+  <img src="Z:/picture/008/save_picture_516633.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516132.jpg" />
+  <img src="Z:/picture/008/save_picture_516132.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515615.jpg" />
+  <img src="Z:/picture/008/save_picture_515615.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515135.jpg" />
+  <img src="Z:/picture/008/save_picture_515135.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515093.jpg" />
+  <img src="Z:/picture/008/save_picture_515093.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514123.jpg" />
+  <img src="Z:/picture/008/save_picture_514123.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514101.jpg" />
+  <img src="Z:/picture/008/save_picture_514101.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514097.jpg" />
+  <img src="Z:/picture/008/save_picture_514097.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513955.jpg" />
+  <img src="Z:/picture/008/save_picture_513955.jpg" />
 </div>
 
 
@@ -294,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513894.jpg" />
+  <img src="Z:/picture/008/save_picture_513894.jpg" />
 </div>
 
 
@@ -320,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513302.jpg" />
+  <img src="Z:/picture/008/save_picture_513302.jpg" />
 </div>
 
 
@@ -346,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513119.jpg" />
+  <img src="Z:/picture/008/save_picture_513119.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513064.jpg" />
+  <img src="Z:/picture/008/save_picture_513064.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513062.jpg" />
+  <img src="Z:/picture/008/save_picture_513062.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513056.jpg" />
+  <img src="Z:/picture/008/save_picture_513056.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513022.jpg" />
+  <img src="Z:/picture/008/save_picture_513022.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512832.jpg" />
+  <img src="Z:/picture/008/save_picture_512832.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511113.jpg" />
+  <img src="Z:/picture/008/save_picture_511113.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511107.jpg" />
+  <img src="Z:/picture/008/save_picture_511107.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511024.jpg" />
+  <img src="Z:/picture/008/save_picture_511024.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510330.jpg" />
+  <img src="Z:/picture/008/save_picture_510330.jpg" />
 </div>
 
 
@@ -598,85 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4108CA5F431E351E36F84820C90B29501B0ABCCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932686   (507244) от 31.08.2015
-
-Б. Кандидов | Церковь и шпионаж (1940) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра даёт фактический материал, разоблачающий контрреволюционную и шпионскую деятельность религиозных организаций в царской России и СССР.Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93A1862EB2C5C33F0E79DFBBF1218423694796A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539724   (506625) от 26.08.2012
-
-Преподобный Иоанн Дамаскин | Точное изложение православной веры [4 книги] (2007) [DOC]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преподобный Иоанн Дамаскин - автор многих текстов, которые используют в богослужении. Он известен своими апологетическими сочинениями в защиту иконопочитания.
-Книга "Точное изложение православной веры" представляет собой собрание высказываний преподобного Иоанна, касающиеся общих положений Православной веры, Церкви, морали и нравственности. Кроме того, (   Читать дальше...   )Жанр: Святоотеческое наследиеФормат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:540BB752B0A3485F1CC9C065124410BDD72829E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316575   (505085) от 27.07.2019
-
-Н.А. Фадеева (сост.) | Россия день за днём. Исторический календарь-альманах [Жития святых, события, судьбы...] (2010) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505085.jpg" />
-</div>
-
-
-###  Подробнее
-
-В календаре-альманахе приведено много интересных, нередко забытых, сведений о жизни наших предков, о православных праздниках, житиях святых, об исторических и военных событиях, высказываний великих людей, отрывки из летописей, богословских и художественных произведений. Собранные воедино материалы дают представление о тысячелетней истории нашей Родины в её истинности, (   Читать дальше...   )Жанр: Православие. ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE841E37D77A8D5A872C7D3FAE32F49E14E1CF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

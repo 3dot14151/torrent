@@ -6,7 +6,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715239.jpg" />
+  <img src="Z:/picture/008/save_picture_715239.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Any Video Converter Ultimate 6.2.3 RePack (&Portable) by arina-23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715237.jpg" />
+  <img src="Z:/picture/008/save_picture_715237.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIMP 4.51 Build 2073 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715234.jpg" />
+  <img src="Z:/picture/008/save_picture_715234.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2007 SP3 Enterprise + Visio Pro + Project Pro 12.0.6785.5000 (2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715226.jpg" />
+  <img src="Z:/picture/008/save_picture_715226.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ K-Lite Codec Pack 14.1.0 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715224.jpg" />
+  <img src="Z:/picture/008/save_picture_715224.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ FastStone Capture 8.2 Final + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715215.jpg" />
+  <img src="Z:/picture/008/save_picture_715215.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Money Pro - Personal Finance 2.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715194.jpg" />
+  <img src="Z:/picture/008/save_picture_715194.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Topaz DeNoise AI 2.2.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715179.jpg" />
+  <img src="Z:/picture/008/save_picture_715179.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ WiFi Signal 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715175.jpg" />
+  <img src="Z:/picture/008/save_picture_715175.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Ultra Mood - Study (Summer 2020 Edit) (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715173.jpg" />
+  <img src="Z:/picture/008/save_picture_715173.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Hard Reset Redux (2016) [Ru/Multi] (1.0) Repack YelloSOFT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715157.jpg" />
+  <img src="Z:/picture/008/save_picture_715157.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe Photoshop Lightroom CC 2015.6 (6.6) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715128.jpg" />
+  <img src="Z:/picture/008/save_picture_715128.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715127.jpg" />
+  <img src="Z:/picture/008/save_picture_715127.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Postbox 6.1.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715086.jpg" />
+  <img src="Z:/picture/008/save_picture_715086.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715084.jpg" />
+  <img src="Z:/picture/008/save_picture_715084.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715083.jpg" />
+  <img src="Z:/picture/008/save_picture_715083.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ iA Writer 5.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715082.jpg" />
+  <img src="Z:/picture/008/save_picture_715082.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715080.jpg" />
+  <img src="Z:/picture/008/save_picture_715080.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Downie 3 v3.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715077.jpg" />
+  <img src="Z:/picture/008/save_picture_715077.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715075.jpg" />
+  <img src="Z:/picture/008/save_picture_715075.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Insane Clown Posse - Fearless Fred Fury (2019) [FLAC|Lossless|tracks + .cue] <Ju
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715074.jpg" />
+  <img src="Z:/picture/008/save_picture_715074.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Ashampoo Driver Updater 1.2.0.49468 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715070.jpg" />
+  <img src="Z:/picture/008/save_picture_715070.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Transmission 2.93 (3c5870d4f5)  Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715068.jpg" />
+  <img src="Z:/picture/008/save_picture_715068.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Malwarebytes AdwCleaner 7.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715065.jpg" />
+  <img src="Z:/picture/008/save_picture_715065.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Basilisk: Ouka Ninpou Chou | Basilisk: The Ouka Ninja Scrolls | Василиск
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715060.jpg" />
+  <img src="Z:/picture/008/save_picture_715060.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Vivaldi 1.0.162.4 Technical Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715048.jpg" />
+  <img src="Z:/picture/008/save_picture_715048.jpg" />
 </div>
 
 

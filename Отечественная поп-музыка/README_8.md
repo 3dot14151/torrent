@@ -1,3 +1,90 @@
+###  Публикация: 1384850   (800849) от 22.05.2020
+
+Ёлка - Past Perfect (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я не такая, как вы!
+2. Синтетический мир
+3. Изоляция
+4. Красная роза(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17788CDA0B3AD45DFAECE9EF9D1F709EBA805DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384900   (800338) от 23.05.2020
+
+23:45 - Новое время (2013) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Моя любовь (3:47)
+02. Тайна (3:17)
+03. Сложно забыть (3:26)
+04. Плохая привычка (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767365F82EE20D612B63469F6AA08B79D266F088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122272   (799204) от 04.04.2017
+
+VA - Айсберг (1999-2001) 6CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shura - Сказка
+02. Алсу, Александр Шевченко - Дуэт
+03. Андрей Губин - Плачь, любовь
+04. Батыр - Забытый(   Читать дальше...   )Жанр: PopПродолжительность: 06:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A095947434F093073AD6E9776DB3BBE62C96F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518187   (798651) от 04.01.2019
 
 Крис Кельми - Greatest Hits (1993) [MP3|320 кб/с]<Pop, Rock>
@@ -6,7 +93,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798651.jpg" />
+  <img src="Z:/picture/008/save_picture_798651.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ VA - Трибьют t.A.T.u. "200 по встречной" (2021) [MP3|320 Kbps]
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798244.jpg" />
+  <img src="Z:/picture/008/save_picture_798244.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - 13 друзей Билана (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794887.jpg" />
+  <img src="Z:/picture/008/save_picture_794887.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794829.jpg" />
+  <img src="Z:/picture/008/save_picture_794829.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793947.jpg" />
+  <img src="Z:/picture/008/save_picture_793947.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ VA - Айсберг. Каникулы с Андреем Губиным (2001) [M
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793432.jpg" />
+  <img src="Z:/picture/008/save_picture_793432.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793398.jpg" />
+  <img src="Z:/picture/008/save_picture_793398.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ VA - Айсберг. Дискотека 1-2 (2001) 2CD [MP3|image + .cue|320 Kbp
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793314.jpg" />
+  <img src="Z:/picture/008/save_picture_793314.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793004.jpg" />
+  <img src="Z:/picture/008/save_picture_793004.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792373.jpg" />
+  <img src="Z:/picture/008/save_picture_792373.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792335.jpg" />
+  <img src="Z:/picture/008/save_picture_792335.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792101.jpg" />
+  <img src="Z:/picture/008/save_picture_792101.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791365.jpg" />
+  <img src="Z:/picture/008/save_picture_791365.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790493.jpg" />
+  <img src="Z:/picture/008/save_picture_790493.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Burito - Небесный ампир (2021) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789737.jpg" />
+  <img src="Z:/picture/008/save_picture_789737.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Hi-Fi - Лучшее (2015) LP [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787560.jpg" />
+  <img src="Z:/picture/008/save_picture_787560.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786825.jpg" />
+  <img src="Z:/picture/008/save_picture_786825.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786691.jpg" />
+  <img src="Z:/picture/008/save_picture_786691.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783458.jpg" />
+  <img src="Z:/picture/008/save_picture_783458.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781845.jpg" />
 </div>
 
 
@@ -583,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780397.jpg" />
+  <img src="Z:/picture/008/save_picture_780397.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780039.jpg" />
+  <img src="Z:/picture/008/save_picture_780039.jpg" />
 </div>
 
 
@@ -637,7 +724,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779742.jpg" />
+  <img src="Z:/picture/008/save_picture_779742.jpg" />
 </div>
 
 
@@ -651,93 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFAD4AC422649C16379F50A808029E79A5C23327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209002   (779619) от 24.02.2018
-
-Алиса Вокс - Новая Алиса Вокс (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Новая
-02. Нить
-03. Фейерверк
-04. Не хочу(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0BE65AAB1ADED865A9D5F8D8D6DCD488C1F0021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210184   (778959) от 01.03.2018
-
-Александр Малинин - Любовь жива (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778959.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Любовь жива
-2. Шоу
-3. Слова
-4. Счастье моё(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A0397463EDBC5273944E586FD8AF9CE00F8AE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210587   (778678) от 03.03.2018
-
-Балаган Лимитед - Счастливые (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Провинция (3:10)
-02. Счастливая (3:25)
-03. Полюби (3:46)
-04. Мама (feat. Стас Сорока) (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD1F9FB6FAC80880BA8CA5397A7D791452618DD3
 ```
 
 https://mybot314.ru/tekegram_catalog/

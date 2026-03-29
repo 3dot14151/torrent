@@ -1,3 +1,55 @@
+###  Публикация: 1848163   (1052541) от 16.01.2026
+
+Валерий Поволяев | Царский угодник (2025) [MP3, Зоя Банкетова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1052541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга известного писателя-историка Валерия Поволяева посвящена одной из знаковых фигур, появившихся на закате Российской империи, – Григорию Распутину. Роман-хроника, роман-исследование показывает знаменитого «старца» в период наивысшего могущества, но уже в одном шаге от смерти. Своеобразным рефреном в повествовании стало название другого произведения о Распутине (   Читать дальше...   )Жанр: Исторический романИздательство: ВЕЧЕПродолжительность: 28:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61537E751BAD3979C2CCCAC481F7FFA3FF3B261D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847729   (1052345) от 14.01.2026
+
+Элисон Уэйр | Розы Тюдоров (Книга 1). Елизавета Йоркская. Последняя Белая роза (2023) [MP3, Евгения Витте]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1052345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английская принцесса Елизавета появилась на свет в разгар Войны Алой и Белой розы – династических распрей между Ланкастерами и Йорками. Старшая дочь королевского дома Йорков, она мечтает о короне. Но внезапно умирает Эдуард IV, отец принцессы, и в ее судьбе наступают резкие перемены. Клан Алой розы стремится захватить власть, безжалостно уничтожая других претендентов (   Читать дальше...   )Жанр: ИсторияИздательство: Азбука-АттикусПродолжительность: 22:34:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E363BB303536D30C8119A2E7AB077F4E099D5F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847566   (1052155) от 13.01.2026
 
 Элисон Уэйр | Розы Тюдоров (Книга 2). По милости короля. Роман о Генрихе VIII (2024) [MP3, Евгения Витте]
@@ -6,7 +58,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052155.jpg" />
+  <img src="Z:/picture/005/save_picture_1052155.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052071.jpg" />
+  <img src="Z:/picture/005/save_picture_1052071.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052062.jpg" />
+  <img src="Z:/picture/005/save_picture_1052062.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051400.jpg" />
+  <img src="Z:/picture/005/save_picture_1051400.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051395.jpg" />
+  <img src="Z:/picture/005/save_picture_1051395.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049453.jpg" />
+  <img src="Z:/picture/005/save_picture_1049453.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049189.jpg" />
+  <img src="Z:/picture/008/save_picture_1049189.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048014.jpg" />
+  <img src="Z:/picture/008/save_picture_1048014.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046763.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ Ales | Мангуп (2022) [MP3, Гарри  Филин]
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046201.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045760.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045320.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045212.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045027.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044952.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044826.jpg" />
 </div>
 
 
@@ -432,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043269.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042516.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042510.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041122.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039086.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037836.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036608.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036578.jpg" />
 </div>
 
 
@@ -631,62 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27E70E000AAB46AD84ABCCBF114C9783E4ED4E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442937   (1036301) от 26.01.2021
-
-Богдан Сушинский | Рыцари Дикого поля (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Середина XVII века. Зная о критическом состоянии здоровья польского короля Владислава IV, королева Мария Гонзага всеми силами организует поиски возможного претендента на трон короля. Сейм обращает свой взор на трансильванского князя Любоша Ракоци. Более того, Трансильвания может стать надежным союзником Польши, заменив ослабленную в многолетней войне Францию.
-
-В (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 14:00:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F768B33CF5348F0FE3FD4CD2AC86F5A8D6AE715F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443108   (1036003) от 27.01.2021
-
-Тим Северин | Меч Роланда (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Саксонец».
-
-Саксонский королевич Зигвульф потерял на войне семью, владения, богатства — все, кроме благородного имени и самой жизни. Его победитель, король англов, отправляет пленника франкскому королю Карлу Великому в качестве посла, а вернее, благородного заложника. При дворе величайшего из владык Западного мира, правителя, само имя которого (   Читать дальше...   )Жанр: Исторический роман, Исторические приключенияПродолжительность: 10:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92355DBBC3FFF9CE6D3F054193D2170822D414A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

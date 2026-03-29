@@ -1,3 +1,55 @@
+###  Публикация: 1068049   (378166) от 02.11.2016
+
+В нашем городе (1959) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_378166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда во дворе зазвучал детский оркестр из бутылок, сковородок, бочек и стиральных досок, известный в прошлом музыкант Потехин отнесся к шуму весьма серьёзно. У ребят появились настоящие музыкальные инструменты и красный уголок, который юные музыканты сами привели в полный порядок. В день его открытия детский самодеятельный оркестр даёт своё первое выступление. Его (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Короткометражный, КомедияРежиссер: Эдгар (Эдуард) СмирновАктеры: Лариса Гордейчик, Александр Лебедев, Зоя Фёдорова, Дмитрий Кара-Дмитриев, Сергей Мартинсон, Валентина Телегина, Георгий Милляр, Петр Савин, Вера Алтайская, Эммануил ГеллерПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3747F93E6A650B0A7C82AD0049FB79F389C5A5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573953   (377995) от 11.11.2012
+
+Годен к нестроевой (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая Отечественная война. Молоденький музыкант из провинциального городка Володя Данилин после гибели отца уходит добровольцем на фронт. Поскольку из-за плохого зрения он не годен к строевой службе, его направляют в роту связи и назначают ездовым при норовистом коне Бесе. Не имея опыта общения с лошадьми, Володя часто попадает в комические ситуации. Но война есть (   Читать дальше...   )Жанр: Военный, КомедияРежиссер: Владимир РоговойАктеры: Виктор Перевалов, Михаил Пуговкин, Борис Гитин, Алексей Чернов, Любовь Румянцева, Кахи Кавсадзе, Евгений КузнецовПродолжительность: 01:10:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47579D5399E51413E3B137018D01CC3481559CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 251149   (377680) от 29.10.2010
 
 Небо зовет (1959) DVDRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377680.jpg" />
+  <img src="Z:/picture/008/save_picture_377680.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377166.jpg" />
+  <img src="Z:/picture/008/save_picture_377166.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376378.jpg" />
+  <img src="Z:/picture/008/save_picture_376378.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376174.jpg" />
+  <img src="Z:/picture/008/save_picture_376174.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375334.jpg" />
+  <img src="Z:/picture/008/save_picture_375334.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374253.jpg" />
+  <img src="Z:/picture/008/save_picture_374253.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374124.jpg" />
+  <img src="Z:/picture/008/save_picture_374124.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373454.jpg" />
+  <img src="Z:/picture/008/save_picture_373454.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372865.jpg" />
+  <img src="Z:/picture/005/save_picture_372865.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372615.jpg" />
+  <img src="Z:/picture/008/save_picture_372615.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371127.jpg" />
+  <img src="Z:/picture/008/save_picture_371127.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370143.jpg" />
+  <img src="Z:/picture/008/save_picture_370143.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367721.jpg" />
+  <img src="Z:/picture/008/save_picture_367721.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365882.jpg" />
+  <img src="Z:/picture/008/save_picture_365882.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365597.jpg" />
+  <img src="Z:/picture/008/save_picture_365597.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365527.jpg" />
+  <img src="Z:/picture/008/save_picture_365527.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_363985.jpg" />
+  <img src="Z:/picture/005/save_picture_363985.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363837.jpg" />
+  <img src="Z:/picture/008/save_picture_363837.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363544.jpg" />
+  <img src="Z:/picture/008/save_picture_363544.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362855.jpg" />
+  <img src="Z:/picture/008/save_picture_362855.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362721.jpg" />
+  <img src="Z:/picture/008/save_picture_362721.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362678.jpg" />
+  <img src="Z:/picture/008/save_picture_362678.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360811.jpg" />
+  <img src="Z:/picture/008/save_picture_360811.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359506.jpg" />
+  <img src="Z:/picture/008/save_picture_359506.jpg" />
 </div>
 
 
@@ -625,59 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA5F5F6CE6129B8BA033CC7B8CF90EC86824B6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577127   (359376) от 17.09.2022
-
-Крах (1968) WEBRip (2 серии)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм повествует о разгроме чекистами подпольной организации, возглавляемой Борисом Савинковым.Производство: СССР / МосфильмЖанр: драма, биография, историяРежиссер: Владимир ЧеботаревАктеры: Владимир Самойлов, Юрий Яковлев, Анатолий Фалькович, Ефим Копелян, Евгений Матвеев, Александр Барушной, Михаил Глузский, Николай Граббе, Леонид Куравлёв, Владимир ПокровскийСубтитры: отсутствуютПродолжительность: 01:25:49 + 01:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8627EFBC3BCAC4906BEEB408D4DB89F238B641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836962   (359310) от 02.11.2014
-
-Фа минор (1989) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359310.jpg" />
-</div>
-
-
-###  Подробнее
-
-История молодого человека, его поисков смысла жизни.
- фильм получил Гран-При на фестивале в Клермон Ферране (Франция).Жанр: киноповестьРежиссер: Андрей ЧерныхАктеры: Николай Павлов, Ингеборге Дапкунайте, Марина Крутикова, Олег ДоманскийПродолжительность: 00:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0B5BB7A7DD6AD3F9F64AC416155028FB42C3B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

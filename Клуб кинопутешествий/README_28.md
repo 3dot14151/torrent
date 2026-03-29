@@ -1,3 +1,56 @@
+###  Публикация: 915792   (591821) от 06.07.2015
+
+Землетрясение на Эвересте / The Day Everest Shook (2015) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_591821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм раскрывает истории выживания и борьбы людей после недавнего землетрясения в Непале глазами очевидцев, а также знакомит с научными данными об этой разрушительной природной катастрофе. Первые удары землетрясений произошли 25 апреля 2015 года, самый мощный толчок был с магнитудой 7,8 балла по шкале Рихтера.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451E1B64566AAD2FB78A5BE2B2645E62D7C117C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916126   (591405) от 07.07.2015
+
+Ростов Великий. Ярославские путешествия (2014) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_591405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ростов - один из древнейших городов России, официальное летосчисление ведёт с 862 года. С X века Ростов являлся одним из центров Ростово-Суздальской земли. В XI — начале XIII веков входил во Владимиро-Суздальское княжество. С начала XII века именовался Ростов Великий.
+На территории Ростова имеется 326 памятников культуры, треть из которых являются памятниками федерального (   Читать дальше...   )Телекомпания: ИА "Верхняя Волга"Жанр: ДокументальныйПродолжительность: 00:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0406945D1C3AB3DABE25D9361C0300E6503553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551067   (590673) от 14.05.2022
 
 Как река становится морем. Иравади / Au Bout c'est la Mer. Irrawaddi (2020) HDTV [H.264/1080i]
@@ -6,7 +59,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590673.jpg" />
+  <img src="Z:/picture/008/save_picture_590673.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588178.jpg" />
+  <img src="Z:/picture/008/save_picture_588178.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585285.jpg" />
+  <img src="Z:/picture/008/save_picture_585285.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585019.jpg" />
+  <img src="Z:/picture/008/save_picture_585019.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585018.jpg" />
+  <img src="Z:/picture/008/save_picture_585018.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584930.jpg" />
+  <img src="Z:/picture/008/save_picture_584930.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583827.jpg" />
+  <img src="Z:/picture/008/save_picture_583827.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583250.jpg" />
+  <img src="Z:/picture/008/save_picture_583250.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582133.jpg" />
+  <img src="Z:/picture/008/save_picture_582133.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579313.jpg" />
+  <img src="Z:/picture/008/save_picture_579313.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578090.jpg" />
+  <img src="Z:/picture/008/save_picture_578090.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578074.jpg" />
+  <img src="Z:/picture/008/save_picture_578074.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577890.jpg" />
+  <img src="Z:/picture/008/save_picture_577890.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577887.jpg" />
+  <img src="Z:/picture/008/save_picture_577887.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577881.jpg" />
+  <img src="Z:/picture/008/save_picture_577881.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ National Geographic. Япония: между небом и землей / Japan
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577717.jpg" />
+  <img src="Z:/picture/008/save_picture_577717.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577447.jpg" />
+  <img src="Z:/picture/008/save_picture_577447.jpg" />
 </div>
 
 
@@ -451,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577287.jpg" />
+  <img src="Z:/picture/008/save_picture_577287.jpg" />
 </div>
 
 
@@ -477,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577196.jpg" />
+  <img src="Z:/picture/008/save_picture_577196.jpg" />
 </div>
 
 
@@ -503,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577155.jpg" />
+  <img src="Z:/picture/008/save_picture_577155.jpg" />
 </div>
 
 
@@ -529,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577130.jpg" />
+  <img src="Z:/picture/008/save_picture_577130.jpg" />
 </div>
 
 
@@ -555,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577121.jpg" />
+  <img src="Z:/picture/008/save_picture_577121.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577107.jpg" />
+  <img src="Z:/picture/008/save_picture_577107.jpg" />
 </div>
 
 
@@ -607,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577032.jpg" />
+  <img src="Z:/picture/008/save_picture_577032.jpg" />
 </div>
 
 
@@ -618,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ACF6272BAD107313B82A8237294C47ACE8B821B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361458   (576867) от 10.07.2011
-
-Затерянные племена. Жизнь с племенем Мачигенга. Конец миссии [8 серия] / Mark & Olly: Living With The Machigenga. The End Of The Affair (2009) IPTVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое английских исследователей изучают культуру самых диких племен на планете. Подступая к границам враждебной среды они руководствуются только доброй волей и желанием познавать новое. Это их самое серьезное путешествие - путешествие в Перу в поисках одного из самых таинственных племен амазонских джунглей: Мачигенга, которое живет в полной изоляции.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FBD549FB267DDD69B9260C4E109668242FB764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043082   (576306) от 14.08.2016
-
-Орел и решка. Шопинг (2016.08.14) SATRip (cезон 5: Ванкувер)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущие пройдутся по самым популярным заграничным шопинг-маршрутам. Дорогие бутики и блошиные рынки, новые имена в индустрии моды и раритетные винтажные вещицы — ведущие проинспектируют все. Эта программа — настоящий кладезь полезной информации для шопоголиков. Ведущие посетят: Гонконг, Майами, Канкун, Мехико, Сингапур, Ханой, Куала-Лумпур и многие другие города. (   Читать дальше...   )Телекомпания: ИНТЕР & ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1632A3CB23B1745DD1E1BCDCBBF41C851693D60D
 ```
 
 https://mybot314.ru/tekegram_catalog/

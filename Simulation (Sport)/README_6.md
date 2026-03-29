@@ -1,3 +1,55 @@
+###  Публикация: 1088461   (137791) от 31.12.2016
+
+Hunting Unlimited 2 (2003) [En] (1.0) License Fairlight
+
+>>Win Старые Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hunting Unlimited 2 - симулятор охоты от компании SCS Software. Как и во всех играх подобног жанра, игроку предстоит отстреливать беззащитных животных из различного оружия (от лука до винтовок). Тому, кто по своей природе охотник, но ему жалко убивать бедных зверюшек, есть возможность поохотиться виртуально в охотничьем симуляторе «Hunting Unlimited 2».Тип издания: LicenseРазработчик: SCS SoftwareЖанр: Sport (Hunt, Fish), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C87BA7B46425594067147449AFC7556C4534DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824983   (136867) от 16.10.2025
+
+Project Hunt (2024) [Ru/Multi] (2025-9-25/dlc) Repack seleZen
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Project Hunt - приближенный к реализму симулятор охотника, где перед вами раскинутся огромные охотничьи угодья в формате открытого мира. Прихватите с собой любимую винтовку и отправляйтесь выслеживать ничего не подозревающую добычу, попутно изучая живописные пейзажи и знакомясь с местными ландшафтами в поисках наиболее лучшей позиции.Тип издания: RepackРазработчик: Mind MarvelsЖанр: Приключенческие игры, Симуляторы, Спортивные игрыЯзык субтитров: Русский, Английский, Французский, Шведский и другиеЯзык интерфейса: Русский, Английский, Французский, Шведский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4872FD855F0E9907C8262BFEF9F765BEC5C28942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682153   (131666) от 06.12.2023
 
 Waifu Fighter - Family Friendly (2023) [Multi] (20231116) Scene Tenoke
@@ -6,7 +58,7 @@ Waifu Fighter - Family Friendly (2023) [Multi] (20231116) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131666.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Goalgetter / Torschutzenkonig (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131272.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Fritz 19 SE (2023) [Multi] (1.0) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124316.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Pro Cycling Manager 2023 (2023) [Multi] (1.9.0.443) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123374.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ RIDE 5 (2023) [Multi] (20240124/dlc) Scene Rune [Special Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120755.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Punch Club 2: Fast Forward (2023) [Ru/Multi] (1.101/dlc) Repack Other s
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106069.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ NBA 2K11 Fans Edition {1.0.1} (RePack) [Ru] 2010 | Naitro
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88883.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Major League Baseball 2K12 (Lossless Repack) [En] 2012 | R.G. Origami
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81073.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Billiards Pyramid (L) [En] (2011)
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80031.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Out of the Park Baseball 25 (2024) [Multi] (25.1) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62047.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ We Are Football 2024 (2024) [Multi] (3.00hf) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61982.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Out of the Park Baseball 25 (2024) [Multi] (25.1) Scene SKIDROW
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61276.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Tactic Boxing (2024) [En] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60981.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Project Hunt (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60579.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Handball 17 (2016) [Multi] (1464816) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60445.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ FIFA 16 (2015) [Ru/Multi] (16.0.2904053) Repack dixen18
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59835.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ FIFA 16 (2015) [Ru/Multi] (16.0.2904053/dlc) Repack Decepticon
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59668.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ BMX Streets (2024) [En] (1.0.0.109.0) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59561.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Golf With Your Friends (2020) [Ru/Multi] (258/dlc) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57358.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Battle vs Chess (2011) [Ru/Multi] (1.2/dlc) License GOG [Grandmaster Premium Edi
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56904.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ AEW: Fight Forever (2023) [Multi] (1.10/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56097.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Tennis Manager 2024 (2024) [Multi] (4.0.1135) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55325.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Tennis Manager 2024 (2024) [Multi] (4.0.1135) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54669.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Tour de France 2024 (2024) [Multi] (01.04.03.846/dlc) Repack FitGirl
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53561.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Tour de France 2024 (2024) [Multi] (01.04.03.846/dlc) Repack FitGirl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63452ADF7AD6DB7A14284119C37A4BC8EC45F077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731992   (52429) от 23.06.2024
-
-Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Scene Tenoke
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя заново захватывающий мир Windstorm. Погрузитесь в захватывающую историю Мики, девушки, известной как заклинательница лошадей, о том, как она подружилась с величественным черным жеребцом по кличке Виндсторм – с полностью обновленной графикой и новым фоторежимом! Основанный на успешных фильмах «Виндшторм» и бестселлерах, выполняйте захватывающие задания (   Читать дальше...   )Тип издания: SceneРазработчик: Aesir Interactive, Sleeprunner StudiosЖанр: Приключенческие игры, Казуальные игры, Гонки, СимуляторыЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский, Болгарский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Болгарский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF02AD7A7B23920A47CE93BAD2C7742D02471DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734084   (51345) от 02.07.2024
-
-Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Repack FitGirl
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя заново захватывающий мир Windstorm. Погрузитесь в захватывающую историю Мики, девушки, известной как заклинательница лошадей, о том, как она подружилась с величественным черным жеребцом по кличке Виндсторм – с полностью обновленной графикой и новым фоторежимом! Основанный на успешных фильмах «Виндшторм» и бестселлерах, выполняйте захватывающие задания (   Читать дальше...   )Тип издания: RepackРазработчик: Aesir Interactive, Sleeprunner StudiosЖанр: Приключенческие игры, Казуальные игры, Гонки, СимуляторыЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, Французский, Болгарский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Болгарский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 ```
 
 https://mybot314.ru/tekegram_catalog/

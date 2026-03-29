@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701128.jpg" />
+  <img src="Z:/picture/008/save_picture_701128.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Tag&Rename 3.9 Final RePack (& Portable) by Trovel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701127.jpg" />
+  <img src="Z:/picture/008/save_picture_701127.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Image Uploader 1.3.1 Build 4317 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701124.jpg" />
+  <img src="Z:/picture/008/save_picture_701124.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ One Commander 3.4.37.0 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701122.jpg" />
+  <img src="Z:/picture/008/save_picture_701122.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Radio Hits Vol.5 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701120.jpg" />
+  <img src="Z:/picture/008/save_picture_701120.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ IObit Uninstaller 4.3.0.122 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701117.jpg" />
+  <img src="Z:/picture/008/save_picture_701117.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ ASCOMP BackUp Maker 7.405 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701083.jpg" />
+  <img src="Z:/picture/008/save_picture_701083.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701077.jpg" />
+  <img src="Z:/picture/008/save_picture_701077.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Cockos - REAPER 5.972 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701074.jpg" />
+  <img src="Z:/picture/008/save_picture_701074.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mirillis Splash 2.6.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701072.jpg" />
+  <img src="Z:/picture/008/save_picture_701072.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ AOMEI Partition Assistant Technician Edition 8.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701067.jpg" />
+  <img src="Z:/picture/008/save_picture_701067.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701043.jpg" />
+  <img src="Z:/picture/008/save_picture_701043.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Adobe Photoshop 2020 21.2.2.289 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701038.jpg" />
+  <img src="Z:/picture/008/save_picture_701038.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701012.jpg" />
+  <img src="Z:/picture/008/save_picture_701012.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Corel VideoStudio Ultimate 2022 25.0.0.373 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700983.jpg" />
+  <img src="Z:/picture/008/save_picture_700983.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700964.jpg" />
+  <img src="Z:/picture/008/save_picture_700964.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ ScrollNavigator 5.6.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700959.jpg" />
+  <img src="Z:/picture/008/save_picture_700959.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ DaVinci Resolve Studio 15.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700934.jpg" />
+  <img src="Z:/picture/008/save_picture_700934.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ AOMEI Partition Assistant Technician Edition 8.1.0 (Repack & Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700931.jpg" />
+  <img src="Z:/picture/008/save_picture_700931.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ MSI Afterburner 4.6.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700930.jpg" />
+  <img src="Z:/picture/008/save_picture_700930.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ HF Scientific Calculator Pro 5.5.3 [En] - Научный калькулятор 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700868.jpg" />
+  <img src="Z:/picture/008/save_picture_700868.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Parkdale 2.95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700866.jpg" />
+  <img src="Z:/picture/008/save_picture_700866.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Unchecky 0.3.7.5 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700860.jpg" />
+  <img src="Z:/picture/008/save_picture_700860.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700845.jpg" />
+  <img src="Z:/picture/008/save_picture_700845.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Flux 7.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700842.jpg" />
+  <img src="Z:/picture/008/save_picture_700842.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Feeder 3.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700835.jpg" />
+  <img src="Z:/picture/008/save_picture_700835.jpg" />
 </div>
 
 

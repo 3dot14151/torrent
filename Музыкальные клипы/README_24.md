@@ -1,3 +1,100 @@
+###  Публикация: 554702   (435702) от 01.10.2012
+
+Nazareth - Video Collection(1972-2007) (2012) DVDRip.TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nazareth — шотландская рок-группа, созданная в 1968 году музыкантами группы The Shadettes в городе Данфермлин. В оригинальный состав вошли: вокалист Дэн Маккаферти, гитарист Мэнни Чарлтон, басист Пит Эгнью и барабанщик Дэррил Свит.
+Собраны лучшие клипы группы.01. Morning Dew. (72).
+02. Love Hurts. (1974).
+03. This Flight Tonight.(74).
+04. Jetlag (75).
+05. Bad Bad Boy (75).
+06. Kentucky Freid Blues.(77) .
+07. Place In Your Heart. (1977).
+08. Born To Love.(77).
+09. Night Woman.(77).
+10. Shot Me Down (1977).(   Читать дальше...   )Продолжительность: 02:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA7EDEFBA231076D96E4DC00E7E7AACA590E10A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554887   (433672) от 02.10.2012
+
+W.A.S.P. - First Blood... Last Visions... (1993) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипы группы01. Animal F*** Like A Beast
+02. L.O.V.E. Machine
+03. I Wanna Be Somebody
+04. On Your Knees
+05. Blind In Texas
+06. Wild Child
+07. I Don't Need No Doctor
+08. The Real Me
+09. Forever Free
+10. The Idol(   Читать дальше...   )Жанр: Музыка, Metal, Hard rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE98089D64E9166137944DBBFA2C34CCDA5F91B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555652   (431781) от 03.10.2012
+
+Cinnamon Chasers (2012) [1080p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectronicПродолжительность: 00:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F75757E3218E6ACEECF271D1C665150BFD1E683
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946086   (429167) от 12.10.2015
 
 Eminem - Phenomenal (2015) WEBRip[H.264/1080p-LQ]
@@ -6,7 +103,7 @@ Eminem - Phenomenal (2015) WEBRip[H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429167.jpg" />
+  <img src="Z:/picture/008/save_picture_429167.jpg" />
 </div>
 
 
@@ -32,7 +129,7 @@ VA - Осенний марафон № 197 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427054.jpg" />
+  <img src="Z:/picture/008/save_picture_427054.jpg" />
 </div>
 
 
@@ -61,7 +158,7 @@ Bad Wolves - Zombie (Official Video) (2018) WEBRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425381.jpg" />
+  <img src="Z:/picture/008/save_picture_425381.jpg" />
 </div>
 
 
@@ -88,7 +185,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425095.jpg" />
+  <img src="Z:/picture/008/save_picture_425095.jpg" />
 </div>
 
 
@@ -114,7 +211,7 @@ VA - Осенний марафон № 196 / Видеоклипы (Коктей�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424800.jpg" />
+  <img src="Z:/picture/008/save_picture_424800.jpg" />
 </div>
 
 
@@ -143,7 +240,7 @@ Zaira - Mi vida (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424788.jpg" />
+  <img src="Z:/picture/008/save_picture_424788.jpg" />
 </div>
 
 
@@ -169,7 +266,7 @@ Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418823.jpg" />
+  <img src="Z:/picture/008/save_picture_418823.jpg" />
 </div>
 
 
@@ -200,7 +297,7 @@ The Weeknd - False Alarm (2016) WEB-DL [MPEG-4/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418459.jpg" />
+  <img src="Z:/picture/008/save_picture_418459.jpg" />
 </div>
 
 
@@ -227,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416154.jpg" />
+  <img src="Z:/picture/008/save_picture_416154.jpg" />
 </div>
 
 
@@ -253,7 +350,7 @@ Nuclear Power Trio - A Clear and Present Rager (2020) WEB-DL[H.264/1080p-LQ] <In
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413464.jpg" />
+  <img src="Z:/picture/008/save_picture_413464.jpg" />
 </div>
 
 
@@ -280,7 +377,7 @@ VA - Осенний марафон № 198 / Видеоклипы (Лучшая 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411098.jpg" />
+  <img src="Z:/picture/008/save_picture_411098.jpg" />
 </div>
 
 
@@ -309,7 +406,7 @@ Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409693.jpg" />
+  <img src="Z:/picture/008/save_picture_409693.jpg" />
 </div>
 
 
@@ -335,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409588.jpg" />
+  <img src="Z:/picture/008/save_picture_409588.jpg" />
 </div>
 
 
@@ -362,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408562.jpg" />
+  <img src="Z:/picture/008/save_picture_408562.jpg" />
 </div>
 
 
@@ -388,7 +485,7 @@ Masami Okui - V-mode ~10th Anniversary~ Disc 2 (2003) DVDRip [H.264] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407220.jpg" />
+  <img src="Z:/picture/008/save_picture_407220.jpg" />
 </div>
 
 
@@ -417,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406584.jpg" />
+  <img src="Z:/picture/008/save_picture_406584.jpg" />
 </div>
 
 
@@ -454,7 +551,7 @@ Lana Del Rey - Ride (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406556.jpg" />
+  <img src="Z:/picture/008/save_picture_406556.jpg" />
 </div>
 
 
@@ -480,7 +577,7 @@ Dreamshow - Animals (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406178.jpg" />
+  <img src="Z:/picture/008/save_picture_406178.jpg" />
 </div>
 
 
@@ -506,7 +603,7 @@ Gin-n-Juice - Pornografiya (Uncensored) (2011) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406071.jpg" />
+  <img src="Z:/picture/008/save_picture_406071.jpg" />
 </div>
 
 
@@ -532,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405774.jpg" />
+  <img src="Z:/picture/008/save_picture_405774.jpg" />
 </div>
 
 
@@ -558,7 +655,7 @@ DJMask - Hymn Of Angel (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405647.jpg" />
+  <img src="Z:/picture/008/save_picture_405647.jpg" />
 </div>
 
 
@@ -584,7 +681,7 @@ Poshout feat Ange - Beside (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405610.jpg" />
+  <img src="Z:/picture/008/save_picture_405610.jpg" />
 </div>
 
 
@@ -610,7 +707,7 @@ Direct to Dreams - Adagio For Strings (Barber Remix 2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405601.jpg" />
+  <img src="Z:/picture/008/save_picture_405601.jpg" />
 </div>
 
 
@@ -621,84 +718,6 @@ Direct to Dreams - Adagio For Strings (Barber Remix 2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4CE15F4935AB2E80CED8750DDB771DC54FBD958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562328   (405599) от 19.10.2012
-
-Andrew Rayel ft. Jano - How Do I Know (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22DB0A0F1FA02858E14D351973102C2AD13E466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562322   (405472) от 19.10.2012
-
-Dancer Tryout - Mz Berry (Uncensored) (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R&BПродолжительность: 00:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12A07484DE18832D1CD609430F8FA42F2F2C23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562341   (405470) от 19.10.2012
-
-Die Antwoord - Fatty Boom Boom (2012) [H.264/1080p-LQ] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648B3A5A91D62B0751075FCB1CFC548DAEDF3ECD
 ```
 
 https://mybot314.ru/tekegram_catalog/

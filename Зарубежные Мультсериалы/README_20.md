@@ -1,3 +1,55 @@
+###  Публикация: 1057338   (670402) от 24.05.2017
+
+Гриффины / Family Guy (2016) WEB-DLRip (сезон 15, серии 1-20 из 20) OMSKBIRD
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670402.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФерлайном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящя и терпеливая жена Лойс, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / FOX, Fuzzy Door ProductionsЖанр: Мультсериал, комедия, сатира, чёрный юморРежиссер: Сет МакФарлейнПеревод: Многоголосый закадровый, профессиональный | OMSKBIRDПродолжительность: ~00:22:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB08A6E074D0673C30007D3545B79CDE8B6CC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057337   (670400) от 24.05.2017
+
+Гриффины / Family Guy (2016) WEB-DL [H.264/720p-LQ] (сезон 15, серии 1-20 из 20) OMSKBIRD
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670400.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гриффины" (Family Guy) - анимационное ТВ-Шоу, созданное Сетом МакФерлайном (Seth MacFarlane) для телеканала FOX. Как нетрудно догадаться, главными героями шоу является семейка Гриффинов: тупой, но полный сумашедших идей, составляющих львиную долю шуток сериала, отец семейства Питер; его любящя и терпеливая жена Лойс, всеми силами пытающаяся превратить (   Читать дальше...   )Производство: США / FOX, Fuzzy Door ProductionsЖанр: Мультсериал, комедия, сатира, чёрный юморРежиссер: Сет МакФарлейнПеревод: Многоголосый закадровый, профессиональный | OMSKBIRDПродолжительность: ~00:22:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F38170B9C0FDADEDBC953A7421A6775E4273702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 494616   (669713) от 14.06.2012
 
 Звёздные Войны: Войны Клонов / Star Wars: The Clone Wars (Сезон 4 полностью (22 серии)) (2011-2012) WEB-DLRip (LostFilm)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_669713.jpg" />
+  <img src="Z:/picture/005/save_picture_669713.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668077.jpg" />
+  <img src="Z:/picture/008/save_picture_668077.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667511.jpg" />
+  <img src="Z:/picture/008/save_picture_667511.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666357.jpg" />
+  <img src="Z:/picture/008/save_picture_666357.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665324.jpg" />
+  <img src="Z:/picture/008/save_picture_665324.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665273.jpg" />
+  <img src="Z:/picture/008/save_picture_665273.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665259.jpg" />
+  <img src="Z:/picture/008/save_picture_665259.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665184.jpg" />
+  <img src="Z:/picture/008/save_picture_665184.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663572.jpg" />
+  <img src="Z:/picture/008/save_picture_663572.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_663318.jpg" />
+  <img src="Z:/picture/005/save_picture_663318.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662951.jpg" />
+  <img src="Z:/picture/008/save_picture_662951.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662751.jpg" />
+  <img src="Z:/picture/008/save_picture_662751.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662059.jpg" />
+  <img src="Z:/picture/008/save_picture_662059.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Hello Kitty. Сказочный театр / Hello Kitty. Выпуски 1-4, 18
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658699.jpg" />
+  <img src="Z:/picture/008/save_picture_658699.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654910.jpg" />
+  <img src="Z:/picture/008/save_picture_654910.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654053.jpg" />
+  <img src="Z:/picture/008/save_picture_654053.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652265.jpg" />
+  <img src="Z:/picture/008/save_picture_652265.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651955.jpg" />
+  <img src="Z:/picture/008/save_picture_651955.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651872.jpg" />
+  <img src="Z:/picture/008/save_picture_651872.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651018.jpg" />
+  <img src="Z:/picture/008/save_picture_651018.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648714.jpg" />
+  <img src="Z:/picture/008/save_picture_648714.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648052.jpg" />
+  <img src="Z:/picture/008/save_picture_648052.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645968.jpg" />
+  <img src="Z:/picture/008/save_picture_645968.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643365.jpg" />
+  <img src="Z:/picture/008/save_picture_643365.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C58B961E8E7C2BF6A86DEBDC068FB9D200D2AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032720   (641416) от 09.07.2016
-
-Аватар: Легенда об Аанге / Avatar: The Last Airbender (2007-2008) DVDRip [H.264] (сезон 3, серии 1-21 из 21) (Арт-Дубляж) [MP4|640x480]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир разделен на четыре народа: Водные племена, королевство Земли, Воздушные кочевники и Огненная нация. Представители каждого народа обладают способностями управления своей стихией и именуют себя магами Воды, Земли, Воздуха или Огня. Только Аватар является властелином всех четырех стихий. Его роль заключается в поддержке баланса между народами и сохранении мирового (   Читать дальше...   )Производство: США, Nickelodeon Animation StudiosЖанр: Фэнтези, Приключения, Mультфильм, СемейныйРежиссер: Майкл Данте ДиМартино,  Брайан Кониецко, Джанкарло Волп, Этан Сполдинг, Лорен МакМалленАктеры: Зак Тайлер, Мэй Уитман, Джек Де Сена, Ди Брэдли Бейкер, Данте Баско, Джесси Флауер, Мако, Грэй Гриффин, Андре Соглиуззо, Крикет ЛиПеревод: Дублированный - Арт-ДубляжПродолжительность: ~00:24:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAE93F793B21695AE4F78894F56CD7E84048AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 889504   (641281) от 10.06.2015
-
-Инспектор Гаджет / Inspector Gadget (2015) DVB (Сезон 1, Серии 1-18 из 26) (Обновляемая)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение оригинального мультсериала 1980-х годов. Инспектор Гаджет - первый в мире "механический" полицейский. Он экипирован огромным количеством технических приспособлений, которые должны помогать в его нескончаемо борьбе против преступлений. Но обычно получается, что эти приспособления наносят вред самому полицейскому, а не врагам. Зная о неуклюжести (   Читать дальше...   )Производство: Канада, США / DHX MediaЖанр: Боевик, Комедия, ПриключенияРежиссер: Филлип Стамп, Уильям Гордон Педрам / Phillip Stamp, William Gordon PedramПеревод: Профессиональный (дублированный) Студия ПифагорПродолжительность: Серии по ~00:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065FFEC213638DAA85669EB7909E4EDC17DDED86
 ```
 
 https://mybot314.ru/tekegram_catalog/

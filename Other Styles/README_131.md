@@ -1,3 +1,61 @@
+###  Публикация: 1182283   (316794) от 10.11.2017
+
+VA - Latina Reggaeton Hits (2017) [MP3|320 Kbps] <Salsa, Kizomba, Bachata>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willy William & J Balvin – Mi Gente 03:09
+02. Nacho – Bailame 03:27
+03. Sebastian Yatra & Joey Montana – Suena El Dembow 03:15
+04. Kamaleon – Quiero Sexo (Mi Amor)(Feat. Matt Houston) 02:49(   Читать дальше...   )Жанр: Salsa, Kizomba, BachataПродолжительность: 03:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6B031885B774A6DB4D68370957E33C5DD5B9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260000   (316768) от 05.11.2018
+
+The O’Neill Brothers - An O’Neill Brothers’ Christmas: Relaxing Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_316768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Silver Bells (Instrumental Version)
+02 – Still, Still, Still (Instrumental Version)
+03 – Lullaby of Bethlehem (Instrumental Version)
+04 – Deck the Halls (Instrumental Version)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F627AA5283B3E04F80A3EC69DD398F14FDC974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259748   (316632) от 05.11.2018
 
 Monica Williams - Journey of Tears (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +64,7 @@ Monica Williams - Journey of Tears (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316632.jpg" />
+  <img src="Z:/picture/008/save_picture_316632.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Wuauquikuna - XI Magic Of The Andes (2018) [MP3|320 Kbps] <Native american, Ethn
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316589.jpg" />
+  <img src="Z:/picture/008/save_picture_316589.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Ennio Morricone - Deluxe Edition 2CD (2006) [APE|Lossless]<Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315882.jpg" />
+  <img src="Z:/picture/008/save_picture_315882.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ VA - Ocean Music Love. Best Relax And Sex Music (2010) [MP3|128-256 kbps]<Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315727.jpg" />
+  <img src="Z:/picture/008/save_picture_315727.jpg" />
 </div>
 
 
@@ -116,7 +174,7 @@ Ennio Morricone - Morricone Segreto (2020) [FLAC|Lossless|WEB-DL|tracks] <Instru
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315126.jpg" />
+  <img src="Z:/picture/008/save_picture_315126.jpg" />
 </div>
 
 
@@ -145,7 +203,7 @@ Jamie Christopherson - Stranglehold (Complete Video Game Score) (2007) [MP3|192-
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314993.jpg" />
+  <img src="Z:/picture/008/save_picture_314993.jpg" />
 </div>
 
 
@@ -174,7 +232,7 @@ Jesse Cook - 11 albums (1995-2012) [MP3|320 кб/с]<New age, Flamenco, Instrume
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314859.jpg" />
+  <img src="Z:/picture/008/save_picture_314859.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Shaun Hopper - Lower Case Letters (2011) [FLAC|Lossless|tracks + .cue] <Acoustic
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314575.jpg" />
+  <img src="Z:/picture/008/save_picture_314575.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Yanni - The Very Best of Yanni (2000) [FLAC|tracks+.cue]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314387.jpg" />
+  <img src="Z:/picture/008/save_picture_314387.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Janis Ian - The Bottom Line Encore Collection (Live album) (999) Compilation [FL
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314355.jpg" />
+  <img src="Z:/picture/008/save_picture_314355.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Xmas Jukebox 2016 (2016) [MP3|320 Kbps] <Soundtracks>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314227.jpg" />
+  <img src="Z:/picture/008/save_picture_314227.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - For Women vol. 1-3 (2014-2016) [MP3|320 Kbps] <Ambient, Electronic, Instrum
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314222.jpg" />
+  <img src="Z:/picture/008/save_picture_314222.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - For Men vol. 1-3 (2014-2016) [MP3|320 Kbps] <Chillout, Electronic, Instrume
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314050.jpg" />
+  <img src="Z:/picture/008/save_picture_314050.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313808.jpg" />
+  <img src="Z:/picture/008/save_picture_313808.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Celtic Woman - Voices of Angels (2016) [MP3|320 Kbps] <Celtic, Folk, World>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313694.jpg" />
+  <img src="Z:/picture/008/save_picture_313694.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312776.jpg" />
+  <img src="Z:/picture/008/save_picture_312776.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Karushanti - Silence Meditation (2015) [FLAC|tracks]<New Age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312414.jpg" />
+  <img src="Z:/picture/008/save_picture_312414.jpg" />
 </div>
 
 
@@ -505,7 +563,7 @@ Deep Forest - Boheme (1995) [FLAC|tracks+.cue]<New Age, Ambient, Folk>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312406.jpg" />
+  <img src="Z:/picture/008/save_picture_312406.jpg" />
 </div>
 
 
@@ -534,7 +592,7 @@ VA - We Love Latin 2017 (Only Djs Extended Versions) [MP3|320 Kbps] <Latin Dance
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312332.jpg" />
+  <img src="Z:/picture/008/save_picture_312332.jpg" />
 </div>
 
 
@@ -563,7 +621,7 @@ VA - Disco Dancer (OST Танцор диско) (1982) [MP3|320 Kbps] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312206.jpg" />
+  <img src="Z:/picture/008/save_picture_312206.jpg" />
 </div>
 
 
@@ -592,7 +650,7 @@ Senyawa - Sujud (2018) [MP3|320 Kbps] <World, Other, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312026.jpg" />
+  <img src="Z:/picture/008/save_picture_312026.jpg" />
 </div>
 
 
@@ -621,7 +679,7 @@ Clint Eastwood, Christian Jacob & The Tierney Sutton Band - Sully / Чудо н�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311869.jpg" />
+  <img src="Z:/picture/008/save_picture_311869.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ VA - E-Energy vol. 1-16 (2014-2016) [MP3|320 Kbps] <Ambient, Chillout, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311837.jpg" />
+  <img src="Z:/picture/008/save_picture_311837.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311691.jpg" />
+  <img src="Z:/picture/008/save_picture_311691.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9880F290AC523095BBF7FAE1A67E28A46634B03A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332274   (311679) от 21.10.2019
-
-Laura Sullivan - Paris Enjoue (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311679.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. La vie en rose (Instrumental)	01:54
-2. La vie en rose (Solo Piano)	01:54
-3. Les Champs-Élysées (Instrumental)	02:20
-4. Les Champs-Élysées (Solo Piano)	02:20(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B5DA7086849D678C757935B0569332A0C64172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845447   (311027) от 28.11.2014
-
-Альфред Шнитке - Сказка странствий (музыка из к/ф) (2004) [FLAC|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311027.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 ноября исполнилось 80 лет со дня рождения Альфре́да Га́рриевича Шни́тке (нем. Alfred Schnittke; 1934—1998). Это имя советского-российского композитора, пожалуй самое известное за рубежом на сегодняшний день. Не ординарные взгляды  выдающегося музыканта-философа на всевозможные аспекты искусства ХХ столетия и искусства прошедших столетий, на исполнительскую (   Читать дальше...   )01. Под рождество (Из к/ф 'Сказка странствий', 1983)  (3:43)
-02. Сказка странствий (Из к/ф 'Сказка странствий', 1983)  (2:10)
-03. Вальс-раздолье (Из к/ф 'Сказка странствий', 1983)  (3:54)
-04. По радуге (Из к/ф 'Приключения Травки', 1976)  (1:46)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC5D49E151CECA6A3A3548A6E7DB854390D0412
 ```
 
 https://mybot314.ru/tekegram_catalog/

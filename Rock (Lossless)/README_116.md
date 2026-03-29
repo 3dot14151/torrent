@@ -1,3 +1,148 @@
+###  Публикация: 1079200   (295991) от 03.12.2016
+
+Boneyard Dog - Bluesbound Train (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atchafayalla 0:57
+02. Mother Lode 4:23
+03. Kingdom of Your Company 4:38
+04. Lonely Road 4:41(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64648BE6F58C48959C2D980136B0087BF4D58370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424114   (295928) от 15.11.2020
+
+Darwin - Darwin 2: A Frozen War (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightmare of My Dreams
+02. Future History
+03. Eternal Life
+04. A Frozen War(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA68C450E4E78A5CA4641E60ED578E9E9CE4DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079191   (295725) от 03.12.2016
+
+The Rolling Stones - Blue & Lonesome (2016) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Your Fool
+02. Commit a Crime
+03. Blue and Lonesome
+04. All of Your Love(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F78A3B9688DF5458A39B280849D1DBBC0710698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962415   (295018) от 04.12.2015
+
+Electric Light Orchestra - Zoom (2001) /2013, Avalon/ [FLAC|Image+.cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alright (3:12)
+02. Moment In Paradise  (3:35)
+03. State Of Mind  (3:04)
+04. Just For Love  (3:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C478DFC49CD8089C14D745FE4906CCB55334F0A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082122   (294885) от 20.11.2017
+
+Lunatic Soul (Mariusz Duda, ex.Riverside) - 3 Albums (2008 - 2017) [FLAC|Lossless|image + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood On The Tightrope 7:19
+02. Anymore 4:37
+03. Crumbling Teeth And The Owl Eyes 6:42
+04. Red Light Escape 5:43(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F97CA7533B59B20638DD40969274A92B5DC441D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 847768   (293805) от 06.12.2014
 
 V.A. - Classic Rock Presents: The Best Of 2014 (2014) [APE|Lossless]<Rock>
@@ -6,7 +151,7 @@ V.A. - Classic Rock Presents: The Best Of 2014 (2014) [APE|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293805.jpg" />
+  <img src="Z:/picture/008/save_picture_293805.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Smokie - 9 Albums (1975 - 1982) Remastered, 2016, Sony Music [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293287.jpg" />
+  <img src="Z:/picture/008/save_picture_293287.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Bryan Adams - Room Service (2004) [FLAC|Lossless|image + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293202.jpg" />
+  <img src="Z:/picture/008/save_picture_293202.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Mark Knopfler - Down the Road Wherever (2018) Deluxe Edition [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292980.jpg" />
+  <img src="Z:/picture/008/save_picture_292980.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Mark Knopfler - Down the Road Wherever (2018) Deluxe [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292885.jpg" />
+  <img src="Z:/picture/008/save_picture_292885.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ David Kilgour And The The Heavy Eights - Bobbie's A Girl (2019) [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291674.jpg" />
+  <img src="Z:/picture/008/save_picture_291674.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Queen - News Of The World (1977) 40th Anniversary Edition (2017) 3CD [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291029.jpg" />
+  <img src="Z:/picture/008/save_picture_291029.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Candice Night (Blackmore's Night) - Starlight Starbright (2015) [FLAC|Image+cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290737.jpg" />
+  <img src="Z:/picture/008/save_picture_290737.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Creedence Clearwater Revival - Ultimate Creedence Clearwater Revival: Greatest H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290073.jpg" />
+  <img src="Z:/picture/008/save_picture_290073.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Billy Sherwood - Citizen (2015) [FLAC|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287642.jpg" />
+  <img src="Z:/picture/008/save_picture_287642.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Europe - Super Hits (1998) [FLAC|tracks+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286892.jpg" />
+  <img src="Z:/picture/008/save_picture_286892.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ The Beatles - 33 Albums, 3 Singles, 6 Box-Sets (1963-2013) Complete CD Discograp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_286767.jpg" />
+  <img src="Z:/picture/005/save_picture_286767.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ Neil Young - Peace Trail (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286451.jpg" />
+  <img src="Z:/picture/008/save_picture_286451.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Luke Combs - This One's For You Too (2018) Deluxe Edition [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286298.jpg" />
+  <img src="Z:/picture/008/save_picture_286298.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ The Rockets - Back Talk / Rocket Roll (1981,1982) 2005, Remastered [WavPack|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286105.jpg" />
+  <img src="Z:/picture/008/save_picture_286105.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ Bitcrush - From Sinking (2015) [FLAC|Lossless|WEB-DL|tracks]<Post Rock, Ambient,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285949.jpg" />
+  <img src="Z:/picture/008/save_picture_285949.jpg" />
 </div>
 
 
@@ -466,7 +611,7 @@ Peter Cox - The S1 Sessions (2010) [FLAC|Lossless|image + .cue] <Rock, Blues Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284780.jpg" />
+  <img src="Z:/picture/008/save_picture_284780.jpg" />
 </div>
 
 
@@ -495,7 +640,7 @@ Centric Jones - The Antikythera Method (2011) [FLAC|Lossless|image + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284730.jpg" />
+  <img src="Z:/picture/008/save_picture_284730.jpg" />
 </div>
 
 
@@ -524,7 +669,7 @@ Circus Brimstone - Live - Brimstoned In Europe (2005) [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284729.jpg" />
+  <img src="Z:/picture/008/save_picture_284729.jpg" />
 </div>
 
 
@@ -553,7 +698,7 @@ Peter Gabriel - Hit (2003) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Art R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284489.jpg" />
+  <img src="Z:/picture/008/save_picture_284489.jpg" />
 </div>
 
 
@@ -582,7 +727,7 @@ VA - Het Allerbeste Uit Radio 1 Classics 1000 - 2019 (2019) 4CD, Compilation [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284256.jpg" />
+  <img src="Z:/picture/008/save_picture_284256.jpg" />
 </div>
 
 
@@ -599,148 +744,6 @@ CD4 - 01:16:38
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA55AEF27739731409C88474351A28ADDE6FD94C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964145   (284137) от 10.12.2015
-
-Cachemire - Photochope-moi (2015) [FLAC|Lossless]<Pop-Rock, Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'animal [2:37]
-02. Hasbeen [3:22]
-03. Mustang [3:43]
-04. Photochope-moi [5:04](   Читать дальше...   )Жанр: Pop-Rock, Hard-RockПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84055FE1C52D184777F76BD472E4335CE83EC963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963952   (284131) от 10.12.2015
-
-The Delgados - Universal Audio (2004) [FLAC|tracks+.cue]<Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Fought the Angels (3:20)
-02. Is This All That I Came For? (3:16)
-03. Everybody Come Down (3:14)
-04. Come Undone (3:31)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65888F2810C09F589304DA7E3EF28FFB30BAF9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964179   (284125) от 10.12.2015
-
-Texas - White On Blonde (1997) [FLAC|tracks+.cue]<Pop Rock, Downtempo>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 0.34 (0:34)
-02. Say What You Want (3:53)
-03. Drawing Crazy Patterns (3:52)
-04. Halo (4:10)(   Читать дальше...   )Жанр: Pop Rock, DowntempoПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97F49E4652FD966FACAA63497E509E209CEC6AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054347   (284021) от 21.11.2018
-
-VA - Garden Of Delights 200 CD + 2 DVD (1991-2017) CD-Katalog [WavPack, APE|Lossless|image + .cue] <Progressive Rock, Kraut Rock, Psychedelic Rock, Jazz Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garden of Delights специализируется на восстановлении и возрождении записей полузабытых групп, игравших Progressive Rock во всех его проявлениях, от психоделии до блюз-рока. В изначальном смысле термин progressive означал, что эта музыка была впереди своего времени и не вписывалась в существующие музыкальные течения. Это почти неизбежно означает, что лишь небольшой (   Читать дальше...   )Жанр: Progressive Rock, Kraut Rock, Psychedelic Rock, Jazz Rock, Blues RockПродолжительность: 187:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7ABCAADB2A8CE0F12EEF47CC2D29D493312BED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964167   (283948) от 10.12.2015
-
-Khymera - The Grand Design (Japanese Edition) (2015) [FLAC|Image+cue]<Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Give Up On You
-02. Tell Me Something
-03. Say What You Want
-04. I Believe(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C7DD2759E2685B04F8825EFA1E1E01278EBA2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

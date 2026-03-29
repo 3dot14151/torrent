@@ -1,3 +1,29 @@
+###  Публикация: 1557753   (213274) от 17.06.2022
+
+Digital Tutors, Clinton Crumpler | Creating Rock Structures for Games in ZBrush and Unreal Engine (2015) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создание скальной породы для игр. Unreal Engine 4.6.1, Photoshop, Maya, nDo2, xNormal, ZBrushПроизводство: Digital TutorsЖанр: Создание ассетовЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2EBE065254AD103A5A7EB0218E5191A557D600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558111   (213261) от 18.06.2022
 
 Gumroad, Flycat | Blender 3.0 - JinX Modeling – Full process video and 3D model by Flycat (2022) PCRec
@@ -6,7 +32,7 @@ Gumroad, Flycat | Blender 3.0 - JinX Modeling – Full process video and 3D mode
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213261.jpg" />
+  <img src="Z:/picture/005/save_picture_213261.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Flycat | Blender 3.1 – Tracer Character Modeling – Full process videos and 3
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213258.jpg" />
+  <img src="Z:/picture/005/save_picture_213258.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Amlab, Каюрова Наталия | Как рисовать в Photoshop (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213257.jpg" />
+  <img src="Z:/picture/005/save_picture_213257.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gumroad, Flycat | Create an MMORPG character style in Blender – Real-time proc
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213199.jpg" />
+  <img src="Z:/picture/005/save_picture_213199.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Gumroad, Flycat | Blender – Bunny Girl – Full process videos by Flycat (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213198.jpg" />
+  <img src="Z:/picture/005/save_picture_213198.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Samouchka School, Алексей Меркулов, Максим Маркевич
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213179.jpg" />
+  <img src="Z:/picture/005/save_picture_213179.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213131.jpg" />
+  <img src="Z:/picture/005/save_picture_213131.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Rebelway, Saber Jlassi | Transferring High-Res Assets from Houdini to Unreal Eng
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212657.jpg" />
+  <img src="Z:/picture/005/save_picture_212657.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212655.jpg" />
+  <img src="Z:/picture/005/save_picture_212655.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Rebelway, Urban Bradesko | CG Cinematography 101 (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212653.jpg" />
+  <img src="Z:/picture/005/save_picture_212653.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Rebelway, Saber Jlassi | Mastering Destruction And FX In Houdini (2019) PCRec [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212647.jpg" />
+  <img src="Z:/picture/005/save_picture_212647.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ Rebelway, Jayden Paterson | Master The Art of Magical FX in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212642.jpg" />
+  <img src="Z:/picture/005/save_picture_212642.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Udemy, Victor Yamakado | Master Character Modeling with Victor Yamakado (2020) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212615.jpg" />
+  <img src="Z:/picture/005/save_picture_212615.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ Rebelway, Corbin Mayne | Math for fx Artists (2020) PCRec [EN/ RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212589.jpg" />
+  <img src="Z:/picture/005/save_picture_212589.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ CGcircuit, VFX Magic | Houdini Crack Effect (2021) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212587.jpg" />
+  <img src="Z:/picture/005/save_picture_212587.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Rebelway, Saber Jlassi | Mastering Pyro FX In Houdini Level 1 (2018) PCRec [EN, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212582.jpg" />
+  <img src="Z:/picture/005/save_picture_212582.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ Yiihuu, Jungwon Park | “Liu yifei likeness as Mulan” for Photorealistic rend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212506.jpg" />
+  <img src="Z:/picture/005/save_picture_212506.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ FastTrack Tutorials, Emiel Sleegers | Ultimate Environmental Texture Creation Co
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_212440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_212440.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ Mold3D, J Hill | Character Creation for Video Games with J Hill (2019) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212431.jpg" />
+  <img src="Z:/picture/005/save_picture_212431.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ Wingfox, Alexander Sköld | The Lost Soldier- Environment Concept Design (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212417.jpg" />
+  <img src="Z:/picture/005/save_picture_212417.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ Wingfox, Andre Pires | UE4 for Real-Time Hair Course (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212409.jpg" />
+  <img src="Z:/picture/005/save_picture_212409.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ hipflask, Fraser Shiers | Houdini Geometry Essentials (Все части) (2020)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212358.jpg" />
+  <img src="Z:/picture/005/save_picture_212358.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Rebelway, Saber Jlassi | Advanced Asset Creation In Houdini For VFX And Games (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212356.jpg" />
+  <img src="Z:/picture/005/save_picture_212356.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212343.jpg" />
+  <img src="Z:/picture/005/save_picture_212343.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ Break Your Crayons, Marc Whitelaw | Houdini - QUIXEL megascans workflow Rendered
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212234.jpg" />
+  <img src="Z:/picture/005/save_picture_212234.jpg" />
 </div>
 
 
@@ -671,33 +697,6 @@ Break Your Crayons, Marc Whitelaw | Houdini - QUIXEL megascans workflow Rendered
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C343845FF0F02E8FDC5CB5F8E49741C250C52E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565717   (212232) от 24.07.2022
-
-Pluralsight, Rob Brooks | Blueprint and C++ Integration in Unreal Engine 4 (2017) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс даст вам уверенность и стремление улучшить ваш рабочий процесс, объединив C ++ и Blueprints в UE4, невероятно универсальном игровом движке, который становится все более популярным.
-Вы, наверное, видели форумы или комментарии где-то в Интернете, где задавались вопросом, что следует использовать: Blueprints или C ++ в Unreal?. Или еще хуже, почему что-то (   Читать дальше...   )Производство: PluralsightЖанр: Unreal Engine 4, Visual Studio C++Язык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D09EA1B23B10C880AE78ED759E8DB28241BCBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

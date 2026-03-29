@@ -1,3 +1,159 @@
+###  Публикация: 1331219   (332974) от 14.10.2019
+
+Ghostbusters: The Video Game Remastered (2019) [Ru/Multi] (2.00.50) Repack =nemos=
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghostbusters: The Video Game Remastered – это приключенческая игра по мотивам популярного фильма "Охотники за приведениями". Снова надень свой протонный ранец и присоединись к Охотникам за приведениями в их приключениях с голосами и внешностью оригинальной команды в битве за спасение Нью-Йорка!Тип издания: RepackРазработчик: Saber InteractiveЖанр: Adventure, Action, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Французский, Немецкий, Итальянский и другиеЯзык интерфейса: Русский, Французский, Немецкий, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845915E07953F1CCB9D0CA89AD0287CFFEFC262B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331376   (331737) от 15.10.2019
+
+Watch Dogs (2014) [Ru] (1.06.329/dlc) Repack Other s [Complete Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_331737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эйден Пирс – выдающийся хакер с криминальным прошлым, чьи поступки стали причиной трагедии. Чтобы отомстить за свою семью, он выходит на тропу войны – и вы вместе с ним. Эйден способен взламывать и использовать все, что подключено к городской информационной сети – все, что его окружает. Доступ к камерам безопасности, загрузка персональных данных, отслеживание местонахождения (   Читать дальше...   )Тип издания: RepackРазработчик: UbisoftЖанр: Action (Shooter, Stealth), 3rd Person, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD678728E2BD8B80DFF9AFDCCAF8A31552B8F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580664   (329542) от 02.10.2022
+
+UNDETECTED (2022) [En] (1.0) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_329542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юкатан, Мексика – 07 июня 2063 года. Ячейка революционной группы «Лос Десплазадос», включая их лидера Глорию, пропала без вести во время операций вокруг станции вечной энергии Чиксулуб. Теноч Каан, повстанец из Десплазадоса и реформированный агент теневой группы CIMACORP, отправляется на поиски Глории и ее команды. Оснащенный новейшими биотехнологическими усовершенствованиями, (   Читать дальше...   )Тип издания: LicenseРазработчик: Antonio FreyreЖанр: Экшны, СтелсЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12495A9E547A2EF4478F5A688A3D4310699A3DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581358   (326957) от 05.10.2022
+
+NERO (2022) [En] (1.5) License SKIDROW
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326957.jpg" />
+</div>
+
+
+###  Подробнее
+
+NERO - это хардкорный стелс-экшн, посвященный нелегкой работе снайпера. Выслеживайте и уничтожайте цели в глуби вражеских территорий и совершайте диверсии на охраняемых военных базах, используя все имеющиеся в вашем распоряжении инструменты и оружие. Играя за легендарного снайпера Неро, вам предстоит выполнять самые разнообразные задания в азиатских джунглях. Тактическое (   Читать дальше...   )Тип издания: LicenseРазработчик: Arimac Lanka Private LimitedЖанр: Экшены, Шутеры от третьего лица, СтелсЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59DDD5F05FE537661D7AF0847C8155198BCAFE9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581582   (326029) от 06.10.2022
+
+Middle-earth: Shadow of War (2017) [Ru/Multi] (1.21/dlc) License GOG [Definitive Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправляйтесь в тыл врага, создайте армию, захватите Крепости и правьте Мордором изнутри. В этом новом повествовании о Средиземье узнайте, как знаменитая система "Заклятые враги" создает уникальные биографии каждому врагу и стороннику, противодействуйте всей мощи Темного Властелина Саурона и Призраков Кольца. В Middle-earth: Shadow of War - память хранит (   Читать дальше...   )Тип издания: LicenseРазработчик: Monolith ProductionsЖанр: Экшны, Приключениe, ФэнтeзиЯзык озвучки: Английский, Немецкий, Бразильский, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Бразильский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Бразильский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D643A3EC114316B0D41A9CE5172E0A9AA32B1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331604   (322362) от 16.10.2019
+
+EARTH DEFENSE FORCE: IRON RAIN (2019) [Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_322362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спасите мир, в котором не осталось надежды. 2040-й год. Боевик TPS, в котором вы станете солдатом EDF и будете сражаться на опустошенной агрессией пришельцев Земле. В новой игре, отличающейся от версии «Earth Defence Force», вас ждет более 50 миссий и 5 уровней сложности.Тип издания: RepackРазработчик: YUKE'SЖанр: Action (Shooter), 3rd Person, 3DЯзык озвучки: Английский, Японский, Китайский, КорейскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6129FF97DE09EE617E6CB419BA6E554C4C08CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115266   (320577) от 08.11.2017
 
 HITMAN (2016) [Ru/Multi] (1.13.1/dlc) Repack Other s [GOTY Edition]
@@ -6,7 +162,7 @@ HITMAN (2016) [Ru/Multi] (1.13.1/dlc) Repack Other s [GOTY Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320577.jpg" />
+  <img src="Z:/picture/008/save_picture_320577.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Darksiders II (2015) [Ru/En] (2.1.0.4/dlc) Repack =nemos= [Deathinitive Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319849.jpg" />
+  <img src="Z:/picture/008/save_picture_319849.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319845.jpg" />
+  <img src="Z:/picture/008/save_picture_319845.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Tom Clancy's Splinter Cell: Chaos Theory (2005) [Ru/En] (1.05) Repack Samael
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318554.jpg" />
+  <img src="Z:/picture/008/save_picture_318554.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ State of Mind (2018) [Ru/Multi] (1.2) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318115.jpg" />
+  <img src="Z:/picture/008/save_picture_318115.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Tom Clancy's Splinter Cell: Double Agent (2006) [Ru/En] (1.02a) Repack Samael
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316223.jpg" />
+  <img src="Z:/picture/008/save_picture_316223.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) SteamRip Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314031.jpg" />
+  <img src="Z:/picture/008/save_picture_314031.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Agents of Mayhem (2017) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313774.jpg" />
+  <img src="Z:/picture/008/save_picture_313774.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Assassin’s Creed: Brotherhood (2011) [Ru] (1.03/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309044.jpg" />
+  <img src="Z:/picture/008/save_picture_309044.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Darksiders: Wrath of War (2010) [Ru/En] (1.1) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308290.jpg" />
+  <img src="Z:/picture/008/save_picture_308290.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Outcast - Second Contact (2017) [Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306968.jpg" />
+  <img src="Z:/picture/008/save_picture_306968.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Outcast - Second Contact (2017) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306776.jpg" />
+  <img src="Z:/picture/008/save_picture_306776.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Dead Space 2 (2011) [Ru/Multi] (1.1/dlc) SteamRip Let'sРlay [Limited Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304584.jpg" />
+  <img src="Z:/picture/008/save_picture_304584.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ How to Survive 2 (2016) [Ru/Multi] (1.0/dlc) Repack Seraph1
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303949.jpg" />
+  <img src="Z:/picture/008/save_picture_303949.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Outcast: Second Contact (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302731.jpg" />
+  <img src="Z:/picture/008/save_picture_302731.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Darksiders: Wrath of War [Ru/En/Multi9) (Steam-Rip/1.1) 2010 | R.G. Origins
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302311.jpg" />
+  <img src="Z:/picture/008/save_picture_302311.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Darksiders Dilogy / Дилогия Darksiders [Ru] (RePack/1.1/1.5) 2010-2012 | 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302301.jpg" />
+  <img src="Z:/picture/008/save_picture_302301.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ Blade & Bones (2016) [Ru/Multi] (1.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301885.jpg" />
+  <img src="Z:/picture/008/save_picture_301885.jpg" />
 </div>
 
 
@@ -475,7 +631,7 @@ The Evil Within 2 (2017) [Ru/Multi] (1.05/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300344.jpg" />
+  <img src="Z:/picture/008/save_picture_300344.jpg" />
 </div>
 
 
@@ -501,7 +657,7 @@ Darksiders 2: Death Lives - Limited Edition [Ru/En/Multi9] (Steam-Rip/1.5/18 DLC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_299890.jpg" />
+  <img src="Z:/picture/005/save_picture_299890.jpg" />
 </div>
 
 
@@ -512,166 +668,6 @@ Darksiders 2 является продолжением Darksiders: Wrath of War,
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262083   (298326) от 13.11.2018
-
-A Way Out (2018) [Ru/En] (1.0.62) Repack xatab
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели игры Brothers - A Tale of Two Sons представляют вам A Way Out, приключение, предназначенное исключительно для совместного прохождения. Вам предстоит сыграть роль одного из двух заключенных, затеявших дерзкий побег из тюрьмы.Тип издания: RepackРазработчик: HazelightЖанр: Action, Adventure, 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BDD76F0588DE116D80DADEA2DBFC53CE8E8FD9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184992   (296601) от 19.11.2017
-
-Outcast - Second Contact (2017) [Ru] (1.0) Repack xatab
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культовая игра Outcast, вдохнувшая жизнь в жанр приключений в открытом мире, возвращается с Outcast – Second Contact. Исследуйте планету Adelpha, равно красивую и опасную, и решите судьбу двух миров. Возьмите на себя роль Cutter Slade, бывалого солдата настоящих элитных войск, и исследуйте планету Adelpha, пользуясь полной свободой.Тип издания: RepackРазработчик: AppealЖанр: Action, Adventure, RPG, Open World, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BA578BB451A138FA3DDE0DA86ED649A81C9E7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262318   (296519) от 14.11.2018
-
-Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории о Старкиллере, ученике Дарта Вейдера, обманутом и предательски убитом в финале первой части игры. Благодаря технологиям клонирования Старкиллер возвращается к жизни, однако он лишен памяти.Тип издания: RepackРазработчик: AspyrЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B26F8DDD99DD35FAAAD1B981AA59BF842F49993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962022   (296446) от 03.12.2015
-
-Saint Seiya: Soldiers' Soul (2015) [En] (1.0) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Saint Seiya: Soldiers' Soul - это долгожданное возвращение Saint Seiya! В этой игре представлены персонажи из всей серии, включая 12 Gold Saints и их God Cloths из недавно вышедшего аниме 'Soul of Gold'. Saint Seiya: Soldiers' Soul - это использование новейших технологий для создания зрелищной графики, динамичного игрового процесса, напряженных боев и множества других (   Читать дальше...   )Тип издания: LicenseРазработчик: DIMPSЖанр: Аction, FightingЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7833617AA1FACB6846F6660CFC7DB60DA88E55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 268387   (294959) от 10.12.2010
-
-Spider-Man: Shattered Dimensions [Ru] (L) 2010 | R.G Игроманы
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поклонников серии игр о легендарном супергерое ждут приключения нового поколения – приключения в четырех мирах, объединенных сюжетом и главным героем.
-
-История за авторством известного художника комиксов Дэна Слотта (Dan Slott) отправит игроков на поиски осколков таинственного артефакта — Скрижали порядка и хаоса (Tablet of Order and Chaos), — которые разлетелись по нескольким параллельным вселенным. Собирая части Скрижали, игроки побывают в самых разных местах — в непроходимых джунглях, безграничных пустынях и огромных мегаполисах (некоторые локации не фигурировали ни в одной из предшествующих игр).
-
-В каждом из четырех миров предстоит выступить в роли одного из воплощений легендарного супергероя и использовать уникальные способности и возможности каждого, чтобы расправиться со всеми противниками, собрать артефакт и восстановить порядок мироздания.Тип издания: ЛицензияЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBD4A79C59C23F213B12AC04201B173EA13BE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202362   (294462) от 15.11.2018
-
-Absolver (2017) [Ru/Multi] (1.27 503/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Absolver - одиночные и сетевые многопользовательские сражения, где игроки скрываются под масками Претендентов по воле вездесущих Проводников, новых правителей падшей империи Адал, которые решают, достойны ли вы пополнить ряды их элитного корпуса силовиков. Претендентам предстоит скитаться по забытым землям, сталкиваться с другими, обучаться боевым навыкам, находить (   Читать дальше...   )Тип издания: LicenseРазработчик: SloclapЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842859CF68CB47348983A30B1D24C67212B51960
 ```
 
 https://mybot314.ru/tekegram_catalog/

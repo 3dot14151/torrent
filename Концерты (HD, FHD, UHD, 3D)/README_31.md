@@ -1,3 +1,88 @@
+###  Публикация: 415421   (318906) от 30.11.2011
+
+Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт известной американской альтернативной рок-группы на Красной площади в Москве.01. Intro
+ 02. New Divide
+ 03. Papercut
+ 04. Given Up(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49643EA6747707F7A553951025B5DA18A1F3A3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259571   (318764) от 04.11.2018
+
+Квартирник на НТВ у Маргулиса. Валерий Сюткин (11.03.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318764.jpg" />
+</div>
+
+
+###  Подробнее
+
+На «Квартирнике НТВ у Маргулиса» выступил легендарный музыкант Валерий Сюткин. Специально для зрителей НТВ музыкант исполнил свои лучшие композиции.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5652E3AFD6B73D7EB724413AEC97EB8FFEC7A6A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421661   (317487) от 05.11.2020
+
+Юлианна Караулова - "Карантинник" (2020) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_317487.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Карантинники» — это онлайн-квартирники российских артистов в условиях самоизоляции. Музыканты исполняют свои произведения у себя дома или в репетиционной студии.
+Юлианна исполнила несколько песен и ответила на присланные ей вопросы.01 Дикая пума
+02 Маячки
+03 Просто так
+04 Внеорбитные(   Читать дальше...   )Производство: Россия | МТСЖанр: КонцертПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAA69355F4F225317D6E3D06B872C089258A886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421726   (317479) от 05.11.2020
 
 Денис Мацуев - Юбилейный онлайн-концерт (2020) WEBRip [H.264/1080p-LQ]
@@ -6,7 +91,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317479.jpg" />
+  <img src="Z:/picture/008/save_picture_317479.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314045.jpg" />
+  <img src="Z:/picture/008/save_picture_314045.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313894.jpg" />
+  <img src="Z:/picture/008/save_picture_313894.jpg" />
 </div>
 
 
@@ -90,7 +175,7 @@ Delain - Live At Paradiso (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313822.jpg" />
+  <img src="Z:/picture/008/save_picture_313822.jpg" />
 </div>
 
 
@@ -119,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312726.jpg" />
+  <img src="Z:/picture/008/save_picture_312726.jpg" />
 </div>
 
 
@@ -145,7 +230,7 @@ Lacrimosa - Live in Moscow 19.11.2015 (2015) WEB-DL [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309827.jpg" />
+  <img src="Z:/picture/008/save_picture_309827.jpg" />
 </div>
 
 
@@ -174,7 +259,7 @@ Peter Gabriel - Secret World Live (2012) BDRemux
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_309764.jpg" />
+  <img src="Z:/picture/005/save_picture_309764.jpg" />
 </div>
 
 
@@ -209,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309348.jpg" />
+  <img src="Z:/picture/008/save_picture_309348.jpg" />
 </div>
 
 
@@ -235,7 +320,7 @@ Alice Cooper: Theatre of Death - Live At Hammersmith (2009) [1080i] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308831.jpg" />
+  <img src="Z:/picture/008/save_picture_308831.jpg" />
 </div>
 
 
@@ -261,7 +346,7 @@ Muse - Live in Rome (The Unsustainable Tour) (2013) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308752.jpg" />
+  <img src="Z:/picture/008/save_picture_308752.jpg" />
 </div>
 
 
@@ -290,7 +375,7 @@ Peter Gabriel / Secret World Live (1993/2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_307199.jpg" />
+  <img src="Z:/picture/005/save_picture_307199.jpg" />
 </div>
 
 
@@ -316,7 +401,7 @@ Linkin Park / Road to Revolution - Live at Milton Keynes (2008) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_307195.jpg" />
+  <img src="Z:/picture/005/save_picture_307195.jpg" />
 </div>
 
 
@@ -342,7 +427,7 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304794.jpg" />
+  <img src="Z:/picture/008/save_picture_304794.jpg" />
 </div>
 
 
@@ -371,7 +456,7 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304202.jpg" />
+  <img src="Z:/picture/008/save_picture_304202.jpg" />
 </div>
 
 
@@ -400,7 +485,7 @@ Depeche Mode - Alive In Berlin (2014) WEB-DL 1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303670.jpg" />
+  <img src="Z:/picture/008/save_picture_303670.jpg" />
 </div>
 
 
@@ -429,7 +514,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302216.jpg" />
+  <img src="Z:/picture/008/save_picture_302216.jpg" />
 </div>
 
 
@@ -455,7 +540,7 @@ The Rolling Stones: Havana Moon (2016) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302184.jpg" />
+  <img src="Z:/picture/008/save_picture_302184.jpg" />
 </div>
 
 
@@ -484,7 +569,7 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302159.jpg" />
+  <img src="Z:/picture/008/save_picture_302159.jpg" />
 </div>
 
 
@@ -510,7 +595,7 @@ Queen - Live At The Rainbow '74 (2014) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300992.jpg" />
+  <img src="Z:/picture/008/save_picture_300992.jpg" />
 </div>
 
 
@@ -539,7 +624,7 @@ Slipknot - Day Of The Gusano (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300976.jpg" />
+  <img src="Z:/picture/008/save_picture_300976.jpg" />
 </div>
 
 
@@ -568,7 +653,7 @@ Roger Waters - The Wall (2014) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300433.jpg" />
+  <img src="Z:/picture/008/save_picture_300433.jpg" />
 </div>
 
 
@@ -597,7 +682,7 @@ U.D.O. – Steelhammer: Live from Moscow (2014) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299716.jpg" />
+  <img src="Z:/picture/008/save_picture_299716.jpg" />
 </div>
 
 
@@ -626,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298734.jpg" />
+  <img src="Z:/picture/008/save_picture_298734.jpg" />
 </div>
 
 
@@ -637,90 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17B5308711432228008326B351EE2FC9ADAF0041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184597   (298529) от 18.11.2017
-
-Black Sabbath - The End (Live In Birmingham) (2017) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись последнего концерта в истории BLACK SABBATH, состоявшегося 4 февраля в зале "Genting Arena" в Бирмингеме (Англия), издана лейблом Eagle Vision 17 ноября под названием "The End". На концерте в крайне эмоциональной атмосфере звучали такие хиты как "Iron Man", "Paranoid", "War Pigs" и мн. др. Также для выступления (   Читать дальше...   )01. Black Sabbath
-02. Fairies Wear Boots
-03. Under The Sun / Every Day Comes And Goes
-04. After Forever(   Читать дальше...   )Производство: Eagle VisionЖанр: Hard RockПродолжительность: 01:48:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D836FF04C43789EAF0EDBDF571E499B3E344D851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915191   (296684) от 19.11.2017
-
-AC/DC - Live at River Plate (2009/2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись грандиозного тура AC/DC «Black Ice World Tour», снятая 32 HD камерами в декабре 2009 года. 200 000 фанатов, собравшихся на три шоу в Буэнос Айресе, приветствовали группу после 13 лет отсутствия в Аргентине.01. Rock n Roll Train
-02. Hell Ain't a Bad Place to Be
-03. Back in Black
-04. Big Jack(   Читать дальше...   )Производство: США, Columbia RecordsЖанр: Hard RockРежиссер: David MalletПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EF71C25062ADEFAE472ED386C87285F9D2B1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424085   (295563) от 15.11.2020
-
-Квартирник НТВ у Маргулиса. Группа Элизиум (14.11.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295563.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сцене «Квартирника» — российский космос-рок ансамбль «Элизиум». В этом году коллектив отметил 25-летие: за этот период состав группы неоднократно менялся, но это никогда не сказывалось на их популярности. В гостях у Евгения Маргулиса участники «Элизиума» поделились интересными воспоминаниями и исполнили хиты в жанре, который они сами называют космос-роком.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADB80A1A9AEA938E83A0F5BE1AE3D68524EE8DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

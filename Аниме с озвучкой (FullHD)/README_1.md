@@ -1,3 +1,29 @@
+###  Публикация: 1609519   (1043220) от 03.02.2023
+
+Amagi Brilliant Park | Великолепный парк Амаги [2014, TV, 13 из 13 + 1 SP] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэйя Каниэ в детстве был знаменитым актером, но потом пережил трагедию и спрятался в образе законченного нарцисса и эгоиста. Красавца-отличника ничто не волнует, хотя… можно и послушать, когда тихая одноклассница Исудзу Сэнто сует тебе в лоб неясно откуда взявшийся старинный мушкет. Так Сэйя узнал о парке развлечений Амаги, оказавшимся анклавом волшебной Кленовой (   Читать дальше...   )Производство: Kyoto Animation / 京都アニメーションЖанр: комедия, фэнтезиРежиссер: Такэмото ЯсухироЯзык озвучки: Японский, русский (Onibaku, Shiza)Субтитры: Русские (YakuSub Studio, Sa4ko aka Kiyoso & Zenobian)Продолжительность: 14 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2801D3171082DDDDE978A8F268044878190685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414839   (1042913) от 01.01.2021
 
 Крылатые воины Сигрдривы [ТВ-1] | Senyoku no Sigrdrifa [2020, TV, 12 из 12] WEB-DL 1080p rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042913.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042912.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ Tenchi Muyou! Bangaihen: Galaxy Police Mihoshi Space Adventure | Тэнти - л
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042633.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ Blade and Soul / Клинок и душа [2014, TV, 12 ep] BDRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042632.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Fuuka / Фуука [2017, TV, 12 ep] BDRip 1080p Rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042372.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042328.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042125.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Tenchi Muyou! The Night Before The Carnival | Omatsuri Zenjitsu no Yoru! | Тэ�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041821.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ Tenchi Muyou! Ryououki | Tenchi Muyo! Ryo-Ohki | Тэнти - лишний! Рё
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041816.jpg" />
 </div>
 
 
@@ -251,7 +277,7 @@ Mangaka-san to Assistant-san to The Animation | The Comic Artist and His Assista
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041560.jpg" />
 </div>
 
 
@@ -277,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040686.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Vampire Hunter D: Bloodlust | D: Жажда крови | Ди - охотник �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035590.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Aoki Ryuusei SPT Layzner | Blue Comet SPT Layzner | Голубой метеор 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035298.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034751.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034716.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033325.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ Kaze no tani no Naushika | Nausicaa of the Valley of the Wind | Навсикая
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033094.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ Princess Connect! Re:Dive Season 2 | Связь принцесс! Новое п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032915.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032831.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ Senya Ichiya Monogatari | A Thousand and One Nights | Сказки 1001 ночи
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032370.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Cleopatra | Cleopatra: Queen of Sex | Клеопатра, королева се�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032368.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-3) [2020, Web, 10 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032154.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ Psycho-Pass: Sinners of the System | Психопаспорт: Грешники 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032152.jpg" />
 </div>
 
 
@@ -626,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031994.jpg" />
 </div>
 
 
@@ -653,7 +679,7 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031940.jpg" />
 </div>
 
 
@@ -666,32 +692,6 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDF4A82F62B23D88D8F7EE990CB1A10968A12D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447290   (1031939) от 12.02.2021
-
-Странствующая ведьма [ТВ-1] | Majo no Tabitabi | Wandering Witch: The Journey of Elaina [TV-1] [2021, TV, 12 из 12] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жила-была путешественница, которую звали Элейна. Совсем молодая, она уже успела стать магом высшего разряда — ведьмой. Невероятно умная девушка, что тут ещё сказать. С раннего детства она зачитывалась путевыми заметками, а потому и сама теперь гуляет по всему свету: идёт туда, куда глаза глядят. В пути Элейне встречаются совершенно разные, необычные люди: так она (   Читать дальше...   )Производство: Япония, студия C2CЖанр: приключения, фэнтезиРежиссер: Кубоока ТосиюкиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6A01C5F4F75F2E9CD2C614231716AE0E5EF774
 ```
 
 https://mybot314.ru/tekegram_catalog/

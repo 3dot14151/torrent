@@ -1,3 +1,62 @@
+###  Публикация: 1520339   (143627) от 27.12.2021
+
+VA - Hypnotica: Psy Trance Megamix (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта музыка, может быть, не духовна в контексте религиозности, но духовна по своему содержанию, причем в зависимости от конкретного слушателя. Один и тот же трек может восприниматься людьми по-разному и вызывать разные состояния и разные ассоциации. Еще в древности люди научились использовать ритм в культовых и религиозных целях. Удары шамана палкой по барабану из (   Читать дальше...   )001. Static Movement - Taking Off
+002. Sun - Utopia
+003. Neelix - Winter Sun
+004. Mentalist - Deja Vu(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA01D9ECE1FBD502BD176DB08DE729971986521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969970   (143581) от 29.12.2015
+
+VA - The Choice (2015) [MP3|196 - 320 кб/с] <Spacesynth, Spacedisco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143581.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборнике представлены альбомы русско-говорящих композиторов, выпустивших работы в 2015 году.
+The Choice`(выбор) - выбор лучшего Spacesynth альбома года...01. Laserlight - Change Of Time 04:54
+02. Playing Space - Storm Of Love 05:02
+03. TDHDriver - My Fantasy World 06:16
+04. Oblivion - Dancing With The Morning Sun 05:44(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 01:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0CBE255E6F0D142588B15571D48F6B2FF549BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520333   (143499) от 27.12.2021
 
 VA - Get Physical: Electro Bass Compilation (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Electro Bass>
@@ -6,7 +65,7 @@ VA - Get Physical: Electro Bass Compilation (2021) [MP3|320 Kbps] <Drum And Bass
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143499.jpg" />
 </div>
 
 
@@ -35,7 +94,7 @@ VA - Zen Lounge: Ambient Music for Inner Relaxation and Meditation (2016) [MP3|3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143162.jpg" />
 </div>
 
 
@@ -64,7 +123,7 @@ VA - Best Of Phoenix Music (2018) [MP3|320 Kbps] <House, Soulful, Funky>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143124.jpg" />
 </div>
 
 
@@ -93,7 +152,7 @@ VA - Club Dubstep №22 (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143027.jpg" />
 </div>
 
 
@@ -128,7 +187,7 @@ VA - Vocal Chillout Music (2018) [MP3|320 Kbps] <Downtempo, ChillOut, NewAge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142962.jpg" />
 </div>
 
 
@@ -157,7 +216,7 @@ VA - Finding Around Blessing (Energy Tech Trance) 012 (2017) [MP3|320 Kbps] <Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142770.jpg" />
 </div>
 
 
@@ -186,7 +245,7 @@ VA - Modern Beats: Electro House (2018) [MP3|320 Kbps] <Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142603.jpg" />
 </div>
 
 
@@ -215,7 +274,7 @@ VA - Unknown 80's (part X) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142004.jpg" />
 </div>
 
 
@@ -244,7 +303,7 @@ VA - The Space Beats (2021) [MP3|320 Kbps] <Synthspace, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141983.jpg" />
 </div>
 
 
@@ -273,7 +332,7 @@ VA - New Year Party (2016) (2015) [MP3|320 кб/с] <Club, Progressive, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141620.jpg" />
 </div>
 
 
@@ -302,7 +361,7 @@ VA - Record Super Chart 2019 Итоговый [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141270.jpg" />
 </div>
 
 
@@ -331,7 +390,7 @@ VA - Antagon Cybernetic: 130 Hard Technostyle (2016) [MP3|320 Kbps] <Hardstyle, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141215.jpg" />
 </div>
 
 
@@ -360,7 +419,7 @@ VA - Apollo Four Forty - Best275z (1994 - 2012) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141213.jpg" />
 </div>
 
 
@@ -389,7 +448,7 @@ VA - Better Than Sex (2CD) (2016) [MP3|320 Kbps] <Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140769.jpg" />
 </div>
 
 
@@ -418,7 +477,7 @@ VA - Trance Top 100 2013.1 - 12 (2013) (Обновляемая) [MP3|320 кб/с
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140330.jpg" />
 </div>
 
 
@@ -447,7 +506,7 @@ VA - Умная Электроника (Музыка Поднимающая На
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140233.jpg" />
 </div>
 
 
@@ -476,7 +535,7 @@ VA - House Fusion: Absolute EDM Sound (2019) [MP3|320 Kbps] <House, Dance, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140071.jpg" />
 </div>
 
 
@@ -505,7 +564,7 @@ VA - DNA Techno Mix (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139668.jpg" />
 </div>
 
 
@@ -534,7 +593,7 @@ VA - Beatport Psy Trance: Electro Sound Pack #215 (2020) [MP3|320 Kbps] <Psy, Go
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139538.jpg" />
 </div>
 
 
@@ -563,7 +622,7 @@ VA - Beatport Trance: Sound Pack #386 (2021) [MP3|320 Kbps] <Trance, Electro, Pr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139454.jpg" />
 </div>
 
 
@@ -592,7 +651,7 @@ VA - Finding Around Happiness (Energy Tech Trance) 012 (2016) [MP3|320 Kbps] <Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139418.jpg" />
 </div>
 
 
@@ -621,7 +680,7 @@ VA - Trance Elegance On This Year 005 (2016) [MP3|320 Kbps] <Trance, Melodic, Up
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139385.jpg" />
 </div>
 
 
@@ -650,7 +709,7 @@ VA - Top 50 Uplifting Trance 2016  [MP3|320 Kbps] <Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139257.jpg" />
 </div>
 
 
@@ -679,7 +738,7 @@ VA - Trance Traveling 72 TOP 20 (2015) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139256.jpg" />
 </div>
 
 
@@ -693,64 +752,6 @@ VA - Trance Traveling 72 TOP 20 (2015) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05E9BE0AA4FA6584796D9067C6DFB98B22787565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088422   (139226) от 31.12.2016
-
-VA - Trance Traveling 84 (Top 20) (Mixed by VNP) (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic, Kate Louise Smith, Denis Karpinskiy - They Wait For Us (Progressive Mix) 8:00
-02. Ana Criado - Vulnerable (Denis Kenzo Remix) 5:15
-03. Omnia - Hold Me (Extended Mix) 3:53
-04. Luke Bond vs. CARTEL - Once More (Extended Mix) 5:24(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, ProgressiveПродолжительность: 03:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35BCAD89CA86281B6421DFA941B5A2B012491C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088526   (139168) от 31.12.2016
-
-VA - 100 Trance Melody Native (2016) [MP3|320 Kbps] <Trance, Harmonic, Vocal, Emotional, Uplifting, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139168.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren - The Ultimate Seduction (Extended Mix) 3:56
-002. Richard Durand & Simon - Always The Sun (Ahmet Atasever Remix) 7:20
-003. Bobina & Kyle Richardson - Love Is the Answer (Dimension Remix) 5:11
-004. Roman Messer & Christina Novelli - Lost Soul (Aleksey Sladkov Remix) 5:06(   Читать дальше...   )Жанр: Trance, Harmonic, Vocal, Emotional, Uplifting, Energy, ProgressiveПродолжительность: 10:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B4D9A15E850BB9FA4A0B4C3D23E7C0C8E6766A
 ```
 
 https://mybot314.ru/tekegram_catalog/

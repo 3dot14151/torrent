@@ -1,3 +1,185 @@
+###  Публикация: 1853302   (1056357) от 12.02.2026
+
+KMPlayer 2026.1.26.43 (x64) Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1056357.jpg" />
+</div>
+
+
+###  Подробнее
+
+The KMPlayer – это мощный мультимедиа проигрыватель, предназначенный для воспроизведения аудио/видеофайлов практически всех возможных форматов. Убедиться в этом и испытать его в работе очень просто - достаточно скачать KMPlayer и запустить, никакие дополнительные установки не нужны, тем более, что такие кодеки, как DVD, AVI, VCD, Ogg, MKV, mp3, OGM, 3GP, MPEG-1/2/4, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1D24EC6583F7DAAFDD5A8363CA23EB037E8E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852289   (1055850) от 08.02.2026
+
+PotPlayer 260114 (1.7.2277) (x32/x64) Portable by 7997 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1055850.jpg" />
+</div>
+
+
+###  Подробнее
+
+PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA843CEC85732C2CB62061897759D8791A926FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851136   (1054757) от 31.01.2026
+
+PotPlayer 260114 (1.7.2277) [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054757.jpg" />
+</div>
+
+
+###  Подробнее
+
+PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00911F33945DE456BEDFC7028833E343C554895E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850499   (1054336) от 28.01.2026
+
+K-Lite Codec Pack 19.4.5 Mega/Full/Standard/Basic [En]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054336.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D46287B8766A32131F78EB11E61674D94823EBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850349   (1054177) от 27.01.2026
+
+Zoom Player MAX 22.0.1 Build 2201 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_1054177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoom Player - мощный, гибкий и настраиваемый DVD/Blu-ray и медиа плеер для операционных систем Windows. Проигрывает DIVX, MP3, MPA, WAV, WMA, ASF, ASX, AVI, DAT, MPG, MPEG, VOB, WM, WMV. Поддерживает плейлисты, управление горячими клавишами и из командной строки, полноэкранный режим работы, маcштабирование широкоэкранного фильма для удаления полос снизу и сверху (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855B92A5ABFDC58F10A8A47D52AAB90BA155316F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848956   (1053158) от 20.01.2026
+
+PotPlayer 260114 (1.7.22772) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1053158.jpg" />
+</div>
+
+
+###  Подробнее
+
+PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C86A15052EDC48DB41CDBAE5C596C936F7A7CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848869   (1053031) от 19.01.2026
+
+PotPlayer 260114 (1.7.22772) [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1053031.jpg" />
+</div>
+
+
+###  Подробнее
+
+PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E981DA521983B255C3C8A18143ECB874C5E16EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847599   (1052132) от 13.01.2026
 
 PotPlayer 260112 (1.7.22766) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -6,7 +188,7 @@ PotPlayer 260112 (1.7.22766) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052132.jpg" />
+  <img src="Z:/picture/005/save_picture_1052132.jpg" />
 </div>
 
 
@@ -32,7 +214,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.6.0.0 RePack (& Portable) by KpoJIuK
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051606.jpg" />
+  <img src="Z:/picture/005/save_picture_1051606.jpg" />
 </div>
 
 
@@ -58,7 +240,7 @@ K-Lite Codec Pack 19.4.0 Mega/Full/Standard/Basic [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051603.jpg" />
+  <img src="Z:/picture/005/save_picture_1051603.jpg" />
 </div>
 
 
@@ -84,7 +266,7 @@ VLC Media Player 3.0.23 + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050059.jpg" />
+  <img src="Z:/picture/005/save_picture_1050059.jpg" />
 </div>
 
 
@@ -110,7 +292,7 @@ PotPlayer 251222 (1.7.22755) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049893.jpg" />
+  <img src="Z:/picture/005/save_picture_1049893.jpg" />
 </div>
 
 
@@ -136,7 +318,7 @@ CyberLink PowerDVD Ultra 24.0.1105.62 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049337.jpg" />
+  <img src="Z:/picture/008/save_picture_1049337.jpg" />
 </div>
 
 
@@ -162,7 +344,7 @@ CyberLink PowerDVD Ultra 24.0.1105.62 (x64) RePack by TheBig [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049335.jpg" />
+  <img src="Z:/picture/008/save_picture_1049335.jpg" />
 </div>
 
 
@@ -188,7 +370,7 @@ Zoom Player MAX 22.0.0 Build 2200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048960.jpg" />
+  <img src="Z:/picture/008/save_picture_1048960.jpg" />
 </div>
 
 
@@ -214,7 +396,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.6 RePack (& Portable) by elchupaca
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047826.jpg" />
+  <img src="Z:/picture/008/save_picture_1047826.jpg" />
 </div>
 
 
@@ -240,7 +422,7 @@ JRiver Media Center 35.0.27 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047652.jpg" />
+  <img src="Z:/picture/008/save_picture_1047652.jpg" />
 </div>
 
 
@@ -266,7 +448,7 @@ K-Lite Codec Pack 19.3.5 Mega/Full/Standard/Basic [En]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047244.jpg" />
+  <img src="Z:/picture/005/save_picture_1047244.jpg" />
 </div>
 
 
@@ -292,7 +474,7 @@ Media Player Classic Home Cinema (MPC-HC) 2.5.6.0 RePack (& Portable) by KpoJIuK
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047206.jpg" />
+  <img src="Z:/picture/005/save_picture_1047206.jpg" />
 </div>
 
 
@@ -318,7 +500,7 @@ PotPlayer 251201 (1.7.22746) Beta RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046938.jpg" />
 </div>
 
 
@@ -344,7 +526,7 @@ BS.Player Pro 2.76 Build 1090 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037620.jpg" />
 </div>
 
 
@@ -370,7 +552,7 @@ Light Alloy 4.11.2 Build 3340 Final + Portable [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017467.jpg" />
 </div>
 
 
@@ -396,7 +578,7 @@ Audio Comparer 1.0.901 Rus
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987211.jpg" />
 </div>
 
 
@@ -423,7 +605,7 @@ QuickTime Pro 7.7.9.80.95 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979775.jpg" />
 </div>
 
 
@@ -449,7 +631,7 @@ DVDFab Player Ultra 6.0.0.9 [Multi/Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959077.jpg" />
 </div>
 
 
@@ -475,7 +657,7 @@ SAM CoDeC & DeCoDeR Pack 2017 6.12 [Ru]
 >>Видео Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905971.jpg" />
 </div>
 
 
@@ -486,190 +668,6 @@ SAM CoDeC & DeCoDeR Pack 2017 6.12 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69889C98D78B4EC956628CE4FF4763B1226A370E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839198   (824258) от 27.11.2025
-
-VLC Media Player 3.0.22 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824258.jpg" />
-</div>
-
-
-###  Подробнее
-
-VLC Media Player - представляет собой мощный медиацентр-проигрыватель все в одном. Одной из особенностей является возможность проигрывания практически любого типа потокового видео. Умеет также конвертировать и захватывать видео. Есть возможность установки видео в качестве обоев рабочего стола. Может быть использован в качестве сервера для трансляции потока по протоколам (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD67EEB570DBE75DB34974633760D4F62579C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116448   (823824) от 19.03.2017
-
-GoPro VR Player 2.2.0 [En]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823824.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoPro VR Player - новый видеоплеер для погружения в видео 360 градусов.
-Станьте участником вашего собственного видео опыта в виртуальной реальности: поворачивайтесь на 360 градусов, увеличивайте и уменьшайте масштаб, смотрите вокруг и добавляйте эффекты.
-Синхронизация локальных видеофайлов и их воспроизведение из галереи пользователя. Вы также можете скачать видео (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8794B75E552355B020994C55D1533DA5A31AD6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273581   (799703) от 02.01.2019
-
-Media Player Classic Home Cinema (MPC-HC) 1.7.13 Final + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic Home Cinema - удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A66F5E01BBB3701236E20137A8A58614BFE828B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386815   (793287) от 30.05.2020
-
-Soft4Boost AMPlayer 5.7.1.315 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный медиаплеер, с помощью которого можно воспроизводить видео- и аудиофайлы практически всех существующих форматов, а также просматривать изображения и фотографии.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:220FC9DE2543C1D8642C4CD55EA3DD12FAA4E95B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276274   (788460) от 15.01.2019
-
-Aurora Blu-ray Media Player 2.19.4.3289 RePack by вовава [Ru/En]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aurora Blu-ray Media Player — великолепный и один из лучших мультимедиа проигрывателей для Windows, который может воспроизводить диски Blu-ray, ISO образы файлов Blu-ray, стандартные Blu-ray папки, DVD, VCD, CD и многие другие популярные видео форматы. Позволяет просматривать фильмы (в т.ч. с субтитрами), изображения, музыку с высоким качеством и разрешением. Поддерживает (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B1CF4CDDA093DB530B305D72A4F693E0C87681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203959   (785202) от 04.02.2018
-
-Zoom Player MAX 14.1 Build 1410 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoom Player - наиболее мощный, гибкий и настраиваемый DVD/Blu-ray и медиа плеер для операционных систем Windows. Проигрывает DIVX, MP3, MPA, WAV, WMA, ASF, ASX, AVI, DAT, MPG, MPEG, VOB, WM, WMV. Поддерживает плейлисты, управление горячими клавишами и из командной строки, полноэкранный режим работы, маcштабирование широкоэкранного фильма для удаления полос снизу (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40B32BFBB712659F67F8B28728CC05C1B8F9AA2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017713   (760504) от 17.05.2016
-
-SopCast 4.1.0 [Multi/Ru]
-
->>След.
->>Видео Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760504.jpg" />
-</div>
-
-
-###  Подробнее
-
-SopCast - программа для просмотра видеотрансляций через интернет. С помощью SopCast вы сможете просматривать кинофильмы, прямые спортивные состязания, музыка, познавательные, развлекательные каналы и многое другое. Особенностью программы является то, что она работает через P2P сеть, позволяя при этом зарегистрированным пользователям транслировать свои собственные, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945B3CC535AFB9B757CBD31FCEAB667A8FE8B16E
 ```
 
 https://mybot314.ru/tekegram_catalog/

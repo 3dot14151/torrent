@@ -1,3 +1,55 @@
+###  Публикация: 1678144   (146794) от 20.11.2023
+
+March of Shrooms (2023) [En] (m309e) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девяносто девять лет назад грибы взмыли к небесам, разнеся свои споры по волшебных плавучим островам и дав расцвет счастливой и радостной цивилизации. К сожалению, каждые десять лет по Грибным островам проходится гигантский шторм, низводящий всё до мицелия и пары кистей ягод. Вот приближается десятый шторм, но на сей раз первое штормовое облачко заложило большую (   Читать дальше...   )Тип издания: LicenseРазработчик: KWT GamesЖанр: Экшны, Фэнтeзи, СтратегияЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026794B5D52F2EB71C0F2E67C93B9A1BAD5CBECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272087   (144992) от 26.12.2018
+
+Celeste (2018) [Ru/Multi] (1.2.5.1) Repack R.G. Revenants
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144992.jpg" />
+</div>
+
+
+###  Подробнее
+
+В платформере от создателей TowerFall Мэдлин сражается со своими демонами на пути к вершине горы Селеста. Преодолевай сотни хорошо продуманных сложностей, отыскивай тайники и постигай загадку горы. Простое и удобное управление с массой сложных моментов, где каждое падение чему-то учит. Одиночная игра в старомодном стиле о поисках себя.Тип издания: RepackРазработчик: Matt Makes GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC15F342CF48B784081B6FCEE77CF17F3EBC9FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677414   (144741) от 21.11.2023
 
 Bzzzt (2023) [Multi] (1.001) Scene Tenoke
@@ -6,7 +58,7 @@ Bzzzt (2023) [Multi] (1.001) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144741.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ YOHANE THE PARHELION -BLAZE in the DEEPBLUE- (2023) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143128.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Cave (2013) [Ru/En] (1.0/u2) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141934.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Bladed Fury (2018) [En/Ch/Jp] (1.0.1819) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141717.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ RaceTime: Undercover (2017) [Ru/En] (1.0.2) License
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139420.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Teslagrad (2013) [Ru/Multi] (1.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137532.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Grave Danger (2016) [En] (1.0.1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137373.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Cramped Room of Death (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137294.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Duke of Alpha Centauri (2016) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137232.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Dark Light (2020) [Multi] (1.0.6.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137012.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Jump King (2019) [Ru] (Build 14374430) Repack Necros
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136720.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132887.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Ghost Song (2022) [Ru/Multi] (1.2.12b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132458.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Basement Collection [En] (Repack) 2012 | R.G. Origami
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131885.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ SteamWorld Dig 2 (2017) [Ru/Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131550.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Blasphemous II (2) (2023) [Ru/Multi] (1.1.0-cs44446) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130919.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Blanc (2023) [Ru/Multi] (1.33) Repack dixen18
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130778.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Cyber Shadow (2021) [Ru/Multi] (1.04) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126342.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Pronty (2021) [Ru/Multi] (3.1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124242.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Ballance / Баланс (2004) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124093.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (2018-02-22/dl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123876.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ A Boy and His Blob Retro Collection (2023) [Multi] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123290.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ RUN: The world in-between (2022) [Ru/Multi] (1.3.11) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123001.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Angel at Dusk (2024) [Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122459.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Angel at Dusk - хардкорный экшен в формате bullet hell, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F803EACC2D21C941EEB1411E0AEDC3B56A289E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681575   (121781) от 21.01.2024
-
-Risk of Rain Returns (2023) [Ru/Multi] (1.0.5) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Risk of Rain Returns - это культовый roguelike-экшен, который вернулся, чтобы порадовать своих поклонников еще большим разнообразием и возможностями! Новые стили игры, уникальная добыча, новые выжившие, обновленный многопользовательский режим и все любимые особенности из Risk of Rain 2 - все это ждет вас в этой захватывающей игре. Исследуйте Петрикор V, на пути к (   Читать дальше...   )Тип издания: SceneРазработчик: Hopoo GamesЖанр: ЭкшеныЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D014FEDB4F86D3DC91BD05753C45EF1C638AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693979   (121347) от 23.01.2024
-
-Luna's Fishing Garden (2021) [Ru/Multi] (1.2.1) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Luna's Fishing Garden - двумерное приключение, механики которого завязаны на исследовании, рыбалке и строительстве. Путешествуя по окрестным водам, требуется ловить рыбу, чтобы продавать ее лисице. На вырученные деньги строится сад мечты. Героиня может высаживать деревья и растения, конструировать водные объекты, а также заселять животных на развивающихся островах.Тип издания: LicenseРазработчик: Coldwild Games, illufinchЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3AC6E3F960C1E297249DBCF90C578546631E9AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

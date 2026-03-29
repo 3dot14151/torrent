@@ -1,3 +1,57 @@
+###  Публикация: 1246683   (457011) от 13.09.2018
+
+Жюль Верн | Клодиус Бомбарнак (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457011.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный французский писатель Жюль Верн — замечательный мастер романа путешествий и приключений, первый классик научно-фантастического жанра, страстный пропагандист науки и ее грядущих завоеваний.Жанр: Роман, Путешествия и географияПродолжительность: 09:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68ADB8D6555835E466A6FFD79F2B33BBCCE2256D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246783   (456839) от 13.09.2018
+
+Чак Паланик | Удушье (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый шедевр «короля контркультурной прозы» Чака Паланика.
+Книга о молодом мошеннике, который каждодневно разыгрывает в дорогих ресторанах приступы удушья — и зарабатывает на этом неплохие деньги...
+Книга о сексоголиках, алкоголиках и шмоткаголиках. О любви, дружбе и философии. О сомнительном «втором пришествии» — и несомненной «невыносимой легкости бытия» наших (   Читать дальше...   )Жанр: Роман, КонтркультураПродолжительность: 07:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DED4AD11221AC1B08492900A76FEF6CAA045F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941662   (455871) от 30.09.2015
 
 Алексей Чапыгин | Белый скит (1986) [MP3]
@@ -6,7 +60,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455871.jpg" />
+  <img src="Z:/picture/008/save_picture_455871.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455731.jpg" />
+  <img src="Z:/picture/008/save_picture_455731.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455161.jpg" />
+  <img src="Z:/picture/008/save_picture_455161.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454861.jpg" />
+  <img src="Z:/picture/008/save_picture_454861.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453830.jpg" />
+  <img src="Z:/picture/008/save_picture_453830.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453719.jpg" />
+  <img src="Z:/picture/008/save_picture_453719.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453547.jpg" />
+  <img src="Z:/picture/008/save_picture_453547.jpg" />
 </div>
 
 
@@ -192,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451795.jpg" />
+  <img src="Z:/picture/008/save_picture_451795.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450472.jpg" />
+  <img src="Z:/picture/008/save_picture_450472.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450471.jpg" />
+  <img src="Z:/picture/008/save_picture_450471.jpg" />
 </div>
 
 
@@ -272,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449680.jpg" />
+  <img src="Z:/picture/008/save_picture_449680.jpg" />
 </div>
 
 
@@ -299,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449676.jpg" />
+  <img src="Z:/picture/008/save_picture_449676.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449566.jpg" />
+  <img src="Z:/picture/008/save_picture_449566.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448518.jpg" />
+  <img src="Z:/picture/008/save_picture_448518.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448514.jpg" />
+  <img src="Z:/picture/008/save_picture_448514.jpg" />
 </div>
 
 
@@ -405,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448332.jpg" />
+  <img src="Z:/picture/008/save_picture_448332.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447198.jpg" />
+  <img src="Z:/picture/008/save_picture_447198.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446211.jpg" />
+  <img src="Z:/picture/008/save_picture_446211.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444633.jpg" />
+  <img src="Z:/picture/008/save_picture_444633.jpg" />
 </div>
 
 
@@ -510,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444631.jpg" />
+  <img src="Z:/picture/008/save_picture_444631.jpg" />
 </div>
 
 
@@ -536,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444630.jpg" />
+  <img src="Z:/picture/008/save_picture_444630.jpg" />
 </div>
 
 
@@ -562,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444622.jpg" />
+  <img src="Z:/picture/008/save_picture_444622.jpg" />
 </div>
 
 
@@ -588,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444621.jpg" />
+  <img src="Z:/picture/008/save_picture_444621.jpg" />
 </div>
 
 
@@ -614,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444477.jpg" />
+  <img src="Z:/picture/008/save_picture_444477.jpg" />
 </div>
 
 
@@ -625,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32E846B38D29364C4936D24EADEE447922938F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164101   (444469) от 08.09.2017
-
-Анатолий Михайлов | У нас в саду жулики (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже само название этой книги выглядит как путешествие в заманчивое далеко: вот сад, подернутый рассветной дымкой, вот юные жулики, пришедшие за чужими яблоками. Это образы из детства героя одной из повестей книги Анатолия Михайлова. С возрастом придет понимание того, что за «чужие яблоки» – читай, запрещенные цензурой книги и песни, мысли и чувства – можно попасть (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 02:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22446B59C67E74D9266300D174B2848EF3B896EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061506   (444445) от 12.10.2016
-
-Юрий Казаков | Рассказы (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юрий Казаков, писатель, который вернул людям ощущение частной жизни, отнятое пятилетками, всесоюзными стройками и войной. Тонкий наблюдатель с удивительным чувством слова. Человек, именем которого названа литературная премия за лучший рассказ на русском языке.Жанр: РассказПродолжительность: 08:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36AAD62E702F0C49D884223288681531DA81958A
 ```
 
 https://mybot314.ru/tekegram_catalog/

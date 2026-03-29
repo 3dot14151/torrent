@@ -1,3 +1,119 @@
+###  Публикация: 1738403   (106274) от 23.07.2024
+
+Jessie Allen Cooper - Classics II (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moment In Time (3:41)
+02. Sasafrass (4:09)
+03. Pacific Lounge (4:34)
+04. Groovin Out Back (4:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D35350D7E2462690FC25C94FF6AA15D4340514B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738698   (106248) от 24.07.2024
+
+Toshiyuki Miyama & The New Herd - The Essence (1964 - 1971) 2CD, 2023, Nippon Crown [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 77 Sunset Strip [3:04]
+02. The Fugitive [2:02]
+03. Get Back [2:55]
+04. La pioggia [2:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A87E7C3B7319AF6A383D2CFAFB97A13686EA104E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738978   (106218) от 25.07.2024
+
+Pat Metheny - MoonDial (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz Fusion, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MoonDial (6:24)
+02. La Crosse (4:48)
+03. You're Everything (2:38)
+04. Here, There and Everywhere (4:24)(   Читать дальше...   )Жанр: Jazz, Jazz Fusion, Latin JazzПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81F0E8F0FCAFAD220EE081E1726E4FDA8840FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738857   (106204) от 25.07.2024
+
+Paul Bley - The Complete Remastered Recordings on Black Saint & Soul Note (1984 - 1998) 10CD, 2013, CAM [FLAC|Lossless|tracks + .cue] <Post-Bop, Free Improvisation, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trying Hard to Be [12:44]
+02. A Star Trying [4:35]
+03. Too Hard to Be a Star [8:23]
+04. I Must Try [4:00](   Читать дальше...   )Жанр: Post-Bop, Free Improvisation, Piano JazzПродолжительность: 09:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721981DDE7E42638B5617C8BD01F7D7A521AE437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739087   (106180) от 26.07.2024
 
 VA - Adventurous Moments Serenity and Charm Vacation Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
@@ -6,7 +122,7 @@ VA - Adventurous Moments Serenity and Charm Vacation Playlist (2024) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106180.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bill Evans - New Conversations (1978) 2014, Warner [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106175.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Exotic Idylic Perfection Cozy Getaway Chilly Instrumentals for an Enjoyable
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106150.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Idylic Exotic Perfection Cozy Getaway Tunes for an Enjoyable Vacation Envir
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106148.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Chris Connor - A Portrait Of Chris (1960) 2012, Atlantic [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105992.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Ultimate Jazz Piano Collection, Vol.1 (1950 - 1960) 10CD, 2014, Fermata [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105982.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Elvin Jones - Elvin! (1961, 1962) 1995, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105967.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.1 (1953)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105928.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Frank Sinatra - Ol' Blue Eyes (1990) Starlite [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105816.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Frank Sinatra - I Get A Kick Out Of You (1990) Entertainers [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105772.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Frank Sinatra - The Romantic Side (2006) Music Sessions [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105746.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Utopianisti - Reason In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105722.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Shakatak - The Very Best of Shakatak 1988-2024 (2024) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105710.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Frank Sinatra - Ring-A-Ding Ding! (1961) 1998, Reprise Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105709.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Funky Jazz House Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105642.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Ultimate Unforgettable Smooth Lounge Vacation Playlist to Relax and Recharg
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105638.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Unforgettable Ultimate Smooth Jazzy Vacation Playlist to Relax and Recharge
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105636.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Phineas Newborn, Jr. - The Great Jazz Piano Of Phineas Newborn, Jr. (1961, 1962)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105627.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The Claus Ogerman Orchestra - Gate Of Dreams (1977) 1988, Warner [APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105612.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Phineas Newborn, Jr. - Look Out - Phineas Is Back (1976) 1995, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105544.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Rahsaan Roland Kirk - The Case Of The 3 Sided Dream In Audio Color (1975) 2004, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105496.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Nat King Cole - More Historical Recordings (1990) Conquistador [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105399.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Nat King Cole - More Historical Recordings (1990) Conquistador [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A5D321F178A3CA6FC44B58C7E83CC466B864618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743337   (105387) от 16.08.2024
-
-Frank Sinatra - Sinatra Session (1999) 2CD, Castle Pie [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nancy (With The Laughting Face) [3:25]
-02. That Old Black Magic [2:35]
-03. You'll Never Know [3:04]
-04. The Things We Did Last Summer [3:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7457B1877B04E3187FCB5A3BD6B5DBCC240E90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743656   (105365) от 17.08.2024
-
-Bill Barron - Quintet & Sextet (1961 - 1962) 2CD, 2012, Fresh Sound [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noodlin' [5:53]
-02. Duality [6:59]
-03. Self Portrait [4:32]
-04. Persian Street Scene [4:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C024EEC97F62FA793AF705A0C5B6839C6A3495F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743824   (105319) от 18.08.2024
-
-Claus Ogerman - Featuring Michael Brecker (1991) GRP [APE|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corfu [7:56]
-02. Lyricosmos [8:50]
-03. After the Fight [10:40]
-04. Adonia [8:34](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2E8496C463E6E418331CC4715A9BB51C85C1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744044   (105311) от 19.08.2024
-
-Charlie Mariano - Boston All Stars (1951 - 1953) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boston Uncommon (master A) [2:10]
-02. Boston Uncommon (master B) [2:09]
-03. The Wizard (master A) [2:35]
-04. The Wizard (master B) [2:32](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDAB052A538CF9BB1EE1FFF203B3DB259BF693DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

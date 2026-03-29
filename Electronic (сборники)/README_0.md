@@ -1,3 +1,61 @@
+###  Публикация: 1843303   (1049544) от 21.12.2025
+
+Marius - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Deep Chill House, Ai>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1049544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sunset Dance
+02 - Within the Dream (Version)
+03 - Sensual Flare Dub
+04 - A Silent Language We Both Know(   Читать дальше...   )Жанр: Deep Chill House, AiПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558A2D177A145055A93483506096AAB834A02DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843298   (1049542) от 21.12.2025
+
+VA - No name compilation part 29 Deep Chill Vocal House (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1049542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dj Calma - Hold Me Closer
+02 - Kasimoff - Missed Call
+03 - Mr Salama - Feel Your Love
+04 - Adex - Low Battery(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:07:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6B756B1FE1A86B0805252099E9C2C74A7EF54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842755   (1048893) от 16.12.2025
 
 VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
@@ -6,7 +64,7 @@ VA - No name compilation Deep Chill Vocal House part 28 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048893.jpg" />
+  <img src="Z:/picture/008/save_picture_1048893.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - No name compilation Deep Chill Vocal House part 27 (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048892.jpg" />
+  <img src="Z:/picture/008/save_picture_1048892.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - No name compilation part 26 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048702.jpg" />
+  <img src="Z:/picture/008/save_picture_1048702.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Vocal Trance NNM 6 (2025) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048392.jpg" />
+  <img src="Z:/picture/008/save_picture_1048392.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - No name compilation part 20 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048234.jpg" />
+  <img src="Z:/picture/008/save_picture_1048234.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - No name compilation part 22 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048232.jpg" />
+  <img src="Z:/picture/008/save_picture_1048232.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sardø - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048231.jpg" />
+  <img src="Z:/picture/008/save_picture_1048231.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Sardø - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048230.jpg" />
+  <img src="Z:/picture/008/save_picture_1048230.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - 60 minutes. Old School Dance Music vol.32 (mixed by Dj V) (2025) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047588.jpg" />
+  <img src="Z:/picture/008/save_picture_1047588.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - No name compilation part 19 Deep Chill Vocal House (2025) [MP3|320 Kbps] <D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047027.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Reteox - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046825.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ LIYNA - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Vocal Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046813.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Record Super Chart 29.11.2025 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046781.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Day In Hits 2023 Genres Navigator (2023) [MP3|320 Kbps] <Electro House, Tec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045740.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Trance Anthems 2023 [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045397.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Fresh Fruity Electro House Tracks (2023) [MP3|320 Kbps] <Bass House, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045321.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Winter Light Deep (2023) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045283.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Party Mix 2022 (2023) [MP3|320 Kbps] <Groove, House, Club, Nu Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045203.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Chill Out Stories Vol. 4 (2023) [MP3|320 Kbps] <Downtempo, Future Jazz, Chi
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045168.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Beatport Tech House Top 100 January (2023) [MP3|320 Kbps] <Tech House, Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044206.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Beatport Progressive House Top 100 January (2023) [MP3|320 Kbps] <Deep Prog
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044202.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - 60 minutes. Old School Dance Music vol.15 (mixed by Dj V) (2022) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043229.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - The Carbon Footprint (2023) [MP3|320 Kbps] <Psy, Goa, Trance, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043169.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Beatport Electro House: Sound Pack #216 (2020) [MP3|320 Kbps] <Electro Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043090.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Beatport Electro House: Sound Pack #216 (2020) [MP3|320 Kbps] <Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:888DF930B6DAEC37D22A1E5F92863A3327A73D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609899   (1042898) от 05.02.2023
-
-VA - Night Rider 5 (2023) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zerb feat. Kidd Thorn - Winding Road (Extended Mix) (3:45)
-02. Alex Nocera Roy Batty - Odyssey (Extended Mix) (4:44)
-03. Amo M - Cry My Name (Starix Production & Twin Remix) (3:06)
-04. Alok, ALOTT & Apophis - Alone (Zack Dean Edit) (3:26)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15401E98FAE37D2B235E64FD23EED9D8DEEF036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609785   (1042886) от 05.02.2023
-
-Parov Stelar - Assorted compilation (2023) [MP3|320 Kbps] <Electro Swing, House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coco (Feat. Lilja Bloom)
-02. Keep on Dancing Feat. Marvin Gaye
-03. Silver Line
-04. Six Feet Underground (Feat. Claudia Kane)(   Читать дальше...   )Жанр: Electro Swing, House, OtherПродолжительность: 02:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C152C49C6C0DC4DF2D0534DAA9B42E5B3B2387C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,84 @@
+###  Публикация: 1233465   (593006) от 30.06.2018
+
+А.В. Фомин (сост.) | Неслучайные «случайности». Новые истории о Промысле Божьем (2016) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй книги серии «Неслучайные "случайности"» собраны многочисленные удивительные истории о невероятных совпадениях, встречах в жизни людей, чудесных спасениях, помощи Божией в трудные минуты, которые свидетельствуют о том, что Господь всегда рядом с каждым из нас.
+
+«Промысл Божий охраняет всю нашу жизнь. Но иногда бывают особые случаи. Иному они покажутся (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE7F7904544913C4D541E73074A9DEAE3CBB4C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233631   (593003) от 30.06.2018
+
+В.В. Филатов, Ю.Б. Камчатнова | Наименования и надписи на иконных изображениях. Справочник для иконописцев (2006) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_593003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга представляет собой собрание текстов, надписываемых на иконах в соответствии с традициями русского иконописания. Надписи расположены по тематическим разделам, что удобно для пользования, и приведены в соответствие с нормами современного церковнославянского языка.
+Книга является ценным справочником, адресованным прежде всего иконописцам-практикам, а также искусствоведам, (   Читать дальше...   )Жанр: ИконографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A91A4B4AE2EFE216B593527EA5077CDB70F07E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915310   (592391) от 05.07.2015
+
+В. И. Писарев | Церковь и крепостное право в России (1930) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592391.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе рассматривается история церковного и монастырского землевладения в России до секуляризации в XVIII веке. Рассматривается процесс накопления Православной церковью земельных богатств, пути закрепощения крестьянства духовными феодалами, быт духовных крепостников, борьба крестьянских масс против закрепощения.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE1D320DF5C6CB19B4C5FD96434FF1F6CB0861E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916188   (591440) от 07.07.2015
 
 Аллен Брент | Игнатий Антиохийский. Епископ-мученик и происхождение епископата (2012) [FB2, RTF]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591440.jpg" />
+  <img src="Z:/picture/008/save_picture_591440.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590991.jpg" />
+  <img src="Z:/picture/008/save_picture_590991.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590199.jpg" />
+  <img src="Z:/picture/008/save_picture_590199.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589369.jpg" />
+  <img src="Z:/picture/008/save_picture_589369.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589127.jpg" />
+  <img src="Z:/picture/008/save_picture_589127.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589116.jpg" />
+  <img src="Z:/picture/008/save_picture_589116.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588190.jpg" />
+  <img src="Z:/picture/008/save_picture_588190.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588137.jpg" />
+  <img src="Z:/picture/008/save_picture_588137.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587800.jpg" />
+  <img src="Z:/picture/008/save_picture_587800.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586038.jpg" />
+  <img src="Z:/picture/008/save_picture_586038.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586037.jpg" />
+  <img src="Z:/picture/008/save_picture_586037.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586035.jpg" />
+  <img src="Z:/picture/008/save_picture_586035.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585872.jpg" />
+  <img src="Z:/picture/008/save_picture_585872.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585863.jpg" />
+  <img src="Z:/picture/008/save_picture_585863.jpg" />
 </div>
 
 
@@ -378,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585776.jpg" />
+  <img src="Z:/picture/008/save_picture_585776.jpg" />
 </div>
 
 
@@ -404,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585752.jpg" />
+  <img src="Z:/picture/008/save_picture_585752.jpg" />
 </div>
 
 
@@ -433,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585719.jpg" />
+  <img src="Z:/picture/008/save_picture_585719.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585535.jpg" />
+  <img src="Z:/picture/008/save_picture_585535.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585362.jpg" />
+  <img src="Z:/picture/008/save_picture_585362.jpg" />
 </div>
 
 
@@ -513,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584934.jpg" />
+  <img src="Z:/picture/008/save_picture_584934.jpg" />
 </div>
 
 
@@ -539,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584772.jpg" />
+  <img src="Z:/picture/008/save_picture_584772.jpg" />
 </div>
 
 
@@ -566,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583449.jpg" />
+  <img src="Z:/picture/008/save_picture_583449.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583447.jpg" />
+  <img src="Z:/picture/008/save_picture_583447.jpg" />
 </div>
 
 
@@ -605,84 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78720CF3664B8F5232E337932F84D1CAFFFAF2B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919506   (583016) от 19.07.2015
-
-М. Я. Ленсу (ред.) | Иеговизм (1981) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскрываются причины возникновения религиозного течения свидетелей Иеговы, появления и распространения его общин в Белоруссии, дается анализ вероучения, социально-нравственного смысла его, отношения к науке, политике, социально-психологического влияния на верующих на основе критического изучения периодических изданий Бруклинского центра и рукописной иеговистской (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5752D96509F21A880F60DDF53E5A271751A83D5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751471   (582344) от 09.08.2016
-
-Карл Барт | Церковная догматика [III тома] (2007-2014) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582344.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Церковная догматика" вошла в историю христианской мысли как одно из главных событий в богословии XX века. Карл Барт в своем фундаментальном богословском труде систематизирует и разъясняет основные положения христианского вероучения, проецируя христологический подход на всю область богословия. Сотворение мира, грехопадение человека, история Израиля, Новый (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE178521E0F8039544A655DF73585D39620635AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919964   (581949) от 20.07.2015
-
-Андрей Десницкий | Поэтика библейского параллелизма (2007) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга детально рассматривает на конкретном материале одну из самых характерных черт библейского языка, которая все больше привлекает в последнее время внимание ученых - параллелизм. Анализ современной литературы по этой теме сочетается в ней с самостоятельным исследованием как теоретических положений, так и многих текстов, связанных с библейской традицией. Несмотря (   Читать дальше...   )Жанр: БиблеистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F43D4F0DA6872829F4237110A698B4DEDAA2EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

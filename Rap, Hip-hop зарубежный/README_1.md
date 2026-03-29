@@ -6,7 +6,7 @@ Drake - More Life (2017) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820441.jpg" />
+  <img src="Z:/picture/008/save_picture_820441.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ eto - The Beauty of It (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809962.jpg" />
+  <img src="Z:/picture/008/save_picture_809962.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ All That Glue - Sleaford Mods (2020) [MP3|320 Kbps] <Hip-Hop, Indie, Punk>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809814.jpg" />
+  <img src="Z:/picture/008/save_picture_809814.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801855.jpg" />
+  <img src="Z:/picture/008/save_picture_801855.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Kanye West - Donda (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797952.jpg" />
+  <img src="Z:/picture/008/save_picture_797952.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794255.jpg" />
+  <img src="Z:/picture/008/save_picture_794255.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ B.o.B - Murd & Mercy (2021) Deluxe [MP3|320 Kbps|Web-DL] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792844.jpg" />
+  <img src="Z:/picture/008/save_picture_792844.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Run The Jewels - RTJ4 (2020) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790058.jpg" />
+  <img src="Z:/picture/008/save_picture_790058.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Old School Rap Classics (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785111.jpg" />
+  <img src="Z:/picture/008/save_picture_785111.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Scarlxrd - FANTASY VXID; SUMMER. (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783650.jpg" />
+  <img src="Z:/picture/008/save_picture_783650.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ DMX - 10 Albums (1998 - 2010) [MP3|320 kbps]<Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782707.jpg" />
+  <img src="Z:/picture/008/save_picture_782707.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Onyx - Black Rock (2018) [MP3|320 Kbps] <Hardcore Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781662.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Down Low - The 4th Level (2001) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763069.jpg" />
+  <img src="Z:/picture/008/save_picture_763069.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Die Antwoord - Suck on This (2016) [MP3|320 кб/с] <Hip-Hop, Electronic>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757180.jpg" />
+  <img src="Z:/picture/008/save_picture_757180.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Pappa Bear - What's My Name? (1998) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747716.jpg" />
+  <img src="Z:/picture/008/save_picture_747716.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Pornhub Valentine's Day Album (2019) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740857.jpg" />
+  <img src="Z:/picture/008/save_picture_740857.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ N.W.A. - Greatest Hits (1996) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720953.jpg" />
+  <img src="Z:/picture/008/save_picture_720953.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Dr. Dre - 2001 (1999) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720787.jpg" />
+  <img src="Z:/picture/008/save_picture_720787.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Logic - No Pressure (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719012.jpg" />
+  <img src="Z:/picture/008/save_picture_719012.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ The Gaslamp Killer - Heart Math (2020) [MP3|320 Kbps] <Abstract, Hip-Hop, Instru
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714886.jpg" />
+  <img src="Z:/picture/008/save_picture_714886.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Becko - Inner Self (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714885.jpg" />
+  <img src="Z:/picture/008/save_picture_714885.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ NLE Choppa - Top Shotta (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Trap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713033.jpg" />
+  <img src="Z:/picture/008/save_picture_713033.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Felt - Felt 4 U (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711011.jpg" />
+  <img src="Z:/picture/008/save_picture_711011.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683982.jpg" />
+  <img src="Z:/picture/008/save_picture_683982.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Snoop Dogg - Neva Left (2017) [MP3|320 kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674489.jpg" />
+  <img src="Z:/picture/008/save_picture_674489.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Kevin Gates - Islah (2016) [MP3|320 Kbps] <Hip-Hop, Trap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674153.jpg" />
+  <img src="Z:/picture/008/save_picture_674153.jpg" />
 </div>
 
 

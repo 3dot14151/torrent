@@ -1,3 +1,113 @@
+###  Публикация: 1140697   (654975) от 07.06.2017
+
+Invisor - Media File Inspector 3.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Invisor – Инспектор файлов мультимедиа
+Отображает техническую информацию о вашем видео и аудио файлов с возможностью сравнения собранных данных.
+
+Invisor основан на хорошо известной библиотеке MediaInfo и показывает подробную информацию о контейнере файла и потоков данных, включая видео, аудио, субтитры и главы. Поддерживает большинство форматов видео и аудио файлов, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06.06.2017Разработчик: Maxim PozdeevПоддерживаемая ОС: OS X 10.7.3 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1BCEE4F7D17FF94E536F44CD01422B6B69D2BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140696   (654972) от 07.06.2017
+
+NetWorker - Advanced Network Information App 3.2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654972.jpg" />
+</div>
+
+
+###  Подробнее
+
+NetWorker отображает сетевую информацию в строке меню. В нем также есть окно, которое показывает дополнительную информацию о текущем активном сетевом адаптере.
+
+ NetWorker: ● Полностью настраиваемый вид. Вы можете просматривать следующие свойства (поддерживаются загрузка и выгрузка): • Скорость • Ежедневный, месячный и общий трафик • График ● Текущий активный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.06.2017Разработчик: Sascha SimonПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42F0CE27F8814ACAF457CCAD4B32611E9D91A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140740   (654970) от 07.06.2017
+
+ExactScan Pro 17.6 (17.6.1) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654970.jpg" />
+</div>
+
+
+###  Подробнее
+
+ExactScan – современное решение для сканирования, в состав которого входит более 400 различных драйверов для сканеров документов от таких изготовителей как Avision, Canon, Fujitsu, HP, Kodak, Oki, Panasonic, Visioneer и Xerox. для которых изготовитель не предоставляет драйверы под операционную Mac OS, и, соответственно, без таких драйверов они не могут работать под (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: июнь 2017Разработчик: ExactScanПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71E722CC77AE6BFF5744ED78AD96B6054C8D0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540126   (654968) от 28.03.2022
+
+Audio Hijack 4.0.0fc1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
+В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2022Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14.4 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4C5AB53F6EA35C0ADC26CEFC2D503A0CA289E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540091   (654964) от 28.03.2022
 
 ForkLift 3.5.6 [Multi/Ru]
@@ -6,7 +116,7 @@ ForkLift 3.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654964.jpg" />
+  <img src="Z:/picture/008/save_picture_654964.jpg" />
 </div>
 
 
@@ -33,7 +143,7 @@ Rhinoceros 7 v7.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654963.jpg" />
+  <img src="Z:/picture/008/save_picture_654963.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ AirMail Pro 5 v5.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654955.jpg" />
+  <img src="Z:/picture/008/save_picture_654955.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ Boxy SVG 3  v3.81.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654954.jpg" />
+  <img src="Z:/picture/008/save_picture_654954.jpg" />
 </div>
 
 
@@ -113,7 +223,7 @@ Meta 1.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654932.jpg" />
+  <img src="Z:/picture/008/save_picture_654932.jpg" />
 </div>
 
 
@@ -140,7 +250,7 @@ iExplorer 4.1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654928.jpg" />
+  <img src="Z:/picture/008/save_picture_654928.jpg" />
 </div>
 
 
@@ -168,7 +278,7 @@ Smooze 1.1.80 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654927.jpg" />
+  <img src="Z:/picture/008/save_picture_654927.jpg" />
 </div>
 
 
@@ -197,7 +307,7 @@ Meta 2.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654918.jpg" />
+  <img src="Z:/picture/008/save_picture_654918.jpg" />
 </div>
 
 
@@ -224,7 +334,7 @@ Viwizard Spotify Music Converter for Mac 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654908.jpg" />
+  <img src="Z:/picture/008/save_picture_654908.jpg" />
 </div>
 
 
@@ -250,7 +360,7 @@ Adguard for Mac 2.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654839.jpg" />
+  <img src="Z:/picture/008/save_picture_654839.jpg" />
 </div>
 
 
@@ -276,7 +386,7 @@ Transmit 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654790.jpg" />
+  <img src="Z:/picture/008/save_picture_654790.jpg" />
 </div>
 
 
@@ -302,7 +412,7 @@ DropDMG 3.2.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654382.jpg" />
+  <img src="Z:/picture/008/save_picture_654382.jpg" />
 </div>
 
 
@@ -329,7 +439,7 @@ PopClip 1.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654326.jpg" />
+  <img src="Z:/picture/008/save_picture_654326.jpg" />
 </div>
 
 
@@ -356,7 +466,7 @@ Autopano Giga 4.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654212.jpg" />
+  <img src="Z:/picture/008/save_picture_654212.jpg" />
 </div>
 
 
@@ -383,7 +493,7 @@ Fantastical 2.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654138.jpg" />
+  <img src="Z:/picture/008/save_picture_654138.jpg" />
 </div>
 
 
@@ -410,7 +520,7 @@ DayRate - Currency Converter 5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654080.jpg" />
+  <img src="Z:/picture/008/save_picture_654080.jpg" />
 </div>
 
 
@@ -436,7 +546,7 @@ Color Folder 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654069.jpg" />
+  <img src="Z:/picture/008/save_picture_654069.jpg" />
 </div>
 
 
@@ -462,7 +572,7 @@ Multitouch 1.27.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654068.jpg" />
+  <img src="Z:/picture/008/save_picture_654068.jpg" />
 </div>
 
 
@@ -488,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654058.jpg" />
+  <img src="Z:/picture/008/save_picture_654058.jpg" />
 </div>
 
 
@@ -514,7 +624,7 @@ Deflection Pro 6.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654038.jpg" />
+  <img src="Z:/picture/008/save_picture_654038.jpg" />
 </div>
 
 
@@ -541,7 +651,7 @@ Smart Player Premium 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654028.jpg" />
+  <img src="Z:/picture/008/save_picture_654028.jpg" />
 </div>
 
 
@@ -567,7 +677,7 @@ Keka 1.2.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653996.jpg" />
+  <img src="Z:/picture/008/save_picture_653996.jpg" />
 </div>
 
 
@@ -578,115 +688,6 @@ Keka 1.2.53 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D176BF4B4CE7F8D96019D928E6809E6CEDC56DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540439   (653994) от 29.03.2022
-
-DirEqual 4.4.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653994.jpg" />
-</div>
-
-
-###  Подробнее
-
-DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
-Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 by Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0218A5BF91A24DB4E29C3C4026555139D443C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540254   (653972) от 29.03.2022
-
-Adobe InCopy 2022 v17.2 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe InCopy - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей.
-Adobe InCopy  входит в состав Creative Cloud. Поэтому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2022Разработчик: © 1999-2022 Adobe SystemsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F12B7B9E656B7F126FDDE6F95C0C50B78885C517
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540381   (653959) от 29.03.2022
-
-Navicat Premium 16.0.12 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CD2C2C655A29100717B7676D0A63DA024F2786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141019   (653947) от 08.06.2017
-
-Instant Translate – translator, dictionary, voice 2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переводите даже за пределами браузера!
-Большое и удобное всплывающее окно, к которому всегда есть доступ из панели задач.
-Также вы можете назначить горячую клавишу, чтобы открывать его ещё быстрее!
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июня 2017Разработчик: Andrii Liakh, Oleksii ChernikovПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D733275EFED15E4A7464874ED38C1150E4037B95
 ```
 
 https://mybot314.ru/tekegram_catalog/

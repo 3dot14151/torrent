@@ -6,7 +6,7 @@ Aurora HDR 2017 v1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808804.jpg" />
+  <img src="Z:/picture/008/save_picture_808804.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808755.jpg" />
+  <img src="Z:/picture/008/save_picture_808755.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808740.jpg" />
+  <img src="Z:/picture/008/save_picture_808740.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808730.jpg" />
+  <img src="Z:/picture/008/save_picture_808730.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Zemana AntiMalware Free 2.72.2.324 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808729.jpg" />
+  <img src="Z:/picture/008/save_picture_808729.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808728.jpg" />
+  <img src="Z:/picture/008/save_picture_808728.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808726.jpg" />
+  <img src="Z:/picture/008/save_picture_808726.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808690.jpg" />
+  <img src="Z:/picture/008/save_picture_808690.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808662.jpg" />
+  <img src="Z:/picture/008/save_picture_808662.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Kaspersky System Checker 1.1.0.228 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808655.jpg" />
+  <img src="Z:/picture/008/save_picture_808655.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ CrossOver 16.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808654.jpg" />
+  <img src="Z:/picture/008/save_picture_808654.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ CorelDRAW Graphics Suite X5 RETAIL DVD 15.0.0.486 [Dutch, English, French, Germa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808608.jpg" />
+  <img src="Z:/picture/008/save_picture_808608.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ RS Recovery Software 2017 (26.03.17) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808558.jpg" />
+  <img src="Z:/picture/008/save_picture_808558.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Zedge Ringtones & Wallpapers 5.16.4 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808557.jpg" />
+  <img src="Z:/picture/008/save_picture_808557.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ JetBrains PyCharm Professional 2017.1 Build #PY-171.3780.115 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808554.jpg" />
+  <img src="Z:/picture/008/save_picture_808554.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Feeder 4 v4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808496.jpg" />
+  <img src="Z:/picture/008/save_picture_808496.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ iBoostUp Premium 9.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808492.jpg" />
+  <img src="Z:/picture/008/save_picture_808492.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Acon Digital Acoustica Premium Edition 7.3.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808491.jpg" />
+  <img src="Z:/picture/008/save_picture_808491.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808463.jpg" />
+  <img src="Z:/picture/008/save_picture_808463.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ SuperDuper! 3.5 beta.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808445.jpg" />
+  <img src="Z:/picture/008/save_picture_808445.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ MacMagic 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808444.jpg" />
+  <img src="Z:/picture/008/save_picture_808444.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Librarian Pro 7 v7.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808442.jpg" />
+  <img src="Z:/picture/008/save_picture_808442.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ SideNotes 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808441.jpg" />
+  <img src="Z:/picture/008/save_picture_808441.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Kaleidoscope 3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808440.jpg" />
+  <img src="Z:/picture/008/save_picture_808440.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ PDF Squeezer 4 v4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808439.jpg" />
+  <img src="Z:/picture/008/save_picture_808439.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Affinity Publisher 1.10.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808438.jpg" />
+  <img src="Z:/picture/008/save_picture_808438.jpg" />
 </div>
 
 

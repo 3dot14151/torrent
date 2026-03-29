@@ -6,7 +6,7 @@ Mr. Woodnote & Dub Fx - Winter of Woodshed (2009) [MP3|V0 kbps]<Beatbox, Trip-Ho
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766431.jpg" />
+  <img src="Z:/picture/008/save_picture_766431.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766429.jpg" />
+  <img src="Z:/picture/008/save_picture_766429.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766428.jpg" />
+  <img src="Z:/picture/008/save_picture_766428.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766427.jpg" />
+  <img src="Z:/picture/008/save_picture_766427.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ BookMacster 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766423.jpg" />
+  <img src="Z:/picture/008/save_picture_766423.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766422.jpg" />
+  <img src="Z:/picture/008/save_picture_766422.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ File Cabinet Pro 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766420.jpg" />
+  <img src="Z:/picture/008/save_picture_766420.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ App Pier 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766419.jpg" />
+  <img src="Z:/picture/008/save_picture_766419.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Doo - Get Things Done 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766394.jpg" />
+  <img src="Z:/picture/008/save_picture_766394.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766392.jpg" />
+  <img src="Z:/picture/008/save_picture_766392.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ iLock v2.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766385.jpg" />
+  <img src="Z:/picture/008/save_picture_766385.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766382.jpg" />
+  <img src="Z:/picture/008/save_picture_766382.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Fantastical 2 - Calendar and Reminders 2.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766381.jpg" />
+  <img src="Z:/picture/008/save_picture_766381.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Mellel 3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766377.jpg" />
+  <img src="Z:/picture/008/save_picture_766377.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ File Juicer 4.56 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766376.jpg" />
+  <img src="Z:/picture/008/save_picture_766376.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766370.jpg" />
+  <img src="Z:/picture/008/save_picture_766370.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766366.jpg" />
+  <img src="Z:/picture/008/save_picture_766366.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766361.jpg" />
+  <img src="Z:/picture/008/save_picture_766361.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Affinity Designer Beta 1.8.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766360.jpg" />
+  <img src="Z:/picture/008/save_picture_766360.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ DxO PhotoLab 3 ELITE Edition 3.3.2 (build 58) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766358.jpg" />
+  <img src="Z:/picture/008/save_picture_766358.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766357.jpg" />
+  <img src="Z:/picture/008/save_picture_766357.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766326.jpg" />
+  <img src="Z:/picture/008/save_picture_766326.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766324.jpg" />
+  <img src="Z:/picture/008/save_picture_766324.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ John Digweed - Transitions 645-656 (2017) [MP3|320 Kbps] <Progressive House, Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766314.jpg" />
+  <img src="Z:/picture/008/save_picture_766314.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766313.jpg" />
+  <img src="Z:/picture/008/save_picture_766313.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ PDF Checkpoint 1.7.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766312.jpg" />
+  <img src="Z:/picture/008/save_picture_766312.jpg" />
 </div>
 
 

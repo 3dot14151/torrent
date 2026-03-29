@@ -1,3 +1,119 @@
+###  Публикация: 1662282   (188104) от 17.09.2023
+
+Kelley Johnson - Make Someone Happy (1998) Pipe Dream [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Long Has This Been Going On? [4:13]
+02. Moment to Moment [5:28]
+03. I Haven't Got Anything Better to Do [6:02]
+04. Recorda Me [5:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918790D69212AF2EC51B3DD5B1700DB77428B1A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662397   (188080) от 17.09.2023
+
+Dana Landry - Journey Home (2002) 2005, Summit Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gatien Dance [6:39]
+02. Journey Home [7:52]
+03. Island Life [5:24]
+04. Deerhead Sketches [5:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D22CD8050E26474DBC823F2379AB9750157D4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662623   (187791) от 18.09.2023
+
+Arnold Klos Trio - A Little Expertise (1989) Expertise [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Expertise [3:07]
+02. Come Rain or Come Shine [6:03]
+03. Whisper Not [5:07]
+04. Little Niles [6:06](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2D9E5AE6BAE625C3B57180ADA3AD851A5C3742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662643   (187764) от 18.09.2023
+
+Four80East - Gonna Be Alright (2023) [FLAC|Lossless|image + .cue] <Nu Jazz, Acid Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea to Sky
+02. This Time Around
+03. Gonna Be Alright
+04. Rusty Rudder(   Читать дальше...   )Жанр: Nu Jazz, Acid Jazz, FunkПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9261892E2FCD4DC1206AB9FB67AF74DCDE1B9AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590907   (187573) от 17.11.2022
 
 Timothee Robert - Quarks (2021) La Pluie Chante [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
@@ -6,7 +122,7 @@ Timothee Robert - Quarks (2021) La Pluie Chante [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187573.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Phil Woods & The Little Big Band - Real Life (1991) Chesky Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187564.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Tony Bennett - Sings For You: 40 All-Time Favorites! (1960, 1962) 2CD, 1993, Son
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187541.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jimmy Cobb - This I Dig Of You (2019) Smoke Sessions Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187242.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Dave Liebman - Live At Smalls (2023) Cellar Music [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187203.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Joe Pass - Virtuoso #2 (1976) 1987, Pablo Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186930.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Joe Pass - Unforgettable (1992) 1998, Pablo Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186923.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Joe Pass & J.J. Johnson - We'll Be Together Again (1983) 1996, Original Jazz Cla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186921.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Ahmad Jamal (Ahmad Jahal) & Wynton Marsalis - Modern Jazz (2005) KM Internationa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186901.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Tubby Hayes - Three Classic Albums Plus (1955 - 1960) 2CD, 2010, Avid Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186893.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ Roy Eldridge - Decidedly (1975) 2002, Pablo [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186596.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Renee Rosnes - And The Danish Radio Big Band (2001) 2003, Blue Note Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186595.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ Sahib Shihab - Summer Dawn (1963) 2008, Rearward [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186490.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Renee Rosnes - As We Are Now (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186481.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Roy Eldridge & Coleman Hawkins - Just You, Just Me (1959) 1990, Stash Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186296.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ J.R. Monterose & Tommy Flanagan - A Little Pleasure (1981) 1988, Reservoir Music
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186236.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Paquito D'Rivera - Este Camino Largo (1978) 2002, Yemaya Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186057.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Rene Marie - Vertigo (2001) MaxJazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186050.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Akiko Grace - Jazz Street: The Duo+ (2002) [FLAC|Lossless|tracks + .cue] <Contem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185969.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Ahmad Jamal - Live At The Montreal Jazz Festival (1985) 1986, Atlantic [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185614.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Ahmad Jamal - Crystal (1987) Atlantic [FLAC|Lossless|tracks + .cue] <Post- Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185587.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Ahmad Jamal - With the Assai Quartet (1997) Roesch Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185567.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Ahmad Jamal - With the Assai Quartet (1997) Roesch Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04F37F4A9368903581B8136D6B3562F5C3CC838C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426836   (185552) от 26.11.2020
-
-Chet Baker & Dick Twardzik Quartet - Chet & Dick (1955, 1956) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rondette [2:13]
-02. Piece Caprice [5:14]
-03. Mid-Forte [3:11]
-04. Re-Search [5:03](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A692C9820EB110DEED5CBEAB5677A42FA5B42C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664479   (185464) от 26.09.2023
-
-Akiko Grace - New York Style (2003) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump (6:35)
-02. Chromazone (5:10)
-03. Greensleeves (6:36)
-04. Smile (5:15)(   Читать дальше...   )Жанр: Smooth Jazz, ExperimentalПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C9B0C2544A059EF684701C7982369EB0811825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664498   (184944) от 27.09.2023
-
-James Moody - 1949-1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laura (3:21)
-02. Car Rider (3:01)
-03. Three Bop Mice - Parts 1 & 2 (5:44)
-04. I'm in the Mood for Groovin' (2:42)(   Читать дальше...   )Жанр: BopПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3AE1E35B46B86E1F8074DBCE892700588C565B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664656   (184938) от 27.09.2023
-
-Robert Lakatos Trio - So In Love (2005) Atelier Sawano [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So in Love [4:51]
-02. Like Someone in Love [3:54]
-03. Allemande [4:22]
-04. Zingaro (Retrato em Branco e Preto) [4:51](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BFA3D3D9E83ED1D3AE33F74D33E66BE9FDCE395
 ```
 
 https://mybot314.ru/tekegram_catalog/

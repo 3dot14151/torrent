@@ -6,7 +6,7 @@ Gyasi - Here Comes The Good Part (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70100.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mellow Blues - Mellow Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70098.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Nemoy and the NPCs - Warzone Blues (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70097.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Pastor Brad - Cloud of Witnesses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70095.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Paul&Chucky - Letter From Silence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70093.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Perfect Plan - Heart Of A Lion (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mel
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70091.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Marko Hietala - Roses from the Deep (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70088.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Greg Coulson - Greg Coulson: Live at Crescent Records Studio (2025) [FLAC 24/48|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70080.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Architects - The Sky, The Earth & All Between (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70072.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Power Word Kill - Power Word Kill (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70060.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Rumer - In Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70059.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Roger Street Friedman - Long Shadows (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70058.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Saliva & Judge & Jury - Revelation: Retold (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70056.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Roni Lee - Feels Good 2 Be Bad (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70055.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Arion - Like The Phoenix I Will Rise (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70053.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Brainstorm - Plague Of Rats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70045.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Slowman - The Invisible Son (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70043.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Avantasia - Here Be Dragons (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70027.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Robin McAuley - Soulbound (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70009.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Blutengel - Damonen : Sturm (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkwa
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69981.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69968.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Addicted CH - Time Is Endless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69965.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Elderbrook - Another Touch (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deep Ho
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69963.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Rick Springfield - Big Hits: Rick Springfield's Greatest Hits, Vol. 2 (2025) [FL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69960.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Max Cooper - On Being (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Tec
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69959.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Bon Jovi - Slippery When Wet (1986) Deluxe Edition, 2025, Bon Jovi Profit Split 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69952.jpg" />
 </div>
 
 

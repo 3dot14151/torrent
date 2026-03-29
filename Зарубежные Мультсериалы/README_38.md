@@ -1,3 +1,55 @@
+###  Публикация: 1180270   (288746) от 01.11.2019
+
+Симпсоны / The Simpsons (2017) WEB-DLRip (сезон 29, серии 1-21 из 21) [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Симпсоны живут в вымышленном городе Спрингфилд, со своим обществом и историей. Гомер - отец семейства, который дает плохие советы и работает инспектором безопасности на атомной электростанции; Мардж - любящая мать и жена, старается сохранить спокойствие в семье; Барт - 10 летний хулиган; Лиза - философский 8-летний ребенок; и Мэгги - младенец, который общается посредством (   Читать дальше...   )Производство: СШАЖанр: МультсериалРежиссер: Мэтт ГроунингПеревод: Многоголосый закадровый, любительский (VO-Production)Продолжительность: ~ 00:22:00 х серияРеклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B0C5C18396660255EFF743FB4C5A5A4DFF9012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156594   (288737) от 01.11.2019
+
+Рапунцель: Скоро Счастлива Навсегда / Tangled: Before Ever After (2017) HDTV [H.264] (Сезон 1, серия 7-21) [MVO] (Обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет мультсериала "Рапунцель: Скоро счастлива навсегда" 2017 года повествует о принцессе Рапунцель, Юджине,  Максимусе, Паскале  и остальных её друзьях. События происходят между первой и второй частью, до того, как Рапунцель и Юджин поженились. Здесь мы увидим, как любознательная принцесса решит получше узнать незнакомый для неё мир, где мы познакомимся (   Читать дальше...   )Производство: США, 9 Story Entertainment, Walt Disney Television AnimationЖанр: Минисериал, Фентези, Комедия, ДетскийРежиссер: Том Колфилд, Крис СонненбургПерсонажи: Мэнди Мур, Закари Ливай, Идэн Испиноза, Джули Боуэн, Клэнси БраунПеревод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Роли озвучивали: Алена Тельпук,  Анатолий Котовский,  Денис Шаталов, Алибек Ибрагим, Есения Стеклова, Василий Михайлов, Ашраф Мансур, Артемий Яшин и другие.  Перевод: Анна Милова, Есения Стеклова, Денис Шаталов, Юлия ЧумакСубтитры: Русские (вшитые на песни  и информационный блок)Продолжительность: ~00:23:09Реклама: Рекламы нет, только информация о студии
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F84ABED8A430BCB23316AA63EEBEDD29AFB3A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335221   (287026) от 02.11.2019
 
 Симпсоны / The Simpsons (2018) WEB-DL [H.264/720p-LQ] (сезон 30, серии 1-23 из 23) [MVO]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287026.jpg" />
+  <img src="Z:/picture/008/save_picture_287026.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285023.jpg" />
+  <img src="Z:/picture/008/save_picture_285023.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284014.jpg" />
+  <img src="Z:/picture/008/save_picture_284014.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283848.jpg" />
+  <img src="Z:/picture/008/save_picture_283848.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282290.jpg" />
+  <img src="Z:/picture/008/save_picture_282290.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282057.jpg" />
+  <img src="Z:/picture/008/save_picture_282057.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280285.jpg" />
+  <img src="Z:/picture/008/save_picture_280285.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280084.jpg" />
+  <img src="Z:/picture/008/save_picture_280084.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279796.jpg" />
+  <img src="Z:/picture/008/save_picture_279796.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279637.jpg" />
+  <img src="Z:/picture/008/save_picture_279637.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277336.jpg" />
+  <img src="Z:/picture/008/save_picture_277336.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276618.jpg" />
+  <img src="Z:/picture/008/save_picture_276618.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276270.jpg" />
+  <img src="Z:/picture/008/save_picture_276270.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276265.jpg" />
+  <img src="Z:/picture/008/save_picture_276265.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275900.jpg" />
+  <img src="Z:/picture/008/save_picture_275900.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275639.jpg" />
+  <img src="Z:/picture/008/save_picture_275639.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275575.jpg" />
+  <img src="Z:/picture/008/save_picture_275575.jpg" />
 </div>
 
 
@@ -455,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275493.jpg" />
+  <img src="Z:/picture/008/save_picture_275493.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274177.jpg" />
+  <img src="Z:/picture/008/save_picture_274177.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273553.jpg" />
+  <img src="Z:/picture/008/save_picture_273553.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271732.jpg" />
+  <img src="Z:/picture/008/save_picture_271732.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271302.jpg" />
+  <img src="Z:/picture/008/save_picture_271302.jpg" />
 </div>
 
 
@@ -585,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267536.jpg" />
+  <img src="Z:/picture/008/save_picture_267536.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267529.jpg" />
+  <img src="Z:/picture/008/save_picture_267529.jpg" />
 </div>
 
 
@@ -622,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B8D052611EB6EA7F6F4F590115F6F8186A6E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264136   (267461) от 05.12.2018
-
-Суперкнига / Superbook (2013-2014) WEBRip [H.264] (Сезон 2, серии 1-13 из 13)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крис Квантум - обыкновенный школьник из городка Велливью, вот только один из его лучших друзей - робот по имени Робик. А еще у него есть подруга Джой Пеппер. Вот и троица, с которой гарантированы происшествия. Приключения для друзей начались, когда появился загадочный устройство, отправляет их путешествовать по страницам Библии. «Суперкнига» - увлекательный мультипликационный (   Читать дальше...   )Производство: США, The Christian Broadcasting Network, Inc.Жанр: Мультсериал, семейный, история, религия, приключения.Режиссер: Брайан Пол РичардсонПеревод: Многоголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C03F4B7E429FB5744C325304D06D4C9397BBCE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184854   (266591) от 10.12.2017
-
-Южный Парк / South Park (2017) HDTVRip [H.264/1080p-LQ] (21 сезон, серия 01-10 из 10)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южный Парк / South Park — американский мультсериал, созданный Мэттом Стоуном и Треем Паркером. Иногда название переводится также как «Саут-Парк» или «Саус-Парк». Выпускается кабельным телеканалом Comedy Central с 1997 года. Основу сюжета составляют приключения четырёх мальчиков и их друзей, живущих в маленьком городке Саут-Парк, штат Колорадо. Сериал высмеивает недостатки (   Читать дальше...   )Производство: СШАЖанр: Для взрослых, КомедияРежиссер: Трей Паркер, Эрик Сточ, Мэтт СтоунАктеры: Трей Паркер, Мэтт Стоун, Мона Маршалл, Эйприл Стюарт, Айзек Хейз, Элиза Шнайдер, Эдриан Бирд, Мэри Кэй Бергман, Дженнифер Хауэлл, Кайл Маккаллок и др.Перевод: Многоголосый, Двухголосый, ОдноголосыйОзвучка: MVO Jaskier, MVO IdeaFilm, DVO Sunshine Studio, VO L0cDoGСубтитры: ОтсутствуютПродолжительность: 10x 00:22:10Реклама: Вырезана
- Присутствует ненормативная лексика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D32851ECD24AB052992161AE63CEAB533714FCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

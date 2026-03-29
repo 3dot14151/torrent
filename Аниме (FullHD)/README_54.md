@@ -1,3 +1,164 @@
+###  Публикация: 1800109   (66343) от 31.05.2025
+
+Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Шангри-Ла [ТВ-1] [2023, TV, 25 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ракуро Хидзутомэ жаждет лишь одного - проходить трэш-игры. Он посвящает всю свою жизнь забагованным и плохо сделанным мирам. Однако однажды он решает бросить вызов самому себе и сыграть в популярную ММО под названием «Фронтир Шангри-Ла». Он быстро понимает, что игра не так проста, как кажется. Хватит ли его мастерства, чтобы раскрыть её тайны?
+© crunchyrollПроизводство: студия C2CЖанр: приключения, фэнтезиРежиссер: Кубоока ТосиюкиПеревод: CrunchyRoll (TV 01-25)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 25 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885FE39A28D6179CD0890845A06E2FF283DFD0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800103   (66341) от 31.05.2025
+
+Mahou Tsukai no Yome Season 2 | The Ancient Magus' Bride Season 2 | Невеста чародея [ТВ-2] [2023, TV, 24 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории Невесты Чародея, теперь в коллежде.
+
+Чисе Хаттори — пятнадцатилетняя сирота, чья жизнь с самого детства была наполнена исключительно страданиями и унижениями. И когда надежды на светлое будущее совсем не остаётся, а Чисе оказывается на невольничьем аукционе в качестве товара, в её судьбе случается переломный момент: девушку покупает загадочный (   Читать дальше...   )Производство: студия Studio Kafka / スタジオカフカЖанр: фэнтези, повседневностьРежиссер: Тэрасава КадзуакиПеревод: CrunchuRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153239114CC08BD783482A8C72C3A5AA1EB92500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800098   (66338) от 31.05.2025
+
+Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие аниме разворачивается в фантастическом мире, похожем на компьютерную игру, где живут различные монстры. Местные жители, пытаясь заработать себе на жизнь, вступают в ряды авантюристов, чтобы получить доступ к заданиям различной сложности, за которые полагается вознаграждение.В центре сюжета оказывается пятнадцатилетняя девушка, выбравшая профессию жрицы, (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: приключения, фэнтезиРежиссер: Одзаки ТакахаруПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4585C30F41BF0CE01256F80B6D7B22CC079BDB11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800101   (66327) от 31.05.2025
+
+Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чудаков [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сосукэ Кабурая - простой детектив, который пытается сводить концы с концами. Работая над делом, он столкнулся с Сарой, принцессой из иного мира. Несмотря на владение магией, она легко освоилась в современном японском обществе. В это время её находит Ливия, рыцарь из свиты Сары. Вскоре обе девушки начинают влиять на жизнь Сосукэ и других персонажей.
+© crunchyrollЖанр: комедия, повседневностьРежиссер: Сато МасафумиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960EC6940FFC6147ECFC0C1597FDCBBCF1A7CFC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800106   (66324) от 31.05.2025
+
+Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | An Archdemon's Dilemma: How to Love Your Elf Bride | Как Князю тьмы полюбить жену-эльфийку? [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заган - колдун, вселяющий ужас в окружающих, но совершенно не умеющий общаться. Влюбившись в прекрасную эльфийку Нефи и выкупив её на аукционе, он понимает, что не способен выразить свои чувства словами. Так неуклюжий колдун и робкая эльфийка начинают неловко знакомиться друг с другом.
+© crunchyrollПроизводство: студия Brains Base / ブレインズ・ベースЖанр: приключения, фэнтези, романтикаРежиссер: Исиодори ХиросиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB16FAAAD5AD7C56BE57EA6EDD5E64D28B49DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800094   (66319) от 31.05.2025
+
+Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Как не стоит использовать магию исцеления [ТВ-1] [2024, TV, 13 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычное возвращение домой со школы в итоге обернулось для Усато невероятным приключением. Ни с того ни с сего его и двух других учеников затянуло в иной мир. Усато быстро выяснил, что его призвали случайно, но затем оказалось, что он владеет редкой магией исцеления! Теперь юноша обучается на пределе человеческих возможностей, чтобы целительные способности подарили (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Огата ТакахидэПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FB25A0BD48185AF2649A957E0AC62B326E4408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800105   (66318) от 31.05.2025
 
 Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком много проигравших героинь! [2024, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +167,7 @@ Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66318.jpg" />
 </div>
 
 
@@ -33,7 +194,7 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru.
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66317.jpg" />
 </div>
 
 
@@ -59,7 +220,7 @@ Eiyuu Kyoushitsu | Hero Classroom | Класс для героев [2023, TV, 12
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66316.jpg" />
 </div>
 
 
@@ -86,7 +247,7 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66281.jpg" />
 </div>
 
 
@@ -112,7 +273,7 @@ Kyuuketsuki Sugu Shinu 2 | The Vampire Dies in No Time 2 | Этот вампир
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66277.jpg" />
 </div>
 
 
@@ -141,7 +302,7 @@ Tensei Kizoku, Kantei Skill de Nariagaru | As a Reincarnated Aristocrat, I'll Us
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66276.jpg" />
 </div>
 
 
@@ -168,7 +329,7 @@ Date a Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66275.jpg" />
 </div>
 
 
@@ -196,7 +357,7 @@ Kono Subarashii Sekai ni Shukufuku o! 3 | Этот замечательный м
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66274.jpg" />
 </div>
 
 
@@ -224,7 +385,7 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65124.jpg" />
 </div>
 
 
@@ -250,7 +411,7 @@ D.Gray-man Hallow | Ди.Грэй-мен: Святые | Ди Грэй-мен: �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64946.jpg" />
 </div>
 
 
@@ -277,7 +438,7 @@ Synduality: Noir | Синдуальность: Нуар [2023, TV, 24 эп.] Web
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61467.jpg" />
 </div>
 
 
@@ -303,7 +464,7 @@ Ragna Crimson | Рагна Багровый [2023, TV, 24 эп.] WEBRip 1080p ra
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61229.jpg" />
 </div>
 
 
@@ -329,7 +490,7 @@ Alice to Therese no Maboroshi Koujou | Фабрика иллюзий Алисы 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61073.jpg" />
 </div>
 
 
@@ -357,7 +518,7 @@ Undead Unluck | Undead Unluck | Нежить и Неудача [2023, TV, 24 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60101.jpg" />
 </div>
 
 
@@ -384,7 +545,7 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi | The Seven Deadly Sins: Four Knights
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59447.jpg" />
 </div>
 
 
@@ -410,7 +571,7 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Final | Девушки и �
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57452.jpg" />
 </div>
 
 
@@ -438,7 +599,7 @@ Ayakashi Triangle | Треугольник аякаси [2023, TV, 12 эп.] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57410.jpg" />
 </div>
 
 
@@ -464,7 +625,7 @@ Hikikomari Kyuuketsuki no Monmon | The Vexations of a Shut-In Vampire Princess |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57403.jpg" />
 </div>
 
 
@@ -490,7 +651,7 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57393.jpg" />
 </div>
 
 
@@ -517,7 +678,7 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57390.jpg" />
 </div>
 
 
@@ -528,164 +689,6 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Разн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C324638D8182E7B0DAA066B6C45C6BCD26A3F9D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699575   (57143) от 09.05.2024
-
-Ninja Kamui | Ниндзя Камуи [2024, Web, 13] WEBRip 1080 raw
-
->>След.
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57143.jpg" />
-</div>
-
-
-###  Подробнее
-
-По США прокатилась волна загадочных серийных убийств. Жертв не объединяет ничего, кроме крайне жестокого способа расправы. Нет ни отпечатков, ни зацепок, ни свидетелей, поэтому расследование никуда не может продвинуться.
-Увидев репортаж об очередном убийстве, Сара Логан крайне забеспокоилась, но её муж Джо утешил жену, убеждая, что их не найдут. Однако той же ночью (   Читать дальше...   )Производство: студия E&H ProductionЖанр: приключения.Режиссер: Пак Сон ХуПеревод: Dniwe(1ая серия), AniLibria(2ая и далее).Язык озвучки: ЯпонскийСубтитры: Русские; MultisubПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25C12E1E7394B649B4F971850391CA7CF0531C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722480   (56881) от 11.05.2024
-
-Gekijouban Hibike! Euphonium: Todoketai Melody | Играй, эуфониум! Пусть мелодия дойдёт до тебя (фильм-компиляция ТВ-2) [2017, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кумико Омаэ и её друзья по-прежнему горят желанием завоевать золото на конкурсе! И поэтому, после успеха в отборочном туре в Кансае, члены концертной группы старшей школы Китауджи тут же начинают готовиться к следующему выступлению.
-Решив использовать летние каникулы по максимуму, весь оркестр отправляется в лагерь, где юным оркестрантам будут помогать подготовиться (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяПеревод: Sa4ko aka Kiyoso & ZenobianЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B26AB1EFE3266204B586C525E05802C7783CDB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722481   (56878) от 11.05.2024
-
-Gekijouban Hibike! Euphonium: Chikai no Finale | Sound! Euphonium: The Movie - Our Promise - A Brand New Day | Играй, эуфониум! Последняя Клятва [2019, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступил новый, очень важный для теперь уже второгодки Кумико Омаэ год. Аска Танака и другие девушки выпустились. Теперь Кумико, вместе с Томоэ Кабэ, предстоит направлять новых участников духового оркестра, к которому также присоединились Канадэ Хисаиши, Мотому Цукинага, Мирэй Сузуки и Сацуки Сузуки. Близится музыкальный фестиваль «Sunrise» и прослушивания в основной (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяПеревод: AniPlayЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA40B4A7199E206CEF7794349B74336E9E3306A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722482   (56877) от 11.05.2024
-
-Tokubetsu Hen Hibike! Euphonium: Ensemble Contest Hen | Sound! Euphonium: Special Feature -Ensemble Contest- | Играй, эуфониум! Kонкурс ансамблей [2023, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кумико Омаэ, недавно назначенная главой музыкального клуба, получает новость, что духовому оркестру старшей школы Китаудзи предстоит участие в конкурсе малых ансамблей «Анкон». Участвовать в конкурсе могут ансамбли от пяти до восьми человек. Однако оркестр насчитывает более пятидесяти учеников, а участвовать хотят многие. Для отбора участников решено провести внутренний (   Читать дальше...   )Производство: студия Kyoto Animation / 京都アニメーションЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяПеревод: МанипуляторЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EE85E09EF38F9E01FFAA3D4460BD932E1E55EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722927   (56665) от 13.05.2024
-
-Gekijouban Servamp: Alice in the Garden | Сервамп (фильм) [2018, Movie] BDRip 1080p HEVC 10-bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сервампы и их связанные договором «Евы» наконец-то возвращаются к своей нормальной жизни, восстанавливаясь после травм, полученных в предыдущих битвах. Однако, когда в середине лета начинает идти снег, одна из Ев, Махиру Широта, подозревает вмешательство вампиров. Обеспокоенный странным явлением, он намеревается снова собрать группу, чтобы попытаться разгадать тайну; (   Читать дальше...   )Производство: PlatinumvisionЖанр: приключенияРежиссер: Nakano HideakiПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2E43C0E577707F44A4A3BAA92D6AC8978449A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241933   (56516) от 15.05.2024
-
-Kurokami The Animation / Темная богиня [2009, TV,   23 серий] BD-rip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир устроен совсем не так, как кажется… У любого человека есть два двойника и каждый из них идет своим путем, накапливая тэру – энергию Судьбы. Важно делать это независимо, ибо, если двойники встречаются – один из них погибает, передавая свою тэру другому. Рано или поздно из трех остается только один, человек, называемый «корнем», который примет на себя общую судьбу. (   Читать дальше...   )Жанр: приключения, мистика, драмаПродолжительность: ТВ (23 эп.), 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E8502C9E2123FE7352BF65CD3FDF9B53851D0FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

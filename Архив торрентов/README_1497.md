@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712732.jpg" />
+  <img src="Z:/picture/008/save_picture_712732.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712730.jpg" />
+  <img src="Z:/picture/008/save_picture_712730.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ iFinance 4.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712724.jpg" />
+  <img src="Z:/picture/008/save_picture_712724.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TextLab 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712721.jpg" />
+  <img src="Z:/picture/008/save_picture_712721.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Downie 2.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712718.jpg" />
+  <img src="Z:/picture/008/save_picture_712718.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Together 3.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712716.jpg" />
+  <img src="Z:/picture/008/save_picture_712716.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Monster Energy NASCAR Cup Series 2017. Этап 9 - Richmond. Гонка (2017) 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712713.jpg" />
+  <img src="Z:/picture/008/save_picture_712713.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Foxit Reader 10.0.1.35811 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712709.jpg" />
+  <img src="Z:/picture/008/save_picture_712709.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ CalendarPro for Google 2.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712705.jpg" />
+  <img src="Z:/picture/008/save_picture_712705.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ BookMacster 2.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712704.jpg" />
+  <img src="Z:/picture/008/save_picture_712704.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ File Juicer 4.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712703.jpg" />
+  <img src="Z:/picture/008/save_picture_712703.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Microsoft Windows 10 Pro / Enterprise Insider Preview 10.0.10074 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712702.jpg" />
+  <img src="Z:/picture/008/save_picture_712702.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10102 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712694.jpg" />
+  <img src="Z:/picture/008/save_picture_712694.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ SiteSucker 2.10.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712690.jpg" />
+  <img src="Z:/picture/008/save_picture_712690.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712672.jpg" />
+  <img src="Z:/picture/008/save_picture_712672.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ U-Recken - Nothing Is Sacred (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712666.jpg" />
+  <img src="Z:/picture/008/save_picture_712666.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Chris Rich - Quantum Soup (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712663.jpg" />
+  <img src="Z:/picture/008/save_picture_712663.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Universal USB Installer 1.9.9.3 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712626.jpg" />
+  <img src="Z:/picture/008/save_picture_712626.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712618.jpg" />
+  <img src="Z:/picture/008/save_picture_712618.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Avira Phantom VPN Pro 2.20.1.23980 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712591.jpg" />
+  <img src="Z:/picture/008/save_picture_712591.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Daum PotPlayer 1.7.17508 Stable Portable by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712589.jpg" />
+  <img src="Z:/picture/008/save_picture_712589.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Mandelbulber 2 2.27.0 + Standalone [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712581.jpg" />
+  <img src="Z:/picture/008/save_picture_712581.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712580.jpg" />
+  <img src="Z:/picture/008/save_picture_712580.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Native Instruments - Kontakt 6.7.0 STANDALONE, VSTi, VSTi3, AAX (x64) Portable b
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712569.jpg" />
+  <img src="Z:/picture/008/save_picture_712569.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Bigasoft Video Downloader Pro 3.14.4.6331 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712553.jpg" />
+  <img src="Z:/picture/008/save_picture_712553.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Dragon Responsive Email Designer 2.50.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712541.jpg" />
+  <img src="Z:/picture/008/save_picture_712541.jpg" />
 </div>
 
 

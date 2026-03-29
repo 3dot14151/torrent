@@ -6,7 +6,7 @@ VA - CLUBная Жар vol.5 (2011) [MP3|256 kbps]<Club, Dance, House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808308.jpg" />
+  <img src="Z:/picture/008/save_picture_808308.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808293.jpg" />
+  <img src="Z:/picture/008/save_picture_808293.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ SMPlayer 18.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808291.jpg" />
+  <img src="Z:/picture/008/save_picture_808291.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808285.jpg" />
+  <img src="Z:/picture/008/save_picture_808285.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Internet Download Manager 6.30 Build 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808283.jpg" />
+  <img src="Z:/picture/008/save_picture_808283.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Adguard 2.4.71.789 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808272.jpg" />
+  <img src="Z:/picture/008/save_picture_808272.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Dropzone 3.5.5 (904) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808236.jpg" />
+  <img src="Z:/picture/008/save_picture_808236.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ VA - Solarstone pres... Pure Trance 4: Expanded (Mixed by Solarstone + Gai Baron
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808230.jpg" />
+  <img src="Z:/picture/008/save_picture_808230.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Side Effects - Package (2016) [MP3|320 кб/с] <Psy-Trance , Progressive Psy-Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808226.jpg" />
+  <img src="Z:/picture/008/save_picture_808226.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Glary Utilities Pro 5.174.0.202 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808219.jpg" />
+  <img src="Z:/picture/008/save_picture_808219.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Sandboxie 5.53.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808218.jpg" />
+  <img src="Z:/picture/008/save_picture_808218.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ WinSCP 5.19.4 Build 11829 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808217.jpg" />
+  <img src="Z:/picture/008/save_picture_808217.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Balabolka 2.15.0.803 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808216.jpg" />
+  <img src="Z:/picture/008/save_picture_808216.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Scrivener 3 v3.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808208.jpg" />
+  <img src="Z:/picture/008/save_picture_808208.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ TagScanner 6.0.26 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808164.jpg" />
+  <img src="Z:/picture/008/save_picture_808164.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Psychedelic Goa Trance - 2018 Top 40 Hits Psychedelic Fullon Trance Progres
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808161.jpg" />
+  <img src="Z:/picture/008/save_picture_808161.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Meta 1.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808158.jpg" />
+  <img src="Z:/picture/008/save_picture_808158.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ FreeFileSync 10.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808138.jpg" />
+  <img src="Z:/picture/008/save_picture_808138.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Acoustica Premium Edition 7.2.7 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808130.jpg" />
+  <img src="Z:/picture/008/save_picture_808130.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ JRiver Media Center 26.0.80 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808129.jpg" />
+  <img src="Z:/picture/008/save_picture_808129.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808117.jpg" />
+  <img src="Z:/picture/008/save_picture_808117.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ VirtualHostX 6.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808112.jpg" />
+  <img src="Z:/picture/008/save_picture_808112.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ Tantrum Desire - Nationwide Rocker EP (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808111.jpg" />
+  <img src="Z:/picture/008/save_picture_808111.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ The Upbeats - De-Evolution, Pt. 1 (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808106.jpg" />
+  <img src="Z:/picture/008/save_picture_808106.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Micromat ATOMIC 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808104.jpg" />
+  <img src="Z:/picture/008/save_picture_808104.jpg" />
 </div>
 
 
@@ -686,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808100.jpg" />
+  <img src="Z:/picture/008/save_picture_808100.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1000982   (855606) от 27.03.2016
+
+А.В. Булычев, А.А. Наволочный | Релейная защита в распределительных электрических сетях (2011) [FB2, RTF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кратко изложены основы теории защит, используемых в электрических сетях напряжением 6—35 кВ. Рассмотрены токовые и дифференциальные защиты, устанавливаемые на линиях электропередачи и трансформаторах. Представлены подробно комментированные примеры расчета характеристик релейной защиты и выбора параметров срабатывания отдельных защит. Приведена методика решения комплексной (   Читать дальше...   )Жанр: ЭлектротехникаФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C87E3FC9B4000818944C87D92503AAE9DE9C141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109708   (855221) от 01.03.2017
+
+Ф.В. Бабкин, О.П. Аванесьян | История и техника гравюры на металле (2015) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_855221.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии рассмотрены вопросы истории и техники западноевропейской гравюры на металле XV–XVIII веков: возникновение этого вида искусства, стилистические особенности техники резцовой гравюры на примерах из творчества таких выдающихся мастеров эпохи Возрождения, как Дюрер, Лука Лейденский, Раймонди, Мантенья; стилистические особенности техники офорта и индивидуальные (   Читать дальше...   )Жанр: Учебное пособие, обработка металла, хоббиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3147E1E3C4B186F6122F87827D9C8274DDB15FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377216   (854705) от 20.04.2020
 
 Максим Бодров | Психологическое воздействие на личность (2017) [EPUB]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854705.jpg" />
+  <img src="Z:/picture/008/save_picture_854705.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850384.jpg" />
+  <img src="Z:/picture/008/save_picture_850384.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846845.jpg" />
+  <img src="Z:/picture/008/save_picture_846845.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845098.jpg" />
+  <img src="Z:/picture/008/save_picture_845098.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844745.jpg" />
+  <img src="Z:/picture/008/save_picture_844745.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844657.jpg" />
+  <img src="Z:/picture/008/save_picture_844657.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844639.jpg" />
+  <img src="Z:/picture/008/save_picture_844639.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844406.jpg" />
+  <img src="Z:/picture/008/save_picture_844406.jpg" />
 </div>
 
 
@@ -218,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844398.jpg" />
+  <img src="Z:/picture/008/save_picture_844398.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844175.jpg" />
+  <img src="Z:/picture/008/save_picture_844175.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844166.jpg" />
+  <img src="Z:/picture/008/save_picture_844166.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844047.jpg" />
+  <img src="Z:/picture/008/save_picture_844047.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843198.jpg" />
+  <img src="Z:/picture/008/save_picture_843198.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843101.jpg" />
+  <img src="Z:/picture/008/save_picture_843101.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843029.jpg" />
+  <img src="Z:/picture/008/save_picture_843029.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843010.jpg" />
+  <img src="Z:/picture/008/save_picture_843010.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842994.jpg" />
+  <img src="Z:/picture/008/save_picture_842994.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842341.jpg" />
+  <img src="Z:/picture/008/save_picture_842341.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841339.jpg" />
+  <img src="Z:/picture/008/save_picture_841339.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840089.jpg" />
+  <img src="Z:/picture/008/save_picture_840089.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839896.jpg" />
+  <img src="Z:/picture/008/save_picture_839896.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839687.jpg" />
+  <img src="Z:/picture/008/save_picture_839687.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838409.jpg" />
+  <img src="Z:/picture/008/save_picture_838409.jpg" />
 </div>
 
 
@@ -611,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838311.jpg" />
+  <img src="Z:/picture/008/save_picture_838311.jpg" />
 </div>
 
 
@@ -623,60 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8922878BF986B788323082D68D5063C06738CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501122   (837861) от 08.10.2021
-
-В.П. Кубанов и др. | Основы теории антенн и распространения радиоволн. Учебное пособие (2016) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Излагаются основы теории антенн и распространения радиоволн. Формулируются вопросы для самопроверки и задачи (с ответами) для самостоятельного решения. Приводятся примеры решения задач.
-Для студентов вузов, имеющих направления подготовки по инфокоммуникационным технологиям и радиотехнике.Жанр: РадиотехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79425F4903A2A83818F55207DC8ADB03C630124C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004161   (837744) от 06.04.2016
-
-А.Б. Василевский | Обучение решению задач по математике (1988) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассматриваются методы решения задач элементарной математики. Приводятся общие и частные алгоритмы поиска решения нестандартных уравнений и неравенств, геометрических и других задач. Описывается комплексное использование различные методов при решении задач повышенной трудности.
-Для студентов физико-математических факультетов педагогических вузов. Может быть использовано (   Читать дальше...   )Жанр: Учебное пособиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592C6BE22D3F41948D5FAAEFEB0B5E1B2AE87665
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1292218   (646333) от 29.03.2019
+
+Алекс Мэй | Новая Академия Секса для мужчин (2018) DVDRip [H.264]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не выходя из дома, в удобной обстановке потратьте 10 часов на изучение материала от Академии Секса. И Вы будете в числе менее чем 0,1% мужчин. Мужчин, о которых мечтает каждая женщина – лучших любовниках планеты.
+
+Узнайте, как напрочь «сносить крышу» абсолютно любой женщине, займите в её душе особое место. Навсегда.Жанр: Сексология, ОтношенияПродолжительность: 10:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670F094C322F9D92DC9A4DDFBF937476D35353ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142067   (644338) от 13.06.2017
 
 Антон Маторин (UnTonych) | Соблазнение тусовщиц (2011) HDRip
@@ -6,7 +34,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644338.jpg" />
+  <img src="Z:/picture/008/save_picture_644338.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643408.jpg" />
+  <img src="Z:/picture/008/save_picture_643408.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637069.jpg" />
+  <img src="Z:/picture/008/save_picture_637069.jpg" />
 </div>
 
 
@@ -90,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637066.jpg" />
+  <img src="Z:/picture/008/save_picture_637066.jpg" />
 </div>
 
 
@@ -119,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636937.jpg" />
+  <img src="Z:/picture/008/save_picture_636937.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ Neointegral | Саи Гаятри / Sai Gayatri (2012) [H.264] SATRip
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634342.jpg" />
+  <img src="Z:/picture/008/save_picture_634342.jpg" />
 </div>
 
 
@@ -175,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625192.jpg" />
+  <img src="Z:/picture/008/save_picture_625192.jpg" />
 </div>
 
 
@@ -201,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623508.jpg" />
+  <img src="Z:/picture/008/save_picture_623508.jpg" />
 </div>
 
 
@@ -227,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623506.jpg" />
+  <img src="Z:/picture/008/save_picture_623506.jpg" />
 </div>
 
 
@@ -256,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623166.jpg" />
+  <img src="Z:/picture/008/save_picture_623166.jpg" />
 </div>
 
 
@@ -282,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619675.jpg" />
+  <img src="Z:/picture/008/save_picture_619675.jpg" />
 </div>
 
 
@@ -308,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619605.jpg" />
+  <img src="Z:/picture/008/save_picture_619605.jpg" />
 </div>
 
 
@@ -336,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618523.jpg" />
+  <img src="Z:/picture/008/save_picture_618523.jpg" />
 </div>
 
 
@@ -365,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615991.jpg" />
+  <img src="Z:/picture/008/save_picture_615991.jpg" />
 </div>
 
 
@@ -391,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614316.jpg" />
+  <img src="Z:/picture/008/save_picture_614316.jpg" />
 </div>
 
 
@@ -417,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613840.jpg" />
+  <img src="Z:/picture/008/save_picture_613840.jpg" />
 </div>
 
 
@@ -444,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_609757.jpg" />
+  <img src="Z:/picture/005/save_picture_609757.jpg" />
 </div>
 
 
@@ -476,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609255.jpg" />
+  <img src="Z:/picture/008/save_picture_609255.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598974.jpg" />
+  <img src="Z:/picture/008/save_picture_598974.jpg" />
 </div>
 
 
@@ -532,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594670.jpg" />
+  <img src="Z:/picture/008/save_picture_594670.jpg" />
 </div>
 
 
@@ -558,7 +586,7 @@ MrChipTricks и др.| Трюки с фишками / Chip Tricks (2017) CamRip 
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585113.jpg" />
+  <img src="Z:/picture/008/save_picture_585113.jpg" />
 </div>
 
 
@@ -584,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583890.jpg" />
+  <img src="Z:/picture/008/save_picture_583890.jpg" />
 </div>
 
 
@@ -610,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566240.jpg" />
+  <img src="Z:/picture/008/save_picture_566240.jpg" />
 </div>
 
 
@@ -645,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550732.jpg" />
+  <img src="Z:/picture/008/save_picture_550732.jpg" />
 </div>
 
 
@@ -674,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544719.jpg" />
+  <img src="Z:/picture/008/save_picture_544719.jpg" />
 </div>
 
 
@@ -685,33 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63E59D3C5E7F0A4559A75481639E8DF86ADD3520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048887   (544710) от 04.09.2016
-
-Виталий Крывич | Мастер-класс "Матчевая удочка" (1,2 части) (2013) DVDRip [H.264]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер-класс по матчевой удочке в онлайн видео, снятом членами Запорожского рыболовного клуба.
-Видео состоит из 2-х частей. В первой, теоретической, части рыболовы-спортсмены расскажут Вам о матчевой удочке: как выбрать матчевое удилище, матчевую катушку, различные виды матчевой оснастки, условия ловли матчевой удочкой и т.д. Во второй, практической, части настоящего (   Читать дальше...   )Производство: УкраинаЖанр: РыбалкаПродолжительность: 00:47:26, 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E0DE6DCF7247AD0F193842A710ED2EF859D5F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

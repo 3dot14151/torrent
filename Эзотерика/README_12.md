@@ -1,3 +1,31 @@
+###  Публикация: 1144043   (627228) от 22.06.2017
+
+Петра Бурлан, Пётр Бурлан | Симорон из первых рук, или Бурлан-до. Как достичь того, чего достичь невозможно (2008) [DJVU]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами книга о самой загадочной из существующих психотехнологий. О безотказном инструменте под названием «СИМОРОН (БУРЛАН-ДО)», над причиной поразительной эффективности которого ломают головы многие. Кроме тех, кто просто берёт и пользуется этим инструментом, придуманным два десятилетия назад киевскими исследователями Петрой и Петром Бурланами.
+
+Их сотни тысяч, (   Читать дальше...   )Жанр: Психология развитияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1620D22310FA1331DF06AD7C2B99E6D6CADA1378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 802560   (626779) от 06.07.2014
 
 Олег Куимов | Шепот Шамбалы (2006) [DJVU]
@@ -6,7 +34,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626779.jpg" />
+  <img src="Z:/picture/008/save_picture_626779.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626739.jpg" />
+  <img src="Z:/picture/008/save_picture_626739.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626736.jpg" />
+  <img src="Z:/picture/008/save_picture_626736.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626605.jpg" />
+  <img src="Z:/picture/008/save_picture_626605.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626597.jpg" />
+  <img src="Z:/picture/008/save_picture_626597.jpg" />
 </div>
 
 
@@ -140,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626595.jpg" />
+  <img src="Z:/picture/008/save_picture_626595.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624708.jpg" />
+  <img src="Z:/picture/008/save_picture_624708.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624171.jpg" />
+  <img src="Z:/picture/008/save_picture_624171.jpg" />
 </div>
 
 
@@ -222,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621903.jpg" />
+  <img src="Z:/picture/008/save_picture_621903.jpg" />
 </div>
 
 
@@ -248,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620939.jpg" />
+  <img src="Z:/picture/008/save_picture_620939.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620729.jpg" />
+  <img src="Z:/picture/008/save_picture_620729.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620728.jpg" />
+  <img src="Z:/picture/008/save_picture_620728.jpg" />
 </div>
 
 
@@ -327,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620587.jpg" />
+  <img src="Z:/picture/008/save_picture_620587.jpg" />
 </div>
 
 
@@ -353,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620342.jpg" />
+  <img src="Z:/picture/008/save_picture_620342.jpg" />
 </div>
 
 
@@ -379,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619844.jpg" />
+  <img src="Z:/picture/008/save_picture_619844.jpg" />
 </div>
 
 
@@ -406,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619619.jpg" />
+  <img src="Z:/picture/008/save_picture_619619.jpg" />
 </div>
 
 
@@ -433,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616196.jpg" />
+  <img src="Z:/picture/008/save_picture_616196.jpg" />
 </div>
 
 
@@ -461,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615946.jpg" />
+  <img src="Z:/picture/008/save_picture_615946.jpg" />
 </div>
 
 
@@ -488,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615728.jpg" />
+  <img src="Z:/picture/008/save_picture_615728.jpg" />
 </div>
 
 
@@ -514,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614923.jpg" />
+  <img src="Z:/picture/008/save_picture_614923.jpg" />
 </div>
 
 
@@ -540,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614069.jpg" />
+  <img src="Z:/picture/008/save_picture_614069.jpg" />
 </div>
 
 
@@ -566,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613800.jpg" />
+  <img src="Z:/picture/008/save_picture_613800.jpg" />
 </div>
 
 
@@ -592,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613692.jpg" />
+  <img src="Z:/picture/008/save_picture_613692.jpg" />
 </div>
 
 
@@ -618,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613481.jpg" />
+  <img src="Z:/picture/008/save_picture_613481.jpg" />
 </div>
 
 
@@ -644,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613470.jpg" />
+  <img src="Z:/picture/008/save_picture_613470.jpg" />
 </div>
 
 
@@ -657,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5CBCD748AD2C933D4B86AE23BF577793F20E9C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037372   (613248) от 24.07.2016
-
-Андрей Глазков | Одно дыхание. Медитация для занятых людей (2016) [FB2, RTF]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613248.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Умение правильно расслабляться и восстанавливаться – это великое мастерство, которое помогает отдыхать душой и телом и набираться сил. Работа, тренировки, бытовые хлопоты, даже общение – все это пусть незаметно, но утомляет, забирает энергию. Техника «Одно дыхание», разработанная Андреем Глазковым – специалистом по медитации, – создана для тех, кто не (   Читать дальше...   )Жанр: Эзотерика. МедитацияФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4A0B71E96F00879F01FCFA2C0265D712277F86
 ```
 
 https://mybot314.ru/tekegram_catalog/

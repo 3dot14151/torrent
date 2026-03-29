@@ -1,3 +1,32 @@
+###  Публикация: 1331460   (332341) от 15.10.2019
+
+Louis Landon - Heartfelt Solo Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_332341.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Innocence	03:02
+2. Sweet Honey	02:41
+3. Yin and Yang	04:27
+4. Sweet Sadness	04:12(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F12CAD707680494587DC7392B1280020FE167F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956467   (328414) от 16.11.2015
 
 Soulwire (Ken Hill) - три альбома (2006-2011) дискография [FLAC|Lossless]<New Age, Chillout, Piano, Downtempo>
@@ -6,7 +35,7 @@ Soulwire (Ken Hill) - три альбома (2006-2011) дискография [
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328414.jpg" />
+  <img src="Z:/picture/008/save_picture_328414.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327338.jpg" />
+  <img src="Z:/picture/008/save_picture_327338.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|tracks]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325690.jpg" />
+  <img src="Z:/picture/008/save_picture_325690.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|image + .cue] <New Age, Celti
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325632.jpg" />
+  <img src="Z:/picture/008/save_picture_325632.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323652.jpg" />
+  <img src="Z:/picture/008/save_picture_323652.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Yiruma - Blind Film (2014) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323509.jpg" />
+  <img src="Z:/picture/008/save_picture_323509.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - RELAX - Морской бриз - Звуки живой природы в �
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322992.jpg" />
+  <img src="Z:/picture/008/save_picture_322992.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Era - Era (1998) [FLAC|Lossless|image + .cue]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320419.jpg" />
+  <img src="Z:/picture/008/save_picture_320419.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Eloy Fritsch - The Garden of Emotions (2009) [FLAC|image+.cue]<Electronic, Ambie
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319371.jpg" />
+  <img src="Z:/picture/008/save_picture_319371.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Christopher Phillips - A Conversation With God (2006) [FLAC|Lossless|WEB-DL|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318499.jpg" />
+  <img src="Z:/picture/008/save_picture_318499.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ The O’Neill Brothers - An O’Neill Brothers’ Christmas: Relaxing Piano (201
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316768.jpg" />
+  <img src="Z:/picture/008/save_picture_316768.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Monica Williams - Journey of Tears (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316632.jpg" />
+  <img src="Z:/picture/008/save_picture_316632.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Yanni - The Very Best of Yanni (2000) [FLAC|tracks+.cue]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314387.jpg" />
+  <img src="Z:/picture/008/save_picture_314387.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Karushanti - Silence Meditation (2015) [FLAC|tracks]<New Age, Relax>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312414.jpg" />
+  <img src="Z:/picture/008/save_picture_312414.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Deep Forest - Boheme (1995) [FLAC|tracks+.cue]<New Age, Ambient, Folk>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312406.jpg" />
+  <img src="Z:/picture/008/save_picture_312406.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Wayne Gratz - Spring Rain / Piano and Rainfall (2005) [FLAC|tracks+.cue]<New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310196.jpg" />
+  <img src="Z:/picture/008/save_picture_310196.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ David Arkenstone - Emotional Piano Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309561.jpg" />
+  <img src="Z:/picture/008/save_picture_309561.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308625.jpg" />
+  <img src="Z:/picture/008/save_picture_308625.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307688.jpg" />
+  <img src="Z:/picture/008/save_picture_307688.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Bernward Koch - Touched by Love (2016) Compilation [FLAC|Lossless|tracks + .cue]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307615.jpg" />
+  <img src="Z:/picture/008/save_picture_307615.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ Thomas Barquee - Missa (2002) [FLAC|Lossless|tracks + .cue] <Chants, World>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305513.jpg" />
+  <img src="Z:/picture/008/save_picture_305513.jpg" />
 </div>
 
 
@@ -613,7 +642,7 @@ Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kb
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304290.jpg" />
+  <img src="Z:/picture/008/save_picture_304290.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ Tantric Music - Tantric Art of Love - New Age Music 2020 [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304168.jpg" />
+  <img src="Z:/picture/008/save_picture_304168.jpg" />
 </div>
 
 
@@ -671,7 +700,7 @@ Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, R
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304166.jpg" />
+  <img src="Z:/picture/008/save_picture_304166.jpg" />
 </div>
 
 
@@ -700,7 +729,7 @@ Kevin Kern - Always Near / A Romantic collection (2014) [FLAC|image+.cue]<New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303364.jpg" />
+  <img src="Z:/picture/008/save_picture_303364.jpg" />
 </div>
 
 
@@ -714,35 +743,6 @@ Kevin Kern - Always Near / A Romantic collection (2014) [FLAC|image+.cue]<New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BF0C2682D439E2CEB9121B384367A71C035614B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261863   (301199) от 12.11.2018
-
-Michael Logozar - Passage (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timelapse
-02. Passage
-03. Midnight in the Garden
-04. Through the Storm(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DA613E63B2F0A42DE289705686364A6561A052
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Defender Tools 1.06 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844261.jpg" />
+  <img src="Z:/picture/008/save_picture_844261.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Photoshop Lightroom CC 2015.9 (6.9) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844230.jpg" />
+  <img src="Z:/picture/008/save_picture_844230.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_844194.jpg" />
+  <img src="Z:/picture/009/save_picture_844194.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_844192.jpg" />
+  <img src="Z:/picture/009/save_picture_844192.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Deep Data Recovery 2.1.1 [En] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844173.jpg" />
+  <img src="Z:/picture/008/save_picture_844173.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844172.jpg" />
+  <img src="Z:/picture/008/save_picture_844172.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AOMEI Backupper Technician Plus 6.6.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844158.jpg" />
+  <img src="Z:/picture/008/save_picture_844158.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844134.jpg" />
+  <img src="Z:/picture/008/save_picture_844134.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ VA - Funky DL's Remix Deluxe (2012) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, Jazz
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844094.jpg" />
+  <img src="Z:/picture/008/save_picture_844094.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844087.jpg" />
+  <img src="Z:/picture/008/save_picture_844087.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844082.jpg" />
+  <img src="Z:/picture/008/save_picture_844082.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Zoom Player MAX 16.5 Build 1650 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844046.jpg" />
+  <img src="Z:/picture/008/save_picture_844046.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MAGIX Vegas Pro 19.0 Build 381 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844037.jpg" />
+  <img src="Z:/picture/008/save_picture_844037.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843967.jpg" />
+  <img src="Z:/picture/008/save_picture_843967.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843961.jpg" />
+  <img src="Z:/picture/008/save_picture_843961.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843945.jpg" />
+  <img src="Z:/picture/008/save_picture_843945.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Ableton - Live Suite 11.0.11 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843924.jpg" />
+  <img src="Z:/picture/008/save_picture_843924.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843908.jpg" />
+  <img src="Z:/picture/008/save_picture_843908.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Camouflage - Greyscale (2015) [FLAC|Lossless|WEB-DL] <Coldwave, Synthpop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843782.jpg" />
+  <img src="Z:/picture/008/save_picture_843782.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Sweet Home 3D 3.1 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843763.jpg" />
+  <img src="Z:/picture/008/save_picture_843763.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Zombie Defence 2: Episodes 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843714.jpg" />
+  <img src="Z:/picture/008/save_picture_843714.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Dreamfall Chapters Book 1-2 v. 2.3.0.13(2014) [Multi] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843712.jpg" />
+  <img src="Z:/picture/008/save_picture_843712.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843656.jpg" />
+  <img src="Z:/picture/008/save_picture_843656.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843653.jpg" />
+  <img src="Z:/picture/008/save_picture_843653.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843652.jpg" />
+  <img src="Z:/picture/008/save_picture_843652.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843651.jpg" />
+  <img src="Z:/picture/008/save_picture_843651.jpg" />
 </div>
 
 

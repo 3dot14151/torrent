@@ -1,3 +1,61 @@
+###  Публикация: 1132559   (698487) от 10.05.2017
+
+VA - Песни военных лет (2008) [MP3|320 Kbps] <Ретро,Военные песни>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_698487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Михаил Курдин - Барон фон дер Пшик (03:02)
+02. Джаз-оркестр Театра Кразнознаменного Балтфлота - Джеймс Кеннеди (04:08)
+03. Леонид Утесов - Бомбардировщики (02:18)
+04. Вадим Козин и 'Танго-ансамбль' - Осень (03:07)(   Читать дальше...   )Жанр: Ретро,Военные песниПродолжительность: 01:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2DB7A3B76DC80F9FEA259CC9D1E27AF4F32E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402572   (697702) от 16.08.2020
+
+Жека ( Евгений Григорьев ) - 6 Альбомов (2002 - 2006)  [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_697702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анти - тормоза
+02. Рюмка водки на столе
+03. Кукушка
+04. Ля минор(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970B81DDF4AA7FC6046E04E6D0FA88F263979C8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132754   (696869) от 11.05.2017
 
 VA - Серия «Блатная  Дискотека» (6) (2008) [FLAC|Lossless|image + .cue] <Шансон>
@@ -6,7 +64,7 @@ VA - Серия «Блатная  Дискотека» (6) (2008) [FLAC|Lossless
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696869.jpg" />
+  <img src="Z:/picture/008/save_picture_696869.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696866.jpg" />
+  <img src="Z:/picture/008/save_picture_696866.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696790.jpg" />
+  <img src="Z:/picture/008/save_picture_696790.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Мурка - 4 18 жиганских хитов русского шансо
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696781.jpg" />
+  <img src="Z:/picture/008/save_picture_696781.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696094.jpg" />
+  <img src="Z:/picture/008/save_picture_696094.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695121.jpg" />
+  <img src="Z:/picture/008/save_picture_695121.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695058.jpg" />
+  <img src="Z:/picture/008/save_picture_695058.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694699.jpg" />
+  <img src="Z:/picture/008/save_picture_694699.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693900.jpg" />
+  <img src="Z:/picture/008/save_picture_693900.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692973.jpg" />
+  <img src="Z:/picture/008/save_picture_692973.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692972.jpg" />
+  <img src="Z:/picture/008/save_picture_692972.jpg" />
 </div>
 
 
@@ -320,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692868.jpg" />
+  <img src="Z:/picture/008/save_picture_692868.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692771.jpg" />
+  <img src="Z:/picture/008/save_picture_692771.jpg" />
 </div>
 
 
@@ -378,7 +436,7 @@ Charles Aznavour/Шарль Азнавур - Du last dich geh`n (1979) [MP3|320 
 >>Зарубежный Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692613.jpg" />
+  <img src="Z:/picture/008/save_picture_692613.jpg" />
 </div>
 
 
@@ -404,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691925.jpg" />
+  <img src="Z:/picture/008/save_picture_691925.jpg" />
 </div>
 
 
@@ -433,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691917.jpg" />
+  <img src="Z:/picture/008/save_picture_691917.jpg" />
 </div>
 
 
@@ -462,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688758.jpg" />
+  <img src="Z:/picture/008/save_picture_688758.jpg" />
 </div>
 
 
@@ -491,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688511.jpg" />
+  <img src="Z:/picture/008/save_picture_688511.jpg" />
 </div>
 
 
@@ -520,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687295.jpg" />
+  <img src="Z:/picture/008/save_picture_687295.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686500.jpg" />
+  <img src="Z:/picture/008/save_picture_686500.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Clea Vincent - Nuits sans sommeil (2019) [MP3|320 Kbps] <French Pop, Chanson>
 >>Зарубежный Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685664.jpg" />
+  <img src="Z:/picture/008/save_picture_685664.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684547.jpg" />
+  <img src="Z:/picture/008/save_picture_684547.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684300.jpg" />
+  <img src="Z:/picture/008/save_picture_684300.jpg" />
 </div>
 
 
@@ -671,65 +729,13 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_681828.jpg" />
+  <img src="Z:/picture/005/save_picture_681828.jpg" />
 </div>
 
 
 ###  Подробнее
 
 "Выступление В. Высоцкого в Научно-Исследовательском Кино-Фото Институте (НИКФИ) в Москве состоялось 26 января 1968 года. По свидетельству звукорежисера А. Самоварова, в первые же секунды концерта лопнули две струны на гитаре. Пока искали замену, около 40 минут, В. Высоцкий рассказывал публике о своей работе в театре, кино, отвечал на вопросы. Поэтому вторую (   Читать дальше...   )Жанр: Авторская песняПродолжительность: 53:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 79420   (681770) от 26.06.2016
-
-Владимир Высоцкий - Нью-Йоркский концерт (1979) [FLAC]<Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_681770.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Нью-Йоркский концерт" В. Высоцкого был записан 17 января 1979 г. в Brooklyn College. Сокращенный вариант записи с нарушенным порядком песен был издан в США на двух долгоиграющих пластинках без указания фирмы и номера. SoLyd Records представляет первое полное издание концерта. Из оригинальной мастер-ленты вырезаны только переводы песен на английский язык.Жанр: Авторская песняПродолжительность: 1:31:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 79119   (681769) от 26.06.2016
-
-Владимир Высоцкий - Автопортрет (1975) [FLAC]<Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_681769.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Во время пребывания "Таганки" в Болгарии фирма звукозаписи "Балкантон" предложила Высоцкому записать пластинку. Несмотря на невероятную загруженность (запись пришлось делать ночью, другого времени не было), тот сразу же согласился, впервые в жизни появилась у него возможность увидеть настоящую, большую пластинку своих песен. Напомним, что (   Читать дальше...   )Жанр: Авторская песняПродолжительность: 55:38
 
 ## Скачать торент
 ```bash

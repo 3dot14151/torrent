@@ -1,3 +1,32 @@
+###  Публикация: 1585692   (220803) от 23.10.2022
+
+Tau & The Drones of  Praise - 3 Albums (2019-2022) [MP3|320 Kbps] <Psychedelic, Folk, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Is Right To Give Drones & Praise [00:05:48]
+02. The Sixth Sun [00:04:26]
+03. Thunder Thunder Hummingbird [00:04:09]
+04. Na Heiliminti [00:04:00](   Читать дальше...   )Жанр: Psychedelic, Folk, Art RockПродолжительность: 3 CD, 01:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF573D61AABD323B89E68AACA9ED81E7B27FD62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585604   (220781) от 23.10.2022
 
 The Vault - 2 Albums (2019-2020) [MP3|320 Kbps] <Heavy Rock, Stoner, Groove>
@@ -6,7 +35,7 @@ The Vault - 2 Albums (2019-2020) [MP3|320 Kbps] <Heavy Rock, Stoner, Groove>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_220781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_220781.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Chez Kane - 2 Albums (2021-2022) [MP3|320 Kbps] <Melodic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220568.jpg" />
+  <img src="Z:/picture/005/save_picture_220568.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Richard Marx - HTV Music History (2001) 2 CD Unofficial Release [OGG Vorbis|480 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220549.jpg" />
+  <img src="Z:/picture/005/save_picture_220549.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Beacon Street Union - The Eyes Of The Beacon Street Union (1968) Reissue, 2010, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219975.jpg" />
+  <img src="Z:/picture/005/save_picture_219975.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Who - WHO (2019) Deluxe Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219915.jpg" />
+  <img src="Z:/picture/005/save_picture_219915.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Bon Jovi - Bon Jovi (1984) Remastered, 1998, Mercury [OGG Vorbis|480 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219633.jpg" />
+  <img src="Z:/picture/005/save_picture_219633.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Who Killed Janis - 2 Albums (2022) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219571.jpg" />
+  <img src="Z:/picture/005/save_picture_219571.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Bon Jovi - 7800° Fahrenheit (1985) Reissue, Remastered, 1998, Mercury [OGG Vorb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219507.jpg" />
+  <img src="Z:/picture/005/save_picture_219507.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Bon Jovi - Slippery When Wet (1986) Reissue, Remastered, Repress, 1998, Mercury 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219423.jpg" />
+  <img src="Z:/picture/005/save_picture_219423.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Dry River - Cuarto Creciente (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219414.jpg" />
+  <img src="Z:/picture/005/save_picture_219414.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ I Am The Manic Whale - Bumper Book of Mystery Stories (2023) [MP3|320 Kbps] <pro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218617.jpg" />
 </div>
 
 
@@ -323,7 +352,7 @@ Bon Jovi - New Jersey (1988) Reissue, Remastered, 1998, Mercury [OGG Vorbis|480 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218296.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ Peter Gabriel - The Late Show - New York Broadcast 1978 (2021) Reissue, 2023, Go
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217658.jpg" />
 </div>
 
 
@@ -381,7 +410,7 @@ Bon Jovi - Keep The Faith (1992) Reissue, Remastered, 2008, Mercury [OGG Vorbis|
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217113.jpg" />
+  <img src="Z:/picture/005/save_picture_217113.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ Mad Fellaz - 4 Albums (2013-2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217098.jpg" />
+  <img src="Z:/picture/005/save_picture_217098.jpg" />
 </div>
 
 
@@ -439,7 +468,7 @@ Bon Jovi - Cross Road (The Best Of Bon Jovi) (1994) Reissue, Remastered, 1998, M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217086.jpg" />
+  <img src="Z:/picture/005/save_picture_217086.jpg" />
 </div>
 
 
@@ -468,7 +497,7 @@ Black Top - Cherry Picking (2016) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216877.jpg" />
 </div>
 
 
@@ -497,7 +526,7 @@ Golden Earring - 3 Albums (2021-2022) [MP3|320 Kbps] <Hard Rock, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216865.jpg" />
 </div>
 
 
@@ -526,7 +555,7 @@ Plini - Handmade Cities (2016) [MP3|320 Kbps] <Prog Rock, Progressive Metal, Ins
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216779.jpg" />
 </div>
 
 
@@ -555,7 +584,7 @@ Beatles meets Queen - Beatles meets Queen (2012) [MP3|192 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216363.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ Bon Jovi - Bounce (2002) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215970.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ Bon Jovi - This Left Feels Right (2003) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215949.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Bon Jovi - Crush (2000) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215924.jpg" />
 </div>
 
 
@@ -677,7 +706,7 @@ Bon Jovi - Have A Nice Day (2005) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215838.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ The Cars & Ric Ocasek - 15 Studio Albums (1978 - 2011) CD [MP3|320 Kbps] <Electr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215564.jpg" />
+  <img src="Z:/picture/005/save_picture_215564.jpg" />
 </div>
 
 
@@ -721,35 +750,6 @@ The Cars - американская рок-группа «новой волны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D9B479BCFB2DE831740AF3ED270C4758E4F62E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586803   (214838) от 28.10.2022
-
-Bon Jovi - Lost Highway (2007) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Highway
-02. Summertime
-03. (You Want To) Make A Memory
-04. Whole Lot Of Leavin'(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75348DFB80202A61C770EC406D56E25A1E750928
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Paperless 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760623.jpg" />
+  <img src="Z:/picture/008/save_picture_760623.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760593.jpg" />
+  <img src="Z:/picture/008/save_picture_760593.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760586.jpg" />
+  <img src="Z:/picture/008/save_picture_760586.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760561.jpg" />
+  <img src="Z:/picture/008/save_picture_760561.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Rising Galaxy - Nomadic Universality (2019) [FLAC|Lossless|WEB-DL|tracks] <Psybi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760539.jpg" />
+  <img src="Z:/picture/008/save_picture_760539.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Ethneomystica Vol. 7 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Psydu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760537.jpg" />
+  <img src="Z:/picture/008/save_picture_760537.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Brave Browser 0.59.34 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760536.jpg" />
+  <img src="Z:/picture/008/save_picture_760536.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ VA - Sweet Vocal Lounge (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760532.jpg" />
+  <img src="Z:/picture/008/save_picture_760532.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ TSR Watermark Image 3.6.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760526.jpg" />
+  <img src="Z:/picture/008/save_picture_760526.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Neru Thee Fourth Fugee - The Almanac (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760522.jpg" />
+  <img src="Z:/picture/008/save_picture_760522.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Heraw - You Won't Play (Ultra Mood Kick Edit) (2020) [FLAC|Lossless|WEB-DL|track
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760521.jpg" />
+  <img src="Z:/picture/008/save_picture_760521.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ K-Lite Codec Pack Update 15.5.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760508.jpg" />
+  <img src="Z:/picture/008/save_picture_760508.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Registry Life 5.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760507.jpg" />
+  <img src="Z:/picture/008/save_picture_760507.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760495.jpg" />
+  <img src="Z:/picture/008/save_picture_760495.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760494.jpg" />
+  <img src="Z:/picture/008/save_picture_760494.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760460.jpg" />
+  <img src="Z:/picture/008/save_picture_760460.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ JetBrains ReSharper 9.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760451.jpg" />
+  <img src="Z:/picture/008/save_picture_760451.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Things 3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760428.jpg" />
+  <img src="Z:/picture/008/save_picture_760428.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Basilisk 2018.12.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_760425.jpg" />
+  <img src="Z:/picture/005/save_picture_760425.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Waterfox 56.2.7.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_760424.jpg" />
+  <img src="Z:/picture/005/save_picture_760424.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760400.jpg" />
+  <img src="Z:/picture/008/save_picture_760400.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Soft Organizer Pro 8.02 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760388.jpg" />
+  <img src="Z:/picture/008/save_picture_760388.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ WinToUSB Technician 5.5 Release 1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760382.jpg" />
+  <img src="Z:/picture/008/save_picture_760382.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760339.jpg" />
+  <img src="Z:/picture/008/save_picture_760339.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Microsoft Windows 10 TP Language Pack build 10056 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760298.jpg" />
+  <img src="Z:/picture/008/save_picture_760298.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760277.jpg" />
+  <img src="Z:/picture/008/save_picture_760277.jpg" />
 </div>
 
 

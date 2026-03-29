@@ -1,3 +1,138 @@
+###  Публикация: 1395463   (755489) от 10.07.2020
+
+Е. Измайлова (ред.) | Сделать счастливыми наших детей [3 книги] (2016) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_755489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами - уникальные материалы, созданные на основе лучших публикаций журнала Psychologies 10 лет его существования в России, собранные и изданные отдельными книгами. В качестве экспертов выступили ведущие специалисты в области возрастной и семейной психологии, такие как Юлия Гиппенрейтер, Светлана Кривцова, Ирина Млодик, Людмила Петрановская, Анна Скавитина… (   Читать дальше...   )Жанр: Психология, Педагогика, Воспитание детей, Здоровье детейФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D451858E0EC2A25B00BB673FDF92B9A7688EA56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395468   (755478) от 10.07.2020
+
+Книжная серия | Малая книга с историей [9 книг] (2019) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_755478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серию «Малая книга с историей» отличает особое отношение к оригинальным текстам, кропотливый выбор перевода, тщательный подбор иллюстраций, отражающих дух каждой книги. Книги выглядят уютными и много раз читанными, но созданы они в наши дни в современных типографиях.
+Книги идеально подойдут как необычный подарок для ценителей классики и качества, а также для юных (   Читать дальше...   )Жанр: Классическая проза, Поэзия, СказкиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FAD2E4B3B64DECC3D872743AF9EE436768327E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395363   (755405) от 10.07.2020
+
+студия Диафильм | Даша, бабушка и милиционер (1969) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Прочие материалы для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_755405.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести и рассказы советских писателей. Веселые рассказы о детях.
+
+Диафильм представляет собой последовательность из 30—50 диапозитивов размером 18×24 мм, отпечатанных на общем рулоне позитивной 35-мм киноплёнки. Кадры диафильма выстроены в определённом порядке и сопровождаются титрами, превращающими фильм в иллюстрированный рассказ. В диафильмах чаще всего (   Читать дальше...   )Жанр: Образование, обучение и развитие детейФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D656B1EB9326E3D6B4C2F5F8DF2505405435A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522893   (755315) от 09.01.2022
+
+Александр Северный | Будь таким (1956) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_755315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стихи на тему здорового образа жизни.Жанр: СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2F72AFA404385586ACC9106C0869FC6B706D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522961   (755308) от 09.01.2022
+
+Камилла де ля Бедуайер | Вопросы и ответы для любознательных. Мир и человек (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_755308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля – уникальный дом для людей, а также для миллиардов растений и животных. Забота о планете – работа каждого из нас. Как именно ты можешь помочь?
+Что такое переработка и повторное использование? Почему растения так важны? Что такое атмосфера и парниковые газы? Как экономить энергию и производить меньше мусора?
+Обо всём этом расскажет книга "Мир и человек" (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046D193CEDEBB61A51A585EBE1302A9E0966C48A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522953   (755305) от 09.01.2022
 
 Марина Собе-Панек | Почемучкины книжки. Как устроена Вселенная? (2018) [PDF]
@@ -6,7 +141,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755305.jpg" />
+  <img src="Z:/picture/008/save_picture_755305.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755192.jpg" />
+  <img src="Z:/picture/008/save_picture_755192.jpg" />
 </div>
 
 
@@ -58,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755165.jpg" />
+  <img src="Z:/picture/008/save_picture_755165.jpg" />
 </div>
 
 
@@ -84,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755156.jpg" />
+  <img src="Z:/picture/008/save_picture_755156.jpg" />
 </div>
 
 
@@ -110,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755155.jpg" />
+  <img src="Z:/picture/008/save_picture_755155.jpg" />
 </div>
 
 
@@ -138,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755058.jpg" />
+  <img src="Z:/picture/008/save_picture_755058.jpg" />
 </div>
 
 
@@ -165,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755054.jpg" />
+  <img src="Z:/picture/008/save_picture_755054.jpg" />
 </div>
 
 
@@ -192,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755037.jpg" />
+  <img src="Z:/picture/008/save_picture_755037.jpg" />
 </div>
 
 
@@ -218,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754654.jpg" />
+  <img src="Z:/picture/008/save_picture_754654.jpg" />
 </div>
 
 
@@ -244,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754372.jpg" />
+  <img src="Z:/picture/008/save_picture_754372.jpg" />
 </div>
 
 
@@ -270,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753824.jpg" />
+  <img src="Z:/picture/008/save_picture_753824.jpg" />
 </div>
 
 
@@ -296,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753805.jpg" />
+  <img src="Z:/picture/008/save_picture_753805.jpg" />
 </div>
 
 
@@ -323,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753788.jpg" />
+  <img src="Z:/picture/008/save_picture_753788.jpg" />
 </div>
 
 
@@ -349,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753742.jpg" />
+  <img src="Z:/picture/008/save_picture_753742.jpg" />
 </div>
 
 
@@ -377,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753738.jpg" />
+  <img src="Z:/picture/008/save_picture_753738.jpg" />
 </div>
 
 
@@ -405,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753722.jpg" />
+  <img src="Z:/picture/008/save_picture_753722.jpg" />
 </div>
 
 
@@ -433,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753642.jpg" />
+  <img src="Z:/picture/008/save_picture_753642.jpg" />
 </div>
 
 
@@ -459,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753415.jpg" />
+  <img src="Z:/picture/008/save_picture_753415.jpg" />
 </div>
 
 
@@ -485,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753363.jpg" />
+  <img src="Z:/picture/008/save_picture_753363.jpg" />
 </div>
 
 
@@ -511,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753303.jpg" />
+  <img src="Z:/picture/008/save_picture_753303.jpg" />
 </div>
 
 
@@ -537,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753161.jpg" />
+  <img src="Z:/picture/008/save_picture_753161.jpg" />
 </div>
 
 
@@ -550,138 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3240E6D4A517C2FDED697C0D8425572C4B5DEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019089   (752420) от 22.05.2016
-
-Виктор Корюкин | Свистунишка (1954) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы для детей о природе, ребятах и зверятах.Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FA3746D7A4A9BE4F3C033465014F8F4444B2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019170   (752418) от 22.05.2016
-
-Елизавета Полонская | Святая Амалия бастует (1933) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A200CE10B2A12704D2A7F383B9B108E1F630ED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019128   (752416) от 22.05.2016
-
-Евгения Георгиевская-Дружинина | Ить-Аяк и другие (1929) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC66BEA204CF0803BE315034C0EE40FC85FF4E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019163   (752413) от 22.05.2016
-
-Надежда Войтинская | Заговор равных (1931) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3256AE441DF01550A2C47F1BC9C1D494AEB9D7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019093   (752411) от 22.05.2016
-
-Валентина Чаплина | Про Герку и чудных (1981) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752411.jpg" />
-</div>
-
-
-###  Подробнее
-
-«— Запомни, в почтовом ящике на двери лежит ключ. Когда хочешь, приходи, открывай дверь, меняй книжку. Вот тут запишешь, какую взял, вот тут распишешься. Потом запирай квартиру, клади ключ в ящик.
-
-Смех сухими горошинами раскатился по комнате. Герка смеялся громко, и смех был ужасно смешной, будто курица кокочет: ко-ко-ко… Четыре светлых глаза удивлённо захлопали (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79DC4EBE36514DD82C7FFDE225991AE5253F426D
 ```
 
 https://mybot314.ru/tekegram_catalog/

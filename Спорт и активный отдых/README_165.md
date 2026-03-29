@@ -1,3 +1,193 @@
+###  Публикация: 1750670   (104159) от 21.09.2024
+
+Хоккей. КХЛ 2024-2025. Авангард (Омск) - Автомобилист (Екатеринбург) (20.09.2024) WEBRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Авангард (Омск) - Автомобилист (Екатеринбург) (20.09.2024)
+СУДЬИ Ермолаев Иван (Москва, Россия) Сидоренко Максим (Белоруссия)
+СТАДИОН «G-Drive Арена» (Омск) Зрителей: 12011Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2209F2A56E7BB47501A13AF9F40C0E90A654DAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750668   (104158) от 21.09.2024
+
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Динамо (Москва) (20.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Адмирал (Владивосток) - Динамо (Москва) (20.09.2024)
+СУДЬИ Бирин Виктор (Москва, Россия) Раводин Алексей (Москва, Россия)
+СТАДИОН «Фетисов-Арена» (Владивосток) Зрителей: 5386Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949E68C7851C2E0F4F6805E42841D919C9C228A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750730   (104153) от 21.09.2024
+
+MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Квалификация (21.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104153.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 сентября 2024, суббота. 11:50 МСК. Этап 14 Мизано-Адриатико. Гран-при Эмилии-Романьи. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1B62D95B98704BB47E9EFED932C728ACC237C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751010   (104143) от 22.09.2024
+
+MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Гонка (22.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104143.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 сентября 2024, воскресенье. 14:00 МСК. Этап 14 Мизано-Адриатико. Гран-при Эмилии-Романьи. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615FC6088AC6E64F0CBA14568FFCADA692A86B0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750898   (104125) от 22.09.2024
+
+MotoGP. Этап 14 из 20. Гран-при Эмилии-Романьи. Спринт (21.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104125.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 сентября 2024, суббота. 16:00 МСК. Этап 14 Мизано-Адриатико. Гран-при Эмилии-Романьи. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A575043741CAE860E912327501F00C4151A5ABBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750875   (104110) от 22.09.2024
+
+Хоккей. КХЛ 2024-2025. Торпедо (Нижний Новгород) - СКА (Санкт-Петербург) (21.09.2024) WEBRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Торпедо (Нижний Новгород) - СКА (Санкт-Петербург) (21.09.2024)
+СУДЬИ Белов Алексей (Ярославль, Россия) Оскирко Юрий (Ярославль, Россия)
+СТАДИОН «КРК Нагорный» (Нижний Новгород) Зрителей: 5500Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B70FA6531CC8F8AA3558B9E78F473EF3D2F23D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750874   (104109) от 22.09.2024
+
+Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Нефтехимик (Нижнекамск) (21.09.2024) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Нефтехимик (Нижнекамск) (21.09.2024)
+СУДЬИ Светилов Алексей (Москва, Россия) Гамалей Евгений (Москва, Россия)
+СТАДИОН «Арена Металлург» (Магнитогорск) Зрителей: 6320Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3862D19C70937A910F445D6959BA22F7A7F58872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750877   (104108) от 22.09.2024
 
 Хоккей. КХЛ 2024-2025. Локомотив (Ярославль) - Салават Юлаев (Уфа) (21.09.2024) WEBRip [H.264/1080p]
@@ -6,7 +196,7 @@
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104108.jpg" />
 </div>
 
 
@@ -34,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104107.jpg" />
 </div>
 
 
@@ -62,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104083.jpg" />
 </div>
 
 
@@ -90,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104082.jpg" />
 </div>
 
 
@@ -118,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104081.jpg" />
 </div>
 
 
@@ -146,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104077.jpg" />
 </div>
 
 
@@ -174,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104076.jpg" />
 </div>
 
 
@@ -202,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104075.jpg" />
 </div>
 
 
@@ -230,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104074.jpg" />
 </div>
 
 
@@ -258,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104062.jpg" />
 </div>
 
 
@@ -286,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104061.jpg" />
 </div>
 
 
@@ -314,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104060.jpg" />
 </div>
 
 
@@ -342,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104059.jpg" />
 </div>
 
 
@@ -370,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104046.jpg" />
 </div>
 
 
@@ -398,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104045.jpg" />
 </div>
 
 
@@ -426,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104044.jpg" />
 </div>
 
 
@@ -454,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104043.jpg" />
 </div>
 
 
@@ -482,7 +672,7 @@ MotoGP. Этап 15 из 20. Гран-при Индонезии. Спринт (2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104000.jpg" />
 </div>
 
 
@@ -508,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103982.jpg" />
 </div>
 
 
@@ -521,198 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9BED9AD2F455222899B709142DB4396648C2225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752092   (103981) от 28.09.2024
-
-Хоккей. КХЛ 2024-2025. СКА (Санкт-Петербург) - Северсталь (Череповец) (27.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. СКА (Санкт-Петербург) - Северсталь (Череповец) (27.09.2024)
-СУДЬИ Метальников Эдуард (Россия) Сидоренко Максим (Белоруссия)
-СТАДИОН «МСРК «Ледовый Дворец»» (Санкт-Петербург) Зрителей: 12156Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115C047DC03CC33E33B85D7459763DC326B302A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752083   (103980) от 28.09.2024
-
-Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Авангард (Омск) (27.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Авангард (Омск) (27.09.2024)
-СУДЬИ Белов Алексей (Ярославль, Россия) Оскирко Юрий (Ярославль, Россия)
-СТАДИОН «Арена Трактор» (Челябинск) Зрителей: 7500Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D749E40D8AA3F5D104F18DF3B6CFA5A1EE41597E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752089   (103979) от 28.09.2024
-
-Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Ак Барс (Казань) (27.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Ак Барс (Казань) (27.09.2024)
-СУДЬИ Беляев Сергей (Воскресенск, Россия) Кочетов Евгений (Россия)
-СТАДИОН «Арена Металлург» (Магнитогорск) Зрителей: 6845Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC664D873B2FA3347856AEAD162C9856A88E5C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752070   (103969) от 28.09.2024
-
-MotoGP. Этап 15 из 20. Гран-при Индонезии. Квалификация (28.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103969.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 сентября 2024, суббота. 05:50 МСК Этап 18 Мандалика. Гран-при Индонезии. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C62D025E12AF052DB9310B82A935A7961C6DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752281   (103949) от 29.09.2024
-
-Футбол. Чемпионат Испании 2024-2025. 8-й тур. Осасуна - Барселона (28.09.2024) IPTV [H.264/1080p]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Испании 2024-2025. 8-й тур. Осасуна - Барселона (28.08.2024)
-СУДЬЯ Куадра Фернандес
-СТАДИОН «Эль Садар» (Памплона)Телекомпания: Матч! Футбол 2Жанр: Спорт. ФутболЯзык озвучки: русскийПродолжительность: 01:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76429CB7CD54D38114CE59C6789F78F38E5B1FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752303   (103947) от 29.09.2024
-
-MotoGP. Этап 15 из 20. Гран-при Индонезии. Гонка (29.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103947.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 сентября 2024, воскресенье. 10:00 МСК Этап 18 Мандалика. Гран-при Индонезии. Гонка (27 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF874F2C6189D7C3F40A515EEFC123C22E36B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752283   (103932) от 29.09.2024
-
-Хоккей. КХЛ 2024-2025. Локомотив (Ярославль) - ХК Сочи (Сочи) (28.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Локомотив (Ярославль) - ХК Сочи (Сочи) (28.09.2024)
-СУДЬИ Кулаков Сергей (Тверь, Россия) Лаврентьев Антон (Казань, Россия)
-СТАДИОН «УКСК Арена-2000-Локомотив» (Ярославль) Зрителей: 7553Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D81651E6A823C1FDD9CFC98F28CDEC070468693
 ```
 
 https://mybot314.ru/tekegram_catalog/

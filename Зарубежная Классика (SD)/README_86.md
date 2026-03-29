@@ -1,3 +1,86 @@
+###  Публикация: 409638   (343854) от 14.11.2011
+
+Кто боится Вирджинии Вульф? / Who's Afraid of Virginia Woolf? (1966) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роль неряшливой, вульгарной Марты принесла Элизабет Тейлор ее вторую Награду Американской Киноакадемии, а также — Награду Нью-Йоркских кинокритиков и Награду Британской киноакадемии как лучшей актрисе.
+Ричард Бартон играет ее мужа, раздираемого на части эмоциями профессора истории. Джордж Сигал и Санди Деннис играют молодую пару новичков на факультете, которые попадают в паутину Джорджа и Марты, и понимают, что их собственный брак находится под угрозой…Жанр: ДрамаВ ролях: Элизабет Тэйлор /Elizabeth Taylor/, Ричард Бертон /Richard Burton/, Джордж Сигал /George Segal/, Сэнди Деннис /Sandy DennisПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 02:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6815258F3EC52301B1887F3AFEB16FF87EB40F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257577   (343477) от 13.11.2010
+
+Первые люди на луне / First Men in the Moon (1964) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники первой международной лунной экспедиции на космическом корабле "ООН-1" были буквально ошарашены находкой в нескольких метрах от места посадки лунного модуля флага Великобритании и записки говорящей о том, что англичане посетили луну еще в 1899 году и передают сим привет королеве Виктории.
+Срочно назначенная комиссия выяснила, что в 1899 году ученый (   Читать дальше...   )Жанр: Фантастика, ПриключенияРежиссер: Натан ЮранАктеры: Эдвард Джадд, Марта Хайер, Лайонел Джеффрис, Майлз Маллесон, Норман Бёрд, Глэдис Хенсон, Хью МакДермотт, Бетти МакДауэлл, Пол Карпентер, Эрик ЧиттиПеревод: Многоголосый закадровыйПродолжительность: 01:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A615B499FF2660374A8491D3752ABA4D7007629F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257260   (343473) от 13.11.2010
+
+Гражданин Кейн / Citizen Kane (1941) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343473.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гражданин Кейн» блестящее произведение искусства! Сам персонаж напоминает Говарда Хьюза: эксцентричный человек, мыслящий глобально, пытающийся двигать мир к лучшему.
+Фильм, произвёл много шума в своё время, и до сих пор считается бесценным вкладом в мире кино. Если бы не чёрно-белая плёнка, вполне можно решить, что фильм современный. Безупречная операторская работа, сценарий — многогранен и затрагивает все сферы жизни.
+Орсон Уэллс, несмотря на то, что в 40-ые играли немного нелепо и наигранно, держится настолько правдиво, что чувствуется, будто это его последняя роль.
+Фильм — эпопея, фильм опередивший время, кино, давшее толчок современному кинематографу.Жанр: Детектив, Драма, ПриключенияРежиссер: Орсон Уэллс Сценарий: Херман Дж. Манкевич, Орсон Уэллс, Джон Хаусмен Продюсер: Орсон Уэллс, Ричард Баэр, Джордж Шефер Оператор: Грегг ТоландАктеры: Орсон Уэллс, Джозеф Коттен, Агнес Мурхед, Рут Уоррик, Рэй Коллинз, Эрскин Сэнфорд, Эверет Слоун, Уильям Олленд, Пол Стюарт, Джордж КулурисПеревод: Многоголосый закадровыйПродолжительность: 01:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCC37F42E76D9CE60D41E30E171EFF770B411D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016476   (343081) от 09.10.2019
 
 Перевал Кассандры / The Cassandra Crossing (1976) BDRip [H.264]
@@ -6,7 +89,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343081.jpg" />
+  <img src="Z:/picture/008/save_picture_343081.jpg" />
 </div>
 
 
@@ -33,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342431.jpg" />
+  <img src="Z:/picture/008/save_picture_342431.jpg" />
 </div>
 
 
@@ -59,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342032.jpg" />
+  <img src="Z:/picture/008/save_picture_342032.jpg" />
 </div>
 
 
@@ -85,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341801.jpg" />
+  <img src="Z:/picture/008/save_picture_341801.jpg" />
 </div>
 
 
@@ -111,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341684.jpg" />
+  <img src="Z:/picture/008/save_picture_341684.jpg" />
 </div>
 
 
@@ -137,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341640.jpg" />
+  <img src="Z:/picture/008/save_picture_341640.jpg" />
 </div>
 
 
@@ -163,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340634.jpg" />
+  <img src="Z:/picture/008/save_picture_340634.jpg" />
 </div>
 
 
@@ -189,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340632.jpg" />
+  <img src="Z:/picture/008/save_picture_340632.jpg" />
 </div>
 
 
@@ -215,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340363.jpg" />
+  <img src="Z:/picture/008/save_picture_340363.jpg" />
 </div>
 
 
@@ -241,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339480.jpg" />
+  <img src="Z:/picture/008/save_picture_339480.jpg" />
 </div>
 
 
@@ -267,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339470.jpg" />
+  <img src="Z:/picture/008/save_picture_339470.jpg" />
 </div>
 
 
@@ -293,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339445.jpg" />
+  <img src="Z:/picture/008/save_picture_339445.jpg" />
 </div>
 
 
@@ -321,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339333.jpg" />
+  <img src="Z:/picture/008/save_picture_339333.jpg" />
 </div>
 
 
@@ -347,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338361.jpg" />
+  <img src="Z:/picture/008/save_picture_338361.jpg" />
 </div>
 
 
@@ -373,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338300.jpg" />
+  <img src="Z:/picture/008/save_picture_338300.jpg" />
 </div>
 
 
@@ -399,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338292.jpg" />
+  <img src="Z:/picture/008/save_picture_338292.jpg" />
 </div>
 
 
@@ -425,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337750.jpg" />
+  <img src="Z:/picture/008/save_picture_337750.jpg" />
 </div>
 
 
@@ -452,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337618.jpg" />
+  <img src="Z:/picture/008/save_picture_337618.jpg" />
 </div>
 
 
@@ -478,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337400.jpg" />
+  <img src="Z:/picture/008/save_picture_337400.jpg" />
 </div>
 
 
@@ -504,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337248.jpg" />
+  <img src="Z:/picture/008/save_picture_337248.jpg" />
 </div>
 
 
@@ -530,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336917.jpg" />
+  <img src="Z:/picture/008/save_picture_336917.jpg" />
 </div>
 
 
@@ -556,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336167.jpg" />
+  <img src="Z:/picture/008/save_picture_336167.jpg" />
 </div>
 
 
@@ -582,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335368.jpg" />
+  <img src="Z:/picture/008/save_picture_335368.jpg" />
 </div>
 
 
@@ -593,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7A0CE99A0611C6CB5C8504E34AD00760246966C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764306   (335328) от 30.10.2020
-
-Юлий Цезарь / Giulio Cesare (1909) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страницы биографии великого правителя Юлия Цезаря от великого режиссера Джованни Пастроне. Правда, впечатляющее "Падение Трои" и грандиозная "Кабирия" у него еще впереди, но и на пленке этого фильма уже "видны следы когтей таланта" (цитирую И. Ильфа и Е. Петрова)Производство: Италия, Itala FilmЖанр: Драма, короткометражный, немое киноРежиссер: Джованни ПастронеАктеры: Джованни Пастроне, Луиджи МелеЯзык озвучки: НемойСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 00:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FF2FA647C69E407FB8A04A2209939AFE220326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954063   (335286) от 10.11.2015
-
-7-ая кавалерия / 7th Cavalry (1956) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвращаясь в форт Линкольн, капитан Бенсон узнает о поражении генерала Кастера на Литл Бигхорне. В ходе расследования офицеры обвиняют в поражении самого Кастера, а Бенсон пытается его защитить. Но отсутствие Бенсона во время битвы вызывает подозрения и презрение всего гарнизона. Но, когда возникает необходимость вывезти с поля боя тела погибших, Бенсон вызывается, (   Читать дальше...   )Производство: США / Producers-Actors Corporation, Scott-Brown ProductionsЖанр: ВестернРежиссер: Джозеф Х. ЛьюисАктеры: Рэндольф Скотт, Барбара Хейл, Джей С. Флиппен, Фрэнк Фэйлен, Жанетт Нолан, Лео Гордон, Денвер Пайл, Гарри Кэри мл., Майкл Пэйт, Дональд КёртисПеревод: Одноголосый закадровый (NezPerce)Субтитры: ОтсутствуютПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9700BFC6DF538622607CA7FD19D6E4E30506DA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764072   (335203) от 30.10.2020
-
-Эдгар Аллан По / Edgar Allan Poe (1909) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдгар Аллан По был одним из любимых писателей Гриффита, к его творчеству и биографии он обращался как минимум трижды. В этой биографической ленте события из жизни писателя предельно сконцентрированы, стержневой становится история создания его главного шедевра - стихотворения "Ворон". Жизнь Эдгара По всегда была окружена легендами, чему и сам он немало поспособствовал. (   Читать дальше...   )Производство: США, American Mutoscope & BiographЖанр: короткометражный, биография, драма, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Херберт Йост, Линда Арвидсон, Клара Т. Брэйси, Анита Хендри, Артур В. Джонсон, Джеймс Кирквуд, Дэвид МайлзЯзык озвучки: немойСубтитры: английские интертитры, русские отдельным файломПродолжительность: 00:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC91FAEFEA74A35DC73505B200575F0782B2802
 ```
 
 https://mybot314.ru/tekegram_catalog/

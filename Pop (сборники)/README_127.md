@@ -1,3 +1,177 @@
+###  Публикация: 1757870   (38782) от 30.10.2024
+
+VA - AI song, AI music CD 2 (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ai Talking - The Girl Out of My Dream
+02. Ai Talking - Intrigue in Versailles
+03. Ai Talking - Miss Universe
+04. Evgenypt - My Dear Alena(   Читать дальше...   )Жанр: Eurodisco, EurodanceПродолжительность: 00:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069E3750AFA52B41BA43D1803973E76B52BFC9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758528   (38395) от 03.11.2024
+
+VA - National Pop Dance Music Vol.89 (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38395.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zlatan Feat. Asake - Bust Down (03:16)
+ 002. Boynextdoor - Good Day (02:52)
+ 003. Wizkid Feat. Zlatan - Idk (03:01)
+ 004. Irama - Galassie (03:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CCACE7C2BDD16F5EBF8F9322F088A13A0CD08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759168   (37997) от 07.11.2024
+
+VA - Pop-Rock Hits Of The New Generation (2024) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37997.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beyonce - Flamenco - (01:40)
+ 002. Landon Barker - Friends With Your Ex - (01:59)
+ 003. Anitta - Fria - (02:07)
+ 004. Bella Poarch - Don't Like Anybody - (02:11)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 11:08:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A1EE682DF75227518214D540AFF655383EF96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760056   (37462) от 12.11.2024
+
+VA - Pop Dance Summer Caramel (2024) [MP3|320 Kbps] <Pop, Pop-Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taylor Swift - You Belong With Me (00:03:51)
+002. Clo - Futur (00:02:36)
+003. Angelina Mango - Fila Indiana (00:03:13)
+004. Burito - Парнас (00:03:08)(   Читать дальше...   )Жанр: Pop, Pop-Rock, DanceПродолжительность: 10:20:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F0B3DD0D1EC9A957C8611A25F7E9C62EFF0A992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760518   (37222) от 15.11.2024
+
+VA - National Pop Dance Vol.90 (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37222.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Boyz - Shout It Out - (04:31)
+ 002. Omah Lay - Reason - (02:27)
+ 003. Black Sherif - January 9Th - (03:43)
+ 004. Gaëtan Roussel Feat. Louane - La Beauté - (04:09)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555CA20DC803241719099C409A174CF3F7743BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761408   (36702) от 20.11.2024
+
+Николай Гринько - Синглы (2020-2024) (2024) [MP3|320 Kbps] <Бард-рок, Поп-рок, Авторская песня>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сурикаты
+02. Видимо-невидимо
+03. Типакорочекакбы
+04. Лиссабон(   Читать дальше...   )Жанр: Бард-рок, Поп-рок, Авторская песняПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD94C6BDF4CDC0B83889915B22B718EC554452EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761475   (35663) от 30.11.2024
 
 Kylie Minogue - Compilation (1988-2024) [MP3|320 Kbps] <Pop, Dance pop, Disco>
@@ -6,7 +180,7 @@ Kylie Minogue - Compilation (1988-2024) [MP3|320 Kbps] <Pop, Dance pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35663.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ Anastacia - Compilation (2000-2023) [MP3|320 Kbps] <Pop rock, Soul, Dance pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35607.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ A-ha - Compilation (1985-2022) [MP3|320 Kbps] <Synth pop, New wave, Pop rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35548.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Pop Dance Weekend Party Non Stop (2024) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35360.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - US Top 100 – The 00s (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35243.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Awesome 90's Hits (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34324.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Новогодние песенки для малышей (2024) [MP3|320 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34278.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - Новогодняя Ночь (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33895.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - Новогодняя ночь хитов (2024) [MP3|320 Kbps] <Pop, Christ
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32967.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - 100 Пудовый хит (2024) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32879.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ Adriano Celentano - Compilation (1958-2021) [MP3|320 Kbps] <Pop, Disco, Rock 'n'
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32445.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32444.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 17 (2025) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32254.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ VA - Disco Riviera (2025) [MP3|320 Kbps] <Disco, Eectronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31775.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ VA - Лучшие песни Love Radio за 2024 год (2025) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31741.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ Robbie Williams - Compilation (1996-2022) [MP3|320 Kbps] <Pop rock, Soft rock, E
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31593.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ Marius M.21 - in Memory (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30729.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ VA - Зима на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30563.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ Euromartina - Part 2 compilation (2025) [MP3|320 Kbps] <Eurodisco, Eurodance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29786.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ Bryan Ferry & Roxy Music - Compilation (1972-2018) [MP3|320 Kbps] <Art rock, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29692.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ Bryan Ferry & Roxy Music - Compilation (1972-2018) [MP3|320 Kbps] <Art rock, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46592EE72C9E0BEEA850C4B91C51D2A6F1A89C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775664   (29490) от 28.01.2025
-
-VA - National Pop Dance Music Vol.97 (2025) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29490.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Whigfield - I Want To Love - 04:16
-002. Charli Xcx - Girl, So Confusing - 03:26
-003. Coldplay - Feels Like - 03:58
-004. Wiz Khalifa - See You Again - 03:50(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 11:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7BC7446E97F6C139E15C06F4A35E9F8B2B6C8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779093   (27200) от 18.02.2025
-
-Blondie & Deborah Harry - Compilation (1976-2017) [MP3|320 Kbps] <New wave, Pop rock, Punk rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Monster (Pollinator 2017)
-02. Rapture (Autoamerican 1980)
-03. Wipe Off My Sweat (Panic Of Girls 2011)
-04. Sunday Girl (Parallel Lines 1978)(   Читать дальше...   )Жанр: New wave, Pop rock, Punk rock, DiscoПродолжительность: 08:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95143029E03609D7BE1F2D31029339180EDB8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781009   (26971) от 21.02.2025
-
-VA - 100 Pop Hits (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Locked Out of Heaven (03:53)
-02. Madonna - Like a Prayer (05:42)
-03. Coldplay - Viva La Vida (04:02)
-04. Fleetwood Mac - Dreams (2018 Remaster) (04:17)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BB54ADEC809E5668F6C21675733AB777DE078D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784307   (25098) от 10.03.2025
-
-Texas - Compilation (1989-2021) [MP3|320 Kbps] <Pop rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zero Zero (The Hush 1999)
-02. Telephone X (Careful What You Wish For 2003)
-03. Summer Son (The Hush 1999)
-04. The Conversation (The Conversation 2013)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 03:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AFD170266F917E863F47824AB1C4603C5524AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784363   (24951) от 12.03.2025
-
-VA - Песни Юмор (2025) [MP3|320 Kbps] <Pop, Юмор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Перепесня - Это Инфобизнес
-02. Игорь Малинин - Перископ
-03. Перепесня - Барсучий Случай (Квадроберы)
-04. Игорь Малинин - Рога(   Читать дальше...   )Жанр: Pop, ЮморПродолжительность: 00:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD40502DD41DA4F246B241914526E359BFBA8802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785358   (24594) от 15.03.2025
-
-Pupo - Compilation (2025) [MP3|320 Kbps] <Pop, ItaloDisco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ti Sembra Facile
-  02.  Pensiero Mio
-  03.  Un Amore Grande
-  04.  Non E Un Addio - Goodbye is Not Forever (Duet With Robin Beck)(   Читать дальше...   )Жанр: Pop, ItaloDiscoПродолжительность: 06:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED03C007F26F2744A56FE22BF303E0EEC9A40F87
 ```
 
 https://mybot314.ru/tekegram_catalog/

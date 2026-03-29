@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1862047   (1063066) от 
+
+Морская полиция: Гавайи / NCIS: Hawai'i (2024) WEBRip [H.264/1080p] (сезон 3, серии 1-10 из 10) TVShows
+
+>>Зарубежные сериалы
+>>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сосредоточен на Джейн Теннант — первой женщине, возглавившей морскую полицию Пёрл-Харбора. Джейн и её команда расследуют преступления, связанные с участием военнослужащих, национальной безопасностью и загадками залитого солнцем острова, а также пытаются вести обычную жизнь. Спин-офф сериала Морская полиция: Спецотдел / NCIS.Производство: США / CBS Studios, Close to the Land ProductionsЖанр: боевик, криминал, детективРежиссер: Тим Эндрю, Ларри Тенг, ЛеВар БёртонАктеры: Ванесса Лаше, Алекс Таррант, Ноа Миллс, Джейсон Антун, Ясмин Аль-Бустами, Виктория Андерсон, Киан Талан, Шона Кофоуд, Махина Наполеон, Моусес ГудзПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E070D9C655C2B24CA17CA3E7AFFA4723691263FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862160   (1063005) от 
+
+Морская полиция: Гавайи / NCIS: Hawai'i (2024) WEB-DLRip (сезон 3, серии 1-10 из 10) TVShows
+
+>>Зарубежные сериалы
+>>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сосредоточен на Джейн Теннант — первой женщине, возглавившей морскую полицию Пёрл-Харбора. Джейн и её команда расследуют преступления, связанные с участием военнослужащих, национальной безопасностью и загадками залитого солнцем острова, а также пытаются вести обычную жизнь. Спин-офф сериала Морская полиция: Спецотдел / NCIS.Производство: США / CBS Studios, Close to the Land ProductionsЖанр: боевик, криминал, детективРежиссер: Тим Эндрю, Ларри Тенг, ЛеВар БёртонАктеры: Ванесса Лаше, Алекс Таррант, Ноа Миллс, Джейсон Антун, Ясмин Аль-Бустами, Виктория Андерсон, Киан Талан, Шона Кофоуд, Махина Наполеон, Моусес ГудзПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1942D0C759C0F93BF937BCC1E845AE831EFA1AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861635   (1062924) от 
+
+Морская полиция: Гавайи / NCIS: Hawai'i (2021-2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-22 из 22) TVShows
+
+>>Зарубежные сериалы
+>>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет сосредоточен на Джейн Теннант — первой женщине, возглавившей морскую полицию Пёрл-Харбора. Джейн и её команда расследуют преступления, связанные с участием военнослужащих, национальной безопасностью и загадками залитого солнцем острова, а также пытаются вести обычную жизнь. Спин-офф сериала Морская полиция: Спецотдел / NCIS.Производство: США / CBS Studios, Close to the Land ProductionsЖанр: боевик, криминал, детективРежиссер: Тим Эндрю, Ларри Тенг, ЛеВар БёртонАктеры: Ванесса Лаше, Алекс Таррант, Ноа Миллс, Джейсон Антун, Ясмин Аль-Бустами, Виктория Андерсон, Киан Талан, Шона Кофоуд, Махина Наполеон, Моусес ГудзПеревод: Многоголосый (TVShows)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470391F51CFD8D8C40846DBB4714EDB32D8F361D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850051   (1053978) от 26.01.2026
 
 Морская полиция: Тони и Зива / NCIS: Tony & Ziva (2025) WEB-DLRip (сезон 1, серии 1-10 из 10) TVShows
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053978.jpg" />
+  <img src="Z:/picture/005/save_picture_1053978.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053887.jpg" />
+  <img src="Z:/picture/005/save_picture_1053887.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053849.jpg" />
+  <img src="Z:/picture/005/save_picture_1053849.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053278.jpg" />
+  <img src="Z:/picture/005/save_picture_1053278.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053277.jpg" />
+  <img src="Z:/picture/005/save_picture_1053277.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053276.jpg" />
+  <img src="Z:/picture/005/save_picture_1053276.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052328.jpg" />
+  <img src="Z:/picture/005/save_picture_1052328.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052327.jpg" />
+  <img src="Z:/picture/005/save_picture_1052327.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052283.jpg" />
+  <img src="Z:/picture/005/save_picture_1052283.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052188.jpg" />
+  <img src="Z:/picture/005/save_picture_1052188.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052040.jpg" />
+  <img src="Z:/picture/005/save_picture_1052040.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051609.jpg" />
+  <img src="Z:/picture/005/save_picture_1051609.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049422.jpg" />
+  <img src="Z:/picture/008/save_picture_1049422.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048979.jpg" />
+  <img src="Z:/picture/008/save_picture_1048979.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046870.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733596.jpg" />
+  <img src="Z:/picture/005/save_picture_733596.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677870.jpg" />
+  <img src="Z:/picture/008/save_picture_677870.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_664414.jpg" />
+  <img src="Z:/picture/005/save_picture_664414.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_648900.jpg" />
+  <img src="Z:/picture/005/save_picture_648900.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596655.jpg" />
+  <img src="Z:/picture/008/save_picture_596655.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584057.jpg" />
+  <img src="Z:/picture/008/save_picture_584057.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555504.jpg" />
+  <img src="Z:/picture/008/save_picture_555504.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524685.jpg" />
+  <img src="Z:/picture/008/save_picture_524685.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDD87FE39FB48EE630A9A2FA4AFB809887C1B7A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243948   (483602) от 31.08.2018
-
-Морская полиция: Лос-Анджелес / NCIS: Los Angeles (2017) WEBRip (сезон 9, серии 1-24 из 24) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483602.jpg" />
-</div>
-
-
-###  Подробнее
-
-NCIS: Los Angeles — драма о сложной работе — наблюдении под прикрытием. Отдел особых проектов — подразделение NCIS, которое занимается опасными преступниками, угрожающими безопасности всей страны. Используя фальшивые личности и последние технологии, команда специалистов работает под прикрытием, рискуя собственными жизнями ради достижения цели.Производство: СШАЖанр: триллер, драма, криминал, детективАктеры: Крис О`Доннелл, Даниэла Руа, Линда Хант, Барретт Фоа, ЛЛ Кул Джей, Памела Рид, Эрик Кристиан Олсен, Андреа Бордо и др.Перевод: Многоголосый профессиональный - BaibaKoПродолжительность: ~00:42:00 серияРеклама: присутствуют видео и аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:915EAF956C1E5B17AE415734F8485175B74FF66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838288   (260089) от 22.11.2025
-
-Военно-юридическая служба / JAG (2000-2001) WEB-DL [H.264/1080p] (сезон 6, серии 1-24 из 24) Fox
-
->>Зарубежные сериалы
->>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший военный летчик, а ныне юрист, Хермон Рейбб вместе со своим верным напарником и другом - обаятельной Сарой Маккензи - расследуют самые громкие и запутанные преступления в рядах армии и военно-морского флота Соединенных Штатов Америки...Производство: США / Belisarius Productions, National Broadcasting Company (NBC)Жанр: боевик, триллер, драма, криминал, детективРежиссер: Брэдфорд Мэй, Тони Уормби, Алан Дж. ЛевиАктеры: Дэвид Джеймс Эллиотт, Патрик Лабьорто, Кэтрин Белл, Джон М. Джексон, Карри Тернер, Чак Керрингтон, Скотт Лоуренс, Зои МакЛеллан, Рэнди Васкес, Тревор ГоддардПеревод: Многоголосый профессиональный (Fox)Язык озвучки: Русский, английскийСубтитры: Английские (SDH)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E919595729C6D2B79D1242ABC29B929D8608FA1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836320   (252595) от 09.11.2025
-
-Военно-юридическая служба / JAG (1997-1998) WEB-DL [H.264/1080p] (сезон 3, серии 1-24 из 24) Fox, А. Дольский
-
->>Зарубежные сериалы
->>Морская полиция / Navy NCIS; Военно-юридическая служба / JAG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший военный летчик, а ныне юрист, Хермон Рейбб вместе со своим верным напарником и другом - обаятельной Сарой Маккензи - расследуют самые громкие и запутанные преступления в рядах армии и военно-морского флота Соединенных Штатов Америки...Производство: США / Belisarius Productions, National Broadcasting Company (NBC)Жанр: боевик, триллер, драма, криминал, детективРежиссер: Брэдфорд Мэй, Тони Уормби, Алан Дж. ЛевиАктеры: Дэвид Джеймс Эллиотт, Патрик Лабьорто, Кэтрин Белл, Джон М. Джексон, Карри Тернер, Чак Керрингтон, Скотт Лоуренс, Зои МакЛеллан, Рэнди Васкес, Тревор ГоддардПеревод: Двуголосый профессиональный (Fox), Авторский (Андрей Дольский)Язык озвучки: Русский, английскийСубтитры: Русские (catavisha (Злючая кошка) (Серии 10, 15, 16, 18-24), английские (SDH)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402D67D3D04AB7D287E4B278EF35D2C34853FA02
 ```
 
 https://mybot314.ru/tekegram_catalog/

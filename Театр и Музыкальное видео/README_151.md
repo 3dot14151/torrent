@@ -1,3 +1,177 @@
+###  Публикация: 628391   (46652) от 16.08.2024
+
+Cinderella - In Concert: (1991) Remastered Edition! (2011) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это было время когда рок концерты были как визуальный стимулятор, поскольку были на слуху, время взрывающейся пиротехники, не покоряющихся тяжести гитаристов и певцов пропитывающих потом кровь и душу всего освещённого пятна сцены. В те дни одна группа правила как короли зрелищности и технически точной музыкальности, группа, которая полностью владеет сценой  - это (   Читать дальше...   )01. The More Things Change
+02. Push Push
+03. Sick For The Cure
+04. Make Your Own Way(   Читать дальше...   )Жанр: RockФормат: DVD videoКачество: DVD9Продолжительность: 01:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6515EC24E1EEDCBED3BAE2B9BA1B20397CF55588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 285534   (46651) от 16.08.2024
+
+Grand Funk & Mark Farner (2005) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46651.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом диске собраны ранее не издававшиеся видео материалы, а также пиратские записи концертов и выступлений (бутлеги).Жанр: RockУчастники: Mark Farner
+Don Brewer
+Mel Schacher
+Craig Frost(   Читать дальше...   )Продолжительность: 0:55:17 + 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA45CC4AD4F07714EFF97A8144F5A690B7B457DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602816   (46641) от 16.08.2024
+
+Styx -Counght In The Akt- 1984 (2007) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Styx - Caught In The Act: Live 1983 (2007):
+01. Kilroy Was Here(Short Film)
+02. Mr.Roboto
+03. Rockin'The Paradise(   Читать дальше...   )Жанр: Hard Prog RockВ ролях: Dennis DeYoung
+Chuck Panozzo
+John Panozzo
+Tommy Shaw(   Читать дальше...   )Формат: DVD videoКачество: DVD9Продолжительность: 01:27:41 + 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2F0EC619FD6225A9386EAD54EFDC9E883AEED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 72966   (46635) от 16.08.2024
+
+LIVING LOUD - Live Sydney Fox Studios (2004) DVD
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46635.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2003 г. пять музыкантов, живые легенды рок-музыки, участники (бывшие и/или нынешние) Deep Purple, Uriah Heep, Ozzy, Rainbow и Black Sabbath, объединились, чтобы исполнить написанные для группы Оззи песни, из-за гонораров за которые у Lee Kerslake и Bob Daisley с семейством Осборн возникли непреодолимые разногласия. Кроме этого, вдобавок придумали 5 своих вещей. (   Читать дальше...   )Жанр: Hard RockПеревод: ОригинальныйПродолжительность: 01:18:45 (непосредственно концерт)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98986C43749DD427221F86925ECA0E4E3FCF8489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577174   (46578) от 17.08.2024
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46578.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 декабря 2007г Led Zeppelin вышли на сцену лондонской O2 Arena и исполнили концерт в память Ахмета Эртегуна, одного из основателей Atlantic Records. Двухчасовое выступление группы, в числе зрителей которого были многие известные музыканты, получило наивысшие оценки музыкальных обозревателей. Группа порадовала фанатов своим неподражаемым звучанием, ставшим визитной (   Читать дальше...   )01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4FAE9E91B9102F370B8F678903E733FA16D545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 694744   (46575) от 17.08.2024
+
+Ritchie Blackmore's Rainbow - Black Masquerade (1995) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот концерт 1995 года снят в Дюссельдорфе в серии популярных Германских ТВ шоу в Rockpalast. Он следует за выходом Блэкмора из Deep Purple и реформированием Rainbow новым составом. Группа в очень горячей форме представляя треки из заявленного альбома "Stranger in Us All" рядом с классическими песнями Rainbow и Deep Purple. Это никогда ранее не публиковавшееся (   Читать дальше...   )01. Introduction
+ 02. Spotlight kid
+ 03. Too Late For Tears
+ 04. Long Live Rock 'n' Roll / Black Night(   Читать дальше...   )Жанр: Hard RockЯзык: АнглийскийПродолжительность: 01:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFEE0281B653F23C3D1895667B389148D94CBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 63090   (46571) от 17.08.2024
 
 The Doors - 30 Years Commemorative Edition  (2001) DVD9
@@ -6,7 +180,7 @@ The Doors - 30 Years Commemorative Edition  (2001) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46571.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ Rainbow - Live In Munich (1977) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46551.jpg" />
 </div>
 
 
@@ -67,7 +241,7 @@ VA - Live At Knebworth (2002) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46548.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46544.jpg" />
 </div>
 
 
@@ -119,7 +293,7 @@ The Doors - Live In Europe - 1968 (DVD5)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46440.jpg" />
 </div>
 
 
@@ -148,7 +322,7 @@ The Doors - Live At The Isle Of Wight Festival '1970 (2018) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46342.jpg" />
 </div>
 
 
@@ -177,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46042.jpg" />
 </div>
 
 
@@ -203,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46040.jpg" />
 </div>
 
 
@@ -233,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46029.jpg" />
 </div>
 
 
@@ -259,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46028.jpg" />
 </div>
 
 
@@ -286,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46021.jpg" />
 </div>
 
 
@@ -313,7 +487,7 @@ Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45963.jpg" />
 </div>
 
 
@@ -339,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45959.jpg" />
 </div>
 
 
@@ -365,7 +539,7 @@ Guns N' Roses - Use Your Illusion Ultimate (1998) 2 x DVD9/5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45955.jpg" />
 </div>
 
 
@@ -391,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45944.jpg" />
 </div>
 
 
@@ -419,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45929.jpg" />
 </div>
 
 
@@ -446,7 +620,7 @@ Rainbow - Live In Japan 1984 (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45927.jpg" />
 </div>
 
 
@@ -475,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45853.jpg" />
 </div>
 
 
@@ -501,7 +675,7 @@ Deep Purple - History, Hits & Highlights '68-'76 (1968-1976) 2*DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45847.jpg" />
 </div>
 
 
@@ -530,7 +704,7 @@ Pink Floyd. The Wall (1982) DVD9
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45844.jpg" />
 </div>
 
 
@@ -541,183 +715,6 @@ Pink Floyd. The Wall (1982) DVD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7525DCBA92DCC45DC56446C72C7897FE981A0BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 62076   (45718) от 25.08.2024
-
-Party at The Palace (2002) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт в Букингемском Дворце посвященный 50 летию  восхождения НА трон королевы Елизаветы II.. 2.06.20021.God Save The Queen - Brian May, Roger Taylor And Ray Cooper
-2.Cup Of Life - Ricky Martin And Mis-teeq
-3.La Vida Loca - Ricky Martin
-4.Dont Stop Movin - S Club 7(   Читать дальше...   )Жанр: КонцертАктеры: Список  артистов.. НЕ полный ( на английском- во избежание неверных транскрипций)
-
-Paul McCartney,Bryan Adams, Keith Airley, Atomic Kitten, Shirley Bassey, Tony Bennett, Blue, Emma Bunton, Eric Clapton, The Corrs, Joe Cocker, Phil Collins, Ray Cooper, Ray Davies, Dame Edna Everage, Tony Iommi, J'anna Jacoby, Elton John, Tom Jones, Ladysmith Black Mambazo, Annie Lennox, (   Читать дальше...   )Перевод: ОригинальныйПродолжительность: 180 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAE5843BAF648FFA10C2F7B843D53407E9135EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 681704   (45712) от 25.08.2024
-
-Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несжатая версия двух ремастеров концертов группы Deep Purple в Копенгагене (1972) и в Нью-Йорке (1973).Copenhagen
-01. Highway Star
-02. Strange Kind Of Woman
-03. Child In Time(   Читать дальше...   )Жанр: Hard RockФормат: DVD VideoКачество: DVD9Продолжительность: 01:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207CECD633C1CE4C8FB27C1133F800BA6A92A22C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 53450   (45640) от 26.08.2024
-
-Uriah Heep / Acoustically Driven (Classic Rock Legends) [2001, Classic Rock, DVD5]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45640.jpg" />
-</div>
-
-
-###  Подробнее
-
-THE ACOUSTIC SET FROM URIAH HEEP + BONUS (PRESSRELEASE, INTERVIEWS, PHOTOGRAPHY,....)01. ECHOES IN THE DARK (Hensley)...................................4:52
-02. WHY DID YOU GO? (Byron/Box/Hensley/Kerslake)........3:55
-03. THE EASY ROAD (Hensley)............................................2:45
-04. COME BACK TO ME (Kerslake/Hensley).........................4:56(   Читать дальше...   )Жанр: Classic RockРежиссер: Edited and Directed by CHRIS GORMLIEВ ролях: MICK BOX - Guitar And Vocals
-LEE KERSLAKE - Drums And Vocals
-TREVOR BOLDER - Bass Guitar And Vocals
-PHIL LANZON - Keyboards And Vocals(   Читать дальше...   )Формат: DVD videoКачество: DVD5Продолжительность: 01:15:19 + 00:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB1AABB9D054FBA55E1A5CE033CCFB07F1FCAAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 61055   (45636) от 26.08.2024
-
-Kiss: "Rock the nation. Live!" (2005)  DVD9x2
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной праздник на улице фэнов KISS вышел в свет двойной DVD "Kiss - Rock The Nation Live!". Издание включает в себя лучшие моменты концертов команды в Вашингтоне и Вирджинии, заснятые во время тура Rock The Nation 2004 г.  В обширном трек-листе DVD-коллекции поклонников легендарного коллектива ждут настоящие находки, ибо многие из представленных композиций (   Читать дальше...   )Жанр: Hard Rock, GlamФормат: DVD videoКачество: DVD9Продолжительность: 01:09:40 / 01:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6582C18BB9E36431DBCDE8AD7E8B3A7C3F157AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722745   (45615) от 26.08.2024
-
-Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт коллектива Cheap Trick состоялся в 1999 году в Рокфорде, штат Иллинойс, и потому диск назван Silver, что отмечает 25-летие группы.
-Американский релиз этого концерта в NTSC был издан в 2001 году, а в этой раздаче DVD в формате PAL, выпущенный в 2005 году в Германии.1. Ain't That a Shame
- 2. I Want You to Want Me
- 3. Oh Candy
- 4. That 70's Song(   Читать дальше...   )Производство: ГерманияЖанр: Hard Rock, Power PopПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB46E14131E27DD7949A748C69C8FAEEDD34C40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214374   (45526) от 27.08.2024
-
-Joe Cocker  - The Best Of Joe Cocker Live (1992-2002 ) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию предлогается  две концертные записи одного из классиков блюз-рока сделанные с разницей в десять лет от легендарного британского лейбла "Parlophone". Когда у издательства возникла необходимость выпустить положенный статусу суперзвезды видеосборник лучших хитов оказалось, что клипов-то записано меньше, чем пальцев на одной руке. Выход, конечно, (   Читать дальше...   )Концертные выступления:
-Live In Dortmund In 1992
-01. Cry Me A River
-02. Feelin' Albright(   Читать дальше...   )Жанр: Mузыкальное видео, блюз-рок, рок, попПеревод: ОригинальныйФормат: DVD VideoКачество: DVD9Продолжительность: 02:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDA164D4C0E33D93D46968965D27C7B62C36A75
 ```
 
 https://mybot314.ru/tekegram_catalog/

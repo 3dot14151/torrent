@@ -6,7 +6,7 @@ PostworkShop Professional 2.0.3606beta [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837446.jpg" />
+  <img src="Z:/picture/008/save_picture_837446.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ DAPlayer 1.0.1.9 [Multi(русский)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837295.jpg" />
+  <img src="Z:/picture/008/save_picture_837295.jpg" />
 </div>
 
 
@@ -69,7 +69,7 @@ F-Secure Freedome VPN 2.34.6377 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837239.jpg" />
+  <img src="Z:/picture/008/save_picture_837239.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Corel PaintShop Pro X7 17.2.0.16 SP2 Retail + Ultimate Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836918.jpg" />
+  <img src="Z:/picture/008/save_picture_836918.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ SlimBrowser 7.00 Build 141 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836894.jpg" />
+  <img src="Z:/picture/008/save_picture_836894.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Avant Browser Ultimate 2016 build 3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836889.jpg" />
+  <img src="Z:/picture/008/save_picture_836889.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Icecream Slideshow Maker 1.48 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836780.jpg" />
+  <img src="Z:/picture/008/save_picture_836780.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Icecream Image Resizer 1.41 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836779.jpg" />
+  <img src="Z:/picture/008/save_picture_836779.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ USDownloader 1.3.5.9 Portable (12.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836689.jpg" />
+  <img src="Z:/picture/008/save_picture_836689.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ SQL Dynamite 1.8.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836673.jpg" />
+  <img src="Z:/picture/008/save_picture_836673.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Maxthon Cloud Browser 4.9.2.1000 RC + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836671.jpg" />
+  <img src="Z:/picture/008/save_picture_836671.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ K-Lite Codec Pack Update 12.0.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836668.jpg" />
+  <img src="Z:/picture/008/save_picture_836668.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Avast Free Antivirus 2016 11.2.2260 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836654.jpg" />
+  <img src="Z:/picture/008/save_picture_836654.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ ScrollNavigator 5.5.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836597.jpg" />
+  <img src="Z:/picture/008/save_picture_836597.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.2 Build 4752 + Portable + Stan
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_836576.jpg" />
+  <img src="Z:/picture/009/save_picture_836576.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Comodo IceDragon 45.0.0.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836557.jpg" />
+  <img src="Z:/picture/008/save_picture_836557.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ WinToUSB Enterprise 2.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836555.jpg" />
+  <img src="Z:/picture/008/save_picture_836555.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ LibreOffice 5.1.2 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836537.jpg" />
+  <img src="Z:/picture/008/save_picture_836537.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ IsMyHdOK 1.24 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836535.jpg" />
+  <img src="Z:/picture/008/save_picture_836535.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Alternate File Shredder 2.080 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836471.jpg" />
+  <img src="Z:/picture/008/save_picture_836471.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Artweaver Free 6.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836463.jpg" />
+  <img src="Z:/picture/008/save_picture_836463.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ ShareX 11.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836453.jpg" />
+  <img src="Z:/picture/008/save_picture_836453.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Album Player 2.106 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836426.jpg" />
+  <img src="Z:/picture/008/save_picture_836426.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.4 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836412.jpg" />
+  <img src="Z:/picture/008/save_picture_836412.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Microsoft Visual Studio 2019 Community 16.11.4 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836403.jpg" />
+  <img src="Z:/picture/008/save_picture_836403.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Microsoft Visual Studio 2019 Professional 16.11.4 (Offline Cache, Unofficial) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836402.jpg" />
+  <img src="Z:/picture/008/save_picture_836402.jpg" />
 </div>
 
 

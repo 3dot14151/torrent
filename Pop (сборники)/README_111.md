@@ -1,3 +1,177 @@
+###  Публикация: 243454   (214409) от 04.12.2021
+
+VA - Disco - The BIGGEST 80s Disco Dance Music (vol. 1-32) (1990) [MP3|192 kbps] <Disco, Pop, Dance, Electronics>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214409.jpg" />
+</div>
+
+
+###  Подробнее
+
+---------------------------------------------------------------------
+     VA - The BIGGEST 80s Disco Dance Music vol.20
+---------------------------------------------------------------------
+1. 01 - Okay - Okay! (5:42)(   Читать дальше...   )Жанр: Disco, Pop, Dance, ElectronicsПродолжительность: 32:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F756A2BBCE95DE5D54231A8363253FCB4C05BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084913   (214318) от 21.12.2016
+
+VA - Pioneer Studio 33,5 - Disco Evolution (2016) [MP3|160 Kbps] <Italo Disco, New Age, Dance, New Italo Disco, Electronic, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Legacy - Lycan
+02. Amaya - Trapped
+03. Soulya Id - Vampirella's Song
+04. Vincent International - You're My Love (You're My Life)(   Читать дальше...   )Жанр: Italo Disco, New Age, Dance, New Italo Disco, Electronic, PopПродолжительность: 02:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21004F3D94ED9F0368F12A6F63C2BD1B68744A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514922   (213877) от 05.12.2021
+
+VA - German Top 100 Single Charts 03.12.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mariah Carey - All I Want for Christmas Is You
+02. Wham! - Last Christmas
+03. GAYLE - abcdefu
+04. Acraze - Do It To It (feat. Cherish)(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ADAF68E0C42278014CC7D088D9C79428186C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562240   (212755) от 08.07.2022
+
+VA - Лето на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purple Disco Machine feat. Sophie And The Giants - In The Dark (Denis Bravo Radio Edit) (3:10)
+02. Harry Styles - As It Was (2:47)
+03. Imagine Dragons - Bones (2:45)
+04. Regard feat. Years And Years - Hallucination (2:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831EA3245F61A9E4578A9B665B6B19DFDCCF70F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638836   (211892) от 10.06.2023
+
+VA - German Top 100 Single Charts 09.06.2023 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211892.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ski Aggu, Joost & Otto Waalkes - Friesenjung (2:26)
+002. Udo Lindenberg & Apache 207 - Komet (2:47)
+003. Bonez MC - Alles nur kein Star (2:30)
+004. Yung Yury & Damn Yury - TABU. (2:15)(   Читать дальше...   )Жанр: PopПродолжительность: 04:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CD9394BC4FFD66D51824D65A16AE561359D3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566394   (211668) от 29.07.2022
+
+Yaki-Da - Compilation (2022) [MP3|320 Kbps] <Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_211668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Better World
+02. Let Me
+03. A Small Step For Love
+04. Whatever It Takes(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4992130CC3B373ABABFF817F8BB7FD3E51673BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645429   (209308) от 09.07.2023
 
 VA - German Top 100 Single Charts 07.07.2023 [MP3|320 Kbps] <Pop>
@@ -6,7 +180,7 @@ VA - German Top 100 Single Charts 07.07.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209308.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Workout Music 2023 [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208925.jpg" />
+  <img src="Z:/picture/005/save_picture_208925.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - Вечеринка 'Ласковый Май' (2022) [MP3|320 Kbps] <Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208873.jpg" />
+  <img src="Z:/picture/005/save_picture_208873.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Pop Hits (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208825.jpg" />
+  <img src="Z:/picture/005/save_picture_208825.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Workout Motivation (Retro Edition)[Mixed by Sergey Sychev ] (2018-2022) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208796.jpg" />
+  <img src="Z:/picture/005/save_picture_208796.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ Sinead O'Connor - How Nice A Woman Can Be (2023) 2 CD Compilation  [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207811.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - German Top 100 Single Charts 18.08.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205857.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ Romantic Dreams - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205740.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - Pop 2 Remix NNM (2022) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205126.jpg" />
+  <img src="Z:/picture/004/save_picture_205126.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - Зима на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204404.jpg" />
+  <img src="Z:/picture/004/save_picture_204404.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ VA - Новогодние песни Vol.1 (2022) MP3 [320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203930.jpg" />
+  <img src="Z:/picture/004/save_picture_203930.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ VA - Fantastic 90s (2023) 3CD, Compilation, Box Set [MP3|320 Kbps] <Dance, Disco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202187.jpg" />
+  <img src="Z:/picture/004/save_picture_202187.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ Novi - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic, Pop Rock, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202006.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ Sofia Bellini - Favorites Collection Part 7 (2025) [MP3|320 Kbps] <Italodisco, I
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201786.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ VA - Back To 90S: Hot Remixes (2023) [MP3|320 Kbps] <Nu-Disco, Indie Dance, Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201107.jpg" />
+  <img src="Z:/picture/005/save_picture_201107.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ VA - Disco-Rock Dancing 70-80's (2023) [MP3|320 Kbps] <Electronic, Pop Rock, Dis
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200519.jpg" />
+  <img src="Z:/picture/005/save_picture_200519.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ VA - 90er - 100 Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200245.jpg" />
+  <img src="Z:/picture/005/save_picture_200245.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ VA - Hits of Active Rest (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199880.jpg" />
+  <img src="Z:/picture/005/save_picture_199880.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ VA - Retro Vintage Best Vibes (2023) [MP3|320 Kbps] <Synthpop, Disco, New Wave, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199675.jpg" />
+  <img src="Z:/picture/005/save_picture_199675.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ VA - Весна на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199537.jpg" />
+  <img src="Z:/picture/005/save_picture_199537.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ VA - Весна на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1755F71BDB43AE093A487E18A37017F60AC8BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631764   (198781) от 08.05.2023
-
-Various Artists - Ballads Classic Hits (2023) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphaville - Forever Young
-02. Simply Red - If You Don?t Know Me by Now
-03. Roberta Flack - Killing Me Softly with His Song
-04. Chicago - You're the Inspiration(   Читать дальше...   )Жанр: Pop, Rock, R&B, DanceПродолжительность: 02:02:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410F365820A21785CB21DFB3D671B0B981C9B504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631728   (198700) от 08.05.2023
-
-VA - Hits from 20th century films (2023) 3CD [MP3|320 Kbps] <Pop, Soundtrack, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Sembello - Maniac [04:05]
-02. David Bowie - Absolute Beginners (2002 Remaster) [05:38]
-03. Prince - Batdance [06:14]
-04. The Beach Boys - Kokomo (1995 Remaster) [03:36](   Читать дальше...   )Жанр: Pop, Soundtrack, RockПродолжительность: 13:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94E66A03A2D7E546D2D6F00820D723EE70ED3B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632938   (198185) от 19.05.2023
-
-VA - 90s Eurodance: XXL Super Sounds 90s (2020) Unofficial [MP3|320 Kbps] <Eurodance, Techno, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mach 7 - Real Love (Extended) (5:42)
-02. Sound Of R.E.L.S. - !Love Is The Powa! (The Powa Mix) (5:22)
-03. O-Zone - Engel 07 (Extended Version) (5:59)
-04. God's Groove - Back To Nature (Element Mix) (6:10)(   Читать дальше...   )Жанр: Eurodance, Techno, HouseПродолжительность: 76:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9D2389DDB0A3839944CB2596D04C0200EB0D60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640460   (196897) от 19.06.2023
-
-VA - Музыка для машины Vol.27 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Саша Санта - Время-Жить (03:04)
-02. Jake Shears Feat. & Kylie Minogue - Voices (04:27)
-03. Kalifarniya - Puerto-Rico (03:53)
-04. Андрей Картавцев - Налей Огня (03:49)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCF8ADC8333F56A8F98AEBD60637CFDD49E268C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644086   (196113) от 04.07.2023
-
-VA - Pop 3 Remix NNM (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia - Moth To A Flame (feat. The Weeknd) - Adriatique Remix (6:30)
-02. Gorillaz - New Gold (feat. Tame Impala and Bootie Brown) - Dom Dolla Remix (6:03)
-03. Bee Gees - More Than A Woman - SG's Paradise Edit (5:57)
-04. Lana Del Rey - Summertime - Imanbek Remix (5:06)(   Читать дальше...   )Жанр: PopПродолжительность: 03:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEBE046AC365B1329D7A38382E5D614B14EC969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645087   (195889) от 11.07.2023
-
-VA - Музыка для машины Vol.30 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aisha - Время Лечит (02:42)
-02. La Zarra Feat. & Katerina Stikoudi - Evidemment (Duet Version) (03:00)
-03. Besomorph Feat. & Mougleta - Heartbreak Fever (03:13)
-04. Rasa Feat. & Nlo - Нагуляться (02:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60C3DC4A38B70FAAB8C4BB1246D884CF9EE915B
 ```
 
 https://mybot314.ru/tekegram_catalog/

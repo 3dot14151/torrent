@@ -6,7 +6,7 @@ Plastic Angel - Hardwired (2001) [FLAC|Lossless|tracks] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803465.jpg" />
+  <img src="Z:/picture/008/save_picture_803465.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lyn 1.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803456.jpg" />
+  <img src="Z:/picture/008/save_picture_803456.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jamiroquai - Automaton (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop, Fu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803451.jpg" />
+  <img src="Z:/picture/008/save_picture_803451.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Nils Frahm - Spaces (2013) [FLAC|Lossless]<Modern Classical, Ambient, Contempora
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803436.jpg" />
+  <img src="Z:/picture/008/save_picture_803436.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ PointerStick 2.61 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803432.jpg" />
+  <img src="Z:/picture/008/save_picture_803432.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803424.jpg" />
+  <img src="Z:/picture/008/save_picture_803424.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Balabolka 2.11.0.601 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803422.jpg" />
+  <img src="Z:/picture/008/save_picture_803422.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Blackmagic Design Fusion 8.0 Build 18 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803419.jpg" />
+  <img src="Z:/picture/008/save_picture_803419.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803402.jpg" />
+  <img src="Z:/picture/008/save_picture_803402.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803384.jpg" />
+  <img src="Z:/picture/008/save_picture_803384.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ MindNode 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803363.jpg" />
+  <img src="Z:/picture/008/save_picture_803363.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ KMS Tools Portable 24.04.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803315.jpg" />
+  <img src="Z:/picture/008/save_picture_803315.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803284.jpg" />
+  <img src="Z:/picture/008/save_picture_803284.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ MediaInfo 0.7.94 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803282.jpg" />
+  <img src="Z:/picture/008/save_picture_803282.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ KLS Backup 2015 Professional 8.4.4.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803279.jpg" />
+  <img src="Z:/picture/008/save_picture_803279.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803269.jpg" />
+  <img src="Z:/picture/008/save_picture_803269.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803266.jpg" />
+  <img src="Z:/picture/008/save_picture_803266.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Uninstall Tool 3.4.5 Build 5432 Final RePack (& portable) by KpoJIuK (23.04.2016
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803236.jpg" />
+  <img src="Z:/picture/008/save_picture_803236.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Uninstall Tool 3.4.5 Build 5432 Final RePack (& Portable) by D!akov (24.04.2016)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803233.jpg" />
+  <img src="Z:/picture/008/save_picture_803233.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803231.jpg" />
+  <img src="Z:/picture/008/save_picture_803231.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803230.jpg" />
+  <img src="Z:/picture/008/save_picture_803230.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803216.jpg" />
+  <img src="Z:/picture/008/save_picture_803216.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803196.jpg" />
+  <img src="Z:/picture/008/save_picture_803196.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Bulk Crap Uninstaller 3.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803193.jpg" />
+  <img src="Z:/picture/008/save_picture_803193.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Autopano Giga 4.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803192.jpg" />
+  <img src="Z:/picture/008/save_picture_803192.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803189.jpg" />
+  <img src="Z:/picture/008/save_picture_803189.jpg" />
 </div>
 
 

@@ -1,3 +1,177 @@
+###  Публикация: 1079305   (292212) от 05.12.2016
+
+VA - Хит-Парад. Взрывной 50/50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292212.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Мулат - Моя Самая Дюбимая 3:45
+002.Nik Turmalin - Tell Me No 3:28
+003.Алсу - Тепло От Любви 3:44
+004.Beyonce - Formation 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EDCAE1CD0DB57F63A7B55FCF85EE5D673F34D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079321   (292210) от 05.12.2016
+
+VA - Хит FM. Попсовая Соточка. Выпуск №7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292210.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Lykov Feat. Murrell - Heartbeat 4:18
+002.Andreas - Нас Нет 3:28
+003.Penthox - Give It Away 3:25
+004.Stereo Isterika - Кит 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8771E065E18CF7B140455A5334120C6A9579D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079332   (292154) от 05.12.2016
+
+VA - Горячий хитовый драйв - 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Вика Воронина Feat. Storm Djs - Угги 3:41
+002.Kaiser Chiefs - Falling Awake 3:54
+003.Градусы - Вали Гуляй 3:48
+004.Greyson Chance - Hit & Run 3:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C90FE9CF574616FB986ECD8ADB371BC98C62996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079318   (292152) от 05.12.2016
+
+VA - Сливки хит-парадов №3 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292152.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. James Arthur - Sober
+002. Raelynn - Diamonds
+003. Helena Paparizou - Zoi Mou
+004. Fly Project Feat. Andra - Butterfly(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D899058DFAF4E8504D280A0160BA1E856158E61C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079311   (292151) от 05.12.2016
+
+VA - Сотка модных хитов. Часть 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292151.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Don Diablo Feat. Dave Thomas Jr. - Silence 3:30
+002.Olisha - Ой Мама 2:57
+003.Гарри Польский - Ну Погоди 3:16
+004.Hoodie Allen Feat. Max - Won't Mind 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABEB347760FDAB8F726D913C635D6EEDBCAEB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079640   (292150) от 05.12.2016
+
+VA - Хитовый драйв. Музыкальный заряд. Часть 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292150.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Onerepublic Feat. Peter Gabriel - A.I. 5:10
+002.Serpo & Dj Boor Feat. Женя Юдина - Небо Это Ты 3:06
+003.My Dear Addiction - Kill The Silence 3:51
+004.Sputnik Project & Andry Makarov - Медленно Таешь 4:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B181F3DB3B30CC96C804AA2376EC706C8277A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079338   (292141) от 05.12.2016
 
 VA - Аппетитные новинки зимних супер хитов (2016) [MP3|256 Kbps] <Pop>
@@ -6,7 +180,7 @@ VA - Аппетитные новинки зимних супер хитов (201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292141.jpg" />
+  <img src="Z:/picture/008/save_picture_292141.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Создай движение. Заводная попса. Зарубеж�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292137.jpg" />
+  <img src="Z:/picture/008/save_picture_292137.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - Осенняя дискотека по-русски. Сборник 6 (2016
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292127.jpg" />
+  <img src="Z:/picture/008/save_picture_292127.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Зимний снегопад хитов (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292064.jpg" />
+  <img src="Z:/picture/008/save_picture_292064.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 025 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291596.jpg" />
+  <img src="Z:/picture/008/save_picture_291596.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 026 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291589.jpg" />
+  <img src="Z:/picture/008/save_picture_291589.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - German Top 100 Single Charts 16.11.2018 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291546.jpg" />
+  <img src="Z:/picture/008/save_picture_291546.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 028 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291212.jpg" />
+  <img src="Z:/picture/008/save_picture_291212.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - Shazam Хит-парад Russia Top 100 Октябрь (2019) [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290591.jpg" />
+  <img src="Z:/picture/008/save_picture_290591.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - German Top 100 Single Charts 24.11.2017 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289822.jpg" />
+  <img src="Z:/picture/008/save_picture_289822.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ VA - Новогодний хит-парад. Новинки (2016) [MP3|256-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289652.jpg" />
+  <img src="Z:/picture/008/save_picture_289652.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ VA - German Top 100 Single Charts 01.11.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287878.jpg" />
+  <img src="Z:/picture/008/save_picture_287878.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ VA - Попсовая соточка от Хит fm 8 (2016) [MP3|256 Kbps] <Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286646.jpg" />
+  <img src="Z:/picture/008/save_picture_286646.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ VA - Музыкальные новинки mp3. Часть 5 (2016) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286644.jpg" />
+  <img src="Z:/picture/008/save_picture_286644.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ VA - Взрывной хит-парад. Версия 2 (2016) [MP3|256 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286634.jpg" />
+  <img src="Z:/picture/008/save_picture_286634.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ VA - Осенняя дискотека по-русски. Выпуск 7 (2016) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286632.jpg" />
+  <img src="Z:/picture/008/save_picture_286632.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ VA - Русские Свежаки Радиостанций (2016) [MP3|256 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286566.jpg" />
+  <img src="Z:/picture/008/save_picture_286566.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ VA - Музыкальные Новинки 50x50 (2016) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286565.jpg" />
+  <img src="Z:/picture/008/save_picture_286565.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ VA - Сотка модных хитов. Выпуск 8 (2016) [MP3|256 Kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286564.jpg" />
+  <img src="Z:/picture/008/save_picture_286564.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ VA - Зайцев.Нет - Лучшие Новинки Декабря (2016) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286079.jpg" />
+  <img src="Z:/picture/008/save_picture_286079.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ VA - Зайцев.Нет - Лучшие Новинки Декабря (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C096F97400B99D447929C7D0DB81280514C4DC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 733724   (285392) от 13.12.2013
-
-Lime - 25 Best Songs (2012) [MP3|~245 кб/с]<Disco, Hi-Nrg>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take It Up 1984
-02. Unexpected Lovers 1985
-03. Cutie Pie 1986
-04. No Other Love (I Need It Bad) 2002(   Читать дальше...   )Жанр: Disco, Hi-NrgПродолжительность: 02:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4369D4D2B2B48EA00131814C90058831748DBC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964011   (285121) от 09.12.2015
-
-VA - Дискотека зимних дорог на радио Maximum (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285121.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. MriD - Сказка
-002. Archi-M Feat. Gidayyat - Наши Мечты
-003. Cheryl Cole - Fight On
-004. Егор Крид - Будильник(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6DCA898029E2A84F0E33B507CE4A1E7E118403C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081030   (284885) от 09.12.2016
-
-VA - Отрывайся с лучшими хитами - 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Alicia Keys - Pawn It All 3:10
-002.Sasha Holiday - Цвет Желаний 3:50
-003.Dj Roshka Feat. Farid Aqa - Onun O 3:22
-004.Nexet - Мечты Не Сбываются 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1299762F340E2911788D3CF1D0BE46AC3A23F28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964305   (283782) от 10.12.2015
-
-VA - Пацаны - Ваще Ребята! vol.22 (2015) [MP3|128-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283782.jpg" />
-</div>
-
-
-###  Подробнее
-
-16. DJ Jedy feat. Ilaila - За Плечи (Future House Remix).
-17. Anton Mayer feat. Denis Rublev - Бьет По Глазам.
-18. Серебро - Отпусти Меня.
-19. Марсу Нужны Любовники - Её глаза (Dj Denis Rublev & Dj Anton remix).(   Читать дальше...   )Жанр: PopПродолжительность: 02:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A608C5BFA41C5A690531BC20DBFA9461CA42576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964331   (283268) от 10.12.2015
-
-VA - Супер 100-ка Музыкальной дискотеки 50х50 (2015) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283268.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Паола - Новогодняя Сказка
-002. Fences - Dogs At The Table
-003. Бьянка - Любимый Дождь
-004. Hoodie Allen Feat. Alex Wiley - Sirens(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D9F2C3734BA30EF7865D4DCD695B4AE2CCFEC69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081286   (282694) от 10.12.2016
-
-VA - Billboard 2016 Year End Hot 100 Songs (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282694.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Justin Bieber - Love Yourself 3:54
-002. Justin Bieber - Sorry 3:21
-003. Drake - One Dance 2:54
-004. Rihanna - Work 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A1DC1F0FDA0DFDEF883E4228E51C266F781AFA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1850353   (1054174) от 27.01.2026
+
+Megadeth - Megadeth (2026) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054174.jpg" />
+</div>
+
+
+###  Подробнее
+
+У меня слабость к Megadeth. Среди так называемых классических групп это одна из немногих, которую я иногда могу слушать, не уставая; Я точно не могу сказать то же самое о многих других группах, с которыми вырос. Я ценю все записи группы в той или иной степени, и даже период Megadeth в 2000-х был удивительно крепким по сравнению с соперниками. Несмотря на несколько (   Читать дальше...   )01. Tipping Point 4:28
+02. I Don't Care 3:09
+03. Hey, God?!3:28
+04. Let There Be Shred 3:58(   Читать дальше...   )Жанр: ThrashПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85201FF16593D53B26C42D994401164DC0FFCA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850028   (1054051) от 25.01.2026
+
+Fireborn - Dreamcatcher (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1054051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing with the Villain
+02. Set the World on Fire
+03. Point of No Return
+04. Likes for a Life(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC5154A276695B63771DDC32AB8D9432317EFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850037   (1053989) от 26.01.2026
+
+Poppy - Empty Hands (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1053989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Public Domain [00:04:00]
+02. Bruised Sky [00:03:40]
+03. Guardian [00:03:14]
+04. Constantly Nowhere [00:00:28](   Читать дальше...   )Жанр: Alternative-Metal, Metalcore, ElectronicПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E200C54957DD7EF4709B0B2D3BA40DDD07D95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849009   (1053153) от 20.01.2026
 
 Werken - Hielo Eterno (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Werken - Hielo Eterno (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053153.jpg" />
+  <img src="Z:/picture/005/save_picture_1053153.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Knocked Loose - Collection (2014 - 2024) 5CD [FLAC|Lossless|tracks + .cue] <Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053089.jpg" />
+  <img src="Z:/picture/005/save_picture_1053089.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Warkings - Armageddon (2025) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053005.jpg" />
+  <img src="Z:/picture/005/save_picture_1053005.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Sylosis - Collection (2008 - 2023) 6CD [FLAC|Lossless|tracks + .cue] <Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052992.jpg" />
+  <img src="Z:/picture/005/save_picture_1052992.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Painstorm - Fun And Violence (2025) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052938.jpg" />
+  <img src="Z:/picture/005/save_picture_1052938.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Kreator - Krushers Of The World (2026) Limited Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052860.jpg" />
+  <img src="Z:/picture/005/save_picture_1052860.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Murdered - The Brutal Gore Grotesque (2025) [FLAC|Lossless|image + .cue] <Brutal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052840.jpg" />
+  <img src="Z:/picture/005/save_picture_1052840.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Crematory - Illusions (1995) Remastered, 2000, Nuclear Blast [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052710.jpg" />
+  <img src="Z:/picture/005/save_picture_1052710.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Cryptosis - Celestial Death (2025) [FLAC|Lossless|image + .cue] <Thrash, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052331.jpg" />
+  <img src="Z:/picture/005/save_picture_1052331.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Elbereth's Grace - Where Silence Speaks (2026) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052310.jpg" />
+  <img src="Z:/picture/005/save_picture_1052310.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ N.Y.C. - Built To Destroy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052279.jpg" />
+  <img src="Z:/picture/005/save_picture_1052279.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Blackbraid - Blackbraid I (2022) [FLAC|Lossless|image + .cue] <Black Metal, Atmo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052165.jpg" />
+  <img src="Z:/picture/005/save_picture_1052165.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Blackbraid - Blackbraid II (2023) [FLAC|Lossless|image + .cue] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052127.jpg" />
+  <img src="Z:/picture/005/save_picture_1052127.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Blackbraid - Blackbraid III (2025) [FLAC|Lossless|image + .cue] <Black Metal, At
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052126.jpg" />
+  <img src="Z:/picture/005/save_picture_1052126.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Messa - The Spin (2025) [FLAC|Lossless|image + .cue] <Doom Metal, Dark Ambient, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052098.jpg" />
+  <img src="Z:/picture/005/save_picture_1052098.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Blut Aus Nord - Ethereal Horizons (2025) [FLAC|Lossless|image + .cue] <Atmospher
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052096.jpg" />
+  <img src="Z:/picture/005/save_picture_1052096.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052092.jpg" />
+  <img src="Z:/picture/005/save_picture_1052092.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Revenge - Trust In Metal (2020) Limited Edition, Reissue, 2021, Thrashingfist Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052029.jpg" />
+  <img src="Z:/picture/005/save_picture_1052029.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Royal Hunt - Behind The Curtain (2025) Japanese Edition [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051990.jpg" />
+  <img src="Z:/picture/005/save_picture_1051990.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Sarkom - Exceed In2 Chaos (2025) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051884.jpg" />
+  <img src="Z:/picture/005/save_picture_1051884.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Lahoava - Ja Ränsistyi Ajan Silta (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051803.jpg" />
+  <img src="Z:/picture/005/save_picture_1051803.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Unleashed - Fire Upon Your Lands (2025) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051530.jpg" />
+  <img src="Z:/picture/005/save_picture_1051530.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Doro - All We Are - The Fight (2007) 2008, CD-Maximum [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051451.jpg" />
+  <img src="Z:/picture/005/save_picture_1051451.jpg" />
 </div>
 
 
@@ -658,95 +745,6 @@ Doro - All We Are - The Fight (2007) 2008, CD-Maximum [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BB3C9E021F62646B62D8A970FF1CCF641341574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846677   (1051378) от 08.01.2026
-
-Permyon - Permyon (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Sun
-02. Minstrel of Wasteland
-03. The Siege
-04. Go to Mars(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:113458A8682258A74DE51F675CBED77994F5BF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846168   (1051145) от 05.01.2026
-
-One Of Nine - Dawn Of The Iron Shadow (2025) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Act 1
-1. Parley At The Gates 1:54
-2. Age Of Chains 6:41
-3. Dreadful Leap 6:22(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8F1FEF9FD36E9144531FA072C3264607E99424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845925   (1051105) от 04.01.2026
-
-Tailgunner - Guns For Hire (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как часто вы помните по-настоящему поражённый альбомом NWOTHM (новая волна традиционного хэви-метала) в наши дни? Для меня — не очень часто. Но это как раз один из тех редких случаев, когда альбом такого рода просто так и делает.
-
-Впечатляющий дебютный альбом, который у нас перед нами, — Guns For Hire, выпущенный недавно образованным британским хэви-металлистом Tailgunner (   Читать дальше...   )01. Shadows Of War 4:12
-02. Guns For Hire 3:25
-03. White Death 4:02
-04. Revolution Scream 3:43(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BBEA0CA6DBA55D6E164C21AF01131D677ACE3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

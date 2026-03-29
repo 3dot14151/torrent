@@ -1,3 +1,90 @@
+###  Публикация: 1273570   (799902) от 02.01.2019
+
+Testor - Animal Killstinct (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:39
+02. Heroes to the Gallows 05:57
+03. Animal Killstinct 05:16
+04. Rise of the Cobra 04:42(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1138B45800A1D9E0834AEC9C5904A286E9ACCB37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273562   (799901) от 02.01.2019
+
+Elessar - Dark Desires (2013) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice Queen
+02. A Kiss And A Rose
+03. Fate's Introduction
+04. The Lonely Warrior's Fate(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:57:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85733DD73EE73C10EB8FEF6C8B78AAA62281A8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273566   (799900) от 02.01.2019
+
+Imagika - And So It Burns (2001) [APE|Lossless|image + .cue] <Power Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Chaos to Murder
+03. Fallen One
+04. My Dominion(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B7C63A09ECA2D3DB1D1BE682A0E4CCACF4ED1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273561   (799897) от 02.01.2019
 
 Circles - The Last One (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -6,7 +93,7 @@ Circles - The Last One (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799897.jpg" />
+  <img src="Z:/picture/008/save_picture_799897.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Outloud - Virtual Hero Society (2018) Japan [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799849.jpg" />
+  <img src="Z:/picture/008/save_picture_799849.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Enemy Inside - Phoenix (2018) Japan [FLAC|Lossless|image + .cue] <Dark Modern Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799844.jpg" />
+  <img src="Z:/picture/008/save_picture_799844.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Sutratma - Sutratma (2012) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799688.jpg" />
+  <img src="Z:/picture/008/save_picture_799688.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Second To Sun - Gal Agnostiske Drommer (2011) [FLAC|Lossless|WEB-DL|tracks] <Pos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799683.jpg" />
+  <img src="Z:/picture/008/save_picture_799683.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Second To Sun - Blackbound (2016) [FLAC|Lossless|WEB-DL|tracks] <Post Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799678.jpg" />
+  <img src="Z:/picture/008/save_picture_799678.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Second To Sun - The First Chapter (2015) [FLAC|Lossless|WEB-DL|tracks] <Post Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799639.jpg" />
+  <img src="Z:/picture/008/save_picture_799639.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Inner Core - Dark Chronicles (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799496.jpg" />
+  <img src="Z:/picture/008/save_picture_799496.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Sectioned - Purulent Reality (2010) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799262.jpg" />
+  <img src="Z:/picture/008/save_picture_799262.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Tempel - The Moon Lit Our Path (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799255.jpg" />
+  <img src="Z:/picture/008/save_picture_799255.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Tempel - On The Steps Of The Temple (2014) [FLAC|Lossless|WEB-DL|tracks] <Post-M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799250.jpg" />
+  <img src="Z:/picture/008/save_picture_799250.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Aldaria - Land Of Light (2017) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799244.jpg" />
+  <img src="Z:/picture/008/save_picture_799244.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Aeon - 5 Studio Albums (2001-2012) 5xCD [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799166.jpg" />
+  <img src="Z:/picture/008/save_picture_799166.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Eyes Of Eden - Faith (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799122.jpg" />
+  <img src="Z:/picture/008/save_picture_799122.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Split Heaven - Electric Spell (2021) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799069.jpg" />
+  <img src="Z:/picture/008/save_picture_799069.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Annihilator - Double Live Annihilation (2003) Limited Edition [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799031.jpg" />
+  <img src="Z:/picture/008/save_picture_799031.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Disembowelment - Transcendence Into the Peripheral (1993) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798869.jpg" />
+  <img src="Z:/picture/008/save_picture_798869.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Warbringer - Woe To The Vanquished (2017) [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798864.jpg" />
+  <img src="Z:/picture/008/save_picture_798864.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Mastodon - Emperor of Sand (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798854.jpg" />
+  <img src="Z:/picture/008/save_picture_798854.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Nightivity - Deathsurrection (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798788.jpg" />
+  <img src="Z:/picture/008/save_picture_798788.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Draconicon - Dark Side of Magic (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798787.jpg" />
+  <img src="Z:/picture/008/save_picture_798787.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ VA - Relapse Sampler 2015 (2015) Compilation [FLAC|Lossless|WEB-DL|tracks] <blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798485.jpg" />
+  <img src="Z:/picture/008/save_picture_798485.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ The Flight of Sleipnir - 4 Albums (2014-2021) [FLAC|Lossless|image + .cue] <Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798475.jpg" />
+  <img src="Z:/picture/008/save_picture_798475.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ The Flight of Sleipnir - 4 Albums (2014-2021) [FLAC|Lossless|image + .cue] <Ston
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53322275DEFB1F4AE4E01B2CE695454ACF70A2EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507390   (798430) от 04.11.2021
-
-Second Reign - Gravity (2021) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uninvited
-02. The Truth
-03. Let Me Breathe
-04. Fire(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED15A2DA03BAE74A22950C2390CDA00911FEAD1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507801   (798313) от 05.11.2021
-
-Blut Aus Nord - Hallucinogen (2019) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Nomos Nebuleam
-02.Nebeleste
-03.Sybelius
-04.Anthosmos(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F451CBD5F8A1021F649524A900D75C271155A870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507767   (798310) от 05.11.2021
-
-Aenimus - Dreamcatcher (2019) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before the Eons
-02. Eternal
-03. The Ritual
-04. My Becoming(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906B99F6DF1DEB7CDA706266456D81B1924C725A
 ```
 
 https://mybot314.ru/tekegram_catalog/

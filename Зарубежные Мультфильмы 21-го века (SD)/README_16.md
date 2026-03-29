@@ -1,3 +1,81 @@
+###  Публикация: 1278961   (767447) от 27.01.2019
+
+Господство Суперменов / Reign of the Supermen (2019) WEB-DLRip [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_767447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение мультфильма "Смерть Супермена". Монстр Думсдэй повержен, но высокой ценой - Супермен погиб и теперь весь мир скорбит о его утрате. Тем временем тело Супермена пропадает, а в мире появляются четыре новых супергероя с эмблемой "S" на груди. Кто они? Откуда прибыли? Возлюбленная Супермена Лоис Лейн начинает задумываться, а что если один (   Читать дальше...   )Производство: США, DC EntertainmentЖанр: Мультфильм, Боевик, ФантастикаРежиссер: Сэм ЛьюПеревод: Многоголосый закадровый, любительский (Flarrow Films)Субтитры: ОтсутствуютПродолжительность: 01:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D718195D771C058962340C090216B81BC0BF9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213531   (767152) от 18.03.2018
+
+Путеводная звезда / The Star (2017) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_767152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький отважный ослик по имени Бо работает на мельнице, мечтая вырваться на свободу и повидать мир. И в один прекрасный день его желание исполняется! Бо видит в небе необычайно яркую звезду и решает отправиться по пути, который она указывает. Его ждут удивительные приключения и встреча с новыми друзьями, среди которых найдется милая овечка, голубь-шутник и даже (   Читать дальше...   )Производство: США, Affirm Films, Columbia Pictures, Franklin EntertainmentЖанр: Мультфильм, Приключения, Комедия, Семейный, ФэнтезиРежиссер: Тимоти РекартПерсонажи: Стивен Ян, Кигэн-Майкл Ки, Эйди Брайант, Джина Родригез, Закари Левай, Кристофер Пламмер, Винг Реймз, Габриэль Иглесиас, Келли Кларксон, Энтони Андерсон ...Перевод: Дублированный (Лицензия)Субтитры: ОтсутствуютПродолжительность: 01:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554DF20C05FC251E9240B9E584F4940F6676E836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125859   (766756) от 16.04.2017
+
+Зверопой / Sing (2016) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766756.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, который населяют звери, коала по имени Бастер Мун изо всех сил пытается предотвратить закрытие своего театра. В итоге Бастер и его друг, баран Эдди, устраивают конкурс певцов, предлагая принять участие каждому жителю города.Производство: СШАЖанр: Мультфильм, комедия, семейный, музыкаРежиссер: Кристоф Лурделе, Гарт ДженнингсПерсонажи: коала Бастер Мун, горилла Джонни, дикобразиха Эш, свинья Розита, Норман муж Розиты, Маркус отец Джонни, мышь Майк, баран Эдди, мисс Нана Нудлман, молодая Нана, слониха Мина, мисс Кроул ассистентка Бастера, Гюнтер, паук.Перевод: Дублированный R5 |ЛицензияСубтитры: отсутствуютПродолжительность: 01:47:53Реклама: отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262A959DB2C9662F526CD55940392ACAAF290F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521255   (765919) от 01.01.2022
 
 Приключения Пильи / Pil (2021) WEB-DLRip
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765919.jpg" />
+  <img src="Z:/picture/008/save_picture_765919.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765560.jpg" />
+  <img src="Z:/picture/008/save_picture_765560.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764269.jpg" />
+  <img src="Z:/picture/008/save_picture_764269.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764012.jpg" />
+  <img src="Z:/picture/008/save_picture_764012.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762783.jpg" />
+  <img src="Z:/picture/008/save_picture_762783.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761645.jpg" />
+  <img src="Z:/picture/008/save_picture_761645.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761628.jpg" />
+  <img src="Z:/picture/008/save_picture_761628.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761513.jpg" />
+  <img src="Z:/picture/008/save_picture_761513.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760684.jpg" />
+  <img src="Z:/picture/008/save_picture_760684.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759399.jpg" />
+  <img src="Z:/picture/008/save_picture_759399.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758462.jpg" />
+  <img src="Z:/picture/008/save_picture_758462.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758406.jpg" />
+  <img src="Z:/picture/008/save_picture_758406.jpg" />
 </div>
 
 
@@ -325,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758272.jpg" />
+  <img src="Z:/picture/008/save_picture_758272.jpg" />
 </div>
 
 
@@ -351,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758268.jpg" />
+  <img src="Z:/picture/008/save_picture_758268.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758254.jpg" />
+  <img src="Z:/picture/008/save_picture_758254.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756661.jpg" />
+  <img src="Z:/picture/008/save_picture_756661.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756634.jpg" />
+  <img src="Z:/picture/008/save_picture_756634.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754934.jpg" />
+  <img src="Z:/picture/008/save_picture_754934.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754584.jpg" />
+  <img src="Z:/picture/008/save_picture_754584.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754023.jpg" />
+  <img src="Z:/picture/008/save_picture_754023.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_753920.jpg" />
+  <img src="Z:/picture/005/save_picture_753920.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753909.jpg" />
+  <img src="Z:/picture/008/save_picture_753909.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753826.jpg" />
+  <img src="Z:/picture/008/save_picture_753826.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C923083C4E12651C293CEF855DF53A2B2EBCCF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 322401   (752061) от 12.04.2011
-
-Звездные воины: Путь сквозь Вселенную / AniMen: Triton Force (2010) DVDRip | Лицензия
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячи лет назад племя космических кочевников обнаружило в глубинах Вселенной мемо-кристаллы, хранящие знания могущественной древней цивилизации. С их помощью Блатарианцы овладели вековыми секретами ведения войны, изменили свой генетический код и стали непобедимыми. Их власть распространилась по Галактике со скоростью пожара. Беспощаднейший из правителей племени (   Читать дальше...   )Жанр: мультфильм, фантастика, приключенияРежиссер: Керр ХуПеревод: ДублированныйПродолжительность: 01:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15113975524D443C7CAFFB069FA06C5C260D411F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396098   (749837) от 13.07.2020
-
-Зов джунглей / Jungle Beat: The Movie (2020) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пришелец Фнип прилетает на Землю на космическом корабле, но терпит крушение. Очутившись в настоящих джунглях, он знакомится с компанией диких зверей. Вместе с обезьянкой Манки и слонихой Труди ему предстоит отправиться в большое путешествие, где он найдет новых друзей. Фнип пытается вернуться домой, однако у могучего предводителя пришельцев Граноса свои планы.Производство: Маврикий / Sandcastle Studios, Sunrise ProductionsЖанр: МультфильмРежиссер: Брент ДоузАктеры: Эд Кейр, Дэвид Менкин, Дэвид Ринтул, Гэвин Питер, Флорри Уилкинсон, Адам Нилл, Джейсон Пенникук, Роберт Дж. Слэйд, Эмма де Вет, Claire JohnstonПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A239FD144E184EEFAE29AA6563AAE94F0E691726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281621   (749588) от 09.02.2019
-
-Ральф против интернета / Ralph Breaks the Internet (2018) DVDScr [MVO] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749588.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Ральф и Ванилопа фон Кекс выйдут за пределы зала игровых автоматов и отправятся покорять бескрайние просторы Интернета, который может и не выдержать сокрушительного обаяния громилы.Производство: США, Walt Disney Animation Studios, Walt Disney PicturesЖанр: Мультфильм, Приключения, Комедия, Семейный, ФентезиРежиссер: Фил Джонстон, Рич МурПеревод: Многоголосый закадровый (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6BC07EF5E1B7390D7DEFA73869D75F72EF15156
 ```
 
 https://mybot314.ru/tekegram_catalog/

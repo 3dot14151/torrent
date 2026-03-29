@@ -1,3 +1,81 @@
+###  Публикация: 1117523   (805258) от 29.03.2017
+
+Владимир Маяковский | Владимир Маяковский в исполнении мастеров художественного слова (2010) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_805258.jpg" />
+</div>
+
+
+###  Подробнее
+
+В издание вошли известные произведения Владимира Маяковского в исполнении мастеров художественного слова. В качестве бонуса на диске представлены произведения в исполнении автора.Жанр: Классика, поэзия, стихиПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237A718D01BCA62BE91D2A0E9F76770D658F650C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119720   (803455) от 30.03.2017
+
+Бернард Шоу | Профессия миссис Уоррен (1956) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виви, только что окончившая колледж, узнает, что ее мать, миссис Уоррен, содержательница сети публичных домов. Также узнает, что старый компаньон матери, капиталист Крофтс, нагло претендует на брак с Виви; что сын пастора, Фрэнк, которого она любила, является, возможно, ее братом. И, что самое страшное, перед Виви открывается мир гнусных буржуазных отношений, мир, (   Читать дальше...   )Жанр: ПьесаПродолжительность: 02:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7DF3A2ADA5402DA3E9F5D9E0FA83B9846389BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119520   (803353) от 30.03.2017
+
+Эжен Сю | Агасфер (2004) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803353.jpg" />
+</div>
+
+
+###  Подробнее
+
+По известному преданию, Агасфер (лат. Ahasverus), иудей-ремесленник, мимо дома которого вели на распятие Иисуса Христа, несшего Свой Крест, отказал Спасителю и оттолкнул Его, когда Он попросил позволения прислониться к стене его дома, чтобы отдохнуть, и за это был осужден на скитание по земле до Второго пришествия Христа и вечное презрение со стороны людей. В романе (   Читать дальше...   )Жанр: Зарубежная классика, спектакльПродолжительность: 39:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F329084282B2500B0EA8E899C480CD7BC485C25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119799   (802043) от 31.03.2017
 
 Владимир Даль | Жизнь человека, или Прогулка по Невскому проспекту (2017) [MP3]
@@ -6,7 +84,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802043.jpg" />
+  <img src="Z:/picture/008/save_picture_802043.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802014.jpg" />
+  <img src="Z:/picture/008/save_picture_802014.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802003.jpg" />
+  <img src="Z:/picture/008/save_picture_802003.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802002.jpg" />
+  <img src="Z:/picture/008/save_picture_802002.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802001.jpg" />
+  <img src="Z:/picture/008/save_picture_802001.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801937.jpg" />
+  <img src="Z:/picture/008/save_picture_801937.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801912.jpg" />
+  <img src="Z:/picture/008/save_picture_801912.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801255.jpg" />
+  <img src="Z:/picture/008/save_picture_801255.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800557.jpg" />
+  <img src="Z:/picture/008/save_picture_800557.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800096.jpg" />
+  <img src="Z:/picture/008/save_picture_800096.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800095.jpg" />
+  <img src="Z:/picture/008/save_picture_800095.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799630.jpg" />
+  <img src="Z:/picture/008/save_picture_799630.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799622.jpg" />
+  <img src="Z:/picture/008/save_picture_799622.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798841.jpg" />
+  <img src="Z:/picture/008/save_picture_798841.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798839.jpg" />
+  <img src="Z:/picture/008/save_picture_798839.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796904.jpg" />
+  <img src="Z:/picture/008/save_picture_796904.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796830.jpg" />
+  <img src="Z:/picture/008/save_picture_796830.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796367.jpg" />
+  <img src="Z:/picture/008/save_picture_796367.jpg" />
 </div>
 
 
@@ -478,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796079.jpg" />
+  <img src="Z:/picture/008/save_picture_796079.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794951.jpg" />
+  <img src="Z:/picture/008/save_picture_794951.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793894.jpg" />
+  <img src="Z:/picture/008/save_picture_793894.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793579.jpg" />
+  <img src="Z:/picture/008/save_picture_793579.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793560.jpg" />
+  <img src="Z:/picture/008/save_picture_793560.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A1DFCB898ECDE50E0E9E8388BEB482305C2556E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 49486   (792558) от 14.11.2021
-
-Оскар Уайльд | Портрет Дориана Грея (2007) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792558.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Портрет Дориана Грея» — одно из самых известных произведений английского писателя Оскара Уайльда. Герой романа, юный красавец Дориан, пожелал всегда оставаться молодым. Он и представить себе не мог, что это возможно. Но один художник написал портрет Дориана в его лучшие годы, когда еще печать греха и порока не испортила душу и лицо героя. Портрету суждено было стать (   Читать дальше...   )Жанр: Роман, КлассикаПродолжительность: 10:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DFE8425235BC2FE2F21555C3A84A01689BD24F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202377   (790364) от 28.01.2018
-
-Антон Чехов | Палата №6 (2002) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790364.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Палата №6» - история доктора, который сам становится пациентом. Опыт работы земским врачом позволил писателю предельно достоверно описать быт больницы, взаимоотношения врачей и больных. Рассказ проникнут горькой иронией и ощущением безнадежности, но, возможно, именно бессилие чеховских героев заставит кого-то впервые в жизни доказать самому себе, что он-то не находится (   Читать дальше...   )Жанр: КлассикаИздательство: АРДИСПродолжительность: 02:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C416EAE885E727B180E29BFC63A7E44CFBA90A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275825   (788108) от 16.01.2019
-
-Мигель де Сервантес | Дон Кихот [Радиоспектакль] (1987) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиоспектакль по классическому роману М. Сервантеса о рыцаре печального образа и его подвигах и похождениях. Блестящий состав исполнителей, постановка 1987 года.Жанр: Классическая прозаПродолжительность: 03:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3066B3A56718CB11EA0248AEC0D03D47F89587
 ```
 
 https://mybot314.ru/tekegram_catalog/

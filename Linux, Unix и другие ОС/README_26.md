@@ -1,3 +1,57 @@
+###  Публикация: 1514127   (219199) от 02.12.2021
+
+Ubuntu*Pack 20.04 DDE (ноябрь 2021) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDDDB3520EC29B20DFC57DC4C75B105A669365E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514131   (219188) от 02.12.2021
+
+Ubuntu*Pack 20.04 GNOME Flashback (ноябрь 2021) [amd64] DVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4202285DA4E91BF38961B44E6346BB0243A0737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514144   (218965) от 02.12.2021
 
 Ubuntu*Pack 20.04 LXqt / Lubuntu (ноябрь 2021) [amd64] DVD
@@ -6,7 +60,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218965.jpg" />
+  <img src="Z:/picture/005/save_picture_218965.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Ubuntu*Pack 20.04 MATE (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218776.jpg" />
+  <img src="Z:/picture/005/save_picture_218776.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218746.jpg" />
+  <img src="Z:/picture/005/save_picture_218746.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Ubuntu*Pack 20.04 Unity (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218665.jpg" />
+  <img src="Z:/picture/005/save_picture_218665.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218393.jpg" />
+  <img src="Z:/picture/005/save_picture_218393.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Sabayon 14.01 [x86] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218257.jpg" />
+  <img src="Z:/picture/005/save_picture_218257.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Sabayon 14.01 [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218181.jpg" />
+  <img src="Z:/picture/005/save_picture_218181.jpg" />
 </div>
 
 
@@ -197,7 +251,7 @@ Tor Browser 5.0.6 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217729.jpg" />
+  <img src="Z:/picture/005/save_picture_217729.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Ubuntu*Pack 20.04 GNOME LikeWin (ноябрь 2021) [amd64] DVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216737.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ PCLinuxOS 2014.12 KDE FullMonty [x32, x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215748.jpg" />
 </div>
 
 
@@ -276,7 +330,7 @@ openSUSE Leap 15.4 [x86_64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213377.jpg" />
+  <img src="Z:/picture/005/save_picture_213377.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ Kali Linux 2022.2 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213178.jpg" />
+  <img src="Z:/picture/005/save_picture_213178.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ SUSE Linux Enterprise Desktop Server Workstation 15.4
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212758.jpg" />
+  <img src="Z:/picture/005/save_picture_212758.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ Debian Edu - Skolelinux 11.4.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212719.jpg" />
+  <img src="Z:/picture/005/save_picture_212719.jpg" />
 </div>
 
 
@@ -381,7 +435,7 @@ MiniOS Ultra 11.4.0
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212498.jpg" />
+  <img src="Z:/picture/005/save_picture_212498.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ MiniOS Maximum 11.4.0
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212486.jpg" />
+  <img src="Z:/picture/005/save_picture_212486.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ Kubuntu 22.04 LTS (Jammy Jellyfish) [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212267.jpg" />
+  <img src="Z:/picture/005/save_picture_212267.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ Slax 15.0 [amd64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211179.jpg" />
+  <img src="Z:/picture/005/save_picture_211179.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ Ubuntu*Pack 20.04 MATE (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209558.jpg" />
 </div>
 
 
@@ -515,7 +569,7 @@ Ubuntu*Pack 20.04 (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209553.jpg" />
 </div>
 
 
@@ -542,7 +596,7 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209548.jpg" />
 </div>
 
 
@@ -569,7 +623,7 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209544.jpg" />
 </div>
 
 
@@ -596,7 +650,7 @@ Ubuntu*Pack 20.04 Unity (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209511.jpg" />
 </div>
 
 
@@ -623,7 +677,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209497.jpg" />
 </div>
 
 
@@ -635,60 +689,6 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (май 2023) [amd64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBF0D02C96E820BCDF8675ED824B9535B3EAA8AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644983   (209480) от 07.07.2023
-
-Ubuntu*Pack 20.04 LikeWin (май 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B61A7C6B027DB6F46B8BE9F63E1D40D5B585FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645160   (209429) от 08.07.2023
-
-Ubuntu*Pack 20.04 DDE (май 2023) [amd64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
-ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C7E1E6CED482CFF50F2BFCF92E94438647A2D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

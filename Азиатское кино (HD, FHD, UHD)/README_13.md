@@ -1,3 +1,109 @@
+###  Публикация: 986895   (928670) от 15.02.2016
+
+Доспехи Бога / Armour of God (1986) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928670.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Азиатский ястреб» - так назвали героя Джеки в Европе. Когда он похитил в Африке ритуальный меч, то не предполагал, что это начало опасных приключений. Оказывается, что меч - часть древних доспехов Бога, и если их уничтожить, то в мире будут править силы Ужаса и Зла.
+Силы Зла, которые укрылись в неприступном монастыре, узнают, что у Джеки есть доступ к остальным (   Читать дальше...   )Производство: Гонконг, ЮгославияЖанр: Боевик, Комедия, ПриключенияРежиссер: Джеки Чан, Эрик ЦанАктеры: Джеки Чан, Алан Там, Розамунд Кван, Лола Форнер, Божидар Смилянич, Кен Бойл, Джон Ладальски, Роберт О’Брайэн, Борис Грегорич, Марсия ЧишолмПеревод: Многоголосый закадровый, двухголосый закадровый, АвторскийЯзык субтитров: Русский, английскийПродолжительность: 01:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C691939DE10D44A54210C5FF2D95F6F3F23FA033
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628890   (928152) от 15.03.2013
+
+Неуязвимая мишень / Naam yi boon sik (2007) BDRip [1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время ограбления инкассаторского броневика случайно погибает девушка, покупавшая обручальное кольцо в соседнем магазине. Ее жених, простой гонконгский полицейский, никак не может пережить смерть любимой, поэтому и соглашается отныне на самые отчаянные операции. Однажды его команда выходит на тех самых налетчиков, из-за которых и погибла его невеста. Отныне герой готов ради их поимки пойти на любые жертвы и что самое важное — таких как он еще двое…Жанр: Боевик, КриминалРежиссер: Бенни ЧанАктеры: Николас Це, Джейси Чан, Шон Юе, Джеки Ву, Лиза Лу, Энди Оун, Кэнди Лью, Elanne Kwong, Сэм Ли, Кен ЛоПеревод: Многоголосый закадровыйПродолжительность: 02:10:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987243   (927316) от 16.02.2016
+
+Рюдзо и семеро бойцов / Ryuzo to 7 nin no kobun tachi (2015) BDRip [H.264 / 1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший боец якудза, давно ведущий размеренную жизнь пенсионера, становится жертвой мошенничества и решает основать новый клан якудза вместе со своими престарелыми друзьями, чтобы вернуть славные времена и, разумеется, воздать по заслугам обидчикам…Производство: Япония / Office KitanoЖанр: Боевик, КомедияРежиссер: Такеши КитаноАктеры: Тацуя Фудзи, Бэн Хиура, Кодзюн Ито, Масанобу Кацумура, Такеши Китано, Масаоми Кондо, Хисако Манда, Акира НакаоПеревод: Профессиональный (многоголосый, закадровый)Язык субтитров: РусскийПродолжительность: 01:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954092E2B80598CE1DBFF1655BEBC4A4BA5F620E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489106   (926791) от 15.08.2021
+
+Ран / Ran (1985) UHD BDRemux [H.265/2160p] [4K, HDR10, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Япония, XVI век. Стареющий правитель Хидэтора объявляет о разделе своих владений между тремя сыновьями.
+Обманутый фальшивыми уверениями в верности двух старших сыновей Хидэтора прогоняет младшего, осмелившегося утверждать, что решение отца навлечет гибель на весь их род. Став жертвой коварного предательства, правитель лишается рассудка, а между его наследниками начинается (   Читать дальше...   )Производство: Япония, Франция / Greenwich Film Productions, Herald Ace Inc., Nippon Herald FilmsЖанр: Боевик, драма, военныйРежиссер: Акира КуросаваАктеры: Тацуя Накадаи, Акира Тэрао, Дзинпати Нэдзу, Даисукэ Рю, Миэко Харада, Ёсико Миядзаки, Хисаси Игава, Питер, Масаюки Юи, Кадзуо КатоПеревод: Многоголосый профессиональный (DVDXpert)Язык озвучки: Русский, английскийСубтитры: Русские (Full), английские (Full)Продолжительность: 02:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF7A9E71057816A31B3605335740B4F7B210AE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754962   (926644) от 25.01.2015
 
 Сумрачный самурай / Tasogare Seibei / The Twilight Samurai (2002) BDRemux [1080p]
@@ -6,7 +112,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926644.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926395.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926325.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926245.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925805.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925791.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925372.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923937.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923884.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923305.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922369.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920659.jpg" />
 </div>
 
 
@@ -323,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919972.jpg" />
 </div>
 
 
@@ -349,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918262.jpg" />
 </div>
 
 
@@ -375,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917299.jpg" />
 </div>
 
 
@@ -401,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916152.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915653.jpg" />
 </div>
 
 
@@ -453,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915518.jpg" />
 </div>
 
 
@@ -479,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915103.jpg" />
 </div>
 
 
@@ -505,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914802.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913913.jpg" />
 </div>
 
 
@@ -559,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913565.jpg" />
 </div>
 
 
@@ -570,111 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:522DCACBE9E20A2FFECA874238B2DFB6560E221F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758213   (911919) от 19.02.2014
-
-Воспоминания об убийстве / Salinui chueok (Memories of Murder) (2003) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911919.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1986 году в корейской глубинке две местные женщины были убиты одним и тем же извращённым способом. Детектив Пак Ту-ман и его помощник Чо Ён-гу со всем возможным рвением пытаются найти убийцу. Точнее — заставить признаться в содеянном любого подозреваемого, и делают это самыми жестокими методами.
-Но скоро становится очевидно, что они не имеют ни навыков, ни характера (   Читать дальше...   )Производство: Корея Южная / CJ Entertainment, Muhan Investment, Sidus PicturesЖанр: Триллер, Драма, Криминал, ДетективРежиссер: Пон Чжун ХоАктеры: Сон Кан Хо, Ким Сан Ген, Ким Рве Ха, Сон Чжэ Хо, Бён Хи Бон, Сео-хи Ко, Пак Но Сик, Пак Хэ Иль, Чон-рел Чои, Чон Ми СонПеревод: Профессиональный двухголосый (BBC Saint-Petersburg)Субтитры: РусскиеПродолжительность: 02:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805C928223DEE3117FA90046ED52844269A585D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634708   (910670) от 25.03.2013
-
-Вкус денег / The Taste of Money (2012) BDRip [720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юнгджак — секретарь госпожи Баэк, которая стоит во главе влиятельной корейской промышленной корпорации. Ему поручено заниматься личными делами семьи с сомнительными моральными устоями. Попав в водоворот семейных тайн и властных отношений, Юнгджак должен сделать непростой выбор между своими принципами и возможностью быстро взобраться по ступеням социальной лестницы (   Читать дальше...   )Жанр: ДрамаРежиссер: Им Сан Су / Sang-soo ImАктеры: Пэк Юн Си, Хё-джин Ким, Ким Кан-у, Он Чжу Ван, Юн Ё Чун и др.Перевод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:54:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330541   (910295) от 19.03.2020
-
-Пуля в голове / Bullet in the Head / Die xue jie tou (1990) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910295.jpg" />
-</div>
-
-
-###  Подробнее
-
-1967 год. Трое друзей из Гонконга отправляются в поисках легкого заработка в Сайгон, воспользовавшись царящим там из-за войны хаосом. Но герои и не предполагают, что им предстоит испытать: вступить в неравный бой с местной мафией, войсками коммунистического Вьетнама, бежать из плена и узнать, какова же на самом деле цена дружбы: золото или пуля в голове?Производство: Гонконг / Golden Princess Film Production Limited, John Woo Film ProductionЖанр: боевик, триллер, драма, криминал, военныйРежиссер: Джон ВуАктеры: Тони Люн Чу Вай, Джеки Чун, Уайз Ли, Саймон Ям, Йолинда Йам, Чунг Лин, Фенние Юэнь, Кан-Вин Цан, Ханг Шуен Со, Джон ВуПеревод: Многоголосый профессиональный, авторскийСубтитры: ОтсутствуютПродолжительность: 02:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F14CE2C8536508B540185FE81446C5CDE3E24C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 374344   (909967) от 19.03.2020
-
-Обнаженное оружие / Chek law dak gung / Naked Weapon (2002) BDRip  [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909967.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как погибает лучший агент, таинственная женщина похищает сорок девочек с улиц и увозит на отдаленный остров. За несколько ближайших лет она воспитает новых элитных убийц. Выжившие после смертельного отбора и станут ее страшным оружием…Производство: Гонконг / Jing's Production Limited, Media Asia Films Ltd.Жанр: Боевик, Триллер, ДрамаРежиссер: Сиу-Тунг ЧингАктеры: Мэгги Кью, Аня, Дэниел Ву, Джюэл Ли, Пей Пей Ченг, Элмен Вонг, Дэвид Джон СондерсПеревод: Многоголосый профессиональный (West Video)Субтитры: Русские, Английские, БолгарскиеПродолжительность: 01:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F73B53466E86FC77A3020A9BD28D9B0D6F8773F
 ```
 
 https://mybot314.ru/tekegram_catalog/

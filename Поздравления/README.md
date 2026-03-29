@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058167.jpg" />
+  <img src="Z:/picture/005/save_picture_1058167.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057478.jpg" />
+  <img src="Z:/picture/005/save_picture_1057478.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057244.jpg" />
+  <img src="Z:/picture/005/save_picture_1057244.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057243.jpg" />
+  <img src="Z:/picture/005/save_picture_1057243.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053866.jpg" />
+  <img src="Z:/picture/005/save_picture_1053866.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050728.jpg" />
+  <img src="Z:/picture/005/save_picture_1050728.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049273.jpg" />
+  <img src="Z:/picture/005/save_picture_1049273.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953521.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_851973.jpg" />
+  <img src="Z:/picture/005/save_picture_851973.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_792910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_792910.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_791148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791148.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751900.jpg" />
+  <img src="Z:/picture/005/save_picture_751900.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751756.jpg" />
+  <img src="Z:/picture/005/save_picture_751756.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_659899.jpg" />
+  <img src="Z:/picture/005/save_picture_659899.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655127.jpg" />
+  <img src="Z:/picture/005/save_picture_655127.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_590913.jpg" />
+  <img src="Z:/picture/005/save_picture_590913.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_579935.jpg" />
+  <img src="Z:/picture/005/save_picture_579935.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_578775.jpg" />
+  <img src="Z:/picture/005/save_picture_578775.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446799.jpg" />
+  <img src="Z:/picture/005/save_picture_446799.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_394598.jpg" />
+  <img src="Z:/picture/005/save_picture_394598.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_358866.jpg" />
+  <img src="Z:/picture/005/save_picture_358866.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236145.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191537.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151865.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56061.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Поздравления
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56045.jpg" />
 </div>
 
 

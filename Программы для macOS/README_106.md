@@ -1,3 +1,140 @@
+###  Публикация: 1329040   (350283) от 06.10.2019
+
+MacCleanse 8 v8.0.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита для комплексной очистки кэша, удаления лог-файлов и очистки системы от мусора. MacCleanse в считанные минуты проделает все операции, на которые бы потребовалось несколько часов ручной работы. Она умеет удалять приложения и неиспользуемые языковые пакеты, очищать кэш, удалять лог файлы и cookies, стирать историю посещенных веб-страниц, находить и удалять старые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2019Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB0D103255C27960F36C10AE4A5F3B408F32B4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329051   (350276) от 06.10.2019
+
+Papers 3 v3.4.21 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Papers — персональный каталогизатор научных статей
+Каталогизация журнальных статей и публикаций — весьма нелегкая задача. Особенно это знают люди, ведущие журналистскую деятельность и научную работу. Немудрено, что для упрощения этой задачи очень хочется использовать компьютер.
+Отчасти тут хватит встроенных в OS X средств: поиск с помощью Spotlight, просмотр в стандартном (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MekentosjПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4132BB488166472411552552E32387B8DBB2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329044   (350274) от 06.10.2019
+
+MarginNote 3 Pro v3.4.5 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Делать аннотации и примечания к книгам, организовывать их в карты разума или быстро создавать карточки, чтобы быстрее запоминать их содержимое. MarginNote предлагает новый подход к чтению книг и созданию ярких, примечательных или аннотаций. Утилита отслеживает каждую запись и позволяет вам организовывать данные в карты разума или карточки.
+
+Независимо от вашей профессии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2019Разработчик: Sun MinПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07C564EBCA4B5F3AFFDAC428C87C7D316BA310D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329055   (350158) от 06.10.2019
+
+Quiver 3.2.7 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quiver — это записная книжка, специально созданная для программиста.
+
+Основные возможности:
+• С помощью Quiver вы легко можете объединить текст, код и Markdown в одной заметке.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.09.2019Разработчик: HappenApps, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA40290914A770A390FC8F7797FCFC0E4337851D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256884   (350031) от 24.10.2018
+
+Canary Mail - Encrypted Email 2.14 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_350031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canary Mail может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром. Можно сказать, что перед нами Airmail с фирменной Snooze из Mailbox и другими популярными функциями современных email-клиентов.Тип издания: macOS SoftwareРелиз состоялся: 23.10.2018Разработчик: Mailr Tech LLPПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF77A38968074A9E62E10E1DB5252D1FAABC12E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578104   (350021) от 21.09.2022
 
 VideoSolo Video Converter Ultimate 2.2.16 [En]
@@ -6,7 +143,7 @@ VideoSolo Video Converter Ultimate 2.2.16 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350021.jpg" />
+  <img src="Z:/picture/008/save_picture_350021.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ Fluid 1.8.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349828.jpg" />
+  <img src="Z:/picture/008/save_picture_349828.jpg" />
 </div>
 
 
@@ -60,7 +197,7 @@ Colibri 1.8.11 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349769.jpg" />
+  <img src="Z:/picture/008/save_picture_349769.jpg" />
 </div>
 
 
@@ -89,7 +226,7 @@ Space Drop 1.8.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349416.jpg" />
+  <img src="Z:/picture/008/save_picture_349416.jpg" />
 </div>
 
 
@@ -115,7 +252,7 @@ iRingtone Pro 3.3.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348988.jpg" />
+  <img src="Z:/picture/008/save_picture_348988.jpg" />
 </div>
 
 
@@ -143,7 +280,7 @@ Ample Sound Ample Guitar Stratocaster v3.2.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348969.jpg" />
+  <img src="Z:/picture/008/save_picture_348969.jpg" />
 </div>
 
 
@@ -169,7 +306,7 @@ Adobe Bridge CC 2018 v8 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348484.jpg" />
+  <img src="Z:/picture/008/save_picture_348484.jpg" />
 </div>
 
 
@@ -198,7 +335,7 @@ Mirror for Samsung TV 3.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347619.jpg" />
+  <img src="Z:/picture/008/save_picture_347619.jpg" />
 </div>
 
 
@@ -227,7 +364,7 @@ Movavi Video Editor Plus 15.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347202.jpg" />
+  <img src="Z:/picture/008/save_picture_347202.jpg" />
 </div>
 
 
@@ -253,7 +390,7 @@ Wondershare PDFelement Pro 7.6.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346545.jpg" />
+  <img src="Z:/picture/008/save_picture_346545.jpg" />
 </div>
 
 
@@ -279,7 +416,7 @@ Hot Door CADtools 11 for Adobe Illustrator 11.1.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346328.jpg" />
+  <img src="Z:/picture/008/save_picture_346328.jpg" />
 </div>
 
 
@@ -305,7 +442,7 @@ Tenorshare iCareFone 7.1.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346136.jpg" />
+  <img src="Z:/picture/008/save_picture_346136.jpg" />
 </div>
 
 
@@ -333,7 +470,7 @@ SkyLab Studio 2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345658.jpg" />
+  <img src="Z:/picture/008/save_picture_345658.jpg" />
 </div>
 
 
@@ -362,7 +499,7 @@ Mac VideoRipper Pro 1.0.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345652.jpg" />
+  <img src="Z:/picture/008/save_picture_345652.jpg" />
 </div>
 
 
@@ -390,7 +527,7 @@ Direct Message for Instagram Pro 4.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345482.jpg" />
+  <img src="Z:/picture/008/save_picture_345482.jpg" />
 </div>
 
 
@@ -416,7 +553,7 @@ Drama 2.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344705.jpg" />
+  <img src="Z:/picture/008/save_picture_344705.jpg" />
 </div>
 
 
@@ -442,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344595.jpg" />
+  <img src="Z:/picture/008/save_picture_344595.jpg" />
 </div>
 
 
@@ -468,7 +605,7 @@ Commander One PRO Pack 2 v2.5.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344418.jpg" />
+  <img src="Z:/picture/008/save_picture_344418.jpg" />
 </div>
 
 
@@ -497,7 +634,7 @@ Hider 2 v2.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344331.jpg" />
+  <img src="Z:/picture/008/save_picture_344331.jpg" />
 </div>
 
 
@@ -525,7 +662,7 @@ CorelDRAW Graphics Suite 2020 v22.1.0.517 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343711.jpg" />
+  <img src="Z:/picture/008/save_picture_343711.jpg" />
 </div>
 
 
@@ -551,7 +688,7 @@ Motion 5.4.4 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343277.jpg" />
+  <img src="Z:/picture/008/save_picture_343277.jpg" />
 </div>
 
 
@@ -562,142 +699,6 @@ Motion - это мощный графический инструмент, кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79F13572BFD8863456122CC6DDB54E81350103D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073900   (342839) от 17.11.2016
-
-Delineato Pro 1.2.7 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красиво оформленный, простой и гибкий, Delineato Pro представляет собой инновационный инструмент для построения схем и мозговых штурмов.
-
-Delineato Pro является профессиональным изданием Delineato - итальянское слово для "наброски".
-Разработанный с использованием парадигмы WYSIWYN - вы видите, что вам нужно - это  приложение ориентировано на создание простых (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 ноября 2016Разработчик: Systems Informatica Lda.Поддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0D97BF799864C23CD4CE20C0D53571F25CDD27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073851   (342824) от 17.11.2016
-
-Chrono Plus – Time Tracker & Timesheet with Billing 1.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chrono Plus - удобный менеджер задач и инструмент для отслеживания времени с множеством удобных функций. Chrono Plus подходит для тех, кто нуждается более  эффективно управлять временем и задачами. Утилита будет полезна  для любого фрилансера или профессионала с почасовой оплатой.  Chrono Plus имеет интуитивно понятный интерфейс для управления задачами, расчет затрат (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2016Разработчик: XwavesoftПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F483D2B083FADE097D558EC7FFA19B8F252F341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073947   (342670) от 17.11.2016
-
-Timing 1.8 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Timing — следи за своим временем
-Приложение, которое разработал Thomas Osthege, будет особенно полезно фрилансерам и людям, которые много работают за компьютером. Уже давно не секрет, что многие пользователи ПК отвлекаются от работы для того, чтобы посмотреть любимый сериал или почитать Twitter. Но сколько на самом деле времени вы тратите на перерывы? Узнать это (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 ноября 2016Разработчик: Thomas Osthege und Daniel AlmПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7960FA514E6D42982D3A93B42C47500B7DACE75F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073849   (342656) от 17.11.2016
-
-Pro Paint 3.5.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pro Paint  - реалистичное полифункциональное программное обеспечение цифрового искусства, которое используется для живописи, редактирования изображений, векторной графики, кадрирования, редактирования альфа-канала и более специализированных задач. Программа обеспечивает высокое качество обработки изображений предлагая инструменты для создания оригинальных произведений. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2016Разработчик: Art StudioПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147E94CC0BB178B2D2F5C657F730D4CC7C8CAEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419316   (342303) от 27.10.2020
-
-ShottyBlur 1.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342303.jpg" />
-</div>
-
-
-###  Подробнее
-
-ShottyBlur - Яркие скриншоты со Слоями. Сделайте скриншоты ваших окон с ярким размытым эффектом на отдельных слоях. Перетащите скриншоты в графическое приложение, чтобы продолжить работу с ними
-Перетащите скриншоты в Finder, чтобы сохранить документы в PSD или PNG форматах.
-Организуйте свои скриншоты - сохраняйте их в документах Shotty.Тип издания: macOS SoftwareРелиз состоялся: 25.09.2019Разработчик: Image Studio ProductionПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2579FD4B7F06C185710D2CC4ACCF6775876A0536
 ```
 
 https://mybot314.ru/tekegram_catalog/

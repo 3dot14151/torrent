@@ -1,3 +1,107 @@
+###  Публикация: 844303   (321478) от 24.11.2014
+
+Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Серия 4)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не вынимать ! / Don't Pull it OutРассказ о спортсменах, которые чудом выжили в несчастных случаях с острыми предметами. Кто сказал, что спорт — это здоровье?Жанр: ДокументальныйРежиссер: Джил Камбебатч, Крис Роув, Верни ШейтверПеревод: Одноголосый закадровыйПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B48A275EECC3AE7F11BC506F9FB4A1C7065E783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958902   (321099) от 22.11.2015
+
+Discovery: Разрушители легенд. Звёздные войны: Ответный удар / MythBusters. Star Wars: The Myths Strike Back (2015) SATRip  (Сезон 15, эпизод 14) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321099.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: ~ 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED567D52C8069BB2952DD62FFC3581AA1BEFCFA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181914   (318958) от 09.11.2017
+
+Моя жизнь с роботом / My life with a robot (Ma vie avec un robot) (2015) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Мир будущего
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они учителя, медицинские работники, спасатели и кто знает, кого они еще заменят в будущем. Они могут иметь любые формы: автоматических машин, домашних животных или людей. Они роботы. Но что это такое - жить с одним из них 24 часа в сутки? Анжелика, инженер робототехники, и ее парень решили провести эксперимент и прожить с роботом полгода.Производство: Франция, Bellota Films, Plante +Жанр: Документальный, научно-популярный, социологияРежиссер: Тибо Сью, Эммануэль ДюмонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A500D85A5506A5522CFA0704C5CC9943AA4A5E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259536   (318953) от 04.11.2018
+
+NGW: На защите носорогов / Chasing Rhinos (2013) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_318953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билли Буш на время оставляет индустрию развлечений ради серьезного дела в джунглях - борьбы с браконьерами, уничтожающими носорогов.Производство: США, Market Road Films, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Тони ГерберПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69089C4F566FE48DB31670D374DC4492CD0337CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 844396   (318487) от 25.11.2014
 
 Discovery Scienceу: НАСА. Необъяснимые материалы / NASA's. Unexplained Files (2014) HDTVRip (Серия 4)
@@ -6,7 +110,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318487.jpg" />
+  <img src="Z:/picture/008/save_picture_318487.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ N.G. Большие кошки. Удивительная семья / Big Cats: 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318465.jpg" />
+  <img src="Z:/picture/008/save_picture_318465.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318176.jpg" />
+  <img src="Z:/picture/008/save_picture_318176.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317326.jpg" />
+  <img src="Z:/picture/008/save_picture_317326.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317024.jpg" />
+  <img src="Z:/picture/008/save_picture_317024.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ National Geographic: Острова Фиджи / Islands Fiji (2011) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316873.jpg" />
+  <img src="Z:/picture/008/save_picture_316873.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG: Человек против youtube / Man v. Viral (2015) HDTVRip [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316409.jpg" />
+  <img src="Z:/picture/008/save_picture_316409.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG. Экстремальный Китай. Хайнань / Extreme China. Haina
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316405.jpg" />
+  <img src="Z:/picture/008/save_picture_316405.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Discovery: Смертоносные эпидемии / Killer outbreaks (2011) H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316395.jpg" />
+  <img src="Z:/picture/008/save_picture_316395.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Discovery: Вот это странно / Williams Shatner's Weird or What (2012
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316170.jpg" />
+  <img src="Z:/picture/008/save_picture_316170.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ BBC: Невидимый Рим / Rome's Invisible City (2015) HDTV [H.264/1080i-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316168.jpg" />
+  <img src="Z:/picture/008/save_picture_316168.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NGW: Сексуальное рабство 21 века / 21st Century Sex Slaves
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316148.jpg" />
+  <img src="Z:/picture/008/save_picture_316148.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DLRip (1 сезон:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315957.jpg" />
+  <img src="Z:/picture/008/save_picture_315957.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NGW: Акулы на охоте / Shark The Hunt. Kill Zone (2018) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315876.jpg" />
+  <img src="Z:/picture/008/save_picture_315876.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315053.jpg" />
+  <img src="Z:/picture/008/save_picture_315053.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NG: Международный аэропорт Дубай. Серия 4 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315036.jpg" />
+  <img src="Z:/picture/008/save_picture_315036.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NGW: Дикая природа Перу: арена боев – Анды. Ди�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314014.jpg" />
+  <img src="Z:/picture/008/save_picture_314014.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ NG: Международный аэропорт Дубай. Серия 5 / Ultim
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312524.jpg" />
+  <img src="Z:/picture/008/save_picture_312524.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ PBS Nature: Гималаи / PBS Nature: The Himalayas (2011) [H.264/1080p-LQ] B
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312143.jpg" />
+  <img src="Z:/picture/008/save_picture_312143.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ NG. Открытие потерянной могилы Ирода / Uncovering H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311832.jpg" />
+  <img src="Z:/picture/008/save_picture_311832.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311531.jpg" />
+  <img src="Z:/picture/008/save_picture_311531.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311503.jpg" />
+  <img src="Z:/picture/008/save_picture_311503.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51845883CCB3107F108452190EBD64DE92A5D71C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260559   (309702) от 08.11.2018
-
-Discovery. Инженерия невозможного / Impossible Engineering (2015) HDTV [H.264/1080i-LQ] (сезон 2, серии 1-8 из 12)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа "Инженерия невозможного" во втором сезоне продолжает рассказ об удивительных инженерных сооружениях, гигантских небоскребах, мощных судах и космических кораблях, опережающих время. За каждым из них стоит удивительная история, и она начинается вовсе не с чертежей или закладки первого камня – совершив экскурс в прошлое, вы узнаете, кто стоял у истоков (   Читать дальше...   )Производство: США, Twofour Broadcast, Yesterday, Science ChannelЖанр: Документальный, строительство, историяПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 8x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC68597D79BCBEC6498CD9F47ABDC51E6BAAF5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332891   (309311) от 22.10.2019
-
-NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309311.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме мы перейдем рамки обычного репортажа о дикой природе и встретимся с самым чарующим диким животным на земле - тигром.Производство: Индия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05916DCFC12B86D95E1D32429F7AD57E5BFB3387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332829   (309118) от 22.10.2019
-
-NG. Солнечный фараон Египта: тайны и сокровища / Egypt's Sun King: Secrets and Treasures (2018) HDTV [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда археологов впервые со времен фараона Тутанхамона находит новое захоронение с мумией. Оказывается, что это захоронение содержит мумии принцессы и благородной госпожи. Рядом археологи обнаруживают еще как минимум тридцать мумий. Детективная история постепенно помогает найти ответ на вопрос, кто были эти люди и почему они попали в это захоронение. Итак, кто (   Читать дальше...   )Производство: Великобритания, National Geographic ChannelЖанр: Документальный, история, исследованияРежиссер: Ричард РейсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A818229708ABC33B46DE3DEBE75B9E9442744B72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332830   (309108) от 22.10.2019
-
-Деррен Браун: Жертва / Derren Brown: Sacrifice (2018) WEB-DL [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автобиографический фильм расскажет историю знаменитого иллюзиониста и интеллектуала. В своем кругу его давно считают королем человеческих манипуляций. Его взгляд пробирает насквозь. Кажется, что он может пробраться в самые закутки души, туда, куда вход посторонним запрещен, но его это не останавливает. Люди в его руках всего лишь марионетки, которыми он управляет (   Читать дальше...   )Производство: США, NetflixЖанр: ДокументальныйРежиссер: Деррен Браун, Стивен ЛонгПеревод: Многоголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF31267F666B173B16A8393DF28EFD166E0EBFCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

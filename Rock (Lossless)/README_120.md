@@ -1,3 +1,172 @@
+###  Публикация: 502086   (258861) от 27.05.2012
+
+Chris Rea - Hofner Blue Notes (2003) [FLAC|Lossless]<Rock, Blues, Louisiana Blues, Modern Electric Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_258861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spy  (05:05)
+02. Expectations  (03:58)
+03. Hofner Blue Notes  (02:51)
+04. Paris in Minneapolis  (05:05)
+05. Sвo Paulo Blue  (04:59)
+06. What Became  (04:43)
+07. Detroit  (03:54)
+08. Goodnight Joe  (04:14)
+09. Take The Mingus Train  (04:23)
+10. Alone  (03:39)(   Читать дальше...   )Жанр: Rock, Blues, Louisiana Blues, Modern Electric BluesПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500785   (258648) от 26.05.2012
+
+VA - Return To The Dark Side Of The Moon - A Tribute To Pink Floyd (2006) Limited Edition [WavPack|Lossless]<Psychedelic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_258648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malcolm McDowell, Adrian Belew - Speak To Me, Breathe
+02. Larry Fast, Alan White - On The Run
+03. Gary Green, Billy Sherwood - Time
+04. C.C. White, Billy Sherwood - The Great Gig In The Sky
+05. Tommy Shaw, Billy Sherwood - Money
+06. John Wetton, Dweezil Zappa - Us And Them
+07. Robben Ford, Billy Sherwood - Any Colour You Like
+08. Robbie Krieger, Billy Sherwood - Brain Damage
+09. Billy Sherwood, C.C. White - Eclipse
+10. Billy Sherwood, Robbie Krieger - Where We BelongЖанр: Psychedelic Rock, Prog RockПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500546   (258150) от 24.05.2012
+
+The Rolling Stones - 8 альбомов (1971 - 1981) Remastered, Collector's Edition / 1994, Virgin / [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_258150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Me Up [03:34]
+02. Hang Fire [02:21]
+03. Slave [06:32]
+04. Little T & A [03:23]
+05. Black Limousine [03:34]
+06. Neighbours [03:33]
+07. Worried About You [05:17]
+08. Tops [03:48]
+09. Heaven [04:22]
+10. No Use In Crying [03:26](   Читать дальше...   )1994Жанр: RockПродолжительность: 00: 44:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837823   (257635) от 19.11.2025
+
+Cheap Trick - All Washed Up (2025) [FLAC|Lossless|image + .cue] <Rock, Power Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немногие группы, приближающиеся к своему 50-летию, продолжают постоянно гастролировать, устраивать потрясающие концерты и записывать новые альбомы с таким же дерзким, энергичным энтузиазмом, как Cheap Trick. Выпустив 14 ноября альбом с дерзким названием All Washed Up (альбом номер 21!), они доказывают, что возраст только делает человека лучше. Четыре стиральные машины, (   Читать дальше...   )01. All Washed-Up (3:35)
+02. All Wrong Long Gone (4:08)
+03. The Riff That Won't Quit (2:48)
+04. Bet It All (2:35)(   Читать дальше...   )Жанр: Rock, Power PopПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6DD56B66FAAA71C482FF214607F50C9EF586D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499482   (256442) от 21.05.2012
+
+Roger Waters - The Best (1995) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ballad Of Bill Hubbard (4:19)
+02. What God Wants, part I (6:02)
+03. The Tide Is Turning (afer live aid) (5:45)
+04. The Pros And Cons Of Hitch Hiking (4:40)
+05. Sexual Revolution (4:49)
+06. The Remains Of Our Love (3:10)
+07. Radio Waves (4:58)
+08. Who Needs Information (5:56)
+09. Me Or Him (5:21)
+10. Apparently They Were Travelling (3:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497501   (255727) от 19.05.2012
 
 VA - Glory Days Of Rock 'n' Roll ( 5 x 2CD) (1999) [FLAC|Lossless]<Rock & Roll>
@@ -6,7 +175,7 @@ VA - Glory Days Of Rock 'n' Roll ( 5 x 2CD) (1999) [FLAC|Lossless]<Rock & Roll>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255727.jpg" />
+  <img src="Z:/picture/005/save_picture_255727.jpg" />
 </div>
 
 
@@ -41,7 +210,7 @@ Mono Inc. - Ravenblack (2023) [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwav
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255441.jpg" />
+  <img src="Z:/picture/005/save_picture_255441.jpg" />
 </div>
 
 
@@ -70,7 +239,7 @@ VA - The Rock Collection: Soft Rock (1992) [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255375.jpg" />
+  <img src="Z:/picture/005/save_picture_255375.jpg" />
 </div>
 
 
@@ -99,7 +268,7 @@ Chris Rosander - The Monster Inside (2023) [FLAC|Lossless|image + .cue] <Melodic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255344.jpg" />
+  <img src="Z:/picture/005/save_picture_255344.jpg" />
 </div>
 
 
@@ -128,7 +297,7 @@ Zio - Truewaves (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255343.jpg" />
+  <img src="Z:/picture/005/save_picture_255343.jpg" />
 </div>
 
 
@@ -157,7 +326,7 @@ Destination Unknown - Destination Unknown (2023) [FLAC|Lossless|image + .cue] <A
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255335.jpg" />
+  <img src="Z:/picture/005/save_picture_255335.jpg" />
 </div>
 
 
@@ -186,7 +355,7 @@ T3nors - Naked Soul (2023) Japanese Edition [FLAC|Lossless|image + .cue] <AOR, M
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255333.jpg" />
+  <img src="Z:/picture/005/save_picture_255333.jpg" />
 </div>
 
 
@@ -215,7 +384,7 @@ Chaos and The Cosmos - Our Song (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255274.jpg" />
+  <img src="Z:/picture/005/save_picture_255274.jpg" />
 </div>
 
 
@@ -244,7 +413,7 @@ The Savage Blush - Ether Dome (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255270.jpg" />
+  <img src="Z:/picture/005/save_picture_255270.jpg" />
 </div>
 
 
@@ -273,7 +442,7 @@ VA - Old Rock 90s (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255232.jpg" />
+  <img src="Z:/picture/005/save_picture_255232.jpg" />
 </div>
 
 
@@ -302,7 +471,7 @@ VA - Rock Workout Hits 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255231.jpg" />
+  <img src="Z:/picture/005/save_picture_255231.jpg" />
 </div>
 
 
@@ -331,7 +500,7 @@ Jethro Tull - RökFlöte (RokFlote) (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254947.jpg" />
+  <img src="Z:/picture/005/save_picture_254947.jpg" />
 </div>
 
 
@@ -360,7 +529,7 @@ VA - Worldwide hits 20 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254889.jpg" />
+  <img src="Z:/picture/005/save_picture_254889.jpg" />
 </div>
 
 
@@ -389,7 +558,7 @@ VA - Work Hit 2023 - Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254881.jpg" />
+  <img src="Z:/picture/005/save_picture_254881.jpg" />
 </div>
 
 
@@ -418,7 +587,7 @@ Gina Haley with The Jive Aces - I've Got A Feelin' (2025) [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254313.jpg" />
+  <img src="Z:/picture/005/save_picture_254313.jpg" />
 </div>
 
 
@@ -447,7 +616,7 @@ Mark Knopfler And Emmylou Harris - All The Roadrunning (2006) [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254212.jpg" />
+  <img src="Z:/picture/005/save_picture_254212.jpg" />
 </div>
 
 
@@ -476,7 +645,7 @@ Dr.Hook - Premium Gold Collection (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254207.jpg" />
+  <img src="Z:/picture/005/save_picture_254207.jpg" />
 </div>
 
 
@@ -505,7 +674,7 @@ The Doors - Strange Days (1967) Remastered, Limited Edition, 24 kt Gold CD /1993
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253227.jpg" />
+  <img src="Z:/picture/005/save_picture_253227.jpg" />
 </div>
 
 
@@ -540,7 +709,7 @@ Jethro Tull's Ian Anderson - 53 albums, 16 Box sets, 222CD (1968-2023) [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252234.jpg" />
+  <img src="Z:/picture/004/save_picture_252234.jpg" />
 </div>
 
 
@@ -569,7 +738,7 @@ Mark Knopfler - Headin' Home (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252233.jpg" />
+  <img src="Z:/picture/004/save_picture_252233.jpg" />
 </div>
 
 
@@ -598,7 +767,7 @@ Dave Matthews Band - 28 альбомов, 3 Box Set (1993 - 2023) 68 CD [FLAC|Wa
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251966.jpg" />
+  <img src="Z:/picture/004/save_picture_251966.jpg" />
 </div>
 
 
@@ -612,157 +781,6 @@ Dave Matthews (род. 9 января 1967, Йоханнесбург) — южн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FCE0B0F531B03411FE10D221D07ABD1A9E4792E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835953   (251756) от 08.11.2025
-
-Prost - Believe Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lone Survivor (04:33)
- 02. Believe Again (04:39)
- 03. Comfort Zone (03:54)
- 04. Never Let You Go (04:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F7C4790DD001C4CFAE60243E0716F66CAA659A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835737   (251728) от 07.11.2025
-
-The Who - Who Are You (2025) Box Set, 7XCD, Reissue, Remastered, 	Polydor, Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251728.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Original Album
-CD2 - Glyn Johns Mix, Steven Wilson Mixes
-CD3 - Sessions & Demos
-CD4 - Shepperton 1977(   Читать дальше...   )Жанр: Classic RockПродолжительность: 07:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF867CEE25268562B0A46DF396E23EE82CD6199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835670   (251694) от 07.11.2025
-
-Jimi Hendrix (The Jimi Hendrix Experience) - Bold As Love Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exp
-02. Up From The Skies
-03. Spanish Castle Magic
-04. Wait Until Tomorrow(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 03:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA5082CF3EADEA4DAD3493EDABFD9027F138B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491799   (251303) от 11.05.2012
-
-King Crimson - The 21st Century Guide To King Crimson: Volume One (1969-1974) & Volume Two (1981-2003) 2 x 4 CD Box Sets / 2004, 2005 Discipline Global Mobile/ [FLAC|Lossless]<Progressive ro ...
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VROOOM VROOOM (5:04)
-02. Neurotica (3:40)
-03. Prism (Abridged) (2:54)
-04. One Time (6:53)
-05. Larks' Tongues In Aspic: Part IV (10:47)
-06. ProzaKc Blues (5:28)
-07. The ConstruKction Of Light (8:40)
-08. FraKctured (8:38)
-09. The World's My Oyster Soup Kitchen Floor Wax Museum (5:50)
-10. Sus-tayn-Z (ProjeKct Two) (7:51)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 05:11:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835451   (250834) от 06.11.2025
-
-Ashes And Diamonds - Are Forever (2025) [FLAC|Lossless|image + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashes and Diamonds - это трио состоящее из вокалиста и гитариста Daniel Ash (Bauhaus, Love & Rockets), барабанщика Bruce Smith (PiL, The Pop Group) и басиста Paul Denman (Sade, Sweetback), образовалось в конце 2010-х, но их деятельность была прервана пандемией, другими проектами и другими трудностями. Теперь же они анонсировали свой дебютный альбом Ashes and (   Читать дальше...   )01. Hollywood (3:58)
-02. Teenage Robots (3:02)
-03. On A Rocka (2:40)
-04. ON (2:40)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE353F70EEC8E56BD69A3C9B096E469592869D9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

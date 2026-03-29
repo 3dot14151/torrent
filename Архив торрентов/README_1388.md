@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739877.jpg" />
+  <img src="Z:/picture/008/save_picture_739877.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SimpleMind Pro 1.26.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739872.jpg" />
+  <img src="Z:/picture/008/save_picture_739872.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ KCNcrew Pack 15-2-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739843.jpg" />
+  <img src="Z:/picture/008/save_picture_739843.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ MetaMovie 2.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739840.jpg" />
+  <img src="Z:/picture/008/save_picture_739840.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ SQLPro Studio 1.0.416 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739838.jpg" />
+  <img src="Z:/picture/008/save_picture_739838.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Bootstrap Studio 5.2.1 Lifetime Edition [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739824.jpg" />
+  <img src="Z:/picture/008/save_picture_739824.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ PassMark PerformanceTest 10.0 Build 1007 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739822.jpg" />
+  <img src="Z:/picture/008/save_picture_739822.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ MarginNote 3 v3.2.2002 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739794.jpg" />
+  <img src="Z:/picture/008/save_picture_739794.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739793.jpg" />
+  <img src="Z:/picture/008/save_picture_739793.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Downie 3 v3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739791.jpg" />
+  <img src="Z:/picture/008/save_picture_739791.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739789.jpg" />
+  <img src="Z:/picture/008/save_picture_739789.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ iBoostUp Premium 6 v6.8.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739782.jpg" />
+  <img src="Z:/picture/008/save_picture_739782.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739781.jpg" />
+  <img src="Z:/picture/008/save_picture_739781.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739779.jpg" />
+  <img src="Z:/picture/008/save_picture_739779.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739776.jpg" />
+  <img src="Z:/picture/008/save_picture_739776.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739775.jpg" />
+  <img src="Z:/picture/008/save_picture_739775.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739769.jpg" />
+  <img src="Z:/picture/008/save_picture_739769.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739768.jpg" />
+  <img src="Z:/picture/008/save_picture_739768.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ IObit Software Updater Pro 3.2.0.1659 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739766.jpg" />
+  <img src="Z:/picture/008/save_picture_739766.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ AVS Video Software 12.9.6.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739764.jpg" />
+  <img src="Z:/picture/008/save_picture_739764.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ YouTube By Click Premium 2.2.134 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739763.jpg" />
+  <img src="Z:/picture/008/save_picture_739763.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Adobe Prelude 2020 9.0.1.64 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739759.jpg" />
+  <img src="Z:/picture/008/save_picture_739759.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739752.jpg" />
+  <img src="Z:/picture/008/save_picture_739752.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Duke Dumont - Live @ The Exchange Los Angeles, United States 2019-02-08 [MP3|320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739731.jpg" />
+  <img src="Z:/picture/008/save_picture_739731.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Screens 4.6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739718.jpg" />
+  <img src="Z:/picture/008/save_picture_739718.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739716.jpg" />
+  <img src="Z:/picture/008/save_picture_739716.jpg" />
 </div>
 
 

@@ -1,3 +1,193 @@
+###  Публикация: 1436368   (137200) от 31.12.2020
+
+Хоккей. Молодёжный Чемпионат мира 2021. Групповой турнир. Группа"В" Россия - Швеция (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей. Чемпионаты мира
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137200.jpg" />
+</div>
+
+
+###  Подробнее
+
+45-й Чемпионат мира по хоккею с шайбой среди молодёжных команд (U20) 2021 года.
+31 декабря 2020, четверг. 05:30 МСК
+Группа B
+Стадион: Роджерс Плэйс (Эдмонтон, Канада). Матч прошёл без зрителей(   Читать дальше...   )Телекомпания: Первый HDЖанр: Спорт, хоккейЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00DDA1BE94106FD5FCE00DA3DD3E84525910409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679394   (137161) от 25.11.2023
+
+Хоккей. НХЛ 2023-2024. Питтсбург Пингвинз - Баффало Сэйбрз (24.11.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137161.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 ноября 2023, суббота. 02:00 МСК. Стадион: Кибэнк-центр (Баффало, США), 19 070 зрителей (100% при вместимости 19 070)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3644F848DB8260E82D1E26595C047E8C14F6955D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679355   (137132) от 25.11.2023
+
+Хоккей. НХЛ 2023-2024. Эдмонтон Ойлерз - Вашингтон Кэпиталз (24.11.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137132.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 ноября 2023, пятница. 23:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436BAF8AE0CBB586839AA2FC02DB0485970F316B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825565   (136724) от 17.10.2025
+
+НХЛ 2025-2026. Питтсбург Пингвинз - Лос-Анджелес Кингз (16.10.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136724.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 октября 2025 пятница 05:00 МСК. Стадион: Крипто.ком-Арена (Лос-Анджелес, США) вместимость: 18867.
+Главный судья: Кори Сиврет (Милгров, Канада); Главный судья: Келли Сазерлэнд (Ричмонд, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04948250B30588C685F12BFE7F72DF1E09EEC85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436461   (136663) от 31.12.2020
+
+Горные лыжи. Кубок мира 2020-2021. 8-й Этап. Валь д'Изер (Франция). Женщины. Скоростной спуск (2020) IPTVRip [H.264/1080p-LQ]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубка мира по горнолыжному спорту 2020-2021 года
+19 декабря 2020 года
+8-й Этап. Валь д'Изер (Франция).
+Женщины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A051DB3319741BA292BEB8FB97ECCF5F10EAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679628   (135182) от 26.11.2023
+
+Формула 1. Сезон 2023. Этап 23. Гран-при Абу-Даби. Квалификация (25.11.2023) WEBRip [H.264/720p] [50fps] F1TV
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135182.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 ноября 2023, суббота 17:00 МСК. Этап 23, Абу-Даби, ОАЭ. Гран-при Абу-Даби. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6C8292807BA0601351A89EA2FB2941EBEB81D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679661   (135087) от 26.11.2023
+
+Хоккей. НХЛ 2023-2024. Торонто Мэйпл Лифс - Питтсбург Пингвинз (25.11.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135087.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 ноября 2023, воскресенье. 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 229 зрителей (98% при вместимости 18 673)
+Линейный: Келли Сазерлэнд (Ричмонд, Канада)Телекомпания: SNPITЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18DA99A3741B13226659C6058ED1BAD6A56CC19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679977   (134953) от 27.11.2023
 
 MotoGP. Этап 20. Гран-при Валенсии. Гонка (26.11.2023) WEBRip [H.264/1080p-LQ] [hand made 50fps]
@@ -6,7 +196,7 @@ MotoGP. Этап 20. Гран-при Валенсии. Гонка (26.11.2023) W
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134953.jpg" />
 </div>
 
 
@@ -32,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134843.jpg" />
 </div>
 
 
@@ -58,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134423.jpg" />
 </div>
 
 
@@ -85,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134289.jpg" />
 </div>
 
 
@@ -111,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134051.jpg" />
 </div>
 
 
@@ -138,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133894.jpg" />
 </div>
 
 
@@ -164,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133625.jpg" />
 </div>
 
 
@@ -191,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133274.jpg" />
 </div>
 
 
@@ -218,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133270.jpg" />
 </div>
 
 
@@ -245,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132517.jpg" />
 </div>
 
 
@@ -272,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132511.jpg" />
 </div>
 
 
@@ -299,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131943.jpg" />
 </div>
 
 
@@ -326,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131939.jpg" />
 </div>
 
 
@@ -353,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131293.jpg" />
 </div>
 
 
@@ -380,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131224.jpg" />
 </div>
 
 
@@ -406,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130720.jpg" />
 </div>
 
 
@@ -433,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130717.jpg" />
 </div>
 
 
@@ -460,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130622.jpg" />
 </div>
 
 
@@ -488,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130499.jpg" />
 </div>
 
 
@@ -501,197 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E2286495779361E84B4C0437B3C9A4C86CB5B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524817   (130400) от 18.01.2022
-
-Смешанные единоборства. UFC on ESPN 32: Келвин Кэттер - Гига Чикадзе / UFC on ESPN 32: Kattar vs. Chikadze. Full Event (16.01.2022) WEB-DLRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Единоборства, Бои без правил
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130400.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 января в Лас-Вегасе (Невада, США) на фирменной арене «UFC APEX» состоялся турнир UFC on ESPN 32. В главном поединке первого значимого турнира в 2022 году американец Келвин Кэттер сразился с грузином Гигай Чикадзе, который стал настоящим открытием в 2021-м. Чикадзе идет на серии из семи побед, а в последнем бою ему удалось нокаутировать в третьем раунде бразильца (   Читать дальше...   )Телекомпания: UFC Fight PassЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 05:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D93A766977F5A6688DC91E3E177FF0CE091F765E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525161   (130164) от 19.01.2022
-
-Хоккей. НХЛ 2021-2022. Виннипег Джетс  - Вашингтон Кэпиталз (18.01.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130164.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 января 2022, среда. 03:00 МСК
-Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Рид Андерсон (Калгари, Канада); Главный судья: Джон Макисаак (Труро, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450F08DE75B3D481003A85919165304853FC3D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525705   (129375) от 21.01.2022
-
-Хоккей. НХЛ 2021-2022. Вашингтон Кэпиталз - Бостон Брюинз (20.01.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129375.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 января 2022, пятница. 03:00 МСК
-Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
-Главный судья: Кайл Реман (Стеттлер, Канада); Главный судья: Кендрик Николсон (Милвертон, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9579CD9CB2FC20923914A5CC7FB95236AA0567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525701   (129366) от 21.01.2022
-
-Хоккей. НХЛ 2021-2022. Оттава Сенаторз - Питтсбург Пингвинз (20.01.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129366.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 января 2022, пятница. 03:00 МСК
-Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 060 зрителей (97% при вместимости 18 673)
-Главный судья: Крис Руни (Бостон, США); Главный судья: Митч Даннинг (Текумсе, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E66E1CBE7CA163AA137C69C4B1596876602E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525890   (129005) от 22.01.2022
-
-Хоккей. НХЛ 2021-2022. Питтсбург Пингвинз - Коламбус Блю Джекетс (21.01.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129005.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 января 2022, суббота. 03:00 МСК
-Стадион: Нейшнвайд-Арена (Коламбус, США), 18 477 зрителей (97% при вместимости 19 115)
-Главный судья: Кайл Реман (Стеттлер, Канада); Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5303AD377A34BE8EFB57446872BA74F0110D74DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824550   (128849) от 15.10.2025
-
-Роналду: От Лиссабона до легенды / Ronaldo: From Lisbon to legend (2024) WEBRip [H.264/1080p] [VO]
-
->>Спорт и активный отдых
->>Футбол
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это путь легенды «Спортинга» Криштиану Роналду. От скромного начала до спортивной славы: проследите путь человека, вдохновившего столь многих в футболе. В чём его будущее? В этом его наследие.Производство: Великобритания / Entertain Me ProductionsЖанр: документальный, биография, спортРежиссер: Ник РэндаллПеревод: Одноголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русскиеПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98FB68611A3D5DA167EDB1917187C8680B12637A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824559   (128845) от 15.10.2025
-
-НХЛ 2025-2026. Питтсбург Пингвинз - Анахайм Дакс (14.10.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128845.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 октября 2025 среда 05:30 МСК. Стадион: Хонда-центр (Анахайм, США) вместимость: 17495.
-Главный судья: Джордан Самуэль-Томас (Вест Хартфорд, США); Главный судья: Крис Ли (Сейнт Джон, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E649B7A2D787DDDD43B154C3D22C86CBA35D8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

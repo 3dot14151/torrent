@@ -1,3 +1,135 @@
+###  Публикация: 1735321   (50770) от 07.07.2024
+
+Контрабандистки / Milsu / Smugglers (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1970-е, прибрежный городок Кунчхон. Решив поднимать со дна нелегальные грузы, группа ныряльщиц вскоре привлекает внимание начальника местной таможни. Тот устраивает облаву, во время которой происходит ужасный несчастный случай, пойманные девушки получают сроки, и только Чо Чхун-джа умудряется сбежать. Два года спустя, промышляя контрабандой Сеуле, Чхун-джа попадает (   Читать дальше...   )Производство: Filmmaker R&K, Next Entertainment WorldЖанр: криминал, комедияРежиссер: Рю Сын-ванАктеры: Ким Хе-су, Ём Джон-а, Чо Ин-сон, Ко Мин-щи, Пак Чон-мин, Ким Джон-су, Ким Джэ-хва, Пак Кён-хе, Пак Чун-мён, Чу Бо-биПеревод: Многоголосый профессиональный (Кинопоиск HD, Jaskier)Язык озвучки: Русский, корейскийСубтитры: русские, английскиеПродолжительность: 02:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C3FEDF2BD5B14A73176F4CDCA84090398F795A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735945   (50509) от 10.07.2024
+
+Нечисть в Сеуле / The Sin (2024) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Си Ён была выбрана на главную роль в экспериментальном художественном фильме, посвященном ее танцевальной специальности. Вместе со своей подругой по колледжу Че Юн они исполняют геометрические танцы в рамках шаманской церемонии под руководством режиссера фильма. Однако их мир переворачивается, когда член съемочной группы внезапно падает с крыши, но его, казалось (   Читать дальше...   )Производство: Корея Южная / Lotte EntertainmentЖанр: ужасыРежиссер: Хан Дон-сокАктеры: Ким Юн-хе, Сон И-джэ, Пак Чи-хун, Ли Сан-аПеревод: Многоголосый любительский (Head Pack Films)Язык озвучки: Русский, КорейскийСубтитры: ОтсутствуютПродолжительность: 01:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E828948CC3FCD106A69C6A0D6D1B9CC79ED38F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736086   (50353) от 11.07.2024
+
+Сквозь море ярости / She guo fen nu de hai / Across the Furious Sea (2023) WEB-DL [H.265/2160p] [4K, SDR, 10-bit] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнав, что его дочь Лина пропала в Токио, куда она несколько лет назад поехала учиться, обычный рыбак Цзинь Юньши летит в Японию. На месте выясняется, что девушка найдена мёртвой — истекла кровью от 17 ножевых ранений. Вне себя от ярости Юньши начинает разыскивать главного подозреваемого — китайского парня Лины, избалованного мажора — который сбегает обратно в Китай.Производство: Китай / Beijing Standard Image Culture, Lian Ray PicturesЖанр: триллер, криминал, боевик, детективРежиссер: Цао БаопинАктеры: Хуан Бо, Чжоу Сюнь, Чжан Юхао, Чжоу Ижань, Цзу Фэн, Янь Бэй, Сунь Анькэ, Янь Ни, Ван Сюнь, Цуёси АбэПеревод: Одноголосый любительский (Franek Monk)Язык озвучки: русский, китайскийСубтитры: китайские/английские (hardsub), английскиеПродолжительность: 02:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63666C78C21B4A11A7DB98B25A64CC8BD797CD4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736721   (50121) от 13.07.2024
+
+Мужик-медведь / Ungnami / Bear Man (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50121.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Южной Корее существует поверье, что если медведь съест полынь и чеснок, то превратится в человека. Именно это случайно и произошло с двумя братьями-медвежатами. Они стали мальчишками, но волею судеб были разлучены. Один получил имя Ун-нам и был усыновлен доброй и любящей парой, а второго, Джон-сика, воспитал босс преступной группировки. Братья выросли, ведя совсем (   Читать дальше...   )Производство: Корея Южная / Kimchi PicturesЖанр: боевик, комедия, фантастикаРежиссер: Пак Сон-гванАктеры: Пак Сон-ун, Ли И-гён, Ём Хе-ран, Чхве Мин-су, О Даль-су, Юн Джэ-мун, Пэк Чи-хе, Со Дон-вон, Хан Да-соль, Со Хён-уПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C851B750BBC516008623E17A6408AE4FB582B140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736859   (50020) от 14.07.2024
+
+Кулак легенды / Fist of Legend / Jing wu ying xiong (1994) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50020.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале XX века во время японской оккупации Китая самураи, кичившиеся своим непобедимым каратэ, жестоко убили миролюбивого учителя кунг-фу Хо. Деморализованный народ даже не помышлял о сопротивлении. Устрашились все, кроме Жень Чена, самого одаренного ученика погибшего мастера.
+
+Узнав о случившемся, герой клянется во что бы то ни стало отомстить убийцам. И когда (   Читать дальше...   )Производство: Гонконг / Golden Harvest Company, Eastern ProductionsЖанр: боевик, драмаРежиссер: Гордон ЧанАктеры: Джет Ли, Синобу Накаяма, Чинь Сиу-Хо, Билли Чоу, Ясуаки Курата, Пол Чунь, Ада Чой, Юэнь Чун-Янь, Тосимити Такахаси, Сук-Муи ТамПеревод: многоголосый профессиональный (Видеосервис)Язык озвучки: русскийСубтитры: русские (forced, full), английскиеПродолжительность: 01:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CE9ADE89DDAFCB483DDD5A7050D35B0B67E633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737098   (49957) от 15.07.2024
 
 Раскрашенная кожа / Hua Pi / Painted Skin (2022) WEB-DLRip [H.265/1080p] [MVO] [PR]
@@ -6,7 +138,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49957.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49928.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49868.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49806.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49682.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49585.jpg" />
 </div>
 
 
@@ -163,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49486.jpg" />
 </div>
 
 
@@ -189,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49449.jpg" />
 </div>
 
 
@@ -215,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49184.jpg" />
 </div>
 
 
@@ -241,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49175.jpg" />
 </div>
 
 
@@ -267,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49096.jpg" />
 </div>
 
 
@@ -293,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49076.jpg" />
 </div>
 
 
@@ -319,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48749.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48742.jpg" />
 </div>
 
 
@@ -371,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48519.jpg" />
 </div>
 
 
@@ -397,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48496.jpg" />
 </div>
 
 
@@ -423,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48482.jpg" />
 </div>
 
 
@@ -449,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48397.jpg" />
 </div>
 
 
@@ -475,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48238.jpg" />
 </div>
 
 
@@ -501,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48097.jpg" />
 </div>
 
 
@@ -527,7 +659,7 @@ KKN. Дух деревни танцев / KKN Badarawuhi di Desa Penari / Dancin
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47950.jpg" />
 </div>
 
 
@@ -538,137 +670,6 @@ KKN. Дух деревни танцев / KKN Badarawuhi di Desa Penari / Dancin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62ABDB19AC2F335892BD17E5627D5AC1AB1DB938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374967   (47696) от 06.08.2024
-
-Пылающий / Beoning / Burning (2018) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой человек Ли Джон-су, ничем особо не занятый, встречает соседскую девушку Хэ-ми, с которой они вместе росли. Та собирается съездить в Африку и просит нового знакомого присмотреть за её кошкой, а возвращается из поездки не одна, а с состоятельным молодым человеком Беном. Однажды парочка приходит к Джон-су, и Бен рассказывает о своем тайном хобби. С этого момента (   Читать дальше...   )Производство: Корея Южная / Pine House Film, NHK, Now FilmsЖанр: Детектив, триллер, драмаРежиссер: Ли Чхан-донАктеры: Ю А-ин, Чон Джон-со, Стивен Ян, Ким Су-гён, Чхве Сын-хо, Мун Сон-гын, Мин Бок-ки, Пан Хе-ра, Ли Бон-нён, Пак Сын-тхэПеревод: Дублированный (DVD R5 НД Плэй)Субтитры: Русские (R5, Focs), Английские (Full, SDH)Продолжительность: 02:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478A53BFFB4E0D2E1EAA61CDE23A7DB8BFDAA2DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741382   (47690) от 06.08.2024
-
-Путь дракона / Meng long guo jiang / The Way of the Dragon (1972) UHD BDRemux [H.265/2160p] [4K, SDR, 10-bit] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тан приезжает из Гонконга в Рим, чтобы помочь друзьям семьи, чей ресторан задумали отобрать местные мафиози. Привыкшие всегда получать то, что захотят и не останавливаться ни перед чем, бандиты совершили большую ошибку, недооценив с виду скромного молодого человека. Не сумев справиться с ним своими силами, мафиози нанимают лучших европейских и японских мастеров боевых (   Читать дальше...   )Производство: Гонконг / Golden Harvest Films, Concord Productions, Golden Harvest CompanyЖанр: боевик, криминалРежиссер: Брюс ЛиАктеры: Брюс Ли, Нора Миао, Чак Норрис, Вэй Пинао, Роберт Уолл, Ван Вэнг, Тони Лю, Юникорн Чан, Мализа Лонго, Фу Чинг Чен, Чин ТиПеревод: Многоголосый профессиональный (Superbit, Twister, СТС, Ren-TV)Язык озвучки: Русский, Английский, КитайскийСубтитры: Русские, английскиеПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CABDE48A0CD76CA738090F27D48263AA13CC09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345523   (47415) от 09.08.2024
-
-История двух сестер / Janghwa, Hongryeon / A Tale of Two Sisters (2003) BDRip [H.265/1080p-LQ] [10-bit] [AVO] [PR]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две сестры возвращаются домой после продолжительного пребывания в психиатрической лечебнице. Ситуация в доме носит напряженный характер, так как их мачеха очень нервно себя ведёт. Вскоре начинают происходить странные вещи, сёстрам кажется, что в доме есть кто-то ещё.
-По мотивам корейской народной сказки эпохи Чосон "Janghwa Hongreyon jeon / Сказка про Розу и (   Читать дальше...   )Производство: Корея Южная / B.O.M. Film Productions Co. Ltd., Masulpiri FilmsЖанр: Ужасы, Триллер, ДрамаРежиссер: Ким Джи-унАктеры: Лим Су-джон, Мун Гын-ён, Ём Джон-а, Ким Гап-су, У Ги-хон, Ли Дэ-ён, Ли Сын-би, Но Сын-джин, Пак Ми-хёнПеревод: АвторскийСубтитры: русскиеПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE6DF32235510DF611F77E788516B450B10A631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742022   (47364) от 09.08.2024
-
-Близнецы-драконы / Seong lung wui / Twin Dragons (1992) BDRip [H.265/1080p] [10-bit] [GBR Transfer Hong Kong Cut Remastered]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два идентичных близнеца были разлучены при рождении и оказались в разных семьях и по разные стороны Тихого океана. Один из близнецов — специалист по боевым искусствам, хулиган и задира, работает автомехаником в гараже отеля, в котором останавливается во время гастролей в Гонконге его брат — знаменитый музыкант всемирно известный дирижер из Нью-Йорка. Когда они встретятся, (   Читать дальше...   )Производство: Гонконг / Golden Way Films Ltd., Hong Kong Film Directors GuildЖанр: боевик, комедияРежиссер: Ринго Лам, Цуй ХаркАктеры: Джеки Чан, Мэгги Чун, Тедди Робин, Джеймс Вон, Сильвия Чан, Кирк Вон, Дэвид Цзян, Мэйбл Чун, Альфред Чун, Джонни ВанПеревод: многоголосый профессиональный, двухголосый профессиональный, авторский, любительский одноголосыйЯзык озвучки: русский, английский, китайскийСубтитры: русские, английские (SDH)Продолжительность: 01:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00ED0E8B36B10D2B80CBA1F6F067FE54A7720A6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917047   (47307) от 10.08.2024
-
-Великий гипнотизёр / Cui mian da shi (2014) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47307.jpg" />
-</div>
-
-
-###  Подробнее
-
-История об известном психологе с блестящей карьерой. Однажды он сталкивается с проблемным пациентом, встречи с которым даются ему непросто…Производство: Китай | Wanda Media Co.Жанр: Триллер, Драма, ДетективРежиссер: Лэсте ЧэньАктеры: Джин Ху, Жонг Люй, Карен Мок, Яоцин Ван, Сюй ЧжэнПеревод: Одноголосый закадровый, авторский (Дольский), Любительский одноголосыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA14B8D453D332593F63E441A0A251B9BB21CB3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

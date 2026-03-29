@@ -6,7 +6,7 @@ Xara Designer Pro X10 10.1.5.37495 + Content Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696843.jpg" />
+  <img src="Z:/picture/008/save_picture_696843.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ KakaoTalk 2.2.1.1211 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696763.jpg" />
+  <img src="Z:/picture/008/save_picture_696763.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Coolmuster Android Assistant 4.2.74 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696737.jpg" />
+  <img src="Z:/picture/008/save_picture_696737.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ R-Drive Image Technician 6.2 Build 6203 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696727.jpg" />
+  <img src="Z:/picture/008/save_picture_696727.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ JetBrains Rider 2018.1 Build #RD-181.4379.1191 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696726.jpg" />
+  <img src="Z:/picture/008/save_picture_696726.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ JumpShare 2.0.5.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696667.jpg" />
+  <img src="Z:/picture/008/save_picture_696667.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IDrive 6.5.1.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696662.jpg" />
+  <img src="Z:/picture/008/save_picture_696662.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Norton AntiVirus 22.14.0.54 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696616.jpg" />
+  <img src="Z:/picture/008/save_picture_696616.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Piriform CCleaner Professional 5.42.6495 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696614.jpg" />
+  <img src="Z:/picture/008/save_picture_696614.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Ransomware Defender Professional 3.5.8 RePack by D!akov [MultiRu]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696592.jpg" />
+  <img src="Z:/picture/008/save_picture_696592.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Windows 10 Manager 2.2.7 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696497.jpg" />
+  <img src="Z:/picture/008/save_picture_696497.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Google Chrome 58.0.3029.110 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696482.jpg" />
+  <img src="Z:/picture/008/save_picture_696482.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.05.11 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696458.jpg" />
+  <img src="Z:/picture/008/save_picture_696458.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ CCleaner 5.42.6495 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696456.jpg" />
+  <img src="Z:/picture/008/save_picture_696456.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Telegram Desktop 0.9.51 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696425.jpg" />
+  <img src="Z:/picture/008/save_picture_696425.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ CDBurnerXP 4.5.7.6229 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696420.jpg" />
+  <img src="Z:/picture/008/save_picture_696420.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Flip PDF Professional 2.3.24.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696418.jpg" />
+  <img src="Z:/picture/008/save_picture_696418.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ MEGA Sync Client 2.9.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696417.jpg" />
+  <img src="Z:/picture/008/save_picture_696417.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Baidu Cloud 5.4.5 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696283.jpg" />
+  <img src="Z:/picture/008/save_picture_696283.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ LINE 4.7.0.1027 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696279.jpg" />
+  <img src="Z:/picture/008/save_picture_696279.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ FastStone Photo Resizer 3.6 RePack (& Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696190.jpg" />
+  <img src="Z:/picture/008/save_picture_696190.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4833.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696106.jpg" />
+  <img src="Z:/picture/008/save_picture_696106.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ FileMenu Tools 7.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696102.jpg" />
+  <img src="Z:/picture/008/save_picture_696102.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ NVIDIA GeForce Experience 2.11.3.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696096.jpg" />
+  <img src="Z:/picture/008/save_picture_696096.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ NVIDIA GeForce Desktop 368.51 Hotfix driver (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696037.jpg" />
+  <img src="Z:/picture/008/save_picture_696037.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ StartIsBack++ 1.3 RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696033.jpg" />
+  <img src="Z:/picture/008/save_picture_696033.jpg" />
 </div>
 
 

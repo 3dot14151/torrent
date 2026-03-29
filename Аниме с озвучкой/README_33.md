@@ -1,3 +1,29 @@
+###  Публикация: 1034613   (372685) от 04.11.2016
+
+Shokugeki no Souma: Ni no Sara / Кулинарные Поединки Сомы: Второе Блюдо TV-2 [2016, TV, 13] HDTV 720p raw + rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории о невероятном обучении и жизни Юкихиро Сомы в элитной кулинарной академии. Что же ждёт в дальнейшем нашего героя и его друзей? Сможет ли он пробиться на «Олимп» и доказать всем, что он самый искусный кулинар нашего времени. Сможет ли превзойти отца и уберечь семейный ресторанчик? А так же стереть самодовольную улыбку с лица Эрины Накири, которая (   Читать дальше...   )Производство: Япония, J.C. StaffЖанр: комедияПродолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B7DBD3132726C6EC224077D5E111E4A3281078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321603   (371727) от 26.09.2019
 
 Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? / Hensuki / Влюбишься ли ты в извращенку, если она милая? [2019, TV, 12 ep] WEB-DL 1080p Rus
@@ -6,7 +32,7 @@ Kawaikereba Hentai demo Suki ni Natte Kuremasu ka? / Hensuki / Влюбишьс�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371727.jpg" />
+  <img src="Z:/picture/008/save_picture_371727.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Gekijouban Fate/Stay Night: Unlimited Blade Works / Fate/Stay Night: Unlimited B
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370715.jpg" />
+  <img src="Z:/picture/008/save_picture_370715.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367971.jpg" />
+  <img src="Z:/picture/008/save_picture_367971.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Crusher Joe: Hyouketsu Kangoku no Wana | Крушила Джо OVA-1 [1989, OVA,
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364515.jpg" />
+  <img src="Z:/picture/008/save_picture_364515.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Crusher Joe: Saishuu Heiki Ash | Крушила Джо OVA-2 [1989, OVA, 1 эп.
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364514.jpg" />
+  <img src="Z:/picture/008/save_picture_364514.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Gochuumon wa Usagi Desu ka? | Is the Order a Rabbit? | Кролика заказ
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364513.jpg" />
+  <img src="Z:/picture/008/save_picture_364513.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ Cowboy Bebop / Ковбой Бибоп [1998-1999, TV, 26] DVDrip raw rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362369.jpg" />
+  <img src="Z:/picture/008/save_picture_362369.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Shinseiki Evangelion / Neon Genesis Evangelion / Евангелион новог
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_362157.jpg" />
+  <img src="Z:/picture/005/save_picture_362157.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ Machikado Mazoku | Demon Girl Next Door | Городская демонесса 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362069.jpg" />
+  <img src="Z:/picture/008/save_picture_362069.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ Hanamonogatari / История цветов [2014, Special, 5 из 5] BDRip 108
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360681.jpg" />
+  <img src="Z:/picture/008/save_picture_360681.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ Cop Craft | Мастерство копа | Детективные будни: �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360437.jpg" />
+  <img src="Z:/picture/008/save_picture_360437.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ One Piece Movie 14: Stampede | One Piece Movie 14: Stampede | Ван Пис Фи
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359711.jpg" />
+  <img src="Z:/picture/008/save_picture_359711.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Pokemon Diamond and Pearl: Battle Dimension (11 Season) / Покемон Алм�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_354331.jpg" />
+  <img src="Z:/picture/005/save_picture_354331.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ Grand Blue / Grand Blue Dreaming / Бескрайняя синева [2018, TV, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353564.jpg" />
+  <img src="Z:/picture/008/save_picture_353564.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ Kizumonogatari | Истории ран [2016-2017, Movie, 3 из 3] BDrip 720p 1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352708.jpg" />
+  <img src="Z:/picture/008/save_picture_352708.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ Macross: Do You Remember Love? / Макросс: Помнишь ли ты люб
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351946.jpg" />
+  <img src="Z:/picture/008/save_picture_351946.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ Monogatari Series: Second Season / Истории, сезон второй [2013
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351329.jpg" />
+  <img src="Z:/picture/008/save_picture_351329.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ Owari no Seraph / Seraph of the End: Vampire Reign / Последний Сера
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348293.jpg" />
+  <img src="Z:/picture/008/save_picture_348293.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ Tokyo Ghoul A / Токийский гуль [ТВ-2] [2014, TV, 12 ep] BDRip Hi1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348265.jpg" />
+  <img src="Z:/picture/008/save_picture_348265.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347219.jpg" />
+  <img src="Z:/picture/008/save_picture_347219.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345106.jpg" />
+  <img src="Z:/picture/008/save_picture_345106.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 из 12] WEB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344924.jpg" />
+  <img src="Z:/picture/008/save_picture_344924.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ Blade and Soul / Blade & Soul / Клинок и Душа [2014, TV, 13 ep + 7 SP
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343689.jpg" />
+  <img src="Z:/picture/008/save_picture_343689.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342833.jpg" />
+  <img src="Z:/picture/008/save_picture_342833.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340252.jpg" />
+  <img src="Z:/picture/008/save_picture_340252.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E45561082D13CF23942A50D01E14DA12B383DB56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565988   (338040) от 26.09.2022
-
-Прима-кукла | Prima Doll [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338040.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чёрная кошка» — кафе, расположенное в пятом районе имперской столицы. Работающие там девушки — автономные механические куклы, также известные, как автоматоны. Изначально они создавались как оружие для войны, которая закончилась всего несколько лет назад. Теперь же им ищут место в этом мире.Производство: Япония / Студия Bibury Animation StudiosЖанр: Повседневность, драма, фантастикаРежиссер: Танака МотокиЯзык озвучки: Русский многоголосый, закадровый (AniDub), ЯпонскийСубтитры: Русские (софтсаб полные) (nnm-club^anime)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C168CEE41E25C0AB4DC917C90881654BF218FA53
 ```
 
 https://mybot314.ru/tekegram_catalog/

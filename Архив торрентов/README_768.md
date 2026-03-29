@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877347.jpg" />
+  <img src="Z:/picture/005/save_picture_877347.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 93.0.4577.82 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877343.jpg" />
+  <img src="Z:/picture/005/save_picture_877343.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Allied - Obscurity EP (2016) [MP3|320 кб/с] <Drum & Bass, Neurofunk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877319.jpg" />
+  <img src="Z:/picture/005/save_picture_877319.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Tipard Video Enhancer 1.0.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877316.jpg" />
+  <img src="Z:/picture/005/save_picture_877316.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Ashampoo Snap 8.0.9 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877309.jpg" />
+  <img src="Z:/picture/005/save_picture_877309.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_877293.jpg" />
+  <img src="Z:/picture/008/save_picture_877293.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877288.jpg" />
+  <img src="Z:/picture/005/save_picture_877288.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ SparkyLinux 3.6 (Легкие дистрибутивы) [i586] 7xDVD, 1xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877278.jpg" />
+  <img src="Z:/picture/005/save_picture_877278.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Manjaro Linux 0.8.5 (Arch + Cinnamon, GNOME 3) [i686, x86-64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877256.jpg" />
+  <img src="Z:/picture/005/save_picture_877256.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ HitPaw Watermark Remover 1.3.2.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877253.jpg" />
+  <img src="Z:/picture/005/save_picture_877253.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877243.jpg" />
+  <img src="Z:/picture/005/save_picture_877243.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ AOMEI Backupper Technician Plus 6.6.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877229.jpg" />
+  <img src="Z:/picture/005/save_picture_877229.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877227.jpg" />
+  <img src="Z:/picture/005/save_picture_877227.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ UnHackMe 12.90.2021.0907 (акция Comss) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877226.jpg" />
+  <img src="Z:/picture/005/save_picture_877226.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ AOMEI Backupper Pro 6.6 [Multi/Ru] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877225.jpg" />
+  <img src="Z:/picture/005/save_picture_877225.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Wise Registry Cleaner 9.11.585 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877206.jpg" />
+  <img src="Z:/picture/005/save_picture_877206.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Kendrick Lamar - untitled unmastered (2016) [MP3|192 кб/с] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877205.jpg" />
+  <img src="Z:/picture/005/save_picture_877205.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ AnyMP4 Audio Converter 6.3.16 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877196.jpg" />
+  <img src="Z:/picture/005/save_picture_877196.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ OmniPlan Pro 3.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877195.jpg" />
+  <img src="Z:/picture/005/save_picture_877195.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ R-Studio 7.8 Build 160829 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877191.jpg" />
+  <img src="Z:/picture/005/save_picture_877191.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877149.jpg" />
+  <img src="Z:/picture/005/save_picture_877149.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877147.jpg" />
+  <img src="Z:/picture/005/save_picture_877147.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_877137.jpg" />
+  <img src="Z:/picture/008/save_picture_877137.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Discovery: Выжить любой ценой: Гватемала [4 сезон|
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877132.jpg" />
+  <img src="Z:/picture/005/save_picture_877132.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877109.jpg" />
+  <img src="Z:/picture/005/save_picture_877109.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ MAGIX Vegas Pro 19.0 Build 361 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_877108.jpg" />
+  <img src="Z:/picture/008/save_picture_877108.jpg" />
 </div>
 
 

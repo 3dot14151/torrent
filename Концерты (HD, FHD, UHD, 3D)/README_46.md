@@ -1,3 +1,90 @@
+###  Публикация: 1720863   (57509) от 05.05.2024
+
+Квартирник у Маргулиса. Виталий Гогунский (04.05.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актер, певец и продюсер Виталий Гогунский проявил интерес к музыке еще в детстве, когда решил заниматься в музыкальной школе по классу фортепиано. В дальнейшем он даже был признан лучшим пианистом областного конкурса в своей возрастной категории. Виталий участвовал и побеждал в музыкальных шоу, а также выступал композитором песен в телевизионных проектах. В этот (   Читать дальше...   )00:00:06 Вечно молодым
+00:06:31 Без правил
+00:13:15 Огнем бенгальским
+00:20:16 Останься(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:245C41DD7CA8258BA870BC9CE7C38D66DA05A9C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 790559   (57456) от 06.05.2024
+
+Кипелов - X лет: Крокус Сити Холл 1.12.2012 (2013) BDRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57456.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 декабря 2012 года в концертном зале «Крокус Сити Холл» группа «Кипелов» отметила свое 10-летие со своими лучшими песнями за десять лет истории группы. Каждый концерт - это особенное, оригинальное шоу, и даже сложно представить, насколько грандиозен размах юбилейного концерта в Москве! Но это не главное. Главное - это музыка и у вас есть возможность прикоснуться (   Читать дальше...   )01. Интро
+02. Жить вопреки
+03. Еще повоюем
+04. Вавилон(   Читать дальше...   )Производство: Россия / Навигатор РекордсЖанр: Heavy MetalСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADAB2E29728FF8A6AD2A1A6A2F3149BA35DAAE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722573   (56790) от 12.05.2024
+
+Квартирник у Маргулиса. Игорь Растеряев (11.05.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артист Игорь Растеряев стал популярным в 2010-м, когда вышла композиция «Комбайнеры», в 2011 году выпустил дебютный альбом «Русская дорога». Растеряева можно назвать уникальным исполнителем, его творчество любят и ценят представили самых разных музыкальных жанров и слушатели разных возрастов.00:00:04 Русская дорога
+00:05:10 Ленинградская песня
+00:12:18 Георгиевская ленточка
+00:20:22 Дядька(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2316167516110C5AFE548A3B0EF637145FA697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722101   (56710) от 13.05.2024
 
 Квартирник у Маргулиса. Константин Хабенский и «Ундервуд» (09.05.2024) WEBRip [H.264/1080p]
@@ -6,7 +93,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56710.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Queen: Live Aid (1985) BDRemux [H.265/1080p] [10-bit] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55339.jpg" />
 </div>
 
 
@@ -65,7 +152,7 @@ Queen: Rock Montreal (1981) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [EN / EN S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55332.jpg" />
 </div>
 
 
@@ -94,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55306.jpg" />
 </div>
 
 
@@ -123,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53540.jpg" />
 </div>
 
 
@@ -152,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53292.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53090.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ BAND-MAID - World Domination Tour at Zepp Tokyo (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52996.jpg" />
 </div>
 
 
@@ -240,7 +327,7 @@ BAND-MAID - Tour Autumn-Winter 2017 at Studio Coast (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52985.jpg" />
 </div>
 
 
@@ -270,7 +357,7 @@ BAND-MAID - World Domination Tour (Shinka) at Line Cube Shibuya (Shibuya Public 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52978.jpg" />
 </div>
 
 
@@ -300,7 +387,7 @@ BAND-MAID - Tokyo Garden Theater OKYUJI (2023) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52809.jpg" />
 </div>
 
 
@@ -330,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52775.jpg" />
 </div>
 
 
@@ -356,7 +443,7 @@ Scooter - I want you to stream! (Live) (2020) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51272.jpg" />
 </div>
 
 
@@ -385,7 +472,7 @@ Animelo Summer Live - evolution (2010) Blu-Ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50859.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50221.jpg" />
 </div>
 
 
@@ -443,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49946.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47535.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Linkin Park: Дорога к революции (Живой концерт в М
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47522.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47125.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Dream fest. День звезд российской эстрады (2024) WEBRi
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47008.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45959.jpg" />
 </div>
 
 
@@ -608,7 +695,7 @@ Mylene Farmer - Avant que l'ombre A Bercy (2006) BDRip [H.265/1440p] [10-bit] [A
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44776.jpg" />
 </div>
 
 
@@ -634,7 +721,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44700.jpg" />
 </div>
 
 
@@ -646,91 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B694712BAC2A100A86FD7E0992D1CD4F38052B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748052   (44178) от 08.09.2024
-
-Квартирник у Маргулиса. Drummatix (07.09.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Drummatix — сценическое имя Екатерины Бардыш, исполнительницы хип-хопа, битмейкера и актрисы. Псевдоним объединяет две ее страсти: музыку и театральное искусство. Исполнительница популярна как на хип-хоп, так и на альтернативной сцене, потому что её песни — гремучая смесь из фастфлоу с налетом хардкора и этно. Кроме того, артистка много экспериментирует: Екатерина (   Читать дальше...   )00:00:05 Тайлаган
-00:05:19 Успокой
-00:11:23 Темным по Белому
-00:17:41 Временно(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Хип-хоп, этно ("симбиоз" фолк-вокала и хип-хопа)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:07:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481DD81CB9FEDB027CF94824C48C4CEFDE7FD816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749681   (43457) от 15.09.2024
-
-Квартирник у Маргулиса. Юбилей Александра Реввы (14.09.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александру Ревве — 50! Певец, актер, продюсер, актер озвучки и шоумен устроил юбилейный концерт на сцене «Квартирника». Ревва давно вышел за рамки своего юмористического амплуа: его герой-мачо Артур Пирожков, придуманный 15 лет назад, стал не просто самостоятельным артистом00:00:05 Запутался
-00:07:45 Красивая песня
-00:14:10 Плачь, детка!
-00:19:00 Летим со мной(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: PopСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FC6CE7AB380F55D5D700093BC596D42E8588EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749928   (43341) от 16.09.2024
-
-МузЛофт-подкаст / МузLoft. Оксана Почепа (Акула) (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оксана Почепа (Акула). Гастроли с Бастой. Контракт с Жуковым. Ребенок от…
-К нам в гости заплыла настоящая Акула шоу-бизнеса 2000х. Оксана расскажет всю правду о начале своего творческого пути и споет кислотного диджея в совершенно новом стиле.Производство: Россия | Y-GenerationУчастники: Оксана ПочепаПродолжительность: 01:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BACEFFDE8BA645C61DED6D2E25BBBB122760131
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1250112   (426600) от 27.09.2018
+
+Наполеон Хилл | Золотая формула успеха. Мысли, которые привлекут деньги (2018) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами - 17 принципов процветания, которые сформулировал великий Наполеон Хилл и которые уже неоднократно прошли проверку временем. Они изменили жизнь миллионов людей самого разного происхождения. Ваша жизнь тоже может измениться, если вы готовы вдумчиво ознакомиться с этими правилами. В книге - подробный разбор всех 17 принципов, сотни практических советов, (   Читать дальше...   )Жанр: Эзотерика; ПарапсихологияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593DC38DC6D14BC10BF924650AA8D1CA91C84B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064542   (425551) от 20.10.2016
+
+Ричард Нисбетт | Что такое интеллект и как его развивать. Роль образования и традиций (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_425551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Умнее ли мы, чем наши бабушки и дедушки, и если да, то в чем именно? Можно ли сравнивать умственные способности у африканских аборигенов и у представителей западной цивилизации? В чем несовершенство существующих систем оценки интеллекта, и делает ли нас умнее школа? На эти и множество других вопросов отвечает Ричард Нисбетт, один из самых выдающихся современных социальных (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, достижение успехаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3C1F3B2C43642D8C9AFCEBC1D99CC7B87476C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411770   (425378) от 26.09.2020
+
+Ольга Меккинг | Niksen. Голландское искусство ничегонеделания (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_425378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нидерланды – одна из самых счастливых стран в Европе и в мире. Важная составляющая счастья и душевного здоровья голландцев – никсен, или искусство ничегонеделания. Этот «секрет национального счастья» глубоко укоренен в нидерландской культуре, но освоить его может каждый, независимо от этнической принадлежности, языка и места проживания. Для этого не требуется никаких (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: Екатерина КузнецоваФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8651448F114871041516DEDE0A98AD9E00A9D44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411766   (425286) от 26.09.2020
 
 Пол Мейсон, Рэнди Крегер | Прекратите ходить по яичной скорлупе. Жизнь с тем, у кого пограничное расстройство личности (2021) [EPUB]
@@ -6,7 +84,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425286.jpg" />
+  <img src="Z:/picture/008/save_picture_425286.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425278.jpg" />
+  <img src="Z:/picture/008/save_picture_425278.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425276.jpg" />
+  <img src="Z:/picture/008/save_picture_425276.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425247.jpg" />
+  <img src="Z:/picture/008/save_picture_425247.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425185.jpg" />
+  <img src="Z:/picture/008/save_picture_425185.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425171.jpg" />
+  <img src="Z:/picture/008/save_picture_425171.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425080.jpg" />
+  <img src="Z:/picture/008/save_picture_425080.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425050.jpg" />
+  <img src="Z:/picture/008/save_picture_425050.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424937.jpg" />
+  <img src="Z:/picture/008/save_picture_424937.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424817.jpg" />
+  <img src="Z:/picture/008/save_picture_424817.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424129.jpg" />
+  <img src="Z:/picture/008/save_picture_424129.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422695.jpg" />
+  <img src="Z:/picture/008/save_picture_422695.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422608.jpg" />
+  <img src="Z:/picture/008/save_picture_422608.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422603.jpg" />
+  <img src="Z:/picture/008/save_picture_422603.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422597.jpg" />
+  <img src="Z:/picture/008/save_picture_422597.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422595.jpg" />
+  <img src="Z:/picture/008/save_picture_422595.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422407.jpg" />
+  <img src="Z:/picture/008/save_picture_422407.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421593.jpg" />
+  <img src="Z:/picture/008/save_picture_421593.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421249.jpg" />
+  <img src="Z:/picture/008/save_picture_421249.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421096.jpg" />
+  <img src="Z:/picture/008/save_picture_421096.jpg" />
 </div>
 
 
@@ -533,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420942.jpg" />
+  <img src="Z:/picture/008/save_picture_420942.jpg" />
 </div>
 
 
@@ -559,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420388.jpg" />
+  <img src="Z:/picture/008/save_picture_420388.jpg" />
 </div>
 
 
@@ -587,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418014.jpg" />
+  <img src="Z:/picture/008/save_picture_418014.jpg" />
 </div>
 
 
@@ -599,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DDBDD408E63287B774A8B8A76CB07D897D97C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325047   (416233) от 13.09.2019
-
-Мария-Луиза фон Франц | О снах и о смерти (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга — одна из последних, написанных Марией-Луизой фон Франц (почти перед смертью). Так что это некий общий итог её долгих исследований и размышлений в области психологии.
-Последовательница Карла Юнга, Мария-Луиза посвятила жизнь анализу сновидений, изучению бессознательного, механизмов его проявления в жизни человека… В книге она фокусируется на взаимосвязи (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F82619AFAF8F7B31FE9F1F8A42DC04478968A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066123   (415765) от 24.10.2016
-
-Джо Марчант | Сила самовнушения. Как наш разум влияет на тело. Наука и вымысел (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415765.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Можно ли победить болезнь силой мысли? Этот вопрос только кажется простым. Общеизвестно, что тему «исцеляющего разума» крепко оседлали гуру, хилеры и прочие шаманы; по логике, в силу одного этого обстоятельства серьезные ученые не могут снисходительно относиться к «нетрадиционной медицине».Но вот парадокс: именно серьезные ученые, видные представители (   Читать дальше...   )Жанр: Популярная и нетрадиционная медицинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F82FF51468AEBE1A50BEAD20FBA44986FB9663B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947884   (415310) от 18.10.2015
-
-Гэвин Кеннеди | Переговоры. Полный курс (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о ведении переговоров в любых ситуациях. Это увлекательный, доступный и надежный путеводитель по лучшим работам в области обучения переговорному искусству. Используя свой 25-летний опыт переговорщика и бизнес-тренера, Кеннеди критически анализирует самые популярные переговорные практики, помогая читателю взять на вооружение наиболее эффективные из них. Книга (   Читать дальше...   )Жанр: Психология, конфликтологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E49074471C3B7EC0BA68C9FB278F3211E22706
 ```
 
 https://mybot314.ru/tekegram_catalog/

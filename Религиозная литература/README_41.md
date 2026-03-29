@@ -1,3 +1,81 @@
+###  Публикация: 1024684   (714249) от 10.06.2016
+
+Архимандрит Тихон (Агриков) | Матерь Света [2 книги] (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Схиархимандрит Пантелеимон (Агриков) не искал славы. Он долгие годы скитался, жил в полной безвестности. Преподавать ему не давали, служить тоже. Но слава к нему пришла. Более полутора тысяч человек участвовали в погребении отца Пантелеимона. Свое последнее пристанище на земле он нашел за алтарем храма Благовещения Пресвятой Богородицы в селе Тайнинском под Москвой, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A7DA1005372100E5E37A4DD248F24529F25FD4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024676   (714248) от 10.06.2016
+
+Монах Симеон Афонский | Птицы небесные или странствия души в объятиях Бога (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714248.jpg" />
+</div>
+
+
+###  Подробнее
+
+В первой части книги повествуется об удивительной истории жизни самого автора, о трудных путях поиска Бога в различные периоды жизни нашей страны и о становлении в монашеской жизни под руководством выдающегося старца и духовника архимандрита Кирилла (Павлова). Это повествование служит духовным стержнем нелегкого процесса преображения души - начала молитвенной жизни (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:467E9B3D766BF75796E6045CDA9B2F716321DB69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024739   (714243) от 10.06.2016
+
+Дмитрий Гришин | Сергей и Елизавета (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга историка Дмитрия Борисовича Гришина посвящена жизненному пути Великого князя Сергея Александровича, видного государственного деятеля России, и его супруги, святой Великой княгини Елизаветы Федоровны. На основе огромного документального материала в ней впервые столь правдиво, ярко и всесторонне представлена сложная, полная драматизма судьба Великого князя Сергея. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FAC5947123077ACA44158FA3EAB1ABBC7527667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024696   (714241) от 10.06.2016
 
 Архимандрит Тихон (Агриков) | О монашестве без тайн (2013) [PDF, DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714241.jpg" />
+  <img src="Z:/picture/008/save_picture_714241.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714237.jpg" />
+  <img src="Z:/picture/008/save_picture_714237.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714151.jpg" />
+  <img src="Z:/picture/008/save_picture_714151.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714150.jpg" />
+  <img src="Z:/picture/008/save_picture_714150.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714145.jpg" />
+  <img src="Z:/picture/008/save_picture_714145.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714084.jpg" />
+  <img src="Z:/picture/008/save_picture_714084.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714029.jpg" />
+  <img src="Z:/picture/008/save_picture_714029.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712444.jpg" />
+  <img src="Z:/picture/008/save_picture_712444.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712436.jpg" />
+  <img src="Z:/picture/008/save_picture_712436.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711559.jpg" />
+  <img src="Z:/picture/008/save_picture_711559.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711307.jpg" />
+  <img src="Z:/picture/008/save_picture_711307.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711179.jpg" />
+  <img src="Z:/picture/008/save_picture_711179.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711150.jpg" />
+  <img src="Z:/picture/008/save_picture_711150.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710784.jpg" />
+  <img src="Z:/picture/008/save_picture_710784.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710780.jpg" />
+  <img src="Z:/picture/008/save_picture_710780.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710778.jpg" />
+  <img src="Z:/picture/008/save_picture_710778.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710660.jpg" />
+  <img src="Z:/picture/008/save_picture_710660.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710102.jpg" />
+  <img src="Z:/picture/008/save_picture_710102.jpg" />
 </div>
 
 
@@ -486,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710048.jpg" />
+  <img src="Z:/picture/008/save_picture_710048.jpg" />
 </div>
 
 
@@ -512,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709961.jpg" />
+  <img src="Z:/picture/008/save_picture_709961.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709701.jpg" />
+  <img src="Z:/picture/008/save_picture_709701.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709562.jpg" />
+  <img src="Z:/picture/008/save_picture_709562.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709442.jpg" />
+  <img src="Z:/picture/008/save_picture_709442.jpg" />
 </div>
 
 
@@ -602,87 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3C2D1D5699666C1E2A059167DE1C4238FC5C23B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286701   (709086) от 04.03.2019
-
-Е. А. Тучков | Сектантство и его идеология (1955) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слово «секта» происходит от латинского «secta» — учение, школа. Сектой принято называть религиозное течение или группу, отколовшуюся от господствующей церкви. В СССР, где нет никакой господствующей религии, где каждый гражданин может исповедовать любую религию или не исповедовать никакой, название «секты», присвоенное некоторым религиозным организациям, потеряло (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B201C9ADF6087A62C12E9FA6320EECA00E160A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532963   (708876) от 22.02.2022
-
-Галина Калинина | За други своя. Повесть о святом благоверном князе Димитрии Донском и Куликовской битве (2010) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куликовская битва — одно из ключевых событий отечественной истории. Она имеет символическое значение для нашего народа. Как в дореволюционное, так и особенно в советское время недооценивалась или даже отвергалась важнейшая роль Русской Православной Церкви в подготовке этого сражения, во всех событиях, предшествовавших победе на Куликовом поле и последовавших за нею. (   Читать дальше...   )Жанр: Православие. ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062B7CA0337BFAAB4B80E2AF11D25EADB10FC758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220122   (708243) от 17.04.2018
-
-Ольга Соколова (сост.) | Помощник преподобного Сергия: Жизнеописание. Духовный алфавит архимандрита Кирилла (Павлова) [Духовные зёрна] (2017) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена светлой памяти архимандрита Кирилла (Павлова) — духоносного старца, молитвенника, «всероссийского духовника». В первой части содержится жизнеописание подвижника, во второй в алфавитном порядке расположены фрагменты его наставлений и проповедей.
-
-«Если не слышишь чужие стоны, не помогут ни посты, ни поклоны...»
-(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA5DB11AB797DAB4885B72F90D4C2A1721C0E7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

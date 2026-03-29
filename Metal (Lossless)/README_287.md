@@ -1,3 +1,90 @@
+###  Публикация: 1595435   (175183) от 06.12.2022
+
+Mephistopheles - Landscape Symphonies (1997) [FLAC|Lossless|image + .cue] <Melodic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Landscape Symphony (Introduction)
+02. Cosmos...
+03. Dark Clouds Rise Above The Kingdom
+04. Destiny Calls (Instrumental)(   Читать дальше...   )Жанр: Melodic Black, Death MetalПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F2D36DC1CD201C0D21B07AC27FA8263587C067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595436   (175180) от 06.12.2022
+
+Pale King - We Are but Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are but Memories [00:05:21]
+02. The Weight of Reality [00:04:12]
+03. The Last Farewell [00:04:03]
+04. Cursed [00:05:08](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37EDB540283508AF93DB5BDE0D413AC113356B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595454   (175179) от 06.12.2022
+
+Bark - Rambler of Aeons (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Death 'n' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rambler Of Aeons [00:03:52]
+02. Underworld [00:04:10]
+03. Are You With Me ? [00:03:28]
+04. I'm Here For Rock N' Roll  [00:02:51](   Читать дальше...   )Жанр: Groove Metal, Death 'n' RollПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE7A0FED19BA3FD90E047478152BA9E192314C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595472   (175166) от 06.12.2022
 
 Meteora - Our Paradise (2017) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -6,7 +93,7 @@ Meteora - Our Paradise (2017) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175166.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Mephistopheles - Songs Of The Desolate Ones (1999) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175161.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175158.jpg" />
+  <img src="Z:/picture/004/save_picture_175158.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Jinjer - Cloud Factory (2014) Reissue, 2018, Napalm Records [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175142.jpg" />
+  <img src="Z:/picture/004/save_picture_175142.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Meteora - Tragedy of Delusion (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175140.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Mythika - Unholy Glory (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175136.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Motorhead - Blitzkrieg On Birmingham '77 (1989) [WavPack|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175127.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Antropofagus - Origin (2022) [FLAC|Lossless|image + .cue] <Brutal Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175122.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Lamb Of God - Omens (2022) [FLAC|Lossless|image + .cue] <Thrash, Metalcore, Groo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175086.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Disturbed - Ten Thousand Fists (2005) [FLAC|Lossless|tracks + .cue] <Nu Metal, A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175064.jpg" />
+  <img src="Z:/picture/004/save_picture_175064.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Xandria - The Wonders Still Awaiting (2022) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175034.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Dopelord - Songs for Satan (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174773.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Mortifer Rage - Murderous Ritual (2008) [FLAC|Lossless|image + .cue] <Brutal Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174704.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Aeon Zen - Ephemera (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174638.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Aeon Zen - The Face Of The Unknown (2010) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174636.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Highlord - Medusa's Coil (2004) Japanese Edition [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174632.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Shotgun Surgery - Shiteater (2022) [FLAC|Lossless|WEB-DL|tracks] <Dirty Stoner M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174628.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Highlord - Heir Of Power (1999) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174617.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Highlord - Breath Of Eternity (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174609.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Deserted Fear - Doomsday (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174604.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Highlord - When The Aurora Falls... (2000) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174601.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Arrayan Path - Thus Always to Tyrants (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174583.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Aeon Zen - A Mind's Portrait (2009) [FLAC|Lossless]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174398.jpg" />
+  <img src="Z:/picture/004/save_picture_174398.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Aeon Zen - A Mind's Portrait (2009) [FLAC|Lossless]<Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D53A136C0E09B95137BA8356739090F6DCE29EAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668526   (174184) от 12.10.2023
-
-Necrofobia - Dark, Deep & Eternal (2004) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suicide
-02. Contamina
-03. Toxic Odor
-04. Quema eterna(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86303E9CD26AA3495A06B1D1934B849FA6EEB737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596101   (174171) от 08.12.2022
-
-Highlord - Instant Madness (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jester's Mask
-02. Orion And Ocean
-03. The Sweetest Drug
-04. Got A Price?(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28ED2038616ABA4F8EBACB49B1B5D7182AD55386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595973   (174168) от 08.12.2022
-
-Acutor - Dios ha muerto (1998) Reissue 2015, Mort Discos [FLAC|Lossless|image + .cue] <Thrash, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ríos De Hielo
-02. Brutal Existencia
-03. Una Oportunidad De Ser
-04. Por Encima Del Temor(   Читать дальше...   )Жанр: Thrash, Black MetalПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C81E2BE3B6DD96188FAD415EFDB27AA8D0A965B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

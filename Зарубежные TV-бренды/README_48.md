@@ -1,3 +1,108 @@
+###  Публикация: 1029622   (680247) от 27.06.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) HDTVRip [H.264/720p] (Сезон 16, эпизод 01) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680247.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514B3F84F57E1D3E2D9EBF8C2506E4490DC6F158
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029621   (680140) от 27.06.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (Сезон 16, эпизод 01) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680140.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B115E285695C51776C2A131932396FE878EACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029623   (680077) от 27.06.2016
+
+Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H.264/1080i-LQ] (Сезон 16, эпизод 01) [Discovery]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680077.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Профессиональный многоголосый - DiscoveryСубтитры: ОтсутствуютПродолжительность: ~ 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B75F34140AE9389048D45DBA4CEBD4AAAC12672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508733   (679627) от 10.06.2012
+
+Discovery: Спортивные арены Чемпионата Европы 2012 [2 серии] / Behind The Scenes - Euro 2012 (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа «Спортивные арены чемпионата 2012» появится в эфире Discovery Channel в преддверии главного спортивного события этого лета – Чемпионата Европы по футболу-2012. Благодаря этой программе зрители увидят, какую работу пришлось проделать строителям, дизайнерам, инженерам и другим специалистам, чтобы подготовить долгожданное футбольное действо.
+Съемочная группа Discovery Channel посетила основные спортивные арены, где развернется футбольное первенство Европы – пять современных стадионов были построены специально к турниру, а еще три подверглись существенной реконструкции, превратившись в первоклассные футбольные площадки, готовые к приему тысяч зрителей. Так, в Варшаве за два с небольшим года был возведен Национальный стадион на 58500 мест, где состоится матч открытия, а Национальный спортивный комплекс «Олимпийский» в Киеве после реконструкции получил статус «элит». Здесь созданы максимально комфортные условия как для футболистов, так и для зрителей: к примеру, трибуны оснащены уникальным мембранным козырьком, (   Читать дальше...   )Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 2x~00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D802B0EAE69D0BBE84C8E9C2DB2F5BE4445243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223053   (679277) от 02.05.2018
 
 NGW: Животные года / Animals of the year (2017) HDTV [H.264/1080i-LQ]
@@ -6,7 +111,7 @@ NGW: Животные года / Animals of the year (2017) HDTV [H.264/1080i-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679277.jpg" />
+  <img src="Z:/picture/008/save_picture_679277.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ NGW: Путешествие короля джунглей / The jungle king (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679257.jpg" />
+  <img src="Z:/picture/008/save_picture_679257.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ NGW: Самые опасные животные Америки / America's deadl
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679248.jpg" />
+  <img src="Z:/picture/008/save_picture_679248.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NGW: Уцелевшая природа Европы / Europe's last wilderness (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679183.jpg" />
+  <img src="Z:/picture/008/save_picture_679183.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ NGW: Море надежды. Подводные сокровища Америк
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679173.jpg" />
+  <img src="Z:/picture/008/save_picture_679173.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ NGW: Воины новой волны / New Wave Warriors (2017) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679171.jpg" />
+  <img src="Z:/picture/008/save_picture_679171.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ NGW: Джейн Гудолл. Спасение рая / Jane Goodall: Saving Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679163.jpg" />
+  <img src="Z:/picture/008/save_picture_679163.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ NGW: Год диких животных. Сибирь / Siberia's wild year (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679151.jpg" />
+  <img src="Z:/picture/008/save_picture_679151.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ NGW: Бесплодные земли / Badlands hard rock - tough lives (2017) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678998.jpg" />
+  <img src="Z:/picture/008/save_picture_678998.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ NG: Подъем Атлантиды (Открытая Атлантида) / Atla
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678449.jpg" />
+  <img src="Z:/picture/008/save_picture_678449.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ BBC: Борьба за выживание / The Trials of Life (1990) BDRip [H.2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678160.jpg" />
+  <img src="Z:/picture/008/save_picture_678160.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ NGW: Прирождённые монстры. Змееголовая рыба / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677279.jpg" />
+  <img src="Z:/picture/008/save_picture_677279.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ NGW: Человек и природа / Man and the Wild (2014) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677275.jpg" />
+  <img src="Z:/picture/008/save_picture_677275.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ NGW: Морские котики: битва за выживание / Fur Seals
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677271.jpg" />
+  <img src="Z:/picture/008/save_picture_677271.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ NGW: Дикая природа Аргентины. Убийственное по
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677135.jpg" />
+  <img src="Z:/picture/008/save_picture_677135.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ NGW: Глубоководные киты / Whales of the deep (2017) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677132.jpg" />
+  <img src="Z:/picture/008/save_picture_677132.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677012.jpg" />
+  <img src="Z:/picture/008/save_picture_677012.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ History Channel. Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676868.jpg" />
+  <img src="Z:/picture/008/save_picture_676868.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676758.jpg" />
+  <img src="Z:/picture/008/save_picture_676758.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ History Channel. Американская книга тайн / America's Book o
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676753.jpg" />
+  <img src="Z:/picture/008/save_picture_676753.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676615.jpg" />
+  <img src="Z:/picture/008/save_picture_676615.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ NGW: Невероятные клыки / Incredible Fangs (2016) HDTVRip [H.264/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676482.jpg" />
+  <img src="Z:/picture/008/save_picture_676482.jpg" />
 </div>
 
 
@@ -564,111 +669,6 @@ NGW: Невероятные клыки / Incredible Fangs (2016) HDTVRip [H.264/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED80F1661698FE7B4E502FB33170C66D20F2FD5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130975   (674221) от 22.05.2017
-
-Discovery: Золотой путь Паркера Шнабеля / Gold rush Parkers trail (2017) HDTVRip [H.264/720p-LQ] (Серии 1-4 из 5) (Обновляемая)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674221.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце XIX века более 100 тысяч человек отправились к покрытому льдом Клондайку в поисках удачи и богатства, но большинство из них так и не добрались до конца пути. Голодные медведи, суровая местность, бурные горные потоки и жгучие морозы пощадили лишь каждого третьего путешественника. Теперь по следам своих предков-золотодобытчиков отправляется Паркер Шнабель. (   Читать дальше...   )Телекомпания: США, Discovery ChannelЖанр: Документальный, реалити-ТВ, природа, география, путешествия, приключения, исследованиеРежиссер: Джеймс ЛевелПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 4 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ECF301B57DD1E38725D3646529112A9FD275F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 463803   (673890) от 12.06.2012
-
-BBC: Замерзшая планета / Frozen planet (7 серий из 7, включая дополнительные материалы о создании фильма) (2011) [H.264/1080p-LQ] BDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_673890.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом путешествии мы отправимся на край земли. В места где экстремальные условия отрицают само существования жизни.
-Однако жизнь здесь не просто существует, она процветает. Приспосабливаясь и изменяясь, приобретая удивительные формы, находя неожиданные способы существования, жизнь еще раз доказывает величие и грандиозность эволюцииЖанр: ДокументальныйРежиссер: Аластер ФовергиллПеревод: Одноголосый закадровыйФормат: MKVПродолжительность: 00:58:29 | 00:57:06 | 00:56:29 | 00:57:37 | 00:57:27 | 00:57:42 | 00:57:50 | 00:21:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223452   (673298) от 05.05.2018
-
-NGW: Маленький гигант / Little giant (2015) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673298.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Масаи-Мара в семье слонов родился малыш по имени И, как раз в то время, когда пришла засуха. Чтобы выжить, семье придётся мигрировать.Производство: Нидерланды, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Том Бартон-ХамфрейсПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC43F35BB91890219D342975DEF5F26C2059A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223512   (673197) от 05.05.2018
-
-NG: Жизнь в эпоху самолётов / Living in the Age of Airplanes (2015) BDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американские документалисты National Geographic во главе с режиссёром Брайаном Тервиллигером, композитором Джеймсом Хорнером и закадровым голосом Харрисона Форда создали окрыляющий фильм об авиации, окружающей нас и делающей нашу жизнь столь захватывающей. Съёмки проходили в 18 странах. Создатели фильма перенесут зрителей в крупнейшие и самые живописные аэропорты (   Читать дальше...   )Производство: USA, Antarctica, Argentina, Australia, Brazil, Cambodia, Chile, China, Costa Rica, Egypt, France, Italy, Kenya, Maldives, Mexico, Netherlands, Terwilliger Productions, Periscope Film, National GeographicЖанр: Документальный, познавательный, путешествие, авиацияРежиссер: Брайан ТервиллигерПеревод: Одноголосый закадровый, профессиональный (RusFilm)Субтитры: русские, английскиеПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8FA26AEAF8C904EFA783D0AB4B0FEFC17945B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

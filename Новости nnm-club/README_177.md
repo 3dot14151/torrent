@@ -1,3 +1,165 @@
+###  Публикация: 354479   (430423) от 03.10.2012
+
+Игорь Растеряев - 2 альбома (2010-2011) [MP3|320 kbps]<Авторская песня>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Любовь к родине (рассказ) (01:03)
+02.Русская дорога (02:49)
+03.Васильки да ромашки (03:41)
+04.Богатыри (02:17)(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 02:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968E67F5FCD50C7C4977869F10D1529CC30A2F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165487   (429937) от 14.09.2017
+
+Пираты Карибского моря: Мертвецы не рассказывают сказки / Pirates of the Caribbean: Dead Men Tell No Tales (2017) BDRemux [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исчерпавший свою удачу капитан Джек Воробей обнаруживает, что за ним охотится его старый неприятель, ужасный капитан Салазар и его призрачные пираты. Они только что сбежали из Дьявольского треугольника и намерены уничтожить всех пиратов, включая Джека. Поможет спастись лишь могущественный артефакт — трезубец Посейдона, который дарует своему обладателю полный контроль (   Читать дальше...   )Производство: США, Infinitum Nihil Production, Jerry Bruckheimer Films, Walt Disney PicturesЖанр: Фэнтези, Боевик, Комедия, ПриключенияРежиссер: Хоаким Роннинг, Эспен СандбергАктеры: Джонни Депп, Кира Найтли, Кая Скоделарио, Дэвид Уэнэм, Орландо Блум, Джеффри Раш, Брентон Туэйтс, Хавьер Бардем, Голшифте Фарахани, Стивен ГрэмПеревод: Дублированный (Лицензия, BD EUR)Субтитры: Русские (форс, полные), английские (полные, SDH)Продолжительность: 02:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460C7C244CB34099D723F1F6C6E7E5B072A1CA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 708199   (429884) от 08.10.2013
+
+Null DC [Sega Dreamcast] [Ru] (2011-2013)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два года упорных поисков самого, самого лучшего, два года упорной и кропотливой работы по совмещению драйверов, БИОС'ов и т.д. на разных типах ОС и вот перед вами первый аналог Русской версии NullDC!
+
+В данный пакет входят только самые проверенные и нужные детали для качественной эмуляции игр для платформы Sega Dreamcast. Данный эмулятор собран на базе чистой версии Null DC 1.0 Большая часть БИОС'ов и драйверов написаны командой Console Warrior Clan, исправлены баги со звуком и видео в большинстве Японских и Европейских играх! Эмулятор прекрасно справляется с загрузкой лицензионных версий игр Японии, США, Европы. Эмулятор так же способен поддерживать до 4-х игроков по сети!(   Читать дальше...   )Жанр: Программа-эмуляторЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8724D6B78D9A709C704886D714590291D207C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058590   (429678) от 18.10.2016
+
+Quantum Break (2016) [Ru/Multi] (1.0.118.7029/u1) SteamRip Let'sPlay
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quantum Break - уникальный проект, состоящий из двух частей: динамичной игры и сериала со звездным актерским составом — Шоном Эшмором в роли Джека Джойса, Эйданом Гилленом в роли его противника Пола Сайрина и Домиником Монаганом, сыгравшим гениального брата Джека, Уильяма. В Quantum Break вас ждут отличные персонажи и множество драматичных сюжетных поворотов, которыми (   Читать дальше...   )Тип издания: SteamRipРазработчик: Remedy EntertainmentЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D534D899DBA49F8E774E99319EB28516AE7FD2F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411012   (429038) от 24.09.2020
+
+Не входи / The Owners (2020) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три молодых британских бездельника планируют ограбить особняк местного хирурга. Проникнув в дом, они довольно быстро находят сейф, но взломать его никак не получается. Пока злоумышленники дожидаются хозяев, чтобы выпытать у них код, к ним присоединяется девушка одного из них. А когда домой возвращается пожилой доктор с супругой, события принимают неожиданный поворот.Производство: Великобритания / Blue Light, Logical Pictures, Wild BunchЖанр: Триллер, криминалРежиссер: Джулиус БергАктеры: Мэйси Уильямс, Сильвестр МакКой, Рита Ташингэм, Джейк Каррен, Иэн Кенни, Эндрю Эллис, Сташа Хикс ...Перевод: Дублированный (iTunes)Субтитры: Английские (Full, SDH)Продолжительность: 01:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B50881A1E7DEFBD1C20AAC68FE6D63EFB0F00DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946134   (428807) от 12.10.2015
+
+"Кинопоиску" вернули прежний вид
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_428807.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Яндекс» вернул старый «Кинопоиск» под напором разгневанных пользователей
+ «Яндекс» вернул сайту «Кинопоиска» прежний вид. Сообщение об этом появилось в официальном блоге сайта. Старый облик ресурса восстановили в ответ на критику пользователей в адрес прошедшего 8 октября перезапуска. В соответствии с данным 9 октября обещанием «Яндекс» перенес вызвавшую нарекания (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946072   (428461) от 12.10.2015
 
 ACDSee Ultimate 9.0 Build 565 RePack by KpoJIuK (11.10.2015) [Ru/En]
@@ -6,7 +168,7 @@ ACDSee Ultimate 9.0 Build 565 RePack by KpoJIuK (11.10.2015) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428461.jpg" />
+  <img src="Z:/picture/008/save_picture_428461.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ WRC 5 FIA World Rally Championship (2015) [En] (1.0) License RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428452.jpg" />
+  <img src="Z:/picture/008/save_picture_428452.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_427899.jpg" />
+  <img src="Z:/picture/005/save_picture_427899.jpg" />
 </div>
 
 
@@ -84,7 +246,7 @@ Spore Антология [Multi18/Ru/En] (Repack/v.1.0-1.05.0001/Upd1) 2008-2009
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_427824.jpg" />
+  <img src="Z:/picture/005/save_picture_427824.jpg" />
 </div>
 
 
@@ -111,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427730.jpg" />
+  <img src="Z:/picture/008/save_picture_427730.jpg" />
 </div>
 
 
@@ -140,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427387.jpg" />
+  <img src="Z:/picture/008/save_picture_427387.jpg" />
 </div>
 
 
@@ -167,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427202.jpg" />
+  <img src="Z:/picture/008/save_picture_427202.jpg" />
 </div>
 
 
@@ -193,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427037.jpg" />
+  <img src="Z:/picture/008/save_picture_427037.jpg" />
 </div>
 
 
@@ -219,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426928.jpg" />
+  <img src="Z:/picture/005/save_picture_426928.jpg" />
 </div>
 
 
@@ -245,7 +407,7 @@ Malwarebytes Anti-Malware Premium 2.2.0.1024 Final Portable by PortableAppZ [Mul
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426478.jpg" />
+  <img src="Z:/picture/008/save_picture_426478.jpg" />
 </div>
 
 
@@ -271,7 +433,7 @@ Malwarebytes Anti-Malware Premium 2.2.0.1024 RePack by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426474.jpg" />
+  <img src="Z:/picture/008/save_picture_426474.jpg" />
 </div>
 
 
@@ -297,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_425811.jpg" />
+  <img src="Z:/picture/005/save_picture_425811.jpg" />
 </div>
 
 
@@ -323,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425775.jpg" />
+  <img src="Z:/picture/008/save_picture_425775.jpg" />
 </div>
 
 
@@ -352,7 +514,7 @@ Just Dance 2 [Wii] [PAL] [ENG] (2010)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_425693.jpg" />
+  <img src="Z:/picture/005/save_picture_425693.jpg" />
 </div>
 
 
@@ -378,7 +540,7 @@ Kirby's Epic Yarn [Wii] [NTSC2PAL] [Eng/Esp] (2010)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_425691.jpg" />
+  <img src="Z:/picture/005/save_picture_425691.jpg" />
 </div>
 
 
@@ -405,7 +567,7 @@ Windows Embedded 8.1 Industry Enterprise x64 Release by StartSoft 52-2017 [Multi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425622.jpg" />
+  <img src="Z:/picture/008/save_picture_425622.jpg" />
 </div>
 
 
@@ -431,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_425119.jpg" />
+  <img src="Z:/picture/005/save_picture_425119.jpg" />
 </div>
 
 
@@ -457,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425103.jpg" />
+  <img src="Z:/picture/008/save_picture_425103.jpg" />
 </div>
 
 
@@ -483,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424324.jpg" />
+  <img src="Z:/picture/005/save_picture_424324.jpg" />
 </div>
 
 
@@ -509,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424253.jpg" />
+  <img src="Z:/picture/008/save_picture_424253.jpg" />
 </div>
 
 
@@ -521,163 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32B7FF57653F7121BAAF99EE18D184A175D1F56A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946492   (424241) от 14.10.2015
-
-Ягодкин Николай | Стань гением (2015) DVDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский курс Николая Ягодкина по развитию навыков запоминания, самообучения и работы с большими объемами
-информации.Жанр: Саморазвитие, память, обучениеПродолжительность: 33:02:65
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F4F129537108BE59B656FFF7DACE0BA3F6629C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946494   (424240) от 14.10.2015
-
-Антураж / Entourage (2015) BDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звезда кино Винс Чейз и его друзья бросают вызов капризному и зачастую жестокому миру Голливуда.Производство: США / Closest to the Hole Productions, Entourage Holdings, Home Box Office (HBO)Жанр: комедияРежиссер: Даг ЭллинАктеры: Кевин Коннолли, Эдриан Гренье, Кевин Диллон, Джерри Феррара, Джереми Пивен, Эммануэль Шрики, Перри Ривз, Рекс Ли, Деби Мейзар, Риз Койро, Марк Уолберг, Майк Тайсон, Тьерри Анри, Билли Боб Торнтон, Ронда РаузиПеревод: Профессиональный (полное дублирование) (Лицензия BD CEE)Язык субтитров: русский (полные + форс.), украинский (полные + форс.), английский (Full + SDH + SDH-Colored)Продолжительность: 01:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27EA6251973FB47F304DD31A30E8AD292CCE90BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946727   (424236) от 14.10.2015
-
-Minecraft: Story Mode Episode 1: The Order of the Stone (2015) [Ru/En] (1.0) License RELOADED
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений. Сюжет Minecraft: Story Mode, как сейчас принято, поделен на пять эпизодов, составляющих первый сезон.Тип издания: ЛицензияРазработчик: Mojang и Telltale GamesЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90960B164460193D71285AAD2AB1E6147D356F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946823   (424234) от 14.10.2015
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4266.1001 VL (x86) RePack by SPecialiST v15.10 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCB4AB4D0C21DAA1AADF7D77A352079560BA54B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064797   (423350) от 21.10.2016
-
-Ученые выяснили, что количество галактик в нашей Вселенной в 10-20 раз больше, чем было принято считать ранее
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_423350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласно результатам последних исследований, количество галактик в доступной для изучения области нашей Вселенной составляет порядка 2 триллионов. И это в 10-20 раз больше, нежели было принято считать ранее. Подавляющее большинство недостающих членов галактического "населения" Вселенной приходится на малые и тусклые скопления звезд, которые сформировались (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831005   (423317) от 13.10.2014
-
-Profileschool | Калибровка монитора от А до Я (2014) PCRec
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда время, потраченное на редактирование и пост-обработку фотографий, оказывается потраченным впустую. Например, если монитор некорректно воспроизводит тени и света, мы получаем заведомо искаженные отпечатки, которыми не можем быть удовлетворены сами, или нелестные отзывы от заказчика, чей монитор настроен иначе. В последнем случае важно оказаться правым и иметь (   Читать дальше...   )Жанр: Калибровка монитораПродолжительность: 01:42:50+01:31:23+04:13:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751EDAD7D7DA1E84D85367A3FEB01F32D43D464B
 ```
 
 https://mybot314.ru/tekegram_catalog/

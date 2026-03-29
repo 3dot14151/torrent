@@ -1,3 +1,55 @@
+###  Публикация: 1804456   (65664) от 29.06.2025
+
+Tex Murphy: Under a Killing Moon (1994) [Multi] (1.01) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игрок врывается в жизнь бывшего частного детектива Текса Мёрфи. На дворе 2042 год, последствия Третьей мировой войны, полуразрушенный город Сан-Франциско, радиация, мутанты, бомжи и мертвенно-бледная луна. Жизнь частного детектива мало похожа на жизнь счастливого человека: любовь отвернулась от нашего героя, работы нет, а бурбон стал его единственным другом. И, как (   Читать дальше...   )Тип издания: LicenseРазработчик: Access SoftwareЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BEE977EA12231AB6669AB85AF755E65EE02BB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804412   (65662) от 29.06.2025
+
+Tex Murphy: The Pandora Directive (1996) [Multi] (1.02) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш герой – канонический частный сыщик сороковых годов XXI века – в бизнесе добрый десяток лет. Из окна его конторы открывается вид на Чандлер Авеню, на облике которой, как и на всём Сан-Франциско, сказалась минувшая война, по улицам ходят как обычные люди, так и мутанты, обезображенные радиацией. Но от этого дел у рядового частного детектива становится не меньше.Тип издания: LicenseРазработчик: Access SoftwareЖанр: Приключенческие игрыЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97966C8E16FB10E2C11D11F6BF220FE7DEE7516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705783   (63032) от 14.03.2024
 
 Quake II: Add-on Mod Pack (1997) [En] Repack/Mod firstlast2
@@ -6,7 +58,7 @@ Quake II: Add-on Mod Pack (1997) [En] Repack/Mod firstlast2
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63032.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Lord of the Rings: War of the Ring / Властелин колец: Войн
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62490.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Victoria II (2) (2010) [Ru/Multi] (4904558/dlc) Repack dixen18
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61540.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Sword Art Online: Alicization Lycoris (2020) [Ru/Multi] (3.12/dlc) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61264.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Gothic II: Night of the Raven / Готика 2: Ночь Ворона (2003) [Ru
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60400.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Open Transport Tycoon Deluxe / OpenTTD (2004) [Ru/Multi] (14.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59340.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ X2 The Threat: New Life / X2 Угроза: Новая жизнь (2003) [Ru] (1.
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58882.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58580.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Darklight conflict (1997) [Ru] (1.0) Repack Pilotus
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58413.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ XCOM: Area 51 (2016) [Ru/En] (0.971) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58276.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ XPiratez - Labyrinthus Noctis (2024) [Ru/En] (N8) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58096.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Medieval II (2): Total War (2006) [Ru/Multi] (1.52/dlc) Scene PROPHET
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58083.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ X-Com: From the Ashes (2022) [Ru/En] (0.1.0.3) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58082.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Xeno Operations Legacy (2024) [Ru/En] (0.97.06) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58044.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Legend of Ahssun / Легенда об Ахссуне (2018) [Ru/Multi] (1.2) Mo
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57033.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Warcraft II: Battle.net Edition / Военное ремесло 2: Боевое 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56096.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Warcraft 3: Expansion Set / Военное Ремесло 3: Расширенн�
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56089.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Wolfenstein 3D (1992-2020) [En] (2.01.2020) Repack/Mod 1nomok [Beyond the Grave:
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55967.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Alpha Prime (2007) [Ru/En] (1.3) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55966.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Red Faction (2001) [Ru/En] (1.21) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53893.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ TimeShift (2007) [Ru/Multi] (1.02) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53784.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53587.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53236.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53171.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Startopia (2001) [Ru/En] (1.0) Unofficial
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA249B233B1009A839032747A8031B913CBA59C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730502   (53135) от 16.06.2024
-
-Freedom Force vs. the Third Reich (2005) [En] (1.0) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freedom Force vs. the Third Reich – изометрическое ролевое приключение, наполненное юмором практически доверху и повторяющее стилистику золотого века для супергеройских комиксов в мельчащих деталях, создавая иллюзию того, что всё вокруг – ожившие страницы журнала. Вторая часть серии Силы Свободы. Сюжет стартует сразу после временного парадокса, вызванного Блицкригом, (   Читать дальше...   )Тип издания: LicenseРазработчик: Irrational GamesЖанр: Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C82D9029B3C5FAA7E2D1D26456770DD8EBBCAF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730482   (53117) от 16.06.2024
-
-Freedom Force (2002) [En] (1.3) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ролевая стратегическая игра - Freedom Force - стала комически смешным олицетворением команды супергероев, которые будут защищать базу Патриот Сити. Бороться мы будем непосредственно с мутантами, чудовищами и всякими прочими угрозами. Вся игра построена на визуализации старых комиксов, которые в более-менее современной графике выглядят достаточно смешно. Первые сюжетные (   Читать дальше...   )Тип издания: LicenseРазработчик: Irrational GamesЖанр: Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819EE5EB1E247D3DEC3246B5056CD35646D15DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1581105   (206559) от 04.10.2022
+
+Картинки - Computer Desktop Wallpapers Collection vol. 1501-1800 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски из серии vol. 1501-1800
+Всем приятного просмотраФормат: JPGРазрешение файлов: 1680X1050-7680X4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7EC352020195F257A261082157A792E84C36DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582151   (206421) от 08.10.2022
 
 Картинки - Календарь на 2023 + сетка [PDF, JPG, PNG]
@@ -6,7 +34,7 @@
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206421.jpg" />
+  <img src="Z:/picture/005/save_picture_206421.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205957.jpg" />
+  <img src="Z:/picture/005/save_picture_205957.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205466.jpg" />
+  <img src="Z:/picture/005/save_picture_205466.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205409.jpg" />
+  <img src="Z:/picture/005/save_picture_205409.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205407.jpg" />
+  <img src="Z:/picture/005/save_picture_205407.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204608.jpg" />
+  <img src="Z:/picture/004/save_picture_204608.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204431.jpg" />
+  <img src="Z:/picture/004/save_picture_204431.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204199.jpg" />
+  <img src="Z:/picture/004/save_picture_204199.jpg" />
 </div>
 
 
@@ -218,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204185.jpg" />
+  <img src="Z:/picture/004/save_picture_204185.jpg" />
 </div>
 
 
@@ -244,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204174.jpg" />
+  <img src="Z:/picture/004/save_picture_204174.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203973.jpg" />
+  <img src="Z:/picture/004/save_picture_203973.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203966.jpg" />
+  <img src="Z:/picture/004/save_picture_203966.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203961.jpg" />
+  <img src="Z:/picture/004/save_picture_203961.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203938.jpg" />
+  <img src="Z:/picture/004/save_picture_203938.jpg" />
 </div>
 
 
@@ -375,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203918.jpg" />
+  <img src="Z:/picture/004/save_picture_203918.jpg" />
 </div>
 
 
@@ -401,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203913.jpg" />
+  <img src="Z:/picture/004/save_picture_203913.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203905.jpg" />
+  <img src="Z:/picture/004/save_picture_203905.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203886.jpg" />
+  <img src="Z:/picture/004/save_picture_203886.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203873.jpg" />
+  <img src="Z:/picture/004/save_picture_203873.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203868.jpg" />
+  <img src="Z:/picture/004/save_picture_203868.jpg" />
 </div>
 
 
@@ -531,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203853.jpg" />
+  <img src="Z:/picture/004/save_picture_203853.jpg" />
 </div>
 
 
@@ -557,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203850.jpg" />
+  <img src="Z:/picture/004/save_picture_203850.jpg" />
 </div>
 
 
@@ -583,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203849.jpg" />
+  <img src="Z:/picture/004/save_picture_203849.jpg" />
 </div>
 
 
@@ -609,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203846.jpg" />
+  <img src="Z:/picture/004/save_picture_203846.jpg" />
 </div>
 
 
@@ -635,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203834.jpg" />
+  <img src="Z:/picture/004/save_picture_203834.jpg" />
 </div>
 
 
@@ -646,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:791B4AEC746C28FDAA562806E9FAEC17F280C3F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604906   (203833) от 19.01.2023
-
-Фотография - ArtStation - Grafit Studio - 500+ Vampire Queen Costume Reference Pictures [JPG]
-
->>Графика, Арт, Разное
->>Современная фотография
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот набор включает более 500 эталонных изображений в высоком разрешении с персонажами в стиле готических вампиров. Пакет включает в себя портреты крупным планом, поворотные позы, снятые с использованием вращающейся платформы, а также несколько более динамичных движений со складками в движении. Это будет отличный инструмент для художников, работающих над иллюстрациями, (   Читать дальше...   )Формат: JPGРазрешение файлов: 2448x3900 - 5472x3648
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D3A594FEF14DB1A8DCC3FCBB4A2B164AE182D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

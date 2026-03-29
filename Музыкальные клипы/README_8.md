@@ -1,3 +1,85 @@
+###  Публикация: 635441   (909438) от 26.03.2013
+
+Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13735E359531B1158732504F7FC4F327583C6845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 635343   (909339) от 26.03.2013
+
+London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8142FE3DD714EF47E5E884090BD14F9184F073E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990820   (909286) от 26.02.2016
+
+VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция клипов для любителей рок и метал.
+Вся сила, энергия и мощь по настоящему крутой музыки!2Cellos - They Don't Care About Us (Michael Jackson Cover).avi
+A Sound of Thunder - Murderous Horde.avi
+AC-DC - Are You Ready.avi
+AC-DC - Rock The Blues Away.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 31:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7722170C010964F7F3251577622229EAAAD16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350780   (908696) от 20.03.2020
 
 Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
@@ -6,7 +88,7 @@ Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908696.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ Alisher - Money (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907830.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ Vocal Dj Esther - Crazy For You (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907822.jpg" />
 </div>
 
 
@@ -87,7 +169,7 @@ Austin Mahone Say You're Just A Friend ft Flo Rida (2013) [H.264/1080p] WEB-DLRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907713.jpg" />
 </div>
 
 
@@ -113,7 +195,7 @@ Justin Timberlake Suit & Tie (Official video) ft JAY Z (2013) [H.264/1080p WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907649.jpg" />
 </div>
 
 
@@ -139,7 +221,7 @@ VA - Коллекция клипов в авто (ZAP_part4) (2DIN) (2015 - 2016
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907446.jpg" />
 </div>
 
 
@@ -169,7 +251,7 @@ Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907129.jpg" />
 </div>
 
 
@@ -195,7 +277,7 @@ The Saturdays - What About Us (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906004.jpg" />
 </div>
 
 
@@ -221,7 +303,7 @@ DJ Smash  DJ Miller feat. Anya - Angels (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905916.jpg" />
 </div>
 
 
@@ -247,7 +329,7 @@ Nicole Scherzinger - Boomerang (2013) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905871.jpg" />
 </div>
 
 
@@ -273,7 +355,7 @@ Aida Arami - Diamond (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905867.jpg" />
 </div>
 
 
@@ -299,7 +381,7 @@ Depeche Mode - Heaven (2013) WEB-DLRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905758.jpg" />
 </div>
 
 
@@ -325,7 +407,7 @@ Die Kreatur - Die Kreatur (2020) WEB-DLRip [VP9/2160p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905554.jpg" />
 </div>
 
 
@@ -351,7 +433,7 @@ Armin van Buuren - The Music Videos 1997-2009 (2010) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903884.jpg" />
 </div>
 
 
@@ -380,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903290.jpg" />
 </div>
 
 
@@ -407,7 +489,7 @@ Olga Vels - The Sound Of Love (2017) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903049.jpg" />
 </div>
 
 
@@ -436,7 +518,7 @@ Nells - Watch My Body (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902628.jpg" />
 </div>
 
 
@@ -462,7 +544,7 @@ Cascada - Glorious (2013) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902620.jpg" />
 </div>
 
 
@@ -488,7 +570,7 @@ Innocence feat. Brian Cross - Houdini Girl (Brian Cross Remix 2013) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902610.jpg" />
 </div>
 
 
@@ -514,7 +596,7 @@ Afrojack ft. Chris Brown - As Your Friend (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902580.jpg" />
 </div>
 
 
@@ -540,7 +622,7 @@ Marquess & Jessica D feat. Jimmy Dub - Beso (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902446.jpg" />
 </div>
 
 
@@ -566,7 +648,7 @@ INS - Loveheadshot (Uncensored) (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902258.jpg" />
 </div>
 
 
@@ -592,7 +674,7 @@ Tatarka - 7 Music Videos (2016-2019) WEBRip [H.264/1080p/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901996.jpg" />
 </div>
 
 
@@ -604,90 +686,6 @@ Tatarka - 7 Music Videos (2016-2019) WEBRip [H.264/1080p/720p-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F8FA8DCE405E786D32C53C6FAE97CCF59C723C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369653   (901990) от 24.03.2020
-
-Paradise Lost - Fall from Grace (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901990.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 Paradise Lost - Fall from Grace (1080p)Производство: Nuclear BlastЖанр: DoomПродолжительность: 00:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB4A53E3B447A827BB67ECEF27512C7C87E3D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369725   (901881) от 24.03.2020
-
-Quest Pistols Show - 17 Mysic Videos (2012-2019) WEBRip [VP9/H.264/2160p/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901881.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2012 Quest Pistols Show - Разные [1080p]
-002 2013 Quest Pistols Show - Жара [1080p]
-003 2013 Quest Pistols Show - Забудем все [1080p]
-004 2014 Quest Pistols Show - Babyboy [1080p](   Читать дальше...   )Жанр: PopПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD67BCC51FEABA7B82DA749E616A4126622FC29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369230   (901783) от 24.03.2020
-
-Quest Pistols (Quest Pistols Show) - 12 Mysic Videos (2007-2011) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901783.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 Quest Pistols - Дни Гламура
-2007 Quest Pistols - Я Устал
-2008 Quest Pistols - Для Тебя
-2008 Quest Pistols - Клетка(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5366F51C4D1F324BA860EDF6AD0107F8796E8D6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

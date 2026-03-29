@@ -1,3 +1,148 @@
+###  Публикация: 938899   (477919) от 20.09.2015
+
+Major Parkinson - Twilight Cinema (2014) [FLAC|Lossless]<Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skeleton Sangria
+02. Impermanence
+03. Black River
+04. The Wheelbarrow(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F23525B3311ED839FFEE00EB399B6F477BA92753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057000   (477619) от 27.09.2016
+
+Devon Allman - Ride Or Die (2016) [FLAC|Lossless|image + .cue] <Blues-Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say Your Prayers (3:16)
+02. Find Ourselves (3:12)
+03. Galaxies (4:57)
+04. Lost (4:32)(   Читать дальше...   )Жанр: Blues-Rock, Southern RockПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D04295C48FEE477332CDB4CF2D4B67623DC2AD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056998   (477510) от 27.09.2016
+
+Sari Schorr - A Force Of Nature (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got No Money (feat Innes Sibun) (5:13)
+02. Aunt Hazel (feat Innes Sibun) (5:38)
+03. Damn The Reason (feat Innes Sibun) (5:23)
+04. Cat And Mouse (feat Innes Sibun) (4:15)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:56:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2D6586C73EF5B800173BC2A446FD228A170CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567100   (476408) от 01.08.2022
+
+Pioneers - In A State Of Rock (1984) Reissue, Remastered, 2021, Norske Albumklassikere [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_476408.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hi' Energy (5:04)
+2. Annie (3:45)
+3. Walk In The Moonlight (4:35)
+4. Pioneers (4:54)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FDF938B2864D88E07B4E26DCD1C172CB7EF61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567114   (476407) от 01.08.2022
+
+Airplay - Airplay (1980) Reissue, Remastered, 2018, RCA, Japanese Edition [FLAC|Lossless|image + .cue] <Soft Rock, Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_476407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranded (4:29)
+02. Cryin' All Night (4:48)
+03. It Will Be Alright (4:02)
+04. Nothin' You Can Do About It (4:47)(   Читать дальше...   )Жанр: Soft Rock, Westcoast, AORПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5C9911F0598CBE1B9674A8CC1E7E6C0CA78697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567093   (476401) от 01.08.2022
 
 Journey - Freedom (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Arena Rock, AOR>
@@ -6,7 +151,7 @@ Journey - Freedom (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Arena Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476401.jpg" />
+  <img src="Z:/picture/008/save_picture_476401.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Moria Falls - 2 альбома (1995-1997) Discography [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476269.jpg" />
+  <img src="Z:/picture/008/save_picture_476269.jpg" />
 </div>
 
 
@@ -63,7 +208,7 @@ Simon Love - It Seemed Like A Good Idea At The Time (2015) [FLAC|tracks+.cue]<Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476023.jpg" />
+  <img src="Z:/picture/008/save_picture_476023.jpg" />
 </div>
 
 
@@ -92,7 +237,7 @@ VA - Absolute Rock Classics (2001) [FLAC|Lossless|tracks + .cue] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475785.jpg" />
+  <img src="Z:/picture/008/save_picture_475785.jpg" />
 </div>
 
 
@@ -121,7 +266,7 @@ Kyle Gass Band - Kyle Gass Band (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475480.jpg" />
+  <img src="Z:/picture/008/save_picture_475480.jpg" />
 </div>
 
 
@@ -150,7 +295,7 @@ Young Rebel Set - Crocodile (2013) [FLAC|Lossless|tracks] <Indie, Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475479.jpg" />
+  <img src="Z:/picture/008/save_picture_475479.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ Cry Of Dawn - Cry Of Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475345.jpg" />
+  <img src="Z:/picture/008/save_picture_475345.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ VА - Quiеrо Сrееdеnсе (2016) [FLAC|Lossless|image + .cue] <Blues Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475343.jpg" />
+  <img src="Z:/picture/008/save_picture_475343.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ My Morning Jacket - The Waterfall II (2020) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475143.jpg" />
+  <img src="Z:/picture/008/save_picture_475143.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ Opeth - Sorceress (2016) 2 CD Deluxe Edition [FLAC|Lossless|tracks + .cue] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475128.jpg" />
+  <img src="Z:/picture/008/save_picture_475128.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Tommy Shaw - Ambition (1987) Remastered, 2013, Rock Candy [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472910.jpg" />
+  <img src="Z:/picture/008/save_picture_472910.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Clif Magness - Road To Gold (2022) 4xCD, Compilation, Official Collection Of Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472250.jpg" />
+  <img src="Z:/picture/008/save_picture_472250.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ VA - Absolute Rock Classics 3 (2003) [FLAC|Lossless|tracks + .cue] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471911.jpg" />
+  <img src="Z:/picture/008/save_picture_471911.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ The Doors - Absolutely Live (1970) [FLAC|Lossless|image + .cue] <Psychedelic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471755.jpg" />
+  <img src="Z:/picture/008/save_picture_471755.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ Jimmy Barnes - My Criminal Records (2019) [FLAC|Lossless|image + .cue] <Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471239.jpg" />
+  <img src="Z:/picture/008/save_picture_471239.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ The Allman Betts Band - Bless Your Heart (2020) [FLAC|Lossless|tracks + .cue] <S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471001.jpg" />
+  <img src="Z:/picture/008/save_picture_471001.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ Poets Of The Fall - Clearview (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470565.jpg" />
+  <img src="Z:/picture/008/save_picture_470565.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ Sky Fault - Sky Fault (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Hard Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470313.jpg" />
+  <img src="Z:/picture/008/save_picture_470313.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ Paul McCartney - Egypt Station (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469676.jpg" />
+  <img src="Z:/picture/008/save_picture_469676.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ Elton John - Rocket Man: Number Ones (2007) [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469267.jpg" />
+  <img src="Z:/picture/008/save_picture_469267.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ Steve Vai - The Story Of Light (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469234.jpg" />
+  <img src="Z:/picture/008/save_picture_469234.jpg" />
 </div>
 
 
@@ -607,147 +752,6 @@ Steve Vai - The Story Of Light (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossle
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939750   (469149) от 24.09.2015
-
-Peter Hammill - Nadir's Big Chance (1975) Remastered, Reissue /2006, Virgin, Charisma/ [FLAC|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третье рождение Van Der Graaf Generator предвосхитившее нашествие панка.
-Во вступлении к диску Хэммилл дает объяснение, кто такой Рикки Надир, характеризуя его как альтер эго, оборотную сторону личности музыканта.
-"Я сидел в комнате ожидания, когда я понемногу стал осознавать, что я не один - или, по крайней мере, не единственен. Это длилось всего один миг, (   Читать дальше...   )Жанр: RockПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AA14E75B003EF81A4DF3D0467D2A46C63EE36A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407162   (468608) от 06.09.2020
-
-ESP Project - The Rising (2019) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rising (09:17)
-02. Connected (05:45)
-03. On Lunar Tides (10:49)
-04. Flowers In Snow (06:41)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C89E95DC70689C8C55EE2D4D681615E81E9D44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407159   (468606) от 06.09.2020
-
-ESP Project - Phenomena (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Flight (07:36)
-02. Before Saturn Turned Away (08:00)
-03. Telesthesia (07:53)
-04. Fear Of Flying (06:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01A9FCACB7DA1D560FB15033AD31594B83BBDAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570195   (468317) от 24.09.2015
-
-VA - 100 Greatest Guitar Solos (2007) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 09:22:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1DD2696D0E41E9D9F938910D4881C39AB660A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320836   (467269) от 20.08.2019
-
-Howe Gelb - Gathered (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Singer Songwriter, World, & Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Fence (02:12)
-02. A Thousand Kisses Deep (feat. M. Ward) (05:39)
-03. Not the End of the World (feat. Anna Karina) (03:59)
-04. Anna (02:36)(   Читать дальше...   )Жанр: Indie Rock, Singer Songwriter, World, & CountryПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4797E84CD2B99F8FC78518CCFA18C202B73D1202
 ```
 
 https://mybot314.ru/tekegram_catalog/

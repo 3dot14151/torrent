@@ -1,3 +1,32 @@
+###  Публикация: 1645490   (233045) от 10.07.2023
+
+De Staat - red, yellow, blue (2023) 3CD [FLAC|Lossless|WEB-DL|tracks] <Dutch Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look At Me [00:03:14]
+02. Head On The Block [00:02:28]
+03. Some Body [00:03:04]
+04. Paying Attention [00:02:45](   Читать дальше...   )Жанр: Dutch Alternative RockПродолжительность: 3 CD, 00:51:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6B8D3D01AD9CAF006B666F71178D291AC8D62E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644852   (232957) от 08.07.2023
 
 The Raven Age - Blood Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Groove-Metal, Metalcore>
@@ -6,7 +35,7 @@ The Raven Age - Blood Omen (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Groove-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232957.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Coma Waves - Coming To Your Senses (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu-Meta
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232621.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Coridian - Hava (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive-R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232299.jpg" />
+  <img src="Z:/picture/005/save_picture_232299.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Cave In - Until Your Heart Stops (1999) Deluxe Edition, 2023, Relapse Records [F
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232214.jpg" />
+  <img src="Z:/picture/005/save_picture_232214.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Darko US - Darko (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232148.jpg" />
+  <img src="Z:/picture/005/save_picture_232148.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ SayWeCanFly - Beneath The Roses (2023) [FLAC|Lossless|WEB-DL|tracks] <Emo, Pop R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232117.jpg" />
+  <img src="Z:/picture/005/save_picture_232117.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Tropical Fuck Storm - Goody Goody Gumdrops (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232090.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sam Austins - Boy Toy (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231717.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Everyone Dies In Utah - Supra / Infra (2021) Deluxe Edition, 2023, Everyone Dies
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230981.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Johnny Booth - Moments Elsewhere (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230883.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Black Country, New Road - Ants From Up There (2022) 2xCD, Box Set, Deluxe Editio
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230382.jpg" />
+  <img src="Z:/picture/005/save_picture_230382.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ We Came As Romans - Darkbloom (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230142.jpg" />
+  <img src="Z:/picture/005/save_picture_230142.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Nirvana - Under The Covers (2019) [FLAC|Lossless|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229985.jpg" />
+  <img src="Z:/picture/005/save_picture_229985.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Sevendust - Superficial Drug (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229341.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Celldweller - Satellites (2022) Remixed, 2023, FiXT [FLAC|Lossless|WEB-DL|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229259.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Sevendust - Truth Killer (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229202.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Traitors Among Us - Perceptions (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229197.jpg" />
+  <img src="Z:/picture/004/save_picture_229197.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Sleeping With Sirens - Complete Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229005.jpg" />
+  <img src="Z:/picture/004/save_picture_229005.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ P.O.D. - When Angels & Serpents Dance (2008) 2022, Remixed & Remastered, Mascot 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228939.jpg" />
+  <img src="Z:/picture/004/save_picture_228939.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Nothing More - Spirits (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Progress
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228830.jpg" />
+  <img src="Z:/picture/004/save_picture_228830.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Celldweller - Satellites (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228742.jpg" />
+  <img src="Z:/picture/005/save_picture_228742.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Sinking Season - The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228716.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Bilmuri - GOBLIN HOURS (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-H
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228121.jpg" />
+  <img src="Z:/picture/005/save_picture_228121.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Hydra Vein - Unlamented (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228105.jpg" />
+  <img src="Z:/picture/005/save_picture_228105.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ William The Conqueror - Excuse Me While I Vanish (2023) [FLAC|Lossless|WEB-DL|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227896.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ William The Conqueror - Excuse Me While I Vanish (2023) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4203894F8DAB550259FB8403AF878271F72E310E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583849   (227860) от 16.10.2022
-
-Blue October - Spinning the Truth Around (Part I) (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spinning the Truth Around (04:49)
-02. The Shape of Your Heart (04:29)
-03. How Can You Love Me If You Don't Even Like Me (04:20)
-04. Don't Say It Wasn’t Love (05:33)(   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D31A272DECD0DFD57D93BA9801F95E2C54BB8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

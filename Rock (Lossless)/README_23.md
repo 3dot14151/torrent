@@ -1,3 +1,148 @@
+###  Публикация: 982506   (946908) от 04.02.2016
+
+Dark Hearts Blues - In Peace, Alone (2016) [FLAC|Lossless|tracks] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solmanella Way
+02. Letting Go
+03. I'm Hungry
+04. Demon Song(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146F2C90D9EEAAEC016D09356917B6A05D4728ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363210   (945334) от 26.02.2020
+
+Anna Meredith - FIBS (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop, Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sawbones (04:38)
+02. Inhale Exhale (03:46)
+03. Calion (05:06)
+04. Killjoy (03:45)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, ClassicalПродолжительность: 00: 44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32D801FE5A60F327325A837D2DD75D3342075E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983086   (945249) от 05.02.2016
+
+Phil Collins – Take A Look At Me Now... (2016) The Complete Albums Box, 4CD, Remastered, Deluxe Edition [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Both Sides Of The Story (6:44)
+02. Can't Turn Back The Years (4:41)
+03. Everyday (5:44)
+04. I've Forgotten Everything (5:15)(   Читать дальше...   )Жанр: RockПродолжительность: 03:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD1F5FAB4A5AB1A39F690D7A411B819C85602467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090893   (945033) от 08.01.2017
+
+The ID - The Masque (2016) [FLAC|Lossless|tracks] <Neo-prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Masque [00:10:20]
+02. Capture [00:07:16]
+03. Journey [00:04:53]
+04. Normality [00:05:13](   Читать дальше...   )Жанр: Neo-progПродолжительность: 01:23:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F942A667727BC4BFC8BF55C48BDE87293F68FCE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091175   (944994) от 08.01.2017
+
+Regent - Illusions (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944994.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Somnambulists (7:23)
+2. Escapism (7:38)
+3. The Silver Moon (4:51)
+4. Three Minutes To Midnight (4:48)(   Читать дальше...   )Жанр: Neo-Prog, Progressive RockПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D584F574317E9CAF180939A62411D61E8F33EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091166   (944864) от 08.01.2017
 
 Blind Ego - Liquid (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Rock>
@@ -6,7 +151,7 @@ Blind Ego - Liquid (2016) [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944864.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Elton John - Wonderful Crazy Night (2016) Deluxe Edition [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943622.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ GPS (ex-Asia) - Window to the soul (2006) US Edition [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943525.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Sonia Dada - Sonia Dada (1992) [FLAC|Lossless|tracks + .cue] <Rock Soul>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_943017.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Stereophonics - Graffiti On The Train (2CD, Deluxe Edition) (2013) [FLAC (tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942780.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Shadow Show - Silhouettes (2020) [FLAC|Lossless|tracks + .cue] <Rock, Female Voc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942614.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Yo La Tengo - Extra Painful (2014) [FLAC|Lossless|tracks + .cue] <Indie Rock, No
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942204.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Petsch Moser - Johnny (2010) [FLAC|Lossless|tracks + .cue] <Indie>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941763.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Machiavel - Colours (2013) [FLAC|Lossless|image + .cue] <Eсlectic Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941762.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Status Quo - Piledriver (1972) 2CD, remaster, 2016, Vertigo, Japan [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940277.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Status Quo - Hello! (1973) 2CD, remaster, 2016, Vertigo, Japan [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940216.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Status Quo - Rockin' All Over The World (1977) 2CD, remaster, 2016, Mercury, Jap
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940160.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Aqueous - Best in Show (2016) [FLAC|Lossless|tracks + .cue|WEB-DL] <Crossover Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938946.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ White Widdow - Silhouette (2016) [FLAC|Lossless|tracks + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938876.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Roy Orbison - Greatest Hits (1997) Compilation, Unofficial Release [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938851.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Factory - A Tribute to Pink Floyd (Best of Remix) (2015) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937863.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ The Mercury Tree - Permutations (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Cro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935433.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Paroni Paakkunainen - Plastic Maailma (1971) 2010,  Rocket Records [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935422.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ The Marcus King Band - The Marcus King Band (2016) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935416.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Chicago - Twenty 1 (1991) [FLAC|Lossless|image + .cue] <Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935249.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Colin Hay - Company Of Strangers (2002) [FLAC|Lossless|tracks + .cue] <Rock, pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934111.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Colin Hay - Company Of Strangers (2002) [FLAC|Lossless|tracks + .cue] <Rock, pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8879543E11419AAFE3CAA15A7033FE44B61E6380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093670   (934014) от 15.01.2017
-
-Resistor - Underground (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival (7:45)
-02. Cathedral (4:02)
-03. Wire (3:30)
-04. Killers and Activists (4:12)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2187183363EDCCD1DC22DEA1E963F6200EDFA246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985806   (933839) от 12.02.2016
-
-U2 - U218 Singles (2007) Compilation [FLAC|Lossless|image + .cue] <Rock,Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	– Beautiful Day 	04:05
-02. 	– I Still Haven't Found What I'm Looking For 	04:38
-03. 	– Pride (In The Name Of Love) 	03:48
-04. 	– With Or Without You 	04:56(   Читать дальше...   )Жанр: Rock,Pop RockПродолжительность: 01:14:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02446F9063016B1BFF0EAD37613C15426125F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093968   (932432) от 16.01.2017
-
-Simon Kinny-Lewis - Country Fried Chicken (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock, Guitar Jazzy Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Blue Pellet Shuffle 05:01
-02 Conan The Barbarihen 05:08
-03 Fire Fox 02:34
-04 Ocean Call 04:54(   Читать дальше...   )Жанр: Blues, Blues-Rock, Guitar Jazzy BluesПродолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5344A9E3D84F7C139B48854BE1BB86E321938E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094290   (930955) от 17.01.2017
-
-The Winyls - Honey And Lime (2008) [FLAC|Lossless|tracks] <Pop Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See Me Alive 03:10
-02. I Know 03:26
-03. Keep Rock 'N' Roll Alive 03:06
-04. Would You Believe 02:44(   Читать дальше...   )Жанр: Pop Rock, Garage RockПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D23C48B3EAFE5A277FBB59CF3C459FBF778AF33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094120   (930287) от 17.01.2017
-
-The XX - I See You (2017) Limited Edition, 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. Dangerous (4:11)
- 02/10. Say Something Loving (3:58)
- 03/10. Lips (3:21)
- 04/10. A Violent Noise (3:47)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848C00ACBF28CC226C0C3F52CCE0F1B4C953D945
 ```
 
 https://mybot314.ru/tekegram_catalog/

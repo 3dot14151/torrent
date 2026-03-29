@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712747.jpg" />
+  <img src="Z:/picture/008/save_picture_712747.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711145.jpg" />
+  <img src="Z:/picture/008/save_picture_711145.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709522.jpg" />
+  <img src="Z:/picture/005/save_picture_709522.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707318.jpg" />
+  <img src="Z:/picture/008/save_picture_707318.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ Emerald Night - Король эльфов (2011) [FLAC|Lossless|image + .cue] <S
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707215.jpg" />
+  <img src="Z:/picture/008/save_picture_707215.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705787.jpg" />
+  <img src="Z:/picture/008/save_picture_705787.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ Ignis - Sic Transit Gloria Mundi (2018) Remastered [FLAC|Lossless|tracks + .cue]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705369.jpg" />
+  <img src="Z:/picture/008/save_picture_705369.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705352.jpg" />
+  <img src="Z:/picture/008/save_picture_705352.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704640.jpg" />
+  <img src="Z:/picture/008/save_picture_704640.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703085.jpg" />
+  <img src="Z:/picture/008/save_picture_703085.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701286.jpg" />
+  <img src="Z:/picture/008/save_picture_701286.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700060.jpg" />
+  <img src="Z:/picture/008/save_picture_700060.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Megakill Paranoise - Total Fucking Shame (2019) [FLAC|Lossless|WEB-DL|tracks] <T
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699936.jpg" />
+  <img src="Z:/picture/008/save_picture_699936.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Coated With Filth - Like Sacrificial Lambs (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699928.jpg" />
+  <img src="Z:/picture/008/save_picture_699928.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Drops of Heart - Stargazers (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699828.jpg" />
+  <img src="Z:/picture/008/save_picture_699828.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Unholy Night - Succubus (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Rock'
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699827.jpg" />
+  <img src="Z:/picture/008/save_picture_699827.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Neutrino, Нейтрон - 7 релизов (2012-2017) [FLAC|tracks+.cue]<Melod
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698681.jpg" />
+  <img src="Z:/picture/008/save_picture_698681.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698495.jpg" />
+  <img src="Z:/picture/008/save_picture_698495.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Segregate - 2 Album/2 Singles (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698032.jpg" />
+  <img src="Z:/picture/008/save_picture_698032.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Maestro Nosferatu - Maestro Nosferatu (2020) [FLAC|Lossless|WEB-DL|tracks] <Goth
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698023.jpg" />
+  <img src="Z:/picture/008/save_picture_698023.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697503.jpg" />
+  <img src="Z:/picture/008/save_picture_697503.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Branikald - Тингов Наслаждаясь Распрей (2013) [FLAC|Loss
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695928.jpg" />
+  <img src="Z:/picture/008/save_picture_695928.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692340.jpg" />
+  <img src="Z:/picture/008/save_picture_692340.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Nokturnal Mortum - Істина (2017) [FLAC|Lossless|image + .cue] <Folk,Pagan,
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689085.jpg" />
+  <img src="Z:/picture/008/save_picture_689085.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688175.jpg" />
+  <img src="Z:/picture/008/save_picture_688175.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687223.jpg" />
+  <img src="Z:/picture/008/save_picture_687223.jpg" />
 </div>
 
 

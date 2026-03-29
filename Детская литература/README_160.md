@@ -1,3 +1,30 @@
+###  Публикация: 1539912   (243192) от 27.03.2022
+
+В.Г. Дмитриева (сост.) | Чи-та-ю са-ма по сло-гам. Книга сказок для девочек (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга сказок для девочек – это первые уроки самостоятельного чтения. Крупные буквы, слова, разбитые на слоги, и знаки ударения помогут вашему ребёнку перейти от слогового чтения к чтению целыми словами и предложениями.
+Научиться читать можно легко и с удовольствием!Жанр: Детская литература, СказкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:372A01D7341E5B58FB47A1996E81D3503D2A0762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457242   (243013) от 25.03.2021
 
 Джессика Таунсенд | Невермур. Вундермастер. Призвание Морриган Кроу. Книга 2 (2018) [FB2, EPUB, MOBI]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243013.jpg" />
+  <img src="Z:/picture/005/save_picture_243013.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_242950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_242950.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242947.jpg" />
+  <img src="Z:/picture/005/save_picture_242947.jpg" />
 </div>
 
 
@@ -89,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242916.jpg" />
+  <img src="Z:/picture/005/save_picture_242916.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242902.jpg" />
+  <img src="Z:/picture/005/save_picture_242902.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242857.jpg" />
+  <img src="Z:/picture/005/save_picture_242857.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242817.jpg" />
+  <img src="Z:/picture/004/save_picture_242817.jpg" />
 </div>
 
 
@@ -197,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242778.jpg" />
+  <img src="Z:/picture/005/save_picture_242778.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242640.jpg" />
+  <img src="Z:/picture/005/save_picture_242640.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242543.jpg" />
+  <img src="Z:/picture/005/save_picture_242543.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242536.jpg" />
+  <img src="Z:/picture/005/save_picture_242536.jpg" />
 </div>
 
 
@@ -301,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242517.jpg" />
+  <img src="Z:/picture/005/save_picture_242517.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242507.jpg" />
+  <img src="Z:/picture/005/save_picture_242507.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242497.jpg" />
+  <img src="Z:/picture/005/save_picture_242497.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242380.jpg" />
+  <img src="Z:/picture/004/save_picture_242380.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242339.jpg" />
+  <img src="Z:/picture/004/save_picture_242339.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242283.jpg" />
+  <img src="Z:/picture/004/save_picture_242283.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242270.jpg" />
+  <img src="Z:/picture/004/save_picture_242270.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242211.jpg" />
+  <img src="Z:/picture/004/save_picture_242211.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241966.jpg" />
+  <img src="Z:/picture/004/save_picture_241966.jpg" />
 </div>
 
 
@@ -542,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241836.jpg" />
+  <img src="Z:/picture/004/save_picture_241836.jpg" />
 </div>
 
 
@@ -568,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241794.jpg" />
+  <img src="Z:/picture/004/save_picture_241794.jpg" />
 </div>
 
 
@@ -595,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241762.jpg" />
+  <img src="Z:/picture/004/save_picture_241762.jpg" />
 </div>
 
 
@@ -622,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241723.jpg" />
+  <img src="Z:/picture/004/save_picture_241723.jpg" />
 </div>
 
 
@@ -649,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241706.jpg" />
+  <img src="Z:/picture/004/save_picture_241706.jpg" />
 </div>
 
 
@@ -662,35 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63084664D3C1F9C12596C88AE7384B4201E9203C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546542   (241661) от 24.04.2022
-
-Георгий Ладонщиков | Заиграла балалайка (1959) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заиграй-ка, балалайка,
-Балалайка - три струны!
-Подпевайте, не зевайте,
-Выходите, плясуны!(   Читать дальше...   )Жанр: ЧастушкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3290AF401927424B9E014D853B0F545E2CF94AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

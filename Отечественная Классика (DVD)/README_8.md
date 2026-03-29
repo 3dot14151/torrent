@@ -1,3 +1,31 @@
+###  Публикация: 614748   (238763) от 28.04.2022
+
+Романс о влюбленных (1974) DVD9
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_238763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычный в жанровом отношении, открывающий новые стилевые возможности кино, этот поэтический фильм стал заметным явлением в отечественном искусстве 70-х.
+В нем рассказана простая и в то же время пронзительно-драматическая история любви двух молодых людей, которых разлучает случай.
+И хотя они продолжают любить друг друга - оказывается, что это разлука навсегда...Производство: СССР / МосфильмЖанр: Мюзикл, Драма, МелодрамаРежиссер: Андрей Михалков-КончаловскийАктеры: Евгений Киндинов, Елена Коренева, Ирина Купченко, Иннокентий Смоктуновский, Елизавета Солодова, Ия Саввина, Владимир Конкин, Александр Збруев, Роман Громадский, Николай Гринько, Иван Рыжов, Александр Самойлов.Субтитры: русскиеПродолжительность: 02:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4C6BBA3AAF652F6F808F895B99D2C2F773E06D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 591975   (238282) от 30.04.2022
 
 Прощай, шпана замоскворецкая (1987) DVD5
@@ -6,7 +34,7 @@
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238282.jpg" />
+  <img src="Z:/picture/004/save_picture_238282.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238220.jpg" />
+  <img src="Z:/picture/004/save_picture_238220.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235931.jpg" />
+  <img src="Z:/picture/005/save_picture_235931.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233187.jpg" />
+  <img src="Z:/picture/005/save_picture_233187.jpg" />
 </div>
 
 
@@ -111,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233033.jpg" />
+  <img src="Z:/picture/005/save_picture_233033.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230818.jpg" />
+  <img src="Z:/picture/005/save_picture_230818.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229573.jpg" />
+  <img src="Z:/picture/004/save_picture_229573.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228423.jpg" />
+  <img src="Z:/picture/005/save_picture_228423.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226522.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223091.jpg" />
+  <img src="Z:/picture/005/save_picture_223091.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221726.jpg" />
+  <img src="Z:/picture/005/save_picture_221726.jpg" />
 </div>
 
 
@@ -296,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220099.jpg" />
+  <img src="Z:/picture/005/save_picture_220099.jpg" />
 </div>
 
 
@@ -322,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220038.jpg" />
+  <img src="Z:/picture/005/save_picture_220038.jpg" />
 </div>
 
 
@@ -348,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212956.jpg" />
+  <img src="Z:/picture/005/save_picture_212956.jpg" />
 </div>
 
 
@@ -374,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212365.jpg" />
+  <img src="Z:/picture/005/save_picture_212365.jpg" />
 </div>
 
 
@@ -400,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211484.jpg" />
+  <img src="Z:/picture/005/save_picture_211484.jpg" />
 </div>
 
 
@@ -426,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211190.jpg" />
 </div>
 
 
@@ -453,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203404.jpg" />
+  <img src="Z:/picture/004/save_picture_203404.jpg" />
 </div>
 
 
@@ -479,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202567.jpg" />
+  <img src="Z:/picture/004/save_picture_202567.jpg" />
 </div>
 
 
@@ -505,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194525.jpg" />
+  <img src="Z:/picture/004/save_picture_194525.jpg" />
 </div>
 
 
@@ -533,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194497.jpg" />
+  <img src="Z:/picture/004/save_picture_194497.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194256.jpg" />
+  <img src="Z:/picture/004/save_picture_194256.jpg" />
 </div>
 
 
@@ -590,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191670.jpg" />
 </div>
 
 
@@ -616,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185869.jpg" />
 </div>
 
 
@@ -642,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180629.jpg" />
+  <img src="Z:/picture/005/save_picture_180629.jpg" />
 </div>
 
 
@@ -654,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2451B7D21F4483F285F895C70446FA59CC4FC9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 147554   (178914) от 29.11.2022
-
-Человек ниоткуда (1961) DVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Поражаев, молодой геолог антропологической экспедиции, находясь в конфликте с руководством, падает в пропасть, встречает там общество дикарей и, используя свое интеллектуальное превосходство, благополучно возвращается в Москву, прихватив с собой Чудака, самого способного снежного человека. С этого момента удивительные и необычайные приключения происходят (   Читать дальше...   )Производство: Россия, МосфильмЖанр: КомедияАктеры: Сергей Юрский, Юрий Яковлев, Анатолий Папанов, Людмила Гурченко, Нинель Мышкова, Анатолий Адоскин, Владимир Муравьев, Юрий Белов, Антоний Ходурский, Петр Савин, Виктор Кольцов, Галина Степанова, Владимир Пицек, Георгий Тусузов, Павел ТарасовСубтитры: НетПродолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A9FEBAB2682402DD3D4C2ED3DB8F36FD594890
 ```
 
 https://mybot314.ru/tekegram_catalog/

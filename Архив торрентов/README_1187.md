@@ -6,7 +6,7 @@ Athentech Perfectly Clear + Essentials + WorkBench 3.5.6.1150 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783480.jpg" />
+  <img src="Z:/picture/008/save_picture_783480.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Aiseesoft 4K Converter 9.2.18 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783477.jpg" />
+  <img src="Z:/picture/008/save_picture_783477.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783473.jpg" />
+  <img src="Z:/picture/008/save_picture_783473.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Cinemagraph Pro 2.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783468.jpg" />
+  <img src="Z:/picture/008/save_picture_783468.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Recover Keys Enterprise 10.0.4.201 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783467.jpg" />
+  <img src="Z:/picture/008/save_picture_783467.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Sopor Aeternus - The Spiral Sacrifice (2018) [MP3|320 Kbps] <Darkwave, Neo-Class
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783466.jpg" />
+  <img src="Z:/picture/008/save_picture_783466.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ YTD Video Downloader PRO 5.9.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783457.jpg" />
+  <img src="Z:/picture/008/save_picture_783457.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Movavi Video Converter 18.1.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783446.jpg" />
+  <img src="Z:/picture/008/save_picture_783446.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Tails 3.5 [анонимный доступ в сети] [amd64] [2018] 1xDVD 3.5
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783432.jpg" />
+  <img src="Z:/picture/008/save_picture_783432.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Nox App Player 6.0.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783430.jpg" />
+  <img src="Z:/picture/008/save_picture_783430.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Daum PotPlayer 1.7.8557 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783420.jpg" />
+  <img src="Z:/picture/008/save_picture_783420.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ashampoo WinOptimizer 15.00.05 DC 09.02.2018 RePack (& Portable) by elchupacabra
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783410.jpg" />
+  <img src="Z:/picture/008/save_picture_783410.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VLC Media Player 3.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783401.jpg" />
+  <img src="Z:/picture/008/save_picture_783401.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783397.jpg" />
+  <img src="Z:/picture/008/save_picture_783397.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ JRiver Media Center 26.0.90 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783396.jpg" />
+  <img src="Z:/picture/008/save_picture_783396.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Ultra Mood - Ninja (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783390.jpg" />
+  <img src="Z:/picture/008/save_picture_783390.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783388.jpg" />
+  <img src="Z:/picture/008/save_picture_783388.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783386.jpg" />
+  <img src="Z:/picture/008/save_picture_783386.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783381.jpg" />
+  <img src="Z:/picture/008/save_picture_783381.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783379.jpg" />
+  <img src="Z:/picture/008/save_picture_783379.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Google Earth Pro 7.3.1.4507 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783378.jpg" />
+  <img src="Z:/picture/008/save_picture_783378.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783377.jpg" />
+  <img src="Z:/picture/008/save_picture_783377.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783373.jpg" />
+  <img src="Z:/picture/008/save_picture_783373.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783371.jpg" />
+  <img src="Z:/picture/008/save_picture_783371.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ CleanMyMac 3.9.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783370.jpg" />
+  <img src="Z:/picture/008/save_picture_783370.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ StaxRip 2.1.3.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783355.jpg" />
+  <img src="Z:/picture/008/save_picture_783355.jpg" />
 </div>
 
 

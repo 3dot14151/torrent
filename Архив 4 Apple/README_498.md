@@ -1,3 +1,109 @@
+###  Публикация: 1352859   (243324) от 15.01.2020
+
+Keep It 1.7.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 06.01.2020Разработчик: Reinvented SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Арабский и  Иврит
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BAF6A013B3DAA956F7F66570B94299263E2743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352701   (243316) от 15.01.2020
+
+Permute 3 v3.4.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 14.01.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB8BFDF643527BE8CCAF782BDEC04E7675354B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352728   (243309) от 15.01.2020
+
+Receipts 1.9.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент управления счетами, который может определять сумму, записанную в каждом счете-фактуре, и автоматически упорядочивать записи по поставщику или категории
+
+Receipts призван помочь вам эффективно управлять и упорядочивать входящие счета: вы импортируете документы, и утилита попытается автоматически определить сумму, преобразовать ее в ссылочную валюту и отсортировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2020Разработчик: Dirk HoltwickПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F15470AF8DE33111C5233DA4087B4ACA438B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352769   (243293) от 15.01.2020
+
+Iridient Developer 3.3.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью неразрушающи и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2020Разработчик: Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDAB5AB225FA482FD3F105F9B870B53D5885780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352848   (243284) от 15.01.2020
 
 FontLab 7 v7.0.2 (build 7301) beta [En]
@@ -6,7 +112,7 @@ FontLab 7 v7.0.2 (build 7301) beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243284.jpg" />
+  <img src="Z:/picture/004/save_picture_243284.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ File Cabinet Pro 7.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243275.jpg" />
+  <img src="Z:/picture/004/save_picture_243275.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ KeyFlow Pro 1.7.1 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243262.jpg" />
+  <img src="Z:/picture/004/save_picture_243262.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ DB-Text 1.10.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243260.jpg" />
+  <img src="Z:/picture/004/save_picture_243260.jpg" />
 </div>
 
 
@@ -117,7 +223,7 @@ Deflection 5.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243252.jpg" />
+  <img src="Z:/picture/004/save_picture_243252.jpg" />
 </div>
 
 
@@ -144,7 +250,7 @@ ExactScan Pro 16.12.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243240.jpg" />
+  <img src="Z:/picture/004/save_picture_243240.jpg" />
 </div>
 
 
@@ -170,7 +276,7 @@ Amadeus Pro  2.7.1 (build 2346) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243232.jpg" />
+  <img src="Z:/picture/004/save_picture_243232.jpg" />
 </div>
 
 
@@ -196,7 +302,7 @@ Themes for Keynote 5.1 [Multi/Ru]]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243213.jpg" />
+  <img src="Z:/picture/004/save_picture_243213.jpg" />
 </div>
 
 
@@ -224,7 +330,7 @@ Disk Graph 2.1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243202.jpg" />
+  <img src="Z:/picture/004/save_picture_243202.jpg" />
 </div>
 
 
@@ -250,7 +356,7 @@ Wondershare UniConverter for Mac 14.2.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243194.jpg" />
+  <img src="Z:/picture/004/save_picture_243194.jpg" />
 </div>
 
 
@@ -277,7 +383,7 @@ iFlicks 3 v3.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243172.jpg" />
+  <img src="Z:/picture/004/save_picture_243172.jpg" />
 </div>
 
 
@@ -305,7 +411,7 @@ Metadatics 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243156.jpg" />
+  <img src="Z:/picture/004/save_picture_243156.jpg" />
 </div>
 
 
@@ -333,7 +439,7 @@ Splash n Recolor 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243152.jpg" />
+  <img src="Z:/picture/004/save_picture_243152.jpg" />
 </div>
 
 
@@ -359,7 +465,7 @@ A Better Finder Attributes 7 v7.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243116.jpg" />
+  <img src="Z:/picture/004/save_picture_243116.jpg" />
 </div>
 
 
@@ -385,7 +491,7 @@ PDFpenPro 11.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243092.jpg" />
+  <img src="Z:/picture/004/save_picture_243092.jpg" />
 </div>
 
 
@@ -413,7 +519,7 @@ Sensei 1.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243091.jpg" />
+  <img src="Z:/picture/004/save_picture_243091.jpg" />
 </div>
 
 
@@ -439,7 +545,7 @@ GoodNotes 5 v5.8.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243085.jpg" />
+  <img src="Z:/picture/004/save_picture_243085.jpg" />
 </div>
 
 
@@ -466,7 +572,7 @@ Alfred 4 Powerpack 4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243084.jpg" />
+  <img src="Z:/picture/004/save_picture_243084.jpg" />
 </div>
 
 
@@ -493,7 +599,7 @@ BusyCal 3 v3.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243072.jpg" />
+  <img src="Z:/picture/004/save_picture_243072.jpg" />
 </div>
 
 
@@ -520,7 +626,7 @@ Artstudio Pro 4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243071.jpg" />
+  <img src="Z:/picture/004/save_picture_243071.jpg" />
 </div>
 
 
@@ -546,7 +652,7 @@ Tune Sweeper 4 v4.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243039.jpg" />
+  <img src="Z:/picture/005/save_picture_243039.jpg" />
 </div>
 
 
@@ -572,7 +678,7 @@ FigrCollage 2 Home Edition v2.5.17 (23) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243032.jpg" />
+  <img src="Z:/picture/005/save_picture_243032.jpg" />
 </div>
 
 
@@ -583,112 +689,6 @@ FigrCollage - программа для создания удивительны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81B5DEF12A14B31F84F12C6F7109A249089F8CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457230   (243027) от 25.03.2021
-
-Paletter 4 v4.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самым сложным в дизайне может быть просто выбор цвета. Палитра призвана облегчить вам жизнь, помогая открывать и создавать красивые цветовые комбинации.Тип издания: macOS SoftwareРелиз состоялся: 24.03.2021Разработчик: Toys, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E81147C61F174553BE99C4F5BBB3A2C86BF7DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540317   (243026) от 29.03.2022
-
-Stats 2.7.10 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © 2022 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B760A4842452FB243DB2FC1E03530FE6A429A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457366   (243020) от 25.03.2021
-
-Exposure Software Blow Up 3 v3.1.4.379 ARM [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
-Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B590F0BCE6498115FC1B6CB6B606635A4AF4BD8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540403   (243017) от 29.03.2022
-
-Dropzone 4 Pro v4.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © 2022 Aptonic LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8086DA7E7F3EBCB43962EF95EABAEF79A3C0F87B
 ```
 
 https://mybot314.ru/tekegram_catalog/

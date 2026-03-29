@@ -1,3 +1,170 @@
+###  Публикация: 1267769   (265077) от 08.12.2018
+
+Биатлон. Кубок Мира 2018-2019. 1-й Этап. Поклюка (Словения). Смешанная эстафета-Супермикст (02.12.2018) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265077.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 декабря 2018 года, воскресенье. 14:00 МСК
+Кубка Мира по биатлону сезона 2018-2019. Этап 1. Поклюка (Словения):
+Смешанная эстафета-Супермикст
+Стадион: Sports Centre Triglav (Поклюка, Словения)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E34447F13F3FB527F4DB4D916CD592018D045DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191300   (264551) от 13.12.2017
+
+Биатлон с Дмитрием Губерниевым. Сезон 2017-2018. Выпуск 3 (2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эфир от: 10.12.2017
+Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F78D6FCC3605C9A29039BE8D216D24D0B1BC8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191297   (264550) от 13.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Валь дe Изер (Франция). Мужчины. Слалом (10.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264550.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 декабря 2017 года, воскресенье. 14:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Валь дe Изер(Франция).
+Мужчины. СлаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:27:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85BA0C32E07E89CAF5692FC1D2A92B48A5C0F20B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969565   (264400) от 27.12.2015
+
+Вести недели (27.12.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264400.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F30D0DBC09CA6213F39B6FD67449572EE5C0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340095   (264304) от 22.11.2019
+
+Хоккей. НХЛ 2019-2020. Питтсбург Пингвинз - Нью-Йорк Айлендерс (21.11.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264304.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 ноября 2019 года, пятница 03:00 МСК
+Стадион: Барклейс-центр (Нью-Йорк, США), 13 212 зрителей (84 % при вместимости 15 795)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Ти-Джей Люксмор (Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97E77425297C3D4281D6DA67A4B1F4BAC7CF4B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340085   (264301) от 22.11.2019
+
+Хоккей. НХЛ 2019-2020. Вашингтон Кэпиталз - Нью-Йорк Рейнджерс (20.11.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264301.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 ноября 2019 года, четверг 04:00 МСК
+Стадион: Мэдисон Сквер Гарден (Нью-Йорк, США), 17 239 зрителей (96 % при вместимости 18 006)
+Главный судья: Марк Жоанетт (Вердун, Канада); Главный судья: Фурман Саут (США)Телекомпания: NBCSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59A850D3AE9804DD15FF47A85C9018183932D9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191679   (264178) от 14.12.2017
 
 Хоккей. Еврохоккейтур 2017—2018. Кубок Первого канала 2017. Чехия – Финляндия (13.12.2017) IPTV [H.264]
@@ -6,7 +173,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264178.jpg" />
 </div>
 
 
@@ -35,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264006.jpg" />
 </div>
 
 
@@ -63,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263989.jpg" />
 </div>
 
 
@@ -89,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263963.jpg" />
 </div>
 
 
@@ -115,7 +282,7 @@ World Rally Championship (WRC) (2019) Rally Monte-Carlo / Этап 1. Монте
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263946.jpg" />
 </div>
 
 
@@ -141,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263922.jpg" />
 </div>
 
 
@@ -170,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263916.jpg" />
 </div>
 
 
@@ -199,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263900.jpg" />
 </div>
 
 
@@ -228,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263894.jpg" />
 </div>
 
 
@@ -257,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263892.jpg" />
 </div>
 
 
@@ -286,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263779.jpg" />
 </div>
 
 
@@ -315,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263598.jpg" />
 </div>
 
 
@@ -343,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263587.jpg" />
 </div>
 
 
@@ -369,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263562.jpg" />
 </div>
 
 
@@ -397,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263560.jpg" />
 </div>
 
 
@@ -426,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263559.jpg" />
 </div>
 
 
@@ -455,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263494.jpg" />
 </div>
 
 
@@ -484,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263285.jpg" />
 </div>
 
 
@@ -513,7 +680,7 @@ Cкелетон. Кубок мира 2017-2018. 4-й Этап. Винтербе�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263284.jpg" />
 </div>
 
 
@@ -542,7 +709,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263283.jpg" />
 </div>
 
 
@@ -555,175 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60E25A23013E9E13A367BD1DA33D462061FB7A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192046   (263282) от 17.12.2017
-
-Cкелетон. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины (08.12.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263282.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 декабря 2017 года, пятница. 17:30 МСК
-4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
-Cкелетон. Мужчины
-Стадион: Уистлер Слидинг Центр (Уистлер, Канада)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FAF856E53A30E95D2F2B8B7700DED20BDB5A175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192289   (263281) от 17.12.2017
-
-Биатлон с Дмитрием Губерниевым. Сезон 2017-2018. Выпуск 4 (2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эфир от: 16.12.2017
-Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE58C2D8A67347FEF49197DE3B2F2261C6F14A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192466   (263280) от 17.12.2017
-
-Биатлон. Кубок Мира 2017-2018. 3-й Этап. Анси (Франция). Мужчины. Гонка преследования (16.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263280.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 декабря 2017 года, суббота. 16:45 МСК
-3-й этап Кубка Мира по биатлону 2017-2018. Анси (Франция)
-Мужчины. Гонка преследования 12,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CDE550DC6100643E46420A9359027C26CCB35C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192275   (263279) от 17.12.2017
-
-Конькобежный спорт. Кубок мира 2017-2018. 4-й Этап. Солт-Лейк Сити (США). 1-й день соревнований (08.12.2017) IPTV [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263279.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 декабря 2017 года, пятница
-Кубок мира 2017-2018. 4-й Этап. Солт-Лейк Сити (США)
-1-й день соревнований:
-1. Женщины / Мужчины - 500 м 1-й забег(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8484723BE75543EFCDFA7554D61AB69425B48F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340780   (263273) от 25.11.2019
-
-MotoGP. Этап 19/19. Гран-При Валенсии. Гонка. (17.11.2019) HDTVRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263273.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 ноября 2019, воскресенье. 16:00 МСК
-Этап 19, Валенсия, Испания
-Гран-при Валенсии (27 кругов, 108.1 км)Телекомпания: Моторспорт ТВЖанр: Спорт, мотогонкиЯзык озвучки: Русский (Сергей Беднарук)Субтитры: ОтсутствуютПродолжительность: 01:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0440345A796D2A4BDE59C6DFAE6148101E9E6754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192268   (263258) от 17.12.2017
-
-Биатлон. Кубок Мира 2017-2018. 3-й Этап. Анси (Франция). Мужчины. Спринт (15.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263258.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 декабря 2017 года, пятница. 16:15 МСК
-3-й этап Кубка Мира по биатлону 2017-2018. Анси (Франция)
-Мужчины. Спринт 10 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CB577355DF51F243F7693F877159836AF8A55C
 ```
 
 https://mybot314.ru/tekegram_catalog/

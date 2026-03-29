@@ -1,3 +1,56 @@
+###  Публикация: 1159193   (486245) от 19.08.2017
+
+Итало Кальвино | Если однажды зимней ночью путник... (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_486245.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Если однажды зимней ночью путник» (Se una notte d'inverno un viaggiatore) — один из наиболее знаменитых романов итальянского писателя Итало Кальвино, впервые опубликованный в 1979 году.
+Культовый постмодернистский роман. Знаковое произведение в истории мировой литературы ХХ века. Изумительная проза и действительно оригинальная идея. Сложная, завораживающая структура (   Читать дальше...   )Жанр: ПрозаПродолжительность: 09:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE27BE7C8E0312CC3FB64DB7D74D6197039D4D06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244000   (484200) от 31.08.2018
+
+Лоррен Фуше | Между небом и тобой (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жо только что потерял любовь всей своей жизни. Он не может дышать. И смеяться. Даже есть не может. Без Лу все ему не в радость, даже любимый остров, на котором они поселились после женитьбы и прожили всю жизнь. Ведь Лу и была этой жизнью. А теперь ее нет. Но даже с той стороны она пытается растормошить его, да что там растормошить – усложнить его участь вдовца до (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 11:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B5CB2DD07BCC437FA5291259C99E1E8EEA92D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159541   (484171) от 20.08.2017
 
 Хелен Саймонсон | Последний бой майора Петтигрю (2017) [MP3]
@@ -6,7 +59,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484171.jpg" />
+  <img src="Z:/picture/008/save_picture_484171.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484047.jpg" />
+  <img src="Z:/picture/008/save_picture_484047.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483531.jpg" />
+  <img src="Z:/picture/008/save_picture_483531.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482172.jpg" />
+  <img src="Z:/picture/008/save_picture_482172.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482169.jpg" />
+  <img src="Z:/picture/008/save_picture_482169.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481728.jpg" />
+  <img src="Z:/picture/008/save_picture_481728.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481726.jpg" />
+  <img src="Z:/picture/008/save_picture_481726.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481213.jpg" />
+  <img src="Z:/picture/008/save_picture_481213.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481212.jpg" />
+  <img src="Z:/picture/008/save_picture_481212.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480372.jpg" />
+  <img src="Z:/picture/008/save_picture_480372.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480177.jpg" />
+  <img src="Z:/picture/008/save_picture_480177.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480146.jpg" />
+  <img src="Z:/picture/008/save_picture_480146.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480075.jpg" />
+  <img src="Z:/picture/008/save_picture_480075.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479713.jpg" />
+  <img src="Z:/picture/008/save_picture_479713.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479630.jpg" />
+  <img src="Z:/picture/008/save_picture_479630.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479415.jpg" />
+  <img src="Z:/picture/008/save_picture_479415.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479343.jpg" />
+  <img src="Z:/picture/008/save_picture_479343.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479234.jpg" />
+  <img src="Z:/picture/008/save_picture_479234.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478496.jpg" />
+  <img src="Z:/picture/008/save_picture_478496.jpg" />
 </div>
 
 
@@ -506,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477966.jpg" />
+  <img src="Z:/picture/008/save_picture_477966.jpg" />
 </div>
 
 
@@ -533,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476199.jpg" />
+  <img src="Z:/picture/008/save_picture_476199.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476177.jpg" />
+  <img src="Z:/picture/008/save_picture_476177.jpg" />
 </div>
 
 
@@ -585,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475197.jpg" />
+  <img src="Z:/picture/008/save_picture_475197.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474020.jpg" />
+  <img src="Z:/picture/008/save_picture_474020.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46B1C81293CB09FC0D0FC96D52B7FBD441254757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057692   (473180) от 29.09.2016
-
-Геннадий Малкин | Умнеть надо незаметно (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Афористы – удивительный народ! В то время как многие писатели на протяжении всей истории литературы ищут (и порой небезуспешно) признания у человечества через создание огромных романов, эпопей и поэм, афористы пытаются достигнуть той же цели посредством малюсеньких предложений, которые они называют то афоризмами, то фразами, то лаконизмами, полагая (и тоже небезосновательно), (   Читать дальше...   )Жанр: АфоризмыПродолжительность: 04:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45069556091C4C2E84C61F2A150E422D7760317B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320380   (471394) от 18.08.2019
-
-Александр Снегирёв | Я намерен хорошо провести этот вечер (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он мечтал о счастье. И всё его обещало: и вёдра с нарциссами на стойке бара, и острый запах прелести, наглости, ранимости, разлитый в клубе, и пара-тройка «лонг-айлендов», и чувство уверенности, что любит и любим той единственной, которая сейчас далеко. Он мечтал… Но только апреля в сердце не было. Как не было ощущения, что по-прежнему юн. Как не было веры, что любовь (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 05:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1004ED5F372F99CA92F3C3C23BA1C86B79DC9184
 ```
 
 https://mybot314.ru/tekegram_catalog/

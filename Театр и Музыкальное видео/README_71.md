@@ -1,3 +1,172 @@
+###  Публикация: 1048917   (545464) от 03.09.2016
+
+Kiss - Rocks Vegas (2016) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_545464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oчередной подарок от Eagles Rock: Kiss качают Вегас! Запись сделана в том же самом зале The Joint в Hard Rock отеле в Лас-Вегасе, Невада. Антураж был сделан в классическом стиле середины 70-х, начиная с костюмов и кончая сценическими штучками. Было всё - извергание огня, вознесение под крышу, полёты на невидимых верёвочках, стрельба фейерверками посредством гитарного (   Читать дальше...   )01. Detroit Rock City
+02. Creatures Of The Night
+03. Psycho Circus
+04. Parasite(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:28:12 + 00:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AFD1500CF1D41945F63748B1ED870CFA36DA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310772   (545136) от 26.06.2019
+
+Сплин - Unplugged. Усадьба Jazz (22.06.2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_545136.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом году группе СПЛИН исполняется 25 лет. За прошедшую четверть века они обрели всенародную популярность: некоторые их песни стали саундтреком к жизни уже нескольких поколений и вошли в каноны русской рок-музыки, а сама группа успела неоднократно выступить на самых значимых фестивальных площадках страны. Группа серьезно подошла к подготовке и сделала специальную (   Читать дальше...   )Производство: РоссияЖанр: Альтернативный рок, арт-рок, фолк-рок, инди-рок, поп-рокСубтитры: ОтсутствуютПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BEB83765C5C8ED7A484D5B148272CD64E54DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220218   (544420) от 01.08.2018
+
+Iron Maiden - The Book Of Souls: The Live Chapter (2017) DVD5 [hand made]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_544420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия концертного альбома Iron Maiden "The Book Of Souls: Live Chapter", вышедшего 17 ноября 2017.
+ "The Book Of Souls: Live Chapter" включает 17 песен, записанных во время гастролей "World of the Book Of Souls World Tour" в 2016-2017 году, которые охватывали 39 стран на шести континентах. Всего за эти два года шоу Iron Maiden увидело (   Читать дальше...   )01.If Eternity Should Fail
+ (Live At Qudos Bank Arena, Sydney, Australia - Friday 6th May 2016)
+02.Speed Of Light
+ (Live At Grand Arena, GrandWest, Cape Town, South Africa - Wednesday 18th May 2016)(   Читать дальше...   )Производство: Warner Music CompanyЖанр: heavy metalРежиссер: Ryan TitleyАктеры: Iron MaidenПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CA8DB69EA666A672B9A7DE46C39E5AB9C5FFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311259   (543325) от 28.06.2019
+
+Жара в Дубае (2019) WEBRip [H.264/1080p-LQ] (части 1-2 из 2)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_543325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный фестиваль ЖАРА расширяет границы! Тысячи зрителей, десятки популярных артистов и несколько часов только хитов.Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:15:38 + 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C9282B948F026D78909DE44679B52880FE9D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226238   (543067) от 12.08.2010
+
+Майк Науменко - Часть мира, которого нет (2010) DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_543067.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вступление
+2. Если ты хочешь
+3. Старые раны
+4. Утро вдвоём(   Читать дальше...   )Жанр: Музыка, RockРежиссер: Наталья Шарымова, Джоан Стингрэй, Алик КанАктеры: Майк Науменко, Коля Васин, Андрей Тропилло и др.Продолжительность: 00:54:00+01:12:23+00:26:39+00:02:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924916   (542816) от 05.08.2015
+
+VA - Летний марафон № 180 / Видеоклипы (Новинки Русской Эстрады) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_542816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (04.08.2015) поп. новинки русской эстрады. Не пропустите, держите новые треки.1. Arsenium – Бэлла Бэлла (ПРЕМЬЕРА!)(00:03:39)
+2. Dinama - Это (ПРЕМЬЕРА!) (00:03:19)
+3. Emin - Забыть Тебя (Official Video) (00:04:37)
+4. Olisha - Дилемма (ПРЕМЬЕРА!) (00:03:20)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4337C3C54F20D79293917D7FAACB6F70F2B1693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924888   (542661) от 05.08.2015
 
 ВИА "Поющие гитары" (фильм-концерт) (1969) TVRip [H.264] [hand made colored]
@@ -6,7 +175,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542661.jpg" />
+  <img src="Z:/picture/008/save_picture_542661.jpg" />
 </div>
 
 
@@ -37,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542553.jpg" />
+  <img src="Z:/picture/008/save_picture_542553.jpg" />
 </div>
 
 
@@ -64,7 +233,7 @@ Herbie Hancock - Future2Future (2002) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542024.jpg" />
+  <img src="Z:/picture/008/save_picture_542024.jpg" />
 </div>
 
 
@@ -93,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542012.jpg" />
+  <img src="Z:/picture/008/save_picture_542012.jpg" />
 </div>
 
 
@@ -122,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542007.jpg" />
+  <img src="Z:/picture/008/save_picture_542007.jpg" />
 </div>
 
 
@@ -151,7 +320,7 @@ The Exploited - Live at the Hellfest (2011) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541333.jpg" />
+  <img src="Z:/picture/008/save_picture_541333.jpg" />
 </div>
 
 
@@ -180,7 +349,7 @@ U.D.O. - Navy Metal Night (2015) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541118.jpg" />
+  <img src="Z:/picture/008/save_picture_541118.jpg" />
 </div>
 
 
@@ -209,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540818.jpg" />
+  <img src="Z:/picture/008/save_picture_540818.jpg" />
 </div>
 
 
@@ -237,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540446.jpg" />
+  <img src="Z:/picture/008/save_picture_540446.jpg" />
 </div>
 
 
@@ -267,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540436.jpg" />
+  <img src="Z:/picture/008/save_picture_540436.jpg" />
 </div>
 
 
@@ -296,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540359.jpg" />
+  <img src="Z:/picture/008/save_picture_540359.jpg" />
 </div>
 
 
@@ -327,7 +496,7 @@ Lady Gaga - Live at iTunes Festival (2013) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540141.jpg" />
+  <img src="Z:/picture/008/save_picture_540141.jpg" />
 </div>
 
 
@@ -356,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540117.jpg" />
+  <img src="Z:/picture/008/save_picture_540117.jpg" />
 </div>
 
 
@@ -382,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539834.jpg" />
+  <img src="Z:/picture/008/save_picture_539834.jpg" />
 </div>
 
 
@@ -408,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539833.jpg" />
+  <img src="Z:/picture/008/save_picture_539833.jpg" />
 </div>
 
 
@@ -434,7 +603,7 @@ Musicmatters Videomix - Winter 2014 (2014)  WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539476.jpg" />
+  <img src="Z:/picture/008/save_picture_539476.jpg" />
 </div>
 
 
@@ -463,7 +632,7 @@ Musicmatters Videomix - Autumn 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539475.jpg" />
+  <img src="Z:/picture/008/save_picture_539475.jpg" />
 </div>
 
 
@@ -492,7 +661,7 @@ Musicmatters  Videomix - Summer 2014 (2014) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539467.jpg" />
+  <img src="Z:/picture/008/save_picture_539467.jpg" />
 </div>
 
 
@@ -521,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538720.jpg" />
+  <img src="Z:/picture/008/save_picture_538720.jpg" />
 </div>
 
 
@@ -548,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538103.jpg" />
+  <img src="Z:/picture/008/save_picture_538103.jpg" />
 </div>
 
 
@@ -559,171 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906109FA9501983174B7F9E699601491105E288E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532250   (537855) от 07.08.2012
-
-Цирк дю Солей: Большое путешествие / Cirque du Soleil: Journey of Man (2000) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цирк… Атмосфера чуда и праздника витает в воздухе. Арена притягивает взгляды. И вот гаснет свет, дирижер взмахивает палочкой, оркестр берет первые такты… Представление начинается, и зал замирает в ожидании сказочного действа…Жанр: короткометражка, мюзикл, фэнтези, драма, семейныйАктеры: Иэн МакКеллен, Никки Дьюхерст, Брайан Дьюхерст, Anait Karagyezyan, Крис Ван Вагенен, Кенни Раскин, Cully Smoller, Михаил Маторин, Ив Декосте, Marie-Laure MesnageПеревод: дублированныйСубтитры: Русские, АнглийскиеПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7B1CD0339E2B9A8E64D02187C17346739846EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924887   (536924) от 08.08.2015
-
-Сборник видеоклипов -  русские  Хиты (2015) HDTVRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник видеоклипов -  русские  ХитыЖанр: PopПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD118C680525476A2906409415B26F87EBFDC26A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366840   (536899) от 23.07.2011
-
-Lounа - Фестиваль "Нашествие 2011" (2011) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Мой Рок-н-Ролл
-02-Бойцовский клуб
-03-Кому веришь ты?
-04-Зачем?(   Читать дальше...   )8, 9, 10 июля в Тверской области состоялся десятый юбилейный крупнейший всероссийский фестиваль на открытом воздухе «НАШЕСТВИЕ». В этом году фестиваль собрал еще больше гостей, чем в прошлом. В общей сложности за 3 фестивальных дня «НАШЕСТВИЕ» посетили более 170 000 человек. Несколько сотенЖанр: КонцертПродолжительность: 00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3F889BC8959FE2290629A52BA97DFE1424FBDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 366841   (536634) от 23.07.2011
-
-Фестиваль Нашествие 2011 - АРИЯ (2011) WEB-DLRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536634.jpg" />
-</div>
-
-
-###  Подробнее
-
-8, 9, 10 июля в Тверской области состоялся десятый юбилейный крупнейший всероссийский фестиваль на открытом воздухе «НАШЕСТВИЕ». В этом году фестиваль собрал еще больше гостей, чем в прошлом. В общей сложности за 3 фестивальных дня «НАШЕСТВИЕ» посетили более 170 000 человек. Несколько сотен журналистов из всех регионов нашей необъятной страны, а также из стран ближнего (   Читать дальше...   )01. Колизей
-02. Игра с огнем
-03. Крещение огнем
-04. Штиль(   Читать дальше...   )Жанр: Концерт, Hard 'n' HeavyПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71CB35B81B05C24D67EA415B281BF637F96A34B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 697108   (536336) от 05.09.2013
-
-Двадцать седьмой, неполный (1970) TVRip (БДТ им. Товстоногова)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль из репертуара БДТ им. Товстоногова по пьесе Ю. Принцева. О жизни и творчестве Аркадия Гайдара.Производство: Ленинградское ТВЖанр: Телеспектакль, драма, военный, биографияРежиссер: Глеб СелянинАктеры: Олег Окулевич, Павел Луспекаев, Анатолий Пузырёв, Ольга Волкова, Алексей Колобов, Владислав Стржельчик, Михаил ЛадыгинПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CE64E691D4FFA23EAB2BD93F5A7622E73D9A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 695887   (535896) от 05.09.2013
-
-Сборник клипов - VA - Various Music part. 45 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535896.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Akcent feat. Dollarman - Spanish Lover 2K13 (Notrack edit) (VJ Tony Video Edit) 1080p (3:25)
-2. Alex Gaudino feat. Mario - Beautiful 1080p (3:44)
-3. Alex Hepburn - Under 1080p (4:07)
-4. Alexander Popov - Moscow Subway 1080p (3:45)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C85D6E9034D4CB586502D45F804C8DC8F6AAAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

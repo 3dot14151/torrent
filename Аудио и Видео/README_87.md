@@ -6,7 +6,7 @@
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757167.jpg" />
+  <img src="Z:/picture/005/save_picture_757167.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757166.jpg" />
+  <img src="Z:/picture/005/save_picture_757166.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757165.jpg" />
+  <img src="Z:/picture/005/save_picture_757165.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757162.jpg" />
+  <img src="Z:/picture/008/save_picture_757162.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757128.jpg" />
+  <img src="Z:/picture/008/save_picture_757128.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757126.jpg" />
+  <img src="Z:/picture/008/save_picture_757126.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757098.jpg" />
+  <img src="Z:/picture/008/save_picture_757098.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757094.jpg" />
+  <img src="Z:/picture/008/save_picture_757094.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757092.jpg" />
+  <img src="Z:/picture/008/save_picture_757092.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757038.jpg" />
+  <img src="Z:/picture/008/save_picture_757038.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757036.jpg" />
+  <img src="Z:/picture/008/save_picture_757036.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Winter Grooves: Urban Chillout Music (2022) [AAC|~309 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757032.jpg" />
+  <img src="Z:/picture/005/save_picture_757032.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Ethno 3 (2019) [AAC|~323 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757028.jpg" />
+  <img src="Z:/picture/008/save_picture_757028.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Guatemala Orange: Latin Chill Music (2021) [AAC|~322 Kbps] <Chill Out, Nu J
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757026.jpg" />
+  <img src="Z:/picture/008/save_picture_757026.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756916.jpg" />
+  <img src="Z:/picture/008/save_picture_756916.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VA - Ethno (2017) [AAC|~321 Kbps] <Chill Out, Downtempo, Organic House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756902.jpg" />
+  <img src="Z:/picture/008/save_picture_756902.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ VA - Chillout 2022 (2022) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756901.jpg" />
+  <img src="Z:/picture/008/save_picture_756901.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ VA - Deep & Soul 3: Deep House Music for Your Soul (2020) [AAC|~319 Kbps] <Deep 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756898.jpg" />
+  <img src="Z:/picture/008/save_picture_756898.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Deep & Soul 2: Deep House Music for Your Soul (2020) [AAC|~322 Kbps] <Deep 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756897.jpg" />
+  <img src="Z:/picture/008/save_picture_756897.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Deep & Soul 1: Deep House Music for Your Soul (2020) [AAC|~325 Kbps] <Deep 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756896.jpg" />
+  <img src="Z:/picture/008/save_picture_756896.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Bart&Baker - Nicolle Rochelle Sings Bart&Baker: The First Lady of Electro Swing 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756890.jpg" />
+  <img src="Z:/picture/008/save_picture_756890.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Deep & Soul 4: Deep House Music for Your Soul (2022) [AAC|~326 Kbps] <Deep 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756888.jpg" />
+  <img src="Z:/picture/008/save_picture_756888.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756826.jpg" />
+  <img src="Z:/picture/008/save_picture_756826.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - Invisible Smile: Chillout Your Mind (2022) [AAC|~327 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756768.jpg" />
+  <img src="Z:/picture/008/save_picture_756768.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756694.jpg" />
+  <img src="Z:/picture/008/save_picture_756694.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ The Weeknd - Dawn FM (2022) [AAC|~310 Kbps] <Pop, R&B, Soul, Alternative>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756647.jpg" />
+  <img src="Z:/picture/008/save_picture_756647.jpg" />
 </div>
 
 

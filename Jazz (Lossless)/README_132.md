@@ -1,3 +1,119 @@
+###  Публикация: 1147403   (609871) от 02.07.2017
+
+Harry Allen & Keith Ingham - The Back Room Romp (1995) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Back Room Romp [3:52]
+02 Sweet Lotus Blossom [5:30]
+03 One Sweet Letter from You [5:21]
+04 Elephant Stomp [3:56](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A567735AC9E9921C3B0D03F38E3FB19F28B70F3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147450   (609870) от 02.07.2017
+
+The Harry Allen & Joe Cohn Quartet - Guys and Dolls (2007) Arbors Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guys and Dolls [06:18]
+02. If I Were a Bell [04:16]
+03. A Woman in Love [03:03]
+04. Luck Be a Lady [05:06](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:11:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BF210576D930EA169D59A4E21DBE4906E84E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147466   (609869) от 02.07.2017
+
+George Masso Sextet - C'est Magnifique (2000) Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's D'Lovely [09:43]
+02. It's All Right With Me [10:49]
+03. Why Shouldn't I [04:51]
+04. What Is This Thing Called Love [07:07](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE50C3F2A906EC43D2C7CF891FC91A163604561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147301   (609868) от 02.07.2017
+
+Clare Fischer - The Clare Fischer Voices... and Sometimes Instruments (2011) Clavo Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Cat [03:51]
+02. Mood Indigo [04:20]
+03. America the Beautiful [02:58]
+04. Una Manana [03:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE13D2408906E84D70DC0465B59123B30AC3264
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147309   (609867) от 02.07.2017
 
 Abdu Salim - Aladdin's Magic Lamp (2001, 2008) 2011, Crisis Muzon Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
@@ -6,7 +122,7 @@ Abdu Salim - Aladdin's Magic Lamp (2001, 2008) 2011, Crisis Muzon Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609867.jpg" />
+  <img src="Z:/picture/008/save_picture_609867.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Roscoe Mitchell - Bells For The South Side (2017) 2CD, ECM [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609735.jpg" />
+  <img src="Z:/picture/008/save_picture_609735.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Perez Prado - The Best Of Perez Prado - The Original Mambo No.5 (2006) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609731.jpg" />
+  <img src="Z:/picture/008/save_picture_609731.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Art Blakey & Les Jazz-Messengers - Au Club Saint-Germain Vol. 1 (1959) /2014, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609448.jpg" />
+  <img src="Z:/picture/008/save_picture_609448.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Natalia M. King - Soulblazz (2014) [FLAC|tracks|WEB-DL]<Vocal Jazz, Blues, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609446.jpg" />
+  <img src="Z:/picture/008/save_picture_609446.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Miles Davis - Bags' Groove (1954) /2008, Concord/[FLAC|tracks+.cue]<Jazz, Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609445.jpg" />
+  <img src="Z:/picture/008/save_picture_609445.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Illinois Jacquet - The Soul Explosion (1969) /2000, Prestige/[FLAC|tracks+.cue]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609440.jpg" />
+  <img src="Z:/picture/008/save_picture_609440.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Narada Michael Walden - Divine Emotion (1988) [FLAC|tracks+.cue]<Funk, Soul, Dis
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609324.jpg" />
+  <img src="Z:/picture/008/save_picture_609324.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Мой любимый старый джаз (My Loved Old Jazz) (1930-e - 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608935.jpg" />
+  <img src="Z:/picture/008/save_picture_608935.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) GMCD092 [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608768.jpg" />
+  <img src="Z:/picture/008/save_picture_608768.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jerry Bergonzi - The Seven Rays (2019) Savant [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608724.jpg" />
+  <img src="Z:/picture/008/save_picture_608724.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - 12 Ladies In BP Club (2007) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608720.jpg" />
+  <img src="Z:/picture/008/save_picture_608720.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Jazz At Lincoln Center Orchestra with Wynton Marsalis - Live In Cuba (2010) 2CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608710.jpg" />
+  <img src="Z:/picture/008/save_picture_608710.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Art Blakey & The Jazz Messengers - First Flight to Tokyo (1961) 2CD, 2021, Blue 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607999.jpg" />
+  <img src="Z:/picture/008/save_picture_607999.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Jackie McLean & Bill Hardman - Jackie's Pal (1956) 2013, Analogue Productions [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607863.jpg" />
+  <img src="Z:/picture/008/save_picture_607863.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Sam Yahel - Hometown (2009) Posi-Tone Records [FLAC|Lossless|image + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607862.jpg" />
+  <img src="Z:/picture/008/save_picture_607862.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Stephane Grappelli - Pent Up House (1962) 1998, Drive Archive [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607859.jpg" />
+  <img src="Z:/picture/008/save_picture_607859.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Coleman Hawkins - Wrapped Tight (1965) 2011, Universal [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607858.jpg" />
+  <img src="Z:/picture/008/save_picture_607858.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Jackie McLean - Lights Out! (1956) 2013, Analogue Productions [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607738.jpg" />
+  <img src="Z:/picture/008/save_picture_607738.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Bobby Watson and the Horizon Quintet - Gumbo (1994) [FLAC|Lossless]<Hard Bop, Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_607726.jpg" />
+  <img src="Z:/picture/005/save_picture_607726.jpg" />
 </div>
 
 
@@ -589,7 +705,7 @@ Louis Armstrong - Under The Stars (1957) 2009, Verve [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607724.jpg" />
+  <img src="Z:/picture/008/save_picture_607724.jpg" />
 </div>
 
 
@@ -618,7 +734,7 @@ Bobby Hutcherson - Best of the Blue Note Years (2001) [FLAC|Lossless]<Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_607495.jpg" />
+  <img src="Z:/picture/005/save_picture_607495.jpg" />
 </div>
 
 
@@ -638,122 +754,6 @@ Bobby Hutcherson - Best of the Blue Note Years (2001) [FLAC|Lossless]<Post-Bop, 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913407   (607239) от 28.06.2015
-
-Nico Morelli - Nico Morelli (2003) [FLAC|tracks]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarante
-02. Blues Zen
-03. Il Canto di Sadone
-04. Pezzo X(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86ECAE2EAE23AC6D18DBD075A0248F49AA7109A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913410   (607235) от 28.06.2015
-
-Novi Singers - Novi sing Chopin (1995) [FLAC|tracks+.cue]<Vocal Jazz, Classical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude in E minor Op 28 No 4
-02. Prelude in D flat major Op 28 No 15
-03. Mazurek in F major Op 68 No 4
-04. Grande Valse Brillante Op 32 No 2(   Читать дальше...   )Жанр: Vocal Jazz, ClassicalПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD08ECCC260F0C2DC3A0B953EF831A10A8FB44C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231288   (607059) от 17.06.2018
-
-Les Double Six Meets Quincy Jones (1960 - 1962) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Lena And Lennie [4:10]
-02. Rat Race [2:38]
-03. Stockholm Sweetin' [5:41]
-04. Boo's Bloos [5:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:18:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED71B1BD50C4DCE00120D7F85EE85446083D40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231291   (607058) от 17.06.2018
-
-Gigi Gryce & Clifford Brown Sextet - Jazz Time Paris (1953) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strictly Romantic [4:19]
-02. Baby [5:47]
-03. No Start, No End [11:46]
-04. Minority [5:29](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9EA84F2CA46CA0CACF0A15217302FD27A1E34DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

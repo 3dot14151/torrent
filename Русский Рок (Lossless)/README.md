@@ -7,7 +7,7 @@ Margenta - Prologue (2026) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard R
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061590.jpg" />
+  <img src="Z:/picture/005/save_picture_1061590.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Moongates Guardian - Come Shadow Of My End (2026) [FLAC|Lossless|WEB-DL|tracks] 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060327.jpg" />
+  <img src="Z:/picture/009/save_picture_1060327.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059709.jpg" />
+  <img src="Z:/picture/009/save_picture_1059709.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058964.jpg" />
+  <img src="Z:/picture/005/save_picture_1058964.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058832.jpg" />
+  <img src="Z:/picture/005/save_picture_1058832.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058242.jpg" />
+  <img src="Z:/picture/005/save_picture_1058242.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Otto Dix - Хюбрис (2026) [FLAC|Lossless|WEB-DL|tracks] <Darkwave>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057289.jpg" />
+  <img src="Z:/picture/005/save_picture_1057289.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057220.jpg" />
+  <img src="Z:/picture/005/save_picture_1057220.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056953.jpg" />
+  <img src="Z:/picture/005/save_picture_1056953.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056605.jpg" />
+  <img src="Z:/picture/005/save_picture_1056605.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056604.jpg" />
+  <img src="Z:/picture/005/save_picture_1056604.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056433.jpg" />
+  <img src="Z:/picture/005/save_picture_1056433.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1055650.jpg" />
+  <img src="Z:/picture/009/save_picture_1055650.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1055238.jpg" />
+  <img src="Z:/picture/009/save_picture_1055238.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054699.jpg" />
+  <img src="Z:/picture/005/save_picture_1054699.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054212.jpg" />
+  <img src="Z:/picture/005/save_picture_1054212.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054034.jpg" />
+  <img src="Z:/picture/005/save_picture_1054034.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ polnalyubvi - Песнь Нимфеи (2026) [FLAC|Lossless|WEB-DL|tracks] <Folk
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054033.jpg" />
+  <img src="Z:/picture/005/save_picture_1054033.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053956.jpg" />
+  <img src="Z:/picture/005/save_picture_1053956.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053254.jpg" />
+  <img src="Z:/picture/005/save_picture_1053254.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052888.jpg" />
+  <img src="Z:/picture/005/save_picture_1052888.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052075.jpg" />
+  <img src="Z:/picture/005/save_picture_1052075.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ MOR - Разумное, громкое, вечное (2025) [FLAC 24/44.1|Lossle
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052022.jpg" />
+  <img src="Z:/picture/005/save_picture_1052022.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051997.jpg" />
+  <img src="Z:/picture/005/save_picture_1051997.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Aeon Spiral - 2 Albums, 1EP (2025-2026) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051911.jpg" />
+  <img src="Z:/picture/005/save_picture_1051911.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051179.jpg" />
+  <img src="Z:/picture/005/save_picture_1051179.jpg" />
 </div>
 
 

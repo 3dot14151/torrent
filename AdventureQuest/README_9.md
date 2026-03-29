@@ -1,3 +1,81 @@
+###  Публикация: 1351909   (1001503) от 12.01.2020
+
+Dark Fall: Ghost Vigil (2020) [En] (1.0) License HOODLUM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Присоединяйтесь к всенощному бдению призраков в Харвуд-Хаусе. В составе группы по расследованию паранормальных явлений " ОПГ " исследуйте здания с привидениями и расследуйте случаи появления призраков, о которых давно сообщалось в районе Вольфендена. Возьмите призрачные охотничьи гаджеты и разгадайте тайну, окружающую это заброшенное здание. Добро пожаловать (   Читать дальше...   )Тип издания: LicenseРазработчик: Darkling RoomЖанр: ПриключениеЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C10048F2B2956EA78274293051B0E026C5CCF52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330222   (1001491) от 12.01.2020
+
+Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.0.8236/dlc) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trine 4: The Nightmare Prince – очередная часть в серии логических платформеров Trine. Присоединяйтесь к тройке ключевых героев из предыдущих частей игры (рыцарю Понтию, воровке Зои и магу Амадею) и отправляйтесь в новое сказочное приключение, чтобы спасти мир от теней Принца Кошмаров. Trine 4 предложит вам как одиночное, так и кооперативное прохождение с множеством (   Читать дальше...   )Тип издания: RepackРазработчик: FrozenbyteЖанр: Action, Adventure, PlatformerЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D71685A21631128857CE89BF111935F43C739F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489109   (1001105) от 14.08.2021
+
+Demon's Residence (2021) [En] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас позвали оценить дом до того, как его выставят на продажу. Судя по тому, что вы слышали, резиденция была построена в 1800-х годах, но за эти годы она претерпела значительные изменения. Вы согласились на работу и отправляетесь в старые тихие деревни. Пожилая женщина, которая запросила вашу оценку, живет в другой стране и намекнула вам, где находится ключ от входной (   Читать дальше...   )Тип издания: RepackРазработчик: Morning Shift StudiosЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66D7CD5C60A774E538BCB923A2F2CE13475F6F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599898   (998450) от 09.01.2013
 
 Botanicula [Ru/En] (Repack/1.0.0.7) 2012 | Fenixx
@@ -6,7 +84,7 @@ Botanicula [Ru/En] (Repack/1.0.0.7) 2012 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998450.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Dracula: Origin / Охотник на Дракулу [Ru] (RePack/1.0) 2008 | Au
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997112.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Dracula. Origin / Охотник на Дракулу [Ru] (Repack) 2008 | Fenixx
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996600.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Sherlock Holmes vs. Jack the Ripper / Шерлок Холмс против Дж�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996571.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ Tormentum - Dark Sorrow (2015) [Ru/Multi] (1.4.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989650.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ Last Day of June (2017) [Ru/Multi] (5.6.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989594.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ Unmechanical [Ru/En] (RePack) 2012 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988846.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ Phineas and Ferb: New Inventions / Финес и Ферб. Новые изобр
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988800.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ Brothers - A Tale of Two Sons (2013) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988751.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ HellScape: Two Brothers (2020) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985779.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ Path of Zen (2020) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983238.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ Runner Heroes: The curse of night and day (2020) [Ru/Multi] (1.0) License HOODLU
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983142.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ Lightmatter (2020) [Ru/Multi] (1.02) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980810.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ Last in Orbit (2020) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980759.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ Louisiana Adventure / Однажды в Луизиане [Ru] (RePack) 2013 | Se
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980461.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ Deponia: The Complete Journey (2014) [Ru/Multi] (3.3.0155) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979883.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ Escape The Manor (2020) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979723.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ Lightmatter (2020) [Ru/Multi] (1.05/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979706.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ Mutazione (2019) [Ru/Multi] (1.7.5805) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978534.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978452.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ Lucius [Ru/En/Multi7] (L) 2012 | PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978316.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ The Stanley Parable (2013) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977581.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977341.jpg" />
 </div>
 
 
@@ -600,84 +678,6 @@ Through the Darkest of Times (2020) [Ru/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:045B8700D6A0CBECFAEAF551AE9FFEC37C9AE416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356619   (977331) от 31.01.2020
-
-Catherine Classic (2019) [Ru] (1.04) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познайте все прелести и ужасы любви вместе с Винсентом, который оказался перед нелёгким выбором: жениться на своей давней подруге Катерине или переехать к отпадной блондинке, в чьей постели он только что проснулся — и которую зовут Катриной! Но берегитесь! Одно неверное решение может стоить вам жизни. Этот уникальный гибрид приключенческого боевика и головоломки (   Читать дальше...   )Тип издания: RepackРазработчик: ATLUSЖанр: Приключенческие игрыЯзык озвучки: Русский, ЯпонскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8997E87D5CA7F3FF9F46A4ABF2749C12CCDBA8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356822   (976233) от 01.02.2020
-
-Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страна разделена Стеной. Чтобы пересечь ее и воссоединиться с семьей, вам нужно поучаствовать — и выиграть — в реалити-шоу, транслируемом правительством Режима. Ministry of Broadcast — однопользовательский платформер с кинематографичным сюжетом, в котором атмосфера в духе «1984» Оруэлла сочетается с элементами современных реалити-шоу. Полно черного юмора, сарказма (   Читать дальше...   )Тип издания: LicenseРазработчик: Ministry of Broadcast StudiosЖанр: Platformer, Adventure, Action, Game-ShowЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93860B589CE14662B80C9976317F324967513487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356838   (976178) от 01.02.2020
-
-SOMA (2015) [Ru/Multi] (1.510) Repack xatab
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спуститесь в мир SOMA и столкнитесь лицом к лицу с ужасом, что таится в глубинах океана. Вам придётся покопаться в документах и взломать не один компьютер, чтобы узнать правду, стоящую за царящим там хаосом. Найдите уцелевших обитателей и примите участие в событиях, которые определят будущее станции. Но будьте осторожны: опасность таится за каждым углом: обезумевшие (   Читать дальше...   )Тип издания: LicenseРазработчик: Frictional GamesЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FFB18B66E403ECD3D2DEDC9E1DEA7864A6D286D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1590133   (189249) от 12.11.2022
+
+3dtotal Publishing | Фигура человека для художника. Большая книга анатомии, референсов и художественных поз (2023) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что отличает художника-любителя от мастера? Иногда композиция рисунка, его форма и стиль хороши, но чего-то не хватает. Некомпетентность в области анатомии – то, что может погубить даже самый смелый художественный замысел.
+Для художника изучение этой науки не ограничивается бездумным запоминанием названий и расположения различных органов. Знать анатомию – значит (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE9D8F6992F9A31CB7F168B7839074F51E6F101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384669   (188909) от 13.11.2022
 
 Книжная серия | Философский поединок [45 книг] (2013-2022) [EPUB]
@@ -6,7 +33,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188909.jpg" />
+  <img src="Z:/picture/005/save_picture_188909.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188900.jpg" />
+  <img src="Z:/picture/005/save_picture_188900.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188725.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188593.jpg" />
+  <img src="Z:/picture/005/save_picture_188593.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Marcos Mateu-Mestre | Framed Perspective [2 части] (2016) [PDF] [EN]
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188456.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187028.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187023.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186357.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186014.jpg" />
+  <img src="Z:/picture/005/save_picture_186014.jpg" />
 </div>
 
 
@@ -245,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_186008.jpg" />
+  <img src="Z:/picture/005/save_picture_186008.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_185967.jpg" />
+  <img src="Z:/picture/005/save_picture_185967.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183525.jpg" />
 </div>
 
 
@@ -327,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182325.jpg" />
+  <img src="Z:/picture/005/save_picture_182325.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182282.jpg" />
+  <img src="Z:/picture/005/save_picture_182282.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182118.jpg" />
+  <img src="Z:/picture/005/save_picture_182118.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181518.jpg" />
+  <img src="Z:/picture/005/save_picture_181518.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181427.jpg" />
+  <img src="Z:/picture/005/save_picture_181427.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180602.jpg" />
+  <img src="Z:/picture/005/save_picture_180602.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179916.jpg" />
+  <img src="Z:/picture/005/save_picture_179916.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179153.jpg" />
+  <img src="Z:/picture/005/save_picture_179153.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178908.jpg" />
+  <img src="Z:/picture/005/save_picture_178908.jpg" />
 </div>
 
 
@@ -565,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176604.jpg" />
+  <img src="Z:/picture/004/save_picture_176604.jpg" />
 </div>
 
 
@@ -591,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175831.jpg" />
+  <img src="Z:/picture/004/save_picture_175831.jpg" />
 </div>
 
 
@@ -619,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174915.jpg" />
+  <img src="Z:/picture/004/save_picture_174915.jpg" />
 </div>
 
 
@@ -645,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174825.jpg" />
+  <img src="Z:/picture/004/save_picture_174825.jpg" />
 </div>
 
 
@@ -657,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:571D5868386393EE543FFA745E05C1E814741722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430341   (174264) от 09.12.2020
-
-Венди Тейт | Цветочные акварели Венди Тейт. Как создавать воздушные и эффектные работы (2020) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварелистка Венди Тейт, посвятившая всю жизнь изобразительному искусству, делится секретами работы с цветом, тоном и светом, а также дает подробную информацию о том, как делать тональные наброски, создавать картины по фотографиям и гармонично подбирать цвета.
-В отличие от большинства ботанических иллюстраторов, Тейт сразу приступает к картине и пишет ее кистью. (   Читать дальше...   )Жанр: Изобразительное искусство, СамоучителиПеревод: Анна АвдееваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9CAEF53CEC932F5C745357A5AA2120598C96C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

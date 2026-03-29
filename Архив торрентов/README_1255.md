@@ -6,7 +6,7 @@ PreSonus - Studio One Professional 4.6.2.58729 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771364.jpg" />
+  <img src="Z:/picture/008/save_picture_771364.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Kill The Noise - Alt Classic (2016) [MP3|320 кб/с] <Bass, Breaks, Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771362.jpg" />
+  <img src="Z:/picture/008/save_picture_771362.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ TechTool Pro 8.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771360.jpg" />
+  <img src="Z:/picture/008/save_picture_771360.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Red Hot Chili Peppers - Dark Necessities (2016) Single [MP3|320 кб/с] <Altern
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771351.jpg" />
+  <img src="Z:/picture/008/save_picture_771351.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771349.jpg" />
+  <img src="Z:/picture/008/save_picture_771349.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Kerish Doctor 2019 4.70 DC 24.01.2019 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771320.jpg" />
+  <img src="Z:/picture/008/save_picture_771320.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771315.jpg" />
+  <img src="Z:/picture/008/save_picture_771315.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771307.jpg" />
+  <img src="Z:/picture/008/save_picture_771307.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Adobe Acrobat Reader DC 2015.007.20033 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771299.jpg" />
+  <img src="Z:/picture/008/save_picture_771299.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771268.jpg" />
+  <img src="Z:/picture/008/save_picture_771268.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ GPU-Z 0.8.8 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771255.jpg" />
+  <img src="Z:/picture/008/save_picture_771255.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ AVG AntiVirus 2016 16.71.7597 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771254.jpg" />
+  <img src="Z:/picture/008/save_picture_771254.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771244.jpg" />
+  <img src="Z:/picture/008/save_picture_771244.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ AVG Internet Security 2016 16.71.7597 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771243.jpg" />
+  <img src="Z:/picture/008/save_picture_771243.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771239.jpg" />
+  <img src="Z:/picture/008/save_picture_771239.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771217.jpg" />
+  <img src="Z:/picture/008/save_picture_771217.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771212.jpg" />
+  <img src="Z:/picture/008/save_picture_771212.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ IObit Driver Booster Pro 6.2.1.268 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771203.jpg" />
+  <img src="Z:/picture/008/save_picture_771203.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771167.jpg" />
+  <img src="Z:/picture/008/save_picture_771167.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771159.jpg" />
+  <img src="Z:/picture/008/save_picture_771159.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_771157.jpg" />
+  <img src="Z:/picture/005/save_picture_771157.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ LibreOffice 5.1.3 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771152.jpg" />
+  <img src="Z:/picture/008/save_picture_771152.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771149.jpg" />
+  <img src="Z:/picture/008/save_picture_771149.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_771138.jpg" />
+  <img src="Z:/picture/005/save_picture_771138.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Adobe Acrobat Reader DC 2015.016.20039 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771125.jpg" />
+  <img src="Z:/picture/008/save_picture_771125.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ UC Browser 5.6.12265.1015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771119.jpg" />
+  <img src="Z:/picture/008/save_picture_771119.jpg" />
 </div>
 
 

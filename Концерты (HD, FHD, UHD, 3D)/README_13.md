@@ -1,3 +1,85 @@
+###  Публикация: 1278842   (767559) от 27.01.2019
+
+King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_767559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинг Даймонд — хэви-метал-музыкант, известный благодаря своим оригинальным вокальным партиям и шокирующему имиджу. Являясь лидером группы Mercyful Fate и одноимённой группы King Diamond, он оказал большое влияние на множество других музыкальных команд различного метал-жанра.  /Live at The Fillmore in Philadelphia, PA November 25th, 2015/Производство: Metal Blade RecordsЖанр: Dark Heavy MetalСубтитры: отсутствуютПродолжительность: 01:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F082FA2473E63EC16963F61996F0C2D595D54879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213776   (767327) от 18.03.2018
+
+Квартирник на НТВ у Маргулиса. Александр Маршал (03.17.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_767327.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришел Александр Маршал. Советский и российский рок-музыкант, певец, бас-гитарист и автор песен вспомнил о своем отце, который пел частушки и во время их исполнения выгонял Александра из комнаты. Музыкант рассказал о начале карьеры и о том, как учился в военно-летном училище, где создал свой первый вокально-инструментальный ансамбль.
+Александр (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C1DB3772749B693F2059514FD079365E46B446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279158   (766748) от 28.01.2019
+
+Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_766748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bee Gees – пожалуй, самый успешный семейный проект в истории музыки. Группа «Би Джиз» состояла из трех братьев – Барри, Мориса и Робина Гиббов, их песни в 1970-х годах стали символом этого стильного времени с его цветастыми рубашками, длинными волосами и брюками-клеш. Общий объем мировых продаж пластинок Bee Gees превышает 100 миллионов копий, за что их называют (   Читать дальше...   )01. Ordinary Lives
+02. Giving Up The Ghost
+03. To Love Somebody
+04. I.ve Gotta Get A Message To You(   Читать дальше...   )Производство: США, Eagle Vision MediaЖанр: Pop, Disco, Soft RockРежиссер: Рой Вуд, Петер ДеметрисСубтитры: отсутствуютПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFBF98DD2AEAAF84F2C0148C45B56E9485BED927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279153   (766735) от 28.01.2019
 
 Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/1080p]
@@ -6,7 +88,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766735.jpg" />
+  <img src="Z:/picture/008/save_picture_766735.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ Bee Gees - One For All Tour Live in Australia 1989 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766670.jpg" />
+  <img src="Z:/picture/008/save_picture_766670.jpg" />
 </div>
 
 
@@ -64,7 +146,7 @@ Alestorm - Концерт в Тилбурге / Alestorm - Live in Tilburg (2021
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766104.jpg" />
+  <img src="Z:/picture/008/save_picture_766104.jpg" />
 </div>
 
 
@@ -93,7 +175,7 @@ Karnivool - Концерт в театре Хита Леджера / Karnivool -
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765140.jpg" />
+  <img src="Z:/picture/008/save_picture_765140.jpg" />
 </div>
 
 
@@ -119,7 +201,7 @@ Epica - Концертное шоу Omega Alive / Epica - Omega Alive (2021) BDR
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765088.jpg" />
+  <img src="Z:/picture/008/save_picture_765088.jpg" />
 </div>
 
 
@@ -148,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765080.jpg" />
+  <img src="Z:/picture/008/save_picture_765080.jpg" />
 </div>
 
 
@@ -178,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765062.jpg" />
+  <img src="Z:/picture/008/save_picture_765062.jpg" />
 </div>
 
 
@@ -208,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764572.jpg" />
+  <img src="Z:/picture/008/save_picture_764572.jpg" />
 </div>
 
 
@@ -234,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764265.jpg" />
+  <img src="Z:/picture/008/save_picture_764265.jpg" />
 </div>
 
 
@@ -260,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763225.jpg" />
+  <img src="Z:/picture/008/save_picture_763225.jpg" />
 </div>
 
 
@@ -287,7 +369,7 @@ A MusiCares' Tribute to Paul McCartney (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762377.jpg" />
+  <img src="Z:/picture/008/save_picture_762377.jpg" />
 </div>
 
 
@@ -317,7 +399,7 @@ Mylene Farmer - Avant que l'ombre... A Bercy (2006) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760571.jpg" />
+  <img src="Z:/picture/008/save_picture_760571.jpg" />
 </div>
 
 
@@ -346,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760321.jpg" />
+  <img src="Z:/picture/008/save_picture_760321.jpg" />
 </div>
 
 
@@ -375,7 +457,7 @@ King Diamond - Songs for the Dead Live (2019) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760311.jpg" />
+  <img src="Z:/picture/008/save_picture_760311.jpg" />
 </div>
 
 
@@ -404,7 +486,7 @@ A MusiCares Tribute to Barbra Streisand (2012) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758984.jpg" />
+  <img src="Z:/picture/008/save_picture_758984.jpg" />
 </div>
 
 
@@ -435,7 +517,7 @@ Accept - Blind Rage (Live In Chile) (2013/2014)  BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758862.jpg" />
+  <img src="Z:/picture/008/save_picture_758862.jpg" />
 </div>
 
 
@@ -464,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758628.jpg" />
+  <img src="Z:/picture/008/save_picture_758628.jpg" />
 </div>
 
 
@@ -490,7 +572,7 @@ Alcatrazz - Parole Denied - Tokyo 2017 (2018) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756832.jpg" />
+  <img src="Z:/picture/008/save_picture_756832.jpg" />
 </div>
 
 
@@ -519,7 +601,7 @@ MTV Europe Music Awards - London (2017) UHDTV [H.265/2160p] [4K, SDR, 10-bit]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756014.jpg" />
+  <img src="Z:/picture/008/save_picture_756014.jpg" />
 </div>
 
 
@@ -545,7 +627,7 @@ Metallica: Français pour une nuit 1080(2009) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755711.jpg" />
+  <img src="Z:/picture/005/save_picture_755711.jpg" />
 </div>
 
 
@@ -571,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754599.jpg" />
+  <img src="Z:/picture/008/save_picture_754599.jpg" />
 </div>
 
 
@@ -597,7 +679,7 @@ Tina Turner - One Last Time Live in Concert & Celebrate! (2000/1999) SD Blu-Ray 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753916.jpg" />
+  <img src="Z:/picture/008/save_picture_753916.jpg" />
 </div>
 
 
@@ -626,7 +708,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752812.jpg" />
+  <img src="Z:/picture/008/save_picture_752812.jpg" />
 </div>
 
 
@@ -637,95 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D12CF34F485F893C1BB64F0AE6CB23A4351EA65D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281420   (751060) от 08.02.2019
-
-Кипелов - 60 (2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеверсия концерта, который состоялся 1 декабря 2018 года в московском Adrenaline Stadium. Валерий Кипелов отмечает 60-летний юбилей. За сорок лет своей музыкальной карьеры он прошёл впечатляющий путь - от советских ВИА "Лейся, песня" и "Поющие сердца" до культовой Heavy Metal группы "Ария" и собственного проекта "#Кипелов". (   Читать дальше...   )1. Жить вопреки
-2. Власть огня
-3. Дама пик
-4. Выше(   Читать дальше...   )Производство: РЕН ТВЖанр: Музыкальный, концертПродолжительность: 02:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD7B3B0DA6C4FFE343B8A76E0073F98BBA3D5C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988837   (750987) от 11.01.2022
-
-Foreigner - Rockin' at the Ryman (2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт 16 марта 2010 года в Ryman Theatre, в Нашвилле, США. Прозвучали как композиции из нового альбома, так и всеми любимые хиты группы.…
-
-Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Foreigner back doing what they do best; rocking out loud. Blu-Ray versions of the live concert in the famous Rayman Theatre, be sure to stay updated (   Читать дальше...   )01. Double Vision
-02. Head Games
-03. Cold As Ice
-04. In Pieces(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74644CE655C5F9851A7AD058A6C86637D06E62F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018413   (750077) от 23.05.2016
-
-Ana Popovic Band - Jazzwoche Burghausen (2012) HDTV [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750077.jpg" />
-</div>
-
-
-###  Подробнее
-
-43. Internationale Jazzwoche Burghausen, Wackerhalle, Germany, March 17, 201201. Slideshow
-02. Work Song
-03. Business as Usual
-04. Count Me In(   Читать дальше...   )Производство: Германия | 3SATЖанр: Modern Electric Blues, Blues-Rock, Soul BluesАктеры: ANA POPOVIC - guitar, vocals ROLAND JONKER - bass, vocals MICHELE PAPADIA - keyboards, vocals STEPHANE AVELLANEDA - drumsПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70AF7E89F49AB9EFD83BED089B8CAB81A64DE06
 ```
 
 https://mybot314.ru/tekegram_catalog/

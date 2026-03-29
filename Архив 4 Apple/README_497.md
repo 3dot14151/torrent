@@ -1,3 +1,110 @@
+###  Публикация: 1455767   (243649) от 20.03.2021
+
+Display Maid 3.3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Maid позволяет сохранять и восстанавливать расположение окон в зависимости от конфигурации дисплея. Если у вас есть ноутбук, который вы используете с одним или несколькими внешними дисплеями, и вам надоело переставлять окна каждый раз при подключении / отключении дисплея, тогда Display Maid для вас.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2021Разработчик: Funk-iSoftПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1EED509F6BAA174DD91EF4E2F4BFB1190551EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538117   (243648) от 19.03.2022
+
+Yate 6.9.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
+Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
+У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 Many RobotsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD5DCEBC26DC6C2CE1E246605A3375AA0660283E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538091   (243638) от 19.03.2022
+
+DoYourData AppUninser Pro 5.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243638.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoYourData AppUninser - очень мощный, но простой в использовании деинсталлятор Mac. Он может полностью удалить приложения, удалить связанные файлы и очистить все, что осталось. Он может полностью удалить даже самые «упрямые» приложения, аварийные программы, плагины, виджеты и панели настроек с вашего Mac. DoYourData AppUninser также может удалять ненужные языковые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.03.2022Разработчик: © 2021 DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AE0733525D100BD8BF65735E56E51BEB26DE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455675   (243626) от 20.03.2021
+
+VideoDuke 1.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_243626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
+Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши. Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.03.2021Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0F962F14848B476516394A5970C22450C957B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538102   (243614) от 19.03.2022
 
 Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
@@ -6,7 +113,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243614.jpg" />
+  <img src="Z:/picture/004/save_picture_243614.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243605.jpg" />
+  <img src="Z:/picture/004/save_picture_243605.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Get Backup Pro 3.4.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243601.jpg" />
+  <img src="Z:/picture/004/save_picture_243601.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Principle 6 v6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243586.jpg" />
+  <img src="Z:/picture/004/save_picture_243586.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ EditReady 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243577.jpg" />
+  <img src="Z:/picture/004/save_picture_243577.jpg" />
 </div>
 
 
@@ -140,7 +247,7 @@ IP Scanner Pro 3.51.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243560.jpg" />
+  <img src="Z:/picture/004/save_picture_243560.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ FxFactory Pro 8.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243558.jpg" />
+  <img src="Z:/picture/004/save_picture_243558.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ Duplicate File Finder Pro 6.13  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243548.jpg" />
+  <img src="Z:/picture/004/save_picture_243548.jpg" />
 </div>
 
 
@@ -222,7 +329,7 @@ XMind 22.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243528.jpg" />
+  <img src="Z:/picture/004/save_picture_243528.jpg" />
 </div>
 
 
@@ -248,7 +355,7 @@ DirEqual 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243521.jpg" />
+  <img src="Z:/picture/004/save_picture_243521.jpg" />
 </div>
 
 
@@ -275,7 +382,7 @@ FileAssistant 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243515.jpg" />
+  <img src="Z:/picture/004/save_picture_243515.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ MesaExif 2.4.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243509.jpg" />
+  <img src="Z:/picture/004/save_picture_243509.jpg" />
 </div>
 
 
@@ -329,7 +436,7 @@ AweEraser 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243479.jpg" />
+  <img src="Z:/picture/004/save_picture_243479.jpg" />
 </div>
 
 
@@ -355,7 +462,7 @@ Amadeus Pro 2.6.2 (2228) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243471.jpg" />
+  <img src="Z:/picture/004/save_picture_243471.jpg" />
 </div>
 
 
@@ -381,7 +488,7 @@ Soulver 3.1.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243464.jpg" />
+  <img src="Z:/picture/004/save_picture_243464.jpg" />
 </div>
 
 
@@ -407,7 +514,7 @@ Art Files 3 v3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243457.jpg" />
+  <img src="Z:/picture/004/save_picture_243457.jpg" />
 </div>
 
 
@@ -434,7 +541,7 @@ TG Pro (Temperature Gauge Pro) 2.67 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243430.jpg" />
+  <img src="Z:/picture/004/save_picture_243430.jpg" />
 </div>
 
 
@@ -461,7 +568,7 @@ Cisdem Data Recovery 6.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243426.jpg" />
+  <img src="Z:/picture/004/save_picture_243426.jpg" />
 </div>
 
 
@@ -487,7 +594,7 @@ AnyMP4 MP3 Converter for Mac 8.2.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243407.jpg" />
+  <img src="Z:/picture/004/save_picture_243407.jpg" />
 </div>
 
 
@@ -513,7 +620,7 @@ Graphic Styles 3.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243374.jpg" />
+  <img src="Z:/picture/004/save_picture_243374.jpg" />
 </div>
 
 
@@ -541,7 +648,7 @@ Schwartz 1.7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243337.jpg" />
+  <img src="Z:/picture/004/save_picture_243337.jpg" />
 </div>
 
 
@@ -569,7 +676,7 @@ BusyContacts 1.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243334.jpg" />
+  <img src="Z:/picture/004/save_picture_243334.jpg" />
 </div>
 
 
@@ -582,112 +689,6 @@ BusyContacts приносит в управление контактами те 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:485BBC0884020BF7A27BBE65E796963CB5304864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352859   (243324) от 15.01.2020
-
-Keep It 1.7.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте заметки со встроенными стилями, которые хорошо выглядят и хорошо читаются на всех ваших устройствах. Заметки могут содержать контрольные списки, маркированные и пронумерованные списки, изображения, ссылки и другие вложения.Тип издания: macOS SoftwareРелиз состоялся: 06.01.2020Разработчик: Reinvented SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Арабский и  Иврит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70BAF6A013B3DAA956F7F66570B94299263E2743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352701   (243316) от 15.01.2020
-
-Permute 3 v3.4.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 14.01.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB8BFDF643527BE8CCAF782BDEC04E7675354B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352728   (243309) от 15.01.2020
-
-Receipts 1.9.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инструмент управления счетами, который может определять сумму, записанную в каждом счете-фактуре, и автоматически упорядочивать записи по поставщику или категории
-
-Receipts призван помочь вам эффективно управлять и упорядочивать входящие счета: вы импортируете документы, и утилита попытается автоматически определить сумму, преобразовать ее в ссылочную валюту и отсортировать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2020Разработчик: Dirk HoltwickПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F15470AF8DE33111C5233DA4087B4ACA438B6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352769   (243293) от 15.01.2020
-
-Iridient Developer 3.3.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Iridient Developer - мощное приложение для обработки и преобразования изображений RAW, разработанное и оптимизированное специально для macOS. Приложение предоставляет фотографам полный контроль над своими цифровыми изображениями и обеспечивает гибкую, быструю и удобную пакетную обработку. Все операции по редактированию изображений полностью неразрушающи и никогда (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.01.2020Разработчик: Iridient Digital, Inc.Поддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDAB5AB225FA482FD3F105F9B870B53D5885780
 ```
 
 https://mybot314.ru/tekegram_catalog/

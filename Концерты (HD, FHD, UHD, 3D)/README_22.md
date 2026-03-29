@@ -1,3 +1,84 @@
+###  Публикация: 1048917   (545464) от 03.09.2016
+
+Kiss - Rocks Vegas (2016) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_545464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oчередной подарок от Eagles Rock: Kiss качают Вегас! Запись сделана в том же самом зале The Joint в Hard Rock отеле в Лас-Вегасе, Невада. Антураж был сделан в классическом стиле середины 70-х, начиная с костюмов и кончая сценическими штучками. Было всё - извергание огня, вознесение под крышу, полёты на невидимых верёвочках, стрельба фейерверками посредством гитарного (   Читать дальше...   )01. Detroit Rock City
+02. Creatures Of The Night
+03. Psycho Circus
+04. Parasite(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 01:28:12 + 00:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27AFD1500CF1D41945F63748B1ED870CFA36DA7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310772   (545136) от 26.06.2019
+
+Сплин - Unplugged. Усадьба Jazz (22.06.2019) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_545136.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом году группе СПЛИН исполняется 25 лет. За прошедшую четверть века они обрели всенародную популярность: некоторые их песни стали саундтреком к жизни уже нескольких поколений и вошли в каноны русской рок-музыки, а сама группа успела неоднократно выступить на самых значимых фестивальных площадках страны. Группа серьезно подошла к подготовке и сделала специальную (   Читать дальше...   )Производство: РоссияЖанр: Альтернативный рок, арт-рок, фолк-рок, инди-рок, поп-рокСубтитры: ОтсутствуютПродолжительность: 01:14:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BEB83765C5C8ED7A484D5B148272CD64E54DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311259   (543325) от 28.06.2019
+
+Жара в Дубае (2019) WEBRip [H.264/1080p-LQ] (части 1-2 из 2)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_543325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грандиозный фестиваль ЖАРА расширяет границы! Тысячи зрителей, десятки популярных артистов и несколько часов только хитов.Производство: РоссияЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:15:38 + 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C9282B948F026D78909DE44679B52880FE9D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 817803   (541333) от 03.09.2014
 
 The Exploited - Live at the Hellfest (2011) WEBRip [H.264/720p-LQ]
@@ -6,7 +87,7 @@ The Exploited - Live at the Hellfest (2011) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541333.jpg" />
+  <img src="Z:/picture/008/save_picture_541333.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ Lady Gaga - Live at iTunes Festival (2013) HDTV [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540141.jpg" />
+  <img src="Z:/picture/008/save_picture_540141.jpg" />
 </div>
 
 
@@ -64,7 +145,7 @@ Slayer - Wacken Open Air (2014) WEBRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535660.jpg" />
+  <img src="Z:/picture/008/save_picture_535660.jpg" />
 </div>
 
 
@@ -94,7 +175,7 @@ The Rolling Stones - Let's Spend the Night Together (1981/2011) BDRip [H.264/108
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535277.jpg" />
+  <img src="Z:/picture/008/save_picture_535277.jpg" />
 </div>
 
 
@@ -123,7 +204,7 @@ The Sex Pistols: There'll Always Be an England - Live from Brixton Academy (2011
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534223.jpg" />
+  <img src="Z:/picture/008/save_picture_534223.jpg" />
 </div>
 
 
@@ -158,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533969.jpg" />
+  <img src="Z:/picture/008/save_picture_533969.jpg" />
 </div>
 
 
@@ -184,7 +265,7 @@ Europe - Live! At Shepherd's Bush, London (2011) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533314.jpg" />
+  <img src="Z:/picture/008/save_picture_533314.jpg" />
 </div>
 
 
@@ -213,7 +294,7 @@ Europe - Live at Sweden Rock - 30th Anniversary Show (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533312.jpg" />
+  <img src="Z:/picture/008/save_picture_533312.jpg" />
 </div>
 
 
@@ -242,7 +323,7 @@ Eagles - Farewell I Tour: Live From Melbourne (2005) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532722.jpg" />
+  <img src="Z:/picture/008/save_picture_532722.jpg" />
 </div>
 
 
@@ -268,7 +349,7 @@ Deep Purple: Phoenix Rising (2011) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532070.jpg" />
+  <img src="Z:/picture/008/save_picture_532070.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ Blackmore's Night - A Knight In York (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531922.jpg" />
+  <img src="Z:/picture/008/save_picture_531922.jpg" />
 </div>
 
 
@@ -333,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531290.jpg" />
+  <img src="Z:/picture/008/save_picture_531290.jpg" />
 </div>
 
 
@@ -362,7 +443,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531194.jpg" />
+  <img src="Z:/picture/008/save_picture_531194.jpg" />
 </div>
 
 
@@ -391,7 +472,7 @@ Alice Cooper - Live at Bonnaroo Festival (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529715.jpg" />
+  <img src="Z:/picture/008/save_picture_529715.jpg" />
 </div>
 
 
@@ -420,7 +501,7 @@ A MusiCares Tribute to Carole King (2015) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529627.jpg" />
+  <img src="Z:/picture/008/save_picture_529627.jpg" />
 </div>
 
 
@@ -450,7 +531,7 @@ Alice Cooper - Raise the Dead – Live from Wacken (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529508.jpg" />
+  <img src="Z:/picture/008/save_picture_529508.jpg" />
 </div>
 
 
@@ -479,7 +560,7 @@ Eagles - Farewell I Tour - Live From Melbourne (2004/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529395.jpg" />
+  <img src="Z:/picture/008/save_picture_529395.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528037.jpg" />
+  <img src="Z:/picture/008/save_picture_528037.jpg" />
 </div>
 
 
@@ -534,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527747.jpg" />
+  <img src="Z:/picture/008/save_picture_527747.jpg" />
 </div>
 
 
@@ -563,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527628.jpg" />
+  <img src="Z:/picture/008/save_picture_527628.jpg" />
 </div>
 
 
@@ -592,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524465.jpg" />
+  <img src="Z:/picture/008/save_picture_524465.jpg" />
 </div>
 
 
@@ -618,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524200.jpg" />
+  <img src="Z:/picture/008/save_picture_524200.jpg" />
 </div>
 
 
@@ -644,7 +725,7 @@ Alice Cooper - Live at Montreux (2005)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523941.jpg" />
+  <img src="Z:/picture/008/save_picture_523941.jpg" />
 </div>
 
 
@@ -658,84 +739,6 @@ Alice Cooper - Live at Montreux (2005)  BDRip [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B84BB714DFFE21496E3E453740CEACB9F4A46ADB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559665   (523383) от 26.06.2022
-
-Алые Паруса-2022. Выпускной бал в Санкт-Петербурге (2022) WEB-DL [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юбилейный, 30-й праздник выпускников «Алые паруса» вновь озаряет Петербург залпами салютов, провожающих вчерашних школьников в новую жизнь. Создатели всемирно известного события в этом году выбрали главной его темой вечные ценности, которые вдохновляют и дарят веру в будущее. Центральная часть празднования - запуск фейерверков и шествие брига «Россия». Выпускников (   Читать дальше...   )Телекомпания: 5 каналЖанр: ТВ-шоу, Реальное ТВ, КонцертПродолжительность: 03:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9877DE905FE0495538196C7297C7E24B0FF19989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314268   (520331) от 13.07.2019
-
-Славянский базар в Витебске. Торжественное открытие (11.07.2019) HDTVRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гала-концерт торжественного открытия XXVIII Международного фестиваля искусств «Славянский базар в Витебске — 2019» стал признанием в любви к городу, артистам и зрителям. Красной нитью через всю программу прошли темы малой родины, семейных и общечеловеческих ценностей, любви, дружбы и преемственности поколений.Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:684BAE637BF38E90928AF5F8E6D29109E66E8AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314439   (519371) от 14.07.2019
-
-Квартирник НТВ у Маргулиса. Рожден Ануси (13.07.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519371.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом выпуске в гости к Евгению Маргулису пришел известный украинский певец и саунд-продюсер Рожден Ануси, который выступает под именем ROZHDEN. Российской публике он известен такими композициями, как «Знаешь», «Без тебя, "Пустяк"», «Герой», «Ни ты, ни я». Рожден поделился интересными воспоминаниями из творческой жизни, и исполнил свои лучшие композиции. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A18F0CCDB06946BD04A71C07AFEAAB08D8A27C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

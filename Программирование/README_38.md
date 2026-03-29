@@ -6,7 +6,7 @@ Mahmoud Parsian | Data Algorithms with Spark: Recipes and Design Patterns for Sc
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241850.jpg" />
+  <img src="Z:/picture/004/save_picture_241850.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240364.jpg" />
+  <img src="Z:/picture/004/save_picture_240364.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Victor G Brusca | Introduction to Java Through Game Development (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240016.jpg" />
+  <img src="Z:/picture/004/save_picture_240016.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Mark J. Price | Apps and Services with .NET 7: Build practical projects with Bla
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239568.jpg" />
+  <img src="Z:/picture/004/save_picture_239568.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238646.jpg" />
+  <img src="Z:/picture/005/save_picture_238646.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237538.jpg" />
+  <img src="Z:/picture/004/save_picture_237538.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236292.jpg" />
+  <img src="Z:/picture/005/save_picture_236292.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Itzik Ben-Gan | T-SQL Fundamentals, 4th Edition (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236277.jpg" />
+  <img src="Z:/picture/005/save_picture_236277.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Bett
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236271.jpg" />
+  <img src="Z:/picture/004/save_picture_236271.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Jamie Rumbelow | Building With Ethereum (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235988.jpg" />
+  <img src="Z:/picture/004/save_picture_235988.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Akshay Kulkarni и др. | Applied Recommender Systems with Python (2023) [PDF] 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235891.jpg" />
+  <img src="Z:/picture/004/save_picture_235891.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Narendar Singh Saini | iOS Developer Solutions Guide: Learn How to Create Stable
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235620.jpg" />
+  <img src="Z:/picture/004/save_picture_235620.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Martin Joo | Test-Driven APIs with Laravel and Pest (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235175.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Hari Narayn | Just React!: Learn React the React Way (2022) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234984.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Darren James Harkness | Apache Essentials: Install, Configure, Maintain, 2nd Edi
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234530.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234422.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234354.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Nagender Kumar Suryadevara | Beginning Machine Learning in the Browser (2021) [P
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233979.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Joe Harrison | Learn CSS By Use Cases v2 with All Code (2022) [PDF] [EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232992.jpg" />
+  <img src="Z:/picture/005/save_picture_232992.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232807.jpg" />
+  <img src="Z:/picture/005/save_picture_232807.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232427.jpg" />
+  <img src="Z:/picture/004/save_picture_232427.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Daniel Ilett | Building Quality Shaders for Unity: Using Shader Graphs and HLSL 
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231773.jpg" />
+  <img src="Z:/picture/004/save_picture_231773.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Jeanine Meye | The Essential Guide to HTML5: Using Games to Learn HTML5 and Java
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231227.jpg" />
+  <img src="Z:/picture/004/save_picture_231227.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231209.jpg" />
+  <img src="Z:/picture/005/save_picture_231209.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230863.jpg" />
+  <img src="Z:/picture/004/save_picture_230863.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Noemí Ferrera | How to Test a Time Machine (2023) [PDF][EN]
 >>Программирование
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230616.jpg" />
 </div>
 
 

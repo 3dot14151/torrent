@@ -1,3 +1,148 @@
+###  Публикация: 1764019   (35210) от 04.12.2024
+
+FM - Old Habits Die Hard (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out Of The Blue (4:22)
+02. Don't Need Another Heartache (4:36)
+03. No Easy Way Out (3:55)
+04. Lost (5:21)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4102D9DD19C475E1C4955814258F5AAB9CB29EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765412   (34415) от 12.12.2024
+
+Latter Reign - Order to Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chill (5:00)
+02. Change (3:10)
+03. Had a Dream (4:11)
+04. RU (4:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960B8C42948A21088D3F07E210717BFC7F4C5DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765409   (34398) от 12.12.2024
+
+Gary Rand - No Secrets (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiskey (0:17)
+02. No Secrets (3:20)
+03. Hall Light (3:57)
+04. Sweet Little Two-Timer (3:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:360DB5502C9A8527335159E2FF7169EBEE6B2DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765405   (34395) от 12.12.2024
+
+Caitlin Krisko & The Broadcast - Blueprints EP (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil on Your Side (2:51)
+02. Blue Monday (3:16)
+03. Piece of You (4:00)
+04. Haunted by You (4:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F811893D455F37287953EE7CDE8159A83628560C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765413   (34388) от 12.12.2024
+
+Lee Abraham - Origin Of The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origin Of The Storm (4:21)
+02. The Same Life (8:51)
+03. Chalk Hill (8:09)
+04. Isolation / Disconnection (8:51)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5FC3D78741A43FEE6DF91D4423562DB2F3657C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765972   (34081) от 15.12.2024
 
 Eloy - Hidden Treasures (2024) Compilation, Remixed, Remastered, 2024, MIG [FLAC|Lossless|image + .cue] <Progressive Rock>
@@ -6,7 +151,7 @@ Eloy - Hidden Treasures (2024) Compilation, Remixed, Remastered, 2024, MIG [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34081.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33971.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Rock Gym Workout (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33873.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Get Ready to Rock! (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33782.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Blue October - Happy Birthday (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33666.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Beardfish - Songs for Beating Hearts (2024) [FLAC|Lossless|tracks + .cue] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33134.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Queen - Made In Heaven (1995) Japanese Edition, SHM-CD, Reissue, Remastered, 202
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32344.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ My Arrival - Lost 3mbers (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31475.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Blind Golem - Wunderkammer (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31470.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Jethro Tull - The Jethro Tull Christmas Album (Fresh Snow At Christmas) (2024) 4
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31359.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Queen - Flash Gordon (Original Soundtrack Music) (1980) Japanese Edition, SHM-CD
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31350.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Eagles - To The Limit: The Essential Collection (2024) Japanese Edition, 3 x CD,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31273.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Anabasi Road - Ecce Homo (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31055.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - Absolute Classic Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30973.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - 40 Songs Rock Workout (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30939.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Def Leppard - One Night Only: Live At The Leadmill (2024) [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30423.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ Dave Matthews Band - Big Whiskey and the GrooGrux King (2009) [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30318.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29979.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ Soniq Circus - Cursed Cruise (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29906.jpg" />
 </div>
 
 
@@ -559,7 +704,7 @@ Foghat - 23 Albums, 2 Box Set (1972 - 2023) 56 CD [FLAC|Lossless|image + .cue|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29099.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ Eric Burdon (The Animals & War & Jimmy Witherspoon & Brian Auger) - 24 Studio Al
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28741.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ Eric Burdon (The Animals & War & Jimmy Witherspoon & Brian Auger) - 24 Studio Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D176FD2AFBEDCA94FBD4564C0DEDAE9E59BBAE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779824   (27559) от 15.02.2025
-
-Smokie & Chris Norman - The very best of Smokie & Chris Norman 50 years anniversary edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Back in the Arms of Someone (4:04)
-02. Living Next Door to Alice (3:27)
-03. If You Think You Know How to Love Me (3:23)
-04. Needles and Pins (2:42)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3DB5766B0F9BCB25886C959FB906BF129DDC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781192   (26786) от 22.02.2025
-
-Led Zeppelin - Boxed Set2 (1993) 2 x CD, Japanese Edition, Compilation [FLAC|Lossless|image + .cue] <Blues Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One:
-01. Good Times Bad Times 2:46
-02. We're Gonna Groove 2:37
-03. Night Flight 3:36(   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Classic RockПродолжительность: 02:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E459FFF919A9656E775FC2732667D5A1B3041CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783098   (25727) от 04.03.2025
-
-Blue Ambition - Seduction of the Innocent (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ground for Suspicion [00:05:50]
-02. Holding on to You [00:05:24]
-03. Wired Angel [00:05:12]
-04. Without Warning [00:06:20](   Читать дальше...   )Жанр: RockПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B116324A4FA90C2DFC15DD67CB68A6A3AD58829A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784481   (24875) от 12.03.2025
-
-The Doors - 3 Live Albums (1970) Remastered, 2025, Homespun, DMG[FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-01 - Live in Seattle 1970
-02 - Live in Vancouver, Canada June 6th, 1970 (Remastered, Live On Broadcasting)
-03 - Seattle 1970 (Remastered, Live On Broadcasting)Жанр: Alternative, RockПродолжительность: 3 CD, 03:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBAEA8D0CC4EF496EFF0667C40202EE2C530022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784857   (24806) от 13.03.2025
-
-Jethro Tull - Curious Ruminant = キュリアス・ルミナント (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Art Rock, Prog Roc ...
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puppet and the Puppet Master
-02. Curious Ruminant
-03. Dunsinane Hill
-04. The Tipu House(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A557AF62CF60AF920D506BD55A8DB2086583171
 ```
 
 https://mybot314.ru/tekegram_catalog/

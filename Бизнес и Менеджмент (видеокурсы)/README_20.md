@@ -1,3 +1,165 @@
+###  Публикация: 970630   (137677) от 31.12.2015
+
+Специалист | Рулев С. | Подготовка и защита бизнес - плана (2014) PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137677.jpg" />
+</div>
+
+
+###  Подробнее
+
+На занятиях Вы получите навыки разработки бизнес-плана, формулировки бизнес-идеи в письменном виде. Изучите алгоритм создания типового бизнес-плана. Получите знания по расчету рисков. Овладеете навыками защиты и презентации бизнес-проекта. Дополнительно Вы получите типовые варианты бизнес-планов по нескольким направлениям! В итоге Вы сможете составить и защитить (   Читать дальше...   )Жанр: Финансовый менеджментПродолжительность: 12:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95F82EDD72ACBF6D5C70C51A04260986843218D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591715   (135760) от 21.12.2012
+
+Евгений Панин | Как создать бизнес-блог [2012] PCRec
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полнейшее пошаговое видео-пособие по созданию собственного бизнес-блога, на простом, понятном человеческом языке. Даже если Вы только вчера впервые вышли в Интернет, а сегодня решили создать личный блог и превратить его в успешный коммерческий проект, приносящий деньги, то Вам стоит об этом узнать прямо сейчас.Жанр: Обучающее видео, БизнесПродолжительность: 13:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF65C4CD15C807F449D1B9065458F28B1C638A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681382   (132866) от 02.12.2023
+
+Сергей Косенко, Джафар Исмаилов | Reels Royce. Тариф Самостоятельный (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Привлеки тысячи подписчиков в свои социальные сети, стань популярным и начни зарабатывать неприлично много с помощью Reels.
+Эта презентация для тебя, если ты хочешь:
+✅Быть популярным, общаться с ТОПовыми блогерами и получить толпу фанатов
+✅Сформировать сильную команду, которая поможет тебе прийти к свои целям: деньгам и мировой популярности(   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 57:42:01Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C482D8DBDFAD10A6E2DF864E0048F1445D3FDD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681428   (132633) от 03.12.2023
+
+LinkedIn Learning, Dr. Chaz Austin | Creating a Career Plan (2020) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132633.jpg" />
+</div>
+
+
+###  Подробнее
+
+The employment landscape can be volatile and scary. But with a solid career plan, you will be prepared and adept at finding work for the rest of your life. An effective career plan includes knowing how to determine, articulate, and sell your personal brand. In this course, Dr. Chaz Austin guides you through the key steps of career planning, from identifying your (   Читать дальше...   )Производство: LinkedIn LearningЖанр: Обучающий видеокурсЯзык озвучки: АнглийскийПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31E715971CC2CCBB1EC098FE5BDCF97E4DD2FC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682399   (131402) от 07.12.2023
+
+LinkedIn Learning, Dr. Chaz Austin | Succeeding in a New Job (2020) PCRec [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Succeeding at a new job starts with a good foundation, an effective strategy, and an attitude of humility. Dr. Chaz Austin shares 14 practical tips for creating a solid foundation and thriving when taking on a new role and joining a new company. From making a good first impression to measuring performance, explore techniques that can create a path to success. Learn (   Читать дальше...   )Производство: LinkedIn LearningЖанр: Обучающий видеокурсЯзык озвучки: АнглийскийПродолжительность: 00:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B684747B2B6EE56298AF3E2765619103689A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684432   (127841) от 15.12.2023
+
+БухЭксперт8 | Онлайн-семинары по отчетности. Подписка Бухгалтерия + ЗУП + закон (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127841.jpg" />
+</div>
+
+
+###  Подробнее
+
+БухЭксперт8 это:
+
+Регулярные онлайн-семинары
+Звёздные спикеры разбирают все новшества раньше других(   Читать дальше...   )Жанр: БухгалтерияЯзык озвучки: РусскийПродолжительность: 145:21:13Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03FD2F3247DDC696D6B68C9FC800EB60EEDF0C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684712   (127672) от 16.12.2023
 
 Udemy, Christ Raharja | The Future of Copywriting: Creating Ad Copy & Video with AI (2023) WEB-DL [EN, RU]
@@ -6,7 +168,7 @@ Udemy, Christ Raharja | The Future of Copywriting: Creating Ad Copy & Video with
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127672.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ Udemy, Konstantin Fink | Нейросети: Chat GPT от Новичка до �
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127333.jpg" />
 </div>
 
 
@@ -61,7 +223,7 @@ ProFinansy, Наталья Котовская | Финансовая подуш�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125873.jpg" />
 </div>
 
 
@@ -87,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124917.jpg" />
 </div>
 
 
@@ -116,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124104.jpg" />
 </div>
 
 
@@ -145,7 +307,7 @@ Udemy, Emma Grimberg | Искусство создания текстов с ч�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124094.jpg" />
 </div>
 
 
@@ -172,7 +334,7 @@ Domestika, Jessica Roux | Illustrated Stationery: A Guide to Sell and Market You
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123732.jpg" />
 </div>
 
 
@@ -199,7 +361,7 @@ Udemy, Dekker Fraser | SaaS Marketing: SaaS Startup Lead Generation with Dekker 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123699.jpg" />
 </div>
 
 
@@ -226,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121942.jpg" />
 </div>
 
 
@@ -255,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121921.jpg" />
 </div>
 
 
@@ -284,7 +446,7 @@ Cryptology School | Cryptology 9.0. Base. Advanced. Pro (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116099.jpg" />
 </div>
 
 
@@ -310,7 +472,7 @@ Cryptology School | Cryptology 10 (2023) WEB-DL [AD] [RU]
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115949.jpg" />
 </div>
 
 
@@ -336,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115612.jpg" />
 </div>
 
 
@@ -365,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115431.jpg" />
 </div>
 
 
@@ -394,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115396.jpg" />
 </div>
 
 
@@ -423,7 +585,7 @@ Infostart, Римма Фролова | Сложный учет НДС в 1С - E
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115381.jpg" />
 </div>
 
 
@@ -452,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115294.jpg" />
 </div>
 
 
@@ -481,7 +643,7 @@ Udemy, Ilyas Shakenov | Финансовая математика (2024) WEB-DL 
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115261.jpg" />
 </div>
 
 
@@ -508,7 +670,7 @@ Udemy, Ерлан Тургумбаев | Финансовое моделиров
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115113.jpg" />
 </div>
 
 
@@ -535,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114740.jpg" />
 </div>
 
 
@@ -549,184 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB7B5361B2487B1A9DCA89C4238728585A3BBFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702698   (114597) от 03.03.2024
-
-Университет Искусственного Интеллекта, Дмитрий Романов | ChatGPT Expert (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы запускаем курс chatGPT Expert
-Это будет курс про практическое применение chatGPT в вашей работе и в ваших личных задачах
-Он будет полностью БЕЗ программирования
-Всего 5 занятий и вы научитесь использовать chatGPT в любой профессии(   Читать дальше...   )Производство: Университет Искусственного ИнтеллектаЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 07:16:19Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC65EEF2DB9FAF7EFEBF139B582DB8BB7DAA5C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469843   (83140) от 19.03.2012
-
-Artaliance | Кайдзен. Управление производством. Управление качеством [2012] DVD5
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бизнес семинар по теме "Организация производства в японской промышленности".
-Содержание:
--Краткий обзор управления производством
--Тенденции в управлении производством
--Управление цепочками поставок
--Контроль качества
--Улучшение в поизводственных цехах
--Анализ реальной фабрики
--Производственная система ToyotaЖанр: БизнесПродолжительность: 5:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C2F8B164D30D674C9A6DD87B3BBADCE193E0FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465233   (82122) от 14.03.2012
-
-Ангелина Шам | Лекции по психологии бизнеса [2009 - 2010] DVDRip
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждому человеку приходится сталкиваться с тем, что принято называть деловым общением. Что значит "умело вести деловые переговоры"? Как научиться быть в них одновременно твердым и гибким? Какой стиль ведения таких переговоров оптимален? Во многом от того, насколько вы владеете наукой и искусством убеждения, зависит успех вашей деятельности.
-В курсе содержится три лекции:
-1. Как побеждать за столом переговоров
-2. Эффективное манипулирование людьми
-3. Язык жестовЖанр: Бизнес - психологияПродолжительность: 02:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B24BF551704F840C6A9BDAA264CE82D136BE92E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705321   (63683) от 08.03.2024
-
-Евгений Литвинов | YouTube с нуля до PRO + SEO оптимизация на YouTube (2024) WEB-DL [AD] [RU]
-
->>След.
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный курс (10+ часов) для YouTube авторов! С нуля до ПРО уровня. Чистая инфа, без воды. Много личного опыта, экслюзива, инструментов и прочего.
-Подойдёт как новичкам для уверенного старта, так и авторам с опытом, которые хотят совершенствоваться. Это не только пошаговое введение в YouTube с освещением ВСЕХ тем и задач, с которыми имеют дело ютуберы. Я дал пути (   Читать дальше...   )Жанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 15:26:37Реклама: Наложения на видео и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC0AF4897D977F2531202280C19388F500936F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707314   (62811) от 16.03.2024
-
-Андрей Коптелов | Бизнес-анализ на основе BABOK (express) (2024) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебный курс Бизнес-анализ на основании BABOK посвящен изучению основ бизнес-анализа в соответствии с BABOK Guide 3.0.
-В рамках учебного курса изучаются особенности профессии бизнес-аналитик и ключевые понятия бизнес-анализа, рассматриваются на практике задачи и техники бизнес-анализа.
-Длительность курса — 2 дня (длительность записанного видеоконтента)
-В курсе нет (   Читать дальше...   )Производство: Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 22:19:30Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF1F7B192E69447FB1EEA9A30DE278A434024EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708480   (62420) от 20.03.2024
-
-Яндекс.Практикум | Продакт-менеджер. Все части (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы на курсе:​
-    ✅Изучите все этапы запуска и развития продукта
-    ✅Сможете практиковаться на реальных кейсах Яндекса и других IT-компаний
-    ✅Сделаете и добавите в портфолио 3 проекта(   Читать дальше...   )Производство: Яндекс.ПрактикумЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 20:02:04Реклама: Присутствуют сторонние вставки и наложения
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51E42F7B1E1550757D5525FE20F3EBBEF70BE17
 ```
 
 https://mybot314.ru/tekegram_catalog/

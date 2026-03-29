@@ -1,3 +1,119 @@
+###  Публикация: 1215015   (761820) от 24.03.2018
+
+Batida - Batida (1983) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Samba, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_761820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ponteio [04:29]
+02. Pra Quem Quiser [04:03]
+03. Listen To The Land [00:40]
+04. Oceans Between Us [04:33](   Читать дальше...   )Жанр: Latin Jazz, Samba, Bossa NovaПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7E8653C0C74117FB3B9841EDC65ABA642653D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017260   (761332) от 17.05.2016
+
+Billy Higgins - The Soldier (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_761332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sugar And Spice [04:51]
+ 02.Midnite Waltz [09:48]
+ 03.Just In Time [05:46]
+ 04.If You Could See Me Now [06:47](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44AC7F93D7BD26CE4DB51945769ECF8967E5B460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017524   (761329) от 17.05.2016
+
+Tim Garland - One (2016) [FLAC|Lossless|tracks] <Contemporary Jazz, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_761329.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sama'i for Peace (5:37)
+2. Bright New Year (7:05)
+3. The Eternal Greeting (6:00)
+4. Colours of Night (6:46)(   Читать дальше...   )Жанр: Contemporary Jazz, JazzПродолжительность: 00:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9779DA8E5F95B405CC6CC4B1825F40719486E01A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017328   (761230) от 17.05.2016
+
+Rufus Harley - Bagpipe Blues (1965) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_761230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bagpipe Blues [02:44]
+ 02.Kerry Dancers [06:07]
+ 03.Who Can I Turn To (When Nobody Needs Me) [04:01]
+ 04.More [06:42](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5C7BAD47A9B6CF2E7EE8706A3F83BA0D0CE6671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017468   (761105) от 17.05.2016
 
 Oz Noy - Twisted Blues Volume 2 (2014) [FLAC|Lossless|tracks] <Jazz-Funk>
@@ -6,7 +122,7 @@ Oz Noy - Twisted Blues Volume 2 (2014) [FLAC|Lossless|tracks] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761105.jpg" />
+  <img src="Z:/picture/008/save_picture_761105.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ McKinney's Cotton Pickers - 1929 - 1930 (1992) Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760631.jpg" />
+  <img src="Z:/picture/008/save_picture_760631.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Blue Mitchell - Vital Blue (1971) 2017, Solid Records [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760630.jpg" />
+  <img src="Z:/picture/008/save_picture_760630.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ant Law - Life I Know (2018) [FLAC|Lossless|tracks+.cue] <Contemporary Jazz, Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760624.jpg" />
+  <img src="Z:/picture/008/save_picture_760624.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Andre Previn - Plays Songs By Harold Arlen 1960 (1994) Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760622.jpg" />
+  <img src="Z:/picture/008/save_picture_760622.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Yank Lawson-Bob Haggart Jazz Band - Jelly Roll's Jazz & Louis' Hot 5's And 7's 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760618.jpg" />
+  <img src="Z:/picture/008/save_picture_760618.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Ella Fitzgerald & Andre Previn - Nice Work If You Can Get It (1983) Pablo [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760612.jpg" />
+  <img src="Z:/picture/008/save_picture_760612.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Moses Boyd - Dark Matter (2020) [FLAC|Lossless|Web-DL|tracks] <Contemporary Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760517.jpg" />
+  <img src="Z:/picture/008/save_picture_760517.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Benny Goodman - Yale University Archives, Vol. 1 (1955 - 1986) 2CD, 2008, Nimbus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760366.jpg" />
+  <img src="Z:/picture/008/save_picture_760366.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Incognito - Circling In (2021) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760243.jpg" />
+  <img src="Z:/picture/008/save_picture_760243.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Michael Musillami Trio - Pride (2014) 2CD, Playscape Recordings [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760102.jpg" />
+  <img src="Z:/picture/008/save_picture_760102.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Marion Brown Quartet - La Placita: Live In Willisau (1977) 2016, Solid Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760101.jpg" />
+  <img src="Z:/picture/008/save_picture_760101.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sonny Fortune - Long Before Our Mothers Cried (1974) 2013, SHOUT! Productions [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760100.jpg" />
+  <img src="Z:/picture/008/save_picture_760100.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Cecil Taylor - Piano Solo At Town Hall 1971 (2009) FreeFactory [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760099.jpg" />
+  <img src="Z:/picture/008/save_picture_760099.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Herb Ellis, Joe Pass, Ray Brown, Jake Hanna - Jazz / Concord (1972) Remaster, 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759275.jpg" />
+  <img src="Z:/picture/008/save_picture_759275.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Oz Noy - Twisted Blues Volume 1 (2011) [FLAC|Lossless|tracks + .cue] <jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759270.jpg" />
+  <img src="Z:/picture/008/save_picture_759270.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759082.jpg" />
+  <img src="Z:/picture/008/save_picture_759082.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Gregory Porter - Take Me To The Alley (Deluxe Edition) (2016) [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759077.jpg" />
+  <img src="Z:/picture/008/save_picture_759077.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Bill Evans - Symbiosis 1974 (1994) MPS Records [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758916.jpg" />
+  <img src="Z:/picture/008/save_picture_758916.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Phil Woods - Musique Du Bois 1974 (2002) 32 Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758854.jpg" />
+  <img src="Z:/picture/008/save_picture_758854.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ The Bill Evans Trio - Quiet Now 1969 (1994) Charly Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758852.jpg" />
+  <img src="Z:/picture/008/save_picture_758852.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Les Doigts De L'Homme - 1910 (2010) Cristal Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758815.jpg" />
+  <img src="Z:/picture/008/save_picture_758815.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Les Doigts De L'Homme - 1910 (2010) Cristal Records [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C71B680DBA66E239B57AC3711CC8C8E0B3A419A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522397   (758785) от 07.01.2022
-
-Benny Goodman - Yale University Archives, Vol. 2 (1957 - 1964) 2CD, 2009, Nimbus Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758785.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Let's Dance [0:46]
-02. Bugle Call Rag [2:58]
-03. On The Sunny Side Of The Street [3:12](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Big BandПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DFB0041FB6A795CE237A88E6087D95C1BDBBE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280672   (758738) от 04.02.2019
-
-Vula Viel - Do Not Be Afraid (2019) [FLAC|Lossless|Web-DL|tracks] <Jazz, World Music, Punk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Well Come (3:35)
-02. Do Not Be Afraid (4:21)
-03. I Learn (3:38)
-04. Inside Mirror (2:57)(   Читать дальше...   )Производство: Vula Viel RecordsЖанр: Jazz, World Music, Alternative, PunkПродолжительность: 00:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90DD9A4C3D24BA5CF1579E58785875A2567167A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215532   (758232) от 26.03.2018
-
-Bud Freeman - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Just Wild About Harry [03:09]
-02. I Got Rhythm [02:38]
-03. Where Have You Been? [02:57]
-04. Ol' Man River [03:22](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F760C8373E84AC4A5B8DC1286C30DD53B547B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215514   (758231) от 26.03.2018
-
-Pony Poindexter - Pony's Express (1962) 2016, Sony Music [FLAC|Lossless|image + .cue] <Hard Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catin' Latin [04:17]
-02. Salt Peanuts [03:40]
-03. Skylark [03:45]
-04. Struttin' With Some Barbecue [05:34](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC515F684AEDDA970E7F44E8ADCD7878807ECA62
 ```
 
 https://mybot314.ru/tekegram_catalog/

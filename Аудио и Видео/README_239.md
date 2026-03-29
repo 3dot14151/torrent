@@ -6,7 +6,7 @@ VA - Lounge Remixes, Vol. 2 (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Deep Hous
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234158.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234146.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Vanlife Chill, Vol. 7 (2021) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234134.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Best Lounge and Chillout Covers (2021) [AAC|~316 Kbps] <Lounge, Chillou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234125.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Smooth Jazz n Chill 5 (2020) [AAC|~347 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234116.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Smooth Jazz n Chill 3 (2018) [AAC|~310 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234104.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Electronic Clouds, Vol. 2 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234098.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Electronic Clouds, Vol. 4 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234090.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Lounge & Cookies, Vol. 2 (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234081.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - What About Lounge, Vol. 1 (2021) [AAC|~316 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234049.jpg" />
+  <img src="Z:/picture/005/save_picture_234049.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dr. Jazz & Dirty Bucks Swing Band - Ammuìn' a Congo Square (2017) [AAC|~342 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234033.jpg" />
+  <img src="Z:/picture/005/save_picture_234033.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - What About Lounge, Vol. 3 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234029.jpg" />
+  <img src="Z:/picture/005/save_picture_234029.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Röyksopp - The Inevitable End (2014) [AAC|~309 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234018.jpg" />
+  <img src="Z:/picture/005/save_picture_234018.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Los Angeles Beach Lounge, Vol. 3 (2018) [AAC|~335 Kbps] <Chill Out, Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_234005.jpg" />
+  <img src="Z:/picture/005/save_picture_234005.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - What About Lounge, Vol. 4 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233998.jpg" />
+  <img src="Z:/picture/005/save_picture_233998.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Amazing Places (2021) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233991.jpg" />
+  <img src="Z:/picture/005/save_picture_233991.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Röyksopp - The Understanding (2005) [AAC|~332 Kbps] <Electronic, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233984.jpg" />
+  <img src="Z:/picture/005/save_picture_233984.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Chill Out Garden, Vol. 1 (2021) [AAC|~313 Kbps] <Downtempo, Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233954.jpg" />
+  <img src="Z:/picture/005/save_picture_233954.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ U.D.O. - Game Over (2021) [AAC|~354 Kbps] <Heavy Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233946.jpg" />
+  <img src="Z:/picture/005/save_picture_233946.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Après Lounge Club (2021) [AAC|~323 Kbps] <Downtempo, Lounge, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233936.jpg" />
+  <img src="Z:/picture/005/save_picture_233936.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Halloween Chilling Time 2021 (2021) [AAC|~288 Kbps] <Downtempo, Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233928.jpg" />
+  <img src="Z:/picture/005/save_picture_233928.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Sunday Chill - Berlin, Vol. 1 (2021) [AAC|~325 Kbps] <Deep House, Chill Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233444.jpg" />
+  <img src="Z:/picture/005/save_picture_233444.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Take It to Church, Vol. 3 (2020) [AAC|~351 Kbps] <Disco House, Nu-Disco, In
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233430.jpg" />
+  <img src="Z:/picture/005/save_picture_233430.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Lounge Tribute, Vol. 5 (2010) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233277.jpg" />
+  <img src="Z:/picture/005/save_picture_233277.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Lounge Tribute, Vol. 2 (2010) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233268.jpg" />
+  <img src="Z:/picture/005/save_picture_233268.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Lounge Tribute, Vol. 3 (2010) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233257.jpg" />
+  <img src="Z:/picture/005/save_picture_233257.jpg" />
 </div>
 
 

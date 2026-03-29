@@ -1,3 +1,82 @@
+###  Публикация: 1618063   (1034570) от 09.03.2023
+
+Константин Паустовский | Стальное колечко (2021) [MP3, Галина Годунова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вместе живут дед Кузьма с внучкой Варюшей. Однажды дедушка отправляет девочку за махоркой. Сделав покупку, Варя идет посмотреть на поезда. Здесь она встречает двух солдат, которых угощает махоркой. Один из них дарит девочке стальное колечко. Какой волшебной силой обладает это неприметное украшение, узнайте вместе с детьми из произведения. Оно учит доброте, и вере (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 00:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118AEFECCAC0D84CC2C7515983AB42DB608CC96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 654520   (1034115) от 03.02.2021
+
+Вениамин Каверин | Два капитана (2013) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман Вениамина Каверина "Два капитана" - одно из самых ярких произведений русской приключенческой литературы XX века Эта история о любви и верности, мужестве и целеустремленности уже многие годы не оставляет равнодушным ни взрослого, ни юного читателя.
+Книгу звали "романом воспитания", "авантюрным романом", "идиллически-сентиментальным (   Читать дальше...   )Жанр: РадиоспектакльПродолжительность: 10:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C0CF3D838C4A54292E6A15DD04E3E05F82AF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445145   (1034015) от 04.02.2021
+
+Андрей Кутерницкий | Золотая змея (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодой пастух по имени Элли пас овец среди гор и камней и неожиданно услышал в своей голове голос, раздающийся неизвестно откуда с призывом о помощи. Оглядевшись, он заметил на земле придавленную камнем змею необычного золотого цвета. Превозмогая страх, ведь такая змея была олицетворением смерти, он убрал камень. В благодарность за спасение, змея наделила Элли даром (   Читать дальше...   )Жанр: Детская литература. РадиоспектакльПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A38B12EF321E13D7E60ADF7FE8BABEFCC1E5B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 542844   (1033631) от 05.02.2021
 
 Мистерия звука | Антология русской народной сказки [Том 1-3] (2012) [MP3]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033631.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032543.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032451.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031936.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031890.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031667.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031548.jpg" />
 </div>
 
 
@@ -194,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031230.jpg" />
 </div>
 
 
@@ -220,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031174.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030854.jpg" />
 </div>
 
 
@@ -275,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030451.jpg" />
 </div>
 
 
@@ -304,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028735.jpg" />
 </div>
 
 
@@ -330,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028715.jpg" />
 </div>
 
 
@@ -359,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028353.jpg" />
 </div>
 
 
@@ -386,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027903.jpg" />
 </div>
 
 
@@ -413,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027873.jpg" />
 </div>
 
 
@@ -440,7 +519,7 @@ VA - Золотые колыбельные (2013) [MP3|320 кб/с]<Колыбе
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027838.jpg" />
 </div>
 
 
@@ -471,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027774.jpg" />
 </div>
 
 
@@ -499,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027771.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027748.jpg" />
 </div>
 
 
@@ -555,7 +634,7 @@ VA - Музыка для Малышей (2009) [MP3|320 kbps]<Музыка дл�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027634.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ VA - День Рождения (2004) [MP3|128 kbps]<Музыка и песни 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027631.jpg" />
 </div>
 
 
@@ -613,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027612.jpg" />
 </div>
 
 
@@ -626,90 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE0DDC24A762FB87F672A3FD0CF8CFA46CF464D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452512   (1027611) от 06.03.2021
-
-Кейт Нортроп | Мама устала. Как перестать «все успевать» и сделать самое главное (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь каждой мамы заполнена множеством дел и забот: воспитание детей, карьера, домашние хлопоты. Кажется, что нужно всё-всё успеть – и обязательно сделать идеально и на 100 %! Но такое рвение чаще всего приводит к выгоранию. Кейт Нортроп, успешная бизнесвумен с двумя детьми, предлагает свой рецепт для занятых и вечно усталых мам: делать меньше и получать больше! (   Читать дальше...   )Жанр: Психология/Воспитание детейПродолжительность: 08:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:299D76A45909AF71E03BA680D83483EA920209FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452800   (1027571) от 07.03.2021
-
-Владимир Добряков | Новая жизнь Димки Шустрова (2021) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта повесть, изданная в 1983 году, о счастливых и беззаботных школьных годах.
-Беззаботных???. Как легко так говорить взрослым!
-жила- была дружная семья: бабушка, мама и Дима и... кот,  общий любимец. Всё у них в семье было размеренно и ровно.
-Мама была журналисткой работала в редакции газеты, Дима ходил в школу и учился вроде неплохо. Бабушка заведовала домашним хозяйством, (   Читать дальше...   )Жанр: детская литератураПродолжительность: 07:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03171B3D59A12A1F7312607B7F6134AC14414F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 231347   (1027438) от 07.03.2021
-
-VA - Disney Love Songs (2009) [MP3|192 kbps]<Музыка и песни для детей>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие песни про любовь от компании Дисней. Песни из таких знаменитых мультфильмов как, Покахонтас, Бэмби, Мулан, Король Лев, Дамбо, Спящая красавица, Белоснежка, Мэри Поппинс, Питер Пен, Пиноккио01. Jon Secada Shanice - If I Never Knew You - Покахонтас
-02. Leslie French - Reflection (Karaoke 1) - Мулан
-03. Gene Miller Liz Callaway Chorus - Love Will Find A Way - Король Лев
-04. Chris Martin and Chorus - Baby Mine (Karaoke Vocal) - Дамбо(   Читать дальше...   )Жанр: Музыка и песни для детейПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07A9ACBF9F6A72A78F9D12B114D7254DF58ABC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

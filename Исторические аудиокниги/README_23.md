@@ -1,3 +1,81 @@
+###  Публикация: 1308920   (553508) от 16.06.2019
+
+Евгений Чириков | Зверь из бездны (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_553508.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Зверь из бездны» – необыкновенно чувственный роман одного из самых замечательных писателей русского Серебряного века Евгения Чирикова, проза которого, пережив годы полного забвения в России (по причине политической эмиграции автора) возвращается к русскому читателю уже в наши дни. Роман является эпической панорамой массового озверения, метафорой пришествия апокалиптического (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 18:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8047C48F4AB1BF9ED46507FF2D8B63579F34D71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046085   (552847) от 26.08.2016
+
+Семён Скляренко | Владимир (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Семена Скляренко - о нашей истории, о прошлом нашего народа. Автор пишет о Киевской Руси - колыбели трех славянских народов - русского, украинского и белорусского. В романе последовательно и широко отображается решительная политика князя Владимира, отстаивавшего твердую государственную власть и единство Руси.Жанр: Исторический романПродолжительность: 25:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC3751C37DF9921A8E81123979FB762917C2106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237443   (552411) от 23.07.2018
+
+Пьер Жильяр | Император Николай II и его семья (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Воспоминания о последнем русском царе и его семье, написанные учителем детей Николая II, преподававшим им французский язык. Охватывают довоенные годы, период Первой мировой войны, двух революций и ссылки царской семьи в Тобольск, куда Жильяр добровольно поехал вместе с ней. В Екатеринбурге автор был отделен от семьи царя большевиками, однако сразу после вступления (   Читать дальше...   )Жанр: История, мемуары, биографияПродолжительность: 08:22:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D74BB1B165BD5196B638E668B2B7CED93AE21EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046684   (551017) от 28.08.2016
 
 Плутарх | Сравнительные жизнеописания. Демосфен и Цицерон (2006) [MP3]
@@ -6,7 +84,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551017.jpg" />
+  <img src="Z:/picture/008/save_picture_551017.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551012.jpg" />
+  <img src="Z:/picture/008/save_picture_551012.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550442.jpg" />
+  <img src="Z:/picture/008/save_picture_550442.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544849.jpg" />
+  <img src="Z:/picture/008/save_picture_544849.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542430.jpg" />
+  <img src="Z:/picture/008/save_picture_542430.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540875.jpg" />
+  <img src="Z:/picture/008/save_picture_540875.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539170.jpg" />
+  <img src="Z:/picture/008/save_picture_539170.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538028.jpg" />
+  <img src="Z:/picture/008/save_picture_538028.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535311.jpg" />
+  <img src="Z:/picture/008/save_picture_535311.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533454.jpg" />
+  <img src="Z:/picture/008/save_picture_533454.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532556.jpg" />
+  <img src="Z:/picture/008/save_picture_532556.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531962.jpg" />
+  <img src="Z:/picture/008/save_picture_531962.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531486.jpg" />
+  <img src="Z:/picture/008/save_picture_531486.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529779.jpg" />
+  <img src="Z:/picture/008/save_picture_529779.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529148.jpg" />
+  <img src="Z:/picture/008/save_picture_529148.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529140.jpg" />
+  <img src="Z:/picture/008/save_picture_529140.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529138.jpg" />
+  <img src="Z:/picture/008/save_picture_529138.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528795.jpg" />
+  <img src="Z:/picture/008/save_picture_528795.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528791.jpg" />
+  <img src="Z:/picture/008/save_picture_528791.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528186.jpg" />
+  <img src="Z:/picture/008/save_picture_528186.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527661.jpg" />
+  <img src="Z:/picture/008/save_picture_527661.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527113.jpg" />
+  <img src="Z:/picture/008/save_picture_527113.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524665.jpg" />
+  <img src="Z:/picture/008/save_picture_524665.jpg" />
 </div>
 
 
@@ -601,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C717D3FFA0CCBC6718735AE503A020E54F105DC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053063   (524186) от 18.09.2016
-
-Николай Задорнов | Капитан Невельской (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о сложной, драматичной истории открытия русскими людьми устья Амура, начала освоения Приморья и Сахалина. В центре романа - образ капитана, впоследствии - адмирала Г.И. Невельского, путешественника и ученого, флотоводца и дипломата, патриота России и самоотверженного защитника ее интересов.Жанр: Исторический романПродолжительность: 37:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:815C147D88795970280308C498B9D6CCFA8A219D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313737   (522927) от 10.07.2019
-
-Колин Маккалоу | По воле судьбы (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их было двое. Два великих римлянина. Два выдающихся военачальника. Расширивший пределы государства, победивший во многих битвах Цезарь и Помпей Великий, очистивший Средиземное море от пиратов, отразивший угрозу Риму на Востоке.
-Они были не только союзниками, но и родственниками. Но… жажда власти развела их по разные стороны и сделала врагами. Рим оказался на пороге (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 36:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CD3A28501EF72F50DF2FCDCA64B2A9E214400A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313833   (522254) от 11.07.2019
-
-Александр Немировский | Пифагор (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пифагор, знаменитый ученый древности, известен нам, людям XX века, как математик. Кто не учил в школе теорему Пифагора! Но Пифагор остался в истории не столько как автор теоремы, а как разносторонний ученый. Он разработал свое философское учение, создал свою школу. Многие из его учеников впоследствии стали известными в Древней Греции учеными, прославившимися трудами (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 15:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B86668D835BAAD528BAEB499130BFECC7C4E678
 ```
 
 https://mybot314.ru/tekegram_catalog/

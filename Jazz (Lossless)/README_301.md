@@ -1,3 +1,119 @@
+###  Публикация: 1685321   (127242) от 18.12.2023
+
+VA - The Best Of Acid Jazz Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black & Brown - Cool Affair (5:23)
+02. Italian Secret Service - Not the Same (4:30)
+03. The Soultrend Orchestra - Live For Funk (3:38)
+04. 2 Men 4 Soul - Spread Your Sax (5:16)(   Читать дальше...   )Жанр: Jazz, Funk, Acid JazzПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37797344E733E673EF7F1A2BEE2C886E209AAF33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685319   (127229) от 18.12.2023
+
+VA - The Best Bossa Nova Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Bossa Nova, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 12 Fingers - Viagem (7:06)
+02. Silvia Donati - Parece Vortice (3:36)
+03. Hammond Express - Esoterico (5:21)
+04. Bebo Best - Billie's Feet (Brazilectro Remix) (3:40)(   Читать дальше...   )Жанр: Smooth Jazz, Bossa Nova, LoungeПродолжительность: 01:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B596CA476C958532E8CE3473BB21A03DB2FB8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685289   (127224) от 18.12.2023
+
+Ella Fitzgerald - Ella Wishes You A Swinging Christmas (1960) 1988, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [2:25]
+02. Santa Claus Is Coming to Town [2:21]
+03. Have Yourself a Merry Little Christmas [2:58]
+04. What Are You Doing New Year's Eve? [3:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFBE6042A32E4D6A2A676FA5DBAC4F172393F17D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685292   (127223) от 18.12.2023
+
+Terri Lyne Carrington - TLC & Friends (1981) 2023, Candid [FLAC|Lossless|tracks + .cue] <CCD32122>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Is This Thing Called Love? [6:22]
+02. La Bonita [5:32]
+03. Seven Steps to Heaven [5:50]
+04. St. Thomas [7:17](   Читать дальше...   )Жанр: CCD32122Продолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956EB4F517AE0E1012DC3CD89520074BCC6C5E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685322   (127221) от 18.12.2023
 
 VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, Electronic>
@@ -6,7 +122,7 @@ VA - Urban Grooves 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk, El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127221.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Gregory Porter - Christmas Wish (2023) Blue Note [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127212.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Chet Baker - Chet Baker Sings: It Could Happen To You (1958) 2006, Victor Entert
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127210.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Mal Waldron Quintet - Mal-1 (1956) 1991, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127037.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Tina Brooks - Back To The Tracks (1960) 1993, Blue Note [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127035.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Toshiko Akiyoshi Jazz Orchestra featuring Lew Tabackin - Last Live In Blue Note 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127034.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Un poquito de Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126919.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Christian Sands - Christmas Stories (2023) Mack Avenue Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126887.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ George Gee Swing Orchestra - Winter Wonderland (2023) Self-Released [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126883.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Pharoah Sanders Quartet - Live at Fabrik, Hamburg (1980) 2023, Jazzline [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126868.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Brecker Brothers - Score (1988) 1991, Jazz Door [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126852.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Ella Fitzgerald & Louis Armstrong - Ella & Louis Wish You A Swinging Holiday (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126768.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Benny Goodman - Undercurrent Blues (1940 - 1949) 1995, Capitol Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126749.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Lisa Hilton - Underground (2011) Ruby Slippers Productions [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126748.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ V.A. - Montecarlo Night, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126732.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ The Bud Shank Sextet - New Gold! (1994) Candid [FLAC|Lossless|tracks + .cue] <Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126728.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Frank Morgan - Reflections (1988) 2000, Original Jazz Classics [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126727.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Dexter Gordon - Settin' The Pace (1943 - 1950) 4CD, 2001, Proper Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126488.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ The Stan Getz Quartet - Pure Getz (1982) Concord Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126432.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Bill Evans - You Must Believe In Spring (1977) 2022, Craft Recordings [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126430.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Christian Sands - Facing Dragons (2018) Mack Avenue Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126413.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ National Youth Jazz Orchestra - These Are The Jokes (1992) Ronnie Scott's Jazz H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126408.jpg" />
 </div>
 
 
@@ -629,121 +745,6 @@ National Youth Jazz Orchestra - These Are The Jokes (1992) Ronnie Scott's Jazz H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71BA92ED608EC048B6071F063C8C5FB55FDB9C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686487   (126404) от 23.12.2023
-
-Jeremy Bruger Trio - Jubilation (2013) Black & Blue [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jubilation [5:22]
-02. Mr Peter All-Key [3:48]
-03. Alpha [4:38]
-04. Cubano Chant [4:13](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBE56634C96E3E797A70786D2D20E31D779F3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686346   (126394) от 23.12.2023
-
-Bud Shank, Manny Albam, Vic Lewis - Bud Shank Plays (1984, 1985) 1987, Mole Jazz [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here's That Rainy Day [11:33]
-02. Body and Soul [5:50]
-03. Concerto for Jazz Alto Saxophone and Orchestra [20:30]Жанр: Cool, Hard BopПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50D1388EF0C7C6D69B8DE5FC80DA297AE3C5E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686829   (126212) от 24.12.2023
-
-Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milano [6:09]
-02. Well, You Needn't [6:21]
-03. K.C. Blues [9:14]
-04. A Night in Tunisia [8:00](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A839AF655398EC7DAD370C1825C9D9F1A2C9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686831   (126179) от 24.12.2023
-
-Franco Ambrosetti - Nora (2022) Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nora's Theme [6:38]
-02. Morning Song of a Spring Flower [7:05]
-03. All Blues [7:48]
-04. Falling in Love [5:32](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12811F8B1191DAEEE9C029BBC9881F1373343864
 ```
 
 https://mybot314.ru/tekegram_catalog/

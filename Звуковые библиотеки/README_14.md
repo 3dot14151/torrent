@@ -1,3 +1,82 @@
+###  Публикация: 1323648   (433560) от 05.09.2019
+
+Spitfire Audio - BML Mural Symphonic Strings Vol. 1&2 RePack Андрей650071 [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_433560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spitfire представляет Mural - новую библиотеку в серии British Modular Range, которая представляет вам детально засэмплированные струнные при участии лучших музыкантов Лондона. Mural предлагает большой струнный оркестр из 60 человек (16,14,12,10,8), записанный и исполненный для обеспечения невероятной детальности. Это не эпические струнные для трейлеров. Звук библиотеки (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D987C0A04D4F3202765896554E5639B474877EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 394383   (427435) от 30.09.2011
+
+Звуковые библиотеки - Steven Slate Drums - Platinum 3.5 [NKI]
+
+>>След.
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_427435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steven Slate Drums Platinum - это библиотека которая содержит более 40 наборов ударных в том числе 13 комплектов а также 10 новых гибридных комплектов, которые используют несколько различных слоев для создания новых и уникальных звуков.Этот пакет представляет собой наиболее полный виртуальный инструмент барабанаФормат: NKI
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324375   (427321) от 08.09.2019
+
+ProjectSam - Symphobia 3 Lumina v1.5 [Kontakt]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427321.jpg" />
+</div>
+
+
+###  Подробнее
+
+К вашим услугам полный оркестр, хор, малые ансамбли и широкий диапазон новых инструментов, Lumina погружает в мир фантазий, таинства и воодушевления, добавьте глубину и изысканность в вашу музыкальную палитру. Основываясь на еще большем количестве материала, третий том в серии Symphobia является самым амбициозным релизом за все время.
+Тепло и красота совместного (   Читать дальше...   )Формат: Kontakt: NICNT, NKC, NKI, NKR, NKX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A62A2CAFDD9D501C80C2D62AE7C2B270D609D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324297   (427261) от 08.09.2019
 
 NNM-Club Sound Cleaner Collection - andgelo12 - Album 5 [MP3]
@@ -6,7 +85,7 @@ NNM-Club Sound Cleaner Collection - andgelo12 - Album 5 [MP3]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427261.jpg" />
+  <img src="Z:/picture/008/save_picture_427261.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ SoundMorph - MODULAR UI [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423012.jpg" />
+  <img src="Z:/picture/008/save_picture_423012.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ Soniccouture - The Hammersmith Professional Edition v2.3 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421145.jpg" />
+  <img src="Z:/picture/008/save_picture_421145.jpg" />
 </div>
 
 
@@ -89,7 +168,7 @@ NNM-Club Sound Cleaner Collection - WetY - Album 1
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420801.jpg" />
+  <img src="Z:/picture/008/save_picture_420801.jpg" />
 </div>
 
 
@@ -115,7 +194,7 @@ Native Instruments - Abbey Road Modern Drums [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418664.jpg" />
+  <img src="Z:/picture/008/save_picture_418664.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ Native Instruments - Alicia`s Keys [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418471.jpg" />
+  <img src="Z:/picture/008/save_picture_418471.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ Boom Library - BABY BOOM [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414338.jpg" />
+  <img src="Z:/picture/008/save_picture_414338.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ Native Instruments - The Gentleman [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414332.jpg" />
+  <img src="Z:/picture/008/save_picture_414332.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ Native Instruments - The Maverick v1.2  [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414196.jpg" />
+  <img src="Z:/picture/008/save_picture_414196.jpg" />
 </div>
 
 
@@ -246,7 +325,7 @@ Boom Library - CINEMATIC ELEMENTS: FIRE & WATER [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414193.jpg" />
+  <img src="Z:/picture/008/save_picture_414193.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ Boom Library - DOGS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412455.jpg" />
+  <img src="Z:/picture/008/save_picture_412455.jpg" />
 </div>
 
 
@@ -298,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_411598.jpg" />
+  <img src="Z:/picture/005/save_picture_411598.jpg" />
 </div>
 
 
@@ -324,7 +403,7 @@ Soniccouture - The Canterbury Suitcase [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410230.jpg" />
+  <img src="Z:/picture/008/save_picture_410230.jpg" />
 </div>
 
 
@@ -351,7 +430,7 @@ Orchestral Tools - TIME Macro [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407358.jpg" />
+  <img src="Z:/picture/008/save_picture_407358.jpg" />
 </div>
 
 
@@ -379,7 +458,7 @@ Native Instruments - Studio Drummer 1.1 [English]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406862.jpg" />
+  <img src="Z:/picture/005/save_picture_406862.jpg" />
 </div>
 
 
@@ -410,7 +489,7 @@ Boom Library - HARBOR & INDUSTRIAL [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385072.jpg" />
+  <img src="Z:/picture/008/save_picture_385072.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ Boom Library - URBAN & SUBURBAN [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384826.jpg" />
+  <img src="Z:/picture/008/save_picture_384826.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ Native Instruments - SESSION GUITARIST – PICKED ACOUSTIC [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384814.jpg" />
+  <img src="Z:/picture/008/save_picture_384814.jpg" />
 </div>
 
 
@@ -489,7 +568,7 @@ Ilya Efimov - Bayan - RePack Андрей650071 [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383113.jpg" />
+  <img src="Z:/picture/008/save_picture_383113.jpg" />
 </div>
 
 
@@ -515,7 +594,7 @@ Spitfire Audio - ALBION ONE [Kontakt]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382800.jpg" />
+  <img src="Z:/picture/008/save_picture_382800.jpg" />
 </div>
 
 
@@ -542,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382719.jpg" />
+  <img src="Z:/picture/008/save_picture_382719.jpg" />
 </div>
 
 
@@ -568,7 +647,7 @@ Boom Library - MODERN UI [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380634.jpg" />
+  <img src="Z:/picture/008/save_picture_380634.jpg" />
 </div>
 
 
@@ -594,7 +673,7 @@ Boom Library - MONSTERS & BEASTS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378489.jpg" />
+  <img src="Z:/picture/008/save_picture_378489.jpg" />
 </div>
 
 
@@ -605,87 +684,6 @@ Boom Library - MONSTERS & BEASTS [WAV]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:705273CC0A4B8354F2A197056008CC19CE54E69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327126   (378488) от 23.09.2019
-
-Boom Library - MECHANICALS DESIGNED [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378488.jpg" />
-</div>
-
-
-###  Подробнее
-
-MECHANICALS DESIGNED позволит вам создавать захватывающие и сложные механические звуковые эффекты всего за несколько минут - сложные двери хранилищ, секретные, часовые, огромные, мелкие или крошечные механизмы, разводные мосты, вообщем механические процессы любого размера - называйте это как захотите. У вас нет времени редактировать отдельные звуковые файлы, чтобы (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB9046A55F3CDFD0B4E4A947C34126BFFAEE4D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327130   (378479) от 23.09.2019
-
-Boom Library - CINEMATIC METAL – TITAN [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дополните ваш дизайн детальными высококачественными металлическими звуками. CINEMATIC METAL – TITAN позволяет создавать уникальные мультиакцентные эффекты, которые впечатляют не только по масштабу, но и по точности, ритму и характеру. Эта библиотека особенно хороша в ситуациях, когда видимая картинка не обязательно производит предполагаемый звук, но требует своего (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B763F4451F3D73F7E4B633D1BDD08A2EE4C09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415138   (378243) от 11.10.2020
-
-Звуковые библиотеки - Q Up Arts - California Keys [Kontakt]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция клавишных инструментов:The Fazioli 10ft grand,Rhodes, Wurlitzer, Vox, FARFISA and Hammond organs,
-Мы записали этот великолепный инструмент в объемном звучании с 11 каналами микрофонов.
-Пианино представлено в стерео и объемном исполнении.
-Вы найдете эти инструменты чрезвычайно проигрываемыми и вдохновляющими.(   Читать дальше...   )Формат: Kontakt: NICNT, NKSN, NKC, NKI, NKR, NKX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23F7B9C3B93B4369E41997325010926C2E585B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

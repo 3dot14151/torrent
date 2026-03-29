@@ -1,3 +1,139 @@
+###  Публикация: 1371174   (886491) от 02.04.2020
+
+Stellar Data Recovery Technician 10.0.0.0 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stellar Data Recovery Technician - это передовое программное обеспечение, разработанное для для ИТ-специалистов и корпоративных пользователей, позволяющее извлекать все типы данных из MacBook Pro, iMac Pro, Mac Pro, MacBook Air и Mac Mini. Утилита может восстановить неограниченное количество потерянных, удаленных или недоступных данных со всех устройств Mac и носителей (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Stellar Information Technology Pvt. Ltd.Поддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE1296173D93778036343306F12D9B05DBF3C7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995142   (886348) от 10.03.2016
+
+Bookmarks Duplicates Cleaner 1.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удалите дубликаты закладок, очистите и организуйте Ваш браузер Safari. Быстро и просто!
+Bookmarks Duplicates Cleaner - уникальный и полезный инструмент для организации закладок в Вашем браузере Safari. Все, кто использует Safari в качестве основного браузера часто имеют много дубликатов закладок. Даже после очистки, во время импорта или добавления новых закладок (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 марта 2016Разработчик: Ruslan HakimzhanovПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C16C9622E4A5292DEF0A676637802A34A38746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995212   (886192) от 10.03.2016
+
+Periscope Pro 3.1.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Система видео наблюдения основанная на детекторе движения, использующая ваш Mac.
+Periscope Pro превращает ваш Mac в систему наблюдения записывает видео ролики со звуком. Вы можете сохранять клипы, чтобы просмотреть их позже, либо автоматически загрузить их на Dropbox, чтобы посмотреть что происходит удаленно!
+
+Periscope Pro простое в использование приложение, которое (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 марта 2016Разработчик: Yevgeniy MuravyevПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163854BC245E1F4A06FB81AED614DB7223DC7EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494815   (886094) от 09.09.2021
+
+Xmas snow 1.5.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зима приближается. Вы готовы? Xmas snow подготовит вас к зиме.
+Xmas snow добавит анимированный снег на ваш рабочий стол и с Xmas snow вы всегда будете знать, сколько дней до Рождества или до Нового года. Xmas snow может показать на вашем рабочем столе елки и гирлянды. Также вы можете слушать каждый час праздничную мелодию.
+Xmas snow имеет удобный интерфейс, настройки (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.09.2021Разработчик: Maksym KatrychПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEF24C826C9E886457A1658C514DB888952F67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494773   (886060) от 09.09.2021
+
+Theine 3.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не позволяйте компьютеру Mac заснуть, затемнению экрана или запуску заставки. Theine не дает уснуть macOS, как кофеин внутри вас.Тип издания: macOS SoftwareРелиз состоялся: 07.09.2020Разработчик: IXEAU UG (haftungsbeschraenkt)Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FBA3C56B33C9BC778A2F8ACA7691EB7480E3B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494789   (886054) от 09.09.2021
 
 Join Any Video 3.0.2 [En]
@@ -6,7 +142,7 @@ Join Any Video 3.0.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886054.jpg" />
+  <img src="Z:/picture/005/save_picture_886054.jpg" />
 </div>
 
 
@@ -35,7 +171,7 @@ RAW Converter Ultimate Full v3.0.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885991.jpg" />
+  <img src="Z:/picture/005/save_picture_885991.jpg" />
 </div>
 
 
@@ -61,7 +197,7 @@ FxFactory Pro 7.2.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885927.jpg" />
+  <img src="Z:/picture/005/save_picture_885927.jpg" />
 </div>
 
 
@@ -88,7 +224,7 @@ HashTab 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885762.jpg" />
+  <img src="Z:/picture/005/save_picture_885762.jpg" />
 </div>
 
 
@@ -117,7 +253,7 @@ macOS Server 5.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885051.jpg" />
+  <img src="Z:/picture/005/save_picture_885051.jpg" />
 </div>
 
 
@@ -143,7 +279,7 @@ Scudo 1.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884467.jpg" />
+  <img src="Z:/picture/005/save_picture_884467.jpg" />
 </div>
 
 
@@ -169,7 +305,7 @@ AnyMP4 Mac Blu-ray Player 6.2.52 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884194.jpg" />
+  <img src="Z:/picture/005/save_picture_884194.jpg" />
 </div>
 
 
@@ -195,7 +331,7 @@ Scudo 2 v2.0.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883742.jpg" />
+  <img src="Z:/picture/005/save_picture_883742.jpg" />
 </div>
 
 
@@ -221,7 +357,7 @@ Mate Translate 6.2.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883622.jpg" />
+  <img src="Z:/picture/005/save_picture_883622.jpg" />
 </div>
 
 
@@ -249,7 +385,7 @@ Wondershare Data Recovery 3.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883425.jpg" />
+  <img src="Z:/picture/005/save_picture_883425.jpg" />
 </div>
 
 
@@ -278,7 +414,7 @@ ChronoSync 4.9.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883403.jpg" />
+  <img src="Z:/picture/005/save_picture_883403.jpg" />
 </div>
 
 
@@ -307,7 +443,7 @@ Disk Cleaner - Free Your Hard Drive Space 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883374.jpg" />
+  <img src="Z:/picture/005/save_picture_883374.jpg" />
 </div>
 
 
@@ -334,7 +470,7 @@ Simon 4.2 (4028) [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882939.jpg" />
+  <img src="Z:/picture/005/save_picture_882939.jpg" />
 </div>
 
 
@@ -361,7 +497,7 @@ TextExpander 5.1.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882323.jpg" />
+  <img src="Z:/picture/005/save_picture_882323.jpg" />
 </div>
 
 
@@ -389,7 +525,7 @@ Disk Drill Entreprise 2.4.438 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882320.jpg" />
+  <img src="Z:/picture/005/save_picture_882320.jpg" />
 </div>
 
 
@@ -416,7 +552,7 @@ GarageBand 10.1.6 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881348.jpg" />
+  <img src="Z:/picture/005/save_picture_881348.jpg" />
 </div>
 
 
@@ -442,7 +578,7 @@ Autodesk Maya 2017.1 Security Fix for Mac [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880959.jpg" />
+  <img src="Z:/picture/005/save_picture_880959.jpg" />
 </div>
 
 
@@ -469,7 +605,7 @@ KeyKey 1.0.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880746.jpg" />
+  <img src="Z:/picture/005/save_picture_880746.jpg" />
 </div>
 
 
@@ -498,7 +634,7 @@ AnyMP4 iPhone Data Recovery for Mac 7.3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880734.jpg" />
+  <img src="Z:/picture/005/save_picture_880734.jpg" />
 </div>
 
 
@@ -527,7 +663,7 @@ Squash — Web Image Compression 2.0.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880340.jpg" />
+  <img src="Z:/picture/005/save_picture_880340.jpg" />
 </div>
 
 
@@ -556,7 +692,7 @@ Sketchode 2.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880095.jpg" />
+  <img src="Z:/picture/005/save_picture_880095.jpg" />
 </div>
 
 
@@ -569,148 +705,6 @@ Sketchode 2.0.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2328F706164F39FAB1D7FA98A275A7B4C0328D32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104600   (880062) от 15.02.2017
-
-Little Audio App 1.2.1 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Little Audio App -  упрощенное воспроизведение и экспорт
-Little Audio App представляет собой удобный инструмент для воспроизведения и экспорта практически любого файла, который содержит аудио. Он может обрабатывать почти все, если файл содержит аудио в той или иной форме.
-
-Все, начиная от аудио форматов для контейнеров файлов фильмов, вы можете экспортировать в AAC (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01 февраля 2017Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8BE7A5A4F9687F283B3F7C4574C89C439A886D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104936   (878216) от 16.02.2017
-
-Timerik 1.3 [En/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878216.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Таймерик» – это элегантный и очень удобный в использовании таймер обратного отсчета времени.
-
-Базовая функция приложения — простая установка уведомлений. Хотите не забыть вытащить пирог из духовки, засидевшись за компьютером? Просто заведите «Таймерик»!
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 февраля 2017Разработчик: 2016 m!Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B24C4AF9AE2B936DC6F8911722E8505DD96A54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373919   (876859) от 08.04.2020
-
-Chaos Control Premium 1.8.1 [En/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хаос-контроль: органайзер целей и задач на базе GTD
-Хаос-контроль - это мощный органайзер, позволяющий фиксировать долгосрочные и среднесрочные цели, а также составлять списки дел на день.
-
-Ещё ни в одной биографии выдающегося бизнесмена, политика или артиста не было написано, что он достиг успеха благодаря использованию ежедневника, календаря, методик тайм-менеджмента (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.04.2020Разработчик: Tarasov MobileПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B97CA76E6AAB4DEF7DC2FA02D2296CCBDA1AD65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374004   (876365) от 08.04.2020
-
-Wondershare Recoverit Video Repair 1.1.2 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876365.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare Recoverit Video Repair 1.0 обещает пользователям простой способ исправить свои поврежденные видеофайлы, независимо от формата, в котором они находятся. Приложение должно быть достаточно простым в использовании, и его стоит попробовать, если больше ничего не дает убедительных результатов. Приложение простое, в основном потому, что оно не заполнено слишком (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0ED9BFD856F11D9EC7AE4753BE342D16D090CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105411   (876344) от 17.02.2017
-
-Principle 2.1.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Principle: инструмент для прототипирования
-Principle — приложение для Mac OS, которое позволяет в два счета создать анимацию элементов пользовательского интерфейса и сгенерировать его интерактивный прототип. Будь то многоэкранное приложение или просто придуманный вами контрол, так просто и быстро реализовать это раньше не позволял ни один сервис.
-
-Principle — умный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 февраля 2017Разработчик: Daniel HooperПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC6F26FDAF94F388424E39FC772480D8FEA386B
 ```
 
 https://mybot314.ru/tekegram_catalog/

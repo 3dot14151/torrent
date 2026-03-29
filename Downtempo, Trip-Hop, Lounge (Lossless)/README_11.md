@@ -1,3 +1,61 @@
+###  Публикация: 1529703   (732577) от 07.02.2022
+
+Geotronika - The Radiance Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Ambient, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_732577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Indian Dance (Original Mix) (7:41)
+02. Christmas Choir (Original Mix) (5:42)
+03. From Depth To The Sky (Original Mix) (5:18)
+04. New Magic Place (Original Mix) (7:23)(   Читать дальше...   )Жанр: Chillwave, Ambient, DowntempoПродолжительность: 01:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B3281280C8D24A950CE7CE55F2ADF3F3D62279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529708   (732571) от 07.02.2022
+
+Geotronika - Hypnosis Of Happiness (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_732571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hypnosis Of Happiness (6:20)
+02. Plutonius (2:37)
+03. Love Of Life (5:22)
+04. Free Flight (7:03)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC4A6BD46E619E33CEE5BDDE13A9DE59787A84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529709   (732559) от 07.02.2022
 
 Geotronika - In The Moonlight (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillwave>
@@ -6,7 +64,7 @@ Geotronika - In The Moonlight (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732559.jpg" />
+  <img src="Z:/picture/008/save_picture_732559.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Nouvelle Vague - Rarities (2019) Anthology [FLAC|Lossless|WEB-DL|tracks] <Lounge
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732046.jpg" />
+  <img src="Z:/picture/008/save_picture_732046.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Blue Sailing: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729914.jpg" />
+  <img src="Z:/picture/008/save_picture_729914.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Maretimo Chill Radio - Best of Vol. 1 - Positive Summer Vibes (2022) [FLAC|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728985.jpg" />
+  <img src="Z:/picture/008/save_picture_728985.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Distant Places Lounge Vol.1: Chillout Your Mind (2022) [FLAC|Lossless|WEB-D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728980.jpg" />
+  <img src="Z:/picture/008/save_picture_728980.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Above & Beyond - Acoustic II (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo , C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727682.jpg" />
+  <img src="Z:/picture/008/save_picture_727682.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Milchbar - Seaside Season 9 (Compiled by Blank & Jones) (2017) [FLAC|Lossle
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726454.jpg" />
+  <img src="Z:/picture/008/save_picture_726454.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Sunny Morning Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722695.jpg" />
+  <img src="Z:/picture/008/save_picture_722695.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Above & Beyond - Acoustic II (2016) [FLAC|Lossless|tracks + .cue] <Electronic>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722249.jpg" />
+  <img src="Z:/picture/008/save_picture_722249.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Weval - The Weight (2019) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Dub, Downtempo,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714931.jpg" />
+  <img src="Z:/picture/008/save_picture_714931.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Chris Wonderful - Music for Lovers, volume 1 (2013/2018) [FLAC|Lossless|image + 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714927.jpg" />
+  <img src="Z:/picture/008/save_picture_714927.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Sandwalk Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713200.jpg" />
+  <img src="Z:/picture/008/save_picture_713200.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Erotic Lounge Obsession Best of Sensual Chillout Love Making Music (2019) [
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712860.jpg" />
+  <img src="Z:/picture/008/save_picture_712860.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ joergmueller - Discography 4 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks+.
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709960.jpg" />
+  <img src="Z:/picture/008/save_picture_709960.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Morcheeba - Blaze Away (2018) Fly Agaric Records [FLAC|Lossless|tracks + .cue] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705203.jpg" />
+  <img src="Z:/picture/008/save_picture_705203.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Igor Dyachenko - Erased Stills (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697865.jpg" />
+  <img src="Z:/picture/008/save_picture_697865.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ V.A. - Cafe Del Mar Essentials (Vol. 3) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695824.jpg" />
+  <img src="Z:/picture/008/save_picture_695824.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Dinka - Sundry: The Chillout Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Lo
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694836.jpg" />
+  <img src="Z:/picture/008/save_picture_694836.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Igor Cold (Igor Dyachenko) - The Crying Room (2014) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694307.jpg" />
+  <img src="Z:/picture/008/save_picture_694307.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Nite Jewel - Real High (2017) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Chillwa
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693425.jpg" />
+  <img src="Z:/picture/008/save_picture_693425.jpg" />
 </div>
 
 
@@ -578,6 +636,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403403   (692230) от 19.08.2020
+
+VA - Acoustic Dinner Accompaniment (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Pop, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_692230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acoustic Beatles - Blackbird
+02. Acoustic Beatles - In My Life
+03. Acoustic Bee Gees - How Deep Is Your Love
+04. Acoustic Bee Gees - To Love Somebody(   Читать дальше...   )Жанр: Easy Listening, Pop, ChilloutПродолжительность: 00:54:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3475C37E14527440B5B311D3EA0C2BD5214668CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221956   (689675) от 27.04.2018
 
 1954 - A Part of Me (2018) Project: Mooncircle [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Downtempo>
@@ -586,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689675.jpg" />
+  <img src="Z:/picture/008/save_picture_689675.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ GARRISON (Игорь Савосин) - The Dreams of Morpheus (2019) [FLAC|Lossl
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686716.jpg" />
+  <img src="Z:/picture/008/save_picture_686716.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ GARRISON (Игорь Савосин) - Signal (2018) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686712.jpg" />
+  <img src="Z:/picture/008/save_picture_686712.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ GARRISON (Игорь Савосин) - Signal (2018) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6E92B1F26812ACBB5E607CD67F02A030D50C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535433   (686709) от 06.03.2022
-
-GARRISON (Игорь Савосин) - Musical Lifeforms (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom (4:48)
-02. Final Frontier (4:28)
-03. Summer Calm (4:34)
-04. Different Reality (4:13)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24CE674B2001674E2CD5D44351F9457CC3EF1093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403875   (686326) от 22.08.2020
-
-VA - Cafe del Mar 40th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beloved - The Sun Rising (Gentle Night) (2:46)
-02. Kinobe - Slip into Something More Comfortable (Stephen Hague 2016 Mix) (4:47)
-03. Ballistic Brothers - Portobello Café (5:48)
-04. 4hero - Morning Child (4:35)(   Читать дальше...   )Жанр: Easy Listening, ChilloutПродолжительность: 02:28:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3872CAD8044CA337CAC189F5B38BFC989910E6CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029024   (684427) от 25.06.2016
-
-Cantoma - Cantoma (2015) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etoile (4:50)
-02. Belafia (5:42)
-03. Essarai (5:50)
-04. Belafia - Etoile (5:07)(   Читать дальше...   )Жанр: Lounge, DowntempoПродолжительность: 01:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414C1E0F6182671287F598AAD42335B7DE974D1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

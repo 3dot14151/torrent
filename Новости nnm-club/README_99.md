@@ -1,3 +1,108 @@
+###  Публикация: 638222   (729045) от 11.06.2013
+
+Игра престолов / Game of Thrones (Сезон 3 полный (10)) (2013) HDTVRip (МЕКС ИНФО)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_729045.jpg" />
+</div>
+
+
+###  Подробнее
+
+К концу подходит время благоденствия, и лето, длившееся несколько десятилетий, угасает. Люди, отказавшиеся жить по законам Семи Королевств, получили название одичалых и были изгнаны за Стену, на страже которой стоит Ночной Дозор. Но орден был учрежден, чтобы защищать мир людей от совсем другой силы — Белых Ходоков, ныне пробудившихся и угрожающих всему живому. Король (   Читать дальше...   )Производство: США, HBO, Television 360, Grok! StudioЖанр: Драма, фэнтазиРежиссер: Тимоти Ван Паттен, Брайан Кирк, Даниэль Минахан, Алан ТейлорПеревод: Профессиональный многоголосый закадровый - NewStudio и МЕКС ИНФОПродолжительность: ~ 00:55:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646214   (729041) от 11.06.2013
+
+Демоны да Винчи / Da Vinci's Demons (Сезон 1 полный (8)) (2013) HDTV 720p (AlexFilm)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_729041.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где мысль и вера находятся под контролем, один человек борется за то, чтобы сделать знания доступными для всех.
+Не рассказанная история трагичной жизни Леонардо да Винчи раскрывает портрет молодого человека, которого мучает дар гения. Он - еретик, жаждущий раскрыть ложь религии. Бунтарь, стремящийся низвергнуть элитарное общество. Незаконнорожденный сын, (   Читать дальше...   )Производство: США, StarzЖанр: Псевдоистория, драма, приключенияРежиссер: Дэвид С. Гойер, Джейми Пэйн, Пол Уилмсхёрст, Майкл Дж. БассеттПеревод: Профессиональный многоголосый закадровый - AlexFilmПродолжительность: ~ 00:59:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284361   (728411) от 21.02.2019
+
+Ежегодное послание Президента России Владимира Путина Федеральному Собранию (20.02.2019) HDTV [H.264/1080i-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Путин обратился с Посланием к Федеральному Собранию. Церемония оглашения прошла в Москве, в Гостином дворе. На церемонии присутствовали члены Совета Федерации, депутаты Государственной Думы, члены Правительства, руководители Конституционного и Верховного судов, губернаторский корпус.Телекомпания: Россия 1 HDЖанр: Документальный, ПолитикаСубтитры: отсутствуютПродолжительность: 01:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F271DA56B62EEDA1B7CE9CE267662DA1726C6F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284036   (728376) от 21.02.2019
+
+Хроники хищных городов / Mortal Engines (2018) WEB-DL [H.264/1080p] [Open Matte]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_728376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошли тысячелетия после того, как мир настиг апокалипсис. Человечество адаптировалось и теперь живет по новым правилам. Гигантские движущиеся мегаполисы рассекают пустоши и поглощают маленькие города ради ресурсов. Том Нэтсуорти из нижнего уровня великого Лондона оказывается в смертельной опасности, когда на его пути появляется скрывающаяся от закона бунтарка Эстер (   Читать дальше...   )Производство: Новая Зеландия, США / Media Rights Capital (MRC), Scholastic Productions, Silvertongue FilmsЖанр: Фантастика, фэнтези, боевик, триллер, приключенияРежиссер: Кристиан РиверсАктеры: Гера Хилмарсдоттир, Роберт Шиэн, Хьюго Уивинг, Джихе, Ронан Рафтери, Лейла Джордж, Патрик Мэлахайд, Стивен Лэнг, Колин Сэлмон, Марк МитчинсонПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD2994A5549858274FEFCCF235CABFC1A461B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126970   (728089) от 24.04.2017
 
 Притяжение (2017) BDRip [H.264]
@@ -6,7 +111,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728089.jpg" />
+  <img src="Z:/picture/008/save_picture_728089.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728084.jpg" />
+  <img src="Z:/picture/008/save_picture_728084.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Maxthon Cloud Browser 4.9.3.1000 Final + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728076.jpg" />
+  <img src="Z:/picture/008/save_picture_728076.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Linux Lite 3.0 (легкий дистрибутив) [x32, x64] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728010.jpg" />
+  <img src="Z:/picture/008/save_picture_728010.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ Acronis True Image 2016 19.0.6571 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728005.jpg" />
+  <img src="Z:/picture/008/save_picture_728005.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728000.jpg" />
+  <img src="Z:/picture/008/save_picture_728000.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727889.jpg" />
+  <img src="Z:/picture/005/save_picture_727889.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727887.jpg" />
+  <img src="Z:/picture/005/save_picture_727887.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727415.jpg" />
+  <img src="Z:/picture/005/save_picture_727415.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727192.jpg" />
+  <img src="Z:/picture/005/save_picture_727192.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727182.jpg" />
+  <img src="Z:/picture/005/save_picture_727182.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ DiRT Rally 2.0 (2019) [Multi] (1.0/dlc) License CODEX [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727170.jpg" />
+  <img src="Z:/picture/008/save_picture_727170.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_727160.jpg" />
+  <img src="Z:/picture/005/save_picture_727160.jpg" />
 </div>
 
 
@@ -348,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727138.jpg" />
+  <img src="Z:/picture/008/save_picture_727138.jpg" />
 </div>
 
 
@@ -374,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726791.jpg" />
+  <img src="Z:/picture/008/save_picture_726791.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ Live CD STEA Edition [v 04.2011 EXT]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_726788.jpg" />
+  <img src="Z:/picture/005/save_picture_726788.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ VA - Дискотека Арлекина 6 - 85 (1994 - 2005) Dance Pop
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_726739.jpg" />
+  <img src="Z:/picture/005/save_picture_726739.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_726121.jpg" />
+  <img src="Z:/picture/005/save_picture_726121.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726061.jpg" />
+  <img src="Z:/picture/008/save_picture_726061.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ Maxon CINEMA 4D Studio R20.057 Portable by soyv4 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725993.jpg" />
+  <img src="Z:/picture/008/save_picture_725993.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725971.jpg" />
+  <img src="Z:/picture/008/save_picture_725971.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725961.jpg" />
+  <img src="Z:/picture/008/save_picture_725961.jpg" />
 </div>
 
 
@@ -567,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC594C7402A7842621460EDFF318011FC50FC79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128739   (725746) от 26.04.2017
-
-Paragon Hard Disk Manager 15 Premium 10.1.25.813 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon Hard Disk Manager - многофункциональное и удобное решение, осуществляющее полный цикл обслуживания жесткого диска. С помощью этой программы вы сможете управлять процессом загрузки, производить разбиение диска на разделы, проделывать операции копирования и восстановления, обеспечивать безопасность системы и данных, выводить диск из эксплуатации. Программа (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F674402EC36A07E322F1A8D62FD84CC4EEE2CB4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710896   (725669) от 25.05.2014
-
-Сверхъестественное / Supernatural (2013-2014) WEB-DLRip [720p] (сезон 9, серии 1-23 из 23) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о приключениях братьев Сэма и Дина Винчестеров, которые путешествуют по Соединённым Штатам на чёрном автомобиле Chevrolet Impala 1967 года, расследуют паранормальные явления, многие из которых основаны на американских городских легендах и фольклоре, и сражаются с порождениями зла, такими как демоны и призраки. Как братья Винчестеры в очередной (   Читать дальше...   )Жанр: Ужасы, Фэнтези, ДетективРежиссер: Филип Сгриккиа, Джеймс Л. Конуэй, Питер ЭллисАктеры: Джаред Падалеки, Дженсен Эклс, Джим Бивер, Миша Коллинз, Марк Шеппард, Джеффри Дин Морган, Женевьев Падалеки, Синди Сэмпсон, Саманта Феррис, Митч ПиледжиПеревод: Многоголосый закадровый, профессиональный - LostFilmЯзык субтитров: РусскийПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDFA7A293CE5C723367467097C429E7736B520D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023170   (725443) от 04.06.2016
-
-Мой парень – киллер / Mr. Right (2015) BDRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марта застала своего парня за изменой и немного вышла из колеи. И тут она встречает, казалось бы, идеального мужчину. Но её идеал оказывается бывшим киллером, и его прошлое однажды вновь заявляет о себе, причем не самым приятным образом. И едва зародившиеся отношения начинают подвергаться серьёзным испытаниям.Производство: США, Amasia Entertainment, 3311 Productions, Circle of ConfusionЖанр: боевик, мелодрама, комедияРежиссер: Пако КабесасАктеры: Сэм Рокуэлл, Анна Кендрик, Тим Рот, Джеймс Рэнсон, Энсон Маунт, Майкл Эклунд, Кэти Нехра, Джейден Кейн, Дуглас М. Гриффин, Луис Да Силва мл., Елена СанчесПеревод: Любительский (многоголосый, закадровый) RecentFilmsЯзык субтитров: английскийПродолжительность: 01:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC4BF8FC09EB8ED2F7E00532A0BC7AB5DACB984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 891490   (724968) от 23.04.2015
-
-Adguard Премиум 5.10.2021.6301 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает со всеми веб-браузерами, эффективно блокируя интернет-угрозы за счет ежедневного обновления базы программы с помощью крупнейших ресурсов Google Safe (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38F7169A5F87A50E33AE85CDB95897C9D8F4B26
 ```
 
 https://mybot314.ru/tekegram_catalog/

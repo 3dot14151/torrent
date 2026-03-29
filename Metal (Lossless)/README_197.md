@@ -1,3 +1,90 @@
+###  Публикация: 1629953   (246017) от 28.04.2023
+
+Erdling - Bestia (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Neue Deutsche Harte, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_246017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BESTIA [00:03:38]
+02. DEUS [00:02:54]
+03. UND DIE ERDE SINGT [00:04:16]
+04. FREIHEIT [00:03:48](   Читать дальше...   )Жанр: Industrial Metal, Neue Deutsche Harte, Gothic RockПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4E621FB12D83EB34740F7669C74F168A4251CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629902   (246002) от 28.04.2023
+
+Cradle of Filth - Trouble and Their Double Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_246002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She is a Fire [00:05:22]
+02. Heaven Torn Asunder (Live) [00:07:24]
+03. Blackest Magick in Practice (Live) [00:07:30]
+04. Honey and Sulphur (Live) [00:05:47](   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 02:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817C123318F106A136DEC2FFA8A22A04837F8BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630112   (245950) от 29.04.2023
+
+Black Rabbit - Hypnosomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hypnosomnia (00:59)
+02 - Neverending (04:44)
+03 - Culmination of Hate (03:58)
+04 - False Awakening (03:54)(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A815171B2B5E3D92DDD9A52B84664EEA4E16A031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511619   (245948) от 21.11.2021
 
 Obscura - A Valediction (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
@@ -6,7 +93,7 @@ Obscura - A Valediction (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245948.jpg" />
+  <img src="Z:/picture/004/save_picture_245948.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ HammerFall - Dominion (2019) Japanese Edition [WavPack|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245917.jpg" />
+  <img src="Z:/picture/004/save_picture_245917.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Highway Chile - Keeper Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245916.jpg" />
+  <img src="Z:/picture/004/save_picture_245916.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Rhapsody - Dawn Of Victory (2000) Reissue, 2005, Limb Music Products [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245873.jpg" />
+  <img src="Z:/picture/004/save_picture_245873.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Xentrix - Seven Words (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245849.jpg" />
+  <img src="Z:/picture/004/save_picture_245849.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Slegest - Avstand (2023) [FLAC|Lossless|WEB-DL|tracks] <Blackened Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245768.jpg" />
+  <img src="Z:/picture/004/save_picture_245768.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Visceral Evisceration - 2 Albums (1994-2019) [FLAC|Lossless|WEB-DL|tracks] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245759.jpg" />
+  <img src="Z:/picture/004/save_picture_245759.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Ravenia - Beyond The Walls Of Death (2016) [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245749.jpg" />
+  <img src="Z:/picture/004/save_picture_245749.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Defleshed - Abrah Kadavrah / Ma Belle Scalpelle (1996 / 1994) Compilation, Relea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245743.jpg" />
+  <img src="Z:/picture/004/save_picture_245743.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Velian - Godless (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Gothic, Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245736.jpg" />
+  <img src="Z:/picture/004/save_picture_245736.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Nar Mattaru - Ancient Atomic Warfare (2015) [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245734.jpg" />
+  <img src="Z:/picture/004/save_picture_245734.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Mask of Prospero - Hiraeth (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive-Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245726.jpg" />
+  <img src="Z:/picture/004/save_picture_245726.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Lord Mountain - The Oath (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Heavy, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245720.jpg" />
+  <img src="Z:/picture/004/save_picture_245720.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Defleshed - Under the Blade (1997) Reissue 2000 [FLAC|Lossless|image + .cue] <Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245715.jpg" />
+  <img src="Z:/picture/004/save_picture_245715.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Evil Invaders - Shattering Reflection (2022) [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245710.jpg" />
+  <img src="Z:/picture/004/save_picture_245710.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Tribunal - The Weight Of Remembrance (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245708.jpg" />
+  <img src="Z:/picture/004/save_picture_245708.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Third Eye - Vengeance Fulfilled (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245700.jpg" />
+  <img src="Z:/picture/004/save_picture_245700.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Wojnar - Jam Synem Orlim Jest na Wieki!… (2009) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245682.jpg" />
+  <img src="Z:/picture/004/save_picture_245682.jpg" />
 </div>
 
 
@@ -526,7 +613,7 @@ Blaze Of Sorrow - Vultus Fati (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245675.jpg" />
+  <img src="Z:/picture/004/save_picture_245675.jpg" />
 </div>
 
 
@@ -555,7 +642,7 @@ Beleth - Silent Genesis (2021) [FLAC|Lossless|image + .cue] <Death Metal, Groove
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245674.jpg" />
+  <img src="Z:/picture/004/save_picture_245674.jpg" />
 </div>
 
 
@@ -584,7 +671,7 @@ Mastodon - 8 Albums, 2 Compilation &  Live, 6 Singles & EP (2001-2021) 28CD [FLA
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245671.jpg" />
+  <img src="Z:/picture/004/save_picture_245671.jpg" />
 </div>
 
 
@@ -613,7 +700,7 @@ De Profundis - The Corruption of Virtue (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245668.jpg" />
+  <img src="Z:/picture/004/save_picture_245668.jpg" />
 </div>
 
 
@@ -642,7 +729,7 @@ Power from Hell - Lust And Violence (2011) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245660.jpg" />
+  <img src="Z:/picture/004/save_picture_245660.jpg" />
 </div>
 
 
@@ -656,93 +743,6 @@ Power from Hell - Lust And Violence (2011) [FLAC|Lossless|image + .cue] <Black M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13FAC73D8F5DCB82276FBEEC7C776DB381E1EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620575   (245651) от 20.03.2023
-
-Phantom Elite - Blue Blood (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skin Of My Teeth
-02. Inner Beast
-03. This Sick World
-04. Birdcage(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01D1829062CF34A4E3BE24552D1FDB24C8B42FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448651   (245634) от 19.02.2021
-
-Korpiklaani - Jylha (2021) [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verikoira (6:19)
-02. Niemi (3:42)
-03. Levaluhta (3:50)
-04. Mylly (4:43)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A5C5963D0E49A51FE809E47D3554A238723F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608628   (245605) от 31.01.2023
-
-Strider - Midnight Zen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hive (00:03:50)
-02 - Bystander Apathy (00:08:16)
-03 - Dream With the Dreamer (00:05:26)
-04 - Midnight Zen (00:10:25)(   Читать дальше...   )Жанр: Heavy Psychedelic Rock, StonerПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F4D120C875FEFE7DD73D3035C34A56C5F59F04
 ```
 
 https://mybot314.ru/tekegram_catalog/

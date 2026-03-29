@@ -6,7 +6,7 @@ The The - Dusk (1993) Remastered, 2002, Epic [FLAC|Lossless|tracks + .cue] <Indi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900427.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Linde - Cold Sore (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898560.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Pearl Jam - Gigaton (2020) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hard
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898401.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ HorrorPops - Hell Yeah! (2004) [APE|Lossless|image + .cue] <Rockabilly, Punk Roc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898021.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Highly Suspect - The Boy Who Died Wolf (2016) [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897745.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Tonight Alive - Limitless (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alt.Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895530.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895205.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Birthday Massacre - Diamonds (2020) [FLAC|Lossless|WEB-DL|tracks] <Industria
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895070.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Nickelback - No Fixed Address + Feed the Machine (2014, 2017) Album + Single [FL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894407.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Norma Jean - All Hail (2019) [FLAC|Lossless|tracks + .cue] <Chaotic Hardcore, Me
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893685.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893653.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Superlitio - Tripping Tropicana (2005) [FLAC|Lossless|tracks + .cue] <Electronic
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893139.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ R.E.M. - Murmur (1983) [FLAC|Lossless|tracks + .cue] <Indie, Alternative>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891212.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Pixies - Indie Cindy (2014) Deluxe Limited Edition [FLAC|Lossless|image + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891197.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Adept - 4 Альбома (2009-2016) [FLAC|Lossless|tracks+.cue]<Post-Hardcore>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890942.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Nickelback - The Best Of Nickelback (Volume 1) (2013) Compilation [FLAC|tracks +
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890565.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ The No Ones - The Great Lost No Ones Album (2020) [FLAC|Lossless|tracks + .cue] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_890189.jpg" />
+  <img src="Z:/picture/008/save_picture_890189.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ R.E.M. - Reckoning (The I.R.S. Years) (1984) Reissue, 1992 [FLAC|Lossless|tracks
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889456.jpg" />
+  <img src="Z:/picture/005/save_picture_889456.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Icon For Hire - Scripted (2011) [FLAC|Lossless|image + .cue]<Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889258.jpg" />
+  <img src="Z:/picture/005/save_picture_889258.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Ty Segall - Segall Smeagol (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888709.jpg" />
+  <img src="Z:/picture/005/save_picture_888709.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ British Sea Power - Let The Dancers Inherit The Part (2017) [FLAC|Lossless|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888706.jpg" />
+  <img src="Z:/picture/005/save_picture_888706.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Basia Bulat - Are You in Love? (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888705.jpg" />
+  <img src="Z:/picture/005/save_picture_888705.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884512.jpg" />
+  <img src="Z:/picture/005/save_picture_884512.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884281.jpg" />
+  <img src="Z:/picture/005/save_picture_884281.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Imagine Dragons - Smoke + Mirrors (2015) Deluxe Edition [FLAC|Lossless]<Indie Ro
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883980.jpg" />
+  <img src="Z:/picture/005/save_picture_883980.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ The Calling - Camino Palmero (2002) [FLAC|Lossless|tracks + .cue] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880958.jpg" />
+  <img src="Z:/picture/005/save_picture_880958.jpg" />
 </div>
 
 

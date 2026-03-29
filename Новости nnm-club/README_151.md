@@ -1,3 +1,160 @@
+###  Публикация: 1240348   (524248) от 12.08.2018
+
+США планируют создать альтернативу GPS
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_524248.jpg" />
+</div>
+
+
+###  Подробнее
+
+США намерены развивать альтернативные системы глобального позиционирования и навигации на случай подавления действующей спутниковой системы глобального позиционирования (GPS), следует из отчета Пентагона о перспективах развития космических сил страны.В четверг вице-президент США Майк Пенс объявил, что создание военного министерства по космосу планируется к 2020 году (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312607   (524216) от 08.07.2019
+
+Тьма / Dark (2019) WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8) NewStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524216.jpg" />
+</div>
+
+
+###  Подробнее
+
+История четырёх семей, живущих спокойной и размеренной жизнью в маленьком немецком городке. Видимая идиллия рушится, когда бесследно исчезают двое детей и воскресают тёмные тайны прошлого. Все силы местного департамента полиции и горожан брошены на поиски пропавших детей. Все повторяется, как и 33 года назад. Что-то не так в городе. Эта местность, словно больна и (   Читать дальше...   )Производство: Германия, США / Netflix, W&B TelevisionЖанр: триллер, драма, криминал, детектив, фантастикаРежиссер: Баран бо ОдарАктеры: Луис Хофманн, Андреас Пичман, Каролина Эйхгорн, Стефани Амарелль, Майя Шёне, Элла Ли, Лиза Викари, Йордис Трибель, Неле Требс, Марк Вашке, Макс Шиммельпфенниг и др.Перевод: Многоголосый профессиональный NewStudio  (ненормативная лексика)Язык озвучки: Русский, немецкийСубтитры: русские, немецкиеПродолжительность: ~00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49DAA84A58EC7474FE6BF7975169A59E9782BF3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076661   (524089) от 25.06.2022
+
+Дневник Анны Франк / Das Tagebuch der Anne Frank (2016) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524089.jpg" />
+</div>
+
+
+###  Подробнее
+
+После эмиграции из Франкфурта-на-Майне Амстердам стал новым домом для семьи Франк. Анна, ее отец Отто, мать Эдит и сестра Марго пытаются здесь жить нормальной жизнью, — пока немцы не заняли Нидерланды,. Ситуация для евреев ухудшалась день ото дня. Отто Франк решается на побег с семьей. Он готовился к этому в течение нескольких недель. Семья ютится в тайнике размером (   Читать дальше...   )Производство: ГерманияЖанр: ДрамаРежиссер: Ханс ШтайнбихлерАктеры: Леа ван Акен, Мартина Гедек, Ульрих Нётен, Стелла Кункат, Андре Юнг, Маргарита Бройх, Леонард Каров, Артур Клемт, Герти Драссль, Штефан Мерки ...Перевод: Профессиональный многоголосый (GreenРай Studio)Субтитры: ОтсутствуютПродолжительность: 02:09:54Реклама: Присутствуют текстовые вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C68576059BB71C1F1416B03D8AF45E77077F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559537   (524087) от 25.06.2022
+
+W10 Digital Activation 1.4.6 by Ratiborus [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524087.jpg" />
+</div>
+
+
+###  Подробнее
+
+W10 Digital License Activation - инструмент от Ratiborus для активации Windows 10 с помощью цифровой лицензии.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20519285438647568F8A84719380BE885C67C91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927666   (523770) от 14.08.2015
+
+Battlefield Hardline (2015) [Ru] (1.07.15.00) Repack xatab [Digital Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тот, кто давно мечтает попробовать себя в роли мафиози или полицейского, сможет воплотить мечту в жизнь в Battlefield™ Hardline. Игроков ждут непревзойденные сетевые режимы Battlefield и захватывающий сюжет в сеттинге, напоминающем о современных криминальных драмах.Тип издания: RepackРазработчик: Visceral Games, EA DICEЖанр: Action / 3D / 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F03FC224D321DE1EB9636FB88FBDAF597BC7803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927581   (523766) от 14.08.2015
+
+Восход тёмной луны / Dark Moon Rising (2015) WEB-DLRip [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Восход тёмной луны» повествует о девушке, которая является ключом к выживанию племени оборотней.
+Несколько страшных оборотней спустились из своего логова в горах в близлежащий городок. Цель их рискованного визита — девушка. Такие как она рождаются только один раз в 2000 лет. Именно она может спасти их древний род от полного вымирания, в ней заключен секрет (   Читать дальше...   )Производство: США / Pikchure Zero EntertainmentЖанр: фэнтезиРежиссер: Джастин ПрайсАктеры: Стаси Эспер, Эрик Робертс, Линда Ку, Билли Блэнкс, Джастин Прайс, Камерон Уайт, Лиза Мэй, Мэттью Симмонс, Джаред Оллман, Эмили БедфордПеревод: любительский (одноголосый закадровый)Озвучка / Автор перевода: Хихикающий доктор по переводу EnigmaСубтитры: отсутствуютПродолжительность: 01:25:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AE24757047D1897A059A287472CFE94CFACE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 25630   (523762) от 14.08.2015
 
 Сладкий ноябрь / Sweet November (2001) DVDRip [Club Special Edition]
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_523762.jpg" />
+  <img src="Z:/picture/005/save_picture_523762.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ ABBYY Lingvo Dictionaries 4.2.3 [Ru/Multi] - Оффлайн словарь
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523760.jpg" />
+  <img src="Z:/picture/008/save_picture_523760.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523614.jpg" />
+  <img src="Z:/picture/008/save_picture_523614.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ CleanMyMac X 4.4.3.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523441.jpg" />
+  <img src="Z:/picture/008/save_picture_523441.jpg" />
 </div>
 
 
@@ -113,7 +270,7 @@ HDD Low Level Format Tool 4.40 RePack (& Portable) by TryRooM [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523429.jpg" />
+  <img src="Z:/picture/008/save_picture_523429.jpg" />
 </div>
 
 
@@ -139,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523312.jpg" />
+  <img src="Z:/picture/008/save_picture_523312.jpg" />
 </div>
 
 
@@ -165,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_523195.jpg" />
+  <img src="Z:/picture/005/save_picture_523195.jpg" />
 </div>
 
 
@@ -191,7 +348,7 @@ DriverPack Solution Online 16.5.0 Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522998.jpg" />
+  <img src="Z:/picture/008/save_picture_522998.jpg" />
 </div>
 
 
@@ -217,7 +374,7 @@ Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522988.jpg" />
+  <img src="Z:/picture/008/save_picture_522988.jpg" />
 </div>
 
 
@@ -243,7 +400,7 @@ Heroes of Might & Magic III / Меч и Магия. Герои III. Возрож
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522986.jpg" />
+  <img src="Z:/picture/008/save_picture_522986.jpg" />
 </div>
 
 
@@ -269,7 +426,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.5.80.0.8) Repack R.G. Catalyst 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522683.jpg" />
+  <img src="Z:/picture/008/save_picture_522683.jpg" />
 </div>
 
 
@@ -295,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522617.jpg" />
+  <img src="Z:/picture/008/save_picture_522617.jpg" />
 </div>
 
 
@@ -321,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_522412.jpg" />
+  <img src="Z:/picture/005/save_picture_522412.jpg" />
 </div>
 
 
@@ -347,7 +504,7 @@ WebForMySelf | Фреймворк CakePHP: с Нуля до Гуру (2015) PCRe
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522224.jpg" />
+  <img src="Z:/picture/008/save_picture_522224.jpg" />
 </div>
 
 
@@ -373,7 +530,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4745.1000 (x86) RePack by KpoJIuK [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522218.jpg" />
+  <img src="Z:/picture/008/save_picture_522218.jpg" />
 </div>
 
 
@@ -399,7 +556,7 @@ Microsoft Office 2016 v15.13.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522217.jpg" />
+  <img src="Z:/picture/008/save_picture_522217.jpg" />
 </div>
 
 
@@ -428,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522210.jpg" />
+  <img src="Z:/picture/008/save_picture_522210.jpg" />
 </div>
 
 
@@ -454,7 +611,7 @@ Debian GNU/Linux 10.0 + nonfree Buster [amd64] 4xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521973.jpg" />
+  <img src="Z:/picture/008/save_picture_521973.jpg" />
 </div>
 
 
@@ -482,7 +639,7 @@ Total War: THREE KINGDOMS (2019) [Ru/En] (1.1.0/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521955.jpg" />
+  <img src="Z:/picture/008/save_picture_521955.jpg" />
 </div>
 
 
@@ -508,7 +665,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521947.jpg" />
+  <img src="Z:/picture/008/save_picture_521947.jpg" />
 </div>
 
 
@@ -519,165 +676,6 @@ Office 2019 — новый офисный пакет от корпорации M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C4DE2886A2E61B062D2869134FA66F256FBCE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372165   (521858) от 06.08.2011
-
-Очень плохая училка / Bad Teacher (2011) DVDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учительница средних классов живет гламурной жизнью светской львицы, ходит на работу как на вечеринку и мечтает об увеличении объема собственного бюста. Однако после внезапного разрыва с богатым бойфрендом ее образ жизни резко меняется, хотя сама она это осознает не сразу. Но когда в их школу приходит новый преподаватель, она совершенно теряет голову и начинает охоту (   Читать дальше...   )Производство: США / Mosaic Media GroupЖанр: КомедияРежиссер: Джейк КэзданАктеры: Кэмерон Диаз, Джастин Тимберлэйк, Джейсон Сигел, Люси Панч, Филлис Смит, Джон Майкл Хиггинс, Дэйв Аллен, Джиллиан Арменанте, Мэттью Дж. Эванс, Кейтлин ДеверПеревод: 1. Дублированный
-2. Дублированный (украинский)Субтитры: Отдельным файломЯзык субтитров: Русский, Украинский (форсированные)Продолжительность: 01:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCFB7EF22F10C43E1475CDCB52D767F96E4B1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241196   (520842) от 16.08.2018
-
-ReCore (2016) [Ru/Multi] (1.1.7468.2) License CODEX [Definitive Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте творение легендарного Кэйдзи Инафунэ и разработчиков Metroid Prime — экшен-приключение ReCore: Definitive Edition, созданное специально для нового поколения игроков. Вы — Джул Адамс, одна из последних уцелевших людей на загадочной и опасной планете Дальний Эдем, управляемой враждебными роботами, которые намерены вас уничтожить. Чтобы выжить, вам необходимо (   Читать дальше...   )Тип издания: LicenseРазработчик: Comcept Inc., Armature Studio LLCЖанр: Action, Adventure, 3rd Person, 3DЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F279680974E8EB00FFFD3C0AD467212291C9BC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241282   (520838) от 16.08.2018
-
-Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86) RePack by SPecialiST v18.8 [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B3D8C5D9E9AC4E04B07C3C9C336C2E75CF6AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 135630   (520834) от 16.08.2018
-
-Сектор Газа - 19 Альбомов (1987 - 2005) [FLAC|lossless]<Punk-Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название группы произошло от индустриального Левобережного района Воронежа, который в народе в шутку назвали «Сектором Газа» из-за обилия дымящих заводовЖанр: Фьюжн (самоопределение), панк-рок, рэпкор
-блатная песня
-хард-рок и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8960548FA94078A45345F5DC0CFB4109E5FA8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534053   (520728) от 12.08.2012
-
-DLL-files.com Fixer   v2.7.72.2315 Portable  [Multi+Rus]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520728.jpg" />
-</div>
-
-
-###  Подробнее
-
-DLL-files Fixer - программа для чистки и оптимизации ПК путем исправления DLL ошибок и очистки реестра от ненужного "мусора".Также в программе предусмотрена функция поиска и загрузки отсутствующих DLL-файлов.Название программы: DLL-files.com Fixer 2.7.72.2315Язык интерфейса: Multi+Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495690   (520645) от 29.06.2022
-
-Однажды в Чукурова / Bir Zamanlar Cukurova (2021-2022) WEB-DLRip [H.264/1080p-LQ] (сезон 4, серии 1-39 (103-141) из 39) AlisaDirilis
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое молодых людей готовились к свадьбе в Стамбуле, но происходит то, чего они совсем не ожидали. Влюбленным приходится бежать в Адану, где их пути пересекаются с семьей Яман, после чего меняется вся жизнь героев.Производство: Турция / Tims&BЖанр: драмаРежиссер: Мурат СарачоглуАктеры: Ибрагим Челиккол, Хилаль Алтынбилек, Керем Алышик, Ханде Сорал, Илайда Чевик, Хюлья Дарджан, Бюлент Полат, Фуркан Палалы, Назан Кесал и др.Перевод: Двуголосый любительский (AlisaDirilis)Язык озвучки: РусскийПродолжительность: ~02:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78F84B1729FBA4116EFD3F8A84F5208523A6529F
 ```
 
 https://mybot314.ru/tekegram_catalog/

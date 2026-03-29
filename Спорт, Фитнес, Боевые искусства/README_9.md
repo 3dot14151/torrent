@@ -1,3 +1,57 @@
+###  Публикация: 912793   (608449) от 27.06.2015
+
+Н. В. Молчанова | Основы ныряния с задержкой дыхания (2013) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_608449.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии излагаются современные представления об основах фридайвинга в оригинальном освещении 16-ти кратной чемпионки мира и обладательницы 32 рекордов мира по фридайвингу Натальи Молчановой.
+Издание второе, исправленное и дополненное.Жанр: Спорт, фитнесФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE59B120CB1324C78159639579FAA6147271973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912845   (605267) от 29.06.2015
+
+М. Чибурданидзе, Г. Кузьмин | Олимпиада-90 (1991) [DJVU]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_605267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четырнадцать лет находится на шахматном Олимпе Майя Чибурданидзе. Именно она и ее тренер Геннадий Кузьмин являются авторами этой книги, которая наверняка вызовет живой интерес у любителей игры, любимой на всех континентах.
+В книге рассмотрены многие партии Олимпиады-90 в Нови-Саде, даны любопытные комментарии, включая моменты «как не нужно играть», рассказано о ведущих (   Читать дальше...   )Жанр: Спорт, ШахматыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3ED31B8AE4CABB92C6BE06655AB8913EA21D1D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913563   (604934) от 29.06.2015
 
 Гарри Каспаров | Мой шахматный путь. 1973-2005 [3 книги. Том I, II, III] (2011-2014) [DJVU]
@@ -6,7 +60,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604934.jpg" />
+  <img src="Z:/picture/008/save_picture_604934.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601802.jpg" />
+  <img src="Z:/picture/008/save_picture_601802.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596230.jpg" />
+  <img src="Z:/picture/008/save_picture_596230.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595887.jpg" />
+  <img src="Z:/picture/008/save_picture_595887.jpg" />
 </div>
 
 
@@ -111,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595786.jpg" />
+  <img src="Z:/picture/008/save_picture_595786.jpg" />
 </div>
 
 
@@ -137,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595593.jpg" />
+  <img src="Z:/picture/008/save_picture_595593.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594382.jpg" />
+  <img src="Z:/picture/008/save_picture_594382.jpg" />
 </div>
 
 
@@ -190,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589472.jpg" />
+  <img src="Z:/picture/008/save_picture_589472.jpg" />
 </div>
 
 
@@ -218,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586878.jpg" />
+  <img src="Z:/picture/008/save_picture_586878.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577841.jpg" />
+  <img src="Z:/picture/008/save_picture_577841.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576715.jpg" />
+  <img src="Z:/picture/005/save_picture_576715.jpg" />
 </div>
 
 
@@ -297,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576266.jpg" />
+  <img src="Z:/picture/008/save_picture_576266.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570226.jpg" />
+  <img src="Z:/picture/008/save_picture_570226.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569610.jpg" />
+  <img src="Z:/picture/008/save_picture_569610.jpg" />
 </div>
 
 
@@ -376,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561258.jpg" />
+  <img src="Z:/picture/008/save_picture_561258.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560624.jpg" />
+  <img src="Z:/picture/008/save_picture_560624.jpg" />
 </div>
 
 
@@ -431,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558615.jpg" />
+  <img src="Z:/picture/008/save_picture_558615.jpg" />
 </div>
 
 
@@ -457,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555729.jpg" />
+  <img src="Z:/picture/008/save_picture_555729.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555147.jpg" />
+  <img src="Z:/picture/008/save_picture_555147.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553067.jpg" />
+  <img src="Z:/picture/008/save_picture_553067.jpg" />
 </div>
 
 
@@ -539,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549027.jpg" />
+  <img src="Z:/picture/008/save_picture_549027.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541621.jpg" />
+  <img src="Z:/picture/008/save_picture_541621.jpg" />
 </div>
 
 
@@ -594,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539849.jpg" />
+  <img src="Z:/picture/008/save_picture_539849.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537799.jpg" />
+  <img src="Z:/picture/008/save_picture_537799.jpg" />
 </div>
 
 
@@ -633,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7806E2443B47C0B0D578EAD20460D0C43C7AE78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083316   (533271) от 19.06.2022
-
-Арнольд Нельсон, Юко Кокконен | Анатомия упражнений на растяжку (2014) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533271.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Каждое упражнение сопровождается подробными инструкциями: как и когда его следует выполнять, какие группы мышц испытывают основную и второстепенную нагрузку и какие меры предосторожности надо соблюдать. А сводные таблицы в конце каждой главы помогут вам составить индивидуальную программу тренировок исходя из собственных потребностей.Жанр: Физическая подготовкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A2A2825E6BB24C3C973D1B089B46FEA3DCAF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134195   (533266) от 19.06.2022
-
-Дэниэл Ласерда | 2100 асан. Вся йога в одной книге (2017) [PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533266.jpg" />
-</div>
-
-
-###  Подробнее
-
-"2,100 асан. Вся йога в одной книге" – настоящий подарок для тех, кто готов каждый день открывать для себя новое в йоге. Здесь вы найдете асаны любой сложности и под любое настроение. Просто следуйте за своим сердцем и найдете то, что подойдет именно вам!Жанр: йогаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22540D2BB629EEBEF1CE729813B60B360F515A00
 ```
 
 https://mybot314.ru/tekegram_catalog/

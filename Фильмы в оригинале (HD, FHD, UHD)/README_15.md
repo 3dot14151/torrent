@@ -1,3 +1,107 @@
+###  Публикация: 1274227   (793880) от 06.01.2019
+
+Ужастики 2: Беспокойный Хэллоуин / Goosebumps 2: Haunted Halloween (2018) BDRemux [EN / EN, Fr, Sp Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793880.jpg" />
+</div>
+
+
+###  Подробнее
+
+В заброшенном доме парочка ребят находит странную книгу «Беспокойный Хэллоуин» Р. Л. Стайна. Друзья быстро понимают, почему книгу спрятали подальше от всех, когда небольшой городок заполняют монстры разной степени ужасности.Производство: США, Великобритания / Columbia Pictures Corporation, Original Film, Scholastic Entertainment, Silvertongue Films, Sony Pictures AnimationЖанр: Ужасы, Фэнтези, Комедия, ПриключенияРежиссер: Эри СанделАктеры: Мэдисон Айсмен, Джереми Рэй Тейлор, Калил Харрис, Мик Вингерт, Кен Жонг, Венди МакЛендон-Кови, Крис Парнелл, Брайс Касс, Пейтон Уич, Шэри ХидлиПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 01:29:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5510BCE99A1EE8C4EC7A9ECF98D0081A2872F55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201132   (793811) от 23.01.2018
+
+Субурбикон / Suburbicon (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в солнечный Субурбикон! В прекрасный тихий городок в самом сердце Америки. Счастливые семьи. Недорогие миленькие дома. Ухоженные газоны. Воплощение американской мечты. Чудесную жизнь городка внезапно прерывает шокирующее, из ряда вон выходящее событие — образцовая семья переживает вторжение в их семейное гнёздышко. Это событие толкает на худшие поступки (   Читать дальше...   )Производство: Великобритания, США / Black Bear Pictures, Dark Castle Entertainment, Huahua MediaЖанр: Криминал, Драма, Триллер, ДетективРежиссер: Джордж КлуниАктеры: Мэтт Дэймон, Джулианна Мур, Оскар Айзек, Ноа Джуп, Гленн Флешлер, Меган Фергюсон, Джек Конли, Гэри Басараба, Майкл Коэн, Стив МонроПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40B2DC5271B8F741DDC62E424D8F83B41660659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200983   (793686) от 23.01.2018
+
+Рендель / Rendel (2017) WEB-DL [H.264/720p-LQ] [GER / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ослепленный невероятной жаждой мести, главный герой, после смерти своей семьи, решает примерить плащ супергероя, чтобы отомстить всем, кто этого заслуживает.Производство: Финляндия, Black Lion Pictures, Frozen Flame Pictures, Bad Beaver ProductionsЖанр: Боевик, Криминал, ФэнтезиРежиссер: Йессе ХааяАктеры: Бьянка Брэди, Алина Томникова, Шила Шах, Йессе Хаая, Матти Оннисмаа, Enni Ojutkangas, Теро Салениус, Michael Hall, Кристофер Гуммерус, Джонни ВивашПеревод: ОтсутствуетЯзык озвучки: НемецкийСубтитры: Английские (отдельным файлом)Продолжительность: 01:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE931076163B7BBA333453732FB6AA14BF6A84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200613   (793595) от 23.01.2018
+
+Тор: Рагнарёк / Thor: Ragnarok (2017) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернувшись в Асгард в поисках таинственного врага, ведущего охоту на Камни Бесконечности, Тор обнаруживает, что действия его брата Локи, захватившего трон Асгарда, привели к приближению наиболее страшного события — Рагнарёка. По легенде, это ознаменует последнюю битву Асгарда, последствием которой станет его полное уничтожение. В попытке предотвратить это событие, (   Читать дальше...   )Производство: США, Marvel Entertainment, Marvel Studios, Walt Disney PicturesЖанр: Боевик, Приключения, Комедия, ФантастикаРежиссер: Тайка ВайтитиАктеры: Крис Хемсворт, Том Хиддлстон, Кейт Бланшетт, Идрис Эльба, Джефф Голдблюм, Тесса Томпсон, Карл Урбан, Марк Руффало, Энтони Хопкинс, Бенедикт КамбербэтчПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15A2D64DF1C470B462100AC1E8B5CEA8D36217C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200608   (793588) от 23.01.2018
 
 Тор: Рагнарёк / Thor: Ragnarok (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793588.jpg" />
+  <img src="Z:/picture/008/save_picture_793588.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793500.jpg" />
+  <img src="Z:/picture/008/save_picture_793500.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793302.jpg" />
+  <img src="Z:/picture/008/save_picture_793302.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792613.jpg" />
+  <img src="Z:/picture/008/save_picture_792613.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791501.jpg" />
+  <img src="Z:/picture/008/save_picture_791501.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791445.jpg" />
+  <img src="Z:/picture/008/save_picture_791445.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791393.jpg" />
+  <img src="Z:/picture/008/save_picture_791393.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791367.jpg" />
+  <img src="Z:/picture/008/save_picture_791367.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791276.jpg" />
+  <img src="Z:/picture/008/save_picture_791276.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790901.jpg" />
+  <img src="Z:/picture/008/save_picture_790901.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790898.jpg" />
+  <img src="Z:/picture/008/save_picture_790898.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790891.jpg" />
+  <img src="Z:/picture/008/save_picture_790891.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790795.jpg" />
+  <img src="Z:/picture/008/save_picture_790795.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790616.jpg" />
+  <img src="Z:/picture/008/save_picture_790616.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790430.jpg" />
+  <img src="Z:/picture/008/save_picture_790430.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790363.jpg" />
+  <img src="Z:/picture/008/save_picture_790363.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790322.jpg" />
+  <img src="Z:/picture/008/save_picture_790322.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790252.jpg" />
+  <img src="Z:/picture/008/save_picture_790252.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789875.jpg" />
+  <img src="Z:/picture/008/save_picture_789875.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789765.jpg" />
+  <img src="Z:/picture/008/save_picture_789765.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789738.jpg" />
+  <img src="Z:/picture/008/save_picture_789738.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789705.jpg" />
+  <img src="Z:/picture/008/save_picture_789705.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3BBDF0A942583D413DF4FECEFB4B99D1ECB076B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202653   (789480) от 30.01.2018
-
-Субурбикон / Suburbicon  (2017) BDRip [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в солнечный Субурбикон! В прекрасный тихий городок в самом сердце Америки. Счастливые семьи. Недорогие миленькие дома. Ухоженные газоны. Воплощение американской мечты. Чудесную жизнь городка внезапно прерывает шокирующее, из ряда вон выходящее событие — образцовая семья переживает вторжение в их семейное гнёздышко. Это событие толкает на худшие поступки (   Читать дальше...   )Производство: Великобритания, США / Black Bear Pictures, Dark Castle Entertainment, Huahua Media, Silver Pictures, Smokehouse PicturesЖанр: триллер, драма, криминал, детективРежиссер: Джордж КлуниАктеры: Мэтт Дэймон, Оскар Айзек, Джулианна Мур, Майкл Коэн, Джек Конли, Стив Монро, Эрик Од, Эллен Кроуфорд, Гэри Басараба, Гленн Флешлер, Меган Фергюсон, Аннабелль Амирей, Эмили Госс, Дэш Уильямс, Стивен М. Портер, Ноа Джуп, Тим Нефф, Картер ХатингсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английскиеПродолжительность: 01:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0657AC7CFE7E18D4497E0B2DEF10757616318585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202638   (789400) от 30.01.2018
-
-24 часа на жизнь / 24 Hours to Live  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время очередного задания погибает киллер, на совести которого много невинных жертв. Но таинственным образом он возвращается из потустороннего мира к жизни. И теперь у него есть только 24 часа, чтобы объединившись с убийцей, от руки которого он принял смерть, искупить вину и спасти свою душу.Производство: ЮАР, Китай, США / Fundamental Films, Thunder Road Pictures, Film Afrika WorldwideЖанр: боевик, триллер, фэнтезиРежиссер: Брайан СмрзАктеры: Итан Хоук, Пол Андерсон, Рутгер Хауэр, Таня ван Граан, Натали Болтт, Лиам Каннингэм, Сюй Цин, Хаким Кае-Казим, Эйдан Уайток, Тайрон Кеог, Эндрю МоргадоПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4A296D0C364381C02CDF29F30D6EFB623199D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194118   (789355) от 30.01.2018
-
-Кикбоксер: Возмездие / Kickboxer: Retaliation (2017) WEBRip [H.264/1080p-LQ] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение бойцовского экшна о мстителе Курте Слоане, который жаждал поквитаться за своего поверженного брата. Спустя год Курт против воли возвращается в Таиланд, где перед ним встает выбор – сгнить в жестокой тюрьме или выйти на ринг против боксера-гиганта, устроив смертельное, но грандиозное и прибыльное зрелище.Производство: США, Our House Films, Head Gear Films, Metrol TechnologyЖанр: Боевик, ДрамаРежиссер: Димитри ЛоготетисАктеры: Ален Мусси, Кристофер Ламберт, Жан-Клод Ван Дамм, Майк Тайсон, Сара Малакул Лэйн, Хафтор Бьёрнсон, Сэм Медина, Steven Swadling, Miles Strommen, Джессика Янн ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD92365E79802E32B5B6F24342F3C743A47BFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275846   (789332) от 13.01.2019
-
-Ваша ненависть / The Hate U Give (2018) BDRemux [EN / EN, Fr, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка-подросток из чёрного гетто Старр мечется между двумя мирами — своим домом в неспокойном бедном районе и благополучной школой, где она учится вместе с белыми детьми. Положение Старр осложняется, когда она становится единственной свидетельницей того, как полицейский выстрелил в её безоружного друга, подозреваемого в наркоторговле.Производство: США / Fox 2000 Pictures, State Street Pictures, Temple Hill EntertainmentЖанр: Драма, КриминалРежиссер: Джордж Тиллман мл.Актеры: Амандла Стенберг, Реджина Холл, Расселл Хорнсби, Энтони Маки, Исса Рэй, Коммон, Элджи Смит, Сабрина Карпентер, Кей Джей Апа, Доминик ФишбэкПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанскиеПродолжительность: 02:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0A242ECBA94131C9458AE7AF55D3C208B9EE54
 ```
 
 https://mybot314.ru/tekegram_catalog/

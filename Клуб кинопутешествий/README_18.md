@@ -1,3 +1,55 @@
+###  Публикация: 1396493   (746925) от 15.07.2020
+
+Путешествие по британским каналам (Пик Форест-Бирмингем) / Britain's Best Canals With John Sergeant (2014) DVB [H.264]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сеть каналов Великобритании - настоящее национальное достояние со своей уникальной историей. В этой познавательной программе, путеводитель Джон отправляется в увлекательное путешествие по лучшим каналам Британии, погружаясь в их прошлую и настоящую жизнь.Производство: Великобритания, Alaska TVЖанр: Документальный, познавательный, путешествияРежиссер: Клайв МалтбиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EA4E1A633611AE1E754E515C60BEBB7FEA2FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396466   (746921) от 15.07.2020
+
+Обитаемый остров. Внешние Гебридские острова / The Island Diaries. Outer Hebrides (2018) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Суровые и неприступные Гебридские острова - царство ветра и волн, но это на первый взгляд. Внимательный путешественник найдет здесь особую романтику и красоту.Производство: Канада, TV5Жанр: Документальный, природа, путешествияРежиссер: Кристина Кларк, Этьен ДезиреПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70CEB37A03A11C700BBF3FAF246545ABDB8E4D98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396461   (746919) от 15.07.2020
 
 Астротуризм. Охота на солнечное затмение в Индонезии / The Borderless Sky. Hunting the Solar Eclipse in Indonesia (Sternenjager - Abenteuer Nachthimmel) (2017) HDTV [H.264/1080i]
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746919.jpg" />
+  <img src="Z:/picture/008/save_picture_746919.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746917.jpg" />
+  <img src="Z:/picture/008/save_picture_746917.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746506.jpg" />
+  <img src="Z:/picture/008/save_picture_746506.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746318.jpg" />
+  <img src="Z:/picture/008/save_picture_746318.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746095.jpg" />
+  <img src="Z:/picture/008/save_picture_746095.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745967.jpg" />
+  <img src="Z:/picture/008/save_picture_745967.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745961.jpg" />
+  <img src="Z:/picture/008/save_picture_745961.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745449.jpg" />
+  <img src="Z:/picture/008/save_picture_745449.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745439.jpg" />
+  <img src="Z:/picture/008/save_picture_745439.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744824.jpg" />
+  <img src="Z:/picture/008/save_picture_744824.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744087.jpg" />
+  <img src="Z:/picture/008/save_picture_744087.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743970.jpg" />
+  <img src="Z:/picture/008/save_picture_743970.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743760.jpg" />
+  <img src="Z:/picture/008/save_picture_743760.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743578.jpg" />
+  <img src="Z:/picture/008/save_picture_743578.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ BBC. Нескучный Лиссабон / Lisbon. Secret Cities (2018) HDTV [H.
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742701.jpg" />
+  <img src="Z:/picture/008/save_picture_742701.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742699.jpg" />
+  <img src="Z:/picture/008/save_picture_742699.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ BBC. Нескучная Барселона / Secret Cities. Barcelona (2018) HDT
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742692.jpg" />
+  <img src="Z:/picture/008/save_picture_742692.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742688.jpg" />
+  <img src="Z:/picture/008/save_picture_742688.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742652.jpg" />
+  <img src="Z:/picture/008/save_picture_742652.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ BBC. Нескучный Амстердам / Secret Cities. Amsterdam (2018) HDT
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742646.jpg" />
+  <img src="Z:/picture/008/save_picture_742646.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742645.jpg" />
+  <img src="Z:/picture/008/save_picture_742645.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ BBC. Большой город. Как живут в Гонконге / World's 
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742641.jpg" />
+  <img src="Z:/picture/008/save_picture_742641.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ NG. Австралия. Путеводитель путешественника 
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741799.jpg" />
+  <img src="Z:/picture/008/save_picture_741799.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741338.jpg" />
+  <img src="Z:/picture/008/save_picture_741338.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:317627669C592F9A8B8FBAB65DEB3F425AC5F387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397315   (741332) от 19.07.2020
-
-Спрятанная Англия / Hidden Britain By Drone (2018) HDTV [H.264/1080i] (сезон 2, серии 1-5 из 5)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть увлекательных воздушных приключений в компании ведущего Тони Робинсона и его маленькой армии летающих дронов. Вместе с ними будем парить над зданиями, залетать в секретные тоннели, опускаться в глубокие пещеры - исследовать самые потаённые и скрытые от любопытных глаз уголки АнглииПроизводство: Великобритания, Windfall Films LtdЖанр: Документальный, путешествияРежиссер: Джеймс Колвел, Джонатан Ханни, Либби ОвертонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 5 x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8319BAA270B499B2CD1D838DC2A51FBC9D6817DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397266   (741324) от 19.07.2020
-
-Спрятанная Англия / Hidden Britain By Drone (2016) HDTV [H.264/1080i] (сезон 1, серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотя Англия и небольшая, здесь полно мест скрытых от посторонних глаз за высокими заборами и тяжёлыми воротами. Сэр Тони Робинсон - энтузиаст, историк и путешественник. Он изучает скрытое от взгляда с помощью современных технологий воздушной съёмки. Он отправляет свои летающие камеры на съёмку частных владений, исторических мест, секретных зон и непроходимой местности. (   Читать дальше...   )Производство: Великобритания, Windfall Films LtdЖанр: Документальный, путешествияРежиссер: Эйн О' ШиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 2 x ~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C69FD83107FDAA9A82B5839849A454BC049B3ABC
 ```
 
 https://mybot314.ru/tekegram_catalog/

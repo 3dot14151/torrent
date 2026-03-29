@@ -1,3 +1,83 @@
+###  Публикация: 586705   (225637) от 09.12.2012
+
+Metallica - Quebec Magnetic (2012) BDRip [720]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Metallica, снятое их старым другом и коллегой Wayne Isham в канадском Квебеке в 2009 году.
+
+Среди сетлиста нашлось место супер-хитам команды, среди которых “‘Master of Puppets”, “Battery” и “Seek and Destroy”. Также стоит отметить, что за данный выпуск проголосовало более 35 тысяч поклонников группы.Жанр: трэш-метал, концертПеревод: ОтсутствуетПродолжительность: 02:14:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965307   (225411) от 14.12.2015
+
+Концерт Ирины Аллегровой в Олимпийском (2015) HDTVRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый канал представляет телевизионную версию концертного шоу, которое стало одним из самых ярких событий в мире российского шоу-бизнеса 2015. Народная артистка России Ирина Аллегрова представляет на суд широкой аудитории свою новую программу "Перезагрузка". В 2012-м Аллегрова объявила о своем уходе со сцены, но у творчества свои законы и именно вскоре (   Читать дальше...   )Производство: Россия, Первый каналЖанр: Музыка,КонцертПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7CBAFD995BE198DCCE7E36647C863FCA8283C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342222   (225199) от 01.12.2019
+
+Квартирник НТВ у Маргулиса. ДиДюЛя (30.11.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой этого выпуска — композитор, аранжировщик, музыкальный продюсер и лидер группы «ДиДюЛя» Валерий Михайлович Дидюля. В атмосферной студии гитарист-виртуоз рассказал истории из жизни, поделился впечатлениями о ярких гастролях, а также исполнил любимые композиции поклонников.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AFB10F978001E6DEE83659F04E149CB13AF3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965083   (223905) от 15.12.2015
 
 Концерт Ирины Аллегровой в Олимпийском (2015) HDTVRip-LQ
@@ -6,7 +86,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223905.jpg" />
+  <img src="Z:/picture/005/save_picture_223905.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221105.jpg" />
+  <img src="Z:/picture/005/save_picture_221105.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ eRa - The Live Experience 2022 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220603.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220409.jpg" />
+  <img src="Z:/picture/005/save_picture_220409.jpg" />
 </div>
 
 
@@ -117,7 +197,7 @@ Queen: A Night At The Odeon - Hammersmith (2015) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219859.jpg" />
+  <img src="Z:/picture/005/save_picture_219859.jpg" />
 </div>
 
 
@@ -147,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218488.jpg" />
+  <img src="Z:/picture/005/save_picture_218488.jpg" />
 </div>
 
 
@@ -173,7 +253,7 @@ ZZ Top - Live From Texas  (2008)  BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218374.jpg" />
+  <img src="Z:/picture/005/save_picture_218374.jpg" />
 </div>
 
 
@@ -202,7 +282,7 @@ Katy Perry - The Prismatic World Tour (2015) BDRip[H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217765.jpg" />
 </div>
 
 
@@ -231,7 +311,7 @@ L. A. Guns - Made In Milan (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217716.jpg" />
 </div>
 
 
@@ -260,7 +340,7 @@ L. A. Guns - Made In Milan (2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217664.jpg" />
 </div>
 
 
@@ -289,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217330.jpg" />
+  <img src="Z:/picture/005/save_picture_217330.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217232.jpg" />
+  <img src="Z:/picture/005/save_picture_217232.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ Metallica: Quebec Magnetic 2009 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_216540.jpg" />
+  <img src="Z:/picture/005/save_picture_216540.jpg" />
 </div>
 
 
@@ -384,7 +464,7 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216052.jpg" />
 </div>
 
 
@@ -413,7 +493,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215436.jpg" />
+  <img src="Z:/picture/005/save_picture_215436.jpg" />
 </div>
 
 
@@ -439,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214830.jpg" />
+  <img src="Z:/picture/005/save_picture_214830.jpg" />
 </div>
 
 
@@ -469,7 +549,7 @@ Volbeat: Let's Boogie Live From Telia Parken (2018)  Blu-ray [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214808.jpg" />
+  <img src="Z:/picture/005/save_picture_214808.jpg" />
 </div>
 
 
@@ -499,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214707.jpg" />
+  <img src="Z:/picture/005/save_picture_214707.jpg" />
 </div>
 
 
@@ -525,7 +605,7 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214188.jpg" />
+  <img src="Z:/picture/005/save_picture_214188.jpg" />
 </div>
 
 
@@ -554,7 +634,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214055.jpg" />
+  <img src="Z:/picture/005/save_picture_214055.jpg" />
 </div>
 
 
@@ -580,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213735.jpg" />
+  <img src="Z:/picture/005/save_picture_213735.jpg" />
 </div>
 
 
@@ -606,7 +686,7 @@ Depeche Mode - Live at VOLT Festival, Sopron, Hungary (2018) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211328.jpg" />
+  <img src="Z:/picture/005/save_picture_211328.jpg" />
 </div>
 
 
@@ -635,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210519.jpg" />
 </div>
 
 
@@ -649,93 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF15FFAE870DC477E988F5757F547D43B2BBAFD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603376   (210477) от 09.01.2023
-
-Квартирник у Маргулиса. Группа «Пелагея» (07.01.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Пелагея» на «Квартирнике НТВ у Маргулиса»01. 00:00:00 «Казак»
-02. 00:05:18 Приветствие
-03. 00:07:23 «Ой, да не вечер»
-04. 00:12:42 Про имя(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B9B513EB0C5807406F60FE8CBFAF4BB55EC051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603375   (210453) от 09.01.2023
-
-Квартирник у Маргулиса. Специальный выпуск (06.01.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеканал НТВ представляет специальный выпуск «Квартирника НТВ у Маргулиса», посвященный Новому году и Рождеству. Программа была снята во втором филиале Национального медицинского исследовательского центра высоких медицинских технологий им.  А. А. Вишневского, где проходят лечение и реабилитацию российские военнослужащие. В съемках приняли участие: певица Юта, Сергей (   Читать дальше...   )00:00:09 Любимый мой
-00:04:39 Жили-были
-00:10:38 Надежда
-00:14:55 Живи(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D6A5D1040F3367C2DF2D4FB8EDDC965253A6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582325   (210363) от 28.06.2023
-
-Квартирник у Маргулиса. Zero People (09.10.2022) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zero People — это сайд-проект музыкантов популярной рок-группы Animal ДжаZ Александра Кросовицкого и Александра Заранкина. За 11-летнюю историю они выпустили шесть альбомов, стали одной из самых популярных и востребованных групп в стране и доказали, что «пиано-рок» с исповедальными текстами может собирать многотысячные залы. В гостях у Евгения Маргулиса Zero People (   Читать дальше...   )00:00:06 Квартирник у Маргулиса - Zero People
-00:00:06 Ремесло
-00:07:32 Человек
-00:14:04 Беда(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Пиано-рокПродолжительность: 01:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E457D138C7D53D8D222AFB530BFE455CC74AD7D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

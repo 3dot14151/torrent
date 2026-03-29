@@ -1,3 +1,61 @@
+###  Публикация: 987534   (925903) от 17.02.2016
+
+Alice Cooper - Classicks (1995) Compilation [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Poison 04:30
+02. 	Hey Stoopid 04:33
+03. 	Feed My Frankenstein 04:44
+04. 	Love's A Loaded Gun 04:11(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5C4E52FA6D970F4DDB22DAF87E8057A45E9D80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366227   (925887) от 10.03.2020
+
+Eric Martin - I'm Goin' Sane (2002) (voice Mr.Big) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Disease
+02. Spaceman
+03. Goin' Sane
+04. Free Of It(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAAA3D8628C65C30C03A7D3DD387FDA5A3154B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366007   (925834) от 10.03.2020
 
 Big Life - Big Life (2011) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
@@ -6,7 +64,7 @@ Big Life - Big Life (2011) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925834.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Newman - 14 альбомов (1997-2017) 15CD [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925760.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Khymera - Master Of Illusions (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925748.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Wormhog - Yellow Sea (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925543.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Religion6 - Never Too Late (Never Too Late) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925419.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Stone Axe - Stone Axe, Stone Axe II (2009, 2010) [FLAC|Lossless|tracks + .cue]<H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924261.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Chasing Violets - 2 альбома (2012-2013) [FLAC|Lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924128.jpg" />
 </div>
 
 
@@ -205,7 +263,7 @@ Virginia Wolf - 2 альбома (1986-1987) [FLAC|Lossless|image + .cue] <Melod
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924125.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ David Byron - Man Of Yesterday - The Anthology (2005) 2CD [APE|Lossless]<Rock/Pr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923577.jpg" />
 </div>
 
 
@@ -259,7 +317,7 @@ Robin McAuley - Standing On The Edge (2021) Japanese Edition [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923555.jpg" />
 </div>
 
 
@@ -288,7 +346,7 @@ Master Men - Through The Window (2015) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922816.jpg" />
 </div>
 
 
@@ -317,7 +375,7 @@ State Cows - 2 альбома (2010-2013) [FLAC|Lossless|image + .cue] <Westcoas
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922481.jpg" />
 </div>
 
 
@@ -345,7 +403,7 @@ Gotthard - Silver (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920860.jpg" />
 </div>
 
 
@@ -374,7 +432,7 @@ Jerry-Kelly - Somebody Else's Dream (1978) [FLAC|Lossless|image + .cue] <Westcoa
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_920715.jpg" />
+  <img src="Z:/picture/008/save_picture_920715.jpg" />
 </div>
 
 
@@ -403,7 +461,7 @@ Dakota - 9 альбомов 11CD (1980-2015) [FLAC|Lossless|image + .cue] <Westc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920577.jpg" />
 </div>
 
 
@@ -432,7 +490,7 @@ Bonfire - Branded (2011) [FLAC|Lossless]<Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920475.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Def Leppard - Slang (Deluxe Edition) (2014) 2CD /Scene/ [FLAC (tracks)|Lossless]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919423.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Steel Rhino - Steel Rhino (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919052.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Jack Russell's Great White - Great Zeppelin II: A Tribute To Led Zeppelin (2021)
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918950.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Tomcat - Something’s Coming On Wrong (2017) [FLAC|Lossless|WEB-DL|tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915952.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ Laos - We Want It (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915847.jpg" />
 </div>
 
 
@@ -612,7 +670,7 @@ Magnum - Sacred Blood "Divine" Lies (2016) [FLAC|Lossless|image + .cue] <Melodic
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914119.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Black Sabbath - The End (2016) EP [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913168.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Halestorm - Vicious (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912498.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ Halestorm — американская группа, играющая в сти�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36B0D6B1B3B2888DD0C50C1BF8AD1D35B9466115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097600   (912383) от 28.01.2017
-
-Jack Russell's Great White - He Saw It Comin' (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign of the Times (3:37)
-02. She Moves Me (3:34)
-03. Crazy (3:40)
-04. Love Don't Live Here (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E43BA8BC395D8951844D3E576AA1AF02887B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491266   (911972) от 24.08.2021
-
-King Mountain - Kingdom Of Shadows (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Stoner Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back On The Ground
-02. Sister Freedom
-03. She's In My Blood
-04. Ruined In Flames(   Читать дальше...   )Жанр: Hard Rock, Stoner Rock, Blues RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFFAC93689538FBEB3217C9E1DCFAEDAF2C9F22
 ```
 
 https://mybot314.ru/tekegram_catalog/

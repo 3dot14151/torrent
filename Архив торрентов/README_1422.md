@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730791.jpg" />
+  <img src="Z:/picture/005/save_picture_730791.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Nigel Good - Space Cadet (2015) [FLAC|Lossless|tracks] <Electronic, Drum & Bass,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730789.jpg" />
+  <img src="Z:/picture/008/save_picture_730789.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Firefox Browser 97.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730782.jpg" />
+  <img src="Z:/picture/008/save_picture_730782.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Firefox Browser 91.6.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730780.jpg" />
+  <img src="Z:/picture/008/save_picture_730780.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730771.jpg" />
+  <img src="Z:/picture/008/save_picture_730771.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Mozilla Thunderbird 91.6.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730767.jpg" />
+  <img src="Z:/picture/008/save_picture_730767.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ CCleaner Professional 5.53.7034 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730744.jpg" />
+  <img src="Z:/picture/008/save_picture_730744.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sublime Text 3 Dev (3131) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730738.jpg" />
+  <img src="Z:/picture/008/save_picture_730738.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Icecream PDF Converter Pro 2.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730724.jpg" />
+  <img src="Z:/picture/008/save_picture_730724.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Adobe Prelude CC 2017.1 6.1.0.82 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730709.jpg" />
+  <img src="Z:/picture/008/save_picture_730709.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730708.jpg" />
+  <img src="Z:/picture/005/save_picture_730708.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730705.jpg" />
+  <img src="Z:/picture/008/save_picture_730705.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730703.jpg" />
+  <img src="Z:/picture/008/save_picture_730703.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730699.jpg" />
+  <img src="Z:/picture/008/save_picture_730699.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ PhotoPad Image Editor Professional 3.07 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730695.jpg" />
+  <img src="Z:/picture/008/save_picture_730695.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - 100 Best Gold Trap & Bass Tracks (2016) [MP3|320 кб/с] <Dirty Dubstep, T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730689.jpg" />
+  <img src="Z:/picture/008/save_picture_730689.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730686.jpg" />
+  <img src="Z:/picture/008/save_picture_730686.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730683.jpg" />
+  <img src="Z:/picture/008/save_picture_730683.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Wise Hotkey 1.01.1 Beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730680.jpg" />
+  <img src="Z:/picture/008/save_picture_730680.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730672.jpg" />
+  <img src="Z:/picture/008/save_picture_730672.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Blue Cat's Connector 1.0 VST (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730662.jpg" />
+  <img src="Z:/picture/008/save_picture_730662.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Opera 83.0.4254.54 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730659.jpg" />
+  <img src="Z:/picture/008/save_picture_730659.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ PDF24 Creator 10.7.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730656.jpg" />
+  <img src="Z:/picture/008/save_picture_730656.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Reg Organizer 8.85 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730646.jpg" />
+  <img src="Z:/picture/008/save_picture_730646.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Vivaldi 5.1.2567.39 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730644.jpg" />
+  <img src="Z:/picture/008/save_picture_730644.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ AutoRuns 13.94 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730631.jpg" />
+  <img src="Z:/picture/008/save_picture_730631.jpg" />
 </div>
 
 

@@ -1,3 +1,107 @@
+###  Публикация: 1280815   (756435) от 05.02.2019
+
+Обойти блокировку Android-смартфона можно звонком по Skype
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_756435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавно обнаруженная уязвимость в Skype для Android может быть использована злоумышленниками для обхода экрана блокировки на смартфонах, работающих под управлением Android. Она позволяет просматривать фотографии, контакты и даже запускать браузер, получая доступ к сайтам с введёнными пользователем паролями.19-летний специалист по безопасности из Косово Флориан Кунушевци (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262286   (756407) от 05.02.2019
+
+Devil May Cry HD Collection (2018) [Ru/Multi] (1.0) Rip R.G. Revenants
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярные стильные экшены Devil May Cry, Devil May Cry 2 и Devil May Cry 3 Special Edition возвращаются в составе особой коллекции! Станьте Данте, величайшим охотником на демонов, и вместе с очаровательными персонажами, среди которых Триш, Леди и Люсия, насладитесь невероятными боевиками в разрешении 1920 x 1080 (FullHD) при 60 кадрах в секунду!Тип издания: RipРазработчик: CapcomЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Испанский и другиеЯзык интерфейса: Русский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2076F95B5B2D81EE59841C785E90CFF41A73A911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 660767   (756130) от 30.05.2013
+
+(Linux) Counter-Strike: Source (2013) [Ru] SteamRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Counter-Strike: Source — многопользовательский командный тактический шутер от первого лица, разработанный компаниями Valve и Turtle Rock Studios. Это римейк Counter-Strike, модификации 1999 года для игры Half-Life. Построенная на движке Source игра была выпущена в 2004 году изначально в комплекте с Half-Life 2, однако позже появились и специальные, отдельные издания (   Читать дальше...   )Тип издания: SteamRipРазработчик: ValveЖанр: Action/FPSЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD3FC10051623C317A921730720B710F9B624F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492575   (756126) от 30.05.2013
+
+Подшивка журналов | Фотомастерская (2004-2013) [PDF +CD] +Спецвыпуски [PDF +DVD] [Обновлено 30.05.2013]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_756126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Фотомастерская» пишет о том, что можно сделать с фотографией после съемки. В нём есть всё: современные методы и программы обработки фотографий, портфолио ведущих цифровых художников и ретушеров, советы по работе с техникой, от съёмки и калибровки до печати. Одним словом, всё, что касается работы с готовым изображением.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215567   (756010) от 27.03.2018
 
 Очередное достижение: 3000 релизов от vilator!!!!
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756010.jpg" />
+  <img src="Z:/picture/005/save_picture_756010.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ Adobe Muse CC 2018 1.0.266 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755895.jpg" />
+  <img src="Z:/picture/008/save_picture_755895.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755894.jpg" />
+  <img src="Z:/picture/008/save_picture_755894.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ NetSpeedMonitor 2.5.4.0 [Мультиязычный (русский присут
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755549.jpg" />
+  <img src="Z:/picture/005/save_picture_755549.jpg" />
 </div>
 
 
@@ -114,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755548.jpg" />
+  <img src="Z:/picture/008/save_picture_755548.jpg" />
 </div>
 
 
@@ -140,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755328.jpg" />
+  <img src="Z:/picture/005/save_picture_755328.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ RusTV Player 3.2 Final Portable by Valx [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754990.jpg" />
+  <img src="Z:/picture/008/save_picture_754990.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ SpyHunter 4.22.8.4668 RePack (& Portable) by D!akov [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754989.jpg" />
+  <img src="Z:/picture/008/save_picture_754989.jpg" />
 </div>
 
 
@@ -218,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754977.jpg" />
+  <img src="Z:/picture/008/save_picture_754977.jpg" />
 </div>
 
 
@@ -244,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754909.jpg" />
+  <img src="Z:/picture/008/save_picture_754909.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754903.jpg" />
+  <img src="Z:/picture/005/save_picture_754903.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754685.jpg" />
+  <img src="Z:/picture/008/save_picture_754685.jpg" />
 </div>
 
 
@@ -325,7 +429,7 @@ Mindroid Pro v6.4 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754507.jpg" />
+  <img src="Z:/picture/008/save_picture_754507.jpg" />
 </div>
 
 
@@ -351,7 +455,7 @@ Dead Cells (2018) [Ru/Multi] (27/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754504.jpg" />
+  <img src="Z:/picture/008/save_picture_754504.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ Batman: The Enemy Within - The Telltale Series (2017) [Ru/Multi] (1.0.0.1/upd7) 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754151.jpg" />
+  <img src="Z:/picture/008/save_picture_754151.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753823.jpg" />
+  <img src="Z:/picture/008/save_picture_753823.jpg" />
 </div>
 
 
@@ -429,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_753682.jpg" />
+  <img src="Z:/picture/005/save_picture_753682.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753205.jpg" />
+  <img src="Z:/picture/008/save_picture_753205.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4366.1000
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753199.jpg" />
+  <img src="Z:/picture/008/save_picture_753199.jpg" />
 </div>
 
 
@@ -507,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753194.jpg" />
+  <img src="Z:/picture/008/save_picture_753194.jpg" />
 </div>
 
 
@@ -533,7 +637,7 @@ Nvidia DriverPack v.451.67 RePack by CUTA [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753177.jpg" />
+  <img src="Z:/picture/008/save_picture_753177.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753165.jpg" />
+  <img src="Z:/picture/008/save_picture_753165.jpg" />
 </div>
 
 
@@ -571,111 +675,6 @@ Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED2720EC7DEDA9FE2DB60446E9CF90DE5FD0ED17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281279   (752995) от 07.02.2019
-
-Adobe Photoshop CC 2019 20.0.3.24950 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC 2019 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A5EDEAE492844D4D96A2ED823D3F6F6840AC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281368   (752993) от 07.02.2019
-
-Суспирия / Suspiria (2018) BDRip  [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая американка приезжает в Берлин, чтобы присоединиться к знаменитой танцевальной труппе. Однако в стенах студии девушка внезапно обнаруживает нечто зловещее и сверхъестественное. Вскоре она понимает, что станет следующей жертвой, если не успеет раскрыть тайну проклятия, которое окутало легендарную танцевальную академию.Производство: Италия, США / Amazon Studios, First Sun, Frenesy Film CompanyЖанр: Ужасы, фэнтези, триллер, детективРежиссер: Лука ГуаданьиноАктеры: Дакота Джонсон, Тильда Суинтон, Дорис Хик, Малгоша Бела, Хлоя Грейс Морец, Ангела Винклер, Ванда Каприоло, Алек Век, Джессика Батю, Елена ФокинаПеревод: Дублированный (iTunes)Субтитры: Русские (полные), английские (хардсаб на немецкую речь)Продолжительность: 02:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9367C71942082A5866F3565C7081C2DBF5A0B44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 888773   (752857) от 15.04.2015
-
-Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Designer SP2 14.0.7147.5001 VL (x86) RePack by SPecialiST v15.4 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 — один из лучших наборов офисных приложений для компьютеров, телефонов и браузеров, включающий функции, на которые можно положиться уже сегодня, и возможности, которые могут потребоваться в будущем. Данный набор приложений позволяет уверенно принять вызов сегодняшней экономической ситуации, не упуская из виду факторы, необходимые для достижения успеха в сфере информационных технологий.
-Для обычных сотрудников это возможность выполнять ежедневную работу быстрее, проще и эффективнее независимо (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B7FB79608D7166FE356EBB35B804677ED31340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523124   (752803) от 10.01.2022
-
-Watch Dogs: Legion (2020) [Ru/Multi] (1.5.6/dlc) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Watch Dogs: Legion происходит в ближайшем будущем. Лондон переживает тяжелые времена. Организуйте сопротивление, вербуя кого угодно из жителей города. Взламывайте, внедряйтесь и сражайтесь, чтобы спасти Лондон ближайшего будущего, который переживает тяжёлые времена. Добро пожаловать в сопротивление.Тип издания: RepackРазработчик: Ubisoft TorontoЖанр: Action (Open World, Hacking), Stealth, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDCA8BB3DFFCF749A495C9D2023F7D70EC9530B
 ```
 
 https://mybot314.ru/tekegram_catalog/

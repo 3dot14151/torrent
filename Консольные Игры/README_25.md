@@ -6,7 +6,7 @@
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656310.jpg" />
+  <img src="Z:/picture/008/save_picture_656310.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656306.jpg" />
+  <img src="Z:/picture/008/save_picture_656306.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655156.jpg" />
+  <img src="Z:/picture/008/save_picture_655156.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ DOOM Eternal (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.23 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654640.jpg" />
+  <img src="Z:/picture/008/save_picture_654640.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Dead Nation + Road of Devastation DLC (2014) [PSVita] [EUR] 3.60 [HENkaku] [PSN]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654485.jpg" />
+  <img src="Z:/picture/008/save_picture_654485.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ NASCAR: The Game 2011 [Wii] [NTSC] [Eng] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653030.jpg" />
+  <img src="Z:/picture/008/save_picture_653030.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ LEGO Star Wars: The Force Awakens / LEGO Звездные войны: Пробу
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652961.jpg" />
+  <img src="Z:/picture/008/save_picture_652961.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Xbox360] [RegionFree]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652951.jpg" />
+  <img src="Z:/picture/008/save_picture_652951.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Test Drive: Ferrari Racing Legends (2012) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652793.jpg" />
+  <img src="Z:/picture/008/save_picture_652793.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ YouTube v.1.11 для PS3 (2015) [PS3] [Repack]
 >>Тех. раздел Консолей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652774.jpg" />
+  <img src="Z:/picture/008/save_picture_652774.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Batman: Arkham City Armored Edition / Batman: Arkham City Armoured Edition (2012
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650907.jpg" />
+  <img src="Z:/picture/008/save_picture_650907.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Ice Age 4: Continental Drift - Artic Games [Wii] [PAL] [Multi 6] (2012)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650789.jpg" />
+  <img src="Z:/picture/008/save_picture_650789.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Battlefield Hardline (2015) [PS3] [EUR] 4.65 [Cobra ODE / E3 ODE PRO ISO] [Licen
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650649.jpg" />
+  <img src="Z:/picture/008/save_picture_650649.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Bassmaster Fishing 2022 (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.19] [Ru/Multi
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650355.jpg" />
+  <img src="Z:/picture/008/save_picture_650355.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ LEGO Star Wars: The Force Awakens / LEGO Звездные войны: Пробу
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649013.jpg" />
+  <img src="Z:/picture/008/save_picture_649013.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648982.jpg" />
+  <img src="Z:/picture/008/save_picture_648982.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ ExerBeat: Gym Class Workout [Wii] [PAL] [Multi 3] (2011)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648967.jpg" />
+  <img src="Z:/picture/008/save_picture_648967.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648927.jpg" />
+  <img src="Z:/picture/008/save_picture_648927.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648924.jpg" />
+  <img src="Z:/picture/008/save_picture_648924.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Cave Story [WiiWare] [RegionFree] [RUS] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648854.jpg" />
+  <img src="Z:/picture/008/save_picture_648854.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648800.jpg" />
+  <img src="Z:/picture/008/save_picture_648800.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648782.jpg" />
+  <img src="Z:/picture/008/save_picture_648782.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647419.jpg" />
+  <img src="Z:/picture/008/save_picture_647419.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Trilogy Agarest: Generations of War 1, Zero, 2 (2009-2012) [PS3] [EUR] 2.76, 3.6
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646796.jpg" />
+  <img src="Z:/picture/008/save_picture_646796.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Lego Jurassic World / LEGO Мир Юрского Периода (2015) [PS4] [EU
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646433.jpg" />
+  <img src="Z:/picture/008/save_picture_646433.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Madagascar Kartz [Multi5] [PAL] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644811.jpg" />
+  <img src="Z:/picture/008/save_picture_644811.jpg" />
 </div>
 
 

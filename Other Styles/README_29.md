@@ -6,7 +6,7 @@ Jozef Van Wissem - When Shall This Bright Day Begin (2016) [MP3|320 кб/с] <Fo
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875584.jpg" />
+  <img src="Z:/picture/005/save_picture_875584.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Troika (David Arkenstone) - Shaman (2000) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874193.jpg" />
+  <img src="Z:/picture/005/save_picture_874193.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ David Arkenstone - Citizen of the World (1999) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874132.jpg" />
+  <img src="Z:/picture/008/save_picture_874132.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Devaldi - Petrichor (2016) [MP3|320 Kbps] <Electronic, Relaxing>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873736.jpg" />
+  <img src="Z:/picture/008/save_picture_873736.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Mystica - Best Of Gregorian Voices (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873676.jpg" />
+  <img src="Z:/picture/008/save_picture_873676.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873641.jpg" />
+  <img src="Z:/picture/008/save_picture_873641.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - The Da Vinci Mysteries (2006) [MP3|320 Kbps] <Gregorian, New Age, Enigmatic
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873528.jpg" />
+  <img src="Z:/picture/008/save_picture_873528.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Притяжение (Официальный Саундтрек) (2017) [MP
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873516.jpg" />
+  <img src="Z:/picture/008/save_picture_873516.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Притяжение (Официальный Саундтрек) (2017) [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873201.jpg" />
+  <img src="Z:/picture/008/save_picture_873201.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Pan Pipes of the Andes - 3 альбома (1998) [FLAC|Lossless|tracks + .c
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872274.jpg" />
+  <img src="Z:/picture/008/save_picture_872274.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Romantic Collection - HARP (2002) [FLAC|Lossless|image + .cue] <Instrumental, vo
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871752.jpg" />
+  <img src="Z:/picture/008/save_picture_871752.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871560.jpg" />
+  <img src="Z:/picture/008/save_picture_871560.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Romantic Collection - HARP (2002) [MP3|320 кб/с] <Instrumental, vocal>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871459.jpg" />
+  <img src="Z:/picture/008/save_picture_871459.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Wor
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871397.jpg" />
+  <img src="Z:/picture/008/save_picture_871397.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871391.jpg" />
+  <img src="Z:/picture/008/save_picture_871391.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ VA - Ёлки 5 (Музыка к фильму) (2016) [MP3|320 кб/с]<Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871220.jpg" />
+  <img src="Z:/picture/008/save_picture_871220.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Aenigmatica - Sanctum (2016) [FLAC|Lossless|tracks] <New Age, Chillout, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871209.jpg" />
+  <img src="Z:/picture/008/save_picture_871209.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Photek - Need for Speed (EA Games Soundtrack) (2016) [MP3|320 кб/с] <Electron
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871135.jpg" />
+  <img src="Z:/picture/008/save_picture_871135.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [FLAC2.0|24/48|tr
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871066.jpg" />
+  <img src="Z:/picture/008/save_picture_871066.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ VA - Ёлки 5 (Музыка к фильму) (2016) [FLAC|Lossless|WEB-DL|trac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871052.jpg" />
+  <img src="Z:/picture/008/save_picture_871052.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Hans Zimmer - Dune (3 CD) (2021) Music From The Soundtrack [FLAC|Lossless|WEB-DL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870928.jpg" />
+  <img src="Z:/picture/008/save_picture_870928.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Blackmore’s Night - Under A Violet Moon (1999) [FLAC|Lossless|image + .cue] <F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870764.jpg" />
+  <img src="Z:/picture/008/save_picture_870764.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Windsong - Windsong A Celebration of Life (Native American Chants & Dances) (199
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870515.jpg" />
+  <img src="Z:/picture/008/save_picture_870515.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Jim Brickman - 25th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870514.jpg" />
+  <img src="Z:/picture/008/save_picture_870514.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Blackmore's Night - Дискография (1997 - 2010) [MP3|192-320 kbps] <Fol
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870410.jpg" />
+  <img src="Z:/picture/008/save_picture_870410.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Trevor Morris - Vikings / Викинги (Music From The TV Series) (2013-2015) 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869820.jpg" />
+  <img src="Z:/picture/008/save_picture_869820.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1421824   (315442) от 06.11.2020
+
+Astirium - Время Перемен (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (The Beginning of Change) (01:12)
+ 02. Взгляд безумия (03:05)
+ 03. Герой одиночества (04:24)
+ 04. Время перемен (04:38)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B1B0B533A0E06ECD2848B7F33F4BA09F434AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422009   (315430) от 06.11.2020
+
+KDRR - Корея (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315430.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эхо наших голосов
+2. Вавилон
+3. Будет ласковый дождь
+4. Корея(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76046F6D85EC23997467BFA8D7A01C406249EF6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421899   (315231) от 06.11.2020
+
+Сергей Бобунец - Одиночество навсегда (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315231.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Спасибо
+2. Просто музыка, просто слова
+3. Декабрь
+4. Куда пропали звёзды(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF9B577D44D74D92738B94A3D8D468A620D2F5A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421904   (315067) от 06.11.2020
+
+VA - Территория ДДТ (2020) [MP3|320 Kbps] <Rock, Pop & etc.>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_315067.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Amatory - Родина
+2. Animal ДжаZ - Предчувствие гражданской войны
+3. Fontaliza - За тобой пришли
+4. Sellout - Песня о свободе(   Читать дальше...   )Жанр: Rock, Pop & etc.Продолжительность: 03:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE34B35E33ECDFC2913881EA6C22C264005F066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182689   (314997) от 11.11.2017
 
 Мара - Все горит (2017) Single [MP3|320 Kbps] <Rock>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314997.jpg" />
+  <img src="Z:/picture/008/save_picture_314997.jpg" />
 </div>
 
 
@@ -32,7 +148,7 @@ Jimmy Sticks - 2 Albums (2019-2022) [MP3|320 Kbps] <Thrash Groove Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314662.jpg" />
+  <img src="Z:/picture/008/save_picture_314662.jpg" />
 </div>
 
 
@@ -61,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314641.jpg" />
+  <img src="Z:/picture/008/save_picture_314641.jpg" />
 </div>
 
 
@@ -90,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314549.jpg" />
+  <img src="Z:/picture/008/save_picture_314549.jpg" />
 </div>
 
 
@@ -119,7 +235,7 @@ Radio Tapok - Песня для твоей подруги (2018) Single [MP3|320
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314366.jpg" />
+  <img src="Z:/picture/008/save_picture_314366.jpg" />
 </div>
 
 
@@ -145,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314270.jpg" />
+  <img src="Z:/picture/008/save_picture_314270.jpg" />
 </div>
 
 
@@ -174,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313277.jpg" />
+  <img src="Z:/picture/008/save_picture_313277.jpg" />
 </div>
 
 
@@ -200,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313154.jpg" />
+  <img src="Z:/picture/008/save_picture_313154.jpg" />
 </div>
 
 
@@ -229,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313152.jpg" />
+  <img src="Z:/picture/008/save_picture_313152.jpg" />
 </div>
 
 
@@ -255,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313017.jpg" />
+  <img src="Z:/picture/008/save_picture_313017.jpg" />
 </div>
 
 
@@ -284,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312546.jpg" />
+  <img src="Z:/picture/008/save_picture_312546.jpg" />
 </div>
 
 
@@ -313,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312117.jpg" />
+  <img src="Z:/picture/008/save_picture_312117.jpg" />
 </div>
 
 
@@ -342,7 +458,7 @@ VA - Romantic Hits. Русские рок баллады 2 (2007) [MP3|256-320 �
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311926.jpg" />
+  <img src="Z:/picture/008/save_picture_311926.jpg" />
 </div>
 
 
@@ -371,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311811.jpg" />
+  <img src="Z:/picture/008/save_picture_311811.jpg" />
 </div>
 
 
@@ -400,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311751.jpg" />
+  <img src="Z:/picture/008/save_picture_311751.jpg" />
 </div>
 
 
@@ -429,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311663.jpg" />
+  <img src="Z:/picture/008/save_picture_311663.jpg" />
 </div>
 
 
@@ -458,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311439.jpg" />
+  <img src="Z:/picture/008/save_picture_311439.jpg" />
 </div>
 
 
@@ -484,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310195.jpg" />
+  <img src="Z:/picture/008/save_picture_310195.jpg" />
 </div>
 
 
@@ -513,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309314.jpg" />
+  <img src="Z:/picture/008/save_picture_309314.jpg" />
 </div>
 
 
@@ -542,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308691.jpg" />
+  <img src="Z:/picture/008/save_picture_308691.jpg" />
 </div>
 
 
@@ -571,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308304.jpg" />
+  <img src="Z:/picture/008/save_picture_308304.jpg" />
 </div>
 
 
@@ -606,7 +722,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307793.jpg" />
+  <img src="Z:/picture/008/save_picture_307793.jpg" />
 </div>
 
 
@@ -620,119 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1452344C4B16BA7F0BA8AD07B8CAFD112EA1F4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261109   (307787) от 09.11.2018
-
-Загоны! (Zагоны!) - Счастливое детство (2014) [MP3|320 Kbps] <Punk & Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Айфон
-02. Друг ВВП
-03. Finladies
-04. Шашлыки (9 мая)(   Читать дальше...   )Жанр: Punk & RockПродолжительность: 00:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28EF6C89F63602470C1D254AABCC0F32E7EF8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261079   (307783) от 09.11.2018
-
-Загоны! (Zагоны!) - Рот (2018) [MP3|320 Kbps] <Punk & Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У*бан
-02. Скажи, зачем
-03. Пи*дёж
-04. Куём(   Читать дальше...   )Жанр: Punk & RockПродолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A662281C3481C73976547401E1D460AD3ADD0BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261065   (307697) от 09.11.2018
-
-Загоны! (Zагоны!) - Ух ты, пихта! (2018) Single [MP3|320 Kbps] <Punk & Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О любимом человеке
-02. Килограммы
-03. Инстатёлочка
-(   Читать дальше...   )Жанр: Punk & RockПродолжительность: 00:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFBF40FB9DF56D975946CC3F326B34F9BDA2747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183763   (307541) от 14.11.2017
-
-Ночные Снайперы - грустные люди (2017) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307541.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. грустные людиЖанр: RockПродолжительность: 00:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440B69F72512F545F8EE8CE40B5B294535C5E04B
 ```
 
 https://mybot314.ru/tekegram_catalog/

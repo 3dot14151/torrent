@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_382757.jpg" />
+  <img src="Z:/picture/005/save_picture_382757.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_382575.jpg" />
+  <img src="Z:/picture/005/save_picture_382575.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Existenter - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381656.jpg" />
+  <img src="Z:/picture/008/save_picture_381656.jpg" />
 </div>
 
 
@@ -105,7 +105,7 @@ Wine From Tears - I'm Fine (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381423.jpg" />
+  <img src="Z:/picture/008/save_picture_381423.jpg" />
 </div>
 
 
@@ -134,7 +134,7 @@ Ensemble of Christ the Saviour and Crude Mother Earth - Third World War: Police 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380888.jpg" />
+  <img src="Z:/picture/008/save_picture_380888.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Light? - Преждевременно и Навсегда (2022) [FLAC|Lossless|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379425.jpg" />
+  <img src="Z:/picture/008/save_picture_379425.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Mysterious Narrators - EPISODE I (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379348.jpg" />
+  <img src="Z:/picture/008/save_picture_379348.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379121.jpg" />
+  <img src="Z:/picture/008/save_picture_379121.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378478.jpg" />
+  <img src="Z:/picture/008/save_picture_378478.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Atoll Nerat - Путешествия в отдельные реальности 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_378430.jpg" />
+  <img src="Z:/picture/005/save_picture_378430.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_378278.jpg" />
+  <img src="Z:/picture/005/save_picture_378278.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377719.jpg" />
+  <img src="Z:/picture/008/save_picture_377719.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377713.jpg" />
+  <img src="Z:/picture/008/save_picture_377713.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377191.jpg" />
+  <img src="Z:/picture/008/save_picture_377191.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377099.jpg" />
+  <img src="Z:/picture/008/save_picture_377099.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377054.jpg" />
+  <img src="Z:/picture/008/save_picture_377054.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376199.jpg" />
+  <img src="Z:/picture/008/save_picture_376199.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Humaniac - 3 Albums (2014-2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Progressiv
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375486.jpg" />
+  <img src="Z:/picture/008/save_picture_375486.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Miami - Sexy, Wet & Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375404.jpg" />
+  <img src="Z:/picture/008/save_picture_375404.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374499.jpg" />
+  <img src="Z:/picture/008/save_picture_374499.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374319.jpg" />
+  <img src="Z:/picture/008/save_picture_374319.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373811.jpg" />
+  <img src="Z:/picture/008/save_picture_373811.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Frankie Potts - Военные преступления в Нижнем Черк
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373262.jpg" />
+  <img src="Z:/picture/008/save_picture_373262.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_372780.jpg" />
+  <img src="Z:/picture/005/save_picture_372780.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372465.jpg" />
+  <img src="Z:/picture/008/save_picture_372465.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371876.jpg" />
+  <img src="Z:/picture/008/save_picture_371876.jpg" />
 </div>
 
 

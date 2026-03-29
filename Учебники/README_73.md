@@ -1,3 +1,55 @@
+###  Публикация: 1182826   (314754) от 11.11.2017
+
+Махмуд Харун | Проектирование и строительство инженерных систем (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебно-методический комплекс обеспечивает реализацию магистерской программы "Теория и практика организационно-технологических и экономических решений в строительстве" и предназначена для студентов, обучающихся по направлению 270800.68 "Строительство".Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA7AE1A68327FBF7D6F7688CEB5D08D900A26DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182481   (314279) от 11.11.2017
+
+С.А. Орлов | Программная инженерия. Технологии разработки программного обеспечения (2016) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник посвящен систематическому изложению принципов, моделей, методов и метрик, используемых в инженерном цикле создания сложных программных систем. Изложены основы как классических, так и гибких методов разработки, вопросы менеджмента классических и гибких программных проектов. Показаны последние научные и практические достижения, характеризующие динамику развития (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53E64BC457AC93C0D39133CBF2B8DF3CCC3337E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422123   (312828) от 07.11.2020
 
 А.И. Слесарев и др. | Аспекты проектирования электронных схем на основе микроконтроллеров (2018) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312828.jpg" />
+  <img src="Z:/picture/008/save_picture_312828.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312592.jpg" />
+  <img src="Z:/picture/008/save_picture_312592.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312479.jpg" />
+  <img src="Z:/picture/008/save_picture_312479.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312475.jpg" />
+  <img src="Z:/picture/008/save_picture_312475.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312463.jpg" />
+  <img src="Z:/picture/008/save_picture_312463.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312350.jpg" />
+  <img src="Z:/picture/008/save_picture_312350.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312336.jpg" />
+  <img src="Z:/picture/008/save_picture_312336.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312193.jpg" />
+  <img src="Z:/picture/008/save_picture_312193.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312192.jpg" />
+  <img src="Z:/picture/008/save_picture_312192.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312066.jpg" />
+  <img src="Z:/picture/008/save_picture_312066.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312041.jpg" />
+  <img src="Z:/picture/008/save_picture_312041.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311910.jpg" />
+  <img src="Z:/picture/008/save_picture_311910.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311657.jpg" />
+  <img src="Z:/picture/008/save_picture_311657.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308331.jpg" />
+  <img src="Z:/picture/008/save_picture_308331.jpg" />
 </div>
 
 
@@ -376,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308145.jpg" />
+  <img src="Z:/picture/008/save_picture_308145.jpg" />
 </div>
 
 
@@ -402,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308136.jpg" />
+  <img src="Z:/picture/008/save_picture_308136.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307819.jpg" />
+  <img src="Z:/picture/008/save_picture_307819.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307579.jpg" />
+  <img src="Z:/picture/008/save_picture_307579.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307377.jpg" />
+  <img src="Z:/picture/008/save_picture_307377.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307231.jpg" />
+  <img src="Z:/picture/008/save_picture_307231.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306627.jpg" />
+  <img src="Z:/picture/008/save_picture_306627.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305664.jpg" />
+  <img src="Z:/picture/008/save_picture_305664.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305461.jpg" />
+  <img src="Z:/picture/008/save_picture_305461.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305434.jpg" />
+  <img src="Z:/picture/008/save_picture_305434.jpg" />
 </div>
 
 
@@ -625,60 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3FA329EE1CC3EF6811540FDBF9A5DFB6E7C2A53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960804   (305430) от 29.11.2015
-
-В.Н. Арефьев, С.К. Киселев | Основы теории управления и автоматики (2014) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие включает теоретический материал по дисциплинам «Основы автоматики» и «Основы теории управления», примеры решения задач, а также рекомендуемую литературу по курсу.
-Пособие разработано в соответствии с программой для студентов 3-го курса по направлению подготовки 230100.62 «Информатика и вычислительная техника».
- Изложенный материал может быть также полезен (   Читать дальше...   )Жанр: АвтоматикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B2E6A4D6BF49E0A394001553D840E9D3A294F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960818   (305281) от 29.11.2015
-
-Г.Ф. Быстрицкий | Общая энергетика (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приведены сведения о невозобновляемых и возобновляемых энергетических ресурсах, их характеристики; рассмотрены основы теплотехники: положения технической термодинамики и основы теплообмена. Даны схемы и принципы работы тепловых электрических станций, газотурбинных установок, АЭС; гидравлических и ветровых электрических станций. Представлено основное тепловое оборудование (   Читать дальше...   )Жанр: ЭнергетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE86498DAEDE9CCE331C235E801E41FE8E54014
 ```
 
 https://mybot314.ru/tekegram_catalog/

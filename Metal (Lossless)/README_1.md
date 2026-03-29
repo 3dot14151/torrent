@@ -1,3 +1,90 @@
+###  Публикация: 1854928   (1057645) от 20.02.2026
+
+Eternal Winter - Cosmic Blood, Cosmic Grail (2026) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1057645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Initiation (6:08)
+02. Templum Esoterika (5:11)
+03. Ancient Rite of Death and Honor (6:17)
+04. Cosmic Blood, Cosmic Grail (4:14)(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659737F70F4114D7D39DC1EB8D4B9AF81D554929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854536   (1057594) от 18.02.2026
+
+Avulsed - Phoenix Cryptobiosis (2025) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1057594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limbs Regeneration
+02. Lacerate To Dominate
+03. Blood Monolith
+04. Unrotted(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05F505EE5AF8D531E78693B0FB8EA81E6A7D9DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854573   (1057535) от 19.02.2026
+
+Asagraum - Potestas Magicum Diaboli (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1057535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Transformation (04:59)
+02. Black Triangle Temple (05:21)
+03. Leviathan (05:52)
+04. Gospel Of Ignition (06:20)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC73E00DF8176C5890BDB20624D9EA3D8336E9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854329   (1057254) от 18.02.2026
 
 Ian Highhill - A Hymn Among Gravestones (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal, Hard Rock>
@@ -6,7 +93,7 @@ Ian Highhill - A Hymn Among Gravestones (2026) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057254.jpg" />
+  <img src="Z:/picture/005/save_picture_1057254.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Megadeth - Megadeth (2026) [FLAC|Lossless|image + .cue] <Thrash Metal, Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057253.jpg" />
+  <img src="Z:/picture/005/save_picture_1057253.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Rotting Christ - 35 Years of Evil Existence (Live in Lycabettus) (2025) [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057250.jpg" />
+  <img src="Z:/picture/005/save_picture_1057250.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Wolfchant - Echoes of a Time Once Past (2026) [FLAC|Lossless|WEB-DL|tracks] <Pag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057219.jpg" />
+  <img src="Z:/picture/005/save_picture_1057219.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Manic Movement - Future Dreaming Self (2001) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057158.jpg" />
+  <img src="Z:/picture/005/save_picture_1057158.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Soldiers of Forgiveness - The Year of Aquarius: Only Poetry Lives Forever (2026)
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057153.jpg" />
+  <img src="Z:/picture/005/save_picture_1057153.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Unchosen Ones - Divine Power Flowing (2026) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057131.jpg" />
+  <img src="Z:/picture/005/save_picture_1057131.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Every King Has A Clown - Every King Has A Clown (2026) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057068.jpg" />
+  <img src="Z:/picture/005/save_picture_1057068.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Rotting Christ - Aealo (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057046.jpg" />
+  <img src="Z:/picture/005/save_picture_1057046.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Perdition Temple - Malign Apotheosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057044.jpg" />
+  <img src="Z:/picture/005/save_picture_1057044.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Worm - Necropalace (2026) [FLAC|Lossless|WEB-DL|tracks] <Blackened Death Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056849.jpg" />
+  <img src="Z:/picture/005/save_picture_1056849.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Slaughterday - Dread Emperor (2026) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056831.jpg" />
+  <img src="Z:/picture/005/save_picture_1056831.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Greyhawk - Warriors Of Greyhawk (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056366.jpg" />
+  <img src="Z:/picture/005/save_picture_1056366.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Metalodon - Exotica (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056265.jpg" />
+  <img src="Z:/picture/005/save_picture_1056265.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Wicked Smile - When Night Falls (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055996.jpg" />
+  <img src="Z:/picture/005/save_picture_1055996.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Epinikion - The Force Of Nature (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055648.jpg" />
+  <img src="Z:/picture/005/save_picture_1055648.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Induction - Love Kills! (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055643.jpg" />
+  <img src="Z:/picture/005/save_picture_1055643.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Tailgunner - Midnight Blitz (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055627.jpg" />
+  <img src="Z:/picture/005/save_picture_1055627.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Haken - Fauna (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055239.jpg" />
+  <img src="Z:/picture/005/save_picture_1055239.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Therion - Con Orquesta (Live in Mexico) (2026) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055236.jpg" />
+  <img src="Z:/picture/005/save_picture_1055236.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Backcraft - Faster Than You Run (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054817.jpg" />
+  <img src="Z:/picture/005/save_picture_1054817.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Nexion - Sundrung (2025) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054653.jpg" />
+  <img src="Z:/picture/005/save_picture_1054653.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ The Haunted - Songs Of Last Resort (2025) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054647.jpg" />
+  <img src="Z:/picture/005/save_picture_1054647.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ The Haunted - Songs Of Last Resort (2025) Japanese Edition [FLAC|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF4A54AD4A7908A3EEDB8DC4881CED5BE71B88F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850353   (1054174) от 27.01.2026
-
-Megadeth - Megadeth (2026) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054174.jpg" />
-</div>
-
-
-###  Подробнее
-
-У меня слабость к Megadeth. Среди так называемых классических групп это одна из немногих, которую я иногда могу слушать, не уставая; Я точно не могу сказать то же самое о многих других группах, с которыми вырос. Я ценю все записи группы в той или иной степени, и даже период Megadeth в 2000-х был удивительно крепким по сравнению с соперниками. Несмотря на несколько (   Читать дальше...   )01. Tipping Point 4:28
-02. I Don't Care 3:09
-03. Hey, God?!3:28
-04. Let There Be Shred 3:58(   Читать дальше...   )Жанр: ThrashПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85201FF16593D53B26C42D994401164DC0FFCA24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850028   (1054051) от 25.01.2026
-
-Fireborn - Dreamcatcher (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing with the Villain
-02. Set the World on Fire
-03. Point of No Return
-04. Likes for a Life(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC5154A276695B63771DDC32AB8D9432317EFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850037   (1053989) от 26.01.2026
-
-Poppy - Empty Hands (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Public Domain [00:04:00]
-02. Bruised Sky [00:03:40]
-03. Guardian [00:03:14]
-04. Constantly Nowhere [00:00:28](   Читать дальше...   )Жанр: Alternative-Metal, Metalcore, ElectronicПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E200C54957DD7EF4709B0B2D3BA40DDD07D95B
 ```
 
 https://mybot314.ru/tekegram_catalog/

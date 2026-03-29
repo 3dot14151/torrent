@@ -1,3 +1,169 @@
+###  Публикация: 247282   (412787) от 23.10.2010
+
+Парень из нашего города (1978) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_412787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тяжелые испытания выпали на долю молодого офицера Сергея Луконина: война в Испании, ранение, бегство из плена, бои на Халхин-Голе. Но он преодолевает все трудности, проявляя мужество, убежденность в правоте дела, за которое борется.
+В спектакле звучат стихи К.Симонова, М.Светлова, И.Уткина, К.Отрады, М.Кульчицкого, С.Гудзенко.
+Вступительное слово Марка Захарова и (   Читать дальше...   )Жанр: ДрамаРежиссер: Марк Захаров, Юрий МахаевАктеры: В. Проскурин, О. Янковский, Т. Дербенева, Л. Пономарева, А. ТульевПродолжительность: 01:28:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325532   (412249) от 15.09.2019
+
+Квартирник НТВ у Маргулиса. Группа Ария (14.09.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412249.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришла одна из самых успешных российских рок-групп современности — «Ария». История группы — это летопись становления целой жанровой культуры и хронология появления других известных, которые в своей тусовке называют «семейкой Арии». Визитной карточкой группы стали такие хиты, как «Беспечный ангел», «Штиль», «Потерянный рай», «Возьми мое (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FE665BFFBE726D079D94E42B8E07A05B3DCC76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265344   (411750) от 31.08.2022
+
+Лебединое озеро (Норвежский Национальный балет) / A swan Lake (2014) BDRemux [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной 2014 года Александр Экман представил собственную версию “Лебединого озера” в оперном театре города Осло. Это его первая полнометражная балетная постановка совместно с датским дизайнером Хенриком Вибсковым (Henrik Vibskov) и композитором Микаэлем Карлссоном (Mikael Karlsson). “Лебединое озеро” было представлено полными составами Национальной норвежской балетной (   Читать дальше...   )Производство: Нидерланды, Норвегия / Arthaus MusikЖанр: балетРежиссер: Джефф ТудорПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80F39C407445FC3AAB28DB42BFD1C45111B02A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947680   (411098) от 20.10.2015
+
+VA - Осенний марафон № 198 / Видеоклипы (Лучшая Дискотека  Россыпью) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (17.10.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. AOA - Oh Boy (Official Video) (00:04:25)
+02. Bielfield - Frequency (Official Video) (00:03:21)
+03. Corina Smith - La Difícil (Official Video) (00:03:16)
+04. Danielle Bradbery - Friend Zone (Official Video) (00:02:59)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Soul, DubstepПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4903100F533A3FF55E533127203DAF552F612A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559270   (409693) от 12.10.2012
+
+Linkin Park - Castle Of Glass (Featured in Medal of Honor Warfighter) (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: AlternativeПродолжительность: 00:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C6AF648336ADEE814BD995A2F102492D6D906C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 556976   (409681) от 12.10.2012
+
+Freddie Mercury And Montserrat Caballe - Barcelona (Special Edition Disc 3 - DVD) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409681.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента выхода одного из самых успешных соло синглов солиста легендарной группы Queen, Фредди Меркьюри (Freddie Mercury), прошло более 25 лет, но тем не менее альбом «Barcelona» не теряет своей популярности, и вот уже совсем скоро выходит новая специальная орекстровая версия этого легендарного альбома.
+
+Напомним, что сингл Barcelona записан совместно с легендарой (   Читать дальше...   )1. Barcelona - Ku Club Ibiza performance
+2. Barcelona - La Nit performance
+3. How Can I Go On - La Nit performance
+4. The Golden Boy - La Nit performance(   Читать дальше...   )Жанр: Classic Rock / OperaПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD86860149166F6F5DC748E8BFF8D39C2676780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559503   (409588) от 12.10.2012
 
 Рок'н'Ролл / Rock N Roll Meltdown (1988) DVDRip
@@ -6,7 +172,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409588.jpg" />
+  <img src="Z:/picture/008/save_picture_409588.jpg" />
 </div>
 
 
@@ -33,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409176.jpg" />
+  <img src="Z:/picture/008/save_picture_409176.jpg" />
 </div>
 
 
@@ -62,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408728.jpg" />
+  <img src="Z:/picture/008/save_picture_408728.jpg" />
 </div>
 
 
@@ -88,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408562.jpg" />
+  <img src="Z:/picture/008/save_picture_408562.jpg" />
 </div>
 
 
@@ -114,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408193.jpg" />
+  <img src="Z:/picture/008/save_picture_408193.jpg" />
 </div>
 
 
@@ -140,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408132.jpg" />
+  <img src="Z:/picture/008/save_picture_408132.jpg" />
 </div>
 
 
@@ -167,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407880.jpg" />
+  <img src="Z:/picture/008/save_picture_407880.jpg" />
 </div>
 
 
@@ -194,7 +360,7 @@ Rammstein - Live Aus Berlin (1998) DVDRip [H.264] [DE / DE, EN, RU Sub]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407666.jpg" />
+  <img src="Z:/picture/008/save_picture_407666.jpg" />
 </div>
 
 
@@ -223,7 +389,7 @@ Masami Okui - V-mode ~10th Anniversary~ Disc 2 (2003) DVDRip [H.264] [PR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407220.jpg" />
+  <img src="Z:/picture/008/save_picture_407220.jpg" />
 </div>
 
 
@@ -252,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406989.jpg" />
+  <img src="Z:/picture/008/save_picture_406989.jpg" />
 </div>
 
 
@@ -281,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406920.jpg" />
+  <img src="Z:/picture/005/save_picture_406920.jpg" />
 </div>
 
 
@@ -310,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406584.jpg" />
+  <img src="Z:/picture/008/save_picture_406584.jpg" />
 </div>
 
 
@@ -347,7 +513,7 @@ Lana Del Rey - Ride (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406556.jpg" />
+  <img src="Z:/picture/008/save_picture_406556.jpg" />
 </div>
 
 
@@ -373,7 +539,7 @@ Dreamshow - Animals (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406178.jpg" />
+  <img src="Z:/picture/008/save_picture_406178.jpg" />
 </div>
 
 
@@ -399,7 +565,7 @@ Gary Moore - The Definitive Montreux Collection (5 альбомов 1990-2001) (
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406088.jpg" />
+  <img src="Z:/picture/008/save_picture_406088.jpg" />
 </div>
 
 
@@ -428,7 +594,7 @@ Gin-n-Juice - Pornografiya (Uncensored) (2011) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406071.jpg" />
+  <img src="Z:/picture/008/save_picture_406071.jpg" />
 </div>
 
 
@@ -454,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405774.jpg" />
+  <img src="Z:/picture/008/save_picture_405774.jpg" />
 </div>
 
 
@@ -480,7 +646,7 @@ DJMask - Hymn Of Angel (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405647.jpg" />
+  <img src="Z:/picture/008/save_picture_405647.jpg" />
 </div>
 
 
@@ -506,7 +672,7 @@ Poshout feat Ange - Beside (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405610.jpg" />
+  <img src="Z:/picture/008/save_picture_405610.jpg" />
 </div>
 
 
@@ -532,7 +698,7 @@ Direct to Dreams - Adagio For Strings (Barber Remix 2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405601.jpg" />
+  <img src="Z:/picture/008/save_picture_405601.jpg" />
 </div>
 
 
@@ -543,165 +709,6 @@ Direct to Dreams - Adagio For Strings (Barber Remix 2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4CE15F4935AB2E80CED8750DDB771DC54FBD958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562328   (405599) от 19.10.2012
-
-Andrew Rayel ft. Jano - How Do I Know (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22DB0A0F1FA02858E14D351973102C2AD13E466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562322   (405472) от 19.10.2012
-
-Dancer Tryout - Mz Berry (Uncensored) (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: R&BПродолжительность: 00:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B12A07484DE18832D1CD609430F8FA42F2F2C23D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562341   (405470) от 19.10.2012
-
-Die Antwoord - Fatty Boom Boom (2012) [H.264/1080p-LQ] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648B3A5A91D62B0751075FCB1CFC548DAEDF3ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562338   (405428) от 19.10.2012
-
-Stockholm Syndrome - Pretty Girl (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectropopПродолжительность: 00:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315A6B5C4F2D2120FD27809AAF5DA3840C3B6575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395867   (404307) от 08.10.2011
-
-Кабаре Мулен Руж - Феерия / Bal du Moulin Rouge - Feerie (2008) DVDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мулен Руж (фр. Moulin Rouge, буквально «Красная мельница») — знаменитое классическое кабаре в Париже, построенное в 1889 году, одна из достопримечательностей французской столицы. В «Мулен Руж» собирались не только представители среднего класса, но и аристократы, люди искусства (Пикассо, Оскар Уайльд) и даже члены королевских семей, например, принц Уэльский. Главной (   Читать дальше...   )Жанр: Шоу, Спектакль, МюзиклПеревод: ОригинальныйСубтитры: НетПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10B988405CFE8023A02E8D031546E804CB1D1266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 712155   (404232) от 18.10.2013
-
-Tristeria - Epoka (clip) [H.264 720p](2013) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkness
-02. Ashrouk
-03. Liburnae
-04. I Love You (Dimitra)(   Читать дальше...   )Жанр: Музыкальный, New age, EnigmaticРежиссер: Kiruha5432101Продолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A14BF95914BF996D8CEBAF4A554C21C55FD820
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ ESET NOD32 Internet Security 15.0.18.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798335.jpg" />
+  <img src="Z:/picture/008/save_picture_798335.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Smultron 12 v12.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798320.jpg" />
+  <img src="Z:/picture/008/save_picture_798320.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ BusyCal 2021.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798319.jpg" />
+  <img src="Z:/picture/008/save_picture_798319.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ BusyContacts 1.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798316.jpg" />
+  <img src="Z:/picture/008/save_picture_798316.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ GoodNotes 5 v5.7.43 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798314.jpg" />
+  <img src="Z:/picture/008/save_picture_798314.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Menuwhere 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798311.jpg" />
+  <img src="Z:/picture/008/save_picture_798311.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798309.jpg" />
+  <img src="Z:/picture/008/save_picture_798309.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Magic Battery 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798308.jpg" />
+  <img src="Z:/picture/008/save_picture_798308.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Jeremy Olander - Vivrant Radio 023 (Quantum New York City, United States) (2021-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798306.jpg" />
+  <img src="Z:/picture/008/save_picture_798306.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ One Switch 1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798305.jpg" />
+  <img src="Z:/picture/008/save_picture_798305.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Amadine 1.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798303.jpg" />
+  <img src="Z:/picture/008/save_picture_798303.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Postico 1.5.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798302.jpg" />
+  <img src="Z:/picture/008/save_picture_798302.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Djs From Mars - Swiss Virtual Nights, Summer Festival 2021, Switzerland (2021-08
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798298.jpg" />
+  <img src="Z:/picture/008/save_picture_798298.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Geekbench 5 v5.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798288.jpg" />
+  <img src="Z:/picture/008/save_picture_798288.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Microsoft Edge 95.0.1020.40 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798277.jpg" />
+  <img src="Z:/picture/008/save_picture_798277.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Firefox Browser 94.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798276.jpg" />
+  <img src="Z:/picture/008/save_picture_798276.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ iVI Video Converter 4 v4.746 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798274.jpg" />
+  <img src="Z:/picture/008/save_picture_798274.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Opera GX 80.0.4170.91 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798268.jpg" />
+  <img src="Z:/picture/008/save_picture_798268.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Opera 81.0.4196.31 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798266.jpg" />
+  <img src="Z:/picture/008/save_picture_798266.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ PDFsam Basic 4.2.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798263.jpg" />
+  <img src="Z:/picture/008/save_picture_798263.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ reaConverter Pro 7.683 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798261.jpg" />
+  <img src="Z:/picture/008/save_picture_798261.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Acoustica Premium Edition 7.3.22 (x64) RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798260.jpg" />
+  <img src="Z:/picture/008/save_picture_798260.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Telegram Desktop 3.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798251.jpg" />
+  <img src="Z:/picture/008/save_picture_798251.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Mozilla FireFox 94.0.1.7977 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798250.jpg" />
+  <img src="Z:/picture/008/save_picture_798250.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ FinePrint Software (FinePrint 11.04 / pdfFactory Pro 8.04) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798241.jpg" />
+  <img src="Z:/picture/008/save_picture_798241.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Disk Drill Enterprise 4.6.370 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798237.jpg" />
+  <img src="Z:/picture/008/save_picture_798237.jpg" />
 </div>
 
 

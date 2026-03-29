@@ -1,3 +1,61 @@
+###  Публикация: 1371852   (887925) от 01.04.2020
+
+VA - Ремиксы 2К20 3 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.3-ий Январь - Юппи (Beloe Cloud Remix) (Radio Edit) (3:25)
+2.ANIVAR - Новый рассвет (ARROY & Sergey Raf Remix) (3:15)
+3.Bahh Tee feat. Люся Чеботина - Дисконнект (Fagira remix) (3:39)
+4.BARINOVA - Самый-самый (Maxim Keks Remix) (3:58)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 05:06:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A31B5EB9A54467C82F7FEC401A07A768FF8ACF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994920   (887892) от 09.03.2016
+
+VA - Record Super Chart № 426 (2016) Radio Record [MP3|128-320 кб/с] <Club House, Electro House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sander Van Doorn, MOTi - Lost
+02. KSHMR, Marnik - Bazaar!
+03. Scooter - Mary Got No Lamb
+04. Tiesto  Tony Junior - Get Down(   Читать дальше...   )Жанр: Club House, Electro House, DanceПродолжительность: 01:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92E4D2B5B8AF9B6A222ABF5455A93E6F5233998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494633   (887831) от 08.09.2021
 
 VA - Maniac Hard Dance (2021) [MP3|320 Kbps] <Club, Hard Dance, Hardstyle, Core Dance>
@@ -6,7 +64,7 @@ VA - Maniac Hard Dance (2021) [MP3|320 Kbps] <Club, Hard Dance, Hardstyle, Core 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887831.jpg" />
+  <img src="Z:/picture/005/save_picture_887831.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Beatport Electronic: Sound Pack #343 (2021) [MP3|320 Kbps] <Electronic, syn
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887819.jpg" />
+  <img src="Z:/picture/005/save_picture_887819.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Clubbing Dance House: Energy Playlist (2021) [MP3|320 Kbps] <Club, Dance, H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887746.jpg" />
+  <img src="Z:/picture/005/save_picture_887746.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - HGM: Organic House Deep Downtempo Mix (2021) [MP3|320 Kbps] <Deep House, Ch
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887745.jpg" />
+  <img src="Z:/picture/005/save_picture_887745.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Beatport Hard Techno: Sound Pack #342 (2021) [MP3|320 Kbps] <Techno, Minima
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887744.jpg" />
+  <img src="Z:/picture/005/save_picture_887744.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Break Of Day: Ambient & Chillout Mix (2021) [MP3|320 Kbps] <Chillout, Ambie
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887743.jpg" />
+  <img src="Z:/picture/005/save_picture_887743.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - The Lunar Disco, Vol.02 (2021) [MP3|320 Kbps] <Disco, Dance, Remix>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887735.jpg" />
+  <img src="Z:/picture/005/save_picture_887735.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - RADIO DED - Deep Space 1 - 17 (2010-2017) [MP3|320 Kbps] <Spacesynth, Space
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887330.jpg" />
+  <img src="Z:/picture/005/save_picture_887330.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Beatport Psychedelic Trance: Electro Sound Pack #44 (2020) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887272.jpg" />
+  <img src="Z:/picture/005/save_picture_887272.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Beatport Progressive House: Electro Sound Pack #40 (2020) [MP3|320 Kbps] <P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887188.jpg" />
+  <img src="Z:/picture/005/save_picture_887188.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Beatport Funky House: Electro Sound #42 (2020) [MP3|320 Kbps] <Funky, Disco
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887145.jpg" />
+  <img src="Z:/picture/005/save_picture_887145.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Spring Holiday Party: Electro House Selections (2020) [MP3|320 Kbps] <House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887117.jpg" />
+  <img src="Z:/picture/005/save_picture_887117.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Luxury Deep House: Beats Session (2020) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887078.jpg" />
+  <img src="Z:/picture/005/save_picture_887078.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Top50: Tracks Deep House Ver.20 (2020) [MP3|320 Kbps] <House, Deep House, E
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886378.jpg" />
+  <img src="Z:/picture/005/save_picture_886378.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Planet of Chillout: Fifteen Organic Downtempo and Chillout Tracks (2017) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886074.jpg" />
+  <img src="Z:/picture/005/save_picture_886074.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Empire Records - Chill Out 11 (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885908.jpg" />
+  <img src="Z:/picture/005/save_picture_885908.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Trance Energy  Sounds (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harm
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885796.jpg" />
+  <img src="Z:/picture/005/save_picture_885796.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Tears For Fears - 25 Best Songs (2014) [MP3|~245 кб/с]<Synthpop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884918.jpg" />
+  <img src="Z:/picture/005/save_picture_884918.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Electro Life 24 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Electro Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_884842.jpg" />
+  <img src="Z:/picture/008/save_picture_884842.jpg" />
 </div>
 
 
@@ -556,7 +614,7 @@ VA - Soulful Nights-The Dance Music Playlist (2016) [MP3|320 кб/с] <Nu Disco,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884796.jpg" />
+  <img src="Z:/picture/005/save_picture_884796.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ VA - Chill House Diamonds Vol.2 (2016) [MP3|320 кб/с] <Deep House, Chill Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884752.jpg" />
+  <img src="Z:/picture/005/save_picture_884752.jpg" />
 </div>
 
 
@@ -614,7 +672,7 @@ VA - Coming Personal Holiday - Promotion (2016) [MP3|203-320 кб/с] <UK Garage
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884717.jpg" />
+  <img src="Z:/picture/005/save_picture_884717.jpg" />
 </div>
 
 
@@ -643,7 +701,7 @@ VA - Vocal Tech House: Party March (2016) [MP3|320 кб/с] <Vocal, Tech House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884710.jpg" />
+  <img src="Z:/picture/005/save_picture_884710.jpg" />
 </div>
 
 
@@ -672,7 +730,7 @@ VA - Dance 2017  [MP3|320 Kbps] <Electronic, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883647.jpg" />
+  <img src="Z:/picture/005/save_picture_883647.jpg" />
 </div>
 
 
@@ -686,64 +744,6 @@ VA - Dance 2017  [MP3|320 Kbps] <Electronic, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BA4BCE468C19138B7800885EFF2C79BFAB9C3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995744   (883107) от 12.03.2016
-
-VA - Glamour Beach & Apero (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blu X - Human Life [03:21]
-02. Summer House - Perfidiax [04:07]
-03. Music of Life - Rayba Vagy [04:43]
-04. Connections - Island Dalmo [05:58](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A72C8F6E140A0DE70979FDF1AEF681C9DE5C1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995729   (883101) от 12.03.2016
-
-VA - Sunrise Lovers Vol.3: 20 Relaxing Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Rodgers - Endless Love - Original Mix
-02. Jessica Hathaway - Fly to the Sky - Bonus Track
-03. Lounge Surfers - Sunrise - Original Mix
-04. Sarah Martin - Give It Up - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6B13F2D5EEF37595A5E6BC3589D3237672B6AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

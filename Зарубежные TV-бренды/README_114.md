@@ -1,3 +1,107 @@
+###  Публикация: 1346262   (164093) от 18.12.2019
+
+BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World of Wonder (2017) HDTVRip [H.264/1080i] (дополнительная 7-я серия) [VO]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заключительная 7-я серия мини-сериала «Планета Земля 2» с Дэвидом Аттенборо, представляет собой полнометражный документальный фильм, который вобрал в себя самые интересные сюжеты из шести предыдущих серий о самых уникальных, малоизученных и красивейших пейзажей и заповедных уголков Земли. Это поистине Мир чудес...Производство: Великобритания, BBC America, BBC Television Centre, Zweites Deutsches Fernsehen (ZDF)Жанр: Документальный, природа, путешествие, исследованиеРежиссер: Элизабет УайтПеревод: Одноголосый закадровый, любительский (Lord32x)Субтитры: Русские (Ю.Онищенко aka Logos71), английскиеПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54DD2FBCB7CF41B208908149C1ECA66470902B07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517060   (164084) от 13.12.2021
+
+Discovery: Последние тайны долины Царей / Valley of the Kings: The Lost Tombs (2021) WEBRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда ведущих экспертов проводит раскопки в восточной и западной Долинах царей, чтобы открыть их последние тайны и составить подробную карту и являются хроникой крупнейших раскопок в Египте за 100 лет. Доктор Захи Хавасс исследует печально известную Долину царей в поисках сокровищ королевы Нефертити среди других бесценных артефактов из Нового Королевства.Производство: Великобритания / Blink FilmsЖанр: Документальный, ИсторияРежиссер: Катерина ТуррониПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8DA48B8038C8FA6CAA9633096BB64B7281DFF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598025   (163837) от 17.12.2022
+
+BBC. История Вселенной (Наша Вселенная) / Our Universe (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Насколько большая наша Вселенная? Есть ли жизнь на других планетах? Какие тайны хранят в себе космические просторы? Этими вопросами человечество задаётся уже много столетий, но найти точные ответы на них невозможно. Приоткрыть занавес над тайнами космоса помогут лучшие фильмы про вселенную, снятые в художественном и документальном жанре. Конечно, в художественном (   Читать дальше...   )Производство: США, BBC StudiosЖанр: Документальный, природа, наука, исследованиеРежиссер: Наоми Остин, Стивен Кутер, Элис ДжонсПеревод: ДублированныйЯзык озвучки: Русский, украинский, английскийСубтитры: Русские, английские, украинские и др. (см.Mediainfo)Продолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7278DD2E187DAD43ED688EECA6E56D2A3DEA02B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431192   (163599) от 17.12.2020
+
+Discovery. Насекомые "Чужие" (Молящийся Богомол) / Alien Insect Praying Mantis (2001) HDTV [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Богомолы (Mantodea, или Mantoptera), отряд хищных насекомых; близки к таракановым. Наиболее характерный признак Б. – устройство передней пары ног, вооружённых сильными шипами и служащих для захватывания добычи. Переднегрудь сильно удлинена; голова очень подвижна, что позволяет Б. следить за движениями намеченной жертвы. Крылья обычно вполне развиты, но у некоторых (   Читать дальше...   )Производство: США, Германия, Австрия, Discovery Channel, DOCSTAR, ZDF, ORFЖанр: документальный, природаПеревод: ДублированныйСубтитры: Русские (forced на непереведенные фрагменты)Продолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2C89FFA8A924CEE052A5376CF235A2182154156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346456   (163448) от 19.12.2019
 
 Европа с высоты птичьего полета / Europe From Above (2019) HDTVRip [H.264/1080i-LQ] (серии 1-6 из 6)
@@ -6,7 +110,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163448.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG. Экстремальное путешествие: Вторая мирова
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163345.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Добро пожаловать на Землю / Welcome to Earth (2021) WE
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162504.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162385.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162132.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160009.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159543.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158871.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158797.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158639.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Nat Geo Wild: Дикая Австралия / Wild Australia [серии 1-4 и�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158056.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158008.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG. Великолепные лошади / The Noble Horse (1999) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158006.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157813.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Discovery: Разрушители легенд / MythBusters (2015) SATRip  (с�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157675.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NGW: Дикие места Африки. Величайшие архитекто
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157309.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NGW: Дикая природа Великобритании / Wild Great Britain
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157140.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157110.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157062.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157046.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NGW: Море теней / Sea of Shadows (2019) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156835.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156138.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92E57A8708442E7811B575619E583F5931B19BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433599   (156038) от 21.12.2020
-
-Мир природы: Слоны - долгая дорога домой / Natural World. Elephants Without Borders (2009) HDTVRip [H.264/720p] (сезон 27, серия 11)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слонам в Ботсване живется хорошо, даже очень хорошо! Но местное население обеспокоено этим благополучием, поскольку считает, что такое количество слонов представляет потенциальную угрозу их жилищам и огородам... Они считают, что 60 000 слонов нужно просто убить. Ученый Майк Чейз занимается изучением этих могучих животных. С помощью современной телеметрической аппаратуры (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)&Animal PlanetЖанр: Документальный, природа, фаунаРежиссер: Майк ХолдингПеревод: Одноголосый закадровый, профессиональный (Селена Интернешнл)Субтитры: АнглийскиеПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0459B0816868234186620311C187AE3D6BA516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430104   (155631) от 21.12.2020
-
-Восемь смертных грехов (2020) WEB-DL [H.264/1080p] (серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл документальных передач посвящён 8 смертным грехам современного цивилизованного человечества. Все эти грехи описал в своей книге "Оборотная сторона зеркала" в 1973 году нобелевский лауреат, австрийский учёный Конрад Лоренц. Главный вопрос, на который пытаются найти ответ учёные всего мира, красной нитью проходит через все 8 серий - "Куда движется (   Читать дальше...   )Производство: Россия, т/к "Россия-Культура", ВГТРК, ООО "Под знаком Пи"Жанр: Документальный, цивилизацияРежиссер: Михаил КузовенковЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 8 x ~00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C830D30682E184463532D917EEDD24DF8D296900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521662   (155568) от 23.12.2015
-
-BBC: Зачем нам Луна? / Do We Really Need the Moon? (2012) SATRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155568.jpg" />
-</div>
-
-
-###  Подробнее
-
-В солнечной системе немало спутников, но наша Луна уникальна. Она оказывает огромное влияние на Землю, поддерживает стабильность нашего Мира. Что стало бы с нами если бы не Луна?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A7551043D13E1DDFC1FD8BFE8892D4ECE86E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600728   (155565) от 28.12.2022
-
-NG: Расследования Авиакатастроф / Спецвыпуск / Air Crash Investigation (2021) WEB-DLRip [H.264/720p-LQ] (сезон 4, серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реконструкция реальных воздушных катастроф, интервью с авиационными специалистами и очевидцами происшествий.Производство: Канада, Cineflix Productions, Galaxie Productions, NF Inc.Жанр: документальный, история, реальное ТВРежиссер: Тим Волочатюк, Джордж Д’Амато, Su RynardПеревод: Одноголосый профессиональный - Студия «Велес»Язык озвучки: русскийПродолжительность: каждая серия ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0CD2C335556FF0D08CA66619328C333EFCB8DF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

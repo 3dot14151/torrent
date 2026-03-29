@@ -1,3 +1,55 @@
+###  Публикация: 102580   (254691) от 29.04.2023
+
+Рафферти (1980) TVRip (сезон 1, серии 1-3 из 3)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254691.jpg" />
+</div>
+
+
+###  Подробнее
+
+По одноименному роману Лайнела Уайта. История профсоюзного лидера Джека Рафферти - история жизни и карьеры человека, превратившегося из «славного парня» в циничного, беспринципного босса, служащего двум богам - большому бизнесу и преступному миру.Производство: СССР / Киностудия «Ленфильм». Творческое объединение телевизионных фильмовЖанр: драмаРежиссер: Семён АрановичАктеры: Олег Борисов, Евгения Симонова, Армен Джигарханян, Александр Кайдановский, Лариса Малеванная, Витаутас Паукште, Константин Адашевский, Владимир Зельдин, Алексей Рессер, Юрис СтренгаСубтитры: ОтсутствуютПродолжительность: 01:03:37+01:04:55+01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B904356C51A304E7B11423534652B5C3B68DAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537508   (249872) от 19.03.2022
+
+Мираж (1983) DVBRip [H.264] (серии 1-3 из 3) [Remastered AI]
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказавшись в жизненном тупике, герои фильма решаются на дерзкое преступление. Они верят, что большие деньги принесут им свободу и счастье. Но обмануть насмешницу-судьбу не так-то просто - надежды оказываются призрачными, как мираж в пустыне.Производство: Гостелерадио, Рижская киностудияЖанр: триллер, криминалРежиссер: Алоиз БренчАктеры: Мирдза Мартинсоне, Мартиньш Вилсонс, Регимантас Адомайтис, Интс Буранс, Борис Иванов, Андрис Берзиньш, Янис Клушс, Паул Буткевич, Бронислав Лизбовскис, И. КруминьшСубтитры: ОтсутствуютПродолжительность: 01:07:08 + 01:09:40 + 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB121C7D2E0D95C9632807995CFEE415052CFC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 111826   (247807) от 04.06.2023
 
 Вечный зов (1973 - 1983) DVDRip (сезоны 1-2, серии 1-19 из 19)
@@ -6,7 +58,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247807.jpg" />
+  <img src="Z:/picture/004/save_picture_247807.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247779.jpg" />
+  <img src="Z:/picture/004/save_picture_247779.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247701.jpg" />
+  <img src="Z:/picture/004/save_picture_247701.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247635.jpg" />
+  <img src="Z:/picture/004/save_picture_247635.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247625.jpg" />
+  <img src="Z:/picture/004/save_picture_247625.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247490.jpg" />
+  <img src="Z:/picture/004/save_picture_247490.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243398.jpg" />
+  <img src="Z:/picture/004/save_picture_243398.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237579.jpg" />
+  <img src="Z:/picture/004/save_picture_237579.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236759.jpg" />
+  <img src="Z:/picture/005/save_picture_236759.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235030.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234867.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218768.jpg" />
+  <img src="Z:/picture/005/save_picture_218768.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212443.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212291.jpg" />
+  <img src="Z:/picture/005/save_picture_212291.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210431.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208815.jpg" />
+  <img src="Z:/picture/005/save_picture_208815.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208160.jpg" />
+  <img src="Z:/picture/005/save_picture_208160.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203320.jpg" />
+  <img src="Z:/picture/004/save_picture_203320.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203075.jpg" />
+  <img src="Z:/picture/004/save_picture_203075.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202791.jpg" />
+  <img src="Z:/picture/004/save_picture_202791.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202342.jpg" />
+  <img src="Z:/picture/004/save_picture_202342.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202135.jpg" />
+  <img src="Z:/picture/004/save_picture_202135.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201504.jpg" />
+  <img src="Z:/picture/005/save_picture_201504.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201371.jpg" />
+  <img src="Z:/picture/005/save_picture_201371.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05288AD8E07BB2212C1693A642DEC7AF3D657698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564421   (199089) от 29.04.2023
-
-Рафферти (1980) SATRip (сезон 1, серии 1-3 из 3)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199089.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименному роману Лайнела Уайта. История профсоюзного лидера Джека Рафферти - история жизни и карьеры человека, превратившегося из «славного парня» в циничного, беспринципного босса, служащего двум богам - большому бизнесу и преступному миру.Производство: СССР / Киностудия «Ленфильм». Творческое объединение телевизионных фильмовЖанр: драмаРежиссер: Семён АрановичАктеры: Олег Борисов, Евгения Симонова, Армен Джигарханян, Александр Кайдановский, Лариса Малеванная, Витаутас Паукште, Константин Адашевский, Владимир Зельдин, Алексей Рессер, Юрис СтренгаСубтитры: ОтсутствуютПродолжительность: 01:03:54+01:05:11+01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3465849E797E50195A3000463E33ED7D703906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442495   (197389) от 06.06.2023
-
-Цыган (1979) DVDRemux (серии 1-4 из 4)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая деревенская женщина, Клавдия Пухлякова, находит у раздавленной танками кибитки цыганского мальчика. Пожалев ребенка, она берет его домой и растит как собственного сына. Проходит 17 лет. Однажды в селе появляется цыган Будулай, одинокий, много переживший человек. Он очень быстро завоевывает симпатии приемного сына Пухляковой. Подозревая, что Будулай и есть (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: ДрамаРежиссер: Александр БланкАктеры: Михай Волонтир, Клара Лучко, Алексей Никульников, Ольга Жулина, Нина Русланова, Майя Булгакова, Леонид Неведомский, Матлюба Алимова, Соня Тимофеева, Рудик ОвсепянСубтитры: Русские, эстонские, латвийские, литовскиеПродолжительность: 01:35:56 + 01:18:03 + 01:18:17 + 01:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E75714ECEAEF19FF57E3D7FD65594F6879D9F75
 ```
 
 https://mybot314.ru/tekegram_catalog/

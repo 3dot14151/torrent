@@ -1,3 +1,61 @@
+###  Публикация: 1581929   (237974) от 07.10.2022
+
+Four By Fate - Relentless (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. These Times Are Hard For Lovers
+02. Moonshine
+03. Hangin' On
+04. Levee Breach(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0054B50951F2D0B5113C8B990325B2293D4BF5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624733   (237968) от 08.04.2023
+
+Megaride - Mo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_237968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zio Stone [00:04:57]
+02. A Piedi Nudi [00:03:00]
+03. Must Ovèr [00:04:07]
+04. Rosso Marte [00:06:18](   Читать дальше...   )Жанр: Heavy Rock, Stoner, GrungeПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F70E21D680851F22C551DEA55F6EB3F5D585AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638456   (237963) от 08.06.2023
 
 Giants Dwarfs And Black Holes - In a Sandbox Full of Suns (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic Rock>
@@ -6,7 +64,7 @@ Giants Dwarfs And Black Holes - In a Sandbox Full of Suns (2023) [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237963.jpg" />
+  <img src="Z:/picture/004/save_picture_237963.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Wytch Hazel - IV: Sacrament (2023) [FLAC|Lossless|WEB-DL|tracks] <70's Hard, Hea
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237936.jpg" />
+  <img src="Z:/picture/004/save_picture_237936.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ The Golden Grass - Life Is Much Stranger (2023) [FLAC|Lossless|WEB-DL|tracks] <V
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237888.jpg" />
+  <img src="Z:/picture/004/save_picture_237888.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Joel Hoekstra's 13 - Running Games (2021) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237808.jpg" />
+  <img src="Z:/picture/004/save_picture_237808.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ MotorTrinken - 2 Albums (2017-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237661.jpg" />
+  <img src="Z:/picture/004/save_picture_237661.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ Hard Buds - Fire (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237649.jpg" />
+  <img src="Z:/picture/004/save_picture_237649.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ Eyes of Eva - Temptation (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237643.jpg" />
+  <img src="Z:/picture/004/save_picture_237643.jpg" />
 </div>
 
 
@@ -208,7 +266,7 @@ Smoke 'N' Flame - On Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237609.jpg" />
+  <img src="Z:/picture/004/save_picture_237609.jpg" />
 </div>
 
 
@@ -237,7 +295,7 @@ Wallner Vain, Will Wallner & Vivien Vain - Duel (2023) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237593.jpg" />
+  <img src="Z:/picture/004/save_picture_237593.jpg" />
 </div>
 
 
@@ -266,7 +324,7 @@ ASAP - Down The Wire (1990) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237552.jpg" />
+  <img src="Z:/picture/004/save_picture_237552.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Hostage - Black Sky Calling (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237522.jpg" />
+  <img src="Z:/picture/004/save_picture_237522.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ NormBreaker (NormBreäker) - The Beginning (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237433.jpg" />
 </div>
 
 
@@ -352,7 +410,7 @@ Michael Morales - Thump (1991) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237430.jpg" />
+  <img src="Z:/picture/005/save_picture_237430.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Matt Tebow - Premonitions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237425.jpg" />
 </div>
 
 
@@ -410,7 +468,7 @@ hManx - No Nails for Jesus (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237422.jpg" />
+  <img src="Z:/picture/005/save_picture_237422.jpg" />
 </div>
 
 
@@ -439,7 +497,7 @@ Space Paranoids - Badlands Ride (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237417.jpg" />
+  <img src="Z:/picture/005/save_picture_237417.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ Mid Sun - Depreciate (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237390.jpg" />
+  <img src="Z:/picture/005/save_picture_237390.jpg" />
 </div>
 
 
@@ -497,7 +555,7 @@ Big City - Sunwind Sails (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237376.jpg" />
+  <img src="Z:/picture/005/save_picture_237376.jpg" />
 </div>
 
 
@@ -526,7 +584,7 @@ Tetrao Urogallus - Gulo Gulo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237364.jpg" />
+  <img src="Z:/picture/005/save_picture_237364.jpg" />
 </div>
 
 
@@ -555,7 +613,7 @@ Animal Ion - Regression (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237362.jpg" />
+  <img src="Z:/picture/005/save_picture_237362.jpg" />
 </div>
 
 
@@ -584,7 +642,7 @@ Rob Queen - Rivers (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237357.jpg" />
+  <img src="Z:/picture/005/save_picture_237357.jpg" />
 </div>
 
 
@@ -613,7 +671,7 @@ Heroes And Monsters - Heroes and Monsters (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237346.jpg" />
+  <img src="Z:/picture/005/save_picture_237346.jpg" />
 </div>
 
 
@@ -642,7 +700,7 @@ The Flood - Hear Us Out (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237325.jpg" />
+  <img src="Z:/picture/005/save_picture_237325.jpg" />
 </div>
 
 
@@ -671,7 +729,7 @@ Leaflet - Something Beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237314.jpg" />
+  <img src="Z:/picture/005/save_picture_237314.jpg" />
 </div>
 
 
@@ -685,64 +743,6 @@ Leaflet - Something Beyond (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE13EF07FFB0DEA510586E3FF9605E066374CBE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606462   (237290) от 22.01.2023
-
-The Flaming Bullets - Endless Winter (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Winter (3:56)
-02. Run for Your Life (3:03)
-03. Bunch of Loneliness (2:46)
-04. Imposible Day (3:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD517C8A250E7389C929DFBB932A6D1D39CA2D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606463   (237282) от 22.01.2023
-
-Witchsister - Forever (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream of Me (5:11)
-02. Monster (3:23)
-03. Passenger (4:10)
-04. Talk Talk Talk (4:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA96C229A72C6C58E2FF8EDEA38A6C3B4EBD41B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

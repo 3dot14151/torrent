@@ -6,7 +6,7 @@ goPanel2 2.0.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602326.jpg" />
+  <img src="Z:/picture/008/save_picture_602326.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Mountain Duck 1.9.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601094.jpg" />
+  <img src="Z:/picture/008/save_picture_601094.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Blogo 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587727.jpg" />
+  <img src="Z:/picture/008/save_picture_587727.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Things 2.5.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586832.jpg" />
+  <img src="Z:/picture/008/save_picture_586832.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Bookends 13.2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583339.jpg" />
+  <img src="Z:/picture/008/save_picture_583339.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Chatty for Facebook 2.0.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580584.jpg" />
+  <img src="Z:/picture/008/save_picture_580584.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Printworks 2 v2.0.7 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580313.jpg" />
+  <img src="Z:/picture/008/save_picture_580313.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ FontAgent 7.2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574347.jpg" />
+  <img src="Z:/picture/008/save_picture_574347.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ PaintCode 3.3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574342.jpg" />
+  <img src="Z:/picture/008/save_picture_574342.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ TextExpander 5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571679.jpg" />
+  <img src="Z:/picture/008/save_picture_571679.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Clearview 1.9.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570811.jpg" />
+  <img src="Z:/picture/008/save_picture_570811.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ Things 3 v3.9.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568636.jpg" />
+  <img src="Z:/picture/008/save_picture_568636.jpg" />
 </div>
 
 
@@ -340,7 +340,7 @@ Tor Browser Bundle 8.5 [En/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568549.jpg" />
+  <img src="Z:/picture/008/save_picture_568549.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ CalendarPro for Google and Yahoo! 2.4.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565674.jpg" />
+  <img src="Z:/picture/008/save_picture_565674.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Coinverter – The Currency Converter 1.0.6 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565475.jpg" />
+  <img src="Z:/picture/008/save_picture_565475.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ FileMaker Pro 17 Advanced 17.0.7.700 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565262.jpg" />
+  <img src="Z:/picture/008/save_picture_565262.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Roadmap Planner - Strategic Planner, Product Ideas Accounting 1.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565053.jpg" />
+  <img src="Z:/picture/008/save_picture_565053.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Adobe Edge Animate CC 2015 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564164.jpg" />
+  <img src="Z:/picture/008/save_picture_564164.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Pochade 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563561.jpg" />
+  <img src="Z:/picture/008/save_picture_563561.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Essential Anatomy 5 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562723.jpg" />
+  <img src="Z:/picture/008/save_picture_562723.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Browser Care 3.1.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561681.jpg" />
+  <img src="Z:/picture/008/save_picture_561681.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ OmniPlan Pro 3 v3.12.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556890.jpg" />
+  <img src="Z:/picture/008/save_picture_556890.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Fantastical 2 - Calendar and Reminders 2.4.1 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556796.jpg" />
+  <img src="Z:/picture/008/save_picture_556796.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ CloudMagic Email 8.6.51 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556779.jpg" />
+  <img src="Z:/picture/008/save_picture_556779.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551896.jpg" />
+  <img src="Z:/picture/008/save_picture_551896.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ uTorrent 1.8.7 (42515) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550751.jpg" />
+  <img src="Z:/picture/008/save_picture_550751.jpg" />
 </div>
 
 

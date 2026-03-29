@@ -6,7 +6,7 @@ BlueStacks App Player 4.190.10.5004 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861700.jpg" />
+  <img src="Z:/picture/008/save_picture_861700.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Rufus 3.10 (Build 1642) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861690.jpg" />
+  <img src="Z:/picture/008/save_picture_861690.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ App Builder 2020.69 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861688.jpg" />
+  <img src="Z:/picture/008/save_picture_861688.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Infix PDF Editor Pro 7.5.1 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861687.jpg" />
+  <img src="Z:/picture/008/save_picture_861687.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Bahh Tee - Руки к щекам (2011) [MP3|320 kbps]<Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861677.jpg" />
+  <img src="Z:/picture/008/save_picture_861677.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861667.jpg" />
+  <img src="Z:/picture/008/save_picture_861667.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ SparkyLinux 3.3, 3.3.1 [i486, x86-64] 8xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861655.jpg" />
+  <img src="Z:/picture/008/save_picture_861655.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861634.jpg" />
+  <img src="Z:/picture/008/save_picture_861634.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VirtualBox 6.1.6 Build 137129 + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861620.jpg" />
+  <img src="Z:/picture/008/save_picture_861620.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Skype 8.59.0.77 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861617.jpg" />
+  <img src="Z:/picture/008/save_picture_861617.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ NVIDIA GeForce Desktop 445.87 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861615.jpg" />
+  <img src="Z:/picture/008/save_picture_861615.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Sweet Home 3D 6.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861606.jpg" />
+  <img src="Z:/picture/008/save_picture_861606.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861602.jpg" />
+  <img src="Z:/picture/008/save_picture_861602.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861600.jpg" />
+  <img src="Z:/picture/008/save_picture_861600.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Hockey Nations 2010 1.1 / 1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861587.jpg" />
+  <img src="Z:/picture/008/save_picture_861587.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861577.jpg" />
+  <img src="Z:/picture/008/save_picture_861577.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861542.jpg" />
+  <img src="Z:/picture/008/save_picture_861542.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Movavi Screen Recorder 11.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861537.jpg" />
+  <img src="Z:/picture/008/save_picture_861537.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Windows 8.1 6.3 (Build 9600.19678) (24in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861536.jpg" />
+  <img src="Z:/picture/008/save_picture_861536.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Total Commander 9.51 mak pack by mak [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861531.jpg" />
+  <img src="Z:/picture/008/save_picture_861531.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Kaspersky Internet Security 2020 20.0.14.1085 (h) (без KSC) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861530.jpg" />
+  <img src="Z:/picture/008/save_picture_861530.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ FPS Monitor 5230 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861459.jpg" />
+  <img src="Z:/picture/008/save_picture_861459.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861457.jpg" />
+  <img src="Z:/picture/008/save_picture_861457.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Kaspersky Total Security 2020 20.0.14.1085 (h) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861451.jpg" />
+  <img src="Z:/picture/008/save_picture_861451.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Advanced SystemCare Ultimate с Антивирусом 13.2.0.131 (акция CO
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861450.jpg" />
+  <img src="Z:/picture/008/save_picture_861450.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Uninstall Tool 3.5.10 Build 5670 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861439.jpg" />
+  <img src="Z:/picture/008/save_picture_861439.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Zloe Fly Music - Travel Girl (2011) [MP3|256 кб/с] <Electro House, Electro Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796992.jpg" />
+  <img src="Z:/picture/008/save_picture_796992.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ HyperSnap 8.16.02 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796991.jpg" />
+  <img src="Z:/picture/008/save_picture_796991.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Coolmuster iOS Assistant 2.0.133 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796968.jpg" />
+  <img src="Z:/picture/008/save_picture_796968.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Navicat Premium 12.0.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796964.jpg" />
+  <img src="Z:/picture/008/save_picture_796964.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ XMedia Recode 3.3.9.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796962.jpg" />
+  <img src="Z:/picture/008/save_picture_796962.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Cyberfox 46.0 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796959.jpg" />
+  <img src="Z:/picture/008/save_picture_796959.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Percussion Bullet - Future Accommodation (2006) [FLAC|Lossless]<Progressive Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796953.jpg" />
+  <img src="Z:/picture/008/save_picture_796953.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ VA - Prismatic Perceptions Vol 1 (Compiled by Axell Astrid) (2018) [MP3|320 Kbps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796944.jpg" />
+  <img src="Z:/picture/008/save_picture_796944.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796939.jpg" />
+  <img src="Z:/picture/008/save_picture_796939.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Avast Clear 11.2.2738.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796938.jpg" />
+  <img src="Z:/picture/008/save_picture_796938.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ SmartAlbums 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796937.jpg" />
+  <img src="Z:/picture/008/save_picture_796937.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Cookie 6.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796929.jpg" />
+  <img src="Z:/picture/008/save_picture_796929.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Tap Forms Organizer 5 v5.3.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796926.jpg" />
+  <img src="Z:/picture/008/save_picture_796926.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ MovieSherlock 6.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796923.jpg" />
+  <img src="Z:/picture/008/save_picture_796923.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ System Toolkit 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796922.jpg" />
+  <img src="Z:/picture/008/save_picture_796922.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ A Better Finder Attributes 7 v7.17 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796921.jpg" />
+  <img src="Z:/picture/008/save_picture_796921.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Stats 2.6.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796920.jpg" />
+  <img src="Z:/picture/008/save_picture_796920.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Nova 8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796918.jpg" />
+  <img src="Z:/picture/008/save_picture_796918.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ ExactScan Pro 21.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796915.jpg" />
+  <img src="Z:/picture/008/save_picture_796915.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ XnViewMP 0.89 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796914.jpg" />
+  <img src="Z:/picture/008/save_picture_796914.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796907.jpg" />
+  <img src="Z:/picture/008/save_picture_796907.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796900.jpg" />
+  <img src="Z:/picture/008/save_picture_796900.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ AMD Radeon Software Adrenalin Edition 18.1.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796896.jpg" />
+  <img src="Z:/picture/008/save_picture_796896.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Internet Download Manager 6.25 Build 16 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796885.jpg" />
+  <img src="Z:/picture/008/save_picture_796885.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796883.jpg" />
+  <img src="Z:/picture/008/save_picture_796883.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Tower 7 v7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796873.jpg" />
+  <img src="Z:/picture/008/save_picture_796873.jpg" />
 </div>
 
 

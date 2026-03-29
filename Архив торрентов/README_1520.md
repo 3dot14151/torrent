@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706746.jpg" />
+  <img src="Z:/picture/008/save_picture_706746.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ uTorrent Pro 3.4.3 Build 40208 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706733.jpg" />
+  <img src="Z:/picture/008/save_picture_706733.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tipard Blu-ray Player 6.1.58 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706731.jpg" />
+  <img src="Z:/picture/008/save_picture_706731.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - MECHANIZED! - SouthAmerican Infection 01 (2016) [MP3|320 Kbps] <Dark Electr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706730.jpg" />
+  <img src="Z:/picture/008/save_picture_706730.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706726.jpg" />
+  <img src="Z:/picture/008/save_picture_706726.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706724.jpg" />
+  <img src="Z:/picture/008/save_picture_706724.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Erugo Purakushi - CONTROL (2017) [MP3|320 Kbps] <Electronic, Ambient, IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706723.jpg" />
+  <img src="Z:/picture/008/save_picture_706723.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706720.jpg" />
+  <img src="Z:/picture/008/save_picture_706720.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706719.jpg" />
+  <img src="Z:/picture/008/save_picture_706719.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ SAP2000 Ultimate 19.1.0 build 1321 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706713.jpg" />
+  <img src="Z:/picture/008/save_picture_706713.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Any Video Converter Ultimate 6.1.3 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706712.jpg" />
+  <img src="Z:/picture/008/save_picture_706712.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ IObit Driver Booster Pro 9.2.0.178 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706703.jpg" />
+  <img src="Z:/picture/008/save_picture_706703.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ El Cazador de la Bruja / The Witch Hunter / Эль Касадор [2007, TV, 26 
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706663.jpg" />
+  <img src="Z:/picture/008/save_picture_706663.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Navicat Premium 11.2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706602.jpg" />
+  <img src="Z:/picture/008/save_picture_706602.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ PrintMyFonts 17.3.23 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706600.jpg" />
+  <img src="Z:/picture/008/save_picture_706600.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706593.jpg" />
+  <img src="Z:/picture/008/save_picture_706593.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Lubuntu*Pack 14.04.2 (апрель 2015) [i386 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706590.jpg" />
+  <img src="Z:/picture/008/save_picture_706590.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Peter Damm, Staatskapelle Dresden - W. A. Mozart - Konzert fur Horn und Orcheste
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706520.jpg" />
+  <img src="Z:/picture/008/save_picture_706520.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Exotic Wafture #15 (01.05.2011) [MP3|320 kbps]<Vocal Trance, Uplifting Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706517.jpg" />
+  <img src="Z:/picture/008/save_picture_706517.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ RonyaSoft CD DVD Label Maker 3.2.12 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706504.jpg" />
+  <img src="Z:/picture/008/save_picture_706504.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ ProPresenter 6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706497.jpg" />
+  <img src="Z:/picture/008/save_picture_706497.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ RonyaSoft Poster Designer 2.3.12 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706474.jpg" />
+  <img src="Z:/picture/008/save_picture_706474.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Tixati 2.53 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706470.jpg" />
+  <img src="Z:/picture/008/save_picture_706470.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ AIMP 4.13 Build 1895 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706395.jpg" />
+  <img src="Z:/picture/008/save_picture_706395.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Icecream Ebook Reader Pro 4.55 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706390.jpg" />
+  <img src="Z:/picture/008/save_picture_706390.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Rufus 2.15 (Build 1109) Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706388.jpg" />
+  <img src="Z:/picture/008/save_picture_706388.jpg" />
 </div>
 
 

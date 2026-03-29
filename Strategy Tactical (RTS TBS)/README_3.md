@@ -6,7 +6,7 @@ The Riftbreaker (2021) [Ru/Multi] (7526729) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827762.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Codex of Victory (2017) [Ru/Multi] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827522.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Anomaly: Korea (2013) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822072.jpg" />
+  <img src="Z:/picture/008/save_picture_822072.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ War Mongrels (2021) [Ru/Multi] (40797) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817198.jpg" />
+  <img src="Z:/picture/008/save_picture_817198.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blitzkrieg 2 Anthology / Антология Блицкриг 2 (2008) [Ru] (1.6.
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814678.jpg" />
+  <img src="Z:/picture/008/save_picture_814678.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) SteamRip R.G. Origins [Deluxe Ed
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814318.jpg" />
+  <img src="Z:/picture/008/save_picture_814318.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Survivor Squad: Gauntlets (2015) [En] (1.03) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812958.jpg" />
+  <img src="Z:/picture/008/save_picture_812958.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Royal Heroes (2016) [Ru/En] (1.700w) Repack ARMENIAC
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811060.jpg" />
+  <img src="Z:/picture/008/save_picture_811060.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Star Wolves 3: Civil War / Звездные Волки 2: Гражданская
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810928.jpg" />
+  <img src="Z:/picture/008/save_picture_810928.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Nomad Fleet (2016) [En/Es] (1.0) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809092.jpg" />
+  <img src="Z:/picture/008/save_picture_809092.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Anomaly: Warzone Earth / Аномалия: Поле битвы Земля (2011)
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808652.jpg" />
+  <img src="Z:/picture/008/save_picture_808652.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Anomaly Defenders (2014) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808651.jpg" />
+  <img src="Z:/picture/008/save_picture_808651.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Banner Saga (2014) [Ru/Multi] (2.18.08/dlc) License PROPHET [Gold Edition / 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805237.jpg" />
+  <img src="Z:/picture/008/save_picture_805237.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Super Robot Wars 30 (2021) [Multi] (7571902) License Fairlight
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802216.jpg" />
+  <img src="Z:/picture/008/save_picture_802216.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801944.jpg" />
+  <img src="Z:/picture/008/save_picture_801944.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Battle of Empires: 1914-1918 / Битва империй: 1914-1918 (2015) [Ru] 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801915.jpg" />
+  <img src="Z:/picture/008/save_picture_801915.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ XCOM: Chimera Squad (2020) [Ru/Multi] (1.0.0.46049) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800687.jpg" />
+  <img src="Z:/picture/008/save_picture_800687.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ The Banner Saga Collection (2014-2016) [Ru/Multi] (2.36.15/2.39.02) SteamRip Let
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799055.jpg" />
+  <img src="Z:/picture/008/save_picture_799055.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Call to Arms (2018) [Ru/Multi] (1.228.0/dlc) License CODEX [Ultimate Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798180.jpg" />
+  <img src="Z:/picture/008/save_picture_798180.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Void Eclipse (2021) [En] (1.00) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798048.jpg" />
+  <img src="Z:/picture/008/save_picture_798048.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Nantucket (2018) [En] (1.0a) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796728.jpg" />
+  <img src="Z:/picture/008/save_picture_796728.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796130.jpg" />
+  <img src="Z:/picture/008/save_picture_796130.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Age of Wonders: Planetfall (2019) [Ru/En] (1.300.41692/dlc) Repack Other s [Prem
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795739.jpg" />
+  <img src="Z:/picture/008/save_picture_795739.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Door Kickers: Action Squad (2018) [Ru/Multi] (1.2.13dlc1rc1) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794546.jpg" />
+  <img src="Z:/picture/008/save_picture_794546.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (2.61.03/dlc) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792796.jpg" />
+  <img src="Z:/picture/008/save_picture_792796.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ The Banner Saga 3 (2018) [Ru/Multi] (2.60.22/dlc) License GOG [Legendary Edition
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792724.jpg" />
+  <img src="Z:/picture/008/save_picture_792724.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1283500   (739844) от 17.02.2019
+
+Acker Bilk - The Love Album (1989) Pickwick Music [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_739844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall In Love [5:02]
+02. A Groovy Kind of Love [3:25]
+03. Velvet Nights [4:05]
+04. Could've Been [3:34](   Читать дальше...   )Жанр: Dixieland, Easy ListeningПродолжительность: 01:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D564ADBB972F22B653C9FEF73DDADAAD1D4234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283499   (739842) от 17.02.2019
+
+Mr. Acker Bilk - Gold (1993) San Juan [FLAC|Lossless|tracks + .cue] <Dixieland, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_739842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger on the Shore [2:50]
+02. I Want to Know What Love Is [4:04]
+03. I Just Called to Say I Love You [4:22]
+04. Hello [4:14](   Читать дальше...   )Жанр: Dixieland, Easy ListeningПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FB2B2E513A3B0CA836DD7B84133AD1AC11A1C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283502   (739837) от 17.02.2019
+
+Acker Bilk - The Greatest Hits of Acker Bilk (1990) 2CD [FLAC|Lossless|tracks + .cue] <Easy Listening, Traditional Jazz, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_739837.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Stranger On The Shore [3:20]
+02. Sailing [3:18]
+03. Bridge Over Troubled Waters [4:35](   Читать дальше...   )Жанр: Easy Listening, Traditional Jazz, DixielandПродолжительность: 02:29:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0FEA16B41D0A9AFA0BA8E7D9AC722DF6E2D6D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283445   (739780) от 17.02.2019
+
+Detour Doom Project - Detour Doom (2016) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Doom Jazz, Jazz Noir>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_739780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coney Island (5:32)
+02. Bay City Doom Jazz (5:22)
+03. Slow Doubt in Empty Room (6:42)
+04. Detour Doom (5:28)(   Читать дальше...   )Производство: Aquarellist - aquarel 33-16Жанр: Dark Jazz, Doom Jazz, Jazz Noir, Experimental, Future JazzПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BFB2DAB5F59F5E4EDB7096A571D028D8A5BA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283447   (739669) от 17.02.2019
 
 Detour Doom Project - Nothing Remains of Us (2016) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Doom Jazz, Jazz Noir>
@@ -6,7 +122,7 @@ Detour Doom Project - Nothing Remains of Us (2016) [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739669.jpg" />
+  <img src="Z:/picture/008/save_picture_739669.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Ray Alexander Sextet - Rain In June (1992) Nerus [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739378.jpg" />
+  <img src="Z:/picture/008/save_picture_739378.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Benny Goodman - The Quintessence: New York - Los Angeles - Stockholm (1935 - 195
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739373.jpg" />
+  <img src="Z:/picture/008/save_picture_739373.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Charlie Ventura - Runnin' Wild (1956) 1998, Simitar [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739082.jpg" />
+  <img src="Z:/picture/008/save_picture_739082.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Charlie Ventura Quartet & Quintet - Complete Verve Studio Sessions (1951 - 1952)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738819.jpg" />
+  <img src="Z:/picture/008/save_picture_738819.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ D'Sound - 25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Soul, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738795.jpg" />
+  <img src="Z:/picture/008/save_picture_738795.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Stanley Cowell Trio - Dancers In Love (2000) Venus Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738491.jpg" />
+  <img src="Z:/picture/008/save_picture_738491.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Massimo Farao' Trio - Luiza (2015) Venus Records [FLAC|Lossless|image + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738473.jpg" />
+  <img src="Z:/picture/008/save_picture_738473.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Hammond Organ Organized: Milestones Of Jazz Legends (1960 - 1962) 10CD, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738149.jpg" />
+  <img src="Z:/picture/008/save_picture_738149.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Joe Venuti & Earl Hines - Hot Sonatas (1975) 1998, Chiaroscuro Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737829.jpg" />
+  <img src="Z:/picture/008/save_picture_737829.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Ronnie Laws - Mirror Town (1986) [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737405.jpg" />
+  <img src="Z:/picture/008/save_picture_737405.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Bill Evans - Undercurrent (1962) 2CD, 2013, Not Now Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737393.jpg" />
+  <img src="Z:/picture/008/save_picture_737393.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Joe 'Fingers' Carr - Honky Tonk Hits (1997) Good Music [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736940.jpg" />
+  <img src="Z:/picture/008/save_picture_736940.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Youn Sun Nah - Waking World (2022) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736418.jpg" />
+  <img src="Z:/picture/008/save_picture_736418.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Henry Butler & Steven Bernstein - Viper's Drag (2014) Impulse! [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736383.jpg" />
+  <img src="Z:/picture/008/save_picture_736383.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Yusef Lateef - Four Classic Albums (1957 - 1961) 2014, 2CD, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736232.jpg" />
+  <img src="Z:/picture/008/save_picture_736232.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Dizzy Gillespie - Gettin' Dizzy (1956 - 1957) 2CD, 2010, Not Now Music [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735893.jpg" />
+  <img src="Z:/picture/008/save_picture_735893.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Art Blakey & The Jazz Messengers - The Quintessence: New-York - Paris (1947 - 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735748.jpg" />
+  <img src="Z:/picture/008/save_picture_735748.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Frank Morgan - A Lovesome Thing (1991) Antilles [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735487.jpg" />
+  <img src="Z:/picture/005/save_picture_735487.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Alex Sipiagin - Destinations Unknown (2011) Criss Cross Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735486.jpg" />
+  <img src="Z:/picture/008/save_picture_735486.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Freddie Hubbard - Fastball: "Live" At The Left Bank (1967) 2005, Hyena Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735484.jpg" />
+  <img src="Z:/picture/008/save_picture_735484.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ The Art Farmer Quartet - Warm Valley (1983) Concord Jazz [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735483.jpg" />
+  <img src="Z:/picture/008/save_picture_735483.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ The Art Farmer Quartet - Warm Valley (1983) Concord Jazz [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31197970887DD9F6F9EB0E7D9B69914267BF8239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776701   (735459) от 02.02.2025
-
-Don Patterson - The Genius Of The B-3 (1972) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesse Jackson [7:23]
-02. Theme from the Odd Couple [8:37]
-03. Lori [7:14]
-04. Theme from Love Story [9:59](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAFE5FECABD6F93D1FDDCCD6B76E32EBFD15ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528050   (735404) от 31.01.2022
-
-Trummy Young - 1944 - 1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Trombone Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood [3:35]
-02. Talk Of The Town [4:32]
-03. Good'n Groovy [3:04]
-04. Rattle And Roll [2:55](   Читать дальше...   )Жанр: Swing, Big Band, Trombone JazzПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C8B3017A7465EAD4E9B55C911C55C34E71AE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528309   (734983) от 01.02.2022
-
-Artie Shaw - 1941 - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Time The Dream's On Me [3:34]
-02. Blues In The Night [3:15]
-03. Nocturne [3:36]
-04. Rockin' Chair [3:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2C10B314A2AF4B3A7A3D1ED7F7706000792D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398837   (734806) от 28.07.2020
-
-Dave Brubeck - The Definitive Dave Brubeck on Fantasy, Concord Jazz, and Telarc (1942 - 2004) 2010, 2CD, Concord [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734806.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. I Found a New Baby [1:38]
-02. The Way You Look Tonight [3:04]
-03. (Back Home Again In) Indiana [2:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Piano JazzПродолжительность: 02:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0D1DB584192B259288C91AB5F45D68231E7FBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

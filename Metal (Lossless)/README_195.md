@@ -1,3 +1,90 @@
+###  Публикация: 1624559   (255482) от 06.04.2023
+
+Tytus - Roaming In Despair (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_255482.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The March Of The Unwilling
+2. Fistful Of Sand
+3. Gotta Keep Movin' (MC5 cover)
+4. Motori (Divlje Jagode cover)(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA1DBF085CDD11C377EB19F65976ED1A0CB36C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624545   (255481) от 06.04.2023
+
+Weedzard - Weedzard (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_255481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Mountain [00:06:57]
+02. Science [00:07:10]
+03. Facada [00:06:43]
+04. Wheels on Fire [00:02:29](   Читать дальше...   )Жанр: Stoner, Sludge, Doom MetalПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2763AF82541D4D7B83CA18B958EE022292EC0E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624456   (255480) от 06.04.2023
+
+Vatican Spectrum - Ave Satan (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_255480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Satan
+02. No! Woman No Die
+03. Liars
+04. Vatican Spectrum(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10C502A487EAE3DF71C7E357745AD93BF56FDBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624458   (255479) от 06.04.2023
 
 Solstafir - Kold (2009) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -6,7 +93,7 @@ Solstafir - Kold (2009) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255479.jpg" />
+  <img src="Z:/picture/005/save_picture_255479.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Viikate - Askel (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255477.jpg" />
+  <img src="Z:/picture/005/save_picture_255477.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Children of Bodom - Hexed (2019) Japanese Ed. [FLAC|Lossless|image + .cue] <Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255473.jpg" />
+  <img src="Z:/picture/005/save_picture_255473.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Turilli / Lione Rhapsody - Zero Gravity (Rebirth And Evolution) (2019) Japanese 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255472.jpg" />
+  <img src="Z:/picture/005/save_picture_255472.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Vaultwraith - Decomposing Spells (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255413.jpg" />
+  <img src="Z:/picture/005/save_picture_255413.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Numenor - Tales From The Edge Of Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255412.jpg" />
+  <img src="Z:/picture/005/save_picture_255412.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Fifth Angel - 3 albums, 4CD (1986-2018) [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255411.jpg" />
+  <img src="Z:/picture/005/save_picture_255411.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Hoplites (Oplitis) - Trothisomeni (2023) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255342.jpg" />
+  <img src="Z:/picture/005/save_picture_255342.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ King Diamond - The Puppet Master (2003) Reissue, 2013, Metal Blade Records [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255337.jpg" />
+  <img src="Z:/picture/005/save_picture_255337.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Vision Divine - When All The Heroes Are Dead (2019) 2xCD, Japanese Edition [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255297.jpg" />
+  <img src="Z:/picture/005/save_picture_255297.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Powerwolf - Interludium (2023) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255236.jpg" />
+  <img src="Z:/picture/005/save_picture_255236.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Magnus Karlsson’s Free Fall - Hunt the Flame (2023) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255235.jpg" />
+  <img src="Z:/picture/005/save_picture_255235.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Overkill - Scorched (2023) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255195.jpg" />
+  <img src="Z:/picture/005/save_picture_255195.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Lost in Grey - The Waste Land (2019) [FLAC|Lossless|image + .cue] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255133.jpg" />
+  <img src="Z:/picture/005/save_picture_255133.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Manntra - Kreatura (2022) [FLAC|Lossless|image + .cue] <Industrial Metal, Folk M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255130.jpg" />
+  <img src="Z:/picture/005/save_picture_255130.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Kamelot - The Awakening (2023) [FLAC|Lossless|image + .cue] <Power Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255122.jpg" />
+  <img src="Z:/picture/005/save_picture_255122.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Tracii Guns - Killing Machine (1998) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255085.jpg" />
+  <img src="Z:/picture/005/save_picture_255085.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Afsky - Om hundrede år (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254784.jpg" />
+  <img src="Z:/picture/005/save_picture_254784.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Alcyone - Cult of Kukulkan (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254782.jpg" />
+  <img src="Z:/picture/005/save_picture_254782.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Antagonism - First in, First Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254781.jpg" />
+  <img src="Z:/picture/005/save_picture_254781.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ All Against - The Day of Reckoning (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254780.jpg" />
+  <img src="Z:/picture/005/save_picture_254780.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Aríht (Ariht)  - The Path (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254754.jpg" />
+  <img src="Z:/picture/005/save_picture_254754.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Ronnie James Dio - 29 альбомов, 4 Box Set (1983 - 2022) 97 CD [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254521.jpg" />
+  <img src="Z:/picture/005/save_picture_254521.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Ronnie James Dio - 29 альбомов, 4 Box Set (1983 - 2022) 97 CD [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B8F874C4CF51D1C172944C073AACEDD7D9A4159
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836627   (254339) от 11.11.2025
-
-Flesh Remains - Tales of Ruin (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless War for Dissolution, Darkness and Chaos against Light and Order 4:17
-02. Son of Rome 2:56
-03. Celtic at Heart 3:27
-04. Soothing the Bloodthirsty Goddess for the Salvation of Mankind 3:49(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B3D55D7F5FAEA6116A763AEB45A7FE1FC179DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836706   (254194) от 12.11.2025
-
-Wretched - Decay (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Decay (5:27)
-02. Malus Incarnate (3:22)
-03. The Royal Body (4:55)
-04. The Crimson Sky (4:58)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 01:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FC713242F2F5ABDA7E03A1A52D17C9D142FF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 656975   (254144) от 12.11.2025
-
-Adestria - Chapters (2012) [FLAC|Lossless]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Compromised
-02. 1984
-03. Whiskey For The Soul
-04. The Odyssey(   Читать дальше...   )Тип издания: АльбомЖанр: MetalcoreПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59B930D0B01C8C695A8BC89196FC3760C20EDDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

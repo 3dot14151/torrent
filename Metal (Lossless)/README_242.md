@@ -1,3 +1,90 @@
+###  Публикация: 1644918   (232058) от 08.07.2023
+
+Shining of Kliffoth - Twilight of Sehemeah (2000) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:52)
+02. Hellwards - Into the Infernal (04:20)
+03. Luciferian Landshapes (03:51)
+04. Under the Sunshield (06:25)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2DA2F6508AC3EB602F517A1D9F5A5423339567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646559   (232055) от 15.07.2023
+
+Razor - Open Hostility (1991) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Protest
+02. Sucker For Punishment
+03. Bad Vibrations
+04. Road Gunner(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703015939A8B577A84111AFE31DB532394B7F3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645141   (232052) от 08.07.2023
+
+Blackscape - Suffocated By The Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waste Of Humanity (3:51)
+02. Bow To Me (4:47)
+03. Suffocated By The Sun (5:25)
+04. Enslaved (6:32)(   Читать дальше...   )Жанр: Thrash Death MetalПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42EA42F71423C18407E375582578562F22C9B6D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1644955   (232044) от 08.07.2023
 
 Sorcier des Glaces - Sous la lune noire (2023) Compilation [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
@@ -6,7 +93,7 @@ Sorcier des Glaces - Sous la lune noire (2023) Compilation [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232044.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Unchosen Ones - Sorrow Turns to Dust (2023) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232043.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Unborn Prophecy - Waking Our Ancient Memories (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232038.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Crimson Day - Crimson Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232036.jpg" />
+  <img src="Z:/picture/005/save_picture_232036.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Ulfud - Of Existential Distortion (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232031.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Todd La Torre - Rejoice in the Suffering (2021) [FLAC|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232020.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Tokyo Blade - Fury (2022) [FLAC|Lossless|image + .cue] <NWOBHM, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231993.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Rosslyn - Soul in Sanctuary (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231941.jpg" />
+  <img src="Z:/picture/005/save_picture_231941.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Freedom Call - The M.E.T.A.L. Fest (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231935.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Predatory Void - Seven Keys to the Discomfort of Being (2023) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231922.jpg" />
+  <img src="Z:/picture/005/save_picture_231922.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ All For Metal - Legends (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231900.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Ghost - Phantomime (2023) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231898.jpg" />
+  <img src="Z:/picture/004/save_picture_231898.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Kim Dracula - A Gradual Decline In Morale (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231895.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Vendetta - Black As Coal (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231885.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ The Design Abstract - Transhuman Ascendant (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231879.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Tailgunner - Guns For Hire (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231869.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ The Three Tremors - Guardians of the Void (2021) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231861.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Within Temptation - Wireless (2023)  [FLAC 2.0|24/96|WEB-DL|tracks] <Symphonic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231843.jpg" />
+  <img src="Z:/picture/004/save_picture_231843.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Noturnall - Cosmic Redemption (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231833.jpg" />
+  <img src="Z:/picture/004/save_picture_231833.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Evile - The Unknown (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231829.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Unfelled - Pall of Endless Perdition (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231794.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Ross the Boss - Legacy of Blood, Fire & Steel (2023) Compilation [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231791.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Veilburner - VLBRNR (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231790.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Veilburner - VLBRNR (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:641F474312FEBD03E4EBD7941B4E704FB3BBB0D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646930   (231788) от 16.07.2023
-
-Usnea - Portals Into Futility (2017) [FLAC|Lossless|WEB-DL|tracks] <Blackened Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eidolons and the Increate (11:56)
-02. Lathe of Heaven (09:45)
-03. Demon Haunted World (06:34)
-04. Pyrrhic Victory (08:26)(   Читать дальше...   )Жанр: Blackened Funeral Doom MetalПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0737B0A15BB1666F9B8B092BAFB76F25538F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400439   (231787) от 02.10.2022
-
-Grave Digger - 25 Albums, 6 EP, 46 CD (1984-2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарная хэви-метал группа с мрачным названием "Grave Digger" была образована в 1980 году на западе Германии, в городке Гладбек (Gladbeck). 18-ти летний Chris Boltendahl (их бессменный лидер) решил дать название своей группе Grave Digger («Могильщик»), что по его мнению, было отличным названием для группы, играющей Heavy metal. Поначалу деятельность (   Читать дальше...   )--------------------------
-
-01. Hellryder (3:22)
-02. Sacrifice In Paradise (3:02)(   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Speed Metal |Продолжительность: 39:15:32 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CBF70AAEFD185ACB4D3DD607F8189030ACB2CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646909   (231780) от 16.07.2023
-
-Midnight Chaser - Rough And Tough (2011) [WavPack|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awesome Party (03:10)
-02. Out On Your Shield (03:12)
-03. Rough And Tough (04:55)
-04. Swords For Hire (04:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD5DBDB68F1D42F7ACA5BA8ECCCF3A9837BEDE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

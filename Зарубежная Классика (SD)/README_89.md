@@ -1,3 +1,85 @@
+###  Публикация: 1416589   (321774) от 03.11.2020
+
+Северная звезда / L'etoile du Nord (1982) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдуар возвращается в Европу из Египта, где прожил в доме одной странноватой особы несколько лет, увозя от нее прощальный подарок - кольцо с драгоценным камнем, которое и является всем его состоянием, продав которое он рассчитывает обзавестись каким-нибудь бизнесом. На пароходе он знакомится с танцовщицей Сильви, знакомит ее с богатым египтянином Немродом.
+Пересев (   Читать дальше...   )Производство: Франция / Films A2, Sara FilmsЖанр: Триллер, Драма, КриминалРежиссер: Пьер Гранье-ДеферАктеры: Симона Синьоре, Филипп Нуаре, Фанни Коттансон, Жюли Жезекель, Лилиана Джераче, Гамиль Ратиб, Жан-Ив Шатле, Жан Дортрэмэ, Пьер Форгет, Жан-Пьер КлейнПеревод: Многоголосый профессиональный (R5)Субтитры: ОтсутствуютПродолжительность: 01:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E40D02F1E78527B2F14A22A77EC2D20A8F4969E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421028   (321764) от 03.11.2020
+
+Только для твоих глаз / For Your Eyes Only (1981) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321764.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз агенту 007 предстоит захватывающая дух гонка с русскими коллегами. Дело в том, что Британские военные умудрились утопить в Ионическом море абсолютно секретное оборудование. Если аппаратура попадет в руки советским разведчикам, это может привести к ужасающим для Великобритании и всего мира последствиям.
+Бонду приходится с безумной скоростью прокатиться (   Читать дальше...   )Производство: Великобритания / Eon ProductionsЖанр: боевик, триллер, приключенияРежиссер: Джон ГленАктеры: Роджер Мур, Кароль Буке, Тополь, Линн-Холли Джонсон, Джулиан Гловер, Джилл Беннетт, Джон Уаймэн, Лоис Максуэлл, Десмонд Ллевелин, Уолтер ГотеллПеревод: ДублированныйСубтитры: русские, английские (отдельными файлами)Продолжительность: 02:07:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD9735433DD956EDD26627A45A04A431EC4C08DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 415027   (321724) от 29.11.2011
+
+Строптивая девчонка / Cette sacree gamine (1956) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малышка Брижит не должна узнать о том, что ее папаша — жулик. Во всяком случае, Поль Латур старается делать так, чтобы девочка росла вдали от источников нежелательной информации.
+
+Но однажды полиция прижимает его к стенке. И Латур волей-неволей доверяет судьбу Брижит своему легкомысленному приятелю Жану Клери. Так встречаются он и она. Что же дальше?Жанр: Мьюзикл, Мелодрама, КомедияРежиссер: Мишель БуаронАктеры: Брижит Бардо, Миша Ауэр, Мишель Серро, Жан Лефевр, Франсуаз Фабиан, Жан Пуаре, Дарри Коул, Бернар Ланкре, Марсель Шарве, Люсьен РэмбурПеревод: Двуголосый закадровыйПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3FB12842829C871DC58B06629F96BAE87736424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421018   (321661) от 03.11.2020
 
 007: Живи и дай умереть / Live and Let Die (1973) BDRip
@@ -6,7 +88,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321661.jpg" />
+  <img src="Z:/picture/008/save_picture_321661.jpg" />
 </div>
 
 
@@ -34,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321206.jpg" />
+  <img src="Z:/picture/008/save_picture_321206.jpg" />
 </div>
 
 
@@ -60,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321045.jpg" />
+  <img src="Z:/picture/008/save_picture_321045.jpg" />
 </div>
 
 
@@ -86,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320414.jpg" />
+  <img src="Z:/picture/008/save_picture_320414.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320315.jpg" />
+  <img src="Z:/picture/008/save_picture_320315.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319593.jpg" />
+  <img src="Z:/picture/008/save_picture_319593.jpg" />
 </div>
 
 
@@ -164,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319545.jpg" />
+  <img src="Z:/picture/008/save_picture_319545.jpg" />
 </div>
 
 
@@ -191,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319537.jpg" />
+  <img src="Z:/picture/008/save_picture_319537.jpg" />
 </div>
 
 
@@ -218,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319536.jpg" />
+  <img src="Z:/picture/008/save_picture_319536.jpg" />
 </div>
 
 
@@ -245,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319533.jpg" />
+  <img src="Z:/picture/008/save_picture_319533.jpg" />
 </div>
 
 
@@ -272,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319531.jpg" />
+  <img src="Z:/picture/008/save_picture_319531.jpg" />
 </div>
 
 
@@ -299,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319444.jpg" />
+  <img src="Z:/picture/008/save_picture_319444.jpg" />
 </div>
 
 
@@ -325,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319014.jpg" />
+  <img src="Z:/picture/008/save_picture_319014.jpg" />
 </div>
 
 
@@ -352,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318970.jpg" />
+  <img src="Z:/picture/008/save_picture_318970.jpg" />
 </div>
 
 
@@ -379,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318178.jpg" />
+  <img src="Z:/picture/008/save_picture_318178.jpg" />
 </div>
 
 
@@ -406,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318111.jpg" />
+  <img src="Z:/picture/008/save_picture_318111.jpg" />
 </div>
 
 
@@ -432,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317387.jpg" />
+  <img src="Z:/picture/008/save_picture_317387.jpg" />
 </div>
 
 
@@ -459,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317217.jpg" />
+  <img src="Z:/picture/008/save_picture_317217.jpg" />
 </div>
 
 
@@ -486,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316929.jpg" />
+  <img src="Z:/picture/008/save_picture_316929.jpg" />
 </div>
 
 
@@ -512,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316807.jpg" />
+  <img src="Z:/picture/008/save_picture_316807.jpg" />
 </div>
 
 
@@ -538,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316439.jpg" />
+  <img src="Z:/picture/008/save_picture_316439.jpg" />
 </div>
 
 
@@ -564,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315718.jpg" />
+  <img src="Z:/picture/008/save_picture_315718.jpg" />
 </div>
 
 
@@ -590,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314818.jpg" />
+  <img src="Z:/picture/008/save_picture_314818.jpg" />
 </div>
 
 
@@ -602,84 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C41C1DD1CBB1B12B76E4D2CDDB211C07FC56C0E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415628   (314313) от 02.12.2011
-
-За мной, канальи! / Mir nach, Canaillen! (1964) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прусский лейтенант фон Юббенау во главе небольшого отряда проникает на ганноверские земли для набора рекрутов. Здесь его постигает неудача: он попадает в тюрьму за нарушение закона "о неприкосновенности личности" - он хотел обманом и силой вербовать парней в армию. Лейтенанта может спасти только признание, что пастух Александр, которого он хотел увести в солдаты, - его сын. По закону Ганновера отец может наказать сына как хочет и даже сдать в солдаты. Лейтенанту приходится воспользоваться этой лазейкой в законе. О том, как ловкий, находчивый и смелый пастух сумел извлечь выгоды из создавшейся ситуации, обвести вокруг пальца не только лейтенанта, но и придворных короля Августа, и рассказывает фильм.Жанр: Комедия, ПриключенияРежиссер: Ральф КерстенАктеры: Манфред Круг, Фред Дюрен, Карола Браунбок, Моника Войтович, Хельга Гёринг, Марианна Вюншер, Эрик С. Кляйн, Хельмут Шрайбер, Ютта Ваховяк, Вилли Нойенхан, Петер Доммиш, Норберт Кристиан, Харальд Хальгардт, Вальтер Лендрих, Хорст Парке, Ганс Хардт-Хардтлофф, Аксель Трибель, Эдвин Мариан, Фридрих Тайтге, Герварт Гроссе, Хайнц Шольц, Лило ГранПеревод: ДублированныйПродолжительность: 01:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09822A813918D959BEEBFFC7AD7EAEAAA378FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958906   (314126) от 25.11.2015
-
-Канарис / Canaris (1954) DVDRip [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314126.jpg" />
-</div>
-
-
-###  Подробнее
-
-С января 1935 по 1944 во главе Абвера (военной разведки и контрразведки Войскового управления Военного министерства Германии) стоял опытный разведчик адмирал Фридрих Вильгельм Канарис, активно способствовавший превращению Абвера в важнейший инструмент гитлеровской политики. Практически с первых же дней нахождения в новой должности Канарис вынужден был контактировать (   Читать дальше...   )Производство: Германия (ФРГ)Жанр: Военный, биографический, драмаРежиссер: Альфред ВайденманнАктеры: Отто Эдуард Хассе, Барбара Руттинг, Адриан Ховен, Мартин Хельд, Вольфганг Прайсс, Петер Мосбахер, Шарль Ренье, Франц Эссель, Алиса Треф, Херберт Вилк, Клаус Мидель, Артур Шрёдер, Ильза Фюрстенберг, Эрнст Шталь-Нахбаур, Петер Мосбахер, Отто Граф, Арно Полсен, Клеменс Хассе, Йозеф Оффенбах, Франц Эссель, Фредди Куинн, Вальтер Таррах, Фридрих Маурер, Фридрих СтейгПеревод: Одноголосый закадровыйПродолжительность: 01:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06453DBD1C55EC4132B49395F3C6FD1B09AC759E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 276316   (313646) от 30.11.2013
-
-Приключения канонира Доласа / Jak rozpetalem druga wojne swiatowa (1969) DVDRip
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313646.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сентября 1939 года. Польский солдат Франтишек Долас, проспав свою станцию, просыпается ночью в поезде на польско-немецкой границе. С его выстрела в немецкого офицера, которого Долас принял за диверсанта, в результате комичных совпадений, начинается не только Вторая мировая война, но и цепь невероятных приключений в немецком лагере для военнопленных, Австрии, Африке, (   Читать дальше...   )Перевод: Дублированный (советский)*Продолжительность: 03:46:25 (общая)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA375EBB26E2960104766CD75FC39148C6CA387
 ```
 
 https://mybot314.ru/tekegram_catalog/

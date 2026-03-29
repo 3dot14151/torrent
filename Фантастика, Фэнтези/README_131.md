@@ -1,3 +1,60 @@
+###  Публикация: 1048001   (548154) от 31.08.2016
+
+Кертис Джоблинг | Последняя битва (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_548154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шестой, заключительный, роман цикла «Верлорды».
+
+Война за Семиземелье между Волком и Котами подходит к концу. Распались многие союзы. Прежние враги теперь объединились в борьбе против безжалостного и коварного Лукаса. Кажется, что сила на стороне отважного Дрю Феррана и его друзей. Ведь на помощь им спешат верлорды со всего континента. Но северная земля Айсгарден (   Читать дальше...   )Жанр: Боевое фэнтези, Зарубежное фэнтезиПеревод: Константин МольковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFD66661DA364963253BBCBE9BE9DCEAD8AF9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047996   (548146) от 31.08.2016
+
+Андрей Посняков | Король (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_548146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Кондотьер».
+
+1573 год. Наш современник Леонид Арцыбашев вновь оказывается в гуще интриг под видом ливонского короля Магнуса. Однако на этот раз могущественный царь Иоанн Грозный осерчал на своего верного вассала и на его молодую супругу, княжну Марию Старицкую.
+Мария схвачена и привезена в Москву, где ожидает лютой казни. Сам Магнус делает все, (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A232A5184D82C1521AFFD7C2B39E10BACCE864E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048075   (548117) от 31.08.2016
 
 Рустам Максимов | Везунчики (2016) [FB2]
@@ -6,7 +63,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548117.jpg" />
+  <img src="Z:/picture/008/save_picture_548117.jpg" />
 </div>
 
 
@@ -34,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548082.jpg" />
+  <img src="Z:/picture/008/save_picture_548082.jpg" />
 </div>
 
 
@@ -63,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548036.jpg" />
+  <img src="Z:/picture/008/save_picture_548036.jpg" />
 </div>
 
 
@@ -89,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548034.jpg" />
+  <img src="Z:/picture/008/save_picture_548034.jpg" />
 </div>
 
 
@@ -118,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548023.jpg" />
+  <img src="Z:/picture/008/save_picture_548023.jpg" />
 </div>
 
 
@@ -146,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547989.jpg" />
+  <img src="Z:/picture/008/save_picture_547989.jpg" />
 </div>
 
 
@@ -174,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547743.jpg" />
+  <img src="Z:/picture/008/save_picture_547743.jpg" />
 </div>
 
 
@@ -202,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547229.jpg" />
+  <img src="Z:/picture/008/save_picture_547229.jpg" />
 </div>
 
 
@@ -230,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547148.jpg" />
+  <img src="Z:/picture/008/save_picture_547148.jpg" />
 </div>
 
 
@@ -259,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547141.jpg" />
+  <img src="Z:/picture/008/save_picture_547141.jpg" />
 </div>
 
 
@@ -287,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547099.jpg" />
+  <img src="Z:/picture/008/save_picture_547099.jpg" />
 </div>
 
 
@@ -315,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546840.jpg" />
+  <img src="Z:/picture/008/save_picture_546840.jpg" />
 </div>
 
 
@@ -343,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546355.jpg" />
+  <img src="Z:/picture/008/save_picture_546355.jpg" />
 </div>
 
 
@@ -371,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546348.jpg" />
+  <img src="Z:/picture/008/save_picture_546348.jpg" />
 </div>
 
 
@@ -398,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546346.jpg" />
+  <img src="Z:/picture/008/save_picture_546346.jpg" />
 </div>
 
 
@@ -425,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546341.jpg" />
+  <img src="Z:/picture/008/save_picture_546341.jpg" />
 </div>
 
 
@@ -453,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546303.jpg" />
+  <img src="Z:/picture/008/save_picture_546303.jpg" />
 </div>
 
 
@@ -480,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546271.jpg" />
+  <img src="Z:/picture/008/save_picture_546271.jpg" />
 </div>
 
 
@@ -508,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546270.jpg" />
+  <img src="Z:/picture/008/save_picture_546270.jpg" />
 </div>
 
 
@@ -536,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546152.jpg" />
+  <img src="Z:/picture/008/save_picture_546152.jpg" />
 </div>
 
 
@@ -565,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546144.jpg" />
+  <img src="Z:/picture/008/save_picture_546144.jpg" />
 </div>
 
 
@@ -594,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546030.jpg" />
+  <img src="Z:/picture/008/save_picture_546030.jpg" />
 </div>
 
 
@@ -620,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545915.jpg" />
+  <img src="Z:/picture/008/save_picture_545915.jpg" />
 </div>
 
 
@@ -646,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545601.jpg" />
+  <img src="Z:/picture/008/save_picture_545601.jpg" />
 </div>
 
 
@@ -657,60 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B675987FF640EE764D837795E3550D569AC33B67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048884   (545516) от 03.09.2016
-
-Лана Ежова | ВАМП. Практикум по целительству (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545516.jpg" />
-</div>
-
-
-###  Подробнее
-
-По ее лестницам поднимались тысячи подающих большие надежды магов. Веками ее стены впитывали сотни секретов и тайн. Под ее сводами зарождалась крепкая дружба и кровная вражда, вспыхивала прекрасная любовь и жгучая ненависть. Она — легендарная Вышеградская академия магических практик, ее двери открыты для тех, кто жаждет огранить свой дар, чтобы верно служить империи. (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2EEA5AA76828E06AA82E5B0A242BAAB257A9CF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238648   (545448) от 31.07.2018
-
-Джоуи Грасеффа | Элиты Эдема (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Дети Эдема».
-
-Семнадцатилетняя Ярроу - девушка из богатой семьи, дочь одной из самых могущественных женщин Эдема, ученица привилегированной школы, чья беззаботная жизнь проходит в вечеринках и развлечениях. У её ровесницы Рауэн иная участь. Законы Эдема запрещают семьям иметь больше одного ребенка, и родившаяся чуть позже своего брата-близнеца (   Читать дальше...   )Жанр: Зарубежная фантастика, Научная фантастика, Социальная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC18123C3EFB65020BA8319B81297FA230F9C46D
 ```
 
 https://mybot314.ru/tekegram_catalog/

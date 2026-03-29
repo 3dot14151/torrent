@@ -1,3 +1,119 @@
+###  Публикация: 1019701   (748637) от 24.05.2016
+
+The Billy Cobham & George Duke Band - "Live" - On Tour In Europe (1976) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hip Pockets
+02. Ivory Tattoo
+03. Space Lady
+04. Almustafa The Beloved(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBE8B77B3966700DD597630F77672A0A7261202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281985   (748516) от 10.02.2019
+
+Brad Wheeler - The Future Was Yesterday (2005) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Vision [5:20]
+02. When One Has Peace [8:44]
+03. Journey After Hours [8:32]
+04. Foreign Affair [7:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182505D398B1AEE8CF286B0DF02BE52CFF700C74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523760   (748219) от 13.01.2022
+
+VA - Jazz At The Philharmonic (1944 - 1953) 2009, 10CD, The Intense Media [FLAC|Lossless|tracks + .cue] <Swing, Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748219.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - JATP All Stars Feat. J.J.Johnson:
+01. Lester Leaps In [9:11]
+02. Tea For Two [12:39]
+03. The Blues [10:36](   Читать дальше...   )Жанр: Swing, Bop, Vocal JazzПродолжительность: 09:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315DDA33795E8C0BB5B14F45D3D7AFFD39D8484E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216710   (747923) от 01.04.2018
+
+Stan Getz presents Jimmy Rowles - The Peacocks (1975) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Never Be the Same [04:08]
+02. Lester Left Town [05:55]
+03. Body and Soul [05:54]
+04. What Am I Here For? [04:58](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BB7134A675F64CA5BC5BB96821592F161C436D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216715   (747920) от 01.04.2018
 
 Anita O'Day - Eight Classic Albums (1956 - 1961) 4CD, 2011, Real Gone Jazz [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Anita O'Day - Eight Classic Albums (1956 - 1961) 4CD, 2011, Real Gone Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747920.jpg" />
+  <img src="Z:/picture/008/save_picture_747920.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Wes Montgomery - Willow Weep For Me 1965 (2018) Universal [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746972.jpg" />
+  <img src="Z:/picture/008/save_picture_746972.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ The Buddy Rich Big Band - The New One! 1967 (1998) Pacific Jazz [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746971.jpg" />
+  <img src="Z:/picture/008/save_picture_746971.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Charlie Shavers Featuring Maxine Sullivan - Four Classic Albums Plus 1954 - 1959
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746969.jpg" />
+  <img src="Z:/picture/008/save_picture_746969.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Sonny Rollins - After the Bridge (1964) 2CD, Remaster, 2014, Sony Music[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746905.jpg" />
+  <img src="Z:/picture/008/save_picture_746905.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Anita O'Day - The Complete Recordings (1949 - 1950) 1997, Baldwin Street Music [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746636.jpg" />
+  <img src="Z:/picture/008/save_picture_746636.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Ayako Hosokawa - Call Me (1979) 1989, Three Blind Mice [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746634.jpg" />
+  <img src="Z:/picture/008/save_picture_746634.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Charlotte Lee - Superwise Company (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746562.jpg" />
+  <img src="Z:/picture/008/save_picture_746562.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Brian Tarquin - Soft Touch (1999) Instinct Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746434.jpg" />
+  <img src="Z:/picture/008/save_picture_746434.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Pepper Adams & Donald Byrd - Motor City Scene (1960) 2004, Bethlehem [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745589.jpg" />
+  <img src="Z:/picture/008/save_picture_745589.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Pat Flowers - 1941 - 1945 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745453.jpg" />
+  <img src="Z:/picture/008/save_picture_745453.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Brian Gallagher - The Most Beautiful Girl In The World (1994) Single [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745452.jpg" />
+  <img src="Z:/picture/008/save_picture_745452.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Bruut! - Bruut! (2012) [FLAC|Lossless|tracks + .cue] <Swing, Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745411.jpg" />
+  <img src="Z:/picture/008/save_picture_745411.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Lennie Tristano - Concert In Copenhagen (1965) 1997, Jazz Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745271.jpg" />
+  <img src="Z:/picture/008/save_picture_745271.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Vic Juris - Pastels (1996) SteepleChase [FLAC|Lossless|image + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745270.jpg" />
+  <img src="Z:/picture/008/save_picture_745270.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Henny Vonk - Rerootin' (1982) 2016, Solid Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744950.jpg" />
+  <img src="Z:/picture/005/save_picture_744950.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ Gerry Mulligan & Chet Baker - Carnegie Hall Concert (1974) 1987, Epic [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744880.jpg" />
+  <img src="Z:/picture/008/save_picture_744880.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Joanne Tatham - The Rings of Saturn (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744878.jpg" />
+  <img src="Z:/picture/008/save_picture_744878.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Chet Baker & Art Pepper - Playboys (1956) 2012, Pacific Jazz [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744761.jpg" />
+  <img src="Z:/picture/008/save_picture_744761.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Tommy Flanagan with the Wilbur Harden Quartet - Plays The Music of Rodgers & Ham
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744636.jpg" />
+  <img src="Z:/picture/008/save_picture_744636.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Frank Sinatra & Count Basie - The Complete Reprise Studio Recordings (2011) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744220.jpg" />
+  <img src="Z:/picture/008/save_picture_744220.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Elvin Jones - And Then Again (1965) 2017, Warner [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744200.jpg" />
+  <img src="Z:/picture/008/save_picture_744200.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ Elvin Jones - And Then Again (1965) 2017, Warner [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756F5350BB7779CBE5176C0C3BEF570C4A4DCDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396861   (744199) от 17.07.2020
-
-Chick Webb & Ella Fitzgerald - The Quintessence: New York City (1929-1939) 1995, 2CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744199.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dog Bottom [2:41]
-02. Heebie Jeebies [3:04]
-03. On the Sunny Side of the Street [2:55](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C104B1619E6286AA85BEBE75562AE3B62865C1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396883   (744130) от 17.07.2020
-
-VA - Sunday Morning Snooze: Relaxing Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Giuffre - Ictus (2:47)
-02. All Star Sextet - I Can't Get Started (3:37)
-03. Clifford Brown - Sweet Clifford (1:48)
-04. George Russell - Lydiot (8:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF317E55FEBEDE8142AADC53C3261FF7EE418835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282662   (743844) от 13.02.2019
-
-Tom Harrell - Paradise (2001) BMG Bluebird [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daybreak [5:19]
-02. Baroque Steps [6:40]
-03. Nighttime [11:02]
-04. Wind Chant [10:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37BF84C9DEDD11F2BA2E1666F98FEE5CA88FA6FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282627   (743841) от 13.02.2019
-
-Lou Donaldson - Four Classic Albums (1957 - 1961) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743841.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Blues Walk [6:43]
-02. Move [5:54]
-03. The Masquerade Is Over [5:53](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 02:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7CA236E52908E709F9632FA8DD19F0271B5A36
 ```
 
 https://mybot314.ru/tekegram_catalog/

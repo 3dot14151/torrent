@@ -1,3 +1,83 @@
+###  Публикация: 312799   (826698) от 24.03.2011
+
+Одержимая / Possessed (1931) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_826698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бедная фабричная девушка Мэриан не хочет прозябать в маленьком городишке и выходить замуж за пылкого, но бедного ухажера. Ее манит блестящая жизнь богатых городов. Однажды, на железнодорожном переезде она знакомится с подвыпившим плейбоем Вили, который ради развлечения угощает ее шампанским и приглашает заглянуть к нему на огонек. Он не подозревает, что разбудил в ней настоящую «золотоискательницу», одержимую мечтой о красивой жизни. Мэриан не преминула воспользоваться приглашением и неожиданно нагрянула к нему.
+Обескураженный и с головной болью после похмелья Вили все-таки дает ей несколько советов как обосноваться в городе, прежде, чем выпроводить ее за дверь. Хваткая Мэриан становится любовницей богатого разведенного адвоката Марка Уитни. Через три года, превратившись в светскую львицу, обученная этикету и манерам высшего света, первоклассно одетая и живущая на Парк Авеню, выдавая себя за богатую разведенную мисс Мореланд, Мэриан вдруг обнаруживает, что ей хочется простого женского счастья…Жанр: Мелодрама, ДрамаРежиссер: Кларенс Браун / Clarence BrownАктеры: Джоан Кроуфорд , Кларк Гейбл , Уоллес Форд , Ричард ’Скитс’ Галлахер , Фрэнк Конрой , Марджори Уайт , Джон Мильян , Клара Блэндик , Джек Бэксли , Вэйд БотелерПеревод: 1. Одноголосый закадровый, любительский
+2. ОригинальныйПродолжительность: 1:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB855D2EB3F05458217EC7088D0203E5AC516CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500683   (826608) от 15.10.2021
+
+Трёхгрошовая опера / Die 3 Groschen-Oper (1931) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм по мотивам одноимённой пьесы Бертольда Брехта. Знаменитая история любви дочери короля нищих Лондона Полли Пичем и бандита Мэкки-Ножа..Производство: Германия, Nero-Film AG, Tobis Filmkunst, Warner Bros. GmbHЖанр: мюзикл, драма, комедияРежиссер: Георг Вильгельм ПабстАктеры: Рудольф Форстер, Карола Нехер, Райнхольд Шюнцель, Фриц Расп, Валеска Герт, Лотте Ленья, Герман Тимиг, Эрнст Буш, Владимир Соколов, Пауль КемпПеревод: профессиональный многоголосый (ГТРК Культура), профессиональный двухголосый (Светла)Язык озвучки: русский, немецкийСубтитры: русские (fluidite & Соломон Константинович Апт), немецкие, английскиеПродолжительность: 01:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2B9A3AE889ABF32EE5D3CEC16B432168918BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500384   (826415) от 15.10.2021
+
+Обнажённая шпора / The Naked Spur (1953) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крепкий парень Ховард Кэмп уже много дней идёт по следу убийцы и преступника Бена Вандергрота. Его цель получить за поимку злодея награду в 5000 долларов и выкупить ранчо. В пути он встречает старого золотоискателя Джеса, который вызывается помочь в поиске следа преступника за двадцать долларов. Через некоторое время к ним присоединяется бывший солдат Рой Андерсон, (   Читать дальше...   )Производство: США, Metro-Goldwyn-Mayer (MGM)Жанр: вестерн, триллерРежиссер: Энтони МаннАктеры: Джеймс Стюарт, Джанет Ли, Роберт Райан, Ральф Микер, Миллард МитчеллПеревод: любительский одноголосый (Светла, Вадим Назаров)Язык озвучки: русский, английскийСубтитры: русские (Shinobi97), английскиеПродолжительность: 01:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:922A11697F59EBB2E98459E4F417C9995BC74CD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374781   (825940) от 07.05.2020
 
 Чужие жены / Pot-Bouille (1957) BDRip [H.264]
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825940.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823430.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823346.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823182.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822226.jpg" />
+  <img src="Z:/picture/008/save_picture_822226.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821291.jpg" />
+  <img src="Z:/picture/008/save_picture_821291.jpg" />
 </div>
 
 
@@ -166,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821197.jpg" />
+  <img src="Z:/picture/008/save_picture_821197.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821100.jpg" />
+  <img src="Z:/picture/008/save_picture_821100.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820795.jpg" />
+  <img src="Z:/picture/008/save_picture_820795.jpg" />
 </div>
 
 
@@ -245,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819237.jpg" />
+  <img src="Z:/picture/008/save_picture_819237.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819004.jpg" />
+  <img src="Z:/picture/008/save_picture_819004.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818159.jpg" />
+  <img src="Z:/picture/008/save_picture_818159.jpg" />
 </div>
 
 
@@ -324,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817779.jpg" />
+  <img src="Z:/picture/008/save_picture_817779.jpg" />
 </div>
 
 
@@ -350,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817492.jpg" />
+  <img src="Z:/picture/008/save_picture_817492.jpg" />
 </div>
 
 
@@ -376,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817468.jpg" />
+  <img src="Z:/picture/008/save_picture_817468.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817006.jpg" />
+  <img src="Z:/picture/008/save_picture_817006.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816998.jpg" />
+  <img src="Z:/picture/008/save_picture_816998.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816973.jpg" />
+  <img src="Z:/picture/008/save_picture_816973.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816954.jpg" />
+  <img src="Z:/picture/008/save_picture_816954.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816820.jpg" />
+  <img src="Z:/picture/008/save_picture_816820.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816798.jpg" />
+  <img src="Z:/picture/008/save_picture_816798.jpg" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816605.jpg" />
+  <img src="Z:/picture/008/save_picture_816605.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816172.jpg" />
+  <img src="Z:/picture/008/save_picture_816172.jpg" />
 </div>
 
 
@@ -601,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504019   (815942) от 21.10.2021
-
-Скотт из Антарктики / Scott of the Antarctic (1948) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Фолкон Скотт — капитан королевского флота Великобритании, полярный исследователь, один из первооткрывателей Южного полюса, возглавивший две экспедиции в Антарктику: «Дискавери» (1901—1904) и «Терра Нова» (1912—1913). Во время второй экспедиции Скотт вместе с ещё четырьмя участниками похода достиг Южного полюса 17 января 1912 года, но обнаружил, что их на несколько (   Читать дальше...   )Производство: Великобритания, Ealing StudiosЖанр: боевик, драма, приключения, биографияРежиссер: Чарльз ФрендАктеры: Джон Миллз, Диана Черчилль, Харольд Уоррендер, Энн Фёрт, Дерек Бонд, Реджинальд Бекуив, Джеймс Робертсон Джастис, Кеннет Мор, Норман Уильямс, Джон ГрегсонПеревод: одноголосый любительский (Олег Воротилин)Субтитры: Русские (Антон Каптелов), английскиеПродолжительность: 01:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7C5A6DBCB0F5D1B4FB3E7763D84A0DB22762FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006955   (815696) от 18.04.2016
-
-Человек без звезды / Man Without a Star (1955) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кочующий с места на место бывалый ковбой Демпси Рэй встречает во время своих странствий юного Джеффа, вместе с которым находит работу на ранчо. Став хорошим наставником для юноши в обучении ковбойскому мастерству, Дэмпси невольно втягивается в противостояние их хозяйки тем фермерам, которые огораживают свои владения колючей проволокой. Их ранчо не огорожено и это (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Кинг ВидорАктеры: Кирк Дуглас, Джинн Крейн, Клер Тревор, Уильям Кэмпбелл, Ричард Бун, Джей С. Флиппен, Мирна Хансен, Мара Кордей, Эдди Уоллер, Шеб ВулиПеревод: Авторский (С.Кузнецов)Субтитры: ОтсутствуютПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0742E2CCC5879453E410B73CC258544C3212B44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 315898   (815319) от 30.03.2011
-
-Джоси Уэйлс – человек вне закона / The Outlaw Josey Wales (1976) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815319.jpg" />
-</div>
-
-
-###  Подробнее
-
-В классическом вестерне «Джоси Уэйлс — человек вне закона» Клинт Иствуд, предстаёт в роли отважного героя, напоминающего его знаменитого Человека Без Имени, впервые появившегося в культовой картине «За пригоршню долларов».  Но, в отличие от хладнокровного персонажа классической трилогии Серджио Леоне, у Джоси Уэйлса есть имя, сердце и… праведный гнев! Отомстив за зверское убийство своей семьи, Джоси Уэйлс пускается «в бега».   Теперь он — человек вне закона, которого преследует банда кровожадных убийц. Компанию одинокому мстителю в его опасном путешествии составит группа изгоев (среди них Сондра Локк и вождь Дэн Джордж), которых Уэйлс и станет защищать в предстоящих переделках.Жанр: Вестерн, Боевик, ТриллерРежиссер: Клинт ИствудАктеры: Клинт Иствуд,  Вождь Дэн Джордж,  Сондра Лок,  Билл МакКинни,  Джон Вернон,  Пола Трумен,  Сэм Боттомс,  Geraldine Keams,  Вудроу Парфри,  Джойс ДжеймисонПеревод: Многоголосый закадровыйПродолжительность: 02:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C620F85EAB07142EEBB5649E9448AFBA2B223D
 ```
 
 https://mybot314.ru/tekegram_catalog/

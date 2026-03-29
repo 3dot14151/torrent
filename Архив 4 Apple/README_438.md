@@ -1,3 +1,113 @@
+###  Публикация: 1331111   (334856) от 13.10.2019
+
+Macsome iTunes Converter 2.4.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macsome iTunes Music Converter - программа для пакетного удаления DRM-защиты с различных типов файлов. Приложение поддерживает все айдио форматы, которые поддерживает iTunes. Преобразование происходит на 5X скорости с качеством Audio-CD.
+Macsome iTunes Music Converter позволяет преобразовывать M4P в MP3, конвертировать Аудиокниги, AAC в MP3 а так же из M4P в AAC (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Macsome Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDE6B5D071BEA5C5B5DA13831148A459AC4F02A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331125   (334846) от 13.10.2019
+
+Ummy Video Downloader 1.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ummy Video Downloader – для быстрого скачивания любого видео с YouTube. Ummy Video Downloader поможет Вам сохранить ролик YouTube на компьютер как в одном из популярных форматов видео, так и в аудио. Вы сможете сохранять в локальную папку любой ролик в доступном для него формате и качестве. В любое время Вы сможете просмотреть и прослушать сохраненный материал, даже (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.2019Разработчик: UmmySoftПоддерживаемая ОС: OS X 10.9 или более поздняя версияЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C66BA1D5B8E91763D8716B5473103C790D2FC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331062   (334845) от 13.10.2019
+
+Commander One PRO Pack 2 v2.3 (3105) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор
+
+Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10 или более поздняя версияЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3325273F7CB7331B591D6EF9C63D80B424445037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258702   (334711) от 31.10.2018
+
+SpamSieve 2.9.34 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для macOS. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнно вам поможет.
+
+Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам фильтра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: C-Command SoftwareПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04332B3EE0FB7024203E6C0965B5DBD8A4D4EB1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955381   (334710) от 10.11.2015
 
 Red Giant Magic Bullet Suite 12.1.2 [En]
@@ -6,7 +116,7 @@ Red Giant Magic Bullet Suite 12.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334710.jpg" />
+  <img src="Z:/picture/008/save_picture_334710.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Scrutiny 8 v8.1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334688.jpg" />
+  <img src="Z:/picture/008/save_picture_334688.jpg" />
 </div>
 
 
@@ -59,7 +169,7 @@ PDFelement Express 0.6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334598.jpg" />
+  <img src="Z:/picture/008/save_picture_334598.jpg" />
 </div>
 
 
@@ -85,7 +195,7 @@ Viscosity 1.7.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334588.jpg" />
+  <img src="Z:/picture/008/save_picture_334588.jpg" />
 </div>
 
 
@@ -113,7 +223,7 @@ Lingon X 6.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334586.jpg" />
+  <img src="Z:/picture/008/save_picture_334586.jpg" />
 </div>
 
 
@@ -141,7 +251,7 @@ Cheetah3D 7 v7.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334450.jpg" />
+  <img src="Z:/picture/008/save_picture_334450.jpg" />
 </div>
 
 
@@ -168,7 +278,7 @@ iExplorer 4.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334435.jpg" />
+  <img src="Z:/picture/008/save_picture_334435.jpg" />
 </div>
 
 
@@ -196,7 +306,7 @@ Children of Morta (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334399.jpg" />
+  <img src="Z:/picture/008/save_picture_334399.jpg" />
 </div>
 
 
@@ -224,7 +334,7 @@ Dawn of Man (2019) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334312.jpg" />
+  <img src="Z:/picture/008/save_picture_334312.jpg" />
 </div>
 
 
@@ -250,7 +360,7 @@ Marmoset Hexels 3 v3.1.2 Build 7702 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334185.jpg" />
+  <img src="Z:/picture/008/save_picture_334185.jpg" />
 </div>
 
 
@@ -277,7 +387,7 @@ MarsEdit 4 v4.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334015.jpg" />
+  <img src="Z:/picture/008/save_picture_334015.jpg" />
 </div>
 
 
@@ -303,7 +413,7 @@ Downcast 2.9.57 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334014.jpg" />
+  <img src="Z:/picture/008/save_picture_334014.jpg" />
 </div>
 
 
@@ -331,7 +441,7 @@ Hookshot 1.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334013.jpg" />
+  <img src="Z:/picture/008/save_picture_334013.jpg" />
 </div>
 
 
@@ -357,7 +467,7 @@ File List Export 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334012.jpg" />
+  <img src="Z:/picture/008/save_picture_334012.jpg" />
 </div>
 
 
@@ -385,7 +495,7 @@ Yate 6.1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334010.jpg" />
+  <img src="Z:/picture/008/save_picture_334010.jpg" />
 </div>
 
 
@@ -414,7 +524,7 @@ MediaHuman Youtube Downloader 3.9.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333997.jpg" />
+  <img src="Z:/picture/008/save_picture_333997.jpg" />
 </div>
 
 
@@ -443,7 +553,7 @@ Adguard 2.5.1.913 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333939.jpg" />
+  <img src="Z:/picture/008/save_picture_333939.jpg" />
 </div>
 
 
@@ -469,7 +579,7 @@ Mirror for Samsung TV 3.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333875.jpg" />
+  <img src="Z:/picture/008/save_picture_333875.jpg" />
 </div>
 
 
@@ -498,7 +608,7 @@ Forecast Bar 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333851.jpg" />
+  <img src="Z:/picture/008/save_picture_333851.jpg" />
 </div>
 
 
@@ -527,7 +637,7 @@ PowerPhotos 1.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333671.jpg" />
+  <img src="Z:/picture/008/save_picture_333671.jpg" />
 </div>
 
 
@@ -553,7 +663,7 @@ Live Home 3D Pro Edition 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333644.jpg" />
+  <img src="Z:/picture/008/save_picture_333644.jpg" />
 </div>
 
 
@@ -581,7 +691,7 @@ Adobe Zii 2019 - Universal Patcher v.4.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333538.jpg" />
+  <img src="Z:/picture/008/save_picture_333538.jpg" />
 </div>
 
 
@@ -592,114 +702,6 @@ Adobe Zii - это небольшая и замечательная утилит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4004FCE4B96200325A77329B59373A268B84FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420366   (333236) от 31.10.2020
-
-Dash 5.5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 31.10.2020Разработчик: Bogdan PopescuПоддерживаемая ОС: macOS 10.14 и новееЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05C194937BBE6EB7145BA86DA00F4786220B3069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955583   (333193) от 11.11.2015
-
-Microsoft Office Standard 2016 v15.16 (with License Installer) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко узнаваемый Office, разработанный для Mac
-Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint и Outlook, сочетающие в себе знакомый интерфейс Office и уникальные возможности Mac, которые успели вам полюбиться.Тип издания: OS X SoftwareРелиз состоялся: 10 ноября 2015Разработчик: MicrosoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Испанский и др.
-* язык интерфейса программы зависит от дефолтного OS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ECC4F59185CC6BED8FD70E02F9E47E1C93C01B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955696   (333183) от 11.11.2015
-
-JetBrains WebStorm 11.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333183.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains WebStorm  — мощный инструмент для разработки web-сайтов и редактирования HTML, CSS и javascript кода. Решение обеспечивает быструю навигацию по файлам и генерирует уведомления о возникающих проблемах в коде в режиме реального времени. JetBrains WebStorm позволяет добавлять разметку HTML-документов или элементов SQL непосредственно в javascript. JetBrains (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2015Разработчик: JetBrainsПоддерживаемая ОС: Mac OS X 10.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257503428FED5C172D6D5C9037067768A105E6A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258848   (333156) от 01.11.2018
-
-TextMate 2.0-rc.13 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333156.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextMate для Mac OS - Отличный редактор программного кода и простых текстов. С помощью TextMate вы сможете обрабатывать скрипты, создавать макросы, интерактивно заполнять поля, проверять программный код на ошибки, подсвечивать код десятков языков программирования. Удобно реализована работа с множеством файлов, навигация и поиск по ним.
-
-Быстро растущее сообщество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: MacroMates Ltd.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D3D40CE3B46B03B5459F2D4A5004B885F48F1E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

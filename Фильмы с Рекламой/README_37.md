@@ -1,3 +1,31 @@
+###  Публикация: 1535570   (684105) от 07.03.2022
+
+Хронос / Cronos (1993) BDRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хронос - это маленькое устройство, которое сбежавший из Испании в Мексику алхимик Умберто Фальконелли изобрел в 1536 году. Устройство, дарующее бессмертие. Правда, в 1937 году жизнь алхимика все-таки оборвалась в результате трагической случайности, потому что Хронос обещал вечную жизнь тому, кто будет питать его собственной кровью.
+
+Имущество особняка, где жил алхимик, (   Читать дальше...   )Производство: Мексика / CNCAIMC, Iguana Producciones, Ventana FilmsЖанр: ужасы, драмаРежиссер: Гильермо дель ТороАктеры: Федерико Луппи, Рон Перлман, Клаудио Брук, Маргарита Исабель, Тамара Шанат, Даниэль Хименес Качо, Марио Иван Мартинес, Фарнесио де Берналь, Хуан Карлос Коломбо, Хорхе Мартинес де ОйосПеревод: Многоголосый закадровый (Omskbird)Язык озвучки: русскийПродолжительность: 01:32:28Реклама: Присутствуют 2 аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2299F277702A1BB5EB443C1885623D4B9BB86721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289718   (683713) от 17.03.2019
 
 Слияние / The Merger (2018) WEB-DLRip [MVO] [AD]
@@ -6,7 +34,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683713.jpg" />
+  <img src="Z:/picture/008/save_picture_683713.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683596.jpg" />
+  <img src="Z:/picture/008/save_picture_683596.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683508.jpg" />
+  <img src="Z:/picture/008/save_picture_683508.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683498.jpg" />
+  <img src="Z:/picture/008/save_picture_683498.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682800.jpg" />
+  <img src="Z:/picture/008/save_picture_682800.jpg" />
 </div>
 
 
@@ -136,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682673.jpg" />
+  <img src="Z:/picture/008/save_picture_682673.jpg" />
 </div>
 
 
@@ -162,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682526.jpg" />
+  <img src="Z:/picture/008/save_picture_682526.jpg" />
 </div>
 
 
@@ -188,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680523.jpg" />
+  <img src="Z:/picture/008/save_picture_680523.jpg" />
 </div>
 
 
@@ -214,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680210.jpg" />
+  <img src="Z:/picture/008/save_picture_680210.jpg" />
 </div>
 
 
@@ -240,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680121.jpg" />
+  <img src="Z:/picture/008/save_picture_680121.jpg" />
 </div>
 
 
@@ -266,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680117.jpg" />
+  <img src="Z:/picture/008/save_picture_680117.jpg" />
 </div>
 
 
@@ -292,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680033.jpg" />
+  <img src="Z:/picture/008/save_picture_680033.jpg" />
 </div>
 
 
@@ -318,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680023.jpg" />
+  <img src="Z:/picture/008/save_picture_680023.jpg" />
 </div>
 
 
@@ -344,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679960.jpg" />
+  <img src="Z:/picture/008/save_picture_679960.jpg" />
 </div>
 
 
@@ -370,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679955.jpg" />
+  <img src="Z:/picture/008/save_picture_679955.jpg" />
 </div>
 
 
@@ -396,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679953.jpg" />
+  <img src="Z:/picture/008/save_picture_679953.jpg" />
 </div>
 
 
@@ -422,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679951.jpg" />
+  <img src="Z:/picture/008/save_picture_679951.jpg" />
 </div>
 
 
@@ -448,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679945.jpg" />
+  <img src="Z:/picture/008/save_picture_679945.jpg" />
 </div>
 
 
@@ -474,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679843.jpg" />
+  <img src="Z:/picture/008/save_picture_679843.jpg" />
 </div>
 
 
@@ -500,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677921.jpg" />
+  <img src="Z:/picture/008/save_picture_677921.jpg" />
 </div>
 
 
@@ -526,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677917.jpg" />
+  <img src="Z:/picture/008/save_picture_677917.jpg" />
 </div>
 
 
@@ -552,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674477.jpg" />
+  <img src="Z:/picture/008/save_picture_674477.jpg" />
 </div>
 
 
@@ -578,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674365.jpg" />
+  <img src="Z:/picture/008/save_picture_674365.jpg" />
 </div>
 
 
@@ -604,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674354.jpg" />
+  <img src="Z:/picture/008/save_picture_674354.jpg" />
 </div>
 
 
@@ -630,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674212.jpg" />
+  <img src="Z:/picture/008/save_picture_674212.jpg" />
 </div>
 
 
@@ -641,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E72EFD02FC890F41F8000C7E123C86FBC6AF460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136633   (672876) от 23.05.2017
-
-Премьер / De Premier (2016) HDRip [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в Бельгии, где неизвестная группа преступников успешно справляется с заданием по похищению премьер-министра. Главный герой картины - глава службы безопасности, занимающейся охраной второго лица государства. Бандиты быстро выходят на связь с властями и озвучивают им одно-единственное требование: убить американского президента. Теперь (   Читать дальше...   )Производство: БельгияЖанр: ТриллерРежиссер: Эрик Ван ЛойАктеры: Адам Годли, Саския Ривз, Коэн Де Боу, Труус де Бур, Шарлотта Вандермерс, Нэйтан Уайли, Джероен Ван дер Вен, Дирк РуфтхуфтПеревод: Профессиональный многоголосый (GreenРай Studio)Субтитры: ОтсутствуютПродолжительность: 01:55:28Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F021D37210F0F0AB7E6D5494D0A0CC686F8CCB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

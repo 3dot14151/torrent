@@ -1,3 +1,116 @@
+###  Публикация: 980170   (957439) от 28.01.2016
+
+Giovanni Guidi Trio - 2 Albums - City Of Broken Dreams / This Is The Day (2013 / 2015) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trilly (05:19)
+ 02. Carried Away (06:07)
+ 03. Game Of Silence (07:27)
+ 04. The Cobweb (03:14)(   Читать дальше...   )Жанр: Contemporary Jazz |Продолжительность: 01:13:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5B2F4B9885DA6F410A265816BF46AD8B26F885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980097   (957355) от 28.01.2016
+
+Northern Lite vs. The White Noize - Wooden Playground (2014) [FLAC|Lossless|image + .cue] <Acoustic, Easy Listening, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Even When [3:40]
+ 02. Begging You [3:49]
+ 03. In Japan [6:43]
+ 04. Enemy [3:25](   Читать дальше...   )Жанр: Acoustic, Easy Listening, JazzПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB77901035B1B98B27A3F3B3BD231D7EC72B09BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 623126   (956739) от 25.02.2013
+
+Matt Bianco - Hideaway (2012) [FLAC|Lossless]<Smooth Jazz, Bossanova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Smooth Jazz, BossanovaПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980578   (956052) от 29.01.2016
+
+Kenny G - The Very Best Of (1994) limited Edition [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever in Love
+02. Waiting for You
+03. By the Time This Night is Over
+04. Jasmine Flower(   Читать дальше...   )Жанр: JazzПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68136AE8AF79386F318D79B3144359CE1117562D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361170   (955725) от 19.02.2020
 
 Thelonious Monk - The Complete Albums Collection 1957-61 (2015) 5CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -6,7 +119,7 @@ Thelonious Monk - The Complete Albums Collection 1957-61 (2015) 5CD, Enlightenme
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955725.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Barney Kessel - Contemporary Latin Rhythms! (1961) Remaster, 2013, Warner[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955173.jpg" />
 </div>
 
 
@@ -64,7 +177,7 @@ Bobby Scott - The Compositions Of Bobby Scott (1955) Remaster, 2014, Solid Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955169.jpg" />
 </div>
 
 
@@ -93,7 +206,7 @@ John Lee & Gerry Brown - Bamboo Madness (1974) Remaster, 2015, Solid Records[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955168.jpg" />
 </div>
 
 
@@ -122,7 +235,7 @@ Sam Rivers Quartet - Lazuli (1989) Remaster, 2015, Solid Records[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955167.jpg" />
 </div>
 
 
@@ -151,7 +264,7 @@ Erroll Garner - The Complete Concert By The Sea (1955) 3CD, 2015, Legacy[FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955161.jpg" />
 </div>
 
 
@@ -180,7 +293,7 @@ Willie Martinez La Familia Sextet - Family (2005) Cuch Be Witcha[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954049.jpg" />
 </div>
 
 
@@ -209,7 +322,7 @@ Warren Wolf - Incredible Jazz Vibes (2005) M&I Jazz[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954047.jpg" />
 </div>
 
 
@@ -238,7 +351,7 @@ Sonny Rollins - Old Flames (1993) Milestone[FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954038.jpg" />
 </div>
 
 
@@ -267,7 +380,7 @@ Pink Martini - Je Dis Oui! (2016) [FLAC|Lossless|image + .cue] <Pop-Jazz, World 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953670.jpg" />
 </div>
 
 
@@ -296,7 +409,7 @@ Charlie Parker - Now's The Time (2005) 10CD Set /Germany 2005; Documents 222921/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953285.jpg" />
 </div>
 
 
@@ -325,7 +438,7 @@ Lou Donaldson - Cosmos (1971) Remaster, 2014, Universal[FLAC|tracks+.cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951748.jpg" />
 </div>
 
 
@@ -354,7 +467,7 @@ Lee Morgan - Indeed! (1956) Remaster, 2015, Universal[FLAC|tracks+.cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951695.jpg" />
 </div>
 
 
@@ -383,7 +496,7 @@ Jacques Loussier - Plays Bach (1993) /1996 Telarc/ [FLAC|Lossless]<Jazz, Bop, Pi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951311.jpg" />
 </div>
 
 
@@ -412,7 +525,7 @@ Riccardo Del Fra - Chet Visions (2019) 2CD, Cristal Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951183.jpg" />
 </div>
 
 
@@ -441,7 +554,7 @@ Nat Adderley Quintet - Workin': Live In Subway, Vol. 1 (1992) Remaster, 2016, So
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950865.jpg" />
 </div>
 
 
@@ -470,7 +583,7 @@ Andy Bey & The Bey Sisters (1964-1965) 2000, Prestige[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950863.jpg" />
 </div>
 
 
@@ -499,7 +612,7 @@ Hank Mobley - Dig Dis (1960) 2CD, 2011, Not Now Music [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950859.jpg" />
 </div>
 
 
@@ -528,7 +641,7 @@ Paul Smith - Brazilian Detour (1966) Remaster, 2013, Warner [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950790.jpg" />
 </div>
 
 
@@ -557,7 +670,7 @@ Chico Hamilton Trio - Introducing Freddie Gambrell (1958) Remaster, 1991, Toshib
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950789.jpg" />
 </div>
 
 
@@ -586,7 +699,7 @@ Woody Herman - Memorial: The 40th Anniversary Carnegie Hall Concert (1988) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950788.jpg" />
 </div>
 
 
@@ -615,7 +728,7 @@ Lee Morgan - The Sidewinder (1963) Remaster, 2013, Universal[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950780.jpg" />
 </div>
 
 
@@ -629,122 +742,6 @@ Lee Morgan - The Sidewinder (1963) Remaster, 2013, Universal[FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:511E0955C8C27403A1BE584DD9798203E07E7C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089628   (950766) от 04.01.2017
-
-Pat Martino - Remember: A Tribute To Wes Montgomery (2006) Blue Note[FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Four On Six [06:03]
- 02.Groove Yard [05:55]
- 03.Full House [07:03]
- 04.Heart Strings [06:52](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE9872FFCF029B24E2E5B31D759DA0E7E87494C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089773   (950654) от 04.01.2017
-
-VA - A Groovy Kind of Sax (1995) авторская раздача [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодние каникулы - благодатное время для того, чтоб ещё раз порыться в своей коллекции. И порою "находишь" диски о которых уже и подзабылось. Из таких "забытых" и этот диск (будут ещё несколько из этой серии), выпущенный в далеком 1995 году сублейблом Demon Music Group и купленных по случаю на Юноне. К сожалению, издатель привел в буклете только (   Читать дальше...   )01. A Groovy Kind of Love  (2:57)
-02. Arthur's Theme (The Best That You Can Do)  (3:48)
-03. Misty  (4:18)
-04. My Cherie Amour  (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B680F361CD0DA6D81682DFA948E319C2F895740E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089577   (950436) от 04.01.2017
-
-Ben Webster & Dexter Gordon - Swiss Radio Days Jazz Series: Baden 1972, vol.10 (1998) TCB[FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Some Other Blues [09:51]
- 02.In A Mellow Tone [08:09]
- 03.Blues in F [09:45]
- 04.Sunday [07:04](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4238F9236ECE486019D6A6FED49C76437F006427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981931   (950186) от 02.02.2016
-
-Shorty Rogers - Courts The Count (1954) Remaster, 2014, Sony Music[FLAC|tracks+.cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Jump For Me [04:01]
- 02.Topsy [03:22]
- 03.It's Sand, Man [03:01]
- 04.Basie Eyes [03:27](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F91672919FB313140CCBC299EE0D84B56C9698
 ```
 
 https://mybot314.ru/tekegram_catalog/

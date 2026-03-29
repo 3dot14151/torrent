@@ -1,3 +1,81 @@
+###  Публикация: 1772486   (31316) от 11.01.2025
+
+Builders of Egypt (2025) [Ru/Multi] (1.036) Repack R.G. Freedom
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31316.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Builders of Egypt вы сможете исследовать земли фараонов на протяжении веков – от Дельты Нила до Нубии. Стройте города, управляйте торговлей, экономикой и ресурсами, принимайте стратегические решения, контролируйте армии и участвуйте в сражениях, развивайте религиозную сферу и заботьтесь о благополучии своих граждан. Пройдите полную кампанию или воплотите свои творческие (   Читать дальше...   )Тип издания: RepackРазработчик: Strategy LabsЖанр: Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A407D6260720C56DB341476D386870EDF8E5F02D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772478   (31303) от 11.01.2025
+
+Builders of Egypt (2025) [Ru/Multi] (1.036) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31303.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Builders of Egypt вы сможете исследовать земли фараонов на протяжении веков – от Дельты Нила до Нубии. Стройте города, управляйте торговлей, экономикой и ресурсами, принимайте стратегические решения, контролируйте армии и участвуйте в сражениях, развивайте религиозную сферу и заботьтесь о благополучии своих граждан. Пройдите полную кампанию или воплотите свои творческие (   Читать дальше...   )Тип издания: RepackРазработчик: Strategy LabsЖанр: Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F177F079281DBD0C85D2422D4B4E98BB1A06CBA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772477   (31251) от 11.01.2025
+
+Builders of Egypt (2025) [Ru/Multi] (1.036) Repack seleZen
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31251.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Builders of Egypt вы сможете исследовать земли фараонов на протяжении веков – от Дельты Нила до Нубии. Стройте города, управляйте торговлей, экономикой и ресурсами, принимайте стратегические решения, контролируйте армии и участвуйте в сражениях, развивайте религиозную сферу и заботьтесь о благополучии своих граждан. Пройдите полную кампанию или воплотите свои творческие (   Читать дальше...   )Тип издания: RepackРазработчик: Strategy LabsЖанр: Инди, Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68CEC7E5F1F939170587AB30809CF5E43150D592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773709   (30653) от 17.01.2025
 
 Reus 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
@@ -6,7 +84,7 @@ Reus 2 (2024) [Ru/Multi] (1.5.0/dlc) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30653.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Catizens (2022) [Ru/Multi] (1.0.r153) Repack FitGirl [Game & Soundtrack Bundle]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30447.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Frostpunk 2 (2024) [Ru/Multi] (1.2.2-433870) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29976.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.01) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29809.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Learning Factory (2021) [Ru/Multi] (1.0.0.546) Repack FitGirl [Curious Mind Edit
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29190.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Foundation (2019) [Ru/Multi] (1.0) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28989.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Foundation (2019) [Ru/Multi] (1.10.2.0/dlc) Repack FitGirl [Supporter Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28916.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Sims 2 (2025) [Ru/Multi] (Build 17175009/dlc) Scene Tenoke [Legacy Collectio
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28630.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.72/dlc) Repack FitGirl [Legacy Collection]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28598.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Eyes of War (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28491.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Sims Legacy Collection (2025) [Multi] (17149764/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28265.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Kardboard Kings: Card Shop Simulator (2022) [Ru/Multi] (1.3.25) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27696.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Flooded (2023) [Multi] (1.0.8.3.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27695.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Amazing Cultivation Simulator (2020) [Multi] (1.268-2501211542dev/dlc) License G
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27691.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Catizens (2022) [Ru/Multi] (1.0.r166) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27566.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Vertical Kingdom (2024) [Multi] (1.0.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27186.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Microtopia (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27049.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Feudal Baron: King's Land (2024) [Ru/Multi] (1.0.20241220.698) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26807.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Flash Doll / Светящаяся кукла (2025) [Ru/Multi] (1.0) Repack FitG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26701.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Mycelium Heaven (2025) [Ru/Multi] (1.0.0.1) Repack seleZen
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25901.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.6.0.63057/dlc) Repack FitGirl [Digital Del
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25818.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25758.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Builders Of Egypt (2025) [Ru/Multi] (1.0408) Repack Let'sРlay
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25598.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Builders of Egypt - это экономическая градостроител
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EB34A5B60D892CED63A1D292AE7033CD896B013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641400   (25593) от 06.03.2025
-
-The Pegasus Expedition (2022) [Ru/Multi] (2025 mar01 patch) License GOG [Grand Admiral Edition]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25593.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Pegasus Expedition - это сюжетная глобальная стратегия в научно-фантастическом сеттинге. На родной Земле пришло логическое завершение правления людей и человечество находится на грани исчезновения. В попытках выжить команда ученых отправляет экспедицию под кодовым названием Пегас исследовать космос в поисках дома для землян, но внезапно вы оказываетесь лишь на (   Читать дальше...   )Тип издания: LicenseРазработчик: Kalla GameworksЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484F06B9FA65A6B86A3ECEFFE369670A44F4CADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783508   (25533) от 06.03.2025
-
-Kingdom Two Crowns (2018) [Ru/Multi] (2.1.2 R22365/dlc) Repack FitGirl [Essentials Bundle]
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingdom Two Crowns является новым этапом развития этой известной и увлекательной микростратегии. В новом режиме кампании монархам придется отстраивать королевство, способное выстоять до тех пор, пока не будет найден способ расправиться с Жадностью раз и навсегда. Нанимайте новые типы боевых единиц и разрабатывайте новые технологии для укрепления обороны. Исследуйте (   Читать дальше...   )Тип издания: RepackРазработчик: Noio, CoatsinkЖанр: Strategy (Manage, Busin, Real-time)Язык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D39A1E08EE9E597C5FEF580A28F8D4939BE2D27B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756874   (25457) от 07.03.2025
-
-Hundred Days - Winemaking Simulator (2021) [Ru/Multi] (1.8.0w1/dlc) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25457.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Hundred Days Вы будете иметь полный контроль над новым винодельческим заводом, придётся выбирать какие виноградники выращивать и как их выращивать, когда собирать урожай. Вы должны следить за всем процессом виноделия и делать выбор, который лучше всего подходит для типа вина, который Вы хотите произвести или что требует рынок.Тип издания: LicenseРазработчик: Broken Arms GamesЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08689ABE288D7DB9D1600234E0D96E2AAD6FDFAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

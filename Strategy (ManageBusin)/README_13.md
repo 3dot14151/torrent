@@ -1,3 +1,81 @@
+###  Публикация: 1731898   (51506) от 30.06.2024
+
+Chocolate Factory (2024) [Ru/Multi] (1.006) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chocolate Factory - это не обычный симулятор магната. Конечно, вы построите шоколадную империю и будете управлять ею, но забудьте о том, чтобы обманывать туристов или снижать требования к безопасности на американских горках. Здесь весь кайф в том, чтобы идеально оптимизировать конвейер по переработке какао в конфеты. Представьте себе ряды сверкающих машин, превращающих (   Читать дальше...   )Тип издания: LicenseРазработчик: Tbjbu2Жанр: Экшены, Приключенческие игры, Казуальные игры, СимуляторыЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03665AAD8C994555AF27784C38FA622EE1EC313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548549   (51152) от 04.07.2024
+
+Winkeltje: The Little Shop (2022) [Ru/Multi] (10793/dlc) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winkeltje - игра о строительстве, украшении и управлении небольшим магазином в давние времена. Вы будете заниматься повседневными делами владельца магазина, открывая доступ к новым вещам, которые помогут Вам в управлении Вашим прибыльным предприятием. Как владелец Вашего собственного магазина, вы отвечаете за покупку, продажу и получение прибыли. Товары могут быть (   Читать дальше...   )Тип издания: LicenseРазработчик: SassybotЖанр: Симулятор, Стратегия, ФэнтeзиЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A0DAD4B90CBDA6C5183B1E1BBAB9C8AF6731E80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420663   (51150) от 04.07.2024
+
+Good Company (2020) [Ru/Multi] (1.1.01/dlc) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Good Company — это симулятор менеджера в жанре «тайкун», посвященный строительству, автоматизации и оптимизации империи по производству роботов, генеральным директором которой вам предстоит стать. Играйте в режиме одиночной кампании, проходя сюжетные уровни и карты дополнительных испытаний. Проверьте свое мастерство в бесконечном режиме свободной игры, где успех (   Читать дальше...   )Тип издания: LicenseРазработчик: Chasing CarrotsЖанр: Симулятор, Экономика, МенеджментЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE80D5428BB5766CA3D554E4D24C16F6D605195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734996   (50885) от 06.07.2024
 
 Chocolate Factory (2024) [Ru/Multi] (1.006) Repack FitGirl
@@ -6,7 +84,7 @@ Chocolate Factory (2024) [Ru/Multi] (1.006) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50885.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Land of the Vikings (2023) [Ru/Multi] (1.2.1a) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50105.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Barn Finders (2020) [Ru/Multi] (25982/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50079.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Station to Station (2023) [Ru/Multi] (1.4.1) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50011.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Founders' Fortune (2020) [Ru/Multi] (1.2.8) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49768.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ TerraScape (2024) [Ru/Multi] (1.0) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49663.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Zet Zillions (2024) [Ru/Multi] (1.0.4) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49118.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ HexoCity (2024) [Multi] (1.1.1.1199) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49075.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Blood Bowl III (3) (2023) [Ru/Multi] (1.5.3.0/dlc) Scene Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49011.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Harvest Days: My Dream Farm (2022) [Multi] (1.0.0-dsp/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48717.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Rising Lords (2020) [Multi] (1.1.0) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48667.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Totally Accurate Battle Simulator (2019) [Ru/Multi] (1.0/dlc) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48504.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.4.0.61453/dlc) Scene Rune
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48349.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Spirit Island (2020) [En] (1.0/dlc) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48184.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Fabledom (2024) [Ru/Multi] (1.06) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48151.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Fabledom (2024) [Ru/Multi] (1.06) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48143.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47837.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Highrise City (2022) [Multi] (2.0/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47504.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Mr. Prepper (2021) [Ru/Multi] (1.34f/dlc) Scene Tenoke [Anniversary Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46850.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46245.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Scene TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45916.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Crypt of the Necrodancer (2014) [Ru/Multi] (4.1.1-b5421/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45730.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Harvest Island (2023) [Multi] (20240512/dlc) Scene Tenoke
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45729.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Harvest Island - приключенческий экшен с элементам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:251D765E8209BBD98D6BEDB2EDF5BA27EA95B597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745423   (45602) от 26.08.2024
-
-My Lovely Empress (2024) [Multi] (1.0.5) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45602.jpg" />
-</div>
-
-
-###  Подробнее
-
-My Lovely Empress - симулятор имперского управления, который перенесет вас в мир, насыщенный восточной мифологией. Вы берете на себя роль императора Багровой империи, чье царствование расшатывается под тяжестью личных трагедий и политических волнений. Задача заключается в том, чтобы установить мир с соседними правителями, решать внутренние конфликты и обеспечивать (   Читать дальше...   )Тип издания: RepackРазработчик: GameChanger Studio, Neon DoctrineЖанр: Инди, Симуляторы, СтратегииЯзык субтитров: Английский, Индонезийский, Китайский (упрощенный)Язык интерфейса: Английский, Индонезийский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36254CD100ABD3C16B8CFA035D33467404CBAAF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745889   (45406) от 28.08.2024
-
-Paris in 2000 Years (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paris in 2000 Years - это градостроительная игра, посвященная истории Парижа. Вы можете строить, улучшать и украшать различные здания. Выполнение исторических квестов также принесет вам в награду знаковые архитектурные достопримечательности. Игра охватывает три крупные исторические эпохи: галло-римскую, средневековую и эпоху Возрождения.Тип издания: RepackРазработчик: WindforceЖанр: Инди, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Китайский (упрощенный)Язык интерфейса: Английский, Французский, Китайский (упрощенный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6656091236B9F4794368BED369797B4594C105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543466   (45211) от 30.08.2024
-
-Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приветствую, Ваша Светлость! Просторные земли готовы к колонизации и ждут ваших поселенцев. Отправьте своих архитекторов и строителей проектировать и строить новый город. Но не забудьте и про рабочих - пусть рубят деревья и добывают руду. Освойте плодородные земли, чтобы прокормить своих голодных подданных. Townsmen A Kingdom Rebuilt даст вам примерить на себя королевскую (   Читать дальше...   )Тип издания: LicenseРазработчик: HandyGamesЖанр: Симулятор, Стратегия, МенеджментЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5106FCEB5A49A22C2AF97D42A55565ED99F60BBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

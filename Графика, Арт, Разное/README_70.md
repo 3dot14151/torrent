@@ -1,3 +1,29 @@
+###  Публикация: 919367   (582619) от 19.07.2015
+
+Современное искусство - Josephine Wall / Жозефин Уолл [JPG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_582619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картины замечательной английской художницы Жозефин Уолл в стиле фэнтези отличаются невероятным обилием деталей и яркими необычными сочетаниями цветов, которые стали своеобразным брендом художницы. Такие полотна можно рассматривать часами. Жозефин Уолл работает в основном с акриловыми красками, которые позволяют ей рисовать быстро и создавать множество текстурных (   Читать дальше...   )Формат: JPGРазрешение файлов: 663х900 — 1990х1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEA5383B502F040BEE920F40508EF2C96AB3BB17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919121   (582561) от 19.07.2015
 
 Обои - 4K Wallpapers [JPG]
@@ -6,7 +32,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582561.jpg" />
+  <img src="Z:/picture/008/save_picture_582561.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580855.jpg" />
+  <img src="Z:/picture/008/save_picture_580855.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579806.jpg" />
+  <img src="Z:/picture/008/save_picture_579806.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579207.jpg" />
+  <img src="Z:/picture/008/save_picture_579207.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579202.jpg" />
+  <img src="Z:/picture/008/save_picture_579202.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578637.jpg" />
+  <img src="Z:/picture/008/save_picture_578637.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578073.jpg" />
+  <img src="Z:/picture/008/save_picture_578073.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577977.jpg" />
+  <img src="Z:/picture/008/save_picture_577977.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577073.jpg" />
+  <img src="Z:/picture/008/save_picture_577073.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575413.jpg" />
+  <img src="Z:/picture/008/save_picture_575413.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575377.jpg" />
+  <img src="Z:/picture/008/save_picture_575377.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575371.jpg" />
+  <img src="Z:/picture/008/save_picture_575371.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574886.jpg" />
+  <img src="Z:/picture/008/save_picture_574886.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574878.jpg" />
+  <img src="Z:/picture/008/save_picture_574878.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современная фотография
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574741.jpg" />
+  <img src="Z:/picture/008/save_picture_574741.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574587.jpg" />
+  <img src="Z:/picture/008/save_picture_574587.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574119.jpg" />
+  <img src="Z:/picture/008/save_picture_574119.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573645.jpg" />
+  <img src="Z:/picture/008/save_picture_573645.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573640.jpg" />
+  <img src="Z:/picture/008/save_picture_573640.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573599.jpg" />
+  <img src="Z:/picture/008/save_picture_573599.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573589.jpg" />
+  <img src="Z:/picture/008/save_picture_573589.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573551.jpg" />
+  <img src="Z:/picture/008/save_picture_573551.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573437.jpg" />
+  <img src="Z:/picture/008/save_picture_573437.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573387.jpg" />
+  <img src="Z:/picture/008/save_picture_573387.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573306.jpg" />
+  <img src="Z:/picture/008/save_picture_573306.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Digital Artist Benita Winckler
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C22807507B13AAD02B2D0EFBADF53B12793A906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528513   (573200) от 28.07.2012
-
-[Графика] An Jeongwon - Artist Maggis Harem
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573200.jpg" />
-</div>
-
-
-###  Подробнее
-
-An Jeongwon - Artist Maggis Harem
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D097E8CA2A005AD1AA3FF66485AFC5233E497D
 ```
 
 https://mybot314.ru/tekegram_catalog/

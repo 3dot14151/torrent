@@ -1,3 +1,90 @@
+###  Публикация: 1451447   (1028386) от 02.03.2021
+
+Alpha Tiger - Alpha Tiger (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road To Vega
+02. Comatose
+03. Feather In The Wind
+04. Singularity(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E43618F12E8B9A5DAD7C0D78EE7A29D6CB568A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451402   (1028381) от 02.03.2021
+
+Jon Oliva's Pain - Festival (2010) Limited Edition Digipak [FLAC|Lossless|image + .cue] <Progressive Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lies (06:19)
+02. Death Rides a Black Horse (06:15)
+03. Festival (05:00)
+04. Afterglow (06:50)(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0851F024C5475861DB532689EF7C2236A8E1329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451221   (1028378) от 02.03.2021
+
+Saints & Sinners - Saints & Sinners (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake
+02. Rip It Up
+03. Walk That Walk
+04. Takin' My Chances(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CB233B8691DBDC0BECBFD4A7EF7133B203EBA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451473   (1028373) от 02.03.2021
 
 Alpha Tiger - 4 Studio Albums (2011-2017) 4xCD [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +93,7 @@ Alpha Tiger - 4 Studio Albums (2011-2017) 4xCD [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028373.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Null'O'Zero - Instructions To Dominate (2018) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028256.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Tragedian - Seven Dimensions (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028245.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Slayer - Divine Intervention (1994) Reissue, 2013,  American Recordings [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028240.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Slayer - Christ Illusion (2006) Reissue, 2007,  American Recordings [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028237.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Invernoir - The Void And The Unbearable Loss (2020) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028102.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Eclipse Of The Sun - Brave Never World (2020) [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028075.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Acid Reign - 4 Studio Albums (1987-2019) 4xCD [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028040.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Violator - Scenarios Of Brutality (2013) [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027967.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Saturnian - Dimensions (2012) [FLAC|Lossless|image + .cue] <Symphonic Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027962.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Dauthuz - Cold (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027961.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Light Field Reverie - Another World (2020) [FLAC|Lossless|image + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027767.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Warrior Path - Warrior Path (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027751.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Warrior Path - The Mad King (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027732.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Ektomorf - Reborn (2021) [FLAC|Lossless|image + .cue] <Thrash Metal, Groove Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027248.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Moonspell - Hermitage (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal, Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027226.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Immortal - 9 Studio Albums (1992-2018) 9xCD [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027204.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Thorium - Thorium (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027116.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Beyond The Border - Voyces (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027109.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Circus Maximus - 4 Studio Albums (2005-2017) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027099.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Vns Vinicius the Guitar Ripping - A Sound Adventure (2021) [FLAC|Lossless|WEB-DL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026972.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Bleeding Gods - Dodekathlon (2018) [FLAC|Lossless|image + .cue] <Death Metal, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026804.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Secret Sphere - Lifeblood (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026796.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Secret Sphere - Lifeblood (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C401F275D708D1383494018BFCDF33F7F634FAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453915   (1026794) от 12.03.2021
-
-Carlos Boza - A Night In Alger (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,  Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Night In Alger (00:03:38)
-02. Imazighen (00:01:15)
-03. Hidden Love (00:03:30)
-04. Imaginary Moons (00:04:46)(   Читать дальше...   )Жанр: Progressive Metal,  InstrumentalПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2001DE8B89ADB280E0DDCD15B04BB1D9CA5D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453626   (1026783) от 12.03.2021
-
-Orden Ogan - Final Days (2021) [FLAC|Lossless|tracks + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Of The Android 00:04:31
-02. In The Dawn Of The A 00:06:06
-03. Inferno 00:04:36
-04. Let The Fire Rain  00:04:35(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95361E628B5285EE30CBD8DFB2CB6B36005AA765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453813   (1026778) от 12.03.2021
-
-Slayer - World Painted Blood (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Painted Blood
-02. Unit 731
-03. Snuff
-04. Beauty Through Order(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583CFDFBE6327C4C7E8543732F0C279083388B31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1499230   (849420) от 01.10.2021
+
+kalachevaschool, Александра Балашова | Героини сказок (2018) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_849420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всего за несколько уроков мини-курса мы узнаем, как стилизовать пропорции персонажа таким образом, чтобы они остались гармоничными.
+Нарисуем трех разных персонажей: героиню классической европейской сказки, царевну из русской сказки и противную ведьму. На ведьме мы отработаем особенности отрицательных персонажей. Кроме того, научимся не просто подбирать красивые картинки (   Читать дальше...   )Производство: kalachevaschoolЖанр: Создание видеоПродолжительность: 01:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE782442E98D0FCB3601D71C565585142489960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499237   (849414) от 01.10.2021
 
 kalachevaschool, Александра Балашова | Волшебные существа (2018) PCRec
@@ -6,7 +33,7 @@ kalachevaschool, Александра Балашова | Волшебные су
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849414.jpg" />
+  <img src="Z:/picture/008/save_picture_849414.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ kalachevaschool, Александра Балашова | Мужские перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849407.jpg" />
+  <img src="Z:/picture/008/save_picture_849407.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Motion Design School | Cinema 4D Journey (2019) PCRec [H.264/1080p-LQ] (урок
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849352.jpg" />
+  <img src="Z:/picture/008/save_picture_849352.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ kalachevaschool, Анна Михеева | Ювелирные украшения
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849296.jpg" />
+  <img src="Z:/picture/008/save_picture_849296.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ FlippedNormals | Скульптинг инопланетянина в Blender 2.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847924.jpg" />
+  <img src="Z:/picture/008/save_picture_847924.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847909.jpg" />
+  <img src="Z:/picture/008/save_picture_847909.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ Max Twain, Katy Joker | KIARA (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845820.jpg" />
+  <img src="Z:/picture/008/save_picture_845820.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Max Twain, Many Wayne | IDOL (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845818.jpg" />
+  <img src="Z:/picture/008/save_picture_845818.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Max Twain, Stan Air | QUEENY (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845809.jpg" />
+  <img src="Z:/picture/008/save_picture_845809.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ CG Cookie | Введение в видеоэффекты в Blender 2.63 / Intro
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844638.jpg" />
+  <img src="Z:/picture/008/save_picture_844638.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ Udemy | Симуляция жидкости с помощью Mantaflow в Blend
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844633.jpg" />
+  <img src="Z:/picture/008/save_picture_844633.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ Udemy | Создание видеоэффектов с помощью продв
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844551.jpg" />
+  <img src="Z:/picture/008/save_picture_844551.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ Udemy, Josh Gambrell | Недеструктивное твёрдотельное
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844401.jpg" />
+  <img src="Z:/picture/008/save_picture_844401.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842496.jpg" />
+  <img src="Z:/picture/008/save_picture_842496.jpg" />
 </div>
 
 
@@ -377,7 +404,7 @@ kalachevaschool, Евдокия | Настроение города (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841201.jpg" />
+  <img src="Z:/picture/008/save_picture_841201.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ kalachevaschool, Евдокия | Колоритные жители (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841200.jpg" />
+  <img src="Z:/picture/008/save_picture_841200.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ kalachevaschool, Анастасия Лавру | Добрый волшебник
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841197.jpg" />
+  <img src="Z:/picture/008/save_picture_841197.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ kalachevaschool, Анастасия Лавру | Мудрая сова (2018) PC
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841196.jpg" />
+  <img src="Z:/picture/008/save_picture_841196.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ kalachevaschool, Евдокия | Ритм улиц (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841187.jpg" />
+  <img src="Z:/picture/008/save_picture_841187.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ kalachevaschool, Анастасия Лавру | Сказочный замок (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841183.jpg" />
+  <img src="Z:/picture/008/save_picture_841183.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ Udemy, Emiel Sleegers | Full Environment Creation in UE5 & Blender 2.92 - In-Dep
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840824.jpg" />
+  <img src="Z:/picture/008/save_picture_840824.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ ArtStation, Emiel Sleegers | Creating a metro train interior in Unreal Engine 5 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_839347.jpg" />
+  <img src="Z:/picture/009/save_picture_839347.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839183.jpg" />
+  <img src="Z:/picture/008/save_picture_839183.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ Schoolism, Sonja Christoph | Introduction to Blender 2.9 (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837752.jpg" />
+  <img src="Z:/picture/008/save_picture_837752.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837643.jpg" />
+  <img src="Z:/picture/008/save_picture_837643.jpg" />
 </div>
 
 
@@ -654,34 +681,6 @@ Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (202
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A96C6DA8E4EBF0244FB4D8944DCABB8B2AA84F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501084   (837631) от 08.10.2021
-
-Яндекс.Практикум | Профессия Дизайнер интерфейсов (2021) WEB-DL [Части 1-7 из 7] [AD]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайнер интерфейсов решает задачи пользователей и бизнеса: разрабатывает внешний облик сайтов и мобильных приложений, проектирует пользовательский опыт и анализирует целевую аудиторию. Он делает цифровые продукты полезными и удобными. Мы научим вас работать с Figma и другими инструментами дизайн-процесса.
-Что вы получите в Практикуме:
-За 7 месяцев обучения по 10 (   Читать дальше...   )Производство: Яндекс.ПрактикумЖанр: ДизайнПродолжительность: 39:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74D771FFD54AF34336CA8FE068C08AA24701B2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

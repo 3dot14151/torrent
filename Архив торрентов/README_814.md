@@ -6,7 +6,7 @@ PhoneRescue for iOS 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864954.jpg" />
+  <img src="Z:/picture/008/save_picture_864954.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ MarsEdit 4 v4.5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864948.jpg" />
+  <img src="Z:/picture/008/save_picture_864948.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Feeder 4 v4.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864944.jpg" />
+  <img src="Z:/picture/008/save_picture_864944.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Angelight - Tantrabeats (2CD) (2008)[MP3|320 кб/с]<World music>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864934.jpg" />
+  <img src="Z:/picture/008/save_picture_864934.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864920.jpg" />
+  <img src="Z:/picture/008/save_picture_864920.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864919.jpg" />
+  <img src="Z:/picture/008/save_picture_864919.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864918.jpg" />
+  <img src="Z:/picture/008/save_picture_864918.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864917.jpg" />
+  <img src="Z:/picture/008/save_picture_864917.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864916.jpg" />
+  <img src="Z:/picture/008/save_picture_864916.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864911.jpg" />
+  <img src="Z:/picture/008/save_picture_864911.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864910.jpg" />
+  <img src="Z:/picture/008/save_picture_864910.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Johan Gielen - Revelations (2016) Remastered [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864908.jpg" />
+  <img src="Z:/picture/008/save_picture_864908.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Mozilla Firefox 46.0 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864907.jpg" />
+  <img src="Z:/picture/008/save_picture_864907.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Downie 4 v4.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864881.jpg" />
+  <img src="Z:/picture/008/save_picture_864881.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ iReal Pro 2021.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864880.jpg" />
+  <img src="Z:/picture/008/save_picture_864880.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Vidmore Player 1.0.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864879.jpg" />
+  <img src="Z:/picture/008/save_picture_864879.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ start 5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864878.jpg" />
+  <img src="Z:/picture/008/save_picture_864878.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ iA Writer 5.6.14  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864876.jpg" />
+  <img src="Z:/picture/008/save_picture_864876.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Infuse PRO 7 v7.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864872.jpg" />
+  <img src="Z:/picture/008/save_picture_864872.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Kygo - Live @ Sunnmore Alps, Norway (2021-03-05) [MP3|320 Kbps] <House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864864.jpg" />
+  <img src="Z:/picture/008/save_picture_864864.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864842.jpg" />
+  <img src="Z:/picture/008/save_picture_864842.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864833.jpg" />
+  <img src="Z:/picture/008/save_picture_864833.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Calendar 366 Plus 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864828.jpg" />
+  <img src="Z:/picture/008/save_picture_864828.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864826.jpg" />
+  <img src="Z:/picture/008/save_picture_864826.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864819.jpg" />
+  <img src="Z:/picture/008/save_picture_864819.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Registry Life 3.25 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864817.jpg" />
+  <img src="Z:/picture/008/save_picture_864817.jpg" />
 </div>
 
 

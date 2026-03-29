@@ -1,3 +1,30 @@
+###  Публикация: 822495   (479764) от 18.09.2014
+
+Людмила Улицкая | Сто пуговиц (1983) [FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479764.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Маша замолчала на минутку, пока конфета ещё была во рту, а кот, тот на конфету и не посмотрел, только морду обиженную сделал. А Маша всё кричала, и Серёжа стал ей скармливать конфету за конфетой. Она хоть на немного замолкала после конфетки, а кот вообще не замолкал, и отогнать его от двери было невозможно.
+«Нет, не пущу», — твёрдо сказал Серёжа сам себе. Но… (   Читать дальше...   )Жанр: Детская прозаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9361192212EF75F234BEF3B8C42C448361D0D00E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056693   (479486) от 26.09.2016
 
 Александр Сергеевич Пушкин | Сказки (2015) [PDF, DJVU]
@@ -6,7 +33,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479486.jpg" />
+  <img src="Z:/picture/008/save_picture_479486.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478641.jpg" />
+  <img src="Z:/picture/008/save_picture_478641.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478506.jpg" />
+  <img src="Z:/picture/008/save_picture_478506.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478318.jpg" />
+  <img src="Z:/picture/008/save_picture_478318.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477972.jpg" />
+  <img src="Z:/picture/008/save_picture_477972.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477711.jpg" />
+  <img src="Z:/picture/008/save_picture_477711.jpg" />
 </div>
 
 
@@ -164,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477559.jpg" />
+  <img src="Z:/picture/008/save_picture_477559.jpg" />
 </div>
 
 
@@ -190,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477506.jpg" />
+  <img src="Z:/picture/008/save_picture_477506.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477381.jpg" />
+  <img src="Z:/picture/008/save_picture_477381.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477201.jpg" />
+  <img src="Z:/picture/008/save_picture_477201.jpg" />
 </div>
 
 
@@ -271,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476844.jpg" />
+  <img src="Z:/picture/008/save_picture_476844.jpg" />
 </div>
 
 
@@ -297,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476557.jpg" />
+  <img src="Z:/picture/008/save_picture_476557.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476015.jpg" />
+  <img src="Z:/picture/008/save_picture_476015.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475989.jpg" />
+  <img src="Z:/picture/008/save_picture_475989.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475987.jpg" />
+  <img src="Z:/picture/008/save_picture_475987.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475792.jpg" />
+  <img src="Z:/picture/008/save_picture_475792.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475680.jpg" />
+  <img src="Z:/picture/008/save_picture_475680.jpg" />
 </div>
 
 
@@ -461,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475477.jpg" />
+  <img src="Z:/picture/008/save_picture_475477.jpg" />
 </div>
 
 
@@ -487,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475365.jpg" />
+  <img src="Z:/picture/008/save_picture_475365.jpg" />
 </div>
 
 
@@ -513,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475200.jpg" />
+  <img src="Z:/picture/008/save_picture_475200.jpg" />
 </div>
 
 
@@ -540,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474886.jpg" />
+  <img src="Z:/picture/008/save_picture_474886.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474510.jpg" />
+  <img src="Z:/picture/008/save_picture_474510.jpg" />
 </div>
 
 
@@ -592,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473581.jpg" />
+  <img src="Z:/picture/008/save_picture_473581.jpg" />
 </div>
 
 
@@ -618,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473415.jpg" />
+  <img src="Z:/picture/008/save_picture_473415.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473300.jpg" />
+  <img src="Z:/picture/008/save_picture_473300.jpg" />
 </div>
 
 
@@ -657,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:999A69BB652BBC985A6D0A9D34FB957EC6546D6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057888   (473290) от 29.09.2016
-
-Юхан Кундер | Волшебное зеркало и другие сказки (1983) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юхан Кундер (1852—1888) — эстонский писатель, критик и педагог. Родился в крестьянской семье. Окончил в 1875 году Тартускую учительскую семинарию. Он известен как составитель учебников по естествознанию и русскому языку. Автор пьес из народной жизни и собиратель эстонского фольклора.
-Ю. Кундер составил и опубликовал сборник «Эстонские сказки». На русском языке его (   Читать дальше...   )Жанр: Детская проза, сказкаПеревод: Леон ТоомФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B7CF622B39467F479F31BEF814A473C5D6F6A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

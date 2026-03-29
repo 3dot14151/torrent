@@ -1,3 +1,237 @@
+###  Публикация: 1596614   (5307) от 30.08.2025
+
+Kynseed (2018) [En] (1.2.11.14505) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kynseed - это ролевая игра в приключенческом жанре и симулятор жизни в открытом мире. Игра увидела свет в 2018 году и уже успела обрести собственную фанатскую базу. Суть прохождения заключается в полном погружении в выдуманный мир, наполненный разными обитателями, у которых есть свои дела и привычки. Игроку предложено взаимодействовать с этими персонажами, попутно (   Читать дальше...   )Тип издания: LicenseРазработчик: PixelCount StudiosЖанр: Симулятор, Ролевая игра, МенеджментЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C05DD5C415CD4610BB45922003E8639B3562198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638864   (5306) от 30.08.2025
+
+Caves of Lore (2023) [En] (1.8.0.0) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Caves of Lore - это мрачная тактическая ролевая игра с пошаговыми сражениями и классическим фэнтезийным миром. Соберите отряд из отважных бойцов и отправляйтесь навстречу приключениям в попытках раздобыть ценные сокровища. Спускайтесь в темнейшие подземелья, исследуйте запутанные лабиринты руин и блуждайте по непроходимой чащи леса в попытках отыскать драгоценности. (   Читать дальше...   )Тип издания: LicenseРазработчик: by Mike RobinsЖанр: Ролевая игра, Пошаговая, ФэнтeзиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD8C368173F982E09C5E552DEF5F3E45AB25A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539879   (5304) от 30.08.2025
+
+Knights of the Chalice 2 (2022) [En] (1.91) License GOG [Archmage Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Knights of the Chalice 2 - это 2D-ролевая игра с пошаговыми боями для Windows и macOS. В игре используется OGL 3.5, набор правил, лежащий в основе Dungeons & Dragons 3.5, ролевой игры от Wizards of the Coast. Создайте группу из шести искателей приключений и исследуйте деревню Финчбери и опасный канализационный комплекс, скрывающийся под городом. В ходе приключения (   Читать дальше...   )Тип издания: LicenseРазработчик: Heroic Fantasy Games Dot ComЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C85BBC5F9BB069E0445FC3E2660A84F32B553BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696997   (5284) от 30.08.2025
+
+Legends of Amberland: The Forgotten Crown (2019) [Ru/Multi] (1.31) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Legends of Amberland: The Forgotten Crown - ролевая партийная игра, вдохновленная классическими RPG ранних 90-х годов. Вам предстоит управлять небольшим отрядом героев, исследуя большой фэнтезийный мир и сражаясь с многочисленными монстрами. В игре содержится огромное количество юмора и самоиронии над олдскульным геймдизайном.Тип издания: LicenseРазработчик: Silver Lemur GamesЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA533B6512BA7E985A9191F94AE749F01A81BA51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815427   (5257) от 30.08.2025
+
+Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack seleZen
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в эпическое путешествие и спасите свою младшую сестру - а также все человечество - от загадочных межпространственных захватчиков из других измерений в игре Lost Soul Aside. Бросьте вызов грозным врагам и боссам-исполинам в этом невероятно стильном ролевом боевике, сочетая разные виды оружия и зрелищные комбо-атаки в яростных динамичных сражениях. Осваивайте (   Читать дальше...   )Тип издания: RepackРазработчик: Ultizero GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C4D1D4AF1056E4E62957337B9B31875DA76F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815748   (5066) от 31.08.2025
+
+Soulstice (2022) [Ru/Multi] (1.1.0+219971/dlc) Repack Let'sРlay [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Равновесие в Святом Королевстве Кейдас нарушилось, когда из-за Завесы пришли дикие могучие существа, называемые призраками, намеревавшиеся пожрать всех живых. Призраки меняют своих жертв и могут даже вселиться в их тела, обращая несчастных в неугомонных чудовищ, охотящихся на мирных жителей. Защитить человечество могут лишь «химеры»: воины-гибриды, рождённые от союза (   Читать дальше...   )Тип издания: RepackРазработчик: Reply Game StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE9BD49CEA8681C1FF39B14152F455D8F5B61D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815607   (5060) от 31.08.2025
+
+Lost Soul Aside (2025) [Ru/Multi] (build 19738594) Repack FitGirl [Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в эпическое путешествие и спасите свою младшую сестру - а также все человечество - от загадочных межпространственных захватчиков из других измерений в игре Lost Soul Aside. Бросьте вызов грозным врагам и боссам-исполинам в этом невероятно стильном ролевом боевике, сочетая разные виды оружия и зрелищные комбо-атаки в яростных динамичных сражениях. Осваивайте (   Читать дальше...   )Тип издания: RepackРазработчик: Ultizero GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706CE1D34EC6ABAB168EC45997C8C8AB1D941B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815744   (5050) от 31.08.2025
+
+Abyss Eschaton Survivors (2025) [Ru/Multi] (1.00.10) Repack FitGirl
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я – моя собственная бездна и моё собственное спасение. Abyss Eschaton Survivors - это рогалик с пулевым адом (bullet hell). Вы войдёте в разные сны, чтобы бросить вызов приспешникам Повелителя Бездны, и в конце концов сразитесь со зловещим Повелителем Бездны на нижнем уровне лабиринта Бездны.Тип издания: RepackРазработчик: ArrhythmiaZackЖанр: Экшены, Приключенческие игры, Казуальные игры, Ролевые игры, СтратегииЯзык субтитров: Русский, Английский, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7038A1E70A3428883D2682E57A3A8068CAB2930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815606   (5028) от 31.08.2025
+
+Lost Soul Aside (2025) [Ru/Multi] (build 19738594/dlc) Scene Rune [Digital Deluxe Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в эпическое путешествие и спасите свою младшую сестру - а также все человечество - от загадочных межпространственных захватчиков из других измерений в игре Lost Soul Aside. Бросьте вызов грозным врагам и боссам-исполинам в этом невероятно стильном ролевом боевике, сочетая разные виды оружия и зрелищные комбо-атаки в яростных динамичных сражениях. Осваивайте (   Читать дальше...   )Тип издания: SceneРазработчик: Ultizero GamesЖанр: Экшены, Приключенческие игры, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955691C797454599E1E7A5E5BF19D9ACDFD9976A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780519   (4900) от 01.09.2025
 
 DISORDER (2025) [Ru/Multi] (Build 19621037) Repack Let'sРlay
@@ -6,7 +240,7 @@ DISORDER (2025) [Ru/Multi] (Build 19621037) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4900.jpg" />
 </div>
 
 
@@ -32,7 +266,7 @@ Dustwind: Resistance (2025) [Ru/Multi] (Revision 11500) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4891.jpg" />
 </div>
 
 
@@ -58,7 +292,7 @@ Cat Quest III (2024) [Ru/Multi] (1.4.7) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4873.jpg" />
 </div>
 
 
@@ -84,7 +318,7 @@ Secrets of Grindea (2024) [En] (1.10h) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4596.jpg" />
 </div>
 
 
@@ -110,7 +344,7 @@ Mirthwood (2024) [Ru/Multi] (1.0.88p1) Repack dixen18
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4517.jpg" />
 </div>
 
 
@@ -136,7 +370,7 @@ Lords of the Fallen (2023) [Ru/Multi] (2.0.77/dlc) Repack Let'sРlay [Deluxe Edi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4508.jpg" />
 </div>
 
 
@@ -162,7 +396,7 @@ Lies of P (2023) [Ru/Multi] (1.11.0.0/dlc) Repack Wanterlude [Deluxe Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4234.jpg" />
 </div>
 
 
@@ -188,7 +422,7 @@ Dungeons & (and) Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4233.jpg" />
 </div>
 
 
@@ -214,7 +448,7 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.0.0.1/dlc) Repack Wanterl
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3985.jpg" />
 </div>
 
 
@@ -240,7 +474,7 @@ Three Kingdoms Mushouden (2025) [Ru/Multi] (1.8.8/dlc) Scene Tenoke [Digital Del
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3981.jpg" />
 </div>
 
 
@@ -266,7 +500,7 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.67) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3673.jpg" />
 </div>
 
 
@@ -292,7 +526,7 @@ Nordic Ashes: Survivors of Ragnarok (2024) [Ru/Multi] (2.0.5.5/dlc) Repack Let's
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3549.jpg" />
 </div>
 
 
@@ -318,7 +552,7 @@ Tyrant's Realm (2025) [Ru/Multi] (Build 19545604) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3540.jpg" />
 </div>
 
 
@@ -344,7 +578,7 @@ Shattered Pixel Dungeon (2022) [Ru/Multi] (3.2.3) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3533.jpg" />
 </div>
 
 
@@ -370,7 +604,7 @@ Look Outside (2025) [Ru/En] (1.07) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3521.jpg" />
 </div>
 
 
@@ -396,7 +630,7 @@ Section 13 (2023) [Ru/Multi] (1.1.0) Repack Let'sРlay
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3420.jpg" />
 </div>
 
 
@@ -422,7 +656,7 @@ Darkest Dungeon II (2023) [Ru/Multi] (2.03.79909 HF/dlc) Repack Let'sРlay [Reso
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3415.jpg" />
 </div>
 
 
@@ -433,240 +667,6 @@ Darkest Dungeon II - это путешествие в жанре рогалик,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9A020E8F94D5F07FD5B71D2651ED740D8F576C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773817   (3259) от 12.09.2025
-
-DYSMANTLE (2021) [Ru/Multi] (1.4.1.8/dlc) Repack Let'sРlay [Complete Bundle]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло много лет, и вы, наконец, покидаете свое убежище. Но дивный старый мир уже не такой, как прежде. Теперь он полон отвратительных и жутких существ. В этом мире, похоже, нет места человеку, ведь в нем властвует природа. И со временем все станет только хуже. Оставьте убежище. Разрушьте все. Покиньте проклятый остров. Впереди исследования.Тип издания: RepackРазработчик: 10tons LtdЖанр: Экшены, Приключенческие игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347951E697B323C18E0D13FC1CC9F08578241F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773039   (3100) от 13.09.2025
-
-Knock on the Coffin Lid (2024) [Ru/Multi] (1.3.5.4/dlc) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3100.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Knock on the Coffin lid вы очнетесь в холодном склепе в тысяче миль от вашего дома, лишенные памяти о случившемся и в компании таинственного незнакомца. Чтобы вернуть потерянные воспоминания, вам придётся исследовать мрачные тайны собственной смерти, заключать неожиданные союзы и тщательно планировать свой путь. Расследуй историю своей собственной смерти, найди (   Читать дальше...   )Тип издания: RepackРазработчик: RedBoonЖанр: Приключенческие игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B35A5B30D739C9E363427318F990D9CB577F15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728285   (3046) от 13.09.2025
-
-Heads Will Roll: Reforged (2023) [Ru/Multi] (2.6/dlc) Repack FitGirl [Complete Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heads Will Roll: Reforged позволит игроку примерить на себя роль обычного средневекового солдата, волею судеб оказавшегося в эпицентре легендарной Столетней войны между королями Англии и Франции. Вы начинаете свой путь простым пехотинцем, единственной целью которого является выживание, но при должном уровне мастерстве, хитрости, а также пролитой крови, вы вскоре (   Читать дальше...   )Тип издания: RepackРазработчик: 1917 StudiosЖанр: Ролевая игра, Пошаговая, ИсторическаяЯзык субтитров: Русский, Английский, Португальский (Бразилия) и другиеЯзык интерфейса: Русский, Английский, Португальский (Бразилия) и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:043E1ED729D9CF12DD85694FE30AD4EF33146BAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775255   (2891) от 14.09.2025
-
-Smalland: Survive the Wilds (2024) [Ru/Multi] (2.0.4) Repack Let'sРlay
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большое приключение в крошечном масштабе! Оказавшись в самом низу пищевой цепочки, нужно готовиться ко всему. Создавайте оружие и броню, седлайте невиданных зверей, стройте базы и исследуйте причудливые земли. Когда-то мы свободно жили под светом Луны и Солнца, покуда наш мир не заняли гиганты. Столетия минули с той поры, но истории о чудесах жизни на поверхности (   Читать дальше...   )Тип издания: RepackРазработчик: Merge GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B791ABC3ED7F9E9CBDB11B3D3D54370A33B4412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793520   (2725) от 15.09.2025
-
-The Elder Scrolls IV: Oblivion Remastered (2025) [Ru/Multi] (1.512.105.0/dlc) Repack Wanterlude
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2725.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Elder Scrolls IV: Oblivion Remastered представляет собой переосмысление игры 2006 года с обновлённой графикой и доработанным игровым процессом. Исследуйте необъятные просторы Сиродила и сражайтесь с захватчиками из Обливиона в новой версии легендарной ролевой игры от знаменитой студии Bethesda Game Studios.Тип издания: RepackРазработчик: Bethesda Game Studios, VirtuosЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8ACBA3F9827DA4F7A442187753BF6C1F54A8AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708306   (2721) от 15.09.2025
-
-KeeperRL (2024) [En] (1.2.6) License GOG
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2721.jpg" />
-</div>
-
-
-###  Подробнее
-
-KeeperRL - симулятор с элементами рогалика, в котором предстоит строить подземную базу и развивать общество. Вы играете за могущественного волшебника, обучающегося черной магии. Обучайте миньонов военному делу, заставляя нападать на мирных жителей поселений, забирая их пожитки и сжигая дотла дома. Занимайтесь постройкой подземелий, расставляйте ловушки и наращивайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Electric SuccubiЖанр: Ролевые игры, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F264BB42D8711756786CD560D95D9BB3522194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794187   (2695) от 15.09.2025
-
-Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0a) Repack Wanterlude
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2695.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Tainted Grail: The Fall of Avalon» - это серьезная ролевая игра от первого лица в открытом мире, созданном в стиле мрачного фэнтези по мотивам легенд о короле Артуре. Вас ждет сложноустроенная, разветвленная сюжетная линия, в которой ваши решения будут определять наследие короля Артура и результат напряженной 600-летней борьбы для всего мира.Тип издания: RepackРазработчик: QuestlineЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DD219F011B1F7D3BFD090D6D4F98364BA1F0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818176   (2674) от 15.09.2025
-
-Lost Eidolons (2022) [Ru/Multi] (1.5.4/dlc) Repack Let'sРlay [Digital Deluxe]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost Eidolons – пошаговая тактическая ролевая игра с захватывающим киноповествованием, действие которой происходит в приходящей в упадок Империи, раздираемой гражданской войной. Вы – харизматичный капитан наемников Иден. Ваша задача – победить в эпических сражениях классической пошаговой стратегии.Тип издания: RepackРазработчик: Ocean Drive Studio, Inc.Жанр: Казуальные игры, Инди, Ролевые игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B701F7644FE0A402B92DDAF9FC207798E43EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752765   (2590) от 16.09.2025
-
-Warhammer 40,000: Rogue Trader (2023) [Ru/Multi] (1.4.1.231/dlc) Repack Wanterlude [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warhammer 40,000: Rogue Trader – это изометрическая ролевая игра, сделанная по мотивам культовой вселенной Боевого Молота. В её сеттинге гримдарк смешивается с научной фантастикой. Данный продукт предлагает путешествовать по космосу на огромном корабле, посещать разные места, болтать с колоритными неписями, прокачиваться, выполнять квесты, участвовать в битвах. Все (   Читать дальше...   )Тип издания: RepackРазработчик: Owlcat GamesЖанр: Role-Playing, Turn-Based, TacticalЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B9B41FF9FA092E1A886DD991FB8C09D38588EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

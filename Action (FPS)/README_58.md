@@ -1,3 +1,107 @@
+###  Публикация: 1814626   (6030) от 25.08.2025
+
+S.T.A.L.K.E.R.: Shadow of Chornobyl (2025) [Ru/Multi] (1.2) Repack dixen18 [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зона - бывшая территория отчуждения вокруг Чернобыльской атомной электростанции, полная непостижимых чудес и жутких угроз. Самое опасное место на всей Земле, ставшее еще загадочнее в результате таинственной катастрофы в 2006 году. Аномалии с драгоценными артефактами, голодные мутанты и охотники на чужое имущество наполнили эти земли вместе со сталкерами, которые (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC95E02E7177D31CE79BA61FF2110813DB75851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814993   (5628) от 28.08.2025
+
+Enemy Front (2014) [Ru/Multi] (1.0/dlc) Repack Let'sРlay
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enemy Front - это шутер от первого лица, действие которого разворачивается во время Второй мировой войны, где игроки берут на себя роль военного корреспондента Роберта Хокинса, а затем вступают в ряды польского сопротивления для борьбы против нацистов. Игра предлагает историю о диверсионных операциях и партизанской борьбе в контексте реальных исторических событий, (   Читать дальше...   )Тип издания: RepackРазработчик: CI GamesЖанр: ЭкшеныЯзык озвучки: Английский, Французский, ПольскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DDD4563F211074CEDEC2EE59898F281E0CCE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771781   (5591) от 28.08.2025
+
+Echo Point Nova (2024) [Ru/Multi] (2.1) Repack FitGirl [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5591.jpg" />
+</div>
+
+
+###  Подробнее
+
+От создателей Severed Steel! Сыграйте в шутер от первого лица и погрузитесь в необъятный открытый мир. Вы можете поиграть сами или в компании из 4 друзей! Вы - космический исследователь, и ваш корабль потерпел крушение на загадочной планете. На ней уже орудует безжалостная организация наемников, запустившая свои лапы в древнюю технологию для создания опустошительного (   Читать дальше...   )Тип издания: RepackРазработчик: Greylock StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC367710F39671413746ECB727645F46EE57D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815169   (5553) от 28.08.2025
+
+Echo Point Nova (2024) [Ru/Multi] (2.11) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5553.jpg" />
+</div>
+
+
+###  Подробнее
+
+От создателей Severed Steel! Сыграйте в шутер от первого лица и погрузитесь в необъятный открытый мир. Вы можете поиграть сами или в компании из 4 друзей! Вы - космический исследователь, и ваш корабль потерпел крушение на загадочной планете. На ней уже орудует безжалостная организация наемников, запустившая свои лапы в древнюю технологию для создания опустошительного (   Читать дальше...   )Тип издания: RepackРазработчик: Greylock StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F4B7FD3423AE76974F31C62F8DA1DAC5044E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815361   (5403) от 29.08.2025
 
 Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack Wanterlude [Gold Edition]
@@ -6,7 +110,7 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack Wanterlude [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5403.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ No Man's Sky (2016) [Ru/Multi] (6.00/dlc) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5030.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4903.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ No Man's Sky (2016) [Ru/Multi] (6.02/dlc) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4625.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ PowerSlave Exhumed (2022) [Multi] (1.0.1659) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4362.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ PowerSlave (1996) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4336.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Wolfenstein: The New Order, The Old Blood, The New Colossus, Youngblood (2014-20
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4263.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3681.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ No Man's Sky (2016) [Ru/Multi] (6.03) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3652.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Wanterlude [Relo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3534.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ ZERO PROTOCOL (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3514.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Deadzone: Rogue (2025) [Ru/Multi] (1.0.0.19) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3422.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ The House of the Dead 2: Remake (2025) [Multi] (20250903) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3390.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Brigand: Oaxaca (2017) [En] (17.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3105.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ S.T.A.L.K.E.R.: Call of Prypiat (2010) [Ru/Multi] (1.10.0.26261) Repack Let'sРl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2282.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl (2007) [Ru/Multi] (1.10.0.26261) Repack Let'
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2281.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ The Precursors / Предтечи (2009) [Ru] (2.2) Repack Foxx [ReBuild]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2261.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ S.T.A.L.K.E.R.: Clear Sky (2008) [Ru/Multi] (1.10.0.26261) Repack Let'sРlay [En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2248.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ CULTIC (2022) [En] (Build 20024050/dlc) Repack Let'sРlay [Complete Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2087.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Betrayer (2014) [Ru/Multi] (1.9.6844.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1902.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.10.0.26261) Rep
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1764.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl / S.T.A.L.K.E.R. Тень Чернобыля
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1762.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl / S.T.A.L.K.E.R. Тень Чернобыля
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E48C1874B73F9E3E1F1E448443811AFF2BAFD4CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798170   (1761) от 21.09.2025
-
-S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [Ru/Multi] (1.10.1-64) License GOG [Enhanced Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвращаемся к тому, с чего все началось - трилогия S.T.A.L.K.E.R., один из самых дальновидных и новаторских шутеров от первого лица на выживание всех времен возвращается. Теперь масштабированное, улучшенное приключение, в которое обязательно нужно поиграть для нового поколения.Тип издания: LicenseРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578D5D61FEEF0D54AE16F166A4147094B7326DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798171   (1727) от 21.09.2025
-
-S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Multi] (1.10.1-64) License GOG [Enhanced Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возвращаемся к тому, с чего все началось - трилогия S.T.A.L.K.E.R., один из самых дальновидных и новаторских шутеров от первого лица на выживание всех времен возвращается. Теперь масштабированное, улучшенное приключение, в которое обязательно нужно поиграть для нового поколения.Тип издания: LicenseРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE93D47DC7623D5F6379B03771598CDBFC963E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556802   (1400) от 23.09.2025
-
-POSTAL: Brain Damaged (2022) [Multi] (1.10.4/dlc) License GOG [Connoisseur Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1400.jpg" />
-</div>
-
-
-###  Подробнее
-
-POSTAL: Brain Damaged - это новая динамичная версия культовой серии игр Running With Scissors с ретроспективной графикой и динамичным современным геймплеем. Совершите дикую прогулку на американских горках по запутанной стране чудес, заключённой в запутанном уме почтового Чувака. Приготовьтесь испытать Postal с совершенно новой точки зрения! Этот побочный продукт (   Читать дальше...   )Тип издания: LicenseРазработчик: Hyperstrange, CreativeForge GamesЖанр: Экшны, От первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Польский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Польский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8BF2DE404B0964AA4974338E640392FD83AB1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743493   (1372) от 23.09.2025
-
-Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди огненных баталий Project Warlock 2 есть рациональное зерно – противостояние сил света и тьмы. В мире, полном мерзких тварей, главный герой учился чародейскому искусству у своего наставника. Но очнувшись в покинутом замке, протагонист обнаруживает, что его учитель бесследно пропал, а округа буквально кишит монстрами. Взяв себя в руки, Палмер перезаряжает посох, (   Читать дальше...   )Тип издания: LicenseРазработчик: Buckshot SoftwareЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4384C11F5EAE9EE0EF7EC281A95D2700057C4A41
 ```
 
 https://mybot314.ru/tekegram_catalog/

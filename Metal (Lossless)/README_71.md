@@ -1,3 +1,90 @@
+###  Публикация: 1503234   (819590) от 19.10.2021
+
+Leverage - Determinus (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn Love Burn
+02. Wind Of Morrigan
+03. Tiger
+04. Red Moon Over Sonora(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D06E3D036BCCC8FC65069E25AD8A23464133CF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503398   (819481) от 19.10.2021
+
+Black Sabbath - Live In Worcester'83 (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819481.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1983 году в Black Sabbath сложилась весьма интересная "кадровая" ситуация. При микшировании концертного альбома Live Evil, между Айомми и Дио разгорелась ссора: первый обвинил второго в том, что тот пробрался ночью в студию чтобы увеличить громкость своего вокала. И к моменту выхода пластинки в январе 1983 года Дио покинул Black Sabbath, забрав с собой (   Читать дальше...   )01. Children Of The Grave
+02. Hot Line
+03. War Pigs
+04. Iron Man(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80080A9B02FC24A34225B98F419BE2C3A8AC9EFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382353   (819406) от 11.05.2020
+
+Catamenia - Eternal Winter's Prophecy (2000) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Gates of Anubis 03:06
+02 Soror Mystica 04:15
+03 Blackmension 03:50
+04 Kindom of legions 04:01(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5865DED98DD7A21ACEF09DFF19225C960D8DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382352   (819403) от 11.05.2020
 
 Catamenia - Morning Crimson (1999) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
@@ -6,7 +93,7 @@ Catamenia - Morning Crimson (1999) [FLAC|Lossless|image + .cue] <Melodic Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819403.jpg" />
+  <img src="Z:/picture/008/save_picture_819403.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Domain - The Sixth Dimension (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819273.jpg" />
+  <img src="Z:/picture/008/save_picture_819273.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Obituary - Obituary (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819092.jpg" />
+  <img src="Z:/picture/008/save_picture_819092.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Scarlet Aura - Stormbreaker (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817974.jpg" />
+  <img src="Z:/picture/008/save_picture_817974.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Ihsahn - Arktis. (2016) Deluxe Editition [FLAC|Lossless|tracks + .cue] <Extreme 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817950.jpg" />
+  <img src="Z:/picture/008/save_picture_817950.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Artillery - X (2021) Limited Edition [FLAC|Lossless|image + .cue] <Thrash Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817895.jpg" />
+  <img src="Z:/picture/008/save_picture_817895.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Scarlet Aura - Hot'n'Heavy (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817894.jpg" />
+  <img src="Z:/picture/008/save_picture_817894.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Paradox - Heresy II: End Of A Legend (2021) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817893.jpg" />
+  <img src="Z:/picture/008/save_picture_817893.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Scarlet Aura - Genesis of Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817892.jpg" />
+  <img src="Z:/picture/008/save_picture_817892.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Scarlet Aura - Falling Sky (2016) [FLAC|Lossless|image + .cue] <Melodic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817890.jpg" />
+  <img src="Z:/picture/008/save_picture_817890.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Ronnie Atkins - 4 More Shots: The Acoustics (2021) EP [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817882.jpg" />
+  <img src="Z:/picture/008/save_picture_817882.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Caladan Brood - Echoes Of Battle (2013) [FLAC|Lossless|image+.cue]<Epic Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817589.jpg" />
+  <img src="Z:/picture/008/save_picture_817589.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Wallack - Black Neons (2020) [FLAC|Lossless|Web-DL|tracks] <Industrial Metal, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817532.jpg" />
+  <img src="Z:/picture/008/save_picture_817532.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Lanfear - The Art Effect (2003) [FLAC|Lossless]<Progressive Metal  /Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817385.jpg" />
+  <img src="Z:/picture/008/save_picture_817385.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Epica - Epica Vs Attack On Titan Songs (2017) EP, Japanese Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817282.jpg" />
+  <img src="Z:/picture/008/save_picture_817282.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Disperse - Foreword (2017) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817184.jpg" />
+  <img src="Z:/picture/008/save_picture_817184.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Metallica - Kill'em All (1983) Remastered 2016 [FLAC|Lossless|image + .cue] <Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817156.jpg" />
+  <img src="Z:/picture/008/save_picture_817156.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Metallica - Ride The Lightning (1984) Remastered 2016 [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816986.jpg" />
+  <img src="Z:/picture/008/save_picture_816986.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Thunderhead - 4 Studio Albums (1989-1993) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816130.jpg" />
+  <img src="Z:/picture/008/save_picture_816130.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Riot - Fire Down Under (1981) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816029.jpg" />
+  <img src="Z:/picture/008/save_picture_816029.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Steingrab - Mystik (2017) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815915.jpg" />
+  <img src="Z:/picture/008/save_picture_815915.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Mercenary - 11 Dreams (2004) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815674.jpg" />
+  <img src="Z:/picture/008/save_picture_815674.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Millenium - Hourglass (2000) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815552.jpg" />
+  <img src="Z:/picture/008/save_picture_815552.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Millenium - Hourglass (2000) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D0A5D4BFE5E1CA1E10F61D3DC25BBE6F33EFA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588335   (815448) от 13.05.2020
-
-Michael  Vescera - Sign Of Things To Come (2008) [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between Heaven And Hell [03:31]
- 02. Sign Of Things To Come [04:11]
- 03. Shine On [03:49]
- 04. Something To Believe [04:13](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2DF3B2BCF175249DCEC88D2672A09B19CB7561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504085   (814136) от 22.10.2021
-
-Hate - Rugia (2021) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rugia
-02. The Wolf Queen
-03. Exiles Of Pantheon
-04. Saturnus(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA12328BA030DB94CB92C95B23FD6F4739F6F25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504001   (814130) от 22.10.2021
-
-Dream Theater - A View From the Top of the World (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Alien (9:32)
-02. Answering the Call (7:35)
-03. Invisible Monster (6:31)
-04. Sleeping Giant (10:05)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194C6547BE70A338B2137A05E247015A0B352E96
 ```
 
 https://mybot314.ru/tekegram_catalog/

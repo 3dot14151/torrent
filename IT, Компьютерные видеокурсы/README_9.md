@@ -1,3 +1,140 @@
+###  Публикация: 1449754   (1029679) от 22.02.2021
+
+The Coding Gnome, Dave Thomas  | Elixir для программистов / Elixir for Programmers (2019) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истинное мастерство в Elixir происходит от понимания основных идиом: функциональное программирование, преобразования, параллелизм и структура приложения. Вам нужно знать инструменты, такие как IEx и mix. И вам нужно понимать такие фреймворки, как OTP и Phoenix. Этот курс поможет вам начать этот путь (и ваш опыт займет у вас оставшуюся часть пути). В курсе есть видео, (   Читать дальше...   )Производство: The Coding GnomeЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 07:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA28F104F63045ECB26948E1AA7F23958B632C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623201   (1029553) от 31.03.2023
+
+Network for Everyone (NFE, N4E) | Работа с Wireshark (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для предоставления сетевым администраторам практических навыков, необходимых для решения сетевых проблем, анализа данных и анализа внутренней работы протоколов.
+Кому подойдёт этот курс:Сетевые инженеры
+Системные инженеры
+Инженеры технической поддержкиМинимальные требования:Базовые знания сетевых технологий (модель OSI/TCPIP)(   Читать дальше...   )Производство: Network for Everyone (NFE, N4E)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 03:07:15Реклама: Сторонние наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C3CAEA41BE4C9945143E61CB2FC8E81B07C872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449763   (1029488) от 23.02.2021
+
+KnowThen, James Moore | Elixir и Phoenix для начинающих / Elixir & Phoenix for Beginners (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс содержит более 150 видео, общей продолжительностью ~ 17,5 часов, с тщательно продуманным контентом, охватывающим Elixir версии 1.9 и Phoenix версии 1.4. Вы также будете иметь много упражнений и задач на протяжении всего курса, чтобы дать вам некоторую практику и держать вас в курсе.
+Мы начнем с основ и проработаем основные функции Elixir, а затем начнем (   Читать дальше...   )Производство: KnowThenЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 17:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C831F41D2C6A1761C79E6A4F37B5C72DC4CD33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449826   (1029465) от 23.02.2021
+
+Learn Enough, Michael Hartl | Разработка веб-приложений с Ruby on Rails [КНИГА + ВИДЕО] / Ruby on Rails Tutorial 6th ed. (EBOOK + VIDEO) (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со времени публикации в 2010 году  это "Учебное пособие по Ruby on Rails" стало одним из ведущих введений в веб-разработку. В этом бестселлере вы узнаете, как разрабатывать и развертывать реальные промышленные приложения с использованием Ruby on Rails, веб-среды с открытым исходным кодом, которая поддерживает такие ведущие веб-сайты, как Hulu, GitHub, Shopify (   Читать дальше...   )Производство: Learn EnoughЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 19:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AB2EB17947B26D30DAF0812A1A3F8002A742B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450208   (1029141) от 25.02.2021
+
+Udemy, Dmitri Nesteruk | Design Patterns in C# and .NET (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс дает всесторонний обзор шаблонов проектирования в C # и .NET с практической точки зрения. В этом курсе, в частности, рассматриваются шаблоны с использованием:
+Последние версии C # и .NET framework
+Использование современных подходов к программированию: внедрение зависимостей, реактивное программирование и др.
+Использование современных инструментов разработчика, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 19:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E302BABCD406894053AE5AC5E6A3AE9E2DC02C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450335   (1029121) от 25.02.2021
 
 Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp 2021 (2021) PCRec [En / En, Ru Sub]
@@ -6,7 +143,7 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp 202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029121.jpg" />
 </div>
 
 
@@ -34,7 +171,7 @@ Udemy, Maximilian Schwarzmüller | Svelte.js - The Complete Guide (incl. Sapper.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028993.jpg" />
 </div>
 
 
@@ -61,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028954.jpg" />
 </div>
 
 
@@ -89,7 +226,7 @@ Udemy, We Secure © Training & Consultancy | The Information Security Masterclas
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028839.jpg" />
 </div>
 
 
@@ -117,7 +254,7 @@ Udemy, Denis Panjuta | Complete Android 11 Jetpack Masterclass (2021) PCRec [En 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028837.jpg" />
 </div>
 
 
@@ -144,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028820.jpg" />
 </div>
 
 
@@ -171,7 +308,7 @@ Udemy, Валерий Жданов | Google Офис (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028814.jpg" />
 </div>
 
 
@@ -197,7 +334,7 @@ The StationX Cyber Security School, Udemy, Nathan House | The Complete Cyber Sec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028789.jpg" />
 </div>
 
 
@@ -226,7 +363,7 @@ Ironskills, Иван Гордынец | Онлайн-курс "Работа с �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028783.jpg" />
 </div>
 
 
@@ -255,7 +392,7 @@ OTUS, Дмитрий Котлов  | Программист 1С (Часть 1-4)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028762.jpg" />
 </div>
 
 
@@ -284,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028761.jpg" />
 </div>
 
 
@@ -312,7 +449,7 @@ Pentester Academy | Powershell For Pentesters  (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028757.jpg" />
 </div>
 
 
@@ -338,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028656.jpg" />
 </div>
 
 
@@ -367,7 +504,7 @@ Udemy, Sonali Shrivastava | TCP/IP Socket programming HandsOn-Windows & Linux in
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028652.jpg" />
 </div>
 
 
@@ -393,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028632.jpg" />
 </div>
 
 
@@ -421,7 +558,7 @@ Ironskills, Иван Гордынец | Онлайн-курс "Программ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028575.jpg" />
 </div>
 
 
@@ -450,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028413.jpg" />
 </div>
 
 
@@ -477,7 +614,7 @@ Skillbox, Михаил Овчинников и др. | Профессия Раз
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028259.jpg" />
 </div>
 
 
@@ -506,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028113.jpg" />
 </div>
 
 
@@ -533,7 +670,7 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027811.jpg" />
 </div>
 
 
@@ -560,7 +697,7 @@ Udemy, Rustam Kamalov | Python + Django: с нуля до коммерчески
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027800.jpg" />
 </div>
 
 
@@ -573,139 +710,6 @@ Udemy, Rustam Kamalov | Python + Django: с нуля до коммерчески
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CC1E41F6F685E44D267B0EFB8AA4D0F9A87F639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452450   (1027652) от 06.03.2021
-
-Udemy, Antonio Papa | React и NestJS: Практическое Руководство С Docker / React and NestJS: A Practical Guide with Docker (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я разработчик FullStack с более чем 10-летним опытом. Я одержим чистым кодом и изо всех сил стараюсь, чтобы в моих курсах был максимально чистый код. Мой стиль преподавания очень прост, я не буду тратить слишком много времени на объяснение всех способов, которыми вы можете создать что-то или другую ненужную информацию, чтобы увеличить продолжительность моих лекций. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28097BC9FE1CE8E6C89D5C65404C246FBCFC32D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452496   (1027641) от 06.03.2021
-
-Udemy, Maximilian Schwarzmüller | NextJS и React - Полное Руководство / NextJS & React - The Complete Guide (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я создал самый продаваемый курс Udemy по React, теперь я очень рад поделиться с вами этим курсом по NextJS - углубленным курсом об удивительном фреймворке React, который позволяет вам сделать следующий шаг в качестве разработчика React и построить настоящие, готовые к производству проекты с React и Next.js! Next.js - это готовый к работе фреймворк с поддержкой полного (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 24:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48FE247C7B2849D2D20F1A9A3EDC1F839BEE616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452373   (1027616) от 06.03.2021
-
-Tilda school | Научитесь создавать сайты, лендинги и интернет-магазины на Тильде (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получите быстрый старт в профессии веб-дизайнера и освойте навыки, которые помогут решать важные задачи бизнеса в интернете.Жанр: Программирование, вёрсткаЯзык озвучки: РусскийПродолжительность: 00:15:00 (видеоурок)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474F993B54BFB77D0D327545259C6AF92ECF2E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452341   (1027607) от 06.03.2021
-
-Diodov.net, Дмитрий Забарило | Учимся программировать микроконтроллеры (2020) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень большой курс по программированию микроконтроллеров "От и До".
-Данный курс рассчитан главным образом для начинающих, но также будет полезен тем, кто уже имеет некоторый опыт программирования микроконтроллеров, а также студентам соответствующих специальностей.
-Отличительной особенностью данного онлайн курса является простота и доступность изложения (   Читать дальше...   )Производство: Diodov.netЖанр: Программирование, электронникаЯзык озвучки: РусскийПродолжительность: ~02:25:00 (Видеоурок)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F18F6E0275AE71C94D06311C10AE0953B3C7B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452806   (1027516) от 07.03.2021
-
-Udemy, YouAccel Training | Web Development Masterclass - Complete Certificate Course  (2019) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс предлагает всесторонний взгляд на весь процесс веб-разработки - от конфигурации локального сервера с использованием WAMP и MAMP (Apache, MySQL, PHP) до производственного развертывания с использованием новейших веб-технологий, включая: LAMP Stack (Linux, Apache, PHP и MySQL) для Ubuntu, HTML5, CSS, Bootstrap, JavaScript, jQuery, XML и AJAX.
-Контент идеально (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 20:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED1D51727131809C7154472475CB90F8FB6AE0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

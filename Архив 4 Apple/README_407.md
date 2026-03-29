@@ -1,3 +1,113 @@
+###  Публикация: 1414721   (381595) от 10.10.2020
+
+Downie 4.1.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 09.10.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C3A335326B6DCADEFBBBFD4D0D324548BB5763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415031   (381592) от 10.10.2020
+
+File Juicer 4.88 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381592.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Juicer - уникальная программа, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
+
+File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.09.2020Разработчик: Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F3A54B1823A47BD3F06A74EA4B2A040B9B734C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415019   (381443) от 10.10.2020
+
+DxO PhotoLab 3 ELITE Edition 3.3.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
+
+Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2020Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90666CFEFCCDF717A9D8626634171BD2CE460095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415103   (381289) от 10.10.2020
+
+MediaInfo 20.09 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_381289.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaInfo — программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.Тип издания: macOS SoftwareРелиз состоялся: 09.10.2020Разработчик: MediaAreaПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8874DD772AD9D356D64046FF3D55D4D45D1666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415002   (381026) от 10.10.2020
 
 CrossOver 20.0 [Multi/Ru]
@@ -6,7 +116,7 @@ CrossOver 20.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381026.jpg" />
+  <img src="Z:/picture/008/save_picture_381026.jpg" />
 </div>
 
 
@@ -34,7 +144,7 @@ ScreenFlow 7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380952.jpg" />
+  <img src="Z:/picture/008/save_picture_380952.jpg" />
 </div>
 
 
@@ -63,7 +173,7 @@ TotalFinder 1.10.3 (pre-releases) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380950.jpg" />
+  <img src="Z:/picture/008/save_picture_380950.jpg" />
 </div>
 
 
@@ -91,7 +201,7 @@ Commander One PRO Pack 2 v2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380886.jpg" />
+  <img src="Z:/picture/008/save_picture_380886.jpg" />
 </div>
 
 
@@ -120,7 +230,7 @@ Shredo 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380740.jpg" />
+  <img src="Z:/picture/008/save_picture_380740.jpg" />
 </div>
 
 
@@ -149,7 +259,7 @@ Camtasia 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380728.jpg" />
+  <img src="Z:/picture/008/save_picture_380728.jpg" />
 </div>
 
 
@@ -176,7 +286,7 @@ Waltr 2 v2.0.3 (Halloween) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380591.jpg" />
+  <img src="Z:/picture/008/save_picture_380591.jpg" />
 </div>
 
 
@@ -203,7 +313,7 @@ Cinemagraph Pro 2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380444.jpg" />
+  <img src="Z:/picture/008/save_picture_380444.jpg" />
 </div>
 
 
@@ -229,7 +339,7 @@ Apple iMovie 10.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380136.jpg" />
+  <img src="Z:/picture/008/save_picture_380136.jpg" />
 </div>
 
 
@@ -257,7 +367,7 @@ Human Fall Flat v.1.1.2G (2016) [En] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379864.jpg" />
+  <img src="Z:/picture/008/save_picture_379864.jpg" />
 </div>
 
 
@@ -283,7 +393,7 @@ Twitterrific 5 for Twitter 5.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379704.jpg" />
+  <img src="Z:/picture/008/save_picture_379704.jpg" />
 </div>
 
 
@@ -311,7 +421,7 @@ iFinance 4 v4.4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379631.jpg" />
+  <img src="Z:/picture/008/save_picture_379631.jpg" />
 </div>
 
 
@@ -337,7 +447,7 @@ Vectoraster 7 v7.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379626.jpg" />
+  <img src="Z:/picture/008/save_picture_379626.jpg" />
 </div>
 
 
@@ -365,7 +475,7 @@ Contacts Journal CRM 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379625.jpg" />
+  <img src="Z:/picture/008/save_picture_379625.jpg" />
 </div>
 
 
@@ -393,7 +503,7 @@ VideoboxPro 1.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379624.jpg" />
+  <img src="Z:/picture/008/save_picture_379624.jpg" />
 </div>
 
 
@@ -421,7 +531,7 @@ beaTunes 5.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379623.jpg" />
+  <img src="Z:/picture/008/save_picture_379623.jpg" />
 </div>
 
 
@@ -449,7 +559,7 @@ Easy New File 4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379622.jpg" />
+  <img src="Z:/picture/008/save_picture_379622.jpg" />
 </div>
 
 
@@ -475,7 +585,7 @@ MWeb: Markdown writing,note taking,static blog Gen 3.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379621.jpg" />
+  <img src="Z:/picture/008/save_picture_379621.jpg" />
 </div>
 
 
@@ -502,7 +612,7 @@ Principle 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379620.jpg" />
+  <img src="Z:/picture/008/save_picture_379620.jpg" />
 </div>
 
 
@@ -529,7 +639,7 @@ iNotepad Pro 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379618.jpg" />
+  <img src="Z:/picture/008/save_picture_379618.jpg" />
 </div>
 
 
@@ -555,7 +665,7 @@ Tower 2.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379585.jpg" />
+  <img src="Z:/picture/008/save_picture_379585.jpg" />
 </div>
 
 
@@ -582,7 +692,7 @@ Airmail 3 v3.6.42 (3.6.43) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379518.jpg" />
+  <img src="Z:/picture/008/save_picture_379518.jpg" />
 </div>
 
 
@@ -595,111 +705,6 @@ Airmail – это почтовый клиент для операционной
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73DE4FC6DD9DF587FCF607701DC3E55419F9EB75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253943   (379517) от 11.10.2018
-
-Navicat Premium 12 v12.1.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 11.10.2018Разработчик: PremiumSoftПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB2E9786708B2295C7FCE7D744955FFA4C166E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253740   (379431) от 11.10.2018
-
-Movavi Video Editor 15 v15.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте лучшую программу для обработки видео на Мак – вам понадобится всего несколько минут, чтобы ее освоить! В Видеоредакторе Movavi есть все, что нужно для быстрого видеомонтажа на Mac, удобной нарезки видео и создания красочных слайд-шоу из фотографий. Просто загрузите фото и видео в программу, исправьте качество одним нажатием кнопки, добавьте анимированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2018Разработчик: MovaviПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F799814F6F9CD7D9CBF8099EA423E8AABB4A5B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253797   (379312) от 11.10.2018
-
-TurboCollage 7 v7.0.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте великолепные коллажи изображений на вашем Mac. Настройте коллаж с рельефным центром картины, организуйте фотографии в регулярной сетке или создайте случайную картину. Свяжите приятные воспоминания вместе в великолепные мозаики изображений. Благодаря интуитивно понятному интерфейсу, TurboCollage дает вам полный контроль над вашим дизайном коллажа. TurboCollage (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2018Разработчик: Gaurav AgarwalПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E858FB4B840EDAA3B6BE8776CE5551805CD636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949222   (379266) от 22.10.2015
-
-TechTool Pro 8.0.3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379266.jpg" />
-</div>
-
-
-###  Подробнее
-
-TechTool Pro — диагностику заказывали?
-Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 октября 2015Разработчик: Micromat Inc.Поддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC72015FA1E81BCF03E9545C820525CD4E8EAA94
 ```
 
 https://mybot314.ru/tekegram_catalog/

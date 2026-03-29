@@ -6,7 +6,7 @@ LosslessCut 3.23.7 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805892.jpg" />
+  <img src="Z:/picture/008/save_picture_805892.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Driver Booster Pro 7.4.0.731 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805891.jpg" />
+  <img src="Z:/picture/008/save_picture_805891.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Driver Booster Pro 7.4.0.730 (акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805884.jpg" />
+  <img src="Z:/picture/008/save_picture_805884.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mailbird Pro 2.8.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805883.jpg" />
+  <img src="Z:/picture/008/save_picture_805883.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Tor Browser Bundle 10.5.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805878.jpg" />
+  <img src="Z:/picture/008/save_picture_805878.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Defend the Rook (2021) [Ru/Multi] (1.02) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805869.jpg" />
+  <img src="Z:/picture/008/save_picture_805869.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805867.jpg" />
+  <img src="Z:/picture/008/save_picture_805867.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Travellers Rest (2020) [Ru/Multi] (0.4.4.2) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805866.jpg" />
+  <img src="Z:/picture/008/save_picture_805866.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805858.jpg" />
+  <img src="Z:/picture/008/save_picture_805858.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Quiet Riot - Highway To Hell (2016) 2CD [FLAC|Lossless|image + .cue] <Heavy Meta
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805857.jpg" />
+  <img src="Z:/picture/008/save_picture_805857.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805844.jpg" />
+  <img src="Z:/picture/008/save_picture_805844.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805839.jpg" />
+  <img src="Z:/picture/008/save_picture_805839.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Overman King-Gainer / Король Гэйнер [2002, TV, 26 из 26] BDRip 720
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805824.jpg" />
+  <img src="Z:/picture/008/save_picture_805824.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805770.jpg" />
+  <img src="Z:/picture/008/save_picture_805770.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Spectra Sonics - Revival (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805760.jpg" />
+  <img src="Z:/picture/008/save_picture_805760.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ SolSuite Solitaire 2020 (2020) [Ru/En] (20.05) Repack/Portable TryRooM (обно
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805716.jpg" />
+  <img src="Z:/picture/008/save_picture_805716.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (1.04) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805704.jpg" />
+  <img src="Z:/picture/008/save_picture_805704.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Wingspan (2020) [Ru/Multi] (1.1.83.1020.1502) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805701.jpg" />
+  <img src="Z:/picture/008/save_picture_805701.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ KMSAuto++ Portable 1.6.2 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805690.jpg" />
+  <img src="Z:/picture/008/save_picture_805690.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805687.jpg" />
+  <img src="Z:/picture/008/save_picture_805687.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805684.jpg" />
+  <img src="Z:/picture/008/save_picture_805684.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805681.jpg" />
+  <img src="Z:/picture/008/save_picture_805681.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805679.jpg" />
+  <img src="Z:/picture/008/save_picture_805679.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805671.jpg" />
+  <img src="Z:/picture/008/save_picture_805671.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805625.jpg" />
+  <img src="Z:/picture/008/save_picture_805625.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805613.jpg" />
+  <img src="Z:/picture/008/save_picture_805613.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 947055   (419774) от 16.10.2015
+
+Андрей Сурков | Инсталяция навыков (2014) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_419774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тренинг, благодаря которому вы получите полный разбор всех технологий, необходимых для приобретения любого навыка в любой сфере.Жанр: Обучение, Навыки, СкорочтениеПродолжительность: 15:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CC70E6281DDCA67C94EFE4E41D07CB0D5C034C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168228   (410129) от 23.09.2017
 
 Габриэль Суарез | Тактическое Преимущество (2017) WEBRip [H.264/720p-LQ]
@@ -6,7 +32,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410129.jpg" />
+  <img src="Z:/picture/008/save_picture_410129.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387930.jpg" />
+  <img src="Z:/picture/008/save_picture_387930.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385154.jpg" />
+  <img src="Z:/picture/008/save_picture_385154.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382180.jpg" />
+  <img src="Z:/picture/008/save_picture_382180.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380801.jpg" />
+  <img src="Z:/picture/008/save_picture_380801.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380788.jpg" />
+  <img src="Z:/picture/008/save_picture_380788.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380521.jpg" />
+  <img src="Z:/picture/008/save_picture_380521.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378178.jpg" />
+  <img src="Z:/picture/008/save_picture_378178.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377969.jpg" />
+  <img src="Z:/picture/008/save_picture_377969.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377121.jpg" />
+  <img src="Z:/picture/008/save_picture_377121.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376879.jpg" />
+  <img src="Z:/picture/008/save_picture_376879.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376720.jpg" />
+  <img src="Z:/picture/008/save_picture_376720.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374641.jpg" />
+  <img src="Z:/picture/008/save_picture_374641.jpg" />
 </div>
 
 
@@ -360,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374598.jpg" />
+  <img src="Z:/picture/008/save_picture_374598.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373526.jpg" />
+  <img src="Z:/picture/008/save_picture_373526.jpg" />
 </div>
 
 
@@ -415,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369276.jpg" />
+  <img src="Z:/picture/008/save_picture_369276.jpg" />
 </div>
 
 
@@ -441,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366934.jpg" />
+  <img src="Z:/picture/008/save_picture_366934.jpg" />
 </div>
 
 
@@ -467,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364950.jpg" />
+  <img src="Z:/picture/008/save_picture_364950.jpg" />
 </div>
 
 
@@ -493,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364721.jpg" />
+  <img src="Z:/picture/008/save_picture_364721.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363066.jpg" />
+  <img src="Z:/picture/008/save_picture_363066.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353795.jpg" />
+  <img src="Z:/picture/008/save_picture_353795.jpg" />
 </div>
 
 
@@ -574,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353147.jpg" />
+  <img src="Z:/picture/008/save_picture_353147.jpg" />
 </div>
 
 
@@ -603,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341645.jpg" />
+  <img src="Z:/picture/008/save_picture_341645.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335057.jpg" />
+  <img src="Z:/picture/008/save_picture_335057.jpg" />
 </div>
 
 
@@ -657,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333335.jpg" />
+  <img src="Z:/picture/008/save_picture_333335.jpg" />
 </div>
 
 
@@ -669,34 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:746821DE47CABD4F991876F62251FD63FE0FCEEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259357   (333114) от 18.11.2010
-
-Видеостудия ТГУ | Нейрон и память. Концепция памяти в системном подходе. [2009] WEBRip
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нейрон и память. Часть 1. Концепция памяти в системном подходе.
-Открытая лекция из цикла - Нейрон и память - посвященная нейронным механизмам функционирования памяти.
-Современные представления в науке о том как происходит запоминание, как формируется след памяти, который будет использован в будущем, за какие функции отвечает мозг, о приоритетных  направлениях развития когнитивных наук и эволюции в представлениях и подходах к изучению мозга и памяти в частности.Жанр: ЛекцияФормат: AVIПродолжительность: 00:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488BD6C6E222C744E0E84B675FBC7A328E69F857
 ```
 
 https://mybot314.ru/tekegram_catalog/

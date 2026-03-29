@@ -1,3 +1,29 @@
+###  Публикация: 1393868   (765893) от 02.07.2020
+
+The Catch: Carp & Coarse (2020) [Ru/Multi] (1.0) Repack xatab
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преследуйте огромных рыб по всему свету и поймайте рыбу своей мечты. Вам понадобится стратегия, тактика и умение, чтобы поймать трофейную рыбу в каждом из водоемов, населенных 35 видами рыб. Тщательно выберите место в зависимости от времени суток и погодных условий, запаситесь безупречным снаряжением, забросьте леску в воду и приготовьтесь к ожесточенным сражениям (   Читать дальше...   )Тип издания: RepackРазработчик: Dovetail GamesЖанр: Казуальные игры, Симуляторы, Спортивные игры, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216B11BF94658078A0DD26611AC2173C53C0831A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 202296   (765497) от 22.05.2010
 
 Farming Simulator 2009 / Фермер [Ru] (L) 2010
@@ -6,7 +32,7 @@ Farming Simulator 2009 / Фермер [Ru] (L) 2010
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765497.jpg" />
+  <img src="Z:/picture/008/save_picture_765497.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765060.jpg" />
+  <img src="Z:/picture/008/save_picture_765060.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764081.jpg" />
+  <img src="Z:/picture/008/save_picture_764081.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Alien Invasion 3d (2018) [En] (1.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763855.jpg" />
+  <img src="Z:/picture/008/save_picture_763855.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ EMERGENCY 20 (2017) [Multi] (4.2.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759742.jpg" />
+  <img src="Z:/picture/008/save_picture_759742.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Cooking Simulator (2019) [Ru/Multi] (3.3.0/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755044.jpg" />
+  <img src="Z:/picture/008/save_picture_755044.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ On The Road - Truck Simulator (2019) [Ru/Multi] (1.1.3.49) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748037.jpg" />
+  <img src="Z:/picture/008/save_picture_748037.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Fishing: Barents Sea (2018) [Ru/Multi] (1.3.4-3618/dlc) Repack xatab (обнов
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746540.jpg" />
+  <img src="Z:/picture/008/save_picture_746540.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Biker Garage: Mechanic Simulator (2019) [Ru/Multi] (20211020/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746155.jpg" />
+  <img src="Z:/picture/008/save_picture_746155.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Crest - an indirect god sim (2018) [En] (1.2/dlc) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745833.jpg" />
+  <img src="Z:/picture/008/save_picture_745833.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739943.jpg" />
+  <img src="Z:/picture/008/save_picture_739943.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Farm Manager 2018 (2018) [Ru/Multi] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739937.jpg" />
+  <img src="Z:/picture/008/save_picture_739937.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Birthdays the Beginning (2017) [Multi] (1.0.7) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738048.jpg" />
+  <img src="Z:/picture/008/save_picture_738048.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Internet Cafe Simulator 2 (2022) [Ru/Multi] (1.0.9) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737952.jpg" />
+  <img src="Z:/picture/008/save_picture_737952.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Hydroneer (2020) [Ru/Multi] (1.3.6) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736484.jpg" />
+  <img src="Z:/picture/008/save_picture_736484.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Transport Fever 2 (2019) [Ru/Multi] (29596) Repack xatab (обновляемая
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736480.jpg" />
+  <img src="Z:/picture/008/save_picture_736480.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Tank Mechanic Simulator (2020) [Ru/Multi] (1.3.0/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732356.jpg" />
+  <img src="Z:/picture/008/save_picture_732356.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ VA-11 HALL-A: Cyberpunk Bartender Action (2016) [En] (1.2.1.3) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725748.jpg" />
+  <img src="Z:/picture/008/save_picture_725748.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Demolish & Build 2018 (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722937.jpg" />
+  <img src="Z:/picture/008/save_picture_722937.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Starfighter Origins (2017) [En] (1.0) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719982.jpg" />
+  <img src="Z:/picture/008/save_picture_719982.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Poly Bridge 2 (2020) [Ru/Multi] (1.20) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718538.jpg" />
+  <img src="Z:/picture/008/save_picture_718538.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ SCRUTINIZED (2020) [En] (1.0.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716611.jpg" />
+  <img src="Z:/picture/008/save_picture_716611.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ PC Building Simulator - Esports Expansion (2020) [Ru/Multi] (1.8.5) License PLAZ
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714552.jpg" />
+  <img src="Z:/picture/008/save_picture_714552.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ Spintires (2014) [Ru/Multi] (1.6.1/dlc) Repack xatab
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714549.jpg" />
+  <img src="Z:/picture/008/save_picture_714549.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ WWII Battle Tanks: T-34 vs. Tiger / Танки Второй мировой: Т-3
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_712782.jpg" />
+  <img src="Z:/picture/005/save_picture_712782.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ WWII Battle Tanks: T-34 vs. Tiger / Танки Второй мировой: Т-3
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286485   (712734) от 02.03.2019
-
-Pure Farming 2018 (2018) [Ru/Multi] (1.4.0/dlc) Repack Other s [Deluxe Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поставьте новейшие технологии и современные лицензированные машины на службу земледелию! Путешествуйте по Европе, Азии и Америке и ухаживайте за растениями, характерными для этих регионов, будь то конопля, кофе или оливки. Исследуйте все аспекты земледелия в трех уникальных игровых режимах, подходящих и опытным игрокам в симуляторы, и новичкам.Тип издания: RepackРазработчик: Ice FlamesЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF815925FF86C50074F0E4C379E3573AE62DF267
 ```
 
 https://mybot314.ru/tekegram_catalog/

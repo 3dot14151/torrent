@@ -1,3 +1,30 @@
+###  Публикация: 1773518   (30782) от 16.01.2025
+
+Олард Диксон | Архитектура сна и смерти (2017) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30782.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередной книге цикла "Времена сновидений", посвященном практикам работы в состоянии осознанного сновидения на основе традиционных мировоззрений, речь пойдет о мирах сна и путешествиях шаманов и йогинов в запредельные пространства духов.
+Приводятся подробные описания архитектуры сна и смерти, как явлений, происходящих от одной древней матери - Ночи. Разбираются (   Читать дальше...   )Жанр: эзотерика, психотехника, шаманизм, толкование сновИздательство: ВелигорФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4E1BC20D3CF46CA7F627165494F5BB0E7EA301
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775982   (29437) от 29.01.2025
 
 Владимир Захаров | Календарь супер-год 2025 (2025) [PDF]
@@ -6,7 +33,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29437.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26801.jpg" />
 </div>
 
 
@@ -63,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26510.jpg" />
 </div>
 
 
@@ -91,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25770.jpg" />
 </div>
 
 
@@ -119,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24703.jpg" />
 </div>
 
 
@@ -147,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21857.jpg" />
 </div>
 
 
@@ -173,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2807.jpg" />
 </div>
 
 

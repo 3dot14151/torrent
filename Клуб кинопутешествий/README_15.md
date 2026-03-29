@@ -1,3 +1,55 @@
+###  Публикация: 1015185   (775730) от 09.05.2016
+
+Орел и решка. Шопинг (2016.05.09) SATRip (cезон 4: Румыния)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ведущие пройдутся по самым популярным заграничным шопинг-маршрутам. Дорогие бутики и блошиные рынки, новые имена в индустрии моды и раритетные винтажные вещицы — ведущие проинспектируют все. Эта программа — настоящий кладезь полезной информации для шопоголиков. Ведущие посетят: Гонконг, Майами, Канкун, Мехико, Сингапур, Ханой, Куала-Лумпур и многие другие города. (   Читать дальше...   )Телекомпания: ИНТЕР & ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFEFBBF3A879049BAB45B3327658A6DB92E727C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015234   (775518) от 09.05.2016
+
+Орел и решка. Кругосветка (2016.05.09) SATRip (сезон 12: Дакка)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775518.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ПятницаЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1AB722E4164AB8DF132EA8D4513D6FE776F9BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212769   (775107) от 13.03.2018
 
 Собор Святого Петра и Великая базилика в 3D / St. Peter's and the Papal Basilicas of Rome 3D (2016) Blu-ray 3D/2D [H.264/1080p] [Custom]
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775107.jpg" />
+  <img src="Z:/picture/008/save_picture_775107.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775016.jpg" />
+  <img src="Z:/picture/008/save_picture_775016.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775008.jpg" />
+  <img src="Z:/picture/008/save_picture_775008.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774234.jpg" />
+  <img src="Z:/picture/008/save_picture_774234.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773088.jpg" />
+  <img src="Z:/picture/008/save_picture_773088.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773087.jpg" />
+  <img src="Z:/picture/008/save_picture_773087.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773086.jpg" />
+  <img src="Z:/picture/008/save_picture_773086.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773079.jpg" />
+  <img src="Z:/picture/008/save_picture_773079.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771073.jpg" />
+  <img src="Z:/picture/008/save_picture_771073.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770463.jpg" />
+  <img src="Z:/picture/008/save_picture_770463.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770192.jpg" />
+  <img src="Z:/picture/008/save_picture_770192.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769513.jpg" />
+  <img src="Z:/picture/008/save_picture_769513.jpg" />
 </div>
 
 
@@ -324,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767131.jpg" />
+  <img src="Z:/picture/008/save_picture_767131.jpg" />
 </div>
 
 
@@ -350,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767100.jpg" />
+  <img src="Z:/picture/008/save_picture_767100.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767096.jpg" />
+  <img src="Z:/picture/008/save_picture_767096.jpg" />
 </div>
 
 
@@ -403,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767082.jpg" />
+  <img src="Z:/picture/008/save_picture_767082.jpg" />
 </div>
 
 
@@ -429,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767075.jpg" />
+  <img src="Z:/picture/008/save_picture_767075.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767044.jpg" />
+  <img src="Z:/picture/008/save_picture_767044.jpg" />
 </div>
 
 
@@ -483,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766857.jpg" />
+  <img src="Z:/picture/008/save_picture_766857.jpg" />
 </div>
 
 
@@ -509,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766565.jpg" />
+  <img src="Z:/picture/008/save_picture_766565.jpg" />
 </div>
 
 
@@ -535,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764488.jpg" />
+  <img src="Z:/picture/008/save_picture_764488.jpg" />
 </div>
 
 
@@ -561,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762554.jpg" />
+  <img src="Z:/picture/008/save_picture_762554.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761098.jpg" />
+  <img src="Z:/picture/008/save_picture_761098.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760682.jpg" />
+  <img src="Z:/picture/008/save_picture_760682.jpg" />
 </div>
 
 
@@ -625,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD772D1DDDB3FEE774B80BE4AE654D6DDD36302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395196   (757193) от 09.07.2020
-
-Вызов вершин. Доломитовые Альпы (Италия) / Extreme Treks (2018) HDTV [H.264/1080i] (Сезон 2, эпизод 4)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757193.jpg" />
-</div>
-
-
-###  Подробнее
-
-На севере Италии, в Южных Известняковых Альпах, пролегает горный массив, который притягивает туристов своей живописной красотой и разнообразием форм. Любители активного отдыха приезжают испытать свои силы,   что бы посмотреть на красоту природы.Производство: EU, Ryan Pyle ProductionsЖанр: Документальный, познавательный, путешествияРежиссер: Райан ПилПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A338813B300C76231304BB7557539D93F6B365
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280960   (756969) от 05.02.2019
-
-Путешествие по паркам / Rock in the Park (2016-2018) HDTVRip (Сезон 4, серии 26 из 26)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие по природным паркам. Вместе с ведущими программы мы поднимемся в горы и спустимся под воду,чтобы увидеть красоту и опасности окружающего нас мира.Производство: США, Tremendous Entertainment, The CW NetworkЖанр: Документальный, природа, путешествиеПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE74EFA00039185DE61FB97C2883CE3199D87BE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

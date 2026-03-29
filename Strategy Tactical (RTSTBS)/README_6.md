@@ -6,7 +6,7 @@ Company of Heroes 2 (2013) [Ru/En] (4.0.0.21725/dlc) Repack R.G. Механик�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717872.jpg" />
+  <img src="Z:/picture/008/save_picture_717872.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715054.jpg" />
+  <img src="Z:/picture/008/save_picture_715054.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Z: The Game (2014) [Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713129.jpg" />
+  <img src="Z:/picture/008/save_picture_713129.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SteamWorld Heist (2016) [Ru/Multi] (2.0/b.2.1.2.0/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713051.jpg" />
+  <img src="Z:/picture/008/save_picture_713051.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (2.2.3.92.6008/dlc) License PLAZA 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710355.jpg" />
+  <img src="Z:/picture/008/save_picture_710355.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Skulls of the Shogun (2013) [Ru/Multi] (1.1.0.0) SteamRip R.G. Игроманы
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709814.jpg" />
+  <img src="Z:/picture/008/save_picture_709814.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Door Kickers (2014) [Ru/Multi] (1.0.10) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698270.jpg" />
+  <img src="Z:/picture/008/save_picture_698270.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698155.jpg" />
+  <img src="Z:/picture/008/save_picture_698155.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Men of War: Assault Squad / В тылу врага 2: Штурм (2011) [Ru/Mult
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695337.jpg" />
+  <img src="Z:/picture/008/save_picture_695337.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Hard West (2015) [Ru/Multi] (1.4.160303.1235/dlc) Repack R.G. Revenants
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691930.jpg" />
+  <img src="Z:/picture/008/save_picture_691930.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Blackguards 2 (2015) [Ru/Multi] (2.5.9139/dlc) Repack =nemos=
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689956.jpg" />
+  <img src="Z:/picture/008/save_picture_689956.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Call to Arms (2018) [Ru/Multi] (1.200/dlc) Repack xatab [Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689886.jpg" />
+  <img src="Z:/picture/008/save_picture_689886.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Blackguards (2014) [Ru/En] (1.7.23231/dlc) Repack =nemos=
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688093.jpg" />
+  <img src="Z:/picture/008/save_picture_688093.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BATTLETECH (2018) [Ru/Multi] (1.4.0-449R/dlc) Repack R.G. Механики [Digi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687838.jpg" />
+  <img src="Z:/picture/008/save_picture_687838.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.2.70/dlc) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675740.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Crookz - The Big Heist (2015) [Ru/Multi] (24360) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675651.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) Repack R.G. Catalyst
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673727.jpg" />
+  <img src="Z:/picture/008/save_picture_673727.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Steel Division: Normandy 44 (2017) [Ru/Multi] (300080502/dlc) SteamRip Let'sPlay
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670419.jpg" />
+  <img src="Z:/picture/008/save_picture_670419.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Tanks vs Aliens (2017) [Ru/En/Ch] (5.6.1.24) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667569.jpg" />
+  <img src="Z:/picture/008/save_picture_667569.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (2.2.2.f) Repack xatab
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663588.jpg" />
+  <img src="Z:/picture/008/save_picture_663588.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ BATTLETECH (2018) [En] (1.0.3-280R/dlc) Repack Other s [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657445.jpg" />
+  <img src="Z:/picture/008/save_picture_657445.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Ancestors Legacy (2018) [Ru/Multi] (47903) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649893.jpg" />
+  <img src="Z:/picture/008/save_picture_649893.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Halo Wars (2017) [Ru/En] (20170605) Repack R.G. Механики [Definitive Edi
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646066.jpg" />
+  <img src="Z:/picture/008/save_picture_646066.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ TASTEE: Lethal Tactics (2016) [Ru/Multi] (1.0/dlc) License CODEX [Ultimate Colle
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640717.jpg" />
+  <img src="Z:/picture/008/save_picture_640717.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Infinium Strike (2016) [Ru/Multi] (1.0) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629810.jpg" />
+  <img src="Z:/picture/008/save_picture_629810.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ BANNERMEN (2019) [Ru/Multi] (1.1) License RELOADED
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629319.jpg" />
+  <img src="Z:/picture/008/save_picture_629319.jpg" />
 </div>
 
 

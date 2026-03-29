@@ -1,3 +1,164 @@
+###  Публикация: 1728531   (54086) от 07.06.2024
+
+Julie Lachance | Basic English. Second edition (2015) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Practice Makes Perfect Premium: Basic English is a bestselling workbook that provides learners of English with invaluable tools to ensure mastery of essential concepts. Three-page units cover each subject, which can be completed in a mere 10 to 15 minutes! Each lesson covers a single grammar concept, supported by many clear examples. Extensive exercises keep you (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-HillФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD129A3EA0BF6DAB655C5DF78694327089A57F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728445   (54062) от 07.06.2024
+
+Roger Berry | From Words to Grammar (2015) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54062.jpg" />
+</div>
+
+
+###  Подробнее
+
+«From Words to Grammar: Discovering English Usage» is a different introduction to grammar for students. Taking a word-based approach to grammar, this book introduces the subject through the analysis of over a hundred of the most commonly used English words.
+Each unit focuses on a different word class, using an analysis of specific words which includes:
+an introduction (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0788BF05A4131492B25CDBC90BB178E80655E88A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728499   (54040) от 07.06.2024
+
+Christine C.M. Goh, Anne Burns | Teaching Speaking (2012) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54040.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book provides theoretical and pedagogical perspectives on teaching speaking within a coherent methodological framework. Teaching Speaking A Holistic Approach brings together theoretical and pedagogical perspectives on teaching speaking within a coherent methodological framework. The framework combines understandings derived from several areas of speaking research (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Cambridge University PressФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DEA239124294D738EFB83FEFE42AF614F6ADF12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728680   (53982) от 08.06.2024
+
+Julie Lachance | Practice Makes Perfect: Basic English. Premium Fourth Edition (2023) [EPUB] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Everything you need to master first-year English language essentials—clear explanations, tons of practice exercises, and NEW audio to improve your speaking and listening skills
+The most effective way to learn any new language is to practice, practice, and practice some more—and no other workbooks put as much emphasis on this as the Practice Makes Perfect series. (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B55074EB223F0C25423348FD2295E98BC832B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728813   (53953) от 08.06.2024
+
+Tom Booth | English for Everyone. Teacher's Guide (2018) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53953.jpg" />
+</div>
+
+
+###  Подробнее
+
+An essential teacher's companion to an innovative, uniquely visual English-language course, this guide helps English teachers--including those for whom English is not their native language--create clear, focused lesson plans, explain difficult concepts in a simple and concise way, and make language learning exciting, intuitive, and incredibly easy.
+English for Everyone (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57A430A4BBA28A9CA39A4DA32DC17D0029ACFC6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728985   (53869) от 09.06.2024
+
+Collins Dictionaries | English Visual Dictionary (2020) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53869.jpg" />
+</div>
+
+
+###  Подробнее
+
+A photographic guide to 3000 key words and phrases in British English. This attractive pocket-sized book is a perfect English language travel companion and guide to life and culture in the UK.
+Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases. A helpful index allows you to find words quickly as you (   Читать дальше...   )Жанр: словари, учебное пособиеЯзык: английскийИздательство: CollinsФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEDEA84D49DF549B1F4A26BF6CAC21D1840660E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729016   (53846) от 09.06.2024
 
 Oxford University | Oxford Writing Tutor (2010) [PDF] [EN]
@@ -6,7 +167,7 @@ Oxford University | Oxford Writing Tutor (2010) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53846.jpg" />
 </div>
 
 
@@ -34,7 +195,7 @@ Bruce Stirling | Pre-TOEFL Guide. Academic English Practice (2017) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53740.jpg" />
 </div>
 
 
@@ -61,7 +222,7 @@ U.O. Alday | Colloquial Spanish: The Complete Course for Beginners (2010) [PDF] 
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53716.jpg" />
 </div>
 
 
@@ -88,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53685.jpg" />
 </div>
 
 
@@ -115,7 +276,7 @@ Mohammad. Alhawary | Arabic Grammar in Context (2016) [EPUB, MP3] [EN/AR]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53667.jpg" />
 </div>
 
 
@@ -143,7 +304,7 @@ Carol Fehringer | German Grammar in Context. Third edition (2019) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53636.jpg" />
 </div>
 
 
@@ -170,7 +331,7 @@ Adrian Wallwork | Top 50 Vocabulary Mistakes (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53522.jpg" />
 </div>
 
 
@@ -199,7 +360,7 @@ Bruce Stirling | TOEFL Strategies. A Complete Guide to the iBT (2016) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53517.jpg" />
 </div>
 
 
@@ -227,7 +388,7 @@ Learnhotenglish | English Unlocked! Book III (2016) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53447.jpg" />
 </div>
 
 
@@ -256,7 +417,7 @@ Christopher Seely, Kenneth G. Henshal | The Complete Guide to Japanese Kanji (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53429.jpg" />
 </div>
 
 
@@ -283,7 +444,7 @@ Emma Eberlein O.F. Lima, Samira A. Lunes | Falar, ler, escrever portugues. Um cu
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53425.jpg" />
 </div>
 
 
@@ -309,7 +470,7 @@ Department of Linguistics | Language Files. Twelfth edition (2017) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53344.jpg" />
 </div>
 
 
@@ -335,7 +496,7 @@ Tammi J. Schneider, Shelley L. Birdsong | The Bible Book (2018) [PDF] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53300.jpg" />
 </div>
 
 
@@ -362,7 +523,7 @@ Diane Engelhardt | Perfect Phrases for ESL. Third edition (2022) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53231.jpg" />
 </div>
 
 
@@ -388,7 +549,7 @@ Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53196.jpg" />
 </div>
 
 
@@ -414,7 +575,7 @@ Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53194.jpg" />
 </div>
 
 
@@ -443,7 +604,7 @@ Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (20
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53105.jpg" />
 </div>
 
 
@@ -470,7 +631,7 @@ Helen Gubby | English Legal Terminology Legal Concepts in Language. Fourth editi
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53100.jpg" />
 </div>
 
 
@@ -496,7 +657,7 @@ Rod Ellis, Natsuko Shintani | Exploring Language Pedagogy through Second Languag
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52888.jpg" />
 </div>
 
 
@@ -523,7 +684,7 @@ Lingo Mastery | Spanish Short Stories for Beginners (2018) [EPUB] [EN]
 >>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52875.jpg" />
 </div>
 
 
@@ -536,164 +697,6 @@ Each story will involve an important lesson of the tools in the Spanish language
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6252F69363A7C7CCAA75A583AFA0961FA77FEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731141   (52805) от 19.06.2024
-
-Angela Wilkes (editor) | Polish-English Bilingual Visual Dictionary (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52805.jpg" />
-</div>
-
-
-###  Подробнее
-
-A thematic organization of more than 10,000 fully illustrated terms labeled in both Polish and English, and comprehensive two-way indexes put the perfect translation at your fingertips. Additional feature panels include abstract nouns and verbs, as well as useful phrases that you can use in conversation once you are feeling more confident. Polish-English Bilingual (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A866ED92D10CF554823C04A1D5F9FF7B319C397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731176   (52803) от 19.06.2024
-
-Collins | Thai Visual Dictionary (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52803.jpg" />
-</div>
-
-
-###  Подробнее
-
-A photographic guide to the key words and phrases in Thai. This attractive pocket-sized book is a perfect travel companion and provides a practical guide to Thailand and Thai language and culture. Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Thai index help you to find words (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D89CE247190049E0E9A640B0F8CE4C1E739331E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731194   (52801) от 19.06.2024
-
-Collins Dictionaries | Korean Visual Dictionary (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Everyday words are arranged in themes with carefully selected up-to-date images to illustrate key words and phrases, and an English and Korean index help you to find words quickly as you learn. 3,000 essential words and phrases for modern life in Korea are at your fingertips with topics covering food and drink, home life, work and school, shopping, sport and leisure, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: CollinsФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3EC1ED88F45A816209E67A9F04FB9991A8F38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731345   (52708) от 20.06.2024
-
-Thomas Booth | English for everyone. English vocabulary Builder (2018) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52708.jpg" />
-</div>
-
-
-###  Подробнее
-
-A combined reference book and workbook covering over 3,000 entries of essential words and phrases to expand your English vocabulary.
-Designed around the most up-to-date theories of language acquisition, English for Everyone: English Vocabulary Builder includes all the words and phrases English learners need to know. Question words, feelings, hairstyles, technology, (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: DK PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B4CBE7DC6F2407754A70EDE8986CE7B91DBE39C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731300   (52688) от 20.06.2024
-
-Jean-Claude Corbeil, Ariane Archambault | 5 Language Visual Dictionary - English, French, German, Spanish, Italian (2003) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52688.jpg" />
-</div>
-
-
-###  Подробнее
-
-The quick and intuitive way to learn and recall everyday vocabulary in English, French, German, Spanish, and Italian, this is the only visual dictionary to feature a complete range of objects and scenes from everyday life - showing you what other language dictionaries can only tell you. Clear design and superb illustrations place over 6,000 words ¡n context (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: New York: DK PublishingФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2256CE3DD8C378169A1172AC620FBD342EEB70E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731333   (52664) от 20.06.2024
-
-Angela Wilke, Cheryl Hutty (еditors) | Japanese English visual dictionary (2011) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52664.jpg" />
-</div>
-
-
-###  Подробнее
-
-The edition to DK's Visual Bilingual Dictionary series, the Japanese English Bilingual Visual Dictionary, will help the international visitor whether for business or recreational absorb essential vocabulary in Japanese.
-Using full color photographs and artworks to display and label all the elements of everyday life from the home and office to sports, music, and nature (   Читать дальше...   )Жанр: учебный словарьЯзык: английскийИздательство: New York: Dorling Kindersley LtdФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21A40C5E89C68E501C89457AE5D5CE78718EF53
 ```
 
 https://mybot314.ru/tekegram_catalog/

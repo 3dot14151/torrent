@@ -1,3 +1,55 @@
+###  Публикация: 1198119   (807756) от 11.01.2018
+
+Terminus (2000) [Ru] (1.1) Unofficial
+
+>>Win Старые Игры
+>>Simulation (Flight/Space)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_807756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Terminus - космический симулятор с реальной физической моделью поведения в вакууме и невесомости. В далёком будущем человечество, обнаружив древний артефакт и узнав о новой технологии, заселили всю солнечную систему и создали огромные колонии. Через какое-то время между колониями появились некоторые трения, переросшие впоследствии во вселенную войну между Объединённой (   Читать дальше...   )Тип издания: UnofficialРазработчик: Vicarious VisionsЖанр: Space flight simulator, Role-playingЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:752E5B0CBD6ADA9817C8C01875866F1CB12A1059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505769   (802211) от 28.10.2021
+
+Just Cause 2 (2010) [Ru/Multi] (1.0.0.2) License GOG [Complete Edition]
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_802211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в полное адреналина свободное приключение. В качестве агента Рико Родригеза, вашей целью будет найти и убить вашего друга и наставника, который исчез на островном рае Панау. Здесь, на Панау, вы должны вызвать максимум хаоса на земле, воде и в воздухе, чтобы изменить баланс сил. Используя сочетание из уникального крюка-кошки и парашюта, вы сможете выполнять (   Читать дальше...   )Тип издания: LicenseРазработчик: Avalanche StudiosЖанр: Экшн, От третьего лица, Open WorldЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C797D21227E1F3DBD07A5CCAE04CAA1EC62A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199344   (801499) от 15.01.2018
 
 Space Empires IV / Space Empires 4 / Космическая Империя 4 (2000) [Ru/En] (1.0) License GOG [Deluxe Edition]
@@ -6,7 +58,7 @@ Space Empires IV / Space Empires 4 / Космическая Империя 4 (20
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801499.jpg" />
+  <img src="Z:/picture/008/save_picture_801499.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Return to Mysterious Island / Возвращение на таинственны
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801418.jpg" />
+  <img src="Z:/picture/008/save_picture_801418.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Rugrats Go Wild (2003) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798616.jpg" />
+  <img src="Z:/picture/008/save_picture_798616.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Arcania: Fall of Setarrif / Аркания: Падение Сетаррифа (2
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797085.jpg" />
+  <img src="Z:/picture/008/save_picture_797085.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Carmageddon TDR 2000 / Кармагеддон. Колеса смерти (2000) 
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796731.jpg" />
+  <img src="Z:/picture/008/save_picture_796731.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Warhammer 40000: Dawn of War – Dark Crusade (2006) [Ru/En] (1.2) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796476.jpg" />
+  <img src="Z:/picture/008/save_picture_796476.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795820.jpg" />
+  <img src="Z:/picture/008/save_picture_795820.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Alien Shooter 2 - Survive Mod (2006) [Ru] (1.6.1 Alpha) Unofficial [Модифи
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795762.jpg" />
+  <img src="Z:/picture/008/save_picture_795762.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ King's Bounty: Armored Princess / King's Bounty: Принцесса в досп�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795294.jpg" />
+  <img src="Z:/picture/008/save_picture_795294.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Carmageddon Max Pack (1997) [En] (1.0/dlc) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794586.jpg" />
+  <img src="Z:/picture/008/save_picture_794586.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Ultra Fighters (1998) [En] (1.1) License
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794201.jpg" />
+  <img src="Z:/picture/008/save_picture_794201.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Pray for Death (1996) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792334.jpg" />
+  <img src="Z:/picture/008/save_picture_792334.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Turok / Турок (2008) [Ru] (1.0) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791480.jpg" />
+  <img src="Z:/picture/008/save_picture_791480.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Anachronox (2001) [En] (1.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789627.jpg" />
+  <img src="Z:/picture/008/save_picture_789627.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Titan Quest (2006) [Ru] (1.20) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789145.jpg" />
+  <img src="Z:/picture/008/save_picture_789145.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Tomb Raider 4: The Last Revelation / Tomb Raider: Последнее откро�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788864.jpg" />
+  <img src="Z:/picture/008/save_picture_788864.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Carmageddon 2: Carpocalypse Now (1998) [En] (1.0) License GOG
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788511.jpg" />
+  <img src="Z:/picture/008/save_picture_788511.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Starship Titanic (1998) [Multi] (1.0.0.42c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788287.jpg" />
+  <img src="Z:/picture/008/save_picture_788287.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.21.2.1256) License CODEX
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788280.jpg" />
+  <img src="Z:/picture/008/save_picture_788280.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Alpine Skiing 2005 (2004) [En/Ge] (1.88) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788043.jpg" />
+  <img src="Z:/picture/008/save_picture_788043.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Salt Lake 2002 (2002) [En] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788041.jpg" />
+  <img src="Z:/picture/008/save_picture_788041.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Alpine Skiing 2006 / Лучшие из лучших. Горный слалом 2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788011.jpg" />
+  <img src="Z:/picture/008/save_picture_788011.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Torino 2006 (2006) [Multi] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788008.jpg" />
+  <img src="Z:/picture/008/save_picture_788008.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787569.jpg" />
+  <img src="Z:/picture/008/save_picture_787569.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7E2046B327E7EB351A6388A64882593B4A84E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203520   (787566) от 03.02.2018
-
-Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунитесь в атмосферу кёрлинга, этого модного и с недавнего времени, олимпийского вида спорта. Самое главное - теперь вы поймёте, в чем смысл этой игры, где "кидают утюги" и "трут швабрами" лёд. Ну что, потрём?Тип издания: RepackРазработчик: Geronimo Entertainment, "SoWhat!" s.r.o.Жанр: Sport (Winter Sport, Сurling), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA74441C186E0338E0D545D838F563B24941EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203713   (787565) от 03.02.2018
-
-RTL Winter Games 2007 / RTL Зимние игры 2007 (2006) [Ru] (1.0) Repack CoD - MW2
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вряд ли кто-то не согласится с тем, что зимние олимпийские игры - это самый торжественный и драматичный праздник спорта на планете. Не правда ли досадно, что такое грандиозное событие случается лишь однажды за долгих четыре года? Да, но только томиться в ожидании вовсе не обязательно. Всего несколько минут, как лавина надежд, триумфов и острых ощущений накроет вас (   Читать дальше...   )Тип издания: RepackРазработчик: 49GamesЖанр: Sport (Winter Sports, Olympics), 3D, 3'rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E338991CB1ECBA02C871D7F1EDC97E37CBC17AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

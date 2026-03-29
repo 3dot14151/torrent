@@ -1,3 +1,32 @@
+###  Публикация: 961929   (295204) от 04.12.2015
+
+Fancy - Voices From Heaven (2004) [FLAC|tracks+.cue]<Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_295204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices From Heaven (3:25)
+02. Snowwhite Tigers (3:44)
+03. Still In The Mood For Christmas (4:32)
+04. Jingle Bells And Candy Canes (4:07)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24E20B04289E0B80565152A850F1AB38ECC9968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961940   (294840) от 04.12.2015
 
 Modern Talking - Universe - The 12th Album (2003) [FLAC|tracks+.cue]<Europop, Synth-pop, Ballad, Euro House>
@@ -6,7 +35,7 @@ Modern Talking - Universe - The 12th Album (2003) [FLAC|tracks+.cue]<Europop, Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294840.jpg" />
+  <img src="Z:/picture/008/save_picture_294840.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Camouflage - Voices & Images (2018) 2CD, 30th Anniversary Limited Edition, RE. R
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289755.jpg" />
+  <img src="Z:/picture/008/save_picture_289755.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dieter Bohlen & VA - Greatest Hits (2002) [FLAC|tracks+.cue]<Europop, Synth-pop,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285481.jpg" />
+  <img src="Z:/picture/008/save_picture_285481.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bad Boys Blue - You're A Woman (1994) [FLAC|tracks+.cue]<Synth-pop, Disco>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285323.jpg" />
+  <img src="Z:/picture/008/save_picture_285323.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Modern Talking - The Collection (1991) [FLAC|tracks+.cue]<Synth-pop, Disco>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285217.jpg" />
+  <img src="Z:/picture/008/save_picture_285217.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Ultravox - Extended Ultravox (1998) [FLAC|Lossless|tracks + .cue] <Synthpop, New
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284596.jpg" />
+  <img src="Z:/picture/008/save_picture_284596.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Boytronic - Jewel (2017) [FLAC|Lossless|image + .cue] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284494.jpg" />
+  <img src="Z:/picture/008/save_picture_284494.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Bad Lieutenant (ex-New Order) - Never Cry Another Tear (2009) [FLAC|tracks+.cue]
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282244.jpg" />
+  <img src="Z:/picture/008/save_picture_282244.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Depeche Mode - Never Feel The Silence (Remixed by Isaac Junkie) (2015) [FLAC|ima
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281955.jpg" />
+  <img src="Z:/picture/008/save_picture_281955.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Pet Shop Boys - Dreamland (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278963.jpg" />
+  <img src="Z:/picture/008/save_picture_278963.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ Alphaville - The Singles Collection (1988) [FLAC|Lossless|image + .cue] <Synth-p
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278951.jpg" />
+  <img src="Z:/picture/008/save_picture_278951.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ Laserdance, Area 51 - 17 Albums (1987-2005) [APE, FLAC|Lossless]<Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278907.jpg" />
+  <img src="Z:/picture/008/save_picture_278907.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ VA - French Synthwave Compilation Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277523.jpg" />
+  <img src="Z:/picture/008/save_picture_277523.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276975.jpg" />
+  <img src="Z:/picture/008/save_picture_276975.jpg" />
 </div>
 
 
@@ -408,7 +437,7 @@ VA - Drive Radio Selection Vol. 2 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276314.jpg" />
+  <img src="Z:/picture/008/save_picture_276314.jpg" />
 </div>
 
 
@@ -437,7 +466,7 @@ VA - Synthetique: A French Synthwave Compilation 1982-2016 (2017) [FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274893.jpg" />
+  <img src="Z:/picture/008/save_picture_274893.jpg" />
 </div>
 
 
@@ -466,7 +495,7 @@ Midge Ure (Ex. Ultravox) - Orchestrated (2017) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274483.jpg" />
+  <img src="Z:/picture/008/save_picture_274483.jpg" />
 </div>
 
 
@@ -495,7 +524,7 @@ Supernatural - Dreamcatcher (2002) [FLAC|Lossless|image + .cue] <Dance Pop, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272476.jpg" />
+  <img src="Z:/picture/008/save_picture_272476.jpg" />
 </div>
 
 
@@ -524,7 +553,7 @@ VA - A Tribute to Amateras (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Space
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268982.jpg" />
 </div>
 
 
@@ -553,7 +582,7 @@ Escape With Romeo - Greatest Hits (1999) [FLAC|Lossless|tracks + .cue] <Electron
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268923.jpg" />
 </div>
 
 
@@ -582,7 +611,7 @@ Faderhead - Night Physics (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthpop, D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267778.jpg" />
+  <img src="Z:/picture/008/save_picture_267778.jpg" />
 </div>
 
 
@@ -611,7 +640,7 @@ DEADLIFE - Rebel Nights (2019) NRW Records [FLAC|Lossless|WEB-DL|tracks] <Electr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267113.jpg" />
+  <img src="Z:/picture/008/save_picture_267113.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ New Order - Singles (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <New W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266915.jpg" />
 </div>
 
 
@@ -669,7 +698,7 @@ New Order - Music Complete (2015) [FLAC|Lossless|tracks + .cue] <New Wave, Synth
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264106.jpg" />
 </div>
 
 
@@ -698,7 +727,7 @@ VA - Synthwave Dreams, Vol. 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263746.jpg" />
 </div>
 
 
@@ -712,35 +741,6 @@ VA - Synthwave Dreams, Vol. 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9ED60AF8B850D07DB693610D6132C09ED885440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340476   (263745) от 23.11.2019
-
-VA - Synthwave Dreams, Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurolab - Neo-Disco (Original Mix) (5:21)
-02. Anton Romezz - Freedom (Original Mix) (7:14)
-03. Levitati.On - Arcade Love (Born In '82 Remix) (3:54)
-04. Dashevsky - Nyagan 1985 (Original Mix) (4:55)(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65C445769ED3EA4DE1B8AD5A6C7183456E748B9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

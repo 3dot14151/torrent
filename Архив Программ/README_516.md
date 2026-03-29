@@ -6,7 +6,7 @@ Adobe Acrobat Pro DC 2017.009.20044 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785519.jpg" />
+  <img src="Z:/picture/008/save_picture_785519.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SamDrivers 17.4.12 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785517.jpg" />
+  <img src="Z:/picture/008/save_picture_785517.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Format Factory 4.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785516.jpg" />
+  <img src="Z:/picture/008/save_picture_785516.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Acronis True Image 2017 20.0.8041 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785514.jpg" />
+  <img src="Z:/picture/008/save_picture_785514.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Skype 7.35.32.101 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785513.jpg" />
+  <img src="Z:/picture/008/save_picture_785513.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Adobe Acrobat Reader DC 2017.009.20044 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785503.jpg" />
+  <img src="Z:/picture/008/save_picture_785503.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Adobe Acrobat Pro DC 2017.009.20044 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785501.jpg" />
+  <img src="Z:/picture/008/save_picture_785501.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ CoolUtils PDF Combine 6.1.0.117 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785428.jpg" />
+  <img src="Z:/picture/008/save_picture_785428.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ FireAlpaca 2.1.14 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785401.jpg" />
+  <img src="Z:/picture/008/save_picture_785401.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Loaris Trojan Remover 3.0.75.210 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785376.jpg" />
+  <img src="Z:/picture/008/save_picture_785376.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ save2pc Ultimate 5.5.7.1584 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785374.jpg" />
+  <img src="Z:/picture/008/save_picture_785374.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Calibre 3.38.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785369.jpg" />
+  <img src="Z:/picture/008/save_picture_785369.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Product Key Explorer 4.0.10.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785365.jpg" />
+  <img src="Z:/picture/008/save_picture_785365.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Waterfox 56.0.4.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785359.jpg" />
+  <img src="Z:/picture/008/save_picture_785359.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ BlueStacks Tweaker 5.9.0 beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785339.jpg" />
+  <img src="Z:/picture/008/save_picture_785339.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Wise System Monitor 1.4.9.119 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785336.jpg" />
+  <img src="Z:/picture/008/save_picture_785336.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Viber 9.9.6.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785334.jpg" />
+  <img src="Z:/picture/008/save_picture_785334.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ JRiver Media Center 24.0.74 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785331.jpg" />
+  <img src="Z:/picture/008/save_picture_785331.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ SpeedCommander Pro 17.30.8900 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785313.jpg" />
+  <img src="Z:/picture/008/save_picture_785313.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ JetBrains ReSharper Ultimate 2017.3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785304.jpg" />
+  <img src="Z:/picture/008/save_picture_785304.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785277.jpg" />
+  <img src="Z:/picture/008/save_picture_785277.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ WinUtilities Pro 15.1 RePack by D!akov  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785270.jpg" />
+  <img src="Z:/picture/008/save_picture_785270.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ PIDKey Lite 1.61 Portable by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785264.jpg" />
+  <img src="Z:/picture/008/save_picture_785264.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Avira Free Antivirus 15.0.34.20 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785263.jpg" />
+  <img src="Z:/picture/008/save_picture_785263.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ foobar2000 1.3.19 Final DarkOne + DUIFoon Portable by MC Web (19.01.2019) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785259.jpg" />
+  <img src="Z:/picture/008/save_picture_785259.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ KMS Tools Portable 15.01.2019 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785241.jpg" />
+  <img src="Z:/picture/008/save_picture_785241.jpg" />
 </div>
 
 

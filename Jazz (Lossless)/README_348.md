@@ -1,3 +1,119 @@
+###  Публикация: 1781257   (70238) от 22.02.2025
+
+Karen Stachel - A Whim And A Prayer (2023) Purple Room [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Snow [4:23]
+02. Angels Have You Heard on High (feat. Carlos Chong) [4:48]
+03. Mary Did You Know (feat. Yaritza Lopez, Irma Treminio) [5:43]
+04. Peace on Earth (feat. Derick Hughes, Carl Wheeler) [7:02](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01D7E0B023B4FD8B632322CA682E475A2666DF31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781265   (70237) от 22.02.2025
+
+Les Paul And His Trio - The Guitar Artistry Of Les Paul (1968) 1990, MCA Records [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begin the Beguine [3:04]
+02. Sweet Leilani [3:04]
+03. Dark Eyes [2:42]
+04. My Isle of Golden Dreams [2:46](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A79A91808E5E4451D1CF104751309EF82364BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781461   (70195) от 23.02.2025
+
+Kenny Garrett - Pursuance: The Music Of John Coltrane (1996) Warner [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Countdown [3:43]
+02. Equinox [7:39]
+03. Liberia [7:33]
+04. Dear Lord [5:54](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F7FC66B5F06059931CA6468773F9D3931E3087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781468   (70194) от 23.02.2025
+
+Robert Hurst - One For Namesake (1994) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incognegro [5:40]
+02. Chilin' at the Sloat [8:55]
+03. Jill of All Trades [5:31]
+04. Thad's Blue Plaid [7:32](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8656744A3F532F7EC62EC7F11C542D5A86AD0FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781463   (70191) от 23.02.2025
 
 Les Paul Trio - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
@@ -6,7 +122,7 @@ Les Paul Trio - The Jazz Collector Edition (1991) LaserLight Digital [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70191.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Michael Weiss Quartet - Power Station (1997) DIW Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70171.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Joanie Sommers & Laurindo Almeida - Softly, The Brazilian Sound (1964) 2013, War
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70170.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Abdullah Ibrahim - Water From An Ancient Well (1985) 1992, Enja [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70167.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Abdullah Ibrahim - Dollar Brand Plays Sphere Jazz (1960) 2015, Phono [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70154.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Peter White - Light of Day (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70150.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ The Emily Remler Quartet - Take Two (1982) 1992, Concord Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70139.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Bill Evans - Live In Tokyo (1973) 1986, Sony [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70138.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Luiz Bonfa - Amor! (1959) 2001, Collectables [FLAC|Lossless|tracks + .cue] <Braz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70094.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Brian Lynch - Madera Latino (2012) 2CD, 2016, Hollistic Musicworks [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70078.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Stan Getz - BD Jazz (1948 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70057.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Bill Evans - BD Jazz (1955 - 1962) 2CD, 2017, BDMusic [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70052.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Andrei Kondakov-Victor Dvoskin Project - Deserted Park (1993) 2024, Apollon & Ev
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70040.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Django Reinhardt - Rare Django (1928 - 1938) 1990, Disques Swing [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70039.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Freddie Hubbard - Bundle of Joy / Super Blue / The Love Connection (1977 - 1979)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70019.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Freddie Hubbard - Keep Your Soul Together / Polar AC / Skagly (1974, 1975) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70017.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Bud Powell - Strictly Confidential (1964) 1994, Black Lion [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69969.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ George Cables - I Hear Echoes (2024) HighNote Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69966.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Les McCann & The Mitchell-Ruff Trio - 20 Special Fingers (1961, 1968) 2CD, 1999,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69902.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Joey DeFrancesco - Live: The Authorized Bootleg (2007) Concord Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69858.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Joey DeFrancesco, Massimo Farao - Estate (2008) Zucca Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69856.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Joey DeFrancesco - All Of Me (1989) Columbia [FLAC|Lossless|tracks + .cue] <Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69854.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Joey DeFrancesco - All Of Me (1989) Columbia [FLAC|Lossless|tracks + .cue] <Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9495D5A90863A3C72FE52521AE574D54CBC20FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783171   (69850) от 04.03.2025
-
-John Graas & Art Pepper - Complete Small Group Sessions (1951 - 1958) 2CD, 2017, Phono [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Popo [3:05]
-02. Didi [2:30]
-03. Four Mothers [2:52]
-04. Over the Rainbow [3:04](   Читать дальше...   )Жанр: West Coast Jazz, BopПродолжительность: 02:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40BB924DB7E0112E5FBE0AD37BA89410016BB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783174   (69845) от 04.03.2025
-
-The Very Tall Band - What's Up? (1998) 2007, Telarc Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squatty Roo [8:26]
-02. Salt Peanuts [8:25]
-03. Ad Lib Blues [10:49]
-04. If I Should Lose You [7:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DC29C81024568593C3C2D591F8AA3B6BE4A1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783173   (69844) от 04.03.2025
-
-Joey DeFrancesco - Finger Poppin' (2009) Doodlin' Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strollin' [8:26]
-02. Swingin' the Samba [4:41]
-03. The Jody Grind [6:00]
-04. Finger Poppin' [6:05](   Читать дальше...   )Жанр: Soul Jazz, Post-BopПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978DDB80E8F55DA3D8DBD0F40E67F41078E956B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783369   (69841) от 05.03.2025
-
-VA - Jazzy Chill Vibes (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boney James - Butter (5:04)
-02.  Butcher Brown - Triple Trey (Intro / How Much A Dollar Cost / Instrumental) (1:16)
-03.  Esperanza Spalding - I Know You Know (3:45)
-04.  Keyon Harrold - Find Your Peace (Instrumental) (7:33)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE8BC0643837DFE85FCA5DE56489A73AED2925A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

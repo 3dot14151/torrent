@@ -1,3 +1,29 @@
+###  Публикация: 825552   (456268) от 29.09.2014
+
+Г. Г. Шпет | Философское мировоззрение Герцена (1921) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена рассмотрению эволюции взглядов А. И. Герцена на философские проблемы и течения XIX века.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D70F26C81381F16E3E8880B0316B87B24FF117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942170   (454077) от 01.10.2015
 
 А. И. Володин и др. (ред.) | История философии и марксизм [Вопросы методологии историко-философской науки] (1979) [DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454077.jpg" />
+  <img src="Z:/picture/008/save_picture_454077.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454069.jpg" />
+  <img src="Z:/picture/008/save_picture_454069.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454004.jpg" />
+  <img src="Z:/picture/008/save_picture_454004.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453994.jpg" />
+  <img src="Z:/picture/008/save_picture_453994.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453992.jpg" />
+  <img src="Z:/picture/008/save_picture_453992.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453989.jpg" />
+  <img src="Z:/picture/008/save_picture_453989.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453981.jpg" />
+  <img src="Z:/picture/008/save_picture_453981.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453706.jpg" />
+  <img src="Z:/picture/008/save_picture_453706.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453552.jpg" />
+  <img src="Z:/picture/008/save_picture_453552.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453387.jpg" />
+  <img src="Z:/picture/008/save_picture_453387.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453336.jpg" />
+  <img src="Z:/picture/008/save_picture_453336.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452954.jpg" />
+  <img src="Z:/picture/008/save_picture_452954.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452664.jpg" />
+  <img src="Z:/picture/008/save_picture_452664.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452564.jpg" />
+  <img src="Z:/picture/008/save_picture_452564.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451141.jpg" />
+  <img src="Z:/picture/008/save_picture_451141.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451137.jpg" />
+  <img src="Z:/picture/008/save_picture_451137.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450512.jpg" />
+  <img src="Z:/picture/008/save_picture_450512.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450374.jpg" />
+  <img src="Z:/picture/008/save_picture_450374.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450220.jpg" />
+  <img src="Z:/picture/008/save_picture_450220.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450142.jpg" />
+  <img src="Z:/picture/008/save_picture_450142.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446243.jpg" />
+  <img src="Z:/picture/008/save_picture_446243.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446161.jpg" />
+  <img src="Z:/picture/008/save_picture_446161.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443124.jpg" />
+  <img src="Z:/picture/008/save_picture_443124.jpg" />
 </div>
 
 
@@ -625,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443122.jpg" />
+  <img src="Z:/picture/008/save_picture_443122.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443120.jpg" />
+  <img src="Z:/picture/008/save_picture_443120.jpg" />
 </div>
 
 
@@ -662,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C73C04D052D037C8BE5163A1246F17ACB74F2F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943842   (443104) от 06.10.2015
-
-А. П. Скрипник | Моральное зло в истории этики и культуры (1992) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сущность и происхождение зла — одна из вечных проблем человечества. К ней обращались мифология, религия, этика, мыслителе разных эпох в народов. Свойственно ли зло природе человека? Как рождается гуманность и что побуждает людей быть бесчеловечными? Какие факторы стимулируют несправедливость? Эти и другие вопросы, касающиеся морального зла, рассматриваются в книге (   Читать дальше...   )Жанр: История, философия, этика, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6299D7F84096BEE5308544EA31FE74E46C58A659
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1643752   (209888) от 03.07.2023
+
+VA - Blues For Your Evening (2023) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Beard - Can't Walk Away [03:51]
+002. Ray Charles - Early In The Morning [02:48]
+003. Smokey Robinson - Gasms [04:25]
+004. Tab Benoit - Fast And Free [03:09](   Читать дальше...   )Жанр: BluesПродолжительность: 08:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7737BA6BADB44CA8FB995B0CF5D922410F2A09E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1603685   (209761) от 17.01.2023
 
 VA - The Charming Blues (2022) [MP3|320 Kbps] <Blues, Rock>
@@ -6,7 +35,7 @@ VA - The Charming Blues (2022) [MP3|320 Kbps] <Blues, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209761.jpg" />
+  <img src="Z:/picture/005/save_picture_209761.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Blues In The Garden (2023) [MP3|320 Kbps] <Blues, Country Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209094.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Relaxing Vocal Jazz (2023) [MP3|320 Kbps] <Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208954.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Blues: It's Only Love (2023) [MP3|320 Kbps] <Blues, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208668.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Blues Delight - Nothing Special But The Blues (2023) Compilation [MP3|320 Kbps] 
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206463.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Whiskey River - Broken Highway (2024) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201994.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - We Got The Blues (2023) [MP3|320 Kbps] <Blues, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201422.jpg" />
+  <img src="Z:/picture/005/save_picture_201422.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Blues & Rock Relax Ballads (2023) 2CD [MP3|320 Kbps] <Blues, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201408.jpg" />
+  <img src="Z:/picture/005/save_picture_201408.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Blue Note Blues Masters Mix (2023) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200319.jpg" />
+  <img src="Z:/picture/005/save_picture_200319.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - The Latex Jazz (2023) [MP3|320 Kbps] <Jazz, Instrumental, Easy Listening>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200079.jpg" />
+  <img src="Z:/picture/005/save_picture_200079.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Smooth Jazz Performance (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198568.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Heavy Blues (2023) 2CD [MP3|320 Kbps] <Blues, Heavy Blues, Dark Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195549.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Hammond Organ - The Sweet Life (2023) [MP3|320 Kbps] <Hammond, Instrumental
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194473.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Malaya Blue - Compilation (2023) [MP3|320 Kbps] <Soul, Soft Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191248.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Melody Gardot - This is Melody Gardot (2023) [MP3|320 Kbps] <Jazz, Chillout, Fem
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190049.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Dave Weckl - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Jazz Rock)>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188006.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Dark Blues Society - To Walk Like a Gangster (2025) [MP3|320 Kbps] <Blues, Blues
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186355.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Bluesy Christmas - Jingle Bell Blues (2022) [MP3|320 Kbps] <Blues>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184298.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Girl of My Dreams (2023) [MP3|320 Kbps] <Hammond, Instrumental, Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183045.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Community Soul Project (2020) [MP3|320 Kbps] <Jazz, Soul, Funk>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180754.jpg" />
+  <img src="Z:/picture/005/save_picture_180754.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Blues Roots Of Music (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180033.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Blues & Rock part  13 Compilation (2022) [MP3|320 Kbps] <Blues, Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175424.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Feeling Blues (2020) [MP3|320 Kbps] <Blues, Soul>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174287.jpg" />
+  <img src="Z:/picture/004/save_picture_174287.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Blues Sweet Sadness (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173871.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Harmonic Electro Jazz (2023) [MP3|320 Kbps] <Electro Jazz>
 >>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171386.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Harmonic Electro Jazz (2023) [MP3|320 Kbps] <Electro Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E719BC5E6D043085E134BFE28F6E9AFB651BCD34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672054   (170256) от 27.10.2023
-
-VA - Jazz Improvisational Collection (2023) [MP3|320 Kbps] <Jazz, Smooth Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Dorsey - Wasn T It You [03:13]
-02. Wutrio - Lament [05:29]
-03. Wutrio - Hitchhiker's Guide [04:50]
-04. An Pierle Quartet - Saturn [05:21](   Читать дальше...   )Жанр: Jazz, Smooth Jazz, InstrumentalПродолжительность: 05:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF8B8361F957225EEB8B09EE6EE5F032FC6D440
 ```
 
 https://mybot314.ru/tekegram_catalog/

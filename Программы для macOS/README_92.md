@@ -1,3 +1,140 @@
+###  Публикация: 1062385   (441762) от 13.10.2016
+
+Business Card Shop 7.0.2 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_441762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Произвести  первое впечатление — в бизнесе и жизни! Ваша визитная карточка часто является первым рекламным материалом, который человек получает от вашей компании.
+
+Business Card Shop — #1 бестселлер программного обеспечения создания визитных карточек для Macintosh. Доступен широкий набор инструментов и готовых шаблонов. Business Card Shop поможет вам создать потрясающие (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: декабрь 2015Разработчик: Chronos Inc.Поддерживаемая ОС: Mac OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D51F454B9933C24799603ADEC3DA92B76587D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164359   (441514) от 09.09.2017
+
+Mountain Duck 2.0.0 (7169) [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_441514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mountain Duck позволяет монтировать любой удаленный FTP, SFTP, WebDAV, Azure Cloud Storage, S3, Google Cloud Storage, Google Drive и OpenStack Swift как локальный диск в Finder.
+
+В приложении реализована поддержка всех основных протоколов для подключения к любому серверу. Открывайте файлы на удаленном сервере любым приложением и работайте как на локальном томе, а (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2017Разработчик: David KocherПоддерживаемая ОС: macOS X 10.8.3 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E913F8EB3615F6A179096C1F8E68EBAF0B30EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062537   (441405) от 13.10.2016
+
+CrossOver 15.3.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_441405.jpg" />
+</div>
+
+
+###  Подробнее
+
+CrossOver - запуск любых Windows программ под Mac OS. CrossOver сфокусирован на производительности 3D графики в играх.
+Crossover, основан на коде Wine и предназначен для выполнения программ и игр, написанных для платформы Windows.
+
+CrossOver позволит вам запускать множество Windows приложений на вашем Mac. Приложения интегрируются в операционную систему: запускайте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 октября 2016Разработчик: CodeWeavers Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:477BD5109EC1EB6A725B688025F834FFCEBE8BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164360   (441317) от 09.09.2017
+
+qBittorrent 3.3.16 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_441317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свободный кросс-платформенный клиент файлообменной сети BitTorrent. qBittorrent - абсолютно бесплатный, без рекламы, мощный и простой при работе клиент. Несмотря на кажущуюся простоту, программа обладает внушительным набором весьма полезных возможностей, как например наличие интегрированной поисковой системы, расширяемой за счет плагинов, поддержка UPnP/NAT-PMP, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2017Разработчик: Stefanos AntarisПоддерживаемая ОС: macOS X 10.7 или вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47517CAC7DE749653FF12AF162B271FACB58F4A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409964   (440959) от 19.09.2020
+
+Deliveries 3.2.4 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deliveries помогает вам следить за всеми вашими посылками, так что вы всегда будете знать, когда они прибудут до места назначения. Будь то последний гаджет или роман, который вы заказывали заранее в Интернете, Deliveries будет следить за ними, так что вы не пропустите звонок в дверь.Тип издания: macOS SoftwareРелиз состоялся: 17.09.2020Разработчик: Junecloud LLCПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A495592736A0B7FDB7AB7C160D44B8994D66B99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570801   (440480) от 18.08.2022
 
 Glyphs 3 v 3.1.1 [Multi/Ru]
@@ -6,7 +143,7 @@ Glyphs 3 v 3.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440480.jpg" />
+  <img src="Z:/picture/008/save_picture_440480.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ Publisher Plus 1.7.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439813.jpg" />
+  <img src="Z:/picture/008/save_picture_439813.jpg" />
 </div>
 
 
@@ -61,7 +198,7 @@ Micromat ATOMIC 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439801.jpg" />
+  <img src="Z:/picture/008/save_picture_439801.jpg" />
 </div>
 
 
@@ -90,7 +227,7 @@ BitMedic AntiVirus - Malware & Adware Security 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439419.jpg" />
+  <img src="Z:/picture/008/save_picture_439419.jpg" />
 </div>
 
 
@@ -118,7 +255,7 @@ SopoTube for YouTube + AdBlock 1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439316.jpg" />
+  <img src="Z:/picture/008/save_picture_439316.jpg" />
 </div>
 
 
@@ -144,7 +281,7 @@ Data Rescue Pro 4.3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438786.jpg" />
+  <img src="Z:/picture/008/save_picture_438786.jpg" />
 </div>
 
 
@@ -172,7 +309,7 @@ MaCleaner X 14.5.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438502.jpg" />
+  <img src="Z:/picture/008/save_picture_438502.jpg" />
 </div>
 
 
@@ -199,7 +336,7 @@ TeoreX PhotoStitcher 3.0.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438472.jpg" />
+  <img src="Z:/picture/008/save_picture_438472.jpg" />
 </div>
 
 
@@ -226,7 +363,7 @@ DMG Master 2.9.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438375.jpg" />
+  <img src="Z:/picture/008/save_picture_438375.jpg" />
 </div>
 
 
@@ -253,7 +390,7 @@ Teorex Inpaint 9.2.2 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438292.jpg" />
+  <img src="Z:/picture/008/save_picture_438292.jpg" />
 </div>
 
 
@@ -280,7 +417,7 @@ Aiseesoft Mac Video Downloader 3.3.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437679.jpg" />
+  <img src="Z:/picture/008/save_picture_437679.jpg" />
 </div>
 
 
@@ -308,7 +445,7 @@ Paragon NTFS 12.2.313 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437542.jpg" />
+  <img src="Z:/picture/008/save_picture_437542.jpg" />
 </div>
 
 
@@ -336,7 +473,7 @@ CameraBag Cinema 3.0.000 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436948.jpg" />
+  <img src="Z:/picture/008/save_picture_436948.jpg" />
 </div>
 
 
@@ -362,7 +499,7 @@ Flame Painter 3 Pro 3.2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436605.jpg" />
+  <img src="Z:/picture/008/save_picture_436605.jpg" />
 </div>
 
 
@@ -390,7 +527,7 @@ Rebelle 1.5.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436602.jpg" />
+  <img src="Z:/picture/008/save_picture_436602.jpg" />
 </div>
 
 
@@ -418,7 +555,7 @@ MKVtools 2.4 [Eng]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436276.jpg" />
+  <img src="Z:/picture/008/save_picture_436276.jpg" />
 </div>
 
 
@@ -444,7 +581,7 @@ Alien Skin Bokeh 2.0.0.339 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436261.jpg" />
+  <img src="Z:/picture/008/save_picture_436261.jpg" />
 </div>
 
 
@@ -471,7 +608,7 @@ Master of Typing - Мастер Печати на Китайском  7.3.1 [Mul
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436224.jpg" />
+  <img src="Z:/picture/008/save_picture_436224.jpg" />
 </div>
 
 
@@ -497,7 +634,7 @@ Scrutiny 9 v9.11.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436223.jpg" />
+  <img src="Z:/picture/008/save_picture_436223.jpg" />
 </div>
 
 
@@ -524,7 +661,7 @@ Master of Typing : Состязание 2 v8.5.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436216.jpg" />
+  <img src="Z:/picture/008/save_picture_436216.jpg" />
 </div>
 
 
@@ -550,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436181.jpg" />
+  <img src="Z:/picture/008/save_picture_436181.jpg" />
 </div>
 
 
@@ -562,139 +699,6 @@ Screen Capture - приложение для захвата нужной обл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBFDAA4E27BA432C03C941F890EAA90792945638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249261   (435981) от 23.09.2018
-
-Orbis (Formerly MenuWeather) 5.0.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Orbis (был MenuWeather) - простой, но мощный клиент погоды в меню.Тип издания: macOS SoftwareРелиз состоялся: 19.09.2018Разработчик: Evan ColemanПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1ADC8FFD1B656B41DABD87AD1DDF6A4D01CF9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249311   (435880) от 23.09.2018
-
-SILKYPIX Developer Studio Pro 8E 8.0.24.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435880.jpg" />
-</div>
-
-
-###  Подробнее
-
-SILKYPIX Developer Studio Pro — мощная программа, которая предназначена для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
-
-С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.09.2018Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28D6FE150787796154CC9C93A2E2142AC3F261D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249380   (435879) от 23.09.2018
-
-Dropzone 3 v3.6.9 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что Mac OS X заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные операции, которые хотелось бы делать автоматически. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Aptonic LimitedПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C99C000554FA82EDB1692A5B2347DE80C6ECC5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249187   (435872) от 23.09.2018
-
-NotePlan - Markdown Calendar 1.6.29 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435872.jpg" />
-</div>
-
-
-###  Подробнее
-
-NotePlan - календарь, где вы управляете вашими ежедневные задачами и событиями, используя редактор Markdown.
-NotePlan был реализован, как уникальный инструмент для повышения Вашей производительности, включающий в себя: Календарь, Todos и редактор Markdown.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Eduard MetzgerПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BAAE9FCEA945964CB4D3CA66CEE5B2639BFE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410433   (435658) от 21.09.2020
-
-Turbo Boost Switcher Pro 2.9.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Установите Turbo Boost Switcher, и аккумулятор вашего Mac прослужит на 25% больше и снизит температуру процессора до 25 ° C в зависимости от использования, включая более низкие скорости вращения вентилятора из-за снижения температуры.Тип издания: macOS SoftwareРелиз состоялся: 30.10.2019Разработчик: rugarciap.comПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1090D9B37AF380F10211A9889E1894BE8EE8014B
 ```
 
 https://mybot314.ru/tekegram_catalog/

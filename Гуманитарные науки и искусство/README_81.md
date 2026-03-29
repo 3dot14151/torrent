@@ -1,3 +1,29 @@
+###  Публикация: 946391   (419905) от 16.10.2015
+
+Дарон Аджемоглу, Джеймс А. Робинсон | Почему одни страны богатые, а другие бедные (2015) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_419905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами — один из главных политэкономических бестселлеров последнего времени, получивший высочайшую оценку ведущих экономистов мира и удостоенный ряда престижных международных премий. Авторы книги делают убедительную попытку ответить на один из важнейших вопросов политической экономики: почему мировое богатство распределено по странам и регионам мира столь неравномерно? (   Читать дальше...   )Жанр: ЭкономикаПеревод: Дмитрий Литвинов, Павел Миронов, Сергей СановичФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325A7200DC8F619397EBFF442B134A9D46757A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167256   (419578) от 19.09.2017
 
 Анна А. Зализняк и др. | Константы и переменные русской языковой картины мира (2012) [PDF, DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419578.jpg" />
+  <img src="Z:/picture/008/save_picture_419578.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419438.jpg" />
+  <img src="Z:/picture/008/save_picture_419438.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418196.jpg" />
+  <img src="Z:/picture/008/save_picture_418196.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418049.jpg" />
+  <img src="Z:/picture/008/save_picture_418049.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417203.jpg" />
+  <img src="Z:/picture/008/save_picture_417203.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417052.jpg" />
+  <img src="Z:/picture/008/save_picture_417052.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416648.jpg" />
+  <img src="Z:/picture/008/save_picture_416648.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415196.jpg" />
+  <img src="Z:/picture/008/save_picture_415196.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415173.jpg" />
+  <img src="Z:/picture/008/save_picture_415173.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414766.jpg" />
+  <img src="Z:/picture/008/save_picture_414766.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414752.jpg" />
+  <img src="Z:/picture/008/save_picture_414752.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414645.jpg" />
+  <img src="Z:/picture/008/save_picture_414645.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414486.jpg" />
+  <img src="Z:/picture/008/save_picture_414486.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413866.jpg" />
+  <img src="Z:/picture/008/save_picture_413866.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413839.jpg" />
+  <img src="Z:/picture/008/save_picture_413839.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413747.jpg" />
+  <img src="Z:/picture/008/save_picture_413747.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412845.jpg" />
+  <img src="Z:/picture/008/save_picture_412845.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412636.jpg" />
+  <img src="Z:/picture/008/save_picture_412636.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411954.jpg" />
+  <img src="Z:/picture/008/save_picture_411954.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411787.jpg" />
+  <img src="Z:/picture/008/save_picture_411787.jpg" />
 </div>
 
 
@@ -538,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411614.jpg" />
+  <img src="Z:/picture/008/save_picture_411614.jpg" />
 </div>
 
 
@@ -564,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411613.jpg" />
+  <img src="Z:/picture/008/save_picture_411613.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411511.jpg" />
+  <img src="Z:/picture/008/save_picture_411511.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411216.jpg" />
+  <img src="Z:/picture/008/save_picture_411216.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410709.jpg" />
+  <img src="Z:/picture/008/save_picture_410709.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F7DFAFB11A9A4F57119C7DE8B2EDFB8C3767242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067038   (409413) от 27.10.2016
-
-РГБ (изд.) | Учимся читать славянские рукописи (2014) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409413.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре говорится о трудностях, которые могут возникнуть у желающих читать славянские рукописи. Приводятся буквы церковнославянского алфавита, сведения о том, как записывались числа, сокращались слова. В издании есть небольшой словарь малопонятных слов.Жанр: УчебникФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A60C3B05058BB6CA79CC35C20249691E1542A4C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

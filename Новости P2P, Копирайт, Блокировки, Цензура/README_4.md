@@ -1,3 +1,29 @@
+###  Публикация: 1768614   (32854) от 27.12.2024
+
+Иран снимает цифровой занавес: WhatsApp снова доступен пользователям
+
+>>След.
+>>Новости P2P, Копирайт, Блокировки, Цензура
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32854.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Иране начали снимать ограничения с популярных цифровых сервисов. Власти страны приняли решение разблокировать WhatsApp и Google Play после более чем 27 месяцев блокировки. Решение принято спустя два года ограничений.Ограничения были введены в сентябре 2022 года на фоне массовых протестов в стране. Тогда же были заблокированы Instagram*, Viber, SoundCloud, App Store, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773907   (30479) от 19.01.2025
 
 Верховный суд оставил в силе закон о запрете TikTok — остались сутки
@@ -6,7 +32,7 @@
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30479.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27680.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19729.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13425.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10637.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9997.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9197.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8613.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новости P2P, Копирайт, Блокировки, Цензура
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3077.jpg" />
 </div>
 
 

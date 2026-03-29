@@ -6,7 +6,7 @@ Pale Moon 29.4.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874629.jpg" />
+  <img src="Z:/picture/005/save_picture_874629.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Slimjet 32.0.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874628.jpg" />
+  <img src="Z:/picture/005/save_picture_874628.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874624.jpg" />
+  <img src="Z:/picture/005/save_picture_874624.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874603.jpg" />
+  <img src="Z:/picture/008/save_picture_874603.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874594.jpg" />
+  <img src="Z:/picture/005/save_picture_874594.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Nero Burning ROM 2016 17.0.8000 Portable by PortableWares (15.03.2016) [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874590.jpg" />
+  <img src="Z:/picture/005/save_picture_874590.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Chromium 81.0.4044.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874576.jpg" />
+  <img src="Z:/picture/005/save_picture_874576.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Zoner Photo Studio X 19.2003.2.239 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874567.jpg" />
+  <img src="Z:/picture/005/save_picture_874567.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Mirillis Action! 4.5.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874564.jpg" />
+  <img src="Z:/picture/005/save_picture_874564.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874535.jpg" />
+  <img src="Z:/picture/005/save_picture_874535.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Boom 2 v1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874512.jpg" />
+  <img src="Z:/picture/005/save_picture_874512.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ SamDrivers 17.2.2 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874510.jpg" />
+  <img src="Z:/picture/005/save_picture_874510.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874507.jpg" />
+  <img src="Z:/picture/005/save_picture_874507.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ AVG AntiVirus Free 2017 17.1.3006 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874506.jpg" />
+  <img src="Z:/picture/005/save_picture_874506.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874504.jpg" />
+  <img src="Z:/picture/005/save_picture_874504.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874499.jpg" />
+  <img src="Z:/picture/005/save_picture_874499.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Foxit Reader 4.3.1.0218 [Multi/Rus] RePack by Wadimus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874497.jpg" />
+  <img src="Z:/picture/005/save_picture_874497.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ XMedia Recode Version 2.3.0.9 [Multi/Русский] Free
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874494.jpg" />
+  <img src="Z:/picture/008/save_picture_874494.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_874478.jpg" />
+  <img src="Z:/picture/009/save_picture_874478.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Whale Browser 2.10.124.26 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874475.jpg" />
+  <img src="Z:/picture/005/save_picture_874475.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Sunrise Seven 1.1.54 (x32, x64) [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874470.jpg" />
+  <img src="Z:/picture/008/save_picture_874470.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Free DVD Video Converter 1.5.12 [Multi] [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874468.jpg" />
+  <img src="Z:/picture/005/save_picture_874468.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874453.jpg" />
+  <img src="Z:/picture/005/save_picture_874453.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Loaris Trojan Remover 3.1.22.1453 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874433.jpg" />
+  <img src="Z:/picture/005/save_picture_874433.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ AdGuard 2.4.6.758 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874432.jpg" />
+  <img src="Z:/picture/005/save_picture_874432.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ PeaZip 7.2.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874431.jpg" />
+  <img src="Z:/picture/005/save_picture_874431.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ DP Animation Maker 3.4.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782893.jpg" />
+  <img src="Z:/picture/008/save_picture_782893.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Icecream PDF Converter PRO 2.75 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782887.jpg" />
+  <img src="Z:/picture/008/save_picture_782887.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Norton Internet Security 22.12.0.104 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782886.jpg" />
+  <img src="Z:/picture/008/save_picture_782886.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sublime Text 3 (3157)Dev [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782884.jpg" />
+  <img src="Z:/picture/008/save_picture_782884.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Alcohol 120% 2.0.3.10203 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782883.jpg" />
+  <img src="Z:/picture/008/save_picture_782883.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Alcohol 120% 2.0.3.10203 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782881.jpg" />
+  <img src="Z:/picture/008/save_picture_782881.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ DU Meter 7.30 Build 4769 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782880.jpg" />
+  <img src="Z:/picture/008/save_picture_782880.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Movavi Video Converter 18.1.2 Premium RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782876.jpg" />
+  <img src="Z:/picture/008/save_picture_782876.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Icecream Ebook Reader PRO 5.07 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782873.jpg" />
+  <img src="Z:/picture/008/save_picture_782873.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Evangelion Shin Gekijouban: Jo | Evangelion 1.11: You Are (Not) Alone | Еван
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782861.jpg" />
+  <img src="Z:/picture/008/save_picture_782861.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Techsmith Snagit 2018.1.0 Build 775 RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782854.jpg" />
+  <img src="Z:/picture/008/save_picture_782854.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bookmanager modelplusmodel 2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782848.jpg" />
+  <img src="Z:/picture/008/save_picture_782848.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Daum PotPlayer 1.7.8557 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782844.jpg" />
+  <img src="Z:/picture/008/save_picture_782844.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ VA - In Da Club Vol.40 (Mind of Wonderful) (2010) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782832.jpg" />
+  <img src="Z:/picture/008/save_picture_782832.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782817.jpg" />
+  <img src="Z:/picture/008/save_picture_782817.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782815.jpg" />
+  <img src="Z:/picture/008/save_picture_782815.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ ESET Internet Security 11.0.159.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782810.jpg" />
+  <img src="Z:/picture/008/save_picture_782810.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ESET NOD32 Antivirus 11.0.159.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782805.jpg" />
+  <img src="Z:/picture/008/save_picture_782805.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782771.jpg" />
+  <img src="Z:/picture/008/save_picture_782771.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ VirtualBox 3.1.8 build 61349 Final [Русский(ML)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782768.jpg" />
+  <img src="Z:/picture/008/save_picture_782768.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782758.jpg" />
+  <img src="Z:/picture/008/save_picture_782758.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782741.jpg" />
+  <img src="Z:/picture/008/save_picture_782741.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ A Better Finder Rename 11 v11.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782735.jpg" />
+  <img src="Z:/picture/008/save_picture_782735.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ KCNcrew Pack 06-15-20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782733.jpg" />
+  <img src="Z:/picture/008/save_picture_782733.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Vivaldi 3.1.1929.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782729.jpg" />
+  <img src="Z:/picture/008/save_picture_782729.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ DEVONthink Pro Office/Server 3 v3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782725.jpg" />
+  <img src="Z:/picture/008/save_picture_782725.jpg" />
 </div>
 
 

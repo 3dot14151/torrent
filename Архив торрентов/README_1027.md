@@ -6,7 +6,7 @@ PDF-XChange Viewer Pro 2.5 Build 317.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811913.jpg" />
+  <img src="Z:/picture/008/save_picture_811913.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811902.jpg" />
+  <img src="Z:/picture/008/save_picture_811902.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ InstaBro | Instagram Browser 5.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811891.jpg" />
+  <img src="Z:/picture/008/save_picture_811891.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Buggles - Adventures In Modern Recording (1981) Reissue, 1997, Japanese Edition,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811888.jpg" />
+  <img src="Z:/picture/008/save_picture_811888.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ VA - Goa Psychedelic Trance Vol.2 (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811885.jpg" />
+  <img src="Z:/picture/008/save_picture_811885.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ VA - Tech Size Prog 2018, Vol. 1 [MP3|320 Kbps] <Minimal, Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811882.jpg" />
+  <img src="Z:/picture/008/save_picture_811882.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Various Artists - Рок-опера Мавзолей (2017) [MP3|192 Kbps] <Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811876.jpg" />
+  <img src="Z:/picture/008/save_picture_811876.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Scrutiny 9 v9.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811848.jpg" />
+  <img src="Z:/picture/008/save_picture_811848.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811843.jpg" />
+  <img src="Z:/picture/008/save_picture_811843.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ CrystalDiskInfo 8.12.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811842.jpg" />
+  <img src="Z:/picture/008/save_picture_811842.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ FreeTube 0.15.0 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811839.jpg" />
+  <img src="Z:/picture/008/save_picture_811839.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Macrorit Disk Scanner 4.3.9 Unlimited Edition RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811836.jpg" />
+  <img src="Z:/picture/008/save_picture_811836.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Icecream PDF Editor PRO 2.53 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811833.jpg" />
+  <img src="Z:/picture/008/save_picture_811833.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Reg Organizer 8.80 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811829.jpg" />
+  <img src="Z:/picture/008/save_picture_811829.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ StartAllBack 3.0.1 StartIsBack++ 2.9.16 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811827.jpg" />
+  <img src="Z:/picture/008/save_picture_811827.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Chris Duarte Group - Romp (2003) [FLAC|Lossless|image + .cue] <Blues Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811815.jpg" />
+  <img src="Z:/picture/008/save_picture_811815.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Chris Duarte Group - Love Is Greater Than Me (2000) [FLAC|Lossless|image + .cue]
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811810.jpg" />
+  <img src="Z:/picture/008/save_picture_811810.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Wise Care 365 Pro 4.15.401 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811805.jpg" />
+  <img src="Z:/picture/008/save_picture_811805.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Wise Care 365 Pro 4.15.401 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811799.jpg" />
+  <img src="Z:/picture/008/save_picture_811799.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ VA - Balance Presents - Patrice Baumel (2016) [MP3|320 кб/с] <Tech House, Tec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811798.jpg" />
+  <img src="Z:/picture/008/save_picture_811798.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811797.jpg" />
+  <img src="Z:/picture/008/save_picture_811797.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Calyx & Teebee - 1x1 (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811795.jpg" />
+  <img src="Z:/picture/008/save_picture_811795.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Metallica - The Night Before in San Francisco, CA - February 6, 2016 (2016) Live
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811791.jpg" />
+  <img src="Z:/picture/008/save_picture_811791.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ NG. Последние тайны Третьего рейха: Семья Гит
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811784.jpg" />
+  <img src="Z:/picture/008/save_picture_811784.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811781.jpg" />
+  <img src="Z:/picture/008/save_picture_811781.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ VA - Space Holidays vol.9 (2017) 3CD [MP3|320 Kbps] <Spacesynth>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811780.jpg" />
+  <img src="Z:/picture/008/save_picture_811780.jpg" />
 </div>
 
 

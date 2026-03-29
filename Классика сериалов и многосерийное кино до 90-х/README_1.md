@@ -1,3 +1,83 @@
+###  Публикация: 1441985   (1036511) от 25.01.2021
+
+Грядущему веку (1985) TVRip [H.264] (серии 1-5 из 5)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноименного романа Георгия Маркова - последняя часть трилогии о нескольких поколениях семьи Строговых. Предыдущие фильмы - "Строговы" и "Соль земли" были блокбастерами советского теле- и кинопроката. История Максима Строгова - натурного функционера старой закалки, но с "новым мышлением", оказавшегося на рубеже эпох политического (   Читать дальше...   )Производство: СССР / ЛенфильмЖанр: Драма, экранизацияРежиссер: Искандер ХамраевАктеры: Юозас Киселюс, Елена Проклова, Гражина Байкштите, Отар Коберидзе, Всеволод Шиловский, Донатас Банионис, Геннадий Воропаев, Светлана Пенкина, Иван Краско, Юрий Башков, Николай Муравьёв и др.Продолжительность: ~01:06:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:440787FDD6E9757DA5BDCE0C491D33F57BFE8D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234972   (1035084) от 30.01.2021
+
+Солнечный ветер (1982) DVDRip (серии 1-6 из 6)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Надя Петровская с юности увлечена проблемами физиологии. Окончив Политехнический институт и получив диплом инженера, она вместе с мужем уезжает в Иркутск. Чтобы продолжить научные исследования, отказывается от должности инженера и устраивается в институт простым лаборантом…Производство: СССР / ТО «Экран»Жанр: драмаРежиссер: Ростислав ГоряевАктеры: Анна Каменкова, Валерий Сергеев, Николай Ерёменко мл., Андрей Попов, Нина Ургант, Леонид Марков, Майя Булгакова, Михаил Глузский, Виктор Смирнов, Людмила ИвановаПродолжительность: ~01:05:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8049AB33A43885153A8CA88CDAFDEB8AF6196D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444746   (1033384) от 06.02.2021
+
+Война и мир (1965-1967) BDRip [H.264] (серии 1-4 из 4)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Советский художественный фильм в четырёх частях по роману Льва Толстого «Война и мир» с участием звезд советского кинематографа.
+Картина повествует историю нескольких дворянских семей на фоне событий в Российской империи времен Наполеоновских войн.
+Один из самых высокобюджетных фильмов в истории кинематографа, известен благодаря масштабным батальным сценам и применению (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Драма, Мелодрама, Военный, ИсторияРежиссер: Сергей БондарчукАктеры: Сергей Бондарчук, Людмила Савельева, Вячеслав Тихонов, Олег Табаков, Борис Захава, Анатолий Кторов, Анастасия Вертинская, Антонина Шуранова, Виктор Станицын, Ирина СкобцеваСубтитры: Русские (форсированные на французскую речь, полные), АнглийскиеПродолжительность: 02:27:07 + 01:45:02 + 01:21:41 + 01:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF88CE3F4D6BA4DD7F47C29902A16BD8B50158D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443877   (1033184) от 07.02.2021
 
 Солнечный ветер (1982) WEBRip [H.264/1080p-LQ] (серии 1-6 из 6)
@@ -6,7 +86,7 @@
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033184.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032674.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032440.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031611.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029457.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029455.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028436.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024547.jpg" />
 </div>
 
 
@@ -216,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020381.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019919.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013628.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006962.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006602.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005270.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002736.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001502.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001144.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988762.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980797.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975399.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964353.jpg" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961872.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959982.jpg" />
 </div>
 
 
@@ -599,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC7CE29B3EB1EBD0F80709D5080B8C7300E24F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979680   (956924) от 28.01.2016
-
-Трое – это компания / Three's Company (1977) DVDRip (сезон 1, серии 1-6 из 6) (R.G.FAMILY)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956924.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Трое – это компания" - наиболее любимый американскими телезрителями ситком конца 70-х - начала 80-х.
-Легкая, развлекательная комедия в жанре фарса о приключениях Джека - студента кулинарного техникума, Дженет - продавщицы цветочного магазина и Криси - машинистки. Молодые люди вместе снимают квартиру. Их связывают дружеские платонические отношения с налетом (   Читать дальше...   )Производство: США, DLT Entertainment, The NRW Company,  Three's Company Productions, TTC.Жанр: комедияРежиссер: Дэйв Пауэрс, Билл Обин, Майкл Росс,  Берт Бринкерхофф, Сэм Гари, Боб Прист.Актеры: Джон Риттер, Джойс Девитт, Ричард Кляйн, Дон Ноттс, Сюзанн Сомерс, Присцилла Барнс, Одра Линдли, Норман Фелл, Дженили Харрисон, Энн Уэджуорт и др.Перевод: Многоголосый закадровый, любительский - R.G.FAMILYПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0704177DFE7028F72A2236686A0E039DE8B8626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477771   (956795) от 28.01.2016
-
-Ликвидация (2007) DVDRip [14 серий из 14]
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одесса, 1946 год. По наводке пойманного накануне бандита Сеньки Шалого заместитель начальника отдела по борьбе с бандитизмом Одесского уголовного розыска Давид Маркович Гоцман находит склад с военным обмундированием, около тысячи комплектов. С добровольной помощью друга детства, «завязавшего» вора-щипача Фимы-«Полужида», Давид Маркович выходит на след преступников (   Читать дальше...   )Жанр: Военный, БоевикРежиссер: Сейгей УрсулякАктеры: Владимир Машков, Михаил Пореченков, Сергей Маковецкий, Константин Лавроненко, Александр Семчев, Светлана Крючкова, Ксения Раппопорт, Полина АгурееваПродолжительность: 14 х ~00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 625779   (945395) от 04.03.2013
-
-Проклятые короли / Les Rois maudits (1972-1973) DVDRip [1-6 серии из 6]
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая, ставшая культовой, экранизация цикла исторических романов знаменитого французкого классика Мориса Дрюона (23 апреля 1918 -14 апреля 2009) "Проклятые короли". В сериале представлена широкая панорама истории Франции и Англии первой половины XIV века, от ареста тамплиеров (1307) до начала Столетней войны. Действие происходит во времена правления последних (   Читать дальше...   )Жанр: Исторический, драмаРежиссер: Клод БармаАктеры: Жиль Беа, Элен Дюк, Жан-Люк Моро, Андре Люге, Жан Пиа, Луи Сенье, Жан Дезайи, Жан Дешам, Катрин Рувель, Жорж Стаке, Жан Шеврье, Анн Крейс, Жозе-Мария Флота, Робер Парти, Патрик Прежан, Катрин Риш, Ги Сен-Жан, Анри Вирложё, Бенуа Брион, Джанин Криспин, Женевьев Казиль, Пьер Галлон, Моник Лежён, Клодин Раффалли, Роберт Ногаре, Рене Руссель, Жорж Сер, Жан Амос, Мюриэль (   Читать дальше...   )Перевод: Профессиональный одноголосый закадровый («Культура»)Продолжительность: 6 серий по ~01:38:04
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

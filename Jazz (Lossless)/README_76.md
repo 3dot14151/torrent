@@ -1,3 +1,119 @@
+###  Публикация: 1123683   (786409) от 08.04.2017
+
+Thelonious Monk - Eight Classic Albums (1954 - 1957) 4CD, 2010, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786409.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Monk & Monk's Music:
+01.We See [05:18]
+02.Smoke Gets in Your Eyes [04:33]
+03.Locomotive [06:24](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 05:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:463300CB4A8DCB1E0AE796CCC124242CCD9B7AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123647   (786408) от 08.04.2017
+
+Charles Mingus - In A Soulful Mood (1960) 1995, Music Club [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bugs [08:30]
+ 02.Reincarnation Of A Love Bird [07:00]
+ 03.Vassarlean [06:40]
+ 04.Stormy Weather [13:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D3970AE4152AEED98A9486662714A76046A8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123633   (786402) от 08.04.2017
+
+Thelonious Monk - Six Classic Albums, Vol.2 (1957 - 1959) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786402.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Brilliant Corners & Thelonious in Action:
+01.Brilliant Corners [07:46]
+02.Ba-Lue Bolivar Ba-Lues-Are [13:07]
+03.Pannonica [08:51](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 04:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E07E5939E584CC57D4E755530519622E34BD2C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123875   (786223) от 09.04.2017
+
+Anita O'Day - Anita O'Day's Finest Hour (1954 - 1962) 2000, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Honeysuckle Rose [03:16]
+ 02.Little Girl Blue [03:04]
+ 03.Let Me Off Uptown [03:23]
+ 04.An Occasional Man [02:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE269B03FBD47DAD2EF0CC3863C950EBCDE6D78E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123873   (786221) от 09.04.2017
 
 Valery Ponomarev - Profile (1991) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
@@ -6,7 +122,7 @@ Valery Ponomarev - Profile (1991) Reservoir [FLAC|Lossless|image + .cue] <Hard B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786221.jpg" />
+  <img src="Z:/picture/008/save_picture_786221.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Jonathan Butler - Do You Love Me? (1997) [FLAC|Lossless|tracks + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786207.jpg" />
+  <img src="Z:/picture/008/save_picture_786207.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Karolina Smietana - Illusion (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786193.jpg" />
+  <img src="Z:/picture/008/save_picture_786193.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ John Pizzarelli - John Pizzarelli Meets The Beatles (1998) 1999, BMG Japan [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786169.jpg" />
+  <img src="Z:/picture/008/save_picture_786169.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Paul Bley - Live In Haarlem (1966) 1999, DA Music [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785844.jpg" />
+  <img src="Z:/picture/008/save_picture_785844.jpg" />
 </div>
 
 
@@ -149,7 +265,7 @@ Valery Ponomarev - The Messenger (2001) Reservoir [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785843.jpg" />
+  <img src="Z:/picture/008/save_picture_785843.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ Johnnie Pate Trio - Complete Recordings 1955-1956 (2013) Fresh Sound Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785842.jpg" />
+  <img src="Z:/picture/008/save_picture_785842.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Lou Donaldson - The Righteous Reed! The Best Of Poppa Lou (1967 - 1973) 1994, EM
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785840.jpg" />
+  <img src="Z:/picture/008/save_picture_785840.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Chet Baker Quartet - Jazz At Ann Arbor (1954) 2002, Toshiba [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785829.jpg" />
+  <img src="Z:/picture/008/save_picture_785829.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Eric Alexander Trio - Just One Of Those Things (2016) Venus Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785828.jpg" />
+  <img src="Z:/picture/008/save_picture_785828.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Camera Soul - 3 Album (2013 - 2017) [FLAC|Lossless|image + .cue] <Jazz-Pop, Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785820.jpg" />
+  <img src="Z:/picture/008/save_picture_785820.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ Wynton Marsalis - Standard Time Vol. 3 (The Resolution Of Romance) (1990) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785818.jpg" />
+  <img src="Z:/picture/008/save_picture_785818.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ John Abercrombie, Ralph Towner - Sargasso Sea (1976) [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785813.jpg" />
+  <img src="Z:/picture/008/save_picture_785813.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Bunny Brunel & Friends - Bass Ball (2017) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785811.jpg" />
+  <img src="Z:/picture/008/save_picture_785811.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ The Hot 8 Brass Band - On the Spot (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785791.jpg" />
+  <img src="Z:/picture/008/save_picture_785791.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Richard Bennett - Contrary Cocktail (2015) [FLAC|Lossless|image + .cue] <Instrum
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785668.jpg" />
+  <img src="Z:/picture/008/save_picture_785668.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ Tin Pan - The Home Bartender's Song Book (2011) [FLAC|Lossless|image + .cue] <Bl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785663.jpg" />
+  <img src="Z:/picture/008/save_picture_785663.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ VA - Wouldn't It Be Nice: A Jazz Portrait Of Brian Wilson (2000) Horipro [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785658.jpg" />
+  <img src="Z:/picture/008/save_picture_785658.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ VA - The Real... Jazz (2014) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785637.jpg" />
+  <img src="Z:/picture/008/save_picture_785637.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Thomas Hardin Trio - Moonlight Cafe (1999) Victor Entertainment [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785636.jpg" />
+  <img src="Z:/picture/008/save_picture_785636.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Art Farmer - The Complete Albums Collection 1958-1961 (2016) 4CD, Enlightenment 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785480.jpg" />
+  <img src="Z:/picture/008/save_picture_785480.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Sonny Rollins - Complete Sonny Rollins in Japan (1973) 2CD, 2018, JVC [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785479.jpg" />
+  <img src="Z:/picture/008/save_picture_785479.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD8BFF7A69873627D5F73F2373C8452AD9F90E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277446   (785478) от 20.01.2019
-
-Donald Byrd - Fancy Free (1969) 2017, Universal [FLAC|Lossless|tracks + .cue] <Soul Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy Free [12:07]
-02. I Love the Girl [8:48]
-03. The Uptowner [9:17]
-04. Weasil [9:00]Жанр: Soul Jazz, Hard BopПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32B1D1B567C416D2FA012B00F706AFD669B3D16A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277418   (785474) от 20.01.2019
-
-Nat King Cole - Legends (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody Loves Me
-02. I've Grown Accustomed To Her Face
-03. Unforgettable
-04. This Can't Be Love(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92844172832B086571BC5B8CE0C2B7059D519879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204001   (785471) от 04.02.2018
-
-Piero Odorici Quartet - First Play (1989) 1992, RED Distribution [FLAC|Lossless|image + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Domino [04:22]
-02. Old Folks [06:44]
-03. My Little Red Nose [05:51]
-04. Sweet Love Of Mine [05:44](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7EC6B1310C8F76BF2361E651E3CE98F619F92B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203990   (785465) от 04.02.2018
-
-Charles Tolliver - Mosaic Select 20 (1970) 3CD, 2005, Mosaic Records [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785465.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Drought [09:23]
-02. Felicite [08:26]
-03. Orientale [17:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 03:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C61BA379B1D96B9851C3EFA55F4A330F7A9F18
 ```
 
 https://mybot314.ru/tekegram_catalog/

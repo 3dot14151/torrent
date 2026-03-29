@@ -1,3 +1,161 @@
+###  Публикация: 1790016   (10542) от 24.07.2025
+
+The Last of Us Part II (2) (2025) [Ru/En] (1.6.10721.0105/dlc) Repack Other s [Remastered]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя пять лет после страшного путешествия по охваченной эпидемией Америке Элли и Джоэл осели в Джексоне, штат Вайоминг. Обосновавшись в процветающей общине, они обрели желанную стабильность, несмотря на постоянную угрозу нападения зараженных и теряющих смысл жизни выживших. Но однажды жестокие события разрушают эту идиллию, и Элли снова отправляется в изнуряющее (   Читать дальше...   )Тип издания: RepackРазработчик: Naughty Dog LLC, Nixxes Software, Iron Galaxy StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6848322E75ACA0C2B53419B65CACE65D81146D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808577   (10335) от 26.07.2025
+
+Launcher for zapret 2.9 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для быстрого запуска утилиты zapret (аналог GoodbyeDPI) для ускорения YouTube, Discord etc. Программа предназначена для удобного запуска утилиты zapret, которая разблокирует ютуб, дискорд и еще кучу всего.
+Утилита zapret более сложный и многофункциональный аналог программы GoodbyeDPI.
+На данный момент пробивает замедление ютуба намного эффективнее, чем (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA39B01F28DCA64AF6D93ACB1DFC1F84B79BA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808524   (10332) от 26.07.2025
+
+Счастливчик Гилмор 2 / Happy Gilmore 2 (2025) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чтобы исполнить мечту дочери и оплатить её обучение в балетной школе, Хэппи Гилмор решает вернуться в большой гольф. Вскоре ему вновь предстоит встретиться на поле со своим главным соперником — Шутером МакГевином.Производство: США / Happy Madison ProductionsЖанр: комедия, спортРежиссер: Кайл НьюачекАктеры: Адам Сэндлер, Маргарет Куолли, Джули Боуэн, Бен Стиллер, Эрик Андре, Кристофер Макдональд, Итан Каткоски, Санни Сэндлер, Бенни Сэфди, Деннис ДуганПеревод: Дублированный (Videofilm Int., укр. LeDoyen)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: русские (Forced, Full), английские (Forced, Full, SDH), украинские (Forced, 2xFull)Продолжительность: 01:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D968D42D31EE175126597495BF0960ED48011A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808440   (10317) от 26.07.2025
+
+Отдыхающий на пляже пожарный из Ростова Великого спас трех человек
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10317.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Ярославской области сотрудник МЧС Михаил Грачёв отдыхал с семьёй на реке. Вдруг он увидел, как мужчина прыгнул в воду с обрыва и не всплыл на поверхность. Михаил поспешил на помощь и быстро вытащил на берег пострадавшего, который, как выяснилось, ударился головой о дно. Прибывшие на место медики госпитализировали ныряльщика, и Михаил продолжил свой отдых. Однако (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808845   (10235) от 27.07.2025
+
+Windows 11 Pro x64 Version 24H2 Build 26100.4652 by Igors_VL [RU]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настроенная авторская сборка Windows 11 Pro с автоматизированной установкойРазработчик: MicrosoftЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCB170A44DE6037F920D77CE323F555F07850C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808691   (10141) от 28.07.2025
+
+Cloudflare начал блокировать пиратские сайты для пользователей из Великобритании
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первый случай в мире, когда к борьбе с пиратством подключается еще и CDN, ранее доступ к таким сайтам ограничивали только провайдеры и такие блокировки легко обходились с помощью VPN (сейчас тоже).Ограничение доступа осуществляется  на основании судебного приказа, вероятно, по требованию организации Motion Picture Association (MPA), защищающей авторские права. (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805112   (10020) от 29.07.2025
 
 MInstAll v.03.07.2025 By Andreyonohov (Unpacked) [Ru]
@@ -6,7 +164,7 @@ MInstAll v.03.07.2025 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10020.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9913.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9877.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9811.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ Takopi no Genzai | Takopi's Original Sin | Первородный грех Та�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9718.jpg" />
 </div>
 
 
@@ -136,7 +294,7 @@ Joe Bonamassa - 20 Studio Albums, 19 Live, 1 Compilation (1994 - 2025) 53 CD [FL
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9705.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9605.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9604.jpg" />
 </div>
 
 
@@ -217,7 +375,7 @@ Myst (2021) [Ru/Multi] (3.0.5 HotFix) License GOG [VR]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9598.jpg" />
 </div>
 
 
@@ -243,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9496.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ UALinux RescuePack v.25.08 (Antivirus LiveDisk) (август 2025) [En] (обн
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9494.jpg" />
 </div>
 
 
@@ -298,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9486.jpg" />
 </div>
 
 
@@ -324,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9474.jpg" />
 </div>
 
 
@@ -350,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9283.jpg" />
 </div>
 
 
@@ -376,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9076.jpg" />
 </div>
 
 
@@ -402,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8973.jpg" />
 </div>
 
 
@@ -428,7 +586,7 @@ Phantom Doctrine (2018) [Ru/Multi] (1.1/dlc) License GOG [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8970.jpg" />
 </div>
 
 
@@ -454,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8968.jpg" />
 </div>
 
 
@@ -480,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8849.jpg" />
 </div>
 
 
@@ -506,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8727.jpg" />
 </div>
 
 
@@ -518,166 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 535765   (8569) от 30.09.2025
-
-Король и Шут (Горшок) - 15 альбомов + 4 Live + 5 compilation + BoxSet + Soundtrack (1996-2025) [MP3|320 kbps] <Punk Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8569.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Король и Шут» (аббревиатура КиШ) — российская панк-рок-группа. Наиболее известна своим необычным для панк-рока стилем исполнения: тексты, представляющие собой фэнтези-рассказы в стиле хоррор, законченные истории, обычно мистические или исторические, наложены на ритмичную панк-рок музыку.
-Сценический имидж группы включает в себя пугающий грим, соответствующий тематике (   Читать дальше...   )1996 - Камнем по Голове (1999, Manchester Files)
-1996 - Будь как дома, Путник© (2000, Nox Music)
-1999 - Акустический альбом (2000, Nox Music)
-2000 - Герои и Злодеи (2002, Центр Музыкального Сервиса)Жанр: Punk RockПродолжительность: 34:28:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51888E385AC6B706DE67399E269025C7F9191EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811461   (8503) от 11.08.2025
-
-Операторы начали тестировать доступ в мобильный интернет с капчей и белым списком
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Операторы связи РФ запустили тестирование механизмов, разработанных совместно с Минцифры, для доступа к интернету в условиях ограничений, обусловленных мерами безопасности. В операторе Т2 (ранее - Tele2) сообщили ТАСС, что его специалисты уже протестировали разработанный ими способ получения доступа в мобильную сеть для абонентов, включающий использование капчи.«Пройдя (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733493   (8498) от 11.08.2025
-
-Место встречи изменить нельзя (1979) BDRip [H.264/1080p] (серии 1-5 из 5) [Handmade correction AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8498.jpg" />
-</div>
-
-
-###  Подробнее
-
-На основе детективного романа Аркадия и Георгия Вайнеров "Эра милосердия". Убийства, засады, погони, перестрелки на фоне послевоенной Москвы. Сотрудники МУРа против таинственной и неуловимой банды "Чёрная кошка". Демобилизовавшийся офицер разведки Володя Шарапов начинает работать в отделе по борьбе с бандитизмом. Одно из первых дел, в расследовании (   Читать дальше...   )Производство: СССР, Гостелерадио СССР, Одесская киностудияЖанр: криминал, детектив, боевик, драмаРежиссер: Станислав ГоворухинАктеры: Владимир Высоцкий, Владимир Конкин, Сергей Юрский, Виктор Павлов, Наталья Фатеева, Наталья Данилова, Леонид Куравлёв, Светлана Светличная, Александр Белявский, Евгений Евстигнеев, Армен ДжигарханянПеревод: не требуетсяЯзык озвучки: русскийСубтитры: русские, английскиеПродолжительность: ~01:15:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091B7E382A177D5E28749DB2E9B17629FF451741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799002   (8491) от 11.08.2025
-
-Call of Duty: Modern Warfare II (2) (2022) [Ru/En] (9.7) Repack Decepticon
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Duty Modern Warfare 2 (2022) - шутер от первого лица, представляющий собой новую главу в одноименной франшизе. Представлен совершенно новый сюжет и огромное количество новых механик. Улучшен искусственный интеллект в одиночном приключении, полностью обновлена физика воды и механика плавания, переработано управление транспортными средствами и многое другое.Тип издания: RepackРазработчик: Infinity Ward, Raven Software, Beenox, Treyarch, High Moon Studios, Sledgehammer Games, Activision Shanghai, Demonware, Toys for BobЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8782DB2F8862F6481CEF1889C4BE56CD15F8EFA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609789   (7815) от 15.08.2025
-
-SpellForce: Conquest of Eo (2023) [Ru/Multi] (1.9.6/dlc) License GOG
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Примерьте мантию своего могучего предшественника и станьте наследником его таинственной волшебной башни в пошаговой стратегической игре, действие которой происходит в фантастическом мире SpellForce. Изучите множество заклинаний и заколдуйте окружающие земли, вызывайте фантастических миньонов, обучайте могущественных воинов и путешествуйте по миру. Участвуйте в динамических, (   Читать дальше...   )Тип издания: LicenseРазработчик: Owned by GravityЖанр: Ролевая игра, Пошаговая, ФэнтeзиЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26526B8BFDD8D543362D2DB065AB3397852E8C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418815   (7813) от 15.08.2025
-
-Project Zomboid (2013) [Ru/Multi] (42.8.1) License GOG [Early Access]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Project Zomboid - многообещающая Survival-RPG, в которой вы будете пытаться выжить в городе наполненном миллионами зомби. Спасения нет, лекарства нет. Конец близок... приготовьтесь к нему. Полностью открытый мир, как сейчас модно называть - песочница. В любой дом можно зайти и обшарить любой шкафчик. Улицы не пустуют, постоянно происходит какое – то движение.Тип издания: LicenseРазработчик: The Indie StoneЖанр: Экшны, Симулятор, Open WorldЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F677AA504594460DE4485EE95E7971F337B939
 ```
 
 https://mybot314.ru/tekegram_catalog/

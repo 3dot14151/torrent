@@ -1,3 +1,81 @@
+###  Публикация: 1533185   (585519) от 22.05.2022
+
+Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) License GOG [Deluxe Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шерлок Холмс, ещё не величайший в мире сыщик, а дерзкий и сообразительный юнец с большими амбициями. Возможность проявить себя появляется, когда старая рана вынуждает Холмса вернуться на берега Средиземного моря, где умерла его мать. Но за беспечным шумом городских улиц звучит тревожный мотив. Преступность, коррупция, извращённое чувство справедливости - лишь некоторые (   Читать дальше...   )Тип издания: LicenseРазработчик: FrogwaresЖанр: Приключение, Головоломка, ДетективЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353C27456D5B11A8121C83D24DDF9C41B0792142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301462   (585027) от 11.05.2019
+
+The Long Dark (2017) [Ru/Multi] (1.49) Repack R.G. Механики
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркий свет прорезает ночное небо. Ветер бушует за тонкими стенами вашей деревянной хижины. Вдалеке воет волк. Оглядев скудные запасы в рюкзаке, вы со вздохом вспоминаете дни до таинственного отключения электричества. Сколько еще вы сможете выжить? Встречайте The Long Dark с ее новым взглядом на выживание и исследование - то, что Wired magazine назвал «вишенка на (   Читать дальше...   )Тип издания: RepackРазработчик: Hinterland Studio Inc.Жанр: Action (Survival), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75A8847155ECE4A46104EEC93CD715C11CFCBD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246445   (584910) от 11.05.2019
+
+The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack R.G. Catalyst [Episode 1-4]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_584910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами заключительная глава истории Клементины, ставшей закаленным бойцом. Кошмары живого и мертвого мира долгие годы терзали девочку, и теперь затерянная в глуши школа может стать для нее желанным домом. Но ей придется многим пожертвовать, чтобы защитить его.Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B284224A06DA0C74875A538BF531A0D37754BED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145418   (584895) от 11.05.2019
 
 The Long Dark Redux (2017) [Ru/Multi] (1.49) SteamRip R.G. Origins [Episode 1-2]
@@ -6,7 +84,7 @@ The Long Dark Redux (2017) [Ru/Multi] (1.49) SteamRip R.G. Origins [Episode 1-2]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584895.jpg" />
+  <img src="Z:/picture/008/save_picture_584895.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Lacuna - A Sci-Fi Noir Adventure (2021) [Ru/Multi] (1.3.0.1) License GOG [Save t
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584505.jpg" />
+  <img src="Z:/picture/008/save_picture_584505.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ LEGO Indiana Jones 2: The Adventure Continues (2010) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583688.jpg" />
+  <img src="Z:/picture/008/save_picture_583688.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Apartment 666 (2016) [En] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583123.jpg" />
+  <img src="Z:/picture/008/save_picture_583123.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ LEGO Star Wars - The Complete Saga (2009) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582748.jpg" />
+  <img src="Z:/picture/008/save_picture_582748.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Campus [Ru] (RePack) 2007 | CCG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582714.jpg" />
+  <img src="Z:/picture/008/save_picture_582714.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Niko: Through The Dream (2015) [Ru/En] (1.0) RePack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582549.jpg" />
+  <img src="Z:/picture/008/save_picture_582549.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ The Subject (2018) [En] (2.0.3) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580050.jpg" />
+  <img src="Z:/picture/008/save_picture_580050.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.0.0/dlc) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577392.jpg" />
+  <img src="Z:/picture/008/save_picture_577392.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575853.jpg" />
+  <img src="Z:/picture/008/save_picture_575853.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Doorways: Holy Mountains of Flesh (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575843.jpg" />
+  <img src="Z:/picture/008/save_picture_575843.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ The Long Dark (2017) [Ru/Multi] (1.50) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575733.jpg" />
+  <img src="Z:/picture/008/save_picture_575733.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Coffee Talk (2020) [Ru/Multi] (1.48) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573755.jpg" />
+  <img src="Z:/picture/008/save_picture_573755.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572692.jpg" />
+  <img src="Z:/picture/008/save_picture_572692.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ A Stroke Of Fate 2 / Архивы НКВД: Охота на фюрера. Опе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572315.jpg" />
+  <img src="Z:/picture/008/save_picture_572315.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ Sephonie (2022) [En] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571838.jpg" />
+  <img src="Z:/picture/008/save_picture_571838.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ Observation (2019) [Multi] (1.04) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570202.jpg" />
+  <img src="Z:/picture/008/save_picture_570202.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569919.jpg" />
+  <img src="Z:/picture/008/save_picture_569919.jpg" />
 </div>
 
 
@@ -484,7 +562,7 @@ Silt (2022) [Ru/Multi] (1.0.0.1014) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569914.jpg" />
+  <img src="Z:/picture/008/save_picture_569914.jpg" />
 </div>
 
 
@@ -510,7 +588,7 @@ Grim Fandango Remastered (2015) [Ru/En] (1.4.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568422.jpg" />
+  <img src="Z:/picture/008/save_picture_568422.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ American Fugitive (2019) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568403.jpg" />
+  <img src="Z:/picture/008/save_picture_568403.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ Gone Home (2013) [Ru/En] (1.02) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568346.jpg" />
+  <img src="Z:/picture/008/save_picture_568346.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ Observation (2019) [Ru/Multi] (1.04) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566719.jpg" />
+  <img src="Z:/picture/008/save_picture_566719.jpg" />
 </div>
 
 
@@ -599,84 +677,6 @@ Observation - это научно-фантастический триллер, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:353EA468E50AC3556F6BBA73A57CE0769F3AE36E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304127   (566715) от 24.05.2019
-
-PLANET ALPHA (2018) [Ru/Multi] (1.0.5.1) License GOG [Digital Deluxe]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566715.jpg" />
-</div>
-
-
-###  Подробнее
-
-PLANET ALPHA - это прекрасный инопланетный мир, полный загадок и опасностей. Вам придется овладеть силой дня и ночи, чтобы бороться за выживание среди безжалостных врагов. Вас бросили в инопланетном мире...  Вы проснулись в странном инопланетном мире. Вы ранены, одиноки и совершенно потеряны в этих незнакомых землях. Вам предстоит отправиться в путешествие по этой (   Читать дальше...   )Тип издания: LicenseРазработчик: Planet Alpha ApSЖанр: Приключение, Экшн, ФантастикаЯзык озвучки: АнглийсуийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:482CD6F67F51079A49DED57F8CED117AB1136D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304321   (564976) от 25.05.2019
-
-Dollhouse (2019) [Multi] (1.1.1) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жуткая игра в жанре хоррор затягивает вас в полную мистики атмосферу фильм-нуар. Вам предстоит проникнуть в глубины разума Мари — женщины-детектива, пытающейся воспоминание за воспоминанием разгадать тайны своего прошлого. Играя в кошки-мышки со своим преследователем, вы сможете смотреть его глазами с помощью опции «сфокусироваться».Тип издания: RepackРазработчик: Creazn StudioЖанр: Action, Adventure, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E7893148A7E58BF5C6277E3230DE0B3C8B864A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044541   (564903) от 20.08.2016
-
-You Deserve (2016) [En/Es] (1.0) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564903.jpg" />
-</div>
-
-
-###  Подробнее
-
-You Deserve - игра в приключенческом жанре. Вы никогда не думали, что все, что вы делаете, возможно, вернется к вам назад? Группа подростков преследовала сокурсника из средней школы. В конце концов, молодой человек был не в состоянии больше выносить все эти издевательства и в конечном итоге решил покончить с собой. Кто за это ответит?Тип издания: LicenseРазработчик: TGA CompanyЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F45F9B29743C38FA4597FF3D48CEFEF62B19C9BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1513212   (224764) от 28.11.2021
+
+Digital Tutors, Floyd Bishop | Creating Animal Animations in Maya 2016 (2015) PCRec [En, Ru]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_224764.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе по Maya мы рассмотрим три обычных типа животных, с котрыми приходится работать аниматору. Начнем с небольшой легкой птички, а затем перейдем к походке четвероного на примере пумы и закончим тяжелым носорогом.
+Мы рассмотрим линию движения и сосредоточимся на постановке поз для создания правдоподобного ощущения веса. Мы также используем некоторые приемы (   Читать дальше...   )Производство: Digital TutorsЖанр: АнимацияЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B6C73202C8F9A9B7E42ABFF8E9EF1237FB146F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513274   (224754) от 28.11.2021
 
 Инна Гревцева | Урок рисование волос (2021) WEB-DLRip [AD]
@@ -6,7 +33,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224754.jpg" />
+  <img src="Z:/picture/005/save_picture_224754.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ CG Cookie, Kent Trammell | HUMAN: Realistic Portrait Creation with Blender (2021
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224382.jpg" />
+  <img src="Z:/picture/005/save_picture_224382.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Creative Shrimp, Jeannot Landry | Hard Surface Rigging In Blender (2020) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224349.jpg" />
+  <img src="Z:/picture/005/save_picture_224349.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Skillshare, David Jaasma | Мастер-класс по системе част�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223803.jpg" />
+  <img src="Z:/picture/005/save_picture_223803.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ Creative Shrimp, Luca Rood | Procedural Texturing: Blender Master Class (2021) P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223080.jpg" />
+  <img src="Z:/picture/005/save_picture_223080.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ MachDigital, Тимур Магомедов | MachDigital - Моделирова�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222081.jpg" />
+  <img src="Z:/picture/005/save_picture_222081.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221811.jpg" />
+  <img src="Z:/picture/005/save_picture_221811.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ Coloso, Hyoungtaek Nam | Realistic Character Design (2022) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219793.jpg" />
+  <img src="Z:/picture/005/save_picture_219793.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ FreelStep | After Effects from FreelStep (2022) WEB-DL [AD] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219756.jpg" />
+  <img src="Z:/picture/005/save_picture_219756.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ Gumroad, Josh Gambrell, Ponte Ryuurui| Полное руководство по 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219614.jpg" />
+  <img src="Z:/picture/005/save_picture_219614.jpg" />
 </div>
 
 
@@ -275,7 +302,7 @@ Skillbox, Михаил Розов | Cinema 4D для веб-дизайна (2018
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219470.jpg" />
+  <img src="Z:/picture/005/save_picture_219470.jpg" />
 </div>
 
 
@@ -304,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217575.jpg" />
 </div>
 
 
@@ -333,7 +360,7 @@ CGTarian, Вадим Беседин | CG Generalist (2015) TVRip
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217162.jpg" />
+  <img src="Z:/picture/005/save_picture_217162.jpg" />
 </div>
 
 
@@ -362,7 +389,7 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216242.jpg" />
 </div>
 
 
@@ -389,7 +416,7 @@ Gumroad, Danny Mac | How to Sculpt and Retopologize a Stylized Head in Blender (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216201.jpg" />
 </div>
 
 
@@ -416,7 +443,7 @@ Bestblendercourse, Mad Rabbit | Самый лучший курс по Blender (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216129.jpg" />
 </div>
 
 
@@ -445,7 +472,7 @@ The Gnomon Workshop, Madeleine Scott-Spencer | Введение в ZBrush 2020 /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215444.jpg" />
+  <img src="Z:/picture/005/save_picture_215444.jpg" />
 </div>
 
 
@@ -472,7 +499,7 @@ The Gnomon Workshop, Kat Unsworth | Modeling a Stylized Character for Games (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215053.jpg" />
+  <img src="Z:/picture/005/save_picture_215053.jpg" />
 </div>
 
 
@@ -498,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214935.jpg" />
+  <img src="Z:/picture/005/save_picture_214935.jpg" />
 </div>
 
 
@@ -525,7 +552,7 @@ Yiihuu, Xara Mahmoudi | The Dwarf Warrior II: from rigging to animation and engi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214423.jpg" />
+  <img src="Z:/picture/005/save_picture_214423.jpg" />
 </div>
 
 
@@ -551,7 +578,7 @@ designonline, Александр Шуняев | Постановка PRO осв�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213629.jpg" />
+  <img src="Z:/picture/005/save_picture_213629.jpg" />
 </div>
 
 
@@ -578,7 +605,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213495.jpg" />
 </div>
 
 
@@ -604,7 +631,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213494.jpg" />
 </div>
 
 
@@ -630,7 +657,7 @@ Udemy, Creativity Unleashed | Complete Blender Megacourse: Beginner to Expert - 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213492.jpg" />
+  <img src="Z:/picture/005/save_picture_213492.jpg" />
 </div>
 
 
@@ -656,7 +683,7 @@ Patreon, FlyCat | Ahri Modelling - Full process videos and 3D model (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213288.jpg" />
+  <img src="Z:/picture/005/save_picture_213288.jpg" />
 </div>
 
 
@@ -668,32 +695,6 @@ Patreon, FlyCat | Ahri Modelling - Full process videos and 3D model (2021) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DA34E5CC2CC362541BF3F6D441DB3C6B88F03B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557753   (213274) от 17.06.2022
-
-Digital Tutors, Clinton Crumpler | Creating Rock Structures for Games in ZBrush and Unreal Engine (2015) PCRec [EN, RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создание скальной породы для игр. Unreal Engine 4.6.1, Photoshop, Maya, nDo2, xNormal, ZBrushПроизводство: Digital TutorsЖанр: Создание ассетовЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B2EBE065254AD103A5A7EB0218E5191A557D600
 ```
 
 https://mybot314.ru/tekegram_catalog/

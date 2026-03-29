@@ -1,3 +1,81 @@
+###  Публикация: 764306   (335328) от 30.10.2020
+
+Юлий Цезарь / Giulio Cesare (1909) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страницы биографии великого правителя Юлия Цезаря от великого режиссера Джованни Пастроне. Правда, впечатляющее "Падение Трои" и грандиозная "Кабирия" у него еще впереди, но и на пленке этого фильма уже "видны следы когтей таланта" (цитирую И. Ильфа и Е. Петрова)Производство: Италия, Itala FilmЖанр: Драма, короткометражный, немое киноРежиссер: Джованни ПастронеАктеры: Джованни Пастроне, Луиджи МелеЯзык озвучки: НемойСубтитры: Итальянские интертитры, русские отдельным файломПродолжительность: 00:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FF2FA647C69E407FB8A04A2209939AFE220326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954063   (335286) от 10.11.2015
+
+7-ая кавалерия / 7th Cavalry (1956) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращаясь в форт Линкольн, капитан Бенсон узнает о поражении генерала Кастера на Литл Бигхорне. В ходе расследования офицеры обвиняют в поражении самого Кастера, а Бенсон пытается его защитить. Но отсутствие Бенсона во время битвы вызывает подозрения и презрение всего гарнизона. Но, когда возникает необходимость вывезти с поля боя тела погибших, Бенсон вызывается, (   Читать дальше...   )Производство: США / Producers-Actors Corporation, Scott-Brown ProductionsЖанр: ВестернРежиссер: Джозеф Х. ЛьюисАктеры: Рэндольф Скотт, Барбара Хейл, Джей С. Флиппен, Фрэнк Фэйлен, Жанетт Нолан, Лео Гордон, Денвер Пайл, Гарри Кэри мл., Майкл Пэйт, Дональд КёртисПеревод: Одноголосый закадровый (NezPerce)Субтитры: ОтсутствуютПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9700BFC6DF538622607CA7FD19D6E4E30506DA96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 764072   (335203) от 30.10.2020
+
+Эдгар Аллан По / Edgar Allan Poe (1909) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдгар Аллан По был одним из любимых писателей Гриффита, к его творчеству и биографии он обращался как минимум трижды. В этой биографической ленте события из жизни писателя предельно сконцентрированы, стержневой становится история создания его главного шедевра - стихотворения "Ворон". Жизнь Эдгара По всегда была окружена легендами, чему и сам он немало поспособствовал. (   Читать дальше...   )Производство: США, American Mutoscope & BiographЖанр: короткометражный, биография, драма, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Херберт Йост, Линда Арвидсон, Клара Т. Брэйси, Анита Хендри, Артур В. Джонсон, Джеймс Кирквуд, Дэвид МайлзЯзык озвучки: немойСубтитры: английские интертитры, русские отдельным файломПродолжительность: 00:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC91FAEFEA74A35DC73505B200575F0782B2802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575692   (334326) от 28.09.2022
 
 Мацист в аду / Maciste all'inferno (1925) WEB-DLRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334326.jpg" />
+  <img src="Z:/picture/008/save_picture_334326.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334243.jpg" />
+  <img src="Z:/picture/008/save_picture_334243.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333756.jpg" />
+  <img src="Z:/picture/008/save_picture_333756.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333658.jpg" />
+  <img src="Z:/picture/008/save_picture_333658.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333569.jpg" />
+  <img src="Z:/picture/008/save_picture_333569.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332916.jpg" />
+  <img src="Z:/picture/008/save_picture_332916.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332804.jpg" />
+  <img src="Z:/picture/008/save_picture_332804.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332411.jpg" />
+  <img src="Z:/picture/008/save_picture_332411.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332293.jpg" />
+  <img src="Z:/picture/008/save_picture_332293.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332282.jpg" />
+  <img src="Z:/picture/008/save_picture_332282.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332199.jpg" />
+  <img src="Z:/picture/008/save_picture_332199.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331880.jpg" />
+  <img src="Z:/picture/008/save_picture_331880.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331499.jpg" />
+  <img src="Z:/picture/008/save_picture_331499.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331125.jpg" />
+  <img src="Z:/picture/008/save_picture_331125.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331056.jpg" />
+  <img src="Z:/picture/008/save_picture_331056.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331041.jpg" />
+  <img src="Z:/picture/008/save_picture_331041.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331036.jpg" />
+  <img src="Z:/picture/008/save_picture_331036.jpg" />
 </div>
 
 
@@ -454,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330899.jpg" />
+  <img src="Z:/picture/008/save_picture_330899.jpg" />
 </div>
 
 
@@ -480,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330892.jpg" />
+  <img src="Z:/picture/008/save_picture_330892.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_330740.jpg" />
+  <img src="Z:/picture/005/save_picture_330740.jpg" />
 </div>
 
 
@@ -532,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330483.jpg" />
+  <img src="Z:/picture/008/save_picture_330483.jpg" />
 </div>
 
 
@@ -558,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330470.jpg" />
+  <img src="Z:/picture/008/save_picture_330470.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330147.jpg" />
+  <img src="Z:/picture/008/save_picture_330147.jpg" />
 </div>
 
 
@@ -595,86 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFE6BF1AA9B466F7B9B2E45A4DBC4B18CEE9807C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955023   (329372) от 15.11.2015
-
-Человек из Аламо / The Man from the Alamo (1953) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гленн Форд — в роли Джона Страуда, борца за независимость Техаса, который покидает свой пост в Аламо, чтобы предупредить родственников и друзей о приближении мексиканской армии. Но Джон прибывает слишком поздно… и с этого момента клянется отомстить двум наемникам-янки, которые, сражаясь на стороне мексиканцев, убили его жену и ребенка.
-В то же время, Страуд становится (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Бадд БоттичерАктеры: Гленн Форд, Джули Адамс, Чилл Уиллс, Хью О’Брайан, Виктор Джори, Невилл Брэнд, Джон Дахейм, Мира Марш, Джинн Купер, Марк КэвеллПеревод: Многоголосый закадровыйЯзык субтитров: РусскийПродолжительность: 01:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0043515CF23FFEF8CA3CEC4AAFC01FF1827AA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955821   (329258) от 15.11.2015
-
-Чайная церемония / The Teahouse of the August Moon (1956) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полковник Пурди крут и прямолинеен — жители оккупированной окинавской деревушки в Японии должны признать демократию американского образца. «Иначе я их всех перестреляю» — безаппеляционно заявляет он.
-Ответственным за проведение этого приказа в жизнь назначен капитан Фисби. Но придурковатый и рассеянный симпатяга Фисби сразу же попадает под тонкое, поначалу слабо (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: КомедияРежиссер: Дэниэл МаннАктеры: Марлон Брандо, Гленн Форд, Матико Кё, Эдди Альберт, Пол Форд, Дзюн Нэгами, Нидзико Киёкава, Мицуко Савамура, Гарри Морган, Джейн ЧунгПеревод: Двуголосый закадровый (DVD-Magic)Субтитры: ОтсутствуютПродолжительность: 02:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4123E031D6AE7BEA4F6658B6B2703ACB1DA5123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261368   (328672) от 22.11.2010
-
-Прощай, Эммануэль / Goodbye Emmanuelle (1977) [H.264] DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она была рьяной искательницей эротических приключений, никогда не прекращающей своей неистовой гонки за наслаждением. И вдруг произошло совершенно невероятное. Исполненная сексуальной свободы, Эммануэль попадает в классическую, но парадоксальную ситуацию — ситуацию Любви с большой буквы. Страстно и безоглядно она порывает с привычной жизнью, влекомая этим неведомым (   Читать дальше...   )Жанр: Мелодрама, классика эротикиРежиссер: Франсуа ЛетерьеАктеры: Сильвия Кристель, Умберто Орсини, Жан-Пьер Бувье, Александра Стюарт, Ольга Жорж-Пико, Шарлотт Александра, Кэролайн Лоренс, Сильви Феннеш, Эрик Колин, Джек АлленЯзык субтитров: Английские, голландскиеФормат: MKVПродолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F042B0ED736FE2C04478499BFE657B93E62B5115
 ```
 
 https://mybot314.ru/tekegram_catalog/

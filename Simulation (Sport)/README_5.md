@@ -1,3 +1,55 @@
+###  Публикация: 1643468   (210124) от 01.07.2023
+
+theHunter: Call of the Wild (2017) [Ru/Multi] (11373498/dlc) Scene FairLight
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210124.jpg" />
+</div>
+
+
+###  Подробнее
+
+theHunter: Call of the Wild – наиболее реалистичный на сегодняшний день симулятор охоты. Окунитесь в яркий мир дикой природы и познакомьтесь с его многочисленными обитателями: от изящных оленей до внушительных зубров, от бесчисленных птичьих стай до мелких лесных букашек.Тип издания: SceneРазработчик: Expansive WorldsЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAC00276500C866CEE81FA8EBA1ED96F9E6EEE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637801   (207113) от 05.08.2023
+
+Tennis Manager 2023 (2023) [Multi] (3.0.725) License GOG
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tennis Manager 2023 - это проработанный спортивный симулятор, где вы не просто возглавите собственную академию теннисистов, но и будете нести ответственность за свою команду не только на корте, но и за его пределами. Возьмите на себя ответственность и пройдите путь от начинающего тренера до менеджера №1 о чьем величии знает весь мир. С умом формирует группы спортсменов, (   Читать дальше...   )Тип издания: LicenseРазработчик: Rebound CGЖанр: Спорт, Симулятор, МенеджментЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1006BB2571DB68FC81F38AE61973675C30654D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651990   (206819) от 09.08.2023
 
 Franchise Hockey Manager 9 (2022) [En] (9.4.107) Scene Skidrow
@@ -6,7 +58,7 @@ Franchise Hockey Manager 9 (2022) [En] (9.4.107) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206819.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ World Championship Boxing Manager 2 (2023) [Multi] (0.12.6.0) License GOG
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203676.jpg" />
+  <img src="Z:/picture/004/save_picture_203676.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Tennis Manager 2023 (2023) [Multi] (3.0.659) Scene Skidrow
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197362.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ MotoGP 23 (2023) [Multi] (1.0/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197238.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ WWE 2K23 (2023) [Multi] (1.15/dlc) Scene Tenoke [Icon Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194717.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Incredi Beachvolleyball / Улётный пляжный волейбол (2008) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194136.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ WildTrax Racing (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193726.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Charrua Soccer (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193527.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Mountain Bicycle Rider Simulator (2023) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191077.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ FIFA 07 (2006) [Ru/Multi] (1.00) Scene iMMXpC
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189547.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (1.0/dlc) Scene Rune [Digital Deluxe
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176320.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ WWE 2K23 (2023) [Multi] (1.18/dlc) Scene Rune [Icon Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171112.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ WWE 2K20 (2019) [Multi] (1.08/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162558.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ MXGP 2020 - The Official Motocross Videogame (2020) [Multi] (1.0) License CODEX
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161584.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ TT Isle Of Man: Ride on the Edge 3 (2023) [Ru/Multi] (20231109/dlc) Scene Rune
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159070.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Shaun White Skateboarding / Shaun White Скейтборд (2010) [Ru/En] (1.0) 
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152056.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Shaun White Snowboarding (2008) [Ru/En] (1.01) Lossless Repack R.G. Origami
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152041.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Hydrofoil Generation (2023) [En] (1.0.1) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148328.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Pro Evolution Soccer 2016 (2015) [Ru/En] (1.03.00) Repack R.G. Catalyst
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146215.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Barton Lynch Pro Surfing (2023) [Multi] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144751.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Dungeon Golf (2023) [En] (1.0) Scene Tenoke
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141311.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Hunting Unlimited 2009 (2008) [En] (1.0) License Just for Kicks
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140349.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140080.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Hunting Unlimited 4 (2006) [En] (1.0) License Razor1911
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140049.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Hunting Unlimited 4 - симулятор охотника, являющийся 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BE3B739C58629D49AAE856522350404B2D05A16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088461   (137791) от 31.12.2016
-
-Hunting Unlimited 2 (2003) [En] (1.0) License Fairlight
-
->>Win Старые Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hunting Unlimited 2 - симулятор охоты от компании SCS Software. Как и во всех играх подобног жанра, игроку предстоит отстреливать беззащитных животных из различного оружия (от лука до винтовок). Тому, кто по своей природе охотник, но ему жалко убивать бедных зверюшек, есть возможность поохотиться виртуально в охотничьем симуляторе «Hunting Unlimited 2».Тип издания: LicenseРазработчик: SCS SoftwareЖанр: Sport (Hunt, Fish), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C87BA7B46425594067147449AFC7556C4534DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824983   (136867) от 16.10.2025
-
-Project Hunt (2024) [Ru/Multi] (2025-9-25/dlc) Repack seleZen
-
->>Win Игры
->>Simulation (Sport)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Project Hunt - приближенный к реализму симулятор охотника, где перед вами раскинутся огромные охотничьи угодья в формате открытого мира. Прихватите с собой любимую винтовку и отправляйтесь выслеживать ничего не подозревающую добычу, попутно изучая живописные пейзажи и знакомясь с местными ландшафтами в поисках наиболее лучшей позиции.Тип издания: RepackРазработчик: Mind MarvelsЖанр: Приключенческие игры, Симуляторы, Спортивные игрыЯзык субтитров: Русский, Английский, Французский, Шведский и другиеЯзык интерфейса: Русский, Английский, Французский, Шведский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4872FD855F0E9907C8262BFEF9F765BEC5C28942
 ```
 
 https://mybot314.ru/tekegram_catalog/

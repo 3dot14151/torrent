@@ -1,25 +1,22 @@
-###  Публикация: 1109664   (857489) от 28.02.2017
+###  Публикация: 1376443   (860155) от 17.04.2020
 
-VA - Argentina Avenue #01 (2017) [MP3|320 Kbps] <Progressive House,House>
+М. Шебаршова (ред.) | Территория сладостей. Торты, пряники, конфеты (2020) [PDF]
 
->>Electronic
->>House
+>>Разное (категория книг)
+>>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857489.jpg" />
+  <img src="Z:/picture/008/save_picture_860155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cristian R & Kasall - Solar Eclipse (Original Mix) (08:00)
-02. LOM (AR) - Lonely Time (Paul Deep & Martin Gardoqui Remix) (08:00)
-03. Pablo Cetrini - For You (Original Mix) (09:04)
-04. Sound Process - Simple Chords (Martin Garcia Remix) (07:48)(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 06:39:02
+Авторы этой книги – признанные мастера пряничного искусства. Они победители престижных кондитерских конкурсов, основатели онлайн-школы по росписи пряников, создатели восхитительных пряничных скульптур, при виде которых вырывается "Вау!". А ведь всего пять лет назад топ-менеджеры Николай Гагарин и Артем Валентинов вообще ничего не знали о кондитерском деле. (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A788CD425F57EBF33DBCE0CB09B21E89B281A51C
+magnet:?xt=urn:btih:4097FAA8904A0A2D1073D376589E9557C8C99A90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109669   (857488) от 28.02.2017
+###  Публикация: 1376360   (860154) от 17.04.2020
 
-VA - Clinique Mixed XI (2017)(by zweitausendeins Traum) [MP3|320 Kbps] <Progressive House,House>
+Manual FX Camera 1.0.3 [Ru]
 
->>Electronic
->>House
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857488.jpg" />
+  <img src="Z:/picture/008/save_picture_860154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Christian Monique - Steam Train (Greenage Remix) 08:08
-02. Imran Khan - Buenos Aires (Original Mix) 08:42
-03. Ghoeyash - My Heart Beat (LoQuai Remix) 08:41
-04. Andrea Bertolini & Valerio Vaudano - Improvvisazione #24 08:34(   Читать дальше...   )Жанр: Progressive House,HouseПродолжительность: 05:29:39
+Камера FX разработана для того, чтобы делать одну вещь и делать ее исключительно хорошо. FX Camera создала простой пользовательский интерфейс, позволяющий максимально эффективно использовать камеру.Тип издания: ПираткаРелиз состоялся: 17.04.2020Разработчик: TAPP™Поддерживаемая ОС: Android 4.1Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88C769B3CE1CDDDEDBEF8E0C6724EEE155CD7AEE
+magnet:?xt=urn:btih:71418585012259AEAB0932F827BC054DB9B8F127
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109684   (857487) от 28.02.2017
+###  Публикация: 1376392   (860152) от 17.04.2020
 
-VA - Let's Get Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Галина Кизима | Как защитить сад и огород от вредителей и болезней (2020) [EPUB]
 
->>Electronic
->>Easy listening
+>>Разное (категория книг)
+>>Сад, огород, животноводство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857487.jpg" />
+  <img src="Z:/picture/008/save_picture_860152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don Gorda Project - Mild And Quiet  6:47
-02.  Enrico Donner - Sensual Education  5:57
-03.  Cane Garden Quartet - Flying With No Wings  5:54
-04.  Baghira - A Thrill Of Anticipation  5:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:36
+«Где мой урожай?» – недоумевают дачники, обнаружив, что фрукты и овощи «на корню» почти доели жучки, гусеницы и разные болезни. А всего-то и нужно было – вовремя распознать зарождение врагов и не дать им превратиться в непобедимые полчища, против которых бессильна даже тяжелая артиллерия, то есть «химия». Всем, кто не желает делиться с наглыми сосущими и грызущими (   Читать дальше...   )Жанр: Сад и огородФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7636730A87BFBB592D0A79A52EE4697AC780D949
+magnet:?xt=urn:btih:106C87F0697C36DE572667CAE4E6B96BCE452AC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109552   (857486) от 28.02.2017
+###  Публикация: 1376268   (860149) от 17.04.2020
 
-VA - All Good In The Hood Vol.2: 20 Groove Monsters (2017) [MP3|320 Kbps] <House>
+EssentialPIM Pro Business Edition 8.66.1 RePack (& portable) by KpoJIuK [Multi/Ru]
 
->>Electronic
->>House
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857486.jpg" />
+  <img src="Z:/picture/008/save_picture_860149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Frank Richmond - Mirror Of Truth 3:09
-002. Gee Lovers - Cops And Robbers 3:24
-003. Jonathan Goldman - Outside The Lines 3:13
-004. 6th Floor Groove Ensemble - Party Girls 2:55(   Читать дальше...   )Жанр: HouseПродолжительность: 01:04:02
+EssentialPIM - высокофункциональный менеджер персональной информации с продуманным интерфейсом и множеством возможностей. Содержит средства для работы с календарем, списком задач, заметками и контактами. Есть широкие возможности для печати, импорта и экспорта информации, возможность запуска с переносных USB накопителей (включая U3 SmartDrive - сертифицированную версию), (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43C9C8CC27E49B8CEB8E4F36FFC33F067DA0C7BF
+magnet:?xt=urn:btih:6E6940774E905F838FA3BE46DD5BE3C145EC559E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109674   (857485) от 28.02.2017
+###  Публикация: 1376251   (860147) от 17.04.2020
 
-VA - Eivissa Chill Vol.1 (Balearic Island Chill) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Виктор Сиголаев | Фатальное колесо. Пятое колесо в телеге (2020) [MP3]
 
->>Electronic
->>Easy listening
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857485.jpg" />
+  <img src="Z:/picture/008/save_picture_860147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  E-Motive - Street Waves  4:11
-02.  Roberto Sol - Te Amo (feat. Ines Prados)  4:40
-03.  Rinat KaaS - Inside Emotions  4:36
-04.  Sunyata Project - Mystic Adventures (Oriental Chill Mix)  3:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:20
+Приключения странного ребенка в советской действительности продолжаются. Только он уже стал подростком, да еще и студентом судостроительного техникума. А тот факт, что в юной головушке верховодит сознание взрослого человека наших дней, жизни не облегчает. Оно как пятое колесо в телеге, это сознание – то не туда свернет, то превысит скорость. А еще память из будущего (   Читать дальше...   )Жанр: Детективная фантастика, историческая фантастика, попаданцыПродолжительность: 11:57:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A9E964ABA76E5811576EB78ACB6A16FC8F24565
+magnet:?xt=urn:btih:E13C5A1DC411A28D22EB2B39AC1006AFC7CA2015
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109677   (857484) от 28.02.2017
+###  Публикация: 1376235   (860145) от 17.04.2020
 
-VA - Natural Born Chillas, Vol. 7 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Internet Download Manager 6.37 Build 9 (17.04.2020) RePack by KpoJIuK [Multi/Ru]
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857484.jpg" />
+  <img src="Z:/picture/008/save_picture_860145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. York - Interlude 0:59
-002. 351 Lake Shore Drive - Day Of Light 2:19
-003. Simon Le Grec - Forbidden Love 3 (radio mix) 4:25
-004. Project Blue Sun - Ad Astra Per Aspera 5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:24:06
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B308646340322B9662864DBD9CE7B38EC9FB85E
+magnet:?xt=urn:btih:7BB2C99F98676746043C28E3BDC289CFF90D141F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109556   (857483) от 28.02.2017
+###  Публикация: 1374752   (860144) от 17.04.2020
 
-VA - Boutique Lounge Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Луна (1965) SATRip [H.264] [MP4|960x720] [hand made реставрация]
 
->>Electronic
->>Easy listening
+>>Документалистика и Телепередачи
+>>Космос
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857483.jpg" />
+  <img src="Z:/picture/008/save_picture_860144.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Omaya - Fanatically - Original Mix 3:26
-002. Mowree - Expanse - Original Mix 5:33
-003. Felipe Gonzalez - No Hablas Espagnol - Original Mix 4:56
-004. Mathieu & Florzinho - Eternal Now - Original Mix 5:34(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:30
+Фильм, синтезирующий два жанра - научно-популярное кино и научно-художественную фантазию - создан непревзойденным мастером в этой области Павлом Клушанцевым. В первой части фильма - собственно научно-популярной - сообщается о последних на тот момент достижениях ученых в области исследования Луны, ученые делятся гипотезами относительно происхождения лунных морей, (   Читать дальше...   )Производство: СССР, ЛеннаучфильмЖанр: ДокументальныйРежиссер: П. КлушанцевСубтитры: отсутствуютПродолжительность: 00:50:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DB4E82DDA758AF7961359F71ABE1626F342BEAE
+magnet:?xt=urn:btih:D2783E1831E0D831244828078C189505196E82D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,83 +180,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 875278   (857474) от 06.03.2015
+###  Публикация: 1376240   (860141) от 17.04.2020
 
-Маргарита Блинова | Тяжело быть студентом (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Тяжелые будни!».
-
-Ангелина – самая обычная на вид девушка, которая учится на последнем курсе Университета Магии и Ворожбы. Причем магии в ней ни грамульки, поэтому приходится грызть гранит теоретической науки, особо ни на что в будущем не надеясь. Скучная однообразная жизнь среднестатистической зубрилки?
-Да, именно такой Линка и старается казаться, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B60F0D3366A29735A32FAE5FA0A72E7A9DCAF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 874354   (857464) от 06.03.2015
-
-Вертикаль (1967) DVDRip [H.264] [hand made colored]
-
->>След.
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группе альпинистов, идущих на штурм непокоренной кавказской вершины, пика Ор-Тау, послан сигнал о немедленном возвращении: надвигается грозовой циклон. Связист скрывает от товарищей это предупреждение, и они оказываются в критической ситуации. Трагедии удается избежать только благодаря мужеству спасателей и опыту самих спортсменов…Производство: СССР, Одесская к/стЖанр: Драма, приключенияРежиссер: Борис Дуров, Станислав ГоворухинАктеры: Владимир Высоцкий, Маргарита Кошелева, Геннадий Воропаев, Александр Фадеев, Георгий Кулбуш, Лариса Лужина, Бухути Закариадзе, М. Анучринов, Л. Глисеев, Л. КахилинПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD935E56AFBB8B73696ABBF2B753C7070220598B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109594   (857462) от 28.02.2017
-
-VA - Energy 15 Trance Best (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
+VA - Back to the Seventies - The Best of the 70s (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock, Pop>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857462.jpg" />
+  <img src="Z:/picture/008/save_picture_860141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Omniks - Looking For You (Original Mix)  6:48
-02.  Tycoos & First Sight - Wonderland (Original Mix)  6:12
-03.  Raz Nitzan & Kate Louise Smith - This Time (Steve Allen Remix)  4:44
-04.  Delta IV - Forever Home (Betsy's Heart Pt. 2) (Original Mix)  9:38(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 01:45:06
+01. Slade - Look At Last Nite
+02. ZZ Top - Back Door Love Affair
+03. Creedence Clearwater Revival - Down On The Corner
+04. Peter Frampton - Show Me The Way (Live)(   Читать дальше...   )Жанр: Rock, Glam Rock, PopПродолжительность: 11:02:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08BF7922C416C79FA16739239B4B4EC40E9DB45E
+magnet:?xt=urn:btih:EA61D5FC222CA63CC4349E3515A0D5D5E84DBCA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,28 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109652   (857461) от 28.02.2017
+###  Публикация: 839558   (860139) от 17.04.2020
 
-Les McCann Ltd. - In San Francisco (1960) 2012, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
+Повесть о молодоженах (1959) DVDRip [H.264]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857461.jpg" />
+  <img src="Z:/picture/008/save_picture_860139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Oh, Them Golden Gates [04:10]
- 02.Red Sails In The Sunset [08:32]
- 03.Big Jim [07:06]
- 04.I Am In Love [05:02](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 01:01:45
+Бывшие детдомовцы ежегодно собираются в доме над Невой, где прошло их детство и юность. Шура познакомила своего мужа с друзьями и была счастлива, что муж был хорошо принят. Однако молодожены вскоре поссорились и вспыльчивый муж уехал в другой город. Окруженная вниманием друзей, она не чувствовала себя одинокой. К тому же, родилась двойня. Глупая ссора забылась, муж (   Читать дальше...   )Жанр: Драма, мелодрамаРежиссер: Сергей СиделевАктеры: Вера Пашенная, Татьяна Пельтцер, Кюнна Игнатова, Анатолий Кузнецов, Светлана Жгун, Евгений Леонов, Алиса Фрейндлих, Кирилл Лавров, Сергей Юрский, Борис Аракелов, Евгения Уралова, Светлана Мазовецкая, Владимир Поболь, Анатолий АзоФормат: MKVПродолжительность: 01:20:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70490E3D300C7A0486905E759245E141C8695C95
+magnet:?xt=urn:btih:B7CBF927C48C2087E7B22336EC9F043D0CAB60EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,171 +235,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109597   (857460) от 28.02.2017
+###  Публикация: 1376208   (860138) от 17.04.2020
 
-VA - Re Confirmed: Deep House Selection Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bunched - Ame?lie's Symphony - Fabian Schumann Remix 6:32
-002. Joe Pycasso - Feel Love - Original Mix 8:21
-003. James Rod - Lipstick 78 - Schwarz 100 Remix 5:40
-004. Q Narongwate - Local Talk - Original Mix 5:42(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB91B2645C9C1677390A2A9F4F27077F6ABF0C23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109883   (857459) от 28.02.2017
-
-Dave Brubeck - Live With the LSO (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857459.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Summer Music
-2. In Your Own Sweet Way
-3. A Salute To The Count (The Basie Band Is Back In Town)
-4. Chorale(   Читать дальше...   )Жанр: JazzПродолжительность: 01:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A77B328B4443AB5C1AD95C7FAF1B408E0860974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109598   (857458) от 28.02.2017
-
-VA - Universal Language (Lounge Anthems) Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anthony Spears - Lady  4:53
-02.  Jazz Lounge - Bass In System  4:59
-03.  Frank Tornell - Antologia  4:06
-04.  Steven Summers - Virgin Grooves  3:56(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE950619AF4B0583DF162F0D621295436F26B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109514   (857457) от 28.02.2017
-
-VA - Музыкальное зимнее настроение выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857457.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Monisha - Брюлли Диванны Автомобилли 3:32
-002. Герр Антон (Herr Anton) - Так Тому И Быть 3:33
-003. Катя Ростовцева - Целуй 3:55
-004. Блокбастер - Лето 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0D0595C01578B9AE96F3C386B5EE2ABEEAB461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109702   (857456) от 28.02.2017
-
-VA - Only Tech House Tracks Vol.6 (Weekend Weapons) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Max Sabatini - Keep The Beat (Tony Puccio Remix)  5:38
-02.  Jens Mueller - Freshness (Original Mix)  7:18
-03.  Joseph Matera - Boca (Giulio Lnt Remix)  6:39
-04.  Alex Raimondi - White Lake (Max Sabatini & Alex B Remix)  6:07(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794E668A980684AE45FAA72B522B957065E88B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109559   (857455) от 28.02.2017
-
-Permute 2.4.1 [Multi/Ru]
+iMazing 2.11.5 (Build 13649) [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857455.jpg" />
+  <img src="Z:/picture/008/save_picture_860138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 февраля 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.04.2020Разработчик: DigiDNA SARL.Поддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:566BE7B74B578411035A8BD6C8F885799BE3DEAC
+magnet:?xt=urn:btih:1CE892A0A3EB9C74D8A0617B749099A5EB4E3A0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,28 +262,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109620   (857454) от 28.02.2017
+###  Публикация: 645728   (860135) от 21.04.2013
 
-Blind The Huntsmen - White Eyes (2017) [MP3|320 Kbps] <Progressive Metal>
+Грязная дюжина / The Dirty Dozen (1967) DVD9
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857454.jpg" />
+  <img src="Z:/picture/008/save_picture_860135.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chapter 1 - Khomorrah's Box 06:52
-02. Chapter 2 - Emanations Of Light And Shadow 07:52
-03. Chapter 3 - Trial Of The Descendants 06:08
-04. Chapter 4 - The Hidden Puppeteer 07:54(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:06
+Они уголовники, психопаты, смертники и штрафники – чемпионы кинопроката. Более чем через тридцать лет после своей сногсшибательной премьеры, Грязная дюжина остается классикой среди военных боевиков.
+Ли Марвин играет Джона Рейсмана, несгибаемого майора, который взялся возглавить команду штрафников, созданную для самоубийственной миссии в немецком тылу. «Убивать всех (   Читать дальше...   )Производство: ВеликобританияЖанр: Боевик, драма, военныйПеревод: Профессиональный (многоголосный, закадровый)Язык субтитров: Русский, английский, испанскийФормат: DVD9Продолжительность: 02:23:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87A04287C245AA269907A90E84657783936D8270
+magnet:?xt=urn:btih:B8F34D5D0A672F95786CC9530474F47B3B3E611F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,28 +289,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109803   (857453) от 28.02.2017
+###  Публикация: 645936   (860133) от 21.04.2013
 
-VA - Nothing But... Trance Anthems Vol.7 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Dope D.O.D. - Da Roach (2013) [MP3|320 Kbps] <Grime, Hardcore Rap, Dubstep>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857453.jpg" />
+  <img src="Z:/picture/008/save_picture_860133.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Skylex - Wonder Sky (Original Mix)  6:52
-02.  Emanuele Braveri - Game Over (Original Mix)  6:50
-03.  Moonsouls - Broken (Extended Mix)  6:38
-04.  LTN - The Last Ride (Extended Mix)  5:54(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:43:09
+01. Millenium Falcon
+02. But For Now
+03. Bloodbath
+04. Brainworms (feat. Kool Keith)(   Читать дальше...   )Жанр: Grime, Hardcore Rap, DubstepПродолжительность: 01:27:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C855A31026A4CD3FD351E375D4CBE0E5A65CFDC
+magnet:?xt=urn:btih:5386CD1E587F512CFF67CBCAF43551ED62BE7121
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +318,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000616   (857452) от 26.03.2016
+###  Публикация: 646529   (860118) от 21.04.2013
 
-Журнал | Идеальный дом №3 (Март 2016) [PDF]
+Каена: пророчество / Kaena: La prophetie (2003) DVD9
 
->>Журналы
->>Домоводство (журналы)
+>>Архив торрентов
+>>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857452.jpg" />
+  <img src="Z:/picture/008/save_picture_860118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Идеальный дом - журнал для влюблённых в свой дом. Журнал посвящен вопросам недвижимости, архитектуры, дизайна интерьеров, а также затрагивающий темы, касающиеся защиты прав домовладельцев и землепользователей, модернизации жилого пространства в соответствии с новыми технологиями, стилями и канонами. Издание, предлагающее креативные идеи и пути их осуществления...Жанр: Интерьер, дизайнФормат: PDF
+На вершине Аксиса, огромного вертикального мира, где-то за облаками находится деревня Каены. Никто из жителей не покидал ее пределов. Но девушка считает, что рядом есть еще миры и что сама она другая! Бунтарский дух влечет Каену в неизведанное. Наперекор табу Великого Жреца она пускается в отчаянный поход. И попадает в странный мир с невиданными существами!.. Ей (   Читать дальше...   )Жанр: мультфильм, фантастика, фэнтези, боевик, приключения, семейныйРежиссер: Крис Делапорте, Паскаль ПинонПерсонажи: Сесиль Де Франс (Kaena, (voice: French version)), Микаэль Лонсдаль (Opaz, (voice: French version)), Виктория Абриль (La reine, (voice: French version)), Франсуа Сьенер (Voxem, (voice: French version)), Жан-Мишель Фарси (Assad, (voice: French version)), Рэймонд Аквавива (Gommy, (voice: French version)), Жан Пиа (Le grand prêtre, (voice: French version)), Кирстен (   Читать дальше...   )Перевод: Многоголосый закадровыйЯзык субтитров: РусскиеПродолжительность: 01:27:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D7BF7EED8F249E5FAE199E84EDE0DD43F85A5B1
+magnet:?xt=urn:btih:109D3110AAA4293222E5D0D6D803B50B4556F9D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,28 +344,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109587   (857451) от 28.02.2017
+###  Публикация: 1109205   (860117) от 26.02.2017
 
-VA - Moments Of Freedom Vol.2 (Selection Of Finest Chill Out & Ambient Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Easy2Boot 1.90 + RMPrepUSB 2.1.734 [Multi/Ru]
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857451.jpg" />
+  <img src="Z:/picture/008/save_picture_860117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Florito - Shirabyoshi Love  4:22
-02.  Dembora - Sunderland  3:01
-03.  Chin Chiller - Moussique Au Chocolat (feat. Conny)  4:27
-04.  Roberto Sol - My Soul  4:52(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:00
+Easy2Boot - инструмент для создания мультизагрузочных флешек, которые могут содержать в себе любой дистрибутив, LiveCD или образ дискеты. Easy2Boot работает в тесной связке с приложением для создания загрузочных накопителей RMPrepUSB, которое уже должно быть установлено на Вашем компьютере.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72356B48A8AA50F73F6B423431780DDE0C062584
+magnet:?xt=urn:btih:290E8DD505D383A164C5AEFE937DEB222E462C7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,28 +370,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109554   (857449) от 28.02.2017
+###  Публикация: 1109134   (860116) от 26.02.2017
 
-VA - Deep House Warm Up (2017) [MP3|320 Kbps] <Deep House>
+Линия IP 7.3.1 [Ru]
 
->>Electronic
->>House
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857449.jpg" />
+  <img src="Z:/picture/008/save_picture_860116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Mighty Real - Little by Little 5:59
-002. Performative Mode - Pixelated 6:46
-003. Circuito Zeta - Step Down 7:18
-004. Self Explanatory - Game Changer 6:54(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:14:31
+«Линия IP-видеонаблюдение» – продукт, предназначенный для работы системы видеонаблюдения «Линия» с IP-видеокамерами. Продукт может использоваться как самостоятельно, так и для увеличения количества камер аналоговой системы, построенной на платах видеозахвата. Софт обладает уникальным, интуитивно понятным интерфейсом, который не вызовет затруднений даже у неопытного (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8115033D5EC49D6EAAB8BB3C58C2636E06467F0B
+magnet:?xt=urn:btih:12A60675B3239DA854BE0F766C8539201567FC76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,28 +396,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000564   (857448) от 26.03.2016
+###  Публикация: 1109244   (860115) от 26.02.2017
 
-VA - Давай, наливай. Сборник радио Шансон 4 (2016) [MP3|256 кб/с] <Shanson>
+Цена измены (2017) WEB-DLRip [H.264/1080p-LQ]
 
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857448.jpg" />
+  <img src="Z:/picture/008/save_picture_860115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Виктор Барабанщиков - Сравнение
-02. Александр Дюмин - Братушка
-03. Виталий Волк - Русалочка
-04. Валерий Курас - Есть Еще Порох(   Читать дальше...   )Жанр: ShansonПродолжительность: 06:06:32
+Брак Ольги и Сергея можно было бы назвать образцовым. Они вместе уже десять лет и по-прежнему любят друг друга. Идеальные отношения лишь омрачает болезнь их дочери Лизы, а еще патологическая ревность Сергея.Производство: Россия / Кинокомпания "Русское"Жанр: Драма, мелодрамаРежиссер: Марат КимАктеры: Екатерина Рябова, Сергей Мухин, Виолетта Давыдовская, Тамара Акулова, Диана Енакова, Павел Крайнов, Сергей КарякинПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:30:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04B39C8A9321EEEF4BA396ED9791112C7A442DF6
+magnet:?xt=urn:btih:BE54580DEBBA59103F7623D72F6EB43F26C5D4C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +422,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109645   (857447) от 28.02.2017
+###  Публикация: 1101995   (860114) от 26.02.2017
 
-VA - Chillout Ladies Vol 5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+Phoning Home (2017) [Ru/Multi] (1.0/upd6) License CODEX
 
->>Electronic
->>Easy listening
+>>След.
+>>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857447.jpg" />
+  <img src="Z:/picture/008/save_picture_860114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Secret Elements - Young Rebel (Sunrise Mix) [00:03:33]
-02. Soul Frequency - On The Job (Vocal Mix) [00:03:33]
-03. Gt 55 - Red Color (Gray Clouds Mix) [00:03:12]
-04. Moon System - Make The Pitch [00:03:01](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:41:05
+«Phoning Home» — игра жанра «открытый мир» с элементами исследования и выживания на загадочной и удивительной планете. Это история двух роботов — АЙОНа и АНИ — и необычного путешествия, навсегда изменившего жизни обоих. Окунуться в таинственный мир неизвестной планеты тебе предстоит в роли АЙОНа, юного робота-разведчика, прибывшего с миссией ресурсообеспечения. После (   Читать дальше...   )Тип издания: LicenseРазработчик: ION LANDSЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56DB225075DF7DDA6CDCBD3E3320CFC13FE3EEF7
+magnet:?xt=urn:btih:6FCB75B28C589E92B401D0C4EA246553B58E850B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,25 +448,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000760   (857446) от 26.03.2016
+###  Публикация: 1108799   (860113) от 26.02.2017
 
-Spirits of Mystery 6: Family Lies (2016) [En] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+Константин  Заболотный | Лекции по диетологии (2011-2015) [MP3]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заболотный Константин Борисович – врач в четвертом поколении, прадед которого вошел в историю Российской медицины как новатор идеи вакцинации от чумы и черной оспы.Жанр: Диетология, ЗОЖПродолжительность: 84:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFBD443FA3543069DDB68B3E286BCCD0F5B64760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109076   (860112) от 26.02.2017
+
+forma.8 (2017) [Ru/Multi] (1.0) License SKIDROW
 
 >>Win Игры
->>Adventure/Quest (Casual)
+>>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857446.jpg" />
+  <img src="Z:/picture/008/save_picture_860112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Королевство захвачено неизвестным врагом и это зловредные растения. Принцесса попадает в заключение и ей предстоит освободиться самой, спасти свою семью, узнать правду и обезвредить придворного мага Ису с его помощницей пантерой. Хватит ли на все это сил у принцессы и выиграть бой с колючими лианами?Тип издания: UnofficialРазработчик: ERS Game StudiosЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+forma.8 — уникальная вариация на тему приключенческого боевика в жанре Metroidvania с впечатляющей графикой и огромным миром, который можно исследовать. Ваш игровой персонаж — небольшой исследовательский зонд forma.8, оказавшийся в полном одиночестве на поверхности далекой планеты. Потеряв связь с товарищами в результате несчастного случая, вам нужно выжить — найти (   Читать дальше...   )Тип издания: LicenseРазработчик: MixedBag SrlЖанр: Arcade, Action, AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB2108DCC074014406553C3B2A65C27645FA3CAA
+magnet:?xt=urn:btih:B03FAA06CE7841D8AFEA91EA4911915A4F8FB427
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,28 +500,181 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109502   (857445) от 28.02.2017
+###  Публикация: 1104288   (860111) от 26.02.2017
 
-VA - New York Deep Vibes: 2017 Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
+Among the Innocent: A Stricken Tale (2017) [En] (1.004) License CODEX
 
->>Electronic
->>House
+>>Win Игры
+>>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857445.jpg" />
+  <img src="Z:/picture/008/save_picture_860111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. J-Key - Octopus 4:09
-002. Tabula Rasa - Hashtag Stop - Code Remix 5:19
-003. Minimal Duo - Low Profile 5:00
-004. Tabula Rasa - Cocktail Party 4:55(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:48
+Among the Innocent: A Stricken Tale — адвенчура от первого лица с фокусом на множество point’n’click паззлов, действие которой происходит на заброшенной ферме, затерянной в дебрях ЮАРТип издания: LicenseРазработчик: Zero Degrees GamesЖанр: Adventure, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:504A12372CC1D0ED7AC1AA3BAF840CFC5C52ED57
+magnet:?xt=urn:btih:DCD4DBCDD8ABEAA5AC12C764DD49B98BD73E660F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108701   (860110) от 26.02.2017
+
+Дмитрий Федотов | Фундаментальный курс по Lightroom 6 (2016) PCRec
+
+>>Обучающие видеоматериалы
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы сможете освоить этот курс не выходя из дома и тратя всего 30 минут в день. Вы перестанете боятся обработки и научитесь делать безупречные снимки, как это делают профессионалы. Ваши фотографии обретут незабываемые цвета и сочность, и будут притягивать взгляды зрителей. Всего 123 урока и Вы - профессионал по обработке фотографий в Lightroom.Производство: PHOTODEMYЖанр: Обработка фотографийПродолжительность: 6:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F140CB5DE11D38EC9266D820BFA69286CF4645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109090   (860109) от 26.02.2017
+
+Уличный кот по кличке Боб / A Street Cat Named Bob (2016) BDRip [H.264]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о том, как Джеймс Боуэн, восстанавливающийся от наркотической зависимости уличный музыкант, встретил рыжего уличного кота и его жизнь изменилась в лучшую сторону.Производство: ВеликобританияЖанр: Драма, комедия, семейный, биографияРежиссер: Роджер СпоттисвудАктеры: Люк Тредэвэй, Рута Гедминтас, Джоанн Фроггатт, Энтони Хэд, Даррен Эванс, Тони Джайавардена, Адам Ричез, Льюэлла Гидеон, Лоррейн Эшборн ...Перевод: Профессиональный многоголосый (Лицензия BD CEE)Язык субтитров: Русский, английскийПродолжительность: 01:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEB395808A84A732139A97DEA949C56F8300613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108267   (860108) от 26.02.2017
+
+Даниил Волосатов | Веб-дизайнер - профессионал. Создание востребованных макетов (2017) [unpacked]
+
+>>След.
+>>Другие мультимедийные материалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-дизайн — это не просто востребованная профессия… В первую очередь, это стиль жизни. Профессия веб-дизайнера позволяет зарабатывать из любой точки планеты, путешествовать, расти и постоянно развиваться, ставить цели и добиваться новых высот. Если Вас привлекает возможность вести небольшой, но доходный интернет-бизнес из любой точки планеты и жить насыщенной, интересной (   Читать дальше...   )Жанр: Веб-дизайнФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCAC9BD83E4696D9A8D806DB0532A2720AEA107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109052   (860107) от 26.02.2017
+
+911 Operator (2017) [Multi] (1.0.0) License SKIDROW
+
+>>След.
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860107.jpg" />
+</div>
+
+
+###  Подробнее
+
+911 Operator – это игра о сложной работе людей, которые управляют аварийными линиями и занимаются обслуживанием. Геймплей заключается в том, чтобы отвечать на входящие вызовы и реагировать на них должным образом. Игроку предстоит давать инструкции по оказанию первой помощи, давать советы, отправлять правильное количество пожарных, полицейских или скорых на место (   Читать дальше...   )Тип издания: LicenseРазработчик: Jutsu GamesЖанр: Simulation, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D640B5463D0A11000D2F0D9DD0B8C9B46642DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108948   (860106) от 26.02.2017
+
+Фантастические твари и где они обитают / Fantastic Beasts and Where to Find Them (2016) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поиск и изучение необычайных волшебных существ приводят магозоолога Ньюта Саламандера в Нью-Йорк. Скорее всего, он отбыл бы на поезде дальше, если бы не не маг (так в Америке называют магглов) по имени Якоб, оставленный в неположенном месте магический чемодан и побег из него фантастических животных Ньюта.Производство: Великобритания, США / Heyday Films, Warner Bros. PicturesЖанр: фэнтези, приключения, семейныйРежиссер: Дэвид ЙейтсАктеры: Эдди Редмэйн, Кэтрин Уотерстон, Дэн Фоглер, Элисон Судол, Колин Фаррелл, Кармен Эджого, Эзра Миллер, Саманта Мортон, Рон Перлман, Джон ВойтПеревод: Дублированный (Лицензия BD CEE)Язык субтитров: Русский, АнглийскийПродолжительность: 02:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBECF343FD3DCCB8F91E064F33D9BBCCBE109295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108919   (860105) от 26.02.2017
+
+Фантастические твари и где они обитают / Fantastic Beasts and Where to Find Them (2016) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поиск и изучение необычайных волшебных существ приводят магозоолога Ньюта Саламандера в Нью-Йорк. Скорее всего, он отбыл бы на поезде дальше, если бы  не маг (так в Америке называют магглов) по имени Якоб, оставленный в неположенном месте магический чемодан и побег из него фантастических животных Ньюта.Производство: Великобритания, США, Cinesite, Double Negative, FramestoreЖанр: фэнтези, приключения, семейныйРежиссер: Дэвид ЙэтсАктеры: Эдди Редмэйн, Эзра Миллер, Колин Фаррелл, Кэтрин Уотерстон, Рон Перлман, Саманта Мортон, Джон Войт, Дэн Фоглер, Кармен Эджого, Элисон Судол, Кристин МардзаноПеревод: Дублированный (Лицензия)Субтитры: Русский (форс., полные), Английский (SDH)Продолжительность: 02:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A5A74F6E13FD7385D185AF8B3C38B24B50B57B
 ```
 
 https://mybot314.ru/tekegram_catalog/

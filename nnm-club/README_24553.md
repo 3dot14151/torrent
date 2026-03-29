@@ -1,25 +1,121 @@
-###  Публикация: 1771259   (71927) от 05.01.2025
+###  Публикация: 460194   (79150) от 29.02.2012
 
-VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+Топор 2 / Hatchet 2 (2010) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79150.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того как Мэрибет чудом вырывается из рук безумного маньяка Виктора Кроули, она узнает, что же связывало ее семью с этим страшным человеком. Узнав всю правду, она полна решимости вернуться на болота с целой армией, жестоко отомстить мяснику и вернуть тела своих близких.Жанр: Триллер, Боевик, КомедияРежиссер: Адам ГринАктеры: Даниэль Харрис, Тони Тодд, Кэйн Ходдер, Парри Шен, Том Холланд, R.A. Mihailoff, Ай Бауэн, Алексис Питерс, Эд Экерман, Дэвид Фой, Колтон Данн, Рик МакКаллум, Джон Карл Бюхлер, Кэтрин Фиоре, Эрика Хэмилтон, Мерседес МакНаб, Джолей Фиореванти, Райли Вандербилт, Чарлэйн Девилльер, Сара Агор, Шон Эшмор, Стивен Бартон, Эмма Белл, Маркус Данстэн, Адам Грин, Ллойд Кауфман, (   Читать дальше...   )Перевод: Двуголосый закадровыйПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460236   (79149) от 29.02.2012
+
+Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossless]<Hard Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 		Here I Go Again (Radio Version)	3:54
+02. 		Slide It In 	3:21
+03. 		Slow An' Easy	6:11
+04. 		Love Ain't No Stranger 	4:20
+05. 		All Or Nothing 	3:44
+06. 		Gambler 	3:58
+07. 		Guilty Of Love 	3:26
+08. 		Hungry For Love 	3:30
+09. 		Give Me More Time 	3:45
+10. 		Spit It Out 	4:27(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 01:17:55 /  01:17:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459977   (79148) от 29.02.2012
+
+Журнал | Jamie Magazine №1 [декабрь 2011 - январь 2012] [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79148.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЗАО «МДП «Маарт» и Издательство «ЭКСМО («Хлеб Соль») представляет новое кулинарное издание премиум класса: «Jamie magazine»
+Журнал сделан на основе английского журнала, издаваемого BBC.
+Лицом журнала «Jamie magazine» является самый знаменитый и любимый во всём мире шеф-повар ДЖЕЙМИ ОЛИВЕР
+Кулинарный журнал Джейми Оливера. Это журнал о еде и жизни! Каждый выпуск предлагает (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05256C7BAF718516E2E5E38CB084F376FB9AC1F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459541   (79141) от 29.02.2012
+
+VA - Anjunadeep 04 (Mixed by Jaytech & James Grant) (2012) [MP3|320 кб/с]<House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A-Mase - Om Shivam (Original Goa Mix) [6:34]
-02. A-Mase & Vika Grand - Fever (Melodic Techno Mix) [5:18]
-03. A-Mase & Sharliz - Beautiful Things 2.0 (Original Mix) [7:04]
-04. A-Mase - Imagine 2.0 (Original Mix) [8:47](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:06:37
+CD1 Mixed by James Grant [01:16:31]
+01. Dusky - Stick By This [3:39]
+02. Martin Roth - Beautiful Life [5:30]
+03. Vincenzo - Get To Know You [6:13]
+04. Laura Jones - Love In Me (Maceo Plex Remix) [4:39]
+05. Andrew Bayer - You [6:57]
+06. Paronator - No Gravity (Tom Middleton Liquatech Mix) [5:24]
+07. Dusky - Lost Highway [4:37]
+08. Above & Beyond - Prelude (Andrew Bayer & James Grant Remix) [6:24]
+09. Full Tilt - Take Me Away (Andrew Bayer & James Grant Remix) [5:23](   Читать дальше...   )Жанр: HouseПродолжительность: 02:33:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
+magnet:?xt=urn:btih:B87646B79AA462D70BBDD7CDE0D43AB824B1FD87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,286 +123,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771010   (71926) от 05.01.2025
+###  Публикация: 460015   (79140) от 29.02.2012
 
-Pink Floyd - Live at Empire Pool (Wembley, London, UK, 16 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shine On You Crazy Diamond (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [21:58]
-02 - Raving And Drooling (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [12:30]
-03 - You've Got To Be Crazy (Live at Empire Pool, Wembley, London, UK, 16 November 1974) [18:05]
-04 - Speak to Me (Live at Empire Pool, Wembley, London, UK, 16 November 1974) (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:198FD7233595B57A073BACF71B3816C9E87A618B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771176   (71925) от 05.01.2025
-
-Николай Гоголь | Мертвые души (2021) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Васильевич Гоголь – знаменитый русский писатель, произведения которого входят в золотой фонд отечественной словесности и являются неизменными составляющими школьной программы по литературе. Его романы, повести и пьесы имеют огромное количество постановок и экранизаций.
-
-Одним из самых сильных его произведений является книга «Мёртвые души». Вышел только первый (   Читать дальше...   )Жанр: Русская классика, поэмаИздательство: 1С-ПаблишингПродолжительность: 11:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64D686A51751E92BF4182623994E1DCC5953667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771221   (71924) от 05.01.2025
-
-НХЛ 2024-2025. Нью-Йорк Рейнджерс - Вашингтон Кэпиталз (04.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71924.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 января 2025, суббота. 20:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Брэд Ковачик (Вудсток, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B3C4D43290AECE33320DD353CBAD3C95E17087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771249   (71923) от 05.01.2025
-
-Gustav Lundgren Trio - Sofo Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Giant Steps (2:37)
-02.  The Times They Are A-Changin' (2:38)
-03.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - O Amor Em Paz (3:21)
-04.  Gustav Lundgren Trio feat. Gustav Lundgren, Martin Höper & Ola Bothzén - Sunny (4:51)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C73B9F14303A3BE0ABB133C41D2CB2EF7B22878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771224   (71922) от 05.01.2025
-
-Catlvish - Jazzthematics (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Algebra Anthem (2:50)
-02.  Automatic arithmetic (1:57)
-03.  Coordinate geometry (2:36)
-04.  The geometry (1:49)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:27:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79AEFEE339C1F26921DF86BBA4BEA552CD0F3269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771206   (71921) от 05.01.2025
-
-Toledo - Fishnets & Cigarettes (1996) [FLAC|Lossless|image + .cue] <Acid Jazz, Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Death Took a Holiday - 6:36
-02 - Danny - 4:48
-03 - Sonny & Lorraine - 5:40
-04 - Downtown - 3:48(   Читать дальше...   )Жанр: Acid Jazz, Future JazzПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EFB0425225DCD523FC49FDA788DE8E8F4BD6AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771267   (71920) от 05.01.2025
-
-Unusual Suspects - At The Australian Jazz Museum Vol. 9 (Live) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ain't Misbehavin' (5:14)
-02.  East of the Sun (and West of the Moon) (5:42)
-03.  Out of Nowhere (5:14)
-04.  'S Wonderful (5:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBBFCFE143D39FB00C5AA26E61B64646694A4AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771253   (71919) от 05.01.2025
-
-Pacho Brea - 4CD (2013-2019) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Corazón helado
-02 Recuerdo amargo
-03 Mi tierra
-04 Más que vivos(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 03:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6D3AC84609074368091D8C074F31475A0C0FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771223   (71918) от 05.01.2025
-
-Ari Karason - Melodies for us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lovely Day (3:32)
-02.  It Runs Through Me (3:04)
-03.  Until The End of Time (4:30)
-04.  Stars (3:15)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E642651C4DF980AF9352640FC5EAC9F5F96D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771270   (71917) от 05.01.2025
-
-Grace In Sand - Homeless Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Joe Louis Walker - Hellfire (2012) [APE|Lossless]<Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Get free (2:27)
-02.  Homeless Moon (3:38)
-03.  Sweet Sibilla (3:35)
-04.  Redemption in hell (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:14
+01. Hellfire (4:48)
+02. I Won't Do That (5:01)
+03. Ride All Night (4:24)
+04. I'm On To You (3:30)
+05. What's It Worth (6:17)
+06. Soldier For Jesus (5:50)
+07. I Know Why (5:13)
+08. Too Drunk To Drive Drunk (3:57)
+09. Black Girls (5:23)
+10. Don't Cry (5:00)(   Читать дальше...   )2012Жанр: BluesПродолжительность: 00:53:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:843A427EEA8008662A37AA9C4A5762347C082217
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,391 +158,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770904   (71916) от 05.01.2025
+###  Публикация: 460076   (79138) от 29.02.2012
 
-Reminor - 2 альбома (2011-2013) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Априори
-02. Затмение
-03. Страна контрастов
-04. Отражения(   Читать дальше...   )Жанр: RockПродолжительность: 01:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E02AE4211D5C5FF0993FA52E0DC9BEBB3EBB3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770989   (71915) от 05.01.2025
-
-WhoreMother - Slayed in Poland (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bunker 44 [00:03:38]
-02. 13 Plastic Bags [00:04:57]
-03. Devil's Death [00:03:27]
-04. In the Candle Light [00:04:23](   Читать дальше...   )Жанр: Black Metal, Melodic Death MetalПродолжительность: 00:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263FEEAD060356FC2747DE2ABC2D117BA28B5A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770543   (71914) от 05.01.2025
-
-Эсента - Вечность (2018) [MP3|320 Kbps] <Symphonic, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71914.jpg" />
-</div>
-
-
-###  Подробнее
-
-◈ 01 - Не Сейчас (00:04:54)
-◈ 02 - Высь (00:03:38)
-◈ 03 - Путь (00:04:35)
-◈ 04 - На Краю Земли (00:04:42)(   Читать дальше...   )Жанр: Symphonic, Heavy MetalПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B7CD5810A2263AE63FB2291FF0C36F0A34027B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771264   (71913) от 05.01.2025
-
-The Blue Moods - Force & Grace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Crisis (4:42)
-02.  First Light (4:19)
-03.  Latina (4:04)
-04.  Brigitte (4:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A918C443F12BF82E1F6A74FE8D0A8F1AEC320D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771236   (71912) от 05.01.2025
-
-Святитель Афанасий Великий | Жизнь и наставления преподобной Синклитикии Александрийской (2000) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71912.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Блаженная Синклитикия родилась в Александрии. Семейство, к которому она принадлежала, вело свой род из Македонии, было уважаемо и богато. Услышав об особом благочестии александрийцев, предки преподобной оставили Македонию и переехали в Александрию, где нашли искреннюю веру и истинную любовь к Богу…».Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A765044F405B8E74696C5BDAAAE9DDF0FD5234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771263   (71911) от 05.01.2025
-
-Saedin - Entre Rios (2020) [FLAC|Lossless|image + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Castillo rojo
-02 Ni una menos
-03 Corazón nazarí
-04 Entre ríos(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73C40CE5B9CB38EC12803347E2C81BED3D4A285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771175   (71910) от 05.01.2025
-
-Николай Гоголь | Мертвые души (2011) [MP3, Алексей Багдасаров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тонкая ирония, яркие персонажи, великолепный гоголевский текст, неподражаемая игра замечательного актера и режиссера Алексея Багдасарова и абсолютно уникальная музыка Владимира Бруса. Аудиокнига "Мертвые души" не оставит равнодушной ни одну живую душу.
-
- Николай Гоголь на NoNaMe ClubЖанр: Русская классика, поэмаИздательство: ВимбоПродолжительность: 12:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D587A766E9BB737F1F421F0FDF6D34A6C6F8F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771013   (71909) от 05.01.2025
-
-Pink Floyd - Live At Odeon (Newcastle-upon-Tyne, UK, 9 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shine On You Crazy Diamond (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [22:00]
-02 - Raving And Drooling (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [13:10]
-03 - You've Got To Be Crazy (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [16:25]
-04 - Speak to Me (Live At Odeon, Newcastle-upon-Tyne, UK, 9 November 1974) [1:13](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BB19E6BEDE15E44FE3F705E0BA411BE55576B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771012   (71908) от 05.01.2025
-
-Pink Floyd - Live at Empire Pool (Wembley, London, UK, 17 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Raving And Drooling (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [14:20]
-02 - You've Got To Be Crazy (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [16:27]
-03 - Shine On You Crazy Diamond (Live at Empire Pool, Wembley, London, UK, 17 November 1974) [21:37]
-04 - Speak to Me (Live at Empire Pool, Wembley, London, UK, 17 November 1974) (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE53E09F913C5B40521CA0A98BEBB686FE613BE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771222   (71907) от 05.01.2025
-
-Архимандрит Ефрем Святогорец | Жемчужины подвижнической мудрости. Главы о молитве и послушании (2001) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71907.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прежде чем начать чтение этого замечательного сборника слов и писем, читателю, вероятно, будет совсем небезынтересно узнать что-нибудь и об их авторе. Но, говоря об отце Ефреме, нельзя не сказать и о его Старце, которого он так часто упоминает в своих словах, – Иосифе Исихасте, или Пещернике, как его еще называют. Это – одно из великих имен в современной истории (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C101A7D193E7BAB5E33F9B11A8FF5AA0745434DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771248   (71906) от 05.01.2025
-
-Deblon jackson - FLUTOPIA (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deblon Jackson feat. Jerald Daemyon & Stanley Cooper - Flutopia (4:42)
-02.  Deblon Jackson feat. Jerald Daemyon - Hypnotic (4:37)
-03.  Deblon Jackson feat. Jerald Daemyon & Kevin Levi - Mozambique (3:59)
-04.  Deblon Jackson feat. Greg Dokes & Stanley Cooper - Cruisin' (4:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D76D2F9EF0DAB81C563BF87933180AC116ED391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771365   (71905) от 06.01.2025
-
-Михаил Шолохов | Тихий Дон (2021) [MP3, Сергей Горбунов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман-эпопея Михаила Шолохова «Тихий Дон» – одно из наиболее значительных, масштабных и талантливых произведений русскоязычной литературы, принесших автору Нобелевскую премию. Действие романа происходит на фоне важнейших событий в истории России первой половины ХХ века – революции и Гражданской войны, поменявших не только древний уклад донского казачества, к которому (   Читать дальше...   )Жанр: Классика, РоманИздательство: МедиаКнигаПродолжительность: 71:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313D2EC146BA0D1B8E9DE2EDD771E66C2BA1233E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771364   (71904) от 06.01.2025
-
-Алексей Толстой | Хождение по мукам (Книги 1-3) (2022)  [MP3, Сергей Дидок]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71904.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хождение по мукам» – трилогия романов Алексея Николаевича Толстого, прослеживающая судьбы русской интеллигенции накануне, во время и после революционных событий 1917 года. Состоит из романов «Сёстры» (1918—1922), «Восемнадцатый год» (1927—1928) и «Хмурое утро» (1940—1941).
-
-"Книга «Хождение по мукам» – это хождение совести автора по страданиям, надеждам, восторгам, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ИДДКПродолжительность: 44:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C4959FFEC65ACA3093AC76E019114DE86917BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771505   (71903) от 06.01.2025
-
-QOwnNotes 25.1.3 Portable [Multi/Ru]
+Святослав Сахарнов | Камикадзе. Идущие на смерть (2010) [FB2]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79138.jpg" />
 </div>
 
 
 ###  Подробнее
 
-QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+«Умрем за Императора, не оглядываясь назад» — с этой песней камикадзе не задумываясь шли на смерть. Их эмблемой была хризантема, а отличительным знаком — «хатимаки», белая головная повязка, символизирующая непреклонность намерений. В результате их самоубийственных атак были потоплены более восьмидесяти американских кораблей и повреждены около двухсот. В августе 1945 (   Читать дальше...   )Жанр: Военная прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBB22F37E07A45E7443D5F4BFF625E17560C1B36
+magnet:?xt=urn:btih:139AE5A6F4C2F25B6A213AF9A7242DDE2247F6F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,28 +184,569 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771370   (71902) от 06.01.2025
+###  Публикация: 460201   (79132) от 29.02.2012
 
-VA - The Orient Collective: Sacred Nomads (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+Восстание душ: Бунт мертвецов / Shadow: Dead Riot (2006) DVDRip
 
->>Other Styles
->>Other (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Yuluka - Bounce Bazar (5:24)
-02. Paolo Lofrè - Doa (7:32)
-03. DaDa Sound Project - Trakia (5:00)
-04. 4Moon Music - Terra (6:12)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:06
+Один из заключенных тюрьмы строгого режима практикует ритуалы черной магии. Это вызывает бунт заключенных и закрытие тюрьмы. Но через двадцать лет тюрьма открывается снова - вместе с населяющими ее призраками. Тень: Восстание мётрвых - это уникальная стилистическая смесь боевика в азиатском стиле, ужастиков о зомби и драмы о женской тюрьме!!!Жанр: Триллер, УжасыРежиссер: Дерек Вэн/ Derek WanАктеры: Тони Тодд, Джеф Аутин,Карла Грин , Нина Ходорук, Майкл Куинлэн и др.Перевод: Профессиональный (многоголосый закадровый)Продолжительность: 01:29:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABEB259BFC3DC7E4870D521DD28DF1EC35066342
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460274   (79130) от 29.02.2012
+
+Журнал | Esquire [Россия] №75 (март 2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Esquire предназначен для умных и разборчивых мужчин – для тех, кого не прельщают дешевые сенсации, для тех, кто в состоянии оценить настоящий стиль в литературе и моде.
+Esquire – это высочайшее качество текстов, блестящая журналистика, эксклюзивные интервью со звездами и прекрасные фотографии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6A9B37BD61E6445C92E2FE66F8696EC054A0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459857   (79124) от 29.02.2012
+
+Ангел неБЕС - наКРЫЛО (2012) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бесы (5:03)
+ 2. Накрыло (0:21)
+ 3. На крыле (3:51)
+ 4. ТТ (Пожар на твоем теле) (4:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459432   (79123) от 29.02.2012
+
+VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (2005) [FLAC|Lossless]<Funk, Soul, Deep Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Work It - Intro (0:45)
+02.Stevie Wonder - We can work it out (3:11)
+03.Al Green - I want to hold your hand (1:59)
+04.Deidre Wildon Tabac - Get back (2:38)
+05.Harvey Averne - I feel fine (2:58)
+06.Sergio Mendes & Brasil '66 - Daytripper (3:39)
+07.The London Jazz Four - Things we said today (2:44)
+08.Ike & Tina Turner - Come Together (3:41)
+09.Byron Lee & The Dragonaires - Live & let die (2:57)
+10.Marshall Williams - Norwegian wood (2:12)(   Читать дальше...   )2005Жанр: Funk, Soul, Deep FunkПродолжительность: 01:47:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459899   (79120) от 29.02.2012
+
+VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Asher - Red desert (05:39)
+02. Prem Joshua - New kafi (06:17)
+03. Prem Joshua - Mango rain (07:10)
+04. James Asher - Further east (05:25)
+05. Chinmaya Dunster & Vidroha Jamie - Wandering way (04:24)
+06. Music from the World of Osho - Namaste (03:45)
+07. Al Gromer Khan - Agori dance (07:07)
+08. Ustad Usman Khan - Raga hansadhwani (08:57)
+09. Hariprasad Chaurasia - Indian folklore (10:03)
+10. Namaste - Gayatri mantra (09:01)(   Читать дальше...   )2001Жанр: New Age, Meditative, RelaxПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957E9BDA6E72E8F9167CBCA522E1FC083802AB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459778   (79116) от 29.02.2012
+
+Илья Те | Анабиоз. Корейский коридор [2012] [TXT,RTF]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мисс Мэри, студентка из России, очнулась недалеко от Сеула, на побережье Коридора - приграничной зоны между Южной Кореей и КНДР.
+По непонятным причинам она проснулась на два месяца позже других.
+Благополучной, процветающей страны больше нет. Есть жуткий мир, который существует по законам джунглей. Мир, где на каждом шагу встречаются охотники за людьми, дикие ганги и озверевшие юнговцы. Мир, где в ходу торговля рабами и каннибализм.
+Новый Сеул - Мегаполис страха, обитель отчаяния. По счастью, мисс Мэри встречаются не только подонки, но и сильные духом люди. Школьница Кити, крепыш Рик, умник Дэмио... Они учат девушку сражаться и побеждать.
+Но впереди не только победы. Девушку ждет сильный враг и жестокая правда о прошлом и настоящем, а на пути к этой правде - все круги ада.
+Добро пожаловать в проснувшуюся Корею. По-азиатски жестокую и самобытную.Формат: TXT,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5360682BB5831C1327A7DB40F4F6598E011276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459515   (79115) от 29.02.2012
+
+Indra - Global Music (2008) [FLAC|Lossless]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seek Irony -- Tech N Roll (Indra Remix) (7:01)
+ 02. Indra -- Musica Electronika (6:40)
+ 03. Yahel -- Soul (Indra Remix) (8:27)
+ 04. Indra -- High Quality (7:34)
+ 05. Team 18 -- Batucada (Indra Remix) (8:26)
+ 06. Indra -- Loose Control (8:58)
+ 07. Indra vs Beat Hackers -- All Filters Up (Indra Remix) (8:43)
+ 08. Indra -- Take The Time (6:39)
+ 09. Indra -- Break The Ground (8:17)
+ 10. Indra -- Logistic (4:30)2008Жанр: Psychedelic / Full OnПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459102   (79112) от 29.02.2012
+
+Излучина реки / Bend of the River (1951) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятидесятые года XIX века. При сопровождении каравана фургонов через горы, через прерии в Портленд, в поисках новой жизни Глен МакЛинток спасает от линчевания Эмерсона Коула, подозреваемого в краже скота. Благодарный Коул помогает Глену и его друзьям отбить неожиданную атаку индейцев, так они становятся друзьями.
+
+Дочь Глена Лаура Бэйл увлеклась Коулом и намерена остаться в Портленде вместе с новым знакомым, а не связывать свою жизнь с работой в поле. Но Коул не простой парень: у него темное прошлое, как, впрочем, и у самого Глена есть свои секреты. Тем временем, оплаченные поставки провизии для переселенцев, обещанные мэром Портленда не производятся. МакЛинток возвращается в город, где ему приходится взяться за оружие, чтобы отстоять продовольствие для своей общины…Жанр: Приключения, ВестернРежиссер: Энтони МаннАктеры: Джеймс Стюарт, Артур Кеннеди, Джули Адамс, Рок Хадсон, Лори Нельсон, Джей С. Флиппен, Чабби Джонсон, Гарри Морган, Ройал Дано, Фрэнсис БавьерПеревод: Двуголосый закадровыйПродолжительность: 01:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563ECA33698E8A57642483A05A03C07AFC834689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459384   (79105) от 29.02.2012
+
+Музыка продолжала играть / The Music Never Stopped (2011) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Габриель, сын Генри Сойера, страдает от опухоли в мозгу, не позволяющей ему использовать свою память по прямому назначению. Учитывая, что сын теперь не может вспомнить былые обиды и печали, его отец Генри пытается при помощи музыкотерапии восстановить хрупкое здоровье сына и заново наладить с ним отношения...Жанр: ДрамаРежиссер: Джим КолбергАктеры: Дж.К. Симмонс, Кэра Сеймур, Лу Тэйлор Пуччи, Скотт Эдсит, Джеймс Урбаняк, Max Antisell, Ryan Karels, Пегги Гормли, Тэмми Бланчард, Джош СегарраПеревод: Одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:44:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459271   (79097) от 28.02.2012
+
+Война Богов: Бессмертные / Immortals (2011) [1080p]  BDRip 3D [Горизонтальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одержимый жаждой власти царь Гиперион хочет уничтожить род людской и низвергнуть богов. С помощью Эпирского Лука, сделанного руками бога войны Ареса, он освобождает Титанов от тысячелетнего заточения в горах Тартара. Боги бессильны противостоять безумному царю. Единственная надежда на спасение — герой Тесей, который вступает в неравную войну с Титанами. Боги Олимпа (   Читать дальше...   )Жанр: фэнтези, боевик, драмаАктеры: Генри Кавилл, Стивен Дорфф, Люк Эванс, Изабель Лукас, Келлан Латс, Фрида Пинто, Микки Рурк, Джон Хёрт, Джозеф Морган, Энн Дэй-ДжонсПеревод: Русский дубляжСубтитры: вшитые в видео (надписи, названия)Продолжительность: 01:50:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459648   (79094) от 28.02.2012
+
+Война Богов: Бессмертные / Immortals (2011) [1080p] BDRip 3D [Вертикальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одержимый жаждой власти царь Гиперион хочет уничтожить род людской и низвергнуть богов. С помощью Эпирского Лука, сделанного руками бога войны Ареса, он освобождает Титанов от тысячелетнего заточения в горах Тартара. Боги бессильны противостоять безумному царю. Единственная надежда на спасение — герой Тесей, который вступает в неравную войну с Титанами. Боги Олимпа во главе с самим Зевсом, пророчица Федра и хитрый раб Ставрос помогают герою в смертельной битве с демонами. Тесей должен победить, или боги Олимпа будут низвержены, а Эллада обречена на погибель…Жанр: Фэнтези, Боевик, ДрамаРежиссер: Тарсем СинхАктеры: Генри Кавилл, Стивен Дорфф, Люк Эванс, Изабель Лукас, Келлан Латс, Фрида Пинто, Микки Рурк, Джон Хёрт, Джозеф Морган, Энн Дэй-ДжонсПеревод: ДублированныйЯзык субтитров: Арабский, Болгарский, Датский, Английский, Финский, Французский, Греческий, Польский, Португальский, Португальский (Бразилия), Румынский, Русский, Сербский, Словенский, Испанский, Шведский, Турецкий, ВьетнамскийПродолжительность: 01:50:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459636   (79093) от 28.02.2012
+
+Вторые (Отряд Кочубея) (2009) DVDRip (сезон 1, серии 1-8 из 8)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Август 1941 года. Немецкие войска в трехстах километрах от Москвы. На одном из маршрутов следования первых лиц государства сотрудники Четвертого управления НКВД обезвреживают группу немецких диверсантов, целью которой являлось физическое устранение Сталина. В момент задержания группы, диверсанты применяют неизвестное оружие «панцеркнакке», по силе действия схожее (   Читать дальше...   )Производство: Россия, Кинокомпания "Телеостров"Жанр: Военный, ДрамаРежиссер: Александр ДаругаАктеры: Владимир Стеклов, Игорь Лагутин, Анатолий Пашинин, Алексей Воробьев, Александр Сирин, Сергей Удовик, Дмитрий Муляр, Кирилл Гребенщиков, Нина Гусева, Сергей Греков, Александр Пашутин, Владимир Зайцев, Максим Литовченко, Максим Лагашкин, Александр Робак, Сергей Чирков, Алексей Даруга, Михаил Левченко, Ольга Стрелецкая, Алексей Маслов, Евгений Мундум, Максим Дрозд, (   Читать дальше...   )Продолжительность: 8 x 00:45:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459689   (79090) от 28.02.2012
+
+TestDisk 6.11 (Востанови то что казалось-бы потерял на всегда) [Английский]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощная утилита для восстановления данных. Программа TestDisk создана для восстановления утерянных разделов диска или восстановления загрузочных записей на дисках, вызванных неправильными действиями программ, человека или вирусов (к примеру, удаление таблицы разделов).
+Программа может:
+- исправлять и восстанавливать разделы;
+- восстанавливать загрузочный сектор FAT32 из бэкапа;
+- заново создавать загрузочный сектор в FAT12/FAT16/FAT32;
+- исправлять таблицу FAT;
+- заново создавать загрузочный сектор NTFS или восстанавливать из бэкапа;
+- исправлять таблицу MFT, используя зеркальную копию.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459396   (79089) от 28.02.2012
+
+Autodesk AutoCAD 2012 [Eng]
+
+>>След.
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79089.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD® является мировым лидером среди решений для 2D- и 3D-проектирования. Будучи более наглядным, 3D моделирование позволяет ускорить проектные работы и выпуск документации, совместно использовать модели и развивать новые идеи. Для AutoCAD доступны тысячи надстроек, что позволяет удовлетворить потребности самого широкого круга клиентов. Пришло время проектировать по-новому — время AutoCAD.Mac OS XНазвание программы: Autodesk AutoCAD 2012Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459540   (79086) от 28.02.2012
+
+Хранитель времени / Hugo (2011) [1080p] BDRip [Вертикальная анаморфная стереопара 3D]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через всю свою необычайную карьеру лауреат премии "Оскар" за лучшую режиссуру Мартин Скорсезе доносил до зрителя свой уникальный взгляд на жизнь посредством кино. На этот раз в канун Рождественских праздников легендарный кинорассказчик приглашает вас в увлекательное путешествие в волшебный мир Брайана Селзника - экранизацию его удивительной книги "Изобретение Хьюго Кабре".
+Фильм "Хьюго" (в российском прокате "Хранитель времени") повествует о поразительных приключениях смышленого и изобретательного мальчугана по имени Хьюго, чьё стремление раскрыть тайну, оставленную его отцом, преобразит его и всех, кто его окружает. Вместе мы увидим, как сирота обретёт надёжное и любимое место, которое он с радостью будет называть "мой дом".Жанр: Драма, Детектив, Приключения, СемейныйРежиссер: Мартин СкорсезеАктеры: Аса Баттерфилд, Бен Кингсли, Саша Барон Коэн, Хлоя Грейс Морец, Рэй Уинстон, Эмили Мортимер, Кристофер Ли, Хелен МакКрори, Майкл Стулбарг, Фрэнсис де ла ТурПеревод: ДублированныйЯзык субтитров: Арабские, Болгарские, Китайские (Кантонезе), Датские, Английские, Франзузкие, Немецкие, Греческие, Иврит, Индонезийские, Китайские (Мандарин), Португальские, Португальские (Бразилия), Румынские, Русские (voronine), Сербские, Словенские, Испанские, Шведские, Турецкие, ВьетнамскиеПродолжительность: 02:06:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459376   (79084) от 28.02.2012
+
+Command & Conquer: Red Alert 2 (+ Yuri's Revenge) [Wineskin] [Rus]
+
+>>След.
+>>Strategy, RPG для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Command & Conquer: Red Alert 2 — компьютерная игра, продолжение стратегии в реальном времени Red Alert, выпущенное в 2000 году компанией Westwood Studios. Действие игры происходит в созданном Альбертом Эйнштейном параллельном мире в 1971—1972, продолжая сюжетную линию Союзников из оригинального Red Alert. Как и в её предшественнике, противоборствующими сторонами в игре являются Советский Союз и Союзники, помимо того, некоторые отряды и строения идентичны оригинальным из первого Red Alert, а некоторые — несколько изменились (так, мамонт-танк был превращён в танк «Апокалипсис»). По сравнению с предыдущей серией, в игре улучшены графика и мультиплеер. В то время как первая игра в серии Red Alert логически связана с историей Command & Conquer: Tiberian Series (например, глава NOD Кейн в ней выступает советником Сталина), Red Alert 2 не содержит никаких ссылок на Тибериумный канон и более походит на собственно «холодную войну» между восточным и западным военно-политическими блоками, переросшую в Третью мировую.2000-2001Mac OS XТип издания: WineskinЖанр: RTSЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A44ECB8179F5032245C1079E9FD1C447523D6E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459406   (79083) от 28.02.2012
+
+Command & Conquer: Generals (Deluxe Edition) [Native] [Eng]
+
+>>Игры для macOS
+>>Strategy, RPG для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79083.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это издание включает в себя игру Command & Conquer Generals и дополнение Command & Conquer Generals Zero Hour. Мир на пороге Третьей мировой войны. На чью сторону вы встанете? Может быть, вас привлекают Вооруженные силы США или многомиллионная китайская армия? А может, вы хотите возглавить террористическую организацию BOA? Выбор за вами, господин генерал! (   Читать дальше...   )Тип издания: NativeРазработчик: Electronic ArtsЖанр: RTSЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E033C9590897200AA228ED284E4E0CAFFCBBF31F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459546   (79081) от 28.02.2012
+
+МЫ. Верим в любовь / W.E. (2011) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман короля Великобритании Эдуарда VIII и американки Уоллис Симпсон взбудоражил общественность. На момент знакомства с принцем Эдуардом Симпсон была замужем, а король, если хотел жениться на ней, должен был отречься от престола. Но даже это не помешало их любви.Производство: Великобритания / Semtex FilmsЖанр: Драма, МелодрамаРежиссер: МадоннаАктеры: Эбби Корниш, Натали Дормер, Кэти МакГрат, Аннабелль Уоллис, Оскар Айзек, Андреа Райзборо, Джеймс Д’Арси, Ричард Койл, Лоуренс Фокс, Джеймс ФоксПеревод: Многоголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7666643121752966E81F563E98F4DC8C1062E258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459535   (79079) от 28.02.2012
+
+Джек Лондон | Мартин Иден (2011) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика (аудио)
+Джек Лондон (1876–1916) – писатель и журналист, военный корреспондент, общественный деятель, классик американской литературы.
+«Мартин Иден» – роман Джека Лондона о мечте и успехе. Простой моряк, в котором легко узнать самого автора, проходит длинный, полный лишений путь к литературному бессмертию...
+Волею случая оказавшийся (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Сергей ЗаяицкийИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 13:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15CFDD699B441746F6757E09E10B267D94710B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459439   (79078) от 28.02.2012
+
+Делай ноги 2 / Happy Feet Two (2011) DVD5
+
+>>Архив торрентов
+>>Архив Мультфильмов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неутомимый пингвин Мамбл, некогда покоривший своим блестящим танцорским талантом целое племя императорских пингвинов, стал отцом. Его малыш — Эрик, в точности такой же свободолюбивый и независимый, как и папа, но в своих амбициях и авантюрах, несмотря на свой юный возраст, уже способен дать хорошую фору отцу и всем окружающим.
+Кумиром малыша становится Могучий Свен, (   Читать дальше...   )Производство: АвстралияЖанр: Мультфильм, Комедия, Семейный, МузыкаРежиссер: Джордж МиллерАктеры: Элайджа Вуд, Робин Уильямс, Хэнк Азария, Пинк, Брэд Питт, Мэтт Дэймон, София Вергара, Карлос Алазраки, Ломбардо Бойяр, Джефф ГарсиаПеревод: ДублированныйЯзык субтитров: АнглийскийПродолжительность: 01:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D23B934C20AC2E397F0820D32366D5D4B48AD49
 ```
 
 https://mybot314.ru/tekegram_catalog/

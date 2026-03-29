@@ -1,3 +1,159 @@
+###  Публикация: 1060690   (452262) от 08.10.2016
+
+Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Ru/En] (1.0) Repack xatab
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Teenage Mutant Ninja Turtles: Mutants in Manhattan – новая часть популярной серии видеоигр про Черепашек Ниндзя, первая из которых вышла аж в 1989 году. В этот раз разработчиком выступили Platinum Games. Встаньте плечом к плечу с братьями, сразитесь вместе в канализации, в подземке и на улицах Нью-Йорка и одолейте злодейскую организацию клана Фут, возглавляемую Шреддером (   Читать дальше...   )Тип издания: RepackРазработчик: PlatinumGamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:299675690B92E9283D50B2B3D3C9E9F90C9D60E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054339   (452253) от 08.10.2016
+
+Prototype Dilogy (2009-2012) [Ru/En] (1.0.0.1/1.0/dlc) Repack R.G. Revenants
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prototype 2 продолжение бестселлера с открытым миром, разработанного студией Radical Entertainment в 2009 году. Сиквел не менее жесток, чем первая часть, и в нем будет продолжен рассказ о превращении человека в абсолютное оружие. Вы — сержант Джеймс Хеллер, ваши жена и дочь погибли во время первой вспышки эпидемии… и вы солдат, брошенный на верную смерть.Тип издания: RepackРазработчик: Radical EntertainmentЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0ECA7A3A65B16B541ABB8BC4BC8B058CE0F4B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942884   (451025) от 02.10.2015
+
+Way of the Samurai 4 (2015) [En] (1.06.2/dlc) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло два года с тех пор, как США насильно заставили японских властителей открыть свои границы для торговли и «чужеземцев». Однако не все в стране рады наплаву иностранных купцов – зреет крупный передел сфер влияния между сильными мира сего. Главный герой сможет примкнуть к трем враждующим «кланам» - сторонникам «изоляции» во главе с Рэддо Акаги, представителям (   Читать дальше...   )Тип издания: Лицензия GOGРазработчик: ACQUIRE Corp.Жанр: Adventure / 3D / 3rd PersonЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0218CE985D5F9DA3B3134D3DFB5BC7875BA567C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1322305   (450013) от 28.08.2019
+
+Control (2019) [Ru/Multi] (1.0) License HOODLUM
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_450013.jpg" />
+</div>
+
+
+###  Подробнее
+
+CONTROL — приключение с видом от третьего лица, главной героиней которого выступает девушка по имени Джесси Фейденс (Jesse Faden's), новый директор Бюро. Работая в команде с другими агентами, ей предстоит разгадывать шифры и разбираться в странных экспериментах, которые проводит организация. События CONTROL развиваются внутри огромного здания, расположенного в Нью-Йорке. (   Читать дальше...   )Тип издания: LicenseРазработчик: Remedy EntertainmentЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67335127BDF34DE14F6629E03B618EA946A8ED81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163564   (449912) от 05.09.2017
+
+Knights of the Temple 2 / Тамплиеры 2 Портал Тьмы (2005) [Ru/En] (1.2.44) Repack R.G. Revenants
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_449912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вновь тьма нависла над мирными землями. Клубятся черные тучи на севере. Тревожно звучат набатные колокола. Рвутся из преисподней адские орды в единственном желании - уничтожить человечество. Скоро темная сила отворит врата, запечатанные многие тысячи лет назад, и живые позавидуют мертвым.Тип издания: RepackРазработчик: CauldronЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB76B1E1D368417035DE9221C7B0EB5193979BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943627   (446467) от 04.10.2015
+
+Cross of the Dutchman (2015) [Ru/Multi] (1.0.0) Repack R.G. Механики
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_446467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cross of the Dutchman - экшен рпг от "третьего" лица. В ее основу легла известная датская народная легенда о человеке, который собрал целую армию во имя победы над злом. Действие игры разворачивается в XVI веке, в средневековой Западной Европе. Главным героем является Пьер. Пьер вместе со своей семьей жили тихо и мирно, но вот, к сожалению, мир вокруг них (   Читать дальше...   )Тип издания: RepackРазработчик: Triangle StudiosЖанр: Action / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Голландский, Испанский, Португальский (Бразильский)Язык интерфейса: Русский, Английский, Голландский, Испанский, Португальский (Бразильский)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCBFB1FFE573F62A6130007360888F365300D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153712   (445877) от 30.08.2019
 
 Resident Evil 6 (2013) [Ru/En] (1.1.0/dlc) Repack West4it
@@ -6,7 +162,7 @@ Resident Evil 6 (2013) [Ru/En] (1.1.0/dlc) Repack West4it
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445877.jpg" />
+  <img src="Z:/picture/008/save_picture_445877.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Alan Wake (2012) [Ru] (1.0.7.33.72514) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444485.jpg" />
+  <img src="Z:/picture/008/save_picture_444485.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Raven's Cry (2015) [Ru/En] (1.0.0.3/upd5/dlc) Repack =nemos= [Digital Deluxe Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444053.jpg" />
+  <img src="Z:/picture/008/save_picture_444053.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Zombie Army Trilogy (2015) [Ru] (1.0) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443482.jpg" />
+  <img src="Z:/picture/008/save_picture_443482.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2/dlc) License PROPHET [Compete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443467.jpg" />
+  <img src="Z:/picture/008/save_picture_443467.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Chaos Legion / Рыцари Хаоса [En/Ru] (RePack/1.1.0) 2003 | R.G. Cataly
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442988.jpg" />
+  <img src="Z:/picture/008/save_picture_442988.jpg" />
 </div>
 
 
@@ -164,7 +320,7 @@ The Amazing Spider-Man / Новый Человек-паук + DLC [Ru/En/Multi6]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442822.jpg" />
+  <img src="Z:/picture/008/save_picture_442822.jpg" />
 </div>
 
 
@@ -190,7 +346,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru] (RePack/1.0u1) 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442814.jpg" />
+  <img src="Z:/picture/008/save_picture_442814.jpg" />
 </div>
 
 
@@ -217,7 +373,7 @@ Devil May Cry 3: Dantes Awakening. Special Edition [Ru/En] (RePack/1.3.0) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442808.jpg" />
+  <img src="Z:/picture/008/save_picture_442808.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ Way of the Samurai 4 (2015) [En] (1.06.2/dlc) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442179.jpg" />
+  <img src="Z:/picture/008/save_picture_442179.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ Shadow Man (1999) [En/Fr] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441207.jpg" />
+  <img src="Z:/picture/008/save_picture_441207.jpg" />
 </div>
 
 
@@ -297,7 +453,7 @@ Resident Evil (1997) [Ru/En] (1.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441187.jpg" />
+  <img src="Z:/picture/008/save_picture_441187.jpg" />
 </div>
 
 
@@ -323,7 +479,7 @@ Transformers: Devastation (2015) [En/Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439390.jpg" />
+  <img src="Z:/picture/008/save_picture_439390.jpg" />
 </div>
 
 
@@ -349,7 +505,7 @@ Just Cause 2 (2010) [Ru] (1.0.0.2/dlc) Repack Other s [Complete Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438694.jpg" />
+  <img src="Z:/picture/008/save_picture_438694.jpg" />
 </div>
 
 
@@ -375,7 +531,7 @@ The Amazing Spider-Man / Новый Человек-паук [Ru/En/Multi6] (RePa
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437774.jpg" />
+  <img src="Z:/picture/008/save_picture_437774.jpg" />
 </div>
 
 
@@ -401,7 +557,7 @@ State of Decay: Year One (2015) [Ru/Multi] (1.0/dlc) Repack R.G Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436396.jpg" />
+  <img src="Z:/picture/008/save_picture_436396.jpg" />
 </div>
 
 
@@ -427,7 +583,7 @@ Murdered: Soul Suspect (2014) [Ru] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436392.jpg" />
+  <img src="Z:/picture/008/save_picture_436392.jpg" />
 </div>
 
 
@@ -453,7 +609,7 @@ Beyond Good & Evil (2003) [Ru/Multi] (1.01) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436391.jpg" />
+  <img src="Z:/picture/008/save_picture_436391.jpg" />
 </div>
 
 
@@ -479,7 +635,7 @@ MDK 2 (2000) [Ru/En] (1.003) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436359.jpg" />
+  <img src="Z:/picture/008/save_picture_436359.jpg" />
 </div>
 
 
@@ -505,7 +661,7 @@ THYMESIA (2022) [Ru/Multi] (15.17249) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435333.jpg" />
+  <img src="Z:/picture/008/save_picture_435333.jpg" />
 </div>
 
 
@@ -516,162 +672,6 @@ THYMESIA — это жестокий и динамичный ролевой эк
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19DB77F454D8AD6FFA70EB735BE2C9336EEE7DDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249270   (434630) от 23.09.2018
-
-Doll of Resurrection (2018) [En/Ch] (1.0) License HOODLUM
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Doll of Resurrection - это игра в жанре экшен и rpg, разрабатываемая KX Games для платформы PC. Наш персонаж - надувная кукла, она была брошена, поэтому она мстит людям. Надувные куклы в игре демонстрируются в нижнем белье.Тип издания: LicenseРазработчик: KX GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СимуляторыЯзык озвучки: Английский, КитайскийЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53098D169EFEF39B4D57D835D6AB023ECFA5904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165293   (434165) от 12.09.2017
-
-The Suffering: Ties That Bind (2005) [Ru/En] (1.0) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такой судьбы не пожелаешь даже злейшему врагу…  Казалось, что угроза осталась позади и главному герою – заключенному по имени Торк, удалось навсегда покинуть адский остров, кишащий омерзительными тварями. Но ужас настиг его и в родном городе – Балтимор захвачен такими же кошмарными чудовищами. Отбиваясь от тошнотворных адских порождений, Торк продолжает вспоминать (   Читать дальше...   )Тип издания: LicenseРазработчик: Surreal SoftwareЖанр: Action, Shooter, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5400102AD2493FF799B71160C8591ADD1340B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165201   (434157) от 12.09.2017
-
-Tomb Raider (2013) [Ru] (1.01.748.0/dlc) Repack xatab [Game of The Year Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история о том, как закаляется характер, о том, как неопытная девушка превращается в бесстрашную расхитительницу гробниц. В ее арсенале – лишь врожденные инстинкты и желание выжить любой ценой. Против нее – жестокая природа и таинственные силы.Тип издания: RepackРазработчик: Crystal DynamicsЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972A32FC444C280DA6027EB950936EDB4775B622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410727   (433286) от 22.09.2020
-
-Alan Wake's American Nightmare (2012) [Ru] (1.0.3.17.1781) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433286.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот раз Алан Уэйк сразится с мистером Скрэтчем, вестником тьмы! Новый захватывающий сюжет, орды ужасающих врагов, серьезное оружие и прекрасные пейзажи Аризоны, а также увлекательный новый режим станут настоящим подарком для фанатов Алана Уэйка, а для всех остальных — отличной возможностью познакомиться с историей писателя.Тип издания: RepackРазработчик: Remedy EntertainmentЖанр: Adventure, Action (Horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32747F031A27A951FF298E3CC6CFB9FA0B86913F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063791   (431802) от 17.10.2016
-
-Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [Ru/En] (1.0) Repack Dok2
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встаньте плечом к плечу с братьями, сразитесь вместе в канализации, в подземке и на улицах Нью-Йорка и одолейте злодейскую организацию клана Фут, возглавляемую Шреддером и Кранком. Используйте специальные боевые навыки и мощные командные комбинации, чтобы спасти Манхеттен от орд тёмных сил, наращивающих свою мощь в его тенях.Тип издания: RepackРазработчик: PlatinumGamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D934920880422795322C36B3F6EA78EE88A43471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571823   (429285) от 23.08.2022
-
-Mafia II: Definitive Edition (2020) [Ru/Multi] (1.0/dlc) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть криминальной саги Mafia - 40-е и 50-е годы, Эмпайр-Бэй, Нью-Йорк. Игра выпущена в HD-разрешении. Станьте гангстером в золотую эпоху организованной преступности. Чтобы расплатиться с долгами отца, герой войны Вито Скалетта связывается с мафией. Он работает вместе со своим приятелем Джо. Совершая преступления, он зарабатывает всё больший авторитет в криминальной (   Читать дальше...   )Тип издания: LicenseРазработчик: Hangar 13Жанр: Экшны, Приключение, Open WorldЯзык озвучки: Русский, Английский, Немецкий, Испанский и другиеЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B361747D047E819288A17ECB3D5FBB46449AB03
 ```
 
 https://mybot314.ru/tekegram_catalog/

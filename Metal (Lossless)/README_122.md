@@ -1,3 +1,90 @@
+###  Публикация: 1553440   (581964) от 26.05.2022
+
+Gengis Khan - Possessed by the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Speed Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_581964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Possessed by the Wolf (00:04:23)
+02 - In the Name of Glory (00:06:24)
+03 - Extreme Power (00:03:17)
+04 - Eternal Flame (00:04:48)(   Читать дальше...   )Жанр: Classic Speed Heavy MetalПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91835B042CDCC83E8240A27BF3E6AB062D29BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041751   (581575) от 10.08.2016
+
+Wаrfесt - Sсаvеngеrs (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_581575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purveyors Of Cadavers
+02. Reptile
+03. Anatomy Of Evil
+04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D73E01CF09A00906AAC1A9CA31FDBDC0CD9C0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041745   (581571) от 10.08.2016
+
+Zеаlоtrу - Тhе Lаst Witnеss (2016) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_581571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arc Of Eradication
+02. Heralding The Black Apostle
+03. Cybernetic Eucharist
+04. Progeny Omega(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7EB4C11A5637DA1AE1AB5717E96F81443C76AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920007   (580968) от 21.07.2015
 
 Unleash the Archers - Time Stands Still (2015) [FLAC|image+.cue]<Power/Melodic Death Metal>
@@ -6,7 +93,7 @@ Unleash the Archers - Time Stands Still (2015) [FLAC|image+.cue]<Power/Melodic D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580968.jpg" />
+  <img src="Z:/picture/008/save_picture_580968.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Battle Beast - Steel (2011) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580890.jpg" />
+  <img src="Z:/picture/008/save_picture_580890.jpg" />
 </div>
 
 
@@ -70,7 +157,7 @@ Black Peaks - Statues (2016) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Math 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580653.jpg" />
+  <img src="Z:/picture/008/save_picture_580653.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ VA - Give Us Moore: Gary Moore Tribute (2004) [FLAC|Lossless|image + .cue] <Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580539.jpg" />
+  <img src="Z:/picture/008/save_picture_580539.jpg" />
 </div>
 
 
@@ -126,7 +213,7 @@ Viрer Solfа - Carving an Icon (2015) [FLAC|image+.cue]<Melodic Black/Gothic/Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580195.jpg" />
+  <img src="Z:/picture/008/save_picture_580195.jpg" />
 </div>
 
 
@@ -155,7 +242,7 @@ StormНammer - Echoes of a Lost Paradise (2015) [FLAC|image+.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580187.jpg" />
+  <img src="Z:/picture/008/save_picture_580187.jpg" />
 </div>
 
 
@@ -184,7 +271,7 @@ Dewok - Armonía Gris (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580091.jpg" />
+  <img src="Z:/picture/008/save_picture_580091.jpg" />
 </div>
 
 
@@ -213,7 +300,7 @@ DVL - Hush (2022) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580089.jpg" />
+  <img src="Z:/picture/008/save_picture_580089.jpg" />
 </div>
 
 
@@ -242,7 +329,7 @@ Diskordia - Requiem For The Ones Who Dream (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580083.jpg" />
+  <img src="Z:/picture/008/save_picture_580083.jpg" />
 </div>
 
 
@@ -271,7 +358,7 @@ Circle Of Silence - Walk Through Hell (2022) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580082.jpg" />
+  <img src="Z:/picture/008/save_picture_580082.jpg" />
 </div>
 
 
@@ -300,7 +387,7 @@ The Heretic Order - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580079.jpg" />
+  <img src="Z:/picture/008/save_picture_580079.jpg" />
 </div>
 
 
@@ -329,7 +416,7 @@ Horehound - Collapse (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579107.jpg" />
+  <img src="Z:/picture/008/save_picture_579107.jpg" />
 </div>
 
 
@@ -358,7 +445,7 @@ Secret Alliance - Solar Warden (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579101.jpg" />
+  <img src="Z:/picture/008/save_picture_579101.jpg" />
 </div>
 
 
@@ -387,7 +474,7 @@ Evil - Book Of Evil (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579099.jpg" />
+  <img src="Z:/picture/008/save_picture_579099.jpg" />
 </div>
 
 
@@ -416,7 +503,7 @@ Morhana - Eternal War (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Folk Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579097.jpg" />
+  <img src="Z:/picture/008/save_picture_579097.jpg" />
 </div>
 
 
@@ -445,7 +532,7 @@ Anthelion - Obsidian Plume (2015) Japanese Edition [FLAC|image+.cue]<Symphonic B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579090.jpg" />
+  <img src="Z:/picture/008/save_picture_579090.jpg" />
 </div>
 
 
@@ -474,7 +561,7 @@ Midian - Bring Me the Darkness (2015) Japanese Edition [FLAC|image+.cue]<Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579088.jpg" />
+  <img src="Z:/picture/008/save_picture_579088.jpg" />
 </div>
 
 
@@ -503,7 +590,7 @@ Cosmic Ocean - Through the Farthest Space (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579030.jpg" />
+  <img src="Z:/picture/008/save_picture_579030.jpg" />
 </div>
 
 
@@ -532,7 +619,7 @@ Debauchery - F*ck Humanity (2015) [FLAC|image+.cue]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579011.jpg" />
+  <img src="Z:/picture/008/save_picture_579011.jpg" />
 </div>
 
 
@@ -561,7 +648,7 @@ RеinХееd - Swеdish Нitz Gоеs Меtаl Vol II (2013) Japanese Edition [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578468.jpg" />
+  <img src="Z:/picture/008/save_picture_578468.jpg" />
 </div>
 
 
@@ -590,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578464.jpg" />
+  <img src="Z:/picture/008/save_picture_578464.jpg" />
 </div>
 
 
@@ -619,7 +706,7 @@ RеinХееd - Swеdish Нitz Gоеs Меtаl Vol I (2011) Japan Edition [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578454.jpg" />
+  <img src="Z:/picture/008/save_picture_578454.jpg" />
 </div>
 
 
@@ -648,7 +735,7 @@ Powerwolf - The Metal Mass Live (2016) 2CD [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578312.jpg" />
+  <img src="Z:/picture/008/save_picture_578312.jpg" />
 </div>
 
 
@@ -662,104 +749,6 @@ Powerwolf - The Metal Mass Live (2016) 2CD [FLAC|Lossless|image + .cue] <Power M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D52014E18EB2E87CCABD2933125E7954C960158E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233229   (578187) от 01.07.2018
-
-Melodius Deite - Episode III: The Archangels and the Olympians (2018) Japan [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exordium
-02. Saint Michael
-03. Saint Raguel
-04. Saint Raphael(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:11;36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735F4A3B7A0F3AF142A4D01852CF7DD2CB3A8D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527726   (577184) от 26.07.2012
-
-Atlantyca - To Nowhere And Beyond (2012) [FLAC|Lossless]<Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_577184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Impulse (5:01)
-02. Standard Man (6:13)
-03. Nowhere And Beyond (3:44)
-04. Beyond Infinite (4:37)
-05. Eternity (5:14)
-06. Time After Time (4:50)
-07. My Road (4:36)
-08. cEvilisation (4:06)
-09. Underworlds (9:00)Жанр: Progressive MetalПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527075   (576924) от 26.07.2012
-
-Sodom - 30 Years Sodomized (2012) [FLAC|Lossless]<Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sodom— немецкий музыкальный коллектив из Гельзенкирхена, образованный в 1982 году и исполняющий музыку в стиле трэш-метал. Sodom принадлежат к пионерам и одним из наиболее успешных классиков немецкой экстремальной металической сцены наравне с Kreator и Destruction. Весьма экстремальная манера игры музыкантов, в значительной степени отличающаяся от игры своих современников. Группа повлияла на огромное количество трэш-дэт и в особенности блэк-метал групп конца 1980-х — начала 1990-х годов.01. Gathering Of Minds (4:18)
-02.  Unwanted Youth (3:33)
-03.  Scum (5:09)
-04.  Tombstone (3:56)
-05.  Warlike Conspiracy (2:50)
-06.  Spiritual Demise (2:53)
-07.  Book Burning (2:36)
-08.  Minejumper (3:11)
-09.  Genocide (4:49)
-10.  Where Angels Die (4:48)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:55:09
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

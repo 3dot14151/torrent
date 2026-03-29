@@ -6,7 +6,7 @@
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45483.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Holy Tongue & Shackleton - The Tumbling Psychic Joy of Now (2024) [FLAC 24/44.1|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45248.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Jem - Finally Woken (2004) 20th Anniversary Remastered Edition, 2024,  ATO Recor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45245.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dubvision - Another World (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <EDM, Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45243.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Nick Cave & The Bad Seeds - Wild God (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45240.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Bryan Adams - War Machine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45021.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Xiaoloulou - Tales of a Broken Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44763.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Helloween - Master of the Rings (1994) Remaster, 2024, Sanctuary Records [FLAC 2
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44726.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Helloween - Chameleon (1993) Remaster, 2024, Sanctuary Records [FLAC 24/44.1|Los
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44720.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ The Delta Blues Collective - Peace, Love, and Groove (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44719.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Helloween - Pink Bubbles Go Ape (1991) Remaster, 2024, Noise Records [FLAC 24/44
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44714.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Stratovarius - Demand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44702.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ No Bull - Getting Out (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Blues Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44607.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Linkin Park - The Emptiness Machine (2024) Single [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44405.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ David Gilmour - Luck and Strange (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44284.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43900.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Tim Montana - Savage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Roc
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43884.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ The The - Ensoulment (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternatif, Ind
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43881.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Lenny Kravitz - Human (Remixes) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <El
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43875.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43784.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ C-Lekktor - 2.0 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, Hars
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43779.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Flotsam And Jetsam - I Am The Weapon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43778.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Indochine - Babel Babel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43762.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Kylie Minogue - My Oh My (with Bebe Rexha & Tove Lo) (The Remixes) (2024) Single
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43759.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Eminem - The Death of Slim Shady (Coup De Grace) (2024) Expanded Mourner’s Edi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43666.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Judas Priest - Rocka Rolla (1974) Reissue, 2024, MNRK Music [FLAC 24/96|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43665.jpg" />
 </div>
 
 

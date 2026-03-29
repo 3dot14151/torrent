@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719059.jpg" />
+  <img src="Z:/picture/008/save_picture_719059.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719058.jpg" />
+  <img src="Z:/picture/008/save_picture_719058.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719056.jpg" />
+  <img src="Z:/picture/008/save_picture_719056.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Vivaldi 2.3.1440.57 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719054.jpg" />
+  <img src="Z:/picture/008/save_picture_719054.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Random Fluctuations - Skyscraper (2019) Hybride Sentimento [FLAC|Lossless| Vinyl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719051.jpg" />
+  <img src="Z:/picture/008/save_picture_719051.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Opera 58.0.3135.79 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719049.jpg" />
+  <img src="Z:/picture/008/save_picture_719049.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Seasonality Core 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719048.jpg" />
+  <img src="Z:/picture/008/save_picture_719048.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ WinUtilities Professional Edition 15.48 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719047.jpg" />
+  <img src="Z:/picture/008/save_picture_719047.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Topaz Sharpen AI 2.1.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719010.jpg" />
+  <img src="Z:/picture/008/save_picture_719010.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719005.jpg" />
+  <img src="Z:/picture/008/save_picture_719005.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719004.jpg" />
+  <img src="Z:/picture/008/save_picture_719004.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ VA - Trance Your Way Through The World (2017) [MP3|320 Kbps] <Trance, Uplifting 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719001.jpg" />
+  <img src="Z:/picture/008/save_picture_719001.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ Forecast Bar 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718999.jpg" />
+  <img src="Z:/picture/008/save_picture_718999.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - United Colors Of Trance Vol.8 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718997.jpg" />
+  <img src="Z:/picture/008/save_picture_718997.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VA - Who's Afraid Of 138?! Top 15: 2017-04 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718996.jpg" />
+  <img src="Z:/picture/008/save_picture_718996.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Doo - Get Things Done 2.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718994.jpg" />
+  <img src="Z:/picture/008/save_picture_718994.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ NetWorker - Advanced Network Information App 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718991.jpg" />
+  <img src="Z:/picture/008/save_picture_718991.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Bumpr 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718989.jpg" />
+  <img src="Z:/picture/008/save_picture_718989.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718987.jpg" />
+  <img src="Z:/picture/008/save_picture_718987.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ App Pier - Fast App Launcher & Switcher 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718986.jpg" />
+  <img src="Z:/picture/008/save_picture_718986.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718972.jpg" />
+  <img src="Z:/picture/008/save_picture_718972.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Kubuntu*Pack 14.04.2 (апрель 2015) [i386 + amd64] (2xDVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718948.jpg" />
+  <img src="Z:/picture/008/save_picture_718948.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718937.jpg" />
+  <img src="Z:/picture/008/save_picture_718937.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718933.jpg" />
+  <img src="Z:/picture/008/save_picture_718933.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ VueScan Pro 9.6.33 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718919.jpg" />
+  <img src="Z:/picture/008/save_picture_718919.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718889.jpg" />
+  <img src="Z:/picture/008/save_picture_718889.jpg" />
 </div>
 
 

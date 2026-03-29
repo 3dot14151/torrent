@@ -1,3 +1,32 @@
+###  Публикация: 1422063   (313050) от 07.11.2020
+
+Витас (Vitas)  - 4 Альбома (2002 - 2006) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_313050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucia Di Lammermoor
+02. Оперная
+03. Лебедь мой
+04. Я прошу всех святых(   Читать дальше...   )Жанр: PopПродолжительность: 03:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23813FF2395AE1B8FC5EF0C88E8AE64FEEC55D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 157255   (312115) от 10.12.2009
 
 Ольга Орлова - Первый (2001) [FLAC|Lossless]<Pop>
@@ -6,7 +35,7 @@
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312115.jpg" />
+  <img src="Z:/picture/008/save_picture_312115.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311088.jpg" />
+  <img src="Z:/picture/008/save_picture_311088.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Andre Morgunoff & Keyorchestra - The Very Best Of (2007) [FLAC|Lossless|tracks +
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301450.jpg" />
+  <img src="Z:/picture/008/save_picture_301450.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301260.jpg" />
+  <img src="Z:/picture/008/save_picture_301260.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299595.jpg" />
+  <img src="Z:/picture/008/save_picture_299595.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298862.jpg" />
+  <img src="Z:/picture/008/save_picture_298862.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298850.jpg" />
+  <img src="Z:/picture/008/save_picture_298850.jpg" />
 </div>
 
 
@@ -206,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298744.jpg" />
+  <img src="Z:/picture/008/save_picture_298744.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298738.jpg" />
+  <img src="Z:/picture/008/save_picture_298738.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294874.jpg" />
+  <img src="Z:/picture/008/save_picture_294874.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291323.jpg" />
+  <img src="Z:/picture/008/save_picture_291323.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291072.jpg" />
+  <img src="Z:/picture/008/save_picture_291072.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289590.jpg" />
+  <img src="Z:/picture/008/save_picture_289590.jpg" />
 </div>
 
 
@@ -380,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287926.jpg" />
+  <img src="Z:/picture/008/save_picture_287926.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ VA - Горячая 20-Весна/Лето (2005)  [FLAC|Lossless|tracks + .cue]
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287726.jpg" />
+  <img src="Z:/picture/008/save_picture_287726.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285340.jpg" />
+  <img src="Z:/picture/008/save_picture_285340.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282169.jpg" />
+  <img src="Z:/picture/008/save_picture_282169.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ VA - Звуковая дорожка. Выпуск 2 (1995) [FLAC|Lossless|image
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279060.jpg" />
+  <img src="Z:/picture/008/save_picture_279060.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277116.jpg" />
+  <img src="Z:/picture/008/save_picture_277116.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Русский хит 2003 (2002) [FLAC|Lossless|tracks + .cue]<Pop, Dance>
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276171.jpg" />
+  <img src="Z:/picture/008/save_picture_276171.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Burito - Белый альбом (2017) [FLAC|Lossless|image + .cue] <Pop-Rock, 
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273160.jpg" />
+  <img src="Z:/picture/008/save_picture_273160.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA – XXXL 10. Максимальный размер удовольствий (
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270546.jpg" />
+  <img src="Z:/picture/008/save_picture_270546.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Новый год в стиле Ретро (2016) [FLAC|Lossless|WEB-DL|tra
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269982.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269973.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264573.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563BA3C89B0DC982D313DC3D31349F47DD444FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191020   (264458) от 13.12.2017
-
-Дима Билан - Эгоист (2017) [APE|Lossless|WEB-DL|tracks] <Рор>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эгоист
-02. Держи
-03. Атом
-04. Прости(   Читать дальше...   )Жанр: РорПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00CF45D7A20B34A5FC0FDCDAAF2ABEB1922637F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

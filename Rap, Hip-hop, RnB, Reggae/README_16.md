@@ -6,7 +6,7 @@ Cypress Hill - Back in Black (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Hard
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665381.jpg" />
+  <img src="Z:/picture/008/save_picture_665381.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664019.jpg" />
+  <img src="Z:/picture/008/save_picture_664019.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Fike & Jambazi - Где-то (2013) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664002.jpg" />
+  <img src="Z:/picture/008/save_picture_664002.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664000.jpg" />
+  <img src="Z:/picture/008/save_picture_664000.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663877.jpg" />
+  <img src="Z:/picture/008/save_picture_663877.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Onyx & Dope D.O.D. - Shotgunz In Hell (2017) [MP3|320 kbps] <Hip-Hop, Hardcore H
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663038.jpg" />
+  <img src="Z:/picture/008/save_picture_663038.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ SLIMUS - Место под луной (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661824.jpg" />
+  <img src="Z:/picture/008/save_picture_661824.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ SLIMUS - Место под солнцем (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661818.jpg" />
+  <img src="Z:/picture/008/save_picture_661818.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661781.jpg" />
+  <img src="Z:/picture/008/save_picture_661781.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661732.jpg" />
+  <img src="Z:/picture/008/save_picture_661732.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Jah Khalib - E.G.O. (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661717.jpg" />
+  <img src="Z:/picture/008/save_picture_661717.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Desmond Dekker - The Best Of (2004) Compilation [FLAC|Lossless|image + .cue] <Re
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660707.jpg" />
+  <img src="Z:/picture/008/save_picture_660707.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659751.jpg" />
+  <img src="Z:/picture/008/save_picture_659751.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659619.jpg" />
+  <img src="Z:/picture/008/save_picture_659619.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Machine Gun Kelly - Mainstream Sellout (2022) Explicit [FLAC 2.0|48/24|WEB-DL|tr
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656143.jpg" />
+  <img src="Z:/picture/008/save_picture_656143.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652408.jpg" />
+  <img src="Z:/picture/008/save_picture_652408.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Noize MC - Чайлдфри (2017) Single [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652127.jpg" />
+  <img src="Z:/picture/008/save_picture_652127.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Billy Milligan - Геном (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648480.jpg" />
+  <img src="Z:/picture/008/save_picture_648480.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648045.jpg" />
+  <img src="Z:/picture/008/save_picture_648045.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ MATRANG - ЭЙА (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646587.jpg" />
+  <img src="Z:/picture/008/save_picture_646587.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Ladies Of Soul 80S & 90S (2019) [MP3|320 Kbps] <Soul, Disco, Rhythm & Blues
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644839.jpg" />
+  <img src="Z:/picture/008/save_picture_644839.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Romantic Soul Music (2019) [MP3|320 Kbps] <R&B, Soul>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644832.jpg" />
+  <img src="Z:/picture/008/save_picture_644832.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Alai Oli, Хмыров - Последний из ушедших (2022) [MP3|320 
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644780.jpg" />
+  <img src="Z:/picture/008/save_picture_644780.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Becko - You Are (Not) Alone (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Roc
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642729.jpg" />
+  <img src="Z:/picture/008/save_picture_642729.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ N1NT3ND0 (Баста) - Папа на рэйве (2019) [MP3|320 Kbps] <Rap, Hip
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642683.jpg" />
+  <img src="Z:/picture/008/save_picture_642683.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Noize MC - Хипхопера: Орфей & Эвридика (2018) [MP3|320 Kbp
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637234.jpg" />
+  <img src="Z:/picture/008/save_picture_637234.jpg" />
 </div>
 
 

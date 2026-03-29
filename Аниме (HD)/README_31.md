@@ -1,3 +1,29 @@
+###  Публикация: 1312614   (360452) от 01.10.2019
+
+Kanata no Astra | Astra Lost in Space | Астра, затерянная в космосе [2019, TV, 12 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360452.jpg" />
+</div>
+
+
+###  Подробнее
+
+2061 год. Космические путешествия стали возможными и коммерчески выгодными, и теперь ученики средней школы Кэрда отправляются в космический лагерь на планете МакПа. Но вскоре после того как они прибывают на место, таинственная разумная световая сфера отправляет всю группу из девяти человек в глубины космоса, за 5012 световых лет от их родной планеты. Там школьники (   Читать дальше...   )Производство: студия Lerche / ラルケЖанр: приключения, комедияРежиссер: Андо МасаомиПеревод: Funimation; SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 12 эп. по 25 мин. (первая и последняя серии сдвоенные)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C8D2ED98783C25EE5E53A7EE7C1BC4C8DA27D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313632   (360448) от 01.10.2019
 
 Cop Craft | Мастерство копа [2019, TV, 12 эп.] WebRip 720p raw
@@ -6,7 +32,7 @@ Cop Craft | Мастерство копа [2019, TV, 12 эп.] WebRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360448.jpg" />
+  <img src="Z:/picture/008/save_picture_360448.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Fruits Basket (2019) | Корзинка фруктов [ТВ-2] [2019, TV, 25] W
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360444.jpg" />
+  <img src="Z:/picture/008/save_picture_360444.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Musashino! | Мусасино! [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359382.jpg" />
+  <img src="Z:/picture/008/save_picture_359382.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Yurei Deco | Духи Деко [2022, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356889.jpg" />
+  <img src="Z:/picture/008/save_picture_356889.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Konoyo no Hate de Koi o Utau Shoujo Yu-No / Yu-No: A Girl Who Chants Love at the
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353803.jpg" />
+  <img src="Z:/picture/008/save_picture_353803.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Yami Shibai / Театр тьмы [ТВ-7] [2019, TV, 13 ep.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351868.jpg" />
+  <img src="Z:/picture/008/save_picture_351868.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Mix: Meisei Story | Микс: История Мейсей [2019, TV, 24] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351765.jpg" />
+  <img src="Z:/picture/008/save_picture_351765.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Natsume Yuujinchou Roku / Тетрадь дружбы Нацумэ [ТВ-6] [201
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350667.jpg" />
+  <img src="Z:/picture/008/save_picture_350667.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349873.jpg" />
+  <img src="Z:/picture/008/save_picture_349873.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого д
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349526.jpg" />
+  <img src="Z:/picture/008/save_picture_349526.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Shadows House 2nd Season | Дом теней [ТВ-2] [2022, TV, 12 эп.] WEBRi
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345372.jpg" />
+  <img src="Z:/picture/008/save_picture_345372.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ Shoot! Goal to the Future | Удар! Гол в будущее [2022, TV, 13 э�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343007.jpg" />
+  <img src="Z:/picture/008/save_picture_343007.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ Bucchigire! | Shine On! Bakumatsu Bad Boys! | Сияйте, головорезы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342974.jpg" />
+  <img src="Z:/picture/008/save_picture_342974.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ Teppen!!!!!!!!!!!!!!! | Teppen! Laughing 'til you Cry | Апогей! [2022, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342952.jpg" />
+  <img src="Z:/picture/008/save_picture_342952.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ Arifureta Shokugyou de Sekai Saikyou | Arifureta: From Commonplace to World's St
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342843.jpg" />
+  <img src="Z:/picture/008/save_picture_342843.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Bastard!! Ankoku no Hakaishin (2022) | Bastard!! Heavy Metal, Dark Fantasy | У�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340667.jpg" />
+  <img src="Z:/picture/008/save_picture_340667.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Hanabi-chan wa Okure-gachi | Hanabi-chan Is Often Late | Ханаби посто
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340662.jpg" />
+  <img src="Z:/picture/008/save_picture_340662.jpg" />
 </div>
 
 
@@ -451,7 +477,7 @@ Extreme Hearts | Экстремальные сердца [2022, TV, 12 эп. + 1
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338405.jpg" />
+  <img src="Z:/picture/008/save_picture_338405.jpg" />
 </div>
 
 
@@ -477,7 +503,7 @@ Himouto! Umaru-chan / Dried Fish Sister! Umaru-chan / Моя двуличная 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336565.jpg" />
+  <img src="Z:/picture/008/save_picture_336565.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336473.jpg" />
+  <img src="Z:/picture/008/save_picture_336473.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335196.jpg" />
+  <img src="Z:/picture/008/save_picture_335196.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Arifureta Shokugyou de Sekai Saikyou 2nd Season | Arifureta: From Commonplace to
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334092.jpg" />
+  <img src="Z:/picture/008/save_picture_334092.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Senki Zesshou Symphogear XV / Последняя Песня Боевых При�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333089.jpg" />
+  <img src="Z:/picture/008/save_picture_333089.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ Moonlight Mile 2nd Season - Touch down / Лунная миля 2 [2007, TV, 14] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331570.jpg" />
+  <img src="Z:/picture/008/save_picture_331570.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331525.jpg" />
+  <img src="Z:/picture/008/save_picture_331525.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Made in Abyss: Retsujitsu no Ougonkyou | Made in Abyss: The Golden City of the S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF5797E9D34E54FE1D62D9B7B0DBADB361750EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546331   (329536) от 02.10.2022
-
-Summer Time Render / Summer Time Rendering / Летний рендер / Летнее время [2022, TV, 25] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329536.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потерявший родителей Щинпей Адзиро некоторое время жил на острове Хитогащима с сестрами Кофуне — Мио и Ущио, а затем переехал в Токио. Но получив весть о гибели Ущио из-за несчастного случая, он возвращается. Однако увидев синяки на теле погибшей девушки, он начинает сомневаться в причинах её смерти. И вскоре Щинпей убеждается, что есть другое объяснение. Опасные (   Читать дальше...   )Жанр: триллер, драма, мистика.Режиссер: Ватанабэ АюмуЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 25 серий по 25 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB3B58246B0D49726FEEAC37BE790CB15F6D561
 ```
 
 https://mybot314.ru/tekegram_catalog/

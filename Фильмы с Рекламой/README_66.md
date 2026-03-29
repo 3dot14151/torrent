@@ -1,3 +1,29 @@
+###  Публикация: 1259434   (320290) от 03.11.2018
+
+Каратель / The Punished (2018) WEB-DLRip [MVO] [AD]
+
+>>След.
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вольфганг профессиональный наемник, которого наняла состоятельная женщина, чтобы отомстить за своего внука. Но когда он встречает маленькую девочку-сироту и местного экскурсовода, он разрывается между привычными для него деньгами за выполненную работу, и вершением справделивости для невинных людей.Производство: СШАЖанр: БоевикРежиссер: Рене ПерезАктеры: Лиза Мерфи Коллинз, Николь Старк ...Перевод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:27:15Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DFDB9439D36230CF5B52C9A29F9202B70A491F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259432   (320284) от 03.11.2018
 
 Из-за любви конечно / Love, of Course (2018) WEBRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320284.jpg" />
+  <img src="Z:/picture/008/save_picture_320284.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320273.jpg" />
+  <img src="Z:/picture/008/save_picture_320273.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318456.jpg" />
+  <img src="Z:/picture/008/save_picture_318456.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318300.jpg" />
+  <img src="Z:/picture/008/save_picture_318300.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318291.jpg" />
+  <img src="Z:/picture/008/save_picture_318291.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316397.jpg" />
+  <img src="Z:/picture/008/save_picture_316397.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316196.jpg" />
+  <img src="Z:/picture/008/save_picture_316196.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315970.jpg" />
+  <img src="Z:/picture/008/save_picture_315970.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315968.jpg" />
+  <img src="Z:/picture/008/save_picture_315968.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314870.jpg" />
+  <img src="Z:/picture/008/save_picture_314870.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314072.jpg" />
+  <img src="Z:/picture/008/save_picture_314072.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314059.jpg" />
+  <img src="Z:/picture/008/save_picture_314059.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312513.jpg" />
+  <img src="Z:/picture/008/save_picture_312513.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311627.jpg" />
+  <img src="Z:/picture/008/save_picture_311627.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311408.jpg" />
+  <img src="Z:/picture/008/save_picture_311408.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311378.jpg" />
+  <img src="Z:/picture/008/save_picture_311378.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311289.jpg" />
+  <img src="Z:/picture/008/save_picture_311289.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311219.jpg" />
+  <img src="Z:/picture/008/save_picture_311219.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311176.jpg" />
+  <img src="Z:/picture/008/save_picture_311176.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310521.jpg" />
+  <img src="Z:/picture/008/save_picture_310521.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309709.jpg" />
+  <img src="Z:/picture/008/save_picture_309709.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309695.jpg" />
+  <img src="Z:/picture/008/save_picture_309695.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309685.jpg" />
+  <img src="Z:/picture/008/save_picture_309685.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309564.jpg" />
+  <img src="Z:/picture/008/save_picture_309564.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309528.jpg" />
+  <img src="Z:/picture/008/save_picture_309528.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA121DCBB99F7C4EC532B0D4A613C589B71ABE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260660   (309526) от 08.11.2018
-
-На свой страх и риск / At Your Own Risk (2018) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две женщины отправляются в путешествие, надеясь спасти свои карьеры, когда выясняется, что спасать придется собственные жизни.Производство: США / Mighty Pharaoh Films, Mirrortree ProductionsЖанр: Триллер, приключенияРежиссер: Джон К.Д. ГрэхэмАктеры: Хеленна Сантос, Александра Бойлэн, Джефф Шредер, Джоди Л Панек, Челси Крокетт, Лорена Йорк, Джейми Кано, Маттео Гильони, Эндрю Майорано, Грейс НаполитаноПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:15:12Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4755C02F6F982758C231545CACF8BBC763169BED
 ```
 
 https://mybot314.ru/tekegram_catalog/

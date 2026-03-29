@@ -6,7 +6,7 @@ Robin Spielberg - Moonlight & Lovesongs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773092.jpg" />
+  <img src="Z:/picture/008/save_picture_773092.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Paul Mauriat - Piano Ballade & Remember (2016) [FLAC|Lossless|image + .cue] <Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773084.jpg" />
+  <img src="Z:/picture/008/save_picture_773084.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Emir Kusturica & The No Smoking Orchestra - The Best Of... (2009) [FLAC|Lossless
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772555.jpg" />
+  <img src="Z:/picture/008/save_picture_772555.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Hang Massive - Beats For Your Feet (2012) [FLAC|Lossless|tracks] < Folk, World, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772552.jpg" />
+  <img src="Z:/picture/008/save_picture_772552.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Graeme Keavney, Geoff McGarvey - Dawn (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771997.jpg" />
+  <img src="Z:/picture/008/save_picture_771997.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Geoff McGarvey, Graeme Keavney - Dusk (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771934.jpg" />
+  <img src="Z:/picture/008/save_picture_771934.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Hilmar Orn Hilmarsson & Sigur Ros - Englar Alheimsins (2001) [FLAC|Lossless|trac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771835.jpg" />
+  <img src="Z:/picture/008/save_picture_771835.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ The Gino Marinello Orchestra - Guitar Masterpieces (2000) [FLAC|Lossless|tracks 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771762.jpg" />
+  <img src="Z:/picture/008/save_picture_771762.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Great Melodies From Great Musicals (1999) [MP3|320 Kbps] <Instrumental, Cla
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771743.jpg" />
+  <img src="Z:/picture/008/save_picture_771743.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ James Last - My Favourites. Die Schonsten Pop-Titel Aus Den Jahren 1989-1993 (19
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771707.jpg" />
+  <img src="Z:/picture/008/save_picture_771707.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Greg Maroney - Quiet Piano Improvisations, Vol. 1 (2016) [MP3|320 кб/с] <Inst
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770336.jpg" />
+  <img src="Z:/picture/008/save_picture_770336.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - The Best Tango Album In The World...Ever! (2014) [FLAC|Lossless]<Tango>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770202.jpg" />
+  <img src="Z:/picture/008/save_picture_770202.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ David Arkenstone - Frontier (2000) [FLAC|Lossless]<New Age, Soundtrack>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769755.jpg" />
+  <img src="Z:/picture/008/save_picture_769755.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Nadama - Waves of Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Ins
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769637.jpg" />
+  <img src="Z:/picture/008/save_picture_769637.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-p
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769371.jpg" />
+  <img src="Z:/picture/008/save_picture_769371.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768808.jpg" />
+  <img src="Z:/picture/008/save_picture_768808.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768807.jpg" />
+  <img src="Z:/picture/008/save_picture_768807.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ bethel music - starlight (live) (2017) [MP3|320 Kbps] <Christians, worship>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768748.jpg" />
+  <img src="Z:/picture/008/save_picture_768748.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [FLAC|Lossless|
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768654.jpg" />
+  <img src="Z:/picture/008/save_picture_768654.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [MP3|320 кб/�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768590.jpg" />
+  <img src="Z:/picture/008/save_picture_768590.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Atom Music Audio - Vortex (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768478.jpg" />
+  <img src="Z:/picture/008/save_picture_768478.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Atom Music Audio - EON (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768475.jpg" />
+  <img src="Z:/picture/008/save_picture_768475.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Really Slow Motion - Miraculum (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768471.jpg" />
+  <img src="Z:/picture/008/save_picture_768471.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ The Shadows - The Best Of The Shadows (1999) Unofficial Release [FLAC|Lossless|i
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768468.jpg" />
+  <img src="Z:/picture/008/save_picture_768468.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classic
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768467.jpg" />
+  <img src="Z:/picture/008/save_picture_768467.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768403.jpg" />
+  <img src="Z:/picture/008/save_picture_768403.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Sting - The Bridge (Deluxe) (2021) [AAC|~310 Kbps] <Pop, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790201.jpg" />
+  <img src="Z:/picture/008/save_picture_790201.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790057.jpg" />
+  <img src="Z:/picture/008/save_picture_790057.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789871.jpg" />
+  <img src="Z:/picture/008/save_picture_789871.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789844.jpg" />
+  <img src="Z:/picture/008/save_picture_789844.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789793.jpg" />
+  <img src="Z:/picture/008/save_picture_789793.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789781.jpg" />
+  <img src="Z:/picture/008/save_picture_789781.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ KISS - Destroyer (45th Anniversary Super Deluxe) (2021) [AAC|~343 Kbps] <Hard Ro
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789773.jpg" />
+  <img src="Z:/picture/008/save_picture_789773.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789695.jpg" />
+  <img src="Z:/picture/008/save_picture_789695.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789642.jpg" />
+  <img src="Z:/picture/008/save_picture_789642.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Obsqure - Au Palais (2021) [AAC|~340 Kbps] <Psychill, Downtempo, Cinematic Elect
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789482.jpg" />
+  <img src="Z:/picture/008/save_picture_789482.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Obsqure - Oriental Banquet (2019) [AAC|~317 Kbps] <Psychill, Downtempo, Cinemati
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789478.jpg" />
+  <img src="Z:/picture/008/save_picture_789478.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Obsqure - Eight (2020) [AAC|~299 Kbps] <Psychill, Downtempo, Cinematic Electroni
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789476.jpg" />
+  <img src="Z:/picture/008/save_picture_789476.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ Bev Lee Harling - Little Anchor (2021) [AAC|~291 Kbps] <Nu Jazz, Nu Soul, Vocal 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789474.jpg" />
+  <img src="Z:/picture/008/save_picture_789474.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Obsqure - Silk Roads (2020) [AAC|~323 Kbps] <Psychill, Downtempo, Cinematic Elec
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789473.jpg" />
+  <img src="Z:/picture/008/save_picture_789473.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789472.jpg" />
+  <img src="Z:/picture/008/save_picture_789472.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Obsqure - Tabula Rasa (2018) [AAC|~320 Kbps] <Psychill, Downtempo, Cinematic Ele
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789471.jpg" />
+  <img src="Z:/picture/008/save_picture_789471.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Swingrowers - Hybrid (2021) [AAC|~327 Kbps] <Electro, Swing, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789430.jpg" />
+  <img src="Z:/picture/008/save_picture_789430.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Marina & the Kats - Different (2021) [AAC|~307 Kbps] <Swing, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789429.jpg" />
+  <img src="Z:/picture/008/save_picture_789429.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Marina & the Kats - Swingsalabim (2019) [AAC|~332 Kbps] <Swing, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789427.jpg" />
+  <img src="Z:/picture/008/save_picture_789427.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Synth Replicants - atlantis (2021) [AAC|~321 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789423.jpg" />
+  <img src="Z:/picture/008/save_picture_789423.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789383.jpg" />
+  <img src="Z:/picture/008/save_picture_789383.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Swingrowers - Remote (2014) [AAC|~344 Kbps] <Electro, Swing, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789374.jpg" />
+  <img src="Z:/picture/008/save_picture_789374.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Swingrowers - Hits & Remixes (2017) [AAC|~344 Kbps] <Electro, Swing, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789363.jpg" />
+  <img src="Z:/picture/008/save_picture_789363.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Marina & the Kats - Wild (2016) [AAC|~320 Kbps] <Swing, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789360.jpg" />
+  <img src="Z:/picture/008/save_picture_789360.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789323.jpg" />
+  <img src="Z:/picture/008/save_picture_789323.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Synth Replicants - time walker (2021) [AAC|~322 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789192.jpg" />
+  <img src="Z:/picture/008/save_picture_789192.jpg" />
 </div>
 
 

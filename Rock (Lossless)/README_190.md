@@ -1,3 +1,145 @@
+###  Публикация: 1758890   (38171) от 05.11.2024
+
+Flashbaggers - Visions of Utopia (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices (7:29)
+02. New Prosperity (8:16)
+03. Comfortable Lies (6:17)
+04. The New Normal (4:48)(   Читать дальше...   )Жанр: Progressive Rock, Heavy Prog, Hard RockПродолжительность: 01:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4D8E1189265367E3E872C5AFE86F2C0781EE93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759282   (37888) от 08.11.2024
+
+Bonnie Tyler - The Best (1993) (Austria) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Total Eclipse Of The Heart
+02 - Faster Than The Speed Of Night
+03 - Have You Ever Seen The Rain
+04 - If You Were A Woman (And I Was A Man)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0583506224CEF5C9B7D0361884FE25D5DD54D3B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759316   (37880) от 08.11.2024
+
+Racey - The Best Of (1993) (Australia) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love’s A Riot
+02 - Such A Night
+03 - There’s A Party Going On
+04 - Lay Your Cards On The Table(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41BD365D81168E566A9FE392362055C14E62BD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759469   (37865) от 08.11.2024
+
+Океан Ельзи - Dolce Vita (2010) [FLAC|Lossless|image + .cue] <Indie Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Онлайн
+02. Небо над Дніпром
+03. Надя
+04. Я так хочу...(   Читать дальше...   )Жанр: Indie Rock, Pop RockПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1218504BDAF5624065E83F02245963007297064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759972   (37598) от 11.11.2024
+
+Marillion - 4 Albums (1991-2024) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Pop Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Prog Rock, Pop Rock, Symphonic RockПродолжительность: 6 CD, 09:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED36378B72CD50E7AFAFF7C4237458E0970BB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759961   (37574) от 11.11.2024
 
 Bay City Rollers - Keep On Rollin (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
@@ -6,7 +148,7 @@ Bay City Rollers - Keep On Rollin (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37574.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ The Alan Parsons Project - Pyramid (1978) Reissue, Remastered, 2024, Cooking Vin
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37480.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ Rick Wakeman - Yessonata (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37360.jpg" />
 </div>
 
 
@@ -91,7 +233,7 @@ Asia - XXX (2012) Japan Edition [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37232.jpg" />
 </div>
 
 
@@ -120,7 +262,7 @@ Rockets - The Final Frontier (2024) [FLAC|Lossless|WEB-DL|tracks] <Space Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37224.jpg" />
 </div>
 
 
@@ -149,7 +291,7 @@ Linkin Park - From Zero (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37194.jpg" />
 </div>
 
 
@@ -178,7 +320,7 @@ Sandy Hall - Full Circle (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Har
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36660.jpg" />
 </div>
 
 
@@ -207,7 +349,7 @@ Queen - Queen I (1973) 2xCD, SHM-CD, Japanese Edition, Reissue, Remastered, 2024
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36603.jpg" />
 </div>
 
 
@@ -236,7 +378,7 @@ VA - Emotional Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36593.jpg" />
 </div>
 
 
@@ -265,7 +407,7 @@ VA - 21 Winners: Fabulous 50's (2001) [FLAC|Lossless|tracks + .cue] <Rock & Roll
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36458.jpg" />
 </div>
 
 
@@ -294,7 +436,7 @@ VA - Rock Women - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36046.jpg" />
 </div>
 
 
@@ -323,7 +465,7 @@ Paris - Hungry 4 Action (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35927.jpg" />
 </div>
 
 
@@ -352,7 +494,7 @@ Status Quo - Driving to Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35642.jpg" />
 </div>
 
 
@@ -381,7 +523,7 @@ Electric Light Orchestra - Definitive Collection (1992) [FLAC|Lossless]<Art-Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35582.jpg" />
 </div>
 
 
@@ -410,7 +552,7 @@ The Beatles - Hot As Sun (2010) Bootleg [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35573.jpg" />
 </div>
 
 
@@ -439,7 +581,7 @@ Black Stone Cherry - Hits, Rareties And Live (2014) [FLAC|Lossless]<Rock, Acoust
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35547.jpg" />
 </div>
 
 
@@ -468,7 +610,7 @@ VA - Modern Power Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Ballad
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35426.jpg" />
 </div>
 
 
@@ -497,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35421.jpg" />
 </div>
 
 
@@ -526,7 +668,7 @@ Beck - Mutations (1998) CD, HDCD, Album [FLAC|Lossless|tracks + .cue] <Rock, Alt
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35420.jpg" />
 </div>
 
 
@@ -555,7 +697,7 @@ VA - Посередине века. Трибьют Константину Арб
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35321.jpg" />
 </div>
 
 
@@ -584,7 +726,7 @@ The Green Pajamas - Just To This (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35211.jpg" />
 </div>
 
 
@@ -598,151 +740,6 @@ The Green Pajamas - Just To This (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1505429DED3B740FEE70A1D6D5DC71942BE0A779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764019   (35210) от 04.12.2024
-
-FM - Old Habits Die Hard (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out Of The Blue (4:22)
-02. Don't Need Another Heartache (4:36)
-03. No Easy Way Out (3:55)
-04. Lost (5:21)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4102D9DD19C475E1C4955814258F5AAB9CB29EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765412   (34415) от 12.12.2024
-
-Latter Reign - Order to Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chill (5:00)
-02. Change (3:10)
-03. Had a Dream (4:11)
-04. RU (4:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960B8C42948A21088D3F07E210717BFC7F4C5DE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765409   (34398) от 12.12.2024
-
-Gary Rand - No Secrets (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whiskey (0:17)
-02. No Secrets (3:20)
-03. Hall Light (3:57)
-04. Sweet Little Two-Timer (3:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:360DB5502C9A8527335159E2FF7169EBEE6B2DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765405   (34395) от 12.12.2024
-
-Caitlin Krisko & The Broadcast - Blueprints EP (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil on Your Side (2:51)
-02. Blue Monday (3:16)
-03. Piece of You (4:00)
-04. Haunted by You (4:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F811893D455F37287953EE7CDE8159A83628560C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765413   (34388) от 12.12.2024
-
-Lee Abraham - Origin Of The Storm (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origin Of The Storm (4:21)
-02. The Same Life (8:51)
-03. Chalk Hill (8:09)
-04. Isolation / Disconnection (8:51)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5FC3D78741A43FEE6DF91D4423562DB2F3657C
 ```
 
 https://mybot314.ru/tekegram_catalog/

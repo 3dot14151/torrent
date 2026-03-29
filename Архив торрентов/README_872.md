@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849679.jpg" />
+  <img src="Z:/picture/008/save_picture_849679.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Edge 94.0.992.37 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849648.jpg" />
+  <img src="Z:/picture/008/save_picture_849648.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SoundSource 5.3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849646.jpg" />
+  <img src="Z:/picture/008/save_picture_849646.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849639.jpg" />
+  <img src="Z:/picture/008/save_picture_849639.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849635.jpg" />
+  <img src="Z:/picture/008/save_picture_849635.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Reg Organizer 5.14 Тихая установка [Rus+Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849582.jpg" />
+  <img src="Z:/picture/008/save_picture_849582.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Cent Browser 4.2.10.171 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849574.jpg" />
+  <img src="Z:/picture/008/save_picture_849574.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ The Bat! Professional 9.1.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849567.jpg" />
+  <img src="Z:/picture/008/save_picture_849567.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ System Toolkit 4.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849537.jpg" />
+  <img src="Z:/picture/008/save_picture_849537.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Privacy Eraser Free 5.16.0 Build 4024 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849535.jpg" />
+  <img src="Z:/picture/008/save_picture_849535.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ GPU Shark 0.24.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849525.jpg" />
+  <img src="Z:/picture/008/save_picture_849525.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ K-Lite Codec Pack Update 16.4.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849519.jpg" />
+  <img src="Z:/picture/008/save_picture_849519.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849490.jpg" />
+  <img src="Z:/picture/008/save_picture_849490.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ The Bat! Professional 9.1.18 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849485.jpg" />
+  <img src="Z:/picture/008/save_picture_849485.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Babylon Pro 9.0.1.5 Final [Multi/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_849479.jpg" />
+  <img src="Z:/picture/009/save_picture_849479.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Avira Phantom VPN Pro 2.31.6.20652 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849463.jpg" />
+  <img src="Z:/picture/008/save_picture_849463.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Blackmagic Design DaVinci Resolve Studio 16.2.1.017 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849459.jpg" />
+  <img src="Z:/picture/008/save_picture_849459.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849437.jpg" />
+  <img src="Z:/picture/008/save_picture_849437.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ AutoRuns 14.03 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849422.jpg" />
+  <img src="Z:/picture/008/save_picture_849422.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ PDFsam Basic 4.2.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849421.jpg" />
+  <img src="Z:/picture/008/save_picture_849421.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ mp3DirectCut 2.34 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849415.jpg" />
+  <img src="Z:/picture/008/save_picture_849415.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Google Chrome Enterprise 94.0.4606.71 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849406.jpg" />
+  <img src="Z:/picture/008/save_picture_849406.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849365.jpg" />
+  <img src="Z:/picture/008/save_picture_849365.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Shapik: The Moon Quest (2020) [Graphic] (1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849357.jpg" />
+  <img src="Z:/picture/008/save_picture_849357.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849354.jpg" />
+  <img src="Z:/picture/008/save_picture_849354.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Efdemin - Decay (2014) [FLAC|Lossless|tracks+cue]<Techno, Minimal, Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849313.jpg" />
+  <img src="Z:/picture/008/save_picture_849313.jpg" />
 </div>
 
 

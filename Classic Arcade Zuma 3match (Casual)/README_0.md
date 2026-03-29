@@ -6,7 +6,7 @@ Cats Love Boxes (2024) [Ru/Multi] (1.0) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51817.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Elasto Mania II (2017) [En] (1.02) License GOG
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40253.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Piczle Cross: Rune Factory (2025) [Multi] (1.0) Repack FitGirl
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26697.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Vault: Logic Puzzle Box (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11869.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ A Little to the Left (2022) [Multi] (3.5.10/dlc) Scene Tenoke
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5525.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Classic Arcade/Zuma/3match (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5039.jpg" />
 </div>
 
 

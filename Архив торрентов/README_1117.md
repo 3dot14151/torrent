@@ -6,7 +6,7 @@ App Tamer 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795053.jpg" />
+  <img src="Z:/picture/008/save_picture_795053.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Money Pro 2.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795052.jpg" />
+  <img src="Z:/picture/008/save_picture_795052.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Dreamtime - 3 (Albums) - 1 (EP) (2009-2015) [MP3|320 Kbps] <Spacesynth, Synthpop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795039.jpg" />
+  <img src="Z:/picture/008/save_picture_795039.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Magic Sword - 1 (Albums) - 1 (EP) - 2 (Single) (2015-2018) [MP3|320 Kbps] <Elect
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795038.jpg" />
+  <img src="Z:/picture/008/save_picture_795038.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795035.jpg" />
+  <img src="Z:/picture/008/save_picture_795035.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Taylor Swift - Essentials (2018) [MP3|320 Kbps] <Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795029.jpg" />
+  <img src="Z:/picture/008/save_picture_795029.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795027.jpg" />
+  <img src="Z:/picture/008/save_picture_795027.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795026.jpg" />
+  <img src="Z:/picture/008/save_picture_795026.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795023.jpg" />
+  <img src="Z:/picture/008/save_picture_795023.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795020.jpg" />
+  <img src="Z:/picture/008/save_picture_795020.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ Boxy SVG 3  v3.70.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795008.jpg" />
+  <img src="Z:/picture/008/save_picture_795008.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Keyboard Maestro 10 v10.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795003.jpg" />
+  <img src="Z:/picture/008/save_picture_795003.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Recompress 21.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795000.jpg" />
+  <img src="Z:/picture/008/save_picture_795000.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794999.jpg" />
+  <img src="Z:/picture/008/save_picture_794999.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794997.jpg" />
+  <img src="Z:/picture/008/save_picture_794997.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Brave Browser 0.58.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794992.jpg" />
+  <img src="Z:/picture/008/save_picture_794992.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Wise Memory Optimizer 3.6.4.108 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794989.jpg" />
+  <img src="Z:/picture/008/save_picture_794989.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Wise Registry Cleaner Pro 10.1.4.672 RePack (& portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794987.jpg" />
+  <img src="Z:/picture/008/save_picture_794987.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ CoolUtils Total CSV Converter 3.1.1.180 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794968.jpg" />
+  <img src="Z:/picture/008/save_picture_794968.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ CoolUtils Total PDF Converter 6.1.0.141 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794967.jpg" />
+  <img src="Z:/picture/008/save_picture_794967.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Cyberfox 52.6.1 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794961.jpg" />
+  <img src="Z:/picture/008/save_picture_794961.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ balenaEtcher for macOS 1.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794945.jpg" />
+  <img src="Z:/picture/008/save_picture_794945.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ ConceptDraw MINDMAP 13 v13.0.0.233 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794944.jpg" />
+  <img src="Z:/picture/008/save_picture_794944.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ ConceptDraw DIAGRAM 15 v15.0.0.392 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794942.jpg" />
+  <img src="Z:/picture/008/save_picture_794942.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ iStat Menus 6 v6.60 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794940.jpg" />
+  <img src="Z:/picture/008/save_picture_794940.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Wise Auto Shutdown 1.7.4.93 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794939.jpg" />
+  <img src="Z:/picture/008/save_picture_794939.jpg" />
 </div>
 
 

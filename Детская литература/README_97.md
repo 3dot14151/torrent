@@ -1,3 +1,29 @@
+###  Публикация: 687311   (598505) от 08.08.2013
+
+Ованес Туманян | Армянские Сказки [1953] [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_598505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий армянский поэт Ованес Туманян (1869–1923) является автором 22 обработок армянских народных сказок. Среди них сказки волшебные, новеллистические, бытовые, анекдоты. Туманян, используя многочисленные варианты, как армянских сказок, так и сказок других народов, создает как бы сводный текст, в котором присутствуют мотивы, эпизоды из разных вариантов. Известно, (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E5BA42044FF31EB33C6910023E1DCF74FABCCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232422   (598484) от 25.06.2018
 
 Евгений Лесников | Призыву по возрасту не подлежит (1981) [FB2]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598484.jpg" />
+  <img src="Z:/picture/008/save_picture_598484.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598464.jpg" />
+  <img src="Z:/picture/008/save_picture_598464.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598382.jpg" />
+  <img src="Z:/picture/008/save_picture_598382.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598329.jpg" />
+  <img src="Z:/picture/008/save_picture_598329.jpg" />
 </div>
 
 
@@ -116,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598304.jpg" />
+  <img src="Z:/picture/008/save_picture_598304.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598200.jpg" />
+  <img src="Z:/picture/008/save_picture_598200.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598196.jpg" />
+  <img src="Z:/picture/008/save_picture_598196.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598188.jpg" />
+  <img src="Z:/picture/008/save_picture_598188.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598170.jpg" />
+  <img src="Z:/picture/008/save_picture_598170.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598131.jpg" />
+  <img src="Z:/picture/008/save_picture_598131.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598074.jpg" />
+  <img src="Z:/picture/008/save_picture_598074.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598062.jpg" />
+  <img src="Z:/picture/008/save_picture_598062.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598061.jpg" />
+  <img src="Z:/picture/008/save_picture_598061.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598041.jpg" />
+  <img src="Z:/picture/008/save_picture_598041.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597793.jpg" />
+  <img src="Z:/picture/008/save_picture_597793.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597792.jpg" />
+  <img src="Z:/picture/008/save_picture_597792.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597631.jpg" />
+  <img src="Z:/picture/008/save_picture_597631.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596584.jpg" />
+  <img src="Z:/picture/008/save_picture_596584.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596569.jpg" />
+  <img src="Z:/picture/008/save_picture_596569.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596534.jpg" />
+  <img src="Z:/picture/008/save_picture_596534.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596502.jpg" />
+  <img src="Z:/picture/008/save_picture_596502.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596076.jpg" />
+  <img src="Z:/picture/008/save_picture_596076.jpg" />
 </div>
 
 
@@ -594,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595954.jpg" />
+  <img src="Z:/picture/008/save_picture_595954.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595948.jpg" />
+  <img src="Z:/picture/008/save_picture_595948.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595920.jpg" />
+  <img src="Z:/picture/008/save_picture_595920.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FBD7F4265F6DB07C2E6B4E2AE34C81602B6096D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039459   (595806) от 01.08.2016
-
-М. Салье (пер.) | Тысяча и одна ночь. Арабские сказки (2001) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга из серии «Лучшие сказки мира». Пересказ с арабского Салье М. из книги «Тысяча и одна ночь». Иллюстрации Чекмарёв П. Мы благодарим наших читателей за поддержку. Приятного Вам чтения!Жанр: Детская проза, сказкаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81C52F4910F53E67F78320C0184D2EFFC3091A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

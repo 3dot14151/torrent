@@ -1,3 +1,117 @@
+###  Публикация: 1407477   (464444) от 08.09.2020
+
+Madjenta - Insomnia (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_464444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mechanical [00:02:14]
+02 - Titanium [00:04:23]
+03 - 9 вал [00:03:59]
+04 - Вслед за ветром [00:03:49](   Читать дальше...   )Жанр: RockПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F827BD466127EB93864EAE58D229BA5CC3787C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 136884   (464388) от 24.09.2009
+
+АлисА - Концерты (1985-2009) [MP3|96 - 320 kb/s]<Рок>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_464388.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Изгой
+2. Армия жизни1985-2009Жанр: РокПродолжительность: 00:27:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058995   (464032) от 03.10.2016
+
+Омела - Хрустальная Сторона (2016) [MP3|320 Kbps] <Folk Rock, Folk Metal,  Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_464032.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ночное Вдохновение
+2. Память Бересты
+3. Травник
+4. Премьера(   Читать дальше...   )Жанр: Folk Rock, Folk Metal,  Progressive MetalПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1A1E31182B2063FF3F1E71317F56129C3819A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059012   (463904) от 03.10.2016
+
+Обе-Рек - Здесь (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обе-Рек представляют вниманию слушателей свой седьмой официальный альбом «Здесь». Как и прежде, в центре творческого внимания музыкантов остается конечный, смертный, страдающий и любящий человек. Само название релиза указывает на постановку актуально переживаемых проблем в этой конкретной исторической эпохе, культурном пространстве, наличной повседневности. Каждая (   Читать дальше...   )01. Здесь
+02. Ночная (Вечность)
+03. Цвет снов
+04. Лучший из миров(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD9E81ED16492CE5E529A0CC1F01385CDB8F6A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941454   (462713) от 27.09.2015
 
 Рогатые Трупоеды - Отруби Лихую Голову (2015) EP [MP3|320 кб/с]<Death Metal, Death'n'roll>
@@ -6,7 +120,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462713.jpg" />
+  <img src="Z:/picture/008/save_picture_462713.jpg" />
 </div>
 
 
@@ -35,7 +149,7 @@ Dругой Ветер - Альбом, которого нет (2020) [MP3|320 K
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462356.jpg" />
+  <img src="Z:/picture/008/save_picture_462356.jpg" />
 </div>
 
 
@@ -64,7 +178,7 @@ Billy's Band - Слегка (2016) [MP3|320 Kbps] <Blues, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461641.jpg" />
+  <img src="Z:/picture/008/save_picture_461641.jpg" />
 </div>
 
 
@@ -93,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460769.jpg" />
+  <img src="Z:/picture/008/save_picture_460769.jpg" />
 </div>
 
 
@@ -119,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460234.jpg" />
+  <img src="Z:/picture/008/save_picture_460234.jpg" />
 </div>
 
 
@@ -148,7 +262,7 @@ Alkonost - Песни Белой Лилии (2016) [MP3|320 Kbps] <Folk Metal, P
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459373.jpg" />
+  <img src="Z:/picture/008/save_picture_459373.jpg" />
 </div>
 
 
@@ -177,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459301.jpg" />
+  <img src="Z:/picture/008/save_picture_459301.jpg" />
 </div>
 
 
@@ -205,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457862.jpg" />
+  <img src="Z:/picture/008/save_picture_457862.jpg" />
 </div>
 
 
@@ -234,7 +348,7 @@ Gorky Park / Парк Горького - 6 альбомов (1989 - 2002) [MP3|3
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457034.jpg" />
+  <img src="Z:/picture/008/save_picture_457034.jpg" />
 </div>
 
 
@@ -263,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455748.jpg" />
+  <img src="Z:/picture/008/save_picture_455748.jpg" />
 </div>
 
 
@@ -292,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455160.jpg" />
+  <img src="Z:/picture/008/save_picture_455160.jpg" />
 </div>
 
 
@@ -321,7 +435,7 @@ The Сильное Непонимание - EATTHEREACH (2022) [MP3|320 Kbps] <P
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453818.jpg" />
+  <img src="Z:/picture/008/save_picture_453818.jpg" />
 </div>
 
 
@@ -350,7 +464,7 @@ Markscheider Kunst - Хамелеон (2016) [MP3|320 Kbps] <Ska, Afro-cuban jaz
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453219.jpg" />
+  <img src="Z:/picture/008/save_picture_453219.jpg" />
 </div>
 
 
@@ -379,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452672.jpg" />
+  <img src="Z:/picture/008/save_picture_452672.jpg" />
 </div>
 
 
@@ -408,7 +522,7 @@ Weesp - 4CD: (The Void/Black Sails/Crystal Clean Waters/Боль) (2015-2020) [M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451826.jpg" />
+  <img src="Z:/picture/008/save_picture_451826.jpg" />
 </div>
 
 
@@ -437,7 +551,7 @@ Radio Tapok - Последняя песня (2018) Single [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451091.jpg" />
+  <img src="Z:/picture/008/save_picture_451091.jpg" />
 </div>
 
 
@@ -463,7 +577,7 @@ Zero People - Красота (2018) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451054.jpg" />
+  <img src="Z:/picture/008/save_picture_451054.jpg" />
 </div>
 
 
@@ -492,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450114.jpg" />
+  <img src="Z:/picture/008/save_picture_450114.jpg" />
 </div>
 
 
@@ -518,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450099.jpg" />
+  <img src="Z:/picture/008/save_picture_450099.jpg" />
 </div>
 
 
@@ -547,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448494.jpg" />
+  <img src="Z:/picture/008/save_picture_448494.jpg" />
 </div>
 
 
@@ -576,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448492.jpg" />
+  <img src="Z:/picture/008/save_picture_448492.jpg" />
 </div>
 
 
@@ -605,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448147.jpg" />
+  <img src="Z:/picture/008/save_picture_448147.jpg" />
 </div>
 
 
@@ -619,123 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42997E1A9DD908BA590D268903B9ECDC05882777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 42036   (447782) от 06.09.2017
-
-Баба Яга - 2 альбома.  [1993, 1999] [MP3|192 CBR] <Folk/Rock>
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Secret Combination
-02 - Day To Die
-03 - Edge
-04 - You Can't Always Get What You Want(   Читать дальше...   )Жанр: Folk/RockПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D492257F70C691AF4F500F957AF7A7680B3716E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569890   (447303) от 15.08.2022
-
-Хаме-леоН - Крики! (2022) [MP3|320 Kbps] <Heavy Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Утро мёртвых [00:01:08]
-02 - Бежать! [00:04:42]
-03 - Navigator [00:06:38]
-04 - Я знаю имя [00:05:18](   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DDA0CBD33E25B791FBB0E11415252D9F8DA82BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569891   (447205) от 15.08.2022
-
-EVO - 2 Relises (2021-2022) [MP3|320 Kbps] <Alternative, Trancecore, Post-Hardcore, Electronik>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вечная зима [00:03:45]
-02. Проклятый таймлайн [00:02:49]
-03. Никому не говори [00:03:15]
-04. Босиком по Луне [00:03:13](   Читать дальше...   )Жанр: Alternative, Trancecore, Post-Hardcore, Electronik
-Страна исполнителя (группы): RussiaПродолжительность: 2 CD, 01:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CD9CA9369024E5FB50E55ED54804F2A74168B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943473   (446653) от 04.10.2015
-
-КняZz - Предвестник (2015) [MP3|320 кб/с]<Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Джокер - начало
- 02. Джокер - карта судьбы
- 03. Пассажир
- 04. Мечта безумца (Пролог)(   Читать дальше...   )Жанр: Punk-RockПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0942F4059BDD883953E4C05E8F394543446301AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

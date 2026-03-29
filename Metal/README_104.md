@@ -6,7 +6,7 @@ The Monster - Extervolution (2020) [MP3|320 Kbps] <Heavy, Power-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162358.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Moaning Silence - A Waltz Into Darkness (2020) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162342.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Olyphant - Destinies of the Soul (2020) [MP3|320 Kbps] <Progressive Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162266.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Northern Flame - Twisted Reality (2020) [MP3|320 Kbps] <Melodic Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162196.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jrago - Disconnect (2022) [MP3|320 Kbps] <Modern Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162091.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Briton Rites - 3 Albums (2010-2020) [MP3|V0/320 Kbps] <Heavy-Metal, Doom-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161468.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Briton Rites - Occulte Fantastique (2020) [MP3|320 Kbps] <Heavy Metal,  Doom Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161455.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Stealing Death - Speed Force (2020) [MP3|320 Kbps] <Heavy-Metal, Thrash-Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161443.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Waterhill - Sleepwalker (2020) [MP3|320 Kbps] <Melodic-Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161371.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Battle Born - Battle Born (2020/2022) EP [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160264.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Battle Born - Blood, Fire, Magic And Steel (2023) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160242.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Monje - Culto al fin de los tiempos (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159900.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Runelord - Doomsday Script (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159861.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Runelord - 3 Albums (2018-2022) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159626.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Ice Chemicals - Alchemy (2022) [MP3|320 Kbps] <Progressive Metal, Death Metal, M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159083.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Thammuz - Sons of the Occult (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159081.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kryuhm - Only in My Mind (2022) [MP3|320 Kbps] <Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159079.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mourning Beloveth - Rust & Bone (2015) [MP3|320 кб/с] <Doom-Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158703.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Axel Rudi Pell - Game Of Sins (2016) Deluxe Edition [MP3|320 кб/с] <Heavy Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158389.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Cosmitorium - Broken Archetypes (2023) [MP3|320 Kbps] <Progressive Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157745.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lipshok - Shadows Of A Dark Heart (2020) [MP3|320 Kbps] <Gothic Metal, Gothic Ro
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157223.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157114.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Soul Secret - Blue Light Cage (2020) [MP3|320 Kbps] <Progressive Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155129.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Chris Antony - Cause and Effect (2020) [MP3|320 Kbps] <Progressive Metal, Heavy 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155070.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Hebi Katana - Hebi Katana (2020) [MP3|320 Kbps] <Doom Metal, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155051.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Taleteller - The Path (2020) [MP3|320 Kbps] <Sympho Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155022.jpg" />
 </div>
 
 

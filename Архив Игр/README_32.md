@@ -6,7 +6,7 @@ Krater. Shadows over Solside - Collector's Edition (Lossless RePack/1.09f/DLC) [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614377.jpg" />
+  <img src="Z:/picture/008/save_picture_614377.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Endless Space [En] (Repack/1.09) 2012 | SxSxL
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614375.jpg" />
+  <img src="Z:/picture/008/save_picture_614375.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Kerbal Space Program (2015) [Ru] (1.7.0.2483/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611355.jpg" />
+  <img src="Z:/picture/008/save_picture_611355.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Deponia (RePack/1.1) [En] 2012 l R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610942.jpg" />
+  <img src="Z:/picture/008/save_picture_610942.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Alan Wake's American Nightmare [Multi10/+] (Steam-Rip/1.03.17.1781) 2012 | R.G. 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610936.jpg" />
+  <img src="Z:/picture/008/save_picture_610936.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Hyper Fighters [Wii] [NTSC] [ENG] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610187.jpg" />
+  <img src="Z:/picture/008/save_picture_610187.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Dreamfall Chapters (2014) [En] (3.0) Unofficial FairLight [Book One: Reborn, Boo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610160.jpg" />
+  <img src="Z:/picture/008/save_picture_610160.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.4.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609786.jpg" />
+  <img src="Z:/picture/008/save_picture_609786.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.3.11950/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609785.jpg" />
+  <img src="Z:/picture/008/save_picture_609785.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609042.jpg" />
+  <img src="Z:/picture/008/save_picture_609042.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Move or Die (2016) [Ru/Multi] (4.0.5) Repack Vse-Top
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607781.jpg" />
+  <img src="Z:/picture/008/save_picture_607781.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Alpha Protocol [Ru] (RePack/1.1) 2010 | R.G. Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606993.jpg" />
+  <img src="Z:/picture/008/save_picture_606993.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Trine Diolgy / Дилогия Trine (Repack) [Ru/En] 2009-2011 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605331.jpg" />
+  <img src="Z:/picture/008/save_picture_605331.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Alan Wake + Alan Wake's American Nightmare [Ru/En] (Repack) 2012 | R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605047.jpg" />
+  <img src="Z:/picture/008/save_picture_605047.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Alan Wake's American Nightmare (RePack/1.03.17.1781) [Ru] 2012 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605036.jpg" />
+  <img src="Z:/picture/008/save_picture_605036.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ MLB 14 The Show (2014) [PS3] [USA] 4.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604705.jpg" />
+  <img src="Z:/picture/008/save_picture_604705.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Foundation (2019) [Ru/Multi] (1.1.9.0419) License GOG [Early Access]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603505.jpg" />
+  <img src="Z:/picture/008/save_picture_603505.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Inversion (2012) [Ru] (5.48) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603022.jpg" />
+  <img src="Z:/picture/008/save_picture_603022.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Battlefleet Gothic: Armada 2 (2019) [Ru/Multi] (1.0/upd4) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602568.jpg" />
+  <img src="Z:/picture/008/save_picture_602568.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ POSTAL 4: No Regerts (2022) [En] (1.0.2) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601928.jpg" />
+  <img src="Z:/picture/008/save_picture_601928.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Tales From The Borderlands Episodes 1-3 (2015) [PS3] [USA] 4.21 [Cobra ODE / E3 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600868.jpg" />
+  <img src="Z:/picture/008/save_picture_600868.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Rodea the Sky Soldier (Tenkuu no Kishi Rodea) (2015) [Wii] [NTSC-J]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599680.jpg" />
+  <img src="Z:/picture/008/save_picture_599680.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Deputy Dangle (2016) [En] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599285.jpg" />
+  <img src="Z:/picture/008/save_picture_599285.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Terraria (2011) [Multi] (1.3.0.1) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599249.jpg" />
+  <img src="Z:/picture/008/save_picture_599249.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Hard Reset: Extended Edition [Ru] (Repack/1.51) 2011 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598797.jpg" />
+  <img src="Z:/picture/008/save_picture_598797.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Counter-Strike v.1.6 Professional Edition [Ru] 2009 | CS-REDEMAX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598284.jpg" />
+  <img src="Z:/picture/008/save_picture_598284.jpg" />
 </div>
 
 

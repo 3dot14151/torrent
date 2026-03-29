@@ -1,3 +1,61 @@
+###  Публикация: 919753   (581056) от 21.07.2015
+
+Barry Goldberg & John Philip Shenale - Return of the Living Dead 3 (1993) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_581056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Title
+02. Enter The Isolation Room
+04. Osc'scope Zombie
+05. Zombie A Go Go(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B3EF4C8280792BB28572BEF29E641F7F8C661F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042093   (580581) от 11.08.2016
+
+Lisa Downing - The Wisdom of My Shadow (2016) [MP3|320 Kbps] <New Age, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forbidden Dance
+02. Tragic Dream
+03. Black Wedding
+04. Mischief(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD10BFE5722F450DBAC0119492F1E25A36AB00BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041882   (580142) от 11.08.2016
 
 Mgzavrebi - Mgzavruli (2014) [FLAC|Lossless|tracks + .cue] <Folk, Pop-Rock, Georgian Folk>
@@ -6,7 +64,7 @@ Mgzavrebi - Mgzavruli (2014) [FLAC|Lossless|tracks + .cue] <Folk, Pop-Rock, Geor
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580142.jpg" />
+  <img src="Z:/picture/008/save_picture_580142.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Little Wolf Band - 4 альбома (1995-2008) discography [MP3|320 кб/с]<Na
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580131.jpg" />
+  <img src="Z:/picture/008/save_picture_580131.jpg" />
 </div>
 
 
@@ -63,7 +121,7 @@ Midori - Island Paradise (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580130.jpg" />
+  <img src="Z:/picture/008/save_picture_580130.jpg" />
 </div>
 
 
@@ -91,7 +149,7 @@ Michael Giacchino - Мир Юрского периода / Jurassic World (Origi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578779.jpg" />
+  <img src="Z:/picture/008/save_picture_578779.jpg" />
 </div>
 
 
@@ -120,7 +178,7 @@ The Blue-Gold Shore of the Beyond (Лазурно-Золотой Берег За
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578004.jpg" />
+  <img src="Z:/picture/008/save_picture_578004.jpg" />
 </div>
 
 
@@ -149,7 +207,7 @@ Gregorian - Masters Of Chant Chapter II (+bonus tracks) (2001) [FLAC|Lossless|im
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577992.jpg" />
+  <img src="Z:/picture/008/save_picture_577992.jpg" />
 </div>
 
 
@@ -178,7 +236,7 @@ VA - Latino Fitness 2017 (The Ultimate Latin Keep Fit Workout) [MP3|320 Kbps] <L
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577880.jpg" />
+  <img src="Z:/picture/008/save_picture_577880.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ Yogeshwara - 2 albums (1997, 2003) [MP3|112-256 kbps]<New age, Meditative, Mantr
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577200.jpg" />
+  <img src="Z:/picture/008/save_picture_577200.jpg" />
 </div>
 
 
@@ -233,7 +291,7 @@ VA - Simply Spa Chill (2010) 4CD[FLAC|image+.cue]<New Age, Meditative, Peaceful 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577161.jpg" />
+  <img src="Z:/picture/008/save_picture_577161.jpg" />
 </div>
 
 
@@ -262,7 +320,7 @@ Jamestown Revival - San Isabel (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576311.jpg" />
+  <img src="Z:/picture/008/save_picture_576311.jpg" />
 </div>
 
 
@@ -291,7 +349,7 @@ Michael Forster - Piano Chill (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576179.jpg" />
+  <img src="Z:/picture/008/save_picture_576179.jpg" />
 </div>
 
 
@@ -320,7 +378,7 @@ Vartra - Basma (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom M
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575764.jpg" />
+  <img src="Z:/picture/008/save_picture_575764.jpg" />
 </div>
 
 
@@ -349,7 +407,7 @@ Ennio Morricone - Allonsanfan (1978) [FLAC|image+.cue]<OST>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575419.jpg" />
+  <img src="Z:/picture/008/save_picture_575419.jpg" />
 </div>
 
 
@@ -378,7 +436,7 @@ Acoustic Sound Orchestra - World Hits Instrumental Vol.1-4 (1994) [MP3|320 кб/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574719.jpg" />
+  <img src="Z:/picture/008/save_picture_574719.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Romantic & SAX (2011) [MP3|320 kbps]<Instrumental / saxophone>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574712.jpg" />
+  <img src="Z:/picture/008/save_picture_574712.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Deep Forest, Gaudi - Epic Circuits (2018) [MP3|320 Kbps] <New age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574417.jpg" />
+  <img src="Z:/picture/008/save_picture_574417.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Shinnobu - The Enigma V (Masterminds) (2018) [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574254.jpg" />
+  <img src="Z:/picture/008/save_picture_574254.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ Catherine Duc - Voyager (2015) [MP3|320 кб/с]<New Age, Ambient, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573699.jpg" />
+  <img src="Z:/picture/008/save_picture_573699.jpg" />
 </div>
 
 
@@ -525,7 +583,7 @@ Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573592.jpg" />
+  <img src="Z:/picture/008/save_picture_573592.jpg" />
 </div>
 
 
@@ -554,7 +612,7 @@ Andrew Lockington - Землетрясение в Сан - Андреас / Ра
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573573.jpg" />
+  <img src="Z:/picture/008/save_picture_573573.jpg" />
 </div>
 
 
@@ -583,7 +641,7 @@ X Cultures - One World, One People (1999) [MP3|320 кб/с]<New Age, Ethnic, Fol
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573300.jpg" />
+  <img src="Z:/picture/008/save_picture_573300.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ Ilyin - EP-0002. Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572750.jpg" />
+  <img src="Z:/picture/008/save_picture_572750.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572709.jpg" />
+  <img src="Z:/picture/008/save_picture_572709.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Moti
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572683.jpg" />
+  <img src="Z:/picture/008/save_picture_572683.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Moti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BC25BB8D15609D2BE62169B7038C40CD18A1B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234227   (572491) от 04.07.2018
-
-Deep Forest & Gaudi - Epic Circuits (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellar
-02. Taiyo
-03. Brassy Sunrise
-04. Ghostly Disco(   Читать дальше...   )Жанр: Ambient, Downtempo,New AgeПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A46CEB1A0BFDF0392C0B7E0CD2DA815D41B6B07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043144   (572371) от 16.08.2016
-
-Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечность (Music From The Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Logo And Prosper (01:45)
-02. Thank Your Lucky Star (02:13)
-03. Night On The Yorktown (05:34)
-04. The Dance Of The Nebula (02:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988DB1F52AD8FE0EC354C1E2E9B7A5EEE8BFE53F
 ```
 
 https://mybot314.ru/tekegram_catalog/

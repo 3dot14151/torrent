@@ -1,3 +1,119 @@
+###  Публикация: 1642166   (234808) от 26.06.2023
+
+Carmen Lundy - Fade To Black (2022) Afrasia Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine a Light [8:07]
+02. So Amazing [3:31]
+03. Daughter of the Universe [5:39]
+04. Ain't I Human [3:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE626FC1EB60CCA80EB925B74099785FFBB126C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621339   (234802) от 24.03.2023
+
+George Kawaguchi - Best: 50 Years Anniversary (1995) King Record [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. EJ Blues [10:53]
+02. George's Boogie (from 'Drum Boogie') [17:02]
+03. Watermelon Man [5:55]
+04. Maiden Voyage [8:17](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6334A00AD7BA7174619C85EA969C634E84799593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621131   (234783) от 24.03.2023
+
+Walt Weiskopf - Song For My Mother (1996) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outsider [7:14]
+02. Three Armed Man [5:23]
+03. Barebones [6:46]
+04. End of the Year So Soon [5:31](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1359939C896BB9803FA41FA7A5491CB29D47EDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642382   (234767) от 27.06.2023
+
+Bob Brookmeyer - The Dual Role Of Bob Brookmeyer (1954, 1955) 2014, Prestige [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocky Scotch [4:41]
+02. Under The Lilacs [5:07]
+03. They Say It's Wonderful [5:49]
+04. Potrezebie [4:50](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CF03A264A04767C576D83CF543BFC1A8FE3C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621341   (234753) от 24.03.2023
 
 Sarah Vaughan & Woody Herman - On The Radio: The 1963 'Live' Guard Sessions (2008) Acrobat Music [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
@@ -6,7 +122,7 @@ Sarah Vaughan & Woody Herman - On The Radio: The 1963 'Live' Guard Sessions (200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234753.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bob Albanese Trio With Ira Sullivan - One Way / Detour (2009) Zoho [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234736.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Nana Rashid - Music For Betty (2023) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234705.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Danilo Perez - The Journey (1994) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234640.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Benny Golson - Gettin' With It (1959) 1995, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234524.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Aberdeen - Held Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Brass Band, Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234502.jpg" />
 </div>
 
 
@@ -177,7 +293,7 @@ George Kawaguchi & The Super Band - Super Drums 1 + 2 (1985) King Record [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234494.jpg" />
 </div>
 
 
@@ -206,7 +322,7 @@ Amandus - Her Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234450.jpg" />
 </div>
 
 
@@ -235,7 +351,7 @@ Luciana Souza - Storytellers (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234431.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Lynn Cannon - Just Chillin'! (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234427.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ Out To Dinner - Episodes Of Grace (2022) Posi-Tone [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234419.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ Roberto Gatto - Replay (2012) Parco Della Musica Records [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234402.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ Igor Fedotov - Believe in Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234387.jpg" />
 </div>
 
 
@@ -380,7 +496,7 @@ Jeff Coffin - Between Dreaming And Joy (2022) Ear Up Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234359.jpg" />
 </div>
 
 
@@ -409,7 +525,7 @@ Papik & Sea Breeze - West Coast Rendez Vous (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234343.jpg" />
 </div>
 
 
@@ -438,7 +554,7 @@ Sun Ra Arkestra - Living Sky (2022) Omni Sound [FLAC|Lossless|tracks + .cue] <Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234284.jpg" />
 </div>
 
 
@@ -467,7 +583,7 @@ The United States Army Field Band Jazz Ambassadors - The Legacy Of Stan Kenton (
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234280.jpg" />
 </div>
 
 
@@ -496,7 +612,7 @@ Ron Kalina - Getting My Axes Together (2004) Kalinor Music [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234274.jpg" />
 </div>
 
 
@@ -525,7 +641,7 @@ Eddie Henderson - Shuffle And Deal (2020) Smoke Sessions Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234273.jpg" />
 </div>
 
 
@@ -554,7 +670,7 @@ Benny Golson Group - Remembering Clifford (1998) Milestone [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234271.jpg" />
 </div>
 
 
@@ -583,7 +699,7 @@ Eddie Henderson - Be Cool (2018) Smoke Sessions Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234260.jpg" />
 </div>
 
 
@@ -612,7 +728,7 @@ European Jazz Trio - Barcelona's Flame (1990) Alfa Jazz [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234254.jpg" />
 </div>
 
 
@@ -626,122 +742,6 @@ European Jazz Trio - Barcelona's Flame (1990) Alfa Jazz [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80EC55A7E0664E1614974CD170F58EABE1FD007D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633646   (234234) от 16.05.2023
-
-Kenni Holmen - Saxophone Serenade (1995) NorthWord Press [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Breezes [4:45]
-02. A Stroll in Central Park [6:31]
-03. Voices in the Dark [2:06]
-04. Dawn's Reflection [7:38](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4876EFB48262AFEB6A76F95674AF6DAC5A1F9A6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547034   (234232) от 26.04.2022
-
-Ray Drummond - Continuum (1994) Arabesque Jazz [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Blues from the Sketchpad [7:32]
-02. Equipoise [6:57]
-03. The Intimacy of the Blues [5:08]
-04. Gloria's Step [11:58](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304961439C315149906AC531B4D9DCCF9B197514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622798   (234217) от 30.03.2023
-
-Wynton Marsalis - Uptown Ruler: Soul Gestures in Southern Blue, Vol. 2 (1991) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psalm 26 [1:29]
-02. Uptown Ruler [11:11]
-03. The Truth Is Spoken Here [6:50]
-04. The Burglar [8:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64E65042784F8566A89A633B1BF07FCCF0187AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644089   (234157) от 04.07.2023
-
-Carlos Montoya - Flamenco Meets Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <World Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Alegría-Rosa 03:38
-02 - Blues In The Night 03:37
-03 - Zapateado 03:39
-04 - Antonio Vargas Heredia 05:02(   Читать дальше...   )Жанр: World JazzПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF1D7F54BADECE558E7E0022CA6F5D66EFFF660
 ```
 
 https://mybot314.ru/tekegram_catalog/

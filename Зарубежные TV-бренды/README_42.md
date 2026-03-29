@@ -1,3 +1,108 @@
+###  Публикация: 1219018   (717522) от 12.04.2018
+
+NGW: Выживание в Серенгети / Surviving the Serengeti (2015) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717522.jpg" />
+</div>
+
+
+###  Подробнее
+
+От вершин самых высоких гор и до неистовых рек, мир полон враждебных мест, но есть животные, которым удаётся в них выживать и процветать.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Алан Миллер, Йохем ван РейсПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8340A15562CBC5B0747ADC2D1D441B73383A360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219131   (717513) от 12.04.2018
+
+NGW: Африканская суперзмея / Africa's super snake (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717513.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Квазулу-Натале, В Южной Африке, обитают ужасающие питоны, прославившиеся своими размерами, силой и репутацией людоедов.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джесс РейссПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E07370D10CF0A11B307653C61AA44C128FA8171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219021   (717511) от 12.04.2018
+
+NGW: Переменчивые животные. Подростковые кошмары / Moody Beasts. Teen Terrors (2016) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что нужно, чтобы выжить? В природе нет воспитания. Уроки жизни в дикой природе не бывают ласковыми. Наоборот, они сваливаются на голову, стоит только существу выйти в самостоятельную жизнь. В этом интенсивном эпизоде вы понаблюдаете за животными, которые только начинают своё путешествие по миру за пределами родительской заботы. Сталкиваясь с испытаниями, к которым (   Читать дальше...   )Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джонатан ГрупперПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C241C83008D6AA6CE78110E43073DA0301A17175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 879546   (717475) от 08.06.2016
+
+BBC: Горизонт - Как убить человека / Horizon - How to Kill a Human Being (2008) DVBRip [EN / RU Sub]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший член британского парламента Майкл Портильо, толкает себя на грань жизни и смерти в исследовании науки смертной казни.
+В то время как американский Верховный суд рассматривает вопрос о болезненности применения смертельной инъекции, Майкл намеревается найти действительно гуманный способ казни. Для этого он исследует основные способы казни применяемые сегодня: (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйПеревод: СубтитрыЯзык субтитров: Русский (перевод: BobbyCat, GematoGen.Tomsk), английскийПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9822711247E825FF3F77A2E1E9510C7BAC9E42D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219128   (717408) от 12.04.2018
 
 NGW: Дикая природа Дальнего Востока / Wild Far East (2017) HDTV [H.264/1080i-LQ]
@@ -6,7 +111,7 @@ NGW: Дикая природа Дальнего Востока / Wild Far East (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717408.jpg" />
+  <img src="Z:/picture/008/save_picture_717408.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ NGW: Переменчивые животные. Брачные игры / Moody 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717391.jpg" />
+  <img src="Z:/picture/008/save_picture_717391.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Discovery: Как сконструировать человека / Discovery: H
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_717357.jpg" />
+  <img src="Z:/picture/005/save_picture_717357.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ NGW: Город выдр / Otter town (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717307.jpg" />
+  <img src="Z:/picture/008/save_picture_717307.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ NGW: Супер-белки / Super Squirrel (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717304.jpg" />
+  <img src="Z:/picture/008/save_picture_717304.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ NGW: Дикие маленькие кошки / Wild little cats (2017) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717302.jpg" />
+  <img src="Z:/picture/008/save_picture_717302.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716719.jpg" />
+  <img src="Z:/picture/008/save_picture_716719.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716707.jpg" />
+  <img src="Z:/picture/008/save_picture_716707.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716619.jpg" />
+  <img src="Z:/picture/008/save_picture_716619.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ BBC: Океаны: Наша Голубая Планета / Oceans: Our Blue Pla
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716431.jpg" />
+  <img src="Z:/picture/008/save_picture_716431.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716351.jpg" />
+  <img src="Z:/picture/008/save_picture_716351.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ NG: 1989: Год, сотворивший современный мир / 1989: T
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716274.jpg" />
+  <img src="Z:/picture/008/save_picture_716274.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716226.jpg" />
+  <img src="Z:/picture/008/save_picture_716226.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ Discovery. Через червоточину с Морганом Фримено�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715866.jpg" />
+  <img src="Z:/picture/008/save_picture_715866.jpg" />
 </div>
 
 
@@ -371,7 +476,7 @@ NG: Самые страшные стихийные бедствия: Торна�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715815.jpg" />
+  <img src="Z:/picture/008/save_picture_715815.jpg" />
 </div>
 
 
@@ -397,7 +502,7 @@ NGW: Кровавые соперники: гиппопотамы против л
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715732.jpg" />
+  <img src="Z:/picture/008/save_picture_715732.jpg" />
 </div>
 
 
@@ -423,7 +528,7 @@ NGW: Самые опасные животные. Безумные акулы / W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715726.jpg" />
+  <img src="Z:/picture/008/save_picture_715726.jpg" />
 </div>
 
 
@@ -449,7 +554,7 @@ History Channel. Войны Юрского периода / Jurassic Fight Club 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715456.jpg" />
+  <img src="Z:/picture/008/save_picture_715456.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ PBS. Секреты меча викингов / Secrets of the Viking Sword (201
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715422.jpg" />
+  <img src="Z:/picture/008/save_picture_715422.jpg" />
 </div>
 
 
@@ -501,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714665.jpg" />
+  <img src="Z:/picture/008/save_picture_714665.jpg" />
 </div>
 
 
@@ -527,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714399.jpg" />
+  <img src="Z:/picture/008/save_picture_714399.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ Discovery. Что скрывает Солнце / The Dark Side of the Sun (2017
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713937.jpg" />
+  <img src="Z:/picture/008/save_picture_713937.jpg" />
 </div>
 
 
@@ -564,110 +669,6 @@ Discovery. Что скрывает Солнце / The Dark Side of the Sun (2017
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A3FA8B292DA76DCDE3A4A87CB781179ED0419D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219444   (713772) от 14.04.2018
-
-NG: Фото-ковчег / Photo Ark (2017) HDTVRip (3 серии из 3) [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Присоединяйтесь к Джоэлу Саторе в его путешествии на Мадагаскар и Флорида-Кис, чтобы сфотографировать красивых и вымирающих животных.Телекомпания: NGWЖанр: Документальный, Природа, Фауна, ФлораПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:14+00:43:57+00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052214CFC9A37A3DDEDB1EC975721CD722F961B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705440   (713535) от 10.06.2016
-
-BBC. Horizon. Миссия на Марс / Horizon. Mission To Mars (2012) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713535.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой серии Вы проникнете за кулисы НАСА, в то время когда там ведётся обратный отсчет времени до посадки марсохода "Curiosity" стоимостью в 2,5 миллиарда долларов на поверхность Марса. Мы увидим все за шесть дней до посадки. Марсоход размером с автомобиль будет спущен лебедкой вниз на поверхность Красной планеты краном с ракетным двигателем. Это в том (   Читать дальше...   )Жанр: Документальный, научно-познавательный, космосПеревод: Двухголосый закадровый (профессиональный)Субтитры: вшитые отключаемыеЯзык субтитров: русский, английскийПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6A853FF5A312C5545EE0CD96D52C7F451BDFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881669   (712991) от 29.04.2015
-
-NG. Суперсооружения Третьего рейха / Nazi Megastructures (Megastructures: Nazi Mega Weapons) (2014) HDTVRip (сезон 2, серии 1, 5, 6 из 6) [обновляемая]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712991.jpg" />
-</div>
-
-
-###  Подробнее
-
-В стремлении к мировому господству нацисты построили некоторые из самых амбициозных и прогрессивных образцов боевой техники, а также разработали самые злодейские технологии в истории; создали продвинутые машины террора, огромные оборонительные системы и оружие массового уничтожения, чтобы завоевать континент и выиграть войну. Этот сериал о Второй Мировой войне рассказывает (   Читать дальше...   )Телекомпания: США, PBSЖанр: Документальный, война, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~ 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F2E8AB89507241BD8D70C289E90D808244EE76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286336   (712862) от 02.03.2019
-
-BBC. Как вырастить планету / How to Grow a Planet (2012) BDRemux [H.264/1080i] (Сезон 1, серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712862.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сериале профессор Ийан Стюарт рассказывает нам о новой, увлекательной версии истории формирования биогенеза, которую прошла наша планета. Показывая нам, сколь велики изменения, которые были вызваны, прежде всего обитателями растительного царства. Его рассказ повествует о древней эволюции представителей флоры и фауны Земли.Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, исследование, природа, животный мирРежиссер: Ник Шулинджин Джордан, Найджел УолкПеревод: Многоголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: серии x ~ 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5570B242929DE02250D93BEFAD6ACAEFE08082
 ```
 
 https://mybot314.ru/tekegram_catalog/

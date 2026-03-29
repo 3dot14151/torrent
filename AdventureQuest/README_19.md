@@ -1,3 +1,81 @@
+###  Публикация: 1118359   (812629) от 25.03.2017
+
+Nancy Drew: The Deadly Device / Нэнси Дрю: Смертоносное устройство (2012) [Ru] (1.0) Unofficial InMad
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_812629.jpg" />
+</div>
+
+
+###  Подробнее
+
+После загадочной смерти физика, некогда спокойную уединенную лабораторию окутал страх. Полицейское расследование среди холодных стальных стен сверхсекретной лаборатории зашло в тупик, уткнувшись в безразличие ученых, продолжающих исследования Теслы. В 27 части серии Нэнси Дрю предстоит расследовать убийство учёного, совершившего научное открытие и собиравшегося поведать (   Читать дальше...   )Тип издания: UnofficialРазработчик: Her InteractiveЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B238F070AB1BDB22A83783B74BE1AAE9998632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118524   (812558) от 25.03.2017
+
+The Witness (2016) [Ru/Multi] (964-Ansel(A)) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_812558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы просыпаетесь в полном одиночестве на острове, полном загадок, которые удивят вас и бросят вызов смекалке и воображению. Вы не помните ни своего имени, ни того, как вы тут очутились. Остается одно: как следует изучить окрестности в поисках улик и подсказок, которые помогут вспомнить прошлое и вернуться домой. The Witness – однопользовательская игра в открытом мире (   Читать дальше...   )Тип издания: LicenseРазработчик: Number NoneЖанр: Приключение, Головоломка, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD0E3DBDE2700DB4823B556202DAAB3402A28A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091978   (812544) от 25.03.2017
+
+Samorost 3 (2016) [Ru/Multi] (1.4.465) License GOG [Cosmic Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_812544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Samorost 3 - приключенческая исследовательская игра-головоломка от создателей известных игр Machinarium и Botanicula. Это самый амбициозный проект Amanita Design на сегодняшний день на основе популярных инди-игр Samorost и Samorost 2. Samorost 3 следует вслед за любопытным космическим гномом, путешествующим по космосу с помощью волшебной флейты и стремящимся добраться (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: Adventure (Puzzle)Язык озвучки: СимплишЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A70134102873CDD2C5B8897502A1A589742F84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118661   (810738) от 26.03.2017
 
 Zero Escape: The Nonary Games (2017) [En/Ja] (1.0) License CODEX
@@ -6,7 +84,7 @@ Zero Escape: The Nonary Games (2017) [En/Ja] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810738.jpg" />
+  <img src="Z:/picture/008/save_picture_810738.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2509) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809496.jpg" />
+  <img src="Z:/picture/008/save_picture_809496.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Mutazione (2019) [Ru/Multi] (1.84) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807813.jpg" />
+  <img src="Z:/picture/008/save_picture_807813.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Corpse Party (2021) (2021) [Multi] (2021-10-20) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807679.jpg" />
+  <img src="Z:/picture/008/save_picture_807679.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ DYING: Reborn (2018) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807633.jpg" />
+  <img src="Z:/picture/008/save_picture_807633.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Q.U.B.E. 2 (2018) [Ru/Multi] (1.8/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807414.jpg" />
+  <img src="Z:/picture/008/save_picture_807414.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Bottle (2016) [En] (1.0.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807187.jpg" />
+  <img src="Z:/picture/008/save_picture_807187.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Lost Souls (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805240.jpg" />
+  <img src="Z:/picture/008/save_picture_805240.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Has-Been Heroes (2017) [Multi] (1.00.9762) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804893.jpg" />
+  <img src="Z:/picture/008/save_picture_804893.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ TheNightfall (2018) [Multi] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804223.jpg" />
+  <img src="Z:/picture/008/save_picture_804223.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ TheNightfall (2018) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803990.jpg" />
+  <img src="Z:/picture/008/save_picture_803990.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ The Talos Principle (2014) [Ru/Multi] (326589/dlc) Repack R.G. Механики 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803975.jpg" />
+  <img src="Z:/picture/008/save_picture_803975.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ The Wolf Among Us (2013-2014) [Multi] (1.0) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802378.jpg" />
+  <img src="Z:/picture/008/save_picture_802378.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Life Is Strange Dilogy (2015-2017) [Ru/Multi] (1.0.0.397609/1.2.0.7.1712051016) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802370.jpg" />
+  <img src="Z:/picture/008/save_picture_802370.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Dagon: by H. P. Lovecraft (2021) [Ru/Multi] (2021.10.23:028) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802304.jpg" />
+  <img src="Z:/picture/008/save_picture_802304.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Observer: System Redux (2020) [Ru/Multi] (r24065) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802192.jpg" />
+  <img src="Z:/picture/008/save_picture_802192.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Return to Mysterious Island / Возвращение на таинственны
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801418.jpg" />
+  <img src="Z:/picture/008/save_picture_801418.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Gomo (2016) [Ru/Multi] (1.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801002.jpg" />
+  <img src="Z:/picture/008/save_picture_801002.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ Live Or Die (2021) [En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800821.jpg" />
+  <img src="Z:/picture/008/save_picture_800821.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ DYING: Reborn (2018) [Multi] (1.0) Repack MAXSEM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800818.jpg" />
+  <img src="Z:/picture/008/save_picture_800818.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Observation (2019) [Ru/Multi] (1.16) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800780.jpg" />
+  <img src="Z:/picture/008/save_picture_800780.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Indicted (2021) [Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800772.jpg" />
+  <img src="Z:/picture/008/save_picture_800772.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Horror Story: Hallowseed (2021) [Ru/Multi] (1.0.0a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800721.jpg" />
+  <img src="Z:/picture/008/save_picture_800721.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Horror Story: Hallowseed – одиночная игра с глубоким с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DB520FE51F5B14A414550380858F97701BFF3CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303706   (800691) от 22.05.2020
-
-Observation (2019) [Ru/Multi] (1.16) Repack Other s
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Observation — это научно-фантастический триллер, в котором вам предстоит взять на себя роль системы искусственного интеллекта S.A.M. на космической станции и раскрыть тайну событий, произошедших с доктором Эммой Фишер и её командой. Играя за S.A.M., вы будете использовать системы управления станцией, камеры и инструменты, чтобы помочь Эмме понять, что происходит (   Читать дальше...   )Тип издания: RepackРазработчик: No CodeЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEFDAB3E492A1D64DB14F7AA5F97130E2CAFF32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121553   (800160) от 02.04.2017
-
-Dreamfall Chapters (2014) [Multi] (5.4.1.1) License PROPHET [Complete]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamfall Chapters - это сюжетно-ориентированная эпизодическая адвенчура о выборе и последствиях, сновидениях и реальности, магии и науке, хаосе и порядке, а также сломленных героях, действия которых могут изменить ход истории во всех мирах. Действие игры разворачивается в двух параллельных мирах.Первый выдержан в стиле мрачного футуристического киберпанка, другой (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Thread Games, Blink StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC78958CA037B7805808AAE7721C9672A8C7454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118729   (800021) от 02.04.2017
-
-Nancy Drew: The Silent Spy / Нэнси Дрю: Безмолвный шпион (2013) [Ru] (1.0) Unofficial ImMad
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло почти десять лет с тех пор, как агент Кейт Дрю, мать главной героини, отправилась на задание по уничтожению биохимического оружия в Шотландии. Все прошло успешно, но Кейт попала в аварию после этого и погибла… по крайней мере, так сообщили ее дочери. Ныне история повторяется и уже Нэнси Дрю берется за раскрытие спящей ячейки и тайн прошлого.Тип издания: UnofficialРазработчик: Her InteractiveЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7381E28F7B85B69A36C4AF71025B709A52D5299
 ```
 
 https://mybot314.ru/tekegram_catalog/

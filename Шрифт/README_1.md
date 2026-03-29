@@ -1,3 +1,111 @@
+###  Публикация: 1365281   (931503) от 06.03.2020
+
+Шрифты - Creative Market - Signation - Handlettering Font - 4193473 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Signation - С основным стилем рукописного письма будет очень примечательный, если к нему добавить различные варианты (заглавные буквы), а также стилистические наборы, которые очень подходят. Signation очень подходит для использования в различных средствах массовой информации, таких как: упаковка, логотипы, этикетки, плакаты, дизайн рубашки, цитаты мудрости, бюллетени, (   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA0DE897287F041978607CCFD078A61E4B03E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986884   (928539) от 15.02.2016
+
+Шрифты - Decorative and script fonts [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка Декоративных и рукописных шрифтов.
+Автор подборкиФормат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18BB0732BD59C11E85D4BFA8E8CEFC36351A0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986919   (928536) от 15.02.2016
+
+Шрифты - Exclusive Cyrillic fonts [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивные кириллические шрифты.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992FCD5922C0977374CDFE95CA9A19195E34E3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096187   (920517) от 23.01.2017
+
+Шрифты - Astakhov Skin / Астахов Кожа [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчик: D. Astakhov
+Количество / Штук: 2
+
+Поддержка кириллицы: Есть (Русская, Украинская, Белорусская, Молдавская)(   Читать дальше...   )Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAB849858F04C50B05F4776358EF7301728081D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989361   (916348) от 22.02.2016
 
 Шрифты - Кириллические шрифты в количестве 1585 штук [TTF, OTF]
@@ -6,7 +114,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916348.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908388.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901778.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897457.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897370.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897256.jpg" />
 </div>
 
 
@@ -168,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896811.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889012.jpg" />
+  <img src="Z:/picture/005/save_picture_889012.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888645.jpg" />
+  <img src="Z:/picture/005/save_picture_888645.jpg" />
 </div>
 
 
@@ -246,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883137.jpg" />
+  <img src="Z:/picture/005/save_picture_883137.jpg" />
 </div>
 
 
@@ -272,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878738.jpg" />
+  <img src="Z:/picture/005/save_picture_878738.jpg" />
 </div>
 
 
@@ -298,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875920.jpg" />
+  <img src="Z:/picture/005/save_picture_875920.jpg" />
 </div>
 
 
@@ -325,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871343.jpg" />
+  <img src="Z:/picture/008/save_picture_871343.jpg" />
 </div>
 
 
@@ -352,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867536.jpg" />
+  <img src="Z:/picture/008/save_picture_867536.jpg" />
 </div>
 
 
@@ -378,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864137.jpg" />
+  <img src="Z:/picture/008/save_picture_864137.jpg" />
 </div>
 
 
@@ -407,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864043.jpg" />
+  <img src="Z:/picture/008/save_picture_864043.jpg" />
 </div>
 
 
@@ -433,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862715.jpg" />
+  <img src="Z:/picture/008/save_picture_862715.jpg" />
 </div>
 
 
@@ -462,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860450.jpg" />
+  <img src="Z:/picture/008/save_picture_860450.jpg" />
 </div>
 
 
@@ -488,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860445.jpg" />
+  <img src="Z:/picture/008/save_picture_860445.jpg" />
 </div>
 
 
@@ -514,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858779.jpg" />
+  <img src="Z:/picture/008/save_picture_858779.jpg" />
 </div>
 
 
@@ -540,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853137.jpg" />
+  <img src="Z:/picture/008/save_picture_853137.jpg" />
 </div>
 
 
@@ -566,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851843.jpg" />
+  <img src="Z:/picture/008/save_picture_851843.jpg" />
 </div>
 
 
@@ -580,110 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D92C682F210B18097B2BC9F511BC3843FE79A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111625   (848165) от 05.03.2017
-
-Шрифты - CreativeMarket - ChapterOne - 4 Font Styles+Extras [TTF, OTF, AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848165.jpg" />
-</div>
-
-
-###  Подробнее
-
-ChapterOne интересный шрифт, с старинным конденсированным характером и OpenType особенностью. Этот пакет включает специальные принадлежности - логотип, и вы можете редактировать это. Подходит и применяется для создания дизайна брендов, логотипов, упаковок продукции, приглашений, этикеток и многое другое.Формат: TTF, OTF, AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73AA28C74C91A97DE0335BD08E721E0A7194D861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111639   (848163) от 05.03.2017
-
-Шрифты - CreativeMarket - daydream [OTF, TTF, SVG, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daydream является шрифтом, который имеет характер вверх и вниз, как танцор. Шрифт имеет очень уникальный стиль каллиграфии, он очень подходит для использования в работе современного дизайна. Может использоваться в качестве заголовков, логотипов, свадебных приглашений и многое другое.Формат: OTF, TTF, EOT, SVG, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BD81E26783BE9324C5D20346B4A26FE7CF9363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111633   (848155) от 05.03.2017
-
-Шрифты - CreativeMarket - Borders, a hand brushed font [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый и оригинальный шрифт похожий на кисть, который имеет верхний и нижний регистр символов.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8302D0E3CC79CD406BE7B52BC935AFA8245794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111727   (846405) от 06.03.2017
-
-Шрифты - CreativeMarket - Rhinos Rocks +Swashes [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846405.jpg" />
-</div>
-
-
-###  Подробнее
-
-RHINOS ROCKS является кистевым шрифт, он включая все глифы США и поставляется в обычной и наклонной версии. Сделано с круглым маркером и реалистичные движения в нем. Очень интересно использовать для логотипов, упаковок продуктов, товаров, поздравительных открыток и многое другое.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280D2B29BF91DD70F95409EB1D93864509C5C4D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

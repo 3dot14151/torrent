@@ -1,3 +1,160 @@
+###  Публикация: 1424218   (132832) от 02.12.2023
+
+The Flower Kings (Roine Stolt) - 21 albums, 2 Box-sets, 44CD (1994-2023) [FLAC|Lossless|image + .cue] <Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132832.jpg" />
+</div>
+
+
+###  Подробнее
+
+История The Flower Kings начинается в 1993 году: так назывался коллектив, который Ройне Столт собрал для исполнения своего сольного альбома The Flower King, в котором все партии кроме барабанов он записал единолично. Впрочем, совсем скоро стало понятно, что The Flower KIngs — это нечто большее, чем просто живая группа. Коллектив быстро набрал популярность, став одной (   Читать дальше...   )--------------------------
+
+01. Rainsong (1:30)
+02. Lost America (9:52)(   Читать дальше...   )Жанр: Progressive Rock |Продолжительность: 46:39:45 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C174C7E4777DBA317F97C775AE6E728EFB470BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681503   (132780) от 03.12.2023
+
+Kafod - Ciclos (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Habitante (Remastered) [00:04:27]
+02. Unos y Todos [00:04:04]
+03. Déjennos Vivir [00:05:53]
+04. Racconto [00:04:16](   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948BBAEE9769E1D145B5BAA1E2C050C84DFBDBF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595377   (132603) от 28.12.2012
+
+Smokie - Greatest Hits (3xCD) (2006) [FLAC|Lossless]<Pop-Rock, Soft-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Think You Know How To Love Me (3:59)
+02. I'll Meet You At Midnight (3:22)
+03. Don't Play Your Rock'n'Roll To Me (3:22)
+04. All My Life (3:34)
+05. Listen To Your Radio (3:33)
+06. Scream You Guitar (3:42)
+07. Like An Eagle (4:05)
+08. Lyin' In The Arms Of The One You Love (3:48)
+09. I'd Die For You (3:34)
+10. One Night In Vienna (3:51)(   Читать дальше...   )Жанр: Pop-Rock, Soft-RockПродолжительность: 00:52:08 + 00:53:35 + 00:53:58 = 02:39:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595625   (132154) от 29.12.2012
+
+Niacin - Time Crunch (2001) [WavPack|Lossless]<Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elbow Grease [05:17]
+02. Time Crunch [03:14]
+03. Stone Face [06:09]
+04. Red [08:00]
+05. Invisible King [04:28]
+06. Daddy Long Leg [05:18]
+07. Hog Funk [05:06]
+08. Glow [03:05]
+09. Damaged Goods [04:24]
+10. Outside Inside Out [05:02](   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681960   (132125) от 05.12.2023
+
+Anyone - Miracles In The Nothingness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawning Of The Miracle
+02. Children Of The Void
+03. My Name Is Forever
+04. Some Delectable Species(   Читать дальше...   )Жанр: Heavy ProgПродолжительность: 02:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C84CE0CD35C7E011B20E6CB075116C7787BDB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682240   (131493) от 07.12.2023
 
 The Runaway Wild - Wild Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -6,7 +163,7 @@ The Runaway Wild - Wild Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131493.jpg" />
 </div>
 
 
@@ -35,7 +192,7 @@ Prog Mountain - Wasteland (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Meta
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131191.jpg" />
 </div>
 
 
@@ -64,7 +221,7 @@ Mos Eisley Spaceport - Further (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131175.jpg" />
 </div>
 
 
@@ -93,7 +250,7 @@ Spirits Burning & Michael Moorcock - The End Of All Songs - Part 1 (2023) [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131169.jpg" />
 </div>
 
 
@@ -122,7 +279,7 @@ VA - Modern Rock Cuts (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131155.jpg" />
 </div>
 
 
@@ -151,7 +308,7 @@ Paul Reed Smith - Eightlock - Lions Roaring in Quicksand (2023) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131132.jpg" />
 </div>
 
 
@@ -180,7 +337,7 @@ VA - Melodic Rock Throwback (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131109.jpg" />
 </div>
 
 
@@ -209,7 +366,7 @@ Bad Company - 25 Albums (1974 - 2018) 47 CD [FLAC|Lossless|image + .cue|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130860.jpg" />
 </div>
 
 
@@ -238,7 +395,7 @@ Cat Power - Covers (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130124.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ Windom End - Perspective Views (2020) 2xCD, Japanese Edition [FLAC|Lossless|imag
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130059.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ Dan McCafferty - In Memory of Dan McCafferty - No Turning Back (2023) [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129939.jpg" />
 </div>
 
 
@@ -325,7 +482,7 @@ Tarja Turunen - All I Want For Christmas Is You (2023) EP [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129869.jpg" />
 </div>
 
 
@@ -353,7 +510,7 @@ VA - Soft Rock Mix (Female Singer-Songwriters Vol. 1) (2023) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129817.jpg" />
 </div>
 
 
@@ -382,7 +539,7 @@ Rik Emmett - Then Again (2012) Remastered, 2023, Deko Entertainment [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129744.jpg" />
 </div>
 
 
@@ -411,7 +568,7 @@ John Mellencamp - Strictly A One-Eyed Jack (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129218.jpg" />
 </div>
 
 
@@ -440,7 +597,7 @@ Gerry Rafferty - Essential (2011) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129151.jpg" />
 </div>
 
 
@@ -469,7 +626,7 @@ Danny Peyronel - It Happens When You Look The Other Way (2025) [FLAC 24/48|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128852.jpg" />
 </div>
 
 
@@ -498,7 +655,7 @@ VA - New Rock Pulse (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128091.jpg" />
 </div>
 
 
@@ -527,7 +684,7 @@ Moon Safari - Himlabacken Vol. 1-2 (2012-2023) [FLAC|Lossless|WEB-DL|tracks] <Ar
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127594.jpg" />
 </div>
 
 
@@ -555,7 +712,7 @@ Lee Gallagher - The Falcon Ate the Flower (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127575.jpg" />
 </div>
 
 
@@ -584,7 +741,7 @@ Unicorn - You Are (2023) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog, Prog Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127572.jpg" />
 </div>
 
 
@@ -598,151 +755,6 @@ Unicorn - You Are (2023) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog, Prog Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6E42F11100B8C915AC6F98BAEB78076D48442C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684714   (127566) от 16.12.2023
-
-Asia - Live at the Pabst Theatre, Milwaukee, Wi, USA, 23 April 2008 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Daylight (00:03:54)
-02 - Only Time Will Tell (00:05:03)
-03 - Wildest Dreams (00:05:50)
-04 - Never Again (00:05:12)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4434C58362B67A564428044391651939092FA688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685779   (126870) от 20.12.2023
-
-VA - Rock Revival (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Day - Warning (3:42)
-02. Red Hot Chili Peppers - Can’t Stop (4:29)
-03. Paramore - Misery Business (3:32)
-04. Stone Sour - Made of Scars (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 01:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD40613E4B5BE4CC9D9FA93021CAC77798C248D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686541   (126471) от 23.12.2023
-
-Elysian Fields - Femmes, Family and Mars (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Onward to Mars (00:03:47)
-02 - Angie (00:03:25)
-03 - Thoughts of Mom a Memory Transformed (00:03:01)
-04 - Lea (00:04:07)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3F21EB069911E968781A957B86EE519C8644679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686488   (126427) от 23.12.2023
-
-Tamarillo - Seraphin (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ancients (00:01:55)
-02 - The First Journey of Azrael (00:04:01)
-03 - Nothingarian (00:04:34)
-04 - Seraphin (00:05:08)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:695511CC443E9B89198961EEBB0FC64B41FB6546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686549   (126407) от 23.12.2023
-
-Marco Machera - Dormiveglia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dearest Fools (00:03:41)
-02 - Lost + Found (00:03:41)
-03 - Building Homes (00:04:09)
-04 - Within the Words (00:04:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:095F5299976FEADA15472702258891BCBFAB691F
 ```
 
 https://mybot314.ru/tekegram_catalog/

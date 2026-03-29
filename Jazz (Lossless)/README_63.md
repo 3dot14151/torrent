@@ -1,3 +1,119 @@
+###  Публикация: 1197410   (815916) от 07.01.2018
+
+Geri Allen - Grand River Crossings: Motown & Motor City Inspirations (2013) Membran [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanna Be Startin' Somethin' [02:22]
+02. Tears of a Clown [05:32]
+03. That Girl [06:06]
+04. Grand River Crossings I [00:48](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A52C12BCFC22B0ACB4B1A5D851620A62CC2DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197406   (815912) от 07.01.2018
+
+Blue Mitchell - Stablemates (1977) 2006, Candid [FLAC|Lossless|image + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stablemates [06:01]
+02. Portrait Of Jennie [07:40]
+03. There Will Never Be Another You [07:06]
+04. Getting Sentimental Over Blue [07:01](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA1D3BC57BE427ECA2D301D9E29079B7A071222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197485   (815817) от 07.01.2018
+
+Eric Alexander - Chicago Fire (2014) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Save Your Love For Me [07:44]
+02. The Bee Hive [09:11]
+03. Eddie Harris [06:20]
+04. Just One of Those Things [05:15](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:106A55615278D670BE88BE21C96EEA165FE6ECB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008590   (815794) от 18.04.2016
+
+Julie London - The Ultimate Collection (2014) 3CD Box Set [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cry Me A River 02:50
+02.Diamonds Are A Girl's Best Friend 01:59
+03.My Heart Belongs To Daddy 02:40
+04.September In The Rain 01:40(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 03:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00E8E518A8DC8B5006A4F4DD7922F09A4E388DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382888   (815682) от 13.05.2020
 
 Mildred Bailey - That Rockin' Chair Lady 1930-e (1994) Topaz Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Mildred Bailey - That Rockin' Chair Lady 1930-e (1994) Topaz Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815682.jpg" />
+  <img src="Z:/picture/008/save_picture_815682.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Maynard Ferguson - New Vintage 1977 (2004) Wounded Bird Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815677.jpg" />
+  <img src="Z:/picture/008/save_picture_815677.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Gene Ammons - Boss Tenor (1960) 1999, Prestige [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815619.jpg" />
+  <img src="Z:/picture/008/save_picture_815619.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Art Pepper - The Intimate Art Pepper (1996) Analogue Productions [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815616.jpg" />
+  <img src="Z:/picture/008/save_picture_815616.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Splashgirl - Field Day Rituals (2013) [FLAC|Lossless|tracks + .cue] <Dark Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814228.jpg" />
+  <img src="Z:/picture/008/save_picture_814228.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Orchestra Of Mirrored Reflections - Nonlinear Order (2016) [FLAC|Lossless|We
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814185.jpg" />
+  <img src="Z:/picture/008/save_picture_814185.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Vainoras and the altar of the drill - Floating on air through grief and green gr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814183.jpg" />
+  <img src="Z:/picture/008/save_picture_814183.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Kammerflimmer Kollektief - Wildling (2010) [FLAC|Lossless|tracks + .cue] <Dark J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814140.jpg" />
+  <img src="Z:/picture/008/save_picture_814140.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ McCoy Tyner Trio - Bon Voyage (1987) Remaster, 2015, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813949.jpg" />
+  <img src="Z:/picture/008/save_picture_813949.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Art Blakey & Thelonious Monk - Art Blakey's Jazz Messengers With Thelonious Monk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813943.jpg" />
+  <img src="Z:/picture/008/save_picture_813943.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Coleman Hawkins - Blues Wail: Coleman Hawkins Plays The Blues (1996) Remastering
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813939.jpg" />
+  <img src="Z:/picture/008/save_picture_813939.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ The Cannonball Adderley Quintet - 74 Miles Away / Walk Tall (1967) Remaster, 201
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813937.jpg" />
+  <img src="Z:/picture/008/save_picture_813937.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ VA - My Kind Of Music: A Fine Romance (2012)3CD [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813932.jpg" />
+  <img src="Z:/picture/008/save_picture_813932.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Frank Sinatra - The Best LPs (1954 - 1962) 10CD, 2015, The Intense Media [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813686.jpg" />
+  <img src="Z:/picture/008/save_picture_813686.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Shelly Manne - Perk Up (1976) 1995, Concord Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813619.jpg" />
+  <img src="Z:/picture/008/save_picture_813619.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Houston Person - To Etta With Love (2004) HighNote [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813618.jpg" />
+  <img src="Z:/picture/008/save_picture_813618.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ Bill Evans - Homecoming (1979) 1999, Milestone [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813614.jpg" />
+  <img src="Z:/picture/008/save_picture_813614.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Reuben Wilson - A Groovy Situation (1970) Remaster, 2014, Universal[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812252.jpg" />
+  <img src="Z:/picture/008/save_picture_812252.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ Eddie Harris Trio - Eddie Who? (1986) Remaster, 2015, Solid Records[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812250.jpg" />
+  <img src="Z:/picture/008/save_picture_812250.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Yusef Lateef - The Sounds of Yusef (1957) 1996, Original Jazz Classics [WavPack|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812140.jpg" />
+  <img src="Z:/picture/008/save_picture_812140.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Rodney Green Quartet - Live At Smalls (2013) SmallsLive [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812139.jpg" />
+  <img src="Z:/picture/008/save_picture_812139.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ The Big Chris Barber Band - The First Eleven (2002) Timeless Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812029.jpg" />
+  <img src="Z:/picture/008/save_picture_812029.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ The Big Chris Barber Band - The First Eleven (2002) Timeless Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80EDA350CEBDECF573633C08A8D8E7363E5C1FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118865   (811823) от 26.03.2017
-
-Uptown Jazz Tentet - There It Is (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There It Is (4:17)
-02. All Too New (7:01)
-03. Lush Life (6:16)
-04. Like Someone In Love (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB2F1301C8D2394C1410EE3CD3AFFF3DC628B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118677   (811820) от 26.03.2017
-
-Fred Astaire - Golden Greats (1930-e - 1940-e) 3CD, 2002, Disky [FLAC|Lossless|image + .cue] <Vocal Jazz, Big Band, Dance Band, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811820.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Cheek To Cheek [03:17]
-02.Let's Face The Music And Dance [02:29]
-03.Let's Calle The Whole Thing Off [03:14](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, Dance Band, Easy ListeningПродолжительность: 03:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E43DC6831CFF5F0979C7C1BD2C7E94B4529E263
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118712   (811814) от 26.03.2017
-
-Harold Melvin & The Blue Notes - I Miss You (1972) 2010, Big Break Records [FLAC|Lossless|tracks + .cue] <Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Miss You (8:39)
-02. Ebony Woman (3:41)
-03. Yesterday I Had The Blues (7:34)
-04. If You Don't Know Me By Now (3:28)(   Читать дальше...   )Жанр: SoulПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF492ECFF10AF2203A507DB11233573330DFA8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118652   (811812) от 26.03.2017
-
-The Oscar Peterson Trio - Walking The Line (1970) 2005, Universal [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Love You [05:15]
- 02.Rock of Ages [05:33]
- 03.Once Upon a Summertime [05:20]
- 04.Just Friends [03:59](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E8CEAE68E221A84C819852A791726B942BF696
 ```
 
 https://mybot314.ru/tekegram_catalog/

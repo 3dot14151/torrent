@@ -1,3 +1,55 @@
+###  Публикация: 1335299   (289576) от 01.11.2019
+
+Чудеса Африки / Afrikas Naturwunder - Ein Tag wie kein anderer (2018) IPTVRip [H.264] (сезон 1, эпизод 264)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающие съемки, организованные по последнему слову техники, покажут дикую природу в ее первозданном виде. Путешественники, ученые, эксперты расскажут о различных животных, населяющих этот жаркий край, об их местах обитания и повадках.Производство: Terra Mater Factual StudiosЖанр: Документальный, Природа, ФаунаРежиссер: Susanne LummerАктеры: Mathias KahlerПеревод: Одноголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE1323471BF3BBEC1D2DDBA211EC1CA3F0A3D3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263605   (287819) от 19.11.2018
+
+Земля медведей / Land of the Bears (Terre des ours) (2013) BDRemux [H.264/1080p] [Custom]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм рассказывающий о жизни медведей от самого младенчества, до перехода во взрослую жизнь, где никто и никогда больше будет помогать выжить в суровые и долгие зимы. Фильм пестрит прекрасными пейзажами нетронутой и девственной природы в различные времена года, где каждый сезон манит своей неповторимой красотой. В картине покажут жизнь одной семьи (   Читать дальше...   )Производство: Франция, Cameron l Pace Group, Centre National de la Cinématographie (CNC), Les films en vrac, Nature Pictures, Orange StudioЖанр: Документальный, видовой, природа, флора, фаунаРежиссер: Гийом ВенсанПеревод: ДублированныйСубтитры: Русские, французскиеПродолжительность: 01:26:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368BD8C52475BA9FAA42D47577E49BA9366B6599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 848820   (286364) от 10.12.2014
 
 Год из жизни ежа / The Year of the Hedgehog (2009) HDTVRip [H.264/720p-LQ]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286364.jpg" />
+  <img src="Z:/picture/008/save_picture_286364.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284497.jpg" />
+  <img src="Z:/picture/008/save_picture_284497.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279470.jpg" />
+  <img src="Z:/picture/008/save_picture_279470.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ NG: Колыбель жизни / Crucible of Life (2008) SATRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279130.jpg" />
+  <img src="Z:/picture/008/save_picture_279130.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278959.jpg" />
+  <img src="Z:/picture/008/save_picture_278959.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277823.jpg" />
+  <img src="Z:/picture/008/save_picture_277823.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276137.jpg" />
+  <img src="Z:/picture/008/save_picture_276137.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274455.jpg" />
+  <img src="Z:/picture/008/save_picture_274455.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273241.jpg" />
+  <img src="Z:/picture/008/save_picture_273241.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266107.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266078.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Animal Planet: Царство гепардов / Cheetah Kingdom (2010) HDTVRip 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265633.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263571.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262077.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260375.jpg" />
+  <img src="Z:/picture/005/save_picture_260375.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260368.jpg" />
+  <img src="Z:/picture/005/save_picture_260368.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260266.jpg" />
+  <img src="Z:/picture/005/save_picture_260266.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ BBC: Как вырастить планету. Триумф неудачника
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259612.jpg" />
+  <img src="Z:/picture/005/save_picture_259612.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258519.jpg" />
+  <img src="Z:/picture/005/save_picture_258519.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255336.jpg" />
+  <img src="Z:/picture/005/save_picture_255336.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255331.jpg" />
+  <img src="Z:/picture/005/save_picture_255331.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255264.jpg" />
+  <img src="Z:/picture/005/save_picture_255264.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254983.jpg" />
+  <img src="Z:/picture/005/save_picture_254983.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ BBC: Как вырастить планету. Притягательная ис
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254024.jpg" />
+  <img src="Z:/picture/005/save_picture_254024.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ BBC: Как вырастить планету. Притягательная ис
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60C675830022DB36B17BB81C7C8889FBF224B13A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496935   (253229) от 15.05.2012
-
-BBC: Как вырастить планету. Свет несущий жизнь [выпуск 1]/ How to Grow a Planet. Life from Light (2012) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253229.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом сериале профессор Ийан Стюарт рассказывает нам о новой, увлекательной версии истории формирования биогенеза, которую прошла наша планета. Показывая нам, сколь велики изменения, которые были вызваны, прежде всего обитателями растительного царства. Его рассказ повествует о древней эволюции представителей флоры и фауны Земли.Жанр: ДокументальныйПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DD57AF7600A53C01162F18DEFD822DAED936F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497030   (253185) от 15.05.2012
-
-NHK: Дикая жизнь Серенгети [2 серии]/ Wildlife the Serengeti (2009) HDTVRip
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серенгети - национальный парк на севере Танзании. Под строгую охрану взяты полторы тысячи гектаров Восточно-Африканского плоскогорья. Болота, саванны, галерейные леса. Исключительное разнообразие антилоп; зебры, газели, львы, леопарды, гепарды и более 200 видов птиц.Жанр: Документальный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2084630438D30F626470BA2F5ECC581F937D3ADA
 ```
 
 https://mybot314.ru/tekegram_catalog/

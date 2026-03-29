@@ -1,3 +1,70 @@
+###  Публикация: 500394   (257395) от 24.05.2012
+
+Subaudition - 2 albums (2006-2009) [APE/FLAC|Lossless] <Neofolk, Atmospheric Rock, Dark Acoustic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Subaudition – это молодой финский дуэт, ранее исполнявший progressive metal в рамках малоизвестной команды Manifold Object. Необычный материал содержит не только стандартные и очевидные звуки, но также множество призрачных аллегорий, создающих атмосферу таинственности и загадочности. Полное ощущение сумрака, создаваемое богатым инструментальным рядом, спокойным вокалом и супер-эмоциональностью. Эта финская команда предпочитает создавать в своих произведениях безысходную атмосферу при помощи минимума нот, слов и звуков.01. Alms of the Sun (05:26)
+02. Sнnne (06:05)
+03. Now that we've spent all the Light (05:30)
+04. Feathers Fall (06:05)
+05. The Soul unto Aether (04:00)
+06. Human Abstract (06:12)
+07. Wall of Water (07:49)2006-2009Жанр: Neofolk, Atmospheric Rock, Dark AcousticПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500447   (257258) от 23.05.2012
+
+Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Metal>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Franconian Woods in Winter's Silence (08:34)
+02. A Gentle Grieving Farewell Kiss (01:59)
+03. The Blue Mists of Night (06:26)
+04. Mourners (09:18)
+05. Where at Night the Wood Grouse Plays (05:29)
+06. Dying Brokenhearted (05:34)
+07. The Shepherd and the Maiden Ghost (03:27)
+08. Heimwärts (06:41)
+09. Waldpoesie (13:31)
+10. Die Schwäne im Schilf (05:51)(   Читать дальше...   )1995-2006Жанр: Neofolk, Doom/Folk/Symphonic MetalПродолжительность: 01:16:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 499853   (256923) от 22.05.2012
 
 Кубанцы - Авторский сборник  (1995) [MP3|160 кб/с]<Folk Казачья песня>
@@ -6,7 +73,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256923.jpg" />
+  <img src="Z:/picture/005/save_picture_256923.jpg" />
 </div>
 
 
@@ -41,7 +108,7 @@ Novalis Deux (ex-Novalis) - 4 albums (2001-2008) [mp3|192-320 kbps] <Neofolk, Ap
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256407.jpg" />
+  <img src="Z:/picture/005/save_picture_256407.jpg" />
 </div>
 
 
@@ -76,7 +143,7 @@ Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neof
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256373.jpg" />
+  <img src="Z:/picture/005/save_picture_256373.jpg" />
 </div>
 
 
@@ -111,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256363.jpg" />
+  <img src="Z:/picture/005/save_picture_256363.jpg" />
 </div>
 
 
@@ -146,7 +213,7 @@ Peter Buffett - 500 Nations. A Musical Journey (1994) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256292.jpg" />
+  <img src="Z:/picture/005/save_picture_256292.jpg" />
 </div>
 
 
@@ -179,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255791.jpg" />
+  <img src="Z:/picture/005/save_picture_255791.jpg" />
 </div>
 
 
@@ -205,7 +272,7 @@ Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chil
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255778.jpg" />
+  <img src="Z:/picture/005/save_picture_255778.jpg" />
 </div>
 
 
@@ -240,7 +307,7 @@ VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Inst
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255378.jpg" />
+  <img src="Z:/picture/005/save_picture_255378.jpg" />
 </div>
 
 
@@ -269,7 +336,7 @@ David Arkenstone - Ambient Space Music (2023) [FLAC|Lossless|WEB-DL|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255076.jpg" />
+  <img src="Z:/picture/005/save_picture_255076.jpg" />
 </div>
 
 
@@ -298,7 +365,7 @@ VA - Инструментальная музыка - Лучшие мировые
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254762.jpg" />
+  <img src="Z:/picture/005/save_picture_254762.jpg" />
 </div>
 
 
@@ -327,7 +394,7 @@ R. Carlos Nakai & AmoChip Dabney - Edge Of The Century (2001) [FLAC|Lossless|tra
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254613.jpg" />
+  <img src="Z:/picture/005/save_picture_254613.jpg" />
 </div>
 
 
@@ -356,7 +423,7 @@ Delerium - Signs (2023) [FLAC|Lossless|image + .cue] <New Age, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254533.jpg" />
+  <img src="Z:/picture/005/save_picture_254533.jpg" />
 </div>
 
 
@@ -385,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253546.jpg" />
+  <img src="Z:/picture/005/save_picture_253546.jpg" />
 </div>
 
 
@@ -411,7 +478,7 @@ VA - Cтаринные русские романсы. Золотая колле�
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253475.jpg" />
+  <img src="Z:/picture/005/save_picture_253475.jpg" />
 </div>
 
 
@@ -446,7 +513,7 @@ Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listenin
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252972.jpg" />
+  <img src="Z:/picture/005/save_picture_252972.jpg" />
 </div>
 
 
@@ -481,7 +548,7 @@ VA - Украинские народные песни (2000) [FLAC|Lossless]<Fol
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252736.jpg" />
+  <img src="Z:/picture/005/save_picture_252736.jpg" />
 </div>
 
 
@@ -510,7 +577,7 @@ Russell Brower - Diablo III Soundtrack (2012) [MP3|320 кб/с]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252648.jpg" />
+  <img src="Z:/picture/005/save_picture_252648.jpg" />
 </div>
 
 
@@ -545,7 +612,7 @@ VA - The Queen of the Damned / Королева Проклятых (2002) [APE|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252102.jpg" />
+  <img src="Z:/picture/004/save_picture_252102.jpg" />
 </div>
 
 
@@ -574,7 +641,7 @@ Whitney Houston & VA - The Bodyguard / Телохранитель (1992) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252094.jpg" />
+  <img src="Z:/picture/004/save_picture_252094.jpg" />
 </div>
 
 
@@ -603,7 +670,7 @@ Ah Nee Mah - Native Spirit (2009) [FLAC|Lossless|tracks + .cue] <New Age, Native
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251915.jpg" />
+  <img src="Z:/picture/004/save_picture_251915.jpg" />
 </div>
 
 
@@ -632,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251200.jpg" />
 </div>
 
 
@@ -661,7 +728,7 @@ VA - Хорошо сидим ! Песни русского застолья (199
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250232.jpg" />
+  <img src="Z:/picture/004/save_picture_250232.jpg" />
 </div>
 
 
@@ -690,7 +757,7 @@ VA - Enigma-Forest-Transit 6 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250109.jpg" />
+  <img src="Z:/picture/004/save_picture_250109.jpg" />
 </div>
 
 
@@ -719,7 +786,7 @@ Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Mi
 >>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250082.jpg" />
+  <img src="Z:/picture/004/save_picture_250082.jpg" />
 </div>
 
 
@@ -733,64 +800,6 @@ Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Mi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BBD45CA8565D5BC88BA6C8664D89E76115DC330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618311   (249958) от 12.03.2023
-
-VA - Lilja 4-ever OST (2002) [FLAC|Lossless|tracks + .cue] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rammstein - Mein Herz Brennt (Film-remix) 01:52
-02 - Via Gra - Bomba 3:27
-03 - Fläskkvartetten - O Virtus Sapientie 4:49
-04 - Nathan Larson - The Bridge 1:19(   Читать дальше...   )Жанр: OSTПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96C476FEB9AE9B59D42C0901560ADCD8D1A754A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618732   (249939) от 12.03.2023
-
-VA - Enigma-Forest-Transit 10 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostradamus - The Whisper of an Angel
-02. Delerium - Incantation
-03. Praise - Only You
-04. Robbie Robertson & The Re Road Ensemble - Mahk Ichi(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A15539F982D9B6996486351CD089DDF242CAC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

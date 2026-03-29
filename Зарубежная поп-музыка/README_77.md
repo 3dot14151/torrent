@@ -1,3 +1,32 @@
+###  Публикация: 1672173   (170253) от 27.10.2023
+
+Prince & The New Power Generation - Diamonds and Pearls (1991) Super Deluxe Edition, 2023, Warner Records [MP3|320 Kbps] <Contemporary R&B, New Jack Swing, Funk, Minneapolis Sound>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+01 - Diamonds and Pearls (Super Deluxe Edition)
+02 - Diamonds and Pearls (Super Deluxe Edition)
+03 - Diamonds and Pearls (Super Deluxe Edition)(   Читать дальше...   )Жанр: Contemporary R&B, New Jack Swing, Funk, Minneapolis SoundПродолжительность: 7 CD, 07:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A316B959113C202093B8D92063A7CCF91FEA3A07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430819   (169749) от 11.12.2020
 
 MOZGI - kyivstyle (2020) [MP3|320 Kbps] <Pop>
@@ -6,7 +35,7 @@ MOZGI - kyivstyle (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169749.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Taylor Swift - evermore (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169656.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Rainbow Train - Accompanied By (1978) LP [MP3|320 Kbps] <Pop, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169430.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Hit News Vol. 4 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169325.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Taylor Swift - 1989 (2014) Taylor's Version, 2023, Taylor Swift [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169104.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Acoustic Christmas (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169102.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Duran Duran - Danse Macabre (2023) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169063.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - 50 Hits Winter 2020 (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168971.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - 100 Greatest Rock Anthems (2020) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168745.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Hit News Vol. 5 (1993) [OGG Vorbis|480 Kbps] <Electronic, Italodance, Euro 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168015.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167968.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Black Eyed Peas - Elevation (2022) [MP3|320 Kbps] <Rap, Reggae, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166634.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Dance Dance  Best of 2022 [MP3|320 Kbps] <Pop, Dance, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165851.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Liz Mitchell - A Christmas Rose (2001) (ex. Boney M) [MP3|320 Kbps] <Pop, Ballad
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165776.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Sensation 80s - The Ultimate Funk & Disco Classics (2022) 2CD, Compilation 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164981.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Love Songs & Romantic Ballads (2020) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161991.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - 100 Greatest 2020 Songs [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161958.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Abba - Voyage (2021) [OGG Vorbis|600 Kbps] <Pop, Vocal>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161799.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Hit News Vol. 6 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161384.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Hit News Vol. 7 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161377.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ The Chap - Digital Technology (2019) [MP3|320 Kbps] <Electronic, Indie Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161363.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - Zumba Beats Strong 2021 (2020) [MP3|320 Kbps] <Electro Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161201.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ VA - Let´s Go Dancing All Night (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electr
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160852.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160852.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Hit News Vol. 8 (1993) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160646.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Party Tracks (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electronic>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160641.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Party Tracks (2023) [MP3|320 Kbps] <Dance, Club, Pop, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C942C85D6DC6E623A242992D8FBD581A4313F613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674681   (160637) от 07.11.2023
-
-VA - Hit News Vol. 9 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Activate - Let The Rhythm Take Control
-02. Intolekt - Colourblind
-03. Capital Sound - Higher Love
-04. Daddy K. - Voulez-Vous Coucher Avec Moi(   Читать дальше...   )Жанр: Electronic, Euro House, ItalodanceПродолжительность: 01:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C858D36CCA27F86A882B71DB019BE66D2ED5AD23
 ```
 
 https://mybot314.ru/tekegram_catalog/

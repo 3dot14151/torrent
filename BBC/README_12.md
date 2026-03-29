@@ -6,7 +6,7 @@ BBC. Тайны взросления / The Secret Life of Growing Up (2016) SATR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698581.jpg" />
+  <img src="Z:/picture/008/save_picture_698581.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Таинственный Мир Материалов / The Mysterious World
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698576.jpg" />
+  <img src="Z:/picture/008/save_picture_698576.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Тайная жизнь птиц / Secret Life of Birds (2010) BDRemux [H.2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697376.jpg" />
+  <img src="Z:/picture/008/save_picture_697376.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BBC. Вся правда о характере / The Truth About Personality (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696099.jpg" />
+  <img src="Z:/picture/008/save_picture_696099.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC: Мир природы. Роковой цветок / The Natural World. The
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695034.jpg" />
+  <img src="Z:/picture/008/save_picture_695034.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ BBC. Пингвин: Шпион под прикрытием / Penguins. Spy In T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694164.jpg" />
+  <img src="Z:/picture/008/save_picture_694164.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ BBC: Времена года Британии / The Great British Year (2013) BD
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694035.jpg" />
+  <img src="Z:/picture/008/save_picture_694035.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC: Книга джунглей. Медведь Балу / BBC: Natural World. 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693801.jpg" />
+  <img src="Z:/picture/008/save_picture_693801.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ BBC. Одни ли мы во Вселенной? / Are We Alone In The Universe?
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692375.jpg" />
+  <img src="Z:/picture/008/save_picture_692375.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ BBC. Horizon: Парадокс Хокинга / The Hawking Paradox (2005) SATRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690102.jpg" />
+  <img src="Z:/picture/008/save_picture_690102.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ BBC: Невидимые города Италии / Italy's Invisible Cities (20
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688876.jpg" />
+  <img src="Z:/picture/008/save_picture_688876.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BBC: Ядовитые укусы - смерть или спасение / Venom 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687251.jpg" />
+  <img src="Z:/picture/008/save_picture_687251.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ BBC. Кошачьи тайны / Cat Watch 2014: The New Horizon Experiment (Cat
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683909.jpg" />
+  <img src="Z:/picture/008/save_picture_683909.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682338.jpg" />
+  <img src="Z:/picture/008/save_picture_682338.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680819.jpg" />
+  <img src="Z:/picture/008/save_picture_680819.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ BBC: Борьба за выживание / The Trials of Life (1990) BDRip [H.2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678160.jpg" />
+  <img src="Z:/picture/008/save_picture_678160.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676758.jpg" />
+  <img src="Z:/picture/008/save_picture_676758.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676615.jpg" />
+  <img src="Z:/picture/008/save_picture_676615.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ BBC: Замерзшая планета / Frozen planet (7 серий из 7, в�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_673890.jpg" />
+  <img src="Z:/picture/005/save_picture_673890.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ BBC: Жизнь в воздухе / Life In The Air (2016) HDTVRip [H.264/720p-L
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668809.jpg" />
+  <img src="Z:/picture/008/save_picture_668809.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ BBC. Мир природы. Обитатели пробкового леса (28
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668526.jpg" />
+  <img src="Z:/picture/008/save_picture_668526.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667368.jpg" />
+  <img src="Z:/picture/008/save_picture_667368.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ BBC. Восхождение животных: Триумф позвоночны�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665946.jpg" />
+  <img src="Z:/picture/008/save_picture_665946.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ BBC: Мир природы. Птицы рая / BBC: Natural World -  Birds of t
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664785.jpg" />
+  <img src="Z:/picture/008/save_picture_664785.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ BBC: Horizon. Проект "Гринглоу". В поисках контрол�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664064.jpg" />
+  <img src="Z:/picture/008/save_picture_664064.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ BBC. Тайная жизнь птиц / BBC. Secret Life of Birds (2010) BDRip [
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663761.jpg" />
+  <img src="Z:/picture/008/save_picture_663761.jpg" />
 </div>
 
 

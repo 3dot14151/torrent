@@ -1,3 +1,30 @@
+###  Публикация: 1557751   (537217) от 17.06.2022
+
+Digital Tutors, Kurt Williams | Creating a Floater Pack in Maya (2015) PCRec [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537217.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе по Maya мы рассмотрим способы создания и размещения "floaters"(дословно не переводится, примерно: элементы которые можно использовать как ресурсы в любых проектах и в любо виде float-плавающий(напр. плавающая лицензия у софта) ) для детализации геометрии.
+Мы изучим 3D и 2D методы создания, применяя различные приложения и несколько путей добавления (   Читать дальше...   )Производство: Digital TutorsЖанр: Создание ассетовЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 02:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D426F9DF641DAD95190CD8D2E06027999DA8702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557750   (537209) от 17.06.2022
 
 Lynda, Judd Roy | Game Art Asset Texture Pipeline (2016) PCRec [EN, RU]
@@ -6,7 +33,7 @@ Lynda, Judd Roy | Game Art Asset Texture Pipeline (2016) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537209.jpg" />
+  <img src="Z:/picture/008/save_picture_537209.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Udemy, Opi Chaggar | Maya for Beginners: Complete 3D Animation Fundamentals (202
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535125.jpg" />
+  <img src="Z:/picture/008/save_picture_535125.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ YouSmart, Нина Наумова | Векторная графика и пол�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521809.jpg" />
+  <img src="Z:/picture/008/save_picture_521809.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520195.jpg" />
+  <img src="Z:/picture/008/save_picture_520195.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514178.jpg" />
+  <img src="Z:/picture/008/save_picture_514178.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509385.jpg" />
+  <img src="Z:/picture/008/save_picture_509385.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509383.jpg" />
+  <img src="Z:/picture/008/save_picture_509383.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508867.jpg" />
+  <img src="Z:/picture/008/save_picture_508867.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ CGMA, Kevin Griffith | Stylized 3D Asset Creation for Games (2020) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506883.jpg" />
+  <img src="Z:/picture/008/save_picture_506883.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ Sycra, Sycra Yasin | Composition for Artists (2013) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506106.jpg" />
+  <img src="Z:/picture/008/save_picture_506106.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ Rebelway, Saber Jlassi, Urban Bradesko | Introduction To Houdini For 3D Artists 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505143.jpg" />
+  <img src="Z:/picture/008/save_picture_505143.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ teachshop | Kompas 3D V11 [Обучающий видео курс] (2009) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504426.jpg" />
+  <img src="Z:/picture/008/save_picture_504426.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ Rebelway, Saber Jlassi | Advanced Compositing Using COPs in Houdini (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499504.jpg" />
+  <img src="Z:/picture/008/save_picture_499504.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ Wingfox, Sarah Petruzzi | Photorealistic Character Creation (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499271.jpg" />
+  <img src="Z:/picture/008/save_picture_499271.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ Yudaev School, Никита Юдаев | Дизайн c WOW-эффектом. Т
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499264.jpg" />
+  <img src="Z:/picture/008/save_picture_499264.jpg" />
 </div>
 
 
@@ -407,7 +434,7 @@ Stellar Works | Game Ready Ar-15 Weapon Course (2021) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497423.jpg" />
+  <img src="Z:/picture/008/save_picture_497423.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ Simon Payne | Creature Creators Handbook Volume 2 Part A-B (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495168.jpg" />
+  <img src="Z:/picture/008/save_picture_495168.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ Simon Payne | Creature Creators Handbook Volume 2 Part D (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495058.jpg" />
+  <img src="Z:/picture/008/save_picture_495058.jpg" />
 </div>
 
 
@@ -485,7 +512,7 @@ Epic Games, Sjoerd de Jong | Post Processing Essentials (2018) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494562.jpg" />
+  <img src="Z:/picture/008/save_picture_494562.jpg" />
 </div>
 
 
@@ -511,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493614.jpg" />
+  <img src="Z:/picture/008/save_picture_493614.jpg" />
 </div>
 
 
@@ -540,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492780.jpg" />
+  <img src="Z:/picture/008/save_picture_492780.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ Epic Games, Zak Parrish | UE4 Performance and Profiling (2017) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492321.jpg" />
+  <img src="Z:/picture/008/save_picture_492321.jpg" />
 </div>
 
 
@@ -595,7 +622,7 @@ CG Forge, Tyler Bay | Quaternions & Matrices (2019) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492195.jpg" />
+  <img src="Z:/picture/008/save_picture_492195.jpg" />
 </div>
 
 
@@ -621,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490924.jpg" />
+  <img src="Z:/picture/008/save_picture_490924.jpg" />
 </div>
 
 
@@ -650,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489073.jpg" />
+  <img src="Z:/picture/008/save_picture_489073.jpg" />
 </div>
 
 
@@ -661,34 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9F3C6E6AA341BE802744E7460200F93478431F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405257   (484696) от 29.08.2020
-
-Денис Овсянников | Zbrush с абсолютного нуля до про (2020) HDTVRip
-
->>След.
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте собственных персонажей в Zbrush! Даже если никогда не понимали, как это работает и как пользоваться этой программой. Из этого курса вы узнаете все актуальные и работающие техники для создания собственных персонажей и снаряжения для них.
-
-Никаких предварительных знаний не требуется, курс рассчитан на людей, ни разу не имевших опыта в Zbrush и цифровом скульптинге.Жанр: 3D скульптингПродолжительность: 13:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CDC45F1D68EDB9B973AE08B576B29A6C5514F1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

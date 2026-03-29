@@ -1,3 +1,119 @@
+###  Публикация: 1320138   (473372) от 17.08.2019
+
+VA - Bikini Beach, Vol. 1 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Laslau - Gone Yet Never Forgotten 02:46
+02. Amisso - Resistance 05:41
+03. Beatzshocker - Beatz Rules Back 02:56
+04. Dirty Wild - Boomstik 03:32(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A895812F8A029C0C534FE7C685E56EB936A758
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320143   (473370) от 17.08.2019
+
+VA - Bikini Beach, Vol. 2 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amisso - Resistance 05:41
+02. Beatzshocker Mirjami - Leila 02:40
+03. CYNC - Sounds of Emotions 04:03
+04. Dirty Wild - Flame 04:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C94B37C6CB2432AA4B573C7AAAF918FE2193010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057499   (473302) от 29.09.2016
+
+Bakradze - Restless (2016) LP [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Navel (2:44)
+02. An Evening With John (4:46)
+03. Order (5:37)
+04. Can (4:47)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A958C55B1B0F93AFCF90AAF4EBFE3EC310276FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320270   (473274) от 17.08.2019
+
+Gym Chillout Music Zone - Powerful Gym Beats (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473274.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Chill House 2018 (3:46)
+2.Shades of Club (3:40)
+3.Hot Touch (3:44)
+4.Beach Party Groove (3:40)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3597C24FBFB95994229FD673BB34829F5EA35E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406533   (472763) от 04.09.2020
 
 VA - Workout & Fitness 2020 Motivation Training Music [MP3|320 Kbps] <House, Dance>
@@ -6,7 +122,7 @@ VA - Workout & Fitness 2020 Motivation Training Music [MP3|320 Kbps] <House, Dan
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472763.jpg" />
+  <img src="Z:/picture/008/save_picture_472763.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Kiss FM Dance Radio Chart 6 (4 Dance Years) (2006) [MP3|320 кб/с]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472288.jpg" />
+  <img src="Z:/picture/008/save_picture_472288.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ VA - Bikini Beach, Vol. 4 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471393.jpg" />
+  <img src="Z:/picture/008/save_picture_471393.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ Kaskade - Automatic (2015) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468970.jpg" />
+  <img src="Z:/picture/008/save_picture_468970.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ Robin Schulz - Sugar (2015) [MP3|320 кб/с]<Vocal House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468668.jpg" />
+  <img src="Z:/picture/008/save_picture_468668.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ VA - Ibiza Closing Parties (2016) [MP3|320 Kbps] <Club, Funky, Tech House, Progr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466434.jpg" />
+  <img src="Z:/picture/008/save_picture_466434.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ VA - Workout Top Music Motivation (2020) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466393.jpg" />
+  <img src="Z:/picture/008/save_picture_466393.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ VA - Ibiza 2016 Closing Party (2016) [MP3|320 Kbps] <Tech House, Deep, Soulful, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466318.jpg" />
+  <img src="Z:/picture/008/save_picture_466318.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ VA - Bikini Beach, Vol. 3 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465519.jpg" />
+  <img src="Z:/picture/008/save_picture_465519.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ VA - Bikini Beach, Vol. 5 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465510.jpg" />
+  <img src="Z:/picture/008/save_picture_465510.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ VA - Bikini Beach, Vol. 6 (2019) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465407.jpg" />
+  <img src="Z:/picture/008/save_picture_465407.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ VA - Endless Summer - Ibiza Closing 2012 (12/09/2012) [MP3|320 кб/с]<Progress
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465324.jpg" />
+  <img src="Z:/picture/008/save_picture_465324.jpg" />
 </div>
 
 
@@ -364,7 +480,7 @@ Mobbing (Alle Benassi) - Rock the dog (2008) [MP3|320 кб/с]<Electro House, Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465318.jpg" />
+  <img src="Z:/picture/008/save_picture_465318.jpg" />
 </div>
 
 
@@ -399,7 +515,7 @@ VA - DJ Antoine - Live In Bangkok (2008) [MP3|~190 кб/с (V2)]<Electro House /
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463331.jpg" />
+  <img src="Z:/picture/008/save_picture_463331.jpg" />
 </div>
 
 
@@ -434,7 +550,7 @@ DJ Грув - Я верю (2011) [MP3|320 kbps]<Progressive House, Electro House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463248.jpg" />
+  <img src="Z:/picture/008/save_picture_463248.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ VA - DJ Antoine - Stop (2008) [MP3|~190 кб/с (V2)]<Electro House, House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463190.jpg" />
+  <img src="Z:/picture/008/save_picture_463190.jpg" />
 </div>
 
 
@@ -504,7 +620,7 @@ VA - Electro Housearrest Of ADE (2016) [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462276.jpg" />
+  <img src="Z:/picture/008/save_picture_462276.jpg" />
 </div>
 
 
@@ -533,7 +649,7 @@ VA - Big In Ibiza (2017) [MP3|320 Kbps] <Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461498.jpg" />
+  <img src="Z:/picture/008/save_picture_461498.jpg" />
 </div>
 
 
@@ -562,7 +678,7 @@ VA - Hot Electro House Tunes (2016) [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461256.jpg" />
+  <img src="Z:/picture/008/save_picture_461256.jpg" />
 </div>
 
 
@@ -591,7 +707,7 @@ VA - Dance with This! Vol.1 (2016) [MP3|320 Kbps] <House, Electro House, Progres
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459701.jpg" />
+  <img src="Z:/picture/008/save_picture_459701.jpg" />
 </div>
 
 
@@ -620,7 +736,7 @@ VA - La Nuit (Delicious Chill House Lounge Vol 3) (2016) [MP3|320 Kbps] <Deep Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459472.jpg" />
+  <img src="Z:/picture/008/save_picture_459472.jpg" />
 </div>
 
 
@@ -649,7 +765,7 @@ VA - Dance Essentials - Summer (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459270.jpg" />
+  <img src="Z:/picture/008/save_picture_459270.jpg" />
 </div>
 
 
@@ -663,122 +779,6 @@ VA - Dance Essentials - Summer (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECCC80772E18D22BB303871B6AD96255BDCF457C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162492   (459145) от 01.09.2017
-
-VA - Deep House Hits (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ibiza Groove Squad - I Don't (Deep House dub version) (5:40)
-02. Edi P - All On You (7:27)
-03. Hans Justin - Let's Go Back (5:51)
-04. Michael J Mathews - Machine Aided Rhythm (7:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235F1039B3D77A2E7B220ECE99260B1277852965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568857   (457777) от 10.08.2022
-
-VA - Kontor Festival Sounds 2022 - Resurrection (2022) [MP3|320 Kbps] <Club, House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Blasterjaxx feat. 24H - Superman (Extended Mix) (6:19)
-02. AXMO x Jerome - To the Moon (Extended Mix) (3:52)
-03. Martin Garrix & ZEDD feat. Emily Warren - Follow (Extended Mix) (4:25)
-04. Alok feat. John Martin - Wherever You Go (Alle Farben Remix) (3:24)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 06:50:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF14691B35AE077AA4CD867996252C9475C52FE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162762   (456905) от 02.09.2017
-
-VA - Oriental Touch (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferhat Sonsoz - Angel's 08:39
-02. Anatolian Sessions - Kevi 05:49
-03. Billy Esteban - Eagea 04:25
-04. Valeron - Euphrates 06:50(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F9ECFCD930133B5BD90039CBC199F8ACD4C1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162576   (456904) от 02.09.2017
-
-VA - Vocal Radio Hits (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Disco Fries - Moving On (feat Great Good Fine OK - extended mix)
-02.  Xavi & XOVOX - Yellow Brick Road (feat Olivia - extended mix)
-03.  APEK & MAXR - Crawl (feat Denny White - extended mix)
-04.  Tritonal - Waiting 4 U (original mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBEC53ACE4624AE84D81E9AA785B518858E9AE37
 ```
 
 https://mybot314.ru/tekegram_catalog/

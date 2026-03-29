@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804499.jpg" />
+  <img src="Z:/picture/008/save_picture_804499.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804498.jpg" />
+  <img src="Z:/picture/008/save_picture_804498.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804497.jpg" />
+  <img src="Z:/picture/008/save_picture_804497.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804496.jpg" />
+  <img src="Z:/picture/008/save_picture_804496.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804495.jpg" />
+  <img src="Z:/picture/008/save_picture_804495.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804494.jpg" />
+  <img src="Z:/picture/008/save_picture_804494.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804493.jpg" />
+  <img src="Z:/picture/008/save_picture_804493.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804492.jpg" />
+  <img src="Z:/picture/008/save_picture_804492.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804491.jpg" />
+  <img src="Z:/picture/008/save_picture_804491.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ DxO PhotoLab 5 ELITE Edition 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804459.jpg" />
+  <img src="Z:/picture/008/save_picture_804459.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ CodeRunner 4 v4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804458.jpg" />
+  <img src="Z:/picture/008/save_picture_804458.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Glary Utilities Pro 5.175.0.203 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804446.jpg" />
+  <img src="Z:/picture/008/save_picture_804446.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Slimjet 17.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804416.jpg" />
+  <img src="Z:/picture/008/save_picture_804416.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Waterfox 56.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804410.jpg" />
+  <img src="Z:/picture/008/save_picture_804410.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804405.jpg" />
+  <img src="Z:/picture/008/save_picture_804405.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804404.jpg" />
+  <img src="Z:/picture/008/save_picture_804404.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804403.jpg" />
+  <img src="Z:/picture/008/save_picture_804403.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804402.jpg" />
+  <img src="Z:/picture/008/save_picture_804402.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804401.jpg" />
+  <img src="Z:/picture/008/save_picture_804401.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804400.jpg" />
+  <img src="Z:/picture/008/save_picture_804400.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804399.jpg" />
+  <img src="Z:/picture/008/save_picture_804399.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804398.jpg" />
+  <img src="Z:/picture/008/save_picture_804398.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804397.jpg" />
+  <img src="Z:/picture/008/save_picture_804397.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804387.jpg" />
+  <img src="Z:/picture/008/save_picture_804387.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Riot - Through The Storm (2002) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804386.jpg" />
+  <img src="Z:/picture/008/save_picture_804386.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Permute 3 v3.4.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804385.jpg" />
+  <img src="Z:/picture/008/save_picture_804385.jpg" />
 </div>
 
 

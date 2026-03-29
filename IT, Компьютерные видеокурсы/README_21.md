@@ -1,3 +1,140 @@
+###  Публикация: 1467341   (1017834) от 03.05.2021
+
+Udemy, ZTM, Andrei Neagoie и др. | Complete Ethical Hacking Bootcamp 2021: Zero to Mastery (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите этический взлом + тестирование на проникновение с нуля и освоите самые современные этические хакерские инструменты и лучшие практики на 2021 год! Вы будете практиковать настоящие методы, используемые хакерами, а затем научитесь защищаться от них.
+Этот курс ориентирован на обучение на практике. Мы собираемся научить вас, как работает взлом, на практике применяя (   Читать дальше...   )Производство: Udemy, ZTMЖанр: Администрирование, пентестЯзык озвучки: АнглийскийПродолжительность: 37:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13F13EC25C0B3B75E0278A4B813FF55BAEC089B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467427   (1017820) от 03.05.2021
+
+ZTM, Andrei Neagoie и др. | Complete Node.js Developer in 2021: Zero to Mastery (2021) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитесь у экспертов Node.js. Это единственный учебный курс по Node JS, который вам нужен, чтобы изучить Node, создавать передовые крупномасштабные приложения с нуля и получить работу в качестве Backend-разработчика в 2021 году. Переходите от нулевого уровня к Node Мастеру.
+Создавайте Node-приложения корпоративного уровня и развертывайте их в облаке (AWS)
+Руководите (   Читать дальше...   )Производство: ZTMЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 34:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36163EF3105BB55B8F5479D67B36013123D695A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467274   (1017787) от 03.05.2021
+
+Вадим Прокопчук | Создание сайтов От 0 до 1 (2021) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как все происходит - 7 недель онлайн.
+В личном кабинете онлайн школы Вы будете получать 3 урока в неделю.
+В каждом уроке несколько видео для лучшего усвоения информации. После каждого урока домашнее задание. Проверка самостоятельно или ментором.
+По субботам будут проходить открытые вебинары: вопрос - ответ со мной, общий разбор домашних заданий, рандомные домашние (   Читать дальше...   )Жанр: HTML-верстка, программированиеПродолжительность: 60:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8251D26FA9EA8CCA9BF114D6BEAF4D4EEBBAB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467685   (1017698) от 04.05.2021
+
+Udemy, Astrit Krasniqi | Netacad CCNAv7 (semester 1-2 of 3) (2020-2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первая и вторая часть из трех семестров курса CCNA. В этом курсе вы не только узнаете, как сдать экзамен Cisco CCNA 200-301, но и научитесь навыкам, необходимым для достижения успеха в качестве сетевого инженера в реальном мире.
+По окончании первого семестра курсаПроизводство: Udemy (semester 1), Udemy (semester 2)Жанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 35:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8391A8911E3A07CBCDCB735946D5C8B708962B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467640   (1017667) от 04.05.2021
+
+HolyJS 2021 Piter | Конференция для JavaScript-разработчиков. 20-23 апреля, онлайн (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017667.jpg" />
+</div>
+
+
+###  Подробнее
+
+20-23 апреля состоялась HolyJS 2021 Piter — большая конференция для JavaScript-разработчиков. На HolyJS JS-разработчики собираются вместе, чтобы обсудить новости стремительно развивающейся экосистемы, свежие инструменты, фреймворки, паттерны и сотни изменений с экспертами со всего мира и услышать несколько десятков докладов о фронтенде и не только. Говорим и о бэкенде, (   Читать дальше...   )Производство: HolyJS 2021 PiterЖанр: ПрограммированиеПродолжительность: 35:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:526460122AEFFDC103C08CB2C6106CC4A5DC8A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467695   (1017633) от 04.05.2021
 
 Udemy, Byte Garage | The Complete C Programming Bootcamp (2021) PCRec [En / En Sub]
@@ -6,7 +143,7 @@ Udemy, Byte Garage | The Complete C Programming Bootcamp (2021) PCRec [En / En S
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017633.jpg" />
 </div>
 
 
@@ -33,7 +170,7 @@ Geeks For Geeks | C++ STL - Basic to Advanced (2020) WEB-DL [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017510.jpg" />
 </div>
 
 
@@ -59,7 +196,7 @@ Nizamov School, Илья Низамов | NuxtJS + 1C. Личный кабине
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017168.jpg" />
 </div>
 
 
@@ -88,7 +225,7 @@ Geeks For Geeks | Fundamentals of Java and Java Collections (2021) WEB-DL [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017021.jpg" />
 </div>
 
 
@@ -114,7 +251,7 @@ Geeks For Geeks | Java App Development: Summer Training - Live (2020) WEB-DL [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016867.jpg" />
 </div>
 
 
@@ -140,7 +277,7 @@ React Summi | React Summit Remote Edition 2021 PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016720.jpg" />
 </div>
 
 
@@ -166,7 +303,7 @@ Zenva Academy | Академия разработки игр: Симулятор
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016694.jpg" />
 </div>
 
 
@@ -193,7 +330,7 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016672.jpg" />
 </div>
 
 
@@ -220,7 +357,7 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016668.jpg" />
 </div>
 
 
@@ -247,7 +384,7 @@ Slurm (Слёрм), Тимофей Ларкин и др. | CI/CD на приме
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016635.jpg" />
 </div>
 
 
@@ -276,7 +413,7 @@ Udemy, Stanislav Gorchakov | Алгоритмический Трейдинг с 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016339.jpg" />
 </div>
 
 
@@ -303,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016205.jpg" />
 </div>
 
 
@@ -330,7 +467,7 @@ ITVDN, Бондаренко Кирилл  | Python 3.8.6 Стартовый (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015841.jpg" />
 </div>
 
 
@@ -357,7 +494,7 @@ ITVDN, Александр Шевчук | C# Базовый (ООП) 2021 (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015829.jpg" />
 </div>
 
 
@@ -384,7 +521,7 @@ Udemy, Colt Steele | The Modern React Bootcamp (Hooks, Context, NextJS, Router) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015690.jpg" />
 </div>
 
 
@@ -410,7 +547,7 @@ React Bootcamp, Reed Barger | Build Discord with React (2021) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015249.jpg" />
 </div>
 
 
@@ -438,7 +575,7 @@ DunderData, Ted Petrou | Анализ данных на Python / Master Data Ana
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015222.jpg" />
 </div>
 
 
@@ -467,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015193.jpg" />
 </div>
 
 
@@ -496,7 +633,7 @@ Infostart, Николай Бондаренко | 1С:Предприятие дл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015192.jpg" />
 </div>
 
 
@@ -523,7 +660,7 @@ Rebrain, Дмитрий Дунаев и др. | Онлайн-практикум 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015184.jpg" />
 </div>
 
 
@@ -552,7 +689,7 @@ Swiftlab, Дунаев Сергей | ВСЕ КУРСЫ ПО SWIFT (2018 - 2019)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014889.jpg" />
 </div>
 
 
@@ -564,145 +701,6 @@ Swiftlab, Дунаев Сергей | ВСЕ КУРСЫ ПО SWIFT (2018 - 2019)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D942B0D42E65902B6CE9AFACDD6158022985562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471769   (1014794) от 22.05.2021
-
-Udemy, Brad Schiff | React For The Rest Of Us (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучите самую популярную в мире библиотеку для создания пользовательских интерфейсов!
-Что отличает этот курс, так это то, что мы уделяем время тому, чтобы понять, * почему * мы делаем то, что делаем. Мы начнем с того, что зададим важный вопрос, который многие другие курсы React полностью игнорируют; Какую проблему решает React?
-Как только мы поймем, что такое React, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 15:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068DC3B999273BF3A32A7EC07BC32BAFCCCC9F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471784   (1014729) от 22.05.2021
-
-ITVDN, Сластен Максим | Верстка сайта на CSS Grid (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014729.jpg" />
-</div>
-
-
-###  Подробнее
-
-CSS Grid - это удобный механизм для настройки расположения элементов на странице, использующий принцип сети или таблицы со строками и столбцами. Навыки использования CSS Grid важны для любого современного фронтенд разработчика.
-Данный курс направлен на изучение использования CSS Grid в процессе создания верстки веб страниц. Вы познакомитесь с этой технологией, начиная (   Читать дальше...   )Производство: ITVDNЖанр: Программирование, вёрсткаПродолжительность: 06:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E468613C7EE2A2F53623618A0E03928D02FC65E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471766   (1014718) от 22.05.2021
-
-Специалист, Даниил Леонов | Python для бизнес - аналитики (2021) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Язык программирования Python в последнее время все чаще используется для анализа данных, как в науке, так и коммерческой сфере. Этому способствует простота языка, а также большое разнообразие открытых библиотек.
-Python — один из самых популярных инструментов для анализа данных. В этом курсе вы узнаете, как с помощью этого языка программирования строить предиктивные (   Читать дальше...   )Производство: СпециалистЖанр: Программирование, аналитикаПродолжительность: 16:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAFB8F77631EB6968306E75528276551DAE3F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471943   (1014706) от 22.05.2021
-
-Skillbox | Профессия Frontend-разработчик PRO (2021) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь верстать веб-страницы, создавать веб-приложения, работать с JavaScript и его фреймворками. Закрепите навыки на воркшопах, пополните портфолио и освоите востребованную профессию.
-Чему вы научитесь
-Верстать веб-страницы и письма средствами CSS и HTML
-Работать в системе контроля версий GIT(   Читать дальше...   )Производство: SkillboxЖанр: Разработка, FrontendПродолжительность: ~140:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DF592E81F220FF9037411E53DB552747DE8B724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472208   (1014458) от 24.05.2021
-
-AmigosCode, Nelson | Database Design & Implementation (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дизайн и реализация базы данных
-Бэкэнд начинается с вашей базы данных. Когда у вас есть надежный дизайн базы данных, писать код легко.
-В этом курсе вы узнаете, как разрабатывать базы данных для ваших серверных приложений. Вы узнаете, как создать подмножество платформы YouTube, позволяющее создавать собственные базы данных.Производство: AmigosCodeЖанр: Программирование, базы данныхЯзык озвучки: АнглийскийПродолжительность: 02:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C695D0B4947DD81D69FACC18FC13D902A6B608FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

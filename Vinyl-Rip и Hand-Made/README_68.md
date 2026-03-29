@@ -1,3 +1,235 @@
+###  Публикация: 1704348   (114102) от 05.03.2024
+
+Solitude Aeturnus - Hour of Despair (2007) hand made remaster [FLAC 16/44.1|Lossless|tracks] <Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114102.jpg" />
+</div>
+
+
+###  Подробнее
+
+обработанный (собственный ремастер) концертный CD (запись - Варшава, Польша, 12 февраля 2007 года), который прилагался к концертному DVD.01. Scent of Death [10:02]
+02. Haunting the Obscure [04:59]
+03. Mental Pictures [05:30]
+04. Destiny Falls to Ruin [05:31](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2FC63CE1C1277C0DD28CD8872CC0437D4B0D97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704822   (114033) от 06.03.2024
+
+Jimmy Goings & Santa Esmeralda - Green Talisman (1982) [FLAC 24/192|Lossless|tracks] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Зеленый талисман
+Green Talisman (Skorsky / Carmona - Goings - Skorsky)
+02. Сладкий союз(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1AE867AF801BAAAB7156E7515019089917E9CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704819   (114032) от 06.03.2024
+
+Ivo Linna - Поёт Иво Линна (1983) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня любви (Т. Брасфильд - Р. Линна)
+02. Почему я жду тебя? (Р. Галдри, П. Гейтн - Х. мирка)
+03. Буги зайца (М. Капелл - П. Аймла)
+04. Тоска по родному дому (Г. Каянус - Х. Кяо)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84F483AB2C85AC102D526839462FBD988F197511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704948   (114020) от 06.03.2024
+
+Вальдо де лос Риос - Волшебная Музыка (1979) [FLAC 24/192|Lossless|tracks] <Modern Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Все говорят (из к/ф Полночный ковбой)
+Everybody's Talkin' (F. Neil)
+02. Жан(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EDB0F1F0C0D21B87443ABE4128229D8A20371B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704952   (114018) от 06.03.2024
+
+Вахтанг Кикабидзе - Пока сердце поет (1979) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Пока сердце поёт (А. Ованов – Н. Арешидзе)
+02. Ты сама ко мне придёшь (Г. Каландадзе – П. Грузинский)
+03. Куда ушли вы, молодые годы (Н. Адилашвили – В. Гоголашвили)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39ED83346B49088FF2ADF07D0BC7F29EC076C01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705071   (113997) от 07.03.2024
+
+Emerson, Lake & Palmer - Trilogy (1972) 1990-е [FLAC 24/192|Lossless|tracks] <Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1.
+01.The Endless Enigma (Part One) (Emerson – Lake)
+02.Fugue (Emerson)
+03.The Endless Enigma (Part Two) (Emerson – Lake)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018E67962A302C3D49C479902155EFD3BE49917E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704959   (113987) от 07.03.2024
+
+ВИА «ABC» под управлением Ангело Владковича (Югославия) - ABC (1975) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Ватерлоо (Б.Андерсон)
+02. Мечты (И.Швагер)
+03. Какая она красивая (Д.Паце)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76BCE4ACB02973B7909510EFAF84EBA4FF652A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705074   (113973) от 07.03.2024
+
+VA - With love to children (С любовью к детям) (1991) [FLAC 24/192|Lossless|tracks] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Love Is Such A Lonely Word (D. Bohlen) – Blue System
+02. Big Time (Muller – G+M Koppehelle) – C. C. Catch
+03. Sole (G. Castelli – G. Gaste) – Gino Castelli(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E92DD8AE3F1FDF6C1C9E3E2817F6CB906B86B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705093   (113963) от 07.03.2024
 
 Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|tracks] <Country, Pop-Rock>
@@ -6,7 +238,7 @@ Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|t
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113963.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Дум
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113958.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113952.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113925.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ VA - Для вас, женщины! Деловая женщина (1988) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113898.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ VA - Для вас, женщины. Принцесса (1989) [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113894.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Shylmagoghnar - Studio Albums (3 releases) (2014-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113888.jpg" />
 </div>
 
 
@@ -208,7 +440,7 @@ Marisol - Поёт Марисоль (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113875.jpg" />
 </div>
 
 
@@ -237,7 +469,7 @@ Paul Anka - Paul Anka (1991) [FLAC 24/192|Lossless|tracks] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113870.jpg" />
 </div>
 
 
@@ -266,7 +498,7 @@ Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Зем
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113855.jpg" />
 </div>
 
 
@@ -295,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113828.jpg" />
 </div>
 
 
@@ -324,7 +556,7 @@ AC/DC - The Razors Edge (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113827.jpg" />
 </div>
 
 
@@ -353,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113826.jpg" />
 </div>
 
 
@@ -382,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113822.jpg" />
 </div>
 
 
@@ -411,7 +643,7 @@ The Moody Blues - The Other Side Of Life (1986) [FLAC 24/192|Lossless|tracks] <R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113817.jpg" />
 </div>
 
 
@@ -440,7 +672,7 @@ AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113814.jpg" />
 </div>
 
 
@@ -469,7 +701,7 @@ Sting - The Soul Cages (1991) 1992 [FLAC 24/192|Lossless|tracks] <Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113810.jpg" />
 </div>
 
 
@@ -498,7 +730,7 @@ Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113760.jpg" />
 </div>
 
 
@@ -512,238 +744,6 @@ Marc Bolan & T-Rex - Марк Болан и T-REX (1987) 1992 [FLAC 24/192|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AED9FADE70D26B840E0FDA2D82801A4AB529BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705723   (113754) от 10.03.2024
-
-Сергей Маврин - Студийные альбомы (20 изданий) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113754.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Маврин» (ранее «Маврик», 1997–2001, и «Сергей Маврин», 2001—2009) — российская хеви-метал-группа, получившая название в честь основателя группы Сергея Маврина, бывшего гитариста группы «Ария». Существовала в течение четверти века: с 1998 по 2023 гг.1997 - Смутное время
-1998 - Скиталец
-2000 - Неформат 1
-2001 - Химический сонЖанр: Progressive Heavy MetalПродолжительность: 17:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5153A135BEDCE23ABA17CA1FC06930A9C7B55BAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705829   (113752) от 10.03.2024
-
-Freddie Mercury & Montserrat Caballe - Barcelona (1988) 1992 [FLAC 24/192|Lossless|tracks] <Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Barcelona (F.Mercury – Moran) 5.38
-02. La Japonaise (F.Mercury – Moran) 4.49
-03. The fallen priest (F.Mercury – Moran – Rice) 5.45(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F0E7D0C3322396DB1B767644948C5BA0DB9BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705833   (113743) от 10.03.2024
-
-Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Именно так
-02 - Свети ярче
-03 - Незаметно укройся (от моего лунного света)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D59B1DE3FC90C49BC0D5A62FCAC8BDA8BA4AFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706054   (113674) от 12.03.2024
-
-ВИА «Синяя птица» - Подземный переход (1986) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Подземный переход. (В. Шаинский - С. Алиханов, А. Жигарев)
-02 - Когда-нибудь. (М. Минков - А. Макаревич)
-03 - Здравствуй, как ты живешь? (Т. Ефимов - С. Осиашвили)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7D25F78F67B5744FF1B35E8441ABFB0A9706BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706322   (113670) от 12.03.2024
-
-VA - Игра в четыре руки. Песни Аркадия Укупника (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01-Эй, гражданка (В. Гин) – Ирина Понаровская
-02-Пустынный берег (В. Дюнин) – Аркадий Укупник
-03-Ошибка (И. Шаферан) – Алина Витебская(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706045   (113669) от 12.03.2024
-
-The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Дай мне прибежище.
-02 - Тщетная любовь.
-03 - Деревенщина.(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DABBDA1C30A4E68942C9FF76B67A1242FFC5F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706317   (113660) от 12.03.2024
-
-VA - Вот какая любовь. Песни Романа Майорова (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Вот какая любовь (М. Рябинин) — Ирина Уварова и Николай Караченцов
-02. Город (Я. Гальперин) — Ансамбль «Пламя»
-03. Твой портрет (Л. Волков) — Юрий Охочинский(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65C69B8CF1B593D0C3288F40138AF7AC02CBA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706168   (113655) от 12.03.2024
-
-VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1.
-01. Smoke On The Water'90. (Blackmore-Glover-Lord-Paice)
-Rock Aid Armenia - 4.05
-02. Run To The Hills. (Iron Maiden)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAF8C756B44B0BEA471600D6EE542F604D8A940
 ```
 
 https://mybot314.ru/tekegram_catalog/

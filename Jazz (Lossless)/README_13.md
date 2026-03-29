@@ -1,3 +1,119 @@
+###  Публикация: 1461008   (1022088) от 08.04.2021
+
+Donald Byrd and The Blackbyrds - The Jazz Funk Collection (2020) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022088.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Lansana’s Priestess (7:43)
+02. Black Byrd (7:21)
+03. Love’s So Far Away (6:03)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 03:30:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:275753A32796E4AFC4FAE977DD5C481731C4534E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461350   (1021926) от 09.04.2021
+
+VA - Americans In Paris: The City Of Love And All That Jazz (1952 - 1959) 10CD, 2017, The Intense Media [FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021926.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - Dizzy Gillespie-Summertime:
+01. Dizzy Gillespie - Cognac Blues [2:42]
+02. Dizzy Gillespie - Cocktails For Two [2:42]
+03. Dizzy Gillespie - Moon Nocturne [3:03](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Vocal JazzПродолжительность: 10:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F26D7AA1412468B44C3DE34749F9C512645AEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461652   (1021820) от 10.04.2021
+
+Warren Vache - Iridescence (1981) 1991, Concord [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Softly As In A Morning Sunrise [4:42]
+02. Sweet And Slow [4:56]
+03. Between The Devil And The Deep Blue Sea [4:35]
+04. Iridescence [4:18](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D1C8EB01A49175DA81E2617F753C54D90DFC49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461766   (1021641) от 11.04.2021
+
+Stan Getz - Modern Jazz Archive (1950 - 1980) 2CD, 2004, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021641.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Strike Up The Band:
+01. Strike Up The Band [2:30]
+02. It Might As Well Be Spring [2:53]
+03. Melody Express [2:48](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545EAA4AF0704D26C9DAE143B6D12270BA008541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461809   (1021640) от 11.04.2021
 
 Yaniv Taubenhouse - Perpetuation: Moments In Trio, Vol.II (2019) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -6,7 +122,7 @@ Yaniv Taubenhouse - Perpetuation: Moments In Trio, Vol.II (2019) Fresh Sound Rec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021640.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ V.A. - Women Of Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021598.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Paolo Di Sabatino - Paolo Di Sabatino (2002) Il Manifesto [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021463.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Nils Krogh - Disposition (2007) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021462.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Red Norvo - Nuances By Norvo (1938 - 1942) 2000, Hep Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021339.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Red Norvo - Jivin' The Jeep (1936 - 1937) 1993, Hep Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021338.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Red Norvo - Rock It For Me (1937 - 1938) 1994, Hep Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021337.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Count Basie - Ken Burns Jazz. The Definitive Count Basie (2000) [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021335.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Mindi Abair - The Best Of Mindi Abair (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021145.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ String Trio Of New York - Common Goal (1982) /Black Saint/ [FLAC|tracks+.cue]<Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021106.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Bill Coleman - 1936 - 1938 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021047.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Bennie Moten's Kansas City Orchestra - The Okeh Sessions Plus Victor Alternative
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021031.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Soul Tenors: Milestones Of Jazz Legends (1956 - 1962) 10CD, 2020, The Inten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020501.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Sarah Vaughan - Snowbound & The Lonely Hours (1963, 1964) 1997, EMI [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020333.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Bennie Moten - Kansas City Breakdown: The Victor Recordings, Vol.2 (1928 - 1929)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020013.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Bennie Moten - Justrite: The Victor Recordings, Vol.1 (1926 - 1928) 1999, Frog [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020003.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Nina Simone - Nina Simone Sings the Blues (1967) 1993,  RCA/BMG Victor [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019921.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Meade Lux Lewis - 1946 - 1954 (2005) Classics [FLAC|Lossless|image + .cue] <Boog
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019831.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Jane Monheit - Come What May (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019799.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Jimmie Noone - The Jimmie Noone Collection, Vol.1 (1928) 1992, Collector's Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019668.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Ghost Train Orchestra - Book Of Rhapsodies (2013) Accurate [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019315.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Bill Evans - The Complete Fantasy Recordings (1973 - 1979) 9CD, 1989, Fantasy [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019150.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0768CFE112A72E2C530F8FB747DE1804656B7E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465490   (1019147) от 26.04.2021
-
-Jeff Kashiwa - Sunrise (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (00:04:20)
-02. Givin' In (00:05:00)
-03. The Night Is Young (00:04:19)
-04. Slow Turn (00:05:13)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:573C8CE027F6F406446A264A058137678CB417A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465770   (1019005) от 27.04.2021
-
-Luis Russell - 1945 - 1946 (1999) Classics [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Taught Me How to Smile Again [3:06]
-02. Boogie in the Basement [2:53]
-03. Sweet Memory [2:50]
-04. Sad Lover Blues [3:02](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B1ADAFC94FFEF1E3C32325CDD4DF10DD8E0F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465773   (1018998) от 27.04.2021
-
-Buddy DeFranco (De Franco) - 1949 - 1952 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boy Next Door [2:36]
-02. A Bird in Igor's Yard [2:54]
-03. This Time the Dream's on Me [3:08]
-04. Bud's Invention [2:39](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC392F94437405670531C5CA7E2DA257AE5C902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465760   (1018993) от 27.04.2021
-
-Gidi Derzy, Denis Fortoos - The Living Room Sessions (Gidi Derzy Music) (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018993.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winter Drops - 03:35
-2. My Latin Flavor - 03:02
-3. Covibe Holiday - 04:02
-4. December Morning Sun - 03:02(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99379192C76262B83D24F8AE7F02A44BA2E12A55
 ```
 
 https://mybot314.ru/tekegram_catalog/

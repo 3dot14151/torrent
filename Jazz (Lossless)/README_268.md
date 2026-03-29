@@ -1,3 +1,119 @@
+###  Публикация: 1638890   (211761) от 11.06.2023
+
+VA - Lluvia JAZZ (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ella Fitzgerald -- Sleigh Ride (2:56)
+02. Louis Armstrong -- What A Wonderful World (2:18)
+03. Frank Sinatra -- Fly Me To The Moon (In Other Words) (2:27)
+04. Norah Jones -- Don't Know Why (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20694855A1EFD88DE3F7CB4D021A430E57C122CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638877   (211759) от 11.06.2023
+
+VA - After Dark Warm Summer Nights Sensual Smooth Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion -- Wherever I Go (4:19)
+02. Kool&Klean -- Begin Again (4:34)
+03. Konstantin Klashtorni -- Used to Love You (4:08)
+04. Chillaxing Jazz Kollektion -- Blue Pacific (4:39)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA166919D9BE2A223B6E127963D8CA83D6A11087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638893   (211747) от 11.06.2023
+
+VA - That's What We Call SMOOTH JAZZ (33 Tunes) (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean -- Shine (4:13)
+02. eJazz Artistry -- Real Love (4:16)
+03. Chillaxing Jazz Kollektion -- Summer Wind (5:08)
+04. Love Suggestions -- Little Talks (4:59)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D50B8C8A516141C29EDA8A1E786C9DA2D92A555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638880   (211734) от 11.06.2023
+
+VA - Hit - List Vol 7 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Prima -- Pennies From Heaven (2:22)
+02. Frank Sinatra -- Fly Me To The Moon (In Other Words) (2:27)
+03. Norah Jones -- Don't Know Why (3:06)
+04. Vince Guaraldi Trio -- What Child Is This (2:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20AAB1A247B6BE6C2B16D96484431026CB3F530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638894   (211726) от 11.06.2023
 
 VA - Ultimate Jazz Chillout Sweet Instrumentals on the Beach (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -6,7 +122,7 @@ VA - Ultimate Jazz Chillout Sweet Instrumentals on the Beach (2023) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211726.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Blues & Jazz 101 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211720.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Stanley Turrentine - The Look Of Love (1968) 1982, Applause Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211341.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Stanley Turrentine - La Place (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211335.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Stanley Turrentine - New Time Shuffle (1967) 2012, Toshiba-EMI [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211331.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Stanley Turrentine - The Best of Stanley Turrentine: The Blue Note Years (1989) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211312.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Dexter Gordon Quartet - Love For Sale (1964) 1990, SteepleChase [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210808.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Jackie McLean & Dexter Gordon - The Meeting, Vol. 1 (1973) 1990, SteepleChase [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210608.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Dexter Gordon - More Power! (1969) 1994, Original Jazz Classics [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210470.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Sunday Family Brunch Lounge Soothing (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210408.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Dexter Gordon Quartet - Swiss Nights, Vol.2 (1975) 1987, SteepleChase [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210381.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Dexter Gordon Quartet - Swiss Nights, Vol. 1 (1975) 1987, SteepleChase [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210371.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Sax & Romance (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210350.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Dexter Gordon Quartet - Swiss Nights, Vol.3 (1975) 1987, SteepleChase [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210243.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Andrews Sisters - The Absolutely Essential (1938 - 1948) 3CD, 2018, Big3 [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209805.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Daniel Zimmermann - Bone Machine (2013) [FLAC (tracks+.cue)]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207963.jpg" />
+  <img src="Z:/picture/005/save_picture_207963.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ De-Phazz - Reduced (Remixes) (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207336.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Romantic Beats for Lovers - Sensual Bubble Bath : Slow Romantic Jazz for Pleasur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206664.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Nina Simone - Great Women Of Song: Nina Simone (2023) [FLAC|Lossless|WEB-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206210.jpg" />
+  <img src="Z:/picture/005/save_picture_206210.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Katie Melua - Album No.8 (2020) Deluxe Edition [FLAC|Lossless|image + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205821.jpg" />
+  <img src="Z:/picture/004/save_picture_205821.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Roaring Halloween (Electro Swing 4) (2025) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205783.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jackie McLean & John Jenkins - Alto Madness (1957) 1991, Original Jazz Classics 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205515.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Jackie McLean & John Jenkins - Alto Madness (1957) 1991, Original Jazz Classics 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1F8ECDA53E6ACD2465526B40AC2E6FFB735D2C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653372   (205500) от 16.08.2023
-
-VA - Jazz Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larkster Quartet - Always on My Mind (4:00)
-02. George Lanza - Sugar (3:57)
-03. Shannon & Keast - Fever (3:15)
-04. Meesha - Fields of Gold (4:00)(   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04BCE8F05A6A78A0B1E4B8EE72C0B429691A226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653380   (205488) от 16.08.2023
-
-VA - Rock and Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal, Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Keast - Viva la Vida (4:27)
-02. Malva and the Sunday Crew - Use Somebody (3:05)
-03. Talisha Karrer - Sweet Child O’ Mine (3:56)
-04. Alice Lamb - Seven Nation Army (2:26)(   Читать дальше...   )Жанр: Jazz Vocal, RockПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387A1585549FB651436082C91F98859F953595C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653450   (205452) от 16.08.2023
-
-Gene Ammons - Funky (1957) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funky [9:01]
-02. Pint Size [12:24]
-03. Stella By Starlight [8:58]
-04. King Size [9:17]Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB7BF3375D88E6B4117C6F79FCD1C663B42DE8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653543   (205436) от 16.08.2023
-
-Dr. John - The Montreux Years (2023) [FLAC|Lossless|tracks + .cue] <Jazz, Funk, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Professor Longhair Boogie (Live At Casino Montreux 1986) (3:36)
-02. You Ain't Such A Much (Live At Casino Montreux 1986) (4:53)
-03. Sick And Tired (Live At Casino Montreux 1986) (3:31)
-04. Stack-a-Lee (Live At Casino Montreux 1986) (4:12)(   Читать дальше...   )Жанр: Jazz, Funk, BluesПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D0EA995F4B012EFE1EBE72DF319285686768F2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

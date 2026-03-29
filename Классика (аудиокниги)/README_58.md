@@ -1,3 +1,113 @@
+###  Публикация: 1685938   (126874) от 20.12.2023
+
+Жорж Санд | Замок Персмон (2020) [MP3, Людмила Быкова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жорж Санд (1804–1876) – французская писательница. Настоящее имя – Аврора Дюпен. Автор многочисленных романов и повестей: «Индиана» (1832), «Орас» (1841–1842), «Консуэло» (1842–1843) и др., мемуаров «История моей жизни» (1854–1855).
+Последний из романов Жорж Санд, написанный вскоре после событий Парижской Коммуны. Запутанные интриги, сильные чувства, яркие характеры (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ИДДКПродолжительность: 05:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6AB7449E452C5BBD35BFC1D8A70358E4CD8506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685926   (126872) от 20.12.2023
+
+Жорж Санд | Грех господина Антуана (2011) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жорж Санд (1804–1876) – французская писательница. Настоящее имя – Аврора Дюпен. Автор многочисленных романов и повестей: «Индиана» (1832), «Орас» (1841–1842), «Консуэло» (1842–1843) и др., мемуаров «История моей жизни» (1854–1855).
+В 1845 году на страницах газеты «Эпоха» печатался социальный роман «Грех господина Антуана». Главный герой романа фабрикант Кардонне (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Нигде не купишьПродолжительность: 15:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB2ADA908926D4DC849442CD3B7C58AF867284A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685932   (126871) от 20.12.2023
+
+Жорж Санд | Чёртово болото (2017) [MP3, Александр Бордуков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена.
+Жорж Санд (1804–1876) – французская писательница. Настоящее имя – Аврора Дюпен. Автор многочисленных романов и повестей: «Индиана» (1832), «Орас» (1841–1842), «Консуэло» (1842–1843) и др., мемуаров «История моей жизни» (1854–1855).
+Представляем вашему вниманию аудиоверсию повести известной французской писательницы Жорж Санд «Чёртово (   Читать дальше...   )Жанр: Зарубежная литература, классика, повестьИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914577EA535F104BF87505FF7C9C787088C4C854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685876   (126862) от 20.12.2023
+
+Жорж Санд | Книга 2. Графиня Рудольштадт (2022) [MP3, Юлия Тархова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XIX век. Зарубежная проза.
+Жорж Санд (1804–1876) – французская писательница. Настоящее имя – Аврора Дюпен. Автор многочисленных романов и повестей: «Индиана» (1832), «Орас» (1841–1842), «Консуэло» (1842–1843) и др., мемуаров «История моей жизни» (1854–1855).
+Аудиостудия «Ардис» предлагает вам послушать в исполнении Юлии Тарховой книгу о Консуэло, принадлежащую (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 23:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6798988C5E131936FA94756379AB6D96D20A7AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685915   (126856) от 20.12.2023
 
 Жорж Санд | Исповедь молодой девушки (2022) [MP3, Наталья Штин]
@@ -6,7 +116,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126856.jpg" />
 </div>
 
 
@@ -34,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126854.jpg" />
 </div>
 
 
@@ -62,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126693.jpg" />
 </div>
 
 
@@ -89,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126684.jpg" />
 </div>
 
 
@@ -117,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126679.jpg" />
 </div>
 
 
@@ -144,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126594.jpg" />
 </div>
 
 
@@ -172,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126542.jpg" />
 </div>
 
 
@@ -199,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126486.jpg" />
 </div>
 
 
@@ -226,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126473.jpg" />
 </div>
 
 
@@ -253,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126451.jpg" />
 </div>
 
 
@@ -280,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126431.jpg" />
 </div>
 
 
@@ -308,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126419.jpg" />
 </div>
 
 
@@ -336,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126396.jpg" />
 </div>
 
 
@@ -365,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126226.jpg" />
 </div>
 
 
@@ -394,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126219.jpg" />
 </div>
 
 
@@ -421,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126197.jpg" />
 </div>
 
 
@@ -447,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125924.jpg" />
 </div>
 
 
@@ -475,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125896.jpg" />
 </div>
 
 
@@ -502,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125880.jpg" />
 </div>
 
 
@@ -528,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125879.jpg" />
 </div>
 
 
@@ -557,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125877.jpg" />
 </div>
 
 
@@ -583,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125661.jpg" />
 </div>
 
 
@@ -596,114 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA42DF5E8205F453846A5C7FD23A719BC9F3E861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687423   (125562) от 26.12.2023
-
-Николай  Лесков | Очарованный странник (2019) [MP3, Марина Сатори]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125562.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мы плыли по Ладожскому озеру от острова Коневца к Валааму и на пути зашли по корабельной надобности в пристань к Кореле. Здесь многие из нас полюбопытствовали сойти на берег и съездили на бодрых чухонских лошадках в пустынный городок. Затем капитан изготовился продолжать путь, и мы снова отплыли…»Жанр: Русская классикаИздательство: ЛитРесПродолжительность: 04:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007DE646F1833170C58ECA7B2C2667A486B93773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452550   (125540) от 27.12.2023
-
-Николай Лесков | Соборяне (2010) [MP3, Максим Доронин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Клуб любителей аудиокниг.
-Николай Семёнович Лесков (1831–1895) – один из лучших мастеров русской прозы, «самый русский из русских писателей», «прозеванный русский гений», по определению Игоря Северянина.
-Роман «Соборяне» была написана в 1872 г. С неё начался поворот Лескова к славянофильству, к русской религиозной тематике. Ярко и образно рассказывая о жизни (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ДВД КлассикаПродолжительность: 11:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14190EDDE27ADB7B9850B5E33B643453BEE6B2D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323218   (125538) от 27.12.2023
-
-Николай Лесков | Левша (2007) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Библиотека школьника.
-Николай Семёнович Лесков (1831–1895) вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
-«Левша» – наш ответ английским мастерам. Они нам – блоху размером с булавочную головку. А мы (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Издательский дом «Союз»Продолжительность: 01:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF990BBDED0ABF94108BFFB1126C1535D2B10A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 429788   (125516) от 27.12.2023
-
-Николай Лесков | Запечатленный ангел (2010) [MP3, Владимир Козичев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Семёнович Лесков (1831–1895) – русский писатель и публицист, художественное дарование которого наиболее ярко проявилось в его рассказах и повестях. Именно в них, а не в романах, Лескову удалось создать широкую картину русской жизни и образы удивительных, самобытных героев. Большое внимание уделял Лесков и русской старине, считая ценным для развития общества (   Читать дальше...   )Жанр: Русская литература классика, рассказИздательство: «Студия Феофания» по заказу ИД «Русскiй Паломникъ»Продолжительность: 02:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0610EAD0D1CB538D2D4818A93251134F5E4D0BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

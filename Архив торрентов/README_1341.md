@@ -6,7 +6,7 @@ Sonible - smart:limit 1.0.1 VST, VST3, AAX (x64) RePack by RET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751560.jpg" />
+  <img src="Z:/picture/008/save_picture_751560.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ macOS Server 5.12.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751557.jpg" />
+  <img src="Z:/picture/008/save_picture_751557.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Firefox Browser ESR 91.5.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751553.jpg" />
+  <img src="Z:/picture/008/save_picture_751553.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Tone2 - Gladiator 3.1.0 STANDALONE, VSTi, VSTi3 (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751551.jpg" />
+  <img src="Z:/picture/008/save_picture_751551.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Timer RH PRO  2.10.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751546.jpg" />
+  <img src="Z:/picture/008/save_picture_751546.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cytomic The Glue 1.5.0 VST, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751545.jpg" />
+  <img src="Z:/picture/008/save_picture_751545.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751540.jpg" />
+  <img src="Z:/picture/008/save_picture_751540.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751522.jpg" />
+  <img src="Z:/picture/008/save_picture_751522.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751520.jpg" />
+  <img src="Z:/picture/008/save_picture_751520.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SideFx Houdini FX 15.5.480 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751515.jpg" />
+  <img src="Z:/picture/008/save_picture_751515.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Hands Off! 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751514.jpg" />
+  <img src="Z:/picture/008/save_picture_751514.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Dism++ 10.1.5.3 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751509.jpg" />
+  <img src="Z:/picture/008/save_picture_751509.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ CRAX Commander 1.10.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751503.jpg" />
+  <img src="Z:/picture/008/save_picture_751503.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Skype 8.38.0.161 Portable by Cento8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751502.jpg" />
+  <img src="Z:/picture/005/save_picture_751502.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751501.jpg" />
+  <img src="Z:/picture/008/save_picture_751501.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Crrow777 | Подкасты (2016-2019) [MP3] [En]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751493.jpg" />
+  <img src="Z:/picture/008/save_picture_751493.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Rainmeter 4.3.0 Build 3283 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751490.jpg" />
+  <img src="Z:/picture/008/save_picture_751490.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ LibreOffice 6.2.0.3 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751489.jpg" />
+  <img src="Z:/picture/008/save_picture_751489.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ The KMPlayer 4.2.2.21 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751487.jpg" />
+  <img src="Z:/picture/008/save_picture_751487.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751445.jpg" />
+  <img src="Z:/picture/008/save_picture_751445.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ GeoGebra 6.0.683.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751440.jpg" />
+  <img src="Z:/picture/008/save_picture_751440.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Cockos REAPER 6.45 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751439.jpg" />
+  <img src="Z:/picture/008/save_picture_751439.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751434.jpg" />
+  <img src="Z:/picture/008/save_picture_751434.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Volume2 1.1.8.452 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751430.jpg" />
+  <img src="Z:/picture/008/save_picture_751430.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Soft Organizer Pro 9.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751427.jpg" />
+  <img src="Z:/picture/008/save_picture_751427.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Clime: Прогноз погоды и Радар v1.48.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751425.jpg" />
+  <img src="Z:/picture/008/save_picture_751425.jpg" />
 </div>
 
 

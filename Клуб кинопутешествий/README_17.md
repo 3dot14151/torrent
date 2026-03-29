@@ -1,3 +1,55 @@
+###  Публикация: 1395850   (752198) от 12.07.2020
+
+Город на берегу. Танжер / Waterfront Cities Of The World (2014) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танжер – крупный портовый город в Марокко, расположенный на берегу Гибралтарского пролива. Ещё с финикийских времен этот порт является так называемыми воротами между Африкой и Европой.Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Николя Буше, Этиен ДесирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8948878F302FEDA3171AF071699FD12CFF8CF051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395834   (752194) от 12.07.2020
+
+Город на берегу. Рейкьявик / Waterfront Cities Of The World (2011) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рейкьявик (Исландия) - город на берегу Атлантики. Это самая северная в мире столица государства. Город тихий, уютный и приспособленный для комфортной жизни.Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Николя Буше, Этиен ДесирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41E7117028A26EF703635FA4C04A9CF661834DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395880   (752192) от 12.07.2020
 
 Романтическое путешествие по каналам. Франция / Great Canal Journeys (2017) HDTV [H.264/1080i]
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752192.jpg" />
+  <img src="Z:/picture/008/save_picture_752192.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752128.jpg" />
+  <img src="Z:/picture/008/save_picture_752128.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752127.jpg" />
+  <img src="Z:/picture/008/save_picture_752127.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752126.jpg" />
+  <img src="Z:/picture/008/save_picture_752126.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752125.jpg" />
+  <img src="Z:/picture/008/save_picture_752125.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752121.jpg" />
+  <img src="Z:/picture/008/save_picture_752121.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752120.jpg" />
+  <img src="Z:/picture/008/save_picture_752120.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752119.jpg" />
+  <img src="Z:/picture/008/save_picture_752119.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752115.jpg" />
+  <img src="Z:/picture/005/save_picture_752115.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752112.jpg" />
+  <img src="Z:/picture/008/save_picture_752112.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752102.jpg" />
+  <img src="Z:/picture/008/save_picture_752102.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752047.jpg" />
+  <img src="Z:/picture/005/save_picture_752047.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752041.jpg" />
+  <img src="Z:/picture/008/save_picture_752041.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751444.jpg" />
+  <img src="Z:/picture/008/save_picture_751444.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751435.jpg" />
+  <img src="Z:/picture/008/save_picture_751435.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750174.jpg" />
+  <img src="Z:/picture/008/save_picture_750174.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748611.jpg" />
+  <img src="Z:/picture/008/save_picture_748611.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748409.jpg" />
+  <img src="Z:/picture/008/save_picture_748409.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748344.jpg" />
+  <img src="Z:/picture/008/save_picture_748344.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747957.jpg" />
+  <img src="Z:/picture/008/save_picture_747957.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747163.jpg" />
+  <img src="Z:/picture/008/save_picture_747163.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746930.jpg" />
+  <img src="Z:/picture/008/save_picture_746930.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746929.jpg" />
+  <img src="Z:/picture/008/save_picture_746929.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746926.jpg" />
+  <img src="Z:/picture/008/save_picture_746926.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08CA5CA506B0DB70185767536E55E7603B2CD89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396493   (746925) от 15.07.2020
-
-Путешествие по британским каналам (Пик Форест-Бирмингем) / Britain's Best Canals With John Sergeant (2014) DVB [H.264]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746925.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сеть каналов Великобритании - настоящее национальное достояние со своей уникальной историей. В этой познавательной программе, путеводитель Джон отправляется в увлекательное путешествие по лучшим каналам Британии, погружаясь в их прошлую и настоящую жизнь.Производство: Великобритания, Alaska TVЖанр: Документальный, познавательный, путешествияРежиссер: Клайв МалтбиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EA4E1A633611AE1E754E515C60BEBB7FEA2FA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396466   (746921) от 15.07.2020
-
-Обитаемый остров. Внешние Гебридские острова / The Island Diaries. Outer Hebrides (2018) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суровые и неприступные Гебридские острова - царство ветра и волн, но это на первый взгляд. Внимательный путешественник найдет здесь особую романтику и красоту.Производство: Канада, TV5Жанр: Документальный, природа, путешествияРежиссер: Кристина Кларк, Этьен ДезиреПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70CEB37A03A11C700BBF3FAF246545ABDB8E4D98
 ```
 
 https://mybot314.ru/tekegram_catalog/

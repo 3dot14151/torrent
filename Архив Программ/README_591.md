@@ -6,7 +6,7 @@ Mp3tag 3.02 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753452.jpg" />
+  <img src="Z:/picture/008/save_picture_753452.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ LosslessCut 3.23.8 Portable (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753450.jpg" />
+  <img src="Z:/picture/008/save_picture_753450.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753449.jpg" />
+  <img src="Z:/picture/008/save_picture_753449.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ WinNc 7.5.0.0 RePack by HakerStars [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753424.jpg" />
+  <img src="Z:/picture/008/save_picture_753424.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RegCool 1.305 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753407.jpg" />
+  <img src="Z:/picture/008/save_picture_753407.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ HDCleaner 2.012 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753399.jpg" />
+  <img src="Z:/picture/008/save_picture_753399.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ HitPaw Screen Recorder 1.3.2.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753395.jpg" />
+  <img src="Z:/picture/008/save_picture_753395.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ ApowerREC 1.5.4.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753375.jpg" />
+  <img src="Z:/picture/008/save_picture_753375.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Google Chrome 72.0.3626.96 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753365.jpg" />
+  <img src="Z:/picture/008/save_picture_753365.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Loaris Trojan Remover 3.0.77.212 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753359.jpg" />
+  <img src="Z:/picture/008/save_picture_753359.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Google Chrome 72.0.3626.96 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753357.jpg" />
+  <img src="Z:/picture/008/save_picture_753357.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VueScan Pro 9.6.29 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753356.jpg" />
+  <img src="Z:/picture/008/save_picture_753356.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Soft Organizer Pro 7.43 RePacK by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753355.jpg" />
+  <img src="Z:/picture/008/save_picture_753355.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Adobe components: Flash Player 17.0.0.169 + AIR 17.0.0.144 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753350.jpg" />
+  <img src="Z:/picture/008/save_picture_753350.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Hard Drive Inspector Professional 4.32 Build 235 + for Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753336.jpg" />
+  <img src="Z:/picture/008/save_picture_753336.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4366.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753331.jpg" />
+  <img src="Z:/picture/008/save_picture_753331.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ DLL Care 1.0.0.2247 RePack (& Portable) by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753330.jpg" />
+  <img src="Z:/picture/008/save_picture_753330.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Microsoft Office 2016 Standard 16.0.4366.1000 RePack by KpoJIuK (2016.05) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753315.jpg" />
+  <img src="Z:/picture/008/save_picture_753315.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Tixati 2.74 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753305.jpg" />
+  <img src="Z:/picture/008/save_picture_753305.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ AnyDesk 6.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753301.jpg" />
+  <img src="Z:/picture/008/save_picture_753301.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ CyberLink AudioDirector Ultra 12.1.2415.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753292.jpg" />
+  <img src="Z:/picture/008/save_picture_753292.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ BandLab - Cakewalk 2021.12 (Build 102) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753289.jpg" />
+  <img src="Z:/picture/008/save_picture_753289.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Macrorit Partition Expert Server Edition 5.3.7. [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753250.jpg" />
+  <img src="Z:/picture/008/save_picture_753250.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ SQLite Expert Professional 5.3.2.379 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753249.jpg" />
+  <img src="Z:/picture/008/save_picture_753249.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Skype 8.38.0.161 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753248.jpg" />
+  <img src="Z:/picture/008/save_picture_753248.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ YTD Video Downloader PRO 5.9.10.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753247.jpg" />
+  <img src="Z:/picture/008/save_picture_753247.jpg" />
 </div>
 
 

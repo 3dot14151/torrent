@@ -6,7 +6,7 @@ Format Factory 5.9.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790723.jpg" />
+  <img src="Z:/picture/008/save_picture_790723.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ simplewall 3.6.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790717.jpg" />
+  <img src="Z:/picture/008/save_picture_790717.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe Photoshop Lightroom Classic 11.0.1.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790698.jpg" />
+  <img src="Z:/picture/008/save_picture_790698.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Adobe Acrobat Pro DC 2021.007.20102 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790691.jpg" />
+  <img src="Z:/picture/008/save_picture_790691.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Firefox Browser 77.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790682.jpg" />
+  <img src="Z:/picture/008/save_picture_790682.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Ocenaudio 3.7.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790670.jpg" />
+  <img src="Z:/picture/008/save_picture_790670.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ GPU Caps Viewer 1.45.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790656.jpg" />
+  <img src="Z:/picture/008/save_picture_790656.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Firefox Browser 77.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790652.jpg" />
+  <img src="Z:/picture/008/save_picture_790652.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ AntiPlagiarism.NET 4.95.0.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790630.jpg" />
+  <img src="Z:/picture/008/save_picture_790630.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ CCleaner Browser 81.1.4223.141 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790620.jpg" />
+  <img src="Z:/picture/008/save_picture_790620.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Embarcadero RAD Studio 10.4 Sydney Architect 27.0.37889.9797 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790594.jpg" />
+  <img src="Z:/picture/008/save_picture_790594.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ TeamViewer 15.6.7.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790584.jpg" />
+  <img src="Z:/picture/008/save_picture_790584.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Mozilla Thunderbird 52.6.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790525.jpg" />
+  <img src="Z:/picture/008/save_picture_790525.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790503.jpg" />
+  <img src="Z:/picture/008/save_picture_790503.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Coolmuster iOS Assistant 2.0.134 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790460.jpg" />
+  <img src="Z:/picture/008/save_picture_790460.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ YouTube By Click Premium 2.2.78 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790454.jpg" />
+  <img src="Z:/picture/008/save_picture_790454.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ WinCatalog 18.50.0.108 (Repack & Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790441.jpg" />
+  <img src="Z:/picture/008/save_picture_790441.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Artweaver Plus 6.0.10 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790438.jpg" />
+  <img src="Z:/picture/008/save_picture_790438.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790432.jpg" />
+  <img src="Z:/picture/008/save_picture_790432.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Opera 57.0.3098.116 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790429.jpg" />
+  <img src="Z:/picture/008/save_picture_790429.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ YouTube By Click Premium 2.2.78 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790415.jpg" />
+  <img src="Z:/picture/008/save_picture_790415.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Viber 8.0.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790408.jpg" />
+  <img src="Z:/picture/008/save_picture_790408.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ AMD Radeon Software Adrenalin 2019 Edition 19.1.1 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790384.jpg" />
+  <img src="Z:/picture/008/save_picture_790384.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ SRWare Iron 71.0.3700.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790373.jpg" />
+  <img src="Z:/picture/008/save_picture_790373.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Acme CAD Converter 2018 8.9.8.1474 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790360.jpg" />
+  <img src="Z:/picture/008/save_picture_790360.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Wondershare Video Converter Ultimate 10.2.2 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790359.jpg" />
+  <img src="Z:/picture/008/save_picture_790359.jpg" />
 </div>
 
 

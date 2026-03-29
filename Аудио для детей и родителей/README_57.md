@@ -1,3 +1,88 @@
+###  Публикация: 1391266   (387763) от 04.09.2022
+
+VA - Детские песни. Школьные годы чудесные (2015) [MP3|128 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хор ЦДДЖ - Школьные годы
+02. Хор п/у В.Соколова - С добрым утром, любимая школа
+03. Хор п/у В.Локтева - Наш край
+04. Хор п/у А.Чмырева - Школьный вальс(   Читать дальше...   )Жанр: Детские песниПродолжительность: 02:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648DE84F7BD6ECDF84E67E65E076D896FBEA2F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571563   (387354) от 07.11.2012
+
+Елена Качур, Наталья Манушкина и др. | Раннее развитие: Алфавит [2012] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малыш отправится на волшебную прогулку по лесу, в котором прячутся все буквы. Веселые стихи помогут маленькому непоседе незаметно выучить алфавит и запомнить названия букв. В конце путешествия ребенок, играя, закрепит полученные знания и расставит по местам все 33 буквы!
+
+Развивающая аудиопрограмма «Алфавит» предназначена для малышей от 2-х до 5-ти лет.Жанр: детская развивающая аудиокнигаФормат: MP3Продолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D638EAE7831E14DC16BE29ACF088CA8476543A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571567   (387351) от 07.11.2012
+
+Елена Качур, Наталья Манушкина и др. | Раннее развитие: Счет от 1 до 10 [2012] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забавные стихотворения и яркие образы легко запомнятся малышу, а вместе с ними - и все цифры. Во время спектакля Вы можете играть с ребенком, вместе рисовать или показывать числа. Все это поможет маленькому непоседе хорошо подготовиться к школе и научиться уверенно считать до десяти!
+
+Развивающая аудиопрограмма «Счет от 1 до 10» предназначена для малышей от 2-х до 5-ти лет.Жанр: детская развивающая аудиокнигаФормат: MP3Продолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D6AE82DDCC8265B1B2FF8190BAE766DDB348E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155815   (387282) от 07.10.2020
 
 Тимоте де Фомбель | Тоби Лолнесс. Книга 2. Глаза Элизы(2017) [MP3]
@@ -6,7 +91,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387282.jpg" />
+  <img src="Z:/picture/008/save_picture_387282.jpg" />
 </div>
 
 
@@ -32,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385933.jpg" />
+  <img src="Z:/picture/008/save_picture_385933.jpg" />
 </div>
 
 
@@ -58,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385706.jpg" />
+  <img src="Z:/picture/008/save_picture_385706.jpg" />
 </div>
 
 
@@ -84,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384940.jpg" />
+  <img src="Z:/picture/008/save_picture_384940.jpg" />
 </div>
 
 
@@ -122,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383500.jpg" />
+  <img src="Z:/picture/008/save_picture_383500.jpg" />
 </div>
 
 
@@ -148,7 +233,7 @@ VA - Поп-рок-хиты в стиле колыбельных для малы
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383019.jpg" />
+  <img src="Z:/picture/008/save_picture_383019.jpg" />
 </div>
 
 
@@ -177,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382851.jpg" />
+  <img src="Z:/picture/008/save_picture_382851.jpg" />
 </div>
 
 
@@ -206,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382664.jpg" />
+  <img src="Z:/picture/008/save_picture_382664.jpg" />
 </div>
 
 
@@ -232,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382652.jpg" />
+  <img src="Z:/picture/008/save_picture_382652.jpg" />
 </div>
 
 
@@ -258,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381767.jpg" />
+  <img src="Z:/picture/008/save_picture_381767.jpg" />
 </div>
 
 
@@ -284,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381703.jpg" />
+  <img src="Z:/picture/008/save_picture_381703.jpg" />
 </div>
 
 
@@ -310,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381624.jpg" />
+  <img src="Z:/picture/008/save_picture_381624.jpg" />
 </div>
 
 
@@ -338,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381315.jpg" />
+  <img src="Z:/picture/008/save_picture_381315.jpg" />
 </div>
 
 
@@ -365,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381305.jpg" />
+  <img src="Z:/picture/008/save_picture_381305.jpg" />
 </div>
 
 
@@ -391,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380476.jpg" />
+  <img src="Z:/picture/008/save_picture_380476.jpg" />
 </div>
 
 
@@ -420,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380474.jpg" />
+  <img src="Z:/picture/008/save_picture_380474.jpg" />
 </div>
 
 
@@ -446,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380429.jpg" />
+  <img src="Z:/picture/008/save_picture_380429.jpg" />
 </div>
 
 
@@ -472,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380427.jpg" />
+  <img src="Z:/picture/008/save_picture_380427.jpg" />
 </div>
 
 
@@ -499,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379961.jpg" />
+  <img src="Z:/picture/008/save_picture_379961.jpg" />
 </div>
 
 
@@ -525,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378718.jpg" />
+  <img src="Z:/picture/008/save_picture_378718.jpg" />
 </div>
 
 
@@ -551,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378702.jpg" />
+  <img src="Z:/picture/008/save_picture_378702.jpg" />
 </div>
 
 
@@ -577,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378577.jpg" />
+  <img src="Z:/picture/008/save_picture_378577.jpg" />
 </div>
 
 
@@ -605,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376323.jpg" />
+  <img src="Z:/picture/008/save_picture_376323.jpg" />
 </div>
 
 
@@ -618,86 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B83D69FF67162334D9FCCB873994A0B22B4A94D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112977   (376007) от 12.10.2020
-
-Владимир Алеников | Веселые истории про Петрова и Васечкина (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию книгу Владимира Аленикова «Веселые истории про Петрова и Васечкина».
-Ну кто же не знает этих двух закадычных друзей! Предлагаем вашему вниманию, дорогие читатели, лучшие рассказы об этих удивительных приключениях! Некоторые истории вам уже известны по знаменитым фильмам, но большинство из них явятся для вас замечательным сюрпризом!Жанр: Детская проза Детские приключенияПродолжительность: 04:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDCEAA69464F413E43820D2C335919971A9DE5F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 416360   (374688) от 10.09.2022
-
-Роберт Луис Стивенсон | Остров сокровищ [Радиоспектакль. Полная версия] (2007) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта радиопостановка создана по мотивам произведения Р.Л. Стивенсона «Остров сокровищ», являющегося классикой мировой приключенческой литературы. Голоса знаменитых артистов, музыкальное оформление, романтика морского путешествия в поисках сокровищ старого пирата Флинта увлекут Вас с первой минуты, заставив сопереживать отважному юному Джиму.
-Запись эфира Радио «Культура».Жанр: Классика, приключения, романВ ролях: Юрий Яковлев, Алексей Борзунов, Руфина Нифонтова и др.Продолжительность: 02:29:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA1FF2BBA29B0E297EF8EFC4B88F90D15C71A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465853   (373782) от 13.10.2020
-
-Мария Парр | Вафельное сердце (2012) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373782.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вафельное сердце" - дебют молодой норвежской писательницы Марии Парр, которую критики дружно называют новой Астрид Линдгрен. Книга уже вышла в Швеции, Франции, Польше, Германии и Нидерландах, где она получила премию "Серебряный грифель". В год из жизни двух маленьких жителей бухты Щепки-Матильды - девятилетнего Трилле, от лица которого ведется (   Читать дальше...   )Жанр: Детская повесть, приключенияПродолжительность: 04:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669B909852403B915F2E2EB1422F240DE32EBF29
 ```
 
 https://mybot314.ru/tekegram_catalog/

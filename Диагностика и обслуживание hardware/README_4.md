@@ -1,3 +1,212 @@
+###  Публикация: 1509029   (795283) от 11.11.2021
+
+Paragon Hard Disk Manager Advanced 17.20.9 RePack by elchupacabra [En]
+
+>>След.
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_795283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon Hard Disk Manager - многофункциональное и удобное решение, осуществляющее полный цикл обслуживания жесткого диска. С помощью этой программы вы сможете управлять процессом загрузки, производить разбиение диска на разделы, проделывать операции копирования и восстановления, обеспечивать безопасность системы и данных, выводить диск из эксплуатации. Программа (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05B6D038731451B965657842BBCE1176233E367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509989   (792559) от 14.11.2021
+
+USB Low-Level Format 5.01 [En]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792559.jpg" />
+</div>
+
+
+###  Подробнее
+
+USB Low-Level Format (Низкоуровневое форматирование) - это процесс форматирования диска, который восстанавливает его заводские настройки по умолчанию. USB-накопители удобно использовать для передачи данных, однако различные варианты использования приводят к множеству проблем. Например, USB флэш-накопитель по неизвестным причинам может содержать меньше емкости, чем (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E2DF026AADCE5AE4E617858D019195A502EE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510373   (791242) от 16.11.2021
+
+USB Low-Level Format 5.01 RePack by AlexYar Portable [Ru]
+
+>>След.
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_791242.jpg" />
+</div>
+
+
+###  Подробнее
+
+USB Low-Level Format (Низкоуровневое форматирование) - это процесс форматирования диска, который восстанавливает его заводские настройки по умолчанию. USB-накопители удобно использовать для передачи данных, однако различные варианты использования приводят к множеству проблем. Например, USB флэш-накопитель по неизвестным причинам может содержать меньше емкости, чем (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBBCD4866CF67F34C40E7584291769D54967FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123682   (786038) от 09.04.2017
+
+UltimateDefrag 5.0.16.0 RePack by elchupacabra [Ru/En]
+
+>>След.
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786038.jpg" />
+</div>
+
+
+###  Подробнее
+
+UltimateDefrag - дефрагментатор и оптимизатор размещения файлов на жестком диске. Программа имеет высокую скорость работы и позволяет достигнуть максимальных результатов. Дефрагментация файлов - только незначительная часть улучшения работоспособности накопителя, другая, более важная часть - относительное размещение наиболее часто используемых файлов на винчестере, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7CCC0B1FD5B4AE32E7C2F3AA53AA4A5C36425C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207701   (780318) от 19.02.2018
+
+Abelssoft SSD Fresh Plus 2018 7.3 RePack by Susel [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abelssoft SSD Fresh - если вы счастливый обладатель SSD накопителя и задумывались над тем как такой диск оптимизировать, продлить срок службы, то эта утилита всё сделает быстро и за пару кликов. Abelssoft SSD Fresh настроит вашу систему Windows на оптимальную работу с SSD накопителем, отключит доступ к записи, увеличит производительность, снизит количество операций (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE822959D84483090D2E23D6A8FDC288985DE87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391846   (771363) от 22.06.2020
+
+LeoMoon CPU-V 2.0.4 Portable [Multi]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771363.jpg" />
+</div>
+
+
+###  Подробнее
+
+LeoMoon CPU-V - портативная утилита для проверки, поддерживает ли ваш компьютер технологию виртуализации. Утилита позволяет просмотреть процессоры, скомпилировать детали и проанализировать состояние VT-x. LeoMoon CPU-V также обнаружит, включена ли аппаратная виртуализация в BIOS, а также включена ли технология Intel Trusted Execution. Программа с простым и понятным (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Персидский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1BE6F77067D4B7C457E4970E814A1AB315D2B63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392244   (769711) от 24.06.2020
+
+ESET SysInspector 1.4.2.0 Portable [Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа анализирует Вашу операционную систему и фиксирует детали запущенных процессов, содержание реестра , элементы автозагрузки и сетевые соединения. После того как, ESET SysInspector сделал снимок системы, применяется эвристический метод присвоения степени риска для каждого объекта в журнал.
+    Программа имеет интуитивный графический интерфейс, что позволит пользователю (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42FE0D8D4CDB8B5A4C3A55F3711199A6510F1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281170   (754837) от 06.02.2019
+
+Futuremark 3DMark Developer Edition 2.7.6296 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_754837.jpg" />
+</div>
+
+
+###  Подробнее
+
+3DMark - поможет вам протестировать ваше оборудование для игр. Играете вы на персональном компьютере,ноутбуке или планшете? В 3DMark есть все инструменты для вашей платформы что бы протестировать игровую производительность. 3DMark поможет вам протестировать ваше оборудование в основных популярных базовых и таких разрешениях как 2K и 4K и даже супер экстремальных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772C50E88A34739AC7C7A7AAC49DEBDE17758EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282405   (744584) от 12.02.2019
 
 SSD Tweaker Pro 4.0.1 [Multi/Ru]
@@ -6,7 +215,7 @@ SSD Tweaker Pro 4.0.1 [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744584.jpg" />
+  <img src="Z:/picture/008/save_picture_744584.jpg" />
 </div>
 
 
@@ -32,7 +241,7 @@ Gtopala SIW (System Information for Windows) 2018 8.1.0227 Enterprise RePack (& 
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740571.jpg" />
+  <img src="Z:/picture/008/save_picture_740571.jpg" />
 </div>
 
 
@@ -58,7 +267,7 @@ Paragon Migrate OS to SSD 4.0 + WinPE Recovery Media Builder (x64) [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725450.jpg" />
+  <img src="Z:/picture/008/save_picture_725450.jpg" />
 </div>
 
 
@@ -84,7 +293,7 @@ PassMark PerformanceTest 10.0 Build 1008 [Multi]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714869.jpg" />
+  <img src="Z:/picture/008/save_picture_714869.jpg" />
 </div>
 
 
@@ -110,7 +319,7 @@ Reduce Memory 1.6 Portable [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714400.jpg" />
+  <img src="Z:/picture/008/save_picture_714400.jpg" />
 </div>
 
 
@@ -136,7 +345,7 @@ Paragon HFS+ for Windows 11.1.75 [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713919.jpg" />
+  <img src="Z:/picture/008/save_picture_713919.jpg" />
 </div>
 
 
@@ -165,7 +374,7 @@ Paragon Hard Disk Manager 15 Professional 10.1.25.1137 [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642252.jpg" />
+  <img src="Z:/picture/008/save_picture_642252.jpg" />
 </div>
 
 
@@ -191,7 +400,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.1137 [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642227.jpg" />
+  <img src="Z:/picture/008/save_picture_642227.jpg" />
 </div>
 
 
@@ -217,7 +426,7 @@ Paragon Домашний Эксперт 15 10.1.25.1137 [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638440.jpg" />
+  <img src="Z:/picture/008/save_picture_638440.jpg" />
 </div>
 
 
@@ -243,7 +452,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.1137 BootCD [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634565.jpg" />
+  <img src="Z:/picture/008/save_picture_634565.jpg" />
 </div>
 
 
@@ -269,7 +478,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.1137 RePack by KpoJIuK [Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630806.jpg" />
+  <img src="Z:/picture/008/save_picture_630806.jpg" />
 </div>
 
 
@@ -295,7 +504,7 @@ Paragon Hard Disk Manager 15 Premium 10.1.25.710 Recovery Boot Medias [En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617354.jpg" />
+  <img src="Z:/picture/008/save_picture_617354.jpg" />
 </div>
 
 
@@ -321,7 +530,7 @@ Ashampoo HDD Control 3.10.00 + Corporate [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588496.jpg" />
+  <img src="Z:/picture/008/save_picture_588496.jpg" />
 </div>
 
 
@@ -347,7 +556,7 @@ Acronis Disk Director 12 Build 12.0.3297 BootCD [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571800.jpg" />
+  <img src="Z:/picture/008/save_picture_571800.jpg" />
 </div>
 
 
@@ -373,7 +582,7 @@ Acronis Disk Director 12 Build 12.0.3297 [Ru/En]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571797.jpg" />
+  <img src="Z:/picture/008/save_picture_571797.jpg" />
 </div>
 
 
@@ -399,7 +608,7 @@ Hard Drive Inspector Professional 4.35 Build 243 + for Notebooks [Multi/Ru]
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569614.jpg" />
+  <img src="Z:/picture/008/save_picture_569614.jpg" />
 </div>
 
 
@@ -425,7 +634,7 @@ Hard Drive Inspector Professional 4.35 Build 243 + for Notebooks Portable by Por
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569545.jpg" />
+  <img src="Z:/picture/008/save_picture_569545.jpg" />
 </div>
 
 
@@ -451,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562204.jpg" />
+  <img src="Z:/picture/008/save_picture_562204.jpg" />
 </div>
 
 
@@ -462,215 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:873F281C1EB126D9D17518C0427E366CC7B4F080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924164   (560302) от 02.08.2015
-
-Paragon Hard Disk Manager 15 Suite 10.1.25.772 + Recovery Boot Medias Premium [En]
-
->>След.
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon Hard Disk Manager - многофункциональное и удобное решение, осуществляющее полный цикл обслуживания жесткого диска. С помощью этой программы вы сможете управлять процессом загрузки, производить разбиение диска на разделы, проделывать операции копирования и восстановления, обеспечивать безопасность системы и данных, выводить диск из эксплуатации. Программа (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B99575C611DD96803EDCB3B6115B9D4E5E7C3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205559   (535106) от 18.06.2022
-
-D-Soft Flash Doctor 1.0.4 RC1 Portable [Ru]
-
->>След.
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535106.jpg" />
-</div>
-
-
-###  Подробнее
-
-D-Soft Flash Doctor - Уникальная бесплатная утилита, которая умеет лечить и даже форматировать уже нерабочие flash накопители.
-Дело в технологии Flash. Каждая ячейка флэш памяти имеет ограниченный ресурс циклов записи перезаписи. Иногда ячейки выходят из строя, рушат файловую систему накопителя и мешают восстановлению данных и дальнейшему использованию накопителя. (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCA585CA32AC4C0EC3975A74BEAF0CBF97EB644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926469   (529316) от 12.08.2015
-
-SsdReady 1.30 build 209 Pro [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529316.jpg" />
-</div>
-
-
-###  Подробнее
-
-То, что SSD диски уже давно и успешно используются ни для кого не секрет. Но есть достаточно большое количество людей, кто пока их побаивается. Шутка что ли - ресурс на запись ведь ограничен. Программа SsdReady мониторит выбранные диски и собирает полезную и удобную статистику: кто, куда и сколько пишет на ваших дисках. Программа была сделана для того чтобы ещё до (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F720B5B37DB3BF1108431A83F458C05FB8E9B6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052852   (527027) от 15.09.2016
-
-Ashampoo HDD Control 3.20.00 Corporate Edition [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ashampoo HDD Control - программа для контроля работы ваших жестких дисков. Данная программа для контроля, обслуживания и дефрагментации, проверки состояния здоровья и производительности вашего жесткого диска(ов). Ashampoo HDD Control будет вас предупреждать о возможных неисправностях дисков, сможет с легкостью решать повседневные задачи и очищать жесткие диски от (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880194A1BA074D00A92508282E83E2D3880AAF0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928647   (521259) от 17.08.2015
-
-MiniTool Partition Wizard Server 9.1 RePack by WYLEK [Ru]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521259.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Partition Wizard - это программа для работы с разделами на жёстком диске. При помощи Partition Wizard можно копировать разделы, удалять их, форматировать, прятать, менять их размер, устанавливать раздел активным, менять буквенное обозначение диска, восстанавливать разделы и т.д. Поддерживаются разделы и диски размером более 2 Тб. Возможно преобразование (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3856A57F0389F4EE0CB67F17AA57582C4AE8D8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929560   (517987) от 20.08.2015
-
-MiniTool Partition Wizard Server 9.1 RePack by KpoJIuK [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517987.jpg" />
-</div>
-
-
-###  Подробнее
-
-MiniTool Partition Wizard - это программа для работы с разделами на жёстком диске. При помощи Partition Wizard можно копировать разделы, удалять их, форматировать, прятать, менять их размер, устанавливать раздел активным, менять буквенное обозначение диска, восстанавливать разделы и т.д. Поддерживаются разделы и диски размером более 2 Тб. Возможно преобразование (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08592C0734162A204D314AF42521690BCD6E2DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933074   (506841) от 31.08.2015
-
-Intel® Extreme Tuning Utility (Intel® XTU) 6.0.2.2 [En]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Intel Extreme Tuning Utility (XTU) – это простое в использовании программное обеспечение для настройки производительности в среде Windows* для начинающих и опытных пользователей, позволяющее завышать тактовую частоту процессора, выполнять мониторинг и интенсивную нагрузку системы. Интерфейс программного данного обеспечения содержит набор полезных функций, которые (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70456864E68A731DC999C8C742C69C8519B1021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935432   (498949) от 08.09.2015
-
-Futuremark PCMark 8 Professional Edition 2.5.419 [Multi]
-
->>Утилиты, Офис, Интернет
->>Диагностика и обслуживание hardware
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498949.jpg" />
-</div>
-
-
-###  Подробнее
-
-PCMark 8 — это простой и удобный в использовании бенчмарк, благодаря которому вы можете протестировать общую производительность системы и отдельных ее компонентов. Интерфейс у программы довольно понятен и удобен. Всего в главном окне вы обнаружите четыре вкладки. В первой можно начать тестирование. Вторая станет активна непосредственно после старта-в ней будет отображать (   Читать дальше...   )Язык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB4B3FC1AAC6BFE81DC7293A350136B6DE08B38
 ```
 
 https://mybot314.ru/tekegram_catalog/

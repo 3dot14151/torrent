@@ -1,3 +1,57 @@
+###  Публикация: 658237   (807681) от 19.05.2013
+
+Mageia 3 DVD [x86-64] (DVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_807681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня вышел релиз следующего поколения Mageia - Mageia 3, второго по популярности дистрибутива на сегодня по версии DistroWatch.
+
+Проект Mageia (МАГ) стартовал в сентябре 2010 как форк Mandriva Linux. Он поддерживается not-for-profit организациями. Поддерживаются архитектуры i586 и x86-64. Доступны образы с Mageia, использующей в качестве графической среды KDE, GNOME и LXDE. Изменения и улучшения этой версии: новый экран входа; автоматический режим в установщике; возможность загрузки в оперативную память из Live-режима; по умолчанию используется GRUB 2; полный переход на systemd; новая тема для Gfxboot; How-To для новых пользователей дистрибутива; поддержка технологии NVidia Optimus; подписи для репозиториев; привод всех системных директорий к UNIX-стандартам; переработан интерфейс Mageia Control Center; обновления теперь могут использовать зависимые пакеты из сторонних репозиториев; перемещена директория /usr; улучшена поддержка Python 3; drakx-finish-install теперь запрашивает разрешение у пользователя на (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009622   (807462) от 22.04.2016
+
+KaOS Linux 2016.04 (Arch + Plasma KDE 5) [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_807462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект KaOS представил мартовский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. К наиболее существенным изменениям разработчики относят: KDE Applications 16.04.0, ядро Linux kernel 4.4.5 (linux-next присутствует в репозитрии), glibc 2.23, systemd 229, kmod 22, xorg-server 1.18.3, Qt 5.6.0 & Qt 4.8.7, mesa 11.2.1, calligra (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5766E1A0CDCF62F58EB66E6051D53DA44C3B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 658233   (807399) от 19.05.2013
 
 Mageia 3 LiveDVD (KDE + GNOME) [i586, x86-64] (4xDVD)
@@ -6,7 +60,7 @@ Mageia 3 LiveDVD (KDE + GNOME) [i586, x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807399.jpg" />
+  <img src="Z:/picture/008/save_picture_807399.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ Mageia 3 DVD [i586] (DVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807397.jpg" />
+  <img src="Z:/picture/008/save_picture_807397.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ Tor Browser 2.3.25-8 [анонимный доступ в сети] [i686, x86-64
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807285.jpg" />
+  <img src="Z:/picture/008/save_picture_807285.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ Lubuntu 16.04 LTS Xenial Xerus  (Легкий дистрибутив) [i386, amd
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807183.jpg" />
+  <img src="Z:/picture/008/save_picture_807183.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Parted Magic 2017.09.05 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805906.jpg" />
+  <img src="Z:/picture/008/save_picture_805906.jpg" />
 </div>
 
 
@@ -140,7 +194,7 @@ JonDo 0.9.76 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805323.jpg" />
+  <img src="Z:/picture/008/save_picture_805323.jpg" />
 </div>
 
 
@@ -166,7 +220,7 @@ Ctlos Linux Xfce 2.2.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801356.jpg" />
+  <img src="Z:/picture/008/save_picture_801356.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ Red OS 7.3 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801312.jpg" />
+  <img src="Z:/picture/008/save_picture_801312.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Sabayon 16.04 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795445.jpg" />
+  <img src="Z:/picture/008/save_picture_795445.jpg" />
 </div>
 
 
@@ -251,7 +305,7 @@ Antergos 18.12 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794862.jpg" />
+  <img src="Z:/picture/008/save_picture_794862.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2018) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794853.jpg" />
+  <img src="Z:/picture/008/save_picture_794853.jpg" />
 </div>
 
 
@@ -303,7 +357,7 @@ Ubuntu*Pack 18.04 LXDE (Lubuntu) (декабрь 2018) [i386 + amd64] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794787.jpg" />
+  <img src="Z:/picture/008/save_picture_794787.jpg" />
 </div>
 
 
@@ -329,7 +383,7 @@ Parted Magic 2018.01.08 [i686_amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794532.jpg" />
+  <img src="Z:/picture/008/save_picture_794532.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ Sabayon 16.05 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794486.jpg" />
+  <img src="Z:/picture/008/save_picture_794486.jpg" />
 </div>
 
 
@@ -383,7 +437,7 @@ Parted Magic 2016-04-26 [x86, x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793264.jpg" />
+  <img src="Z:/picture/008/save_picture_793264.jpg" />
 </div>
 
 
@@ -410,7 +464,7 @@ BlackArch Linux 2020.06.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793168.jpg" />
+  <img src="Z:/picture/008/save_picture_793168.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ Parted Magic 2019.01.03 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790875.jpg" />
+  <img src="Z:/picture/008/save_picture_790875.jpg" />
 </div>
 
 
@@ -462,7 +516,7 @@ Kali Linux 2021.3 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит бе
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790143.jpg" />
+  <img src="Z:/picture/008/save_picture_790143.jpg" />
 </div>
 
 
@@ -488,7 +542,7 @@ BackBox Linux 7 [Аудит безопасности, хакинг] 1xDVD [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790000.jpg" />
+  <img src="Z:/picture/008/save_picture_790000.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ Phoenix OS 3.0.7.508, 1.5.0.297 x86/x64 [En]
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789225.jpg" />
+  <img src="Z:/picture/008/save_picture_789225.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ Parrot Security OS 3.11 [Хакинг, аудит, безопасность] [i3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783987.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ CentOS 8.2 (2004) [amd64] 2xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782211.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ BlackArch Linux 2017.12.11 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779195.jpg" />
 </div>
 
 
@@ -619,7 +673,7 @@ NAS4Free build 11.1.0.4.5127 amd64 1xCD 3xIMG BUILD 11.1.0.4.5127 [amd64 (64-bit
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778904.jpg" />
 </div>
 
 
@@ -633,64 +687,6 @@ NAS4Free основана на ОС FreeBSD, поддерживает обмен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B6FDF2CB8206998E3DBBAA77B5A612F1E5601F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659995   (774653) от 23.05.2013
-
-Siduction 13.1.0 (включая легкие DE) [i386 + amd64] (4xDVD + 6xCD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлен siduction 13.1.0 стабильный выпуск нового desktop-ориентированного дистрибутива и Live CD/DVD, основанного на unstable-ветке Debian GNU/Linux. Проект siduction является форком дистрибутива aptosid, из которого он выделился в конце 2011 года, и предлагает пять  отдельных Live-носителей с различными рабочими столами, в том числе с легкими рабочими столами:  LXDE, XFCE, Razor-qt, а также с KDE и GNOME.
-
-Razor-qt легковесное десктоп-окружение, построенное на технологиях Qt. Ключевые направления развития Razor-qt - простота, скорость, настраиваемость и интуитивно понятный интерфейс. Небольшое потребление ресурсов позволяет использовать Razor-qt на маломощных и устаревших системах. Код написан на языке C++ (без QML и Qt Quick) и распространяется под лицензиями GPLv2 и LGPLv3+. Ядро Linux kernel  3.9.3, X-Server --  1.12.4-6. Это -- первый выпуск siduction, в который входит GNOME 3.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 659755   (774610) от 23.05.2013
-
-BackBox Linux 3.05 [Анализ безопасности, хакинг] [i386, x86-64] (2xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда разработчиков BackBox Linux представляет новый стабильный релиз специализированного дистрибутива GNU/Linux, предназначенного для проведения пен-тестов и оценки безопасности компьютерных систем.
-
-Дистрибутив базируется на Ubuntu, ядро Linux 3.2 и Xfce 4.8.
-
-Как и раньше, в предыдущих релизах дистрибутива, исправлены обнаруженные баги, улучшена производительность, улучшено стартовое меню, улучшены драйвера Wi-Fi (compat-wireless aircrack patched). Добавлены новые и обновлены старые хакерские инструменты - bAutomater, inundator, Ettercap, Wireshark, SE Toolkit, Metasploit, sqlmap, BeEF, Recon-ng, zaproxy, Weevely, THC-IPV6, truecrack, Hashcat) и многое другое .
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

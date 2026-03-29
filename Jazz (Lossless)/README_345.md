@@ -1,3 +1,119 @@
+###  Публикация: 1777270   (71062) от 05.02.2025
+
+Buddy Rich - Big Band Machine (1975) 2005, LRC [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Day Sucker [6:55]
+02. Tommy Medley [12:29]
+03. On Broadway [3:54]
+04. Pieces of Dreams [4:36](   Читать дальше...   )Жанр: Jazz-Funk, Big BandПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E37FAE149714E861135F2B287FB03ACDFE7E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777455   (70993) от 06.02.2025
+
+Art Farmer & Slide Hampton - In Concert (1984) 1995, Enja Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half Nelson [13:06]
+02. Darn That Dream [8:25]
+03. Barbados [11:12]
+04. I'll Remember April [14:08]Жанр: Hard Bop, BopПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E6D055A95FE63487323AF55F09E8A261AEDBA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777454   (70992) от 06.02.2025
+
+The James Williams Magical Trio - Awesome! (1997) 2000, DIW Records [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Alright with Me [6:30]
+02. Quietude [7:38]
+03. Time After Time [6:56]
+04. Lonely Moments [4:06](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC7FB81C21FB9773F65B19EA0C971540CAA8787E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777453   (70991) от 06.02.2025
+
+John Hicks Quartet - Naima's Love Song (1988) DIW Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elementary My Dear Watson [9:15]
+02. Someday Soon [9:13]
+03. Soul Eyes [7:44]
+04. On the One [7:01](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0DB5C042E4D70F2229C5DAF1C4A4C8296E2E126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777456   (70989) от 06.02.2025
 
 The Buddy Rich Big Band - Mercy, Mercy (1968) 1997, Pacific Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
@@ -6,7 +122,7 @@ The Buddy Rich Big Band - Mercy, Mercy (1968) 1997, Pacific Jazz [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70989.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dick Hyman - Face The Music: A Century Of Irving Berlin (1988) Musicmasters [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70985.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Buddy Rich And The Big Band Machine - Speak No Evil (1976) 2008, Wounded Bird Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70958.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Art Farmer Quintet - Live At Sweet Basil (1992) 1994, Evidence [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70945.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ John Hicks & Elise Wood - Beautiful Friendship (2000) Hi Wood [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70942.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Julee Cruise – Floating Into The Night (1989) [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70921.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Louis Armstrong - Wonderful World: The Best Of Louis Armstrong (2024) Verve Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70910.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Tape Five - Fizzy Far Niente (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Elec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70908.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Jimmy Raney - Here's That Raney Day (1980) 1990, Black & Blue [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70880.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Teri Thornton - Sings Open Highway (1963) 2001, Koch Jazz [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70879.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Max Greger und sein Orchester - Sax In Love (1992) Polydor [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70872.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Jazz for a Crime vol. 1-3 (2024) Signora Ward Records [FLAC|Lossless|Web-DL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70834.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ V.A. - Pop International Hits Vol. 2 (Bossa Nova Lounge Jazz Covers) (2025) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70817.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Todd Cochran TC3 - Then And Again, Here And Now (2021) Sunnyside [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70814.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Max Greger - Super Tanzmusik (1985) Polydor [FLAC|Lossless|tracks + .cue] <Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70813.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - Electro Swing Back to Old School (Jazzy Electro and Vintage Swing Reloaded)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70799.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Latin Jazz House & Beats (2025) [FLAC|Lossless|WEB-DL|tracks] <Latin Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70776.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Jazz Collection Tracks For Stress Relief (Volume 1) (2025) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70775.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Jazz House Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70774.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Afro Funky House 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70773.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Slow and Smooth Jazzy Beats and Songs (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70771.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Soul R&B and Funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70770.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Soul R&B and Funky music (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD56B8992588AAB21EF9E0538863D918F8193C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778876   (70765) от 10.02.2025
-
-Dave Stryker - Eight Track (2014) Strikezone Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Around [4:55]
-02. Pusherman/Superfly [7:16]
-03. Wichita Lineman [6:04]
-04. Aquarius [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 01:00:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A294BEC18DB953DB7FFCFF812EA2C7E2A261A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778881   (70764) от 10.02.2025
-
-Hal Galper And The Youngbloods - Live At The COTA Jazz Festival (2017) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak with a Single Voice [17:42]
-02. O's Time [11:06]
-03. Goodbye [13:56]
-04. Scufflin' [14:39]Жанр: Post-BopПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3BC85AB0146B23719DA585C5528668ECF886EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778873   (70760) от 10.02.2025
-
-John Bunch Trio - Love Songs (1997) 2001, LRC [FLAC|Lossless|tracks + .cue] <Mainstream jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody Else Has Taken My Place [4:06]
-02. I'll Get By [3:13]
-03. Do Nothin' Till You Hear From Me [4:40]
-04. We'll Meet Again [3:54](   Читать дальше...   )Жанр: Mainstream jazz, Piano JazzПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DA3B6F5FB8696CA5971B4E53D2A9A2A616BFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779073   (70758) от 11.02.2025
-
-Dave Stryker Organ Trio - One For Reedus (2008) 2010, SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure Imagination [6:33]
-02. Burn for Ern [7:45]
-03. One for Reedus [7:12]
-04. Alone Again (Naturally) [7:18](   Читать дальше...   )Жанр: Post-Bop, Soul-JazzПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:680A8CAD26A719DD43E106D939CAD91CFB082B62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,167 @@
+###  Публикация: 495355   (251081) от 11.05.2012
+
+Вечерний Ургант. Выпуск №14 (2012.05.11) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA13C493B775DD3B42E2A5529F196A22D504DF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494567   (250792) от 10.05.2012
+
+NG: Суперсооружения: Мегазаводы. Мини / Megafactories: Mini (2012) [720p] HDTVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мини - не просто машина, а легендарный британский символ обожаемый своими поклонниками по всему миру. Революционный дизайн знаменитый своей формой. скоростью и размерами. Сегодня мини раполагает мегазаводом 21 века, одним из самых автоматизированых на планете. Мини - одна из самых узнаваемых машин в мире, для мирового рынка было выпущено более семи миллионов штук этого одного из лучше всего продаваемых автомобилей.
+
+В этой передаче мы  с вами отправляемся в сердце Англии старинный и красивый город Оксфорд где будем следить за процессом, создания нового, совершенно не похожего на классический мини двухместного спортивного автомобиля Мини-купе на оборудованном по последнему слову техники мега заводе.Жанр: ДокументальныйРежиссер: Стефен ХантерТелекомпания: National Geographic ChannelПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9095E67B3058B22E226B2DB89278BE8AFC14F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494936   (250710) от 10.05.2012
+
+Вечерний Ургант. Выпуск №13 (2012.05.10) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_250710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F105F2AACD9EDF6EA6798C5F156C0E475C91A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493286   (248618) от 07.05.2012
+
+Бокс. Ф.Мейвезер - М.Котто, бой за титул чемпиона мира / Floyd Mayweather Jr vs. Miguel Cotto (2012) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разогревочные поединки: 
+ LATIMORE vs. QUINTANA / SUPER WELTERWEIGHTS
+ VARGAS vs. FORBES / JUNIOR WELTERWEIGHTS
+ ALVAEZ vs. MOSLEY / WBC SUPER WELTERWEIGHT TITLE
+
+Основной бой:
+MAYWEATHER vs. COTTO / WBA SUPER WELTERWEIGHT TITLEПеревод: Одноголосый закадровый, профессиональный Владимир ГендлинФормат: TSПродолжительность: 03:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B85856B8158984C9FEA5103F6C709D739CE0979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493264   (248490) от 07.05.2012
+
+Хоккей. Чемпионат мира 2012. Группа B. Россия - Норвегия (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россияне уже восемь лет не играли с норвежцами на чемпионатах мира, поэтому новая встреча со скандинавами пройдет, что называется, с "чистого листа". Однако подопечным Зинэтулы Билялетдинова не стоит недооценивать соперников, которые в последние три сезона дважды проходили в плей-офф мирового первенства, обыгрывая, например, сборные Швеции и Швейцарии...Жанр: СпортПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1524DF726967D0CCAD50BB3E580392E5FB932ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493311   (248458) от 07.05.2012
+
+Футбол. Кубок Англии 2012. Финал. "Челси" (Лондон) - "Ливерпуль" (Ливерпуль) (2012) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: СпортФормат: TSПродолжительность: 01:41:33 (00:47:44 + 00:53:49)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C43750B1CF5AB4C02CB87274BB2A309A840510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491127   (248015) от 05.05.2012
 
 [EN] Рестлинг / WWE Monday Night RAW SuperShow 30.04.2012 (2012) HDTVRip
@@ -6,7 +170,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248015.jpg" />
+  <img src="Z:/picture/004/save_picture_248015.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248012.jpg" />
+  <img src="Z:/picture/004/save_picture_248012.jpg" />
 </div>
 
 
@@ -58,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247974.jpg" />
+  <img src="Z:/picture/004/save_picture_247974.jpg" />
 </div>
 
 
@@ -84,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246508.jpg" />
+  <img src="Z:/picture/004/save_picture_246508.jpg" />
 </div>
 
 
@@ -112,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246477.jpg" />
+  <img src="Z:/picture/004/save_picture_246477.jpg" />
 </div>
 
 
@@ -138,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246460.jpg" />
+  <img src="Z:/picture/004/save_picture_246460.jpg" />
 </div>
 
 
@@ -164,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246333.jpg" />
+  <img src="Z:/picture/004/save_picture_246333.jpg" />
 </div>
 
 
@@ -190,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246048.jpg" />
+  <img src="Z:/picture/004/save_picture_246048.jpg" />
 </div>
 
 
@@ -216,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245989.jpg" />
+  <img src="Z:/picture/004/save_picture_245989.jpg" />
 </div>
 
 
@@ -245,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245983.jpg" />
+  <img src="Z:/picture/004/save_picture_245983.jpg" />
 </div>
 
 
@@ -274,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245976.jpg" />
+  <img src="Z:/picture/004/save_picture_245976.jpg" />
 </div>
 
 
@@ -303,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245968.jpg" />
+  <img src="Z:/picture/004/save_picture_245968.jpg" />
 </div>
 
 
@@ -332,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245962.jpg" />
+  <img src="Z:/picture/004/save_picture_245962.jpg" />
 </div>
 
 
@@ -361,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245954.jpg" />
+  <img src="Z:/picture/004/save_picture_245954.jpg" />
 </div>
 
 
@@ -390,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245920.jpg" />
+  <img src="Z:/picture/004/save_picture_245920.jpg" />
 </div>
 
 
@@ -416,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245900.jpg" />
+  <img src="Z:/picture/004/save_picture_245900.jpg" />
 </div>
 
 
@@ -445,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245892.jpg" />
+  <img src="Z:/picture/004/save_picture_245892.jpg" />
 </div>
 
 
@@ -474,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245879.jpg" />
+  <img src="Z:/picture/004/save_picture_245879.jpg" />
 </div>
 
 
@@ -503,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245872.jpg" />
+  <img src="Z:/picture/004/save_picture_245872.jpg" />
 </div>
 
 
@@ -532,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245868.jpg" />
+  <img src="Z:/picture/004/save_picture_245868.jpg" />
 </div>
 
 
@@ -546,179 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F1D90B12D3803CC4BD73C85BC218822A43028D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056385   (245860) от 25.09.2016
-
-Хоккей. КХЛ 2016-2017. Йокерит - ЦСКА (23.09.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245860.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 сентября 2016, пятница. 18:30 МСК
-
-Стадион: Хартвалл-Арена (Хельсинки, Финляндия) , 10 244 зрителя (76 % при вместимости 13 464)
-Главный судья: Алексей Белов (Ярославль, Россия)(   Читать дальше...   )Телекомпания: КХЛ HDЖанр: СпортЯзык озвучки: Русский (Александр Бойков, Дмитрий Фёдоров)Продолжительность: 02:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BCE719F0CFF85FE24243A3A4C68FDEE3CEE428D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056440   (245850) от 25.09.2016
-
-Футбол. Чемпионат Испании 2016-2017. 6-й тур. Спортинг Хихон - Барселона (24.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] [RU/EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245850.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 сентября 2016, суббота. 17:15 МСК
-6-й тур
-
-Стадион: Эль-Молинон (Хихон, Испания) , 26 098 зрителей (87 % при вместимости 30 000)(   Читать дальше...   )Телекомпания: Сетанта Спорт HDЖанр: СпортЯзык озвучки: Русский / АнглийскийПродолжительность: 01:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F55329C5F6F0E6136B7331CAF14D9CF9F3C3F3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056581   (245844) от 25.09.2016
-
-Мини-футбол (Футзал). Чемпионат мира-2016. 1/8 финала. Аргентина — Украина (22.09.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245844.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 сентября 2016 года, пятница. 01:30 МСК
-Чемпионат мира-2016. Букараманга (Колумбия). Плей-офф
-1/8 финала
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: Русский (Андрей Симонов, Аркадий Белый)Продолжительность: 02:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4588FF62786098CE2497FF792AE1FBE3C7A05FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056507   (245820) от 25.09.2016
-
-Хоккей. Кубок мира 2016. 1/2 финала. Канада - Россия (24.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] (МАТЧ ТВ)
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245820.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 сентября 2016, воскресенье. 02:00 МСК
-
-Стадион: Эйр Канада-центр (Торонто, Канада) , 19 021 зритель (96 % при вместимости 19 800)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада)(   Читать дальше...   )Телекомпания: Матч ТВ HD + Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Александр Ткачев и Александр Хаванов)Продолжительность: 03:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B2583879D958994C87B9409FB09D9BCA8E4BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056425   (245776) от 25.09.2016
-
-Хоккей. Кубок мира 2016. 1/2 финала. Канада - Россия (24.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps] (Первый Канал)
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245776.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 сентября 2016, воскресенье. 02:00 МСК
-
-Стадион: Эйр Канада-центр (Торонто, Канада) , 19 021 зритель (96 % при вместимости 19 800)
-Главный судья: Келли Сазерлэнд (Ричмонд, Канада)(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: Русский (Евгений Кузнецов, Андрей Голованов)Продолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E274BFFC5FE599644987A709A2300815FD79B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058429   (245714) от 01.10.2016
-
-Формула 1. Гран-При Малайзии. 3-я практика (2016.10.01) HDTVRip [H.264] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245714.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 октября 2016 года.
-Этап 16. Гран-при Малайзии.
-Арена: Международный автодром Сепанг (Куала-Лумпур, Малайзия)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87868751BA3C30813A7C82744134C731F2180297
 ```
 
 https://mybot314.ru/tekegram_catalog/

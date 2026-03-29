@@ -1,3 +1,82 @@
+###  Публикация: 1181989   (321785) от 08.11.2017
+
+Михаил Жирохов | Семена распада: войны и конфликты на территории бывшего СССР (2012) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321785.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1991 году распался Советский Союз, громадная страна, занимавшая 1/6 суши. Произошла переоценка ценностей бывших «подчиненных», ставших независимыми субъектами международных отношений. Вспомнились старые обиды, появились претензии к соседям. Это вылилось в 6 крупных войн, 20 военных столкновений и сотню конфликтов на межэтнической и межконфессиональной почве. В (   Читать дальше...   )Жанр: История, Политика, ПублицистикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68ECAD4008D7943F78F59D14B2FF9E3DC1880F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181984   (321710) от 08.11.2017
+
+Дональд Рейфилд | Сталин и его подручные (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный британский историк и литературовед, автор бестселлеров «Грузия. Перекресток империй. История длиной в три тысячи лет» и «Жизнь Антона Чехова», предлагает детальный анализ исторической эпохи и личностей, ответственных за преступления, в которых исчезли миллионы людей, «не чуявших под собой страны».
+Руководители печально знаменитой Лубянки – Дзержинский, (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B387319FDE9D80C6A3242C61E86815D8F5D2519E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181785   (321707) от 08.11.2017
+
+Елена Семёнова (ред.-сост.) | Алексей Мозговой. Свобода и Совесть (Стихотворения, интервью и биография легендарного Комбрига) (2015) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его часто сравнивали с генералом Кутеповым. Он был внешне очень похож на него и очень уважал Александра Павловича. И форма белогвардейская сидела на нём, как литая. Не как на ряженых, а как на настоящем Русском Офицере, коим он и был. Он имел право на этот мундир, на эти погоны. Он жил по тогдашнему Кодексу Чести, словно из тех времён осколком залетев в наш до омерзения (   Читать дальше...   )Жанр: Биография. ПоэзияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D785CDEE1EAFF28A33A18A64A5DA7D1AE6749491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181665   (321699) от 08.11.2017
 
 Е.А. Токарева | Путь человека к вершинам бессмертия, Высшему разуму – Богу (2017) [FB2, EPUB]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321699.jpg" />
+  <img src="Z:/picture/008/save_picture_321699.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321697.jpg" />
+  <img src="Z:/picture/008/save_picture_321697.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321694.jpg" />
+  <img src="Z:/picture/008/save_picture_321694.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321693.jpg" />
+  <img src="Z:/picture/008/save_picture_321693.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321590.jpg" />
+  <img src="Z:/picture/008/save_picture_321590.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321454.jpg" />
+  <img src="Z:/picture/008/save_picture_321454.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319097.jpg" />
+  <img src="Z:/picture/008/save_picture_319097.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319054.jpg" />
+  <img src="Z:/picture/008/save_picture_319054.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318940.jpg" />
+  <img src="Z:/picture/008/save_picture_318940.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318754.jpg" />
+  <img src="Z:/picture/008/save_picture_318754.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318065.jpg" />
+  <img src="Z:/picture/008/save_picture_318065.jpg" />
 </div>
 
 
@@ -297,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317674.jpg" />
+  <img src="Z:/picture/008/save_picture_317674.jpg" />
 </div>
 
 
@@ -325,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317202.jpg" />
+  <img src="Z:/picture/008/save_picture_317202.jpg" />
 </div>
 
 
@@ -352,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316958.jpg" />
+  <img src="Z:/picture/008/save_picture_316958.jpg" />
 </div>
 
 
@@ -378,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316581.jpg" />
+  <img src="Z:/picture/008/save_picture_316581.jpg" />
 </div>
 
 
@@ -406,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316159.jpg" />
+  <img src="Z:/picture/008/save_picture_316159.jpg" />
 </div>
 
 
@@ -432,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316117.jpg" />
+  <img src="Z:/picture/008/save_picture_316117.jpg" />
 </div>
 
 
@@ -458,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314626.jpg" />
+  <img src="Z:/picture/008/save_picture_314626.jpg" />
 </div>
 
 
@@ -484,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314623.jpg" />
+  <img src="Z:/picture/008/save_picture_314623.jpg" />
 </div>
 
 
@@ -511,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314573.jpg" />
+  <img src="Z:/picture/008/save_picture_314573.jpg" />
 </div>
 
 
@@ -537,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314462.jpg" />
+  <img src="Z:/picture/008/save_picture_314462.jpg" />
 </div>
 
 
@@ -565,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313063.jpg" />
+  <img src="Z:/picture/008/save_picture_313063.jpg" />
 </div>
 
 
@@ -593,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312555.jpg" />
+  <img src="Z:/picture/008/save_picture_312555.jpg" />
 </div>
 
 
@@ -604,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03CBD3893FC7D046F9124102768C82075E4A5945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960040   (312541) от 26.11.2015
-
-Ивар Калныньш | Моя молодость – СССР (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312541.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мама, узнав о том, что я хочу учиться на актера, только всплеснула руками: «Ивар, но артисты ведь так громко говорят…» Однако я уже сделал свой выбор» – рассказывает Ивар Калныньш в книге «Моя молодость – СССР». Благодаря этому решению он стал одним из самых узнаваемых актеров советского кинематографа.
-Многие из нас знают его как Тома Фенелла из картины «Театр», (   Читать дальше...   )Жанр: Биографии и Мемуары, КиноФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13592DF036FC5966A91C519D6197620BA035C56D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959687   (312417) от 26.11.2015
-
-Григорий Явлинский | Периферийный авторитаризм. Как и куда пришла Россия (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена анализу особенностей российской политической системы, причин и путей ее формирования. В представленной читателям работе автор подробно исследует российский периферийный авторитаризм, предлагает прогноз развития системы и варианты выхода из политического кризиса. Книга продолжает ряд ранее опубликованных работ автора, посвященных периферийному капитализму. (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C238EB83CD09C548237A6991BFBC5664F808988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959843   (312412) от 26.11.2015
-
-Л. А. Фотиева | Как работал Владимир Ильич Ленин (1956) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312412.jpg" />
-</div>
-
-
-###  Подробнее
-
-В краткой брошюре, разумеется, невозможно осветить полностью стиль работы В. И. Ленина. Для этого требуется большой научно-исследовательский труд. Написанное здесь имеет целью познакомить лишь с некоторыми приемами и методами повседневной работы В. И. Ленина как председателя Совнаркома, с основными требованиями, которые он предъявлял к работникам советского государственного (   Читать дальше...   )Жанр: История, политологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1445E9991FEBC8E5B21C12CBCFB250CD52EFD348
 ```
 
 https://mybot314.ru/tekegram_catalog/

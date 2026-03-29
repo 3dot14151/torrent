@@ -1,3 +1,81 @@
+###  Публикация: 1205198   (783715) от 09.02.2018
+
+Стивен Кови | Семь навыков высокоэффективных людей. Мощные инструменты развития личности (2009) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — мировой супербестселлер, работа № 1 по теме личностного роста. Она оказала большое влияние на жизни миллионов людей во всем мире, включая Билла Клинтона, Ларри Кинга и Стивена Форбса. Половина крупнейших мировых корпораций, входящих в рейтинг Fortune 500, посчитали своим долгом ознакомить своих сотрудников с философией эффективности, изложенной в «Семи (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD591002B1D53F30B32C216EA8F46C947CE5DD70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390066   (783580) от 13.06.2020
+
+Рольф Добелли | Искусство ясно мыслить (2020) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для тех, кто хочет принимать осознанные и взвешенные решения, не руководствуясь мнимыми выгодами, мнением других и предубеждениями, Рольф Добелли написал эту книгу. Автор является одним из ведущих мыслителей современности, его работы переведены более чем на 40 языков мира. Перед вами издание, которое можно вполне назвать страховкой от несчастий, в которых вы сами (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84B21B743B35DA4F1884EF7CAE292B6DDF08010C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205217   (783437) от 10.02.2018
+
+Стивен Кови | Восьмой навык: От эффективности к величию (2007) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783437.jpg" />
+</div>
+
+
+###  Подробнее
+
+В современном мире эффективность людей и организаций превращается в обязательный фактор. Однако чтобы выживать, преуспевать, выделяться среди других и вести за собой в новой реальности, которую Стивен Кови называет новой эпохой работника интеллектуального труда, мы должны, опираясь на эффективность, двигаться за ее границы. Нынешняя новая эра истории человечества (   Читать дальше...   )Жанр: Лидерство, Личностный рост, СамосовершенствованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3050A08A707620DB65808AC78DA6151740E6B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205410   (783422) от 10.02.2018
 
 Кайя Норденген | Мозг всемогущий. Путеводитель по самому незаменимому органу нашего тела (2017) [FB2]
@@ -6,7 +84,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783422.jpg" />
+  <img src="Z:/picture/008/save_picture_783422.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783389.jpg" />
+  <img src="Z:/picture/008/save_picture_783389.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783376.jpg" />
+  <img src="Z:/picture/008/save_picture_783376.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783299.jpg" />
+  <img src="Z:/picture/008/save_picture_783299.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783294.jpg" />
+  <img src="Z:/picture/008/save_picture_783294.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783166.jpg" />
+  <img src="Z:/picture/008/save_picture_783166.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783161.jpg" />
+  <img src="Z:/picture/008/save_picture_783161.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783122.jpg" />
+  <img src="Z:/picture/008/save_picture_783122.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783030.jpg" />
+  <img src="Z:/picture/008/save_picture_783030.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783028.jpg" />
+  <img src="Z:/picture/008/save_picture_783028.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782656.jpg" />
+  <img src="Z:/picture/008/save_picture_782656.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782448.jpg" />
+  <img src="Z:/picture/008/save_picture_782448.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782440.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781829.jpg" />
 </div>
 
 
@@ -377,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781807.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781783.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781780.jpg" />
 </div>
 
 
@@ -456,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781746.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781204.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780705.jpg" />
+  <img src="Z:/picture/008/save_picture_780705.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779920.jpg" />
+  <img src="Z:/picture/008/save_picture_779920.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779907.jpg" />
+  <img src="Z:/picture/008/save_picture_779907.jpg" />
 </div>
 
 
@@ -591,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779884.jpg" />
+  <img src="Z:/picture/008/save_picture_779884.jpg" />
 </div>
 
 
@@ -604,88 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E270A3CED4DBD8837FE0AC4F58766F55B9F02EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208360   (779850) от 22.02.2018
-
-Елена Резанова | Никогда-нибудь. Как выйти из тупика и найти себя (2018) [PDF, FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновляющая книга о том, как решиться на перемены, набраться смелости сменить нелюбимую работу, перестать откладывать свою жизнь на потом.
-
-Мотивирует и дает план, помогающий решить проблему «хочу, но не знаю, с чего начать». Вы найдете здесь много полезных практических техник, помогающих разобраться в себе, преодолеть инерцию и начать действовать.Жанр: Мотивация, Саморазвитие / личностный рост, Психология успеха, Работа над собойФормат: PDF, FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46CAF54FA11D43025A8E6A11DF07996A0EB0CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208727   (779747) от 23.02.2018
-
-Мэнди Холгейт | Победи свой страх. Как избавиться от негативных установок и добиться успеха (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страх – это не всегда холодный пот, паника, опасение за свою жизнь или спасение бегством. Некоторые страхи прячутся в подсознании и действуют исподтишка, поэтому их трудно бывает заметить и понять, что они собой представляют, но при этом они не дают нам развиваться и двигаться вперед.
-
-Мэнди Холгейт, бизнес-коуч с огромным опытом помощи людям в достижении желаемого (   Читать дальше...   )Жанр: Зарубежная психология, МотивацияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEF31D36C34C733DD160E5144144608B8D446E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209037   (779603) от 24.02.2018
-
-Татьяна Ананьева | Рестарт. Как вырваться из «дня сурка» и начать жить (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порой наша жизнь начинает напоминать «день сурка», вновь и вновь проигрывающий все тот же сценарий «дом–работа–дом». Если вы устали каждый день проводить без смысла и радости, делать то, что вам совсем не хочется, эта книга для вас! По мнению Татьяны Ананьевой, признанного эксперта в области HR и маркетинга, консультанта ведущих компаний страны, в основе счастливой (   Читать дальше...   )Жанр: Личная эффективность, О психологии популярно, Саморазвитие / личностный ростФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0944F12726801A6EEC3F990F2A9C7D26064AC09
 ```
 
 https://mybot314.ru/tekegram_catalog/

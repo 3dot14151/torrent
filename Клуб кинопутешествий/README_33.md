@@ -1,3 +1,56 @@
+###  Публикация: 541231   (502355) от 30.08.2012
+
+Прекрасная Италия (43 серия). Лигурия: от Вентимильи до Галлинары / Magnifica Italia - Liguria: da Ventimiglia a Gallinara (2007) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просмотрев цикл "Прекрасная Италия". вы влюбитесь в эту страну навсегда. Вы захотите во что бы то ни стало попасть в Италию и объехать её всю, чтобы увидеть своими глазами и потрогать своими руками! Италия это история, это искусство, это природа, это жизнь!
+В этом выпуске мы посетим: La Morotola, Ventimiglia, Bordighera, Sanremo, Taggia, Bussana, Bussana Vecchia, Ceriana, Perinaldo, Dolceacqua, Castel, Vittorio, Realdo, Triora, Imperia, Diano Marina, Cervo, Laigueglia, Alassio, Isola di CallinaraЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44906D7D5FA92A415C84D5019AF7DCAB4431572D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539560   (500535) от 01.09.2012
+
+Украинские путешествия.Слобожанщина (2003) SATRip
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Увлекательные путешествия по разным уголкам Украины. Слобожа́нщина или Слободска́я Украи́на (укр. Слобожанщина, Слобідська Україна) — историческая область на северо-востоке современной Украины и юго-западе Черноземья в России.Жанр: Документальный,путешествияПродолжительность: 00:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6684299B391BF1F24DB9A9B83ED7B0CC4116FB8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317671   (499439) от 02.08.2019
 
 Cатояма: Таинственный Водный Сад Японии / Satoyama II: Japan's Secret Watergarden (2004) BDRip [H.264/720p]
@@ -6,7 +59,7 @@ Cатояма: Таинственный Водный Сад Японии / Satoy
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499439.jpg" />
+  <img src="Z:/picture/008/save_picture_499439.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496738.jpg" />
+  <img src="Z:/picture/008/save_picture_496738.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496709.jpg" />
+  <img src="Z:/picture/008/save_picture_496709.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496591.jpg" />
+  <img src="Z:/picture/008/save_picture_496591.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496584.jpg" />
+  <img src="Z:/picture/008/save_picture_496584.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496287.jpg" />
+  <img src="Z:/picture/008/save_picture_496287.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495962.jpg" />
+  <img src="Z:/picture/008/save_picture_495962.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494789.jpg" />
+  <img src="Z:/picture/008/save_picture_494789.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494415.jpg" />
+  <img src="Z:/picture/008/save_picture_494415.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494336.jpg" />
+  <img src="Z:/picture/008/save_picture_494336.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494332.jpg" />
+  <img src="Z:/picture/008/save_picture_494332.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494219.jpg" />
+  <img src="Z:/picture/008/save_picture_494219.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493944.jpg" />
+  <img src="Z:/picture/008/save_picture_493944.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493696.jpg" />
+  <img src="Z:/picture/008/save_picture_493696.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492117.jpg" />
+  <img src="Z:/picture/008/save_picture_492117.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492024.jpg" />
+  <img src="Z:/picture/008/save_picture_492024.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492007.jpg" />
+  <img src="Z:/picture/008/save_picture_492007.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491883.jpg" />
+  <img src="Z:/picture/008/save_picture_491883.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489559.jpg" />
+  <img src="Z:/picture/008/save_picture_489559.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489236.jpg" />
+  <img src="Z:/picture/008/save_picture_489236.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487254.jpg" />
+  <img src="Z:/picture/008/save_picture_487254.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487251.jpg" />
+  <img src="Z:/picture/008/save_picture_487251.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487123.jpg" />
+  <img src="Z:/picture/008/save_picture_487123.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487114.jpg" />
+  <img src="Z:/picture/008/save_picture_487114.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C8FCB80A9EBD2EF870F88F7E68A530A844C6A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545086   (487099) от 09.09.2012
-
-Запах странствий: Канарские острова / Flavors of Canary Islands (2006-2010) HDTVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествуя по всему миру, мы узнаем историю древних городов, культурные особенности разных стран. Мы сможем побывать на пестрых рынках Турции, посетим уютные площади и улочки Сицилии, увидим необыкновенные вулканы, водопады и храмы западной Японии.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C046777E9F355EBE55E0C5BE399ED06A4CFB65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319179   (486686) от 10.08.2019
-
-Азорские острова. Рай для любителей приключений / Azores. A Discoverer's Paradise  (2015) HDTVRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Азорские острова находятся в Атлантическом океане и являются уникальным природным местом, фактически раем на Земле. Удивительная красота вулканических островов Пико и Файал очарует вас! На этих двух островах вам удастся найти красочные цветущие луга, дикие романтические пейзажи. Но главное здесь — уникальная дикая природа.Производство: США, Busch Media GroupЖанр: Документальный, путешествия, природа, флора, фаунаРежиссер: Александр СассПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7208DDFF217A7B26DE38A38E5188811A3813A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

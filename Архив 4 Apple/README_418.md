@@ -1,3 +1,110 @@
+###  Публикация: 1416375   (365256) от 17.10.2020
+
+MacX DVD Ripper Pro 6.5.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365256.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacX DVD Ripper Pro 6 был создан специально для пользователей Mac для конвертации как самодельных, так и защищенных DVD дисков. MacX DVD Ripper Pro преобразует видео в форматы MP4, H.264, MOV, FLV, MPEG, AVI, QT, iPhone (iPhone 4,iPhone 3GS, iPhone 3G), iPad, iPod (iPod touch, iPod classic, iPod nano), Apple TV, PSP для просмтра видео в таких популярных приложениях, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2020Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582FFA65D1E5446ECD7784A9A6C8F5754DFCB1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177112   (365179) от 24.10.2017
+
+Hazel 4.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hazel – это ваш личный уборщик, который организует и очистит папки так, как вы захотите. Hazel может также управлять вашей корзиной и удалять приложения. Hazel позволяет сортировать файлы по названиям, типу, дате, сайту или адресу электронной почты, с которого пришёл файл. С помощью этой программы вы также имеете возможность прикреплять цветные ярлыки, создавать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 октября 2017Разработчик: Noodlesoft, LLC.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0875CDB126D2E327D0C5BA09D70318071E30BD46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177093   (365165) от 24.10.2017
+
+Sidify Apple Music Converter 1.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sidify Apple Music Converter -  хорошо продуманный аудио конвертер для iTunes музыки для пользователей Mac.
+Sidify Apple Music Converter может удалить DRM от Apple Music и позволяет сохранить треки в формате AAC или MP3 на локальном компьютере или музыкальных плеерах. Кроме того, вы можете использовать Sidify Apple Music конвертер для преобразования аудиокниги и музыку (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: октябрь 2017Разработчик: Sidify Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FBCF3E9D868BB3C6EB18AD4CBB2BBFBF6496CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327704   (365087) от 29.09.2019
+
+Ulysses 17.1 (51750) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ulysses — это лучшее приложение для писателей и редакторов. Удобный и понятный интерфейс, мощные возможности организации документов, прозрачная синхронизация и экспорт во все форматы делают его незаменимым инструментом для всех, кто работает с текстом на Маке, Айфоне и Айпаде.
+
+Ulysses разработан преимущественно для писателей, творчески работающих с текстом, создающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 августа 2019Разработчик: The Soulmen GbRПоддерживаемая ОС: OS X 10.11.0Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAE83C7F86FF434D3A2B4F18A07F2AE856A33B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177027   (364903) от 24.10.2017
 
 Battle Chasers: Nightwar (2017) [Multi/Ru] [macOS Native game]
@@ -6,7 +113,7 @@ Battle Chasers: Nightwar (2017) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364903.jpg" />
+  <img src="Z:/picture/008/save_picture_364903.jpg" />
 </div>
 
 
@@ -35,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364821.jpg" />
+  <img src="Z:/picture/008/save_picture_364821.jpg" />
 </div>
 
 
@@ -64,7 +171,7 @@ Privatus 5.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364766.jpg" />
+  <img src="Z:/picture/008/save_picture_364766.jpg" />
 </div>
 
 
@@ -91,7 +198,7 @@ PaintCode 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364669.jpg" />
+  <img src="Z:/picture/008/save_picture_364669.jpg" />
 </div>
 
 
@@ -119,7 +226,7 @@ Movavi Screen Recorder 5 v5.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364110.jpg" />
+  <img src="Z:/picture/008/save_picture_364110.jpg" />
 </div>
 
 
@@ -145,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364095.jpg" />
+  <img src="Z:/picture/008/save_picture_364095.jpg" />
 </div>
 
 
@@ -171,7 +278,7 @@ SketchUp Pro 2017 (17.0) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363820.jpg" />
+  <img src="Z:/picture/008/save_picture_363820.jpg" />
 </div>
 
 
@@ -197,7 +304,7 @@ Principle 4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363626.jpg" />
+  <img src="Z:/picture/008/save_picture_363626.jpg" />
 </div>
 
 
@@ -224,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363450.jpg" />
+  <img src="Z:/picture/008/save_picture_363450.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363443.jpg" />
+  <img src="Z:/picture/008/save_picture_363443.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ AudioFinder 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363345.jpg" />
+  <img src="Z:/picture/008/save_picture_363345.jpg" />
 </div>
 
 
@@ -303,7 +410,7 @@ Cookie 6.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363341.jpg" />
+  <img src="Z:/picture/008/save_picture_363341.jpg" />
 </div>
 
 
@@ -331,7 +438,7 @@ Stellaris v2.1.4.4 (24035) (2016) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363262.jpg" />
+  <img src="Z:/picture/008/save_picture_363262.jpg" />
 </div>
 
 
@@ -357,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363207.jpg" />
+  <img src="Z:/picture/008/save_picture_363207.jpg" />
 </div>
 
 
@@ -383,7 +490,7 @@ Pixave 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363202.jpg" />
+  <img src="Z:/picture/008/save_picture_363202.jpg" />
 </div>
 
 
@@ -410,7 +517,7 @@ WinX DVD Ripper 6.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363199.jpg" />
+  <img src="Z:/picture/008/save_picture_363199.jpg" />
 </div>
 
 
@@ -436,7 +543,7 @@ MediaHuman Youtube Downloader 3.9.9.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363194.jpg" />
+  <img src="Z:/picture/008/save_picture_363194.jpg" />
 </div>
 
 
@@ -465,7 +572,7 @@ Smooze 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363166.jpg" />
+  <img src="Z:/picture/008/save_picture_363166.jpg" />
 </div>
 
 
@@ -494,7 +601,7 @@ Fantastical 2.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363155.jpg" />
+  <img src="Z:/picture/008/save_picture_363155.jpg" />
 </div>
 
 
@@ -523,7 +630,7 @@ Capture One Pro 11 v11.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363063.jpg" />
+  <img src="Z:/picture/008/save_picture_363063.jpg" />
 </div>
 
 
@@ -550,7 +657,7 @@ Algoriddim djay Pro (Complete FX Pack) 2 v2.2.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363015.jpg" />
+  <img src="Z:/picture/008/save_picture_363015.jpg" />
 </div>
 
 
@@ -576,7 +683,7 @@ OmniFocus Pro 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362895.jpg" />
+  <img src="Z:/picture/008/save_picture_362895.jpg" />
 </div>
 
 
@@ -588,113 +695,6 @@ OmniFocus: когда время — важнейший ресурс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA740A092420243053027B7CC8F678A479EF1D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417128   (362860) от 18.10.2020
-
-Adguard 2.5.1.904 nightly [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов. Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2020Разработчик: AdguardПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6729554FD40DEB4FCD7C3F0AA9E25951ECCF66D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130918   (362831) от 25.10.2017
-
-Scrutiny 7.6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny -  программа для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует  XML / HTML / .csv / .dot  карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для поднятия (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: PeacockmediaПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C655EAEC1DD9B5B94A38EC33F76AFF27F85F0DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115042   (362825) от 25.10.2017
-
-UninstallPKG 1.0.29 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362825.jpg" />
-</div>
-
-
-###  Подробнее
-
-UninstallPKG - приложение, которое позволяет Вам полностью удалять так называемые "пакеты" (расширения файла .pkg) и все их установленное содержимое с Вашего Mac.
-
-UninstallPKG может использоваться для очистки свободного пространства на диске , например удалить неиспользуемые драйвера принтера или полностью удалить приложения, которые Вы больше не используете. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17 октября 2017Разработчик: CoreCodeПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F14A1DB324D0F31B6AEC1655E916167E52F5EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416943   (362733) от 18.10.2020
-
-Wondershare Filmora Х v10.0.0.61 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71F4232AB799DE1920104E8D6DC77B2CAE85468D
 ```
 
 https://mybot314.ru/tekegram_catalog/

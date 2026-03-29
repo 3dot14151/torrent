@@ -1,3 +1,86 @@
+###  Публикация: 1477841   (1010797) от 16.06.2021
+
+Рассел Кольц | Терапия, сфокусированная на сострадании (CFT). Практическое руководство для клинических психологов (2021) [DJVU]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступное руководство по изучению и применению CFT в клинической практике!
+Пошаговая инструкция помощи клиентам.
+Развитие самосострадания.
+Обучение навыкам осознанности.(   Читать дальше...   )Жанр: ПсихологияПеревод: Е. Н. НиколаеваФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E8BA5B404B70CA7D8EBE03CB6FA0D257235163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477714   (1010783) от 16.06.2021
+
+Ольга Савельева | ПроЖИВАЯ. Как оставаться счастливым, проживая самые сложные моменты жизни (2021) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010783.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мотивационных историях часто фигурируют эдакие «железные люди»: которые про «встань и иди», которых раз за разом щелкали по носу, унижали, которых сталкивали нос к носу с душевной болью, а они… вставали и шли дальше. Однако в большинстве случаев такие истории либо раздражают, либо погружают в уныние: почему они смогли, а ты – нет?..
+
+Новая книга писателя и автора (   Читать дальше...   )Жанр: ПсихологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6726C7A19DD79B47EBBB69CF40906DEC3C98B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477757   (1010772) от 16.06.2021
+
+Татьяна Кузнецова | Говори так! Как выступать уверенно, не тупить и быть счастливым (2021) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш язык, слова, которые мы произносим, – отражение нашей культуры, образа мыслей. Мы – это то, что мы говорим. Неумение говорить мешает нам жить и быть счастливыми. Мы проигрываем в спорах, не можем заявить о себе, теряемся перед вопросами, упускаем возможности изменить свою судьбу. Речь – наша визитная карточка, а мы часто скромно прячем ее в кармане, стесняясь (   Читать дальше...   )Жанр: Ораторское искусство / риторика, Саморазвитие / личностный ростФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1272F7C5467D3AD4B179173BFCC6D0A976E52F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478036   (1010601) от 17.06.2021
 
 Москва | Книжная серия "Популярная психология для бизнеса и жизни" в 37 книгах (2016-2021) [FB2, PDF, EPUB]
@@ -6,7 +89,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010601.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010302.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010294.jpg" />
 </div>
 
 
@@ -84,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010113.jpg" />
 </div>
 
 
@@ -110,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009947.jpg" />
 </div>
 
 
@@ -138,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009797.jpg" />
 </div>
 
 
@@ -164,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009787.jpg" />
 </div>
 
 
@@ -191,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009511.jpg" />
 </div>
 
 
@@ -218,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009365.jpg" />
 </div>
 
 
@@ -244,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009242.jpg" />
 </div>
 
 
@@ -271,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008820.jpg" />
 </div>
 
 
@@ -297,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008668.jpg" />
 </div>
 
 
@@ -325,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008397.jpg" />
 </div>
 
 
@@ -351,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008309.jpg" />
 </div>
 
 
@@ -377,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007842.jpg" />
 </div>
 
 
@@ -403,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007150.jpg" />
 </div>
 
 
@@ -431,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007118.jpg" />
 </div>
 
 
@@ -457,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007077.jpg" />
 </div>
 
 
@@ -485,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006970.jpg" />
 </div>
 
 
@@ -511,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005893.jpg" />
 </div>
 
 
@@ -539,7 +622,7 @@ Cтивен Шапиро | Здесь и сейчас. Как вырваться
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005420.jpg" />
 </div>
 
 
@@ -565,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005052.jpg" />
 </div>
 
 
@@ -591,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004855.jpg" />
 </div>
 
 
@@ -602,85 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2403BB475FF609D7196ECC7193BA88E840149533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486282   (1004841) от 30.07.2021
-
-Илсе Санд | Чувство стыда. Как перестать бояться быть неправильно воспринятым (2021) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это чувство сидит глубоко в нас, о нем не принято распространяться и обсуждать даже с близкими людьми. Все мы иногда совершаем поступки, за которые потом становится стыдно. Стыд – сильное и болезненное ощущение внутреннего дискомфорта, которое часто возникает необоснованно, но способно серьезно испортить жизнь.
-За ним скрываются другие проблемы: страх, заниженная (   Читать дальше...   )Жанр: Практическая психология, Психологические тренингиПеревод: Анастасия Наумова, Николай ФитисовФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805F82C3E10F9D2B873EB718E73B0B8D5D028016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486508   (1004730) от 31.07.2021
-
-Розамунда Зандер, Бенджамин Зандер | Искусство возможности. Как сыграть свою лучшую партию в карьере и жизни (2016) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга объединяет опыт талантливого психотерапевта Розамунды Зандер и выдающегося дирижёра и учителя Бенджамина Зандера. Авторы описывают собственную концепцию трансформации жизни, освобождённой от страха неудач. Изменения основываются на новых способах, позволяющих по-иному определить самого себя, других людей и весь мир. Упражнения, представленные в книге, позволят (   Читать дальше...   )Жанр: Зарубежная деловая литература, Личная эффективностьПеревод: Ю. ЕфановаФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A01B5505E3B8A65BE2259B28C0F959B783E01BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486497   (1004721) от 31.07.2021
-
-Акаш Кариа | Воспламеняй своим словом. 6 правил выдающегося выступления от лучших спикеров TED Talks (2019) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помните своё первое публичное выступление? Испуганные глаза и дрожащие руки, сухость во рту и учащённое сердцебиение… Большинство из нас до сих пор бросает в холодный пот при одной мысли о том, чтобы донести свою идею до большого количества людей. И поэтому отказывается выступать, отрезая себе путь к мечте, для воплощения которой необходима поддержка. Хорошая новость: (   Читать дальше...   )Жанр: Ораторское искусство / риторика, Саморазвитие / личностный рост, Советы от гуру, Эффективная презентацияПеревод: Елизавета СамойловаФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13ABD80028A275808B69A37D1DA7048AED906AED
 ```
 
 https://mybot314.ru/tekegram_catalog/

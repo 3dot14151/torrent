@@ -1,3 +1,206 @@
+###  Публикация: 1848799   (1053096) от 18.01.2026
+
+VA - Today’s Anthems (2026) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Other>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1053096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Warren - Ordinary (3:06)
+02. Ed Sheeran - Sapphire (2:59)
+03. ROSÉ - APT. (2:49)
+04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A962A06732B3AA23DFCFC05FD2815B1FD65A8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848796   (1053084) от 18.01.2026
+
+VA - Disco Hits of The '70s, '80s & '90s (2013) [FLAC|Lossless|WEB-DL|tracks] <Pop, Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1053084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thea Austin SNAP! - Rhythm Is Dancer (3:44)
+02. Company B - Fascinated (Re-Recorded) (4:43)
+03. Jagged Edge - Where the Party At? (Re-Recorded) (4:24)
+04. Leif Garret - Play That Funky Music (4:28)(   Читать дальше...   )Жанр: Pop, Ballad, DiscoПродолжительность: 05:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94219E3AF657AD833AAE0533352B0D78DA357BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1847813   (1052293) от 14.01.2026
+
+Cher - Heart Of Stone (1989) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1052293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немногие артисты могут похвастаться такой богатой карьерой, как Cher, и хотя её творчество получало неоднозначные оценки, её неизменная популярность обеспечила альбому Heart Of Stone грандиозный успех; этот альбом, безусловно, входит в число лучших, выпущенных в 1989 году. Девятнадцатый студийный альбом, Heart Of Stone стал поворотным моментом в карьере певицы и, (   Читать дальше...   )01. If I Could Turn Back Time (4:01)
+02. Just Like Jesse James (4:08)
+03. You Wouldn't Know Love (3:32)
+04. Heart of Stone (4:18)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2358852A1B6BD504586AF21BE51AE07A1C719B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846477   (1051517) от 08.01.2026
+
+VA - Modern Synth Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charli XCX - Talk Talk (2:42)
+02. Kenya Grace - Strangers (2:53)
+03. Chappell Roan - Sugar High (3:40)
+04. Twenty One Pilots - Vignette (3:23)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 01:20:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B73DD12AC1169FE10C5C8255A85A66772270E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846452   (1051515) от 08.01.2026
+
+Bee Gees - Still Waters (1997) [FLAC|Lossless|image + .cue] <Pop, Disco, Soft rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Still Waters — двадцать первый и предпоследний студийный альбом группы Bee Gees , выпущенный 10 марта 1997 года в Великобритании лейблом Polydor Records.01. Alone - 4:51
+02. I Surrender - 4:18
+03. I Could Not Love You More - 3:44
+04. Still Waters Run Deep - 4:10(   Читать дальше...   )Жанр: Pop, Disco, Soft rockПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DC63C2432B8962EB1A4D6D7B6B0AB5549A9CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844499   (1050112) от 26.12.2025
+
+Bee Gees - Greatest (1979) 2 x CD, Compilation, Reissue, 1987, Polydor [FLAC|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Greatest - это сборник лучших хитов группы Bee Gees. Альбом был выпущен лейблом RSO Records в октябре 1979 года и представляет собой ретроспективу творчества группы за период с 1975 по 1979 год. Это была идеальная квинтэссенция звучания, которое вывело Bee Gees на вершину поп-музыкального мира. В то время это вызвало некоторое невысказанное недовольство у старых (   Читать дальше...   )CD1:
+01. Jive Talkin' (3:45)
+02. Night Fever (3:32)
+03. Tragedy (5:03)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BC42DFBE78D6A2EC5D441A38DE68F8C07E7117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844539   (1050079) от 27.12.2025
+
+Greater Vision - Perfect Candidate (2000) [FLAC|Lossless|tracks + .cue] <Gospel, Christian>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Use Us, Jesus
+02. A Perfect Candidate
+03. There Is
+04. You Gotta Know(   Читать дальше...   )Жанр: Gospel, ChristianПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8181CBB7CB20656256FF6854F550E0EE511D4B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843900   (1049694) от 22.12.2025
 
 Jessie Murph - Sex Hysteria (Deluxe) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -6,7 +209,7 @@ Jessie Murph - Sex Hysteria (Deluxe) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049694.jpg" />
+  <img src="Z:/picture/005/save_picture_1049694.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ Infinite Coles - SweetFace Killah (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048113.jpg" />
+  <img src="Z:/picture/008/save_picture_1048113.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Hooked On a Feeling - 70s Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047473.jpg" />
+  <img src="Z:/picture/008/save_picture_1047473.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ Kylie Minogue - Kylie Christmas [Fully Wrapped] (2025) [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047414.jpg" />
+  <img src="Z:/picture/005/save_picture_1047414.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - 70s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047148.jpg" />
+  <img src="Z:/picture/005/save_picture_1047148.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - 10s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046999.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - 00s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046838.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ Thomas Anders - … Sings Modern Talking: Magic the Long Versions (2025) [FLAC|L
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046553.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ Jessie J - Don't Tease Me With A Good Time (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046500.jpg" />
 </div>
 
 
@@ -267,7 +470,7 @@ Solar Fake - Enjoy Dystopia (2021) 2CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tra
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046346.jpg" />
 </div>
 
 
@@ -296,7 +499,7 @@ The Les Humphries Singers - Greatest Hits (1989) Compilation, WEA [FLAC|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046332.jpg" />
 </div>
 
 
@@ -325,7 +528,7 @@ Les Humphries Singers - The Best Of (2020) Rerecorded, OVC Media [FLAC|Lossless|
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046252.jpg" />
 </div>
 
 
@@ -354,7 +557,7 @@ Bee Gees - Mr. NATURAL (1974) SHM-CD, Japanese Edition, Reissue, 2022, Capitol R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046023.jpg" />
 </div>
 
 
@@ -383,7 +586,7 @@ Bee Gees - Living Eyes (1981) SHM-CD, Japanese Edition, Reissue, 2022, Capitol R
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046016.jpg" />
 </div>
 
 
@@ -412,7 +615,7 @@ Roxette - Room Service (2001) Unofficial Release, Remaster, 2003, Roxette Record
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045913.jpg" />
 </div>
 
 
@@ -441,7 +644,7 @@ Bee Gees - One (1989) SHM-CD, Japanese Edition, Reissue, 2022, Capitol Records [
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045910.jpg" />
 </div>
 
 
@@ -470,7 +673,7 @@ Hurts - Happiness (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Synth-pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045835.jpg" />
 </div>
 
 
@@ -499,7 +702,7 @@ Gilbert O'Sullivan - The Best Of (2022) 3xCD, Compilation [FLAC|Lossless|tracks 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044837.jpg" />
 </div>
 
 
@@ -528,7 +731,7 @@ Kovacs - Child Of Sin (2023) [FLAC|Lossless|tracks] <Pop, Vocal Jazz, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044814.jpg" />
 </div>
 
 
@@ -542,211 +745,6 @@ Kovacs - Child Of Sin (2023) [FLAC|Lossless|tracks] <Pop, Vocal Jazz, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B23394ADB2839F9C9507B907A662C8E6037F2EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607590   (1043943) от 27.01.2023
-
-Steps - Platinum Collection (2022) 2xCD [FLAC|Lossless|image + .cue] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Steps была сформирована в мае 1997 в Лондоне, Великобритания. Она была одним из самых популярных британских музыкальных поп коллективов. Это был коммерческий проект, в который после долгих кастингов и проб вошли Lee Latchford-Evans, Claire Richards, Lisa Scott-Lee, Faye Tozer и Ian Watkins. Именно в таком составе группа просуществовала до её окончательного (   Читать дальше...   )CD - 1:
-01. Scared Of The Dark (3:47)
-02. Deeper Shade Of Blue (3:41)
-03. One For Sorrow (4:21)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3B864AE328165524CBCABA028FADBC5129C506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608133   (1043749) от 29.01.2023
-
-VA - soft pop 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Benson Boone - Before You (3:07)
-02. Ed Sheeran - Celestial (3:29)
-03. Omar Apollo - Evergreen (You Didn't Deserve Me at All) (3:36)
-04. Zach Bryan - Something in the Orange (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256B365434D9DE4038B0E9A85D3AEB1E74376F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608194   (1043719) от 29.01.2023
-
-Ricchi E Poveri - Mamma Maria (1986) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciao Italy, Ciao Amore
-02. Sara' Perche' Ti Amo
-03. Made In Italy
-04. Ninni Nanna(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8746EC21512E8FB8C531B821AE84B317E1CBE342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608740   (1043514) от 31.01.2023
-
-Pupo - Porno Contro Amore (2016) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porno Contro Amore
-02. Pensiero Mio
-03. Se Ci Sei
-04. L'Azzardo Di Eva(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97B0686FF798CDCE5BCA2BEE64A1267D04862EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609182   (1043314) от 02.02.2023
-
-Sarah McCoy - High Priestess (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sarah McCoy провела большую часть своей жизни, играя на пианино и исполняя глубокие, лиричные, надрывные песни в барах Нового Орлеана. Внутренний хаос этих забегаловок соответствовал той жизни, которую Сара вела с двадцатилетнего возраста.
-В 33 года её заприметил известный канадский пианист Чили Гонзалес и жизнь Сары кардинально изменилась.
-Сейчас ей аплодируют элитные (   Читать дальше...   )01. Weaponize Me
-02. Go Blind
-03. Sometimes You Lose
-04. Take It All(   Читать дальше...   )Жанр: Alternative Pop, BluesПродолжительность: 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C648377C9FE1ED6DCDA179A2758C6A380D08EE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609367   (1043226) от 03.02.2023
-
-Shania Twain - Queen Of Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giddy Up!
-02. Brand New
-03. Waking Up Dreaming
-04. Best Friend(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AFF50B5B8958B1031FCE9994CEBE603ED91966
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609612   (1043144) от 04.02.2023
-
-VA - timeless pop songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duran Duran - Girls on Film (2010 Remaster) (3:32)
-02. James Blunt - You're Beautiful (3:29)
-03. Bruno Mars - Just the Way You Are (3:40)
-04. Ava Max - Kings & Queens (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 02:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F06A75D6A00FE3944E9F6679753C97B53215F58
 ```
 
 https://mybot314.ru/tekegram_catalog/

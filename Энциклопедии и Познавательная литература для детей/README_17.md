@@ -1,3 +1,55 @@
+###  Публикация: 1357839   (809390) от 16.05.2020
+
+Дарья Варламова, Дмитрий Судаков (ред.) | Атлас новых профессий 3.0 (2020) [PDF, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выбирая будущую профессию, рискованно ориентироваться на то, что востребовано сейчас, — возможно, к моменту получения специальности ваши знания устареют или вашу работу уже будут выполнять роботы. «Атлас новых профессий 3.0» — это инструмент профориентации XXI века и альманах перспективных отраслей и профессий на ближайшие 15–20 лет. Это книга для старшеклассников (   Читать дальше...   )Жанр: Научно-популярная литература, СправочникиФормат: PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF94B19BE77C63587A1B883748B64E089A1C95FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010182   (803962) от 24.04.2016
+
+Л. Клюкин (пер.) | Все о Транспорте. Познавательная энциклопедия (1994) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что собой представляют канатные дороги? Что делает коробка передач? Зачем на шины наносят протектор? Как работает спутниковая навигационная система? Каким образом двигаются суда на подводных крыльях? Как работает атомная подлодка? Что такое дирижабль? - Ответы на эти и многие другие вопросы содержатся в данной энциклопедии. В легкой и доступной форме рассказывается (   Читать дальше...   )Жанр: Познавательная энциклопедияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4FC29D90CE5C554BB72C003FDA7CF79E7292F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010457   (803953) от 24.04.2016
 
 О.В. Артемова и др.| Открытия и изобретения (2008) [PDF]
@@ -6,7 +58,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803953.jpg" />
+  <img src="Z:/picture/008/save_picture_803953.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ DK Publishing | Dinosaurs: A Visual Encyclopedia / Динозавры: визу�
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803701.jpg" />
+  <img src="Z:/picture/008/save_picture_803701.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802928.jpg" />
+  <img src="Z:/picture/008/save_picture_802928.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802814.jpg" />
+  <img src="Z:/picture/008/save_picture_802814.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802754.jpg" />
+  <img src="Z:/picture/008/save_picture_802754.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801656.jpg" />
+  <img src="Z:/picture/008/save_picture_801656.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801594.jpg" />
+  <img src="Z:/picture/008/save_picture_801594.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801582.jpg" />
+  <img src="Z:/picture/008/save_picture_801582.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801577.jpg" />
+  <img src="Z:/picture/008/save_picture_801577.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798541.jpg" />
+  <img src="Z:/picture/008/save_picture_798541.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797773.jpg" />
+  <img src="Z:/picture/008/save_picture_797773.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796746.jpg" />
+  <img src="Z:/picture/008/save_picture_796746.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796240.jpg" />
+  <img src="Z:/picture/008/save_picture_796240.jpg" />
 </div>
 
 
@@ -351,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796235.jpg" />
+  <img src="Z:/picture/008/save_picture_796235.jpg" />
 </div>
 
 
@@ -377,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794323.jpg" />
+  <img src="Z:/picture/008/save_picture_794323.jpg" />
 </div>
 
 
@@ -404,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794071.jpg" />
+  <img src="Z:/picture/008/save_picture_794071.jpg" />
 </div>
 
 
@@ -430,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792900.jpg" />
+  <img src="Z:/picture/008/save_picture_792900.jpg" />
 </div>
 
 
@@ -456,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792893.jpg" />
+  <img src="Z:/picture/008/save_picture_792893.jpg" />
 </div>
 
 
@@ -482,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786280.jpg" />
+  <img src="Z:/picture/008/save_picture_786280.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781380.jpg" />
 </div>
 
 
@@ -536,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_778259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_778259.jpg" />
 </div>
 
 
@@ -562,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777581.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776742.jpg" />
+  <img src="Z:/picture/008/save_picture_776742.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776391.jpg" />
+  <img src="Z:/picture/008/save_picture_776391.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70FEE8C1BBE04BDDF7032ABC43ABCDF3F17308D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014500   (776334) от 07.05.2016
-
-Ю.Д. Дмитриев | Соседи по планете [5 книг] (1977-1990) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Научно-художественная серия «Соседи по планете», состоящая из пяти книг Юрия Дмитриевича Дмитриева (30 апреля 1926 – 1989) – советского писателя-натуралиста рекомендована для среднего и старшего школьного возраста. За книги «Соседи по планете» автор в 1982 году был удостоен Международной Европейской премии.Жанр: ЭнциклопедииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FDF0DDFC72C50EC8AB288E66AE1F55F1CBFF14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015156   (775677) от 09.05.2016
-
-Валерия Хачатурян | Древний Китай. История, быт, нравы (2001) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга из серии "Что есть что" рассказывает об истории Древнего Китая с первобытных времен до конца эпохи Хань, его традициях и государственном устройстве, философии Конфуция и Лао-цзы, мировоззрении китайцев и их повседневной жизни, искусстве, науке, ремеслах и о многом другом.Жанр: ЭнциклопедииФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A005704486A4450D80F0163DED1F7B89FF00C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1568900   (242483) от 10.08.2022
+
+Я есть Грут / I Am Groot (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) [EN / RU, EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия небольших короткометражек, которые рассказывают о приключениях забавного малыша Грута и его друзей.Производство: США / Marvel StudiosЖанр: мультфильм, короткометражка, фантастика, фэнтези, боевик, комедия, приключенияРежиссер: Керстен ЛепореПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: ~00:04:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3FC60661FBD3FDD2378449D5AC016274B0C462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624014   (242419) от 04.04.2023
+
+Гэри и его демоны / Gary and His Demons (2018) WEBRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) 2x2, NewStation, Т.О Друзей
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гэри — ветеран правительственного департамента по отлову и уничтожению демонов, который был создан после масштабного вторжения сил зла в наш мир. В войне с силами Ада он потерял много друзей и любимую, но приобрёл стальной цинизм, язвительное чувство юмора и желание уйти на пенсию. Но вот беда, ему до сих пор не нашли замену. И снова ему одному приходится тянуть (   Читать дальше...   )Производство: Канада, Mondo MediaЖанр: Для взрослых, ужасы, фэнтези, боевик, драма, комедияРежиссер: Марк Литтл, Лу СолисАктеры: Марк Литтл, Кайл Дули, Кайла Лоретт, Мигель Ривас, Сара Гарсиа, Эмма Хантер, Палома Нунез, Дэвид БерниПеревод: многоголосый (2x2, NewStation 18+), одноголосый (Т.О Друзей 18+)Язык озвучки: русский, английскийСубтитры: русские (18+), английские, французскиеПродолжительность: ~00:11:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2031D5158321760CD2E9DF85672D1F07756EEFA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543510   (241527) от 15.04.2022
 
 Чип и Дейл спешат на помощь / Chip and Dale Rescue Rangers (1989) BDRip [H.264/1080p] (Сезон 1-3, серии 65 из 65)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241527.jpg" />
+  <img src="Z:/picture/004/save_picture_241527.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241146.jpg" />
+  <img src="Z:/picture/004/save_picture_241146.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240163.jpg" />
+  <img src="Z:/picture/004/save_picture_240163.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240032.jpg" />
+  <img src="Z:/picture/004/save_picture_240032.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239664.jpg" />
+  <img src="Z:/picture/004/save_picture_239664.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238942.jpg" />
+  <img src="Z:/picture/005/save_picture_238942.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ SMASH! Юные супергерои / S.M.A.S.H! (2022) WEBRip [H.264/1080p] (�
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237651.jpg" />
+  <img src="Z:/picture/004/save_picture_237651.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236215.jpg" />
+  <img src="Z:/picture/005/save_picture_236215.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235878.jpg" />
+  <img src="Z:/picture/005/save_picture_235878.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235683.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234656.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234327.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234103.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233706.jpg" />
+  <img src="Z:/picture/005/save_picture_233706.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233321.jpg" />
+  <img src="Z:/picture/005/save_picture_233321.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233162.jpg" />
+  <img src="Z:/picture/005/save_picture_233162.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ DOTA: Кровь дракона / Dota: Dragon's Blood (2022) WEB-DL [H.264/1080
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233101.jpg" />
+  <img src="Z:/picture/005/save_picture_233101.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232440.jpg" />
+  <img src="Z:/picture/005/save_picture_232440.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232420.jpg" />
+  <img src="Z:/picture/005/save_picture_232420.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232328.jpg" />
+  <img src="Z:/picture/005/save_picture_232328.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231877.jpg" />
+  <img src="Z:/picture/005/save_picture_231877.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231857.jpg" />
+  <img src="Z:/picture/005/save_picture_231857.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231203.jpg" />
+  <img src="Z:/picture/005/save_picture_231203.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230792.jpg" />
+  <img src="Z:/picture/005/save_picture_230792.jpg" />
 </div>
 
 
@@ -619,58 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1CEAB130A9AE568E92171326A6F7268E371244B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553944   (230668) от 07.06.2022
-
-Отмена / Undone (2022) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8)  NewStation
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет расскажет о девочке, которая после автомобильной аварии получила возможность перемещаться во времени и пространстве. Она пытается использовать свои способности, чтобы спасти давно умершего отца.Производство: США, Amazon Studios, Minnow Mountain, Submarine, Tornante CompanyЖанр: Мультфильм, фэнтези, драмаРежиссер: Хиско ХулсингПеревод: Многоголосый профессиональный (NewStation)Присутствует ненормативная лексика!Субтитры: русские, английские, арабские, датские, немецкие, испанские, финские, французские, ивритские, индонезийские, итальянские, корейские, японские, норвежские, голландские, польские, португальские, шведские, тамильские, тайские, турецкие, китайскиеПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95A591F306EAE9D12A1BFED2D6D1FE93BC43E341
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832979   (230318) от 31.10.2025
-
-Отель Хазбин / Hazbin Hotel (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-2 из 8) Jaskier (обновляемая)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ад страдает от перенаселения и сам решает эту проблему, регулярно истребляя своих граждан. Принцесса Ада Чарли хочет найти альтернативное решение без массовой бойни. Она открывает отель, чтобы грешники исправились и попали в Рай. Преданный партнёр и лучшая подруга Чарли, Вегги, и их первый клиент, звезда фильмов для взрослых Энджел Даст, поддерживают её мнение. Но (   Читать дальше...   )Производство: Филлипины, США / A24, Amazon MGM Studios, Bento Box EntertainmentЖанр: мультфильм, мюзикл, фэнтези, драма, комедияРежиссер: Вивьенн МедраноАктеры: Эрика Хенингсен, Стефани Беатрис, Blake Roman, Алекс Брайтман, Кит Дэвид, Кимико Гленн, Алекс Ньюэлл, Патрик Стамп, Лиз Колэуэй, Кевин Дель АгильяПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C3E432E5A4658B7C508C884CCD2FB458367B68
 ```
 
 https://mybot314.ru/tekegram_catalog/

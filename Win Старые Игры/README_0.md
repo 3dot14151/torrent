@@ -1,3 +1,55 @@
+###  Публикация: 1847220   (1051929) от 11.01.2026
+
+Dungeons and Dragons: Dragonshard / Кристалл всевластья (2005) [Ru/Multi] (1.02.0001) License GOG
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стратегия в реальном времени Dragonshard переносит игрока в таинственную вселенную Eberron - молодой мир, в котором потомки прекрасных эльфов практикуют темное колдовство, и где на страже добра стоит нерушимый альянс светлых сил. Адепты тьмы и благородный Орден ведут непримиримую войну за таинственный кристалл, история которого восходит к самому сотворению мира. (   Читать дальше...   )Тип издания: LicenseРазработчик: Liquid EntertainmentЖанр: Стратегия, Ролевая играЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059D9E07B6C9CA1505CA9FC81773990D85AE8BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846713   (1051683) от 08.01.2026
+
+Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051683.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тени над Ривой» - третья часть великолепной трилогии «Царства Аркании». Нечто ужасное творится в прибрежном городе Рива. Храбрые и почтенные воины отказываются сражаться с ордой орков, атакующей город. Дьявольская сила терзает их сердца и мысли. Сможет ли небольшая группа ваших героев одолеть ее, пока не стало слишком поздно? Цель игры – разоблачить предателей, (   Читать дальше...   )Тип издания: LicenseРазработчик: Attic Entertainment SoftwareЖанр: Ролевые игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F747EE7C6DD7AA1E9D29AB699408643C086BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846692   (1051372) от 08.01.2026
 
 The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
@@ -6,7 +58,7 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051372.jpg" />
+  <img src="Z:/picture/005/save_picture_1051372.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051371.jpg" />
+  <img src="Z:/picture/005/save_picture_1051371.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Dungeon Keeper KeeperFX (2008) [Ru/Multi] (1.3.0) License/Mod GOG
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051007.jpg" />
+  <img src="Z:/picture/005/save_picture_1051007.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Medieval: Total War (2002) [En] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050983.jpg" />
+  <img src="Z:/picture/005/save_picture_1050983.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Rome: Total War (2004) [En] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050980.jpg" />
+  <img src="Z:/picture/005/save_picture_1050980.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Rome: Total War - Alexander (2006) [En] (v1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050968.jpg" />
+  <img src="Z:/picture/005/save_picture_1050968.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Total War: MEDIEVAL II (2) (2006) [En] (v1/dlc) License GOG [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050967.jpg" />
+  <img src="Z:/picture/005/save_picture_1050967.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Total War: MEDIEVAL II (2) (2006) [Ru] (v1/dlc) License GOG [Definitive Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050966.jpg" />
+  <img src="Z:/picture/005/save_picture_1050966.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050905.jpg" />
+  <img src="Z:/picture/005/save_picture_1050905.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ SHOGUN: Total War (2000) [Multi] (v1/dlc) License GOG [Collection]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050903.jpg" />
+  <img src="Z:/picture/005/save_picture_1050903.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ ECHELON (1988) [En] (3.40) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050801.jpg" />
+  <img src="Z:/picture/005/save_picture_1050801.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Airborne Ranger (1988) [En] (441.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050799.jpg" />
+  <img src="Z:/picture/005/save_picture_1050799.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Redline: Gang Warfare 2066 (1999) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050798.jpg" />
+  <img src="Z:/picture/005/save_picture_1050798.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Warhammer: Dark Omen (1998) [Multi] (1.6) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050354.jpg" />
+  <img src="Z:/picture/005/save_picture_1050354.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Syndicate Classic Dilogy / Syndicate Plus / Syndicate Wars (1993, 1996) [Multi] 
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050268.jpg" />
+  <img src="Z:/picture/005/save_picture_1050268.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Realmz (1999) [En] (7.1.2) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049563.jpg" />
+  <img src="Z:/picture/005/save_picture_1049563.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Shadow Vault / Shadow Vault: Зона теней (2004) [Ru] (1.0.28) License М
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049407.jpg" />
+  <img src="Z:/picture/008/save_picture_1049407.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Gothic 2: Golden Gate / Готика 2: Золотые Ворота (2014) [Ru/E
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048329.jpg" />
+  <img src="Z:/picture/008/save_picture_1048329.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Golden Gate 2: Goddess Heart / Золотые Ворота 2: Сердце Бо�
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048197.jpg" />
+  <img src="Z:/picture/008/save_picture_1048197.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ UnReal World (1992) [En] (3.86.1/dlc) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046865.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Geneforge 5: Overthrow (2008) [En] (1.0.1g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046862.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Geneforge 4: Rebellion (2006) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046861.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ You Are Empty (2006) [Ru] (1.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046857.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Geneforge 3 (2005) [En] (1.0g) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046856.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Geneforge 3 - это приключенческая ролевая инди-иг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CE162F175B9E1BD1DE3DD8CBF40D6A1AB7C4F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839852   (1046734) от 01.12.2025
-
-Galador: The Prince and the Coward / Галадор: Проклятие Принца (1998) [Ru/Multi] (1.0) License GOG [Digital Deluxe Edition]
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сон или кошмар? Совершенно обычный мальчик по имени Галадор внезапно обнаруживает себя в теле принца. Однако у внезапного и быстрого восхождения до подобной должности есть свои обратные стороны. От принцев обычно ждут бесстрашия и героизма. Но это не про Галадора. Он хочет как можно скорее вернуться к своей простой и созерцательной жизни. Но это не так просто: его (   Читать дальше...   )Тип издания: LicenseРазработчик: Metropolis SoftwareЖанр: Приключение, КвестЯзык озвучки: Русский, Немецкий, ПольскийЯзык субтитров: Русский, Английский, Немецкий, ПольскийЯзык интерфейса: Русский, Английский, Немецкий, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964FBF672399110B894A8CC5C270D966CD04FB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839514   (1046641) от 29.11.2025
-
-MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.378/dlc) Repack Necros
-
->>Win Старые Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046641.jpg" />
-</div>
-
-
-###  Подробнее
-
-MechWarrior 5: Mercenaries — это шутер от первого лица, в котором игроки берут на себя пилотов гигантских боевых роботов. Игроков ждет далекое будущее - 3015 год, где третья Война за наследие входит в финальную фазу. В роли пилотов-наемников игроки должны выбирать различные контракты, чтобы зарабатывать деньги, открывать новых мехов и продвигаться по карьерной лестнице.Тип издания: RepackРазработчик: Piranha Games Inc.Жанр: Экшены, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA4AC65032C8205FEC946BAE1F8411C26181C951
 ```
 
 https://mybot314.ru/tekegram_catalog/

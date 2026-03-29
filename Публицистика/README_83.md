@@ -1,3 +1,83 @@
+###  Публикация: 1763831   (35352) от 03.12.2024
+
+П. Васюков | Дембель неизбежен! Армейские были. О службе с юмором и без прикрас (2023) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский, советский, российский военный юмор, вещь достаточно самобытная и уникальная! Недаром, в настоящее время, так популярны произведения Александра Покровского, Юрия Корткова, Андрея Константинова, Константина Закутаева. В современной русской военной прозе, повествование о ратном труде идет рука об руку с искрометным юмором! Именно военный юмор помогает преодолеть (   Читать дальше...   )Жанр: юмористическая проза, военная служба, воспоминания и мемуарыИздательство: Книжный мирФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1291075730ED08B1C114A6F4268C40B5A04B84EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769733   (32638) от 29.12.2024
+
+М.П. Павлович | Украина как объект международной контрреволюции (1920) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мировая война 1914—1918 г.г., разбившая десятки миллионов человеческих жизней, разрушившая колоссальные богатства, накопленные во всех странах в течение десятилетий мирового труда, велась за обладание источниками сырья и топлива и за великие железнодорожные и морские пути к областям, богатым этими источниками сырых материалов и топлива.
+
+Так, великий пангерманский (   Читать дальше...   )Жанр: История, политология, экономика, социология, публицистикаИздательство: ГосиздатФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE443CAB681955CA9732331F7210845AFDEFC183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771920   (31575) от 08.01.2025
+
+Дарья Журкова | Искушение прекрасным. Классическая музыка в современной массовой культуре (2016) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы привыкли воспринимать классическую музыку и массовую (популярную) культуру как явления противоположные, однако современность опровергает предубеждения подобного рода. Именно процессы «вживления» классической музыки в окружающую нас массмедийную повседневность изучаются на страницах книги. Как идеи, транслируемые массовой культурой посредством классической музыки, (   Читать дальше...   )Жанр: музыкальная культура, монографияИздательство: Новое литературное обозрениеФормат: FB2, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E16264DCD6BA30BCE000B32AF88FB46287C16C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772570   (31268) от 11.01.2025
 
 Т. Иков | Нищий студент (К характеристике экономического положения русской учащейся молодежи) (1909) [PDF]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31268.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31265.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31248.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30738.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28271.jpg" />
 </div>
 
 
@@ -140,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28246.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ ADMIN RSOTM | Оборотная сторона медали. Книга вто�
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27499.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27293.jpg" />
 </div>
 
 
@@ -221,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27291.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27223.jpg" />
 </div>
 
 
@@ -275,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26377.jpg" />
 </div>
 
 
@@ -301,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25356.jpg" />
 </div>
 
 
@@ -327,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25209.jpg" />
 </div>
 
 
@@ -353,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24924.jpg" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24908.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24675.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23655.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23536.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22613.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22391.jpg" />
 </div>
 
 
@@ -538,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21022.jpg" />
 </div>
 
 
@@ -565,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20049.jpg" />
 </div>
 
 
@@ -591,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18232.jpg" />
 </div>
 
 
@@ -603,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48433D22F83D2D98B42C221EF5103A809318E00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172884   (17747) от 20.05.2025
-
-В.А. Лопатин | Матрица Скалигера. Вся мировая история насквозь фальшивая! (2007) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор этой  книги Вячеслав Лопатин не преследует цели подарить миру ещё одну стройную теорию, призванную успокоить взбудораженные умы искателей исторической правды. Он не дает ни единого ответа на вопросы о былом и потому не формирует новых стереотипов. Новомодных теорий в рамках «альтернативной истории» уже создано достаточно, нередко они даже служат множеству благих (   Читать дальше...   )Жанр: Публицистика, историяИздательство: ОЛМА Медиа ГруппФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BC7A6715E63AC5D78D3197E8EC26250B7B21C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798476   (17436) от 22.05.2025
-
-Михаил Делягин | Цивилизация людоедов. Британские истоки Гитлера и Чубайса (2024) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17436.jpg" />
-</div>
-
-
-###  Подробнее
-
-В XX и XXI веке российское руководство не раз проявляло беспомощность перед любой агрессией, исходящей из Лондона – патологическое англофильство советской элиты, вложившей когда-то золото СССР в создание «невидимой Британской империи» офшорного банкинга, в современной отечественной бюрократии ещё не изжито…
-Надгосударственный постинформационный мир капитализма социальных (   Читать дальше...   )Жанр: Социология, ИсторияИздательство: Книжный мирФормат: PDF, FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3752434AED999F2A3F0382324459EDEA32687791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798500   (17416) от 22.05.2025
-
-Жак Эллюль | Феномен пропаганды (2023) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Жака Сезара Эмиля Эллюля, философа, богослова, историка и социолога в одном лице, посвящена пропаганде. Он проанализировал связанные с пропагандой процессы современного общества и доказал, что оно без пропаганды уже недееспособно, подробно описал, как пропаганда влияет на структуру общественного мнения и какое влияние оказывает на психику человека, объяснил, (   Читать дальше...   )Жанр: Общество, Психология, МанипуляцииИздательство: АлетейяФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D616AAE20931FBEE0E9C8E5AEFD563AD67C92299
 ```
 
 https://mybot314.ru/tekegram_catalog/

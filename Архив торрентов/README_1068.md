@@ -6,7 +6,7 @@ Markus Schulz - Global DJ Broadcast:guest Nifra (2017) [MP3|320 Kbps] <Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802099.jpg" />
+  <img src="Z:/picture/008/save_picture_802099.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802095.jpg" />
+  <img src="Z:/picture/008/save_picture_802095.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Espresso 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802089.jpg" />
+  <img src="Z:/picture/008/save_picture_802089.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Formationz - Astral (2017) [MP3|320 Kbps] <Trance, Psy-Trance, Psychedelic >
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802086.jpg" />
+  <img src="Z:/picture/008/save_picture_802086.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Mountain Duck 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802085.jpg" />
+  <img src="Z:/picture/008/save_picture_802085.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802081.jpg" />
+  <img src="Z:/picture/008/save_picture_802081.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Air Explorer Pro 1.8.1 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802079.jpg" />
+  <img src="Z:/picture/008/save_picture_802079.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Loaris Trojan Remover 2.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802068.jpg" />
+  <img src="Z:/picture/008/save_picture_802068.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Freemake Video Converter 4.1.9.10 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802065.jpg" />
+  <img src="Z:/picture/008/save_picture_802065.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802062.jpg" />
+  <img src="Z:/picture/008/save_picture_802062.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802061.jpg" />
+  <img src="Z:/picture/008/save_picture_802061.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ TunesKit Apple Music Converter 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802059.jpg" />
+  <img src="Z:/picture/008/save_picture_802059.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802052.jpg" />
+  <img src="Z:/picture/008/save_picture_802052.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802048.jpg" />
+  <img src="Z:/picture/008/save_picture_802048.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802046.jpg" />
+  <img src="Z:/picture/008/save_picture_802046.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Stefan Erbe - Digital Entrance (1995) [FLAC|Lossless|image + .cue] <Electronic, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802045.jpg" />
+  <img src="Z:/picture/008/save_picture_802045.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Gilisoft Movie DVD Creator 5.9.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802036.jpg" />
+  <img src="Z:/picture/008/save_picture_802036.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Wirecast Pro 6.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802033.jpg" />
+  <img src="Z:/picture/008/save_picture_802033.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Mindjet MindManager 16.1.193 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802023.jpg" />
+  <img src="Z:/picture/008/save_picture_802023.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802021.jpg" />
+  <img src="Z:/picture/008/save_picture_802021.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ VA - Trance Classics Vol. 2 (Mixed by Johan Gielen) (2016) [FLAC|Lossless|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802018.jpg" />
+  <img src="Z:/picture/008/save_picture_802018.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Y Society (Insight The Truncator & Damu The Fudgemunk) - Ears Hear Spears (2017)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802016.jpg" />
+  <img src="Z:/picture/008/save_picture_802016.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Trance Classics Vol.1 (Mixed by Johan Gielen) (2015) [FLAC|Lossless|WEB-DL|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802012.jpg" />
+  <img src="Z:/picture/008/save_picture_802012.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802004.jpg" />
+  <img src="Z:/picture/008/save_picture_802004.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801999.jpg" />
+  <img src="Z:/picture/008/save_picture_801999.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ Ian Standerwick - 2 Compilations, 23 Singles, 46 Remixes, 5 Tracks (2012 - 2016)
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801988.jpg" />
+  <img src="Z:/picture/008/save_picture_801988.jpg" />
 </div>
 
 

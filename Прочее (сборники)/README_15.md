@@ -1,3 +1,177 @@
+###  Публикация: 971991   (984376) от 04.01.2016
+
+VA - EuroHit Top 40 - Итоговый выпуск (2015) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - I'm Not The Only One (04:00)
+02. Charli XCX - Boom Clap (02:47)
+03. Gorgon City & Katy Menditta - Imagination (03:00)
+04. Ellie Goulding - Love Me Like You Do (04:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C165C19C7F78A65440BF91F6359FDE13A895750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972210   (983512) от 05.01.2016
+
+VA - The Dance Space Innovative (2016) [MP3|192-320 кб/с] <Club, Hands Up, Vocal, Commercial>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enveloperz! - Last Christmas (Radio Mix) 02:41
+02. Robin Schulz & Jasmine Thompson - Sun Goes Down (Enveloperz! Bootleg Mix) 04:43
+03. Flip Capella - Danger (Short Edit) 03:34
+04. Justin Point - Motherwort 04:46(   Читать дальше...   )Жанр: Club, Hands Up, Vocal, CommercialПродолжительность: 03:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A672CA0D527EEEC944EEA27CC9E8BC3BD776977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972211   (983422) от 05.01.2016
+
+VA - Royalty - Free Nu School Deep & Garage (2015) [MP3|223-320 кб/с] <House, Soulful, Nu Disco, Funky, Indie Dance, UK Jackin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983422.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Tort - Bad Habits 06:54
+002. Dopp - Bahija (Original) 07:24
+003. Discorocks & Nakia - Moving On Up (Alaya & Gallo Remix) 06:22
+004. C.K - S Jam 07:21(   Читать дальше...   )Жанр: House, Soulful, Nu Disco, Funky, Indie Dance, UK JackinПродолжительность: 12:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB33E4A0C275CFC9F270B29ABF1EEA522C5A67F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972091   (983284) от 05.01.2016
+
+VA - Winter Music (2016) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983284.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Robin Schulz - Sugar (feat. Francesco Yates)
+2. Anna Naklab - Supergirl (feat. Alle Farben & YOUNOTUS) (DJ Antonio Remix)
+3. Елена Темникова - Наверно (feat. Natan)
+4. Feder - Blind (feat. Emmi) (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE55FBCB743B72B89F514621791612602FF2CB90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355387   (983134) от 26.01.2020
+
+VA - Radio DFM Top D-Chart Январь 2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
+02. The Black Eyed Peas & J Balvin - RITMO (Vadim Adamov & Hardphol Remix) 2:38
+03. Dua Lipa - Don't Start Now (Sergey Raf & ARROY Remix) 3:00
+04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1B15E552DD7BAD5B8C349D4D2EB817AEEFD8AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971860   (982901) от 05.01.2016
+
+VA - Итоговый Record Super Chart 2015 (27.12.2015) [MP3|128-320 кб/с] <Dance, Club House, Electro House, Drum & Bass, Trap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982901.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Disciples - How Deep Is Your Love (Extende [05:57]
+002. Major Lazer feat. MO & DJ Snake - Lean On [02:27]
+003. Martin Solveig - +1 [05:09]
+004. Galantis - Runaway (U & I) [03:45](   Читать дальше...   )Жанр: Dance, Club House, Electro House, Drum & Bass, TrapПродолжительность: 09:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F32955194F0E1E81012128936AF9B286A1F88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972587   (981998) от 06.01.2016
 
 VA - Secret Massive Presets Control (2016) [MP3|212-320 кб/с] <Club, Bigroom, Future House, Progressive>
@@ -6,7 +180,7 @@ VA - Secret Massive Presets Control (2016) [MP3|212-320 кб/с] <Club, Bigroom,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981998.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Danger Club Music Christmas (2016) [MP3|264-320 кб/с] <Future House, Big
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981990.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981920.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - Russian Club Best Of Music (2016) [MP3|320 кб/с] <Dance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981854.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981731.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - не Громкие новинки недели 53 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981096.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Полтинник самых - самых (2020) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980808.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - 20 Soundtrack Hits of the ‘90s (2015) [MP3|320 кб/с] <Disco, Jazz, Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980692.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - Зимний Hit-Mix (2016) [MP3|256-320 кб/с] <Pop, Dance, Electro Hous
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980684.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - (OST) Scarface Лицо Со Шрамом (1983) [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980682.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ VA - (OST) Люди в Черном / Men in Black (1997) [MP3|320 кб/с]
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980174.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ VA - Итоговый Независимый Хит–Парад - «Чарто�
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979992.jpg" />
 </div>
 
 
@@ -360,7 +534,7 @@ VA - Громкие новинки Января Vol 2 (2020) [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979615.jpg" />
 </div>
 
 
@@ -389,7 +563,7 @@ VA - Road, Darkness & Music (2016) [MP3|320 кб/с] <House, G-House,  Progressi
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979200.jpg" />
 </div>
 
 
@@ -418,7 +592,7 @@ VA - 100x Winter 2015 (5CD) (2016) [MP3|320 кб/с] <Club , Dance , House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979140.jpg" />
 </div>
 
 
@@ -447,7 +621,7 @@ VA - Big Workout Hits 2016 - 40 Essential Fitness And Workout Hits (2016) [MP3|3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979138.jpg" />
 </div>
 
 
@@ -476,7 +650,7 @@ VA - Dance Tropic (2016) [MP3|320 кб/с] <Dance, Club, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978163.jpg" />
 </div>
 
 
@@ -505,7 +679,7 @@ VA - Хиты на KISS FM. ТОП 40 (2016) [MP3|320 кб/с] <Club, Dance, Rem
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977993.jpg" />
 </div>
 
 
@@ -534,7 +708,7 @@ VA - Модный Зимний Выпуск Зарубежный (2013) [MP3|256
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977909.jpg" />
 </div>
 
 
@@ -569,7 +743,7 @@ VA - Новинки радио Maximum 2011 (2011) [MP3|192-320 kbps]<Pop-rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977759.jpg" />
 </div>
 
 
@@ -580,186 +754,6 @@ VA - Новинки радио Maximum 2011 (2011) [MP3|192-320 kbps]<Pop-rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6917D62F3B8670E5FBCCEF0C1CE908F5C3A604CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974491   (976937) от 11.01.2016
-
-VA - 50 Modern Club Tracks Party Beats (2016) [MP3|320 кб/с] <Funky, Club House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VINAI & Harrison - Sit Down (Extended Mix) [03:42]
-02. Giorno - The Floor (Mainfloor Edit) [03:12]
-03. The Squatters, Little Nikki - Rude Boy (Extended Mix) [04:23]
-04. Criminal Vibes Ft Kilian - Pump It Up [04:01](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2695D58972A3DBC22D0B544939C2C06A68E8D0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356845   (976863) от 01.02.2020
-
-VA - The Official UK Top 40 Singles Chart 31.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Before You Go
-02. The Weeknd - Blinding Lights
-03. Roddy Ricch - The Box
-04. Eminem - Godzilla(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580529C2F4FE64B5788F73AC08F94A2124C215F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356773   (976766) от 01.02.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 31.01.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SAINt JHN - Roses (Imanbek Remix) 2:56
-02. Billie Eilish - Everything I Wanted 4:05
-03. Rompasso - Paradise 2:51
-04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B09B65EB5F8D32F5A143D98AC3725EC869438B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614551   (976615) от 09.02.2013
-
-VA - Cубботний TWIST (2013) [MP3|320 кб/с]<Twist>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Константин Беляев - Гимн холостяков
- 02.Lana Bittencourt - La Lecon de Twist
- 03.Theo Schumann Combo - Wer war gestern bei Dir
- 04.Nora Nova - Maenner Gibts Wie Sand Am Meer
- 05.Ola & The Janglers - Reelin And Rockin
- 06.Fredy Brock & Die Twist Makers - Boogie Woogie Twist
- 07.Крекерс - Субботний Твист
- 08.Жанна Агузарова - От Москвы до Ленинграда
- 09.Britta Martell & Tanzorchester Gerhard Narholz - Ich bin allein
- 10.Korda Gyorgy - Hippy, Hippy, Shake(   Читать дальше...   )Жанр: TwistПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC13363BDF0775DEF23D6E0FEAD5D91A800BCB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356707   (976573) от 01.02.2020
-
-VA - Night Dreams (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Relax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Nimerfro - My Heart Won't Move On - Birds in the Trap Mix
-02. Curtis McLaw - Magic Woman
-03. Burning Lipps - Near or Far - Erotic Beach Love Mix
-04. Barry White - I've Found Someone(   Читать дальше...   )Жанр: Instrumental, Easy listening, RelaxПродолжительность: 04:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C06BE20BF7E59347725186FCCBC9BD6EEB488E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356882   (976177) от 01.02.2020
-
-VA - Back To The 90s: Greatest Hits (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976177.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Avril Lavigne - Sk8er Boi
-002. Deep Dish - Dreams
-003. Nirvana - All Apologies
-004. Lenny Kravitz - Are You Gonna Go My Way(   Читать дальше...   )Жанр: Pop, Rock, RnB, AlternativeПродолжительность: 07:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7441871649FBCE3A791711CEC5E8AA2813D19C
 ```
 
 https://mybot314.ru/tekegram_catalog/

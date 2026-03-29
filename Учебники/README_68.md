@@ -1,3 +1,55 @@
+###  Публикация: 1176298   (372025) от 21.10.2017
+
+В.А. Харитонов | Строительство магистрального трубопровода нефти и газа (2008) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Магистральные трубопроводы являются одним из наиболее экономичных и рациональных транспортных средств нефти, а в случае перемещения газообразных сред, если исключить возможность перевоза газа в сжиженном состоянии цистернами, - наиболее безопасным и рациональным видом транспорта. Также это один из самых капитало- и металлоемких видов транспорта с высоким уровнем (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454636267511F38FDD24D93720D3AEB8DA6A852E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176417   (372022) от 21.10.2017
+
+Ф.С. Сафуанов, Е.В. Макушкин | Аффект: практика судебной психолого-психиатрической экспертизы (2016) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372022.jpg" />
+</div>
+
+
+###  Подробнее
+
+В хрестоматии представлены тексты известных судебных психиатров и психологов, посвященные проблеме определения аффекта у обвиняемого в практике судебной экспертизы. Освещена история становления уголовно-релевантного понятия аффекта. Приведены представления об аффекте в общей психологии. Изложены современные судебно-психологические экспертные критерии диагностики (   Читать дальше...   )Жанр: Психология, ЮриспруденцияФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE35E75CF9C6C6E277A137251B9C1FC3AA98A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327659   (371999) от 26.09.2019
 
 А.Е. Айзенцон | Физика. Учебник и практикум (2018) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371999.jpg" />
+  <img src="Z:/picture/008/save_picture_371999.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371989.jpg" />
+  <img src="Z:/picture/008/save_picture_371989.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371921.jpg" />
+  <img src="Z:/picture/008/save_picture_371921.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371461.jpg" />
+  <img src="Z:/picture/008/save_picture_371461.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370430.jpg" />
+  <img src="Z:/picture/008/save_picture_370430.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369517.jpg" />
+  <img src="Z:/picture/008/save_picture_369517.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368211.jpg" />
+  <img src="Z:/picture/008/save_picture_368211.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368004.jpg" />
+  <img src="Z:/picture/008/save_picture_368004.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367953.jpg" />
+  <img src="Z:/picture/008/save_picture_367953.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367906.jpg" />
+  <img src="Z:/picture/008/save_picture_367906.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367885.jpg" />
+  <img src="Z:/picture/008/save_picture_367885.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367466.jpg" />
+  <img src="Z:/picture/008/save_picture_367466.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367465.jpg" />
+  <img src="Z:/picture/008/save_picture_367465.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367248.jpg" />
+  <img src="Z:/picture/008/save_picture_367248.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367245.jpg" />
+  <img src="Z:/picture/008/save_picture_367245.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365837.jpg" />
+  <img src="Z:/picture/008/save_picture_365837.jpg" />
 </div>
 
 
@@ -428,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365665.jpg" />
+  <img src="Z:/picture/008/save_picture_365665.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365656.jpg" />
+  <img src="Z:/picture/008/save_picture_365656.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365641.jpg" />
+  <img src="Z:/picture/008/save_picture_365641.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365531.jpg" />
+  <img src="Z:/picture/008/save_picture_365531.jpg" />
 </div>
 
 
@@ -533,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365442.jpg" />
+  <img src="Z:/picture/008/save_picture_365442.jpg" />
 </div>
 
 
@@ -559,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365168.jpg" />
+  <img src="Z:/picture/008/save_picture_365168.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365031.jpg" />
+  <img src="Z:/picture/008/save_picture_365031.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363273.jpg" />
+  <img src="Z:/picture/008/save_picture_363273.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD5AF7F781A08B675990C272E232C3601C1D80D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255488   (363266) от 18.10.2018
-
-Р.Ю. Царев | Алгоритмы и структуры данных (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены структуры и алгоритмы, которые являются основой современной методологии разработки программ. Изложено детальное описание и анализ основных алгоритмов обработки данных: сортировка данных, поиск образа в строке, алгоритмы обработки графов.
-Предназначено для бакалавров направления 231000.62 «Программная инженерия» и преподавателей дисциплины «Алгоритмы и (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF75D21726EBCDBA0A9C35F1449367E1D7CF29CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177602   (363172) от 25.10.2017
-
-В.А. Кудрявцев (ред.) | Основы эксплуатационной работы железных дорог (2005) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены основы управления перевозками на железнодорожном транспорте. Даны понятия устройства и технологии работы станций и узлов, принципов организации вагонопотоков, графика движения, плана формирования поездов, пропускной способности участков, технического нормирования и других форм управления движениемЖанр: ТранспортФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7E408E766C725B8B72B9C58D50877507A2FEB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

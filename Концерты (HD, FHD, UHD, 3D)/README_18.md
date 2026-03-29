@@ -1,3 +1,91 @@
+###  Публикация: 1031865   (645459) от 07.07.2016
+
+The Doobie Brothers - Live at Wolf Trap (2013) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_645459.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Doobie Brothers американская музыкальная группа, которая начиная с 1970 года играла калифорнийский поп-рок в духе The Beach Boys. К концу 1970-х годов, когда вышли их наиболее популярные записи во главе с бестселлером «What a Fool Believes» (премия «Грэмми» за лучшую песню 1979 года), от рок-музыки в их записях не осталось и следа. The Doobie Brothers продолжали (   Читать дальше...   )01. Rockin’ Down The Highway
+02. Jesus Is Just Alright
+03. Dangerous
+04. Another Park, Another Sunday(   Читать дальше...   )Жанр: Rock, Country Rock, Pop RockПеревод: Отсутствует / Не требуетсяПродолжительность: 02:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BF992E4CEB75145521A5F9D341997023FC842E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541527   (645032) от 03.04.2022
+
+Квартирник у Маргулиса. ST (02.04.2022) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_645032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александра Степанов, более известный под псевдонимом ST, стал увлекаться музыкой еще в подростковом возрасте: уже в 15 лет он записал свой первый трек, в 2006 его творчество привлекло внимание Серёги, в 2007 стал сотрудничать с первым в России хип-хоп агентством, а спустя год выпустил свой дебютный альбом «Сто из ста» и принял участие в «Битве за респект». Это принесло (   Читать дальше...   )00:00:05 Время
+00:05:51 Лопасти
+00:11:29 Пацаны
+00:17:26 Признание(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58B308D50FC2105476B0E6A91CD2EF07034AC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292110   (642821) от 31.03.2019
+
+Dream Theater - Live at Budokan (2004/2011) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Dream Theater в Nippon Budokan Hall 26 апреля 2004 года (Токио, Япония).
+Blu Ray выпущен 18 октября 2011, если верить вики.1. "As I Am" – 8:34
+2. "This Dying Soul" – 12:12
+3. "Beyond This Life" – 19:34
+4. "Hollow Years" – 9:19(   Читать дальше...   )Производство: Eagle Rock EntertainmentЖанр: ProgressiveРежиссер: Mike PortnoyПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B231A39F663123EE65689992A1FA4211D2929E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 678152   (641810) от 17.07.2013
 
 Кубана 2012 / Kubana 2012 (2013) [H.264] HDRip
@@ -6,7 +94,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641810.jpg" />
+  <img src="Z:/picture/005/save_picture_641810.jpg" />
 </div>
 
 
@@ -35,7 +123,7 @@ The Rolling Stones - The Stones In The Park (1969/2012) [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641658.jpg" />
+  <img src="Z:/picture/008/save_picture_641658.jpg" />
 </div>
 
 
@@ -64,7 +152,7 @@ Judas Priest - Epitaph (2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_638022.jpg" />
+  <img src="Z:/picture/005/save_picture_638022.jpg" />
 </div>
 
 
@@ -90,7 +178,7 @@ Whitesnake:  "Live In The Still Of The Night" (MTV-HD) (2004) HDTV 1080i [H.264]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_636690.jpg" />
+  <img src="Z:/picture/005/save_picture_636690.jpg" />
 </div>
 
 
@@ -124,7 +212,7 @@ Burt Bacharach - A Life In Song (2016) BDRip [H.264/1080i-LQ] <Pop, R&B, Film Mu
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636030.jpg" />
+  <img src="Z:/picture/008/save_picture_636030.jpg" />
 </div>
 
 
@@ -154,7 +242,7 @@ Motorhead - Clean Your Clock (Live in Munich 2015) (2016) BDRemux [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635934.jpg" />
+  <img src="Z:/picture/008/save_picture_635934.jpg" />
 </div>
 
 
@@ -180,7 +268,7 @@ Whitesnake - Made In Japan (2011/2013) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_635912.jpg" />
+  <img src="Z:/picture/005/save_picture_635912.jpg" />
 </div>
 
 
@@ -206,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635726.jpg" />
+  <img src="Z:/picture/008/save_picture_635726.jpg" />
 </div>
 
 
@@ -234,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635284.jpg" />
+  <img src="Z:/picture/008/save_picture_635284.jpg" />
 </div>
 
 
@@ -263,7 +351,7 @@ Motorhead - Clean Your Clock (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634136.jpg" />
+  <img src="Z:/picture/008/save_picture_634136.jpg" />
 </div>
 
 
@@ -289,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631535.jpg" />
+  <img src="Z:/picture/008/save_picture_631535.jpg" />
 </div>
 
 
@@ -318,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629883.jpg" />
+  <img src="Z:/picture/008/save_picture_629883.jpg" />
 </div>
 
 
@@ -344,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627956.jpg" />
+  <img src="Z:/picture/008/save_picture_627956.jpg" />
 </div>
 
 
@@ -370,7 +458,7 @@ Slash Featuring Myles Kennedy and The Conspirators - Live At The Roxy  (2014) BD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625682.jpg" />
+  <img src="Z:/picture/008/save_picture_625682.jpg" />
 </div>
 
 
@@ -399,7 +487,7 @@ Slipknot - Rock am Ring (2015) HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625426.jpg" />
+  <img src="Z:/picture/008/save_picture_625426.jpg" />
 </div>
 
 
@@ -425,7 +513,7 @@ Dream Theater - Live At Budokan (2011) Blu-Ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623550.jpg" />
+  <img src="Z:/picture/008/save_picture_623550.jpg" />
 </div>
 
 
@@ -454,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623513.jpg" />
+  <img src="Z:/picture/008/save_picture_623513.jpg" />
 </div>
 
 
@@ -480,7 +568,7 @@ Rihanna - Good Girl Gone Bad Live (2008) Blu-Ray [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623461.jpg" />
+  <img src="Z:/picture/008/save_picture_623461.jpg" />
 </div>
 
 
@@ -506,7 +594,7 @@ Jimi Hendrix: Jimi Plays Berkeley (2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_618538.jpg" />
+  <img src="Z:/picture/005/save_picture_618538.jpg" />
 </div>
 
 
@@ -532,7 +620,7 @@ Duran Duran - A Diamond In the Mind (2011) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_618337.jpg" />
+  <img src="Z:/picture/005/save_picture_618337.jpg" />
 </div>
 
 
@@ -571,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618302.jpg" />
+  <img src="Z:/picture/008/save_picture_618302.jpg" />
 </div>
 
 
@@ -600,7 +688,7 @@ In Flames - Rock Am Ring (2015) HDTVRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617902.jpg" />
+  <img src="Z:/picture/008/save_picture_617902.jpg" />
 </div>
 
 
@@ -629,7 +717,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617507.jpg" />
+  <img src="Z:/picture/008/save_picture_617507.jpg" />
 </div>
 
 
@@ -644,93 +732,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86F85A33BB3E4F9D6F4448D5F6608B1CF3E261E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523586   (616471) от 16.07.2012
-
-Robert Plant & The Band of Joy: Live from the Artists Den (2011) [1080i] Blu-Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616471.jpg" />
-</div>
-
-
-###  Подробнее
-
-A rare snowy day in Nashville, Tennessee set the stage for an even rarer event – an intimate concert by rock icon Robert Plant at the War Memorial Auditorium. Performing with his new, Grammy-nominated group aptly titled the Band of Joy – Plant played both Led Zeppelin classics and new songs that continue to have an impact on the music scene today.....01. Black Dog
-02. Angel Dance
-03. Houses Of The Holy
-04. House Of Cards
-05. Cindy, I'll Marry You Someday
-06. Satan Your Kingdom Must Come Down
-07. Somewhere Trouble Don't Go
-08. Tangerine
-09. A Satisfied Mind
-10. Move Up(   Читать дальше...   )Жанр: RockФормат: BDMVПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295802   (615135) от 15.04.2019
-
-Квартирник НТВ у Маргулиса. Леприконсы (13.04.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615135.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очередном выпуске в гости к Евгению Маргулису пришла известная белорусская поп-панк-группа «Леприконсы». В российские хит-парады группа ворвалась в конце 90-х с песней «Хали-гали, паратрупер», а уже потом вышли «Девчонки полюбили не меня», «Тополя» и другие. В уютной обстановке участники группы поделились воспоминаниями из творческой жизни.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B604760C8D8D5B3345ED4B710EAE87B5FF2869E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230586   (614048) от 13.06.2018
-
-Большой праздничный концерт к Дню России. Трансляция с Красной площади (2018) HDTV [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Праздничный концерт, посвящённый Дню России, прошедший 12 июня на Красной Площади. В преддверии Чемпионата Мира по футболу, вы увидите короткие видеосюжеты из городов, в коротых пройдут матчи. А также в рубрике "Мы Россия" будет рассказано о жителях нашей необъятной страны.Жанр: ТВ-шоуСубтитры: Russian Teletext SubtitleПродолжительность: 01:16:15 + 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE3270E5419E2CC059F8FD7D17CC1CF9B676881
 ```
 
 https://mybot314.ru/tekegram_catalog/

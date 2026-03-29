@@ -1,3 +1,31 @@
+###  Публикация: 259357   (333114) от 18.11.2010
+
+Видеостудия ТГУ | Нейрон и память. Концепция памяти в системном подходе. [2009] WEBRip
+
+>>Обучающие видеоматериалы
+>>Другие видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нейрон и память. Часть 1. Концепция памяти в системном подходе.
+Открытая лекция из цикла - Нейрон и память - посвященная нейронным механизмам функционирования памяти.
+Современные представления в науке о том как происходит запоминание, как формируется след памяти, который будет использован в будущем, за какие функции отвечает мозг, о приоритетных  направлениях развития когнитивных наук и эволюции в представлениях и подходах к изучению мозга и памяти в частности.Жанр: ЛекцияФормат: AVIПродолжительность: 00:34:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:488BD6C6E222C744E0E84B675FBC7A328E69F857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956175   (329961) от 14.11.2015
 
 Иван Чурсин | Онлайн-коучинг: Суперпамять (2013) WEB-DL [H.264]
@@ -6,7 +34,7 @@
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329961.jpg" />
+  <img src="Z:/picture/008/save_picture_329961.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329955.jpg" />
+  <img src="Z:/picture/008/save_picture_329955.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Sova Film | Дышите свободно. Перкуссионный масса
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327588.jpg" />
+  <img src="Z:/picture/008/save_picture_327588.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304310.jpg" />
+  <img src="Z:/picture/008/save_picture_304310.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304299.jpg" />
+  <img src="Z:/picture/008/save_picture_304299.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298462.jpg" />
+  <img src="Z:/picture/008/save_picture_298462.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294740.jpg" />
+  <img src="Z:/picture/008/save_picture_294740.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290890.jpg" />
+  <img src="Z:/picture/008/save_picture_290890.jpg" />
 </div>
 
 
@@ -223,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290541.jpg" />
+  <img src="Z:/picture/008/save_picture_290541.jpg" />
 </div>
 
 
@@ -249,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287578.jpg" />
+  <img src="Z:/picture/008/save_picture_287578.jpg" />
 </div>
 
 
@@ -275,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287214.jpg" />
+  <img src="Z:/picture/008/save_picture_287214.jpg" />
 </div>
 
 
@@ -302,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283528.jpg" />
+  <img src="Z:/picture/008/save_picture_283528.jpg" />
 </div>
 
 
@@ -330,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278912.jpg" />
+  <img src="Z:/picture/008/save_picture_278912.jpg" />
 </div>
 
 
@@ -357,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277505.jpg" />
+  <img src="Z:/picture/008/save_picture_277505.jpg" />
 </div>
 
 
@@ -386,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274232.jpg" />
+  <img src="Z:/picture/008/save_picture_274232.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257078.jpg" />
+  <img src="Z:/picture/005/save_picture_257078.jpg" />
 </div>
 
 
@@ -440,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256585.jpg" />
+  <img src="Z:/picture/005/save_picture_256585.jpg" />
 </div>
 
 
@@ -466,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256396.jpg" />
+  <img src="Z:/picture/005/save_picture_256396.jpg" />
 </div>
 
 
@@ -492,7 +520,7 @@ Convert Monster | Тренинг по тестированию посадочн�
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255111.jpg" />
+  <img src="Z:/picture/005/save_picture_255111.jpg" />
 </div>
 
 
@@ -518,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254444.jpg" />
+  <img src="Z:/picture/005/save_picture_254444.jpg" />
 </div>
 
 
@@ -547,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252784.jpg" />
+  <img src="Z:/picture/005/save_picture_252784.jpg" />
 </div>
 
 
@@ -573,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251956.jpg" />
+  <img src="Z:/picture/004/save_picture_251956.jpg" />
 </div>
 
 
@@ -602,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251918.jpg" />
+  <img src="Z:/picture/004/save_picture_251918.jpg" />
 </div>
 
 
@@ -630,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250057.jpg" />
+  <img src="Z:/picture/004/save_picture_250057.jpg" />
 </div>
 
 
@@ -659,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Другие видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249967.jpg" />
+  <img src="Z:/picture/004/save_picture_249967.jpg" />
 </div>
 
 
@@ -672,32 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEC0719D91FC43015F04ED5A1703939BE8DBF319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564599   (249710) от 19.07.2022
-
-Bandband, Мария Галина и др. | Литературная мастерская. Как написать роман (2022) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Другие видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс о том, как написать свой первый в жизни роман. Пройти этот путь под руководством опытных наставников и редакторов, которые вели авторов в ведущих российских издательствах. На курсе мы напишем первую главу романа, шаг за шагом создадим подробную карту вашего произведения, выстроим его архитектуру, где главы будут соединены изящными арками, а сцены – поддерживаться (   Читать дальше...   )Производство: BandbandЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 32:34:45Реклама: Присутствуют сторонние наложения и вставки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEE6EEB8A95AF6DF8C4D10FE92773C98A16F973
 ```
 
 https://mybot314.ru/tekegram_catalog/

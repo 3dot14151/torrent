@@ -6,7 +6,7 @@ kairo — 11 альбомов (2010-2013) Touhou Vocal /Doujin/ [FLAC|Lossless|t
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539626.jpg" />
+  <img src="Z:/picture/008/save_picture_539626.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Unknown-Dimension — 15 альбомов (2009-2019) /Doujin/ [FLAC|Lossless|tr
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539618.jpg" />
+  <img src="Z:/picture/008/save_picture_539618.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ R-note — 37 альбомов (2012-2019) Touhou Vocal /Doujin/ [FLAC|Lossless|
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539494.jpg" />
+  <img src="Z:/picture/008/save_picture_539494.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ ShibayanRecords — 23 альбома (2008-2019) Touhou Vocal, Instrumental /Do
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539485.jpg" />
+  <img src="Z:/picture/008/save_picture_539485.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dir En Grey - Phalaris (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539183.jpg" />
+  <img src="Z:/picture/008/save_picture_539183.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Godzilla Snacks - There Be Monsters (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539178.jpg" />
+  <img src="Z:/picture/008/save_picture_539178.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ fromadistance - 4 альбома (2009-2013) [FLAC|Lossless] <Touhou, Instrument
 >>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536062.jpg" />
+  <img src="Z:/picture/008/save_picture_536062.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ Hate Beyond - Perpetual Pain (2003) [FLAC|Lossless|image + .cue] <Thrash, Death 
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524324.jpg" />
+  <img src="Z:/picture/008/save_picture_524324.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ Hate Beyond - Ruthless Aggression (2018) [FLAC|Lossless|image + .cue] <Thrash, D
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523379.jpg" />
+  <img src="Z:/picture/008/save_picture_523379.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Remember - Route back home (2015) [FLAC|Lossless|WEB-DL]<Ambient, Cyberpunk, Dre
 >>Other Asian (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521465.jpg" />
+  <img src="Z:/picture/008/save_picture_521465.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Huang Jiang Qin - 12 albums (2004-2009) [MP3|320 кб/с]<Instrumental, Ethnic, 
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514223.jpg" />
+  <img src="Z:/picture/008/save_picture_514223.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ coldrain - Nonnegative (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, P
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513620.jpg" />
+  <img src="Z:/picture/008/save_picture_513620.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Nemophila - Revive (U.S. Version) (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcor
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511524.jpg" />
+  <img src="Z:/picture/008/save_picture_511524.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Sojiro - Дискография /20 альбомов/ (1987 - 2009) [MP3|256,320
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510738.jpg" />
+  <img src="Z:/picture/008/save_picture_510738.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Four Get Me A Nots - Astrea (2015) [OGG| 488-540 кб/с]<JPop, Pop Punk Rock>
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509885.jpg" />
+  <img src="Z:/picture/008/save_picture_509885.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Xiao Ping - GOD Of Guitar (2009) [MP3|160 кб/с]<Instrumental, Guitar>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509695.jpg" />
+  <img src="Z:/picture/008/save_picture_509695.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Meiko Kaji - Aitsu no Suki Sona Blues (2011) [MP3|320 кб/с]<J-POP, Blues, Blu
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507451.jpg" />
+  <img src="Z:/picture/008/save_picture_507451.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ coldrain - Nonnegative (2022) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, M
 >>Asian Rock, Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507128.jpg" />
+  <img src="Z:/picture/008/save_picture_507128.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503264.jpg" />
+  <img src="Z:/picture/008/save_picture_503264.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Jeon Su Yeon - Sentimental Green (2005) [MP3|320 kbps]<NewAge>
 >>Other Asian
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502801.jpg" />
+  <img src="Z:/picture/008/save_picture_502801.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ VA - Face To Face (vol. I-III) (2006-2009) [MP3|320 кб/с]<Instrumental, Ethni
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502445.jpg" />
+  <img src="Z:/picture/008/save_picture_502445.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Seira Kagami - 4 альбома, 2 сингла (2007-2010) [MP3|192-320 кб/с
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502354.jpg" />
+  <img src="Z:/picture/008/save_picture_502354.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Pacific Moon. Compilation (27 albums) (1999-2010) [MP3|320 кб/с]<Ethnic,
 >>Asian Traditional, Ethnic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501949.jpg" />
+  <img src="Z:/picture/008/save_picture_501949.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ VA - The Rough Guide To The Music Of Japan (2008) [APE|Lossless] <Folk, World, C
 >>Asian Traditional, Ethnic (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501939.jpg" />
+  <img src="Z:/picture/008/save_picture_501939.jpg" />
 </div>
 
 
@@ -718,7 +718,7 @@ Aki Toyosaki - 3 альбома, 21 сингл  (2009-2012) [MP3|320 кб/с]<J-
 >>Asian Pop
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500142.jpg" />
+  <img src="Z:/picture/008/save_picture_500142.jpg" />
 </div>
 
 
@@ -744,7 +744,7 @@ Pazzo Fanfano Di Musica - Pazzo Fanfano Di Musica (1989) Reissue /2013, King Rec
 >>Asian Rock, Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499163.jpg" />
+  <img src="Z:/picture/008/save_picture_499163.jpg" />
 </div>
 
 

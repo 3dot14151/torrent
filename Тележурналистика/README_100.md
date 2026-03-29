@@ -1,3 +1,139 @@
+###  Публикация: 1683282   (128687) от 10.12.2023
+
+Чудо техники с Сергеем Малозёмовым (10.12.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бодрый подъем! Будильники: как с их помощью вставь вовремя, но не навредить здоровью? Стоит ли покупать образцы, которые будят светом?
+ Насколько эффективны домашние тренажеры — ручной велосипед, виброплатформа и устройство 5-в-1? Можно ли с их помощью реально что-то накачать или сбросить вес?
+ Портативная кофеварка, которая сделает ароматный напиток и в машине, и (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B8AC9577B865E44631A2FE29A30F5E9CBF9EDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684659   (127592) от 16.12.2023
+
+Живая еда с Сергеем Малозёмовым (16.12.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компоты: лучше ли они для здоровья, чем соки и газировки? Кто и зачем добавляет в них манку и превращает в соус? Чем могут быть опасны компотные смеси из сухофруктов и сколько сахара в домашнем компоте от бабушки?
+ Что готовят из кокосов на Шри-Ланке? Почему в России так часто встречаются негодные орехи? Как легко их расколоть и так ли все кокосовое хорошо для здоровья? (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50182F3AE426A1B0FC1C24A69A36FE9D4601533F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684985   (127385) от 17.12.2023
+
+Следствие вели... (17.12.2023) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127385.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Немецкие часы». Серия загадочных убийств девушек в Калининграде в 1991 году.
+1991 год, Калининград. На пожарной лестнице жилого дома школьник обнаружил убитой незнакомую девушку. Вскоре произошло новое подобное убийство. Сыщики начали разрабатывать версию о том, что в городе орудует маньяк. Какую роль в этом деле сыграли видеомагнитофон, лосины и коммерческий ларек? (   Читать дальше...   )Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF5F6FA1E92E10A9879FC5BC5F6E222C90416503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684909   (127361) от 17.12.2023
+
+Чудо техники с Сергеем Малозёмовым (17.12.2023) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какие спальные аксессуары — пододеяльник для ленивых, кровать-трансформер и гусь-обнимусь — делают сон крепким и комфортным? Есть ли особенные ритуалы и секреты у врачей сомнологов?
+ Стоматология по-новому: что за новации помогают врачам лечить, а пациентам не бояться, и кому делать процедуры под наркозом небезопасно?
+ Под зорким взглядом автора и ведущего программы (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D612E63091445E8A05359426E7B306C118020E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534866   (127171) от 19.12.2023
+
+"Союзмультфильм". Только для взрослых (03.03.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему взрослые смотрели советские мультфильмы c не меньшим, а то и с большим интересом и удовольствием, чем дети? Какие дополнительные смыслы зашифровывали в своих шедеврах мастера советской мультипликации? На эти и другие вопросы в документальном фильме отвечают создатели самых известных и любимых советских мультипликационных фильмов: "Крокодил Гена", (   Читать дальше...   )Телекомпания: Россия, ТВЦЖанр: ДокументальныйПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D7D7F9A99C20EE77DAAA833EA0BE1FE1B5FEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686633   (126470) от 23.12.2023
 
 Живая еда с Сергеем Малозёмовым (23.12.2023) WEBRip [H.264/720p]
@@ -6,7 +142,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126470.jpg" />
 </div>
 
 
@@ -33,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126309.jpg" />
 </div>
 
 
@@ -60,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126276.jpg" />
 </div>
 
 
@@ -86,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126233.jpg" />
 </div>
 
 
@@ -114,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126129.jpg" />
 </div>
 
 
@@ -140,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125881.jpg" />
 </div>
 
 
@@ -169,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125019.jpg" />
 </div>
 
 
@@ -197,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124427.jpg" />
 </div>
 
 
@@ -224,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120629.jpg" />
 </div>
 
 
@@ -252,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120503.jpg" />
 </div>
 
 
@@ -278,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120470.jpg" />
 </div>
 
 
@@ -305,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119469.jpg" />
 </div>
 
 
@@ -334,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119102.jpg" />
 </div>
 
 
@@ -362,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118267.jpg" />
 </div>
 
 
@@ -388,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118246.jpg" />
 </div>
 
 
@@ -414,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118125.jpg" />
 </div>
 
 
@@ -441,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117053.jpg" />
 </div>
 
 
@@ -468,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116863.jpg" />
 </div>
 
 
@@ -495,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116426.jpg" />
 </div>
 
 
@@ -521,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116052.jpg" />
 </div>
 
 
@@ -547,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115826.jpg" />
 </div>
 
 
@@ -560,143 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4905217290CFE5B1BA2BDC8C2DEF73683CD2AB5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702536   (115677) от 25.02.2024
-
-Чудо техники с Сергеем Малозёмовым (24.02.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что привлекает людей в микродомах? Насколько они финансово выгодны и не вредят ли здоровью?
- Горе от ума! Как так выходит, что некоторые «умные» весы с анализом состава тела обманывают пользователей? Стоит ли верить их показателям? Чем различаются модели разных ценовых категорий, и какая начинка скрывается за большой стоимостью?
- Обогреватель со встроенным увлажнителем (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DF5A55FC191F72C4DB9033002BB5F982413718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703607   (114887) от 01.03.2024
-
-Невидимая война (2023) WEBRip [H.264/1080p] (серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая серия – это история об актуальной киберугрозе, которая рассказана в своём жанре: триллер, анимация, драма, экшен и сай-фай. Игровой сюжет переплетается с документальными кадрами – речью спикеров: «белых» хакеров и других экспертов по кибербезопасности, которые подсказывают, как не стать мишенью в киберпространстве. Цель сериала рассказать о том, что может (   Читать дальше...   )Производство: Россия / Продюсерский центр «Инстанция»Жанр: документальный, кибербезопасностьРежиссер: Тата Макаревич, Вячеслав ПоповУчастники: Дарья Белодед, Софья Калинина, Артём Бочаров, Лев Сигаев, Юрий Могила, Дмитрий Жиров, Владислав Чербаев, Алёна Зотова, Лада Наумкина, Роман Костамаров и др.Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:28:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73BD8F3403B673B1A0FC7F7A2ADD28184C0886E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704009   (114636) от 02.03.2024
-
-Живая еда с Сергеем Малозёмовым (02.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кумыс: чем хорош древний напиток из кобыльего молока и есть ли в нем алкоголь? Помогло ли кумысолечение Антону Чехову и стоит ли так лечиться сегодня?
- Как греческое тесто фило готовят на родине и можно ли найти достойное в российских магазинах?
- Соцсети учат плохому: на вредную еду даже смотреть вредно!
- Даже пара банок энергетика в месяц ухудшает сон.(   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C9F0EF8BB600E9D4AED49C8CAA3E209503B88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704281   (114499) от 03.03.2024
-
-Чудо техники с Сергеем Малозёмовым (03.03.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вода, остановись! Как датчики протечек помогают предотвратить потоп? Почему они не всегда срабатывают и стоит ли покупать дорогие умные варианты этих устройств?
- «Кудрявый метод», ботокс и «счастье для волос»: почему салонный уход для волос некоторым противопоказан?
- Чай-машина для создания ароматных горячих напитков, которая умеет и листья молоть, и подбирать нужную (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7665A97021F9E9C9D62F791273BDCD3CAFE65C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704462   (114402) от 04.03.2024
-
-Империя кошек (2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Милый документальный фильм расскажет, почему Россия стала лидером по количеству кошек на душу населения в мире.Производство: Россия / ООО, Телекомпания "Пятница"Жанр: документальныйРежиссер: Егор КлимовичЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CC943E7F1684CB06018A6826845F6B36794B41
 ```
 
 https://mybot314.ru/tekegram_catalog/

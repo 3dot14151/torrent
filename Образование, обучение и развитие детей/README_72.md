@@ -1,3 +1,55 @@
+###  Публикация: 1830672   (205646) от 27.10.2025
+
+А.В. Пёрышкин | Физика. Учебник для 8 класса (2022) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник физики для 8 класса доработан в соответствии с федеральным государственным образовательным стандартом (второго поколения). Издание включает разделы: "Тепловые явления", "Электрические явления", "Электромагнитные явления", "Световые явления", а также дополнительную интересную информацию, лабораторные работы, вопросы (   Читать дальше...   )Жанр: УчебникИздательство: ЭкзаменФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3322D88CB3923B1746656D6B84B09BC660C85DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830689   (205641) от 27.10.2025
+
+И.Л. Касаткина | Репетитор по физике. Для 7-9 классов (2025) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие предназначено для качественной подготовки учащихся 7-9 классов к контрольным работам, Всероссийским проверочным работам (ВПР) и Основному государственному экзамену (ОГЭ). Оно включает в себя теорию по всем разделам курса физики с 7 по 9 классы. В конце каждого раздела даны задания, аналогичные тем, что предлагались на ВПР и прошедших ОГЭ и имеются в Открытом (   Читать дальше...   )Жанр: Учебное пособиеИздательство: ФениксФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39F6655EB8B81AD3A45FA3F40563D43ECFF3A92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655271   (204530) от 25.08.2023
 
 С.В. Громов, Н.А. Родина, В.В. Белага | Физика. Учебник для 9 класса (2022) [PDF]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204530.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203889.jpg" />
+  <img src="Z:/picture/004/save_picture_203889.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203365.jpg" />
+  <img src="Z:/picture/004/save_picture_203365.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202859.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202074.jpg" />
+  <img src="Z:/picture/004/save_picture_202074.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201693.jpg" />
+  <img src="Z:/picture/005/save_picture_201693.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201283.jpg" />
+  <img src="Z:/picture/005/save_picture_201283.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201189.jpg" />
+  <img src="Z:/picture/005/save_picture_201189.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201181.jpg" />
+  <img src="Z:/picture/005/save_picture_201181.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201159.jpg" />
+  <img src="Z:/picture/005/save_picture_201159.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200849.jpg" />
+  <img src="Z:/picture/005/save_picture_200849.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200790.jpg" />
+  <img src="Z:/picture/005/save_picture_200790.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200162.jpg" />
+  <img src="Z:/picture/005/save_picture_200162.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200049.jpg" />
+  <img src="Z:/picture/005/save_picture_200049.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199982.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199907.jpg" />
+  <img src="Z:/picture/005/save_picture_199907.jpg" />
 </div>
 
 
@@ -437,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198337.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197449.jpg" />
 </div>
 
 
@@ -491,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197448.jpg" />
 </div>
 
 
@@ -519,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196838.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195074.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194026.jpg" />
+  <img src="Z:/picture/004/save_picture_194026.jpg" />
 </div>
 
 
@@ -601,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193420.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193033.jpg" />
 </div>
 
 
@@ -639,58 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA3CF523CDDF84BFF4981154AFF90BC53155451E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657024   (193015) от 02.09.2023
-
-Н.Н. Никитин и др. | Сборник задач по геометрии для 6-8 классов (1965) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник предназначен для работы по учебнику «Геометрия» для 6-8 классов Н.Н. Никитина.Жанр: МатематикаИздательство: ПросвещениеФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65F2647EEFA4E6302D8D3A530FD13606181CB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657028   (193014) от 02.09.2023
-
-В.М. Клопский и др. | Геометрия 9-10 классы (1978) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193014.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящем издании объединены учебные пособия по геометрии для IX и X классов. Основной материал предыдущих изданий не изменился. Единственное исключение раздел «Задачи на повторение по курсу IX класса», в котором в связи с удалением нескольких задач незначительно изменилась нумерация. Некоторые сокращения проведены в разделах «Приложения». Для удобства читателя (   Читать дальше...   )Жанр: МатематикаИздательство: ПросвещениеФормат: DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304EF2F8BE271CAA1379F3311A18EB7B88DD32DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

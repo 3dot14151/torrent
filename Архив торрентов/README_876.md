@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848574.jpg" />
+  <img src="Z:/picture/008/save_picture_848574.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WiFiSpoof 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848572.jpg" />
+  <img src="Z:/picture/008/save_picture_848572.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848546.jpg" />
+  <img src="Z:/picture/008/save_picture_848546.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ MKVToolNix 9.0.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848543.jpg" />
+  <img src="Z:/picture/008/save_picture_848543.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VueScan Pro 9.5.43 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848540.jpg" />
+  <img src="Z:/picture/008/save_picture_848540.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Mirillis Action! 1.30.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848532.jpg" />
+  <img src="Z:/picture/008/save_picture_848532.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Jan Amit - Discography 11 Releases + Bonus (2010-2016) [MP3|320 кб/с] <IDM, D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848530.jpg" />
+  <img src="Z:/picture/008/save_picture_848530.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ GOM Player 2.2.80 Build 5243 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848527.jpg" />
+  <img src="Z:/picture/008/save_picture_848527.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - House Vip (10.04.10) [MP3|256/320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848525.jpg" />
+  <img src="Z:/picture/008/save_picture_848525.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - House Vip (11.04.10) [MP3|192-320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848523.jpg" />
+  <img src="Z:/picture/008/save_picture_848523.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ ClickTeam Install Creator Pro 2.0.36 Portable by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848519.jpg" />
+  <img src="Z:/picture/008/save_picture_848519.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848517.jpg" />
+  <img src="Z:/picture/008/save_picture_848517.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848513.jpg" />
+  <img src="Z:/picture/008/save_picture_848513.jpg" />
 </div>
 
 
@@ -368,7 +368,7 @@ TextMate 2 v2.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848503.jpg" />
+  <img src="Z:/picture/008/save_picture_848503.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.10.0.1785 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848502.jpg" />
+  <img src="Z:/picture/008/save_picture_848502.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Music Tag Editor 2 v5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848501.jpg" />
+  <img src="Z:/picture/008/save_picture_848501.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Cisdem Video Converter 5.3..0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848498.jpg" />
+  <img src="Z:/picture/008/save_picture_848498.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ TurboMosaic Pro 3.0.22 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848497.jpg" />
+  <img src="Z:/picture/008/save_picture_848497.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848460.jpg" />
+  <img src="Z:/picture/008/save_picture_848460.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Daum PotPlayer 1.7.661 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848437.jpg" />
+  <img src="Z:/picture/008/save_picture_848437.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Macrium Reflect 7.0.2023 [En/De]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848434.jpg" />
+  <img src="Z:/picture/008/save_picture_848434.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Grids for Instagram 6.0.7 [SN] [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848432.jpg" />
+  <img src="Z:/picture/008/save_picture_848432.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Duplicate File Finder Pro 6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848431.jpg" />
+  <img src="Z:/picture/008/save_picture_848431.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Monster Jinx - ROXO 06 (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Beats
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848429.jpg" />
+  <img src="Z:/picture/008/save_picture_848429.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Screenshot Pro 2 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848426.jpg" />
+  <img src="Z:/picture/008/save_picture_848426.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Vivaldi 3.0.1874.32 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848422.jpg" />
+  <img src="Z:/picture/008/save_picture_848422.jpg" />
 </div>
 
 

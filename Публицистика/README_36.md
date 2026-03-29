@@ -1,3 +1,83 @@
+###  Публикация: 1227874   (641080) от 29.05.2018
+
+О. А. Феофанов | Шпионаж ради бизнеса (1965) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подкуп? Шантаж? Нож в спину сопернику? Пожалуйста! Промышленный шпион к услугам бизнесмена. И небескорыстно, конечно. Он не гнушается ничем: будет рыться в мусорных корзинах конкурента и выслеживать его с любовницей; украдет промышленные секреты и продаст их; скомпрометирует соперника и получит за это гонорар.
+
+Мораль? Этика? В мире, где все измеряется долларом, (   Читать дальше...   )Жанр: История, политология, экономика, журналистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E145F1DCD641AA69E0231859951D4B5FCBA48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293131   (641046) от 01.04.2019
+
+К. Н. Беркова | Вольтер (1931) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_641046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вольтер появился в кипучей атмосфере ломки старого и брожения новых революционных идей. По своему социальному происхождению, по своей изумительной одаренности, по своему боевому темпераменту, он как нельзя более подходил к роли вождя просветительного движения и пропагандиста новых доктрин. „Философия XVIII в., — говорит Тэн, — нуждается в писателе, который всеми (   Читать дальше...   )Жанр: История, философия, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6300748EF941DB54A1DA384E788F494D9583CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033129   (639701) от 10.07.2016
+
+Сэм Харрис | Конец веры. Религия, террор и будущее разума (2011) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта знаменитая книга – блестящий анализ борьбы разума и религии в современном мире. Автор демонстрирует, сколь часто в истории мы отвергали доводы разума в пользу религиозной веры – даже если эта вера порождала лишь зло и бедствия. Предостерегая против вмешательства организованной религии в мировую политику, Харрис, опираясь на доводы нейропсихологии, философии и (   Читать дальше...   )Жанр: Публицистика, обществоФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40CF51230CD6EB60C83EF689F549C37B6698BE26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907581   (637982) от 12.06.2015
 
 Г. С. Окутина | Люди "объекта": очерки и воспоминания (1996) [PDF]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637982.jpg" />
+  <img src="Z:/picture/008/save_picture_637982.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637976.jpg" />
+  <img src="Z:/picture/008/save_picture_637976.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637676.jpg" />
+  <img src="Z:/picture/008/save_picture_637676.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637654.jpg" />
+  <img src="Z:/picture/008/save_picture_637654.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637621.jpg" />
+  <img src="Z:/picture/008/save_picture_637621.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637565.jpg" />
+  <img src="Z:/picture/008/save_picture_637565.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637441.jpg" />
+  <img src="Z:/picture/008/save_picture_637441.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637423.jpg" />
+  <img src="Z:/picture/008/save_picture_637423.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637416.jpg" />
+  <img src="Z:/picture/008/save_picture_637416.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637278.jpg" />
+  <img src="Z:/picture/008/save_picture_637278.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637273.jpg" />
+  <img src="Z:/picture/008/save_picture_637273.jpg" />
 </div>
 
 
@@ -293,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637140.jpg" />
+  <img src="Z:/picture/008/save_picture_637140.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636979.jpg" />
+  <img src="Z:/picture/008/save_picture_636979.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636972.jpg" />
+  <img src="Z:/picture/008/save_picture_636972.jpg" />
 </div>
 
 
@@ -371,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636931.jpg" />
+  <img src="Z:/picture/008/save_picture_636931.jpg" />
 </div>
 
 
@@ -398,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635736.jpg" />
+  <img src="Z:/picture/008/save_picture_635736.jpg" />
 </div>
 
 
@@ -424,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635716.jpg" />
+  <img src="Z:/picture/008/save_picture_635716.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634274.jpg" />
+  <img src="Z:/picture/008/save_picture_634274.jpg" />
 </div>
 
 
@@ -478,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634084.jpg" />
+  <img src="Z:/picture/008/save_picture_634084.jpg" />
 </div>
 
 
@@ -504,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633978.jpg" />
+  <img src="Z:/picture/008/save_picture_633978.jpg" />
 </div>
 
 
@@ -530,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633875.jpg" />
+  <img src="Z:/picture/008/save_picture_633875.jpg" />
 </div>
 
 
@@ -556,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632324.jpg" />
+  <img src="Z:/picture/008/save_picture_632324.jpg" />
 </div>
 
 
@@ -583,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631536.jpg" />
+  <img src="Z:/picture/008/save_picture_631536.jpg" />
 </div>
 
 
@@ -596,87 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:661DCF5FF1B834AA16C3057A5D3D1A9199B3EDBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383682   (631221) от 10.04.2022
-
-В.В.Жириновский | Последний вагон на Север (1995) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обложка с личным автографом Владимира Вольфовича.
-Уникальное третье издание, исправленное и дополненное.
-Это издание  самое большое по содержанию, читается захватывающе и с юмором.
-Последующие издания этой книги значительно сокращены и немного унылы.(   Читать дальше...   )Жанр: Политический, историческийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F7AA66B287D56194C9D12D8F0929BBD0F964DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035107   (630418) от 15.07.2016
-
-Линор Горалик | Полая женщина. Мир Барби изнутри и снаружи (2016) [EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630418.jpg" />
-</div>
-
-
-###  Подробнее
-
-С первых дней своего существования Барби стала восприниматься как социокультурный феномен. В ее игрушечном мире нашли отражение такие проблемы реального общества, как эмансипация, семейные отношения, сексуальные нормы, карьера, политкорректность и многие другие. В ходе жарких споров сторонники и противники куклы, сами того не замечая, создали целую мифологию Барби. (   Читать дальше...   )Жанр: Культурология, публицистикаФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527A6E49DDEE68086EE6AD47FD8BBBFBB5729E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229026   (630078) от 04.06.2018
-
-П. И. Марков | Бизнес на голоде (1975) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630078.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматривается тяжелое продовольственное положение в странах Азии, Африки, Латинской Америки, разоблачается неоколониалистская стратегия империалистических держав, проявляющаяся в использовании голода и нищеты в странах «третьего мира» для осуществления своих экспансионистских планов. Речь идет также о перспективах решения продовольственной проблемы посредством (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B93DBC4B96C9BBBD83432106D0BC6E9EFE40D028
 ```
 
 https://mybot314.ru/tekegram_catalog/

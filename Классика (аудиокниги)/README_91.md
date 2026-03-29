@@ -1,3 +1,114 @@
+###  Публикация: 364906   (39618) от 22.10.2024
+
+Кнут Гамсун | Виктория (2004) [MP3, Авангард Леонтьев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Литературные чтения.
+Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист. Лауреат Нобелевской премии по литературе за 1920 год.
+Роман «Виктория» история о сильной не случившейся любви, где переплелись честь и гордыня, болезнь и смерть. И где любовь осталась единственной, мучительной, но неповторимой ценностью…Жанр: Зарубежная литература, классика, романПродолжительность: 02:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE571F1161153A29C52660E6F64EA285F26959F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364912   (39616) от 22.10.2024
+
+Кнут Гамсун | Рабы любви (2007) [MP3, Александр Бордуков, Алексей Золотницкий]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Союз классика.
+Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист. Лауреат Нобелевской премии по литературе за 1920 год.
+ «Рабы любви» – произведения вдохновенного певца природы и любви, тонкого психолога, мастерски воспроизводящего мир душевных переживаний человека, вот уже более ста лет по-прежнему волнуют и привлекают людские сердца.Жанр: Зарубежная литература, классика, рассказ, новеллаИздательство: Издательский дом «Союз»Продолжительность: 03:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225AB0558EDA5AD53850C20B2355FEF2088D7B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 364910   (39612) от 22.10.2024
+
+Кнут Гамсун | Голод (2004) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XX век. Зарубежная проза.
+Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист. Лауреат Нобелевской премии по литературе 1920 года.
+«Голод» – роман о молодом человеке из провинции, который мечтает стать писателем. Уверенный в собственной гениальности, он предпочитает страдать от нищеты, чем отказаться от амбиций. Больной душой и телом (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Юргис БалтрушайтисИздательство: Студия «АРДИС»Продолжительность: 06:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885527AA6F50E51FE69B06B6DDDB8FE27E564FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756617   (39582) от 22.10.2024
+
+Кнут Гамсун | Плоды земли (2023) [MP3, Сергей Дидок]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист.
+«Плоды земли» – роман, за который он получил Нобелевскую премию по литературе в 1920 году. Роман начинается с того, что в лес приходит человек по имени Исаак, который начинает обустраивать в нём своё новое жильё. Вскоре к нему присоединяется девушка Ингер. Вместе с Исааком они занимаются хозяйством, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Ксения ЖихареваИздательство: ИДДКПродолжительность: 15:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597F9474F8D95537A8834EE130E076A84A768A5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756626   (39580) от 22.10.2024
 
 Кнут Гамсун | Соки земли (2023) [MP3, Андрей Кузнецов]
@@ -6,7 +117,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39580.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39548.jpg" />
 </div>
 
 
@@ -62,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39427.jpg" />
 </div>
 
 
@@ -90,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39426.jpg" />
 </div>
 
 
@@ -118,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39272.jpg" />
 </div>
 
 
@@ -144,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39033.jpg" />
 </div>
 
 
@@ -172,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39024.jpg" />
 </div>
 
 
@@ -200,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39021.jpg" />
 </div>
 
 
@@ -227,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39020.jpg" />
 </div>
 
 
@@ -253,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38837.jpg" />
 </div>
 
 
@@ -281,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38628.jpg" />
 </div>
 
 
@@ -308,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38621.jpg" />
 </div>
 
 
@@ -335,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38008.jpg" />
 </div>
 
 
@@ -362,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37439.jpg" />
 </div>
 
 
@@ -389,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37438.jpg" />
 </div>
 
 
@@ -416,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37429.jpg" />
 </div>
 
 
@@ -443,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37372.jpg" />
 </div>
 
 
@@ -469,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36916.jpg" />
 </div>
 
 
@@ -496,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35897.jpg" />
 </div>
 
 
@@ -525,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35840.jpg" />
 </div>
 
 
@@ -554,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35837.jpg" />
 </div>
 
 
@@ -582,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35374.jpg" />
 </div>
 
 
@@ -594,115 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1351AF42AEE436F8D8791FCB85A3BD61E62912C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763750   (35361) от 03.12.2024
-
-Антон Чехов | Сборник радиопостановок (Часть 1) (2017) [MP3, А. Папанов, А. Миронов, Р. Плятт и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая фраза писателя: «Краткость – сестра таланта», как нельзя более подходит к творчеству самого А.П.Чехова. Одним верным штрихом обозначить характер, метким словом сказать о главном, точно расставить акценты и нарисовать яркую объемную картинку буквально за несколько минут – это работа мастера. Никто так не рассмешит, как Чехов, и никто так не заставит грустить, (   Читать дальше...   )Жанр: Радиопостановка, Классическая прозаИздательство: Театр у микрофонаПродолжительность: 01:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075BE872308396A1145B5DD897734535D7DAC501
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314176   (35267) от 04.12.2024
-
-Ален Рене Лесаж | Похождения Жиль Бласа из Сантильяны (2013) [MP3, Маргарита Иванова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Произведение известного французского писателя Алена Лесажа (1668–1747) по своей структуре восходит к жанру испанского плутовского романа.
-Роман «Похождения Жиль Бласа из Сантильяны» (другое название: «Порочный круг») написан 1715 году. В центре повествования полная приключений жизнь молодого мещанина, которому судьба даровала множество испытаний: он попадает к разбойникам, (   Читать дальше...   )Жанр: Зарубежная литература, классика, плутовской романПеревод: Александр БондаревИздательство: Нигде не купишьПродолжительность: 37:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9545675A7C8BE9A6D837CEE7D6023A2F76152B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314182   (35265) от 04.12.2024
-
-Ален Рене Лесаж | Хромой бес (2006) [MP3, Пётр Маркин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Алмазный фонд» Мировой литературы
-Роман «Хромой бес» (1707), который переведен на многие языки мира, самое известное произведение Алена Рене Лесажа. В нем Лесаж продолжает обличительные традиции французского бытового романа XVII века. Главный герой – бес любострастия Асмодей, заточенный в колбу и вновь обретающий свободу, силой собственного бесовства (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Евгений ГунстИздательство: Студия «Звуковая книга»Продолжительность: 09:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307B9300B08D859D2057B54299C0F890EF44CD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763902   (35253) от 04.12.2024
-
-Антон Чехов | Сборник радиопостановок (Часть 2) (2017) [MP3, В. Гафт, Е. Миронов., Р. Плятт., О. Янковский, Т. Доронина  и др]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35253.jpg" />
-</div>
-
-
-###  Подробнее
-
-— У тебя, извозчик, сердце вымазано дегтем. Ты, братец, никогда не был влюблен, а потому тебе не понять моей психики. Этому дождю не потушить пожара души моей, как пожарной команде не потушить солнца. Чёрт возьми, как я поэтически выражаюсь! Ведь ты, извозчик, не поэт?
-— Никак нет.
-— Ну вот видишь ли…
-Жирков нащупал наконец у себя в кармане портмоне и стал расплачиваться.Жанр: Радиопостановка, Классическая прозаИздательство: Театр у микрофонаПродолжительность: 01:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9EBC2029514DB1C139937FB010200B495EDE181
 ```
 
 https://mybot314.ru/tekegram_catalog/

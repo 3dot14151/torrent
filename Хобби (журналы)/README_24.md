@@ -1,3 +1,82 @@
+###  Публикация: 909548   (627659) от 17.06.2015
+
+Журнал | Furniture & CabinetMaking №232 (июнь 2015) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующееся популярностью издание о работе с деревом (преимущественно на станках) "Furniture & Cabinetmaking" публикует описания новых приспособлений, инструментов и технологий, а также подробные описания и фотографии самостоятельных изделий из дерева и оригинальные идеи для творчества.Жанр: столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04DE91556F4356896FAB66BEEE52AF215696D7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909536   (627632) от 17.06.2015
+
+Журнал | Wood Magazine №233 (июль 2015) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_627632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wood - журнал, посвященный столярному делу. Обзоры материалов, инструментов и технологий, а также идеи для творчества.
+Wood - предназначен для читателей-мастеровых любого уровня подготовки: от новичка до профессионального мебельщика, от дачника до мастера краснодеревщика.Жанр: столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D607C1BDEAF58BE4D011E897118C39AC4AE4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035437   (626585) от 17.07.2016
+
+Журнал | Вязание ваше хобби №8 Летние пуловеры и топы [приложение] (2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626585.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вязание - ваше хобби» - ежемесячный журнал по вязанию на спицах и крючком. В каждом номере суперхиты вязаной моды для каждого сезона - самых модных, самых элегантных, самых экстравагантных, из новых видов пряжи, с эксклюзивным декором. Наряду со сложными в исполнении моделями, требующими мастерства и терпения, есть модели для начинающих рукодельниц.Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA165C2CD2A739A4C2B54DB22D3AD1F7D4003EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 683814   (624222) от 26.07.2013
 
 Журнал | Шитье и крой (ШиК) №7 [+выкройки] (июль 2013) [PDF]
@@ -6,7 +85,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624222.jpg" />
+  <img src="Z:/picture/008/save_picture_624222.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620241.jpg" />
+  <img src="Z:/picture/008/save_picture_620241.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618937.jpg" />
+  <img src="Z:/picture/008/save_picture_618937.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618440.jpg" />
+  <img src="Z:/picture/008/save_picture_618440.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617396.jpg" />
+  <img src="Z:/picture/008/save_picture_617396.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617278.jpg" />
+  <img src="Z:/picture/008/save_picture_617278.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617180.jpg" />
+  <img src="Z:/picture/008/save_picture_617180.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617009.jpg" />
+  <img src="Z:/picture/008/save_picture_617009.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617001.jpg" />
+  <img src="Z:/picture/008/save_picture_617001.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616918.jpg" />
+  <img src="Z:/picture/008/save_picture_616918.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616879.jpg" />
+  <img src="Z:/picture/008/save_picture_616879.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616828.jpg" />
+  <img src="Z:/picture/008/save_picture_616828.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616165.jpg" />
+  <img src="Z:/picture/008/save_picture_616165.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614650.jpg" />
+  <img src="Z:/picture/008/save_picture_614650.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614232.jpg" />
+  <img src="Z:/picture/008/save_picture_614232.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612435.jpg" />
+  <img src="Z:/picture/008/save_picture_612435.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609011.jpg" />
+  <img src="Z:/picture/008/save_picture_609011.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608648.jpg" />
+  <img src="Z:/picture/008/save_picture_608648.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608525.jpg" />
+  <img src="Z:/picture/008/save_picture_608525.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608517.jpg" />
+  <img src="Z:/picture/008/save_picture_608517.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608168.jpg" />
+  <img src="Z:/picture/008/save_picture_608168.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608114.jpg" />
+  <img src="Z:/picture/008/save_picture_608114.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607328.jpg" />
+  <img src="Z:/picture/008/save_picture_607328.jpg" />
 </div>
 
 
@@ -591,84 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB9907CF1D8CF3E4CFC83984E6A13B706F58A012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525754   (605885) от 22.07.2012
-
-Журнал | Маленькая Diana. Спецвыпуск №8 (август 2012) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленькая Diana - популярный журнал по вязанию, в каждом номере которого Вы найдете оригинальные модели женской одежды на все случаи жизни. В этом номере нас ждет 8 моделей для вязания крючком и 7 моделей стильной и модной одежды, которую мы будем вязать спицами. Этим летом в моде вязаные пуловеры и жилеты. Маленькая Diana предлагает нам несколько вариантов пуловеров (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895856E4004E7B0C28B167C62DBD64BC35FB70EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525861   (605798) от 22.07.2012
-
-Журнал | Рыболов №3 (май-июнь) [2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-познавательное издание. Любопытные истории, лирические рассказы, меткие наблюдения любителей ужения, рекомендации и комментарии по самым разным аспектам рыболовства, секреты традиционных способов ловли и изготовление снастей своими руками.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDDFB2FBAAA2086CE7961E934117B5D246001E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526023   (605582) от 22.07.2012
-
-Журнал | Библиотека журнала "Рыбачьте с нами" Выпуск 27 [2012] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рыболову-туристу, предпочитающему активную рыбалку, вне всякого сомнения, интересна тема выбора удобного и практичного снаряжения. В первую очередь это касается, конечно, палатки - комфортного и достаточно портативного дома, который всегда с тобой на рыбалке с ночевкой.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600A2B0DA1F218837D20373C6564DBF8D3336D55
 ```
 
 https://mybot314.ru/tekegram_catalog/

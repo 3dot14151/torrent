@@ -1,3 +1,67 @@
+###  Публикация: 1301238   (586251) от 10.05.2019
+
+Allegro Milano - Allegro Milano plays Simon and Garfunkel (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bridge Over Troubled Water (4:52)
+02. I Am A Rock (3:19)
+03. El Condor Pasa (3:18)
+04. Cecilia (2:44)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14130395253D20C3ED7E41C05AE1BFF4B991311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357947   (586141) от 02.07.2011
+
+Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586141.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gate Of The Shimmering Cave
+2. Song Of The Creek
+3. Dancing Over Pools
+4. Celtic Mist
+5. When The Sun Loves Trees
+6. Silence Of The Eclipse
+7. Stream Garden
+8. Purple Waves
+9. Malibu Trail
+10. Beach Park(   Читать дальше...   )Жанр: RelaxПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE57AD6B2E1DC86A789984355B5BF0EDE139EE59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918553   (585859) от 16.07.2015
 
 Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, World, Ethno, Folk>
@@ -6,7 +70,7 @@ Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, Wor
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585859.jpg" />
+  <img src="Z:/picture/008/save_picture_585859.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ OST Трансформеры 3: Тёмная сторона Луны / Transform
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585771.jpg" />
+  <img src="Z:/picture/008/save_picture_585771.jpg" />
 </div>
 
 
@@ -70,7 +134,7 @@ Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrume
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585764.jpg" />
+  <img src="Z:/picture/008/save_picture_585764.jpg" />
 </div>
 
 
@@ -96,7 +160,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585759.jpg" />
+  <img src="Z:/picture/008/save_picture_585759.jpg" />
 </div>
 
 
@@ -131,7 +195,7 @@ Era - The Live Experience (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585650.jpg" />
+  <img src="Z:/picture/008/save_picture_585650.jpg" />
 </div>
 
 
@@ -160,7 +224,7 @@ Suicide Squad: The Album - Отряд самоубийц (2016) [MP3|320 Kbps] <
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585090.jpg" />
+  <img src="Z:/picture/008/save_picture_585090.jpg" />
 </div>
 
 
@@ -189,7 +253,7 @@ OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584933.jpg" />
+  <img src="Z:/picture/008/save_picture_584933.jpg" />
 </div>
 
 
@@ -215,7 +279,7 @@ Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584880.jpg" />
+  <img src="Z:/picture/008/save_picture_584880.jpg" />
 </div>
 
 
@@ -244,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584798.jpg" />
+  <img src="Z:/picture/008/save_picture_584798.jpg" />
 </div>
 
 
@@ -270,7 +334,7 @@ OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584742.jpg" />
+  <img src="Z:/picture/008/save_picture_584742.jpg" />
 </div>
 
 
@@ -296,7 +360,7 @@ VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Loss
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584260.jpg" />
+  <img src="Z:/picture/008/save_picture_584260.jpg" />
 </div>
 
 
@@ -325,7 +389,7 @@ Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584030.jpg" />
+  <img src="Z:/picture/008/save_picture_584030.jpg" />
 </div>
 
 
@@ -354,7 +418,7 @@ Zhang Yi - Strings Of Love (2015) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583968.jpg" />
+  <img src="Z:/picture/008/save_picture_583968.jpg" />
 </div>
 
 
@@ -383,7 +447,7 @@ Daisuke Minamizawa - Solo Guitar no Shirabe - Studio Ghibli Sakuhinshu (2000) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583840.jpg" />
+  <img src="Z:/picture/008/save_picture_583840.jpg" />
 </div>
 
 
@@ -412,7 +476,7 @@ Michel Pepe - Offrandes (Best Of 2008-2015) (2016) [FLAC|Lossless|WEB-DL|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583448.jpg" />
+  <img src="Z:/picture/008/save_picture_583448.jpg" />
 </div>
 
 
@@ -441,7 +505,7 @@ Vigilante 8 - 2nd Offense (2000) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583406.jpg" />
+  <img src="Z:/picture/008/save_picture_583406.jpg" />
 </div>
 
 
@@ -470,7 +534,7 @@ Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583103.jpg" />
+  <img src="Z:/picture/008/save_picture_583103.jpg" />
 </div>
 
 
@@ -501,7 +565,7 @@ Golana - Meditations for Two (2014) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582944.jpg" />
+  <img src="Z:/picture/008/save_picture_582944.jpg" />
 </div>
 
 
@@ -530,7 +594,7 @@ VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, B
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582851.jpg" />
+  <img src="Z:/picture/008/save_picture_582851.jpg" />
 </div>
 
 
@@ -559,7 +623,7 @@ Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582664.jpg" />
+  <img src="Z:/picture/008/save_picture_582664.jpg" />
 </div>
 
 
@@ -585,7 +649,7 @@ Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contempor
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582423.jpg" />
+  <img src="Z:/picture/008/save_picture_582423.jpg" />
 </div>
 
 
@@ -614,7 +678,7 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582244.jpg" />
+  <img src="Z:/picture/008/save_picture_582244.jpg" />
 </div>
 
 
@@ -643,7 +707,7 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582178.jpg" />
+  <img src="Z:/picture/008/save_picture_582178.jpg" />
 </div>
 
 
@@ -672,7 +736,7 @@ Eamonn Karran - Celtic Skies (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581464.jpg" />
+  <img src="Z:/picture/008/save_picture_581464.jpg" />
 </div>
 
 
@@ -686,64 +750,6 @@ Eamonn Karran - Celtic Skies (2016) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CFA416EC135DF10387EF12CBC8FDE1D59D4D4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919753   (581056) от 21.07.2015
-
-Barry Goldberg & John Philip Shenale - Return of the Living Dead 3 (1993) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Title
-02. Enter The Isolation Room
-04. Osc'scope Zombie
-05. Zombie A Go Go(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B3EF4C8280792BB28572BEF29E641F7F8C661F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042093   (580581) от 11.08.2016
-
-Lisa Downing - The Wisdom of My Shadow (2016) [MP3|320 Kbps] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forbidden Dance
-02. Tragic Dream
-03. Black Wedding
-04. Mischief(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD10BFE5722F450DBAC0119492F1E25A36AB00BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

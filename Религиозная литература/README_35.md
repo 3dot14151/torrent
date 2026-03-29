@@ -1,3 +1,81 @@
+###  Публикация: 1212785   (774462) от 14.03.2018
+
+Святитель Николай Сербский и др. | Сербские светильники. Благословение с Балкан [Духовный азбуковник] (2018) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774462.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли высказывания и поучения святителя Николая Сербского (1880-1956), преподобного Иустина (Поповича) (1894-1979) и архимандрита Фаддея Витовницкого (1914-2003) - великих подвижников, духовников и проповедников Сербской Церкви XX века. Сербия, как и Россия, прошла в XX столетии нелёгкий путь национального возрождения, ужасов Второй мировой войны, коммунистическую (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B0E40FBFBDB695A9E1E66AE72E2FC3AE866AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212887   (774459) от 14.03.2018
+
+Пётр Малков (авт.-сост.) | Рождество Пресвятой Богородицы. Антология святоотеческих проповедей [Святые отцы. Богословие церковных праздников] (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антология святоотеческих творений на Рождество Пресвятой Богородицы включает произведения разных традиций и эпох, византийских, русских и сербских авторов - от святителя Андрея Критского и преподобного Иоанна Дамаскина до святителя Иоанна Шанхайского и преподобного Иустина (Поповича). Издание предваряет вводная статья П. Ю. Малкова, призванная в ясной и доступной (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DF23E379269C7A48AE0CC19478BDBCAB1B21BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212735   (774457) от 14.03.2018
+
+Протоиерей Михаил Браверман | Всенощное бдение. Значение, история возникновения, смысл (2017) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участие в богослужении является неотъемлемой частью жизни православного человека. Но всегда ли верующим до конца понятно, что происходит на церковной службе? Разобраться в значении и смысле всенощного бдения поможет книга петербургского священника Михаила Бравермана. В первой части автор доступно и наглядно, с использованием иллюстраций, объясняет устройство храма (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5316978170E042E264F6E889DCF4F66895734D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125148   (773601) от 13.04.2017
 
 Доменико Агассо | Мать Текла. Жизнь за Евангелие (1994) [PDF, DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773601.jpg" />
+  <img src="Z:/picture/008/save_picture_773601.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773600.jpg" />
+  <img src="Z:/picture/008/save_picture_773600.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773534.jpg" />
+  <img src="Z:/picture/008/save_picture_773534.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773388.jpg" />
+  <img src="Z:/picture/008/save_picture_773388.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773297.jpg" />
+  <img src="Z:/picture/008/save_picture_773297.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773240.jpg" />
+  <img src="Z:/picture/008/save_picture_773240.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773171.jpg" />
+  <img src="Z:/picture/008/save_picture_773171.jpg" />
 </div>
 
 
@@ -194,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772137.jpg" />
+  <img src="Z:/picture/008/save_picture_772137.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772103.jpg" />
+  <img src="Z:/picture/008/save_picture_772103.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772091.jpg" />
+  <img src="Z:/picture/008/save_picture_772091.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769893.jpg" />
+  <img src="Z:/picture/008/save_picture_769893.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769693.jpg" />
+  <img src="Z:/picture/008/save_picture_769693.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768181.jpg" />
+  <img src="Z:/picture/008/save_picture_768181.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768176.jpg" />
+  <img src="Z:/picture/008/save_picture_768176.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767074.jpg" />
+  <img src="Z:/picture/008/save_picture_767074.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766323.jpg" />
+  <img src="Z:/picture/008/save_picture_766323.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766285.jpg" />
+  <img src="Z:/picture/008/save_picture_766285.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766168.jpg" />
+  <img src="Z:/picture/008/save_picture_766168.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766126.jpg" />
+  <img src="Z:/picture/008/save_picture_766126.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766122.jpg" />
+  <img src="Z:/picture/008/save_picture_766122.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764651.jpg" />
+  <img src="Z:/picture/008/save_picture_764651.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764539.jpg" />
+  <img src="Z:/picture/008/save_picture_764539.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764457.jpg" />
+  <img src="Z:/picture/008/save_picture_764457.jpg" />
 </div>
 
 
@@ -600,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF44B2B140E0C14F8AD0B5153055B11EEAD913CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521707   (764424) от 03.01.2022
-
-Иван Михайлович Концевич | Оптина Пустынь и ее время (2019) [DJVU, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Оптина Пустынь и ее время» написана известным писателем и богословом русского зарубежья Иваном Михайловичем Концевичем (1893-1965). В вводных главах раскрывается понятие старчества и прослеживается его история в России в XVIII-XIX веках. Особое внимание автор уделяет жизни и подвигам преподобных старцев Оптинских. В книге содержатся их письма и поучения, драгоценные (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724750F7E58A314F6F8839D4BF5C44222265B416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521528   (764421) от 03.01.2022
-
-Василисса Деревягина (сост.) | Миром правит Бог. Старцы Псково-Печерского монастыря о Промысле Божием (2019) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия представляет собой тематические подборки высказываний Псково-Печерских старцев. Псково-Печерское старчество — это особое явление, так как преемство от старца к ученику никогда не прерывалось. Поэтому эти наставления будут полезны всем: и воцерковленным людям, и тем, кто только начинает задумываться о духовной жизни и ищет свой путь к Богу. Данный сборник посвящён (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E58D24534DB88E0F81E391F7DF8BD971B11904D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521734   (764415) от 03.01.2022
-
-Сретенский монастырь (изд.) | Псалтирь с заупокойными молитвами (2019) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764415.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге даны каноны и молитвы, которые мирянин может сам читать дома или на кладбище. Для удобства читающего, изложен порядок чтения Псалтири без сокращений молитв после кафизм.
-
-«Состояние усопших подобно положению человека, плывущего по очень опасной реке. Молитва за усопших - спасательный канат, который бросает человек утопающему ближнему. Если бы каким-нибудь (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4F41ADB7D0921AA18627ECAA0EFFC8242CA166F
 ```
 
 https://mybot314.ru/tekegram_catalog/

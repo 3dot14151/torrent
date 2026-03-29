@@ -1,3 +1,84 @@
+###  Публикация: 1076210   (314088) от 25.11.2016
+
+Игорь Акимушкин | Беспозвоночные. Ископаемые животные (2011) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314088.jpg" />
+</div>
+
+
+###  Подробнее
+
+та книга завершает четырехтомный цикл рассказов о животных. Первая часть — беспозвоночные. Они обитают повсюду: пронизывают и воздух, и землю, и воды земные от поверхности до самых больших глубин. Как устроен осьминог и каковы его повадки? Может ли спрут потопить корабль? Миф или факт, что скорпион, окруженный кольцом из раскаленных углей, убивает себя? Об этом поведает (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 27:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C76095E4A6B26ADBCEE2C038B935C142E0FBEC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 728922   (313906) от 30.11.2013
+
+Сергей Козлов | Ежик в тумане и другие сказки (2013) [MP3, Александр Клюквин]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_313906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый известный и популярный персонаж детского писателя Сергея Козлова — Ёжик приглашает вас еще раз окунуться в волшебный и неповторимый мир сказок. В сборнике кроме всеми любимого Ёжика в тумане вас также ждут и другие сказки.Жанр: Детская литератураИздательство: Покидышевъ и сыновьяПродолжительность: 01:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A1EB3EE5B3899D24ADAB904B9796631000A3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 265399   (313128) от 02.12.2010
+
+Давид Тухманов, Юрий Энтин | Багдадский вор и черная магия [1997] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_313128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселая музыкальная сказка с хитовыми песнями, восточными колоритными персонажами и сокровищами.
+Это пьеса – экстраваганца!
+33 песни! 22 танца!
+Каждая песня – убойный хит!(   Читать дальше...   )Жанр: Музыкальная сказка - аудиоспектакль для детейПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC39CEA3C967E43E47628FBF01CEF15FAEC2B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182953   (312595) от 12.11.2017
 
 Софрон Тотыш | Сказки Шапкая (2017) [MP3]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312595.jpg" />
+  <img src="Z:/picture/008/save_picture_312595.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ VA - Чижик-Пыжик. Песни для всей семьи (2012) [MP3|32
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312391.jpg" />
+  <img src="Z:/picture/008/save_picture_312391.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ VA - Новогодние Детские Песни (2013) [MP3|192 кб/с]<Д�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312388.jpg" />
+  <img src="Z:/picture/008/save_picture_312388.jpg" />
 </div>
 
 
@@ -90,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310683.jpg" />
+  <img src="Z:/picture/008/save_picture_310683.jpg" />
 </div>
 
 
@@ -119,7 +200,7 @@ Raimond Lap - 2 albums (2004, 2005) [MP3|320 кб/с]<Classical, Instrumental, N
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310347.jpg" />
+  <img src="Z:/picture/008/save_picture_310347.jpg" />
 </div>
 
 
@@ -148,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310249.jpg" />
+  <img src="Z:/picture/008/save_picture_310249.jpg" />
 </div>
 
 
@@ -174,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310106.jpg" />
+  <img src="Z:/picture/008/save_picture_310106.jpg" />
 </div>
 
 
@@ -201,7 +282,7 @@ VA - Песни для малышей. Зимушка-Зима (2002) [MP3|256 k
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308557.jpg" />
+  <img src="Z:/picture/008/save_picture_308557.jpg" />
 </div>
 
 
@@ -230,7 +311,7 @@ VA - Лучшие детские песни (старые и новые) (2015) 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307955.jpg" />
+  <img src="Z:/picture/008/save_picture_307955.jpg" />
 </div>
 
 
@@ -259,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307436.jpg" />
+  <img src="Z:/picture/008/save_picture_307436.jpg" />
 </div>
 
 
@@ -288,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307339.jpg" />
+  <img src="Z:/picture/008/save_picture_307339.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ VA - Disney's - Family Christmas - Collection (2003) [MP3|320 kbps]<Детски
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306697.jpg" />
+  <img src="Z:/picture/008/save_picture_306697.jpg" />
 </div>
 
 
@@ -343,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306285.jpg" />
+  <img src="Z:/picture/008/save_picture_306285.jpg" />
 </div>
 
 
@@ -372,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305219.jpg" />
+  <img src="Z:/picture/008/save_picture_305219.jpg" />
 </div>
 
 
@@ -399,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304401.jpg" />
+  <img src="Z:/picture/008/save_picture_304401.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304292.jpg" />
+  <img src="Z:/picture/008/save_picture_304292.jpg" />
 </div>
 
 
@@ -451,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303779.jpg" />
+  <img src="Z:/picture/008/save_picture_303779.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303554.jpg" />
+  <img src="Z:/picture/008/save_picture_303554.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303545.jpg" />
+  <img src="Z:/picture/008/save_picture_303545.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303250.jpg" />
+  <img src="Z:/picture/008/save_picture_303250.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302057.jpg" />
+  <img src="Z:/picture/008/save_picture_302057.jpg" />
 </div>
 
 
@@ -584,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301875.jpg" />
+  <img src="Z:/picture/008/save_picture_301875.jpg" />
 </div>
 
 
@@ -613,7 +694,7 @@ VA - Здравствуй, новый год! Детский праздник 4-
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301748.jpg" />
+  <img src="Z:/picture/008/save_picture_301748.jpg" />
 </div>
 
 
@@ -627,92 +708,6 @@ VA - Здравствуй, новый год! Детский праздник 4-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B4CF61000AF0E791832DF29BA22118B287FF677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078215   (301747) от 12.11.2020
-
-Марк Твен | Приключения Гекльберри Финна (2003) [MP3, Сергей Кирсанов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть, являющаяся продолжением книги "Приключения Тома Сойера". Герой и рассказчик книги Гек Финн - бездомный мальчик, но он никогда не променяет свои лохмотья и бочку, служившую ему приютом, на "гнусные и душные дома". Гек убегает на остров, спасая свою жизнь и свободу, а затем и жизнь беглого раба Джима...Жанр: Детская литература, приключенияИздательство: АрдисПродолжительность: 12:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985D3AB445A3FC7D41AAB2D6F3027E1E2F9D8CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074601   (301644) от 12.11.2020
-
-VA - Teen Voice. Сборник детских песен (2016) [MP3|320 Kbps] <Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Голос
-02. Зажигай
-03. Игрушка
-04. Я знаю, где-то живёт весна(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CD89221F786FA8F378406A82F3F380FDC635770
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585739   (300771) от 07.12.2012
-
-Робинс | Сказочный подарок на Новый год и Рождество [2012] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник волшебных сказок - удивительный подарок для ребенка любого возраста!
- Путешествуя в чудесном мире сказок, малыш познакомится с храбрым Щелкунчиком, отважной Гердой и холодной Снежной королевой, доброй Снегурочкой и чудесной бабушкой Метелицей, побывает в гостях у Двенадцати месяцев. Ребята узнают, как победить  зло и трусость  и что такое настоящая дружба,  добро и отвага.  Волшебные приключения ждут маленьких слушателей1. Щелкунчик (17:04)
- 2. Снежная королева (12:08)
- 3. Бабушка метелица (6:36)
- 4. Снегурочка (4:38)
- 5. Двенадцать месяцев (18:36)Жанр: Сказки
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0BE46124B0B036B496C8913C1AA2B58E0DF088C
 ```
 
 https://mybot314.ru/tekegram_catalog/

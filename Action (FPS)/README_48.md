@@ -1,3 +1,107 @@
+###  Публикация: 1624010   (38160) от 06.11.2024
+
+Descent 3 (2000) [Ru/En] (1.4/dlc) Repack 1nomok
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взрывная и динамичная сага Descent продолжается, и действие разворачивается как никогда быстро. Спуститесь в огромные подземные цитадели и почувствуйте себя свободней, чем когда-либо, дрейфуя по каньонам и кратерам на поверхности... Теперь на новом движке Fusion™. Станьте пилотом и проявите мастерство в сражении с боевыми дронами и штурмовыми роботами, используя (   Читать дальше...   )Тип издания: RepackРазработчик: Outrage EntertainmentЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32EF1159F6FE34EE4644E7C0F0819F9ECD31BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165636   (38156) от 06.11.2024
+
+Descent (1995) [Ru/En] (1.5) Repack 1nomok
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Descent - Шутер от первого лица имеющий "шесть степеней свободы", т.е. персонаж может свободно двигаться в трехмерном пространстве. Ряд горнодобывающих комплексов, расположенных на нескольких планетах солнечной системы, захватило незнамо что и перепрограммировало их на производство боевых роботов. В роли пилота звездолета-истребителя вам предстоит спуститься (   Читать дальше...   )Тип издания: RepackРазработчик: Parallax SoftwareЖанр: Экшен, Шутeр от первого лицаЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F0BB4B78A32F9EB837EF6CDCF0120B628126B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177660   (38153) от 06.11.2024
+
+Blood II (1998) [Ru/En] (1.21/dlc) Repack 1nomok
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blood II: The Chosen — компьютерная игра, продолжение игры Blood. Сюжет игры разворачивается через 100 лет после первой части. Религиозный культ Кабал преобразился в корпорацию CabalCo. Культ приобрёл могущество и стал оказывать влияние на политические партии и разного рода организации крупного масштаба. Корпорация готовилась к пришествию тёмного правителя и создавала (   Читать дальше...   )Тип издания: RepackРазработчик: Monolith ProductionsЖанр: Шутер от первого лицаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB96DD122125B8D291498BFCBACE9985AD48DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759207   (38063) от 07.11.2024
+
+Crysis: Remastered (2021) [Ru/Multi] (3.0.0) Repack Wanterlude
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический шутер от первого лица от Crytek возвращается с динамическим игровым процессом, режимом ""песочницы"" и захватывающими эпическими битвами. В игре вас ждет обновленная графика, оптимизированная для оборудования нового поколения. Простая спасательная миссия может стать полем боя новой войны с инопланетными захватчиками, которые оккупировали (   Читать дальше...   )Тип издания: RepackРазработчик: CrytekЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:242F5A5E1610B3AF84F36C6358A0727B83E821A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757542   (38060) от 07.11.2024
 
 Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
@@ -6,7 +110,7 @@ Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38060.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Metro Awakening (2024) (1.0 build 16229071) Repack seleZen [VR only]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38058.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Descent II (1996) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38056.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38054.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Will Rock (2003) [Ru/En] (1.2) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38052.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Trespasser: Jurassic Park (1998) [Ru/En] (1.1) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38043.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Quake Classic (1996) [Ru/En] (1.09) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38041.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ World War Zero: Iron Storm (2005) [Ru/En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38034.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Crysis 2 Remastered (2022) [Ru/En] (Build 9461303) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38033.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Turok 2: Seeds of Evil (1998) [Ru/En] (1.4) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38031.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Turok: Dinosaur Hunter (1997) [Ru/En] (1.00.012) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38029.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Exhumed (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38028.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38020.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Necrodome (1996) [En] (1.0) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38012.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.19.0/dlc) Repack FitGirl [Ultimat
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38007.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Repack Other s [Deluxe Edition] 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37845.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Pariah / Изгой (2005) [Ru/En] (1.03) Repack 1nomok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37816.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Easy Red 2 (2020) [Ru/Multi] (1.4.4b/dlc) Repack Let'sРlay [All Fronts]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37727.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Chains of Fury (2024) [Ru/Multi] (1.0.1.6) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37441.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Repack Other s [Ultimate Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37247.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Green Hell (2019) [Ru/Multi] (2.9.1) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37112.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Black Mesa (2020) [Ru/Multi] (build 14053053/dlc) Repack dixen18 [Definitive Edi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36837.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Black Mesa («Чёрная Меза», ранее известная как Blac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01AE5A8F162F1932855AC181304BD68EB091FDF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761285   (36826) от 19.11.2024
-
-Half-Life 2 (2004) [Ru/Multi] (Build 16431800/dlc) Repack FitGirl [20th Anniversary Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Half-Life 2 официально исполнилось 20 лет, и по случаю этой круглой даты мы хотим устроить праздник для сообщества игроков, которые наслаждаются игрой (либо открывают её для себя - впервые или заново) с 16 ноября 2004 года. Сохранив атмосферу тревоги, вызова и внутреннего напряжения и добавив новый реализм и интерактивность, Half-Life 2 открывает дверь в мир, в котором (   Читать дальше...   )Тип издания: RepackРазработчик: ValveЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3399945F15ABBBC6D0807F508D67E0617D00B0A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761247   (36790) от 19.11.2024
-
-The Darkness II (2012) [Ru/En] (1.1/dlc) Repack Let'sРlay [Limited Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновленная популярной серией комиксов, выпущенной Top Cow Productions, Inc., The Darkness II — это напряженный шутер от первого лица, который предлагает запутанное и захватывающее повествование о трагедии, современной криминальной драме и сверхъестественном ужасе. Игроки пройдут по жестокому и личному пути Джеки Эстакадо, главы нью-йоркской преступной семьи и (   Читать дальше...   )Тип издания: RepackРазработчик: Digital ExtremesЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FB61A08B6AF22FCD5D4D57B7A0A06E81BBF2190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717224   (36706) от 20.11.2024
-
-Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Scene Rune
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sker Ritual – фантастический боевик, который можно проходить как в одиночном формате, так и в кооперативе, рассчитанном до четырех реальных пользователей. События происходят на вымышленном острове под названием Скер. Именно здесь идет масштабное вторжение неких таинственных существ из другой реальности, которые называют Тихими или попросту Безмолвными. Это невероятно (   Читать дальше...   )Тип издания: SceneРазработчик: Wales InteractiveЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553C2BF68FE6E44F0B2B567C56C307C49947B471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719470   (36643) от 21.11.2024
-
-S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Decepticon
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры "S.T.A.L.K.E.R.: Зов Припяти" разворачивается после окончания событий игры "S.T.A.L.K.E.R." и уничтожения Стрелком проекта "О-Сознание". Узнав об открытии дороги к центру Зоны, правительство решает провести крупномасштабную военную операцию по взятию ЧАЭС под свой контроль. Операция получает кодовое название "Фарватер". (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, УкраинскийЯзык субтитров: Русский, Английский, УкраинскийЯзык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E83B090946F85F7617D81A61E21C5400651D45B
 ```
 
 https://mybot314.ru/tekegram_catalog/

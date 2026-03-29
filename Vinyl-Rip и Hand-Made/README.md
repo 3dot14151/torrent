@@ -1,4 +1,236 @@
 https://t.me/izofen
+###  Публикация: 1861790   (1062842) от 
+
+Ram-Zet - Studio Albums (6 releases) (2000-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Avant-garde Black/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ram-Zet — метал-группа, образованная в Хамаре, Норвегия, в 1998 году.2000 - Pure Therapy
+2002 - Escape
+2005 - Intra
+2009 - NeutralizedЖанр: Avant-garde Black/Gothic MetalПродолжительность: 05:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95A21B2EECA0323C004D8EAE61EA5B43C0D10C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861574   (1062841) от 
+
+Harry Secombe With Myrna Rose - Sings The Songs Of Ivor Novello (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Stage & Screen, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062841.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Glamorous Night
+A2 I Can Give You The Starlight
+A3 My Dearest Dear
+A4 We'll Gather Lilacs(   Читать дальше...   )Жанр: Pop, Stage & Screen, RomanticПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25151811B6EB0FEBE45C913480E510121B286E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861306   (1062562) от 
+
+The Melachrino Strings And Orchestra - Moods In Music: Music For Relaxation (1952) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop, Classical, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062562.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Berceuse De Jocelyn (Godard)
+A2 Autumn Leaves (Kosma)
+A3 While We Were Young (Wilder, Palitz, Engvick)
+A4 Star Dust (Carmichael, Parish)(   Читать дальше...   )Жанр: Pop, Classical, Easy ListeningПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF6F8F5DC0DB5FFD9B5BA1B354595AD1D2DD1BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861317   (1062561) от 
+
+Samael - Studio Albums (13 releases) (1991-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black Metal, Electronic/Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Samael — швейцарская метал-группа, образованная в Сьоне в 1987 году.1991 - Worship Him
+1992 - Blood Ritual
+1994 - Ceremony of Opposites
+1995 - Rebellion (EP)Жанр: Black Metal, Electronic/Industrial MetalПродолжительность: 11:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C328119F4D64421615CC302566D60D9E257C05FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861130   (1062317) от 
+
+Hollywood Symphony Orchestra - Orchestral Fireworks (1966) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062317.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Comedian's Galop (From The Comedians)
+A2 Dance Macabre
+A3 Fireball Polka
+A4 Magic Fire Music (From The Valkyries)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11B3B3DAF469562D6B9B466EBC67ACC7472AB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861096   (1062316) от 
+
+Celine Dion - I Am. Original Motion Picture Soundtrack (2024) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Score, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062316.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Main Theme - Artist Always (Score)
+A2 The Power Of Love
+A3 Pour Que Tu M'aimes Encore
+A4 A New Day Has Come (Radio Remix)(   Читать дальше...   )Жанр: Soundtrack, Score, Pop RockПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C0B5DA4B028F01BFCFF170016CE51F803C9FC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860844   (1062283) от 
+
+Johnny Mathis - Faithfully (1959) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062283.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Faithfully
+A2 Tonight
+A3 Nobody Knows (How Much I Love You)
+A4 One Starry Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921F9A4FFDDF1B10E39B00194DBC387663823425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860837   (1062282) от 
+
+Barry Manilow - Manilow Magic. The Best Of Barry Manilow (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062282.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mandy
+A2 New York City Rhythm
+A3 Looks Like We Made It
+A4 Can't Smile Without You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC1A5FBA65CEA6FF5AB1F631F0F85DF9AC65F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860348   (1061627) от 
 
 Les Paul And Mary Ford - Lovers' Luau (1959) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Hawaiian, Instrumental>
@@ -7,7 +239,7 @@ Les Paul And Mary Ford - Lovers' Luau (1959) [FLAC 1.0|192/24|image +.cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061627.jpg" />
+  <img src="Z:/picture/005/save_picture_1061627.jpg" />
 </div>
 
 
@@ -36,7 +268,7 @@ Peggy Lee - I'm A Woman (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061595.jpg" />
+  <img src="Z:/picture/005/save_picture_1061595.jpg" />
 </div>
 
 
@@ -65,7 +297,7 @@ Roger Miller - The One And Only Roger (1965) Reissue 1969 [FLAC 2.0|96/24|image 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061388.jpg" />
+  <img src="Z:/picture/005/save_picture_1061388.jpg" />
 </div>
 
 
@@ -94,7 +326,7 @@ Elvenking - Studio Albums (12 releases) (2001-2025) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061347.jpg" />
+  <img src="Z:/picture/005/save_picture_1061347.jpg" />
 </div>
 
 
@@ -123,7 +355,7 @@ Dinah Kaye With Tubby Sykes And The Power-House 7 - The Roaring 20's (1963) [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061229.jpg" />
+  <img src="Z:/picture/005/save_picture_1061229.jpg" />
 </div>
 
 
@@ -152,7 +384,7 @@ Tool - Studio Albums (7 releases) (1991-2019) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061228.jpg" />
+  <img src="Z:/picture/005/save_picture_1061228.jpg" />
 </div>
 
 
@@ -181,7 +413,7 @@ Seven Impale - Studio Albums (4 releases) (2013-2023) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061224.jpg" />
+  <img src="Z:/picture/005/save_picture_1061224.jpg" />
 </div>
 
 
@@ -210,7 +442,7 @@ Delibes / Chopin - Douglas (Berliner Philharmoniker, Herbert von Karajan) - Copp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061042.jpg" />
+  <img src="Z:/picture/005/save_picture_1061042.jpg" />
 </div>
 
 
@@ -239,7 +471,7 @@ Skeeter Davis and Bobby Bare - Tunes For Two (1965) [FLAC 2.0|192/24|image +.cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060778.jpg" />
+  <img src="Z:/picture/005/save_picture_1060778.jpg" />
 </div>
 
 
@@ -268,7 +500,7 @@ VA - Twenty-Five Years Of Royal Variety At The London Palladium 1930 - 1973 (197
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060650.jpg" />
+  <img src="Z:/picture/005/save_picture_1060650.jpg" />
 </div>
 
 
@@ -297,7 +529,7 @@ Ebony Tears - Studio Albums (3 releases) (1997-2001) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060567.jpg" />
+  <img src="Z:/picture/005/save_picture_1060567.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Tammy Wynette - In Love (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060539.jpg" />
+  <img src="Z:/picture/005/save_picture_1060539.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Boston Pops Orchestra • Arthur Fiedler - Classical Music For People Who Hate C
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059790.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Max Bygraves - Max Bygraves (1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059760.jpg" />
+  <img src="Z:/picture/005/save_picture_1059760.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Mason - Studio Albums (3 releases) (2013-2025) hand made [restored, declipped] [
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059424.jpg" />
+  <img src="Z:/picture/005/save_picture_1059424.jpg" />
 </div>
 
 
@@ -440,7 +672,7 @@ Peter Katin, London Philharmonic Orchestra, John Pritchard - Tchaikovsky / Litol
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059237.jpg" />
+  <img src="Z:/picture/005/save_picture_1059237.jpg" />
 </div>
 
 
@@ -469,7 +701,7 @@ Susperia - Studio Albums (7 releases) (2001-2018) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059157.jpg" />
+  <img src="Z:/picture/005/save_picture_1059157.jpg" />
 </div>
 
 
@@ -498,7 +730,7 @@ Armageddon (Sweden) - Studio Albums (5 releases) (1997-2016) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058677.jpg" />
+  <img src="Z:/picture/005/save_picture_1058677.jpg" />
 </div>
 
 
@@ -512,237 +744,6 @@ Armageddon - метал-группа из Хальмстада, Швеция, о
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CEEE6C5B712DE28428F2ABA8FA25119F7596EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856251   (1058676) от 27.02.2026
-
-Abhorrent Decimation - Studio Albums (3 releases) (2013-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abhorrent Decimation - британская дэт-метал группа, образованная в 2013 году в Лондоне.2013 - Infected Celestial Utopia (EP)
-2015 - Miasmic Mutation
-2017 - The PardonerЖанр: Death MetalПродолжительность: 01:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38855E0591F0AE81AA33E613C15BACB8475260C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856227   (1058675) от 27.02.2026
-
-Cleo Laine - The Platinum Collection Of Cleo Laine (1981) Series The Platinum Collection, 24 Tracks Double Album [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058675.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 He Was Beautiful
-A2 If
-A3 Let's Have A Quiet Night In
-A4 Send In the Clowns(   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D405EB789EFB1F05A914AA6FD33EF0750D8D9D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856309   (1058640) от 27.02.2026
-
-VA - Country Dreams (1983) [FLAC|Lossless|image + .cue] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058640.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Lynn Anderson - Close To You
-A2 Bonnie Guitar - A Woman In Love
-A3 Kitty Wells - Searching (For Someone Like You)
-A4 Glenn Yarbrough - Mr Bojangles(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343CFF270D75009285B4481245320AD46DE0584C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1856085   (1058533) от 26.02.2026
-
-Cathedral - Studio Albums (15 releases) (1991-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Stoner Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cathedral — метал-группа из Ковентри, Англия, основана в 1989 году.1991 - Forest Of Equilibrium
-1992 - Soul Sacrifice (EP)
-1993 - The Ethereal Mirror
-1994 - Cosmic Requiem (EP)Жанр: Doom/Stoner MetalПродолжительность: 14:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01D6F3099DF85B260D4C1487C81B68E0B52E88B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855693   (1058190) от 24.02.2026
-
-Ghosts of Jupiter - Studio Albums (4 releases) (2011-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock, Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghosts of Jupiter - американская рок-группа из г. Бостон, основана в 2011 году.2011 - Ghosts Of Jupiter
-2013 - Green Is Gold, Vol. 1 (EP)
-2016 - The Great Bright Horses
-2021 - Keepers Of The Newborn GreenЖанр: Prog Rock, Psychedelic RockПродолжительность: 02:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4FD603AFAE51818144FBC1893654D5E4F358E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855117   (1057984) от 22.02.2026
-
-Handel, The Academy Of St. Martin-in-the-Fields - Concerto (1979) cond. Neville Marriner [FLAC 2.0|48/24|image +.cue|MC-Rip] <Classical, Baroque, Orchestra>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057984.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Music For The Royal Fireworks
-Water Music
-A2 Suite In G Major
-B1 Suite In D Major(   Читать дальше...   )Жанр: Classical, Baroque, OrchestraПродолжительность: 02:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2A9B1B0E2162B8C826E3AD03B733157CB27741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854951   (1057602) от 20.02.2026
-
-Rotting Christ (Sakis Tolis; χ ξ ς') - Studio Albums (20 releases) (1991-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rotting Christ - греческая метал-группа, созданная в Афинах в 1987 году. Является одной из самых известных метал-групп Греции.1991 - Passage To Arcturo (EP)
-1993 - Thy Mighty Contract
-1994 - Non Serviam
-1996 - Triarchy Of The Lost LoversЖанр: Melodic Black Metal, Gothic MetalПродолжительность: 15:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CAA7F95FFEECD128FC2BFBD08B1654AC361708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854505   (1057272) от 18.02.2026
-
-VA - Emotions (1978) Billy Joel, Chris Rea, Andy Williams, Bonnie Tyler and other [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057272.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Samantha Sang (with The Bee Gees) - Emotions
-A2 Deniece Williams - Free
-A3 Billy Joel - I Love You Just The Way You Are
-A4 Gallagher & Lyle - I Want To Stay With You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DA25C859E410EB9C926B1618A3656CEF9A410F
 ```
 
 https://mybot314.ru/tekegram_catalog/

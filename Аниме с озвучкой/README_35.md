@@ -1,3 +1,31 @@
+###  Публикация: 583119   (314603) от 01.12.2012
+
+Mnemosyne: Mnemosyne no Musume-tachi / Rin: Daughters of Mnemosyne / Дочери Мнемозины [2008, TV-Special, 6 из 6] BDRip 400p RAW+2xRUS(int)+ENG+JAP+SUB HWP
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она молода, умна, красива и нашла интересную работу – частного детектива в не самом фешенебельном городском районе, прямо в духе американских «нуаров» 50-х. А еще Рин Асоги бессмертна – ведь в ее жилах течет кровь древних богов. Пусть Рин и ее сородичи родились не в горах Шотландии, но смысл их жизни тот же – рисковая игра с судьбой, ставка в которой – вечное существование, что с годами все больше в тягость.
+
+Так что профессия частного детектива – отличная профилактика скуки, в чем вы легко убедитесь, посмотрев этот сериал. Ангелы и демоны, таинственные незнакомцы, сумасшедшие ученые, боссы якудза, зомби и наемные убийцы не дадут скучать никому! © Hollow, World ArtЖанр: мистика, ужасы, эротика, приключенияРежиссер: Уэда СигэруПеревод: Профессиональный (многоголосый, закадровый)Формат: BDRip, AVI, XviD, AC3Продолжительность: 6 х ~00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB48AE02D8529F74444AAE3790F432B440822BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583815   (311571) от 02.12.2012
 
 Strike Witches Gekijouban / Штурмовые ведьмы (фильм) [2012] BDrip 720p raw + rus
@@ -6,7 +34,7 @@ Strike Witches Gekijouban / Штурмовые ведьмы (фильм) [2012] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311571.jpg" />
+  <img src="Z:/picture/008/save_picture_311571.jpg" />
 </div>
 
 
@@ -34,7 +62,7 @@ Meitantei Conan | Detective Conan | Детектив Конан. Фильмы и
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311266.jpg" />
+  <img src="Z:/picture/008/save_picture_311266.jpg" />
 </div>
 
 
@@ -60,7 +88,7 @@ Triage X / Искусственный отбор [2015, TV, 10 ep] BDRip Hi10p 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308995.jpg" />
+  <img src="Z:/picture/008/save_picture_308995.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Tears to Tiara / Слёзы Тиары / Расколотая Тиара [2009, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307407.jpg" />
+  <img src="Z:/picture/008/save_picture_307407.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ Fune o Amu | Fune wo Amu | Мы создаём корабль | Великое �
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305711.jpg" />
+  <img src="Z:/picture/008/save_picture_305711.jpg" />
 </div>
 
 
@@ -141,7 +169,7 @@ Dragon Ball Super | Драгон Болл Супер [2015, TV, 46 из 131 эп
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304570.jpg" />
+  <img src="Z:/picture/008/save_picture_304570.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семизвёздная п
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304417.jpg" />
+  <img src="Z:/picture/008/save_picture_304417.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ Ranma 1/2 Special | Ranma Nibun no Ichi Special | Ранма 1/2: Специал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298239.jpg" />
+  <img src="Z:/picture/008/save_picture_298239.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ Ranma 1/2: Chou Musabetsu Kessen! Ranma Team vs. Densetsu no Houou | Ranma 1/2: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298237.jpg" />
+  <img src="Z:/picture/008/save_picture_298237.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ Ranma 1/2 Super | Ranma Nibun no Ichi Super | Ранма 1/2: Супер [1995, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298235.jpg" />
+  <img src="Z:/picture/008/save_picture_298235.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ Ranma 1/2 OVA | Ranma Nibun no Ichi OVA | Ранма 1/2 OVA [1993, OVA, 6 из 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298233.jpg" />
+  <img src="Z:/picture/008/save_picture_298233.jpg" />
 </div>
 
 
@@ -297,7 +325,7 @@ Ranma 1/2: Chuugoku Nekonron Daikessen! Okite Yaburi no Gekitou Hen!! | Ranma 1/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298231.jpg" />
+  <img src="Z:/picture/008/save_picture_298231.jpg" />
 </div>
 
 
@@ -323,7 +351,7 @@ Ninja Senshi Tobikage / Ninja Warrior Tobikage / Ниндзя-воин Тоби�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291112.jpg" />
+  <img src="Z:/picture/008/save_picture_291112.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ Mahou Shoujo Site | Magical Girl Site | Сайт девочек-волшебни
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290697.jpg" />
+  <img src="Z:/picture/008/save_picture_290697.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ Sunohara-sou no Kanrinin-san / Госпожа заведующая общежи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289610.jpg" />
+  <img src="Z:/picture/008/save_picture_289610.jpg" />
 </div>
 
 
@@ -404,7 +432,7 @@ Xenosaga: The Animation | Ксеносага [2005, TV, 12 эп.] DVDRip 480p ra
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288898.jpg" />
+  <img src="Z:/picture/008/save_picture_288898.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ Seitokai Yakuindomo* / Члены Школьного совета (ТВ-2) [2014
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288189.jpg" />
+  <img src="Z:/picture/008/save_picture_288189.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286904.jpg" />
+  <img src="Z:/picture/008/save_picture_286904.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286903.jpg" />
+  <img src="Z:/picture/008/save_picture_286903.jpg" />
 </div>
 
 
@@ -509,7 +537,7 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285226.jpg" />
+  <img src="Z:/picture/008/save_picture_285226.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ Ingress: The Animation | Ингресс [2018, ONA, 11 эпизодов] WEBRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283844.jpg" />
+  <img src="Z:/picture/008/save_picture_283844.jpg" />
 </div>
 
 
@@ -562,7 +590,7 @@ Inou Battle wa Nichijou-kei no Naka de / Inou Battle / Супербои в по�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281511.jpg" />
+  <img src="Z:/picture/008/save_picture_281511.jpg" />
 </div>
 
 
@@ -589,7 +617,7 @@ Bounen no Xamdou | Xam'd: Lost Memories | КсамД: Позабывший не�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280478.jpg" />
+  <img src="Z:/picture/008/save_picture_280478.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou / Волейбол!! С
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279803.jpg" />
+  <img src="Z:/picture/008/save_picture_279803.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ Jack to Mame no Ki / Jack and the Beanstalk / Джек в Стране Чуде�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274955.jpg" />
+  <img src="Z:/picture/008/save_picture_274955.jpg" />
 </div>
 
 
@@ -655,32 +683,6 @@ Jack to Mame no Ki / Jack and the Beanstalk / Джек в Стране Чуде�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94C5AF054DAADE5A570D758D15705D3009E25256
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222989   (273833) от 28.11.2018
-
-Steins;Gate 0 | Врата Штейна 0 [TV, 2018, 23] HDTV 720p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит во временной линии бета. Ринтаро Окабэ, путешествуя во времени, пытался спасти возлюбленную, но вместо этого случайно ее убил. Страдая от посттравматического синдрома и чувства вины, парень узнает, что есть программа, позволяющая сгружать сознание человека в искусственный интеллект. И к его удивлению, оказывается, существует цифровая версия его (   Читать дальше...   )Производство: Япония, White FoxЖанр: приключенияРежиссер: Кавамура КэнъитиСубтитры: Надписи, отключаемые (Вшитые) | RusПродолжительность: 23 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE1D544E2B60352DFF5CFCEE1DF95089B4EDF55
 ```
 
 https://mybot314.ru/tekegram_catalog/

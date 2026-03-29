@@ -1,3 +1,164 @@
+###  Публикация: 1320961   (464629) от 21.08.2019
+
+Золотая перчатка / Der goldene Handschuh (2019) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_464629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Западная Германия, 70-е годы. Фриц Хонка — типичный неудачник средних лет, так ничего и не достигший в жизни. Он коротает унылые вечера в кабаке «Золотая перчатка». Здесь, в компании себе подобных, он дурманит себя алкоголем и ищет близости с одинокими женщинами, безвозвратно утратившими свою молодость и достоинство. Фриц завлекает эти потерянные души в свое холостяцкое (   Читать дальше...   )Производство: Германия, Франция / Bombero International, Warner Bros. Film Productions Germany, PathéЖанр: ТриллерРежиссер: Фатих АкинАктеры: Йонас Дасслер, Катя Штудт, Маргарете Тизель, Адам Боусдукс, Мартина Эйтнер, Марк Хоземанн, Тристан Гёбель, Грета Софи Шмидт, Виктория Трауттмансдорфф, Харк БомПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C669DCAA2BA9B185A6ADD302D8CD10B762DBE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 692749   (464417) от 23.09.2013
+
+multiMAN v04.46.04 [PS3] [Ru/Multi] (2013)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_464417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчик Deank выпустил новое обновление для его приложения multiMAN
+В нем произошло множество улучшений
+В раздаче включен multiMAN и плагины для него
+А также многофункциональный плеер ShowtimeРазработчик: DeankЯзык интерфейса: Ru / Multi
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940893   (464271) от 26.09.2015
+
+В Китае произведен первый запуск новой ракеты LM-6
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_464271.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 сентября 2015 года новая ракета-носитель Long March 6 (LM-6) стартовала с космодрома Тайюань (Taiyuan Satellite Launch Center) и успешно вышла на низкую околоземную орбиту, доставив туда 20 искусственных спутников различного назначения. Эта небольшая ракета-носитель предназначена для произведения экстренных запусков, в которых важное значение играет минимизация (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 240889   (464008) от 29.09.2010
+
+WinAVI All-In-OneConverter 1.1.0.3916 [Rus]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_464008.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinAVI All-In-One Converter — лучший видео конвертер для преобразования видео для дальнейшего просмотра на DVD плеерах. Название говорит само за себя — всё в одном. Скоростная конвертация видео/аудио файлов между популярными форматами, Фильм размером 4G конвертируется за 10 минут. Так утверждают разработчики.WinAVI All-In-One Video Converter является профессиональным (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940932   (463869) от 26.09.2015
+
+NBA 2K16 (2015) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создайте собственного баскетболиста и помогите ему подняться на вершину спортивного Олимпа. Возьмите в свои руки управление всей Национальной Баскетбольной Ассоциацией. Или оттачивайте свое мастерство, чтобы сражаться с лучшими игроками мира по сети.
+
+Благодаря обновленной анимации движения игроков стали более плавными, а их эмоции – более реалистичными. Не будет (   Читать дальше...   )Тип издания: UnofficialРазработчик: Visual ConceptsЖанр: Sport (Basketball) / SimulationЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B5DC10725657090A1DECBC62C073803E9DCD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940791   (463787) от 26.09.2015
+
+Антураж / Entourage (2015) BDRip [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звезда кино Винс Чейз и его друзья бросают вызов капризному и зачастую жестокому миру Голливуда.Производство: США, Home Box Office (HBO), Warner Bros. and Closest to the Hole ProductionsЖанр: КомедияРежиссер: Даг ЭллинАктеры: Кевин Коннолли, Эдриан Гренье, Кевин Диллон, Джерри Феррара, Джереми Пивен, Эммануэль Шрики, Перри Ривз, Рекс Ли, Деби Мейзар, Риз Койро, Марк Уолберг, Майк Тайсон, Тьерри Анри, Билли Боб Торнтон, Ронда РаузиПеревод: ДублированныйПродолжительность: 01:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E89546A4F25DC9E872FD660D9EC8FF352CCF9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940944   (463777) от 26.09.2015
 
 Cowboy WPI Autumn StartSoft 66-2015 [Ru]
@@ -6,7 +167,7 @@ Cowboy WPI Autumn StartSoft 66-2015 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463777.jpg" />
+  <img src="Z:/picture/008/save_picture_463777.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ multiboot usb flash 3.0 by lakost08 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463771.jpg" />
+  <img src="Z:/picture/008/save_picture_463771.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ Microsoft Office 2016 Professional Plus RTM 16.0.4266.1003 (x64) by Ratiborus 3.
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463769.jpg" />
+  <img src="Z:/picture/008/save_picture_463769.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ Battery HD Pro 1.63.04 [Ru] - Монитор для батареи
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463763.jpg" />
+  <img src="Z:/picture/008/save_picture_463763.jpg" />
 </div>
 
 
@@ -110,7 +271,7 @@ The KMPlayer 4.2.2.67 repack by cuta (build 1) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463666.jpg" />
+  <img src="Z:/picture/008/save_picture_463666.jpg" />
 </div>
 
 
@@ -136,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463516.jpg" />
+  <img src="Z:/picture/008/save_picture_463516.jpg" />
 </div>
 
 
@@ -163,7 +324,7 @@ Quantum Break (2016) [Ru/Multi] (1.0.118.7029) Repack R.G. Revenants
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463515.jpg" />
+  <img src="Z:/picture/008/save_picture_463515.jpg" />
 </div>
 
 
@@ -189,7 +350,7 @@ Mirror's Edge Catalyst (2016) [Ru/En] (1.0.3.47248/dlc) Repack R.G. Механи
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463501.jpg" />
+  <img src="Z:/picture/008/save_picture_463501.jpg" />
 </div>
 
 
@@ -215,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463088.jpg" />
+  <img src="Z:/picture/008/save_picture_463088.jpg" />
 </div>
 
 
@@ -241,7 +402,7 @@ ENSLAVED: Odyssey to the West (2013) [Ru] (1.0/upd1/dlc) Repack Other s [Premium
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463027.jpg" />
+  <img src="Z:/picture/008/save_picture_463027.jpg" />
 </div>
 
 
@@ -267,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462895.jpg" />
+  <img src="Z:/picture/008/save_picture_462895.jpg" />
 </div>
 
 
@@ -293,7 +454,7 @@ Microsoft выпустила бета-версию браузера Chromium Edg
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_462819.jpg" />
+  <img src="Z:/picture/005/save_picture_462819.jpg" />
 </div>
 
 
@@ -319,7 +480,7 @@ Worms W.M.D (2016) [Ru/Multi] (1637.583366/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462669.jpg" />
+  <img src="Z:/picture/008/save_picture_462669.jpg" />
 </div>
 
 
@@ -345,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462666.jpg" />
+  <img src="Z:/picture/008/save_picture_462666.jpg" />
 </div>
 
 
@@ -372,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_462232.jpg" />
+  <img src="Z:/picture/005/save_picture_462232.jpg" />
 </div>
 
 
@@ -398,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462125.jpg" />
+  <img src="Z:/picture/008/save_picture_462125.jpg" />
 </div>
 
 
@@ -424,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461665.jpg" />
+  <img src="Z:/picture/008/save_picture_461665.jpg" />
 </div>
 
 
@@ -450,7 +611,7 @@ Adobe Photoshop 2020 21.2.3.308 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461601.jpg" />
+  <img src="Z:/picture/008/save_picture_461601.jpg" />
 </div>
 
 
@@ -476,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461593.jpg" />
+  <img src="Z:/picture/008/save_picture_461593.jpg" />
 </div>
 
 
@@ -502,7 +663,7 @@ Final Fantasy V (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461585.jpg" />
+  <img src="Z:/picture/008/save_picture_461585.jpg" />
 </div>
 
 
@@ -513,162 +674,6 @@ Final Fantasy V (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1108DFBD87E795D89A99D85F504375C829F2B432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941110   (461580) от 27.09.2015
-
-WPI v.10.1.150927 New Autumn by IceSlam and Red [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка из наиболее новых версий программ, как бесплатных, так и платных с полу- и полной автоустановкой... включает в себя программы следующих подразделов: Системные, Архиваторы, Аудио/Видео Конвертеры, Запись CD/DVD/Blu_Ray, Связь, Эмуляторы, Графика, Украшения, Интернет, Мультимедиа, Офисные, Утилиты, Безопасность. Оптимизировано для Windows 10.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF915D516D4B2A3681C474483C340851727CF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567824   (461518) от 08.08.2022
-
-Windows 10 Home 21H2 19044.1826 x64 by SanLex [Lite] [Ru/En] (2022.08.07)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном оригинал образе Windows_10_Home_consumer_editions_21h2_x64 для более приватного и комфортного пользования. Цель данной сборки лёгкость в использовании, то есть для повседневного домашнего пользования. Отключены, удалены или заблокированы нежелательные службы/процессы сбора телеметрических данных, рекламные модули, нежелательные фоновые (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9564EA7727523D0B293ABC74698BDDFED2E6AAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059357   (461240) от 04.10.2016
-
-И гаснет свет... / Lights Out (2016) WEB-DL [H.264/1080p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда Ребекка покинула родной дом, она думала, что её детские страхи остались позади. Ребенком она никогда не была уверена, что реально, а что нет, когда гас свет, и теперь её младший брат Мартин переживает те же необъяснимые и ужасные события, которые когда-то испытывали на прочность её рассудок и угрожали её безопасности. Пугающее нечто, таинственным образом привязанное (   Читать дальше...   )Производство: США, New Line CinemaЖанр: Ужасы, ТриллерРежиссер: Дэвид Ф. СандбергАктеры: Тереза Палмер, Гэбриел Бейтман, Александр ДиПерсиа, Билли Бёрк, Мария Белло, Алисия Вела-Бэйли, Энди Ошо, Роландо Бойс, Мария Расселл, Элизабет ПанПеревод: Дублированный (Чистый звук)Продолжительность: 01:21:39Реклама: Присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430F4CE44DE0F5A6B5B679CAA6B5BE27C9CF4637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161779   (461062) от 31.08.2017
-
-Роботов научат сомневаться и принимать решения
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_461062.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Саратовском университете запущен проект по созданию человекоподобного самообучающегося робота, который сможет заменить человека в опасных и сложных условиях: под водой, в горах и даже в космосе.Руководитель проекта — радиофизик, профессор СГТУ имени Гагарина Александр Храмов — говорит, что созданный робот сможет заменить человека при ремонте нефтяных платформ, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230517   (460743) от 11.09.2018
-
-Prey - Mooncrash (2018) [Ru] (1.10.0) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вскоре после катастрофы на «Талосе-1» корпорация «Транстар» теряет связь с секретной базой на Луне. Питер, главный герой Prey: Mooncrash, — оператор спутника, который ведет информационную разведку в пользу корпорации «Касма», главного конкурента «Транстар». Условия контракта между Питером и «Касмой» не оставляют шпиону выбора: чтобы вернуться на Землю и вновь увидеть (   Читать дальше...   )Тип издания: RepackРазработчик: Arkane StudiosЖанр: Adventure, Action, 3D, 1st Person, Add-onЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E5D8E105BABDAA75FF30307263540E557046D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162208   (460611) от 31.08.2017
-
-Wondershare Filmora 8.3.5.6 + Effect Packs [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare Filmora - удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. Вы сможете создавать высококачественные фильмы с титрами, применять фильтры, эффекты перехода, обрабатывать звук. Кроме этого, программа поможет напрямую загрузить свое видео на YouTube для обмена с друзьями и семьей, сохранить видео для воспроизведения на (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F5EDFDB6CED762E38ED673A8CFBCDB1F32B44D
 ```
 
 https://mybot314.ru/tekegram_catalog/

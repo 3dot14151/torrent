@@ -6,7 +6,7 @@ Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021789.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Mariza - Mariza Canta Amalia (2020) [FLAC|Lossless|image + .cue] <Fado, Bossanov
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021783.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Best Of Green Hill Music: The Piano Collection (2021) [FLAC|Lossless|WEB-DL
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021759.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Robbie Robertson - Collection (1994-1998) 2 альбома [MP3|320 Kbps] <Nativ
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021609.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Erotic Sex Audio XXX - Hot and Sexy Ringtones (2010) 2CD [MP3|320 Kbps] <Rington
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020925.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Benjamin Wallfisch - Mortal Kombat (Original Motion Picture Soundtrack) (2021) [
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020612.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020456.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Benjamin Wallfisch - Mortal Kombat / Мортал Комбат (Original Motion 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020444.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Bryan Lubeck, Johannes Linstead & Tomas Michaud - We Three Strings (2006) [FLAC|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020308.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Behzad (Behzad Aghabeigi) - 5 альбомов (1997-2017) [MP3|320 Kbps] <Flame
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020295.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Gandiva - All Your Grace (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019975.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Nativ
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019973.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саун
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019728.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Johannes Linstead - Discography (1999-2017) [MP3|320 Kbps] <Flamenco, Guitar, La
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019632.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Shanti People - Krishna is Love (2013) [MP3|320 Kbps] <New age, Folk, Meditative
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019312.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Tierra Negra - Discography (1997-2020) [MP3|320 Kbps] <Flamenco, Acoustic Guitar
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019297.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Johannes Linstead - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Flame
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019285.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Shanti People - Urban Mantras (2015) [MP3|320 Kbps] <New age, Folk, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019280.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Medwyn Goodall - The Wolfstone (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018931.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Tierra Negra - Discography (1997-2020) WEB [FLAC|Lossless|WEB-DL|tracks] <Flamen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018772.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Kundalini Yoga Music - Autogenic Training Channel (2021) [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016395.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Autogenic Training Channel - Daily Ritual Meditation (2021) [FLAC|Lossless|WEB-D
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016129.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Autogenic Training Channel - Self Hypnosis, Nature Music (2021) [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016099.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Era - 7 Albums (1996 - 2010) [FLAC|Lossless|tracks + .cue]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015873.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Maneesh de Moor - Songs from the Tree of Light (2017) [FLAC|Lossless|WEB-DL|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015770.jpg" />
 </div>
 
 
@@ -733,7 +733,7 @@ VA - Pilates and Yoga Music 2021 [FLAC|Lossless|WEB-DL|tracks] <New Age, Lounge>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015492.jpg" />
 </div>
 
 

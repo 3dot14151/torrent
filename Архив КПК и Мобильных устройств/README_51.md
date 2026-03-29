@@ -1,3 +1,37 @@
+###  Публикация: 526344   (598701) от 23.07.2012
+
+Mobile ODIN Pro Программа (Android 2.1+)
+
+>>След.
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_598701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mobile ODIN - Полноценный программатор мобильных устройств!
+Хотите новую версию прошивки, но боитесь прошивать телефон? Мучаетесь вопросом: "А вдруг, что?!!" Красавчики из Chainfire нашли выход, который безопасно вдохнёт в Ваше устройство новую жизнь! C помощью Mobile ODIN можно прошить устройство без риска и страха перед сервис-центрами. С его помощью у Вас не появятся разного рода значки в виде треугольников, восклицательных знаков и не включится счетчик прошивок.
+
+!!! Ваше устройство должно обладать root-правами, чтобы использовать Мобильный ODIN.
+Имеется возможность рутировать устройство и внедрять Mobile ODIN в прошивку на лету.
+
+!!!Предупреждение!!!
+Инструкция предназначена исключительно(!) для использования с ниже описанным оборудованием(!). Применение этих инструкций относительно других устройств или моделей может произвести фатальные результаты(!).
+Информация в этой инструкции предоставлена исключительно в учебных и образовательных целях. Нет никакой гарантии, что эти инструкции будут работать (   Читать дальше...   )Разработчик: Chainfire
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914453   (598466) от 02.07.2015
 
 Активность Солнца (Kp-Index) 2.1.3 [Ru]
@@ -6,7 +40,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598466.jpg" />
+  <img src="Z:/picture/008/save_picture_598466.jpg" />
 </div>
 
 
@@ -35,7 +69,7 @@ No Smoking 1.3.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598334.jpg" />
+  <img src="Z:/picture/008/save_picture_598334.jpg" />
 </div>
 
 
@@ -63,7 +97,7 @@ Adobe Air 18.0.0.144 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598178.jpg" />
+  <img src="Z:/picture/008/save_picture_598178.jpg" />
 </div>
 
 
@@ -90,7 +124,7 @@ LIFENEWS 2.1.5 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598171.jpg" />
+  <img src="Z:/picture/008/save_picture_598171.jpg" />
 </div>
 
 
@@ -117,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598161.jpg" />
+  <img src="Z:/picture/008/save_picture_598161.jpg" />
 </div>
 
 
@@ -143,7 +177,7 @@ Dungeon Hunter 3 V1.5.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597982.jpg" />
+  <img src="Z:/picture/008/save_picture_597982.jpg" />
 </div>
 
 
@@ -170,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597980.jpg" />
+  <img src="Z:/picture/008/save_picture_597980.jpg" />
 </div>
 
 
@@ -197,7 +231,7 @@ Dreamjob Veterinarian 1.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597894.jpg" />
+  <img src="Z:/picture/008/save_picture_597894.jpg" />
 </div>
 
 
@@ -223,7 +257,7 @@ Reckless Racing 3 1.1.5 [En] MOD
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597884.jpg" />
+  <img src="Z:/picture/008/save_picture_597884.jpg" />
 </div>
 
 
@@ -249,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597743.jpg" />
+  <img src="Z:/picture/008/save_picture_597743.jpg" />
 </div>
 
 
@@ -278,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597725.jpg" />
+  <img src="Z:/picture/008/save_picture_597725.jpg" />
 </div>
 
 
@@ -304,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597639.jpg" />
+  <img src="Z:/picture/008/save_picture_597639.jpg" />
 </div>
 
 
@@ -330,7 +364,7 @@ Predators™ 1.5.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597566.jpg" />
+  <img src="Z:/picture/008/save_picture_597566.jpg" />
 </div>
 
 
@@ -357,7 +391,7 @@ Warhammer 40,000: Carnage 214208[En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597432.jpg" />
+  <img src="Z:/picture/008/save_picture_597432.jpg" />
 </div>
 
 
@@ -383,7 +417,7 @@ Thenx v4.25 [En] - Сборник упражнений с собственным
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597396.jpg" />
+  <img src="Z:/picture/008/save_picture_597396.jpg" />
 </div>
 
 
@@ -409,7 +443,7 @@ Ultimate Car Dock 2.3.6- Dashboard  - Используйте свой телеф
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597325.jpg" />
+  <img src="Z:/picture/008/save_picture_597325.jpg" />
 </div>
 
 
@@ -438,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597161.jpg" />
+  <img src="Z:/picture/008/save_picture_597161.jpg" />
 </div>
 
 
@@ -464,7 +498,7 @@ Anti Spy Mobile 1.9.5.5 Free / 1.9.10.8 Pro [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596282.jpg" />
+  <img src="Z:/picture/008/save_picture_596282.jpg" />
 </div>
 
 
@@ -492,7 +526,7 @@ HERCULES: THE OFFICIAL GAME 1.0.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596280.jpg" />
+  <img src="Z:/picture/008/save_picture_596280.jpg" />
 </div>
 
 
@@ -518,7 +552,7 @@ Smart Launcher Pro 3 3.07.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596199.jpg" />
+  <img src="Z:/picture/008/save_picture_596199.jpg" />
 </div>
 
 
@@ -547,7 +581,7 @@ Hola Launcher 1.8.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596108.jpg" />
+  <img src="Z:/picture/008/save_picture_596108.jpg" />
 </div>
 
 
@@ -576,7 +610,7 @@ Lost Within 1.00 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596104.jpg" />
+  <img src="Z:/picture/008/save_picture_596104.jpg" />
 </div>
 
 
@@ -602,7 +636,7 @@ MIUI Weather 7 1.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596101.jpg" />
+  <img src="Z:/picture/008/save_picture_596101.jpg" />
 </div>
 
 
@@ -629,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596093.jpg" />
+  <img src="Z:/picture/008/save_picture_596093.jpg" />
 </div>
 
 
@@ -658,7 +692,7 @@ PhotoSuite 4 Photo Editor v4.3.688 [Ru/En] - мобильная фотостуд
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595777.jpg" />
+  <img src="Z:/picture/008/save_picture_595777.jpg" />
 </div>
 
 
@@ -669,32 +703,6 @@ PhotoSuite является приложением фотостудии с ши�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4163067717963A681693344471E13F351468F763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 782208   (595768) от 03.07.2015
-
-Paper Artist v2.1.0 [Ru/Multi]  - применение всевозможных фильтров к фотографиям
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paper Artist – это достаточно увлекательная и удобная в использовании программа для редактирования фото на Android, а точнее наложения на фото различных эффектов. Еще с помощью такой программы можно фотографировать уже с выбранными вами фильтрами и получать готовые интересные картины. Фильтров в данном приложении достаточно много, так что скучать вам не придется. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 02.07.2014Разработчик: JFDP LabsПоддерживаемая ОС: Android 4.0.3+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E002F5ED0DADCF1353E3BFB061670524DF2B8E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

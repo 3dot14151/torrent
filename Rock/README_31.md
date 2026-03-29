@@ -1,3 +1,32 @@
+###  Публикация: 1221672   (693172) от 25.04.2018
+
+Aaron Fink (ex. Breaking Benjamin) - Wolves & Butterflies (2018) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Tooth
+02. Rock Steady Girl
+03. Golden Days
+04. Big Bad World(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9278E268DA095D13DE204C1E428866191841985E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221687   (693082) от 25.04.2018
 
 Aaron Fink (ex. Breaking Benjamin) - Heavy Feathers (2016) [MP3|320 Kbps] <Classic Rock>
@@ -6,7 +35,7 @@ Aaron Fink (ex. Breaking Benjamin) - Heavy Feathers (2016) [MP3|320 Kbps] <Class
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693082.jpg" />
+  <img src="Z:/picture/008/save_picture_693082.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ BrainStorm - Par to zenu, kas sit skarda bungas (2018) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692978.jpg" />
+  <img src="Z:/picture/008/save_picture_692978.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Cate Rox - Mind vs. Heart (2016) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692971.jpg" />
+  <img src="Z:/picture/008/save_picture_692971.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ BrainStorm - Wonderful Day (2018) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692894.jpg" />
+  <img src="Z:/picture/008/save_picture_692894.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Women In Rock (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691935.jpg" />
+  <img src="Z:/picture/008/save_picture_691935.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Sid Rumpo - First Offense (1974) Remastered, 1993, Mushroom [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691651.jpg" />
+  <img src="Z:/picture/008/save_picture_691651.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ The Winter Tree (Magus) - Mr. Sun (2017) [MP3|320 Kbps] <Neo Progressive Rock, A
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691477.jpg" />
+  <img src="Z:/picture/008/save_picture_691477.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Foreigner - With the 21st Century Symphony Orchestra & Chorus (2018) Live [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691264.jpg" />
+  <img src="Z:/picture/008/save_picture_691264.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ God Is an Astronaut - Epitaph (2018) [MP3|320 Kbps] <Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691263.jpg" />
+  <img src="Z:/picture/008/save_picture_691263.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Erik Norlander - Surreal (2016) [MP3|320 кб/с] <Symphonic Prog Rock, Electron
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690862.jpg" />
+  <img src="Z:/picture/008/save_picture_690862.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Four Star Combo - Wait A Minute, Baby! (2014) [MP3|320 кб/с]<Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690636.jpg" />
+  <img src="Z:/picture/008/save_picture_690636.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Headpins - 3 Albums (1982-1985) [MP3|320 Kbps] <Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690384.jpg" />
+  <img src="Z:/picture/008/save_picture_690384.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - British Invasion Blues Rock (2018) [MP3|320 Kbps] <Rock, Blues, Pop, Folk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690070.jpg" />
+  <img src="Z:/picture/008/save_picture_690070.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Echoes - Live From The Dark Side A Tribute To Pink Floyd (2019) [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690062.jpg" />
+  <img src="Z:/picture/008/save_picture_690062.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Greatest Ever! Dad Rock (2016) 3CD [MP3|320 кб/с] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688673.jpg" />
+  <img src="Z:/picture/008/save_picture_688673.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ dArtagnan - In jener Nacht (2019) [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687727.jpg" />
+  <img src="Z:/picture/008/save_picture_687727.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Blackfoot Gypsies - To The Top (2017) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687453.jpg" />
+  <img src="Z:/picture/008/save_picture_687453.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Rod Stewart - Handbags & Gladrags: The Essential Rod Stewart (2018) [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686994.jpg" />
+  <img src="Z:/picture/008/save_picture_686994.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Steve Vai - Modern Primitive (2016) 2CD [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686486.jpg" />
+  <img src="Z:/picture/008/save_picture_686486.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Greatest Ever! Driving Rock (2012) 3CD [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686485.jpg" />
+  <img src="Z:/picture/008/save_picture_686485.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ VA - Greatest Ever! Rock Ballads (2014) 3CD [MP3|320 кб/с] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686396.jpg" />
+  <img src="Z:/picture/008/save_picture_686396.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Chris Norman - 25 Best Songs (2012) [MP3|211 - 271 кб/с]<Pop-Rock, Soft Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686337.jpg" />
+  <img src="Z:/picture/008/save_picture_686337.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Titanic - Titanic (1970) Reissue, 2000, Repertoire Records [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685076.jpg" />
+  <img src="Z:/picture/008/save_picture_685076.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Acoustic Classics. Rock Anthems (2017) [MP3|320 Kbps] <Rock, Acoustic>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684865.jpg" />
+  <img src="Z:/picture/008/save_picture_684865.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Visitor 2035 - Visitor 2035 (1978) LP [MP3|320 Kbps] <Electronic, Rock, Prog Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684335.jpg" />
+  <img src="Z:/picture/008/save_picture_684335.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Visitor 2035 - Visitor 2035 (1978) LP [MP3|320 Kbps] <Electronic, Rock, Prog Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CC18C76CE65F71663BCAC865429C6CA2BD13859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535445   (684307) от 07.03.2022
-
-Sweet - Reincarnation 1 (2022) Remastered [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reach out I'll Be There (Remastered) (04:12)
- 02. Over My Head (Remastered) (03:53)
- 03. Shot Me Down In Flames (Remastered) (04:18)
- 04. Jump The Fence (Remastered) (03:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5B11B7E21140257B50FCDBA670F2F3E36322CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

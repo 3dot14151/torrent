@@ -1,3 +1,107 @@
+###  Публикация: 1106315   (869825) от 21.02.2017
+
+Nat Geo Wild: Дикие острова: Невиданные острова / Unseen Islands (2015) HDTVRip [H.264/720p] (сезон 1, серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_869825.jpg" />
+</div>
+
+
+###  Подробнее
+
+До ближайшего населённого пункта тысячи километров.Эти скалы, разбросанные по семи морям, в числе самых удалённых мест на Земле. Но жизнь здесь кипит. Город пингвинов по населению не уступает Вашингтону, океан вокруг полон жизни. Края с жестокими нравами, где безобидные птицы становятся кровопийцами. Берега, на которых заканчиваются кругосветные путешествия и начинается (   Читать дальше...   )Телекомпания: США, Warenhouse 51 Productions & Redfern Natural History ProductionsЖанр: ДокументальныйРежиссер: Стюарт МакферсонПеревод: Одноголосый закадровый, профессиональный, озвучено на студии Велес, текст читает Олег БеловПродолжительность: 2x~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF99AC72B0C94FF50081BD89BC9E99FFF17F8CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106813   (869666) от 21.02.2017
+
+Discovery. Города живые и мёртвые. Молога - Мышкин HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_869666.jpg" />
+</div>
+
+
+###  Подробнее
+
+В каждой серии мы показываем один мертвый город и один живой, всегда объединенные некой ниточкой - сюжетной линией. Это города, которые имеют или имели либо общую экономическую составляющую, либо общее единое происхождение как моногорода вокруг однотипных предприятий, либо исторически как-то связанные.Трагедия Мологи - Российской Атлантиды и возвышение города-музея Мышкина, главного туристического центра Ярославской области. Молога - был основан еще в XII веке на том месте, где одноименная река впадает в Волгу. Благодаря такому близкому соседству рек при весеннем разливе местные луга затапливались, на них оставался ил, и летом здесь росла пышная трава, служившая (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: Документальный, ТелепередачаПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCF8A8374304A90C2E678128A2B4841763857E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496885   (869506) от 19.09.2021
+
+Теория относительности Эйнштейна / The Einstein Theory of Relativity (1923) WEBRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_869506.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 20-го века теория относительности Альберта Эйнштейна была революционной, поскольку она дала новое восприятие реальности. С помощью анимированных иллюстраций братья Флейшеры простым языком объясняют общие принципы этой теории.Производство: США, Out of the Inkwell FilmsЖанр: Документальный, научно-популярныйРежиссер: Дэйв Флейшер, Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17DDB065412AD4D209E4ACCC58D6CA1CAC8BCEE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106567   (869382) от 21.02.2017
+
+Вселенная твоего тела / You Planet (2012) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_869382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неведомый мир, выходящий за пределы воображения... Горы и каньоны, впадины и пологие равнины... Здесь обитают самые невообразимые живые создания. И их тут - мириады, несметное множество. На этой планете свыше ста триллионов обитателей. Казалось бы, этот причудливый мир должен находиться на расстоянии в несколько световых лет от Земли. Но эта диковинная планета расположена (   Читать дальше...   )Телекомпания: АвстрияЖанр: ДокументальныйРежиссер: Мартин МесарошПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3EA4074A5D9B32823138494E205AEBDD6FB1D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374953   (868533) от 12.04.2020
 
 BBC: Трагедия близнеца Титаника / Titanic's Tragic Twin: The Britannic Disaster (2016) HDTVRip [H.264/1080p-LQ]
@@ -6,7 +110,7 @@ BBC: Трагедия близнеца Титаника / Titanic's Tragic Twin:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868533.jpg" />
+  <img src="Z:/picture/008/save_picture_868533.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery: Строительство небоскреба "Шард" / The Tall
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867693.jpg" />
+  <img src="Z:/picture/008/save_picture_867693.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867540.jpg" />
+  <img src="Z:/picture/008/save_picture_867540.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ BBC. Точность и погрешность измерений / Precision: 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866524.jpg" />
+  <img src="Z:/picture/008/save_picture_866524.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866219.jpg" />
+  <img src="Z:/picture/008/save_picture_866219.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865954.jpg" />
+  <img src="Z:/picture/008/save_picture_865954.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Discovery. Города живые и мёртвые. Губаха HDTVRip [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865925.jpg" />
+  <img src="Z:/picture/008/save_picture_865925.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ Discovery. Города живые и мёртвые. Аксай HDTVRip [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865918.jpg" />
+  <img src="Z:/picture/008/save_picture_865918.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Animal Planet:Дикие и опасные. Нападение леопарда 
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865572.jpg" />
+  <img src="Z:/picture/008/save_picture_865572.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NG: Суперспособности животных / Animal Superpowers (2012
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864413.jpg" />
+  <img src="Z:/picture/008/save_picture_864413.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Discovery. Города живые и мёртвые. Совза - Вытегр�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864261.jpg" />
+  <img src="Z:/picture/008/save_picture_864261.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip (1-3 с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864193.jpg" />
+  <img src="Z:/picture/008/save_picture_864193.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ History Channel. Мифы и правда о Карле Великом / Karl de
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864186.jpg" />
+  <img src="Z:/picture/008/save_picture_864186.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864180.jpg" />
+  <img src="Z:/picture/008/save_picture_864180.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863435.jpg" />
+  <img src="Z:/picture/008/save_picture_863435.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) BDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862538.jpg" />
+  <img src="Z:/picture/008/save_picture_862538.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862148.jpg" />
+  <img src="Z:/picture/008/save_picture_862148.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Viasat History: Тени средневековья / Medieval Dead (2013-2016) 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860319.jpg" />
+  <img src="Z:/picture/008/save_picture_860319.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ History Channel. Ланкастер на войне / The Lancaster at War (2009
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858978.jpg" />
+  <img src="Z:/picture/008/save_picture_858978.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858771.jpg" />
+  <img src="Z:/picture/008/save_picture_858771.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858653.jpg" />
+  <img src="Z:/picture/008/save_picture_858653.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ Discovery: Самогонщики (серии 1-6 + спецвыпуск) / Disc
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858526.jpg" />
+  <img src="Z:/picture/008/save_picture_858526.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ Discovery: Самогонщики (серии 1-6 + спецвыпуск) / Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86373B03414785BD0F354D48FAA626DB7AA46BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839178   (857370) от 26.03.2016
-
-Discovery: Будущее с Джеймсом Вудсом. Как стать суперчеловеком? / Futurescape with James Woods. How to be a Superhuman? (2014) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте, что вы можете читать мысли других людей с помощью своего мобильного телефона, а вместо автомобиля используете костюм из фильма «Железный человек». Вы не страдаете от болезней, потому что даже рак исцеляется с помощью специальных имплантатов. Технологии, которые несколько лет назад встречались только в фантастической литературе, постепенно проникают в (   Читать дальше...   )Жанр: Научно-популярный, познавательный, фантастикаПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C26EFFE98935649210DACFAD6EA3EA106B7D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 190137   (856325) от 09.04.2010
-
-BBC: История Единицы с Терри Джонсом / The Story of 1 (2005) SATRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как «единица» помогла построить первые города и великие империи? Как вдохновляла выдающиеся умы человечества? Какую роль в появлении денег она сыграла? Как «единица» объединилась с нулем, чтобы править современным миром? История единицы неразрывно связана с историей европейской цивилизации. Терри Джонс отправляется в юмористическое путешествие с целью собрать воедино (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875575   (855970) от 07.03.2015
-
-NG: Дикая Флорида  / Wild Florida (2013) BDRip [H.264/720p] (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855970.jpg" />
-</div>
-
-
-###  Подробнее
-
-За пределами парка "Магическое королевство" Диснейленда находится дикая часть Флориды, где захватывающая красота ландшафта объединяется с живой природой, и здесь, между лабиринтами кипарисовых болот, людными пляжами и коралловыми островами развязываются безжалостные драмы. Две истории проведут нас в эту скрытую дикую местность, где нашему взгляду откроются (   Читать дальше...   )Производство: США, Produced By 2C Media, INC. For National Geographic ChannelsЖанр: Документальный, познавательный, природа, флора, фаунаРежиссер: Вирджиния СоммаПеревод: ДублированныйПродолжительность: 2 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7392AB12FF6FBA9F491CBF6B0DFF28AF9DCE3F65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304018   (854542) от 08.03.2011
-
-Discovery: Смертельный улов / Deadliest Catch (2005) TVRip (Сезон 1, Серии 1-10 из 10)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал, который рассказывает о соревновании рыболовецких судов в Беринговом море во время сезонов ловли королевского краба и краба-опилио (стригуна). База действий - Датч-Харбор, порт на небольшом острове Амакнак в бухте Уналашка, близ острова Уналашка из группы Алеутских островов. Команды судов подвергаются огромному риску. В любой момент можно получить травму или (   Читать дальше...   )Производство: США, Discovery NetworkЖанр: Документальный, приключения, реалити-ТВПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 10 серий по ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC9955AA88229F89E41D0E23F3DD5AAC9BCC974
 ```
 
 https://mybot314.ru/tekegram_catalog/

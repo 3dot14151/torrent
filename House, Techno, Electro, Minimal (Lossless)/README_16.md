@@ -1,3 +1,90 @@
+###  Публикация: 1114904   (829973) от 16.03.2017
+
+Zhestyanshiki (Жестяньщики) - Luxury (2016) [FLAC|Lossless|WEB|tracks] <Pumping House , Hard Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pumping Power (5:22)
+02. Funny (4:08)
+03. Hard Pump (5:01)
+04. Lights (Instrumental) (3:06)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83790DB9C8A79F7AF0CD4CCE99218AC676319337
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114902   (829890) от 16.03.2017
+
+XS Project - The New Pumping Attack (2016) [FLAC|Lossless|WEB|tracks] <Pumping House , Hard Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xs Project - 1 Oak (4:04)
+02. Xs Project - Monstro (3:52)
+03. Xs Project - Грозный (4:27)
+04. Xs Project - Mad Magazine (3:31)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018EF88082E2C63201487452F7069F027858D93B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380980   (829771) от 05.05.2020
+
+Night Sea - Still (2020) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Will Take Time (05:07)
+ 02. HDSB (06:41)
+ 03. Small Bird (05:38)
+ 04. Sukho (05:53)(   Читать дальше...   )Жанр: Ambient, Dub Techno, Techno AmbientПродолжительность: 00:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE065D88793CD218850833FA2601A309A7DF01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006392   (829209) от 11.04.2016
 
 Richard Davis - Safety (2002) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
@@ -6,7 +93,7 @@ Richard Davis - Safety (2002) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829209.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Richard Davis - Details (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Minima
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829207.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Pumping Storm from 2005 to 2015 (10 Years Bundle Pack) (Mixed by XS Project
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829103.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Hardwell feat. Jake Reese - Mad World: The Remixes (2016) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829079.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ U96 - Das Boot (1992) [FLAC|Lossless|image + .cue] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828384.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ U96 - The Dark Matter EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826985.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Tiesto - Together Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826512.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ The New Deal - Mercury Switch (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825477.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Miss Monique - FGIX (2020) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824843.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - Nu Disco, Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Deep Hou
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824439.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ VA - Yoshitoshi: Best Of 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824235.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Bob Moses - Days Gone By (Never Enough Edition) (2016) [FLAC|Lossless|WEB-DL|tra
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823888.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Klartraum - E (2016) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823020.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ VA - 2020 Disco Party (2020) [FLAC|Lossless|WEB-DL|tracks] <Jackin' House, House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822770.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ VA - F....U Corona (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Afro House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822663.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ VA - Focus On Nicholas Van Orton (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822552.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ VA - Inner Symphony Gold 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822423.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ VA - Erotica (2000) [FLAC|Lossless|WEB-DL|tracks] <House, Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822419.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ The New Deal - Live: Portland Me 12.17.99 (2000) [FLAC|Lossless|tracks + .cue] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821693.jpg" />
+  <img src="Z:/picture/008/save_picture_821693.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Booka Shade - Dear Future Self (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820887.jpg" />
+  <img src="Z:/picture/008/save_picture_820887.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Deadmau5 - Stuff I Used To Do (2017) [FLAC|Lossless|WEB|tracks] <Electro House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820665.jpg" />
+  <img src="Z:/picture/008/save_picture_820665.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Giash - Brightness Is All (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819901.jpg" />
+  <img src="Z:/picture/008/save_picture_819901.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Timboletti - Hintersee (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819747.jpg" />
+  <img src="Z:/picture/008/save_picture_819747.jpg" />
 </div>
 
 
@@ -658,89 +745,6 @@ Timboletti - Hintersee (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68AD2D286EB310724537EAF6790B0ECE7A9EF32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007547   (819552) от 16.04.2016
-
-Jonas Blue - Fast Car (feat. Dakota) (2016) [FLAC|Lossless|WEB-DL|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Car (Radio Edit) (3:35)
-02. Fast Car (Club Edit) (3:17)Жанр: HouseПродолжительность: 00:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC66C4BFB8B020CD74213F16222E9403D4915B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007525   (819453) от 16.04.2016
-
-VA - Urban Dance, Vol. 16 (2016) Scene [FLAC|Lossless|WEB-DL|tracks] <Dance, Deep House, EDM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819453.jpg" />
-</div>
-
-
-###  Подробнее
-
-04. Another Lonely Night (3:46)
-01. Faded (3:32)
-18. Little Swing (2:43)
-11. The Horns (Radio Remix) (3:32)(   Читать дальше...   )Жанр: Dance, Deep House, EDM, HouseПродолжительность: 03:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D241F3822FEFEF494F1C8F54029DADA0399BC9D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196863   (819205) от 05.01.2018
-
-Alpha Delta Division - Outer Rim (2017) Sloboda [FLAC|Lossless|tracks|Vinyl] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outer Rim (13:36)
- 02. Region 114 (12:51)Жанр: TechnoПродолжительность: 00:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42A3400B7B946EC37701C26B5EC32B9A344CFE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

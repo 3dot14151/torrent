@@ -1,3 +1,87 @@
+###  Публикация: 1278442   (771828) от 25.01.2019
+
+Ирина Грин | Сквозь аметистовые очки (2019) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наконец-то Иван Рыбак и Ася Субботина – сотрудники детективно-консалтингового агентства «Кайрос» – решили пожениться! Но накануне свадьбы невеста бесследно исчезла… Неужели разлюбила Ивана? Нашла жениха побогаче? Или попала в беду?
+Оказалось, Асю похитил человек, у которого среди бела дня на шумном курорте исчезла жена. Отчаявшись получить помощь официальным путем, (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B032DC19F723769D27F144279F2BD029E16630FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213241   (771756) от 16.03.2018
+
+Юлия Нелидова | Дело о бюловском звере (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Иван Иноземцев».
+
+1886 год. Молодой доктор Иван Иноземцев, чудак, готовый ради эксперимента впрыснуть себе любое только что изобретенное средство, до того надоел столичной полиции своими взрывающимися склянками, что его не сегодня завтра объявят бомбистом. От греха подальше коллеги помогают ему устроиться уездным лекарем в глубинке. Только кто (   Читать дальше...   )Жанр: Исторические детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CEC9E09FABAE2B7797F87FE21E545A159C4656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016842   (769444) от 15.05.2016
+
+Мариша Пессл | Ночное кино (2016) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_769444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовый кинорежиссер Станислас Кордова не появлялся на публике больше тридцати лет. Вот уже четверть века его фильмы не выходили в широкий прокат, демонстрируясь лишь на тайных просмотрах, известных как «ночное кино».
+Для своих многочисленных фанатов он человек-загадка.
+Для журналиста Скотта Макгрэта – враг номер один.
+А для юной пианистки-виртуоза Александры – (   Читать дальше...   )Жанр: Триллеры, Зарубежные детективыПеревод: Анастасия ГрызуноваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91971E773BD287CE167A2D41151D4C991C19D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392392   (769315) от 25.06.2020
 
 Дарья Донцова | Хип-хоп маленьких лебедей (2020) [FB2]
@@ -6,7 +90,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769315.jpg" />
+  <img src="Z:/picture/008/save_picture_769315.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768516.jpg" />
+  <img src="Z:/picture/008/save_picture_768516.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768414.jpg" />
+  <img src="Z:/picture/008/save_picture_768414.jpg" />
 </div>
 
 
@@ -86,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767892.jpg" />
+  <img src="Z:/picture/008/save_picture_767892.jpg" />
 </div>
 
 
@@ -112,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767891.jpg" />
+  <img src="Z:/picture/008/save_picture_767891.jpg" />
 </div>
 
 
@@ -138,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767881.jpg" />
+  <img src="Z:/picture/008/save_picture_767881.jpg" />
 </div>
 
 
@@ -164,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767836.jpg" />
+  <img src="Z:/picture/008/save_picture_767836.jpg" />
 </div>
 
 
@@ -190,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767348.jpg" />
+  <img src="Z:/picture/008/save_picture_767348.jpg" />
 </div>
 
 
@@ -216,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767340.jpg" />
+  <img src="Z:/picture/008/save_picture_767340.jpg" />
 </div>
 
 
@@ -242,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767322.jpg" />
+  <img src="Z:/picture/008/save_picture_767322.jpg" />
 </div>
 
 
@@ -271,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767320.jpg" />
+  <img src="Z:/picture/008/save_picture_767320.jpg" />
 </div>
 
 
@@ -297,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767037.jpg" />
+  <img src="Z:/picture/008/save_picture_767037.jpg" />
 </div>
 
 
@@ -323,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766839.jpg" />
+  <img src="Z:/picture/008/save_picture_766839.jpg" />
 </div>
 
 
@@ -351,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766213.jpg" />
+  <img src="Z:/picture/008/save_picture_766213.jpg" />
 </div>
 
 
@@ -380,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766096.jpg" />
+  <img src="Z:/picture/008/save_picture_766096.jpg" />
 </div>
 
 
@@ -406,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766071.jpg" />
+  <img src="Z:/picture/008/save_picture_766071.jpg" />
 </div>
 
 
@@ -432,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766036.jpg" />
+  <img src="Z:/picture/008/save_picture_766036.jpg" />
 </div>
 
 
@@ -458,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765419.jpg" />
+  <img src="Z:/picture/008/save_picture_765419.jpg" />
 </div>
 
 
@@ -486,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765397.jpg" />
+  <img src="Z:/picture/008/save_picture_765397.jpg" />
 </div>
 
 
@@ -512,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765342.jpg" />
+  <img src="Z:/picture/008/save_picture_765342.jpg" />
 </div>
 
 
@@ -541,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765329.jpg" />
+  <img src="Z:/picture/008/save_picture_765329.jpg" />
 </div>
 
 
@@ -570,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765279.jpg" />
+  <img src="Z:/picture/008/save_picture_765279.jpg" />
 </div>
 
 
@@ -596,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764476.jpg" />
+  <img src="Z:/picture/008/save_picture_764476.jpg" />
 </div>
 
 
@@ -607,84 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55E5B9FE281819939335F758A1312D60F5EB14D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126999   (764474) от 19.04.2017
-
-Джон Диксон Карр | Расследования доктора Гидеона Фелла. Первая улика [сборник] (2015) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие мужчины в роду Старбертов погибают, сломав шею. По преданию, это месть повешенных ими заключенных – Старберты издавна служили надзирателями в старинной тюрьме, теперь превратившейся в руины. Та же участь постигает и молодого Мартина Старберта – его находят со сломанной шеей возле тюремного колодца. К расследованию подключается доктор Гидеон Фелл. Он понимает, (   Читать дальше...   )Жанр: Зарубежные детективы, Классические детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C503C6D6C2745E0EF8BCF4E290AD70E7D18ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017255   (762957) от 16.05.2016
-
-Рональд Нокс | Убийство на виадуке. Три вентиля (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре поклонника детективов из фешенебельного гольф-клуба, мнящие себя великими сыщиками-любителями – священник, отставной чиновник, университетский профессор и журналист, – обнаруживают у виадука труп. Возможно, лучше было бы предоставить возможность полиции разобраться в случившемся, но разве четверка предприимчивых интеллектуалов откажется от долгожданного шанса (   Читать дальше...   )Жанр: Классический детективФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE3DF030B21E30B4A60AA8F9223D7894058CC3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017264   (762834) от 16.05.2016
-
-Энн Перри | Брат мой Каин (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762834.jpg" />
-</div>
-
-
-###  Подробнее
-
-К частному сыщику Уильяму Монку обратилась жена успешного коммерсанта Энгуса Стоунфилда, который в одно прекрасное утро ушел в свою контору – и не вернулся домой. Монк сразу же счел этот случай неинтересным – наверняка у пропавшего просто появилась другая женщина или он сбежал из-за финансовых проблем. Но миссис Стоунфилд заявила, что, без сомнений, в исчезновении (   Читать дальше...   )Жанр: Классические детективы, Зарубежные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFDFACE4E71B38D33A81197C14CEC7A0FCF5DD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

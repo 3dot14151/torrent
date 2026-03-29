@@ -1,3 +1,135 @@
+###  Публикация: 1511848   (788384) от 22.11.2021
+
+FotoJet Photo Editor 1.0.7 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788384.jpg" />
+</div>
+
+
+###  Подробнее
+
+FotoJet Photo Editor позволяет каждому в кратчайшие сроки стать экспертом в области редактирования фотографий. Он позволяет не только легко редактировать фотографии и применять потрясающие фильтры, но также добавлять наложения, рамки, текст, клипарты и т. д.Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 PearlMountain Technology Co., Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0667E9CEAA430EC7E2308C242FFD6FCA535DE744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511761   (788382) от 22.11.2021
+
+MonitorControl 4.0.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте яркостью дисплея на Mac, как если бы это был собственный дисплей Apple. Используйте клавиши Apple Keyboard или настраиваемые сочетания клавиш.
+Лучшее в своем роде приложение, совершенно бесплатное, с открытым исходным кодом.Тип издания: macOS SoftwareРелиз состоялся: 19.11.2021Разработчик: © 2021 Joni Van RoostПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B033314369683E24264E3B15BB595EB8214F5927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511841   (788380) от 22.11.2021
+
+FotoJet Designer 1.2.0 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощное, но простое в использовании приложение для графического дизайна для mac OS X. FotoJet Designer делает графический дизайн проще, чем когда-либо. Благодаря 900 шаблонам, тысячам ресурсов и мощным инструментам редактирования вы можете создавать профессиональные проекты. Не обладая профессиональными навыками, любой может создать уникальный дизайн, например графику (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 PearlMountain Technology Co., Ltd.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4175A0D5F1873B7D7C425D7D7E3A2C953CD1A5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511707   (788363) от 22.11.2021
+
+SwitchGlass 1.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788363.jpg" />
+</div>
+
+
+###  Подробнее
+
+SwitchGlass это новый проект Джона Сиракузы который приносит выделенный переключатель приложений Mac со многими вариантами настройки.Тип издания: macOS SoftwareРелиз состоялся: 18.11.2020Разработчик: © 2021 Hypercritical LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B9A07BD4C1A25E6D9F67DF1BB7BAC8706EAD94E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511789   (788350) от 22.11.2021
+
+FxFactory Pro 7.2.6 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788350.jpg" />
+</div>
+
+
+###  Подробнее
+
+FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
+Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2021Разработчик: © 2021 Noise Industries, LLCПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5C55E7200A1327250C27C151AEF58868859E732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276407   (788109) от 16.01.2019
 
 WinZip Pro 6.5.4149 [En]
@@ -6,7 +138,7 @@ WinZip Pro 6.5.4149 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788109.jpg" />
+  <img src="Z:/picture/008/save_picture_788109.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ Wondershare Data Recovery 6.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788013.jpg" />
+  <img src="Z:/picture/008/save_picture_788013.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ Shapes 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787956.jpg" />
+  <img src="Z:/picture/008/save_picture_787956.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ InternetSpeedTest 2.9.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787877.jpg" />
+  <img src="Z:/picture/008/save_picture_787877.jpg" />
 </div>
 
 
@@ -115,7 +247,7 @@ OmniPlan Pro 3 v3.10.4 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787875.jpg" />
+  <img src="Z:/picture/008/save_picture_787875.jpg" />
 </div>
 
 
@@ -141,7 +273,7 @@ Devonthink Pro Office 2.11.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787873.jpg" />
+  <img src="Z:/picture/008/save_picture_787873.jpg" />
 </div>
 
 
@@ -167,7 +299,7 @@ Pixelmator Classic 3.9.9 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787856.jpg" />
+  <img src="Z:/picture/008/save_picture_787856.jpg" />
 </div>
 
 
@@ -193,7 +325,7 @@ MP3 Cutter Joiner 6.6 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787842.jpg" />
+  <img src="Z:/picture/008/save_picture_787842.jpg" />
 </div>
 
 
@@ -219,7 +351,7 @@ Reallusion Cartoon Animator 4 v4.51 Pipeline macOS [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787831.jpg" />
+  <img src="Z:/picture/008/save_picture_787831.jpg" />
 </div>
 
 
@@ -245,7 +377,7 @@ Folx GO+ 5.26 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787773.jpg" />
+  <img src="Z:/picture/008/save_picture_787773.jpg" />
 </div>
 
 
@@ -273,7 +405,7 @@ OmniPlan Pro 3.9 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787679.jpg" />
+  <img src="Z:/picture/008/save_picture_787679.jpg" />
 </div>
 
 
@@ -299,7 +431,7 @@ PaintCode 3.3.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787677.jpg" />
+  <img src="Z:/picture/008/save_picture_787677.jpg" />
 </div>
 
 
@@ -325,7 +457,7 @@ TunesKit Audio Capture 2.0.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787624.jpg" />
+  <img src="Z:/picture/008/save_picture_787624.jpg" />
 </div>
 
 
@@ -353,7 +485,7 @@ TunesKit Video Cutter 2.0.0 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787623.jpg" />
+  <img src="Z:/picture/008/save_picture_787623.jpg" />
 </div>
 
 
@@ -379,7 +511,7 @@ Arturia Pigments 1.1.1.503 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787616.jpg" />
+  <img src="Z:/picture/008/save_picture_787616.jpg" />
 </div>
 
 
@@ -406,7 +538,7 @@ JPEGmini Pro 2.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787504.jpg" />
+  <img src="Z:/picture/008/save_picture_787504.jpg" />
 </div>
 
 
@@ -434,7 +566,7 @@ Infinite Color Panel 1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787442.jpg" />
+  <img src="Z:/picture/008/save_picture_787442.jpg" />
 </div>
 
 
@@ -460,7 +592,7 @@ Visible Body Muscle Premium 7.1.56 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787361.jpg" />
+  <img src="Z:/picture/008/save_picture_787361.jpg" />
 </div>
 
 
@@ -486,7 +618,7 @@ Visible Body Anatomy & Physiology 6.2.07 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787347.jpg" />
+  <img src="Z:/picture/008/save_picture_787347.jpg" />
 </div>
 
 
@@ -513,7 +645,7 @@ Hedge 18.3.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787251.jpg" />
+  <img src="Z:/picture/008/save_picture_787251.jpg" />
 </div>
 
 
@@ -540,7 +672,7 @@ Silverstack Lab 6.4.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787240.jpg" />
+  <img src="Z:/picture/008/save_picture_787240.jpg" />
 </div>
 
 
@@ -551,142 +683,6 @@ Silverstack Lab - это первое программное обеспечен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8424BEF7D91D02217F3E13A3C9FFFE1D9F856EC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276911   (787233) от 18.01.2019
-
-FileMaker Pro 17 Advanced 17.0.4.400 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787233.jpg" />
-</div>
-
-
-###  Подробнее
-
-FileMaker Pro — это мощное и удобное программное обеспечение для создания пользовательских приложений, беспрепятственно работающих на iPad, iPhone, Windows, Mac и в браузерах.
-
-Легко создавайте собственные пользовательские приложения, соответствующие уникальным и постоянно меняющимся потребностям вашего бизнеса. Источником вдохновения для вас могут стать встроенные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: FileMaker, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA0874DDB0532959807AFEE975B78BE8DCAEE55A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512627   (787125) от 25.11.2021
-
-DxO PhotoLab 4 ELITE Edition 4.3.5 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обрабатывайте RAW и JPEG изображения в наилучшем качестве без труда: DxO PhotoLab обеспечивает полный набор умных коррекций, которые Вы можете настроить в ручную в любой момент. Возьмите контроль над Вашими фото: эффективно убирайте шум, исправляйте освещение, восстанавливайте детали цветов, корректируйте оптические искажения и улучшайте детализацию.
-Придайте Вашим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.11.2021Разработчик: DxO LabsПоддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A7200C0116389E031F70BF5D1C44B8562C7D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512555   (787123) от 25.11.2021
-
-Allavsoft Video Downloader Converter 3.24.0.7999 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B376369345986B817BFBED0F4252CCE3A063768C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512530   (787118) от 25.11.2021
-
-Flexi Player Turntable 1.4 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старые песни на новый лад и снова веселые. Flexi Player - это интерактивный музыкальный проигрыватель с множеством эффектов и настоящим проигрывателем.
-Легко переделывать и воспроизводить свои песни.
-Flexi использует свою собственную аудиотехнологию Hi-Fi и даже лучше, чем настоящие виниловые проигрыватели, поскольку может обновлять звук одним нажатием кнопки. Вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: Aleksandar MlazevПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0861B34CB383C77141E317FE384F6D9919AAAE6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512505   (787041) от 25.11.2021
-
-iExplorer 4.5.0 fix [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
-iExplorer - утилита для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2021Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25C84D135EB90E07ED5935530A3A4E46D8AB9AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

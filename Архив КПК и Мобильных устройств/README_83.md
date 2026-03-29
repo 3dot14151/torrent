@@ -1,3 +1,29 @@
+###  Публикация: 542170   (314618) от 01.12.2012
+
+[Программа] (Android 1.5+) Nova Battery Tester 1.75 - Тестирование реальной емкости батареи /обновлено 30.11.12/
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_314618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тестирование и определение реальной емкости аккумуляторной батареи телефона или планшета.Разработчик: Nano DynamicsЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 417892   (314134) от 02.12.2011
 
 [Игра] (Android 2.1+) Puzzle Sphere (1.1)
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314134.jpg" />
+  <img src="Z:/picture/008/save_picture_314134.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ MOBILedit! Enterprise 8.7.1.21224 Portable by Maverick [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313114.jpg" />
+  <img src="Z:/picture/008/save_picture_313114.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ BAD 2 BAD: EXTINCTION v2.9.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312863.jpg" />
+  <img src="Z:/picture/008/save_picture_312863.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Tactical Monsters Rumble Arena v1.18.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312826.jpg" />
+  <img src="Z:/picture/008/save_picture_312826.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_311953.jpg" />
+  <img src="Z:/picture/005/save_picture_311953.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ PhraseBox PRO 1.8.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311889.jpg" />
+  <img src="Z:/picture/008/save_picture_311889.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311780.jpg" />
+  <img src="Z:/picture/008/save_picture_311780.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ NumBuster Pro 4.3.5 / Кто звонит? Чей номер телефона  [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311274.jpg" />
+  <img src="Z:/picture/008/save_picture_311274.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309240.jpg" />
+  <img src="Z:/picture/008/save_picture_309240.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ Smart Launcher Pro 3 3.11.24 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309019.jpg" />
+  <img src="Z:/picture/008/save_picture_309019.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308891.jpg" />
+  <img src="Z:/picture/008/save_picture_308891.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Tencent WeSecure Antivirus 1.4.0.418 [En] - Антивирус
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308737.jpg" />
+  <img src="Z:/picture/008/save_picture_308737.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ LectureNotes v2.7.7 [Ru/Multi] - рукописные заметки
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308732.jpg" />
+  <img src="Z:/picture/008/save_picture_308732.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ Cars Master - Угадай машину 1.4 [Ru/En] Авторская разд�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307434.jpg" />
+  <img src="Z:/picture/008/save_picture_307434.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ VHS Camera Recorder v1.5.3 [En] - Съемка видео и фото в сти�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307382.jpg" />
+  <img src="Z:/picture/008/save_picture_307382.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306788.jpg" />
+  <img src="Z:/picture/008/save_picture_306788.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306567.jpg" />
+  <img src="Z:/picture/008/save_picture_306567.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ Babbel – Learn Languages Premium 5.6.060612 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306315.jpg" />
+  <img src="Z:/picture/008/save_picture_306315.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ busuu - Легкое изучение языков 8.1.164 [Ru] Premium
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306181.jpg" />
+  <img src="Z:/picture/008/save_picture_306181.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Mobile Mail.Ru Agent 2.2.315 - 6.11.4540 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304180.jpg" />
+  <img src="Z:/picture/008/save_picture_304180.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Mine Survival v2.2.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304159.jpg" />
+  <img src="Z:/picture/008/save_picture_304159.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304014.jpg" />
+  <img src="Z:/picture/008/save_picture_304014.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Adobe Illustrator Draw 1.1.118 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302723.jpg" />
+  <img src="Z:/picture/008/save_picture_302723.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Weather Timeline - Forecast 1.5.9 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302705.jpg" />
+  <img src="Z:/picture/008/save_picture_302705.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302391.jpg" />
+  <img src="Z:/picture/008/save_picture_302391.jpg" />
 </div>
 
 
@@ -650,35 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:741BBF3885F1CB3FCE3035227C76E91D0CAEBA72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423327   (301903) от 12.11.2020
-
-Horror Show v0.96 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Horror Show - атмосферный хоррор на Android с необычным геймплеем. Вам предстоит выбрать, кем вы будете: маньяком или выжившим.
-
-Особенности игры Horror Show:
-Леденящие кровь звуковые эффекты;(   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 9 ноября 2020 г.Разработчик: Azur Interactive Games LimitedПоддерживаемая ОС: Android 4.4 и вышеЖанр: Action (Экшен)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66ECE35EF94E78E482ED73DCD2F373BFE8A1CF58
 ```
 
 https://mybot314.ru/tekegram_catalog/

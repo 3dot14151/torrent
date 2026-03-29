@@ -1,3 +1,81 @@
+###  Публикация: 1219333   (714964) от 13.04.2018
+
+SINISTRY SILINIUM (2018) [Ru/En] (1.04) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714964.jpg" />
+</div>
+
+
+###  Подробнее
+
+SINISTRY SILINIUM - это психологический хоррор с элементами экшена, стелса и головоломки. Вас ожидает интригующая история главного героя, попавшего в небольшой городок, где, в следствие экспериментов со звуковыми волнами, всё население в той или иной степени лишилось рассудка и превратилось в подобие разношерстных обитателей психиатрических лечебниц.Тип издания: LicenseРазработчик: IgrodelskyЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: РусскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049C16BF66D0DB2CFAA6925AD6F026E8638BC063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286140   (714621) от 01.03.2019
+
+CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) License PLAZA [Episode 1-3]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714621.jpg" />
+</div>
+
+
+###  Подробнее
+
+За два года до нападения на полицейский участок в городе произошла страшная трагедия, повлёкшая за собой закрытие парка развлечений. Одни считают, что это несчастный случай, другие - что это хорошо спланированный акт устрашения. Листовки о без вести пропавших людях заполнили улицы городов.Тип издания: LicenseРазработчик: Walnut LLCЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B351BF2EA7C8DCDB44B18CEA75A273537D3651A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286186   (714359) от 01.03.2019
+
+CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) Repack Other s [Episode 1-3]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714359.jpg" />
+</div>
+
+
+###  Подробнее
+
+За два года до нападения на полицейский участок в городе произошла страшная трагедия, повлёкшая за собой закрытие парка развлечений. Одни считают, что это несчастный случай, другие - что это хорошо спланированный акт устрашения.Тип издания: RepackРазработчик: Walnut LLCЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5709E7F5BDF2D825758B1F85B5E2C127B8451A52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130563   (713935) от 02.05.2017
 
 Clockwise (2017) [Ru/Multi] (1.0) License HI2U
@@ -6,7 +84,7 @@ Clockwise (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713935.jpg" />
+  <img src="Z:/picture/008/save_picture_713935.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Tick Tock Bang Bang (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713274.jpg" />
+  <img src="Z:/picture/008/save_picture_713274.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Park (2015) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713074.jpg" />
+  <img src="Z:/picture/008/save_picture_713074.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Star Rage VR (2017) [En/Ch] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712992.jpg" />
+  <img src="Z:/picture/008/save_picture_712992.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Alien: Isolation (2014) [Ru/En] (1.0u9/dlc) Repack Decepticon [Digital Deluxe Ed
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712325.jpg" />
+  <img src="Z:/picture/008/save_picture_712325.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ I Expect You To Die (2017) [En] (1.0.113008) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711274.jpg" />
+  <img src="Z:/picture/008/save_picture_711274.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ FireStarter (2004) [En] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710214.jpg" />
+  <img src="Z:/picture/008/save_picture_710214.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Hold Out (2020) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708820.jpg" />
+  <img src="Z:/picture/008/save_picture_708820.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Beyond a Steel Sky (2020) [Ru/Multi] (1.1.26717up2) Repack xatab (обновля
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706817.jpg" />
+  <img src="Z:/picture/008/save_picture_706817.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ The Inevitability (2017) [En] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706304.jpg" />
+  <img src="Z:/picture/008/save_picture_706304.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ The Occupation (2019) [Ru/Multi] (1.02) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704700.jpg" />
+  <img src="Z:/picture/008/save_picture_704700.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Metamorphosis (2020) [Ru/Multi] (1.0) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703000.jpg" />
+  <img src="Z:/picture/008/save_picture_703000.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0/upd2) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702851.jpg" />
+  <img src="Z:/picture/008/save_picture_702851.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Mike was Сursed (2018) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702191.jpg" />
+  <img src="Z:/picture/008/save_picture_702191.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Inner Voices (2017) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698376.jpg" />
+  <img src="Z:/picture/008/save_picture_698376.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17512) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698244.jpg" />
+  <img src="Z:/picture/008/save_picture_698244.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Operation Flashpoint: Red River (2011) [Ru/En] (1.2.0.0) RePack Audioslave
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695491.jpg" />
+  <img src="Z:/picture/008/save_picture_695491.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Secret of Harrow Manor (2018) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694894.jpg" />
+  <img src="Z:/picture/008/save_picture_694894.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ A Second Before Us (2017) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694619.jpg" />
+  <img src="Z:/picture/008/save_picture_694619.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Heavy Fire: Shattered Spear (2015) [En/Multi] (1.1.8) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693896.jpg" />
+  <img src="Z:/picture/008/save_picture_693896.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Pursuer (2019) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691626.jpg" />
+  <img src="Z:/picture/008/save_picture_691626.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Umbrella Corps / Biohazard Umbrella Corps (2016) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689947.jpg" />
+  <img src="Z:/picture/008/save_picture_689947.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (1.3.2/dlc) Repack Mizantrop1337
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689785.jpg" />
+  <img src="Z:/picture/008/save_picture_689785.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Overkill’s The Walking Dead — энергичный кооперативны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4C5D1271439511B4964DFED77697A46E3EA8C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222121   (688939) от 27.04.2018
-
-Containment Initiative (2018) [En] (1.45) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Containment Initiative - это локальный кооперативный виртуальный шутер для HTC Vive. Игра состоит из трех различных миссий, в которых вы должны сдерживать полчища зараженных мутантов. Играйте самостоятельно или попросите друга помочь вам в борьбе с зомби при помощи ПК.Тип издания: LicenseРазработчик: Gwyn GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A00627EF99A5763A27F9AFE67AC6B00314B28FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134420   (688662) от 15.05.2017
-
-Prey (2017) [Ru/Multi] (1.0.2/dlc) SteamRip Let'sPlay
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Prey происходит в 2032 году. Вы обнаруживаете себя на лунной орбите, на борту космической станции «Талос-1». Эксперимент, в котором вы участвовали, должен был навсегда изменить человеческую расу, но привел к катастрофическим последствиям. Станцию захватили враждебные пришельцы, которые теперь ведут на вас охоту.Тип издания: SteamRipРазработчик: Arkane StudiosЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A231247C3062629DBDFC45DAEBEF6D02811BBC2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134621   (686777) от 16.05.2017
-
-STRAFE (2017) [En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686777.jpg" />
-</div>
-
-
-###  Подробнее
-
-STRAFE - это аркадный shoot'em'all шутер от первого лица с поддержкой виртуальной реальности, отсылающий игроков к культуре 90-х годов. Особенностями проекта является упрощенная графика и автоматическая генерация уровней.Тип издания: LicenseРазработчик: Pixel TitansЖанр: Action (Shooter), 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29368A68692B8332112FA2EF35E871DB36DD9AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

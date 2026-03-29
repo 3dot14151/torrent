@@ -6,7 +6,7 @@ Trim Enabler Pro 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705672.jpg" />
+  <img src="Z:/picture/008/save_picture_705672.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705670.jpg" />
+  <img src="Z:/picture/008/save_picture_705670.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705666.jpg" />
+  <img src="Z:/picture/008/save_picture_705666.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705657.jpg" />
+  <img src="Z:/picture/008/save_picture_705657.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705622.jpg" />
+  <img src="Z:/picture/008/save_picture_705622.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Wise Disk Cleaner 10.3.1.782 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705610.jpg" />
+  <img src="Z:/picture/008/save_picture_705610.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Opera 70.0.3728.106 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705605.jpg" />
+  <img src="Z:/picture/008/save_picture_705605.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ IObit Smart Defrag Pro 5.1.0.788 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705599.jpg" />
+  <img src="Z:/picture/008/save_picture_705599.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ ScreenPresso Pro 1.6.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705597.jpg" />
+  <img src="Z:/picture/008/save_picture_705597.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Wondershare Filmora 7.3.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705592.jpg" />
+  <img src="Z:/picture/008/save_picture_705592.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ AusLogics BoostSpeed 9.0.0.0 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705587.jpg" />
+  <img src="Z:/picture/008/save_picture_705587.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705584.jpg" />
+  <img src="Z:/picture/008/save_picture_705584.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Easy CD-DA Extractor 2011.3.0.0 Ultimate Final [Мульти/Русский] | R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705581.jpg" />
+  <img src="Z:/picture/008/save_picture_705581.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705536.jpg" />
+  <img src="Z:/picture/008/save_picture_705536.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705535.jpg" />
+  <img src="Z:/picture/008/save_picture_705535.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705534.jpg" />
+  <img src="Z:/picture/008/save_picture_705534.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705530.jpg" />
+  <img src="Z:/picture/008/save_picture_705530.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Scherlokk - Files finder 3 v3.8 (38011) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705522.jpg" />
+  <img src="Z:/picture/008/save_picture_705522.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705519.jpg" />
+  <img src="Z:/picture/008/save_picture_705519.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Money Pro 2.0.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705517.jpg" />
+  <img src="Z:/picture/008/save_picture_705517.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Soft Organizer Pro 8.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705502.jpg" />
+  <img src="Z:/picture/008/save_picture_705502.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Topaz A.I. Gigapixel 5.0.4.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705500.jpg" />
+  <img src="Z:/picture/008/save_picture_705500.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC 07.08.2020) RePack (& Portable) by elchu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705482.jpg" />
+  <img src="Z:/picture/008/save_picture_705482.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Android Studio 2.1.2 Build #AI-143.2915827 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705469.jpg" />
+  <img src="Z:/picture/008/save_picture_705469.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ AusLogics BoostSpeed 9.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705466.jpg" />
+  <img src="Z:/picture/008/save_picture_705466.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705423.jpg" />
+  <img src="Z:/picture/008/save_picture_705423.jpg" />
 </div>
 
 

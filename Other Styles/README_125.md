@@ -1,3 +1,61 @@
+###  Публикация: 1072076   (352004) от 13.11.2016
+
+Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrival (02:51)
+02. Heptapod B (03:43)
+03. Sapir- Whorf (01:17)
+04. Hydraulic Lift (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D567A4E7C6F25201CBD0AA13720D65BA9C4CB5C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072728   (352003) от 13.11.2016
+
+L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень странные дела (Soundtrack Highlights and Inspirations) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Things Theme Extended (01:32)
+02. Kids (02:40)
+03. Nancy & Barb (01:07)
+04. Chromatic Mechanics 2 (03:40)(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaveПродолжительность: 00:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BB9FBBA149017393077AD1E9E2888CDB3CDFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 138183   (351861) от 05.10.2019
 
 Норд-Ост [Полная версия на трёх компакт-дисках] (2005) [FLAC|Lossless|image + .cue] <OST>
@@ -6,7 +64,7 @@
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351861.jpg" />
+  <img src="Z:/picture/008/save_picture_351861.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351835.jpg" />
+  <img src="Z:/picture/008/save_picture_351835.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 >>OST (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351831.jpg" />
+  <img src="Z:/picture/008/save_picture_351831.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351715.jpg" />
+  <img src="Z:/picture/008/save_picture_351715.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351518.jpg" />
+  <img src="Z:/picture/008/save_picture_351518.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Ryan Judd - An Open Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumen
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349925.jpg" />
+  <img src="Z:/picture/008/save_picture_349925.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Autumn Breeze Vol. 2 - Chill Sounds for Relaxing Moments (2018) [MP3|320 Kb
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349759.jpg" />
+  <img src="Z:/picture/008/save_picture_349759.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Ajeet Kaur - Haseya (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349715.jpg" />
+  <img src="Z:/picture/008/save_picture_349715.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349599.jpg" />
+  <img src="Z:/picture/008/save_picture_349599.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Yarek - Noc Na Zamku (2008) [FLAC|image+.cue]<Electronic, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349558.jpg" />
+  <img src="Z:/picture/008/save_picture_349558.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Enigma - The Fall Of A Rebel Angel (2016) [FLAC|Lossless|image + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349469.jpg" />
+  <img src="Z:/picture/008/save_picture_349469.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Anima - Sacred Alliance (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349436.jpg" />
+  <img src="Z:/picture/008/save_picture_349436.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Jean Michel Jarre - Chronology (1993) Remastered / 2015, Sony Music /[FLAC|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349156.jpg" />
+  <img src="Z:/picture/008/save_picture_349156.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [MP3|320 к�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349149.jpg" />
+  <img src="Z:/picture/008/save_picture_349149.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Cuban Divas (2017) [MP3|320 Kbps] <World, Latin>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349061.jpg" />
+  <img src="Z:/picture/008/save_picture_349061.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Fernando Velazquez - A Monster Call / Голос монстра (2016) [MP3|320 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348804.jpg" />
+  <img src="Z:/picture/008/save_picture_348804.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348244.jpg" />
+  <img src="Z:/picture/008/save_picture_348244.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ TagTräumer (TagTraumer) - Zuviel ist nicht genug (2001) Remaster, 2018, West 7 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348057.jpg" />
+  <img src="Z:/picture/008/save_picture_348057.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Paul Mauriat - Sayonara Concert (2003) [OGG Vorbis|484 Kbps] <Pop, Classical, St
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347762.jpg" />
+  <img src="Z:/picture/008/save_picture_347762.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347512.jpg" />
+  <img src="Z:/picture/008/save_picture_347512.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Marcin Patrzalek - Hush (2016) [MP3|320 Kbps] <Acoustic Guitar, Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347401.jpg" />
+  <img src="Z:/picture/008/save_picture_347401.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347394.jpg" />
+  <img src="Z:/picture/008/save_picture_347394.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Ennio Morricone - Morricone 60 (2016) [MP3|320 Kbps] <Instrumental, Classical, S
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347267.jpg" />
+  <img src="Z:/picture/008/save_picture_347267.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные д�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346575.jpg" />
+  <img src="Z:/picture/008/save_picture_346575.jpg" />
 </div>
 
 
@@ -687,70 +745,6 @@ Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные д�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60EB9CC09C2071991A6AF0ABF16EC259C9F3B2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073424   (345841) от 16.11.2016
-
-Bob Lowey - The Journey (An Emotional Soundscape) (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01  Morning Humdrum [00:00:47]
-02  Courage and Confusion [00:07:46]
-03  Premonition [00:01:27]
-04  The Journey [00:08:47](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8ECA2ED4DE64764944A361D724459654949BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579902   (345755) от 24.11.2012
-
-VA - My Love My Guitar. The Best of Acoustic Guitar (2006) [MP3|320 кб/с]<Instrumental, Acoustic guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345755.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:45) 01. Tommy Emmanuel c.g.p. - Angelina
-(4:23) 02. Ian Melrose - Candia
-(3:26) 03. Lucas Michailidis - All Grown Up
-(3:35) 04. Peter Huttlinger - Over The Rainbow
-(4:12) 05. Dominic Miller - La Boca
-(3:34) 06. Doug Smith - August 23rd
-(4:51) 07. Peppino D'Agostino & Stef Bruns - Manha de Carnaval
-(2:30) 08. Pierre Bensusan - Chant de Nuit
-(4:16) 09. David Cullen - Glide Ride
-(3:32) 10. Eric Lugosch - SovereigntyЖанр: Instrumental, Acoustic guitarПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F803EAF139FB9F41E37F98881A50292B4E3044A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

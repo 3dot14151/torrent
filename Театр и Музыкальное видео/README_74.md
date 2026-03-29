@@ -1,3 +1,168 @@
+###  Публикация: 926599   (526466) от 16.09.2016
+
+Необыкновенный концерт (1972) DVDRip [H.264] [Театр кукол им. С. Образцова]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_526466.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1931-м Сергей Образцов создал кукольный театр и был его бессменным руководителем более 65 лет. Коллекция кукол, собранных Сергеем Владимировичем, является крупнейшей в мире, а спектакль "Необыкновенный концерт" занесен в Книгу рекордов Гиннесса.По количеству посетивших его зрителей ему нет равных до сих пор! По словам его создателя это парадийно-сатирическое (   Читать дальше...   )Производство: СССРЖанр: Комедия, Кукольный спектакльАктеры: З.Герд, С.Самодур, Е.Синельникова, М.Петров, И.Мазинг, Н.СамошинаПродолжительность: 01:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F0F59D71896BC9987B980AE0D3CF53C78FD9CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369780   (525603) от 01.08.2011
+
+DJ Bobo - The Magic Live Concert (1998) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Is Your Love
+02. Around The World
+03. Jealousy
+04. Shadows Of The Night(   Читать дальше...   )Производство: ГерманияЖанр: Концерт, EurodanceПродолжительность: 01:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7044D03B0E439376DBE9B163519FFAE46D702581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369845   (525578) от 01.08.2011
+
+Mylene Farmer - Mylenium Tour (2000) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Милен Фармер с французскими и русскими субтитрами. Перевод текстов песен: Александр Чертков.01. Mylenium
+02. L'Amour Naissant
+03. L'Ame-Stram-Gram
+04. Beyond My Control(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955487E1919A1DC662CEA7DB55AE159C370804C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 369799   (525316) от 02.08.2011
+
+Madonna: The Confessions Tour Live from London (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Lovers 0:00:00;00
+02. I Feel Love 0:05:15;00
+03. Get Together 0:07:38;16
+04. Like a Virgin 0:12:41;21(   Читать дальше...   )Производство: СШАЖанр: КонцертПродолжительность: 02:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFDCB1BED17C10C4E84FD32E8BA6AE70C9E8AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240533   (524465) от 12.08.2018
+
+Квартирник на НТВ у Маргулиса. Uma2rman (08.11.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524465.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гости к Евгению Маргулису пришли участники нижегородской рок-группы "Uma2rman". Лидер коллектива Владимир Кристовский рассказал о звездном дуэте с Патрисией Каас и том, как им удалось найти общий язык на съемках клипа. Токарь, курьер, парикмахер, ночной санитар, няня в детском саду, грузчик на винном заводе, агент по продаже шоколада - братья Кристовские (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF34FD543026070B579C1C10564C52286625CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559470   (524200) от 25.06.2022
+
+Алые Паруса-2022. Выпускной бал в Санкт-Петербурге (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524200.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Алые паруса» — праздник выпускников ленинградских школ, появление которого в конце 60-х навеяла невероятная популярность одноименного фильма по повести Александра Грина. Первый праздник состоялся 27 июня 1968 года. В этот день ленинградские школьники впервые увидели на Неве бригантину под алыми парусами, ставшую впоследствии эмблемой праздника.Производство: Россия / Пятый каналЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 03:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEC687A010239E196153F259809C12156E40993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927654   (523972) от 14.08.2015
 
 VA - Летний марафон № 182 / (Задорный Country Хит) (2015) WEBRip [H.264/1080p-LQ]
@@ -6,7 +171,7 @@ VA - Летний марафон № 182 / (Задорный Country Хит) (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523972.jpg" />
+  <img src="Z:/picture/008/save_picture_523972.jpg" />
 </div>
 
 
@@ -35,7 +200,7 @@ Alice Cooper - Live at Montreux (2005)  BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523941.jpg" />
+  <img src="Z:/picture/008/save_picture_523941.jpg" />
 </div>
 
 
@@ -64,7 +229,7 @@ Nazareth - Live in Minsk (2007) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523911.jpg" />
+  <img src="Z:/picture/008/save_picture_523911.jpg" />
 </div>
 
 
@@ -93,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523896.jpg" />
+  <img src="Z:/picture/008/save_picture_523896.jpg" />
 </div>
 
 
@@ -122,7 +287,7 @@ Motley Crue - Lewd Crued And Tattooed (2000) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523830.jpg" />
+  <img src="Z:/picture/008/save_picture_523830.jpg" />
 </div>
 
 
@@ -151,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523383.jpg" />
+  <img src="Z:/picture/008/save_picture_523383.jpg" />
 </div>
 
 
@@ -177,7 +342,7 @@ The Rolling Stones - One More Shot Live (2012) DVDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523212.jpg" />
+  <img src="Z:/picture/008/save_picture_523212.jpg" />
 </div>
 
 
@@ -206,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521782.jpg" />
+  <img src="Z:/picture/008/save_picture_521782.jpg" />
 </div>
 
 
@@ -233,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521598.jpg" />
+  <img src="Z:/picture/008/save_picture_521598.jpg" />
 </div>
 
 
@@ -259,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520958.jpg" />
+  <img src="Z:/picture/008/save_picture_520958.jpg" />
 </div>
 
 
@@ -288,7 +453,7 @@ Frank Degrees & Markus H - Do It Yourself (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520341.jpg" />
+  <img src="Z:/picture/008/save_picture_520341.jpg" />
 </div>
 
 
@@ -314,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520331.jpg" />
+  <img src="Z:/picture/008/save_picture_520331.jpg" />
 </div>
 
 
@@ -340,7 +505,7 @@ Deep Purple - Come Hell or High Water (1993) DVDrip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519746.jpg" />
+  <img src="Z:/picture/008/save_picture_519746.jpg" />
 </div>
 
 
@@ -369,7 +534,7 @@ VA - Летний марафон № 183 / (Зарубежная Дискоте�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519492.jpg" />
+  <img src="Z:/picture/008/save_picture_519492.jpg" />
 </div>
 
 
@@ -398,7 +563,7 @@ Distemper - 25 лет (2015) WEBRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519428.jpg" />
+  <img src="Z:/picture/008/save_picture_519428.jpg" />
 </div>
 
 
@@ -428,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519371.jpg" />
+  <img src="Z:/picture/008/save_picture_519371.jpg" />
 </div>
 
 
@@ -454,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519272.jpg" />
+  <img src="Z:/picture/008/save_picture_519272.jpg" />
 </div>
 
 
@@ -480,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519253.jpg" />
+  <img src="Z:/picture/008/save_picture_519253.jpg" />
 </div>
 
 
@@ -506,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519040.jpg" />
+  <img src="Z:/picture/008/save_picture_519040.jpg" />
 </div>
 
 
@@ -532,7 +697,7 @@ Anathema – Universal (2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518342.jpg" />
+  <img src="Z:/picture/008/save_picture_518342.jpg" />
 </div>
 
 
@@ -546,179 +711,6 @@ Anathema - британская рок-группа, образованная в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8701E40F6A27699758F9908BD5ECEE27C0917CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314636   (518261) от 15.07.2019
-
-Славянский базар в Витебске. Конкурс молодых исполнителей. День первый (13.07.2019) HDTVRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518261.jpg" />
-</div>
-
-
-###  Подробнее
-
-XXVIII Международный конкурс исполнителей эстрадной песни «ВИТЕБСК–2019». День первый: «СЛАВЯНСКИЙ ХИТ»
-Как подчеркнули неизменные ведущие конкурса Денис Дудинский и Катерина Раецкая, 16 участников приехали с разных континентов, они принадлежат разным культурам и религиям, но их всех объединила музыка.
-Под аккомпанемент Национального академического концертного оркестра (   Читать дальше...   )Производство: БеларусьЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90ABB8B6EC6A215403345E51D1D8D8A8DA6FD5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241785   (518229) от 19.08.2018
-
-Квартирник на НТВ у Маргулиса. Александр Васильев (08.18.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518229.jpg" />
-</div>
-
-
-###  Подробнее
-
-На "Квартирник НТВ у Маргулиса" пришел музыкант Александр Васильев, лидер группы "Сплин". Он исполнил любимые хиты и вспомнил, как уехал в Москву после концерта Евгения Маргулиса в Санкт-Петербурге. Также Александр Васильев признался, как сильно в 1980 году на него повлияло творчество групп "Воскресение" и "Машина времени". (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B1FE8FADA8CB6749D385A94995F29768ABDF588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229064   (518167) от 22.08.2010
-
-Светлана Сурганова и Оркестр - Концерт «Живой» (2003) [Rock] VHSRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаю оцифрованную видео-кассету альбома "Живой" (2003)
-Данный видеоальбом выложен в свободный доступ группой 2 августа 2010.
-Светлана Сурганова: "Я этому факту очень рада. Это действительно был для нас самый первый самый большой и волнительный концерт. Мы все такие там красивые и молодые..и ...очень трепетные. Этого уже никогда не будет.."01. В небе полном звезд
-02. Обещанный снег (слова Татьяны Хмельник)
-03. По дороге
-04. Апрельская(   Читать дальше...   )Жанр: Концерт, VIP-Punk-DecadenceПродолжительность: 01:29:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 62042   (517624) от 15.08.2012
-
-EMERSON LAKE & PALMER "Live at the Royal Albert Hall" (1993) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт "EMERSON LAKE & PALMER" в Royal Albert Hall, посвящённый 25-ти летнему юбилею группы.01. Welcome Back
-02. Tarkus
-03. Knife Edge
-04. Paper Blood(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:28:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929830   (517338) от 21.08.2015
-
-Фильм-концерт / Концерт на экране (1940) SATRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-концерт. В программе - сцены из спектаклей, балетов и опер, народные песни и романсы, Борис Эдер с группой дрессированных львов, кукольный театр Сергея Образцова, танцы солистов ансамбля Игоря Моисеева. Ведущий - Николай Черкасов.
-
-Кадры кинофильма раскрашены методом цветного компьютерного тонирования. Хотите увидеть старый фильм свежим взглядом? Тогда эта (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: МузыкальныйРежиссер: Семен ТимошенкоАктеры: Петр Березов, Александр Борисов, Кетеван Джапаридзе, Наталья Дудинская, Иван Москвин, Евгений Мравинский, Леонид Утёсов, Владимир Хенкин, Вахтанг Чабукиани, Борис Эдер, Эдит Утёсова, Роман Юрьев-Лунц, Николай Черкасов (конферанс). А также: Пат, Паташон и Чарли Чаплин.Продолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62E74647745D2DDEBE8DCD3607360456AC5D818
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 229422   (517238) от 23.08.2010
-
-Светлана Сурганова и Оркестр - Концерт в БКЗ Октябрьский, СПб  (13.11.2009) [Rock] WebRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись с концерта в БКЗ Октябрьский, СПб 13.11.2009
-Снято с множества камер, профессионально смонтировано + доп. монтаж со смысловым видеорядом.
-Файлы – разбивка по трекам.  Звук - альбомная версия.  Must Have для поклонников.01. Ленинград
-02. Чудесная страна
-03. К Элоизе
-04. Дельтаплан(   Читать дальше...   )Жанр: VIP-Punk-DecadenceПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

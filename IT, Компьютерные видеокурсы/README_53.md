@@ -1,3 +1,136 @@
+###  Публикация: 1151031   (570012) от 20.07.2017
+
+Foxford | Язык C++ (2016-2017) PCRec [H.264/1080p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_570012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Язык программирования C был разработан в начале 1970-х годов как язык системного программирования для операционной системы Unix. В 1990-х годах на его основе был создан язык программирования С++, поддерживающий концепции объектно-ориентированного и обобщённого программирования. В начале курса мы будем изучать темы, общие для языков С и C++ — синтаксис языка, стандартные (   Читать дальше...   )Производство: Россия / ФоксфордЖанр: Программирование, C++Продолжительность: ~02:00:00 урок
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518462645333D0D04E53E0FB3F885493E1A583B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555018   (569917) от 03.06.2022
+
+Udemy, Stephen Ulibarri | Unreal Engine 5 C++ Multiplayer Shooter (2022) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_569917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте все о многопользовательской игре на движке Unreal Engine в этом полном курсе на C++. С нуля мы создадим полноценную многопользовательскую игру-шутер, способную создавать и присоединяться к игровым сессиям и соединять множество игроков через Интернет. Мы создадим свой собственный плагин, который можно добавить в любой проект Unreal Engine, чтобы легко превратить (   Читать дальше...   )Производство: UdemyЖанр: Unreal Engine, C++Язык озвучки: АнглийскийПродолжительность: 51:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0E99849DEDB10FF57C487A4DC0B48F2DED9437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555295   (569904) от 03.06.2022
+
+Udemy, Наиль Алишев | Spring - Полный курс. Boot, Hibernate, Security, REST. (2022) WEB-DL [RU]
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_569904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spring Framework - очень востребованный и популярный инструмент, который используется для бэкенд разработки в компаниях по всему миру. Spring - самый популярный Java фреймворк и в большинстве вакансий для Java разработчиков будет значится именно эта технология. Популярность Spring обусловлена большой имеющейся кодовой базой, огромным количеством библиотек, развитым (   Читать дальше...   )Производство: UdemyЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 26:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E982486AC731C1B6681D5D9FA9967C4B90E50B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 812910   (568469) от 15.08.2014
+
+Profileschool | Маски. Практика применения (2014) [PCRec]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_568469.jpg" />
+</div>
+
+
+###  Подробнее
+
+В это занятие вошли лучшие материалы из предыдущих мастер классов «Masks. Работа с масками.» и «Masks 2.0. Практика применения.» Мы кратко поговорим о том, что такое маска, а потом перейдем к самому интересному — как сделать качественную маску максимально быстро с минимальными затратами ручного труда. Обсудим как в каналах изображения найти заготовку для маски, как (   Читать дальше...   )Жанр: Фото, маскиПродолжительность: 04:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9203838C102D47052015B61C15D2C47AC6649B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555635   (568457) от 04.06.2022
+
+Студия Миши Рудрастых, Миша Рудрастых | Курс по созданию плагина для WooCommerce (2021) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_568457.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы не только научитесь создавать плагины для WordPress, но и сделаете это на примере плагина-расширения для WooCommerce, глубоко изучив особенности этого движка для интернет-магазинов.
+
+Программа курса:
+Основы разработки плагина для WooCommerce(   Читать дальше...   )Производство: Студия Миши РудрастыхЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 02:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68A5C3E9E64D2F7B549C297BA46FF3054E43469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044463   (564665) от 20.08.2016
 
 Константин Артемьев | Таргетинг от А до Я (Версия 3.0) (2016) PCRec
@@ -6,7 +139,7 @@
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564665.jpg" />
+  <img src="Z:/picture/008/save_picture_564665.jpg" />
 </div>
 
 
@@ -35,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564652.jpg" />
+  <img src="Z:/picture/008/save_picture_564652.jpg" />
 </div>
 
 
@@ -64,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564567.jpg" />
+  <img src="Z:/picture/008/save_picture_564567.jpg" />
 </div>
 
 
@@ -91,7 +224,7 @@ nastroika-pc.ru | Конфигурации компьютеров [2012] SATRip
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564449.jpg" />
+  <img src="Z:/picture/008/save_picture_564449.jpg" />
 </div>
 
 
@@ -117,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562301.jpg" />
+  <img src="Z:/picture/008/save_picture_562301.jpg" />
 </div>
 
 
@@ -146,7 +279,7 @@ Geekbrains | PHP. Уровень 2 Профессиональная веб-ра�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562208.jpg" />
+  <img src="Z:/picture/008/save_picture_562208.jpg" />
 </div>
 
 
@@ -173,7 +306,7 @@ Udemy, GameDev.tv Team, Stephen Ulibarri | Unreal Engine 5 Blueprints - First Pe
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559339.jpg" />
+  <img src="Z:/picture/008/save_picture_559339.jpg" />
 </div>
 
 
@@ -202,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559002.jpg" />
+  <img src="Z:/picture/008/save_picture_559002.jpg" />
 </div>
 
 
@@ -228,7 +361,7 @@ JavaBegin | Spring (2014-2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558362.jpg" />
+  <img src="Z:/picture/008/save_picture_558362.jpg" />
 </div>
 
 
@@ -254,7 +387,7 @@ Lynda.com | WordPress (2010-2014) [PCRec] [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557453.jpg" />
+  <img src="Z:/picture/008/save_picture_557453.jpg" />
 </div>
 
 
@@ -280,7 +413,7 @@ Geekbrains | PHP. Быстрый старт Личный блог на PHP с н
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557218.jpg" />
+  <img src="Z:/picture/008/save_picture_557218.jpg" />
 </div>
 
 
@@ -306,7 +439,7 @@ Pluralsight.com | Python - Beyond the Basics (2014) PCRec [H.264] [RU/EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556816.jpg" />
+  <img src="Z:/picture/008/save_picture_556816.jpg" />
 </div>
 
 
@@ -335,7 +468,7 @@ Lynda.com | Working with Data on the Web (2013) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556555.jpg" />
+  <img src="Z:/picture/008/save_picture_556555.jpg" />
 </div>
 
 
@@ -363,7 +496,7 @@ JavaBegin | Hibernate (2017) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556211.jpg" />
+  <img src="Z:/picture/008/save_picture_556211.jpg" />
 </div>
 
 
@@ -389,7 +522,7 @@ OTUS | Подготовительный курс «Разработчик Java»
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556164.jpg" />
+  <img src="Z:/picture/008/save_picture_556164.jpg" />
 </div>
 
 
@@ -415,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556159.jpg" />
+  <img src="Z:/picture/008/save_picture_556159.jpg" />
 </div>
 
 
@@ -443,7 +576,7 @@ GeekUniversity | Третья четверть. Социальная сеть и
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554292.jpg" />
+  <img src="Z:/picture/008/save_picture_554292.jpg" />
 </div>
 
 
@@ -469,7 +602,7 @@ GeekUniversity | Четвертая четверть. Разработка Highl
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554291.jpg" />
+  <img src="Z:/picture/008/save_picture_554291.jpg" />
 </div>
 
 
@@ -495,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553376.jpg" />
+  <img src="Z:/picture/008/save_picture_553376.jpg" />
 </div>
 
 
@@ -521,7 +654,7 @@ ProfIT | Redis - основы и практическое использован
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552697.jpg" />
+  <img src="Z:/picture/008/save_picture_552697.jpg" />
 </div>
 
 
@@ -547,7 +680,7 @@ Skillbox | Excel c 0 до PRO (2015-2016) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552676.jpg" />
+  <img src="Z:/picture/008/save_picture_552676.jpg" />
 </div>
 
 
@@ -558,145 +691,6 @@ Skillbox | Excel c 0 до PRO (2015-2016) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5BAA50CCC87F88B090D65DCB854281654F6EF5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046464   (552584) от 26.08.2016
-
-SmartMe Алексей Коваленко | Функциональное программирование на JavaScript (2015) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Функциональное программирование сегодня, как, впрочем, и всегда, является неотъемлемой частью разработки приложений разного характера. В JavaScript функциональный стиль программирования был заложен еще при его рождении. Как ребенок получает цвет глаз от одного из своих родителей, так и JavaScript получил данную парадигму в наследство от языка с гордым названием Scheme.Производство: SmartMeЖанр: javascript , front-endПродолжительность: 2:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB85F86F962C7FF1A7E613320C1D34B102BAEA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046136   (552569) от 26.08.2016
-
-Нетология | SEO-специалист: как поднять продажи с помощью поискового маркетинга (2016) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему клиенты не находят ваш сайт по запросу в поисковых системах? Почему трафик, который вы приводите на сайт, не конвертируется в желаемое количество покупок? Узнайте ответы на онлайн-курсе «SEO-специалист: как поднять продажи с помощью поисковых систем».
-
-Вы сможете разобраться во всех аспектах SEO, начиная от устройства поисковых систем, составления семантического (   Читать дальше...   )Жанр: SEOПродолжительность: 29:26:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E9BE87FDA7FCE190FAFCE89E313259D7707F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692076   (551948) от 23.08.2013
-
-Hollywood Camera Work | Visual Effects for Directors [2009] DVDRip [EN]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hollywood Camera Works: Visual Effects For Directors - эти видео-уроки будут полезны всем, от начинающих режиссеров, до профессионалов высокого класса. Полученная информация поможет принять мудрое решение во время съемки зная, что созданные вами визуальные эффекты превзойдут все ожидания.
-
-Курс представляет собой интенсивное обучение многим аспектам - от зеленого (   Читать дальше...   )Жанр: Обучающие видеокурсыПродолжительность: 11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956C0EAE59D4312805148AC69ACD634D307C1B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046568   (550713) от 28.08.2016
-
-Front-end Science | БЭМ-платформа (2016) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550713.jpg" />
-</div>
-
-
-###  Подробнее
-
-БЭМ (Блок-Элемент-Модификатор) — методология web-разработки, а также набор интерфейсных библиотек, фреймворков и вспомогательных инструментов.
-
-Ведущий данного мастер-класса Владимир Гриненко. Руководит службой разработки БЭМ в Яндексе. Обладает профессиональными знаниями в HTML/CSS/JS. БЭМ-зависимый. Вне Яндекса руководит собственной веб-студией, консультирует проекты (   Читать дальше...   )Жанр: web, frontendПродолжительность: 05:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8815117E6FEF0DF90524E991D2B6FEFF814D8D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047245   (549813) от 29.08.2016
-
-Учебного центра №1 | Возможности прикладного решения «1С:Документооборот 8» для организации электронного документооборота (2011) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель курса:
-Дать представление об основных нормативно-правовых актах, регулирующих документооборот
-Познакомить с последовательностью работ по внедрению СЭД
-Познакомить с функциональными возможностями системы «1С:Документооборот 8»(   Читать дальше...   )Жанр: 1СПродолжительность: 15:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4124BD2DB61CD064AD133C7C05744E6847BFD7E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

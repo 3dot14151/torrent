@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703548.jpg" />
+  <img src="Z:/picture/008/save_picture_703548.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Topaz A.I. Gigapixel 5.1.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703538.jpg" />
+  <img src="Z:/picture/008/save_picture_703538.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Topaz A.I. Gigapixel 5.1.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703533.jpg" />
+  <img src="Z:/picture/008/save_picture_703533.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703528.jpg" />
+  <img src="Z:/picture/008/save_picture_703528.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Wondershare Filmora 9 v9.5.2.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703525.jpg" />
+  <img src="Z:/picture/008/save_picture_703525.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Comsol Multiphysics 4.0.0.937 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703520.jpg" />
+  <img src="Z:/picture/005/save_picture_703520.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703485.jpg" />
+  <img src="Z:/picture/005/save_picture_703485.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Sampa The Great - Birds And The BEE9 (2017) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703475.jpg" />
+  <img src="Z:/picture/008/save_picture_703475.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Opera 58.0.3135.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703467.jpg" />
+  <img src="Z:/picture/008/save_picture_703467.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703460.jpg" />
+  <img src="Z:/picture/008/save_picture_703460.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Integrity Pro 12.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703458.jpg" />
+  <img src="Z:/picture/008/save_picture_703458.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Music Converter Pro 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703457.jpg" />
+  <img src="Z:/picture/008/save_picture_703457.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Integrity Plus 12.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703456.jpg" />
+  <img src="Z:/picture/008/save_picture_703456.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Artstudio Pro 4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703454.jpg" />
+  <img src="Z:/picture/008/save_picture_703454.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Smart Converter Pro 3 v3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703449.jpg" />
+  <img src="Z:/picture/008/save_picture_703449.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703447.jpg" />
+  <img src="Z:/picture/008/save_picture_703447.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ ApolloOne - Photo Video Viewer 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703445.jpg" />
+  <img src="Z:/picture/008/save_picture_703445.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Allavsoft Video Downloader Converter 3.24.4.8087 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703442.jpg" />
+  <img src="Z:/picture/008/save_picture_703442.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Macgo Windows Blu-ray Player 2.11.4.1945 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703439.jpg" />
+  <img src="Z:/picture/008/save_picture_703439.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Start Menu X 5.87 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703437.jpg" />
+  <img src="Z:/picture/008/save_picture_703437.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Mini racing adventures 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703415.jpg" />
+  <img src="Z:/picture/008/save_picture_703415.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Microsoft Windows 10 Insider Preview Version 1607 build 10.0.14366 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703414.jpg" />
+  <img src="Z:/picture/008/save_picture_703414.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Turmoil (2016) [En/Multi] (1.0) Repack Aladow
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703412.jpg" />
+  <img src="Z:/picture/008/save_picture_703412.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703406.jpg" />
+  <img src="Z:/picture/008/save_picture_703406.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ WinTools.net Premium 20.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703388.jpg" />
+  <img src="Z:/picture/008/save_picture_703388.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ PDF24 Creator 9.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703386.jpg" />
+  <img src="Z:/picture/008/save_picture_703386.jpg" />
 </div>
 
 

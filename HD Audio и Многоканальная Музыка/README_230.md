@@ -1,3 +1,236 @@
+###  Публикация: 1757130   (39274) от 25.10.2024
+
+Grant Jackson - Devotion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine (6:34)
+02. Glass (7:56)
+03. Mourning (8:36)
+04. Devotion (8:37)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:346F94DE6C11D50C6B8E147195AA37B65A3478F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757133   (39265) от 25.10.2024
+
+Greg Satterthwaite - Crossing Lines (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Brook (3:02)
+02. Crossing Lines (5:01)
+03. Afro Beat Mode (3:54)
+04. Long Road (4:43)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC655117BDBF3C4EB2F1C196F0548B7A4A128EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757240   (39164) от 26.10.2024
+
+Dead Can Dance - Studio Albums & Tributes (13 releases) (1984-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical Dark Wave, Art-Rock, Ethereal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dead Can Dance — австралийский музыкальный коллектив, состоящий из Брендана Перри (Brendan Perry) и Лизы Джеррард (Lisa Gerrard). Группа основана в Мельбурне в 1981 году, распалась в 1998 году в результате творческого конфликта и временно воссоединилась для проведения мирового турне в 2005 году.
+В 2011 году в официальном блоге было объявлено о воссоединении, выпуске (   Читать дальше...   )1984 - Dead Can Dance
+1985 - Spleen and Ideal
+1987 - Within The Realm Of A Dying Sun
+1988 - The Serpent's EggЖанр: Neoclassical Dark Wave, Art-Rock, EtherealПродолжительность: 14:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0BE20B78A7E1E70ECDC876819C1F68F6ADB794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692719   (39160) от 26.10.2024
+
+Blink-182 (& +44; Box Car Racer) - Studio Albums (14 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pop-punk, Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blink-182 — американская панк-рок-группа, основанная в 1992 году гитаристом и вокалистом Томом Делонгом, бас-гитаристом и вокалистом Марком Хоппусом и барабанщиком Скоттом Рэйнором в северном пригороде Сан-Диего, городе Пауэй, Калифорния.1995 - Cheshire Cat
+1997 - Dude Ranch
+1998 - Buddha
+1999 - Enema Of The StateЖанр: Pop-punk, Punk RockПродолжительность: 11:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA97C9936A5739F94DFF90A3F13A0B8036A13FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757447   (39065) от 27.10.2024
+
+King Crimson - Red (1974) Elemental Mixes, 2024, Discipline Global Mobile [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red (6:30)
+02. Fallen Angel (6:26)
+03. One More Red Nightmare (7:44)
+04. Starless Percussion (Overdubs) (4:00)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32255D59C983B9770501C30340AB7084C6E14217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757436   (39055) от 27.10.2024
+
+Green Day - American Idiot (2004) 20th Anniversary Deluxe Edition, Remaster, 2024, Reprise [FLAC 16,24/44.1,48,192|Lossless|WEB-DL|tracks] <Punk rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Idiot (Live at Irving Plaza, New York, NY, 9/21/04) (4:32)
+02. Jesus of Suburbia (Live at Irving Plaza, New York, NY, 9/21/04) (9:37)
+03. Holiday (Live at Irving Plaza, New York, NY, 9/21/04) (4:09)
+04. Boulevard of Broken Dreams (Live at Irving Plaza, New York, NY, 9/21/04) (4:34)(   Читать дальше...   )Жанр: Punk rock, Alternative RockПродолжительность: 4CD, 04:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B50B46EB46488C163B87FA5B8317B19A45D05C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757617   (38994) от 28.10.2024
+
+Peter Gall - Love Avatar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Avatar (6:40)
+02. Unreal (6:25)
+03. Closing The Chapter (8:10)
+04. Oasis (4:28)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:01:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5703043AF1D381669B5C46ED1454BB42FE31892F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757622   (38990) от 28.10.2024
+
+Piet Verbist - Flamenco Jazz Summit: El Mar Empieza Aquí (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Al-Andablues (7:02)
+02. Nuevo Alterado (7:33)
+03. El Mar Empieza Aquí (7:37)
+04. A Child Is Born (6:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C0BB8979B6A9F8E93098293DFF46E80EF95C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757625   (38987) от 28.10.2024
 
 Rossera Brothers Band - Out Of The Blue (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
@@ -6,7 +239,7 @@ Rossera Brothers Band - Out Of The Blue (2024) [FLAC 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38987.jpg" />
 </div>
 
 
@@ -35,7 +268,7 @@ Pornotek - Murmures à l'Oreille (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38982.jpg" />
 </div>
 
 
@@ -64,7 +297,7 @@ Omer Leshem - Play Space (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempor
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38974.jpg" />
 </div>
 
 
@@ -93,7 +326,7 @@ Orrin Evans - Walk a Mile in My Shoe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38972.jpg" />
 </div>
 
 
@@ -122,7 +355,7 @@ Witchgrinder - Studio Albums (3 releases) (2013-2024) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38970.jpg" />
 </div>
 
 
@@ -150,7 +383,7 @@ Otto Kintet - Wildernis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38969.jpg" />
 </div>
 
 
@@ -179,7 +412,7 @@ VA - Metallica Tributes Collection (20 releases) (1994-2021) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38960.jpg" />
 </div>
 
 
@@ -210,7 +443,7 @@ Ricardo Andre Souza - Amoroso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38806.jpg" />
 </div>
 
 
@@ -239,7 +472,7 @@ Ragatudi Ensemble - Fanny Vibes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38800.jpg" />
 </div>
 
 
@@ -268,7 +501,7 @@ The Clarksdale Rats - Shadow Of The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38799.jpg" />
 </div>
 
 
@@ -297,7 +530,7 @@ The Vision Bleak - Studio Albums (7 releases) (2004-2024) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38797.jpg" />
 </div>
 
 
@@ -326,7 +559,7 @@ Luiz Carlos Diaz - Giselle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38791.jpg" />
 </div>
 
 
@@ -355,7 +588,7 @@ Nipper Swing Band - Vintage Radio (Swing Golden Age) (2024) [FLAC 24/48|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38789.jpg" />
 </div>
 
 
@@ -384,7 +617,7 @@ Dead Icarus - Zealot (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metal
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38699.jpg" />
 </div>
 
 
@@ -413,7 +646,7 @@ Hatchet - Studio Albums (5 releases) (2008-2024) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38683.jpg" />
 </div>
 
 
@@ -442,7 +675,7 @@ The Cure - Songs of a Lost World (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Got
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38614.jpg" />
 </div>
 
 
@@ -471,7 +704,7 @@ Skillet - Studio Albums (13 releases) (1996-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38494.jpg" />
 </div>
 
 
@@ -500,7 +733,7 @@ Eclipse - Studio Albums (10 releases) (2001-2024) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38428.jpg" />
 </div>
 
 
@@ -514,236 +747,6 @@ Eclipse - шведская рок-группа из Стокгольма, обр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3483E7A5A6EF7B57D75FD435BCC3FF643701201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696748   (38416) от 03.11.2024
-
-The Cure - Studio Albums (5 releases) (1996-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <New Wave, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38416.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Cure — британская рок-группа, образованная в Кроули, Сассекс, Англия в 1978 году.1996 - Wild Mood Swings
-2000 - Bloodflowers
-2004 - The Cure
-2008 - 4:13 DreamЖанр: New Wave, Post-PunkПродолжительность: 04:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F5954CD38F22D17317573FE856CD649EAF0F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705943   (38383) от 03.11.2024
-
-Brothers Of Metal - Studio Albums (3 releases) (2017-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brothers of Metal — шведская пауэр-метал-группа, образованная в 2012 году.2017 - Prophecy of Ragnarok
-2020 - Emblas SagaЖанр: Heavy/Power MetalПродолжительность: 02:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA74682F7827E932DC0618C54977723583DC48D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683069   (38381) от 03.11.2024
-
-Stahlmann (& Sundenklang) - Studio Albums (11 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neue Deutsche Härte, Industrial, EBM>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stahlmann — немецкая группа, играющая в стилях Neue Deutsche Härte, Industrial, EBM, в своих композициях группа соединяет жесткое гитарное звучание и глубокий вокал.2010 - Stahlmann
-2012 - Quecksilber
-2013 - Adamant
-2015 - Co2Жанр: Neue Deutsche Harte, Electronic, RockПродолжительность: 07:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12B4A8E9366687124EE01321F9E81CC932E2FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720053   (38364) от 03.11.2024
-
-Ensiferum - Studio Albums (11 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ensiferum (лат. «меченосец», «вооружённый мечом») — финская фолк-метал-группа, основанная в 1995 году. Участники группы характеризуют свой стиль как «мелодичный фолк-метал».2001 - Ensiferum
-2004 - Iron
-2008 - Victory Songs
-2009 - From AfarЖанр: Epic Folk MetalПродолжительность: 08:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09DEFB0CAB02688004CA7F950EF249D9BEB75D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690702   (38296) от 04.11.2024
-
-Vision Divine - Studio Albums (9 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vision Divine — итальянская пауэр-метал-группа, образованная в 1998 году. Многие участники коллектива так или иначе были связаны с другой итальянской пауэр-метал-группой Labyrinth.1999 - Vision Divine
-2002 - Send Me An Angel
-2004 - Stream Of Consciousness
-2005 - The Perfect MachineЖанр: Power/Progressive MetalПродолжительность: 08:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2A7313DF0C0AD47EB459EECD38503B0A76631F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758692   (38278) от 04.11.2024
-
-РадаР - Это всё неинтересно (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Ska, Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сон [00:03:57]
-02 - Пьяный и злой [00:02:58]
-03 - Когда закончатся дожди [00:03:55]
-04 - Страшно и чудовищно [00:03:11](   Читать дальше...   )Жанр: Rock, Ska, PunkПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF3D9324ABB442DD1775D831796689AFF750956
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758818   (38277) от 04.11.2024
-
-NonExist - Studio Albums (4 releases) (2002-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Thrash/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nonexist — шведская мелодик-дэт/трэш-метал группа, созданная бывшим вокалистом Arch Enemy Йоханом Лиивой в феврале 2000 года.2002 - Deus Deceptor
-2012 - From My Cold Dead Hands
-2015 - Throne of Scars
-2020 - Like The Fearless Hunter(   Читать дальше...   )Жанр: Melodic Death/Thrash MetalПродолжительность: 03:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC85D1A1E11A4EE9A9CDD983F2279786F8BC1D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1758840   (38276) от 04.11.2024
-
-VA - Can’t Steal My Fire The Songs of David Olney (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucinda Williams - Deeper Well (5:40)
-02. Steve Earle - Sister Angelina (3:18)
-03. The McCrary Sisters - Voices on the Water (3:27)
-04. Buddy Miller - Jerusalem Tomorrow (4:36)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 01:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B4F16A8FAA41942BAC3D3246F708D5392EC929
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1526253   (738806) от 23.01.2022
+
+Mercury Gates - Carpathos Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carpathos Rising
+02. Chosen Sentinels
+03. Moonshiner
+04. Future Faces(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A510CFB03D85B1044F11FF32B08D66669F932850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526265   (738800) от 23.01.2022
+
+Planeswalker - Tales Of Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales Of Magic
+02. The Spark
+03. Shadow Of Emeria
+04. Blackblade(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA521C2935D457B8A1050BCB26552BE20EC4069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526433   (738495) от 24.01.2022
+
+Between the Buried and Me - Automata I,II (2018) 2xCD, EP [FLAC|Lossless|tracks + .cue] <Progressive Metal, Avant-Garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738495.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - 2018 Automata I EP:
+01. Condemned to the Gallows (06:35)
+02. House Organ (03:41)
+03. Yellow Eyes (08:45)(   Читать дальше...   )Жанр: Progressive Metal, Avant-Garde MetalПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50B592E1DE4E16DFD60A2B0722949C6D33D9B3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526560   (738493) от 24.01.2022
 
 Ecliptic Sunset - Sinister Temperance (2015) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
@@ -6,7 +93,7 @@ Ecliptic Sunset - Sinister Temperance (2015) [FLAC|Lossless|image + .cue] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738493.jpg" />
+  <img src="Z:/picture/008/save_picture_738493.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Feedback Force - Break the Automation (2022) [FLAC|Lossless|WEB-DL|tracks] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738490.jpg" />
+  <img src="Z:/picture/008/save_picture_738490.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Between The Buried And Me - Colors II (2021) [FLAC|Lossless|tracks + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738486.jpg" />
+  <img src="Z:/picture/008/save_picture_738486.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Ravager - The Third Attack (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738160.jpg" />
+  <img src="Z:/picture/008/save_picture_738160.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Pupil Slicer - Mirrors (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Hardcore
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737833.jpg" />
+  <img src="Z:/picture/008/save_picture_737833.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737821.jpg" />
+  <img src="Z:/picture/008/save_picture_737821.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Battle Beast - Circus Of Doom (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737806.jpg" />
+  <img src="Z:/picture/008/save_picture_737806.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Ethereal Shroud - Trisagion (2021) [FLAC|Lossless|image + .cue] <Black Metal, Fu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737403.jpg" />
+  <img src="Z:/picture/008/save_picture_737403.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Rhapsody Of Fire - Glory For Salvation (2021) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737330.jpg" />
+  <img src="Z:/picture/008/save_picture_737330.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Manatark - Chaos Engine (2003) [APE|Lossless|image + .cue] <Black Metal, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737139.jpg" />
+  <img src="Z:/picture/008/save_picture_737139.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Deadlock - Manifesto (2008) [FLAC|Lossless|image + .cue] <Melodic Death Metal, M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737138.jpg" />
+  <img src="Z:/picture/008/save_picture_737138.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Insania - V (Praeparatus Supervivet) (2021) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736931.jpg" />
+  <img src="Z:/picture/008/save_picture_736931.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Pyramaze - Epitaph (2020) [FLAC|Lossless|image + .cue] <Power Metal, Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736925.jpg" />
+  <img src="Z:/picture/008/save_picture_736925.jpg" />
 </div>
 
 
@@ -385,7 +472,7 @@ VA - A Maximum Tribute To Pantera (2022) Compilation, Promo [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736908.jpg" />
+  <img src="Z:/picture/008/save_picture_736908.jpg" />
 </div>
 
 
@@ -414,7 +501,7 @@ Powerhead - Curse Of Stone (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736424.jpg" />
+  <img src="Z:/picture/008/save_picture_736424.jpg" />
 </div>
 
 
@@ -443,7 +530,7 @@ Marchello - Destiny (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736422.jpg" />
+  <img src="Z:/picture/008/save_picture_736422.jpg" />
 </div>
 
 
@@ -472,7 +559,7 @@ Mangod Inc. - Near Life Experience (2007) [FLAC|Lossless|tracks + .cue] <Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735750.jpg" />
+  <img src="Z:/picture/008/save_picture_735750.jpg" />
 </div>
 
 
@@ -501,7 +588,7 @@ The Gates of Slumber - The Gates of Slumber (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735460.jpg" />
+  <img src="Z:/picture/008/save_picture_735460.jpg" />
 </div>
 
 
@@ -530,7 +617,7 @@ Manegarm - Vargaresa: The Beginning (2004) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735304.jpg" />
+  <img src="Z:/picture/008/save_picture_735304.jpg" />
 </div>
 
 
@@ -559,7 +646,7 @@ Mare Infinitum - Alien Monolith God (2015) [FLAC|Lossless|image + .cue] <Doom Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735302.jpg" />
+  <img src="Z:/picture/008/save_picture_735302.jpg" />
 </div>
 
 
@@ -588,7 +675,7 @@ Paradise Lost - B-Sides & Rarities (2006) 2 x CD, Compilation [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734958.jpg" />
+  <img src="Z:/picture/008/save_picture_734958.jpg" />
 </div>
 
 
@@ -617,7 +704,7 @@ Scream Maker - Bloodking (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734926.jpg" />
+  <img src="Z:/picture/008/save_picture_734926.jpg" />
 </div>
 
 
@@ -646,7 +733,7 @@ Borknagar - Universal (2010) [FLAC|Lossless|image + .cue] <Black Metal, Avantgar
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734871.jpg" />
+  <img src="Z:/picture/008/save_picture_734871.jpg" />
 </div>
 
 
@@ -660,93 +747,6 @@ Borknagar - Universal (2010) [FLAC|Lossless|image + .cue] <Black Metal, Avantgar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5119233D1C909C153636A957E91C063DB1EA1C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398948   (734868) от 28.07.2020
-
-Borknagar - Origin (2006) [FLAC|Lossless|image + .cue] <Avantgarde, Folk Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Imagery (04:52)
-02. Grains (03:42)
-03. Oceans Rise (06:05)
-04. Signs (01:17)(   Читать дальше...   )Жанр: Avantgarde, Folk Metal, Black MetalПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89693F047403E54040664AB9EDE27A99642874E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398812   (734860) от 28.07.2020
-
-Eluveitie - Helvetios (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (01:25)
-02. Helvetios (04:01)
-03. Luxtos (03:56)
-04. Home (05:17)(   Читать дальше...   )Жанр: Melodic Death Metal, FolkПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC24AD642798CD35F81DAEB8A2D22FD67CECF18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399136   (734382) от 29.07.2020
-
-Longing for Dawn - Between Elation and Despair (2009) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Symbolic Burial (15:19)
-02. A Sunrise At Your Feet (11:01)
-03. Reflective (09:35)
-04. The Piscean Dawn (16:23)Жанр: Funeral Doom, Death MetalПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD8CCBFFFAF923770B817BDC898264FF5160FFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

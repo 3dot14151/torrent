@@ -1,3 +1,31 @@
+###  Публикация: 1408471   (455433) от 12.09.2020
+
+CG Cookie | Текстурирование и шейдинг Sci-Fi шлема в Blender 2.72 / Texturing and Shading a Sci-Fi Helmet in Blender 2.72 (2014) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс будет охватывать создание UV-развертки, рисование текстур, запекание и многослойный процедурный шейдинг Sci-Fi шлема в Blender.
+
+Часть 1 - Моделирование: Modeling a Sci-Fi Helmet in BlenderПроизводство: CG CookieЖанр: 3D моделирование, Текстурирование, ШейдингПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 04:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:548AFE8AE7E33E5CCD9B55AD1BDBEEF4BAB26EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408442   (455430) от 12.09.2020
 
 CG Cookie | Моделирование пост апокалиптического автомобиля в Blender 2.69 и 2.70 / Modeling a Post Apocalyptic Vehicle in Blender 2.69 & 2.70 (2014) PCRec [EN]
@@ -6,7 +34,7 @@ CG Cookie | Моделирование пост апокалиптическог
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455430.jpg" />
+  <img src="Z:/picture/008/save_picture_455430.jpg" />
 </div>
 
 
@@ -35,7 +63,7 @@ CG Cookie | Моделирование Sci-Fi шлема в Blender 2.71 / Model
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455429.jpg" />
+  <img src="Z:/picture/008/save_picture_455429.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ Lynda.com | CSS: Styling Forms (2012) PCRec [H.264]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454417.jpg" />
+  <img src="Z:/picture/008/save_picture_454417.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ Groove3, Эрик Кинл | Creating Game Audio with Pro Tools (2015) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453506.jpg" />
+  <img src="Z:/picture/008/save_picture_453506.jpg" />
 </div>
 
 
@@ -115,7 +143,7 @@ Artstation, Aleksandr Kirilenko | Becoming An Expert In Marvelous Designer (2020
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452920.jpg" />
+  <img src="Z:/picture/008/save_picture_452920.jpg" />
 </div>
 
 
@@ -143,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451296.jpg" />
+  <img src="Z:/picture/008/save_picture_451296.jpg" />
 </div>
 
 
@@ -172,7 +200,7 @@ Udemy, ChamferZone, Tim Bergholz | Revolver Tutorial - Industry Ready Weapon & A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450837.jpg" />
+  <img src="Z:/picture/008/save_picture_450837.jpg" />
 </div>
 
 
@@ -199,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450836.jpg" />
+  <img src="Z:/picture/008/save_picture_450836.jpg" />
 </div>
 
 
@@ -226,7 +254,7 @@ CG Forge, Tyler Bay | Destruction I - RBD simulation (2020) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449401.jpg" />
+  <img src="Z:/picture/008/save_picture_449401.jpg" />
 </div>
 
 
@@ -253,7 +281,7 @@ Entagma, Moritz Schwind | Mograph Liquids: Controlling FLIP Fluids Via Curve For
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449285.jpg" />
+  <img src="Z:/picture/008/save_picture_449285.jpg" />
 </div>
 
 
@@ -279,7 +307,7 @@ Entagma, Moritz Schwind | Axiom Solver: Dissolving Logo (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449252.jpg" />
+  <img src="Z:/picture/008/save_picture_449252.jpg" />
 </div>
 
 
@@ -305,7 +333,7 @@ Udemy, Hardy Fowler | Line Art Master (2018) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449101.jpg" />
+  <img src="Z:/picture/008/save_picture_449101.jpg" />
 </div>
 
 
@@ -332,7 +360,7 @@ Masterclass, Will Wright | Will Wright Teaches Game Design and Theory (2018) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449098.jpg" />
+  <img src="Z:/picture/008/save_picture_449098.jpg" />
 </div>
 
 
@@ -359,7 +387,7 @@ David Luong | Intro to Digital Matte Painting (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448885.jpg" />
+  <img src="Z:/picture/008/save_picture_448885.jpg" />
 </div>
 
 
@@ -385,7 +413,7 @@ The Gnomon Workshop, Aaron Sims | Real-Time Filmmaking in Unreal Engine 5 — TH
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448606.jpg" />
+  <img src="Z:/picture/008/save_picture_448606.jpg" />
 </div>
 
 
@@ -412,7 +440,7 @@ Will Wallace | Разрушение дома / Destruction Training with Thinkin
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447226.jpg" />
+  <img src="Z:/picture/008/save_picture_447226.jpg" />
 </div>
 
 
@@ -439,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447026.jpg" />
+  <img src="Z:/picture/008/save_picture_447026.jpg" />
 </div>
 
 
@@ -466,7 +494,7 @@ SideFX, Paul Esteves | Vellum Nodes (2021) PCRec [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446987.jpg" />
+  <img src="Z:/picture/008/save_picture_446987.jpg" />
 </div>
 
 
@@ -492,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446839.jpg" />
+  <img src="Z:/picture/008/save_picture_446839.jpg" />
 </div>
 
 
@@ -519,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444832.jpg" />
+  <img src="Z:/picture/008/save_picture_444832.jpg" />
 </div>
 
 
@@ -547,7 +575,7 @@ Gumroad, Daniel Thiger | Melting Snow (2017) PCRec [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444814.jpg" />
+  <img src="Z:/picture/008/save_picture_444814.jpg" />
 </div>
 
 
@@ -574,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444806.jpg" />
+  <img src="Z:/picture/008/save_picture_444806.jpg" />
 </div>
 
 
@@ -602,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444656.jpg" />
+  <img src="Z:/picture/008/save_picture_444656.jpg" />
 </div>
 
 
@@ -630,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444492.jpg" />
+  <img src="Z:/picture/008/save_picture_444492.jpg" />
 </div>
 
 
@@ -657,7 +685,7 @@ Gumroad, FlyCat | Blender - Game Ready Character Modeling - Full process video &
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444336.jpg" />
+  <img src="Z:/picture/008/save_picture_444336.jpg" />
 </div>
 
 
@@ -669,33 +697,6 @@ Gumroad, FlyCat | Blender - Game Ready Character Modeling - Full process video &
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE1D49AE9EE6DCE9CAB48A4D0A7E90E457209EBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409702   (442692) от 18.09.2020
-
-Иван Лалиашвили | Создание мегаполиса в Blender 2.82 / Megacity Blender 2.82 (2020) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это мой полный курс по созданию мегаполиса в Blender и Photoshop.
-В курсе опписан весь процесс создания сложных сцен. Он будет очень полезен и прост для начинающих. И я надеюсь, что некоторые продвинутые пользователи Blender тоже найдут что-нибудь интересное.Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A88C916E17287ABA891F04CCA645B7BC960FFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

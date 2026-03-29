@@ -6,7 +6,7 @@ Nvidia DriverPack v.446.14 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795766.jpg" />
+  <img src="Z:/picture/008/save_picture_795766.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ GoodSync Enterprise 10.12.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795759.jpg" />
+  <img src="Z:/picture/008/save_picture_795759.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795736.jpg" />
+  <img src="Z:/picture/008/save_picture_795736.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795735.jpg" />
+  <img src="Z:/picture/008/save_picture_795735.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795733.jpg" />
+  <img src="Z:/picture/008/save_picture_795733.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Imperador Belial - Morbid Rites (2013) [FLAC|Lossless|image + .cue] <Black Metal
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795732.jpg" />
+  <img src="Z:/picture/008/save_picture_795732.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Global Goon - Rivers (2015) J-HOK records [FLAC|Lossless|WEB-DL|tracks] <IDM, Am
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795727.jpg" />
+  <img src="Z:/picture/008/save_picture_795727.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Feeder 4 v4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795722.jpg" />
+  <img src="Z:/picture/008/save_picture_795722.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ GoodNotes 5 v5.7.45 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795721.jpg" />
+  <img src="Z:/picture/008/save_picture_795721.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ World's End Girlfriend - Ending Story (2000) F.R.D Record [FLAC|Lossless|tracks+
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795707.jpg" />
+  <img src="Z:/picture/008/save_picture_795707.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795694.jpg" />
+  <img src="Z:/picture/008/save_picture_795694.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795693.jpg" />
+  <img src="Z:/picture/008/save_picture_795693.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795692.jpg" />
+  <img src="Z:/picture/008/save_picture_795692.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795691.jpg" />
+  <img src="Z:/picture/008/save_picture_795691.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795690.jpg" />
+  <img src="Z:/picture/008/save_picture_795690.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795689.jpg" />
+  <img src="Z:/picture/008/save_picture_795689.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795686.jpg" />
+  <img src="Z:/picture/008/save_picture_795686.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795682.jpg" />
+  <img src="Z:/picture/008/save_picture_795682.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Nova 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795678.jpg" />
+  <img src="Z:/picture/008/save_picture_795678.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Screenium 3 v3.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795674.jpg" />
+  <img src="Z:/picture/008/save_picture_795674.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Things 3 v3.15.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795672.jpg" />
+  <img src="Z:/picture/008/save_picture_795672.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Wondershare PDFelement Pro 8.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795660.jpg" />
+  <img src="Z:/picture/008/save_picture_795660.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ MediaHuman YouTube Downloader 3.9.8.20 (1901) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795652.jpg" />
+  <img src="Z:/picture/008/save_picture_795652.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Meat Beat Manifesto - Impossible Star (2018) MBM [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795649.jpg" />
+  <img src="Z:/picture/008/save_picture_795649.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795646.jpg" />
+  <img src="Z:/picture/008/save_picture_795646.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795633.jpg" />
+  <img src="Z:/picture/008/save_picture_795633.jpg" />
 </div>
 
 

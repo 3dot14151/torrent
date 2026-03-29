@@ -1,3 +1,107 @@
+###  Публикация: 1503855   (116765) от 19.02.2024
+
+NG. Поднимается буря / Storm Rising (2021) HDTV [H.264/1080i] (сезон 1, серии 1-5 из 5)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поднимается буря - это масштабный сериал, в одном сезоне которого собраны самые крупные мировые природные катаклизмы за целый год: от мартовского торнадо в США до декабрьских оползней в Центральной Америке. Вместе с охотником за ураганами Ридом Тиммером и его командой мы познаем силу ярости матушки-природы, изучая самые опасные погодные явления в мире и причины их (   Читать дальше...   )Производство: США, Lucky 8, National GeographicЖанр: Документальный, научно-популярный, метеорология, природа, катастрофыУчастники: Майк Тайсс, Рид ТиммерПеревод: Одноголосый профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F886A6EB259FD6B4F80C760E554C66DE89F940D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822678   (101689) от 07.10.2025
+
+NG. В мире дельфинов с Берти Грегори / Dolphins Up Close with Bertie Gregory (2025) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Берти Грегори отправляется на Азорские острова, португальскую островную цепь и морской заповедник, чтобы запечатлеть захватывающее охотничье поведение дельфинов и других хищников. Цель этого фильма - показать интеллект и слаженность действий дельфинов, а также превращение Азорских островов из района китобойного промысла в морской заповедник, где нарушенные ранее (   Читать дальше...   )Производство: Великобритания, Wildstar FilmsЖанр: документальный, природа, флора, фаунаРежиссер: Адам БойлУчастники: Берти ГрегориПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82682029315FF12B7EB7F05FDAF281DFF902F33F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822682   (101683) от 07.10.2025
+
+NG. В мире дельфинов с Берти Грегори / Dolphins Up Close with Bertie Gregory (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Берти Грегори отправляется на Азорские острова, португальскую островную цепь и морской заповедник, чтобы запечатлеть захватывающее охотничье поведение дельфинов и других хищников. Цель этого фильма - показать интеллект и слаженность действий дельфинов, а также превращение Азорских островов из района китобойного промысла в морской заповедник, где нарушенные ранее (   Читать дальше...   )Производство: Великобритания, Wildstar FilmsЖанр: документальный, природа, флора, фаунаРежиссер: Адам БойлУчастники: Берти ГрегориПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C58CBFF27032DE16251DA2BAFF75DF4EF3408C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822179   (98561) от 05.10.2025
+
+NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98561.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смертельной авиакатастрофы, в результате которой четверо юных братьев и сестер оказываются запертыми в глубине колумбийских тропических лесов, разворачивается драматическая спасательная операция, объединяющая следопытов-аборигенов и военных в гонке со временем. Впервые создатели фильма предлагают нам эксклюзивный рассказ об этой невероятной реальной истории (   Читать дальше...   )Производство: США, Великобритания, Перу, Колумбия / Demolition Films, Lightbox, Little Monster Films, National Geographic Documentary Films, Lightbox, Pacha Films, Senal ColombiaЖанр: документальный, катастрофа, спасение, расследованиеРежиссер: Джимми Чин, Хуан Камило Крус, Элизабет Чай ВасархелиПеревод: Двуголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55A299F4F78D4CF0094F4A67797022DA7FA078E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822144   (94499) от 05.10.2025
 
 NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL [H.264/1080p]
@@ -6,7 +110,7 @@ NG. Затерянные в джунглях / Lost in the Jungle (2025) WEB-DL 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94499.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87555.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87553.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Nat Geo Wild: Созданные убивать: Лев / Built for the Kill: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87146.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NG: Забытый соперник Египта / Egypt's lost rival (2010) IPT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86558.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Гибель морского монстра / Death of a Sea Monster (2010)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82450.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ National Geographic Special: Суперкошки / National Geographic Special:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79548.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79212.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79153.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Nat Geo Wild: Возвращение дымчатых леопардов / Retur
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76498.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG. Последствия: Нулевое население / Aftermath: Popul
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62919.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62354.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG: Самые страшные стихийные бедствия: Земле�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57430.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG: Самые страшные стихийные бедствия: Торна�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57429.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55457.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49582.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NG: Пираты: Больше, чем легенда / Pirates: Behind the Lege
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47509.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NG: Покорители океана / OceanXplorers (2024) WEB-DL [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45013.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39217.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37746.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NG: Конкистадоры: Взлет и падение / Conquistadors: The 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36293.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33888.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28123A1D0920388EE7101AEC912FE90D123DC505
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462619   (31558) от 09.01.2025
-
-Известная Вселенная. Сезон 3 (8 из 8) / Known Universe. Season 3 (2011) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь задумывались о том, что было бы с нами, если бы Земля попала в Черную дыру? Или о том, что путешествие по туннелям временного пространства стало бы реальностью? Может ли наша планета выдержать столкновение с крупным метеоритом, подобное тому, что уничтожило динозавров в доисторические времена? Из цикла программ "Известная Вселенная" вы сможете (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 8 серий по ~ 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BF565C5349ADB79245D10D37449B1963E800A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774591   (30144) от 22.01.2025
-
-NG. Приключения настоящего Флика / A Real Bug's Life (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-5 из 5) LE-Production
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30144.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Жизнь жука» возвращается с захватывающим вторым сезоном, который масштабнее и смелее, чем когда-либо. Вдохновлённый фильмом «Жизнь жука» от Disney и Pixar, оригинальный сериал Disney+ от National Geographic отправляет нас в очередное невероятное приключение в мир микробов, где силы природы действуют в совершенно ином масштабе, а миниатюрные существа полагаются на (   Читать дальше...   )Производство: США / National Geographic, Plimsoll ProductionsЖанр: документальный, природа, путешествия, исследование, флораРежиссер: Нат Шарман, Джон Кэйпенер, Алекс ХемингуэйУчастники: Аквафина, Will Foster-GrundyПеревод: многоголосый (LE-Production)Субтитры: английские (SDH)Продолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEEAF687D635AE0AD0473FAFA82C5BAE0375B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774587   (29966) от 24.01.2025
-
-NG. Приключения настоящего Флика / A Real Bug's Life (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) Jaskier
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29966.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Жизнь настоящего жука" - это приключение в мире, находящемся за пределами вашего воображения, где жизнь имеет совершенно другой масштаб, а маленькие существа живут под постоянной угрозой и им необходимо полагаться на свои феноменальные силы, чтобы дожить до конца дня.Производство: США / National Geographic, Plimsoll ProductionsЖанр: документальный, природа, путешествия, исследование, флораРежиссер: Нат Шарман, Джон Кэйпенер, Алекс ХемингуэйУчастники: Аквафина, Will Foster-GrundyПеревод: одноголосый профессиональный (Jaskier)Субтитры: английскиеПродолжительность: ~00:30:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BF988886D678FD8ADF3AB18BA2AB226347D728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217566   (27570) от 15.02.2025
-
-NG: Неизвестный Китай / Lost In China (2009) HDTVRip [H.264/720p-LQ] (серии 4 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите нырнуть в ледяной бассейн с температурой воды минус 14 градусов? Без проблем, поезжайте в Северный Китай и... ныряйте себе в удовольствие! Ну, а как насчет идеи поиграть в поло с обезглавленным козлом? Легко... И вот уже власти провинции Ганьсу быстро выдворяют вас за пределы ее территории. И все это происходит в один день. Но, не спешите прощаться, это пока (   Читать дальше...   )Производство: National GeographicЖанр: ДокументальныйРежиссер: Питер и Джеф ХатченсПеревод: Одноголосый профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 4 х~00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:335E4285F3218D22ECD7A74041706A177FD255F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

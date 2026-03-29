@@ -1,3 +1,136 @@
+###  Публикация: 1011404   (796746) от 27.04.2016
+
+Н. Г. Ощипок | Удивительная техника (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы держите в руках уникальную энциклопедию самых современных и удивительных технологий и гаджетов. Человечество постоянно движется вперед, устройства вокруг нас становятся все более сложными и многофункциональными. Но что мы на самом деле знаем о них?
+
+Шпионские штучки и искусственный интеллект, проектирование супер городов и люди-киборги – вас ждут самые продвинутые (   Читать дальше...   )Жанр: ЭнциклопедииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD0CE9A615504DD8C4EDD06E386F9113324678E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011415   (796745) от 27.04.2016
+
+Н.И. Быкова, М.Д. Поспелова | Английский в фокусе. Учебник, книга для родителей. 3 класс [2 книги] (2012, 2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебно-методического комплект «Английский в фокусе» содержит материалы и методические рекомендации по организации и проведению занятий на определенном этапе обучения, тематическое и поурочное планирование, ключи к Рабочей тетради, Контрольным заданиям и Книге для чтения, сценарий для постановки пьесы по Книге для чтения и необходимые для этого рекомендации. Учебный (   Читать дальше...   )Жанр: Учебное пособие по английскому языкуФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE05AB33BDCCE6126E47CFA0888049A8CFC1ACB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487441   (796741) от 09.11.2021
+
+Г.Люшнин | Хорошие вещи молоток и клещи [DJVU] [1958]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселые и познавательные стихи на трудовую тему с прекрасными иллюстрациями для дошкольного возраста.Жанр: Детская литература, стихиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43517A38440CB50538B0B813523888AFE6BD8FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508705   (796736) от 09.11.2021
+
+А.М. Туманов | Альбомы для раскрашивания [26 книг] (2017 - 2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия из 26-ти альбомов для раскрашивания является последним масштабным трудом талантливого уральского живописца и графика Туманова Альберта Михайловича.
+Идея создания цикла этих альбомов возникла не на пустом месте. Ведь очень важно, чтобы дети, едва подросли, брали в свои ручки не отсвечивающие холодным блеском смартфоны, а добрые книжки с красивыми рисунками. (   Читать дальше...   )Жанр: РаскраскиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61EC9BB9DDC8BF85BDB6BD3E753F8FB2C0A84A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011281   (796707) от 27.04.2016
+
+В.А. Силивон | Когда ребенок рисует (1990) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_796707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие, издаваемое в виде альбома, написано в соответствии с программой воспитания и обучения в детском саду. Автор, преподаватель МГПИ им. А.М. Горького, предлагает методические рекомендации по развитию ребенка средствами изобразительного искусства, раскрывает основные требования к одному из приемов оказания помощи ребенку в развитии его изобразительных умений (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7E575E1D9DC85A0DD0CF71DEFEDD63B560CF47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200292   (796456) от 20.01.2018
 
 Александр Круглов | На скользком пути (1909) [PDF]
@@ -6,7 +139,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796456.jpg" />
+  <img src="Z:/picture/008/save_picture_796456.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796453.jpg" />
+  <img src="Z:/picture/008/save_picture_796453.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796451.jpg" />
+  <img src="Z:/picture/008/save_picture_796451.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796416.jpg" />
+  <img src="Z:/picture/008/save_picture_796416.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796385.jpg" />
+  <img src="Z:/picture/008/save_picture_796385.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796375.jpg" />
+  <img src="Z:/picture/008/save_picture_796375.jpg" />
 </div>
 
 
@@ -162,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796369.jpg" />
+  <img src="Z:/picture/008/save_picture_796369.jpg" />
 </div>
 
 
@@ -188,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796286.jpg" />
+  <img src="Z:/picture/008/save_picture_796286.jpg" />
 </div>
 
 
@@ -215,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796240.jpg" />
+  <img src="Z:/picture/008/save_picture_796240.jpg" />
 </div>
 
 
@@ -243,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796235.jpg" />
+  <img src="Z:/picture/008/save_picture_796235.jpg" />
 </div>
 
 
@@ -269,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796057.jpg" />
+  <img src="Z:/picture/008/save_picture_796057.jpg" />
 </div>
 
 
@@ -298,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795978.jpg" />
+  <img src="Z:/picture/008/save_picture_795978.jpg" />
 </div>
 
 
@@ -325,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795921.jpg" />
+  <img src="Z:/picture/008/save_picture_795921.jpg" />
 </div>
 
 
@@ -353,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795917.jpg" />
+  <img src="Z:/picture/008/save_picture_795917.jpg" />
 </div>
 
 
@@ -380,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795916.jpg" />
+  <img src="Z:/picture/008/save_picture_795916.jpg" />
 </div>
 
 
@@ -406,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795912.jpg" />
+  <img src="Z:/picture/008/save_picture_795912.jpg" />
 </div>
 
 
@@ -433,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795881.jpg" />
+  <img src="Z:/picture/008/save_picture_795881.jpg" />
 </div>
 
 
@@ -459,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795726.jpg" />
+  <img src="Z:/picture/008/save_picture_795726.jpg" />
 </div>
 
 
@@ -485,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795714.jpg" />
+  <img src="Z:/picture/008/save_picture_795714.jpg" />
 </div>
 
 
@@ -511,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795709.jpg" />
+  <img src="Z:/picture/008/save_picture_795709.jpg" />
 </div>
 
 
@@ -537,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795706.jpg" />
+  <img src="Z:/picture/008/save_picture_795706.jpg" />
 </div>
 
 
@@ -548,139 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1295444B6B1ECDB06570DF4401A3523F891A8F8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200541   (795704) от 21.01.2018
-
-Н.В. Тулупов, П.М. Шестаков (ред.) | Светлый день. Книжка для чтения на втором году обучения (1909) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов, сказок, стихов для детей младшего возрастаЖанр: Детская проза, Сказки, СтихиФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB14116D896D79776A43121BEA7EB4CEB33A0DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200548   (795700) от 21.01.2018
-
-Агафонова Лидия Андреевна | Детки-малютки, их забавы и шутки (1910) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов для детей младшего возрастаЖанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E343A76CA1017BF213F3436CA36B2F26A3F9D4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200552   (795697) от 21.01.2018
-
-Василий Жуковский | Война мышей и лягушек (1910) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F718370A5F3BAC9A7C104E392B15BE42BD823E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509227   (795673) от 11.11.2021
-
-Вероника Коссантели | Изумительная Страна Снергов (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, вдохновившая Дж. Р. Р. Толкина!
-Пип и Флора в беде. Они убежали из приюта «Солнечная бухта» – и оказались в изумительной Стране Снергов.
-Это волшебная страна восхитительных пиров и медведей, пахнущих корицей. Вот только есть здесь и мрачные пещеры, есть прожорливые великаны и коварные шуты, а ещё ведьма, с ног до головы облачённая в пурпурные одежды.
-Добрый, (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: В.Т. БабенкоФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB7DA294C63F088267935FBE75D4F5207711E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200530   (795654) от 21.01.2018
-
-Василий Андреевич Жуковский | Сказка о Иване-царевиче и сером волке (1909) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795654.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сказка о Иване-царевиче и Сером Волке» – произведение русского поэта, одного из основоположников романтизма в русской поэзии В. А. Жуковского (1783 – 1852).Жанр: Детская проза, СказкиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E1CC71546E9E837B8AE6FE3CEE1D2C87B7DDD86
 ```
 
 https://mybot314.ru/tekegram_catalog/

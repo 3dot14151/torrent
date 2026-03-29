@@ -1,3 +1,29 @@
+###  Публикация: 909618   (621667) от 20.06.2015
+
+Э. В. Ртвеладзе, Ш. Р. Пидаев | Каталог древних монет Южного Узбекистана (1981) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_621667.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии дается подробное описание монет, найденных при раскопках древних поселений Сурхандарьинской области. Этот большой нумизматический материал позволяет осветить многие вопросы товарно-денежных отношений, политической истории и экономики юга Узбекистана в греко-бактрнйское и кушанское время (III в. до и. э.—IV в. н. э.). Прослеживаются экономические и культурные (   Читать дальше...   )Жанр: НумизматикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C79EE4025F20339DE92D0EB8BAE1E5376DA726D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909597   (621663) от 20.06.2015
 
 А. Ф. Медведев | Ручное метательное оружие. Лук и стрелы, самострел VIII-XIV вв. [Выпуск E1-36] (1966) [PDF]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621663.jpg" />
+  <img src="Z:/picture/008/save_picture_621663.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620766.jpg" />
+  <img src="Z:/picture/008/save_picture_620766.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620500.jpg" />
+  <img src="Z:/picture/008/save_picture_620500.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620355.jpg" />
+  <img src="Z:/picture/008/save_picture_620355.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619995.jpg" />
+  <img src="Z:/picture/008/save_picture_619995.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619255.jpg" />
+  <img src="Z:/picture/008/save_picture_619255.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619243.jpg" />
+  <img src="Z:/picture/008/save_picture_619243.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619149.jpg" />
+  <img src="Z:/picture/008/save_picture_619149.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618234.jpg" />
+  <img src="Z:/picture/008/save_picture_618234.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617915.jpg" />
+  <img src="Z:/picture/008/save_picture_617915.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617681.jpg" />
+  <img src="Z:/picture/008/save_picture_617681.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617403.jpg" />
+  <img src="Z:/picture/008/save_picture_617403.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617281.jpg" />
+  <img src="Z:/picture/008/save_picture_617281.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617264.jpg" />
+  <img src="Z:/picture/008/save_picture_617264.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616482.jpg" />
+  <img src="Z:/picture/008/save_picture_616482.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616434.jpg" />
+  <img src="Z:/picture/008/save_picture_616434.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616432.jpg" />
+  <img src="Z:/picture/008/save_picture_616432.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616354.jpg" />
+  <img src="Z:/picture/008/save_picture_616354.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616187.jpg" />
+  <img src="Z:/picture/008/save_picture_616187.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616185.jpg" />
+  <img src="Z:/picture/008/save_picture_616185.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616088.jpg" />
+  <img src="Z:/picture/008/save_picture_616088.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616083.jpg" />
+  <img src="Z:/picture/008/save_picture_616083.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615851.jpg" />
+  <img src="Z:/picture/008/save_picture_615851.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615846.jpg" />
+  <img src="Z:/picture/008/save_picture_615846.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615840.jpg" />
+  <img src="Z:/picture/008/save_picture_615840.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6237A688A1BBEC269D2DC0207725606BE29F83DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911086   (615722) от 23.06.2015
-
-Эдуард Фукс | Иллюстрированная история эротического искусства (1995) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это книга немецкого ученого и писателя Э.Фукса - о вечной теме в мировом искусстве. На протяжении многих веков художники, поэты, писатели стремились отобразить в своем творчестве красоту человеческого тела, все, что связано с чувственной любовью, интимными отношениями, и в то же время обличали, высмеивали человеческие пороки, излишества, непристойности. В книге рассказывается (   Читать дальше...   )Жанр: ИскусствоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4123416438FF3741F79818DEAE0E4691F82299
 ```
 
 https://mybot314.ru/tekegram_catalog/

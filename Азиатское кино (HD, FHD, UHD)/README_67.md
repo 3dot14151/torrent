@@ -1,3 +1,134 @@
+###  Публикация: 1665347   (182235) от 30.09.2023
+
+Безумная миссия 5 / San jui gaai paak dong / Aces Go Places V (1989) BDRip [H.265/1080p] [10-bit] [AVO] [Гонконгская версия]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная, пятая часть комедийного сериала «Mad Mission» начинается с того, что неразлучные друзья Кинг Конг и Болди расстаются, обидевшись друг на друга во время очередного суперзадания.
+Так бы они и жили поодиночке, если бы парочке грабителей, Лесли и Кэгни не вздумалось украсть легендарный Экскалибур в масках именно этих двух героев. Теперь за Кинг Конгом и Болди (   Читать дальше...   )Производство: Гонконг / Cinema CityЖанр: боевик, комедия, криминалРежиссер: Лау Ка-ЛюнАктеры: Сэм Хуэй, Карл Мака, Лесли Чун, Нина Ли Чи, Конан Ли, Чи Чун Ха, Лу Янь, Чо Тат-Ва, Эллен Чань, Фенни ЮэньПеревод: Авторский (Андрей Дольский)Язык озвучки: русский, китайскийСубтитры: английские, китайскиеПродолжительность: 01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557975492F15F361521E5B75DAD6438DDDCC9802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593030   (181914) от 25.11.2022
+
+Сводные братья / Ibo kyoudai / Stepbrothers (1957) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм охватывает несколько десятилетий. История начинается в 1921 году, когда старый вояка, капитан Хантаро Кидо приходит к молодой очаровательной горничной Риэ, которая позже становится его женой, и заканчивается в первый год после Второй мировой войны, когда домой возвращается только один из четырёх сыновей капитана, Томохидэ. По одноимённому роману Торахико Тамия (   Читать дальше...   )Производство: Япония / Nikkatsu CorporationЖанр: драмаРежиссер: Миёдзи ИэкиАктеры: Рэнтаро Микуни, Кинуё Танака, Тёко Иида, Ёсихидэ Морисита, Томоо Нага, Кацуо Накамура, Кодзи Намбара, Хидзуру ТакатихоПеревод: Двуголосый любительский (Head Pack Films)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B522EFB360CA79819A61314A0CA62DFC76A0796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428222   (180695) от 01.12.2020
+
+Под стук трамвайных колес / Dodeskaden (1970) BDRip [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_180695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшная история об обществе, выброшенном на свалку. Страна, выброшенная на свалку истории. Национальная культура, вытесненная на свалку американской псевдокультурой. И мальчик-идиот, ездящий всеми днями на воображаемом трамвае и имитирующий стук колес: до-дес-каден, до-дес-каден. Но в этом-то звуке и есть какой-то проблеск надежды, как та радуга над свалкой. Японское (   Читать дальше...   )Производство: Япония / Yonki-no-Kai Productions, Toho CompanyЖанр: драмаРежиссер: Акира КуросаваАктеры: Ёситака Дзуси, Кин Сугаи, Тосиюки Тономура, Синосукэ Минами, Юко Кусуноки, Дзюндзабуро Бан, Киёко Тангэ, Митио Хино, Кэйдзи Фуруяма, Таппэй СимокаваПеревод: Одноголосый любительскийСубтитры: Русские, французскиеПродолжительность: 02:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3170867E9C5AFE63EB38E23DA053D311F17206CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593574   (180384) от 27.11.2022
+
+Одна секунда / Yi miao zhong / One Second (2020) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на романе "Преступник Лу Яньши" автора Гелинг Ян. Китай. Культурная революция в самом разгаре. Где-то в отдалённом поселке, затерянном в песках провинции Ганьсу, где кино показывают всего раз в два месяца, судьба сводит двоих незнакомцев. Каждый имеет свою причину. Девушка хочет сделать из плёнки абажур для лампы своего маленького брата. Мужчина (   Читать дальше...   )Производство: Китай, Huanxi Media Group, EDKO Film Ltd.Жанр: драма, историяРежиссер: Имоу ЧжанАктеры: Чжан И, Лю Хаоцюнь, Фань Вэй, Юй Айлэй, Чжан Шаобо, Ли Янь, Юй Ян, Лю Юньлун, Чан Хайцзюнь, Цао ЖуйПеревод: профессиональные многоголосые (Jaskier; Творческое объединение «Храм тысячи струн» при уч. Shangu и Eugene Greene)Субтитры: русские (тексты песен и полные), английскиеПродолжительность: 01:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03BF063CD945D9F326147BA85F703EEAE11B623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666449   (179570) от 04.10.2023
+
+Врата дракона и тигра / Dragon Tiger Gate / Lung foo moon (2006) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179570.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о двух мастерах кунг-фу, которые должны продолжить дело своих отцов в битве со злом. Двое некровных брата должны защитить мир от злых сил бессмертного прозвавшего себя Черной Пагодой. Борьба добра и зла! Кто же победит в этой битве? На этот раз зло обладает великой силой, которой противостоять могут всего лишь два человека - два брата Тигр и Дракон.Производство: Гонконг, Китай / Mandarin Films Distribution, Beijing Poly-bona Film Publishing Company, Shanghai Film GroupЖанр: фэнтези, боевик, триллерРежиссер: Уилсон ИпАктеры: Юк Лонг Вонг, Луис Ку, Изабелла Люн, Элла Кун, Донни Йен, Николас Це, Шон Юе, Дун Цзэ, Ли Сяожань, Юэнь ВаПеревод: многоголосый профессиональныйЯзык озвучки: русский, китайскийСубтитры: английскиеПродолжительность: 01:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A98CFB2BA2D34E7A361540928F47AD72A70CDC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666455   (179458) от 04.10.2023
 
 Врата дракона и тигра / Dragon Tiger Gate / Lung foo moon (2006) BDRemux [H.264/1080p]
@@ -6,7 +137,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179458.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179327.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178658.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178250.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176599.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176279.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176107.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175957.jpg" />
 </div>
 
 
@@ -214,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175902.jpg" />
 </div>
 
 
@@ -240,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175866.jpg" />
 </div>
 
 
@@ -266,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175828.jpg" />
 </div>
 
 
@@ -292,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175796.jpg" />
 </div>
 
 
@@ -318,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175601.jpg" />
+  <img src="Z:/picture/004/save_picture_175601.jpg" />
 </div>
 
 
@@ -344,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175253.jpg" />
 </div>
 
 
@@ -370,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175214.jpg" />
+  <img src="Z:/picture/004/save_picture_175214.jpg" />
 </div>
 
 
@@ -396,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174741.jpg" />
+  <img src="Z:/picture/004/save_picture_174741.jpg" />
 </div>
 
 
@@ -422,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174696.jpg" />
 </div>
 
 
@@ -448,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174256.jpg" />
+  <img src="Z:/picture/004/save_picture_174256.jpg" />
 </div>
 
 
@@ -474,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174127.jpg" />
+  <img src="Z:/picture/004/save_picture_174127.jpg" />
 </div>
 
 
@@ -500,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174107.jpg" />
+  <img src="Z:/picture/004/save_picture_174107.jpg" />
 </div>
 
 
@@ -526,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173526.jpg" />
 </div>
 
 
@@ -537,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8DEBC187E277823CF68FDD61BA715690A3C642C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668728   (173294) от 13.10.2023
-
-В коже моей матери / In My Mother’s Skin (2023) WEBRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит на Филиппинах в последние месяцы Второй мировой войны. Тала, маленькая дочь торговца Альдо, подозреваемого в краже золота у японских солдат-оккупантов. Опасаясь за безопасность своей семьи, если золото будет найдено, отец уходит в поисках помощи и оставляет Талу, ее младшего брата и их больную мать. Пока они с растущим отчаянием ждут возвращения (   Читать дальше...   )Производство: Филиппины, Сингапур, Тайвань, Epicmedia Productions, Zhao Wei Films, Volos Films, Clover FilmsЖанр: Ужасы, фэнтези, триллерРежиссер: Кеннет ДагатанАктеры: Энджел Баяни, Фелисити Кайл Напули, Жасмин Кертис-Смит, Джеймс Мэви Эстрелла, Беато ГонсалесПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E6A5D60546127CCAC75124BB5DD079E8EEE234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668890   (173194) от 14.10.2023
-
-Запись милого убийства / Aru yasashiki satsujinsha no kiroku / A Record of Sweet Murderer (2014) WEBRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналистка Со-ён вместе с оператором-японцем отправляется на встречу с Сан-джуном, бывшим другом детства, а ныне — серийным убийцей, сбежавшим из психушки и убившим 18 человек. Тот живёт в заброшенном здании и на камеру рассказывает Со-ён, что после несчастного случая в их общем детстве и смерти подруги стал слышать Бога. Бог сообщил ему, что по достижении 27 лет (   Читать дальше...   )Производство: Япония, Корея Южная / Nikkatsu Corporation, Zoa FilmsЖанр: ужасы, триллер, фэнтези, криминалРежиссер: Кодзи СираисиАктеры: Ён Джэ-ук, Ким Ккот-пи, Кодзи Сираиси, Рётаро Ёнэмура, Цукаса Аои, Пак Чон-юнПеревод: Одноголосый любительский (datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:25:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A39AF53139F0CA85E33A71E067FDAF2E186833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668859   (173145) от 14.10.2023
-
-Мой Хатико / Zhong quan ba gong / Hachiko (2023) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало 2000-х годов. Во время поездки за город с коллегами немолодой университетский преподаватель Чэнь подбирает на дороге грязного и испуганного щенка. Никто не соглашается взять пёсика себе, поэтому мужчине приходится втихаря принести его домой, хотя супруга терпеть не может собак. Пообещав, что найдёт щенку новый дом, Чэнь тем не менее отказывает всем претендентам (   Читать дальше...   )Производство: Китай / iQIYI PicturesЖанр: драма, семейныйРежиссер: Сюй АнАктеры: Фэн Сяоган, Хуан Сюн, Да Хуан, Джоан Чэнь, Бай Цзюйган, Эпонин Хуан, Цянь Бо, Ян Бо, Хуан Сяоцзюй, Хуан ДоуПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A7B8054B23E22DD9928B96C8E48CFD8E5EDAEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669452   (172807) от 16.10.2023
-
-Круто сваренные 2: Последняя кровь / Ging tin 12 siu si / Hardboiled 2: The Last Blood (1991) BDRemux [H.264/1080p] [AVO] [Remastered]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сингапур готовится к национальному празднику. Накануне приезжает религиозный деятель Дака Лама, но в аэропорту на него совершает покушение террористическая организация «Красная армия». Вместе с Ламой случайно пострадала девушка. В больнице выясняется, что у них очень редкая группа крови «П». За немногочисленными донорами начинается настоящая охота. С одной стороны (   Читать дальше...   )Производство: Гонконг, Movie Impact LimitedЖанр: боевикРежиссер: Вон ЦзинАктеры: Алан Там, Энди Лау, Эрик Цан, Чань Пак-Чун, Чин-Ю Чанг, Цзе-Ли Чанг, Тсан-Хсинг Ченг, Хо Чин, Кун-Янг Чу, Пэй-Хсинг ХунгПеревод: Авторский (Сергей Визгунов)Язык озвучки: русский, китайский, английскийСубтитры: китайские, английские (PGS)Продолжительность: 01:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7F5908A0D6CD77B842E6A6F5599F8BB3FB4F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669667   (172603) от 17.10.2023
-
-Она стреляет метко / Huang jia nu jiang / She Shoots Straight (1990) BDRemux [H.264/1080p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выходя замуж за полицейского, полицейская Мин знала, на что шла — все три его сестры служат в полиции и не очень любят Мину, считая ее выскочкой и зазнайкой, так как за успешно проведенную операцию именно она получила повышение. Пытаясь остановить нападение банды вьетнамцев на ночной клуб, Мина с группой заваливает задание, но убивает брата главного злодея, который (   Читать дальше...   )Производство: Гонконг, Bo Ho Film Company Ltd.Жанр: боевик, криминалРежиссер: Кори ЮэньАктеры: Джойс Годензи, Саммо Хунг, Тони Люн Ка-Фай, Карина Лау, Пик-Ван Танг, Юэнь Ва, Агнес Аурелио, Кори Юэнь, Сандра Нг, Ангиле ЛюнПеревод: Авторский (Акира)Язык озвучки: русский, китайский, английскийСубтитры: английские (PGS)Продолжительность: 01:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B537650234788E2317F4F12E49798584D557F60
 ```
 
 https://mybot314.ru/tekegram_catalog/

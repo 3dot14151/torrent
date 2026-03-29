@@ -1,3 +1,31 @@
+###  Публикация: 637188   (621452) от 27.07.2013
+
+Shinsekai Yori / From the New World / Из Нового Мира [2012, TV, 25 ep] BDRip 720p Hi10p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_621452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тысячу лет человечество, как предсказывал Руссо, вернулось к истокам. Люди отринули машинную цивилизацию, оставив минимум техники для комфортной жизни на уровне начала XX века. Нет центральной власти - жители обитают в малых городах и поселках в единении с природой. Нефть и атом больше не нужны – в каждой общине есть мастера «дзюрёку», таинственной силы, что мы назвали бы телекинезом. Обладатель такой силы способен выполнить любую физическую работу или использовать свою мощь для защиты сограждан. Дар, который можно пробудить ритуалами, больше похожими на древнюю магию, проявляется где-то к 12 годам. Именно в этот возраст и вступают главные герои сериала…
+
+Саки Ватанабэ жила в городке Камису-66, не зная проблем. Папа – мэр, мама – главный библиотекарь, в школе магии девочка встретилась с друзьями детства Сатору, Мамору, Марией и Сюном, и вскоре дружная пятерка вышла далеко за пределы программы. Тут у любознательных ребят и возникли первые «вредные вопросы»: почему взрослые не любят покидать город? Откуда (   Читать дальше...   )Жанр: приключения, фэнтези, драмаРежиссер: Исихама МасасиПеревод: Firegorn TeamФормат: MKV
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134569   (621224) от 25.06.2017
 
 Busou Shoujo Machiavellianism / Armed Girl's Machiavellism / Тирания вооруженных девушек [2017, TV, 12 ep] HDTV 720p Raw+Rus
@@ -6,7 +34,7 @@ Busou Shoujo Machiavellianism / Armed Girl's Machiavellism / Тирания во
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621224.jpg" />
+  <img src="Z:/picture/008/save_picture_621224.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Roku de Nashi Majutsu Koushi to Akashic Records / Акашийские хрон�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621222.jpg" />
+  <img src="Z:/picture/008/save_picture_621222.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ Shikioriori / Flavors of Youth / Вкусы Молодости [2018, MV] WEB-DL
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619930.jpg" />
+  <img src="Z:/picture/008/save_picture_619930.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ Yakusoku no Neverland / The Promised Neverland / Обещанный Неверл
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619926.jpg" />
+  <img src="Z:/picture/008/save_picture_619926.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ Kimi no Suizou wo Tabetai | Kimi no Suizou o Tabetai | I Want to Eat Your Pancre
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618258.jpg" />
+  <img src="Z:/picture/008/save_picture_618258.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ Eromanga Sensei / Эроманга-сенсей [2017, TV, 12 ep] HDTV 720p Raw+
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617568.jpg" />
+  <img src="Z:/picture/008/save_picture_617568.jpg" />
 </div>
 
 
@@ -165,7 +193,7 @@ Kagami no Kojou | Lonely Castle in the Mirror | Одинокий замок в �
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617303.jpg" />
+  <img src="Z:/picture/008/save_picture_617303.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ Renai Boukun / Love Tyrant / Любовь тирана [2017, TV, 12 ep] WEB-DL 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615874.jpg" />
+  <img src="Z:/picture/008/save_picture_615874.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ Kakegurui XX | Безумный азарт XX [2019, TV, 12] HDTV 720p raw + rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614703.jpg" />
+  <img src="Z:/picture/008/save_picture_614703.jpg" />
 </div>
 
 
@@ -245,7 +273,7 @@ ID-0 / Идентификатор - ноль [2017, TV, 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614123.jpg" />
+  <img src="Z:/picture/008/save_picture_614123.jpg" />
 </div>
 
 
@@ -271,7 +299,7 @@ Beatless / Мёртвый ритм [2018, TV, 20 ep + 4 sp] WEB-DL 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605992.jpg" />
+  <img src="Z:/picture/008/save_picture_605992.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ Ookami to Koushinryou | Spice and Wolf | Волчица и пряности [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604192.jpg" />
+  <img src="Z:/picture/008/save_picture_604192.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603739.jpg" />
+  <img src="Z:/picture/008/save_picture_603739.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ Tsuki ga Kirei / Какая красивая луна! [2017, TV, 12 ep] HDTV 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603247.jpg" />
+  <img src="Z:/picture/008/save_picture_603247.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ Hakumei to Mikochi | Хакумэй и Микоти [2018, TV, 12 эп. +1 OVA] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603025.jpg" />
+  <img src="Z:/picture/008/save_picture_603025.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601819.jpg" />
+  <img src="Z:/picture/008/save_picture_601819.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ Golden Kamuy | Золотое Божество | Голден-камуй: дух
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601784.jpg" />
+  <img src="Z:/picture/008/save_picture_601784.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ Mecha-ude | Mechanical Arms | Механические руки [2018, ONA] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601519.jpg" />
+  <img src="Z:/picture/008/save_picture_601519.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ Gegege no Kitarou (2018) | Китаро из леса Гегеге [ТВ-6] [201
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599589.jpg" />
+  <img src="Z:/picture/008/save_picture_599589.jpg" />
 </div>
 
 
@@ -508,7 +536,7 @@ Grancrest Senki / Record of Grancrest War / Легенда о Гранкрест
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597601.jpg" />
+  <img src="Z:/picture/008/save_picture_597601.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ Cowboy Bebop: Tengoku no Tobira / Ковбой Бибоп: Достучатьс�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597362.jpg" />
+  <img src="Z:/picture/008/save_picture_597362.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ Campione! / Campione! Matsurowanu Kamigami to Kami Koroshi no Maou / Чемпи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_597196.jpg" />
+  <img src="Z:/picture/005/save_picture_597196.jpg" />
 </div>
 
 
@@ -588,7 +616,7 @@ Mobile Police Patlabor: The Movie / Полиция Будущего (фильм 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597191.jpg" />
+  <img src="Z:/picture/008/save_picture_597191.jpg" />
 </div>
 
 
@@ -614,7 +642,7 @@ Pokemon: Black and White. Rival Destinies / Покемон: Чёрное и Бе
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596748.jpg" />
+  <img src="Z:/picture/008/save_picture_596748.jpg" />
 </div>
 
 
@@ -640,7 +668,7 @@ Ryuu no Haisha | The Dragon Dentist | Драконий зубной [2017, Speci
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595686.jpg" />
+  <img src="Z:/picture/008/save_picture_595686.jpg" />
 </div>
 
 
@@ -651,33 +679,6 @@ Ryuu no Haisha | The Dragon Dentist | Драконий зубной [2017, Speci
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43EAF514ADF1913640435DD6194494A27AF8FA86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300450   (593034) от 06.05.2019
-
-Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 из 12] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сакура Минамото — школьница, поступившая во второй класс старшей школы. В свой первый учебный день она была полна энтузиазма — она хотела подать заявление на кастинг, чтобы стать поп-идолом! Да вот незадача — её сбила машина, стоило ей только выйти из дома.
-Спустя 10 лет после гибели девушки её оживляет профессиональный стилист Котаро Тацуми, желающий создать группу (   Читать дальше...   )Производство: студия MAPPAЖанр: приключенияРежиссер: Сакай МунэхисаПеревод: AniLibria ASS полныеЯзык озвучки: Японский и русский (Профессиональный многоголосый (Kansai) , Любительский двухголосный (AniDUB)Субтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CBDB8ABE12AE846CEAEF0D97BFA6DC7BEC2820
 ```
 
 https://mybot314.ru/tekegram_catalog/

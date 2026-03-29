@@ -1,3 +1,90 @@
+###  Публикация: 1411042   (430072) от 24.09.2020
+
+Lazarvs - Lazarvs (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IV. Rebirth [00:01:38]
+02. The Order [00:04:36]
+03. Reaping [00:01:55]
+04. Pit. [00:03:18](   Читать дальше...   )Жанр: Sludge Metal, Groove MetalПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA92860816149E24B34A59E88073867503719C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411106   (430069) от 24.09.2020
+
+Lepergod - Siniestro Éxtasis (2018) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.     Fuego Salvaje
+02.     Litvrgia
+03.     Diatriba Infernal
+04.     Vi la Muerte(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E25928C57DF17879C8F5A65DDACE23E6660776A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411118   (429993) от 24.09.2020
+
+Secret Sphere - Heart And Anger (2005) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless (1:53)
+02. Where the Sea Ends (5:03)
+03. First Snake (6:28)
+04. Loud & Raw (4:57)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B97D519CED8F9C058C4795A89AC35EA536060D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410803   (429991) от 24.09.2020
 
 Mezmerized - Electrolyze (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore>
@@ -6,7 +93,7 @@ Mezmerized - Electrolyze (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429991.jpg" />
+  <img src="Z:/picture/008/save_picture_429991.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Dominus Inferi - Age of Darkness (2008) [FLAC|Lossless|image + .cue] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429990.jpg" />
+  <img src="Z:/picture/008/save_picture_429990.jpg" />
 </div>
 
 
@@ -62,7 +149,7 @@ Lingerbliss - Uncertain (2010) [FLAC|Lossless|image + .cue] <Progressive Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429989.jpg" />
+  <img src="Z:/picture/008/save_picture_429989.jpg" />
 </div>
 
 
@@ -91,7 +178,7 @@ Twilight - The Time Has Come (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429988.jpg" />
+  <img src="Z:/picture/008/save_picture_429988.jpg" />
 </div>
 
 
@@ -120,7 +207,7 @@ Mirayon - A Tale of Challenging Hope (2020) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429985.jpg" />
+  <img src="Z:/picture/008/save_picture_429985.jpg" />
 </div>
 
 
@@ -149,7 +236,7 @@ Thought Chamber - Angular Perceptions (2007) [FLAC|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429984.jpg" />
+  <img src="Z:/picture/008/save_picture_429984.jpg" />
 </div>
 
 
@@ -178,7 +265,7 @@ Heavens Gate - Planet E (1996) Japan [APE|Lossless|image + .cue] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429981.jpg" />
+  <img src="Z:/picture/008/save_picture_429981.jpg" />
 </div>
 
 
@@ -207,7 +294,7 @@ Raven - Party Killers (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429980.jpg" />
+  <img src="Z:/picture/008/save_picture_429980.jpg" />
 </div>
 
 
@@ -236,7 +323,7 @@ In Element - Act Of Stamina: Twelve Fragments Of Strength And Calm Before The St
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429976.jpg" />
+  <img src="Z:/picture/008/save_picture_429976.jpg" />
 </div>
 
 
@@ -265,7 +352,7 @@ Krisiun - Mortem Solis (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429854.jpg" />
+  <img src="Z:/picture/008/save_picture_429854.jpg" />
 </div>
 
 
@@ -294,7 +381,7 @@ Helltern - Alighieri's Visions (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429845.jpg" />
+  <img src="Z:/picture/008/save_picture_429845.jpg" />
 </div>
 
 
@@ -323,7 +410,7 @@ Vhaldemar - Straight To Hell (2020) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429762.jpg" />
+  <img src="Z:/picture/008/save_picture_429762.jpg" />
 </div>
 
 
@@ -352,7 +439,7 @@ Messa - Feast for Water (2018) [FLAC|Lossless|tracks + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429273.jpg" />
+  <img src="Z:/picture/008/save_picture_429273.jpg" />
 </div>
 
 
@@ -381,7 +468,7 @@ VA - Death ... Is Just The Beginning Vol. I - VII (1990 - 2002) 13 CD [FLAC|APE|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428940.jpg" />
+  <img src="Z:/picture/008/save_picture_428940.jpg" />
 </div>
 
 
@@ -407,7 +494,7 @@ Worshipper - Shadow Hymns (2016) [FLAC|Lossless|tracks] <Classic Heavy Metal, Cl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428374.jpg" />
+  <img src="Z:/picture/008/save_picture_428374.jpg" />
 </div>
 
 
@@ -436,7 +523,7 @@ Metal Clone X - Metal Clone X (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428222.jpg" />
+  <img src="Z:/picture/008/save_picture_428222.jpg" />
 </div>
 
 
@@ -465,7 +552,7 @@ The Dillinger Escape Plan - Dissociation (2016) [FLAC|Lossless|tracks + .cue] <J
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428056.jpg" />
+  <img src="Z:/picture/008/save_picture_428056.jpg" />
 </div>
 
 
@@ -494,7 +581,7 @@ Voodoo Kiss - Voodoo Kiss (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427517.jpg" />
+  <img src="Z:/picture/008/save_picture_427517.jpg" />
 </div>
 
 
@@ -523,7 +610,7 @@ Berzerker Legion - Obliterate The Weak (2020) [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427515.jpg" />
+  <img src="Z:/picture/008/save_picture_427515.jpg" />
 </div>
 
 
@@ -552,7 +639,7 @@ Parasite Inc. - Cyan Night Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern I
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427508.jpg" />
+  <img src="Z:/picture/008/save_picture_427508.jpg" />
 </div>
 
 
@@ -581,7 +668,7 @@ Almas Militares - Almas Militares (2006) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427197.jpg" />
+  <img src="Z:/picture/008/save_picture_427197.jpg" />
 </div>
 
 
@@ -610,7 +697,7 @@ Almas Militares - Nubes De Gloria (2004) [FLAC|Lossless|image + .cue] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427195.jpg" />
+  <img src="Z:/picture/008/save_picture_427195.jpg" />
 </div>
 
 
@@ -639,7 +726,7 @@ Almas Militares - Tormenta Solar (2012) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427194.jpg" />
+  <img src="Z:/picture/008/save_picture_427194.jpg" />
 </div>
 
 
@@ -653,93 +740,6 @@ Almas Militares - Tormenta Solar (2012) [FLAC|Lossless|image + .cue] <Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D46B17E10EECA5490247EC8AA6CB6DCDDE32439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250168   (427193) от 27.09.2018
-
-Finsterforst - Weltenkraft (2007) 2CD, Reissued, 2008 [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Des Waldes Macht (5:30)
-02-Die Suche Nach Dem Licht (6:21)
-03-Lauf Der Welt (8:10)
-04-Traumwald (5:17)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83EFB459F17A406573B98AADB45F9AC014126AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250169   (427191) от 27.09.2018
-
-Fortíð - Völuspá Part III: Fall of the Ages (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Fornir Salir (5:55)
-02-Austursins Heimsenda Her (8:10)
-03-Fall Aldanna (4:45)
-04-Jafnvaegi Endurheimt (5:42)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E7A4D8E2345CD19300314BF52E0C844F233E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250161   (427187) от 27.09.2018
-
-Demonical - Chaos Manifesto (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Void Most Obscure
-02. Towards Greater Gods
-03. Sung to Possess
-04. Välkommen undergång(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF4C07388E5816A50B41C8F7B6967E89700217E
 ```
 
 https://mybot314.ru/tekegram_catalog/

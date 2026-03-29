@@ -1,3 +1,125 @@
+###  Публикация: 1500381   (841395) от 06.10.2021
+
+Tony Bennett & Count Basie - Swingin' Together (1958) 2021, 20th Century Masterworks [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just in Time [1:48]
+02. When I Fall in Love [2:22]
+03. Taking a Chance on Love [2:00]
+04. Without a Song [3:09](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E473FE06664107033A161E7A27382CFE3DC3A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500374   (841307) от 06.10.2021
+
+Roy Eldridge With The Gene Krupa Orchestra Featuring Anita O'Day - Uptown (1941 - 1949) 1990, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Eyes [2:41]
+02. Let Me Off Uptown [3:06]
+03. Kick It! [2:29]
+04. After You've Gone [2:39](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA0D3EED48C58D5CD2083DF30F2832352910882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309679   (840910) от 16.03.2011
+
+Paul Hardcastle - Desire (2011) [FLAC|Lossless]<Jazz-Pop, Smooth Jazz, New Age>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire (4:27)
+02. Valentine (3:47)
+03. Forever Dreamin (4:50)
+04. Closer (4:55)
+05. Wonderland (5:18)
+06. Lost Summer (4:51)
+07. Same Place Same Time (5:52)
+08. Lost In Space (4:56)
+09. Smooth Jazz Is Bumpin (4:09)
+10. Cloud Watching (5:30)(   Читать дальше...)Жанр: Jazz-Pop, Smooth Jazz, New AgeПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004181   (840316) от 05.04.2016
+
+Russ Garcia & His Vocal Choir & Orchestra - Sounds In The Night (1957) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Third Stream>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sophisticated Lady [02:39]
+ 02.Ill Wind [03:05]
+ 03.Painting The Town Blue [02:44]
+ 04.Sweet And Lovely [03:29](   Читать дальше...   )Жанр: Vocal Jazz, Third StreamПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C8879F0D2EFB05F8088F4737D0103E7F0D9D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113130   (840211) от 10.03.2017
 
 Andy Narell - Fire In The Engine Room (2000) Heads Up [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz Rock>
@@ -6,7 +128,7 @@ Andy Narell - Fire In The Engine Room (2000) Heads Up [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840211.jpg" />
+  <img src="Z:/picture/008/save_picture_840211.jpg" />
 </div>
 
 
@@ -35,7 +157,7 @@ Kaira - Kaira (2017) [FLAC|Lossless|WEB-DL|tracks] <Cool Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840207.jpg" />
+  <img src="Z:/picture/008/save_picture_840207.jpg" />
 </div>
 
 
@@ -64,7 +186,7 @@ Thelonious Monk - Blue Monk (1948-1963) 3CD, 2014, Le Chant Du Monde[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840204.jpg" />
+  <img src="Z:/picture/008/save_picture_840204.jpg" />
 </div>
 
 
@@ -93,7 +215,7 @@ Fats Waller - The Real... Fats Waller (2016) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840124.jpg" />
+  <img src="Z:/picture/008/save_picture_840124.jpg" />
 </div>
 
 
@@ -122,7 +244,7 @@ Tony Bennett - Five Classic Albums (1954 - 1959) 2CD, 2021, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839942.jpg" />
+  <img src="Z:/picture/008/save_picture_839942.jpg" />
 </div>
 
 
@@ -151,7 +273,7 @@ Tony Bennett - Jazz (1954 - 1967) 1987, Columbia [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839941.jpg" />
+  <img src="Z:/picture/008/save_picture_839941.jpg" />
 </div>
 
 
@@ -180,7 +302,7 @@ Spike Robinson & Al Cohn - Once In A Wild (1987) AAD [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839637.jpg" />
+  <img src="Z:/picture/008/save_picture_839637.jpg" />
 </div>
 
 
@@ -209,7 +331,7 @@ Red Callender - Four Classic Albums 1942 - 1958 (2016) 2CD, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839635.jpg" />
+  <img src="Z:/picture/008/save_picture_839635.jpg" />
 </div>
 
 
@@ -238,7 +360,7 @@ Scott Hamilton & Alan Barnes - Hi-Ya (2010) Woodville Records [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839566.jpg" />
+  <img src="Z:/picture/008/save_picture_839566.jpg" />
 </div>
 
 
@@ -267,7 +389,7 @@ Alan Barnes, Scott Hamilton with the David Newton Trio - Zootcase (2008) Woodvil
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839562.jpg" />
+  <img src="Z:/picture/008/save_picture_839562.jpg" />
 </div>
 
 
@@ -296,7 +418,7 @@ Club des Belugas - Swop (2008) [FLAC|Lossless]<Nu Jazz, Electro Swing, Lo-Fi>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839108.jpg" />
+  <img src="Z:/picture/008/save_picture_839108.jpg" />
 </div>
 
 
@@ -331,7 +453,7 @@ Herbie Hancock - The Best Of Herbie Hancock - The Hits! (2000) [FLAC|Lossless]<F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839032.jpg" />
+  <img src="Z:/picture/008/save_picture_839032.jpg" />
 </div>
 
 
@@ -365,7 +487,7 @@ VA - Street Beat: Jazz & Tzaz 59 (1998) PolyGram [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838709.jpg" />
+  <img src="Z:/picture/008/save_picture_838709.jpg" />
 </div>
 
 
@@ -394,7 +516,7 @@ The Bud Powell Trio - Strictly Powell (1956) Remaster, 2014, Sony Music[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838623.jpg" />
+  <img src="Z:/picture/008/save_picture_838623.jpg" />
 </div>
 
 
@@ -423,7 +545,7 @@ The Three Sounds and The Oliver Nelson Orchestra - Coldwater Flat (1968) Remaste
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838526.jpg" />
+  <img src="Z:/picture/008/save_picture_838526.jpg" />
 </div>
 
 
@@ -452,7 +574,7 @@ Mezz Mezzrow - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838246.jpg" />
+  <img src="Z:/picture/008/save_picture_838246.jpg" />
 </div>
 
 
@@ -481,7 +603,7 @@ Art Farmer - Here's That Rainy Day (1990) Mobile Fidelity Sound Lab [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838245.jpg" />
+  <img src="Z:/picture/008/save_picture_838245.jpg" />
 </div>
 
 
@@ -510,7 +632,7 @@ New York Voices - Reminiscing In Tempo (2019) Origin Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838242.jpg" />
+  <img src="Z:/picture/008/save_picture_838242.jpg" />
 </div>
 
 
@@ -539,7 +661,7 @@ Horace Parlan - Joe Meets The Rhythm Section (1986) Remaster, 2015, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838060.jpg" />
+  <img src="Z:/picture/008/save_picture_838060.jpg" />
 </div>
 
 
@@ -568,7 +690,7 @@ Buster Williams - Griot Liberte (2004) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837803.jpg" />
+  <img src="Z:/picture/008/save_picture_837803.jpg" />
 </div>
 
 
@@ -601,7 +723,7 @@ VA - 100 Hits: 50s (2009) 5CD, Box Set [FLAC|Lossless]<Soul, rock'n'roll, funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837778.jpg" />
+  <img src="Z:/picture/008/save_picture_837778.jpg" />
 </div>
 
 
@@ -630,7 +752,7 @@ The Gil Evans Orchestra - Out Of The Cool (2007) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837707.jpg" />
+  <img src="Z:/picture/008/save_picture_837707.jpg" />
 </div>
 
 
@@ -647,122 +769,6 @@ The Gil Evans Orchestra - Out Of The Cool (2007) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379632   (837676) от 30.04.2020
-
-Andrea Motis & Joan Chamorro Group featuring Scott Hamilton - Live At Jamboree-Barcelona (2013) Swit Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exactly Like You [4:24]
-02. Meditacao [6:45]
-03. I Fall in Love Too Easily [6:36]
-04. Sun Showers [4:33](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F437112D6BEEA5CBE1D2C285218C39024C4A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004845   (836974) от 07.04.2016
-
-Bobby Hutcherson - Now! (1969) Remaster, 2004, Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Slow Change [07:18]
- 02.Hello To The Wind [06:00]
- 03.Now [02:47]
- 04.The Creators [12:36](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EB952EC132FEE323B9B8B522F8E48C1E845E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004818   (836973) от 07.04.2016
-
-The Phil Woods Six - Live From The Showboat (1976) 2CD, Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836973.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.A Sleepin' Bee [07:39]
-02.Rain Danse [08:21]
-03.Bye Bye Baby [07:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF35BAFCA1EBF401A2CE65CDCF2ED2EA526FDA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004810   (836963) от 07.04.2016
-
-Peggy Lee with George Shearing - Beauty and the Beat! (1959) 2000, Capitol[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Do I Love You? [03:54]
- 02.I Lost My Sugar In Salt Lake City [02:50]
- 03.If Dreams Come True [02:52]
- 04.All Too Soon [03:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F777BE6791C97E970D0477B4323598AC107C0A36
 ```
 
 https://mybot314.ru/tekegram_catalog/

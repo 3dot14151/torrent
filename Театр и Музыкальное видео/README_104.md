@@ -1,3 +1,177 @@
+###  Публикация: 844988   (302045) от 02.12.2014
+
+A Classic Rock Tribute To Led Zeppelin (2004) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_302045.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Classic Rock Quartet представляет композиции Led Zeppelin01. Dazed And Confused
+02. Thank you
+03. Tangerine
+04. That’s The Way(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9584438C90D7B2FF9C6C63A1BE91B10FBFE30917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846283   (301703) от 02.12.2014
+
+Золотой граммофон. 19-я Церемония вручения народной премии (Полная версия)  (2014.11.29) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301703.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 ноября 2014 года состоится XIX Ежегодная церемония вручения народной музыкальной премии «Золотой Граммофон». На сцене Государственного Кремлевского Дворца соберутся лучшие и любимые исполнители.
+«Золотой Граммофон» - самая долгожданная и почетная музыкальная премия России, ежегодно проходящая на кремлевской сцене. Это десятки именитых гостей в великолепных вечерних (   Читать дальше...   )01. Вера Брежнева - Доброе утро
+02. Дима Билан - Малыш
+03. Валерия - Мы боимся любить
+04. Николай Басков и Натали - Николай(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 04:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02479264A3C37C64F3235233D3801C04E74806EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 846269   (301599) от 02.12.2014
+
+Авторадио. Большая Дискотека 80-х (2014.11.29) WEBRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главное музыкальное событие осени - XIII международный музыкальный фестиваль «Авторадио» «Дискотека 80-х» - состоялся 29 ноября 2014 года в СК Олимпийский».
+«Авторадио» снова подарило всем ценителям хорошей музыки фантастическое, захватывающее шоу, в котором гармонично сочетались зажигательные ритмы 80-х и ультрасовременная сценография, эффектные постановки и оригинальные (   Читать дальше...   )01. Eruption - One way ticket
+02. Виктор Салтыков - Белая ночь
+03. Игорь Николаев - Такси
+04. Ottawan - D.I.S.C.O(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 04:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C5ACD0939238ECE85BB607310CDEAB2219B9682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184364   (301295) от 17.11.2017
+
+Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301295.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз содержит выступления группы на фестивалях Rock Hard 2007, Live Factory 2008 и пару клипов (Thicker Than Blood, Dethroned (uncensored))Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:19:01+01:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184338   (301180) от 17.11.2017
+
+Dio - Evil Or Divine (Live in New York City) (2003) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы Dio записанный в Roseland Ballroom (New York City) 13 декабря 2002 и выпущенный на DVD в июле 2013. Релиз содержит сам концерт, интервью, фото, закулисные съемки и видеоклип Push1. Killing The Dragon
+2. Egypt/Children of the Sea
+3. Push
+4. Drum Solo(   Читать дальше...   )Производство: Eagle VisionЖанр: Heavy Metal, Hard RockСубтитры: ОтсутствуютПродолжительность: 01:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BA54F00B3178D99CAD3FB939FBAA77AFA5E4DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960998   (301135) от 01.12.2015
+
+New Order, Live In Glasgow (2008) DVD9 + DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301135.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD1: Концерт в Глазго. Съёмки - октябрь 2006 года. (DVD-9)
+DVD2: Редкие и ранее не опубликованные съёмки. (DVD-5)1	Crystal	7:07
+2	Turn	4:33
+3	True Faith	5:49
+4	Regret	4:05(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, House, New Wave, Electro, Synth-popПеревод: ОтсутствуетЯзык субтитров: English, French, German, Spanish, Brazilian Portuges.Продолжительность: DVD1:~ 01:47:00, DVD2:~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C77EBF0A19EA969F743901AAE6661DBB1C12AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184348   (301086) от 17.11.2017
 
 Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
@@ -6,7 +180,7 @@ Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301086.jpg" />
+  <img src="Z:/picture/008/save_picture_301086.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ Queen - Live At The Rainbow '74 (2014) BDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300992.jpg" />
+  <img src="Z:/picture/008/save_picture_300992.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ Slipknot - Day Of The Gusano (2017) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300976.jpg" />
+  <img src="Z:/picture/008/save_picture_300976.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) WEBRip 
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300925.jpg" />
+  <img src="Z:/picture/008/save_picture_300925.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300923.jpg" />
+  <img src="Z:/picture/008/save_picture_300923.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ Queen – A Night At The Odeon (2015) (Recorded Live At The Hammersmith 1975) DV
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300804.jpg" />
+  <img src="Z:/picture/008/save_picture_300804.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Осенний марафон № 208: Хиты с доставкой на 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300795.jpg" />
+  <img src="Z:/picture/008/save_picture_300795.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300786.jpg" />
+  <img src="Z:/picture/008/save_picture_300786.jpg" />
 </div>
 
 
@@ -237,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300606.jpg" />
+  <img src="Z:/picture/008/save_picture_300606.jpg" />
 </div>
 
 
@@ -264,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300445.jpg" />
+  <img src="Z:/picture/008/save_picture_300445.jpg" />
 </div>
 
 
@@ -290,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300416.jpg" />
+  <img src="Z:/picture/008/save_picture_300416.jpg" />
 </div>
 
 
@@ -316,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300003.jpg" />
+  <img src="Z:/picture/008/save_picture_300003.jpg" />
 </div>
 
 
@@ -342,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299829.jpg" />
+  <img src="Z:/picture/008/save_picture_299829.jpg" />
 </div>
 
 
@@ -369,7 +543,7 @@ U.D.O. – Steelhammer: Live from Moscow (2014) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299716.jpg" />
+  <img src="Z:/picture/008/save_picture_299716.jpg" />
 </div>
 
 
@@ -398,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299445.jpg" />
+  <img src="Z:/picture/008/save_picture_299445.jpg" />
 </div>
 
 
@@ -429,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298805.jpg" />
+  <img src="Z:/picture/008/save_picture_298805.jpg" />
 </div>
 
 
@@ -458,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298734.jpg" />
+  <img src="Z:/picture/008/save_picture_298734.jpg" />
 </div>
 
 
@@ -484,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298646.jpg" />
+  <img src="Z:/picture/008/save_picture_298646.jpg" />
 </div>
 
 
@@ -511,7 +685,7 @@ Black Sabbath - The End (Live In Birmingham) (2017) BDRip [H.264/1080p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298529.jpg" />
+  <img src="Z:/picture/008/save_picture_298529.jpg" />
 </div>
 
 
@@ -540,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298479.jpg" />
+  <img src="Z:/picture/008/save_picture_298479.jpg" />
 </div>
 
 
@@ -552,172 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B836D2D462A4ECA83D2E5683B424DB5D1C6060E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078766   (297929) от 02.12.2016
-
-Джоаккино Россини - Севильский цирюльник / Gioachino Rossini - Il Barbiere di Siviglia (2005) BDRip (2 части) [H.264/720p] [IT]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297929.jpg" />
-</div>
-
-
-###  Подробнее
-
-XVIII век, Севилья. Граф Альмавива влюблен в прекрасную Розину, которую неусыпно охраняет от чужих взглядов ее опекун - доктор Бартоло. Старик мечтает сам жениться на Розине - богатой наследнице. Цирюльник Фигаро, мастер на все руки (и парикмахер, и хирург, и ветеринар, и почтальон) готов помочь графу в его сердечных делах за определенную плату. Тем более, что Розина (   Читать дальше...   )Производство: Испания, Opus Arte, Teatro Real, Mediapro MMVЖанр: ОпераРежиссер: Анхель Луис Рамирес, Эмилио СахиАктеры: Хуан Диего Флорес, Бруно Пратико, Мария Байо, Пьетро Спаньоли, Руджеро Раймонди, Марко Монклоа, Сусана Гордон, Энрике Санчез Рамос, Антонио Ортега, Хосе Антонио СангиноСубтитры: Английские, немецкие, французские, испанскиеПродолжительность: 2 x ~ 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3945897EB397C8AD24D31F2AE9C235A33DF308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078468   (297662) от 02.12.2016
-
-Василий Шукшин - Рассказы Шукшина, 2 части (2015) SATRip  (Театр наций)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спектакль по рассказам Василия Макаровича Шукшина "Стёпкина любовь", "Сапожки", "Микроскоп", "Игнаха приехал", "Беспалый", "Жена мужа в Париж провожала", "Срезал", "В воскресенье мать-старуха", "Стёпка".
-Зритель не увидит на сцене привычной инсценировки каждого рассказа. Никто (   Читать дальше...   )Производство: Россия, Театр нацийЖанр: СпектакльРежиссер: Алвис ХерманисАктеры: Евгений Миронов, Чулпан Хаматова, Юлия Свежакова, Юлия Пересильд, Наталья Ноздрина, Александр Гришин (I), Дмитрий Журавлев, Павел Акимкин, Александр НовинПродолжительность: 2 х ~ 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F64A909D1D5863CA8361A504878083D73534DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 731148   (297008) от 07.12.2013
-
-Смешная девчонка / Funny Girl (1968) BDRip [H.264/720p-LQ] [Hi10P]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Мюзикл, Драма, Мелодрама, Комедия, БиографияРежиссер: Уильям УайлерАктеры: Барбара Стрейзанд, Омар Шариф, Кэй Медфорд, Энн Френсис,Уолтер Пиджон, Ли Аллен,Мэй Куэстел,Джералд Мор,Фрэнк Фэйлен,Митти ЛоуренсПеревод: Дублированный, Профессиональный (многоголосый закадровый), Авторский (одноголосый закадровый)Язык субтитров: Русский (песни), Английский, Английский SDHФормат: MKVПродолжительность: 02:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862355E12EA354E38C66196A5275869D32AFB999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184467   (296941) от 19.11.2017
-
-Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296941.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Это 2я часть сборника. Смотрите слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-061 Бейбит Корган - Сок-сок
-062 Mysterions - Неге ундемедин
-063 Дастан Оразбеков - Сезим(   Читать дальше...   )Жанр: PopПродолжительность: 03:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAB81AC541393D0D626E66420C9DECE5AAAF8F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184757   (296750) от 19.11.2017
-
-Сборник клипов - Best Hits 80 от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 2)
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296750.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли самые хитовые клипы 80х. Позитивная и добрая музыка. Все вспомят себя много лет назад, кто то вспомнит детство, кто то юность и первую любовь, те кто постарше, молодость. Кружитесь в красивом танце с памятью. Это 2я часть сборника. Смотрите,слушайте и наслаждайтесь. Все лучшее для вас. ALEXnROCK000 Intro
-058 Tina Turner - Simply The Best
-059 Sandra - Maria Magdalena
-060 Lisa Stansfield - All Around The World(   Читать дальше...   )Жанр: PopПродолжительность: 03:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF54D5903ED92CBD62018A2CE3F78EEBE8BC9C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915191   (296684) от 19.11.2017
-
-AC/DC - Live at River Plate (2009/2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись грандиозного тура AC/DC «Black Ice World Tour», снятая 32 HD камерами в декабре 2009 года. 200 000 фанатов, собравшихся на три шоу в Буэнос Айресе, приветствовали группу после 13 лет отсутствия в Аргентине.01. Rock n Roll Train
-02. Hell Ain't a Bad Place to Be
-03. Back in Black
-04. Big Jack(   Читать дальше...   )Производство: США, Columbia RecordsЖанр: Hard RockРежиссер: David MalletПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EF71C25062ADEFAE472ED386C87285F9D2B1A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

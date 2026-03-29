@@ -1,3 +1,111 @@
+###  Публикация: 931309   (512804) от 25.08.2015
+
+Dropzone 3.5.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_512804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropzone: Автоматизация рутинных действий
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что Mac OS X заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные операции, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 августа 2015Разработчик: Aptonic LimitedПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61A265D58E48F0B2A236C55AD251373031213E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197461   (512749) от 24.08.2018
+
+Mini Metro v.gamma 37 (2015) [Multi/Ru] [OS X Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_512749.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Mini Metro вашей задачей будет разработка схемы метро в быстро растущем городе. В начале в вашем городе есть три станции. Прокладывайте маршруты между этими станциями, чтобы соединить их с линиями метро. Пассажиры перемещаются по вашим линиям, чтобы добраться до цели как можно быстрее.Тип издания: OS X Native gameРелиз состоялся: 6 ноября 2015Разработчик: Dinosaur Polo ClubПоддерживаемая ОС: Mac: OS X 10.7.0 и вышеЖанр: Симулятор, Строительство, МенеджментЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57E0D49DD31EE9B53F00D054E3A4852C5951B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931470   (511757) от 26.08.2015
+
+Waltr 1.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_511757.jpg" />
+</div>
+
+
+###  Подробнее
+
+WALTR - новое приложение для Mac от Softorino (создатели iBetterCharge).
+Одним из постоянных упреков в адрес iOS является «сложность» передачи на устройства медиаконтента. Сложность эта, конечно, изрядно преувеличена, не надо быть семи пядей во лбу для того, чтобы выполнить обычный drag-n-drop, а в случае покупки лицензионного контента в iTunes — все еще проще. Но (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 августа 2015Разработчик: Softorno Inc .Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CE24C7BD153C0F6AFC6CFD08D182CE51ACAA0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931454   (511623) от 26.08.2015
+
+VMware Fusion Professional  8.0.0 (2985594) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_511623.jpg" />
+</div>
+
+
+###  Подробнее
+
+VMware Fusion — виртуальная машина, позволяющая в среде Mac OS X на базе платформы Intel запускать приложения, разработанные для других операционных систем, в том числе Windows и Linux. Поддерживаются как 32-разрядные, так и 64-разрядные версии ОС.
+
+VMware  решение для виртуализации в среде Mac OS X. Новая версия программного обеспечения VMware Fusion, поддерживает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 августа 2015Разработчик: VMware, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B6FF6C7B66F866FDA2D2F2E080DB62CA0527B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314938   (511608) от 21.07.2019
 
 Microsoft Office for Mac Standard 2019 v16.27.0 [Multi/Ru]
@@ -6,7 +114,7 @@ Microsoft Office for Mac Standard 2019 v16.27.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511608.jpg" />
+  <img src="Z:/picture/008/save_picture_511608.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Logic Pro X 10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511576.jpg" />
+  <img src="Z:/picture/008/save_picture_511576.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ PhotoMill X (aka Reformator) 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510778.jpg" />
+  <img src="Z:/picture/008/save_picture_510778.jpg" />
 </div>
 
 
@@ -88,7 +196,7 @@ Winclone Pro 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509993.jpg" />
+  <img src="Z:/picture/008/save_picture_509993.jpg" />
 </div>
 
 
@@ -115,7 +223,7 @@ WaterMarker 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509356.jpg" />
+  <img src="Z:/picture/008/save_picture_509356.jpg" />
 </div>
 
 
@@ -143,7 +251,7 @@ Disk Drill Entreprise 2.4.426 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509006.jpg" />
+  <img src="Z:/picture/008/save_picture_509006.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ Tales from the Borderlands: Episode 1-2-3-4 v.1.0 (2015) [Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509001.jpg" />
+  <img src="Z:/picture/008/save_picture_509001.jpg" />
 </div>
 
 
@@ -196,7 +304,7 @@ Winclone Pro 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508857.jpg" />
+  <img src="Z:/picture/008/save_picture_508857.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ Pillars of Eternity. The White March Part I v. 2.00.0706 (2015) [Multi/Ru] [OS X
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507828.jpg" />
+  <img src="Z:/picture/008/save_picture_507828.jpg" />
 </div>
 
 
@@ -251,7 +359,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.11.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507810.jpg" />
+  <img src="Z:/picture/008/save_picture_507810.jpg" />
 </div>
 
 
@@ -280,7 +388,7 @@ Parallels Desktop Business Edition 11.0.0 (31193 v2) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507730.jpg" />
+  <img src="Z:/picture/008/save_picture_507730.jpg" />
 </div>
 
 
@@ -307,7 +415,7 @@ Elmedia Player Pro 6.0 (710) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506975.jpg" />
+  <img src="Z:/picture/008/save_picture_506975.jpg" />
 </div>
 
 
@@ -335,7 +443,7 @@ Homeworld Remastered Collection (2015) [Multi/Ru] [OS X Native game] [AppStore]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506834.jpg" />
+  <img src="Z:/picture/008/save_picture_506834.jpg" />
 </div>
 
 
@@ -361,7 +469,7 @@ Wondershare PDFelement 5.3.3 (978) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506007.jpg" />
+  <img src="Z:/picture/008/save_picture_506007.jpg" />
 </div>
 
 
@@ -387,7 +495,7 @@ DriveDx 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506000.jpg" />
+  <img src="Z:/picture/008/save_picture_506000.jpg" />
 </div>
 
 
@@ -413,7 +521,7 @@ DxO Optics Pro Elite 10.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505952.jpg" />
+  <img src="Z:/picture/008/save_picture_505952.jpg" />
 </div>
 
 
@@ -439,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505948.jpg" />
+  <img src="Z:/picture/008/save_picture_505948.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ Alfred Powerpack 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505856.jpg" />
+  <img src="Z:/picture/008/save_picture_505856.jpg" />
 </div>
 
 
@@ -493,7 +601,7 @@ QuarkXPress 2015 v11.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505281.jpg" />
+  <img src="Z:/picture/008/save_picture_505281.jpg" />
 </div>
 
 
@@ -520,7 +628,7 @@ TextExpander 5.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505280.jpg" />
+  <img src="Z:/picture/008/save_picture_505280.jpg" />
 </div>
 
 
@@ -548,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505267.jpg" />
+  <img src="Z:/picture/008/save_picture_505267.jpg" />
 </div>
 
 
@@ -574,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505193.jpg" />
+  <img src="Z:/picture/008/save_picture_505193.jpg" />
 </div>
 
 
@@ -585,114 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:705F3621777A5B6EBB2979B3EA1EA0BBD0BDF2FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933693   (505190) от 02.09.2015
-
-Carbon Copy Cloner 4.1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Copy Cloner –  утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 01 сентября 2015Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2743F7AA310DBDDAD1C40D56197677859D211F2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933898   (504175) от 03.09.2015
-
-DaisyDisk 4.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Случалось ли так, что Вы не знаете, куда подевался ЖД на 600 ГБ? Для того, чтобы выяснить кто занял всю площадь, еcть замечательная программа и имя ей — DaisyDisk.
-Данная программа предоставляет удобное визуальное представление вашего жесткого диска, позволяя пользователю определить, какие файлы наиболее «прожорливы» по части свободного дискового пространства и удалить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 сентября 2015Разработчик: Software Ambience Corp.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E21CD4603583A29CF8AF91A6D6833127D9A10C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563715   (503824) от 15.07.2022
-
-Artstudio Pro 4.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.07.2022Разработчик: © Lucky ClanПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1220CE06FC2E036C1290F6A1B67E5626BB51618B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563659   (503819) от 15.07.2022
-
-4K YouTube to MP3 Pro 4.6.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503819.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 13.07.2022Разработчик: © 2022 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30DB6365A66B4793742AA19E580E3BE2413F151
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1280976   (745018) от 12.02.2019
+
+Военные машины / Machinery of War (2019) HDTVRip [H.264/720p-LQ] (1-6 серия из 6)
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история механизации войны. История о том, как машины становились тем, что определяло разницу между победой и поражением. С начала двадцатого века до наших дней война была радикально изменилась. Благодаря механизации и индустриализации методы, используемые для урегулирования конфликтов, сделали искусство войны более высокотехнологичным, более дорогим и более разрушительным, (   Читать дальше...   )Производство: Австралия, Wildbear EntertainmentЖанр: Документальный, вооружение, война, историяПеревод: Документальный дубляж компания «SDI Media» (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 6 х ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E55487181AF70B28C85474F4A127F5DD8B959A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280975   (744941) от 12.02.2019
 
 Военные машины / Machinery of War (2019) HDTV [H.264/1080p-LQ] (1-6 серия из 6)
@@ -6,7 +32,7 @@
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744941.jpg" />
+  <img src="Z:/picture/005/save_picture_744941.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744931.jpg" />
+  <img src="Z:/picture/008/save_picture_744931.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742184.jpg" />
+  <img src="Z:/picture/008/save_picture_742184.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739568.jpg" />
+  <img src="Z:/picture/008/save_picture_739568.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738911.jpg" />
+  <img src="Z:/picture/008/save_picture_738911.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736336.jpg" />
+  <img src="Z:/picture/008/save_picture_736336.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735116.jpg" />
+  <img src="Z:/picture/008/save_picture_735116.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732500.jpg" />
+  <img src="Z:/picture/008/save_picture_732500.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728644.jpg" />
+  <img src="Z:/picture/008/save_picture_728644.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724756.jpg" />
+  <img src="Z:/picture/008/save_picture_724756.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724392.jpg" />
+  <img src="Z:/picture/008/save_picture_724392.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721307.jpg" />
+  <img src="Z:/picture/008/save_picture_721307.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Discovery Channel. Военный архив: под грифом «Топ-10» 
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716561.jpg" />
+  <img src="Z:/picture/008/save_picture_716561.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715510.jpg" />
+  <img src="Z:/picture/008/save_picture_715510.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714722.jpg" />
+  <img src="Z:/picture/008/save_picture_714722.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Discovery Channel. Военный архив: под грифом «Топ-10» 
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714712.jpg" />
+  <img src="Z:/picture/008/save_picture_714712.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713982.jpg" />
+  <img src="Z:/picture/008/save_picture_713982.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713703.jpg" />
+  <img src="Z:/picture/008/save_picture_713703.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713582.jpg" />
+  <img src="Z:/picture/008/save_picture_713582.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712359.jpg" />
+  <img src="Z:/picture/008/save_picture_712359.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712358.jpg" />
+  <img src="Z:/picture/008/save_picture_712358.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712355.jpg" />
+  <img src="Z:/picture/008/save_picture_712355.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711726.jpg" />
+  <img src="Z:/picture/008/save_picture_711726.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711472.jpg" />
+  <img src="Z:/picture/008/save_picture_711472.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военное дело
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710820.jpg" />
+  <img src="Z:/picture/008/save_picture_710820.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B70A10264FBD6D9F0155FEA18EC30B09C357C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 313718   (710598) от 09.08.2020
-
-08.08.08. Война в прямом эфире (2008) TVRip
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель этого фильма – показать, как готовилось PR и медийное обеспечение грузинской агрессии. Кто создавал информационное прикрытие и как западные телеканалы, декларирующие объективность, склонили общественное мнение против России.Жанр: Документальный, ТелепередачаПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F53A3885BEF9F41C4DE3C5FBFCF075206BC13B
 ```
 
 https://mybot314.ru/tekegram_catalog/

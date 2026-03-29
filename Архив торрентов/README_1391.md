@@ -6,7 +6,7 @@ EdgeView 3 v3.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738826.jpg" />
+  <img src="Z:/picture/008/save_picture_738826.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mirror for Hisense TV 3.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738822.jpg" />
+  <img src="Z:/picture/008/save_picture_738822.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Image Exif Editor 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738794.jpg" />
+  <img src="Z:/picture/008/save_picture_738794.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ PhotoSweeper X 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738790.jpg" />
+  <img src="Z:/picture/008/save_picture_738790.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Caato Time Tracker Pro 1.1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738774.jpg" />
+  <img src="Z:/picture/008/save_picture_738774.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Cockos REAPER 6.46 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738772.jpg" />
+  <img src="Z:/picture/008/save_picture_738772.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Bootstrap Studio 5.9.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738747.jpg" />
+  <img src="Z:/picture/008/save_picture_738747.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Topaz DeNoise AI 3.5.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738691.jpg" />
+  <img src="Z:/picture/008/save_picture_738691.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738675.jpg" />
+  <img src="Z:/picture/008/save_picture_738675.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738674.jpg" />
+  <img src="Z:/picture/008/save_picture_738674.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738619.jpg" />
+  <img src="Z:/picture/008/save_picture_738619.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738534.jpg" />
+  <img src="Z:/picture/008/save_picture_738534.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738525.jpg" />
+  <img src="Z:/picture/008/save_picture_738525.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ AYBO 1.21.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738518.jpg" />
+  <img src="Z:/picture/008/save_picture_738518.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Omni Recover 3 v3.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738517.jpg" />
+  <img src="Z:/picture/008/save_picture_738517.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ GoodTask 6.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738512.jpg" />
+  <img src="Z:/picture/008/save_picture_738512.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Money Pro - Personal Finance 2.7.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738507.jpg" />
+  <img src="Z:/picture/008/save_picture_738507.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ SyncBird Pro 3.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738505.jpg" />
+  <img src="Z:/picture/008/save_picture_738505.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Valentina Studio Pro 11.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738503.jpg" />
+  <img src="Z:/picture/008/save_picture_738503.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Viper FTP 6.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738501.jpg" />
+  <img src="Z:/picture/008/save_picture_738501.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Omni Toolbox 1.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738500.jpg" />
+  <img src="Z:/picture/008/save_picture_738500.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Battery Indicator for Mac 2.12.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738499.jpg" />
+  <img src="Z:/picture/008/save_picture_738499.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Things 3 v3.15.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738498.jpg" />
+  <img src="Z:/picture/008/save_picture_738498.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ AYVY 1.19.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738497.jpg" />
+  <img src="Z:/picture/008/save_picture_738497.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Paw (HTTP & REST Client) 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738496.jpg" />
+  <img src="Z:/picture/008/save_picture_738496.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Amadeus Pro 2.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738492.jpg" />
+  <img src="Z:/picture/008/save_picture_738492.jpg" />
 </div>
 
 

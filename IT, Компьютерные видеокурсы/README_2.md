@@ -1,3 +1,139 @@
+###  Публикация: 1839789   (1046775) от 30.11.2025
+
+Дмитрий Зверев | Сервис Krea. Генерация нейросетевых картинок, фото и видео (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот инфопродукт специально для тех, кому нужна практичная и доступная для быстрого внедрения информация. После изучения курса вы сможете быстро и просто генерировать ваши нейросетевые картинки, фото и видео.Жанр: видеокурс, обучающий курс, фотография, нейросетиЯзык озвучки: русскийПродолжительность: 05:45:53Реклама: cторонние вставки и наложения на видео (плашка спонсора)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08143591DA52E680F9CD43F8015229F67DBB2FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839393   (1046559) от 28.11.2025
+
+OTUS, Сергей Потамошнев, Артем Павлов |  Rust Developer. Basic (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rust используется в веб-разработке, в разработке системного ПО, мобильной разработке, разработке встраиваемых систем и даже в анализе данных.
+А ещё — в блокчейне и машинном обучении.
+На этом курсе вы изучите особенности работы с низкоуровневым ПО, подходы к разработке безопасного и отказоустойчивого ПО, а также основные библиотеки Rust.Производство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 68:23:24Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A38D5594BA9B35E53B8C31C1E05E74A6FFBA345E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839402   (1046558) от 28.11.2025
+
+Олег Филиппов | Видеокурс по разработке ИИ агентов для 1С (2025) PCRec [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс предлагает глубокое погружение в концепцию и практическую разработку автономных ИИ-Агентов, адаптированных для работы с платформой 1С:Предприятие. Основная цель — научить специалистов по 1С внедрять передовые технологии Генеративного ИИ (GenAI) для автоматизации сложных бизнес-процессов, которые не могут быть решены обычными методами Workflow.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 08:54:31Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25224573F49BEF67902E10C52EEA9C5F68E91DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600711   (1046381) от 01.01.2023
+
+N.E.C.O, Sergey Dragunov | Курс по созданию приложения "Gps Tracker" на Kotlin (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия уроков "Gps Tracker"
+На данном курсе создаем приложение для записи маршрутов бега или ходьбы с помощью Gps. Изучаем использование OSM (Open Street Maps) для отображения карты на экране смартфона, добавления маркеров, отрисовка маршрута, время прохождения маршрута, дистанция и средняя скорость. Используем базу данных и библиотеку Room для сохранения (   Читать дальше...   )Производство: N.E.C.O.Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 12:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383C126DC9972CF35D0D39613F04D515A0399FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601716   (1046308) от 02.01.2023
+
+Devtodev, Александр Болотников | Разработка HTML5 игр (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы хотите попасть в геймдев? Вы изучаете программирование и хотите прокачать свои скиллы в разработке программ? У вас есть идея игры, но вы не знаете, как подступиться к технической реализации?
+Этот курс для вас! В ходе обучения мы изучим популярный игровой фреймворк Phaser 3, используемый для создания уютных и ламповых HTML5 игр.
+
+Почему именно Phaser?(   Читать дальше...   )Производство: DevtodevЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 16:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D8C26E0ACEFBEE9FB86E8215EFD36EEE73EC7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601925   (1046247) от 03.01.2023
 
 Amigoscode, Nelson Djalo | Java Master Class (2022) WEB-DL [EN]
@@ -6,7 +142,7 @@ Amigoscode, Nelson Djalo | Java Master Class (2022) WEB-DL [EN]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046247.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045343.jpg" />
 </div>
 
 
@@ -58,7 +194,7 @@ Udemy, Дмитрий Фокеев | Верстка и создание веб �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045338.jpg" />
 </div>
 
 
@@ -87,7 +223,7 @@ Slurm (Слёрм), Леонид Крутовский | Python-разработ�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045247.jpg" />
 </div>
 
 
@@ -113,7 +249,7 @@ Udemy, Bogdan Stashchuk | Git - Курс по Git и GitHub (2023) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044777.jpg" />
 </div>
 
 
@@ -139,7 +275,7 @@ CodeBreakers, Анна Радзиевская и др. | Создавайте в
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044280.jpg" />
 </div>
 
 
@@ -168,7 +304,7 @@ Slurm (Слёрм), Виктор Попов, Ирина Блажина | Без�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044108.jpg" />
 </div>
 
 
@@ -194,7 +330,7 @@ Thinknetica Pro, Кирилл Храпков | Продвинутый Git (2023)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043985.jpg" />
 </div>
 
 
@@ -223,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043881.jpg" />
 </div>
 
 
@@ -251,7 +387,7 @@ Udemy, Rob Baker | Pro Unreal Engine Game Coding (2022) PCRec [EN, RU / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043875.jpg" />
 </div>
 
 
@@ -278,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043869.jpg" />
 </div>
 
 
@@ -306,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043778.jpg" />
 </div>
 
 
@@ -335,7 +471,7 @@ Udemy, Dzianis Matveyenka | Shell and Bash Scripting Beginner's Guide (2022) WEB
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043679.jpg" />
 </div>
 
 
@@ -364,7 +500,7 @@ Udemy, Dzianis Matveyenka | Maven (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043576.jpg" />
 </div>
 
 
@@ -390,7 +526,7 @@ Infostart, Николай Бондаренко | 1С:Предприятие дл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043207.jpg" />
 </div>
 
 
@@ -418,7 +554,7 @@ Udemy, Alex Horea | Продвинутое программирование на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043012.jpg" />
 </div>
 
 
@@ -445,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042833.jpg" />
 </div>
 
 
@@ -473,7 +609,7 @@ Frontendmasters, Lukas Ruebbelke | Angular в продакшене / Production 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1042727.jpg" />
+  <img src="Z:/picture/005/save_picture_1042727.jpg" />
 </div>
 
 
@@ -501,7 +637,7 @@ Udemy, Packt Publishing | Паттерны Проектирования в JavaS
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042724.jpg" />
 </div>
 
 
@@ -527,7 +663,7 @@ Frontendmasters, Nina Zakharenko | Практическое руководств
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042712.jpg" />
 </div>
 
 
@@ -554,7 +690,7 @@ Frontendmasters, Lukas Ruebbelke | Архитектурные паттерны (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1042703.jpg" />
+  <img src="Z:/picture/005/save_picture_1042703.jpg" />
 </div>
 
 
@@ -565,143 +701,6 @@ Frontendmasters, Lukas Ruebbelke | Архитектурные паттерны (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBF0667B33131C7BE657C5DE53F89D5BEEE2AA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436795   (1042648) от 02.01.2021
-
-Academind Pro, Maximilian Schwarzmüller | Чистый код / Clean Code (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как разработчик, вы должны уметь писать работающий код - конечно же! К сожалению, многие разработчики, тем не менее, пишут плохой код, даже если он работает. Потому что «рабочий код» - это не то же самое, что «чистый код»! Этот курс научит вас писать чистый код - код, который легко читать и понимать людям, а не только компьютерам!
-В этом курсе вы узнаете, что такое (   Читать дальше...   )Производство: Academind ProЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B761DE864D8F844BA850E5557660427918463047
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436909   (1042638) от 02.01.2021
-
-HTML Academy | Интерактивные тренажёры HTML Academy (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042638.jpg" />
-</div>
-
-
-###  Подробнее
-
-На практике познакомитесь с базовыми технологиями веб-разработки. Узнаете, как эти технологии работают по отдельности и вместе.
-Сами разметите страницу, оформите её с помощью стилей. Напишете свой первый скрипт. И научитесь собирать странички сайтов из кусочков PHP-кода.
-Научитесь работать с сайтами на своём компьютере: править разметку, стили, скрипты и запускать (   Читать дальше...   )Производство: HTML AcademyЖанр: ПрограммированиеПродолжительность: 09:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D35B7FB594F2C8098B09623CBF0AE56250F600D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436997   (1042637) от 02.01.2021
-
-Udemy, Antonio Papa | React и Laravel: От Монолита к Микросервисам / React and Laravel: Breaking a Monolith to Microservices (2020) PCRec [En / En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1042637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микросервисная архитектура, React, Next.js, Laravel, Docker, RabbitMQ, микросервисы управляемые событиями, внутренние API, Redis. Узнайте, как создать монолит с помощью React и Laravel, а затем, как перейти на микросервисы.
-
-В этом руководстве:
-Создайте SPA с React, Next.js и Laravel;(   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 15:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDD60E1E00AEA10574049D2008891C08DFC3829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437012   (1042509) от 03.01.2021
-
-Packt, Pavlos Vinieratos | React Native: Советы, Подсказки и Техники / React Native: Tips, Tricks, and Techniques (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042509.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последнее время в разработке мобильных приложений произошел некоторый всплеск с появлением многоплатформенных фреймворков, таких как React Native. Этот курс дает вам ценные советы и рекомендации, которые помогут упростить процесс разработки и сделать его менее утомительным.
-Вы найдете советы по reusable логике с компонентами более высокого порядка, советы по улучшению (   Читать дальше...   )Производство: PacktЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4058599C52BA6BCD9441109A1A7494F35678E4D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437069   (1042508) от 03.01.2021
-
-Udemy, Brad Traversy | React Front To Back (Hooks, Context, MERN и Redux) / React Front To Back (Hooks, Context, MERN & Redux) (2019) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042508.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе вы научитесь осваивать концепции React 16.8+, включая способы создания шаблона Flux с использованием Context API с хуками useContext и useReducer. Мы также создадим полнофункциональное MERN-приложение с кастомным Express API на бэкэнде, в котором для аутентификации используется JWT (JSON Web Token). Кроме того, мы также создадим проект, который использует (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 13:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E0D14B4B131D64C6A61E471C0B758ABA126FED
 ```
 
 https://mybot314.ru/tekegram_catalog/

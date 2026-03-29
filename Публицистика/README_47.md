@@ -1,3 +1,81 @@
+###  Публикация: 760551   (523979) от 14.08.2015
+
+Курт Зонтхаймер | Как нацизм пришел к власти (2009) [DJVU] [UKR]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это книга о немецком опыте истории от конца Первой мировой войны до прихода к власти нацистов. Интерес человечества к событиям тех лет объяснять вряд ли надо – нацистская идеология, а затем практика воплощения идей национал-фашизма стоили человечеству десятков и десятков миллионов людей, убитых, уничтоженных, погибших от голода и болезней. Шаг за шагом автор описывает (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79596DFC88100AE2F486BE7619E6E2D91C4D306A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240779   (523661) от 13.08.2018
+
+Михаил Бродский | Сабанеев мост (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частная история. Один из самых ярких и правдивых рассказов о взлете и крушении советской империи. Уникальный взгляд на сложную и спорную эпоху глазами ее рядового жителя, а не ученого историка. Биография, способная дать фору любому самому художественному роману. В семилетнем возрасте он видел, как родную Одессу оккупируют немецкие войска. Так началась взрослая жизнь, (   Читать дальше...   )Жанр: Биографии и мемуары, Историческая литература, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71AD98FC6F2222075FE3C302EDC38605D2E83A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239454   (523532) от 13.08.2018
+
+Дэниел Эллсберг | Машина Судного дня. Откровения разработчика плана ядерной войны (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэниел Эллсберг рассказывает об опасности и безрассудстве ядерной политики, которую США проводят уже более 70 лет. Он впервые раскрывает детали американской ядерной программы 1960-х гг., которая предполагала превентивный удар по СССР. Вы узнаете все о хаосе в среде военного командования США: от ситуации на самых удаленных авиабазах в тихоокеанском регионе, где право (   Читать дальше...   )Жанр: Военное дело/спецслужбы, Зарубежная публицистика, ПолитологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6292C15E92964198CA7058618AC19CD3DFC34E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313580   (523027) от 10.07.2019
 
 В. В. Куйбышев | Избранные произведения [в 2 томах] (1988) [DJVU, PDF]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523027.jpg" />
+  <img src="Z:/picture/008/save_picture_523027.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522975.jpg" />
+  <img src="Z:/picture/008/save_picture_522975.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522969.jpg" />
+  <img src="Z:/picture/008/save_picture_522969.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522914.jpg" />
+  <img src="Z:/picture/008/save_picture_522914.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521550.jpg" />
+  <img src="Z:/picture/008/save_picture_521550.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521424.jpg" />
+  <img src="Z:/picture/008/save_picture_521424.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520248.jpg" />
+  <img src="Z:/picture/008/save_picture_520248.jpg" />
 </div>
 
 
@@ -196,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520217.jpg" />
+  <img src="Z:/picture/008/save_picture_520217.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519206.jpg" />
+  <img src="Z:/picture/008/save_picture_519206.jpg" />
 </div>
 
 
@@ -248,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518494.jpg" />
+  <img src="Z:/picture/008/save_picture_518494.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518466.jpg" />
+  <img src="Z:/picture/008/save_picture_518466.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518176.jpg" />
+  <img src="Z:/picture/008/save_picture_518176.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515982.jpg" />
+  <img src="Z:/picture/008/save_picture_515982.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515021.jpg" />
+  <img src="Z:/picture/008/save_picture_515021.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513861.jpg" />
+  <img src="Z:/picture/008/save_picture_513861.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511094.jpg" />
+  <img src="Z:/picture/008/save_picture_511094.jpg" />
 </div>
 
 
@@ -433,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511084.jpg" />
+  <img src="Z:/picture/008/save_picture_511084.jpg" />
 </div>
 
 
@@ -459,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511080.jpg" />
+  <img src="Z:/picture/008/save_picture_511080.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510844.jpg" />
+  <img src="Z:/picture/008/save_picture_510844.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510723.jpg" />
+  <img src="Z:/picture/008/save_picture_510723.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510710.jpg" />
+  <img src="Z:/picture/008/save_picture_510710.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509279.jpg" />
+  <img src="Z:/picture/008/save_picture_509279.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509176.jpg" />
+  <img src="Z:/picture/008/save_picture_509176.jpg" />
 </div>
 
 
@@ -601,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72ABC4E21EB6E9D4B12FF2EF73CB1C15304501CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932530   (509084) от 29.08.2015
-
-Виктор Ульяненко | Китай: версия 2.0. Разрушение легенды (2014) [FB2, RTF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китай все чаще упоминается в новостях, разговорах и анекдотах – интерес к стране растет с каждым днем. Какова же она, Поднебесная XXI века? Каковы особенности психологии и поведения ее жителей? Какими должны быть этика и тактика построения успешных взаимоотношений? Что делать, если вы в Китае или если китаец – ваш гость?
-
-Новая книга Виктора Ульяненко, специалиста (   Читать дальше...   )Жанр: Культурология, ПублицистикаФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435EF59BD716DF53C366763F2DAAC2889A956B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932429   (509002) от 29.08.2015
-
-Игорь Прокопенко | Великие тайны великих людей (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая таинственная цепь событий связывает знаменитых предсказателей древности и новейшего времени, от Нострадамуса и Парацельса до Кейси и Ванги? Так ли однозначны фигуры Сталина и Жукова и о каких фактах из биографий полководцев история стыдливо умалчивала до недавнего времени? Как бонзы Третьего рейха были связаны с разведками европейских стран? Раскрыты ли загадки (   Читать дальше...   )Жанр: Биографии и Мемуары, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FB66FF4508C4CD6F4EA3A83CFC7B7CDEBC8B3A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316092   (508711) от 23.07.2019
-
-Сергей Сергеев | Русская нация, или Рассказ об истории её отсутствия (2017) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая книга, ставшая завершением многолетних исследований автора, не является очередной историей России. Это именно история русской нации. Поэтому читателю, думающему почерпнуть здесь элементарные сведения об отечественном прошлом, лучше обратиться к другим работам, благо их множество. Судя по электронному каталогу Российской государственной библиотеки, на (   Читать дальше...   )Жанр: Публицистика, История РоссииФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC03844236E22024F9C088EB35C8630B51DCD032
 ```
 
 https://mybot314.ru/tekegram_catalog/

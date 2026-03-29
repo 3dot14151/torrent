@@ -7,7 +7,7 @@ Recovery Partition for ASUS K54C (X54C) / Windows 7 Home Basic (х64) SP1 [ру�
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994601.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Recovery USB-Flash for Lenovo IdeaPad 100-15IBY / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963165.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Recovery USB-flash for Acer Aspire E1-570G / Windows 8.1 (х64) [Ru/En]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940599.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Recovery USB-Flash for Dell Inspiron 3542 / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920161.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Recovery Partition for ASUS X55VD / Windows 7 Home Basic (х64) SP1 [Ru/En]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913394.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Recovery USB-Flash for Lenovo IdeaPad 100-15IBD / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905561.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867611.jpg" />
+  <img src="Z:/picture/008/save_picture_867611.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Recovery DVD for Acer Aspire V5-531/V5-531G/V5-571/V5-571G / Windows 8 Core (x64
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857627.jpg" />
+  <img src="Z:/picture/008/save_picture_857627.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Recovery USB-flash for Acer Predator Helios 300 PH317-52 / Windows 10 [Multi/Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834313.jpg" />
+  <img src="Z:/picture/008/save_picture_834313.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ Recovery USB-Flash for Lenovo G5080 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826521.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Recovery USB-Flash for Asus K501UX / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816862.jpg" />
+  <img src="Z:/picture/008/save_picture_816862.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779171.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Recovery HDD/USB-flash for Acer Aspire V3-772G / Windows 8.1 х64 [Fr]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773866.jpg" />
+  <img src="Z:/picture/008/save_picture_773866.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ Recovery DVD for Lenovo Essential G560/ Windows 7 HB (х64) SP1 / Drivers Lenovo
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772234.jpg" />
+  <img src="Z:/picture/008/save_picture_772234.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751627.jpg" />
+  <img src="Z:/picture/008/save_picture_751627.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730721.jpg" />
+  <img src="Z:/picture/008/save_picture_730721.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Recovery USB-flash for Asus T100TAL / Windows 8.1 (х86) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696912.jpg" />
+  <img src="Z:/picture/008/save_picture_696912.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Recovery USB-flash for Sony VAIO SVF152A29V (SVF1521H1R) Windows 8 [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683685.jpg" />
+  <img src="Z:/picture/008/save_picture_683685.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Recovery USB-Flash for Lenovo Z5070 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658414.jpg" />
+  <img src="Z:/picture/008/save_picture_658414.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Recovery DVD for Asus K53SD / Windows 7 Home Basic (х64) SP1
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654145.jpg" />
+  <img src="Z:/picture/005/save_picture_654145.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Recovery USB-Flash for Lenovo G4030 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637031.jpg" />
+  <img src="Z:/picture/008/save_picture_637031.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Recovery Partition for Samsung NP300V5A / NP300E5A / NP300E5Z Win7 HB x64 Window
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629134.jpg" />
+  <img src="Z:/picture/008/save_picture_629134.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ HP Pavilion g6-1358er Recovery Acronis Hard Drive Image Windows 7 Home Basic 64 
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_624168.jpg" />
+  <img src="Z:/picture/005/save_picture_624168.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Recovery USB-Flash for Lenovo B5010 / Windows 10 Home (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614997.jpg" />
+  <img src="Z:/picture/008/save_picture_614997.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Recovery USB-flash for Acer Aspire Switch 10 SW3 / Windows 8.1 (х86) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594331.jpg" />
+  <img src="Z:/picture/008/save_picture_594331.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Recovery USB-Flash for DELL 3542 / Windows 8.1 (х64) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584655.jpg" />
+  <img src="Z:/picture/008/save_picture_584655.jpg" />
 </div>
 
 

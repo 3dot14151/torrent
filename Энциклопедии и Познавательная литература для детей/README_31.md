@@ -1,3 +1,60 @@
+###  Публикация: 1591058   (187693) от 16.11.2022
+
+Dorling Kindersley | Как работают технологии. Наглядные факты о техническом прогрессе (2020) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187693.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью простых объяснений, наглядных схем и графики эта энциклопедия расскажет, как работают механизмы и технологии, которые нас окружают.
+
+С этим графическим руководством вы откроете для себя скрытую сторону повседневных вещей. Вы познакомитесь с принципами работы электрических, медицинских, компьютерных приборов, средств коммуникаций и других технологий. Книга (   Читать дальше...   )Жанр: Научно-популярная литература для детей, энциклопедия по физике, энциклопедия по техникеПеревод: Сергей ЧерниковФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0774FDB9E0CFD7A2BF69A4A1F4986AC9AF9E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591065   (187691) от 16.11.2022
+
+Dorling Kindersley | Как работает тело. Наглядные факты о человеческом организме (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что подсказывает нам, что мы голодны?
+Отчего у нас сосет под ложечкой, когда мы сильно нервничаем?
+И почему наш организм «барахлит», вызывая несварение желудка, или нарушение остроты зрения, или аллергию?
+Книга «Как работает тело», насыщенная простыми схемами и интереснейшими фактами, снимает завесу загадочности со сложных процессов, которые поддерживают в нас жизнь (   Читать дальше...   )Жанр: Научно-популярная литература для детей, энциклопедия по анатомииПеревод: Василий ГороховФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C9323301BF0BB369DE24C526CB74F3A157B54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591449   (187098) от 18.11.2022
 
 Анастасия Строкина | Атлас загадочных мест России (2022) [PDF]
@@ -6,7 +63,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187098.jpg" />
 </div>
 
 
@@ -33,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185707.jpg" />
 </div>
 
 
@@ -59,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183890.jpg" />
+  <img src="Z:/picture/004/save_picture_183890.jpg" />
 </div>
 
 
@@ -86,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182252.jpg" />
+  <img src="Z:/picture/005/save_picture_182252.jpg" />
 </div>
 
 
@@ -115,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180040.jpg" />
+  <img src="Z:/picture/005/save_picture_180040.jpg" />
 </div>
 
 
@@ -143,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179984.jpg" />
+  <img src="Z:/picture/005/save_picture_179984.jpg" />
 </div>
 
 
@@ -171,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179876.jpg" />
+  <img src="Z:/picture/005/save_picture_179876.jpg" />
 </div>
 
 
@@ -197,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179262.jpg" />
+  <img src="Z:/picture/005/save_picture_179262.jpg" />
 </div>
 
 
@@ -223,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179189.jpg" />
+  <img src="Z:/picture/005/save_picture_179189.jpg" />
 </div>
 
 
@@ -250,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176767.jpg" />
+  <img src="Z:/picture/005/save_picture_176767.jpg" />
 </div>
 
 
@@ -276,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174496.jpg" />
+  <img src="Z:/picture/004/save_picture_174496.jpg" />
 </div>
 
 
@@ -305,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174488.jpg" />
+  <img src="Z:/picture/004/save_picture_174488.jpg" />
 </div>
 
 
@@ -331,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174420.jpg" />
+  <img src="Z:/picture/004/save_picture_174420.jpg" />
 </div>
 
 
@@ -359,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170846.jpg" />
 </div>
 
 
@@ -387,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169738.jpg" />
 </div>
 
 
@@ -413,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169669.jpg" />
 </div>
 
 
@@ -439,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169659.jpg" />
 </div>
 
 
@@ -465,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169095.jpg" />
 </div>
 
 
@@ -491,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169041.jpg" />
 </div>
 
 
@@ -518,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168924.jpg" />
 </div>
 
 
@@ -544,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168795.jpg" />
 </div>
 
 
@@ -572,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168136.jpg" />
 </div>
 
 
@@ -598,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168077.jpg" />
 </div>
 
 
@@ -624,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168058.jpg" />
 </div>
 
 
@@ -635,60 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A64FA2C159D13DDFF3FDC94D462D43B4A13112A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345148   (167998) от 13.12.2019
-
-А.В. Пахневич, А.Е. Чегодаев | Краткая история динозавров (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167998.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Краткая история динозавров» познакомит тебя с удивительными ящерами, господствовавшими на Земле более 150 миллионов лет.
-Эта книга расскажет: какие динозавры самые быстрые; что означают имена динозавров; все ли динозавры были гигантами; почему одни ящеры передвигались на двух ногах, а другие на четырех?
-Для среднего школьного возраста.Жанр: Познавательная литература для детей, энциклопедииФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEE088AC6817DA7490D078161E7F73B4328B73E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431441   (167852) от 13.12.2020
-
-Юлия Дорошенко | Большой атлас животных в картинках для малышей (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Животный мир нашей планеты очень богат. Не так легко узнать названия зверей, птиц и рыб, запомнить, где они живут, особенно если малыш еще не освоил навыки чтения. В этом ему готов помочь наш необычный атлас животных. Страницы этой книги полны забавных картинок с изображениями самых разнообразных животных, глядя на которые, малыши смогут легко усвоить новую информацию. (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9CEE165D6389B86A34E8A349D6C32623CFDD959
 ```
 
 https://mybot314.ru/tekegram_catalog/

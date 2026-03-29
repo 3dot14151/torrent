@@ -1,3 +1,58 @@
+###  Публикация: 941514   (461753) от 27.09.2015
+
+Наталья Жильцова, Азалия Еремеева | Академия магического права. Брюнетка в законе (2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Порядок и Хаос».
+Что делать, если все планы и мечты неожиданно разрушились, а вместо студентов элитного факультета тебя причислили к самой бездарной в магии «золотой молодежи»? Как быть, если тебя бросил твой собственный парень ради близкой подруги? Во-первых, не унывать! Во-вторых, найти новых друзей, а врагам доказать, что ты и сама по себе (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51E1E0B8073C329CF562D5C1626AFDC36AFF227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162152   (461053) от 31.08.2017
+
+Сергей Антонов | Метро 2033: Рублёвка-3. Книга мёртвых (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_461053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий роман цикла «Метро 2033: Рублёвка» из межавторского цикла «Вселенная Метро 2033».
+
+«Метро 2033» – Дмитрия Глуховского – культовый фантастический роман, самая обсуждаемая российская книга последних лет. Тираж – полмиллиона, переводы на десятки языков плюс грандиозная компьютерная игра! Эта постапокалиптическая история вдохновила целую плеяду современных писателей, (   Читать дальше...   )Жанр: Боевая фантастика, Социальная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77A6E543A4AA5C6C9CBA20D97E5AF12083C0750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246689   (461045) от 11.09.2018
 
 Эрнест Клайн | Армада (2018) [FB2]
@@ -6,7 +61,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461045.jpg" />
+  <img src="Z:/picture/008/save_picture_461045.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460927.jpg" />
+  <img src="Z:/picture/008/save_picture_460927.jpg" />
 </div>
 
 
@@ -62,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460801.jpg" />
+  <img src="Z:/picture/008/save_picture_460801.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460786.jpg" />
+  <img src="Z:/picture/008/save_picture_460786.jpg" />
 </div>
 
 
@@ -117,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460770.jpg" />
+  <img src="Z:/picture/008/save_picture_460770.jpg" />
 </div>
 
 
@@ -146,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460675.jpg" />
+  <img src="Z:/picture/008/save_picture_460675.jpg" />
 </div>
 
 
@@ -175,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459894.jpg" />
+  <img src="Z:/picture/008/save_picture_459894.jpg" />
 </div>
 
 
@@ -202,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459856.jpg" />
+  <img src="Z:/picture/008/save_picture_459856.jpg" />
 </div>
 
 
@@ -228,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459844.jpg" />
+  <img src="Z:/picture/008/save_picture_459844.jpg" />
 </div>
 
 
@@ -254,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459733.jpg" />
+  <img src="Z:/picture/008/save_picture_459733.jpg" />
 </div>
 
 
@@ -283,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459551.jpg" />
+  <img src="Z:/picture/008/save_picture_459551.jpg" />
 </div>
 
 
@@ -311,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459499.jpg" />
+  <img src="Z:/picture/008/save_picture_459499.jpg" />
 </div>
 
 
@@ -337,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459363.jpg" />
+  <img src="Z:/picture/008/save_picture_459363.jpg" />
 </div>
 
 
@@ -363,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459299.jpg" />
+  <img src="Z:/picture/008/save_picture_459299.jpg" />
 </div>
 
 
@@ -392,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459201.jpg" />
+  <img src="Z:/picture/008/save_picture_459201.jpg" />
 </div>
 
 
@@ -419,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458973.jpg" />
+  <img src="Z:/picture/008/save_picture_458973.jpg" />
 </div>
 
 
@@ -448,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458961.jpg" />
+  <img src="Z:/picture/008/save_picture_458961.jpg" />
 </div>
 
 
@@ -474,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458469.jpg" />
+  <img src="Z:/picture/008/save_picture_458469.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458071.jpg" />
+  <img src="Z:/picture/008/save_picture_458071.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457808.jpg" />
+  <img src="Z:/picture/008/save_picture_457808.jpg" />
 </div>
 
 
@@ -557,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456704.jpg" />
+  <img src="Z:/picture/008/save_picture_456704.jpg" />
 </div>
 
 
@@ -585,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456606.jpg" />
+  <img src="Z:/picture/008/save_picture_456606.jpg" />
 </div>
 
 
@@ -612,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455604.jpg" />
+  <img src="Z:/picture/008/save_picture_455604.jpg" />
 </div>
 
 
@@ -641,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455603.jpg" />
+  <img src="Z:/picture/008/save_picture_455603.jpg" />
 </div>
 
 
@@ -654,60 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27950790497D28554FC9BCF9B566AEA211F0890F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942337   (455459) от 30.09.2015
-
-Галина Гончарова | Волшебникам не рекомендуется (2015) [FB2, EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Так вот бывает – у тебя семья, дом, универ, в перспективе докторская диссертация, а однажды открываешь дверь – и вот они, проблемы! Стоит на пороге какая-то выдра и заявляет, что твой законный муж – волшебник! И просто обязан производить на свет (понятно, с кем) новых волшебников. Так что подавай на развод и скажи спасибо, что тебе жизнь оставили. Кто-то мог бы и (   Читать дальше...   )Жанр: Городское фэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2286EADD45AAEF3AC15234D24168C4C722FB3F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942318   (455263) от 30.09.2015
-
-Стивен Кинг и др. | Книга ужасов [сборник] (2015) [FB2, EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Стивенс, известный составитель хоррор-антологий, предлагает вашему вниманию великолепную коллекцию жутких историй. Необъяснимое, странное, леденящее кровь и пугающее до дрожи – все виды ужаса собраны под одной обложкой. Бессонные ночи и мечущееся в панике воображение – вот что ожидает тебя, отважный читатель.
-
-Плеяда классиков ужаса – Стивен Кинг, Деннис Этчисон, (   Читать дальше...   )Жанр: Ужасы и Мистика, Зарубежное фэнтезиФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F4042610D4136196858F756918938C71FA4459
 ```
 
 https://mybot314.ru/tekegram_catalog/

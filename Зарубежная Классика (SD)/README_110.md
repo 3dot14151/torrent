@@ -1,3 +1,81 @@
+###  Публикация: 461043   (176261) от 06.12.2020
+
+Собачья жизнь / A Dog's Life (1918) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_176261.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Собачья жизнь» — первый фильм Чаплина, на который ушло три бобины кинопленки, что по тем временам составляло необычайно большой объем исходного материала. Это также первое и последнее появление в кино собаки по кличке Мат. «Собачья жизнь» — это не только история дворняжки и бродяги, которым, несмотря ни на что, удается выбраться из помоек. Это еще искрометный юмор (   Читать дальше...   )Производство: США, First National Pictures Inc.Жанр: Короткометражка, комедия, немое киноРежиссер: Чарльз ЧаплинАктеры: Чарльз Чаплин, Эдна Пурвинс, Сид Чаплин, Генри Бергман, Чарльз Райснер, Альберт Остин, Том Уилсон, М.Дж. МакКарти, Мэл Браун, Чарльз Форс ...Субтитры: ОтсутствуютПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E746B9C466CB6034B8824F00870F0C09A25C0BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595154   (176182) от 04.12.2022
+
+Плач большого города / Cry of the City (1948) BDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176182.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Нью Йорке, когда убийца полицейского Мартин Роум прибывает в госпиталь с тяжелыми ранениями, адвокат Найлс безуспешно пытается убедить его признаться в краже коллекции бриллиантов и убийстве их владельца. В течение ночи, подружка Мартина Тина Рисконти прокрадывается, чтобы повидать его. Позже Найлс угрожает Мартину, что он поймает Тину и заставит ее признаться (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: фильм-нуар, драма, криминалРежиссер: Роберт СьодмакАктеры: Виктор Мэтьюр, Ричард Конте, Фред Кларк, Шелли Уинтерс, Бетти Гард, Берри Крёгер, Томми Кук, Дебра Пейджит, Хоуп Эмерсон, Роланд УинтерсПеревод: Одноголосый любительский (Horror Maker)Язык озвучки: русский, английскийСубтитры: английские (SDH), русские - отдельными файламиПродолжительность: 01:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B694225E083BE96E327C28E13133ECC7121FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424658   (174928) от 08.12.2020
+
+Чума во Флоренции / Die Pest in Florenz (1919) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_174928.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флоренция, 1348 год. В городе установлен мрачный и жестокий режим правителя Чезаре и стоящего за ним духовенства. Из Венеции приезжает куртизанка Юлия, её двери открыты для всех, кто жаждет наслаждений. В доме Юлии царит атмосфера беспробудного веселья, он становится средоточием греха и разврата. Это в свою очередь не могло не вызвать священного гнева со стороны (   Читать дальше...   )Производство: Германия, Decla-Bioscop AGЖанр: Драма, ужасы, экранизацияРежиссер: Отто РиппертАктеры: Теодор Бекер, Карл Бернхард, Юлитта Брандт, Erner Huebsch, Franz Knaak, Otto Mannstaedt, Auguste Prasch-Grevenberg, Marga von Kierska, Ганс Уолтер, Андерс ВикманЯзык озвучки: НемойСубтитры: Немецкие интертитры, русские и английские вшитые отключаемые (Феникс/Твид)Продолжительность: 01:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E782871AE5A5BD3FF87765E4C4218187D8D906F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 868764   (174877) от 08.12.2020
 
 Длинноногий папочка / Daddy Long Legs (1955) DVDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174877.jpg" />
+  <img src="Z:/picture/004/save_picture_174877.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_174423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_174423.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174323.jpg" />
+  <img src="Z:/picture/004/save_picture_174323.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174209.jpg" />
+  <img src="Z:/picture/004/save_picture_174209.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174134.jpg" />
+  <img src="Z:/picture/004/save_picture_174134.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173630.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172763.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171914.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171406.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171339.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170796.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170546.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170322.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170270.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170232.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170191.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169599.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169369.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167577.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167461.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167012.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166549.jpg" />
 </div>
 
 
@@ -584,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166207.jpg" />
 </div>
 
 
@@ -595,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6F3D8E4A6FC1EB83F69BE06F773864581488DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672228   (165968) от 31.10.2023
-
-Благородный Станислас, секретный агент / L'honorable Stanislas, agent secret (1963) DVDRip  [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165968.jpg" />
-</div>
-
-
-###  Подробнее
-
-По воле случая, Станислас Эварист Дюбуа, скромный сотрудник рекламного агентства, вовлекается в опасные игры разведок и контрразведок. Ему приходится, против воли, привыкать к необычному ритму жизни, запоминать пароли и явки, стремительно поедать записки, которые не должны попасть в руки врагов.Производство: Франция, Италия / Italgamma, Les Films de la LicorneЖанр: комедияРежиссер: Жан-Шарль ДюдрюмеАктеры: Жан Маре, Женевьев Паж, Морис Тейнак, Жан Галлан, Гайа Джермани, Марсель Арнольд, Кристиан Марен, Валерио Торди,  F. Florio, Лучана ПаолиПеревод: Одноголосый любительский (SATKUR)Язык озвучки: Русский, ФранцузскийСубтитры: ОтсутствуютПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AE168649E285002F0DA7484279DF8A84E36861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426644   (165796) от 15.12.2020
-
-Человек в железной маске / The Man in the Iron Mask (1976) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой король Людовик ХIV - единовластный правитель страны. Но оказывается, что его брат-близнец Филипп жив. Король приказывает отправить Филиппа на остров Сан-Маргерет и заковать в железную маску...Производство: Великобритания, США / ITC Entertainment, Norman Rosemont ProductionsЖанр: приключения, историяРежиссер: Майк НьюэллАктеры: Ричард Чемберлен, Патрик МакГуэн, Луи Журдан, Дженни Агаттер, Иэн Холм, Ральф Ричардсон, Вивьен Мерчант, Бренда Брюс, Эзмонд Найт, Годфри КуиглиПеревод: Дублированный, авторскийСубтитры: АнглийскиеПродолжительность: 01:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B486117F78A7FCA869746944C52EC063B6D8FBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673352   (165296) от 01.11.2023
-
-Возвращение Белого Клыка / Il Ritorno di Zanna Bianca (1974) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фильма "Белый Клык"... Действие происходит на Юконе, Канада, в 1899 году... На дороге в Клондайк старый золотоискатель Джон Таруотер и его внук Билл находят собаку по кличке Белый Клык рядом с телом его хозяина-эскимоса, убитого неизвестными преступниками... Писатель Джейсон Скотт возвращается на Аляску для написания новой книги... Сестра Еванджелина (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ), Coralta Cinematografica, Terra-Filmkunst, Les Films CoronaЖанр: драма, приключения, вестернРежиссер: Лучио ФульчиАктеры: Франко Неро, Вирна Лизи, Джон Стайнер, Раймонд Хармсторф, Янти Соммер, Вернер Похат, Ханнелоре Эльснер, Ренато Де Кармине, Гарри Кэри мл., Дональд О`Брайэн, Рольф Хартманн, Джон Барта, Серджо Смакки, Эцио Марано, Витторио ФанфониПеревод: дублированныйЯзык озвучки: русский, итальянскийСубтитры: русские (на места без перевода), английские, итальянскиеПродолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908820CB7177E945C96D365E31D1112D17A8F4AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

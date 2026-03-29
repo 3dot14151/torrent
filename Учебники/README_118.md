@@ -1,3 +1,58 @@
+###  Публикация: 486369   (90434) от 24.04.2012
+
+Сборник | Все ответы к Государственной Заключительной Аттестации (ДПА) 2012 г. 9 класс [UKR] [2012] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие поможет учащимся успешно подготовиться к государственной итоговой аттестации для 9 класса.
+Пособия построены по такому принципу: номер варианта контрольной работы, правильные ответы на тестовые задания с комментариями (в случае необходимости) и развернутый ответ на творческие задачи. Кроме того, в пособии приведены картосхемы с выполненными заданиями. Пособие предназначено для учащихся и учителей2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4480E505BD038D668122F57365CD301F8A46F2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486967   (90353) от 23.04.2012
+
+Д.И.Панфилов и др. | Электротехника и электроника в экспериментах и упражнениях: Практикум на Electronics Workbench (в 2-х т.) [2001] [CHM]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для изучения базовых курсов по электротехнике и электронике с помощью системы схемотехнического моделирования Electronics Workbench 4.0.
+Первый том книги посвящен электротехнике. В этом томе рассматриваются такие разделы теории цепей, как элементы электрических цепей, цепи на постоянном и переменном токе, резонансные явления в сложных схемах, трехфазные цепи и переходные процессы в линейных схемах.
+Во втором томе, посвященном электронике, изучаются диоды и диодные схемы, транзисторные схемы и схемы на операционных усилителях. Также исследуются логические схемы, интегральные схемы средней степени интеграции.2001Формат: CHM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296D04D59578AC68D9410617364FCCDD7DDDCFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485800   (89628) от 20.04.2012
 
 А.М.Новиков | Как работать над диссертацией [2003] [Pdf]
@@ -6,7 +61,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89628.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88055.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87822.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87807.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87740.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87710.jpg" />
 </div>
 
 
@@ -174,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87223.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87208.jpg" />
 </div>
 
 
@@ -226,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87185.jpg" />
 </div>
 
 
@@ -256,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86965.jpg" />
 </div>
 
 
@@ -284,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86922.jpg" />
 </div>
 
 
@@ -314,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86641.jpg" />
 </div>
 
 
@@ -344,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86623.jpg" />
 </div>
 
 
@@ -375,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86587.jpg" />
 </div>
 
 
@@ -401,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85496.jpg" />
 </div>
 
 
@@ -433,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84998.jpg" />
 </div>
 
 
@@ -459,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84962.jpg" />
 </div>
 
 
@@ -485,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83106.jpg" />
 </div>
 
 
@@ -513,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80052.jpg" />
 </div>
 
 
@@ -540,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80050.jpg" />
 </div>
 
 
@@ -566,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80048.jpg" />
 </div>
 
 
@@ -592,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80032.jpg" />
 </div>
 
 
@@ -618,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80016.jpg" />
 </div>
 
 
@@ -644,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79980.jpg" />
 </div>
 
 
@@ -655,58 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94EC58C658928C5A1E0B22097E2E7470EF0EE896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460976   (79616) от 02.03.2012
-
-Подборка книг | Финансовый менеджмент [1995-2010] [DJVU, PDF, DOC]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка отечественной и переводной литературы по различным вопросам финансового менеджмента1995-2010Формат: DJVU, PDF, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43D1E3069AD6FA5906644CB9F95EF1E00229C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775183   (71494) от 25.01.2025
-
-В.С. Шипачев | Задачник по высшей математике (1998) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пособие написано в соответствии с программой по высшей математике для вузов. Содержит задачи и примеры по следующим важнейшим разделам: теория пределов, аналитическая геометрия на плоскости и в пространстве, дифференциальное и интегральное исчисления функций одной и нескольких переменных, высшая алгебра, ряды и дифференциальные уравнения. Приведены основные теоретические (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6815DB72FE8316F1C340FEEBA3AD16D81E7FBB82
 ```
 
 https://mybot314.ru/tekegram_catalog/

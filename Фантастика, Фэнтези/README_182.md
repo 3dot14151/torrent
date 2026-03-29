@@ -1,3 +1,56 @@
+###  Публикация: 1329587   (351972) от 05.10.2019
+
+Тимоти Зан | Цикл "Трилогия о Трауне" [3 книги] (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наследник Империи:
+Прошло пять лет после того, как погибла вторая Звезда Смерти, Дарт Вейдер уничтожил Императора, а остатки Империи оказались загнанными в далекие уголки Галактики. Легендарный адмирал Акбар, отказавшись от политических дрязг, выходит в отставку. Мало кто предполагал, что отставка Акбара является следствием грандиозной интриги, затеянной последним (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастика, КосмоопераПеревод: Кирилл ПлешковФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DC5C98A47C0B11BC5E388AB8E958AF6E3A4043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329573   (351971) от 05.10.2019
+
+Тимоти Зан | Цикл " Рука Трауна" [2 книги] (2018 - 2019) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более девятнадцати лет назад завершилась битва при Йавине. Империя оказалась на краю гибели. Но у нее еще есть шанс на спасение в облике адмирала Пеллаэона. Новая Республика погрузилась в кровавую череду гражданских войн и междоусобиц. Тем не менее, адмирал, чтобы спасти Империю, предлагает заключить мир... И именно сейчас приходит известие о том, что самый хитроумный (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Боевая фантастика, КосмоопераПеревод: Анастасия БугрееваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF32E40F81247FD9C21B92EF8FF93F36669094F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256756   (351885) от 23.10.2018
 
 Андрей Левицкий | Война Зоны (2018) [FB2]
@@ -6,7 +59,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351885.jpg" />
+  <img src="Z:/picture/008/save_picture_351885.jpg" />
 </div>
 
 
@@ -34,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351807.jpg" />
+  <img src="Z:/picture/008/save_picture_351807.jpg" />
 </div>
 
 
@@ -62,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351806.jpg" />
+  <img src="Z:/picture/008/save_picture_351806.jpg" />
 </div>
 
 
@@ -88,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351698.jpg" />
+  <img src="Z:/picture/008/save_picture_351698.jpg" />
 </div>
 
 
@@ -114,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351669.jpg" />
+  <img src="Z:/picture/008/save_picture_351669.jpg" />
 </div>
 
 
@@ -142,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351299.jpg" />
+  <img src="Z:/picture/008/save_picture_351299.jpg" />
 </div>
 
 
@@ -170,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351282.jpg" />
+  <img src="Z:/picture/008/save_picture_351282.jpg" />
 </div>
 
 
@@ -196,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351180.jpg" />
+  <img src="Z:/picture/008/save_picture_351180.jpg" />
 </div>
 
 
@@ -222,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351153.jpg" />
+  <img src="Z:/picture/008/save_picture_351153.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351129.jpg" />
+  <img src="Z:/picture/008/save_picture_351129.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351114.jpg" />
+  <img src="Z:/picture/008/save_picture_351114.jpg" />
 </div>
 
 
@@ -305,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350970.jpg" />
+  <img src="Z:/picture/008/save_picture_350970.jpg" />
 </div>
 
 
@@ -331,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350946.jpg" />
+  <img src="Z:/picture/008/save_picture_350946.jpg" />
 </div>
 
 
@@ -359,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350813.jpg" />
+  <img src="Z:/picture/008/save_picture_350813.jpg" />
 </div>
 
 
@@ -385,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350440.jpg" />
+  <img src="Z:/picture/008/save_picture_350440.jpg" />
 </div>
 
 
@@ -412,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350273.jpg" />
+  <img src="Z:/picture/008/save_picture_350273.jpg" />
 </div>
 
 
@@ -438,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350153.jpg" />
+  <img src="Z:/picture/008/save_picture_350153.jpg" />
 </div>
 
 
@@ -464,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350009.jpg" />
+  <img src="Z:/picture/008/save_picture_350009.jpg" />
 </div>
 
 
@@ -493,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349999.jpg" />
+  <img src="Z:/picture/008/save_picture_349999.jpg" />
 </div>
 
 
@@ -519,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349754.jpg" />
+  <img src="Z:/picture/008/save_picture_349754.jpg" />
 </div>
 
 
@@ -547,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349591.jpg" />
+  <img src="Z:/picture/008/save_picture_349591.jpg" />
 </div>
 
 
@@ -575,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349474.jpg" />
+  <img src="Z:/picture/008/save_picture_349474.jpg" />
 </div>
 
 
@@ -601,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349473.jpg" />
+  <img src="Z:/picture/008/save_picture_349473.jpg" />
 </div>
 
 
@@ -627,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349311.jpg" />
+  <img src="Z:/picture/008/save_picture_349311.jpg" />
 </div>
 
 
@@ -638,63 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CB91B0D5868D1499D2104006896A91178CF7BB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072832   (349228) от 14.11.2016
-
-Константин Муравьёв | Дальняя застава (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Живучий».
-
-Если ты оказался в чужом и необычном мире, сумел не погибнуть по пути сюда, и даже смог как-то устроиться на новом месте, это ещё не значит, что всё уже позади. Это лишь означает, что ты успел увернуться от первого выпада, который приготовила тебе судьба. И скоро сможешь убедиться в этом. Ведь этот первый выпад чаще всего является проверочным. (   Читать дальше...   )Жанр: Боевое фэнтези, Героическая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116F55C16EA7C7FDCCD80841884D9D10702844DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 155301   (348926) от 29.11.2009
-
-Роман Злотников | Пощады не будет. Грон 5. [2009] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_348926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение Грона. Первые четыре книги здесь
-http://www.nnm-club.me/forum/viewtopic.php?t=102681
-
-Что будет с миром, если в схватку вступают два мастера? Кто победит, если один из них – жесток, безжалостен и прагматичен, то есть совершенно свободен в целях и средствах, а второй все-таки способен ограничивать себя? Что это – недостаток, из-за которого он обречен проиграть, (   Читать дальше...   )Формат: FB2Качество: форматированный текст
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

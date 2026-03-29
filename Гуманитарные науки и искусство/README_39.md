@@ -1,3 +1,29 @@
+###  Публикация: 1020688   (743887) от 27.05.2016
+
+И. Д. Андреев | Познаваемость мира и его закономерностей (1953) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_743887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вопрос о познаваемости мира в примитивной форме вставал на самых ранних ступенях развития человеческого общества. Уже первобытный человек пытался найти ответы на вопросы: что представляет собой мир, какие силы управляют миром, развивается ли он по законам, ему присущим, или он управляется деятельностью неведомых сверхъестественных сил, какова причина наступления (   Читать дальше...   )Жанр: История, философия, науковедение, политология, лингвистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A38A24E9E80BEB48082831B146A5D4693DDF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020682   (743803) от 27.05.2016
 
 П. Н. Федосеев | Условия материальной жизни общества (1951) [PDF]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743803.jpg" />
+  <img src="Z:/picture/008/save_picture_743803.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743344.jpg" />
+  <img src="Z:/picture/008/save_picture_743344.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743111.jpg" />
+  <img src="Z:/picture/008/save_picture_743111.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742542.jpg" />
+  <img src="Z:/picture/008/save_picture_742542.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742504.jpg" />
+  <img src="Z:/picture/008/save_picture_742504.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742463.jpg" />
+  <img src="Z:/picture/008/save_picture_742463.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742421.jpg" />
+  <img src="Z:/picture/008/save_picture_742421.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742407.jpg" />
+  <img src="Z:/picture/008/save_picture_742407.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742401.jpg" />
+  <img src="Z:/picture/008/save_picture_742401.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742400.jpg" />
+  <img src="Z:/picture/008/save_picture_742400.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742394.jpg" />
+  <img src="Z:/picture/008/save_picture_742394.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742316.jpg" />
+  <img src="Z:/picture/008/save_picture_742316.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742305.jpg" />
+  <img src="Z:/picture/008/save_picture_742305.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742301.jpg" />
+  <img src="Z:/picture/008/save_picture_742301.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742199.jpg" />
+  <img src="Z:/picture/008/save_picture_742199.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742191.jpg" />
+  <img src="Z:/picture/008/save_picture_742191.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742078.jpg" />
+  <img src="Z:/picture/008/save_picture_742078.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742065.jpg" />
+  <img src="Z:/picture/008/save_picture_742065.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741947.jpg" />
+  <img src="Z:/picture/008/save_picture_741947.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741945.jpg" />
+  <img src="Z:/picture/008/save_picture_741945.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739845.jpg" />
+  <img src="Z:/picture/008/save_picture_739845.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739841.jpg" />
+  <img src="Z:/picture/008/save_picture_739841.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739790.jpg" />
+  <img src="Z:/picture/008/save_picture_739790.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739722.jpg" />
+  <img src="Z:/picture/008/save_picture_739722.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738710.jpg" />
+  <img src="Z:/picture/008/save_picture_738710.jpg" />
 </div>
 
 
@@ -648,33 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71FBAF4AB7440D2D6B723470FBA6F7913D50D3B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526349   (738423) от 24.01.2022
-
-В.М. Жабцев | Пейзаж в русской живописи (2012) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание знакомит читателя с характерными сторонами творчества русских пейзажистов конца XVIII – начала XX века и с самыми известными их работами. А представленные в книге репродукции дадут возможность оценить вклад этих мастеров в процесс формирования мирового художественного искусства.
-В данном альбоме представлены наиболее известные произведения русской (   Читать дальше...   )Жанр: изобразительное искусство, история искусстваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D1ADAE504426FD18B36FEA7057B7C2E1664A40
 ```
 
 https://mybot314.ru/tekegram_catalog/

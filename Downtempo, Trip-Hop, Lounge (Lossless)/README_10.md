@@ -1,3 +1,61 @@
+###  Публикация: 1394161   (765433) от 03.07.2020
+
+VA - Sunny Day Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol - Bossalova (Original Mix)
+02. Schwarz, Funk - Fallen (Bossa Mix)
+03. Chillson, Marc Hartman - On This Day
+04. St Project - Bossaporita(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284BB253120095C2F566F169D8973CD470B881AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521920   (763452) от 04.01.2022
+
+VA - My Lounge Room (Chillout Your Mind) (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_763452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - Tender Moments (Original Mix) (4:49)
+02. Michael e - Thrilling (Original Mix) (5:52)
+03. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)
+04. Living Room - Don't Cry Baby (2:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6CEBFC2A52C61EC534D0FA6403D1B66A9F1582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280677   (760629) от 03.02.2019
 
 CИTROPY - CИTROPY (2018) Sun Sea Sky Productions [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Ambient>
@@ -6,7 +64,7 @@ CИTROPY - CИTROPY (2018) Sun Sea Sky Productions [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760629.jpg" />
+  <img src="Z:/picture/008/save_picture_760629.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Michael E - Cotton Blossom (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758094.jpg" />
+  <img src="Z:/picture/008/save_picture_758094.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Invisible Smile: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756641.jpg" />
+  <img src="Z:/picture/008/save_picture_756641.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ DJ Krush - Cosmic Yard (2018) Es.U.Es Corporation [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756478.jpg" />
+  <img src="Z:/picture/008/save_picture_756478.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Erotica Vol. 2 (Most Erotic Lounge And Chillout Tunes) (2016) [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752840.jpg" />
+  <img src="Z:/picture/008/save_picture_752840.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Erotica Vol. 3 (Most Erotic Smooth Jazz & Chillout Tunes) (2018) [FLAC|Loss
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752828.jpg" />
+  <img src="Z:/picture/008/save_picture_752828.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Erotica Vol. 1 (Most Erotic Lounge And Chillout Tunes) (2014) [FLAC|Lossles
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752827.jpg" />
+  <img src="Z:/picture/008/save_picture_752827.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ St. Germain - Tourist (Limited Edition) (2000) Blue Note [FLAC|Lossless|tracks +
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751239.jpg" />
+  <img src="Z:/picture/008/save_picture_751239.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Cafe del Mar - Phuket (2018) [FLAC|Lossless|tracks] <Downtempo, Chill House
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747717.jpg" />
+  <img src="Z:/picture/008/save_picture_747717.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Bonobo - Fragments (2022) [FLAC|Lossless|Web-DL|tracks] <Downtempo, Ambient, Dee
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746521.jpg" />
+  <img src="Z:/picture/008/save_picture_746521.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Essential Downtempo Vol.2: Chillout Your Mind (2022) [FLAC|Lossless|WEB
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745201.jpg" />
+  <img src="Z:/picture/008/save_picture_745201.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Mono Peninsula - Metro/Pol (2018) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <A
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740338.jpg" />
+  <img src="Z:/picture/008/save_picture_740338.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Blank & Jones - Milchbar // Seaside Season 10 (2018) [FLAC|Lossless|WEB-DL|track
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740127.jpg" />
+  <img src="Z:/picture/008/save_picture_740127.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - After Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739871.jpg" />
+  <img src="Z:/picture/008/save_picture_739871.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Pure... Chillout (2011) Box Set, 4 CD [FLAC|Lossless]<Electronic, Lounge, C
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739231.jpg" />
+  <img src="Z:/picture/008/save_picture_739231.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ VA - Sleep over to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737808.jpg" />
+  <img src="Z:/picture/008/save_picture_737808.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ VA - Chilled Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736921.jpg" />
+  <img src="Z:/picture/008/save_picture_736921.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Blank & Jones - Relax: Jazzed 3 (2022) [FLAC|Lossless|WEB|tracks] <Chillout, Jaz
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736893.jpg" />
+  <img src="Z:/picture/008/save_picture_736893.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Airstream - The Book of Sounds (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736690.jpg" />
+  <img src="Z:/picture/008/save_picture_736690.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Alle Farben - Out Of Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chil
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736682.jpg" />
+  <img src="Z:/picture/008/save_picture_736682.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Massive Attack - 4 Albums (1991-2003) [FLAC|Lossless|image + .cue] <Trip Hop, Le
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736505.jpg" />
+  <img src="Z:/picture/008/save_picture_736505.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ V.A. - Cafe Del Mar - XX (Volumen Veinte) (2014) 2CD [FLAC|Lossless]<Lounge, Chi
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736372.jpg" />
+  <img src="Z:/picture/008/save_picture_736372.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - Lo-Fi Dose to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734964.jpg" />
+  <img src="Z:/picture/008/save_picture_734964.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Geotronika - Stardust (2021) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Ambient, D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732705.jpg" />
+  <img src="Z:/picture/008/save_picture_732705.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ Geotronika - Stardust (2021) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Ambient, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C03019D6CDFB41B0E4F273F6275578102F5C54BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529703   (732577) от 07.02.2022
-
-Geotronika - The Radiance Of The Earth (2008) [FLAC|Lossless|WEB-DL|tracks] <Chillwave, Ambient, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Indian Dance (Original Mix) (7:41)
-02. Christmas Choir (Original Mix) (5:42)
-03. From Depth To The Sky (Original Mix) (5:18)
-04. New Magic Place (Original Mix) (7:23)(   Читать дальше...   )Жанр: Chillwave, Ambient, DowntempoПродолжительность: 01:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B3281280C8D24A950CE7CE55F2ADF3F3D62279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529708   (732571) от 07.02.2022
-
-Geotronika - Hypnosis Of Happiness (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hypnosis Of Happiness (6:20)
-02. Plutonius (2:37)
-03. Love Of Life (5:22)
-04. Free Flight (7:03)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC4A6BD46E619E33CEE5BDDE13A9DE59787A84D
 ```
 
 https://mybot314.ru/tekegram_catalog/

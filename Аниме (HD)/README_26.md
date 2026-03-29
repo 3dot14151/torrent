@@ -1,3 +1,30 @@
+###  Публикация: 1058947   (463889) от 03.10.2016
+
+Gekijouban Hibike! Euphonium / Sound! Euphonium The Movie / Играй, эуфониум! (фильм) [2016, Movie] BDrip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463889.jpg" />
+</div>
+
+
+###  Подробнее
+
+После не очень удачного выступления в региональном соревновании духовых оркестров среди средних школ, Кумико Омаэ надеялась начать всё с нуля в старшей школе. Ей повезло — в новой школе она быстро находит людей, занимающихся музыкой и заинтересовавшихся идеей создания школьного духового оркестра.
+Новыми товарищами Кумико стали: Хазуки Като, новичок, играющая на тубе; (   Читать дальше...   )Производство: Kyoto AnimationЖанр: повседневность, музыкальныйРежиссер: Исихара ТацуяПеревод: Sa4ko aka Kiyoso & ZenobianСубтитры: ASSФормат: MKVПродолжительность: 105 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0DC53DC8AA1DA0B248EDF1E4EDEA468BFD6CD64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037103   (463613) от 03.10.2016
 
 Danganronpa 3 Zetsubou Hen | Danganronpa 3: The End of Hope's Peak High School - Despair Arc | Данганронпа 3: Отчаяние [2016, TV, 11 + 1 sp] HDTV 720p raw
@@ -6,7 +33,7 @@ Danganronpa 3 Zetsubou Hen | Danganronpa 3: The End of Hope's Peak High School -
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463613.jpg" />
+  <img src="Z:/picture/008/save_picture_463613.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ Gundam G no Reconguista / Гандам: Возвращение на G [2014, TV,
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461677.jpg" />
+  <img src="Z:/picture/008/save_picture_461677.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Shokugeki no Souma / Food Wars! Shokugeki no Soma / Кулинарные пое�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461586.jpg" />
+  <img src="Z:/picture/008/save_picture_461586.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Monster Musume no Iru Nichijou / Everyday Life with Monster Girls / Повсед
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459354.jpg" />
+  <img src="Z:/picture/008/save_picture_459354.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Prison School / Школа-тюрьма [2015, TV, 12 из 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459351.jpg" />
+  <img src="Z:/picture/008/save_picture_459351.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ Watashi ga Motenai no wa Dou Kangaete mo Omaera ga Warui! / WataMote / Не мо
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457574.jpg" />
+  <img src="Z:/picture/008/save_picture_457574.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ Non Non Biyori Repeat / Прекрасные деньки [2015, TV, 12] HDTV 72
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457280.jpg" />
+  <img src="Z:/picture/008/save_picture_457280.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Kami nomi zo Shiru Sekai: Megami Hen / The World God Only Knows: Goddesses Arc /
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453213.jpg" />
+  <img src="Z:/picture/008/save_picture_453213.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Ore Monogatari!! / My Love Story!! / Моя история! [2015, TV, 24] HDTV 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452993.jpg" />
+  <img src="Z:/picture/008/save_picture_452993.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Kin`iro Mosaic / Golden Mosaic / Золотая Мозаика [2013, TV, 12] HD
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450545.jpg" />
+  <img src="Z:/picture/008/save_picture_450545.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ Maoyuu Maou Yuusha / Archenemy and Hero / Герой при заклятом в�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_444414.jpg" />
+  <img src="Z:/picture/005/save_picture_444414.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ Gangsta. | Гангстеры [2015, TV, 12] HDTV 720p 10bit raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444226.jpg" />
+  <img src="Z:/picture/008/save_picture_444226.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ Anime de Wakaru Shinryounaika | Comical Psychosomatic Medicine | Комична�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444063.jpg" />
+  <img src="Z:/picture/008/save_picture_444063.jpg" />
 </div>
 
 
@@ -350,7 +377,7 @@ Gekijouban Servamp: Alice in the Garden | Сервамп: Алиса в саду
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443154.jpg" />
+  <img src="Z:/picture/008/save_picture_443154.jpg" />
 </div>
 
 
@@ -376,7 +403,7 @@ Back Street Girls: Goku Dolls | Девчонки с задворок: Куклы
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441502.jpg" />
+  <img src="Z:/picture/008/save_picture_441502.jpg" />
 </div>
 
 
@@ -402,7 +429,7 @@ Phantasy Star Online 2: Episode Oracle | Звёздная фантазия он�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439778.jpg" />
+  <img src="Z:/picture/008/save_picture_439778.jpg" />
 </div>
 
 
@@ -430,7 +457,7 @@ Island | Остров [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439038.jpg" />
+  <img src="Z:/picture/008/save_picture_439038.jpg" />
 </div>
 
 
@@ -456,7 +483,7 @@ Jitsu wa Watashi wa / Правда в том, что я... [2015, TV, 13] HDTVri
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437320.jpg" />
+  <img src="Z:/picture/008/save_picture_437320.jpg" />
 </div>
 
 
@@ -482,7 +509,7 @@ Danganronpa Kibou no Gakuen to Zetsubou no Koukousei The Animation [2013, TV, 13
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436858.jpg" />
+  <img src="Z:/picture/008/save_picture_436858.jpg" />
 </div>
 
 
@@ -508,7 +535,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436834.jpg" />
+  <img src="Z:/picture/008/save_picture_436834.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434916.jpg" />
+  <img src="Z:/picture/008/save_picture_434916.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ Chio-chan no Tsuugakuro | Chio's School Road | Тио: Дорога в школ�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434785.jpg" />
+  <img src="Z:/picture/008/save_picture_434785.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ Arslan Senki (2015) | The Heroic Legend of Arslan (2015) | Сказание об
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430661.jpg" />
+  <img src="Z:/picture/008/save_picture_430661.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семь Чувств в Re
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430527.jpg" />
+  <img src="Z:/picture/008/save_picture_430527.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ Darker than Black: Gaiden / Darker than Black: Side story / Темнее Чер�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430088.jpg" />
+  <img src="Z:/picture/005/save_picture_430088.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ Darker than Black: Gaiden / Darker than Black: Side story / Темнее Чер�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411047   (429481) от 24.09.2020
-
-Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная война [2019, Movie] BDRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта детективная история с элементами социальной сатиры начинается за день до летних каникул, когда внезапно пропадают все мальчики из первого класса средней школы в центре Токио. Несчастный случай? Массовое похищение? На самом деле, мальчишки просто заперлись в здании заброшенной фабрики, находящемся у русла реки. Это «зона освобождения», откуда они при поддержке (   Читать дальше...   )Производство: студия Ajia-dou / 亜細亜堂Жанр: драмаРежиссер: Мурано ЮтаПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 90 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26EE32F8789C94F582FC00BCB5C1EDCC947729E
 ```
 
 https://mybot314.ru/tekegram_catalog/

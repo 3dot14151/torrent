@@ -6,7 +6,7 @@ Foxit Reader 7.3.4.311 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862415.jpg" />
+  <img src="Z:/picture/008/save_picture_862415.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862412.jpg" />
+  <img src="Z:/picture/008/save_picture_862412.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Flash Player 21.0.0.197 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862410.jpg" />
+  <img src="Z:/picture/008/save_picture_862410.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GrandTotal 6 v6.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862363.jpg" />
+  <img src="Z:/picture/008/save_picture_862363.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Marked 2 v2.5.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862362.jpg" />
+  <img src="Z:/picture/008/save_picture_862362.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Scrutiny 9 v9.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862361.jpg" />
+  <img src="Z:/picture/008/save_picture_862361.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ FlexKiks - Freeland (2006) Lagunamuch, Peace Technologies [FLAC|Lossless|WEB-DL|
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862359.jpg" />
+  <img src="Z:/picture/008/save_picture_862359.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862358.jpg" />
+  <img src="Z:/picture/008/save_picture_862358.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ EagleFiler 1.8.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862356.jpg" />
+  <img src="Z:/picture/008/save_picture_862356.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862343.jpg" />
+  <img src="Z:/picture/008/save_picture_862343.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Pepakura Designer 4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862341.jpg" />
+  <img src="Z:/picture/008/save_picture_862341.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Daum PotPlayer 1.6.59347 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862312.jpg" />
+  <img src="Z:/picture/008/save_picture_862312.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862297.jpg" />
+  <img src="Z:/picture/008/save_picture_862297.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VMWare ThinApp Enterprise 5.2.1 Build 3655846 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862277.jpg" />
+  <img src="Z:/picture/008/save_picture_862277.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Aimersoft DVD Creator 6.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862273.jpg" />
+  <img src="Z:/picture/008/save_picture_862273.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Wolff Parkinson White - Favours (2020) Colonel Beats Records [FLAC|Lossless|WEB-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862269.jpg" />
+  <img src="Z:/picture/008/save_picture_862269.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Stormzy - Heavy Is the Head (2019) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862267.jpg" />
+  <img src="Z:/picture/008/save_picture_862267.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Permute 3 v3.4.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862266.jpg" />
+  <img src="Z:/picture/008/save_picture_862266.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862263.jpg" />
+  <img src="Z:/picture/008/save_picture_862263.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ KCNcrew Pack 04-15-20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862262.jpg" />
+  <img src="Z:/picture/008/save_picture_862262.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ BestReminder v2020.04.15.15 Covid Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862260.jpg" />
+  <img src="Z:/picture/008/save_picture_862260.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Aiseesoft Mac Video Converter Ultimate 9.2.66 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862257.jpg" />
+  <img src="Z:/picture/008/save_picture_862257.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ The Bat! Professional 7.4.14 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862251.jpg" />
+  <img src="Z:/picture/008/save_picture_862251.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862237.jpg" />
+  <img src="Z:/picture/008/save_picture_862237.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Adobe Flash Player 21.0.0.197 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862190.jpg" />
+  <img src="Z:/picture/008/save_picture_862190.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Comodo Internet Security Premium 8.2.0.4978 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862189.jpg" />
+  <img src="Z:/picture/008/save_picture_862189.jpg" />
 </div>
 
 

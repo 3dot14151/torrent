@@ -1,3 +1,136 @@
+###  Публикация: 1846551   (1051514) от 08.01.2026
+
+MinerSearch 1.4.8.4 Portable  [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051514.jpg" />
+</div>
+
+
+###  Подробнее
+
+MinerSearch — программа предназначенная для удаления из вашей системы майнеров.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B86791059202FBB93C3BDD6D951E3D379608EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846047   (1051185) от 06.01.2026
+
+Dr.Web LiveDisk 9.0.0 (04.01.2026) [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1051185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dr.Web LiveDisk - антивирусный загрузочный диск / носитель для восстановления работоспособности системы , зараженной вирусами, руткитами или другими сложными угрозами.
+Для защиты системы от заражения, которое может привести компьютер в нерабочее состояние, необходимо использовать постоянную надежную защиту с использованием эффективных антивирусных программ.
+Однако, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E8277220F990AAA2EFFB5946C481CBB77A6745A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845105   (1050514) от 29.12.2025
+
+Glary Malware Hunter Pro 1.210.0.841 [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1050514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Malware Hunter - отмеченный наградами продукт, который обеспечивает комплексную защиту от всех типов угроз, защищает ваши данные, защищает вашу конфиденциальность и гарантирует, что ваш компьютер не будет содержать вирусов. Гиперсканирование обеспечивает более высокую скорость сканирования.
+Обнаружение и удаление устойчивых вредоносных программ защищает от потенциальной (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A42EE57920C40022EDD90717453D4267289189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844466   (1049940) от 26.12.2025
+
+MinerSearch 1.4.8.3 Portable [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1049940.jpg" />
+</div>
+
+
+###  Подробнее
+
+MinerSearch — программа предназначенная для удаления из вашей системы майнеров.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530781B7F35236B73BD3288C8A8798EA72AFFE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843548   (1049325) от 20.12.2025
+
+Malwarebytes AdwCleaner 8.7.0.619 Beta [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049325.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdwCleaner - программа, которая ищет и удаляет рекламное ПО в веб-браузере, панели инструментов, потенциально нежелательные программы (PUP) и hijacker-утилиты с вашего компьютера. С помощью AdwCleaner вы можете легко удалить многие из этих типов программ для спокойной работы на вашем компьютере и в Интернете.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E041A283F48FF91B44C819BCA474677AF1F553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841557   (1048145) от 12.12.2025
 
 Adguard 7.22.3 (7.22.5240.0) RePack by KpoJIuK [Multi/Ru]
@@ -6,7 +139,7 @@ Adguard 7.22.3 (7.22.5240.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048145.jpg" />
+  <img src="Z:/picture/008/save_picture_1048145.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Glary Malware Hunter Pro 1.209.0.840 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047879.jpg" />
+  <img src="Z:/picture/008/save_picture_1047879.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ Glary Malware Hunter Pro 1.208.0.839 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047615.jpg" />
+  <img src="Z:/picture/008/save_picture_1047615.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ Malwarebytes Windows Firewall Control 6.24.0.0 [Multi/Ru]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047427.jpg" />
+  <img src="Z:/picture/005/save_picture_1047427.jpg" />
 </div>
 
 
@@ -112,7 +245,7 @@ Kaspersky 21.8.5.452 Standard (TR) Online Installer [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045540.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ USB Guardian 4.6.0 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037090.jpg" />
 </div>
 
 
@@ -164,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032813.jpg" />
 </div>
 
 
@@ -190,7 +323,7 @@ Kaspersky Total Security 21.3.10.391 (Web Installer) [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027825.jpg" />
 </div>
 
 
@@ -216,7 +349,7 @@ Kaspersky Internet Security 21.3.10.391 (Web Installer) [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027824.jpg" />
 </div>
 
 
@@ -244,7 +377,7 @@ Faronics Deep Freeze Standard 8.60.020.5592 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026997.jpg" />
 </div>
 
 
@@ -270,7 +403,7 @@ HitmanPro 3.8.22 Build 316 RePack by DoMiNo [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021658.jpg" />
 </div>
 
 
@@ -298,7 +431,7 @@ Norton Remove and Reinstall Tool 4.5.0.157 [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018566.jpg" />
 </div>
 
 
@@ -327,7 +460,7 @@ AV Uninstall Tools Pack 2021.05 [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018142.jpg" />
 </div>
 
 
@@ -353,7 +486,7 @@ Kaspersky Anti-Ransomware Tool for Business 5.0.0.3886(i) [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017004.jpg" />
 </div>
 
 
@@ -382,7 +515,7 @@ USB Disk Security 6.9.0.0 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016822.jpg" />
 </div>
 
 
@@ -408,7 +541,7 @@ Passware Kit Forensic 2021.1.0 prepatched retail x64 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014254.jpg" />
 </div>
 
 
@@ -434,7 +567,7 @@ Hitman Pro 3.8.23 Build 318 RePack by DoMiNo [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013286.jpg" />
 </div>
 
 
@@ -462,7 +595,7 @@ Norton Security Deluxe 22.20.1.69 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977336.jpg" />
 </div>
 
 
@@ -488,7 +621,7 @@ Universal Virus Sniffer 3.87 Portable [Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963175.jpg" />
 </div>
 
 
@@ -514,7 +647,7 @@ Jetico BestCrypt 9.04.0.0 RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962931.jpg" />
 </div>
 
 
@@ -540,7 +673,7 @@ Jetico BestCrypt 9.04.0.0 RePack by elchupacabra [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956707.jpg" />
 </div>
 
 
@@ -551,136 +684,6 @@ Jetico BestCrypt — программа для автоматического «
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C65D2DFEBFC67F7C7D9995A772B84714D548C1D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368725   (904545) от 22.03.2020
-
-Elcomsoft Wireless Security Auditor 7.12.538 Professional Edition [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elcomsoft Wireless Security Auditor - новая программа, эффективно использующая вычислительные мощности современных видеокарт для восстановления и аудита паролей в беспроводных сетях со скоростью, недостижимой обычными средствами. При использовании этой технологии наиболее ресурсоёмкие части программы выполняются на мощных суперскалярных процессорах, использующихся (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5BA3FB8B2F1D67CF13FA5278F851CD81C3EDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494386   (888609) от 07.09.2021
-
-Panda Dome 21.00.00 [Multi/Ru]
-
->>Безопасность
->>Антивирусы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Panda Free Antivirus – бесплатный «облачный» антивирус Panda Dome с проактивными технологиями. Защита компьютера с максимальной производительностью. Эффективная веб-защита, антифишинг и блокировка вредоносных загрузок.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EB54DAA0EF50424203BFB51F5CE17E64DAE0A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371689   (888070) от 01.04.2020
-
-Password Depot 14.0.5 [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Password Depot - эффективный инструмент, управления всеми Вашими паролями. Вы больше никогда не забудете пароль. Password Depot Professional защищает Ваши пароли от внешнего несанкционированного доступа и при этом она очень удобна в использовании. Особенности программы: создание почти нерасшифровываемых паролей, шифрование данных, автоматизированный вход в систему. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85503245177D80CCE0DA4971468D81A9D771FAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371717   (887929) от 01.04.2020
-
-Norton AntiVirus 22.20.2.57 [Ru]
-
->>Безопасность
->>Антивирусы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norton AntiVirus - быстрый антивирус, использующий запатентованную многоуровневую защиту, которая позволяет надежно защищать от вредоносных программ и онлайн-угроз. Антивирус поможет вам сохранить в безопасности компьютер и важные данные даже от скрытых угроз. Работа защиты в фоновом режиме  предотвращает кражу личных данных, блокирует мошеннические веб-сайты и информирует (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D061C468DECDC8A65175178E34EDD7524871C6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371720   (887920) от 01.04.2020
-
-Norton 360 22.20.2.57 [Ru]
-
->>Безопасность
->>Комплексные системы защиты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norton 360 - комплексное решение "все-в-одном". Эффективная и быстрая защита от вредоносных программ с помощью мощного антивируса и проактивной технологии SONAR 4. Надежная защита от сетевых угроз и атак хакеров с двусторонним фаерволом и контролем программ, веб-защита от всех видов Интернет-угроз: фишинга, онлайн-мошенничества, вредоносных загрузок, кражи (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446F77B9B83B6033EF25D625E27F1B9A4600F794
 ```
 
 https://mybot314.ru/tekegram_catalog/

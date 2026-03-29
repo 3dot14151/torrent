@@ -1,3 +1,171 @@
+###  Публикация: 1839794   (1046771) от 30.11.2025
+
+TutorPlace, Елена Маршалова | Эффективное резюме (2024) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите создать резюме, которое привлечёт внимание работодателей? Присоединяйтесь к нашему курсу и узнайте, как составить безупречное резюме для любой карьерной ситуации!Производство: TutorPlaceЖанр: видеокурс, обучающий курс, бизнес, менеджментЯзык озвучки: русскийПродолжительность: 02:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45813F54F9AC411FF888510673497AA862DEB404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839521   (1046602) от 29.11.2025
+
+ProFinansy, Наталья Котовская | Страхование: как защитить себя и при этом заработать (2025) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы узнаете, зачем нужно страхование и какую стратегию лучше выбрать. Вы разберётесь, в чём смысл страхования, как оно работает, какие есть виды. Узнаете, на что важно обратить внимание при заключении договора страхования и как получить налоговый вычет по расходам на страхование.Производство: ProFinansyЖанр: видеокурс, обучающий курс, финансы, инвестиции, страхованиеЯзык озвучки: русскийПродолжительность: 04:46:42Реклама: наложение на видео и в презентации (плашка спонсоров и QR-код)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5643C20299099634C45FB84A83E288939008C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604875   (1045149) от 15.01.2023
+
+Вита Данева, Анна Котова | Портфолио на Behance + Гайд Patternbank (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Behance — популярная среди дизайнеров и иллюстраторов всего мира социальная медиа-платформа, для поиска заказчиков, рекламы и продвижения своих работ.
+
+Всегда есть сложности с первым шагом на новой площадке, какими бы не были спецами в той или иной сфере.
+Сделать продукт, оформить его, и показать - это три разных процесса.(   Читать дальше...   )Жанр: БизнесЯзык озвучки: РусскийПродолжительность: 05:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F42AE8B601B2F3B14D3A33DD34C45E0108397A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607527   (1043878) от 27.01.2023
+
+Skill Cup, Максим Ильяхов | Сильный текст в соцсетях. Тариф Всё включено (2022) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Максим Ильяхов:
+Редактор, основатель сервиса проверки текста «Главред»
+Автор бестселлеров «Пиши, сокращай», «Ясно, понятно» и сотен статей о редактуре, рекламе и контент-маркетинге
+Бывший главный редактор «Тинькофф-журнала» и рассылки «Мегаплана»(   Читать дальше...   )Производство: Skill CupЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 15:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813DCCB74E4138FC326B6C04DFCA1D6ED5E91719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610022   (1042845) от 05.02.2023
+
+Ким Воронин | Самый продающий вебинар (2022) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042845.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 миллиона из 11 я заработал за ОДИН ПРОДАЮЩИЙ ВЕБИНАР
+
+Хотя первый вебинар был полным провалом. Я потратил 50 тыщ на рекламу, набрал на него 80 зрителей и была всего 1 продажа.
+Конверсия в продажу 1%.Хотя я на момент продажи уже был дизайнером с 8-летним опытом.(   Читать дальше...   )Жанр: БизнесЯзык озвучки: РусскийПродолжительность: 04:12:09Реклама: Наложение на видео
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED4BF3F61BFF7371CAFFA128291DD43B0F3EABB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436887   (1042647) от 02.01.2021
+
+Like-Центр, Аяз Шабутдинов | Скорость 7  (2020) CamRip
+
+>>След.
+>>Бизнес и Менеджмент (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стартовал седьмой поток Бизнес-курса СКОРОСТЬ!!! (Восемь дней записи в высоком разрешении)
+Тебя ждут очень насыщенные 6 недель, на время которых ты погрузишься в среду начинающих и действующих предпринимателей, вместе с нами и с другими участниками начнешь путь самосовершенствования и развития своего дела!
+Тебя ждут:
+личные победы(   Читать дальше...   )Производство: Like-ЦентрЖанр: БизнесПродолжительность: 77:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BADB9ABE96D764CBBEFBA6873E45DC5933467C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437885   (1041588) от 06.01.2021
 
 Udemy, Александр Дронин | Управление личными финансами (2019) PCRec
@@ -6,7 +174,7 @@ Udemy, Александр Дронин | Управление личными ф�
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041588.jpg" />
 </div>
 
 
@@ -32,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041550.jpg" />
 </div>
 
 
@@ -61,7 +229,7 @@ Udemy, Davis Jones и др. | Career Hacking: Резюме, LinkedIn, Интер
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041345.jpg" />
 </div>
 
 
@@ -88,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041019.jpg" />
 </div>
 
 
@@ -117,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040734.jpg" />
 </div>
 
 
@@ -144,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040721.jpg" />
 </div>
 
 
@@ -171,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040719.jpg" />
 </div>
 
 
@@ -197,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040718.jpg" />
 </div>
 
 
@@ -224,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040716.jpg" />
 </div>
 
 
@@ -252,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040266.jpg" />
 </div>
 
 
@@ -280,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040257.jpg" />
 </div>
 
 
@@ -307,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040055.jpg" />
 </div>
 
 
@@ -335,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039853.jpg" />
 </div>
 
 
@@ -364,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039819.jpg" />
 </div>
 
 
@@ -392,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039784.jpg" />
 </div>
 
 
@@ -421,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039774.jpg" />
 </div>
 
 
@@ -449,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039766.jpg" />
 </div>
 
 
@@ -475,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039705.jpg" />
 </div>
 
 
@@ -503,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039509.jpg" />
 </div>
 
 
@@ -532,7 +700,7 @@ Creative Writing School, Павел Миронов | Сценарист виде
 >>Бизнес и Менеджмент (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039444.jpg" />
 </div>
 
 
@@ -544,176 +712,6 @@ Creative Writing School, Павел Миронов | Сценарист виде
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A27464E5137366BBE9D96703684033AFE422956D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440385   (1038660) от 17.01.2021
-
-ConvertMonster | Интернет-маркетолог 3.0 (2019) PCRec
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практический видеокурс подготовки высококвалифицированных специалистов по интернет-маркетингу с обучением на вашем проекте.
-На основе 8-летнего опыта агентства Convert Monster мы разработали курс «Интернет-маркетолог 3.0», который даст вам набор необходимых знаний и инструментов по привлечению клиентов из интернет.
-Вы научитесь создавать посадочные страницы, настраивать (   Читать дальше...   )Производство: ConvertMonsterЖанр: МаркетингПродолжительность: 59:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D66B44C310A0642B3056D40B39CF7F5C93A1614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440434   (1038649) от 17.01.2021
-
-ConvertMonster | Специалист по трафику, трафик-менеджер 2.0 (2020) PCRec
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038649.jpg" />
-</div>
-
-
-###  Подробнее
-
-В курс «Трафик-менеджер, специалист по трафику 2.0» вошли все наши наработки по привлечению трафика — только то, что реально работает и приносит прибыль.
-Вы научитесь:
-Определять и сегментировать целевую аудиторию, проводить конкурентный анализ рынка, составлять медиаплан;
-Настраивать эффективную рекламу на поиске в Яндекс.Директ и Google Ads;(   Читать дальше...   )Производство: ConvertMonsterЖанр: Арбитраж трафикаПродолжительность: 39:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6164F7236F08FAF58D26F120F93EE0CB5E20A219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441127   (1037971) от 20.01.2021
-
-Азамат Ушанов | Золотой актив (2017) WEB-DL
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моё главное отличие - я даю весь материал ПОШАГОВО в формате "Шаг 1", "Шаг 2", "Шаг 3".
-
-Да, нет никаких историй, камеди-клаба и т.п.
-Золотой актив - это отнюдь не развлекуха и хихи-хаха.(   Читать дальше...   )Жанр: ТренингПродолжительность: 13:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D859E346D98F454BDE531F08A5CA12E0107F229E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615393   (1037702) от 25.02.2023
-
-Slurm (Слёрм) | Soft skills для каждого (2022) WEB-DL [Тариф Мне просто спросить!] [AD] [RU]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс для тех, кто хочет динамично и без выгораний расти в карьере.
-К концу курса вы наладите отношения с начальством и коллегами, научитесь эффективно управлять временем, задачами и ресурсами.
-
-Вы начнёте лучше понимать себя: что вам интересно в работе, в каком направлении вы хотите развиваться.(   Читать дальше...   )Производство: Slurm (Слёрм)Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:43:30Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED75B90AA7458CF9193EAF6A3C7C84EE8372B68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441425   (1037636) от 21.01.2021
-
-Udemy, Rob Percival и др. | The Complete Digital Marketing Course - 12 Courses in 1  (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это один из самых полных доступных курсов цифрового маркетинга, включающий более 20 часов обучения, викторин и практических шагов. Мы расскажем о SEO, маркетинге на YouTube, маркетинге в Facebook, Google Adwords, Google Analytics и многом другом!
-
-Учиться на практике.
-Курс очень интерактивен, в каждый раздел встроены проекты, контрольные списки и полезные лекции.(   Читать дальше...   )Производство: UdemyЖанр: МаркетингЯзык озвучки: АнглйискийПродолжительность: 23:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76357C33C61D0EC439C23C455715060ED37BD057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441647   (1037356) от 22.01.2021
-
-Павел Антонов | Facebook Performance Pro (2020) PCRec
-
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как подняться на следующую ступень в работе с рекламой Facebook & Instagram, чтобы зарабатывать $3000+/мес и начать работать с международными проектамиПроизводство: TargetoriumЖанр: SMM, МаркетингЯзык озвучки: РусскийПродолжительность: 50:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3973CDB1A2B11A0EF3B79C7F3EA9610002862C58
 ```
 
 https://mybot314.ru/tekegram_catalog/

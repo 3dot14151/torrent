@@ -6,7 +6,7 @@ Glary Utilities Pro 5.114.0.139 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722765.jpg" />
+  <img src="Z:/picture/008/save_picture_722765.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ContaCam 9.9.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722740.jpg" />
+  <img src="Z:/picture/008/save_picture_722740.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AOMEI Backupper Technician Plus 5.9.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722731.jpg" />
+  <img src="Z:/picture/008/save_picture_722731.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Steinberg SpectraLayers Pro 7.0.0 Build 217 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722730.jpg" />
+  <img src="Z:/picture/008/save_picture_722730.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Auslogics Windows Slimmer 2.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722727.jpg" />
+  <img src="Z:/picture/008/save_picture_722727.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ GeoGebra 6.0.688.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722698.jpg" />
+  <img src="Z:/picture/008/save_picture_722698.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ IObit Driver Booster Pro 9.2.0.173 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722692.jpg" />
+  <img src="Z:/picture/008/save_picture_722692.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Allavsoft Video Downloader Converter 3.17.1.6994 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722686.jpg" />
+  <img src="Z:/picture/008/save_picture_722686.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ OBS Studio 22.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722671.jpg" />
+  <img src="Z:/picture/008/save_picture_722671.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ AOMEI Backupper Pro 5.9.0 [Multi] (акция Comss)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722645.jpg" />
+  <img src="Z:/picture/008/save_picture_722645.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Wondershare Filmora 9.5.2.9 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722640.jpg" />
+  <img src="Z:/picture/008/save_picture_722640.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ MAGIX Vegas Pro 18.0.0.284 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722638.jpg" />
+  <img src="Z:/picture/008/save_picture_722638.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Movavi Video Converter 20.2.1 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722633.jpg" />
+  <img src="Z:/picture/008/save_picture_722633.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ SolveigMM Video Splitter 7.4.2007.29 Business Edition RePack (& Portable) by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722632.jpg" />
+  <img src="Z:/picture/008/save_picture_722632.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ USDownloader 1.3.5.9 Portable (28.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722618.jpg" />
+  <img src="Z:/picture/008/save_picture_722618.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Acoustica Premium Edition 7.3.27 (x64) RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722609.jpg" />
+  <img src="Z:/picture/008/save_picture_722609.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VidCoder 7.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722608.jpg" />
+  <img src="Z:/picture/008/save_picture_722608.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Opera 83.0.4254.62 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722605.jpg" />
+  <img src="Z:/picture/008/save_picture_722605.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Wise Registry Cleaner Pro 10.7.1.698 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722604.jpg" />
+  <img src="Z:/picture/008/save_picture_722604.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ IObit Driver Booster Pro 9.2.0.173 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722597.jpg" />
+  <img src="Z:/picture/008/save_picture_722597.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Extreme Picture Finder 3.43.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722590.jpg" />
+  <img src="Z:/picture/008/save_picture_722590.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Macrorit Data Wiper 4.6.0 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722585.jpg" />
+  <img src="Z:/picture/008/save_picture_722585.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Glary Utilities Pro 5.114.0.139 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722580.jpg" />
+  <img src="Z:/picture/008/save_picture_722580.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Macrorit Partition Expert 5.3.9 Unlimited Edition RePack (& Portable) by elchupa
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722571.jpg" />
+  <img src="Z:/picture/008/save_picture_722571.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Symantec Endpoint Protection 14.3 MP1 build 1148 (14.3.1148.0100) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722552.jpg" />
+  <img src="Z:/picture/008/save_picture_722552.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Office 2013-2019 C2R Install + Lite 7.0.6 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722539.jpg" />
+  <img src="Z:/picture/008/save_picture_722539.jpg" />
 </div>
 
 

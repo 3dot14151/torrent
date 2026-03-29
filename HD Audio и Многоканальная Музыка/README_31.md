@@ -1,3 +1,232 @@
+###  Публикация: 1045217   (556920) от 25.08.2016
+
+Каунт Бейси - Когда Садится Солнце (1985) Записи 1940 - 1950гг. [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Когда Садится Солнце
+02. Пьеса Для Фортепиано
+03. Какой Медленный Блюз
+04. Привет, Мама Лоди(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA72C8EA6F00CD75F694F84876057A3284DA01B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045758   (556844) от 25.08.2016
+
+Автограф - Ирландия. Ольстер (1981) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирландия, Ольстер
+02. Пристегните ремни безопасности
+03. Блюз ''Каприз''Жанр: Prog RockПродолжительность: 00:14:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B656221AD61289DCF82480F0FA1066A83985867C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046074   (556831) от 25.08.2016
+
+Оризонт - Мой Светлый Мир (1982) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой Светлый Мир
+02. Сани С Бубенцами
+03. Колыбельная
+04. Парус На Волне(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9619F222C9A03A8D61F87A188DE83CAFCFD6B977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045939   (556778) от 25.08.2016
+
+Илья Словесник - Мы так любили Beatles (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Провинция
+02. Мы так любили «Битлз»
+03. Биополе
+04. Солёное море(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F05248CF781B8327BAEFD0BB5AF1BDD4E78380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046065   (556681) от 25.08.2016
+
+Автограф (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S.O.S.
+02. Реквием (Памяти Джона Леннона) · Requiem (In Memory Of John Lennon)
+03. Истина · The Truth
+04. Монолог · Monologue(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F3AE99E620FBD454DC8BAF5E628B300D19E84B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046001   (556678) от 25.08.2016
+
+Ann Mortifee - Into the Heart of the Sangoma (2005) [DTS 5.0 CD-DA|44.1/16|image+cue|SACD] <Pop-Rock, African Word music>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nomkumbulwana	5:49
+02. I Am Glad That You Are Here1:51
+03. Africa 7:28
+04. I Will Meet You There 0:51(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550CFA4E98CE19847235AD25605C8CE4E6FC26E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556588   (556392) от 12.06.2022
+
+Rob Halford (Judas Priest, Fight, Two) - Studio Albums (12 releases) (1993 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Джон Артур «Роб» Хэ́лфорд (англ. Robert John Arthur "Rob" Halford; род. 25 августа 1951 года) — британский музыкант, автор песен и продюсер, в первую очередь известный как вокалист британской хеви-метал-группы Judas Priest (в 1973—1991 гг. и с 2003 года по нынешнее время). По версии журнала Classic Rock, занимает 9-е место в рейтинге лучших (   Читать дальше...   )2000 - Resurrection
+2002 - Crucible
+2007 - Metal God Essentials Vol.1
+2009 - Halford III - Winter Songs(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 13:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3C4DF92479B9230212355039647A85BB6367C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557157   (556383) от 12.06.2022
+
+Mike Oldfield - Crises (1983) Deluxe Edition, remaster 2013 [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Art Rock, Prog-Rock, Progressive Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crises - 20:38
+02. Moonlight ShadowПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C840A53633A8B526BBFBD091D1C095BDB39EDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236110   (556249) от 15.07.2018
 
 Duran Duran - Liberty (1991) Unofficial Release, 1992, Not On Label [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Synthpop>
@@ -6,7 +235,7 @@ Duran Duran - Liberty (1991) Unofficial Release, 1992, Not On Label [FLAC 2.0|19
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556249.jpg" />
+  <img src="Z:/picture/008/save_picture_556249.jpg" />
 </div>
 
 
@@ -35,7 +264,7 @@ Johnny Cash - The Johnny Cash Collection 1955 - 1971 (1971) [FLAC 2.0|96/24|imag
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554635.jpg" />
+  <img src="Z:/picture/008/save_picture_554635.jpg" />
 </div>
 
 
@@ -64,7 +293,7 @@ Stars On 45 - Звёзды Дискотек - 2 (1982) [WavPack 2.0|192/32|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551667.jpg" />
+  <img src="Z:/picture/008/save_picture_551667.jpg" />
 </div>
 
 
@@ -93,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549186.jpg" />
+  <img src="Z:/picture/008/save_picture_549186.jpg" />
 </div>
 
 
@@ -122,7 +351,7 @@ Chicago - Chicago 18 (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz Rock, Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549161.jpg" />
+  <img src="Z:/picture/008/save_picture_549161.jpg" />
 </div>
 
 
@@ -151,7 +380,7 @@ VA - Панорама '86. Фестиваль Молодежной Популя�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549071.jpg" />
+  <img src="Z:/picture/008/save_picture_549071.jpg" />
 </div>
 
 
@@ -180,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548151.jpg" />
+  <img src="Z:/picture/008/save_picture_548151.jpg" />
 </div>
 
 
@@ -210,7 +439,7 @@ Tin Machine - Tin Machine II (1991) [FLAC 2.0 24/192|image|Vinyl-Rip] <Alternati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547897.jpg" />
+  <img src="Z:/picture/008/save_picture_547897.jpg" />
 </div>
 
 
@@ -239,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546298.jpg" />
+  <img src="Z:/picture/008/save_picture_546298.jpg" />
 </div>
 
 
@@ -268,7 +497,7 @@ Def Leppard - Pyromania (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Roc
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545605.jpg" />
+  <img src="Z:/picture/008/save_picture_545605.jpg" />
 </div>
 
 
@@ -297,7 +526,7 @@ Alan Parsons - A Valid Path (2006) [FLAC 2.0|48/24|image+.cue|Audio-DVD] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544718.jpg" />
+  <img src="Z:/picture/008/save_picture_544718.jpg" />
 </div>
 
 
@@ -326,7 +555,7 @@ Pussycat - Blue Lights (1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco, Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544636.jpg" />
+  <img src="Z:/picture/008/save_picture_544636.jpg" />
 </div>
 
 
@@ -355,7 +584,7 @@ David Lanz & Paul Speer - Desert Vision (1997) 2005 [DTS 5.1 CD-DA|44.1 /16|imag
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544111.jpg" />
+  <img src="Z:/picture/008/save_picture_544111.jpg" />
 </div>
 
 
@@ -384,7 +613,7 @@ Harry Secombe - At Your Request (1958) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543687.jpg" />
+  <img src="Z:/picture/008/save_picture_543687.jpg" />
 </div>
 
 
@@ -413,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542648.jpg" />
+  <img src="Z:/picture/008/save_picture_542648.jpg" />
 </div>
 
 
@@ -442,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542556.jpg" />
+  <img src="Z:/picture/008/save_picture_542556.jpg" />
 </div>
 
 
@@ -471,7 +700,7 @@ Pink Floyd - The Division Bell (1994) 2LP, 20th Anniversary /2014, Parlophone Re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541029.jpg" />
+  <img src="Z:/picture/008/save_picture_541029.jpg" />
 </div>
 
 
@@ -500,7 +729,7 @@ Lady Gaga - 2 альбома (2008, 2011) [DTS 5.1|Tracks (upmix)]<Pop, dance>
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539717.jpg" />
+  <img src="Z:/picture/008/save_picture_539717.jpg" />
 </div>
 
 
@@ -529,249 +758,6 @@ Lady Gaga - 2 альбома (2008, 2011) [DTS 5.1|Tracks (upmix)]<Pop, dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:638ECCAF0B71D7E2996E9C7BC9A31B6600EA569A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531769   (539714) от 06.08.2012
-
-Tina Turner - Simply The Best (1991) [DTS 5.1|image (Upmix)]<Pop, Rock, R&B>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best (4:21)
-02. Better Be Good To Me (4:04)
-03. Can't Stand The Rain (3:34)
-04. What's Love Got To Do With It (3:47)
-05. Typical Male (4:44)
-06. Private Dancer (4:22)
-07. We Don't Need Another Hero (4:48)
-08. What You Get Is What You See (4:08)
-09. I Don't Wanna Lose You (4:16)
-10. Look Me In The Heart (3:38)(   Читать дальше...   )Жанр: Pop, Rock, R&BФормат: wav+cue'Продолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B1BAFAD6408CFA58F7B07C733E469005AD2B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 818710   (539388) от 04.09.2014
-
-Electric Light Orchestra - Zoom (2001) 2LP /2013, Big Trilby Records/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539388.jpg" />
-</div>
-
-
-###  Подробнее
-
-C1. A Long Time Gone (3:16)
-C2. Melting In The Sun (3:10)
-C3. All She Wanted (3:14)
-C4. Lonesome Lullaby (4:04)Жанр: Progressive RockПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F19D02D023E97C2EA64943DC103E289DEFD80C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 696921   (538090) от 04.09.2013
-
-Nicole - Alles fliesst (2005) [DTS 5.1 CD-Extra|44.1/16| .bin+.cue (Audio-DVD)] <pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538090.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alles Fließt 4:05
-2. Engel Ohne Flügel 3:50
-3. Gib Mir Eine Stunde 3:48
-4. Mehr Davon 4:22(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F9578FFFEAF93FD029DDEE1B0484BE6EE009BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049566   (537639) от 08.09.2016
-
-Genesis - SACD Anthology (1970-1998) [FLAC 2.0|96/24|tracks+.cue|SACD] <Progressive Rock, Pop Rock, Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invisible Touch (3:29)
-02. Tonight, Tonight, Tonight (8:54)
-03. Land Of Confusion (4:46)
-04. In Too Deep (5:03)(   Читать дальше...   )Жанр: Progressive Rock, Pop Rock, Art RockПродолжительность: 14:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B345F4CCF1B7F126269C2A5139016902BCAF921C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531394   (537637) от 07.08.2012
-
-Чиж - 2 альбома (1996, 2010) [DTS 5.1|Image (Upmix)]<Рок, блюз-рок, фолк-рок, рок-н-ролл>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537637.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Перекресток (7:01)
-02. Она не вышла замуж... (6:48)
-03. Такие дела (5:56)
-04. Вечная молодость (2:59)
-05. Поход (3:31)
-06. Сен Семилья (5:45)
-07. Дополнительный 38 (5:09)
-08. Русская (хочу чаю) (3:31)
-09. Hoochie Coochie Man (3:44)(   Читать дальше...   )Жанр: Рок, блюз-рок, фолк-рок, рок-н-роллПродолжительность: 02:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2F95331D04C6F21AD361DC4C94DE12F80E0D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050670   (536363) от 09.09.2016
-
-Форум - Никто Не Виноват (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Electronic, New Wave, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мечтатель • Dreamer
-02. Закодирована Дверь • Door With A Code
-03. Ты Пожалеешь • Yo'll Be Sorry
-04. Серенада • Serenade(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2781746B23F41AAC5533DBE83DE5B44D4BDF962C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819259   (535792) от 06.09.2014
-
-Electric Light Orchestra - Balance Of Power (1986)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535792.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Heaven Only Knows (2:57)
-A2. So Serious (2:44)
-A3. Getting To The Point (4:31)
-A4. Secret Lives (3:32)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68EE1D2F2D7B42967397EC7B1B19EB322D412FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557908   (535704) от 18.06.2022
-
-Triptykon - Studio Albums (2010 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death/Black/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triptykon — швейцарская экстремальная метал-группа из Цюриха, основанная в 2008 году Томасом Габриэлем Фишером, одним из основателей новаторских хэви-металлических групп Hellhammer, Celtic Frost и Apollyon Sun.2010 - Eparistera Daimones
-2014 - Melana Chasmata
-2020 - Requiem (Live At Roadburn 2019)Жанр: Death/Black/Doom MetalПродолжительность: 03:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8858B6C68B50D2C584EB7AF16EE12E55E915DF0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

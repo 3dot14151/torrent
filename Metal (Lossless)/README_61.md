@@ -1,3 +1,90 @@
+###  Публикация: 1496515   (871394) от 18.09.2021
+
+Ruadh - Eternal (2021) [FLAC|Lossless|image + .cue] <Atmospheric Folk Metal, Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_871394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break Of Dawn
+02. Let The Pagan Fire Burn
+03. Harvest
+04. Fade To Grey(   Читать дальше...   )Жанр: Atmospheric Folk Metal, Atmospheric Black MetalПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22F1E0633ABB7E9FA0D5E804F5023266CD9B22F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374652   (871348) от 11.04.2020
+
+Zakk Wylde - Book Of Shadows (1996) [FLAC|Lossless|image + .cue] <Southern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_871348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between Heaven And Hell
+02. Sold My Soul
+03. Road Back Home
+04. Way Beyond Empty(   Читать дальше...   )Жанр: Southern MetalПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0950171BFB5F3593FF8BCE3B48626429963E6B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637639   (870655) от 15.04.2013
+
+Bring Me The Horizon - 6 Альбомов (2005-2013) Дискография [FLAC|Lossless]<Metalcore | Post-Hardcore | Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_870655.jpg" />
+</div>
+
+
+###  Подробнее
+
+<<<
+----------------------------------------------------------------------------
+01. Can You Feel My Heart
+02. The House of Wolves(   Читать дальше...   )Тип издания: ДискографияЖанр: Metalcore | Post-Hardcore | DeathcoreПродолжительность: 00:57:38 >>>
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998025   (870317) от 19.03.2016
 
 Doro - Force Majeure (1989) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +93,7 @@ Doro - Force Majeure (1989) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870317.jpg" />
+  <img src="Z:/picture/008/save_picture_870317.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Angel House - The Gun, The Love & The Cross (2009) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870076.jpg" />
+  <img src="Z:/picture/008/save_picture_870076.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Inhuman Condition - Rat°God (2021) [FLAC|Lossless|image + .cue] <Thrash, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869938.jpg" />
+  <img src="Z:/picture/008/save_picture_869938.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Captain Booze - Runaway (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869937.jpg" />
+  <img src="Z:/picture/008/save_picture_869937.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Killing - Face the Madness (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869936.jpg" />
+  <img src="Z:/picture/008/save_picture_869936.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Apocalyptica - Cell-0 (2020) [FLAC|Lossless|image + .cue] <Cello Metal, Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868728.jpg" />
+  <img src="Z:/picture/008/save_picture_868728.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Abyssic - A Winter's Tale (2016) Limited Edition [FLAC|Lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868592.jpg" />
+  <img src="Z:/picture/008/save_picture_868592.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Spiritbox - Eternal Blue (2021) [FLAC|Lossless|tracks + .cue] <Metalcore, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868026.jpg" />
+  <img src="Z:/picture/008/save_picture_868026.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Evanescence - Lost Whispers (2016) [FLAC|Lossless|WEB-DL|tracks] <Metal, Alterna
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867686.jpg" />
+  <img src="Z:/picture/008/save_picture_867686.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Trail of Tears - Existenita (2007) [FLAC|Lossless|image + .cue] <Gothic Metal, S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867293.jpg" />
+  <img src="Z:/picture/008/save_picture_867293.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Vampiria - Among Mortals (2000) [FLAC|Lossless|image + .cue] <Melodic Black Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867289.jpg" />
+  <img src="Z:/picture/008/save_picture_867289.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Trivium - The Crusade (2006) [FLAC|Lossless|image + .cue] <Thrash Metal, Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867285.jpg" />
+  <img src="Z:/picture/008/save_picture_867285.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Fierce Atmospheres - The Speed of Dreams (2021) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866678.jpg" />
+  <img src="Z:/picture/008/save_picture_866678.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Necronautical - Slain In The Spirit (2021) [FLAC|Lossless|image + .cue] <Symphon
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866673.jpg" />
+  <img src="Z:/picture/008/save_picture_866673.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Amorphis - Live At Helsinki Ice Hall (2021) 2xCD [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866600.jpg" />
+  <img src="Z:/picture/008/save_picture_866600.jpg" />
 </div>
 
 
@@ -444,7 +531,7 @@ Insomnium - Argent Moon (2021) EP [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866590.jpg" />
+  <img src="Z:/picture/008/save_picture_866590.jpg" />
 </div>
 
 
@@ -473,7 +560,7 @@ Wolves In The Throne Room - Primordial Arcana (2021) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864959.jpg" />
+  <img src="Z:/picture/008/save_picture_864959.jpg" />
 </div>
 
 
@@ -502,7 +589,7 @@ Joe Stump - Diabolical Ferocity (2021) [FLAC|Lossless|WEB-DL|tracks] <Neo Classi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864947.jpg" />
+  <img src="Z:/picture/008/save_picture_864947.jpg" />
 </div>
 
 
@@ -531,7 +618,7 @@ Arraigo - Fronteras y Horizontes (2012) [FLAC|Lossless|image + .cue] <Folk Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864913.jpg" />
+  <img src="Z:/picture/008/save_picture_864913.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ Mystic Prophecy - War Brigade (2016) Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864906.jpg" />
+  <img src="Z:/picture/008/save_picture_864906.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ Carcass - Torn Arteries (2021) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864883.jpg" />
+  <img src="Z:/picture/008/save_picture_864883.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ Omnium Gatherum - Grey Heavens (2016) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864812.jpg" />
+  <img src="Z:/picture/008/save_picture_864812.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ Leather Heart - Comeback (2015) Japanese Edition 2017 [FLAC|lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864648.jpg" />
+  <img src="Z:/picture/008/save_picture_864648.jpg" />
 </div>
 
 
@@ -661,93 +748,6 @@ Leather Heart - Comeback (2015) Japanese Edition 2017 [FLAC|lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1A52CE5B76913BD8EA04DA06FA00C8974926485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999448   (864511) от 22.03.2016
-
-Amon Amarth - Jomsviking (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Kill
-02. Wanderer
-03. On A Sea Of Blood
-04. One Against All(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1118094C9159F92A66D7474A5118054874D76FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375828   (864020) от 15.04.2020
-
-Leeched - To Dull the Blades of Your Abuse (2020) [FLAC|Lossless|tracks] <Sludge Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hound's Jaw [00:02:37]
-02. The Grey Tide [00:05:04]
-03. I, Flatline [00:04:13]
-04. Now It Ends [00:03:23](   Читать дальше...   )Жанр: Sludge Metal, MetalcoreПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E7223E4F63F3B31B50B9BE346E553DDB7EB061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375604   (863986) от 15.04.2020
-
-Amberian Dawn - Looking for You (2020) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. United (3:42)
-02. Eternal Fire Burning (4:16)
-03. Looking for You (3:37)
-04. Two Blades (3:41)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5918D21A3C5E922A32BA8EF067288943295E80
 ```
 
 https://mybot314.ru/tekegram_catalog/

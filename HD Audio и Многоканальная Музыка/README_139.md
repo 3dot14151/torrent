@@ -1,3 +1,235 @@
+###  Публикация: 1732438   (107471) от 25.06.2024
+
+Allan Wilson - Walking to Nowhere (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Long (5:26)
+02. Shout for Silence (5:59)
+03. Life Without You (4:59)
+04. Walking to Nowhere (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65D4D6313DF359CFBA188CED0BA129360F29E85E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732625   (107468) от 25.06.2024
+
+Lutharo - Studio Albums (4 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lutharo - канадская метал-группа основанная в 2014 году.2018 - Unleash the Beast (EP)
+2020 - Wings of Agony (EP)
+2021 - Hiraeth
+2024 - Chasing EuphoriaЖанр: Melodic Death/Power/Thrash MetalПродолжительность: 02:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C879AE85426435E987E46CF9E32F120D6CE2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732512   (107467) от 25.06.2024
+
+The Mercury Riots - In Solstice (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make It (3:44)
+02. Be Yours (3:41)
+03. LA Girls (3:23)
+04. Sweet Melody (3:35)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF62DDC3FFA75DFF49B3FE6556AA1B1C2E044EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732471   (107459) от 25.06.2024
+
+Leonardo979 - Overdrive Motel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdrive Motel (3:27)
+02. Limo Voodoo (3:28)
+03. Loser (3:37)
+04. By This River (5:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94C48E9C729C56E1996C660B98B7055B390692A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732441   (107456) от 25.06.2024
+
+Bottenhavet - Ljud i Tysta Rum (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Våg (4:59)
+02. Talar Miljon (5:33)
+03. Bränn Broar (4:32)
+04. Frågor Utan Svar (1:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F5A680BAAAC5AFA705AE21D333EC7AFC90EB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732468   (107454) от 25.06.2024
+
+John Vlasic - After the Sunset (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn One Down (3:55)
+02. Find a Way (4:36)
+03. Caught up in the Rush (3:31)
+04. The Sunset Blues (5:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738EFAD4181CD404496A219EEE8699E358985C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732492   (107453) от 25.06.2024
+
+MaxX & Love - These Blues Might Get You Too (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Train Intro (3:36)
+02. I'll Never Fall In Love (2:48)
+03. Good Time (5:45)
+04. Overture I (0:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8812B9504631D65CC8D7822E5C462F2B3C2114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732499   (107452) от 25.06.2024
+
+Motor Gypsy - Motor Gypsy II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixteen Stories (3:28)
+02. My Ghost (4:17)
+03. Change My Mind (3:37)
+04. It's a Party (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC31E4C019A85215BFB9CF8BF301A62EB1E64EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732725   (107450) от 26.06.2024
 
 Terence Fixmer - The Paradox In Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <industrial, techno body music>
@@ -6,7 +238,7 @@ Terence Fixmer - The Paradox In Me (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <i
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107450.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Marcella Detroit - Jewel (1994) Remastered and Expanded, 2024, Because Ltd [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107430.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Red Hot Org, Kronos Quartet - 2024 Red Hot Org (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107426.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Linda Thompson - Proxy Music (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107424.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Lola Young - This Wasn't Meant For You Anyway (2024) [FLAC 24/44.1|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107418.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Naive New Beaters - Fvtvrvm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Altern
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107375.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Imagine Dragons - Loom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Ind
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107345.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Yes - Fragile (1971) Super Deluxe Edition, Steven Wilson Remix, 2024, Rhino Atla
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107330.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Kalax - LOST (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107302.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Hourglass - Voids and Visions (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107287.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Channel Tres - Head Rush (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electrón
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107286.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ VA - For Discos Only: Indie Dance Music From Fantasy & Vanguard Records (1976-19
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107277.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Dua Lipa - Radical Optimism (2023) Extended Versions, 2024, Warner Records [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107256.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ James Blake & Lil Yachty - Bad Cameo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107226.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Bryard Huggins - Confidential (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107225.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Dreamroot - Push (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107224.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Federico Caruso - Sfunk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107222.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Kadavar - 3 Albums (2011-2017) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Rock,
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107221.jpg" />
 </div>
 
 
@@ -513,237 +745,6 @@ Kadavar - 3 Albums (2011-2017) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E58696794B92CFADCAA485A51665BE312CFDD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733845   (107220) от 30.06.2024
-
-Erik Friedlander - Dirty Boxing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sprawl (5:30)
-02. Foot Stomp (4:41)
-03. Shrimping (Mod 9) (4:45)
-04. Ground & Pound (Mod 1) (3:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBD7B139458504FE980EBB56B7F325BEF4E34C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733810   (107219) от 30.06.2024
-
-VA - Petty Country (A Country Music Celebration Of Tom Petty) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Stapleton - I Should Have Known It (3:56)
-02. Thomas Rhett - Wildflowers (3:15)
-03. Luke Combs - Runnin' Down A Dream (4:07)
-04. Dolly Parton - Southern Accents (4:27)(   Читать дальше...   )Жанр: Country RockПродолжительность: 01:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21926BE7E26FB7C96DE999D54E04736BA6C6810D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733876   (107213) от 01.07.2024
-
-Kasbo - 6 Albums (2018-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, Easy Listening, House, Deep House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Kasbo - 2018 - Places We Don't Know
-Kasbo - 2019 - Places We Don’t Know Remix EP
-Kasbo - 2020 - The Making of a Paracosm(   Читать дальше...   )Жанр: Downtempo, Easy Listening, House, Deep HouseПродолжительность: 6 CD, 03:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:979B53487C853ED62E0E8493A4864D875EB52ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733961   (107203) от 01.07.2024
-
-Luca Turilli (Dreamquest; Rhapsody) - Studio Albums (7 releases) (1999-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лука Турилли — итальянский рок-музыкант, гитарист-виртуоз, клавишник и композитор. Сооснователь пауэр-метал-группы Rhapsody of Fire и соавтор большей части её песен.1999 - King Of The Nordic Twilight
-Luca Turilli's Dreamquest
-Luca Turilli's Rhapsody
-Turilli / Lione RhapsodyЖанр: Symphonic Power MetalПродолжительность: 07:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF1E9CD184C7FD6E4F368E3A1430FCD067C28574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733875   (107198) от 01.07.2024
-
-Benjamin Finger - Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melancholic Drone, Drone Ambient>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer [00:19:42]
-02. Distance [00:16:42]
-03. Return [00:02:39]Жанр: Melancholic Drone, Drone AmbientПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26DFA125EC12129969C91D2C769BEA86087891AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734019   (107196) от 01.07.2024
-
-Outlander - Acts of Harm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bound [00:06:09]
-02. Want No More [00:07:50]
-03. II: Nuclear [00:01:53]
-04. Orbit [00:03:44](   Читать дальше...   )Жанр: Shoegaze, RockПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5F94ADC44BABD6D3BF8D1866F7A80E748F63AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734137   (107164) от 02.07.2024
-
-Kaipa - Sommargryningsljus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Progressive Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sommarskymningsljus (1:33)
-02. Seven Birds (9:49)
-03. Like Thousand Dawns (11:09)
-04. Revelationview (9:28)(   Читать дальше...   )Жанр: Symphonic Progressive Metal, Progressive RockПродолжительность: 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A35F921FD4FAE12309D3A4338DD14AEFE235E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734313   (107121) от 03.07.2024
-
-Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107121.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Kembatinan Premaster
-A2 Pious Breath
-A3 Bloud And Souls
-A4 Melancholike(   Читать дальше...   )Жанр: Black Metal, ExperimentalПродолжительность: 00:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29ED58EA0DA8B7EA234A476CCF052BAFDACECC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

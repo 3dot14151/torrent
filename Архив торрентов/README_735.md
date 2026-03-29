@@ -6,7 +6,7 @@ Aktuell - RSS news reader 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886469.jpg" />
+  <img src="Z:/picture/005/save_picture_886469.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Polarr Photo Editor 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886466.jpg" />
+  <img src="Z:/picture/005/save_picture_886466.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ PDF Expert 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886463.jpg" />
+  <img src="Z:/picture/005/save_picture_886463.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ t_error 404 - Buddha 2.0 (2015) [MP3|~273 кб/с (V0)] <Progressive Trance, EBM
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886427.jpg" />
+  <img src="Z:/picture/005/save_picture_886427.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Letzte Ausfahrt Leben - Without Control (2016) [MP3|320 кб/с] <Industrial, Da
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886426.jpg" />
+  <img src="Z:/picture/005/save_picture_886426.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Adobe AIR 21.0.0.176 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886411.jpg" />
+  <img src="Z:/picture/005/save_picture_886411.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ KMSoffline 2.1.4 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886403.jpg" />
+  <img src="Z:/picture/005/save_picture_886403.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886397.jpg" />
+  <img src="Z:/picture/005/save_picture_886397.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886393.jpg" />
+  <img src="Z:/picture/005/save_picture_886393.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Maxthon Cloud Browser 4.9.2.300 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886367.jpg" />
+  <img src="Z:/picture/005/save_picture_886367.jpg" />
 </div>
 
 
@@ -286,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886351.jpg" />
+  <img src="Z:/picture/005/save_picture_886351.jpg" />
 </div>
 
 
@@ -312,7 +312,7 @@ t_error 404 - Buddha 2.0 (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886345.jpg" />
+  <img src="Z:/picture/005/save_picture_886345.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ WinUtilities Professional Edition 12.4 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886338.jpg" />
+  <img src="Z:/picture/005/save_picture_886338.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886326.jpg" />
+  <img src="Z:/picture/005/save_picture_886326.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886323.jpg" />
+  <img src="Z:/picture/005/save_picture_886323.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Solaris Phase - Limitless (2016) [MP3|320 кб/с] <Dark Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886320.jpg" />
+  <img src="Z:/picture/005/save_picture_886320.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ K-Lite Codec Pack Update 12.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886316.jpg" />
+  <img src="Z:/picture/005/save_picture_886316.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ QTranslate 5.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886313.jpg" />
+  <img src="Z:/picture/005/save_picture_886313.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ LibreOffice 5.1.1 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886209.jpg" />
+  <img src="Z:/picture/005/save_picture_886209.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Mozilla Firefox 45.0 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886187.jpg" />
+  <img src="Z:/picture/005/save_picture_886187.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ FractionsCalc+ / Калькулятор Дробей 1.1 (13.02.2015) <Ru, En>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886155.jpg" />
+  <img src="Z:/picture/005/save_picture_886155.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Display Driver Uninstaller 15.7.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886140.jpg" />
+  <img src="Z:/picture/005/save_picture_886140.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ CorelCAD 2016 (16.0.0.1100) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886129.jpg" />
+  <img src="Z:/picture/005/save_picture_886129.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ QuadCalc+ / Калькулятор Квадратных Уравнений 1.1 (
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886121.jpg" />
+  <img src="Z:/picture/005/save_picture_886121.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ SQLPro Studio 2021.78 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886105.jpg" />
+  <img src="Z:/picture/005/save_picture_886105.jpg" />
 </div>
 
 
@@ -692,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886102.jpg" />
+  <img src="Z:/picture/005/save_picture_886102.jpg" />
 </div>
 
 

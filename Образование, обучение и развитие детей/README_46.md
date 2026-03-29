@@ -1,3 +1,59 @@
+###  Публикация: 541108   (502109) от 30.08.2012
+
+В.Н. Дубровский , А.Т. Калинин | Математические головоломки [1990] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Головоломки относятся к познавательным играм. Занятия с ними учат логически мыслить, развивают пространственное воображение, тренируют память. Они счастливо соединяют в себе умственный труд и игру, учение и развлечение. Центральный вопрос, который рассматривается в книге: "Как научиться решать головоломки?". Показана связь логических игр, таких как кубик Рубика, с областями серьезной математики - комбинаторикой и алгеброй.
+Книга рассчитана на самый широкий круг читателей - взрослых и детей, родителей, педагогов, всех любителей игр и головоломок.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:131BD6375466AD28D0FF041CFC2B5666B51AF8B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380086   (501867) от 25.08.2011
+
+Е.В. Колесникова | Лицей для малышей 2-3 лет. Тесты для детей 3 лет (2004) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_501867.jpg" />
+</div>
+
+
+###  Подробнее
+
+У книги два основных значения:
+
+1. Оказать практическую помощь родителям и педагогам в обучении и развитии ребенка 2-3-х лет, предоставив им систему учебно-игровых заданий.
+(   Читать дальше...   )Жанр: Обучение, развитиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680AC9FAF20BEF620D64D949511595DE85DB70C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564229   (501668) от 17.07.2022
 
 А.М. Брагин | Знакомые незнакомцы (1992) [PDF]
@@ -6,7 +62,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501668.jpg" />
+  <img src="Z:/picture/008/save_picture_501668.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501081.jpg" />
+  <img src="Z:/picture/008/save_picture_501081.jpg" />
 </div>
 
 
@@ -60,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499540.jpg" />
+  <img src="Z:/picture/008/save_picture_499540.jpg" />
 </div>
 
 
@@ -87,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499273.jpg" />
+  <img src="Z:/picture/008/save_picture_499273.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499071.jpg" />
+  <img src="Z:/picture/008/save_picture_499071.jpg" />
 </div>
 
 
@@ -142,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498557.jpg" />
+  <img src="Z:/picture/008/save_picture_498557.jpg" />
 </div>
 
 
@@ -169,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497739.jpg" />
+  <img src="Z:/picture/008/save_picture_497739.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497499.jpg" />
+  <img src="Z:/picture/008/save_picture_497499.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497438.jpg" />
+  <img src="Z:/picture/008/save_picture_497438.jpg" />
 </div>
 
 
@@ -248,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497324.jpg" />
+  <img src="Z:/picture/008/save_picture_497324.jpg" />
 </div>
 
 
@@ -274,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496182.jpg" />
+  <img src="Z:/picture/008/save_picture_496182.jpg" />
 </div>
 
 
@@ -301,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496167.jpg" />
+  <img src="Z:/picture/008/save_picture_496167.jpg" />
 </div>
 
 
@@ -327,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496153.jpg" />
+  <img src="Z:/picture/008/save_picture_496153.jpg" />
 </div>
 
 
@@ -353,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496101.jpg" />
+  <img src="Z:/picture/008/save_picture_496101.jpg" />
 </div>
 
 
@@ -379,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495983.jpg" />
+  <img src="Z:/picture/008/save_picture_495983.jpg" />
 </div>
 
 
@@ -406,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495923.jpg" />
+  <img src="Z:/picture/008/save_picture_495923.jpg" />
 </div>
 
 
@@ -432,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495753.jpg" />
+  <img src="Z:/picture/008/save_picture_495753.jpg" />
 </div>
 
 
@@ -460,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495448.jpg" />
+  <img src="Z:/picture/008/save_picture_495448.jpg" />
 </div>
 
 
@@ -488,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494154.jpg" />
+  <img src="Z:/picture/008/save_picture_494154.jpg" />
 </div>
 
 
@@ -514,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494039.jpg" />
+  <img src="Z:/picture/008/save_picture_494039.jpg" />
 </div>
 
 
@@ -540,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493765.jpg" />
+  <img src="Z:/picture/008/save_picture_493765.jpg" />
 </div>
 
 
@@ -567,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493668.jpg" />
+  <img src="Z:/picture/008/save_picture_493668.jpg" />
 </div>
 
 
@@ -595,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493220.jpg" />
+  <img src="Z:/picture/008/save_picture_493220.jpg" />
 </div>
 
 
@@ -622,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492065.jpg" />
+  <img src="Z:/picture/008/save_picture_492065.jpg" />
 </div>
 
 
@@ -635,59 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37351D516DEB9CCFD09E4257154684D7FBC9A975
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937119   (490082) от 14.09.2015
-
-Константин Бобошко | Интересно знать (1963) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490082.jpg" />
-</div>
-
-
-###  Подробнее
-
-В форме живых, увлекательных миниатюр молодой прозаик К. Бобошко рассказывает в книге о занимательных эпизодах из истории открытий и исследований, а также о забавных и поучительных фактах действительности.
-Хотя сборник рассчитан на юного читателя, он вызывает интерес и у взрослых.Жанр: Познавательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E975CF383ECBE6BF052325B8B45CFC4F82EE68C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937397   (490073) от 14.09.2015
-
-Олег Волобуев и др. | Всеобщая история. XX – начало XXI века. 11 класс. Базовый уровень (2014) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490073.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике по всеобщей истории для старших классов (базовый уровень) на основе современных научных представлений освещены наиболее важные события политической, экономической и духовной жизни общества ХХ – начала XXI в. Методический аппарат учебника включает разнообразные вопросы и задания, иллюстрации, карты и документальные материалы, которые позволяют школьникам (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0E356A48FC595001D315B900530F006772EFE7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 588335   (815448) от 13.05.2020
+
+Michael  Vescera - Sign Of Things To Come (2008) [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_815448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Between Heaven And Hell [03:31]
+ 02. Sign Of Things To Come [04:11]
+ 03. Shine On [03:49]
+ 04. Something To Believe [04:13](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D2DF3B2BCF175249DCEC88D2672A09B19CB7561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504085   (814136) от 22.10.2021
+
+Hate - Rugia (2021) [FLAC|Lossless|image + .cue] <Blackened Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rugia
+02. The Wolf Queen
+03. Exiles Of Pantheon
+04. Saturnus(   Читать дальше...   )Жанр: Blackened Death MetalПродолжительность: 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA12328BA030DB94CB92C95B23FD6F4739F6F25E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504001   (814130) от 22.10.2021
+
+Dream Theater - A View From the Top of the World (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_814130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Alien (9:32)
+02. Answering the Call (7:35)
+03. Invisible Monster (6:31)
+04. Sleeping Giant (10:05)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194C6547BE70A338B2137A05E247015A0B352E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504051   (814124) от 22.10.2021
 
 Cradle Of Filth - Existence Is Futile (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
@@ -6,7 +93,7 @@ Cradle Of Filth - Existence Is Futile (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814124.jpg" />
+  <img src="Z:/picture/008/save_picture_814124.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ U.D.O. - Game Over (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814122.jpg" />
+  <img src="Z:/picture/008/save_picture_814122.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Manowar - The Triple Album Collection (2012) 3xCD, Boxed Set [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814005.jpg" />
+  <img src="Z:/picture/008/save_picture_814005.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Massacre - Resurgence (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812411.jpg" />
+  <img src="Z:/picture/008/save_picture_812411.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ U.D.O. - Game Over (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812206.jpg" />
+  <img src="Z:/picture/008/save_picture_812206.jpg" />
 </div>
 
 
@@ -152,7 +239,7 @@ Guerra Total - Mas Alla De La Tumba (2011) [FLAC|Lossless|image + .cue] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812138.jpg" />
+  <img src="Z:/picture/008/save_picture_812138.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ Wasted Heroes - Wasted Heroes (2016) [FLAC|Lossless|tracks] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812063.jpg" />
+  <img src="Z:/picture/008/save_picture_812063.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ Svartrit - I (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811940.jpg" />
+  <img src="Z:/picture/008/save_picture_811940.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Svartrit - II (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811939.jpg" />
+  <img src="Z:/picture/008/save_picture_811939.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Svartrit - III (2010) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811938.jpg" />
+  <img src="Z:/picture/008/save_picture_811938.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Sarkrista - The Acheronian Worship (2013) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811935.jpg" />
+  <img src="Z:/picture/008/save_picture_811935.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Nekrokrist SS - Nekrokrist SS (2009) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811934.jpg" />
+  <img src="Z:/picture/008/save_picture_811934.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Master's Hammer - Formulae (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811933.jpg" />
+  <img src="Z:/picture/008/save_picture_811933.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Sad - Utter Nihil Worship (2016) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811825.jpg" />
+  <img src="Z:/picture/008/save_picture_811825.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Sacrificium Carmen - Ikuisen tulen kammiossa (2015) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811824.jpg" />
+  <img src="Z:/picture/008/save_picture_811824.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Poltergeist - Back to Haunt (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811822.jpg" />
+  <img src="Z:/picture/008/save_picture_811822.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Ofard - Words From The Dead (2012) Reissued, 2013 [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811821.jpg" />
+  <img src="Z:/picture/008/save_picture_811821.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Helion Prime - Helion Prime (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811818.jpg" />
+  <img src="Z:/picture/008/save_picture_811818.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Molybaron - Molybaron (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy Prog, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811816.jpg" />
+  <img src="Z:/picture/008/save_picture_811816.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Stryper - Soldiers Under Command (1985) Japan [FLAC|Lossless|image + .cue] <Hair
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811809.jpg" />
+  <img src="Z:/picture/008/save_picture_811809.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Sanctuary - Inception (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811682.jpg" />
+  <img src="Z:/picture/008/save_picture_811682.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Stryper - Against The Law (1990) Japan [FLAC|Lossless|image + .cue] <Hair Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811677.jpg" />
+  <img src="Z:/picture/008/save_picture_811677.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811475.jpg" />
+  <img src="Z:/picture/008/save_picture_811475.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC23D136D7FD3588651A3A5A2E0EE563BE6885CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504311   (810477) от 24.10.2021
-
-Seven Sisters - Shadow of a Fallen Star, Pt. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda Rising (2:43)
-02. Beyond The Black Stars (3:56)
-03. The Artifice (4:53)
-04. Whispers In The Dark (4:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:087C7FD2E62DD6D3B0937D0EFAD6380765B259D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504482   (810476) от 24.10.2021
-
-Zornheym - The Zornheim Sleep Experiment (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corpus Vile
-02. An Evil Within
-03. Dead Silence
-04. Keep The Devil Away(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1465251BCB83B0DEBDDB41315BBD846F419522D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504266   (810474) от 24.10.2021
-
-Kaelis - Far Galaxy (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Salvation (04:23)
-02. Far Galaxy (04:23)
-03. Prophecy (04:37)
-04. Barren Land (05:54)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AC83B05902925F47BE1141C1FD4D67AA8958EC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

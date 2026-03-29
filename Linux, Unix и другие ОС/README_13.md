@@ -1,3 +1,55 @@
+###  Публикация: 906750   (643217) от 09.06.2015
+
+Debian GNU/Linux 8.1.0 Jessie [i386] 2xDLBD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_643217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вчера вышло обновление релиза Debian 8.0 до версии 8.1.0 под кодовым названием Jessie. Новый релиз содержит существенно больше программ - добавлено больше 12 000 пакетов. Всего в этом выпуске больше 43 500 пакетов. Большая часть пакетов, а именно - больше 24 500, обновлена (это примерно 66% от пакетной базы Wheezy). Еще 5441 пакет был удалён по разным причинам. Рабочее (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12F7F4650E69852853BF8B9EFC66D06EE7F67E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906670   (643095) от 09.06.2015
+
+Debian GNU/Linux 8.1.0 Jessie [amd64] 2xDLBD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_643095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня, несколько часов назад, вышло обновление релиза Debian 8.0 до версии 8.1.0 под кодовым названием Jessie. Новый релиз содержит существенно больше программ - добавлено больше 12 000 пакетов. Всего в этом выпуске больше 43 500 пакетов. Большая часть пакетов, а именно - больше 24 500, обновлена (это примерно 66% от пакетной базы Wheezy). Еще 5441 пакет был удалён (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1578B1A5773C4FC72A94C2462AA33B57D3F58530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142364   (642258) от 14.06.2017
 
 Parted Magic 2017.06.12 [i686/amd64] 1xCD
@@ -6,7 +58,7 @@ Parted Magic 2017.06.12 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642258.jpg" />
+  <img src="Z:/picture/008/save_picture_642258.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Linux Mint 17-v2 Qiana Mate [32bit, 64bit] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641755.jpg" />
+  <img src="Z:/picture/008/save_picture_641755.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ JonDo 0.9.81 [анонимный доступ в сети] [x86] DVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641614.jpg" />
+  <img src="Z:/picture/008/save_picture_641614.jpg" />
 </div>
 
 
@@ -90,7 +142,7 @@ OpenVMS 7.3 [VAX] 1xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641273.jpg" />
+  <img src="Z:/picture/008/save_picture_641273.jpg" />
 </div>
 
 
@@ -116,7 +168,7 @@ Commodore OS Vision 1.0 Beta 9 [amd64] (2xDVD)
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_640723.jpg" />
+  <img src="Z:/picture/005/save_picture_640723.jpg" />
 </div>
 
 
@@ -147,7 +199,7 @@ OpenBSD 6.3 [amd64, i386] 2xCD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640718.jpg" />
+  <img src="Z:/picture/008/save_picture_640718.jpg" />
 </div>
 
 
@@ -173,7 +225,7 @@ Kubuntu 14.10 Utopic Unicorn Alpha I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638278.jpg" />
+  <img src="Z:/picture/008/save_picture_638278.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ Ubuntu Gnome 14.10 Utopic Unicorn Alpha I [i386, amd64] 2xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638179.jpg" />
+  <img src="Z:/picture/008/save_picture_638179.jpg" />
 </div>
 
 
@@ -227,7 +279,7 @@ KaOS Linux 2015.06 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635287.jpg" />
+  <img src="Z:/picture/008/save_picture_635287.jpg" />
 </div>
 
 
@@ -255,7 +307,7 @@ Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633336.jpg" />
+  <img src="Z:/picture/008/save_picture_633336.jpg" />
 </div>
 
 
@@ -283,7 +335,7 @@ Debian GNU/Linux 9.0 + nonfree Stretch [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633012.jpg" />
+  <img src="Z:/picture/008/save_picture_633012.jpg" />
 </div>
 
 
@@ -309,7 +361,7 @@ Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих стол�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631881.jpg" />
+  <img src="Z:/picture/008/save_picture_631881.jpg" />
 </div>
 
 
@@ -335,7 +387,7 @@ Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих стол�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631413.jpg" />
+  <img src="Z:/picture/008/save_picture_631413.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ Tor Browser 4.5.2 [анонимный доступ в сети] [х86, x64] (bun
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629745.jpg" />
+  <img src="Z:/picture/008/save_picture_629745.jpg" />
 </div>
 
 
@@ -387,7 +439,7 @@ Tor Browser 5.0a2  (Alpha2)  [анонимный доступ в сети] [х86
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627505.jpg" />
+  <img src="Z:/picture/008/save_picture_627505.jpg" />
 </div>
 
 
@@ -413,7 +465,7 @@ OpenMandriva Lx 3.02 PLASMA [i586, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625357.jpg" />
+  <img src="Z:/picture/008/save_picture_625357.jpg" />
 </div>
 
 
@@ -439,7 +491,7 @@ Lubuntu 13.10 Saucy Alpha II (легкий дистрибутив) [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623952.jpg" />
+  <img src="Z:/picture/008/save_picture_623952.jpg" />
 </div>
 
 
@@ -467,7 +519,7 @@ Kubuntu 13.10 Saucy Alpha II [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623829.jpg" />
+  <img src="Z:/picture/008/save_picture_623829.jpg" />
 </div>
 
 
@@ -493,7 +545,7 @@ Antergos 17.6 [i586, x86_64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623393.jpg" />
+  <img src="Z:/picture/008/save_picture_623393.jpg" />
 </div>
 
 
@@ -519,7 +571,7 @@ Autodesk Maya 2017 Update 3 [x64] (rpm)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623056.jpg" />
+  <img src="Z:/picture/008/save_picture_623056.jpg" />
 </div>
 
 
@@ -546,7 +598,7 @@ Parted Magic 2016.07.12 [i686/amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622285.jpg" />
+  <img src="Z:/picture/008/save_picture_622285.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ Ubuntu Gnome 13.10 Saucy Alpha II [i386, amd64]
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621707.jpg" />
+  <img src="Z:/picture/008/save_picture_621707.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ Sabayon 17.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621537.jpg" />
+  <img src="Z:/picture/008/save_picture_621537.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ Bricsys BricsCAD Platinum 17 17.1.20 Build 47302 [x64] (.tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621238.jpg" />
+  <img src="Z:/picture/008/save_picture_621238.jpg" />
 </div>
 
 
@@ -637,58 +689,6 @@ BricsCAD – единственная в мире САПР, которая ис�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01AF0F6A306D47318AD82073DFD3E8FFA4EE72AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295011   (620083) от 12.04.2019
-
-OpenVPN Access Server 2.6.1 [En]
-
->>Linux, Unix и другие ОС
->>*Nix. Программы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620083.jpg" />
-</div>
-
-
-###  Подробнее
-
-OpenVPN Access Server (OpenVPN-AS) это набор инструментов для установки и настройки, которые упрощают быстрое развертывание VPN-сервера удаленного доступа. Он основывается на популярном программном обеспечении с открытым исходным кодом OpenVPN, позволяя работать с настроенным VPN-сервером при помощи кроссплатформенного клиентского ПО.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2B00F2A2710A0D5D7243C3D70340585B66B833
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910869   (619959) от 21.06.2015
-
-Mageia 5 Cauldron [i586] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619959.jpg" />
-</div>
-
-
-###  Подробнее
-
-После года разработки доступен релиз Linux-дистрибутива Mageia 5, в рамках которого независимым сообществом энтузиастов развивается форк проекта Mandriva. Для загрузки доступны 32- и 64-разрядные DVD-сборки (3 Гб), универсальная DVD-сборка (1 Гб), минималистичный образ для установки по сети (40 Мб) и набор Live-сборок на базе GNOME и KDE с различными наборами локализации. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21DEE83BCFB324BE4B11BB90D803747A876B57EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

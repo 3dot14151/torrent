@@ -1,3 +1,81 @@
+###  Публикация: 1005656   (832140) от 09.04.2016
+
+Statues (2015) [Ru/Multi] (1.0) License RELOADED
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас никогда не посещала мысль, что статуи, которых вы постоянно видите в своем городе, такие же живые, как и мы? Что их пустой взгляд хранит за собой частицу души скульптора, который в течение года или даже больше, аккуратно, кусок за куском выбивал из камня? Что за каменной грудью бьется каменное сердце, которое в каждый момент времени наполнено скорее всего не (   Читать дальше...   )Тип издания: LicenseРазработчик: Room710GamesЖанр: Adventure, Horror, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5701CE27EB1A07774AAEB5396F7BE7BAFB63A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005702   (832066) от 09.04.2016
+
+Mind: Path to Thalamus (2015) [Ru/Multi] (1.0/upd1) License SKIDROW [Enhanced Edition]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mind: Path to Thalamus – головоломка с видом от первого лица, действия которой развиваются в фантастическом сюрреалистическом мире. Для продвижения уровнями нужно буквально подчинять своей воле окружающую среду. Все это возможно благодаря тому, что протагонист путешествует по миру, созданному им самим в своем разуме, а локации во многом зависят от текущего эмоционального (   Читать дальше...   )Тип издания: LicenseРазработчик: Carlos Coronado, Dani Navarro, Luka NietoЖанр: Logic (Puzzle), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123CF9020B77A57BCEC93BCC9401F1F0E8CABDD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501974   (831647) от 12.10.2021
+
+Monster Crown (2021) [Ru/Multi] (1.0.2) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погрузитесь в мрачный мир монстров. Заключите с ними союз, чтобы свергнуть злодейку, жаждущую власти. Охотьтесь, сражайтесь, а также укрощайте и скрещивайте монстров, чтобы оставить след в истории мира. Вместе с монстрами восстановите равновесие на Crown Island. Раскройте мрачную историю Crown Island, создавая собственную легенду. В прошлом островом повелевали жестокие (   Читать дальше...   )Тип издания: LicenseРазработчик: Studio AurumЖанр: jRPG, AdventureЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3E5DE74A6A5E55FF76D4254934C4A838D602A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380705   (830851) от 04.05.2020
 
 The Walking Evil (2020) [Ru/Multi] (1.2) License CODEX
@@ -6,7 +84,7 @@ The Walking Evil (2020) [Ru/Multi] (1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830851.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Bunker - The Underground Game (2015) [Ru/De] (22.5) Repack ARMENIAC
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_830191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_830191.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Revenants [Ep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827602.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack xata
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825817.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Waking the Glares - Chapters I and II (2017) [En/It] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825811.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Marvel’s Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825520.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Mind Scanners (2021) [Ru/Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824316.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Icon Of Hell (2016) [Ru/En] (0.99) Lisence
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822830.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Eliza (2019) [Ru/Multi] (08.31.2020) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822690.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Death Gate (1994) [En/Ge] (1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820420.jpg" />
+  <img src="Z:/picture/008/save_picture_820420.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru/En] (1.01) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820139.jpg" />
+  <img src="Z:/picture/008/save_picture_820139.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ The Alien Cube (2021) [Ru/Multi] (1.0) License DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818913.jpg" />
+  <img src="Z:/picture/008/save_picture_818913.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Curse of monkey Island  / Проклятие острова обезьян [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818611.jpg" />
+  <img src="Z:/picture/008/save_picture_818611.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ Alone in the Dark 2 (1993) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818552.jpg" />
+  <img src="Z:/picture/008/save_picture_818552.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Alone in the Dark (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818467.jpg" />
+  <img src="Z:/picture/008/save_picture_818467.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Alone in the Dark 3 (1995) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818457.jpg" />
+  <img src="Z:/picture/008/save_picture_818457.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ White Night (2015) [Ru/En] (1.0) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818369.jpg" />
+  <img src="Z:/picture/008/save_picture_818369.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Impostor Factory (2021) [Ru/Multi] (1.0) License GOG [The Screw-It-Just-Gimme-Ev
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817490.jpg" />
+  <img src="Z:/picture/008/save_picture_817490.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Game of Thrones - A Telltale Games Series (2014) [En] (1.0.0.1) Unofficial Fairl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816429.jpg" />
+  <img src="Z:/picture/008/save_picture_816429.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Escape from Monkey Island (2000) [Ru/En] (1.0) Unofficial
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815561.jpg" />
+  <img src="Z:/picture/008/save_picture_815561.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Poppy Playtime (2021) [Multi] (7543327) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813347.jpg" />
+  <img src="Z:/picture/008/save_picture_813347.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Outpost 13 (2015) [Ru/Multi] (1.0) Repack MasterDarkness
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812961.jpg" />
+  <img src="Z:/picture/008/save_picture_812961.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Goetia (2016) [En/Fr] (1.1) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812945.jpg" />
+  <img src="Z:/picture/008/save_picture_812945.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Goetia - это приключенческая игра, действие кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA309CB07C55A4404E2B036961794A93424F225E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118359   (812629) от 25.03.2017
-
-Nancy Drew: The Deadly Device / Нэнси Дрю: Смертоносное устройство (2012) [Ru] (1.0) Unofficial InMad
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812629.jpg" />
-</div>
-
-
-###  Подробнее
-
-После загадочной смерти физика, некогда спокойную уединенную лабораторию окутал страх. Полицейское расследование среди холодных стальных стен сверхсекретной лаборатории зашло в тупик, уткнувшись в безразличие ученых, продолжающих исследования Теслы. В 27 части серии Нэнси Дрю предстоит расследовать убийство учёного, совершившего научное открытие и собиравшегося поведать (   Читать дальше...   )Тип издания: UnofficialРазработчик: Her InteractiveЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B238F070AB1BDB22A83783B74BE1AAE9998632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118524   (812558) от 25.03.2017
-
-The Witness (2016) [Ru/Multi] (964-Ansel(A)) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы просыпаетесь в полном одиночестве на острове, полном загадок, которые удивят вас и бросят вызов смекалке и воображению. Вы не помните ни своего имени, ни того, как вы тут очутились. Остается одно: как следует изучить окрестности в поисках улик и подсказок, которые помогут вспомнить прошлое и вернуться домой. The Witness – однопользовательская игра в открытом мире (   Читать дальше...   )Тип издания: LicenseРазработчик: Number NoneЖанр: Приключение, Головоломка, Open WorldЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD0E3DBDE2700DB4823B556202DAAB3402A28A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091978   (812544) от 25.03.2017
-
-Samorost 3 (2016) [Ru/Multi] (1.4.465) License GOG [Cosmic Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Samorost 3 - приключенческая исследовательская игра-головоломка от создателей известных игр Machinarium и Botanicula. Это самый амбициозный проект Amanita Design на сегодняшний день на основе популярных инди-игр Samorost и Samorost 2. Samorost 3 следует вслед за любопытным космическим гномом, путешествующим по космосу с помощью волшебной флейты и стремящимся добраться (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: Adventure (Puzzle)Язык озвучки: СимплишЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A70134102873CDD2C5B8897502A1A589742F84D
 ```
 
 https://mybot314.ru/tekegram_catalog/

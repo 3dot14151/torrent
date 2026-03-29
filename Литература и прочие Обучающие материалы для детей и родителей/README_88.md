@@ -1,3 +1,135 @@
+###  Публикация: 1096837   (917257) от 25.01.2017
+
+Детская литература | Русские народные сказки (1971) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Особенности русских народных сказок.
+Сказки на Руси известны с древних времен. В древней письменности есть сюжеты, мотивы и образы, напоминающие сказочные. Рассказывание сказок – старый русский обычай. Еще в давние времена исполнение сказок было доступно каждому: и мужчинам, и женщинам, и детям, и взрослым. Были такие люди, которые берегли и развивали свое сказочное (   Читать дальше...   )Жанр: Детская проза, СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D7C44208C474D032E2908D4FFF34C732D63AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367482   (917148) от 15.03.2020
+
+Ханс Кристиан Андерсен | Сказки. Истории (2018) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917148.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли сказки и истории великого датского писателя Х. К. Андерсена, принесшие ему мировую славу.Жанр: Зарубежная литература для детей, Сказки народов мираФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70E32688D7ADABDB89AE37CDDAA45C084DD0C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989495   (916983) от 22.02.2016
+
+В.В Богданов, С.Н. Попова | Истории обыкновенных вещей (1992) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга в увлекательной форме рассказывает обо всех тех вещах, которые стали неотъемлемой частью нашей повседневной жизни. Десятки, сотни вещей вокруг. Одни сопровождают нас всю жизнь, другие — только ее маленький отрезок. Многие вещи настолько сживаются с нами, что по ним можно определить наши привычки. Цель книги — расширить представление детей об окружающем мире, (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A8FC17383556FA60D4CF5E6EFA843054049343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490635   (916970) от 21.08.2021
+
+Е. Комиссарова (отв.ред.) | Игрополис. Самые знаменитые игры для веселой компании (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Настольные игры и Поделки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собираешься в путешествие с друзьями? Устраиваешь большую вечеринку? Или просто ждешь гостей? Захвати с собой эту книгу! В ней собраны самые знаменитые игры для веселой компании. Это настоящая классика жанра. Тебя ждут самые убойные фанты, оригинальные задания для игры «Правда или вызов», таинственные загадки-данетки и многое другое! Хорошее настроение гарантировано!Жанр: Игры/ГоловоломкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DB2720A263D4D17DD1BD3D5075DA0F7CB526388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989654   (915911) от 23.02.2016
+
+Семен Григорьев | Этиккан и Селиме (1962) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник сказок.
+Для детей дошкольного и младшего школьного возраста.Жанр: СказкаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC89F989109DCC78FC3075C56ECCE5E34DD83371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989657   (915907) от 23.02.2016
 
 М. Иоффе и др. (сост.) | Люди огненного фронта (1959) [DJVU]
@@ -6,7 +138,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915907.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915754.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915739.jpg" />
 </div>
 
 
@@ -85,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915684.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915629.jpg" />
 </div>
 
 
@@ -137,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915539.jpg" />
 </div>
 
 
@@ -166,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915535.jpg" />
 </div>
 
 
@@ -192,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915531.jpg" />
 </div>
 
 
@@ -220,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915519.jpg" />
 </div>
 
 
@@ -248,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_915500.jpg" />
+  <img src="Z:/picture/008/save_picture_915500.jpg" />
 </div>
 
 
@@ -274,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915482.jpg" />
 </div>
 
 
@@ -300,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915411.jpg" />
 </div>
 
 
@@ -326,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915379.jpg" />
 </div>
 
 
@@ -353,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915369.jpg" />
 </div>
 
 
@@ -382,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915368.jpg" />
 </div>
 
 
@@ -409,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915257.jpg" />
 </div>
 
 
@@ -436,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915214.jpg" />
 </div>
 
 
@@ -463,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915097.jpg" />
 </div>
 
 
@@ -489,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915070.jpg" />
 </div>
 
 
@@ -515,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914700.jpg" />
 </div>
 
 
@@ -541,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914455.jpg" />
 </div>
 
 
@@ -554,137 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D026FBEBB1CFE975935527493D646D287248C8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522878   (914407) от 01.02.2015
-
-Н.С. Жукова | Прописи для детей 6-7 лет. Части 1,2,3 (2011) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы уже научили своего ребёнка читать или ещё учите и правильно писать. В основе нашего обучения письму лежит слоговой принцип графики. Слог выступает в качестве единицы письма, в которой написание и чтений гласной и согласной взаимообусловлено и представляет собой цельный графический элемент.
-Прописи имеют сугубо практический характер и являются приложением к букварю (   Читать дальше...   )Жанр: Рабочие тетрадиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA001CBB475119F7DC8DA3D7B3CFD2A31BF79E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097396   (914287) от 27.01.2017
-
-Виктор Кротов | Волшебный возок. Большая сказочная повесть (2016) [PDF, FB2, EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для детей в возрасте 4—15 лет. Вместе с мальчиком Вагиком ребёнок отправляется в путешествие за волшебным Возком, сталкиваясь с множеством удивительных приключений и персонажей — как снаружи, так и внутри Возка. Возок внутри оказывается безграничным миром, населённым существами, в которых ребёнок постепенно начинает узнавать свои собственные внутренние переживания, (   Читать дальше...   )Жанр: Сказочная повестьФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3A494DC073145C86F0546E46E1906378D19F22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 758382   (914095) от 18.02.2014
-
-С. Михалков | Избранные басни (1953) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914095.jpg" />
-</div>
-
-
-###  Подробнее
-
-Избранные басни С. Михалкова, иллюстрированные известными советскими художниками: А. Герасимовым, Б. Ефимовым, И. Семеновым, А Каневским, Е. Рачевым, Кукрыниксами и другими.Жанр: ПоэзияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3978E4EDF8FC06C3CCD325459DE6A1B79F5856D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491142   (914025) от 23.08.2021
-
-Майрон Ла Бэн, Барбара Тростлер, Элизабет Ла Бэн | Ваши внуки. Как стать настоящими друзьями (2014) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – настоящая сокровищница советов и полезных рекомендаций для бабушек и дедушек. Как помочь детям с воспитанием младшего поколения и при этом не быть навязчивыми? Как весело провести время с внуками и при этом научить их чему-то полезному? Здесь собраны самые разнообразные идеи игр и занятий с внуками, помогающих сделать каждую вашу встречу незабываемой (   Читать дальше...   )Жанр: Воспитание детей/Литература для родителейПеревод: Мария КульневаФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82DF419B2940405CF6F12D3B5C0C28C7A4E0D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367812   (914000) от 17.03.2020
-
-Журнал | Frost №2 (февраль 2020) [PDF] [SWE]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский журнал состоит из комиксов, загадок, раскрасок и многое другое.Жанр: Развивающий журнал для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7A0CE7A942B8320B7B04E8A61550C2E6A12D76
 ```
 
 https://mybot314.ru/tekegram_catalog/

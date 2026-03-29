@@ -1,3 +1,119 @@
+###  Публикация: 1743337   (105387) от 16.08.2024
+
+Frank Sinatra - Sinatra Session (1999) 2CD, Castle Pie [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nancy (With The Laughting Face) [3:25]
+02. That Old Black Magic [2:35]
+03. You'll Never Know [3:04]
+04. The Things We Did Last Summer [3:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7457B1877B04E3187FCB5A3BD6B5DBCC240E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743656   (105365) от 17.08.2024
+
+Bill Barron - Quintet & Sextet (1961 - 1962) 2CD, 2012, Fresh Sound [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noodlin' [5:53]
+02. Duality [6:59]
+03. Self Portrait [4:32]
+04. Persian Street Scene [4:08](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C024EEC97F62FA793AF705A0C5B6839C6A3495F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743824   (105319) от 18.08.2024
+
+Claus Ogerman - Featuring Michael Brecker (1991) GRP [APE|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corfu [7:56]
+02. Lyricosmos [8:50]
+03. After the Fight [10:40]
+04. Adonia [8:34](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A2E8496C463E6E418331CC4715A9BB51C85C1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744044   (105311) от 19.08.2024
+
+Charlie Mariano - Boston All Stars (1951 - 1953) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boston Uncommon (master A) [2:10]
+02. Boston Uncommon (master B) [2:09]
+03. The Wizard (master A) [2:35]
+04. The Wizard (master B) [2:32](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDAB052A538CF9BB1EE1FFF203B3DB259BF693DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745114   (105157) от 24.08.2024
 
 Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Madeleine Peyroux - Let's Walk (2024) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105157.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Chet Baker - Chet's Choice (1985) Criss Cross [APE|Lossless|image + .cue] <Cool>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105030.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Joe Pass - Whitestone (1985) 1987, Pablo [APE|Lossless|image + .cue] <Jazz Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105011.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Conte Candoli - Powerhouse Trumpet (1955) 1999, Bethlehem [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104973.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Kenny Drew & Hank Jones Great Jazz Trio - New York Stories (1990) Alfa Jazz [Wav
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104970.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ V.A. - Italian Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Pop Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104964.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Stan Getz - Scandinavian Days (1959) 1991, Fresh Sound [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104929.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Conte Candoli & Lee Morgan - Double or Nothin' (1957) 1992, Fresh Sound [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104892.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Loose Ends - Look How Long (1990) [FLAC|Lossless|tracks + .cue] <Contemporary R&
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104802.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Stan Getz - In Stockholm (1955) 2008, Verve [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104800.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Stan Getz - Blue Skies (1982) 1995, Concord Jazz [FLAC|Lossless|image + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104797.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Stan Getz - The Lyrical Stan Getz (1988) CBS [FLAC|Lossless|image + .cue] <Cool,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104751.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Al Cohn & Zoot Sims - Body And Soul (1973) 1997, 32 Jazz [WavPack|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104737.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Frank Wess - Wess Point (1954) 2007, Fresh Sound [FLAC|Lossless|image + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104701.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Bob Brookmeyer & Bill Evans - The Ivory Hunters (1959) 2003, Toshiba-EMI [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104617.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Richard Elliot - Straight Up Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104605.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Acid Jazz Instrumentals Vol. 2 (Jazz Funk Breaks Instrumental Tunes) (2024)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104602.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Peaceful Supreme Chill Lounge Happiness Playlist on Vacation (2024) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104600.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Scott Hamilton - Jazz Signatures (2001) Concord [FLAC|Lossless|image + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104590.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ VA - Enriching Peaceful Supreme Happiness Smooth Experience Playlist During Vaca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104588.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Lowell Hopper - Impulse (2024) [FLAC|Lossless|WEB-DL|tracks] <Smoonth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104587.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ VA - Magical Breathtaking Relaxing Tunes for Calmness and Quiet Beauty of a Vaca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104586.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ VA - Magical Breathtaking Relaxing Tunes for Calmness and Quiet Beauty of a Vaca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D88000A558E83492508AD6FC58ACF19ACF9F9C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748119   (104579) от 08.09.2024
-
-VA - Divine Seductive Easy Listening Relaxation Chill Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Sunset Silhouettes (4:20)
-02. Chillaxonic - Morningstar (3:37)
-03. Konstantin Klashtorni - Let's Chill (5:29)
-04. Kool&Klean - Corals & Reefs (4:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E572FFEF045F1B4F2739B0F6ECCC2086E0FF5D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748118   (104578) от 08.09.2024
-
-VA - Aperitivo Acid Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulstance - Spiritual Session (5:24)
-02. Gazzara - Just Some Philly Sound (5:57)
-03. Bebo Best - The Breaks (Top 10 Inc. 80 Mix) (3:14)
-04. Bossa Nostra - The Message From A Soul Sister (5:30)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EABE925255A2C1E86AC49B400FE25017B1F1CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748124   (104577) от 08.09.2024
-
-VA - Magical Chilly Relaxing Tunes for Calm and Quiet Vacation Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Kissed by the Sun (4:11)
-02. Chillaxing Jazz Kollektion - Midsummer Dreamin' (4:19)
-03. Chillaxonic - Aurora (5:13)
-04. eJazz Artistry - Always Be My Baby (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 02:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615FE35915D39D97E68B4617C316FFEAF787E421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748128   (104576) от 08.09.2024
-
-VA - Seductive Divine Easy Listening Relaxation Chilly Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - Chasing Rainbows (4:45)
-02. Chillaxing Jazz Kollektion - On the Ocean Shore (3:59)
-03. Konstantin Klashtorni - Stylish Walk (4:44)
-04. eJazz Artistry - No Rhyme, No Reason (3:48)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570C906A29FA8C99AC0B94AD4E4CDDDA3E56EBE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

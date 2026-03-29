@@ -1,3 +1,81 @@
+###  Публикация: 1072091   (500269) от 18.07.2022
+
+Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Народ, который позднее стали называть атлантами, получил в дар космическую Силу, заключенную в мерцающем кубе. Благодаря этой Силе цивилизация Атлантиды стала стремительно развиваться. На острове Шпицберген будущие атланты разделили силу Куба на две части - Темную и Светлую. Произошел раскол народа на два лагеря, и началась война.Тип издания: LicenseРазработчик: Cryo InteractiveЖанр: AdventureЯзык озвучки: Английский, Немецкий, Испанский, ФранцузскийЯзык субтитров: Английский, Немецкий, Испанский, ФранцузскийЯзык интерфейса: Английский, Немецкий, Испанский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30FD0AE135C1AC890C864293854958FB67B06CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564216   (500259) от 18.07.2022
+
+MADiSON (2022) [Ru/Multi] (1.1.0/dlc) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500259.jpg" />
+</div>
+
+
+###  Подробнее
+
+MADiSON — это психологический хоррор от первого лица с напряженным геймплеем и ужасающей, но захватывающей историей. Погрузитесь в захватывающую и леденящую атмосферу MADiSON. Соедините мир живых с потусторонним миром с помощью фотоаппарата мгновенной печати. Делайте снимки и проявляйте их. Решайте головоломки, исследуйте огромный жуткий дом, но самое главное — выживите.Тип издания: RepackРазработчик: BLOODIOUS GAMESЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E171CE7767B09E840F59AF4635684AA0514156
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935431   (498952) от 08.09.2015
+
+Syberia 2 / Сибирь 2 (2004) [Ru/Multi] (1.0.0.10) Repack Cheshire28
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498952.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Syberia 2» — продолжение знаменитого квеста «Syberia», созданного в стилистике стимпанка французским автором Бенуа Сокалем. Игра профинансирована и издана компанией Microids. Кейт Уолкер, молодая симпатичная сотрудница одной из юридических контор Нью-Йорка, получила от своего шефа ясное и чёткое задание: девушка должна оформить договор купли-продажи небольшой фабрики, (   Читать дальше...   )Тип издания: RepackРазработчик: MicroidsЖанр: AdventureЯзык озвучки: Русский, Английский, Французский, Немецкий, Испанский, Итальянский, Польский, ЧешскийЯзык субтитров: Русский, Английский, Французский, Немецкий, Испанский, Итальянский, Польский, ЧешскийЯзык интерфейса: Русский, Английский, Французский, Немецкий, Испанский, Итальянский, Польский, Чешский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD75BB56A386D325549B797B9198F0E8F979914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317880   (498428) от 03.08.2019
 
 7th Sector (2019) [Ru/Multi] (1.0.4/dlc) License PLAZA
@@ -6,7 +84,7 @@
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498428.jpg" />
+  <img src="Z:/picture/008/save_picture_498428.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496183.jpg" />
+  <img src="Z:/picture/008/save_picture_496183.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Wind Peaks (2020) [Ru/Multi] (2019.3.15.65342) Repack DeMax-95
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494714.jpg" />
+  <img src="Z:/picture/008/save_picture_494714.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Obduction (2016) [Ru/Multi] (1.8.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494385.jpg" />
+  <img src="Z:/picture/008/save_picture_494385.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Endling - Extinction is Forever (2022) [Ru/Multi] (0.16.25) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494306.jpg" />
+  <img src="Z:/picture/008/save_picture_494306.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Event[0] (2016) [En] (1.0/u1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493498.jpg" />
+  <img src="Z:/picture/008/save_picture_493498.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ CYPHER: Cyberpunk Text Adventure [En] (Lossless Repack/1.0) 2012 | SHARINGAN
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492697.jpg" />
+  <img src="Z:/picture/008/save_picture_492697.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ Silver Chains (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492285.jpg" />
+  <img src="Z:/picture/008/save_picture_492285.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ The Trail: Frontier Challenge (2017) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491270.jpg" />
+  <img src="Z:/picture/008/save_picture_491270.jpg" />
 </div>
 
 
@@ -245,7 +323,7 @@ Raji: An Ancient Epic (2020) [Ru/Multi] (1.6.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490014.jpg" />
+  <img src="Z:/picture/008/save_picture_490014.jpg" />
 </div>
 
 
@@ -271,7 +349,7 @@ Ken Follett's The Pillars of the Earth (2017) [Ru/Multi] (1.0.536) Repack Covfef
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489427.jpg" />
+  <img src="Z:/picture/008/save_picture_489427.jpg" />
 </div>
 
 
@@ -297,7 +375,7 @@ The Long Dark (2017) [Ru/Multi] (1.10) SteamRip R.G. Игроманы [Episode 1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489424.jpg" />
+  <img src="Z:/picture/008/save_picture_489424.jpg" />
 </div>
 
 
@@ -323,7 +401,7 @@ The Vanishing of Ethan Carter Redux (2014) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489278.jpg" />
+  <img src="Z:/picture/008/save_picture_489278.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ Ever Forward (2020) [Ru/Multi] (0.1.5/dlc) License GOG [Special Launch Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488972.jpg" />
+  <img src="Z:/picture/008/save_picture_488972.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ Virginia (2016) [Ru/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487695.jpg" />
+  <img src="Z:/picture/008/save_picture_487695.jpg" />
 </div>
 
 
@@ -403,7 +481,7 @@ Virginia (2016) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487692.jpg" />
+  <img src="Z:/picture/008/save_picture_487692.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9V) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486020.jpg" />
+  <img src="Z:/picture/008/save_picture_486020.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ In Fear I Trust (2016) [Ru/Multi] (1.0) Repack Other s [Episodes 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485063.jpg" />
+  <img src="Z:/picture/008/save_picture_485063.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ Deponia (2012) [Ru/Multi] (4.0.1386/dlc) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484466.jpg" />
+  <img src="Z:/picture/008/save_picture_484466.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ Apsulov: End of Gods (2019) [Ru/Multi] (1.0.4) License HOODLUM
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484456.jpg" />
+  <img src="Z:/picture/008/save_picture_484456.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ Black Mirror / Черное зеркало Трилогия [Ru] (Repack) 2003-2
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484223.jpg" />
+  <img src="Z:/picture/008/save_picture_484223.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ Real Myst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483656.jpg" />
+  <img src="Z:/picture/008/save_picture_483656.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ Nightmares from the Deep The Cursed Heart (2012) [Ru/Multi] (Build_7278.286428) 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483501.jpg" />
+  <img src="Z:/picture/008/save_picture_483501.jpg" />
 </div>
 
 
@@ -601,85 +679,6 @@ Nightmares from the Deep The Cursed Heart (2012) [Ru/Multi] (Build_7278.286428) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C78293DCD9B48435E692D93961A12073CFE35F32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055936   (483297) от 24.09.2016
-
-Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в сказочном мире снов, который населяют милые и добрые существа - дримы. Как всегда бывает, в стаде таки оказывается одна паршивая овца: среди добрых дримов появляется злой по имени Дайдрим.Тип издания: LicenseРазработчик: Avalon Style EntertainmentЖанр: AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132D085745FE8F4D36121A1E4EAAE7130A59B690
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056026   (483100) от 24.09.2016
-
-Vernon’s Legacy (2016) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vernon's Legacy - приключенческий хоррор с увлекательным сюжетом и элементами выживания. Действие разворачивается почти столетие назад. Два дня с момента смерти вашего дяди. Прибыв на место, вы узнаете, что усадьба брошена. Почему же дворецкий Алоис не встречает вас?
-Тут что-то не так.Тип издания: LicenseРазработчик: TripleBrickЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCEC8B15C5F3B26E42691CC66E89BBBCA347FFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056179   (482965) от 24.09.2016
-
-Pavilion (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pavilion — это адвенчура с элементами пазла, разработанная Visiontrick Media и выполненная с видом от четвертого лица. Игра сразу же бросает вас в таинственный мир без каких-либо объяснений и вступлений. Это настоящая головоломка, полагаться в которой следует лишь на собственное визуальное и слуховое воображение. Наблюдая за окружающим миром и взаимодействуя с ним, (   Читать дальше...   )Тип издания: RepackРазработчик: Visiontrick MediaЖанр: Adventure, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4861BE86673E0E6606B4F293A5626CD26FF20BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

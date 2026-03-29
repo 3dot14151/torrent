@@ -1,3 +1,32 @@
+###  Публикация: 924587   (557616) от 04.08.2015
+
+Tow Truck Tom And The Roadside Wrecks - Sophomore Slump (2001) [MP3|320 кб/с]<Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_557616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legacy
+02. Dawn Breaks
+03. Middle Of Nowhere
+04. Turn Towards Tomorrow(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940E7C076F99FCA7F944F8464B39645025D656F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153791   (556870) от 28.07.2017
 
 The Isley Brothers & Santana - Power Of Peace (2017) [MP3|320 Kbps] <Soul, Funk, Blues Rock>
@@ -6,7 +35,7 @@ The Isley Brothers & Santana - Power Of Peace (2017) [MP3|320 Kbps] <Soul, Funk,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556870.jpg" />
+  <img src="Z:/picture/008/save_picture_556870.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Axcraft - Dancing Madly Backwards (1974) Reissue, 1999, Akarma [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556613.jpg" />
+  <img src="Z:/picture/008/save_picture_556613.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ The Running Man - The Running Man (1972) Reissue, 2000, Akarma [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556609.jpg" />
+  <img src="Z:/picture/008/save_picture_556609.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Real Gone Tones - Backseat Bingo (2018) [MP3|320 Kbps] <Rockabilly, Rock&Rol
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556279.jpg" />
+  <img src="Z:/picture/008/save_picture_556279.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Chrome - Addictions (2019) [MP3|320 kbps] <Progressive Rock, Female Vocal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555834.jpg" />
+  <img src="Z:/picture/008/save_picture_555834.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Dead Deads - The Dead Shall Dance: Live (2018) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555831.jpg" />
+  <img src="Z:/picture/008/save_picture_555831.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Mono Inc. - Symphonic: Live (2019) 2CD [MP3|320 kbps] <Gothic Rock, Alternative 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555673.jpg" />
+  <img src="Z:/picture/008/save_picture_555673.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Hawkmen - The Hawkmen (2019) [MP3|320 Kbps] <Rhythm & Blues, Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555570.jpg" />
+  <img src="Z:/picture/008/save_picture_555570.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Santana - Africa Speaks (2019) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555450.jpg" />
+  <img src="Z:/picture/008/save_picture_555450.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Santana - The Best Instrumentals (1997) [MP3|320 Kbps] <Blues-Rock, Latin Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554712.jpg" />
+  <img src="Z:/picture/008/save_picture_554712.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ John Morgan - Kaleidoscope (1971) Reissue, 2013, Prog Temple [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554500.jpg" />
+  <img src="Z:/picture/008/save_picture_554500.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ The Hicksville Bombers - Danger Road (2018) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554496.jpg" />
+  <img src="Z:/picture/008/save_picture_554496.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Pepita Slappers - Rocket To The Moon (2018) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554048.jpg" />
+  <img src="Z:/picture/008/save_picture_554048.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Chariot - Chariot (1971) Reissue, 2007, Radioactive [MP3|320 Kbps] <Rock, Blues 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553055.jpg" />
+  <img src="Z:/picture/008/save_picture_553055.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Bighorn - Bighorn (1978) Reissue, 1999, SME Records [MP3|320 Kbps] <Classic Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552462.jpg" />
+  <img src="Z:/picture/008/save_picture_552462.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Grootna - Grootna (1971) Reissue, Unofficial [MP3|320 Kbps] <Psychedelic Rock, B
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552460.jpg" />
+  <img src="Z:/picture/008/save_picture_552460.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ BrainStorm - Контакты (2018) EP [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552345.jpg" />
+  <img src="Z:/picture/008/save_picture_552345.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ King Company - One for the Road (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551937.jpg" />
+  <img src="Z:/picture/008/save_picture_551937.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Duffy - Just In Case You're Interested... (1972) Reissue, 2010, Flawed Gems [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551936.jpg" />
+  <img src="Z:/picture/008/save_picture_551936.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Ultimate Rock: The Classics (2019) 5CD [MP3|320 Kbps] <Rock, Hard Rock, Cla
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551832.jpg" />
+  <img src="Z:/picture/008/save_picture_551832.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Glass Animals - How to be a Human Being (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551734.jpg" />
+  <img src="Z:/picture/008/save_picture_551734.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Motanka - Motanka (2019) [MP3|320 Kbps] <Ethno Folk Rock, Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551052.jpg" />
+  <img src="Z:/picture/008/save_picture_551052.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Grave Pleasures - Dreamcrash (2015) [MP3|320 Kbps] <Post-punk, gothic rock, deat
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551021.jpg" />
+  <img src="Z:/picture/008/save_picture_551021.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Freddie Mercury - Time Waits For No One (2019) Single [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548567.jpg" />
+  <img src="Z:/picture/008/save_picture_548567.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ VA - Rock Road Trip: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Al
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547027.jpg" />
+  <img src="Z:/picture/008/save_picture_547027.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D044F1374B8E1EF47B03C735A833EB8EFE1BA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048435   (546530) от 02.09.2016
-
-Anthony Green - Pixie Queen (2016) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll Be Fine (4:38)
-02. I'm Not Holding You Back (3:48)
-03. Will It Be (2:08)
-04. A Reason to Stay (3:29)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A620DF63E24CB5EC5FD61D2F72217B33CFAC2392
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1330688   (338543) от 11.10.2019
+
+Московские тайны. Проклятие мастера (2019) SATRip [H.264] (фильм 5,серии 1-2 из 2)
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338543.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Москве, на Патриарших прудах, снимается экранизация романа «Мастер и Маргарита». Прямо во время съемки погибает артист, играющий роль Воланда, и Настю Вяземскую привлекают к расследованию этой странной смерти. Есть подозрение, что некто решил таким чудовищным способом сорвать проект: либо конкуренты продюсера, либо жители Патриарших, чей покой нарушило появление (   Читать дальше...   )Производство: Россия / Приор ПродакшнЖанр: детективРежиссер: Артем НасыбулинАктеры: Александра Богданова, Евгений Пронин, Иван Жвакин, Екатерина Семенова, Владислав Ветров, Александр Робак, Алексей Лонгин, Алексей Тахаров и др.Продолжительность: ~00:44:08 +00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2AB247AF0C1FC9261564B957C52AC9BF6F3E6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330627   (338507) от 11.10.2019
 
 Команда мечты (2019) WEB-DLRip
@@ -6,7 +32,7 @@
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338507.jpg" />
+  <img src="Z:/picture/008/save_picture_338507.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337985.jpg" />
+  <img src="Z:/picture/008/save_picture_337985.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337139.jpg" />
+  <img src="Z:/picture/008/save_picture_337139.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336887.jpg" />
+  <img src="Z:/picture/008/save_picture_336887.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336877.jpg" />
+  <img src="Z:/picture/008/save_picture_336877.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336547.jpg" />
+  <img src="Z:/picture/008/save_picture_336547.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336264.jpg" />
+  <img src="Z:/picture/008/save_picture_336264.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335253.jpg" />
+  <img src="Z:/picture/008/save_picture_335253.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334739.jpg" />
+  <img src="Z:/picture/008/save_picture_334739.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334663.jpg" />
+  <img src="Z:/picture/008/save_picture_334663.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334658.jpg" />
+  <img src="Z:/picture/005/save_picture_334658.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334651.jpg" />
+  <img src="Z:/picture/005/save_picture_334651.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334648.jpg" />
+  <img src="Z:/picture/005/save_picture_334648.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334247.jpg" />
+  <img src="Z:/picture/008/save_picture_334247.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334181.jpg" />
+  <img src="Z:/picture/008/save_picture_334181.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333690.jpg" />
+  <img src="Z:/picture/005/save_picture_333690.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333684.jpg" />
+  <img src="Z:/picture/005/save_picture_333684.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333592.jpg" />
+  <img src="Z:/picture/005/save_picture_333592.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333571.jpg" />
+  <img src="Z:/picture/005/save_picture_333571.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333450.jpg" />
+  <img src="Z:/picture/005/save_picture_333450.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333445.jpg" />
+  <img src="Z:/picture/005/save_picture_333445.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333442.jpg" />
+  <img src="Z:/picture/005/save_picture_333442.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333306.jpg" />
+  <img src="Z:/picture/005/save_picture_333306.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333305.jpg" />
+  <img src="Z:/picture/005/save_picture_333305.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333301.jpg" />
+  <img src="Z:/picture/005/save_picture_333301.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 
 В основе сценария «Гадких лебедей» — повесть о городе-призраке с интернатом для одаренных детей. Там подрастает племя молодое и пугающе странное, чьими учителями являются существа «мокрецы» — то ли мутанты, то ли пришельцы.
 В городе происходит беспричинное изменение климата, напоминающее вселенский потоп. Естественно, вокруг вьются бесчисленные комиссии, изучающие (   Читать дальше...   )Производство: Россия, Франция, киностудия Proline FilmЖанр: Фантастика, драма, детективРежиссер: Константин ЛопушанскийАктеры: Григорий Гладий, Лаура Пицхелаури (Лаури), Сергей Барковский, Алексей Кортнев, Татьяна Мишина, Леонид Мозговой, Татьяна Полонская, Сергей Русскин, Ольга Самошина, Андрей Шимко, Борис Бирман (Вишневский), Александр ЦыбульскийПродолжительность: 01:48:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 63721   (333295) от 13.11.2014
-
-18-14 (2007) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под Петербургом, в окрестностях Царского Села, происходит цепь загадочных убийств. От рук неизвестного маньяка погибают молодые женщины. Эти смерти объединяет один и тот же почерк — звериная жестокость и странное орудие, которым наносятся увечья жертвам. Ужас и истерия нарушают размеренное течение жизни обитателей столичного пригорода. В народе уже придумали прозвище (   Читать дальше...   )Производство: Россия, "Нон-стоп Продакшн"Жанр: Приключения, историяРежиссер: Андрес ПуустусмааАктеры: Степан Балакшин, Стас Белозеров, Сергей Друзьяк, Иван Макаревич, Сергей Гармаш, Федор Бондарчук, Богдан Ступка, Александр Быковский, Иван Мартынов, Иван ПачинПродолжительность: 01:35:45
 
 ## Скачать торент
 ```bash

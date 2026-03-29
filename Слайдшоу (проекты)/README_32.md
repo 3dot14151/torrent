@@ -1,3 +1,30 @@
+###  Публикация: 1212827   (774124) от 14.03.2018
+
+Проекты - Motion Array - Ink Slideshow - 64302 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ink Slideshow - художественный шаблон After Effects с потрясающими визуальными эффектами, великолепными разводами чернильных капель, плавными переходами и простыми текстовыми анимациями.  Ink Slideshow - это красивый способ отображения вашего портфолио, фото из путешествий, отпуска, праздников, и фотографий природы.
+Можно использовать в качестве вступления для вашего (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B47431789E113FD51CC6743B6792A315F3B8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015548   (774112) от 11.05.2016
 
 Проекты - Rocketstock - Summertime [AEP]
@@ -6,7 +33,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774112.jpg" />
+  <img src="Z:/picture/008/save_picture_774112.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774066.jpg" />
+  <img src="Z:/picture/008/save_picture_774066.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773936.jpg" />
+  <img src="Z:/picture/008/save_picture_773936.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ VideoHive - Old Photo Album - 14096770 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773914.jpg" />
+  <img src="Z:/picture/008/save_picture_773914.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772931.jpg" />
+  <img src="Z:/picture/008/save_picture_772931.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772620.jpg" />
+  <img src="Z:/picture/008/save_picture_772620.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771448.jpg" />
+  <img src="Z:/picture/008/save_picture_771448.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771124.jpg" />
+  <img src="Z:/picture/008/save_picture_771124.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771014.jpg" />
+  <img src="Z:/picture/008/save_picture_771014.jpg" />
 </div>
 
 
@@ -246,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770456.jpg" />
+  <img src="Z:/picture/008/save_picture_770456.jpg" />
 </div>
 
 
@@ -272,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770232.jpg" />
+  <img src="Z:/picture/008/save_picture_770232.jpg" />
 </div>
 
 
@@ -298,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770197.jpg" />
+  <img src="Z:/picture/008/save_picture_770197.jpg" />
 </div>
 
 
@@ -324,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769647.jpg" />
+  <img src="Z:/picture/008/save_picture_769647.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769146.jpg" />
+  <img src="Z:/picture/008/save_picture_769146.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768679.jpg" />
+  <img src="Z:/picture/008/save_picture_768679.jpg" />
 </div>
 
 
@@ -404,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768646.jpg" />
+  <img src="Z:/picture/008/save_picture_768646.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768640.jpg" />
+  <img src="Z:/picture/008/save_picture_768640.jpg" />
 </div>
 
 
@@ -459,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768584.jpg" />
+  <img src="Z:/picture/008/save_picture_768584.jpg" />
 </div>
 
 
@@ -487,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768506.jpg" />
+  <img src="Z:/picture/008/save_picture_768506.jpg" />
 </div>
 
 
@@ -515,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768500.jpg" />
+  <img src="Z:/picture/008/save_picture_768500.jpg" />
 </div>
 
 
@@ -541,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768458.jpg" />
+  <img src="Z:/picture/008/save_picture_768458.jpg" />
 </div>
 
 
@@ -569,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767722.jpg" />
+  <img src="Z:/picture/008/save_picture_767722.jpg" />
 </div>
 
 
@@ -595,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767694.jpg" />
+  <img src="Z:/picture/008/save_picture_767694.jpg" />
 </div>
 
 
@@ -621,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767457.jpg" />
+  <img src="Z:/picture/008/save_picture_767457.jpg" />
 </div>
 
 
@@ -647,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767438.jpg" />
+  <img src="Z:/picture/008/save_picture_767438.jpg" />
 </div>
 
 
@@ -658,32 +685,6 @@ Fast Brush Opener - красивый, быстрый и чистый проек�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B10EC40974709AC4B79C1EA076049EE071D34A86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393657   (766724) от 01.07.2020
-
-Проекты - VideoHive - Lovely Slideshow - 27528300 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам нужно создать приятный фильм-воспоминание воспользуйтесь шаблоном Lovely Slideshow! Идеально подходит для оригинальных кинематографических открытий, грустных или романтических слайд-шоу, свадебных торжеств или продвижения любого другого мероприятия.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E7A2BDE1A73BD5F90D1AE40A73AD3BEF032940
 ```
 
 https://mybot314.ru/tekegram_catalog/

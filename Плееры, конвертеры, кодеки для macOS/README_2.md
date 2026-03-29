@@ -1,3 +1,108 @@
+###  Публикация: 1497133   (866668) от 21.09.2021
+
+TuneBoto Amazon Video Downloader 1.4.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный загрузчик видео с Amazon. Хотите смотреть свои Prime Videos где угодно, не тратя интернет-трафик? TuneBoto Amazon Video Downloader должен быть именно вашим ключом для загрузки бесчисленного количества Prime Video в MP4, в качестве HD с сохранением качественного звука и субтитров.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: TuneBoto Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0050DC4BD826039947B3F69AC5CA937A0D7239A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497139   (866662) от 21.09.2021
+
+TunePat Amazon Video Downloader 1.4.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите скачать видео с Amazon на Mac для автономного воспроизведения? Просто используйте TunePat Amazon Video Downloader для Mac. Это мощный инструмент для загрузки видео с ресурса Amazon Prime Video, который может загружать любые фильмы и телешоу с Prime Video на ваши компьютеры Mac в формате MP4. С помощью этого интеллектуального инструмента вы можете легко загрузить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.09.2021Разработчик: TunePat Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D2C417A3FBC8E02C39B9FEDA293B4C1AC96D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497137   (866598) от 21.09.2021
+
+TunePat Amazon Music Converter 2 v2.4.0 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам нужно сохранить свою музыку с Amazon Music навсегда или вы просто хотите воспроизводить ее на других устройствах, TunePat Amazon Music Converter поможет вам.
+TunePat Amazon Music Converter для Mac - это профессиональный рекордер Amazon Music, разработанный специально для пользователей Amazon, позволяющий загружать или записывать любые треки, альбомы или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.09.2021Разработчик: TunePat Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DD92BD844FD14DC06FCCE6BF5935B1139FA83D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497146   (866465) от 21.09.2021
+
+Tunepat Tidal Media Downloader 1.4.0 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866465.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunePat Tidal Media Downloader - это комплексный загрузчик и конвертер аудио, который поддерживает преобразование музыки Tidal в популярные форматы, включая форматы MP3, AAC, WAV или FLAC. С помощью Tidal Media Downloader вы можете легко переносить треки Tidal между устройствами, даже воспроизводить музыку Tidal в неподдерживаемых приложениях и плеерах в любое время.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: TunePat Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA25ACB23D88EB67B2539AFFBC6241E1B9DE8E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497143   (866460) от 21.09.2021
 
 TunePat Spotify Converter 1.5.0 [Multi]
@@ -6,7 +111,7 @@ TunePat Spotify Converter 1.5.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866460.jpg" />
+  <img src="Z:/picture/008/save_picture_866460.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Allavsoft Video Downloader Converter 3.22.4.7405 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865622.jpg" />
+  <img src="Z:/picture/008/save_picture_865622.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ MediaHuman Youtube Downloader 3.9.9.61 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862963.jpg" />
+  <img src="Z:/picture/008/save_picture_862963.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ Tipard Blu-ray Converter for Mac 9.2.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862173.jpg" />
+  <img src="Z:/picture/008/save_picture_862173.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ AnyMP4 Mac Video Converter Ultimate 8.2.28 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862047.jpg" />
+  <img src="Z:/picture/008/save_picture_862047.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ Audirvana 3.5.50 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860901.jpg" />
+  <img src="Z:/picture/008/save_picture_860901.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ SonicWeb Internet Radio Player 2.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854916.jpg" />
+  <img src="Z:/picture/008/save_picture_854916.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ Cosmicast 2.0.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851887.jpg" />
+  <img src="Z:/picture/008/save_picture_851887.jpg" />
 </div>
 
 
@@ -218,7 +323,7 @@ Music Tube 2.1.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850311.jpg" />
+  <img src="Z:/picture/008/save_picture_850311.jpg" />
 </div>
 
 
@@ -245,7 +350,7 @@ Swift Converter 3 v4.0.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844806.jpg" />
+  <img src="Z:/picture/008/save_picture_844806.jpg" />
 </div>
 
 
@@ -271,7 +376,7 @@ Sidify Music Converter for Spotify 1.4.3 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842957.jpg" />
+  <img src="Z:/picture/008/save_picture_842957.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ Macsome Spotify Downloader 1.0.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840853.jpg" />
+  <img src="Z:/picture/008/save_picture_840853.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ VLC media player 2.2.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836160.jpg" />
+  <img src="Z:/picture/008/save_picture_836160.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ PullTube 0.9.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835232.jpg" />
+  <img src="Z:/picture/008/save_picture_835232.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ MovieIcon - Adds cover art to your movie files 2.9.50 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826351.jpg" />
 </div>
 
 
@@ -408,7 +513,7 @@ Little Audio App 2.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824668.jpg" />
 </div>
 
 
@@ -435,7 +540,7 @@ Vox 2.7.7 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820640.jpg" />
+  <img src="Z:/picture/008/save_picture_820640.jpg" />
 </div>
 
 
@@ -462,7 +567,7 @@ Simplify 3.3.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819557.jpg" />
+  <img src="Z:/picture/008/save_picture_819557.jpg" />
 </div>
 
 
@@ -489,7 +594,7 @@ AirFoil+Airfoil Satellite 5.10.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819493.jpg" />
+  <img src="Z:/picture/008/save_picture_819493.jpg" />
 </div>
 
 
@@ -515,7 +620,7 @@ PullTube 0.9.9 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816906.jpg" />
+  <img src="Z:/picture/008/save_picture_816906.jpg" />
 </div>
 
 
@@ -544,7 +649,7 @@ Squidoo 1.0.9 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811914.jpg" />
+  <img src="Z:/picture/008/save_picture_811914.jpg" />
 </div>
 
 
@@ -573,7 +678,7 @@ FonePaw Video Converter Ultimate 6.0.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806436.jpg" />
+  <img src="Z:/picture/008/save_picture_806436.jpg" />
 </div>
 
 
@@ -584,118 +689,6 @@ FonePaw Video Converter Ultimate - многофункциональное про
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2116BCF41A87AF1B1F3D22A623F95B18423B5243
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384153   (806257) от 18.05.2020
-
-QMidi Pro 2.8.9 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806257.jpg" />
-</div>
-
-
-###  Подробнее
-
-QMidi - проигрыватель MIDI/КАРАОКЕ для Macintosh. Он может организовать и проигрывать  множество типов мультимедийных файлов, включая фильмы и CD + G, и позволяет легко редактировать текст и аккорды, возможна синхронизация. QMidi pro обладает способностью отображать караоке и содержание видео в полноэкранном режиме, даже на второй монитор. У QMidi Pro простой, интуитивный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.05.2020Разработчик: Mixage SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Итальянский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7EE751862948329BB2641B0638B1182E6D07FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384228   (804369) от 19.05.2020
-
-Skip Tunes 3.3.1 [En/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804369.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skip Tunes - Spotify, Rdio, and iTunes Controls
-Skip Tunes является простым приложением для Mac OS X, которое позволяет легко контролировать iTunes, Spotify и Rdio из вашего Меню.
-
-Особенности:(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2018Разработчик: Jordan HalvorsenПоддерживаемая ОС: macOS X 10.9 +Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E91292B80ECDDD495438B6E34F678F86D6BF8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198845   (804311) от 13.01.2018
-
-MediaHuman YouTube Downloader 3.9.8.19 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804311.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
-
-Закачка нескольких файлов одновременно
-Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: MediaHumanПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Русский, Английский, Итальянский, и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04B147903737C021F4D99E4E89FA5EBD9B2E35F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384305   (804279) от 19.05.2020
-
-Downie 4.0.11 (Build 4105) [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 19.05.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6600B359B3688C5BB02FBBD9B88CBEE463B70DD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

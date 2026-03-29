@@ -6,7 +6,7 @@ Adobe Photoshop 2020 21.2.1.265 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722521.jpg" />
+  <img src="Z:/picture/008/save_picture_722521.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AAct Network 1.1.9 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722516.jpg" />
+  <img src="Z:/picture/008/save_picture_722516.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Slimjet 14.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722502.jpg" />
+  <img src="Z:/picture/008/save_picture_722502.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ OBS Studio 27.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722492.jpg" />
+  <img src="Z:/picture/008/save_picture_722492.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Google Chrome 98.0.4758.102 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722488.jpg" />
+  <img src="Z:/picture/008/save_picture_722488.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Google Chrome 98.0.4758.102 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722481.jpg" />
+  <img src="Z:/picture/008/save_picture_722481.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Freemake Video Converter 4.1.13.120 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722474.jpg" />
+  <img src="Z:/picture/008/save_picture_722474.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ XnViewMP 0.86 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722392.jpg" />
+  <img src="Z:/picture/008/save_picture_722392.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Maxthon Browser 5.0.4.500 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722386.jpg" />
+  <img src="Z:/picture/008/save_picture_722386.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ StartAllBack 3.3.0 StartIsBack++ 2.9.17 (2.9.1) StartIsBack + 1.7.6 RePack by Kp
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722381.jpg" />
+  <img src="Z:/picture/008/save_picture_722381.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Registry Life 3.29 DC 06.06.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722365.jpg" />
+  <img src="Z:/picture/008/save_picture_722365.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Windows Firewall Control 6.8.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722358.jpg" />
+  <img src="Z:/picture/008/save_picture_722358.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ MP3 Speed 5.5.1 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722275.jpg" />
+  <img src="Z:/picture/008/save_picture_722275.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Zoner Photo Studio X 19.1704.2.22 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722268.jpg" />
+  <img src="Z:/picture/008/save_picture_722268.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ XMedia Recode 3.3.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722258.jpg" />
+  <img src="Z:/picture/008/save_picture_722258.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BELOFF 2022 (English version)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722228.jpg" />
+  <img src="Z:/picture/008/save_picture_722228.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Wise Care 365 Pro 4.19.405 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722166.jpg" />
+  <img src="Z:/picture/008/save_picture_722166.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Wise Care 365 Pro 4.19.405 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722159.jpg" />
+  <img src="Z:/picture/008/save_picture_722159.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ PrivaZer 3.0.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722151.jpg" />
+  <img src="Z:/picture/008/save_picture_722151.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ USDownloader 1.3.5.9 Portable (04.06.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722145.jpg" />
+  <img src="Z:/picture/008/save_picture_722145.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Cakewalk SONAR Platinum 23.4.0 Build 38 (2017.04) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722138.jpg" />
+  <img src="Z:/picture/008/save_picture_722138.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Adobe Photoshop 2021 22.5.6.749 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722104.jpg" />
+  <img src="Z:/picture/008/save_picture_722104.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722098.jpg" />
+  <img src="Z:/picture/008/save_picture_722098.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Adobe Photoshop 2022 23.2.0.277 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722091.jpg" />
+  <img src="Z:/picture/008/save_picture_722091.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ MInstAll v.31.12.2021 By Andreyonohov (Unpacked) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722085.jpg" />
+  <img src="Z:/picture/008/save_picture_722085.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ SlimBrowser 8.00 Build 001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722042.jpg" />
+  <img src="Z:/picture/008/save_picture_722042.jpg" />
 </div>
 
 

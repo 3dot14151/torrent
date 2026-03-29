@@ -1,3 +1,81 @@
+###  Публикация: 1025706   (700072) от 17.06.2016
+
+NG: Проект: Динозавр / T.Rex: Autopsy (2015) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот уникальный эксперимент предлагает беспрецедентную возможность узнать ответы на такие вопросы, как: были ли у Ти-рекса перья или нет, как он питался с такими маленькими ручками, был он изначально хищником или падальщиком, как он переваривал пищу, как долго жил, как размножался и был ли он теплокровным как млекопитающее или хладнокровным как рептилия. С глазами (   Читать дальше...   )Телекомпания: Produced By Impossible Factual LTD & For National Geographic ChannelЖанр: Документальный, познавательный, палеонтологияРежиссер: Ричард ДэйлПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:27:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE9496B3A4FB4BDA95001735534A086F9D73D7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132951   (696862) от 11.05.2017
+
+NG: Забытые персонажи Библии / Lost Face of the Bible (2012) HDTVRip [H.264/720p-LQ] (Серии 1-4 из 4)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Священный текст Библии, состоящий из четырех частей, повествуется документальным сериалом, где объединяются мифы археологии с драматическими раскрытиями вместе с судебно-медицинскими экспертизами. Вашему вниманию представлен беспрецедентный доступ к четырем древним черепам из Святой земли, и каждый эпизод фильма стремится точно воссоздать известные лица. Путешествия (   Читать дальше...   )Производство: Канада, Associated Producers for National GeographicЖанр: Документальный, научно-познавательный, исследованиеРежиссер: Кэтрин Липтротт-Галлиган, Грэм ЛинчАктеры: Стивен Джеймс Тейлор, Дэвид Дантес, Клинтон ХаммондПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: ОтсутствуютПродолжительность: 4x~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1A234B5DBF352FD4E4EC4569DCF039EB25D478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894734   (696846) от 07.05.2015
+
+Космос: Пространство и время / Cosmos: A SpaceTime Odyssey (2014) BDRip [H.264/720p] (сезон 1, серии 1-13 из 13)
+
+>>След.
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал рассказывает о последних научных открытиях, которые были сделаны в области астронавтики, астрофизики и других наук. Сериал «Космос: Путешествие во времени» является продолжением научно-популярной серии фильмов «Космос: Персональное путешествие с Карлом Саганом» и отражает события последних трех десятилетий. Астрофизик Нил Деграсс Тайсон с соавторами (   Читать дальше...   )Производство: США / Cosmos Studios, Fuzzy Door Productions, National Geographic Channel, Six Point Harness, Syon MediaЖанр: Документальный, наука, космосРежиссер: Брэннон Брага, Энн Драйэн, Билл ПоупПеревод: Одноголосый профессиональный (студия Арк-ТВ)Язык озвучки: Русский, АнглийскийПродолжительность: 09:40:17 (~43 мин. серия)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6560D0D28DE49630BB8B52C43C0CDC317729443E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288558   (695550) от 11.03.2019
 
 NGW: Смертоносная Африка. Саванна / Africa's Deadly Kingdom. Savannah (2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +84,7 @@ NGW: Смертоносная Африка. Саванна / Africa's Deadly Kin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695550.jpg" />
+  <img src="Z:/picture/008/save_picture_695550.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG: Дайан Фосси. Секреты в тумане / Dian Fossey. Secrets
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695549.jpg" />
+  <img src="Z:/picture/008/save_picture_695549.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ NGW: Планета хищников. Идеальные убийцы / Planet C
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695547.jpg" />
+  <img src="Z:/picture/008/save_picture_695547.jpg" />
 </div>
 
 
@@ -76,6 +154,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765265   (695447) от 09.06.2014
+
+NG: Космос: Пространство и время / Cosmos: A SpaceTime Odyssey (2014) HDTVRip (сезон 1, серии 1-13 из 13)
+
+>>След.
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_695447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал рассказывает о последних научных открытиях, которые были сделаны в области астронавтики, астрофизики и других наук. Сериал «Космос: Путешествие во времени» является продолжением научно-популярной серии фильмов «Космос: Персональное путешествие с Карлом Саганом» и отражает события последних трех десятилетий. Астрофизик Нил Деграсс Тайсон с соавторами (   Читать дальше...   )Производство: США / Cosmos Studios, Fuzzy Door Productions, National Geographic Channel, Six Point Harness, Syon MediaЖанр: Документальный, наука, космосРежиссер: Брэннон Брага, Энн Драйэн, Билл ПоупПеревод: Профессиональный одноголосый (студия Арк-ТВ)Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30583EF08B4950B1F384F6D07FA58C6CBE39A76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133352   (695036) от 12.05.2017
 
 National Geographic. Королева леопардов / Leopard Queen (2010) HDTVRip [H.264/1080i]
@@ -84,7 +188,7 @@ National Geographic. Королева леопардов / Leopard Queen (2010) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695036.jpg" />
+  <img src="Z:/picture/008/save_picture_695036.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Дикая Монголия: страна крайностей. Степь 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693918.jpg" />
+  <img src="Z:/picture/008/save_picture_693918.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ NG: Рекорд / Breaking 2 (2017) HDTV [H.264/1080p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693914.jpg" />
+  <img src="Z:/picture/008/save_picture_693914.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NG: Неуловимая кошка / The Phantom Cat (2012) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693320.jpg" />
+  <img src="Z:/picture/008/save_picture_693320.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NG: В поисках неуловимой кошки / Hunt for the Shadow Cat 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693245.jpg" />
+  <img src="Z:/picture/008/save_picture_693245.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NGW: Дикая природа Новой Зеландии: затерянный
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692892.jpg" />
+  <img src="Z:/picture/008/save_picture_692892.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NG: Гиганты мира животных / How Big Can It Get? (2011) WEB-DL
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691843.jpg" />
+  <img src="Z:/picture/008/save_picture_691843.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG: Осушить океан: глубокое погружение. Затон
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691841.jpg" />
+  <img src="Z:/picture/008/save_picture_691841.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691734.jpg" />
+  <img src="Z:/picture/008/save_picture_691734.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691732.jpg" />
+  <img src="Z:/picture/008/save_picture_691732.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690769.jpg" />
+  <img src="Z:/picture/008/save_picture_690769.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689954.jpg" />
+  <img src="Z:/picture/008/save_picture_689954.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NGW: Воздушное сафари. Австралия / Sky Safari. Australia
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689553.jpg" />
+  <img src="Z:/picture/008/save_picture_689553.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NGW: Дикая природа Китая. Царство дикой приро�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689423.jpg" />
+  <img src="Z:/picture/008/save_picture_689423.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NGW: Глубоководные гиганты (Гиганты синей без
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689316.jpg" />
+  <img src="Z:/picture/008/save_picture_689316.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NGW: Фантастические существа Мадагаскара / Mada
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689315.jpg" />
+  <img src="Z:/picture/008/save_picture_689315.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NGW: Удивительные пауки / Incredible spiders (2015) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687353.jpg" />
+  <img src="Z:/picture/008/save_picture_687353.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ NGW: Дикая природа Филиппин / Untamed Philippines (2018) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687011.jpg" />
+  <img src="Z:/picture/008/save_picture_687011.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ NG. Осушить океан: глубокое погружение. Сокро
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686238.jpg" />
+  <img src="Z:/picture/008/save_picture_686238.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ NG. Осушить океан: глубокое погружение. Сокро
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF90AD84791B9F3AA58B686D8B332A714000B6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507001   (685472) от 07.06.2012
-
-NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы увидите Землю так, как прежде никогда не видели... С помощью рентгеновского зрения мы увидим планету, которую нельзя увидеть никак иначе. Сейчас армада датчиков, расположенных под землей, в небе, в океане и даже в наших городах, исследуют планету. Они видят тайные области планеты, это очень похоже на томографию. Сканируя Землю, мы сможем увидеть планету - ту, (   Читать дальше...   )Производство: США, BASE Productions, Inc. for National Geographic Channel, NGC Network International, LLC and NGC Network US, LLCЖанр: Документальный, научно-познавательныйРежиссер: Джон Бренкус, Микки Стерн, Робберт КурранПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886421B781325D7C1E2005DB1C58E5ABB35D565D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222519   (685171) от 29.04.2018
-
-NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685171.jpg" />
-</div>
-
-
-###  Подробнее
-
-В любое время суток животные используют свет и темноту для охоты, отдыха или любовных игр. Морские черепахи откладывают яйца только ночью, а большие тигровые акулы охотятся за сардинами и морскими котиками только при ярком освещении на рассвете.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C433AA2404169C7C418878C3283AEE2000722AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222517   (685158) от 29.04.2018
-
-NGW: Короли убийства / Kings of the Kill (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Львы - это единственные животные из семейства кошачьих, которые охотятся группами. Они составляют естественную и жесткую конкуренцию таким хищникам, как леопарды и гепарды, которые охотятся в одиночку.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D8D6C083115AC6596E317BCEFCCFFA6683A9FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222528   (685157) от 29.04.2018
-
-NGW: Морские котики-убийцы / Killer seals (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серые морские котики, обитающие в ледяных водах северной Атлантики, прекрасно приспособились к охоте за своей быстрой и верткой добычей и являются одними из крупнейших в Европе хищников.Производство: Франция, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Бертран ЛойерПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D714707F425BFBBC482F82C0FBD0588E5C78C83
 ```
 
 https://mybot314.ru/tekegram_catalog/

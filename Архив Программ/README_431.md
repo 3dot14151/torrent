@@ -6,7 +6,7 @@ Daum PotPlayer 1.7.1150 DC 20.03.2017 Stable RePack + Portable by 7sh3 [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822132.jpg" />
+  <img src="Z:/picture/008/save_picture_822132.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CrystalDiskInfo 7.5.1 RePack (& Portable) by NEO [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822122.jpg" />
+  <img src="Z:/picture/008/save_picture_822122.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Advanced SystemCare Ultimate 11.0.1.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822117.jpg" />
+  <img src="Z:/picture/008/save_picture_822117.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ NVIDIA GeForce Desktop 378.92 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822071.jpg" />
+  <img src="Z:/picture/008/save_picture_822071.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10041 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822035.jpg" />
+  <img src="Z:/picture/008/save_picture_822035.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Corel PaintShop Pro X9 Ultimate 19.2.0.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821957.jpg" />
+  <img src="Z:/picture/008/save_picture_821957.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ JottaCloud 3.1.48.422 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821509.jpg" />
+  <img src="Z:/picture/008/save_picture_821509.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Privacy Eraser Free 4.11.4 Build 1942 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821500.jpg" />
+  <img src="Z:/picture/008/save_picture_821500.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ PDF-XChange Pro v4.0194 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821471.jpg" />
+  <img src="Z:/picture/008/save_picture_821471.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ IObit Uninstaller Free 11.1.0.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821430.jpg" />
+  <img src="Z:/picture/008/save_picture_821430.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Cockos REAPER 6.38 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821327.jpg" />
+  <img src="Z:/picture/008/save_picture_821327.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Ashampoo Snap 8.0.10 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821305.jpg" />
+  <img src="Z:/picture/008/save_picture_821305.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821303.jpg" />
+  <img src="Z:/picture/008/save_picture_821303.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Any Video Converter Ultimate 5.9.3 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821298.jpg" />
+  <img src="Z:/picture/008/save_picture_821298.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Any Video Converter Professional 5.9.3 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821295.jpg" />
+  <img src="Z:/picture/008/save_picture_821295.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VideoCacheView 2.96 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821288.jpg" />
+  <img src="Z:/picture/008/save_picture_821288.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Overloud TH-U Slate Edition 1.4.5 STANDALONE, VST, VST3, AAX (x64) + Library ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821240.jpg" />
+  <img src="Z:/picture/008/save_picture_821240.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ FBackup 9.3.428 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821239.jpg" />
+  <img src="Z:/picture/008/save_picture_821239.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Sugar Bytes - DrumComputer 1.1.0 STANDALONE, VSTi, AAX (X64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821235.jpg" />
+  <img src="Z:/picture/008/save_picture_821235.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Vidiot 0.3.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821188.jpg" />
+  <img src="Z:/picture/008/save_picture_821188.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ PortableApps.com Platform 14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821182.jpg" />
+  <img src="Z:/picture/008/save_picture_821182.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Freemake Video Converter 4.1.13.99 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821103.jpg" />
+  <img src="Z:/picture/008/save_picture_821103.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Comodo Cloud Antivirus 1.1.386793.166B [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821037.jpg" />
+  <img src="Z:/picture/008/save_picture_821037.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821036.jpg" />
+  <img src="Z:/picture/008/save_picture_821036.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ PDF-XChange Viewer Pro 2.5 Build 194 [Мульти/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821007.jpg" />
+  <img src="Z:/picture/008/save_picture_821007.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ IObit Malware Fighter Pro 3.1.0.15 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820978.jpg" />
+  <img src="Z:/picture/008/save_picture_820978.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1283591   (731026) от 19.02.2019
+
+Viana - Forever Free (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Free (04:14)
+02. In The Name Of Love (03:54)
+03. Heart Of Stone (05:26)
+04. We Can’t Choose (03:38)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A25DAAAC8EBB7FA30D5ADA3CCDB33CBB893FB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283827   (730863) от 19.02.2019
+
+Geordie - A Band From Geordieland 1972-1996 (1996) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_730863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Do That
+02. Francis Was A Rocker
+03. Ain't It Just Like A Woman
+04. All Because Of You(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51282BA4F5B61670596B9822F428DA2C13F4977F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128063   (730070) от 23.04.2017
 
 Richie Kotzen - Wave Of Emotion (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock, Fusion>
@@ -6,7 +64,7 @@ Richie Kotzen - Wave Of Emotion (1996) [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730070.jpg" />
+  <img src="Z:/picture/008/save_picture_730070.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Adrenaline Rush - Soul Survivor (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729857.jpg" />
+  <img src="Z:/picture/008/save_picture_729857.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Aerosmith, Bon Jovi, Guns N' Roses, Green Day, Sex Pistols - Bands Unlimited Col
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729503.jpg" />
+  <img src="Z:/picture/008/save_picture_729503.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Girish And The Chronicles - Hail To The Heroes (2022) [FLAC|Lossless|WEB-DL|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728986.jpg" />
+  <img src="Z:/picture/008/save_picture_728986.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Chickenfoot - Best + Live (2017) 2CD [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728668.jpg" />
+  <img src="Z:/picture/008/save_picture_728668.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ Fastway - 8 альбомов (1983 - 2011) [FLAC|APE|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726307.jpg" />
+  <img src="Z:/picture/008/save_picture_726307.jpg" />
 </div>
 
 
@@ -185,7 +243,7 @@ Firehouse - 7 Студийных альбомов (1990 - 2003) [FLAC|Lossless]<
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725751.jpg" />
+  <img src="Z:/picture/005/save_picture_725751.jpg" />
 </div>
 
 
@@ -214,7 +272,7 @@ Johnny Crash - Unfinished Business (2008) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724841.jpg" />
+  <img src="Z:/picture/008/save_picture_724841.jpg" />
 </div>
 
 
@@ -243,7 +301,7 @@ Graham Bonnet - Back Row In The Stalls (2016) [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724554.jpg" />
+  <img src="Z:/picture/008/save_picture_724554.jpg" />
 </div>
 
 
@@ -272,7 +330,7 @@ Led Zeppelin - BBC Sessions (1997) [FLAC|Lossless|image + .cue] <Hard Rock, Blue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723820.jpg" />
+  <img src="Z:/picture/008/save_picture_723820.jpg" />
 </div>
 
 
@@ -301,7 +359,7 @@ Uriah Heep - Demons And Wizards (1972) 2CD, Remastered, 2017, Sanctuary Records 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722265.jpg" />
+  <img src="Z:/picture/008/save_picture_722265.jpg" />
 </div>
 
 
@@ -330,7 +388,7 @@ Miss Crazy - Inception (2014) [FLAC|Lossless|image + .cue] <Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721639.jpg" />
+  <img src="Z:/picture/008/save_picture_721639.jpg" />
 </div>
 
 
@@ -359,7 +417,7 @@ EZoo - Feeding the Beast (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721418.jpg" />
+  <img src="Z:/picture/008/save_picture_721418.jpg" />
 </div>
 
 
@@ -388,7 +446,7 @@ FM - Synchronized (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721288.jpg" />
+  <img src="Z:/picture/008/save_picture_721288.jpg" />
 </div>
 
 
@@ -417,7 +475,7 @@ Big Apple - Rock Area (1995) Japanese Edition 1-st Press [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720790.jpg" />
+  <img src="Z:/picture/008/save_picture_720790.jpg" />
 </div>
 
 
@@ -446,7 +504,7 @@ Praying Mantis - Katharsis (2022) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720750.jpg" />
+  <img src="Z:/picture/008/save_picture_720750.jpg" />
 </div>
 
 
@@ -475,7 +533,7 @@ Rhino Bucket - The Last Real Rock N’ Roll (2017) [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720712.jpg" />
+  <img src="Z:/picture/008/save_picture_720712.jpg" />
 </div>
 
 
@@ -504,7 +562,7 @@ Krokus - Metal Rendez - vous (1980) [APE|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720435.jpg" />
+  <img src="Z:/picture/008/save_picture_720435.jpg" />
 </div>
 
 
@@ -533,7 +591,7 @@ JORN - Heavy Rock Radio (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719874.jpg" />
+  <img src="Z:/picture/008/save_picture_719874.jpg" />
 </div>
 
 
@@ -562,7 +620,7 @@ Rhino Bucket - Rhino Bucket (1990) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719409.jpg" />
+  <img src="Z:/picture/008/save_picture_719409.jpg" />
 </div>
 
 
@@ -591,7 +649,7 @@ Rhino Bucket - Get Used to It (1992) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719399.jpg" />
+  <img src="Z:/picture/008/save_picture_719399.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Kryptonite - Kryptonite (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719257.jpg" />
+  <img src="Z:/picture/008/save_picture_719257.jpg" />
 </div>
 
 
@@ -649,7 +707,7 @@ Wildness - Wildness (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719255.jpg" />
+  <img src="Z:/picture/008/save_picture_719255.jpg" />
 </div>
 
 
@@ -678,7 +736,7 @@ Steel Rhino - Steel Rhino (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718733.jpg" />
+  <img src="Z:/picture/008/save_picture_718733.jpg" />
 </div>
 
 
@@ -692,64 +750,6 @@ Steel Rhino - Steel Rhino (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6438165F8CD2E45880559FF156622E3F4C51415B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272370   (718471) от 27.02.2019
-
-Scorpions - Gentle Power (Best Of The Ballads) (2018) Remastered, Unofficial [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Send Me An Angel
-02. You And I
-03. Is There Anybody There
-04. When The Smoke Is Going Down(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B13F17AF60921BE7A59DEAF5DE848FE9B00BC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024380   (718150) от 08.06.2016
-
-Vega - Who We Are (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Explode
-02. We Got It All
-03. Every Little Monster
-04. Nothing Is Forever(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEEDFA56204873DA858424179EBDA65436D6A7E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

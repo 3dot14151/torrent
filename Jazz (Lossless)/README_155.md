@@ -1,3 +1,119 @@
+###  Публикация: 925949   (537281) от 08.08.2015
+
+Plas Johnson - Positively (1976) /Concord Records/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Positively [03:34]
+02. Lover Man (Oh, Where Can You Be) [04:45]
+03. Let's Get It All Together [07:10]
+04. Easy For You To Say [04:39](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48A7B01FF2A616D114E4B05980862E81CD9B50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925854   (537275) от 08.08.2015
+
+Bob Baldwin - MelloWonder, Songs In The Key Of Stevie (2015) [FLAC|image+.cue]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Real Thing/Keeping It Real (Featuring Chieli Minucci/Ragan Whiteside) (5:30)
+02. Creepin' (5:19)
+03. Don't You Worry 'bout A Thing (Featuring Chieli Minucci) (5:13)
+04. That Girl (Featuring U-Nam) (5:57)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69AFB94C955019A3695634CDA2D2B8A88C5B588D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925857   (537270) от 08.08.2015
+
+Jiro Inagaki - Dock of My Mind (2015) [FLAC|tracks+.cue]<Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_537270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dock of My Mind (4:16)
+02. Afternoon (4:26)
+03. Barefoot Girl (3:43)
+04. Colourful Winds (3:27)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD3C9C46D898D53775066207EC7DD5702ADBA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050444   (536748) от 09.09.2016
+
+VA - Timme’s Treasures (1944, 1945) 2015, Storyville Records[FLAC|Lossless|tracks + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_536748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.That Old Black Magic [04:41]
+ 02.Johnny Come Lately [03:31]
+ 03.Tea For Two [02:53]
+ 04.Embraceable You [09:23](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C79E328B90673884FC1C986D2D69A71E722D349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050760   (536746) от 09.09.2016
 
 Bud Shank Quintet and Sextet - New Groove & Barefoot Adventure (1961) 2011, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
@@ -6,7 +122,7 @@ Bud Shank Quintet and Sextet - New Groove & Barefoot Adventure (1961) 2011, Fres
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536746.jpg" />
+  <img src="Z:/picture/008/save_picture_536746.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Ella Fitzgerald - Sings Cole Porter & Rodgers and Hart Songbooks (1956) 3CD, 200
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536738.jpg" />
+  <img src="Z:/picture/008/save_picture_536738.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Bill Evans - Momentum, Vol. 2 (1972) Remaster, 2015, Solid Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536735.jpg" />
+  <img src="Z:/picture/008/save_picture_536735.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Cannonball Adderley - Jazz Profile (1960 - 1966) 1997, Blue Note [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536598.jpg" />
+  <img src="Z:/picture/008/save_picture_536598.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Stan Kenton - Jazz Profile (1945 - 1967) 1997, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536597.jpg" />
+  <img src="Z:/picture/008/save_picture_536597.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ McCoy Tyner - Jazz Profile (1967 - 1989) 1997, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536596.jpg" />
+  <img src="Z:/picture/008/save_picture_536596.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Horace Silver - Jazz Profile (1952 - 1976) 1997, Blue Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536594.jpg" />
+  <img src="Z:/picture/008/save_picture_536594.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Donald Byrd - Electric Byrd (1970) /2015, Universal/ [FLAC|tracks+.cue]<Jazz, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535648.jpg" />
+  <img src="Z:/picture/008/save_picture_535648.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bobby Caldwell - August Moon (1983) /Sin-Drome Records/ [FLAC|tracks+.cue]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535594.jpg" />
+  <img src="Z:/picture/008/save_picture_535594.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Ambient Jazz Ensemble - Suite Shop (2014) [FLAC|tracks|WEB-DL]<Jazz, Nu Jazz, Br
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535590.jpg" />
+  <img src="Z:/picture/008/save_picture_535590.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Braxton Brothers - Steppin' Out (1998) [FLAC|image+.cue]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535588.jpg" />
+  <img src="Z:/picture/008/save_picture_535588.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Bugge Wesseltoft - Moving (2001) [FLAC|tracks +.cue]<Future Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535581.jpg" />
+  <img src="Z:/picture/008/save_picture_535581.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Grover Washington Jr. - The Best Is Yet To Come (1982) Elektra [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535539.jpg" />
+  <img src="Z:/picture/008/save_picture_535539.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Matthew Shipp - 4D (2010) Thirsty Ear [FLAC|Lossless|tracks + .cue] <Avant-Garde
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535490.jpg" />
+  <img src="Z:/picture/008/save_picture_535490.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Mose Allison - My Backyard (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535488.jpg" />
+  <img src="Z:/picture/008/save_picture_535488.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Johnny Griffin - Congregation (1957) 2006, Blue Note [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535487.jpg" />
+  <img src="Z:/picture/008/save_picture_535487.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Defunkt - Classic Defunkt (1996) [FLAC|Lossless|image + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535484.jpg" />
+  <img src="Z:/picture/008/save_picture_535484.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Lester Bowie's Brass Fantasy - The Fire This Time (1992) [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535423.jpg" />
+  <img src="Z:/picture/008/save_picture_535423.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Members Of The Woody Herman Orchestra - A Tribute To Woody Herman (1997) Green H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535422.jpg" />
+  <img src="Z:/picture/008/save_picture_535422.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Weather Report - This Is This (1986) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535416.jpg" />
+  <img src="Z:/picture/008/save_picture_535416.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Weather Report - Domino Theory (1984) [FLAC|Lossless|image + .cue] <Jazz-Rock, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535415.jpg" />
+  <img src="Z:/picture/008/save_picture_535415.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Naniwa Express - No Fuse (1982) Sony[APE|Lossless|image + .cue] <Jazz Fusion, Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535141.jpg" />
+  <img src="Z:/picture/008/save_picture_535141.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Naniwa Express - No Fuse (1982) Sony[APE|Lossless|image + .cue] <Jazz Fusion, Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5944C2CB34204B9522A5586296F3C850BB3C3A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051014   (535131) от 10.09.2016
-
-Ella Fitzgerald - Ella A Nice (1971) 1983, Pablo[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Night And Day [06:58]
- 02.The Many Faces Of Cole Porter [05:32]
- 03.The Ballad Medley [04:51]
- 04.The Bossa Scene [05:47](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B375037F77A424199360496D6634C244429B3596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312261   (534499) от 03.07.2019
-
-Dickie Wells - 1927 - 1943 (1997) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlem Shuffle [3:06]
-02. Symphonic Screach (Symphonic Scronch) [2:54]
-03. Happy Hour Blues [2:43]
-04. Lawd, Lawd [3:10](   Читать дальше...   )Жанр: New Orleans Jazz, SwingПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C2D95F7F628BC0D65ECEC6935483AFDA5BB75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312257   (534498) от 03.07.2019
-
-James Williams - Magical Trio 2 (1988) Emarcy [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bohemia After Dark [3:42]
-02. Too Late Now [6:42]
-03. A Portrait of Elvin [6:13]
-04. Roadlife [6:15](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB56681613C62F57A3208EC82F9C495D6285AA0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558248   (533768) от 19.06.2022
-
-Gene Krupa & Harry James - The Complete Capitol Recordings Of Gene Krupa & Harry James (1946 - 1958) 7CD, 1999, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533768.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Indiana [3:00]
-02. My Old Flame [2:19]
-03. Wings On My Shoes [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 07:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63267E6E84DC2725F53A5488606DB5948F920591
 ```
 
 https://mybot314.ru/tekegram_catalog/

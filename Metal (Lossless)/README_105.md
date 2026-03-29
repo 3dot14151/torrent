@@ -1,3 +1,90 @@
+###  Публикация: 1030739   (670477) от 02.07.2016
+
+Glaciation - Sur Les Falaises De Marbre (2015) [FLAC|Lossless|image + .cue] <Depressive, Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Fiancées Sont Froides
+02. La Mer, Les Ruines
+03. Le Soleil Et l'Acier
+04. Kaputt(   Читать дальше...   )Жанр: Depressive, Post-Black MetalПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F5409BA81BE3DD2807AF59796639FF6D063C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137153   (669412) от 25.05.2017
+
+Foscor - Groans to the Guilty (2009) Digipack [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_669412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groans to the Guilty 04:19
+02. In Case the Seasons Break 04:48
+03. Melangia 06:26
+04. Raids To Punishment 04:33(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E8861223E6372EDAF66D3825FC36D9618EDC52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291377   (668905) от 25.03.2019
+
+Melted Space - Darkening Light (2018) [FLAC|lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_668905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Void Before (01:31)
+02. Newborns (05:05)
+03. The Meaning Of This Place (04:45)
+04. From The Beginning To The End (05:17)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91970B429D70B0317166F5028656BC5C9D92E69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290786   (668902) от 25.03.2019
 
 Embellish - Black Tears And Deep Songs For Lost Lovers (2005) [FLAC|Lossless|tracks + .cue] <Gothic Metal>
@@ -6,7 +93,7 @@ Embellish - Black Tears And Deep Songs For Lost Lovers (2005) [FLAC|Lossless|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668902.jpg" />
+  <img src="Z:/picture/008/save_picture_668902.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Soilwork - Verkligheten (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668900.jpg" />
+  <img src="Z:/picture/008/save_picture_668900.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Destroyer 666 - Call Of The Wild (2018) EP [FLAC|Lossless|tracks] <Black Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668798.jpg" />
+  <img src="Z:/picture/008/save_picture_668798.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Delain - Hunter's Moon (2019) EP [FLAC|Lossless|image + .cue] <Gothic Metal, Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668789.jpg" />
+  <img src="Z:/picture/008/save_picture_668789.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Cult of Luna - 5 albums (2001-2008) [FLAC/APE|Lossless] <Post-Metal, Sludge, Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_668552.jpg" />
+  <img src="Z:/picture/005/save_picture_668552.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ Ramihrdus - The Sorrow of the Evergreens (2021) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667897.jpg" />
+  <img src="Z:/picture/008/save_picture_667897.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ Otargos - Fleshborer Soulflayer (2021) Limited Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667895.jpg" />
+  <img src="Z:/picture/008/save_picture_667895.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ Arcane Tales - Steel, Fire and Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667847.jpg" />
+  <img src="Z:/picture/008/save_picture_667847.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Allegaeon - Damnum (2022) [FLAC|Lossless|image + .cue] <Technical Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667845.jpg" />
+  <img src="Z:/picture/008/save_picture_667845.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Helloween - Keeper Of The Seven Keys, Part II (1988) Remastered, 2CD, 2006, Sanc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667829.jpg" />
+  <img src="Z:/picture/008/save_picture_667829.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ Khoma - 3 albums (2004-2010) [FLAC|Lossless] <Post-Metal, Sludge, Alternative Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667276.jpg" />
+  <img src="Z:/picture/005/save_picture_667276.jpg" />
 </div>
 
 
@@ -337,7 +424,7 @@ Follow The Cipher - Follow The Cipher (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667189.jpg" />
+  <img src="Z:/picture/008/save_picture_667189.jpg" />
 </div>
 
 
@@ -366,7 +453,7 @@ Cut Up - Wherever They May Rot (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666830.jpg" />
+  <img src="Z:/picture/008/save_picture_666830.jpg" />
 </div>
 
 
@@ -395,7 +482,7 @@ Ghost Iris - 6 Albums (2015-2022) [FLAC 2.0|44.1/16|WEB-DL|tracks] <Metalcore, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665446.jpg" />
+  <img src="Z:/picture/008/save_picture_665446.jpg" />
 </div>
 
 
@@ -424,7 +511,7 @@ Ensiferum - Дискография (2001-2009) [FLAC|Lossless]<Melodic Death, Fo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_665076.jpg" />
+  <img src="Z:/picture/005/save_picture_665076.jpg" />
 </div>
 
 
@@ -453,7 +540,7 @@ Svart Crown - Abreaction (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664565.jpg" />
+  <img src="Z:/picture/008/save_picture_664565.jpg" />
 </div>
 
 
@@ -482,7 +569,7 @@ Resurgency - No Worlds... nor Gods Beyond (2017) [FLAC|Lossless|image + .cue] <O
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664560.jpg" />
+  <img src="Z:/picture/008/save_picture_664560.jpg" />
 </div>
 
 
@@ -511,7 +598,7 @@ Venenum - Trance of Death (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664501.jpg" />
+  <img src="Z:/picture/008/save_picture_664501.jpg" />
 </div>
 
 
@@ -540,7 +627,7 @@ Rude - Remnants... (2017) [FLAC|Lossless|image + .cue] <Ols School Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664496.jpg" />
+  <img src="Z:/picture/008/save_picture_664496.jpg" />
 </div>
 
 
@@ -569,7 +656,7 @@ Azarath - In Extremis (2017) [FLAC|Lossless|image + .cue] <Death Metal, Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664495.jpg" />
+  <img src="Z:/picture/008/save_picture_664495.jpg" />
 </div>
 
 
@@ -598,7 +685,7 @@ Iron Fate - Cast In Iron (2010) [FLAC|Lossless|image + .cue] <Power Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664488.jpg" />
+  <img src="Z:/picture/008/save_picture_664488.jpg" />
 </div>
 
 
@@ -627,7 +714,7 @@ Helker - Firesoul (2017) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664486.jpg" />
+  <img src="Z:/picture/008/save_picture_664486.jpg" />
 </div>
 
 
@@ -656,7 +743,7 @@ Vampire - With Primeval Force (2017) [FLAC|Lossless|image + .cue] <Death Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664389.jpg" />
+  <img src="Z:/picture/008/save_picture_664389.jpg" />
 </div>
 
 
@@ -670,93 +757,6 @@ Vampire - With Primeval Force (2017) [FLAC|Lossless|image + .cue] <Death Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D69842545E5DDE6BC7B596EB9FEE3236D73AAFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137862   (664382) от 29.05.2017
-
-Ascended Dead - Abhorrent Manifestation (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Promised Time 04:42
-02. Blood Thirst 04:07
-03. Perdition 02:58
-04. Ensnared for Eternity 03:38(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:022F261B709B89CD4B9C2615FF82049434019BC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138476   (664325) от 29.05.2017
-
-StormHammer - Welcome To The End (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning of the End  (01:10) 
-02. Northman  (05:03) 
-03. Welcome to the End  (05:42) 
-04. The Heritage  (05:03) (   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F5F28FAF238C17CF152783C78B8EF48593ADA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137953   (664264) от 29.05.2017
-
-Angel Vivaldi - Away With Words Pt.1 (2014) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Angel Vivaldi - американский гитарист-виртуоз исполняет мелодик металкор\прогрессивный металкор, в последние годы набирающий всё большую и большую популярность. Играет он в прогрессив-метал-группе имени самого себя. Кроме гитары Энджел неплохо управляется с басом и клавишными, по крайней мере все клавишные партии для своего последнего мини-альбома он сыграл сам. (   Читать дальше...   )01. · - - - - (5:13)
-02. · · - - - (4:37)
-03. · · · - - (4:29)
-04. · · · · - (3:41)(   Читать дальше...   )Жанр: Progressive Metal, InstrumentalПродолжительность: 00:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376A4B427982157860BB7A8DE4AF0F67D00A102B
 ```
 
 https://mybot314.ru/tekegram_catalog/

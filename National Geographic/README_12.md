@@ -1,3 +1,81 @@
+###  Публикация: 1285832   (718821) от 27.02.2019
+
+NGW: Власть царицы / Regime of the Queen (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выборка наших самых популярных историй из жизни больших кошек, чтобы глубже погрузиться в мир кошачьего материнства.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Рейнхард РадкеПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC89040DB0F0DADC0FA4C5CB1CD5FEA7895443B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285784   (718813) от 27.02.2019
+
+Дикая река Конго. Логово Кинг-Конга / Wild Congo. King Kong's Lair (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718813.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глубине густых джунглей в бассейне Конго обитают ближайшие родственники человека - три из четырех известных видов человекообразных обезьян.Производство: Германия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Томас БерендПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2006FD4FF9C912C200FB902143E1C68904CB7C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285850   (718685) от 27.02.2019
+
+NG. Вдоль Великой Китайской стены / Trekking The Great Wall (2011) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великая Китайская стена - одно из величайших архитектурных чудес света. Говорят, что её можно увидеть даже из космоса. Этот древний шедевр фортификации был свидетелем сотен сражений и, тем не менее, хранит множество загадок... Английский писатель и историк Уильям Линси прожил в Китае 20 лет. Изучение Великой Китайской стены стало страстью всей его жизни. Линси провел (   Читать дальше...   )Производство: Германия, Ggruppe 5 Filmproduktion GMBHЖанр: Документальный, архитектура, историяРежиссер: Кристиан ТвентеПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0283BDAE028944A7F7184351C9C6EAEC028E822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129957   (718513) от 30.04.2017
 
 NG: Мафия кобры / Cobra Mafia (2014) HDTV [H.264/1080i]
@@ -6,7 +84,7 @@ NG: Мафия кобры / Cobra Mafia (2014) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718513.jpg" />
+  <img src="Z:/picture/008/save_picture_718513.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ NG. Десятка лучших фотографий National Geographic / Nat G
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717728.jpg" />
+  <img src="Z:/picture/008/save_picture_717728.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ NGW: Выживание в Серенгети / Surviving the Serengeti (2015) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717522.jpg" />
+  <img src="Z:/picture/008/save_picture_717522.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ NGW: Африканская суперзмея / Africa's super snake (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717513.jpg" />
+  <img src="Z:/picture/008/save_picture_717513.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ NGW: Переменчивые животные. Подростковые кош�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717511.jpg" />
+  <img src="Z:/picture/008/save_picture_717511.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ NGW: Дикая природа Дальнего Востока / Wild Far East (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717408.jpg" />
+  <img src="Z:/picture/008/save_picture_717408.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ NGW: Переменчивые животные. Брачные игры / Moody 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717391.jpg" />
+  <img src="Z:/picture/008/save_picture_717391.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ NGW: Город выдр / Otter town (2016) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717307.jpg" />
+  <img src="Z:/picture/008/save_picture_717307.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ NGW: Супер-белки / Super Squirrel (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717304.jpg" />
+  <img src="Z:/picture/008/save_picture_717304.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ NGW: Дикие маленькие кошки / Wild little cats (2017) HDTV [H.
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717302.jpg" />
+  <img src="Z:/picture/008/save_picture_717302.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716619.jpg" />
+  <img src="Z:/picture/008/save_picture_716619.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ NG: 1989: Год, сотворивший современный мир / 1989: T
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716274.jpg" />
+  <img src="Z:/picture/008/save_picture_716274.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ NG: Самые страшные стихийные бедствия: Торна�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715815.jpg" />
+  <img src="Z:/picture/008/save_picture_715815.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ NGW: Кровавые соперники: гиппопотамы против л
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715732.jpg" />
+  <img src="Z:/picture/008/save_picture_715732.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ NGW: Самые опасные животные. Безумные акулы / W
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715726.jpg" />
+  <img src="Z:/picture/008/save_picture_715726.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714665.jpg" />
+  <img src="Z:/picture/008/save_picture_714665.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714399.jpg" />
+  <img src="Z:/picture/008/save_picture_714399.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ NG: Фото-ковчег / Photo Ark (2017) HDTVRip (3 серии из 3) [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713772.jpg" />
+  <img src="Z:/picture/008/save_picture_713772.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ NG. Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712991.jpg" />
+  <img src="Z:/picture/008/save_picture_712991.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712054.jpg" />
+  <img src="Z:/picture/008/save_picture_712054.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710532.jpg" />
+  <img src="Z:/picture/008/save_picture_710532.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ NGW: Дикий рай Индии / India's Wild Edens (2016) HDTV [H.264/1080i-
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709953.jpg" />
+  <img src="Z:/picture/008/save_picture_709953.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ NGW: Самые опасные убийцы. Опасная зона / World's d
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709948.jpg" />
+  <img src="Z:/picture/008/save_picture_709948.jpg" />
 </div>
 
 
@@ -590,84 +668,6 @@ NGW: Самые опасные убийцы. Опасная зона / World's d
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:670365C433563B783CE3A6ADF9BE4816B37B19E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219998   (709859) от 16.04.2018
-
-NGW: Глубоководные убийцы / Deep sea killers (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709859.jpg" />
-</div>
-
-
-###  Подробнее
-
-О способах, которыми пользуются морские животные для поиска и нападения на свою жертву в океане.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Сью ХотонПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD77640987259D91A76597F1BEC3458C03A24B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219988   (709850) от 16.04.2018
-
-NGW: Дикая река Конго / Wild Congo (2017) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конго куда более мощная и опасная, чем любая другая река, и в то же время святилище и дом некоторых удивительных созданий нашей Земли. Эта программа расскажет об этой второй по величине реке на Земле, от ее истока в Замбии через болота и тропические леса. Путь Конго простирается на 5000 километров, начинается она как небольшой ручей и превращается в бушующую реку, (   Читать дальше...   )Производство: Германия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Томас БерендПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E59FCD78BB18D63BA9F172773ED3ABB88D1B90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125445   (708969) от 04.03.2019
-
-Трагедия «Челленджера» / Challenger Disaster: Lost Tapes (2015) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм - рассказ о космическом челноке «Челленджер» (англ. Challenger, «Бросающий вызов») - многоразовом транспортном космическом корабле НАСА и его экипаже, в частности о 37-летней Шарон Кристе МакОлифф, первом гражданском человеке, запущенном в космос. МакОлифф была учителем средней школы из г. Конкорд, штат Нью-Гэмпшир. Её выбрали из тысяч претендентов, чтобы (   Читать дальше...   )Телекомпания: США, National GeographicЖанр: Документальный, космос, историяРежиссер: Том ДженнингсПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC20FE24A4E24BA3458604F33284E8F3172CB8B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

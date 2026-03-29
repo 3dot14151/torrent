@@ -1,3 +1,84 @@
+###  Публикация: 600438   (997981) от 11.01.2013
+
+Песня года 2012 (1 часть) (2013) 1080i HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997981.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" - главный концерт страны! Участвуют все звезды! Концерт "Песня года" в Москве – это своеобразное подведение итогов. Каждый уходящий год – это отдельный музыкальный сезон, в котором были свои дебюты и свои провалы, взлеты и падения. По итогам каждого музыкального сезона звездное жюри отбирает лучшие композиции. Так "Песня (   Читать дальше...   )Жанр: Концерт, ТелепередачаПродолжительность: 02:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B6E928CB67AF1EF9257958A0D28BD4C13A1252E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602123   (997642) от 12.01.2013
+
+СупердискотЭка / Супердискотека 90-х. Санкт-Петербург, СКК (11.01.2013) HDTV [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дискотека Авария - Новогодняя
+02. Татьяна Булавнова - Мой ненаглядный
+03. Руки вверх! - Крошка моя (Live)
+04. Руки вверх! - Лишь о тебе мечтая (Live)(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 01:27:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602985   (997136) от 14.01.2013
+
+Helene Fischer - Live/Zum ersten Mal mit Band und Orchester  (2011) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт прошел 26 июня 2011 года в Кёльне (Германия) , при огромном стечении людей, билеты распроданы за месяц вперед и зал оказался переполнен.Жанр: PopПеревод: ОтсутствуетПродолжительность: 02:44:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605356   (995480) от 20.01.2013
 
 Duran Duran - A Diamond In the Mind (2011) [720] BDRip
@@ -6,7 +87,7 @@ Duran Duran - A Diamond In the Mind (2011) [720] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995480.jpg" />
 </div>
 
 
@@ -43,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995404.jpg" />
 </div>
 
 
@@ -69,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992565.jpg" />
 </div>
 
 
@@ -98,7 +179,7 @@ Stromae - Racine Carree Live (2015) WEB-DL
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988413.jpg" />
 </div>
 
 
@@ -127,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988314.jpg" />
 </div>
 
 
@@ -158,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987089.jpg" />
 </div>
 
 
@@ -184,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985721.jpg" />
 </div>
 
 
@@ -210,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985686.jpg" />
 </div>
 
 
@@ -238,7 +319,7 @@ System Of A Down - Rock in Rio [1080p] (2011) HDTV
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985283.jpg" />
 </div>
 
 
@@ -264,7 +345,7 @@ Stromae - Racine Carree Live (2015) BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984280.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981022.jpg" />
 </div>
 
 
@@ -322,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977593.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ Rage Against The Machine - Live at Finsbury Park (2010) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976705.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971726.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969951.jpg" />
 </div>
 
 
@@ -434,7 +515,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968949.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968895.jpg" />
 </div>
 
 
@@ -492,7 +573,7 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967903.jpg" />
 </div>
 
 
@@ -521,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967522.jpg" />
 </div>
 
 
@@ -551,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967200.jpg" />
 </div>
 
 
@@ -577,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964996.jpg" />
 </div>
 
 
@@ -606,7 +687,7 @@ James Last - Live at the Royal Albert Hall (2008) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963738.jpg" />
 </div>
 
 
@@ -632,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963225.jpg" />
 </div>
 
 
@@ -647,92 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7E59BEFB253FD4101FBF84F7FDF2330CDFBE237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747460   (962532) от 19.01.2014
-
-Roxette - Live, Travelling the World (2013) BDRemux [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертная запись «Roxette» записанная в ходе тура “Travelling the World″, который прошел в 2011-2012 году. Группа отыграла перед 1.5 миллионами человек в 46 странах мира. На протяжении всей карьеры шведский поп-роковый дуэт «Roxette» свыше 30 раз бомбардировал чарты своими синглами, а общий тираж пластинок группы перевалил за 75 миллионов экземпляров.01. Dressed For Success
-02. Sleeping In My Car
-03. The Big L
-04. Silver Blue(   Читать дальше...   )Производство: Швеция / Parlophone, Warner MusicЖанр: Rock, pop, документальныйСубтитры: Вшитые отключаемыеЯзык субтитров: АнглийскийПродолжительность: 01:35:13 + 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF991FC92B43C4166ED30BE6D0A2D05A0F8FBBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747409   (962328) от 19.01.2014
-
-Roxette - Live, Travelling the World (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962328.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертная запись «Roxette» записанная в ходе тура “Travelling the World″, который прошел в 2011-2012 году. Группа отыграла перед 1.5 миллионами человек в 46 странах мира. На протяжении всей карьеры шведский поп-роковый дуэт «Roxette» свыше 30 раз бомбардировал чарты своими синглами, а общий тираж пластинок группы перевалил за 75 миллионов экземпляров.01. Dressed For Success
-02. Sleeping In My Car
-03. The Big L
-04. Silver Blue(   Читать дальше...   )Производство: Швеция / Parlophone, Warner MusicЖанр: Rock, pop, документальныйСубтитры: Вшитые отключаемыеЯзык субтитров: Английский, испанский, немецкийПродолжительность: 01:35:13 + 01:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8C790F72A8AF1326E7022611E5BBACE2B57C20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621785   (961385) от 21.02.2013
-
-Новогодний концерт Венского Филармонического оркестра / Neujahrskonzert 2013 - Franz Welser-Most & Wiener Philharmoniker (2013) Blu-ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии.
-
- Ежегодный Новогодний концерт Венского филармонического оркестра по праву считается одним из крупнейших мировых музыкальных событий года. Это мероприятие, открывающее европейский музыкальный (   Читать дальше...   )Жанр: Классика,Продолжительность: 02:03:03
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

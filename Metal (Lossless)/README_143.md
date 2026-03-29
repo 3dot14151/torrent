@@ -1,3 +1,94 @@
+###  Публикация: 543425   (495598) от 05.09.2012
+
+Eluveitie - The Early Years (2012) [FLAC|Lossless]<Folk Metal/Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_495598.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1: Vên (Re-recorded)
+01. Verja Urit An Bitus (2:17)
+02. Uis Elvetie (4:00)
+03. Oro (1:28)
+04. Lament (4:06)
+05. Druid (6:05)
+06. Divico (3:39)
+07. Jezaig (4:55)Жанр: Folk Metal/Melodic Death MetalПродолжительность: 00:26:30+00:50:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565224   (494781) от 23.07.2022
+
+Organic Infest - Penitence (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Penitence (01:10)
+02. Carnal Waste (03:28)
+03. Suppurative Waste (06:16)
+04. Execrable Butchery (03:52)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525E8A2A8F9EF43A09F0F896297C9F90BF1F9190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565250   (494778) от 23.07.2022
+
+Ossuary Insane - Demonize The Flesh (1998) [FLAC|Lossless|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_494778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallen to the Pits (04:15)
+02. Inverted in Darkness (05:09)
+03. Summoned to Death (03:02)
+04. Imprecari (05:09)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF2412F19778AFF921437154859E9B902D30B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565200   (494675) от 23.07.2022
 
 Bells And Ravens - What Death Cannot End (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
@@ -6,7 +97,7 @@ Bells And Ravens - What Death Cannot End (2022) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494675.jpg" />
+  <img src="Z:/picture/008/save_picture_494675.jpg" />
 </div>
 
 
@@ -35,7 +126,7 @@ Hatriot - The Vale Of Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494674.jpg" />
+  <img src="Z:/picture/008/save_picture_494674.jpg" />
 </div>
 
 
@@ -64,7 +155,7 @@ Demonica - Demonstrous (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494471.jpg" />
+  <img src="Z:/picture/008/save_picture_494471.jpg" />
 </div>
 
 
@@ -93,7 +184,7 @@ ReinXeed - 8 альбомов (2008-2013) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494327.jpg" />
+  <img src="Z:/picture/008/save_picture_494327.jpg" />
 </div>
 
 
@@ -119,7 +210,7 @@ Slayer - Repentless (2015) Limited Box Set Edition 2CD [FLAC|image+.cue]<Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494035.jpg" />
+  <img src="Z:/picture/008/save_picture_494035.jpg" />
 </div>
 
 
@@ -148,7 +239,7 @@ Dark Angel - Time Does Not Heal (1991) Reissue, 1999, Century Media [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493703.jpg" />
+  <img src="Z:/picture/008/save_picture_493703.jpg" />
 </div>
 
 
@@ -177,7 +268,7 @@ Belfegor - The Kingdom of Glacial Palaces (2000) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493352.jpg" />
+  <img src="Z:/picture/008/save_picture_493352.jpg" />
 </div>
 
 
@@ -206,7 +297,7 @@ Monolithe - Okta Khora (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493350.jpg" />
+  <img src="Z:/picture/008/save_picture_493350.jpg" />
 </div>
 
 
@@ -235,7 +326,7 @@ Dying Fetus - Reign Supreme (2012) [APE|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493259.jpg" />
+  <img src="Z:/picture/008/save_picture_493259.jpg" />
 </div>
 
 
@@ -270,7 +361,7 @@ Wardenclyffe - Temple of Solomon (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492685.jpg" />
+  <img src="Z:/picture/008/save_picture_492685.jpg" />
 </div>
 
 
@@ -299,7 +390,7 @@ Hammer Fight - Profound And Profane (2016) [APE|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492684.jpg" />
+  <img src="Z:/picture/008/save_picture_492684.jpg" />
 </div>
 
 
@@ -328,7 +419,7 @@ Paraxism - .xism Excursion (1996) EP [WavPack|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492682.jpg" />
+  <img src="Z:/picture/008/save_picture_492682.jpg" />
 </div>
 
 
@@ -356,7 +447,7 @@ Parthian - Desolation of a Ceaseless Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492680.jpg" />
+  <img src="Z:/picture/008/save_picture_492680.jpg" />
 </div>
 
 
@@ -385,7 +476,7 @@ Mystic Circle - Drachenblut (1998) [FLAC|Lossless|image + .cue] <Symphonic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492675.jpg" />
+  <img src="Z:/picture/008/save_picture_492675.jpg" />
 </div>
 
 
@@ -414,7 +505,7 @@ Nightmare - Aeternam (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Power Metal, Fe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492603.jpg" />
+  <img src="Z:/picture/008/save_picture_492603.jpg" />
 </div>
 
 
@@ -443,7 +534,7 @@ Watain - The Agony & Ecstasy Of Watain (2022) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492597.jpg" />
+  <img src="Z:/picture/008/save_picture_492597.jpg" />
 </div>
 
 
@@ -472,7 +563,7 @@ Yакuzа - Wау Оf Тhe Dеаd (2002) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492579.jpg" />
+  <img src="Z:/picture/008/save_picture_492579.jpg" />
 </div>
 
 
@@ -501,7 +592,7 @@ Sadus - Out for Blood (2006) Enhanced CD Edition [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492090.jpg" />
+  <img src="Z:/picture/008/save_picture_492090.jpg" />
 </div>
 
 
@@ -530,7 +621,7 @@ Brume d'Automne - Fiers et Victorieux (2005) [APE|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491592.jpg" />
+  <img src="Z:/picture/008/save_picture_491592.jpg" />
 </div>
 
 
@@ -559,7 +650,7 @@ Cold Earth - Your Misery, My Triumph (2020) [FLAC|Lossless|image + .cue] <Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491591.jpg" />
+  <img src="Z:/picture/008/save_picture_491591.jpg" />
 </div>
 
 
@@ -588,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491488.jpg" />
+  <img src="Z:/picture/008/save_picture_491488.jpg" />
 </div>
 
 
@@ -617,7 +708,7 @@ Abstrakt Algebra - Abstrakt Algebra (1995) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491487.jpg" />
+  <img src="Z:/picture/008/save_picture_491487.jpg" />
 </div>
 
 
@@ -646,7 +737,7 @@ Entrails - Rise of the Reaper (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491482.jpg" />
+  <img src="Z:/picture/008/save_picture_491482.jpg" />
 </div>
 
 
@@ -660,93 +751,6 @@ Entrails - Rise of the Reaper (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:936E5979DD28C2A9CD97CBB46D50D992B8810681
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404659   (491474) от 26.08.2020
-
-Dead Warrior - Abismos (2013) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Las Puertas Al Abismo
-02. Cosecha De Sangre
-03. En Orbitas De Fuego
-04. Nox Aeterna(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C47CCD2BE12F665C3E967CC439B574E3328809FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404655   (491472) от 26.08.2020
-
-Fuck Off - Hell on Earth II (Revisited & Faster) (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell on earth
-02. Blasphemy
-03. Whom you have never to say his name
-04. Rider from hell(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:515E40B998BC55F73280C26C462640AE4CB46EED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404638   (491471) от 26.08.2020
-
-Riot City - Burn the Night (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Warrior Of Time 5:49
-02 Burn The Night 3:37
-03 In The Dark 5:15
-04 Livin' Fast 2:55(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855FADDD729561B1EEE33C3AF6D0A648EC3532C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

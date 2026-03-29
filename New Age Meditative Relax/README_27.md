@@ -1,3 +1,33 @@
+###  Публикация: 1087859   (143105) от 29.12.2016
+
+Peter Davison - What Happened Next... (2016) [MP3|320 Kbps] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  A Sultry Summer Day [00:05:08]
+02 -  My Toes in the Earth [00:05:18]
+03 -  I See Iris and Her Rose [00:05:07]
+04 -  A Starlit Summer Eve [00:04:49](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:54:21
+Лейбл: Davisounds - 763846976389
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1B2E292E098B3263739848901B130FC91D6EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195370   (142320) от 29.12.2017
 
 Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmatic>
@@ -6,7 +36,7 @@ Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142320.jpg" />
 </div>
 
 
@@ -35,7 +65,7 @@ Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Eth
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138290.jpg" />
 </div>
 
 
@@ -64,7 +94,7 @@ Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137685.jpg" />
 </div>
 
 
@@ -93,7 +123,7 @@ Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrument
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135397.jpg" />
 </div>
 
 
@@ -128,7 +158,7 @@ Deep Forest - Burning (2023) [MP3|320 Kbps] <New Age, Electro>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131718.jpg" />
 </div>
 
 
@@ -157,7 +187,7 @@ TV Girl - Who Really Cares (2016) Digital Album[MP3|320 Kbps] <Hypnotic Pop>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127601.jpg" />
 </div>
 
 
@@ -186,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123311.jpg" />
 </div>
 
 
@@ -215,7 +245,7 @@ Dancing Fantasy - Day Dream (1995) [OGG Vorbis|480 Kbps] <New Age/Meditative/Rel
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122196.jpg" />
 </div>
 
 
@@ -244,7 +274,7 @@ Dancing Fantasy - California Grooves (1991) [OGG Vorbis|480 Kbps] <New Age/Medit
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122164.jpg" />
 </div>
 
 
@@ -273,7 +303,7 @@ VA - B-Tribe - Inner Meditation Journey (2024) [MP3|320 Kbps] <Native American, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117976.jpg" />
 </div>
 
 
@@ -302,7 +332,7 @@ Auscultate - Songs of the Beatles (2002) [MP3|320 Kbps] <Gregorian, A Capella, C
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115549.jpg" />
 </div>
 
 
@@ -331,7 +361,7 @@ Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113915.jpg" />
 </div>
 
 
@@ -360,7 +390,7 @@ VA - Relax. Anti Stress Vol. 2 (2012) [MP3|320 кб/с]<Relax, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102364.jpg" />
 </div>
 
 
@@ -395,7 +425,7 @@ Iana - Native Dancer, Vol. 2 (2013) [MP3|320 Kbps] <Native American, New Age, Wo
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101240.jpg" />
 </div>
 
 
@@ -424,7 +454,7 @@ AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100321.jpg" />
 </div>
 
 
@@ -458,7 +488,7 @@ Inti Cesar Malasquez - Searching For The Trail (1995) [MP3|320 кб/с]<New age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97805.jpg" />
 </div>
 
 
@@ -484,7 +514,7 @@ Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97783.jpg" />
 </div>
 
 
@@ -519,7 +549,7 @@ VA - Ayurveda Lounge. Relaxation & Meditation. Volume 2 (2012) [MP3|320 кб/с]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97675.jpg" />
 </div>
 
 
@@ -550,7 +580,7 @@ VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94941.jpg" />
 </div>
 
 
@@ -585,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82728.jpg" />
 </div>
 
 
@@ -620,7 +650,7 @@ VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79120.jpg" />
 </div>
 
 
@@ -655,7 +685,7 @@ Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69538.jpg" />
 </div>
 
 
@@ -684,7 +714,7 @@ Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69537.jpg" />
 </div>
 
 
@@ -713,7 +743,7 @@ Wise Hand feat Nouri - Manschoud (1997) [OGG Vorbis|480 Kbps] <Electronic, New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68805.jpg" />
 </div>
 
 
@@ -742,7 +772,7 @@ Herencias - Spirit Songs (2008) [MP3|320 Kbps] <Native American, New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35831.jpg" />
 </div>
 
 
@@ -756,35 +786,6 @@ Herencias - Spirit Songs (2008) [MP3|320 Kbps] <Native American, New Age, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FFDBD61D226CD6AA8DA36DC81F3C87BEEBFD206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763749   (35206) от 04.12.2024
-
-The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wairapasunquy [06:12]
-02. The Big Circle [05:07]
-03. The Last Mohicans [04:17]
-04. Precious Water [05:53](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67B26F9DC492A23AD203ED7FB6F131F9E4F1266
 ```
 
 https://mybot314.ru/tekegram_catalog/

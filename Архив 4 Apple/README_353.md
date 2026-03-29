@@ -1,3 +1,110 @@
+###  Публикация: 1564693   (498589) от 20.07.2022
+
+SyncTime 4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498589.jpg" />
+</div>
+
+
+###  Подробнее
+
+SyncTime - самое простое решение для синхронизации ваших файлов. Вы когда-нибудь думали, чтобы вы могли легко обновлять все свои резервные копии, распределенные по многим устройствам? SyncTime просто сделает это. SyncTime способен на очень много вещей, но так прост в использовании. От ручной, плановой или полностью автоматической синхронизации до фоновой синхронизации, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2021 DESAIREMПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD256A9EF126B4169A49A5E0E4DECD293DC8F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564733   (498588) от 20.07.2022
+
+Nevercenter CameraBag Photo 2022.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498588.jpg" />
+</div>
+
+
+###  Подробнее
+
+CameraBag позволяет мгновенно применить одну из сотен красивых предустановок к вашим фотографиям, а затем погрузиться глубже с ультра-интуитивными профессиональными настройками.
+Благодаря CameraBag с предустановками, специально разработанными для портретов, различными пейзажными сценариями, точной эмуляцией аналогового кинопленки из прошлого, популярными современными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2021 Nevercenter Ltd. Co.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA86865CF2E80F561166FF6ADD297F5E82B431F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564823   (498587) от 20.07.2022
+
+Grids for Instagram 8.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grids переносит лучшее из Instagram на ваш Mac. Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2022Разработчик: © 2017 ThinkTime CreationsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CA31A0F17926FFDC0BCCB1C619AAD3E071C314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564689   (498585) от 20.07.2022
+
+Retrobatch Pro 1.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гибкая, супер заряженная, пакетная обработка изображений для вашего Mac.
+Процессор пакетных изображений на основе узлов означает, что вы можете смешивать, сочетать и комбинировать различные операции вместе, чтобы сделать идеальный рабочий процесс
+Конвертируйте PSD-файлы в HEIC, JPEG, PDF, PNG или TIFF.Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2018 Flying Meat Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE668433A6DDCAC272E2FDF0E5186BF9A4C41C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564694   (498582) от 20.07.2022
 
 FSNotes 5.4.5 [Multi/Ru]
@@ -6,7 +113,7 @@ FSNotes 5.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498582.jpg" />
+  <img src="Z:/picture/008/save_picture_498582.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Nova 9.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498576.jpg" />
+  <img src="Z:/picture/008/save_picture_498576.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Pro Microphone: Audio Recorder 1.4.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498575.jpg" />
+  <img src="Z:/picture/008/save_picture_498575.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ PDF Reader Pro Edition 2.8.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498574.jpg" />
+  <img src="Z:/picture/008/save_picture_498574.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ OnyX 4.2.1 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498531.jpg" />
+  <img src="Z:/picture/008/save_picture_498531.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ Kaleidoscope 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498528.jpg" />
+  <img src="Z:/picture/008/save_picture_498528.jpg" />
 </div>
 
 
@@ -166,7 +273,7 @@ NCH VideoPad Video Editor Pro 11.77 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498517.jpg" />
+  <img src="Z:/picture/008/save_picture_498517.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ Adobe Photoshop for Mac 2022 v23.4.2 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498372.jpg" />
+  <img src="Z:/picture/008/save_picture_498372.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ QuarkXPress 2015 v11.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498343.jpg" />
+  <img src="Z:/picture/008/save_picture_498343.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ Wondershare PDFelement with OCR 5.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498276.jpg" />
+  <img src="Z:/picture/008/save_picture_498276.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ Xliff Editor 2.9.10.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497796.jpg" />
+  <img src="Z:/picture/008/save_picture_497796.jpg" />
 </div>
 
 
@@ -298,7 +405,7 @@ Cookie 6.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497794.jpg" />
+  <img src="Z:/picture/008/save_picture_497794.jpg" />
 </div>
 
 
@@ -325,7 +432,7 @@ Hides 5.6.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497793.jpg" />
+  <img src="Z:/picture/008/save_picture_497793.jpg" />
 </div>
 
 
@@ -351,7 +458,7 @@ PatterNodes 3 v3.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497786.jpg" />
+  <img src="Z:/picture/008/save_picture_497786.jpg" />
 </div>
 
 
@@ -378,7 +485,7 @@ FastScripts 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497785.jpg" />
+  <img src="Z:/picture/008/save_picture_497785.jpg" />
 </div>
 
 
@@ -405,7 +512,7 @@ Privatus 6 v6.3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497783.jpg" />
+  <img src="Z:/picture/008/save_picture_497783.jpg" />
 </div>
 
 
@@ -431,7 +538,7 @@ Nevercenter CameraBag Pro 2022.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497779.jpg" />
+  <img src="Z:/picture/008/save_picture_497779.jpg" />
 </div>
 
 
@@ -457,7 +564,7 @@ WiFiSpoof 3.8.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497733.jpg" />
+  <img src="Z:/picture/008/save_picture_497733.jpg" />
 </div>
 
 
@@ -483,7 +590,7 @@ Debookee v8.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497732.jpg" />
+  <img src="Z:/picture/008/save_picture_497732.jpg" />
 </div>
 
 
@@ -509,7 +616,7 @@ Postico 1.5.21 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497729.jpg" />
+  <img src="Z:/picture/008/save_picture_497729.jpg" />
 </div>
 
 
@@ -537,7 +644,7 @@ DjVu Reader Pro 2.6.5 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497722.jpg" />
+  <img src="Z:/picture/008/save_picture_497722.jpg" />
 </div>
 
 
@@ -564,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497274.jpg" />
+  <img src="Z:/picture/008/save_picture_497274.jpg" />
 </div>
 
 
@@ -575,117 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D86EE606951EE92CD7F3A0F304C730E6067AE1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542660   (497075) от 04.09.2012
-
-NeoOffice 3.3 [Eng, Rus]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497075.jpg" />
-</div>
-
-
-###  Подробнее
-
-NeoOffice это полнофункциональный набор офисных приложений (в том числе для обработки текстов, создания электронных таблиц, презентаций и программ для работы) для Mac OS X. NeoOffice создан на основе офисного пакета OpenOffice.org и включает в себя десятки родных для Mac функций, подходит для импортирования, редактирования и обмена файлами с другими популярными офисными программами, такими как Microsoft Office.
-
-В отличие от OpenOffice.org, NeoOffice не требует оконной системы X11. Это свободный, бесплатный продукт с открытым исходным кодом под GNU General Public License (GPL). NeoOffice является полностью функциональным и стабильным продуктом для повседневного использования, который постоянно развивается, регулярно обновляясь и улучшаясь.Название программы: NeoOffice
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565079   (496808) от 22.07.2022
-
-SessionRestore for Safari 2.6.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение SessionRestore предназначено, чтобы помочь при работе с браузером Safari, работает как расширение.
-Сохраните сеанс просмотра, закройте все окна и начните новый сеанс. Восстановить сеанс, когда вам это понадобится, очень просто. Включите удобную функцию автосохранения, чтобы всегда иметь резервную копию.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38332DA990210B822FD93C2F507030C27208C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565193   (496806) от 22.07.2022
-
-TextMan 1.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496806.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением TextMan вы избавитесь с рутиной работой по набору текста на веб-сайтах, в файлах формата PDF, изображениях или системных пользовательских интерфейсах. Просто выберите область экрана так же, как если бы вы делали снимок экрана, и найдите весь распознанный текст в буфере обмена, готовый для вставки куда угодно.Тип издания: macOS SoftwareРелиз состоялся: 19.07.2022Разработчик: © 2022 KF Interactive GmbHПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA22596F98B76FF0997F8BC3055B0536DB983180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381536   (496772) от 30.08.2011
-
-Civilization V: Campaign Edition [Native]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Civilization V – продолжение легендарной глобальной стратегии, разошедшейся по всему миру тиражом более 9 миллионов экземпляров. В пятой части игрокам предложено взять под свою опеку одну из восемнадцати наций и привести ее сквозь тысячелетия — от каменного века до космической эры — к мировому господству.
-
-Sid Meier's Civilization® V: Campaign  объединяет все функции и возможности одиночной кампании  Civilization V. Станьте властелином мира путем создания и развития своей цивилизации, от первых племен до космической эпохи: ведите войны, используйте дипломатию, открывайте для себя новые технологии, соревнуйтесь с некоторыми из величайших лидеров в истории и постройте самую мощную империю мира.
-
-Civilization V: Campaign Edition включает the Babylon Civilization Pack и их правителя Nebuchadnezzar II, а также Монгольскую цивилизацию и дополнительные сценарии.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D0B5A4B5D8F08699ED81BE6D1ED3DFD74DFDE0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1197026   (817287) от 06.01.2018
+
+VA - Back In Disco (2018) vol.4 [MP3|320 Kbps] <Electronic, Disco, Pop Rock, Synth-pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_817287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abba - Gimme Gimme Gimme (A Man After Midnight) (4:53)
+02. Area Code (212) - Manhattan Shuffle (6:12)
+03. Baccara - Sorry, I'm A Lady (3:39)
+04. Bee Gees - Tragedy (5:03)(   Читать дальше...   )Жанр: Electronic, Disco, Pop Rock, Synth-popПродолжительность: 05:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9808022F820AD4B218DDC811FD15DE583CA46F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117250   (817193) от 23.03.2017
+
+VA - Музыкальный подарок на радио Europa Plus выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_817193.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alina Tan - Зажигай 3:27
+002. Алексей Кабанов - Странные 4:05
+003. Глаза - Это Он Мама 3:29
+004. Алекса Пол - Запах От Dior 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9900654CA811424AE3F546C4017DED18D200628F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117241   (817187) от 23.03.2017
 
 VA - Музыкальный презент хорошей музыки от Европы Плюс. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -6,7 +64,7 @@ VA - Музыкальный презент хорошей музыки от Ев
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817187.jpg" />
+  <img src="Z:/picture/008/save_picture_817187.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Весенние заводные хиты (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817050.jpg" />
+  <img src="Z:/picture/008/save_picture_817050.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - 100-ка популярных весенних хитов на Europa Plus 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817049.jpg" />
+  <img src="Z:/picture/008/save_picture_817049.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Mr. Zivago - Best Of (2017) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817041.jpg" />
+  <img src="Z:/picture/008/save_picture_817041.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Лучшая дискотека на Europa Plus выпуск № 4 (2017) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816907.jpg" />
+  <img src="Z:/picture/008/save_picture_816907.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Dieter Bohlen & Blue System - Threemixed (The Remix Album) (2008) [MP3|320 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816889.jpg" />
+  <img src="Z:/picture/008/save_picture_816889.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Этой ночью. Сборник хитов от Радио Динами
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816784.jpg" />
+  <img src="Z:/picture/008/save_picture_816784.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VА - Dіsсо 80's (2015) [MP3|320 Kbps] <Disco, Dаnсе>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816638.jpg" />
+  <img src="Z:/picture/008/save_picture_816638.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Simply Red - 25 Best Songs (2014) [MP3|~245 кб/с]<Pop, Soul>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814090.jpg" />
+  <img src="Z:/picture/008/save_picture_814090.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Happy Love Day (2020) [MP3|320 Kbps] <Pop, Lyric>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813750.jpg" />
+  <img src="Z:/picture/008/save_picture_813750.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Schlagerparade (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813749.jpg" />
+  <img src="Z:/picture/008/save_picture_813749.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Pop Jam Vol.03 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813738.jpg" />
+  <img src="Z:/picture/008/save_picture_813738.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Зарубежная Дискотека ХХ Века - 7 (2016) [MP3|320 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813416.jpg" />
+  <img src="Z:/picture/008/save_picture_813416.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - The Best of 80s Vol.2 (2016) [MP3|320 кб/с] <Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813253.jpg" />
+  <img src="Z:/picture/008/save_picture_813253.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Today's Best Ballads (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811726.jpg" />
+  <img src="Z:/picture/008/save_picture_811726.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Ukrainian Hits - 33 Tracks (Volume 3) (2017) [MP3|320 Kbps] <Pop, Rock, Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811609.jpg" />
+  <img src="Z:/picture/008/save_picture_811609.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Весна В Эфире: Популярный Русский Хит (2017)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811476.jpg" />
+  <img src="Z:/picture/008/save_picture_811476.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Зажигательный Eurodance Vol.2 (2017) [MP3|192-320 Kbps] <Eurod
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811366.jpg" />
+  <img src="Z:/picture/008/save_picture_811366.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Top 100 Hardstyle Dance Energy (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810344.jpg" />
+  <img src="Z:/picture/008/save_picture_810344.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - De Top 100 Aller Tijden 1975 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810133.jpg" />
+  <img src="Z:/picture/008/save_picture_810133.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - German Top 100 Single Charts 15.05.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810130.jpg" />
+  <img src="Z:/picture/008/save_picture_810130.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Весенняя Сенсация: Популярный Русский Ми
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809908.jpg" />
+  <img src="Z:/picture/008/save_picture_809908.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - The Best 80's Vol.1 - Maxi Version (2016) [MP3|192-320 кб/с] <Pop, Disco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809670.jpg" />
+  <img src="Z:/picture/008/save_picture_809670.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Положительный заряд отличного настроени
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809597.jpg" />
+  <img src="Z:/picture/008/save_picture_809597.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Положительный заряд отличного настроени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:385C4E5AC492F3A1BA33026F9F1EF62C80BB87C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119016   (809596) от 27.03.2017
-
-VA - Танцевальная вечеринка на Hit FM выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809596.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Слава Басюл - Ты Меня Ранишь Поцелуями 4:45
-002. Тина Кароль - Lost In The Rain 3:18
-003. Алина Башкина Feat. Dj Andrey Sanin - Ты Изменил Мою Жизнь 3:18
-004. Oleynik - Остановись 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656622359110D0CD64D045104F76D61EE9683983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119020   (809465) от 27.03.2017
-
-VA - Лучший весенний хит. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809465.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. София Куценко - Луна 3:34
-002. Виталий Козловский - Мое Желание 3:31
-003. Зара - Забыть О Тебе 3:32
-004. Bubble Gum - Вытворяют Чудеса 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EF37BF9DD224E42972F21A0E9191B6EAB90162
 ```
 
 https://mybot314.ru/tekegram_catalog/

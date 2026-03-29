@@ -6,7 +6,7 @@ Adobe XD 31.0.12.23 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736602.jpg" />
+  <img src="Z:/picture/008/save_picture_736602.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GOM Player Plus 2.3.55.5319 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736601.jpg" />
+  <img src="Z:/picture/008/save_picture_736601.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: В погоне за классикой / Chasing Classic Cars (2012-
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736571.jpg" />
+  <img src="Z:/picture/008/save_picture_736571.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Notepad3 5.20.722.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736570.jpg" />
+  <img src="Z:/picture/008/save_picture_736570.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ PortableApps.com Platform 17.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736565.jpg" />
+  <img src="Z:/picture/008/save_picture_736565.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Light Image Resizer 6.0.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736564.jpg" />
+  <img src="Z:/picture/008/save_picture_736564.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ iMazing 2.11.8 (build 13733) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736530.jpg" />
+  <img src="Z:/picture/008/save_picture_736530.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Rock of Ages 3: Make & Break (2020) [Ru/Multi] (94922) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736488.jpg" />
+  <img src="Z:/picture/008/save_picture_736488.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ djay - DJ App & AI Mixer 3.1.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736443.jpg" />
+  <img src="Z:/picture/008/save_picture_736443.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Smooze Pro 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736439.jpg" />
+  <img src="Z:/picture/008/save_picture_736439.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Firetask - Project-oriented GTD Task Management 4.6.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736421.jpg" />
+  <img src="Z:/picture/008/save_picture_736421.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Task Office 7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736419.jpg" />
+  <img src="Z:/picture/008/save_picture_736419.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Animated Wallpapers 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736417.jpg" />
+  <img src="Z:/picture/008/save_picture_736417.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ PrivaZer 4.0.40 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736400.jpg" />
+  <img src="Z:/picture/008/save_picture_736400.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ PC Cleaner Pro 8.2.0.13 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736382.jpg" />
+  <img src="Z:/picture/008/save_picture_736382.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ WSCC (Windows System Control Center) 7.0.0.7 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736381.jpg" />
+  <img src="Z:/picture/008/save_picture_736381.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Volume2 1.1.8.456 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736378.jpg" />
+  <img src="Z:/picture/008/save_picture_736378.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ MAGIX SOUND FORGE Audio Studio 16.0.0.39 (x86/x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736376.jpg" />
+  <img src="Z:/picture/008/save_picture_736376.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Windows 10 (v21h2) x64 PRO by KulHunter v3.1 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736365.jpg" />
+  <img src="Z:/picture/008/save_picture_736365.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ mp3DirectCut 2.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736360.jpg" />
+  <img src="Z:/picture/008/save_picture_736360.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Auslogics Windows Slimmer 3.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736357.jpg" />
+  <img src="Z:/picture/008/save_picture_736357.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ AusLogics Disk Defrag Ultimate 4.12.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736332.jpg" />
+  <img src="Z:/picture/008/save_picture_736332.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ MediaHuman YouTube Downloader 3.9.9.68 (2801) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736330.jpg" />
+  <img src="Z:/picture/008/save_picture_736330.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ EyeScream - Noir (2014) [FLAC|Lossless|WEB-DL]<IDM, Experimental, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736310.jpg" />
+  <img src="Z:/picture/008/save_picture_736310.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Foxit Reader 11.2.1.53537 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736293.jpg" />
+  <img src="Z:/picture/008/save_picture_736293.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Windows Update Blocker 1.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736252.jpg" />
+  <img src="Z:/picture/008/save_picture_736252.jpg" />
 </div>
 
 

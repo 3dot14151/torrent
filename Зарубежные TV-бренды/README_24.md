@@ -1,3 +1,107 @@
+###  Публикация: 164658   (799432) от 03.04.2017
+
+NG: Запреты / Taboo (2002-2009) SATRip [30 серий]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_799432.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждой культуры существуют свои традиции и свои правила жизни. Мы знакомимся с самыми странными и порой неприемлемыми для природы человека обрядами и ритуалами, которые являются неотъемлемой частью культуры некоторых народностей на нашей земле. Что заставляет некоторых людей вставлять стальные рыболовные крючки в кожу на спине своего приятеля, чтобы подвесить его (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~30 -00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122161   (799181) от 04.04.2017
+
+Discovery. Техногеника. Стратегические Бомбардировщики (2017) HDTVRip [H.264/720p-LQ] (Сезон 2, серия 11 из 13)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стратегические бомбардировщики интересны не только как памятники холодной войны, но в первую очередь как машины, которые воплощают передовые решения в области конструкции планера, новых материалов и самых совершенных двигателей. Гонка вооружений между СССР и США привела к созданию практически совершенных стратегических бомбардировщиков, способствуя развитию не только (   Читать дальше...   )Телекомпания: Discovery Channel РоссияЖанр: Документальный, История, ТелепередачаПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3601468B8B6D59BCE490A1F7212F97512703482D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121876   (799159) от 04.04.2017
+
+BBC. Самые милые животные / Super Cute Animals (2014) HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некоторые их них симпатично выглядят, некоторые - забавно себя ведут, но ясно одно - мир полон милых животных. Эта передача расскажет о том, что такое "мило" с научной точки зрения. Узнайте, почему чарующий звук спящих колибри - это вопрос их выживания. Морские выдры выглядят как комочки меха, но теперь вы можете узнать, зачем им на самом деле столько меха. (   Читать дальше...   )Телекомпания: Великобритания / BBCЖанр: Документальный, познавательный, природа, животныеРежиссер: Хлое ПирнПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F02AEB23ED07A2DAD862CD275170D62E48DA95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121975   (799152) от 04.04.2017
+
+Тёмная сторона Всемирной Паутины / Inside the Dark Web (2014) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_799152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Должна ли сеть быть свободной? Или ее нужно контролировать? Многие обеспокоены тем, что правительство и разнообразные корпорации могут следить за каждым нашим шагом. Есть люди, которые раз за разом отвечают на это, изобретая все новые системы защиты своей информации. Однозначны ли эти технологии? Ведь в интернете можно купить все - от оружия до личных данных кредитных (   Читать дальше...   )Телекомпания: Horizon, BBCЖанр: ДокументальныйРежиссер: Майк РедфордПеревод: "Видеофильм ТВ", двуголосый закадровый, профессиональныйПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6FB210BD2AA5D38BC06C4A9C36D3ECC4532802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121959   (799119) от 04.04.2017
 
 BBC. Великий рифт: Дикое сердце Африки / Great Rift: Africa's Wild Heart (2010) BDRip [H.264/1080p] (серии 1-3 из 3)
@@ -6,7 +110,7 @@ BBC. Великий рифт: Дикое сердце Африки / Great Rift:
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799119.jpg" />
+  <img src="Z:/picture/008/save_picture_799119.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BBC Horizon: Хаббл. Открытие тайн космоса / Hubble: The 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798968.jpg" />
+  <img src="Z:/picture/008/save_picture_798968.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ History Channel. Соединенные штуки Америки / United Stuff
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798689.jpg" />
+  <img src="Z:/picture/008/save_picture_798689.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ History Channel. Соединенные штуки Америки / United Stuff
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798663.jpg" />
+  <img src="Z:/picture/008/save_picture_798663.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798385.jpg" />
+  <img src="Z:/picture/008/save_picture_798385.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW: Холодное королевство снежного барса / The F
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798375.jpg" />
+  <img src="Z:/picture/008/save_picture_798375.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798370.jpg" />
+  <img src="Z:/picture/008/save_picture_798370.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ NG: Самый опасный наркотик / The World`s Most Dangerous Drug
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798359.jpg" />
+  <img src="Z:/picture/008/save_picture_798359.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG. Дикая природа Тайваня: остров джунглей / Wi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797759.jpg" />
+  <img src="Z:/picture/008/save_picture_797759.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797540.jpg" />
+  <img src="Z:/picture/008/save_picture_797540.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ NG. Кунг-Фу – Мастерство убийства / Kung Fu Killers (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797473.jpg" />
+  <img src="Z:/picture/008/save_picture_797473.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797353.jpg" />
+  <img src="Z:/picture/008/save_picture_797353.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ History Channel. Нацистский "Титаник" / The Nazi Titanic (2012)
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797345.jpg" />
+  <img src="Z:/picture/008/save_picture_797345.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ BBC: Секреты космических войн / Space War Secrets (2020) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797340.jpg" />
+  <img src="Z:/picture/008/save_picture_797340.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797338.jpg" />
+  <img src="Z:/picture/008/save_picture_797338.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ NGW: Наследие леопарда / The Leopard Legacy (2021) WEBRip [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797332.jpg" />
+  <img src="Z:/picture/008/save_picture_797332.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ NG: Дикая природа Филиппин / Untamed Philippines (2018) WEBR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797138.jpg" />
+  <img src="Z:/picture/008/save_picture_797138.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797132.jpg" />
+  <img src="Z:/picture/008/save_picture_797132.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Discovery. Северная Америка / North America (2013) HDTV [H.264/10
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797130.jpg" />
+  <img src="Z:/picture/008/save_picture_797130.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ BBC. Тайны вселенной: Великие ученые своими с�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797118.jpg" />
+  <img src="Z:/picture/008/save_picture_797118.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ NGW: Дикие Филиппины. Скрытые чудеса / Untamed Philip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797109.jpg" />
+  <img src="Z:/picture/008/save_picture_797109.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796686.jpg" />
+  <img src="Z:/picture/008/save_picture_796686.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF4542DFB2C8A8F718CE45C6461A7661C637E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 725188   (796597) от 27.04.2016
-
-NG. Мегазаводы: Wargaming / Ultimate Factories: Wargaming (2013) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>Мега-Проекты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имея 40 млн. фанатов по всему миру, компания "Wargaming" прилагает все усилия, чтобы как можно скорее выпустить новую игру - "Мир танков".Жанр: Документальный, игрыПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA078F6C5A8AC9E63825656D58E3DAF0D67B7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385908   (796549) от 26.05.2020
-
-NG: Дикая природа Новой Зеландии: затерянный рай / Wild New Zealand: Lost Paradise (2017) WEBRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эволюция животного и растительного мира в своем буйном развитии создала в Новой Зеландии таких редких и необычных представителей дикой природы, которые превратили ее в настоящую заповедную страну, населенную диковинными созданиями.Производство: Новая Зеландия, Natural History New Zealand for National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Крэйг МидеПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC092C0058120427AA2431C9FAAB5F9CED238514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385561   (796541) от 26.05.2020
-
-NG: Земля под рентгеном / X-Ray Earth (2020) HDTVRip [H.264/720p-LQ] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Под нашими ногами, под триллионами тонн камня, скрываются удивительные и смертельные секреты. Землетрясения, цунами, извержения вулканов - все это вызвано скрытыми силами глубоко внутри нашей планеты. Теперь, используя последние научные данные от датчиков и сканирования поверхности, мы можем сделать рентгеновские снимки Земли, чтобы выявить опасности, запертые внутри (   Читать дальше...   )Производство: Великобритания, BLINK FILMS for National GeographicЖанр: Документальный, Научно-популярныйРежиссер: Дэн ЧамберсПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 3 х ~ 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273B63947BE67FE5F43DF4CF5EA0354FE3853EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321611   (796508) от 26.05.2020
-
-BBC: Удивительный мир данных / The Joy of Data (2016) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Порой кажется, что наш мир затопили потоки данных. Их собирают, передают, обрабатывают и пытаются расшифровать. Они накатывают волна за волной, от новостей и сообщений до измерения шагов. И чем больше мы вычерпываем их, тем больше поступает. Мы приобретаем данные, пытаемся в них выплыть, иногда тонем. С помощью современных технологий мы количественно измеряем самих (   Читать дальше...   )Производство: Wingspan Productions, BBCЖанр: ДокументальныйРежиссер: Catherine GaleАктеры: Hannah FryПеревод: Двуголосый профессиональный (Первый ТВЧ)Продолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B502D14C197B02A0619080A12BFBEC9F516509CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

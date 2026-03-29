@@ -1,3 +1,96 @@
+###  Публикация: 163853   (985086) от 08.01.2010
+
+Смешарики- Песни из мультфильма. Выпуск 1. (2009) [MP3|320kbps]
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985086.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.От винта
+2.Марафонец
+3.Бедненький больной
+4.Право на одиночество
+5.Куда уходит старый год?
+6.Славный город Кострома
+7.Песенка о моде
+8.Вести-бу-би-лю-би-бу
+9.Новогодняя колыбельная
+10.Мнем мы мнем(   Дальше...)Жанр: Soundtrack
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355156   (984914) от 25.01.2020
+
+Андрей Варламов & Шоу-группа Улыбка - 100% Детский Хит (Выпуск 3) (2019) [MP3|320 Kbps] <Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984914.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На детской площадке (feat. Андрей Варламов)
+2. Люблю я грозы
+3. Цветные дожди
+4. Ночное рандеву(   Читать дальше...   )Жанр: Детские песниПродолжительность: 03:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8878AA0745E29F1F409E4D28D4F4EC43F0AD8551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355153   (984913) от 25.01.2020
+
+Волшебники двора - Шла Саша по шоссе (2020) [MP3|320 Kbps] <Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984913.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Шла Саша по шоссе
+3. Новогодние снежинки
+4. Плакали зверушки(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:30:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C77F19348AB9D3CB232BFBBEAE3A2ADB18C2E64B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 164767   (984125) от 09.01.2010
 
 СтолЬный градЪ | Русские народные сказки от сестрицы Аленушки (2008) [MP3]
@@ -6,7 +99,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984125.jpg" />
 </div>
 
 
@@ -37,7 +130,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984069.jpg" />
 </div>
 
 
@@ -65,7 +158,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980036.jpg" />
 </div>
 
 
@@ -91,7 +184,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979877.jpg" />
 </div>
 
 
@@ -117,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979423.jpg" />
 </div>
 
 
@@ -152,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978964.jpg" />
 </div>
 
 
@@ -178,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978524.jpg" />
 </div>
 
 
@@ -204,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978523.jpg" />
 </div>
 
 
@@ -230,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978517.jpg" />
 </div>
 
 
@@ -256,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978496.jpg" />
 </div>
 
 
@@ -282,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978330.jpg" />
 </div>
 
 
@@ -309,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977659.jpg" />
 </div>
 
 
@@ -339,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977566.jpg" />
 </div>
 
 
@@ -365,7 +458,7 @@ VA - Under Green Corn Moon: Native American Lullabies - Индейские ко�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976584.jpg" />
 </div>
 
 
@@ -394,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973164.jpg" />
 </div>
 
 
@@ -421,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972812.jpg" />
 </div>
 
 
@@ -447,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971989.jpg" />
 </div>
 
 
@@ -473,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970735.jpg" />
 </div>
 
 
@@ -499,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968802.jpg" />
 </div>
 
 
@@ -525,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968756.jpg" />
 </div>
 
 
@@ -552,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966200.jpg" />
 </div>
 
 
@@ -578,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964476.jpg" />
 </div>
 
 
@@ -606,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961936.jpg" />
 </div>
 
 
@@ -617,90 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F3E8698A7ED1501DE7184455265DD01C9705BE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360234   (961931) от 14.02.2020
-
-Джанни Родари | Волшебный барабан (1954) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пожалел солдат старушку, последнюю монетку ей отдал. За это сделала она его барабан волшебным: стоит только заиграть на нем, и кто его услышит - пустится в пляс.Жанр: Сказка. РадиоспектакльАктеры: Борис Толмазов, Милица Лаврова, Сергей Цейц, Михаил Абрамов и др.Продолжительность: 00:14:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C429F5C9F7A061537E9542FD5CE422714FE49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278133   (960330) от 03.01.2011
-
-VA - Планета хитов. Детям. Природа. (2006) [MP3|320 kbps]<Детская музыка>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960330.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. COUNTRY : Beyond the green mountain pastures
-2. WOOD-LAND : Up the blue river
-3. FOREST : Streamlet in the wet magic forest
-4. TROPICS : At the equator(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2E17EA245022BBBE27433ECC0FB1AE05877C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278160   (960324) от 03.01.2011
-
-Julio Kladniew - Babies Go Bach (2003) [MP3|192 kbps]<Классика для детей>
-
->>Аудио для детей и родителей
->>Классика для мам и малышей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960324.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prelude in C Major BWV 846 a
-2. Jesu, Joy of man´s desiring - Cantata BWV 147
-3. Orchestral Suite Nro. 2 - Minuet
-4. Sheep may safely graze - Cantata BWV 208(   Читать дальше...   )Жанр: Классика для детейПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF8DCCB6617C82E334010B348CE574F07D2C465
 ```
 
 https://mybot314.ru/tekegram_catalog/

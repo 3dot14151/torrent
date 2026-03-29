@@ -6,7 +6,7 @@ CCleaner 5.52.6967 Free_Professional_ Business_Technician Edition RePack (& Port
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787152.jpg" />
+  <img src="Z:/picture/008/save_picture_787152.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DxO PhotoLab 2 ELITE Edition 2.1.2.20 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787151.jpg" />
+  <img src="Z:/picture/008/save_picture_787151.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Adobe Photoshop CC 2019 (20.0.2) x64 Portable by punsh (with Plugins) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787150.jpg" />
+  <img src="Z:/picture/008/save_picture_787150.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787149.jpg" />
+  <img src="Z:/picture/008/save_picture_787149.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ PhoneRescue for iOS 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787138.jpg" />
+  <img src="Z:/picture/008/save_picture_787138.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ iToolab SIMUnlocker 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787131.jpg" />
+  <img src="Z:/picture/008/save_picture_787131.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Sketch 80.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787120.jpg" />
+  <img src="Z:/picture/008/save_picture_787120.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ RegCool 1.201 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787096.jpg" />
+  <img src="Z:/picture/008/save_picture_787096.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ FinePrint Software (FinePrint 11.05 / pdfFactory Pro 8.05) RePack by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787079.jpg" />
+  <img src="Z:/picture/008/save_picture_787079.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ FinePrint 11.05 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787073.jpg" />
+  <img src="Z:/picture/008/save_picture_787073.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Emurasoft EmEditor Professional 21.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787071.jpg" />
+  <img src="Z:/picture/008/save_picture_787071.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Wise Care 365 Pro 6.1.3.600 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787065.jpg" />
+  <img src="Z:/picture/008/save_picture_787065.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Futuremark PCMark 10 Professional Edition 2.1.2532 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787047.jpg" />
+  <img src="Z:/picture/008/save_picture_787047.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ ZW3D 2022 SP [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787046.jpg" />
+  <img src="Z:/picture/008/save_picture_787046.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ SoftPerfect RAM Disk 4.3.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787044.jpg" />
+  <img src="Z:/picture/008/save_picture_787044.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WinToHDD 5.4 Release 1 Free / Pro / Enterprise / Technician RePack (& Portable) 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787037.jpg" />
+  <img src="Z:/picture/008/save_picture_787037.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Spectral Voice - Necrotic Doom (2015) [FLAC|Lossless|image + .cue] <Death, Doom 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787035.jpg" />
+  <img src="Z:/picture/008/save_picture_787035.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Realmac 8 8.1 RapidWeaver Final Candidate 7 (build 20573b) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787025.jpg" />
+  <img src="Z:/picture/008/save_picture_787025.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Mum & Dad - Castle Heights (2001) Single [FLAC|Lossless|tracks + .cue] <Folk Roc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787024.jpg" />
+  <img src="Z:/picture/008/save_picture_787024.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ TrashMe 2.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787020.jpg" />
+  <img src="Z:/picture/008/save_picture_787020.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Annie Moscow - Passing Trains (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787016.jpg" />
+  <img src="Z:/picture/008/save_picture_787016.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Ultra Mood - Gatherings (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787011.jpg" />
+  <img src="Z:/picture/008/save_picture_787011.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ VA - Fokuz Recap (2018) [MP3|320 Kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787010.jpg" />
+  <img src="Z:/picture/008/save_picture_787010.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787003.jpg" />
+  <img src="Z:/picture/008/save_picture_787003.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Hardstyle Classics Part 4 (2019) [MP3|320 Kbps] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786979.jpg" />
+  <img src="Z:/picture/008/save_picture_786979.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Detwinner 2.03.010 (& Portable) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786971.jpg" />
+  <img src="Z:/picture/008/save_picture_786971.jpg" />
 </div>
 
 

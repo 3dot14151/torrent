@@ -1,3 +1,107 @@
+###  Публикация: 726175   (340868) от 24.11.2013
+
+Журнал | Electronics Projects. Volume 15 (2007) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340868.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 15-м выпуске серии Electronics Projects даны описания около 90 электронных схем и схемных решений устройств различного назначения. Все конструкции проверены на практике.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA0FDE9333B7DACF4F8ACE1EB999AC923945CD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 726183   (340526) от 24.11.2013
+
+Журнал | CQ Amateur Radio №11 (ноябрь 2013) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский журнал, посвященный радиосвязи на КВ и УКВ. В каждом номере описания различной аппаратуры, радиолюбителские конструкции и антенны, результаты различных соревнований по радиосвязи на КВ и УКВ и самая последняя DX-info.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06242298A5323E4046A31E9ADFDB688737441457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840256   (337779) от 11.11.2014
+
+Журнал | Nuts and Volts №9 (сентябрь 2014) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337779.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Nuts and Volts" - популярный журнал по электронным компонентам и схемотехнике для любителей и специалистов любого уровняФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C85B45ED21FDA1E1D7A1FE48BBB32F41FEBF523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 840274   (337669) от 11.11.2014
+
+Журнал | Nuts And Volts №10 (октябрь 2014) [PDF] [En]
+
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337669.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Nuts and Volts" - популярный журнал по электронным компонентам и схемотехнике для любителей и специалистов любого уровняФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF204762CBA55B35E0BAB3CE04A92A16E6B23145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180720   (337005) от 05.11.2017
 
 Подшивка журналов | Ремонт и сервис (2013) [PDF]
@@ -6,7 +110,7 @@
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337005.jpg" />
+  <img src="Z:/picture/008/save_picture_337005.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335565.jpg" />
+  <img src="Z:/picture/008/save_picture_335565.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335452.jpg" />
+  <img src="Z:/picture/008/save_picture_335452.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335283.jpg" />
+  <img src="Z:/picture/008/save_picture_335283.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333856.jpg" />
+  <img src="Z:/picture/008/save_picture_333856.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333709.jpg" />
+  <img src="Z:/picture/008/save_picture_333709.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331882.jpg" />
+  <img src="Z:/picture/008/save_picture_331882.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331144.jpg" />
+  <img src="Z:/picture/008/save_picture_331144.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328407.jpg" />
+  <img src="Z:/picture/008/save_picture_328407.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328141.jpg" />
+  <img src="Z:/picture/008/save_picture_328141.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325515.jpg" />
+  <img src="Z:/picture/008/save_picture_325515.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321589.jpg" />
+  <img src="Z:/picture/008/save_picture_321589.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320282.jpg" />
+  <img src="Z:/picture/008/save_picture_320282.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317742.jpg" />
+  <img src="Z:/picture/008/save_picture_317742.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317739.jpg" />
+  <img src="Z:/picture/008/save_picture_317739.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317626.jpg" />
+  <img src="Z:/picture/008/save_picture_317626.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317552.jpg" />
+  <img src="Z:/picture/008/save_picture_317552.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315382.jpg" />
+  <img src="Z:/picture/008/save_picture_315382.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315371.jpg" />
+  <img src="Z:/picture/008/save_picture_315371.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315336.jpg" />
+  <img src="Z:/picture/008/save_picture_315336.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314873.jpg" />
+  <img src="Z:/picture/008/save_picture_314873.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314715.jpg" />
+  <img src="Z:/picture/008/save_picture_314715.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A0B38D73D9F43375FB0EB00156B23F9478CCDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076701   (311524) от 26.11.2016
-
-Подшивка журналов | Servo Magazine (2016) [PDF] [En]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный популярный американский журнал, посвященный роботостроению и кибернетике, предлагает огромное количество примеров создания роботов различной направленности - от игрушек до серьезных устройств, а также различные схемные, технические, теоретические и практические решения по созданию, настройке, регулировке и практическому использованию роботов.Жанр: РобототехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327DF4185027FCD677484C86AB5CCDBC0707F3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332633   (311139) от 21.10.2019
-
-Журнал | Радио №10 (октябрь 2019) [DJVU, PDF]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311139.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены новости науки и техники, устройство и ремонт отдельных образцов видео и аудиотехники, конкретные устройства в технике измерений и источников питания. Показаны разработки радиолюбителей-конструкторов, большой объем устройств из прикладной электроники. В каждом журнале имеется специальный раздел для начинающих радиолюбителей.Жанр: Научно-популярный журналФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AE212F5DB8D01A72773B760BFB7B1307C71C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 854864   (309457) от 27.11.2015
-
-Подшивка журналов | Funkamateur (2015) [PDF] [De]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309457.jpg" />
-</div>
-
-
-###  Подробнее
-
-FunkAmateur" - радиолюбительский журнал на немецком языке для любителей электроники и радиотехники. Основная тематика: любительская радиосвязь. Ну и, как и для всякого радиолюбителя, множество мелких поделок.Жанр: Радиосвязь, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A038FCCBE129785ED581F20732989C513B1A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092421   (309238) от 13.11.2017
-
-Подшивка журналов | Elektor (2017) [PDF] [De]
-
->>Журналы
->>Журналы по электротехнике и радиоэлектронике
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по схемотехнике и электронным компонентам, издается на английском и немецком языках. На страницах журнала много внимания уделяется проектам на микроконтроллерах. Все проекты хорошо задокументированы и снабжены детальными описаниями, схемами, чертежами печатных платЖанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D254A10086F95AF681FA2A4617543953A09E6E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

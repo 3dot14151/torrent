@@ -1,4 +1,108 @@
 https://t.me/izofen
+###  Публикация: 1862147   (1063019) от 
+
+Пришельцы / Oegye+in 1bu / Alienoid (2022) BDRip [AV1/2160p] [4K, HDR10, 10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063019.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих веков инопланетная раса содержит своих преступников в человеческих телах, а люди об этом даже не догадываются. Способные перемещаться во времени с помощью энергетического кинжала Охранник с роботом-помощником поставлены следить, чтобы заключённые не пришли в себя и не сбежали. В 1380 году они ловят очередного проснувшегося преступника, но у его (   Читать дальше...   )Производство: Корея Южная / Caper Film, CJ EntertainmentЖанр: фантастика, боевик, приключения, фэнтезиРежиссер: Чхве Дон-хунАктеры: Рю Джун-ёль, Ким У-бин, Ким Тхэ-ри, Со Джи-соп, Ём Джон-а, Чо У-джин, Щин Джон-гын, Ли Щи-хун, Чхве Ю-ри, Чи Гон-уПеревод: Дублированный (Кипарис)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B28AFEBCA43658502DDE5F2135A97FF7E4585916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861379   (1062520) от 
+
+Рождённый вором / Вор в законе / Zong heng si hai / Once a Thief (1991) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джим, Джо и Чери вместе росли и вместе учились воровать. Теперь они уже профессионалы самого высокого класса, специализирующиеся на краже картин. Красавица Чери уговаривает друзей завязать и начать спокойную жизнь. Они обещают, что идут на последнее дело, чтобы хорошенько заработать, но, удачливые до этого момента, преступники попадают в засаду...Производство: Гонконг / Golden Princess Film Production Limited, John Woo Film Production, Milestone PicturesЖанр: комедия, криминал, боевик, триллерРежиссер: Джон ВуАктеры: Юнь-Фат Чоу, Лесли Чун, Чери Чунг, Кон Чу, Кеннет Цан, Фанг Ву, Лейла Тонг, Деклан Вонг, Джон Ву, Дэвид ВуПеревод: профессиональный многоголосый (R5), авторский (Визгунов; Володарский; Кузнецов)Язык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 01:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA0E5CC5331D235D4075746AD436ABAA99C0D05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861397   (1062512) от 
+
+Один пропущенный звонок / One Missed Call / Chakushin ari (2003) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062512.jpg" />
+</div>
+
+
+###  Подробнее
+
+При загадочных обстоятельствах погибают несколько молодых людей. Незадолго до смерти все они получили на телефоны сообщения, при воспроизведении которых раздавались слова, произнесённые их же голосами. Девушка Юми — последняя из выживших — и бывший полицейский Хироси начинают собственное расследование и выясняют, что после смерти с сотовых телефонов жертв всегда (   Читать дальше...   )Производство: Япония / Kadokawa-Daiei Eiga K.K., Toho CompanyЖанр: ужасы, детективРежиссер: Такаси МиикеАктеры: Ко Сибасаки, Синъити Цуцуми, Кадзуэ Фукииси, Анна Нагата, Ацуси Ида, Марико Цуцуи, Кумико Имаи, Кэйко Томита, Каёко Фудзии, Ёсико НодаПеревод: профессиональный многоголосый (Екатеринбург Арт)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61870A8643F0214D46E9A13D4F6074E79DE8F42A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860999   (1062218) от 
+
+Призрачный киллер / Ghost Killer (2024) UHD BDRemux [H.265/2160p] [4K, HDR10, DV Profile 7.6, 10-bit] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062218.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как призрак мстительного киллера Кудо вселяется в студентку колледжа Фумику Мацуоку, она соглашается помочь ему завершить его квест мести из могилы.Производство: Япония / Rights Cube, Well GoЖанр: боевик, криминалРежиссер: Кэнсукэ СономураАктеры: Акари Такаиси, Марио Куроба, Масанори МимотоПеревод: Многоголосый (AlphaProject), Авторский (В. Котов)Язык озвучки: Русский, ЯпонскийСубтитры: Pусские (AI), Английские (Full, SDH)Продолжительность: 01:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EB807DA8FD221BEEAAC0ACE768815CD1451DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860339   (1061664) от 
 
 Игра с призраком / Gangryeong; gwisinnoli / The Ghost Game (2025) WEB-DL [H.264/1080p]
@@ -7,7 +111,7 @@ https://t.me/izofen
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061664.jpg" />
+  <img src="Z:/picture/005/save_picture_1061664.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060718.jpg" />
+  <img src="Z:/picture/005/save_picture_1060718.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060060.jpg" />
+  <img src="Z:/picture/005/save_picture_1060060.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058748.jpg" />
+  <img src="Z:/picture/005/save_picture_1058748.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058292.jpg" />
+  <img src="Z:/picture/005/save_picture_1058292.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058051.jpg" />
+  <img src="Z:/picture/005/save_picture_1058051.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057957.jpg" />
+  <img src="Z:/picture/005/save_picture_1057957.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057810.jpg" />
+  <img src="Z:/picture/005/save_picture_1057810.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057619.jpg" />
+  <img src="Z:/picture/005/save_picture_1057619.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057551.jpg" />
+  <img src="Z:/picture/005/save_picture_1057551.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057467.jpg" />
+  <img src="Z:/picture/005/save_picture_1057467.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056435.jpg" />
+  <img src="Z:/picture/005/save_picture_1056435.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056193.jpg" />
+  <img src="Z:/picture/005/save_picture_1056193.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056038.jpg" />
+  <img src="Z:/picture/005/save_picture_1056038.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054664.jpg" />
+  <img src="Z:/picture/005/save_picture_1054664.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054383.jpg" />
+  <img src="Z:/picture/005/save_picture_1054383.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054125.jpg" />
+  <img src="Z:/picture/005/save_picture_1054125.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053905.jpg" />
+  <img src="Z:/picture/005/save_picture_1053905.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052853.jpg" />
+  <img src="Z:/picture/005/save_picture_1052853.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052851.jpg" />
+  <img src="Z:/picture/005/save_picture_1052851.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052712.jpg" />
+  <img src="Z:/picture/005/save_picture_1052712.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052456.jpg" />
+  <img src="Z:/picture/005/save_picture_1052456.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:052029508C8D83DDA11F8E511E56262D44D89AB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847937   (1052431) от 15.01.2026
-
-Нечестных прошу не беспокоить / Если ты та / Fei cheng wu rao (2008) BDRip [H.264/720] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цинь Фэнь, сорокалетний холостяк, проживший десять лет в Америке, возвращается в Китай в надежде найти жену, современную снаружи, старомодную внутри. Он даёт объявление на брачном портале и начинает встречаться с соискательницами романтической любви. К сожалению, времена изменились, и сегодняшние обитательницы Поднебесной стали весьма прагматичными и раскрепощёнными. (   Читать дальше...   )Производство: Китай / Huayi Brothers Media, Media Asia FilmЖанр: мелодрама, комедияРежиссер: Сяоган ФэнАктеры: Гэ Ю, Шу Ци, Чэ Сяо, Вэй Фань, Фэн Юаньчжэн, Алекс Фонг, Хэ Цзяи, Вивиан Су, Ху Кэ, Ли ЛинПеревод: профессиональный двухголосый (Кубик в кубе)Язык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 02:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7905E7A1A696541E34EEDBFA400EB7C67CB2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847647   (1052332) от 14.01.2026
-
-Хорошие новости / Good News / Gutnyuseu / Gut Nuiuseu (2025) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052332.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1970 году террористы из Красной армии Японии захватывают пассажирский самолёт, чтобы угнать его в Пхеньян. Правительство Южной Кореи предлагает план, по которому один из аэропортов этой страны должен быть замаскирован под северокорейский, чтобы обманом заставить угонщиков совершить посадку.Производство: Корея Южная / Star PlatinumЖанр: комедия, историяРежиссер: Пён Сон-хёнАктеры: Соль Гён-гу, Хон Гён, Рю Сын-бом, Такаюки Ямада, Киппэй Сина, Ким Сон-о, Сё Касамацу, Наиру Ямамото, Пак Ён-гю, Сиро Сано и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 02:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C834C8F2FBAE5F596D31D3D085CF53B5E0B354
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845532   (1050732) от 
-
-Цветы Хиган / Higanbana / Equinox Flower (1958) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по роману Тон Сатоми... Внешне либеральные взгляды Ватару Хираямы на брак подвергаются серьёзному испытанию, когда его дочь заявляет, что влюблена в своего коллегу и намерена жить так, как ей хочется, а не соглашаться на брак по договорённости. Хираяма, которого перехитрили его родственницы, упрямо отказывается признавать поражение...Производство: Япония / Shochiku Films Ltd.Жанр: драма, комедияРежиссер: Ясудзиро ОдзуАктеры: Син Сабури, Кинуё Танака, Инэко Арима, Миюки Кувано, Ёсико Куга, Кэйдзи Сада, Тэйдзи Такахаси, Тисю Рю, Тиэко Нанива, Урэо Эгава, Газан Хасегава, Ёуко СэнмураПеревод: любительский одноголосый (Олег Воротилин)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983960ACADC60FF0BF54CB1B3EA0D287AA159F07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844691   (1050293) от 27.12.2025
-
-Ужасы Токио 7 / Yami Douga 7 / Tokyo Videos of Horror 7 (2013) WEB-DL [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Седьмая часть антологии ужасов в стиле «найденной плёнки», состоящая из нескольких независимых историй. Фильм не имеет единого сквозного сюжета, а вместо этого представляет собой сборник коротких, жутких эпизодов, снятых якобы на любительские камеры. В отличие от многих фильмов ужасов, Yami Douga не полагается на дешёвые трюки или внезапные пугающие моменты. Он создаёт (   Читать дальше...   )Производство: ЯпонияЖанр: ужасыРежиссер: Кадзу КодамаАктеры: Саки Миками, Юта Сасаки, Акико НагатаПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73B7E058BC2CAD63B9957669F42C744B741878B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

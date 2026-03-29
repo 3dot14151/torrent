@@ -1,3 +1,290 @@
+###  Публикация: 1338338   (269810) от 15.11.2019
+
+Cockos - REAPER 5.985 + Portable (x86/x64) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269810.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Английский + Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0FF3754448303574458D4C08FE466C065FD582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338501   (269802) от 15.11.2019
+
+Privacy Eraser Free 4.56.3 Build 3298 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B851BD0F3363E3CB0DF53B4D54CB1F879215BCE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266632   (269777) от 02.12.2018
+
+Windows 10 x64 Release by StartSoft 39-2018 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка предназначена для установки на компьютеры операционной системы Windows 10 с русскоязычным или с англоязычным языковыми интерфейсами с разрядностью x64-bit. Перед началом распаковки установочных файлов образа ISO на флешку необходимо в ней создать загрузочный сектор. Загрузочный образ сборки поддерживает установку нужной редакции операционной системы без метроприложений. (   Читать дальше...   )Язык интерфейса: Русский/Английский (en-Us)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4447B144CA75A83D8D46B91FF54959D0BA8059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266113   (269754) от 02.12.2018
+
+BELOFF 2018.12 [Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный Сборник Лучших Программ Рунета, распределённых по категориям, с Автоматической Установкой на Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также установку Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2F5B07BC60A4CF98DC75AFC985E48C81691E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266642   (269752) от 02.12.2018
+
+AIMP 4.51 build 2084 Final RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269752.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A91CA42AF0875959E3A57D427FCAA1BCDD698B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266425   (269748) от 02.12.2018
+
+AIDA64 Extreme / Engineer / Business / Network Audit 5.99.4900 Final Repack (& Portable) by Litoy [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269748.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - данная программа является многофункциональным программным обеспечением для вычисления и тестирования практически любых компонентов вашего компьютера под управлением операционных систем семейства Windows. Даст вам обширные сведения обо всём аппаратном и установленном программном обеспечении помимо всего этого, с помощью встроенных модулей для тестирования (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70BB3B9A265B6F6581433E88A07789C4E831C018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338544   (269713) от 15.11.2019
+
+Opera 65.0.3467.42 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656AE11831BBE42FFC3B6EF6100B62262FC62C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338554   (269688) от 15.11.2019
+
+Internet Download Manager 6.35 Build 11 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114E6DEAEC503E88F4AD29749E1696C5371112ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338496   (269661) от 15.11.2019
+
+IObit Smart Defrag Pro 6.4.0.256 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B051D2622A653B8ED437F82F113D38CB02BC09EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338347   (269657) от 15.11.2019
+
+Microsoft Visual Studio 2019 Enterprise 16.3.7 (Offline Cache, Unofficial) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97526CBDEF7A4457725C935DEE3E88BE931C37F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338436   (269652) от 15.11.2019
+
+K-Lite Codec Pack 15.2.5 Mega/Full/Standard/Basic + Update [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269652.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A986EA8B33CBFC785E8668570948E7E79921D08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338557   (269644) от 15.11.2019
 
 Viber 11.9.1.3 [Multi/Ru]
@@ -6,7 +293,7 @@ Viber 11.9.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269644.jpg" />
 </div>
 
 
@@ -32,7 +319,7 @@ W10Privacy 3.3.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269642.jpg" />
 </div>
 
 
@@ -58,7 +345,7 @@ Apowersoft Screen Capture Pro 1.4.8.3 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269637.jpg" />
 </div>
 
 
@@ -85,7 +372,7 @@ SIV (System Information Viewer) 5.43 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269586.jpg" />
 </div>
 
 
@@ -111,7 +398,7 @@ Bandicam 4.5.2.1602 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269579.jpg" />
 </div>
 
 
@@ -137,7 +424,7 @@ Wondershare Recoverit Ultimate 8.2.11.5 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269559.jpg" />
 </div>
 
 
@@ -163,7 +450,7 @@ Advanced SystemCare Pro 13.0.2.171 DC 14.11.2019 RePack (&Portable) by D!akov [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269553.jpg" />
 </div>
 
 
@@ -189,7 +476,7 @@ Google Chrome 63.0.3239.84 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269548.jpg" />
 </div>
 
 
@@ -215,7 +502,7 @@ Elcomsoft Phone Breaker Forensic Edition 9.30.34962 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269507.jpg" />
 </div>
 
 
@@ -241,7 +528,7 @@ CoolUtils Total Audio Converter 5.2.0.161 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269493.jpg" />
 </div>
 
 
@@ -267,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269479.jpg" />
 </div>
 
 
@@ -293,7 +580,7 @@ UC Browser 7.0.125.1629 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269461.jpg" />
 </div>
 
 
@@ -319,7 +606,7 @@ Wise Registry Cleaner Pro 9.5.3.623 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269435.jpg" />
 </div>
 
 
@@ -345,7 +632,7 @@ Wise Care 365 Pro 4.7.6.459 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269424.jpg" />
 </div>
 
 
@@ -371,7 +658,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269411.jpg" />
 </div>
 
 
@@ -382,295 +669,6 @@ Microsoft Office 2010 — один из лучших наборов офисны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C6091300CD60A0962C44CD34D7E3ECF1C15FEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338378   (269396) от 15.11.2019
-
-IObit Driver Booster Pro 7.1.0.534 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2B05478B7E8B8D1CC8794D007B7A24E37F3B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338461   (269394) от 15.11.2019
-
-Nero Burning ROM 2020 22.0.1006 Final  [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269394.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nero Burning ROM 2020 - позволяет записывать диски CD, DVD и Blu-Ray. Программа отличается надежностью и помогает копировать и записывать диски CD, DVD и Blu-Ray с сохранением высокого качества. В приложении Nero Burning ROM содержатся дополнительные возможности: с помощью технологии SecurDisc можно обеспечить надежную защиту и читаемость данных.
-Решение осуществляет (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC3973A2DEF0616EE11335C9EDBA03FD4ABAF82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338521   (269384) от 15.11.2019
-
-Набор обновлений UpdatePack7R2 для Windows 7 SP1 и Server 2008 R2 SP1 19.11.15 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76B7FE31699690E73FB626FA7201FD3CF6B9F202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338386   (269381) от 15.11.2019
-
-Microsoft Office 2010 SP2 Standard 14.0.7237.5000 (2019.11) RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2010 — один из лучших наборов офисных программ для ПК, браузеров и телефонов. Данный пакет имеет все функции, которые нужны многим уже сегодня, а некоторые могут пригодиться в будущем. С данным набором вы можете успешно принять вызов сегодняшней экономической ситуации. и не упустить факторы достижения успеха в области IT. Обычные сотрудники смогут (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B56C7FC890FEBA1E394F3B83B8B1C5B861987999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338452   (269378) от 15.11.2019
-
-Adobe Dreamweaver 2020 (20.0.0.15196) Portable by XpucT [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Dreamweaver 2020 — новая версия приложения, предназначенного для создания профессиональных веб-сайтов. Программное обеспечение для веб-дизайна Adobe Dreamweaver CC содержит интуитивно понятный визуальный интерфейс, позволяющий создавать и редактировать веб-сайты и мобильные приложения. Используйте «резиновые макеты» (Fluid Grid Layouts) с кроссплатформенной (   Читать дальше...   )Язык интерфейса: Русский и английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9375325D7389D0F11F4AD642F518EFB1D3C7C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189792   (269341) от 07.12.2017
-
-Google Chrome 63.0.3239.84 Stable + Enterprise [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F8F0F79779C277BA66AE925DFD5A4E83EE66D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189862   (269323) от 07.12.2017
-
-CleanMyPC 1.8.10.1148 RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269323.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyPC очищает компьютер от ненужных файлов, системного мусора, остатков ранее удалённых приложений и освобождает место на диске, а также обеспечивает более быструю работу Windows. Также продукт позволяет безопасно и без возможности восстановления удалять файлы с диска, управлять расширениями и плагинами браузеров, гаджетами рабочего стола, чистить реестр, очищать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AA608E55B28DC415B9149581FA7D24C7D007B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338391   (269305) от 15.11.2019
-
-Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro 15.0.5189.1000 (2019.11) RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F7AFA3E184AE60243C3F743328150ED6F5978A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338419   (269294) от 15.11.2019
-
-Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.12130.20344 (2019.11) RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Office 2019 — новый офисный пакет от корпорации Microsoft, который включает в себя не только передовые функции, которые помогают пользователям работать максимально продуктивно, но и эффективные решения для управления, а также более более комплексный подход к безопасности. По традиции в его состав входят такие приложения как Word, Excel, Outlook, PowerPoint, SharePoint (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский + языковые пакеты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F700AAE142CEB1AFD79CB9A07E5208A15F740C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189817   (269258) от 07.12.2017
-
-Google Chrome 63.0.3239.84 Stable RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA128DB9AF12028714F2EECBC53B71AE24720F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189905   (269253) от 07.12.2017
-
-Adobe Bridge CC 2018 (v8.0.0.262) x86-x64 repack by m0nkrus [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Bridge CC 2018 - организационная программа, предназначение которой связать части Creative Cloud вместе, используя интерфейс, похожий на файловый менеджер, который был в ранних версиях Adobe Photoshop. Он доступен практически из всех прочих приложений Creative Cloud. Adobe Bridge CC 2018 упростит вашу работу и поможет поддерживать порядок.
-
-Adobe Bridge CC 2018 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88DAB33D1814954E03F6DE4D79A378437C9BA4F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,89 @@
+###  Публикация: 536373   (514220) от 18.08.2012
+
+Рекс Стаут | Сборник (123 книги) [1966-2012] [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_514220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рекс Стаут (Rex Todhunter Stout), один из величайших американских писателей детективного жанра, прославившийся как автор книг о Ниро Вульфе и Арчи Гудвине.
+Он написал свыше 50 романов и около 75 повестей и рассказов, которые были переведены на 26 языков и изданы суммарным тиражом более 100 миллионов экземпляров.
+
+Рекс Стаут родился 1 декабря 1886 года в городе Ноблесвилль, штат Индиана, но вскоре его родители, Джон Уоллес Стаут и Люсетта Элизабет Тодхантер Стаут, переехали в Канзас.
+В четыре года Стаут дважды полностью прочитал Библию, а в тринадцать лет стал чемпионом штата по правописанию.
+С 1906 по 1908 Стаут служил на официальной яхте президента США Теодора Рузвельта, выполняя обязанности бухгалтера.
+Около 1916 года Стаут изобрел школьную банковскую систему, принятую более чем 400 американскими школами. Гонорар за изобретение позволил Стауту уехать в Европу и в дальнейшем посвятить себя писательской деятельности
+Литературная карьера Стаута началась в 1910-х годах. В 1929 году была опубликована его первая книга (   Читать дальше...   )Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D74AA84598CF366FFB52BB241B6A0DF261C8D36A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536776   (513304) от 19.08.2012
+
+Мэри Рено | Сборник (6 книг) [1993-2010] [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэри Рено (урождённая Эйлин Мэри Чаллэнс (англ. Eileen Mary Challans); 4 сентября 1905 — 13 декабря 1983) - английская писательница, оставившая после себя целую серию исторических романов о временах Древней Греции. Она стала автором художественных романов о Тесее, Сократе, Платоне, Александре Македонском, написала документальную биографию последнего.Жанр: Приключение, ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:058028EDFE7A7CC49009B7D0FC7B8A4D69189577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 231329   (510789) от 29.08.2010
+
+Клайв Баркер | Собрание сочинений (26 томов) [1984-2009] [FB2,TXT]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_510789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный культовый режиссер Квентин Тарантино очень точно охарактеризовал творчество Клайва Баркера: «Назвать Баркера писателем, работающим в жанре „хоррор“, – все равно что сказать: „Да, была неплохая группа „Битлз“, даже записала парочку популярных песенок“.
+Клайв Баркер видит иной мир и рассказывает о нем читателю, он работает на стыке многих жанров, и каждый его новый роман – это новое откровение, рассказывающее нам о жизни, которую мы не видим, но которая, несомненно, существует.Жанр: Фантастика, мистикаФормат: FB2, TXT
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931863   (510642) от 27.08.2015
 
 Бертрис Смолл | Собрание сочинений [59 книг] (1993-2015) [FB2]
@@ -6,7 +92,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510642.jpg" />
+  <img src="Z:/picture/008/save_picture_510642.jpg" />
 </div>
 
 
@@ -32,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509053.jpg" />
+  <img src="Z:/picture/008/save_picture_509053.jpg" />
 </div>
 
 
@@ -58,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508220.jpg" />
+  <img src="Z:/picture/008/save_picture_508220.jpg" />
 </div>
 
 
@@ -85,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505180.jpg" />
+  <img src="Z:/picture/008/save_picture_505180.jpg" />
 </div>
 
 
@@ -111,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503018.jpg" />
+  <img src="Z:/picture/008/save_picture_503018.jpg" />
 </div>
 
 
@@ -137,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502084.jpg" />
+  <img src="Z:/picture/008/save_picture_502084.jpg" />
 </div>
 
 
@@ -163,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500804.jpg" />
+  <img src="Z:/picture/008/save_picture_500804.jpg" />
 </div>
 
 
@@ -191,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499856.jpg" />
+  <img src="Z:/picture/008/save_picture_499856.jpg" />
 </div>
 
 
@@ -217,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496642.jpg" />
+  <img src="Z:/picture/008/save_picture_496642.jpg" />
 </div>
 
 
@@ -244,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493410.jpg" />
+  <img src="Z:/picture/008/save_picture_493410.jpg" />
 </div>
 
 
@@ -272,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485513.jpg" />
+  <img src="Z:/picture/008/save_picture_485513.jpg" />
 </div>
 
 
@@ -298,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484230.jpg" />
+  <img src="Z:/picture/008/save_picture_484230.jpg" />
 </div>
 
 
@@ -330,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482684.jpg" />
+  <img src="Z:/picture/008/save_picture_482684.jpg" />
 </div>
 
 
@@ -356,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474311.jpg" />
+  <img src="Z:/picture/008/save_picture_474311.jpg" />
 </div>
 
 
@@ -383,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471844.jpg" />
+  <img src="Z:/picture/008/save_picture_471844.jpg" />
 </div>
 
 
@@ -413,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471725.jpg" />
+  <img src="Z:/picture/008/save_picture_471725.jpg" />
 </div>
 
 
@@ -447,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471617.jpg" />
+  <img src="Z:/picture/008/save_picture_471617.jpg" />
 </div>
 
 
@@ -474,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469039.jpg" />
+  <img src="Z:/picture/008/save_picture_469039.jpg" />
 </div>
 
 
@@ -501,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468862.jpg" />
+  <img src="Z:/picture/008/save_picture_468862.jpg" />
 </div>
 
 
@@ -529,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466464.jpg" />
+  <img src="Z:/picture/008/save_picture_466464.jpg" />
 </div>
 
 
@@ -559,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466410.jpg" />
+  <img src="Z:/picture/008/save_picture_466410.jpg" />
 </div>
 
 
@@ -585,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465351.jpg" />
+  <img src="Z:/picture/008/save_picture_465351.jpg" />
 </div>
 
 
@@ -611,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464892.jpg" />
+  <img src="Z:/picture/008/save_picture_464892.jpg" />
 </div>
 
 
@@ -622,91 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B557DF679AA9A28C6CBE0D347EBE4A3CD08332FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549257   (464864) от 19.09.2012
-
-Джонатан Фредерик Берк | Собрание сочинений [1992-2007] [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон Берк (Джонатан Фредерик Берк ) Jonathan Frederick Burke, род. 8 марта 1922 - английский писатель, автор около 150 книг во всех возможных жанрах. Он родился в Рае, в графстве Суссекс, и провел детство в Ливерпуле, где его отец занимал должность главного инспектора полиции.
-
-В тридцатые годы Берк совместно с Чарльзом Эриком Мэйном основал журнал «Спутник», один из первых научно-фантастических журналов Англии. В 1949 году он получил литературную премию «Атлантика» за свой первый роман «Быстрое лето» («Swift Summer»). До 1963 года Берк сотрудничал с разными издательствами и одновременно работал в нефтяном бизнесе, пока его не пригласили в издательство «XX век» в качестве редактора серии «Европейские рассказы».
-
-В первой половине 1950-х он написал несколько научно-фантастических романов и приобрел много рассказов для таких известных журналов, как «Новые миры», «Научная фантастика» и «Небьюла».
-
-Берк также является автором многих сценариев теле- и кинофильмов, включая «Вечер трудного дня», «Дом ужасов доктора Террора», (   Читать дальше...   )Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C663518BF0BD0200A2CBF508FE83EAF6F603A7FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548964   (464856) от 19.09.2012
-
-Эдвин Чарлз Табб | Собрание сочинений [1969 - 2001] [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464856.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британский писатель и редактор. В фантастике дебютировал рассказом "No Short Cuts" (журнал "New Worlds", 1951 год). Он сразу же начал публиковать очень много художественных текстов под множеством псевдонимов (он использовал около полусотни псевдонимов только для журнальных публикаций - среди них наиболее известны Charles Grey, Gregory Kern, Carl Maddox, Edward Thompson, Volsted Gridban, Gill Hunt, King Lang, Arthur Maclean, Brian Shaw и Roy Sheldon). Первые авторские книги издал в том же 1951 году - романы "Planetfall" и "Saturn Patrol" (под "переходящими псевдонимами" Gill Hunt и King Lang соответственно). Под своим собственным именем он опубликовал первый роман в 1952 году ("Atom War on Mars").Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD78999418B694F7C9D93369838AC654F9EA5FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 703344   (462968) от 24.09.2013
-
-Уильям Теккерей | Собрание сочинений (1974-1980) [DJVU]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрание сочинений классика английской литературы Уильяма Теккерея в 12 томах под общей редакцией Л. Аникста, М. Лорие, М. Урнова выпущено издательством «Художественная литература» в 1974-1980 гг.
- Том 1 - ранние произведения «Из записок Желтоплюша», «Роковые сапоги», «Дневник Кокса», «Кэтрин», «В благородном семействе» и «История Сэмюела Титмарша и знаменитого бриллианта (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E42BE4A8AECB4EA814AF9634C1C9F856E4605E
 ```
 
 https://mybot314.ru/tekegram_catalog/

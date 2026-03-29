@@ -6,7 +6,7 @@ Counter-Strike: Global Offensive [XBOX 360] [JTAG/FreeBoot] [RUS] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965872.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ ELDERBORN (2020) [Multi] (1.0/dlc) License GOG [Metal AF Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965832.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ True Fear: Forsaken Souls (2016) [Ru/Multi] (1.0/upd2/dlc) Repack Other s [Part 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965827.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Assetto Corsa (2014) [Ru/Multi] (1.4.3/dlc) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965241.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Retrovirus [En] (L/1.0.5257) 2013 | COGENT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964969.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Call of Duty: Modern Warfare 2 + All DLC [Ru] (Rip/Multiplayer Only/IW4:3.0-121)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964772.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Crysis 3: Deluxe Edition [Ru] (L/Origin-Rip/1.0.0.1) 2013 | Без таблет�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964766.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Crazy Chicken Tales [Wii] [PAL] [MULTI 5] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964538.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ ELSE HEART.BREAK() (2015) [En/Sve] (1.0.8) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964214.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Quantumnauts 2: Black Hole Happens [En] (L) 2013 | FANiSO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964041.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Antichamber [En] (L) 2013 | COGENT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963769.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dynasty Warriors 7: Empires [PS3] [EUR] [En] [4.31] (2013)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963757.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Divinity II: Developer's Cut [En] (L) 2012 | COGENT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963683.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Endless Legend (2014) [Ru/Multi] (1.3.5 S3/dlc) SteamRip Let'sРlay [Emperor Edi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963108.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Gears of War: Judgment [XBOX360] [Region Free] [En] [LT+2.0] (XGD3 / 15574) (201
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962490.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Combat Task Force 121 / Спецназ: Штурмовая бригада 121 [R
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962318.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Alan Wake Collector's Edtion / Alan Wake's American Nightmare [Ru/En] (Steam-Rip
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961083.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Magna Carta 2 (2009) [Xbox360] [RegionFree] 7371 [FreeBoot] [License] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960800.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Onechanbara: Bikini Samurai Squad / Oneechanbara vorteX (2006) [Xbox360] [Region
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960680.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Hand of Fate (2014) [Ru/Multi] (1.3.1) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960651.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Grand Theft Auto: San Andreas / Criminal Russia / Криминальная Ро�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959853.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Crysis 3 [En/Multi5] (L) 2013 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959747.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ MX vs. ATV Дилогия [Ru/En] (RePack) 2006-2010 | Maks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958834.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ Crysis 3 [Ru/En] (Repack/1.0.0.1) 2013 | R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958437.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Saints Row 4/IV (2013) [Ru/Multi] (1.0 Upd7/24dlc) RePack R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958152.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ FaceBreaker: K.O. Party [Wii] [PAL] [ENG/DE] (2008)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955082.jpg" />
 </div>
 
 

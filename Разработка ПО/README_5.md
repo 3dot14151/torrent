@@ -1,3 +1,191 @@
+###  Публикация: 1646058   (209059) от 12.07.2023
+
+NeoAxis Engine 2023.1.2 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209059.jpg" />
+</div>
+
+
+###  Подробнее
+
+NeoAxis Engine - мощная универсальная среда для разработки 3D-проектов разной направленности: видеоигр, тренажеров, систем виртуальной реальности, визуализации, создания оконных приложений и т.д.
+
+Данная платформа эффективно используется как основа преподавания навыков работы с современными технологиями в области 3D графики.
+(   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AB74ADE4DBAF9A82B11D59FD3C89BD4ECFA121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647574   (208518) от 19.07.2023
+
+Java SE Development Kit 20.0.2 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208518.jpg" />
+</div>
+
+
+###  Подробнее
+
+Java SE Development Kit - программное обеспечение необходимое для запуска веб-сайтов и приложений, созданных с помощью языка программирования Java, на котором написано множество программ и игр, особенно тех, для которых важна мобильность. Состоит из виртуальной машины и библиотеки Java-классов.
+Позволяет играть в сетевые игры, общаться с людьми по всему миру, подсчитывать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB26A217977B9B49D7ABD286C2F8E9D3F6EB67EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582880   (206045) от 12.10.2022
+
+Trados Studio 2022 Professional 17.0.3.11695 [Multi/Ru]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_206045.jpg" />
+</div>
+
+
+###  Подробнее
+
+SDL Trados Studio - мощная программа для перевода текста, созданная в первую очередь для компаний со своими отделами переводчиков, позволит максимально организовать совместную работу, есть возможность по локальной сети выполнять задачи и быстро корректировать в случае необходимости. Софт обладает мощной технологией под названием Translation Memory (память переводов), (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87A18F281DF2F93469277CC4FAC6F770BF1AFE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617336   (201624) от 06.03.2023
+
+Embarcadero RAD Studio 11.3 Alexandria 28.0.47991.2819 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среда быстрой разработки приложений фирмы Embarcadero Technologies, работающая под Windows.
+Текущая версия RAD Studio 11.3 объединяет Delphi и C++ Builder в единую интегрированную среду разработки. В новом выпуске улучшено удобство использования, производительность и стабильность компиляторов IDE и наборов инструментов, UX, RTL, баз данных и интернет-библиотек как (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563D61403F740D2494063CCCE75BE83A6996E542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622745   (200626) от 30.03.2023
+
+SAP Adaptive Server Enterprise 16.0 SP02 (Developer Edition) [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adaptive Server Enterprise — реляционная система управления базами данных компании SAP, одна из СУБД, использующая в качестве основного процедурного SQL-расширения язык Transact-SQL. Изначально создана компанией Sybase в 1987 году и долгое время разрабатывавшаяся совместно с Microsoft SQL Server.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59D5F9685425A3EC1D27EF248FB4BE23AECE060C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625469   (200117) от 10.04.2023
+
+JetBrains RubyMine 2023.1
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200117.jpg" />
+</div>
+
+
+###  Подробнее
+
+RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
+Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C56A89FC5963EFB334821CC1B20844E2F29F344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625429   (200071) от 09.04.2023
+
+JetBrains CLion 2023.1 [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_200071.jpg" />
+</div>
+
+
+###  Подробнее
+
+CLion — умная IDE, предназначенная для разработки на С и С++ на платформах Linux, Windows и macOS. Включает в себя поддержку системы сборки кросс-платформенных проектов CMake, Gradle C++ и compilation database, возможности анализа кода на лету, разнообразные рефакторинги и унифицированный интерфейс для работы с самыми популярными системами контроля версий.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B523BA85B74165AD786F0974A04BDE93765C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625424   (200064) от 09.04.2023
 
 JetBrains DataGrip 2023.1 [En]
@@ -6,7 +194,7 @@ JetBrains DataGrip 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200064.jpg" />
+  <img src="Z:/picture/005/save_picture_200064.jpg" />
 </div>
 
 
@@ -32,7 +220,7 @@ JetBrains GoLand 2023.1 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200006.jpg" />
+  <img src="Z:/picture/005/save_picture_200006.jpg" />
 </div>
 
 
@@ -58,7 +246,7 @@ Advanced Installer 21.0.1 RePack (& Portable) by xetrin [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190359.jpg" />
 </div>
 
 
@@ -84,7 +272,7 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 [11116.177] (Offline Cac
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188094.jpg" />
 </div>
 
 
@@ -110,7 +298,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.18 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188089.jpg" />
 </div>
 
 
@@ -136,7 +324,7 @@ Microsoft Visual Studio 2022 Enterprise 17.14.17 (Offline Cache) [Ru/En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185811.jpg" />
 </div>
 
 
@@ -162,7 +350,7 @@ Open Server Panel 6.4.6 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173411.jpg" />
 </div>
 
 
@@ -190,7 +378,7 @@ HeavenTools Resource Tuner 2.04 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157999.jpg" />
 </div>
 
 
@@ -217,7 +405,7 @@ Microsoft Visual C++ 2026 Redistributable 14.50.35710.0 [Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150677.jpg" />
 </div>
 
 
@@ -243,7 +431,7 @@ SDL Passolo 2015 15.1.418.0 Collaboration Edition Portable by Evgenii724 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148101.jpg" />
 </div>
 
 
@@ -269,7 +457,7 @@ Open Server Panel 6.4.5 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136880.jpg" />
 </div>
 
 
@@ -297,7 +485,7 @@ Microsoft  Visual C++ Runtimes AIO v0.102.0 x86-x64 Repack by abbodi1406 [Multi/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136733.jpg" />
 </div>
 
 
@@ -323,7 +511,7 @@ Embarcadero RAD Studio 12 Athens 29.0.50491.5718 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132207.jpg" />
 </div>
 
 
@@ -350,7 +538,7 @@ JetBrains PyCharm Professional 2023.3.1 Repack by Sitego [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127501.jpg" />
 </div>
 
 
@@ -376,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127311.jpg" />
 </div>
 
 
@@ -402,7 +590,7 @@ Java SE Development Kit 11.0.22 LTS [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122192.jpg" />
 </div>
 
 
@@ -429,7 +617,7 @@ Java SE Runtime Environment 8.0.4010.10 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119389.jpg" />
 </div>
 
 
@@ -456,7 +644,7 @@ FileMaker 20.3.2.201 [Multi/Ru]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116245.jpg" />
 </div>
 
 
@@ -482,7 +670,7 @@ SQL Dynamite 2.5.2.4 [En]
 >>Разработка ПО
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101649.jpg" />
 </div>
 
 
@@ -493,191 +681,6 @@ SQL Dynamite 2.5.2.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61643D80C30565D5BDBD9DC88C5093F28F616DF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822064   (94639) от 05.10.2025
-
-JetBrains CLion 2025.2.3 Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94639.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains CLion — интеллектуальная среда разработки, предназначенная для создания программ на языках C и C++ на операционных системах Windows, Linux и macOS. CLion обладает множеством функций, которые облегчают процесс разработки, таких как автодополнение кода, интеграция с системами контроля версий, отладка и многое другое. Это позволяет разработчикам увеличить (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF995FDA56AFCCA1D9169F2BEBD5B8535982524B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822065   (94637) от 05.10.2025
-
-Jetbrains WebStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_94637.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains WebStorm — это мощная интегрированная среда для разработки веб-приложений и UI-тестирования на JavaScript, HTML, and CSS. Она предлагает расширенные функции автодополнения, рефакторинга и анализа кода, которые ускоряют разработку и улучшают качество кода. Также WebStorm поддерживает современные технологии, такие как Node.js, Angular, React, и Vue.js, и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6094EDCFFF8EE762561F12EA910246AA06BA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822066   (94635) от 05.10.2025
-
-JetBrains RubyMine 2025.2.3 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94635.jpg" />
-</div>
-
-
-###  Подробнее
-
-RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
-Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5FD8BED15200B1D326B7E997169DBB5BC767F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822067   (94633) от 05.10.2025
-
-JetBrains PyCharm Professional 2025.2.3 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94633.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D580676D7C863F3260C3DBD58EDA170B6657986F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822068   (94631) от 05.10.2025
-
-JetBrains PhpStorm 2025.2.3 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94631.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
-поддерживает PHP 5.3, 5.4, 5.5, 5.6, 7.0, 7.1, 7.2, 7.4, 8.0, 8.1, 8.2, 8.3 и PHP 8.4 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825897A05508CE13197AC3F007B9F4DB42DA4700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822069   (94628) от 05.10.2025
-
-Jetbrains IntelliJ IDEA Ultimate 2025.2.3 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94628.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains IntelliJ IDEA Ultimate - это профессиональный инструмент для разработки Java-приложений, который предлагает широкий спектр функций и возможностей для повышения эффективности разработчиков. Эта интегрированная среда разработки (IDE) обеспечивает быструю навигацию, умное автодополнение и рефакторинг кода, а также поддерживает множество технологий и фреймворков. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF026F10025F4775E9E89C2ECE5F295FE231DB5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822070   (94627) от 05.10.2025
-
-JetBrains DataGrip 2025.2.4 (x64-arm64) Repack by Sitego [En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94627.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains DataGrip - это инновационное программное обеспечение, специально разработанное для работы с различными базами данных, включая Oracle, SQL Server, MySQL, Sybase, HyperSQL, DB2, SQLite и многие другие. Оно представляет собой полноценный пакет инструментов, который обеспечивает удобство и эффективность при работе с данными.
-Одной из ключевых особенностей является (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177CD56DA7E5E4748270823C0FF15202CE782A66
 ```
 
 https://mybot314.ru/tekegram_catalog/

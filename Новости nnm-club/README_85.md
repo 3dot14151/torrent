@@ -1,3 +1,110 @@
+###  Публикация: 1015223   (775397) от 09.05.2016
+
+Need For Speed: The Run (2011) [Ru] (1.1.0.0) Repack =nemos= [Limited Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Need for Speed The Run — гоночные состязания, ставка в которых невероятно высока. Единственный способ выжить — первым завершить опаснейшее путешествие из Сан-Франциско в Нью-Йорк. Никаких ограничений скорости. Никаких правил. Никаких друзей. В противостоянии сотням отчаянных гонщиков на самых опасных трассах придется рассчитывать лишь на собственное водительское (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЖанр: Action, Racing (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756AB4D974AB07311B6A86E90AA3F60011D68B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201190   (775049) от 16.05.2010
+
+Утомленные солнцем 2: Предстояние (2010) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: драмаРежиссер: Никита МихалковВ ролях: Виктория Толстоганова, Владимир Ильин, Олег Меньшиков, Надежда Михалкова, Никита Михалков, Дмитрий Дюжев, Андрей Панин, Михаил Ефремов, Александр Пашутин, Валентин ГафтФормат: AVI (XviD) ///СОВМЕСТИМО С БЫТОВЫМИ ПЛЕЕРАМИ/// Размер 1/3 DVD
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212566   (774975) от 13.03.2018
+
+NVIDIA подозревается в использовании монопольных преимуществ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_774975.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Сети начали появляться материалы, в которых новая партнёрская маркетинговая программа NVIDIA GPP (GeForce Partner Program) называется антиконкурентной тактикой против AMD и Intel. Принципы, прописанные NVIDIA в программе, могут довольно сильно влиять на выбор потребителей на рынке компьютеров. Инициатором обвинения стала AMD, но затем и сами журналисты исследовали (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277884   (774786) от 22.01.2019
+
+Windows 7 Ultimate SP1 (x86/x64) Elgujakviso Edition (v.21.01.19) [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборки сделаны на основе оригинальных образов от MSDN:
+ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463.iso. (Original 12.05.2011)
+ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.iso. (Original 12.05.2011)
+(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C07588033D90C232FF41783C3C9DF5FA19CBEFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009381   (774681) от 10.05.2016
 
 P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) Repack =nemos=
@@ -6,7 +113,7 @@ P·O·L·L·E·N (2016) [Ru/Multi] (1.0.1) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774681.jpg" />
+  <img src="Z:/picture/008/save_picture_774681.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Bombshell (2016) [En] (1.2/dlc) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774679.jpg" />
+  <img src="Z:/picture/008/save_picture_774679.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_774119.jpg" />
+  <img src="Z:/picture/005/save_picture_774119.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ TinyPNG and TinyJPG Photoshop Plugin 2.3.9 (x64-x86) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774007.jpg" />
+  <img src="Z:/picture/008/save_picture_774007.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774004.jpg" />
+  <img src="Z:/picture/008/save_picture_774004.jpg" />
 </div>
 
 
@@ -138,7 +245,7 @@ Adobe Photoshop CC 2018 19.1.2.45971 RePack by KpoJIuK  [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774000.jpg" />
+  <img src="Z:/picture/008/save_picture_774000.jpg" />
 </div>
 
 
@@ -164,7 +271,7 @@ BBC: Он и Она - Секреты отношений/ BBC: Secrets of the Sex
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773999.jpg" />
+  <img src="Z:/picture/008/save_picture_773999.jpg" />
 </div>
 
 
@@ -192,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_773875.jpg" />
+  <img src="Z:/picture/005/save_picture_773875.jpg" />
 </div>
 
 
@@ -218,7 +325,7 @@ Advanced SystemCare Pro 9.3.0.1119 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773831.jpg" />
+  <img src="Z:/picture/008/save_picture_773831.jpg" />
 </div>
 
 
@@ -244,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773826.jpg" />
+  <img src="Z:/picture/008/save_picture_773826.jpg" />
 </div>
 
 
@@ -270,7 +377,7 @@ Revo Uninstaller Pro 3.1.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773824.jpg" />
+  <img src="Z:/picture/008/save_picture_773824.jpg" />
 </div>
 
 
@@ -296,7 +403,7 @@ ABBYY FineReader 12.0.101.483 Professional & Corporate RePack by KpoJIuK [Multi/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773823.jpg" />
+  <img src="Z:/picture/008/save_picture_773823.jpg" />
 </div>
 
 
@@ -322,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773821.jpg" />
+  <img src="Z:/picture/008/save_picture_773821.jpg" />
 </div>
 
 
@@ -348,7 +455,7 @@ Serious Sam Gold Edition / Крутой Сэм Золотое Издание [Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773664.jpg" />
+  <img src="Z:/picture/008/save_picture_773664.jpg" />
 </div>
 
 
@@ -375,7 +482,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (DLC) RePack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773131.jpg" />
+  <img src="Z:/picture/008/save_picture_773131.jpg" />
 </div>
 
 
@@ -401,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773117.jpg" />
+  <img src="Z:/picture/008/save_picture_773117.jpg" />
 </div>
 
 
@@ -427,7 +534,7 @@ Red Faction Guerrilla (2009) [Ru/En] (1.0.2.1/dlc) SteamRip Let'sPlay [Steam Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772750.jpg" />
+  <img src="Z:/picture/008/save_picture_772750.jpg" />
 </div>
 
 
@@ -453,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772734.jpg" />
+  <img src="Z:/picture/008/save_picture_772734.jpg" />
 </div>
 
 
@@ -479,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772718.jpg" />
+  <img src="Z:/picture/008/save_picture_772718.jpg" />
 </div>
 
 
@@ -505,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_772641.jpg" />
+  <img src="Z:/picture/005/save_picture_772641.jpg" />
 </div>
 
 
@@ -533,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772607.jpg" />
+  <img src="Z:/picture/008/save_picture_772607.jpg" />
 </div>
 
 
@@ -560,7 +667,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4639.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772604.jpg" />
+  <img src="Z:/picture/008/save_picture_772604.jpg" />
 </div>
 
 
@@ -571,110 +678,6 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E1A6CE870D586211245C219C978DE36D36D935F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212480   (772601) от 15.03.2018
-
-Need for Speed: Payback (2017) [Ru/Multi] (1.0.51.15364/dlc) Repack Other s [Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Need for Speed™, одна из ведущих игровых серий возвращается ради мести в новой Need for Speed Payback. Действие происходит в теневом мире Фортуна-Вэлли. Вы и ваша команда разделены предательством и объединены заново местью. Ваша цель - разрушить Дом, известный в криминальных кругах картель, управляющий игорными заведениями, преступниками и полицейскими этого города. (   Читать дальше...   )Тип издания: RepackРазработчик: Ghost GamesЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33EC5187E76114F24EAC417020396E26FB790AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066290   (772597) от 15.03.2018
-
-Farming Simulator 17 (2016) [Ru/Multi] (1.5.3.0/dlc) License RELOADED [Platinum Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Farming Simulator 17 разработанный компанией Giants Software, приглашает вас попробовать себя в роли современного фермера. Решайте задачи, которые встают перед вами, занимайтесь животноводством, выращиванием зерновых, продажами и лесозаготовкой.Тип издания: LicenseРазработчик: Giants SoftwareЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FB7C6C8E1F00C7A11636157B94E6BAA2C11D4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389916   (772432) от 21.06.2020
-
-Windows 7 SP1 44in1 (x86/x64) +/- Office 2019 by Eagle123 (06.2020) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 7 SP1, включающая в себя 11 русских редакций и 11 английских редакций x86/x64, с обновлениями по 06.2020, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C772CF20A35214679E025B3FE35507F244D644A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015570   (772413) от 12.05.2016
-
-Обнаружен витамин, останавливающий процесс старения клеток некоторых типов тканей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_772413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа исследователей из Швейцарского федерального политехнического университета Лозанны (Swiss Ecole Polytechnique Federale de Lausanne, EPFL) провела ряд экспериментов над подопытными животными. Эти эксперименты показали, что введение животным вещества-витамина под названием nicotinamide riboside, NR, подстегивает процесс регенерации тканей некоторых органов и (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

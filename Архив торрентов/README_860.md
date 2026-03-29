@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852283.jpg" />
+  <img src="Z:/picture/008/save_picture_852283.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852281.jpg" />
+  <img src="Z:/picture/008/save_picture_852281.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Smooze 1.0.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852277.jpg" />
+  <img src="Z:/picture/008/save_picture_852277.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - True Trance Vol.2 (Mixed By Luke Terry) (2017) [MP3|320 Kbps] <Trance, Upli
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852276.jpg" />
+  <img src="Z:/picture/008/save_picture_852276.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Black Hole Recordings Miami (2017) [MP3|320 Kbps] <Trance, Progressive Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852273.jpg" />
+  <img src="Z:/picture/008/save_picture_852273.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Trance Favorites Episode #005 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852271.jpg" />
+  <img src="Z:/picture/008/save_picture_852271.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ CloudTV 3.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852270.jpg" />
+  <img src="Z:/picture/008/save_picture_852270.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852232.jpg" />
+  <img src="Z:/picture/008/save_picture_852232.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Mozilla Firefox 46.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852199.jpg" />
+  <img src="Z:/picture/008/save_picture_852199.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Downie 2.2.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852198.jpg" />
+  <img src="Z:/picture/008/save_picture_852198.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - 15 Years Of Vandit Records (The Remixes) Vol 1 (2016) [MP3|320 кб/с] <Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852196.jpg" />
+  <img src="Z:/picture/008/save_picture_852196.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Vocal Trance Work Out (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852194.jpg" />
+  <img src="Z:/picture/008/save_picture_852194.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Window Tidy 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852193.jpg" />
+  <img src="Z:/picture/008/save_picture_852193.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ ColorSnapper 2 v1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852192.jpg" />
+  <img src="Z:/picture/008/save_picture_852192.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Jettison 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852191.jpg" />
+  <img src="Z:/picture/008/save_picture_852191.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852188.jpg" />
+  <img src="Z:/picture/008/save_picture_852188.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Maltsev Anton - Gentle (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, New Age, Elec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852184.jpg" />
+  <img src="Z:/picture/008/save_picture_852184.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Alfred Powerpack 2.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852182.jpg" />
+  <img src="Z:/picture/008/save_picture_852182.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Downie 2.7.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852177.jpg" />
+  <img src="Z:/picture/008/save_picture_852177.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ PicturesToExe Deluxe 9.0.2 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852173.jpg" />
+  <img src="Z:/picture/008/save_picture_852173.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ iFinance 4.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852168.jpg" />
+  <img src="Z:/picture/008/save_picture_852168.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ VA - John O'Callaghan: Spring Trance Selection (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852165.jpg" />
+  <img src="Z:/picture/008/save_picture_852165.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852111.jpg" />
+  <img src="Z:/picture/008/save_picture_852111.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ KeyCue 8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852110.jpg" />
+  <img src="Z:/picture/008/save_picture_852110.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Mountain 1.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852104.jpg" />
+  <img src="Z:/picture/008/save_picture_852104.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852102.jpg" />
+  <img src="Z:/picture/008/save_picture_852102.jpg" />
 </div>
 
 

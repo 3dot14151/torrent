@@ -1,3 +1,119 @@
+###  Публикация: 1135578   (679511) от 20.05.2017
+
+Duke Ellington - Jazz Profile (1953, 1954, 1969) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satin Doll [03:00]
+02. Star Dust [02:30]
+03. One O'Clock Jump [05:16]
+04. Stormy Weather [03:13](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5441C457FA8921AD172D7D088A531DBF5F39A6AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135587   (679507) от 20.05.2017
+
+Duke Ellington - Original Jazz Classics Collection (1997) OJC [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latin American Sunshine [06:58]
+02. C-Jam Blues [05:13]
+03. Caravan [06:12]
+04. Paris Blues [03:31](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA00BB5156C8B3837B9C30DB3578AF490C7AE0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135476   (679505) от 20.05.2017
+
+Duke Ellington and His Great Vocalists: Best of the Big Bands (1930-e - 1950-e) 1995, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Don't Mean a Thing (If It Ain't Got That Swing) (feat. Ivie Anderson) [03:12]
+02. St. Louis Blues (feat. Bing Crosby) [04:33]
+03. I Can't Give You Anything But Love (feat. Ethel Waters) [03:13]
+04. Diga Diga Do (feat. The Mills Brothers) [03:11](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5B9F444E23DF5A4286942BE1327B404E8D3513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135696   (679424) от 20.05.2017
+
+Duke Ellington - The Duke in Washington (1943 - 1969) 1999, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_679424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Ellington's Introduction [00:28]
+02. I Wonder Why [03:03]
+03. Goin' Up [03:46]
+04. Announcer and Ellington Introduction [00:36](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210B95CECCAA97CB1C2BD50FC0D0B07451442FCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135462   (679376) от 20.05.2017
 
 Chris Potter, David Virelles, Joe Martin, Marcus Gilmore - The Dreamer Is The Dream (2017) ECM Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Creative>
@@ -6,7 +122,7 @@ Chris Potter, David Virelles, Joe Martin, Marcus Gilmore - The Dreamer Is The Dr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679376.jpg" />
+  <img src="Z:/picture/008/save_picture_679376.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ The Lanny Morgan Quartet - Pacific Standard (1997) Contemporary [APE|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679369.jpg" />
+  <img src="Z:/picture/008/save_picture_679369.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Mel Lewis & Friends - Gettin' Together (1957) 1987, Vee Jay [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679368.jpg" />
+  <img src="Z:/picture/008/save_picture_679368.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Nicki Parrott - Fly Me To The Moon (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_679321.jpg" />
+  <img src="Z:/picture/005/save_picture_679321.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ The Jazz At The Lincoln Center Orchestra & Wynton Marsalis - The Music of John L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679303.jpg" />
+  <img src="Z:/picture/008/save_picture_679303.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Nils - Play (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679268.jpg" />
+  <img src="Z:/picture/008/save_picture_679268.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Masahiko Sato - All-In, All-Out (1979) 1991, Sony Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678614.jpg" />
+  <img src="Z:/picture/008/save_picture_678614.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Buddy Rich - The Absolutely Essential 3 CD Collection (1930-е - 1960-е) 3CD, 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678532.jpg" />
+  <img src="Z:/picture/008/save_picture_678532.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Phronesis - We Are All (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Contemporary 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678494.jpg" />
+  <img src="Z:/picture/008/save_picture_678494.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Susie Arioli - Christmas Dreaming (2010) Spectra Musique [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678493.jpg" />
+  <img src="Z:/picture/008/save_picture_678493.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Susie Arioli - Spring (2015) Spectra Musique [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678488.jpg" />
+  <img src="Z:/picture/008/save_picture_678488.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Dale Cooper Quartet & The Dictaphones - Metamanoir (2011) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678486.jpg" />
+  <img src="Z:/picture/008/save_picture_678486.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Dizzy Gillespie All-Star Groups & Big Band - Four Classic Albums (1954 - 1957) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678485.jpg" />
+  <img src="Z:/picture/008/save_picture_678485.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Susie Arioli Band - Live At The Montreal International Jazz Festival (2006) Just
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678483.jpg" />
+  <img src="Z:/picture/008/save_picture_678483.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Gary Burton - Conception (1960-1962) 2CD, 2014, Cherry Red Records[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678468.jpg" />
+  <img src="Z:/picture/008/save_picture_678468.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Duke Ellington - Alhambra - Oct. 29th, 1958 (2002) 2CD, LaserLight Digital [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677424.jpg" />
+  <img src="Z:/picture/008/save_picture_677424.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Maurice Peress & American Composers Orchestra - Four Symphonic Works by Duke Ell
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677406.jpg" />
+  <img src="Z:/picture/008/save_picture_677406.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Susie Ibarra - Songbird Suite (2002) Tzadik [FLAC|Lossless|tracks + .cue] <Avant
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677398.jpg" />
+  <img src="Z:/picture/008/save_picture_677398.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Simon Rattle - Classic Ellington (1999) 2000, EMI [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677394.jpg" />
+  <img src="Z:/picture/008/save_picture_677394.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Duke Ellington - The Essential Duke Ellington (1929 - 1960) 2CD, 2005, Columbia 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677392.jpg" />
+  <img src="Z:/picture/008/save_picture_677392.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Duke Ellington - Love You Madly (1970) 2002, Collectables [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677299.jpg" />
+  <img src="Z:/picture/008/save_picture_677299.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Duke Ellington - Paris Jazz Concert: The Champs-Elysees Theater, Jan 29-30th 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677297.jpg" />
+  <img src="Z:/picture/008/save_picture_677297.jpg" />
 </div>
 
 
@@ -629,128 +745,6 @@ Duke Ellington - Paris Jazz Concert: The Champs-Elysees Theater, Jan 29-30th 196
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF2581B0E7EE42BB1BA6B73B96990A091070981F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135994   (677293) от 21.05.2017
-
-Duke Ellington - The Popular Duke Ellington (1966) 2017, Sony Music [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [04:41]
-02. I Got It Bad (And That Ain't Good) [02:37]
-03. Perdido  [03:15]
-04. Mood Indigo  [05:11](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1537C8DF0871CF091ACF230FAADD6343A8D66AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135907   (677288) от 21.05.2017
-
-Duke Ellington - The Best of Duke Ellington (1941 - 1945) 2003, TIM [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Stem [02:52]
-02. Chelsea Bridge [02:56]
-03. Jump for Joy [02:57]
-04. What Am I Here For? [03:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA060DC67DA04B8D665481F53B7F59A50C3AAF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135998   (677276) от 21.05.2017
-
-Della Reese & Duke Ellington - On the Radio: The 1962 "Live" Guard Sessions (2008) Acrobat Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [02:07]
-02. Comes Once in a Lifetime [01:47]
-03. Sophisticated Lady [03:32]
-04. Chopin's Etude in E [03:00](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Big BandПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1318120D65BEBC1227CE89AFC18BBEEFFB8E22DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508646   (677188) от 11.06.2012
-
-Brian Bromberg - Compared to That (2012) [FLAC|Lossless]<Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Compared To That (8:26)
-02. Rory Lowery, Private Eye (9:54)
-03. If Ray Brown Was A Cowboy? (6:37)
-04. Hayride (7:30)
-05. A Little New Old School (7:20)
-06. Forgiveness (5:19)
-07. Does Anybody Really Know What Time It Is? (4:52)
-08. I'm Just Sayin' (7:43)
-09. The Eclipse (9:00)
-10. Give It To Me Baby (4:19)2012Жанр: Contemporary Jazz, FusionПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

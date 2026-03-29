@@ -6,7 +6,7 @@ VA - Юрий Саульский - Татьянин день (2008) [MP3|320 к�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738008.jpg" />
+  <img src="Z:/picture/008/save_picture_738008.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_730135.jpg" />
+  <img src="Z:/picture/005/save_picture_730135.jpg" />
 </div>
 
 
@@ -70,7 +70,7 @@ VA - Созвездие хитов-киношлягеры vol.1 (2004) [MP3|320 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728801.jpg" />
+  <img src="Z:/picture/008/save_picture_728801.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ VA - Созвездие хитов. Застольные песни 1 (2004) [MP
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728694.jpg" />
+  <img src="Z:/picture/008/save_picture_728694.jpg" />
 </div>
 
 
@@ -128,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_722007.jpg" />
+  <img src="Z:/picture/005/save_picture_722007.jpg" />
 </div>
 
 
@@ -157,7 +157,7 @@ VA - Лучшие хиты из культовых сериалов и кино�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718360.jpg" />
+  <img src="Z:/picture/008/save_picture_718360.jpg" />
 </div>
 
 
@@ -186,7 +186,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716246.jpg" />
+  <img src="Z:/picture/008/save_picture_716246.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ VA - В русском ресторане. Романсы. (Выпуск 2) (200
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716144.jpg" />
+  <img src="Z:/picture/008/save_picture_716144.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - В русском ресторане.Оригинальные записи 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716047.jpg" />
+  <img src="Z:/picture/008/save_picture_716047.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Зарубежные хиты и русские перепевки (5 ча�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707210.jpg" />
+  <img src="Z:/picture/008/save_picture_707210.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696611.jpg" />
+  <img src="Z:/picture/008/save_picture_696611.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Metal Ballads Vol. 1-2 (1993) [MP3|320 кб/с]<Rock| Metal Ballads>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695355.jpg" />
+  <img src="Z:/picture/008/save_picture_695355.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676861.jpg" />
+  <img src="Z:/picture/008/save_picture_676861.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Старая танцплощадка (2008) 2 выпуска 4 CD[MP3|320 
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676358.jpg" />
+  <img src="Z:/picture/008/save_picture_676358.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Наши 80-е! Выпуск 1 (2012) [MP3|192-256 кб/с]<Pop, Disco>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655264.jpg" />
+  <img src="Z:/picture/008/save_picture_655264.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ VA - Disco 80. Расширенные версии популярных хито
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645096.jpg" />
+  <img src="Z:/picture/008/save_picture_645096.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641144.jpg" />
+  <img src="Z:/picture/008/save_picture_641144.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634971.jpg" />
+  <img src="Z:/picture/008/save_picture_634971.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634846.jpg" />
+  <img src="Z:/picture/008/save_picture_634846.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VA - Самые Яркие Звёзды 80-х (2СD) (2012) [MP3|320 кб/с]<Po
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632862.jpg" />
+  <img src="Z:/picture/008/save_picture_632862.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629635.jpg" />
+  <img src="Z:/picture/008/save_picture_629635.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Наша Родина - СССР [3CD] (2012) [MP3|320 кб/с]<Ретро,
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626257.jpg" />
+  <img src="Z:/picture/008/save_picture_626257.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622724.jpg" />
+  <img src="Z:/picture/008/save_picture_622724.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616389.jpg" />
+  <img src="Z:/picture/008/save_picture_616389.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Лучшее из 90-х (2012) [MP3|256 кб/с]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616300.jpg" />
+  <img src="Z:/picture/008/save_picture_616300.jpg" />
 </div>
 
 
@@ -764,7 +764,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_599248.jpg" />
+  <img src="Z:/picture/005/save_picture_599248.jpg" />
 </div>
 
 

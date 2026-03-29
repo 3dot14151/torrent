@@ -1,3 +1,82 @@
+###  Публикация: 1542884   (635337) от 08.04.2022
+
+Сергей Непушкин | Ёлкин кот! (2018) [MP3, Татьяна Янчук (yantat)]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый год получился незабываемый.Жанр: Детская литература, РассказПродолжительность: 00:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150441578A646B2E15CD20AD28CA0604EED9A99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349840   (632213) от 12.06.2011
+
+Народ | Бабушкины сказки 3 (2006) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_632213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абсолютно каждый человек, каждый из нас находясь в раннем детстве, слушал сказки.
+Мы уже смогли убедиться, что сказки очень разнообразны, каждая сказка выделяется особым содержанием, своим стилем и представленными в ней образами.Жанр: СказкиПродолжительность: 04:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81D767248A7729AFE1641BFEA6DE3B130C28CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349837   (632128) от 12.06.2011
+
+Народ | Бабушкины сказки 2 (2006) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_632128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что, Дорогие, за сказками пришли? Ну, коль пришли ко мне в гости так слушайте. А быль то, иль небыль, про то не рассудим. Уж больно много воды утекло с тех времен давних, дремучих. А почитает вам мои сказочки народный артист Константин Щепочкин.Жанр: СказкиПродолжительность: 04:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9908310B27B6E188300EF06BD750E66ED11A5703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 349846   (632047) от 12.06.2011
 
 Народ | Бабушкины сказки 4 (2006) [MP3]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632047.jpg" />
+  <img src="Z:/picture/008/save_picture_632047.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631916.jpg" />
+  <img src="Z:/picture/008/save_picture_631916.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631899.jpg" />
+  <img src="Z:/picture/008/save_picture_631899.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631621.jpg" />
+  <img src="Z:/picture/008/save_picture_631621.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Twinkle Twinkle Little Rock Star - Lullaby Versions of Red Hot Chili Peppers (20
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631531.jpg" />
+  <img src="Z:/picture/008/save_picture_631531.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631328.jpg" />
+  <img src="Z:/picture/008/save_picture_631328.jpg" />
 </div>
 
 
@@ -168,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630210.jpg" />
+  <img src="Z:/picture/008/save_picture_630210.jpg" />
 </div>
 
 
@@ -196,7 +275,7 @@ VA - Sweet Dreams Tonight (2005) [MP3|128 kbps]<Колыбельные песе�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629950.jpg" />
+  <img src="Z:/picture/008/save_picture_629950.jpg" />
 </div>
 
 
@@ -225,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629935.jpg" />
+  <img src="Z:/picture/008/save_picture_629935.jpg" />
 </div>
 
 
@@ -253,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629828.jpg" />
+  <img src="Z:/picture/008/save_picture_629828.jpg" />
 </div>
 
 
@@ -280,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627643.jpg" />
+  <img src="Z:/picture/008/save_picture_627643.jpg" />
 </div>
 
 
@@ -306,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627307.jpg" />
+  <img src="Z:/picture/008/save_picture_627307.jpg" />
 </div>
 
 
@@ -335,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626167.jpg" />
+  <img src="Z:/picture/008/save_picture_626167.jpg" />
 </div>
 
 
@@ -364,7 +443,7 @@ VA - Союз детский 4 (2018) [MP3|320 Kbps] <Детские песни>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626036.jpg" />
+  <img src="Z:/picture/008/save_picture_626036.jpg" />
 </div>
 
 
@@ -393,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626029.jpg" />
+  <img src="Z:/picture/008/save_picture_626029.jpg" />
 </div>
 
 
@@ -422,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625945.jpg" />
+  <img src="Z:/picture/008/save_picture_625945.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625611.jpg" />
+  <img src="Z:/picture/008/save_picture_625611.jpg" />
 </div>
 
 
@@ -477,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623917.jpg" />
+  <img src="Z:/picture/008/save_picture_623917.jpg" />
 </div>
 
 
@@ -503,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623759.jpg" />
+  <img src="Z:/picture/008/save_picture_623759.jpg" />
 </div>
 
 
@@ -529,7 +608,7 @@ VA - Энциклопедия для детей. Музыка от эпохи В
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623032.jpg" />
+  <img src="Z:/picture/008/save_picture_623032.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622820.jpg" />
+  <img src="Z:/picture/008/save_picture_622820.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622808.jpg" />
+  <img src="Z:/picture/008/save_picture_622808.jpg" />
 </div>
 
 
@@ -610,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622806.jpg" />
+  <img src="Z:/picture/008/save_picture_622806.jpg" />
 </div>
 
 
@@ -621,84 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99507A5F005325A61589F44C6D0B34837CBB1221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036172   (622762) от 19.07.2016
-
-Эмден Эсфирь | Школьный год Марины Петровой (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622762.jpg" />
-</div>
-
-
-###  Подробнее
-
-В повести «Школьный год Марины Петровой» мы встречаемся с весёлой, немного беспечной, иногда упрямой, но всегда талантливой Мариной и идём с ней в школу. Но школа, в которой учится Марина, не совсем обыкновенная: кроме обычных занятий, там преподают ещё и музыку, кроме арифметики и географии, там изучают ещё и ноты, разучивают пьесы. В этой повести уже нет сказки. (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 07:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B098E9CDE1147B43AEEA842F8F73A256E981167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 220051   (621374) от 20.07.2010
-
-Евгений Велтистов | Приключения Электроника [1993] [MP3, Нина Касторф]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_621374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робот Электроник - копия мальчика, удивительное изобретение профессора Громова; его друг и живой двойник Электроника - Сережа Сыроежкин, а также редчайшая электронная собака Рэсси - главные герои известных повестей Евгения Серафимовича Велтистова "Электроник - мальчик из чемодана", "Рэсси - неуловимый друг", вошедших в сборник. По мотивам фантастических (   Читать дальше...   )Жанр: фантастика
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910595   (620358) от 21.06.2015
-
-Джанни Родари | Жил-был дважды барон Ламберто или Чудеса острова Сан-Джулио (2013) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Барон Ламберто, дряхлый старик, владеющий несметными богатствами, узнает от странствующего мудреца тайну бессмертия фараонов: "Человек, имя которого непрестанно на устах, продолжает жить". Практический ум барона трактует эту фразу буквально, и вскоре на остров Сан-Джулио прибывают шестеро неизвестных, задача которых - продлевать жизнь барона до бесконечности. (   Читать дальше...   )Жанр: СказкаПродолжительность: 02:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9E486B26F4CA38F0E6C22D66B3018DA016B38B
 ```
 
 https://mybot314.ru/tekegram_catalog/

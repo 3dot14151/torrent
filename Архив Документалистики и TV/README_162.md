@@ -1,3 +1,167 @@
+###  Публикация: 911080   (620246) от 21.06.2015
+
+День Военной тайны с Игорем Прокопенко. Часть 5 (2015.06.21) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620246.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйПродолжительность: 02:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B3F9E9BB109FA55F20EABB9058D68767389B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910611   (620121) от 21.06.2015
+
+Формула 1. Гран-При Австрии. Квалификация (2015) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620121.jpg" />
+</div>
+
+
+###  Подробнее
+
+F1 2015. Этап 8, Ред Булл Ринг (Шпильберг, Австрия)
+20.06.2015, Квалификация, 15:00 (мск) / 21.06.2015 года, Гонка, 15:00 (мск)
+Длина: 4326 м. / Число кругов: 71 (307 км). / Повороты: 9 (2 левых, 7 правых).
+Шины: «софт» и «суперсофт».(   Читать дальше...   )Телекомпания: SkySport1HD (видео) + Россия 2 (голос)Жанр: Чемпионат Мира, АвтоСпорт, "открытые колеса"Продолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC4490688ECF00D0EAD714FACABB87B2CCC7AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145616   (620101) от 26.06.2017
+
+Футбол. Кубок Конфедераций 2017. Группа B. 3-й тур. Чили - Австралия (25.06.2017) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620101.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 июня 2017 года, воскресенье. 18:00 МСК
+Группа B. 3-й тур
+
+Стадион: Открытие Арена (Москва, Россия) , 33 639 зрителей (74 % при вместимости 45 360)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HD / Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Михаил Моссаковский) / Интершум (с 10-ой минуты)Продолжительность: 01:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F691E0F5CD8D9CC0CC5AAA5CA8276AF99E8CB9E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910948   (619837) от 21.06.2015
+
+Формула 1. Гран-При Австрии. Гонка (2015) SATRip [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда "Формулы-1" "Ред Булл" во второй раз в истории выступит на домашнем этапе в Австрии, как и в прошлый раз, им будет тяжело рассчитывать на что-то серьезное из-за проблем с моторами, которые тянутся второй сезон.
+
+В личном зачете продолжает лидировать действующий чемпион британец Льюис Хэмилтон из "Мерседеса" (151 очко), его преследуют (   Читать дальше...   )Телекомпания: РоссияЖанр: Спорт, автоПродолжительность: 02:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD481BB3F667BD24939BC8EC892E66682BBA5050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145700   (619681) от 26.06.2017
+
+Смешанные единоборства. UFC Fight Night 112: Main Card. Chiesa vs. Lee (25.06.2017) WEB-DLRip [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основной кард турнира UFC Fight Night Oklahoma City, главным событием которого стал поединок в легком весе между Кевином Ли и Майклом Кьесой.Телекомпания: UFC Fight PassЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4054899AFA577A35A34DDF007A92FE7D685CE8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523135   (619319) от 15.07.2012
+
+Каникулы в Мексике - 2. Ток-шоу. Выпуск №19 (2012.07.14) (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельно по субботам ток-шоу по мотивам самых яркий событий прошедшей недели на мексиканской вилле.Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6211ACA4C4BA4C1F6DE4C0D411A24A0ADA49D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522031   (619223) от 15.07.2012
 
 NG.Запреты: Экстремальная борьба / NG.Taboo: Extreme Fighting (2012) HDTVRip
@@ -6,7 +170,7 @@ NG.Запреты: Экстремальная борьба / NG.Taboo: Extreme F
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619223.jpg" />
+  <img src="Z:/picture/008/save_picture_619223.jpg" />
 </div>
 
 
@@ -32,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619072.jpg" />
+  <img src="Z:/picture/008/save_picture_619072.jpg" />
 </div>
 
 
@@ -61,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619069.jpg" />
+  <img src="Z:/picture/008/save_picture_619069.jpg" />
 </div>
 
 
@@ -90,7 +254,7 @@ NG.Запреты: Выпивка / NG.Taboo: Booze (2012) SATRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619041.jpg" />
+  <img src="Z:/picture/008/save_picture_619041.jpg" />
 </div>
 
 
@@ -116,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618847.jpg" />
+  <img src="Z:/picture/008/save_picture_618847.jpg" />
 </div>
 
 
@@ -142,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618709.jpg" />
+  <img src="Z:/picture/008/save_picture_618709.jpg" />
 </div>
 
 
@@ -171,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618708.jpg" />
+  <img src="Z:/picture/008/save_picture_618708.jpg" />
 </div>
 
 
@@ -200,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618641.jpg" />
+  <img src="Z:/picture/008/save_picture_618641.jpg" />
 </div>
 
 
@@ -228,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618612.jpg" />
+  <img src="Z:/picture/008/save_picture_618612.jpg" />
 </div>
 
 
@@ -255,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618501.jpg" />
+  <img src="Z:/picture/008/save_picture_618501.jpg" />
 </div>
 
 
@@ -282,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618354.jpg" />
+  <img src="Z:/picture/008/save_picture_618354.jpg" />
 </div>
 
 
@@ -311,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618238.jpg" />
+  <img src="Z:/picture/008/save_picture_618238.jpg" />
 </div>
 
 
@@ -340,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618237.jpg" />
+  <img src="Z:/picture/008/save_picture_618237.jpg" />
 </div>
 
 
@@ -369,7 +533,7 @@ Moto GP. Сезон 2017. Motul TT Assen. Этап 8. Гонка (25.06.2017) WE
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618228.jpg" />
+  <img src="Z:/picture/008/save_picture_618228.jpg" />
 </div>
 
 
@@ -395,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618029.jpg" />
+  <img src="Z:/picture/008/save_picture_618029.jpg" />
 </div>
 
 
@@ -424,7 +588,7 @@ NG: Тайны Европы. Серия №3 / Bloody Tales of Europe (2013) SAT
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618004.jpg" />
+  <img src="Z:/picture/008/save_picture_618004.jpg" />
 </div>
 
 
@@ -450,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617789.jpg" />
+  <img src="Z:/picture/008/save_picture_617789.jpg" />
 </div>
 
 
@@ -476,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617461.jpg" />
+  <img src="Z:/picture/008/save_picture_617461.jpg" />
 </div>
 
 
@@ -505,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617284.jpg" />
+  <img src="Z:/picture/008/save_picture_617284.jpg" />
 </div>
 
 
@@ -534,7 +698,7 @@ NASCAR-2019. Дайтона. Гонка / Monster Energy NASCAR Cup Series 2019.
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616999.jpg" />
+  <img src="Z:/picture/008/save_picture_616999.jpg" />
 </div>
 
 
@@ -548,174 +712,6 @@ Advance Auto Parts Clash. Дейтона-Бич (штат Флорида, США
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E3378E9947DBE85AD99C71982B5F69168B20B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295734   (616916) от 14.04.2019
-
-Формула 1. Сезон 2019. 3-й Этап. Гран-при Китая. Свободная практика 3 (13.04.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616916.jpg" />
-</div>
-
-
-###  Подробнее
-
-13 апреля 2019 года, суббота. 06:00 МСК
-70-й сезон Формулы-1 2019 года
-3-й Этап. Гран-при Китая. Шанхай (Китай)
-Свободная практика 3(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A04DD974649E81A475F8B0EED51AECB70266E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523877   (616602) от 16.07.2012
-
-Рестлинг / WWE Money In The Bank (2012) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616602.jpg" />
-</div>
-
-
-###  Подробнее
-
-WWE Money In The Ban - это профессиональное рестлерское pay-per-view шоу, проводимое World Wrestling Entertainment (WWE).Жанр: СпортПеревод: Многоголосый закадровый, любительскийПродолжительность: 02:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6892F3F7D8E0BBCAC9FBB364484A4D72F1D17D20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523869   (616594) от 16.07.2012
-
-Рестлинг / WWE Money In The Bank - Preshow (2012) WEBRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская версия от 545TV WWE Money In The Ban прешоуЖанр: СпортПеревод: Одноголосый закадровый, любительскийПродолжительность: 00:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987A9FA8F0C5D5FDBBAF61B83E0BFB42D8AF7B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146005   (616593) от 28.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616593.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 июня 2017 года, воскресенье. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа B. 3-й тур
-Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD9626DF1A8BDBD7EE7ACAF434F8C1DE8B514BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146032   (616592) от 28.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Чили — Австралия (25.06.2017) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616592.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 июня 2017 года, воскресенье. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа B. 3-й тур
-Чили — Австралия(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D088776EC501621A8998D0B4CFC8E340EB7C3E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146210   (616591) от 28.06.2017
-
-Футбол. Кубок конфедераций FIFA 2017. Групповой этап. Группа B. 3-й тур. Германия — Камерун (25.06.2017) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616591.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 июня 2017 года, воскресенье. 18:00 МСК
-Кубок конфедераций FIFA 2017. Групповой этап.
-Группа B. 3-й тур
-Германия — Камерун(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E79F2C544B558C03D12C2925DDCE9BE87F99DF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1806996   (11292) от 16.07.2025
+
+Deraps - Viva Rock N' Roll (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Viva Rock N' Roll (3:28)
+02.  Animal Eyes (4:22)
+03.  The Legend of Larrikin Laddie (5:07)
+04.  Equinox (0:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DE675F1BE9CF6574517D335551F2F3E350AE2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806992   (11291) от 16.07.2025
+
+Chantel McGregor - The Healing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Will Breathe (5:14)
+02.  Broken Heartless Liar (3:22)
+03.  Tears (4:21)
+04.  Stand on My Own (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F1DE73193291FF74D0C08EBAC8DFB8CBEBB925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806983   (11290) от 16.07.2025
+
+Big Dave & The Dutchmen - Big Dave & The Dutchmen (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Never Love Again (5:05)
+02.  I Dig You Baby (3:58)
+03.  Screwdriver (5:50)
+04.  Daring Haring (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEAD537B92CE81199EDB5A7D2FCED429F2A3DE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806985   (11289) от 16.07.2025
+
+Black Logos - The Devil's Kiss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Symphony of Lies (5:02)
+02.  Tell Me (3:58)
+03.  Fade Away (3:40)
+04.  One More Time (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:494D5F2DF37414A0C34D7EADA7094E4171112875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806938   (11288) от 16.07.2025
+
+Eight In The Room - Eight In The Room (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Viva [00:04:22]
+02. Lovely [00:04:53]
+03. Imagine [00:03:41]
+04. Panda [00:04:15](   Читать дальше...   )Жанр: HouseПродолжительность: 00:28:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94AE2F2AFD5618CE0F7650A94C102ECF4021B12E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806984   (11287) от 16.07.2025
+
+BigBlack Rhino - Supralove (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boogie Town (3:28)
+02.  The Crowes (4:33)
+03.  Crazy Betty (3:45)
+04.  Angels will Fly (6:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C083694682E5DFE5FB062EC15FE85BA1182CD9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806989   (11285) от 16.07.2025
+
+Blind Alice - Nothing Changes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Call a Doctor (3:48)
+02.  Spin the Wheel (4:04)
+03.  If There Are Angels (6:12)
+04.  Beg Steal or Borrow (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348B8B554F7F922914B86A844747B1AB0A6DBE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1806933   (11284) от 16.07.2025
+
+Devilskin - Re-Evolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red [00:04:49]
+02. Swelter [00:03:23]
+03. Desiderium [00:03:15]
+04. Have I Come Undone [00:04:54](   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Alternative MetalПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42A140F4F7A5297DC163DE4687B9E5129B5E595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1806930   (11283) от 16.07.2025
 
 Tokimonsta - Eternal Reverie Remixes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance. Alternative, Electronic, Experimental Hip-Hop>
@@ -6,7 +238,7 @@ Tokimonsta - Eternal Reverie Remixes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11283.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ David Starr - Must Be Blue (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11282.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Nad Sylvan - Monumentata (2025) Bonus Track Edition [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11281.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Nathan James - Hollywood Mortician (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11279.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Don Felder - The Vault 1975-2025 Fifty Years Of Music (2025) [FLAC 24/96|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11278.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Art Nation - Re-Revolution (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11277.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Big Boy Bloater - Dirty Disco Blues (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11275.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Styx - Circling From Above (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11191.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Joe Bonamassa - Breakthrough (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11175.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Five Finger Death Punch - Best Off (Volume 1) (2025) [FLAC 24/48|Lossless|WEB-DL
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11173.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Jean Mare - A Sunset Chill Lounge Voyage (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11075.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ italo Brutalo - Second Horizon (2025) Radio Version [FLAC 24/48|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10772.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Dave Stewart - Dave Does Dylan (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop r
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10762.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Alice Cooper - The Revenge of Alice Cooper (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10591.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Black Sabbath - The Eternal Idol (2025 Remaster) (1987) [FLAC 24/44.1|Lossless|W
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10492.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Ozzy Osbourne - Mama I'm Coming Home (1991) (EP) [WavPack|32/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10463.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Giorgio Moroder - Extended Versions 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10457.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Ozzy Osbourne - 10 студийных альбомов (1980-2020) [DSD 128|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10399.jpg" />
 </div>
 
 
@@ -513,237 +745,6 @@ Ozzy Osbourne - 10 студийных альбомов (1980-2020) [DSD 128|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF50FA6C30CF66CF2F70C21F5E864D30F7B51211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808520   (10387) от 25.07.2025
-
-Madonna - Veronica Electronica (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Drowned World _ Substitute for Love (BT & Sasha's Bucklodge Ashram New Edit) (05:21)
- 02 - Ray of Light (Sasha Twilo Mix Edit) (05:42)
- 03 - Skin (Peter & Victor's Collaboration Remix Edit) (05:19)
- 04 - Nothing Really Matters (Club 69 Speed Mix Meets the Dub) (05:14)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79EDA56A15ACC6A787C2016059667C7CCEF764C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679598   (10175) от 27.07.2025
-
-Alice Cooper - Studio Albums (11 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Э́лис Ку́пер (англ. Alice Cooper, при рождении Ви́нсент Дэ́ймон Фурнье́ (или Фёрни́эр — англ. Vincent Damon Furnier; род. 4 февраля 1948, Детройт) — американский рок-певец и автор песен. Купер был одним из первых шок-рокеров и стал, как отмечает All Music Guide, королём этого жанра, своей новаторской деятельностью радикально расширив (   Читать дальше...   )2000 - Brutal Planet
-2001 - Dragontown
-2003 - The Eyes Of Alice Cooper
-2005 - Dirty DiamondsЖанр: Hard RockПродолжительность: 09:23:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337B9A6467C9EA3D2E96A4BE3B173C5DC96C91DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808843   (10012) от 29.07.2025
-
-Агата Кристи - Полное Собрание Сочинений. Том I, Том II, Том III (2013-2015) [DSD 128|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10012.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Агата Кристи» - советская и российская рок-группа, одна из наиболее популярных в стране в середине и во второй половине 1990-х годов. Основана в 1985 году в Свердловске Вадимом Самойловым, Александром Козловым и Петром Маем под названием ВИА «РТФ УПИ», официально же история группы отсчитывается с концерта 20 февраля 1988 года. Во время записи альбома «Второй фронт» (   Читать дальше...   )Агата Кристи - Полное Собрание Сочинений. 2013 Том I
-Агата Кристи - Полное Собрание Сочинений. 2015 Том II
-Агата Кристи - Полное Собрание Сочинений. 2015 Том IIIЖанр: RockПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E6F03F6667EA84FADC95BE0E7C7B5C51A71D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808739   (10007) от 29.07.2025
-
-Yello - 12 студийных альбомов (1983-2020) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Electronic, synthpop, new wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yello (Йеллo) — швейцарская электронная группа, образованная в 1978 году в Цюрихе. В те времена в состав группы входили композитор-аранжировщик Бoрис Бланк (Boris Blank, родился 15 января 1952) (клавишные, сэмплинг, ресэмплинг, перкуссия, бэк-вокал,) и Карлос Перон, покинувший группу в 1983. В 1979 в группу в качестве вокалиста и автора песен был приглашен Дитер (   Читать дальше...   )1983 You Gotta Say Yes To Another Excess (LP, DSD, Germany, Vertigo - 812 166-1Q)
-1985 Stella (LP, DSD, Germany, Vertigo # 822 820-1Q)
-1987 One Second (LP, DSD, Germany, Mercury # 830 956-1)
-1988 Flag (LP, DSD, USA, Mercury # 836 426-1)Жанр: Electronic, synthpop, new waveПродолжительность: 08:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CA75CFE6613C2FE66937F4BEDCA25C0B9364FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809287   (9954) от 29.07.2025
-
-Folk Bitch Trio - Now Would Be A Good Time (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God's A Different Sword [00:03:19]
-02. Hotel TV [00:04:37]
-03. The Actor [00:02:50]
-04. Moth Song [00:05:03](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C333D85260B76EB9385A0C051681AFCC95280D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809185   (9951) от 29.07.2025
-
-VA - Evangelion Finally (2020) [FLAC 2.0|48/24|image +.cue|MC-Rip] <J-pop, Synth-pop, Kayokyoku>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 高橋洋子 - 残酷な天使のテーゼ / Yoko Takahashi - Cruel Angel's Thesis
-A2 高橋洋子 - 無限抱擁 / Yoko Takahashi - Infinite Embrace
-A3 高橋洋子 - 魂のルフラン / Yoko Takahashi (   Читать дальше...   )Жанр: J-pop, Synth-pop, KayokyokuПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2ACC00C21EADC6F64FB29EF100222FE5DE2E929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809415   (9859) от 30.07.2025
-
-Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крис Ри - Кристофер Энтон Риа (Christopher Anton Rea). Вершины своего успеха певец добился в конце 1980-х — начале 1990-х годов, с выпуском своего десятого студийного альбома «The Road to Hell» (1989), который многие считают одним из его лучших, а также с последующим альбомом «Auberge» (1991). Свой первый контракт в качестве сольного исполнителя Крис Ри подписал (   Читать дальше...   )1979 - Deltics(UK, MAGL 5028 LP)
-1980 - Tennis (UK, MAGL 5032 LP)
-1981 - Chris Rea (Germany, 713016 LP)
-1983 - Water Sign (Germany, 823 077-1 LP)Жанр: RockПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50009BAFDBF26E5F2C1116A906A253F5F502315C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809512   (9777) от 31.07.2025
-
-Chilly - Collection (1978-1982) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chilly - западногерманская диско-группа, получившая наибольшую популярность в конце 70-х — начале 80-х годов. В 1978 году молодой 32-летний продюсер Бернт Мёрле (Bernt Mohrle) при участии аранжировщиков Кристиана Колоновица и Штэфана Клинкхаммера, известных по работе с такими звёздами как Boney M., Eruption, Supermax, Silver Convention и другими, приступил к созданию (   Читать дальше...   )1978 - For Your Love (Germany, Polydor - 2417 122)
-1979 - Come To L.A. (Germany, Polydor - 2417 124)
-1980 - Showbiz (Germany, Polydor - 2417 137)
-1982 - Secret Lies (Germany, Polydor - 2372 086)Жанр: Disco, soul, funkПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2CE49C8A6B9A610D19041CA169C0EC62E0F40E
 ```
 
 https://mybot314.ru/tekegram_catalog/

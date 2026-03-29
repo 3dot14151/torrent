@@ -1,3 +1,133 @@
+###  Публикация: 966711   (218553) от 18.12.2015
+
+Голливудская мадам / Heidi Fleiss: The Would-Be Madam of Crystal (2008) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218553.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о новом увлечении бывшей дивы Голивуда Хайди Флайсс — расположенном в Неваде мужском публичном доме под названием «Конюшня Хайди», который обслуживает прекрасную половину человечества.Телекомпания: США,  HBO Films, World of WonderЖанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональный (AMedia)Продолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51B6DAE864417BB70AFA84A86D13CC33E12B43E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586172   (218133) от 25.10.2022
+
+Скандал! Крах Wirecard / Skandal! Bringing Down Wirecard (2022) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стремительный успех платежного сервиса Wirecard считался сенсацией в финансовой сфере, пока дотошные журналисты не разоблачили мошенничество в особо крупном размере.Производство: Великобритания, Aasia Productions, Aasia Productions, Passion PicturesЖанр: документальный, криминалРежиссер: James ErskineПеревод: Многоголосый профессиональныйЯзык озвучки: русский, английскийСубтитры: русские, английские, украинскиеПродолжительность: 01:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B48421B0609F206F2186338E7A2C01F8414B67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343388   (218080) от 06.12.2019
+
+Афера (2019) WEB-DLRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его называли "великим махинатором" и самым грандиозным мошенником в истории России. На его счету миллионы обманутых вкладчиков. Его несколько раз пытались привлечь к ответу, но он вновь и вновь возрождал свою финансовую пирамиду под названием МММ. Он утверждал, что рано или поздно на Земле останется только один человек, который не вступит в его пирамиду, (   Читать дальше...   )Телекомпания: ВГТРКЖанр: ДокументальныйРежиссер: Никита СутыринСубтитры: отсутствуютПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26283923B85A897DE4A2526DF242DF02D2F35311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343365   (217863) от 06.12.2019
+
+Как устроен мир (2018-2019) HDTVRip [H.264/720p-LQ] (серии 60 из 60)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый выпуск не уступает голливудскому фильму-катастрофе. Тимофей Баженов бросает вызов беспощадным стихиям и преподносит научные факты так, что от них невозможно оторваться!Производство: Россия, РЕН ТВЖанр: ДокументальныйРежиссер: Артем ЛядовЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 60 x ~ 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF404E6C43247DC21F22586A57394E26CDDBC408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514436   (217692) от 03.12.2021
+
+По следу монстра (27.11.2021) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217692.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дружба до гроба» Астрахань, 2010 год: кто-то жестоко расправился с целой семьей, включая 5-летнего ребенка. Сыщики не исключали, преступление могло быть связано с серией квартирных краж. Тем временем город потрясло новое убийство. Сколько всего загубленных жизней на счету преступника, который не жалел даже друзей? «По следу монстра» пошла женщина-следователь.Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CD19E5D1B63478D1B1A70A773350FEA0A67712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514375   (217569) от 03.12.2021
 
 Следствие вели... (28.11.2021) WEBRip [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217569.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217298.jpg" />
+  <img src="Z:/picture/005/save_picture_217298.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217278.jpg" />
+  <img src="Z:/picture/005/save_picture_217278.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216966.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216875.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216868.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216834.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216538.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215868.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215646.jpg" />
+  <img src="Z:/picture/005/save_picture_215646.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215605.jpg" />
+  <img src="Z:/picture/005/save_picture_215605.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215448.jpg" />
+  <img src="Z:/picture/005/save_picture_215448.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214946.jpg" />
+  <img src="Z:/picture/005/save_picture_214946.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214879.jpg" />
+  <img src="Z:/picture/005/save_picture_214879.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214625.jpg" />
+  <img src="Z:/picture/005/save_picture_214625.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214474.jpg" />
+  <img src="Z:/picture/005/save_picture_214474.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214456.jpg" />
+  <img src="Z:/picture/005/save_picture_214456.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213986.jpg" />
+  <img src="Z:/picture/005/save_picture_213986.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213945.jpg" />
+  <img src="Z:/picture/005/save_picture_213945.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213798.jpg" />
+  <img src="Z:/picture/005/save_picture_213798.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213465.jpg" />
 </div>
 
 
@@ -538,140 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F143C2C47244D66899330131A44DFD90FFA1A1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638891   (211837) от 10.06.2023
-
-Живая еда с Сергеем Малозёмовым (10.06.2023) WEB-DL [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли реанимировать испорченные продукты и как очистить от плесени холодильник? Что за болезнь поражает волынщиков и почему плесень опасна для больных раком? Как хорошие грибки создают благородные деликатесы, может ли она прижиться на обычном сыре и безопасный ли получится продукт?
- Ученые из Франции проследили за пищевым поведением 95 молодых людей и заметили, (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060C7A7A520A578EDA74E59D6079389F572F562E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639029   (211688) от 11.06.2023
-
-Чудо техники с Сергеем Малозёмовым (11.06.2023) WEB-DL [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему кассеты и кассетники снова в моде у меломанов? Кто выпускает кассеты сегодня и где искать ценные, коллекционные экземпляры? Надолго ли эта тенденция с нами и что про это думают легенды отечественной сцены, эксперты и… подрастающее поколение?
- Доктор на запястье: могут ли «умные» часы стоять на страже здоровья, как точно они измеряют давление и смогут ли распознать (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A24BD2662B6145D20AAAD4C56E927C69C0761E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508644   (211422) от 01.08.2022
-
-Вся клюква о России (2011) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся клюква о России - это фильм о русских брендах, многие из которых - просто стереотипы о России. Как мы пытаемся их разрушить, но иногда - вольно или невольно - подтверждаем...
-В фильме принимают участие: Андрис Лиепа, Джон Харрисон, Татьяна Навка, Вилли Токарев, политик, министр культуры РФ, публицист, автор литературного цикла "Мифы о России" Владимир (   Читать дальше...   )Телекомпания: Россия, ТВЦЖанр: ДокументальныйПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9811C1CACDE60AC311F3BC781F167D77031A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641843   (210665) от 24.06.2023
-
-Живая еда с Сергеем Малозёмовым (24.06.2023) WEB-DL [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окрошка, ботвинья, гаспачо: чем хороши холодные супы и что о них думают диетологи? Какая заправка для окрошки победила в народной дегустации — квас, кефир или минералка? И покажутся ли съедобными старинные супы сегодня?
-Как вкусно приготовить ревень, почему в некоторых местах его выращивают при свечах, для кого он — отрава, и какое блюдо с ревенем любил Александр (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF6A77488FA402B1E6A3B450E1BC965EF2AEE9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641651   (210639) от 25.06.2023
-
-Мавроди. Миф и человек (2023) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал-расследование о феномене крупнейшей в истории России финансовой пирамиды. Имя Сергея Мавроди стало нарицательным для жителей всей страны. Миллиардер в старом спортивном костюме, выдающийся математик, аутичный гений и основатель крупнейшей в истории страны финансовой пирамиды — то немногое, что мы знаем о Мавроди, он рассказал о себе сам. И мало (   Читать дальше...   )Производство: Россия, студия «Амурские волны»Жанр: документальный, история, биография, криминалРежиссер: Александр Уржанов, Игорь СадреевАктеры: Сергей Мавроди, Владимир Пермяков, Константин Глодев, Ярослав АхматьяновЯзык озвучки: РусскийПродолжительность: 4 х~00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F04E366AC311877A9D625EC65F371A91914B081
 ```
 
 https://mybot314.ru/tekegram_catalog/

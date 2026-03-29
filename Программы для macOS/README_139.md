@@ -1,3 +1,136 @@
+###  Публикация: 1652209   (194545) от 10.08.2023
+
+Serato Studio for Mac 2.0.6 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serato Studio - это приложение, которое представляет из себя новую цифровую звуковую рабочую станцию (DAW), которая была разработана для людей, имеющие опыт работы в области DJ. Она отражает суть ПО для диджеинга и делает его идеальным для любого пользователя в этой области, не важно только что вы решили заняться музыкой или уже есть опыт. Приложение имеет очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 1999-2023 SeratoПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB0F75F12FB31CF0AC0B3AE037D8988BE9E4524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652085   (194501) от 09.08.2023
+
+Macs Fan Control Pro 1.5.15 U2B [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Macs Fan Control Pro обеспечит полный мониторинг в реальном времени датчиков скорости и температуры вентилятора, включая жесткие диски/твердотельные накопители сторонних производителей (с использованием SMART). Установите пользовательское значение RPM (оборотов в минуту) или контролируйте скорость вращения вентилятора в зависимости от датчика температуры (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2023Разработчик: © 2005-2023 CrystalIDEAПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0858D70F5AD22286577F45C131A09CF0F5952A13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652539   (194467) от 12.08.2023
+
+Xojo 2023 Release 1.1 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xojo (ранее Real Studio, а еще ранее Real Basic) - объектно-ориентированная, кроссплатформенная, визуальная среда разработки приложений для Mac OS X, Linux, Windows, iOS и Raspberry PI, которая позволяет разрабатывать удобные и легкие приложения, утилиты (в том числе консольные) и приложения для Web, с возможностью поддержки самых популярных баз данных.
+Приложение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.04.2023Разработчик: © 2023 Xojo, Inc.Поддерживаемая ОС: macOS X 10.13.6 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18CBF56B77993408776A4E5A365E52DE6150011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653265   (194322) от 15.08.2023
+
+Astute Graphics Plugins Elite Bundle for Mac 2.3.3 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Astute Graphics — сборник плагинов для векторного графического редактора Adobe Illustrator
+Английская компания Astute Graphics специализируется в разработке творческих инструментов для векторных дизайнеров, которые значительно экономят время, повышают творческий потенциал и помогают достигать прекрасных результатов.Тип издания: macOS SoftwareРелиз состоялся: 07.08.2023Разработчик: © 2023 Astute GraphicsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F8CABC91538CC09E1D50E87235DA8453181ED3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653349   (194247) от 15.08.2023
+
+PDF Studio Pro for Mac 2023.0.1 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простое в использовании, полнофункциональное программное обеспечение для редактирования PDF, которое является надежной альтернативой Adobe ® Acrobat ® и предоставляет все необходимые функции PDF по минимальной цене. PDF Studio поддерживает полную совместимость со стандартом PDF.
+PDF Studio™ — это простой в использовании PDF-редактор «все в одном», который предоставляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.05.2023Разработчик: © 2023 Qoppa SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20B9F65E81C4B8E2010F82F2650C2197F7EC2145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654799   (193924) от 22.08.2023
 
 PDF Expert 3.4 U2B [Multi/Ru]
@@ -6,7 +139,7 @@ PDF Expert 3.4 U2B [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193924.jpg" />
 </div>
 
 
@@ -33,7 +166,7 @@ Autodesk Flame 2024.0.1 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193919.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ MacDroid Pro 1.8 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193872.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ Topaz Gigapixel AI 8.4.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193737.jpg" />
 </div>
 
 
@@ -114,7 +247,7 @@ Pixelmator Pro 3.7 [En/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193724.jpg" />
 </div>
 
 
@@ -142,7 +275,7 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193637.jpg" />
 </div>
 
 
@@ -168,7 +301,7 @@ Radio Silence 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192276.jpg" />
 </div>
 
 
@@ -195,7 +328,7 @@ Parallels Desktop Business Edition 18.0.3 (build 53079) [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191692.jpg" />
+  <img src="Z:/picture/004/save_picture_191692.jpg" />
 </div>
 
 
@@ -223,7 +356,7 @@ Optimage 3.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191036.jpg" />
+  <img src="Z:/picture/004/save_picture_191036.jpg" />
 </div>
 
 
@@ -249,7 +382,7 @@ Translate Tab 2.0.18 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190590.jpg" />
 </div>
 
 
@@ -275,7 +408,7 @@ TG Pro (Temperature Gauge Pro) 2.83 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190577.jpg" />
 </div>
 
 
@@ -302,7 +435,7 @@ Adobe Bridge 2023 13.0.4 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190409.jpg" />
 </div>
 
 
@@ -328,7 +461,7 @@ Adobe Animate 2023 v.23.0.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190396.jpg" />
 </div>
 
 
@@ -354,7 +487,7 @@ Adobe Media Encoder 2023 v.23.6 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190319.jpg" />
 </div>
 
 
@@ -380,7 +513,7 @@ Boxy SVG 4.12.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190199.jpg" />
 </div>
 
 
@@ -406,7 +539,7 @@ CHM Viewer Star 6.3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190196.jpg" />
 </div>
 
 
@@ -432,7 +565,7 @@ Folder Tidy 2.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190170.jpg" />
 </div>
 
 
@@ -461,7 +594,7 @@ WiFi Scanner 3.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190074.jpg" />
 </div>
 
 
@@ -487,7 +620,7 @@ Omni Toolbox 1.4.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189821.jpg" />
 </div>
 
 
@@ -513,7 +646,7 @@ Network Radar 3.0.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189815.jpg" />
 </div>
 
 
@@ -539,7 +672,7 @@ OmmWriter 1.67 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189813.jpg" />
 </div>
 
 
@@ -552,138 +685,6 @@ OmmWriter - это инструмент, который позволяет сн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77DD48C3FB3D3483CA2DDA78079AE420B6F0511A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660287   (189802) от 12.09.2023
-
-NXPowerLite Desktop 10 v.10.0.2 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с NXPowerLite Desktop - приложением для дополнительного сжатия файлов PDF, Microsoft Office, JPEG-картинок, с целью уменьшения размера для последующей их пересылки по электронной почте в виде вложений. Особенно эффективна программа при сжатии pdf-документов, офисных файлов и картинок.
-Оптимизированные файлы сохраняют исходный формат и остаются полностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.09.2023Разработчик: © 2023 Neuxpower Solutions LtdПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4401F0277A910619B5ACD2DBC1AB6DF998D37D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660402   (189794) от 12.09.2023
-
-AirFoil+Airfoil Satellite 5.11.6 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189794.jpg" />
-</div>
-
-
-###  Подробнее
-
-AirFoil – специальное программное обеспечение, позволяющее транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2023 Rogue Amoeba Software, IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C829D41EBCEB88DF1AACC9B82107C1CF9181C744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660310   (189779) от 12.09.2023
-
-Exposure Software Blow Up 3 v.3.1.6.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
-Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.09.2023Разработчик: © 2022 Exposure Software, LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5511089C9DE346BF4DE952E97911C909C3995458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659875   (189688) от 12.09.2023
-
-PDF to Word&Document Converter 6.2.6 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189688.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF to Word & Document Converter - это приложение, которое позволяет быстро конвертировать PDF-документы в файлы других форматовТип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2024 qing qing yuПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9885364B6767B2BE8A6B32F8EA03353EA7CAA327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660306   (189664) от 12.09.2023
-
-Exposure X7 Bundle v.7.1.8.9 [EN]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: macOS SoftwareРелиз состоялся: 08.09.2023Разработчик: © 2022 Exposure Software, LLCПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20F493E803764A831D0F8B78FD3213B3C815897
 ```
 
 https://mybot314.ru/tekegram_catalog/

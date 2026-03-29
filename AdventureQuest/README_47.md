@@ -1,3 +1,81 @@
+###  Публикация: 1331623   (320186) от 17.10.2019
+
+Morels The Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320186.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найди как можно больше сморчков, фотографируя диких зверей, которых ты встречаешь на своем пути, и при этом наслаждайся звуками окружающей природы. Начиная с Юго-Западного Региона США, у тебя будет 100 дней в каждом сезоне, и так на протяжении всего исследования новых регионов твоего путешествия.Тип издания: LicenseРазработчик: Abrams StudiosЖанр: Adventure, Casual, Indie, SimulationЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD69AFDABE191B126F0AD0B0D18A8D52B3B6941
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305212   (320042) от 17.10.2019
+
+Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все объективы нацелены на вас — в центр сцены. Вы не просто в образе. Вы и есть образ. Роль, которую вы играете, принадлежит только вам. Она написана для вас. Вас встречает тишина. Режиссер не выкрикивает указаний. Вам не нужна команда, чтобы стать этой версией себя. Вас наполняет стремление играть, но в сценарии нет слов. Прошлое предопределило вашу личность и даровало (   Читать дальше...   )Тип издания: RepackРазработчик: Bloober TeamЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DBE73045954DFFF04C73956941BF276D9003989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075527   (319870) от 22.11.2016
+
+Sherlock Holmes: Crimes and Punishments (2014) [Ru] (1.0) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crimes and Punishments — это детективный квест, посвященный расследованиям знаменитого сыщика Шерлока Холмса. Отличается высокой проработкой. Каждое дело имеет свою уникальную и лихо закрученную историю — игрокам же в свою очередь придется собирать улики по крупицам, затем соединить их, принять окончательное решение и решить судьбу подозреваемых.Тип издания: RepackРазработчик: FrogwaresЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE6C9512F617CE7CE9DF4B8A4DE45A10F68C140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421058   (319182) от 04.11.2020
 
 Asterix & Obelix XXL: Romastered (2020) [Multi] (1.0.29) License GOG
@@ -6,7 +84,7 @@ Asterix & Obelix XXL: Romastered (2020) [Multi] (1.0.29) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319182.jpg" />
+  <img src="Z:/picture/008/save_picture_319182.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Obduction (2016) [Ru/Multi] (1.6.5) Repack R.G. Catalyst
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318798.jpg" />
+  <img src="Z:/picture/008/save_picture_318798.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (2.02) License GOG [20th Anni
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318449.jpg" />
+  <img src="Z:/picture/008/save_picture_318449.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ The Wild Eight (2019) [Ru/Multi] (1.0.12) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317906.jpg" />
+  <img src="Z:/picture/008/save_picture_317906.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) License RELOADED [Deluxe 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316369.jpg" />
+  <img src="Z:/picture/008/save_picture_316369.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Ice Age Scrat's Nutty Adventure (2019) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315612.jpg" />
+  <img src="Z:/picture/008/save_picture_315612.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Miasmata [En] (L) 2012
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314601.jpg" />
+  <img src="Z:/picture/008/save_picture_314601.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Stories Untold (2017) [En] (1.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313740.jpg" />
+  <img src="Z:/picture/008/save_picture_313740.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/En] (3.0/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313736.jpg" />
+  <img src="Z:/picture/008/save_picture_313736.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313730.jpg" />
+  <img src="Z:/picture/008/save_picture_313730.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Yesterday / Yesterday: Печать Люцифера (2012) [Ru/Multi] (1.0.0.1)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313104.jpg" />
+  <img src="Z:/picture/008/save_picture_313104.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312897.jpg" />
+  <img src="Z:/picture/008/save_picture_312897.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Westmark Manor (2020) [Ru/Multi] (1.0/upd10) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312382.jpg" />
+  <img src="Z:/picture/008/save_picture_312382.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311651.jpg" />
+  <img src="Z:/picture/008/save_picture_311651.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Book of Unwritten Tales 2 (2015) [En/Multi] (25.11.2015) License PROPHET [Al
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311544.jpg" />
+  <img src="Z:/picture/008/save_picture_311544.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Syberia 3: The Complete Journey (2017) [Ru/Multi] (1.5.07/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311428.jpg" />
+  <img src="Z:/picture/008/save_picture_311428.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Ice Age Scrats Nutty Adventure (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310996.jpg" />
+  <img src="Z:/picture/008/save_picture_310996.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Deliver Us The Moon (2019) [Ru/Multi] (1.3.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310987.jpg" />
+  <img src="Z:/picture/008/save_picture_310987.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack =nemos= [Episodes 1-5
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309018.jpg" />
+  <img src="Z:/picture/008/save_picture_309018.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307945.jpg" />
+  <img src="Z:/picture/008/save_picture_307945.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306935.jpg" />
+  <img src="Z:/picture/008/save_picture_306935.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Whispered World / Ускользающий мир (2010) [Ru/Multi] (3.2.041
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306774.jpg" />
+  <img src="Z:/picture/008/save_picture_306774.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306718.jpg" />
+  <img src="Z:/picture/008/save_picture_306718.jpg" />
 </div>
 
 
@@ -589,86 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EB0D4350B7C69A23533BF3FB6CC868A122DFABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040069   (306542) от 23.10.2019
-
-Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) Repack Other s [Masterpiece Edition]
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Layers of Fear – психоделический хоррор с запутанным сюжетом и странным игровым миром. Игрокам предлагается управлять художником, который мечтает закончить шедевр всей своей жизни. Исследуйте гигантский особняк викторианской эпохи, в котором комнаты, кажется, живут своей жизнью. Разум творца играет с ним злые шутки, пространство полнится видениями и таинственными (   Читать дальше...   )Тип издания: RepackРазработчик: Bloober Team SAЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A382CC17B7CFA4747C1F1F387306907CAA82A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259159   (306537) от 09.11.2018
-
-Dread of Laughter (2018) [En] (1.0/upd4) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главной героиней игры является девушка по имени Кэтрин Барнетт (Catheryn Barnett). Она живет на загородной ферме. Все хорошо до поры до времени – в один прекрасный вечер она осознает, что у нее нет никакой связи с внешним миром, а вокруг ее дома бродит маньяк. С этого момента ее единственной задачей является выживание.Тип издания: LicenseРазработчик: Icy North GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69D2203681C2FD9D988715D9241742127960AC06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 266683   (305804) от 05.12.2010
-
-Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды [Ru] (RePack) 2010 | R.G. World Games
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любому сыщику порой хочется как следует отдохнуть от громких дел и опасных расследований. Шерлок Холмс наслаждался крепчайшим табаком, Филипп Марлоу предпочитал добротный шотландский виски. В отличие от этих грандов детективного жанра, юная Нэнси Дрю решила попросту сменить обстановку и отправиться в Японию. Но даже здесь, среди модных магазинчиков, цветущей сакуры и старинных построек, ее ожидают новые зловещие тайны.
-
-Темные воды несут проклятье! Традиционный рёкан «Хиэй» прослыл самым страшным местом во всей округе. Местные жители предпочитают обходить гостиницу стороной. Впрочем, Нэнси Дрю уверена – разгадка очень близка! В поисках ответов ей предстоит прогуляться по Киото, как следует изучить окрестности и погрузиться в самый настоящий водоворот приключений. Но разобраться в этой тайне знаменитой девушке-детективу удастся только с вашей помощью!Тип издания: RePackРазработчик: Her InteractiveЖанр: AdventureЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF8BBD316472D666F9773ED4DA8680C186F1553
 ```
 
 https://mybot314.ru/tekegram_catalog/

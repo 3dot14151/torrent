@@ -1,3 +1,95 @@
+###  Публикация: 1643914   (196204) от 04.07.2023
+
+Original ENIGMA Voices LIVE 2019 (2023) CamRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любительская Multicam-запись дебютного концертного тура с песнями группы ENIGMA, организованного тремя вокалистами, которые помогали Мишелю Крету в создании этой культовой музыки.
+Ямайский музыкант Эндрю Дональдс, немецкий исполнитель Андреас Харде/Angel X и латвийская певица Алиса Кетнере/Fox Lima сообразили на троих давать живые выступления под брендом01) Intro
+02) Gravity Of Love
+03) The Rivers Of Belief
+04) Beyond The Invisible(   Читать дальше...   )Жанр: Нью-эйдж, Уорлдбит, ЧиллаутПродолжительность: 01:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5EDA772B44A353742CE940AC54B50DAF7F299F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647470   (195555) от 19.07.2023
+
+Golden Voice of ENIGMA - МИР Сибири (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональная запись концертного выступления Эндрю Дональдса с песнями группы ENIGMA, прошедшего летом 2023 года на Шушенском фестивале «МИР Сибири».
+Концертная программа ямайского музыканта включает как классику Энигмы вроде Modern Crusaders и Seven Lives, так и его собственные треки из сольной карьеры.
+Инструментальное сопровождение на сцене создавал симфонический (   Читать дальше...   )01) Intro
+02) The Roundabout
+03) Mishale
+04) In The Shadow, In The Light(   Читать дальше...   )Жанр: Нью-эйдж, Чиллаут, УорлдбитПродолжительность: 01:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00543DE3AEA63F5B9CDCC9580796D380070F2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656586   (193515) от 01.09.2023
+
+Two Steps From Hell - Wacken Open Air 2023 (2023) WEB-DL [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Two Steps From Hell с музыкального фестиваля Wacken Open Air, прошедший в августе 2023 года под руководством авторов проекта Томаса Бергерсена и Ника Феникса.
+В этот раз с группой гастролировали две вокалистки - монгольская певица Уянга Болд и уже давно ставшая формальным «голосом» группы Мерете Солтведт.
+В музыкальной программе первого европейского выступления (   Читать дальше...   ) 
+1 Protectors Of The Earth
+2 Strength Of A Thousand Men
+3 Flight Of The Silverbird(   Читать дальше...   )Жанр: Симфоническая Рок-ОпераПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59B3DE1FA3A1C8F9EB94D8465F301CD774AEA9AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657362   (192634) от 03.09.2023
 
 Квартирник у Маргулиса. Вечер балета с Сергеем Полуниным (03.09.2023) WEBRip [H.264/1080p]
@@ -6,7 +98,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192634.jpg" />
 </div>
 
 
@@ -35,7 +127,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191026.jpg" />
+  <img src="Z:/picture/004/save_picture_191026.jpg" />
 </div>
 
 
@@ -64,7 +156,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190429.jpg" />
 </div>
 
 
@@ -93,7 +185,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190134.jpg" />
 </div>
 
 
@@ -120,7 +212,7 @@ A-HA - Ending On A High Note (The Final Concert) (2011) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189219.jpg" />
+  <img src="Z:/picture/005/save_picture_189219.jpg" />
 </div>
 
 
@@ -149,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189094.jpg" />
 </div>
 
 
@@ -178,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188038.jpg" />
 </div>
 
 
@@ -207,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186202.jpg" />
 </div>
 
 
@@ -236,7 +328,7 @@ T.Rex - Wembley Empire Pool (18th March 1972, Evening Concert) (2020) WEB-DLRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183057.jpg" />
+  <img src="Z:/picture/004/save_picture_183057.jpg" />
 </div>
 
 
@@ -265,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182145.jpg" />
+  <img src="Z:/picture/005/save_picture_182145.jpg" />
 </div>
 
 
@@ -291,7 +383,7 @@ Two Steps From Hell - Europe Tour 2022 (2023) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182012.jpg" />
 </div>
 
 
@@ -322,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181307.jpg" />
 </div>
 
 
@@ -351,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180393.jpg" />
 </div>
 
 
@@ -380,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178058.jpg" />
 </div>
 
 
@@ -409,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176707.jpg" />
 </div>
 
 
@@ -439,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176685.jpg" />
+  <img src="Z:/picture/004/save_picture_176685.jpg" />
 </div>
 
 
@@ -465,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176070.jpg" />
 </div>
 
 
@@ -492,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176062.jpg" />
 </div>
 
 
@@ -519,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175818.jpg" />
+  <img src="Z:/picture/004/save_picture_175818.jpg" />
 </div>
 
 
@@ -545,7 +637,7 @@ Metallica: Fan Can Six - Live in Copenhagen (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174924.jpg" />
+  <img src="Z:/picture/004/save_picture_174924.jpg" />
 </div>
 
 
@@ -571,7 +663,7 @@ Korn: Live at Montreux 2004 (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174368.jpg" />
+  <img src="Z:/picture/004/save_picture_174368.jpg" />
 </div>
 
 
@@ -598,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173634.jpg" />
 </div>
 
 
@@ -628,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172964.jpg" />
 </div>
 
 
@@ -642,91 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A18177E04BEABC037A79E31BFCEAC7B3C7890CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670829   (171713) от 22.10.2023
-
-Квартирник у Маргулиса. Эльчин Азизов поет песни Муслима Магомаева (21.10.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Эльчина Азизова, который посвящен творчеству легендарного исполнителя, народного артиста СССР Муслима Магомаева. В программе вечера прозвучали только его песни. Уникальный голос Муслима Магомаева — звонкий и чистый баритон — с первых звуков узнаваем среди слушателей. Звезда оперы и эстрады, артист-аристократ, он сумел превратить алмаз своего дарования в настоящий (   Читать дальше...   )00:00:08  Луч солнца золотого
-00:07:42  Лучший город Земли
-00:13:43  Песне моей поверь
-00:18:13  Нам не жить друг без друга(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C9A092074248AAF6C175EC83FC77594BE479CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344559   (169627) от 11.12.2019
-
-The Cure - 40 Live (Curaetion 25: From There To Here + Anniversary) (2018) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два исторических шоу The Cure в 2018 году в честь их 40-летия.
-Первый фильм «CURÆTION-25: From There To Here | From Here To There» - был запечатлен на десятом и последнем вечере 25-го фестиваля Meltdown (куратор вокалист Роберт Смит) в лондонском Royal Festival Hall в июне 2018 года. Группа исполнила песню с каждого из своих 13 студийных альбомов с новыми и (   Читать дальше...   )Жанр: New Wave, Indie RockПеревод: Не требуетсяПродолжительность: 02:24:12 + 02:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15EDB5496984DCBFD47B529DE4E89236734BC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672613   (167858) от 29.10.2023
-
-Квартирник у Маргулиса. Эрика Лундмоен (28.10.2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт российской исполнительницы норвежского происхождения Эрики Лундмоен. Разноплановая певица является своего рода феноменом на отечественной эстраде. Она наглядный пример того, что, обладая талантом и будучи трудолюбивым, можно уверенно разместиться на первых строчках хит-парадов. Ее творчество невозможно вместить в рамки одного жанра — певица использует в своей (   Читать дальше...   )00:00:05  Кариба
-00:07:04  Этна
-00:15:05  Придется молчать
-00:20:49  Репликант(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FF43290627A8F2B4B512036801000B1B1CACF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1555050   (204662) от 28.10.2022
+
+B.I.O.T.A. (2022) [Ru/Multi] (59744/dlc) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_204662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выберите собственный ретро-стиль и начинайте расстреливать монстров. B.I.O.T.A. - это 2D-метроидвания, в которой вы управляете отрядом наемников, зачищающих шахтерскую колонию от инопланетной заразы. Исследуйте пиксельный мир, полный мутантов и смертельных ловушек. Используйте большой арсенал оружия и техники, включая меха-костюм, субмарину и звездолет.Тип издания: LicenseРазработчик: Small brosЖанр: Экшны, Сражения, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42FB5DD0D778CCD9615E0B1B5583BCB82E3AD864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591336   (203989) от 15.01.2023
+
+There Is No Light (2022) [Ru/Multi] (1.1.7.1 ) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_203989.jpg" />
+</div>
+
+
+###  Подробнее
+
+После масштабной катастрофы остатки человечества укрылись под землей, где основали новое религиозное общество. Позабыв солнечный свет, они слепо поклоняются богу нового мира - великой Длани, которая раз в несколько лет спускается на Центральную Станцию к людям и забирает избранных новорождённых к себе, в мир, скрытый за огромными вратами Храма. Главный герой отправляется (   Читать дальше...   )Тип издания: LicenseРазработчик: ZelartЖанр: Экшны, Приключение, ФэнтeзиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD1F3ADE834159EEA7010333A8010D53073FADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605548   (203872) от 18.01.2023
 
 Antivine (2022) [Multi] (1.0) License DARKSiDERS
@@ -6,7 +58,7 @@ Antivine (2022) [Multi] (1.0) License DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203872.jpg" />
+  <img src="Z:/picture/004/save_picture_203872.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.7.2) Repack ElAmigos
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202840.jpg" />
+  <img src="Z:/picture/004/save_picture_202840.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Dealer's Life 2 (2022) [Ru/Multi] (W75/1.26) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202783.jpg" />
+  <img src="Z:/picture/004/save_picture_202783.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Out Zone (2023) [Multi] (23) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202589.jpg" />
+  <img src="Z:/picture/004/save_picture_202589.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Secret Agent HD (2021) [En] (1.0.5) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202573.jpg" />
+  <img src="Z:/picture/004/save_picture_202573.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ One Hand Clapping (2021) [Ru/Multi] (1.0.41 Release.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202439.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Adventure of Samsara (2025) [Multi] (1.0.13) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202234.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Flying Shark (2023) [En] (7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201884.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Have a Nice Death (2023) [Ru/Multi] (1.0.0.53022) Scene DARKSiDERS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200703.jpg" />
+  <img src="Z:/picture/005/save_picture_200703.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Necros [Digital Deluxe Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_199744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_199744.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Switchball HD (2021) [Ru/Multi] (370) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199506.jpg" />
+  <img src="Z:/picture/005/save_picture_199506.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ DIG - Deep In Galaxies (2023) [Ru/Multi] (1.0.4.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198538.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Elypse (2023) [Multi] (1.6) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197847.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ HAAK (2022) [Ru/Multi] (1.3.1.17223) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197796.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Panzer Knights (2021) [Ru/Multi] (1.1.7/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197717.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Death or Treat (2023) [Ru/Multi] (1.0.4) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197695.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ DOOMBLADE (2023) [Ru/Multi] (0.9) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197600.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Return (2023) [En] (1.0.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197524.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Neon Chrome (2016) [Ru/Multi] (1.1.12/dlc) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196615.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Farworld Pioneers (2023) [Ru/Multi] (1.0.0) Scene Razor1911
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196508.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Afterimage (2023) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196112.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Time Loader (2021) [Ru/Multi] (1.6.7) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195879.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Bucket Knight (2019) [Ru/Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195631.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Madshot (2023) [Ru/Multi] (1.0) Scene Skidrow
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195192.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Madshot (2023) [Ru/Multi] (1.0) Scene Skidrow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBFAB93EB65BC67586A739D94C7C3E4D5A4444A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651227   (194790) от 05.08.2023
-
-Mega City Police (2023) [Ru/Multi] (1.01) Scene Tenoke
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хардкорный Экшен-Роглайк в ретро-стиле о крутых копах, сражающихся с преступностью, чтобы вершить закон. Выбери своего копа и погрузись в жестокую схватку с врагами, используя огромный арсенал оружия и способностей, предлагающих уникальный стиль игры. Закон заставит преступность истекать кровью. Киборг-полицейский бегает по уровням и отстреливает плохишей, ещё он (   Читать дальше...   )Тип издания: SceneРазработчик: Undreamed GamesЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527C70F13021CE3CD1A2860DBB3A3C19CE3BEE24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651509   (194660) от 06.08.2023
-
-DROS (2023) [En] (5) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194660.jpg" />
-</div>
-
-
-###  Подробнее
-
-DROS - игра, повествующая о маловероятном сотрудничестве двух героев, которые должны преодолеть свои разногласия, чтобы победить Алхимика, таинственного злодея, правящего башней алхимических чудес. Тайтл представляет собой трехмерный платформер-головоломку, сочетающую в себе исследование, бой и решение головоломок в мрачном фэнтезийном сеттинге.Тип издания: LicenseРазработчик: emergeWorldsЖанр: Приключение, Головоломка, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78AEA1FD2BF43F98C4A0DD62E277FCD6B03984B
 ```
 
 https://mybot314.ru/tekegram_catalog/

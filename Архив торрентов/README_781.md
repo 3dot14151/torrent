@@ -6,7 +6,7 @@ Trojan Killer 2.1.20 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874427.jpg" />
+  <img src="Z:/picture/005/save_picture_874427.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Infix PDF Editor Pro 7.5.0 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874420.jpg" />
+  <img src="Z:/picture/005/save_picture_874420.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DriverPack Solution 16.17.1 + Драйвер-Паки 17.02.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874388.jpg" />
+  <img src="Z:/picture/005/save_picture_874388.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874378.jpg" />
+  <img src="Z:/picture/005/save_picture_874378.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874375.jpg" />
+  <img src="Z:/picture/005/save_picture_874375.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874353.jpg" />
+  <img src="Z:/picture/008/save_picture_874353.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Elmedia Player Pro 7.10  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874308.jpg" />
+  <img src="Z:/picture/005/save_picture_874308.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Product Key Explorer 4.2.3.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874304.jpg" />
+  <img src="Z:/picture/005/save_picture_874304.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ oCam 500.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874302.jpg" />
+  <img src="Z:/picture/005/save_picture_874302.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Opera 67.0.3575.137 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874297.jpg" />
+  <img src="Z:/picture/005/save_picture_874297.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The Bat! Professional 9.1.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874294.jpg" />
+  <img src="Z:/picture/005/save_picture_874294.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ FastStone Image Viewer 6.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874290.jpg" />
+  <img src="Z:/picture/005/save_picture_874290.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4903.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874289.jpg" />
+  <img src="Z:/picture/005/save_picture_874289.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874283.jpg" />
+  <img src="Z:/picture/005/save_picture_874283.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (1.0.3с/dlc) Repack Other 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874219.jpg" />
+  <img src="Z:/picture/005/save_picture_874219.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Waterfox Current / Classic 2020.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874197.jpg" />
+  <img src="Z:/picture/005/save_picture_874197.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Cent Browser 4.2.9.152 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874196.jpg" />
+  <img src="Z:/picture/005/save_picture_874196.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ OCCT 5.5.6.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874190.jpg" />
+  <img src="Z:/picture/005/save_picture_874190.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_874166.jpg" />
+  <img src="Z:/picture/009/save_picture_874166.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_874165.jpg" />
+  <img src="Z:/picture/009/save_picture_874165.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Kaze no Tani no Nausicaa | Nausicaa from the Valley of the Wind | Навсика
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874146.jpg" />
+  <img src="Z:/picture/005/save_picture_874146.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Folx Pro 5 v5.18 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874133.jpg" />
+  <img src="Z:/picture/008/save_picture_874133.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ AC/DC - 100% AC/DC (2020) [MP3|320 Kbps] <Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874124.jpg" />
+  <img src="Z:/picture/008/save_picture_874124.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Visual Studio Code 1.44.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874118.jpg" />
+  <img src="Z:/picture/005/save_picture_874118.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ oCam Screen Recorder 500.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874095.jpg" />
+  <img src="Z:/picture/008/save_picture_874095.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ TreeSize Professional 7.1.5.1471 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874093.jpg" />
+  <img src="Z:/picture/008/save_picture_874093.jpg" />
 </div>
 
 

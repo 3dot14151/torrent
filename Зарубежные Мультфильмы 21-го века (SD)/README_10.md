@@ -1,3 +1,83 @@
+###  Публикация: 999220   (866113) от 21.03.2016
+
+Ледниковый Период: Погоня за яйцами / Ice Age: The Great Egg-Scape (2016) HDRip [H.264] [MP4|960х544]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_866113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скрэт, Мэнни, Сид, Диего и другие доисторические герои Ледникового Периода в совершенно новом уморительном анимационном приключении! Новый бизнес Сида по высиживанию яиц успешно развивается, но когда подлый кролик –пират Сквинт крадет яйца, Мэнни, Диего и остальные отправляются в бесстрашную спасательную операцию , которой суждено стать первой в истории погоней за (   Читать дальше...   )Производство: СШАЖанр: Анимация, Приключения, КороткометражныйРежиссер: Рикардо КертисАктеры: Блейк Андерсон Лили Эстефан Сет Грин Габриэль Иглесиас Дэнис Лири Джон Легуизамо Джош Пек Куин Латифа Рэй Романо Шонн Уильям СкоттПеревод: Дублированный (iTunes)Продолжительность: 00:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CB12F5535653B469F70D34F393780CE1F28F2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 874220   (864308) от 02.03.2015
+
+7-ой гном / Der 7bte Zwerg (2014) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_864308.jpg" />
+</div>
+
+
+###  Подробнее
+
+В замке Фантабулараса большой переполох: принцесса Роза празднует свой 18-й день рождения. Приняты самые строгие меры безопасности, ведь злобная Колдунья Делламорта, которая прокляла Розу на ее крестинах, не позволит проклятию раствориться в воздухе.
+Семеро гномов — Умник, Рыжик, Ворчун, Соня, Силач, Бодряк и Бобо — ничего не знают об этом, когда отправляются на (   Читать дальше...   )Производство: Германия, Animationsfabrik Hamburg, Erfttal FilmЖанр: Мультфильм, Приключения, СемейныйРежиссер: Борис АльиновичАктеры: Джошуа Грэхэм,  Мэтт Гилберт,  Эл Пэрриш,  Джофф Мэй,  Джо Март,  Камерон Элвин,  Дэниэл Велбат,  Дов Грэй,  Кевин Моррис,  Криста КлэхейнПеревод: Дублированный (Лицензия R5)Субтитры: ОтсутствуютПродолжительность: 01:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:662E687DEDF309BA00D78540DEB64E28D29E9CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 767751   (863378) от 18.03.2014
+
+Господин Иллюминатор / Mr Hublot (2013) HDTVRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_863378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько же всего уже было снято на тему любви и дружбы между животным и человеком, однообразности нашей жизни если в ней нет чувств. Но ни смотря на это можно все еще найти стоящие внимания работы. Эта — одна из них.
+Главный герой, довольно колоритный сам по себе персонаж, живет в таком же колоритном мире — мире будущего: везде механизация и роботизация проникла (   Читать дальше...   )Производство: Люксембург, ФранцияЖанр: компьютерная анимацияРежиссер: Александр Эспигарес, Лорен УитцПеревод: не требуется (немой)Субтитры: ОтсутствуютПродолжительность: 00:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFC877D5492C6E9EFDCAEC7A7B2053277BD640C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 303349   (863325) от 03.03.2011
 
 Бэмби 2 / Bambi II (2006) DVDRip
@@ -6,7 +86,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863325.jpg" />
+  <img src="Z:/picture/008/save_picture_863325.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863321.jpg" />
+  <img src="Z:/picture/008/save_picture_863321.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862612.jpg" />
+  <img src="Z:/picture/008/save_picture_862612.jpg" />
 </div>
 
 
@@ -87,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862275.jpg" />
+  <img src="Z:/picture/008/save_picture_862275.jpg" />
 </div>
 
 
@@ -113,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861724.jpg" />
+  <img src="Z:/picture/008/save_picture_861724.jpg" />
 </div>
 
 
@@ -139,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861554.jpg" />
+  <img src="Z:/picture/008/save_picture_861554.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860422.jpg" />
+  <img src="Z:/picture/008/save_picture_860422.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859790.jpg" />
+  <img src="Z:/picture/008/save_picture_859790.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ Barbie: Тайна Феи / Barbie: A Fairy Secret (2011) DVD-9
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_858234.jpg" />
+  <img src="Z:/picture/009/save_picture_858234.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857830.jpg" />
+  <img src="Z:/picture/008/save_picture_857830.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857798.jpg" />
+  <img src="Z:/picture/008/save_picture_857798.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857659.jpg" />
+  <img src="Z:/picture/008/save_picture_857659.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856122.jpg" />
+  <img src="Z:/picture/008/save_picture_856122.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856120.jpg" />
+  <img src="Z:/picture/008/save_picture_856120.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854558.jpg" />
+  <img src="Z:/picture/008/save_picture_854558.jpg" />
 </div>
 
 
@@ -401,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854427.jpg" />
+  <img src="Z:/picture/008/save_picture_854427.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854425.jpg" />
+  <img src="Z:/picture/008/save_picture_854425.jpg" />
 </div>
 
 
@@ -456,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853878.jpg" />
+  <img src="Z:/picture/008/save_picture_853878.jpg" />
 </div>
 
 
@@ -482,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852502.jpg" />
+  <img src="Z:/picture/008/save_picture_852502.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852066.jpg" />
+  <img src="Z:/picture/008/save_picture_852066.jpg" />
 </div>
 
 
@@ -534,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852058.jpg" />
+  <img src="Z:/picture/008/save_picture_852058.jpg" />
 </div>
 
 
@@ -560,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849798.jpg" />
+  <img src="Z:/picture/008/save_picture_849798.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849476.jpg" />
+  <img src="Z:/picture/008/save_picture_849476.jpg" />
 </div>
 
 
@@ -597,86 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABB0AAE3CE885A3CD4929F8399A319DFE4DE22CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499350   (849410) от 01.10.2021
-
-Кролик Питер 2 / Peter Rabbit 2: The Runaway (2021) DVD5 [Custom]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории маленького и непоседливого кролика по имени Питер. Беатрис, Томас и крольчата, наконец, находят общий язык и начинают спокойную и размеренную жизнь за городом. Однако Питеру это совсем не по нраву: его мятежная душа требует приключений, и он отправляется на их поиски в большой город, туда, где его проделки уж точно оценят по достоинству. Тем временем, (   Читать дальше...   )Производство: США, Австралия, Индия / Columbia Pictures CorporationЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Уилл ГлакАктеры: Джеймс Корден, Роуз Бирн, Донал Глисон, Дэвид Ойелоуо, Марго Робби, Элизабет Дебики, Айми Хорн, Колин Муди, Ленни Джеймс, Хейли ЭтвеллПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624E3AE20CB2C1EB105F381B4491DF922B0A6A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 876888   (848812) от 11.03.2015
-
-Феи: Легенда о чудовище / Tinker Bell and the Legend of the NeverBeast (2014) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анимационная сказка расскажет удивительную историю о веселой и талантливой фее Фауне, которая убеждена в том, что о книге нельзя судить по ее обложке, впрочем, как и о животном по его клыкам, поэтому она дружит с таинственным существом громадных размеров из Нетландии по прозвищу Чудовище.
-
-В это время группа волшебных фей разведки не настолько уверены в этом страшном (   Читать дальше...   )Производство: США | DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Стив ЛотерПеревод: Дублированный (iTunes Russia)Продолжительность: 01:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB530956DECC3F5BBA470ACCC575E031C4CABBF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499503   (847363) от 02.10.2021
-
-Тайна парка развлечений / Boonie Bears: The Wild Life (2021) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медведи снова в деле. Они приезжают в загадочный парк развлечений, где их ждут невероятные приключения, весёлые розыгрыши и, конечно же, аттракционы. Медведи найдут новых друзей и вместе с ними раскроют тайну парка.Производство: Китай / Fantawild Animation, HG Entertainment, Sunac Culture, Lianrui PicturesЖанр: Мультфильм, Комедия, Фантастика, ПриключенияРежиссер: Дин ЛянАктеры: Чжан Вэй, Чжан Бинцзюнь, Тань СяоПеревод: Дублированный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FDDEC9837E45C5BED727AE92E4B740F41BC5FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790899.jpg" />
+  <img src="Z:/picture/008/save_picture_790899.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Sacred Journey, Vol. 3 (2021) [AAC|~302 Kbps] <Electronic, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_790866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_790866.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790744.jpg" />
+  <img src="Z:/picture/008/save_picture_790744.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790644.jpg" />
+  <img src="Z:/picture/008/save_picture_790644.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Group | Stand Up Сезон 10 (2019) [M4B|AAC]
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790637.jpg" />
+  <img src="Z:/picture/008/save_picture_790637.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790458.jpg" />
+  <img src="Z:/picture/008/save_picture_790458.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790451.jpg" />
+  <img src="Z:/picture/008/save_picture_790451.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790449.jpg" />
+  <img src="Z:/picture/008/save_picture_790449.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790421.jpg" />
+  <img src="Z:/picture/008/save_picture_790421.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Eclectic Ethno 1 by Nikko Sunset (2020) [AAC|~310 Kbps] <Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790398.jpg" />
+  <img src="Z:/picture/008/save_picture_790398.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ VA - Eclectic Ethno 2 by Nikko Sunset (2020) [AAC|~326 Kbps] <Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790396.jpg" />
+  <img src="Z:/picture/008/save_picture_790396.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Legends of Modern Jazz (2021) [AAC|~300 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790393.jpg" />
+  <img src="Z:/picture/008/save_picture_790393.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ VA - Jazzy Summer Nights (2021) [AAC|~339 Kbps] <Jazz, Easy Listening>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790390.jpg" />
+  <img src="Z:/picture/008/save_picture_790390.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - I'll Be Home for Christmas - Christmas Jazz (2021) [AAC|~323 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790388.jpg" />
+  <img src="Z:/picture/008/save_picture_790388.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ VA - Music To Drive With Open Mind (2021) [AAC|~326 Kbps] <Nu Jazz, Soul, Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790387.jpg" />
+  <img src="Z:/picture/008/save_picture_790387.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790374.jpg" />
+  <img src="Z:/picture/008/save_picture_790374.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790372.jpg" />
+  <img src="Z:/picture/008/save_picture_790372.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790353.jpg" />
+  <img src="Z:/picture/008/save_picture_790353.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Best of Green Hill Music: The Orchestral Collection (2021) [AAC|~337 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790338.jpg" />
+  <img src="Z:/picture/008/save_picture_790338.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Little Mix - Between Us (Deluxe Version) (2021) [AAC|~317 Kbps] <Pop, R&B>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790330.jpg" />
+  <img src="Z:/picture/008/save_picture_790330.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790275.jpg" />
+  <img src="Z:/picture/008/save_picture_790275.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Destiny's Child - Survivor (2001) [AAC|~336 Kbps] <R&B, Funk / Soul, Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790268.jpg" />
+  <img src="Z:/picture/008/save_picture_790268.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ VA - New Horizons: Young Stars of South African Jazz (2020) [AAC|~338 Kbps] <Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790220.jpg" />
+  <img src="Z:/picture/008/save_picture_790220.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ VA - New Horizons: Young Stars of South African Jazz, Vol. 2 (2021) [AAC|~338 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790216.jpg" />
+  <img src="Z:/picture/008/save_picture_790216.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Adele - 30 (2021) [AAC|~290 Kbps] <Pop, Soul, Vocal Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790214.jpg" />
+  <img src="Z:/picture/008/save_picture_790214.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Smooth Jazz All Stars - 100 Gospel Jazz Hits (Instrumental) (2021) [AAC|~302 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790202.jpg" />
+  <img src="Z:/picture/008/save_picture_790202.jpg" />
 </div>
 
 

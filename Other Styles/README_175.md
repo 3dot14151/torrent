@@ -1,3 +1,61 @@
+###  Публикация: 641578   (23574) от 25.03.2025
+
+Школа Духовной Музыки Горы Ливан - Божественная Византийская Литургия Антиохийской Святой Церкви (2002) [MP3|320 кб/с]<Церковная музыка>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23574.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Great Litany[07:47]
+2. The First Antiphon[01:18]
+3. The Little Litany[01:39]
+4. The Second Antiphon[02:58](   Читать дальше...   )Жанр: Церковная музыкаПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F4248177AD04003726524D73DD6668CAFAAA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789648   (21667) от 12.04.2025
+
+ДиДюЛя - Seasons (2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <New Age, Flamenco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Апрель [00:02:08]
+01. Seasons [00:03:47]
+03. Мирская свеча [00:03:17]
+04. Картинки детства [00:04:06](   Читать дальше...   )Жанр: New Age, FlamencoПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40219F78221D5D69756578E76038F3997FE77854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792883   (20701) от 21.04.2025
 
 VA - 80s Hits on Saxophone (2023) [MP3|320 Kbps] <Jazz, Instrumental, Saxophone>
@@ -6,7 +64,7 @@ VA - 80s Hits on Saxophone (2023) [MP3|320 Kbps] <Jazz, Instrumental, Saxophone>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20701.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20065.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Mogwai - The Bombing of Pan Am 103 (2025) Soundtrack [FLAC|Lossless|WEB-DL|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17665.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Wardruna - Birna (2025) [FLAC|Lossless|tracks + .cue] <Nordic Folk, Ambient, Dar
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17663.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ James Horner - Titanic: Music From the Motion Picture (1997) CD, Album [FLAC|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17256.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17251.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Alabama - In Pictures (1995) [FLAC|Lossless|tracks + .cue] <Folk, Country Rock, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16840.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Pioneer LaserActive - The Art Of Entertainment - Private Music Sampler (199
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16723.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Jean Michel Jarre - The Concert In China (1982) Reissue, 1984, Polydor 2CD [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16559.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - The Orient Collective: Earth And Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16325.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Orient Collective: Sacred Earth (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16231.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - The Orient Collective : Ayahuasca (2025) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16169.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Ennio Morricone - Morricone Conducts Morricone (2025) [FLAC|Lossless|WEB-DL|trac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15844.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Blue Flower (Sri Chinmoy, Голубой цветок) - O Beauty-Infinity (О, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15354.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Secret Garden - Secret Summer (2025) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13662.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Lorien Testard - Clair Obscur: Expedition 33 (Original Soundtrack) (2025) [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13359.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Milla Jovovich - The Divine Comedy (1993) [FLAC|Lossless]<Folk-rock, soft-rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12517.jpg" />
 </div>
 
 
@@ -506,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12198.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ Brulе - We the People (A Tribal Gathering Of Music) (1996) CD, Album [FLAC|Loss
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12150.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ Joan Baez - Gone From Danger (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Pop
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12028.jpg" />
 </div>
 
 
@@ -593,7 +651,7 @@ VA - 101 Greatest Country Hits - Vol. Two: Country Sunshine (1994) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12025.jpg" />
 </div>
 
 
@@ -622,7 +680,7 @@ VA - The Orient Collective: Mystic Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8443.jpg" />
 </div>
 
 
@@ -651,7 +709,7 @@ OTTA-Orchestra - Дискография (2014-2025) [FLAC|Lossless|WEB-DL|tracks
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5471.jpg" />
 </div>
 
 
@@ -680,7 +738,7 @@ VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4405.jpg" />
 </div>
 
 
@@ -694,64 +752,6 @@ VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F1B98CD1C032C375B2D02CF4987705AD82653D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818121   (2599) от 15.09.2025
-
-Надежда Бабкина, Русская Песня - Модно-народно (2025) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ты воспой [00:03:30]
-02 - Чеботуха [00:03:58]
-03 - Через садик [00:03:52]
-04 - Во саду ли [00:03:12](   Читать дальше...   )Жанр: FolkПродолжительность: 00:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905A2686593E1DF2C632B3DFDE8225F3FE66BF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817763   (2595) от 15.09.2025
-
-Анна Пингина - Радость моя (2025) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Песня [00:03:17]
-02 - Высоко [00:04:41]
-03 - Мальчоночка [00:04:08]
-04 - Кукушка [00:03:41](   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DE18957FABDC9399A16B70FE23C4A534E49C658
 ```
 
 https://mybot314.ru/tekegram_catalog/

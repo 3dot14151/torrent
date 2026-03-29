@@ -1,3 +1,29 @@
+###  Публикация: 1255015   (369975) от 15.10.2018
+
+Winyl 3.3.1 + Portable [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_369975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winyl — минималистичный аудиоплеер с открытым исходным кодом и организатор музыкальной библиотеки. Воспроизводит все основные аудиоформаты и отличается качественным звуком без использования сторонних плагинов. Без проблем работает с большими коллекциями треков, поддерживает Last.fm скробблинг, поиск текстов песен с отображением в окне плеера, десятиполосный эквалайзер (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65B91DA3307385B66D484746A40BBB06E9A4F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258799   (334042) от 31.10.2018
 
 FxSound Enhancer 13.025 RePack by elchupacabra [Ru/En]
@@ -6,7 +32,7 @@ FxSound Enhancer 13.025 RePack by elchupacabra [Ru/En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334042.jpg" />
+  <img src="Z:/picture/008/save_picture_334042.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315335.jpg" />
+  <img src="Z:/picture/008/save_picture_315335.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Winamp Pro | Lite 5.666 Build 3516 Final [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284987.jpg" />
+  <img src="Z:/picture/008/save_picture_284987.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ AIMP 5.40.2700 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261713.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Spotify 1.2.76.286 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261541.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ FxSound 1.2.3.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261316.jpg" />
+  <img src="Z:/picture/005/save_picture_261316.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ AIMP 5.40.2699 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257795.jpg" />
+  <img src="Z:/picture/005/save_picture_257795.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ AIMP 5.40.2699 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256778.jpg" />
+  <img src="Z:/picture/005/save_picture_256778.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ AIMP 5.40.2698 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256635.jpg" />
+  <img src="Z:/picture/005/save_picture_256635.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Spotify 1.2.75.510 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256320.jpg" />
+  <img src="Z:/picture/005/save_picture_256320.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Dopamine 3.0.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252330.jpg" />
+  <img src="Z:/picture/004/save_picture_252330.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Spotify 1.2.75.280 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250370.jpg" />
+  <img src="Z:/picture/004/save_picture_250370.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Spotify 1.1.90.859 Portable by JolyAnderson [En/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244518.jpg" />
+  <img src="Z:/picture/004/save_picture_244518.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ Foobar2000 2.25.3 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230316.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ NMP 1.2.5 [Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226610.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ Album Player 2.114 Portable [Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201720.jpg" />
+  <img src="Z:/picture/005/save_picture_201720.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Spotify 1.2.72.438 Repack & Portable by elchupacabra (x64) [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128608.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Strawberry 1.0.23 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119840.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ AIMP 5.40.2696 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101004.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ AIMP 5.40 Build 2696 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100983.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ FxSound 1.2.1.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100851.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ AIMP 5.40.2696 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100768.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ AIMP 5.40 Build 2695 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91209.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ AIMP 5.40.2695 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63964.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Spotify Web-Portable by DVLZ 2.3 [Ru/En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55763.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Spotify - клиент для прослушивания музыки на од�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:644B174C699D7725207291AE4A52EF2B907E9FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782744   (25966) от 02.03.2025
-
-Audio Repeater Pro 1.6.3 [En]
-
->>Мультимедиа и Графика
->>Аудио Плееры и Кодеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Repeater Pro - это многоканальное решение для потоковой передачи аудио с низкой задержкой для Windows. Оно позволяет передавать аудио между двумя устройствами в режиме реального времени. Оно также может добавлять эффекты к аудио во время потоковой передачи. Наиболее важной особенностью Audio Repeater Pro является то, что вам не нужно использовать программное (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44162BC012ACDA437A9992DCE5003E3822379FBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

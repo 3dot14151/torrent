@@ -1,3 +1,137 @@
+###  Публикация: 1592726   (182439) от 24.11.2022
+
+Pixelmator Classic 3.9.11 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixelmator представляет собой мощный инструмент редактирования изображений, активно использующий вычислительные мощности графической карты. Он предлагает инструменты выделения, рисования, штриховки, навигации и цветокоррекции, поддерживает многослойные изображения, обработку рисунков на базе графического процессора, управление цветами, автоматизацию, имеет стильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2022Разработчик: Pixelmator TeamПоддерживаемая ОС: macOS 10.14.4 и вышеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D66A935DFE35D5797D4430CBC07B6379AFB8F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427821   (182401) от 29.11.2020
+
+GPG Suite 2020.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_182401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один простой пакет со всем необходимым, чтобы защитить ваши электронные письма и файлы. Используйте GPG Suite для шифрования, расшифровки, подписания и проверки файлов или сообщений. Управляйте своим GPG Keychain несколькими щелчками мыши и испытайте всю мощь GPG проще, чем когда-либо прежде.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: GPGTools GmbH.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5218420BADA1E86A6BD66C32BB46FBF8EAEE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592491   (182236) от 24.11.2022
+
+KeyKey v.2.9.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научитесь печатать максимально быстро, без ошибок и не глядя на клавиатуру
+
+Слепая десятипальцевая печать — штука полезная. Даже если вы пишете только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
+Чтобы научится слепому набору не нужны учителя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2022Разработчик: Sergiy Vynnychenko & Vlad GorohovskyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27BF24F7A8B1016DD083314B90A07DE49E68732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592738   (182175) от 24.11.2022
+
+PyCharm Community Edition 2022.2.4 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182175.jpg" />
+</div>
+
+
+###  Подробнее
+
+PyCharm – это самая интеллектуальная Python IDE с полным набором средств для эффективной разработки на языке Python. PyCharm выполняет инспекцию кода на лету, автодополнение, в том числе основываясь на информации, полученной во время исполнения кода, навигацию по коду, обеспечивает множество рефакторингов.Тип издания: macOS SoftwareРелиз состоялся: 17.11.2022Разработчик: JetBrainsПоддерживаемая ОС: macOS 10.14 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABA12FBDB6C3A85A8DB2242092ABA53BBEC986F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427796   (182136) от 29.11.2020
+
+ForkLift 3.4.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_182136.jpg" />
+</div>
+
+
+###  Подробнее
+
+ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента.
+На ForkLift стоит обратит внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2020Разработчик: BinaryNightsПоддерживаемая ОС: OS X 10.11.6 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210FE46B5D43E11B060C193FE2C8D15C0A425CAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427624   (182108) от 29.11.2020
 
 Native Instruments Kontakt 6 v6.4.2 STANDALONE, VSTi, AU [Multi]
@@ -6,7 +140,7 @@ Native Instruments Kontakt 6 v6.4.2 STANDALONE, VSTi, AU [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182108.jpg" />
+  <img src="Z:/picture/005/save_picture_182108.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ DoublePane 1.8 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181660.jpg" />
+  <img src="Z:/picture/005/save_picture_181660.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ PDF Protector 1.5.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181647.jpg" />
+  <img src="Z:/picture/005/save_picture_181647.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ QuartzCode 1.66.5 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181533.jpg" />
+  <img src="Z:/picture/005/save_picture_181533.jpg" />
 </div>
 
 
@@ -112,7 +246,7 @@ Premium Fonts 7.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181383.jpg" />
+  <img src="Z:/picture/005/save_picture_181383.jpg" />
 </div>
 
 
@@ -138,7 +272,7 @@ Templates for Pages – DesiGN 6.0.5  [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180826.jpg" />
+  <img src="Z:/picture/005/save_picture_180826.jpg" />
 </div>
 
 
@@ -166,7 +300,7 @@ Big Sur Cache Cleaner 16.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180766.jpg" />
+  <img src="Z:/picture/005/save_picture_180766.jpg" />
 </div>
 
 
@@ -192,7 +326,7 @@ CLO - 3D Fashion Design Software 6.0 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180346.jpg" />
+  <img src="Z:/picture/005/save_picture_180346.jpg" />
 </div>
 
 
@@ -221,7 +355,7 @@ Duplicate Files Sweeper 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180221.jpg" />
+  <img src="Z:/picture/005/save_picture_180221.jpg" />
 </div>
 
 
@@ -248,7 +382,7 @@ NeoFinder Business 7.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180153.jpg" />
+  <img src="Z:/picture/005/save_picture_180153.jpg" />
 </div>
 
 
@@ -274,7 +408,7 @@ Aimersoft DVD Creator 6.4.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180136.jpg" />
+  <img src="Z:/picture/005/save_picture_180136.jpg" />
 </div>
 
 
@@ -300,7 +434,7 @@ Alpha Blender PRO for Mac 1.1.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180015.jpg" />
 </div>
 
 
@@ -326,7 +460,7 @@ Aimersoft Video Converter Ultimate for Mac 11.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179981.jpg" />
+  <img src="Z:/picture/005/save_picture_179981.jpg" />
 </div>
 
 
@@ -352,7 +486,7 @@ Movavi Academic 2021 v21.0.1 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179971.jpg" />
+  <img src="Z:/picture/005/save_picture_179971.jpg" />
 </div>
 
 
@@ -378,7 +512,7 @@ Smart Zipper - RAR&7Zip Tool 1.90 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179711.jpg" />
+  <img src="Z:/picture/005/save_picture_179711.jpg" />
 </div>
 
 
@@ -405,7 +539,7 @@ Marvelous Designer 10 Personal 6.0.351.32317 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179622.jpg" />
+  <img src="Z:/picture/005/save_picture_179622.jpg" />
 </div>
 
 
@@ -432,7 +566,7 @@ DesiGN for Numbers - Templates 5.0.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179297.jpg" />
+  <img src="Z:/picture/005/save_picture_179297.jpg" />
 </div>
 
 
@@ -458,7 +592,7 @@ Chronicle Pro 9.7.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178551.jpg" />
+  <img src="Z:/picture/005/save_picture_178551.jpg" />
 </div>
 
 
@@ -486,7 +620,7 @@ OverPicture for Safari 1.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178445.jpg" />
+  <img src="Z:/picture/005/save_picture_178445.jpg" />
 </div>
 
 
@@ -512,7 +646,7 @@ Skynet 2020.2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178434.jpg" />
+  <img src="Z:/picture/005/save_picture_178434.jpg" />
 </div>
 
 
@@ -538,7 +672,7 @@ Faronics Power Save Enterprise for Mac 3.70.2200.0455 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177747.jpg" />
+  <img src="Z:/picture/005/save_picture_177747.jpg" />
 </div>
 
 
@@ -550,140 +684,6 @@ Faronics Power Save управляет энергопотреблением ко
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A74906F5A24EC4DA87CF2E1A53AE6297EBABBE4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594838   (177426) от 02.12.2022
-
-Dropshare 5.24 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177426.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2022Разработчик: © 2022 DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A791C723241713DCE62F40F8DA4B9ED8F475C324
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594861   (177424) от 02.12.2022
-
-Text Workflow 1.4.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный и простой в использовании инструмент, который поможет вам преобразовать ваш текст. Text Workflow устраняет необходимость выполнять повторяющиеся задачи вручную над вашим текстом. Комбинируйте действия по преобразованию, чтобы создать мощную автоматизацию для вашего текста.
-Комбинируйте действия преобразования, чтобы создать мощную автоматизацию для вашего (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2022Разработчик: © 2022 Giorgos TrigonakisПоддерживаемая ОС: macOS 11.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E22BC445A69BD9A1287308B0BB780470F77A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594856   (177302) от 02.12.2022
-
-Image Exif Editor 5.3.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image Exif Editor - редактор метаданных фотографий.
-Image Exif Editor - самый лучший и простой способ для просмотра и редактирования метаданных EXIF изображений.
-Image Exif Editor был разработан, чтобы представить как можно больше подробностей о том, как фотография была сделана в ясном и легком для понимания формате с мощными возможностями редактирования EXIF метаданных. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2022Разработчик: © 2012-2022 hummersoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1AB60723E459299CF15F09A92FE2CACA3E17BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594933   (176852) от 03.12.2022
-
-Multitouch 1.27.9 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко добавлять жесты в macOS с Multitouch. Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2022Разработчик: © 2022 Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A56740125F825F6BBE70F343E736BC6F9021890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594930   (176768) от 03.12.2022
-
-CADintosh X 8.8.3 Beta [Multi]
-
->>Программы для macOS
->>CAD, 3D, ПО для специалистов для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176768.jpg" />
-</div>
-
-
-###  Подробнее
-
-CADintosh позволяет ускорить проектные работы и имеет тысячи надстроек, которые позволяют удовлетворить потребности самого широкого круга клиентов. CADintosh X - приложение из категории "Графика и дизайн", созданное компанией Lemke Software GmbH в январе 2012 года, которое прекрасно вписывается в идеологию Mac. Интерфейс приложения доступен на восьми языках. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2022Разработчик: © 2002-2022 Lemke Software GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51220F9923CC2E6D1E9267A97ADC9BB7A195221
 ```
 
 https://mybot314.ru/tekegram_catalog/

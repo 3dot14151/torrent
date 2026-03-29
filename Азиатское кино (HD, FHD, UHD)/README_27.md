@@ -1,3 +1,107 @@
+###  Публикация: 1216943   (738014) от 25.01.2022
+
+Жестокий прокурор / A Violent Prosecutor / Geom-sa-oe-jeon (2016) BDRip [H.265/1080p-LQ] [10-bit]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прокурор Пён Джэ-ук чтит закон. А так же считает, что если преступник не сознаётся, то надо ему помочь сознаться. В этом деле все средства хороши, и небольшие побои лишними не будут. Вот однажды он так слегка попугал подозреваемого и оставил его на ночь в комнате допросов, а наутро бедолага был уже мёртв. Джэ-ук едет в места не столь отдалённые на 15 лет, но он уверен, (   Читать дальше...   )Производство: Корея Южная / Moonlight Film, Sanai PicturesЖанр: Криминал, ДетективРежиссер: Ли Иль-хёнАктеры: Хван Джон-мин, Кан Дон-вон, Чу Джин-мо, Ким Бён-ок, Ким Ын-су, Ким Хон-пха, Ким Вон-хэ, Ли Сон-мин, Пак Чи-хван, Пак Сон-унПеревод: Двуголосый закадровый, любительский (Храм Дорам)Субтитры: отсутствуютПродолжительность: 02:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827B44ABF8645D57792437D7948108BF2318A0EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526659   (737788) от 26.01.2022
+
+За пределами двух бесконечных минут / Droste no hate de bokura / Beyond the Infinite Two Minutes (2020) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта эксцентричная научно-фантастическая комедия - захватывающий опыт, который сразу же привлекает внимание зрителя своим новым взглядом на путешествие во времени. После работы Като обнаруживает, что камера, которую он подключил к своему телевизору, отображает изображение на экране его компьютера в квартире, имеет двухминутную задержку по сравнению с камерой наблюдения (   Читать дальше...   )Производство: Япония, TollywoodЖанр: Фантастика, комедияРежиссер: Дзюнта ЯмагутиАктеры: Кадзунари Тоса, Рико Фудзитани, Гота Исида, Масаси Сува, Ёсифуми Сакаи, Харуки Накагава, Мунэнори Нагано, Такаси Сумита, Тикара Хонда, Аки АсакураПеревод: RomarylloСубтитры: Русские, английскиеПродолжительность: 01:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E56B8531B34BEC08130A9FCA5E28933797AA4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397777   (737507) от 22.07.2020
+
+Битва при Фэнудун / Bongodong jeontu / The Battle: Roar to Victory (2019) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маньчжурия, 1920 год. Чтобы получить численное преимущество, корейские партизанские отряды объединяют силы и вступают в двухдневную битву с императорской армией Японии. У противника имеется конница, пушки и пулеметы, а у наших героев — большие ножи, винтовки Мосина и несокрушимая вера в победу.Производство: Корея Южная /  Big Stone Pictures, Showbox Entertainment, W-PicturesЖанр: Военный, история, боевик, драмаРежиссер: Вон Щин-ёнАктеры: Ю Хэ-джин, Рю Джун-ёль, Чо У-джин, Кадзуки Китамура, Хироюки Икэути, Пак Чи-хван, Чхве Ю-хва, Сон Ю-бин, Ли Джэ-ин, Котаро ДайгоПеревод: Любительский (двухголосый закадровый) (den904, -DeadSno-)Субтитры: НетПродолжительность: 02:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75AD2F244413D36C9B138CB11FD667368CE99E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397501   (737477) от 22.07.2020
+
+Чумовая семейка: Зомби на продажу / Gimyohan gajok / The Odd Family: Zombie On Sale (2019) BDRip [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737477.jpg" />
+</div>
+
+
+###  Подробнее
+
+В корейской глубинке обычная семья живёт на когда-то работавшей заправке, и у каждого её члена свои жизненные приоритеты и отличное от других мнение, как надо вести бизнес, а пожилой глава семейства и вовсе хочет бросить всё и уехать на Гавайи. Однажды в деревню забредает зомби и кусает дедулю. Немного полежав в горячечном поту, дед приходит в себя сильно помолодевшим. (   Читать дальше...   )Производство: Корея Южная / Cinezoo, Megabox Plus MЖанр: комедия, ужасы, фантастикаРежиссер: Ли Мин-джэАктеры: Чон Джэ-ён, Ким Нам-гиль, Ом Джи-вон, Ли Су-гён, Чон Га-рам, Пак Ин-хван, Ким Ги-чхон, Чон Бэ-су, Ку Бон-ун, Щин Джон-гын, О И-щик, Ю Сун-чхоль, Чхве Джон-нюль, Ли Ён-сок, Ли Сон-у, Чан Сэ-а, Чан Джи-гонПеревод: Двуголосый любительский (STEPonee)Субтитры: Английские, китайскиеПродолжительность: 01:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14196E75CD47897C52EBEA7B9A11B160019830A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527086   (737370) от 27.01.2022
 
 За пределами двух бесконечных минут / Droste no hate de bokura / Beyond the Infinite Two Minutes (2020) BDRip [H.264/720p] [DVO]
@@ -6,7 +110,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737370.jpg" />
+  <img src="Z:/picture/008/save_picture_737370.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737344.jpg" />
+  <img src="Z:/picture/008/save_picture_737344.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736952.jpg" />
+  <img src="Z:/picture/008/save_picture_736952.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736620.jpg" />
+  <img src="Z:/picture/008/save_picture_736620.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736404.jpg" />
+  <img src="Z:/picture/008/save_picture_736404.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736368.jpg" />
+  <img src="Z:/picture/008/save_picture_736368.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735867.jpg" />
+  <img src="Z:/picture/008/save_picture_735867.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735734.jpg" />
+  <img src="Z:/picture/008/save_picture_735734.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735617.jpg" />
+  <img src="Z:/picture/008/save_picture_735617.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735536.jpg" />
+  <img src="Z:/picture/008/save_picture_735536.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735361.jpg" />
+  <img src="Z:/picture/008/save_picture_735361.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735175.jpg" />
+  <img src="Z:/picture/008/save_picture_735175.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734963.jpg" />
+  <img src="Z:/picture/008/save_picture_734963.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734884.jpg" />
+  <img src="Z:/picture/008/save_picture_734884.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734436.jpg" />
+  <img src="Z:/picture/008/save_picture_734436.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734406.jpg" />
+  <img src="Z:/picture/008/save_picture_734406.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733763.jpg" />
+  <img src="Z:/picture/005/save_picture_733763.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733389.jpg" />
+  <img src="Z:/picture/008/save_picture_733389.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733076.jpg" />
+  <img src="Z:/picture/008/save_picture_733076.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733065.jpg" />
+  <img src="Z:/picture/008/save_picture_733065.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732873.jpg" />
+  <img src="Z:/picture/008/save_picture_732873.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732702.jpg" />
+  <img src="Z:/picture/008/save_picture_732702.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:113DD866489A836F831982E3BBD78AF87D3740F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529338   (732677) от 06.02.2022
-
-Сигнал. Фильм / Gekijoban: Signal / Signal: The Movie (2021) BDRemux [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732677.jpg" />
-</div>
-
-
-###  Подробнее
-
-2021 год. По вине водителя лимузина-такси происходит ДТП, в котором погибает высокопоставленный чиновник. Детектив Саэгуса и его команда сомневается в причине аварии и виновнике, ведь в деле много несостыковок, поэтому решают провести собственное расследование. Между тем, в 2009 году много административных служащих погибали в ДТП, однако полиция объявляла их все (   Читать дальше...   )Производство: Япония, Just Creative Studio, A Really Happy FilmЖанр: Детектив, фантастика, криминалРежиссер: Хадзимэ ХасимотоАктеры: Кэнтаро Сакагути, Кадзуки Китамура, Митико Китисэ, Юити Кимура, Тэцухиро Икэда, Каэдэ Аоно, Цуёси Ихара, Тэцуси Танака, Тэтта Сугимото, Такэси КагаПеревод: RomarylloСубтитры: Русские, английские, китайскиеПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90D5530263BBDDC9A68B500E3E66FBA60B797CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529550   (732526) от 07.02.2022
-
-Гамера против Вираса / Gamera tai uchu kaiju Bairasu / Gamera vs. Viras (1968) BDRip [H.264/720p-LQ] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космические пришельцы расы Вирас отправляют к земле свой космический корабль. Их цель - захватить и колонизировать нашу планету. Но её защитница - суперчерепаха Гамера расправляется с захватчиками и уничтожает их корабль. Тогда, пришельцы отправляют к Земле второй звездолёт, который цепляет к Гамере устройство контроля мозговых волн и берёт в заложники двоих бойскаутов. (   Читать дальше...   )Производство: Япония / Daiei StudiosЖанр: фантастика, боевикРежиссер: Нориаки Юаса, Сигэо ТанакаАктеры: Кодзиро Хонго, Тору Такацука, Карл Крэйг, Митико Яэгаки, Мари Ацуми, Дзюнко Ясиро, Питер Уильямс, Кодзи Фудзияма, Ёсиро Китахара, Мунэхико ТакадаПеревод: Одноголосый любительский (Emslie)Субтитры: АнглийскиеПродолжительность: 01:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9F294C4A099DCDDA7A6F9CC48FBAC05B3788AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529624   (731862) от 08.02.2022
-
-Работа с древесиной! / Wood Job!: Kamusari nana nichijo / Wood Job! (2014) BDRemux [H.264/1080p] [АVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хирано Юки - городской мальчик до мозга костей. Живет себе припеваючи, пока в один прекрасный день не проваливает вступительные. А потом его ещё и девушка бросает. Чем не повод напиться с друзьями? А в порыве чувств Юки может плюнуть на всю прошлую жизнь, и пойти работать в лес. А что такого? Образование побоку, опыт не важен – желание есть, и нет проблем. Вот только (   Читать дальше...   )Производство: Япония, Tokyo Broadcasting System (TBS), Toho Company, Mainichi Broadcasting System (MBS), NikkatsuЖанр: Комедия, приключенияРежиссер: Синобу ЯгутиАктеры: Масами Нагасава, Сёта Сомэтани, Нана Сэйно, Хидэаки Ито, Юки Фурукава, Акира Эмото, Юка, Кэн Мицуиси, Наоми Нисида, Ёсимаса КондоПеревод: 2 х Авторский (Александр Смиронов, Андрей Дольский), 2 х Одноголосый закадровый (D.I.M., aleksei80)Субтитры: Русские, английские, чешские, японскиеПродолжительность: 01:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CA598B566876E3AEDE4DCC638461EC4EAF04B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529698   (731858) от 08.02.2022
-
-Гамера против Гирона / Gamera tai daiakuju Giron / Gamera vs. Guiron (1969) BDRip [H.264/720p-LQ] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из космоса на Землю начинают поступать таинственные сигналы. Все астрономы мира ломают головы, пытаясь разобраться в их происхождении и источнике. Тем временем, двое мальчишек, занимаясь исследованием звёздного неба через телескоп, обнаружили снижающийся космический корабль. Он приземлился неподалёку и ребята на следующий же день отправились искать его. На борту (   Читать дальше...   )Производство: Япония / Daiei StudiosЖанр: фантастика, боевик, приключения, семейныйРежиссер: Нориаки ЮасаАктеры: Нобухиро Кадзима, Миюки Акияма, Кристофер Мерфи, Юко Хамада, Эидзи Фунакоси, Кон Омура, Хироко Кай, Рэйко Касахара, Акира Нацуки, Наоюки АбэПеревод: Одноголосый любительский (Emslie)Субтитры: английскиеПродолжительность: 01:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D013655B34D3D7E21E6C6F470CF58BE006152307
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,174 @@
+###  Публикация: 966444   (218734) от 18.12.2015
+
+Эдуард Хиль. С любовью вместе, фильм-концерт (1973) SATRip [H.264] [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218734.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный фильм ленинградского телевидения с участием народного артиста РСФСР, Эдуарда Хиля.1. Не отводи от жизни глаз
+2. Веселый пастух
+3. Крестики-нолики
+4. Твоя судьба(   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: МузыкальныйАктеры: Эдуард ХильПродолжительность: 00:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B2256ADB42CBB70822D06D80C1571E88573B550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425839   (218488) от 22.11.2020
+
+Квартирник НТВ у Маргулиса. Группа POKAPRЁT (21.11.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218488.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2015 году популярный актер Евгений Цыганов вместе с Михаилом Химаковым и Андреем Муравкиным собрали коллектив и уже на протяжение пяти лет создают «убойный звук», делая упор на гитару, барабаны, бас и вокал. В названии группы отражается весь принцип их существования: с первых аккордов их песен понятно — драйва музыкантам не занимать. В гостях у Евгения Маргулиса (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BE7096A9E87A23DB5FA6F5D61D7C77E293201B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465054   (218374) от 02.12.2021
+
+ZZ Top - Live From Texas  (2008)  BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых оригинальных рок-групп мирового уровня – в каковом статусе техасские бородачи ZZ Top пребывают с середины 70-х – за почти 39 лет профессиональной карьеры не имела ни единой авторизованной концертной видеозаписи. Это тем более удивительно для группы, с пониманием встретившей наступление видеоэры 80-х. Но, совершенно в стиле ZZ Top, поклонники должны (   Читать дальше...   )Производство: СШАЖанр: RockРежиссер: Milton LageАктеры: ZZ Top
+Billy Gibbons - гитара, вокал
+Dusty Hill - бас, вокал
+Frank Beard - ударныеПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D21CCDEA5246079790CA7D9A88016CFBB876495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966572   (217765) от 18.12.2015
+
+Katy Perry - The Prismatic World Tour (2015) BDRip[H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается концерт Кэти Перри на Allphones Arena в Сиднее (Австралия), записанный в декабре 2014 года в ходе её мирового тура The Prismatic World Tour Live.01. Roar
+02. Part of Me
+03. Wide Awake
+04. This Moment / Love Me(   Читать дальше...   )Производство: США (Eagle Rock Entertainment)Жанр: PopРежиссер: Russell ThomasПродолжительность: 01:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4D52481340835BC3A53AF79F9F543333D1AF9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269876   (217716) от 16.12.2018
+
+L. A. Guns - Made In Milan (2018) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитарист Трейси Ганс и вокалист Фил Льюис, которые в 2016 году воссоединились под названием L.A. Guns после более 15 лет скандалов и работы по раздельности, выпускают новый концертный альбом "Made In Milan". Релиз увидел свет 23 марта на лейбле Frontiers Music Srl в форматах CD, DVD и Blu-ray. Материал диска был записан в 2017 году на фестивале "Frontiers (   Читать дальше...   )01. No Mercy
+02. Electric Gypsy
+03. Killing Machine
+04. Bow Solo/Over The Edge(   Читать дальше...   )Производство: США, Frontiers Music SrlЖанр: Hard Rock, Glam RockСубтитры: отсутствуютПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB9F40218425195AACF715F910D32E190448F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269782   (217664) от 16.12.2018
+
+L. A. Guns - Made In Milan (2018) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гитарист Трейси Ганс и вокалист Фил Льюис, которые в 2016 году воссоединились под названием L.A. Guns после более 15 лет скандалов и работы по раздельности, выпускают новый концертный альбом "Made In Milan". Релиз увидел свет 23 марта на лейбле Frontiers Music Srl в форматах CD, DVD и Blu-ray. Материал диска был записан в 2017 году на фестивале "Frontiers (   Читать дальше...   )01. No Mercy
+02. Electric Gypsy
+03. Killing Machine
+04. Bow Solo/Over The Edge(   Читать дальше...   )Производство: США, Frontiers Music SrlЖанр: Hard Rock, Glam RockСубтитры: отсутствуютПродолжительность: 01:08:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8708CC57FB4A871370A6732BEAE64D274507E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343364   (217523) от 06.12.2019
 
 Сборник клипов - Old School Hits от ALEXnROCK часть 2 (2019) WEBRip [H.264/1080p-LQ] [upscale]
@@ -6,7 +177,7 @@
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217523.jpg" />
+  <img src="Z:/picture/005/save_picture_217523.jpg" />
 </div>
 
 
@@ -35,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217330.jpg" />
+  <img src="Z:/picture/005/save_picture_217330.jpg" />
 </div>
 
 
@@ -64,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217232.jpg" />
+  <img src="Z:/picture/005/save_picture_217232.jpg" />
 </div>
 
 
@@ -95,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216564.jpg" />
 </div>
 
 
@@ -121,7 +292,7 @@ Metallica: Quebec Magnetic 2009 (2012) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_216540.jpg" />
+  <img src="Z:/picture/005/save_picture_216540.jpg" />
 </div>
 
 
@@ -156,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216427.jpg" />
 </div>
 
 
@@ -182,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216386.jpg" />
 </div>
 
 
@@ -208,7 +379,7 @@ Motley Crue - The End: Live in Los Angeles (2016) BDRip [H.264]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216123.jpg" />
 </div>
 
 
@@ -238,7 +409,7 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) Blu-ray [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216052.jpg" />
 </div>
 
 
@@ -267,7 +438,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215436.jpg" />
+  <img src="Z:/picture/005/save_picture_215436.jpg" />
 </div>
 
 
@@ -293,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215086.jpg" />
+  <img src="Z:/picture/005/save_picture_215086.jpg" />
 </div>
 
 
@@ -319,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214830.jpg" />
+  <img src="Z:/picture/005/save_picture_214830.jpg" />
 </div>
 
 
@@ -349,7 +520,7 @@ Volbeat: Let's Boogie Live From Telia Parken (2018)  Blu-ray [H.264/1080i] [EN]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214808.jpg" />
+  <img src="Z:/picture/005/save_picture_214808.jpg" />
 </div>
 
 
@@ -379,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214765.jpg" />
+  <img src="Z:/picture/005/save_picture_214765.jpg" />
 </div>
 
 
@@ -405,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214707.jpg" />
+  <img src="Z:/picture/005/save_picture_214707.jpg" />
 </div>
 
 
@@ -431,7 +602,7 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) (2021) Blu-ray [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214661.jpg" />
+  <img src="Z:/picture/005/save_picture_214661.jpg" />
 </div>
 
 
@@ -460,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214554.jpg" />
+  <img src="Z:/picture/005/save_picture_214554.jpg" />
 </div>
 
 
@@ -488,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214309.jpg" />
+  <img src="Z:/picture/005/save_picture_214309.jpg" />
 </div>
 
 
@@ -518,7 +689,7 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214188.jpg" />
+  <img src="Z:/picture/005/save_picture_214188.jpg" />
 </div>
 
 
@@ -547,7 +718,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214055.jpg" />
+  <img src="Z:/picture/005/save_picture_214055.jpg" />
 </div>
 
 
@@ -558,162 +729,6 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRip [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8256B06A12C302711BF47A833EEA0EB40EED2A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514938   (213735) от 05.12.2021
-
-Квартирник НТВ у Маргулиса. Гарик Сукачёв и Александр Ф. Скляр (04.12.2021) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последний альбом известных музыкантов Гарика Сукачёва и Александра Ф. Скляра вышел 26 лет назад и мгновенно завоевал сердца слушателей. В эфире программы «Квартирник НТВ у Маргулиса» артисты презентовали свой новый альбом — «Боцман и Бродяга. Часть 2». В дружеской и расслабленной атмосфере Сукачёв и Скляр вспомнили забавные и трогательные истории, а также рассказали (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940F52AB7E62DDCCE9940A3D6C9271F9911D606E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832232   (213444) от 30.10.2025
-
-JinSoul - Ring of Chaos [4K 60fps 24bit BagsUpZ] 2025 (2025) WEBRip [H.265/2160p/60fps]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB95918EA5DA90DF0785AEFD2EB9463569F9F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832213   (213443) от 30.10.2025
-
-Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3701A49AC5B5679C04469CF2AE285719C54035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832135   (213442) от 30.10.2025
-
-SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD68A12C2B3D549089CEC156AE8EA891DDE30E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832132   (213441) от 30.10.2025
-
-Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: BalladПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6823238861F36C4BA400B95CB1D3FB12CE3E8ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832119   (213440) от 30.10.2025
-
-Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: КореяЖанр: KpopПродолжительность: 00:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D3185F76B2FE624335DDF3C2922EBD3C3DD464
 ```
 
 https://mybot314.ru/tekegram_catalog/

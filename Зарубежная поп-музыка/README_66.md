@@ -1,3 +1,32 @@
+###  Публикация: 1339652   (265351) от 20.11.2019
+
+Tom Rod - Understand (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Understand (4:23)
+02. Depressed (2:38)
+03. The New York Rock (3:31)
+04. I've Found Love (3:17)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA30D180452378CBCA20C642B04715E84162159E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339643   (265342) от 20.11.2019
 
 VA - 100 Greatest Party Starters (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -6,7 +35,7 @@ VA - 100 Greatest Party Starters (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265342.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dido - Still on My Mind (2019) Deluxe Edition [MP3|320 Kbps] <Pop, Folk>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265331.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Take On Me: 80s Anthems - The Ultimate Collection (2019) 5CD [MP3|320 Kbps]
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265315.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Walk the Moon - What If Nothing (2017) [MP3|320 Kbps] <Indie Pop, Indie Rock, El
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264482.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Robbie Williams - The Christmas Present (2019) Deluxe Edition [MP3|320 Kbps] <Po
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264238.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rebel Force Band - Living In These Star Wars (1977) LP [MP3|320 Kbps] <Electroni
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263991.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Bottle Of Moonshine - Everybody Watches No One Knows (2014) [MP3|320 Kbps] <60's
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263859.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Pablo Alboran - Prometo (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263843.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - #Hits 2019 Die Hits Des Jahres (2019) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263295.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Winter Hits Dance (2019) [MP3|320 Kbps] <Dance, House, Big Room>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263294.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - 100% Clubland 90s (4 CD) (2017) [MP3|320 Kbps] <Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262791.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Clubfete 2020 (63 Club Dance And Party Hits) (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262630.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Christmas Pop Hits (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262618.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - 100 Greatest Karaoke Songs (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262594.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - 100 Greatest Best Songs Ever (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262588.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Camila Cabello - Romance (2019) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262301.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262136.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Mistral - Best Of Mistral 1977-80 (2012) Compilation [MP3|320 Kbps] <Electronic,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261957.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Club Top 13 International (1988) [OGG Vorbis|480 Kbps] <Electronic, Rock, P
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261493.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Olly Murs - In Case You Didn't Know (2011) [MP3|320 кб/с]<Dance-Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259313.jpg" />
+  <img src="Z:/picture/005/save_picture_259313.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Bad Boys Blue - Instrumental Collections (2011) [MP3|256 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259130.jpg" />
+  <img src="Z:/picture/005/save_picture_259130.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ VA - Formel Eins - Cool Fun! (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258044.jpg" />
+  <img src="Z:/picture/005/save_picture_258044.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ VA - The Greatest Singer-Songwriter Classics (2015) 3 CD [OGG Vorbis|480 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257991.jpg" />
+  <img src="Z:/picture/005/save_picture_257991.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ VA - Formel Eins - Double Fun (1990) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257987.jpg" />
+  <img src="Z:/picture/005/save_picture_257987.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ VA - Always And Forever (1987) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, So
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257745.jpg" />
+  <img src="Z:/picture/005/save_picture_257745.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ VA - Always And Forever (1987) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B0216A683427E86E62F5BC6F5D3ACF6BB475CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837615   (257697) от 18.11.2025
-
-VA - Wow! 91 International (1991) 2 CD [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soul, Funk, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Innuendo     06:33
- 02. Roxette - Joyride     04:00
- 03. Chesney Hawkes - The One And Only     03:42
- 04. The KLF - Last Train To Trancentral     03:38(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soul, Funk, DiscoПродолжительность: 02:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D442CFEF35B0FECED0DCEA6648385ADD6AEB0386
 ```
 
 https://mybot314.ru/tekegram_catalog/

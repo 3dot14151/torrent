@@ -1,3 +1,81 @@
+###  Публикация: 1574646   (208781) от 06.09.2022
+
+Gaea 1.3.1.4 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_208781.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuadSpinner Gaea разработан, чтобы помочь вам превратить ваши воображаемые ландшафты в реальные активы. Наш арсенал узлов охватывает весь спектр от примитивных форм до сложных генераторов, инкапсулирующих полные естественные процессы. Эти инструменты, дополненные эффективным и гибким процедурным рабочим процессом, могут быть реализованы для самых разных проектов.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB4D36F769197171570846BA4BF3B192BB39651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650539   (207376) от 02.08.2023
+
+3DQUAKERS - Forester 1.5.2 (x64) For Cinema4D [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forester - это плагин для Maxon Cinema 4D, который предоставляет инструменты для создания природных элементов, таких как деревья, растения, камни, а также их геологического распределения на полигональной местности. Forester состоит из 4 модулей, а именно Forester Trees, Multiflora, MultiCloner и Forester Rock. Forester - один из лучших и наиболее успешных подключаемых (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:081E903C7EAA5EC2958AEF4188E1FA51FF24C255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650764   (207287) от 03.08.2023
+
+Bricklink Studio 2.23.7 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bricklink Studio является преемником Lego Digital Designer и используется для создания и визуализации творений Lego. Программа знает почти все кирпичики этого великого конструктора, предлагает множество возможностей в работе, модуль 3D-рендеринга, а также инструмент для создания инструкций по сборке собственных творений.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917473BFDB97AEB517DA029DB0A317F7C07A3846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579344   (207239) от 26.09.2022
 
 Agisoft Metashape Professional 1.8.5.14930 (x64) [Multi/Ru]
@@ -6,7 +84,7 @@ Agisoft Metashape Professional 1.8.5.14930 (x64) [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207239.jpg" />
+  <img src="Z:/picture/005/save_picture_207239.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206836.jpg" />
+  <img src="Z:/picture/005/save_picture_206836.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ The Foundry Modo 16.1v1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200533.jpg" />
+  <img src="Z:/picture/005/save_picture_200533.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ Singular Inversions FaceGen Artist Pro 3.12 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200258.jpg" />
+  <img src="Z:/picture/005/save_picture_200258.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Itoo RailClone Lite 5.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199738.jpg" />
+  <img src="Z:/picture/005/save_picture_199738.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Exoside QuadRemesher 1.2.1 for 3ds Max [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199263.jpg" />
+  <img src="Z:/picture/005/save_picture_199263.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198797.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ CrazyTalk Pipeline RePack by PooShock 8.12.3124.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198500.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ LibFredo6 13.9a for Sketchup 2017-2023 Win (x64) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197078.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Reallusion iClone 8.3.1815.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195886.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Reallusion Cartoon Animator 5.01.1121.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195464.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Adobe Substance 3D Designer 13.0.2 build 6942 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194184.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Marvelous Designer 12 Personal 7.2.209.43690 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186154.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ GreyscaleGorilla Plus Hub Plugins for C4D R22-R26 Win 2022 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180692.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ Metasequoia 4.8.6a [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175820.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ Room Arranger 10.3.0.735 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173599.jpg" />
 </div>
 
 
@@ -430,7 +508,7 @@ Avanquest Architect 3D Landscape Design 20.0.0.1036 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173597.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ Avanquest Architect 3D Interior Design 20.0.0.1036 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173596.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173442.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ Bookmanager modelplusmodel 2.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171809.jpg" />
 </div>
 
 
@@ -537,7 +615,7 @@ Room Arranger 10.3.0.735 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167349.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ ArchvizTools - uPVC Window Generator 1.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165771.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ DAZ Studio Pro Edition 4.22.0.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160338.jpg" />
 </div>
 
 
@@ -600,87 +678,6 @@ DAZ Studio Pro Edition 4.22.0.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C116B3408FC6D957F38D09CFD2F219A1E1D39F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676435   (156574) от 13.11.2023
-
-V-Ray 6.10.02 for Cinema 4D 2024
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое V-Ray?
-Chaos® V-Ray® — это плагин 3D-рендеринга, доступный для всех основных программ 3D-дизайна и САПР. Он прекрасно работает с 3ds Max, Cinema 4D, Houdini, Maya, Nuke, Revit, Rhino, SketchUp и Unreal.
-
-С помощью V-Ray художники и дизайнеры могут исследовать и делиться своими проектами, а также создавать высококачественные 3D-визуализации.(   Читать дальше...   )Язык интерфейса: English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94383FFDA77AA259EA379302BF9308B27B87A66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194393   (156493) от 24.12.2017
-
-DesignToolBox 2.4.0 [Multi]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156493.jpg" />
-</div>
-
-
-###  Подробнее
-
-DesignToolBox - это набор инструментов, предназначенных для ускорения и упрощения базовых задач моделирования архитектурных, городских или внутренних сцен.Язык интерфейса: Английский, Немецкий и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747EF60D1CAAEAE08ECA18BB05684115A5C44019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694363   (121149) от 24.01.2024
-
-Mandelbulber 2.31.0 + Standalone [Multi]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mandelbulber- экспериментальное приложение, разработанное для создания и работы с 3D - фракталами. Особенности: великолепная гибкость по работе с 3D-фракталами, работа с освещением тенями, цветом, поддержка эффектов ambient окклюзии, глубины резкости и т.д. Неограниченное разрешение изображения на 64-битных системах. Простой в использовании 3D-навигатор по фракталу. (   Читать дальше...   )Язык интерфейса: Английский и другие (русского нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8F5E22CC67ED9B2D09A7D8B4A3D4968842EDC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

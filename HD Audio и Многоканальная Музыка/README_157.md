@@ -1,3 +1,235 @@
+###  Публикация: 1750798   (104103) от 22.09.2024
+
+Andreas Diehlmann Band - That Old Blues Again (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiskey Intro (1:12)
+02. Whiskey And Women (3:45)
+03. Gypsy Woman (3:37)
+04. That Old Blues Again (6:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B39E60AEDDB812C10FF86A9D0713430036E84A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750796   (104102) от 22.09.2024
+
+Aetherwind - Ethereal Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aetherwind Prelude (3:29)
+02. Ethereal Wind Interlude (5:59)
+03. Ethereal Wind Postlude (4:01)
+04. Dark Skies (5:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:061B1985E8C561F04B77D2F06FBE0161D33EFCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750811   (104100) от 22.09.2024
+
+Patrick Bradley - Gratitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz, Latin Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Narrow Path (4:33)
+02. Nothin' Ain't (4:00)
+03. Road Trippin' (4:20)
+04. Gratitude (4:01)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, Latin JazzПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96263EA1528EAECE565B676812DF4F3073DBB372
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750810   (104099) от 22.09.2024
+
+LeSoir - Push Back The Horizon (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Push Back The Horizon (5:19)
+02. Under The Stars (4:53)
+03. Fireflies (5:00)
+04. You Are The World (5:33)(   Читать дальше...   )Жанр: Progressive-RockПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0016CCA0719DF91BEAA285EADD2E49E495901AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751045   (104098) от 23.09.2024
+
+Dell Solano - Músicas Autorais (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te Amo (4:17)
+02. Vou Morar no Rio (3:53)
+03. Corpo Coração (5:05)
+04. Águas Passadas (3:35)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5404A045D3133DE9969E8EF33D663B6CB4F92B7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751032   (104097) от 23.09.2024
+
+Bones Owens - Love out of Lemons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love out of Lemons (3:32)
+02. Devil Gonna Getcha (2:36)
+03. For Keeps (2:45)
+04. Get It On (2:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E152CBE7F64015ED4B5396FD88E116EE21DAF935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751041   (104096) от 23.09.2024
+
+Choca Blues - The Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wind (4:51)
+02. Illinois Blues (4:49)
+03. Wild Ox Moan (4:29)
+04. Two Trains Running (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E3D48D839D53BA78D4ECE64BC95222DE049660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751129   (104095) от 23.09.2024
+
+Klaus B. Jensen - In Memory of a Great Dane - The lost recordings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby, What Do You Want Me To Do? (3:26)
+02. I Want To Go (2:36)
+03. Candy Man (3:20)
+04. The Sky Is Crying (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD710740585F7F722373C03DD73E3EAB6219BB8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751049   (104094) от 23.09.2024
 
 Ed Neumeister - Covers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -6,7 +238,7 @@ Ed Neumeister - Covers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104094.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Francesco Bearzatti, Stefano Risso and Mattia Barbieri - Behind Anatomy (2024) [
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104093.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Lady Adrena - Recipe For The Blues (Deluxe Edition) (2024) [FLAC 24/96|Lossless|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104091.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Dear Robin - Timebound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104090.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Lovesick - Remember My Name (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104089.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Herb Alpert - 50 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104088.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Greg Izor - Sustained Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104087.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Doomsday Outlaw - Hard Times (Redux) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104086.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Hard-on Blues - Hard-on Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104085.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Duo Holistique - FUTURISTIQUE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz F
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104084.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Cek & The Stompers - Mr. Red (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104080.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Dred Scott Trio - Cali Mambo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemp
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104079.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Frankywright - Echoes of Sorrow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104078.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Max Diller & Blossom - Solastalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104073.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Eric Escanes - Near and Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contempo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104072.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Magnus Dauner - Portrait In Rhythm (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <C
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104071.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Forq - Big Party (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104070.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Ruben Bertrands - The Other Side Of The Coin (2024) [FLAC 24/44.1|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104069.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Ruben Bertrands - The Other Side Of The Coin (2024) [FLAC 24/44.1|Lossless|WEB-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40103D3EF8CB178AC976EC7781FECB36D29F2B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751440   (104068) от 25.09.2024
-
-Louis Fontaine - Antipasto (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crème Caramel (3:35)
-02. Cocktail Di Gamberi (3:20)
-03. Salsa Rossa (2:48)
-04. Cotoletta Alla Milanese (3:24)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DFDD9AC1ECE64A24A582F34C5A5A4CA3031EF40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751447   (104067) от 25.09.2024
-
-Nikhil Korula Power Trio, John Primer, and Bob Corritore - Sight & Sound Episode 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forty Days and Forty Nights (5:01)
-02. When I'm With You (3:32)
-03. The Wind Cries Mary (3:17)
-04. Someone Tell the World It's Burnin' (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109B65979328D92C81B5ABAFBE59B860639C0530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751437   (104066) от 25.09.2024
-
-Kris Rab - It's About Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet and Loving Woman (4:16)
-02. Faith (3:44)
-03. It's About Time (4:00)
-04. Again (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5133A40C3480320406A73B8B74B625C080B2813
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751453   (104065) от 25.09.2024
-
-Robert Jon & The Wreck - Red Moon Rising (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone Cold Killer (3:55)
-02. Trouble (3:29)
-03. Ballad Of A Broken Hearted Man (5:24)
-04. Red Moon Rising (4:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE3A3A75ED54ED71529B5A16749B470C73F4D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751451   (104064) от 25.09.2024
-
-Nim - NOW (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svijet gdje nismo sami (4:49)
-02. Do You Think I'm Happy (5:52)
-03. I Still Live (3:04)
-04. There Is Something in Your Eyes (5:13)(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7084CCA251BBFEE819287F5669B065FC5FC111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751455   (104063) от 25.09.2024
-
-Rockin' Dopsie, Jr. & The Zydeco Twisters - More Fun With Rockin' Dopsie Jr. & The Zydeco Twisters (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Zydeco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dopsie Zydeco (1:29)
-02. Ooh Woo Woo (2:58)
-03. I Found A New Love (3:20)
-04. No Good Woman (3:26)(   Читать дальше...   )Жанр: Blues, Soul, ZydecoПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41044599B58614A3A1760505BE4697DBD31EC07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751721   (104057) от 26.09.2024
-
-Serious Black - Rise of Akhenaton (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Your Eyes (4:12)
-02. We Are the Storm (3:47)
-03. Silent Angel (4:22)
-04. Take Your Life (3:28)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:090CC3F1841FAD2DD3593A4476332911076DE1EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751711   (104056) от 26.09.2024
-
-The Black Dahlia Murder - Servitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evening Ephemeral (3:55)
-02. Panic Hysteric (3:07)
-03. Aftermath (3:02)
-04. Cursed Creator (3:35)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533B360B860B923D5BA4E071F437AA7BBDC1DF44
 ```
 
 https://mybot314.ru/tekegram_catalog/

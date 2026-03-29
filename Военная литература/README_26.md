@@ -1,3 +1,29 @@
+###  Публикация: 911592   (612569) от 25.06.2015
+
+Вера Инбер | Почти три года. Ленинградский дневник (2015) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_612569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вера Михайловна Инбер родилась в Одессе в 1890 году, окончила гимназию, поступила на историко-филологический факультет одесских Высших женских курсов, затем четыре года жила в Европе. В 1912 году в Париже вышел ее первый стихотворный сборник «Печальное вино», который когда-то похвалил Блок. В 1918-м Инбер читала свои стихи на московских вечерах вместе с Бальмонтом, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88600EB73E9DAA657A024457A430848AF7FA6969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911260   (612524) от 25.06.2015
 
 А. Бобров | Брусиловский прорыв (2014) [DJVU]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612524.jpg" />
+  <img src="Z:/picture/008/save_picture_612524.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612355.jpg" />
+  <img src="Z:/picture/008/save_picture_612355.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612296.jpg" />
+  <img src="Z:/picture/008/save_picture_612296.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611615.jpg" />
+  <img src="Z:/picture/008/save_picture_611615.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609956.jpg" />
+  <img src="Z:/picture/008/save_picture_609956.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609878.jpg" />
+  <img src="Z:/picture/008/save_picture_609878.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609220.jpg" />
+  <img src="Z:/picture/008/save_picture_609220.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609127.jpg" />
+  <img src="Z:/picture/008/save_picture_609127.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609118.jpg" />
+  <img src="Z:/picture/008/save_picture_609118.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609004.jpg" />
+  <img src="Z:/picture/008/save_picture_609004.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608904.jpg" />
+  <img src="Z:/picture/008/save_picture_608904.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608788.jpg" />
+  <img src="Z:/picture/008/save_picture_608788.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608787.jpg" />
+  <img src="Z:/picture/008/save_picture_608787.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608602.jpg" />
+  <img src="Z:/picture/008/save_picture_608602.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607665.jpg" />
+  <img src="Z:/picture/008/save_picture_607665.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607097.jpg" />
+  <img src="Z:/picture/008/save_picture_607097.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606829.jpg" />
+  <img src="Z:/picture/008/save_picture_606829.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606674.jpg" />
+  <img src="Z:/picture/008/save_picture_606674.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606463.jpg" />
+  <img src="Z:/picture/008/save_picture_606463.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605687.jpg" />
+  <img src="Z:/picture/008/save_picture_605687.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604926.jpg" />
+  <img src="Z:/picture/008/save_picture_604926.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603404.jpg" />
+  <img src="Z:/picture/008/save_picture_603404.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601986.jpg" />
+  <img src="Z:/picture/008/save_picture_601986.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599885.jpg" />
+  <img src="Z:/picture/008/save_picture_599885.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599837.jpg" />
+  <img src="Z:/picture/008/save_picture_599837.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A10D726B8A332E97C33C053E89B72A265FD8BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526207   (599447) от 23.07.2012
-
-Л.П.Мекердичан, А.И.Пелех | Фронтовой бомбардировщик Ил-28 [2004] [PDF,TIF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599447.jpg" />
-</div>
-
-
-###  Подробнее
-
-В иллюстрированном альбоме «Фронтовой бомбардировщик Ил-28» представлена история создания самолета и подробное описание его конструкции. Издание иллюстрировано большим количеством ранее не публиковавшихся схем и фотографий. Для широкого круга читателей, интересующихся авиацией, авиамоделистов.Формат: PDF,TIF (чертежи)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB71B23736A5A4DFCFA5896AB4A5747228B3E398
 ```
 
 https://mybot314.ru/tekegram_catalog/

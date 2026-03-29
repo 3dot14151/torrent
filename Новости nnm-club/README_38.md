@@ -1,3 +1,110 @@
+###  Публикация: 987431   (925647) от 17.02.2016
+
+Технология Eternal 5D позволит записать на один носитель всю историю человечества и хранить ее бесконечно долгое время
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ученые из научно-исследовательского Центра оптоэлектроники (Optoelectronics Research Centre, ORC) университета Саутгемптона (University of Southampton) разработали новую технологию хранения цифровых данных, которая не только характеризуется очень высокой плотностью записи информации, она способна обеспечить сохранность данных на протяжении миллиардов лет. В основу (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091766   (925589) от 20.01.2017
+
+Саша добрый, Саша злой (2016) SATRip [H.264] (серии 1-20 из 20)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925589.jpg" />
+</div>
+
+
+###  Подробнее
+
+В одно из районных отделений полиции города Севастополя командируют из Москвы молодого следователя - майора Александра Демина. Одновременно с Деминым в город прилетают и московские бандиты, которые собираются устроить передел власти в городе. Их главная цель – контроль над портом. С момента появления столичных гостей Севастополь захлестывает волна убийств, на первый (   Читать дальше...   )Производство: Россия / "Top line Film"Жанр: детективРежиссер: Мичислав ЮзовскийАктеры: Роман Мадянов, Владимир Яглыч, Светлана Устинова, Наталия Антонова, Леонид Кулагин, Владимир Качан, Ирина Ефремова, Игорь Филиппов, Александр Песков и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BE40037458E1BD017CF88B680B87589631CFBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095221   (925585) от 20.01.2017
+
+TimeShift (2007) [Ru] (1.02) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Айден Крон совершил временной скачок через пространственно-временной континуум — достаточно необдуманный поступок с ужасными последствиями. Теперь потревоженная альтернативная реальность эволюционировала внутри холодного и сырого района Альфа. С помощью своего экспериментального бета-костюма только вы способны замедлить, остановить или обратить вспять ход (   Читать дальше...   )Тип издания: RepackРазработчик: Saber InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0193F334CF034B7B7E25BB0AFED0D873DAD274F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095347   (925576) от 20.01.2017
+
+Apple Final Cut Pro X 10.3.2, Motion 5.3.1 & Compressor 4.3.1 [Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Final Cut Pro X включает основные функции аудиомонтажа и цветокоррекции из Final Cut Studio, так что теперь на всех этапах пост-продакшна можно использовать одно приложение.
+
+Motion. Анимация для Final Cut
+Создавайте великолепные титры, переходы, эффекты и многое другое в приложении Motion. Это отличное дополнение к Final Cut Pro. Новые смарт-шаблоны Motion позволяют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 января 2017Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.11.4 +Язык интерфейса: Английский, Китайский,  Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B4C2A8C14F6176B603D3F170FE52D5076D4B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987668   (925519) от 17.02.2016
 
 Boom 2 v1.4.1 [Multi/Ru]
@@ -6,7 +113,7 @@ Boom 2 v1.4.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925519.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ Corel VideoStudio Ultimate X9 19.1.0.12 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925508.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ Layers of Fear (2016) [Ru/Multi] (5.1.3.48304) License RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925483.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925480.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ Adobe After Effects CC 2017.1 14.1.0.57 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925470.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ Adobe Audition CC 2017.0.2 10.0.2.27 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925462.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [Ru/En] (1.3.0.x) Repack/Mod Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925449.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925444.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ Adobe Premiere Pro CC 2017.0.2 11.0.2.47 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925437.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ WhatsApp 0.4.1299 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924904.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924729.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924355.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924098.jpg" />
 </div>
 
 
@@ -346,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924010.jpg" />
 </div>
 
 
@@ -372,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923714.jpg" />
 </div>
 
 
@@ -398,7 +505,7 @@ Street Fighter V (2016) [Ru/Multi] (1.0) Repack SEYTER
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923686.jpg" />
 </div>
 
 
@@ -424,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923631.jpg" />
 </div>
 
 
@@ -450,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923274.jpg" />
 </div>
 
 
@@ -476,7 +583,7 @@ Ori and the Will of the Wisps (2020) [Ru/Multi] (1.0) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923233.jpg" />
 </div>
 
 
@@ -502,7 +609,7 @@ WRC 8 FIA World Rally Championship (2019) [Ru/En] (1.5.1/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923229.jpg" />
 </div>
 
 
@@ -528,7 +635,7 @@ Solid Converter PDF 7.0 build 830 [Мультиязычный (русский п
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923219.jpg" />
 </div>
 
 
@@ -554,7 +661,7 @@ Windows 10 2in1 VL (x64) (v.1909 Build 18363.657) Elgujakviso Edition (v.07.03.2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923207.jpg" />
 </div>
 
 
@@ -568,111 +675,6 @@ Windows 10 2in1 VL (x64) (v.1909 Build 18363.657) Elgujakviso Edition (v.07.03.2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B8A772D56DEB5C5A8A97F83602523154F47B5FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366154   (923185) от 11.03.2020
-
-Цвет из иных миров / Color Out of Space (2019) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фермер Нэйтан Гарднер с женой и тремя детьми живёт в отдалении от цивилизации. Однажды рядом с его домом падает метеорит, на следующий же день исчезает, и теперь вокруг места падения разрастаются необычные цветы, а телевидение и мобильная связь работают с помехами. Приехавший проверить местную воду гидролог уверен, что пить её не стоит, но члены семьи Гарднер не (   Читать дальше...   )Производство: США, Малайзия, Португалия | SpectreVision, ACE Pictures Entertainment, ...Жанр: Ужасы, фантастикаРежиссер: Ричард СтэнлиАктеры: Николас Кейдж, Джоэли Ричардсон, Мадлен Артур, Эллиот Найт, Томми Чонг, Брендан Мейер, Джулиан Хиллиард, Джош С. Уоллер, К’Орианка Килчер, Мелисса НирманПеревод: Дублированный | iTunesСубтитры: Русские (forced, full FOCS ненормативная лексика), английскиеПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74EAFBB3CE4DE3DBB5D655D3BB13ACCE590CDC8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261829   (923183) от 11.03.2020
-
-Thief Simulator (2018) [Ru/Multi] (1.42) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте настоящим вором. Воруйте вещи в полностью открытых для исследования районах. Наблюдайте за своей целью и собирайте информацию, которая поможет при ограблении. Бросайте вызов лучшим системам безопасности. Покупайте новейшее оборудование и обучайтесь новым воровским приемам. Продавайте добычу скупщикам краденного. Делайте все, что делают настоящие воры!Тип издания: RepackРазработчик: Noble MuffinsЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B212E17BB5EAA36BECC2D54BEBBA9E74C3707D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 287933   (923158) от 28.01.2011
-
-Я плюю нa ваши могилы / I Spit on Your Grave (2010) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая писательница Дженнифер снимает домик в глухом лесу, чтобы в уединении написать очередной роман. Но издатель не дождется нового бестселлера… Четверо местных отморозков жестоко насилуют девушку и обрекают ее на мучительную смерть. Но спустя некоторое время Дженнифер вновь появляется в заброшенном городке. Она сумела выжить и теперь ее единственная цель — месть. И месть эта будет столь ужасной, что бывшие насильники проклянут тот день, когда встретили ее впервые…Жанр: триллер, криминалРежиссер: Стивен Р. МонроАктеры: Дэниел Фрэнзиси, Сара Батлер, Чэд Линдберг, Трейси Уолтер, Эндрю Ховард, Джефф Брэнсон, Родни Истман, Саксон Шарбино, Молли МиллиганПеревод: Любительский (двухголосый)Формат: AVIПродолжительность: 01:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5CC4B4E7B0D7DE22A86AF847611F01698047B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288333   (923133) от 28.01.2011
-
-Age of Pirates 2: City of Abandoned Ships / Корсары: Город Потерянных Кораблей [Ru] (RePack/1.2.12 2009) | Fenixx
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корсары: Город Потерянных Кораблей" - это новая игра в линейке «Корсаров», продолжение "Корсары: Возвращение Легенды", которая была разработана общими силами студии Seaward.ru и компании "Акелла" как альтернативный взгляд на знаменитую трилогию о пиратах.
-В "Городе Потерянных Кораблей" создатели "КВЛ" реализовали всё то, чему по причине временных ограничений, не нашлось места в «Возвращении легенды».Заслуженно большее внимание получили мистические мотивы в сюжете игры: теперь таинственному и потустороннему отведено две полноценные локации.Первая - собственно Город Потерянных Кораблей. Зловещая пристань, куда попадают затерявшиеся в Карибском море суда, с годами накопила несметные сокровища. Только одной смелости мало, чтобы отобрать их у мертвых.Вторая - золотая столица ацтеков Теночтитлан. Здесь, как известно, тоже есть, чем поживиться. Между пиратом и его безбедной старостью стоят лишь мифические существа из мрачных верований южноамериканского племени.Можно подумать, (   Читать дальше...   )Тип издания: Перепакованная лицензияЖанр: Action, Add-on (Standalone / Naval), RPG, 3rd Person, Privateer, TraderЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

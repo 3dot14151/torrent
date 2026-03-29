@@ -1,3 +1,85 @@
+###  Публикация: 1281840   (749925) от 09.02.2019
+
+В. Краснов | Ходынка [Очерки не до смерти растоптанного] (1926) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подрастающее поколение в стране Советов только по наслышке знает о царизме, о буржуазном владычестве. Все ужасы произвола, всю беспредельную темноту, в которой держал трудящихся помещик, капиталист, царь, молодежь наша знает только понаслышке, урывками. Настоящее так бурно, что в большинстве не до прошлого.
+
+А вспоминать надо, а знать необходимо. Оттого такое огромное (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524C8BBDE2179E1BDA406812638334C9A3CC4791
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216616   (749574) от 31.03.2018
+
+Ф. Юнг | Джек Лондон, как поэт рабочего класса (1925) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_749574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для того, чтобы отчетливо представить себе, откуда пришло и как выросло влияние Джека Лондона и его произведений, нужно ознакомиться с той средой, из которой вышел Джек Лондон, т. е. с общественными классами Америки, с противоречиями между капиталом и трудом в этой стране, с положением самого рабочего класса.Жанр: История, политология, искусство, публицистка, литературоведениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:282D0368F81023DEB93400416827154A70EF878D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396191   (748683) от 14.07.2020
+
+Л. Лонго | Уроки антифашистского Сопротивления (1980) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Луиджи Лонго (1900—1980) — видный деятель итальянского и международного рабочего и коммунистического движения, соратник Антонио Грамши и Пальмиро Тольятти, один из основателей партии итальянских коммунистов.
+
+Луиджи Лонго был профессиональным революционером, которому в течение многих лет довелось руководить подпольной деятельностью коммунистов в фашистской Италии; (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC36F14301BA7219E15560665C0BD70B016891D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020000   (748647) от 24.05.2016
 
 Юрий Беспалов | Людмила Зыкина. На перекрестке наших встреч (2016) [FB2]
@@ -6,7 +88,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748647.jpg" />
+  <img src="Z:/picture/008/save_picture_748647.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748610.jpg" />
+  <img src="Z:/picture/008/save_picture_748610.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748510.jpg" />
+  <img src="Z:/picture/008/save_picture_748510.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748421.jpg" />
+  <img src="Z:/picture/008/save_picture_748421.jpg" />
 </div>
 
 
@@ -112,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748420.jpg" />
+  <img src="Z:/picture/008/save_picture_748420.jpg" />
 </div>
 
 
@@ -138,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748310.jpg" />
+  <img src="Z:/picture/008/save_picture_748310.jpg" />
 </div>
 
 
@@ -164,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748204.jpg" />
+  <img src="Z:/picture/008/save_picture_748204.jpg" />
 </div>
 
 
@@ -190,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748076.jpg" />
+  <img src="Z:/picture/008/save_picture_748076.jpg" />
 </div>
 
 
@@ -216,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747990.jpg" />
+  <img src="Z:/picture/008/save_picture_747990.jpg" />
 </div>
 
 
@@ -244,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746557.jpg" />
+  <img src="Z:/picture/008/save_picture_746557.jpg" />
 </div>
 
 
@@ -270,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746339.jpg" />
+  <img src="Z:/picture/008/save_picture_746339.jpg" />
 </div>
 
 
@@ -296,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746261.jpg" />
+  <img src="Z:/picture/008/save_picture_746261.jpg" />
 </div>
 
 
@@ -322,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745983.jpg" />
+  <img src="Z:/picture/008/save_picture_745983.jpg" />
 </div>
 
 
@@ -348,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745730.jpg" />
+  <img src="Z:/picture/008/save_picture_745730.jpg" />
 </div>
 
 
@@ -374,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745433.jpg" />
+  <img src="Z:/picture/008/save_picture_745433.jpg" />
 </div>
 
 
@@ -400,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745143.jpg" />
+  <img src="Z:/picture/008/save_picture_745143.jpg" />
 </div>
 
 
@@ -426,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745074.jpg" />
+  <img src="Z:/picture/005/save_picture_745074.jpg" />
 </div>
 
 
@@ -454,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744724.jpg" />
+  <img src="Z:/picture/008/save_picture_744724.jpg" />
 </div>
 
 
@@ -481,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743909.jpg" />
+  <img src="Z:/picture/008/save_picture_743909.jpg" />
 </div>
 
 
@@ -507,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742556.jpg" />
+  <img src="Z:/picture/008/save_picture_742556.jpg" />
 </div>
 
 
@@ -533,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740877.jpg" />
+  <img src="Z:/picture/008/save_picture_740877.jpg" />
 </div>
 
 
@@ -559,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740866.jpg" />
+  <img src="Z:/picture/008/save_picture_740866.jpg" />
 </div>
 
 
@@ -585,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740245.jpg" />
+  <img src="Z:/picture/008/save_picture_740245.jpg" />
 </div>
 
 
@@ -596,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6A732153A3E04F0B7898CB1D11B2D9938792863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217934   (740244) от 07.04.2018
-
-Г. И. Серебрякова | Женщины эпохи французской революции (1958) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740244.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Женщины эпохи французской революции" Галины Серебряковой - это не роман, не повесть, не сборник рассказов, словом, не беллетристика в обычном понимании этого термина. Но это и не историческое исследование, не научный труд, подчиненный строгим требованиям методологии и техники исторического письма. Иные называют этот жанр беллетризированной историей, другие (   Читать дальше...   )Жанр: История, политология, публицистка, биографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC4867B86853ADA746C70A57A4B49932D633B9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283303   (740205) от 16.02.2019
-
-Брюс Ли | Путь совершенства (2019) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга откроет вам личность легендарного Брюса Ли во всей полноте и разносторонности. Культовый актер и режиссер, выдающийся мастер восточных единоборств неожиданно распахивает свой внутренний мир, в котором предстает как поэт, философ, писатель, хореограф, муж, отец и друг. Вы впервые познакомитесь с размышлениями Брюса о жизни и судьбе, о личном становлении (   Читать дальше...   )Жанр: Биографии и мемуарыПеревод: Е.А. МордашевФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B17BA9083C066465CAFD2CC4C665584CB839E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218148   (740110) от 07.04.2018
-
-Наталья Поклонская | Преданность Вере и Отечеству (2018) [PDF, FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740110.jpg" />
-</div>
-
-
-###  Подробнее
-
-События 2014 года на Украине зажгли на нашем политическом небосводе яркие звезды новых героев, имена которых будут навечно вписаны в историю России XXI века. Среди них одно из самых известных – имя Натальи Поклонской, первого прокурора российского Крыма и активного сторонника воссоединения полуострова с Российским государством. Она по праву заняла почетное место (   Читать дальше...   )Жанр: Авторский сборникФормат: PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF4892B91744A191179B4D17AA612DDF38E66BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

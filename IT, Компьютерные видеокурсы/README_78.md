@@ -1,3 +1,138 @@
+###  Публикация: 1583331   (229530) от 14.10.2022
+
+ui.dev (ex. Tyler McGinnis), Tanner Linsley | React Query (2022) WEB-DL [EN]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучите React Query с помощью официального курса. Не хотите читать документацию? Есть более простой способ освоить React Query. Наш линейный курс подобен умному, опытному другу, который сядет рядом с вами, расскажет вам о каждой концепции и применит то, чему вы научились. Это наш секретный соус.
+
+React Query помогает избежать технического долга. Мы поможем вам освоить (   Читать дальше...   )Производство: ui.dev (ex. Tyler McGinnis)Жанр: ВидеокурсЯзык озвучки: АнглийскийПродолжительность: 07:01:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DB1EFE7B70B04A56A80A785169DF434C30859C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964838   (229257) от 12.12.2015
+
+Дмитрий Родин | AutoCAD в Формате Видео (2015) PCRec [H.264]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятилетний опыт вложеный в бесплатный авторский видеокурс «AutoCAD в Формате Видео». «AutoCAD в Формате Видео» - это эксклюзивный авторский ВИДЕО самоучитель по программе AutoCAD. Общая длительность видео уроков 3 часа 6 минут. Просмотрев все видео уроки, Вы научитесь создавать сложные чертежи в любой версии программы AutoCAD.Производство: РоссияЖанр: AutoCADПродолжительность: 3:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B4154EE1F18B06657027FFECF4EBE8CE7BFCB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964538   (229011) от 12.12.2015
+
+Александр Миловский | Секреты идеальной топологии полигональных моделей в Autodesk 3ds Max и Autodesk Maya (2013) HDRip [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229011.jpg" />
+</div>
+
+
+###  Подробнее
+
+В полигональном моделировании качество модели определяется не только используемыми инструментами, но и правильным подходом к организации полигональной сети будущей модели, т.е. топологии.  Речь пойдет о том, как обеспечить требуемый уровень качества для низко- и высокополигональных моделей. Правила топологии универсальны и независят от пакета моделирования, а профессионализм (   Читать дальше...   )Производство: 3D Master, Autodesk University RussiaЖанр: 3D моделированиеПродолжительность: 00:29:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0AF543429FF74138FAEA4126A5B8F947F73E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964075   (228907) от 12.12.2015
+
+Convert Monster | Идеальный Landing Page, Яндекс.Директ, Google AdWords + Бонусы [VIP] (2014) PCRec [H.264/720p]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_228907.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Идеальный Landing Page: Пошаговый курс по созданию посадочных страниц с конверсией от 5%
+
+2. Идеальный Яндекс.Директ: Пошаговый курс по настройке Яндекс.Директ с гарантией результата
+(   Читать дальше...   )Производство: РоссияЖанр: SEOПродолжительность: 26:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C40135DC470D444240F6B8905CA727ADCE3C812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964716   (226730) от 13.12.2015
+
+Специалист | CEH часть 1. Этичный хакинг и тестирование на проникновение (2013) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы получите знания и навыки, необходимые для успешного выявления и устранения проблем безопасности в смешанных компьютерных сетях. Курс посвящен уникальным хакерским техникам и методам взлома в контексте применения оборонительных практик и рекомендаций, изложенных настоящими хакерами. Курс одобрен министерством обороны США и является официальной библией для сотрудников (   Читать дальше...   )Жанр: БезопасностьПродолжительность: 22:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:241C97225722589D2740751955F4CF353E0E9F36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513135   (226628) от 27.11.2021
 
 Udemy, Tim Buchalka и др. | Android App Development Masterclass using Kotlin (2021) WEB-DL [En / En Sub]
@@ -6,7 +141,7 @@ Udemy, Tim Buchalka и др. | Android App Development Masterclass using Kotlin 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226628.jpg" />
 </div>
 
 
@@ -34,7 +169,7 @@ Udemy, Ben Tristem, Sam Pattuzzi, Gavin Milroy | Unreal Engine C++ Developer: Le
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226351.jpg" />
+  <img src="Z:/picture/005/save_picture_226351.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ Janathan Daley | Creating Gameplay Systems using Blueprint Features in Unreal En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225784.jpg" />
+  <img src="Z:/picture/005/save_picture_225784.jpg" />
 </div>
 
 
@@ -87,7 +222,7 @@ Udemy, Jesse E. Agbe | Learn Streamlit Python (2020) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225523.jpg" />
+  <img src="Z:/picture/005/save_picture_225523.jpg" />
 </div>
 
 
@@ -114,7 +249,7 @@ Udemy, Tarkan Aguner | Python Real World Data Science Mega Project: Car Buyer Ap
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225325.jpg" />
+  <img src="Z:/picture/005/save_picture_225325.jpg" />
 </div>
 
 
@@ -141,7 +276,7 @@ Lynda.com | Изучение HTML Canvas / Learning HTML Canvas (2018) PCRec [H.
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224955.jpg" />
+  <img src="Z:/picture/005/save_picture_224955.jpg" />
 </div>
 
 
@@ -167,7 +302,7 @@ Udemy, Дмитрий Безуглый | React + Redux 2020, с нуля до п
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224722.jpg" />
+  <img src="Z:/picture/005/save_picture_224722.jpg" />
 </div>
 
 
@@ -196,7 +331,7 @@ TeachMeSkills | iOS разработчик (2021) WEB-DL [AD]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224402.jpg" />
+  <img src="Z:/picture/005/save_picture_224402.jpg" />
 </div>
 
 
@@ -223,7 +358,7 @@ Udemy, Никита Хохлов | Разработка Telegram ботов на
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224329.jpg" />
+  <img src="Z:/picture/005/save_picture_224329.jpg" />
 </div>
 
 
@@ -249,7 +384,7 @@ Udemy, Исмаил Усеинов | Frontend разработчик на HTML, 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224279.jpg" />
+  <img src="Z:/picture/005/save_picture_224279.jpg" />
 </div>
 
 
@@ -276,7 +411,7 @@ MonsterLessons, Александр Кочергин | Vue и Vuex - пишем �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223159.jpg" />
+  <img src="Z:/picture/005/save_picture_223159.jpg" />
 </div>
 
 
@@ -303,7 +438,7 @@ Javabegin | Микросервисы на Spring Cloud (2022) WEB-DL [RU]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223128.jpg" />
+  <img src="Z:/picture/005/save_picture_223128.jpg" />
 </div>
 
 
@@ -332,7 +467,7 @@ Slurm (Слёрм), Марсель Ибраев и др. | Kubernetes: Мега 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223084.jpg" />
+  <img src="Z:/picture/005/save_picture_223084.jpg" />
 </div>
 
 
@@ -361,7 +496,7 @@ Lynda.com | Dreamweaver and WordPress: Building Sites (Dreamweaver и WordPress:
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221971.jpg" />
+  <img src="Z:/picture/005/save_picture_221971.jpg" />
 </div>
 
 
@@ -389,7 +524,7 @@ Lynda.com | Dreamweaver and WordPress: Building Themes (Dreamweaver и WordPress
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221962.jpg" />
+  <img src="Z:/picture/005/save_picture_221962.jpg" />
 </div>
 
 
@@ -417,7 +552,7 @@ OTUS, Владислав Родин | Супер-интенсив «СУБД в 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221412.jpg" />
+  <img src="Z:/picture/005/save_picture_221412.jpg" />
 </div>
 
 
@@ -443,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221391.jpg" />
+  <img src="Z:/picture/005/save_picture_221391.jpg" />
 </div>
 
 
@@ -471,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221288.jpg" />
+  <img src="Z:/picture/005/save_picture_221288.jpg" />
 </div>
 
 
@@ -500,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221237.jpg" />
+  <img src="Z:/picture/005/save_picture_221237.jpg" />
 </div>
 
 
@@ -527,7 +662,7 @@ IT Jane | Создание мобильных приложений с нуля �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220316.jpg" />
+  <img src="Z:/picture/005/save_picture_220316.jpg" />
 </div>
 
 
@@ -555,7 +690,7 @@ Adrian Cantrill | AWS Certified DevOps Engineer - Professional (2022) WEB-DL [EN
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219848.jpg" />
+  <img src="Z:/picture/005/save_picture_219848.jpg" />
 </div>
 
 
@@ -568,141 +703,6 @@ The AWS Certified DevOps Engineer is one of the most valuable and in-demand clou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFFA1F42699C92961DF595F89A00F714D1A015AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425705   (219576) от 21.11.2020
-
-Udemy, Dr. Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp for 2020 (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на курс 100 Days of Code - The Complete Python Pro Bootcamp, единственный курс, который вам нужно научиться программировать с помощью Python. С более чем 100 000 отзывов и средней оценкой 4,8 мои курсы являются одними из САМЫХ ВЫСОКИХ РЕЙТИНГОВ в истории Udemy!
-
-100 дней, 1 час в день, научитесь строить 1 проект в день - вот как вы осваиваете Python.Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 56:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D39614A52FD23A3E5538F5082D4CD480D9A1F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425716   (219443) от 21.11.2020
-
-Udemy, Кирилл Жданов | Тестировщик ПО, стань Junior QA Engineer в любом возрасте (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите услышать максимально правдивый ответ всем курсам по тестированию? Вы уже тестировщик! Я прошел путь от Младшего инженера тестировщика до Руководителя отдела тестирования и мне есть чем с вами поделиться!  Этот курс делает вам вызов. Поставлена амбициозная цель: за минимальное время приступить к поиску своей первой работы в ИТ: Тестировщик ПО.Производство: UdemyЖанр: ТестированиеПродолжительность: 02:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427AB472478A6E9B5C7E46CDB7C06CF4EECB066B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425599   (219424) от 21.11.2020
-
-Udemy, Роман Сакутин и др. | Unity 2019 - Полный курс для разработчика игр | Для чайников  (2019) PCRec
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечтаете создавать игры?
-
-Начните с полного курса по Unity 2019 и в кратчайшие сроки станьте разработчиком игр! Курс даст вам всё необходимое для того, чтобы вы начали разрабатывать свои первые игры в движке Unity. Даже если вы не умеете программировать, вам ничего не помешает так, как в курсе есть все необходимые знания.
-(   Читать дальше...   )Производство: UdemyЖанр: Программирование, Розработка игр, C#Продолжительность: 05:25:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE95920588C5EDAD5352CC73B36AD1EEAFEC386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425720   (219416) от 21.11.2020
-
-Яндекс.Практикум | Профессия Python-разработчик [Часть 6 из 8] (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Python-разработчик создаёт бэкенд сайтов: мозг, который принимает запросы, общается с базой данных и передаёт нужную информацию пользователю. Разработчик проектирует алгоритмы взаимодействия сайта с другими интернет-сервисами. Вы изучите язык Python: он востребован и прост. Вы также освоите важнейшие инструменты бэкендера: Django, базы данных, git. В процессе обучения (   Читать дальше...   )Жанр: Программирование, PythonПродолжительность: 08:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C0ADDEB1AD719B962F81B28E3AA8C17C80BFFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585742   (219370) от 11.12.2012
-
-Куликов А.С., Дворкин М.Э. | Курс «Алгоритмы и структуры данных 1, 2» [2011-2012] HDRip
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совместный проект Школы анализа данных Яндекса, CS клуба, Академии современного программирования и ФМЛ №239. Это курсы подготовительного года обучения. Занятия первого семестра проводились в конце 2011 года, второго - в начале 2012 года.Жанр: ПрограммированиеПродолжительность: 17:09:43 (1 часть), 29:41:29 (2 часть)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:157A8CA99086374A1AC0413AC1F4DBEC0F4C4E28
 ```
 
 https://mybot314.ru/tekegram_catalog/

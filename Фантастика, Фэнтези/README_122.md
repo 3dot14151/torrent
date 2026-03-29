@@ -1,3 +1,56 @@
+###  Публикация: 528340   (573118) от 28.07.2012
+
+Герман Романов | "Попаданец" на троне. "Бунтовщиков на фонарь!" [2011] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший дебют в жанре "альтернативной истории". Захватывающий фантастический боевик о "попаданце", угодившем в тело Петра III за считанные дни до того, как ничтожный император должен быть свергнут женой и убит заговорщиками. Но наш современник отказывается покориться неизбежному, решив подавить мятеж и переписать прошлое! Судьба России висит на волоске - ведь против него не только взбунтовавшаяся гвардия, но и придворная камарилья, до смерти перепуганная внезапным преображением пьяницы-императора, который вдруг не только отказывается от спиртного, но и открыто выступает против немецкого засилья, во всеуслышание заявив: "Я вам не пруссак, а природный русак!" и "Русские прусских всегда бивали!" Кто победит в этой отчаянной дуэли со временем? Удастся ли "попаданцу" преодолеть инерцию прошлого и изменить ход истории? Если да - у России будет не Екатерина Великая, а новый Великий Петр и великое будущее.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0FF8FA148701F40003D231E3FEB1A588D94EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528309   (572870) от 28.07.2012
+
+Герман Романов | Товарищ фюрер.Триумф блицкрига [2012] [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый фантастический боевик от автора бестселлеров «Спасти Колчака», «„Попаданец“ на троне» и «Спасти Императора», бьющий все рекорды «неполиткорректности»! Наш человек во главе Третьего Рейха! Русский «попаданец» в теле Адольфа Гитлера!
+Удастся ли ему разгромить Англию, проведя операцию «Морской лев» — вторжение на Британские острова? Решится ли он возглавить военный переворот, чтобы отстранить нацистскую партию от власти и уничтожить СС? Сможет ли «товарищ фюрер» предотвратить столкновение со Сталиным, не допустив самоубийственной войны Германии против СССР?Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DCC79244A607CE2E1692AF969A0B109E59ACAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528294   (572745) от 28.07.2012
 
 Дмитрий Казаков | Перезагрузка (Путешествие на запад - 3) [2012] [FB2]
@@ -6,7 +59,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572745.jpg" />
+  <img src="Z:/picture/008/save_picture_572745.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572607.jpg" />
+  <img src="Z:/picture/008/save_picture_572607.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572525.jpg" />
+  <img src="Z:/picture/008/save_picture_572525.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572497.jpg" />
+  <img src="Z:/picture/008/save_picture_572497.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572472.jpg" />
+  <img src="Z:/picture/008/save_picture_572472.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572433.jpg" />
+  <img src="Z:/picture/008/save_picture_572433.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572412.jpg" />
+  <img src="Z:/picture/008/save_picture_572412.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572176.jpg" />
+  <img src="Z:/picture/008/save_picture_572176.jpg" />
 </div>
 
 
@@ -221,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572155.jpg" />
+  <img src="Z:/picture/008/save_picture_572155.jpg" />
 </div>
 
 
@@ -250,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571985.jpg" />
+  <img src="Z:/picture/008/save_picture_571985.jpg" />
 </div>
 
 
@@ -276,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571680.jpg" />
+  <img src="Z:/picture/008/save_picture_571680.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571640.jpg" />
+  <img src="Z:/picture/008/save_picture_571640.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571491.jpg" />
+  <img src="Z:/picture/008/save_picture_571491.jpg" />
 </div>
 
 
@@ -358,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571031.jpg" />
+  <img src="Z:/picture/008/save_picture_571031.jpg" />
 </div>
 
 
@@ -384,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570895.jpg" />
+  <img src="Z:/picture/008/save_picture_570895.jpg" />
 </div>
 
 
@@ -412,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570511.jpg" />
+  <img src="Z:/picture/008/save_picture_570511.jpg" />
 </div>
 
 
@@ -441,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570494.jpg" />
+  <img src="Z:/picture/008/save_picture_570494.jpg" />
 </div>
 
 
@@ -467,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570370.jpg" />
+  <img src="Z:/picture/008/save_picture_570370.jpg" />
 </div>
 
 
@@ -494,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570326.jpg" />
+  <img src="Z:/picture/008/save_picture_570326.jpg" />
 </div>
 
 
@@ -522,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570321.jpg" />
+  <img src="Z:/picture/008/save_picture_570321.jpg" />
 </div>
 
 
@@ -550,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570271.jpg" />
+  <img src="Z:/picture/008/save_picture_570271.jpg" />
 </div>
 
 
@@ -576,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570225.jpg" />
+  <img src="Z:/picture/008/save_picture_570225.jpg" />
 </div>
 
 
@@ -604,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570172.jpg" />
+  <img src="Z:/picture/008/save_picture_570172.jpg" />
 </div>
 
 
@@ -631,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569991.jpg" />
+  <img src="Z:/picture/008/save_picture_569991.jpg" />
 </div>
 
 
@@ -642,60 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DF7D252A3225E0DAF14017CC608D695FEE59C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922468   (569848) от 28.07.2015
-
-Павел Шабарин | Гимн Беглецов (2015) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Кретч».
-
-За последние годы город Кретч стал центром технологического прогресса. Мир застрял в темных веках, и лишь жители Кретча сумели вырваться в индустриальную эпоху. Когда повсюду церковь выискивает колдунов и ведьм, здесь промышленники строят заводы и железные дороги. Когда во всем мире на полях сражений сверкает сталь, в Кретче производят (   Читать дальше...   )Жанр: Детективная фантастика, Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7178B4FB20BBD89713FA8E2AC09FBA591CE3904E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922385   (569832) от 28.07.2015
-
-Наталья Щерба | Быть ведьмой (2012) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Непросто быть ведьмой в карпатских краях. А если при этом у тебя доброе сердце и обостренное чувство справедливости — то все, пиши пропало! Но судьбу не выбирают, и обыкновенной современной девушке Татьяне придется попытать счастья в древнем колдовском деле, найти свою настоящую любовь, разгадать самую страшную тайну в мире и при этом остаться в живых!Жанр: ФентезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6696F914BDB1A4798A354EDBF340860F376447
 ```
 
 https://mybot314.ru/tekegram_catalog/

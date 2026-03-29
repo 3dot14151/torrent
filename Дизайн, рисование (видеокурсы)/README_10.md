@@ -1,3 +1,29 @@
+###  Публикация: 1455693   (1025335) от 20.03.2021
+
+Евгений Грипинский | Энциклопедия Школы 3D Евгения Грипинского (2013-2021) PCRec
+
+>>След.
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Задача - составить качественную и понятную базу уроков для всех моих подписчиков. Работа над "Энциклопедией" ведется постоянно: каждую неделю добавляются новые видео. Пока добавлена база по моделингу. Через неделю планирую добавить несколько видео о материалах в Corona Renderer, потом свет. Если вы новичек, но пока не можете позволить учиться в моей школе (   Читать дальше...   )Производство: 3D School GripinskyЖанр: Создание видеоПродолжительность: 32:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE989E8900EB9DCA3B06EDDEABC5082F62099542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456332   (1025005) от 22.03.2021
 
 CGAim, Вячеслав Богданов | Intro в Blender (2021) PCRec
@@ -6,7 +32,7 @@ CGAim, Вячеслав Богданов | Intro в Blender (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025005.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Skillbox | 3D-аниматор с нуля до PRO (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024092.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Knower School | Игровая модель топора (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023740.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ CG Cookie, Jonathan Lampel | Основы цифрового освещения 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023739.jpg" />
 </div>
 
 
@@ -119,7 +145,7 @@ Udemy | Создание персонажа в Blender 2.83 для игр / Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023725.jpg" />
 </div>
 
 
@@ -146,7 +172,7 @@ School xyz, Игорь Зверев | Hyper Casual (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023184.jpg" />
 </div>
 
 
@@ -173,7 +199,7 @@ Udemy | Blender Academy (2021) PCRec [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022875.jpg" />
 </div>
 
 
@@ -199,7 +225,7 @@ Skillbox, Лиза Ревзина и др. | UX-дизайнер с нуля д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022835.jpg" />
 </div>
 
 
@@ -225,7 +251,7 @@ Udemy, Mrawan Hussain | Создание Jeep Willys MP 1942 от начала �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022745.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Help4d, Андрей Доронин | Базовый курс по Cinema 4D: А
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022493.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ Udemy, Mrawan Hussain | Создание и риггинг реалистичн�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022376.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ Udemy, Mrawan Hussain |  Создание и риггинг Железного �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022168.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ WingFox, Maria Anikina | Создание реалистичных волос в
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021849.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ ArtStation, Rico Cilliers | Скульптинг органики в Blender 2.9
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021391.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Jan Urschel | Введение в движок рендеринга Octane дл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021150.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ WingFox, Gavin O'Donnell | Стилизованная иллюстрация - �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021093.jpg" />
 </div>
 
 
@@ -437,7 +463,7 @@ CG Cookie, Jonathan Lampel | Основы текстурирования в Blen
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020939.jpg" />
 </div>
 
 
@@ -463,7 +489,7 @@ CG Cookie | Кузница шейдеров - Создание материал�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020929.jpg" />
 </div>
 
 
@@ -490,7 +516,7 @@ CG Cookie, Wayne Dixon | Основы риггинга - Узнай как со�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020918.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ Udemy, Mislav Majdandžić | Pixel Art Master Course - Beginner to Professional/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020544.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ VideoSmile, Александр Коляса | Супер Substance (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019847.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ Schoolism, Justin Goby Fields | Введение в ZBrush с Justin Goby Fields
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019694.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ Gumroad, Simon Fuchs | Создание дрона в Blender 2.9 и Substance P
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019199.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ Cream-Motion | VoluMax v6 3D Photo Animator Tutorial (2021) HDRip [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019038.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ Udemy, Brent Eviston | The Art & Science of Drawing / BASIC SKILLS  (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018884.jpg" />
 </div>
 
 
@@ -662,32 +688,6 @@ Art & Science of Drawing - замечательная программа, кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DB7DAA7764C405A0F9078E38221498365BE8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465671   (1018861) от 27.04.2021
-
-Udemy, Scott Harris | Manga Art School: How to draw Anime and Manga Course (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Manga Art School - это 2-6-недельный видеокурс для обучения в любом месте, где вы научитесь профессионально рисовать аутентичную японскую стилизацию персонажей манги и аниме. Я вручную создал курс Manga Art School: Anime and Manga Style Character Drawing, который станет единственным курсом, который вам нужен, чтобы выучить все основы, а также продвинутую стилизацию (   Читать дальше...   )Производство: UdemyЖанр: Рисование, МангаЯзык озвучки: АнглийскийПродолжительность: 11:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1EA51E0A4C04CC7ACC6A08D40523057F4B478B
 ```
 
 https://mybot314.ru/tekegram_catalog/

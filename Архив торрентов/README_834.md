@@ -6,7 +6,7 @@ Dope D.O.D. - Da Roach (2013) [MP3|320 Kbps] <Grime, Hardcore Rap, Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860133.jpg" />
+  <img src="Z:/picture/008/save_picture_860133.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860118.jpg" />
+  <img src="Z:/picture/008/save_picture_860118.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Easy2Boot 1.90 + RMPrepUSB 2.1.734 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860117.jpg" />
+  <img src="Z:/picture/008/save_picture_860117.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Skype 8.59.0.77 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860047.jpg" />
+  <img src="Z:/picture/008/save_picture_860047.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Balabolka 2.15.0.740 + Portable + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860044.jpg" />
+  <img src="Z:/picture/008/save_picture_860044.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860043.jpg" />
+  <img src="Z:/picture/008/save_picture_860043.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Bandizip 7.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860039.jpg" />
+  <img src="Z:/picture/008/save_picture_860039.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860038.jpg" />
+  <img src="Z:/picture/008/save_picture_860038.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860019.jpg" />
+  <img src="Z:/picture/008/save_picture_860019.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Comedy Баттл. Новый сезон (17.04.2020) WEB-DL [H.264/1080p-LQ] (�
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859974.jpg" />
+  <img src="Z:/picture/008/save_picture_859974.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Readiris Corporate 17.3 Build 76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859965.jpg" />
+  <img src="Z:/picture/008/save_picture_859965.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ V-Ray Next 4.20.01 for SketchUp 2016-2020 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859960.jpg" />
+  <img src="Z:/picture/008/save_picture_859960.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Windows 10 (v1909) x64 HSL/PRO by KulHunter v5.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859953.jpg" />
+  <img src="Z:/picture/008/save_picture_859953.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ VA - House Vip (02.04.10) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859948.jpg" />
+  <img src="Z:/picture/008/save_picture_859948.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ VA - Melodies Of Erotic Zone (2009) [MP3|320 кб/с]<Instrumental, New Age>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859938.jpg" />
+  <img src="Z:/picture/008/save_picture_859938.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ One Piece / Ван Пис (2013) [604] [Арт]
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859922.jpg" />
+  <img src="Z:/picture/008/save_picture_859922.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Auslogics BoostSpeed 11.4.0.3 DC 15.04.2020 RePack (& Portable) by KpoJIuK [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859855.jpg" />
+  <img src="Z:/picture/008/save_picture_859855.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859853.jpg" />
+  <img src="Z:/picture/008/save_picture_859853.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Total Commander 9.51 MAX-Pack 2020.04.16 by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859851.jpg" />
+  <img src="Z:/picture/008/save_picture_859851.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Uninstall Tool 3.5.10 Build 5670 RePack (& Portable) TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859845.jpg" />
+  <img src="Z:/picture/008/save_picture_859845.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Sonny Rollins - Valse Hot (2010) [MP3|320 kbps]<Jazz, Swing, Sax, Instrumental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859839.jpg" />
+  <img src="Z:/picture/008/save_picture_859839.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859809.jpg" />
+  <img src="Z:/picture/008/save_picture_859809.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Tails 0.23 [анонимный доступ в сети] [i386] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859789.jpg" />
+  <img src="Z:/picture/008/save_picture_859789.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Quintino - Tomorrowland Friendship Mix (2021-09-23) [MP3|320 Kbps] <Electro Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859768.jpg" />
+  <img src="Z:/picture/008/save_picture_859768.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Windows 10 1909 (Build 18363.778) (60in2) x86/x64 by Sergei Strelec [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859744.jpg" />
+  <img src="Z:/picture/008/save_picture_859744.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Adobe Illustrator 2020 24.1.2.408 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859740.jpg" />
+  <img src="Z:/picture/008/save_picture_859740.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ VA - This Is Soulful House 2 (2019) [AAC|~331 Kbps] <Soulful House, Deep House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224208.jpg" />
+  <img src="Z:/picture/005/save_picture_224208.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Music for Mindfulness, vol. 2 (2018) [AAC|~302 Kbps] <Downtempo, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224185.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Music for Mindfulness, vol. 3 (2019) [AAC|~317 Kbps] <Downtempo, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224175.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Music for Mindfulness, vol. 6 (2021) [AAC|~317 Kbps] <Downtempo, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224163.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Music for Mindfulness, vol. 1 (2017) [AAC|~308 Kbps] <Downtempo, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224157.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Luxury Kingsize Lounge, Vol. 4 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224147.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - This Is Soulful House 3 (2021) [AAC|~316 Kbps] <Soulful House, Deep House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224137.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - This Is Soulful House 1 (2018) [AAC|~335 Kbps] <Soulful House, Deep House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224130.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - This Is Soulful House 4 (2021) [AAC|~331 Kbps] <Soulful House, Deep House, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224073.jpg" />
+  <img src="Z:/picture/005/save_picture_224073.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Dabro - Лучшие песни (The Best) (2020) [AAC|~306 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224069.jpg" />
+  <img src="Z:/picture/005/save_picture_224069.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ De-Phazz - The Instrumental Versions (2021) [AAC|~367 Kbps] <Nu-Jazz, Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224053.jpg" />
+  <img src="Z:/picture/005/save_picture_224053.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Music for Mindfulness, vol. 4 (2020) [AAC|~323 Kbps] <Downtempo, Chill Out>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223998.jpg" />
+  <img src="Z:/picture/005/save_picture_223998.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223859.jpg" />
+  <img src="Z:/picture/005/save_picture_223859.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223814.jpg" />
+  <img src="Z:/picture/005/save_picture_223814.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223802.jpg" />
+  <img src="Z:/picture/005/save_picture_223802.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223773.jpg" />
+  <img src="Z:/picture/005/save_picture_223773.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223735.jpg" />
+  <img src="Z:/picture/005/save_picture_223735.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223688.jpg" />
+  <img src="Z:/picture/005/save_picture_223688.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223661.jpg" />
+  <img src="Z:/picture/005/save_picture_223661.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223631.jpg" />
+  <img src="Z:/picture/005/save_picture_223631.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223573.jpg" />
+  <img src="Z:/picture/005/save_picture_223573.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223565.jpg" />
+  <img src="Z:/picture/005/save_picture_223565.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223461.jpg" />
+  <img src="Z:/picture/005/save_picture_223461.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223456.jpg" />
+  <img src="Z:/picture/005/save_picture_223456.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223363.jpg" />
+  <img src="Z:/picture/005/save_picture_223363.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223293.jpg" />
+  <img src="Z:/picture/005/save_picture_223293.jpg" />
 </div>
 
 

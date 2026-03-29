@@ -1,3 +1,154 @@
+###  Публикация: 1835953   (251756) от 08.11.2025
+
+Prost - Believe Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_251756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lone Survivor (04:33)
+ 02. Believe Again (04:39)
+ 03. Comfort Zone (03:54)
+ 04. Never Let You Go (04:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F7C4790DD001C4CFAE60243E0716F66CAA659A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835737   (251728) от 07.11.2025
+
+The Who - Who Are You (2025) Box Set, 7XCD, Reissue, Remastered, 	Polydor, Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_251728.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Original Album
+CD2 - Glyn Johns Mix, Steven Wilson Mixes
+CD3 - Sessions & Demos
+CD4 - Shepperton 1977(   Читать дальше...   )Жанр: Classic RockПродолжительность: 07:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF867CEE25268562B0A46DF396E23EE82CD6199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835670   (251694) от 07.11.2025
+
+Jimi Hendrix (The Jimi Hendrix Experience) - Bold As Love Sessions (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exp
+02. Up From The Skies
+03. Spanish Castle Magic
+04. Wait Until Tomorrow(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 03:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA5082CF3EADEA4DAD3493EDABFD9027F138B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491799   (251303) от 11.05.2012
+
+King Crimson - The 21st Century Guide To King Crimson: Volume One (1969-1974) & Volume Two (1981-2003) 2 x 4 CD Box Sets / 2004, 2005 Discipline Global Mobile/ [FLAC|Lossless]<Progressive ro ...
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_251303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VROOOM VROOOM (5:04)
+02. Neurotica (3:40)
+03. Prism (Abridged) (2:54)
+04. One Time (6:53)
+05. Larks' Tongues In Aspic: Part IV (10:47)
+06. ProzaKc Blues (5:28)
+07. The ConstruKction Of Light (8:40)
+08. FraKctured (8:38)
+09. The World's My Oyster Soup Kitchen Floor Wax Museum (5:50)
+10. Sus-tayn-Z (ProjeKct Two) (7:51)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 05:11:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835451   (250834) от 06.11.2025
+
+Ashes And Diamonds - Are Forever (2025) [FLAC|Lossless|image + .cue] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250834.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashes and Diamonds - это трио состоящее из вокалиста и гитариста Daniel Ash (Bauhaus, Love & Rockets), барабанщика Bruce Smith (PiL, The Pop Group) и басиста Paul Denman (Sade, Sweetback), образовалось в конце 2010-х, но их деятельность была прервана пандемией, другими проектами и другими трудностями. Теперь же они анонсировали свой дебютный альбом Ashes and (   Читать дальше...   )01. Hollywood (3:58)
+02. Teenage Robots (3:02)
+03. On A Rocka (2:40)
+04. ON (2:40)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE353F70EEC8E56BD69A3C9B096E469592869D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617564   (250314) от 07.03.2023
 
 Bullet - No Mercy (1983) Reissued, 1997,	High Vaultage [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
@@ -6,7 +157,7 @@ Bullet - No Mercy (1983) Reissued, 1997,	High Vaultage [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250314.jpg" />
+  <img src="Z:/picture/004/save_picture_250314.jpg" />
 </div>
 
 
@@ -35,7 +186,7 @@ Cardinal Black - January Came Close (2022) Scene [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250301.jpg" />
+  <img src="Z:/picture/004/save_picture_250301.jpg" />
 </div>
 
 
@@ -64,7 +215,7 @@ Horojo Trio - Set The Record (2022) Scene [FLAC|Lossless|tracks] <Rock, Blues, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250269.jpg" />
+  <img src="Z:/picture/004/save_picture_250269.jpg" />
 </div>
 
 
@@ -93,7 +244,7 @@ Genesis - BBC Broadcasts (1978-1992) (2023) 5CD Box Set, Compilation, UMR/EMI [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250253.jpg" />
+  <img src="Z:/picture/004/save_picture_250253.jpg" />
 </div>
 
 
@@ -122,7 +273,7 @@ Myron Elkins - Factories, Farms & Amphetamines (2023) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250248.jpg" />
+  <img src="Z:/picture/004/save_picture_250248.jpg" />
 </div>
 
 
@@ -151,7 +302,7 @@ The Allman Brothers Band - Hittin’ the Note (2003) [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249995.jpg" />
+  <img src="Z:/picture/004/save_picture_249995.jpg" />
 </div>
 
 
@@ -180,7 +331,7 @@ VA - Classic & Easy Soft Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249978.jpg" />
+  <img src="Z:/picture/004/save_picture_249978.jpg" />
 </div>
 
 
@@ -206,7 +357,7 @@ VA - Glam Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249955.jpg" />
+  <img src="Z:/picture/004/save_picture_249955.jpg" />
 </div>
 
 
@@ -235,7 +386,7 @@ U2 - Songs Of Surrender (2023) 4 CD [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249609.jpg" />
+  <img src="Z:/picture/004/save_picture_249609.jpg" />
 </div>
 
 
@@ -264,7 +415,7 @@ U2 - Songs Of Surrender (2023) 4xCD [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249508.jpg" />
+  <img src="Z:/picture/004/save_picture_249508.jpg" />
 </div>
 
 
@@ -293,7 +444,7 @@ ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack  [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249453.jpg" />
+  <img src="Z:/picture/004/save_picture_249453.jpg" />
 </div>
 
 
@@ -322,7 +473,7 @@ The Steve Gibbons Band - 7 Альбомов (1976-1988) [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249394.jpg" />
+  <img src="Z:/picture/004/save_picture_249394.jpg" />
 </div>
 
 
@@ -351,7 +502,7 @@ VA - The Rock Collection: Rock Groups (1991) 2CD Compilation [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249349.jpg" />
+  <img src="Z:/picture/004/save_picture_249349.jpg" />
 </div>
 
 
@@ -380,7 +531,7 @@ VA - Rock Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246132.jpg" />
 </div>
 
 
@@ -409,7 +560,7 @@ David Knopfler - Songs Of Loss And Love (2020) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246040.jpg" />
+  <img src="Z:/picture/004/save_picture_246040.jpg" />
 </div>
 
 
@@ -438,7 +589,7 @@ The Steve Miller Band - Your Saving Grace (1969) Reissue, 1987, Capitol [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245939.jpg" />
+  <img src="Z:/picture/004/save_picture_245939.jpg" />
 </div>
 
 
@@ -467,7 +618,7 @@ City and Colour - The Love Still Held Me Near (2023) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245905.jpg" />
+  <img src="Z:/picture/004/save_picture_245905.jpg" />
 </div>
 
 
@@ -496,7 +647,7 @@ Project - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245863.jpg" />
+  <img src="Z:/picture/004/save_picture_245863.jpg" />
 </div>
 
 
@@ -525,7 +676,7 @@ The Zombies - Different Game (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245795.jpg" />
+  <img src="Z:/picture/004/save_picture_245795.jpg" />
 </div>
 
 
@@ -555,7 +706,7 @@ VA - The Rock Collection: Rock Heroes (1991) 2CD Compilation [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245757.jpg" />
+  <img src="Z:/picture/004/save_picture_245757.jpg" />
 </div>
 
 
@@ -584,7 +735,7 @@ VA - The Rock Collection: Rock The World (1992) 2CD Compilation [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245716.jpg" />
+  <img src="Z:/picture/004/save_picture_245716.jpg" />
 </div>
 
 
@@ -598,151 +749,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16861D9146C64B5A73AAE66D05F7E9531AA674E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566032   (245695) от 26.07.2022
-
-Porcupine Tree - Closure / Continuation (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harridan (8:08)
-02. Of The New Day (4:43)
-03. Rats Return (5:40)
-04. Dignity (8:22)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86754C739CCF04880A90171F458F47DA2EE7718
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608710   (245520) от 31.01.2023
-
-Los Quarks - Time Shifting (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Humans
-02. The Calling
-03. Don't Follow Me
-04. Run with the Thunder(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71ED7A4151D51C11B260D87BDBE8A8591FC04CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624044   (245417) от 04.04.2023
-
-Thirteen of everything - Time and Other Delusions (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Timeline [00:08:56]
-02. Alternate Life [00:11:58]
-03. Where the Time Goes [00:05:31]
-04. The Penultimate Flight of Armando the Pigeon [00:07:09](   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 01:08:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25EE6768A18A0C872842A5435E35642B6A91A3D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060844   (245372) от 08.10.2016
-
-Sedmina - Melita & Veno Dolenc (1980) Reissue,  2014,  Mellotron Records [FLAC|Lossless|tracks + .cue] <Folk Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sedmina - Pesem O Tanji (2:55)
-02. Sedmina - Jutro (2:36)
-03. Sedmina - Pesem (2:56)
-04. Sedmina - Magdalena (4:39)(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:38:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82204A80189259DA4480E4F1A28CF7109DF48AD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624052   (245370) от 04.04.2023
-
-Legacy Pilots - Helix (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Spirit (feat. John Mitchell & Marco Minnemann) [00:05:19]
-02. The Even Chance (feat. John Mitchell & Todd Sucherman) [00:05:20]
-03. A Sense of Hope (feat. Todd Sucherman & Lars Slowak) [00:05:03]
-04. A Little Differently (feat. Marco Minnemann & Jake Livgren) [00:04:31](   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:771B9DB4583CB5FF3600DC9E1DD4811F7C012C99
 ```
 
 https://mybot314.ru/tekegram_catalog/

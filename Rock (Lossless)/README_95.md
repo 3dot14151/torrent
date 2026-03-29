@@ -1,3 +1,148 @@
+###  Публикация: 1062060   (444454) от 12.10.2016
+
+John Fogerty - Revival (2007) [APE|Lossless|image + .cue] <Rock & Roll, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JDon't You Wish It Was True
+02. Gunslinger
+03. Creedence Song
+04. Broken Down Cowboy(   Читать дальше...   )Жанр: Rock & Roll, Country RockПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D582E6C003751DB6CFBE8CA3CB7C80688AAEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164048   (444112) от 08.09.2017
+
+Mike + The Mechanics - Living Years (1988) [FLAC|Lossless|image + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_444112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody's Perfect (4:48)
+02. The Living Years (5:32)
+03. Seeing Is Believing (3:13)
+04. Nobody Knows (4:23)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D4CA6A3CE09E581769830A736A5F8E24ACE8AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409696   (443339) от 18.09.2020
+
+Just Delayed - Just Delayed (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strained 03:50
+02. Locked Up 04:11
+03. A House On The Moon 04:42
+04. A Father's Regrets 05:00(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D5C96BF534BC9A9DBF21EB7773F0CF7059F6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409699   (443336) от 18.09.2020
+
+Poor Genetic Material - Here Now (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Now (04:44)
+02. Serendipity (03:43)
+03. The Waiting Game (06:59)
+04. Note from My Younger Self (07:00)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3922F7F2F3E4EA400F6E8D46F84A27EE81D0F78B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409707   (443335) от 18.09.2020
+
+Days Between Stations - Giants (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spark (16:54)
+02. Witness the End of the World (3:57)
+03. Another Day (9:38)
+04. Goes By Gravity (4:52)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9531F997D3738C10E8E0428A9163BF44E13C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409715   (443334) от 18.09.2020
 
 Aua - I Don't Want It Darker (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psychedelic Rock, Krautrock>
@@ -6,7 +151,7 @@ Aua - I Don't Want It Darker (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Psyche
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443334.jpg" />
+  <img src="Z:/picture/008/save_picture_443334.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Flying Colors - Third Stage: Live In London (2020) [FLAC|Lossless|WEB-DL|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443274.jpg" />
+  <img src="Z:/picture/008/save_picture_443274.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Almendra - En vivo en el Teatro del Globo (2004) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442668.jpg" />
+  <img src="Z:/picture/008/save_picture_442668.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Cream - Wheels Of Fire (1968) Originally released 2CD /1986, Polydor/[FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442583.jpg" />
+  <img src="Z:/picture/008/save_picture_442583.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ ZZ Top - Afterburner (1985) SHM-CD, 2013, Warner Music [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442460.jpg" />
+  <img src="Z:/picture/008/save_picture_442460.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ ZZ Top - Eliminator (1983) SHM-CD /2013, Warner Music/ [FLAC|Lossless]<Blues Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442452.jpg" />
+  <img src="Z:/picture/008/save_picture_442452.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Mildlife - Automatic (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440883.jpg" />
+  <img src="Z:/picture/008/save_picture_440883.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Nick Mason's Saucerful of Secrets - Live at the Roundhouse (2020) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440733.jpg" />
+  <img src="Z:/picture/008/save_picture_440733.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Ego On The Rocks - Acid In Wounderland (1979) Special Limited Expanded Edition /
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440672.jpg" />
+  <img src="Z:/picture/008/save_picture_440672.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Andrew W.K. & B-Roc - DAMN! The Mixtape, Vol. 1 (2009) Limited Edition, Mixtape 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440028.jpg" />
+  <img src="Z:/picture/008/save_picture_440028.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Gravy Train - 5 albums, 10 CD (1970-2006) [FLAC|Lossless|image + .cue] <Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439820.jpg" />
+  <img src="Z:/picture/008/save_picture_439820.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - The Best Of 70's Vol.2 (unknown year) Unofficial Release [FLAC|Lossless|ima
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439477.jpg" />
+  <img src="Z:/picture/008/save_picture_439477.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Billy Gibbons (Zz Top) - The Big Bad Blues (2018) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439466.jpg" />
+  <img src="Z:/picture/008/save_picture_439466.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Chris Norman - There And Back (2013) [FLAC|image +.cue]<Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439443.jpg" />
+  <img src="Z:/picture/008/save_picture_439443.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Van Der Graaf Generator - Do Not Disturb (2016) [FLAC|Lossless|image + .cue] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439256.jpg" />
+  <img src="Z:/picture/008/save_picture_439256.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Beth Hart - Fire On The Floor (2016) [FLAC|Lossless|image + .cue] <Blues, Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439251.jpg" />
+  <img src="Z:/picture/008/save_picture_439251.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Fleetwood Mac - Mirage (1982) 3CD + 1LP + DVD Deluxe Edition Box Set, 2016, Rhin
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439246.jpg" />
+  <img src="Z:/picture/008/save_picture_439246.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Neal Morse - Sola Gratia (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438432.jpg" />
+  <img src="Z:/picture/008/save_picture_438432.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Clepsydra - 3654 Days (2014) 4CD Boxset, Remaster [FLAC|image+.cue]<Neo-Progress
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438405.jpg" />
+  <img src="Z:/picture/008/save_picture_438405.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ All Time Low - Future Hearts (2015) Deluxe Edition [FLAC|tracks + .cue]<Pop-Punk
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438325.jpg" />
+  <img src="Z:/picture/008/save_picture_438325.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Caspian - Tertia (2009) [FLAC|Lossless|tracks + .cue] <Rock, Post Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438035.jpg" />
+  <img src="Z:/picture/008/save_picture_438035.jpg" />
 </div>
 
 
@@ -600,152 +745,6 @@ Caspian - Tertia (2009) [FLAC|Lossless|tracks + .cue] <Rock, Post Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3364F45D0825A0EE23F80973B30B751FFBD883DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248949   (438015) от 22.09.2018
-
-Mark Rowen - Radiance (2018) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Move [00:01:47]
-02. My Shadow Walks Alone [00:05:15]
-03. Feel Like Letting Go [00:05:37]
-04. On The Blue Horizon [00:05:01](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B63451328CB953E38639DF363FD947FC9FDCC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323382   (437691) от 03.09.2019
-
-Самое большое простое число - Наверное, точно (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Северное сияние (2:16)
- 02. В мире придурков (4:27)
- 03. Злой (3:22)
- 04. Часы (3:44)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:254E877235CAB3F54F397131DBEE33DF0146F271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707460   (437596) от 05.10.2013
-
-Yes - Close To The Edge (1972) Hybrid SACD /2012, Audio Fidelity/ [FLAC|Lossless]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close To The Edge (18:47)
-02. And You And I (10:11)
-03. Siberian Khatru (8:55)Жанр: Progressive RockПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBAB8EF1F7EA653C96FDDF715377E81ACCB7BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 423154   (437561) от 20.09.2020
-
-Bob Seger - 23 Albums (1969 - 2018) 36 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Classic Rock>
-
->>След.
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Боб Сигер (англ. Bob Seger, полное имя Роберт Кларк Сигер - Robert Clark Seger, 6 мая 1945г.) — американский рок-музыкант и автор песен.
-Родился 6 мая 1945 г. Начал карьеру в музыке в 1961 г. После нескольких лет локальной известности в родном городе Детройт, в 1968-м Сигер собрал команду "The Bob Seger System", и, подписав контракт с "Capitol Records", (   Читать дальше...   )Список альбомов:
-1969 - Ramblin' Gamblin' Man
-1970 - Mongrel
-1972  - Smokin' O.P.'sЖанр: Classic RockПродолжительность: 28:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D207B89BC2CCB39DBB5264BE53350EEBA5F0B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 829008   (437423) от 07.10.2014
-
-David Knopfler - 9 альбомов (1983-2006) [FLAC, APE|Lossless|tracks + .cue, image + .cue] <Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание:
-Нопфлер вырос в Ньюкасле-апон-Тайн, где учился в Госфортской Средней Школе. Сын архитектора, переехавшего в Великобританию ещё до рождения детей, Дэвид рос в Ньюкасле-на-Тайне. В возрасте 11 лет он овладел гитарой, фортепиано и барабанной установкой и в 14 лет уже исполнял свои песни в фолк-клубах. После учёбы в Бристольском политехническом институте он (   Читать дальше...   )01. Steel Wheels (3:46)
-02. Fire Down Below (4:37)
-03. Sophie's Songs (5:45)
-04. Somebody Kind (4:39)(   Читать дальше...   )Жанр: Rock, Folk-rockПродолжительность: 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96E0E93B8825033EAE8AE623A36C0EB3709FD77
 ```
 
 https://mybot314.ru/tekegram_catalog/

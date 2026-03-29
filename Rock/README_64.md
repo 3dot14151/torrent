@@ -1,3 +1,32 @@
+###  Публикация: 1417620   (355900) от 21.10.2020
+
+Ricochet - Pieces of the Ricochet (2020) [MP3|320 Kbps] <Progressive Rock, Heavy Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear (10:27)
+ 02. Credo (06:59)
+ 03. The Other Side (12:36)
+ 04. Again (06:59)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EC186CEFD004B3119110B40840A10A806B534FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417701   (355894) от 21.10.2020
 
 Lachy Doley - Double Figures (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
@@ -6,7 +35,7 @@ Lachy Doley - Double Figures (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355894.jpg" />
+  <img src="Z:/picture/008/save_picture_355894.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ The Rolling Stones - Grrr! (2012) [MP3|~190 кб/с (V2)]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354858.jpg" />
+  <img src="Z:/picture/008/save_picture_354858.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ Marcus Hook Roll Band - Tales Of Old Grand-Daddy (1973) Reissue, 1994, Albert Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353965.jpg" />
+  <img src="Z:/picture/008/save_picture_353965.jpg" />
 </div>
 
 
@@ -90,7 +119,7 @@ Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psyc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351787.jpg" />
+  <img src="Z:/picture/008/save_picture_351787.jpg" />
 </div>
 
 
@@ -119,7 +148,7 @@ Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351693.jpg" />
+  <img src="Z:/picture/008/save_picture_351693.jpg" />
 </div>
 
 
@@ -148,7 +177,7 @@ High Grind - The Loud Bong Chronicles (2022) [MP3|320 Kbps] <Heavy Psych, Stoner
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350402.jpg" />
+  <img src="Z:/picture/008/save_picture_350402.jpg" />
 </div>
 
 
@@ -177,7 +206,7 @@ Adventure - Tales Of Belle Part 2 - Unveiled By Fire (2022) [MP3|320 Kbps] <Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350394.jpg" />
+  <img src="Z:/picture/008/save_picture_350394.jpg" />
 </div>
 
 
@@ -207,7 +236,7 @@ Mobius - Le Ne Merd Irni (2022) [MP3|320 Kbps] <Progressive Rock, Art Rock, Fema
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350392.jpg" />
+  <img src="Z:/picture/008/save_picture_350392.jpg" />
 </div>
 
 
@@ -236,7 +265,7 @@ Atan - Ugly Monster (2022) [MP3|320 Kbps] <Progressive Rock, Djent, Prog-Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350305.jpg" />
+  <img src="Z:/picture/008/save_picture_350305.jpg" />
 </div>
 
 
@@ -265,7 +294,7 @@ Blond Viper - Crash (2021) [MP3|320 Kbps] <Classic Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350294.jpg" />
+  <img src="Z:/picture/008/save_picture_350294.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ Roger Taylor - 5 albums (1981-2013) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_350232.jpg" />
+  <img src="Z:/picture/005/save_picture_350232.jpg" />
 </div>
 
 
@@ -329,7 +358,7 @@ Marillion - Holidays In Eden (1991) 3CD, Deluxe Edition, 2022 [MP3|320 Kbps] <Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350165.jpg" />
+  <img src="Z:/picture/008/save_picture_350165.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ Shanghai - Shanghai (1982) LP [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350156.jpg" />
+  <img src="Z:/picture/008/save_picture_350156.jpg" />
 </div>
 
 
@@ -387,7 +416,7 @@ Grydgaard - Secrets from the Palace (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350070.jpg" />
+  <img src="Z:/picture/008/save_picture_350070.jpg" />
 </div>
 
 
@@ -416,7 +445,7 @@ Grace From Gadgets - Grace From Gadgets (2022) [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350062.jpg" />
+  <img src="Z:/picture/008/save_picture_350062.jpg" />
 </div>
 
 
@@ -445,7 +474,7 @@ Millenium - Tales from Imaginary Movies (2022) [MP3|320 Kbps] <Progressive Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350038.jpg" />
+  <img src="Z:/picture/008/save_picture_350038.jpg" />
 </div>
 
 
@@ -474,7 +503,7 @@ On-The-Go - 4 альбома + 6 синглов + 3 EP`s (2008-2016) [MP3|320 к
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349722.jpg" />
+  <img src="Z:/picture/008/save_picture_349722.jpg" />
 </div>
 
 
@@ -503,7 +532,7 @@ Kadavar - The Isolation Tapes (2020) [MP3|320 Kbps] <Progressive Rock, Psychedel
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349287.jpg" />
+  <img src="Z:/picture/008/save_picture_349287.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ Deep Purple - Classic Songs Live In Concert (2017) [MP3|320 Kbps] <Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348913.jpg" />
+  <img src="Z:/picture/008/save_picture_348913.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ Queen - Forever (2014) 2 CD, Deluxe Edition [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348887.jpg" />
+  <img src="Z:/picture/008/save_picture_348887.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ Mutautu - 2 Albums (2019-2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Bluesy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348166.jpg" />
+  <img src="Z:/picture/008/save_picture_348166.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ Stratovarius - Fright Night (1989) Remastered, 1994, Victor [OGG Vorbis|484 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348165.jpg" />
+  <img src="Z:/picture/008/save_picture_348165.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ Stratovarius - Dreamspace (1994) Remastered, 1994, T&T [OGG Vorbis|484 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348164.jpg" />
+  <img src="Z:/picture/008/save_picture_348164.jpg" />
 </div>
 
 
@@ -677,7 +706,7 @@ Stratovarius - Enigma: Intermission II (2018) [OGG Vorbis|484 Kbps] <Rock, Power
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348162.jpg" />
+  <img src="Z:/picture/008/save_picture_348162.jpg" />
 </div>
 
 
@@ -706,7 +735,7 @@ Distant Mantra - Solitude Republic (2022) [MP3|320 Kbps] <Rock, Prog-Related>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348160.jpg" />
+  <img src="Z:/picture/008/save_picture_348160.jpg" />
 </div>
 
 
@@ -720,35 +749,6 @@ Distant Mantra - Solitude Republic (2022) [MP3|320 Kbps] <Rock, Prog-Related>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83252CC79D9ADEC71DCFF6DB72BADC1551DB207B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073224   (347662) от 15.11.2016
-
-Freedom to Glide - 3 альбома (2012-2016) [MP3|320 Kbps] <Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind And Gales - Rain (Part 3) 04:43
-02. Starfall 04:14
-03. Zero 02:05
-04. Repose 02:43(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 02:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F11EE60DA1B14508958E17820D5E44D50FF6E92
 ```
 
 https://mybot314.ru/tekegram_catalog/

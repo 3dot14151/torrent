@@ -6,7 +6,7 @@ Soulseller - Witching Hour (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106273.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Powerwolf - Wake Up The Wicked (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106232.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Animal Джаz - Ян (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106217.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Stratovarius - Heroes (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Sy
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106184.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ghost - Rite Here Rite Now (2024) Original Motion Picture Soundtrack [FLAC 24/48
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106178.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nautilus - Pacific Voyage (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106173.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ian BassBwoy Boyce - Evolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106154.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Noel Evans - Abandoned Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106153.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Kitty Liv - Easy Tiger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106152.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mick Kolassa - All Kinds of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106151.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Schwarzer Engel - Höhere Gewalt (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106149.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Ronan Jade - Midnight Serenade (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106146.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ CAGMO - Симфония Король и Шут (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106128.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Dmitry Spirin (ex-Тараканы) - Чем кончается Родина (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106106.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Blur - Live at Wembley Stadium (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106081.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Art Sherrod Jr - Feels So Good (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105996.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Marcus Anderson - The Vibe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105986.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Empire Of The Sun - Ask That God (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <E
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105962.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Train - Live At Royal Albert Hall (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105922.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Villano Antillano - Miss Misogyny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Po
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105921.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Gun - Hombres (2024) Damaged Edition [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105916.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Jeff Coffin - Only the Horizon (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105914.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Erin Stevenson - Cover Girl Uncovered (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105912.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Adrian Iaies - Cada mañana te trae (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105908.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Armin Van Buuren - Live at Tomorrowland Winter 2024 (Mainstage) [Highlights] (20
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105905.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Connor Sablan - Hot Pot (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105900.jpg" />
 </div>
 
 

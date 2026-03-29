@@ -1,3 +1,62 @@
+###  Публикация: 1621832   (239685) от 26.03.2023
+
+Khymera - Hold Your Ground (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Wait For Love (3:20)
+02. Firestarter (3:40)
+03. Hear Me Calling (3:20)
+04. Sail On Forever (3:46)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412F2656E74A51EB5394DBF25A38177798C82202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635701   (239649) от 26.05.2023
+
+Alcatrazz - Take No Prisoners (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alcatrazz полон решимости наверстать упущенное, рвясь вперед с шестым студийным альбом группы Take No Prisoners. Альбом состоит из десяти потрясающих харизматичных треков, каждый из которых представляет собой уникальное сочетание классического американского рока с полноценным хард-роковым настроем британского металла.
+Take No Prisoners является громкой и гордой классикой, (   Читать дальше...   )01. Little Viper (4:39)
+02. Dont Get Mad Get Even (3:57)
+03. Battlelines (3:58)
+04. Strangers (5:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB6DC7F8C377E5E85FF32D8D59DDBEBB010F8B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1636053   (239411) от 28.05.2023
 
 Koritni - Long Overdue (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +65,7 @@ Koritni - Long Overdue (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239411.jpg" />
+  <img src="Z:/picture/004/save_picture_239411.jpg" />
 </div>
 
 
@@ -35,7 +94,7 @@ Hotwire - The Story so Far 1993 - 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239405.jpg" />
+  <img src="Z:/picture/004/save_picture_239405.jpg" />
 </div>
 
 
@@ -64,7 +123,7 @@ Stillskin - Through Time (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239390.jpg" />
+  <img src="Z:/picture/004/save_picture_239390.jpg" />
 </div>
 
 
@@ -93,7 +152,7 @@ Kira Mac - Chaos Calling (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239375.jpg" />
+  <img src="Z:/picture/004/save_picture_239375.jpg" />
 </div>
 
 
@@ -122,7 +181,7 @@ Mike Tramp - Songs Of White Lion (2023) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239291.jpg" />
+  <img src="Z:/picture/004/save_picture_239291.jpg" />
 </div>
 
 
@@ -151,7 +210,7 @@ Ocean Dark - Hope & Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239073.jpg" />
+  <img src="Z:/picture/004/save_picture_239073.jpg" />
 </div>
 
 
@@ -180,7 +239,7 @@ Mercy Shot - Brace For Impact! (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' He
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239047.jpg" />
+  <img src="Z:/picture/004/save_picture_239047.jpg" />
 </div>
 
 
@@ -209,7 +268,7 @@ Twilight Road - Trapped (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239011.jpg" />
+  <img src="Z:/picture/004/save_picture_239011.jpg" />
 </div>
 
 
@@ -238,7 +297,7 @@ Marc Bolan & T. Rex - Star King (2021) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238975.jpg" />
+  <img src="Z:/picture/005/save_picture_238975.jpg" />
 </div>
 
 
@@ -267,7 +326,7 @@ Roxy Blue - Want Some More (1992) Reissue, Remastered, 2013, FnA Records [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238904.jpg" />
+  <img src="Z:/picture/005/save_picture_238904.jpg" />
 </div>
 
 
@@ -296,7 +355,7 @@ Inluzt - Echoes Of Revolution (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238851.jpg" />
+  <img src="Z:/picture/005/save_picture_238851.jpg" />
 </div>
 
 
@@ -325,7 +384,7 @@ Rival Sons - Darkfighter (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238758.jpg" />
+  <img src="Z:/picture/004/save_picture_238758.jpg" />
 </div>
 
 
@@ -354,7 +413,7 @@ Skreen 6 - Rockin' Head (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238692.jpg" />
 </div>
 
 
@@ -383,7 +442,7 @@ Forge the Sun - Heart of the Sunrise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238684.jpg" />
 </div>
 
 
@@ -412,7 +471,7 @@ Evolution Eden - Sonic Cinema (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238683.jpg" />
+  <img src="Z:/picture/005/save_picture_238683.jpg" />
 </div>
 
 
@@ -441,7 +500,7 @@ Sinshrift - Sinshrift (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238658.jpg" />
 </div>
 
 
@@ -470,7 +529,7 @@ Sick Dogs in Trouble - Dead Lovers (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238638.jpg" />
 </div>
 
 
@@ -499,7 +558,7 @@ Skarnet - Fængslet i det fri (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238581.jpg" />
 </div>
 
 
@@ -528,7 +587,7 @@ Electric Mob - 2 Make U Cry & Dance (2023) Japanese Edition [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238480.jpg" />
+  <img src="Z:/picture/005/save_picture_238480.jpg" />
 </div>
 
 
@@ -557,7 +616,7 @@ Them Damn Kings - Rise Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238368.jpg" />
+  <img src="Z:/picture/005/save_picture_238368.jpg" />
 </div>
 
 
@@ -586,7 +645,7 @@ Rule of Two - Pharaohmoans (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Blu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238337.jpg" />
+  <img src="Z:/picture/005/save_picture_238337.jpg" />
 </div>
 
 
@@ -615,7 +674,7 @@ Witche’s Brew - Chronicles of Electric Sorcery (2022) [FLAC|Lossless|WEB-DL|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238050.jpg" />
+  <img src="Z:/picture/004/save_picture_238050.jpg" />
 </div>
 
 
@@ -644,7 +703,7 @@ KrazarK - Fireflake (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238008.jpg" />
+  <img src="Z:/picture/004/save_picture_238008.jpg" />
 </div>
 
 
@@ -673,7 +732,7 @@ Hazeshuttle - Hazeshuttle (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Sto
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237989.jpg" />
+  <img src="Z:/picture/004/save_picture_237989.jpg" />
 </div>
 
 
@@ -687,64 +746,6 @@ Hazeshuttle - Hazeshuttle (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Sto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A93C3EBD0FE14EA798C01DD53663A930B9BB6CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581929   (237974) от 07.10.2022
-
-Four By Fate - Relentless (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Times Are Hard For Lovers
-02. Moonshine
-03. Hangin' On
-04. Levee Breach(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0054B50951F2D0B5113C8B990325B2293D4BF5E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624733   (237968) от 08.04.2023
-
-Megaride - Mo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zio Stone [00:04:57]
-02. A Piedi Nudi [00:03:00]
-03. Must Ovèr [00:04:07]
-04. Rosso Marte [00:06:18](   Читать дальше...   )Жанр: Heavy Rock, Stoner, GrungeПродолжительность: 00:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F70E21D680851F22C551DEA55F6EB3F5D585AB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

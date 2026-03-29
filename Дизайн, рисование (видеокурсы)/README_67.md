@@ -1,3 +1,31 @@
+###  Публикация: 1604617   (204047) от 14.01.2023
+
+Udemy, Mrawan Hussain | BLENDER: Learn how to create utility knife from A to Z (2023) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_204047.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе мы узнаем, как создать универсальный нож от начала до конца с помощью Blender 3.3.
+В этом курсе мы сосредоточимся на моделировании и узнаем, как создавать твердотельные модели, используя простые техники.
+После раздела моделирования мы узнаем, как создать простые красивые реалистичные материалы для ножа, я не собираюсь делать UV развёртку модели, но я (   Читать дальше...   )Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 08:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C90ECD9DC899EEC3DB3EF74DEBE494E83A451E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604857   (204017) от 15.01.2023
 
 Udemy, Victory 3D, Mieszko Lacinski | Create a Prop for VFX Pipeline with Maya, ZBrush, Substance (2018) PCRec [EN / EN Sub]
@@ -6,7 +34,7 @@ Udemy, Victory 3D, Mieszko Lacinski | Create a Prop for VFX Pipeline with Maya, 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204017.jpg" />
+  <img src="Z:/picture/004/save_picture_204017.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Kimvoronin, Ким Воронин | PowerPoint Ниндзя (2022) WEB-DL [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204007.jpg" />
+  <img src="Z:/picture/004/save_picture_204007.jpg" />
 </div>
 
 
@@ -61,7 +89,7 @@ School of Motion, Nol Honig | After Effects Kickstart (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204005.jpg" />
+  <img src="Z:/picture/004/save_picture_204005.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203745.jpg" />
+  <img src="Z:/picture/004/save_picture_203745.jpg" />
 </div>
 
 
@@ -116,7 +144,7 @@ Pro-Infografika, Ариадна Юсупова, Мурад Юсупов | Про
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203720.jpg" />
+  <img src="Z:/picture/004/save_picture_203720.jpg" />
 </div>
 
 
@@ -145,7 +173,7 @@ Antipin-STUDIO, Антипин Виталий | Основа основ (про�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203687.jpg" />
+  <img src="Z:/picture/004/save_picture_203687.jpg" />
 </div>
 
 
@@ -173,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203685.jpg" />
+  <img src="Z:/picture/004/save_picture_203685.jpg" />
 </div>
 
 
@@ -202,7 +230,7 @@ Teletype, Роман Горелик | Бандл от Науки Дизайна.
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203681.jpg" />
+  <img src="Z:/picture/004/save_picture_203681.jpg" />
 </div>
 
 
@@ -231,7 +259,7 @@ Rebelway, Saber Jlassi | Рендеринг в Karma в Houdini 19 (2021) WEB-DL
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203655.jpg" />
+  <img src="Z:/picture/004/save_picture_203655.jpg" />
 </div>
 
 
@@ -257,7 +285,7 @@ Breezzly, Анастасия Свеженцева | Создание экскл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203650.jpg" />
+  <img src="Z:/picture/004/save_picture_203650.jpg" />
 </div>
 
 
@@ -284,7 +312,7 @@ Bazanova Art, Ольга Базанова | Гиперреализм (2022) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203581.jpg" />
+  <img src="Z:/picture/004/save_picture_203581.jpg" />
 </div>
 
 
@@ -313,7 +341,7 @@ FXPHD, Liam Whitehouse | Realtime Cinema Environments in Unreal Engine (2021) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203560.jpg" />
+  <img src="Z:/picture/004/save_picture_203560.jpg" />
 </div>
 
 
@@ -340,7 +368,7 @@ Kalacheva School, Ирина Климова и др. | Все онлайн ку�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203521.jpg" />
+  <img src="Z:/picture/004/save_picture_203521.jpg" />
 </div>
 
 
@@ -369,7 +397,7 @@ Kalacheva School, Татьяна Головко | Анималистика в Di
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203495.jpg" />
+  <img src="Z:/picture/004/save_picture_203495.jpg" />
 </div>
 
 
@@ -398,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203168.jpg" />
+  <img src="Z:/picture/004/save_picture_203168.jpg" />
 </div>
 
 
@@ -427,7 +455,7 @@ Waqas Qazi | Master DaVinci Resolve NODE TREE. Live Training Session 2 (2020) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203156.jpg" />
+  <img src="Z:/picture/004/save_picture_203156.jpg" />
 </div>
 
 
@@ -454,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203135.jpg" />
+  <img src="Z:/picture/004/save_picture_203135.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203121.jpg" />
+  <img src="Z:/picture/004/save_picture_203121.jpg" />
 </div>
 
 
@@ -512,7 +540,7 @@ Study Kvo, Саня Кво | Курс по веб-дизайну 3.0 (2019) PCRe
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202740.jpg" />
+  <img src="Z:/picture/004/save_picture_202740.jpg" />
 </div>
 
 
@@ -541,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201656.jpg" />
+  <img src="Z:/picture/005/save_picture_201656.jpg" />
 </div>
 
 
@@ -569,7 +597,7 @@ MographPlus, Камиль Хезри | The Ultimate Introduction to Arnold 6 for
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201633.jpg" />
+  <img src="Z:/picture/005/save_picture_201633.jpg" />
 </div>
 
 
@@ -597,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201630.jpg" />
+  <img src="Z:/picture/005/save_picture_201630.jpg" />
 </div>
 
 
@@ -625,7 +653,7 @@ Rebelway, Saber Jlassi, Igor Zanic | Ocean rendering using Redshift (2020) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201620.jpg" />
+  <img src="Z:/picture/005/save_picture_201620.jpg" />
 </div>
 
 
@@ -653,7 +681,7 @@ Rebelway, Saber Jlassi | Abstract FX in Houdini Using Karma (2021) WEB-DL [EN, R
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201596.jpg" />
+  <img src="Z:/picture/005/save_picture_201596.jpg" />
 </div>
 
 
@@ -681,7 +709,7 @@ Nexttut Education Pvt.Ltd., Shahzad Ahmad | Houdini for Absolute Beginners (2022
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201541.jpg" />
+  <img src="Z:/picture/005/save_picture_201541.jpg" />
 </div>
 
 
@@ -695,35 +723,6 @@ Nexttut Education Pvt.Ltd., Shahzad Ahmad | Houdini for Absolute Beginners (2022
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6A53BDBDC3E6854BC4ABD7DB4A0A20B9AAEECBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618023   (201508) от 09.03.2023
-
-Kalacheva School, Вера Соколова | Новый английский курсив (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201508.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Новый английский курсив» — самый свежий онлайн-курс Веры Соколовой для всех, кто хочет немного «похулиганить» в каллиграфическом смысле слова
-
-Мой прежний курс «Английский курсив» был максимально классическим, не обладал развлекательным моментом и, увы, безнадёжно устарел.
-(   Читать дальше...   )Производство: Kalacheva SchoolЖанр: Рисование, КаллиграфияЯзык озвучки: РусскийПродолжительность: 03:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7BAE2A900154B76FE04187BF2B71BCD2727119
 ```
 
 https://mybot314.ru/tekegram_catalog/

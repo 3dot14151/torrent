@@ -1,3 +1,81 @@
+###  Публикация: 1303706   (800691) от 22.05.2020
+
+Observation (2019) [Ru/Multi] (1.16) Repack Other s
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Observation — это научно-фантастический триллер, в котором вам предстоит взять на себя роль системы искусственного интеллекта S.A.M. на космической станции и раскрыть тайну событий, произошедших с доктором Эммой Фишер и её командой. Играя за S.A.M., вы будете использовать системы управления станцией, камеры и инструменты, чтобы помочь Эмме понять, что происходит (   Читать дальше...   )Тип издания: RepackРазработчик: No CodeЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEFDAB3E492A1D64DB14F7AA5F97130E2CAFF32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121553   (800160) от 02.04.2017
+
+Dreamfall Chapters (2014) [Multi] (5.4.1.1) License PROPHET [Complete]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamfall Chapters - это сюжетно-ориентированная эпизодическая адвенчура о выборе и последствиях, сновидениях и реальности, магии и науке, хаосе и порядке, а также сломленных героях, действия которых могут изменить ход истории во всех мирах. Действие игры разворачивается в двух параллельных мирах.Первый выдержан в стиле мрачного футуристического киберпанка, другой (   Читать дальше...   )Тип издания: LicenseРазработчик: Red Thread Games, Blink StudiosЖанр: Приключенческие игры, ИндиЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC78958CA037B7805808AAE7721C9672A8C7454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118729   (800021) от 02.04.2017
+
+Nancy Drew: The Silent Spy / Нэнси Дрю: Безмолвный шпион (2013) [Ru] (1.0) Unofficial ImMad
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_800021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло почти десять лет с тех пор, как агент Кейт Дрю, мать главной героини, отправилась на задание по уничтожению биохимического оружия в Шотландии. Все прошло успешно, но Кейт попала в аварию после этого и погибла… по крайней мере, так сообщили ее дочери. Ныне история повторяется и уже Нэнси Дрю берется за раскрытие спящей ячейки и тайн прошлого.Тип издания: UnofficialРазработчик: Her InteractiveЖанр: Квест, Логическая, Я ищуЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7381E28F7B85B69A36C4AF71025B709A52D5299
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506440   (799871) от 31.10.2021
 
 Grotto (2021) [En] (1.1.2) License GOG
@@ -6,7 +84,7 @@ Grotto (2021) [En] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799871.jpg" />
+  <img src="Z:/picture/008/save_picture_799871.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Radio Station (2021) [Multi] (1.01) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799825.jpg" />
+  <img src="Z:/picture/008/save_picture_799825.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ I Am Fish (2021) [Ru/Multi] (1.1.1) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799811.jpg" />
+  <img src="Z:/picture/008/save_picture_799811.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Memoranda (2017) [En] (1.1.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798980.jpg" />
+  <img src="Z:/picture/008/save_picture_798980.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Infernium (2018) [Ru/Multi] (1.0upd1) Repack SpaceX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798947.jpg" />
+  <img src="Z:/picture/008/save_picture_798947.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Rugrats Go Wild (2003) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798616.jpg" />
+  <img src="Z:/picture/008/save_picture_798616.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Growbot (2021) [Ru/Multi] (1.0.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798599.jpg" />
+  <img src="Z:/picture/008/save_picture_798599.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (7639057) License FAiRLIGHT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798549.jpg" />
+  <img src="Z:/picture/008/save_picture_798549.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ FATAL FRAME / PROJECT ZERO: Maiden of Black Water (2021) [Multi] (1.0.0.1.761591
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798513.jpg" />
+  <img src="Z:/picture/008/save_picture_798513.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Happy Game (2021) [Ru/Multi] (1.0.3) License GOG [Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798508.jpg" />
+  <img src="Z:/picture/008/save_picture_798508.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ In Silence (2021) [Ru/Multi] (1.01) License DARKSiDERS [Winterland Update]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798226.jpg" />
+  <img src="Z:/picture/008/save_picture_798226.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Gazmatera 2 America's Least Wanted (2021) [Ru/En] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798212.jpg" />
+  <img src="Z:/picture/008/save_picture_798212.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Escape Simulator (2021) [Multi] (1.0.18250r) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798208.jpg" />
+  <img src="Z:/picture/008/save_picture_798208.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Escape from the Village (2021) [Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798064.jpg" />
+  <img src="Z:/picture/008/save_picture_798064.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Bloodshore (2021) [Ru/Multi] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798034.jpg" />
+  <img src="Z:/picture/008/save_picture_798034.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ InnerSpace (2018) [Ru/Multi] (1.0.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797853.jpg" />
+  <img src="Z:/picture/008/save_picture_797853.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Tormentum: Dark Sorrow (2015) [Ru/Multi] (1.4.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797108.jpg" />
+  <img src="Z:/picture/008/save_picture_797108.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Dead Synchronicity: Tomorrow Comes Today (2015) [Ru/Multi] (1.0.10) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797088.jpg" />
+  <img src="Z:/picture/008/save_picture_797088.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Midnight: Submersion - Nightmare Horror Story (2021) [En] (2020.3.16.302446) Lic
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796737.jpg" />
+  <img src="Z:/picture/008/save_picture_796737.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Wailing Heights (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796611.jpg" />
+  <img src="Z:/picture/008/save_picture_796611.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795816.jpg" />
+  <img src="Z:/picture/008/save_picture_795816.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Neverending Nightmares (2014) [Ru/Multi] (3.3.22469) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795372.jpg" />
+  <img src="Z:/picture/008/save_picture_795372.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Among Trees (2021) [En] (0.5.27) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795305.jpg" />
+  <img src="Z:/picture/008/save_picture_795305.jpg" />
 </div>
 
 
@@ -589,85 +667,6 @@ Among Trees - это небольшая яркая игра-песочница �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AFA88311C890F80F0F7C3CAD2E0E6C89595700E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011972   (795178) от 29.04.2016
-
-The Detail: Episode 1-3 (2015-2016) [En] (3.0.1) License PLAZA
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795178.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Detail – криминальный интерактивный приключенческий нуарный детектив, события которого разворачиваются в современном американском городке. Это город, в котором все завит от случая, а в хороший день даже может восторжествовать справедливость. Игра расскажет о преступности и борьбе с ней с двух разных точек зрения – доброго полицейского и профессионального уголовника. (   Читать дальше...   )Тип издания: LicenseРазработчик: Rival GamesЖанр: AdventureЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B52F5D726A651AD64687CE63DCB12562EFBA3CAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012149   (795155) от 29.04.2016
-
-Grizzly Valley (2016) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grizzly Valley - реалистичный симулятор выживания в заснеженной канадской глубинке, куда вы поехали навестить свою сестру!
-Перед отправкой вам предстоит собрать необходимые для путешествия вещи, от которых будет зависеть ваша жизнь, когда вы окажетесь в не очень комфортных условиях.Тип издания: RepackРазработчик: KiddyЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68731357633D718F4F386AF76FAE79A12646CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509296   (794680) от 12.11.2021
-
-890B (2021) [Multi] (1.2.3) License DARKSiDERS
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794680.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем Земля стала непригодной для жизни из-за сильного загрязнения, и теперь вам предстоит найти решение для спасения человечества. Возьмите на себя роль Ноя, ученого, которому поручено найти новую планету с условиями, аналогичными нашим. Развивайте исследовательскую лабораторию, находите полезные предметы, решайте разнообразные головоломки и принимайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Nerd Games, Artax GamesЖанр: КвестЯзык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99646500B4FC231F9A3DDA109F855B42F25E543C
 ```
 
 https://mybot314.ru/tekegram_catalog/

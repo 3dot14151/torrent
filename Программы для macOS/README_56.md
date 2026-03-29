@@ -1,3 +1,141 @@
+###  Публикация: 1019724   (747969) от 24.05.2016
+
+SILKYPIX Developer Studio Pro 7.0.5.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747969.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro  — мощная программа, которая предназначена для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
+
+ С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 мая 2016Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7627B8685D9CD6FA0E89DCB7FBBF840083DE7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019807   (747579) от 24.05.2016
+
+Xcode 7.3.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xcode — это пакет инструментов для разработки приложений под  Mac, iPhone, iPad, Apple TV и Apple Watch разработанный Apple. Xcode включает в себя Xcode IDE,  Swift  и Objective-C компиляторы, инструменты анализа, симуляторы, последние SDK  и сотни других мощных функций.
+
+Xcode IDE предоставляет вам все, что нужно: от профессиональных редакторов, с функцией автозавершения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 мая 2016Разработчик: Apple IncПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE97D0A3ED8025F5B2FD9908A20EB75D85AFCB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206662   (747175) от 03.06.2010
+
+onOne Software Plug-In Suite 5.1 [Eng]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_747175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Plug-In Suite 5.1 включает в себя 6 Photoshop плагинов для максимальной помощи Photoshop. Genuine Fractals 6.0.6 Professional & Standard Editions для высококачественного увеличения, PhotoTools 2.5.3 Professional & Standard Editions, Mask Pro 4.1.8, PhotoFrame 4.5.1 Professional & Standard Editions для улучшения последнего штриха к фотографиям, PhotoTune 3.0.2 для профессионального качественного исправление окраски и FocalPoint для добавления размытия выделенному и виньеток к вашим фотографиям.Язык интерфейса: только английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020159   (746813) от 25.05.2016
+
+QR Factory 2.9.5 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746813.jpg" />
+</div>
+
+
+###  Подробнее
+
+QR Factory: создание QR-кода
+QR-код является незаменимым и универсальным способом быстро поделиться какой-либо текстовой информацией. Его главное достоинство — легкое распознавание — активно применяется в самых разных сферах: производстве, торговле, логистике, туризме рекламе, конкурсах, играх и др. Сканеры QR-кодов существуют практически на всех мобильных платформах, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 мая 2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D192AF59E007DAD8CA065A9ECAF4D2C945524AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020229   (746730) от 25.05.2016
+
+Doo - Get Things Done 1.0.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746730.jpg" />
+</div>
+
+
+###  Подробнее
+
+*** Отмеченный Apple, как одно из лучших новых приложений для  iOS **
+
+ФУНКЦИИ
+• Уникальный интерфейс на основе карт(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 мая 2016Разработчик: Ciarlo Software, LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CA9C908312FAC568FB18584CE127CE4CFBC1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020091   (746729) от 25.05.2016
 
 PaintCode 2.4.2 [En]
@@ -6,7 +144,7 @@ PaintCode 2.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746729.jpg" />
+  <img src="Z:/picture/008/save_picture_746729.jpg" />
 </div>
 
 
@@ -34,7 +172,7 @@ Virus Scanner Plus 3.13 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746556.jpg" />
+  <img src="Z:/picture/008/save_picture_746556.jpg" />
 </div>
 
 
@@ -60,7 +198,7 @@ qBittorrent 4.2.0 alpha [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746308.jpg" />
+  <img src="Z:/picture/008/save_picture_746308.jpg" />
 </div>
 
 
@@ -86,7 +224,7 @@ Instant Translate 1.1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745306.jpg" />
+  <img src="Z:/picture/008/save_picture_745306.jpg" />
 </div>
 
 
@@ -115,7 +253,7 @@ Equilibrium 1.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745299.jpg" />
+  <img src="Z:/picture/008/save_picture_745299.jpg" />
 </div>
 
 
@@ -142,7 +280,7 @@ iFFmpeg 6.1.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745226.jpg" />
+  <img src="Z:/picture/008/save_picture_745226.jpg" />
 </div>
 
 
@@ -168,7 +306,7 @@ Aria 2.0.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743858.jpg" />
+  <img src="Z:/picture/008/save_picture_743858.jpg" />
 </div>
 
 
@@ -194,7 +332,7 @@ Magic Hider PRO 1.4.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743856.jpg" />
+  <img src="Z:/picture/008/save_picture_743856.jpg" />
 </div>
 
 
@@ -221,7 +359,7 @@ Tipard Blu-ray Player for Mac 6.2.30 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743855.jpg" />
+  <img src="Z:/picture/008/save_picture_743855.jpg" />
 </div>
 
 
@@ -247,7 +385,7 @@ DockMate Beta 0.8.7 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743853.jpg" />
+  <img src="Z:/picture/008/save_picture_743853.jpg" />
 </div>
 
 
@@ -273,7 +411,7 @@ CopyLess 1.8.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743780.jpg" />
+  <img src="Z:/picture/008/save_picture_743780.jpg" />
 </div>
 
 
@@ -301,7 +439,7 @@ TurnTable 4.0.4 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743771.jpg" />
+  <img src="Z:/picture/008/save_picture_743771.jpg" />
 </div>
 
 
@@ -328,7 +466,7 @@ Apeaksoft iOS Toolkit 1.1.96 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743769.jpg" />
+  <img src="Z:/picture/008/save_picture_743769.jpg" />
 </div>
 
 
@@ -356,7 +494,7 @@ Instant: The Polaroid Instant Photos 3.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743701.jpg" />
+  <img src="Z:/picture/008/save_picture_743701.jpg" />
 </div>
 
 
@@ -384,7 +522,7 @@ Enolsoft PDF Password Remover for Mac 3.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743628.jpg" />
+  <img src="Z:/picture/008/save_picture_743628.jpg" />
 </div>
 
 
@@ -410,7 +548,7 @@ BookReader 5.15 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743554.jpg" />
+  <img src="Z:/picture/008/save_picture_743554.jpg" />
 </div>
 
 
@@ -439,7 +577,7 @@ Adobe DNG Converter 11.2.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743521.jpg" />
+  <img src="Z:/picture/008/save_picture_743521.jpg" />
 </div>
 
 
@@ -465,7 +603,7 @@ Sierra Cache Cleaner 11.1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743349.jpg" />
+  <img src="Z:/picture/008/save_picture_743349.jpg" />
 </div>
 
 
@@ -493,7 +631,7 @@ NanoBrowser 1.5.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742364.jpg" />
+  <img src="Z:/picture/008/save_picture_742364.jpg" />
 </div>
 
 
@@ -519,7 +657,7 @@ MovieSherlock 6.3.5 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742356.jpg" />
+  <img src="Z:/picture/008/save_picture_742356.jpg" />
 </div>
 
 
@@ -547,7 +685,7 @@ Fantastical 2.2.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742079.jpg" />
+  <img src="Z:/picture/008/save_picture_742079.jpg" />
 </div>
 
 
@@ -559,144 +697,6 @@ Fantastical - приложение представляет собой кале
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:824FA8C4D4A4BA96C1EAB3F04A51C015BB8A89F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021255   (742069) от 28.05.2016
-
-Disk Map Analyzer 1.4 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Map Analyzer был разработан пользователями, как и вы, которые пытаются освободить ценное дисковое пространство простым и быстрым способом на сколько это возможно. Мы тщательно проводили бесчисленные часы создания нашего алгоритма отображения диска и оптимизировали наше приложение исключительно для Mac OSX. Disk Map Analyzer визуально интуитивен и понятен.
-
-Мы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 мая 2016Разработчик: Pocket Bits LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15746665228352C3A66DA78AD8E4342C6BABA602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524750   (741890) от 17.01.2022
-
-KeyKey 2.9 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741890.jpg" />
-</div>
-
-
-###  Подробнее
-
-KeyKey — учимся слепому набору.
-Слепая десятипальцевая печать — штука полезная. Даже если вы пишете только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
-Чтобы научится слепому набору не нужны учителя и дорогостоящие курсы. KeyKey работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.06.2019Разработчик: © Sergiy Vynnychenko & Vlad GorohovskyПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5417C6DEB1306B61185E59C0D3207A3177B219BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217646   (741692) от 05.04.2018
-
-Adobe Audition CC 2018 v11.1 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: AdobeПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EA7DB7187BC992803C03AA56B7A1900972FE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217648   (741625) от 05.04.2018
-
-Adobe Muse CC 2018.1 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741625.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Muse CC - создавайте великолепные веб-сайты без написания кода.
-Если вы уже знакомы с Adobe InDesign, рекомендуем вам познакомиться с Adobe Muse, популярным у графических дизайнеров приложением для создания веб-сайтов. Не тратьте время на написание кода и быстро создавайте уникальные сайты с использованием знакомых инструментов и комбинаций клавиш, а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: AdobeПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8AEA9ABF42D46BE71060E586F9A7AF05814851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127124   (741115) от 20.04.2017
-
-Browser Care 4.0.1 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Browser Care  - держим браузеры в чистоте
-Browser Care - является мощным приложением, которое поможет вас сохранять ваш браузер всегда быстрым и стабильным, очищая кеш, список загрузок, историю, куки сессий, данные автозаполнений и многое, многое другое, а кастомные настройки позволят выбрать то, что вам необходимо.
-
-Приложение поддерживает самые популярные браузеры (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 апреля 2017Разработчик: Giovanni Maria CusaroПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C6E3FD1148240BD123DB3E3F0BE345AE3D8668
 ```
 
 https://mybot314.ru/tekegram_catalog/

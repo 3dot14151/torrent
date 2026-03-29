@@ -1,3 +1,108 @@
+###  Публикация: 1280860   (756710) от 05.02.2019
+
+NGW: Смертельно опасные монстры Австралии / Australia's Deadly Monsters (2017) HDTVRip [H.264/1080i-LQ] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_756710.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой уникальной передаче вы услышите истории о столкновениях со смертельно опасными животными в Австралии.Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Мартин БекерПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB06F52950AF0AAC63095B0C6A2ACC4195729C41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280855   (756708) от 05.02.2019
+
+BBC. Всё о мире обезьян / Monkeys Revealed (2014) HDTVRip (серии 3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот милый сериал исследует захватывающий мир приматов. Авторы совершат кругосветное путешествие, чтобы посмотреть на обезьян и лемуров и узнать, насколько люди близки к этим потрясающим животным.Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, природа, флора, фаунаРежиссер: Джилз Баджер, Гэвин Бойлэнд, Рози ТомасПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 3 x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09C9A39DCE1CA6A8F3FB8C20DFEF568ECCAEB8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280858   (756705) от 05.02.2019
+
+NGW: Смертоносная Африка. Пустыни / Africa's Deadly Kingdom (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об особенностях обитания наиболее примечательных животных континента Африка в их нескончаемой борьбе за выживание.Производство: Южная Африка, Lion Mountain Media, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D11D1CFAE4A38A3915499F66CA4DB1C87800162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280934   (756693) от 05.02.2019
+
+BBC: Скрытые убийцы в домах послевоенного времени / Hidden Killers of The Post War Home (2016) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы запомнили 50-е как очень спокойное время, когда никто не запирал двери, соседи могли в любой момент заглянуть, чтобы попросить немного сахара, и на улицах можно было гулять без опаски. Но, как бы иронично это ни звучало, множество скрытых угроз просочились в дома после того, как люди перестали экономить.
+В этот раз доктор Сюзанна Липскомб, автор передач о скрытых (   Читать дальше...   )Производство: Великобритания, Modern Television, British Broadcasting Corporation (BBC)Жанр: Документальный, научно-популярныйРежиссер: Сюзанна ФиллипсПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B1201A46017985AC17999B8D1D382B003DE50E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522706   (756504) от 08.01.2022
 
 90-е: десятилетие, которое нас объединило / The 90s: The Decade That Connected Us (2014) HDTV [H.264/1080i] (серии 1-6 из 6)
@@ -6,7 +111,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756504.jpg" />
+  <img src="Z:/picture/008/save_picture_756504.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ NG. Индия с высоты птичьего полёта / India From Above 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756488.jpg" />
+  <img src="Z:/picture/008/save_picture_756488.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756481.jpg" />
+  <img src="Z:/picture/008/save_picture_756481.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756071.jpg" />
+  <img src="Z:/picture/005/save_picture_756071.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ BBC. Horizon: Путешествия во времени (2003) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755951.jpg" />
+  <img src="Z:/picture/008/save_picture_755951.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755936.jpg" />
+  <img src="Z:/picture/008/save_picture_755936.jpg" />
 </div>
 
 
@@ -164,7 +269,7 @@ BBC: Грязные города. Средневековый Лондон [ча�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755835.jpg" />
+  <img src="Z:/picture/008/save_picture_755835.jpg" />
 </div>
 
 
@@ -190,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755731.jpg" />
+  <img src="Z:/picture/008/save_picture_755731.jpg" />
 </div>
 
 
@@ -216,7 +321,7 @@ BBC. Как устроены шикарные отели. Hacienda Hotel Vira Vi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755285.jpg" />
+  <img src="Z:/picture/008/save_picture_755285.jpg" />
 </div>
 
 
@@ -242,7 +347,7 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755079.jpg" />
+  <img src="Z:/picture/008/save_picture_755079.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ NG: Последствия: Перенаселенная планета / Afterm
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755024.jpg" />
+  <img src="Z:/picture/008/save_picture_755024.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ NGW: Дикая природа. Южная Африка / Wild South Africa (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754952.jpg" />
+  <img src="Z:/picture/008/save_picture_754952.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) WEB
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754816.jpg" />
+  <img src="Z:/picture/008/save_picture_754816.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754814.jpg" />
+  <img src="Z:/picture/008/save_picture_754814.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754464.jpg" />
+  <img src="Z:/picture/008/save_picture_754464.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ BBC: Погружение на Галапагосах (Подводный мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754309.jpg" />
+  <img src="Z:/picture/008/save_picture_754309.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ BBC. Мир природы. Лобо. Волк, который изменил А
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754216.jpg" />
+  <img src="Z:/picture/008/save_picture_754216.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ BBC: Корень всех зол? [2 серии] / The Root of All Evil? (2006)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754035.jpg" />
+  <img src="Z:/picture/008/save_picture_754035.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ BBC: Как устроена Земля [2 из 2] / Earth Machine (2011) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754031.jpg" />
+  <img src="Z:/picture/008/save_picture_754031.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ BBC: Всё, что мы знаем о Вселенной, неверно? / BBC
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753967.jpg" />
+  <img src="Z:/picture/008/save_picture_753967.jpg" />
 </div>
 
 
@@ -531,7 +636,7 @@ BBC. Самые умные животные / Super Smart Animals (2012) SATRip 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753902.jpg" />
+  <img src="Z:/picture/008/save_picture_753902.jpg" />
 </div>
 
 
@@ -557,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753659.jpg" />
+  <img src="Z:/picture/008/save_picture_753659.jpg" />
 </div>
 
 
@@ -568,111 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:378B417C0B49930DE2AD4E41B5BB58C90755E940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395709   (753656) от 11.07.2020
-
-Большое австралийское приключение (Голд-Кост) / Coast Australia (2017) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя захватывающую береговую линию Австралии - людей, их историю и множество чудес природы . В этой части изучим знаменитые курорты Саншайн Кост и Голд Кост, а также много всякого из жизни простых австралийцев ...Производство: Великобритания, BBC Two, Great Southern TelevisionЖанр: Документальный, познавательный, путешествияРежиссер: Джейн МанингПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426852E1FF56506F4418CF6C70430A1B7AC22069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395727   (753646) от 11.07.2020
-
-Большое австралийское приключение (Остров Норфолк) / Coast Australia (2017) HDTV [H.264/1080i] (сезон 2, серия 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753646.jpg" />
-</div>
-
-
-###  Подробнее
-
-О́стров Но́рфолк - небольшой обитаемый остров в Тихом океане, расположенный между Австралией, Новой Каледонией и Новой Зеландией. Остров был открыт капитаном Джеймсом Куком в 1774 году, во время его плавания по юго-западной части Тихого океана. Вместе с двумя близлежащими островками образует одну из австралийских внешних территорий. Нил Оливер со своей (   Читать дальше...   )Производство: Великобритания, BBC Two, Great Southern TelevisionЖанр: Документальный, познавательный, путешествияРежиссер: Джейн МанингПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD2A148493622D8E0B9CE328DBB26C64E826597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395732   (753562) от 11.07.2020
-
-Большое австралийское приключение (Бассов пролив) / Coast Australia (2017) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бассов пролив - участок Мирового океана, находящийся между выдающимся в море юго-восточным берегом Австралии и отстоящим от него на двести километров островом Тасмания.
-Проливу всего лишь около 10 тыс. лет, и по меркам исторической геологии он считается совсем молодым. До этого здесь была единая суша, но в связи с общим повышением уровня моря низина оказалась залита (   Читать дальше...   )Производство: Великобритания, BBC Two, Great Southern TelevisionЖанр: Документальный, познавательный, путешествияРежиссер: Джейн МанингПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339CD68798CA6CF6D71902ED2A6A9B1FA5862B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395644   (753561) от 11.07.2020
-
-BBC. Как устроены шикарные отели. Marina Bay Sands (Сингапур) / Amazing Hotels: Life Beyond the Lobby (2018) HDTV [H.264/1080i] (сезон 1, серия 1)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сингапурский отель Marina Bay Sands можно смело назвать самым необычным отелем в мире. Еще в процессе строительства стало ясно, что он станет самым дорогостоящим отелем в мире. Архитекторы решили поразить всех удивительной неземной концепцией: на трёх 200-метровых башнях по 55 этажей находится огромный бассейн, где вода как будто утекает за горизонт. Кроме бассейна, (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательныйРежиссер: Макс Шапира, Крис АлкокПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC807B57F084F635A68605E8A234FD591B9D030
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,128 @@
+###  Публикация: 459516   (94891) от 28.02.2012
+
+George Bishop - Colour Love (1994) [FLAC|Lossless]<Smooth Jazz, New Age>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_94891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Smooth Jazz, New AgeПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459423   (94889) от 28.02.2012
+
+The Tierney Sutton Band - American Road (2011) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_94889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wayfaring Stranger (6:12)
+02. Oh Shenandoah/The Water Is Wide (5:47)
+03. On Broadway (4:24)
+04. Amazing Grace (6:01)
+05. It Ain't Necessarily So (4:48)
+06. Summertime (5:28)
+07. My Man's Gone Now (6:55)
+08. Tenderly (5:23)
+09. The Eagle and Me (2:25)
+10. Somewhere (3:48)(   Читать дальше...   )2011Жанр: Jazz, Vocal JazzПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459502   (94860) от 28.02.2012
+
+Billie Holiday - Easy To Love (2009) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_94860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laughing at life (2:59)
+02. St. Louis blues (2:56)
+03. All of me (3:00)
+04. Am I blue ? (2:53)
+05. God bless the child (2:58)
+06. Gloomy sunday (3:14)
+07. Trav'lin' light (3:17)
+08. Do nothing 'till you hear from me (3:28)
+09. My old flame (3:02)
+10. He's funny that way (3:16)(   Читать дальше...   )2009Жанр: Jazz, Vocal JazzПродолжительность: 02:34:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821761   (94731) от 04.10.2025
+
+Lester Young - The Lester Young Story (1936 - 1949) 4CD, 2000, Proper Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Only a Paper Moon [3:09]
+02. Lover Come Back to Me [2:39]
+03. You're Driving Me Crazy [3:08]
+04. Lester's Be-Bop Boogie [3:16](   Читать дальше...   )Жанр: Swing, Big Band, Mainstream JazzПродолжительность: 04:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79563577E810F034776F312A689128DA3FCC7549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 457831   (94367) от 25.02.2012
 
 Larry Coryell & Emily Remler - Together (1985) [FLAC|Lossless]<Concord Jazz>
@@ -6,7 +131,7 @@ Larry Coryell & Emily Remler - Together (1985) [FLAC|Lossless]<Concord Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94367.jpg" />
+  <img src="Z:/picture/005/save_picture_94367.jpg" />
 </div>
 
 
@@ -38,7 +163,7 @@ Delizioso - Italian Swing Sisters (2004) [FLAC|Lossless]<Vocal Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94354.jpg" />
+  <img src="Z:/picture/005/save_picture_94354.jpg" />
 </div>
 
 
@@ -73,7 +198,7 @@ VA - Jazz for Lovers vol.6 (2002) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94176.jpg" />
+  <img src="Z:/picture/005/save_picture_94176.jpg" />
 </div>
 
 
@@ -108,7 +233,7 @@ VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Ban
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_94076.jpg" />
+  <img src="Z:/picture/005/save_picture_94076.jpg" />
 </div>
 
 
@@ -143,7 +268,7 @@ Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93763.jpg" />
 </div>
 
 
@@ -177,7 +302,7 @@ Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93708.jpg" />
 </div>
 
 
@@ -212,7 +337,7 @@ Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93707.jpg" />
 </div>
 
 
@@ -247,7 +372,7 @@ VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93559.jpg" />
 </div>
 
 
@@ -282,7 +407,7 @@ VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93531.jpg" />
 </div>
 
 
@@ -317,7 +442,7 @@ Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93524.jpg" />
 </div>
 
 
@@ -346,7 +471,7 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93517.jpg" />
 </div>
 
 
@@ -381,7 +506,7 @@ Hilde Louise Asbjornsen - Eleven Nights (2005) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93453.jpg" />
 </div>
 
 
@@ -416,7 +541,7 @@ Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004)
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93441.jpg" />
 </div>
 
 
@@ -451,7 +576,7 @@ Papa Grows Funk - Needle In The Groove (2012) [FLAC|Lossless]<Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93408.jpg" />
 </div>
 
 
@@ -485,7 +610,7 @@ Ndidi Onukwulu - Move Together (2009) [FLAC|Lossless]<Vocal Jazz, Jazz-Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_93363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93363.jpg" />
 </div>
 
 
@@ -520,7 +645,7 @@ Jacques Loussier - The Best of Play Bach (1985) [FLAC|Lossless]<Chamber Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91047.jpg" />
 </div>
 
 
@@ -555,7 +680,7 @@ Eric Marienthal - It's Love (2012) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90801.jpg" />
 </div>
 
 
@@ -590,7 +715,7 @@ Bebo Best & Super Lounge Orchestra - Saronno On The Rocks (2011) [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90582.jpg" />
 </div>
 
 
@@ -625,7 +750,7 @@ Renaud Garcia-Fons - Solo: The Marcevol Concer (2012) [FLAC|Lossless]<Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89632.jpg" />
 </div>
 
 
@@ -660,7 +785,7 @@ Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89381.jpg" />
 </div>
 
 
@@ -695,7 +820,7 @@ Yehudi Menuhin &  Stephane Grappelli - Menuhin & Grappelli Play... 2CD (2004) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88949.jpg" />
 </div>
 
 
@@ -721,7 +846,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88157.jpg" />
 </div>
 
 
@@ -737,137 +862,6 @@ https://mybot314.ru/tekegram_catalog/
 08. Мерилин (4:16)
 09. Я с тобой (3:51)
 10. Ad libitum (3:19)2012Жанр: pop-jazz, contemporary jazz-art, female vocalПродолжительность: 00:44:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482073   (87975) от 12.04.2012
-
-The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01..  The Crusaders -  Stomp And Buck Dance  (5:50)
-02..  Down to the Bone -  Staten Island Groove  (6:46)
-03..  The Crusaders -  Creepin'  (6:57)
-04..  Down to the Bone -  The Zodiac  (7:49)
-05..  The Crusaders -  Soul Shadows  (6:21)
-06..  Down to the Bone -  Black Choice  (5:53)
-07..  The Crusaders -  Honky Tonk Struttin  (4:23)
-08..  Down to the Bone -  Gotta Get Back To You  (5:11)
-09..  The Crusaders -  Spiral  (6:10)
-10..  Down to the Bone -  Brooklyn Heights  (7:13)(   Читать дальше...   )2012Жанр: Jazz, FusionПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477275   (87372) от 09.04.2012
-
-Игорь Бутман  - (2 альбома) (2007-2011) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87372.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: JazzПродолжительность: 01:13:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480059   (87306) от 09.04.2012
-
-VA - Oldies For A Rainy Day LPCD45 (2008) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong - What a wonderful world    [0:02:21]
-02. Patti Page - Tennessee waltz    [0:03:02]
-03. Ben E King - Stand by me    [0:03:02]
-04. Patti Page - I went to your wedding    [0:03:26]
-05. Platters  - Smoke gets in your eyes    [0:02:45]
-06. Ray Peterson - Tell Laura I love her    [0:02:52]
-07. Freddy Fender - Before the next teardrop    [0:02:37]
-08. Skeeter Davis - End of the world    [0:02:42]
-09. Tremeloes - Silence is golden    [0:03:16]
-10. Four Aces - Three coins in the fountain    [0:03:09](   Читать дальше...   )2008Жанр: Jazz, OldiesПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476773   (85883) от 02.04.2012
-
-Warren Wolf - Warren Wolf (2011) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85883.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 427 Mass Ave. (6:17)
-2. Natural Beauties (7:19)
-3. Sweet Bread (6:03)
-4. How I Feel At This Given Moment (7:04)
-5. Eva (5:36)
-6. Señor Mouse (4:40)
-7. Emily (6:23)
-8. Katrina (7:38)
-9. One For Lenny (3:56)
-10. Intimate Dance (5:29)2011Жанр: JazzПродолжительность: 01:00:29
 
 ## Скачать торент
 ```bash

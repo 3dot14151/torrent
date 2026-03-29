@@ -1,3 +1,81 @@
+###  Публикация: 1169177   (56939) от 11.05.2024
+
+Gone Home (2013) [Ru/Multi] (2020-01-28) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56939.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 июня 1995 года. 01:15. Вы провели за границей целый год, и теперь возвращаетесь домой. Вы предвкушаете встречу с семьей, но дома никого нет! Что-то здесь не так. Куда все делись? Что здесь произошло? Откройте эту тайну сами, пройдя все перипетии сюжета игры Gone Home разработчика The Fullbright Company. Gone Home – интерактивный симулятор расследования.Тип издания: LicenseРазработчик: The Fullbright CompanyЖанр: Приключение, От первого лица, ДетективЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A72EE7523EB3D247E903AF4001F28C85ADDB86E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722395   (56911) от 11.05.2024
+
+The Bridge Curse 2: The Extrication / Проклятый мост 2: Эвакуация (2024) [Ru/Multi] (1.6.4) Scene Tenoke
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56911.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bridge Curse 2: The Extrication - продолжение одноименной серии психологических хорроров от первого лица, созданных по мотивам тайваньских городских легенд. События разворачиваются на территории университета Вэнь Хуа, где студенты не раз замечали сверхъестественную активность и убеждены в существовании призраков в стенах своего учебного заведения. В попытках (   Читать дальше...   )Тип издания: SceneРазработчик: SOFTSTAR ENTERTAINMENTЖанр: Приключенческие игрыЯзык озвучки: Английский, Китайский (традиционный)Язык субтитров: Русский, Английский, Тайский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Тайский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9935FD2DE7F428BC6C2F033DB993B8F6D506208B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722389   (56893) от 11.05.2024
+
+Alba: A Wildlife Adventure (2020) [Ru/Multi] (0.90) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56893.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Альба приехала в гости к бабушке с дедушкой на остров в Средиземном море, она ждала беззаботных каникул. Гулять с Агнес, изучать дикую природу... Но увидев животное, попавшее в беду, она не может остаться в стороне. Если не смотреть на горы мусора, это настоящий средиземноморский рай! Чудесные пляжи, старинный замок на холме - успеть бы облазить все за лето! (   Читать дальше...   )Тип издания: LicenseРазработчик: ustwo gamesЖанр: Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011C415B8F7D0CD64479FFA3A4AD3E973E7D859B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1723146   (56569) от 14.05.2024
 
 The Bridge Curse 2: The Extrication / Проклятый мост 2: Эвакуация (2024) [Ru/Multi] (1.6.4) Repack FitGirl
@@ -6,7 +84,7 @@ The Bridge Curse 2: The Extrication / Проклятый мост 2: Эваку�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56569.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ INDIKA (2024) [Ru/Multi] (14207837) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56523.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Poltergeist Watcher (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56359.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56331.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Hollow Cocoon (2023) [Ru/Multi] (1.20) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56311.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ A Highland Song (2023) [En] (1.2.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56302.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56293.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ The Desolate Hope (2014) [Ru/En] (1.35) Repack 1nomok
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56170.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ The Cursed Tape (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56163.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Crow Country (2024) [Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56160.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Lorelei and the Laser Eyes (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56081.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55862.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Scene Investigators (2023) [Ru/Multi] (20250503/dlc) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55856.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Scene FairLi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55636.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ The Vanishing of Ethan Carter (2015) [Ru/Multi] (1.05) Repack dixen18 [Redux]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55555.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Vanishing of Ethan Carter (2014) [Ru/Multi] (1.0) Repack dixen18
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55518.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ The Journey of AutUmn (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55439.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack FitGi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55381.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Senua’s Saga: Hellblade II (2) (2024) [Ru/Multi] (1.0.0.0.158523) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55354.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Hauntii (2024) [Multi] (1.0) Scene Razor 1911
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55323.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Imaginary Friend Asylum (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55210.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Pre Dusk (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55135.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Starstruck Vagabond (2024) [En] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54798.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Starstruck Vagabond начинается с рассказа о том, как �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DED1F5C293D6E91C376F0CD0991E1429BB6EE339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727685   (54509) от 03.06.2024
-
-Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.07/dlc) Repack FitGirl [Jackdraw Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Assassin's Creed 4: Black Flag - стелс-экшен с видом от третьего лица в историческом сеттинге. В этой части игры, вам предстоит исследовать Карибские острова времён пиратов и Ост-Индской кампании. Ваш герой — Эдвард Кенуэй — потомок ассассинов и отчаянный пират. Большую часть игры, теперь, занимают морские сражения и путешествия на корабле, а также исследование подводного (   Читать дальше...   )Тип издания: RepackРазработчик: Ubisoft Montreal, Ubisoft Annecy, Ubisoft Quebec, Ubisoft Singapore, Ubisoft Kiev, Ubisoft Romania, Ubisoft Montpellier, Ubisoft SofiaЖанр: AdventureЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43D07EB35FD83FA0E446C8432A501331E82A05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727720   (54506) от 03.06.2024
-
-Harvest Hunt (2024) [Multi] (1.0.1) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Harvest Hunt бросает вас в суровый мир, где каждый выбор кажется авантюрой. Это смесь выживания и стратегии, игра, которая заставляет вас сжимать кулаки и бормотать себе под нос. Каждая ночь ставит перед вами новые задачи, проверяя вашу способность думать и управлять ресурсами, как опытный профессионал. Представьте себе: вы - хранитель деревни, и это звание очень (   Читать дальше...   )Тип издания: RepackРазработчик: Villainous Games StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Английский, Французский, Итальянский, НемецкийЯзык интерфейса: Английский, Французский, Итальянский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7220C4FFACB8C4E7306E8DF6B1FA4A7AA79C8714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727598   (54504) от 03.06.2024
-
-返杀 Back Fire (2024) [Multi] (1.0) Scene Tenoke
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Back Fire – окунитесь с головой в полноценное приключение, в котором будет много эпических видеоперестрелок! События игры вращаются вокруг воина по имени Хунъюй, который оказался в засаде наркобарона Гунтая, следовавшего по следам своего брата Хонгая на задании. Повреждения оказались достаточно серьезными, поэтому брат теперь находится на грани жизни и смерти. После (   Читать дальше...   )Тип издания: SceneРазработчик: 熬夜有光Жанр: Приключенческие игры, СимуляторыЯзык озвучки: КитайскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F336B72C449AD6434B10B8D6397F2599F3DA07
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1837470   (257566) от 16.11.2025
+
+VA - Acid Jazz Classics, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vicki Anderson - Home Is Where The Hatred Is (Progetto Tribale Soul Mix The cream cut) (4:45)
+02.  JESTOFUNK - Straight To You (6:04)
+03.  Lainz - All Lainz (4:29)
+04.  Anduze - Stone Cold Lover (4:06)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:863F5D4C709F60DD63387BF99E23228704859C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837475   (257563) от 16.11.2025
+
+VA - Acid Jazz Instrumentals Vol. 3 (Jazz Funk Breaks Instrumental Tunes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Venus Ship - Arthur Morgan (2:52)
+02.  Lainz - All Lainz (4:29)
+03.  Kolosso - Ghost  Dogs (3:41)
+04.  Top 10 Inc. - Harlem R'n'B Funk (3:19)(   Читать дальше...   )Жанр: Acid Jazz, FunkПродолжительность: 02:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB8AE3E1D5064448C35A8A1BA23F1C37D3CBA6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837476   (257562) от 16.11.2025
+
+VA - Jazz For Studying And Working (Instrumental Jazz Vibes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soulstance - Around Me (4:35)
+02.  Chromogen - Bleach (3:58)
+03.  P. A. Jeron - Children (3:51)
+04.  GIANLUCA PORRO - The Sea In Spring (4:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:27:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2357A02A3369F1F5671451AF152757CB8E88DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837478   (257560) от 16.11.2025
+
+VA - Nu Jazz Gentle Vibes (Soul, Nu Jazz, Smooth Jazz, Dream Pop) (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mario Biondi - Back Together Again (3:57)
+02.  Symphonica ODV - I Keep Forgettin' (Every Time You're Near) (3:20)
+03.  Maddalena Conni - Memories (4:25)
+04.  Yuts and Culture - I Got You (5:54)(   Читать дальше...   )Жанр: Nu Jazz, Smooth JazzПродолжительность: 01:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891E8462560AE0203011F7A65CAB1B991A847DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 500574   (257194) от 23.05.2012
 
 Ethel Waters - Ethel Waters (1921-1923) (1994) [FLAC|Lossless]<Vocal Jazz, Swing>
@@ -6,7 +122,7 @@ Ethel Waters - Ethel Waters (1921-1923) (1994) [FLAC|Lossless]<Vocal Jazz, Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257194.jpg" />
+  <img src="Z:/picture/005/save_picture_257194.jpg" />
 </div>
 
 
@@ -41,7 +157,7 @@ Mary Lou Williams - Mary Lou Williams (1927-1940) (1992) [FLAC|Lossless]<New Orl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257174.jpg" />
+  <img src="Z:/picture/005/save_picture_257174.jpg" />
 </div>
 
 
@@ -76,7 +192,7 @@ Albert Ammons - Albert Ammons (1936-1946) (1997) [FLAC|Lossless]<Boogie-Woogie>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257172.jpg" />
+  <img src="Z:/picture/005/save_picture_257172.jpg" />
 </div>
 
 
@@ -111,7 +227,7 @@ Sarah Vaughan - Sarah Vaughan (1946-1947) (1998) [FLAC|Lossless]<Vocal Jazz, Bal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257167.jpg" />
+  <img src="Z:/picture/005/save_picture_257167.jpg" />
 </div>
 
 
@@ -146,7 +262,7 @@ Bethany & Rufus Roots Quartet - Live a FIP (2009) [FLAC|Lossless]<Folk-Jazz, Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257150.jpg" />
+  <img src="Z:/picture/005/save_picture_257150.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Fletcher Henderson - Fletcher Henderson and His Orchestra (1937-1938) (1990) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256947.jpg" />
+  <img src="Z:/picture/005/save_picture_256947.jpg" />
 </div>
 
 
@@ -216,7 +332,7 @@ Louis Armstrong - Gold collections [Lossless]<Jazz> 4CD
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256462.jpg" />
+  <img src="Z:/picture/005/save_picture_256462.jpg" />
 </div>
 
 
@@ -251,7 +367,7 @@ Jazzamor - Lucent Touch (2011) [FLAC (tracks+cue)|Lossless]<Acid Jazz, Lounge>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256454.jpg" />
+  <img src="Z:/picture/005/save_picture_256454.jpg" />
 </div>
 
 
@@ -277,7 +393,7 @@ Bernhard Lackner - Stories From Home (2011) [FLAC|Lossless]<Fusion, Jazz-Rock>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256271.jpg" />
+  <img src="Z:/picture/005/save_picture_256271.jpg" />
 </div>
 
 
@@ -311,7 +427,7 @@ Bernd Reiter Quartet feat. Roman Schwaller - Live At The Jazzland-Vienna (2007) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256260.jpg" />
+  <img src="Z:/picture/005/save_picture_256260.jpg" />
 </div>
 
 
@@ -343,7 +459,7 @@ VA - Gotham (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255940.jpg" />
+  <img src="Z:/picture/005/save_picture_255940.jpg" />
 </div>
 
 
@@ -372,7 +488,7 @@ Before Doom - Noir (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255680.jpg" />
+  <img src="Z:/picture/005/save_picture_255680.jpg" />
 </div>
 
 
@@ -401,7 +517,7 @@ Anne Bisson - Be My Lover (2023) Japan [FLAC|Lossless|tracks] <Vocal Jazz, Smoot
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255542.jpg" />
+  <img src="Z:/picture/005/save_picture_255542.jpg" />
 </div>
 
 
@@ -430,7 +546,7 @@ VA - In a Blue Hour (2006) 2CD, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255449.jpg" />
+  <img src="Z:/picture/005/save_picture_255449.jpg" />
 </div>
 
 
@@ -459,7 +575,7 @@ Adam Larson - With Love, From New York (2023) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255437.jpg" />
+  <img src="Z:/picture/005/save_picture_255437.jpg" />
 </div>
 
 
@@ -488,7 +604,7 @@ Hank Jones & Tommy Flanagan - I'm All Smiles (1983) MPS Records [WavPack|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255372.jpg" />
+  <img src="Z:/picture/005/save_picture_255372.jpg" />
 </div>
 
 
@@ -517,7 +633,7 @@ VA - Cozy Warm Winter: Best Relaxing Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255267.jpg" />
+  <img src="Z:/picture/005/save_picture_255267.jpg" />
 </div>
 
 
@@ -546,7 +662,7 @@ VA - Dreamy Lounge & Smooth Jazz Tunes For Pleasant Evening (2023) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255262.jpg" />
+  <img src="Z:/picture/005/save_picture_255262.jpg" />
 </div>
 
 
@@ -575,7 +691,7 @@ The Phil Woods Quartet - 'More' Live (1979) 1995, Genes [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254778.jpg" />
+  <img src="Z:/picture/005/save_picture_254778.jpg" />
 </div>
 
 
@@ -604,7 +720,7 @@ Woody Herman & His Bands - Their Finest Albums (1952 - 1963) 4CD, 2022, Enlighte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254777.jpg" />
+  <img src="Z:/picture/005/save_picture_254777.jpg" />
 </div>
 
 
@@ -633,7 +749,7 @@ Melani L. Skybell - Through The Years (1998) Self-Released [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254753.jpg" />
+  <img src="Z:/picture/005/save_picture_254753.jpg" />
 </div>
 
 
@@ -662,7 +778,7 @@ Bemibek - Dziennik Mej Podrozy (1993) [FLAC|Lossless]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253374.jpg" />
+  <img src="Z:/picture/005/save_picture_253374.jpg" />
 </div>
 
 
@@ -682,140 +798,6 @@ Bemibek - Dziennik Mej Podrozy (1993) [FLAC|Lossless]<Vocal Jazz, Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496756   (253349) от 16.05.2012
-
-Midnight Serenaders - Hot Lovin' (2011) [FLAC|Lossless]<Swing, Retro Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Honey's Lovin' Arms
-02. I've Got A Hankerin' (For Some Love)
-03. Victim of Love
-04. I'm Playing In Your Parlour Game
-05. Hot Lovin'
-06. Man-o-phile
-07. You're Barking Up the Right Tree
-08. You Don't Understand
-09. I'm Getting Sentimental Over You
-10. Swingin' On Nothin'(   Читать дальше...   )2011Жанр: Swing, Retro Swing, Big BandПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496160   (252847) от 14.05.2012
-
-Battista Lena Trio - Plays (2000) [FLAC|Lossless]<Contemporary Jazz, Modern Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airegin
-02. Time After Time
-03. Yesterday
-04. Falling Grace
-05. Stella By Starlight
-06. My Ideal
-07. Senor Blues
-08. Blue In Green
-09. Lover
-10. Barbados(   Читать дальше...   )2000Жанр: Contemporary Jazz, Modern JazzПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496162   (252843) от 14.05.2012
-
-Belogenis Malaby Dunn Sawyer - Twice Told Tales (2003) [FLAC|Lossless]<Post-Bop, Avant-Garde Jazz, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Ago
-02. Fable
-03. Once
-04. Chatterbox
-05. Calliope
-06. Twice Told Tales
-07. Three Wishes
-08. Always Known
-09. Again
-10. Telltale(   Читать дальше...   )2003Жанр: Post-Bop, Avant-Garde Jazz, Modern CreativeПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836238   (252453) от 09.11.2025
-
-Sarah Menescal - Moonlight Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Smooth Jazz, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Believe
-02. Vogue
-03. Underneath Your Clothes
-04. Complicated(   Читать дальше...   )Жанр: Bossa Nova, Smooth Jazz, LoungeПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F9D7F273826E66A87946372985AE47B7CDC8A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1611426   (1041423) от 11.02.2023
+
+Konstantin Klashtorni - Kool&Klean (Volume X) (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scent Of Spring
+02. Whispers In My Ear
+03. Sky's Our Limit
+04. Late Nite Suite(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C043CE0DA7543B29D6BB81F5021040D84E392554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438166   (1041396) от 07.01.2021
+
+Frank Sinatra - Reprise Rarities - Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Blue Of Evening
+02. As You Desire Me
+03. Don’t Take Your Love From Me
+04. Name It And It's Yours(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38224675B7AD06FE17DB9E59DE2135C0214AA003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611332   (1041333) от 11.02.2023
+
+Blank & Jones - The Jazz Trio (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Jazz, Relax>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowing
+02. Shade Seeker
+03. High Fly
+04. Sunny LifeЖанр: Jazz, RelaxПродолжительность: 00:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F496EBA84052DDF5923C5F70CC31F96D9F1A5B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438326   (1041203) от 08.01.2021
+
+John Coltrane - The Complete Ray Draper Quintet Sessions (1957 - 1958) 2014, Acrobat [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clifford's Kappa [9:16]
+02. Filidia [7:15]
+03. Two Sons [5:22]
+04. Paul's Pal [7:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4054158F7CEC2D697B9C3189C66B696033BD2BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611631   (1041163) от 12.02.2023
 
 Simone Kopmajer - With Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -6,7 +122,7 @@ Simone Kopmajer - With Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041163.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Sun Ra - Cosmos (1976) 2008, Inner City Records [FLAC|Lossless|tracks + .cue] <A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040948.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Ladies In Love classees X (1939 - 1956) 2CD, 2006, Nocturne [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040842.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Max Roach - The Complete Mercury Max Roach Plus Four Sessions (1956 - 1960) 7CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040654.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Prism - Live Alive, Vol.2 (In '85) (1987)  1997 , Bandai-Japan  [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040645.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Burton Greene - Live At The Woodstock Playhouse (1965) 2010, Porter Records [APE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040638.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Barbara Lea - Lea In Love (1957) 1990, Original Jazz Classics [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040629.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Ali McGregor - Jazz Cigarette (2011) Pearl Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040553.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Alvin Batiste - Late (1993) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040401.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Bob French - Marsalis Music Honors Series (2007) Marsalis Music [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040396.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ Eddie Higgins - Time On My Hands (2000) Arbors Records [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040382.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Alvin Batiste - Marsalis Music Honors Series (2007) Marsalis Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040197.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ VA - Hit The Rhodes, Jack (2005) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Soul,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040147.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ Sun Ra & His Intergalaxtic Arkestra - Second Star To The Right: Salute To Walt D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040146.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ VA - Jazz Pop Cover Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040082.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Gotz Alsmann   - In Rom (2017) [FLAC|Lossless|image + .cue] <vocal Jazz. Early J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039599.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Curtis Fuller Quintet - Blues-ette (1959) 2003, Savoy Jazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039524.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Count Basie / Zoot Sims - Basie & Zoot (1975) 1994, Original Jazz Classics [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039395.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Sun Ra - Jazz in Silhouette & Sound Sun Pleasure!! (1959) 2011, Phoenix Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039372.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Sonny Rollins - Work Time (1955) 2004, Prestige [FLAC|Lossless|tracks + .cue] <B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039135.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Bobby Watson - Advance (1984) 1997, Enja [FLAC|Lossless|tracks + .cue] <Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039104.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Nat King Cole - Just One Of Those Things (1957) 2011, Analogue Productions [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038855.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Nat King Cole - Just One Of Those Things (1957) 2011, Analogue Productions [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADDB8B211C330F2B4286DB3854D4FCF8BB357890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976236   (1038818) от 21.02.2023
-
-Helen Merrill - Sings Screen Favorites (1968) 2004, JVC[FLAC|image+.cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Three Coins In The Fountain [03:27]
- 02.To Love Again [03:19]
- 03.Theme From 'Picnic' [03:24]
- 04.The Third Man Theme [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0724FC8997D475CF10FC7877F3DC11415B0719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102477   (1038817) от 21.02.2023
-
-Ray Brown - I'm Walking (1998) JVC[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I'm Walking [05:16]
- 02.Couch Potate Blues [02:46]
- 03.Time After Time [06:31]
- 04.Drum Feature [04:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE9271EE8274303B008D754F10065E6A024533D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614437   (1038609) от 22.02.2023
-
-Charles Mingus - East Coasting (1957) 1986, Bethlehem Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories of You [4:28]
-02. East Coasting [5:14]
-03. West Coast Ghost [10:34]
-04. Celia [7:54](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50AA8578A34612F94297D87BF7CE0335F5B6EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614438   (1038608) от 22.02.2023
-
-Freddie Hubbard - Above & Beyond (1982) 1999, Metropolitan Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Softly as in a Morning Sunrise [17:51]
-02. I Love You [9:18]
-03. Thermo [12:57]
-04. Little Sunflower [16:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C615F642CF881F8CB3FEF878A7B92DDFA7AF4F3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

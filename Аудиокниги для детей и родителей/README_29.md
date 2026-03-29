@@ -1,3 +1,81 @@
+###  Публикация: 1126779   (686168) от 22.08.2020
+
+Альберт Иванов | Хома и Суслик. Всё о Хоме и Суслике (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686168.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник известного писателя входят 8 сборников сказок приключениях знаменитого хвастуна — хомяка Хомы, его лучшего друга — пугливого мудреца Суслика, их осторожных приятелей и коварных врагов. Эти герои знакомы ребятам по нескольким книжкам и серии мультфильмов. В книге представлены и новые сказки, которые нигде раньше не публиковались..Жанр: СказкиПродолжительность: 13:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6D3DF760D35A3E9E41B8791891265DF45CF07EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507294   (685999) от 07.06.2012
+
+И. А. Крылов | Басни (1996) [MP3, Игорь Ильинский]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_685999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Андреевич Крылов – русский баснописец, драматург, журналист, автор более 200 басен. В баснях Крылов высмеивал общественные и человеческие пороки. В жизни – нарочито отстранялся от общества, подчеркивал собственные пороки: лень, чревоугодие, неряшливость, увлеченность картами. Современниками он часто воспринимался как литературный персонаж – был действующим лицом (   Читать дальше...   )Жанр: Басни, Детская литератураЯзык: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7941192B9A8D1502EEF1FB2F8DA234AB835293E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 335400   (684892) от 11.05.2011
+
+Валерий Роньшин | Кошмарики. Жутко веселые и ужасно интересные истории [2008] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта аудиокнига — настоящая находка для тех, кто любит попугаться и посмеяться. Она и смешная и "ужасная" одновременно. Другими словами — ужасно смешная. А ведь давно известно, что страх перестает быть страхом, когда над ним смеются. Чтобы в этом убедиться, достаточно прослушать любую из этих "очень страшных историй". Кого здесь только нет — и (   Читать дальше...   )Жанр: Сказки. Кошмарики.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C6D743A86E2E636BE47070359663F7D4E1E5E05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404146   (684398) от 23.08.2020
 
 Джанни Родари | Сказки по телефону (2018) [MP3, Всеволод Кузнецов]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684398.jpg" />
+  <img src="Z:/picture/008/save_picture_684398.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683419.jpg" />
+  <img src="Z:/picture/008/save_picture_683419.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683274.jpg" />
+  <img src="Z:/picture/008/save_picture_683274.jpg" />
 </div>
 
 
@@ -86,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681219.jpg" />
+  <img src="Z:/picture/008/save_picture_681219.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680347.jpg" />
+  <img src="Z:/picture/008/save_picture_680347.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678315.jpg" />
+  <img src="Z:/picture/008/save_picture_678315.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677088.jpg" />
+  <img src="Z:/picture/008/save_picture_677088.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674304.jpg" />
+  <img src="Z:/picture/008/save_picture_674304.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674233.jpg" />
+  <img src="Z:/picture/008/save_picture_674233.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673196.jpg" />
+  <img src="Z:/picture/008/save_picture_673196.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672085.jpg" />
 </div>
 
 
@@ -299,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670458.jpg" />
+  <img src="Z:/picture/008/save_picture_670458.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669211.jpg" />
+  <img src="Z:/picture/008/save_picture_669211.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669071.jpg" />
+  <img src="Z:/picture/008/save_picture_669071.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669066.jpg" />
+  <img src="Z:/picture/008/save_picture_669066.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667809.jpg" />
+  <img src="Z:/picture/008/save_picture_667809.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667765.jpg" />
+  <img src="Z:/picture/008/save_picture_667765.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666765.jpg" />
+  <img src="Z:/picture/008/save_picture_666765.jpg" />
 </div>
 
 
@@ -489,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665873.jpg" />
+  <img src="Z:/picture/008/save_picture_665873.jpg" />
 </div>
 
 
@@ -515,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665843.jpg" />
+  <img src="Z:/picture/008/save_picture_665843.jpg" />
 </div>
 
 
@@ -543,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664829.jpg" />
+  <img src="Z:/picture/008/save_picture_664829.jpg" />
 </div>
 
 
@@ -570,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663536.jpg" />
+  <img src="Z:/picture/008/save_picture_663536.jpg" />
 </div>
 
 
@@ -596,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663093.jpg" />
+  <img src="Z:/picture/008/save_picture_663093.jpg" />
 </div>
 
 
@@ -607,85 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92712CA9870907D19957ED36FC320CF56B33D48D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538730   (662307) от 21.03.2022
-
-Ион Крянгэ | За черешнями (2022) [MP3, Татьяна Янчук]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662307.jpg" />
-</div>
-
-
-###  Подробнее
-
-О том, как Ион лазил за черешнями и что из этого вышло.
-Отрывок из повести «Воспоминания детства».Жанр: детская литератураПродолжительность: 00:08:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C24924619B5A1C18887DDF9A10F38873F76387C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513480   (661417) от 21.06.2012
-
-Александр Куприн | Гранатовый браслет (Аудиоспектакль) (2007) [MP3, Юрий Яковлев, Юлия Борисова и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он мечтал о настоящей любви - и повстречался с ней, божественно прекрасной и божественно недосягаемой. У него было только две драгоценности - гранатовый браслет и собственная жизнь. И обе эти драгоценности он безмолвно и благоговейно возложил на ее алтарь... По справедливому замечанию К. Паустовского, "Гранатовый браслет" - один из самых благоуханных, томительных (   Читать дальше...   )Жанр: Классика, драмаИздательство: СиДиКомПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C2EC06E4AB3752BFAF07701A72D71D5ED36723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139121   (661096) от 01.06.2017
-
-Александр Дюма | Сказки (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Дюма известен как романист, но совершенно не знаком нашим читателям в роли сказочника. Произведения, представленные в этой книге, на русском языке публикуются впервые. Сказки, созданные великим французским романистом специально для детей. Но волшебная сила таланта Дюма такова, что эти невероятные истории о Пьеро, Белоснежке, Сиреночке, человеке, который (   Читать дальше...   )Жанр: СказкиПродолжительность: 13:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EF49B093DA4F8310B7E0C6C98CD0F5AF4EA4A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

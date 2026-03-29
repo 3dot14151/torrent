@@ -1,3 +1,84 @@
+###  Публикация: 1284526   (727534) от 22.02.2019
+
+Людмила Петрановская | Лекция по психологии «Родительский невроз» (2018) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_727534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгие годы родители растили детей, не задумываясь о том, как на них отражаются действия, поступки, эмоциональное состояние. Но сегодня все совсем не так – ребенка нужно принимать, понимать, идти навстречу его потребностям, принимать его чувства… В результате, современные родители боятся сказать своему ребенку что-то не так, травмировать или недолюбить. Такое состояние (   Читать дальше...   )Жанр: Детская психологияПродолжительность: 01:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52CA9D79FC6CF312304AA87FB400CFC270372564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 326516   (725561) от 21.04.2011
+
+VA - Любимому малышу. (2010) [MP3|128-256 kbps]<Классика  для детей>
+
+>>Аудио для детей и родителей
+>>Классика для мам и малышей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Shelcunchik - Tanec Fei Drazhe
+02 Shelcunchik - Vals cvetov
+03 Lebedinoe ozero - Tanec malenkih lebedey
+04 Album for the Young - Zimnee utro(   Читать дальше...   )Жанр: Классика  для детейПродолжительность: 03:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791CA385C71769647614D8892E704FFEF95F7A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399860   (725238) от 02.08.2020
+
+Евгения Кретова | Истории о Маше Димкиной и Димке Гречкине (2019) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы думаете, что нелепые случайности и неприятные истории могут случаться только в жизни заядлых двоешников и хулиганов, то вы сильно ошибаетесь. И вот вам доказательство – истории о Маше Димкиной и Диме Гречкине, четвероклассниках и отличниках. Они строят космические модели будильников, инновационно лепят снеговиков и попадают в истории, выйти из которых им (   Читать дальше...   )Жанр: Детская литература/Приключения/ПрозаПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B075DAA3346E177F47CE80CD445167C2C30D8768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399878   (725153) от 02.08.2020
 
 Юрий Кудинов (клоун Плюх) - Бабушкины сказки. Часть №13 (2010) [MP3|192 Kbps]<Детские песни>
@@ -6,7 +87,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725153.jpg" />
+  <img src="Z:/picture/008/save_picture_725153.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725151.jpg" />
+  <img src="Z:/picture/008/save_picture_725151.jpg" />
 </div>
 
 
@@ -64,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725150.jpg" />
+  <img src="Z:/picture/008/save_picture_725150.jpg" />
 </div>
 
 
@@ -92,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725147.jpg" />
+  <img src="Z:/picture/008/save_picture_725147.jpg" />
 </div>
 
 
@@ -121,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725128.jpg" />
+  <img src="Z:/picture/005/save_picture_725128.jpg" />
 </div>
 
 
@@ -147,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725083.jpg" />
+  <img src="Z:/picture/008/save_picture_725083.jpg" />
 </div>
 
 
@@ -176,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_724880.jpg" />
+  <img src="Z:/picture/005/save_picture_724880.jpg" />
 </div>
 
 
@@ -205,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724853.jpg" />
+  <img src="Z:/picture/008/save_picture_724853.jpg" />
 </div>
 
 
@@ -231,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724848.jpg" />
+  <img src="Z:/picture/008/save_picture_724848.jpg" />
 </div>
 
 
@@ -257,7 +338,7 @@ VA - Спят Усталые Игрушки. Колыбельные Песни (
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_724754.jpg" />
+  <img src="Z:/picture/005/save_picture_724754.jpg" />
 </div>
 
 
@@ -286,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724713.jpg" />
+  <img src="Z:/picture/008/save_picture_724713.jpg" />
 </div>
 
 
@@ -314,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724181.jpg" />
+  <img src="Z:/picture/008/save_picture_724181.jpg" />
 </div>
 
 
@@ -340,7 +421,7 @@ VA - Моцарт для малышей (2005) [MP3|256 кб/c]<Детская, 
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724178.jpg" />
+  <img src="Z:/picture/008/save_picture_724178.jpg" />
 </div>
 
 
@@ -367,7 +448,7 @@ VA - Классическая музыка для малышей (2009) [MP3|320
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724041.jpg" />
+  <img src="Z:/picture/008/save_picture_724041.jpg" />
 </div>
 
 
@@ -396,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723154.jpg" />
+  <img src="Z:/picture/008/save_picture_723154.jpg" />
 </div>
 
 
@@ -425,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723151.jpg" />
+  <img src="Z:/picture/008/save_picture_723151.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ VA - Эффект Моцарта - Музыка для малышей (от 3 м
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722425.jpg" />
+  <img src="Z:/picture/008/save_picture_722425.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722351.jpg" />
+  <img src="Z:/picture/008/save_picture_722351.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721657.jpg" />
+  <img src="Z:/picture/008/save_picture_721657.jpg" />
 </div>
 
 
@@ -536,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721643.jpg" />
+  <img src="Z:/picture/008/save_picture_721643.jpg" />
 </div>
 
 
@@ -562,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721406.jpg" />
+  <img src="Z:/picture/008/save_picture_721406.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721404.jpg" />
+  <img src="Z:/picture/008/save_picture_721404.jpg" />
 </div>
 
 
@@ -616,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721009.jpg" />
+  <img src="Z:/picture/005/save_picture_721009.jpg" />
 </div>
 
 
@@ -627,84 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371168   (720934) от 04.08.2020
-
-Валентин Постников | Карандаш и Самоделкин на необитаемом острове (2008) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебный художник Карандаш и мастер Самоделкин отправляются в кругосветное путешествие на подводной лодке. Но внезапно разбушевавшийся океан выбрасывает их маленькое судно на необитаемый остров. Это ничуть не испугало отважных путешественников. Они, снарядив экспедицию, отправляются в глубь острова на поиски воды. Но остров оказался не таким уж и необитаемым. Случилось (   Читать дальше...   )Жанр: СказкаПродолжительность: 03:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E55CB701E96FBB26F620457501E849C9077C8AC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531632   (720638) от 16.02.2022
-
-Братья Гримм | Большая коллекция сказок братьев Гримм (2017) [MP3, Наталья Истарова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитые немецкие филологи-фольклористы братья Гримм, Якоб и Вильгельм, по сей день остаются одними из самых известных сказочников планеты. Вниманию слушателей - и маленьких, и больших - предлагается собрание лучших волшебных историй из числа сказок, записанных и литературно обработанных братьями Гримм. В этих историях добро одерживает победу над злом, а находчивые (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 22:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A396F314C850ECD676AD3532CA877D3DF6CA89CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400553   (719413) от 05.08.2020
-
-Алексей Олейников | Дженни Далфин и Скрытые Земли. Дети утренней звезды. Книга 5. (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в лагерь «Утренняя звезда»! Альберт Фреймус, лучший алхимик современности и глава Ковена Западной Англии, собрал здесь самых одаренных представителей молодого поколения темников. Дети колдунов со всего мира прошли жесткий отбор, но одна студентка попала в лагерь совершенно волшебным образом. Она не сдавала экзамены, так как ничего не знает об алхимии, (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 11:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD451388369694ABBE4B8A352B22C755CD4831B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

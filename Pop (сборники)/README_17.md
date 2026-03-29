@@ -1,3 +1,58 @@
+###  Публикация: 294425   (898222) от 12.02.2011
+
+VA - Лучшая 200ка: Зимний хит-парад 50/50 Part 1 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_898222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E0F77AED1BEB1EF9798BE6F72FDB534ADAEAAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100736   (898079) от 05.02.2017
+
+VA - Снегопад новинок от Хит fm. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898079.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adrima - I Can't Help Myself 3:31
+002. Ost Up (Остап) - Афродита 4:04
+003. Bantu - Holiday 3:36
+004. Герр Антон - Леди И Джентльмены 3:03(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA18DB17EF999E9024E7644E90263098FFCCAAA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100801   (898022) от 05.02.2017
 
 VA - Музыкальное потрясение зимы. Сборник №5 (2017) [MP3|256 Kbps] <Pop>
@@ -6,7 +61,7 @@ VA - Музыкальное потрясение зимы. Сборник №5 (
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898022.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ VA - Хиты в тачку. Сборник № 2 (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897904.jpg" />
 </div>
 
 
@@ -64,7 +119,7 @@ VA - Только хиты. Русский сборник (2017) [MP3|256 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897901.jpg" />
 </div>
 
 
@@ -93,7 +148,7 @@ VA - Милым девушкам к дню 8 марта (2016) [MP3|198-320 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897208.jpg" />
 </div>
 
 
@@ -122,7 +177,7 @@ VA - The Official UK Top 40 Singles Chart (31-03-2013) [MP3|320 кб/с]<Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896825.jpg" />
 </div>
 
 
@@ -150,7 +205,7 @@ VA - The Essential #LOVE (2017) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896398.jpg" />
 </div>
 
 
@@ -179,7 +234,7 @@ VA - Дискотека зимних дорог. Индустрия поп му�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896217.jpg" />
 </div>
 
 
@@ -208,7 +263,7 @@ VA - Хиты зимы. За рулем. Выпуск 50/50 (2017) [MP3|256 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896127.jpg" />
 </div>
 
 
@@ -237,7 +292,7 @@ Zucchero - 100% Zucchero (2020) [MP3|320 Kbps] <Rock, Pop Classical>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894988.jpg" />
 </div>
 
 
@@ -266,7 +321,7 @@ VA - Танцевальная зима. Снежная сотка версия �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894780.jpg" />
 </div>
 
 
@@ -295,7 +350,7 @@ VA - Автозвук. Отборный зимний хит выпуск №4 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894690.jpg" />
 </div>
 
 
@@ -324,7 +379,7 @@ VA - Русский Автозвук (2011) [MP3|256 kbps]<Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_894491.jpg" />
+  <img src="Z:/picture/009/save_picture_894491.jpg" />
 </div>
 
 
@@ -350,7 +405,7 @@ VA - Crystal Pop Jam Party (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893890.jpg" />
 </div>
 
 
@@ -379,7 +434,7 @@ VA - German Top 100 Single Charts 03.09.2021 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893813.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ VA - German Top 100 Single Charts 27.03.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893548.jpg" />
 </div>
 
 
@@ -437,7 +492,7 @@ VA - Самые Популярные Хиты Радиостанций (2016) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893520.jpg" />
 </div>
 
 
@@ -466,7 +521,7 @@ VA - Русское Радио. Лучшее '2021 (04.09.2021) (2021) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893396.jpg" />
 </div>
 
 
@@ -495,7 +550,7 @@ VA - Снежный хит-парад. Русские хиты выпуск №6
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893047.jpg" />
 </div>
 
 
@@ -524,7 +579,7 @@ VA - Radio DFM Top D-Chart Март 2020 [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893011.jpg" />
 </div>
 
 
@@ -553,7 +608,7 @@ VA - Полный отрыв. Зимние хиты выпуск № 7 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892897.jpg" />
 </div>
 
 
@@ -582,7 +637,7 @@ VA - 8 Марта. Праздничный хит-парад №1 (2016) [MP3|192
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891460.jpg" />
 </div>
 
 
@@ -610,7 +665,7 @@ VA - Музыка для двоих (2016) [MP3|192-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891342.jpg" />
 </div>
 
 
@@ -639,7 +694,7 @@ VA - 8 Марта Хиты Для Единственных И Любимых (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889692.jpg" />
+  <img src="Z:/picture/005/save_picture_889692.jpg" />
 </div>
 
 
@@ -668,7 +723,7 @@ VA - Зимний музобоз русский. Версия № 6 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889601.jpg" />
+  <img src="Z:/picture/005/save_picture_889601.jpg" />
 </div>
 
 
@@ -682,64 +737,6 @@ VA - Зимний музобоз русский. Версия № 6 (2017) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AF57C27BCF88DC7EE0A74B97FB94F41CE187647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102663   (889595) от 10.02.2017
-
-VA - Снежный популярный отрыв. Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Иван Тетенов - Как Мне Жить 4:26
-002. Станислав Сорока - Иди За Мной 3:53
-003. Балаган Лимитед - Полюби 3:46
-004. Jolya Pi - Не Играем 2:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3234E30A585563A971B98D513A0C3AEB7F6175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102657   (889580) от 10.02.2017
-
-VA - Зимняя 100-ка хитовая выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889580.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Магомед Аликперов - Обними 3:40
-002. Mika'l Feat. Remak - Ты Не Забыла 2:55
-003. Иван Розин - Плохой Хороший 2:55
-004. Кристалл - Летим Вдвоем 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:556947E4783B3DE0787350297D5FAD3406501046
 ```
 
 https://mybot314.ru/tekegram_catalog/

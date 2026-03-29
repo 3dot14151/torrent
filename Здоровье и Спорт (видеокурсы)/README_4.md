@@ -1,3 +1,32 @@
+###  Публикация: 875370   (610166) от 26.06.2015
+
+Сергей Бадюк | Страна героев (2015) PCRec
+
+>>След.
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_610166.jpg" />
+</div>
+
+
+###  Подробнее
+
+60-ти дневный марафон "Страна героев" с Сергеем Бадюком!
+‡ Комплекс ежедневных упражнений от Сергея Бадюка и профессиональных экспертов
+‡ Уникальные секреты успеха от Чемпионов в различных видах спорта
+‡ Комплекс тренировок, который быстро приведет тебя в форму(   Читать дальше...   )Жанр: СпортПродолжительность: 07:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67B6586D60760B16C631EC6A823B99485BD022B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149403   (599984) от 11.07.2017
 
 Dede Barbanti | BBX Hardcore (2011) DVDRip [H.264] [EN]
@@ -6,7 +35,7 @@ Dede Barbanti | BBX Hardcore (2011) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599984.jpg" />
+  <img src="Z:/picture/008/save_picture_599984.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596452.jpg" />
+  <img src="Z:/picture/008/save_picture_596452.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585823.jpg" />
+  <img src="Z:/picture/008/save_picture_585823.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584860.jpg" />
+  <img src="Z:/picture/008/save_picture_584860.jpg" />
 </div>
 
 
@@ -112,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579724.jpg" />
+  <img src="Z:/picture/008/save_picture_579724.jpg" />
 </div>
 
 
@@ -143,7 +172,7 @@ beachbody | Beachbody Power 90 In-Home Boot Camp (Tony Horton) (2 диска) [2
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579634.jpg" />
+  <img src="Z:/picture/008/save_picture_579634.jpg" />
 </div>
 
 
@@ -176,7 +205,7 @@ Jillian Michaels | Extreme Shed & Shred (2011) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572224.jpg" />
+  <img src="Z:/picture/008/save_picture_572224.jpg" />
 </div>
 
 
@@ -202,7 +231,7 @@ Ashley Borden | 900 Calorie Burn (2015) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572207.jpg" />
+  <img src="Z:/picture/008/save_picture_572207.jpg" />
 </div>
 
 
@@ -229,7 +258,7 @@ Yoga BeachBody Studio | 3 Week Yoga Retreat (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570109.jpg" />
+  <img src="Z:/picture/008/save_picture_570109.jpg" />
 </div>
 
 
@@ -255,7 +284,7 @@ Steve Cotter | Kettlebell University (2017) WEBRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560248.jpg" />
+  <img src="Z:/picture/008/save_picture_560248.jpg" />
 </div>
 
 
@@ -281,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558478.jpg" />
+  <img src="Z:/picture/008/save_picture_558478.jpg" />
 </div>
 
 
@@ -309,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556537.jpg" />
+  <img src="Z:/picture/008/save_picture_556537.jpg" />
 </div>
 
 
@@ -337,7 +366,7 @@ BeMax Fitness | BodyMax (2017) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554002.jpg" />
+  <img src="Z:/picture/008/save_picture_554002.jpg" />
 </div>
 
 
@@ -363,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543444.jpg" />
+  <img src="Z:/picture/008/save_picture_543444.jpg" />
 </div>
 
 
@@ -392,7 +421,7 @@ Sh1ft | Sh1ft & L1ft HIIT Workout (2017-2018) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534620.jpg" />
+  <img src="Z:/picture/008/save_picture_534620.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Leandro Carvalho | Brazil Butt Lift Carnivale (2016) HDTVRip [H.264/720p-LQ] [EN
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528398.jpg" />
+  <img src="Z:/picture/008/save_picture_528398.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Daily Burn | Undefeated (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525126.jpg" />
+  <img src="Z:/picture/008/save_picture_525126.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523166.jpg" />
+  <img src="Z:/picture/008/save_picture_523166.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517017.jpg" />
+  <img src="Z:/picture/008/save_picture_517017.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508864.jpg" />
+  <img src="Z:/picture/008/save_picture_508864.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Anthony DiLuglio | The Art of Strength (2006) DVDRip [H.264/1080p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492071.jpg" />
+  <img src="Z:/picture/008/save_picture_492071.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ Anja Garcia | Inferno Heart Rate (2016) HDTVRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485673.jpg" />
+  <img src="Z:/picture/008/save_picture_485673.jpg" />
 </div>
 
 
@@ -604,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485358.jpg" />
+  <img src="Z:/picture/008/save_picture_485358.jpg" />
 </div>
 
 
@@ -630,7 +659,7 @@ Jillian Michaels | Killer Abs (2012) DVDRip [EN, POR]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485357.jpg" />
+  <img src="Z:/picture/008/save_picture_485357.jpg" />
 </div>
 
 
@@ -658,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484273.jpg" />
+  <img src="Z:/picture/008/save_picture_484273.jpg" />
 </div>
 
 
@@ -669,32 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A9960585A15FAF8A41BCC297BC5079C2DD078EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159470   (483729) от 20.08.2017
-
-Daily Burn | Power Cardio (2017) HDTVRip [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шестинедельная программа Power Cardio предлагает восемь новых тренировок, в которой смешиваются  кардио и силовые упражнения. Кроме того, вы получаете смесь кикбоксинга, атлетической тренировки, базовой подготовки и мобильности.Производство: СШАЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 04:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D94BF6DC78BEC26E1ECD52A48E17E0D2F223E8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

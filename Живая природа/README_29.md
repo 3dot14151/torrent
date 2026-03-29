@@ -1,3 +1,55 @@
+###  Публикация: 912230   (340236) от 18.11.2016
+
+Viasat Nature: Австралия: путешествие сквозь эволюцию / Australia - A Journey Through Evolution (2014) SATRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340236.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате отделения Австралии от основного континента миллионы лет назад, остров оказался изолирован океаном. Благодаря такому особому расположению материка и его отдаленности от других земель, а также большому разнообразию погодных условий в Австралии развивалась своя собственная, совершенно особенная экосистема, эволюционировавшая на протяжении многих миллиардов (   Читать дальше...   )Телекомпания: Explora FilmsЖанр: Документальный, познавательныйРежиссер: Laura Casamayor del RinconПеревод: Одноголосый закадровый, профессиональный, переведено и озвучено на студии "SDI Media" перевод Татьяны Вишневской, текст читает Юрий БольшаковПродолжительность: ~ 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A976091439BE67B7041EF014F51C40971D8082D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954730   (339967) от 08.11.2015
+
+Друг дельфинов / Friends of dolphins (2003) TVRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харди Джонс задался целью, которая когда-то считалась невыполнимой, поплавать в открытом море с дикими дельфинами, как член стаи и друг. Но то, что начиналось, как попытка общения, закончилась в компании по охране дельфинов от людской жадности. Вот уже двадцать пять лет он предан своему делу, став защитником дельфинов...Производство: СШАТелекомпания: RamblerЖанр: ДокументальныйРежиссер: Харди ДжонсПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9198E61CBF38BF251E3D48F1959D5E19644361BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180804   (337772) от 05.11.2017
 
 Море жизни / The Sea Of Life (2015) SATRip
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337772.jpg" />
+  <img src="Z:/picture/008/save_picture_337772.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335429.jpg" />
+  <img src="Z:/picture/008/save_picture_335429.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335091.jpg" />
+  <img src="Z:/picture/008/save_picture_335091.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334942.jpg" />
+  <img src="Z:/picture/008/save_picture_334942.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334466.jpg" />
+  <img src="Z:/picture/008/save_picture_334466.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333821.jpg" />
+  <img src="Z:/picture/008/save_picture_333821.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333755.jpg" />
+  <img src="Z:/picture/008/save_picture_333755.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333674.jpg" />
+  <img src="Z:/picture/008/save_picture_333674.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332918.jpg" />
+  <img src="Z:/picture/008/save_picture_332918.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332808.jpg" />
+  <img src="Z:/picture/008/save_picture_332808.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332488.jpg" />
+  <img src="Z:/picture/008/save_picture_332488.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332469.jpg" />
+  <img src="Z:/picture/008/save_picture_332469.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332365.jpg" />
+  <img src="Z:/picture/008/save_picture_332365.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331999.jpg" />
+  <img src="Z:/picture/008/save_picture_331999.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331185.jpg" />
+  <img src="Z:/picture/008/save_picture_331185.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330719.jpg" />
+  <img src="Z:/picture/008/save_picture_330719.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329819.jpg" />
+  <img src="Z:/picture/008/save_picture_329819.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328811.jpg" />
+  <img src="Z:/picture/008/save_picture_328811.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328722.jpg" />
+  <img src="Z:/picture/008/save_picture_328722.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324475.jpg" />
+  <img src="Z:/picture/008/save_picture_324475.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323403.jpg" />
+  <img src="Z:/picture/008/save_picture_323403.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322778.jpg" />
+  <img src="Z:/picture/008/save_picture_322778.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321392.jpg" />
+  <img src="Z:/picture/008/save_picture_321392.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321265.jpg" />
+  <img src="Z:/picture/008/save_picture_321265.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2358E262FC70F17277B8ED83C0CDDFCD72C5D190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582567   (320777) от 10.10.2022
-
-Дикий юг / Wild South (2019) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один из самых живописных, необыкновенных и красочных уголков планеты – западное побережье Южной Африки. Место, где встречаются два океана – теплый Индийский и холодный Атлантический. Удивительное сочетание бескрайней пустыни, высоких гор, водопадов и каньонов. Поистине космические пейзажи. Потрясающие редкие животные. Всё это в увлекательном фильме "Дикий юг".Производство: Турция, Happy Film Entertainment, Yerli FilmЖанр: документальный, природа, флора, фаунаРежиссер: Бурак ДогансойсалПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6270F9725850B86E23A3D52B2531745D1E883C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421283   (319629) от 04.11.2020
-
-Дикая территория / Неизведанные горизонты / Undiscovered Vistas (2018) UHDTVRip [H.264/1080p] (сезон 1, серии 1-3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319629.jpg" />
-</div>
-
-
-###  Подробнее
-
-По всему миру находится множество малоизвестных, захватывающих дух природных условий. Познакомьтесь с этими областями выдающейся природной красоты, их дикой природой и уникальными историческими силами, которые их формируют.
-imdbПроизводство: США / Blue Ant Media, Canada Media FundЖанр: Документальный, Природа, Флора, ФаунаПеревод: Одноголосый профессиональныйПродолжительность: 3 х ~ 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67537C256729318991833580A4DA26F111D6D1B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

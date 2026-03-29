@@ -6,7 +6,7 @@ VA - Vocal Trance Classics (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766025.jpg" />
+  <img src="Z:/picture/008/save_picture_766025.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Anjunabeats in Miami (2018) [FLAC|Lossless|image + .cue] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764898.jpg" />
+  <img src="Z:/picture/008/save_picture_764898.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Jaytech Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752116.jpg" />
+  <img src="Z:/picture/008/save_picture_752116.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Uplifting Only - Orchestral Trance Year Mix 2020 (Mixed by Ori Uplift) (202
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743636.jpg" />
+  <img src="Z:/picture/008/save_picture_743636.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Female Vocal Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vocal Tra
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739555.jpg" />
+  <img src="Z:/picture/008/save_picture_739555.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Richard Durand - Reactivate (2022) [FLAC|Lossless|WEB|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736895.jpg" />
+  <img src="Z:/picture/008/save_picture_736895.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ InnerSync - Free Spirit (2022) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735368.jpg" />
+  <img src="Z:/picture/008/save_picture_735368.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Above & Beyond - Anjunabeats Volume 15 (2020) 2CD, DJ Mix [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732902.jpg" />
+  <img src="Z:/picture/008/save_picture_732902.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ VA - Spectra Of Trance Vol.2 (Mixed by Daniel Kandi) (2017) [FLAC|Lossless|WEB|t
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732163.jpg" />
+  <img src="Z:/picture/008/save_picture_732163.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732075.jpg" />
+  <img src="Z:/picture/008/save_picture_732075.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Solarstone - .---- (2017) [FLAC|Lossless|WEB|tracks] <Progressive Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732074.jpg" />
+  <img src="Z:/picture/008/save_picture_732074.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ VA - A State Of Trance 2017 (Mixed by Armin Van Buuren) (2017) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731848.jpg" />
+  <img src="Z:/picture/008/save_picture_731848.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ ATB - neXt (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Downtempo, 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731608.jpg" />
+  <img src="Z:/picture/008/save_picture_731608.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - The Sound Of: Arkham Knights (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728817.jpg" />
+  <img src="Z:/picture/008/save_picture_728817.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Blank & Jones - Beyond Time (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728762.jpg" />
+  <img src="Z:/picture/008/save_picture_728762.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Paul Oakenfold - Dreamstate Volume One (Mixed by Paul Oakenfold) (2017) [FL
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727322.jpg" />
+  <img src="Z:/picture/008/save_picture_727322.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ VA - Pure Bliss Vocals - Spring (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Vo
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726352.jpg" />
+  <img src="Z:/picture/008/save_picture_726352.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ ATB - 8 Album, 3 Compilation (1999-2007) (17CD)[FLAC|Lossless]<Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725282.jpg" />
+  <img src="Z:/picture/005/save_picture_725282.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VA - DJ Robert Miles - In The Mix (1997) Mixed [FLAC|Lossless|image + .cue] <Bre
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725085.jpg" />
+  <img src="Z:/picture/008/save_picture_725085.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - A State Of Trance 900 (The Official Album) - Extended Versions (2019) [FLAC
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720863.jpg" />
+  <img src="Z:/picture/008/save_picture_720863.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Bobina - Speed Breaker (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720310.jpg" />
+  <img src="Z:/picture/008/save_picture_720310.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ VA - Woman Trance Voices Vol. 13 (2015) [FLAC|Lossless|tracks+.cue] <Trance, Pro
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720177.jpg" />
+  <img src="Z:/picture/008/save_picture_720177.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ VA - Discover Trance 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting T
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695942.jpg" />
+  <img src="Z:/picture/008/save_picture_695942.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ VA - Best Of Uplifting Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Upl
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692770.jpg" />
+  <img src="Z:/picture/008/save_picture_692770.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Armin Van Buuren - The Best Of Armin Only (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688885.jpg" />
+  <img src="Z:/picture/008/save_picture_688885.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Robert Miles - Dreamland (1996) Japanese Edition [FLAC|Lossless|tracks + .cue] <
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687731.jpg" />
+  <img src="Z:/picture/008/save_picture_687731.jpg" />
 </div>
 
 

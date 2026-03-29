@@ -1,3 +1,86 @@
+###  Публикация: 1324514   (421143) от 11.09.2019
+
+Деннис Уитли | Собрание произведений [16 книг] (1992 - 2015) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_421143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деннис Уитли (Dennis Yeats Wheatley) - английский писатель, член Королевского общества (по двум отделениям – литературы и искусства), автор более 60 романов и сборников рассказов. Его книги вышли общим тиражом свыше 40 миллионов экземпляров и были переведены на более чем 30 языков мира.
+Родился 8 января 1897 года в Южном Лондоне в семье виноторговца, снабжавшего (   Читать дальше...   )Жанр: Мистика, Ужасы, Фантастика, Приключения, ТриллерФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04F3F04830ED65B1848312ECAA1731D486299FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324438   (420976) от 11.09.2019
+
+Деннис Маккирнан | Собрание произведений [10 книг] (2002 - 2004) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деннис Маккирнан (полное имя — Деннис Лестер Маккирнан / Dennis Lester McKiernan) родился 4 апреля 1932 года в Моберли (штат Миссури), в семье рабочих.
+В 18 лет он пошел служить в ВВС, где прослужил четыре года. В годы корейской войны был механиком радарной установки. После демобилизации Маккирнан по военной стипендии окончил колледж университета штата Миссури, где (   Читать дальше...   )Жанр: Фантастика, ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3566F4C5B5A0485989C81A41AAE97BFFA1B58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 395686   (420161) от 03.10.2011
+
+Сидни Шелдон | Сборник произведений [29 книг] (2010) [FB2, DOC, RTF]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_420161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сидни (Сидней) Шелдон (Sidney Sheldon, наст. имя - Сидни Шехтель, Sidney Schechtel)
+11 февраля 1917 года — 30 января 2007 года
+Американский писатель, сценарист, режессер, продюссор.
+(   Читать дальше...   )Жанр: Детективы, ТриллерыФормат: FB2, DOC, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E868E00F1B221ACAEFD93AAFBB36C8740FDEB25F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167158   (417201) от 20.09.2017
 
 Мольер | Собрание сочинений [4 тома] (1936-1939) [DJVU]
@@ -6,7 +89,7 @@
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417201.jpg" />
+  <img src="Z:/picture/008/save_picture_417201.jpg" />
 </div>
 
 
@@ -34,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416631.jpg" />
+  <img src="Z:/picture/008/save_picture_416631.jpg" />
 </div>
 
 
@@ -63,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415460.jpg" />
+  <img src="Z:/picture/008/save_picture_415460.jpg" />
 </div>
 
 
@@ -90,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413463.jpg" />
+  <img src="Z:/picture/008/save_picture_413463.jpg" />
 </div>
 
 
@@ -117,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413139.jpg" />
+  <img src="Z:/picture/008/save_picture_413139.jpg" />
 </div>
 
 
@@ -143,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408984.jpg" />
+  <img src="Z:/picture/008/save_picture_408984.jpg" />
 </div>
 
 
@@ -169,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407034.jpg" />
+  <img src="Z:/picture/008/save_picture_407034.jpg" />
 </div>
 
 
@@ -196,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405801.jpg" />
+  <img src="Z:/picture/008/save_picture_405801.jpg" />
 </div>
 
 
@@ -228,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403504.jpg" />
+  <img src="Z:/picture/008/save_picture_403504.jpg" />
 </div>
 
 
@@ -255,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403443.jpg" />
+  <img src="Z:/picture/008/save_picture_403443.jpg" />
 </div>
 
 
@@ -286,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400862.jpg" />
+  <img src="Z:/picture/008/save_picture_400862.jpg" />
 </div>
 
 
@@ -313,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399902.jpg" />
+  <img src="Z:/picture/008/save_picture_399902.jpg" />
 </div>
 
 
@@ -340,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398874.jpg" />
+  <img src="Z:/picture/008/save_picture_398874.jpg" />
 </div>
 
 
@@ -367,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395215.jpg" />
+  <img src="Z:/picture/008/save_picture_395215.jpg" />
 </div>
 
 
@@ -393,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386715.jpg" />
+  <img src="Z:/picture/008/save_picture_386715.jpg" />
 </div>
 
 
@@ -420,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380618.jpg" />
+  <img src="Z:/picture/008/save_picture_380618.jpg" />
 </div>
 
 
@@ -446,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376172.jpg" />
+  <img src="Z:/picture/008/save_picture_376172.jpg" />
 </div>
 
 
@@ -472,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374746.jpg" />
+  <img src="Z:/picture/008/save_picture_374746.jpg" />
 </div>
 
 
@@ -500,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374534.jpg" />
+  <img src="Z:/picture/008/save_picture_374534.jpg" />
 </div>
 
 
@@ -526,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_373413.jpg" />
+  <img src="Z:/picture/005/save_picture_373413.jpg" />
 </div>
 
 
@@ -552,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372817.jpg" />
+  <img src="Z:/picture/008/save_picture_372817.jpg" />
 </div>
 
 
@@ -579,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372653.jpg" />
+  <img src="Z:/picture/008/save_picture_372653.jpg" />
 </div>
 
 
@@ -608,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372416.jpg" />
+  <img src="Z:/picture/008/save_picture_372416.jpg" />
 </div>
 
 
@@ -620,85 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DD904CE9912B49F51276E52867CBA4387219EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722978   (360259) от 16.11.2013
-
-Дэвид Хьюсон | Собрание сочинений [5 книг]  (2005-2013)  [RTF, FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Хьюсон - известный английский автор детективов и триллеров.
-Следствие ведет римский детектив Ник Коста. Он всегда успешно расследует сложные преступления, связанные с мистикой и тайнами прошлых лет.Формат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF723856D501909B395C7D83C1FED97D5A118B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 407849   (357768) от 08.11.2011
-
-Джеймс Герберт | Собрание книг [14 книг] (1974-2006) [FB2]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Герберт (полное имя — Джеймс Джон Герберт / James John Herbert) — один из самых известных английских писателей в жанре ужасов. Родился (8 апреля 1943) в лондонском Ист Энде в семье уличных торговцев. Начинал как рок-н-ролльщик, работал художественным директором в крупном рекламном агентстве, учился в университете Мидлсекс в Лондоне. Первый роман - "The (   Читать дальше...   )Жанр: Ужасы и мистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB1457C08A441F9FEC408C6DCB035B1B42DEE10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384953   (355207) от 21.10.2020
-
-Ричард  Морган | Собрание произведений [11 книг] (2010 - 2020) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ричард Кингсли Морган (Richard Kingsley Morgan) родился в 1965 году в Лондоне. Его детство прошло в деревне Хеверсет (Hethersett), расположенной примерно в шести милях от Нориджа (Norwich). С детства Ричард мечтал сочинять книги и путешествовать. В 1987 он окончил Куинс-Колледж в Кэмбриджском университете. Затем, отучившись в Лондоне на четырёхнедельных курсах по (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Космоопера, Киберпанк, Боевая фантастика, Детективная фантастикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656B2DE91DA68E7D806346EE7EA529F64DFF830F
 ```
 
 https://mybot314.ru/tekegram_catalog/

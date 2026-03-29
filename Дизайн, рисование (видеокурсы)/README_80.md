@@ -1,3 +1,29 @@
+###  Публикация: 1429836   (175765) от 07.12.2020
+
+CG Cookie, Jonathan Lampel | Основы динамической симуляции в Blender 2.77 / Fundamentals of Dynamics in Blender 2.77 (2016) PCRec [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_175765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс познакомит вас с миром динамического моделирования! Такие вещи, как дым, огонь, мягкие и твердые падающие предметы, ткань, льющиеся жидкости и многое другое - все это достигается с помощью динамического моделирования в Blender. Ключ в том, что компьютер делает большую часть работы за вас, в отличие от ручной анимации сверхсложных движений, таких как ткань, (   Читать дальше...   )Производство: CG CookieЖанр: 3D моделирование, СимуляцияЯзык озвучки: АнглийскийПродолжительность: 02:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A7E52B3BC3220559EE21E89A002EC0DA79495D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429838   (175722) от 07.12.2020
 
 Udemy, Darrin Lile | Blender 2.83 и захват движения / Blender 2.83 and Motion Capture (2020) PCRec [EN / EN Sub]
@@ -6,7 +32,7 @@ Udemy, Darrin Lile | Blender 2.83 и захват движения / Blender 2.8
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175722.jpg" />
+  <img src="Z:/picture/004/save_picture_175722.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ ArtStation, Rico Cilliers | Введение в скульптинг в Blender 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175612.jpg" />
+  <img src="Z:/picture/004/save_picture_175612.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Gumroad, Evolving CG | Создание малыша Йоды / Creating Baby Yo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174907.jpg" />
+  <img src="Z:/picture/004/save_picture_174907.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Skillshare, Simon Van Den Hende| Основы скриптинга на Python �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174873.jpg" />
+  <img src="Z:/picture/004/save_picture_174873.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174789.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Tolkovoprod, Анастасия Мазуровская | I am designer. Тари
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174788.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Schoolism, Bobby Chiu | Цифровое рисование с Бобби Чу /
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174712.jpg" />
+  <img src="Z:/picture/004/save_picture_174712.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174678.jpg" />
+  <img src="Z:/picture/004/save_picture_174678.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ XYZ School | Blender 2.8 Intro (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174670.jpg" />
+  <img src="Z:/picture/004/save_picture_174670.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Dream & Draw Art School, Анастасия Козлова | Волшебный 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174250.jpg" />
 </div>
 
 
@@ -281,7 +307,7 @@ Granich.Design, Вадим Гранич | Графсистема Воздух (2
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174230.jpg" />
 </div>
 
 
@@ -309,7 +335,7 @@ FlippedNormals, David Saiz | Hard Surface Modeling for Games (2023) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173965.jpg" />
 </div>
 
 
@@ -335,7 +361,7 @@ The Gnomon Workshop, Christophe Desse | Introduction to Substance Painter 2020 W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170878.jpg" />
 </div>
 
 
@@ -362,7 +388,7 @@ profileschool, Дмитрий Ларионов | Монтаж в Davinci Resolve
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170759.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ VideoSmile, Михаил Бычков | Супер 2D моушн-графика 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170709.jpg" />
 </div>
 
 
@@ -414,7 +440,7 @@ Udemy, Nikolay Naydenov | Head anatomy and sculpting exercises course (2022) PCR
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170698.jpg" />
 </div>
 
 
@@ -442,7 +468,7 @@ Udemy, Darrin Lile | Blender 2.8 UV Mapping (2019) PCRec [EN / EN Sub]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170223.jpg" />
 </div>
 
 
@@ -468,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167865.jpg" />
 </div>
 
 
@@ -494,7 +520,7 @@ FXPHD, Jon Gress | Production in Unreal Engine 4 (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167516.jpg" />
 </div>
 
 
@@ -523,7 +549,7 @@ Pluralsight, Stephen Wells | ZBrush FiberMesh Fundamentals (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167441.jpg" />
 </div>
 
 
@@ -549,7 +575,7 @@ Udemy, Peter Sidoriak | Advanced VFX Compositing with Nuke: Green Screen Keying 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167369.jpg" />
 </div>
 
 
@@ -577,7 +603,7 @@ Udemy, Bhaumik Patel | Fast animation and rigging techniques using Maya 2017 (20
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167362.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167106.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Liveclasses, Никита Чесноков | Blender: быстрый старт 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166206.jpg" />
 </div>
 
 
@@ -663,7 +689,7 @@ Liveclasses, Никита Чесноков | Blender: расширенные в�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166203.jpg" />
 </div>
 
 
@@ -674,32 +700,6 @@ Liveclasses, Никита Чесноков | Blender: расширенные в�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBB66D4A04647BC1DA209AECACC41AEAECF925AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516374   (165891) от 11.12.2021
-
-Digital Tutors, Ron Friedman | Animating a Dialogue Scene in Maya (2013) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165891.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом видеоуроке по Maya мы изучим рабочий процесс создания диалога в сцене - от планирования анимации и до её конечной стадии. Мы рассмотрим, почему основательное и тщательное предварительное планирование анимации перед непосредственно её созданием, является важным и почему работа в этом порядке является выгодной для качественного и быстрого выхода проекта в целом. (   Читать дальше...   )Производство: Digital TutorsЖанр: АнимацияПродолжительность: 03:33:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:260B254F35429749ADF5542AEBAEF22B2BC73E57
 ```
 
 https://mybot314.ru/tekegram_catalog/

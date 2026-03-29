@@ -1,3 +1,109 @@
+###  Публикация: 1571721   (429752) от 23.08.2022
+
+Sublime Merge Build 2077 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sublime Merge - клиент системы контроля версий, который сочетает в себе знакомый интерфейс редактора кода и функции Git, например: возможность контролировать слияние версий, искать выбранные коммиты или просматривать историю изменений.Тип издания: macOS SoftwareРелиз состоялся: 22.08.2022Разработчик: © 2022 Sublime HQПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCB42100ECFD97541C2ABDF2BF03326D68E5885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411241   (429745) от 24.09.2020
+
+Wondershare DVD Creator 6.1.4.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare DVD Creator - программа для создания нового DVD из всех популярных видео-форматов.
+Основные возможности: создание DVD с полноценными меню и субтитрами; выбор из имеющихся пред настроек или собственная настройка параметров видео - битрейта, фреймрейда, качества и других параметров DVD, поддержка NTSC и PAL, поддержка соотношений картинки 4:3 и 16:9, предварительный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2020Разработчик: Wondershare Software Co., LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EC14637AC2D4B1322BB800B679FAF074EB083B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411145   (429743) от 24.09.2020
+
+QLab Pro 4 v4.6.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429743.jpg" />
+</div>
+
+
+###  Подробнее
+
+QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 22.09.2020Разработчик: Figure 53, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCABE554C62900A4217BB2FEA9A3F11493199D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411192   (429735) от 24.09.2020
+
+Wondershare Recoverit 9.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_429735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 23.09.2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3DBE24643F8EA428E14D306402987BC47884AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411170   (429734) от 24.09.2020
 
 Cycling'74 Max 8 v8.1.6 [En]
@@ -6,7 +112,7 @@ Cycling'74 Max 8 v8.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429734.jpg" />
+  <img src="Z:/picture/008/save_picture_429734.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Easy Data Transform 1.33.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429672.jpg" />
+  <img src="Z:/picture/008/save_picture_429672.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Aiseesoft Mac Video Converter Ultimate 10.3.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429670.jpg" />
+  <img src="Z:/picture/008/save_picture_429670.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ PDF Reader Pro Edition 2.8.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429662.jpg" />
+  <img src="Z:/picture/008/save_picture_429662.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Aiseesoft Audio Converter 9.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429620.jpg" />
+  <img src="Z:/picture/008/save_picture_429620.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Sketch 92 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429571.jpg" />
+  <img src="Z:/picture/008/save_picture_429571.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ GoodTask 2.2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429417.jpg" />
+  <img src="Z:/picture/008/save_picture_429417.jpg" />
 </div>
 
 
@@ -190,7 +296,7 @@ Airmail 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429411.jpg" />
+  <img src="Z:/picture/008/save_picture_429411.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ SnippetsLab 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429405.jpg" />
+  <img src="Z:/picture/008/save_picture_429405.jpg" />
 </div>
 
 
@@ -245,7 +351,7 @@ ON1 Portrait AI 2021 v15.0.0.9581 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429389.jpg" />
+  <img src="Z:/picture/008/save_picture_429389.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ WinZip Mac Pro 8 v8.0.5152 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429385.jpg" />
+  <img src="Z:/picture/008/save_picture_429385.jpg" />
 </div>
 
 
@@ -298,7 +404,7 @@ Sip Pro 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429384.jpg" />
+  <img src="Z:/picture/008/save_picture_429384.jpg" />
 </div>
 
 
@@ -325,7 +431,7 @@ Airmail 3 v3.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429383.jpg" />
+  <img src="Z:/picture/008/save_picture_429383.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ Chatology 1.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429379.jpg" />
+  <img src="Z:/picture/008/save_picture_429379.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ Postbox 6.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429375.jpg" />
+  <img src="Z:/picture/008/save_picture_429375.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ iPulse 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429342.jpg" />
+  <img src="Z:/picture/008/save_picture_429342.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ IconFly - Create icons from images 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429264.jpg" />
+  <img src="Z:/picture/008/save_picture_429264.jpg" />
 </div>
 
 
@@ -460,7 +566,7 @@ Live Home 3D: Standard Edition 3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429252.jpg" />
+  <img src="Z:/picture/008/save_picture_429252.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ Tenorshare iCareFone 6.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429238.jpg" />
+  <img src="Z:/picture/008/save_picture_429238.jpg" />
 </div>
 
 
@@ -516,7 +622,7 @@ iThoughtsX 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429180.jpg" />
+  <img src="Z:/picture/008/save_picture_429180.jpg" />
 </div>
 
 
@@ -542,7 +648,7 @@ Yummy FTP 1.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429171.jpg" />
+  <img src="Z:/picture/008/save_picture_429171.jpg" />
 </div>
 
 
@@ -571,7 +677,7 @@ Commander One PRO 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428948.jpg" />
+  <img src="Z:/picture/008/save_picture_428948.jpg" />
 </div>
 
 
@@ -585,115 +691,6 @@ Commander One - универсальный инструмент для легк�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06794E25648F684F2145C9A61277BF5CB8AF2463
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250023   (428612) от 26.09.2018
-
-ScreenFlow 8.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428612.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenFlow  - создаем свои скринкасты
-Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его свежекупленном маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
-
-Простая, но крайне мощная программа для захвата и записи (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2877F1A16130A6C08E8ECAF91BA348205A14CF14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166097   (428516) от 15.09.2017
-
-Bartender 3 Beta v.3.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bartender - утилита для простой организации иконок приложений в статус баре.
-Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1975AA1AAAE8872C6AC2D1F74538F4A3F00AB7A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064370   (428384) от 19.10.2016
-
-Layouts for Keynote 3.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Layouts for Keynote представляет собой набор из 79 тем, созданных для уникальных слайд-шоу с помощью команды разработчиков Jumsoft.  Каждая тема содержит, по меньшей мере, 20 мастер-слайдов, охватывающих все, начиная от основных макетов до сложных диаграмм и иллюстраций. Все фото слайды имеют медиа-заполнители  и большинство элементов визуализации можно легко редактировать. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 октября 2016Разработчик: JumsoftПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D982C058C53562616BD8AE68E5B78793D47A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250043   (428225) от 26.09.2018
-
-VMware Fusion Pro 11.0.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428225.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Fusion: удобная и мощная виртуальная машина для Mac
-С помощью решения VMware Fusion пользователи Mac могут запускать ОС Windows и сотни других операционных систем одновременно с приложениями Mac без перезагрузки. Решение Fusion сочетает в себе удобство работы для домашних пользователей и широкие возможности для ИТ-специалистов, разработчиков и организаций. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: VMware, Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D73C23CA267A9A0C1B15F52CCB7385632EF6E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

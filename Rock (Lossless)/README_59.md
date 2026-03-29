@@ -1,3 +1,148 @@
+###  Публикация: 1028257   (690801) от 22.06.2016
+
+The Zombies - Still Got That Hunger (2015) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moving On (4:00)
+02. Chasing the Past (4:05)
+03. Edge of the Rainbow (4:10)
+04. New York (4:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A489F4403EEFF26FB4D68BD559A336A2BB270AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288997   (690512) от 14.03.2019
+
+Allister - Best Of... 20 Years & Counting (2019) Japan Edition [FLAC|Lossless|tracks + .cue] <Rock, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690512.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stay With Me
+2. Radio Player
+3. Runaway
+4. Somewhere On Fullerton(   Читать дальше...   )Жанр: Rock, Pop-PunkПродолжительность: 01:03:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13B746FB587C3A3239BE35FD1FC1322B54FDB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289023   (690389) от 14.03.2019
+
+Kasey Chambers & The Fireside Disciples - Campfire (2018) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690389.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	The Campfire Song (feat. Alan Pigram) 	3:33
+2 	Go On Your Way 	2:02
+3 	Orphan Heart 	3:13
+4 	Goliath Is Dead 	2:29(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BD2F50B90654B317110B0C473ACB6B24B6E3E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288690   (690380) от 14.03.2019
+
+Chris De Burgh - This Way Up (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Silent World
+02. This Is Love
+03. This Weight On Me
+04. Here Is Your Paradise(   Читать дальше...   )Жанр: Soft RockПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C392958A5622164001F2A629AAC8060D525CAF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403523   (690331) от 20.08.2020
+
+Whitney - Light Upon the Lake (2016) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	No Woman	[04:00]
+02.	The Falls	[02:22]
+03.	Golden Days	[04:07]
+04.	Dave's Song	[03:04](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A3FA737DFAC837102492ED3ED959AB273CA9A21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134394   (689460) от 15.05.2017
 
 Tusmorke - Hinsides (2017) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Prog Folk, Psychedelic Folk>
@@ -6,7 +151,7 @@ Tusmorke - Hinsides (2017) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689460.jpg" />
+  <img src="Z:/picture/008/save_picture_689460.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ God Is an Astronaut - Epitaph (2018) Napalm Records [FLAC|Lossless|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689428.jpg" />
+  <img src="Z:/picture/008/save_picture_689428.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Graham Gouldman - Modesty Forbids (2020) [FLAC|Lossless|image + .cue] <Rock, Sof
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688631.jpg" />
+  <img src="Z:/picture/008/save_picture_688631.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Jack White - Blunderbuss (2012) Japanese Edition [FLAC|Lossless]<Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687403.jpg" />
+  <img src="Z:/picture/008/save_picture_687403.jpg" />
 </div>
 
 
@@ -119,7 +264,7 @@ Old Future Crash - Outside Time (2017) [FLAC|Lossless|WEB-DL|tracks] <Art Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687351.jpg" />
+  <img src="Z:/picture/008/save_picture_687351.jpg" />
 </div>
 
 
@@ -148,7 +293,7 @@ Eric Clapton - Forever Man (2015) 3CD [FLAC|Lossless]<Rock, Blues, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687327.jpg" />
+  <img src="Z:/picture/008/save_picture_687327.jpg" />
 </div>
 
 
@@ -177,7 +322,7 @@ VA - Capital Gold Rock 'n' Roll Legends (2003) Box Set, 2CD [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686977.jpg" />
+  <img src="Z:/picture/008/save_picture_686977.jpg" />
 </div>
 
 
@@ -206,7 +351,7 @@ Neal Morse - Life & Times (2018) [FLAC|Lossless|tracks + .cue] <Rock, Acoustic>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686746.jpg" />
+  <img src="Z:/picture/008/save_picture_686746.jpg" />
 </div>
 
 
@@ -235,7 +380,7 @@ Elvis Presley - In Memory Volume 3 (1993) [FLAC|Lossless|image + .cue] <Rock & R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686630.jpg" />
+  <img src="Z:/picture/008/save_picture_686630.jpg" />
 </div>
 
 
@@ -264,7 +409,7 @@ VA - Play Station (приложение Audio CD к журналу Play #06'07) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686589.jpg" />
+  <img src="Z:/picture/008/save_picture_686589.jpg" />
 </div>
 
 
@@ -293,7 +438,7 @@ VA - Happy Acoustic (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686585.jpg" />
+  <img src="Z:/picture/008/save_picture_686585.jpg" />
 </div>
 
 
@@ -322,7 +467,7 @@ Dukes Of The Orient ‎ - Freakshow (2020) [FLAC|Lossless|image + .cue] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686583.jpg" />
+  <img src="Z:/picture/008/save_picture_686583.jpg" />
 </div>
 
 
@@ -351,7 +496,7 @@ V.A. - Romantic Classic Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686577.jpg" />
+  <img src="Z:/picture/008/save_picture_686577.jpg" />
 </div>
 
 
@@ -380,7 +525,7 @@ Elvis Presley - In Memory Volume 4 (1993) [FLAC|Lossless|image + .cue] <Rock & R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686479.jpg" />
+  <img src="Z:/picture/008/save_picture_686479.jpg" />
 </div>
 
 
@@ -409,7 +554,7 @@ The Beatles - Grand Collection (2003) Compilation [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686089.jpg" />
+  <img src="Z:/picture/008/save_picture_686089.jpg" />
 </div>
 
 
@@ -438,7 +583,7 @@ Robin George - Dangerous Music II (1986) [FLAC|Lossless]<Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685812.jpg" />
+  <img src="Z:/picture/008/save_picture_685812.jpg" />
 </div>
 
 
@@ -467,7 +612,7 @@ Roy Orbison - The Real... Roy Orbison (2015) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684709.jpg" />
+  <img src="Z:/picture/008/save_picture_684709.jpg" />
 </div>
 
 
@@ -496,7 +641,7 @@ Mudcrutch - 2 Альбома (2008, 2016) [FLAC|Lossless|tracks] <Rock, Rock & R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684635.jpg" />
+  <img src="Z:/picture/008/save_picture_684635.jpg" />
 </div>
 
 
@@ -525,7 +670,7 @@ Truce - A Hope Within Chaos (2007) [FLAC|Lossless|tracks + .cue] <Alternative Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684429.jpg" />
+  <img src="Z:/picture/008/save_picture_684429.jpg" />
 </div>
 
 
@@ -554,7 +699,7 @@ VA - Play Station (приложение Audio CD к журналу Play #09'07) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684403.jpg" />
+  <img src="Z:/picture/008/save_picture_684403.jpg" />
 </div>
 
 
@@ -583,7 +728,7 @@ VA - Play Station (приложение Audio CD к журналу Play #07'07) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684397.jpg" />
+  <img src="Z:/picture/008/save_picture_684397.jpg" />
 </div>
 
 
@@ -597,151 +742,6 @@ VA - Play Station (приложение Audio CD к журналу Play #07'07) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29822727563C0E358A2430D75A36FDC80A94DC8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535770   (682373) от 08.03.2022
-
-Beth Hart - A Tribute To Led Zeppelin (2022) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682373.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Whole Lotta Love
-2. Kashmir
-3. Stairway To Heaven
-4. The Crunge(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E7BC5A1C73B20BAB20C788BD6AE4D1483BDEF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796773   (682020) от 16.06.2014
-
-Deluge Grander - The Form Of The Good (2009) [FLAC|Lossless|image + .cue]<Symphonic Prog, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Before the Common Era   (5:24)
-02.  The Tree Factory   (14:09)
-03.  Common Era Caveman   (6:27)
-04.  Aggrandizement   (19:13)(   Читать дальше...   )Жанр: Symphonic Prog, Progressive RockПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5520325730E8879A59DCB83962E2D589FD7960BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289891   (681973) от 18.03.2019
-
-Fleetwood Mac - Transmission Impossible (2018) 3CD, Remastered, Compilation [FLAC|Lossless|tracks + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chain (03:37)
-02. Dreams (04:39)
-03. Isn't It Midnight (04:42)
-04. Oh Well (04:50)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F938882D7075D6C67F6FC4B6A0E6A704CD848B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289823   (681970) от 18.03.2019
-
-The Doors - Transmission Impossible (2019) 3CD, Remastered, Compilation [FLAC|Lossless|tracks + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End (12:27)
-02. Moonlight Drive (06:51)
-03. Back Door Man (05:27)
-04. People Are Strange (02:36)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F6DAD99A78CF206CDEE23C819D3A219E816638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 796769   (681928) от 16.06.2014
-
-Deluge Grander - August In The Urals (1996) [FLAC|Lossless|image + .cue]<Symphonic Prog, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Inaugural Bash   (26:56)
-02.  August in the Urals   (15:51)
-03.  Abandoned Mansion Afternoon   (12:13)
-04.  A Squirrel   (8:44)(   Читать дальше...   )Жанр: Symphonic Prog, Progressive RockПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDFA333BDDAB5534FA7B57E2B084C7751FB2C5A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,111 @@
+###  Публикация: 1655973   (203717) от 28.08.2023
+
+Softorino YouTube Converter PRO for Mac 5.1.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Softorino YouTube Converter — почти YouTube Red, только бесплатно.
+Приложение устанавливает совершенно новый уровень для загрузчиков видео, музыки и рингтонов. Оно включает в себя: новый быстродействующий движок, поддержку для каждого устройства Apple, начиная с 2001 года (iPhone, iPad, iPod), 30 источников для загрузки носителей, автоматического распознавания музыкальных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.08.2023Разработчик: © 2022 Softorino Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BABFB0EC19CC453E988C1EDEC1E4D41B882692A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655987   (203715) от 28.08.2023
+
+JixiPix Artista Impresso Pro 1.8.20 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте Импрессионистом и превратите свой снимок в написанное мазками произведение искусства.
+Импрессионизм - направление в искусстве последней трети девятнадцатого — начала двадцатого века, мастера которого, фиксируя свои мимолетные впечатления, стремились наиболее естественно и непредвзято запечатлеть реальный мир в его подвижности и изменчивости. Импрессионизм (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.08.2023Разработчик: JixiPix Software, LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B57BF552190BCB4C3B983F06CE332D78676656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655877   (203713) от 28.08.2023
+
+MediaInfo for Mac 23.07 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203713.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaInfo — программа для получения подробной технической информации об аудио и видео файлах. Программа показывает, каким кодеком сжато видео, с каким битрейтом, какое в нем соотношение сторон и количество кадров в секунду. Для аудиофайла MediaInfo показывает используемый кодек, битрейт, язык, количество каналов, частоту выборки и т.д.Тип издания: macOS SoftwareРелиз состоялся: 12.07.2023Разработчик: © 2023 MediaAreaПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A8023D8AF7F9059F552385B3BA74929CE6F9246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656099   (203608) от 29.08.2023
+
+JetBrains PhpStorm for Mac 2023.1.2 Intel/ARM [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203608.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhpStorm – это интегрированная среда разработки на PHP с интеллектуальным редактором, которая глубоко понимает код,
+поддерживает PHP 7.2,7.1,7.0, 5.6, 5.5, 5.4 и 5.3 для современных и классических проектов, обеспечивает лучшее в индустрии автодополнение кода, рефакторинги, предотвращение ошибок налету и поддерживает смешивание языков.
+Сотни инспекций заботятся о (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.05.2023Разработчик: © 2018 JetBrains JohnsonПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:128AD036F6E81B4EF1A14D38D90541286A491990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656171   (203559) от 29.08.2023
 
 Allavsoft Video Downloader Converter 3.25.8.8640  [Multi/Ru]
@@ -6,7 +114,7 @@ Allavsoft Video Downloader Converter 3.25.8.8640  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203559.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Squeezer 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203555.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Data Guardian 7 v.7.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203551.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ Dropzone 4 Pro 4.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203546.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ Final Draft 12 v.12.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203535.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203533.jpg" />
 </div>
 
 
@@ -166,7 +274,7 @@ Reader for Mac 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203423.jpg" />
 </div>
 
 
@@ -193,7 +301,7 @@ Pixelmator Pro 3.3.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203405.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ Commander One PRO Pack 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203392.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ Feeder 4 v.4.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203380.jpg" />
 </div>
 
 
@@ -274,7 +382,7 @@ Dynamic Wallpaper Engine 15.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203347.jpg" />
 </div>
 
 
@@ -300,7 +408,7 @@ SyncBird Pro 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203337.jpg" />
 </div>
 
 
@@ -326,7 +434,7 @@ AirMail Pro 5 v.5.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203330.jpg" />
 </div>
 
 
@@ -353,7 +461,7 @@ Fix My iPhone 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203306.jpg" />
 </div>
 
 
@@ -382,7 +490,7 @@ Omni Recover 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203294.jpg" />
 </div>
 
 
@@ -409,7 +517,7 @@ Omni Toolbox 1.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203292.jpg" />
 </div>
 
 
@@ -435,7 +543,7 @@ MacCleaner 3 PRO 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203255.jpg" />
 </div>
 
 
@@ -461,7 +569,7 @@ JetBrains WebStorm for Mac 2023.2.1 Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203251.jpg" />
 </div>
 
 
@@ -487,7 +595,7 @@ DxO PhotoLab 6 ELITE Edition 6.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203157.jpg" />
 </div>
 
 
@@ -514,7 +622,7 @@ Commander One PRO - FTP client 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203146.jpg" />
 </div>
 
 
@@ -542,7 +650,7 @@ XMind Pro 2023 23.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203138.jpg" />
 </div>
 
 
@@ -568,7 +676,7 @@ DxO ViewPoint 4 for Mac v.4.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203081.jpg" />
 </div>
 
 
@@ -580,111 +688,6 @@ DxO ViewPoint — программное решение, посвященное 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F58778980BE17A318D664701370CD7A11809AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656609   (203073) от 31.08.2023
-
-Duplicate File Finder Pro 7 v.7.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate File Finder - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
-Функция Drag & drop и столько папок, сколько вы хотите, затем нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатами файлов по категориям: изображения, видео, музыки, архивы, документы и пр. Это очень легко, чтобы увидеть, сколько места занимает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.08.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B47559F1B74BA3E90787709BA6E84B0409DDEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656563   (203033) от 31.08.2023
-
-SQLPro Studio 2023.55 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203033.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © 2015-2023 Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB52DEFA54F03F77196C8CCD43EA049981BCFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656565   (203027) от 31.08.2023
-
-SQLPro for SQLite 2023.52 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203027.jpg" />
-</div>
-
-
-###  Подробнее
-
-SQLPro for SQLit‪e - профессиональный менеджер баз данных SQLite.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2023Разработчик: © 2023 Hankinsoft Development Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEEE42A81118CFD9322DDE71C3682996FF967F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656702   (203009) от 31.08.2023
-
-BuhoCleaner for Mac 1.9.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203009.jpg" />
-</div>
-
-
-###  Подробнее
-
-BuhoCleaner — это незаменимое приложение для очистки Mac, созданное для освобождения дискового пространства и максимального повышения производительности вашего Mac.Тип издания: macOS SoftwareРелиз состоялся: 28.08.2023Разработчик: © 2023 Dr.Buho Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86D88F95CD1BD802ACCD6DF798F6F5E623D5FEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ AweCleaner Professional CR2 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802753.jpg" />
+  <img src="Z:/picture/008/save_picture_802753.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adguard 2.4.71 (791) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802738.jpg" />
+  <img src="Z:/picture/008/save_picture_802738.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Macgo Mac Blu-ray Player Pro 3.3.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802731.jpg" />
+  <img src="Z:/picture/008/save_picture_802731.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Grids for Instagram 7.0.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802728.jpg" />
+  <img src="Z:/picture/008/save_picture_802728.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TG Pro (Temperature Gauge Pro) 2.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802616.jpg" />
+  <img src="Z:/picture/008/save_picture_802616.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Dropzone 3.5.5 (906) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802557.jpg" />
+  <img src="Z:/picture/008/save_picture_802557.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SiteSucker 2.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802440.jpg" />
+  <img src="Z:/picture/008/save_picture_802440.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ iToolab UnlockGo 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802401.jpg" />
+  <img src="Z:/picture/008/save_picture_802401.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Transmit 5.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802285.jpg" />
+  <img src="Z:/picture/008/save_picture_802285.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ iSkysoft Video Converter for Mac 4.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802264.jpg" />
+  <img src="Z:/picture/008/save_picture_802264.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ CorelDRAW Graphics Suite 2021.5 - Corporate v23.5.0.506 (Incl. CorelDRAW Technic
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802209.jpg" />
+  <img src="Z:/picture/008/save_picture_802209.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Sketch 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802148.jpg" />
+  <img src="Z:/picture/008/save_picture_802148.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Leaf 5.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802137.jpg" />
+  <img src="Z:/picture/008/save_picture_802137.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ TunesKit 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802135.jpg" />
+  <img src="Z:/picture/008/save_picture_802135.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ Things 2.8.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802111.jpg" />
+  <img src="Z:/picture/008/save_picture_802111.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Quiver: The Programmer's Notebook 3.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802109.jpg" />
+  <img src="Z:/picture/008/save_picture_802109.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Espresso 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802089.jpg" />
+  <img src="Z:/picture/008/save_picture_802089.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Mountain Duck 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802085.jpg" />
+  <img src="Z:/picture/008/save_picture_802085.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ TunesKit Apple Music Converter 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802059.jpg" />
+  <img src="Z:/picture/008/save_picture_802059.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Wirecast Pro 6.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802033.jpg" />
+  <img src="Z:/picture/008/save_picture_802033.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ AnyTrans 5.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801939.jpg" />
+  <img src="Z:/picture/008/save_picture_801939.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801934.jpg" />
+  <img src="Z:/picture/008/save_picture_801934.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Folx Pro 5.2.13688 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801887.jpg" />
+  <img src="Z:/picture/008/save_picture_801887.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ PhoneClean Pro 5.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801860.jpg" />
+  <img src="Z:/picture/008/save_picture_801860.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ QLab Pro 4 v4.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801827.jpg" />
+  <img src="Z:/picture/008/save_picture_801827.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ iShowU Studio 2 v2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801823.jpg" />
+  <img src="Z:/picture/008/save_picture_801823.jpg" />
 </div>
 
 

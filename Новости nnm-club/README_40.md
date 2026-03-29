@@ -1,3 +1,108 @@
+###  Публикация: 1366424   (920008) от 13.03.2020
+
+Роскомнадзор изучает сети на предмет блокировки
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Находящееся в ведении Роскомнадзора ФГУП "ГРЧЦ" заказало исследование устройства децентрализованных сетей с целью определить возможности ограничения доступа к опубликованной в них запрещенной к распространению в России информации. Соответствующее извещение было размещено 3 марта на портале госзакупок, первым на это обратил внимание "Коммерсант".Закупка (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988239   (919934) от 20.02.2016
+
+Resident Evil 0 / biohazard 0 HD REMASTER (2016) [Ru/Multi] (1.0/dlc) Repack SEYTER
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil  рассказывает всю правду о происшествии в особняке, породившем все последующие события серии Resident Evil. В обновленной версии сохранены сюжет и игровой процесс оригинальной игры, дополненные потрясающей HD-графикой, звуком в формате 5.1, возможностью выбора улучшенных элементов управления и поддержкой широкоформатных телевизоров. Приготовьтесь раскрыть (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8888818B84F30ADC20F0AB1A06E5F13D0FF29C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 837549   (919864) от 20.02.2016
+
+Evernote Premium 7.6 [Ru/Multi] - Создание заметок
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Evernote сделает из Android-телефона продолжение Вашей памяти. Это приложение позволяет Вам сохранять и вспоминать всё, что происходит в Вашей жизни. Заметки, идеи, фото- и аудиозаписи - всё это можно поместить в Evernote и синхронизировать с телефона на веб-сервер и далее на компьютер. (с) Evernote.
+Evernote для Android позволяет вам сохранять любые события, идеи, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 20.02.16Разработчик: Evernote CorporationПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B149803AB9520913BB79AD6DF64AC4D5BA570B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489951   (919863) от 19.08.2021
+
+HUMANKIND (2021) [Ru/Multi] (1.0.01.0034-S10/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919863.jpg" />
+</div>
+
+
+###  Подробнее
+
+HUMANKIND™ — главный труд Amplitude Studios, историческая стратегия, где ВЫ перепишите историю человечества. Это слияние культуры, истории и ценностей позволит вам создать уникальную цивилизацию. КАК ДАЛЕКО ВЫ ЗАВЕДЕТЕ HUMANKIND?Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: Strategy (Turn-based), 4X, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735B57C2392A4410DE2423CC1228A96C90392E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988477   (919861) от 20.02.2016
 
 Parallels Desktop for Mac Business Edition 11.1.3 [Multi/Ru]
@@ -6,7 +111,7 @@ Parallels Desktop for Mac Business Edition 11.1.3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919861.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Ctlos Linux Xfce v1.6.0 [x86-64] 1xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919751.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919732.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919558.jpg" />
 </div>
 
 
@@ -116,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919496.jpg" />
 </div>
 
 
@@ -142,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919024.jpg" />
 </div>
 
 
@@ -169,7 +274,7 @@ Dr.Web CureIt! Updater 21.01.2017 by SlimRG [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918532.jpg" />
 </div>
 
 
@@ -195,7 +300,7 @@ Crysis Warhead (2008) [Ru/En] (1.1.1.711) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918523.jpg" />
 </div>
 
 
@@ -221,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918315.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918299.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918217.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ VA - ABC...Euro - Italo - Disco (378 CD) (2006-2015) [MP3|192-320 kbps]<Euro-Ita
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918211.jpg" />
 </div>
 
 
@@ -325,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918208.jpg" />
 </div>
 
 
@@ -351,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918113.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918107.jpg" />
 </div>
 
 
@@ -406,7 +511,7 @@ SOMA (2015) [Ru/Multi] (19.02.2016) Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918105.jpg" />
 </div>
 
 
@@ -432,7 +537,7 @@ Sabayon 15.02 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917980.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917951.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917940.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917877.jpg" />
 </div>
 
 
@@ -538,7 +643,7 @@ Depeche Mode - Delta Machine (Deluxe Edition) 2CD (2013) [FLAC|Lossless|tracks +
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917614.jpg" />
 </div>
 
 
@@ -567,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917201.jpg" />
 </div>
 
 
@@ -578,110 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096693   (916888) от 25.01.2017
-
-NVIDIA GeForce Desktop 378.49 WHQL + For Notebooks [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916888.jpg" />
-</div>
-
-
-###  Подробнее
-
-NVIDIA GeForce Driver — драйвера для видеокарт производства NVIDIA. Предназначены для видеокарт семейства GeForce, работающих в операционной системе Windows. Унифицированная архитектура драйверов (UDA) гарантирует прямую и обратную совместимость драйверов с различными поколениями графических процессоров NVIDIA, что упрощает процесс замены видеоподсистемы, так как (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09413F3E7B6DBA819B9637CF082A952FBC7CE22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096926   (916751) от 25.01.2017
-
-Image Uploader 1.3.2 build 4510 alpha + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Image Uploader - бесплатная программа для Windows c открытым исходным кодом, предназначенная для загрузки изображений, фотографий, кадров из видео в интернет. Для хранения файлов программа использует несколько десятков общедоступных хостингов изображений и файлов. При этом программа автоматически генерирует миниатюры желаемого размера, масштабирует изображения, по (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7205BAA75D04451AAC1C6407A17F658EB9E025B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365805   (916638) от 15.03.2020
-
-Разрабы / Devs (2020) WEBRip [H.264/1080p] (сезон 1, серии 1-3 из 8) HDRezka (Обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня — компьютерный инженер Лили Чан. Она работает в передовой технологической компании Amaya, расположенной в Сан-Франциско, и подозревает, что руководство фирмы виновно в смерти её парня. В попытке найти следы преступления она натыкается на секретное подразделение, которым заведует загадочный Форест.Производство: США / DNA Films, FX Productions, Scott Rudin ProductionsЖанр: фантастика, триллер, драмаРежиссер: Алекс ГарлендАктеры: Соноя Мидзуно, Ник Офферман, Элисон Пилл, Зэк Гренье, Кэйли Спэни, Стивен Хендерсон, Карл Глусман, Джефферсон Холл и др.Перевод: Многоголосый профессиональный (HDRezka Studio)Продолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C538AA671AA867901D211943B34C979A72BD056
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366323   (916635) от 15.03.2020
-
-Цвет из иных миров / Color Out of Space (2019) BDRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фермер Нэйтан Гарднер с женой и тремя детьми живёт в отдалении от цивилизации. Однажды рядом с его домом падает метеорит, на следующий же день исчезает, и теперь вокруг места падения разрастаются необычные цветы, а телевидение и мобильная связь работают с помехами. Приехавший проверить местную воду гидролог уверен, что пить её не стоит, но члены семьи Гарднер не (   Читать дальше...   )Производство: США, Малайзия, Португалия | SpectreVision, ACE Pictures Entertainment, ...Жанр: Ужасы, фантастикаРежиссер: Ричард СтэнлиАктеры: Николас Кейдж, Джоэли Ричардсон, Мадлен Артур, Эллиот Найт, Томми Чонг, Брендан Мейер, Джулиан Хиллиард, Джош С. Уоллер, К’Орианка Килчер, Мелисса НирманПеревод: Дублированный | iTunesСубтитры: Русские (forced, full FOCS ненормативная лексика), английскиеПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCE459147D306F32E650B961EB5CA80FC68179F
 ```
 
 https://mybot314.ru/tekegram_catalog/

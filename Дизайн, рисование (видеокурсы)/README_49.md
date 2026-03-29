@@ -1,3 +1,29 @@
+###  Публикация: 956021   (330823) от 13.11.2015
+
+Григорий Коченов, Дмитрий Демидовский | Адаптивный дизайн и разработка сайтов (2015) PCRec [H.264/1080p]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_330823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы получите базовые знания в области адаптивного дизайна. Узнаете его идеологию, подходы и основные технологии. Поймете, как работают адаптивные сайты, из каких компонентов они состоят и какие этапы разработки проходят. Избежите основных ошибок при прототипировании и научитесь тестировать свои страницы. Курс адресован начинающим дизайнерам и разработчикам, а также (   Читать дальше...   )Жанр: Адаптивный дизайнПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5B64F449F1353B94A79788A3C3D61020C3D781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581473   (326032) от 06.10.2022
 
 Flipped Normals | Creating a Full Character in Zbrush (2022) PCRec [EN]
@@ -6,7 +32,7 @@ Flipped Normals | Creating a Full Character in Zbrush (2022) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326032.jpg" />
+  <img src="Z:/picture/008/save_picture_326032.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ VideoSmile, Михаил Бычков | Супер Cinema 4D Pro (2022) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326025.jpg" />
+  <img src="Z:/picture/008/save_picture_326025.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325401.jpg" />
+  <img src="Z:/picture/008/save_picture_325401.jpg" />
 </div>
 
 
@@ -92,7 +118,7 @@ Jan Urschel | Процедурные городские пейзажи в Blende
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321887.jpg" />
+  <img src="Z:/picture/008/save_picture_321887.jpg" />
 </div>
 
 
@@ -118,7 +144,7 @@ Jan Urschel | Погодные эффекты в Blender 2.81 / Weather Effects 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321780.jpg" />
+  <img src="Z:/picture/008/save_picture_321780.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ Jan Urschel | Дизайн Sci-Fi окружения в Blender 2.82 / Sci-Fi En
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321665.jpg" />
+  <img src="Z:/picture/008/save_picture_321665.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ Gumroad, Pierrick Picaut| Фэнтезийная башня на скале - П
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320303.jpg" />
+  <img src="Z:/picture/008/save_picture_320303.jpg" />
 </div>
 
 
@@ -198,7 +224,7 @@ Udemy, Nikolay Naydenov | Lobo - 3D character in Blender course (2022) PCRec [EN
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320236.jpg" />
+  <img src="Z:/picture/008/save_picture_320236.jpg" />
 </div>
 
 
@@ -226,7 +252,7 @@ Jan Urschel | Движки рендеринга - Небольшой обзор 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319618.jpg" />
+  <img src="Z:/picture/008/save_picture_319618.jpg" />
 </div>
 
 
@@ -252,7 +278,7 @@ Jan Urschel | Улицы мегаполиса - Китбаш, дизайн и п
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319442.jpg" />
+  <img src="Z:/picture/008/save_picture_319442.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ Blender Cloud | Написание скриптов для художников 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318255.jpg" />
+  <img src="Z:/picture/008/save_picture_318255.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ Blender Cloud | Фабрика существ 2 - Создание персон�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318241.jpg" />
+  <img src="Z:/picture/008/save_picture_318241.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ Udemy, Mrawan Hussain | Создание Молота Тора в Blender 2.90 �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317287.jpg" />
+  <img src="Z:/picture/008/save_picture_317287.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ Blender Cloud | Создание видеоэффектов в Blender: Трек
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315841.jpg" />
+  <img src="Z:/picture/008/save_picture_315841.jpg" />
 </div>
 
 
@@ -386,7 +412,7 @@ Wingfox, Nikolay Naydenov | Dragon Rider - Cartoon 3D Character Creation Course 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315838.jpg" />
+  <img src="Z:/picture/008/save_picture_315838.jpg" />
 </div>
 
 
@@ -412,7 +438,7 @@ Blender Cloud | Создание мультипликационного перс
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315830.jpg" />
+  <img src="Z:/picture/008/save_picture_315830.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ Udemy, Mrawan Hussain | Создание маленького K-2SO робота
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315056.jpg" />
+  <img src="Z:/picture/008/save_picture_315056.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314792.jpg" />
+  <img src="Z:/picture/008/save_picture_314792.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ Blender Cloud | Создание игровых ассетов в Blender / Game
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313504.jpg" />
+  <img src="Z:/picture/008/save_picture_313504.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ Blender Cloud | Моушн графика в Blender / Blender Motion Graphics (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313309.jpg" />
+  <img src="Z:/picture/008/save_picture_313309.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ CG Fast Track | Полигональное моделирование в Blender
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312725.jpg" />
+  <img src="Z:/picture/008/save_picture_312725.jpg" />
 </div>
 
 
@@ -575,7 +601,7 @@ Jan Urschel | Мегасити 01 - Моделирование и Рендери
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311313.jpg" />
+  <img src="Z:/picture/008/save_picture_311313.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ CG Cookie | Генеративное Моделирование и Дизайн 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311307.jpg" />
+  <img src="Z:/picture/008/save_picture_311307.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ Jan Urschel | Интерьерное освещение - Футуристичн
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311301.jpg" />
+  <img src="Z:/picture/008/save_picture_311301.jpg" />
 </div>
 
 
@@ -656,7 +682,7 @@ Skillbox, Логомашина | Дизайнер логотипа и фирме
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310236.jpg" />
+  <img src="Z:/picture/008/save_picture_310236.jpg" />
 </div>
 
 
@@ -670,32 +696,6 @@ Skillbox, Логомашина | Дизайнер логотипа и фирме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E6BFCDD67AFFC41637C4B2E42DA2BEC701AE1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422270   (310235) от 08.11.2020
-
-Skillbox | Веб-дизайн с нуля до PRO (2018) PCRec
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы научитесь создавать дизайн сайтов и приложений, работать с реальными заказчиками и презентовать свои проекты. Освоите новую профессию, сделаете портфолио и сможете начать карьеру в дизайн-студии или на фрилансе.Жанр: Веб-дизайнПродолжительность: 51:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7F3A7F64FC59AF88325F18275D370133F35F4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

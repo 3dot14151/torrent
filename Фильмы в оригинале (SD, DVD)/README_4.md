@@ -1,3 +1,29 @@
+###  Публикация: 1226371   (655652) от 20.05.2018
+
+Высшая сила / Tiyaan (2017) WEBRip [MAL / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_655652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет картины, начинается с рассказа, о небольшой деревушке в Северной Индии. Между жителями этой деревни, начинается война за землю. Возомнивший себя богочеловеком… Некто, по имени Махешай Бхагван, пытается разрушить дом брамина Паттабхирамана Гири. С целью, построить на этом месте, собственный Ашрам. В этом жестоком противостоянии, Гири теряет не только личный (   Читать дальше...   )Производство: ИндияЖанр: Боевик, Триллер, ДрамаРежиссер: Jiyen KrishnakumarАктеры: Моханлал, Притхвирадж Сукумаран, Падмаприя, John Kokken, Ранджит, Индраджит, Анания, Рахул Мадхав, Manasa Radhakrishnan, Лакшми ПрияПеревод: ОтсутствуетСубтитры: русские,неотключаемыеПродолжительность: 02:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6CBC9D032228E5C23B3C4014EF73D691C24633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517429   (646970) от 01.07.2012
 
 [FR/ RU Sub] Леа / Lea (2011 г.) DVDRip
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646970.jpg" />
+  <img src="Z:/picture/008/save_picture_646970.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638602.jpg" />
+  <img src="Z:/picture/008/save_picture_638602.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630408.jpg" />
+  <img src="Z:/picture/008/save_picture_630408.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624526.jpg" />
+  <img src="Z:/picture/008/save_picture_624526.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622643.jpg" />
+  <img src="Z:/picture/008/save_picture_622643.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622537.jpg" />
+  <img src="Z:/picture/008/save_picture_622537.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617864.jpg" />
+  <img src="Z:/picture/008/save_picture_617864.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611193.jpg" />
+  <img src="Z:/picture/008/save_picture_611193.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610827.jpg" />
+  <img src="Z:/picture/008/save_picture_610827.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609452.jpg" />
+  <img src="Z:/picture/008/save_picture_609452.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605507.jpg" />
+  <img src="Z:/picture/008/save_picture_605507.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601810.jpg" />
+  <img src="Z:/picture/008/save_picture_601810.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589509.jpg" />
+  <img src="Z:/picture/008/save_picture_589509.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583911.jpg" />
+  <img src="Z:/picture/008/save_picture_583911.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583900.jpg" />
+  <img src="Z:/picture/008/save_picture_583900.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583850.jpg" />
+  <img src="Z:/picture/008/save_picture_583850.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583807.jpg" />
+  <img src="Z:/picture/008/save_picture_583807.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583803.jpg" />
+  <img src="Z:/picture/008/save_picture_583803.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583789.jpg" />
+  <img src="Z:/picture/008/save_picture_583789.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583684.jpg" />
+  <img src="Z:/picture/008/save_picture_583684.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582935.jpg" />
+  <img src="Z:/picture/008/save_picture_582935.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582848.jpg" />
+  <img src="Z:/picture/008/save_picture_582848.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582738.jpg" />
+  <img src="Z:/picture/008/save_picture_582738.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582724.jpg" />
+  <img src="Z:/picture/008/save_picture_582724.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580201.jpg" />
+  <img src="Z:/picture/008/save_picture_580201.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C9E1A2CB8AA80E9F17EDF1D21F9DD40DF3133E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553715   (579890) от 28.05.2022
-
-Как получить миллион? / In your wildest dreams (1991) DVD9 [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579890.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Марк мечтает о многом, но более всего его влечет идея легкого богатства и его величество случай предоставляет ему возможность путем компьютерной махинации получить миллион долларов. Однако, вереница событий приводит мальчика к мысли, что груз богатства слишком тяжел и иногда в том, что мечты сбываются нет ничего хорошего.Производство: США, Feature Films for FamiliesЖанр: Драма, СемейныйРежиссер: Брюс НейбарАктеры: Тревор Блэк, Лизе Уилбурн, Сара Шауб, Бретт Палмер, Стив Андерсон, Роберт Нельсон, Джефф Олсон, Marti Tueller, Дара Симпер, Тревор Блэк, Лизе Уилбурн, Сара Шауб, Бретт Палмер, Стив Андерсон, Роберт Нельсон, Джефф Олсон, Marti Tueller, Дара Симпер, Патти Джо Бендер, Пегги Мэтисон, Мэтт Болинг, Энцо Милети, Донре Сэмпсон, Тип Бокселл, Элис Нельсон, Шанталь Хиатт, Джозеф (   Читать дальше...   )Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3B6F9E7DB1C00FDF6C8B58DB9A0D18FDAF66AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

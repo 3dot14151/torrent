@@ -1,3 +1,170 @@
+###  Публикация: 636679   (904258) от 29.03.2013
+
+Emerson, Lake & Palmer - Live In Belgium (1971) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_904258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Emerson, Lake & Palmer (ELP) — английская прогрессив-рок группа, образованная в 1970 году, названная по фамилиям трёх её участников: Кита Эмерсона, Грега Лэйка и Карла Палмера. ELP считается одной из первых супергрупп, поскольку все её участники получили широкую известность до вхождения в группу01. Barbarian
+02. Rondo/Bach Improvisations
+03. Drum Solo
+04. Nut Rocker
+05. Take a Pebble
+06. Knife EdgeЖанр: Концерт, Progressive rock, Symphonic rockПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF862D3CBD048E81AD5DA13CC61CB9D6E828317E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461540   (903884) от 29.02.2016
+
+Armin van Buuren - The Music Videos 1997-2009 (2010) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Say Never (Feat. Jacqueline Govaert)
+02. Fine Without You (Feat. Jennifer Rene)
+03. Unforgivable (Feat. Jaren)
+04. In And Out Of Love (Feat. Sharon Den Adel)(   Читать дальше...   )Производство: TME/Open Gate Records, Armada Music BVЖанр: TranceПеревод: ОтсутствуетПродолжительность: 01:02:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017C1CA2EE3F3BD7F5414E9F153D2433EDB4F99A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636311   (903877) от 29.03.2013
+
+Цирк дю Солей: Сказочный мир / Cirque du Soleil: Worlds Away (2013) HDRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: США / Reel FX Creative Studios, Strange Weather Films, Cirque du Soleil BurlescoЖанр: ФэнтезиРежиссер: Эндрю АдамсонАктеры: Эрика Линц, Игорь Зарипов, Лутс Халбхюбнер, Джон Кларк, Даллас Барнетт, Таня Дрюери, Сара Хуболт, Аскья Мэйбери, Дэмиен Гордон, Зэк БриклэндПеревод: Одноголосый закадровыйПродолжительность: 01:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F91A24405196BC629015625C5C1A06A8937B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099685   (903211) от 02.02.2017
+
+Михаил Салтыков-Щедрин - Тени (1953) DVDRip (Ленинградский театр им. Ленсовета)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903211.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-спектакль по одноименной пьесе М.Е. Салтыкова-Щедрина.
+Из провинции в Петербург приезжает либерально настроенный молодой чиновник Бобырев. Он надеется под покровительством своего школьного товарища Клаверова, ставшего генералом, сделать карьеру. Генерал с радостью определяет Бобырева в свою канцелярию, и уже выстраивает планы, как через красавицу Софью, жену (   Читать дальше...   )Производство: СССР, Ленфильм, Ленинградский театр им. ЛенсоветаЖанр: Фильм-спектакль, экранизацияРежиссер: Николай Акимов, Надежда КошевероваАктеры: Валентин Лебедев, Владимир Петров (I), Галина Короткевич, Вера Будрейко, Юрий Бубликов, Анатолий Абрамов, Александр Гюльцен, Овсей Каган, Дмитрий Бессонов, Евгений Гвоздев (I)Продолжительность: 01:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34EC031D76E93D005611C6CAF834D9D1ABE8C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099676   (903174) от 02.02.2017
+
+Александр Грин - Корабли в Лиссе (1965) WEBRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по рассказу А. Грина "Корабли в Лиссе".
+Пять парусников блокированы в порту неприятельским капером (видимо, Гринландия, или её , вела с кем-то войну). Капитаны четырёх из этих парусников собрались за столом гостиницы «Унеси горе», размышляя, как выйти в море, обманув бдительность корсара. Капитана пятого парусника (бригантины «Фелицата») на (   Читать дальше...   )Производство: СССР, Ленинградское телевидениеЖанр: Телеспектакль, драмаРежиссер: Давид КарасикАктеры: А. Абрамов, И Акацевич, В. Грозовский, И. Заблудовский, П. Залесский, В. Иллич, С. Коковкин, И. Краско, В. Кузнецов, Р. Лебедев, Р. Литвинов, Г. Лупекин, В. Максимов, Л. Малкина, И. Михайлов, Р. Петров, А. Петренко, В. Попов, Т. Румянцева, В. Смирнов, А. Соколов, Е. Соляков, Н. Тенякова, Ю. Цапин, В. Эренберг и др.Продолжительность: 01:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C487AF6E8A4E0EF309E72251B49808C42F0C734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099681   (903058) от 02.02.2017
+
+Роковое влечение (2017) SATRip (2 части) (Театр Сатиры)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль Театра Сатиры в 2-х действиях. Запись 2016 года.
+Бывших звезд, как известно, не бывает. Голливудская дива Ирма Гарленд в этом твердо уверена. Всеми возможными способами она пытается вернуть молодость и вновь появиться на экране. Она готова за это заплатить, как привыкла платить за все свои прихоти. Пребывая в добровольном заточении, она не догадывается, (   Читать дальше...   )Производство: Россия, ГТРК "Культура"Жанр: Фильм-спектакль, театрРежиссер: Андрей ЖитинкинАктеры: Вера Васильева, Игорь Лагутин, Олег Вавилов, Любовь Козий, Родион ВьюшкинПродолжительность: 2 х ~ 00:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5097CE19D80A918E3DD50E5EC6C24748E89DA8AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099559   (903049) от 02.02.2017
 
 Olga Vels - The Sound Of Love (2017) WEBRip [H.264]
@@ -6,7 +173,7 @@ Olga Vels - The Sound Of Love (2017) WEBRip [H.264]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903049.jpg" />
 </div>
 
 
@@ -35,7 +202,7 @@ Gary Moore & The Midnight Blues - Live at Montreux 1990 (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902689.jpg" />
 </div>
 
 
@@ -67,7 +234,7 @@ Nells - Watch My Body (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902628.jpg" />
 </div>
 
 
@@ -93,7 +260,7 @@ Cascada - Glorious (2013) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902620.jpg" />
 </div>
 
 
@@ -119,7 +286,7 @@ Innocence feat. Brian Cross - Houdini Girl (Brian Cross Remix 2013) WEBRip [H.26
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902610.jpg" />
 </div>
 
 
@@ -145,7 +312,7 @@ Afrojack ft. Chris Brown - As Your Friend (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902580.jpg" />
 </div>
 
 
@@ -171,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902573.jpg" />
 </div>
 
 
@@ -201,7 +368,7 @@ Marquess & Jessica D feat. Jimmy Dub - Beso (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902446.jpg" />
 </div>
 
 
@@ -227,7 +394,7 @@ INS - Loveheadshot (Uncensored) (2013) WEBRip [H.264/720p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902258.jpg" />
 </div>
 
 
@@ -253,7 +420,7 @@ Tatarka - 7 Music Videos (2016-2019) WEBRip [H.264/1080p/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901996.jpg" />
 </div>
 
 
@@ -280,7 +447,7 @@ Paradise Lost - Fall from Grace (2020) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901990.jpg" />
 </div>
 
 
@@ -306,7 +473,7 @@ Quest Pistols Show - 17 Mysic Videos (2012-2019) WEBRip [VP9/H.264/2160p/1080p-L
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901881.jpg" />
 </div>
 
 
@@ -335,7 +502,7 @@ The Sweet - Greatest Hits - Sweet Live (2004) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901872.jpg" />
 </div>
 
 
@@ -361,7 +528,7 @@ Quest Pistols (Quest Pistols Show) - 12 Mysic Videos (2007-2011) WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901783.jpg" />
 </div>
 
 
@@ -390,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901617.jpg" />
 </div>
 
 
@@ -416,7 +583,7 @@ Tommy Cash - 14 Music Videos (2014-2020) WEBRip [VP9/H.264/2160p/1080p/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901535.jpg" />
 </div>
 
 
@@ -445,7 +612,7 @@ Uli Jon Roth - Tokyo Tapes Revisited - Live in Japan (2016) Blu-ray [H.264/1080i
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901318.jpg" />
 </div>
 
 
@@ -474,7 +641,7 @@ Carly Rae Jepsen - Tonight I M Getting Over You (2013) HDTV [H.264/1080i]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900704.jpg" />
 </div>
 
 
@@ -500,7 +667,7 @@ Peter Tosh - Captured Live (2002) DVDRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900155.jpg" />
 </div>
 
 
@@ -529,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899531.jpg" />
 </div>
 
 
@@ -543,172 +710,6 @@ Johann Strauss Jun; Ägyptischer Marsch; op.335(   Читать дальше... 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80994B22D9AA91FB1EAB6B26A9A7F211731C6668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100457   (899368) от 04.02.2017
-
-Kreator - Gods Of Violence - Live @ Wacken 2014 (2017) Blu-ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт немецкой трэш-метал-группы KREATOR на фестивале в Вакене в 2014 году из Mailorder-издания четырнадцатого студийного альбома «Gods Of Violence»01. Mars Mantra (1:20)
-02. Phantom Antichrist (4:38)
-03. From Flood Into Fire (6:33)
-04. Warcurse (6:27)(   Читать дальше...   )Производство: Германия, Nuclear BlastЖанр: Thrash MetalПеревод: ОтсутствуетПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EFA3133977152810D9979600020C771F07B2F42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 183069   (898605) от 14.03.2010
-
-Супердискотека 90-х от MTV (2009) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898605.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 ноября 2009 в СКК снова гудела на легендарном ретромегадэнсе Радио Рекорд – Супердискотэка! На трех гигантских этажах арены мы окунемся в атмосферу юности и детства. Более 20 интерактивных зон дадут возможность поиграть во вкладыши и резиночку, «продуть2 в наперстки, в видеосалоне «позырить» боевики со Шварцем и Брюсом Ли, поставить челку или сделать полубокс (   Читать дальше...   )01.Р.Рябцев - Странные танцы.
-02.Кай Метов - Position №2.
-03.Вирус - Ты меня не ищи.
-04.Руки В Верх - Крошка моя.(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637430   (898470) от 01.04.2013
-
-Les Enfoires - Attention Au Depart (2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1F9F941406444605DD20AE4B8EFABA25E4D152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637496   (898347) от 01.04.2013
-
-Marios Brasil - Sem Para (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE87D607FFD3B9C412BD033B45B6D34F5CA8CDCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637679   (897988) от 01.04.2013
-
-Depeche Mode - Soothe My Soul (Uncensored) (2013) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SynthpopПродолжительность: 00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF157448A30B02318E3265AFBFEE0D81FE01D4C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632614   (897849) от 01.04.2013
-
-Ultra Music Festival 2013 (Miami, USA) (15-17/22-24.03) [H.264/720p-LQ] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись прямой трансляций с UMFTV самого масштабного фестиваля электронной музыки, проходящего ежегодно в Майами.Участвуют:
-Afrojack
-Nicky Romero
-Madeon
-Chuckie(   Читать дальше...   )Жанр: Концерт, Electronic dance musicПродолжительность: 41:02:08
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

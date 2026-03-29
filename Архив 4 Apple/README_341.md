@@ -1,3 +1,109 @@
+###  Публикация: 1155918   (529691) от 05.08.2017
+
+Soulver 2.6.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_529691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Soulver предназначен для «быстрой математики» — подсчета чего угодно, для чего экселя много, а калькулятора мало или неудобно.
+Для пользователей интересным в Soulver может оказаться то, что в самой программе можно задавать числа не только используя цифры, но и их словесные обозначения, Soulver прекрасно понимает оба варианта записи даже вперемешку. Например, можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 августа 2017Разработчик: AcqualiaПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D3D590AC9812068168CD684CBC376F25B59E103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119648   (529674) от 05.08.2017
+
+Mac Blu-ray Player Pro 3.2.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_529674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mac Bluray Player - Проигрыватель HD Blu-ray дисков, отличное качество воспроизведение видео и аудио с поддержкой Dolby DTS, поддержка просмотра Blu-ray, DVD, Video CD, MOV, MKV, AVI, FLV, WMV, MP4, MPEG, RMVB, MP3, WMA, AAC, AC3 и других форматов, обход защит AACS, BD+ и других, имеет ряд стандартных функций сменные шкурки, проигрывание графики, маркировка и закладки, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 августа 2017Разработчик: Macgo INTERNATIONAL LTD.Поддерживаемая ОС: Mac OS X 10.8  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EEF73581218ACEC8E0E37366EAC8A5DCC90AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 820119   (529611) от 09.09.2014
+
+Pantone Color Manager 2.1.0 (730) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_529611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pantone Color Manager это: Полный набор электронных библиотек Pantone, включающий свыше 11 тысяч цветов.
+PANTONE® Color Manager предоставляет доступ и возможность обновления всех актуальных на сегодняшний момент библиотек PANTONE®, которые вы сможете с легкостью использовать в дизайнерских приложениях Adobe® и Quark®. PANTONE® Color Manager поможет достичь беспрецедентного (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: апрель 2013Разработчик: X-RiteПоддерживаемая ОС: MacOS X 10.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A27AD44C677BEE32191A234CC435A9FE9B166E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920849   (529509) от 12.08.2015
+
+VOX 2.5.4 (2540.63)  [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_529509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vox - небольшой и очень простой в использовании аудиоплейер для Mac OS X, который является неплохой альтернативой iTunes. Проигрыватель умеет работать с огромным количеством поддерживаемых форматов (FLAC, MP3, AAC, Musepack, Monkey’s Audio, OGG Vorbis, Apple Lossless, AIFF, WAV и др.), распознает различные форматы плейлистов (PLS, M3U, XSPF, CUE), может воспроизводить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 июля 2015Разработчик: Coppertino Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский и Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837E39948F37C2F75E4FF93F0216691F695D80B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112026   (529467) от 05.08.2017
 
 Disk Drill Entreprise 3.3.845 [Multi/Ru]
@@ -6,7 +112,7 @@ Disk Drill Entreprise 3.3.845 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529467.jpg" />
+  <img src="Z:/picture/008/save_picture_529467.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ CleanMyMac 3.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529415.jpg" />
+  <img src="Z:/picture/008/save_picture_529415.jpg" />
 </div>
 
 
@@ -62,7 +168,7 @@ IP Scanner Pro 3.50 (3.50.6) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529283.jpg" />
+  <img src="Z:/picture/008/save_picture_529283.jpg" />
 </div>
 
 
@@ -90,7 +196,7 @@ Tweetbot for Twitter 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529279.jpg" />
+  <img src="Z:/picture/008/save_picture_529279.jpg" />
 </div>
 
 
@@ -119,7 +225,7 @@ A Better Finder Attributes 6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529256.jpg" />
+  <img src="Z:/picture/008/save_picture_529256.jpg" />
 </div>
 
 
@@ -146,7 +252,7 @@ CloudMounter 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529247.jpg" />
+  <img src="Z:/picture/008/save_picture_529247.jpg" />
 </div>
 
 
@@ -174,7 +280,7 @@ VueScan Pro 9.5.57 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528984.jpg" />
+  <img src="Z:/picture/008/save_picture_528984.jpg" />
 </div>
 
 
@@ -200,7 +306,7 @@ Valentina Studio Pro 12.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528940.jpg" />
+  <img src="Z:/picture/008/save_picture_528940.jpg" />
 </div>
 
 
@@ -226,7 +332,7 @@ Integrity Pro 12.3.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528939.jpg" />
+  <img src="Z:/picture/008/save_picture_528939.jpg" />
 </div>
 
 
@@ -252,7 +358,7 @@ Text Workflow 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528935.jpg" />
+  <img src="Z:/picture/008/save_picture_528935.jpg" />
 </div>
 
 
@@ -279,7 +385,7 @@ Graphic Inspector 2 v2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528867.jpg" />
+  <img src="Z:/picture/008/save_picture_528867.jpg" />
 </div>
 
 
@@ -305,7 +411,7 @@ EagleFiler 1.9.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528866.jpg" />
+  <img src="Z:/picture/008/save_picture_528866.jpg" />
 </div>
 
 
@@ -332,7 +438,7 @@ SpamSieve 2.9.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528865.jpg" />
+  <img src="Z:/picture/008/save_picture_528865.jpg" />
 </div>
 
 
@@ -359,7 +465,7 @@ Photo Image Editor Pixelstyle 3.8.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528857.jpg" />
+  <img src="Z:/picture/008/save_picture_528857.jpg" />
 </div>
 
 
@@ -386,7 +492,7 @@ Micro Snitch 1.5.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528849.jpg" />
+  <img src="Z:/picture/008/save_picture_528849.jpg" />
 </div>
 
 
@@ -413,7 +519,7 @@ Movavi Picverse Photo Editor 1.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528796.jpg" />
+  <img src="Z:/picture/008/save_picture_528796.jpg" />
 </div>
 
 
@@ -439,7 +545,7 @@ VMware Fusion Pro 8.5.0 (4352717) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528787.jpg" />
+  <img src="Z:/picture/008/save_picture_528787.jpg" />
 </div>
 
 
@@ -467,7 +573,7 @@ ON1 Photo RAW 2022.5 v16.5.1.12465 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528746.jpg" />
+  <img src="Z:/picture/008/save_picture_528746.jpg" />
 </div>
 
 
@@ -493,7 +599,7 @@ Wondershare Filmora Х 11.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528657.jpg" />
+  <img src="Z:/picture/008/save_picture_528657.jpg" />
 </div>
 
 
@@ -519,7 +625,7 @@ Adobe Audition 2022 v22.5.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528650.jpg" />
+  <img src="Z:/picture/008/save_picture_528650.jpg" />
 </div>
 
 
@@ -545,7 +651,7 @@ Be Focused Pro - Focus Timer 1.7.3 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528608.jpg" />
+  <img src="Z:/picture/008/save_picture_528608.jpg" />
 </div>
 
 
@@ -574,7 +680,7 @@ Sync Folders Pro 3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528569.jpg" />
+  <img src="Z:/picture/008/save_picture_528569.jpg" />
 </div>
 
 
@@ -587,118 +693,6 @@ Sync Folders Pro простое в использовании приложени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F42B393CC48D05B1F07797495554469B13A838B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156127   (528559) от 06.08.2017
-
-TinkerTool System 5.62 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528559.jpg" />
-</div>
-
-
-###  Подробнее
-
-TinkerTool System -  утилита для управления скрытыми настройками операционной системы Mac OS X.
-
-Программа позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: август 2017Разработчик: Marcel BresinkПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB70A6E317DC1B42FA0770E956580D7DC6909B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927424   (528518) от 13.08.2015
-
-Aurora Blu-ray Player 2.17.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aurora Blu-ray Media Player - это универсальный HD мультимедиа проигрыватель .
-Может воспроизводить диски Blu-ray, ISO образы файлов Blu-ray, стандартные Blu-ray папки, DVD, VCD, CD, и другие видео форматы. Её мощные функции также отображены в самых современных аудио технологиях: DTS HD 7.1, DTS/AC3 5.1.
-
-Поддержка большинства аудио и видео форматов, в том числе: (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 15 июня 2015Разработчик: Aurora Software Inc.Поддерживаемая ОС: Mac OS X 10.6  +Язык интерфейса: Русский, Немецкий, Английский, Французский  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E443BEFC68D245C2C5B404844E6283BB8776D06B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916244   (528509) от 13.08.2015
-
-Alternote 1.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alternote — идеальный клиент для Evernote
-Alternote — это приложение для Mac, которое заменяет собой клиент для Evernote. Больше всего Alternote напоминает какой-то простейший заметочник, но на деле подтягивает всю базу ваших заметок и позволяет работать с ними без ограничений.
-
-Интерфейс выглядит очень просто и разделён на три области. Панель слева показывает список (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 августа 2015Разработчик: MABee Arts LtdПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB7DE4B148C14DCB6A2C38C1B12882C2681B4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558805   (528432) от 22.06.2022
-
-Adobe Premiere Pro 2022 22.5.0 U2B [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Premiere Pro - профессиональная программа для нелинейного видеомонтажа. Приложение обеспечивает высококачественное редактирование видео разрешения 4K и выше, с 32-битовым цветом, как в RGB, так и YUV цветовом пространстве. Редактирование аудиосемплов, поддержка VST аудиоплагинов (plug-in) и звуковых дорожек 5.1 surround. Архитектура Premiere Pro плагинов позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2022Разработчик: © 1991 - 2022 Adobe SystemsПоддерживаемая ОС: macOS X 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F5D004F2F36674CAE034E9FDAF9BA239723E72
 ```
 
 https://mybot314.ru/tekegram_catalog/

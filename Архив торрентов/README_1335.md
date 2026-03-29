@@ -6,7 +6,7 @@ Tixati 2.74 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753305.jpg" />
+  <img src="Z:/picture/008/save_picture_753305.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AnyDesk 6.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753301.jpg" />
+  <img src="Z:/picture/008/save_picture_753301.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CyberLink AudioDirector Ultra 12.1.2415.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753292.jpg" />
+  <img src="Z:/picture/008/save_picture_753292.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BandLab - Cakewalk 2021.12 (Build 102) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753289.jpg" />
+  <img src="Z:/picture/008/save_picture_753289.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753288.jpg" />
+  <img src="Z:/picture/008/save_picture_753288.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Today Weather - Прогноз погоды, виджет и радар v2.0.0-1
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753284.jpg" />
+  <img src="Z:/picture/008/save_picture_753284.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ SimpleMind Pro 1.31.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753281.jpg" />
+  <img src="Z:/picture/008/save_picture_753281.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Macrorit Partition Expert Server Edition 5.3.7. [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753250.jpg" />
+  <img src="Z:/picture/008/save_picture_753250.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ SQLite Expert Professional 5.3.2.379 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753249.jpg" />
+  <img src="Z:/picture/008/save_picture_753249.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Skype 8.38.0.161 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753248.jpg" />
+  <img src="Z:/picture/008/save_picture_753248.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ YTD Video Downloader PRO 5.9.10.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753247.jpg" />
+  <img src="Z:/picture/008/save_picture_753247.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Wavesfactory TrackSpacer 2.5.4 VST, VST3, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753242.jpg" />
+  <img src="Z:/picture/008/save_picture_753242.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Infix PDF Editor Pro 7.3.3 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753239.jpg" />
+  <img src="Z:/picture/008/save_picture_753239.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Mirillis Splash v2.3.0.0 (FREE for everyone!) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753237.jpg" />
+  <img src="Z:/picture/008/save_picture_753237.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753231.jpg" />
+  <img src="Z:/picture/008/save_picture_753231.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753222.jpg" />
+  <img src="Z:/picture/008/save_picture_753222.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Java SE Runtime Environment 8.0 Update 45 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753218.jpg" />
+  <img src="Z:/picture/008/save_picture_753218.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753163.jpg" />
+  <img src="Z:/picture/008/save_picture_753163.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Total Uninstall 6.27.0.565 PRO Portable by FoxxApp (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753123.jpg" />
+  <img src="Z:/picture/008/save_picture_753123.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ DVGet v7.3.0 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753104.jpg" />
+  <img src="Z:/picture/008/save_picture_753104.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753089.jpg" />
+  <img src="Z:/picture/008/save_picture_753089.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Photoshop CS6 for phone 6.0.6 [Rus]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753084.jpg" />
+  <img src="Z:/picture/008/save_picture_753084.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753072.jpg" />
+  <img src="Z:/picture/008/save_picture_753072.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ HomeBank 5.5.4 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753053.jpg" />
+  <img src="Z:/picture/008/save_picture_753053.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Antivirus Removal Tool 2022.01 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753052.jpg" />
+  <img src="Z:/picture/008/save_picture_753052.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Freemake Video Converter 4.1.13.114 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753051.jpg" />
+  <img src="Z:/picture/008/save_picture_753051.jpg" />
 </div>
 
 

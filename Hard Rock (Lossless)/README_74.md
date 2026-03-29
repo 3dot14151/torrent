@@ -1,3 +1,61 @@
+###  Публикация: 294715   (226493) от 27.11.2021
+
+Guns N' Roses - Greatest Hits (2010) 2CD [APE|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Jungle (4:30)
+02. Sweet Child O' Mine (5:54)
+03. Paradise City (6:47)
+04. Patience (5:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF47E1A95C25DC6516B2CDB7D3DD852F78A17A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341983   (225990) от 01.12.2019
+
+Gudars Skymning - Dansa Tillbaks Till Din Grav (2008) [FLAC|Lossless|image + .cue] <Hard Rock, Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giftas 1 & 2 (2:16)
+02. Allting Flyter (2:53)
+03. Ljusare Tider (4:41)
+04. Klippan (5:51)(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Stoner RockПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B8C0FD8597865332D539652A0AEB800F21C9065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268461   (225988) от 11.12.2018
 
 Ronnie Montrose - 17 albums, 26CD (1973-2017) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Blues Rock, Instrumental Rock>
@@ -6,7 +64,7 @@ Ronnie Montrose - 17 albums, 26CD (1973-2017) [FLAC|Lossless|image + .cue | trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225988.jpg" />
+  <img src="Z:/picture/005/save_picture_225988.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Will The Thrill - Take It Sleazy (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_225899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_225899.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ DeafBrood - Hell Reel (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225789.jpg" />
+  <img src="Z:/picture/005/save_picture_225789.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Riding The Rock Machine: British Seventies Classic Rock (2021) 3xCD, Box Se
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225361.jpg" />
+  <img src="Z:/picture/005/save_picture_225361.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Until The Sun - Enchantment (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224988.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ The Royal Beggars - Falling To New Heights (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224974.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Rainbow - Denver 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224668.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Rainbow - Long Island 1979 Down To Earth Tour (2023) Japanese Edition [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224565.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Love - Reel to Real (1974) 2015, High Moon Records [FLAC|lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224537.jpg" />
+  <img src="Z:/picture/005/save_picture_224537.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Mammoth WVH - Mammoth WVH II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Al
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224161.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Steelover - Glove Me (1984) Reissue, 2021, Mausoleum [FLAC|Lossless|image + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223933.jpg" />
+  <img src="Z:/picture/005/save_picture_223933.jpg" />
 </div>
 
 
@@ -327,7 +385,7 @@ AMH (Adam and The Metal Hawks) - Hurry Up And Wait (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223432.jpg" />
 </div>
 
 
@@ -356,7 +414,7 @@ Roosterz - Brutal Nuggetz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Ston
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223428.jpg" />
 </div>
 
 
@@ -385,7 +443,7 @@ Renaud Hantson s Furious Zoo - Fishnet - Furioso X (2023) [FLAC|Lossless|WEB-DL|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223017.jpg" />
 </div>
 
 
@@ -414,7 +472,7 @@ The New Roses - Sweet Poison (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222919.jpg" />
+  <img src="Z:/picture/005/save_picture_222919.jpg" />
 </div>
 
 
@@ -443,7 +501,7 @@ Stryper - The Final Battle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222912.jpg" />
+  <img src="Z:/picture/005/save_picture_222912.jpg" />
 </div>
 
 
@@ -472,7 +530,7 @@ Snakeskin Boozeband - Open For Boozeness (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222806.jpg" />
+  <img src="Z:/picture/005/save_picture_222806.jpg" />
 </div>
 
 
@@ -501,7 +559,7 @@ Teleborian - Electric Fortunes (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222767.jpg" />
+  <img src="Z:/picture/005/save_picture_222767.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ Reb Beach - A View From The Inside (2020) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222762.jpg" />
+  <img src="Z:/picture/005/save_picture_222762.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ Vertical Hair Factory - Afterlife (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222680.jpg" />
+  <img src="Z:/picture/005/save_picture_222680.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ Lynx - Watcher of Skies (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222664.jpg" />
+  <img src="Z:/picture/005/save_picture_222664.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ Youstn - True (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222631.jpg" />
+  <img src="Z:/picture/005/save_picture_222631.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Gingerpig - 3 albums (2011-2015) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222486.jpg" />
+  <img src="Z:/picture/005/save_picture_222486.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ Ugly Kid Joe - Rad Wings Of Destiny (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222453.jpg" />
+  <img src="Z:/picture/005/save_picture_222453.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ Ugly Kid Joe - Rad Wings Of Destiny (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14CAA5997027043EF4B010EA69E0F5872026C6F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513710   (222416) от 30.11.2021
-
-Avatar - Fenyre varva (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nero 4:22
-02. Tulelo 4:15
-03. Samanenek 5:13
-04. Hatvan gyertya 4:48(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2320D1F6DDEEAF92C80CEFAC95EAC200975135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651384   (222356) от 06.08.2023
-
-Soulkick - Hide the End (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign of the Times [00:05:46]
-02. Last Goodbye [00:04:28]
-03. On the Road [00:04:26]
-04. The Lighthouse [00:04:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B74DB60E9307781E767D7A591E17A8104615C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

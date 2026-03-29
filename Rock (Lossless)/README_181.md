@@ -1,3 +1,166 @@
+###  Публикация: 479065   (99018) от 08.04.2012
+
+Ten Years After - Ten Years After (1967) [APE|Lossless]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_99018.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. "I Want to Know" (Mc Leod) - 2:14
+2. "I Can't Keep from Crying, Sometimes" (Kooper) - 5:25
+3. "Adventures of a Young Organ" (Lee, Churchill) - 2:36
+4. "Spoonful" (Willie Dixon) - 6:07
+5. "Losing the Dogs" (Lee, Dudgeon) - 3:07
+6. "Feel It for Me" (Lee) - 2:42
+7. "Love Until I Die" (Lee) - 2:08
+8. "Don't Want You, Woman" (Lee) - 2:39
+9. "Help Me" - (Bass, Dixon, Williamson) - 9:51Жанр: Blues RockПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479530   (98867) от 07.04.2012
+
+Two Witches - The Vampire's Kiss (1993) [FLAC|Lossless]<Gothic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_98867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agony
+ 02. The Hungry Eyes
+ 03. The Omen
+ 04. Dead Dog's Howl
+ 05. Nightmare
+ 06. Fetish Dream
+ 07. Mircalla
+ 08. Winter
+ 09. Dreamworld
+ 10. Burn The Witch(   Читать дальше...   )Жанр: GothicПродолжительность: 00:52:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468425   (97023) от 17.03.2012
+
+Children Of Nova - Impossible Landscape (2012) [FLAC|Lossless]<Progressive Rock, Psychedelic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_97023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erratic (3:45)
+ 02. Kaleido (4:17)
+ 03. Impossible Landscape (3:32)
+ 04. Moments of Clarity (4:29)
+ 05. Feel Alive (4:08)
+ 06. First Signs (3:49)
+ 07. What Do You See? (3:05)
+ 08. The Troubled Soul (2:26)
+ 09. This Graceful Tragedy (3:34)
+ 10. Silhouette (3:39)(   Читать дальше...   )Жанр: Progressive Rock, PsychedelicПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821935   (91181) от 04.10.2025
+
+Bryan Adams - Roll With The Punches (2025) 3 x CD, Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91181.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Roll With The Punches
+02. Make Up Your Mind
+03. Never Ever Let You Go(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D821735A8A5AC60DF98A3E482E8C4F17FA414B5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484794   (89903) от 21.04.2012
+
+Pink Floyd - Wish You Were Here (1975) Remastered /1993, Columbia, Legacy, MasterSound/ ) USA [Limited Edition] [FLAC|Lossless]<Progressive rock, Psychedelic rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On You Crazy Diamond (Part 1-5) (13:36)
+02. Welcome To The Machine (7:25)
+03. Have A Cigar (5:24)
+04. Wish You Were Here (5:19)
+05. Shine On You Crazy Diamond (Part 6-9) (12:26)Жанр: Progressive rock, Psychedelic rockПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484446   (89288) от 18.04.2012
 
 VA - The British Invasion - History Of British Rock (1991) Box Set 9 CD [FLAC|Lossless]<Rock, Oldies>
@@ -6,7 +169,7 @@ VA - The British Invasion - History Of British Rock (1991) Box Set 9 CD [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89288.jpg" />
 </div>
 
 
@@ -41,7 +204,7 @@ Dave Mason - Alone Together (1970) 24Bit Remastered /2006, Universal Japan / [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88569.jpg" />
 </div>
 
 
@@ -74,7 +237,7 @@ Alabama Shakes - Boys & Girls (2012) [FLAC|Lossless]<Southern Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88353.jpg" />
 </div>
 
 
@@ -109,7 +272,7 @@ Creedence Clearwater Revival - Creedence Clearwater Revival. 10 CD Collection (1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85766.jpg" />
 </div>
 
 
@@ -142,7 +305,7 @@ Joan Jett & The Blackhearts - Greatest Hits [2CD] (2010) [WavPack|Lossless]<Glam
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85719.jpg" />
 </div>
 
 
@@ -177,7 +340,7 @@ Tina Turner - Best Ballads (1996) [APE|Lossless]<Rock, Soul, R'n'B, >
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85051.jpg" />
 </div>
 
 
@@ -212,7 +375,7 @@ Shocking Blue - The Very Best Of (1989) G.G.K. [APE|Lossless]<Rock, Nederbeat, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82021.jpg" />
 </div>
 
 
@@ -247,7 +410,7 @@ Eloy - 18 альбомов (1971-2009) Not Remastered [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79825.jpg" />
 </div>
 
 
@@ -276,7 +439,7 @@ Manfred Mann's Earth Band - 2 Альбома (1976, 1978) [FLAC|Lossless]<Prog R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79571.jpg" />
 </div>
 
 
@@ -308,7 +471,7 @@ David Gilmour - Greatest Hits (2006) [WavPack|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79011.jpg" />
 </div>
 
 
@@ -343,7 +506,7 @@ Rockets - 6 Студийных альбомов (1976-1982) /2000-2003, Rockland
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78823.jpg" />
 </div>
 
 
@@ -372,7 +535,7 @@ Sting - B-Sides & Rarities (2008) [WavPack|Lossless]<Rock, Jazz Rock, Blues Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77700.jpg" />
 </div>
 
 
@@ -407,7 +570,7 @@ Creedence Clearwater Revisited - Extended Versions (2010) [FLAC|Lossless]<Classi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77358.jpg" />
 </div>
 
 
@@ -442,7 +605,7 @@ Howlin Rain - 4 альбома (2006 - 2012) [FLAC|Lossless]<Psychedelic / Blues
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77346.jpg" />
 </div>
 
 
@@ -477,7 +640,7 @@ Queen - 14 Студийных альбомов (1973-1991) 1-st Press Japan /198
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77233.jpg" />
 </div>
 
 
@@ -508,7 +671,7 @@ Chris Norman - Golden Hits (2007) 3CD [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76753.jpg" />
 </div>
 
 
@@ -543,7 +706,7 @@ London Symphony Orchestra - Classic Rock II: The Collector's Edition [4CD Box Se
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76318.jpg" />
 </div>
 
 
@@ -572,7 +735,7 @@ Electric Light Orchestra - The Essential Electric Light Orchestra (2011) 2CD [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75906.jpg" />
 </div>
 
 
@@ -606,7 +769,7 @@ Carlos Santana - Multi Dimensional Warrior (2008) [FLAC|Lossless]<Rock, Bluers R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75259.jpg" />
 </div>
 
 
@@ -641,7 +804,7 @@ Too Close for Comfort - I'm Not Alone Anymore (2024) [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71800.jpg" />
 </div>
 
 
@@ -670,7 +833,7 @@ Imperial Measures - The Promise of Morning (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71794.jpg" />
 </div>
 
 
@@ -684,151 +847,6 @@ Imperial Measures - The Promise of Morning (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5746BD5CB1D12EC1DC135454851F3391E7FCA3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772641   (71766) от 11.01.2025
-
-Magnum - Live At KK's Steel Mill (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days of No Trust (Live) (06:06)
- 02. Lost on the Road to Eternity (Live) (06:13)
- 03. The Monster Roars (Live) (04:14)
- 04. The Archway of Tears (Live) (06:07)(   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 01:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992529E076AEE5B23869FCB5E6176EE7A2887971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774163   (71569) от 19.01.2025
-
-Solaris - Martian Chronicles III (I Or A.I.) (2024) 2 x CD [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71569.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - ZOO Galactica; Ballad of Deluge:
-ZOO Galactica:
-01. ZOO Galactica 4:39
-02. Shadows of the Creators 4:04(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 01:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2FF35F44C2FD9F4D088B07A71B8D50B350D5C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774156   (71564) от 19.01.2025
-
-Actionfredag - Lys Fremtid I Mø​rke (2024) [FLAC|Lossless|tracks + .cue] <Prog Rock, Jazz-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angst oppa bordet 3:36
-02. Dalai Lama's Five Dollar Mamas I 3:51
-03. Karesuando Camping 3:14
-04. Planet Bygningsetaten 4:53(   Читать дальше...   )Жанр: Prog Rock, Jazz-RockПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461EA66DD8954043227349A940D9E03F6ABCF3A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774646   (71534) от 23.01.2025
-
-Pete Yorn - Day I Forgot (2003) CD, Album, Club Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro    [0:00:47.18]
-02. Come Back Home    [0:03:23.53]
-03. Crystal Village    [0:03:48.31]
-04. Carlos (Don’t Let It Go to Your Head)    [0:03:29.21](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC58D31FC335E02A6D10F4BABF2B1B7EED4B8C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774891   (71533) от 23.01.2025
-
-Stephen Kellogg and the Sixers - Bulletproof Heart (2004) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorpio    [0:03:13.37]
-02. You've Changed    [0:03:43.38]
-03. Thirteen    [0:03:54.00]
-04. See You Later, See You Soon    [0:03:55.37](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1429EDA6C61ABEE101ACE937865A7E93232629A
 ```
 
 https://mybot314.ru/tekegram_catalog/

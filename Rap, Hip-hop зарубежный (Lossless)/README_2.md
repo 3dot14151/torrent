@@ -6,7 +6,7 @@ Knowledge the Pirate - Flintlock (2018) Sword & Skull Edition [FLAC|Lossless|tra
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620761.jpg" />
+  <img src="Z:/picture/008/save_picture_620761.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Kool Keith - Controller of Trap (2018) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606807.jpg" />
+  <img src="Z:/picture/008/save_picture_606807.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mr. Lif & Brass Menažeri (Mr. Lif & Brass Menazeri) - Resilient (2017) [FLAC|Lo
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604824.jpg" />
+  <img src="Z:/picture/008/save_picture_604824.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Neroche - Sleeping On The Ceiling (2017) [FLAC|Lossless|Web-DL|tracks] <Chillhop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603592.jpg" />
+  <img src="Z:/picture/008/save_picture_603592.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Jelly Roll - Addiction Kills (2017) Bad Apple, Inc. [FLAC|Lossless|WEB-DL|tracks
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585262.jpg" />
+  <img src="Z:/picture/008/save_picture_585262.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Jelly Roll - Crosses and Crossroads (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Rap
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585257.jpg" />
+  <img src="Z:/picture/008/save_picture_585257.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Chillhop Essentials - Summer (2019) [FLAC|Lossless|Web-DL|tracks] <ChillHop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554167.jpg" />
+  <img src="Z:/picture/008/save_picture_554167.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Nicki Minaj - Queen (2018) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528536.jpg" />
+  <img src="Z:/picture/008/save_picture_528536.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [FLAC|Lossless|tracks + .
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491946.jpg" />
+  <img src="Z:/picture/008/save_picture_491946.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ NANA - Greatest Hits (2005) [APE|image+.cue]<Rap/Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485710.jpg" />
+  <img src="Z:/picture/008/save_picture_485710.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Beastie Boys - Licensed to Ill (1986) 1999, Def Jam Recordings [FLAC|Lossless|tr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483877.jpg" />
+  <img src="Z:/picture/008/save_picture_483877.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eminem - Kamikaze (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483755.jpg" />
+  <img src="Z:/picture/008/save_picture_483755.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Young Thug - So Much Fun (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461077.jpg" />
+  <img src="Z:/picture/008/save_picture_461077.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Apollo Brown & Skyzoo - The Easy Truth (2016) [FLAC|Lossless|tracks] <Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453220.jpg" />
+  <img src="Z:/picture/008/save_picture_453220.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Chillhop Essentials - Fall (2016) [FLAC|Lossless|Web-DL|tracks] <Instrument
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448214.jpg" />
+  <img src="Z:/picture/008/save_picture_448214.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Ka - The Night's Gambit (2013) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431216.jpg" />
+  <img src="Z:/picture/008/save_picture_431216.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Juicy J - Stay Trippy (2013) Best Buy Exclusive [FLAC|Lossless|tracks + .cue] <H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430476.jpg" />
+  <img src="Z:/picture/008/save_picture_430476.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Fort Minor - The Rising Tied (2005) Limited Edition [FLAC|Lossless|tracks + .cue
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414184.jpg" />
+  <img src="Z:/picture/008/save_picture_414184.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mr.Fables - Melodic Snaps Vol. 2 (2020) [FLAC|Lossless|Web-DL|tracks] <Instrumen
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409988.jpg" />
+  <img src="Z:/picture/008/save_picture_409988.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Cypress Hill - Elephants on Acid (2018) [FLAC|Lossless|tracks + .cue] <Rap, Hip-
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407684.jpg" />
+  <img src="Z:/picture/008/save_picture_407684.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Chillhop Essentials - Fall (2017) [FLAC|Lossless|Web-DL|tracks] <Chillhop, 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390473.jpg" />
+  <img src="Z:/picture/008/save_picture_390473.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Uratsakidogi - Black Hop (2018) bonus track edition [FLAC|Lossless|image + .cue]
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385122.jpg" />
+  <img src="Z:/picture/008/save_picture_385122.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Apathy - Connecticut Casual (2014) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Under
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364504.jpg" />
+  <img src="Z:/picture/008/save_picture_364504.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Travis Scott - Astroworld (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361226.jpg" />
+  <img src="Z:/picture/008/save_picture_361226.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Kid Abstrakt & Emapea - Jazzy Vibes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358064.jpg" />
+  <img src="Z:/picture/008/save_picture_358064.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351892.jpg" />
+  <img src="Z:/picture/008/save_picture_351892.jpg" />
 </div>
 
 

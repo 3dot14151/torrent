@@ -1,3 +1,119 @@
+###  Публикация: 1057064   (477713) от 27.09.2016
+
+Max Roach, Clifford Brown Quintet - Brownie Lives! (Live At Basin Street And In Concert At Carnegie Hall) 2005 [WavPack|Lossless|image + .cue] <Jazz, Hard bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477713.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Waltz Hot (7:44)
+2. I Feel A Song Comin' On (5:17)
+3. What's New (3:19)
+4. Daahoud (5:23)(   Читать дальше...   )Жанр: Jazz, Hard bopПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31505189B09FDCFB9A46C6B0F724AEB5FBE7EDC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057080   (477604) от 27.09.2016
+
+Billie Holiday - Lady In Satin (1958, 1959) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477604.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Lady In Satin:
+01.I'm a Fool to Want You [03:30]
+02.For Heaven's Sake [03:31]
+03.You Don't Know What Love Is [03:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6207B2F4D7396BCF4383ECDBE2850F49863E2101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406204   (477600) от 02.09.2020
+
+Lionel Hampton - Just Jazz (1947) 1990, MCA [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star Dust [15:16]
+02. One O'Clock Jump [8:06]
+03. The Man I Love [13:50]
+04. Oh, Lady Be Good [7:09]Жанр: SwingПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB78CE065717D59B34F0DE7F59824BF377731116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057138   (477515) от 27.09.2016
+
+Nina Simone - 16 Top Tracks (1967-1971) 1988, BMG Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_477515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ain't Got No--I Got Life [02:16]
+ 02.I Loves You Porgy [03:30]
+ 03.Take My Hand Precious Lord [01:41]
+ 04.To Love Somebody [02:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA2A353DFA6DB2A274E59469B3BE42421A8228C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 546954   (476628) от 14.09.2012
 
 Armen Chakmakian & Djivan Gasparyan - Ceremonies (1998) [WavPack|Lossless]<Jazz, World, New Age>
@@ -6,7 +122,7 @@ Armen Chakmakian & Djivan Gasparyan - Ceremonies (1998) [WavPack|Lossless]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476628.jpg" />
+  <img src="Z:/picture/008/save_picture_476628.jpg" />
 </div>
 
 
@@ -41,7 +157,7 @@ Joe Williams - Four Classic Albums (1956 - 1960) 2CD, 2021, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476504.jpg" />
+  <img src="Z:/picture/008/save_picture_476504.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ Cecilia - 2 альбома (1994 & 1996) [FLAC|Lossless]<Jazz Vocal, Ballad, Eas
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476481.jpg" />
+  <img src="Z:/picture/008/save_picture_476481.jpg" />
 </div>
 
 
@@ -105,7 +221,7 @@ Milton Nascimento - Millennium (2000) 2006, Mercury [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476273.jpg" />
+  <img src="Z:/picture/008/save_picture_476273.jpg" />
 </div>
 
 
@@ -134,7 +250,7 @@ Isao Suzuki Group - 1998, New (1998) Platz [FLAC|Lossless|tracks + .cue] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476212.jpg" />
+  <img src="Z:/picture/008/save_picture_476212.jpg" />
 </div>
 
 
@@ -163,7 +279,7 @@ VA - Voices of Love (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476185.jpg" />
+  <img src="Z:/picture/008/save_picture_476185.jpg" />
 </div>
 
 
@@ -198,7 +314,7 @@ Gary Bartz - Episode One Children Of Harlem (1994) /Challenge/[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476102.jpg" />
+  <img src="Z:/picture/008/save_picture_476102.jpg" />
 </div>
 
 
@@ -227,7 +343,7 @@ VA - Jazz Audiophile Voices (2010) [FLAC|Lossless]<Vocal jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476067.jpg" />
+  <img src="Z:/picture/008/save_picture_476067.jpg" />
 </div>
 
 
@@ -262,7 +378,7 @@ Kat Reinhert - Spark (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476035.jpg" />
+  <img src="Z:/picture/008/save_picture_476035.jpg" />
 </div>
 
 
@@ -291,7 +407,7 @@ Thomas Chapin - I've Got Your Number (1993) /Arabesque Jazz/[APE|tracks+.cue]<Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476032.jpg" />
+  <img src="Z:/picture/008/save_picture_476032.jpg" />
 </div>
 
 
@@ -320,7 +436,7 @@ VA - Acoustic Audiophile Voices (2004) [FLAC|Lossless]<Vocal jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475892.jpg" />
+  <img src="Z:/picture/008/save_picture_475892.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ The Tony Lustig Quintet - Taking Flight (2016) Bimperl Entertainment & Media[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475481.jpg" />
+  <img src="Z:/picture/008/save_picture_475481.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ John Surman - Morning Glory (1973) 2016, Fledg'ling Records[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475476.jpg" />
+  <img src="Z:/picture/008/save_picture_475476.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ Herbie Mann - Verve Jazz Masters 56 (1996) PolyGram Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474546.jpg" />
+  <img src="Z:/picture/008/save_picture_474546.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ Buddy Collette - Six Classic Albums (1957 - 1961) 4CD, 2017, Real Gone Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474218.jpg" />
+  <img src="Z:/picture/008/save_picture_474218.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Horace Tapscott - Aiee! The Phantom (1995) 2009, Arabesque Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474154.jpg" />
+  <img src="Z:/picture/008/save_picture_474154.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ Madeleine Peyroux - Anthem (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474008.jpg" />
+  <img src="Z:/picture/008/save_picture_474008.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ Mette Juul - There Is A Song(2015) - There Is A Song (2015) [FLAC|tracks|WEB-DL]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473585.jpg" />
+  <img src="Z:/picture/008/save_picture_473585.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ Donna Hightower - Take One! & Gee, Baby, Ain't I Good To You? (2009) [FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473560.jpg" />
+  <img src="Z:/picture/008/save_picture_473560.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ Fourplay - Silver (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473464.jpg" />
+  <img src="Z:/picture/008/save_picture_473464.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ Eric Reed - Groovewise (2014) Smoke Sessions Records[FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473432.jpg" />
+  <img src="Z:/picture/008/save_picture_473432.jpg" />
 </div>
 
 
@@ -645,7 +761,7 @@ John Lewis & Hank Jones - An Evening with Two Grand Pianos (1979) 2000, Collecta
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473305.jpg" />
+  <img src="Z:/picture/008/save_picture_473305.jpg" />
 </div>
 
 
@@ -659,122 +775,6 @@ John Lewis & Hank Jones - An Evening with Two Grand Pianos (1979) 2000, Collecta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07B8C5D1DD46D313ED508F5FF5DECD909A43DA54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057846   (473304) от 29.09.2016
-
-Masabumi Kikuchi - Susto +2 (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Circle/Line [14:58]
- 02.City Snow [07:42]
- 03.Gumbo [10:15]
- 04.New Native [15:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8317FEC39E728BB31B16044C5BE37803E35430F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057721   (473303) от 29.09.2016
-
-Dewa Budjana - Home (2005) Remastered, 2016 [FLAC|Lossless|tracks] <World Fusion,  Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473303.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Temple Island. 6:07
-2. On The Way Home. 6:09
-3. Los Paradise. 5:28
-4. Malacca Bay. 5:25(   Читать дальше...   )Жанр: World Fusion,  Jazz-RockПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C65B599457DB90B53792CCC5F75FE7B8930E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057487   (473293) от 29.09.2016
-
-Louis Van Dyke - Plays Lennon-McCartney (1970) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Crossover Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Golden Slumbers and Carry That Weight [05:36]
- 02.She's Leaving Home [04:19]
- 03.For No One [03:11]
- 04.Eleanor Rigby [05:43](   Читать дальше...   )Жанр: Crossover Jazz, Jazz-PopПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9773EBCFFE3842D8F1A68C4824F05F272557256C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057837   (473291) от 29.09.2016
-
-Tsuyoshi Yamamoto Trio - Blues For Tee (1974) Remaster, 2014, Think! Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues for Tee [16:40]
- 02.I'm Glad There Is You [07:03]
- 03.Speed Ball Blues [11:36]
- 04.Broadway [08:21]Жанр: Post-Bop, Piano JazzПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D9F706FF7D72BE2AD0ACE62F3E4B3FF664DA26
 ```
 
 https://mybot314.ru/tekegram_catalog/

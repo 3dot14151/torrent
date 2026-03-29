@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1862096   (1063035) от 
+
+VA - Milk & Sugar Miami Sessions 2026 (2026) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B3RAO - Someway, Somehow (Original Mix) 05:59
+02. Earth N Days - Gonna Do (Extended Mix) 05:12
+03. D.P.V. - Roots (Original Mix) 05:48
+04. Piem - Disco Mordisco (Extended Mix) 06:41(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 05:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015C3A775B66709DF2A9865A0D1738F429A03616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862080   (1063034) от 
+
+VA - Playa Del Carmen 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1063034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tony Finger - Forever (Extended Version) 05:20
+02. Krestovsky - Break the Night (Extended) 04:27
+03. Tony Finger - Izindaba (Extended) 05:03
+04. Santi Vasques - El Mundo Danza (Extended) 05:50(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 02:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22620F2DAD1C15E44D49DE7259BA6F09F705DD9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861235   (1062601) от 
+
+VA - A-Mase - Melodic Wave (2026) [MP3|320 Kbps] <Melodic House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase & Alysia Sun - Broken Dreams (Extended Mix) [5:59]
+02. A-Mase - Interconnected (Original Mix) [5:57]
+03. A-Mase & Alysia Sun - Heatwave (Extended Mix) [4:46]
+04. A-Mase & Alysia Sun - Don't Believe In Love (Extended Mix) [5:01](   Читать дальше...   )Жанр: Melodic House, Progressive HouseПродолжительность: 01:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A2AB052C9192F7D0BFB098D561A1470D574A35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860667   (1062060) от 
+
+VA - A-Mase - Deep Relax, Vol. 2 (2026) [MP3|320 Kbps] <Deep House, Melodic House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase & Alysia Sun - Broken Dreams (Original Mix) [3:25]
+02. A-Mase - Paradise (Original Mix) [3:50]
+03. A-Mase & Natune - Stay! (Afro Radio Mix) [3:18]
+04. A-Mase - I'm Falling Down 2.0 (Original Mix) [5:35](   Читать дальше...   )Жанр: Deep House, Melodic House, Progressive HouseПродолжительность: 01:08:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53480B139F1715A50F29F62875A5D6DE1926DACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860115   (1061506) от 
 
 VA - A-Mase - Deep Relax (2026) [MP3|320 Kbps] <Deep House, Organic House, Progressive House>
@@ -7,7 +123,7 @@ VA - A-Mase - Deep Relax (2026) [MP3|320 Kbps] <Deep House, Organic House, Progr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061506.jpg" />
+  <img src="Z:/picture/005/save_picture_1061506.jpg" />
 </div>
 
 
@@ -36,7 +152,7 @@ VA - Chill & Deep House Anthems 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061085.jpg" />
+  <img src="Z:/picture/005/save_picture_1061085.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ VA - The Sound of 2026, Chapter 2: Barcelona (Night Mix) (2026) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061039.jpg" />
+  <img src="Z:/picture/005/save_picture_1061039.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ VA - The Sound of 2026, Chapter 2: Barcelona (Day Mix) (2026) [MP3|320 Kbps] <Pr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061038.jpg" />
+  <img src="Z:/picture/005/save_picture_1061038.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ VA - Afro Beats 2026 Hits (2026) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060889.jpg" />
+  <img src="Z:/picture/005/save_picture_1060889.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ VA - Black Hole House Music 03-26 (2026) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060751.jpg" />
+  <img src="Z:/picture/005/save_picture_1060751.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ VA - Sirup Miami 2026 (2026) [MP3|320 Kbps] <Progressive House, Melodic House & 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060193.jpg" />
+  <img src="Z:/picture/009/save_picture_1060193.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ VA - Top 20 Melodic Techno 2026 March (2026) [MP3|320 Kbps] <Progressive House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060102.jpg" />
+  <img src="Z:/picture/009/save_picture_1060102.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ VA - Déepalma Spotlight: Dilby (Extended Club Versions) (2026) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060101.jpg" />
+  <img src="Z:/picture/009/save_picture_1060101.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ VA - DEEP HOUSE RELAX 2026: The Pulse (2026) [MP3|320 Kbps] <Deep House, Organic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059972.jpg" />
+  <img src="Z:/picture/009/save_picture_1059972.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ VA - Ibiza Spring 2026 (Deep-House Smoothies from the Heart) (2026) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059805.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ VA - Dance Report, Vol. 4 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058310.jpg" />
+  <img src="Z:/picture/005/save_picture_1058310.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ VA - Dance Report, Vol. 3 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057997.jpg" />
+  <img src="Z:/picture/005/save_picture_1057997.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ VA - Ultimate Dance 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057572.jpg" />
+  <img src="Z:/picture/005/save_picture_1057572.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ VA - Dance Report, Vol. 2 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057569.jpg" />
+  <img src="Z:/picture/005/save_picture_1057569.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ VA - Top 20 Melodic Techno 2026 February (2026) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057155.jpg" />
+  <img src="Z:/picture/005/save_picture_1057155.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Cosmic Gate - Perspectives (Extended Mixes) (2026) [MP3|320 Kbps] <Progressive H
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057048.jpg" />
+  <img src="Z:/picture/005/save_picture_1057048.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ VA - Chill House Classics (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056839.jpg" />
+  <img src="Z:/picture/005/save_picture_1056839.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ VA - Black Hole House Music 02-26 (2026) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056838.jpg" />
+  <img src="Z:/picture/005/save_picture_1056838.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ VA - Winter Hits Dance Selection 2026 Vol. 2 (2026) [MP3|320 Kbps] <Deep House, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056507.jpg" />
+  <img src="Z:/picture/005/save_picture_1056507.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ VA - Winter Hits Dance Selection 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056506.jpg" />
+  <img src="Z:/picture/005/save_picture_1056506.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ VA - Winter Dance Hits 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056442.jpg" />
+  <img src="Z:/picture/005/save_picture_1056442.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ VA - Winter Dance Hits 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C5A355FE70ADF635BFF0BA4935023AD8AC469A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853021   (1056440) от 11.02.2026
-
-VA - DEEP Reflections: Winter Edition 2026 (2026) [MP3|320 Kbps] <Deep House, Organic House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deepofomin & M-Sol DEEP - Speedway (Original Mix) [8:09]
-02. Eigenart & M-Sol DEEP - Northern Lights (Original Mix) [5:41]
-03. Random Thoughts & M-Sol DEEP - Malt (Original Mix) [5:03]
-04. Chona (AR) & LX Música & M-Sol DEEP - Náufrago (Original Mix) [7:45](   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:12:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAF637BF793F2D16F7212C5F86B566D6BF3CB69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851652   (1055263) от 03.02.2026
-
-VA - Micro Sound Spring Session 2026 (2026) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svea Lior & ETHNOTONIK - Stay in the Light (Spring Session) 03:12
-02. Dotty Blue & Flavio Bello - If You Feel It Too (Spring Session) 03:39
-03. RODRIGO LAITONA & Leiza Gomez - Y Pasiòn (Spring Session) 02:58
-04. Duck Honey - Do You Want 03:32(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8DA9BE11382F21D32ECCFE0EE190B061B741C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850311   (1054208) от 27.01.2026
-
-VA - Dance Charge Of The Night (2026) [MP3|320 Kbps] <Club, Dance, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054208.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Confidence Man - Control (02:52)
- 002. Baby Jane - Reincarnate (02:26)
- 003. Dj BalooMiss J - Afro Disco Jungle (04:22)
- 004. Dj Renat - Alhawaa (04:47)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 11:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D252A57C3518BFACE3587957C88E51DB3882A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849711   (1053628) от 24.01.2026
-
-VA - Best Of EDM Party 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turbotronic - Happy Weekend 02:01
-02. MaxRiven - Flight 02:24
-03. 90bangerz - Para Ri Para Ra 02:05
-04. JLUIS - Pray For Me 03:09(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430DDFA4FA8254853683928D57D1F890FF915D18
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,82 @@
+###  Публикация: 964104   (220878) от 01.12.2021
+
+Владимир Карпов | Маршал Жуков, его соратники и противники в дни войны и мира (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного писателя Владимира Карпова, долгие годы занимавшегося сбором и анализом документов и материалов, хранящихся в отечественных и зарубежных архивах, представляет собой монументальное и величественное полотно, в центре которого - Георгий Константинович Жуков. Автор исследует его взаимоотношения с И.В.Сталиным как Верховным Главнокомандующим, с другими (   Читать дальше...   )Жанр: Военная проза, БиографияПродолжительность: 23:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DEEA3A9A9E0B090C2BB29D148D3F6E66150CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084016   (218659) от 19.12.2016
+
+Анатолий Макаров | Александр Вертинский (2016) [MP3, Марина Толоконская]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218659.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Он не притворялся ни мессией, ни трибуном, он не был ни «буревестником», ни «горланом». Миф Александра Вертинского пережил государства, революции, войны. Пьеро пел об обманутой и обманувшей любви, о выдуманных городах и несуществующих странах. Давно уже нет царской России, подарившей мировой культуре большого артиста. Давно нет уже Советского Союза, куда он стремился (   Читать дальше...   )Жанр: ЖЗЛ, биографии и мемуарыИздательство: Нигде не купишьПродолжительность: 12:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12D9F10550ED12E1841EB6E43328A7C9F3E016F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652351   (217644) от 11.08.2023
+
+Владимир Першанин | Штрафники, разведчики, пехота. «Окопная правда» Великой Отечественной (2019) [MP3, Александр Макшанцев]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга от автора бестселлеров «Смертное поле» и «Командир штрафной роты»! Страшная правда о Великой Отечественной. Война глазами фронтовиков – простых пехотинцев, разведчиков, артиллеристов, штрафников.
+«Героев этой книги объединяет одно – все они были в эпицентре войны, на ее острие. Сейчас им уже за восемьдесят. Им нет нужды рисоваться. Они рассказывали мне (   Читать дальше...   )Жанр: Биографии и мемуарыИздательство: ЛитРес: чтецПродолжительность: 07:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1955303C87E3A168B72E11E2DFE1BDD3480888C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269788   (215869) от 17.12.2018
 
 Елизавета Дворецкая | Венец Прямиславы (2018) [MP3]
@@ -6,7 +85,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215869.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215833.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215480.jpg" />
+  <img src="Z:/picture/005/save_picture_215480.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212835.jpg" />
+  <img src="Z:/picture/005/save_picture_212835.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212104.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212100.jpg" />
+  <img src="Z:/picture/004/save_picture_212100.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211513.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211396.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211033.jpg" />
+  <img src="Z:/picture/005/save_picture_211033.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210347.jpg" />
+  <img src="Z:/picture/005/save_picture_210347.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208216.jpg" />
+  <img src="Z:/picture/005/save_picture_208216.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208194.jpg" />
+  <img src="Z:/picture/005/save_picture_208194.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207007.jpg" />
+  <img src="Z:/picture/005/save_picture_207007.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206758.jpg" />
+  <img src="Z:/picture/005/save_picture_206758.jpg" />
 </div>
 
 
@@ -377,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205949.jpg" />
+  <img src="Z:/picture/005/save_picture_205949.jpg" />
 </div>
 
 
@@ -403,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198999.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197180.jpg" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195673.jpg" />
+  <img src="Z:/picture/004/save_picture_195673.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193299.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193204.jpg" />
 </div>
 
 
@@ -535,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193182.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193061.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193037.jpg" />
 </div>
 
 
@@ -598,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9A77E55ECA6C8C592AF808593716E3D3C8AA5C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657259   (192998) от 02.09.2023
-
-Валентин Пикуль | Русско-японская война. Дальний Восток (Книга 1). Богатство (2006) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман "Богатство" освещает малоизвестные страницы истории русско-японской войны 1904-05 гг. Здесь перед нами открывается богатейшая страна, земля которой таит несметные сокровища, а природа уникальна. Это Камчатка, где в цветущих долинах, осыпанных вулканическим пеплом, жили гордые и сильные люди. И эти люди были способны пренебречь личным, забыть взаимные (   Читать дальше...   )Жанр: Исторический романИздательство: Говорящая книгаПродолжительность: 13:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41074F72D590DED1EBAE94C991B8DD71007358C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657413   (192729) от 03.09.2023
-
-Валентин Пикуль | Русско-японская война. Дальний Восток (Книга 2). Три возраста Окини-сан (2006) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валентин Пикуль обозначил свой роман «Три возраста Окини-сан» словом «сентиментальный». Но на фоне романтической любви русского офицера к японской девушке развертывалась интереснейшая политическая интрига взаимоотношений России и Японии.
-В центре романа «Три возраста Окини-сан» — драматическая судьба Владимира Коковцева, прошедшего путь от мичмана до адмирала российского (   Читать дальше...   )Жанр: Исторический романИздательство: Говорящая книгаПродолжительность: 17:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C358C0247EC97A06A3A2F3B29BBF5CF373851B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657406   (192723) от 03.09.2023
-
-Валентин Пикуль | Русско-японская война. Дальний Восток (Книга 3). Крейсера (2017) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192723.jpg" />
-</div>
-
-
-###  Подробнее
-
-В аудиокниге, представляемой студией АРДИС, вниманию слушателей предлагается роман Валентина Пикуля «Крейсера», рассказывающий о мужестве наших моряков в Русско-японской войне 1904–1905 годов. Он был приурочен автором к трагической годовщине Цусимского сражения. За роман «Крейсера» писатель был удостоен Государственной премии РСФСР имени М. Горького.Жанр: Исторический романИздательство: АрдисПродолжительность: 11:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:199563194816D5D1D84759BC309221A1CA14B8F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

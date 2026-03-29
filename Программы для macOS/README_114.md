@@ -1,3 +1,134 @@
+###  Публикация: 1263210   (289917) от 18.11.2018
+
+WidsMob Montage 1.11 (1190) [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы делаете какой-то плакат для занятий, проектируя монтаж фигуры на день рождения?
+WidesMob Montage должен быть отличным производителем монтажа, чтобы превратить все в потрясающие мозаики. Это универсальный фотомонтаж, который может создавать потрясающую фотомозаику с тысячами изображений в высоком разрешении.Тип издания: macOS SoftwareРелиз состоялся: 10.11.2018Разработчик: WidsMobПоддерживаемая ОС: macOS 10.6.6 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8989F404A3579C5DB6C1FE2A462F983A3E2E6F6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263224   (289913) от 18.11.2018
+
+WidsMob Viewer 2.8 (1259) [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть ли способ просмотреть все изображения в одной папке на Mac? Как просмотреть несколько фотографий в очень быстрой скорости? Как выбрать и экспортировать нужные фотографии? Для того, чтобы иметь приятный опыт работы с фотографиями, WidsMob Viewer может быть решением, которое необходимо принять во внимание.Тип издания: macOS SoftwareРелиз состоялся: 19.10.2018Разработчик: WidsMobПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388108FCB37578D8F216AA0B8CA3253CC94C55F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335241   (289878) от 01.11.2019
+
+Paperless 3.0.71 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paperless - поможет создать базу данных эллектронных документов, где пользователи смогут каталогизировать, управлять и просматривать документы в удобном и доступном виде. Paperless поможет отсканировать чеки, отчеты и другие бумажные документы, а система OCR распознает их и использует полученную информацаю для заполнения соответствующих полей. А внести в базу электронные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MarinersoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3C76CEA0205AAB749A755E23EB7B5D2DDEDB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262963   (289756) от 18.11.2018
+
+AirPlayer Pro 2.5.0.2 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289756.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirPlayer Pro - используйте возможности AirPlay для отображения видео или фото, передачи аудио и записи с ваших девайсов на компьютерах Mac.Тип издания: macOS SoftwareРелиз состоялся: 15.11.2018Разработчик: ©ThinkSkyПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECF61352A17F5CEFCCBAD037695E855127FBD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335099   (289737) от 01.11.2019
+
+PDF Plus - Merge & Split PDFs 1.3 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289737.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Plus - это мощный PDF-процессор, который поможет вам объединять, разделять, добавлять водяные знаки и обрезать PDF-документы всего за три простых шага. Например, если вы хотите нанести водяные знаки на ряд документов PDF с логотипом вашей компании, PDF Plus выполнит эту работу всего за несколько секунд. Просто выберите файлы, которые вы хотите сделать водяным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.10.2019Разработчик: Day 1 Solutions SRLПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E69DCAD4776A85AB71598B2CB0B93503FD15B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080204   (289482) от 06.12.2016
 
 Video Repair Software 2.0.0.1 [Multi]
@@ -6,7 +137,7 @@ Video Repair Software 2.0.0.1 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289482.jpg" />
+  <img src="Z:/picture/008/save_picture_289482.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ iNet Network Scanner 2.3.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288478.jpg" />
+  <img src="Z:/picture/008/save_picture_288478.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ Grabber : Screenshot Master 1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288386.jpg" />
+  <img src="Z:/picture/008/save_picture_288386.jpg" />
 </div>
 
 
@@ -88,7 +219,7 @@ Espionage 3.7.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288016.jpg" />
+  <img src="Z:/picture/008/save_picture_288016.jpg" />
 </div>
 
 
@@ -114,7 +245,7 @@ PhotoSweeper 3.5.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287907.jpg" />
+  <img src="Z:/picture/008/save_picture_287907.jpg" />
 </div>
 
 
@@ -140,7 +271,7 @@ AudioSwitcher 2.99.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287881.jpg" />
+  <img src="Z:/picture/008/save_picture_287881.jpg" />
 </div>
 
 
@@ -166,7 +297,7 @@ Coolmuster Android Assistant 3.0.189 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287831.jpg" />
+  <img src="Z:/picture/008/save_picture_287831.jpg" />
 </div>
 
 
@@ -192,7 +323,7 @@ Digital Clock 3D 1.1.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287829.jpg" />
+  <img src="Z:/picture/008/save_picture_287829.jpg" />
 </div>
 
 
@@ -218,7 +349,7 @@ Templates for MS Word by GN 4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287798.jpg" />
+  <img src="Z:/picture/008/save_picture_287798.jpg" />
 </div>
 
 
@@ -246,7 +377,7 @@ KMPlayer 0.3.2 Beta [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287616.jpg" />
+  <img src="Z:/picture/008/save_picture_287616.jpg" />
 </div>
 
 
@@ -272,7 +403,7 @@ MailTab Pro for Gmail 7.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287325.jpg" />
+  <img src="Z:/picture/008/save_picture_287325.jpg" />
 </div>
 
 
@@ -299,7 +430,7 @@ IconBox 2.6.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287311.jpg" />
+  <img src="Z:/picture/008/save_picture_287311.jpg" />
 </div>
 
 
@@ -326,7 +457,7 @@ MenuTab Pro for Facebook 6.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287144.jpg" />
+  <img src="Z:/picture/008/save_picture_287144.jpg" />
 </div>
 
 
@@ -355,7 +486,7 @@ Image-Line FL Studio Producer Edition 20.0.5.91 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287101.jpg" />
+  <img src="Z:/picture/008/save_picture_287101.jpg" />
 </div>
 
 
@@ -381,7 +512,7 @@ Logoist 2.6.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286891.jpg" />
+  <img src="Z:/picture/008/save_picture_286891.jpg" />
 </div>
 
 
@@ -407,7 +538,7 @@ Temp Monitor 1.2.2 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286446.jpg" />
+  <img src="Z:/picture/008/save_picture_286446.jpg" />
 </div>
 
 
@@ -433,7 +564,7 @@ PowerTunes 1.4.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286341.jpg" />
+  <img src="Z:/picture/008/save_picture_286341.jpg" />
 </div>
 
 
@@ -459,7 +590,7 @@ Dropshelf 1.3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286230.jpg" />
+  <img src="Z:/picture/008/save_picture_286230.jpg" />
 </div>
 
 
@@ -487,7 +618,7 @@ MacFamilyTree 9 v9.0.10 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286171.jpg" />
+  <img src="Z:/picture/008/save_picture_286171.jpg" />
 </div>
 
 
@@ -515,7 +646,7 @@ Videoloupe 1.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284502.jpg" />
+  <img src="Z:/picture/008/save_picture_284502.jpg" />
 </div>
 
 
@@ -541,7 +672,7 @@ GarageBand 10.1.4 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284442.jpg" />
+  <img src="Z:/picture/008/save_picture_284442.jpg" />
 </div>
 
 
@@ -552,142 +683,6 @@ GarageBand 10.1.4 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E3AD06570073920F423016108B1166F53845511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335655   (284245) от 04.11.2019
-
-Readiris Pro 17.1.3 (build 7ca) [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Readiris – это мощная система оптического распознавания символов, предназначенная как для домашних, так и для профессиональных пользователей. Благодаря данной OCR-системе вы сможете быстро и качественно конвертировать бумажные документы, PDF-файлы и фотоизображения в оцифрованный текст с сохранением исходного форматирования. OCR-ядро Readіrіs Рro оптимизировано для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: I.R.I.S. Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81BAA2775ECA1606102AFBD88BE28BE66CAD838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186834   (284230) от 26.11.2017
-
-Nimble Commander 1.2.2 (2450) [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nimble Commander полностью оправдывает своё имя (в переводе с английского nimble — проворный, ловкий), - программа потребляет минимальное количество ресурсов и обеспечивает мгновенный отклик, одинаково быстро работая как с одним окном, так и с дюжиной. Для продвинутых пользователей менеджер файлов — это не просто средство просмотра документов и папок, а целая экосистема, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.10.2017Разработчик: Michael KazakovПоддерживаемая ОС: macOS 10.10 и вышеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0000EC3C0814CBDC55E8C8DFBE03FAB0B8F8FBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264019   (284015) от 21.11.2018
-
-Nikon Camera Control Pro 2.28.0 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nikon Camera Control Pro - приложение предназначено для дистанционного управления настройками большинства цифровых зеркальных фотокамер Nikon. Камера может быть подключена к компьютеру через USB-кабель, по проводной или беспроводной сети, при этом осуществляется поддержка передовых возможностей фотокамеры, таких как LiveView, системы Picture Control и Viewer, которые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2018Разработчик: NikonПоддерживаемая ОС: macOS 10.11.6 или вышеЯзык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED7985D43117393BE49D63A5DBCA2987AACA196C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964172   (283395) от 10.12.2015
-
-Aurora Blu-ray Player 2.18.9 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aurora Blu-ray Media Player - это универсальный HD мультимедиа проигрыватель .
-Может воспроизводить диски Blu-ray, ISO образы файлов Blu-ray, стандартные Blu-ray папки, DVD, VCD, CD, и другие видео форматы. Её мощные функции также отображены в самых современных аудио технологиях: DTS HD 7.1, DTS/AC3 5.1.
-
-Поддержка большинства аудио и видео форматов, в том числе: (   Читать дальше...   )Тип издания: Mac OS X SoftwareРелиз состоялся: 07 декабря 2015Разработчик: Aurora Software Inc.Поддерживаемая ОС: Mac OS X 10.6  +Язык интерфейса: Русский, Немецкий, Английский, Французский  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A25C29D9DE13FF5F5FBD9F1130AEE8C8715C064E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964144   (283392) от 10.12.2015
-
-Snapheal CK (Pro) 1.5 (1118) [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Snapheal моментально удаляет на фотографии ненужные объекты и тексты, скрывает недостатки кожи, восстанавливает старые и поврежденные снимки, выполняя профессиональное редактирование изображений вcего за несколько кликов. Snapheal создан творить чудеса с вашими фото!
-
-С легкостью удаляйте ненужные объекты на фото, и редактируйте другие несовершенства.
-Snapheal предлагает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 ноября 2015Разработчик: MacPhun LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6714A1C333C00529F8D607768B0F9C079CD5083B
 ```
 
 https://mybot314.ru/tekegram_catalog/

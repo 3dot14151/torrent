@@ -1,3 +1,32 @@
+###  Публикация: 1014374   (776568) от 07.05.2016
+
+Johnny Rieger Band - Come Closer (2013) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road Trip (03:32)
+02. Good For You (04:11)
+03. I Want To Fly (04:11)
+04. Hey Boy (04:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA357C6A3D951BC1FE8236B8CD59BCC17D388171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014171   (776565) от 07.05.2016
 
 Terrie Odabi - My Blue Soul (2016) [MP3|320 кб/с] <Blues, Rhythm & Blues, Jazzy>
@@ -6,7 +35,7 @@ Terrie Odabi - My Blue Soul (2016) [MP3|320 кб/с] <Blues, Rhythm & Blues, Jaz
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776565.jpg" />
+  <img src="Z:/picture/008/save_picture_776565.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mick Abrahams (Мик Абрахамс) - All Said And Done (1991) Elite [MP3|32
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776543.jpg" />
+  <img src="Z:/picture/008/save_picture_776543.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Robert Burton Hubele & Brad Steckel - She Won't Talk To Me (2016) [MP3|320 кб/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776529.jpg" />
+  <img src="Z:/picture/008/save_picture_776529.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Dan Patlansky - Introvertigo (2016) [MP3|320 кб/с] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776526.jpg" />
+  <img src="Z:/picture/008/save_picture_776526.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Mick Abrahams (Мик Абрахамс) - Mick's Back (1996) Indigo Delux Record
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776516.jpg" />
+  <img src="Z:/picture/008/save_picture_776516.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Mick Abrahams (Мик Абрахамс) - Mick Abrahams (1971) A&M Records [MP3|
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776513.jpg" />
+  <img src="Z:/picture/008/save_picture_776513.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Mick Abrahams (Мик Абрахамс) - "One" (1996) A New Day Records [MP3|32
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776123.jpg" />
+  <img src="Z:/picture/008/save_picture_776123.jpg" />
 </div>
 
 
@@ -211,7 +240,7 @@ The Nick Moss Band feat. Dennis Gruenling - The High Cost Of Low Living (2018) [
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776091.jpg" />
+  <img src="Z:/picture/008/save_picture_776091.jpg" />
 </div>
 
 
@@ -240,7 +269,7 @@ Angel Forrest - Electric Love (2018) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776040.jpg" />
+  <img src="Z:/picture/008/save_picture_776040.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ The Sonny Moorman Group - Lucky 13 (2014) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775844.jpg" />
+  <img src="Z:/picture/008/save_picture_775844.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ The Rides - Pierced Arrow (2016) [MP3|320 кб/с] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775832.jpg" />
+  <img src="Z:/picture/008/save_picture_775832.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Stevie Wonder - Live In London (2017) [MP3|320 Kbps] <Funk, Soul>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775114.jpg" />
+  <img src="Z:/picture/008/save_picture_775114.jpg" />
 </div>
 
 
@@ -356,7 +385,7 @@ Levi De Ville - Better Man (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773101.jpg" />
+  <img src="Z:/picture/008/save_picture_773101.jpg" />
 </div>
 
 
@@ -385,7 +414,7 @@ Bridget Kelly Band - Dark Spaces (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771629.jpg" />
+  <img src="Z:/picture/008/save_picture_771629.jpg" />
 </div>
 
 
@@ -414,7 +443,7 @@ Catfish John Tisdell - Nothin but the Blues (2016) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771474.jpg" />
+  <img src="Z:/picture/008/save_picture_771474.jpg" />
 </div>
 
 
@@ -443,7 +472,7 @@ The Righteous Blues Band - The Righteous Blues Band (2014) [MP3|320 кб/с] <Ch
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770535.jpg" />
+  <img src="Z:/picture/008/save_picture_770535.jpg" />
 </div>
 
 
@@ -472,7 +501,7 @@ Nobby Reed Project - Hold the Truth (2006) [MP3|320 кб/с] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769691.jpg" />
+  <img src="Z:/picture/008/save_picture_769691.jpg" />
 </div>
 
 
@@ -501,7 +530,7 @@ Bacon Fat - Band Of Brothers (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768059.jpg" />
+  <img src="Z:/picture/008/save_picture_768059.jpg" />
 </div>
 
 
@@ -530,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767257.jpg" />
+  <img src="Z:/picture/008/save_picture_767257.jpg" />
 </div>
 
 
@@ -559,7 +588,7 @@ Deltaphonic - See Red (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767139.jpg" />
+  <img src="Z:/picture/008/save_picture_767139.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ Mike Morgan and the Crawl - The Road (1998) [MP3|320 Kbps] <Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767071.jpg" />
+  <img src="Z:/picture/008/save_picture_767071.jpg" />
 </div>
 
 
@@ -617,7 +646,7 @@ Mike Morgan & The Crawl - Texas Man (2002) [MP3|320 Kbps] <Texas Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764480.jpg" />
+  <img src="Z:/picture/008/save_picture_764480.jpg" />
 </div>
 
 
@@ -646,7 +675,7 @@ VA - Atlantic Blues  (1991) 4 CD Box Set [MP3|320 kbps]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_761831.jpg" />
+  <img src="Z:/picture/005/save_picture_761831.jpg" />
 </div>
 
 
@@ -681,7 +710,7 @@ Muddy Waters -  Les Genies du Rock - Got My Mojo Working (1993) [MP3|320 кб/с
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761102.jpg" />
+  <img src="Z:/picture/008/save_picture_761102.jpg" />
 </div>
 
 
@@ -710,7 +739,7 @@ Nick Moss Band - From The Root To The Fruit (2016) 2CD Set [MP3|320 кб/с] <Bl
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752266.jpg" />
+  <img src="Z:/picture/008/save_picture_752266.jpg" />
 </div>
 
 
@@ -724,35 +753,6 @@ Nick Moss Band - From The Root To The Fruit (2016) 2CD Set [MP3|320 кб/с] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDBFD4FEBD6FD9219515A3A556313886C644BCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281772   (749923) от 09.02.2019
-
-Eric Gales - The Bookends (2019) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749923.jpg" />
-</div>
-
-
-###  Подробнее
-
-[1:55] 1 - Intro
-[4:20] 2 - Something's Gotta Give
-[3:28] 3 - Whatcha Gon' Do
-[4:21] 4 - It Just Beez That Way(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E54DE375CFAD1E7BC873850778343A16A41FE62
 ```
 
 https://mybot314.ru/tekegram_catalog/

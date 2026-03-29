@@ -1,3 +1,175 @@
+###  Публикация: 686687   (601321) от 06.08.2013
+
+DJ Jessica - Azov Fest (Uncensored) (2013) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_601321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC330ECFFE9E4BCE14DB5BC364F8B4786C27FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548339   (600129) от 02.05.2022
+
+Леонид Агутин и Владимир Пресняков – ДНК (2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_600129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песня «ДНК» была написана больше года назад. Предложил Володе дуэт и очень благодарен другу, что он откликнулся. Выход в свет «ДНК» намечался на начало марта. Известные события внесли коррективы в наши планы. Изначально песня написана о любви. О том как взрослые люди осознанно переживают настоящую привязанность, настоящую человеческую близость, которая выше страсти. (   Читать дальше...   )Производство: Velvet MusicЖанр: PopРежиссер: Виталий НиколаевПродолжительность: 00:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15FBD31BFADF13EF35B169F50C2CC29E9CDA3C83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913609   (599965) от 01.07.2015
+
+VA - Летний марафон № 175 / Видеоклипы (Turbo Дискотека) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_599965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (29.06.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.1. 5Angels - Long Lost Weekend (Official Video) (00:03:19)
+2. Andeeno Damassy ft. Jimmy Dub - Ese Amor (Official Video) (00:03:42)
+3. Auryn - I'll Reach You (Official Video) (00:04:25)
+4. Claydee & Ermal Mamaqi - Senorita (Official Video) (00:04:14)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Country, House, Reggaeton, RockПродолжительность: 01:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:689A9EB0A5DD59B94A9F3DA55C234B529E1BAE2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232492   (599796) от 24.06.2018
+
+Алые паруса 2018. Выпускной бал в Санкт-Петербурге (23.06.2018) WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_599796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздник выпускников школ «Алые паруса» прошел в Петербурге в ночь с 23 на 24 июня. В 22:00 после официального открытия и традиционного удара в рынду началась музыкальная шоу-программа, которую вели Иван Ургант и Даша Александрова, в концерте участвовали Quest Pistols Show, Alekseev, Каста, Виктория Дайнеко, Алсу, а также рэпер Баста.
+После полуночи в акватории Невы (   Читать дальше...   )Телекомпания: 5 каналЖанр: Документальный, концертСубтитры: отсутствуютПродолжительность: 03:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78B702F51A3E1AAA7FC421CB6507A84D1B87BEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526176   (599057) от 23.07.2012
+
+Norah Jones - The BBC One Sessions (2007) HDTV [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_599057.jpg" />
+</div>
+
+
+###  Подробнее
+
+BBC One представляет выступление Норы Джонс, состоявшеся 13 января 2007-го года в LSO St Luke's, London.01. Sunrise 
+02. Don't know why 
+03. Be my somebody  
+04. Thinking about you 
+05. Sinkin' soon 
+06. Cold cold heart 
+07. Wake me up  
+08. Come away with me 
+09. Not too late 
+10. The long way home (   Читать дальше...   )Жанр: Jazz, blues, soulПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806049   (598756) от 19.07.2014
+
+Elton John - The Million Dollar Piano (2014) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_598756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bitch Is Back
+02. Bennie And The Jets
+03. Rocket Man
+04. Levon(   Читать дальше...   )Жанр: Pop rock, piano rockПродолжительность: 01:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631A794561F895E6A144D1CAB2A7DBAD8B6ACB30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 806196   (598665) от 19.07.2014
 
 Guns N' Roses - Appetite for Democracy Live at Hard Rock Las Vegas (2014) BDRip [720p]
@@ -6,7 +178,7 @@ Guns N' Roses - Appetite for Democracy Live at Hard Rock Las Vegas (2014) BDRip 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598665.jpg" />
+  <img src="Z:/picture/008/save_picture_598665.jpg" />
 </div>
 
 
@@ -35,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598173.jpg" />
+  <img src="Z:/picture/008/save_picture_598173.jpg" />
 </div>
 
 
@@ -64,7 +236,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598063.jpg" />
+  <img src="Z:/picture/008/save_picture_598063.jpg" />
 </div>
 
 
@@ -91,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597896.jpg" />
+  <img src="Z:/picture/008/save_picture_597896.jpg" />
 </div>
 
 
@@ -120,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597377.jpg" />
+  <img src="Z:/picture/008/save_picture_597377.jpg" />
 </div>
 
 
@@ -146,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597261.jpg" />
+  <img src="Z:/picture/008/save_picture_597261.jpg" />
 </div>
 
 
@@ -172,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597094.jpg" />
+  <img src="Z:/picture/008/save_picture_597094.jpg" />
 </div>
 
 
@@ -203,7 +375,7 @@ Elton John - The Million Dollar Piano (2014) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596850.jpg" />
+  <img src="Z:/picture/008/save_picture_596850.jpg" />
 </div>
 
 
@@ -232,7 +404,7 @@ Nier Music Concert: Ningyou Tachi no Kioku / NieR Music Concert: The Memory of P
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596148.jpg" />
+  <img src="Z:/picture/008/save_picture_596148.jpg" />
 </div>
 
 
@@ -258,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596035.jpg" />
+  <img src="Z:/picture/008/save_picture_596035.jpg" />
 </div>
 
 
@@ -284,7 +456,7 @@ The Sweet – Action (The Ultimate Story) (2015) DVDReMux
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595606.jpg" />
+  <img src="Z:/picture/008/save_picture_595606.jpg" />
 </div>
 
 
@@ -312,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595317.jpg" />
+  <img src="Z:/picture/008/save_picture_595317.jpg" />
 </div>
 
 
@@ -341,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594951.jpg" />
+  <img src="Z:/picture/008/save_picture_594951.jpg" />
 </div>
 
 
@@ -371,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594163.jpg" />
+  <img src="Z:/picture/008/save_picture_594163.jpg" />
 </div>
 
 
@@ -401,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593352.jpg" />
+  <img src="Z:/picture/008/save_picture_593352.jpg" />
 </div>
 
 
@@ -427,7 +599,7 @@ Metallica - Francais Pour Une Nuit (2009) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592205.jpg" />
+  <img src="Z:/picture/008/save_picture_592205.jpg" />
 </div>
 
 
@@ -456,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591514.jpg" />
+  <img src="Z:/picture/008/save_picture_591514.jpg" />
 </div>
 
 
@@ -485,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591480.jpg" />
+  <img src="Z:/picture/008/save_picture_591480.jpg" />
 </div>
 
 
@@ -514,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590561.jpg" />
+  <img src="Z:/picture/008/save_picture_590561.jpg" />
 </div>
 
 
@@ -543,7 +715,7 @@ Paul McCartney and Wings - Rockshow (1980/2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590543.jpg" />
+  <img src="Z:/picture/008/save_picture_590543.jpg" />
 </div>
 
 
@@ -557,177 +729,6 @@ Paul McCartney and Wings - Rockshow (1980/2013) BDRip [720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA249538E5CF6C56405C68A9558DE6EC0FC01A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 807769   (590513) от 26.07.2014
-
-Новая Волна 2014. День третий (2014) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари".01. Группа «Блестящие» - «МегаМикс»
-02. Борис Моисеев - «Глухонемая Любовь
-03. Любовь Успенская - «К единственному нежному»
-04. Артур Пирожков - «Я не умею танцевать»(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 02:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB40AC58B7ECB4A2772017970894CA6F10983BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915362   (590341) от 09.07.2015
-
-Melanie Martinez - Carousel (2014) MasterRip [ProRes/1080p] [10-bit]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальное видео Carousel, Нью-Йоркской Инди-Поп певицы Melanie Martinez. Данный сингл был саундтреком к четвертому сезону сериала "Американские ужасы".Жанр: Indie-PopПродолжительность: 00:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E09270F133AFA2D4E80ACB3E2A15F22D6C7989C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915335   (590321) от 09.07.2015
-
-VA - Летний марафон № 176 / Видеоклипы (Самые Новые Русские Треки) (2015) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (04.07.2015) поп. новинки русской эстрады.Не пропустите, держите новые треки.1. 4G - Прости меня, мама (ПРЕМЬЕРА!) (00:03:59)
-2. A.R.M.I.A - Другая (ПРЕМЬЕРА!) (00:03:32)
-3. Emin - На краю (ПРЕМЬЕРА!) (00:03:50)
-4. Karen ТУЗ ft. A-Sen - Закрой Глаза (Official Video) (00:02:41)(   Читать дальше...   )Жанр: PopПродолжительность: 01:27:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7845CCE47042B635FCAA3D8512C37423316C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916507   (589580) от 11.07.2015
-
-Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка NATIVE AMERICANS  на выступлении в The Red Road Ensemble с группой североамериканских аборигенов. Первоначально разработанный в качестве фона на документальном TBS, Робертсон вернулся  к своим корням, смешивая традиционные ритмы коренных со звуком фолк и кантри. Звукозаписывающие компании думали, что это слишком "нетрадиционные" для основного радио (   Читать дальше...   )01 -  Ghost Dance (W/ Red Road Ensemble)
-02 -  Mahk Jchi (W/ Ulali)
-03 -  Golden Feather (W/ Red Road Ensemble)
-04 -  Eagle Dance (American Indian Dance Theater)Производство: США, The Red Road EnsembleЖанр: Native American, FolkРежиссер: The Red Road EnsembleАктеры: Robbie Robertson, Pura Fe Crescioni, Soni Moreno, Jennifer E Kreisberg, Laura Satterfield, Priscilla Coolidge, Rita Coolidge....Продолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14AA2CECFA94FB8725DC0737A497C60B241F094D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 808627   (589279) от 29.07.2014
-
-Новая Волна 2014. День пятый (2014) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари".01. A’STUDIO и TOMAS N’EVERGREEN - "FALLING FOR YOU"
-02. Игорь Николаев - "Линия жизни"
-03. Гоша Куценко и Юлия Пак – "Светлый дым"
-04. Артур Пирожков и Вера Брежнева – "LUNA"(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 02:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46A44C3FB93E35BD097B5B7BAB4357E76BC220B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 808629   (589236) от 29.07.2014
-
-Новая Волна 2014. День шестой (2014) HDTVRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный конкурс "Новая волна" вновь приглашает всех любителей песни в Юрмалу - в концертный зал "Дзинтари".01. Леонид Агутин – "Не уходи далеко"
-02. Вера Брежнева – "Доброе утро"
-03. Дима Билан – "Болен тобой"
-04. Николай Басков и Игорь Крутой – "Вишнёвая Любовь"(   Читать дальше...   )Жанр: Концерт, ТВ-шоуПродолжительность: 01:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6291660A3C59B51A7C93E468AF357EB7A98E437
 ```
 
 https://mybot314.ru/tekegram_catalog/

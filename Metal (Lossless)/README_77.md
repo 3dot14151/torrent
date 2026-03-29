@@ -1,3 +1,90 @@
+###  Публикация: 1507390   (798430) от 04.11.2021
+
+Second Reign - Gravity (2021) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uninvited
+02. The Truth
+03. Let Me Breathe
+04. Fire(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED15A2DA03BAE74A22950C2390CDA00911FEAD1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507801   (798313) от 05.11.2021
+
+Blut Aus Nord - Hallucinogen (2019) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Nomos Nebuleam
+02.Nebeleste
+03.Sybelius
+04.Anthosmos(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:48:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F451CBD5F8A1021F649524A900D75C271155A870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507767   (798310) от 05.11.2021
+
+Aenimus - Dreamcatcher (2019) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_798310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before the Eons
+02. Eternal
+03. The Ritual
+04. My Becoming(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906B99F6DF1DEB7CDA706266456D81B1924C725A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507774   (798300) от 05.11.2021
 
 Archspire - Bleed the Future (2021) [WavPack|Lossless|image + .cue] <Technical Death Metal>
@@ -6,7 +93,7 @@ Archspire - Bleed the Future (2021) [WavPack|Lossless|image + .cue] <Technical D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798300.jpg" />
+  <img src="Z:/picture/008/save_picture_798300.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Maverick - Natural Born Steel (2012) Japan [WavPack|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798299.jpg" />
+  <img src="Z:/picture/008/save_picture_798299.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Maverick - Maverick (2005) Japan [WavPack|Lossless|image + .cue] <Heavy Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798296.jpg" />
+  <img src="Z:/picture/008/save_picture_798296.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Decapitated - Nihility (2002) German Special Edition [WavPack|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798295.jpg" />
+  <img src="Z:/picture/008/save_picture_798295.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Bullet for My Valentine - Bullet for My Valentine (2021) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798270.jpg" />
+  <img src="Z:/picture/008/save_picture_798270.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Monte Pittman - The Power of Three (2014) [FLAC|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798021.jpg" />
+  <img src="Z:/picture/008/save_picture_798021.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Monte Pittman - Inverted Grasp Of Balance (2016) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798020.jpg" />
+  <img src="Z:/picture/008/save_picture_798020.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Stormbreaker - Strike The Match (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798004.jpg" />
+  <img src="Z:/picture/008/save_picture_798004.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Thanatos - Violent Death Rituals (2020) [WavPack|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797997.jpg" />
+  <img src="Z:/picture/008/save_picture_797997.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Deviant Syndrome - Inflicted Deviations (2011) [FLAC|Lossless|image + .cue] <Mel
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797968.jpg" />
+  <img src="Z:/picture/008/save_picture_797968.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Reaper - Rebirth Of Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797588.jpg" />
+  <img src="Z:/picture/008/save_picture_797588.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Dragonland - Starfall (2004) [FLAC|Lossless|image + .cue] <Symphonic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797564.jpg" />
+  <img src="Z:/picture/008/save_picture_797564.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Dragonland - Astronomy (2006) Japanese Edition [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797562.jpg" />
+  <img src="Z:/picture/008/save_picture_797562.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Dragonland - The Battle Of The Ivory Plains (2001) Japanese Edition [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797559.jpg" />
+  <img src="Z:/picture/008/save_picture_797559.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Black September - The Forbidden Gates Beyond (2010) [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797553.jpg" />
+  <img src="Z:/picture/008/save_picture_797553.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Dragonland - Holy War (2002) Japanese Edition [FLAC|Lossless|image + .cue] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797552.jpg" />
+  <img src="Z:/picture/008/save_picture_797552.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Anatomy Of I - Substratum (2011) Reissue, 2015, Punishment 18 Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797551.jpg" />
+  <img src="Z:/picture/008/save_picture_797551.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Raphael and the Thorns - Rituals (2021) [FLAC|Lossless|WEB-DL|tracks] <Dark Thea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797550.jpg" />
+  <img src="Z:/picture/008/save_picture_797550.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Dragonland - Under The Grey Banner (2011) Japanese Edition [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797520.jpg" />
+  <img src="Z:/picture/008/save_picture_797520.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Lou Siffer And The Howling Demons - Too Old to Die Young (2021) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797515.jpg" />
+  <img src="Z:/picture/008/save_picture_797515.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Evile - Hell Unleashed (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797509.jpg" />
+  <img src="Z:/picture/008/save_picture_797509.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Various Artists - Metal Art CD Compilation. The Art Of Extreme Music. Vol.1 (200
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797502.jpg" />
+  <img src="Z:/picture/008/save_picture_797502.jpg" />
 </div>
 
 
@@ -641,7 +728,7 @@ Running Wild - Blood On Blood (2021) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797398.jpg" />
+  <img src="Z:/picture/008/save_picture_797398.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ Running Wild - Blood On Blood (2021) Japanese Edition [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23736F1D0870D56123CDEF3AB23A5864C1714729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199947   (797001) от 19.01.2018
-
-Exact Division - Be Fair If You Can (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taking The Black (3:59)
- 02. Live Online (3:47)
- 03. The Deep (4:16)
- 04. War (3:32)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90628EBA129CF7D151A04FB6E7FF4654884475E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508613   (796871) от 09.11.2021
-
-Existance - Wolf Attack (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highgate Vampire
-02. Deathbringer
-03. Power Of The Gods
-04. Rock'N Roll(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C236591A903271E1149046DFD3C5D9993F4F44A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508618   (796858) от 09.11.2021
-
-The Dark Horde - The Calling (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction
-02. Mask
-03. Childhood
-04. Victim(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08094090B2DDAF8176F75AF50EDA484ED8360A2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

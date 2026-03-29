@@ -1,3 +1,87 @@
+###  Публикация: 1730940   (107802) от 18.06.2024
+
+Владислав Крапивин | Белый щенок ищет хозяина (2018) [MP3, Вероника Райциз]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владислав Петрович Крапивин (1938–2020) – советский и российский детский писатель, поэт, сценарист, журналист и педагог, автор книг о детях и для детей, в том числе фантастических.
+Повесть «Белый щенок ищет хозяина» рассказывает о дружбе, о справедливости, о мужестве и преодолении слабости, то есть о том, какими должны быть настоящие мальчишки. А ещё в ней говорится (   Читать дальше...   )Жанр: Русская литература для детей, повестьИздательство: Нигде не купишьПродолжительность: 02:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A331C45918402B7D58197DB2ABE05F243CCEF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730944   (107799) от 18.06.2024
+
+Владислав Крапивин | Оруженосец Кашка (2016) [MP3, Ольга Голованова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская аудиокнига.
+Владислав Петрович Крапивин (1938–2020) – советский и российский детский писатель, поэт, сценарист, журналист и педагог, автор книг о детях и для детей, в том числе фантастических.
+Когда Володе в качестве «оруженосца» для соревнования по стрельбе из лука определили Кашку, то он жутко расстроился. Совершенно никчемным показался Володе (   Читать дальше...   )Жанр: Русская литература для детей, повестьИздательство: Студия «АРДИС»Продолжительность: 04:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFA7D377CC537CE871F0CC1D77445A9C2E3206B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731598   (107647) от 21.06.2024
+
+Народ | Для самых маленьких. Василиса Прекрасная и другие русские сказки (2005) [MP3, Наталья Варлей и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Для самых маленьких.
+По-житейски мудрые и поучительные, добрые и смешные, простые и занятные сказочные истории с этого диска порадуют вашего ребёнка и перенесут его в незабываемый мир волшебных сказок.
+
+ Для самых маленьких на NoNaMe Club (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Продюсерский центр «Вимбо»Продолжительность: 00:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DA72F0AC469AA8E69AE8EEF11EDCCF19DE74E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731615   (107646) от 21.06.2024
 
 Марджери Уильямс Бианко и др. | Плюшевый кролик, или о том, как игрушки становятся настоящими (2012) [MP3, Наталья Литвинова и др.]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107646.jpg" />
 </div>
 
 
@@ -33,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107585.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107584.jpg" />
 </div>
 
 
@@ -90,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107583.jpg" />
 </div>
 
 
@@ -118,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107578.jpg" />
 </div>
 
 
@@ -145,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107433.jpg" />
 </div>
 
 
@@ -172,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107218.jpg" />
 </div>
 
 
@@ -199,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107191.jpg" />
 </div>
 
 
@@ -230,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107168.jpg" />
 </div>
 
 
@@ -257,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107163.jpg" />
 </div>
 
 
@@ -286,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107119.jpg" />
 </div>
 
 
@@ -314,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107078.jpg" />
 </div>
 
 
@@ -342,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107077.jpg" />
 </div>
 
 
@@ -371,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107076.jpg" />
 </div>
 
 
@@ -398,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107000.jpg" />
 </div>
 
 
@@ -425,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106999.jpg" />
 </div>
 
 
@@ -454,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106995.jpg" />
 </div>
 
 
@@ -481,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106956.jpg" />
 </div>
 
 
@@ -509,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106949.jpg" />
 </div>
 
 
@@ -535,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106947.jpg" />
 </div>
 
 
@@ -561,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106923.jpg" />
 </div>
 
 
@@ -587,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106922.jpg" />
 </div>
 
 
@@ -613,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106843.jpg" />
 </div>
 
 
@@ -624,84 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B46AE3B7B6E7CD6C8BDCA3823B88D31F46BCA984
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736507   (106700) от 12.07.2024
-
-Валентина Филиппенко | Папа ищет работу (2024) [MP3, Валентина Филиппенко]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мой папа работал водителем, а потом фирму закрыли. Тогда-то с ним и начали происходить приключения: день за днём он читал газеты с объявлениями, сочинял мороженое, стриг облака, командовал воздушными шарами, даже королём успел поработать — чуть было в Африку не улетел... Но в глубине души и папа, и мама, и я понимали: это всё не для него, призвание папы — другое.Жанр: детская проза, сказкиИздательство: СамокатПродолжительность: 03:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1D9023969F1A05232ACA47BB612118577809BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736695   (106648) от 13.07.2024
-
-Виктория Шиманская | Коммуникация. Найди общий язык с кем угодно (2022) [MP3, Сания Галеева]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктория Шиманская — доктор психологии и автор первой в России запатентованной методики развития эмоционального интеллекта — уверена, что именно искусство коммуникации делает обычного человека выдающимся. Но самое главное — хорошим коммуникатором может стать каждый. Она подготовила простые, но эффективные упражнения на каждый день. Чтобы выполнять их, не требуется (   Читать дальше...   )Жанр: воспитание детей, детская психология, подростковая психология, эмоциональный интеллектИздательство: Альпина ДиджиталПродолжительность: 01:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB6707872B204A0077C533281D97A4880090C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736689   (106647) от 13.07.2024
-
-Мария Папаянни | Одинокое дерево (2023) [MP3, Георгий Геласов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106647.jpg" />
-</div>
-
-
-###  Подробнее
-
-В греческой деревне на краю утеса, что смотрит в море, стоит Одинокое Дерево. Давным-давно его почитали, как святыню, украшали ветви подношениями и заклинали утихомирить волны, чтобы не разбушевался шторм. Но с тех пор уже много лет никто не приходит к дереву, не сидит в тени его ветвей и не устраивает праздника в его честь… Спустя долгие годы, проведенные в клинике (   Читать дальше...   )Жанр: детская проза, зарубежные детские книги, повестиПеревод: Анна КовалёваИздательство: СамокатПродолжительность: 05:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D692C83561C1327F7020EC5EF7D29177CDA073
 ```
 
 https://mybot314.ru/tekegram_catalog/

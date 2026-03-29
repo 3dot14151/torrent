@@ -1,3 +1,81 @@
+###  Публикация: 450767   (1044459) от 21.01.2023
+
+Area 51 / Зона 51 [Ru/En] (Lossless RePack) 2005 | R.G.Packers
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за случившейся в секретной лаборатории аварии опаснейший военный вирус попал в вентиляцию. Главный герой в составе спецподразделения прибывает туда для того, чтобы уладить проблему. Он узнает, что лаборатория находится под контролем инопланетян, которые совместно с учеными из числа людей проводят шокирующие эксперименты, да и произошедшая авария – не случайность… (   Читать дальше...   )Тип издания: RePackРазработчик: Midway Games AustinЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский / АнглийскийЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419D577D234C6A8F015164A9761B7571488B4DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 246248   (1044458) от 21.01.2023
+
+Age of Chivalry / Эпоха рыцарей (2007) [Ru/En] (1.0) Unofficial
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Age of Chivalry – громадная модификация для оригинальной Half-Life 2, что полностью изменяет внешний вид локаций и персонажей для создания абсолютно другого сеттинга. Геймер перенесётся в мир средневековья – место, где все воюют при помощи холодного оружия и луков, а защищают собственные тела благодаря кольчуге и щитам. Разработчики – инди-коллектив, что решил добавить (   Читать дальше...   )Тип издания: UnofficialРазработчик: Team ChivalryЖанр: Инди, ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE144BE3C369375AFE841876AD874820D956773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051879   (1044342) от 22.01.2023
+
+System Shock (1994) [Multi] (1.2.16) License GOG [Enhanced Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в 2072 году, как сообщается во вступительном ролике игры. Когда на Земле были исчерпаны практически все ресурсы, компания TriOptimum начала разработку специальных орбитальных станций, предназначенных для добычи ресурсов на других планетах. Одна из таких станций была сразу же выпущена в космос. Эта станция получила название «Цитадель», и она (   Читать дальше...   )Тип издания: LicenseРазработчик: Looking Glass Studios и Origin SystemsЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0FC7B0ECB66398DF5FB2170393B6C6DAFAE696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608125   (1043668) от 29.01.2023
 
 Death in the Water 2 (2023) [Ru/Multi] (1.0.1) Repack DjDI
@@ -6,7 +84,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.0.1) Repack DjDI
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043668.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Tom Clancy's Rainbow Six (2001-2008) [Ru] License [Антология. Част�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043572.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ XIII - Remake (2020) [Multi] (1.7.8247/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043381.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ PERISH (2023) [Ru/Multi] (6312) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040662.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Duke Nukem Forever (2011) [Ru/En] (1.0.244/dlc) Repack Seraph1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040013.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) License GOG [Deluxe Definitive E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039461.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Superliminal (2019) [Ru/Multi] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038967.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Ghostrunner (2020) [Ru/Multi] (32091.417/dlc) Repack xatab (обновляема
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038619.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ BPM: Bullets Per Minute (2020) [Ru/Multi] (1.59082) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036912.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Doom 3 (2004) [Multi] (1.3.1/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035801.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Doom 3: BFG Edition (2012) [Multi] (1.14) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035791.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Generation Zero (2019) [Ru/Multi] (1966450/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029823.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ BioShock Infinite (2013) [Ru/En] (1.0.1643565/dlc) Repack dixen18 [Complete Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029360.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ BPM: BULLETS PER MINUTE (2020) [En] (1.0) Steam-Rip Goldberg
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028399.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.4/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027427.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ Destroy All Humans! (2020) [Ru/Multi] (1.0.2550) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026489.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое Небо (2008) [Ru] (1
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026454.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025862.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ Doom 3 + Doom 3: Resurrection of Evil (2004-2005) [Ru] (1.3/1.3.1302) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024658.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.0.1.1) Repack SpaceX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023915.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ An Evil Existence (2020) [En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023232.jpg" />
 </div>
 
 
@@ -553,7 +631,7 @@ Relicta (2020) [Ru/En] (1.10) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020361.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018841.jpg" />
 </div>
 
 
@@ -590,86 +668,6 @@ S.T.A.L.K.E.R.: Call of Pripyat / S.T.A.L.K.E.R.: Зов Припяти (2009) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C06670619D2895AE7F845547F32DF9BD71A015B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466825   (1018168) от 01.05.2021
-
-Deadstep (2018) [Ru/Multi] (1.2.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deadstep — психологическая игра ужасов от первого лица. В особняке живут призраки, Ваша задача избегать привидений и находить предметы (свечи) необходимые для экзорцизма, чтобы изгнать нечисть. Успейте совершить обряд до того, как призраки найдут вас!Тип издания: RepackРазработчик: Sangwoon JinЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: Английский
-Язык субтитров: Русский, Английский, Немецкий, Французский и другие
-Локализация: Sangwoon JinЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C23C29C249E04DAB0EC14C498120513503AB94B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467841   (1017458) от 05.05.2021
-
-Wolfenstein II: The New Colossus (2017) [Ru/Multi] (6.5.0.1331/dlc) License GOG [Digital Deluxe Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wolfenstein II: The New Colossus — долгожданное продолжение Wolfenstein: The New Order, восторженно принятого критиками боевика с видом от первого лица от титулованной студии MachineGames. В Wolfenstein II вы отправитесь в новое захватывающее приключение, ставшее возможным благодаря передовой технологии id Tech 6. Вы посетите захваченную нацистами Америку и отыщете (   Читать дальше...   )Тип издания: LicenseРазработчик: Machine GamesЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: Русский, Английский, Испанский, Французский и другиеЯзык субтитров: Русский, Английский, Испанский, Французский и другиеЯзык интерфейса: Русский, Английский, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1431BBC8DFDC47A9A9F995772626295E7988B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468144   (1017307) от 06.05.2021
-
-Metro: Exodus / Метро: Исход (2019, 2021) [Ru/Multi] (2.0.0.0/dlc) License CODEX [Enhanced Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017307.jpg" />
-</div>
-
-
-###  Подробнее
-
-2036 год. Прошло четверть века с тех пор, как ядерная война опустошила землю. Москва лежит в руинах, и несколько тысяч выживших вынуждены бороться за существование в тоннелях метро. Их не убила отравленная природа и мутировавшие чудовища, они пережили сверхъестественный кошмар и ужасы гражданской войны.Тип издания: LicenseРазработчик: 4A GamesЖанр: Action (Shooter), 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582A1DB2DFB09D0B10DACF71621FC52094D66389
 ```
 
 https://mybot314.ru/tekegram_catalog/

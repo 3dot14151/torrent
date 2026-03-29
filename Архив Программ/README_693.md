@@ -6,7 +6,7 @@ Windows 10 PE by Ratiborus v.5.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700037.jpg" />
+  <img src="Z:/picture/008/save_picture_700037.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ZD Soft Screen Recorder 9.8 RePack (& Portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699965.jpg" />
+  <img src="Z:/picture/008/save_picture_699965.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ IObit Smart Defrag Pro 5.1.0.788 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699964.jpg" />
+  <img src="Z:/picture/008/save_picture_699964.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Ashampoo WinOptimizer 14.00.01 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699962.jpg" />
+  <img src="Z:/picture/008/save_picture_699962.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AIMP 4.02 build 1725 DC 17.06.2016 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699958.jpg" />
+  <img src="Z:/picture/008/save_picture_699958.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VirtualBox 5.0.22 r108108 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699957.jpg" />
+  <img src="Z:/picture/008/save_picture_699957.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Freemake Video Converter 4.1.11.63 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699926.jpg" />
+  <img src="Z:/picture/008/save_picture_699926.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Skype 7.25.32.103 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699852.jpg" />
+  <img src="Z:/picture/008/save_picture_699852.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ GridinSoft Anti-Malware 3.0.40 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699849.jpg" />
+  <img src="Z:/picture/008/save_picture_699849.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Viber 6.1.0.1623 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699845.jpg" />
+  <img src="Z:/picture/008/save_picture_699845.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ RadioMaximus 2.28.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699821.jpg" />
+  <img src="Z:/picture/008/save_picture_699821.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Q-Dir 8.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699816.jpg" />
+  <img src="Z:/picture/008/save_picture_699816.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Photo Supreme 4.3.3.1990 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699771.jpg" />
+  <img src="Z:/picture/008/save_picture_699771.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ BestReminder v2019.03.07.10 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699763.jpg" />
+  <img src="Z:/picture/008/save_picture_699763.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ Maxthon Browser 5.2.7.1100 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699755.jpg" />
+  <img src="Z:/picture/008/save_picture_699755.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Skype 7.25.32.103 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699732.jpg" />
+  <img src="Z:/picture/008/save_picture_699732.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Loaris Trojan Remover 2.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699731.jpg" />
+  <img src="Z:/picture/008/save_picture_699731.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ PhotoInstrument 7.5 Build 862 Portable by Baltagy [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699723.jpg" />
+  <img src="Z:/picture/008/save_picture_699723.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ AIMP 4.02 Build 1725 DC 17.06.2016 Final RePack (& Portable) by D!akov (with DFX
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699717.jpg" />
+  <img src="Z:/picture/008/save_picture_699717.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ UltraISO Premium Edition 9.7.5.3716 (DC 07.08.2020) RePack (& Portable) by TryRo
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699705.jpg" />
+  <img src="Z:/picture/008/save_picture_699705.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Telegram Desktop 2.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699703.jpg" />
+  <img src="Z:/picture/008/save_picture_699703.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ BluffTitler Ultimate 14.1.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699633.jpg" />
+  <img src="Z:/picture/008/save_picture_699633.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Comodo Dragon 72.0.3626.121 + Portable Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699621.jpg" />
+  <img src="Z:/picture/008/save_picture_699621.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Malwarebytes Anti-Exploit Premium 1.08.1.2563 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699591.jpg" />
+  <img src="Z:/picture/008/save_picture_699591.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Topaz A.I. Gigapixel 5.1.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699578.jpg" />
+  <img src="Z:/picture/008/save_picture_699578.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Bullzip PDF Printer 11.13.0.2823 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699576.jpg" />
+  <img src="Z:/picture/008/save_picture_699576.jpg" />
 </div>
 
 

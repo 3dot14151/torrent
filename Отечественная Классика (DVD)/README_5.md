@@ -1,3 +1,29 @@
+###  Публикация: 554986   (431137) от 03.10.2012
+
+Начало (1970) DVD5
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка из провинциального русского городка мечтает стать актрисой, а пока самозабвенно играет Бабу Ягу в городском клубе. Вот там-то и находит ее режиссер, который намерен снять фильм о Жанне д`Арк. Сбывается мечта: ее приглашают на главную роль, и у нее начинается совсем другая жизнь, полная настоящих творческих мук и озарений.Жанр: Мелодрама, КомедияРежиссер: Глеб ПанфиловАктеры: Инна Чурикова, Валентина Теличкина, Татьяна Степанова, Леонид Куравлев, Михаил Кононов, Нина Скоморохова, Татьяна Бедова, Юрий Клепиков, Геннадий Беглов, Юрий Визбор, Евгений Лебедев, Всеволод Соболев, Гера ЖуковскийСубтитры: отсутствуютПродолжительность: 01:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A9C6CE76C49866948B287986AF0108984E32CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551428   (430918) от 03.10.2012
 
 Бриллианты для диктатуры пролетариата (1975) DVD9 [2 серии]
@@ -6,7 +32,7 @@
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430918.jpg" />
+  <img src="Z:/picture/008/save_picture_430918.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430780.jpg" />
+  <img src="Z:/picture/008/save_picture_430780.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429036.jpg" />
+  <img src="Z:/picture/008/save_picture_429036.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428607.jpg" />
+  <img src="Z:/picture/008/save_picture_428607.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_420525.jpg" />
+  <img src="Z:/picture/005/save_picture_420525.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_418726.jpg" />
+  <img src="Z:/picture/005/save_picture_418726.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411357.jpg" />
+  <img src="Z:/picture/008/save_picture_411357.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407650.jpg" />
+  <img src="Z:/picture/008/save_picture_407650.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405773.jpg" />
+  <img src="Z:/picture/008/save_picture_405773.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_404981.jpg" />
+  <img src="Z:/picture/005/save_picture_404981.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404878.jpg" />
+  <img src="Z:/picture/008/save_picture_404878.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404820.jpg" />
+  <img src="Z:/picture/008/save_picture_404820.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404699.jpg" />
+  <img src="Z:/picture/008/save_picture_404699.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403488.jpg" />
+  <img src="Z:/picture/008/save_picture_403488.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402538.jpg" />
+  <img src="Z:/picture/008/save_picture_402538.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_402060.jpg" />
+  <img src="Z:/picture/005/save_picture_402060.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400784.jpg" />
+  <img src="Z:/picture/008/save_picture_400784.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399908.jpg" />
+  <img src="Z:/picture/008/save_picture_399908.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395531.jpg" />
+  <img src="Z:/picture/008/save_picture_395531.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395245.jpg" />
+  <img src="Z:/picture/008/save_picture_395245.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394585.jpg" />
+  <img src="Z:/picture/008/save_picture_394585.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392778.jpg" />
+  <img src="Z:/picture/005/save_picture_392778.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392646.jpg" />
+  <img src="Z:/picture/008/save_picture_392646.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390701.jpg" />
+  <img src="Z:/picture/008/save_picture_390701.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387716.jpg" />
+  <img src="Z:/picture/008/save_picture_387716.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1658175184153BEE980F9D410510458110072B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 150918   (387678) от 10.11.2009
-
-Летучая мышь (1979) DVD9 (серии 1-2 из 2)
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_387678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Венский банкир Генрих Айзенштайн совершил мелкое правонарушение и должен сесть в тюрьму. Но его друг Фальк, директор местного театра, приглашает его на этот вечер на грандиозный бал, который даёт князь Орловский. Ради этого Генрих готов повременить с тюрьмой и, что гораздо опаснее, соврать своей жене Розалинде. Ему, однако, неизвестно, что коварный Фальк решил его (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: Комедия, ОпереттаРежиссер: Ян ФридАктеры: Юрий Соломин — Генрих Айзенштайн (поёт Владимир Барляев); Виталий Соломин — Фальк (поёт Александр Мурашко); Людмила Максакова — Розалинда (поёт Лариса Шевченко); Лариса Удовиченко — Адель (поёт Софья Ялышева); Гликерия Богданова-Чеснокова — Амалия; Сергей Филиппов — Лесничий; Юрий Васильев — князь Орловский; Олег Видов — Альфред; Игорь Дмитриев — Франк (поёт Борис (   Читать дальше...   )Перевод: ОригинальныйЯзык субтитров: РусскийФормат: DVD-VideoПродолжительность: 02:12:38 (1 серия - 01:04:38; 2 серия - 01:08:00)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

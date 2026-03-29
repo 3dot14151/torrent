@@ -1,3 +1,81 @@
+###  Публикация: 1019632   (748459) от 24.05.2016
+
+NG: Спасти Титаник с Бобом Баллардом / Save the Titanic with Bob Ballard (2012) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Боб Баллард, человек, который обнаружил место последнего упокоения Титаника в 1985 году едет в Ирландию, чтобы встретиться с некоторыми из людей, которые построили корабль и обсуждает проблемы останков корабля и другого имущества утонувших от разграбления мародеров.Телекомпания: США, Produced by National Geographic Television for National Geographic ChannelsЖанр: Документальный, расследованияПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FE3FF1E6F1244B9F44CC71B6555449F10D3472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019406   (748187) от 24.05.2016
+
+NG: Осушить океан. Титаник / The Drain Titanic (2015) HDTV [H.264/1080i]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748187.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью виртуальной визуализации мы "осушим" место крушения "Титаника", чтобы раскрыть тайны гибели корабля, считавшегося непотопляемым.Телекомпания: Канада, The Canadian Film or Video Production Tax CreditЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23252E57FDF4A1AA56AE1AC64172F5A6C018687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281944   (748126) от 10.02.2019
+
+NG: Китайская мегагробница. Секреты терракотовой армии / China's Megatomb. Secrets of the Terracota Army (2018) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альберт Лин, исследователь Nat Geo и современный Индиана Джонс, расследует мрачные тайны, скрытые в усыпальнице первого императора Китая, которую охраняет всемирно известное терракотовое войско.Производство: США, National GeographicЖанр: Документальный, история, исследованияРежиссер: Чен Кейдж, Хай БаллантинПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEF0234FCC8F68C71F01D235B1F7A844899CD56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019904   (748068) от 24.05.2016
 
 Удивительные пауки / Incredible spiders (2015) HDTVRip [H.264/720p]
@@ -6,7 +84,7 @@
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748068.jpg" />
+  <img src="Z:/picture/008/save_picture_748068.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746250.jpg" />
+  <img src="Z:/picture/008/save_picture_746250.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ NGW: Смертоносная Африка. Побережья / Africa's Deadly
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745230.jpg" />
+  <img src="Z:/picture/008/save_picture_745230.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743873.jpg" />
+  <img src="Z:/picture/008/save_picture_743873.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ NG: Птица-динозавр / Dino-Bird (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743238.jpg" />
+  <img src="Z:/picture/008/save_picture_743238.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ NGW. Волчьи горы / The Wolf Mountains (2013) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739593.jpg" />
+  <img src="Z:/picture/008/save_picture_739593.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ NG. Черная мамба: поцелуй смерти / Black Mamba Kiss of D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739515.jpg" />
+  <img src="Z:/picture/008/save_picture_739515.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ NG: Дьяволы морских глубин / Devils of the Deep (2003) DVD5
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739410.jpg" />
+  <img src="Z:/picture/008/save_picture_739410.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ NG: Реальность или фантастика / NG: Is it Real? [19 се�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739399.jpg" />
+  <img src="Z:/picture/008/save_picture_739399.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2021) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736333.jpg" />
+  <img src="Z:/picture/008/save_picture_736333.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732859.jpg" />
+  <img src="Z:/picture/008/save_picture_732859.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ NG: Вторжение на Землю / Invasion Earth (2014) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732468.jpg" />
+  <img src="Z:/picture/008/save_picture_732468.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732306.jpg" />
+  <img src="Z:/picture/008/save_picture_732306.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ NGW: Охотница / Malika. Leopard Huntress (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732045.jpg" />
+  <img src="Z:/picture/008/save_picture_732045.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ NGW: Царство леопардов / Leopard Kingdom (2018) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732044.jpg" />
+  <img src="Z:/picture/008/save_picture_732044.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731832.jpg" />
+  <img src="Z:/picture/008/save_picture_731832.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ NG: Титаник. Дело закрыто / Titanic. Case Closed (2012) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731769.jpg" />
+  <img src="Z:/picture/008/save_picture_731769.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ NG. Гении / American Genius (2015) WEB-DLRip [H.264/720p-LQ] (Сезон 1,
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730598.jpg" />
+  <img src="Z:/picture/008/save_picture_730598.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730563.jpg" />
+  <img src="Z:/picture/008/save_picture_730563.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers S
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729630.jpg" />
+  <img src="Z:/picture/008/save_picture_729630.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ NG. Разгадка тайны Стоунхенджа / Stonehenge Decoded (200
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729524.jpg" />
+  <img src="Z:/picture/008/save_picture_729524.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ NG: V3: суперпушка Гитлера / Building Hitler's Supergun / Hitle
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729520.jpg" />
+  <img src="Z:/picture/008/save_picture_729520.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ NGW: Схватка тигров / Clash of Tigers (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728773.jpg" />
+  <img src="Z:/picture/008/save_picture_728773.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ NGW: Схватка тигров / Clash of Tigers (2018) HDTV [H.264/1080i-LQ]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7348DC6A0178797AA18AF4D739CCA43EE60613A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128378   (727436) от 25.04.2017
-
-NG: Тайны Тутанхамона / Ultimate Tutankhamun (2013) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта тайна существует уже 3000 лет. Фигура Тутанхамона привлекает всеобщее внимание с тех пор, как о ней впервые написали в газетах. Но немногие знают подлинную историю. Британский египтолог Крис Нонтон заново изучает исторические свидетельства в поисках новых важных данных. Его цель - раскрыть тайны фараона-мальчика. Он хочет отделить миф от реальной истории и добраться (   Читать дальше...   )Производство: Великобритания, Канада, Blink Films and Handel ProductionsЖанр: Документальный, научно-популярный, история, исследованияРежиссер: Шон СмитПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47960210F09C47CCF5BC5E26348F1085DAE5B9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273541   (727420) от 22.02.2019
-
-NG: Марс и SpaceX / Mars: Inside SpaceX (2018) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727420.jpg" />
-</div>
-
-
-###  Подробнее
-
-MARS: Inside SpaceX - новый документальный фильм от National Geographic. В фильме мы перенесемся за кулисы с Илоном Маском и инженерами SpaceX и понаблюдаем за подготовкой к первому полету Falcon Heavy.Производство: США, RadicalMedia, National GeographicЖанр: Документальный, научно-популярныйРежиссер: Юлия РейганПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81CA5C1E8DFBB1FF9F62A649F59C3D51D528C58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128591   (727323) от 25.04.2017
-
-National Geographic. Больше чем фокусы с Ди Эм Си / Beyond Magic With DMC (2014) HDTVRip (7 серий из 7)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте призрачное царство магии - от экстрасенсорного восприятия до левитации - в передаче «Больше чем фокусы с Ди Эм Си». Ведущий-маг Драммонд Мани-Каутс своими захватывающими фокусамипокоряет умы зрителей на улицах Лондона, Парижа, Барселоны, Мехико и Сингапура. Вдохновлённый блестящими умами таких великих мастеров как Гудини, прославленного своими сенсационными (   Читать дальше...   )Телекомпания: США, Windfall Films. LTD & National Geographic ChannelsЖанр: Документальный, познавательныйПеревод: ДублированныйПродолжительность: 7 x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D41E5E48D5B0930238B7EE7B14A780BDDE52E16
 ```
 
 https://mybot314.ru/tekegram_catalog/

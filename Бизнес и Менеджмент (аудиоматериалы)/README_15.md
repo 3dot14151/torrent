@@ -1,3 +1,111 @@
+###  Публикация: 1794214   (67334) от 28.04.2025
+
+Владимир Соколов | Из хаоса к системе: Технология продаж, которая приносит деньги (2025) [MP3, Алексей Файзуллин]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продажи – это не просто поднять трубку телефона. Это широкий спектр действий. Это разумное поле творчества. Это хаос, который можно и нужно оформить в строгую систему.
+Книга-практикум с авторской технологией пошагового выстраивания эффективной системы продаж, написанная для применения здесь и сейчас: в конце каждой главы – практическое задание по теме. Теория, пережитая (   Читать дальше...   )Жанр: БизнесИздательство: Writer's WayПродолжительность: 04:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83365D30623E6E837DE4964C891D6456BB91A32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794430   (67275) от 29.04.2025
+
+Александр Корнев | Про Writers Way (2025) [MP3, Дмитрий Ермаков]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы загуглите лидеров рынка и лучших экспертов в разных нишах, то увидите ― у каждого из них написана книга. Возникает вопрос, книга это артефакт или инструмент?
+10 лет назад я создал рынок книжных продюсеров в России, и точно знаю ― книга инструмент масштабирования личного бренда для предпринимателя и эксперта. Написание книги поможет пересобрать (   Читать дальше...   )Жанр: Бизнес и предпринимательствоИздательство: Writer's WayПродолжительность: 06:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E0B3C03488E6CCC6745CE55CFC0CD9FC17B6D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794820   (67196) от 01.05.2025
+
+Мария Довнар | Дикие клиенты (2023) [MP3, Мария Довнар]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постройте прибыльный бизнес на любимом деле!
+Мария Довнар – эксперт по продвижению, коуч PCC ICF, основатель и тренер Академии Продвижения для коучей, психологов, наставников и помогающих практиков.
+«Дикие клиенты: как продвигаться психологу, коучу, наставнику и другим экспертам в частной практике» – книга, которая поможет вам создать очередь из клиентов на частную (   Читать дальше...   )Жанр: БизнесИздательство: АСТПродолжительность: 08:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21138A10DE3B7785465BA95B3E37F05892B3BFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798641   (66593) от 23.05.2025
+
+Эльвис Каримов | Привет, я Эльвис! Бизнес без фильтров (2025) [MP3, Эльвис Каримов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о том, как обычный парень шаг за шагом добивался своих целей и благодаря настойчивости в итоге пришел к построению компании – лидера рынка в сфере логопедии. История написана простым языком, в ней нет наставлений, но она мотивирует вас к действию и, возможно, поможет избежать некоторых ошибок. Книга не столько о бизнесе, сколько о жизни, о том, как важно следовать (   Читать дальше...   )Жанр: БизнесИздательство: Writer's WayПродолжительность: 07:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90C2F90301374D69C7B7DF6FAE83CA0AFE15092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799323   (66437) от 29.05.2025
 
 Игорь Манн | 100 главных правил жизни и бизнеса (2025) [MP3, Павел Константиновский]
@@ -6,7 +114,7 @@
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66437.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66302.jpg" />
 </div>
 
 
@@ -60,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66154.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65756.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65567.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65479.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65306.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65179.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65123.jpg" />
 </div>
 
 
@@ -248,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65116.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64717.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64646.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64582.jpg" />
 </div>
 
 
@@ -357,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64563.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63389.jpg" />
 </div>
 
 
@@ -412,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63178.jpg" />
 </div>
 
 
@@ -438,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62222.jpg" />
 </div>
 
 
@@ -464,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61812.jpg" />
 </div>
 
 
@@ -490,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61378.jpg" />
 </div>
 
 
@@ -516,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61287.jpg" />
 </div>
 
 
@@ -543,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60242.jpg" />
 </div>
 
 
@@ -569,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59383.jpg" />
 </div>
 
 
@@ -581,112 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0EDB2F9D9A85731532FD26E05E90455E09FBBF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717653   (59039) от 21.04.2024
-
-Алексей Марков | Хулиномика 4.0 хулиганская экономика (2024) [MP3, Максим Суслов]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экономика – это очень скучно. Куча непонятны заумных слов и формул? Кто вам такое сказал? Экономика это интересно и просто! Вы просто не знаете, с каким соусом ее нужно подавать, на какой стороне пережевывать и долго ли жевать. Все базовые знания о ней и много больше вы получите из книги «Хулиномика», а также найдете немало интересных ответов на вопросы по типу: (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 13:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAACC2DBCEE392872C6E0C1E28B0B0627FB5AAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718244   (58676) от 24.04.2024
-
-Алена Мишурко | ПРОдвижение в Телеграме, ВКонтакте и не только (2022) [MP3, Дарья Павлова]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиокнига для тех, кто самостоятельно продвигает свой проект, и SMM-специалистов.
-Автор книги – Алена Мишурко, предприниматель, SMM-стратег, спикер на конференциях «Синергия», «Суровый Питерский SMM» и других бизнес-форумах, автор статей о маркетинге.
-Книга-практикум «ПРОдвижение в Телеграме, ВКонтакте и не только» – это 27 инструментов для роста продаж с пошаговыми (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига АСТПродолжительность: 06:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36418C86900D551FDFBFE023A5C1721487A95E4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721409   (57282) от 07.05.2024
-
-Михаил Жуков | HeadHunter. Успех неизбежен (2024) [MP3, Кирилл Петров]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это Миша. Он теперь будет вместо меня. Он нормальный. Не переживайте». Так в 2008 г. создатель компании HeadHunter Юрий Вировец представил команде нового генерального директора Михаила Жукова. Последующие 15 лет Жуков делом доказывал, что не просто рядовой управленец, а блестящий лидер. Под его руководством сервис стал ведущей российской компанией интернет-рекрутмента. (   Читать дальше...   )Жанр: БизнесИздательство: Альпина ПРОПродолжительность: 04:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3ACB8DC673D3C732CBF5E0EB6310B23D0CC820B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723495   (56350) от 16.05.2024
-
-Филип Котлер | Маркетинг по Котлеру (2008) [MP3, Д. Жебелев]
-
->>Обучающие аудиоматериалы
->>Бизнес и Менеджмент (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56350.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Маркетинг по Котлеру» — это полное руководство по маркетингу для менеджеров, основанное на опыте практической работы автора с такими корпоративными клиентами, как AT&T, General Electric, Ford, IBM, Michelin, Merck, DuPont и Bank of America. Благодаря этой глубокой и в то же время очень практичной книге вы быстро адаптируете свои знания и навыки к новым проблемам (   Читать дальше...   )Жанр: БизнесИздательство: Альпина Бизнес БуксПродолжительность: 05:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3965FA1CE5366230E305E059A076770050C5E8BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

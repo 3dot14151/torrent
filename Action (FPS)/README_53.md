@@ -1,3 +1,107 @@
+###  Публикация: 1752215   (22417) от 05.04.2025
+
+I Am Your Beast (2024) [En] (March 20 Minor Update) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22417.jpg" />
+</div>
+
+
+###  Подробнее
+
+I Am Your Beast - это FPS в обертке триллера о мести, чей сюжет разворачивается в североамериканской глуши, где на вас охотятся бойцы военно-промышленного комплекса - а потом охотники становятся жертвами. Вы - тайный агент Альфонс Хардинг, уже шесть лет в отставке, но вас то и дело просят выполнить «одно последнее задание». После того, как вы отказались от очередного (   Читать дальше...   )Тип издания: LicenseРазработчик: Strange ScaffoldЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9C47F65F550F5C6BD83C6A3A19211AF534AC78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790779   (21922) от 10.04.2025
+
+Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (2.0.1.1/2.0.7.1/dlc) Repack Other s [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21922.jpg" />
+</div>
+
+
+###  Подробнее
+
+2036 год. Прошло четверть века с тех пор, как ядерная война опустошила землю. Москва лежит в руинах, и несколько тысяч выживших вынуждены бороться за существование в тоннелях метро. Их не убила отравленная природа и мутировавшие чудовища, они пережили сверхъестественный кошмар и ужасы гражданской войны.Тип издания: RepackРазработчик: 4A GamesЖанр: Шутеры, От первого лица, ФантаcтикаЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:148F06EBDC3E6F889D2D74ABBF570FF5989C05E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790634   (21902) от 10.04.2025
+
+Prey (2006) [Ru] (1.4) Repack/Mod seleZen
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научно-фантастическая компьютерная игра в жанре шутера от первого лица, разработанная Human Head Studios и изданная 3D Realms и 2K Games в 2006 году. В России локализована и издана компанией 1С. В игре используется немного модифицированный графический движок Doom 3. В октябре 2006 3D Realms объявило, что благодаря коммерческому успеху на платформах PC и Xbox 360 (   Читать дальше...   )Тип издания: Repack/ModРазработчик: Human Head StudiosЖанр: Шутер от первого лицаЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C97738AFAAD46C06BFE75034AD80A4305ED397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770698   (21400) от 15.04.2025
+
+Echo Point Nova (2024) [Ru/Multi] (1.41) Repack Let'sРlay [Digital Deluxe Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21400.jpg" />
+</div>
+
+
+###  Подробнее
+
+От создателей Severed Steel! Сыграйте в шутер от первого лица и погрузитесь в необъятный открытый мир. Вы можете поиграть сами или в компании из 4 друзей! Вы - космический исследователь, и ваш корабль потерпел крушение на загадочной планете. На ней уже орудует безжалостная организация наемников, запустившая свои лапы в древнюю технологию для создания опустошительного (   Читать дальше...   )Тип издания: RepackРазработчик: Greylock StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык интерфейса: Русский, Английский, Японский, Корейский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A4BA24EC383729D72871365ECAF29AD9FFE4DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791709   (21375) от 15.04.2025
 
 Dying Light: The Following (2016) [Ru/En] (1.50.0/dlc) Repack Other s [Definitive Edition]
@@ -6,7 +110,7 @@ Dying Light: The Following (2016) [Ru/En] (1.50.0/dlc) Repack Other s [Definitiv
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21375.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Call of Juarez: Gunslinger (2013) [Ru/En] (1.0.5/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21285.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0.53951) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21186.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21062.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Vampire Hunters (2023) [Ru/Multi] (1.3.0.CL11455) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20951.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20876.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20850.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ DOOM (2016) [Ru/Multi] (20240321-110145-gentle-wolf/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20640.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack seleZen [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20306.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Sker Ritual (2022) [Ru/Multi] (1.2.3.25254/dlc) Repack FitGirl [Anniversary Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20250.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.8) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19989.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Turok: Dinosaur Hunter (1997) [Multi] (kex4-3.0.1013) License GOG [Remastered]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19821.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19646.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Skin Deep (2025) [Ru/Multi] (2025.04.27.1441) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19515.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Viscerafest (2021) [Ru/Multi] (1.2) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19045.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.85) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18728.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Forgive Me Father (2021) [Ru/Multi] (1.4.1) Repack dixen18
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18704.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Doom 3: BFG Edition (2012) [Ru/En] (1.14 20230201) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18688.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Battle Shapers (2024) [Ru/Multi] (1.1.2.10449) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18270.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Avium (2024) [Ru/Multi] (Patch 43/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18166.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.22.4/dlc) Repack Other s [Digital Ex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17742.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.15.1.0/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17721.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.15.1.0/dlc) Repack seleZen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4D2D19C0C3891CBFD80A96DB5C56B3637520331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798120   (17720) от 20.05.2025
-
-S.T.A.L.K.E.R. Legends of the Zone Trilogy: Shadow of Chornobyl, Clear Sky, Call of Prypiat (2025) [Ru/Multi] (Build 18465678/Build 18465670/Build 18465660) Scene Rune [Enhanced Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17720.jpg" />
-</div>
-
-
-###  Подробнее
-
-S.T.A.L.K.E.R.: Зов Припяти – прямой сиквел к S.T.A.L.K.E.R.: Тень Чернобыля. В роли майора Александра Дегтярева вы должны расследовать падение правительственных вертолетов на территории Зоны и разобраться в том, что там происходит. Военная экспедиция к Центру Зоны исчезает при загадочных обстоятельствах.Тип издания: SceneРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBAFEAA942D14145E625FF107116FF21158490C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798280   (17640) от 21.05.2025
-
-S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repack Other s [Enhanced Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернись туда, откуда всё началось. Трилогия S.T.A.L.K.E.R., одна из самых знаковых и революционных серий шутеров от первого лица, возвращается - теперь в обновлённой и улучшенной версии для нового поколения. Удачной охоты, Сталкер!Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:442BC1BCBC7B8AB2496CF80E4E5C0F58483E6FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798175   (17571) от 21.05.2025
-
-S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repack FitGirl [Enhanced Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернись туда, откуда всё началось. Трилогия S.T.A.L.K.E.R., одна из самых знаковых и революционных серий шутеров от первого лица, возвращается - теперь в обновлённой и улучшенной версии для нового поколения. Удачной охоты, Сталкер!Тип издания: RepackРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69DCEDD4EA98312CB53D8C9410688B89C9C3C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797501   (17327) от 23.05.2025
-
-Wizordum (2023) [Ru/En] (1.0.06.3) Repack Let'sРlay
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wizordum - это ретро-шутер от первого лица, в котором вы играете роль Мага. Древняя печать Террабрумы разбилась, снова выпустив на волю силы Хаоса. Как один из последних магов святилища Визордума, вы должны отправиться на поиски источника этой порчи и отбросить Хаос назад, прежде чем он поглотит королевство, в скоростном фэнтезийном FPS, вырывающем страницу из книг (   Читать дальше...   )Тип издания: RepackРазработчик: Emberheart GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84AC03B91018CA71C274EE277642AA17C73EB1A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

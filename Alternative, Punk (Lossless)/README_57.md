@@ -1,3 +1,32 @@
+###  Публикация: 1646056   (208975) от 13.07.2023
+
+Nothing But Thieves - Dead Club City (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Brit-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the DCC [00:03:17]
+02. Overcome [00:03:34]
+03. Tomorrow Is Closed [00:03:58]
+04. Keeping You Around [00:03:35](   Читать дальше...   )Жанр: Alternative Rock, Brit-PopПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:603E0223D30B65C8080CCB024B60F34C3E7218C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647972   (208281) от 22.07.2023
 
 Blur - The Ballad Of Darren (2023) Deluxe Edition [FLAC|Lossless| tracks+.cue] <Alternative Rock>
@@ -6,7 +35,7 @@ Blur - The Ballad Of Darren (2023) Deluxe Edition [FLAC|Lossless| tracks+.cue] <
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208281.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Gorillaz - Cracker Island (2023) Deluxe Edition [FLAC 2.0|44.1/48/24|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206312.jpg" />
+  <img src="Z:/picture/005/save_picture_206312.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Alter Bridge - Pawns & Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205854.jpg" />
+  <img src="Z:/picture/005/save_picture_205854.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205790.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Offspring - Rise And Fall, Rage And Grace (2008) 15th Anniversary Deluxe Edi
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205150.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Bush - 10 Albums (1994-2022) Full Studio Discography [FLAC|Lossless|tracks + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205141.jpg" />
+  <img src="Z:/picture/004/save_picture_205141.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204958.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Rising Alma - Awake (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Fema
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204893.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Volatile Ways - 2 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Beatdown Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204889.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Asking Alexandria - Where Do We Go From Here? (2023) [FLAC|Lossless|WEB-DL|track
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204698.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ The Word Alive - Hard Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204260.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Hot Milk - A Call To The Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Fe
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204248.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ a Giant Dog - Bite (2023) [FLAC|Lossless|WEB-DL|tracks] <glam-punk>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204217.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Wreckless Eric - Leisureland (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204205.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Holding Absence - The Noble Art Of Self Destruction (2023) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204046.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Who Is She? - Goddess Energy (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204044.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Lutalo - Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203729.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Everything Everything - Man Alive (2010) 2CD, Deluxe Edition, 2023, Universal Mu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203709.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Bury the Darkness - Dead Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203286.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Donefor - Sleep On It (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Ha
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203279.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Candlebox - The Long Goodbye (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative R
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203276.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Empire State Bastard - Rivers Of Heresy (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202984.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Escape The Fate - Out Of The Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202737.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Linkin Park - Meteora (2003) 3CD, 20th Anniversary Edition [FLAC|Lossless|image 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200218.jpg" />
+  <img src="Z:/picture/005/save_picture_200218.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Our Hollow, Our Home - Burn in the Flood (2021) 2023, Deluxe [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199637.jpg" />
+  <img src="Z:/picture/005/save_picture_199637.jpg" />
 </div>
 
 
@@ -715,33 +744,6 @@ Our Hollow, Our Home - Burn in the Flood (2021) 2023, Deluxe [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC94BD4F326049DF663109F1DE7A6E592F7CB358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 406650   (195090) от 27.07.2023
-
-Sinead O'Connor - 2 Альбома (2011-2012) [FLAC|Lossless/tracks+.cue] <Alternative, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Essential - 2011
-How About I Be Me - 2012Жанр: Alternative, Pop RockПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C54F6A55ACC42DF1F4D9CF20D68F75E1A6E019
 ```
 
 https://mybot314.ru/tekegram_catalog/

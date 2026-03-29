@@ -1,3 +1,119 @@
+###  Публикация: 1127655   (731155) от 22.04.2017
+
+Valery Ponomarev & Feelin's (2006) Монолит [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valery Ponomarev [01:14]
+02. Feelin's (I) [04:35]
+03. Cat Dancing on the Piano [04:53]
+04. Take 7 [03:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAFC6E9430C19673E81B0D889603095583F6A5B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127600   (731154) от 22.04.2017
+
+Kenny Barron - Sambao (1992) [WavPack|Lossless|image + .cue] <Latin Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731154.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sambao (6:21)
+2. Yalelel (5:51)
+3. Bacchanal (6:38)
+4. Belem (5:43)(   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:59:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E5D8BDAA64649508C2115F0CF27D81468F9400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127673   (731153) от 22.04.2017
+
+Kahil El'Zabar's Ritual Trio - Africa N' da Blues (2000) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ka-Real (Take 2) [12:39]
+02. Africanos / Latinos [09:53]
+03. Miles' Mode [07:22]
+04. Autumn Leaves [11:27](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2377EA61F65D6DF52E0B70FDD4E6439C1EF554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284021   (731104) от 19.02.2019
+
+Pat Flowers - 1945 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_731104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. But Not For Me [3:09]
+02. Ain't Misbehavin' [2:39]
+03. Blue Danube [3:03]
+04. Bach Prelude And Fugue [2:27](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5918154C2CE914F2BD30710D77DFA4B08F4CF3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284024   (731103) от 19.02.2019
 
 Charly Antolini - Drum Beat (1966) 2003, MPS Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Charly Antolini - Drum Beat (1966) 2003, MPS Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731103.jpg" />
+  <img src="Z:/picture/008/save_picture_731103.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bohren & Der Club Of Gore - Bohren For Beginners (2016) Compilation [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731024.jpg" />
+  <img src="Z:/picture/008/save_picture_731024.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Makoto Ozone - Pandora (2000) Verve Records [FLAC|Lossless|tracks + .cue] <Post-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730902.jpg" />
+  <img src="Z:/picture/008/save_picture_730902.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Dave Liebman Expansions - Selflessness: The Music Of John Coltrane (2021) Dot Ti
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730895.jpg" />
+  <img src="Z:/picture/008/save_picture_730895.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Walter Bishop, Jr. - Old Folks (1977) 2003, Mercury Music [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730108.jpg" />
+  <img src="Z:/picture/008/save_picture_730108.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ The Fabulous Dizzy Gillespie - Pleyel Jazz Concert 1948 (2016) Sony Music [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730104.jpg" />
+  <img src="Z:/picture/008/save_picture_730104.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ The Duke Edward Kennedy Ellington - I'm Checkin' Out, Goom Bye (1939) 2CD, 2004,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730101.jpg" />
+  <img src="Z:/picture/008/save_picture_730101.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Radare - Im Argen (2015) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Ex
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730090.jpg" />
+  <img src="Z:/picture/008/save_picture_730090.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Luke Sellick - Alchemist (2017) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730084.jpg" />
+  <img src="Z:/picture/008/save_picture_730084.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - The Seduction - Romantic Jazz (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730060.jpg" />
+  <img src="Z:/picture/008/save_picture_730060.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Art Ensemble of Chicago and Associated Ensembles (1979 - 2015) 21CD, 2018, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729694.jpg" />
+  <img src="Z:/picture/008/save_picture_729694.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Herb Ellis & Joe Pass - Seven, Come Eleven (1973) Remaster, 2014, Universal[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729030.jpg" />
+  <img src="Z:/picture/008/save_picture_729030.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Cedar Walton Trio - Cedar Walton (1985) Remaster, 2015, Solid Records[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729029.jpg" />
+  <img src="Z:/picture/008/save_picture_729029.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ John Coltrane - Concert In Japan (1966) 2011, Verve[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729008.jpg" />
+  <img src="Z:/picture/008/save_picture_729008.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Jessica Williams - The Art Of The Piano (2009) Origin Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728973.jpg" />
+  <img src="Z:/picture/008/save_picture_728973.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Mel Torme - Mel Torme's Finest Hour (2001) Verve [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728908.jpg" />
+  <img src="Z:/picture/008/save_picture_728908.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Sidney Bechet, Claude Luter, Andre Reweliotty - Bechet Souvenirs (1951, 1952) 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728906.jpg" />
+  <img src="Z:/picture/008/save_picture_728906.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ Erroll Garner - Ready Take One (1967 - 1971) 2016, Sony Music [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728904.jpg" />
+  <img src="Z:/picture/008/save_picture_728904.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Mankunku Quartet - Yakhal' Inkomo (1968) 2017, Jazzman [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727886.jpg" />
+  <img src="Z:/picture/008/save_picture_727886.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ John Pizzarelli Trio - For Centennial Reasons: 100 Year Salute to Nat King Cole 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727882.jpg" />
+  <img src="Z:/picture/008/save_picture_727882.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ The Modern Jazz Disciples (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727862.jpg" />
+  <img src="Z:/picture/008/save_picture_727862.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727856.jpg" />
+  <img src="Z:/picture/008/save_picture_727856.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43DEA9AB810403BD04BD5824E9070AAC5F559B0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022786   (727855) от 03.06.2016
-
-Hank Mobley - Workout (1961) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Workout [10:01]
- 02.Uh Huh [10:44]
- 03.Smokin' [07:31]
- 04.The Best Things In Life Are Free [05:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F3090854E1929D203C26857E2E0E235F396CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284708   (727846) от 22.02.2019
-
-Dan Hicks and The Hot Licks - Crazy for Christmas (2010) [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Mornin' (3:13)
- 02. Santa Gotta Choo Choo (3:29)
- 03. Somebody Stole My Santa Claus Suit (4:44)
- 04. Carol of the Bells (3:08)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C361052D2C65713638E29D1718670E03A378C67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284705   (727837) от 22.02.2019
-
-Vangelis Katsoulis - Pictures From Inside (2011) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Universe Clockwork (8:29)
- 02. Snapshots of a Lost World (16:26)
- 03. Filinks (7:42)
- 04. I Died for Beauty (4:16)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38A62B3275F388C836310821D93D966C1BAF5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530821   (727823) от 12.02.2022
-
-Rick Braun - Rick Braun (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away Places (4:57)
-02. Amor De Mi Vida (Love Of My Life) (4:54)
-03. Turkish (5:02)
-04. The Color Of Love (3:54)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FC1C71B55E440E75A503D2E5C32EB5D19DD442C
 ```
 
 https://mybot314.ru/tekegram_catalog/

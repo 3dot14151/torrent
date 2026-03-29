@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720083.jpg" />
+  <img src="Z:/picture/008/save_picture_720083.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ O&O Defrag Professional 20.5 Build 603 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720077.jpg" />
+  <img src="Z:/picture/008/save_picture_720077.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ O&O Defrag Professional 20.5 Build 603 RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720054.jpg" />
+  <img src="Z:/picture/008/save_picture_720054.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720048.jpg" />
+  <img src="Z:/picture/008/save_picture_720048.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Slice, Dice & Rice (2017) [En/Ch/Po] (1.0) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720044.jpg" />
+  <img src="Z:/picture/008/save_picture_720044.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Schwarz & Funk - Sapphire Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <Chillout,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720042.jpg" />
+  <img src="Z:/picture/008/save_picture_720042.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Netsky - 3 (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720037.jpg" />
+  <img src="Z:/picture/008/save_picture_720037.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Cyberfox 47.0 for Intel [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720024.jpg" />
+  <img src="Z:/picture/008/save_picture_720024.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ ReviverSoft PC Reviver 2.9.0.46 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720023.jpg" />
+  <img src="Z:/picture/008/save_picture_720023.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ PBS: Путешествие на край света с Артом Вульфо�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720020.jpg" />
+  <img src="Z:/picture/008/save_picture_720020.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720000.jpg" />
+  <img src="Z:/picture/008/save_picture_720000.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719988.jpg" />
+  <img src="Z:/picture/008/save_picture_719988.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Mozilla Firefox 47.0 Final Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719955.jpg" />
+  <img src="Z:/picture/008/save_picture_719955.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Freemake Video Converter 4.1.9.15 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719952.jpg" />
+  <img src="Z:/picture/008/save_picture_719952.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ TechSmith Snagit 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719940.jpg" />
+  <img src="Z:/picture/008/save_picture_719940.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ VA - A State Of Trance 2016 (Mixed by Armin van Buuren) (2016) [FLAC|Lossless|tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719936.jpg" />
+  <img src="Z:/picture/008/save_picture_719936.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Media Pro SE (Second Edition) 2.0.0.147 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719933.jpg" />
+  <img src="Z:/picture/008/save_picture_719933.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ GridinSoft Anti-Malware 3.0.39 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719924.jpg" />
+  <img src="Z:/picture/008/save_picture_719924.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Intel® Processor Identification Utility 5.50 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719921.jpg" />
+  <img src="Z:/picture/008/save_picture_719921.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719917.jpg" />
+  <img src="Z:/picture/008/save_picture_719917.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Google Chrome 51.0.2704.84 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719912.jpg" />
+  <img src="Z:/picture/008/save_picture_719912.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Punto Switcher 4.2.5 Build 1238 DC 30.05.2016 RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719909.jpg" />
+  <img src="Z:/picture/008/save_picture_719909.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Glass Apple Bonzai - Glass Apple Bonzai (2015) /Special Edition/ [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719900.jpg" />
+  <img src="Z:/picture/008/save_picture_719900.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_719891.jpg" />
+  <img src="Z:/picture/005/save_picture_719891.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_719876.jpg" />
+  <img src="Z:/picture/005/save_picture_719876.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ IObit Smart Defrag Pro 5.1.0.787 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719873.jpg" />
+  <img src="Z:/picture/008/save_picture_719873.jpg" />
 </div>
 
 

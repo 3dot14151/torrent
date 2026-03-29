@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720848.jpg" />
+  <img src="Z:/picture/008/save_picture_720848.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720847.jpg" />
+  <img src="Z:/picture/008/save_picture_720847.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720846.jpg" />
+  <img src="Z:/picture/008/save_picture_720846.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720845.jpg" />
+  <img src="Z:/picture/008/save_picture_720845.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720844.jpg" />
+  <img src="Z:/picture/008/save_picture_720844.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Valentina Studio Pro 12.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720838.jpg" />
+  <img src="Z:/picture/008/save_picture_720838.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ GraphicConverter 11 v11.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720837.jpg" />
+  <img src="Z:/picture/008/save_picture_720837.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Artstudio Pro 4.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720836.jpg" />
+  <img src="Z:/picture/008/save_picture_720836.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720807.jpg" />
+  <img src="Z:/picture/008/save_picture_720807.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Abstrakt Algebra - Abstrakt Algebra (1995) [FLAC|Lossless|image + .cue] <Technic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720800.jpg" />
+  <img src="Z:/picture/008/save_picture_720800.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720799.jpg" />
+  <img src="Z:/picture/008/save_picture_720799.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720795.jpg" />
+  <img src="Z:/picture/008/save_picture_720795.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720793.jpg" />
+  <img src="Z:/picture/008/save_picture_720793.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720792.jpg" />
+  <img src="Z:/picture/008/save_picture_720792.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720784.jpg" />
+  <img src="Z:/picture/008/save_picture_720784.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720778.jpg" />
+  <img src="Z:/picture/008/save_picture_720778.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720772.jpg" />
+  <img src="Z:/picture/008/save_picture_720772.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ KCNcrew Pack 02-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720768.jpg" />
+  <img src="Z:/picture/008/save_picture_720768.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ BBEdit 14.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720766.jpg" />
+  <img src="Z:/picture/008/save_picture_720766.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Typora 1.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720763.jpg" />
+  <img src="Z:/picture/008/save_picture_720763.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Timecode Pro 3.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720760.jpg" />
+  <img src="Z:/picture/008/save_picture_720760.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Cisdem DVD Burner 6.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720759.jpg" />
+  <img src="Z:/picture/008/save_picture_720759.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Firetask - Project-oriented GTD Task Management 4.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720755.jpg" />
+  <img src="Z:/picture/008/save_picture_720755.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720749.jpg" />
+  <img src="Z:/picture/008/save_picture_720749.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720748.jpg" />
+  <img src="Z:/picture/008/save_picture_720748.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720747.jpg" />
+  <img src="Z:/picture/008/save_picture_720747.jpg" />
 </div>
 
 

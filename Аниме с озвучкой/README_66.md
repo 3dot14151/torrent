@@ -1,3 +1,29 @@
+###  Публикация: 1730833   (9022) от 07.08.2025
+
+Beyblade Burst QuadDrive | Beyblade Burst Dynamite Battle | Бейблэйд Взрыв — Динамитная Битва [2021, ONA, 30 из 52 эп.] WebRip 1080p raw+eng+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белл Дайкокутен – настоящий Король Демонов, которого опасаются мирные жители. Люди наслышаны о его злодеяниях, но можно ли верить многочисленным легендам? У ворот Макаи когда-то было сражение, доказавшее непобедимость Белла, причем последний не намерен останавливаться и объявляет войну всем Блейдерам. Какой финал желает увидеть Король Демонов? В параллельной вселенной (   Читать дальше...   )Производство: OLMЖанр: приключенияРежиссер: Акияма КацухитоПеревод: HnYОзвучка: OriginalЯзык озвучки: Японский, Английский и РусскийСубтитры: АнглийскиеПродолжительность: 52 эп. по 15 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283FAE5AFA3F0C1F352A8822D09A5311288E3CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820963   (8611) от 06.10.2025
 
 Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шaльнoй пoслeдний бoсс явился! [2025, TV, 01 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +32,7 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шaльнoй пo
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8611.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Kanashimi no Belladonna | Belladonna of Sadness | Печальная Белла�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7955.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Akira | Акира [1988, Movie] WEBRip 2160p/4K raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7756.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и де
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7149.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5285.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Saikyou Onmyouji no Isekai Tenseiki | The Reincarnation of the Strongest Exorcis
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4839.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4680.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4556.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Mizu Zokusei no Mahou Tsukai | The Water Magician | Маг воды [2025, TV, 8
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4500.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 | Туал
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4456.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Overtake! | Обгон! [2023, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3808.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3668.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Yofukashi no Uta Season 2 | Call of the Night Season 2 | Песнь Ночных
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3491.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2456.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Bad Girl | Плохая девочка [ТВ-1] [2025, TV, 10 из 12] WEBRip 10
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2232.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Клеватесс: К�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2091.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1917.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Orejihanki |
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1911.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1907.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Higurashi no Naku Koro ni Kai | When They Cry: Kai | Когда плачут ц�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1815.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Higurashi no Naku Koro ni | Higurashi When They Cry | Когда плачут ц
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1814.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Tsuihousha Shokudou e Youkoso! | Welcome to the Outcast's Restaurant! | Добр
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1745.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1735.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1708.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1531.jpg" />
 </div>
 
 
@@ -644,33 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A737682F85A58C0013977102568BE75DD7F099EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805582   (1382) от 23.09.2025
-
-Эта фарфоровая кукла влюбилась [ТВ-2] | Sono Bisque Doll wa Koi o Suru 2 | My Dress-Up Darling 2 [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Онгоинги с озвучкой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1382.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом сезоне Вакана и Марин продолжат свою совместную работу над костюмами. Их будут ждать ещё больше интересных проектов, на которых они попытаются закрепить свой успех, а их отношениям предстоит пройти несколько испытаний на прочность. В конце концов, это ведь Япония, так что работа у косплееров всегда найдётся.
-Новые вызовы, необычные костюмы, захватывающие (   Читать дальше...   )Производство: Япония / Студия CloverWorks, BoundaryЖанр: Комедия, романтика, повседневностьРежиссер: Синохара КэйсукэЯзык озвучки: Русский (AniLiberty, Dream Cast, AniBaza, SHIZA Project, Ушастая озвучка, OnWave); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90D424D9E268B64158599BBC796CB383599CED3
 ```
 
 https://mybot314.ru/tekegram_catalog/

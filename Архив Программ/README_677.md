@@ -6,7 +6,7 @@ Sorcim Technologies Clone Files Checker 5.1 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708577.jpg" />
+  <img src="Z:/picture/008/save_picture_708577.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6718.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708559.jpg" />
+  <img src="Z:/picture/008/save_picture_708559.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ZBrush 3.1 [ENG](2008)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708491.jpg" />
+  <img src="Z:/picture/008/save_picture_708491.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Movavi Video Converter 22.3.0 Premium RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708488.jpg" />
+  <img src="Z:/picture/008/save_picture_708488.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Icecream PDF Converter PRO 2.71 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708429.jpg" />
+  <img src="Z:/picture/008/save_picture_708429.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Alcohol 52% 2.0.3.9902 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708352.jpg" />
+  <img src="Z:/picture/008/save_picture_708352.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Alcohol 120% 2.0.3.9902 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708348.jpg" />
+  <img src="Z:/picture/008/save_picture_708348.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ NVIDIA GeForce Desktop 382.05 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708347.jpg" />
+  <img src="Z:/picture/008/save_picture_708347.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Windows 10 PE (x86/x64) v.5.0.1 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708268.jpg" />
+  <img src="Z:/picture/008/save_picture_708268.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Alcohol 120% 2.0.3.9902 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708255.jpg" />
+  <img src="Z:/picture/008/save_picture_708255.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Maxthon Browser 5.2.1.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708174.jpg" />
+  <img src="Z:/picture/008/save_picture_708174.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ QuiteRSS 0.18.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708158.jpg" />
+  <img src="Z:/picture/008/save_picture_708158.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Slimjet 18.0.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708112.jpg" />
+  <img src="Z:/picture/008/save_picture_708112.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Pale Moon 27.9.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708108.jpg" />
+  <img src="Z:/picture/008/save_picture_708108.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Aiseesoft Screen Recorder 1.1.36 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708107.jpg" />
+  <img src="Z:/picture/008/save_picture_708107.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Easy CD-DA Extractor 2011.3 [RU/EN/SU] | REPACK от Dopex
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708066.jpg" />
+  <img src="Z:/picture/008/save_picture_708066.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Wise Folder Hider Free 3.34.143 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708032.jpg" />
+  <img src="Z:/picture/008/save_picture_708032.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ K-Lite Codec Pack Update 12.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708030.jpg" />
+  <img src="Z:/picture/008/save_picture_708030.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Norton 360 22.14.0.54 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708002.jpg" />
+  <img src="Z:/picture/008/save_picture_708002.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ VidCoder 2.30 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707943.jpg" />
+  <img src="Z:/picture/008/save_picture_707943.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ XYplorer 16.90.0200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707941.jpg" />
+  <img src="Z:/picture/008/save_picture_707941.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Glarysoft Malware Hunter PRO 1.11.0.23 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707936.jpg" />
+  <img src="Z:/picture/008/save_picture_707936.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ AsceticSoft : BitmapCreator v.C Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707898.jpg" />
+  <img src="Z:/picture/008/save_picture_707898.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Norton Internet Security 22.14.0.54 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707798.jpg" />
+  <img src="Z:/picture/008/save_picture_707798.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Reg Organizer 8.11 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707797.jpg" />
+  <img src="Z:/picture/008/save_picture_707797.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Adobe Media Encoder CC 2018 12.1.0.171 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707788.jpg" />
+  <img src="Z:/picture/008/save_picture_707788.jpg" />
 </div>
 
 

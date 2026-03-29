@@ -1,3 +1,56 @@
+###  Публикация: 979894   (958096) от 27.01.2016
+
+BADLAND (2015) [Ru/Multi] (Build 27.01.2016) SteamRip Let'sРlay [Game of the Year Deluxe Edition]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летай и пытайся выжить в новой версии игры BADLAND — на пути тебя ждёт невероятное количество изобретательных ловушек, головоломок и препятствий.
+Версия «BADLAND: Игра года» предлагает вам совершенно новый приключенческий боевик, отмеченный несколькими наградами. «BADLAND: Игра года», переработанная для Steam, построена на завораживающей атмосферной графике ручной (   Читать дальше...   )Тип издания: SteamRipРазработчик: FrogmindЖанр: Arcade (Platform)Язык озвучки: -/-Язык субтитров: -/-Язык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C3BF0CC9D211751EB7C483529790135E33FF18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089836   (950134) от 04.01.2017
+
+Chariot (2014) [Ru/Multi] (1.0) License HI2U
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chariot – платформер для одного или пары игроков, в котором прекрасная принцесса и ее жених везут гроб короля по 25 уровням, а призрак усопшего старается им помешать. Насладитесь прекрасной физикой.Тип издания: LicenseРазработчик: Frima StudioЖанр: Arcade (Platform)Язык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D364E2252057ABE33FF91FCA02A18D21E5557F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301206   (949111) от 23.02.2020
 
 La-Mulana 2 (2018) [Multi] (1.7.7.1) License GOG
@@ -6,7 +59,7 @@ La-Mulana 2 (2018) [Multi] (1.7.7.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949111.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Runner2: Future Legend of Rhythm Alien [En] (L) 2013 | FANiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948690.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Nuclear Throne (2015) [En] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946442.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Don't Chat With Strangers (2017) [En] (1.0) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936875.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Rise & Shine (2017) [Ru/Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934543.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ Rise & Shine (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933007.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ Cathedral (2019) [En] (1.2.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930025.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ Giana Sisters: Twisted Dreams - Rise of the Owlverlord (2013) [Ru/Multi] (1.1.2)
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923998.jpg" />
 </div>
 
 
@@ -214,7 +267,7 @@ Shantae: Half-Genie Hero (2016) [Multi] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923847.jpg" />
 </div>
 
 
@@ -240,7 +293,7 @@ Unbound: Worlds Apart (2021) [Ru/Multi] (1.0.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923306.jpg" />
 </div>
 
 
@@ -266,7 +319,7 @@ Greak: Memories of Azur (2021) [Ru/Multi] (1.0.6_94) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919942.jpg" />
 </div>
 
 
@@ -292,7 +345,7 @@ Just Shapes & Beats (2018) [Ru/Multi] (1.3.19) Unofficial
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915091.jpg" />
 </div>
 
 
@@ -318,7 +371,7 @@ Perfect Universe - Play with Gravity (2016) [Multi] (1.0) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913690.jpg" />
 </div>
 
 
@@ -344,7 +397,7 @@ Double Cubes (2017) [Ru/Multi] (1.0) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913636.jpg" />
 </div>
 
 
@@ -370,7 +423,7 @@ Neon Chrome (2016) [En] (1.0.0.14) Repack MaggotFreddy
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913566.jpg" />
 </div>
 
 
@@ -396,7 +449,7 @@ Skul: The Hero Slayer (2021) [Ru/Multi] (1.3.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913425.jpg" />
 </div>
 
 
@@ -422,7 +475,7 @@ Rocketbirds 2 Evolution (2017) [Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913409.jpg" />
 </div>
 
 
@@ -448,7 +501,7 @@ Rocketbirds 2: Evolution (2017) [Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909672.jpg" />
 </div>
 
 
@@ -474,7 +527,7 @@ Dungelot: Shattered Lands (2016) [Ru/En] (1.34) Unofficial ALiAS
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905564.jpg" />
 </div>
 
 
@@ -500,7 +553,7 @@ Hyper Light Drifter (2016) [Ru/Multi] (7212017hf) License GOG (обновляе�
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904528.jpg" />
 </div>
 
 
@@ -526,7 +579,7 @@ In Between (2016) [En/Multi] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902066.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ Evan's Remains (2020) [Ru/Multi] (1.0) License GOG [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900326.jpg" />
 </div>
 
 
@@ -578,7 +631,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898462.jpg" />
 </div>
 
 
@@ -604,7 +657,7 @@ Shovel Knight: Treasure Trove (2014) [Ru/Multi] (4.1a/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898426.jpg" />
 </div>
 
 
@@ -615,58 +668,6 @@ hovel Knight: Treasure Trove - это полноценное и завершен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6988F2D5E9DA53026542372A0052B248E330FF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065389   (893300) от 04.09.2021
-
-Magicmaker (2014) [En] (1.0.17) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893300.jpg" />
-</div>
-
-
-###  Подробнее
-
-MagicMaker - волшебный платформер с приключениями, где вы будете путешествовать по случайно генерируемым подземельям! В роли охранника Школы Магии Дорвола, вы будете выполнять различные задания, для обеспечения безопасности своих подопечных. По мере прохождения, вы будете находить базовые заклинания, из которых можно создавать огромное количество уникальных заклинаний, (   Читать дальше...   )Тип издания: LicenseРазработчик: Tasty Stewdios LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AAB88FD2F21999B85B4457A6EA4B3C7A2CD2D3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493925   (891985) от 05.09.2021
-
-Timespinner (2018) [Ru/Multi] (1.033) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда родителей Лунеис убили у неё на глазах, а Маховик времени был разрушен, она неожиданно переместилась в неизвестный мир без надежды на возвращение. Лунеис поклялась отомстить злобной Империи Лакием, используя свою способность управлять временем, но течение времени иногда нельзя делить на белое и чёрное. Исследуйте обширный мир с невероятной детализацией и красочной (   Читать дальше...   )Тип издания: LicenseРазработчик: Lunar Ray GamesЖанр: Metroidvania, Platformer, RPG, Action, Time ControlЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AFC37A80684532CE60568FEE0632C70BB6B3D88
 ```
 
 https://mybot314.ru/tekegram_catalog/

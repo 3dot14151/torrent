@@ -1,3 +1,61 @@
+###  Публикация: 552553   (447452) от 26.09.2012
+
+Cr OS Linux (ex. Chrome Linux OS) 2.2.1226 [i686] (1xDVD + 1xUSB)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cr OS Linux (произносится как Cros Linux) является свободной OS, построенной вокруг революционного браузера Chromium. Разработчики называю процедуру построения этой OS - хромирование, т.к. это стабильная и блестящая OS.
+
+Этот проект с открытым кодом предоставляет легкий дистрибутив, который похож на Google Chrome OS и может быть использован на любом x86 PC, ноутбуке или нетбуке.
+
+Включает в себя: Linux kernel 3.4.6; Cinnamon 1.6; Chromium 22.0.1226; InSync beta 5 клиент для Google Drive; Banshee 2.4: Shotwell 0.12; GIMP 2.8; LibreOffice 3.5 office suite; Wine 1.5; Cheese 3.4 и многое другое.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943689   (446652) от 04.10.2015
+
+KaOS Linux 2015.10 (Arch + Plasma KDE 5) [x86-64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_446652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект KaOS представил октябрьский релиз новой стабильной версии своего Linux-дистрибутива с поддержкой UEFI и разметки GPT. К наиболее существенным изменениям разработчики относят: Ncurses 6.0 stack, OpenCV 3.0.0 stack, Xfsprogs 4.2.0, grub 2.02beta, Networkmanager 1.0.
+
+Дистрибутив KaOS основан на пакетном менеджере Arch Linux — pacman. Он использует в качестве (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E177C337F331DC888D545B0F819374A89537DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409413   (444640) от 17.09.2020
 
 KDE neon User Edition 5.19 LTS(20.04) (сентябрь 2020) [64-bit] 1xDVD
@@ -6,7 +64,7 @@ KDE neon User Edition 5.19 LTS(20.04) (сентябрь 2020) [64-bit] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444640.jpg" />
+  <img src="Z:/picture/008/save_picture_444640.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ ArcoLinux (Budgie, Сinnamon, Deepin, Gnome, Mate, KDE, XFCE) 18.9.5 [x86_x64] 7
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443917.jpg" />
+  <img src="Z:/picture/008/save_picture_443917.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ Sabayon 15.10 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE) [amd6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440085.jpg" />
+  <img src="Z:/picture/008/save_picture_440085.jpg" />
 </div>
 
 
@@ -87,7 +145,7 @@ BlackArch Linux 2019.09.01 [Хакинг, аудит, безопасность] 
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437348.jpg" />
+  <img src="Z:/picture/008/save_picture_437348.jpg" />
 </div>
 
 
@@ -113,7 +171,7 @@ XigmaNAS 12.0.0.4.6766 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433227.jpg" />
+  <img src="Z:/picture/008/save_picture_433227.jpg" />
 </div>
 
 
@@ -141,7 +199,7 @@ CentOS 7.4 (1708) [x86-64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432106.jpg" />
+  <img src="Z:/picture/008/save_picture_432106.jpg" />
 </div>
 
 
@@ -167,7 +225,7 @@ Bugtraq II Black Widow KDE (хакинг и анализ безопасност�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425618.jpg" />
+  <img src="Z:/picture/008/save_picture_425618.jpg" />
 </div>
 
 
@@ -197,7 +255,7 @@ Runtu XFCE 18.04.3 [x64] 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425081.jpg" />
+  <img src="Z:/picture/008/save_picture_425081.jpg" />
 </div>
 
 
@@ -223,7 +281,7 @@ Blender 2.8 [x86, x86-64] (tar.bz2)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422913.jpg" />
+  <img src="Z:/picture/008/save_picture_422913.jpg" />
 </div>
 
 
@@ -249,7 +307,7 @@ BackBox Linux 4.4 (Анализ безопасности, хакинг) [i386, a
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422392.jpg" />
+  <img src="Z:/picture/008/save_picture_422392.jpg" />
 </div>
 
 
@@ -277,7 +335,7 @@ Debian GNU/Linux 10.1.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420832.jpg" />
+  <img src="Z:/picture/008/save_picture_420832.jpg" />
 </div>
 
 
@@ -305,7 +363,7 @@ Debian GNU/Linux 10.6.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420292.jpg" />
+  <img src="Z:/picture/008/save_picture_420292.jpg" />
 </div>
 
 
@@ -331,7 +389,7 @@ Parted Magic 2019.09.03 [i686/amd64] 1xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418132.jpg" />
+  <img src="Z:/picture/008/save_picture_418132.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ Debian Edu - Skolelinux 10.6.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417903.jpg" />
+  <img src="Z:/picture/008/save_picture_417903.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Debian GNU/Linux 10.6.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417741.jpg" />
+  <img src="Z:/picture/008/save_picture_417741.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ KNOPPIX German DELUG edition of Linux Magazine. 8.0.0 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414382.jpg" />
+  <img src="Z:/picture/008/save_picture_414382.jpg" />
 </div>
 
 
@@ -436,7 +494,7 @@ Debian KFreeBSD 7.2.0 [i386, amd64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413776.jpg" />
+  <img src="Z:/picture/008/save_picture_413776.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ OPNSense 20.7-OpenSSL 20.7 [amd64] 1xCD, 3xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409331.jpg" />
+  <img src="Z:/picture/008/save_picture_409331.jpg" />
 </div>
 
 
@@ -494,7 +552,7 @@ Kubuntu 13.10 Saucy Salamander [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409165.jpg" />
+  <img src="Z:/picture/008/save_picture_409165.jpg" />
 </div>
 
 
@@ -520,7 +578,7 @@ Lubuntu 13.10 Saucy Salamander (легкий дистрибутив) [i386, amd6
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404149.jpg" />
+  <img src="Z:/picture/008/save_picture_404149.jpg" />
 </div>
 
 
@@ -548,7 +606,7 @@ Edubuntu 13.10 (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403224.jpg" />
+  <img src="Z:/picture/008/save_picture_403224.jpg" />
 </div>
 
 
@@ -576,7 +634,7 @@ KNOPPIX 8.1 [x32, x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402161.jpg" />
+  <img src="Z:/picture/008/save_picture_402161.jpg" />
 </div>
 
 
@@ -605,7 +663,7 @@ MKVToolNix v6.5.0 ('Isn't she lovely') for Ubuntu 12.04 ('Precise Pangolin')
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401531.jpg" />
+  <img src="Z:/picture/008/save_picture_401531.jpg" />
 </div>
 
 
@@ -631,7 +689,7 @@ FreeNAS 8.3.0 [x86, x64] (2xCD)
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398674.jpg" />
+  <img src="Z:/picture/008/save_picture_398674.jpg" />
 </div>
 
 
@@ -646,62 +704,6 @@ FreeNAS 8.2.0 остался в разделе, а не перенесен в а
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567627   (395719) от 30.10.2012
-
-Santoku (Безопасность, хакинг мобильных устройств) 0.30 alpha [x86] (1xDVD)
-
->>Linux, Unix и другие ОС
->>ОС *Nix (Alpha, Beta, RC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Santoku дистрибутив основанный на Ubuntu и предназначен для анализа безопасности/хакинга мобильных устройств.
-
-В его составе: средства разработки такие как Android SDK Manager, AXMLPrinter2, Fastboot, Heimdall, Heimdall (GUI), SBF Flash; инструменты работы с беспроводными сетями: Chaosreader, dnschef, DSniff, TCPDUMP,  Wireshark, Wireshark (от Root) и многие другие стандартные средства анализа безопасности.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 717113   (391722) от 31.10.2013
-
-Manjaro Linux 0.8.7.2 (Arch + KDE) [i686, x86-64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышел новый релиз -  Manjaro Linux 0.8.7.2 багфикс от 0.8.7 с разными рабочими окружениями, дистрибутива основанного на Arch Linux. Продолжена поддержка игровой платформы Steam; реализована система автоматических уведомлений о наличии системных обновлений. В дистрибутиве поддерживается окружение рабочего стола KDE.
-
-В текущий релиз были включены некоторые новые пакеты, ядро версии Linux 3.11.4. Обновлены проприетарные драйверы для AMD и NVIDIA; Installer переведен на арабский, каталанский, немецкий, греческий, английский, испанский, фарси, индонезийский, итальянский, португальский, румынский, словацкий и турецкий. Также внесены многочисленные изменения в другие пакеты.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F3DF7DCF981A2DE0E92DB14AD4A775900886A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

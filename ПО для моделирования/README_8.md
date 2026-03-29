@@ -1,3 +1,82 @@
+###  Публикация: 1811900   (8321) от 12.08.2025
+
+V-Ray 7.20.00 for 3ds Max 2021-2026 [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8321.jpg" />
+</div>
+
+
+###  Подробнее
+
+V-Ray — мощный инструмент визуализации, нацеленный в первую очередь на фото-реалистичность. Имеет собственные камеры со схожими параметрами как и у настоящих фото-камер. Имеет собственные источники освещения и шейдеры материалов.
+Является одним из основных плагинов для архитектурной визуализации. Под V-ray "заточено" множество готовых 3d моделей и материалов, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D65F60BC6B8DBA9D4FB3012FF32C5ABE34BB364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814359   (6190) от 24.08.2025
+
+Дизайн Интерьера 3D 12.0 Repack (& Portable) by elchupacabra [Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6190.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дизайн Интерьера 3D» - это удобная программа для перепланировки и создания дизайн-проекта квартиры своими руками. Позволяет сэкономить до 30% времени и денег при ремонте: вы будете точно представлять облик всех комнат после ремонта, сможете удачно расставить мебель и технику. Продукт включает более 450 встроенных материалов отделки (различные виды обоев, ламинат, (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10DAFE25209EC9B44004E0D12BFB9BD81284F390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814283   (5273) от 30.08.2025
+
+Room Arranger 10.2.0.732 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B2D7255EEFD0671BCDE0059B7EA3FD3A4FE1C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815396   (5237) от 30.08.2025
 
 AMS Мой Дом 3D 4.0 [Ru]
@@ -6,7 +85,7 @@ AMS Мой Дом 3D 4.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5237.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3947.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3064.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ AMS Дизайн Интерьера 3D 12.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3037.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ ZBrush 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3028.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ AMS Ландшафтный Дизайн 3D 10.0 [Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3026.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ Cinema 4D 2026.0 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2838.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ Chaos Vantage 3.0.1 beta [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1993.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ Agisoft Metashape Pro 2.2.2 Build 21287 Repack (& Portable) by elchupacabra [Mul
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_343.jpg" />
 </div>
 
 

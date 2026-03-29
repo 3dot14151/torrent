@@ -1,3 +1,135 @@
+###  Публикация: 487486   (1035350) от 29.01.2021
+
+Н.М. Сокольникова | Основы Живописи (1998) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основы живописи
+Построена на том, что живопись является искусством цвета. В книге рассматриваются основы науки о цвете, особое внимание уделяется вопросам восприятия цвета.Жанр: Живопись, рисованиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B206167402F5DDBB2B64BFA0B55DBB4C6075DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517737   (1035347) от 29.01.2021
+
+Ю. Батюлева (сост.) | Пропись для написания элементов букв (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035347.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Пропись для написания элементов букв» из серии «Классические прописи» предназначена для детей дошкольного и младшего школьного возраста. Она станет незаменимым помощником вашему ребёнку для развития мелкой моторики руки и отработки элементов букв.Жанр: Рабочая тетрадьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA13CBC62540ABE5191DCCB2056ACD4A35647C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583103   (1035344) от 29.01.2021
+
+Теодорико Батталини | Рисуем акварелью. От азов мастерства к тончайшим нюансам (2007) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный рисунок - искусство тончайших нюансов, переливчатых оттенков, переменчивых состояний. Это техника требует точной работы, почти импровизации, но ее привлекательность именно в свежести и силе впечатления. Активная роль бумаги, просвечивающей сквозь легкий слой краски, живописные размывы и затеки, пластичные и мягкие переходы тонов - главные стилистические (   Читать дальше...   )Жанр: Изобразительное искусство. АрхитектураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFE49A849351A6B6CB94B8D1F9F5D70936C6E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617290   (1035336) от 06.03.2023
+
+Вадим Охотников | В мире исканий (1949) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник рассказов Вадима Охотникова в жанре научной фантастики.
+Для детей среднего школьного возраста. Иллюстрации А.Васина.Жанр: Научная фантастика, повесть, рассказФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032F05610062404151015EAD34A953F354D3E596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517753   (1035318) от 29.01.2021
+
+Ю. Батюлева (сост.) | Пропись для правильного написания прописных букв (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035318.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Пропись для правильного написания прописных букв" из серии "Классические прописи" поможет развить у ребенка умение совершать плавное и неотрывное движение руки во время письма. Кроме того, ваш малыш научится координировать мелкие движения кисти руки и осуществлять зрительный контроль за ними. Пропись представляет собой тетрадь в косую линейку, (   Читать дальше...   )Жанр: Рабочая тетрадьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FEA3C45BBA1158BF4519303E1C7D23C388C994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617331   (1035289) от 06.03.2023
 
 И.В. Ященко, С.А. Шестаков | Геометрия. Универсальный многоуровневый сборник задач. 10-11 классы (2021) [PDF]
@@ -6,7 +138,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035289.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035280.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035224.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035204.jpg" />
 </div>
 
 
@@ -111,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035203.jpg" />
 </div>
 
 
@@ -139,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035196.jpg" />
 </div>
 
 
@@ -165,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035195.jpg" />
 </div>
 
 
@@ -193,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035184.jpg" />
 </div>
 
 
@@ -221,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035162.jpg" />
 </div>
 
 
@@ -247,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035112.jpg" />
 </div>
 
 
@@ -274,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035102.jpg" />
 </div>
 
 
@@ -301,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035099.jpg" />
 </div>
 
 
@@ -327,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035082.jpg" />
 </div>
 
 
@@ -353,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035077.jpg" />
 </div>
 
 
@@ -379,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035065.jpg" />
 </div>
 
 
@@ -406,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035029.jpg" />
 </div>
 
 
@@ -432,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035026.jpg" />
 </div>
 
 
@@ -459,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035025.jpg" />
 </div>
 
 
@@ -485,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035024.jpg" />
 </div>
 
 
@@ -512,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035021.jpg" />
 </div>
 
 
@@ -538,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034967.jpg" />
 </div>
 
 
@@ -549,138 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BC1B005D4A9157E184A9B9E891BD9DFE840C98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444143   (1034945) от 31.01.2021
-
-Алена Бессонова | Ух, какие классные сказки! Сказочные истории [12 книг] (2015) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная российская писательница, сочинительница сказок.
-Алена Бессонова о себе:
-Меня зовут Алёна Бессонова. Всю сознательную жизнь работала в бизнесе. Была генеральным директором достаточно крупной фирмы в большом провинциальном городе. Когда родилась внучка, решила что это теперь самое главное. Сказки начала придумывать для неё. В 2012 году послала сборник сказок (   Читать дальше...   )Жанр: Детская литература/СказкиФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E0ADDA2955ECEE0E9C1A88D354E07B8BF07CAB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444123   (1034940) от 31.01.2021
-
-Кеннет Грэм | Ветер в ивах (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть «Ветер в ивах» была написана шотландским писателем Кеннетом Грэмом в начале XX века и быстро стала известной. Спустя пятьдесят лет после первой публикации произведение, уже ставшее классикой мировой детской литературы, получило международную премию «Полка Льюиса Кэрролла» – она присуждалась книгам, достойным стоять рядом с «Алисой в Стране чудес». За прошедшее (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234CE8254106BCFCA4C635307F9641B18705E6BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444127   (1034932) от 31.01.2021
-
-Эксмо | Приключения Синдбада-морехода (2021) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синдбад-мореход, находчивый и отважный путешественник, пускается в увлекательные плаванья в поисках чудес и опасностей! В далёких странах он встретит великанов и неведомых зверей, пролетит на лапе огромной птицы Рока, найдёт несметные богатства и благодаря своей смекалке и храбрости избежит гибели. В эту книгу вошли все семь историй о невероятных приключениях Синдбада, (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB91D9758F0EA53DF087013FE428BCC87E35BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444125   (1034926) от 31.01.2021
-
-Рудольф Распе | Приключения барона Мюнхгаузена (2021) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто не слышал про знаменитого барона Мюнхгаузена и его фантастические приключения! Чего только не случалось с этим храбрецом и выдумщиком! Довелось ему пролететь на пушечном ядре, с одного раза подстрелить семь куропаток, выбраться из брюха огромной рыбы и даже побывать на Луне! Правда это или ложь – решать читателю. Но сам барон Мюнхгаузен действительно существовал. (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E01C5E5402140B629CBBF6414A9322A2E31AF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444121   (1034920) от 31.01.2021
-
-Эрин Груэлл | Писатели свободы. Как 150 «трудных» подростков и учительница бросили вызов стереотипам (2021) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой учительнице Эрин Груэлл достался трудный класс, на который остальные давно махнули рукой. Проявляя любовь и поддержку, она помогла подросткам рассказать свои истории и побороться за новое будущее.Жанр: Педагогика, Воспитание детей, Истории из жизниПеревод: Ульяна СапцинаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F1C37819474F6E2519267B01E34C0A427BA483
 ```
 
 https://mybot314.ru/tekegram_catalog/

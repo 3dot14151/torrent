@@ -6,7 +6,7 @@ Digital Juice - Motion Design Elements Standart 05: Motion Grab Bag 1 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462222.jpg" />
+  <img src="Z:/picture/008/save_picture_462222.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Digital Juice - Motion Design Elements Standart 02: Animated Frames 1 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459425.jpg" />
+  <img src="Z:/picture/008/save_picture_459425.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Digital Juice - Motion Design Elements Standart 04: Future Tech (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454883.jpg" />
+  <img src="Z:/picture/008/save_picture_454883.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Digital Juice - Motion Design Elements Standart 06: Motion Grab Bag 2 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452588.jpg" />
+  <img src="Z:/picture/008/save_picture_452588.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Digital Juice - Swipes! 24: Clean Waves (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452442.jpg" />
+  <img src="Z:/picture/008/save_picture_452442.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Digital Juice - Motion Design Elements Standart 03: Animated Frames 2 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452440.jpg" />
+  <img src="Z:/picture/008/save_picture_452440.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Digital Juice - Drag & Drop Series 3 [ISO]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450996.jpg" />
+  <img src="Z:/picture/008/save_picture_450996.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Digital Juice - Swipes! 30: Electrify Me (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450031.jpg" />
+  <img src="Z:/picture/008/save_picture_450031.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ Digital Juice - Swipes! 40: Screen Smashers (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449933.jpg" />
+  <img src="Z:/picture/008/save_picture_449933.jpg" />
 </div>
 
 
@@ -260,7 +260,7 @@ Digital Juice - Motion Design Elements Standart 26: Fireworks (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449928.jpg" />
+  <img src="Z:/picture/005/save_picture_449928.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Digital Juice - Ready2Go: Collection 20 (AE) (Files)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449862.jpg" />
+  <img src="Z:/picture/008/save_picture_449862.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Digital Juice - All Kinds Of Crazy [AEP]
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448890.jpg" />
+  <img src="Z:/picture/008/save_picture_448890.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Digital Juice - Swipes! 33: Nothing But Net (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447822.jpg" />
+  <img src="Z:/picture/008/save_picture_447822.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Digital Juice - Swipes! 34: Under Construction (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447735.jpg" />
+  <img src="Z:/picture/008/save_picture_447735.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Digital Juice - Swipes! 36: Money Money Money (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447724.jpg" />
+  <img src="Z:/picture/008/save_picture_447724.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Digital Juice - Swipes! 37: Chromed Themes (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447720.jpg" />
+  <img src="Z:/picture/008/save_picture_447720.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Digital Juice - Editor's Themekit 042: Director's Cut (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447649.jpg" />
+  <img src="Z:/picture/008/save_picture_447649.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Digital Juice - Toxic Templates: Collection 03 Broadcast (AE) (Files)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447632.jpg" />
+  <img src="Z:/picture/008/save_picture_447632.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Digital Juice - Editor's Toolkit Pro Singles 240: Layer Lining (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436243.jpg" />
+  <img src="Z:/picture/008/save_picture_436243.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Digital Juice - Motion Design Elements Standart 13: Line Items 2 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436136.jpg" />
+  <img src="Z:/picture/008/save_picture_436136.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Digital Juice - Motion Design Elements Standart 01: Revealers (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436127.jpg" />
+  <img src="Z:/picture/008/save_picture_436127.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Digital Juice - Motion Design Elements Standart 14: Revealers 2 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436035.jpg" />
+  <img src="Z:/picture/008/save_picture_436035.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Digital Juice - Motion Design Elements Standart 20: Revealers 3 (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436027.jpg" />
+  <img src="Z:/picture/008/save_picture_436027.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Digital Juice - Motion Design Elements Standart 16: Global Intentions 1 (Full IS
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436022.jpg" />
+  <img src="Z:/picture/008/save_picture_436022.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Digital Juice - Motion Design Elements Standart 12: Motion Plaques (Full ISO)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435875.jpg" />
+  <img src="Z:/picture/008/save_picture_435875.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Digital Juice - Canvases Collection 08: Open Spaces (Files)
 >>Digital Juice
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435856.jpg" />
+  <img src="Z:/picture/008/save_picture_435856.jpg" />
 </div>
 
 

@@ -1,3 +1,112 @@
+###  Публикация: 1628961   (241692) от 25.04.2023
+
+Overlay 4.15 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рамка, которая позволяет полупрозрачно отображать изображение или даже PDF перед всем файлом. Приложение позволяет вам с легкостью копировать, отслеживать или сравнивать рисунки, изображения и документы, поскольку вы можете заблокировать рамку и сделать ее без помех при помощи жестов мыши.
+Это прозрачное наложение изображения или документа на экране, по которому (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2023Разработчик: © 2013 - 2022 dragonBTVПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD0D7C087D31EEBBB95B04E831E6E76152CC0DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628962   (241683) от 25.04.2023
+
+Piezo 1.7.13 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
+Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
+Piezo не требует никаких настроек, достаточно его запустить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.04.2023Разработчик: © 2022 Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751A4966B0CAEF071D337D745BD890742A8CB8E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628978   (241642) от 25.04.2023
+
+n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для обеспечения студийного качества записи, редактирования и микширования.
+Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 24.04.2023Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B68A3066933585B18494A6586A9F78630D5628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378609   (241638) от 25.04.2020
+
+GroupsPro 5.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управляйте группами контактов и создавайте списки для массовых рассылок по эл. почте.
+GroupsPro позволяет создавать и упорядочивать группы контактов и создавать списки рассылки. Список рассылки состоит из членов групп или отдельных получателей.Тип издания: macOS SoftwareРелиз состоялся: 24.04.2020Разработчик: Demodit GmbHПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5716053F238AE3D1AA9992AE76604AA86605A59C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111381   (241620) от 05.03.2017
 
 MediaInfo 0.7.93 [Multi/Ru]
@@ -6,7 +115,7 @@ MediaInfo 0.7.93 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241620.jpg" />
+  <img src="Z:/picture/004/save_picture_241620.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ Xliff Editor 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241614.jpg" />
+  <img src="Z:/picture/004/save_picture_241614.jpg" />
 </div>
 
 
@@ -62,7 +171,7 @@ Creative Convert 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241606.jpg" />
+  <img src="Z:/picture/004/save_picture_241606.jpg" />
 </div>
 
 
@@ -88,7 +197,7 @@ Cookie 6.0.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241599.jpg" />
+  <img src="Z:/picture/004/save_picture_241599.jpg" />
 </div>
 
 
@@ -116,7 +225,7 @@ FigrCollage 2 Home Edition v2.5.18[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241574.jpg" />
+  <img src="Z:/picture/004/save_picture_241574.jpg" />
 </div>
 
 
@@ -142,7 +251,7 @@ Rocket Pro 1.7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241566.jpg" />
+  <img src="Z:/picture/004/save_picture_241566.jpg" />
 </div>
 
 
@@ -168,7 +277,7 @@ Super PhotoCut Pro 2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241531.jpg" />
+  <img src="Z:/picture/004/save_picture_241531.jpg" />
 </div>
 
 
@@ -194,7 +303,7 @@ WonderPen 2.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241519.jpg" />
+  <img src="Z:/picture/004/save_picture_241519.jpg" />
 </div>
 
 
@@ -220,7 +329,7 @@ Text Workflow 1.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241513.jpg" />
+  <img src="Z:/picture/004/save_picture_241513.jpg" />
 </div>
 
 
@@ -247,7 +356,7 @@ Nevercenter CameraBag Photo 2022.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241489.jpg" />
+  <img src="Z:/picture/004/save_picture_241489.jpg" />
 </div>
 
 
@@ -274,7 +383,7 @@ QR Factory 2.9.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241483.jpg" />
+  <img src="Z:/picture/004/save_picture_241483.jpg" />
 </div>
 
 
@@ -301,7 +410,7 @@ Omni Toolbox 1.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241481.jpg" />
+  <img src="Z:/picture/004/save_picture_241481.jpg" />
 </div>
 
 
@@ -327,7 +436,7 @@ Adobe After Effects 2022 22.3.0 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241477.jpg" />
+  <img src="Z:/picture/004/save_picture_241477.jpg" />
 </div>
 
 
@@ -354,7 +463,7 @@ Screegle - Clean Screen Sharing 2.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241469.jpg" />
+  <img src="Z:/picture/004/save_picture_241469.jpg" />
 </div>
 
 
@@ -380,7 +489,7 @@ Scrutiny 9 v9.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241451.jpg" />
+  <img src="Z:/picture/004/save_picture_241451.jpg" />
 </div>
 
 
@@ -407,7 +516,7 @@ Omni Recover 3 v3.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241445.jpg" />
+  <img src="Z:/picture/004/save_picture_241445.jpg" />
 </div>
 
 
@@ -434,7 +543,7 @@ Xliff Editor 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241443.jpg" />
+  <img src="Z:/picture/004/save_picture_241443.jpg" />
 </div>
 
 
@@ -462,7 +571,7 @@ KCNcrew Pack 03-15-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241434.jpg" />
+  <img src="Z:/picture/004/save_picture_241434.jpg" />
 </div>
 
 
@@ -490,7 +599,7 @@ AnyMP4 Mac Blu-ray Player 6.3.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241427.jpg" />
+  <img src="Z:/picture/004/save_picture_241427.jpg" />
 </div>
 
 
@@ -516,7 +625,7 @@ Paste 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241414.jpg" />
+  <img src="Z:/picture/004/save_picture_241414.jpg" />
 </div>
 
 
@@ -544,7 +653,7 @@ Photo Image Editor Pixelstyle 3.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241395.jpg" />
+  <img src="Z:/picture/004/save_picture_241395.jpg" />
 </div>
 
 
@@ -571,7 +680,7 @@ Capture One 23 Pro 16.2.1.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241381.jpg" />
+  <img src="Z:/picture/005/save_picture_241381.jpg" />
 </div>
 
 
@@ -582,112 +691,6 @@ Capture One Pro один из самых мощных профессиональ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E996E217D0CEB372CA143DF44D1F5117E0AC4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546772   (241377) от 25.04.2022
-
-Rectangle Pro 2.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rectangle - это приложение для управления окнами на основе Spectacle, написанное на Swift. Перемещайте и изменяйте размер окон в macOS с помощью сочетаний клавиш или областей привязки.Тип издания: macOS SoftwareРелиз состоялся: 24.04.2022Разработчик: © 2022 Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31C2D5047B6421A36E936FDCC24960FA776E6C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385066   (241366) от 23.05.2020
-
-SQLPro Studio 2020.47 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241366.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLPro Studio инструмент управления базами данных Postgres, MySQL, Microsoft Management Studio и Oracle.Тип издания: macOS SoftwareРелиз состоялся: 21.05.2020Разработчик: Hankinsoft Development, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC023A116DB35FC77DEBE40F1B0D48F2F6CD684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385143   (241359) от 23.05.2020
-
-aText 2.36.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241359.jpg" />
-</div>
-
-
-###  Подробнее
-
-AText ускоряет вашу запись, заменяя сокращения на часто используемые фразы, которые вы определяете: например, сделайте аббревиатуру «myname», чтобы вставить свое имя «First Middle Last» в любом приложении.Тип издания: macOS SoftwareРелиз состоялся: 23.05.2020Разработчик: Tran Ky NamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABA66FBA4860CE971D11194073D577B35DDC2B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385067   (241351) от 23.05.2020
-
-URL Manager Pro 5.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241351.jpg" />
-</div>
-
-
-###  Подробнее
-
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.05.2020Разработчик: Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9E8638BE028D1B567EDEE1094E0296D089AAAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

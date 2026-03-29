@@ -1,557 +1,22 @@
-###  Публикация: 604603   (996257) от 18.01.2013
+###  Публикация: 600596   (998430) от 10.01.2013
 
-Quelonio - Vicio Y Virtud (2009) [WavPack|Lossless]<Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dame Placer [02:22]
-02. Juego De Miradas [04:27]
-03. Ave Fenix [05:54]
-04. Vicio Y Virtud [03:38]
-05. V [04:38]
-06. El Grito De La Realidad [04:13]
-07. Por La Espalda [04:04]
-08. Tu Fuego [04:14]
-09. Buscando Una Luz (Pt. II) [04:30]
-10. Aqui Estoy [03:47](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604615   (996256) от 18.01.2013
-
-The Quill - In Triumph (2006) [WavPack|Lossless]<Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep The Circle Whole [03:33]
-02. Yeah [03:37]
-03. Slave & Master [05:02]
-04. Broken Man [03:13]
-05. Man In Mind [04:19]
-06. Mercliess Room [04:39]
-07. Treepass [03:59]
-08. Black [05:06]
-09. No Light On The Dark Side [04:32]
-10. Triumph Is A Sea Of Flame [04:51](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604709   (996255) от 18.01.2013
-
-FerreTT - Year of the Ferret (2012) [MP3|320 kbps] <Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do We Need an Earthquake? (01:02)
-02. My Cock.....Your Funeral (03:16)
-03. Much Too Young (04:11)
-04. Sweet Action (03:23)
-05. Ferrets in Town (03:43)
-06. Cry of the Black Footed Ferret (07:11)
-07. They Eat The Living! (01:31)
-08. Wild Nonstop Nights (05:23)
-09. Twincest (02:33)
-10. FerreTT Beach U.S.A. (03:30)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA8A74B4D26C8373894D57884EAEB751CCEB80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604706   (996254) от 18.01.2013
-
-Deathman - All You Need Is Hate (2013) EP [MP3|320 kbps] <Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:55)
-02. All You Need  Is Hate (03:37)
-03. Nightfall (04:03)
-04. No Escape (03:25)Жанр: MetalПродолжительность: 00:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630904722AF87B6B1E90FB99508487CC45EB6031
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604741   (996252) от 18.01.2013
-
-Poema Arcanus - 4 альбома (1999 - 2009)[MP3|320 кб/с]<Doom/Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Timeline Symmetry (05:58)
-02 - Raven Humankind (07:03)
-03 - The Average Man's Odyssey (09:19)
-04 - Mars Lullaby (05:04)
-05 - By The Cliff (08:12)
-06 - This Once Long Road (05:45)
-07 - Alter (05:33)
-08 - Zoom to the Void (05:39)
-09 - Epilogo (03:58)
-(   Читать дальше...   )Жанр: Doom/Death MetalПродолжительность: 04:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B70D67AF422AC68DA31ADF21398DDC1F190E8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604713   (996248) от 18.01.2013
-
-Seven Nails - Factory Of Dreams (2013) [MP3|320 kbps] <Symphonic Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:25)
-02. Factory Of Dreams (03:55)
-03. Next Page (05:00)
-04. Frozen Blue (05:06)
-05. Pfaraos Call (04:31)
-06. Behind Your Mirror (05:33)
-07. Prisoner Of My Own (06:51)
-08. The Way To The Butterflies (05:24)
-09. Let Me Breathe (04:33)
-10. Phantoms (04:12)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15224A20568F34EEA40B2F53E11B5A0DFEF8E3B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604578   (996246) от 18.01.2013
-
-Holy Grail - Ride The Void (2013) [MP3|192 kbps] <Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archeus (02:15)
-02. Bestia Triumphans (05:48)
-03. Dark Passenger (04:12)
-04. Bleeding Stone (04:20)
-05. Ride The Void (04:30)
-06. Too Decayed To Wait (04:12)
-07. Crosswinds (04:07)
-08. Take It To The Grave (03:49)
-09. Sleep Of Virtue (04:49)
-10. Silence The Scream (05:29)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A6B64B3C038B08A240072FEB4EC0FBDE4D3967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604576   (996245) от 18.01.2013
-
-For All I Am - Skinwalker (2013) [MP3|320 kbps] <Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Too Long I've Let It Haunt Me (03:43)
-02. Make History. (04:03)
-03. Oppressor (03:12)
-04. Living Dead (03:45)
-05. Eye Of The Storm (03:39)
-06. Mind Trap (04:12)
-07. I, Artificial (03:36)
-08. Limbo (04:07)
-09. Forgotten (03:01)
-10. The Strange Daze (04:22)Жанр: MetalПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F217D45B5E93B34363A3C5C6705F572FD92DC852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604589   (996244) от 18.01.2013
-
-Sons of Aeon - Sons of Aeon (2013) [MP3|192 kbps] <Melodic Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faceless (07:45)
-02. Cold Waves (03:53)
-03. Burden (05:33)
-04. Enemy of the Souls (04:27)
-05. The Centre (03:56)
-06. Havoc & Catharsis (03:55)
-07. Weakness (06:40)
-08. Seeds of Destruction (03:29)
-09. Wolf Eyes (04:00)
-10. Black Sheep Process (05:49)Жанр: Melodic Death MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCA2205E1EAA42A42CDCCACA218E8CEC76FA1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604712   (996243) от 18.01.2013
-
-Фэрхейвен / Fairhaven (2012) WEB-DLRip [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывшая футбольная звезда школы и спортсмен колледжа Джон возвращается туда, где прошла его юность, в небольшую рыбацкую деревню Феахейвен (Fairhaven) на побережье штата Массачусетс. Джону тридцать с небольшим, и этот герой фильма ощущает некоторую неудовлетворенность жизнью, которая лишь усиливается после просмотра телеинтервью с его героем футбола Томом Брэйди.
-О своем прозрении Джон рассказывает другу детства Сэму, который рано женился, рано стал отцом, рано развелся и никогда не покидал родных мест.
-Сэм, в свою очередь, чувствует себя вполне довольным жизнью. Герой картины «Fairhaven» заботится о своей дочери, а в тайне все еще тоскует по своей бывшей жене. Сообща Джон и Сэм ожидают возвращения Дэйва, третьего члена их некогда неукротимого трио.Жанр: Драма, КомедияРежиссер: Том О’БрайэнАктеры: Сара Полсон, Рич Соммер, Крис Мессина, Алекси Гилмор, Натали Голд, Марианн Планкетт, Том О’Брайэн, Джорджия Лиман, Филлис Кэй, Пол О’БрайэнПеревод: ОтсутствуетПродолжительность: 01:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0376B0A93ADD9E46F4E878143B2FD420191650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604708   (996242) от 18.01.2013
-
-Fen - Dustwalker (2012) [MP3|320 kbps] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Consequence (07:56)
-02. Hands Of Dust (11:38)
-03. Spectre (10:21)
-04. Reflections (01:49)
-05. Wolf Sun (07:10)
-06. The Black Sound (10:08)
-07. Walking The Crowpath (13:16)
-08. Epilogue (Bonus Track) (04:22)Жанр: Black MetalПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4BC166FAA4F97FB00F26B75E9B3ACCC22B9000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604814   (996240) от 18.01.2013
-
-Vaduz - Better Days (2012) [MP3|320 кб/с]<Hard Rock / Arena Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996240.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Workin' Band (2:57)
-2.  I Saw the Light Again (3:57)
-3.  Better Days (4:11)
-4.  Thy Kingdom Come (3:22)
-5.  Hey Yeah (3:29)
-6.  Enemy (4:03)
-7.  Faces in the Storm (3:47)
-8.  Lowdown Blues (3:53)
-9.  On My Way (4:47)Жанр: Hard Rock / Arena RockПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC605D0DCE36603BF09E43CFC304213FA978C8CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604702   (996237) от 18.01.2013
-
-Vandroya - One (2012) [MP3|320 kbps] <Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Becomes One (01:50)
-02. The Last Free Land (05:17)
-03. No Oblivion For Eternity (06:00)
-04. Within Shadows (05:29)
-05. Anthem (For The Sun) (05:57)
-06. Why Should We Say Goodbye (05:23)
-07. Change The Tide (05:17)
-08. When Heaven Decides To call (05:34)
-09. This World Of Yours (04:06)
-10. Solar Night (07:39)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7848EC239D4ACB096873EEA0D1BB1A1FBC46B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605041   (996236) от 18.01.2013
-
-Paolo Meneguzzi - Best Of - Sei Amore (2011) [MP3|320 кб/с]<pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sei Amore (3:41)
-02. Love (3:36)
-03. Musica (3:45)
-04. Imprevedibile (3:34)
-05. In Nome Dell'amore (3:31)
-06. Lei E (3:20)
-07. Verofalso (3:16)
-08. Non Capiva Che L'amavo (3:29)
-09. Quel Ti Amo Maledetto (3:59)
-10. Baciami (3:12)(   Читать дальше...   )Жанр: popПродолжительность: 01:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0173AFB4FEF73242AF4C786AE3B04385123C4FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604974   (996235) от 18.01.2013
-
-Сагалассос Забытый город / Sagalassos The forgotten city (2003) TVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одним из главных городов римской провинции Писидия, находившейся на территории современной Турции, был Сагалассос. Расцвет города длился более трех столетий, но после эпидемии чумы и сильного землетрясения жители покинули город, память о нем стерлась. Лишь в XIX веке случайно была найдена надпись с упоминанием Сагалассоса, начались раскопки забытого города.Жанр: ДокументальныйРежиссер: Филипп АксельПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184956BB31B58D8020A17CD8A9AC62CE6726CBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604586   (996231) от 18.01.2013
-
-VoxCor - Глава III: Мистерия (2013) [MP3|320 kbps] <Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:34)
-02. Воля К Жизни (03:44)
-03. Ангелы (04:44)
-04. Далеко... (03:58)
-05. За Гранью Смерти (04:53)
-06. Мистерия (instrumental) (02:54)
-07. Боль (05:33)
-08. Мир Снов (04:43)
-09. Призрак (05:24)
-10. Ветер (04:48)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC02CAFD8A1B462F0C49AD0451434056681A06C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602927   (996230) от 18.01.2013
-
-Gilrs Wallpaper Collection (2/2013) [Wallpapers 16+]
+Animal Wallpapers (06.01.13) [Wallpapers]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998430.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельный сборник обоев для рабочего стола от FedExe ®Разрешение файлов: 1600x1200 - 5100x2700
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C1BA4E6CB80A765989E81AB96330D7BF38E6940
+magnet:?xt=urn:btih:746C9C9AFFDEF6EA3BFE14CAC631A726FFE13D39
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,30 +24,245 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604512   (996229) от 18.01.2013
+###  Публикация: 601081   (998429) от 10.01.2013
 
-Dreams After Death - 2 альбома (2011-2012) Дискография [MP3|320 кб/с]<Atmospheric Funeral Doom Metal>
+[Wallpapers] A selection of beautiful girls Pack 20
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 3000х2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EEB6BCCA4B2A934869A554BE6BC11EB22D65DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601126   (998428) от 10.01.2013
+
+Gilrs Wallpaper Collection (09.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998428.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82CFAD425A3C922AB3C109A74FF051AE920991E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601078   (998425) от 10.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 19
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1024х768 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D717253E6BF1DAE3C2200CD25D226802D1568E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601127   (998421) от 10.01.2013
+
+Gilrs Wallpaper (09.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC42E567956F442D725154448BBED061E038996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601071   (998420) от 10.01.2013
+
+Фотография - Фотограф Ebby May
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Ebby MayРазрешение файлов: ~  500x750 ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53392224E11F46C8D07CAB46F284F1D882F4E6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601069   (998418) от 10.01.2013
+
+Фотография - Фотограф John Tisbury
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф John TisburyРазрешение файлов: ~  500x750 ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1C703EE4ED49B336AA0A9328C77913CD322003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601080   (998417) от 10.01.2013
+
+[Wallpapers] Car wallpapers (09.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998417.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Car wallpapers (09.01.13)
+Название: Car wallpapers (09.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CE370CA57E797536ABF29A512FA1F9296EE63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601068   (998415) от 10.01.2013
+
+Фотография - Фотограф Franz Sauer
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Franz SauerРазрешение файлов: ~  500x750 ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBDCAE09EAD618CD783FF9D26B77C1BB4994429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600775   (998414) от 10.01.2013
+
+Takara - Perception Of Reality (2002) [MP3|320 kbps] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Anger (9:00)
-02. Worry (8:46)
-03. Sadness (7:27)
-04. Peace (9:10)
-05. Love (13:11)
-06. Nothingness (13:31)Жанр: Atmospheric Funeral Doom MetalПродолжительность: 01:58:43
+01. Miles Away (04:09)
+02. Shadows In The Night (04:31)
+03. Tomorrow (05:04)
+04. Without You (05:11)
+05. Ready To Promise (04:51)
+06. L.I.E.S. (03:30)
+07. Dream Of It All (03:32)
+08. Believe (03:57)
+09. Tell Me (04:05)Жанр: Hard RockПродолжительность: 00:38:52
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:75AC82F53B7B36C969B9A243D157CDFF1BDC0631
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,34 +270,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604703   (996225) от 18.01.2013
+###  Публикация: 601074   (998411) от 10.01.2013
 
-Exist - Безысходность (2013) [MP3|320 kbps] <Alternative>
+Фотография - Фотограф Thomas Doering
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Thomas DoeringРазрешение файлов: ~  500x750 ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1B440BB9CC48A30BD15DDA4C2CDE0370D11B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598945   (998408) от 10.01.2013
+
+UNDERFAMILY CMD: [MG] МногогранностЬ - Razruшая STEREOтипы - PRESS RELEASE (Author's distribution) (2012) [MP3|320 кб/с]<Urban, Hip-Hop, Rap, R'n'b, Reggaeton, Urban Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998408.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Люди-Тени (04:39)
-02. Никто (03:18)
-03. Лживые Слова (04:22)
-04. Пусть (03:57)
-05. Не Молчи (feat. Cryst) (05:13)
-06. Жги Мосты (04:13)
-07. Amen (00:57)
-08. Пляшем (04:31)
-09. Параллельные Линии (05:11)
-10. На Дне (02:56)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:42:45
+01. "7 лет в тени" (SKIT) - 00:49
+02. "7 лет в тени" (Main) - 03:01
+03. "Вне контроля" - 02:43
+04. "Episode Romantics" - 03:05
+05. "Мираж" - 03:25
+06. "Kindle Fire" - 03:01
+07. "Есть только ты" - 04:11
+08. "Кто избавит нас" - 03:25
+09. "Razruшая STEREOтипы" - 03:13
+10. "На расстоянии" - 02:55(   Читать дальше...   )Жанр: Urban, Hip-Hop, Rap, R'n'b, Reggaeton, Urban RockПродолжительность: 01:01:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F906C19D920DD8BC01CBC5E76F3B117E0BC9A0DF
+magnet:?xt=urn:btih:38CD5899388B878BEE049BA8A6389DADB8057F15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,34 +331,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604575   (996224) от 18.01.2013
+###  Публикация: 601230   (998407) от 10.01.2013
 
-Encircle - Into the Dreamstate (2013) [MP3|320 kbps] <Progressive metal>
+[Wallpapers] Cityscapes (10.01.13)
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Instances (05:11)
-02. When The Colors Bleed Away (03:22)
-03. Into The Dreamstate (04:24)
-04. You Were The Tempest (01:32)
-05. As The Horror Unfolds (02:36)
-06. An Awful Image Of Calm Power (04:11)
-07. Confessor (03:39)
-08. An Ending Without A Story (05:04)
-09. Retribution (03:20)
-10. The Serpent And The Static Between Thoughts (02:01)(   Читать дальше...   )Жанр: Progressive metalПродолжительность: 00:49:16
+[Wallpapers] Cityscapes (10.01.13)
+Название: Cityscapes (10.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B87696481D5F5B922EDB82FF3EBA87713A790344
+magnet:?xt=urn:btih:8FF30E73A4511BC7C0C85ABBFBC9985919FD1B15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,25 +361,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604181   (996223) от 18.01.2013
+###  Публикация: 601248   (998405) от 10.01.2013
 
-Пятнадцатилетняя / Quinceanera (2006) DVDRip
+[Wallpapers] New 2013 Wallpaper Pack 25
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главная героиня - Магдалена - приближается к своему 15-летию. По мексиканским традициям это возраст совершеннолетия. Праздник омрачается известием, что Магдалена беременна! Реакция родителей вынуждает ее переехать жить к дяде Томасу и двоюродному брату Карлосу, также отвергнутому родней. В доме дяди Магдалена сталкивается с иным образом жизни.Жанр: ДрамаРежиссер: Ричард Глэтцер, Уош ВэстмолэндАктеры: Хесус Кастанос, Арасели Гузман-Рико, Эмили Риос, Д. Круз, Алисия Сикстос, Гектор Кеведо, Герман Кампос Карлос Линарес, Джонни Чавез, Кармен Агирр, Маргарита Луго, Джордже Ортиз, Вероника Сикстос, Джесси Гарсиа, Валентин Мартинез Медина, Джордж Ортиз, Чало Гонсалес, Арис МендозаПеревод: Двуголосый закадровыйПродолжительность: 01:30:42
+[Wallpapers] New 2013 Wallpaper Pack 25
+Название: New 2013 Wallpaper Pack 25
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 3600х2223
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B288476009B51B0B6A39F2F53473109312385A9A
+magnet:?xt=urn:btih:90CBB7B7C9C6BAC088C89949C790CC79BF7359D0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,34 +391,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604622   (996222) от 18.01.2013
+###  Публикация: 601228   (998404) от 10.01.2013
 
-VA-Попсовая Тусовка Зимы (2013) [MP3|256 кб/с]<Pop>
+[Wallpapers] New 2013 Nature Wallpaper Pack 7
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Maximus & Michael Retouch - Город устал
- 002. DJ Nejtrino & Nikita Malinin - С Новым Годом (С.Н.Г) (Radio Mix)
- 003. Андрей Бандера - Метелица
- 004. ДиО.Фильмы - Медляк (DJ Dan Vovan Radio Mix)
- 005. Варвара и Бурановские Бабушки - А не пойду замуж я
- 006. Айшат Айсаева - Оп-Оп-Оп (DJ Nariman Mix)
- 007. Анастасия Стоцкая - Преступник
- 008. Дрей Сонгз - Часовые пояса
- 009. Dan Balan - Не любя
- 010. DJ Slon feat. Katya - Эгоистка (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:16:30
+[Wallpapers] New 2013 Nature Wallpaper Pack 7
+Название: New 2013 Nature Wallpaper Pack 7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D978D2FDFC7957575209C47208DBEC530F7B66AD
+magnet:?xt=urn:btih:66AA75E81C037EBE950874D82E3B1033469AA74F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -721,34 +421,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604681   (996217) от 18.01.2013
+###  Публикация: 600599   (998402) от 10.01.2013
 
-Everything Everything - Arc (2013) [FLAC|Lossless]<Indie-Rock, Indie-Pop, Experimental>
+HQ Wallpapers for a desktop (06.01.13) [Wallpapers]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cough Cough - 3:42
-02. Kemosabe - 3:44
-03. Torso Of The Week - 4:34
-04. Duet - 3:42
-05. Choice Mountain - 3:24
-06. Feet For Hands - 3:56
-07. Undrowned - 3:01
-08. _Arc_ (Album Version) - 1:29
-09. Armourland - 3:41
-10. The House Is Dust - 3:29(   Читать дальше...   )Жанр: Indie-Rock, Indie-Pop, ExperimentalПродолжительность: 00:48:29
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:38B943B2A002EEFCE2D772DB304C23B892025547
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -756,25 +447,62 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604754   (996216) от 18.01.2013
+###  Публикация: 600897   (998401) от 10.01.2013
 
-Журнал | Тайны ХХ века [Украина] №2 (январь 2013) [PDF]
+VA - Русский хитовый взрыв №3 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family - Без ума
+02. Бурановские Бабушки - Party
+03. Indira - Я буду верить
+04. Тамерлан И Алена Омаргалиева - Лондон
+05. DAS feat. Лера Туманова - Чувствовать Пульс
+06. Ирина Дубцова - Что тебе я сделала
+07. Евгения Поликарпова - Неважно
+08. Нюша - Queen Of The Night
+09. Глюкоза И Макс Барских - Адреналин
+10. D.Lemma - Лирика(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405C5277A5B946DFA2A558FC7738A8B49DA16F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600951   (998400) от 10.01.2013
+
+Ален Роб-Грийе | Дом свиданий [1997] [RTF, FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
+Роб-Грийе нашел свой стиль уже в ранних романах, к которым относится и «Дом свиданий», опубликованный в 1961 году. Здесь пространство текста задается при помощи приемов, уже известных русскому читателю хотя бы по «Проекту революции в Нью-Йорке». Автор предлагает читателю загадку, ребус, который впоследствии оказывается вовсе и не ребусом, так как не предполагает разгадки.
+
+Герои «Дома свиданий» вынуждены вести постоянную охоту за деньгами, да и просто друг за другом. Одного из героев, по всей видимости, убивают, если только это не вымысел хозяйки увеселительного заведения, сон убийцы или бред убитого…Формат: RTF, FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E37426C0B241DE5192C5DDA70AFEE5C82963D81
+magnet:?xt=urn:btih:A9027ADA8FB101E27CA583DC6C7337D091D5E246
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -782,33 +510,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 603698   (996215) от 18.01.2013
+###  Публикация: 601250   (998399) от 10.01.2013
 
-Paul Ramirez Band - Sex With A Dragon (2012) [MP3|320 кб/с]<Blues Rock>
+[Wallpapers] A selection of beautiful girls Pack 22
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.  Right Where I Belong (3:50)
-2.  For Loving You (3:45)
-3.  Down Slow (4:27)
-4.  Gypsy Woman (3:37)
-5.  Sex With A Dragon (4:11)
-6.  Your Time (3:44)
-7.  You Are The Light (5:18)
-8.  Be Free (5:03)
-9.  See That My Grave Is Kept Clean (2:36)Жанр: Blues RockПродолжительность: 00:36:31
+Разрешение файлов: 1920x1080 - 4000х2200
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17D2B94A49F4E3B5805226C970CCA1C8B95D19E7
+magnet:?xt=urn:btih:39A2074DF6D4554321FD280092A1D5AC37FAA29D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -816,34 +536,201 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605032   (996213) от 18.01.2013
+###  Публикация: 601249   (998398) от 10.01.2013
 
-Night Works - Urban Heat Island (2013) [MP3|320 кб/с]<Indie Pop, Electronic>
+[Wallpapers] From the world of fiction (10.01.13)
 
->>Pop
->>Зарубежная поп-музыка
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998398.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Boys Born in Confident Times
-02. Modern European
-03. Lifeline
-04. Nathaniel
-05. Armajaro
-06. I Tried So Hard
-07. The Eveningtime
-08. Share the Weather
-09. Riches (Vocal Dub)
-10. Long Forgotten Boy(   Читать дальше...   )Жанр: Indie Pop, ElectronicПродолжительность: 00:47:54
+[Wallpapers] From the world of fiction (10.01.13)
+Название: From the world of fiction (10.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C9C9CF47E504B8CA0B8634A67D55FF5425A0360
+magnet:?xt=urn:btih:195FC22D5A0936C55D40B2C659A8ED0662F603AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600954   (998397) от 10.01.2013
+
+Алла Драбкина | Жена по заказу [2003] [RTF, FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прозябающей в нищете писательнице Евгении Горчаковой наконец улыбнулась удача – ей предложили работу гувернантки в семье богатого книгоиздателя. Она не только присматривает за бесенком «поколения „пепси“», но и становится полноправным членом семьи. И поэтому, когда жену издателя убивают, Евгения берет бразды расследования в свои руки. Чисто женская интуиция и писательский нюх подсказывают ей, что корни преступления таятся в загадочном прошлом…Формат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0EC019276CC6722F5CB7802A5B4E2ABD378202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601525   (998396) от 10.01.2013
+
+GeoGebra 4.9.90 RC [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998396.jpg" />
+</div>
+
+
+###  Подробнее
+
+GeoGebra — свободно распространяемая (GPL) динамическая геометрическая среда, которая даёт возможность создавать чертежи в планиметрии, в частности, для построений с помощью циркуля и линейки.
+Кроме того, у программы богатые возможности работы с функциями (построение графиков, вычисление корней, экстремумов, интегралов и т. д.) за счёт команд встроенного языка (который, кстати, позволяет управлять и геометрическими построениями)
+В отличии от других программ для динамического манипулирования геометрическими обьектами, идея GeoGebra заключается в интерактивном сочетании геометрического, алгебраического и числового представления. Вы можете создавать конструкции с точками, векторами, линиями, коническими сечениями, а также математическими функциями, а затем динамически изменять их.
+Кроме того, GeoGebra позволяет напрямую вводить уравнения и манипулировать координатами. Таким образом, можно легко составлять графики функций, работать со слайдерами для подбора необходимых параметров, искать символические производные, (   Читать дальше...   )Название программы: GeoGebraЯзык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601124   (998395) от 10.01.2013
+
+Sexy Girls Pack Wallpapers (09.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:618FEC378AE162329F39FE78C0B2932C4C34A5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601125   (998393) от 10.01.2013
+
+Sexy Girls Wallpapers (09.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18B8F6A969D040C07351C0447C45C1B3EC4C4CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600679   (998392) от 10.01.2013
+
+Fiona Apple - The Idler Wheel is Wiser ... (2011) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Adult Alternative Pop/Rock>
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Single Night (3:31)
+02. Daredevil (3:27)
+03. Valentine (3:31)
+04. Jonathan (5:02)
+05. Left Alone (4:45)
+06. Werewolf (3:11)
+07. Periphery (4:56)
+08. Regret (5:15)
+09. Anything We Want (4:38)
+10. Hot Knife (4:02)Жанр: Adult Alternative Pop/RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D447BAD711869E15F09E201509CCE44699F02594
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601227   (998391) от 10.01.2013
+
+[Wallpapers] A selection of game wallpaper (10.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998391.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] A selection of game wallpaper (10.01.13)
+Название: A selection of game wallpaper (10.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E0041507C3C5BEE81C25F23ED751BF34091AD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

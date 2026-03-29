@@ -1,3 +1,108 @@
+###  Публикация: 309715   (840491) от 16.03.2011
+
+ABBYY FineReader 8.0  Professional Edition (Portable) [русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840491.jpg" />
+</div>
+
+
+###  Подробнее
+
+ABBYY FineReader 8.0 Professional Edition - профессиональная версия от мирового лидера в области систем распознавания. С её помощью можно быстро и точно переводить бумажные документы, PDF-файлы и цифровые фотографии документов в редактируемые форматы с возможностью поиска по тексту. Программа сохраняет внешний вид даже сложно оформленных документов, даёт возможность контролировать процесс распознавания. ABBYY FineReader 8.0 Professional Edition незаменим для тех, кто часто распознаёт документы. ABBYY FineReader 8.0 Professional Edition незаменим для тех, кто часто распознает документы. Эта версия будет полезна как дома, так и в офисе небольшой компании.
+Данная версия не требует установки и может работать с флешки.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 878838   (840260) от 16.03.2015
+
+Grim Dawn (2013) [En] (0.3.3.3b24) Unofficial 3DM [Early Access]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grim Dawn - мрачный рассвет нового века, где железо заменило золото в качестве валюты и обыкновенная соль приобрела такую цену, что ее перестали использовать в еде. Небольшие разрозненные анклавы оставшихся в живых существуют по всему миру, скрываясь в убежищах. Наблюдая, как враждующие захватчики грызут друг другу глотки, люди начали изучать слабые и сильные стороны (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Crate EntertainmentЖанр: Action/RPG (Hack and slash)Язык озвучки: Отсутствует, музыкальное сопровождениеЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7DEE24575AF9D2B8D4F0FE206ECBBD7EC48217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112958   (839537) от 10.03.2017
+
+Исследователи компании IBM создали первый образец "атомарного" жесткого диска
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_839537.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недрах телефона, лежащего в заднем кармане ваших брюк, заключено в миллионы раз больше информации, нежели могло вместиться в устройство хранения, размером с холодильник, более десятилетия-двух назад. За прошедшее время технологии хранения данных и устройства на их основе постепенно уменьшались в размерах, увеличивая одновременно с этим информационную емкость. И (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500839   (839479) от 07.10.2021
+
+Нобелевская премия по физике: за моделирование климата и хаотических систем. Главные научные новости сегодняшнего дня
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_839479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нобелевская премия по физике присуждена Сюукуро Манаде (США) и Клаусу Хассельману (Германия) «за физическое моделирование климата Земли, количественную оценку изменчивости и надежное предсказание глобального потепления» и Джорджо Париси (Италия) «за исследование взаимодействия беспорядка и флуктуаций в физических системах — от атомарного до планетарного масштаба». (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 24093   (839181) от 05.04.2016
 
 Владимир Высоцкий в записях Шемякина (1996)
@@ -6,7 +111,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_839181.jpg" />
+  <img src="Z:/picture/005/save_picture_839181.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839175.jpg" />
+  <img src="Z:/picture/008/save_picture_839175.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839171.jpg" />
+  <img src="Z:/picture/008/save_picture_839171.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ PAYDAY 2 (2014) [Ru/En] (1.50.2/upd97.2/dlc) Repack Mizantrop1337 [GOTY Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839169.jpg" />
+  <img src="Z:/picture/008/save_picture_839169.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839166.jpg" />
+  <img src="Z:/picture/008/save_picture_839166.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839164.jpg" />
+  <img src="Z:/picture/008/save_picture_839164.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ Depeche Mode - Spirit (2 CD Deluxe Edition) (2017) Columbia [FLAC|Lossless|track
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839159.jpg" />
+  <img src="Z:/picture/008/save_picture_839159.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839158.jpg" />
+  <img src="Z:/picture/008/save_picture_839158.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ NetDrive 2.6.13 Build 938 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839147.jpg" />
+  <img src="Z:/picture/008/save_picture_839147.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ Maxon CINEMA 4D Studio R18.041 Portable by soyv4 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839144.jpg" />
+  <img src="Z:/picture/008/save_picture_839144.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4993.1002 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838863.jpg" />
+  <img src="Z:/picture/008/save_picture_838863.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838862.jpg" />
+  <img src="Z:/picture/008/save_picture_838862.jpg" />
 </div>
 
 
@@ -322,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838853.jpg" />
+  <img src="Z:/picture/008/save_picture_838853.jpg" />
 </div>
 
 
@@ -349,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838474.jpg" />
+  <img src="Z:/picture/008/save_picture_838474.jpg" />
 </div>
 
 
@@ -375,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_837836.jpg" />
+  <img src="Z:/picture/005/save_picture_837836.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_837762.jpg" />
+  <img src="Z:/picture/005/save_picture_837762.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ Vivaldi 1.0.435.40 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837609.jpg" />
+  <img src="Z:/picture/008/save_picture_837609.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ Opera 12.17 & 11.64 Final RePack by Mellomann [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837520.jpg" />
+  <img src="Z:/picture/008/save_picture_837520.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837505.jpg" />
+  <img src="Z:/picture/008/save_picture_837505.jpg" />
 </div>
 
 
@@ -510,7 +615,7 @@ Homefront: The Revolution (2016) [Ru/En] (1.078.1055/dlc) Repack R.G. Механ
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837493.jpg" />
+  <img src="Z:/picture/008/save_picture_837493.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837492.jpg" />
+  <img src="Z:/picture/008/save_picture_837492.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ Adobe After Effects CC 2017.1 14.1.0.57 RePack by KpoJIuK (09.03.2017) [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837490.jpg" />
+  <img src="Z:/picture/008/save_picture_837490.jpg" />
 </div>
 
 
@@ -573,110 +678,6 @@ After Effects CC — это ведущая в отрасли программа 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CAD2793737C76D29761D4AB69A1A6065E25D81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113266   (837487) от 11.03.2017
-
-Кредо убийцы / Assassin's Creed (2016) WEB-DL [H.264/1080p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря революционным технологиям, позволяющим вызвать в памяти воспоминания прежних поколений, Каллум Линч проживает приключения своего предка Агилара в Испании 15-го века. Каллум узнает, что является потомком членов загадочного тайного общества ассасинов. Накопив невероятные знания и навыки, он вступает в противостояние с могущественной и жестокой организацией (   Читать дальше...   )Производство: Великобритания, Франция, Гонконг, США, Тайвань, Мальта, Канада / Regency Enterprises, Ubisoft, New Regency Pictures, Ubisoft Motion Pictures DMC Film Kennedy/Marshall Company, The RatPac Entertainment, Alpha Pictures, CatchPlay, Monarchy Enterprises S.a.r.l., Helicopter Film, Services Latina PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джастин КурзельАктеры: Майкл Фассбендер, Марион Котийяр, Джереми Айронс, Брендан Глисон, Шарлотта Рэмплинг, Майкл Кеннет Уильямс, Дени Меноше, Ариана Лабед, Халид Абдалла, Эсси Дэвис ...Перевод: Дублированный (Line)Субтитры: Русские (Full), Английские (Forced, Full)Продолжительность: 01:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F38B8ADB87DDF65D77DCED9CCA557F2A3B9677C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309281   (837324) от 18.03.2011
-
-Интервью Лукашенко для Вашингтон Пост (2011) SATRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Показано по российскому национальному телевидению 05 марта 2011 г. После чего сайт телеканала "Мир" на территории США был заблокирован.Жанр: Телепередача, ДокументальныйПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC2B4B4E564EC773A34DDA1B3A35F63FC334F8D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607509   (837252) от 03.05.2013
-
-Последователи / The Following (Сезон 1 полный (15)) (2013) WEB-DLRip (Кубик В Кубе)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный антигерой - Джо Кэрол, бывший профессор колледжа, который преподавал работы Эдгара По и параллельно убивал молодых женщин во славу романтизма, пока не был пойман. С того момента он провел множество часов за компьютером в тюремной библиотеке, создавая социальную сеть из убийц-подражателей, которые исполняют любую его команду. Сериал начинается с того момента, (   Читать дальше...   )Производство: США, FoxЖанр: Триллер, драма, криминалРежиссер: Маркос СигаАктеры: Кевин Бейкон, Джеймс Пьюрфой, Шон Эшмор, Кайл Кэтлетт, Натали Зиа, Энни Пэррис, Нико Торторелла и др.Перевод: Профессиональный двухголосый закадровый - Кубик В КубеПродолжительность: ~ 00:45:00 мин серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379809   (837228) от 30.04.2020
-
-F-Secure Freedome VPN 2.34.6377 RePack by elchupacabra [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837228.jpg" />
-</div>
-
-
-###  Подробнее
-
-F-Secure Freedome VPN - надежное и эффективное решение для поддержания вашей анонимности в Интернете. Защитите ваш компьютер от хакеров, вредоносных приложений и веб-сайтов, используйте шифрование для защиты Wi-Fi соединения и устанавливайте виртуальное местоположение для анонимной онлайн-активности с помощью F-Secure Freedome. Позвольте Freedome подключить вас к (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96D38655C758F7C2F35010B782A30785A1D2A39
 ```
 
 https://mybot314.ru/tekegram_catalog/

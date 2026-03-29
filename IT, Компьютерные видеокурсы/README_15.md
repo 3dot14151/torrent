@@ -1,3 +1,138 @@
+###  Публикация: 1459252   (1023297) от 01.04.2021
+
+Udemy, Mark Lassoff и др. | jQuery for Application Development: Fundamentals  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023297.jpg" />
+</div>
+
+
+###  Подробнее
+
+jQuery остается самой популярной библиотекой разработки на стороне клиента в Интернете. Библиотека jQuery, разработанная для выполнения тяжелой работы в JavaScript, используется на миллионах сайтов.
+Хотя это не самая привлекательная или новейшая библиотека JavaScript, jQuery остается самой распространенной. Это элемент, который необходимо знать, если вы собираетесь (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5EFF338C3660A14B0533347BDB9604E89B0EEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459358   (1023295) от 01.04.2021
+
+Udemy, Miloslav Stofa | GPU computing in Vulkan. (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023295.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе показан простейший из возможных способов создания проекта с использованием библиотеки Vulkan для запуска вычислительного Шейдера: от Makefile до программы, выполняющей очень быстрые параллельные вычисления в графическом процессоре.
+Vulkan - это кросс-платформенная библиотека трехмерной графики и вычислений, преемница OpenGL. Впервые он был выпущен в 2016 (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 03:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C890A5E4D72BB22976CE2391327B229B4DA5D546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459291   (1023294) от 01.04.2021
+
+Udemy, Emile Ackbarali | An Introduction to the DNP3 SCADA Communications Protocol   (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы участвуете или будете участвовать в сборе данных и управлении оборудованием, разбросанным по большим географическим территориям, вам необходимо иметь практические знания протокола DNP3.
+Если вы работаете в области передачи и распределения электроэнергии, управления водоснабжением и сточными водами, нефтегазовой отрасли или систем безопасности, то практическое (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 02:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E71572E478319E4236D84CF66CB8C7911CC47C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459251   (1023292) от 01.04.2021
+
+Udemy, Coding Gears | Train Your Brain | IP Addresses and Subnetting  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разделение на подсети и обработка двоично-десятичного преобразования могут запутать. Однако встречаются люди, которые делают это с минимальными усилиями. Если вы являетесь разработчиком программного обеспечения / DevOps / облачным архитектором, программистом, инженером по обеспечению качества, сетевым инженером или готовитесь к CCNA, которому нужен этот волшебный (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 03:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3194306DA2D7B6246D0CEE9861AF573FBFFDE6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459390   (1023291) от 01.04.2021
+
+Lets Build That App | Maps UIKit SwiftUI (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс «Карты с UIKit и SwiftUI», где мы узнаем все о построении карт. В этой первой паре разделов я расскажу вам, как быстро разработать стандартные представления карты UIKit, используя хорошие старые UIViewControllers.
+
+Как только вы наберете скорость, мы перейдем к созданию всех приложений с использованием совершенно новой SwiftUI в реактивном (   Читать дальше...   )Производство: Lets Build That AppЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 12:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F94963241A7AE7EF39DBAF1BEC1694B869D3D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459372   (1023276) от 01.04.2021
 
 Udemy, Yaroslav Shmarov | Ruby on Rails Crash Course: Authentication and Authorization  (2021) PCRec [En / En Sub]
@@ -6,7 +141,7 @@ Udemy, Yaroslav Shmarov | Ruby on Rails Crash Course: Authentication and Authori
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023276.jpg" />
 </div>
 
 
@@ -34,7 +169,7 @@ Udemy, Filip Jerga | React, Angular, Node In-Depth Guide: Beginner to Pro (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023273.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ Udemy, Laurence Svekis | JavaScript DOM Projects InterActive Dynamic WebPages  (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023272.jpg" />
 </div>
 
 
@@ -89,7 +224,7 @@ Udemy, Abhilash Nelson | Computer Vision: Face Recognition Quick Starter in Pyth
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023264.jpg" />
 </div>
 
 
@@ -117,7 +252,7 @@ Udemy, Manisha Satone | 8051 Architecture, Assembly and 'C' Programming  (2021) 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023258.jpg" />
 </div>
 
 
@@ -146,7 +281,7 @@ Udemy, Rob Percival и др. | Create a Store Inventory GUI Application with C++
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023256.jpg" />
 </div>
 
 
@@ -174,7 +309,7 @@ Udemy, Manisha Satone | PIC Microcontroller: Architecture and Embedded C Program
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023245.jpg" />
 </div>
 
 
@@ -200,7 +335,7 @@ Udemy, Brad Traversy | React Front To Back (2021) PCRec [En / En Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023244.jpg" />
 </div>
 
 
@@ -226,7 +361,7 @@ Udemy, NewTechWays - Anurag Yadav | Developer To Architect: Mastering Software A
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023242.jpg" />
 </div>
 
 
@@ -254,7 +389,7 @@ Udemy, Yaroslav Shmarov | Ruby on Rails 6: Learn 25+ gems and build a Startup MV
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023240.jpg" />
 </div>
 
 
@@ -283,7 +418,7 @@ Udemy, Spring Batch | The Ultimate Spring Batch Developer Course (2020) PCRec [E
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023231.jpg" />
 </div>
 
 
@@ -309,7 +444,7 @@ Udemy, Ted LeRoy | Ubuntu Linux Fundamentals Linux Server Administration Basics 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023222.jpg" />
 </div>
 
 
@@ -337,7 +472,7 @@ Udemy, Antonio Papa | Vue 3, Nuxt.js and Laravel: A Practical Guide (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023213.jpg" />
 </div>
 
 
@@ -366,7 +501,7 @@ Udemy, Emilio Aguero | Windows Server 2019 Admin: Active Directory, DNS, GPO, DH
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023206.jpg" />
 </div>
 
 
@@ -393,7 +528,7 @@ Udemy, Adrian Więch | Practical Java Unit Testing with JUnit 5 (2021) PCRec [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023194.jpg" />
 </div>
 
 
@@ -422,7 +557,7 @@ Udemy, Mike X Cohen | Master statistics & machine learning: intuition, math, cod
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023070.jpg" />
 </div>
 
 
@@ -448,7 +583,7 @@ JavaScript.Ninja, Илья Климов | Мастер-класс: Unit-тест
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023032.jpg" />
 </div>
 
 
@@ -474,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023029.jpg" />
 </div>
 
 
@@ -503,7 +638,7 @@ Udemy, Исмаил Усеинов | Супер JavaScript (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023022.jpg" />
 </div>
 
 
@@ -531,7 +666,7 @@ Udemy, Alex Marshal | Golang для начинающих. Подробные у�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023018.jpg" />
 </div>
 
 
@@ -557,7 +692,7 @@ Coursera, Steven Waslander и др. | Self-Driving Cars Specialization (2021) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022957.jpg" />
 </div>
 
 
@@ -570,141 +705,6 @@ Coursera, Steven Waslander и др. | Self-Driving Cars Specialization (2021) PC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20D3A5580C174E25B79DC92243CCEBDBE79CA9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460064   (1022932) от 03.04.2021
-
-Udemy, Dean Armada | Python for Network Engineers - Data Center Use Cases (2021) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в серию Python для сетевых инженеров.
-В этом курсе основное внимание будет уделено автоматизации сетей центров обработки данных с использованием Python.
-Подход этого курса состоит в том, чтобы изучить сетевые технологии центра обработки данных, а затем понять, как мы применяем автоматизацию и программируемость с использованием высокопроизводительных (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 15:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AD935D92A4A13AFBE657F81A3A198F6B6B5109
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460068   (1022907) от 03.04.2021
-
-Udemy, Vin Norman | Android App Development Bootcamp 2021 - Build a portfolio!  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Android Development Bootcamp - это совершенно новый, современный курс, обеспечивающий идеальное введение в реальные концепции и навыки Android, необходимые для успешного Android-разработчика в 2021 году. Независимо от того, являетесь ли вы полным новичком или переходите с другого языка или платформы, этот курс перейдет от настройки и установки Android Studio к созданию (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 20:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D56A57E9F78292CA3492BC8B185E2FBA715EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460058   (1022905) от 03.04.2021
-
-Udemy, Ziyad Yehia | Bash Mastery: The Complete Guide to Bash Shell Scripting (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здравствуйте и добро пожаловать на курс Bash Mastery Course, окончательный курс по написанию сценариев оболочки bash, который позволит вам самостоятельно писать и автоматизировать свои собственные высококачественные сценарии оболочки bash в кратчайшие сроки!
-Вы изо всех сил пытаетесь продвинуться в своей ИТ-карьере из-за отсутствия опыта в написании сценариев bash? (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 11:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D8BC67ED7C408DA9A7F46180B3636DB6096C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460061   (1022895) от 03.04.2021
-
-Udemy, Andrea Bizzotto | Flutter & Firebase: Build a Complete App for iOS & Android  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите узнать, как создавать собственные мобильные приложения с помощью Flutter?
-Тогда вы попали в нужное место.
-Flutter - это мобильная платформа от Google для создания красивых и быстрых нативных приложений. Flutter очень продуктивен и предлагает богатый набор виджетов, которые упрощают создание приложений. После того, как вы испытаете горячую перезагрузку и все (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 20:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56CBB8490BEFF795588865036DA497CF3EEF9204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460055   (1022893) от 03.04.2021
-
-Coursera, Nicky Bull и др. | Excel Skills for Business Specialization  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта специализация предназначена для всех, кто сегодня стремится развить один из самых важных и фундаментальных цифровых навыков. Программное обеспечение для работы с электронными таблицами остается одним из самых распространенных программных продуктов, используемых на рабочих местах по всему миру. Научиться уверенно работать с этим программным обеспечением означает (   Читать дальше...   )Производство: CourseraЖанр: MS OfficeЯзык озвучки: АнглийскийПродолжительность: 16:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0BC6D5583A5246918DA41ECB3F695D82D6F24CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

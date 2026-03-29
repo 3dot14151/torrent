@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788675.jpg" />
+  <img src="Z:/picture/008/save_picture_788675.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SpamSieve 2.29.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788674.jpg" />
+  <img src="Z:/picture/008/save_picture_788674.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Side Liner - Life Calculator (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788671.jpg" />
+  <img src="Z:/picture/008/save_picture_788671.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788667.jpg" />
+  <img src="Z:/picture/008/save_picture_788667.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788666.jpg" />
+  <img src="Z:/picture/008/save_picture_788666.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788661.jpg" />
+  <img src="Z:/picture/008/save_picture_788661.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788659.jpg" />
+  <img src="Z:/picture/008/save_picture_788659.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788656.jpg" />
+  <img src="Z:/picture/008/save_picture_788656.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ VirusKiller Antivirus (ранее Endurance Antivirus) 4.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788651.jpg" />
+  <img src="Z:/picture/008/save_picture_788651.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Terra Firma: Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788648.jpg" />
+  <img src="Z:/picture/008/save_picture_788648.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Slimjet 17.0.8.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788643.jpg" />
+  <img src="Z:/picture/008/save_picture_788643.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Hands Off! 3.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788640.jpg" />
+  <img src="Z:/picture/008/save_picture_788640.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Pale Moon 27.7.2 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788638.jpg" />
+  <img src="Z:/picture/008/save_picture_788638.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Insofta 3D Text Commander 5.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788633.jpg" />
+  <img src="Z:/picture/008/save_picture_788633.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ BurnAware Professional 11.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788630.jpg" />
+  <img src="Z:/picture/008/save_picture_788630.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ RapidWeaver 8 8.1 Final Candidate 6 (build 20560b) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788623.jpg" />
+  <img src="Z:/picture/008/save_picture_788623.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Chaos Control: GTD organizer | To-Do List 1.4.7 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788622.jpg" />
+  <img src="Z:/picture/008/save_picture_788622.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Feeder 3 v3.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788619.jpg" />
+  <img src="Z:/picture/008/save_picture_788619.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Cookie 5 v5.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788618.jpg" />
+  <img src="Z:/picture/008/save_picture_788618.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ VoodooPad 5 v5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788612.jpg" />
+  <img src="Z:/picture/008/save_picture_788612.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Athentech Perfectly Clear + WorkBench 3.5.6.1145 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788610.jpg" />
+  <img src="Z:/picture/008/save_picture_788610.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788606.jpg" />
+  <img src="Z:/picture/008/save_picture_788606.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788595.jpg" />
+  <img src="Z:/picture/008/save_picture_788595.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Memory Cleaner - Freeup space 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788584.jpg" />
+  <img src="Z:/picture/008/save_picture_788584.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Mozilla Firefox Quantum 64.0.2 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788582.jpg" />
+  <img src="Z:/picture/008/save_picture_788582.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ FreeFileSync 10.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788580.jpg" />
+  <img src="Z:/picture/008/save_picture_788580.jpg" />
 </div>
 
 

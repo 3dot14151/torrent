@@ -1,3 +1,119 @@
+###  Публикация: 1139127   (661194) от 01.06.2017
+
+Tape Five - Soiree Deluxe (2017) [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Step into My Time Machine
+02. Hush Hush Magazine
+03. Love Gun
+04. Get Down Luna Park(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E8BBC9473B4F2CA3DE71976468929C7255C675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902367   (660886) от 28.05.2015
+
+Melody Gardot - Currency Of Man [Deluxe Edition - The Artist's Cut] (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Misunderstand
+02. Don't Talk
+03. It Gonna Come
+04. Bad News(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17490CA737B6ADC5AEADD364669ABDAA3137ADE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225380   (660819) от 15.05.2018
+
+Eric Seva - Body And Blues (2017) Les Z'arts de garonne [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monsieur Slide [04:23]
+02. Miniscropique Blues [04:26]
+03. No Monopoly On Hurt [05:45]
+04. Body And Blues [04:44](   Читать дальше...   )Жанр: Contemporary Jazz, Crossover JazzПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE8E2BF54584D2A7C5A9542DC267CFA99B5D68A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225383   (660817) от 15.05.2018
+
+Lonnie Liston Smith - Loveland (1978) 2016, Sony Music [FLAC|Lossless|image + .cue] <Jazz Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunburst [04:11]
+02. Journey into Love [05:11]
+03. Floating Through Space [04:36]
+04. Bright Moments [06:45](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3A7C8BA435076038F044895DBD607E9BBF51EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225362   (660748) от 15.05.2018
 
 Swingrowers - Outsidein (2018) [FLAC|Lossless|image + .cue] <Jazz, Electro Swing>
@@ -6,7 +122,7 @@ Swingrowers - Outsidein (2018) [FLAC|Lossless|image + .cue] <Jazz, Electro Swing
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660748.jpg" />
+  <img src="Z:/picture/008/save_picture_660748.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bobby Hutcherson - Live At Montreux (2012) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660364.jpg" />
+  <img src="Z:/picture/008/save_picture_660364.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Junior Mance Trio - Happy Time (1962) 1999, Original Jazz Classics [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660331.jpg" />
+  <img src="Z:/picture/008/save_picture_660331.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Billie Holiday - Cheek To Cheek (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660282.jpg" />
+  <img src="Z:/picture/008/save_picture_660282.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Tom Schuman - Designated Planets (2013) Jazzbridge Music [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660277.jpg" />
+  <img src="Z:/picture/008/save_picture_660277.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bill Evans - Autumn Leaves (1969) /2015, Studio Songs Japan/ [FLAC|Lossless]<Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660226.jpg" />
+  <img src="Z:/picture/008/save_picture_660226.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Lee Morgan - Expoobident (1960) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659847.jpg" />
+  <img src="Z:/picture/008/save_picture_659847.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Steve Khan - Arrows (1979) 2017, Sony Music [FLAC|Lossless|image + .cue] <Jazz F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659844.jpg" />
+  <img src="Z:/picture/008/save_picture_659844.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Frank Avitabile - Bemsha Swing (2002) Dreyfus Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659381.jpg" />
+  <img src="Z:/picture/008/save_picture_659381.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Carla Bley - Looking For America (2003) ECM Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659374.jpg" />
+  <img src="Z:/picture/008/save_picture_659374.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Rebecca Martin - People Behave Like Ballads (2004) MaxJazz [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659368.jpg" />
+  <img src="Z:/picture/008/save_picture_659368.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Nat Adderley - Work Song (2008) [FLAC|Lossless]<Jazz, Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659366.jpg" />
+  <img src="Z:/picture/008/save_picture_659366.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ The Bill Perkins Big Band - Our Man Woody (1999) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_659348.jpg" />
+  <img src="Z:/picture/005/save_picture_659348.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Bill Tole And His Orchestra - On The Move (1990) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_659277.jpg" />
+  <img src="Z:/picture/005/save_picture_659277.jpg" />
 </div>
 
 
@@ -424,7 +540,7 @@ The Junior Mance Quintet - Here 'Tis: Play The Music Of Dizzy Gillespie (1992) S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659251.jpg" />
+  <img src="Z:/picture/008/save_picture_659251.jpg" />
 </div>
 
 
@@ -453,7 +569,7 @@ Weather Report - I Sing The Body Electric (2014) [FLAC|Lossless]<Jazz, Jazz Fusi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659225.jpg" />
+  <img src="Z:/picture/008/save_picture_659225.jpg" />
 </div>
 
 
@@ -482,7 +598,7 @@ David Sanborn - Time and The River (2015) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659222.jpg" />
+  <img src="Z:/picture/008/save_picture_659222.jpg" />
 </div>
 
 
@@ -511,7 +627,7 @@ Bill Stewart - Think Before You Think (1998) [FLAC|Lossless]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_659125.jpg" />
+  <img src="Z:/picture/005/save_picture_659125.jpg" />
 </div>
 
 
@@ -546,7 +662,7 @@ Jessy J - My One And Only One (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658967.jpg" />
+  <img src="Z:/picture/008/save_picture_658967.jpg" />
 </div>
 
 
@@ -575,7 +691,7 @@ Billie Holiday - Music For Torching (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658961.jpg" />
+  <img src="Z:/picture/008/save_picture_658961.jpg" />
 </div>
 
 
@@ -604,7 +720,7 @@ Takao Uematsu Quartet & Quintet - Debut (1970) 2013, Three Blind Mice [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658831.jpg" />
+  <img src="Z:/picture/008/save_picture_658831.jpg" />
 </div>
 
 
@@ -633,7 +749,7 @@ Frank Lowe - Black Beings (2008) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658173.jpg" />
+  <img src="Z:/picture/008/save_picture_658173.jpg" />
 </div>
 
 
@@ -646,122 +762,6 @@ Frank Lowe - Black Beings (2008) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2916DD1EF1B88D77805FC3D1E560B44976F4CBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225962   (658046) от 18.05.2018
-
-Takao Uematsu - Straight Ahead (1977) 2010, Art Union [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Fire [07:50]
-02. Mysterious Jump [08:32]
-03. Fancy Free [02:34]
-04. Afro Blue [05:17](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B426FCD83321F01C8A9C75124BF1160A247AE2B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903380   (657986) от 31.05.2015
-
-Joyce Elaine Yuille - Welcome to My World (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Follow the Sun
-02. Come with Me
-03. Too Soon You're Old
-04. Late I Rise(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76D64F52819FAD1D6E887A37FB99BA5F5F9D696B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903520   (657861) от 31.05.2015
-
-V.A. - Cafe Del Mar - Jazz 2 (2014) [FLAC|Lossless]<Lounge, Jazzy, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Middleton - Return To Atlantis
-02. Jakatta - The Other World
-03. Jonny Trunk - Zeus
-04. Vono Box - Teddy Acapulco(   Читать дальше...   )Жанр: Lounge, Jazzy, Easy ListeningПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34E71A91894085433A435AA2D1347FB43D28BE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226149   (657139) от 19.05.2018
-
-Jack Teagarden - 1941 - 1943 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Eyes [03:21]
-02. Prelude In C Sharp Minor [03:22]
-03. Chicks Is Wonderful [03:22]
-04. Blues To The Lonely [03:02](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4201272EAB563EE9C2943E5F05529C30BCEABAFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

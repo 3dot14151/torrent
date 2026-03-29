@@ -1,3 +1,169 @@
+###  Публикация: 410529   (341028) от 15.11.2011
+
+Mike Oldfield - Incantations​ [1978 (переиздание 2011) г., Progressive Rock, New Age, Progressive Pop, DVD5]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_341028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Rock, New Age, Progressive PopФормат: DVD VideoПродолжительность: 01:33:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580966   (340940) от 26.11.2012
+
+Sandra Valterović Siso lažljiva (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340940.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3054A63E3502D4BA992A3BD3224C6F59CB22F524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580473   (340462) от 26.11.2012
+
+Pretty Mesha - World Star Honeys (Uncensored) (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip hop, RnBПродолжительность: 00:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24F685A8DFA485310EB47834D31E74D6208877D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580695   (340453) от 26.11.2012
+
+Suzi Quatro (vol.1) (2012) VHSRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can The Can - Top Of The Pops '73
+02. 48 Crash - Disco '73
+03. Daytona Demon - Disco '74
+04. All Shook Up - Happy Days '77(   Читать дальше...   )Жанр: Музыка, Glam rockПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:387BF82BB32027BA1A4BFC98EF2BA9C255FF55CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580696   (340347) от 26.11.2012
+
+Suzi Quatro (vol.2) (2012) TVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakdown - RockPop '79
+02. Don't Change My Luck - Kenny Everett Show '79
+03. Evie - RockPop '79
+04. He's A Sports PA - BBC TV Editors tape '79(   Читать дальше...   )Жанр: Музыка, Glam RockПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F751150B49AAD01429555010F9C98EA695308F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 726191   (340303) от 24.11.2013
+
+СупердискотЭка / Супердискотека 90-х от Радио Рекорд (Санкт-Петербург) (23.11.2013)  SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340303.jpg" />
+</div>
+
+
+###  Подробнее
+
+СупердискотЭка 90-х возвращает в детство, когда мы обменивались на переменке вкладышами, вырывали странички с замечаниями из дневника, спешили домой рубиться в Сегу и Денди, а по вечерам всей семьей смотрели Санта-Барбару.
+Гости СупердискотЭки 90-х смогут поставить челку, поиграть в классики и бутылочку, зайти в гастроном и заняться выжиганием на уроке труда.01. Klubbheads - Here We Go
+02. Klubbheads - Hiphopping
+03. Лицей - Осень
+04. Татьяна Буланова - Колыбельная(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587EACCCB0D16A5FB4ABEA6851ED20CF068249BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 580474   (340212) от 26.11.2012
 
 Leanna Decker - Killer (2011) [H.264/720p] WEBRip
@@ -6,7 +172,7 @@ Leanna Decker - Killer (2011) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340212.jpg" />
+  <img src="Z:/picture/008/save_picture_340212.jpg" />
 </div>
 
 
@@ -32,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340172.jpg" />
+  <img src="Z:/picture/008/save_picture_340172.jpg" />
 </div>
 
 
@@ -62,7 +228,7 @@ The Rolling Stones: Charlie Is My Darling (1965/2012) [1080p] Blu-ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_340047.jpg" />
+  <img src="Z:/picture/005/save_picture_340047.jpg" />
 </div>
 
 
@@ -97,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339895.jpg" />
+  <img src="Z:/picture/008/save_picture_339895.jpg" />
 </div>
 
 
@@ -132,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339756.jpg" />
+  <img src="Z:/picture/005/save_picture_339756.jpg" />
 </div>
 
 
@@ -158,7 +324,7 @@ Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) BDRip [H.26
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339623.jpg" />
+  <img src="Z:/picture/005/save_picture_339623.jpg" />
 </div>
 
 
@@ -187,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338417.jpg" />
+  <img src="Z:/picture/008/save_picture_338417.jpg" />
 </div>
 
 
@@ -216,7 +382,7 @@ Dash Berlin ft. Kate Walsh - When You Were Around (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338054.jpg" />
+  <img src="Z:/picture/008/save_picture_338054.jpg" />
 </div>
 
 
@@ -242,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337974.jpg" />
+  <img src="Z:/picture/008/save_picture_337974.jpg" />
 </div>
 
 
@@ -268,7 +434,7 @@ DJ Sub - Resident Evil VS Silent Hill (Dubstep video Mix) (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337927.jpg" />
+  <img src="Z:/picture/008/save_picture_337927.jpg" />
 </div>
 
 
@@ -294,7 +460,7 @@ DVJ Bazuka - Breakin (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337699.jpg" />
+  <img src="Z:/picture/008/save_picture_337699.jpg" />
 </div>
 
 
@@ -320,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337568.jpg" />
+  <img src="Z:/picture/008/save_picture_337568.jpg" />
 </div>
 
 
@@ -347,7 +513,7 @@ Eric Clapton: Planes, Trains and Eric (2014) BDRemux [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336903.jpg" />
+  <img src="Z:/picture/008/save_picture_336903.jpg" />
 </div>
 
 
@@ -376,7 +542,7 @@ VA - Осенний марафон № 203 / Видеоклипы (Дискот�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336896.jpg" />
+  <img src="Z:/picture/008/save_picture_336896.jpg" />
 </div>
 
 
@@ -405,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_336838.jpg" />
+  <img src="Z:/picture/005/save_picture_336838.jpg" />
 </div>
 
 
@@ -432,7 +598,7 @@ Band Du Lac - A Concert by the Lake (2005) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335632.jpg" />
+  <img src="Z:/picture/008/save_picture_335632.jpg" />
 </div>
 
 
@@ -461,7 +627,7 @@ Korn - Can You Hear Me, Finally Free (2020) WEBRip [H.264/1080p-LQ] (2 клип�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335342.jpg" />
+  <img src="Z:/picture/008/save_picture_335342.jpg" />
 </div>
 
 
@@ -488,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335287.jpg" />
+  <img src="Z:/picture/008/save_picture_335287.jpg" />
 </div>
 
 
@@ -516,7 +682,7 @@ Jeff Lynne's ELO - Live at Glastonbury 2016 (2016) HDTV [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335245.jpg" />
+  <img src="Z:/picture/008/save_picture_335245.jpg" />
 </div>
 
 
@@ -545,7 +711,7 @@ Kylie Minogue: Kiss Me Once - Live At The SSE Hydro, Glasgow (2014) UHDTVRip [H.
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335218.jpg" />
+  <img src="Z:/picture/008/save_picture_335218.jpg" />
 </div>
 
 
@@ -559,170 +725,6 @@ Kylie Minogue: Kiss Me Once - Live At The SSE Hydro, Glasgow (2014) UHDTVRip [H.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D056BC4D21190D0530F714C74A4AED28FE83AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331035   (334852) от 13.10.2019
-
-Квартирник НТВ у Маргулиса. Группа A’Studio (12.10.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334852.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса — поп-группа A’Studio. Музыканты вспомнили, как играли на разогреве у самого Элтона Джона, рассказали истории из непрекращающейся гастрольной жизни, исполнили со зрителями свои песни, а также не забыли про свой главный хит — композицию «Улетаю».
-Участники A’Studio рассказали, с чего начался их творческий путь, какими были их самые необычные (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531D8DCF40F8562EF45D182A59F2A3B9E215C7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 412046   (334501) от 18.11.2011
-
-Сурганова и Оркестр / День Рождения в клубе Космонавт (13.11.2011)  WebRip <Rock>
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Увидимся скоро
- 02.Хвала
- 03.SanctumSancturum
- 04.Португальская(   Читать дальше...   )Жанр: RockПродолжительность: 02:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64BD365A4B1757BEF0EE9F2F8FAD3182AB4E6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258050   (334346) от 31.10.2018
-
-Квартирник на НТВ у Маргулиса. Денис Мажуков (10.27.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334346.jpg" />
-</div>
-
-
-###  Подробнее
-
-На легендарном «Квартирнике» побывал Денис Мажуков, который подарил зрителям незабываемый концерт с зажигательными ритмами. Музыкант рассказал, как началось его увлечение рок-н-роллом и когда состоялся его дебют на телевидении. Евгений Маргулис узнал у звездного гостя, как ему удалось сделать выбор в жизни между спортом и музыкой. Денис вспомнил, что травма ноги (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:56:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3A9D77B76412A22F8FFFC36DE93B6B1A5D91F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 410771   (334220) от 18.11.2011
-
-София Ротару - Концерт в Государственном Кремлёвском Дворце (2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимица миллионов, обладательница необыкновенного голоса, народная артистка СССР - София Ротару - после длительного перерыва вновь выйдет на большую сцену.01. Червона рута
-02. Меланколие
-03. Иоане
-04. Кажут все мне(   Читать дальше...   )Жанр: Концерт, PopПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA513E8A9090538AA400C5B8733E0EDB2652ED5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955568   (333786) от 11.11.2015
-
-Bon Jovi - In Concert BBC Radio 2 (2013) HDTVRip [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живое выступление на канале BBC Radio 2 в январе 2013Жанр: МузыкальныйАктеры: Bon JoviПеревод: ОтсутствуетПродолжительность: 00:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770E39A1483A71B4593D44710B249A30DF01DB7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 412540   (332701) от 19.11.2011
-
-Старомодная комедия (1978) DVDRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332701.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной пьесе А.Арбузова в постановке Московского академического театра имени Вл.Маяковского.
-Трогательная и эксцентричная кассирша цирка вечно нарушает чинный распорядок санатория. Главврач устал уже делать ей предупреждения, но постепенно он обнаруживает, что испытывает к недисциплинированной пациентке чувство, вовсе не похожее на раздражение. Так начинается (   Читать дальше...   )Производство: 1978Жанр: мелодрама, спектакльРежиссер: Андрей Гончаров, Алина КазьминаАктеры: Лидия Сухаревская, Борис ТенинПродолжительность: 00:47:13 + 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D09EAA9FCAE4723CF82890742084280E3268910
 ```
 
 https://mybot314.ru/tekegram_catalog/

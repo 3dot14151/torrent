@@ -1,3 +1,133 @@
+###  Публикация: 1368725   (904545) от 22.03.2020
+
+Elcomsoft Wireless Security Auditor 7.12.538 Professional Edition [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elcomsoft Wireless Security Auditor - новая программа, эффективно использующая вычислительные мощности современных видеокарт для восстановления и аудита паролей в беспроводных сетях со скоростью, недостижимой обычными средствами. При использовании этой технологии наиболее ресурсоёмкие части программы выполняются на мощных суперскалярных процессорах, использующихся (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5BA3FB8B2F1D67CF13FA5278F851CD81C3EDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494386   (888609) от 07.09.2021
+
+Panda Dome 21.00.00 [Multi/Ru]
+
+>>Безопасность
+>>Антивирусы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Panda Free Antivirus – бесплатный «облачный» антивирус Panda Dome с проактивными технологиями. Защита компьютера с максимальной производительностью. Эффективная веб-защита, антифишинг и блокировка вредоносных загрузок.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EB54DAA0EF50424203BFB51F5CE17E64DAE0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371689   (888070) от 01.04.2020
+
+Password Depot 14.0.5 [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Password Depot - эффективный инструмент, управления всеми Вашими паролями. Вы больше никогда не забудете пароль. Password Depot Professional защищает Ваши пароли от внешнего несанкционированного доступа и при этом она очень удобна в использовании. Особенности программы: создание почти нерасшифровываемых паролей, шифрование данных, автоматизированный вход в систему. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85503245177D80CCE0DA4971468D81A9D771FAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371717   (887929) от 01.04.2020
+
+Norton AntiVirus 22.20.2.57 [Ru]
+
+>>Безопасность
+>>Антивирусы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Norton AntiVirus - быстрый антивирус, использующий запатентованную многоуровневую защиту, которая позволяет надежно защищать от вредоносных программ и онлайн-угроз. Антивирус поможет вам сохранить в безопасности компьютер и важные данные даже от скрытых угроз. Работа защиты в фоновом режиме  предотвращает кражу личных данных, блокирует мошеннические веб-сайты и информирует (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D061C468DECDC8A65175178E34EDD7524871C6BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371720   (887920) от 01.04.2020
+
+Norton 360 22.20.2.57 [Ru]
+
+>>Безопасность
+>>Комплексные системы защиты
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Norton 360 - комплексное решение "все-в-одном". Эффективная и быстрая защита от вредоносных программ с помощью мощного антивируса и проактивной технологии SONAR 4. Надежная защита от сетевых угроз и атак хакеров с двусторонним фаерволом и контролем программ, веб-защита от всех видов Интернет-угроз: фишинга, онлайн-мошенничества, вредоносных загрузок, кражи (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:446F77B9B83B6033EF25D625E27F1B9A4600F794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496152   (874206) от 16.09.2021
 
 Dr.Web Security Space 12.0.4.8300 [Multi/Ru]
@@ -6,7 +136,7 @@ Dr.Web Security Space 12.0.4.8300 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874206.jpg" />
+  <img src="Z:/picture/005/save_picture_874206.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ Norton Security 22.21.8.62 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872461.jpg" />
+  <img src="Z:/picture/008/save_picture_872461.jpg" />
 </div>
 
 
@@ -61,7 +191,7 @@ Ashampoo AntiVirus 2016 1.3.0 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867326.jpg" />
+  <img src="Z:/picture/008/save_picture_867326.jpg" />
 </div>
 
 
@@ -87,7 +217,7 @@ Avast Business Security 17.2.2517 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851391.jpg" />
+  <img src="Z:/picture/008/save_picture_851391.jpg" />
 </div>
 
 
@@ -114,7 +244,7 @@ Comodo Uninstaller 2.0.0.3 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822205.jpg" />
+  <img src="Z:/picture/008/save_picture_822205.jpg" />
 </div>
 
 
@@ -140,7 +270,7 @@ ESET NOD32 Smart Security Premium 15.0.16.0 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818909.jpg" />
+  <img src="Z:/picture/008/save_picture_818909.jpg" />
 </div>
 
 
@@ -167,7 +297,7 @@ Avira Antivirus Pro 2018 15.0.34.17 [Ru/En]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818512.jpg" />
+  <img src="Z:/picture/008/save_picture_818512.jpg" />
 </div>
 
 
@@ -193,7 +323,7 @@ Microsoft Forefront Threat Management Gateway 2010 [Eng] [Оригинальны
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806457.jpg" />
+  <img src="Z:/picture/008/save_picture_806457.jpg" />
 </div>
 
 
@@ -219,7 +349,7 @@ Ashampoo Privacy Protector 1.1.3.107 RePack by вовава [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796136.jpg" />
+  <img src="Z:/picture/008/save_picture_796136.jpg" />
 </div>
 
 
@@ -245,7 +375,7 @@ IObit Protected Folder Pro 1.3 [Multi/Ru] (акция Comss)
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789606.jpg" />
+  <img src="Z:/picture/008/save_picture_789606.jpg" />
 </div>
 
 
@@ -273,7 +403,7 @@ SUPERAntiSpyware Professional 6.0.1258 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759373.jpg" />
+  <img src="Z:/picture/008/save_picture_759373.jpg" />
 </div>
 
 
@@ -299,7 +429,7 @@ Hekasoft PassKeeper 0.23 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751494.jpg" />
+  <img src="Z:/picture/008/save_picture_751494.jpg" />
 </div>
 
 
@@ -326,7 +456,7 @@ Auslogics Anti-Malware 1.21.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737760.jpg" />
+  <img src="Z:/picture/008/save_picture_737760.jpg" />
 </div>
 
 
@@ -352,7 +482,7 @@ Kaspersky 21.5.11.384 Standard (Technical Release) [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737213.jpg" />
+  <img src="Z:/picture/008/save_picture_737213.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ Zemana AntiMalware Premium 3.2.15 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736540.jpg" />
+  <img src="Z:/picture/008/save_picture_736540.jpg" />
 </div>
 
 
@@ -404,7 +534,7 @@ Microsoft Forefront Endpoint Protection 2010 4.10.209.0 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651621.jpg" />
+  <img src="Z:/picture/008/save_picture_651621.jpg" />
 </div>
 
 
@@ -430,7 +560,7 @@ Microsoft System Center 2012 R2 Endpoint Protection Service Pack 1 (SP1) 4.10.20
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651597.jpg" />
+  <img src="Z:/picture/008/save_picture_651597.jpg" />
 </div>
 
 
@@ -458,7 +588,7 @@ ZoneAlarm Free Firewall 2019 15.4.260.17960 [En]
 >>Firewalls
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636782.jpg" />
+  <img src="Z:/picture/008/save_picture_636782.jpg" />
 </div>
 
 
@@ -484,7 +614,7 @@ Spybot - Search & Destroy 2.6.46.0 Portable by PortableApps [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627008.jpg" />
+  <img src="Z:/picture/008/save_picture_627008.jpg" />
 </div>
 
 
@@ -510,7 +640,7 @@ Comodo Cloud Antivirus 1.12.421630.537 [Multi/Ru]
 >>Антивирусы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610713.jpg" />
+  <img src="Z:/picture/008/save_picture_610713.jpg" />
 </div>
 
 
@@ -538,7 +668,7 @@ Junkware Removal Tool 8.1.4 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593925.jpg" />
+  <img src="Z:/picture/008/save_picture_593925.jpg" />
 </div>
 
 
@@ -549,136 +679,6 @@ Junkware Removal Tool 8.1.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB80609B8C19E863E254F0801FFEABBD7F14E092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233560   (592898) от 30.06.2018
-
-Kaspersky Secure Connectiоn 19.0.0.1088 [Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Общественные сети Wi-Fi могут быть недостаточно защищены, например, если сеть Wi-Fi использует уязвимый протокол шифрования или слабый пароль. Когда вы совершаете покупки в интернете через незащищенные сети Wi-Fi, ваши пароли и другие конфиденциальные данные передаются в открытом текстовом виде. Злоумышленники могут перехватить ваши конфиденциальные данные, например, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1D1481EEA371D786A5CBE69DE1141C3D512160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922369   (569609) от 28.07.2015
-
-WinPatrol PLUS 33.6.2015.18 [Ru/En]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569609.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinPatrol отслеживает и уничтожает в операционной системе различные шпионские модули и вредоносные программы типа Adware и Spyware, находит и обезвреживает некоторые типы вирусов-Троянов, саморазмножающиеся вирусы и программы, представляющие угрозу для конфиденциальности компьютерной информации. WinPatrol следит за изменениями, происходящими в браузере и не допускает (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C277E5EA2F0E5A82F46F69C590F689A4637FCFD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925800   (538505) от 07.08.2015
-
-SterJo NetStalker 1.2 + Portable [Multi/Ru]
-
->>Безопасность
->>Firewalls
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538505.jpg" />
-</div>
-
-
-###  Подробнее
-
-SterJo NetStalker - бывший SterJo Portable Firewall PRO, это бесплатный и портативный брандмауэр с возможностью настроек групповых правил (политик), блокировки доступа в сеть для отдельных процессов / приложений и имеющий три режима работы: блокировать все, разрешать все и фильтрация на основе правил. На каждое новое соединение NetStalker выдает запрос действия, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92B2EA3A8F24958E581AD8EE50BB07084EA9C8F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313134   (527884) от 07.07.2019
-
-SecureAPlus Freemium 5.3.7 [Multi/Ru]
-
->>Безопасность
->>Антивирусы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527884.jpg" />
-</div>
-
-
-###  Подробнее
-
-SecureAPlus - решение безопасности, которое сочетает в себе антивирус и возможности применения белого списка для приложений. Антивирус защищает компьютер от известных вредоносных программ, в то время как белый список обеспечивает проактивную защиту от неизвестных угроз. В отличие от традиционных антивирусов, SecureAPlus блокирует любые новые и неизвестные вредоносные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:114982ECAA1ACA8FBD77F8995D9DB1678A6BC642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157725   (525079) от 12.08.2017
-
-1Password для Windows 4.6.2.625 [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525079.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Password - программа для безопасного хранения и использования регистрационных ключей, номеров кредитных карт, пин-кодов, персональных идентификаторов, лицензий программного обеспечения, регистрационных данных на веб-сайтах и форумах и другой конфиденциальной информации. Благодаря этому продукту пользователь сможет быстро и без труда получать доступ к защищенным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7DC4CB30BF0BA419C9897DCE9BAD65713E6652
 ```
 
 https://mybot314.ru/tekegram_catalog/

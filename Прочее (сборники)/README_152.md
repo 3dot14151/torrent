@@ -1,3 +1,206 @@
+###  Публикация: 1342953   (220349) от 04.12.2019
+
+VA - Top 100 Зайцев.нет Ноябрь (Repack) (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_220349.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tanir & Tyomcha - Da Da Da (Jarico Remix) 2019 3:34
+002. JONY - Комета (Ladynsax Deep Remix) 5:38
+003. Николай Басков - Зараза 3:22
+004. НаZима и Валерия - Тысячи историй 3:00(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A054A77D29CA9F4236E2808AAB93535FFB351B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966297   (219820) от 17.12.2015
+
+VA - Google Play хит-парад (November) (2015) [MP3|320 кб/с] <Pop, Русская поп-музыка, Рэп/Хип-хоп, Альтернативная музыка/инди, Метал, Рок, Брейкбит, Электронная музыка>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219820.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Скриптонит feat. Юрик Четверг, Truwer - Сука тащит нас на дно
+002. БИ-2 feat. Чичерина - Мой рок-н-ролл
+003. Баста - ЧК (Чистый кайф)
+004. Скриптонит - Вечеринка(   Читать дальше...   )Жанр: Pop, Русская поп-музыка, Рэп/Хип-хоп, Альтернативная музыка/инди, Метал, Рок, Брейкбит, Электронная музыкаПродолжительность: 10:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA6F8558637C6B56956E587F7FE3E0480A274F59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 125454   (219563) от 17.12.2015
+
+VA - Итоговый Superchart Radio Record 2008 (100 Best) [MP3|159 - 320 Kbps]<Electro House, House, Dance, Pop, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219563.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Meck Feat. Dino - So Strong
+2.Paul Van Dyk Feat. Rea Garvey - Let Go
+3.Armin Van Buuren Feat. Sharon Den Adel - In And Out Of Love (The Blizzard Remix)
+4.Rachael Starr - To Forever (Moonbeam Remix)(   Читать дальше...   )Жанр: Electro House, House, Dance, Pop, TranceПродолжительность: 08:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79FCFC7BACC1BD5F060B65C7B052381998614A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514224   (219435) от 02.12.2021
+
+VA - Music News vol.153 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219435.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Katyusha - Собирай Меня (01:56)
+ 002. Adam Marcos - Set Me Free (02:45)
+ 003. Adamant & Playingtheangel - Просыпаться С Другими (02:33)
+ 004. Al Rakhim - Не Жди Там (02:49)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:214E508C7D944B06342CAAF524B332F0A2602980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585666   (219040) от 24.10.2022
+
+VA - В машине с музыкой Vol.313 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Consoul Trainin & Pink Noisy Feat. & Anastasia Zannis - Tango To Evora (05:13) 2022
+02. Lx24 - Дай Мне Спасти Тебя (03:01) 2022
+03. Lissa Feat. & Rolipso & Clarity - Narcotic (02:33) 2022
+04. Sunami - Контакт (03:11) 2022(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B2D02D99186CDDCA6A55EA2C21627212076837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343001   (218989) от 05.12.2019
+
+VA - Новый Год 2020 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218989.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Andre Tay - Новый Год (5:12)
+2.Emir feat. Tanisha - Xo-Xo-Xo (Новогодняя) (5:09)
+3.Роман Рябцев - С Новым Годом! (4:24)
+4.ХолодильНИК BAND - Nновогоднаяя (4:08)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:20:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B26AEBB445B7BAFBC0C8B86FEDA53A79D7A04F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343146   (218964) от 05.12.2019
+
+VA - Зимняя свежая 30-тка Vol. 1 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218964.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Ганвест - Проваливай (Megasound Remix) (4:07)
+2.Олег Попков - Твое Любимое Платье (3:55)
+3.Варвара - Вдвоем (3:50)
+4.HOMIE - Засыпай (3:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B9628498C0A66A1796C3DE9A0A0EA7941DE52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269567   (218046) от 16.12.2018
 
 VA - The Official UK Top 40 Singles Chart 14.12.2018 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -6,7 +209,7 @@ VA - The Official UK Top 40 Singles Chart 14.12.2018 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218046.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - ЕвроХит Топ 40 Europa Plus 14.12.2018 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217910.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Дискотека 2015 Dance Club Vol. 146 от NNNB (2015) [MP3|242 - 320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217715.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Зайцев.Нет: Лучшие новинки Декабря (2018) [MP3
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217373.jpg" />
+  <img src="Z:/picture/005/save_picture_217373.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Твоя любимая попса (Лучшее в Рунете) (2019) [M
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217187.jpg" />
+  <img src="Z:/picture/005/save_picture_217187.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - Осенняя свежая 30-тка Vol 4 (2020) [MP3|320 Kbps] <Pop, Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217131.jpg" />
+  <img src="Z:/picture/005/save_picture_217131.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ VA - Best Of Hits Party State (2016) [MP3|128-320 Kbps] <Dancehall, Bachata, Reg
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216806.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ VA - ЕвроХит Топ 40 Europa Plus 06.12.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216683.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - Понемногу отовсюду by Yuridar #L (1961-2021) Compilation A
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216589.jpg" />
 </div>
 
 
@@ -267,7 +470,7 @@ VA - 2020 GRAMMY Awards (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216454.jpg" />
 </div>
 
 
@@ -296,7 +499,7 @@ VA - Music News vol.223 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216421.jpg" />
 </div>
 
 
@@ -325,7 +528,7 @@ VA - German Top 50 Party Schlager Charts 17.12.2018 (2018) [MP3|320 Kbps] <Pop, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216317.jpg" />
 </div>
 
 
@@ -354,7 +557,7 @@ VA - Partybreaks and Remixes - All In One October 002 (2018) [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215935.jpg" />
 </div>
 
 
@@ -383,7 +586,7 @@ VA - Зима БЕГ (2019) [MP3|320 Kbps] <Dance, House, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214725.jpg" />
+  <img src="Z:/picture/005/save_picture_214725.jpg" />
 </div>
 
 
@@ -412,7 +615,7 @@ VA - Дискотека 2019 Dance Club Vol.186 [NNNB] (2018) [MP3|320 Kbps] <Cl
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214653.jpg" />
+  <img src="Z:/picture/005/save_picture_214653.jpg" />
 </div>
 
 
@@ -441,7 +644,7 @@ VA - Songs Dreams: A Place Of Romance (2016) [MP3|251-320 Kbps] <Popular Lyric, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214516.jpg" />
+  <img src="Z:/picture/005/save_picture_214516.jpg" />
 </div>
 
 
@@ -470,7 +673,7 @@ VA - Empire Records - Mushrooms 2 (2018) [MP3|247-320 Kbps] <Big Room, Dance, Ha
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214381.jpg" />
+  <img src="Z:/picture/005/save_picture_214381.jpg" />
 </div>
 
 
@@ -499,7 +702,7 @@ VA - не Громкие новинки недели 46 (2019) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214369.jpg" />
+  <img src="Z:/picture/005/save_picture_214369.jpg" />
 </div>
 
 
@@ -528,7 +731,7 @@ VA - Club 2019-Hottest New Tracks (2018) [MP3|320 Kbps] <House, Handsup, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214341.jpg" />
+  <img src="Z:/picture/005/save_picture_214341.jpg" />
 </div>
 
 
@@ -542,209 +745,6 @@ VA - Club 2019-Hottest New Tracks (2018) [MP3|320 Kbps] <House, Handsup, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4AFA24E2BDF071FA8807F2116C477F346827E0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194090   (214054) от 23.12.2017
-
-VA - Евро Хит Топ 40 Europa Plus 23.12 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Post Malone feat. 21 Savage  -  Rockstar  3:38
-02.  Merk & Kremont  -  Sad Story (Out Of Luck)  3:32
-03.  Zayn Malik feat. Sia  -  Dusk Till Dawn  3:59
-04.  Imagine Dragons  -  Whatever It Takes  3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125A519CCEADDA91F7598B34292721EC4C511D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270306   (214030) от 18.12.2018
-
-VA - Самые скачиваемые треки ВКонтакте Зима 7 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214030.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тима Белорусских - Мокрые кроссы (Lapin & Dzoz Radio Edit) 3:44
-002. Dynoro & Gigi D'Agostino - In My Mind (G-Love & Igor Frank RMX) 4:34
-003. Леша Свик - Малиновый свет (Mikis Remix) 3:41
-004. Сергей Лазарев - Пьяным, чем обманутым 3:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65DDE487899CFBF4638EF3423815CE0A25529CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514796   (213910) от 05.12.2021
-
-VA - Hardstyle Classic Night (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хардстайл - это настоящий рай для ушей. Мелодично, эпатажно, быстро, безумно, красиво и тяжело, ведь не каждый может выдержать напор ритма в 150 ударов. Но тем не менее, поклонников этого жанра меньше не становиться. С того момента, как в 2000-х в результате экспериментов, возник этот стиль ряды фанатов этой музыки только множатся.001. Angerfist - Face My Style
-002. Benaddikt - Nothing Can Ruin Us
-003. Creeds - Le Piano
-004. Calvin Clark - Frostbite(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 07:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D963133D92EA1183E9D64ABC457B3AA4F23194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344093   (213758) от 09.12.2019
-
-VA - The Official UK Top 40 Singles Chart 06.12.2019 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. Lewis Capaldi - Before You Go
-03. Stormzy - Own It (feat. Ed Sheeran & Burna Boy)
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D548E75E1923258AED6F625D93C729A9FA4894E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124687   (213013) от 28.06.2022
-
-Юрий Шатунов  (Ремиксы) (2017) [MP3|256-320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Забудь (Hit Mix)  4:16
-02.  Закрой за мной дверь (Alex Dea 2014 Remix)  4:32
-03.  Майский вечер (MegaSound & DJ BARS Remix)  3:04
-04.  Я теряю (Hit Mix)  3:23(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 06:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99C0C0C205DCAD971E4DD6FC12A948708F10FDE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560546   (212968) от 30.06.2022
-
-VA - Fresh Summer Tracks (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ANNA ASTI - Сорри (3:23)
-02. Batrai - Актриса (2:50)
-03. BRANYA - Candy Shop (2:07)
-04. Elvira T - Не люби (3:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D695F12BB7F9B3342BCBBB6CAB5F2BC8CD7314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561125   (212866) от 04.07.2022
-
-VA - Retro remix май (2022) [MP3|256-320 Kbps] <Club House, Russian Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212866.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Unlimited - Get Ready (Freejak Remix) 03:30
-002. 5sta Family, Ps Project, Roman Max x Max Flame, Dacks - Зачем (Pitchugin Mashup) 03:31
-003. 20 Fingers - Short Dick Man (Swartchback Remix) 03:38
-004. 50 Cent - Candy Shop (Dmitriy Rs, Velchev, NJOY Remix) 04:33(   Читать дальше...   )Жанр: Club House, Russian PopПродолжительность: 01:09:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7415A62851D7647B52C25B8A01F9A19E0923E0B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

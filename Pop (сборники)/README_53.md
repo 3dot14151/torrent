@@ -1,3 +1,192 @@
+###  Публикация: 516111   (654580) от 27.06.2012
+
+VA - XXXL Music Box. Выпуск 8 (2012) [MP3|256 kbps]<Pop|Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654580.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 А-Студио и Quest Pistols - Медведица
+002 Lady GaGa - Glitter & Grease
+003 Varda - Я Тебе Не Верю
+004 Arash Ahangari - Ahange Zamoone
+005 Дискотека Авария и Нюша - Moscow Never Sleeps
+006 Fly Project - Back In My Life (Radio Edit)
+007 Dress Code - Кучерявое Лето
+008 Taio Cruz & Flo Rida - Hangover (Hardwell radio edit)
+009 Varda & Виталий Козловский - Потанцуй
+010 Roman Bellezzo vs Slam DJs feat. Irene - Frozen (Radio mix)(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 05:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E04BB0C74D7E734F903495FFC926B3B5C050161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516105   (654575) от 27.06.2012
+
+VA - Курортный Хит (2012) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654575.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michel Telo Feat. Pitbull - Ai Se Eu Te Pego (Smash Mode Radio Edit)
+002. Simon From Deeo Divas Feat. Goody - Disco Dancer (Simon Original Radio Mix)
+003. Modana And Carlprit - Shake That Boo Boo (Radio Edit)
+004. Armin Van Buuren Presents Gaia - Jai Envie De Toi (Radio Edit)
+005. Mike Candys And Evelyn - Around The World (Radio Mix)
+006. Mishelle Feat. Randi - It Feels So Good (Radio Edit)
+007. Matisse And Sadko Ft Ollie James - Were Not Alone (Hi Scandinavia) (Radio Edit)
+008. Helena Feat. Steve Owner - Hold On Me (Original Mix)
+009. Pink Lady Deejay - Face To Face
+010. Tradelove - Pum Back(   Читать дальше...   )Жанр: PopПродолжительность: 11:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8388D650DFAA88A0145B9B9978B6FDA9AC10665E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516068   (654512) от 27.06.2012
+
+VA - Хит парад Союз лето (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC11E924E81E44D58488E6E865B79D184D8FBDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904423   (654123) от 03.06.2015
+
+VA - Лето в кайф. Сборник 50/50 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654123.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shaman - Лето Будет
+002. Mariah Carey - Infinity
+003. Ирина Дубцова - Люби Меня Долго
+004. Nicco & Chris Deelay - Remember(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:869588E8F3956154AA96F1EFCFE0420EFBA1B16A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516283   (653109) от 28.06.2012
+
+VA - Радио Чарт Energy - Жгучий Танцевальный Сборник 50/50 (2012) [MP3|256 kbps]<Pop|Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_653109.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Bad Boys Blue - I'll Be Good
+002 Группа Red Energy - Capital Nigt
+003 Mayari Project - Hayati
+004 Ольга Lucky - Последний Поцелуй (Руки Вверх)
+005 Itaka - La Danza De Ibiza (Zumpa Remix Radio Edit)
+006 Дискотека Авария и Нюша - Moscow Never Sleeps
+007 Demi Lovato - All Night Long (Feat. Missy Elliott & Timbaland)
+008 Тимур Темиров - Лето Жаркое
+009 Radio Killer - Is It Love Out There (Radio Edit)
+010 Vilana - Море(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 05:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5446CC9046D3254DD93AD633D2281AF0271A7B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291679   (652663) от 26.03.2019
+
+VA - German Top 50 Party Schlager Charts 25.03.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Roland Kaiser - Stark(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9EC2E48372F280816570F021120E27223ABA21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226812   (652196) от 23.05.2018
 
 VA - Empire Records - Retromania 9 (2018) [MP3|320 Kbps] <Pop, Euro-Pop, Eurodisco>
@@ -6,7 +195,7 @@ VA - Empire Records - Retromania 9 (2018) [MP3|320 Kbps] <Pop, Euro-Pop, Eurodis
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652196.jpg" />
+  <img src="Z:/picture/008/save_picture_652196.jpg" />
 </div>
 
 
@@ -35,7 +224,7 @@ VA - Зарубежная Дискотека ХХ Века - 53 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652155.jpg" />
+  <img src="Z:/picture/008/save_picture_652155.jpg" />
 </div>
 
 
@@ -64,7 +253,7 @@ VA - Зарубежная Дискотека ХХ Века - 58 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652153.jpg" />
+  <img src="Z:/picture/008/save_picture_652153.jpg" />
 </div>
 
 
@@ -93,7 +282,7 @@ VA - Зарубежная Дискотека ХХ Века - 51 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652149.jpg" />
+  <img src="Z:/picture/008/save_picture_652149.jpg" />
 </div>
 
 
@@ -122,7 +311,7 @@ VA - Зарубежная Дискотека ХХ Века - 55 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652148.jpg" />
+  <img src="Z:/picture/008/save_picture_652148.jpg" />
 </div>
 
 
@@ -151,7 +340,7 @@ VA - Сливки Европы плюс 7 50/50 (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652125.jpg" />
+  <img src="Z:/picture/008/save_picture_652125.jpg" />
 </div>
 
 
@@ -177,7 +366,7 @@ VA - Летний коктейль хитов (2012) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652107.jpg" />
+  <img src="Z:/picture/008/save_picture_652107.jpg" />
 </div>
 
 
@@ -212,7 +401,7 @@ VA - Зарубежная Дискотека ХХ Века - 52 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652011.jpg" />
+  <img src="Z:/picture/008/save_picture_652011.jpg" />
 </div>
 
 
@@ -241,7 +430,7 @@ VA - Зарубежная Дискотека ХХ Века - 56 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652010.jpg" />
+  <img src="Z:/picture/008/save_picture_652010.jpg" />
 </div>
 
 
@@ -270,7 +459,7 @@ VA - Зарубежная Дискотека ХХ Века - 59 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652008.jpg" />
+  <img src="Z:/picture/008/save_picture_652008.jpg" />
 </div>
 
 
@@ -299,7 +488,7 @@ VA - Зарубежная Дискотека ХХ Века - 57 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652007.jpg" />
+  <img src="Z:/picture/008/save_picture_652007.jpg" />
 </div>
 
 
@@ -328,7 +517,7 @@ VA - Русская Дискотека ХХ Века - 24 (2010) [MP3|320 Kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652005.jpg" />
+  <img src="Z:/picture/008/save_picture_652005.jpg" />
 </div>
 
 
@@ -357,7 +546,7 @@ VA - Русская Дискотека ХХ Века - 22 (2010) [MP3|320 Kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652003.jpg" />
+  <img src="Z:/picture/008/save_picture_652003.jpg" />
 </div>
 
 
@@ -386,7 +575,7 @@ VA - Зарубежная Дискотека ХХ Века - 54 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652002.jpg" />
+  <img src="Z:/picture/008/save_picture_652002.jpg" />
 </div>
 
 
@@ -415,7 +604,7 @@ VA - Русская Дискотека ХХ Века - 23 (2010) [MP3|320 Kbps]<
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651999.jpg" />
+  <img src="Z:/picture/008/save_picture_651999.jpg" />
 </div>
 
 
@@ -444,7 +633,7 @@ VA - Дискотека в ритме Карибских островов (2012)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651950.jpg" />
+  <img src="Z:/picture/008/save_picture_651950.jpg" />
 </div>
 
 
@@ -470,7 +659,7 @@ VA - Лето Хитами Пропето! Party Music Love Radio 50/50 (2012) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651945.jpg" />
+  <img src="Z:/picture/008/save_picture_651945.jpg" />
 </div>
 
 
@@ -505,7 +694,7 @@ VA - Танцевальный рай 29 (2012) [MP3|192 кб/с]<Pop-Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651935.jpg" />
+  <img src="Z:/picture/008/save_picture_651935.jpg" />
 </div>
 
 
@@ -540,7 +729,7 @@ VA - Русская Дискотека ХХ Века - 21 (2010) [MP3|256-320 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651805.jpg" />
+  <img src="Z:/picture/008/save_picture_651805.jpg" />
 </div>
 
 
@@ -569,7 +758,7 @@ VA - Русская Дискотека ХХ Века - 25 (Именной) (2010
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651798.jpg" />
+  <img src="Z:/picture/008/save_picture_651798.jpg" />
 </div>
 
 
@@ -583,183 +772,6 @@ VA - Русская Дискотека ХХ Века - 25 (Именной) (2010
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3BFF36176C1DB7B337C2987D1DF8DCB5ED4171F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031573   (651796) от 04.07.2016
-
-VA - Русская Дискотека ХХ Века - 27 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Жуков Рома - Мои Девчонки ( 1989 )
-02. Белоусов Женя - У Любви Глаза Разлуки ( 1993 )
-03. Яковлев Александр - Я Покину Суету Московских Улиц ( 1990 )
-04. Комбинация - Знаю, Что Не Любишь ( 1988 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:13:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936C2555A86F2F16A9198BE21D5DC23228773292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031542   (651793) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 60 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby Orlando - Whisper To A Scream ( 1985 )
-02. Oh Romeo - Once Is Not Enough ( 1984 )
-03. Knight Action - Single Girl ( Extended Version 1984 )
-04. Tc Mirage - Talking Eyes ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9BB0BE5BA71A7A250B72CEF365079C5605027F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031565   (651791) от 04.07.2016
-
-VA - Русская Дискотека ХХ Века - 26 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Портной Леонид - Симфония ( 1995 )
-02. DJ Валдай & DJ Василич - Хрен По Колено ( Macarena ) ( 1997 )
-03. Non-Stop Vodka Dance - Первоапрельские Тезисы г-на Обломова ( 1997 )
-04. Мираж ( Екатерина Болдышева ) - Ты, Словно Тень ( 1992 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63AC0A11E585B2CCBEAACD166B3346EF9766E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031576   (651790) от 04.07.2016
-
-VA - Русская Дискотека ХХ Века - 28 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Натали - Звезда По Имени Солнце ( 1997 )
-02. Фристайл - Принцесса ( 1989 )
-03. Форум ( Виктор Салтыков ) - Островок ( 1984 )
-04. Фейерверк ( Хоралов Аркадий ) - Новогодние Игрушки ( 1987 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:20:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904A07E2E1150487F5AA7AEC17332D0BAB837110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516478   (651718) от 29.06.2012
-
-VA - Женщина Любимая Моя (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651718.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Игорь Латышко - Любимая Женщина
-002 Ян Марти - Я люблю тебя
-003 Николай Мудрый - Полюби меня
-004 Рада Рай - Все сбылось
-005 Жека - Вдыхая друг друга
-006 Сергей Куренков - Я тебя рисую
-007 Юлия Проскурякова - Ты мое счастье
-008 Денис Майданов и Филипп Киркоров - Стеклянная любовь
-009 Таисия Повалий - Я помолюсь за тебя
-010 Надежда Кадышева и Золотое Кольцо - Небо пополам(   Читать дальше...   )Жанр: PopПродолжительность: 06:20:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345AA07E1A702C1EB57E5E4F805AC16FAA4804A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031340   (651645) от 04.07.2016
-
-VA - Absolute Summer Hits (2016) [MP3|320 Kbps] <Pop, R&B, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651645.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:Жанр: Pop, R&B, DanceПродолжительность: 02:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A63DC0CBFCD5766D9F8A9E943EED30E5F2AD55E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,115 @@
+###  Публикация: 1334284   (296582) от 28.10.2019
+
+Moom 3.2.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобная утилита для быстрого изменения размера окон и их положения в Mac OS X. Добавляет новые возможности зелёной кнопки ресайза окон в Файндэр.
+
+Необходимо отметить, прозрачный pop-up идеально вписывается в идеологию новой операционной системы. Внутри небольшого окошка находятся пять пиктограмм отображающих предстоящие изменения положения окна. Шестой значок позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2019Разработчик: Many TricksПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D13259F751890C534ACCB1467806528261403C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961950   (296552) от 03.12.2015
+
+Acronis True Image 2016 (2.0.6038) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis True Image 2016 for Mac
+Надежное резервное копирование и восстановление всей системы - электронной почты, музыки, фотографий, видеозаписей, документов, личных настроек, закладок и всех приложений. Надежное и защищенное резервное копирование, максимально интегрированное с облаком Acronis Cloud.
+
+Теперь вы решаете, где, когда и как сохранять свои данные. Используйте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 декабря 2015Разработчик: Acronis International GmbHПоддерживаемая ОС: OS X 10.9.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E11126526D7B835138C2E5533B811D44BCB84E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962087   (296551) от 03.12.2015
+
+Movist 1.4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
+
+Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 декабря 2015Разработчик: MovistПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C4339D198FB38DA1487D46215BF3530BE4B9C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961955   (296549) от 03.12.2015
+
+Autopano Giga 4.2.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296549.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autopano Giga — программа, позволяющая объединять несколько фотоснимков с частичным перекрытием в большой панорамный снимок.
+В отличие от многих популярных программ, применяемых для склейки панорам, здесь склейка происходит в полностью автоматическом режиме с  использованием собственных алгоритмов SIFT и RANSAC, производящих склейку намного быстрее и точнее, есть (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 декабря 2015Разработчик: Kolor SARLПоддерживаемая ОС: OS X 10.9.5+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A1AC7C9A682EA106234661A1687127C2868843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961956   (296546) от 03.12.2015
 
 Artlantis Studio 6.0.2.23 [Multi/Ru]
@@ -6,7 +118,7 @@ Artlantis Studio 6.0.2.23 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296546.jpg" />
+  <img src="Z:/picture/008/save_picture_296546.jpg" />
 </div>
 
 
@@ -32,7 +144,7 @@ Adobe Acrobat Pro DC 2019.008.20071 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296523.jpg" />
+  <img src="Z:/picture/008/save_picture_296523.jpg" />
 </div>
 
 
@@ -58,7 +170,7 @@ Folx Pro 5 5.7.13770 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296515.jpg" />
+  <img src="Z:/picture/008/save_picture_296515.jpg" />
 </div>
 
 
@@ -87,7 +199,7 @@ Sketch 52.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296514.jpg" />
+  <img src="Z:/picture/008/save_picture_296514.jpg" />
 </div>
 
 
@@ -114,7 +226,7 @@ Microsoft Office for Mac Standard 2019 v.16.19.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296509.jpg" />
+  <img src="Z:/picture/008/save_picture_296509.jpg" />
 </div>
 
 
@@ -141,7 +253,7 @@ Adobe Zii 2019 - Universal Patcher v5.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296483.jpg" />
+  <img src="Z:/picture/008/save_picture_296483.jpg" />
 </div>
 
 
@@ -167,7 +279,7 @@ Fantastical 2 - Calendar and Reminders 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296242.jpg" />
+  <img src="Z:/picture/008/save_picture_296242.jpg" />
 </div>
 
 
@@ -194,7 +306,7 @@ CheckBook Pro 2.6.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296173.jpg" />
+  <img src="Z:/picture/008/save_picture_296173.jpg" />
 </div>
 
 
@@ -220,7 +332,7 @@ PhotoSweeper X 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296170.jpg" />
+  <img src="Z:/picture/008/save_picture_296170.jpg" />
 </div>
 
 
@@ -247,7 +359,7 @@ Retrobatch Pro 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296166.jpg" />
+  <img src="Z:/picture/008/save_picture_296166.jpg" />
 </div>
 
 
@@ -275,7 +387,7 @@ iBarcoder 3.12.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296162.jpg" />
+  <img src="Z:/picture/008/save_picture_296162.jpg" />
 </div>
 
 
@@ -301,7 +413,7 @@ DrawOutX 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296161.jpg" />
+  <img src="Z:/picture/008/save_picture_296161.jpg" />
 </div>
 
 
@@ -328,7 +440,7 @@ InstaCal 1.9.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296037.jpg" />
+  <img src="Z:/picture/008/save_picture_296037.jpg" />
 </div>
 
 
@@ -355,7 +467,7 @@ Wattagio 1.11 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296035.jpg" />
+  <img src="Z:/picture/008/save_picture_296035.jpg" />
 </div>
 
 
@@ -381,7 +493,7 @@ ColoFolXS 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296033.jpg" />
+  <img src="Z:/picture/008/save_picture_296033.jpg" />
 </div>
 
 
@@ -410,7 +522,7 @@ Outline 3.2011.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296032.jpg" />
+  <img src="Z:/picture/008/save_picture_296032.jpg" />
 </div>
 
 
@@ -438,7 +550,7 @@ DMG Canvas 3.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296030.jpg" />
+  <img src="Z:/picture/008/save_picture_296030.jpg" />
 </div>
 
 
@@ -464,7 +576,7 @@ Debut Professional 6.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296028.jpg" />
+  <img src="Z:/picture/008/save_picture_296028.jpg" />
 </div>
 
 
@@ -490,7 +602,7 @@ Color Folder Master 1.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296022.jpg" />
+  <img src="Z:/picture/008/save_picture_296022.jpg" />
 </div>
 
 
@@ -516,7 +628,7 @@ djay Pro AI 3.0.1  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296016.jpg" />
+  <img src="Z:/picture/008/save_picture_296016.jpg" />
 </div>
 
 
@@ -542,7 +654,7 @@ iMazing 2.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295978.jpg" />
+  <img src="Z:/picture/008/save_picture_295978.jpg" />
 </div>
 
 
@@ -569,7 +681,7 @@ Tayasui Sketches Pro 6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295953.jpg" />
+  <img src="Z:/picture/008/save_picture_295953.jpg" />
 </div>
 
 
@@ -581,114 +693,6 @@ Tayasui Sketches Pro 6 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906D26D674662CA2F27398307584CE52BCD943B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424012   (295951) от 15.11.2020
-
-Mach Desktop HD 3 v3.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вам наскучила статичная картинка на рабочем столе, то Mach Desktop поможет нарядить десктоп с помощью встроенных видеообоев, QuickTime-роликов и даже Веб-страниц. Mach Desktop предлагает двадцать отличных видеообоев Quartz Compositions и семь QuickTime-видеороликов для рабочего стола. Множество настроек позволяют задать в качестве фона предустановленную заставку, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2020Разработчик: Mach SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7BE1D411F7B7554E7D84A1B2A31FA9AB02DF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424151   (295948) от 15.11.2020
-
-PhoneRescue for iOS 4.1.0.20201020 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295948.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943C3A83259BCE0B514A73B7CF40394D0516564F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424146   (295815) от 15.11.2020
-
-AnyTrans 8.8.0.20201109 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295815.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
-
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2020Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A7EA831D7A61DA72911E1E186B378D1E6E5126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424098   (295788) от 15.11.2020
-
-CrossOver 20.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет CrossOver основан на программном коде коде Wine и представляет собой оболочку для запуска программ под Windows на платформе macOS. Кроме этого, он позволяет запускать игры, что для многих пользователей является решающим фактором при выборе операционной системы.
-
-Отметим, что вышеупомянутый Wine представляет собой программную прослойку, позволяющую выполнять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: CodeWeaversПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40CFE837004EBBA2A36F15671C732D1FF21BB2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

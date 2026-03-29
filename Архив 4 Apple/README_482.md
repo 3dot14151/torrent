@@ -1,3 +1,113 @@
+###  Публикация: 1339140   (267152) от 18.11.2019
+
+Gifox 2 – Gif Recording & Sharing v2.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gifox - это прекрасно разработанное и мастерски созданное приложение, которое записывает ваш экран в анимированные gifs - отличную альтернативу статическим изображениям и полноразмерным видео.
+
+Gifox вводит совершенно новый способ непрерывного захвата экрана с режимом выбора окна - вы выбираете окно, и Gifox точно записывает его, даже когда он перемещается или закрывается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Interactive Works LTDПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27648F706C1043F0B5A9D712350723DB7E90D78E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339267   (267151) от 18.11.2019
+
+KCNcrew Pack 11-15-19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267151.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.11.2019Разработчик: iSerialПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE507967C5368001450C98C6B36523905259C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339161   (267150) от 18.11.2019
+
+Amadine 1.0.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amadine - это программное обеспечение для векторного рисования с идеально сбалансированным пользовательским интерфейсом, которое гарантирует плавный рабочий процесс и быстрое обучение. Приложение идеально подходит для иллюстраций, разработки веб-сайтов, пользовательского интерфейса, размещения листовок и брошюр, создания логотипов и значков.
+
+Разработанный с точностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.10.2019Разработчик: Belight Software, LtdПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B33B04866BB34FDCFE609E03A6F714EDFB5E945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339248   (267149) от 18.11.2019
+
+Movist Pro 2.2.12 (134) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
+
+Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7133F762DECE2494480A1C4A771B05B384AB5255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339295   (267121) от 18.11.2019
 
 Viscosity 1.8.2 [Multi/Ru]
@@ -6,7 +116,7 @@ Viscosity 1.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267121.jpg" />
+  <img src="Z:/picture/008/save_picture_267121.jpg" />
 </div>
 
 
@@ -34,7 +144,7 @@ PDF Expert 2.4.30 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267003.jpg" />
+  <img src="Z:/picture/008/save_picture_267003.jpg" />
 </div>
 
 
@@ -63,7 +173,7 @@ Pixelmator Pro 1.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266747.jpg" />
 </div>
 
 
@@ -91,7 +201,7 @@ Permute 3 v3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266736.jpg" />
 </div>
 
 
@@ -117,7 +227,7 @@ JetBrains PhpStorm 2018.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266302.jpg" />
 </div>
 
 
@@ -143,7 +253,7 @@ Folx GO+ 5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266288.jpg" />
 </div>
 
 
@@ -172,7 +282,7 @@ TurboCollage 7 v7.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266187.jpg" />
 </div>
 
 
@@ -198,7 +308,7 @@ Slidepad 1.0.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266186.jpg" />
 </div>
 
 
@@ -226,7 +336,7 @@ ExpanDrive 7 v7.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266185.jpg" />
 </div>
 
 
@@ -254,7 +364,7 @@ Polarr Photo Editor Pro 5.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_266162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_266162.jpg" />
 </div>
 
 
@@ -282,7 +392,7 @@ PowerPhotos 1.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266158.jpg" />
 </div>
 
 
@@ -308,7 +418,7 @@ Wifiner 1.3.189 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266156.jpg" />
 </div>
 
 
@@ -337,7 +447,7 @@ Pixelmator 3.8.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266155.jpg" />
 </div>
 
 
@@ -363,7 +473,7 @@ Adguard 2.2.3 660 nightly (CL - 1.5.127) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266154.jpg" />
 </div>
 
 
@@ -389,7 +499,7 @@ Luminar 4  v4.0.0 (5380) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266065.jpg" />
 </div>
 
 
@@ -417,7 +527,7 @@ Downie 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266036.jpg" />
 </div>
 
 
@@ -446,7 +556,7 @@ KeyKey 2.1 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265987.jpg" />
 </div>
 
 
@@ -475,7 +585,7 @@ DCommander 3.1.4a [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265919.jpg" />
 </div>
 
 
@@ -503,7 +613,7 @@ TechTool Pro 9.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_265854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_265854.jpg" />
 </div>
 
 
@@ -530,7 +640,7 @@ Ummy Video Downloader 1.60 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265761.jpg" />
 </div>
 
 
@@ -557,7 +667,7 @@ MiniTube 2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265758.jpg" />
 </div>
 
 
@@ -583,7 +693,7 @@ Apple MainStage 3.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265575.jpg" />
 </div>
 
 
@@ -597,117 +707,6 @@ MainStage 3 позволит вам взять Mac с собой на сцену
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1526BCB5CAFA5D4DA67C655FA50DDB5AFD65A899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267584   (265456) от 07.12.2018
-
-Hands Off! 4.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hands Off! - контроль доступа в Интернет
-Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2018Разработчик: One Periodic IncПоддерживаемая ОС: macOS 10.12.6 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2CC7BA74F2FF1B747A26C3D5491D10C52BBCC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339702   (265374) от 20.11.2019
-
-A Better Finder Rename 11 v11.05 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265374.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
-Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2019Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8AA06F2DF77EEC9016FEE528D112AD9192F12B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339736   (265373) от 20.11.2019
-
-IconJar 2.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все ваши иконки отлично организованы в удобный интерфейс
-Разработанный, чтобы сделать жизнь разработчиков приложений и дизайнеров немного легче, IconJar представляет собой легкий и удобный органайзер иконок для вашего Mac.
-
-Если вы дизайнер или просто-напросто кто-то, чья линия работы включает в себя работу со значками (или глифы), то вы знаете, как громоздким оказывается (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Davey Heuser and Curtis HardПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD18C90B69AB425F36CFA5992896B3A0E7AA51A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339670   (265372) от 20.11.2019
-
-SpamSieve 2.9.38 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для macOS. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнно вам поможет.
-
-Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам фильтра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2019Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C498BCE102F77AF16356995BCCED62A5E5C176FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

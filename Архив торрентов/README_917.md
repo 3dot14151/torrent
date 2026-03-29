@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838588.jpg" />
+  <img src="Z:/picture/008/save_picture_838588.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ TouchCopy 16.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838550.jpg" />
+  <img src="Z:/picture/008/save_picture_838550.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838547.jpg" />
+  <img src="Z:/picture/008/save_picture_838547.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838546.jpg" />
+  <img src="Z:/picture/008/save_picture_838546.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838545.jpg" />
+  <img src="Z:/picture/008/save_picture_838545.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Araxis Merge Pro 2017.4855 (for macOS 10.12+) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838538.jpg" />
+  <img src="Z:/picture/008/save_picture_838538.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838531.jpg" />
+  <img src="Z:/picture/008/save_picture_838531.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838530.jpg" />
+  <img src="Z:/picture/008/save_picture_838530.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Mirror for Sony TV 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838527.jpg" />
+  <img src="Z:/picture/008/save_picture_838527.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ FocusList: daily planner & focus timer 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838518.jpg" />
+  <img src="Z:/picture/008/save_picture_838518.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ External Editors For Photos 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838516.jpg" />
+  <img src="Z:/picture/008/save_picture_838516.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838514.jpg" />
+  <img src="Z:/picture/008/save_picture_838514.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ IP Scanner Pro 3.47 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838513.jpg" />
+  <img src="Z:/picture/008/save_picture_838513.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838512.jpg" />
+  <img src="Z:/picture/008/save_picture_838512.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ NG: Паранормальное. Круги на полях / Paranormal. Crop 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838494.jpg" />
+  <img src="Z:/picture/008/save_picture_838494.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Full Mojo Rampage (2013) [Ru/Multi] (1.0.124) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838490.jpg" />
+  <img src="Z:/picture/008/save_picture_838490.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838426.jpg" />
+  <img src="Z:/picture/008/save_picture_838426.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838419.jpg" />
+  <img src="Z:/picture/008/save_picture_838419.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Viper FTP 3.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838415.jpg" />
+  <img src="Z:/picture/008/save_picture_838415.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Forecast Bar 2.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838403.jpg" />
+  <img src="Z:/picture/008/save_picture_838403.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Default Folder X 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838402.jpg" />
+  <img src="Z:/picture/008/save_picture_838402.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838401.jpg" />
+  <img src="Z:/picture/008/save_picture_838401.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838400.jpg" />
+  <img src="Z:/picture/008/save_picture_838400.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ ChronoSync 4.6.7 & ChronoAgent 1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838399.jpg" />
+  <img src="Z:/picture/008/save_picture_838399.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ PDF Expert 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838392.jpg" />
+  <img src="Z:/picture/008/save_picture_838392.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ Downie 2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838390.jpg" />
+  <img src="Z:/picture/008/save_picture_838390.jpg" />
 </div>
 
 

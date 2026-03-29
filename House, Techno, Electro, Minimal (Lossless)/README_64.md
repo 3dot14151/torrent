@@ -1,3 +1,113 @@
+###  Публикация: 1731626   (107679) от 21.06.2024
+
+The Force presents Beata - Maria Magdalena (2015) [FLAC|Lossless|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Force presents Beata – Maria Magdalena (The Force radio mix) (3:44)
+02. The Force presents Beata – Maria Magdalena (The Force extended edit) (5:16)
+03. The Force presents Beata – Maria Magdalena (K.C. Nightline club mix) (4:18)
+04. The Force presents Beata – Maria Magdalena (The Force 124 BPM radio mix) (3:33)Жанр: House, DanceПродолжительность: 00:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F2190DC854822175DDDAD99A73A7AB773BBDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731519   (107678) от 21.06.2024
+
+Chillymouse - Don't Give Me Your Life (Jay Frog remix) (2021) [FLAC|Lossless|tracks] <Club-Dance, Club-House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillymouse - Don't Give Me Your Life (Jay Frog remix) (4:27)Жанр: Club-Dance, Club-HouseПродолжительность: 00:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D9079BBC4BBB4730BF98FBA327622F4339BAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730878   (107666) от 21.06.2024
+
+Fresh & Lipps - Be My Lover 2012 (2012) [FLAC|Lossless|tracks] <Euro House, Deep House, Club House, Funky House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fresh And Lipps - Be My Lover 2012 (radio edit) (3:34)
+02. Fresh And Lipps - Be My Lover 2012 (extended) (5:35)Жанр: Euro House, Deep House, Club House, Funky HouseПродолжительность: 00:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4234F981EA3BA409D38645FFC6BEB9F3F2113084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732195   (107560) от 23.06.2024
+
+Eli & Fur - My Reflection (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Reflection
+02. Golden Eyes and Tears
+03. InsomniaЖанр: Tech House, Deep House, ProgressiveПродолжительность: 00:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF1FB4774C2075EB85B8A033FB534768203B9F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732119   (107549) от 23.06.2024
 
 Christian Loffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Melodic House & Techno>
@@ -6,7 +116,7 @@ Christian Loffler - A Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107549.jpg" />
 </div>
 
 
@@ -35,7 +145,7 @@ No Mana - I Contain Flashing Images (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107490.jpg" />
 </div>
 
 
@@ -64,7 +174,7 @@ Dwson - Jewels (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107215.jpg" />
 </div>
 
 
@@ -93,7 +203,7 @@ Charlotte de Witte - Overdrive EP (2023) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107103.jpg" />
 </div>
 
 
@@ -120,7 +230,7 @@ Charlotte de Witte - Power Of Thought EP (2023) [FLAC|Lossless|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107100.jpg" />
 </div>
 
 
@@ -148,7 +258,7 @@ Age of Love - The Age of Love (Charlotte de Witte and Enrico Sangiuliano remix) 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107096.jpg" />
 </div>
 
 
@@ -175,7 +285,7 @@ VA - Cardio - 2024 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107010.jpg" />
 </div>
 
 
@@ -204,7 +314,7 @@ Kiasmos - II (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106985.jpg" />
 </div>
 
 
@@ -233,7 +343,7 @@ VA - Big Aerobic & Cardio Dance Hits 2024 [FLAC|Lossless|WEB-DL|tracks] <House, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106976.jpg" />
 </div>
 
 
@@ -262,7 +372,7 @@ Pretty Lights - 2 Albums (2013-2014) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Du
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106962.jpg" />
 </div>
 
 
@@ -291,7 +401,7 @@ DJ Kiriloff - In The Mix(2008) [WavPack|Lossless|image + .cue] <House, Electro H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106927.jpg" />
 </div>
 
 
@@ -320,7 +430,7 @@ Empyre One Feat. Scarlet - I Turn To You 2k20 (2020) [FLAC|Lossless|tracks] <Ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106757.jpg" />
 </div>
 
 
@@ -347,7 +457,7 @@ CVN - 4 Albums (2016-2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experiment
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106727.jpg" />
 </div>
 
 
@@ -376,7 +486,7 @@ Oscar Mulero - Have you ever retired a human by mistake? (2024) [FLAC|Lossless|W
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106562.jpg" />
 </div>
 
 
@@ -405,7 +515,7 @@ Gorgon City - 6 Albums (2014-2024) [FLAC|Lossless|WEB-DL|tracks] <House, Tech Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106342.jpg" />
 </div>
 
 
@@ -434,7 +544,7 @@ Braille - Triple Transit (2024) [FLAC|Lossless|WEB-DL|tracks] <experimental, ele
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105568.jpg" />
 </div>
 
 
@@ -463,7 +573,7 @@ Qika - I'm So Excited (2010) [FLAC|Lossless|tracks] <House, Italo House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105315.jpg" />
 </div>
 
 
@@ -492,7 +602,7 @@ Andrea Giuditta - Code-258 (2019) [FLAC|Lossless|tracks] <Techno, Peak Time Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105162.jpg" />
 </div>
 
 
@@ -519,7 +629,7 @@ Mura Masa - Curve 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <electronic, future bas
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104937.jpg" />
 </div>
 
 
@@ -548,7 +658,7 @@ VA - Ancient Egyptian Deep House (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Fo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104649.jpg" />
 </div>
 
 
@@ -577,7 +687,7 @@ VA - Mega Fitness Compilation For Weight Lifting 2024 Best Songs 128 Bpm [FLAC|L
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104648.jpg" />
 </div>
 
 
@@ -606,7 +716,7 @@ VA - Arabic Deep House (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104241.jpg" />
 </div>
 
 
@@ -620,122 +730,6 @@ VA - Arabic Deep House (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56CA0C9F7BC97F3C0D225188EFC0174A4E133114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753728   (103784) от 06.10.2024
-
-VA - The Best Ethnic Deep Tribal House Rhythms (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claude Ravin - 3abali Mosaic (4:59)
-02. Profesor Esteban - Dunes of Love (6:00)
-03. Amr Aksu - Café Arabic (6:53)
-04. Burak Abulso'oud - Mawjouaa Galbi (6:11)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 02:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1026E9F97C65B523B018961ACF267A63E6CECA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754776   (103698) от 12.10.2024
-
-VA - PornoStar Sessions Ibiza (2024) [FLAC|Lossless|WEB-DL|tracks] <Funky House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crazibiza - Murder on the Dance Floor (House Mix) (4:35)
-02. Crazibiza - No Sunshine (House of Prayers Poolside Edit) (2:40)
-03. Crazibiza - Fresh (House of Prayers Poolside Edit) (4:44)
-04. Crazibiza - The Beginning (Original Mix) (4:40)(   Читать дальше...   )Жанр: Funky House, DanceПродолжительность: 03:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEB626E7CF543229713B7873A09D800D5BE5A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755741   (103592) от 18.10.2024
-
-Agoria - Unshadow (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teardrops (Don't Stop The Music) [00:03:40]
-02. Heart to Heart [00:03:22]
-03. Getaway [00:04:46]
-04. Olympe [00:03:13](   Читать дальше...   )Жанр: Progressive House, Deep House, TechnoПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F03622CF4CA1327CBE681DBDEB49BBA78BC55546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756081   (103565) от 19.10.2024
-
-VA - John Digweed - Live in (Stereo) (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Digweed – Live in Stereo Continuous Mix CD1 (01:17:20)
-02. John Digweed – Live in Stereo Continuous Mix CD2 (01:14:11)
-03. John Digweed – Live in Stereo Continuous Mix CD3 (01:15:39)
-04. John Digweed – Live in Stereo Continuous Mix CD4 (01:17:36)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 12:55:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A294F28D70324A8FF06BD3908F10C02BC58B66A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

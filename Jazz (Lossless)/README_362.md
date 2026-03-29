@@ -1,3 +1,119 @@
+###  Публикация: 1318666   (39502) от 23.10.2024
+
+Sarah Vaughan - Sassy Swings Again (1967) Mercury [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Georgia Brown [1:51]
+02. Take the 'A' Train [2:42]
+03. I Left My Heart in San Francisco [4:08]
+04. S'Posin' [3:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:507EBBCE06E28C732B694E3E977112E5AE6D2E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140938   (39501) от 23.10.2024
+
+Ann Hampton Callaway - From Sassy to Divine: The Sarah Vaughan Project (2014) Shanachie [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [00:09]
+02. I'm Gonna Live Till I Die [02:26]
+03. A Night in Tunisia (Interlude) [05:10]
+04. Misty [05:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80682075D02A0097B861DEC3BF856DA48A7D7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001444   (39500) от 23.10.2024
+
+Sarah Vaughan - Compact Jazz: Sarah Vaughan Live! (1987) Mercury[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sometimes I'm Happy [02:07]
+ 02.Honeysuckle Rose [03:45]
+ 03.Be Anything (But Me Mine) [04:56]
+ 04.All Of You [04:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5A1B431C9FBBF21A01E10E0C533185B555F135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756731   (39498) от 23.10.2024
+
+Steps Ahead - Magnetic (1986) 2013, Elektra [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trains [7:31]
+02. Beirut [8:18]
+03. Cajun [6:19]
+04. In a Sentimental Mood [3:36](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F896A220E23BA525F92A7E9580F6A113D17DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298413   (39496) от 23.10.2024
 
 Sarah Vaughan & Friends - A Night Of Sass & Brass (1986) 2006, Immortal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Sarah Vaughan & Friends - A Night Of Sass & Brass (1986) 2006, Immortal [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39496.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Sarah Vaughan - Complete Musicraft Master Takes (2000) 2CD, Jazz Factory [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39495.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Sarah Vaughan - A Time In My Life (1971) 1987, Mobile Fidelity Sound Lab [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39492.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Papik & Stefy Gamboni - Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39484.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Jazzamor - Reworks (20 Years of Jazzamor) (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39482.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Sarah Vaughan - The Jazz Collector Edition (1940-e) 1991, LaserLight [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39475.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Sarah Vaughan - The Essential Sarah Vaughan 1958 - 1964 (1992) Verve Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39467.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Gene Ludwig - Pat Martino Trio - Young Guns (1968, 1969) 2014, HighNote [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39461.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Boney James - Slow Burn (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39453.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Sarah Vaughan - The Divine One (1961) 2017, Hallmark [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39391.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Sarah Vaughan & Quincy Jones - You're Mine You (1962) 2016, Jazz Images [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39390.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Sarah Vaughan & Clifford Brown - Sarah Vaughan With Clifford Brown (1954) 2003, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39388.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Balduin - Electro Swing Instrumentals 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39372.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Joseph Capalbo, Vincent Nicotina, Kristin Chambers - Electro Swing 2 (2024) [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39369.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Hey Alan! - Electro Swing Sugar (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39363.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Mad Alice Productions - Latin Electro Swing (2024) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39361.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Sarah Vaughan - The Many Moods Of Sarah Vaughan (1961) 1998, Ember Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39359.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sarah Vaughan - The Singles Sessions (1990) Capitol [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39356.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Sarah Vaughan - In The Land Of Hi-Fi (1955) 2001, Universal [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39355.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Sarah Vaughan - Live in Berlin (1969) 2016, Jazzline [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39354.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Sarah Vaughan - The Definitive Sarah Vaughan (1954 - 1967) 2002, Verve Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39352.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Lee Konitz - In Paris And London (1995) Hobby & Work [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39285.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Lee Konitz - In Paris And London (1995) Hobby & Work [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61C42A917C6B2479738C84E4CB384D1D110EF7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757202   (39179) от 26.10.2024
-
-Melody Gardot - The Essential Melody Gardot (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby I'm A Fool (3:32)
-02. If The Stars Were Mine (2:50)
-03. C’est Magnifique (4:52)
-04. Morning Sun (5:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6285C537ED9BB9519792E1285FABB1DD75A1D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757445   (39071) от 27.10.2024
-
-Frank Sinatra With Quincy Jones And Orchestra - L.A. Is My Lady (1984) Deluxe Edition / 2024 Mix [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L.A. Is My Lady (2024 Mix)
-02. The Best Of Everything (2024 Mix)
-03. How Do You Keep The Music Playing (2024 Mix)
-04. Teach Me Tonight (2024 Mix)(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8046F8EA9ACE50B3ABCC5224DF0929581CFC2086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757553   (38989) от 28.10.2024
-
-Joy Frost - The Roaring 2020's (2024) [FLAC|Lossless|WEB-DL|tracks] <Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Don't You Do Right (3:27)
-02. What Girls Want (3:27)
-03. My Funny Valentine (4:03)
-04. Solitude (3:15)(   Читать дальше...   )Жанр: Crossover JazzПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BF5BC026C9A15E5999B3671DF37879B2C2846EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1757581   (38973) от 28.10.2024
-
-Sonny Red - Sonny Red (1971) 2017, Mainstream Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Song [5:54]
-02. Tears [7:19]
-03. Mustang [5:55]
-04. And Then Again [5:41](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6767F75FA2EB11AF9AAFF976D310E89BE3DB232
 ```
 
 https://mybot314.ru/tekegram_catalog/

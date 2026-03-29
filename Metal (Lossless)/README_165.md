@@ -1,3 +1,89 @@
+###  Публикация: 1167902   (412696) от 22.09.2017
+
+Belphegor - Totenritual (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Baphomet 				04:47
+02. 	The Devil's Son 			04:20
+03. 	Swinefever - Regent of Pigs 		04:50
+04. 	Apophis - Black Dragon 			06:12(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B2F81AB76F493AFAAFCF5C23171A5408566D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573432   (412666) от 31.08.2022
+
+Disfallen - The Echoing Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pale Contorted Apparition [00:05:15]
+02. Old Moon [00:08:17]
+03. Oblivion Beckons [00:07:22]
+04. Demon of Perpetual Night [00:06:05](   Читать дальше...   )Жанр: Death, Doom, Gothic MetalПродолжительность: 00:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CE6A6B3B3AD8DA553A6DBD2CF6DD2DAEF831184
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412980   (412028) от 02.10.2020
+
+Echolot - Destrudo (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_412028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frozen Dead Star [00:09:38]
+02. Orbital [00:09:23]
+03. Wind up North [00:19:33]Жанр: Doom MetalПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD5D489A4D9DBA8BE3C105E0E8F8BE8A04D5DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413126   (412023) от 02.10.2020
 
 Legion Of The Damned - Slaves Of The Shadow Realm (2019) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
@@ -6,7 +92,7 @@ Legion Of The Damned - Slaves Of The Shadow Realm (2019) [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412023.jpg" />
+  <img src="Z:/picture/008/save_picture_412023.jpg" />
 </div>
 
 
@@ -35,7 +121,7 @@ Legends Never Die - Rise and Awaken: An a Cryptic Ending Album (2020) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411918.jpg" />
+  <img src="Z:/picture/008/save_picture_411918.jpg" />
 </div>
 
 
@@ -64,7 +150,7 @@ Sarah Jezebel Deva - The Corruption Of Mercy (2011) [FLAC|Lossless]<Gothic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_411914.jpg" />
+  <img src="Z:/picture/005/save_picture_411914.jpg" />
 </div>
 
 
@@ -99,7 +185,7 @@ Accept - The Undertaker (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411741.jpg" />
+  <img src="Z:/picture/008/save_picture_411741.jpg" />
 </div>
 
 
@@ -126,7 +212,7 @@ VA - Gods Of Darkness (1997) [FLAC|Lossless|image + .cue] <Black Metal, Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411310.jpg" />
+  <img src="Z:/picture/008/save_picture_411310.jpg" />
 </div>
 
 
@@ -155,7 +241,7 @@ Acid Drinkers - Vile Vicious Vision (1993) [APE|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410614.jpg" />
+  <img src="Z:/picture/008/save_picture_410614.jpg" />
 </div>
 
 
@@ -184,7 +270,7 @@ Baskerville - Opus Aeternum (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410608.jpg" />
+  <img src="Z:/picture/008/save_picture_410608.jpg" />
 </div>
 
 
@@ -213,7 +299,7 @@ Blood of Indigo - Dawn of the Shaded World (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410548.jpg" />
+  <img src="Z:/picture/008/save_picture_410548.jpg" />
 </div>
 
 
@@ -242,7 +328,7 @@ Iced Earth - Incorruptible (2017) Japan [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410507.jpg" />
+  <img src="Z:/picture/008/save_picture_410507.jpg" />
 </div>
 
 
@@ -271,7 +357,7 @@ Oomph! - Ritual (2019) Limited Edition, Digipak [FLAC|Lossless|image + .cue] <In
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410218.jpg" />
+  <img src="Z:/picture/008/save_picture_410218.jpg" />
 </div>
 
 
@@ -300,7 +386,7 @@ Takezo - Reality Left Behind (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410113.jpg" />
+  <img src="Z:/picture/008/save_picture_410113.jpg" />
 </div>
 
 
@@ -329,7 +415,7 @@ Tonka - ...This Present Darkness... (2000) (Reissued-2002) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410109.jpg" />
+  <img src="Z:/picture/008/save_picture_410109.jpg" />
 </div>
 
 
@@ -358,7 +444,7 @@ Battling Delirium - Unknown Things (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410003.jpg" />
+  <img src="Z:/picture/008/save_picture_410003.jpg" />
 </div>
 
 
@@ -387,7 +473,7 @@ Amaranthe - Manifest (2020) Limited Edition [FLAC|Lossless|image + .cue] <Modern
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409669.jpg" />
+  <img src="Z:/picture/008/save_picture_409669.jpg" />
 </div>
 
 
@@ -416,7 +502,7 @@ Denner / Shermann - Satan's Tomb (2015) EP [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409656.jpg" />
+  <img src="Z:/picture/008/save_picture_409656.jpg" />
 </div>
 
 
@@ -445,7 +531,7 @@ Euphoreon - Ends of the Earth (2018) Japan [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409422.jpg" />
+  <img src="Z:/picture/008/save_picture_409422.jpg" />
 </div>
 
 
@@ -474,7 +560,7 @@ Redemption - Long Night's Journey Into Day (2018) Limited Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409315.jpg" />
+  <img src="Z:/picture/008/save_picture_409315.jpg" />
 </div>
 
 
@@ -503,7 +589,7 @@ Braindown - A World To Forget (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408871.jpg" />
+  <img src="Z:/picture/008/save_picture_408871.jpg" />
 </div>
 
 
@@ -532,7 +618,7 @@ Consumption - Necrotic Lust (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408870.jpg" />
+  <img src="Z:/picture/008/save_picture_408870.jpg" />
 </div>
 
 
@@ -561,7 +647,7 @@ Commoner - I (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408869.jpg" />
+  <img src="Z:/picture/008/save_picture_408869.jpg" />
 </div>
 
 
@@ -590,7 +676,7 @@ Corrupt Soul - Ancient Psychophony (2022) Compilation [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408865.jpg" />
+  <img src="Z:/picture/008/save_picture_408865.jpg" />
 </div>
 
 
@@ -619,7 +705,7 @@ Blind Guardian - The God Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408811.jpg" />
+  <img src="Z:/picture/008/save_picture_408811.jpg" />
 </div>
 
 
@@ -648,7 +734,7 @@ Nachtblut - Vanitas (2020) [FLAC|Lossless|image + .cue] <Dark Metal, Melodic Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408539.jpg" />
+  <img src="Z:/picture/008/save_picture_408539.jpg" />
 </div>
 
 
@@ -662,93 +748,6 @@ Nachtblut - Vanitas (2020) [FLAC|Lossless|image + .cue] <Dark Metal, Melodic Got
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2CE9FFB1E0EE3D53F03492BCE7DD45D75D72D95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325985   (408533) от 17.09.2019
-
-Tarja - In The Raw (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Promises (with Björn “Speed” Strid) (5:50)
-02. Goodbye Stranger (with Cristina Scabbia) (5:11)
-03. Tears in Rain (4:29)
-04. Railroad (4:00)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BF23D007548261B5941B5710DAB58D338DCBCFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067161   (408245) от 28.10.2016
-
-Testament - Brotherhood Of The Snake (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brotherhood Of The Snake 04:14
-02. The Pale King 04:51
-03. Stronghold 04:01
-04. Seven Seals 05:39(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5CECAA5FA90C92F0CD2F58B5BFF826E6FE47DAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413331   (408092) от 04.10.2020
-
-Amaranthe - Manifest (2020) Nuclear Blast Records [FLAC|WEB-DL|tracks] <Modern Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fearless [00:03:31]
-02. Make It Better [00:03:50]
-03. Scream My Name [00:03:03]
-04. Viral [00:03:01](   Читать дальше...   )Жанр: Modern Melodic MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:447D74FE9A3B11295ABC7978542FCDE0250D2B43
 ```
 
 https://mybot314.ru/tekegram_catalog/

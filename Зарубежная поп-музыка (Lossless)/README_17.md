@@ -1,3 +1,204 @@
+###  Публикация: 1494363   (888828) от 07.09.2021
+
+VA - Italian Best Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zucchero - Senza Una Donna (Original Italian Version) (04:27)
+02. Gianluca Grignani - La Mia Storia Tra Le Dita (05:09)
+03. Vasco Rossi - E... (Remastered 2017) (03:29)
+04. Franco Battiato - Centro Di Gravità Permanente (Remastered) (03:59)(   Читать дальше...   )Жанр: PopПродолжительность: 03:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A734CF6B099792E042AB71804C1D770380C70751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494537   (887739) от 08.09.2021
+
+VA - Summer Break 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_887739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - Peaches (03:18)
+02. Sam Smith - Like I Can (02:46)
+03. Kungs - This Girl (Kungs Vs. Cookin' On 3 Burners) (03:15)
+04. Sera - Only Us (03:07)(   Читать дальше...   )Жанр: PopПродолжительность: 01:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0333A89A3C1F1FD9C47E66EDDC29CE1D7544E87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994796   (886519) от 10.03.2016
+
+Richard Sanderson - Anytime At All (1990) [APE|Lossless|image + .cue] <Europop, Synth Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anytime At All
+02. When The Night Comes
+03. To Be With You
+04. I Do Ecologise(   Читать дальше...   )Жанр: Europop, Synth Pop, BalladПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:698EB5C823605675079CCAE980984CAA789CE965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870414   (886051) от 18.02.2015
+
+VA - Pure... 80s Dance Party (2011) [FLАС|Lоssless]<Pop, Electronic, Rock, Funk & Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nena - 99 Red Balloons (1983) - 3:51
+02. Daryl Hall & John Oates - Maneater (Edited Version) (1982) - 4:00
+03. Prefab Sprout - The King Of Rock 'n' Roll (1988) - 4:23
+04. Modern Talking - You're My Heart, You're My Soul (Original No. 1 Mix '84) (1984) - 3:21(   Читать дальше...   )Жанр: Pop, Electronic, Rock, Funk / Soul, Pop, Italo-Disco, Pop Rap, Disco, Hi NRG, New Wave, Synthpop, Rock & Roll, Pop RockПродолжительность: 04:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:025C2928058370473990A632355F4FE65B36E183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870399   (886047) от 18.02.2015
+
+VA - Pure... 70s Dance Party (2011) [FLАС|Lоssless]<Pop, Rock, Funk / Soul, Europop, Rock & Roll, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billy Ocean - Red Light Spells Danger (1977) - 3:32
+02. Daryl Hall & John Oates - Rich Girl (1976) - 2:25
+03. Odyssey - Native New Yorker (1977) - 3:27
+04. Melba Moore - This Is It (1976) - 3:30(   Читать дальше...   )Жанр: Pop, Rock, Funk / Soul, Europop, Rock & Roll, Pop Rock, DiscoПродолжительность: 04:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC5E3BEA1FC87F65766A69C79B5814E6547F29C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870276   (885996) от 18.02.2015
+
+VA - Pure... 80s Remixes (2014) [FLАС|Lоssless]<Pop, Electronic, Dancepop, Hi NRG, Disco, Funk / Soul, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_885996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nena - 99 Red Balloons (Club Mix) - 4:44
+02. Men At Work - Down Under (Extended Mix) - 5:24
+03. A Flock Of Seagulls - I Ran (Album Version) - 5:02
+04. B.A.D. (Big Audio Dynamite) - E = MC² (Extended Remix) - 6:28(   Читать дальше...   )Жанр: Pop, Electronic, Dancepop, Hi NRG, Disco, Danceflor, Funk / Soul, New Wave, Synthpop, Pop RockПродолжительность: 05:04:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC79D3C6DB0DE1BA8373996C10C41DEB4EA54DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103420   (885808) от 12.02.2017
+
+Kinnie Lane - V (2017) [FLAC|Lossless|tracks] <Pop, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_885808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je te suivrai
+02. Heartbreaker (feat. Loup)Жанр: Pop, Female VocalПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A308A31164163F682682C566DEDA3C54ACD43949
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372505   (885618) от 03.04.2020
 
 Tops - I Feel Alive (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -6,7 +207,7 @@ Tops - I Feel Alive (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885618.jpg" />
+  <img src="Z:/picture/005/save_picture_885618.jpg" />
 </div>
 
 
@@ -35,7 +236,7 @@ Anna Burch - If You're Dreaming (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885456.jpg" />
+  <img src="Z:/picture/005/save_picture_885456.jpg" />
 </div>
 
 
@@ -64,7 +265,7 @@ P!nk (Pink) - I'm Not Dead (2006) [FLAC|Lossless|tracks + .cue]<Pop, Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885401.jpg" />
+  <img src="Z:/picture/005/save_picture_885401.jpg" />
 </div>
 
 
@@ -93,7 +294,7 @@ Stephanie - Stephanie (1991) [FLAC|Lossless|tracks] <Pop, Synth-pop, Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884611.jpg" />
+  <img src="Z:/picture/005/save_picture_884611.jpg" />
 </div>
 
 
@@ -122,7 +323,7 @@ Belinda Carlisle - California (1997) [FLAC|Lossless] <Pop Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884443.jpg" />
+  <img src="Z:/picture/005/save_picture_884443.jpg" />
 </div>
 
 
@@ -151,7 +352,7 @@ Mandy - Mandy (1988) [FLAC|Lossless|image + .cue] <Europop, Synth-Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884399.jpg" />
+  <img src="Z:/picture/005/save_picture_884399.jpg" />
 </div>
 
 
@@ -180,7 +381,7 @@ Stephanie - Stephanie (1986) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884243.jpg" />
+  <img src="Z:/picture/005/save_picture_884243.jpg" />
 </div>
 
 
@@ -209,7 +410,7 @@ VA - Pure... 90s Dance Party (2010) Box Set, 4CD [FLAC|Lossless]<Dance, Pop, Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884193.jpg" />
+  <img src="Z:/picture/005/save_picture_884193.jpg" />
 </div>
 
 
@@ -239,7 +440,7 @@ Francisca Valenzuela - La Fortaleza (2020) [FLAC|Lossless|WEB-DL|tracks] <Latin,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883618.jpg" />
+  <img src="Z:/picture/005/save_picture_883618.jpg" />
 </div>
 
 
@@ -268,7 +469,7 @@ Purity Ring - WOMB (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Indie Po
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883610.jpg" />
+  <img src="Z:/picture/005/save_picture_883610.jpg" />
 </div>
 
 
@@ -297,7 +498,7 @@ Hermes House Band - No.1 Gold Selection (Greatest Hits) (2006) [FLAC|Lossless|tr
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883514.jpg" />
+  <img src="Z:/picture/005/save_picture_883514.jpg" />
 </div>
 
 
@@ -326,7 +527,7 @@ VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swin
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882844.jpg" />
+  <img src="Z:/picture/005/save_picture_882844.jpg" />
 </div>
 
 
@@ -355,7 +556,7 @@ VA - Pure... Crooners (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Vocal Pop, AM Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882698.jpg" />
+  <img src="Z:/picture/005/save_picture_882698.jpg" />
 </div>
 
 
@@ -385,7 +586,7 @@ Tanita Tikaram - Closer To The People (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882582.jpg" />
+  <img src="Z:/picture/005/save_picture_882582.jpg" />
 </div>
 
 
@@ -414,7 +615,7 @@ Lady Gaga - Dawn Of Chromatica (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Remixes,
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882299.jpg" />
+  <img src="Z:/picture/005/save_picture_882299.jpg" />
 </div>
 
 
@@ -443,7 +644,7 @@ VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881216.jpg" />
+  <img src="Z:/picture/005/save_picture_881216.jpg" />
 </div>
 
 
@@ -472,7 +673,7 @@ Spagna - Dedicated To The Moon (1987) 1988, Epic International (Tokyo Japan) [FL
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881080.jpg" />
+  <img src="Z:/picture/005/save_picture_881080.jpg" />
 </div>
 
 
@@ -501,7 +702,7 @@ Sam Bailey - The Power Of Love (2014) Величайшие хиты XX века 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880344.jpg" />
+  <img src="Z:/picture/005/save_picture_880344.jpg" />
 </div>
 
 
@@ -530,7 +731,7 @@ Billie Eilish - When We All Fall Asleep, Where Do We Go? (2020) Target Exclusive
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880102.jpg" />
+  <img src="Z:/picture/005/save_picture_880102.jpg" />
 </div>
 
 
@@ -544,209 +745,6 @@ Billie Eilish - When We All Fall Asleep, Where Do We Go? (2020) Target Exclusive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D292ED3FA67FF48207BF0D297DB8434D7B045C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373229   (880050) от 06.04.2020
-
-Billie Eilish - Dont Smile At Me (2018) EP, Japan Limited Edition [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. COPYCAT (3:15)
- 02. idontwannabeyouanymore (3:24)
- 03. my boy (2:51)
- 04. watch (2:58)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3061AD4B5EEF99ED9AE753BD91EDEB71F8D93FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764183   (879623) от 09.03.2014
-
-VA - BBC Radio 1's Live Lounge (2013) Deluxe Version [FLAC|Lossless]<Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella Eyre; Rudimental -  Waiting All Night  (4:23)
-02. Arctic Monkeys -  Hold On, We're Going Home  (3:20)
-03. Bastille -  Pompeii  (3:28)
-04. Naughty Boy; Sam Smith -  La La La  (3:39)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:14:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4EED9CFA8BBE07EA90FB7772F0758BBB889772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996335   (879285) от 14.03.2016
-
-Yazz - Wanted (1988) [FLAC|Lossless|image + .cue] <Dance, Funk, Acid House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Only Way Is Up
-02. Where Has All The Love Gone?
-03. Got To Share
-04. Fine Time(   Читать дальше...   )Жанр: Dance, Funk, Acid HouseПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA7A5DD802E2E02AEABA57B23A8317E18BF6E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996298   (879087) от 14.03.2016
-
-Bomb The Bass - Into The Dragon (1988) [APE|Lossless|image + .cue] <Dance, Acid House, Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beat Dis (7' U.S. Mix) (4:23)
-02. Megablast Rap (Version feat. Merlin) (6:29)
-03. On The Cut (4:07)
-04. Don't Make Me Wait (7' Mix feat. Lauraine) (3:44)(   Читать дальше...   )Жанр: Dance, Acid House, Hip HopПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983F428E342510EEC286E98674C58DF1A01AD3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996654   (877569) от 15.03.2016
-
-Freiheit - Fantasy (1988) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keeping The Dream Alive (Single Version) [04:16]
-02. Kissed You In The Rain [03:48]
-03. Diana [04:17]
-04. The Land Of Fantasy [04:55](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17FA75E15E67B17B6373C90A4D7D8B31E91E033C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996763   (877323) от 15.03.2016
-
-Fun Fun - Greatest Fun - The Best Of (1994) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop, Italodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа, в которой начинала свою карьеру 30-летняя Spagna в качестве вокалистки и автора песен. Слабее, конечно, материал, но есть достаточно известные и популярные треки.01. Happy Station (Remix) (Remixed By Ben Liebrand) 3:16
-02. Give Me Your Love (Remixed By Ben Liebrand) 3:53
-03. Sing Another Song 3:29
-04. Tell Me 3:47(   Читать дальше...   )Жанр: Italo-Disco, Synth-pop, ItalodanceПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25699B89AA884855997AF7A8660B29CE9E81EF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495483   (875964) от 15.09.2021
-
-Aly & AJ - A Touch of the Beat Gets You Up on Your Feet Gets You Out and Then Into the Sun (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Places [00:05:19]
-02. Lost Cause [00:03:15]
-03. Break Yourself [00:03:17]
-04. Slow Dancing [00:04:27](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088E70013B6609CA0EFAFDC80DEC45529D32563A
 ```
 
 https://mybot314.ru/tekegram_catalog/

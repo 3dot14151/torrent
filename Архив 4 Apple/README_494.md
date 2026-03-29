@@ -1,3 +1,111 @@
+###  Публикация: 1266071   (245018) от 01.12.2018
+
+VideoDuke 1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
+
+Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши! Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2018Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A72EBE768BE5546C0A950D7C2BB953324F1E820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525887   (245017) от 22.01.2022
+
+URL Manager Pro 5.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245017.jpg" />
+</div>
+
+
+###  Подробнее
+
+URL Manager Pro  - менеджер закладок для браузеров
+URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
+Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2022 Alco BlomПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA2F118D19151AA32DE341B3AB9E4832C587F8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525882   (245008) от 22.01.2022
+
+DiskCatalogMaker 8.4.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245008.jpg" />
+</div>
+
+
+###  Подробнее
+
+DiskCatalogMaker  - простая утилита для управления и каталогизации дисков. Приложение умеет сканировать содержимое восьми типов архивов и создавать предпросмотр для графических, видео и текстовых файлов.  Поиск по каталогам можно проводить по различным параметрам, но высокой скоростью он не отличается. Присутствует интеграция с Roxio Toast (новый диск после записи (   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 22.01.2022Разработчик: © 2022 Fujiwara SoftwareПоддерживаемая ОС: macOS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FAE303738985F62BC19056416B11CE558F0C81E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526153   (244995) от 23.01.2022
+
+BackupLoupe 3.5.4 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244995.jpg" />
+</div>
+
+
+###  Подробнее
+
+BackupLoupe — это альтернативный графический интерфейс для Time Machine. По своей сути он предоставляет интерфейс, похожий на Finder, где вы можете выбрать snapshot, и он покажет вам, что было зарезервировано.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2022Разработчик: © 2009–2022 soma-zoneПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDFDCC89608F360622DA27C12C55C982FFE90EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266047   (244991) от 01.12.2018
 
 Librarian Pro 4 v4.0.8 [En]
@@ -6,7 +114,7 @@ Librarian Pro 4 v4.0.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244991.jpg" />
+  <img src="Z:/picture/004/save_picture_244991.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ CryptoEdit 2 v.2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244990.jpg" />
+  <img src="Z:/picture/004/save_picture_244990.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Ammonite 1.22.2 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244987.jpg" />
+  <img src="Z:/picture/004/save_picture_244987.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ EdgeView 3 v3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244965.jpg" />
+  <img src="Z:/picture/004/save_picture_244965.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ CleanMyMac X 4.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244961.jpg" />
+  <img src="Z:/picture/004/save_picture_244961.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ Foldor 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244927.jpg" />
+  <img src="Z:/picture/004/save_picture_244927.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ Nitro PDF Pro 13.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244921.jpg" />
+  <img src="Z:/picture/004/save_picture_244921.jpg" />
 </div>
 
 
@@ -188,7 +296,7 @@ PatterNodes 1.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244834.jpg" />
+  <img src="Z:/picture/004/save_picture_244834.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ Fission 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244684.jpg" />
+  <img src="Z:/picture/004/save_picture_244684.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ Infuse PRO 7 v7.3.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244661.jpg" />
+  <img src="Z:/picture/004/save_picture_244661.jpg" />
 </div>
 
 
@@ -269,7 +377,7 @@ Multitouch 1.24.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244633.jpg" />
+  <img src="Z:/picture/004/save_picture_244633.jpg" />
 </div>
 
 
@@ -295,7 +403,7 @@ Scrutiny 10 v10.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244627.jpg" />
+  <img src="Z:/picture/004/save_picture_244627.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ Dropshare 5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244619.jpg" />
+  <img src="Z:/picture/004/save_picture_244619.jpg" />
 </div>
 
 
@@ -349,7 +457,7 @@ Sketch 83.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244587.jpg" />
+  <img src="Z:/picture/004/save_picture_244587.jpg" />
 </div>
 
 
@@ -375,7 +483,7 @@ Screens 4 v4.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244586.jpg" />
+  <img src="Z:/picture/004/save_picture_244586.jpg" />
 </div>
 
 
@@ -401,7 +509,7 @@ iTubeGo YouTube Downloader Pro for Mac 6.9.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244554.jpg" />
+  <img src="Z:/picture/004/save_picture_244554.jpg" />
 </div>
 
 
@@ -428,7 +536,7 @@ Bootstrap Studio 5.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244553.jpg" />
+  <img src="Z:/picture/004/save_picture_244553.jpg" />
 </div>
 
 
@@ -456,7 +564,7 @@ Logicly 1.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244550.jpg" />
+  <img src="Z:/picture/004/save_picture_244550.jpg" />
 </div>
 
 
@@ -485,7 +593,7 @@ Time Sink 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244538.jpg" />
+  <img src="Z:/picture/004/save_picture_244538.jpg" />
 </div>
 
 
@@ -512,7 +620,7 @@ Blur n Bokeh 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244465.jpg" />
 </div>
 
 
@@ -539,7 +647,7 @@ Metasequoia 4 v4.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244358.jpg" />
 </div>
 
 
@@ -565,7 +673,7 @@ Airtool 2 v2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244349.jpg" />
 </div>
 
 
@@ -576,113 +684,6 @@ Airtool 2 v2.2.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA108C34A2D0B3F7C6DADC95B0290C81B488F913
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452777   (244311) от 07.03.2021
-
-Templates for Pages – DesiGN 7.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткий взгляд на резюме - это все, что нужно потенциальному работодателю для формирования мнения! Шаблоны Resume Lab for Pages от компании Jumsoft предоставляют множество видов резюме, чтобы вы могли представить себя с профессиональным, привлекающим внимание и запоминающимся резюме, для привлечения внимания вашего потенциального работодателя.
-Разнообразие стилей (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2021Разработчик: JumsoftПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939C673C06BDE19129BBE0ACBF1F2FA3E191BC10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622539   (244310) от 29.03.2023
-
-ScreenFlow 10.0.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244310.jpg" />
-</div>
-
-
-###  Подробнее
-
-ScreenFlow - создаем свои скринкасты
-Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его «свежекупленном» маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
-Простая, но крайне мощная утилита для захвата и записи видео (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2023Разработчик: © 2022 Telestream, Inc.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16EEA657496FA2F2139448AFF5BE2235948922CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535345   (244285) от 06.03.2022
-
-Boxy SVG 3  v3.78.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244285.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 05.03.2022Разработчик: © 2012-2022 Jaroslaw FoksaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89F11B49EF0C1EAA9A9238344B5956CB8200C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454062   (244284) от 13.03.2021
-
-Data Guardian 6 v.6.0.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безопасность и секретность — вот одни из наиболее важнейших вопросов в сегодняшнем мире. Это безопасная база данных, использующая 448-битный алгоритм Blowfish для шифрования и хранения ваших данных, не зависимо от уровня их важности. В этом приложении вы можете создавать множество баз данных, используя их для широкого ряда таких задач, как ведение адресной книги, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2021Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6706FE772E21229C7D41E51C443399911040DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

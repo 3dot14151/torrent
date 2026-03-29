@@ -1,3 +1,108 @@
+###  Публикация: 1677150   (153462) от 16.11.2023
+
+Шота Руставели | Витязь в тигровой шкуре (2004) [MP3, Владимир Самойлов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: Литературные чтения.
+Поэма грузинского поэта XII века Шота Руставели «Витязь в тигровой шкуре» – одна из величайших поэм мировой литературы. Предвосхищая гуманистические идеи раннего Возрождения, автор противопоставляет церковно-аскетической морали свободу личности, воспевает возвышенную любовь, товарищество, патриотизм, демонстрируя глубокое проникновение (   Читать дальше...   )Жанр: Классика мировой поэзии, эпическая поэмаИздательство: Студия «АРДИС»Продолжительность: 08:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C156896C412149A6BEC2F18DD72441B57CE4FBB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677152   (153385) от 16.11.2023
+
+Шота Руставели | Витязь в барсовой шкуре (2013) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это поэма о любви, на которую лишь отдалённо похожи земные страсти. Это также рассказ о дружбе, перед которой отступает самая горячая любовь. Константин Бальмонт, считая Шота Руставели венценосцем в веках, первым перевёл «Витязя в барсовой шкуре» на русский язык, он первый познакомил русских читателей с грузинской любовной песней, пронзённой, по его выражению, солнечным (   Читать дальше...   )Жанр: Классика мировой поэзии, поэмаИздательство: МедиаКнигаПродолжительность: 10:27:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0951E099C8B3794C9AB5F6D2FC05270B80736095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085613   (153280) от 24.12.2016
+
+Генрих Бёлль | Пересадка (1988) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хрантокс Донат случайно делает пересадку в городке, в котором родился и из которого бежал много лет назад. Бежал, покинув брата, верившего только в него одного, покинув девушку, которая его любила. Сейчас он одинок. Узнав, что любимая девушка жива, он звонит ей по телефону. Но она не хочет его видеть - он давно для нее мертв.Жанр: Радиоспектакль, драмаПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A6750272FE9D931FDF4DC13964848998E12ED76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085516   (153247) от 24.12.2016
+
+Генрих Бёлль | Глазами клоуна (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153247.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Глазами клоуна" - один из самых известных романов Генриха Бёлля. Грустная и светлая книга - история одаренного, тонко чувствующего человека, который волею судеб оказался в одиночестве и заново пытается переосмыслить свою жизнь.Жанр: Зарубежная проза, драмаПродолжительность: 10:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7000AD48EE26A62577ACC255E6E6E13CD8E837E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085548   (152901) от 24.12.2016
 
 Эдгар Аллан По | Маска красной смерти [Сборник] (2005) [MP3, Кирилл Гребенщиков]
@@ -6,7 +111,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152901.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152549.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152538.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152478.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152374.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151990.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151913.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151855.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151414.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151356.jpg" />
 </div>
 
 
@@ -274,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151252.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151133.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150944.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150848.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150733.jpg" />
 </div>
 
 
@@ -408,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150624.jpg" />
 </div>
 
 
@@ -437,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150555.jpg" />
 </div>
 
 
@@ -466,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150548.jpg" />
 </div>
 
 
@@ -493,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150129.jpg" />
 </div>
 
 
@@ -521,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149975.jpg" />
 </div>
 
 
@@ -549,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148552.jpg" />
 </div>
 
 
@@ -575,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148311.jpg" />
 </div>
 
 
@@ -586,113 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80D965590F9D715103409A79E01DB75A72958279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678111   (147821) от 20.11.2023
-
-Гастон Леру | Человек, который видел дьявола (2021) [MP3, Александр Бордуков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гастон Леру (1868–1927) – французский писатель, один из основоположников детективного жанра. Его романы по праву завоевали огромную популярность, а сыщик-любитель Жозеф Рультабий не без основания считается прототипом целой плеяды легендарных героев частного сыска.
-
-Заветная мечта всех игроков – не знать проигрыша, на деле может оказаться настоящим проклятьем. Подтверждение (   Читать дальше...   )Жанр: Зарубежная литература, классика, мистический рассказИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B201C83B7FB7AFFB7689EAC8E0D12C529273F2CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678201   (147506) от 20.11.2023
-
-Александр Дюма | Учитель фехтования (2023) [MP3, Андрей Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиостудия «Ардис» представляет один из первых исторических романов Александра Дюма «Учитель фехтования», написанный в 1840 году. Учитель фехтования Грезье передаёт Александру Дюма свои записи, сделанные во время поездки в Россию. В них рассказывается, как он поехал в Санкт-Петербург и начал преподавать уроки фехтования. Все его ученики – будущие декабристы…...Жанр: ПриключенияИздательство: АрдисПродолжительность: 06:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B78035EC72BD903B08F61E914EBFC9162D8715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 348758   (146665) от 20.11.2023
-
-Гастон Леру | Призрак Оперы (2005) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гастон Леру (1868–1927) – французский писатель, один из основоположников детективного жанра. Его романы по праву завоевали огромную популярность, а сыщик-любитель Жозеф Рультабий не без основания считается прототипом целой плеяды легендарных героев частного сыска.
-«Призрак Оперы действительно существовал» – он не был плодом суеверного воображения артистов и директоров, (   Читать дальше...   )Жанр: Зарубежная литература, классика, детектив, романПродолжительность: 12:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57390B1A264EF781BF01CC010EB1E370D1E0CA53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678546   (146118) от 21.11.2023
-
-Жозеф Бедье | Роман о Тристане и Изольде (2010) [MP3, Анатолий Фролов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый роман французского литературоведа и писателя Жозефа Бедье основан на средневековых сказаниях о любви отважного рыцаря Тристана и златовласой красавицы Изольды. Тристан поклялся своему государю - королю Марку привезти из-за моря его избранницу, принцессу Изольду, а мать Изольды приготовила любовный напиток для молодоженов, и тем, кто его испьет, суждено (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: 1С-Паблишинг, МедиаКнигаПродолжительность: 06:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BD056B3A75102BB81B5D70F79A0D080F7A3968
 ```
 
 https://mybot314.ru/tekegram_catalog/

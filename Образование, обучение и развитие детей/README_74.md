@@ -1,3 +1,55 @@
+###  Публикация: 1591293   (187062) от 18.11.2022
+
+В.К. Болховитинов, Б.И. Колтовой, И.К. Лаговский | Твое свободное время. Занимательные задачи, опыты, игры (1975) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга — сборник задач, игр и опытов. Многие из них относятся к новым, разработанным авторами, типам задач. Они в свое время были опубликованы в журналах «Техника — молодежи» (1945—1956 гг.), «Юный техник» (1956—1961 гг ), «Наука и жизнь» (1961—1965 гг.). При составлении сборника использованы также задачи и идеи задач, публиковавшихся в различных иностранных журналах (   Читать дальше...   )Жанр: Занимательные задачи, опыты, игрыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEA69E5C598D14A91295B2B1694609D96E902CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662904   (187044) от 20.09.2023
+
+И.А. Мамзелев, Г.Г. Капелин | Основы радиоэлектроники (1978) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебное пособие написано в соответствии с программой факультативного курса «Радиоэлектроника» для учащихся 7—8 классов общеобразовательных школ.Жанр: ЭлектроникаИздательство: ПросвещениеФормат: DJVUКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED131E1ECFEEAA71C4F050AE8A55C5707457927A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663458   (186763) от 21.09.2023
 
 А.Д. Александров, А.Л. Вернер, В.И. Рыжик | Геометрия. 6 класс (1984) [DJVU]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186763.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186559.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_186347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186347.jpg" />
 </div>
 
 
@@ -86,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185819.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185381.jpg" />
+  <img src="Z:/picture/004/save_picture_185381.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185087.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183988.jpg" />
+  <img src="Z:/picture/004/save_picture_183988.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_182372.jpg" />
+  <img src="Z:/picture/005/save_picture_182372.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180482.jpg" />
+  <img src="Z:/picture/005/save_picture_180482.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180058.jpg" />
+  <img src="Z:/picture/005/save_picture_180058.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180037.jpg" />
+  <img src="Z:/picture/005/save_picture_180037.jpg" />
 </div>
 
 
@@ -299,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179666.jpg" />
 </div>
 
 
@@ -325,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179375.jpg" />
+  <img src="Z:/picture/005/save_picture_179375.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179292.jpg" />
+  <img src="Z:/picture/005/save_picture_179292.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179277.jpg" />
+  <img src="Z:/picture/005/save_picture_179277.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179251.jpg" />
+  <img src="Z:/picture/005/save_picture_179251.jpg" />
 </div>
 
 
@@ -436,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178607.jpg" />
 </div>
 
 
@@ -462,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178485.jpg" />
+  <img src="Z:/picture/005/save_picture_178485.jpg" />
 </div>
 
 
@@ -488,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178268.jpg" />
+  <img src="Z:/picture/005/save_picture_178268.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178189.jpg" />
+  <img src="Z:/picture/005/save_picture_178189.jpg" />
 </div>
 
 
@@ -540,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178138.jpg" />
+  <img src="Z:/picture/005/save_picture_178138.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177967.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177503.jpg" />
+  <img src="Z:/picture/005/save_picture_177503.jpg" />
 </div>
 
 
@@ -622,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176844.jpg" />
+  <img src="Z:/picture/005/save_picture_176844.jpg" />
 </div>
 
 
@@ -635,58 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:505C1B6C5CD71EBA213E2690758C6FD43C3F57C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430615   (173680) от 10.12.2020
-
-Наталья Малофеева | Большая книга самых интересных фактов (2012) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173680.jpg" />
-</div>
-
-
-###  Подробнее
-
-На каждой из страниц этой удивительной книги вы найдете рассказы о, казалось бы, самых обычных предметах и явлениях, которые нас окружают. Но рассказы не простые, а полные удивительных фактов, раскрывающих загадки и позволяющих по-новому взглянуть на мир вокруг. Вы узнаете, кто придумал зонтик и почему плюшевого медвежонка зовут Тедди, где на нашей планете чаще всего (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EC2F16DB090C6523CC04BA03E40C6210D4BA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827192   (173586) от 20.10.2025
-
-А.В. Пёрышкин | Физика. Учебник для 7 класса - 2022 (2022) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник физики для 7 класса доработан в соответствии с федеральным государственным образовательным стандартом (второго поколения). Издание включает разделы: "Введение", "Первоначальные сведения о строении вещества", "Взаимодействие тел", "Давление твёрдых тел, жидкостей и газов", "Работа и мощность. Энергия", а также (   Читать дальше...   )Жанр: УчебникИздательство: ЭкзаменФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B168C120BA6F9C6BD7BAB1A0C6610C06716678F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

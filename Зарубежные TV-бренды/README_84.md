@@ -1,3 +1,107 @@
+###  Публикация: 1248740   (439625) от 21.09.2018
+
+BBC. Тайные агенты Елизаветы I / Elizabeth I's Secret Agents (2017) SATRip (1-3 серия из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_439625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во времена королевы Елизаветы I Англия была охвачена междоусобицами. В стране царили хаос и кровопролитие. Несмотря на это, Елизавета правила более сорока лет. За годы правления она пережила четырнадцать покушений. Но первая в мире тайная служба под началом отца и сына Сесилов, всегда вселяла уверенность в королеву. Им, людям исключительного ума и смелости - была (   Читать дальше...   )Производство: Великобритания, ВВС, 72 Films, BBC TwoЖанр: Документальный, история, реконструкцияРежиссер: Крис ДурлахерПеревод: Документальный дубляж студии «СВ-Дубль» (голос рассказчика - дубляж, интервью - двухголосый закадровый перевод)Продолжительность: х ~ 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA01DCFFA1B0B91AEF6CDBA394B8A4DE302DD22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249323   (435147) от 23.09.2018
+
+NGW: Дикое королевство / Savage Kingdom (2016) HDTV [H.264/1080i-LQ] (сезон 1, серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в Ботсване, в парке, который населён опасными хищными животными. Каждый день они вынуждены вести борьбу за своё существование, используя не только ловкость, но и хитрость. Реальные истории из жизни безжалостных хищников и тех, на кого они охотятся. Их жизнь полна нешуточных страстей: соперничества, предательства, сражений, борьбы и триумфов.Производство: США, Icon Productions, National Geographic WildЖанр: Документальный, природа, флора, фаунаРежиссер: Брэд БестелинкПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 6 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5967748F6E2F8C0342D5D0DDFE72080180340D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249419   (435144) от 23.09.2018
+
+Discovery: Первые обитатели Америки / America's First Nations (2010) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далеких 500 лет назад высадившиеся с кораблей французские первопроходцы, оказавшись в северо-восточных дремучих лесах Америки, встретили племена аборигенов, которых прозвали «ирокезами». Конгломерат племен управлял громадной территорией, на которой ныне располагаются Онтарио, Квебек и штат Нью-Йорк. Кроме физических данных лесных гигантов, французы были поражены (   Читать дальше...   )Производство: США, Half Yard Productions, Discovery Channel LLCЖанр: Документальный, познавательный, история, реконструкцияРежиссер: Кристофер ГолдингПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45975FEADDBA46120F5DB32C9E8205C82E1B8F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249282   (435139) от 23.09.2018
+
+History Channel. Титаник: Тайна раскрыта / Titanic at 100: Mystery Solved (2012) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из всех обломков на океанском дне, нет более загадочных или притягательных, чем "Титаник", который знают все благодаря книгам, фильмам и телевидения. Но существует другой "Титаник", который еще никто не видел. Мы до сих пор не знаем местонахождения половины обломков. До сегодняшнего момента никто и никогда раньше не составлял детальную схему катастрофы (   Читать дальше...   )Производство: США, Lone Wolf Documentary Group, History ChannelЖанр: Документальный, историяРежиссер: Тони Бэкон, Рашмор ДеНоиерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B78D7B27E19C748B8419ECAF03F169A2EC46FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249346   (434953) от 23.09.2018
 
 NGW: Волчья династия Йеллоустоуна / Yellowstone Wolf Dynasty (2018) HDTV [H.264/1080i-LQ] (2 фильма)
@@ -6,7 +110,7 @@ NGW: Волчья династия Йеллоустоуна / Yellowstone Wolf D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434953.jpg" />
+  <img src="Z:/picture/008/save_picture_434953.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG: Наши невидимые спутники / Bug Brother (2007) HDTVRip [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_434704.jpg" />
+  <img src="Z:/picture/005/save_picture_434704.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC. История Христианства / A History of Christianity (2009) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434606.jpg" />
+  <img src="Z:/picture/008/save_picture_434606.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433472.jpg" />
+  <img src="Z:/picture/008/save_picture_433472.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ BBC: История хирургии.  Кровавое начало [5 из 5] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433148.jpg" />
+  <img src="Z:/picture/008/save_picture_433148.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Discovery: Прежде чем мы покорили Землю / Before We Rule
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432893.jpg" />
+  <img src="Z:/picture/008/save_picture_432893.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ Discovery. Техногеника. Шагающий экскаватор (2016) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432153.jpg" />
+  <img src="Z:/picture/008/save_picture_432153.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431569.jpg" />
+  <img src="Z:/picture/008/save_picture_431569.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ BBC Horizon: Человек на Марсе. Экспедиция на крас�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431279.jpg" />
+  <img src="Z:/picture/008/save_picture_431279.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NGW: Волк против медведя / Wolf vs. Bear (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431043.jpg" />
+  <img src="Z:/picture/008/save_picture_431043.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG. Пропавшие города Амазонии: Легенда стано�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430738.jpg" />
+  <img src="Z:/picture/008/save_picture_430738.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG: Зыбучие пески: невидимая опасность / Danger Qu
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430550.jpg" />
+  <img src="Z:/picture/008/save_picture_430550.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ History Channel: Большая история / Big History (2013) HDTVRip [H.2
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430190.jpg" />
+  <img src="Z:/picture/008/save_picture_430190.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429345.jpg" />
+  <img src="Z:/picture/008/save_picture_429345.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429280.jpg" />
+  <img src="Z:/picture/008/save_picture_429280.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Мыши
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428933.jpg" />
+  <img src="Z:/picture/008/save_picture_428933.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ BBC: Супервулкан / BBC: Supervolcano (2005) HDTV [1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_428639.jpg" />
+  <img src="Z:/picture/005/save_picture_428639.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ Discovery. Взгляд изнутри / Inside West Coast Customs (2017) HDTV [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427220.jpg" />
+  <img src="Z:/picture/008/save_picture_427220.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427047.jpg" />
+  <img src="Z:/picture/008/save_picture_427047.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426998.jpg" />
+  <img src="Z:/picture/008/save_picture_426998.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ NGW: Дикая природа Аргентины. Безжалостные го
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426880.jpg" />
+  <img src="Z:/picture/008/save_picture_426880.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ BBC: Новая Европа с Майклом Пэйлином / New Europe Wit
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426662.jpg" />
+  <img src="Z:/picture/005/save_picture_426662.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ BBC: Новая Европа с Майклом Пэйлином / New Europe Wit
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166341   (426275) от 16.09.2017
-
-Императорский дворец в Киото. Красота, неподвластная времени / Kyoto Imperial Palace. Beauty Hidden for a Thousand Years (2015) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426275.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сердце Киото есть почитаемое место, полное величия. Это императорский дворец. Его возраст измеряется тысячей лет. Дворец в Киото долго находился в центре японской истории. Здесь была сосредоточена вся власть в стране, здесь жили государи. Стены и двери украшает тысяча восемьсот картин, написанных драгоценными красками по золоту. А в самой глубине вы найдете сокровищницу. (   Читать дальше...   )Производство: Япония, NHKЖанр: Документальный, архитектура, искусство, историяРежиссер: Kenichi Kuroda, Yusuke YagishitaПеревод: Двуголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDF340A378034BA11C543C4D81EFDFC55EB09228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246384   (426161) от 17.10.2010
-
-Современные чудеса. Пушки / Modern Marvels. Guns (2010) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многолетний цикл "Современные чудеса" - пожалуй, самый популярный на канале "ТВ-3". Цикл посвящен истории практически всего того, что нас окружает. Поэтому тема эта поистине безгранична.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 246383   (426150) от 17.10.2010
-
-Современные чудеса. Модели / Modern Marvels. Models (2010) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многолетний цикл "Современные чудеса" - пожалуй, самый популярный на канале "ТВ-3". Цикл посвящен истории практически всего того, что нас окружает. Поэтому тема эта поистине безгранична.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166149   (425960) от 16.09.2017
-
-Расшифрованные сокровища (Сокровища мира) / Treasures Decoded (2012-2015) HDTVRip [H.264/720p-LQ] (Сезон 1, эпизоды 1-4 из 5; Сезон 2, эпизоды 1-6 из 6; Сезон 3, эпизоды 1-7 из 7)
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокровища прошлого хранят секреты; написанные кровью, камнем, золотом... Все они обладают удивительными тайнами, которые были неизвестны до сих пор. В новом сезоне документального цикла "Расшифрованные сокровища" с помощью экспертов мы попытаемся раскрыть всю правду.Производство: Великобритания, Канада, Entertainment One & Blink FilmsЖанр: Документальный, альтернативная история, псевдоисторияРежиссер: Джо Локк, Дэвид Нью, Грэм Болл, Тоби Тремман, Ана ТомсонПеревод: Двуголосый закадровый, профессиональный (Видеофильм ТВ, студия "Кондор", SDI Media)Субтитры: отсутствуютПродолжительность: 17x~00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:717EA31270DFEF4774049D7161144782B77D1E96
 ```
 
 https://mybot314.ru/tekegram_catalog/

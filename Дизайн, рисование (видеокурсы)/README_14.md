@@ -1,3 +1,29 @@
+###  Публикация: 1480990   (1008502) от 01.07.2021
+
+Андрей Козьяков | Adobe Illustrator. Продвинутый уровень. Гибридный курc (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008502.jpg" />
+</div>
+
+
+###  Подробнее
+
+На курсе вы изучите продвинутые приёмы работы в Illustrator, выйдете на новый уровень качества в создании векторной графики и добавите в портфолио несколько ярких профессиональных работ. Вы будете решать задачи, максимально приближенными к реальной работе. Вам предстоит освоить новые методы и приёмы и собственными руками создать уникальные дизайн-макеты для веб и (   Читать дальше...   )Производство: ProfileschoolЖанр: ГрафикаПродолжительность: 51:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DAF52896D0467BBE0FD57AE9B78ADD56C5E5AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481312   (1008362) от 02.07.2021
 
 XYZ School, Олег Болдырев | Курс Houdini FX (2021) PCRec
@@ -6,7 +32,7 @@ XYZ School, Олег Болдырев | Курс Houdini FX (2021) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008362.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Unrealskills, Даниил Лихоманов | Unreal Engine 4 (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008214.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ SVS, Jake Parker | How To Draw Everything version 2 (2017) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008088.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ Gumroad, Tom Newbury | Look Dev Realistic Skin for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007863.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ Gumroad, Tom Newbury | Xgen Hair for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007849.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ Gumroad, Tom Newbury | Texturing Realistic Skin for Characters (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007841.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ VK, Александр Васин | ZBrush. Проекты Александра 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007830.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007543.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ SVS, Jake Parker, Will Terry | Working With Color (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007413.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ SVS, Will Terry | Painting Texture and Details (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007381.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Masterclass, Judd Apatow | Judd Apatow teaches comedy (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007264.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Masterclass, Dan Brown | Dan Brown Teaches Writing Thrillers (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007258.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ The Gnomon Workshop, Aaron Limonick | Environmental Design and Illustration (201
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007254.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Marco Bucci | Understanding and Painting the Head (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007249.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ Proko, Stan Prokopenko | Anatomy of the Human Body: Arms (2018) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007241.jpg" />
 </div>
 
 
@@ -408,7 +434,7 @@ Proko | Anatomy of the Human Body: Skeleton (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007240.jpg" />
 </div>
 
 
@@ -434,7 +460,7 @@ CG-Cookie, Sander Mos | Landscapes Course (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007146.jpg" />
 </div>
 
 
@@ -461,7 +487,7 @@ Gumroad, Eytan Zana | Color and Light (2014) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007133.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ CGMA, James Paick | Environment Design 2 James Paick (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007121.jpg" />
 </div>
 
 
@@ -514,7 +540,7 @@ Udemy, Jaysen Batchelor, Austin Batchelor | The Ultimate Digital Painting Course
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006824.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Profileschool, Никита Чесноков | Основы VFX в After Effects
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006685.jpg" />
 </div>
 
 
@@ -568,7 +594,7 @@ SVS, Will Terry | Illustrating Children's Books Part 2 (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006479.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ SVS, Will Terry, Jake Parker | Posing Characters: Children's Book Edition (2015)
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006477.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ SVS, Jake Parker | Mastering Perspective (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006471.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ Schoolism, Kris Pearn | Storyboarding (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006461.jpg" />
 </div>
 
 
@@ -658,34 +684,6 @@ Schoolism, Kris Pearn | Storyboarding (2016) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CCDA5CEFB86F214AC0D4CD1E7316D07D641A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483879   (1006455) от 16.07.2021
-
-Enterclass, Сергей Курбатов | Сложная вода. Просто порисуем  [Тариф Стандарт] (2021) PCRec [AD]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сложная вода - та, что бежит, проявляет характер, бьет энергией и увлекает в свой поток. В новом марафоне Сергея Курбатова вы бросите вызов своим страхам, сознательно оставите комфортные мотивы в стороне и попробуете силы в необычных для акварели сюжетах. Водопад, фонтан, горная река и брызги прибоя - ваши будущие творческие победы. Подключайтесь!
-
-За время прохождения (   Читать дальше...   )Производство: EnterclassЖанр: РисованиеПродолжительность: 09:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726594BC5999C433513FB50DBEAF4E76D929DF63
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,88 @@
+###  Публикация: 1706894   (113466) от 14.03.2024
+
+Софья Прокофьева | Приключения жёлтого чемоданчика (2010) [MP3, Мавлюда Гулямова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Софья Прокофьева – русская писательница, неповторимая сказочница. Автор замечательных детских повестей и рассказов «Приключение желтого чемоданчика», «Пока бьют часы», «Лоскутик и облако»...
+Эта книга о том, как можно излечить от страха и печали, злости и глупости, лени и вранья с помощью чудесных конфет, которые хранятся в жёлтом чемоданчике доброго доктора.
+
+ Софья (   Читать дальше...   )Жанр: Русская литература для детей, приключения, сказочная повестьИздательство: АудиокнигаПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3BDFE687F3B828271D983228C935240B86DE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707006   (113465) от 14.03.2024
+
+Николай Гарин-Михайловский | Детство Тёмы (2005) [MP3, Елена Евтушенко]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская библиотека.
+Николай Георгиевич Гарин-Михайловский (1852–1906) – русский писатель, путешественник и инженер.
+«Детство Тёмы» – повесть автобиографическая. В ней писатель рассказал о собственном детстве, о пережитых им самим и запомнившихся ему на всю жизнь детских своих радостях, проступках, мечтах. Он писал: «В «Детстве Тёмы» вы прочтете много (   Читать дальше...   )Жанр: Русская литература для детей, классика, повестьИздательство: ДеоникаПродолжительность: 06:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1EB6AE642CB42904E71C5D39DBF81AB17CE8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706907   (113455) от 14.03.2024
+
+Юрий Сотник | «Архимед» Вовки Грушина (2013) [MP3, Александр Клюквин] [Сборник]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ «“Архимед” Вовки Грушина» был опубликован в 1939 году в журнале «Пионер». А через восемь лет у писателя вышла первая книга. Называлась она так же – «“Архимед” Вовки Грушина».
+
+Первые рассказы принесли Юрию Сотнику известность и признание читателей. Веселый выдумщик и фантазер, он придумывал смешные и поучительные истории для детей, утверждая их право быть (   Читать дальше...   )Жанр: Детская литератураИздательство: СОЮЗПродолжительность: 03:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF863C39D32C8A5C05B53D15E8A4279016F173F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707488   (113333) от 16.03.2024
 
 Дмитрий Мамин-Сибиряк | Рассказы для детей (2012) [MP3, Василий Куприянов]
@@ -6,7 +91,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113333.jpg" />
 </div>
 
 
@@ -34,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113281.jpg" />
 </div>
 
 
@@ -62,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113275.jpg" />
 </div>
 
 
@@ -90,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113269.jpg" />
 </div>
 
 
@@ -118,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113251.jpg" />
 </div>
 
 
@@ -146,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113243.jpg" />
 </div>
 
 
@@ -174,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113241.jpg" />
 </div>
 
 
@@ -202,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113176.jpg" />
 </div>
 
 
@@ -230,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113159.jpg" />
 </div>
 
 
@@ -257,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112920.jpg" />
 </div>
 
 
@@ -285,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112846.jpg" />
 </div>
 
 
@@ -312,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112779.jpg" />
 </div>
 
 
@@ -341,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112773.jpg" />
 </div>
 
 
@@ -367,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112711.jpg" />
 </div>
 
 
@@ -396,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112631.jpg" />
 </div>
 
 
@@ -423,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112561.jpg" />
 </div>
 
 
@@ -449,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112464.jpg" />
 </div>
 
 
@@ -476,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112463.jpg" />
 </div>
 
 
@@ -504,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112268.jpg" />
 </div>
 
 
@@ -532,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112190.jpg" />
 </div>
 
 
@@ -561,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112167.jpg" />
 </div>
 
 
@@ -589,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112163.jpg" />
 </div>
 
 
@@ -617,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111726.jpg" />
 </div>
 
 
@@ -631,89 +716,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A2E0C8EC92D4BA1E23B55F8D956F6BAA8E1E6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715331   (111646) от 11.04.2024
-
-С.П. Алексеев | Рассказы о декабристах (2014) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Сергей Петрович Алексеев (1922–2008) – известный детский писатель, автор многочисленных произведений о русской истории, участник Великой Отечественной войны.
-Произведения С.П. Алексеева – живое и увлекательное путешествие в прошлое нашей Родины. Его рассказы пробуждают у детей интерес к изучению истории Отечества, учат гордиться своими (   Читать дальше...   )Жанр: Русская историческая литература для детей, рассказИздательство: Студия «АРДИС»Продолжительность: 06:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3CE9195A620780DDDA185BBBC40A62A35C3E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715309   (111644) от 11.04.2024
-
-С.П. Алексеев | Рассказы о Петре Первом (2014) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Аудиокнига «Рассказы о Петре Первом», созданная по произведениям знатока русской истории и замечательного детского писателя Сергея Петровича Алексеева (1922–2008) – живое и увлекательное путешествие в прошлое нашей Родины. Звучащие рассказы пробуждают у детей интерес к изучению истории Отечества, учат гордиться своими предками, воспитывают (   Читать дальше...   )Жанр: Русская историческая литература для детей, рассказИздательство: Студия «АРДИС»Продолжительность: 02:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA57A30A23D77A141A7EB81E4028045CA03E3575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715356   (111643) от 11.04.2024
-
-С.П. Алексеев | Рассказы о Степане Разине (2014) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская аудиокнига.
-Сергей Петрович Алексеев (1922–2008) – известный детский писатель, автор многочисленных произведений о русской истории, участник Великой Отечественной войны.
-Аудиокнига «Рассказы о Степане Разине», созданная по произведениям знатока русской истории и замечательного детского писателя Сергея Петровича Алексеева – живое и увлекательное (   Читать дальше...   )Жанр: Русская историческая литература для детей, рассказИздательство: Студия «АРДИС»Продолжительность: 03:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8E427892B6953164EEC1A8E6CA685AD59465DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

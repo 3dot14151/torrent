@@ -1,3 +1,82 @@
+###  Публикация: 617126   (973696) от 11.02.2013
+
+Дмитрий Табачник, Виктор Воронин | Петр Столыпин крестный путь реформатора [2012] [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серьезное исследование известных историков Д. В. Табачника и В. Н. Воронина посвящено одной из наиболее знаковых фигур отечественной истории — великому государственнику и реформатору Петру Аркадьевичу Столыпину (1862—1911), сумевшему после жесткого подавления революции начать масштабное преобразование Российской империи. Авторы на основе большого количества архивных документов и воспоминаний современников воссоздают облик председателя Совета министров, уроки жизни и деятельности которого чрезвычайно актуальны для современной России. Особое внимание уделяется перипетиям бескомпромиссной борьбы главы правительства и министра внутренних дел с революционным террором, реализации программы системных реформ, направленных одновременно на укрепление государства и развития общественного самоуправления, попыткам достичь соглашения с либеральной оппозицией, политическим интригам и раскладу сил в правящей верхушке. Также подробно исследуется история загадочного убийства П. А. Столыпина агентом охранного отделения, являющегося (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D7ABEF39951EB2E7DCA81291D021202DC5F3068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744041   (973406) от 10.01.2014
+
+М. С. Восленский | Из истории политики США в германском вопросе 1918-1919 гг. (1954) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество имеет трагический опыт неверного, империалистического решения германского вопроса после первой мировой войны. Тогда немецким милитаристам при активной поддержке иностранного, в первую очередь американского, монополистического капитала удалось возродить военный потенциал Германии и развязать войну. Эта война принесла народам неисчислимые бедствия и страдания (   Читать дальше...   )Жанр: Монография, история, дипломатия, политология, империализмФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52B055BBD4AA644BB86656F17EF358E1B3611973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975217   (973122) от 14.01.2016
+
+Елена Ларина, Владимир Овчинский | Мировойна. Все против всех. Новейшие концепции боевых действий англосаксов (2015) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир стоит на пороге Третьей мировой войны. Какой она будет, сложно сказать, но уж точно не такой, как прошедшие две. Об этом свидетельствуют документы министерства обороны США и работы американских военных аналитиков, вошедшие в эту книгу.
+Это будет война без фронта и тыла, война, в которой "обороняющаяся" сторона наносит удар раньше, чем нападет агрессор. (   Читать дальше...   )Жанр: Публицистика, ПолитикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE5E983966D7AE40A50D58F392DAEA6C8DAF1924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357647   (972948) от 04.02.2020
 
 Филипп Мёллер | Безбожно счастлив. Почему без религии нам жилось бы лучше (2018) [EPUB]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972948.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972181.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972018.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971926.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971774.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970468.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969802.jpg" />
 </div>
 
 
@@ -199,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969702.jpg" />
 </div>
 
 
@@ -225,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968571.jpg" />
 </div>
 
 
@@ -251,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967317.jpg" />
 </div>
 
 
@@ -277,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967231.jpg" />
 </div>
 
 
@@ -303,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967141.jpg" />
 </div>
 
 
@@ -330,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966144.jpg" />
 </div>
 
 
@@ -356,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966141.jpg" />
 </div>
 
 
@@ -383,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966131.jpg" />
 </div>
 
 
@@ -409,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966076.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966010.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965061.jpg" />
 </div>
 
 
@@ -490,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965052.jpg" />
 </div>
 
 
@@ -516,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964401.jpg" />
 </div>
 
 
@@ -542,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964010.jpg" />
 </div>
 
 
@@ -568,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963949.jpg" />
 </div>
 
 
@@ -594,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963156.jpg" />
 </div>
 
 
@@ -605,85 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C93CB8588139187E605499C444A7A93BD7E26293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360531   (960790) от 15.02.2020
-
-Николай Склифосовский | Спасая жизни. Дневник военного хирурга (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Васильевич Склифосовский родился на хуторе Карантин. Уже в 24 года молодой выпускник медицинского факультета был вынужден заменить на посту главного врача в небольшой областной больнице.
-В 1860-х годах великий русский хирург понял, что более всего его знания пригодятся раненым солдатам. Работая военно-полевым хирургом ученый принял участие в трех военных (   Читать дальше...   )Жанр: Биографии и Мемуары, История медицины, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210297E0BC27B79438E78E33AFE66FD565230DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360218   (960669) от 15.02.2020
-
-Книжная серия | Левиафан [8 книг] (2016-2017) [FB2, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кремлевская элита входит сейчас в состояние агонии: «высшая стадия путинизма» характерна преследованиями инакомыслящих, идеологическими запретами и «профилактическими репрессиями». Консервативнопатриотическая «доктрина Путина» теряет рациональное начало, приобретая очевидный полицейский характер внутри страны и агрессивный – на международной арене.Жанр: Публицистика, ПолитикаФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFB2FBF1C21515C6664B9349718E01215170B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360683   (959343) от 16.02.2020
-
-Брайан Стивенсон | Звонок за ваш счет. История адвоката, который спасал от смертной казни тех, кому никто не верил (2020) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив престижное образование, молодой адвокат Брайан Стивенсон берется помогать осужденным на смертную казнь. Его подзащитные – бездомная девушка, которая случайно поджигает здание, подросток, застреливший сожителя матери после жестоких избиений, владелец лесопилки, у которого стопроцентное алиби, но черный цвет кожи и в прошлом внебрачная связь с белой женщиной. (   Читать дальше...   )Жанр: Адвокатура, Зарубежная публицистика, Истории из жизниФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49123D0970FD5E93C2F8A0C424E9590FFE27DE43
 ```
 
 https://mybot314.ru/tekegram_catalog/

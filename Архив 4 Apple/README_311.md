@@ -1,3 +1,111 @@
+###  Публикация: 1036163   (622747) от 19.07.2016
+
+Airmail 3.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
+
+По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июля 2016Разработчик: Bloop S.R.LПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FDEEAB44EBED01B3B1CC304F41AA0A71B1B47F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035982   (622669) от 19.07.2016
+
+Xojo 2015 r4 visual basic for MAC [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xojo (ранее Real Studio, а еще раньше RealBasic) - профессиональная кроссплатформенная визуальная среда разработки приложений для Mac OS X, Windows и Linux с синтаксисом языка, похожим на MS Visual Basic.
+Непосредственно из IDE среды разработки вы можете скомпилировать приложение для любой платформы, что очень удобно, если вы разрабатываете свою программу для разных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17.12.2015Разработчик: XojoПоддерживаемая ОС: OS X Maverics 10.9.5 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEA6BCB0CF7BDE28BE013A1F9D07DAD75ECFD5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036060   (622663) от 19.07.2016
+
+QR Factory 2.9.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622663.jpg" />
+</div>
+
+
+###  Подробнее
+
+QR Factory: создание QR-кода
+QR-код является незаменимым и универсальным способом быстро поделиться какой-либо текстовой информацией. Его главное достоинство — легкое распознавание — активно применяется в самых разных сферах: производстве, торговле, логистике, туризме рекламе, конкурсах, играх и др. Сканеры QR-кодов существуют практически на всех мобильных платформах, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июля 2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C787292D7929804E21BF3474AC06037B9AB1C386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036070   (622661) от 19.07.2016
+
+VueScan Pro 9.5.52 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_622661.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan — программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июля 2016Разработчик: Hamrick SoftwareПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC99C37A15287CD023EF5A1CFCFCB171188968C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1229765   (622624) от 08.06.2018
 
 Principle 3.9 [En]
@@ -6,7 +114,7 @@ Principle 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622624.jpg" />
+  <img src="Z:/picture/008/save_picture_622624.jpg" />
 </div>
 
 
@@ -35,7 +143,7 @@ EdgeView 3 v3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622373.jpg" />
+  <img src="Z:/picture/008/save_picture_622373.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ Lyn 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622365.jpg" />
+  <img src="Z:/picture/008/save_picture_622365.jpg" />
 </div>
 
 
@@ -87,7 +195,7 @@ iNet Network Scanner 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622353.jpg" />
+  <img src="Z:/picture/008/save_picture_622353.jpg" />
 </div>
 
 
@@ -114,7 +222,7 @@ Nik Complete Collection by DxO 1.2.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622280.jpg" />
+  <img src="Z:/picture/008/save_picture_622280.jpg" />
 </div>
 
 
@@ -141,7 +249,7 @@ Fix My iPhone 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622212.jpg" />
+  <img src="Z:/picture/008/save_picture_622212.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ Money Pro - Personal Finance 2.7.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622085.jpg" />
+  <img src="Z:/picture/008/save_picture_622085.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ Adobe Media Encoder 2022 v22.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621884.jpg" />
+  <img src="Z:/picture/008/save_picture_621884.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ Viscosity 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621762.jpg" />
+  <img src="Z:/picture/008/save_picture_621762.jpg" />
 </div>
 
 
@@ -252,7 +360,7 @@ Beyond Compare 4.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621665.jpg" />
+  <img src="Z:/picture/008/save_picture_621665.jpg" />
 </div>
 
 
@@ -281,7 +389,7 @@ Loopback 1.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621633.jpg" />
+  <img src="Z:/picture/008/save_picture_621633.jpg" />
 </div>
 
 
@@ -310,7 +418,7 @@ iStat Menus 5.11 (610) Beta 6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621447.jpg" />
+  <img src="Z:/picture/008/save_picture_621447.jpg" />
 </div>
 
 
@@ -337,7 +445,7 @@ Cashew 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621175.jpg" />
+  <img src="Z:/picture/008/save_picture_621175.jpg" />
 </div>
 
 
@@ -366,7 +474,7 @@ HoudahGeo 5.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621173.jpg" />
+  <img src="Z:/picture/008/save_picture_621173.jpg" />
 </div>
 
 
@@ -393,7 +501,7 @@ Together 3.5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621159.jpg" />
+  <img src="Z:/picture/008/save_picture_621159.jpg" />
 </div>
 
 
@@ -422,7 +530,7 @@ NeoFinder 6.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621003.jpg" />
+  <img src="Z:/picture/008/save_picture_621003.jpg" />
 </div>
 
 
@@ -451,7 +559,7 @@ Sketch 39 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621000.jpg" />
+  <img src="Z:/picture/008/save_picture_621000.jpg" />
 </div>
 
 
@@ -478,7 +586,7 @@ iMazing 2.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620784.jpg" />
+  <img src="Z:/picture/008/save_picture_620784.jpg" />
 </div>
 
 
@@ -505,7 +613,7 @@ OnyX 4.1.8 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620326.jpg" />
+  <img src="Z:/picture/008/save_picture_620326.jpg" />
 </div>
 
 
@@ -532,7 +640,7 @@ Sketch 54.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620079.jpg" />
+  <img src="Z:/picture/008/save_picture_620079.jpg" />
 </div>
 
 
@@ -559,7 +667,7 @@ Adobe Audition 2022 v22.3.0 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620057.jpg" />
+  <img src="Z:/picture/008/save_picture_620057.jpg" />
 </div>
 
 
@@ -585,7 +693,7 @@ MacFamilyTree 8.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619687.jpg" />
+  <img src="Z:/picture/008/save_picture_619687.jpg" />
 </div>
 
 
@@ -599,116 +707,6 @@ MacFamilyTree (   Читать дальше...   )Тип издания: macOS 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F7B097A4DB1ECCF8C422AE2DDAEAF910954618C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145650   (619680) от 26.06.2017
-
-Lyn 1.9 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lyn - просмотрщик и браузер изображений
-Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
-
-Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 июня 2017Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92F3349FFC9B1C0AD430E529DB26D25E1D1A621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145653   (619595) от 26.06.2017
-
-Sparkle Pro 2.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sparkle создана специально для веб-дизайна и строительства веб-сайтов и даёт полный визуальный контроль над всем.
-
-Если вы когда-нибудь занимались ручным кодированием веб-сайтов, вы потратили много часов, чтобы выяснить, как вы могли бы выровнять элементы страницы так же, как вы хотели, или выяснить, почему некоторые браузеры не отображают содержимое. Все это является (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 июня 2017Разработчик: River SRLПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Итальянский, Немецкий и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99308F57C9C1A8C703AD4E7113B18BCFA7B995E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910848   (619480) от 21.06.2015
-
-Nik Software Complete Collection by Google 1.2.10 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эффектные фото легко и быстро. Откройте для себя все возможности Nik Collection от Google.
-Профессиональные техники ретуши. Семь плагинов для Photoshop®, Lightroom® или Aperture® помогут добиться потрясающих результатов. Точечное редактирование. Технология U Point® позволяет без использования выделения и масок редактировать лишь те участки изображения, которые требуют (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 июня 2015Разработчик: Nik SoftwareПоддерживаемая ОС: OS X 10.7.5 +Язык интерфейса: Русский, Английский, Немецкий, Французский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8048831AFFE08BAE475660AC4683C2ADD3154EEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910957   (619387) от 21.06.2015
-
-XMind 6 Pro 3.5.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619387.jpg" />
-</div>
-
-
-###  Подробнее
-
-XMind – это лучшее программное обеспечение для построения диаграмм связей (они также называются интеллект-картами или ассоциативными картами). Это великолепный инструмент для мозгового штурма, экономии времени и энергии вашей компании. Мощное программное обеспечение обычно предоставляет множество инструментов, в которых трудно разобраться новым пользователям. В течение (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 июня 2015Разработчик: XMind Ltd.Поддерживаемая ОС: Mac OS X 10.6 +Язык интерфейса: Русский, Английский и др. (зависит от системного языка)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0393BFBD44A2E91FE82DD4D1E47EDE1459962076
 ```
 
 https://mybot314.ru/tekegram_catalog/

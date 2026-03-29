@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801716.jpg" />
+  <img src="Z:/picture/008/save_picture_801716.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ja Rule - R.U.L.E (2004) [MP3|320 Kbps] <Rap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801697.jpg" />
+  <img src="Z:/picture/008/save_picture_801697.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Opera GX 68.0.3618.129 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801683.jpg" />
+  <img src="Z:/picture/008/save_picture_801683.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Acon Digital Acoustica Premium Edition 7.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801681.jpg" />
+  <img src="Z:/picture/008/save_picture_801681.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801680.jpg" />
+  <img src="Z:/picture/008/save_picture_801680.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Vinnie Paz - As Above so Below (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801676.jpg" />
+  <img src="Z:/picture/008/save_picture_801676.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ IObit Smart Defrag Pro 6.5.5.98 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801672.jpg" />
+  <img src="Z:/picture/008/save_picture_801672.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sensei 1.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801670.jpg" />
+  <img src="Z:/picture/008/save_picture_801670.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Opera GX 68.0.3618.129 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801668.jpg" />
+  <img src="Z:/picture/008/save_picture_801668.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ PrivaZer 4.0.32 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801665.jpg" />
+  <img src="Z:/picture/008/save_picture_801665.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ The Flight Of Sleipnir - Eventide (2021) [FLAC|Lossless|image + .cue] <Stoner Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801663.jpg" />
+  <img src="Z:/picture/008/save_picture_801663.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Exposure X7 Bundle v7.0.1.68 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801653.jpg" />
+  <img src="Z:/picture/008/save_picture_801653.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ YTD Video Downloader PRO 5.9.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801640.jpg" />
+  <img src="Z:/picture/008/save_picture_801640.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Extend The 80s - Pop (2018) 3CD [MP3|320 Kbps] <Synthpop, Electropop, New W
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801637.jpg" />
+  <img src="Z:/picture/008/save_picture_801637.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Pazera Free Audio Video Pack 2.15 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801625.jpg" />
+  <img src="Z:/picture/008/save_picture_801625.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ CoolUtils Total Audio Converter 5.3.0.227 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801599.jpg" />
+  <img src="Z:/picture/008/save_picture_801599.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ CoolUtils Total PDF Converter 6.1.0.220 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801598.jpg" />
+  <img src="Z:/picture/008/save_picture_801598.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Allavsoft Video Downloader Converter 3.22.5.7441 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801593.jpg" />
+  <img src="Z:/picture/008/save_picture_801593.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Wise Duplicate Finder Pro 1.3.6.44 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801590.jpg" />
+  <img src="Z:/picture/008/save_picture_801590.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ YTD Video Downloader PRO 5.9.18.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801584.jpg" />
+  <img src="Z:/picture/008/save_picture_801584.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Microsoft Edge 95.0.1020.38 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801574.jpg" />
+  <img src="Z:/picture/008/save_picture_801574.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ FileZilla Server 1.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801569.jpg" />
+  <img src="Z:/picture/008/save_picture_801569.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Calibre 5.31.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801566.jpg" />
+  <img src="Z:/picture/008/save_picture_801566.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801557.jpg" />
+  <img src="Z:/picture/008/save_picture_801557.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ ProPresenter 6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801556.jpg" />
+  <img src="Z:/picture/008/save_picture_801556.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Opera 68.0.3618.125 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801542.jpg" />
+  <img src="Z:/picture/008/save_picture_801542.jpg" />
 </div>
 
 

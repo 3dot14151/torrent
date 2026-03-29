@@ -1,3 +1,162 @@
+###  Публикация: 537190   (498779) от 02.09.2012
+
+Sleeping Dogs - Limited Edition [Ru] (Repack/1.5) 2012 | Scorp1oN
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sleeping Dogs рассказывает историю детектива Вэй Шена, который был внедрен в один из преступных синдикатов гонконгской Триады. Ему предстоит сделать все возможное, чтобы остаться незамеченным и выжить, постоянно совершая моральный выбор.
+В Sleeping Dogs вас ждут погони, перестрелки и сражения с использованием различных боевых стилей, а также множество миссий и свобода выбора.(   Читать дальше...   )Тип издания: RepackРазработчик: United Front GamesЖанр: Action, Open worldЯзык озвучки: Английский, КитайскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9767142940D1BF1CD33EF4A397466709B0D14173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380592   (498706) от 28.08.2011
+
+Пираты Карибского моря: На странных берегах / Pirates of the Caribbean: On Stranger Tides (2011) DVD5
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498706.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой истории о поисках истины, предательстве, вечной молодости и смертельной опасности капитану Джеку Воробью предстоит столкнуться с женщиной из своего прошлого Анжеликой. До самого конца не будет понятно, связывает ли их настоящая любовь, или же Анжелика искусно притворяется, чтобы вместе с Джеком добраться до таинственного источника вечной молодости.Производство: СШАЖанр: Фэнтези, Боевик, Комедия, ПриключенияРежиссер: Роб МаршаллАктеры: Джонни Депп, Пенелопа Крус, Джеффри Раш, Иэн МакШейн, Кевин МакНэлли, Стивен Грэм, Сэм Клафлин, Астрид Берже-Фрисби, Кит Ричардс, Ричард ГриффитсПеревод: ДублированныйСубтитры: нетПродолжительность: 02:16:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380962   (498697) от 28.08.2011
+
+Unreal Tournament III / Unreal Tournament 3 [Multi4/+] (RePack) 2007 | PUNISHER
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описать игру можно буквально в трех словах: «культовый сетевой шутер». Под каждым словом этого определения готовы подписаться буквально миллионы поклонников игры по всему миру, в том числе и в России. Некогда соперничавшие c Unreal мультиплеерные шутеры со временем отошли на второй план, и только серия Unreal Tournament осталась Игрой, которая никогда не обманывала (   Читать дальше...   )Тип издания: RePackРазработчик: Epic GamesЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD97C8D945735C19548F2461C9987ED873B82F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564309   (498377) от 20.07.2022
+
+«Алмаз-Антей» показал ходовой образец отечественного электрического кроссовера E-NEVA с запасом хода 1000 км и интересным дизайном
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_498377.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Сети появился видеоролик, в котором вице-премьер и глава Минпромторга Денис Мантуров совершает небольшой пробный заезд в отечественном кроссовере E-NEVA от АО «Обуховский завод» (входит в оборонный концерн «Алмаз – Антей»). О создании E-NEVA было заявлено давно, сейчас же, судя по видео, уже имеется как минимум один ходовой экземпляр. И выглядит он, надо сказать, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317819   (498320) от 03.08.2019
+
+Linux Mint 19.2 Tina (XFCE, Mate, Cinnamon) [32bit, 64bit] 6xDVD
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498320.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен релиз дистрибутива Linux Mint 19.2, второго обновления ветки Linux Mint 19.x, формируемой на пакетной базе Ubuntu 18.04 LTS и поддерживаемой до 2023 года. Дистрибутив полностью совместим с Ubuntu, но существенно отличается подходом к организации интерфейса пользователя и подбором используемых по умолчанию приложений. Разработчики Linux Mint предоставляют (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E03BFE0F12DC08494F4AD11D44E6FEB597BD3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315925   (498319) от 03.08.2019
+
+Windows 8.1 (x86/x64) 40in1 +/- Office 2016 SmokieBlahBlah 22.07.19 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498319.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 редакций Windows 8.1 (русские и английские) с обновлениями по июль 2019 и интегрированными системными библиотеками + 10 таких же редакций со встроенным Office 2016 Pro Plus VL x86 (можно выбрать, ставить ли Office. Галочка перед началом установки.). Язык офиса зависит от выбранного языка ОС.
+
+Ничего не вырезано и не изменено, кроме: см. спойлер "Изменения (   Читать дальше...   )Язык интерфейса: Русский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6DDE9DEC724BC45D019823E9862471F4D4E330
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935494   (498113) от 09.09.2015
 
 Пиратская партия предлагает DNS без цензуры для обхода блокады Pirate Bay
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_498113.jpg" />
+  <img src="Z:/picture/005/save_picture_498113.jpg" />
 </div>
 
 
@@ -33,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498109.jpg" />
+  <img src="Z:/picture/008/save_picture_498109.jpg" />
 </div>
 
 
@@ -59,7 +218,7 @@ Microsoft Office 2016 Professional Plus Preview 16.0.4229.1023 (x86-x64) by Rati
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498105.jpg" />
+  <img src="Z:/picture/008/save_picture_498105.jpg" />
 </div>
 
 
@@ -85,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_498102.jpg" />
+  <img src="Z:/picture/005/save_picture_498102.jpg" />
 </div>
 
 
@@ -112,7 +271,7 @@ Warhammer 40,000: Regicide (2015) [Ru/Multi] (1.0) License CODEX
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498093.jpg" />
+  <img src="Z:/picture/008/save_picture_498093.jpg" />
 </div>
 
 
@@ -138,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497971.jpg" />
+  <img src="Z:/picture/008/save_picture_497971.jpg" />
 </div>
 
 
@@ -164,7 +323,7 @@ Photo Editor v7.8 Pro [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497405.jpg" />
+  <img src="Z:/picture/008/save_picture_497405.jpg" />
 </div>
 
 
@@ -190,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497340.jpg" />
+  <img src="Z:/picture/008/save_picture_497340.jpg" />
 </div>
 
 
@@ -216,7 +375,7 @@ Hard Disk Sentinel Pro 4.60 Build 7377 Final Portable by PortableWares [Multi/Ru
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497003.jpg" />
+  <img src="Z:/picture/008/save_picture_497003.jpg" />
 </div>
 
 
@@ -242,7 +401,7 @@ AdGuard 5.4.425.2526 [Multi/Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496861.jpg" />
+  <img src="Z:/picture/008/save_picture_496861.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_496568.jpg" />
+  <img src="Z:/picture/005/save_picture_496568.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496522.jpg" />
+  <img src="Z:/picture/008/save_picture_496522.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496254.jpg" />
+  <img src="Z:/picture/008/save_picture_496254.jpg" />
 </div>
 
 
@@ -347,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_495915.jpg" />
+  <img src="Z:/picture/005/save_picture_495915.jpg" />
 </div>
 
 
@@ -373,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495815.jpg" />
+  <img src="Z:/picture/008/save_picture_495815.jpg" />
 </div>
 
 
@@ -399,7 +558,7 @@ VMware Workstation 12 Pro 12.5.0 build 4352439 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495665.jpg" />
+  <img src="Z:/picture/008/save_picture_495665.jpg" />
 </div>
 
 
@@ -425,7 +584,7 @@ ProDAD Mercalli V2 Plugin 2.0.126.1 Tech. r79 (x64) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495662.jpg" />
+  <img src="Z:/picture/008/save_picture_495662.jpg" />
 </div>
 
 
@@ -451,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495660.jpg" />
+  <img src="Z:/picture/008/save_picture_495660.jpg" />
 </div>
 
 
@@ -477,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495657.jpg" />
+  <img src="Z:/picture/008/save_picture_495657.jpg" />
 </div>
 
 
@@ -503,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495636.jpg" />
+  <img src="Z:/picture/008/save_picture_495636.jpg" />
 </div>
 
 
@@ -514,166 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2617C7B7199818CB911B49CAC85EB741DD0C9717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935963   (495625) от 11.09.2015
-
-Очередное достижение: 100+ TB отданного трафика от brutus_, oven540304, vavag08, Злой неадмин, Василий Тимошкин
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_495625.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Друзья! И вновь у нас повод для гордости за наших товарищей-одноклубников!brutus_, oven540304, vavag08, Злой неадмин и Василий Тимошкин - также присоединились к компании многоуважаемых сотников!, переступив порог заветной сотни TB отданного трафика.(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936199   (495398) от 11.09.2015
-
-CrossOver Linux 14.1.6 [x86-x64] (deb, rpm, bin)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коммерческая версия программы wine. Позволяет запускать приложения и игры Windows под Linux и Mac OS X.
-В отличие от обычной версии wine имеет более удобный интерфейс, протестирован с кучей приложений и игр. Легко интегрируется в систему, позволяет изолировать устанавливаемые приложения друг от друга. Codeweavers вносит много исправлений в код wine, но не очень быстро (   Читать дальше...   )Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27BC2F144560A2E35C69EC301C4ECED1C61A6024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936151   (495396) от 11.09.2015
-
-The KMPlayer 4.0.0.0 RePack by 7sh3 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495396.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMPlayer – один из самых универсальных плееров, способный воспроизводить практически любые форматы медиафайлов: VCD, DVD, AVI, MKV, Ogg Theora, OGM, 3GP, MPEG-1/2/4, WMV, RealMedia, QuickTime и многие другие. Также программа понимает титры на DVD дисках и способна записывать звук, видео или картинки из любой части проигрываемого фрагмента. Проигрыватель может работать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68747A84633F1D9401E23C3EAF6EA7A39055CC27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936186   (495388) от 11.09.2015
-
-Destroy Windows 10 Spying 1.5 Build 361 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495388.jpg" />
-</div>
-
-
-###  Подробнее
-
-После выхода Windows 10 пользователи стали изучать лицензионное соглашение, и заметили там пункты о том, что Microsoft следит за ними, и пользователи сами на это подписываются. Все ваши данные отсылаются на сервера Microsoft и остаются там. Получается что при любом взломе Microsoft (а это реально, вспомните как взломали Google, и слили все почты) все ваши данные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C33028291E45755B55DAA762E5430B05554CA49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936147   (495385) от 11.09.2015
-
-Сергей Тармашев | Древний. Предыстория. Книга первая (2015) [FB2, EPUB]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая книга приквела к циклу «Древний».
-
-Цикл Сергея Тармашева «Древний» стал легендой отечественной фантастики и самой популярной из постапокалиптических саг. Новая книга, которую читатели ждали не один год, повествует о масштабных межгалактических событиях, предшествовавших грандиозной эпопее о Древнем. Читателям предстоит узнать о детстве Тринадцатого: того, (   Читать дальше...   )Жанр: Научная фантастика, Боевая фантастика, ПостапокалипсисФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A9838182C51701ADB1A7F638EEF116C7A112DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243050   (495352) от 25.08.2018
-
-Последний акулий торнадо: Как раз во время / The Last Sharknado: It's About Time (2018) HDTVRip [MVO, AD]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495352.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фин должен вернуться в прошлое и воссоединиться со своей командой борцов с акулами, чтобы остановить самый первый акулий торнадо и спасти человечество.Производство: США / Global Asylum, SyfyЖанр: Фантастика, Ужасы, Фэнтези, Боевик, Комедия, ПриключенияРежиссер: Энтони ФеррантеАктеры: Йен Зиринг, Тара Рид, Касси Скербо, Джуда Фридландер, Вивика А. Фокс, Брендан Петриццо, М. Стивен Фелти, Matie Moncea, Тодд Рекс, Дебра УилсонПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: отсутствуютПродолжительность: 01:25:58Реклама: Присутствуют вставки голосовой и текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E432BAA72B9C71DDD2D404A69D95A453E60DE437
 ```
 
 https://mybot314.ru/tekegram_catalog/

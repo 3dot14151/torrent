@@ -6,7 +6,7 @@ TG Pro (Temperature Gauge Pro) 2.37 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762226.jpg" />
+  <img src="Z:/picture/008/save_picture_762226.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Dash 4.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761922.jpg" />
+  <img src="Z:/picture/008/save_picture_761922.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ NetSpot PRO Wi-Fi Reporter 2.10.972 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761874.jpg" />
+  <img src="Z:/picture/008/save_picture_761874.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Downie 3.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761658.jpg" />
+  <img src="Z:/picture/008/save_picture_761658.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Debookee 6.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761546.jpg" />
+  <img src="Z:/picture/008/save_picture_761546.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Blocs 2.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761109.jpg" />
+  <img src="Z:/picture/008/save_picture_761109.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Little Audio App 1.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761104.jpg" />
+  <img src="Z:/picture/008/save_picture_761104.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Paperless 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760623.jpg" />
+  <img src="Z:/picture/008/save_picture_760623.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Things 3.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760428.jpg" />
+  <img src="Z:/picture/008/save_picture_760428.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Sweet Home 3D 6.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760035.jpg" />
+  <img src="Z:/picture/008/save_picture_760035.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ KeyKey 2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759956.jpg" />
+  <img src="Z:/picture/008/save_picture_759956.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Lingon X 6.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759747.jpg" />
+  <img src="Z:/picture/008/save_picture_759747.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Contacts Journal CRM 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759719.jpg" />
+  <img src="Z:/picture/008/save_picture_759719.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Permute 2.1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759378.jpg" />
+  <img src="Z:/picture/008/save_picture_759378.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Cisdem PDFPasswordRemover 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759276.jpg" />
+  <img src="Z:/picture/008/save_picture_759276.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Apple MainStage 3.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758973.jpg" />
+  <img src="Z:/picture/008/save_picture_758973.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758816.jpg" />
+  <img src="Z:/picture/008/save_picture_758816.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Pixelmator Pro 1.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758640.jpg" />
+  <img src="Z:/picture/008/save_picture_758640.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ CloudMounter 3.4 (546) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758349.jpg" />
+  <img src="Z:/picture/008/save_picture_758349.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Paste 2.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758230.jpg" />
+  <img src="Z:/picture/008/save_picture_758230.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ RightFont 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757874.jpg" />
+  <img src="Z:/picture/008/save_picture_757874.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Blocs 2.0.4 (110) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757741.jpg" />
+  <img src="Z:/picture/008/save_picture_757741.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Blocs 2.0.4 (111) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757626.jpg" />
+  <img src="Z:/picture/008/save_picture_757626.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ myTracks 2.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757625.jpg" />
+  <img src="Z:/picture/008/save_picture_757625.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ MindNode 2.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757553.jpg" />
+  <img src="Z:/picture/008/save_picture_757553.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Audirvana Plus 2.5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757545.jpg" />
+  <img src="Z:/picture/008/save_picture_757545.jpg" />
 </div>
 
 

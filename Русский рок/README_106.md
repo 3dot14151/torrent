@@ -1,3 +1,120 @@
+###  Публикация: 1798945   (16551) от 28.05.2025
+
+Alternanthera - Диссонансы (2025) [MP3|320 Kbps] <Industrial, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Бэнт Менесс
+02 Чужой
+03 Душевные диссонансы
+04 Звери(   Читать дальше...   )Жанр: Industrial, MetalПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC16BE90763F90B3D67A094D3E215DCBBBB84261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1800534   (15640) от 04.06.2025
+
+Бунтовщик - Железный рок (2025) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Мучительная смерть (Painful Death) [00:04:20]
+02 - Хочу действия (I Want Action) [00:03:51]
+03 - Красивые женщины (Beautiful Women) [00:03:52]
+04 - Демократия (Democratia) [00:03:32](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55239C4F1FE46DC2EA04E9D287E061F932D0A127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801857   (14709) от 13.06.2025
+
+Пролиф - 3 Albums (2025) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рыбалка [00:05:22]
+02. Керженец [00:08:14]
+03. Сад [00:03:51]
+04. Весна: 2020 [00:04:38](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 3 CD, 03:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CF34FE8CC0BA843281ED831D81BD7B407DC33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408668   (14365) от 17.06.2025
+
+GroTTesque - Коллекция (+Bonus) (2014-2024) [MP3|320 Kbps] <Heavy, Industrial, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14365.jpg" />
+</div>
+
+
+###  Подробнее
+
+◄GroTTesque► начали свою активную деятельность с сентября 2013 года.
+Стиль команды можно охарактеризовать как SteamPunk/Industrial/Melodic Metal. Звучание отличает смесь плотных гитарных рифов и насыщенных электронных сэмплов. Музыканты коллектива активно участвуют в сценическом шоу, перевоплощаясь в различных героев альтернативной вселенной, которая (   Читать дальше...   )Список альбомов:
+2014 - Авиаторы
+2014 - Вечный странник
+2016 - Здесь отступает жизнь(   Читать дальше...   )Жанр: Heavy, Industrial, MetalПродолжительность: 04:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D560586632BF83413399AC0173DCFC9DCFA0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805147   (12422) от 05.07.2025
 
 The Essence - Есенин (2025) [MP3|320 Kbps] <Pop Rock>
@@ -6,7 +123,7 @@ The Essence - Есенин (2025) [MP3|320 Kbps] <Pop Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12422.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12146.jpg" />
 </div>
 
 
@@ -64,7 +181,7 @@ Manic Depression - Escapade (2025) [MP3|320 Kbps] <Thrash Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12026.jpg" />
 </div>
 
 
@@ -93,7 +210,7 @@ VA - Оргазм Нострадамуса: Трибьют Vol.1-2-3 (2020-2025)
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11823.jpg" />
 </div>
 
 
@@ -122,7 +239,7 @@ The Way of Silence - 1 Albums, 3 Singles (2018-2024) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11280.jpg" />
 </div>
 
 
@@ -151,7 +268,7 @@ Mustend - Люболь. Часть первая (2025) [MP3|320 Kbps] <Alternati
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10562.jpg" />
 </div>
 
 
@@ -180,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3591.jpg" />
 </div>
 
 
@@ -209,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3589.jpg" />
 </div>
 
 
@@ -238,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3317.jpg" />
 </div>
 
 
@@ -267,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3307.jpg" />
 </div>
 
 
@@ -295,7 +412,7 @@ Electric Land - Love 67 (2025) [MP3|320 Kbps] <Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1955.jpg" />
 </div>
 
 
@@ -324,7 +441,7 @@ Take it Down - Культ (2025) [MP3|320 Kbps] <technical deathcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1582.jpg" />
 </div>
 
 
@@ -353,7 +470,7 @@ Alternanthera - Сублимация (2025) Авторская раздача [M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_239.jpg" />
 </div>
 
 

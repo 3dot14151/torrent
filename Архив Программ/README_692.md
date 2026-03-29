@@ -6,7 +6,7 @@ Viber 6.7.2.21 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700555.jpg" />
+  <img src="Z:/picture/008/save_picture_700555.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AusLogics BoostSpeed 9.1.3.0 DC 05.05.2017 RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700539.jpg" />
+  <img src="Z:/picture/008/save_picture_700539.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Maxthon Browser 5.2.1.6000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700535.jpg" />
+  <img src="Z:/picture/008/save_picture_700535.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Adobe Flash Player 25.0.0.171 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700457.jpg" />
+  <img src="Z:/picture/008/save_picture_700457.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ StartIsBack++ 2.0.9 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700440.jpg" />
+  <img src="Z:/picture/008/save_picture_700440.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Google Chrome 58.0.3029.110 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700439.jpg" />
+  <img src="Z:/picture/008/save_picture_700439.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Readiris Corporate 16.0.2 Build 11398 RePack (& Portable) by TryRooM 16.0.2 Buil
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700423.jpg" />
+  <img src="Z:/picture/008/save_picture_700423.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Nox App Player 6.0.8.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700409.jpg" />
+  <img src="Z:/picture/008/save_picture_700409.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700354.jpg" />
+  <img src="Z:/picture/008/save_picture_700354.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ O&O ShutUp10 1.5.1390 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700352.jpg" />
+  <img src="Z:/picture/008/save_picture_700352.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ KLS Backup 2015 Professional 8.4.4.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700349.jpg" />
+  <img src="Z:/picture/008/save_picture_700349.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ AusLogics BoostSpeed 9.1.3.0 DC 05.05.2017 RePack (& Portable) by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700347.jpg" />
+  <img src="Z:/picture/008/save_picture_700347.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Adobe Flash Player 25.0.0.171 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700343.jpg" />
+  <img src="Z:/picture/008/save_picture_700343.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Mem Reduct 3.2.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700341.jpg" />
+  <img src="Z:/picture/008/save_picture_700341.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Panda Free Antivirus 2016 16.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700319.jpg" />
+  <img src="Z:/picture/008/save_picture_700319.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Skype 7.36.32.101 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700225.jpg" />
+  <img src="Z:/picture/008/save_picture_700225.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ StartIsBack++ 2.0.9 / StartIsBack+ 1.7.5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700220.jpg" />
+  <img src="Z:/picture/008/save_picture_700220.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ K-Lite Codec Pack Update 12.2.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700215.jpg" />
+  <img src="Z:/picture/008/save_picture_700215.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Google Chrome 51.0.2704.103 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700197.jpg" />
+  <img src="Z:/picture/008/save_picture_700197.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Aiseesoft PDF Converter Ultimate 3.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700194.jpg" />
+  <img src="Z:/picture/008/save_picture_700194.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ SamDrivers 18.4 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700188.jpg" />
+  <img src="Z:/picture/008/save_picture_700188.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VirtualBox 5.0.22 Build 108108 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700085.jpg" />
+  <img src="Z:/picture/008/save_picture_700085.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ DriverEasy Professional 5.0.6.36122 RePack (& Portable) by TryRooM [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700070.jpg" />
+  <img src="Z:/picture/008/save_picture_700070.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Download Master 6.9.1.1517 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700068.jpg" />
+  <img src="Z:/picture/008/save_picture_700068.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ EssentialPIM Pro 7.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700067.jpg" />
+  <img src="Z:/picture/008/save_picture_700067.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Microsoft® Windows® 7 Ultimate Ru x86 SP1 7DB by OVGorskiy® 04.2018 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700041.jpg" />
+  <img src="Z:/picture/008/save_picture_700041.jpg" />
 </div>
 
 

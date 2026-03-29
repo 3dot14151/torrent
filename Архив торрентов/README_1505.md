@@ -6,7 +6,7 @@ Simple Sticky Notes 5.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710735.jpg" />
+  <img src="Z:/picture/008/save_picture_710735.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TweakPower 2.009 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710718.jpg" />
+  <img src="Z:/picture/008/save_picture_710718.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710700.jpg" />
+  <img src="Z:/picture/008/save_picture_710700.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Maxon Cinema 4D Studio S22.118 (build RB320081) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710694.jpg" />
+  <img src="Z:/picture/008/save_picture_710694.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Zettlr 2.2.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710690.jpg" />
+  <img src="Z:/picture/008/save_picture_710690.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Foxit Reader 7.1.5.425 Portable by PortableAppZ [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710682.jpg" />
+  <img src="Z:/picture/008/save_picture_710682.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ VA - Progressive Goa Trance (Intellect Progressive Psychedelic Goa Psy Trance) (
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710674.jpg" />
+  <img src="Z:/picture/008/save_picture_710674.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710669.jpg" />
+  <img src="Z:/picture/008/save_picture_710669.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ VA - Greatest Hits: Psy & Prog Vol.1 (2017) [MP3|320 Kbps] <Psy-Trance,Goa Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710668.jpg" />
+  <img src="Z:/picture/008/save_picture_710668.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Microsoft Windows 10 TP Language Pack build 10074 (x86-x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710632.jpg" />
+  <img src="Z:/picture/008/save_picture_710632.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Microsoft Windows 10 Home Insider Preview 10.0.10074 (esd) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710616.jpg" />
+  <img src="Z:/picture/008/save_picture_710616.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Microsoft .NET Framework 4.6 RC DC 19.04.2015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710609.jpg" />
+  <img src="Z:/picture/008/save_picture_710609.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VeraCrypt 1.24-Update 7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710588.jpg" />
+  <img src="Z:/picture/008/save_picture_710588.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ GetWindowText 4.33 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710569.jpg" />
+  <img src="Z:/picture/008/save_picture_710569.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Vit Registry Fix Pro 14.7 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710541.jpg" />
+  <img src="Z:/picture/008/save_picture_710541.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ XnView Shell Extension 4.1.5 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710533.jpg" />
+  <img src="Z:/picture/008/save_picture_710533.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ MacBooster 4.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710527.jpg" />
+  <img src="Z:/picture/008/save_picture_710527.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ IP Scanner Pro 3.57.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710523.jpg" />
+  <img src="Z:/picture/008/save_picture_710523.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Wirecast Pro 7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710522.jpg" />
+  <img src="Z:/picture/008/save_picture_710522.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Calibre 2.83 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710521.jpg" />
+  <img src="Z:/picture/008/save_picture_710521.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Microsoft Windows 10 Home Insider Preview 10.0.10074 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710478.jpg" />
+  <img src="Z:/picture/008/save_picture_710478.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Microsoft Windows 10 Enterprise Insider Preview 10.0.10074 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710473.jpg" />
+  <img src="Z:/picture/008/save_picture_710473.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Microsoft Windows 10 Pro / Enterprise Insider Preview 10.0.10074 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710465.jpg" />
+  <img src="Z:/picture/008/save_picture_710465.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ DaisyDisk 4.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710430.jpg" />
+  <img src="Z:/picture/008/save_picture_710430.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ Edge Blocker Portable 1.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710425.jpg" />
+  <img src="Z:/picture/008/save_picture_710425.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ Internet Download Manager 6.40 Build 8 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710415.jpg" />
+  <img src="Z:/picture/008/save_picture_710415.jpg" />
 </div>
 
 

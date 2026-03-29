@@ -1,3 +1,166 @@
+###  Публикация: 1184785   (291583) от 22.11.2017
+
+Alice to Zouroku | Алиса и Дзороку [2017, TV, 12 эп.] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_291583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Какая первая ассоциация у вас возникает с именем Алиса? Конечно же, большинство ответит, что это произведение Льюиса Кэрролла "Алиса в стране чудес”. Но чудеса - это понятие весьма субъективное. Для каждого они свои. Кто-то чудесами называет волшебство, кто-то - рождение новых существ, а для других чудом кажутся и обыкновенные явления природы.
+
+Для нашей героини (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, мистикаРежиссер: Сакураби КацусиПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин. (первая серия - 45 мин.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36C9B748066602E4DD92DC64E136F9DE07200E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332511   (290536) от 31.10.2019
+
+Psycho-Pass: Sinners of the System| Психопаспорт: Грешники системы [2019, Movie, 3 эп.] BDRip 1080p raw
+
+>>След.
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_290536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трилогия полнометражных фильмов, рассказывающая истории пяти персонажей сериала:
+
+Дело №1: Преступление и наказание (Мика и Гино)
+Зимой 2117 года в офис Бюро Общественной Безопасности врезается угнанный автомобиль. Водитель опознан как Ясака Идзуми, психологический консультант Убежища, учреждения по изоляции латентных преступников префектуры Аомори. Но, перед ее (   Читать дальше...   )Производство: студия Production I.GЖанр: приключения, фантастикаРежиссер: Сиотани НаоёсиПеревод: YouNet TranslateЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 3 фильма по 60 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F705001E8EFF9A755B31B8270908A76569A3F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 269901   (289566) от 13.12.2010
+
+Ichiban Ushiro no Daimaou / Князь тьмы с задней парты [2010, TV,  12 серий + 6 спэшлов] BD-rip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_289566.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ichiban Ushiro no Daimaou Год выпуска: 2010
+Жанр: приключения, комедия
+Тип: TV-сериал(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EA0512A42BB2F65E3C5EE283691A71E9C5F5E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335484   (287551) от 02.11.2019
+
+Onii-sama e... | Dear Brother | Уважаемый старший брат [ТВ] [1991, TV, 39] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юная Нанако Мисато поступает в престижную школу для девочек «Сэйран». Она очень горда своей первой житейской победой и от души рада тому, что вместе с ней будет учиться ее ближайшая подруга Томоко Арикура. Обо всех новостях своей жизни Нанако исправно пишет названному брату – учителю начальной школы, аккуратно адресуя хронику своих удач и поражений «Уважаемому старшему (   Читать дальше...   )Производство: TMSЖанр: повседневность, драмаРежиссер: Дэдзаки ОсамуПеревод: KoKoRo FansubsЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 39 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4782B88DB12F3DAF7F34E6E725B1FB5FBC4CE24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335684   (286016) от 03.11.2019
+
+DNA2: Dokoka de Nakushita Aitsu no Aitsu | ДНК 2 [1994, TV+OVA, 15 эп.] BDRip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_286016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная Япония. Момонари Дзюнта - необычный парень. У него аллергия на девушек - при малейшем намеке на эротическую сцену его начинает выворачивать наизнанку. Однако после случайно сделанной ему инъекции изменителя ДНК он начинает на время превращаться в Мега-Плейбоя - свою абсолютную противоположность, "идеального мужчину" и кумира всех девушек мира. (   Читать дальше...   )Жанр: фантастика, комедия, романтика, эттиРежиссер: Саката ДзюнъитиПеревод: Сергей 'Nomad' РыгинЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 3 OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DAC9B493A07E19DD0ADF30077974BCCAE69691E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186856   (284055) от 26.11.2017
+
+Suki ni Naru Sono Shunkan o. Kokuhaku Jikkou Iinkai | The Moment You Fall in Love: Confess Your Love Committee | Я все жду, когда полюбишь меня [2016, Movie] BDRip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_284055.jpg" />
+</div>
+
+
+###  Подробнее
+
+После репетиций Нацуки Эномото с Юу Сетогучи, их младшие братья и сестры Котару и Хина борются за признание своей собственной любви. Несмотря на катастрофическую первую встречу в средней школе с ее старшим классом Койуки Аясэ, сердце Хины захватывает его теплая улыбка. Вначале смущенная этими новообретенными чувствами, Хина скоро понимает, что она влюбилась в первый (   Читать дальше...   )Производство: Qualia AnimationЖанр: повседневность, романтика, школа, комедияРежиссер: Янагисава ТэцуяПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: Английские, РусскиеПродолжительность: 65 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41FD565DD65DEB2D274450E9CCABF529CB18E37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186916   (282177) от 27.11.2017
 
 Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Confess Your Love Committee | Исполнительный комитет признаний в любви [2016, Movie] BDRip 1080p raw
@@ -6,7 +169,7 @@ Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Conf
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282177.jpg" />
+  <img src="Z:/picture/008/save_picture_282177.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ Turn A Gundam | Гандам: Объединение [1999, TV, 50 из 50] BDRi
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280525.jpg" />
+  <img src="Z:/picture/008/save_picture_280525.jpg" />
 </div>
 
 
@@ -58,7 +221,7 @@ Mouretsu Pirates - Akuu no Shin'en | Moretsu Pirates: Abyss of Hyperspace | Ли
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278991.jpg" />
+  <img src="Z:/picture/008/save_picture_278991.jpg" />
 </div>
 
 
@@ -84,7 +247,7 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25 эп. + 9 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278785.jpg" />
+  <img src="Z:/picture/008/save_picture_278785.jpg" />
 </div>
 
 
@@ -110,7 +273,7 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277672.jpg" />
+  <img src="Z:/picture/008/save_picture_277672.jpg" />
 </div>
 
 
@@ -136,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277632.jpg" />
+  <img src="Z:/picture/008/save_picture_277632.jpg" />
 </div>
 
 
@@ -162,7 +325,7 @@ Koukaku Kidoutai Stand Alone Complex: Solid State Society / Ghost in the Shell: 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277271.jpg" />
+  <img src="Z:/picture/008/save_picture_277271.jpg" />
 </div>
 
 
@@ -188,7 +351,7 @@ Shin Kidou Senki Gundam Wing | Mobile Suit Gundam Wing | Мобильный во
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273615.jpg" />
+  <img src="Z:/picture/008/save_picture_273615.jpg" />
 </div>
 
 
@@ -214,7 +377,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] BDR
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273436.jpg" />
+  <img src="Z:/picture/008/save_picture_273436.jpg" />
 </div>
 
 
@@ -240,7 +403,7 @@ Galilei Donna - Storia di tre sorelle a caccia di un mistero | Галилей Д
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266827.jpg" />
 </div>
 
 
@@ -266,7 +429,7 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Sukas
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266745.jpg" />
 </div>
 
 
@@ -292,7 +455,7 @@ Gyakusatsu Kikan | Genocidal Organ | Орган геноцида [2017, Movie] B
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265671.jpg" />
 </div>
 
 
@@ -318,7 +481,7 @@ Kidou Butouden G Gundam | Mobile Fighter G Gundam | Мобильный воин 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265332.jpg" />
 </div>
 
 
@@ -345,7 +508,7 @@ Twin Angel Break | Ангельский дуэт: Прорыв [2017, TV, 12 э�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265007.jpg" />
 </div>
 
 
@@ -371,7 +534,7 @@ Kimi no Koe o Todoketai | Я хочу донести твой голос [2017, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265004.jpg" />
 </div>
 
 
@@ -399,7 +562,7 @@ Yuru Yuri Ten | Лилии на ветру OVA 2 [2019, OVA, 1 эп.] BDRip 1080
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264002.jpg" />
 </div>
 
 
@@ -425,7 +588,7 @@ Gunsmith Cats | Оружейницы [1995, OVA, 3 эп.] BDRip 1080 10bit raw+e
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263973.jpg" />
 </div>
 
 
@@ -453,7 +616,7 @@ Ushio to Tora TV | Усио и Тора ТВ (сезон 1 и 2) [2015, TV, 26 +
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263410.jpg" />
 </div>
 
 
@@ -479,7 +642,7 @@ Kanojo to Kanojo no Neko: Everything Flows | Она и её кот: Всё те�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262291.jpg" />
 </div>
 
 
@@ -507,7 +670,7 @@ Guilty Crown | Корона греха [2011, TV, 22 эп.] BDRip 1080p 10-bit r
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255209.jpg" />
+  <img src="Z:/picture/005/save_picture_255209.jpg" />
 </div>
 
 
@@ -518,168 +681,6 @@ Guilty Crown | Корона греха [2011, TV, 22 эп.] BDRip 1080p 10-bit r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0292AC1C869D0D589C00F798D88CBC298461BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836364   (252528) от 10.11.2025
-
-Muu no Hakugei | The White Whale of Mu | Белый кит континента Му [1980, TV, 26] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252528.jpg" />
-</div>
-
-
-###  Подробнее
-
-В древние времена континенты Атлантида и Му вели войну, и Атлантида проиграла. После поражения Атлантида превратилась в маленькую планету и переместилась во время в настоящее, чтобы снова попытаться захватить мир. Но пять воинов из Му собрались на острове Пасхи и вместе с гигантским белым китом, в котором находится мозг древнего Ра Му, сражаются с Атлантидой в различных (   Читать дальше...   )Производство: Япония, студия TMSЖанр: экшен, приключение, фантастикаРежиссер: Имадзава ТэцуоПеревод: Русские субтитры на основе перевода Inka-SubsЯзык озвучки: ЯпонскийСубтитры: Английские, Русские (внешние)Продолжительность: ТВ, 26 серии по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24678E5EFFE0489390E9230407863D26B7E54A7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419518   (251790) от 03.06.2023
-
-Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и ожидал, моя школьная романтическая жизнь не удалась [ТВ-3] [2020, TV, 12 эп. + 1 OVA] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжении истории хикки Хатимана.
-
-Нелюдимый старшеклассник Хатиман Хикигая стронулся в развитии с мертвой точки… и запутался. Он считал себя циником – а стал помогать людям, думал, что неудачник – а удостоился внимания незаурядных девушек, мечтал спокойно дотянуть до конца школы – а покоя-то нет! Стоило приоткрыться – и личина изгоя треснула, теперь приходится (   Читать дальше...   )Производство: студия FeelЖанр: комедия, романтика, повседневностьРежиссер: Ойкава КэйПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73258F4E0BA872AD93A9A5BD048968F47836F593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493483   (250658) от 09.05.2012
-
-HEAVEN IS A PLACE ON EARTH / Gekijouban Hayate no Gotoku! Heaven is a Place on Earth / Боевой дворецкий Хаяте! Есть рай на земле [2011, MV] BDrip 1080p 10bit raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые приключения двух миллиардеров: богатейки и ее должника в полнометражном фильме
-Hayate the Combat Butler! Heaven is a Place on Earth .
-Хаятэ, Наги и остальные, проводят последние дни летних каникул в сельской местности Nishizawa.
-Но таинственный дух придумал схему, чтобы отделить дворецкого от его молодой госпожи.Жанр: комедия, пародия, приключенияРежиссер: Комори ХидэтоПродолжительность: 70 мин
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216E9CB5CE1ED857A58193900C86DFAB3E7FA2F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834703   (250472) от 04.11.2025
-
-Dan Da Dan | Дандадан [ТВ-1] [2024, TV, 12 из 12] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Момо Аясэ верит в духов и призраков, но считает, что НЛО и пришельцы — полнейшая чушь и выдумки. Однажды она заводит дружбу с парнем из школы по прозвищу Окарун (настоящее его имя вслух лучше не произносить), который уверен в прямо противоположном. Чтобы доказать друг другу, что оппонент неправ, оба отправляются в знаковые для противных лагерей места: Момо — в точку, (   Читать дальше...   )Производство: Science SaruЖанр: Экшен, комедия, сверхъестественноеРежиссер: Ямасиро ФугаПеревод: Crunchyroll; SovetRomantica; Katsura
-ред. субтитров - Adventurer_KunЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3DCB2EC428DDF5EEE5BBEDA2E313A197E8D3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 802577   (250050) от 16.03.2022
-
-Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Нананы [2014, TV, 11 эп. + 6 SP] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250050.jpg" />
-</div>
-
-
-###  Подробнее
-
-17-летний Дзюго Яма, крепкий парень с непростым прошлым, ушел из дома и приехал учиться на рукотворный остров Нанаэ – рай для школьников и студентов. Но деньги нужны даже там, а с ними худо, поэтому парень соблазнился дешевой квартирой. Справедливость поговорки про дешевизну Яма-кун понял сразу, обнаружив в новом жилье симпатичную девчонку в белом платье. Нанана (   Читать дальше...   )Производство: Студия A-1 Pictures Inc.Жанр: комедия, романтика, сверхъестественноеРежиссер: Камэй КантаПеревод: LeDi-MaHo TeamЯзык субтитров: РусскийПродолжительность: 11 серий по 24 минуты + 6 SP по 4 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893F28CBB7A950027F070129787054EA81A0326F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467431   (249703) от 21.03.2022
-
-Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская академия [ТВ-5] [2021, TV, 25 из 25] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249703.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если большинство людей владеет суперспособностями, то и воинов правосудия надо много. Школы для одаренных есть везде – а вот Идзуку Мидории, истовому фанату геройских дел, способностей не досталось, о чем он очень жалеет. Но ничего, судьба и храброе сердце однажды свели Мидорию с Всемогущим, сильнейшим героем на свете. Ветерану парень понравился – настолько, что (   Читать дальше...   )Производство: BonesЖанр: Приключения, фантастика, сёнэнРежиссер: Нагасаки КэндзиСубтитры: Русские, АнглийскиеПродолжительность: 25 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD585E4E7EADAC5EF4D389819A9C6CA78D144942
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Microsoft Windows and Office ISO Download Tool 4.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820667.jpg" />
+  <img src="Z:/picture/008/save_picture_820667.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Daum PotPlayer 1.7.1150 DC 20.03.2017 Stable + Portable (x86/x64) by SamLab [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820666.jpg" />
+  <img src="Z:/picture/008/save_picture_820666.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ jv16 PowerTools 2017 4.1.0.1688 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820664.jpg" />
+  <img src="Z:/picture/008/save_picture_820664.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Zoom Player MAX 12.7 build 1270 Final RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820657.jpg" />
+  <img src="Z:/picture/008/save_picture_820657.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Maxthon Browser MX5 5.0.3.1200 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820656.jpg" />
+  <img src="Z:/picture/008/save_picture_820656.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Corel VideoStudio Pro X9 19.2.0.4 SP2 + Content Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820655.jpg" />
+  <img src="Z:/picture/008/save_picture_820655.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ UC Browser 7.0.125.1802 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820619.jpg" />
+  <img src="Z:/picture/008/save_picture_820619.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SRWare Iron 63.0.3300.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820618.jpg" />
+  <img src="Z:/picture/008/save_picture_820618.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820608.jpg" />
+  <img src="Z:/picture/008/save_picture_820608.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ GPU-Z 2.31.0 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820598.jpg" />
+  <img src="Z:/picture/008/save_picture_820598.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Macrium Reflect v 7.2.4859 x64 Server Plus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820594.jpg" />
+  <img src="Z:/picture/008/save_picture_820594.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820568.jpg" />
+  <img src="Z:/picture/008/save_picture_820568.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Hetman FAT Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820552.jpg" />
+  <img src="Z:/picture/008/save_picture_820552.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ CoolUtils Total Image Converter 7.1.1.147 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820548.jpg" />
+  <img src="Z:/picture/008/save_picture_820548.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Hetman Word Recovery 2.4 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820546.jpg" />
+  <img src="Z:/picture/008/save_picture_820546.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Coolmuster Word to PDF Converter 2.1.4 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820544.jpg" />
+  <img src="Z:/picture/008/save_picture_820544.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Aml Maple 5.05 Build 688 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820541.jpg" />
+  <img src="Z:/picture/008/save_picture_820541.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ IObit Uninstaller Pro 6.3.0.17 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820539.jpg" />
+  <img src="Z:/picture/008/save_picture_820539.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ O&O ShutUp10 1.4.1388 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820538.jpg" />
+  <img src="Z:/picture/008/save_picture_820538.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Hetman NTFS Recovery 2.6 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820536.jpg" />
+  <img src="Z:/picture/008/save_picture_820536.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Daum PotPlayer 1.7.1150 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820535.jpg" />
+  <img src="Z:/picture/008/save_picture_820535.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Hetman Photo Recovery 4.5 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820534.jpg" />
+  <img src="Z:/picture/008/save_picture_820534.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Ummy Video Downloader 1.8.3.2 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820528.jpg" />
+  <img src="Z:/picture/008/save_picture_820528.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Topaz Video Enhance AI 1.2.2 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820494.jpg" />
+  <img src="Z:/picture/008/save_picture_820494.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Pegasun System Utilities 4.30 RePack by tolyan76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820426.jpg" />
+  <img src="Z:/picture/008/save_picture_820426.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ The Foundry MODO 11.2v2 + Content [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820413.jpg" />
+  <img src="Z:/picture/008/save_picture_820413.jpg" />
 </div>
 
 

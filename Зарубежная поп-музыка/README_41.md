@@ -1,3 +1,32 @@
+###  Публикация: 921935   (573794) от 26.07.2015
+
+Fear of Tigers - Zoipa (2014) EP [MP3|320 кб/с]<Electronic, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weekend In Harlem
+02. Ailuropoda Melanoleuca
+03. Golden Age
+04. Twisted Biscuit(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB7D938AD7F3559FA6FCBD068B111D54E96CE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921900   (573752) от 26.07.2015
 
 Fear of Tigers - Christmas In Kaohsiung (2013) EP [MP3|320 кб/с]<Electronic, Indie Pop>
@@ -6,7 +35,7 @@ Fear of Tigers - Christmas In Kaohsiung (2013) EP [MP3|320 кб/с]<Electronic, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573752.jpg" />
+  <img src="Z:/picture/008/save_picture_573752.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Inna - Body and the Sun (2015) [MP3|320 кб/с]<Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573643.jpg" />
+  <img src="Z:/picture/008/save_picture_573643.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ Elohim - Elohim (2018) Deluxe Edition [Explicit] [MP3|320 Kbps] <Synthpop, Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573085.jpg" />
+  <img src="Z:/picture/008/save_picture_573085.jpg" />
 </div>
 
 
@@ -92,7 +121,7 @@ VA - We Love Summer (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572887.jpg" />
+  <img src="Z:/picture/008/save_picture_572887.jpg" />
 </div>
 
 
@@ -121,7 +150,7 @@ VA - 80's Chillout. The Ultimate Collection of Chilled 80's Music (2017) [MP3|32
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572441.jpg" />
+  <img src="Z:/picture/008/save_picture_572441.jpg" />
 </div>
 
 
@@ -150,7 +179,7 @@ Bad Boys Blue - Greatest Hits (2009) [MP3|320 кб/с]<Euro Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572398.jpg" />
+  <img src="Z:/picture/008/save_picture_572398.jpg" />
 </div>
 
 
@@ -185,7 +214,7 @@ Sophie Marceau - Certitude (1985) [MP3|192 кб/с]<French Pop, Chanson>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571691.jpg" />
+  <img src="Z:/picture/008/save_picture_571691.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ VA - 40 Tubes Ete (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571024.jpg" />
+  <img src="Z:/picture/008/save_picture_571024.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ Czerwone gitary / Червоны Гитары - 16 альбомов (1966-2007) 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570405.jpg" />
+  <img src="Z:/picture/008/save_picture_570405.jpg" />
 </div>
 
 
@@ -278,7 +307,7 @@ Chris Rea - Greatest Hits (2007) [MP3|320 кб/с]<Pop, Rock, Blues>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570157.jpg" />
+  <img src="Z:/picture/008/save_picture_570157.jpg" />
 </div>
 
 
@@ -313,7 +342,7 @@ Ricchi E Poveri - Allegro Italiano (1992) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569734.jpg" />
+  <img src="Z:/picture/008/save_picture_569734.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ Yulduz Usmanova (Usmonova) - 17 Albums (1993-2014) [MP3|128-320 Kbps] <Pop, Ethn
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568438.jpg" />
+  <img src="Z:/picture/008/save_picture_568438.jpg" />
 </div>
 
 
@@ -371,7 +400,7 @@ Bea Miller - Not An Apology (2015) [OGG|474-539 кб/с]<Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568217.jpg" />
+  <img src="Z:/picture/008/save_picture_568217.jpg" />
 </div>
 
 
@@ -400,7 +429,7 @@ Madonna - Greatest Hits (2008) [MP3|320 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568199.jpg" />
+  <img src="Z:/picture/008/save_picture_568199.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Kristine - Kristine (2015) [MP3|320 кб/с]<80's Retrowave, Synthpop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568175.jpg" />
+  <img src="Z:/picture/008/save_picture_568175.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Kiki Dee - 3 Albums (1977-1981) Reissue CD [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567357.jpg" />
+  <img src="Z:/picture/008/save_picture_567357.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ VA - Disco Sound (Hits In Instrumentalfassung) (1978) LP [MP3|320 Kbps] <Disco, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567303.jpg" />
+  <img src="Z:/picture/008/save_picture_567303.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ VA - The Dome Summer (2018) 2CD [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565998.jpg" />
+  <img src="Z:/picture/008/save_picture_565998.jpg" />
 </div>
 
 
@@ -551,7 +580,7 @@ Michelle - Tabu (Deluxe) (2018) 2CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565918.jpg" />
+  <img src="Z:/picture/008/save_picture_565918.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ Christina Aguilera - Aguilera (2022) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565477.jpg" />
+  <img src="Z:/picture/008/save_picture_565477.jpg" />
 </div>
 
 
@@ -609,7 +638,7 @@ Snoopy - Snoopy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Reggae, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565338.jpg" />
+  <img src="Z:/picture/008/save_picture_565338.jpg" />
 </div>
 
 
@@ -638,7 +667,7 @@ Olialia Pupytes - Išpildyk mano norus (2009) [MP3|~225 кб/с (V1)]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564925.jpg" />
+  <img src="Z:/picture/008/save_picture_564925.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Acoustic Love Songs (2018) [MP3|320 Kbps] <Pop, Folk, Pop Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564072.jpg" />
+  <img src="Z:/picture/008/save_picture_564072.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Rosebud - Discoballs (A Tribute To Pink Floyd) (1978) LP [MP3|320 Kbps] <Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563299.jpg" />
+  <img src="Z:/picture/008/save_picture_563299.jpg" />
 </div>
 
 
@@ -731,7 +760,7 @@ Britney Spears - Glory (2016) Deluxe Version [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562979.jpg" />
+  <img src="Z:/picture/008/save_picture_562979.jpg" />
 </div>
 
 
@@ -745,35 +774,6 @@ Britney Spears - Glory (2016) Deluxe Version [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF82A9E6ACF1AC5ADB9689C8F6603600CF7DE12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153176   (561615) от 25.07.2017
-
-Men At Work - 3 Albums (1981-1985) CD [MP3|320 Kbps] <Electronic, New Wave, Pop Rock, Synth pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Men at Work - австралийская поп-рок группа, основанная  Колином Хэйем в 1979 и добившаяся признания в 1982-1984 годах. Музыкальный стиль группы сочетал элементы новой волны, регги и в дальнейшем синти-попа. Men at Work остаётся единственной австралийской группой, синглы  которой занимали первые места и в США, и в Великобритании, и, до 2011 года, единственной австралийской (   Читать дальше...   )Список альбомов:
-1981 - Business As Usual
-1983 - Cargo
-1985 - Two Hearts(   Читать дальше...   )Жанр: Electronic, New Wave, Pop Rock, Synth popПродолжительность: 01:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41156E491CF6248D6D9750FEF32E3127EC0FC969
 ```
 
 https://mybot314.ru/tekegram_catalog/

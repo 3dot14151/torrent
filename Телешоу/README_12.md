@@ -1,3 +1,29 @@
+###  Публикация: 1118793   (811491) от 26.03.2017
+
+Где логика? (2017.03.26) SATRip (сезон 4, выпуск 6)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_811491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79A7C2D6C80731E40201F406E4D5460F5AC6AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118573   (811363) от 26.03.2017
 
 Холостяк (2017.03.25) WEB-DL [H.264/720p-LQ] (сезон 5, выпуск 3)
@@ -6,7 +32,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811363.jpg" />
+  <img src="Z:/picture/008/save_picture_811363.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811219.jpg" />
+  <img src="Z:/picture/008/save_picture_811219.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810166.jpg" />
+  <img src="Z:/picture/008/save_picture_810166.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809458.jpg" />
+  <img src="Z:/picture/008/save_picture_809458.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809283.jpg" />
+  <img src="Z:/picture/008/save_picture_809283.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_809181.jpg" />
+  <img src="Z:/picture/005/save_picture_809181.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808229.jpg" />
+  <img src="Z:/picture/008/save_picture_808229.jpg" />
 </div>
 
 
@@ -194,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808113.jpg" />
+  <img src="Z:/picture/008/save_picture_808113.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807988.jpg" />
+  <img src="Z:/picture/008/save_picture_807988.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804081.jpg" />
+  <img src="Z:/picture/008/save_picture_804081.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803646.jpg" />
+  <img src="Z:/picture/008/save_picture_803646.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803557.jpg" />
+  <img src="Z:/picture/008/save_picture_803557.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803552.jpg" />
+  <img src="Z:/picture/008/save_picture_803552.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802326.jpg" />
+  <img src="Z:/picture/008/save_picture_802326.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802100.jpg" />
+  <img src="Z:/picture/008/save_picture_802100.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802060.jpg" />
+  <img src="Z:/picture/008/save_picture_802060.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801256.jpg" />
+  <img src="Z:/picture/008/save_picture_801256.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801138.jpg" />
+  <img src="Z:/picture/008/save_picture_801138.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800612.jpg" />
+  <img src="Z:/picture/008/save_picture_800612.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800591.jpg" />
+  <img src="Z:/picture/008/save_picture_800591.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800580.jpg" />
+  <img src="Z:/picture/008/save_picture_800580.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800513.jpg" />
+  <img src="Z:/picture/008/save_picture_800513.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800508.jpg" />
+  <img src="Z:/picture/008/save_picture_800508.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800492.jpg" />
+  <img src="Z:/picture/008/save_picture_800492.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800484.jpg" />
+  <img src="Z:/picture/008/save_picture_800484.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848680DF73B6557EB5BFFCCBE861BF1F9562424C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385281   (800040) от 23.05.2020
-
-Остров героев (23.05.2020) WEB-DL [H.264/1080p-LQ] (выпуск 1)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чего стоят подписчики, когда нечего есть? Каким будет утреннее селфи, если провести ночь на земле со змеями? Что важнее: зажечь на тусовке или зажечь костер, чтобы не замерзнуть? Восьми популярным блогерам предстоит найти ответы на эти вопросы в новом реалити-шоу «Остров героев»! Они отправятся выживать на необитаемый остров Мого-Мого в Панаме и покажут, на что способны (   Читать дальше...   )Телекомпания: ТНТ, ООО «Остров Героев Интернешнл»Жанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF67C2BB76E7559C6113D1464E40E9F772B475C
 ```
 
 https://mybot314.ru/tekegram_catalog/

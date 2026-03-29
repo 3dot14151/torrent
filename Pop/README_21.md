@@ -1,3 +1,351 @@
+###  Публикация: 1461242   (1022075) от 08.04.2021
+
+VA - Beats Of The Night - Studio 54 Vol. 2 (1980) 2LP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mitsou - Rock 'N' Roll Is Back Again (4:16)
+02. Heather Parisi - Disco Bambina (5:14)
+03. La Flavour - Mandolay (5:29)
+04. Rinder & Lewis - Willie And The Hand Jive (4:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB20323CDC632B3B4E04C72199346CA0BD6F832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461176   (1022000) от 08.04.2021
+
+Dick St. Nicklaus - Magic (1979) LP [MP3|320 Kbps] <Disco, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (3:39)
+02. Help Yourself (3:19)
+03. What's The Reason (4:51)
+04. Can't Give Up (2:54)(   Читать дальше...   )Жанр: Disco, Pop, Soft RockПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1196500EA58BF0EC47E970BCB387E7351BCE5315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461202   (1021998) от 08.04.2021
+
+VA - ZYX Italo Disco Spacesynth Collection 6 (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Spacesynth>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - It's Over (5:03)
+02. Bellatrix - Vector (5:37)
+03. Blue Star Project - Happy Dance (ZYX Version) (5:24)
+04. DJ Con-T - Space Adventure (Vanello Remix) (5:44)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4E693E5C58995665F377DF650957DD7D6EEA04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461359   (1021956) от 09.04.2021
+
+Hott City - Ain't Love Grand (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feelin' Love (6:45)
+02. If All We're Gonna Do Is Dance (8:34)
+03. Ain't Love Grand (5:05)
+04. I Took His Money (7:03)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:33:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4315B5689CB07EB80A2AD0226B36F9B32F82005F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461313   (1021953) от 09.04.2021
+
+Mirko Hirsch - Love Is Blind: Songs from the Motion Picture Pretty Boy (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Italo-Disco, AOR>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is Blind (Long Version) (3:57)
+02. Return to Neon (Alternate Ending) (4:37)
+03. King Without a Crown (6:12)
+04. When Love Said No (4:23)(   Читать дальше...   )Жанр: Synthpop, Italo-Disco, AORПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D759C20B024CAF44225E1F13C4F714FDE1B65737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461409   (1021943) от 09.04.2021
+
+Various Artists - Supermix - [El Primer Megamix... Ilustrado] Cap. #1 (2019) [WavPack|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supermix (The Custer Megamix)       -    Megamix By Tony Postigo  (15:37) **
+02. Swan                                              -    General Custer     (7:08)
+03. Roy                                                 -    Destiny Time   (6:28)
+04. Check Up Twins                                -    Sexy Teacher   (7:16)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457E74DDAE86A8DC17EF9CA5490035E3BBAEFF29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461296   (1021925) от 09.04.2021
+
+Балаган Лимитед - Сто на двоих (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021925.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome to Russia
+2. Кто бы мог подумать
+3. Ой, да
+4. День рождения(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D80D3079F27C08A324E2FF0C03DDC031F075AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461528   (1021806) от 10.04.2021
+
+Заплатки - Завтра выходной (1998) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колечко
+02. Пряничек Медовый
+03. Завтра-Выходной
+04. Кузнечик(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D5749F46261698D166B6E3B8B1D1DF937A4692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461666   (1021753) от 10.04.2021
+
+VA - ZYX Italo Disco New Generation Vol. 16 (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Italove - Burn This City (Flashback Ri-Mix) (6:22)
+02. Savage - Magic Carillon (Also Playable Mono Remix) (5:30)
+03. Carino Cat feat. Fred Ventura - The Carino Crew (4:58)
+04. Romantic Gladiators feat. Joey Mauro and Remo Zito - Hero (Warrior Version) (5:24)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:28:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD6036D7C55E2FFE21800FC38C738106E13B77A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461749   (1021608) от 11.04.2021
+
+Балаган Лимитед - Сто на двоих (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to Russia (3:12)
+02. Кто бы мог подумать (3:08)
+03. Ой, да (2:51)
+04. День рождения (3:23)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D16CF3B0DDCB51376275C66A84CE2BC68C9E25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461752   (1021599) от 11.04.2021
+
+VA - Venti Compilation 6 (2020) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Disco, Hi-NRG, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primadonna - Pretty Face (6:49)
+02. Brian Ice - Fly With Me (6:21)
+03. Sauvage - Just Like Heaven (6:14)
+04. Caglioni - Star (Remix) (6:20)(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRG, SynthpopПродолжительность: 02:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B56EA9905F07A105C05BCFE65BD05BDB3C05636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462163   (1021324) от 13.04.2021
+
+гр. Тяни-толкай - 3000 шагов. Баллады (2005) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3000 шагов
+02. Океан тайги ( дуэт с Алексеем Хлестовым )
+03. Снег
+04. Даль-чужбинушка(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9064968B7069AC3FC1EA45E7A2BCEEDA80F89CFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462097   (1021318) от 13.04.2021
 
 SEVENROSE - Не уходи, любовь (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -6,7 +354,7 @@ SEVENROSE - Не уходи, любовь (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021318.jpg" />
 </div>
 
 
@@ -35,7 +383,7 @@ SEVENROSE - Белые розы любви (2020) [FLAC|Lossless|WEB-DL|tracks] 
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021311.jpg" />
 </div>
 
 
@@ -64,7 +412,7 @@ VA - Profondo Nero (compiled by Cinema Royale) (2021) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021310.jpg" />
 </div>
 
 
@@ -93,7 +441,7 @@ SEVENROSE - 4 альбома (2020) [MP3|~245 Kbps (V0)] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021297.jpg" />
 </div>
 
 
@@ -122,7 +470,7 @@ VA - Лучшие танцевальные хиты (2003) [FLAC|Lossless|tracks
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021284.jpg" />
 </div>
 
 
@@ -151,7 +499,7 @@ VA - Billboard - Top 500 Songs of the 90s (2021) [MP3|320 Kbps] <Pop, Rock, R&B,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021270.jpg" />
 </div>
 
 
@@ -180,7 +528,7 @@ VA - Billboard - Top 500 Songs of the 80s (2021) [MP3|320 Kbps] <Pop, Rock, R&B,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021269.jpg" />
 </div>
 
 
@@ -209,7 +557,7 @@ Catt's Digital - Мегаворлдский Размер (2021) [FLAC|Lossless|W
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021216.jpg" />
 </div>
 
 
@@ -238,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021186.jpg" />
 </div>
 
 
@@ -267,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021178.jpg" />
 </div>
 
 
@@ -296,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021103.jpg" />
 </div>
 
 
@@ -325,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021082.jpg" />
 </div>
 
 
@@ -354,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021011.jpg" />
 </div>
 
 
@@ -383,7 +731,7 @@ Taylor Swift - Fearless (Taylor's Version) (2008) 2CD / Target Exclusive / 2021 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021002.jpg" />
 </div>
 
 
@@ -397,354 +745,6 @@ Taylor Swift - Fearless (Taylor's Version) (2008) 2CD / Target Exclusive / 2021 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85079D5BC4BB75110FB03B3680DC5C8A5733CCF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462573   (1021000) от 15.04.2021
-
-Александр Маршал - Невыдуманные истории (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дуэль (3:57)
-02. Я помню тот день (4:21)
-03. Роль (3:53)
-04. Отец (6:36)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2525FF6473B57BD9419C086252B829E5DB79429E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462683   (1020970) от 15.04.2021
-
-VA - ZYX Italo Disco New Generation Vol. 17 (2020) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Italodisco (Flemming Dalum Remix) (6:28)
-02. Italove - The Mirror (Extended Version) (7:08)
-03. Synergic Silence feat. Fred Ventura - You're So Fine (Italoconnection Remix) (6:08)
-04. KNIGHT$ - Gelato (Flemming Dalum Remix) (5:41)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06AA604FFE9BDB92D263B3085297358B7A83481B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462933   (1020807) от 16.04.2021
-
-Madonna - What It Feels Like For A Girl (2000) Reissue, 2021,  Rhino Records, Warner Records [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What It Feels Like for a Girl (Radio Edit)
-02. What It Feels Like for a Girl (Paul Oakenfold Perfecto Mix)
-03. What It Feels Like for a Girl (Richard Vission Velvet Masta Mix)
-04. What It Feels Like for a Girl (Calderone & Quayle Dark Side Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:523981509925CB032313036776EA08AE26CCD8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463125   (1020668) от 17.04.2021
-
-VA - Подарок любимой маме (2004) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. И. Аллегрова - Мама ( дуэт с Л. Аллегровой )
-02. Ф. Киркоров - Мне мама тихо говорила
-03. Премьер-Министр - Мама ( Как много я хотел сказать...)
-04. Фристайл - С днем рождения, мама(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F3B9BE23CD1EE49330F377387E379C6E23CB6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463093   (1020624) от 17.04.2021
-
-Наташа Морозова - Russian Enigma (2013) [FLAC|Lossless|tracks + .cue] <Pop, New Age, Classical>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Улетай на крыльях ветра (4:30)
-02. Ах ты, степь широкая (4:17)
-03. Seachange (8:09)
-04. You haunt me (4:27)(   Читать дальше...   )Жанр: Pop, New Age, ClassicalПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45273504876D68080C11CBC91501FDB2D9848837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463122   (1020614) от 17.04.2021
-
-Fun Factory - Nonstop! The Album (1994) [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Jam
-02. Groove Me
-03. Take Your Chance
-04. Love Of My Life(   Читать дальше...   )Жанр: Eurodance, Reggae-PopПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD3CA2E8A4DEBEDD05D6D5C4440B270E7ECE746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463305   (1020467) от 18.04.2021
-
-Александр Малинин - Лунная соната (1994) [FLAC|Lossless|tracks + .cue] <Ballad, Pop, Chanson>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020467.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тост (3:37)
-2. Белая гвардия (4:24)
-3. Свадьба со смертью (4:40)
-4. Когда я уйду (3:47)(   Читать дальше...   )Жанр: Ballad, Pop, ChansonПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C158FD53D5C6D89FDC9EBB22230483CE65A9347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463600   (1020311) от 19.04.2021
-
-Ankie Bagger - Where Were You Last Night (1990) [FLAC|Lossless|image + .cue] <Italo-Disco, Europop, Italodance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Were You Last Night (4:12)
-02. I Was Made For Loving You (4:02)
-03. There's No Reason (3:39)
-04. Dance The Night Away (3:43)(   Читать дальше...   )Жанр: Italo-Disco, Europop, ItalodanceПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911B80C953E957F9CF747AC9F58BC1CB7174BE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463741   (1020306) от 19.04.2021
-
-VA - MMA Workout 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meduza - Piece Of Your Heart (02:32)
-02. Bree Runway - ATM (03:07)
-03. Hedegaard - Don't Fuck With Me (02:37)
-04. Meduza - Lose Control (02:48)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC07920C00A8E74920CA36CDA14587FD712F5CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463732   (1020303) от 19.04.2021
-
-Soulya ID - Only One We're Need Is Love (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:43)
-02. Vampirella's Song (Remastered) (5:27)
-03. Everybody (Remastered) (5:19)
-04. When I'll See The Sea (Mix 2021) (4:25)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701955253C318DEEB5746066087F01407C99E73D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463685   (1020294) от 19.04.2021
-
-Barbados Climax - 2 Albums (1978, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянская диско-группа во главе с продюсером - аранжировщиком и автором песен Джанкарло Тромбетти. Выпустили два этих альбома.01. California U.S.A. (8:25)
-02. Making Love With You (5:00)
-03. Samos (3:37)
-04. Las Vegas Climax (8:46)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DEF793A0D9A56CD7AC6DEBFAF36F4C6B01979E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463485   (1020271) от 19.04.2021
-
-VA - Beat Unlimited (1994) [FLAC|Lossless|image + .cue] <Pop, Dance, Reggae-Pop, Euro-House, Euro-Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cappella - U & Me (4:12)
-02. D.J. Miko - What's Up (5:17)
-03. Wild Boyz Club - In The Navy (5:47)
-04. Beverly - The Power of Love (6:23)(   Читать дальше...   )Жанр: Reggae-Pop, Euro House, Synth-popПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583EE23B692C104F543EAD376FC2F548FE8E192A
 ```
 
 https://mybot314.ru/tekegram_catalog/

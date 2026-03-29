@@ -1,3 +1,57 @@
+###  Публикация: 1498137   (859545) от 25.09.2021
+
+Ю.А. Первин | Информационная культура: Компьютер и слово: Класс 5 (1995) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_859545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогие школьники!
+Компьютеры решают самые разнообразные задачи. Самая большая доля этих задач связана с обработкой текстовой информации. В этой книжке идет речь именно о таких задачах. При этом рассказ начинается с азов. Поэтому читать книжку смогут даже младшие школьники. Правда, для этого рядом с читателем должен находиться компьютер PC.
+В таком случае, прочитав (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279A7528DCF356D1743F6C6B5B5E1AE9B903B66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498166   (859435) от 25.09.2021
+
+И.И. Лерер | Иврит для детей в картинках. Интерактивный тренажер с суперзакладкой (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_859435.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта детская книжка с картинками отлично подойдет для начала занятий ивритом. В ней вы найдете слова и простые предложения по 19 самым необходимым темам. Главная особенность этой книги в том, что она – интерактивная. Специальная закладка, используемая для запоминания и проверки, позволяет детям легко и быстро выучить около 170 слов иврита. Ребенок может писать слова (   Читать дальше...   )Жанр: Иностранные языки/Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E8FC44F5132B41B5FA48DE773B23252BDEF55E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000057   (858980) от 25.03.2016
 
 Т.Ю. Журина | 55 устных тем по английскому языку для школьников. 5-11 кл. (2011) [PDF]
@@ -6,7 +60,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858980.jpg" />
+  <img src="Z:/picture/008/save_picture_858980.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857260.jpg" />
+  <img src="Z:/picture/008/save_picture_857260.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857172.jpg" />
+  <img src="Z:/picture/008/save_picture_857172.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856907.jpg" />
+  <img src="Z:/picture/008/save_picture_856907.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856812.jpg" />
+  <img src="Z:/picture/008/save_picture_856812.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856791.jpg" />
+  <img src="Z:/picture/008/save_picture_856791.jpg" />
 </div>
 
 
@@ -165,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855605.jpg" />
+  <img src="Z:/picture/008/save_picture_855605.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855323.jpg" />
+  <img src="Z:/picture/008/save_picture_855323.jpg" />
 </div>
 
 
@@ -219,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853842.jpg" />
+  <img src="Z:/picture/008/save_picture_853842.jpg" />
 </div>
 
 
@@ -245,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853792.jpg" />
+  <img src="Z:/picture/008/save_picture_853792.jpg" />
 </div>
 
 
@@ -271,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853279.jpg" />
+  <img src="Z:/picture/008/save_picture_853279.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851877.jpg" />
+  <img src="Z:/picture/008/save_picture_851877.jpg" />
 </div>
 
 
@@ -324,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850398.jpg" />
+  <img src="Z:/picture/008/save_picture_850398.jpg" />
 </div>
 
 
@@ -350,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850250.jpg" />
+  <img src="Z:/picture/008/save_picture_850250.jpg" />
 </div>
 
 
@@ -377,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850013.jpg" />
+  <img src="Z:/picture/008/save_picture_850013.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848911.jpg" />
+  <img src="Z:/picture/008/save_picture_848911.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848678.jpg" />
+  <img src="Z:/picture/008/save_picture_848678.jpg" />
 </div>
 
 
@@ -458,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846568.jpg" />
+  <img src="Z:/picture/008/save_picture_846568.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845460.jpg" />
+  <img src="Z:/picture/008/save_picture_845460.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845106.jpg" />
+  <img src="Z:/picture/008/save_picture_845106.jpg" />
 </div>
 
 
@@ -540,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843921.jpg" />
+  <img src="Z:/picture/008/save_picture_843921.jpg" />
 </div>
 
 
@@ -566,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843001.jpg" />
+  <img src="Z:/picture/008/save_picture_843001.jpg" />
 </div>
 
 
@@ -592,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843000.jpg" />
+  <img src="Z:/picture/008/save_picture_843000.jpg" />
 </div>
 
 
@@ -618,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842925.jpg" />
+  <img src="Z:/picture/008/save_picture_842925.jpg" />
 </div>
 
 
@@ -629,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:117968CC7D9E0D26414FEBE851D2D4E334061F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003425   (842920) от 03.04.2016
-
-Мария Яковлева, Сергей Болушевский | 100 научных опытов для детей и взрослых в комнате, на кухне и на даче (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятные химические превращения, загадочные физические явления, непредсказуемое поведение насекомых и растений - с помощью нашей уникальной книги ты сможешь заняться настоящей наукой прямо у себя дома или на улице. Увлекательные опыты, собранные в этой книге сочетают в себе научные знания и развлечения. Их можно проводить одному, вдвоем или целой компанией.Жанр: Познавательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C89DEB0C6FB8E78D429FB2FA9F911855D616DA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500230   (842472) от 05.10.2021
-
-Наталия Артемьева. Киндерномика | Что такое деньги и как с ними обращаться? Книга-игра по финансовой грамотности детей (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите научить ребенка обращаться с деньгами? Более 70 интерактивных эпизодов помогут познакомить ребенка с основами бюджета, накопления и сохранения капитала, а также опасностями, которые подстерегают любого новичка в мире денег.
-В основе сюжета – желание приобрести новый сотовый телефон, которое приводит маленького путешественника в разнообразные сказочные миры. (   Читать дальше...   )Жанр: Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71D40223AEF6A17640EB0513B888BC96C03557C
 ```
 
 https://mybot314.ru/tekegram_catalog/

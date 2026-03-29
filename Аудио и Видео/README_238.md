@@ -6,7 +6,7 @@ VA - Electro Swing New Generation 01 by Bart&Baker: The Best New Electro Swing M
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234762.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Los Angeles Beach Lounge, Vol. 2 (2018) [AAC|~335 Kbps] <Chill Out, Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234756.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Caro Emerald - The Shocking Miss Emerald (Acoustic Sessions) (2013) [AAC|~301 Kb
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234755.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Fireplace Chill, Vol. 5 (2020) [AAC|~322 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234746.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Caro Emerald - Deleted Scenes From the Cutting Room Floor (The Remixes) (2012) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234738.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234738.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Caro Emerald - Deleted Scenes From the Cutting Room Floor (Deluxe Edition) (2011
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234714.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Caro Emerald - Deleted Scenes From The Cutting Room Floor (Acoustic Sessions) (2
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234690.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Erotic Lounge (2015) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234679.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Didier Marouani & Paris France Transit - Concerts En URSS (1983) [AAC|~336 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234632.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Kraftwerk - Remixes (2020) [AAC|~320 Kbps] <Electro, Synth-pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234628.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Deep Sunday Bliss (Best Tunes For Deep-House Lovers), Vol. 1 (2021) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234296.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Chillhop Guitar - Positive Moments (2021) [AAC|~316 Kbps] <Chill Out, Smooth Jaz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234287.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Smooth Jazz n Chill 4 (2019) [AAC|~349 Kbps] <Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234278.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - The Forest Chill Lounge, Vol. 18 (2021) [AAC|~317 Kbps] <Lounge, Downtempo,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234270.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Lake of Tears - Ominous (2021) [AAC|~334 Kbps] <Doom Metal, Gothic Metal>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234264.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - Vanlife Chill, Vol. 5 (2021) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234257.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Vanlife Chill, Vol. 1 (2020) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234248.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Lounge & Cookies, Vol. 1 (2021) [AAC|~292 Kbps] <Lounge, Chill Out, Downtem
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234238.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ VA - Beautiful Metamorphosis, Vol. 4 (2021) [AAC|~300 Kbps] <Downtempo, Lounge, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234230.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ VA - Beyond the Secret Door (Luxury Lounge Collection), Vol. 1 (2021) [AAC|~332 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234215.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA - Electronic Clouds, Vol. 1 (2021) [AAC|~317 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234207.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ VA - Close to You (2021) [AAC|~303 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234197.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Vanlife Chill, Vol. 3 (2021) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234192.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Flora Lounge Tunes by Smooth Deluxe, Vol. 2 (2021) [AAC|~321 Kbps] <Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234186.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ VA - Secret Room: Chillout Your Mind (2021) [AAC|~313 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234180.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ VA - Electronic Clouds, Vol. 3 (2021) [AAC|~306 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234174.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Integrity Plus 12.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694498.jpg" />
+  <img src="Z:/picture/008/save_picture_694498.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Aurora HDR Pro 1.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694448.jpg" />
+  <img src="Z:/picture/008/save_picture_694448.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SiteSucker 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694377.jpg" />
+  <img src="Z:/picture/008/save_picture_694377.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Stacks 4 (RapidWeaver plugin) v4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694376.jpg" />
+  <img src="Z:/picture/008/save_picture_694376.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ SILKYPIX Developer Studio Pro 10 v10.0.18.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694375.jpg" />
+  <img src="Z:/picture/008/save_picture_694375.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Export for iTunes 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694374.jpg" />
+  <img src="Z:/picture/008/save_picture_694374.jpg" />
 </div>
 
 
@@ -157,6 +157,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534586   (694373) от 02.03.2022
+
+GrandTotal 7 v7.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_694373.jpg" />
+</div>
+
+
+###  Подробнее
+
+GrandTotal представляет собой приложение для создания счет-фактур и оценки, основанные на ваших собственных шаблонах.
+Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
+GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 02.03.2022Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB10F7E287EDB2A261604A797ACEEB94C59F4E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534583   (694368) от 02.03.2022
 
 SiteSucker Pro 4.4 [Multi]
@@ -165,7 +193,7 @@ SiteSucker Pro 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694368.jpg" />
+  <img src="Z:/picture/008/save_picture_694368.jpg" />
 </div>
 
 
@@ -191,7 +219,7 @@ Noir – Dark Mode for Safari 2022.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694365.jpg" />
+  <img src="Z:/picture/008/save_picture_694365.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ Dato 3.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694363.jpg" />
+  <img src="Z:/picture/008/save_picture_694363.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ SILKYPIX Developer Studio Pro 11 11.0.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694362.jpg" />
+  <img src="Z:/picture/008/save_picture_694362.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ Path Finder 2123 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694248.jpg" />
+  <img src="Z:/picture/008/save_picture_694248.jpg" />
 </div>
 
 
@@ -298,7 +326,7 @@ App Tamer 2 v2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694247.jpg" />
+  <img src="Z:/picture/008/save_picture_694247.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ iNet Network Scanner 2.8.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694240.jpg" />
+  <img src="Z:/picture/008/save_picture_694240.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ HoudahSpot 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694197.jpg" />
+  <img src="Z:/picture/008/save_picture_694197.jpg" />
 </div>
 
 
@@ -380,7 +408,7 @@ Artstudio Pro 2.0.19 (243) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694194.jpg" />
+  <img src="Z:/picture/008/save_picture_694194.jpg" />
 </div>
 
 
@@ -406,7 +434,7 @@ Elmedia Player Pro 7.2 (1765)[Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694193.jpg" />
+  <img src="Z:/picture/008/save_picture_694193.jpg" />
 </div>
 
 
@@ -434,7 +462,7 @@ Awesome Mails Pro 3 v3.30 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694189.jpg" />
+  <img src="Z:/picture/008/save_picture_694189.jpg" />
 </div>
 
 
@@ -462,7 +490,7 @@ BetterTouchTool 3 v3.402 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694142.jpg" />
+  <img src="Z:/picture/008/save_picture_694142.jpg" />
 </div>
 
 
@@ -488,7 +516,7 @@ FoneLab HEIC Converter 1.0.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694125.jpg" />
+  <img src="Z:/picture/008/save_picture_694125.jpg" />
 </div>
 
 
@@ -515,7 +543,7 @@ Athentech Perfectly Clear Complete 3.6.3.1479 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694070.jpg" />
+  <img src="Z:/picture/008/save_picture_694070.jpg" />
 </div>
 
 
@@ -543,7 +571,7 @@ Disk Drill Enterprise 4.6.380 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693998.jpg" />
+  <img src="Z:/picture/008/save_picture_693998.jpg" />
 </div>
 
 
@@ -570,7 +598,7 @@ Adobe After Effects 2020 17.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693765.jpg" />
+  <img src="Z:/picture/008/save_picture_693765.jpg" />
 </div>
 
 
@@ -598,7 +626,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.1.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693454.jpg" />
+  <img src="Z:/picture/008/save_picture_693454.jpg" />
 </div>
 
 
@@ -626,7 +654,7 @@ MacX MediaTrans 3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693423.jpg" />
+  <img src="Z:/picture/008/save_picture_693423.jpg" />
 </div>
 
 
@@ -654,7 +682,7 @@ RapidWeaver 7.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693420.jpg" />
+  <img src="Z:/picture/008/save_picture_693420.jpg" />
 </div>
 
 
@@ -668,32 +696,6 @@ RapidWeaver является приложением все-в-одном, кот
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6582A61345752A6003F4D7A211D110F37B39819E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288543   (693415) от 12.03.2019
-
-Grids for Instagram 5.3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grids for Instagram - Идеальная программа для Instagram на Mac. Программа переносит лучшее из Instagram на ваш Mac.Тип издания: macOS SoftwareРелиз состоялся: 10.03.2019Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C0CB8B00E3FF171F6A65A19FA8065AC4B42A45
 ```
 
 https://mybot314.ru/tekegram_catalog/

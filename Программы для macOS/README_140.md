@@ -1,3 +1,135 @@
+###  Публикация: 1660287   (189802) от 12.09.2023
+
+NXPowerLite Desktop 10 v.10.0.2 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с NXPowerLite Desktop - приложением для дополнительного сжатия файлов PDF, Microsoft Office, JPEG-картинок, с целью уменьшения размера для последующей их пересылки по электронной почте в виде вложений. Особенно эффективна программа при сжатии pdf-документов, офисных файлов и картинок.
+Оптимизированные файлы сохраняют исходный формат и остаются полностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.09.2023Разработчик: © 2023 Neuxpower Solutions LtdПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4401F0277A910619B5ACD2DBC1AB6DF998D37D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660402   (189794) от 12.09.2023
+
+AirFoil+Airfoil Satellite 5.11.6 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189794.jpg" />
+</div>
+
+
+###  Подробнее
+
+AirFoil – специальное программное обеспечение, позволяющее транслировать музыку с любого Mac или PC на AirPort Express, AppleTV, iPhone, iPod Touch, либо на другой компьютер, работающий на базе любой операционной системы. Стоит отметить, что такой же функцией обладает и iTunes, но здесь имеется существенное отличие – iTunes способен передать только ту музыку, которую (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2023 Rogue Amoeba Software, IncПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C829D41EBCEB88DF1AACC9B82107C1CF9181C744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660310   (189779) от 12.09.2023
+
+Exposure Software Blow Up 3 v.3.1.6.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
+Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.09.2023Разработчик: © 2022 Exposure Software, LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5511089C9DE346BF4DE952E97911C909C3995458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659875   (189688) от 12.09.2023
+
+PDF to Word&Document Converter 6.2.6 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189688.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF to Word & Document Converter - это приложение, которое позволяет быстро конвертировать PDF-документы в файлы других форматовТип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2024 qing qing yuПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9885364B6767B2BE8A6B32F8EA03353EA7CAA327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660306   (189664) от 12.09.2023
+
+Exposure X7 Bundle v.7.1.8.9 [EN]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: macOS SoftwareРелиз состоялся: 08.09.2023Разработчик: © 2022 Exposure Software, LLCПоддерживаемая ОС: macOS X 10.13 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20F493E803764A831D0F8B78FD3213B3C815897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660454   (189428) от 13.09.2023
 
 Cookie 7.0.5 [Multi]
@@ -6,7 +138,7 @@ Cookie 7.0.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189428.jpg" />
 </div>
 
 
@@ -33,7 +165,7 @@ Bookshelf - Library 6.3.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189420.jpg" />
 </div>
 
 
@@ -59,7 +191,7 @@ AirMail Pro 5 v.5.6.9 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189359.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ Native Instruments Kontakt 7 v.7.6.0 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189269.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189173.jpg" />
 </div>
 
 
@@ -139,7 +271,7 @@ Microsoft Office 2021 for Mac LTSC v.16.77 VL [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189063.jpg" />
 </div>
 
 
@@ -167,7 +299,7 @@ Adobe Premiere Pro 2023 v.23.6 U2B [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189059.jpg" />
 </div>
 
 
@@ -193,7 +325,7 @@ Squeezer 2.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188983.jpg" />
 </div>
 
 
@@ -220,7 +352,7 @@ Epiphany WorkFlow II 8.1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188981.jpg" />
 </div>
 
 
@@ -246,7 +378,7 @@ eMail Address Extractor 4.3 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188976.jpg" />
 </div>
 
 
@@ -273,7 +405,7 @@ SpeakMe 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188972.jpg" />
 </div>
 
 
@@ -299,7 +431,7 @@ Focus Matrix Pro – Task Manager 1.6.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188926.jpg" />
 </div>
 
 
@@ -325,7 +457,7 @@ Wipr – Ad and Tracker Blocker 1.46 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188912.jpg" />
 </div>
 
 
@@ -351,7 +483,7 @@ Teorex Inpaint 9.2.3 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188906.jpg" />
 </div>
 
 
@@ -378,7 +510,7 @@ GitKraken Client Enterprise for Mac 9.8.1 Intel/ARM [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188803.jpg" />
 </div>
 
 
@@ -404,7 +536,7 @@ PCalc 4.10.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188591.jpg" />
 </div>
 
 
@@ -431,7 +563,7 @@ File Cabinet Pro 8.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188583.jpg" />
 </div>
 
 
@@ -457,7 +589,7 @@ MacX MediaTrans 7.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188574.jpg" />
 </div>
 
 
@@ -484,7 +616,7 @@ Cisdem PDF Converter OCR 8.2.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188514.jpg" />
 </div>
 
 
@@ -511,7 +643,7 @@ Maxon Cinema 4D Studio 2024.0.0 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188331.jpg" />
 </div>
 
 
@@ -537,7 +669,7 @@ Launchpad Manager Pro 1.0.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188294.jpg" />
+  <img src="Z:/picture/005/save_picture_188294.jpg" />
 </div>
 
 
@@ -549,138 +681,6 @@ Launchpad Manager Pro – многофунциональное приложен�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A714B71FFB008C091E9BEDB0DF341F669AC15A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661866   (188265) от 16.09.2023
-
-Speech 1.11.0 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speech объединяет все функции синтезатора речи macOS в единый удобный интерфейс. Доступно множество языков: выберите один из более чем 40 голосов и языков. Перетащите или вставьте текст в речь и начните читать/воспроизводить. Вы можете изменить в любое время голос и скорость речи. Нажмите на слово для воспроизведения с определенной точки текста.
-Экспортируйте текст (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.03.2023Разработчик: © 2-23 HugyAppsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E3F87BF76CDAE7915D5EB48672BB867DE0973A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661995   (188263) от 16.09.2023
-
-PDF Merge & PDF Splitter + 6.3.9 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188263.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Merge and PDF Splitter - это очень простое в использовании приложение, которое позволяет быстро объединять несколько PDF-файлов в один или разделять указанные страницы в новый PDF-файл.Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2024 qing qing yuПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235130066017805386CA37F17A9B5AB93DCE5FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661886   (188253) от 16.09.2023
-
-Web Dumper for Mac 3.4.5 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы просматриваете веб-сайт в своем браузере и решаете создать его копию на своем жестком диске, вам придется вручную сохранять каждую просматриваемую страницу вместе со встроенными изображениями, звуками и т. д. Это может быть очень долгим и утомительным процессом, и во многих случаях это приносит больше хлопот, чем пользы. Однако это не обязательно должно быть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2022Разработчик: © 2002 - 2022 Maxprog, LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18635C89B5BE4C7DBE41F16F991A4ABEEEF578BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661861   (188243) от 16.09.2023
-
-Cool Menu 1.5.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cool Menu — это набор из 10 очень полезных функций, которых нет в macOS. Вместо нескольких приложений строки меню для каждой функции, которые тратят впустую драгоценное пространство вашей строки, все они аккуратно упакованы под одним значком строки меню.Тип издания: macOS SoftwareРелиз состоялся: 04.11.2022Разработчик: © 2019-2022 SolutionShare Technologies Private Limited.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8475EF200C85B11C252FEFE71F293BA673517765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661910   (188207) от 16.09.2023
-
-DiskWarrior 5.3.1 (Standalone) [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все просто исчезло после того, как Ваш Mac вышел из строя. Все Ваши рабочие документы. Музыка, которой Вы больше всего наслаждаетесь. Фильм о первых шагах Вашего ребенка.  Не паникуйте! DiskWarrior восстановит Ваши документы, фотографии, музыку и любые другие файлы, когда что-то случится, и Вы потеряете доступ к Вашим файлам.
-DiskWarrior (утилита)  - инструмент, который (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17.03.2023Разработчик: © 2023 AlsoftПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E190B6F31D560E33A5E861C3422544A21D676D
 ```
 
 https://mybot314.ru/tekegram_catalog/

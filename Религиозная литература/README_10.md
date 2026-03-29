@@ -1,3 +1,90 @@
+###  Публикация: 603249   (997182) от 14.01.2013
+
+Компендиум социального учения Церкви [2006] [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997182.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе своей истории, а особенно в последние сто лет, Церковь высказывала свою позицию по проблемам социальной жизни. Это - часть церковной миссии, поскольку человеческая природа имеет социальное измерение: человек - не только индивидуум, но и существо социальное; именно в обществе, вступая в многообразные отношения с себе подобными, он реализуется как личность. Эта книга представляет собой компактное, исчерпывающее и систематическое изложение социального учения Католической Церкви.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B378B22759745431CD1B02EAD4A3A7D740003FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603113   (997158) от 14.01.2013
+
+Азбука-классика | Книга Еноха [2008] [DOC]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Еноха - самый загадочный ветхозаветный апокриф. Его авторство приписывается одному из двенадцати патриархов, прадеду Ноя, который согласно еврейской традиции за праведность был взят живым на небо. Вниманию читателей предлагается отчёт об этом удивительном путешествии.Формат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA216DB3634E9795A0ECC480E4B9AACB5AB14C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603507   (997025) от 15.01.2013
+
+Николас Уайзмeн | Фабиола [1990] [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повесть «Фабиола» переносит нас в ту эпоху, когда император Диоклетиан задумал раз и навсегда покончить с христианством. Он начал жестокие преследования на Востоке, а вскоре гонения перекинулись в Рим, подвластный его соправителю Максимиану.
+
+Происходило это всего за несколько лет до победы Церкви, которая бросила вызов могущественной империи. Книга противопоставляет два мира — языческий Рим и общину верующих во Христа.
+
+Главная героиня повести — молодая знатная Римлянка, перед которой постепенно, через долгие мучительные искания открывается истина Евангелия.
+
+«Фабиола» была переведена на многие языки, в том числе и на русский.
+
+В конце XIX века русская писательница Евгения Тур выпустила ее свободный пересказ. Под названием «Катакомбы» он выдержал более двадцати изданий. Последнее увидело свет в 1917 году.
+(   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB3ECB01FDA8B6A0D017084463CDCF8695F1520
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603316   (997011) от 15.01.2013
 
 Мария Виновска | Падре Пио: Жизнь и Бессмертие [1994] [PDF]
@@ -6,7 +93,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997011.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996726.jpg" />
 </div>
 
 
@@ -60,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996178.jpg" />
 </div>
 
 
@@ -88,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996171.jpg" />
 </div>
 
 
@@ -114,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995556.jpg" />
 </div>
 
 
@@ -146,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994855.jpg" />
 </div>
 
 
@@ -174,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994714.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994669.jpg" />
 </div>
 
 
@@ -234,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992733.jpg" />
 </div>
 
 
@@ -260,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992693.jpg" />
 </div>
 
 
@@ -286,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989356.jpg" />
 </div>
 
 
@@ -318,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989229.jpg" />
 </div>
 
 
@@ -348,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989188.jpg" />
 </div>
 
 
@@ -379,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988479.jpg" />
 </div>
 
 
@@ -405,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987659.jpg" />
 </div>
 
 
@@ -431,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987578.jpg" />
 </div>
 
 
@@ -457,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987575.jpg" />
 </div>
 
 
@@ -483,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987526.jpg" />
 </div>
 
 
@@ -509,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987513.jpg" />
 </div>
 
 
@@ -536,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987043.jpg" />
 </div>
 
 
@@ -562,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987035.jpg" />
 </div>
 
 
@@ -588,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986169.jpg" />
 </div>
 
 
@@ -614,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986120.jpg" />
 </div>
 
 
@@ -627,86 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205906C1A43C5B2D4045523DF1F21843A6051673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971544   (986070) от 03.01.2016
-
-В. В. Романович | Личность и религия (1982) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986070.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре рассматривается проблема личности, и в  частности личности верующего, в философском и социально-психологическом аспектах. Автор выявляет роль мировоззрения в структуре личности, анализирует категории  мистического и реалистического в сознании современного верующего, рассматривает влияние религии на психологию  и жизнедеятельность человека.Жанр: История, религиоведение, психологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FDA9DD7148110E29BB97661DA6D2517E18917E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971431   (986028) от 03.01.2016
-
-Ю. И. Гирман | В чем сущность свободы совести? (1966) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский материалист и атеист XVIII в. Поль  Гольбах назвал свободу совести первым условием человечности, позволяющим «каждому следовать тому вероучению и придерживаться тех убеждений, которые ему  по душе».
-
-Свобода совести актуальна и в наши дни, ибо она  означает отсутствие какого бы то ни было насилия над  религиозными или атеистическими (   Читать дальше...   )Жанр: История, философия, религиоведение, этикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370C7E2F1E87219C31E5C3B3E4AA7BCA6414BA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971553   (986027) от 03.01.2016
-
-Д. А. Бирюков | Идеалистические и религиозные взгляды в учении об инстинктах (1961) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986027.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной брошюре содержатся новейшие данные физиологической науки об инстинктах животных и разъясняется вред идеалистических и религиозных толкований этого вопроса.Жанр: История, религиоведение, физиология, медицина, психология, биологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A133758C2A26253A4CD847DE2DF1C4C76F5EFDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

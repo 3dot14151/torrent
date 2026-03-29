@@ -1,3 +1,112 @@
+###  Публикация: 1763750   (35361) от 03.12.2024
+
+Антон Чехов | Сборник радиопостановок (Часть 1) (2017) [MP3, А. Папанов, А. Миронов, Р. Плятт и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаменитая фраза писателя: «Краткость – сестра таланта», как нельзя более подходит к творчеству самого А.П.Чехова. Одним верным штрихом обозначить характер, метким словом сказать о главном, точно расставить акценты и нарисовать яркую объемную картинку буквально за несколько минут – это работа мастера. Никто так не рассмешит, как Чехов, и никто так не заставит грустить, (   Читать дальше...   )Жанр: Радиопостановка, Классическая прозаИздательство: Театр у микрофонаПродолжительность: 01:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075BE872308396A1145B5DD897734535D7DAC501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314176   (35267) от 04.12.2024
+
+Ален Рене Лесаж | Похождения Жиль Бласа из Сантильяны (2013) [MP3, Маргарита Иванова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Произведение известного французского писателя Алена Лесажа (1668–1747) по своей структуре восходит к жанру испанского плутовского романа.
+Роман «Похождения Жиль Бласа из Сантильяны» (другое название: «Порочный круг») написан 1715 году. В центре повествования полная приключений жизнь молодого мещанина, которому судьба даровала множество испытаний: он попадает к разбойникам, (   Читать дальше...   )Жанр: Зарубежная литература, классика, плутовской романПеревод: Александр БондаревИздательство: Нигде не купишьПродолжительность: 37:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9545675A7C8BE9A6D837CEE7D6023A2F76152B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314182   (35265) от 04.12.2024
+
+Ален Рене Лесаж | Хромой бес (2006) [MP3, Пётр Маркин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: «Алмазный фонд» Мировой литературы
+Роман «Хромой бес» (1707), который переведен на многие языки мира, самое известное произведение Алена Рене Лесажа. В нем Лесаж продолжает обличительные традиции французского бытового романа XVII века. Главный герой – бес любострастия Асмодей, заточенный в колбу и вновь обретающий свободу, силой собственного бесовства (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Евгений ГунстИздательство: Студия «Звуковая книга»Продолжительность: 09:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307B9300B08D859D2057B54299C0F890EF44CD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763902   (35253) от 04.12.2024
+
+Антон Чехов | Сборник радиопостановок (Часть 2) (2017) [MP3, В. Гафт, Е. Миронов., Р. Плятт., О. Янковский, Т. Доронина  и др]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35253.jpg" />
+</div>
+
+
+###  Подробнее
+
+— У тебя, извозчик, сердце вымазано дегтем. Ты, братец, никогда не был влюблен, а потому тебе не понять моей психики. Этому дождю не потушить пожара души моей, как пожарной команде не потушить солнца. Чёрт возьми, как я поэтически выражаюсь! Ведь ты, извозчик, не поэт?
+— Никак нет.
+— Ну вот видишь ли…
+Жирков нащупал наконец у себя в кармане портмоне и стал расплачиваться.Жанр: Радиопостановка, Классическая прозаИздательство: Театр у микрофонаПродолжительность: 01:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EBC2029514DB1C139937FB010200B495EDE181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764049   (35096) от 05.12.2024
 
 Антон Чехов | Сборник радиопостановок  (Часть 3) (2017) [MP3, В. Невинный, С. Юрский, О. Янковский, А. Грибов, Н. Гриценко и др.]
@@ -6,7 +115,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35096.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35093.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35088.jpg" />
 </div>
 
 
@@ -88,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35034.jpg" />
 </div>
 
 
@@ -116,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34995.jpg" />
 </div>
 
 
@@ -145,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34956.jpg" />
 </div>
 
 
@@ -172,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34720.jpg" />
 </div>
 
 
@@ -199,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34348.jpg" />
 </div>
 
 
@@ -227,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34317.jpg" />
 </div>
 
 
@@ -255,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34144.jpg" />
 </div>
 
 
@@ -283,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34140.jpg" />
 </div>
 
 
@@ -311,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34038.jpg" />
 </div>
 
 
@@ -339,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33966.jpg" />
 </div>
 
 
@@ -367,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33902.jpg" />
 </div>
 
 
@@ -395,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33898.jpg" />
 </div>
 
 
@@ -423,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33880.jpg" />
 </div>
 
 
@@ -452,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33391.jpg" />
 </div>
 
 
@@ -478,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33384.jpg" />
 </div>
 
 
@@ -504,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33086.jpg" />
 </div>
 
 
@@ -532,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33041.jpg" />
 </div>
 
 
@@ -559,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33040.jpg" />
 </div>
 
 
@@ -587,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32297.jpg" />
 </div>
 
 
@@ -600,111 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C57B478F0DD1E4D7925867CBC291795D03AB67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770452   (32295) от 01.01.2025
-
-Фёдор Достоевский | Бесы (2007) [MP3, Александр Андриенко]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы услышите социально-философский роман Фёдора Достоевского “Бесы”, в котором со всей мощью и глубиной раскрылся гений писателя. Душа человеческая разворачивается перед нами ареной борьбы Добра и Зла, как двух мировых порядков. Но под силу ли ей вынести эту титаническую борьбу в себе, и каждым своим желанием, мыслью и поступком делать выбор - чему служить, и что (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: РавновесиеПродолжительность: 29:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CE6069E7969A7770D87A7455B793ABCFC93193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770475   (32291) от 01.01.2025
-
-Фёдор Достоевский | Преступление и наказание (2024) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32291.jpg" />
-</div>
-
-
-###  Подробнее
-
-«С одной стороны, глупая, бессмысленная, ничтожная, злая, больная старушонка, никому не нужная и, напротив, всем вредная, которая сама не знает, для чего живёт, и которая завтра же сама собой умрёт. С другой стороны, молодые, свежие силы, пропадающие даром без поддержки, и это тысячами, и это всюду! Сто, тысячу добрых дел и начинаний, которые можно устроить и поправить (   Читать дальше...   )Жанр: Классическая проза, русская классика, философская проза, романИздательство: АрдисПродолжительность: 23:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2650B57692E527F02C825B3DF00B12A10E4957
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770405   (32289) от 01.01.2025
-
-Фёдор Достоевский | Бесы (2023) [MP3, Максим Суханов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достоевский загорелся идеей «Бѣсов» после приезда Ивана Сниткина, брата его жены, в Дрезден. Вследствие волнений в Московском университете и активности студенческого движения, Сниткин и Достоевский много говорили про жизнь студентов, их нравы и настроения, что и вдохновило автора на написание романа. В одном из писем поэту Аполлону Майкову Достоевский писал: (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: ВимбоПродолжительность: 36:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366339F1BAF6CC9906FF2E8C89AA5AB252E3789D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770401   (32283) от 01.01.2025
-
-Фёдор Достоевский | Бесы (2024) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32283.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Бесы» — один из самых спорных романов Достоевского. Одни видят в нем пророческий памфлет. Другие — эдакий литературный полигон для испытания различных философских идей. Третьи — изощренный психологический триллер.
-В основе сюжета лежит реальное событие — всколыхнувшее всю интеллектуальную Россию 70-х годов «дело Нечаева». Революционеры, члены небольшого законспирированного (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: РекскверПродолжительность: 25:30:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D9EA74CA259044B00E3D2D07578FFA8AC5B81F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1856991   (1059224) от 03.03.2026
+
+Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Wanterlude [Deluxe Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1059224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из-за неизвестной вспышки вируса, весь город Раккун-сити окутали монстры, люди начали превращаться в странных существ, а после убивать выживших. Выполняя задания, вы сможете управлять только одним персонажем, в то время как вторым займется искусственный интеллект. Существуют миссии, в которых можно побывать на месте любого героя, что даст лучшее понимание истории, (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535CE3240709BA213AAC51809BEED84CCA5F50E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856786   (1059184) от 02.03.2026
+
+Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack Let'sРlay [Master Assassin Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1059184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте историю Басима, хитрого вора, который устремляется на оживленные улицы Багдада IX века в поисках ответов и справедливости. Вступив в загадочную и древнюю организацию Незримых, Басим станет смертоносным мастером-ассасином и изменит свою судьбу куда сильнее, чем ожидал.Тип издания: RepackРазработчик: Ubisoft BordeauxЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A217DF507A151D9E54184D45C68D80A7F6BD9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856797   (1059168) от 02.03.2026
+
+Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Scene voices38 [Master Assassin Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1059168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте историю Басима, хитрого вора, который устремляется на оживленные улицы Багдада IX века в поисках ответов и справедливости. Вступив в загадочную и древнюю организацию Незримых, Басим станет смертоносным мастером-ассасином и изменит свою судьбу куда сильнее, чем ожидал.Тип издания: SceneРазработчик: Ubisoft BordeauxЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2FA2DC5E6AFB42AF830498C78071FE668B809A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856825   (1059151) от 02.03.2026
+
+Assassin's Creed Mirage (2023) [Ru/Multi] (1.1.1/dlc) Repack FitGirl [Master Assassin Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1059151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте историю Басима, хитрого вора, который устремляется на оживленные улицы Багдада IX века в поисках ответов и справедливости. Вступив в загадочную и древнюю организацию Незримых, Басим станет смертоносным мастером-ассасином и изменит свою судьбу куда сильнее, чем ожидал.Тип издания: RepackРазработчик: Ubisoft BordeauxЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ACF6BC766DAD75D6E8A41F829B86869BC130625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856812   (1059124) от 02.03.2026
+
+Grand Theft Auto IV (2008-2010) [Ru/En] (1.0.7.0/1.1.2.0) Repack R.G. Games [Complete Edition]
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1059124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grand Theft Auto: Episodes from Liberty City включает в себя все официальные дополнения для культового экшена в открытом мире. Таких проектов вышло всего два. До знакомства с тайтлом The Lost and Damned и последовавшим за ним The Ballad of Gay Tony лучше сначала пройти обычную четвертую часть. Тем, кто в неё уже наигрался и захотел продолжения в знакомых декорациях, (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar North и Rockstar TorontoЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC07207AB86DBF679A1866DD550FC790A62C8A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1856470   (1059063) от 01.03.2026
+
+Hitman: Contracts (2004) [En] (1.74) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1059063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два выстрела, и в комнату отеля вваливается истекающий кровью Хитмен. Спецслужбам удалось его выследить и серьезно ранить, и теперь единственная надежда на спасение - врач, высланный Агентством для помощи 47-му. А пока жизнь киллера висит на волоске, перед его глазами пролетает вся его жизнь, заполненная до отказа кровью и страданиями его жертв. Воспоминания лишь (   Читать дальше...   )Тип издания: LicenseРазработчик: IO InteractiveЖанр: ЭкшеныЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA713C7DB3D3F6B0C719672541C3AD1684AB858C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856673   (1059011) от 01.03.2026
 
 Alan Wake Remastered (2021) [Ru/Multi] (34885/dlc) Repack FitGirl
@@ -6,7 +162,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (34885/dlc) Repack FitGirl
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059011.jpg" />
+  <img src="Z:/picture/005/save_picture_1059011.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Cronos: The New Dawn (2025) [Ru/Multi] (20251021 1503-330668/dlc) Repack Hardwar
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058932.jpg" />
+  <img src="Z:/picture/005/save_picture_1058932.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Alan Wake Remastered (2021) [Ru/Multi] (1.33/dlc) Scene Rune
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058864.jpg" />
+  <img src="Z:/picture/005/save_picture_1058864.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ LOLLIPOP CHAINSAW RePOP (2024) [Multi] (1.16.004) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058862.jpg" />
+  <img src="Z:/picture/005/save_picture_1058862.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Hitman: Blood Money (2006) [En] (1.2) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058819.jpg" />
+  <img src="Z:/picture/005/save_picture_1058819.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ L.A.Noire (2011) [Ru/Multi] (1.3.2675.1/dlc) Repack dixen18 [The Complete Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058642.jpg" />
+  <img src="Z:/picture/005/save_picture_1058642.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Mafia: The City of Lost Heaven / Мафия (2002) [En] (1.2) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057871.jpg" />
+  <img src="Z:/picture/005/save_picture_1057871.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Total Overdose (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057869.jpg" />
+  <img src="Z:/picture/005/save_picture_1057869.jpg" />
 </div>
 
 
@@ -215,7 +371,7 @@ Prince of Persia / Принц Персии (2008) [Ru/En] (1.0v2) Repack dixen18
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057863.jpg" />
+  <img src="Z:/picture/005/save_picture_1057863.jpg" />
 </div>
 
 
@@ -241,7 +397,7 @@ Grand Theft Auto III (3) (2002) [Ru/Multi] (1.1) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057817.jpg" />
+  <img src="Z:/picture/005/save_picture_1057817.jpg" />
 </div>
 
 
@@ -267,7 +423,7 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.0.0-1.0.8.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057612.jpg" />
+  <img src="Z:/picture/005/save_picture_1057612.jpg" />
 </div>
 
 
@@ -293,7 +449,7 @@ The Punisher / Каратель (2005) [Ru] (1.0) License
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057513.jpg" />
+  <img src="Z:/picture/005/save_picture_1057513.jpg" />
 </div>
 
 
@@ -319,7 +475,7 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack HardwareMining
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057008.jpg" />
+  <img src="Z:/picture/005/save_picture_1057008.jpg" />
 </div>
 
 
@@ -345,7 +501,7 @@ Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack seleZen [Digital Deluxe Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057005.jpg" />
+  <img src="Z:/picture/005/save_picture_1057005.jpg" />
 </div>
 
 
@@ -371,7 +527,7 @@ BIOMUTANT (2021) [Ru/Multi] (1.7.0/dlc) Repack Let'sРlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056085.jpg" />
+  <img src="Z:/picture/005/save_picture_1056085.jpg" />
 </div>
 
 
@@ -397,7 +553,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack HardwareMining [Go
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055837.jpg" />
+  <img src="Z:/picture/005/save_picture_1055837.jpg" />
 </div>
 
 
@@ -423,7 +579,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack Other s [Gold Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055668.jpg" />
+  <img src="Z:/picture/005/save_picture_1055668.jpg" />
 </div>
 
 
@@ -449,7 +605,7 @@ Resident Evil 4 (2023) [Ru/Multi] (1.5.0.0/dlc) Repack FitGirl [Gold Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055502.jpg" />
+  <img src="Z:/picture/005/save_picture_1055502.jpg" />
 </div>
 
 
@@ -475,7 +631,7 @@ Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack seleZen [Gold Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055487.jpg" />
+  <img src="Z:/picture/005/save_picture_1055487.jpg" />
 </div>
 
 
@@ -501,7 +657,7 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Wanterlude 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055422.jpg" />
+  <img src="Z:/picture/005/save_picture_1055422.jpg" />
 </div>
 
 
@@ -512,162 +668,6 @@ Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Wanterlude 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61B9E3D254F81B0C7288C98A48D1C2FD74B72A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851739   (1055231) от 03.02.2026
-
-Resident Evil 4 Remake (2023) [Ru/Multi] (Build 21521672/dlc) Repack Let'sРlay [Gold Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055231.jpg" />
-</div>
-
-
-###  Подробнее
-
-После биологической катастрофы в Раккун-Сити прошло шесть лет. Агента Леона С. Кеннеди, пережившего те события, отправили на задание по спасению похищенной дочери президента. В попытках отыскать ее он оказывается в укромной европейской деревеньке, где с местными жителями творится что-то не то.Тип издания: RepackРазработчик: CAPCOMЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB3B9D32B15CB134BEE284ABFC92573AC593C067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851501   (1055139) от 02.02.2026
-
-Styx: Shards of Darkness (2017) [Ru/Multi] (1.05/dlc) Repack Other s [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Styx: Shards of Darkness – это сиквел игры Styx: Master of Shadows, выпущенной в октябре 2014 года, который продолжит повествование о гоблине Стиксе. После множества положительных отзывов прессы и теплого приема среди игроков, независимое французское издательство Focus Home Interactive (Blood Bowl, Sherlock Holmes) и компания Cyanide Studios (Blood Bowl, Game of (   Читать дальше...   )Тип издания: RepackРазработчик: Cyanide StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710DD998C45E400E56250442F70CEBC30DAB4CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851039   (1054835) от 31.01.2026
-
-Dead Space (2023) [Ru/Multi] (Build 10602756/dlc) Repack dixen18 [Digital Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический научно-фантастический хоррор с элементами выживания возвращается: погрузитесь в атмосферу космического ужаса, воссозданную с нуля в мельчайших деталях. Умопомрачительная реалистичная графика, пугающе атмосферный звук и усовершенствованный игровой процесс ремейка дополняют неповторимый дух оригинальной Dead Space.Тип издания: RepackРазработчик: MotiveЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D213231EB8B93A50D2E669D912E2B1FF03A316F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850743   (1054716) от 29.01.2026
-
-Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Let'sРlay [Digital Deluxe]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такой игры про Соника вы ещё не видели! Откройте новые миры вместе с шустрым ёжиком Соником! В уникальном мире, полном приключений и загадок, вас ждут полчища могущественных врагов. Покоряйте новые высоты и с невероятной скоростью свободно перемещайтесь по пяти огромным островам Звездопада. Обретите силу Древних и сразитесь с и загадочными неприятелями. Вас ждёт (   Читать дальше...   )Тип издания: RepackРазработчик: Sonic TeamЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBA7266FBB4AC5418C5F8606C1E0692D65397CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850828   (1054684) от 30.01.2026
-
-Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack Wanterlude [Digital Deluxe]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такой игры про Соника вы ещё не видели! Откройте новые миры вместе с шустрым ёжиком Соником! В уникальном мире, полном приключений и загадок, вас ждут полчища могущественных врагов. Покоряйте новые высоты и с невероятной скоростью свободно перемещайтесь по пяти огромным островам Звездопада. Обретите силу Древних и сразитесь с и загадочными неприятелями. Вас ждёт (   Читать дальше...   )Тип издания: RepackРазработчик: Sonic TeamЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14E8D007628F6C9435D8114914B6F9E50CEEE8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850864   (1054649) от 30.01.2026
-
-Sonic Frontiers (2022) [Ru/Multi] (1.42/dlc) Repack dixen18 [Digital Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Такой игры про Соника вы ещё не видели! Откройте новые миры вместе с шустрым ёжиком Соником! В уникальном мире, полном приключений и загадок, вас ждут полчища могущественных врагов. Покоряйте новые высоты и с невероятной скоростью свободно перемещайтесь по пяти огромным островам Звездопада. Обретите силу Древних и сразитесь с и загадочными неприятелями. Вас ждёт (   Читать дальше...   )Тип издания: RepackРазработчик: Sonic TeamЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0CB62E457022E099D99CFFB114B152480730BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

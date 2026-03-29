@@ -1,3 +1,81 @@
+###  Публикация: 1148256   (604393) от 05.07.2017
+
+В.М. Зоберн (автор-составитель) | Тихие обители. Рассказы о святынях (2013) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604393.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена наиболее известным святыням России. Читатель вместе с авторами сборника побывает в Оптиной пустыни, на Валааме, в Псково-Печерском монастыре, Троице-Сергиевой лавре. Он познакомится с историей этих древних святынь, поклонится нетленным мощам Божиих угодников, узнает о святых источниках с целебной водой.Жанр: ХристианствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5222F80D576ED1B4570874607F0AA6FCAC3D2D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231614   (604151) от 19.06.2018
+
+Н. Кривохатский | Церковники и сектанты - агентура мирового империализма (1931) [Ua] [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брошюра о борьбе церковников и сектантов против Советской власти в годы первой пятилетки.Жанр: История, политология, экономика, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4333F64BEAF45505F273627629BD3FD3AA617DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231628   (604145) от 19.06.2018
+
+Ю. Ермалюк | Девять "рецептов" счастья. Беседы о новозаветных заповедях блаженства (1987) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разъясняя суть евангельских заповедей блаженства, которые, по утверждению богословов, учат верующих, как обрести вечное счастье, автор показывает, может ли быть счастливым молодой человек, решивший жить по требованиям религиозной морали.Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7829C324A96CD7D5EAADB4D95E98BDCBFA39DB1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297236   (604052) от 22.04.2019
 
 Правила Православной Церкви с толкованиями Никодима, епископа Далматинско-Истрийского [В 2-х томах] (1996) [PDF, DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604052.jpg" />
+  <img src="Z:/picture/008/save_picture_604052.jpg" />
 </div>
 
 
@@ -34,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603903.jpg" />
+  <img src="Z:/picture/008/save_picture_603903.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603770.jpg" />
+  <img src="Z:/picture/008/save_picture_603770.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603765.jpg" />
+  <img src="Z:/picture/008/save_picture_603765.jpg" />
 </div>
 
 
@@ -114,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603494.jpg" />
+  <img src="Z:/picture/008/save_picture_603494.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602927.jpg" />
+  <img src="Z:/picture/008/save_picture_602927.jpg" />
 </div>
 
 
@@ -166,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602561.jpg" />
+  <img src="Z:/picture/008/save_picture_602561.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602455.jpg" />
+  <img src="Z:/picture/008/save_picture_602455.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602386.jpg" />
+  <img src="Z:/picture/008/save_picture_602386.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602282.jpg" />
+  <img src="Z:/picture/008/save_picture_602282.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601725.jpg" />
+  <img src="Z:/picture/008/save_picture_601725.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601408.jpg" />
+  <img src="Z:/picture/008/save_picture_601408.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601405.jpg" />
+  <img src="Z:/picture/008/save_picture_601405.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601357.jpg" />
+  <img src="Z:/picture/008/save_picture_601357.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601223.jpg" />
+  <img src="Z:/picture/008/save_picture_601223.jpg" />
 </div>
 
 
@@ -405,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601017.jpg" />
+  <img src="Z:/picture/008/save_picture_601017.jpg" />
 </div>
 
 
@@ -431,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600937.jpg" />
+  <img src="Z:/picture/008/save_picture_600937.jpg" />
 </div>
 
 
@@ -457,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600543.jpg" />
+  <img src="Z:/picture/008/save_picture_600543.jpg" />
 </div>
 
 
@@ -483,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600478.jpg" />
+  <img src="Z:/picture/008/save_picture_600478.jpg" />
 </div>
 
 
@@ -509,7 +587,7 @@ Bibles.org.uk (изд.) | Библия (2007) [PDF] [ARM]
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600363.jpg" />
+  <img src="Z:/picture/008/save_picture_600363.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600257.jpg" />
+  <img src="Z:/picture/008/save_picture_600257.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600142.jpg" />
+  <img src="Z:/picture/008/save_picture_600142.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599393.jpg" />
+  <img src="Z:/picture/008/save_picture_599393.jpg" />
 </div>
 
 
@@ -601,84 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFE52B06C341A55A45100F8E3045B0C290563C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914456   (598561) от 02.07.2015
-
-И. Гольдциэр | Культ святых в исламе [Мухаммеданские эскизы] (1938) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит пять статей одного из крупнейших исламоведов, венгерского ученого Гольдциэра, объединенных общей темой. Статьи дают ценный и малоизвестный материал о возникновении и характере культа святых и культа мертвых в исламе.Жанр: история, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F869FED1D222D8BE63350A35A83DBA712247798D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232580   (598491) от 25.06.2018
-
-Наталья Горбачева | Жизнь — вечная. Рассказы о святых и верующих (2014) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Натальи Горбачевой о том, как душа постепенно становится верующей, как случайные события на её пути восхождения к Богу, становятся необходимыми и закономерными. Известная писательница свидетельствуя о личном опыте, доступно и ясно преподносит серьёзные духовные истины. Задевают за живое искренние рассказы о встречах автора с мудрыми людьми, которые в своё время (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62006BFDE43401E35F1D9FFBD731EBD2BEDBF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232595   (598485) от 25.06.2018
-
-К. Черноризов (авт.-сост.) | Велий еси Господи... Жизнь и проповедь святого Гавриила (Ургебадзе), исповедника и юродивого (2016) [FB2, PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598485.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге воспроизводятся рассказы о святом подвижнике и юродивом XX века Гаврииле (Ургебадзе), переданные специально для данного издания людьми, близко знавшими отца Гавриила при его жизни. Составитель уделил особое внимание тому, чтобы повествование об о. Гаврииле сохранило дух живого, искреннего рассказа очевидцев, оставаясь именно свидетельством подвигов святого, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAA94F5A088AA97882A2F0A93E651FC5AB8E7B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852089.jpg" />
+  <img src="Z:/picture/008/save_picture_852089.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849649.jpg" />
+  <img src="Z:/picture/008/save_picture_849649.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - 50 Sleep Better: Relaxing Beach Ocean Waves (2017) [MP3|320 Kbps] <Downtemp
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844960.jpg" />
+  <img src="Z:/picture/008/save_picture_844960.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - No Stress Music Playlist 3: Pure New Age & Chillout Relax (2017) [MP3|320 K
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843288.jpg" />
+  <img src="Z:/picture/008/save_picture_843288.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Yoga Balance: Asian Traditional Music for Meditation, Yoga Pilates, Relaxed
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843188.jpg" />
+  <img src="Z:/picture/008/save_picture_843188.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Alice Gomez - Sleep Cycles of the Native American Flute (Over an Hour of Soothin
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841687.jpg" />
+  <img src="Z:/picture/008/save_picture_841687.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ VA - 50 Healing Music. Deep Relaxation Therapy: Sleep Easy, Soothing Massage, Mu
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838320.jpg" />
+  <img src="Z:/picture/008/save_picture_838320.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Shastro - 8 альбомов (1994-2001) [MP3|320 kbps]<NewAge, Meditative, Worl
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832121.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Joe Bongiorno - Synfonia (2015) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831965.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VA - Gregorian Chants: Sanctus (2009) Limited Edition, Box Set [MP3|320 Kbps] <E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829706.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Equador - Bones Of Man (2016) [MP3|320 Kbps] <Ambient, Electronic, Downtempo>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826452.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Edelis - 12 альбомов, EP & Single (2008 - 2018) [MP3|320 kbps] <New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823849.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Imaginary Tibetan Journey Music Soothing Atmosphere, Namaste Yoga, Deep Med
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822758.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Deep Level Yoga Relaxing Sound of Nature, Oriental Massage Yoga (2017) [MP3
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822469.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Shiva - Hand Of Fate (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821056.jpg" />
+  <img src="Z:/picture/008/save_picture_821056.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ VA - Deep Relaxation and Wellness Playlist (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821050.jpg" />
+  <img src="Z:/picture/008/save_picture_821050.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819398.jpg" />
+  <img src="Z:/picture/008/save_picture_819398.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Canda & Guru Atman - Healing Yoga Mantras (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819093.jpg" />
+  <img src="Z:/picture/008/save_picture_819093.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Carlos Garo - Entrance To The Parallel Universe (2015) [MP3|320 кб/с] <New ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817933.jpg" />
+  <img src="Z:/picture/008/save_picture_817933.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Flaer Smin - 2 альбома (2014-2015) [MP3|320 кб/с] <New Age, Enigmatic,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817595.jpg" />
+  <img src="Z:/picture/008/save_picture_817595.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Shinnobu - Libertus (2017) [MP3|320 Kbps] <Neo-Classical, Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817293.jpg" />
+  <img src="Z:/picture/008/save_picture_817293.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Tibetan Waves: Asian Ambient Relaxing Spirit, Deep Focus, Meditation Tibeta
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817035.jpg" />
+  <img src="Z:/picture/008/save_picture_817035.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ VA - Dream Therapy (Top Deep Sleep Music, Dream Meditation, Sleep Yoga Nature Mu
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816898.jpg" />
+  <img src="Z:/picture/008/save_picture_816898.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815476.jpg" />
+  <img src="Z:/picture/008/save_picture_815476.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814834.jpg" />
+  <img src="Z:/picture/008/save_picture_814834.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ David Hollandsworth - Voices of Peace (2018) [MP3|320 Kbps] <New Age, Ambient, M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813918.jpg" />
+  <img src="Z:/picture/008/save_picture_813918.jpg" />
 </div>
 
 

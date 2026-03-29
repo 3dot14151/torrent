@@ -1,3 +1,61 @@
+###  Публикация: 1593318   (179982) от 28.11.2022
+
+Steelwings - Still Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell or High Water [00:04:40]
+02. Stand up and Fight [00:03:09]
+03. Break of Day [00:05:16]
+04. Hey Hey [00:03:35](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FF4FB0B4E0543468E2B6C98372B0D90CB2F3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593351   (179913) от 28.11.2022
+
+Lee Aaron - Elevate (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rock Bottom Revolution (00:04:04)
+02 - Trouble Maker (00:03:53)
+03 - The Devil U Know (00:04:13)
+04 - Freak Show (00:04:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F272A767F0E5DAC15B921F4525B3C37A00235BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593524   (179883) от 28.11.2022
 
 White Spirit - Right Or Wrong (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -6,7 +64,7 @@ White Spirit - Right Or Wrong (2022) [FLAC|Lossless|image + .cue] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179883.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Nikolo Kotzev - 11 Albums, 12CD (1992-2023) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179870.jpg" />
+  <img src="Z:/picture/005/save_picture_179870.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Deep Purple - Greatest Hits (2022) 3 x CD, Compilation, Japanese Edition [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179585.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Joe Lynn Turner Projects - 34 Albums, 38 CD (1980-2022) [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179551.jpg" />
+  <img src="Z:/picture/005/save_picture_179551.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ In Vinum - Vinum Et Occultismum (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178823.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Autograph - Beyond (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178760.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Stan Bush - Dare To Dream (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178407.jpg" />
+  <img src="Z:/picture/005/save_picture_178407.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178195.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Latter Reign - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Hair Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177849.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Stonemiller Inc. - Welcome To The Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177603.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Racy Glow - Into the Wild (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177436.jpg" />
+  <img src="Z:/picture/005/save_picture_177436.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177389.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Black Stone Cherry - 11 альбомов, 1 EP (2006 - 2023) [FLAC|Lossless|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177106.jpg" />
+  <img src="Z:/picture/005/save_picture_177106.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Vambier - Prost Mortem (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176883.jpg" />
+  <img src="Z:/picture/005/save_picture_176883.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Gentlemans Pistols - Hustler's Row (2015) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176864.jpg" />
+  <img src="Z:/picture/005/save_picture_176864.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Midnight Road - Ready for the Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176832.jpg" />
+  <img src="Z:/picture/005/save_picture_176832.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Cellar Stone - Rise & Fall (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176731.jpg" />
+  <img src="Z:/picture/005/save_picture_176731.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Heron - Empires of Ash (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176327.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Kevin DePetrillo - Magic Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176270.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Devils Paradise - Post Mortem (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176264.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Thundermother - Black And Gold (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176236.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Nitrate - Real World (2018) Reissue, 2021, MR Records Production [FLAC|Lossless|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176198.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ About Us - About Us (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176180.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ One Desire - Midnight Empire (2020) Jараnеsе Еditiоn [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175914.jpg" />
+  <img src="Z:/picture/004/save_picture_175914.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ One Desire - Midnight Empire (2020) Jараnеsе Еditiоn [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF76B5B78128EC06043F3977E0E1624390CFE34E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296927   (175645) от 09.10.2023
-
-Shakra - 19 Albums (1992-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стремительная карьера швейцарского хард-рокового квинтета из Берна началась в 1997 году. Группу образовали пятеро молодых музыкантов: Роджер Таннер (ударные), Томас Мастер (гитара), Оли Линдер (бас), Пит Видмар (вокал) и Том Блунье (гитара) (последние двое играли раньше в "Ruckus"). Практически сразу после своего основания группа записала одно демо и через (   Читать дальше...   )--------------------------
-
-01. The Answer (4:38)
-02. Hang on Ruby (3:25)(   Читать дальше...   )Жанр: Hard Rock, Hard 'n' Heavy |Продолжительность: 16:32:03 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CF36563AF7F36E6196C00F6095A58AB391D5DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595736   (174622) от 07.12.2022
-
-Classless Act - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All That We Are (Acoustic) [00:03:55]
-02. Time To Bleed (Acoustic) [00:03:06]
-03. This Is For You (Acoustic) [00:03:25]
-04. Classless Act (Acoustic) [00:03:17]Жанр: Hard RockПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2390AACF29F0B59A3155CBC5347CDFFB76F62C8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

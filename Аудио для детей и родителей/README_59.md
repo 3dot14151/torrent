@@ -1,3 +1,84 @@
+###  Публикация: 1071294   (361944) от 09.11.2016
+
+Жан-Филипп Арру-Виньо | Омлет с сахаром (2016) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь ели омлет с сахаром? Его очень легко приготовить! Рецепт: возьмите семью с пятью сыновьями, добавьте еще одного младенца, черепаху, морскую свинку и горстку белых мышей. Хорошенько перемешайте. Не забудьте еще о строгой маме и папе, который на все руки мастер, ну и, конечно, о школьных друзьях с богатым воображением. Щепотка вредности — и готово, (   Читать дальше...   )Жанр: Детская прозаПродолжительность: 02:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA23D2441E6365E84D634028CF83729FBA99F596
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417301   (360610) от 19.10.2020
+
+Полли Хо-Йен | Мальчик в башне (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_360610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ади видел их из окна своей башни, но ничего не мог сделать. Эти цветы уже проросли повсюду. Мир начал рушиться, и прятаться теперь поздно. Дома падают один за другим, как подкошеннные, по вине этих странных растений, заполонивших весь город. Он и его соседи – пленники единственного оставшегося многоквартирного дома. Башни, которая устояла. Но у тех, кто оказался (   Читать дальше...   )Жанр: Детская литература, ФантастикаПеревод: П. Н. БелитоваПродолжительность: 05:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7619DE218CFAF569EF1EA4F6D6AC1FAEDE4D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454481   (359866) от 19.10.2020
+
+Звуки природы для детей - Сказочная ночь (2007) [MP3|320 kbps]<Детская музыка / Relax>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наступает ночь [04:27]
+02. Фестиваль лунного света [03:03]
+03. Ода радости [03:43]
+04. Деревенский ветер [05:18](   Читать дальше...   )Жанр: Детская музыка / RelaxПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7DABE296068EC8C1A4860AB3BBECAEF1B8F9A8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 507907   (359715) от 19.10.2020
 
 Барбарики - Песни от Любаши (2008) [MP3|320 кб/с]<Детские песни, Поп>
@@ -6,7 +87,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359715.jpg" />
+  <img src="Z:/picture/008/save_picture_359715.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359361.jpg" />
+  <img src="Z:/picture/008/save_picture_359361.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359255.jpg" />
+  <img src="Z:/picture/008/save_picture_359255.jpg" />
 </div>
 
 
@@ -87,7 +168,7 @@ VA - Музыка для будущих мам и малышей (2007) [MP3|192
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357542.jpg" />
+  <img src="Z:/picture/008/save_picture_357542.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357217.jpg" />
+  <img src="Z:/picture/008/save_picture_357217.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357173.jpg" />
+  <img src="Z:/picture/008/save_picture_357173.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356678.jpg" />
+  <img src="Z:/picture/008/save_picture_356678.jpg" />
 </div>
 
 
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356320.jpg" />
+  <img src="Z:/picture/008/save_picture_356320.jpg" />
 </div>
 
 
@@ -223,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355343.jpg" />
+  <img src="Z:/picture/008/save_picture_355343.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ VA - Песни на музыку Бориса Чайковского (2016) [MP
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355327.jpg" />
+  <img src="Z:/picture/008/save_picture_355327.jpg" />
 </div>
 
 
@@ -277,7 +358,7 @@ VA - Детскотека – Танцевальные хиты (2015) [MP3|192 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355058.jpg" />
+  <img src="Z:/picture/008/save_picture_355058.jpg" />
 </div>
 
 
@@ -306,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353680.jpg" />
+  <img src="Z:/picture/008/save_picture_353680.jpg" />
 </div>
 
 
@@ -332,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353379.jpg" />
+  <img src="Z:/picture/008/save_picture_353379.jpg" />
 </div>
 
 
@@ -358,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353252.jpg" />
+  <img src="Z:/picture/008/save_picture_353252.jpg" />
 </div>
 
 
@@ -384,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352981.jpg" />
+  <img src="Z:/picture/008/save_picture_352981.jpg" />
 </div>
 
 
@@ -410,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351982.jpg" />
+  <img src="Z:/picture/008/save_picture_351982.jpg" />
 </div>
 
 
@@ -436,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351350.jpg" />
+  <img src="Z:/picture/008/save_picture_351350.jpg" />
 </div>
 
 
@@ -465,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351230.jpg" />
+  <img src="Z:/picture/008/save_picture_351230.jpg" />
 </div>
 
 
@@ -494,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351221.jpg" />
+  <img src="Z:/picture/008/save_picture_351221.jpg" />
 </div>
 
 
@@ -520,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350488.jpg" />
+  <img src="Z:/picture/008/save_picture_350488.jpg" />
 </div>
 
 
@@ -549,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350117.jpg" />
+  <img src="Z:/picture/008/save_picture_350117.jpg" />
 </div>
 
 
@@ -575,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349983.jpg" />
+  <img src="Z:/picture/008/save_picture_349983.jpg" />
 </div>
 
 
@@ -601,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348396.jpg" />
+  <img src="Z:/picture/008/save_picture_348396.jpg" />
 </div>
 
 
@@ -615,96 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A371271C5DA2DC30B92561AFB47288B1463B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550927   (348391) от 24.10.2020
-
-VA - Волшебные голоса природы: Малыш в саду (2009) [MP3|320 kbps] <Классика детям, релакс>
-
->>Аудио для детей и родителей
->>Классика для мам и малышей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой садик (П.И.Чайковский)
-02. Кукушка (А.С.Аренский)
-03. Песня о счастье (П.И.Чайковский)
-04. Спи, дитя мое, усни (А.С.Аренский)
-05. В лесу осел с кукушкой (А.Гретри)
-06. Осень (П.И.Чайковский)
-07. Весенняя песня (В.А.Моцарт)
-08. Майский день (Ц.А.Кюи)
-09. Мой Лизочек (П.И.Чайковский)
-10. Малиновка (Л.В.Бетховен)(   Читать дальше...   )Жанр: Детские развивающие аудиопрограммы, релакс, колыбельные, классика детям, звуки природыПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C235A0375C6A58F478305892734D3AD7BE9733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 254034   (348250) от 24.10.2020
-
-Большой Детский Хор - Сборник (10CD) (2005) [MP3|256 kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-CD-1. Русская классика и произведения современных композиторов
-CD-2. Зарубежная классика и народные песни
-CD-3. Военно-патриотические песни(   Читать дальше...   )Жанр: ЭстрадаПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C68EE54E0267B954692DEA0CE2D28C32774968F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 409434   (348115) от 12.11.2011
-
-Владислав Крапивин | Гуси-гуси, га-га-га... (2011) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348115.jpg" />
-</div>
-
-
-###  Подробнее
-
-Корнелий Глас, благополучный обыватель, в одночасье оказывается на самом дне жизни. В буквальном смысле. На пороге смерти он знакомится с детьми без будущего, и это знакомство переворачивает все его существование... Возможен ли взлет со дна к небу?..Жанр: ФантастикаПродолжительность: 08:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BAADCDBD15D3C75F845FBB89DE1A6F26BC5A81E
 ```
 
 https://mybot314.ru/tekegram_catalog/

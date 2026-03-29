@@ -1,3 +1,159 @@
+###  Публикация: 1132707   (700231) от 09.05.2017
+
+Bayonetta (2017) [Ru/Multi] (1.0) Repack R.G. Origami
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный директор PlatinumGames Хидэки Камия, создавший знаменитые Resident Evil и Devil May Cry, а также компания SEGA запускают одну из самых прославленных action-игр всех времен на ПК. Байонетта. Единственная выжившая из старинного клана ведьм, сохранявшего равновесие между светом, тьмой и хаосом.Тип издания: RepackРазработчик: PlatinumGamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2DDBDC028E1C5C298BB27243CB67836B696381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221388   (694813) от 24.04.2018
+
+Deadly Tropics (2018) [En] (1.00) License PLAZA
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deadly Tropics - действие происходит на прекрасном тропическом острове. Но всю экзотику нивелируют опасные зомби, которые охраняют остров. Ваша задача - выжить и найти способ выбраться из этого смертельного места.Тип издания: LicenseРазработчик: Corpix GamesЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE670E3628D35456F23447106F4D52C383F318C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216709   (693410) от 12.03.2019
+
+Sniper Elite: Berlin 1945 (2005) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_693410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна 1945. Ужасы Второй мировой подходят к концу… Советские и немецкие войска сошлись в кровопролитной битве за Берлин. Последняя надежда нацистов - работа по созданию атомной бомбы. Вы - снайпер-диверсант, заброшенный в Берлин, чтобы уничтожить всех фашистов, имеющих отношение к ядерным секретам, и примкнувших к ним предателей. Замаскировавшись под немецкого пехотинца, (   Читать дальше...   )Тип издания: LicenseРазработчик: MC2Жанр: Шутер, Экшн, ИсторическаяЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEA5844957DD8CE980FB09E449DAD6AEA11F8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135066   (692773) от 25.04.2018
+
+The Surge (2017) [Ru/Multi] (1.0.40559/upd10/dlc) Repack Other s [Complete Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в CREO – корпорацию, которая спасает мир! Отныне вы в числе ее сотрудников. И в первый же день случается катастрофа. Сознание ускользает, вы проваливаетесь в темноту... Придя в себя, вы обнаружите, что экипированы высокотехнологичным экзоскелетом, а еще вчера процветающий комплекс превращен в руины. Вышедшие из-под контроля роботы, спятившие от страха (   Читать дальше...   )Тип издания: RepackРазработчик: Deck13Жанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA08C8B7979B0DFC6FC1B30A23FDD92A04903EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888802   (691136) от 10.05.2015
+
+Grand Theft Auto V (2015) [Ru/Multi] (1.0.350.1) SteamRip R.G. Origins
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_691136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лос-Сантос – город солнца, старлеток и вышедших в тираж звезд. Некогда предмет зависти всего западного мира, ныне это пристанище дрянных реалити-шоу, задыхающееся в тисках экономических проблем. В центре всей заварухи – троица совершенно разных преступников, отчаянно пытающихся ухватить удачу за хвост в непрекращающейся борьбе за место под солнцем. Бывший член уличной (   Читать дальше...   )Тип издания: Цифровая лицензияРазработчик: Rockstar North, Rockstar San Diego и Rockstar LeedsЖанр: Action (Shooter) / Racing (Cars) / 3D / 1st Person / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Испанский (Мексиканский), Корейский, Польский, Бразильский Португальский, Традиционный Китайский, ЯпонскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Испанский (Мексиканский), Корейский, Польский, Бразильский Португальский, Традиционный Китайский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0F04304AC7BF1A378AC0A776D84AF0165D91D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221837   (690951) от 26.04.2018
+
+Bullet Witch (2018) [Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Армия восставших демонов загнала человечество на грань вымирания. Единственный, кто стоит на их пути - это женщина в черном, с длинным ружьем, похожим на метлу ведьмы и её магические способности. Может, она опустилась с небес. Возможно, ад выплюнул ее обратно. В любом случае, это все, что есть у людей. Остановите полчища монстров и зажгите искру сопротивления человечества!Тип издания: LicenseРазработчик: Marvelous, Inc.Жанр: Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE07DDD2D2951F8C0CEDA067E7C084EDA594E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289278   (687723) от 15.03.2019
 
 One Piece: World Seeker (2019) [Ru/Multi] (1.0.1/dlc) License CODEX
@@ -6,7 +162,7 @@ One Piece: World Seeker (2019) [Ru/Multi] (1.0.1/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687723.jpg" />
+  <img src="Z:/picture/008/save_picture_687723.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Tomb Raider (2013) [Ru/Multi13] (1.01.748.0/16 DLC) RePack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685739.jpg" />
+  <img src="Z:/picture/008/save_picture_685739.jpg" />
 </div>
 
 
@@ -62,7 +218,7 @@ Armed and Dangerous (RePack) [Ru/En] 2003 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684993.jpg" />
+  <img src="Z:/picture/008/save_picture_684993.jpg" />
 </div>
 
 
@@ -88,7 +244,7 @@ Onimusha: Warlords (2019) [Ru/Multi] (1.0) Rip R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683496.jpg" />
+  <img src="Z:/picture/008/save_picture_683496.jpg" />
 </div>
 
 
@@ -114,7 +270,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680563.jpg" />
+  <img src="Z:/picture/008/save_picture_680563.jpg" />
 </div>
 
 
@@ -140,7 +296,7 @@ Mad Max (2015) [Ru/Multi] (1.0.3.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680551.jpg" />
+  <img src="Z:/picture/008/save_picture_680551.jpg" />
 </div>
 
 
@@ -166,7 +322,7 @@ Vanquish (2017) [Ru/Multi] (1.05) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678706.jpg" />
+  <img src="Z:/picture/008/save_picture_678706.jpg" />
 </div>
 
 
@@ -192,7 +348,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума (2005) [Ru/E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677877.jpg" />
+  <img src="Z:/picture/008/save_picture_677877.jpg" />
 </div>
 
 
@@ -218,7 +374,7 @@ Tomb Raider: The Angel of Darkness / Tomb Raider: Ангел Тьмы [Ru/En] (R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676210.jpg" />
+  <img src="Z:/picture/008/save_picture_676210.jpg" />
 </div>
 
 
@@ -244,7 +400,7 @@ Action Legion (2016) [En] (1.2.1) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675778.jpg" />
 </div>
 
 
@@ -270,7 +426,7 @@ Action Legion (2016) [En] (1.2.1) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675700.jpg" />
 </div>
 
 
@@ -296,7 +452,7 @@ Resident Evil 0 / BioHazard 0 HD Remaster (2016) [Ru/En] (1.0/dlc) Repack R.G. �
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675639.jpg" />
 </div>
 
 
@@ -322,7 +478,7 @@ Conflict: Anthology / Конфликт: Антология (2002-2008) [Ru]  Rep
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674865.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0.10246.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673722.jpg" />
+  <img src="Z:/picture/008/save_picture_673722.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ Assassin's Creed Трилогия [Ru] (RePack) 2008-2011 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673606.jpg" />
+  <img src="Z:/picture/008/save_picture_673606.jpg" />
 </div>
 
 
@@ -404,7 +560,7 @@ Rise of the Tomb Raider (2016) [Ru/Multi] (1.0.767.2/dlc) License CPY [20 Year C
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670410.jpg" />
+  <img src="Z:/picture/008/save_picture_670410.jpg" />
 </div>
 
 
@@ -430,7 +586,7 @@ Sekiro: Shadows Die Twice (2019) [Ru/Multi] (1.02) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670020.jpg" />
+  <img src="Z:/picture/008/save_picture_670020.jpg" />
 </div>
 
 
@@ -456,7 +612,7 @@ Inversion (2012) [Ru/Multi] (5.48) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668812.jpg" />
+  <img src="Z:/picture/008/save_picture_668812.jpg" />
 </div>
 
 
@@ -482,7 +638,7 @@ Saints Row: Gat out of Hell (2015) [Ru/Multi] (20170523/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668702.jpg" />
+  <img src="Z:/picture/008/save_picture_668702.jpg" />
 </div>
 
 
@@ -508,7 +664,7 @@ Brutal Legend (2013) [Ru/Multi] (1.0/dlc) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666314.jpg" />
+  <img src="Z:/picture/008/save_picture_666314.jpg" />
 </div>
 
 
@@ -519,162 +675,6 @@ Brutal Legend - Эдди Риггс изначально был просто р�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D6DA1FD5A6B11688FB284490B4589EFBDD99E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064517   (665769) от 10.05.2018
-
-Aragami (2016) [Ru/Multi] (01.09) Repack Other s [Collector's Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aragami — это стелс игра от третьего лица, рассказывающего об ассасине, которого вернула из мертвых девушка, по имени Ямико. Игрокам предстоит использовать теневые способности, дабы стать неуловимым и невидимым ниндзя, кроме того, вы сможете создавать теневых клонов, отвлекающих внимание врагов. Также есть возможность создавать “черные дыры”, с помощью которых вы (   Читать дальше...   )Тип издания: RepackРазработчик: Lince WorksЖанр: Action, 3D, 3rd Person, Stealth, IndieЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4854553C0A0058BF87AD6AF9481DA353C4B62371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138178   (665306) от 28.05.2017
-
-Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2) License PROPHET
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Saints Row: Gat Out of Hell – самостоятельное дополнения для экшена Saints Row IV, в котором Джонни Гэт отправляется в Ад, где его ждет встреча с самим Дьяволом. Компанию ему составит еще один представитель «Святых» – Кинзи Кенсингтон. Вместе им предстоит спасти душу своего лидера.Тип издания: LicenseРазработчик: Deep Silver Volition, High Voltage SoftwareЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9781214DA8A41897A2D76A909A91A16105E0429B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138170   (665043) от 28.05.2017
-
-Dead Rising (2016) [Ru/En] (1.0.0.1/u3) Repack Mizantrop1337
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фрэнк Вест, фотожурналист-фрилансер, получил интересную наводку и в поисках сенсации отправился в маленький городок. Но оказалось, что городок кишит зомби! Фрэнк укрылся в местном ТЦ, решив, что там будет безопасно, но он жестоко ошибся. Выжить в бесконечном потоке зомби нелегко, но в распоряжении Фрэнка целый торговый центр. Для борьбы с плотоядной толпой можно (   Читать дальше...   )Тип издания: RepackРазработчик: CapcomЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC674F0EA8746B90EF55337123B4CB3C7E5097E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138102   (665038) от 28.05.2017
-
-DmC: Devil May Cry (2013) [Ru] (1.0r3/dlc) Repack Other s [Complete Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Являясь пересказом истории становления личности Данте, переложенным на современную действительность, DmC Devil May Cry™ сохранил стильную постановку, гибкую систему боя и самоуверенного главного героя, которые были определяющими чертами этой культовой серии игр, а также привнес толику мрачности и жестокости. Данте в DmC — юноша, не признающий чужой авторитет, да (   Читать дальше...   )Тип издания: RepackРазработчик: Ninja TheoryЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E887AD102B2C074ED269AD5B7D195FAAF6927301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 340203   (664543) от 22.05.2011
-
-The First Templar / The First Templar: В поисках Святого Грааля (2011) [En/Ru] (1.0.595.4005) Repack R.G. Catalyst
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_664543.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце XIII века от священного Ордена Тамплиеров осталось одно название. Нерушимые обеты, данные его основателями, забыты, а былые соратники в одночасье стали врагами. На Святой Земле пересеклись пути французского рыцаря Селиана д'Аристида и благородной Мари д'Ибелин, дочери тамплиера, объявленной Инквизицией еретичкой. И теперь эти неожиданные союзники должны будут проникнуть в самые сокровенные тайны Ордена Тамплиеров, сыграть свою роль в великом заговоре и раскрыть секрет Святого Грааля. А противостоять им будут могучие противники: сарацины, король Франции Филипп IV и Святая Инквизиция.Тип издания: RepackРазработчик: Haemimont GamesЖанр: Action (Slasher) / 3D / 3rd PersonЯзык интерфейса: Русский английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138388   (664104) от 29.05.2017
-
-Saints Row: Gat out of Hell (2015) [Ru/Multi] (1.0/upd2/dlc) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Saints Row: Gat Out of Hell – самостоятельное дополнения для экшена Saints Row IV, в котором Джонни Гэт отправляется в Ад, где его ждет встреча с самим Дьяволом. Компанию ему составит еще один представитель «Святых» – Кинзи Кенсингтон. Вместе им предстоит спасти душу своего лидера.Тип издания: RepackРазработчик: Deep Silver Volition, High Voltage SoftwareЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA47FE1029A403EB4528055BA3CCB3CEEE16CB2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

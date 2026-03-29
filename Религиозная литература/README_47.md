@@ -1,3 +1,84 @@
+###  Публикация: 1138126   (665652) от 28.05.2017
+
+Е. А. Дорошенко | Шиитское духовенство в современном Иране [2-е изд.] (1985) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_665652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второе, дополненное и исправленное издание книги, вышедшей в 1975 г. В монографии освещается роль шиитского духовенства в общественно-политической жизни Ирана, исследуются различные концепции идеологов шиизма.Жанр: История, политология, религиоведение, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD59909C8A3DE4719811CB9C6338CB3139C6BA18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224570   (664869) от 11.05.2018
+
+Клайв Стейплз Льюис, дон Джованни Калабриа | Соединенные духом и любовью. Латинские письма (2017) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный английский писатель Клайв С. Льюис много лет переписывался с итальянским монахом Джованни Калабриа, ныне святым Католической церкви. Переписка велась на латыни.
+Это издание содержит все сохранившиеся письма, причем опубликованы они параллельно на двух языках - латинский оригинал и русский перевод. Это поразительный пример общения двух наследников языковой (   Читать дальше...   )Жанр: Эссе, письма, очеркиФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7595F000E17CEEF35A61F1467D8FFEE0115D202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138418   (664484) от 29.05.2017
+
+Д. С. Чунтонов (Сост.) | преп. Амвросий Оптинский - Змеи и голуби (2012) [DJVU, FB2, DOC, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_664484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преподобный Амвросий (в миру Александр Михайлович Гренков), самый известный и прославленный из Оптинских старцев, родился 23 ноября 1812 года в Тамбовской губернии в благочестивой семье, тесно связанной с Церковью: дед его был священником, отец - псаломщиком (церковным чтецом).
+
+Александр был шестым из восьмерых детей в семье. Двенадцати лет он поступил в Тамбовское (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, FB2, DOC, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16ED2B6C0D11A31E22E3629AB30BD0F99795F711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138346   (664272) от 29.05.2017
 
 Архимандрит Амвросий (Погодин) | Святой Марк Эфесский и Флорентийская уния (1994) [FB2, DOC, EPUB]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664272.jpg" />
+  <img src="Z:/picture/008/save_picture_664272.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664089.jpg" />
+  <img src="Z:/picture/008/save_picture_664089.jpg" />
 </div>
 
 
@@ -61,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663442.jpg" />
+  <img src="Z:/picture/008/save_picture_663442.jpg" />
 </div>
 
 
@@ -90,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663285.jpg" />
+  <img src="Z:/picture/008/save_picture_663285.jpg" />
 </div>
 
 
@@ -116,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663241.jpg" />
+  <img src="Z:/picture/008/save_picture_663241.jpg" />
 </div>
 
 
@@ -142,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663166.jpg" />
+  <img src="Z:/picture/008/save_picture_663166.jpg" />
 </div>
 
 
@@ -171,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662422.jpg" />
+  <img src="Z:/picture/008/save_picture_662422.jpg" />
 </div>
 
 
@@ -199,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662325.jpg" />
+  <img src="Z:/picture/008/save_picture_662325.jpg" />
 </div>
 
 
@@ -225,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662316.jpg" />
+  <img src="Z:/picture/008/save_picture_662316.jpg" />
 </div>
 
 
@@ -251,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661957.jpg" />
+  <img src="Z:/picture/008/save_picture_661957.jpg" />
 </div>
 
 
@@ -279,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661954.jpg" />
+  <img src="Z:/picture/008/save_picture_661954.jpg" />
 </div>
 
 
@@ -308,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660288.jpg" />
+  <img src="Z:/picture/008/save_picture_660288.jpg" />
 </div>
 
 
@@ -336,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660283.jpg" />
+  <img src="Z:/picture/008/save_picture_660283.jpg" />
 </div>
 
 
@@ -362,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660228.jpg" />
+  <img src="Z:/picture/008/save_picture_660228.jpg" />
 </div>
 
 
@@ -388,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659373.jpg" />
+  <img src="Z:/picture/008/save_picture_659373.jpg" />
 </div>
 
 
@@ -416,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659131.jpg" />
+  <img src="Z:/picture/008/save_picture_659131.jpg" />
 </div>
 
 
@@ -444,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659102.jpg" />
+  <img src="Z:/picture/008/save_picture_659102.jpg" />
 </div>
 
 
@@ -470,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658837.jpg" />
+  <img src="Z:/picture/008/save_picture_658837.jpg" />
 </div>
 
 
@@ -499,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658043.jpg" />
+  <img src="Z:/picture/008/save_picture_658043.jpg" />
 </div>
 
 
@@ -525,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658040.jpg" />
+  <img src="Z:/picture/008/save_picture_658040.jpg" />
 </div>
 
 
@@ -553,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658037.jpg" />
+  <img src="Z:/picture/008/save_picture_658037.jpg" />
 </div>
 
 
@@ -581,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657957.jpg" />
+  <img src="Z:/picture/008/save_picture_657957.jpg" />
 </div>
 
 
@@ -607,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657942.jpg" />
+  <img src="Z:/picture/008/save_picture_657942.jpg" />
 </div>
 
 
@@ -618,86 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7360B9DB91682F6982116E3A80FF60AB455D785F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903654   (657864) от 31.05.2015
-
-Карл Барт | Послание к Римлянам (2005) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикация "Послания к Римлянам" Карла Барта на русском языке -знаменательное событие для российского богословия. Именно эта книга обозначила решительный разрыв с либеральным богословием XIX столетия - богословием Шлейермахера и Гарнака - и произвела переворот в богословии XX века. Действие "богословской революции" Барта ощущается до сих пор: (   Читать дальше...   )Жанр: БогословиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702A65BCFB8D7C747892BF90DC2AE8D7CE98D737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139873   (657814) от 04.06.2017
-
-М. Г. Левин и др. (сост.) | Религиозные верования народов СССР [2 тома] (1931) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемый сборник составлен главным образом научными сотрудниками Центрального Музея Народоведения (ЦМН), как для целей марксистского изучения происхождения религии и ее ранних ступеней, так и для задач социалистического строительства и неразрывно связанной с ним антирелигиозной пропаганды среди нацменьшинств РСФСР и в Союзных республиках. Одна из задач сборника (   Читать дальше...   )Жанр: История, политология, религиоведение, этнография, социология, антропология, археологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E2D9B403F39019D7DE7C4E61846AA4FDB491FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903675   (656876) от 01.06.2015
-
-А. Б. Ранович | Происхождение христианских таинств (1931) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вступление:
-
-Религиозная идеология — надстройка, очень далеко отстоящая от базы производственных отношений, и когда эта база рушится, религиозная надстройка, вопреки законам архитектуры, продолжает еще долгое время существовать на новой базе и даже оказывать на нее известное давление. Поэтому в борьбе с религией недостаточно еще содействовать скорейшему исчезновению (   Читать дальше...   )Жанр: история, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE684C060D313FF7B07A5A9608DB70E2745EFDDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

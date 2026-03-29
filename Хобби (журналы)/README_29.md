@@ -1,3 +1,81 @@
+###  Публикация: 693510   (549759) от 26.08.2013
+
+Журнал | Вяжем сами №9 (апрель 2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция весеннего женского трикотажа. Жакеты, кофточки, пуловеры, платья – женственных силуэтов, с использованием модных сочетаний узоров и нежной весенней гаммы цветов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DDD4775BA0AE9F628D487D3BF6F955B1ADB0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 693503   (549749) от 26.08.2013
+
+Журнал | Вяжем сами. Спецвыпуск №12 (июнь 2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549749.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом специальном выпуске журнала "Вяжем сами" представлены трикотажные модели одежды для женщин, выполненные спицами и крючком: всевозможные платья и сарафаны.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5A8E5B3E873F42FC416A257141F6AE66005922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 693506   (549722) от 26.08.2013
+
+Журнал | Вяжем сами. Спецвыпуск №6 (июнь 2013) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_549722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал по вязанию спицами и крючком. В этом выпуске представлена летняя коллекция вязанной женской одежды: туники, топы, жакеты, маечка, шляпка, платье, пуловеры, жилеты.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A7FD8A7233D8D8CD7DD2BED758915FED46B0FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 693314   (549667) от 26.08.2013
 
 Журнал | Conde Nast Traveller [Россия] №9 (сентябрь 2013) [PDF]
@@ -6,7 +84,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549667.jpg" />
+  <img src="Z:/picture/008/save_picture_549667.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549105.jpg" />
+  <img src="Z:/picture/008/save_picture_549105.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548588.jpg" />
+  <img src="Z:/picture/008/save_picture_548588.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548471.jpg" />
+  <img src="Z:/picture/008/save_picture_548471.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548456.jpg" />
+  <img src="Z:/picture/008/save_picture_548456.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548256.jpg" />
+  <img src="Z:/picture/008/save_picture_548256.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547762.jpg" />
+  <img src="Z:/picture/008/save_picture_547762.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547279.jpg" />
+  <img src="Z:/picture/008/save_picture_547279.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546554.jpg" />
+  <img src="Z:/picture/008/save_picture_546554.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545725.jpg" />
+  <img src="Z:/picture/008/save_picture_545725.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544790.jpg" />
+  <img src="Z:/picture/008/save_picture_544790.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544675.jpg" />
+  <img src="Z:/picture/008/save_picture_544675.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544530.jpg" />
+  <img src="Z:/picture/008/save_picture_544530.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543884.jpg" />
+  <img src="Z:/picture/008/save_picture_543884.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543738.jpg" />
+  <img src="Z:/picture/008/save_picture_543738.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542044.jpg" />
+  <img src="Z:/picture/008/save_picture_542044.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541271.jpg" />
+  <img src="Z:/picture/008/save_picture_541271.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540610.jpg" />
+  <img src="Z:/picture/008/save_picture_540610.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538269.jpg" />
+  <img src="Z:/picture/008/save_picture_538269.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538176.jpg" />
+  <img src="Z:/picture/008/save_picture_538176.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538167.jpg" />
+  <img src="Z:/picture/008/save_picture_538167.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537963.jpg" />
+  <img src="Z:/picture/008/save_picture_537963.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536713.jpg" />
+  <img src="Z:/picture/008/save_picture_536713.jpg" />
 </div>
 
 
@@ -591,88 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6AB921D86F57882A4F97A1FF75FEF4F702CF24B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531388   (534880) от 09.08.2012
-
-Журнал | Ритм Extreme № 4 [январь-февраль 2004] [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальный журнал, освещающий такие направления в музыке, как nu-metal, punk rock и hardcore.
- Основная масса материала посвящена российским коллективам.
-Выходит 1 раз в 2 месяца, тираж - 500 экз.
-
-В номере 22 страницы, собственный скан.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D6110DAA8A38AB4F1806E39B6E85F624A048EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532836   (534435) от 09.08.2012
-
-Журнал | Yoga Journal [Россия] №44, 46 (2011-2012) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал о йогеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D19055A90C48BD310F4371EA651D5B295909E476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926718   (531484) от 11.08.2015
-
-Журнал | Stereo & Video [Россия] №7-8 (245/246) (июль-август 2015) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stereo & Video первым встречает и представляет самые последние новинки Hi-Fi аудио- и видео-продукции на российском и мировом рынке, проводит сравнительные тесты с объективными оценками, делится впечатлениями от общения с интересными людьми и рассчитан на широкий круг читателей, интересующихся аудио- и видеоаппаратурой или заинтересованных в её приобретении.Жанр: Спутник покупателя аудио-видео-продукцииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12700C6AB6B0186F7572CA04F382B1DBB238A62F
 ```
 
 https://mybot314.ru/tekegram_catalog/

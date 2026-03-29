@@ -1,3 +1,81 @@
+###  Публикация: 495862   (253510) от 16.05.2012
+
+Спасите Конкорд / Concorde Affaire (1979) DVDRip [Советский дубляж]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_253510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конкуренты готовы на все, чтобы не допустить «Конкорд» на мировой рынок. Во время первого испытательного полета белоснежный лайнер по неизвестным причинам падает в воды Карибского моря. Чудом выжившую стюардессу спасают рыбаки. Как только весть доходит до скандально-известного журналиста Мозеса Броди, он вылетает на Антильские острова, чтобы расследовать трагедию. (   Читать дальше...   )Жанр: Боевик, Триллер, ДетективРежиссер: Руджеро Деодато / Ruggero DeodatoАктеры: Вэн Джонсон /Van Johnson/, Джеймс Франческус /James Franciscus/, Джозеф Коттин /Joseph Cotten/, Мариа Фиамма Маглионе /Maria Fiamma Maglione/, Мимси Фармер /Mimsy Farmer/, Эдмунд Пурдом /Edmund Purdom/Перевод: Дублированный (Советский дубляж)Язык субтитров: РусскиеПродолжительность: 01:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADA24B290603E9F30E9440032402961E3084803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495225   (253447) от 16.05.2012
+
+Вексель / La cambiale (1959) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_253447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Братья Позалаквалья работают, так сказать, в "адвокатской" конторе, или, проще говоря, свидетелями там, где нужны свидетели. При этом неважно, были они на самом деле на месте там, о чем свидетельствуют или нет. Однажды один из братьев, Чезаре, во время своего очередного свидетельства, получает в уплату вексель на 100000 лир. Типа, время наличных прошло, убеждает финансист, давший этот вексель. Чезаре приносит вексель домой. В тот же день они дают этот вексель в уплату за квартиру домохозяину. Домохозяин покупает за вексель собаку у... Но далее рассказывать сюжет я не буду, а кроме Тото и Пеппино в этом немного фривольном фильме блистают Витторио Гассманн, Уго Тоньяцци, а также Сильва Косчина!Жанр: КомедияРежиссер: Камилло МастрочинкуэАктеры: ТОТО, Пеппино де Филлиппо, Сильва Косчина, Уго Тоньяцци, Витторио Гассманн, Джорджия Молл, Паоло Феррари, Лаура Нуччи, Эрминио Макарио, Луиджи Павезе, Арольдо Тиери, Уго Сассо, Дина Пербеллини, Тони Уччи, Раймондо Вианелло, Мариса Мантовани, Лия Дзоппелли, Андреа Босич, Франка Доминичи, Олимпия Кавалли, Марио КастелланиПеревод: Одноголосый закадровыйПродолжительность: 01:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:077DBFAA1D85FC33B2E015C4FC48D86DA803E111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495578   (253417) от 16.05.2012
+
+Страх и арена / Fifa e arena (1948) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_253417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромный фармацевт Николино Капече работает в аптеке своей тетушки. Он разработал новое уникальное универсальное медицинское средство и собирается поместить в газете его рекламу вместе со своей фотографией. Когда он отправляется в отпуск, газета с рекламой наконец выходит, но вот незадача: в редакции перепутали фотографии и фото Николино было напечатано рядом с объявлением о розыске опасного маньяка! Николино вынужден скрываться, под видом стюардессы он попадает на самолет, летящий в Севилью, там, шантажируемый мерзавцем, он вынужден выдавать себя за известного тореадора с целью жениться на богатой Патриции. Но он совсем не думал, что ему на самом деле придется сразиться с быком!Жанр: КомедияРежиссер: Марио МаттолиАктеры: ТOTO, Иза Барцицца, Марио Кастеллани, Франко Марца, Джулио Маркетти, Луиджи ПавезеПеревод: Одноголосый закадровыйПродолжительность: 01:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B89ECCD48E1358A1EB77802FED6A84D206E77B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 495199   (253291) от 15.05.2012
 
 Зорро / Zorro (1975) [H.264] DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253291.jpg" />
+  <img src="Z:/picture/005/save_picture_253291.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253096.jpg" />
+  <img src="Z:/picture/005/save_picture_253096.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252721.jpg" />
+  <img src="Z:/picture/005/save_picture_252721.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252677.jpg" />
+  <img src="Z:/picture/005/save_picture_252677.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252560.jpg" />
+  <img src="Z:/picture/005/save_picture_252560.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252205.jpg" />
+  <img src="Z:/picture/004/save_picture_252205.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252101.jpg" />
+  <img src="Z:/picture/004/save_picture_252101.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251522.jpg" />
+  <img src="Z:/picture/004/save_picture_251522.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251502.jpg" />
+  <img src="Z:/picture/004/save_picture_251502.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251471.jpg" />
+  <img src="Z:/picture/004/save_picture_251471.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251443.jpg" />
+  <img src="Z:/picture/004/save_picture_251443.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251018.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249887.jpg" />
+  <img src="Z:/picture/004/save_picture_249887.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249789.jpg" />
+  <img src="Z:/picture/004/save_picture_249789.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249677.jpg" />
+  <img src="Z:/picture/004/save_picture_249677.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249578.jpg" />
+  <img src="Z:/picture/004/save_picture_249578.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249559.jpg" />
+  <img src="Z:/picture/004/save_picture_249559.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248312.jpg" />
+  <img src="Z:/picture/004/save_picture_248312.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247762.jpg" />
+  <img src="Z:/picture/004/save_picture_247762.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247376.jpg" />
+  <img src="Z:/picture/004/save_picture_247376.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247115.jpg" />
+  <img src="Z:/picture/004/save_picture_247115.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247060.jpg" />
+  <img src="Z:/picture/004/save_picture_247060.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245789.jpg" />
+  <img src="Z:/picture/004/save_picture_245789.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D43AB0C37DEC33435C33CC4BB52A8847D0ACAED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615964   (245699) от 20.03.2023
-
-Тень тонкого человека / Shadow of the Thin Man (1941) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245699.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз Ник и Нора в поисках приятного времяпровождения приезжают на ипподром и узнают об убийстве жокея, который недавно был обвинен в сдаче гонки. Дело ведет давний знакомый (по второму фильму) Ника, лейтенант Абрамс, и поэтому Нику трудно остаться в стороне. В добавок майор Скалли, отвечающий за расследование игорных преступлений, просит Ника помочь в этом (   Читать дальше...   )Производство: США, Metro-Goldwyn-MayerЖанр: детектив, комедия, криминалРежиссер: В.С. Ван ДайкАктеры: Уильям Пауэлл, Мирна Лой, Бэрри Нельсон, Донна Рид, Сэм Ливин, Алан Бакстер, Генри О’Нилл, Ричард Холл, Стелла Адлер, Лоринг СмитПеревод: Авторский (Сергей Кузнецов)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C0BDD4F832B6B6F801162959FED11C5A181B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630363   (245698) от 30.04.2023
-
-В поисках любви / Looking for Love (1964) HDTVRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Либби Карузо (Конни Фрэнсис) после бесполезных попыток найти себя в шоу-бизнесе решает бросить все и всерьез заняться личной жизнью. Она устраивается на работу в брокерскую контору и встречает мужчину, как она считает, своей мечты, Пола. Однако Пол игнорирует Либби в основном из-за ее мелкого роста. Либби придумывает вешалку для одежды, которую называет «Камердинерка», (   Читать дальше...   )Производство: США / Euterpe Inc., FramnetЖанр: комедия, мюзиклРежиссер: Дон УайсАктеры: Конни Френсис, Джим Хаттон, Сьюзэн Оливер, Джоби Бэйкер, Барбара Николс, Джонни Карсон, Джордж Хэмилтон, Ивет Мимьё, Пола Прентисс, Дэнни ТомасПеревод: Одноголосый любительский, GrampyЯзык озвучки: Русский, английскийСубтитры: Русские (на песни), английскиеПродолжительность: 01:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE28D06E913A7813F3E59B2FCFAFE4AD0584CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616088   (245676) от 20.03.2023
-
-Мистер Дидс переезжает в город / Mr. Deeds Goes to Town (1936) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245676.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лонгфеллоу Дидс, простой парень из провинциального Вермонта, поэт-любитель, пишущий стихи для поздравительных открыток и любитель игры на гобое, наследует огромное состояние своего дяди и за одну ночь становится известен всей стране. Весь городок собирается на вокзале, чтобы проводить Дидса, в Нью-Йорк, где он должен вступить во владение дядюшкиным капиталом и переехать (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: мелодрама, комедия, экранизацияРежиссер: Фрэнк КапраАктеры: Гэри Купер, Джин Артур, Джордж Бэнкрофт, Лайонел Стэндер, Дагласс Дамбрилл, Рэймонд Уолберн, Х.Б. Уорнер, Рут Доннелли, Уолтер Кэтлетт, Джон Рэй, Стэнли ЭндрюПеревод: Авторский (Григорий Либергал)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1AC7836CBF03FE25C9D13839502BEAD5147D14
 ```
 
 https://mybot314.ru/tekegram_catalog/

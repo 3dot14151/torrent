@@ -6,7 +6,7 @@ Riccardo Muti & Wiener Philharmoniker - New Year's Concert 2018 (2018) 2CD [FLAC
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800142.jpg" />
+  <img src="Z:/picture/008/save_picture_800142.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799476.jpg" />
+  <img src="Z:/picture/008/save_picture_799476.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Holiday Season Classical Selection (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790769.jpg" />
+  <img src="Z:/picture/008/save_picture_790769.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Winter Classical Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787094.jpg" />
+  <img src="Z:/picture/008/save_picture_787094.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ The London Promenade Orchestra - Beautiful Melodies With A Touch Of The Classics
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785233.jpg" />
+  <img src="Z:/picture/008/save_picture_785233.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Wagner Projec - Matthias Goerne, The Swedish Radio Symphony Orchestra, Danie
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784272.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Bespoke Classics: New Classics For Cool Dads (2018) [FLAC|Lossless|WEB-DL|t
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774950.jpg" />
+  <img src="Z:/picture/008/save_picture_774950.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ V.A. - Most Relaxing Classics - Inspiration (2009) [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770639.jpg" />
+  <img src="Z:/picture/008/save_picture_770639.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Royal Philharmonic Orchestra & James Morgan - Sleep Baby Sleep (2019) [FLAC|Loss
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760319.jpg" />
+  <img src="Z:/picture/008/save_picture_760319.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ VA - Best Of The Millennium: Top 40 Classical Hits (2000) Box Set, 2 CD [FLAC|Lo
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743901.jpg" />
+  <img src="Z:/picture/008/save_picture_743901.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VA - Pure... classical (2011) Box Set, 4 CD [FLAC|Lossless]<Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740716.jpg" />
+  <img src="Z:/picture/008/save_picture_740716.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - 30 Most Beautiful Pieces of Classical Music (2022) [FLAC|Lossless|WEB-DL|tr
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733524.jpg" />
+  <img src="Z:/picture/005/save_picture_733524.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Telarc: Sampler Five Plus, Sound Effects Library [1996] [flac] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693618.jpg" />
+  <img src="Z:/picture/008/save_picture_693618.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VA - Beethoven: Adagio (1997) [FLAC|Lossless|WEB-DL|tracks] <Classical, Romantic
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649422.jpg" />
+  <img src="Z:/picture/008/save_picture_649422.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - Dark Side Of The Classical Music (2011) Box Set, 3CD [FLAC|Lossless|tracks 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643453.jpg" />
+  <img src="Z:/picture/008/save_picture_643453.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ The London Promenade Orchestra - A Romantic Evening of Operetta: The World's Mos
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642471.jpg" />
+  <img src="Z:/picture/008/save_picture_642471.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Top 30 Most Popular Wedding Classics (2018) [FLAC|Lossless|WEB-DL|tracks] <
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640834.jpg" />
+  <img src="Z:/picture/008/save_picture_640834.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ The London Promenade Orchestra - Johann Strauss' Greatest Hits (1992) Compilatio
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629224.jpg" />
+  <img src="Z:/picture/008/save_picture_629224.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Tomazzo Albinoni - Музыка, неподвластная времени (2007
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_612757.jpg" />
+  <img src="Z:/picture/005/save_picture_612757.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - 100 Best Relaxing Classics (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602081.jpg" />
+  <img src="Z:/picture/008/save_picture_602081.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Kronos Quartet - 25 Years - 10CD BoxSet (1998) [FLAC|Lossless]<Classical, Classi
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568498.jpg" />
+  <img src="Z:/picture/008/save_picture_568498.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ VA - The Real... Classical (The Ultimate Classical Collection) (2013) 3CD [FLAC|
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534975.jpg" />
+  <img src="Z:/picture/008/save_picture_534975.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ VA - Sony Classical - Great Performances [1903-1998] (1999) 4CD BoxSet[FLAC|Loss
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516566.jpg" />
+  <img src="Z:/picture/008/save_picture_516566.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ VA - Classical Music for Focus:|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514935.jpg" />
+  <img src="Z:/picture/008/save_picture_514935.jpg" />
 </div>
 
 
@@ -710,7 +710,7 @@ VA - Adagios (FLAC)
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503256.jpg" />
+  <img src="Z:/picture/008/save_picture_503256.jpg" />
 </div>
 
 
@@ -754,7 +754,7 @@ VA - The Top 100 Masterpieces Of Classical Music: 1685-1928 (1991) [FLAC|Lossles
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502009.jpg" />
+  <img src="Z:/picture/008/save_picture_502009.jpg" />
 </div>
 
 

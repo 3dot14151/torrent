@@ -1,4 +1,149 @@
 https://t.me/izofen
+###  Публикация: 1860855   (1062809) от 
+
+VA - This Is... 1977 (2008) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/20. Bryan Ferry - Tokyo Joe (3:57)
+02/20. The Stranglers - No More Heroes (2:57)
+03/20. Tom Robinson Band - 2-4-6-8 Motorway (3:17)
+04/20. Mr. Big - Romeo (2:34)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Folk RockПродолжительность: 01:15:27.080 (199 644 228 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAA70F7A0E547F21AF518C6B21A6C0B9B3958C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861396   (1062808) от 
+
+VA - This Is... 1972 (2008) [FLAC|Lossless|image + .cue] <Classic Rock, Glam, Heavy Metal, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Move - California Man (3:37)
+02. Wizzard - Ball Park Incident (3:39)
+03. Deep Purple - Smoke on the Water (3:46)
+04. Hawkwind - Silver Machine (live at the Roundhouse London) (4:38)(   Читать дальше...   )Жанр: Classic Rock, Glam, Heavy Metal, Soft RockПродолжительность: 01:14:01.853 (195 885 732 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB07941E767124781F37EA23F7D090B486205E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861913   (1062744) от 
+
+Suzi Quatro - Freedom (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (Single Version) (3:14)
+02. Little Miss Lovely (3:12)
+03. Choose Yourself (4:43)
+04. Going Down (4:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65182E7802AB324099028925031CF365CD060F92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860393   (1061944) от 
+
+VA - Rock Anthems (The Ultimate Collection) (2017) 5 x CD, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Heavy Metal, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hole Hearted (Extreme) [3:39]
+02. Too Much Too Young (Little Angels) [4:23]
+03. I'm The Man (Anthrax) [3:04]
+04. Cosmetic Punk (Thunder) [3:37](   Читать дальше...   )Жанр: Rock, Pop Rock, Heavy Metal, Garage RockПродолжительность: 6:24:54.013 (1 018 445 988 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC6688875E6DB00A5C6DCC9F10EA043ECA60525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860147   (1061908) от 
+
+VA - This Is... 1974 (2008) [FLAC|Lossless|tracks + .cue] <Hard Rock, Alternative Rock, Pub Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1061908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mud - Tiger Feet (3:53)
+02. Suzi Quatro - Devil Gate Drive (3:47)
+03. The Arrows - Touch Too Much (3:00)
+04. Kenny - The Bump (2:35)(   Читать дальше...   )Жанр: Hard Rock, Alternative Rock, Pub RockПродолжительность: 01:07:18.453 (178 095 792 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6C38C890B22CB425A9DBE272AED0A80FE399D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860270   (1061713) от 
 
 Aerosmith - Aerosmith (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -7,7 +152,7 @@ Aerosmith - Aerosmith (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061713.jpg" />
+  <img src="Z:/picture/005/save_picture_1061713.jpg" />
 </div>
 
 
@@ -36,7 +181,7 @@ Ron D Bowes - ooh la la. (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061612.jpg" />
+  <img src="Z:/picture/005/save_picture_1061612.jpg" />
 </div>
 
 
@@ -65,7 +210,7 @@ VA - Rockin' 70s (2004) 3 x CD, Compilation [FLAC|Lossless|image + .cue] <Blues 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061205.jpg" />
+  <img src="Z:/picture/005/save_picture_1061205.jpg" />
 </div>
 
 
@@ -94,7 +239,7 @@ VA - Rock (93 Original Hits) (2009) 6 x CD, Compilation [FLAC|Lossless|tracks + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061204.jpg" />
+  <img src="Z:/picture/005/save_picture_1061204.jpg" />
 </div>
 
 
@@ -123,7 +268,7 @@ VA - This Is... 1973 (2008) [FLAC|Lossless|tracks + .cue] <Classic Rock, Soft Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060619.jpg" />
+  <img src="Z:/picture/005/save_picture_1060619.jpg" />
 </div>
 
 
@@ -152,7 +297,7 @@ VA - Greatest Ever! 70s Rock (2016) 3 x CD Box Set [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060258.jpg" />
+  <img src="Z:/picture/009/save_picture_1060258.jpg" />
 </div>
 
 
@@ -181,7 +326,7 @@ Sting - Mercury Falling (1996) 2026 Expanded Edition [FLAC|Lossless|WEB-DL|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059932.jpg" />
 </div>
 
 
@@ -210,7 +355,7 @@ Proportions - Stories Untold (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059691.jpg" />
+  <img src="Z:/picture/005/save_picture_1059691.jpg" />
 </div>
 
 
@@ -239,7 +384,7 @@ VA - Greatest Ever! Rock The Definitive Collection (2006) 3 x CD, Box Set [FLAC|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059100.jpg" />
+  <img src="Z:/picture/005/save_picture_1059100.jpg" />
 </div>
 
 
@@ -268,7 +413,7 @@ VA - Breakthrough (Underground Sounds Of 1971) (2021) 4 x CD, Box Set [FLAC|Loss
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059096.jpg" />
+  <img src="Z:/picture/005/save_picture_1059096.jpg" />
 </div>
 
 
@@ -297,7 +442,7 @@ VA - So High I've Been (A European Rock Anthology 1967-1973) (2026) 3 x CD, Comp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058886.jpg" />
+  <img src="Z:/picture/005/save_picture_1058886.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ VA - Heavy Workout 2026 [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058721.jpg" />
+  <img src="Z:/picture/005/save_picture_1058721.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ Scorpions - Lonesome Crow (1972) 2026 Mix [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058692.jpg" />
+  <img src="Z:/picture/005/save_picture_1058692.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ VA - Radio Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058583.jpg" />
+  <img src="Z:/picture/005/save_picture_1058583.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ VA - 30 legend rocka (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058314.jpg" />
+  <img src="Z:/picture/005/save_picture_1058314.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ VA - Just In - Rock (2026) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058313.jpg" />
+  <img src="Z:/picture/005/save_picture_1058313.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ VA - Classic Rock 1968: Blowin' Your Mind (1991) [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057536.jpg" />
+  <img src="Z:/picture/005/save_picture_1057536.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ Abraham, Baker, Lyndon - Where Do We Go From Here (2026) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057524.jpg" />
+  <img src="Z:/picture/005/save_picture_1057524.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ Downtown Brown - Moist & Ridiculous (2002) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057293.jpg" />
+  <img src="Z:/picture/005/save_picture_1057293.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ Gomez - Bring It On (1998) [FLAC|Lossless] <Indie Rock, Alternative Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057292.jpg" />
+  <img src="Z:/picture/005/save_picture_1057292.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ INXS - Kick (1987) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057291.jpg" />
+  <img src="Z:/picture/005/save_picture_1057291.jpg" />
 </div>
 
 
@@ -601,151 +746,6 @@ INXS - Kick (1987) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F6DB9B9690868B0B5698BEBE4683F551C0913B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854346   (1057184) от 17.02.2026
-
-Rock N' Roll Circus - The Gold (2025) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gold
-02. Natalia
-03. Break Your Spell
-04. Like A Satelite(   Читать дальше...   )Жанр: Southern Rock, Blues Rock, Classic RockПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B9C8FE299BD88D451F4A2CC79FA398CCC37570B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854041   (1056904) от 15.02.2026
-
-Endez - The Life In A Day (2026) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Younger than young (06:32)
- 02 - I can't wait (03:31)
- 03 - Tree of life (09:32)
- 04 - A good plot (03:27)(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 01:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5700B5B2CB7863F574677E4681DB6157C7C545B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853186   (1056569) от 12.02.2026
-
-VA - This Is... 1971 (2008) [FLAC|Lossless|tracks + .cue] <Rock, Funk / Soul, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Chocolate - I Believe (In Love) - (03:54)
-02. Hurricane Smith - Don’t Let It Die - (02:30)
-03. Cilla Black - Something Tells Me (Something’s Gonna Happen Tonight) - (02:26)
-04. The Congregation - Softly Whispering I Love You - (03:00)(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67147FE55FBFB7D08D1CF4E010ECDFC57587025F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852971   (1056224) от 11.02.2026
-
-Howie Day - Stop All The World Now (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brace Yourself [0:03:39.48]
-02. Perfect Time of Day [0:04:21.13]
-03. Collide [0:04:09.09]
-04. Trouble in Here [0:05:57.27](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C974F4D8D0A9DA1453CA2E3E81C5CCBE28B1221B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852819   (1056171) от 10.02.2026
-
-Ben Folds Five - Whatever and Ever Amen (1997) [FLAC|Lossless|tracks + .cue] <Soft Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Angry Dwarf and 200 Solemn Faces [0:03:52.42]
-02. Fair [0:05:55.65]
-03. Brick [0:04:32.55]
-04. Song for the Dumped [0:03:40.03](   Читать дальше...   )Жанр: Soft Rock, Indie RockПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F1FF602753EE587FCA1DC7232305813A35D406
 ```
 
 https://mybot314.ru/tekegram_catalog/

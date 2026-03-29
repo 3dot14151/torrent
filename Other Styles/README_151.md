@@ -1,3 +1,61 @@
+###  Публикация: 241967   (218549) от 15.12.2018
+
+VA - Александр Зацепин Золотая коллекция (2003) [FLAC|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Этот мир придуман не нами [02:38]
+02. Всё было [03:19]
+03. Помоги мне [04:38]
+04. Одиссей [02:38](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B50A2358922CCC798F9BA62DB22C9DFA07FE903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084587   (218480) от 19.12.2016
+
+VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Timberlake, Gwen Stefani, Ron Funches - Hair Up (02:59)
+02. Justin Timberlake - CAN'T STOP THE FEELING! (03:58)
+03. Anna Kendrick, Gwen Stefani, James Corden, Ron Funches, Walt Dohrn, Caroline Hjelt, Aino Jawo, Kunal Nayyar - Move Your Feet / D.A.N.C.E. / It's A Sunshine Day (02:37)
+04. Anna Kendrick - Get Back Up Again (02:46)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:05:22 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBDEEACC5CAF91E196BEE5FCB9D2248F4630003F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 737323   (218456) от 22.12.2013
 
 David Arkenstone & Charlee Brooks - Loveren (2013) [FLAC|Lossless]<New Age, World, Instrumental>
@@ -6,7 +64,7 @@ David Arkenstone & Charlee Brooks - Loveren (2013) [FLAC|Lossless]<New Age, Worl
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218456.jpg" />
+  <img src="Z:/picture/005/save_picture_218456.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Великие и неповторимые. Звезды советског
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218426.jpg" />
+  <img src="Z:/picture/005/save_picture_218426.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218418.jpg" />
+  <img src="Z:/picture/005/save_picture_218418.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Enya - Enya / The Celts (1992) Unofficial Release, 2015, Chinese Dragon Music [F
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218179.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217956.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ John Williams - Звёздные войны: Пробуждение силы  / 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217776.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Dr. Jeffrey Thompson - 2 albums (1995, 2001) [MP3|320 кб/с]<Ambient, Relax, H
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217768.jpg" />
+  <img src="Z:/picture/005/save_picture_217768.jpg" />
 </div>
 
 
@@ -207,7 +265,7 @@ John Williams - Звёздные войны: Пробуждение силы / S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217736.jpg" />
 </div>
 
 
@@ -236,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217439.jpg" />
+  <img src="Z:/picture/005/save_picture_217439.jpg" />
 </div>
 
 
@@ -265,7 +323,7 @@ Frank Squillante - Take Me There (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216991.jpg" />
 </div>
 
 
@@ -294,7 +352,7 @@ Amy Lynne Johnson - Piano Poetry, Vol. 2: Music to Calm the Mind and Lift the He
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216795.jpg" />
 </div>
 
 
@@ -323,7 +381,7 @@ Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_216732.jpg" />
+  <img src="Z:/picture/005/save_picture_216732.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Meditative Mind - 7 Chakras Healing Music (Tibetan Singing Bowl Edition) (2016) 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216353.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216168.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Enya - Christmas Secrets (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216159.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Shinnobu - The Enigma VIII (What Once It Was) (2019) [FLAC|Lossless|WEB-DL|track
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216135.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Opycham - Kudesa (2018) [MP3|320 Kbps] <New Age, Folk>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215888.jpg" />
 </div>
 
 
@@ -501,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215684.jpg" />
+  <img src="Z:/picture/005/save_picture_215684.jpg" />
 </div>
 
 
@@ -530,7 +588,7 @@ Peter Kater - How the West Was Lost (2011) 2CD [MP3|320 Kbps] <Native American, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215556.jpg" />
+  <img src="Z:/picture/005/save_picture_215556.jpg" />
 </div>
 
 
@@ -559,7 +617,7 @@ VA - Гармонь России 1-2 (2005-2006) 2CD [MP3|320 Kbps] <Фольк�
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215359.jpg" />
+  <img src="Z:/picture/005/save_picture_215359.jpg" />
 </div>
 
 
@@ -588,7 +646,7 @@ Blackmore's Night - Nature's Light (2021) 2CD, Mediabook [FLAC|Lossless|tracks +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215325.jpg" />
+  <img src="Z:/picture/005/save_picture_215325.jpg" />
 </div>
 
 
@@ -617,7 +675,7 @@ VA - Бременские Музыканты. По следам Бременск
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215217.jpg" />
+  <img src="Z:/picture/005/save_picture_215217.jpg" />
 </div>
 
 
@@ -646,7 +704,7 @@ Pregnancy and Birthing Specialists - Pregnancy Music New Age Collection 2020 [FL
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214818.jpg" />
+  <img src="Z:/picture/005/save_picture_214818.jpg" />
 </div>
 
 
@@ -675,7 +733,7 @@ Jack Pashley - The Music of Ollundra (2016) [FLAC|Lossless|WEB-DL|tracks] <Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214805.jpg" />
+  <img src="Z:/picture/005/save_picture_214805.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ Jack Pashley - The Music of Ollundra (2016) [FLAC|Lossless|WEB-DL|tracks] <Sound
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E7EDE2B66A69CBCF11D7598310ACAE59392FFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586962   (214647) от 28.10.2022
-
-Vitamin Therapy - Therapy Yoga Songs - Music for Inner Care (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Yoga>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Therapy Yoga (03:55)
-02. Music for Spa Asian Relaxation (04:30)
-03. Music for Massage Breathe (02:55)
-04. Relaxing Meditation (02:15)(   Читать дальше...   )Жанр: New Age, YogaПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61968ABA954ADC455F650B6EB68A888B8BE1B16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085243   (214501) от 21.12.2016
-
-Amy Lynne Johnson - Piano Poetry Peace to You (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quickening [00:02:28]
-02. A Passing Storm [00:02:47]
-03. Good News [00:02:11]
-04. Rainfall Early Evening [00:02:45](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFCDF8703705808D3DADA103E16F0402E0EB1C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

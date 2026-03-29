@@ -6,7 +6,7 @@ Raven's Gate - Blackstar Machinery (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352600.jpg" />
+  <img src="Z:/picture/008/save_picture_352600.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Tarja & Alissa White-Gluz - Demons In You (2016) Single [MP3|320 Kbps] <Symphoni
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352018.jpg" />
+  <img src="Z:/picture/008/save_picture_352018.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Shadow Of Sadness - SOS (2015) [MP3|320 кб/с]<MDM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351790.jpg" />
+  <img src="Z:/picture/008/save_picture_351790.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Exarsis - New War Order (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351525.jpg" />
+  <img src="Z:/picture/008/save_picture_351525.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Impalers - The Celestial Dictator (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351274.jpg" />
+  <img src="Z:/picture/008/save_picture_351274.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Cannibal Corpse - Red Before Black (2017) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351266.jpg" />
+  <img src="Z:/picture/008/save_picture_351266.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Warhog - Call Of The Voyager (2022) [MP3|320 Kbps] <Heavy, Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350307.jpg" />
+  <img src="Z:/picture/008/save_picture_350307.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Destrage - So Much. Too Much (2022) [MP3|320 Kbps] <Avantgarde, Progressive Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350306.jpg" />
+  <img src="Z:/picture/008/save_picture_350306.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Khraken - Podredumbre (2016) [MP3|320 Kbps] <Death Metal, Grindcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350134.jpg" />
+  <img src="Z:/picture/008/save_picture_350134.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Three Thirteen - Dawn of the Shred (2016) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350132.jpg" />
+  <img src="Z:/picture/008/save_picture_350132.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Exit - Into Darkness (2016) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350129.jpg" />
+  <img src="Z:/picture/008/save_picture_350129.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Eyexist - The Digital Holocaust (2016) [MP3|320 Kbps] <Symphonic Technical Death
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349991.jpg" />
+  <img src="Z:/picture/008/save_picture_349991.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Ellende - Todbringer (2016) [MP3|320 Kbps] <Atmospheric Black Metal, Post-Black 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349843.jpg" />
+  <img src="Z:/picture/008/save_picture_349843.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Sepultura - I Am The Enemy (2016) Single [MP3|320 Kbps] <Death Metal, Thrash Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349737.jpg" />
+  <img src="Z:/picture/008/save_picture_349737.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Superior Stream - Anatomy Of A Human Heart Pt.1&2 (2020) 2xCD [MP3|320 Kbps] <Pr
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349413.jpg" />
+  <img src="Z:/picture/008/save_picture_349413.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ Dr. Living Dead! - Cosmic Conqueror (2017) [MP3|320 Kbps] <Thrash Metal, Crossov
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349350.jpg" />
+  <img src="Z:/picture/008/save_picture_349350.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Novichok - Geo-Desiccant (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348073.jpg" />
+  <img src="Z:/picture/008/save_picture_348073.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ Confessions of a Traitor - Punishing Myself Before God Does (2022) [MP3|320 Kbps
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348069.jpg" />
+  <img src="Z:/picture/008/save_picture_348069.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Infidel Rising - 3 Albums (2015-2022) [MP3|320 Kbps] <Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348068.jpg" />
+  <img src="Z:/picture/008/save_picture_348068.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Vermilia - Ruska (2022) [MP3|320 Kbps] <Atmospheric Pagan Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348066.jpg" />
+  <img src="Z:/picture/008/save_picture_348066.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Conflict Theory - Monologue (2016) [MP3|320 Kbps] <Brutal Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347952.jpg" />
+  <img src="Z:/picture/008/save_picture_347952.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Agenda - Genetic Arts (2016) [MP3|320 Kbps] <Heavy Metal, Speed Metal, Thrash Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347796.jpg" />
+  <img src="Z:/picture/008/save_picture_347796.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Superjoint - Caught up in the Gears of Application (2016) [MP3|320 Kbps] <Sludge
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347787.jpg" />
+  <img src="Z:/picture/008/save_picture_347787.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Stratovarius - Survive (2022) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347763.jpg" />
+  <img src="Z:/picture/008/save_picture_347763.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Sirenia - Arcane Astral Aeons (2018) [MP3|320 Kbps] <Symphonic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347477.jpg" />
+  <img src="Z:/picture/008/save_picture_347477.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Trees Of Eternity - Hour Of The Nightingale (2016) [MP3|320 Kbps] <Doom Metal, G
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347404.jpg" />
+  <img src="Z:/picture/008/save_picture_347404.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Auto Highlight 2.80 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743926.jpg" />
+  <img src="Z:/picture/008/save_picture_743926.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sidebar Diagnostics 3.5.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743900.jpg" />
+  <img src="Z:/picture/008/save_picture_743900.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743893.jpg" />
+  <img src="Z:/picture/008/save_picture_743893.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Firefox 47.0 beta 9 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743883.jpg" />
+  <img src="Z:/picture/008/save_picture_743883.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Arq 5.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743881.jpg" />
+  <img src="Z:/picture/008/save_picture_743881.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743878.jpg" />
+  <img src="Z:/picture/008/save_picture_743878.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_743872.jpg" />
+  <img src="Z:/picture/005/save_picture_743872.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Free Studio 6.6.16.525 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743869.jpg" />
+  <img src="Z:/picture/008/save_picture_743869.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Blocs 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743868.jpg" />
+  <img src="Z:/picture/008/save_picture_743868.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743866.jpg" />
+  <img src="Z:/picture/008/save_picture_743866.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743865.jpg" />
+  <img src="Z:/picture/008/save_picture_743865.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ OmniOutliner Pro 5 v5.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743862.jpg" />
+  <img src="Z:/picture/008/save_picture_743862.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Bigasoft FLAC Converter for Mac 5 v5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743860.jpg" />
+  <img src="Z:/picture/008/save_picture_743860.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Lunar Pro for Mac 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743859.jpg" />
+  <img src="Z:/picture/008/save_picture_743859.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ start 5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743854.jpg" />
+  <img src="Z:/picture/008/save_picture_743854.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ PDF Reader Pro Edition 2.8.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743850.jpg" />
+  <img src="Z:/picture/008/save_picture_743850.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ SoundSource 5.3.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743849.jpg" />
+  <img src="Z:/picture/008/save_picture_743849.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Apeaksoft Android Toolkit 1.1.38 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743848.jpg" />
+  <img src="Z:/picture/008/save_picture_743848.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ ProFind 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743842.jpg" />
+  <img src="Z:/picture/008/save_picture_743842.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ PullTube 1.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743840.jpg" />
+  <img src="Z:/picture/008/save_picture_743840.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ EverWeb 2.8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743836.jpg" />
+  <img src="Z:/picture/008/save_picture_743836.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743835.jpg" />
+  <img src="Z:/picture/008/save_picture_743835.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743834.jpg" />
+  <img src="Z:/picture/008/save_picture_743834.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743829.jpg" />
+  <img src="Z:/picture/008/save_picture_743829.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743808.jpg" />
+  <img src="Z:/picture/008/save_picture_743808.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Avira Scout 2016.05.03.00487b [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743801.jpg" />
+  <img src="Z:/picture/008/save_picture_743801.jpg" />
 </div>
 
 

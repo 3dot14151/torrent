@@ -6,7 +6,7 @@ AIMP 5.01 build 2358 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761518.jpg" />
+  <img src="Z:/picture/008/save_picture_761518.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sweet Home 3D 6.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761486.jpg" />
+  <img src="Z:/picture/008/save_picture_761486.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ TeamViewer 15.25.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761409.jpg" />
+  <img src="Z:/picture/008/save_picture_761409.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mozilla Firefox 47.0 beta 6 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761326.jpg" />
+  <img src="Z:/picture/008/save_picture_761326.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Shadow Defender 1.4.0.519 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761179.jpg" />
+  <img src="Z:/picture/008/save_picture_761179.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Basilisk 2018.03.21 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761134.jpg" />
+  <img src="Z:/picture/008/save_picture_761134.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ XAMPP 1.7.4 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761121.jpg" />
+  <img src="Z:/picture/008/save_picture_761121.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Hard Disk Sentinel Pro 5.20 Build 9372 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761033.jpg" />
+  <img src="Z:/picture/008/save_picture_761033.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ MAGIX VEGAS Movie Studio Platinum 15.0.116 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761025.jpg" />
+  <img src="Z:/picture/008/save_picture_761025.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Wise Folder Hider Free 3.32.141 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760980.jpg" />
+  <img src="Z:/picture/008/save_picture_760980.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ PrivaZer 3.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760972.jpg" />
+  <img src="Z:/picture/008/save_picture_760972.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ K-Lite Codec Pack Update 11.0.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760904.jpg" />
+  <img src="Z:/picture/008/save_picture_760904.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ GPU Shark 0.9.4.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760871.jpg" />
+  <img src="Z:/picture/008/save_picture_760871.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ WinASO Registry Optimizer 5.0.0.0 RePack by WYLEK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760810.jpg" />
+  <img src="Z:/picture/008/save_picture_760810.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ GreenBrowser 6.9.0517 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760792.jpg" />
+  <img src="Z:/picture/008/save_picture_760792.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Leawo Prof. Media 7.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760783.jpg" />
+  <img src="Z:/picture/008/save_picture_760783.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ummy Video Downloader 1.3.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760731.jpg" />
+  <img src="Z:/picture/008/save_picture_760731.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ EZ CD Audio Converter 3.0.3.2 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760713.jpg" />
+  <img src="Z:/picture/008/save_picture_760713.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Viber 6.0.5.1518 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760676.jpg" />
+  <img src="Z:/picture/008/save_picture_760676.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Brave Browser 0.59.34 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760536.jpg" />
+  <img src="Z:/picture/008/save_picture_760536.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ TSR Watermark Image 3.6.0.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760526.jpg" />
+  <img src="Z:/picture/008/save_picture_760526.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ K-Lite Codec Pack Update 15.5.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760508.jpg" />
+  <img src="Z:/picture/008/save_picture_760508.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Registry Life 5.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760507.jpg" />
+  <img src="Z:/picture/008/save_picture_760507.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Rufus 2.9 (Build 934) Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760497.jpg" />
+  <img src="Z:/picture/008/save_picture_760497.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ JetBrains ReSharper 9.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760451.jpg" />
+  <img src="Z:/picture/008/save_picture_760451.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Basilisk 2018.12.18 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_760425.jpg" />
+  <img src="Z:/picture/005/save_picture_760425.jpg" />
 </div>
 
 

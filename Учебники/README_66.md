@@ -1,3 +1,55 @@
+###  Публикация: 571619   (387192) от 07.11.2012
+
+В.Ф.Жуков (ред.) | Деньги. Кредит. Банки (4-издание) [2010] [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Деньги, кредит и банки представляют собой самостоятельный раздел экономической науки, изучающий сферу обращения через деньги, кредит и банки, который базируется на экономической теории и исследованиях западных и российских ученых. В учебнике рассматриваются и анализируются основные тендеции развития денег, денежного обращения, инфляции, кредита, банковской системы и различных видов банков. Значительная часть материала учебника базируется на теоретических и общих аспектах денег, кредита и банков. 4-издание.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040DA955BA5F093E55BFDBEC42DE4AC3EDDE3103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325832   (387024) от 19.09.2019
+
+М.Е. Скачкова, М.Е. Монастырская | Введение в градостроительную деятельность. Нормативно-правовое и информационное обеспечение (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387024.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии изложены концептуальные основы и охарактеризованы технологии нормативно-правового регулирования градостроительной деятельности в Российской Федерации. Представлены результаты анализа и обобщения социальных, профессиональных и законосообразной трактовок понятий «градостроительство» и «градостроительная деятельность»; обозначены цели, задачи и основные (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1795F4991AA17842EF6366015D5B1AB6AC9F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066753   (386984) от 29.10.2016
 
 Д.А. Перепелкин | Схемотехника усилительных устройств (2014) [PDF, DJVU]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386984.jpg" />
+  <img src="Z:/picture/008/save_picture_386984.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386983.jpg" />
+  <img src="Z:/picture/008/save_picture_386983.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386863.jpg" />
+  <img src="Z:/picture/008/save_picture_386863.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386850.jpg" />
+  <img src="Z:/picture/008/save_picture_386850.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386839.jpg" />
+  <img src="Z:/picture/008/save_picture_386839.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386735.jpg" />
+  <img src="Z:/picture/008/save_picture_386735.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385424.jpg" />
+  <img src="Z:/picture/008/save_picture_385424.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385203.jpg" />
+  <img src="Z:/picture/008/save_picture_385203.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384987.jpg" />
+  <img src="Z:/picture/008/save_picture_384987.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384916.jpg" />
+  <img src="Z:/picture/008/save_picture_384916.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384827.jpg" />
+  <img src="Z:/picture/008/save_picture_384827.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383342.jpg" />
+  <img src="Z:/picture/008/save_picture_383342.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383093.jpg" />
+  <img src="Z:/picture/008/save_picture_383093.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382764.jpg" />
+  <img src="Z:/picture/008/save_picture_382764.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382660.jpg" />
+  <img src="Z:/picture/008/save_picture_382660.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382501.jpg" />
+  <img src="Z:/picture/008/save_picture_382501.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382336.jpg" />
+  <img src="Z:/picture/008/save_picture_382336.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381221.jpg" />
+  <img src="Z:/picture/008/save_picture_381221.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381106.jpg" />
+  <img src="Z:/picture/008/save_picture_381106.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381057.jpg" />
+  <img src="Z:/picture/008/save_picture_381057.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380936.jpg" />
+  <img src="Z:/picture/008/save_picture_380936.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380779.jpg" />
+  <img src="Z:/picture/008/save_picture_380779.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380495.jpg" />
+  <img src="Z:/picture/008/save_picture_380495.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380430.jpg" />
+  <img src="Z:/picture/008/save_picture_380430.jpg" />
 </div>
 
 
@@ -620,59 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8199C1E49187C12969D80B6529E8D365E6BD5029
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949004   (379578) от 22.10.2015
-
-Е.Ю. Агеев | Защита информационных процессов в компьютерных системах (2007) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379578.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ходе выполнения практических работ студенты знакомятся с такими инструментами получения информации о сетевой инфраструктуре и возможных уязвимостях компьютерных систем, как сканер сетевых портов и сканер уязвимостей конечных устройств, изучают элементы защиты электронных документов и сообщений электронной почты. Методические указания предназначены для студентов (   Читать дальше...   )Жанр: БезопасностьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E46D0FAC779E7D9604DE18D5342E7F431CCE2B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253768   (379508) от 11.10.2018
-
-В.Н. Гордиенко (ред.) | Оптические телекоммуникационные системы (2011) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изложены принципы построения и основные особенности оптических телекоммуникационных систем, использующих в качестве среды передачи волоконно-оптические кабели. Подробно рассмотрены физические основы работы различных оптических и оптоэлектронных компонент, их параметры и характеристики.
-Обсуждаются особенности передачи цифровых сигналов по линейным трактам и оборудования (   Читать дальше...   )Жанр: Электроника, связьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E93DD961F45F623C4F2B39327C40C97B4207FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1260559   (309702) от 08.11.2018
+
+Discovery. Инженерия невозможного / Impossible Engineering (2015) HDTV [H.264/1080i-LQ] (сезон 2, серии 1-8 из 12)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_309702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Инженерия невозможного" во втором сезоне продолжает рассказ об удивительных инженерных сооружениях, гигантских небоскребах, мощных судах и космических кораблях, опережающих время. За каждым из них стоит удивительная история, и она начинается вовсе не с чертежей или закладки первого камня – совершив экскурс в прошлое, вы узнаете, кто стоял у истоков (   Читать дальше...   )Производство: США, Twofour Broadcast, Yesterday, Science ChannelЖанр: Документальный, строительство, историяПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 8x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC68597D79BCBEC6498CD9F47ABDC51E6BAAF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332891   (309311) от 22.10.2019
+
+NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_309311.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме мы перейдем рамки обычного репортажа о дикой природе и встретимся с самым чарующим диким животным на земле - тигром.Производство: Индия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05916DCFC12B86D95E1D32429F7AD57E5BFB3387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332829   (309118) от 22.10.2019
+
+NG. Солнечный фараон Египта: тайны и сокровища / Egypt's Sun King: Secrets and Treasures (2018) HDTV [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_309118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда археологов впервые со времен фараона Тутанхамона находит новое захоронение с мумией. Оказывается, что это захоронение содержит мумии принцессы и благородной госпожи. Рядом археологи обнаруживают еще как минимум тридцать мумий. Детективная история постепенно помогает найти ответ на вопрос, кто были эти люди и почему они попали в это захоронение. Итак, кто (   Читать дальше...   )Производство: Великобритания, National Geographic ChannelЖанр: Документальный, история, исследованияРежиссер: Ричард РейсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A818229708ABC33B46DE3DEBE75B9E9442744B72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332830   (309108) от 22.10.2019
+
+Деррен Браун: Жертва / Derren Brown: Sacrifice (2018) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_309108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автобиографический фильм расскажет историю знаменитого иллюзиониста и интеллектуала. В своем кругу его давно считают королем человеческих манипуляций. Его взгляд пробирает насквозь. Кажется, что он может пробраться в самые закутки души, туда, куда вход посторонним запрещен, но его это не останавливает. Люди в его руках всего лишь марионетки, которыми он управляет (   Читать дальше...   )Производство: США, NetflixЖанр: ДокументальныйРежиссер: Деррен Браун, Стивен ЛонгПеревод: Многоголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF31267F666B173B16A8393DF28EFD166E0EBFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245303   (308809) от 08.11.2018
 
 NG. Осушить океан / Drain the Oceans (2018) WEB-DL [H.264/1080p] (1 сезон: 10 серий из 10)
@@ -6,7 +110,7 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DL [H.264/1080p] (1 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308809.jpg" />
+  <img src="Z:/picture/008/save_picture_308809.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BBC: Мир природы. Водопад Виктория / Natural World. Vic
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308553.jpg" />
+  <img src="Z:/picture/008/save_picture_308553.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Discovery. На краю Аляски  / Edge of Alaska (2014) HDTVRip (1-8 се
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308473.jpg" />
+  <img src="Z:/picture/008/save_picture_308473.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC. Эти удивительные хищники / Incredible Predators (2016
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308131.jpg" />
+  <img src="Z:/picture/008/save_picture_308131.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Африканская суперзмея / Africa's Super Snake (2017) HDT
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307504.jpg" />
+  <img src="Z:/picture/008/save_picture_307504.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ History Channel. Скрытые следы: Первая мировая войн
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307111.jpg" />
+  <img src="Z:/picture/008/save_picture_307111.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ History Channel: Скрытые следы / Hidden Traces (2014-2016) HDTVRip [
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306731.jpg" />
+  <img src="Z:/picture/008/save_picture_306731.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Discovery. Дороги России: Трасса Колыма (2016) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306324.jpg" />
+  <img src="Z:/picture/008/save_picture_306324.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG. Скрытые тайны городов: Баку / Hidden Cities Revealed:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305345.jpg" />
+  <img src="Z:/picture/008/save_picture_305345.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NGW:Дикая Ботсвана: Братство львов / Wild Botswana: Li
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303268.jpg" />
+  <img src="Z:/picture/008/save_picture_303268.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303259.jpg" />
+  <img src="Z:/picture/008/save_picture_303259.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NGW: Тайна Морского Дьявола / Manta Mystery (2011) HDTV [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303149.jpg" />
+  <img src="Z:/picture/008/save_picture_303149.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG. Экспедиция на Марс / Expedition Mars (2016) TVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302068.jpg" />
+  <img src="Z:/picture/008/save_picture_302068.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ BBC: Новая Европа с Майклом Пэйлином / Michael Palin'
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300972.jpg" />
+  <img src="Z:/picture/008/save_picture_300972.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Discovery. Северная Америка / North America (2013) BDRemux [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300968.jpg" />
+  <img src="Z:/picture/008/save_picture_300968.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300946.jpg" />
+  <img src="Z:/picture/008/save_picture_300946.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ BBC: Супердостижения Земли / Supersized Earth (2012) HDTV [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300886.jpg" />
+  <img src="Z:/picture/008/save_picture_300886.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300751.jpg" />
+  <img src="Z:/picture/008/save_picture_300751.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300051.jpg" />
+  <img src="Z:/picture/008/save_picture_300051.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ NG. Чудо-юдо динозавры / Bizarre Dinosaurs / Weirdest Dinosaurs 
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299910.jpg" />
+  <img src="Z:/picture/008/save_picture_299910.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299711.jpg" />
+  <img src="Z:/picture/008/save_picture_299711.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ NG: Первый великий побег / The First Great Escape (2014) DVB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298671.jpg" />
+  <img src="Z:/picture/008/save_picture_298671.jpg" />
 </div>
 
 
@@ -563,111 +667,6 @@ NG: Первый великий побег / The First Great Escape (2014) DVB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FEC4B47C0286D7DECCAECA25131B7703D5FA8FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262124   (298670) от 13.11.2018
-
-NG: Из истории Второй мировой войны. Гражданская война / Inside WWII. The People's War (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солдаты и гражданские лица рассказывают леденящие душу истории о самых крупных баталиях Второй мировой войны, и о том, как они умирали день за днем, час за часом, секунда за секундой.Производство: США, National GeographicЖанр: Документальный, историяПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 01:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA52ABC6099A1A60301BB4A37CD3AF6FDB2C858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262104   (298602) от 13.11.2018
-
-NGW: Дикая природа Перу: арена боев – Анды. Добро пожаловать в джунгли / Wild Peru: Andes Battleground (2018) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существует три Перу: одна часть представляет собой дождевые леса, другая - предгорья Анд, а третья - пустынное побережье Тихого океана. В течение двух часов вы познакомитесь со всеми этими такими различными средами обитания.
-В юго-восточном Перу есть регион под названием "Мадре-де-Дьос", который представляет собой огромный ливневый лес. Но несмотря на то, (   Читать дальше...   )Производство: Новая Зеландия, Natural History New Zealand, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Лорн ТаунендПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9EA8D977E5B30329BCA8C6D075F3446F68AA06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262111   (298593) от 13.11.2018
-
-NGW. Голый землекоп: Самый странный супергерой в природе / Naked Molerat. Nature's Weirdest Superhero (2017) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Внешний вид - это еще не все. Несмотря на свою неприглядную наружность, голому землекопу можно позавидовать. Он живет до преклонного возраста, никогда не болеет и практически не чувствителен к боли.Производство: Германия, Taglicht Media, ZDF and ARTE, National Geographic ChannelЖанр: Документальный, природа, флора, фаунаРежиссер: Герберт ОствальдПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF5CFDCDB5ACA64920E7EFCE87F93947C9AD1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423742   (297335) от 14.11.2020
-
-BBC. Кракатау. Последние дни / Krakatoa. The Last Days (2006) DVDRemux (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297335.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1883 году звук взрыва, потрясшего Кракатау, разнесся на тысячи миль - это было одно из мощнейших известных истории извержений. Вызванные взрывом чудовищные волны вздымались наподобие гор, доходя до 30 м в высоту; одна за другой низвергались они на соседние острова. Берега Суматры и Явы изменились до неузнаваемости. Знакомые места можно было найти разве только по (   Читать дальше...   )Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документально-постановочный, катастрофа, реконструкцияРежиссер: Сэм МиллерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F165DC3F81C8E5AFF9C8A06FED3AF6ED03E36016
 ```
 
 https://mybot314.ru/tekegram_catalog/

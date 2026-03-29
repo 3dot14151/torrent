@@ -1,3 +1,143 @@
+###  Публикация: 603444   (997004) от 15.01.2013
+
+Enoch Light And His Orchestra - Stereo 35 mm / Far Away Places (2012) [FLAC|Lossless]<Jazz, Pop, Latin Jazz, Novelty>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Wave [02:27]
+02. The Man I Love [04:18]
+03. I've Got A Crush On You [02:56]
+04. All The Way [03:48]
+05. My Romance [03:08]
+06. You Do Something To Me [02:55]
+07. Zing Went The Strings Of My Heart [02:34]
+08. Someone To Watch Over Me [03:19]
+09. Love For Sale [03:24]
+10. I'll See You Agin [03:05](   Читать дальше...   )Жанр: Jazz, Pop, Latin Jazz, NoveltyПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603557   (996975) от 15.01.2013
+
+Rebecca Pidgeon - Slingshot (2011) [FLAC|Lossless]<Vocal Jazz, Popular>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up, Get Out
+02. Sweet Hand of Mercy
+03. Disintegration Man
+04. A Lonely Place
+05. Tremble
+06. Baby Please Come Home Again
+07. Kiss Me
+08. Is Anyone?
+09. I Still Feel That
+10. I Loved No-One(   Читать дальше...   )Жанр: Vocal Jazz, PopularПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605124   (995940) от 19.01.2013
+
+Kalorin Nemayothin - Feel by Kal (2009) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Till  [03:28]
+02. Night And Day  [03:29]
+03. As Time Goes By  [02:57]
+04. Tea For Two  [03:12]
+05. For Sentimental Reason  [04:02]
+06. Stranger In Paradise  [04:25]
+07. Where Or When  [03:45]
+08. I Get A Kick Out Of You  [03:46]
+09. Dream  [02:32]
+10. It's Magic  [03:26](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605200   (995925) от 19.01.2013
+
+Panadda Reungwut - Feel By Panadda (2009) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Fall In Love  [03:14]
+02. It Had To Be You  [03:58]
+03. Quando Quando Quando  [04:31]
+04. How High The Moon  [02:51]
+05. Someone To Watch Over Me  [04:16]
+06. I've Got You Under My Skin  [04:04]
+07. Body And Soul  [04:30]
+08. A Time For Love  [04:05]
+09. I Could Have Danced All Night  [03:32]
+10. If Ever I Would Leave You  [02:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605421   (995901) от 19.01.2013
 
 VA - Live at What Hi-Fi? Cafe (2007) [FLAC|Lossless]<Jazz, Jazz Vocal>
@@ -6,7 +146,7 @@ VA - Live at What Hi-Fi? Cafe (2007) [FLAC|Lossless]<Jazz, Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995901.jpg" />
 </div>
 
 
@@ -41,7 +181,7 @@ Chen Xi - Yesterday Once More (2011) [FLAC|Lossless]<Jazz Vocal / Audiophile>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995799.jpg" />
 </div>
 
 
@@ -76,7 +216,7 @@ VA - Cool Vibes - An Acid Jazz Adventure (1997) [FLAC|Lossless]<Acid jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995660.jpg" />
 </div>
 
 
@@ -111,7 +251,7 @@ Wynton Kelly Trio & Wes Montgomery - Smokin' at the Half Note (1989) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995632.jpg" />
 </div>
 
 
@@ -141,7 +281,7 @@ Diana Panton - To Brazil With Love (2011) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994856.jpg" />
 </div>
 
 
@@ -176,7 +316,7 @@ Patricia Barber - Smash (2013) [FLAC (tracks+.cue)|Lossless]<Contemporary Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994526.jpg" />
 </div>
 
 
@@ -211,7 +351,7 @@ Shirley Horn - 5 альбомов (1987-2001) [FLAC|Lossless]<Jazz - Vocal, Pian
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994497.jpg" />
 </div>
 
 
@@ -246,7 +386,7 @@ Akiko - Greatest HIts (2011) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993668.jpg" />
 </div>
 
 
@@ -281,7 +421,7 @@ Stacey Kent - 8 альбомов (1996-2010) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993363.jpg" />
 </div>
 
 
@@ -316,7 +456,7 @@ Alex Skolnick Trio - Transformation (2004) [WavPack|Lossless]<Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992932.jpg" />
 </div>
 
 
@@ -351,7 +491,7 @@ Rachelle Ann - Love Me (2009) [FLAC|Lossless]<Jazz Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992855.jpg" />
 </div>
 
 
@@ -386,7 +526,7 @@ V.A. - Johnny Hodges & Friends - Jazz Ballads Vol. 15 (2006) 2CD [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992845.jpg" />
 </div>
 
 
@@ -421,7 +561,7 @@ Eric Dolphy - Musical Prophet 1963 - 1964 (2019) 3CD, Resonance [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992736.jpg" />
 </div>
 
 
@@ -450,7 +590,7 @@ Various Artists - Jazz & Hitzaz No. 2 (1998) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992429.jpg" />
 </div>
 
 
@@ -485,7 +625,7 @@ Various Artists - Gershwin Jazz (1998) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992422.jpg" />
 </div>
 
 
@@ -520,7 +660,7 @@ Various Artists - All Around Jazz (2000) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992365.jpg" />
 </div>
 
 
@@ -555,7 +695,7 @@ Various Artists - Jazz Sensuality - Close Your Eyes (2006) [FLAC|Lossless]<Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992307.jpg" />
 </div>
 
 
@@ -588,7 +728,7 @@ Roger Wang - 2 альбома (2009, 2010) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992263.jpg" />
 </div>
 
 
@@ -619,7 +759,7 @@ Various Artists - Funky Groove (1999) [FLAC|Lossless]<Jazz, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992261.jpg" />
 </div>
 
 
@@ -652,7 +792,7 @@ Various Artists - Basstorius - Music Inspired by the Genius of Jaco Pastorius (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992214.jpg" />
 </div>
 
 
@@ -687,7 +827,7 @@ Pasadena Roof Orchestra - Licensed To Swing (2011) [FLAC|Lossless]<Swing, Big Ba
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992178.jpg" />
 </div>
 
 
@@ -722,7 +862,7 @@ Modern Gustin Trio - The Beatles Go Jazz (1995) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992096.jpg" />
 </div>
 
 
@@ -742,128 +882,6 @@ Modern Gustin Trio - The Beatles Go Jazz (1995) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353477   (991861) от 18.01.2020
-
-Brian Simpson & Steve Oliver - Unified (2020) [FLAC|Lossless|image + .cue] <Smooth Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unified
-02. The Road Never Ends
-03. What The Wind Knows
-04. Fired Up(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C030E0396878F108351CF83507198B65E7008774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610094   (991200) от 28.01.2013
-
-The Andrews Sisters - The Best Of Anthology (The Deluxe Edition) (2009) [FLAC|Lossless]<Swing / Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Woogie Bugle Boy (2:16)
-02. Here Comes The Navy (Beer Barrel Polka) (2:47)
-03. Any Bonds Today (2:19)
-04. Is You Is, Or Is You Ain't My Baby (2:37)
-05. Down In The Valley (2:58)
-06. Straighten Up and Fly Right (2:24)
-07. Put That Ring On My Finger (2:21)
-08. The Three Caballeros (2:25)
-09. Vic'try Polka (1:48)
-10. The Blond Sailor (3:01)(   Читать дальше...   )Жанр: Swing / Jazz VocalПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353724   (990852) от 19.01.2020
-
-Flip Phillips - Four Classic Albums 1947 - 1952 (2012) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990852.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cake [3:03]
-02. Znarg Blues [3:03]
-03. My Old Flame [2:57](   Читать дальше...   )Жанр: Swing, Big Band, Mainstream JazzПродолжительность: 02:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E5C74F5563A969967B09FFF2C45731298677E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353731   (990810) от 19.01.2020
-
-Ralph Sharon Trio - The Magic Of Cole Porter (1990) Horatio Nelson Records & Tapes Ltd. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're the Top [2:32]
-02. All Thru' the Night [2:36]
-03. Medley: Easy to Love / Get Out of Town / You'd Be So Nice to Come Home To [4:03]
-04. I Concentrate on You [3:22](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CED9B8E0EEBC165DEF2600FC3AD533545BE9D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

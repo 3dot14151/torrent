@@ -1,3 +1,90 @@
+###  Публикация: 902874   (659929) от 29.05.2015
+
+Helloween - My God-Given Right (2015) Mailorder Edition [FLAC|image+.cue]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_659929.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+01. Heroes 03:51
+02. Battle's Won 04:53(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35164848ADDC8EC813BEFA7402D577B2EF9358A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902766   (659923) от 29.05.2015
+
+Helloween - My God-Given Right (2015) [FLAC|Lossless|WEB-DL]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_659923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heroes 03:51
+02. Battle's Won 04:53
+03. My God-Given Right 03:30
+04. Stay Crazy 04:05(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C58639600236477FE2A5E1B3C4E84DE5FC83895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903026   (659154) от 30.05.2015
+
+George Kollias - Invictus (2015) /Limited Edition/ [FLAC|Lossless]<Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_659154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echoes Of Divinity
+02. Invictus
+03. The Passage
+04. Aeons Of Burning Galaxies(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 01:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F80102B1D8C6C1F6201498FBCBB09D1B80DD4F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903129   (659063) от 30.05.2015
 
 DORO - Fight (2002) [FLAC|tracks + .cue]<Heavy Metal>
@@ -6,7 +93,7 @@ DORO - Fight (2002) [FLAC|tracks + .cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659063.jpg" />
+  <img src="Z:/picture/008/save_picture_659063.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Luca Turilli's Rhapsody - Ascending to Infinity (2012) Limited Edition [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_658927.jpg" />
+  <img src="Z:/picture/005/save_picture_658927.jpg" />
 </div>
 
 
@@ -70,7 +157,7 @@ DORO - Calling the Wild (2000) /2001, Soyuz Music/ [FLAC|tracks + .cue]<Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658880.jpg" />
+  <img src="Z:/picture/008/save_picture_658880.jpg" />
 </div>
 
 
@@ -99,7 +186,7 @@ Sunn O))) - 21 albums (2000-2011) [FLAC|Lossless] <Drone Doom Metal, Sludge, Dro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_658621.jpg" />
+  <img src="Z:/picture/005/save_picture_658621.jpg" />
 </div>
 
 
@@ -128,7 +215,7 @@ Die Entweihung - The Hallucinations (2010) [FLAC|Lossless|image + .cue] <Raw Dep
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658278.jpg" />
+  <img src="Z:/picture/008/save_picture_658278.jpg" />
 </div>
 
 
@@ -157,7 +244,7 @@ Liv Sin (ex-Sister Sin) - Follow Me (2017) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658039.jpg" />
+  <img src="Z:/picture/008/save_picture_658039.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ Thurisaz - The Pulse of Mourning (2015) [FLAC|image+.cue]<Melodic Death/Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657983.jpg" />
+  <img src="Z:/picture/008/save_picture_657983.jpg" />
 </div>
 
 
@@ -215,7 +302,7 @@ Paradise Lost - The Plague Within (2015) [FLAC|tracks]<Doom Metal/Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657777.jpg" />
+  <img src="Z:/picture/008/save_picture_657777.jpg" />
 </div>
 
 
@@ -244,7 +331,7 @@ Amorphis - Queen of Time (2018) Limited Edition [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657740.jpg" />
+  <img src="Z:/picture/008/save_picture_657740.jpg" />
 </div>
 
 
@@ -273,7 +360,7 @@ Lacuna Coil - Comalies (2002) Limited Edition [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657270.jpg" />
+  <img src="Z:/picture/008/save_picture_657270.jpg" />
 </div>
 
 
@@ -302,7 +389,7 @@ Devlsy - A Parade Of States (2013) [FLAC|Lossless|image + .cue] <Post-Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657000.jpg" />
+  <img src="Z:/picture/008/save_picture_657000.jpg" />
 </div>
 
 
@@ -331,7 +418,7 @@ Judas Priest - '98 Live Meltdown (1998) 2CD [FLAC|tracks + .cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656775.jpg" />
+  <img src="Z:/picture/008/save_picture_656775.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ Judas Priest - Screaming For Vengence & Turbo (1982, 1986) [FLAC|tracks + .cue]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656568.jpg" />
+  <img src="Z:/picture/008/save_picture_656568.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Judas Priest - British Steel & Painkiller (1980 , 1990) [FLAC|tracks + .cue]<Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656439.jpg" />
+  <img src="Z:/picture/008/save_picture_656439.jpg" />
 </div>
 
 
@@ -418,7 +505,7 @@ Angantyr - Sejr (2004) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656033.jpg" />
+  <img src="Z:/picture/008/save_picture_656033.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ Armaggedon - I.N.R.I. (I, Nazarene, Recognize My Impurity) (2009) [APE|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656032.jpg" />
+  <img src="Z:/picture/008/save_picture_656032.jpg" />
 </div>
 
 
@@ -476,7 +563,7 @@ Armaggedon - Imperium wird durch das Blut wieder aufleben (2005) [APE|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656031.jpg" />
+  <img src="Z:/picture/008/save_picture_656031.jpg" />
 </div>
 
 
@@ -505,7 +592,7 @@ Axe Minister - Comatose (2000) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655955.jpg" />
+  <img src="Z:/picture/008/save_picture_655955.jpg" />
 </div>
 
 
@@ -534,7 +621,7 @@ Traumer - History (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655953.jpg" />
+  <img src="Z:/picture/008/save_picture_655953.jpg" />
 </div>
 
 
@@ -563,7 +650,7 @@ Blitzkrieg - Judge Not! (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655952.jpg" />
+  <img src="Z:/picture/008/save_picture_655952.jpg" />
 </div>
 
 
@@ -592,7 +679,7 @@ Bucovina - Nestramutat (2015) [FLAC|Lossless|image + .cue] <Folk Metal, Pagan Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655949.jpg" />
+  <img src="Z:/picture/008/save_picture_655949.jpg" />
 </div>
 
 
@@ -621,7 +708,7 @@ Veil Of Maya - [Id] (2010) [FLAC|Lossless|image + .cue] <Progressive Metalcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655947.jpg" />
+  <img src="Z:/picture/008/save_picture_655947.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ Edenian - Winter Shades (2012) [FLAC|Lossless]<Gothic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655934.jpg" />
+  <img src="Z:/picture/005/save_picture_655934.jpg" />
 </div>
 
 
@@ -667,93 +754,6 @@ Edenian - Winter Shades (2012) [FLAC|Lossless]<Gothic Doom Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226232   (655844) от 20.05.2018
-
-Praying Mantis - Gravity (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep It Alive
-02. Mantis Anthem
-03. Time Can Heal
-04. 39 Years(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AF901CDD541681A46C7206F70E6090B8434FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226407   (655841) от 20.05.2018
-
-Lords of Black - Icons of the New Days (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innuendo (Queen Cover)
-02. Only (Anthrax Cover)
-03. Tears of the Dragon (Bruce Dickinson Cover)
-04. Edge of the Blade (Journey Cover)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21C7468A9C4ADFC1B766D002E0683C60C45325EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539591   (655048) от 28.03.2022
-
-Kvaen - The Great Below (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cauldron of Plagues (00:03:44)
-02 - The Great Below (00:04:28)
-03 - In Silence (00:07:23)
-04 - Damnations Jaw (00:05:00)(   Читать дальше...   )Жанр: Melodic Black, Pagan MetalПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D3AA08E869660DCD6DACB1B7B7D25A54A6AE3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

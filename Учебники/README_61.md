@@ -1,3 +1,73 @@
+###  Публикация: 553254   (443727) от 28.09.2012
+
+Ю.С. Очан | Книги по методам математической физики [1966, 1967] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название: Методы математической физики
+Автор: Юрий Семенович Очан
+Издательство: Высшая школа
+Год издания: 1966
+Размер: 7,9 МБ
+
+Учебное пособие состоит из трех частей: "Векторный анализ (математическая теория поля)", "Краевые задачи. Ортогональные системы функций", "Уравнения математической физики". Много решенных примеров и задач.
+
+Название:Сборник задач по методам математической физики
+Автор: Ю.С. 0чан(   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:204664555A6B4EA3B500CFF943DC1FF1DBF5205B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553248   (443611) от 28.09.2012
+
+«МГУ» | Книги по математической физике [1993, 1998] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_443611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор: Свешников А.Г., Боголюбов А.Н., Кравцов В.В.
+Название: Лекции по математической физике
+Издательство: Издательство МГУ
+Год: 1993
+Размер: 3.92 МБ
+ISBN: 978-5-211-02073-1
+
+В книге рассматриваются основные методы исследования краевых и начально-краевых задач для дифференциальных уравнений математической физики. Отличительной особенностью учебного пособия является непосредственная связь между физической сущностью изучаемых явлений и математическими методами их исследования В пособии содержится математический аппарат, знание которого необходимо студентам-физикам для дальнейшей работы в области экспериментальной и теоретической физики Одна из глав посвящена изложению теории специальных функций — важнейшему аналитическому аппарату исследования краевых задач математической физики
+Для студентов физических специальностей университетов.
+(   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC435B783FEDC219AEC82E7B8F3ECD1AD80468B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943213   (442777) от 06.10.2015
 
 А.Н. Чеканов | Расчеты и обеспечение надежности электронной аппаратуры (2014) [DJVU]
@@ -6,7 +76,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442777.jpg" />
+  <img src="Z:/picture/008/save_picture_442777.jpg" />
 </div>
 
 
@@ -33,7 +103,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442766.jpg" />
+  <img src="Z:/picture/008/save_picture_442766.jpg" />
 </div>
 
 
@@ -59,7 +129,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442214.jpg" />
+  <img src="Z:/picture/008/save_picture_442214.jpg" />
 </div>
 
 
@@ -85,7 +155,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442041.jpg" />
+  <img src="Z:/picture/008/save_picture_442041.jpg" />
 </div>
 
 
@@ -112,7 +182,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440946.jpg" />
+  <img src="Z:/picture/008/save_picture_440946.jpg" />
 </div>
 
 
@@ -138,7 +208,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440807.jpg" />
+  <img src="Z:/picture/008/save_picture_440807.jpg" />
 </div>
 
 
@@ -164,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440413.jpg" />
+  <img src="Z:/picture/008/save_picture_440413.jpg" />
 </div>
 
 
@@ -193,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440205.jpg" />
+  <img src="Z:/picture/008/save_picture_440205.jpg" />
 </div>
 
 
@@ -220,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440128.jpg" />
+  <img src="Z:/picture/008/save_picture_440128.jpg" />
 </div>
 
 
@@ -246,7 +316,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439941.jpg" />
+  <img src="Z:/picture/008/save_picture_439941.jpg" />
 </div>
 
 
@@ -274,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436034.jpg" />
+  <img src="Z:/picture/008/save_picture_436034.jpg" />
 </div>
 
 
@@ -300,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435831.jpg" />
+  <img src="Z:/picture/008/save_picture_435831.jpg" />
 </div>
 
 
@@ -326,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435734.jpg" />
+  <img src="Z:/picture/008/save_picture_435734.jpg" />
 </div>
 
 
@@ -352,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433899.jpg" />
+  <img src="Z:/picture/008/save_picture_433899.jpg" />
 </div>
 
 
@@ -378,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433398.jpg" />
+  <img src="Z:/picture/008/save_picture_433398.jpg" />
 </div>
 
 
@@ -404,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433393.jpg" />
+  <img src="Z:/picture/008/save_picture_433393.jpg" />
 </div>
 
 
@@ -430,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433390.jpg" />
+  <img src="Z:/picture/008/save_picture_433390.jpg" />
 </div>
 
 
@@ -456,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433389.jpg" />
+  <img src="Z:/picture/008/save_picture_433389.jpg" />
 </div>
 
 
@@ -482,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433203.jpg" />
+  <img src="Z:/picture/008/save_picture_433203.jpg" />
 </div>
 
 
@@ -508,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433121.jpg" />
+  <img src="Z:/picture/008/save_picture_433121.jpg" />
 </div>
 
 
@@ -534,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432918.jpg" />
+  <img src="Z:/picture/008/save_picture_432918.jpg" />
 </div>
 
 
@@ -560,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431459.jpg" />
+  <img src="Z:/picture/008/save_picture_431459.jpg" />
 </div>
 
 
@@ -587,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431327.jpg" />
+  <img src="Z:/picture/008/save_picture_431327.jpg" />
 </div>
 
 
@@ -614,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431075.jpg" />
+  <img src="Z:/picture/008/save_picture_431075.jpg" />
 </div>
 
 
@@ -625,60 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1EBD72875BF6DABD9029531879C61C55981D1CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324109   (429595) от 07.09.2019
-
-В.В. Тропин и др. | Надежность электроснабжения: практикум (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надежность системы электроснабжения является одним из важнейших показателей качества системы. Если система не обладает необходимой степенью надежности, то все остальные показатели качества теряют свое практическое значение, поскольку они не могут быть полноценно использованы в эксплуатации.
-Практикум содержит рекомендации по курсу «Надежность электроснабжения».
-Предназначен (   Читать дальше...   )Жанр: Электротехника, энергетикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B10FAC42F2A902E8F2A6A49ADA3850089E9287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571693   (429555) от 23.08.2022
-
-И.П. Жеребцов | Электрические и магнитные цепи (1987) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429555.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге в популярной форме изложены основы устройства и работы электрических н магнитных цепей, применяемых в радиоэлектронике. Рассмотрены электрические цепи постоянного и переменного то­ка, их важнейшие элементы, электромагнитные явления и магнитные цепи, выпрямительные устройства, электроизмерительные приборы. Первое издание вышло в 1982 г. Настоящее издание дополнено (   Читать дальше...   )Жанр: ЭлектротехникаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5474B9D0DFE63CD41A87CA2364C818CFC118747
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1817957   (2847) от 14.09.2025
+
+Atari 50: The Anniversary Celebration (2022) [Multi] (1.04/dlc) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Atari 50: The Anniversary Celebration приглашает игроков в интерактивное путешествие по 50-летней истории видеоигр с помощью интервью с дизайнерами, разработчиками и лидерами отрасли, документальных кадров, документации по дизайну продукции, оригинальных иллюстраций в высоком разрешении и тщательно отобранного списка из более чем 90 игр, в которые можно играть.Тип издания: LicenseРазработчик: Digital EclipseЖанр: Экшены, Казуальные игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23230238D1669F1FC7DE708CF3BE87F1AA44C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818017   (2835) от 14.09.2025
+
+X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРlay [Complete Pack]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальное сочетание шутера с видом сверху и стратегии в жанре Tower Defense. Вы - захватчик! Используйте оружие или заманите врага в смертоносный лабиринт защитных башен. Планируйте атаку в режиме строительства, возводя разнообразные башни, или сразу ворвитесь в самую гущу боя.Тип издания: RepackРазработчик: EXOR StudiosЖанр: Экшены, Инди, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8CBF5B73424122AD889E78D339D717A502C7C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809709   (916) от 26.09.2025
 
 NINJA GAIDEN Ragebound (2025) [Ru/Multi] (cs37801) Repack Let'sРlay [Soundtrack Edition]
@@ -6,7 +58,7 @@ NINJA GAIDEN Ragebound (2025) [Ru/Multi] (cs37801) Repack Let'sРlay [Soundtrack
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_916.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Undead West (2024) [Ru/Multi] (1.0.4.4) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_706.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Meganoid (2017) [En] (2.2.3) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_648.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Primal Planet (2025) [Ru/Multi] (1.0.250909.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147.jpg" />
 </div>
 
 

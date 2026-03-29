@@ -6,7 +6,7 @@ Topaz DeNoise AI 3.3.4 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806014.jpg" />
+  <img src="Z:/picture/008/save_picture_806014.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF-XChange PRO 9.2.358.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806012.jpg" />
+  <img src="Z:/picture/008/save_picture_806012.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Comodo Internet Security Premium 10.1.0.6476 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805913.jpg" />
+  <img src="Z:/picture/008/save_picture_805913.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805902.jpg" />
+  <img src="Z:/picture/008/save_picture_805902.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ LosslessCut 3.23.7 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805892.jpg" />
+  <img src="Z:/picture/008/save_picture_805892.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ IObit Driver Booster Pro 7.4.0.731 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805891.jpg" />
+  <img src="Z:/picture/008/save_picture_805891.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IObit Driver Booster Pro 7.4.0.730 (акция COMSS) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805884.jpg" />
+  <img src="Z:/picture/008/save_picture_805884.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mailbird Pro 2.8.5.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805883.jpg" />
+  <img src="Z:/picture/008/save_picture_805883.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Tor Browser Bundle 10.5.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805878.jpg" />
+  <img src="Z:/picture/008/save_picture_805878.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ IObit Driver Booster Pro 9.0.1.104 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805867.jpg" />
+  <img src="Z:/picture/008/save_picture_805867.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ All AVS4YOU Software in 1 Installation Package 4.0.4.148 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805765.jpg" />
+  <img src="Z:/picture/008/save_picture_805765.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ KMSAuto++ Portable 1.6.2 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805690.jpg" />
+  <img src="Z:/picture/008/save_picture_805690.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Windows 7 Ultimate SP1 x64 3in1 OEM May 2020 by Generation2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805589.jpg" />
+  <img src="Z:/picture/008/save_picture_805589.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Windows 7 SP1 х86-x64 by g0dl1ke 20.05.15 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805586.jpg" />
+  <img src="Z:/picture/008/save_picture_805586.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Slimjet 9.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805568.jpg" />
+  <img src="Z:/picture/008/save_picture_805568.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Gilisoft Privacy Protector 7.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805565.jpg" />
+  <img src="Z:/picture/008/save_picture_805565.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Comodo Cloud Antivirus 1.1.387596.183 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805472.jpg" />
+  <img src="Z:/picture/008/save_picture_805472.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ IObit Smart Defrag Pro 5.0.2.768  Final[Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805463.jpg" />
+  <img src="Z:/picture/008/save_picture_805463.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Vivaldi 1.8.770.46 Snapshot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805380.jpg" />
+  <img src="Z:/picture/008/save_picture_805380.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Gilisoft USB Lock 5.7.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805352.jpg" />
+  <img src="Z:/picture/008/save_picture_805352.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Hotspot Shield Elite 5.20.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805342.jpg" />
+  <img src="Z:/picture/008/save_picture_805342.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ Spamihilator 0.9.9.53 [Multi (Ru)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_805265.jpg" />
+  <img src="Z:/picture/005/save_picture_805265.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Vivaldi 1.8.770.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805246.jpg" />
+  <img src="Z:/picture/008/save_picture_805246.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ ACDSee Ultimate 9.2 Build 649 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805232.jpg" />
+  <img src="Z:/picture/008/save_picture_805232.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Freemake Video Converter 4.1.9.9 RePack by CUTA [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805226.jpg" />
+  <img src="Z:/picture/008/save_picture_805226.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ GPU Caps Viewer 1.34.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805136.jpg" />
+  <img src="Z:/picture/008/save_picture_805136.jpg" />
 </div>
 
 

@@ -1,3 +1,111 @@
+###  Публикация: 1457502   (1024270) от 26.03.2021
+
+Office 2013-2021 C2R Install + Lite 7.1.8 Portable by Ratiborus [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для онлайн установки Microsoft Office 2013-2021 на ваш ПК.
+Преимуществом программы есть возможность установки отдельных компонентов офис 2013-2021, а так же выбора языка устанавливаемого офисного пакета и выполнить активацию
+
+Помимо нового дизайна, выполненного в стилистике Windows 10, пакет получил несколько важных нововведений в плане функциональности.(   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8658006EAAC03DBD7BF6901B4288C22C578A4836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449967   (1024103) от 27.03.2021
+
+Спрут / La Piovra (1984-1998) DVDRip (сезон 1-10, серии 1-48 из 48) ЦТ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024103.jpg" />
+</div>
+
+
+###  Подробнее
+
+В небольшом сицилийском городке убивают начальника уголовного розыска Маринео. Кажется, что это преступление мафии. В тот же день становится известно еще об одной смерти. Покончила с собой маркиза Печчи Шалойя.
+На место убитого комиссара назначают Коррадо Каттани, опытного полицейского, который переезжает на Сицилию с женой и дочерью. Расследуя убийство предшественника, (   Читать дальше...   )Производство: Италия, Франция, Великобритания, ФРГ / RAI Radiotelevisione Italiana, Télécip, France 2 (FR2)Жанр: Мелодрама, драма, криминал.Режиссер: Дамиано Дамиани, Луиджи Перелли.Актеры: Микеле Плачидо, Николь Жаме, Барбара Де Росси, Каридди Нардулли, Анджело Инфанти, Франсуа Перье, Массимо Бонетти, Флоринда Болкан, Поль Гер, Пино Колицци.Перевод: Многоголосый профессиональный (ЦТ СССР)Продолжительность: ~01:00:00 серия (сезон 1-3);  ~01:40:00 серия (сезон 4-10)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FD731884C98E377FEB73CD71069EE752CBE2BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422395   (1023886) от 28.03.2021
+
+Метод (2020) SATRip (сезон 2, серии 1-16 из 16)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023886.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти Меглина прошел год, но Есеня не может забыть о том, что произошло. Не может и не хочет. Призраки прошлого снова и снова возвращают её в тот день, когда она потеряла Меглина. Есеня пытается начать жить заново — рядом с ней муж, подрастает дочь, но всё, о чем она мечтает — это поскорее вернуться к работе. Такой шанс представляется, когда в городе происходит (   Читать дальше...   )Производство: Россия / кинокомпания "Среда"Жанр: триллер, детективРежиссер: Александр ВойтинскийАктеры: Паулина Андреева, Константин Хабенский, Александр Петров, Макар Запорожский, Егор Корешков,     Виталий Кищенко, Сергей Сосновский, Евгения Симонова, Полина Лунегова, Анастасия ПоповаПродолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A4A19C7586A226480BACE42E415ECFF04230AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457987   (1023753) от 29.03.2021
+
+Москва вошла в список 30 лучших столиц мира по качеству воздуха в рейтинге за 2020 год
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва вошла в список 30 лучших столиц мира по качеству воздуха в рейтинге по данным отчета IQAir за 2020 год. Об этом сообщается на официальном сайте мэра Москвы.«Москва вошла в список 30 лучших столиц по качеству воздуха в мировом рейтинге за 2020 год. В его основе лежат данные о содержании в атмосфере мелких твердых частиц (PM2.5), эти показатели поступают с наземных (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422472   (1023706) от 29.03.2021
 
 Метод (2020) HDTV [H.264/1080i-LQ] (сезон 2, серии 1-16 из 16)
@@ -6,7 +114,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023706.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Azur Lane: Slow Ahead! | Azur Lane: Bisoku Zenshin! | Лазурный путь:
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023563.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Comodo Internet Security Premium 12.2.2.8012 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023537.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023351.jpg" />
 </div>
 
 
@@ -111,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023349.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023347.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023220.jpg" />
 </div>
 
 
@@ -191,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023180.jpg" />
 </div>
 
 
@@ -217,7 +325,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.10.8/dlc) Repack Other s [Overclocked
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023177.jpg" />
 </div>
 
 
@@ -243,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023175.jpg" />
 </div>
 
 
@@ -270,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022654.jpg" />
 </div>
 
 
@@ -296,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022653.jpg" />
 </div>
 
 
@@ -322,7 +430,7 @@ Help4d, Андрей Доронин | Базовый курс по Cinema 4D: В
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022489.jpg" />
 </div>
 
 
@@ -348,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022316.jpg" />
 </div>
 
 
@@ -374,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022208.jpg" />
 </div>
 
 
@@ -400,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022160.jpg" />
 </div>
 
 
@@ -426,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022033.jpg" />
 </div>
 
 
@@ -452,7 +560,7 @@ Spintires: The Original Game (2014) [Ru/Multi] (1.7.1/dlc) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021975.jpg" />
 </div>
 
 
@@ -478,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021689.jpg" />
 </div>
 
 
@@ -504,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021647.jpg" />
 </div>
 
 
@@ -530,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021644.jpg" />
 </div>
 
 
@@ -556,7 +664,7 @@ Amnesia: Rebirth (2020) [Ru/Multi] (1.31) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021470.jpg" />
 </div>
 
 
@@ -567,110 +675,6 @@ Amnesia: Rebirth (2020) [Ru/Multi] (1.31) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A76D338355B3EB7EEC6AAE7C43484610D430C836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461302   (1021468) от 11.04.2021
-
-Гуляй, Вася! Свидание на Бали (2021) WEBRip [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Паше опять выпала великолепная возможность изменить жене с красивой Васей. Максу выпала возможность уничтожить Митю и вернуть Настю. Все герои сойдутся на острове Бали, где их ждут погони, бои без правил и невероятные приключения.Производство: Россия, PLAN 9Жанр: КомедияРежиссер: Роман КаримовАктеры: Любовь Аксенова, Борис Дергачев, Роман Курцын, Сергей Аброскин, Вера Кинчева, Святослав Королев, Владимир Карпук, Ефим Петрунин, Софья Райзман, Эндрю СубротоПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFFD11D36BEBBAA0885B11EDEB0C70A50A6820C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461667   (1021467) от 11.04.2021
-
-JetBrains PyCharm Professional 2021.1 [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021467.jpg" />
-</div>
-
-
-###  Подробнее
-
-PyCharm – это самая интеллектуальная Python IDE с полным набором средств для эффективной разработки на языке Python. Выпускается в двух вариантах – бесплатная версия PyCharm Community Edition и поддерживающая больший набор возможностей PyCharm Professional Edition. PyCharm выполняет инспекцию кода на лету, автодополнение, в том числе основываясь на информации, полученной (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE642DBC7FC2A62ED34BA89BAE9E0838BAD03A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461814   (1021386) от 12.04.2021
-
-В США задержали террориста, который хотел «уничтожить 70% всего интернета»
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021386.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлый четверг ФБР арестовало человека из Техаса, который планировал теракт в одном из ЦОД Amazon.28-летний Сет Аарон Пендли (Seth Aaron Pendley) намеревался заложить взрывчатку в центре обработки данных Amazon в Вирджинии. Пендли объяснял своё желание тем, что, по его мнению, центры Amazon обслуживают ФБР, ЦРУ и другие федеральные агентства.Что интересно, как (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461599   (1021349) от 12.04.2021
-
-Лига Справедливости Зака Снайдера: Последний Мир / Zack Snyder's Justice League: The Last World (2021) [H.264/1080p] WEB-DLRip [hand made сокращённая версия 16:9 60fps]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вдохновившись самопожертвованием Супермена, Брюс Уэйн вновь обретает веру в человечество. Он заручается поддержкой новой союзницы Дианы Принс, чтобы сразиться с ещё более могущественным противником. Бэтмен и Чудо-женщина набирают команду сверхлюдей для борьбы с пробудившейся угрозой.Производство: США / Atlas Entertainment, DC Entertainment, DC FilmsЖанр: Фантастика, фэнтези, боевик, приключенияРежиссер: Зак СнайдерАктеры: Бен Аффлек, Рэй Фишер, Галь Гадот, Генри Кавилл, Дайан Лэйн, Эзра Миллер, Джейсон Момоа, Конни Нильсен, Джереми Айронс, Дж.К. Симмонс, Робин РайтПеревод: Дублированный (Мосфильм-мастер)Субтитры: отсутствуютПродолжительность: 02:00:10Реклама: Присутствует логотип AVG SHOW
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1E0A5208493657C57D18D30AA2E69B80664104
 ```
 
 https://mybot314.ru/tekegram_catalog/

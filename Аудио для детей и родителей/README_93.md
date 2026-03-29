@@ -1,3 +1,86 @@
+###  Публикация: 396248   (124814) от 01.01.2024
+
+Джек Лондон | Белый Клык (2007) [MP3, Юрий Кузаков]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124814.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Школьная библиотека.
+Джек Лондон (1876–1916) – писатель и журналист, военный корреспондент, общественный деятель, классик американской литературы.
+«Школьная библиотека» продолжает знакомить своих слушателей с творчеством Джека Лондона – замечательного писателя, классика американской литературы.
+Повесть «Белый Клык» входит в плеяду «Северных рассказов» (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, повестьИздательство: АудиокнигаПродолжительность: 07:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D418363773A0E0DCCBC20E0C9CDE08456366CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689371   (124784) от 01.01.2024
+
+Е. Измайлова (ред.) | Сделать счастливыми наших детей. Подростки (2018) [MP3, Анна Геллер]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124784.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе этой аудиокниги – лучшие статьи и материалы журнала Psychologies. Это одновременно ваш справочник, помощник и консультант. Рекомендуется не только родителям подростков, но и детей более раннего возраста. Есть вещи, которые необходимо знать заранее.Жанр: воспитание детей, детская психология, развитие ребёнкаИздательство: CLEVERПродолжительность: 04:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8E7FBFF97E7E5244D0DEA05C2D64576A38FF011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689344   (124763) от 01.01.2024
+
+Александр Лукин | История. Путешествие в древний Египет (2017) [MP3, Владимир Левашев и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство «АРДИС» представляет уникальную коллекцию аудиоспектаклей для детей. Легко, будто играя, дети погрузятся в яркий и увлекательный мир знаний. А помогут им в этом знаменитые артисты, принявшие участие в записи спектаклей.
+
+Двое героев – Маша и Петя, сопровождаемые добрым знакомым – профессором Владимиром Сергеевичем, раз за разом отправляются в захватывающие (   Читать дальше...   )Жанр: аудиоспектакли, учебная литература, энциклопедииИздательство: АРДИСПродолжительность: 01:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59E0C61A0120C72B7853DD09D3221CFDF21E90C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689457   (124655) от 02.01.2024
 
 Анастасия Галкина, Екатерина Ладатко | Волшебная книга динозавров. Путешествие в юрский период (2019) [MP3, Мария Лутовинова]
@@ -6,7 +89,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124655.jpg" />
 </div>
 
 
@@ -32,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124650.jpg" />
 </div>
 
 
@@ -58,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124644.jpg" />
 </div>
 
 
@@ -84,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124642.jpg" />
 </div>
 
 
@@ -111,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124540.jpg" />
 </div>
 
 
@@ -137,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124539.jpg" />
 </div>
 
 
@@ -163,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124534.jpg" />
 </div>
 
 
@@ -189,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124523.jpg" />
 </div>
 
 
@@ -217,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124504.jpg" />
 </div>
 
 
@@ -243,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124465.jpg" />
 </div>
 
 
@@ -270,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124347.jpg" />
 </div>
 
 
@@ -296,7 +379,7 @@ VA - Дело было в Новый год! Новогодние и рожде�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124303.jpg" />
 </div>
 
 
@@ -325,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124278.jpg" />
 </div>
 
 
@@ -353,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124176.jpg" />
 </div>
 
 
@@ -379,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123742.jpg" />
 </div>
 
 
@@ -407,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123740.jpg" />
 </div>
 
 
@@ -435,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123739.jpg" />
 </div>
 
 
@@ -462,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123731.jpg" />
 </div>
 
 
@@ -489,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123728.jpg" />
 </div>
 
 
@@ -515,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123719.jpg" />
 </div>
 
 
@@ -542,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123642.jpg" />
 </div>
 
 
@@ -568,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123593.jpg" />
 </div>
 
 
@@ -596,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123592.jpg" />
 </div>
 
 
@@ -608,88 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6EBA7509835C2165D293801C1659B649D470312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385014   (123586) от 10.01.2024
-
-Михаил Салтыков-Щедрин | Сказки. Выпуск 2 (2006) [MP3, Евгений Весник]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театральный фонограф.
-Михаил Евграфович Салтыков-Щедрин – замечательный русский писатель-сатирик, мастер создания ярких аллегорических образов. Его сказки написаны необычайно живо и красочно, их язык близок к русскому народному фольклору. Персонажи сказок Салтыкова-Щедрина давно стали нарицательными, а комические ситуации, описанные в сказках, случаются (   Читать дальше...   )Жанр: Русская литература, классика, сказкаПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DFC48867C3869435C1671F60009D81A91483D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 385501   (123583) от 10.01.2024
-
-Михаил Салтыков-Щедрин | Сказки (2005) [MP3, Семён Ярмолинец]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Русская классическая литература.
-Михаил Евграфович Салтыков-Щедрин (1826–1889), русский писатель-сатирик и публицист, автор романов, повестей, очерков, рассказов, сказок. Его творчество, несомненно, стало одним из ярчайших явлений русской и мировой литературы второй половины XIX века.
-В сказках великого русского сатирика М.Е. Салтыкова-Щедрина есть и актуальность, (   Читать дальше...   )Жанр: Русская литература, классика, сказкаИздательство: МедиаКнигаПродолжительность: 03:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E796E2830B87CB0F0DB72B2E82E11F8F686E0B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 381903   (123577) от 10.01.2024
-
-Михаил Салтыков-Щедрин | История одного города (2003) [MP3, Вячеслав Герасимов]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Библиотека школьника.
-«История одного города» – одно из самых значительных произведений великого русского писателя Михаила Салтыкова-Щедрина. Это понятный в любом уголке Земли роман о человеке как существе общественном, о человеке во власти, об отношениях власти и народа. Это роман о нашем мироустройстве, о его опорах и его безднах. Создавая город Глупов, (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: 1С-Паблишинг, ООО «Ардис-Консалт»Продолжительность: 10:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE15051C5A6F299CA9698C885D8E3B0BF70C6701
 ```
 
 https://mybot314.ru/tekegram_catalog/

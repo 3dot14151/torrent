@@ -6,7 +6,7 @@ Astute Graphics Plugins Elite Bundle v2.0.2 + Pro Texture Packs for Adobe™ Ill
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884747.jpg" />
+  <img src="Z:/picture/005/save_picture_884747.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ r.roo - erroor (2016) [FLAC|Lossless|WEB-DL-24Bit|tracks] <IDM, Downtempo, Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884716.jpg" />
+  <img src="Z:/picture/005/save_picture_884716.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Shockone - In This Light EP (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884715.jpg" />
+  <img src="Z:/picture/005/save_picture_884715.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Intelligent Manners & Command Strange - Joy LP (2016) [MP3|320 кб/с] <Drum & 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884714.jpg" />
+  <img src="Z:/picture/005/save_picture_884714.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Pleq - Kingdom Hall (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884713.jpg" />
+  <img src="Z:/picture/005/save_picture_884713.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Eastcolors, & Nami & Mailky & Detail & Tiiu - Times / Bounce / Delusion (2016) [
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884702.jpg" />
+  <img src="Z:/picture/005/save_picture_884702.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Malwarebytes AdwCleaner 8.0.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884681.jpg" />
+  <img src="Z:/picture/005/save_picture_884681.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ Wallpapers - Stance Nation [JPEG]
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884636.jpg" />
+  <img src="Z:/picture/005/save_picture_884636.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Synthi A - Ignition of the Sun (2016) FSOL [FLAC|Lossless|WEB-DL|tracks] <Experi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884624.jpg" />
+  <img src="Z:/picture/005/save_picture_884624.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884620.jpg" />
+  <img src="Z:/picture/005/save_picture_884620.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ VA - Spectre • Decade - Anniversary Compilation 1996 - 2006 (2006) [FLAC|Lossl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884613.jpg" />
+  <img src="Z:/picture/005/save_picture_884613.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Zomboy - Neon Grave EP (2016) [MP3|320 кб/с] <Dubstep, Trap>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884610.jpg" />
+  <img src="Z:/picture/005/save_picture_884610.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ Dub Killer - Abyss (2016) [MP3|320 кб/с] <Dubstep>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884609.jpg" />
+  <img src="Z:/picture/005/save_picture_884609.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ USDownloader 1.3.5.9 Portable (11.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884608.jpg" />
+  <img src="Z:/picture/005/save_picture_884608.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884607.jpg" />
+  <img src="Z:/picture/005/save_picture_884607.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ EtreCheck Pro 6.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884567.jpg" />
+  <img src="Z:/picture/005/save_picture_884567.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Music Tag Editor 5.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884536.jpg" />
+  <img src="Z:/picture/005/save_picture_884536.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Text Scanner Pro - PDF & Document 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884530.jpg" />
+  <img src="Z:/picture/005/save_picture_884530.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884507.jpg" />
+  <img src="Z:/picture/005/save_picture_884507.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ oCam Screen Recorder 240.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884506.jpg" />
+  <img src="Z:/picture/005/save_picture_884506.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Mozilla Firefox 45.0 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884504.jpg" />
+  <img src="Z:/picture/005/save_picture_884504.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Boxshot Ultimate 4.10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884503.jpg" />
+  <img src="Z:/picture/005/save_picture_884503.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884498.jpg" />
+  <img src="Z:/picture/005/save_picture_884498.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Run DMC - Raising Hell (1986) [FLAC|Lossless|tracks + .cue] <Hip Hop, Old School
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884496.jpg" />
+  <img src="Z:/picture/005/save_picture_884496.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Ashampoo Snap 8.0.9 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884495.jpg" />
+  <img src="Z:/picture/005/save_picture_884495.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Aspect Ratio X 2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884466.jpg" />
+  <img src="Z:/picture/005/save_picture_884466.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 554460   (436131) от 01.10.2012
+
+38-я параллель / Taegeukgi hwinalrimyeo / Tae Guk Gi: The Brotherhood of War (2004) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_436131.jpg" />
+</div>
+
+
+###  Подробнее
+
+На фоне трагических событий корейской войны 1950—53 годов — самой кровопролитной после окончания Второй мировой, показана судьба одной семьи. Мирное благополучие, счастливые ожидания, мечты и надежды рушатся в единый миг, когда страну охватывает хаос и ужас войны. Под грохот танков, свист пуль и разрывы бомб главный герой фильма Джин-тае пытается спасти своих близких, (   Читать дальше...   )Производство: Корея ЮжнаяЖанр: Боевик, Драма, Военный, ИсторическийРежиссер: Чже-Гю КенгАктеры: Чан Дон Гон, Бин Вон, Юн-чу Ли, Хен-чжин Конг, Ён-ран Ли, Кил-Канг Ан, Джо Каппеллетти, Мин-Сик Чои, Д.С. Дуглас, Мин-хо ЧанПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 02:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC56E889F2D7817D62CDD69632D9F5A7F8D1BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 554126   (436128) от 01.10.2012
 
 Клятва / Wu ji (2005) HDRip
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436128.jpg" />
+  <img src="Z:/picture/008/save_picture_436128.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436079.jpg" />
+  <img src="Z:/picture/008/save_picture_436079.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435966.jpg" />
+  <img src="Z:/picture/008/save_picture_435966.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433736.jpg" />
+  <img src="Z:/picture/008/save_picture_433736.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433630.jpg" />
+  <img src="Z:/picture/008/save_picture_433630.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433622.jpg" />
+  <img src="Z:/picture/008/save_picture_433622.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433468.jpg" />
+  <img src="Z:/picture/008/save_picture_433468.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433239.jpg" />
+  <img src="Z:/picture/008/save_picture_433239.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431734.jpg" />
+  <img src="Z:/picture/008/save_picture_431734.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431681.jpg" />
+  <img src="Z:/picture/008/save_picture_431681.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430219.jpg" />
+  <img src="Z:/picture/008/save_picture_430219.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427229.jpg" />
+  <img src="Z:/picture/008/save_picture_427229.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426256.jpg" />
+  <img src="Z:/picture/008/save_picture_426256.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425755.jpg" />
+  <img src="Z:/picture/008/save_picture_425755.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425384.jpg" />
+  <img src="Z:/picture/008/save_picture_425384.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424186.jpg" />
+  <img src="Z:/picture/008/save_picture_424186.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423812.jpg" />
+  <img src="Z:/picture/008/save_picture_423812.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423373.jpg" />
+  <img src="Z:/picture/008/save_picture_423373.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422757.jpg" />
+  <img src="Z:/picture/008/save_picture_422757.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422123.jpg" />
+  <img src="Z:/picture/008/save_picture_422123.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421049.jpg" />
+  <img src="Z:/picture/008/save_picture_421049.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420806.jpg" />
+  <img src="Z:/picture/008/save_picture_420806.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420302.jpg" />
+  <img src="Z:/picture/008/save_picture_420302.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420134.jpg" />
+  <img src="Z:/picture/008/save_picture_420134.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419317.jpg" />
+  <img src="Z:/picture/008/save_picture_419317.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8898CD03D49E4C6441F1AC8B1D5F3FE9A26780C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412419   (418190) от 29.09.2020
-
-Сезон дождей / Re dai yu / Wet Season (2019) HDRip [DVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лин преподает китайский в сингапурской старшей школе, где её предмет считается не слишком важным. Отношения с мужем ни к черту, брак разваливается из-за того, что Лин на протяжении многих лет так и не смогла зачать ребенка. Странная дружба с учеником помогает ей снова почувствовать себя женщиной.Производство: Сингапур, Тайвань, Giraffe Pictures, Hooq, RedianceЖанр: Драма, мелодрамаРежиссер: Энтони ЧэньАктеры: Ео Яннянн, Ко Цзяле, Кристофер Ли, Ян ШибиньПеревод: Двуголосый любительский (RealFake)Субтитры: Английские - отдельным файломПродолжительность: 01:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2052CECE660587E17274481CE88EA2708A051A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

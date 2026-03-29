@@ -1,3 +1,85 @@
+###  Публикация: 1201384   (792651) от 24.01.2018
+
+Кристоф Андре | Искусство и медитация. 24 урока, которые день за днем преображают жизнь (2018) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Открыв эту подарочную книгу, вы сразу же почувствуете, что вам предстоит волнительное и прекрасное путешествие. Автор книги Кристоф Андре работает психотерапевтом в Медицинском центре St. Anne в Париже и с помощью уникальной практики, созданной им самим, помогает людям избавиться от страданий, направляя их жизнь в чистое и мощное русло.
+
+Используя дыхание, тело и (   Читать дальше...   )Жанр: Зарубежная психология, Практическая эзотерика, Саморазвитие / личностный ростФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B489C5C8701B1A8C3C34EB371F26A0A59142DAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387163   (792519) от 31.05.2020
+
+Сьюзан Картер | Как завоевать его. Любовные стратегии и тактики (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена любовным отношениям. Почему вы не в состоянии вызвать ответные эмоции у того, кого хотите видеть своим партнером, или вызываете только отрицательные? Почему вас раздражает тот, кто вас любит? Вы уже думаете, что если любовь где-то существует, то вне пределов вашей досягаемости?
+Эта книга написана для того, чтобы помочь вам стать счастливыми – (   Читать дальше...   )Жанр: Семейная психология, Саморазвитие, Личностный ростПеревод: Мария ЖуковаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C154FA176160367C297D8412F724343E41D6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387166   (792514) от 31.05.2020
+
+Оливия Вон | Как стать счастливыми. Формула благополучия (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Счастье – результат правильных действий. Правильные действия начинаются с правильных мыслей, а правильные мысли вызваны правильными действиями. Что же мы упускаем в этом круговороте и почему не можем стать счастливыми? Как достичь ежедневного хорошего настроения и полной удовлетворенности своей жизнью?
+Автор в деталях раскрывает секреты счастья, которые никакие вовсе (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: Мария ЖуковаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F97F6C08FE0866B9268605A68CB78EDA0A6B0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123375   (792327) от 07.04.2017
 
 Александр Бирюков | Анатомия любви и фальшивок (2014) [PDF]
@@ -6,7 +88,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792327.jpg" />
+  <img src="Z:/picture/008/save_picture_792327.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792326.jpg" />
+  <img src="Z:/picture/008/save_picture_792326.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792325.jpg" />
+  <img src="Z:/picture/008/save_picture_792325.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791508.jpg" />
+  <img src="Z:/picture/008/save_picture_791508.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791477.jpg" />
+  <img src="Z:/picture/008/save_picture_791477.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791374.jpg" />
+  <img src="Z:/picture/008/save_picture_791374.jpg" />
 </div>
 
 
@@ -164,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791189.jpg" />
+  <img src="Z:/picture/008/save_picture_791189.jpg" />
 </div>
 
 
@@ -190,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790015.jpg" />
+  <img src="Z:/picture/008/save_picture_790015.jpg" />
 </div>
 
 
@@ -217,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789724.jpg" />
+  <img src="Z:/picture/008/save_picture_789724.jpg" />
 </div>
 
 
@@ -243,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789669.jpg" />
+  <img src="Z:/picture/008/save_picture_789669.jpg" />
 </div>
 
 
@@ -271,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789321.jpg" />
+  <img src="Z:/picture/008/save_picture_789321.jpg" />
 </div>
 
 
@@ -299,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789319.jpg" />
+  <img src="Z:/picture/008/save_picture_789319.jpg" />
 </div>
 
 
@@ -325,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789297.jpg" />
+  <img src="Z:/picture/008/save_picture_789297.jpg" />
 </div>
 
 
@@ -351,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789266.jpg" />
+  <img src="Z:/picture/008/save_picture_789266.jpg" />
 </div>
 
 
@@ -377,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789161.jpg" />
+  <img src="Z:/picture/008/save_picture_789161.jpg" />
 </div>
 
 
@@ -405,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788885.jpg" />
+  <img src="Z:/picture/008/save_picture_788885.jpg" />
 </div>
 
 
@@ -432,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788699.jpg" />
+  <img src="Z:/picture/008/save_picture_788699.jpg" />
 </div>
 
 
@@ -460,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788602.jpg" />
+  <img src="Z:/picture/008/save_picture_788602.jpg" />
 </div>
 
 
@@ -486,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788591.jpg" />
+  <img src="Z:/picture/008/save_picture_788591.jpg" />
 </div>
 
 
@@ -514,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788581.jpg" />
+  <img src="Z:/picture/008/save_picture_788581.jpg" />
 </div>
 
 
@@ -540,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788078.jpg" />
+  <img src="Z:/picture/008/save_picture_788078.jpg" />
 </div>
 
 
@@ -567,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788072.jpg" />
+  <img src="Z:/picture/008/save_picture_788072.jpg" />
 </div>
 
 
@@ -596,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788037.jpg" />
+  <img src="Z:/picture/008/save_picture_788037.jpg" />
 </div>
 
 
@@ -609,84 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC587DD8F4846692B90102878B3EFC42BB642216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276586   (788027) от 16.01.2019
-
-Барбара Шер | Лучше поздно, чем никогда. Как начать новую жизнь в любом возрасте (2017) [PDF, EPUB, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проснуться, чувствуя себя молодым и бесстрашным, полным творческих сил, не беспокоясь о чужом мнении, точно зная, что хочешь сделать со своей жизнью, и с твёрдым намерением этим и заниматься? Звучит как несбыточная мечта, особенно если достиг того возраста, когда кажется, что время прекрасных возможностей подошло к концу, а будущее видится чем-то катящимся под уклон. (   Читать дальше...   )Жанр: зарубежная психология, личная эффективность, практическая психология, саморазвитие, личностный ростФормат: PDF, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3229F9F8F5772C9864BA4324AA426857A122DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203605   (787985) от 02.02.2018
-
-Йона Бергер | Скрытое влияние. Какие невидимые силы управляют нашими поступками (2017) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787985.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о том, какими простыми, незаметными и часто неожиданными для нас способами окружающие воздействуют на наше поведение, как социальное влияние способно помочь решить распространенные проблемы; когда лучше последовать за толпой; как увеличить свое влияние и как использовать эти идеи для налаживания более успешных и продуктивных социальных связей. (   Читать дальше...   )Жанр: Практическая психология, достижение успеха в жизниФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38CA35F821EB4CB5C2CD81493F9346EAC11D9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512061   (787817) от 23.11.2021
-
-Питер Лангман | Почему дети убивают. Что происходит в голове у школьного стрелка (2022) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787817.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце 1990-х годов массовое убийство в школе Колумбайн шокировало весь мир. С тех пор стрельба в школе стала своего рода эпидемией и давно вышла за границы США. Клинический психолог Питер Лангман проанализировал записи в блогах и дневниках, свидетельства одноклассников и учителей о школьных стрелках, чтобы попытаться ответить на вопрос: почему дети убивают?Жанр: Детская психология, Зарубежная психология, Криминалистика, Социальная психологияПеревод: С. А. КарповФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7104B967519E8F562726290552A3AACD4E04F709
 ```
 
 https://mybot314.ru/tekegram_catalog/

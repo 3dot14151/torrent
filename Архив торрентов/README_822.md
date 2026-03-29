@@ -6,7 +6,7 @@ Cocktail Big Sur Edition 14.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863070.jpg" />
+  <img src="Z:/picture/008/save_picture_863070.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera 79.0.4143.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863065.jpg" />
+  <img src="Z:/picture/008/save_picture_863065.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ K-Lite Codec Pack Update 16.4.7 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863063.jpg" />
+  <img src="Z:/picture/008/save_picture_863063.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Opera GX 79.0.4143.60 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863060.jpg" />
+  <img src="Z:/picture/008/save_picture_863060.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ ON1 Photo RAW 2022 v16.0.1.11137 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863056.jpg" />
+  <img src="Z:/picture/008/save_picture_863056.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Fingers In The Noise - 4 Days (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psy
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863054.jpg" />
+  <img src="Z:/picture/008/save_picture_863054.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Mozilla Firefox 46.0 beta 4 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863045.jpg" />
+  <img src="Z:/picture/008/save_picture_863045.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Forecast Bar 2.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863038.jpg" />
+  <img src="Z:/picture/008/save_picture_863038.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863005.jpg" />
+  <img src="Z:/picture/008/save_picture_863005.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863004.jpg" />
+  <img src="Z:/picture/008/save_picture_863004.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863003.jpg" />
+  <img src="Z:/picture/008/save_picture_863003.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Files Inspector Pro 3.10 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862981.jpg" />
+  <img src="Z:/picture/008/save_picture_862981.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Firefox Browser 92.0.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862978.jpg" />
+  <img src="Z:/picture/008/save_picture_862978.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Opera 79.0.4143.50 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862976.jpg" />
+  <img src="Z:/picture/008/save_picture_862976.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Mozilla FireFox 92.0.1.7935 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862973.jpg" />
+  <img src="Z:/picture/008/save_picture_862973.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ GIMP 2.10.28 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862969.jpg" />
+  <img src="Z:/picture/008/save_picture_862969.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Paint.NET 4.3 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862966.jpg" />
+  <img src="Z:/picture/008/save_picture_862966.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ AutoRuns 14.02 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862965.jpg" />
+  <img src="Z:/picture/008/save_picture_862965.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Sofian Rouge - Floating EP (2016) [MP3|320 кб/с] <Electronic, Downtempo, Synt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862960.jpg" />
+  <img src="Z:/picture/008/save_picture_862960.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862959.jpg" />
+  <img src="Z:/picture/008/save_picture_862959.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862957.jpg" />
+  <img src="Z:/picture/008/save_picture_862957.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ VideoGIF 2.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862953.jpg" />
+  <img src="Z:/picture/008/save_picture_862953.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Stefan Gubatz - Mono (2015) [MP3|320 кб/с] <Techno, Minimal, Acid, Experiment
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862948.jpg" />
+  <img src="Z:/picture/008/save_picture_862948.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Arian 1 -  CYRO  (EP) (2016) [MP3|320 кб/с] <EBM, Futurepop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862946.jpg" />
+  <img src="Z:/picture/008/save_picture_862946.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Chromodo Browser 48.12.18.248 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862944.jpg" />
+  <img src="Z:/picture/008/save_picture_862944.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Muffler - Serenity (2016) Single [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862943.jpg" />
+  <img src="Z:/picture/008/save_picture_862943.jpg" />
 </div>
 
 

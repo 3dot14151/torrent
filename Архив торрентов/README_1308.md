@@ -6,7 +6,7 @@ CodeLobster IDE 1.9.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760261.jpg" />
+  <img src="Z:/picture/008/save_picture_760261.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760260.jpg" />
+  <img src="Z:/picture/008/save_picture_760260.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Ashampoo Photo Optimizer 8.0.1.19 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760258.jpg" />
+  <img src="Z:/picture/008/save_picture_760258.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Master PDF Editor 5.6.09 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760257.jpg" />
+  <img src="Z:/picture/008/save_picture_760257.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MAGIX SOUND FORGE Audio Studio 14.0.75 (x86/x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760254.jpg" />
+  <img src="Z:/picture/008/save_picture_760254.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760246.jpg" />
+  <img src="Z:/picture/008/save_picture_760246.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760239.jpg" />
+  <img src="Z:/picture/008/save_picture_760239.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Wondershare Filmora 9.0.7.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760178.jpg" />
+  <img src="Z:/picture/008/save_picture_760178.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ BELOFF [dp] 2019.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760168.jpg" />
+  <img src="Z:/picture/008/save_picture_760168.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Adobe Muse CC 2014.3.2 Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760152.jpg" />
+  <img src="Z:/picture/008/save_picture_760152.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10056 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760151.jpg" />
+  <img src="Z:/picture/008/save_picture_760151.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.10056 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760150.jpg" />
+  <img src="Z:/picture/008/save_picture_760150.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Clonezilla Live (stable) 2.6.7.28 [i686, i686-pae, amd64] 3xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760106.jpg" />
+  <img src="Z:/picture/008/save_picture_760106.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760098.jpg" />
+  <img src="Z:/picture/008/save_picture_760098.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ AAct 3.9.9 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760047.jpg" />
+  <img src="Z:/picture/008/save_picture_760047.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760043.jpg" />
+  <img src="Z:/picture/008/save_picture_760043.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Kimi no Suizou wo Tabetai | I Want to Eat Your Pancreas | Я хочу съест
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760040.jpg" />
+  <img src="Z:/picture/008/save_picture_760040.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ HitmanPro 3.8.0 Build 295 (x64) RePack by Dickmaster [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760039.jpg" />
+  <img src="Z:/picture/008/save_picture_760039.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Zemana AntiMalware Premium 2.74.2.150 RePack by EnVyMe [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760037.jpg" />
+  <img src="Z:/picture/008/save_picture_760037.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Sweet Home 3D 6.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760035.jpg" />
+  <img src="Z:/picture/008/save_picture_760035.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759988.jpg" />
+  <img src="Z:/picture/008/save_picture_759988.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759985.jpg" />
+  <img src="Z:/picture/008/save_picture_759985.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759976.jpg" />
+  <img src="Z:/picture/008/save_picture_759976.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759973.jpg" />
+  <img src="Z:/picture/008/save_picture_759973.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759967.jpg" />
+  <img src="Z:/picture/008/save_picture_759967.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Adobe Premiere Pro 2020 (14.3.0.38) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759958.jpg" />
+  <img src="Z:/picture/008/save_picture_759958.jpg" />
 </div>
 
 

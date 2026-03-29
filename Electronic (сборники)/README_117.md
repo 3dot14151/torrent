@@ -1,3 +1,61 @@
+###  Публикация: 1152387   (567349) от 22.07.2017
+
+VA - The Best Of Halfstep [Compiled by ZeByte] (2017) [MP3|320 Kbps] <Halfstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Akov - Mirror Image (Feat Twitchee Cordz) [03:44]
+02. Qbig & Zenith B - Initiate (Dbr Uk Remix) [05:11]
+03. Eyeseeu - Paper Pusher [05:23]
+04. Insect - Waterbombs [05:01](   Читать дальше...   )Жанр: HalfstepПродолжительность: 03:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:542F5DA49917A1539607A5A23E8C6223E421FF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044198   (567288) от 19.08.2016
+
+VA - Summer Relax (2016) [MP3|320 Kbps] <Relax, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Deep Shelter - Space Base
+02 Xandra Silantye - 18 Memories
+03 Anri Kiria - Light Line
+04 Xandra Silantye - Soft Apocalypso(   Читать дальше...   )Жанр: Relax, Lounge, ChilloutПродолжительность: 06:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D3A29D8C10026159A0ACEA7C862725CAFF47CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152380   (567124) от 22.07.2017
 
 VA - Melodic Techno Tom II [Compiled by ZeByte] (2017) [MP3|320 Kbps] <Melodic Techno>
@@ -6,7 +64,7 @@ VA - Melodic Techno Tom II [Compiled by ZeByte] (2017) [MP3|320 Kbps] <Melodic T
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567124.jpg" />
+  <img src="Z:/picture/008/save_picture_567124.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Armin Van Buuren: A State Of Trance Ibiza (2016) [MP3|320 Kbps] <Trance,  P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567116.jpg" />
+  <img src="Z:/picture/008/save_picture_567116.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Impulse 6 - Так себе музычка для ржавых корыт (
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566978.jpg" />
+  <img src="Z:/picture/008/save_picture_566978.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Hits of My Soul Vol. 10 (2016) [MP3|320 кб/с]<House, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566794.jpg" />
+  <img src="Z:/picture/008/save_picture_566794.jpg" />
 </div>
 
 
@@ -125,7 +183,7 @@ VA - Trance Traveling 67 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566620.jpg" />
+  <img src="Z:/picture/008/save_picture_566620.jpg" />
 </div>
 
 
@@ -154,7 +212,7 @@ VA - Vocal Drum & Bass Temptation Vol 4 (2015) [MP3|320 кб/с]<Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566375.jpg" />
+  <img src="Z:/picture/008/save_picture_566375.jpg" />
 </div>
 
 
@@ -183,7 +241,7 @@ VA - A State Of Deep II (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Progressive 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565938.jpg" />
+  <img src="Z:/picture/008/save_picture_565938.jpg" />
 </div>
 
 
@@ -212,7 +270,7 @@ VA - Beatport Trance Pack (18.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565661.jpg" />
+  <img src="Z:/picture/008/save_picture_565661.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ VA - Hit Explosion Relaxing & Chillout (2016) [MP3|320 Kbps] <Downtempo, Chillou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565653.jpg" />
+  <img src="Z:/picture/008/save_picture_565653.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ VA - Whatpeopleplay Top 100 Topseller Tracks July (2016) [MP3|320 Kbps] <Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565551.jpg" />
+  <img src="Z:/picture/008/save_picture_565551.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ VA - In The Club (2016.2) (2016) [MP3|249~291 Kbps] <House, Electro House, Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565545.jpg" />
+  <img src="Z:/picture/008/save_picture_565545.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ VA - Deep House Collection Vol.85 (2016) [MP3|320 Kbps] <Deep House, Club House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565479.jpg" />
+  <img src="Z:/picture/008/save_picture_565479.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ VA - Impulse 5 (2017) [MP3|320 Kbps] <House, Trap, Chillout, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565396.jpg" />
+  <img src="Z:/picture/008/save_picture_565396.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ VA - Record Super Chart #495 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565392.jpg" />
+  <img src="Z:/picture/008/save_picture_565392.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ VA - Euphoric Essential Space Uplifting (2016) [MP3|320 Kbps] <Trance, Melodic, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565350.jpg" />
+  <img src="Z:/picture/008/save_picture_565350.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ VA - Bass Booster - Не По-Детски Давят Децибелы (2016) [M
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565330.jpg" />
+  <img src="Z:/picture/008/save_picture_565330.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ VA - Tropical Thunder House Massive (2016) [MP3|320 Kbps] <House, Electro House,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565167.jpg" />
+  <img src="Z:/picture/008/save_picture_565167.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ VA - Record Deep (2017) [MP3|320 Kbps] <House, Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565040.jpg" />
+  <img src="Z:/picture/008/save_picture_565040.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ VA - Record Super Chart 588 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564089.jpg" />
+  <img src="Z:/picture/008/save_picture_564089.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ VA - Minimal Lighters (2016) [MP3|320 Kbps] <House, Tech House, Deep House, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563710.jpg" />
+  <img src="Z:/picture/008/save_picture_563710.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ VA - Club Dance Ambience Vol.155 (2018) [MP3|320 Kbps] <House, Progressive House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563472.jpg" />
+  <img src="Z:/picture/008/save_picture_563472.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ VA - Самый Реальный Бит в Твоё Авто (2017) [MP3|320 Kbp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563149.jpg" />
+  <img src="Z:/picture/008/save_picture_563149.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ VA - Need For Speed Vol.8 (2017) [MP3|320 Kbps] <Hands Up, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563143.jpg" />
+  <img src="Z:/picture/008/save_picture_563143.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ VA - Ibiza Poolside (2015) [MP3|320 кб/с]<House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562856.jpg" />
+  <img src="Z:/picture/008/save_picture_562856.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ VA - Ibiza Poolside (2015) [MP3|320 кб/с]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B722208CF45FC5E57BB3A7DE12CF066C3A05FFD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923197   (562839) от 01.08.2015
-
-VA - Beautiful Jewels of Lounge Music (2015) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Mindfulness 05:51
-02. Cierra Ballester - Night and Day 05:26
-03. Gerald Peklar - Silent Night 04:54
-04. Kaxamalka - You Take My Breath Away 05:40(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 06:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E10323F1CCF69C3BB2F9010C706622BF3B2F88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044743   (562618) от 21.08.2016
-
-VA - Trance Collection Vol.50 (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562618.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren feat. Elles De Graaf  -  The Sound Of Goodbye (Sensetive5 Bootleg)  8:30
-002. Digital Constructive  -  Myth & Legend (Extended Mix)  5:36
-003. Heatbeat & Eric Lumiere  -  You've Got Me Now (Extended Club Mix)  6:14
-004. Fabio XB & Liuck Feat. Roxanne Emery  -  Nowhere To Be Found (Craig Connelly Remix)  6:23(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 10:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDDA346D74209A5AEEBAE0C7FF1D957A914E678
 ```
 
 https://mybot314.ru/tekegram_catalog/

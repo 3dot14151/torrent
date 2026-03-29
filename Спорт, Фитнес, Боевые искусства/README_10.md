@@ -1,3 +1,55 @@
+###  Публикация: 1083316   (533271) от 19.06.2022
+
+Арнольд Нельсон, Юко Кокконен | Анатомия упражнений на растяжку (2014) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533271.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Каждое упражнение сопровождается подробными инструкциями: как и когда его следует выполнять, какие группы мышц испытывают основную и второстепенную нагрузку и какие меры предосторожности надо соблюдать. А сводные таблицы в конце каждой главы помогут вам составить индивидуальную программу тренировок исходя из собственных потребностей.Жанр: Физическая подготовкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A2A2825E6BB24C3C973D1B089B46FEA3DCAF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134195   (533266) от 19.06.2022
+
+Дэниэл Ласерда | 2100 асан. Вся йога в одной книге (2017) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533266.jpg" />
+</div>
+
+
+###  Подробнее
+
+"2,100 асан. Вся йога в одной книге" – настоящий подарок для тех, кто готов каждый день открывать для себя новое в йоге. Здесь вы найдете асаны любой сложности и под любое настроение. Просто следуйте за своим сердцем и найдете то, что подойдет именно вам!Жанр: йогаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22540D2BB629EEBEF1CE729813B60B360F515A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239946   (533221) от 08.08.2018
 
 Уэйн Руни | Уэйн Руни. Автобиография (2018) [FB2]
@@ -6,7 +58,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533221.jpg" />
+  <img src="Z:/picture/008/save_picture_533221.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532244.jpg" />
+  <img src="Z:/picture/008/save_picture_532244.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531343.jpg" />
+  <img src="Z:/picture/008/save_picture_531343.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531325.jpg" />
+  <img src="Z:/picture/008/save_picture_531325.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531324.jpg" />
+  <img src="Z:/picture/008/save_picture_531324.jpg" />
 </div>
 
 
@@ -138,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527089.jpg" />
+  <img src="Z:/picture/008/save_picture_527089.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525087.jpg" />
+  <img src="Z:/picture/008/save_picture_525087.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523133.jpg" />
+  <img src="Z:/picture/008/save_picture_523133.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515564.jpg" />
+  <img src="Z:/picture/008/save_picture_515564.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514906.jpg" />
+  <img src="Z:/picture/008/save_picture_514906.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512817.jpg" />
+  <img src="Z:/picture/008/save_picture_512817.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511614.jpg" />
+  <img src="Z:/picture/008/save_picture_511614.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509864.jpg" />
+  <img src="Z:/picture/008/save_picture_509864.jpg" />
 </div>
 
 
@@ -354,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506904.jpg" />
+  <img src="Z:/picture/008/save_picture_506904.jpg" />
 </div>
 
 
@@ -380,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502013.jpg" />
+  <img src="Z:/picture/008/save_picture_502013.jpg" />
 </div>
 
 
@@ -412,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502003.jpg" />
+  <img src="Z:/picture/008/save_picture_502003.jpg" />
 </div>
 
 
@@ -438,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500987.jpg" />
+  <img src="Z:/picture/008/save_picture_500987.jpg" />
 </div>
 
 
@@ -466,7 +518,7 @@ Men's Fitness | Подборка книг для бодибилдера [2008 - 
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491065.jpg" />
+  <img src="Z:/picture/008/save_picture_491065.jpg" />
 </div>
 
 
@@ -493,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489800.jpg" />
+  <img src="Z:/picture/008/save_picture_489800.jpg" />
 </div>
 
 
@@ -520,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489797.jpg" />
+  <img src="Z:/picture/008/save_picture_489797.jpg" />
 </div>
 
 
@@ -547,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489548.jpg" />
+  <img src="Z:/picture/008/save_picture_489548.jpg" />
 </div>
 
 
@@ -573,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487718.jpg" />
+  <img src="Z:/picture/008/save_picture_487718.jpg" />
 </div>
 
 
@@ -600,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485917.jpg" />
+  <img src="Z:/picture/008/save_picture_485917.jpg" />
 </div>
 
 
@@ -627,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485911.jpg" />
+  <img src="Z:/picture/008/save_picture_485911.jpg" />
 </div>
 
 
@@ -639,60 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D620A10A419F5BACD3608E6306304F8EBF03B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159124   (485806) от 19.08.2017
-
-Миямото Мусаси, Такуан Сохо | Книга самурая (2013) [FB2, EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга знакомит вас с трактатами о боевых искусствах, которые были написаны двумя легендарными японцами XVII века, Такуаном Сохо и Миямото Мусаси.
-Такуан Сохо был дзэнским монахом, каллиграфом, художником, поэтом, садовником, мастером чайной церемонии и изобретателем рецепта квашения редиски, который носит его имя и популярен в Японии вплоть до настоящего времени. (   Читать дальше...   )Жанр: Боевые искусстваФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DC2F068F22992C53F1E5D11A00B7478D7DC671B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159118   (485689) от 19.08.2017
-
-А.А. Кадочников | Русский рукопашный бой по системе выживания (2004) [FB2, EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое рукопашный бой? В каких условиях обстановки он необходим, а при каких обстоятельствах он неизбежен? На каких дистанциях ведется? Каково психическое состояние человека в таком бою? Какие требования следует предъявлять к психологической подготовке воина? Наконец, кто же он — настоящий рукопашник?
-Ответы на поставленные вопросы читатель найдет в этой книге.Жанр: Спорт. СамооборонаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60AF4567F119E95957BFF43F8D1A37A97AB2404
 ```
 
 https://mybot314.ru/tekegram_catalog/

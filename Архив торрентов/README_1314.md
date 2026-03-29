@@ -6,7 +6,7 @@ VueScan Pro 9.7.73 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758524.jpg" />
+  <img src="Z:/picture/008/save_picture_758524.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Wise Data Recovery 4.12.214 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758522.jpg" />
+  <img src="Z:/picture/008/save_picture_758522.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SMPlayer 19.1.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758521.jpg" />
+  <img src="Z:/picture/008/save_picture_758521.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Windows 10 Manager 3.2.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758516.jpg" />
+  <img src="Z:/picture/008/save_picture_758516.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Wise Hotkey Pro 1.2.4.44 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758515.jpg" />
+  <img src="Z:/picture/008/save_picture_758515.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758510.jpg" />
+  <img src="Z:/picture/008/save_picture_758510.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MediaHuman YouTube Downloader 3.9.9.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758502.jpg" />
+  <img src="Z:/picture/008/save_picture_758502.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758453.jpg" />
+  <img src="Z:/picture/008/save_picture_758453.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Auslogics BoostSpeed Premium 7.9.0.0 DC 02.04.2015 RePack (& Portable) by Trovel
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758451.jpg" />
+  <img src="Z:/picture/008/save_picture_758451.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Microsoft Edge 97.0.1072.55 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758389.jpg" />
+  <img src="Z:/picture/008/save_picture_758389.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ CareUEyes 1.1.19.0 Portable by Joo Seng [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758381.jpg" />
+  <img src="Z:/picture/008/save_picture_758381.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758364.jpg" />
+  <img src="Z:/picture/008/save_picture_758364.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Ummy Video Downloader 1.10.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758360.jpg" />
+  <img src="Z:/picture/008/save_picture_758360.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ BBC. Horizon: Ад вулкана / Volcano Hell (2002) TVRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758359.jpg" />
+  <img src="Z:/picture/008/save_picture_758359.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ CloudMounter 3.4 (546) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758349.jpg" />
+  <img src="Z:/picture/008/save_picture_758349.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758345.jpg" />
+  <img src="Z:/picture/008/save_picture_758345.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10056 (x86) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758301.jpg" />
+  <img src="Z:/picture/008/save_picture_758301.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ DJ Flash - Effect (2011) [MP3|320 kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758290.jpg" />
+  <img src="Z:/picture/008/save_picture_758290.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758261.jpg" />
+  <img src="Z:/picture/008/save_picture_758261.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ LibreOffice 7.2.5.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758249.jpg" />
+  <img src="Z:/picture/008/save_picture_758249.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ WSCC (Windows System Control Center) 7.0.0.5 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758244.jpg" />
+  <img src="Z:/picture/005/save_picture_758244.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ MEmu 7.6.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758242.jpg" />
+  <img src="Z:/picture/008/save_picture_758242.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Krita 5.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758237.jpg" />
+  <img src="Z:/picture/008/save_picture_758237.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758234.jpg" />
+  <img src="Z:/picture/005/save_picture_758234.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Paste 2.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758230.jpg" />
+  <img src="Z:/picture/008/save_picture_758230.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Onsy - FREQ255 (2017) Schematic [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758229.jpg" />
+  <img src="Z:/picture/008/save_picture_758229.jpg" />
 </div>
 
 

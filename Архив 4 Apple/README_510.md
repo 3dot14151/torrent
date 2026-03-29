@@ -1,3 +1,107 @@
+###  Публикация: 1570814   (239667) от 19.08.2022
+
+TextMan 1.6.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239667.jpg" />
+</div>
+
+
+###  Подробнее
+
+С приложением TextMan вы избавитесь с рутиной работой по набору текста на веб-сайтах, в файлах формата PDF, изображениях или системных пользовательских интерфейсах. Просто выберите область экрана так же, как если бы вы делали снимок экрана, и найдите весь распознанный текст в буфере обмена, готовый для вставки куда угодно.Тип издания: macOS SoftwareРелиз состоялся: 18.08.2022Разработчик: © 2022 KF Interactive GmbHПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C279881FC39EC5A72B60C630AAE80763A00A5702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570874   (239661) от 19.08.2022
+
+Brightly Pro 2.1.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Brightly Pro разработано для macOS Monterey с интуитивно понятным интерфейсом, в котором есть все функции редактирования фотографий, какие вы ожидаете, чтобы показать ваши фотографии и видео в лучшем свете, и изначально работает на компьютерах Mac с процессором Apple M1. Поднимите редактирование на новый уровень с помощью обязательных профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.08.2022Разработчик: © 2022 Code Organa LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5D681967C05A2E4A2B1A70FF7A98FA32FC1136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570816   (239654) от 19.08.2022
+
+Valentina Studio Pro 12.5.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 12.08.2022Разработчик: 2001 - 2022 Paradigma SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3A03CB3B1B0728ED982959BACD21FF965E37DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621771   (239644) от 26.03.2023
+
+SponsorBlock for YouTube 5.2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239644.jpg" />
+</div>
+
+
+###  Подробнее
+
+SponsorBlock — это краудсорсинговое расширение для браузера, которое позволяет любому указать время начала и окончания спонсируемых сегментов и других сегментов видео на YouTube. SponsorBlock позволяет пропускать рекламу спонсоров, вступления, концовки, напоминания о подписке и другие раздражающие части видео на YouTube.  Как только один человек отправит эту информацию, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.02.2023Разработчик: © SponsorBlock Contributors Under LGPL-3.0Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11EB605A56F7469B0AB80DBE243AF7AC7688B32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467622   (239636) от 04.05.2021
 
 Blocs 4.2.0 [En]
@@ -6,7 +110,7 @@ Blocs 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239636.jpg" />
+  <img src="Z:/picture/004/save_picture_239636.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ PowerPhotos 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239617.jpg" />
+  <img src="Z:/picture/004/save_picture_239617.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Yate 6.4.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239607.jpg" />
+  <img src="Z:/picture/004/save_picture_239607.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ GraphicConverter 11 v11.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239604.jpg" />
+  <img src="Z:/picture/004/save_picture_239604.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ Cinemagraph Pro 2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239592.jpg" />
+  <img src="Z:/picture/004/save_picture_239592.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ DirEqual 4.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239583.jpg" />
+  <img src="Z:/picture/004/save_picture_239583.jpg" />
 </div>
 
 
@@ -166,7 +270,7 @@ System Toolkit 5.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239572.jpg" />
+  <img src="Z:/picture/004/save_picture_239572.jpg" />
 </div>
 
 
@@ -192,7 +296,7 @@ Meta 2.1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239564.jpg" />
+  <img src="Z:/picture/004/save_picture_239564.jpg" />
 </div>
 
 
@@ -219,7 +323,7 @@ Alfred 4 Powerpack 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239563.jpg" />
+  <img src="Z:/picture/004/save_picture_239563.jpg" />
 </div>
 
 
@@ -247,7 +351,7 @@ Money Pro - Personal Finance 2.8.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239560.jpg" />
+  <img src="Z:/picture/004/save_picture_239560.jpg" />
 </div>
 
 
@@ -274,7 +378,7 @@ Downcast 2.11.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239555.jpg" />
+  <img src="Z:/picture/004/save_picture_239555.jpg" />
 </div>
 
 
@@ -301,7 +405,7 @@ EazyDraw 10.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239553.jpg" />
+  <img src="Z:/picture/004/save_picture_239553.jpg" />
 </div>
 
 
@@ -327,7 +431,7 @@ Infuse PRO 7.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239548.jpg" />
+  <img src="Z:/picture/004/save_picture_239548.jpg" />
 </div>
 
 
@@ -353,7 +457,7 @@ GraphicConverter 11 v.11.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239546.jpg" />
+  <img src="Z:/picture/004/save_picture_239546.jpg" />
 </div>
 
 
@@ -379,7 +483,7 @@ SideNotes 1.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239545.jpg" />
+  <img src="Z:/picture/004/save_picture_239545.jpg" />
 </div>
 
 
@@ -405,7 +509,7 @@ DMG Canvas 3.0.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239537.jpg" />
+  <img src="Z:/picture/004/save_picture_239537.jpg" />
 </div>
 
 
@@ -431,7 +535,7 @@ SiteSucker 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239535.jpg" />
+  <img src="Z:/picture/004/save_picture_239535.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ AI Transcription 1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239530.jpg" />
+  <img src="Z:/picture/004/save_picture_239530.jpg" />
 </div>
 
 
@@ -484,7 +588,7 @@ Mp3tag 1.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239528.jpg" />
+  <img src="Z:/picture/004/save_picture_239528.jpg" />
 </div>
 
 
@@ -510,7 +614,7 @@ PrefEdit 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239526.jpg" />
+  <img src="Z:/picture/004/save_picture_239526.jpg" />
 </div>
 
 
@@ -537,7 +641,7 @@ Dropzone 4 Pro v.4.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239515.jpg" />
+  <img src="Z:/picture/004/save_picture_239515.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ DB-Text 1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239511.jpg" />
+  <img src="Z:/picture/004/save_picture_239511.jpg" />
 </div>
 
 
@@ -577,113 +681,6 @@ DB-Text 1.11 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1129692D0A3C90ADA8B3E514902B69A72737A9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573042   (239509) от 29.08.2022
-
-Yoink 3.6.83 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yoink представляет собой посредника, который позволяет упростить доступность файлов. После установки приложения в левой части экрана появляется панель Yoink. Теперь если необходимо переместить файл с одного стола в окно открытое на другом, можно просто перетащить его в панель Yoink. Соответственно не перейдя на другой рабочий стол, просто перетягиваем файл из панели. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.08.2022Разработчик: © 2011-2022, Eternal Storms SoftwareПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED2DF1F92F39A51624AC41212DAC12DD13F4456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573016   (239503) от 29.08.2022
-
-RAW Power 3.4.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
-Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2022Разработчик: © 2021 Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B157E30147BA96335F00DA24F85BD8BAF7EDE7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423568   (239498) от 13.11.2020
-
-Storyist 4 v4.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Storyist для Mac OS - является мощной средой для работы писателей и сценаристов, которую по достоинству оценят как профессиональные писатели, так и те, для кого написание историй - просто хобби. Storyist включает в себя текстовый редактор, заметки, планировщик, конвертер в epub и Kindle и пр. Программа поможет организовать и упорядочить все части вашей истории. Ведь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.2020Разработчик: Storyist Software LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDE9FA7F2384ADCFD8304F1412C2A5606099AAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472630   (239494) от 26.05.2021
-
-Magic Sort List 3.3.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239494.jpg" />
-</div>
-
-
-###  Подробнее
-
-У вас есть список чего-либо, который не отсортирован и не имеет таблицы, но готовой к его сортировке? Не отчаивайтесь, Magic Sort List поможет вам в этом.
-Magic Sort List поставляется с нашим революционным механизмом сортировки, который мы усовершенствовали и доработали за прошедшие годы.
-Другое приложение для данных целей хорошо сортирует алфавитный список, но не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2021Разработчик: Complete Magic AppsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD6CB72EE33BF7367FEC231EC71007945128EE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

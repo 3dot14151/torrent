@@ -6,7 +6,7 @@ Hitman Trilogy HD (2013) [PS3] [USA] 4.21 [Cobra ODE / E3 ODE PRO ISO] [Unoffici
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867493.jpg" />
+  <img src="Z:/picture/008/save_picture_867493.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Alien Shooter (2016) [PS3] [EUR] 4.21+ CFW [Repack] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867410.jpg" />
+  <img src="Z:/picture/008/save_picture_867410.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Call of Duty: Advanced Warfare (2014) [Xbox360] [RegionFree] 16537 [FreeBoot] [L
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867405.jpg" />
+  <img src="Z:/picture/008/save_picture_867405.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Spore Hero [Wii] [PAL] [Multi 7] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866836.jpg" />
+  <img src="Z:/picture/008/save_picture_866836.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Culdcept DS  (2008) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865708.jpg" />
+  <img src="Z:/picture/008/save_picture_865708.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Sam & Max: Season Two (Beyond Time and Space) [Wii] [PAL] [Multi 5] (2010)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865430.jpg" />
+  <img src="Z:/picture/008/save_picture_865430.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Just Dance 3 (2011) [PS3] [EUR] 3.73 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865157.jpg" />
+  <img src="Z:/picture/008/save_picture_865157.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865124.jpg" />
+  <img src="Z:/picture/008/save_picture_865124.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865120.jpg" />
+  <img src="Z:/picture/008/save_picture_865120.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Just Dance 4 (2012) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO ISO] [License] [Mul
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865088.jpg" />
+  <img src="Z:/picture/008/save_picture_865088.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Gravity Rush (2012) [PSVita] [USA] 3.60 [HENkaku] [Unofficial] [Ru]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863673.jpg" />
+  <img src="Z:/picture/008/save_picture_863673.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Let's Dance with Mel B (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO ISO] [Lic
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863363.jpg" />
+  <img src="Z:/picture/008/save_picture_863363.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Ace Attorney Investigations 2: Miles Edgeworth: Prosecutor's Path (2011) [NDS] [
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862141.jpg" />
+  <img src="Z:/picture/008/save_picture_862141.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Sega Bass Fishing (2011) [PS3] [EUR] 4.21 [PSN] [Multi] [MOVE]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862026.jpg" />
+  <img src="Z:/picture/008/save_picture_862026.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Furu Furu Park [Wii] [NTSC-U] [English] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861656.jpg" />
+  <img src="Z:/picture/008/save_picture_861656.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Left 4 Dead: Dilogy (2008 - 2009) [Xbox360] [RegionFree] 7371 - 8507 [Freeboot] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860405.jpg" />
+  <img src="Z:/picture/008/save_picture_860405.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Fallout 3 (2008) [PS3] [EUR] 2.60 [License / 5 DLC] [Ru] | HiddenEX-PS3
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860299.jpg" />
+  <img src="Z:/picture/008/save_picture_860299.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Fallout 3: Game of the Year Edition (2008) [PS3] [EUR] 4.21+ [Repack / ALL DLC] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860285.jpg" />
+  <img src="Z:/picture/008/save_picture_860285.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Fire Emblem: Heroes of Light and Shadow (2010) [NDS] [JPN] [Unofficial] [En]
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860191.jpg" />
+  <img src="Z:/picture/008/save_picture_860191.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ MySims Kingdom [Wii] [PAL] [Multi 9] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859617.jpg" />
+  <img src="Z:/picture/008/save_picture_859617.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ LittleBigPlanet 2 / Little Big Planet 2 [PS3] [EUR] [Multi16] [3.50] [3k3y / Cob
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859514.jpg" />
+  <img src="Z:/picture/008/save_picture_859514.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Dragon's Dogma (2012) [PS3] [EUR] 4.11  [Cobra ODE / E3 ODE PRO ISO] [License] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856966.jpg" />
+  <img src="Z:/picture/008/save_picture_856966.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Trauma Center: Second Opinion [Wii] [PAL] [Multi 5] (2007)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856145.jpg" />
+  <img src="Z:/picture/008/save_picture_856145.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856102.jpg" />
+  <img src="Z:/picture/008/save_picture_856102.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Binary Domain (2012) [Xbox360] [RegionFree] 13599 [FreeBoot] [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855133.jpg" />
+  <img src="Z:/picture/008/save_picture_855133.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Ferrari Challenge [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854426.jpg" />
+  <img src="Z:/picture/008/save_picture_854426.jpg" />
 </div>
 
 

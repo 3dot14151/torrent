@@ -6,7 +6,7 @@ Hideous Divinity - Adveniens (2017) [MP3|320 Kbps] <Technical/Brutal Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718834.jpg" />
+  <img src="Z:/picture/008/save_picture_718834.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Metal Church - Classic Live (2017) [MP3|320 Kbps] <Heavy, Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718704.jpg" />
+  <img src="Z:/picture/008/save_picture_718704.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Astral Doors - Black Eyed Children (2017) [MP3|320 Kbps] <Heavy Metal, Power Met
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718617.jpg" />
+  <img src="Z:/picture/008/save_picture_718617.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Tormentor - Morbid Realization (2017) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718517.jpg" />
+  <img src="Z:/picture/008/save_picture_718517.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Wolfpakk - Wolves Reign (2017) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718506.jpg" />
+  <img src="Z:/picture/008/save_picture_718506.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ All That Remains - Madness (2017) [MP3|320 Kbps] <Metalcore, Melodic Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718431.jpg" />
+  <img src="Z:/picture/008/save_picture_718431.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Severoth - Solitude (2016) [MP3|320 кб/с] <Atmospheric Black Metal, Ambient>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718254.jpg" />
+  <img src="Z:/picture/008/save_picture_718254.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Torrent - Gods Of A Fallen Empire (2016) [MP3|320 кб/с] <Melodic Death Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718060.jpg" />
+  <img src="Z:/picture/008/save_picture_718060.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Opeth - 13 Albums, 2 Live (1995-2016) [MP3|320 Kbps] <Progressive Death Metal, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717396.jpg" />
+  <img src="Z:/picture/008/save_picture_717396.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Crematory - Oblivion (2018) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717293.jpg" />
+  <img src="Z:/picture/008/save_picture_717293.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Mythra - Still Burning (2017) [MP3|320 Kbps] <NWOBHM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716661.jpg" />
+  <img src="Z:/picture/008/save_picture_716661.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ In Flames - I, The Mask (2019) [MP3|320 Kbps] <Modern Metal, Alt. Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716560.jpg" />
+  <img src="Z:/picture/008/save_picture_716560.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Bat - Wings Of Chains (2016) [MP3|320 кб/с] <Thrash Metal, Speed Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716214.jpg" />
+  <img src="Z:/picture/008/save_picture_716214.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Bloodywood - Rakshak (2022) [MP3|320 Kbps] <Nu-Metal, Modern Metal, Rap Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716167.jpg" />
+  <img src="Z:/picture/008/save_picture_716167.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Monument - Hair Of The Dog (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716128.jpg" />
+  <img src="Z:/picture/008/save_picture_716128.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Andy James - 6 альбомов (2005-2017) [MP3|320 Kbps] <Modern Metal, Shred,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715601.jpg" />
+  <img src="Z:/picture/008/save_picture_715601.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Batushka - Raskol (2020) EP [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715170.jpg" />
+  <img src="Z:/picture/008/save_picture_715170.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Lord Of The Lost - Swan Songs III (2020) [MP3|320 Kbps] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715005.jpg" />
+  <img src="Z:/picture/008/save_picture_715005.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ V1 - Armageddon - End Of The Beginning (2017) [MP3|320 Kbps] <NWOBHM>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714423.jpg" />
+  <img src="Z:/picture/008/save_picture_714423.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Vildhjarta - 6 альбомов (2007 - 2015) [MP3|192-320 Kbps] <ambient, math,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713899.jpg" />
+  <img src="Z:/picture/008/save_picture_713899.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Zero Mindset - 4 EP (2015-2020) [MP3|320 Kbps] <Nu Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713609.jpg" />
+  <img src="Z:/picture/008/save_picture_713609.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Good Tiger - Raised In A Doomsday Cult (2020) [MP3|320 Kbps] <Progressive Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713608.jpg" />
+  <img src="Z:/picture/008/save_picture_713608.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ DVSR (Devastator) - West Technique (2020) [MP3|320 Kbps] <Rap Metal, Progressive
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713514.jpg" />
+  <img src="Z:/picture/008/save_picture_713514.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Kiljin - Master Of Illusion (2020) [MP3|320 Kbps] <Heavy, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713506.jpg" />
+  <img src="Z:/picture/008/save_picture_713506.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Avatar - Hunter Gatherer (2020) [MP3|320 Kbps] <Modern Metal, Melodic Death Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713140.jpg" />
+  <img src="Z:/picture/008/save_picture_713140.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Noumena - Myrrys (2017) [MP3|320 Kbps] <Melodic Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712354.jpg" />
+  <img src="Z:/picture/008/save_picture_712354.jpg" />
 </div>
 
 

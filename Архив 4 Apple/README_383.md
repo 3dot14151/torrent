@@ -1,3 +1,116 @@
+###  Публикация: 1164130   (432926) от 13.09.2017
+
+Clipboard Manager 1.9.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_432926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менеджер истории буфера обмена для Mac.
+Сохраняет все, что вы копируете для последующего использования.
+
+Утилита позволяет: вставить или удалить контент с помощью жестов,  вставить содержимое прямо в текущее приложение, вставить текст с форматом или без него,  вставить последний контент по ярлыкам Cmd + 1 .. Cmd + 9. вставить, удалить  большое количество содержимого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.08.2017Разработчик: Jan ValtaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC14B70E2ED94BEC4150A159F5CDFB4FFCCBFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945592   (432784) от 10.10.2015
+
+Parallels Desktop for Mac Business Edition 11.0.2 [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_432784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallels Desktop для Mac - Самое быстрое, простое и мощное решение для запуска Windows-приложений на Mac без перезагрузки.
+С Parallels Desktop для Mac вы можете одновременно запускать приложения Windows и Mac OS X без перезагрузки, перетаскивать файлы между приложениями Windows и Mac, а также запускать приложения Windows из панели Mac Dock. Благодаря его высокой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 октября 2015Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.9.5+Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9598B1BFF62B7ECBAD7422E6647236650A1217C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165616   (432760) от 13.09.2017
+
+Forecast Bar - Weather, Radar and Alerts 3.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_432760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
+
+Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
+- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12 сентября 2017Разработчик: Higher Bar, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+* показания прогноза погоды можно сделать на русском (в настройках программы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9158F0D3CFB7E137C58A23327DF375697D91F8E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165614   (432759) от 13.09.2017
+
+AnyTrans 6.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_432759.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyTrans - Управляем своими файлами вместе с AnyTrans
+AnyTrans - файловый менеджер, который отвечает за перемещение файлов с персонального компьютера на устройство iOS. Для более легкого обучения пользования всеми функциями менеджера предусмотрен специальный режим легкого и быстрого обучения "iWizard", который последовательно проведет вас через необходимые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12 сентября 2017Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Испанский и др
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4088B97543F808DEBE081F0AD1ABC5F9BA22CCB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063694   (432685) от 17.10.2016
 
 Cookie 5.1.3 [Multi]
@@ -6,7 +119,7 @@ Cookie 5.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432685.jpg" />
+  <img src="Z:/picture/008/save_picture_432685.jpg" />
 </div>
 
 
@@ -35,7 +148,7 @@ Butler 4.1.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432533.jpg" />
+  <img src="Z:/picture/008/save_picture_432533.jpg" />
 </div>
 
 
@@ -62,7 +175,7 @@ iExplorer 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432469.jpg" />
+  <img src="Z:/picture/008/save_picture_432469.jpg" />
 </div>
 
 
@@ -90,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432383.jpg" />
+  <img src="Z:/picture/008/save_picture_432383.jpg" />
 </div>
 
 
@@ -118,7 +231,7 @@ Postico 1.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432382.jpg" />
+  <img src="Z:/picture/008/save_picture_432382.jpg" />
 </div>
 
 
@@ -147,7 +260,7 @@ Usher 1.1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432380.jpg" />
+  <img src="Z:/picture/008/save_picture_432380.jpg" />
 </div>
 
 
@@ -175,7 +288,7 @@ Macgo Mac Blu-ray Player Pro 3.2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432331.jpg" />
+  <img src="Z:/picture/008/save_picture_432331.jpg" />
 </div>
 
 
@@ -201,7 +314,7 @@ iLife '11 (2012-2013) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432183.jpg" />
+  <img src="Z:/picture/008/save_picture_432183.jpg" />
 </div>
 
 
@@ -227,7 +340,7 @@ iSkysoft iMedia Converter Deluxe 5.5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432157.jpg" />
+  <img src="Z:/picture/008/save_picture_432157.jpg" />
 </div>
 
 
@@ -255,7 +368,7 @@ GraphicConverter 11 v.11.6.3 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431846.jpg" />
+  <img src="Z:/picture/008/save_picture_431846.jpg" />
 </div>
 
 
@@ -281,7 +394,7 @@ Synalyze It! Pro 1.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431843.jpg" />
+  <img src="Z:/picture/008/save_picture_431843.jpg" />
 </div>
 
 
@@ -309,7 +422,7 @@ Nova 9.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431766.jpg" />
+  <img src="Z:/picture/008/save_picture_431766.jpg" />
 </div>
 
 
@@ -336,7 +449,7 @@ Wondershare PDFelement Pro OCR 9.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431756.jpg" />
+  <img src="Z:/picture/008/save_picture_431756.jpg" />
 </div>
 
 
@@ -362,7 +475,7 @@ NCH WavePad Audio Editor Pro 16.65 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431691.jpg" />
+  <img src="Z:/picture/008/save_picture_431691.jpg" />
 </div>
 
 
@@ -388,7 +501,7 @@ Wondershare Filmora Х 11.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431676.jpg" />
+  <img src="Z:/picture/008/save_picture_431676.jpg" />
 </div>
 
 
@@ -414,7 +527,7 @@ Tri-BACKUP Pro 9.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431460.jpg" />
+  <img src="Z:/picture/008/save_picture_431460.jpg" />
 </div>
 
 
@@ -440,7 +553,7 @@ Omni Recover 2.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431392.jpg" />
+  <img src="Z:/picture/008/save_picture_431392.jpg" />
 </div>
 
 
@@ -468,7 +581,7 @@ Feeder 3 v3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431391.jpg" />
+  <img src="Z:/picture/008/save_picture_431391.jpg" />
 </div>
 
 
@@ -496,7 +609,7 @@ IconJar 1.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431389.jpg" />
+  <img src="Z:/picture/008/save_picture_431389.jpg" />
 </div>
 
 
@@ -525,7 +638,7 @@ Network Radar 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431385.jpg" />
+  <img src="Z:/picture/008/save_picture_431385.jpg" />
 </div>
 
 
@@ -551,7 +664,7 @@ xScope 4 v4.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431379.jpg" />
+  <img src="Z:/picture/008/save_picture_431379.jpg" />
 </div>
 
 
@@ -577,7 +690,7 @@ Get Backup Pro 3.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431378.jpg" />
+  <img src="Z:/picture/008/save_picture_431378.jpg" />
 </div>
 
 
@@ -589,115 +702,6 @@ Get Backup работа по расписанию; возможность пол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22227D6B27F4934928C0D78FBE00B6FC8C9C7673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249865   (431201) от 25.09.2018
-
-Elmedia Video Player Pro 6.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431201.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
-
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: Eltima LLCПоддерживаемая ОС: MacOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F913457A67B63E35D69CB22C609DDCD192582B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249778   (431189) от 25.09.2018
-
-BlueHarvest 7.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431189.jpg" />
-</div>
-
-
-###  Подробнее
-
-BlueHarvest - утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
-
-Данная программа будет полезна для тех, кто любит включенную опцию показа скрытых и системных файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Ross TullochПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Испанский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E61101DEC7345B13FC1EAFBCD0BF778F29DAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249692   (431047) от 25.09.2018
-
-Winclone Pro 7 v7.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита Winclone 7. Или как проще всего клонировать Windows на Mac.
-По непонятным причинам стандартная Дисковая утилита не работает с Windows разделами на macOS: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D47F6FA2778122BB334A927677202770F7A655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249881   (431034) от 25.09.2018
-
-Paste 2.4.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работает – притаившись в фоном режиме системы и, следит за историей скопированных данных. Готов в любой момент предоставить на выбор нужный фрагмент из истории буфера обмена. Таким образом, упрощает работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить содержимое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: WirelessheadsПоддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA0C8ABAD14EC920FD789479E4D3B0ECF203303
 ```
 
 https://mybot314.ru/tekegram_catalog/

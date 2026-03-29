@@ -1,3 +1,163 @@
+###  Публикация: 1638942   (211622) от 12.06.2023
+
+Discovery: Махинаторы / Wheeler Dealers (2023) WEBRip [H.264/1080p] (сезон 18, серии 1-10 из 10) [AD]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет программы — покупка, реставрирование и перепродажа с выгодой, классического автомобиля (обычно авто конца 70-х, 80-х годов). Бюджет всегда ограничен, к примеру, в первом сезоне он составлял 1000 , во 2-м — 2000 , в 3-м — 3000 . Иногда Майк добивается разрешения продюсера на увеличение суммы для покупки эксклюзивных и редких авто.
+Майк покупает машину, передаёт (   Читать дальше...   )Производство: Великобритания, AttaBoy for Discovery ChannelЖанр: телепередача, реальное ТВУчастники: Майк Брюэр, Paul Brackley, Ant AnsteadПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:44:00 каждая серияРеклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD6D46AD8C97B270E114E27B6EEA13AE5904D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641842   (210645) от 24.06.2023
+
+Главная дорога (24.06.2023) WEB-DL [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самому или за деньги? Переезд страшнее пожара, но когда сталкиваются с таким испытанием, нужно решить сразу несколько важных вопросов, например — все сделать своими силами или заплатить профессионалам? Сколько на самом деле стоит переезд? Андрей Федорцов и Денис Юченков посчитали, как дешевле перевезти вещи, а заодно показали, как правильно их упаковать и безопасно (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A9F74FD6167FBE280DA1D61E892B435E9F8F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641806   (210631) от 24.06.2023
+
+Минтранс (24.06.2023) WEB-DL [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210631.jpg" />
+</div>
+
+
+###  Подробнее
+
+🔸 Закрытые категории. Как при обмене водительского удостоверения можно лишиться и стажа, и категории?
+🔸 Лайфхак: как совершать обгон на малолитражке?
+🔸 Правила обкатки. Всегда ли надо следовать инструкции? Что будет, если не делать обкатку автомобиля?
+🔸 Резина, воздух и давление. До какой поры можно накачивать колесо? Как ехать на (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C8E07D05C9C3D91684EDFFD5C71C3D080B13EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644991   (209449) от 09.07.2023
+
+History Channel. Детейлинг по-американски / Dirty Old Cars (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 20) [AD] (обновляемая)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209449.jpg" />
+</div>
+
+
+###  Подробнее
+
+По всей Америке под слоями пыли, плесени и грязи лежат забытые автомобили, которые годами ждут, чтобы кто-то пересмотрел их историю и дал им единственное, что им нужно, чтобы вернуться на дорогу: хорошую ванну.Производство: США, ITV America, A&E TELEVISION NETWORKS LLCЖанр: телепередача, автомобилиПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийПродолжительность: ~00:19:00 серияРеклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA760815CEFD348276D3FE9C7A55408A8EEEA3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645003   (209384) от 09.07.2023
+
+Вторая жизнь фургонов / Flippin` RVs (2014-2015) WEBRip [H.264/1080p] (сезон 1, серии 3-6, 8 из 12) [AD] (обновляемая)
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна и Джастин Скрибнер путешествуют по США в поисках старинных фургонов и трейлеров, а затем превращают их в роскошные дома на колесах, прежде чем продать их с прибылью.Производство: США, BCII Productions, MMXIV, SCRIPPS NETWORKS, LLCЖанр: телепередача, реальное ТВ, автомобилиЯзык озвучки: РусскийПродолжительность: ~00:40:00 серияРеклама: Присутствуют текстовые вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0029441C2B29758FB2D02DC8F92EFDF5966EA08E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577749   (207635) от 19.09.2022
+
+Гранд тур / The Grand Tour (2022) WEB-DLRip [H.265/2160p] (сезон 5, серии 1-1 из ?) AlexFilm
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207635.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Гранд Тур» — это автомобильное телешоу, созданное бывшими ведущими Top Gear — Джереми Кларксоном, Ричардом Хаммондом и Джеймсом Мэйем. Зрителей ждут автомобильные обзоры, приключeния по всему миру, встречи со знаменитостями и юмор, который является непременным атрибутом каждого выпуска.Производство: США, Великобритания / Amazon StudiosЖанр: Ток-шоу, АвтопередачаРежиссер: Фил Чурчуорд, Кит Линч Робинсон, Гэвин Уайтхед, Брайан КлейнАктеры: Джереми Кларксон, Ричард Хаммонд, Джеймс МэйПеревод: Многоголосый профессиональный (AlexFilm)Субтитры: MULTI (SRT)Продолжительность: 01:40:00 (одна серия)Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6EF33A20045F1A6D78AD338A84041D9AD94C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652616   (206430) от 12.08.2023
 
 Главная дорога (12.08.2023) WEB-DL [H.264/720p-LQ]
@@ -6,7 +166,7 @@
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206430.jpg" />
 </div>
 
 
@@ -35,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205358.jpg" />
 </div>
 
 
@@ -64,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204263.jpg" />
 </div>
 
 
@@ -93,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204144.jpg" />
 </div>
 
 
@@ -119,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203744.jpg" />
 </div>
 
 
@@ -145,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202429.jpg" />
 </div>
 
 
@@ -174,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202158.jpg" />
 </div>
 
 
@@ -202,7 +362,7 @@ GAC GS8: преимуществ и недостатки кроссовера и�
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202123.jpg" />
 </div>
 
 
@@ -231,7 +391,7 @@ Discovery: Быстрые и громкие / Fast N' Loud (2012-2020) HDTVRip [
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198077.jpg" />
 </div>
 
 
@@ -257,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197328.jpg" />
+  <img src="Z:/picture/004/save_picture_197328.jpg" />
 </div>
 
 
@@ -283,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197322.jpg" />
+  <img src="Z:/picture/004/save_picture_197322.jpg" />
 </div>
 
 
@@ -309,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196604.jpg" />
 </div>
 
 
@@ -335,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196488.jpg" />
 </div>
 
 
@@ -361,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196405.jpg" />
 </div>
 
 
@@ -387,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195101.jpg" />
 </div>
 
 
@@ -413,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193103.jpg" />
 </div>
 
 
@@ -442,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193058.jpg" />
 </div>
 
 
@@ -469,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192983.jpg" />
+  <img src="Z:/picture/004/save_picture_192983.jpg" />
 </div>
 
 
@@ -497,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192743.jpg" />
 </div>
 
 
@@ -525,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191421.jpg" />
 </div>
 
 
@@ -536,170 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8897A230A406E62D23BD072F5F5C3D5EFCE3E74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588592   (191385) от 05.11.2022
-
-Главная дорога (05.11.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотели, как лучше, но вышло сомнительно: по всей России на неосвещенных участках дорог устанавливают освещение на нерегулируемых пешеходных переходах. Казалось бы — благое дело, но освещать нужно правильно. Внимание водителя привлечет ярко освещенный переход, а яркий фонарь — ослепит! Андрей Федорцов и Денис Юченков проверили, насколько опасны резкие границы света (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0741FC9BE5AB2EC3F578389D05EC6D47B700A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588792   (191124) от 06.11.2022
-
-Первая передача на НТВ. Автомобильная передача (06.11.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хроническая неисправность автомобиля, дело о подбитой машине и кругосветное автопутешествие с собакой.Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21789ABEB126CD3BEBCB08A4307C0442F35E477F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658796   (190965) от 09.09.2023
-
-Главная дорога (09.09.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попытка водителя откупиться за выезд на встречку и поездка от столицы до Арзамаса без пробок.
-  18 нам уже: с «Главной дорогой» выросло уже целое поколение зрителей!
-  Выгодная жалоба: где и как можно подзаработать на сообщениях о нарушениях ПДД?
-  Куда смотрит палка, или Вспомнить всё: что означают жесты регулировщика.(   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB31D5856EE581118F06FF1178705E38323704B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658991   (190596) от 10.09.2023
-
-Первая передача на НТВ. Автомобильная передача (10.09.2023) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как таксистка защищает свой автомобиль от мошенника? Как сделку отличить от аферы? Курс финансовой безопасности автовладельцев.
- Куда и как теперь можно крепить видеорегистратор?
- Под Петербургом столкнулись две легковушки. Оба участника предъявляют претензии друг другу. Кто виноват в ДТП?
- Автовладельцы напуганы: неужели можно лишиться водительских прав едва выехав (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A615604FEF86F11FE42F1397DD5149BA1A2CC8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590241   (189439) от 12.11.2022
-
-Главная дорога (12.11.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шипы или липучка? Вечный спор каждую осень! Андрей Федорцов и Денис Юченков снова провели испытания на полигоне, чтобы проверить, какая резина более безопасна для российской зимы. Настоящая битва на льду — в этом выпуске.
-Берегите потомство: может ли подогрев сидений привести к бесплодию?
-Город стройных моряков и удивительных деликатесов: автопутешествие во Владивосток. (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C714C19CA7EF9E247BC4F8D05C1F2BB58BE6C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590337   (189167) от 13.11.2022
-
-Первая передача на НТВ. Автомобильная передача (13.11.2022) SATRip [H.264]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невыполненное задание главного инженера: небоевые потери на федеральной трассе. Ради чего погибли два сотрудника автопарка, а третий лишился ног? И почему работодатель не понес никакой ответственности? Стал подозреваемым, потом обвиняемым: почему свидетеля пытаются посадить на скамью подсудимых? Автомобильное одеяло для двигателя: как это работает?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EBECD8F6105465470069101A51B2CDDCB931057
 ```
 
 https://mybot314.ru/tekegram_catalog/

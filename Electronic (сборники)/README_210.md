@@ -1,3 +1,61 @@
+###  Публикация: 1697340   (118981) от 06.02.2024
+
+VA - Contact 2: People & Machines (2024) [MP3|320 Kbps] <Minimal, Tech House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriatique - Miracle - RUFUS DU SOL Remix (8:23)
+02. KASST - 2084 (7:52)
+03. Cristoph - I Will Find You (7:45)
+04. Armonica - Better With Time - Armonica Version (7:37)(   Читать дальше...   )Жанр: Minimal, Tech House, OtherПродолжительность: 07:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE2B977F16E3ED725CCFC6E60181EBBBF50A735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698282   (118307) от 10.02.2024
+
+VA - Compilation Electronic part 52 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamidshax - Amelia
+02. Afrasiab - Here is My Heart
+03. Kenzo - Life
+04. Davvi - Sun is Dark(   Читать дальше...   )Жанр: ElectronicПродолжительность: 05:18:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9383D33F8523AE0D32CD2EA5876BD42FBD77E8A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698786   (118130) от 11.02.2024
 
 VA - Compilation Electronic part 54 (2024) [MP3|320 Kbps] <Electronic>
@@ -6,7 +64,7 @@ VA - Compilation Electronic part 54 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118130.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Trance In Motion Vol.371 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117214.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Serene Vibrations: Deep House Mix (2024) [MP3|320 Kbps] <Deep, House, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116900.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Bassline Anthems (2024) [MP3|320 Kbps] <DnB, Bassline, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116881.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Electronic compilation part 56 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116874.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Electronic compilation part 57 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116045.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - 60 minutes. Old School Dance Music vol.23 (mixed by Dj V) (2024) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116021.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - D.Trance 105 (2024) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115713.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Record Super Chart 24.02.2024 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115582.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Electronic compilation part 58 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115340.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Deep House, Baby 7 (2024) [MP3|320 Kbps] <Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115247.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Electronic compilation part 59 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115213.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Temporal Tunes (2024) [MP3|320 Kbps] <Trance, Electro, Progressive>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114735.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Electronic compilation part 60 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114695.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Крутые пушки Весна 2024 [MP3|320 Kbps] <Club, Dance, Other>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114576.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Electronic compilation part 61 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114362.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Sterling Angel - Collection (2008-2023) [MP3|320 Kbps] <Downtempo, Chillout, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113582.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Trance In Motion Vol.373 (2024) [MP3|320 Kbps|image + .cue]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112648.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Dance Party Night (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112496.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Electronic compilation part 67 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112126.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Trance In Motion Vol.372 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112038.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Electronic compilation part 69 (2024) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111569.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Trance In Motion Vol.374 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110326.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Trance In Motion Vol.375 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110322.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Trance In Motion Vol.375 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F56372F29BC275DC4A0F8CC77B4F9EF143519F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726072   (108826) от 27.05.2024
-
-VA - Trance In Motion Vol.376 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davey Asprey - Let Me Dream (Extended Mix)
-02. Last Soldier & Hypersia Music Feat. NELLY TGM - Allianz (Extended Mix)
-03. Exolight & Suncatcher - Coral Blue (Extended Mix)
-04. Jon Mangan - Heartache (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37417023A92788D4933AD77EF8CDD27700E8762B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727306   (108523) от 02.06.2024
-
-VA - Electronic compilation part 83 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limora - Lucid
-02. Limora - Mona
-03. Limora - My Anabel
-04. Kasimoff - Next to You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9770BA7C2F23C065ACBDE25B76A85901C7F2C00F
 ```
 
 https://mybot314.ru/tekegram_catalog/

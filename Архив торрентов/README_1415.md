@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732433.jpg" />
+  <img src="Z:/picture/008/save_picture_732433.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Gemini 2: The Duplicate Finder 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732427.jpg" />
+  <img src="Z:/picture/008/save_picture_732427.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Kaspersky Total Security 2016 16.0.1.445 (c) MR1 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732418.jpg" />
+  <img src="Z:/picture/008/save_picture_732418.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ IObit Uninstaller Pro 5.4.0.118 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732417.jpg" />
+  <img src="Z:/picture/008/save_picture_732417.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732388.jpg" />
+  <img src="Z:/picture/008/save_picture_732388.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Kaspersky Anti-Virus 2016 16.0.1.445 (c) MR1 Final [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732384.jpg" />
+  <img src="Z:/picture/008/save_picture_732384.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732379.jpg" />
+  <img src="Z:/picture/008/save_picture_732379.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732313.jpg" />
+  <img src="Z:/picture/008/save_picture_732313.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732236.jpg" />
+  <img src="Z:/picture/008/save_picture_732236.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732235.jpg" />
+  <img src="Z:/picture/008/save_picture_732235.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732234.jpg" />
+  <img src="Z:/picture/008/save_picture_732234.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732232.jpg" />
+  <img src="Z:/picture/008/save_picture_732232.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Invisor Media File Inspector 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732229.jpg" />
+  <img src="Z:/picture/008/save_picture_732229.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ The Pixel Door - 4/4 (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Contemp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732226.jpg" />
+  <img src="Z:/picture/008/save_picture_732226.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Black Hole Trance Music 04-17 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732225.jpg" />
+  <img src="Z:/picture/008/save_picture_732225.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ TextSoap 8.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_732220.jpg" />
+  <img src="Z:/picture/005/save_picture_732220.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ TunesKit Apple Music Converter 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732217.jpg" />
+  <img src="Z:/picture/008/save_picture_732217.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732181.jpg" />
+  <img src="Z:/picture/008/save_picture_732181.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732180.jpg" />
+  <img src="Z:/picture/008/save_picture_732180.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732179.jpg" />
+  <img src="Z:/picture/008/save_picture_732179.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Forecast Bar 2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732177.jpg" />
+  <img src="Z:/picture/008/save_picture_732177.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Gas - Narkopop (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electronic, Neo Cl
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732174.jpg" />
+  <img src="Z:/picture/008/save_picture_732174.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Roger Creager - Surrender (2012) [FLAC|Lossless|tracks + .cue] <Country>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732172.jpg" />
+  <img src="Z:/picture/008/save_picture_732172.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ RAW Power 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732169.jpg" />
+  <img src="Z:/picture/008/save_picture_732169.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ Kite Compositor —  Animation and prototyping for macOS and iOS 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732165.jpg" />
+  <img src="Z:/picture/008/save_picture_732165.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Arthemis - Blood - Fury - Domination (2017) Japanese Edition [FLAC|Lossless|imag
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732164.jpg" />
+  <img src="Z:/picture/008/save_picture_732164.jpg" />
 </div>
 
 

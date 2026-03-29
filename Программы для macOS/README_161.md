@@ -1,3 +1,138 @@
+###  Публикация: 1518899   (153091) от 21.12.2021
+
+DupeZap 4.1.4 fix [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153091.jpg" />
+</div>
+
+
+###  Подробнее
+
+DupeZap (бывший DupeZap Plus) - утилита, позволяющая искать и удалять дубликаты файлов.
+С ее помощью можно найти одинаковые картинки, аудио записи, видео, приложение и другие файлы.
+
+Особенности(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: © 2021 Hyperbolic SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40BBB6AED107EA75AF827363D35344A624719AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518872   (152794) от 21.12.2021
+
+Xee 3.5.4 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xee³ - это оптимизированная и удобная программа для просмотра изображений и браузер. Xee³ полезен как более мощная замена для Preview или большинства других средств просмотра изображений, доступных в OS X. Это очень быстрое приложение и использует меньше памяти, чем большинство других инструментов для просмотра изображений. Утилита также использует OpenGL (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2021Разработчик: © 2021 MacPaw Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4D57E45FE69FD34D1E8D06E9EB12F465EB620D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601181   (152481) от 30.12.2022
+
+Color Palette from Image Pro 2.2.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Color Palette from Image - это приложение поможет вам создавать красивые естественные цветовые комбинации (цветовые палитры из изображения). Просто перетащите фотографию в окно приложения, чтобы создать новую цветовую схему.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2022Разработчик: © 2014 3bitlabПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D13EEABB016493D34F856B1DE20317045194ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271210   (152329) от 22.12.2018
+
+Live Home 3D Standart 3.5.1 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
+
+Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.12.2018Разработчик: Belight Software, Ltd.Поддерживаемая ОС: OS X 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD5BF6E2C0AA797CF3F83E19B9239DDB15E648D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347580   (152201) от 23.12.2019
+
+News Explorer 1.9.7 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152201.jpg" />
+</div>
+
+
+###  Подробнее
+
+News Explorer - инновационное приложение для чтения новостей, простое в использовании и написан исключительно для экосистемы Apple, с iCloud синхронизацией между iPhone, iPAD, iPod Touch, Mac, Apple Watch и Apple TV.Тип издания: macOS SoftwareРелиз состоялся: 08.11.2019Разработчик: BetamagicПоддерживаемая ОС: macOS 10.14 MojaveЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6703912DB2CB2DE84A7C483CF4F3BD41B576F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601264   (152050) от 30.12.2022
 
 AnyTrans for iOS 8.9.4 [Multi]
@@ -6,7 +141,7 @@ AnyTrans for iOS 8.9.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152050.jpg" />
 </div>
 
 
@@ -33,7 +168,7 @@ Movavi Video Editor Plus 15.1.0 [Multi/Ru]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151896.jpg" />
 </div>
 
 
@@ -59,7 +194,7 @@ Noise Reducer Pro 1.8 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151774.jpg" />
 </div>
 
 
@@ -85,7 +220,7 @@ AirFoil+Airfoil Satellite 5.10.0 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151764.jpg" />
 </div>
 
 
@@ -111,7 +246,7 @@ Pixelmator Pro 1.5.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151703.jpg" />
 </div>
 
 
@@ -139,7 +274,7 @@ ON1 Photo RAW 2020.6 v14.6.0.9837 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151641.jpg" />
 </div>
 
 
@@ -165,7 +300,7 @@ Note Studio 2.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151571.jpg" />
 </div>
 
 
@@ -193,7 +328,7 @@ Music Player for VK 3.0 [En/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151488.jpg" />
 </div>
 
 
@@ -222,7 +357,7 @@ Vectorize! 1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151361.jpg" />
 </div>
 
 
@@ -248,7 +383,7 @@ CloudMounter 3.11 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150984.jpg" />
 </div>
 
 
@@ -274,7 +409,7 @@ Davinci Resolve Studio 17.4.3 [Multi/Rus]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150288.jpg" />
 </div>
 
 
@@ -302,7 +437,7 @@ Memory Clean 2 1.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150084.jpg" />
 </div>
 
 
@@ -330,7 +465,7 @@ Gif Recorder - Record Your Screen 1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150026.jpg" />
 </div>
 
 
@@ -358,7 +493,7 @@ SuperPhoto 2.21 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149991.jpg" />
 </div>
 
 
@@ -387,7 +522,7 @@ CopyLess 1.8.11 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149934.jpg" />
 </div>
 
 
@@ -415,7 +550,7 @@ Desktopr - make wallpaper from any website 1.8 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149922.jpg" />
 </div>
 
 
@@ -444,7 +579,7 @@ GIF'ted 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149901.jpg" />
 </div>
 
 
@@ -470,7 +605,7 @@ Panorama 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149836.jpg" />
 </div>
 
 
@@ -496,7 +631,7 @@ balenaEtcher for macOS 1.7.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149772.jpg" />
 </div>
 
 
@@ -523,7 +658,7 @@ TouchRetouch for Mac 2.3.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149717.jpg" />
 </div>
 
 
@@ -552,7 +687,7 @@ Hopper Disassembler 4.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149389.jpg" />
 </div>
 
 
@@ -564,144 +699,6 @@ Hopper Disassembler  - дизассемблер для macOS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EEB941862D66BF9968FF2E22A611A0DC5C97168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347771   (148840) от 24.12.2019
-
-Curio Professional 13.1.1.4 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощных приложений для создания слайдов, презентаций и просто визуального оформления какой-то информации на OS X, на самом деле, не так много.
-
-Стандартный Keynote от Apple уступает по функциональности более продвинутому PowerPoint, но не все хотят пользоваться приложением Microsoft (хотя после недавнего апдейта iWork число таких пользователей подросло). Есть дорогущий, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Zengobi, Inc.Поддерживаемая ОС: macOS 10.13 High SierraЯзык интерфейса: Английский, немецкий, испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE1E7C8AA4F432BD94FA46D15B9D7BB638639CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347676   (148830) от 24.12.2019
-
-mirethMusic 4.4.3 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя простой способ копировать, конвертировать, записывать и воспроизводить MP3, WAV, незащищенные WMA, AAC, M4A, M4B, MP2, Ogg Vorbis, AIFF и midi на Mac OS. mirethMusic прост в использовании и включает в себя все функции, которые вам нужны, от конвертера, CD Ripper, CD Burner, Player, ID3 Tag Editor. Преобразование большинства форматов - MP3, WMA, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2019Разработчик: Mireth Technology CorporationПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B168845711D1313471A931BE514A997EA53DE327
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519469   (148573) от 24.12.2021
-
-Tweak and Tuneup 4.2.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tweak and Tuneup представляет собой набор мощных инструментов для повышения производительности вашего Mac. Эти инструменты включены в одно приложение и являются исключительными для обслуживания и повышения производительности.
-Вы не должны чистить вручную, чтобы сэкономить место на диске.Тип издания: macOS SoftwareРелиз состоялся: 24.12.2021Разработчик: © 2021 Systweak Software Private Ltd.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0EDFF4037B725DC1C5006F5DDBE99DBA83AA26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087097   (148528) от 26.12.2016
-
-Yummy FTP Watcher 2.2.12 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yummy FTP Watcher  - Эта программа позволит в автоматическом режиме загружать и скачивать файлы по FTP, а так же синхронизировать Мак с любым колличеством FTP/S + SFTP + WebDAV/S серверами. А так же следить за изменениями в выбранных каталогах.
-
-Yummy FTP Watcher гарантирует высокую надежность и скорость работы, а так же предоставляет пользователям такие полезные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 декабря 2016Разработчик: Yummy SoftwareПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921998667943CF96D3B2FFF3CB54380422820209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086937   (148463) от 26.12.2016
-
-Expressions 1.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Expressions это приложение, чтобы играть с регулярными выражениями. Легко и красиво.
-Полностью минималистичный, не отвлекающим пользовательский интерфейс. Темный и светлый режим. Шаблоны подсветки синтаксиса. Прекрасный просмотр на весь экран.
-
-Expressions поддерживает переключение между группами шаблонов, нажав Cmd + сдвиг {и Cmd + Shift +}. Копирование модели можно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2016Разработчик: ApptoriumПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C48E6022254B3F6B892AE2B46FA0CFD6F96525
 ```
 
 https://mybot314.ru/tekegram_catalog/

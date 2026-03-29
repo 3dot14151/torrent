@@ -1,3 +1,61 @@
+###  Публикация: 1217135   (743356) от 04.04.2018
+
+VA - Welcome To The 90s (Vol.2) (2018) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743356.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dream Squad - Flow With the Fantasy
+002. E-Type - Back in the Loop
+003. The Free - Born Crazy
+004. 2alive - Tell it to My Heart Tonight(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BE036E8E3B9DA0EABE825DC45CBE9127F07AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217327   (743112) от 04.04.2018
+
+VA - Танцевальный Рай - The Best 90s (2018) [MP3|320 Kbps] <Dance, Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743112.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. No Mercy - Missing
+002. Culture Beat - Got To Get It
+003. Modjo - Lady(Hear Me Tonight)
+004. Take Twice - It's True(   Читать дальше...   )Жанр: Dance, Disco, EurodanceПродолжительность: 06:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5753F6424787FA9C694283BF2B516CF57C4FB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217485   (742261) от 05.04.2018
 
 VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
@@ -6,7 +64,7 @@ VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742261.jpg" />
+  <img src="Z:/picture/008/save_picture_742261.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - German Top 100 Single Charts 17.07.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741367.jpg" />
+  <img src="Z:/picture/008/save_picture_741367.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Disco Charm: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741258.jpg" />
+  <img src="Z:/picture/008/save_picture_741258.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Топовая сотня весенняя. Версия № 2 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741121.jpg" />
+  <img src="Z:/picture/008/save_picture_741121.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Весенняя 100-ка популярных треков. Сборник
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741116.jpg" />
+  <img src="Z:/picture/008/save_picture_741116.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741011.jpg" />
+  <img src="Z:/picture/008/save_picture_741011.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - German Top 50 Official Dance Charts 15.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739788.jpg" />
+  <img src="Z:/picture/008/save_picture_739788.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Зима на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738089.jpg" />
+  <img src="Z:/picture/008/save_picture_738089.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - German Top 100 Single Charts 24.07.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736197.jpg" />
+  <img src="Z:/picture/008/save_picture_736197.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - German Top 100 Single Charts 28.01.2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735854.jpg" />
+  <img src="Z:/picture/008/save_picture_735854.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Лето на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735548.jpg" />
+  <img src="Z:/picture/008/save_picture_735548.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734941.jpg" />
+  <img src="Z:/picture/008/save_picture_734941.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Shazam Хит-парад Russia Top 100 Январь (2022) [MP3|320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734872.jpg" />
+  <img src="Z:/picture/005/save_picture_734872.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Pop Party (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733123.jpg" />
+  <img src="Z:/picture/005/save_picture_733123.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Pop Party 2 (2022) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732685.jpg" />
+  <img src="Z:/picture/008/save_picture_732685.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Pop Drive 2022 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732531.jpg" />
+  <img src="Z:/picture/008/save_picture_732531.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Весенняя танцевальная вечеринка выпуск �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732214.jpg" />
+  <img src="Z:/picture/008/save_picture_732214.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - German Top 50 Party Schlager Charts 18.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732151.jpg" />
+  <img src="Z:/picture/008/save_picture_732151.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - German Top 100 Single Charts 25.02.2019 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732061.jpg" />
+  <img src="Z:/picture/008/save_picture_732061.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Зарубежная Дискотека ХХ Века - 22 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732003.jpg" />
+  <img src="Z:/picture/008/save_picture_732003.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Зарубежная Дискотека ХХ Века - 23 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731913.jpg" />
+  <img src="Z:/picture/008/save_picture_731913.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Зарубежная Дискотека ХХ Века - 24 (2016) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731891.jpg" />
+  <img src="Z:/picture/008/save_picture_731891.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - MuviDance Russian Party Vol.1 (2014) (MuViTeam Compilation Promo) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731880.jpg" />
+  <img src="Z:/picture/008/save_picture_731880.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Cherry Laine - The Singles Collection (1977-1986) Vinyl 7",12" [MP3|320 Kbps] <E
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731509.jpg" />
+  <img src="Z:/picture/008/save_picture_731509.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Cherry Laine - The Singles Collection (1977-1986) Vinyl 7",12" [MP3|320 Kbps] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4658E567BDE89A19D9288521B561D0AD508F9ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529876   (731505) от 08.02.2022
-
-VA - Свежий Русский Хит от ALEXnROCK часть 9 (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731505.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2021 - 2022 год. Это 9я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Коста Лакоста - Звенит январская вьюга (Remix 2022)
-02. Orlove - Белым Небом Zuffer & Dj Simka Remix
-03. Газанфар Алиев - Как Тигрица Хищная
-04. Anna Asti - Феникс (Lavrushkin X Larichev Radio Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC6BCDB46E7CD76B26D2417C119D901B51DD435F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127753   (731149) от 22.04.2017
-
-VA - Сотка популярных весенних хитов версия № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731149.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Инфинити Feat. Гена Дудин - Воланчик 3:18
-002. Илья Гуров - Геолокация 3:14
-003. Егор Диких - Маэстро 3:55
-004. Владимир - Голливуд 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7B603CF98C64D994E059185CFFE8478918EE45
 ```
 
 https://mybot314.ru/tekegram_catalog/

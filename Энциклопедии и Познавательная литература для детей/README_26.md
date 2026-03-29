@@ -1,3 +1,59 @@
+###  Публикация: 726162   (340431) от 24.11.2013
+
+Детгиз | Глобус (1960) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340431.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Глобус» - ежегодные выпуски увеличенного формата, содержащие массу фотографий, карт, схем и рисунков.
+Всё это затрудняет перевод книг в электронный вид.
+Глобус - географический ежегодник для детей, содержит следующие разделы: "Страна, где ты живешь", "Природа - твой друг", "По всему свету", "Путешествия и исследования", "К далеким мирам", "Из истории географических открытий" и др.
+Познавательные книги, полезные в наше время, когда географию хорошо знают только учителя географии и Конюхов.Жанр: Детская литература, ЭнциклопедииФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1BF6655DADA191FBCDF4A99B6051FCD2E8F192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 726155   (340410) от 24.11.2013
+
+В. Азерников | Физика. Великие открытия (2000) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_340410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта энциклопедия рассказывает о великих открытиях в области физики, которым посвятили свою жизнь выдающиеся ученые. Она расширяет знания школьников по истории науки, поможет при работе над докладами и рефератами.
+Богатый иллюстративный материал демонстрирует действие законов физики и работу физических приборов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8E912ADA5937ECA263F0AAF02B8B6C6CC3D6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 726181   (340408) от 24.11.2013
 
 Детгиз | Глобус (1961) [DJVU]
@@ -6,7 +62,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340408.jpg" />
+  <img src="Z:/picture/008/save_picture_340408.jpg" />
 </div>
 
 
@@ -35,7 +91,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340288.jpg" />
+  <img src="Z:/picture/008/save_picture_340288.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340167.jpg" />
+  <img src="Z:/picture/008/save_picture_340167.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340012.jpg" />
+  <img src="Z:/picture/008/save_picture_340012.jpg" />
 </div>
 
 
@@ -116,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339999.jpg" />
+  <img src="Z:/picture/008/save_picture_339999.jpg" />
 </div>
 
 
@@ -144,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337847.jpg" />
+  <img src="Z:/picture/008/save_picture_337847.jpg" />
 </div>
 
 
@@ -173,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337731.jpg" />
+  <img src="Z:/picture/008/save_picture_337731.jpg" />
 </div>
 
 
@@ -204,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337588.jpg" />
+  <img src="Z:/picture/008/save_picture_337588.jpg" />
 </div>
 
 
@@ -230,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337576.jpg" />
+  <img src="Z:/picture/008/save_picture_337576.jpg" />
 </div>
 
 
@@ -256,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335655.jpg" />
+  <img src="Z:/picture/008/save_picture_335655.jpg" />
 </div>
 
 
@@ -282,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335555.jpg" />
+  <img src="Z:/picture/008/save_picture_335555.jpg" />
 </div>
 
 
@@ -311,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335431.jpg" />
+  <img src="Z:/picture/008/save_picture_335431.jpg" />
 </div>
 
 
@@ -337,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332327.jpg" />
+  <img src="Z:/picture/008/save_picture_332327.jpg" />
 </div>
 
 
@@ -363,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331348.jpg" />
+  <img src="Z:/picture/008/save_picture_331348.jpg" />
 </div>
 
 
@@ -391,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331283.jpg" />
+  <img src="Z:/picture/008/save_picture_331283.jpg" />
 </div>
 
 
@@ -417,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329305.jpg" />
+  <img src="Z:/picture/008/save_picture_329305.jpg" />
 </div>
 
 
@@ -444,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329249.jpg" />
+  <img src="Z:/picture/008/save_picture_329249.jpg" />
 </div>
 
 
@@ -470,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329216.jpg" />
+  <img src="Z:/picture/008/save_picture_329216.jpg" />
 </div>
 
 
@@ -496,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326604.jpg" />
+  <img src="Z:/picture/008/save_picture_326604.jpg" />
 </div>
 
 
@@ -523,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326545.jpg" />
+  <img src="Z:/picture/008/save_picture_326545.jpg" />
 </div>
 
 
@@ -549,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324832.jpg" />
+  <img src="Z:/picture/008/save_picture_324832.jpg" />
 </div>
 
 
@@ -575,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323702.jpg" />
+  <img src="Z:/picture/008/save_picture_323702.jpg" />
 </div>
 
 
@@ -601,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322243.jpg" />
+  <img src="Z:/picture/008/save_picture_322243.jpg" />
 </div>
 
 
@@ -627,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321927.jpg" />
+  <img src="Z:/picture/008/save_picture_321927.jpg" />
 </div>
 
 
@@ -638,58 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F28975DB354074CFF8A0CADFEE10A46986A8211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958932   (321627) от 22.11.2015
-
-Святослав Владимирович Сахарнов | По морям вокруг Земли. Детская морская энциклопедия. Части I - III [3 книги] (1976) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги о морях и океанах, об истории их открытия, о замечательных мореходах и флотоводцах, о том, как море служит человеку.Жанр: ЭнциклопедииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DE98CD4DC55BD8E80E4F7F6A1DD8BCE9770EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421470   (319697) от 04.11.2020
-
-Татьяна Степанова | Детская энциклопедия РОСМЭН. География (2014) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга открывает перед юными читателями удивительный мир очень древней и вечно молодой науки географии. Широте интересов современной географии, включающей и недра земли, и сушу, и Мировой океан, и процессы, проистекающие в атмосфере, животный и растительный мир, страны и народы, может позавидовать любая другая наука. И мало найдется областей знаний, где не пригодились (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937F7FA5BF328B64E7356A36B14B6BA20A8178B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

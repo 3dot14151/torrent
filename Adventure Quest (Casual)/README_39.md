@@ -6,7 +6,7 @@ The Seven Chambers / Семь Залов (2018) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458814.jpg" />
+  <img src="Z:/picture/008/save_picture_458814.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Secret Order 6: Bloodline / Тайный Орден 6: Кровные узы
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458772.jpg" />
+  <img src="Z:/picture/008/save_picture_458772.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Royal Detective 3: Legend of the Golem / Королевский детектив
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456605.jpg" />
+  <img src="Z:/picture/008/save_picture_456605.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Shadowplay 4: Harrowstead Mystery / Театр теней 4: Тайна Харр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454601.jpg" />
+  <img src="Z:/picture/008/save_picture_454601.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Midnight Calling: Anabel (2015) [En] Unofficial [Collector's Edition / Колл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453908.jpg" />
+  <img src="Z:/picture/008/save_picture_453908.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Paranormal State: Poison Spring (2013) [En/Multi] (1.0) License PROPHET [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453762.jpg" />
+  <img src="Z:/picture/008/save_picture_453762.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Witches Legacy 5: Slumbering Darkness / Наследие ведьм 5: Дрем�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452502.jpg" />
+  <img src="Z:/picture/008/save_picture_452502.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Witches Legacy 6: The Dark Throne / Наследие ведьм 6: Темный 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452491.jpg" />
+  <img src="Z:/picture/008/save_picture_452491.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition / Темные
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452348.jpg" />
+  <img src="Z:/picture/008/save_picture_452348.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Beholder (2016) [Ru/Multi] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452282.jpg" />
+  <img src="Z:/picture/008/save_picture_452282.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition / Темные
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452237.jpg" />
+  <img src="Z:/picture/008/save_picture_452237.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Haunted Manor 4: The Last Reunion / Призрачное поместье 4: П�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450716.jpg" />
+  <img src="Z:/picture/008/save_picture_450716.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450113.jpg" />
+  <img src="Z:/picture/008/save_picture_450113.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Lost Lands 3: The Golden Curse / Затерянные земли 3: Прокля
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449990.jpg" />
+  <img src="Z:/picture/008/save_picture_449990.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Stray Cat Crossing (2015) [En] (1.0) Repack ARMENIAC
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449128.jpg" />
+  <img src="Z:/picture/008/save_picture_449128.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mystical Riddles 2: Behind Doll Eyes / Мистические загадки 2: 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449110.jpg" />
+  <img src="Z:/picture/008/save_picture_449110.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Which [En] (RePack) 2010 | braindead1986
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447928.jpg" />
+  <img src="Z:/picture/008/save_picture_447928.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Five Nights at Freddy's: Sister Location (2016) [En] (1.02) Repack Other s
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447748.jpg" />
+  <img src="Z:/picture/008/save_picture_447748.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Labyrinths of the World 12: Hearts of the Planet / Лабиринты мира 1
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447130.jpg" />
+  <img src="Z:/picture/008/save_picture_447130.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Grim Tales 17: Guest From The Future (2019) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446172.jpg" />
+  <img src="Z:/picture/008/save_picture_446172.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Enchanted Kingdom 5: Descent of the Elders / Зачарованное корол
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446167.jpg" />
+  <img src="Z:/picture/008/save_picture_446167.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Dark Realm 3: Lord of the Winds / Темный мир 3: Властелин Ве
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445859.jpg" />
+  <img src="Z:/picture/008/save_picture_445859.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Great Unknown: Houdini's Castle. Collector's Edition / Тайны замка
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445604.jpg" />
+  <img src="Z:/picture/008/save_picture_445604.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Immortal Love 5: Kiss of the Night / Бессмертная любовь 5: По
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444309.jpg" />
+  <img src="Z:/picture/008/save_picture_444309.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Memoirs of Murder 3: Behind the Scenes (2019) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444182.jpg" />
+  <img src="Z:/picture/008/save_picture_444182.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Spirit of Revenge 2: Elizabeth's Secret / Месть духа 2: Королев�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443949.jpg" />
+  <img src="Z:/picture/008/save_picture_443949.jpg" />
 </div>
 
 

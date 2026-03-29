@@ -1,3 +1,109 @@
+###  Публикация: 1775795   (71391) от 28.01.2025
+
+Шрифты - Trois Mille [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Trois Mille впервые был представлен миру как дипломный проект TypeMedia Марка Руо в 2016 году, молва быстро разнеслась по миру. В области, где инновации происходят очень медленно, это было нечто особенное, нечто по-настоящему новое. Динамичное. Экспансивное. Явно французское. Первоначально вдохновленный великим современным мастером Роджером Экскоффоном, Trois (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFB7C7D1F9E03E6E0F47488A878034D3B1D92CCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775842   (71389) от 28.01.2025
+
+Шрифты - Historic Mystique – Modern Display Serif Typeface [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Historic Mystique — современный шрифт с засечками от Timelesstype.Co. Подходит для любых проектов, таких как: логотипы, проекты по брендингу, дизайн товаров для дома, упаковка продуктов, кружки, цитаты, плакаты, сумки для покупок, футболки, обложки книг, именные карточки, пригласительные билеты, поздравительные открытки, этикетки, фотографии, водяные знаки, специальные (   Читать дальше...   )Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F99A1E511E3BC1752A4D47CC3A3C57738342D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776216   (71363) от 30.01.2025
+
+Шрифты - Ruston Font Family [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ruston — шрифты Display Fonts с 6 стилями + дополнительными начертаниями и ширинами. Вдохновленные традиционной живописью знаков, они предлагают красоту, индивидуальность и долговечность. Старые знаки в частности обладают определенной выносливостью. Расписаны вручную с долговечностью, которая перевешивает их оригинальные коммерческие сообщения.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D8EF94473B3EA8DAB63F74AAC54C60BC3F6FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776154   (71354) от 30.01.2025
+
+Шрифты - New Elegant Stylish Luxury - Veslay [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vesley Serif Font, универсальный и стильный шрифт, сочетающий в себе ретро и современную эстетику. Этот шрифт идеально подходит для создания вечных логотипов, шикарного брендинга и элегантных редакционных макетов. Он предназначен для дизайнеров, предпринимателей и авторов, которые ценят смелость и минимализм.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52C101A2F5C8A61B2CB53FF558DDC1B6841AAC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776087   (71351) от 30.01.2025
 
 Шрифты - Entrance - Retro Rounded Serif [OTF, TTF,WOFF, WOFF2]
@@ -6,7 +112,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71351.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71348.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71076.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71074.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71047.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71046.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71032.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71020.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71014.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70996.jpg" />
 </div>
 
 
@@ -274,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70994.jpg" />
 </div>
 
 
@@ -300,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70976.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70974.jpg" />
 </div>
 
 
@@ -352,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70970.jpg" />
 </div>
 
 
@@ -378,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70957.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70951.jpg" />
 </div>
 
 
@@ -434,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70853.jpg" />
 </div>
 
 
@@ -462,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70851.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70837.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70828.jpg" />
 </div>
 
 
@@ -542,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70827.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70826.jpg" />
 </div>
 
 
@@ -581,112 +687,6 @@ Mayhart Windah от Denustudios, подходящий для любых прое
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15FEAE6A1837D1135A1B2F39FBA4C5B91C381B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778659   (70824) от 09.02.2025
-
-Шрифты - Agenda One [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Agenda — один из знаковых шрифтов девяностых. Обширное семейство было полностью переработано и перезапущено как Agenda One. Безупречный, гладкий гуманистический гротеск — это типографическое решение «все в одном» в размерах Regular, Condensed, Extra Condensed и Compressed, а также в начертаниях от Thin до Black. Хотя Agenda One предназначен для совместимости с оригинальным (   Читать дальше...   )Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638F059E06518561B6E7265C6C6854675FCF5388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778696   (70820) от 09.02.2025
-
-Шрифты - Bronco Bandit - Wild West Typeface [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Садитесь в седло и отправляйтесь на Дикий Запад с Bronco Bandit, смелым и резким шрифтом, вдохновленным суровым очарованием ковбоев, салунов и необузданной границы. Этот шрифт передает дух приключений и бунтарства с его отличительными острыми краями и вневременным дизайном. Благодаря своему незабываемому стилю и сильной индивидуальности, Bronco Bandit является лучшим (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5297EA64F1DF3E63051544609822946FC5B305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778709   (70818) от 09.02.2025
-
-Шрифты - MyFonts - Estandar [TTF, WOFF, WOFF2, EOT]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Estandar — это ретро- и винтажный шрифт без засечек для навигации, вдохновленный старыми сигнальными знаками в Центральном парке и Европе.
-
-Кириллица не поддерживается.Формат: TTF, WOFF, WOFF2, EOT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D225874D949A57E86611E1D4B307BEE85CA995A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778662   (70815) от 09.02.2025
-
-Шрифты - Hiruko Pro™ by HyperFluro [TTF, WOFF, WOFF2, EOT]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hiruko Pro — это совершенно новая, улучшенная версия нашего оригинального релиза 2008 года. Мы внесли множество улучшений в оригинальное семейство, которое теперь включает в себя множество перерисованных символов, улучшенный кернинг и 4 совершенно новых начертания, чтобы помочь придать всему семейству больше баланса. Hiruko Pro хорошо работает как в качестве заголовков, (   Читать дальше...   )Формат: TTF, WOFF, WOFF2, EOT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13EFAE6FED0F32EA4A83AD05B97C599FDCB144B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - French Connection EP (2006) [MP3|320 kbps] <Drum and Bass, Breacks>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886100.jpg" />
+  <img src="Z:/picture/005/save_picture_886100.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Kettel - Wingtip (2016) [MP3|320 кб/с] <IDM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886089.jpg" />
+  <img src="Z:/picture/005/save_picture_886089.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886079.jpg" />
+  <img src="Z:/picture/005/save_picture_886079.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Lil Wayne - I Am Not A Human Being II (2013) (Target Deluxe Edition) [MP3|320 к
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886076.jpg" />
+  <img src="Z:/picture/005/save_picture_886076.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Dropzone 4 Pro v4.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886068.jpg" />
+  <img src="Z:/picture/005/save_picture_886068.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Sync Folders Pro 4.4.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886065.jpg" />
+  <img src="Z:/picture/005/save_picture_886065.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ O&O Defrag Professional 19.5 Build 222 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886063.jpg" />
+  <img src="Z:/picture/005/save_picture_886063.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ BurnAware Free 14.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886046.jpg" />
+  <img src="Z:/picture/005/save_picture_886046.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Sensei 1.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886039.jpg" />
+  <img src="Z:/picture/005/save_picture_886039.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ VA - EDM Hits 2017 [MP3|320 Kbps] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886038.jpg" />
+  <img src="Z:/picture/005/save_picture_886038.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_886036.jpg" />
+  <img src="Z:/picture/009/save_picture_886036.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ VA - Car Audio Vol.8 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_886034.jpg" />
+  <img src="Z:/picture/008/save_picture_886034.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Trance Hits Top 20 (2017-02) (2017) [MP3|320 Kbps] <Trance, Uplifting Tranc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886031.jpg" />
+  <img src="Z:/picture/005/save_picture_886031.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Mozilla Thunderbird 91.1.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886025.jpg" />
+  <img src="Z:/picture/005/save_picture_886025.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Pikka - Color Picker 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886021.jpg" />
+  <img src="Z:/picture/005/save_picture_886021.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Lacey Free Music & Video Downloader 2.62 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886010.jpg" />
+  <img src="Z:/picture/005/save_picture_886010.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ AutoMounter 1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885985.jpg" />
+  <img src="Z:/picture/005/save_picture_885985.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ KeePass Password Safe 2.32 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885952.jpg" />
+  <img src="Z:/picture/005/save_picture_885952.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ djay - DJ App & AI Mixer 3.1.7  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885949.jpg" />
+  <img src="Z:/picture/005/save_picture_885949.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Hotspot Shield Elite 5.20.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885948.jpg" />
+  <img src="Z:/picture/005/save_picture_885948.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885943.jpg" />
+  <img src="Z:/picture/005/save_picture_885943.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Firefox Browser 78.14.0 ESR Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885935.jpg" />
+  <img src="Z:/picture/005/save_picture_885935.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Wondershare Recoverit 10.0.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885929.jpg" />
+  <img src="Z:/picture/005/save_picture_885929.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Emurasoft EmEditor Professional 21.1.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885926.jpg" />
+  <img src="Z:/picture/005/save_picture_885926.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ BurnAware Professional / Premium 14.7 RePack (& Portable) by Dodakaedr [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885925.jpg" />
+  <img src="Z:/picture/005/save_picture_885925.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ AVG Clear (AVG Remover) 21.7.6523.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885917.jpg" />
+  <img src="Z:/picture/005/save_picture_885917.jpg" />
 </div>
 
 

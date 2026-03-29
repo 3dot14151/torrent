@@ -1,3 +1,56 @@
+###  Публикация: 1456266   (236677) от 21.03.2021
+
+Сергей Киктев | Энциклопедия подготовки к школе. Техника и транспорт (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236677.jpg" />
+</div>
+
+
+###  Подробнее
+
+C помощью этой книги можно подготовить ребёнка к поступлению в первый класс. В ней собрано все, что должен знать дошкольник о технике и транспорте.
+Материал подобран и структурирован с учётом ФГОС ДО, а также Примерной программы дошкольного образования.Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50D4C6261FD46834D5FEF719FEA92D29C3440CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466414   (236030) от 10.09.2022
+
+А. Никоноров, А.Н. Гордиенко и др.  | Новая занимательная энциклопедия [6 книг] (2017-2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая занимательная энциклопедия - это серия познавательных книг, которые расскажут обо всем самом интересном! Внутри вы найдете самую главную информацию по разным увлечениям: от динозавров до космоса. Большие красивые издания с хорошей качественной бумагой - отличный подарок детям и взрослым.Жанр: Энциклопедия, Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F1F8B4EECCABAF4C622D748303C08203A171F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518357   (235773) от 11.09.2022
 
 А. Козленко, А.В. Волосецкий, А.С. Поспелов и др. | Занимательная энциклопедия [22 книги] (2014-2016) [PDF]
@@ -6,7 +59,7 @@
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235773.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235499.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235352.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234639.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229411.jpg" />
+  <img src="Z:/picture/004/save_picture_229411.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228784.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227063.jpg" />
+  <img src="Z:/picture/005/save_picture_227063.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225455.jpg" />
+  <img src="Z:/picture/005/save_picture_225455.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224264.jpg" />
+  <img src="Z:/picture/005/save_picture_224264.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222776.jpg" />
+  <img src="Z:/picture/005/save_picture_222776.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222595.jpg" />
+  <img src="Z:/picture/005/save_picture_222595.jpg" />
 </div>
 
 
@@ -299,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222391.jpg" />
+  <img src="Z:/picture/005/save_picture_222391.jpg" />
 </div>
 
 
@@ -325,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222277.jpg" />
+  <img src="Z:/picture/005/save_picture_222277.jpg" />
 </div>
 
 
@@ -351,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222212.jpg" />
+  <img src="Z:/picture/005/save_picture_222212.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222079.jpg" />
+  <img src="Z:/picture/005/save_picture_222079.jpg" />
 </div>
 
 
@@ -403,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222015.jpg" />
+  <img src="Z:/picture/005/save_picture_222015.jpg" />
 </div>
 
 
@@ -429,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_220792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_220792.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220666.jpg" />
+  <img src="Z:/picture/005/save_picture_220666.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220599.jpg" />
+  <img src="Z:/picture/005/save_picture_220599.jpg" />
 </div>
 
 
@@ -510,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218923.jpg" />
+  <img src="Z:/picture/005/save_picture_218923.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217514.jpg" />
+  <img src="Z:/picture/005/save_picture_217514.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216754.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214953.jpg" />
+  <img src="Z:/picture/005/save_picture_214953.jpg" />
 </div>
 
 
@@ -617,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214914.jpg" />
+  <img src="Z:/picture/005/save_picture_214914.jpg" />
 </div>
 
 
@@ -629,59 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1152E7D94C6BDD239F95F412D1BDA6595176776B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344045   (214852) от 08.12.2019
-
-Алена Васнецова | История сладостей (2019) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычная и увлекательная книга для семейного чтения, которая познакомит с жизнью и культурой нашей страны через историю сладостей и расскажет много интересного о лакомствах, которые за обе щеки уплетали мамы и папы, бабушки и дедушки. Читатели познакомятся с кондитерскими династиями России и узнают, что связывает семью кондитера Абрикосова и аэропорт Внуково, окунутся (   Читать дальше...   )Жанр: Познавательная литература для детей, КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BC47FB6BC301CA80793EB25502DBCEEEFCFEA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426516   (214843) от 24.11.2020
-
-Рэйчел Игнотофски | Большая маленькая планета. Экосистемы, или Как всё живое взаимосвязано (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаешь ли ты, что умеренные пожары полезны для экосистемы? А что в Тихом океане есть мусорный «остров» размером с Тюменскую область? Правда ли, что полярные шапки тают? Могут ли африканские фермеры остановить наступление пустыни Сахара?
-Об экологии много говорят учёные, защитники природы и даже шведские школьницы. Ответственное, бережное отношение к окружающей среде (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейПеревод: Мария СухотинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAAFBA1BB730E70E178C96EC8EBEB4B5F2807F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

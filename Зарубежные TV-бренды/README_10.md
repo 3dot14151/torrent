@@ -1,3 +1,109 @@
+###  Публикация: 987163   (922432) от 19.02.2016
+
+Discovery: Техногеника. Кругобайкальская железная дорога (2016) (серия 2) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техногеника — это серия документальных фильмов, каждый из которых посвящен одному из наиболее значимых для России и уникальных в мировом контексте памятников (или объектов) технического инженерного искусства, объектов, значение которых для развития нашей страны переоценивать невозможно, объектов, создание которых обогатило опыт всей человеческой цивилизации. Наш (   Читать дальше...   )Телекомпания: Discovery RussiaЖанр: Документальный, ТелепередачаПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C90106591218261F7EE588A7E50D472021776B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096055   (922316) от 22.01.2017
+
+Вулканическая Одиссея / A Volcano Odissey (2016 (?)) IPTVRip [H.264]
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922316.jpg" />
+</div>
+
+
+###  Подробнее
+
+При формировании Земли огромное количество энергии скопилось под ее корой. Эта сдерживаемая сила частично высвобождается в так называемых горячих точках. Это поразительные вулканические явления, которые мы только начинаем понимать. Их причина - потоки раскаленной мантии, стремящиеся в верхние слои земной коры. Вулканическая активность может продолжаться несколько (   Читать дальше...   )Телекомпания: Saint Thomas Productions (Франция), эфир телканал "Культура"Жанр: Документальный, компьютерная анимацияПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D0D85DBD5297A6256906656E25D99C5BC6E939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288466   (922293) от 29.01.2011
+
+Discovery:Разрушители легенд. В погоне за ураганом / MythBusters (2010) SATRip(2011.01.28)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание:
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят в области залива Сан-Франциско.
+Каждый из часовых выпусков «Разрушители легенд» посвящён двум или трём городским легендам, распространённым убеждениям или слухам из интернета. Основной миф часто требует всесторонней подготовки и полигона, кроме него в передачу также включают один-два не столь хлопотных в плане подготовки и проведения мифа. На сегодняшний день, однако, три эксперимента (35, 40, и 46) были настолько сложными, что заняли весь час, отведённый на передачу.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34F9606A8393F912D19BB63E6E9FAF209400A3CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095538   (922205) от 22.01.2017
+
+Тайны древности / Ancient Mysteries (2016) HDTVRip (1-6 серий из 6)
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сокровища прошлого хранят свои секреты, которые попытается разгадать группа ученых. Надо ли говорить о том, что эти энтузиасты планируют применить в своей работе всё имеющееся в их распоряжении ультрасовременное оборудование и по ходу дела раскроют телезрителям новые величайшие тайны о жизни далёких предков и мироздании в целом.Телекомпания: Великобритания, Blink Entertainment LtfЖанр: ДокументальныйРежиссер: Том ФоулиПеревод: Двуголосый закадровый, профессиональный, (SDI Media)Продолжительность: 6 x ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15056798AD7184CC9A16315016FC824479A88D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288261   (922181) от 29.01.2011
 
 DV: Занимательно обо всем. [выпуски 54-61] / C'est pas sorcier (1994) SATRip
@@ -6,7 +112,7 @@ DV: Занимательно обо всем. [выпуски 54-61] / C'est pas
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922181.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920928.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Animal Planet: Рууд и его жуки. Жуки-трюкачи / Buggin wit
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920229.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Discovery: Загадки всемирной истории: Внутри бун
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920192.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ Discovery: Недружелюбная Вселенная. Нападение п�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920178.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Discovery: Американский Чоппер / American Chopper [Season 6] (
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919879.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919022.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ NG: Суперсооружения. Пальмовые острова в Дуб�
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918813.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ Discovery: Как выжить среди акул / Surviving Sharks (2007) SAT
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918745.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ Animal Planet (BBC): Приключение осьминога / The Octopus Cha
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918440.jpg" />
 </div>
 
 
@@ -269,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918403.jpg" />
 </div>
 
 
@@ -295,7 +401,7 @@ DV: Форма жизни. История царства животных [се�
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918062.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ BBC. Виртуальная революция / The Virtual Revolution (2010) H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917859.jpg" />
 </div>
 
 
@@ -347,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917465.jpg" />
 </div>
 
 
@@ -373,7 +479,7 @@ NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917052.jpg" />
 </div>
 
 
@@ -399,7 +505,7 @@ BBC: Апокалипсис древних цивилизаций - 2 - Зага
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916872.jpg" />
 </div>
 
 
@@ -427,7 +533,7 @@ BBC: Апокалипсис древних цивилизаций - 1 - Смер
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916865.jpg" />
 </div>
 
 
@@ -455,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916847.jpg" />
 </div>
 
 
@@ -481,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916801.jpg" />
 </div>
 
 
@@ -507,7 +613,7 @@ Discovery. Техногеника. Родина-мать и Останкинск
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916771.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916742.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ BBC: Апокалипсис древних цивилизаций - 3 - Гибе
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916735.jpg" />
 </div>
 
 
@@ -574,112 +680,6 @@ BBC: Апокалипсис древних цивилизаций - 3 - Гибе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33A0D4D068E0A835F63E23E0B1245CD8F894D3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632837   (916061) от 22.03.2013
-
-Земля 2100 / Earth 2100 (2009) [H.264/720p] HDTV
-
->>Зарубежные TV-бренды
->>Мир будущего
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идея, перед которой большинство из нас не стояло бы - что в течение следующего столетия, жизнь, какой мы знаем ее, может закончиться. Наша цивилизация может разрушиться, оставляя только следы человеческого существования. Чтобы изменить будущее, сначала Вы должны вообразить это. Это кажется диковинным, чрезвычайным - даже невозможным. Но согласно ультрасовременному научному исследованию, это - очень реальная возможность. И если мы продолжим жить как живем теперь, это может обязательно случится.Жанр: Документальный, ФантастикаПеревод: Многоголосый закадровый, любительскийПродолжительность: 01:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9ECEC7063E0757870CBA7FE1C57B7A49D9701E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367530   (915106) от 16.03.2020
-
-Вторжение инопланетян: разоблачение заговора / Alien Intrusion: Unmasking a Deception (2018) WEBRip [H.264/1080p-LQ] [DVO]
-
->>Зарубежные TV-бренды
->>Тайны и Загадки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миллионы людей видели НЛО, и многие даже вспоминают личные встречи со странными существами. Популярное мнение состоит в том, что это продвинутые инопланетяне, посещающие нас из далёких миров, но в этом новом захватывающем документальном фильме более подробно рассматриваются события, убеждения, мнения экспертов и людей, которые сформировали наши взгляды на феномен (   Читать дальше...   )Производство: США, Creation Ministries International (CMI)Жанр: Документальный, тайны, загадкиРежиссер: Гэри БейтсПеревод: Двуголосый закадровый, любительскийСубтитры: отсутствуютПродолжительность: 01:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:327B2180E1A629AB865930B0975D6F7E73E3E83B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289427   (915064) от 02.02.2011
-
-BBC: Апокалипсис древних цивилизаций - 4 - Содом И Гоморра / BBC: Ancient Apocalypse - 4 - Sodom and Gomorrah (2001) DVDRip
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему исчезли древние цивилизации? Какую роль в этом сыграла стихия? Профессор Фекри Хассан пытается найти ответы в документальном сериале "Древний апокалипсис".
-
-Действительно ли существовали библейские города Содом и Гоморра? Что послужило причиной их гибели: гнев Бога, землетрясение, вызвавшее разрушительный оползень?Жанр: ДокументальныйПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B1DCAAB975F881EC685A72ECD8AB9CC00C6AFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989453   (915047) от 23.02.2016
-
-Discovery: Железная дорога Аляски / Railroad Alaska (2015) (сезон 2, серии 1-10) HDTVRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многосерийная передача о труде элитных железнодорожных бригад. Настоящие профессионалы своего дела работатт в сложных климатических условиях на территории со сложным ландшафтом. Ведь только в их силах устроить бесперебойную работу восьмисот километров железнодорожной дороги на Аляске. Для Аляски – это единственная и грузовая, и пассажирская дорога в Америку; в этих (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~07:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AA025ACEE1A1564CF7A284E57790E84DEC7B52
 ```
 
 https://mybot314.ru/tekegram_catalog/

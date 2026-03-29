@@ -1,3 +1,29 @@
+###  Публикация: 1666082   (42583) от 24.09.2024
+
+Shy | Стесняшка [2023, TV, 24 эп.] WebRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда мир стоял на пороге третьей мировой войны появились люди со сверхспособностями и смогли отстоять мир. Они стали живыми символами своих стран. Героиня Тэру «Стесняшка» Момидзияма — представительница Японии, которая теперь занимается местными проблемами. Но после появления новой злодейской организации «Амаларейк» Стесняшка вновь должна объединиться с другими (   Читать дальше...   )Производство: студия 8bit / エイトビットЖанр: приключенияРежиссер: Андо МасаомиПеревод: CrunchyRolЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 24 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596B537642A34E5EC9E0E8FB69C0EDA2F2ED10F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736008   (42440) от 25.09.2024
 
 Koi wa Futago de Warikirenai / Love Is Indivisible by Twins / Любовь близнецов неделима [2024, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Koi wa Futago de Warikirenai / Love Is Indivisible by Twins / Любовь бл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42440.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tensei Shitara Slime Datta Ken 3 | О моём перерождении в сл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42273.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ NieR:Automata Ver1.1a | Ниер: Автoмaтa Ver 1.1a [2023, TV, 24 эп.] We
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42272.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Senpai wa Otokonoko / Senpai is an Otokonoko / Моя сэмпай — паре�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42254.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Naze Boku no Sekai o Dare mo Oboeteinai no ka? / Why Does Nobody Remember Me in 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42160.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Kono Sekai wa Fukanzen Sugiru | Quality Assurance in Another World | Этот м
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42156.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Tensui no Sakuna-hime | Sakuna: Of Rice and Ruin | Сакуна: Рис и ру�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42138.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42131.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Nige Jouzu no Wakagimi | The Elusive Samurai | Беглый самурай [2024
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42129.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Make Heroine ga Oosugiru! / Too Many Losing Heroines! / Слишком мног�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42124.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Kami no Tou: Ouji no Kikan | Tower of God 2nd Season | Башня Бога: Во
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42038.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41948.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ The Fable | Фэйбл [2024, TV, 25 из 25] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41857.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Tsue to Tsurugi no Wistoria / Wistoria: Wand and Sword / Меч и жезл Ви
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41762.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Atri: My Dear Moments | Атри: Мои бесценные мгновенья [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41394.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Oshi no Ko 2 | Звёздное дитя [ТВ-2] [2024, TV, 13 из 13] WEBRip 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41114.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Yozakura-san Chi no Daisakusen | Mission: Yozakura Family | Операция: С
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40735.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Boku no Hero Academia Season 7 | Моя геройская академия [Т�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40627.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Monogatari Series: Off & Monster Season | Легенды: Межсезонье �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39915.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Gekijouban Blue Lock: Episode Nagi | Синяя тюрьма: Блю Лок - Э
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39672.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Yuru Camp Season 3 | Лагерь на свежем воздухе [ТВ-3] [202
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39416.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Uzumaki | Спираль [2024, TV, 4 эп.] WebRip 720p raw+eng
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39413.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Dead Mount Death Play (2023) | Смертельная игра мёртвой г
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39275.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Houkago Shounen Hanako-kun (2024) | After-school Hanako-kun (2024) | Ханак�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39004.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ High Card (2024) + OVA | Старшая карта [ТВ-2] + OVA [2024, TV, 12+
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_38037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38037.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ High Card (2024) + OVA | Старшая карта [ТВ-2] + OVA [2024, TV, 12+
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2DE0105BEA002CC2ED3108CEC9933FADB6776AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753615   (36370) от 23.11.2024
-
-Murai no Koi | Murai in Love | Любовь Мураи [2024, TV, 12 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мурай — ученик старшей школы и интроверт, на которого мало кто обращает внимание. Длинные волосы, неуверенная походка... да, он совсем не тот, кого можно назвать эталоном красоты. Однажды Мураи признается в чувствах девушке — красивой учительнице Аяно Танаке, но её интересуют только персонажи любимых отомэ-игр. Естественно, Мураи получает отказ... но на следующий (   Читать дальше...   )Производство: Студия J.C. StaffЖанр: комедия, романтикаРежиссер: Ямакава ЁсикиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: Русские, Английские (мультисаб)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901A5D9A5ABC6260F70C7EAB62446E8796FB31CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

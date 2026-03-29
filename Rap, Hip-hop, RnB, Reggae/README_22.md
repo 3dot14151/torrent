@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383410.jpg" />
+  <img src="Z:/picture/008/save_picture_383410.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Bob Marley & the Wailers - Legend (2012 (1984)) [FLAC 2.0 192/24 |WEB-DL]<Reggae
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_382439.jpg" />
+  <img src="Z:/picture/005/save_picture_382439.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381316.jpg" />
+  <img src="Z:/picture/008/save_picture_381316.jpg" />
 </div>
 
 
@@ -95,7 +95,7 @@ Billy Milligan - 6 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-ho
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379242.jpg" />
+  <img src="Z:/picture/008/save_picture_379242.jpg" />
 </div>
 
 
@@ -124,7 +124,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378490.jpg" />
+  <img src="Z:/picture/008/save_picture_378490.jpg" />
 </div>
 
 
@@ -153,7 +153,7 @@ Anacondaz - Я тебя никогда (2018) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377053.jpg" />
+  <img src="Z:/picture/008/save_picture_377053.jpg" />
 </div>
 
 
@@ -182,7 +182,7 @@ Alicia Keys - Here (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <R&B, Soul
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373452.jpg" />
+  <img src="Z:/picture/008/save_picture_373452.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ John Legend - LEGEND (2022) 2xCD [FLAC 2.0|44/24|tracks|WEB-DL] <R&B, Soul, Pop>
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373094.jpg" />
+  <img src="Z:/picture/008/save_picture_373094.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368005.jpg" />
+  <img src="Z:/picture/008/save_picture_368005.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367874.jpg" />
+  <img src="Z:/picture/008/save_picture_367874.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367249.jpg" />
+  <img src="Z:/picture/008/save_picture_367249.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Apathy - Connecticut Casual (2014) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Under
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364504.jpg" />
+  <img src="Z:/picture/008/save_picture_364504.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362821.jpg" />
+  <img src="Z:/picture/008/save_picture_362821.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Travis Scott - Astroworld (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361226.jpg" />
+  <img src="Z:/picture/008/save_picture_361226.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ ST feat. Ленинград - Балалайка (2018) Single [MP3|320 Kbps] <R
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361024.jpg" />
+  <img src="Z:/picture/008/save_picture_361024.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Kid Abstrakt & Emapea - Jazzy Vibes (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358064.jpg" />
+  <img src="Z:/picture/008/save_picture_358064.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357646.jpg" />
+  <img src="Z:/picture/008/save_picture_357646.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Rihanna - Unapologetic (2012) [FLAC|Lossless]<Pop, R&B>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_356995.jpg" />
+  <img src="Z:/picture/005/save_picture_356995.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356674.jpg" />
+  <img src="Z:/picture/008/save_picture_356674.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Khalid - Suncity (2018) EP [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356440.jpg" />
+  <img src="Z:/picture/008/save_picture_356440.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353847.jpg" />
+  <img src="Z:/picture/008/save_picture_353847.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Noize MC - #Мэйксамнойз (2015) Single [MP3|320 кб/с]<Rap, Rap-Rock
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353175.jpg" />
+  <img src="Z:/picture/008/save_picture_353175.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353117.jpg" />
+  <img src="Z:/picture/008/save_picture_353117.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351892.jpg" />
+  <img src="Z:/picture/008/save_picture_351892.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347815.jpg" />
+  <img src="Z:/picture/008/save_picture_347815.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Rihanna - Loud (2010) [FLAC|Lossless]<R&B>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_345669.jpg" />
+  <img src="Z:/picture/005/save_picture_345669.jpg" />
 </div>
 
 

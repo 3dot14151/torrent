@@ -1,3 +1,119 @@
+###  Публикация: 1193515   (261993) от 22.12.2017
+
+Benny Goodman - Benny In Brussels (1958) 1989, CBS [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Dance [01:05]
+02. Don't Be That Way [03:13]
+03. Hallelujah [04:15]
+04. Obsession [03:09](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:684332BE3E6D7CCFBC6D332D93A474233CE1A66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193720   (261992) от 22.12.2017
+
+Eric Alexander - Summit Meeting (2002) Milestone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summit Meeting [08:05]
+02. The Sweetest Sounds [07:45]
+03. There But For The Grace Of... [08:52]
+04. I Haven't Got Anything Better To Do [07:14](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FF4E5682B818EE2B8D8C33DB31DBA7BE1DF543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193725   (261987) от 22.12.2017
+
+Enrico Pieranunzi Quartet - Alone Together (2001) Challenge Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak Low [05:18]
+02. My Foolish Heart [06:04]
+03. What Is This Thing Called Love [04:35]
+04. Sweet And Lovely [03:37](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C8FD4FE04867CCBD7CC81E53BDE27A9EA71CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193719   (261984) от 22.12.2017
+
+Charles McPherson - Siku Ya Bibi (1971, 1972) 1991, Mainstream Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Explain [04:26]
+02. Lover Man (Oh Where Can You Be) [04:58]
+03. God Bless the Child [04:28]
+04. Miss Brown to You [04:42](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91A64F9C8CACDE6393A2A748E828AE94E376BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193972   (261835) от 23.12.2017
 
 Antonio Ciacca Quintet - Rush Life (2008) Motema Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -6,7 +122,7 @@ Antonio Ciacca Quintet - Rush Life (2008) Motema Music [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261835.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Horace Tapscott - Little Afrika (1983) 2010, Absord Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261834.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Steve Kuhn - Oceans In The Sky (1989) 2001, Universal [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261833.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ahmad Jamal - Macanudo (1959, 1962) 2014, Solar Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261829.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Oliver Nelson - Skull Session (1975) 2002, Flying Dutchman [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261827.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Konstantin Klashtorni - Smooth Jazz I-IV (2011-2017) 4CD [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261818.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Oliver Nelson - Black, Brown And Beautiful (1969) 2017, Solid Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261813.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone (2001) Cam Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261812.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bill Connors - Return (2005) [FLAC|Lossless]<Post-Bop, Fusion, Guitar Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260758.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Big Time Operator - The Game (2001) [FLAC|Lossless]<Swing, Neo-Swing, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259306.jpg" />
+  <img src="Z:/picture/005/save_picture_259306.jpg" />
 </div>
 
 
@@ -308,7 +424,7 @@ Gianluigi Trovesi Ottetto - Fugace (2003) /ECM/ [APE|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259289.jpg" />
+  <img src="Z:/picture/005/save_picture_259289.jpg" />
 </div>
 
 
@@ -343,7 +459,7 @@ Ella Fitzgerald - Ella Fitzgerald (1935 - 1940) 5-CD (1990, 1991) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259166.jpg" />
+  <img src="Z:/picture/005/save_picture_259166.jpg" />
 </div>
 
 
@@ -369,7 +485,7 @@ Eddie Higgins Solo Piano - Standards By Request 1st Day & 2nd Day (2 CD) (2008) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259107.jpg" />
+  <img src="Z:/picture/005/save_picture_259107.jpg" />
 </div>
 
 
@@ -395,7 +511,7 @@ Big Band-ul Radio - Jazz... Pe Romaneste (2010) [FLAC|Lossless]<Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258718.jpg" />
+  <img src="Z:/picture/005/save_picture_258718.jpg" />
 </div>
 
 
@@ -430,7 +546,7 @@ Billie Holiday - Billie Holiday And Her Orchestra (1933-1948) (1991,1999) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258566.jpg" />
+  <img src="Z:/picture/005/save_picture_258566.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ Helen Humes - Helen Humes (1927-1945) (1996) [FLAC|Lossless]<Vocal Jazz, Swing>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258525.jpg" />
+  <img src="Z:/picture/005/save_picture_258525.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ Electro Swing Celebration, Bar Coffee Music Saloon, Electronic Music - Electro S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257692.jpg" />
+  <img src="Z:/picture/005/save_picture_257692.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ Electro Swing Radio - Coffin Candy Charleston (House Electro Swing) (2025) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257690.jpg" />
+  <img src="Z:/picture/005/save_picture_257690.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ Soundify Background Music, Pub Music, Electronic Music - Electro Swing Cocktail 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257688.jpg" />
+  <img src="Z:/picture/005/save_picture_257688.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ VA - Electro Swing & More (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257686.jpg" />
+  <img src="Z:/picture/005/save_picture_257686.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ VA - Electro Swing Ragtime House: Harlem Prohibition Jazz Inspired Music, Spooky
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257684.jpg" />
+  <img src="Z:/picture/005/save_picture_257684.jpg" />
 </div>
 
 
@@ -645,7 +761,7 @@ VA - The Roaring Remix, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257672.jpg" />
+  <img src="Z:/picture/005/save_picture_257672.jpg" />
 </div>
 
 
@@ -659,122 +775,6 @@ VA - The Roaring Remix, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56B54511CD61F61D9CBED3DBA6BB1AC2D9005609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837470   (257566) от 16.11.2025
-
-VA - Acid Jazz Classics, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vicki Anderson - Home Is Where The Hatred Is (Progetto Tribale Soul Mix The cream cut) (4:45)
-02.  JESTOFUNK - Straight To You (6:04)
-03.  Lainz - All Lainz (4:29)
-04.  Anduze - Stone Cold Lover (4:06)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863F5D4C709F60DD63387BF99E23228704859C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837475   (257563) от 16.11.2025
-
-VA - Acid Jazz Instrumentals Vol. 3 (Jazz Funk Breaks Instrumental Tunes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Venus Ship - Arthur Morgan (2:52)
-02.  Lainz - All Lainz (4:29)
-03.  Kolosso - Ghost  Dogs (3:41)
-04.  Top 10 Inc. - Harlem R'n'B Funk (3:19)(   Читать дальше...   )Жанр: Acid Jazz, FunkПродолжительность: 02:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB8AE3E1D5064448C35A8A1BA23F1C37D3CBA6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837476   (257562) от 16.11.2025
-
-VA - Jazz For Studying And Working (Instrumental Jazz Vibes) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Soulstance - Around Me (4:35)
-02.  Chromogen - Bleach (3:58)
-03.  P. A. Jeron - Children (3:51)
-04.  GIANLUCA PORRO - The Sea In Spring (4:03)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:27:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2357A02A3369F1F5671451AF152757CB8E88DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837478   (257560) от 16.11.2025
-
-VA - Nu Jazz Gentle Vibes (Soul, Nu Jazz, Smooth Jazz, Dream Pop) (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mario Biondi - Back Together Again (3:57)
-02.  Symphonica ODV - I Keep Forgettin' (Every Time You're Near) (3:20)
-03.  Maddalena Conni - Memories (4:25)
-04.  Yuts and Culture - I Got You (5:54)(   Читать дальше...   )Жанр: Nu Jazz, Smooth JazzПродолжительность: 01:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891E8462560AE0203011F7A65CAB1B991A847DD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

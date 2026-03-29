@@ -6,7 +6,7 @@ MediaInfo 20.08 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705041.jpg" />
+  <img src="Z:/picture/008/save_picture_705041.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Nox App Player 6.6.1.2000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705040.jpg" />
+  <img src="Z:/picture/008/save_picture_705040.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Acrobat Reader DC 2020.012.20041 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705035.jpg" />
+  <img src="Z:/picture/008/save_picture_705035.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Foxit PhantomPDF Business 10.0.1.35811 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705027.jpg" />
+  <img src="Z:/picture/008/save_picture_705027.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705015.jpg" />
+  <img src="Z:/picture/008/save_picture_705015.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Skype 8.81.0.268 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705007.jpg" />
+  <img src="Z:/picture/008/save_picture_705007.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Opera 84.0.4316.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704998.jpg" />
+  <img src="Z:/picture/008/save_picture_704998.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ EF Commander 2022.02 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704994.jpg" />
+  <img src="Z:/picture/008/save_picture_704994.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Soft4Boost Document Converter 4.8.7.547 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704946.jpg" />
+  <img src="Z:/picture/008/save_picture_704946.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Cyberfox 52.1.2 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704940.jpg" />
+  <img src="Z:/picture/008/save_picture_704940.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Clipboard Fusion Pro+portable+MSI 5.5.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704922.jpg" />
+  <img src="Z:/picture/008/save_picture_704922.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ NVIDIA GeForce Desktop 419.35 WHQL + For Notebooks + DCH [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704919.jpg" />
+  <img src="Z:/picture/008/save_picture_704919.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Display Driver Uninstaller 15.1.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704904.jpg" />
+  <img src="Z:/picture/008/save_picture_704904.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704902.jpg" />
+  <img src="Z:/picture/008/save_picture_704902.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704864.jpg" />
+  <img src="Z:/picture/008/save_picture_704864.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Ultra Adware Killer 5.8.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704820.jpg" />
+  <img src="Z:/picture/008/save_picture_704820.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ PDF24 Creator 8.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704818.jpg" />
+  <img src="Z:/picture/008/save_picture_704818.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Privacy Eraser Free 4.24.0 Build 2321 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704817.jpg" />
+  <img src="Z:/picture/008/save_picture_704817.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Adobe Flash Player 26.0.0.94 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704806.jpg" />
+  <img src="Z:/picture/008/save_picture_704806.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ cdrtfe 1.5.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704803.jpg" />
+  <img src="Z:/picture/008/save_picture_704803.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Total Directory Report 7.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704801.jpg" />
+  <img src="Z:/picture/008/save_picture_704801.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Nvidia DriverPack v.419.35 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704797.jpg" />
+  <img src="Z:/picture/008/save_picture_704797.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Exiland Backup Standard 5.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704785.jpg" />
+  <img src="Z:/picture/008/save_picture_704785.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Kaspersky TDSSKiller 3.0.0.44 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704776.jpg" />
+  <img src="Z:/picture/008/save_picture_704776.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704762.jpg" />
+  <img src="Z:/picture/008/save_picture_704762.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ IObit Unlocker 1.2.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704747.jpg" />
+  <img src="Z:/picture/008/save_picture_704747.jpg" />
 </div>
 
 

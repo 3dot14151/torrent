@@ -1,3 +1,109 @@
+###  Публикация: 1518692   (154144) от 20.12.2021
+
+FoneDog Toolkit – iOS Data Recovery 2.1.56 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эффективное программное обеспечение iOS Data Recovery поможет вам восстановить удаленные данные с iPhone, iPad и iPod. Поддержка iPhone XS, XR, 8 и последней версии iOS.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: © 2021 FoneDog Technology LimitedПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824F16F44B67CDA1116862A4E59CF36E5D86CBDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600960   (154137) от 29.12.2022
+
+Loop Mash Up Pro 1.2.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создавайте профессиональную музыку с помощью Loop Mash Up. Это приложение представляет собой мощный сэмплер с множеством циклов и пресетов. Все образцы были созданы профессиональными музыкантами и диджеями. Наслаждайтесь созданием мощных ударов, просто нажав на «pads» и получите мгновенный результат!Тип издания: macOS SoftwareРелиз состоялся: 27.12.2022Разработчик: © 2022 Music TopiaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0EED179B3CDC31F7F31DCAD8034F4C584E76E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600954   (154131) от 29.12.2022
+
+Downie 4 v.4.6.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 29.12.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0469B96D167F76681628C266EF0A8BBB749D2C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518603   (154121) от 20.12.2021
+
+Wipr – Ad and Tracker Blocker 1.31 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wipr блокирует всю рекламу, трекеры, майнеры криптовалюты, файлы cookie ЕС и уведомления GDPR, а также другие неприятности, поэтому вы можете сосредоточиться на важном для вас контенте при использовании Safari.Тип издания: macOS SoftwareРелиз состоялся: 12.12.2021Разработчик: © 2021 Giorgio CalderollaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D54FE697B7CA7693DF04DAFB996EC6193252C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518677   (154091) от 20.12.2021
 
 ACDSee Photo Studio 8 v8.0.2283 [En]
@@ -6,7 +112,7 @@ ACDSee Photo Studio 8 v8.0.2283 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154091.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ PhotoScape X Pro 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154086.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ Finder Windows 1.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154035.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ AnyTrans 6.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154012.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ Audio Hijack 3.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153979.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ Grids for Instagram 5.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153960.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ MiniTube 3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153899.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ Vidmore Video Converter 2.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153813.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ Artlantis 2020 9.0.2.21255 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153773.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ WiFi Explorer 3.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153723.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ Luminar Neo 1.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153702.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ MetaImage 1.9.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153694.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ InfoClick 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153688.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ Currency Assistant 3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153683.jpg" />
 </div>
 
 
@@ -380,7 +486,7 @@ Nisus Writer Pro 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153674.jpg" />
 </div>
 
 
@@ -406,7 +512,7 @@ DropDMG 3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153668.jpg" />
 </div>
 
 
@@ -433,7 +539,7 @@ SpeakMe 1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153664.jpg" />
 </div>
 
 
@@ -459,7 +565,7 @@ Chaos Control 1.11 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153659.jpg" />
 </div>
 
 
@@ -487,7 +593,7 @@ ExifEditor 1.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153649.jpg" />
 </div>
 
 
@@ -513,7 +619,7 @@ AppKiller 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153646.jpg" />
 </div>
 
 
@@ -540,7 +646,7 @@ World Clock Deluxe 4.17.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153618.jpg" />
 </div>
 
 
@@ -567,7 +673,7 @@ Wattagio 1.12.3 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153615.jpg" />
 </div>
 
 
@@ -578,111 +684,6 @@ Wattagio информирует вас о текущем состоянии ба
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F24A4EB3DB920536C32BB2DD16D2BB42E1274F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434201   (153613) от 23.12.2020
-
-AweCleaner Professional 4.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153613.jpg" />
-</div>
-
-
-###  Подробнее
-
-AweCleaner - это универсальное средство для очистки Mac, которое не только помогает пользователям Mac легко и быстро очищать все ненужные файлы, но также может удалять приложения, находить / удалять большие файлы, находить / удалять дублирующиеся файлы, освобождать память, управлять жесткими дисками и т.д. Это комплексное программное обеспечение для очистки также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: MagoshareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B223550B317907911F91CC3CDBF30037820CA03C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434224   (153600) от 23.12.2020
-
-Grid 1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрый и простой способ упорядочить окна на вашем Mac. Grid позволяет привязывать окна с помощью перетаскивания, сочетаний клавиш или строки меню.Тип издания: macOS SoftwareРелиз состоялся: 23.12.2020Разработчик: MacgridПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20538FE723B85CDB52BFC6B8A3EB899D45B33A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434124   (153595) от 23.12.2020
-
-Movist 2.5.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.12.2020Разработчик: MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C46A4593EB7D469DCFBC45812E3338E867C956E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434259   (153592) от 23.12.2020
-
-NCH WavePad Masters Edition 11.49 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это программное обеспечение для редактирования аудио и является полнофункциональным, профессиональным редактором аудиофайлов. Это позволяет записывать и редактировать музыку, голосовые и другие аудиозаписи. При редактировании аудиофайлов вы можете вырезать, копировать и вставлять части записей, а затем добавлять эффекты, такие как эхо, усиление и шумоподавление. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2020Разработчик: NCH SoftwareПоддерживаемая ОС: macOS 10.5+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5A2A56C1C0306944CE7BDDE9BC2D9F601B47A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

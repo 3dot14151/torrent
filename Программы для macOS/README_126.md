@@ -1,3 +1,134 @@
+###  Публикация: 1608851   (236691) от 01.02.2023
+
+AudFree Tidable Music Converter 2.10.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236691.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudFree Tidable Music Converter для Mac позволяет загружать музыку, плейлисты, альбомы из сервисов Tidal Free, Tidal HiFi и HiFi Plus и конвертировать Tidal в MP3, FLAC, WAV, AAC и т. д. на более высокой скорости для автономного воспроизведения.Тип издания: macOS SoftwareРелиз состоялся: 31.01.2023Разработчик: ©2022 AudFreeПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802A39679940373092CC51D6982FAF7CBA4C55E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608854   (236681) от 01.02.2023
+
+iDealshare VideoGo for Mac 6.7.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236681.jpg" />
+</div>
+
+
+###  Подробнее
+
+iDealshare VideoGo для Mac — лучший конвертер видео для Mac, который может преобразовывать все виды видео- и аудиофайлов для успешного импорта в iMovie, Final Cut Pro, Final Cut Express, Avid, Sony Vegas или для удобного воспроизведения в iTunes, QuickTime, iPad, iPhone, iPod, Apple TV и т. д.
+Он также поддерживает преобразование MPEG-4, MOV, M4V, Apple Lossless (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2023Разработчик: © 2023 iDealshareПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE22F2DB5EF5D3BCF5DF013138D013CED671220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608852   (236654) от 01.02.2023
+
+AudKit Tidal Music Converter 2.10.0 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236654.jpg" />
+</div>
+
+
+###  Подробнее
+
+AudKit Tidal Music Converter — это универсальный загрузчик и конвертер Tidal, предназначенный для загрузки и преобразования музыки, плейлистов и альбомов Tidal в MP3, FLAC, WAV, AAC и т. д. на компьютерах Windows и Mac с 5-кратно более высокой скоростью пакетного преобразования для автономное воспроизведение в любом месте.Тип издания: macOS SoftwareРелиз состоялся: 31.01.2023Разработчик: © 2022 AudKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50029B982FFABB471C1FFB33E1B3BE2D0F73D8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641302   (236639) от 21.06.2023
+
+BetterDisplay Pro for Mac 2.0.1 pre-release [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236639.jpg" />
+</div>
+
+
+###  Подробнее
+
+BetterDisplay — поистине замечательный инструмент. Приложение позволяет вам преобразовать ваши дисплеи в полностью масштабируемые экраны, позволяет управлять яркостью, обеспечивает масштабирование XDR / HDR (дополнительная яркость выше 100% на совместимых дисплеях), полное затемнение до черного, помогает вам создавать и управлять виртуальными дисплеями (манекенами) (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.06.2023Разработчик: © 2023 waydabberПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FF5D42B3FBD4494A764F964CFF1748F0070077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609030   (236614) от 01.02.2023
+
+Boss Radar 3.05 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boss Radar - отслеживание устройств Bluetooth. Совершенно новая версия с поддержкой устройств Bluetooth Low Energy (в настоящее время они в этом режиме). Все ограниченные действия песочницы (например, запуск/завершение других приложений) удалены.Тип издания: macOS SoftwareРелиз состоялся: 30.01.2023Разработчик: © 2012 - 2023 dragonbtv@gmail.comПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49EE12071B3ABB4F5CE5E1C39A7281E27D83C748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608862   (236598) от 01.02.2023
 
 Outline 3.2301.1 [En]
@@ -6,7 +137,7 @@ Outline 3.2301.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236598.jpg" />
+  <img src="Z:/picture/005/save_picture_236598.jpg" />
 </div>
 
 
@@ -33,7 +164,7 @@ start 5.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236564.jpg" />
+  <img src="Z:/picture/005/save_picture_236564.jpg" />
 </div>
 
 
@@ -59,7 +190,7 @@ Keep It 2.2.8 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236531.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ PCDJ LYRX 1.10.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236473.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ Mirror for TCL TV 3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236457.jpg" />
+  <img src="Z:/picture/005/save_picture_236457.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ Photo Effects Pro 6.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236430.jpg" />
+  <img src="Z:/picture/005/save_picture_236430.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ Client Folder Maker 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236423.jpg" />
+  <img src="Z:/picture/005/save_picture_236423.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ PDF Checkpoint 1.9.13 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236412.jpg" />
+  <img src="Z:/picture/005/save_picture_236412.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ Live Performer 1.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236384.jpg" />
+  <img src="Z:/picture/005/save_picture_236384.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ Image Enhance Pro 5.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236341.jpg" />
+  <img src="Z:/picture/005/save_picture_236341.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ NCH Express Accounts Plus 11.01 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236316.jpg" />
+  <img src="Z:/picture/005/save_picture_236316.jpg" />
 </div>
 
 
@@ -295,7 +426,7 @@ Statistics Pro 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236286.jpg" />
+  <img src="Z:/picture/005/save_picture_236286.jpg" />
 </div>
 
 
@@ -322,7 +453,7 @@ EXIF App 1.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236274.jpg" />
+  <img src="Z:/picture/005/save_picture_236274.jpg" />
 </div>
 
 
@@ -348,7 +479,7 @@ Valentina Studio Pro 13.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236273.jpg" />
 </div>
 
 
@@ -374,7 +505,7 @@ ExpressionsinBar 2.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236189.jpg" />
+  <img src="Z:/picture/005/save_picture_236189.jpg" />
 </div>
 
 
@@ -400,7 +531,7 @@ TimeTable 3 v3.4.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236146.jpg" />
+  <img src="Z:/picture/005/save_picture_236146.jpg" />
 </div>
 
 
@@ -426,7 +557,7 @@ Bulk Photo Watermark 2.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236115.jpg" />
+  <img src="Z:/picture/005/save_picture_236115.jpg" />
 </div>
 
 
@@ -452,7 +583,7 @@ UctoX 2 v2.8.10 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235926.jpg" />
+  <img src="Z:/picture/005/save_picture_235926.jpg" />
 </div>
 
 
@@ -480,7 +611,7 @@ Solis 1.0.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235765.jpg" />
 </div>
 
 
@@ -507,7 +638,7 @@ BetterDisplay Pro for Mac 1.4.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235694.jpg" />
 </div>
 
 
@@ -533,7 +664,7 @@ Resolutionator 2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235570.jpg" />
 </div>
 
 
@@ -545,137 +676,6 @@ Resolutionator 2.4 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E3CCDD7BCDF142B49370DD0444B2B1F54508A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641161   (235476) от 21.06.2023
-
-Chaotica 2.2.3 Beta [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chaotica - это приложение фрактального искусства нового поколения, предназначенное как для начинающих, так и для профессиональных художников. Начинающие пользователи могут наслаждаться редактированием рандомизированных фракталов для создания потрясающих HD-обоев и анимации. Профессиональные пользователи особенно оценят быстрый современный движок рендеринга. Высококачественные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2023Разработчик: © 2013 - 2023 Glare Technologies Limited.Поддерживаемая ОС: macOS 10.13.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034629791194CFABAD1CAEA189752D752E782903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530771   (235417) от 12.02.2022
-
-ApolloOne - Photo Video Viewer 3.0.2 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235417.jpg" />
-</div>
-
-
-###  Подробнее
-
-ApolloOne - это разработанное с нуля приложение как быстрый, эффективный и многофункциональный медиа-просмотрщик. ApolloOne использует расширенные функции операционной системы, такие как: многопоточность, Grand Central Dispatch и Core Image для высокой производительности приложения.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2015-2022 Anogeissus Ltd.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36696404003C4CAF5F5669AD79223B025277CF8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530791   (235400) от 12.02.2022
-
-BluePlum Home Inventory 4 v4.6.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235400.jpg" />
-</div>
-
-
-###  Подробнее
-
-BluePlum Home Inventory - наиболее полное приложение для инвентаризации дома, которое поможет вам составлять и поддерживать инвентарь для любой собственности, какой вы владеете. Оно позволяет вам организовать свои вещи в коллекциях, комнатах, местах и ​​/ или присвоить каждому из них один или несколько тегов. ПО позволяет добавлять фотографии, видео, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2022Разработчик: © 2021 The Blue Plum Software Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F092B2C49C54356F632A868F427238D4B8C114A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642626   (235372) от 28.06.2023
-
-Battery Indicator for Mac 2.16.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Battery Indicator показывает оставшееся время работы от батареи и процент в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 27.06.2023Разработчик: © 2023 Sindre SorhusПоддерживаемая ОС: macOS 13.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BBCCDA423368C1D068583DC1B8C7B705F635FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530822   (235288) от 12.02.2022
-
-Labels and Databases 1.7.8 [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235288.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Labels and Databases — это приложение для создания и дизайна этикеток со сложной поддержкой баз данных. Он помогает вам создавать этикетки, конверты и открытки с использованием различных встроенных форматов этикеток и заполнять их информацией, содержащейся в пользовательских базах данных, то есть создавать и печатать этикетки с помощью слияния.
-Различные объекты, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2021Разработчик: © 2004-2021 Cristallight SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3D100F2B14F0EAF69FB8E391DB01E56923EEB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

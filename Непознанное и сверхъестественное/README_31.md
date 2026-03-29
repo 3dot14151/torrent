@@ -1,3 +1,55 @@
+###  Публикация: 964019   (285784) от 09.12.2015
+
+Земля. Территория загадок. Крысолов из Гамельна (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285784.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сейчас здесь спокойно, но одна из легенд гласит, что небольшой городок Германии подвергся атаке крыс и был заполонен жуткими грызунами. Некий Крысолов смог избавить Гамельн от напасти, но вместе с этим человеком пропали почти все дети. Загадка не дает покоя ученым, историкам и литераторам и по сей день. Подробности смотрите в этой программе.Телекомпания: МИРЖанр: ДокументальныйРежиссер: Алексей АртемьевПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF51EF75CEDD0CE3A1D5CB20722D2AEC5C02634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964012   (285782) от 09.12.2015
+
+Земля. Территория загадок. Мангуп и Чаша Грааля (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как связана история чаши Грааля с земной жизнью Иисуса Христа, из-за чего артефакт перевезли из Константинополя на крымский берег и почему нацисты были одержимы поиском мистической реликвии? Мангуп – древний город-крепость в Крыму. По одной из легенд, в его стенах спрятан сосуд, который сделан из короны Люцифера - падшего ангела.Телекомпания: МИРЖанр: ДокументальныйРежиссер: Алексей АртемьевПродолжительность: 00:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28615C3EDB14D8B617F05D9ADEE383F6A290F2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963995   (285638) от 09.12.2015
 
 Земля. Территория загадок. Динозавр - друг человека (2015) SATRip
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285638.jpg" />
+  <img src="Z:/picture/008/save_picture_285638.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285633.jpg" />
+  <img src="Z:/picture/008/save_picture_285633.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285632.jpg" />
+  <img src="Z:/picture/008/save_picture_285632.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285529.jpg" />
+  <img src="Z:/picture/008/save_picture_285529.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285341.jpg" />
+  <img src="Z:/picture/008/save_picture_285341.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284764.jpg" />
+  <img src="Z:/picture/008/save_picture_284764.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284252.jpg" />
+  <img src="Z:/picture/008/save_picture_284252.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284123.jpg" />
+  <img src="Z:/picture/008/save_picture_284123.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283962.jpg" />
+  <img src="Z:/picture/008/save_picture_283962.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283958.jpg" />
+  <img src="Z:/picture/008/save_picture_283958.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283955.jpg" />
+  <img src="Z:/picture/008/save_picture_283955.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283954.jpg" />
+  <img src="Z:/picture/008/save_picture_283954.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283950.jpg" />
+  <img src="Z:/picture/008/save_picture_283950.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283899.jpg" />
+  <img src="Z:/picture/008/save_picture_283899.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283787.jpg" />
+  <img src="Z:/picture/008/save_picture_283787.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282497.jpg" />
+  <img src="Z:/picture/008/save_picture_282497.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281973.jpg" />
+  <img src="Z:/picture/008/save_picture_281973.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280628.jpg" />
+  <img src="Z:/picture/008/save_picture_280628.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280254.jpg" />
+  <img src="Z:/picture/008/save_picture_280254.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279023.jpg" />
+  <img src="Z:/picture/008/save_picture_279023.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277372.jpg" />
+  <img src="Z:/picture/008/save_picture_277372.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275912.jpg" />
+  <img src="Z:/picture/008/save_picture_275912.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275667.jpg" />
+  <img src="Z:/picture/008/save_picture_275667.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274537.jpg" />
+  <img src="Z:/picture/008/save_picture_274537.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FBBF4702A13AC8B4FE0B460866F7A76285674AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188536   (274184) от 02.12.2017
-
-Битва экстрасенсов (2017.12.02) SATRip  (сезон 18, выпуск 11)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274184.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 23 сентября на ТНТ стартует долгожданный 18-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:09:37Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D906C9724B9486CC99B05F38993F3D467A86FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083834   (273564) от 16.12.2016
-
-Экстрасенсы против детективов (2016.12.16) SATRip (сезон 1, выпуск 16)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грандиозная схватка между интуицией и дедукцией, предчувствием и логикой. Впервые в истории российского телевидения следователи, оперативники и криминалисты МВД сразятся с обладателями паранормальных способностей - шаманами, ведьмами и парапсихологами. По правилам проекта обеим командам предстоит в каждой программе раскрывать реальные преступления. В начале выпуска (   Читать дальше...   )Телекомпания: НТВЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:07:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07DF55AA0554A6CD8BA54BE52612ACA94F808781
 ```
 
 https://mybot314.ru/tekegram_catalog/

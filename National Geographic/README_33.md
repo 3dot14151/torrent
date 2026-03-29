@@ -1,3 +1,107 @@
+###  Публикация: 1545989   (239974) от 22.04.2022
+
+NG: Затерянные сокровища Египта / Lost Treasures of Egypt (2019-2021) HDTV [H.264/1080i] (сезоны 1-3, серии 1-22 из 22)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об исследованиях, проведенных группой египтологов, сумевших в процессе поиска ответов на тайны древних мест раскопать самую богатую древними артефактами долину царей в Египте. В течение целого сезона вы будете следить за этими неутомимыми исследователями, пользуясь беспрецедентным доступом к результатам их работы, которую они делают на переднем фронте археологии, (   Читать дальше...   )Производство: Великобритания / Windfall Films LTD, for NATIONAL GEOGRAPHICЖанр: Документальный, история, археологияРежиссер: Гвин УильямсПеревод: Одноголосый профессиональный (Велес)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: серии по ~00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701DB84D9842B5EFA4FF1ED7485142A0CCFDC390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572016   (239478) от 24.08.2022
+
+NG. Затерянные города с Альбертом Лином / Lost Cities with Albert Lin (2021) WEB-DL [H.264/1080p] (сезон 2, серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот телепроект объединяет приключения, науку и археологию в лице ведущего Альберта Лина. Амбициозный подход с 3D-сканированием некоторых из самых необычных памятников старины. Яркие эмоциональные истории с высокотехнологичными изображениями, которые оживят тайны прошлого.Производство: Великобритания, Caravan Media Ltd, National Geographic ChannelЖанр: документальный, история, археология, исследованияРежиссер: Джим ГрейерПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: серии x ~00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A22C56AE41F89AC9BC4838E49FBB1F8BAC033E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572440   (239120) от 26.08.2022
+
+NG. Смертельно опасные монстры Австралии / Australia's Deadly Monsters (2017) WEB-DL [H.264/1080p] (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австралия, страна контрастов, где обитают прирожденные убийцы, каких не встретишь больше нигде. Здесь в поймах рек правят доисторические хищники. На выжженных песках пустыни разворачивается эволюционная гонка вооружений. А ночь - это время дьяволов. Австралия - настоящее царство чудовищ...Производство: Австралия, WildBear Entertainment, National GeographicЖанр: документальный, природа, фаунаРежиссер: Мартин БэйкерПеревод: дублированный (Велес)Субтитры: английскиеПродолжительность: серии x ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9987836F2EE8A7AAEE77A0B516EFA5CF242037A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640031   (237891) от 15.06.2023
+
+NG. Море надежды. Подводные сокровища Америки / Sea of Hope. America's Underwater Treasures (2017) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Океан считали слишком большим, чтобы ему что-то угрожало. Но теперь мы знаем, что ошибались. Национальные парки сохраняют природные богатства Америки на суше, но в этом нуждается и океан - ведь он находится в опасности. В столетнюю годовщину Управлению национальных парков инициативная группа отправляется в путешествие по морям и океанам, чтобы убедить одного человека (   Читать дальше...   )Производство: США, True Blue Films, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Роберт НиксонПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: английскиеПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADB9231AF439D6B9DE54ED99B05C3DB4F5D3EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631251   (236749) от 04.05.2023
 
 NG. Львы с Крокодильей реки / Lions of Crocodile River (2007) WEB-DL [H.264/1080p]
@@ -6,7 +110,7 @@ NG. Львы с Крокодильей реки / Lions of Crocodile River (2007
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236749.jpg" />
+  <img src="Z:/picture/005/save_picture_236749.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NG. Тайны слонов / Secrets of the Elephants (2023) WEB-DL [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236295.jpg" />
+  <img src="Z:/picture/004/save_picture_236295.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW. Путешествие по Атлантике / Facing The Atlantic (2011)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235032.jpg" />
+  <img src="Z:/picture/005/save_picture_235032.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NGW: Чудеса океана / Wonders of The Ocean (2019) WEBRip [H.264/1080p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232490.jpg" />
+  <img src="Z:/picture/005/save_picture_232490.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231347.jpg" />
+  <img src="Z:/picture/005/save_picture_231347.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231294.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230727.jpg" />
+  <img src="Z:/picture/004/save_picture_230727.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230389.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229410.jpg" />
+  <img src="Z:/picture/004/save_picture_229410.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ NGW: Поместье луговой собачки / Prairie Dog Manor (2019) H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228986.jpg" />
+  <img src="Z:/picture/004/save_picture_228986.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay Unchar
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228958.jpg" />
+  <img src="Z:/picture/004/save_picture_228958.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG: Последствия: Преданные Солнцем / Aftermath: Betra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228950.jpg" />
+  <img src="Z:/picture/004/save_picture_228950.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228935.jpg" />
+  <img src="Z:/picture/004/save_picture_228935.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228597.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NGW. Дикая Африка: династии / Africa's Wild Side. Dynasties (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228471.jpg" />
+  <img src="Z:/picture/005/save_picture_228471.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228370.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226964.jpg" />
+  <img src="Z:/picture/005/save_picture_226964.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NG: Злоключения за границей / Banged up Abroad (2020) IPTV 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224964.jpg" />
+  <img src="Z:/picture/005/save_picture_224964.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ NGW: Медвежья школа / Bearhood (2014) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224819.jpg" />
+  <img src="Z:/picture/005/save_picture_224819.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ NGW: Самые странные в мире: ползучие целители 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224750.jpg" />
+  <img src="Z:/picture/005/save_picture_224750.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ NGW: Дикие места Африки. Рожденные выживать / A
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224721.jpg" />
+  <img src="Z:/picture/005/save_picture_224721.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223097.jpg" />
 </div>
 
 
@@ -566,112 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92A314E77A5452B50DBF83120F67CD66AFD49886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342872   (220981) от 04.12.2019
-
-NGW. Странная природа: сумасброды / Stranger than Nature. Unhinged (2019) HDTV [H.264/1080i] (серии 1-8)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал "Странная природа" знакомит зрителей с самыми необычными историями из реальной жизни дикой природы.Производство: США, Tigress Productions, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Карен БеландПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A76E948B2D1B26F2C3CCB58C1E40A110F361100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342927   (220832) от 04.12.2019
-
-NG: Осушить океан: Подводные лодки-убийцы / Drain the Oceans. Killer U-Boats (2019) HDTV [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первыми в мире малозаметными военными объектами стали подводные лодки, которые доказали в ходе Второй мировой войны величие королевских ВМС. Потопив немецкие корабли общим водоизмещением в 12 млн тонн, они практически обеспечили победу в этой войне. Сумев достойно ответить угрозе немецкого подводного флота, они изменили все правила ведения войны на море. Сериал "Осушить (   Читать дальше...   )Производство: США, Канада, Великобритания, 422 South, Battens Media, Mallinson Sadler Productions, National GeographicЖанр: Документальный, история, исследованияРежиссер: Алекс ВестПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7FA98729B8263F79BC306A6B5C190DB5E579D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587853   (220809) от 11.12.2012
-
-NG:  В поисках Атлантиды / Finding Atlantis (2011) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где же могла быть расположена легендарная Атлантида? Используя современные технологии и опираясь на записи Платона, учёные пытаются раскрыть одну из величайших тайн мира. Три научные экспедиции проверяют гипотезы о местоположении мифического, исчезнувшего города и получают поразительные результаты...
-
-РелизТелекомпания: Канада, Франция, National Geographic, "Atlantis LTD"Жанр: ДокументальныйРежиссер: Грэм БеллПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC2FE9C257DDB4939023EE15B58A254B23F759F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287329   (220650) от 04.12.2019
-
-NG: Затерянные сокровища Египта / Lost Treasures of Egypt (2019) HDTV [H.264/1080i-LQ] (Сезон 1, серии 6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об исследованиях, проведенных группой египтологов, сумевших в процессе поиска ответов на тайны древних мест раскопать самую богатую древними артефактами долину царей в Египте. В течение целого сезона вы будете следить за этими неутомимыми исследователями, пользуясь беспрецедентным доступом к результатам их работы, которую они делают на переднем фронте археологии, (   Читать дальше...   )Производство: Великобритания, Windfall Films, National GeographicЖанр: Документальный, история, археологияРежиссер: Гуин УильямсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F11748D661F671B8BD1FA7CD156BFB69FED52B
 ```
 
 https://mybot314.ru/tekegram_catalog/

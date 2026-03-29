@@ -6,7 +6,7 @@ LibreOffice 6.0.0 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787642.jpg" />
+  <img src="Z:/picture/008/save_picture_787642.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ TunesKit Audio Converter 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787631.jpg" />
+  <img src="Z:/picture/008/save_picture_787631.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Moti
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787619.jpg" />
+  <img src="Z:/picture/008/save_picture_787619.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Arturia - Pigments 1.1.1.503 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by R2
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787615.jpg" />
+  <img src="Z:/picture/008/save_picture_787615.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Alternate File Shredder 2.220 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787606.jpg" />
+  <img src="Z:/picture/008/save_picture_787606.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Display Driver Uninstaller 17.0.8.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787605.jpg" />
+  <img src="Z:/picture/008/save_picture_787605.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ LibreOffice 6.0.0.3 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787602.jpg" />
+  <img src="Z:/picture/008/save_picture_787602.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Movavi Video Suite 17.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787601.jpg" />
+  <img src="Z:/picture/008/save_picture_787601.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club (
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787594.jpg" />
+  <img src="Z:/picture/008/save_picture_787594.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ BluffTitler Ultimate 14.1.1.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787591.jpg" />
+  <img src="Z:/picture/008/save_picture_787591.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VideoProc (former MacX Video Converter Pro) 3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787585.jpg" />
+  <img src="Z:/picture/008/save_picture_787585.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Display Driver Uninstaller 18.0.0.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787583.jpg" />
+  <img src="Z:/picture/008/save_picture_787583.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ EssentialPIM Pro Business Edition 8.12.1 RePack (& portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787579.jpg" />
+  <img src="Z:/picture/008/save_picture_787579.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ TreeSize Free 4.1.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787572.jpg" />
+  <img src="Z:/picture/008/save_picture_787572.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Trypogen 1.1 For Cinema 4D [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787567.jpg" />
+  <img src="Z:/picture/008/save_picture_787567.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Aurora HDR 2018 v1.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787559.jpg" />
+  <img src="Z:/picture/008/save_picture_787559.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Flip PDF Professional 2.4.9.27 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787552.jpg" />
+  <img src="Z:/picture/008/save_picture_787552.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ GPU Caps Viewer 1.41.3.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787551.jpg" />
+  <img src="Z:/picture/008/save_picture_787551.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Ashampoo Burning Studio 20.0.3.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787540.jpg" />
+  <img src="Z:/picture/008/save_picture_787540.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ CCleaner Professional 5.52.6967 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787536.jpg" />
+  <img src="Z:/picture/008/save_picture_787536.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ FurMark 1.20.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787525.jpg" />
+  <img src="Z:/picture/008/save_picture_787525.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Movavi Video Suite 17.2.0 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787523.jpg" />
+  <img src="Z:/picture/008/save_picture_787523.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ PCRADIO 6.0.1 Premium RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787512.jpg" />
+  <img src="Z:/picture/008/save_picture_787512.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ AquaMail Pro v1.18.2 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787506.jpg" />
+  <img src="Z:/picture/008/save_picture_787506.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Zoom Player MAX 14.5 Build 1450 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787498.jpg" />
+  <img src="Z:/picture/008/save_picture_787498.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Path Finder 8.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787449.jpg" />
+  <img src="Z:/picture/008/save_picture_787449.jpg" />
 </div>
 
 

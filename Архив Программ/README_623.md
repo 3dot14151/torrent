@@ -6,7 +6,7 @@ Microsoft Edge 97.0.1072.76 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736896.jpg" />
+  <img src="Z:/picture/008/save_picture_736896.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Acoustica Premium Edition 7.3.25 (x64) RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736891.jpg" />
+  <img src="Z:/picture/008/save_picture_736891.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PrivaZer 4.0.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736886.jpg" />
+  <img src="Z:/picture/008/save_picture_736886.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ HiBit Uninstaller 2.7.47 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736883.jpg" />
+  <img src="Z:/picture/008/save_picture_736883.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Process Lasso Pro 10.4.3.24 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736882.jpg" />
+  <img src="Z:/picture/008/save_picture_736882.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736878.jpg" />
+  <img src="Z:/picture/008/save_picture_736878.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Perfectly Clear WorkBench 4.0.1.2226 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736875.jpg" />
+  <img src="Z:/picture/008/save_picture_736875.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ WinMerge 2.16.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736874.jpg" />
+  <img src="Z:/picture/008/save_picture_736874.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ AutoRuns 14.08 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736869.jpg" />
+  <img src="Z:/picture/008/save_picture_736869.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Maxthon Browser 6.1.3.1001 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736866.jpg" />
+  <img src="Z:/picture/008/save_picture_736866.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AntispamSniper for The Bat! & Voyager 3.3.4.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736851.jpg" />
+  <img src="Z:/picture/008/save_picture_736851.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Windows 10 (v21h2) x64 HSL/PRO by KulHunter v3.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736802.jpg" />
+  <img src="Z:/picture/008/save_picture_736802.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Microsoft Windows 10.0.19044.1466 Professional Version 21H2 (Updated January 202
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736763.jpg" />
+  <img src="Z:/picture/008/save_picture_736763.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ WinRAR 6.10 Final RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736760.jpg" />
+  <img src="Z:/picture/008/save_picture_736760.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ IObit Driver Booster Pro 7.6.0.765 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736719.jpg" />
+  <img src="Z:/picture/008/save_picture_736719.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Light Image Resizer 6.0.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736689.jpg" />
+  <img src="Z:/picture/008/save_picture_736689.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Microsoft Visual Studio 2019 Community 16.6.3 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736686.jpg" />
+  <img src="Z:/picture/008/save_picture_736686.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Trojan Killer 2.1.34 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736660.jpg" />
+  <img src="Z:/picture/008/save_picture_736660.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Microsoft Visual Studio 2019 Professional 16.6.3 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736658.jpg" />
+  <img src="Z:/picture/008/save_picture_736658.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ IObit Smart Defrag Pro 6.6.0.66 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736651.jpg" />
+  <img src="Z:/picture/008/save_picture_736651.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Opera GX 68.0.3618.206 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736645.jpg" />
+  <img src="Z:/picture/008/save_picture_736645.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ K-Lite Codec Pack Update 15.6.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736644.jpg" />
+  <img src="Z:/picture/008/save_picture_736644.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Everything 1.4.1.986 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736603.jpg" />
+  <img src="Z:/picture/008/save_picture_736603.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Adobe XD 31.0.12.23 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736602.jpg" />
+  <img src="Z:/picture/008/save_picture_736602.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ GOM Player Plus 2.3.55.5319 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736601.jpg" />
+  <img src="Z:/picture/008/save_picture_736601.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Notepad3 5.20.722.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736570.jpg" />
+  <img src="Z:/picture/008/save_picture_736570.jpg" />
 </div>
 
 

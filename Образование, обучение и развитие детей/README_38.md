@@ -1,3 +1,55 @@
+###  Публикация: 1299407   (599899) от 01.05.2019
+
+Г.И. Блинов | Методика изучения пунктуационных правил (1972) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_599899.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пособии даны сведения о функциях знаков препинания, о видах и построении правил пунктуации, раскрывается методика изучения этих правил в школе.Жанр: методическое пособие, русский язык, пунктуацияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:607513D986EBD9C06DAF59C3806010E9FFF90D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299253   (599586) от 01.05.2019
+
+Н.К. Андрианов, А.Д. Марленский | Астрономические наблюдения в школе (1987) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_599586.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге изложены основные сведения о телескопах и приемах их испытаний. Даны методические рекомендации, как наблюдать различные небесные тела и как затем использовать материалы наблюдений на уроках. Рассмотрены простейшие математические методы обработки данных наблюдений.Жанр: Астрономия, учебное пособиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41573B25E752DF442B3528C58E85F8962904423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526530   (599048) от 23.07.2012
 
 Ю.В.Нестеренко и др. | Задачи на смекалку [2005] [DjVu]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599048.jpg" />
+  <img src="Z:/picture/008/save_picture_599048.jpg" />
 </div>
 
 
@@ -34,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597803.jpg" />
+  <img src="Z:/picture/008/save_picture_597803.jpg" />
 </div>
 
 
@@ -62,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597415.jpg" />
+  <img src="Z:/picture/008/save_picture_597415.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597175.jpg" />
+  <img src="Z:/picture/008/save_picture_597175.jpg" />
 </div>
 
 
@@ -117,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596498.jpg" />
+  <img src="Z:/picture/008/save_picture_596498.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596296.jpg" />
+  <img src="Z:/picture/008/save_picture_596296.jpg" />
 </div>
 
 
@@ -170,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595217.jpg" />
+  <img src="Z:/picture/008/save_picture_595217.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595184.jpg" />
+  <img src="Z:/picture/008/save_picture_595184.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595130.jpg" />
+  <img src="Z:/picture/008/save_picture_595130.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595047.jpg" />
+  <img src="Z:/picture/008/save_picture_595047.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594830.jpg" />
+  <img src="Z:/picture/008/save_picture_594830.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594781.jpg" />
+  <img src="Z:/picture/008/save_picture_594781.jpg" />
 </div>
 
 
@@ -329,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594654.jpg" />
+  <img src="Z:/picture/008/save_picture_594654.jpg" />
 </div>
 
 
@@ -355,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594546.jpg" />
+  <img src="Z:/picture/008/save_picture_594546.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594539.jpg" />
+  <img src="Z:/picture/008/save_picture_594539.jpg" />
 </div>
 
 
@@ -407,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594023.jpg" />
+  <img src="Z:/picture/008/save_picture_594023.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593995.jpg" />
+  <img src="Z:/picture/008/save_picture_593995.jpg" />
 </div>
 
 
@@ -459,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593781.jpg" />
+  <img src="Z:/picture/008/save_picture_593781.jpg" />
 </div>
 
 
@@ -485,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593470.jpg" />
+  <img src="Z:/picture/008/save_picture_593470.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593139.jpg" />
+  <img src="Z:/picture/008/save_picture_593139.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592896.jpg" />
+  <img src="Z:/picture/008/save_picture_592896.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592271.jpg" />
+  <img src="Z:/picture/008/save_picture_592271.jpg" />
 </div>
 
 
@@ -591,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591893.jpg" />
+  <img src="Z:/picture/008/save_picture_591893.jpg" />
 </div>
 
 
@@ -617,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591380.jpg" />
+  <img src="Z:/picture/008/save_picture_591380.jpg" />
 </div>
 
 
@@ -628,58 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B916E929D2D7C080AE17FDA2DD478F2F53ABFB90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916202   (591373) от 07.07.2015
-
-Сергей Зимин | Как научиться плавать (1951) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уметь плавать необходимо каждому человеку. Ведь это один из самых приятных и полезных видов спорта, который всесторонне развивает организм, укрепляет мышцы , сердце и легкие. Научиться плавать совсем не трудно. Конечно, легче и скорее удается овладеть техникой этого вида спорта под руководством опытного инструктора. Но научиться плавать каждый из вас может и сам. (   Читать дальше...   )Жанр: ПлаваниеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82F25C791B2A70B0B11B49E912C8DE26D2B5EDF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916179   (591306) от 07.07.2015
-
-Х.Я. Суляев | Азбука Морзе (1948) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Азбука Морзе состоит из точек, тире или комбинаций из них. Азбука Морзе оказалась настолько удобной и универсальной, что ею стали пользоваться везде, где только это возможно. Так, например, азбукой Морзе можно переговариваться миганием глаз, заключенные переговаривались в своих одиночных камерах постукиванием по стенке или топотом ног, слепые даже теперь читают прикосновением (   Читать дальше...   )Жанр: Телеграфная связьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14A6FCC15F1E1209E9FA9BA8305F79414C87AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

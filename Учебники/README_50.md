@@ -1,3 +1,55 @@
+###  Публикация: 1301267   (585124) от 11.05.2019
+
+А.И. Апарнев, Л.И. Афонина | Общая химия. Сборник заданий с примерами решений (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее учебное пособие охватывает основные разделы общей химии: химический эквивалент, окислительно-восстановительные реакции в растворах, энергетика и направление химических процессов, химическое равновесие, растворы, коллоидные системы, электрохимические процессы. Каждый раздел содержит краткое теоретическое введение, примеры решения задач и задания для самостоятельного (   Читать дальше...   )Жанр: Учебное пособие, ХимияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE69AD1956896030DE9343AA39A49C11CDA55D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301261   (585121) от 11.05.2019
+
+В.И. Бабецкий, О.Н. Третьякова | Механика в примерах и задачах (2019) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585121.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебном пособии обсуждаются и разъясняются основные понятия и законы, необходимые для решения проблем в области механики. Их практическое применение проиллюстрировано на сравнительно большом массиве задач. Материалы книги могут быть использованы студентами для самостоятельного ознакомления с методами решения основных типов задач механики. Книга дополнена иллюстрациями, (   Читать дальше...   )Жанр: Учебное пособие, ФизикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8702864DE2F010A26FBC099021000AF7579A9A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301256   (585116) от 11.05.2019
 
 О.Д. Максимова | Основы математического анализа. Числовые ряды (2019) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585116.jpg" />
+  <img src="Z:/picture/008/save_picture_585116.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585109.jpg" />
+  <img src="Z:/picture/008/save_picture_585109.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585098.jpg" />
+  <img src="Z:/picture/008/save_picture_585098.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585004.jpg" />
+  <img src="Z:/picture/008/save_picture_585004.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584959.jpg" />
+  <img src="Z:/picture/008/save_picture_584959.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584952.jpg" />
+  <img src="Z:/picture/008/save_picture_584952.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584851.jpg" />
+  <img src="Z:/picture/008/save_picture_584851.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584091.jpg" />
+  <img src="Z:/picture/008/save_picture_584091.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582783.jpg" />
+  <img src="Z:/picture/008/save_picture_582783.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582300.jpg" />
+  <img src="Z:/picture/008/save_picture_582300.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580874.jpg" />
+  <img src="Z:/picture/008/save_picture_580874.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580871.jpg" />
+  <img src="Z:/picture/008/save_picture_580871.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580426.jpg" />
+  <img src="Z:/picture/008/save_picture_580426.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580124.jpg" />
+  <img src="Z:/picture/008/save_picture_580124.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579704.jpg" />
+  <img src="Z:/picture/008/save_picture_579704.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578853.jpg" />
+  <img src="Z:/picture/008/save_picture_578853.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578377.jpg" />
+  <img src="Z:/picture/008/save_picture_578377.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577878.jpg" />
+  <img src="Z:/picture/008/save_picture_577878.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576574.jpg" />
+  <img src="Z:/picture/008/save_picture_576574.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576162.jpg" />
+  <img src="Z:/picture/008/save_picture_576162.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576155.jpg" />
+  <img src="Z:/picture/008/save_picture_576155.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576059.jpg" />
+  <img src="Z:/picture/008/save_picture_576059.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575994.jpg" />
+  <img src="Z:/picture/008/save_picture_575994.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575990.jpg" />
+  <img src="Z:/picture/008/save_picture_575990.jpg" />
 </div>
 
 
@@ -623,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF0510769A303038485687ADB7C8A70CE7F8062C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151044   (575939) от 17.07.2017
-
-В.П. Шувалов (ред.) | Телекоммуникационные системы и сети [3 тома] (2012-2015) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575939.jpg" />
-</div>
-
-
-###  Подробнее
-
-В последние годы наметился переход от разнородных телекоммуникационных сетей, каждая из которых была предназначена для оказания узкого круга услуг к сетям следующего поколения (Next Generation Network, NGN) или, так называемым, мультисервисным сетям. В таких сетях предоставляются услуги по передаче голоса, данных и видео, в них осуществлена конвергенция мобильных (   Читать дальше...   )Жанр: Связь, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2144D48060A430F1C412009FBC93A9F506E44288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151069   (575797) от 17.07.2017
-
-В.П. Боровиков | Популярное введение в современный анализ данных в системе Statistica (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга открывает широкому кругу читателей современный анализ данных в программе Statistica. Statistica (производитель StatSoft, USA) занимает лидирующее положение среди программ анализа данных и имеет сотни тысяч зарегистрированных пользователей в России и мире. На простых, ясных примерах популярно описаны современные методы анализа данных – визуальный анализ и графическое (   Читать дальше...   )Жанр: Прикладная математикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2552A84D2FF96921188A48BE95A589F48E83FD7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

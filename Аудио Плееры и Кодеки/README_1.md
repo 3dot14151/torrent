@@ -1,3 +1,29 @@
+###  Публикация: 1782744   (25966) от 02.03.2025
+
+Audio Repeater Pro 1.6.3 [En]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Repeater Pro - это многоканальное решение для потоковой передачи аудио с низкой задержкой для Windows. Оно позволяет передавать аудио между двумя устройствами в режиме реального времени. Оно также может добавлять эффекты к аудио во время потоковой передачи. Наиболее важной особенностью Audio Repeater Pro является то, что вам не нужно использовать программное (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44162BC012ACDA437A9992DCE5003E3822379FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785403   (24636) от 15.03.2025
 
 FxSound Pro 1.1.31.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -6,7 +32,7 @@ FxSound Pro 1.1.31.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24636.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ MusicBee 3.6.9202 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24386.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Spotify 1.2.59.515 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22871.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Foobar2000 2.24.6 include Portable [En]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_12185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_12185.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ AIMP 5.40.2694 + Portable [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3762.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ AIMP 5.40 Build 2694 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3649.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ FxSound 1.1.36.0 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3615.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ AIMP 5.40.2694 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3614.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Audacious 4.5.1 [Multi/Ru]
 >>Аудио Плееры и Кодеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1346.jpg" />
 </div>
 
 

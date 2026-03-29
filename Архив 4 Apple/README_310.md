@@ -1,3 +1,110 @@
+###  Публикация: 1294746   (625581) от 09.04.2019
+
+Adobe Audition CC 2019 v12.1.180 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для работы с аудио-данными Adobe Audition представляет собой профессиональный инструмент для специалистов, которые работают в сфере обработки аудио и видеопродукции, предлагая им практически неограниченные возможности. Простота использования прекрасно сочетается с гибкостью работы, позволяя создавать мастер-копии высочайшего класса, редактировать, микшировать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AdobeПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:730EEE62B254474173A349C70124C99593EDF56C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909791   (625561) от 18.06.2015
+
+DxO Optics Pro Elite 10.4.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625561.jpg" />
+</div>
+
+
+###  Подробнее
+
+DxO Optics Pro — один из лучших RAW конвертеров и редакторов изображений. Программа использует современные запатентованные технологии, с помощью которых можно отрегулировать яркость, контрастность, цветовой баланс, устранить искажения и повысить четкость изображений, исправить цвета и экспозицию по краям и в углах фотографии, отрегулировать баланс белого цвета с (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 июня 2015Разработчик: DxO LabsПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Французский, Немецкий и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF76E75AF9F4D5FCC480341072A9F8EBC8E7D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909605   (625550) от 18.06.2015
+
+LRTimelapse Pro 4.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625550.jpg" />
+</div>
+
+
+###  Подробнее
+
+LRTimelapse — программа предназначена исключительно для профессионалов и опытных фото-любителей. Ее функции заключаются в обработке интервальных съемок (timelapse, цейтраферная съемка). Основная фишка программы, это автоматическая установка параметров: экспозиция, контраст и т д., для каждого файла, фото-изображения, по нескольким ключевым кадрам.
+
+Интервальная съемка (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: Gunther WegnerПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C336EC6994BE1B9EA4D70227863E7BFAD0784000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543963   (625538) от 13.04.2022
+
+Rhinoceros 7 v7.17 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
+Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.04.2022Разработчик: © 1993-2022 Robert McNeel & AssociatesПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1606337BC686B78E3E178EC67B59AF567098559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144675   (625529) от 23.06.2017
 
 Clearview 2.0.2 [En]
@@ -6,7 +113,7 @@ Clearview 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625529.jpg" />
+  <img src="Z:/picture/008/save_picture_625529.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ SiteSucker 2.10.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625520.jpg" />
+  <img src="Z:/picture/008/save_picture_625520.jpg" />
 </div>
 
 
@@ -62,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625511.jpg" />
+  <img src="Z:/picture/008/save_picture_625511.jpg" />
 </div>
 
 
@@ -91,7 +198,7 @@ DxO FilmPack Elite 5.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625414.jpg" />
+  <img src="Z:/picture/008/save_picture_625414.jpg" />
 </div>
 
 
@@ -118,7 +225,7 @@ Compressor 4.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625402.jpg" />
+  <img src="Z:/picture/008/save_picture_625402.jpg" />
 </div>
 
 
@@ -144,7 +251,7 @@ Motion 5.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625400.jpg" />
+  <img src="Z:/picture/008/save_picture_625400.jpg" />
 </div>
 
 
@@ -170,7 +277,7 @@ BetterTouchTool 2.20 (641) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625367.jpg" />
+  <img src="Z:/picture/008/save_picture_625367.jpg" />
 </div>
 
 
@@ -197,7 +304,7 @@ Screens VNC 4.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625364.jpg" />
+  <img src="Z:/picture/008/save_picture_625364.jpg" />
 </div>
 
 
@@ -226,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625264.jpg" />
+  <img src="Z:/picture/008/save_picture_625264.jpg" />
 </div>
 
 
@@ -253,7 +360,7 @@ iSkysoft PDF Editor 6 Pro 6.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625262.jpg" />
+  <img src="Z:/picture/008/save_picture_625262.jpg" />
 </div>
 
 
@@ -279,7 +386,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625198.jpg" />
+  <img src="Z:/picture/008/save_picture_625198.jpg" />
 </div>
 
 
@@ -307,7 +414,7 @@ Microsoft Office 2021 for Mac LTSC v16.60 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625167.jpg" />
+  <img src="Z:/picture/008/save_picture_625167.jpg" />
 </div>
 
 
@@ -335,7 +442,7 @@ Adguard 1.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624196.jpg" />
+  <img src="Z:/picture/008/save_picture_624196.jpg" />
 </div>
 
 
@@ -362,7 +469,7 @@ Graphic Inspector 2 v2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623926.jpg" />
+  <img src="Z:/picture/008/save_picture_623926.jpg" />
 </div>
 
 
@@ -388,7 +495,7 @@ MWeb Pro 4.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623923.jpg" />
+  <img src="Z:/picture/008/save_picture_623923.jpg" />
 </div>
 
 
@@ -415,7 +522,7 @@ Adobe Zii Patcher 2019 4.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623604.jpg" />
+  <img src="Z:/picture/008/save_picture_623604.jpg" />
 </div>
 
 
@@ -441,7 +548,7 @@ Parallels Desktop for Mac 8.0.18608 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623353.jpg" />
+  <img src="Z:/picture/008/save_picture_623353.jpg" />
 </div>
 
 
@@ -469,7 +576,7 @@ Paws for Trello 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622821.jpg" />
+  <img src="Z:/picture/008/save_picture_622821.jpg" />
 </div>
 
 
@@ -498,7 +605,7 @@ Fileloupe - Media Browser 1.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622802.jpg" />
+  <img src="Z:/picture/008/save_picture_622802.jpg" />
 </div>
 
 
@@ -525,7 +632,7 @@ Alfred Powerpack 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622757.jpg" />
+  <img src="Z:/picture/008/save_picture_622757.jpg" />
 </div>
 
 
@@ -553,7 +660,7 @@ File Juicer 4.47 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622754.jpg" />
+  <img src="Z:/picture/008/save_picture_622754.jpg" />
 </div>
 
 
@@ -581,7 +688,7 @@ WhatSize 6.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622752.jpg" />
+  <img src="Z:/picture/008/save_picture_622752.jpg" />
 </div>
 
 
@@ -592,114 +699,6 @@ WhatSize - небольшое приложение выводит на экра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DA5BBEAA2C9421DF579BEA1AE6AB937199C9430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036163   (622747) от 19.07.2016
-
-Airmail 3.0.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
-
-По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июля 2016Разработчик: Bloop S.R.LПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FDEEAB44EBED01B3B1CC304F41AA0A71B1B47F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035982   (622669) от 19.07.2016
-
-Xojo 2015 r4 visual basic for MAC [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xojo (ранее Real Studio, а еще раньше RealBasic) - профессиональная кроссплатформенная визуальная среда разработки приложений для Mac OS X, Windows и Linux с синтаксисом языка, похожим на MS Visual Basic.
-Непосредственно из IDE среды разработки вы можете скомпилировать приложение для любой платформы, что очень удобно, если вы разрабатываете свою программу для разных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17.12.2015Разработчик: XojoПоддерживаемая ОС: OS X Maverics 10.9.5 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AEA6BCB0CF7BDE28BE013A1F9D07DAD75ECFD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036060   (622663) от 19.07.2016
-
-QR Factory 2.9.6 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622663.jpg" />
-</div>
-
-
-###  Подробнее
-
-QR Factory: создание QR-кода
-QR-код является незаменимым и универсальным способом быстро поделиться какой-либо текстовой информацией. Его главное достоинство — легкое распознавание — активно применяется в самых разных сферах: производстве, торговле, логистике, туризме рекламе, конкурсах, играх и др. Сканеры QR-кодов существуют практически на всех мобильных платформах, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июля 2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C787292D7929804E21BF3474AC06037B9AB1C386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036070   (622661) от 19.07.2016
-
-VueScan Pro 9.5.52 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622661.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan — программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июля 2016Разработчик: Hamrick SoftwareПоддерживаемая ОС: OS X 10.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AC99C37A15287CD023EF5A1CFCFCB171188968C
 ```
 
 https://mybot314.ru/tekegram_catalog/

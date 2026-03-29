@@ -6,7 +6,7 @@ AtmaSphere (2018) [En] (1.0/upd1) License PLAZA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787483.jpg" />
+  <img src="Z:/picture/008/save_picture_787483.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macabre Ring 2: Mysterious Puppeteer (2019) [En] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786987.jpg" />
+  <img src="Z:/picture/008/save_picture_786987.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mosaic Game of Gods III / Мозаика. Игры богов III (2019) [Ru] (1
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786956.jpg" />
+  <img src="Z:/picture/008/save_picture_786956.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782198.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Algo Bot (2018) [Ru/Multi] (1.0.0) License RELOADED
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781974.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Impresja (2017) [En] (1.0) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780368.jpg" />
+  <img src="Z:/picture/008/save_picture_780368.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Fantasy Mosaics 31: First Date (2018) [En] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772840.jpg" />
+  <img src="Z:/picture/008/save_picture_772840.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764304.jpg" />
+  <img src="Z:/picture/008/save_picture_764304.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Secrets of Magic 3: Happy Halloween (2017) [En] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758378.jpg" />
+  <img src="Z:/picture/008/save_picture_758378.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Getting Over It with Bennett Foddy (2017) [Ru/Multi] (1.5762) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744358.jpg" />
+  <img src="Z:/picture/008/save_picture_744358.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Deep Under the Sky (2018) [En] (1.181) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741925.jpg" />
+  <img src="Z:/picture/008/save_picture_741925.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ JollyHangman / Игра Виселица (2021) [Ru] (1.7.0) License
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737290.jpg" />
+  <img src="Z:/picture/008/save_picture_737290.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ CARRION (2020) [Ru/Multi] (1.0.3) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735048.jpg" />
+  <img src="Z:/picture/008/save_picture_735048.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Fairies (2005) [En] (1.4b) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724896.jpg" />
+  <img src="Z:/picture/008/save_picture_724896.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Armello (2015) [Ru/Multi] (1.4.2/dlc) License SKIDROW
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718247.jpg" />
+  <img src="Z:/picture/008/save_picture_718247.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Finnish Roller (2017) [En] (1.0/upd4) License PLAZA
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712168.jpg" />
+  <img src="Z:/picture/008/save_picture_712168.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Armello (2015) [Ru/Multi] (2.0/dlc) License RELOADED [Collector's Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703236.jpg" />
+  <img src="Z:/picture/008/save_picture_703236.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Armello (2015) [Ru/Multi] (2.0/dlc) Repack Other s [Collector's Edition]
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702850.jpg" />
+  <img src="Z:/picture/008/save_picture_702850.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Dragon Kingdom War (2017) [En] (1.0) License PROPHET
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696593.jpg" />
+  <img src="Z:/picture/008/save_picture_696593.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Magic: The Gathering - Duels of the Planeswalkers 2014 (2013) [Ru/En] (1.0 build
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695504.jpg" />
+  <img src="Z:/picture/008/save_picture_695504.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690958.jpg" />
+  <img src="Z:/picture/008/save_picture_690958.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Bridge! 2: The Construction Game (2016) [En/De] (1.0.2) Repack R.G. Механи
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689957.jpg" />
+  <img src="Z:/picture/008/save_picture_689957.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Radical Dungeon Sweeper (2018) [Multi] (1.06) Repack Other s
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684689.jpg" />
+  <img src="Z:/picture/008/save_picture_684689.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ SolSuite Solitaire 2016 (2016) [Ru/En] (16.6) Repack KpoJIuK
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675693.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ MechoEcho (2016) [En] (1.1) License GOG
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675649.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Microsoft Classic Board Games (2000) [En] (1.0) Unofficial
 >>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667567.jpg" />
+  <img src="Z:/picture/008/save_picture_667567.jpg" />
 </div>
 
 

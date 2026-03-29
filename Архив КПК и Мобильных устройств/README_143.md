@@ -1,3 +1,29 @@
+###  Публикация: 1807710   (65113) от 20.07.2025
+
+Magic Eraser / Магический ластик v2.23.8 Mod by Maximoff⁠ [Ru/En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 19.07.2025Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEEF0C34E7AD16A417A46DA0B315BF58BDB9179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807714   (65110) от 20.07.2025
 
 Photo Lab PRO v3.13.67 Mod by Mixroot [Ru/Multi]
@@ -6,7 +32,7 @@ Photo Lab PRO v3.13.67 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65110.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Magic Eraser / Магический ластик v2.23.9 Mod by Maximoff⁠ [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65078.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ MultiTimer: МультиТаймер v1.9.1 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65005.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Cat Scanner / Сканер породы кошек v18.8.0-G Mod by vadj [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64854.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Genius Art: Image AI Generator v1.4.3 Mod by vadj [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64612.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Photo Lab PRO v3.13.68 Mod by Mixroot [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64595.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ Dog Scanner: Породы собак v19.0.0-G Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64583.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Bria Mobile: VoIP Softphone v6.20.4 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64578.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Magic Eraser / Магический ластик v2.23.11 Mod by Maximoff⁠ [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64576.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Notification Widget v1.5.186 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64528.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Notification Dots v1.2.69 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64527.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Dog Scanner: Породы собак v22.0.3-G Mod by PieMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64526.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Auto Reply: автоответчик v5.5 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64525.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64524.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64300.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Flud v1.11.2.1 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63680.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ CCleaner Pro: ПО для очистки 24.04.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63535.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Reface v4.6.1 Mod by Mixroot [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63500.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ TuneIn Radio 33.6 Paid [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63497.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ Textra SMS v4.71 Pro Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63488.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ OsmAnd+ - Карты & GPS Офлайн 4.7.3 Mod by Balatan [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63378.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63059.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ OGWhatsApp 17.70 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62988.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Lucky Patcher 11.2.6 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62760.jpg" />
 </div>
 
 
@@ -634,7 +660,7 @@ TikTok 33.8.4 Lite-Mod by Dmitry Nechiporenko + Plugin 1.29 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62749.jpg" />
 </div>
 
 
@@ -645,32 +671,6 @@ TikTok - социальное приложение для тех кто пред
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D76B62F411533F32507E845A405877F89B5628AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707747   (62655) от 17.03.2024
-
-Adobe Photoshop Express 13.1.372 (ARM64) Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop Express - ещё одно крайне нужное и полезное для фотографов приложение, которое не нуждается в представлении. Здесь, в отличие от других, пользователям предлагается более профессиональный аспект возможностей фоторедакторов. Они смогут редактировать фотографии, устранять шумы и прочие дефекты, скрывать огрехи композиции кадрированием, изменять угол, (   Читать дальше...   )Тип издания: ProРелиз состоялся: 16.03.2024Разработчик: AdobeПоддерживаемая ОС: Android 9.0+ (Только для ARM64)Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888B0E5F30179652FC23E9174F08CD47A566E061
 ```
 
 https://mybot314.ru/tekegram_catalog/

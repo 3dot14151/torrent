@@ -1,3 +1,107 @@
+###  Публикация: 493824   (248988) от 08.05.2012
+
+Orion: Dino Beatdown [En] (RePack) 2012 | CtrlAlt
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_248988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orion: Dino Beatdown - кооперативный экшен от первого лица, разработанный студией Spiral Game Studios. Пятеро игроков возьмут на себя роль штурмовика, медика и снайпера, а затем отправятся в места обитания хищных велоцирапторов и тиранозавров. Выжить против доисторических рептилий в Dino Beatdown помогут футуристические автоматы, штурмовые винтовки, дробовики и различная боевая техника.(   Читать дальше...   )Тип издания: RePackЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB928B70EDC89A0D3902286E5630F88223963AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637476   (247811) от 04.06.2023
+
+Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack Decepticon [Gold Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гнилые стены заброшенной фермы на американском Юге порождают чувство страха и одиночества. Жуткая «изолированная камера» - это новая страница в жанре survival horror. Движок RE Engine раздвигает границы ужаса - вы не сможете оторваться от экрана, настолько реалистичным будет изображение. Переживите новый чудовищный кошмар.Тип издания: RepackРазработчик: CapcomЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FA6B3689AE241785C454D783D6130398A74BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 215606   (247702) от 08.06.2023
+
+UberSoldier 2 Crimes of War / Восточный фронт Крах Анненербе (2008) [Ru] (1.0) Repack R.G.Spieler
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247702.jpg" />
+</div>
+
+
+###  Подробнее
+
+1945 год. Силы Империи Зла на исходе. Но у фашистской Германии всегда имелся козырь пострашнее танков и самолетов: секретные и полумистические изыскания института Аненербе, смесь науки и древних заклинаний, позволяющая привлечь на свою сторону могущественные и страшные потусторонние силы. Далеко в горах Тибета, в секретной лаборатории проходят чудовищные опыты по (   Читать дальше...   )Тип издания: RePackРазработчик: Burut CTЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF869557741C5F5391C9F15F2268F05AF5C92679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640323   (247536) от 17.06.2023
+
+Metal: Hellsinger (2022) [Ru/Multi] (1.7.0-68176-154/dlc) Repack DjDI [Essential Hits Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одержимый жаждой мести получеловек-полудемон. В роли Безымянной вам предстоит сражаться, проливая кровь в самых жутких уголках ада. Уничтожайте орды демонов и их предводителей, чтобы приготовиться к решающей схватке с самой Алой Судьёй. Metal: Hellsinger - это шутер от первого лица с элементами ритм-игры, в котором ваш успех зависит от умения сражаться в унисон с (   Читать дальше...   )Тип издания: RepackРазработчик: The OutsidersЖанр: Экшены, Шутeр от первого лица, Ритм-играЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF9E4D04651C37DF593FFEC6C28C3C111D30931
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582844   (247499) от 18.06.2023
 
 Chasm: The Rift (2022) [Ru/Multi] (1.0.22) License GOG
@@ -6,7 +110,7 @@ Chasm: The Rift (2022) [Ru/Multi] (1.0.22) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247499.jpg" />
+  <img src="Z:/picture/004/save_picture_247499.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2168) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247388.jpg" />
+  <img src="Z:/picture/004/save_picture_247388.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Dead Island 2 (2023) [Ru/Multi] (1.1062983.0.1/dlc) Repack DjDI [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246927.jpg" />
+  <img src="Z:/picture/004/save_picture_246927.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Dead Island 2 (2023) [Ru/Multi] (1.1062983.0.1/dlc) Scene EMPRESS [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246906.jpg" />
+  <img src="Z:/picture/004/save_picture_246906.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ The Wheel of Time (1999) [En] (333b) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242378.jpg" />
+  <img src="Z:/picture/004/save_picture_242378.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Slime Rancher 2 (2025) [Ru/Multi] (1.0.3) Repack Necros
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230531.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Ghostrunner (2020) [Ru/Multi] (0.30714.410/dlc) Repack R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229954.jpg" />
+  <img src="Z:/picture/005/save_picture_229954.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ CULTIC (2022) [En] (9714547) License DARKSiDERS
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229328.jpg" />
+  <img src="Z:/picture/004/save_picture_229328.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ OVERKILL's The Walking Dead (2018) [Ru/En] (1.1.1/dlc) Repack R.G. Механи�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228444.jpg" />
+  <img src="Z:/picture/005/save_picture_228444.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Bloodhound (2023) [Ru/Multi] (1.0) Scene Skidrow
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228228.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ Dying Light: The Following (2016) [Ru/Multi] (1.16.0 CD/dlc) Repack R.G. Catalys
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226757.jpg" />
+  <img src="Z:/picture/005/save_picture_226757.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Dispatcher (2015) [Ru/En] (1.00/upd2) SteamRip Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226651.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226502.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224502.jpg" />
+  <img src="Z:/picture/005/save_picture_224502.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.02u1/dlc) Repack R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224409.jpg" />
+  <img src="Z:/picture/005/save_picture_224409.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ XIII (2003) [Ru] (1.01) Repack anton210896
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223144.jpg" />
+  <img src="Z:/picture/005/save_picture_223144.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NecrovisioN Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] (
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222178.jpg" />
+  <img src="Z:/picture/005/save_picture_222178.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ The Chronicles of Riddick: Escape from Butcher Bay [Ru/En] (RePack) 2004 | R.G. 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221893.jpg" />
+  <img src="Z:/picture/005/save_picture_221893.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ Dishonored 2 (2016) [Ru/Multi] (1.77.9.0/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220475.jpg" />
+  <img src="Z:/picture/005/save_picture_220475.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ Dishonored: Death of the Outsider (2017) [Ru/Multi] (1.145) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220182.jpg" />
+  <img src="Z:/picture/005/save_picture_220182.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ ARAYA (2016) [En/Th] (1.1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217319.jpg" />
+  <img src="Z:/picture/005/save_picture_217319.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ Sanctum 2 (2013) [Ru/Multi] (1.4.35442) SteamRip Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217119.jpg" />
+  <img src="Z:/picture/005/save_picture_217119.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ Sanctum 2 - продолжение одной интересной гибрид�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B61FD53B071F48FB33B57D9BA77EE48EB340AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966669   (217046) от 18.12.2015
-
-Project Pulsation (2015) [Ru/En] (1.0) License HI2U
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некогда, очень давно, корпорация "Комплекс" проводила жуткие эксперименты над людьми, скрещивая их с представителями инопланетных расс. Однако однажды что-то пошло не так, и на станции произошла гигантских масштабов катастрофа, уничтожив все живое. Или почти, все... В "Комплесе" остались "плоды" деятельности корпорации - неизвестные (   Читать дальше...   )Тип издания: LicenseРазработчик: Vitaly GintsarЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: -/-Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:955EBB7DC2791798AC9D329160BB4E96A905422E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514113   (216248) от 03.12.2021
-
-Madness Beverage (2021) [En] (7802120) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Madness Beverage – шутер от первого лица, события которого разворачиваются в космосе: на опасных планетах, в отдаленных замках и адских подземельях. Путешествуйте по галактике в роли космического пирата и сражайтесь с демонами, которых освободил злодей Манос. Используйте разнообразное оружие и крепкие напитки, наделяющие вас особыми способностями, для расправы над (   Читать дальше...   )Тип издания: LicenseРазработчик: Blue Sunset Games, Console Labs S.A.Жанр: Экшн (Боевик от первого лица)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6060F83C586E9D99814ACF5EF4930ABB32120F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342979   (215532) от 07.12.2019
-
-Aim Hero (2016) [Ru/En] (0.158) Portable Devint
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aim Hero - это идеальное решение для тренировки точности стрельбы, чтобы добиться большего успеха в FPS играх. Aim Hero (Аим Хиро) – компьютерный проект, где тебе предоставится возможность проявить свои навыки и отточить способности в плане точности стрельбы по мишеням. Aim Hero является не игрой, как таковой, а обучающим симулятором шутерной стрельбы по целям. Пользователям (   Читать дальше...   )Тип издания: PortableРазработчик: ProGames StudioЖанр: FPSЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD002E5050FFA2FF548BFC445B85A8442733974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085207   (215247) от 20.12.2016
-
-Behind the Memory (2016) [En/Es] (1.1.4.1) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Behind the Memory — игра от первого лица, в которой вы играете за человека по имени Гектор возвратившегося домой после нескольких лет отсутствия. Его попытка убежать от своего прошлого каждый раз будет погружать вас в путешествие, чтобы обнаружить те секреты, которые преследуют его ...Тип издания: LicenseРазработчик: GuraShopЖанр: Adventure, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C316DC365E0DEBE6304AD210EBE97A395A6FECE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

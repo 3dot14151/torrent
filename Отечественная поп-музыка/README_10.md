@@ -1,3 +1,90 @@
+###  Публикация: 1216753   (747708) от 01.04.2018
+
+Сергей Лазарев (Sergey Lazarev) - The One (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Put Out The Fire
+02. Eat You Up
+03. Going Under
+04. Deep Blue(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:39:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB20EE5B4964EE74944C03CB0D70CA820960350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282687   (743611) от 13.02.2019
+
+Вельвет - Тонкая красная линия (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743611.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Сердце моё
+3. Тонкая красная линия
+4. Не молчи(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A11F6C02412725BAFB8E5860D22FEC61576FC5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397532   (739829) от 21.07.2020
+
+Балаган Лимитед - Ремиксы (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_739829.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вася-Василёк (Remix)
+2. Чтоб тебя
+3. Ой там на гори
+4. Атия-атия(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FBCEE11CE94088DE37AC878ACDC42FBAC263A11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397719   (737593) от 22.07.2020
 
 Вячеслав Малежик - Чайки (2020) [MP3|320 Kbps] <Pop>
@@ -6,7 +93,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737593.jpg" />
+  <img src="Z:/picture/008/save_picture_737593.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736567.jpg" />
+  <img src="Z:/picture/008/save_picture_736567.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ VA - Первый дачный, Vol.3 (2017) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730474.jpg" />
+  <img src="Z:/picture/008/save_picture_730474.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Mozgi - На белом (2017) [MP3|320 Kbps] <Pop, Dance-Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728435.jpg" />
+  <img src="Z:/picture/008/save_picture_728435.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725849.jpg" />
+  <img src="Z:/picture/008/save_picture_725849.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Siberian Heat & Elen Cora - Brilliants: Best Of US (2015) LP, Compilation [OGG|3
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720547.jpg" />
+  <img src="Z:/picture/008/save_picture_720547.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720333.jpg" />
+  <img src="Z:/picture/008/save_picture_720333.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Lika Star - The Best (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718923.jpg" />
+  <img src="Z:/picture/008/save_picture_718923.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718657.jpg" />
+  <img src="Z:/picture/008/save_picture_718657.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717175.jpg" />
+  <img src="Z:/picture/008/save_picture_717175.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716155.jpg" />
+  <img src="Z:/picture/008/save_picture_716155.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715448.jpg" />
+  <img src="Z:/picture/008/save_picture_715448.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714810.jpg" />
+  <img src="Z:/picture/008/save_picture_714810.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714766.jpg" />
+  <img src="Z:/picture/008/save_picture_714766.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711939.jpg" />
+  <img src="Z:/picture/008/save_picture_711939.jpg" />
 </div>
 
 
@@ -447,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709269.jpg" />
+  <img src="Z:/picture/005/save_picture_709269.jpg" />
 </div>
 
 
@@ -473,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_709266.jpg" />
+  <img src="Z:/picture/005/save_picture_709266.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707997.jpg" />
+  <img src="Z:/picture/008/save_picture_707997.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701723.jpg" />
+  <img src="Z:/picture/008/save_picture_701723.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Reflex (Ирина Нельсон) - Гарем2 (2019) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_701490.jpg" />
+  <img src="Z:/picture/005/save_picture_701490.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701351.jpg" />
+  <img src="Z:/picture/008/save_picture_701351.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700803.jpg" />
+  <img src="Z:/picture/008/save_picture_700803.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699950.jpg" />
+  <img src="Z:/picture/008/save_picture_699950.jpg" />
 </div>
 
 
@@ -658,89 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C5485B197787513B8E4C1D472B8A738D51C9652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211566   (696215) от 19.06.2010
-
-Блестящие - 7 альбомов (1997-2006) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:07:09
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403162   (694148) от 18.08.2020
-
-Чёртово колесо инженера Ферриса - Funeral Sex (2020) [MP3|320 Kbps] <Power Pop, Dance Punk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Где же дьявол, когда он тебе так нужен?
-2. Добрым, смелым и честным
-3. Разбудите меня!
-4. Пожиратели Русской смерти(   Читать дальше...   )Жанр: Power Pop, Dance PunkПродолжительность: 00:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253F2D8364D36D83BEF3BCB26D026EDAB6848008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 212006   (692609) от 21.06.2010
-
-Чернильное небо - Дискография  (2001-2010) [MP3|320 kbps]<POP>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вокал: Екатерина Лазарева, Сергей Дядюн
-Слова, музыка и аранжировка: Сергей Дядюн
-В настоящее время работа над проектом закрыта.Жанр: POPПродолжительность: 09:57:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

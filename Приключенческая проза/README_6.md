@@ -1,3 +1,29 @@
+###  Публикация: 1730608   (53116) от 16.06.2024
+
+Таня Джеймс | Добыча (2024) [EPUB]
+
+>>Художественная литература
+>>Приключенческая проза
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец ХVIII века. Индийский город Майсур. Юный резчик по дереву Аббас работает вместе с французским изобретателем Люсьеном Дю Лезом над созданием рычащего механического тигра. Тигр должен стать величайшим сокровищем в коллекции Типу Султана. Однако в Майсур приходят англичане, дворец Типу Султана разграблен, автоматон в качестве военного трофея уезжает в Британию. (   Читать дальше...   )Жанр: Исторический романПеревод: Евгения МакароваИздательство: ЛайвбукФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091801BF0069D338C4839CBA8F3503CFF44A4CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820333   (548) от 27.09.2025
 
 Лев Константинов (Корнешов) | Удар мечом (1970) [PDF]
@@ -6,7 +32,7 @@
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_548.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_527.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_521.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_520.jpg" />
 </div>
 
 

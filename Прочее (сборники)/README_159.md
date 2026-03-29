@@ -1,3 +1,206 @@
+###  Публикация: 1661623   (188460) от 15.09.2023
+
+VA - Music News vol.298 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marina Marx - It's My Life (03:39)
+ 002. 4EREDA - Никотин (02:39)
+ 003. 5УТРА - В Темноте (02:30)
+ 004. Adil - Купидон (02:28)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:21:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964C8D3ED2E53501FBE6A9249852725AE9133143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591033   (187694) от 16.11.2022
+
+VA - Sexy Bath 2 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - After Hours (6:01)
+02. Ezhel - Küvet (5:01)
+03. Rihanna - Loveeeeeee Song (4:56)
+04. Cigarettes After Sex - Apocalypse (4:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E1E8232E57FE92D27888CCD30DD61C6DC2EF2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662415   (187419) от 19.09.2023
+
+Kerala Dust - Compilation (2023) [MP3|320 Kbps] <Experimental, Blues House, Deep House, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187419.jpg" />
+</div>
+
+
+###  Подробнее
+
+02. Kylie
+03. Maria
+04. Moonbeam, Midnight, Howl
+05. Night Bell (Arizona)(   Читать дальше...   )Жанр: Experimental, Blues House, Deep House, DowntempoПродолжительность: 01:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D00C4906097188B207DFBAB0639941733FFDF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591317   (187024) от 18.11.2022
+
+VA - 30(16) Новые Песни (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Баста - Вечно Молодой (4:28)
+02. Леонид Агутин Feat. Jony - Мир Зеленого Цвета (3:52)
+03. Лолита - Марлен (3:38)
+04. Руки Вверх, Hammali & Navai - Последний Поцелуй (Malevich Remix) (3:35)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C0CEFB41EAB2CBC622881F6C43117A04306919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663708   (186399) от 23.09.2023
+
+VA - Music News vol.299 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_186399.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alina Baraz - Keep Me In Love (02:36)
+ 002. Adil - Госпожа (Speed Up) (02:19)
+ 003. Alan Walker - The Spectre (Slowed Remix) (03:35)
+ 004. Alena Letova - Без Тебя (Glazur & XM Remix) (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84843D2AE7A4BF49E8DA7F3ACFA1410E72260C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663762   (186382) от 23.09.2023
+
+VA - Music News vol.300 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_186382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gerda - О Тех, Кем Не Стали (Alternative Version) (02:42)
+ 002. 4ETVERGOV feat. Dyadya Dasiaga - Токен (02:26)
+ 003. 070 Shake - Black Dress (03:57)
+ 004. A7S - Dumb (VIP Remix) (04:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A66DC0997F59CC2982C31B90FB34E9AF7A81205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426631   (186049) от 25.11.2020
+
+VA - Music News vol.51 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_186049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indira - На Краю Неба (03:28)
+ 02. Amelia - Mare Rosso (03:41)
+ 03. Andro - Любит Пироги (02:02)
+ 04. Angelica - L'ultimo Bicchiere (03:22)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 04:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629FAD7A0E1ACA8A9EA139D1C8C353E8001D8CEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591970   (185230) от 20.11.2022
 
 VA - В машине с музыкой Vol.319 (2022) MP3 [320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -6,7 +209,7 @@ VA - В машине с музыкой Vol.319 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185230.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ VA - В машине с музыкой Vol.320 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185133.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ VA - Surf Rock Compilation Part 34 (2023) [MP3|320 Kbps] <Surf Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184638.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ VA - Music News vol.301 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184569.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ VA - Oldest  Dream Machine (2020) 2CD [MP3|320 Kbps] <Rock, Glam Rock, Pop>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183673.jpg" />
+  <img src="Z:/picture/004/save_picture_183673.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ VA - МАГНИТОАЛЬБОМЫ (1976-2009) [MP3|128-320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183338.jpg" />
 </div>
 
 
@@ -179,7 +382,7 @@ VA - ЕвроХит Топ 40 Europa Plus 27.11.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183219.jpg" />
+  <img src="Z:/picture/004/save_picture_183219.jpg" />
 </div>
 
 
@@ -208,7 +411,7 @@ VA - Dance, Disco, Club (2023) [MP3|320 Kbps] <Dance, Disco, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182906.jpg" />
 </div>
 
 
@@ -237,7 +440,7 @@ VA - Music News vol.302 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182158.jpg" />
 </div>
 
 
@@ -266,7 +469,7 @@ VA - Music News vol.52 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181381.jpg" />
+  <img src="Z:/picture/005/save_picture_181381.jpg" />
 </div>
 
 
@@ -295,7 +498,7 @@ VA - ЕвроХит Топ 40 Europa Plus 29.09.2023 [MP3|256-320 Kbps] <Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181196.jpg" />
 </div>
 
 
@@ -324,7 +527,7 @@ VA - Disco Coco Bongo Compilation (2022) [MP3|320 Kbps] <Italo Dance, Club, Euro
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180868.jpg" />
 </div>
 
 
@@ -353,7 +556,7 @@ VA - В машине с музыкой Vol.321 (2022) MP3 [320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180847.jpg" />
 </div>
 
 
@@ -382,7 +585,7 @@ VA - ЕвроХит Топ 40 Europa Plus 25.11.2022 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180810.jpg" />
 </div>
 
 
@@ -411,7 +614,7 @@ VA - Dance Hits (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179638.jpg" />
 </div>
 
 
@@ -440,7 +643,7 @@ VA - OST - Самые эпичные саундтреки (Sound Clinic - Epic O
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179187.jpg" />
+  <img src="Z:/picture/005/save_picture_179187.jpg" />
 </div>
 
 
@@ -469,7 +672,7 @@ VA - Громкие новинки Декабря (2020) [MP3|320 Kbps] <Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179072.jpg" />
+  <img src="Z:/picture/005/save_picture_179072.jpg" />
 </div>
 
 
@@ -498,7 +701,7 @@ VA - Music News vol.303 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_178771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_178771.jpg" />
 </div>
 
 
@@ -527,7 +730,7 @@ VA - ЕвроХит Топ 40 Europa Plus 04.12.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178240.jpg" />
+  <img src="Z:/picture/005/save_picture_178240.jpg" />
 </div>
 
 
@@ -541,209 +744,6 @@ VA - ЕвроХит Топ 40 Europa Plus 04.12.2020 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DDD16F322056D48D282A919C8812D35788E76C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429242   (177557) от 05.12.2020
-
-VA - Music News vol.53 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177557.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elli - Любить (03:18)
- 002. 5WEST - Last Time (Kokiri Remix) (03:04)
- 003. 24kgoldn feat. DaBaby - Coco (02:22)
- 004. A.T & Merik - Девочка Востока (02:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115058100D4A9F781C09B9B6EF299199E082A856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667162   (177382) от 07.10.2023
-
-VA - Music News vol.304 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юля Паршута - Играя в Минор (02:41)
- 002. Alex Matthew feat. Silvia - Ultima Vara (02:56)
- 003. Alex Say feat. Subo - Зараза (Elvira T Remix) (02:19)
- 004. Ami - Nostalgia (03:16)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F145D15B67F706FD2BD2E696C6092F5BBD5416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429274   (176703) от 06.12.2020
-
-VA - Music News vol.54 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176703.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Inna - Thicky (03:05)
- 002. Amanda Tenfjord - Then I Fell In Love (03:32)
- 003. ANIKV - Лень (02:19)
- 004. ANIKV - Молодость (03:29)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1ACF8A129DD206F80CF276F801F4324C201F29F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594538   (176631) от 03.12.2022
-
-VA - Music News vol.228 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176631.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Berezhnaya feat. Паша Руденко - Ревность (03:26)
- 002. 84 feat. Nebezao - Узумаки (02:26)
- 003. A1JR feat. Wagner - Youngers In Сharge (03:00)
- 004. Adriana Onci feat. DJ Sava - Deep End (Lesfunk Remix) (02:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564E6870C62B59333E7098F5FFE1519DFBC6748E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595180   (175886) от 04.12.2022
-
-VA - Русские Хиты 6 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175886.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Zarubin - Open My Heart (5:14)
-002. Чёрный Крем, Deeper Craft - Девушка мечты (Deeper Craft Remix) (4:55)
-003. Ноггано - Эквадор (4:54)
-004. Max Wawe - Fire (4:52)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 08:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA8473F818FD4580D831ECE36B2C72C591306C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429685   (175754) от 07.12.2020
-
-VA - не Громкие новинки недели 90 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AEHO - Проснись (3:25)
-02. ANIKV - Лень (2:18)
-03. Arik - Заново (3:42)
-04. Chris Yank - Крейзи Love (2:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB027BA0722C6FA85731D8D223D639404D96A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595497   (175462) от 05.12.2022
-
-VA - Music News vol.229 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175462.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eline Noelia feat. Falito - Unholy (02:27)
- 002. Akon feat. Amirror - Prolly Fuck (02:08)
- 003. Akon feat. John Mamann & Dawty Music - TT Freak (01:32)
- 004. Alessiah - Breeze Of Love (Sean Norvis Remix) (02:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C254C454F5358061CADC77980781B7CA877724C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

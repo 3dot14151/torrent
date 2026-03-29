@@ -1,3 +1,108 @@
+###  Публикация: 1646049   (195856) от 12.07.2023
+
+Неизведанное: Роботы-убийцы / Unknown: Killer Robots (2023) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>Мир будущего
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что происходит, когда машина принимает решения о жизни и смерти? Этот документальный фильм рассказывает об опасностях, связанных с военным применением искусственного интеллекта.Производство: США, Netflix, Story SyndicateЖанр: документальный, военные технологииРежиссер: Джесси СуитУчастники: Джон Бардин, Мала Чаппл, Дэн Коган, Лиз Гарбус,Перевод: многоголосый профессиональный (HDRezka Studio)Язык озвучки: русскийСубтитры: русские (forced, HDRezka, full), английскиеПродолжительность: 01:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8601A048F3B6F64A9D88B01C095F6FDC85924DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408915   (195674) от 16.07.2023
+
+Биосфера. Законы жизни (Смерть) (2018) WEBRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_195674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему одни задерживаются в этой жизни дольше других... и зачем природа придумала смерть? Ответив на эти вопросы, мы выведем шестой закон биосферы. Наша планета населена огромным количеством живых организмов. Только животных за всю историю Земли насчитывается около 2 миллиардов видов. А сколько на ней обитало и обитает сейчас растений, водорослей, грибов, лишайников, (   Читать дальше...   )Производство: Россия, ООО "ЕМГ"Жанр: Документальный, познавательный, научно-популярныйРежиссер: Алексей ЧукаревУчастники: Андрей ШестаковЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4C70CBE7EC348138EBF0C35E1C89885384BE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537582   (195477) от 18.07.2023
+
+PBS: Американский опыт: Осуждение Роберта Оппенгеймера / The American Experience: The Trials of J. Robert Oppenheimer (2009) HDTVRip [Сезон 21: эпизод 1]
+
+>>Зарубежные TV-бренды
+>>PBS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_195477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский опыт (The American Experience), документальный сериал, освещающий наиболее интересные события американской истории.
+Биография Роберта Оппенгеймера – одной из ключевых и неоднозначных фигур в американской науке ХХ столетия. Номинант Оскара, актер Дэвид Стрэтэйрн («Доброй ночи и удачи», «Ультиматум Борна») исполняет роль Роберта Оппенгейма. В фильм также (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Дэвид ГрубинУчастники: Дэвид СтретхернПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: АнглийскийПродолжительность: 01:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCABE69F65ACD66BE0D3A665676CFC0514D970AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646094   (195322) от 24.07.2023
+
+NG: Расследования Авиакатастроф / Mayday / Air Crash Investigation (2023) WEB-DLRip [H.264/720p-LQ] (сезон 23, серии 1-10 из 10)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реконструкция реальных воздушных катастроф, интервью с авиационными специалистами и очевидцами происшествий.Производство: Канада, Cineflix Productions, Galaxie Productions, NF Inc.Жанр: документальный, история, катастрофыРежиссер: Тим Волочатюк, Mark Mainguy, Джордж Д’АматоУчастники: Джонатан Арис, Стивен Богерт, Джон Кокс, Джон Дж. Нэнс, Грегори Файт, Robert Benzon, Ron Schleede, Bob Macintosh, Tom Haueter, David Learmount и др.Перевод: Двухголосый профессиональныйЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: каждая серия ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AB66CE2B3ECB9C4772FB68069636637B029659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649629   (195142) от 28.07.2023
 
 Призраки рейса 401 / Ghosts of Flight 401 (2022) WEB-DL [H.264/1080p]
@@ -6,7 +111,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195142.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ NG. Затонувшие сокровища нубийских фараонов 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195075.jpg" />
+  <img src="Z:/picture/004/save_picture_195075.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ NG. Линии Наски: Раскрытые тайны / Nasca Lines: Unlockin
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195069.jpg" />
+  <img src="Z:/picture/004/save_picture_195069.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195051.jpg" />
+  <img src="Z:/picture/004/save_picture_195051.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ NG: Самые опасные животные: От пустыни до сав�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195039.jpg" />
+  <img src="Z:/picture/004/save_picture_195039.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ NG. Самая огромная акула-бык / World's Biggest Bull Shark (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195035.jpg" />
+  <img src="Z:/picture/004/save_picture_195035.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ NG. 700 Акул / 700 Sharks (2018) WEB-DL [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195004.jpg" />
+  <img src="Z:/picture/004/save_picture_195004.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194981.jpg" />
+  <img src="Z:/picture/004/save_picture_194981.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194978.jpg" />
+  <img src="Z:/picture/004/save_picture_194978.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ BBC: Хиросима / Hiroshima (2005) DVDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194581.jpg" />
+  <img src="Z:/picture/004/save_picture_194581.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194543.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194499.jpg" />
+  <img src="Z:/picture/004/save_picture_194499.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194038.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193776.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ BBC Horizon: Плутон: Восставший из мёртвых / Pluto: Bac
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193602.jpg" />
+  <img src="Z:/picture/004/save_picture_193602.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192809.jpg" />
+  <img src="Z:/picture/004/save_picture_192809.jpg" />
 </div>
 
 
@@ -422,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192632.jpg" />
 </div>
 
 
@@ -448,7 +553,7 @@ Discovery: Тайны катакомб Ватикана / Mystery Of The Lost Ca
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192623.jpg" />
 </div>
 
 
@@ -474,7 +579,7 @@ Discovery: В поисках Святого Грааля / In Search of the Holy
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192385.jpg" />
 </div>
 
 
@@ -500,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192224.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191796.jpg" />
 </div>
 
 
@@ -552,7 +657,7 @@ Discovery: Последние тайны "Титаника" / Last Mysteries of 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191172.jpg" />
 </div>
 
 
@@ -563,110 +668,6 @@ Discovery: Последние тайны "Титаника" / Last Mysteries of 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD21786C16A529E375FAEE71409A3FC751345C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 261789   (190955) от 06.11.2022
-
-NG: Секреты истории - Эксперименты ЦРУ: Контроль над сознанием / The Secret History. CIA: Mind Control (2007) HDTVRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_190955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разгар холодной войны. В Нью-Йорке при странных обстоятельствах из окна отеля выпадает человек. В Кентукки в рамках секретного эксперимента в течение месяца заключенным дают ЛСД. В Монреале психиатр подвергает своих пациентов сотням разрядов электрошока. Насколько далеко зашло Центральное разведывательное управление в борьбе с коммунистической угрозой? Бактериальные (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F810C3B463A41410A289BEC2375A99DF44ADB2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589283   (190541) от 08.11.2022
-
-Discovery. Потерянный город Тутанхамона / Tut's Lost City Revealed (2022) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Археолог Захи Хавасс открывает забытый город, таящий секреты последних дней Тутанхамона.Производство: Великобритания, At Land ProductionsЖанр: документальный, историяРежиссер: Катерина ТуррониПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F74F740ED836BA1733776B0010C719F353805CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589288   (190510) от 08.11.2022
-
-History Channel: Древние пришельцы / Ancient Aliens (2021) WEB-DL [H.264/1080p-LQ] (сезон 17, серии 1-7 из 7) [VO]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190510.jpg" />
-</div>
-
-
-###  Подробнее
-
-В телесериале рассказывается о различных аспектах теории палеоконтакта и высказываются предположения, что исторические тексты, археологические свидетельства и легенды народов мира содержат доказательства контактов человека с внеземными цивилизациями в прошлом.Производство: США, Prometheus Entertainment, A&E Television Networks, LLC., History ChannelЖанр: Документальный, научно-популярный, уфологияРежиссер: Джон Леви, Кевин БарнсПеревод: одноголосый любительский (Vlad Dorf)Субтитры: отсутствуютПродолжительность: серии x ~00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E65FA27564A6A56CEC72573BE57A35F0AFAF75D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658957   (190462) от 10.09.2023
-
-Акулы в ледяных водах / Shark Below Zero (2023) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страх и ужас охватили живописное побережье на западе острова Кейп-Бретон. В августе 2021 года Канаду шокировали новости о нападении акулы. На Кейп-Бретоне девушку двадцати одного года отправили в больницу после нападения акулы. Это первое подтвержденное нападение акулы в канадских водах более чем за 150 лет. И последнее из серии загадочных случаев, когда на восточном (   Читать дальше...   )Производство: Великобритания, Big Wave Productions, National GeographicЖанр: документальный, исследованияРежиссер: Марк ВудвордУчастники: Хизер Боулби, Шон Бойс Джонсон, Уоррен ДжойсПеревод: двуголосый профессиональный (Велес)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99BC542E5064F8E8AAF8FC6BF96676DFEA12D4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

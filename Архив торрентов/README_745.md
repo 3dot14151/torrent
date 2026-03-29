@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884009.jpg" />
+  <img src="Z:/picture/005/save_picture_884009.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Reason Studios Reason 12.2.0 STANDALONE, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884008.jpg" />
+  <img src="Z:/picture/005/save_picture_884008.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ iShowU Studio 2 v2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884002.jpg" />
+  <img src="Z:/picture/005/save_picture_884002.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Integrity Pro 9.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884001.jpg" />
+  <img src="Z:/picture/005/save_picture_884001.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ WebVideoHunter Pro 6.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884000.jpg" />
+  <img src="Z:/picture/005/save_picture_884000.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ EverWeb (Standalone) 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883999.jpg" />
+  <img src="Z:/picture/005/save_picture_883999.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Dash 5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883996.jpg" />
+  <img src="Z:/picture/005/save_picture_883996.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ iShowU Instant (Advanced) 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883995.jpg" />
+  <img src="Z:/picture/005/save_picture_883995.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ TwistedWave 1.23.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883992.jpg" />
+  <img src="Z:/picture/005/save_picture_883992.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ IrfanView 4.42 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883938.jpg" />
+  <img src="Z:/picture/005/save_picture_883938.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Norton Internet Security 22.6.0.142 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883936.jpg" />
+  <img src="Z:/picture/005/save_picture_883936.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ X-Marks The Pedwalk - Inner Zone Journey (2010) [MP3|320 kbps]<EBM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883913.jpg" />
+  <img src="Z:/picture/005/save_picture_883913.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Your Infamous Harp - Escapes From the Cage (2009) [MP3|320 kbps]<Glitch / IDM / 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883894.jpg" />
+  <img src="Z:/picture/005/save_picture_883894.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Slidepad 1.0.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883862.jpg" />
+  <img src="Z:/picture/005/save_picture_883862.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Firefox Browser 74.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883857.jpg" />
+  <img src="Z:/picture/005/save_picture_883857.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Mozilla Firefox Quantum ESR 68.6.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883854.jpg" />
+  <img src="Z:/picture/005/save_picture_883854.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ MediaInfo 20.03 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883848.jpg" />
+  <img src="Z:/picture/005/save_picture_883848.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Acronis Backup Advanced Workstation / Server 11.7.44411 + BootCD [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883825.jpg" />
+  <img src="Z:/picture/005/save_picture_883825.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ DevExpress Universal Complete 15.2.5 Build 20160129 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883815.jpg" />
+  <img src="Z:/picture/005/save_picture_883815.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ oMega Commander 3.0.47 Build 5687 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883791.jpg" />
+  <img src="Z:/picture/005/save_picture_883791.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Realtek High Definition Audio Driver 6.0.9205.1 WHQL (Unofficial) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883779.jpg" />
+  <img src="Z:/picture/005/save_picture_883779.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883776.jpg" />
+  <img src="Z:/picture/005/save_picture_883776.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883753.jpg" />
+  <img src="Z:/picture/005/save_picture_883753.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Complete Internet Repair 5.2.3.4060 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883750.jpg" />
+  <img src="Z:/picture/005/save_picture_883750.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883747.jpg" />
+  <img src="Z:/picture/005/save_picture_883747.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883743.jpg" />
+  <img src="Z:/picture/005/save_picture_883743.jpg" />
 </div>
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1315051   (515696) от 17.07.2019
+
+Большой брат / Dai si hing (2018) HDRip [MVO]
+
+>>След.
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непростой школьный учитель обладает полезными умениями, и, как водится в таких случаях, темным прошлым в придачу. Необычными методами преподавания он борется с неуспеваемостью и хромающей дисциплиной в классе, чем завоевывает любовь и уважение своих подопечных. Однажды в поисках пропавшего ученика он столкнется с преступной бандой и продемонстрирует им свои навыки (   Читать дальше...   )Производство: Гонконг / Bullet Films, Mega-Vision Pictures (MVP)Жанр: Боевик, комедияРежиссер: Кам Ка-ВайАктеры: Донни Йен, Джо Чэнь, Кан Юй, Брахим Ачаббаке, Альфред Чун, Джей Дэй, Семиквавер ИафетаПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7011C5271568E0A68DDD3BC0F7679633250DE7CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315175   (514925) от 18.07.2019
 
 Искусство Шаолиня – змея и журавль / She he ba bu / Snake and Crane Arts of Shaolin (1978) DVDRip [H.264]
@@ -6,7 +32,7 @@
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514925.jpg" />
+  <img src="Z:/picture/008/save_picture_514925.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514563.jpg" />
+  <img src="Z:/picture/008/save_picture_514563.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512773.jpg" />
+  <img src="Z:/picture/008/save_picture_512773.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512710.jpg" />
+  <img src="Z:/picture/008/save_picture_512710.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512512.jpg" />
+  <img src="Z:/picture/008/save_picture_512512.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512248.jpg" />
+  <img src="Z:/picture/008/save_picture_512248.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511394.jpg" />
+  <img src="Z:/picture/008/save_picture_511394.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510227.jpg" />
+  <img src="Z:/picture/008/save_picture_510227.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509105.jpg" />
+  <img src="Z:/picture/008/save_picture_509105.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506887.jpg" />
+  <img src="Z:/picture/008/save_picture_506887.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ S.P.L. Звезды судьбы 2 / Saat po long 2 (2015) HDTVRip
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505857.jpg" />
+  <img src="Z:/picture/008/save_picture_505857.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505312.jpg" />
+  <img src="Z:/picture/008/save_picture_505312.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503382.jpg" />
+  <img src="Z:/picture/008/save_picture_503382.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500020.jpg" />
+  <img src="Z:/picture/008/save_picture_500020.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500018.jpg" />
+  <img src="Z:/picture/008/save_picture_500018.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499269.jpg" />
+  <img src="Z:/picture/008/save_picture_499269.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497692.jpg" />
+  <img src="Z:/picture/008/save_picture_497692.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495881.jpg" />
+  <img src="Z:/picture/008/save_picture_495881.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495049.jpg" />
+  <img src="Z:/picture/008/save_picture_495049.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491988.jpg" />
+  <img src="Z:/picture/008/save_picture_491988.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491951.jpg" />
+  <img src="Z:/picture/008/save_picture_491951.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491530.jpg" />
+  <img src="Z:/picture/008/save_picture_491530.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491527.jpg" />
+  <img src="Z:/picture/008/save_picture_491527.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491183.jpg" />
+  <img src="Z:/picture/008/save_picture_491183.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491107.jpg" />
+  <img src="Z:/picture/008/save_picture_491107.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEDD94897471CEB27A0D2C8CC2831F22DA961A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544236   (490977) от 07.09.2012
-
-Цветы войны / The Flowers of War (2011) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на реальных событиях. Действия разворачиваются в период японо-китайской войны. Главный герой, американский гробовщик Джон, направляется в Католическую церковь в Нанкине, чтобы подготовить священника к похоронам. По прибытию он оказывается единственным мужчиной среди учениц монастыря и проституток из соседнего борделя в эпицентре военных действий. Оказавшись в таком положении, он выдаёт себя за священника и пытается спасти обе группы от ужасов вторжения японской армии…Жанр: Драма, ВоенныйРежиссер: Чжан ИмоуАктеры: Кристиан Бэйл, Пол Шнайдер, Ни Ни, Тун Давэй, Синю Чжан, Шоун Доу, Ацуро Ватабэ, Не Юань, Шигео Кобаяши, Тяньюань ХуангПеревод: ДублированныйПродолжительность: 02:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA96B7866CAF87BB1DE82FD4356BD76F3124E64F
 ```
 
 https://mybot314.ru/tekegram_catalog/

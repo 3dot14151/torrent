@@ -1,3 +1,109 @@
+###  Публикация: 1169666   (401991) от 28.09.2017
+
+Dishonored: Death of the Outsider (2017) [Ru/En] (1.142.3.8) Repack R.G. Механики
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прославленная студия-разработчик Arkane Studios представляет Dishonored: Death of the Outsider, очередную самостоятельную главу серии Dishonored, высоко оцененной критиками. Вам снова предстоит роль ассасина со сверхъестественными способностями, на этот раз - печально известной Билли Лерк.Тип издания: RepackРазработчик: Arkane StudiosЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D5F151779C72329345AABE90692F6C02A1224E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170820   (398270) от 02.10.2017
+
+Home Sweet Home (2017) [Ru/Multi] (1.0.1) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_398270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Тима кардинально изменилась с тех пор, как его жена таинственно исчезла. В одну ночь, после долгого страдания, он просыпается в незнакомом месте, не в своем доме. Но выбраться из этого места мешает призрак неизвестной женщины. Сможет ли Тим выжить? Действительно ли это место в его доме? Связано ли это с исчезновением его жены? Поэтому сначала придется выяснить, (   Читать дальше...   )Тип издания: RepackРазработчик: YGGDRAZIL GROUP CO.,LTDЖанр: Adventure (Horror), 3D, 1st PersonЯзык озвучки: Английский, ТайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BC039D58F2E1320E4D4AFE42C17223282FB9B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569928   (391425) от 03.11.2012
+
+007 Legends [Ru] (Repack) 2012 | Fenixx
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот секретный агент вооружен и чрезвычайно опасен. Он – единственная защита демократии от преступных синдикатов и свихнувшихся лидеров развивающихся стран. У него самые красивые напарницы и самые смертоносные изобретения, когда-либо созданные в лабораториях Mi6. Его зовут Бонд. Джеймс Бонд. И только он сможет выполнить задания, которые изменят мир.
+ Новая игра 007 Legends позволит всем поклонникам Бонда пережить самые значимые моменты его карьеры. Сюжет игры строится на шести голливудских блокбастерах о приключениях самого популярного в мире секретного агента, включая новый фильм «007: Координаты «Скайфолл». Воспользуйтесь уникальным шпионским снаряжением, устройтесь за рулем навороченных автомобилей и разрушьте коварные замыслы врагов с помощью внушительного арсенала различного оружия. Враги умеют убивать, но с вами им не сравниться; вас ждут боевые навыки и приемы, головокружительные спецэффекты… и конечно, красавицы, ставшие визитной карточкой Агента 007!(   Читать дальше...   )Тип издания: RepackРазработчик: EurocomЖанр: Action \ FPSЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FF795CB8C70BD539CE61C00629C406155F536F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569144   (391390) от 03.11.2012
+
+007 Legends [Ru/En/Multi4] (Steam-Rip/1.0) 2012 | R.G. Origins
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_391390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый игровой блокбастер 007 Legends, подготовленный к пятидесятилетию всемирно известной франшизы, позволит игрокам вспомнить ключевые моменты и выполнить самые захватывающие задания из популярных фильмов о Джеймсе Бонде. Первая и единственная игра подобного масштаба, 007 Legends отличается оригинальным сюжетом, основанным на событиях шести классических кинокартин о похождениях секретного агента, в том числе нового, двадцать третьего фильма «007: Координаты «Скайфолл». Игроков ожидает экшен, достойный самого Бонда, а также уникальное шпионское снаряжение, внушительный арсенал оружия и подборка навороченных автомобилей. Вооружившись до зубов и приготовившись к смертельно опасным заданиям, игроки столкнутся с культовыми злодеями, в борьбе с которыми все средства хороши.
+ Вас ждут боевые навыки и приемы, головокружительные спецэффекты… и конечно, красавицы, ставшие визитной карточкой Агента 007.(   Читать дальше...   )Тип издания: Цифровая ЛицензияРазработчик: EurocomЖанр: Action \ FPSЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык интерфейса: Русский, Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E26FE2DEE2AE77142F2FAFBA8FBC6BAB49AD2D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140524   (390962) от 10.10.2017
 
 Immortal Redneck (2017) [Ru/Multi] (1.3.2) Repack Other s
@@ -6,7 +112,7 @@ Immortal Redneck (2017) [Ru/Multi] (1.3.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390962.jpg" />
+  <img src="Z:/picture/008/save_picture_390962.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Call of Duty: Modern Warfare 2 (2009) [Ru] (1.2.208) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390952.jpg" />
+  <img src="Z:/picture/008/save_picture_390952.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388760.jpg" />
+  <img src="Z:/picture/008/save_picture_388760.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ Putrefaction 2: Rumble in the hometown (2017) [Ru/En] (1.0а) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388705.jpg" />
+  <img src="Z:/picture/008/save_picture_388705.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ Crysis Warhead (2008) [Ru/Multi] (1.1.1.711) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388534.jpg" />
+  <img src="Z:/picture/008/save_picture_388534.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ Crysis / Wreckage [Ru/En/De] (RePack/Mod) 2012 | dr.Alex
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386656.jpg" />
+  <img src="Z:/picture/008/save_picture_386656.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ Wolfenstein (2009) [Ru] (1.2) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383313.jpg" />
+  <img src="Z:/picture/008/save_picture_383313.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ Bulletstorm (2011) [Ru] (1.0.7147/dlc) Rip R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382510.jpg" />
+  <img src="Z:/picture/008/save_picture_382510.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ Homefront: The Revolution (2016) [Ru] (1.0781467/dlc) Repack Other s [Freedom Fi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382494.jpg" />
+  <img src="Z:/picture/008/save_picture_382494.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381370.jpg" />
+  <img src="Z:/picture/008/save_picture_381370.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381235.jpg" />
+  <img src="Z:/picture/008/save_picture_381235.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380580.jpg" />
+  <img src="Z:/picture/008/save_picture_380580.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ Crysis 2 (2011) [Ru] (1.9/dlc) Repack xatab [Maximum Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380167.jpg" />
+  <img src="Z:/picture/008/save_picture_380167.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ Turok [Ru] (L) 2008
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379700.jpg" />
+  <img src="Z:/picture/008/save_picture_379700.jpg" />
 </div>
 
 
@@ -370,7 +476,7 @@ ALICE VR (2016) [Ru/Multi] (1.0) Repack Other s [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379558.jpg" />
+  <img src="Z:/picture/008/save_picture_379558.jpg" />
 </div>
 
 
@@ -396,7 +502,7 @@ Killing Room (2016) [Ru/Multi] (1.37.1/u1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379557.jpg" />
+  <img src="Z:/picture/008/save_picture_379557.jpg" />
 </div>
 
 
@@ -422,7 +528,7 @@ Red Alliance (2018) [Ru/En/Fr] (1.0) License HOODLUM
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378940.jpg" />
+  <img src="Z:/picture/008/save_picture_378940.jpg" />
 </div>
 
 
@@ -448,7 +554,7 @@ Red Alliance (2018) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378928.jpg" />
+  <img src="Z:/picture/008/save_picture_378928.jpg" />
 </div>
 
 
@@ -474,7 +580,7 @@ Borderlands: Game of the Year Edition (2009) [Ru/En] (1.5.0.0/dlc) Repack R.G. �
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378709.jpg" />
+  <img src="Z:/picture/008/save_picture_378709.jpg" />
 </div>
 
 
@@ -500,7 +606,7 @@ The Conjuring House (2018) [Ru/Multi] (1.0.4) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376761.jpg" />
+  <img src="Z:/picture/008/save_picture_376761.jpg" />
 </div>
 
 
@@ -526,7 +632,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.10373/dlc) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376751.jpg" />
+  <img src="Z:/picture/008/save_picture_376751.jpg" />
 </div>
 
 
@@ -552,7 +658,7 @@ Vietcong Anthology (2003-2005) [Ru/En] (1.60/1.1/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376403.jpg" />
+  <img src="Z:/picture/008/save_picture_376403.jpg" />
 </div>
 
 
@@ -563,116 +669,6 @@ Vietcong Anthology (2003-2005) [Ru/En] (1.60/1.1/dlc) Repack R.G. Catalyst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A17F7B065CABA06A5FA1ABFAB987DF70ECAABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258719   (376049) от 24.09.2019
-
-Agony UNRATED (2018) [Ru/Multi] (1.0/upd5) License CODEX
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Agony UNRATED — версия хоррора Agony с видом от первого лица без цензуры, в котором игрокам предстоит управлять попавшей в ад душой человека, не помнящего своего прошлого. Блуждая по лабиринтам подземелья в поисках выхода, они будут вселяться в другие заблудшие души и низших демонов, чтобы выжить в этом непростом окружении. Вернуть герою воспоминания может только (   Читать дальше...   )Тип издания: LicenseРазработчик: Madmind StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60B6F0A5BBEC4267E31FAA5281EF37C7C6B87FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176023   (373695) от 20.10.2017
-
-Shadow Warrior (2013) [Ru/Multi] (1.1.2/1.5.0/dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Warrior - ремейк шутера от первого лица от создателей легендарного Duke Nukem 3D, поднявшийся на волне его популярности. Играть нам предстоит за старого ниндзя, которого зовут Ло Ванг (Lo Wang) и он жаждет стереть с лица земли корпорацию Zilla Enterprises, чем он и занимается на протяжении всей игры, но делает это весело и зажигательно, почти так же, как старина (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F203DB530068C89C5FCD1F585F31420E4697717E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 252408   (373169) от 31.10.2010
-
-Call of Juarez Дилогия [Ru] (RePack) 2006-2009 | R.G. ReCoding
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373169.jpg" />
-</div>
-
-
-###  Подробнее
-
-  
-Дата выхода: 1 сентября 2006
-Дата выхода в России: 20 октября 2006
-Жанр: Action (Shooter) / 3D / 1st PersonРазработчик: Techland
-Издатель: Ubisoft Entertainment
-Издатель в России: 1CЯзык интерфейса: 
-Язык озвучки: (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE1A221E9725F29EE4A18E8752CE280AA064177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069454   (372701) от 04.11.2016
-
-In Verbis Virtus (2015) [Ru/Multi] (1.0.2420) License PROPHET
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372701.jpg" />
-</div>
-
-
-###  Подробнее
-
-In Verbis Virtus – фантастический приключенческий экшен от первого лица, в котором вы выступите в роли волшебника. Надевайте свои магические наряды и отправляйтесь на поиски древней силы. Исследуйте затерянный замок с давно забытыми, наполненными неописуемой красотой и страхом комнатами. Разблокируйте заклинания и используйте их для решения различных загадок и борьбы (   Читать дальше...   )Тип издания: LicenseРазработчик: Indomitus GamesЖанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8918DEACC2E3A6BC0B1027274C4B9A6F4DD3E729
 ```
 
 https://mybot314.ru/tekegram_catalog/

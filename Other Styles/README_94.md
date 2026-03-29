@@ -1,3 +1,61 @@
+###  Публикация: 1046013   (552905) от 26.08.2016
+
+Gloria Estefan - Mi Tierra (1993) [FLAC|Lossless|image + .cue] <Latin, Folk, World>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Con los anos que me quedan (4:37)
+02. Mi tierra (4:39)
+03. Ayer (5:18)
+04. Mi buen amor (3:50)(   Читать дальше...   )Жанр: Latin, Folk, WorldПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B45CE4FCC945C807424619D1E91B50684C058A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045886   (552750) от 26.08.2016
+
+Jesse Harlin, Jim Bonney - Mafia III (Expanded Game Score) (2016) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesse Harlin - New Bordeaux (02:46)
+02. Jim Bonney - 11th Hour Blues (03:49)
+03. Jesse Harlin - From the Darkness, A Voice (04:28)
+04. Jim Bonney - Going Down Slow (04:23)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9FC7EFE2F757FBA42365B42085A8B7D3FD5D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045776   (552701) от 26.08.2016
 
 VA - Stranger Things / Очень странные дела (Original Series Soundtrack + Unofficial Soundtrack) (Season 1) (2016) [MP3|128-320 кб/с]<Soundtrack, Score>
@@ -6,7 +64,7 @@ VA - Stranger Things / Очень странные дела (Original Series Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552701.jpg" />
+  <img src="Z:/picture/008/save_picture_552701.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Hummingbird - This Sacred Love (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Re
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552355.jpg" />
+  <img src="Z:/picture/008/save_picture_552355.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Justin Moore - Kinda Don't Care (2016) Deluxe Version [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551930.jpg" />
+  <img src="Z:/picture/008/save_picture_551930.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Nick Murray & Roger Shah - Singularity (2016) [MP3|320 Kbps] <Soundtrack, Classi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551851.jpg" />
+  <img src="Z:/picture/008/save_picture_551851.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Florida Georgia Line - Dig Your Roots (2016)[MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551850.jpg" />
+  <img src="Z:/picture/008/save_picture_551850.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Rock of Ages (2012) [FLAC|Lossless|tracks + .cue] <Rock, Stage & Screen>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551799.jpg" />
+  <img src="Z:/picture/008/save_picture_551799.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Kyle Dixon & Michael Stein - Stranger Things / Очень странные де�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551663.jpg" />
+  <img src="Z:/picture/008/save_picture_551663.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Malin Andersson - Follow (2018) [MP3|320 Kbps] <Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551481.jpg" />
+  <img src="Z:/picture/008/save_picture_551481.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Andre Gagnon - Les Jours Tranquilles (1993) [FLAC|Lossless|tracks + .cue] <Instr
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551478.jpg" />
+  <img src="Z:/picture/008/save_picture_551478.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Dolly Parton - Pure & Simple (2016) UK Edition [MP3|320 Kbps] <Country, New Wave
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550941.jpg" />
+  <img src="Z:/picture/008/save_picture_550941.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Shabala - Shabala (1998) [MP3|320 Kbps] <World, Tribal, Dance>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550938.jpg" />
+  <img src="Z:/picture/008/save_picture_550938.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Nigel Stanford (John Stanford) - Discography (1999-2017) [MP3|320 Kbps] <Downtem
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550552.jpg" />
+  <img src="Z:/picture/008/save_picture_550552.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Nigel Stanford (John Stanford) - Discography (1999-2017) [FLAC|Lossless|tracks +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550380.jpg" />
+  <img src="Z:/picture/008/save_picture_550380.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Liz Longley - Weightless (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550094.jpg" />
+  <img src="Z:/picture/008/save_picture_550094.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Courtney Marie Andrews - Honest Life (2016) [FLAC|Lossless|tracks] <Country, Ame
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550029.jpg" />
+  <img src="Z:/picture/008/save_picture_550029.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Aenigmatica - Sanctum (2016) [MP3|320 Kbps] <Ambient, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550013.jpg" />
+  <img src="Z:/picture/008/save_picture_550013.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Marchese - Joyful Peace (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549729.jpg" />
+  <img src="Z:/picture/008/save_picture_549729.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549197.jpg" />
+  <img src="Z:/picture/008/save_picture_549197.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Summer: The Donna Summer Musical (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548779.jpg" />
+  <img src="Z:/picture/008/save_picture_548779.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Sun Kil Moon ‎ - I Also Want To Die In New Orleans (2019) 2CD [FLAC|Lossless|t
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547844.jpg" />
+  <img src="Z:/picture/008/save_picture_547844.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Casey Barnes - Live As One (2016) [MP3|320 Kbps] <Country Rock, Pop Rock, Blues>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547352.jpg" />
+  <img src="Z:/picture/008/save_picture_547352.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546950.jpg" />
+  <img src="Z:/picture/008/save_picture_546950.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Era - Arielle Dombasle By Era (2013) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546333.jpg" />
+  <img src="Z:/picture/008/save_picture_546333.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Pavlo & Remigio - Guitarradas (2015) Single [MP3|320 Kbps] <New Age, Flamenco, I
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546195.jpg" />
+  <img src="Z:/picture/008/save_picture_546195.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Pavlo & Remigio - Guitarradas (2015) Single [MP3|320 Kbps] <New Age, Flamenco, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9B959777027E75229F9B4F79E85DB67F195C6B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048758   (545735) от 03.09.2016
-
-Artur Mena - Sabia Medicina (2013) [MP3|192 Kbps] <World: South American>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabia Medicina (Chuntunqul) [3:28]
-02. Canta Sirenita (Carnaval) [4:02]
-03. Canta Ayaymama (Huayno Cancion) [5:12]
-04. Aguita de Puqulo (San Juanito) [3:29](   Читать дальше...   )Жанр: World: South AmericanПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D262544E6A28FF8D541F07E00A4C7B5FC7627541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049051   (545598) от 03.09.2016
-
-Stive Morgan - Flights In Dream (2016) [MP3|320 Kbps] <New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygen Music (4:19)
-02. Window To Paradise (6:56)
-03. Global Transformation (5:57)
-04. Flights In Dream (7:04)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D511CACD621DB88FBE2F838B8ECACF260C4BF53
 ```
 
 https://mybot314.ru/tekegram_catalog/

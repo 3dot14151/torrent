@@ -1,3 +1,56 @@
+###  Публикация: 785694   (890454) от 09.02.2017
+
+Тихая Одесса (1967) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890454.jpg" />
+</div>
+
+
+###  Подробнее
+
+По повести А. Лукина и Д. Поляновского "Сотрудник ЧК. "Тихая Одесса".
+После окончания Гражданской войны Алексей Толмачев приезжает в Одессу поступать в университет, однако... становится чекистом. И получает первое задание - установить связь с одесскими заговорщиками и собрать белых атаманов в городе, чтобы одним разом покончить с бандитами...Жанр: КриминалРежиссер: Валерий ИсаковАктеры: Вадим Ганшин, Георгий Бабенко, Михаил Васильев, Александр Горбатов, Николай Гринько, Владимир Дальский, Зинаида Дехтярева, Иван Дмитриев, Ирина Дмитриева, Борис Зайденберг, Герман Колушкин, Семён Крупник, Степан Крылов, Пантелеймон Крымов, Евгений Кузнецов, Александр Липов, Владимир Лисецкий, Семён Лихогоденко, Пётр Любешкин, Павел Первушин, Георгий Светлани, Игорь (   Читать дальше...   )Продолжительность: 01:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E1EE90339506964735AED6FDF736E4141892DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371552   (890005) от 31.03.2020
+
+Старые стены (1973) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Директор подмосковной ткацкой фабрики Анна Смирнова, бескорыстно посвятившая себя организации производства, встречает на склоне лет мужчину и безуспешно пытается уйти от нежданной любви…Производство: СССР / ЛенфильмЖанр: Драма, мелодрамаРежиссер: Виктор ТрегубовичАктеры: Людмила Гурченко, Армен Джигарханян, Евгения Сабельникова, Вера Кузнецова, Евгений Киндинов, Федор Одиноков, Борис Гусаков, Борис Аракелов, Петр Шелохонов, Ия МарксСубтитры: ОтсутствуютПродолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A274A75118262565813ACF62436AC1823BB98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371638   (890002) от 31.03.2020
 
 Кербез (Неистовый беглец) (1989) TVRip
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890002.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889998.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888413.jpg" />
+  <img src="Z:/picture/005/save_picture_888413.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888403.jpg" />
+  <img src="Z:/picture/005/save_picture_888403.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887926.jpg" />
+  <img src="Z:/picture/005/save_picture_887926.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886923.jpg" />
+  <img src="Z:/picture/005/save_picture_886923.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886630.jpg" />
+  <img src="Z:/picture/005/save_picture_886630.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886624.jpg" />
+  <img src="Z:/picture/005/save_picture_886624.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885434.jpg" />
+  <img src="Z:/picture/005/save_picture_885434.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884851.jpg" />
+  <img src="Z:/picture/005/save_picture_884851.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883918.jpg" />
+  <img src="Z:/picture/005/save_picture_883918.jpg" />
 </div>
 
 
@@ -295,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883896.jpg" />
+  <img src="Z:/picture/005/save_picture_883896.jpg" />
 </div>
 
 
@@ -321,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881754.jpg" />
+  <img src="Z:/picture/005/save_picture_881754.jpg" />
 </div>
 
 
@@ -347,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880393.jpg" />
+  <img src="Z:/picture/005/save_picture_880393.jpg" />
 </div>
 
 
@@ -373,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879876.jpg" />
+  <img src="Z:/picture/005/save_picture_879876.jpg" />
 </div>
 
 
@@ -399,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879756.jpg" />
+  <img src="Z:/picture/005/save_picture_879756.jpg" />
 </div>
 
 
@@ -425,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879612.jpg" />
+  <img src="Z:/picture/005/save_picture_879612.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878880.jpg" />
+  <img src="Z:/picture/005/save_picture_878880.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878781.jpg" />
+  <img src="Z:/picture/005/save_picture_878781.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876186.jpg" />
+  <img src="Z:/picture/005/save_picture_876186.jpg" />
 </div>
 
 
@@ -532,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875948.jpg" />
+  <img src="Z:/picture/005/save_picture_875948.jpg" />
 </div>
 
 
@@ -559,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874425.jpg" />
+  <img src="Z:/picture/005/save_picture_874425.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874423.jpg" />
+  <img src="Z:/picture/008/save_picture_874423.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873443.jpg" />
+  <img src="Z:/picture/008/save_picture_873443.jpg" />
 </div>
 
 
@@ -623,60 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30D53C71A0D57C64192D6FF6180C8E5A017198A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765815   (873340) от 13.03.2014
-
-Эквилибрист (1976) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873340.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам повести А.Аронова «Пассажир без билета».
-Артист цирка Юрий Осташенко, лишившийся во время Великой Отечественной войны руки, приезжает в любимый город и добивается возвращения к любимой профессии.Жанр: драмаРежиссер: Леонид НечаевАктеры: Александр Соловьев, Анатолий Соловьев, Александр Денисов, Нина Антонова, Баадур Цуладзе, Николай Гринько, Леонид Бакштаев.Продолжительность: 01:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D022A132D65E0423CC2894915192324E8136A82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765888   (872995) от 13.03.2014
-
-Смертный враг (1971) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872995.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам "Донских рассказов" М. А. Шолохова.
-Первые годы Советской власти на Дону. В одной из первых коммун, возглавляемой Арсением Клюквиным, назревает конфликт: жена белого офицера, невестка кулака Ящурова, полюбила Арсения и не скрывает своих чувств от станичников.Жанр: ДрамаРежиссер: Евгений МатвеевАктеры: Евгений Матвеев, Жанна Прохоренко, Александр Лазарев (старший), Валентин Брылеев, Майя Булгакова, Зоя Василькова, Валериан Виноградов, Мария Виноградова, Георгий Вицин, Валентина Владимирова, Петр Глебов, Лидия Драновская, Иван Жеваго, Алексей Инжеватов, Петр Кирюткин, Светлана Коновалова, Геннадий Крашенинников, Мария Кремнева, Степан Крылов, Владимир Носик, Владимир (   Читать дальше...   )Продолжительность: 01:21:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B0A9BB5F79C5DD67FA9646ABDB895CFD556797
 ```
 
 https://mybot314.ru/tekegram_catalog/

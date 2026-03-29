@@ -6,7 +6,7 @@ PeaZip 7.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791340.jpg" />
+  <img src="Z:/picture/008/save_picture_791340.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AnyMP4 iOS Toolkit 9.0.28 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791339.jpg" />
+  <img src="Z:/picture/008/save_picture_791339.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ LDPlayer 3.95 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791331.jpg" />
+  <img src="Z:/picture/008/save_picture_791331.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ CCleaner 5.87.9306 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791322.jpg" />
+  <img src="Z:/picture/008/save_picture_791322.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Adobe Photoshop Lightroom Classic 11.0.0.10 Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791317.jpg" />
+  <img src="Z:/picture/008/save_picture_791317.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ JRiver Media Center 28.0.81 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791315.jpg" />
+  <img src="Z:/picture/008/save_picture_791315.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Glary Utilities Pro 5.143.0.169 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791309.jpg" />
+  <img src="Z:/picture/008/save_picture_791309.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ocenaudio 3.7.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791306.jpg" />
+  <img src="Z:/picture/008/save_picture_791306.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ IObit Smart Defrag Pro 6.5.5.107 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791304.jpg" />
+  <img src="Z:/picture/008/save_picture_791304.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ IObit Software Updater Pro 3.1.0.1571 (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791297.jpg" />
+  <img src="Z:/picture/008/save_picture_791297.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Process Lasso Pro 9.8.0.54 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791296.jpg" />
+  <img src="Z:/picture/008/save_picture_791296.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Elmedia Player Pro 7.11 (build 2110)  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791295.jpg" />
+  <img src="Z:/picture/008/save_picture_791295.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ IObit Driver Booster Pro 7.5.0.742 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791292.jpg" />
+  <img src="Z:/picture/008/save_picture_791292.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ AnyDesk 7.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791287.jpg" />
+  <img src="Z:/picture/008/save_picture_791287.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Windows 10 (v21h1) x64 HSL/PRO by KulHunter v6.1 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791286.jpg" />
+  <img src="Z:/picture/008/save_picture_791286.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ FurMark 1.29.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791275.jpg" />
+  <img src="Z:/picture/008/save_picture_791275.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ CCleaner 5.87.9306 Free / Professional / Business / Technician_Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791274.jpg" />
+  <img src="Z:/picture/008/save_picture_791274.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Allavsoft Video Downloader Converter 3.22.6.7457 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791267.jpg" />
+  <img src="Z:/picture/008/save_picture_791267.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791266.jpg" />
+  <img src="Z:/picture/008/save_picture_791266.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ PDF Expert 2.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791265.jpg" />
+  <img src="Z:/picture/008/save_picture_791265.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Widgets - CPU | RAM | Battery 3.0.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791257.jpg" />
+  <img src="Z:/picture/008/save_picture_791257.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ CCleaner 5.87.9306 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791246.jpg" />
+  <img src="Z:/picture/008/save_picture_791246.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ WinRAR 6.10 Beta 2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791239.jpg" />
+  <img src="Z:/picture/008/save_picture_791239.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Final Cut Pro 10.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791238.jpg" />
+  <img src="Z:/picture/008/save_picture_791238.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Adobe After Effects 2022 (22.0.1.2) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791234.jpg" />
+  <img src="Z:/picture/008/save_picture_791234.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791231.jpg" />
+  <img src="Z:/picture/008/save_picture_791231.jpg" />
 </div>
 
 

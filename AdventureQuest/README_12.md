@@ -1,3 +1,81 @@
+###  Публикация: 1489195   (926750) от 15.08.2021
+
+Else Heart.Break() / elseHeartBreak (2015) [Multi] (1.0.9) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это переосмысление приключенческой игры - фантастическая история, действие которой происходит в полностью динамичном и интерактивном мире. Вместо жёстких головоломок Вы узнаете (с помощью других персонажей в игре), как можно изменить реальность игры с помощью программирования и как любую проблему можно решить любым способом, который Вы сочтёте подходящим.Тип издания: LicenseРазработчик: Erik Svedäng, El Huervo, Niklas Åkerblad, Tobias Sjögren, Oscar "Ratvader" Rydelius, Johannes GotlénЖанр: Cyberpunk, Programming, Hacking, Adventure, RPGЯзык субтитров: Английский, ШведскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954ACBBE7389699362174198F127179B2A7DA35E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489356   (926642) от 15.08.2021
+
+Seed of Life (2021) [Ru/Multi] (1.0.4) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926642.jpg" />
+</div>
+
+
+###  Подробнее
+
+Seed of Life – это приключенческая игра-головоломка, которая перенесет вас в красивый, но отравленный мир, где почти вся жизнь исчезла. Есть только один способ выжить: помочь Коре найти Семя, инопланетное устройство, способное генерировать сущность жизни, и спасти свою планету от уничтожения. Найдите свой путь через похожий на лабиринт мир, полный тайн, опасностей (   Читать дальше...   )Тип издания: RepackРазработчик: MadLightЖанр: Adventure, Puzzle, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CF8361388E18F3CFA5266DEB009FC42B9598B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943906   (925440) от 20.01.2017
+
+Game of Thrones: A Telltale Games Series (2014-2015) [Ru/En] (1.0.0.1) Repack R.G. Механики [Episodes 1-6]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры развернется во временном промежутке между финалом третьего и началом пятого сезона телевизионного сериала. Дом Форрестер - одна из влиятельных семей, чья резиденция расположена на севере Вестероса. Они являются вассалами Старков, сильнейшего дома Севера. Главными героями игры станут пять героев, так или иначе связанных с домом Форрестер.Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: Русский (первый эпизод), АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBAA2AA206A079DFACA6780DAEA61D94B87E2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489414   (925159) от 16.08.2021
 
 Fragile (2020) [Ru/Multi] (5896114) License DARKSiDERS
@@ -6,7 +84,7 @@ Fragile (2020) [Ru/Multi] (5896114) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925159.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Fragile (2020) [Ru/Multi] (Build 5896114) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925080.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u7) SteamRip Let'sPlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923993.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Devotion (2019) [Ru/Multi] (1.0.5) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921603.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Uncertain: Episode 1 - The Last Quiet Day / The Uncertain: Эпизод 1 - 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920210.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919901.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0/upd4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919776.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Dreamfall: The Longest Journey / Dreamfall: Бесконечное путеше�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919571.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/upd7) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_916689.jpg" />
+  <img src="Z:/picture/008/save_picture_916689.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ STELA (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916685.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ CAYNE (2017) [Ru/Multi] (1.24) SteamRip Let'sPlay [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915004.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ CAYNE (2017) [Ru/Multi] (1.24) Repack Other s [Digital Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914993.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ The Blind Prophet (2020) [Multi] (1.20) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914967.jpg" />
 </div>
 
 
@@ -347,7 +425,7 @@ Magdalena / Магдалина (2016) [Ru/En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914594.jpg" />
 </div>
 
 
@@ -373,7 +451,7 @@ Valley (2016) [En] (1.05) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913641.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ Valley (2016) [En] (1.05) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913373.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Shenmue III (3) (2019) [Multi] (1.05.03) License CODEX (обновляемая)
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913323.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ The Witness (2016) [Ru/Multi] (1.0/upd15) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912913.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ The Book of Unwritten Tales 2 (2015) [Ru/Multi] (1.0.3.132) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912910.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ Drizzlepath: Genie (2016) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912902.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Daryl F. Gates' Police Quest: SWAT (1995) [En] (1.0c) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911914.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ AntVentor (2018) [Ru/Multi] (1.1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911775.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (1.1.0_02) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910331.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Behind the Frame: The Finest Scenery (2021) [Ru/Multi] (1.1.0_02) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2804BC4C2AA519C5FF002AF8198FE00FD30E4B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098381   (909652) от 29.01.2017
-
-Fahrenheit: Indigo Prophecy - Remastered (2015) [Ru/Multi] (1.0) Repack R.G. Механики
-
->>След.
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909652.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основу переиздания легла нецензурированная версия игры, разработчики говорят об улучшенной визуальной составляющей с возможностью переключения между оригинальной картинкой и обновленной графикой на лету и полной поддержке геймпада. Рядовой сотрудник нью-йоркского банка убивает в туалете ист-эндской забегаловки абсолютно незнакомого мужчину.Тип издания: RepackРазработчик: Quantic Dream, AspyrЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0C99C2541854156A32A7FA25477DFBF1E96EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330155   (908257) от 20.03.2020
-
-Trine 4: The Nightmare Prince (2019) [Ru/Multi] (1.0.8244/dlc) Repack West4it
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trine 4: The Nightmare Prince – очередная часть в серии логических платформеров Trine. Присоединяйтесь к тройке ключевых героев из предыдущих частей игры (рыцарю Понтию, воровке Зои и магу Амадею) и отправляйтесь в новое сказочное приключение, чтобы спасти мир от теней Принца Кошмаров.Тип издания: RepackРазработчик: FrozenbyteЖанр: Action, Adventure, PlatformerЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E89EB6250E5F0099C192140CAA692055FC005D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080600   (907884) от 30.01.2017
-
-The Walking Dead: Season Two (2013-2014) [Multi] (3.00) License GOG [A Telltale Games Series]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907884.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Walking Dead: Season Two - продолжение первого сезона The Walking Dead. Это эпизодическая видеоигра по принципу point-and-click системы, в жанре графической приключенческой игры по мотивам комикса Роберта Киркмана «Ходячие мертвецы». Игра разрабатывалась студией Telltale Games. Второй сезон игры продолжает историю Клементины, девочки из Атланты, осиротевшей во (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd Person, CompilationЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FD6D112935B1302C313A1C7A2F050DB8CD7393
 ```
 
 https://mybot314.ru/tekegram_catalog/

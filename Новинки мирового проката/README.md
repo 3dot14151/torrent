@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63788.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24501.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23075.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22943.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10417.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9682.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9677.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3524.jpg" />
 </div>
 
 

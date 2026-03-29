@@ -1,3 +1,119 @@
+###  Публикация: 1101574   (893127) от 08.02.2017
+
+Sergio Mendes - Brasileiro (1992) [FLAC|Lossless|tracks + .cue] <Bossa Nova, Latin, Latin Jazz, Samba>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fanfarra (Cabua-le-le) 4:01
+02. Magalenha 3:37
+03. Indiado 4:16
+04. What Is This? 4:44(   Читать дальше...   )Жанр: Bossa Nova, Latin, Latin Jazz, SambaПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD3E5B4CEEC6226410FE68201FB54436CF3A337D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493888   (892414) от 05.09.2021
+
+Ray Mahumane - 20_20 Vision (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left Turn (5:14)
+02. The Funk Starts Here (feat. Jan Beiling) (4:39)
+03. Happy Feelings (feat. Kevin Iszard) (4:38)
+04. Home Grooves (feat. Kirt Dallaway) (4:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86C02808C1F3CBC71FA71CC6E0881D794CCEC076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371214   (892127) от 30.03.2020
+
+The Oscar Peterson Trio - Canadiana Suite 1964 (2008) Limelight [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballad To The East [4:08]
+02. Laurentide Waltz [5:21]
+03. Place St. Henri [3:58]
+04. Hogtown Blues [3:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760AFD4FF25ACBF99437FCDAB9496E1B9C1697F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994139   (891664) от 07.03.2016
+
+Charlie Shavers - The Most Intimate (1955) Remaster, 2014, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stella By Starlight [02:54]
+ 02.Ill Wind [02:55]
+ 03.Stormy Weather [03:43]
+ 04.Out Of Nowhere [03:50](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA24586614BF297231F959FE620EF080928652D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994142   (891662) от 07.03.2016
 
 Freddie Hubbard - Keystone Bop: Sunday Night (1981) 1994, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Freddie Hubbard - Keystone Bop: Sunday Night (1981) 1994, Prestige[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891662.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Brother Jack McDuff - Tobacco Road (1966) Remaster, 2012, Warner[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891658.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Freddie Hubbard - Sweet Return (1983) 2001, Collectables[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891652.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Nicki Parrott - Sentimental Journey (2015) [FLAC|Lossless|image + .cue] <Contemp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891578.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Nicki Parrott - Angel Eyes (2014) [FLAC|Lossless|image + .cue] <Contemporary Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891571.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Blurt - Live at Oto (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz Rock, Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891424.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Flora Purim - Stories To Tell (1974) 2003, Original Jazz Classics[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891421.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dag Arnesen Trio - Pentagon Tapes (2017) [FLAC|Lossless|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891420.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Sadao Watanabe - Birds of Passage (1987) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890958.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Jack Jezzro - Best Of Green Hill Music The 50s Collection (2021) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890820.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Jeff Golub - Temptation (2005) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890274.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Oscar Peterson Trio - I Got Rhythm 1945 - 1947 (1998) Giants Of Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890200.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Gil Scott-Heron, Makaya McCraven - We’re New Again (A Reimagining By Makaya Mc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890161.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Frank Foster - Basie Is Our Boss (1963) Remaster, 2013, Universal[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889889.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Freddie Hubbard - Blues For Duane (1991) 1999, High Definition Jazz[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889888.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Joe Venuti - Fiddlesticks (1931-1939) 1990, Conifer[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889882.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ The Harold Land & Carmell Jones Quintets - Complete Studio Recordings (1961-1963
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889879.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Rein De Graaff Trio with Ronnie Cuber and Nick Brignola - Baritone Explosion
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889690.jpg" />
+  <img src="Z:/picture/005/save_picture_889690.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Pat Metheny - Road to the Sun (2021) [FLAC|Lossless|tracks + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889205.jpg" />
+  <img src="Z:/picture/005/save_picture_889205.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Joe Bushkin Featuring Buck Clayton - Three Classic Albums Plus 1946 - 1951 (2013
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888714.jpg" />
+  <img src="Z:/picture/005/save_picture_888714.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Various - A Twist of Jobim (1997) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888703.jpg" />
+  <img src="Z:/picture/005/save_picture_888703.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Various - A Twist Of Marley (2001) [FLAC|Lossless|image + .cue] <Jazz, Reggae, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888691.jpg" />
+  <img src="Z:/picture/005/save_picture_888691.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Various - A Twist Of Marley (2001) [FLAC|Lossless|image + .cue] <Jazz, Reggae, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D01B5DA74F9AF97449C4509AA958A3ED74674EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994834   (888241) от 09.03.2016
-
-John Coltrane & Archie Shepp - New Thing At Newport (1965) 2009, Verve[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction (Father Norman O'Connor) [01:09]
- 02.One Down, One Up [12:44]
- 03.Rufus (Swung His Face At Last To The Wind, Then His Neck Snapped) [05:14]
- 04.Le Matin Des Noire [07:58](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:124FC9D301EEBBA284A637A1DEE16DA9E5BF3B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994901   (888237) от 09.03.2016
-
-Masabumi Kikuchi - End For The Beginning (1973) Remaster, 2015, Unversal[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Drizzling Rain [14:32]
- 02.Gin-Kai [11:44]
- 03.Admire, But Detect <Mr. Out> [05:37]
- 04.Bell [07:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E4ACE181B08158B686136432264336486453E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102834   (888001) от 11.02.2017
-
-Bob Brookmeyer - Back Again (1978) 1990, Gazell[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sweet And Lovely [08:31]
- 02.Carib [04:08]
- 03.Caravan [07:38]
- 04.You'd Be So Nice To Come Home To [06:50](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B742647E6BAB8745F34F2DA257DFC3D7D75CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102841   (887998) от 11.02.2017
-
-Paul Quinichette - For Basie (1957) 2001, Silen[APE|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Rock-A-Bye Basie [06:42]
- 02.Texas Shuffle [07:09]
- 03.Out The Window [07:39]
- 04.Jive At Five [09:48](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018AB55D4350B7FC001D4AC353527D45088E666E
 ```
 
 https://mybot314.ru/tekegram_catalog/

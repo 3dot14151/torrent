@@ -1,3 +1,84 @@
+###  Публикация: 1396746   (745588) от 16.07.2020
+
+Анна Могилёва | Юна - ученица волшебника. Книга 1 (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юна — ученица волшебника» — это иллюстрированная сказка о работе, магии, приключениях и других мирах. Тёплая уютная книга, к которой можно обратиться, когда грустно, непонятно, и кажется, что ничего не получится.
+Выбрать профессию сложно, освоить — ещё сложнее. Особенно, когда нужно не просто учиться, но и взрослеть: искать себя, бороться с детскими страхами, преодолевать (   Читать дальше...   )Жанр: Детская литература, ФэнтезиПродолжительность: 06:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CF6BA759E5D977374772AE3282B1031146C136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524372   (745195) от 15.01.2022
+
+Александр Мелентьевич Волков | Жёлтый туман (2013) [MP3, Алексей Борзунов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745195.jpg" />
+</div>
+
+
+###  Подробнее
+
+И вновь Волшебной стране угрожает опасность. Проспав пять тысяч лет, злая колдунья Арахна, проснувшись, обнаруживает вокруг себя Волшебную страну, с добрыми беззащитными жителями. С помощью своих подданных - гномов, колдунья изучила историю страны, прошедшую за время её отсутствия и решила подчинить себе все народы, населяющие Волшебную страну с помощью Жёлтого Тумана, (   Читать дальше...   )Жанр: Детские приключения, СказкиПродолжительность: 06:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F09BCD052B3D32C20D30627FB0784286D44F068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524365   (745194) от 15.01.2022
+
+Александр Мелентьевич Волков | Тайна заброшенного замка (2013) [MP3, Алексей Борзунов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Волшебную страну и её столицу Изумрудный город населяли племена маленьких людей – Жевунов, Мигунов, Болтунов, у которых была очень хорошая память на всё, чему они удивлялись.
+
+Удивительным было для них появление девочки Элли, когда её домик раздавил злую волшебницу Гингему, как пустую яичную скорлупу. Не менее удивились жители Волшебной страны, когда увидели сестру (   Читать дальше...   )Жанр: Внеклассное чтение, Детские приключения, СказкиПродолжительность: 05:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDF65A18DB32EDF53362FBAE2752EBE1F4ED033C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262062   (744710) от 12.02.2019
 
 Дмитрий Емец | Таня Гроттер [10 книг] (2003) [MP3]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744710.jpg" />
+  <img src="Z:/picture/008/save_picture_744710.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743641.jpg" />
+  <img src="Z:/picture/008/save_picture_743641.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741373.jpg" />
+  <img src="Z:/picture/008/save_picture_741373.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740473.jpg" />
+  <img src="Z:/picture/008/save_picture_740473.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739372.jpg" />
+  <img src="Z:/picture/008/save_picture_739372.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739131.jpg" />
+  <img src="Z:/picture/008/save_picture_739131.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738801.jpg" />
+  <img src="Z:/picture/008/save_picture_738801.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737557.jpg" />
+  <img src="Z:/picture/008/save_picture_737557.jpg" />
 </div>
 
 
@@ -221,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737136.jpg" />
+  <img src="Z:/picture/008/save_picture_737136.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736728.jpg" />
+  <img src="Z:/picture/008/save_picture_736728.jpg" />
 </div>
 
 
@@ -275,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736722.jpg" />
+  <img src="Z:/picture/008/save_picture_736722.jpg" />
 </div>
 
 
@@ -302,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736233.jpg" />
+  <img src="Z:/picture/008/save_picture_736233.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735267.jpg" />
+  <img src="Z:/picture/008/save_picture_735267.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734866.jpg" />
+  <img src="Z:/picture/008/save_picture_734866.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734863.jpg" />
+  <img src="Z:/picture/008/save_picture_734863.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734812.jpg" />
+  <img src="Z:/picture/008/save_picture_734812.jpg" />
 </div>
 
 
@@ -433,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734381.jpg" />
+  <img src="Z:/picture/008/save_picture_734381.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734350.jpg" />
+  <img src="Z:/picture/008/save_picture_734350.jpg" />
 </div>
 
 
@@ -488,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734349.jpg" />
+  <img src="Z:/picture/008/save_picture_734349.jpg" />
 </div>
 
 
@@ -514,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734345.jpg" />
+  <img src="Z:/picture/008/save_picture_734345.jpg" />
 </div>
 
 
@@ -543,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734344.jpg" />
+  <img src="Z:/picture/008/save_picture_734344.jpg" />
 </div>
 
 
@@ -572,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734341.jpg" />
+  <img src="Z:/picture/008/save_picture_734341.jpg" />
 </div>
 
 
@@ -599,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734338.jpg" />
+  <img src="Z:/picture/008/save_picture_734338.jpg" />
 </div>
 
 
@@ -610,88 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:079F0C1F7BC6F17C9D8F096EB4198E7565B07D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711268   (734261) от 29.07.2020
-
-Хью Лофтинг | Путешествия Доктора Дулиттла (1992) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Доктора Айболита знают и любят все. По крайней мере, те, кто когда-то был советским ребенком. Но есть ещё совсем другогой доктор, родившийся на несколько лет раньше Айболита. Зовут его Дулиттл. Он приходится внучатым племянником мистеру Пиквику — добродушному упитанному путешественнику, всеобщему любимцу и правдоискателю. А придумал его простой ирландский инженер (   Читать дальше...   )Жанр: СказкиПродолжительность: 10:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEE83E04A8FA44FB83D17007600DA2F9AA50485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 444921   (734150) от 29.07.2020
-
-Валентин Постников | Карандаш и Самоделкин в деревне Козявкино (2011) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734150.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном небольшом, но очень красивом городе живут два маленьких веселых человечка. Зовут их Карандаш и Самоделкин. Они – самые настоящие волшебники. Карандаш – художник, у которого вместо носа волшебный карандаш. Все, что он нарисует, превращается в настоящее.
-А его друг Самоделкин – железный человечек, который умеет мастерить разные невероятные машины.
-Веселые истории (   Читать дальше...   )Жанр: СказкаПродолжительность: 03:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D4E717F066C248CA1A2E452416943A6415CE96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399337   (733888) от 30.07.2020
-
-Эмма Кэрролл | Небесные преследователи (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция, конец XVIII века. Во дворцах блистает королева Мария-Антуанетта, а в маленьком южном городке девочка Сорока признана королевой воришек. Она охотно берется за необычный заказ – украсть шкатулку из богатого дома, и неожиданно ей выпадает шанс изменить свою жизнь. Знакомство с изобретателями воздушного шара дарит ей мечту, которой суждено сбыться.
-
-История (   Читать дальше...   )Жанр: Детская прозаПеревод: Полина ДенисоваПродолжительность: 06:09:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25F1769B3D4CD0BE25D5BDF4A06A58A106937DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

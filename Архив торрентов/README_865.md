@@ -6,7 +6,7 @@ Submerge 3 v3.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851364.jpg" />
+  <img src="Z:/picture/008/save_picture_851364.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ The Shadows  - Legendary Masters - (2001) [FLAC|Lossless]<Instrumental Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851296.jpg" />
+  <img src="Z:/picture/008/save_picture_851296.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Child Radio Tuner Pro 1.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851279.jpg" />
+  <img src="Z:/picture/008/save_picture_851279.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AOMEI Backupper Technician Plus 5.7.0 (22.04.2020) RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851275.jpg" />
+  <img src="Z:/picture/008/save_picture_851275.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Dropshare 5.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851270.jpg" />
+  <img src="Z:/picture/008/save_picture_851270.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Sync Folders Pro 4.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851263.jpg" />
+  <img src="Z:/picture/008/save_picture_851263.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Revo Uninstaller Pro 4.3.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851259.jpg" />
+  <img src="Z:/picture/008/save_picture_851259.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ WiFiSpoof 3.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851254.jpg" />
+  <img src="Z:/picture/008/save_picture_851254.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ PopClip 2021.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851252.jpg" />
+  <img src="Z:/picture/008/save_picture_851252.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Topaz DeNoise AI 3.3.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851139.jpg" />
+  <img src="Z:/picture/008/save_picture_851139.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Adobe Substance 3D Painter 7.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851136.jpg" />
+  <img src="Z:/picture/008/save_picture_851136.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Revo Uninstaller Pro 4.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851123.jpg" />
+  <img src="Z:/picture/008/save_picture_851123.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ GameSave Manager 3.1.507.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851033.jpg" />
+  <img src="Z:/picture/008/save_picture_851033.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Ultimaker Cura 4.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851031.jpg" />
+  <img src="Z:/picture/008/save_picture_851031.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Capture One 21 Pro Pro 4 v14.4.0.135 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851029.jpg" />
+  <img src="Z:/picture/008/save_picture_851029.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851026.jpg" />
+  <img src="Z:/picture/008/save_picture_851026.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Serato DJ Pro Suite 2.5.7 (x64) RePack by VR [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851025.jpg" />
+  <img src="Z:/picture/008/save_picture_851025.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Audacity 3.0.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851024.jpg" />
+  <img src="Z:/picture/008/save_picture_851024.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ AOMEI Partition Assistant Standard Edition 9.4.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850906.jpg" />
+  <img src="Z:/picture/008/save_picture_850906.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Before Your Eyes (2021) [Multi] (1.2.6.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850905.jpg" />
+  <img src="Z:/picture/008/save_picture_850905.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ PotPlayer 210929 (1.7.21557) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850903.jpg" />
+  <img src="Z:/picture/008/save_picture_850903.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ FXSound Pro 1.1.10.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850902.jpg" />
+  <img src="Z:/picture/008/save_picture_850902.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850895.jpg" />
+  <img src="Z:/picture/008/save_picture_850895.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Super Swing Golf: Season 2 [Wii] [NTSC] [English] (2007)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850878.jpg" />
+  <img src="Z:/picture/008/save_picture_850878.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Skeletal Avenger (2021) [Ru/Multi] (1.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850800.jpg" />
+  <img src="Z:/picture/008/save_picture_850800.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Udemy, Nick Sereda | Разработка приложений с Flutter 2.0 и
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850789.jpg" />
+  <img src="Z:/picture/008/save_picture_850789.jpg" />
 </div>
 
 

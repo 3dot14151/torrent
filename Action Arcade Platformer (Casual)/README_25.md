@@ -1,3 +1,55 @@
+###  Публикация: 1731752   (35054) от 06.12.2024
+
+METAL SLUG ATTACK RELOADED (2024) [Ru/Multi] (Reika Update) Scene SKIDROW
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35054.jpg" />
+</div>
+
+
+###  Подробнее
+
+METAL SLUG - классический экшен-шутер, сохраняющий свою детализированную пиксельную 2D-графику, но теперь в жанре «защита башни» с простейшим управлением! Помогите знакомым персонажам развиться и соберите мощную колоду. Используйте всевозможные стратегии, чтобы поразить базы противника! Игра включает в себя режим истории «ANOTHER STORY», созданный для фанатов истории (   Читать дальше...   )Тип издания: SceneРазработчик: SNK CORPORATIONЖанр: Ролевые игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0687CACC457D215D38A4C16A7E60A43F80F8247C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764244   (35029) от 06.12.2024
+
+Speedollama (2024) [Ru/Multi] (build 16154038) Repack seleZen
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наполненная смешными элементами, стремительным действием, разнообразными улучшениями и оружием, и огромной дозой юмора, Speedollama обещает развлечь игроков всех возрастов. Визуальный стиль игры выполнен в пиксель-арт, чтобы передать ретро-аркадную эстетику, напоминающую игры конца 80-х и начала 90-х годов. Вдохновленная классическими играми, такими как Metal Slug (   Читать дальше...   )Тип издания: RepackРазработчик: Chaosmonger StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F5CD001FA7CE007DB90643E743BB12B2B1756F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764698   (34840) от 08.12.2024
 
 Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Let'sРlay [Digital Deluxe Edition]
@@ -6,7 +58,7 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Let'sРlay [Digital Deluxe Edi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34840.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) Repack Let'sРlay [Complete 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34837.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Karate Survivor (2024) [Ru/Multi] (1.2.0.277/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34666.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ BIOMORPH (2024) [Multi] (1.7.27362) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34469.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ The Spirit of the Samurai (2024) [Ru/Multi] (1.0.00) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34190.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Tetris Effect: Connected (2021) [Multi] (2.0.2/dlc) Repack Let'sРlay [Digital D
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34135.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Laser Tanks (2024) [Ru/Multi] (Build 16740402) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34065.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Blasphemous 2 (2023) [Ru/Multi] (2.2.0-cs57553/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33836.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.9) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33673.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Ebenezer and the Invisible World (2023) [Ru/Multi] (1.2.0.1) Repack Let'sРlay [
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33556.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Hannah (2024) [En] (1.0.10) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33281.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Atari 50: The Anniversary Celebration (2022) [Multi] (1.0/dlc) Scene Tenoke [Dig
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32771.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Lost in Play (2022) [Ru/Multi] (1.0.63) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32744.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Fire: Ungh’s Quest (2015) (1.1.8329S) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32633.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Dog Man: Mission Impawsible (2024) [Multi] (Build 16714564) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32451.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Anima Flux (2018) [Ru/Multi] (1.0.11) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32412.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ BioGun (2024) [Ru/Multi] (1.600) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32329.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.2.20240313) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32214.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Janosik 2 (2024) [Ru/Multi] (1.0.018) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32155.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Slave Zero X (2024) [Ru/Multi] (1.06/dlc) Repack Let'sРlay [Digital Deluxe Edit
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32143.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ SUPER BOMBERMAN R2 (2023) [Ru/Multi] (1.3.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32103.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Spectacular Sparky (2021) [Ru/Multi] (1.0.1) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32079.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Pizza Tower (2023) [Ru/Multi] (1.1.271) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32023.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Doomsday Hunters (2023) [Ru/En] (1.1.0/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32015.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Doomsday Hunters (2023) [Ru/En] (1.1.0/dlc) Repack Let'sРlay
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C36516DD30697C123BA2D1B906300F6EE5BD6D89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764565   (32012) от 04.01.2025
-
-Guardians of the Sanctree (2024) [Ru/Multi] (1.1.2f6/dlc) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32012.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Guardians of the Sanctree" - это 2D-рисованная кооперативная игра с элементами совместного строительства базы, автоматизации, исследования и выживания в жанре Tower Defense. Игроки выступают в качестве командиров в птичьем военном правительстве, восстанавливая города Святодрева, защищаясь от нападений подземных насекомых и создавая надёжную оборону. Игровой (   Читать дальше...   )Тип издания: RepackРазработчик: HuCang StudioЖанр: Экшены, Приключенческие игры, Инди, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Китайский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Китайский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B918E3CA9AB2E9A2169CC555D349297F3F6D38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771356   (31793) от 06.01.2025
-
-Janosik (2020) [Ru/Multi] (1.8.06a) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Janosik – экшн-платформер с элементами метроидвания в ретро-стилистике. Игровой процесс скоростной и непростой, а огромный и взаимосвязанный мир полон тайн. Друзей Яношика похитил злой граф Фон Зур. Вам предстоит найти и вызволить их. Изучайте нарисованный от руки пиксельный мир, ищите тайны, перепрыгивайте смертоносные препятствия, сражайтесь с врагами, собирайте (   Читать дальше...   )Тип издания: LicenseРазработчик: Onix GamesЖанр: Экшены, Приключенческие игры, Казуальные игры, ИндиЯзык субтитров: Русский, Английский, Бразильский Португальский и другиеЯзык интерфейса: Русский, Английский, Бразильский Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4AA37E155485485E59C9792946E02405EBBE4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

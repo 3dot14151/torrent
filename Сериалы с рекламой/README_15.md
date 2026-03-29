@@ -1,3 +1,29 @@
+###  Публикация: 1201812   (678700) от 02.05.2018
+
+Из Лос-Анджелеса в Вегас / LA to Vegas (2018) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-15 из 15) OMSKBIRD [AD]
+
+>>След.
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678700.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета компания неутомимых авантюристов. Последние годы каждого из них преследовала череда неудач, но они решили использовать свой последний шанс вытянуть счастливый билет. На последние сбережения они отправляются в город, где сбываются мечты Лас-Вегас. Каждый из героев планирует разбогатеть и начать новую жизнь. Исполнит ли заветный авиарейс из Лос-Анджелеса (   Читать дальше...   )Производство: США / Briskets Big Yellow House, Gary Sanchez ProductionsЖанр: комедияРежиссер: Лон ЗимметАктеры: Петер Стормаре, Нэйтан Ли Грэхэм, Оливия Маклин, Дилан МакДермотт, Амир Талай, Кимберли Матула, Эд Викс, Бун Нельсон, Эдвин Хэбакон и др.Перевод: Многоголосый закадровый, профессиональный | OMSKBIRDСубтитры: английскиеПродолжительность: ~00:22:00 серияРеклама: присутствуют аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E05919EDB0515CEB45E06C6BBAD63F9ADA93C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113046   (678308) от 20.05.2017
 
 Мыслить как преступник: За границей / Criminal Minds: Beyond Borders (2017) WEB-DL / WEBRip [H.264/1080p-LQ] (сезон 2, серии 1-13 из 13) OMSKBIRD [AD]
@@ -6,7 +32,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678308.jpg" />
+  <img src="Z:/picture/008/save_picture_678308.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678294.jpg" />
+  <img src="Z:/picture/008/save_picture_678294.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676728.jpg" />
+  <img src="Z:/picture/008/save_picture_676728.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676184.jpg" />
+  <img src="Z:/picture/008/save_picture_676184.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676174.jpg" />
+  <img src="Z:/picture/008/save_picture_676174.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675854.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674215.jpg" />
+  <img src="Z:/picture/008/save_picture_674215.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674210.jpg" />
+  <img src="Z:/picture/008/save_picture_674210.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672551.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672298.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670598.jpg" />
+  <img src="Z:/picture/008/save_picture_670598.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668689.jpg" />
+  <img src="Z:/picture/008/save_picture_668689.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668401.jpg" />
+  <img src="Z:/picture/008/save_picture_668401.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667363.jpg" />
+  <img src="Z:/picture/008/save_picture_667363.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666207.jpg" />
+  <img src="Z:/picture/008/save_picture_666207.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665024.jpg" />
+  <img src="Z:/picture/008/save_picture_665024.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664099.jpg" />
+  <img src="Z:/picture/008/save_picture_664099.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664034.jpg" />
+  <img src="Z:/picture/008/save_picture_664034.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663566.jpg" />
+  <img src="Z:/picture/008/save_picture_663566.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663006.jpg" />
+  <img src="Z:/picture/008/save_picture_663006.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661912.jpg" />
+  <img src="Z:/picture/008/save_picture_661912.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661833.jpg" />
+  <img src="Z:/picture/008/save_picture_661833.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660593.jpg" />
+  <img src="Z:/picture/008/save_picture_660593.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660591.jpg" />
+  <img src="Z:/picture/008/save_picture_660591.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659721.jpg" />
+  <img src="Z:/picture/008/save_picture_659721.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37471A24344B90AE6409F5EB351EB7B71F74345A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138817   (659715) от 02.06.2017
-
-Карточный домик / House of Cards (2017) WEBRip [H.264/720p-LQ] (сезон 5, серия 1-13 из 13) BaibaKo [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Амбициозный конгрессмен от Демократической партии Фрэнк Андервуд в обмен на обещание сделать его госсекретарём помогает Гаррету Уокеру стать президентом США. Однако после выборов глава администрации президента Линда Васкез сообщает Андервуду, что он не получит должность. Взбешенные предательством Фрэнк и его жена готовы пойти на всё, чтобы отомстить новоиспечённому (   Читать дальше...   )Производство: США / Media Rights Capital (MRC), Panic Pictures (II), Trigger Street ProductionsЖанр: драмаРежиссер: Джеймс Фоули, Робин Райт, Джон Дэвид Коулз и др.Актеры: Кевин Спейси, Робин Райт, Кейт Мара, Кори Столл, Майкл Келли, Сакина Джэффри, Нэйтан Дарроу, Махершала Али, Дерек Сесил, Ламонт Истер и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoПродолжительность: ~00:55:00 серияРеклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B056B0CD5659B36AF392A6B5540A443B88278D
 ```
 
 https://mybot314.ru/tekegram_catalog/

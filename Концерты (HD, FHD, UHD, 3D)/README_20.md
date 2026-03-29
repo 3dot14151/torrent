@@ -1,3 +1,87 @@
+###  Публикация: 1300917   (585992) от 10.05.2019
+
+Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) BDRemux [H.264/1080p] [EN]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585992.jpg" />
+</div>
+
+
+###  Подробнее
+
+The iconic duo's acclaimed production, first presented at the Royal Opera House in 2016 over four sold-out shows, was reprised at the venue for a further four nights in July 2018 as part of their 'Super' tour. Staged by long-term PSB designer Es Devlin and choreographer/director Lynne Page, the show was filmed by director David Barnard. Filmed on 27 and 28 July 2018, (   Читать дальше...   )Производство: Великобритания, Pet Shop Boys Partnership LimitedЖанр: Synth-pop, Dance-pop, New waveРежиссер: David BarnardПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF83C61444553C30D48F430539D4999A5C657B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919318   (583628) от 18.07.2015
+
+Nightwish - Showtime, Storytime (2013) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_583628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление знаменитой финской Symphonic Power Metal команды "Nightwish" на "Wacken Open Air 2013" с новой нидерландской вокалисткой Floor Jansen (ex - After Forever, действующая вокалистка ReVamp и Nightwish).01. Dark Chest Of Wonders
+02. Wish I Had An Angel
+03. She Is My Sin
+04. Ghost River(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Folk MetalПродолжительность: 01:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744DB7EF307F0D09AF0B251E6F78F7DCAB5C7365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 179360   (583352) от 05.08.2014
+
+Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_583352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акустическое выступление Avril Lavigne в Roxy Theatre, Los Angeles, 16 Oct. 200701. Sk8er Boi
+02. Girlfriend
+03. My Happy Ending
+04. Innocence(   Читать дальше...   )Продолжительность: 00:50:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 70017   (582279) от 06.08.2014
 
 Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [1080i]
@@ -6,7 +90,7 @@ Avril Lavigne - Live at The Roxy Theatre (16.10.2007) HDTV [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582279.jpg" />
+  <img src="Z:/picture/008/save_picture_582279.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ Metallica - Fan Can Six, Copenhagen(2010) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581797.jpg" />
+  <img src="Z:/picture/008/save_picture_581797.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ Whitesnake - Made In Japan (2011/2013) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579924.jpg" />
+  <img src="Z:/picture/008/save_picture_579924.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ Metallica - Orgullo Pasion Y Gloria - Tres Noches En Mexico (2009) BDRip [H.264/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579921.jpg" />
+  <img src="Z:/picture/008/save_picture_579921.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578938.jpg" />
+  <img src="Z:/picture/008/save_picture_578938.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ Led Zeppelin - Celebration Day (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578630.jpg" />
+  <img src="Z:/picture/008/save_picture_578630.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ Hidden Tribe - Live at RTC-Fest @ Da:Da (2013) [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578406.jpg" />
+  <img src="Z:/picture/008/save_picture_578406.jpg" />
 </div>
 
 
@@ -209,7 +293,7 @@ Rammstein - Live aus St. Petersburg (2012) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578367.jpg" />
+  <img src="Z:/picture/008/save_picture_578367.jpg" />
 </div>
 
 
@@ -244,7 +328,7 @@ Stomp: Live (2009) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576577.jpg" />
+  <img src="Z:/picture/005/save_picture_576577.jpg" />
 </div>
 
 
@@ -272,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576429.jpg" />
+  <img src="Z:/picture/008/save_picture_576429.jpg" />
 </div>
 
 
@@ -300,7 +384,7 @@ Bon Jovi - Live at Madison Square Garden (2008) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575372.jpg" />
+  <img src="Z:/picture/008/save_picture_575372.jpg" />
 </div>
 
 
@@ -329,7 +413,7 @@ Dio - Live In London - Hammersmith Apollo (1993/2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575216.jpg" />
+  <img src="Z:/picture/008/save_picture_575216.jpg" />
 </div>
 
 
@@ -358,7 +442,7 @@ U.D.O. - Live in Sofia (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573647.jpg" />
+  <img src="Z:/picture/008/save_picture_573647.jpg" />
 </div>
 
 
@@ -387,7 +471,7 @@ Status Quo - Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) B
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573583.jpg" />
+  <img src="Z:/picture/008/save_picture_573583.jpg" />
 </div>
 
 
@@ -416,7 +500,7 @@ Liquid Tension Experiment: Live in L.A. (2008) BDRip 720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_572886.jpg" />
+  <img src="Z:/picture/005/save_picture_572886.jpg" />
 </div>
 
 
@@ -451,7 +535,7 @@ The Rolling Stones - Totally Stripped (1995) Blu-ray [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571887.jpg" />
+  <img src="Z:/picture/008/save_picture_571887.jpg" />
 </div>
 
 
@@ -477,7 +561,7 @@ Aerosmith - Rock For The Rising Sun (2013) BDRemux [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571607.jpg" />
+  <img src="Z:/picture/008/save_picture_571607.jpg" />
 </div>
 
 
@@ -506,7 +590,7 @@ U.D.O. – Steelhammer - Live from Moscow (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571594.jpg" />
+  <img src="Z:/picture/008/save_picture_571594.jpg" />
 </div>
 
 
@@ -535,7 +619,7 @@ Blackmore's Night - A Knight In York (2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571426.jpg" />
+  <img src="Z:/picture/008/save_picture_571426.jpg" />
 </div>
 
 
@@ -564,7 +648,7 @@ Styx - The Grand Illusion / Pieces of Eight Live (2010/2012) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569821.jpg" />
+  <img src="Z:/picture/008/save_picture_569821.jpg" />
 </div>
 
 
@@ -593,7 +677,7 @@ Fare Thee Well - Weekend One / Grateful Dead Live Jun 27 & 28, 2015 at Levi's St
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568060.jpg" />
+  <img src="Z:/picture/008/save_picture_568060.jpg" />
 </div>
 
 
@@ -619,7 +703,7 @@ Shakira - Oral Fixation Tour (2007) BDRip [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565954.jpg" />
+  <img src="Z:/picture/008/save_picture_565954.jpg" />
 </div>
 
 
@@ -648,7 +732,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565837.jpg" />
+  <img src="Z:/picture/008/save_picture_565837.jpg" />
 </div>
 
 
@@ -659,94 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E46E66ED7049C2B7FEB2FA9521FAE9BFFF703C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204088   (562836) от 07.06.2022
-
-Bon Jovi: Live at Madison Square Garden (2008) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный релиз от Bon Jovi, снятый 23 камерами высокого разрешения. Это возвращение в Madison Square Garden, самое знаковое место в Нью-Йорке, где группа выступала 19 лет назад. Концерт прошел в рамках исторического Lost Highway Tour, официально крупнейшего тура на планете в 2008 году.
-Bon Jovi — легендарная американская рок-группа из Нью Джерси, одни из основателей (   Читать дальше...   )01. Lost Highway
-02. Born To Be My Baby
-03. Blaze Of Glory
-04. It's My Life(   Читать дальше...   )Жанр: Музыка, Rock, Pop Rock, Soft Rock, Glam Rock, Pop RockРежиссер: Mercury Records Ltd (London)Актеры: Джон Бон Джови, Ричи Самбора, Дэвид Брайен, Тико Торрес, Хью МакДональдПродолжительность: 02:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C51355E7C5294CEA1AFEE60660FC90D52BB315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923585   (562616) от 01.08.2015
-
-Lynyrd Skynyrd - One More For The Fans (2015) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Lynyrd Skynyrd в Fox Theatre города Атланты (США) 12 ноября 2014 года.01. Whiskey Rock A Roller – performed by Randy Houser
-02. You Got That Right – performed by Robert Randolph & Jimmy Hall
-03. Saturday Night Special – performed by Aaron Lewis
-04. Working For MCA – performed by Blackberry Smoke(   Читать дальше...   )Жанр: Rock, Blues Rock, Southern RockПродолжительность: 01:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365FBDF516C818DCEB385C01305A0C6D42957A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235022   (561921) от 10.07.2018
-
-Rammstein - In Amerika (2015) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561921.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAMMSTEIN выпустили концерт «In Amerika». С триумфом вернулись в США 12 ноября 2010 года, выступив перед толпой в 18.000 человек на сцене Madison Square Garden в Нью-Йорке.Соединив зажигательное выступление немецких индастриал-металлистов с продуманной визуальной концепцией, полуторачасовое шоу записывалось на 14 камер.01. Rammlied
-02. B*********
-03. Waidmanns Heil
-04. Keine Lust(   Читать дальше...   )Жанр: Industrial MetalАктеры: RammsteinПродолжительность: 01:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6EFAABF27B4515D219DC6259BE176C8D6E1538
 ```
 
 https://mybot314.ru/tekegram_catalog/

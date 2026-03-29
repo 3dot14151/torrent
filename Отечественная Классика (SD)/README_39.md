@@ -1,3 +1,29 @@
+###  Публикация: 366485   (341717) от 03.11.2017
+
+Достояние республики (1971) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_341717.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме увлекательная детективная фабула сплетена со сложной историей человеческих взаимоотношений. Поиск похищенных произведений искусства - достояния республики - соединяет судьбы совершенно разных людей: работника угрозыска, авантюриста, беспризорника, бывшего царского криминалиста......Жанр: боевик, криминал, приключенияРежиссер: Владимир БычковФормат: AVIПродолжительность: 02:10:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C585705AD4A94AFEF490148909E4A034A3D04125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 19742   (341714) от 09.11.2014
 
 Офицеры (1971) DVDRip
@@ -6,7 +32,7 @@
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341714.jpg" />
+  <img src="Z:/picture/005/save_picture_341714.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341596.jpg" />
+  <img src="Z:/picture/005/save_picture_341596.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341594.jpg" />
+  <img src="Z:/picture/005/save_picture_341594.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341592.jpg" />
+  <img src="Z:/picture/005/save_picture_341592.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_341584.jpg" />
+  <img src="Z:/picture/005/save_picture_341584.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341015.jpg" />
+  <img src="Z:/picture/008/save_picture_341015.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341014.jpg" />
+  <img src="Z:/picture/008/save_picture_341014.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340192.jpg" />
+  <img src="Z:/picture/008/save_picture_340192.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339516.jpg" />
+  <img src="Z:/picture/008/save_picture_339516.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339423.jpg" />
+  <img src="Z:/picture/008/save_picture_339423.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339391.jpg" />
+  <img src="Z:/picture/008/save_picture_339391.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339303.jpg" />
+  <img src="Z:/picture/005/save_picture_339303.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339285.jpg" />
+  <img src="Z:/picture/005/save_picture_339285.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_339177.jpg" />
+  <img src="Z:/picture/005/save_picture_339177.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338830.jpg" />
+  <img src="Z:/picture/008/save_picture_338830.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338704.jpg" />
+  <img src="Z:/picture/008/save_picture_338704.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337394.jpg" />
+  <img src="Z:/picture/008/save_picture_337394.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337210.jpg" />
+  <img src="Z:/picture/008/save_picture_337210.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_336716.jpg" />
+  <img src="Z:/picture/005/save_picture_336716.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335397.jpg" />
+  <img src="Z:/picture/008/save_picture_335397.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_334652.jpg" />
+  <img src="Z:/picture/005/save_picture_334652.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334268.jpg" />
+  <img src="Z:/picture/008/save_picture_334268.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333449.jpg" />
+  <img src="Z:/picture/005/save_picture_333449.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333309.jpg" />
+  <img src="Z:/picture/005/save_picture_333309.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_333304.jpg" />
+  <img src="Z:/picture/005/save_picture_333304.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 411773   (332731) от 19.11.2011
-
-Солдаты (1956) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сталинградская битва глазами простых солдат. Они не имели права обсуждать приказы, даже если предвидели их катастрофические последствия. Они просто шли в бой, теряли друзей, влюблялись, мечтали о том, до чего многим не суждено было дожить… Июль 1942 года. Лейтенант Керженцев, его связной Валега и полковой разведчик Седых вместе с отступающими частями нашей армии (   Читать дальше...   )Жанр: ВоенныйРежиссер: Александр ИвановАктеры: Иннокентий Смоктуновский, Всеволод Сафонов, Тамара Логинова, Николай Погодин, Леонид Кмит, Людмила Маркелия, Юрий Соловьев, Евгений Тетерин, Владислав Ковальков, Михаил Ладыгин, Борис Ильясов...Продолжительность: 01:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91093B4ACB7DA27FD1968ECB2B8C4AEC61D3EFA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

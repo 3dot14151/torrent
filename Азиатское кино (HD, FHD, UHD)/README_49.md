@@ -1,3 +1,134 @@
+###  Публикация: 1265389   (273853) от 28.11.2018
+
+Ночь идёт за нами / The Night Comes for Us (2018) WEBRip [H.264/720p-LQ] [MVO]
+
+>>След.
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273853.jpg" />
+</div>
+
+
+###  Подробнее
+
+При выполнении очередного задания киллер триады нарушил правила - не смог заставить себя убрать последнюю свидетельницу. В спасении жизни девочки он увидел знак и шанс на искупление, но у такого поступка будут серьезные последствия, и теперь отступнику предстоит иметь дело со всей мощью своей преступной организации.Производство: Индонезия / Infinite Frameworks Studios,Screenplay Infinite Films,XYZ FilmsЖанр: Боевик, триллер, криминалРежиссер: Тимо ТьяджантоАктеры: Джо Таслим, Ико Уайс, Джули Эстелль, Санни Пан, Зак Ли, Шарифа Дааниш, Ханна аль Рашид, Диан Састровардойо, Эпи Куснандар, Салвита ДекортеПеревод: Многоголосый закадровый, профессиональный (HDRezka Studio)Субтитры: Pусские, английскиеПродолжительность: 02:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CD445F876E60F8A3200795BF2C2AA2DE9E7180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 384585   (272828) от 29.11.2018
+
+Проклятие золотого цветка / Curse of the Golden Flower / Man cheng jin dai huang jin jia (2006) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Китай. X век. Из долгого похода возвращается император. Он поражен холодной встречей придворных. Императрица тщательно скрывает тайную связь с кронпринцем. Странно ведет себя и его сын. Двор погряз в любовных и политических интригах, оплетающих дворец, словно гирлянды золотых хризантем. Император чувствует, что его хотят свергнуть с престола.
+Во время пышной церемонии (   Читать дальше...   )Производство: Гонконг, КитайЖанр: Боевик, Драма, МелодрамаРежиссер: Чжан ИмоуАктеры: Чоу Юнь-Фат, Гун Ли, Йе Лиу, Ли Гонг, Мэн Ли, Джин ЧенПеревод: ДублированныйСубтитры: Английские UTF-8Продолжительность: 01:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF723C9EA80B298AE415FBA88040BF68FB1192B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337383   (272434) от 12.11.2019
+
+Фиктивный брак / Guo bu xin lang / Paper Marriage (1988) BDRemux [H.264/1080p] [VO] [PR]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Толстяк Бо живёт в Америке. В прошлом он был чемпионом боевых искусств, теперь же безработный, постоянно проигрывающий деньги на лошадиных бегах, из-за чего повяз в долгах. Чтобы расплатиться со сборщиками долгов, он соглашается на фиктивный брак с Джейд Ли, за который ему обещают кругленькую сумму. Джейд же только-только прилетела из Гонконга, и брак ей нужен для (   Читать дальше...   )Производство: Гонконг / Bo Ho Film Company Ltd.Жанр: боевик, комедияРежиссер: Альфред ЧунАктеры: Саммо Хун, Мэгги Чун, Джойс Годензи, Альфред Чун, Мэг Лам, Чинь Ка-Лок, Рейнбоу Чинг, Билли Чоу, Сяо Хо, Филлип КоПеревод: Любительский одноголосый, закадровыйСубтитры: Английские, китайские (.pgs)Продолжительность: 01:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2468F3B51AAA62FFE3BAADDFA01950C3A03297
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338098   (271340) от 13.11.2019
+
+Красный и розовый / Aka x Pinku / Girl's Blood (2014) BDRemux [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271340.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подвале заброшенной школы в Роппонги каждую неделю проходят бои без правил под названием «Кровавая девушка». В этих боях принимают участие четверо девушек, у каждой из которых своя история попадания на ринг. Сацуки страдает от расстройства гендерной идентичности (никак не может определиться, кто ее внутреннее «я» — парень или девушка). Тинацу сбежала от мужа-подонка. (   Читать дальше...   )Производство: Япония / Kadokawa Daiei Studios, Kadokawa, Pony CanyonЖанр: БоевикРежиссер: Коити СакамотоАктеры: Юриа Хага, Санаэ Хитоми, Рина Коикэ, Такахиса Маэяма, Аямэ Мисаки, Мисаки Момосэ, Сё Нисино, Харука Ошима, Хидэо Сакаки, Рина СакурагиПеревод: Одноголосый любительский (den904)Субтитры: отсутствуютПродолжительность: 02:07:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765243A363C44E7C4075E6D8528A5DCD6F0B81B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337842   (271284) от 13.11.2019
+
+Гангстер, коп и дьявол / Akinjeon / The Gangster, the Cop, the Devil (2019) WEB-DLRip [H.265/720p] [10-bit] [PR]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271284.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005 год. Криминальный босс провинциального города Чхонан Чан Дон-су подвергается нападению серийного убийцы и оказывается единственной выжившей жертвой. Репутация подмочена, единственный способ восстановить авторитет в глазах братвы — найти нападавшего и отомстить. Местный детектив Чон Тхэ-сок всей своей полицейской душой ненавидит организованную преступность, но (   Читать дальше...   )Производство: Корея Южная / B&C Group, BA Entertainment, Balboa ProductionsЖанр: Боевик, криминал, триллерРежиссер: Ли Вон-тхэАктеры: Ма Дон-сок, Ким Му-ёль, Ким Сон-гю, Ю Сын-мок, Чхве Мин-чхоль, Ким Юн-сон, Хо Дон-вон, Ким Сын-хён, Ким Гю-ри, Ю Джэ-мёнПеревод: Любительский многоголосыйОзвучка: Ворон, Стефан и Lem0nkaСубтитры: Русские (Форсированные, полные)Продолжительность: 01:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CAD80DA9F8031B807E9D726D9FA972AF85186AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265869   (270895) от 01.12.2018
 
 Змея в тени орла (Тень орла) / Se ying diu sau (Snake in the Eagle's Shadow) (1978) BDRip [H.265/1080p-LQ] [10-bit][MVO]
@@ -6,7 +137,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270895.jpg" />
+  <img src="Z:/picture/008/save_picture_270895.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270822.jpg" />
+  <img src="Z:/picture/008/save_picture_270822.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270817.jpg" />
+  <img src="Z:/picture/008/save_picture_270817.jpg" />
 </div>
 
 
@@ -84,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270816.jpg" />
+  <img src="Z:/picture/008/save_picture_270816.jpg" />
 </div>
 
 
@@ -110,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269787.jpg" />
 </div>
 
 
@@ -136,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269784.jpg" />
 </div>
 
 
@@ -162,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269740.jpg" />
 </div>
 
 
@@ -188,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269721.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269703.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269650.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_269624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_269624.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269390.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269380.jpg" />
 </div>
 
 
@@ -345,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268062.jpg" />
+  <img src="Z:/picture/008/save_picture_268062.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ S.P.L. Звёзды судьбы / Saat po long / SPL: Kill Zone (2005) BDRip [H
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267978.jpg" />
+  <img src="Z:/picture/008/save_picture_267978.jpg" />
 </div>
 
 
@@ -399,7 +530,7 @@ S.P.L. Звезды судьбы 2 / Sha po lang 2 / Kill Zone 2 (2015) BDRip [H
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267977.jpg" />
+  <img src="Z:/picture/008/save_picture_267977.jpg" />
 </div>
 
 
@@ -425,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267390.jpg" />
+  <img src="Z:/picture/008/save_picture_267390.jpg" />
 </div>
 
 
@@ -451,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266799.jpg" />
 </div>
 
 
@@ -477,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266791.jpg" />
 </div>
 
 
@@ -503,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266073.jpg" />
 </div>
 
 
@@ -529,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264593.jpg" />
 </div>
 
 
@@ -540,137 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4E9E25B4DF1BB64DEFEA107012AA8A4A3F1AE35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340832   (263221) от 25.11.2019
-
-Отель «Де Сад» / Hotel de Sade (2013) BDRemux [H.264/1080p] [GER Transfer] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полагая, что он убил свою дочь вместо того, чтобы спасти ее от похитителей, Эрик полностью разбит. Это приводит его в Китай, где он ищет утешение в боли и крови в отеле «Paradise», в котором удовлетворяют любые плотские и непристойные желания.
-С жестоким боссом, ужасающим Бёрнтом Мэном во главе подземного борделя, ни одно извращение не останется без внимания. Но (   Читать дальше...   )Производство: Сингапур, Китай, Малайзия / Knotty Ideas, Third Floor PicturesЖанр: Ужасы, Триллер, ДрамаРежиссер: Oman DhasАктеры: Fish Chaar, Лаура Ки, William Lawandi, Joanne-Marie Sim, Найджел Тан, Дебра Тенг, Вивьенн ЦзэнПеревод: Одноголосый любительскийСубтитры: АнглийскиеПродолжительность: 01:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B99F6F01549CD15E7FFFC8394386B1F901D76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192898   (262366) от 19.12.2017
-
-Плохой гений / Chalard games goeng / Bad Genius (2017) BDRip [H.264/1080p] [MVO] [PR]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличница и медалистка Линн переводится в дорогую престижную школу, где учится золотая молодежь, и сразу заводит дружбу с Грейс, которая не сильна в математике. Однажды Линн помогает лучшей подруге на экзамене, и вот уже выстраивается очередь из богатеньких старшеклассников, желающих платить за экзаменационные ответы. Поскольку отец Линн — обычный школьный учитель, (   Читать дальше...   )Производство: Таиланд / Nattawut PoonpirlyaЖанр: Драма, комедия, триллерРежиссер: Наттавут ПунпирийаАктеры: Чатимон Чаенгчароэнсакинг, Эисая Хосуван, Тирадон Супапунпинйо, Чанон Сантинаторнкул, Танет Варакулнукрох, Саринрат Томас, Иго Микитас, Пасин Куансатапорн, Сахаджак Бунсанакит, Канджана ВинаипанидПеревод: Любительский двухголосыйОзвучка: Антонина Лазаревская, Макс КоллапсСубтитры: АнглийскиеПродолжительность: 02:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D7E506DC94664D22401BC34C7885AC0AA1CB495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838604   (260725) от 23.11.2025
-
-Бесстыдник / Muroehan / The Shameless (2015) BDRip [H.264/720p] [KR / RU Sub]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский, пытающийся выследить преступника в бегах, выходит на его любовницу. Выдав себя за его сокамерника, герой стремится втереться в доверие к женщине. Но чем дольше он играет свою роль, тем шире становится круг заинтересованных лиц и оставаться верным долгу становится всё труднее….Производство: Южная Корея / CGV, Sanai PicturesЖанр: драма, мелодрама, криминалРежиссер: О Сын-укАктеры: До Ён Чон, Ким Нам Гиль, Пак Сон Ун, Квак То Вон, Ким Мин ДжэПеревод: субтитрамиЯзык озвучки: корейскийСубтитры: русские (Aniutiktik, Dasha serak, Элла Флинк, Кирилл Гавриленко, Рина Cамалихина, Eru), английскиеПродолжительность: 01:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F984FF671989E2015BEC7A93CF4487E382466DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 500912   (258144) от 24.05.2012
-
-Сукияки Вестерн Джанго / Sukiyaki Western Django (2007) [720p] BDRip
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Японский спагетти-вестерн с самураями, сокровищами, многоствольным пулеметом и закутанным в плед Квентином Тарантино в кресле-каталке на паровом ходу. Два враждующих средневековых клана — "белые" и "красные" — терроризируют некогда процветавшую деревушку, в окрестностях которой зарыт сундучок с драгоценными металлами. Победить конкурентов можно, переманив на свою сторону виртуозного стрелка и таинственного человека с темным прошлым. Последний, однако, предпочитает общество хозяйки местного салуна.Жанр: боевик, вестернРежиссер: Такаси МиикеПродюсер: Нобуюки Тоя, Масато Осаки, Тошиаки НаказаваАктеры: Квентин Тарантино, Хидеаки Ито, Масанобу Андо, Койчи Сато, Каори Момой, Юсуке Исейа, Рендзи Исибаси, Йошино Кимура, Такааки Исибаси, Тошиюки НишидаПеревод: Авторский двухголосый, авторский одноголосыйПродолжительность: 02:00:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837774   (258046) от 21.11.2025
-
-Мечта / Deurim / Dream (2023) BDRip [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получив дисциплинарное взыскание, футболист Юн Хон-дэ становится тренером команды бездомных.Производство: Южная Корея / Megabox Plus M, Oktober CinemaЖанр: спорт, комедияРежиссер: Ли Бён-хонАктеры: Пак Со-джун, Ли Джи-ын, Ким Джон-су, Ко Чхан-сок, Чон Сын-гиль, Ли Хён-у, Ян Хён-мин, Хон Ван-пхё, Хо Джун-сок, Ли Ха-ниПеревод: Двуголосый любительский (Pazl Voice, SoftBox)Язык озвучки: Русский, Английский, Испанский, КорейскийСубтитры: русские (forced, full), английские, испанские, украинские, немецкие, французскиеПродолжительность: 02:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C393FD3D27E1A9C873DBC8FF689EB62ECB2F3ADD
 ```
 
 https://mybot314.ru/tekegram_catalog/

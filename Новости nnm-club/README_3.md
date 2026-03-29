@@ -1,3 +1,109 @@
+###  Публикация: 1437254   (1041870) от 05.01.2021
+
+Понимают ли кошки и собаки, что хвост – часть их тела. Мнение ученых
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди впускают кошек и собак в дома, позволяют им играть с детьми и делают их частью семьи. В какой-то момент собаки или кошки набрасываются на собственный хвост и с яростью «рвут» его зубами. Затем они снова возвращаются к использованию хвоста для выражения эмоций, будто ничего не произошло. Так в чем же дело? Неужели кошки и собаки настолько глупы, чтобы думать, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437482   (1041862) от 05.01.2021
+
+Карл Маркс | Капитал. Полная квинтэссенция 3-х томов (2019) [EPUB]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041862.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Капитал» – главный труд немецкого экономиста и политического деятеля Карла Маркса, несомненно, оказавший влияние на мировую историю. Данное издание – это основные положения и идеи содержащиеся в «Капитале», обработанные немецким экономистом и политиком Ю. Борхардтом. Как отмечает сам Борхардт, ему «удалось передать теорию учения в правильной форме», что «дает ключ (   Читать дальше...   )Жанр: Зарубежная классика, Книги по экономикеПеревод: С. АлексеевФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BC907A56E994581B65199F1BBE05D415A62EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 695623   (1041825) от 05.01.2021
+
+Почемучка. Астрономия (2013) DVBRip/WEB-DLRip/IPTVRip (5 сезон: 26 из 26 серий) [обновляемая]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже знакомые зрителям канала «Карусель» персонажи программы «Почемучка» решают изучить мир, который находится за пределами их обычного жилья — старого компьютера.
+Более того, Процессор, Бит, Байт, Память, Контроллер и Вирус хотят изучить мир, находящийся за пределами планеты Земля.
+Их интересуют вопросы, которые задает каждый человек, поднимая глаза к небу: «Что (   Читать дальше...   )Производство: Россия, ООО "Пилот Тэ Вэ", ВГТРКЖанр: Детский, ОбучающийРежиссер: Родион СоловьёвАктеры: Сергей Лобанков, Борис ЛютиковПродолжительность: 26 x ~ 00:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D6B486CC311CA8B2613CA1B83E1CC75D0548F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437446   (1041824) от 05.01.2021
+
+Anno 1800 (2020) [Ru/Multi] (9.2/dlc) Uplay-Rip InsaneRamZes [Complete Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anno 1800 – возглавьте промышленную революцию! Anno 1800 перенесет игроков в XIX век, в мир запутанных политических интриг и стремительно развивающихся технологий. Придется приложить максимум усилий, чтобы отточить способности к управлению и справиться с основной задачей - построить собственную империю, влияние которой распространится от туманных городов Европы до (   Читать дальше...   )Тип издания: Uplay-RipРазработчик: Blue ByteЖанр: Strategy, SimulatorЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4B3FF9766A938EE413DD9D153DC02D04E96DB87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245844   (1041820) от 05.01.2021
 
 Mi Band Master v3.1.4 Pro [Ru]
@@ -6,7 +112,7 @@ Mi Band Master v3.1.4 Pro [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041820.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041549.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041381.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041234.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041211.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ ADATA: карты памяти формата SD Express
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040988.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ High On Life (2022) [Multi] (1.11.4763.0) License RAZOR1911
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040959.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ Osiris: New Dawn (2023) [Ru/Multi] (0.5.616) License TENOKE
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040957.jpg" />
 </div>
 
 
@@ -217,7 +323,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2019 SmokieBlahBlah 08.01.21 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040683.jpg" />
 </div>
 
 
@@ -243,7 +349,7 @@ Udemy, Владилен Минин | JavaScript 2021 - Полное Руково
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040682.jpg" />
 </div>
 
 
@@ -271,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040680.jpg" />
 </div>
 
 
@@ -297,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040660.jpg" />
 </div>
 
 
@@ -323,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040420.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040420.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ CorelDRAW Graphics Suite 2020 22.2.0.532 RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040407.jpg" />
 </div>
 
 
@@ -377,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040226.jpg" />
 </div>
 
 
@@ -404,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040223.jpg" />
 </div>
 
 
@@ -430,7 +536,7 @@ Terminator: Resistance (2019) [Ru/Multi] (1.050/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040201.jpg" />
 </div>
 
 
@@ -456,7 +562,7 @@ Samsung SSD 990 Pro получил новую прошивку, которая �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040020.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ Kage no Jitsuryokusha ni Naritakute! / The Eminence in Shadow / Восхожде
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040012.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039684.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039673.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039669.jpg" />
 </div>
 
 
@@ -576,111 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BED460D0EE9A095D204F4046C06123A55C94F7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375581   (1039668) от 13.01.2021
-
-Миша портит все (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-13 из 13)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039668.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждой серии приставучий гений Миша спасает среднестатистическую семью Горшковых от «разводов» маркетологов, стереотипов и навязанных традиций.Производство: Россия / СТС, кинокомпания МИМЖанр: комедияРежиссер: Всеволод БродскийАктеры: Михаил Галустян, Елена Николаева, Роман Богданов, Александра Абрамейцева, Артемий Падалка, Ирина Серова, и др.Продолжительность: ~00:23:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB78144781609A0A8433FC37AC82866C0E32FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612652   (1039458) от 18.02.2023
-
-Бескрайний бассейн / Infinity Pool (2023) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парочка отдыхает на курорте, где «всё включено». Однажды на пляже происходит несчастный случай со смертельным исходом, после чего атмосфера отдыха резко меняется.Производство: Канада, Хорватия, Венгрия / Film Forge, Eurimages, NeonЖанр: ужасы, фантастика, триллер, криминал, детективРежиссер: Брэндон КроненбергАктеры: Александр Скарсгард, Миа Гот, Клеопатра Коулмэн, Жалиль Леспер, Томас Кречман, Аманда Бругел, Кэролайн Бултон, Джон Ралстон, Джефф Рикеттс, Dunja Sepcic BognerПеревод: Многоголосый профессиональный (Jaskier), двуголосый любительский (Yuka_chan & datynet)Язык озвучки: Русский, английскийСубтитры: Русские, английские (Full, SDH), испанскиеПродолжительность: 01:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E80D8B4D0215FA90CCE33E44C0152C45E95A513
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125171   (1039457) от 18.02.2023
-
-Лучше звоните Солу / Better Call Saul (2017) WEB-DL [H.264/1080p-LQ] (сезон 3, серии 1-10 из 10) LostFilm
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спин-офф сериала «Во все тяжкие» от его создателя Винса Гиллигана.
-Главный герой сериала – адвокат Сол Гудман, все больше углубляется в криминальный мир. С каждым новым делом Сол набирается больше опыта и адвокатской практики, что позволяет ему стать еще находчивее и пронырливее в своем деле. Сол обретает в криминальном мире славу, как адвокат, который берется за (   Читать дальше...   )Производство: США / High Bridge Productions, Crystal Diner Productions, Gran Via ProductionsЖанр: драма, криминалРежиссер: Винс Гиллиган, Томас Шнауз, Питер ГулдАктеры: Боб Оденкёрк, Джонатан Бэнкс, Ри Сихорн, Майкл МакКин, Патрик Фабиан, Майкл Мэндо, Керри Кондон, Винсент Фуэнтес, Омар Маскати, Эйлин Фогарти и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: английскиеПродолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74C021D9C337148D7020043D581AFDA283BC2C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367800   (1039409) от 14.01.2021
-
-The Outer Worlds (2019) [Ru/Multi] (1.4.1.617/dlc) Repack xatab (обновляемая)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039409.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Outer Worlds — новая однопользовательская научно-фантастическая ролевая игра с видом от первого лица, над которой работают Obsidian Entertainment и Private Division. В The Outer Worlds вы пробуждаетесь после гибернации на корабле поселенцев, пропавшем по пути к Альциону — самой дальней земной колонии на краю галактики.Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: RPG, Adventure, Sci-fi, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF146DF531E9FD8062F83263332D3AD836C72BF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

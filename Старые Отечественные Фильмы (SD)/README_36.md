@@ -1,3 +1,56 @@
+###  Публикация: 1287991   (592558) от 09.05.2022
+
+Письма к живым (1964) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прообраз героини - Герой Советского Союза Вера Хоружая, коммунистка-подпольщица.
+После окончания второй мировой войны в камере казненной фашистами партизанки Вероники Корчевской находят письма - итог ее героической жизни...Производство: СССР / БеларусьфильмЖанр: ДрамаРежиссер: Валентин ВиноградовАктеры: Светлана Макарова, Астрида Кайриша, Валентин Никулин, Павел Махотин, Валентина Кибардина, Григорий Гай, Николай Прокопович, Стефания Станюта, Лена Гутник, Бронюс БабкаускасСубтитры: ОтсутствуютПродолжительность: 01:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:982A79B85AE5C117DD0B0D33FD072F57421CD514
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915537   (592257) от 05.07.2015
+
+Мисс миллионерша (1988) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592257.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале «перестройки» городские власти готовятся к очередному мероприятию в духе застойных времен. Режиссеру с достаточно «ершистым» характером поручают снять материал о рождении миллионного жителя. Но когда он находит героиню сюжета, «позитивного» материала не получается, так как эта семья для рекламы счастливой жизни никак не подходит…Производство: СССР / ЛенфильмЖанр: КомедияРежиссер: Александр РогожкинАктеры: Николай Караченцов, Татьяна Михалевкина, Юрий Дубровин, Елена Мельникова, Наталья Назарова, Оксана Мысина, Никита Михайловский, Владимир Тягичев, Александр Новиков, Виктор Бычков, Сергей ПрохановПродолжительность: 01:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13767AF59485747AEFAA68E1C2B4CF3733F29C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 330964   (592215) от 05.07.2015
 
 Водяной (1961) SATRip
@@ -6,7 +59,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592215.jpg" />
+  <img src="Z:/picture/008/save_picture_592215.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592114.jpg" />
+  <img src="Z:/picture/008/save_picture_592114.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592021.jpg" />
+  <img src="Z:/picture/008/save_picture_592021.jpg" />
 </div>
 
 
@@ -86,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591717.jpg" />
+  <img src="Z:/picture/008/save_picture_591717.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591593.jpg" />
+  <img src="Z:/picture/008/save_picture_591593.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589073.jpg" />
+  <img src="Z:/picture/008/save_picture_589073.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589061.jpg" />
+  <img src="Z:/picture/008/save_picture_589061.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588731.jpg" />
+  <img src="Z:/picture/008/save_picture_588731.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588622.jpg" />
+  <img src="Z:/picture/008/save_picture_588622.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587391.jpg" />
+  <img src="Z:/picture/008/save_picture_587391.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586933.jpg" />
+  <img src="Z:/picture/008/save_picture_586933.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586447.jpg" />
+  <img src="Z:/picture/008/save_picture_586447.jpg" />
 </div>
 
 
@@ -327,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586056.jpg" />
+  <img src="Z:/picture/008/save_picture_586056.jpg" />
 </div>
 
 
@@ -353,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582723.jpg" />
+  <img src="Z:/picture/008/save_picture_582723.jpg" />
 </div>
 
 
@@ -379,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580916.jpg" />
+  <img src="Z:/picture/008/save_picture_580916.jpg" />
 </div>
 
 
@@ -406,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580012.jpg" />
+  <img src="Z:/picture/008/save_picture_580012.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579138.jpg" />
+  <img src="Z:/picture/008/save_picture_579138.jpg" />
 </div>
 
 
@@ -460,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578979.jpg" />
+  <img src="Z:/picture/008/save_picture_578979.jpg" />
 </div>
 
 
@@ -486,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577549.jpg" />
+  <img src="Z:/picture/008/save_picture_577549.jpg" />
 </div>
 
 
@@ -512,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576862.jpg" />
+  <img src="Z:/picture/005/save_picture_576862.jpg" />
 </div>
 
 
@@ -538,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576751.jpg" />
+  <img src="Z:/picture/005/save_picture_576751.jpg" />
 </div>
 
 
@@ -564,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_576631.jpg" />
+  <img src="Z:/picture/005/save_picture_576631.jpg" />
 </div>
 
 
@@ -590,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575430.jpg" />
+  <img src="Z:/picture/008/save_picture_575430.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575376.jpg" />
+  <img src="Z:/picture/008/save_picture_575376.jpg" />
 </div>
 
 
@@ -628,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77A2CA7467782938C0DDFC8E12F6CB2276C5AB0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688525   (575299) от 12.08.2013
-
-Ворота в небо (1983) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танковый корпус генерала Шубникова весной 1945 года был уже на подступах к Берлину. Отставшие тылы не обеспечивали регулярность подвоза горючего. Полковнику Лебеденко было поручено организовать базу горючесмазочных материалов в Химмельсфорте (в переводе - Ворота в небо), где небольшой группе советских бойцов пришлось вступить в неравный бой с остатками вражеского (   Читать дальше...   )Жанр: военный, драмаРежиссер: Дамир Вятич-БережныхАктеры: Георгий Жжёнов, Валерий Хромушкин, Анатолий Васильев, Эрнст Романов, Юрий Назаров, Татьяна Божок, Валерий Носик, Юрий Мартынов, Улдис Думпис, Улдис Лиелдидж, Янина Лисовская, Карлис Зушманис, Иван Косых, Нартай Бегалин, Анатолий Ведёнкин, Владимир Гуляев, Юозас Киселюс, Владимир Кузнецов (VI), Надежда Матушкина, Ирена Симонайтите, Александр Январёв и другиеПродолжительность: 01:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81B19CC2EB777A53127DCB3952D66B0DF6716685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361087   (574949) от 11.07.2011
-
-Боксеры (1941) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой боксер Кирилл Кочеванов в учебном бою отборочных соревнований с чемпионом Петром Дороховым проигрывает решающую встречу и, казалось бы, теперь не должен попасть в команду для поездки в Европу. Однако по решению комиссии, усмотревшей в спортсмене большие задатки, Кочеванов вместе с лучшими боксерами «Молнии» уезжает за границу. После нескольких выигранных встреч наши спортсмены получают вызов чемпиона Европы Анри Ланса. Хорошо изучив тактику и стратегию боя Дорохова Ланс обещает всем журналистам накаутировать соперника не позже четвертого раунда. Однако противником Ланса объявляется Кирилл Кочеванов. На четвертом раунде Кирилл переходит в наступление, атакует Ланса и выигрывает бой .Жанр: Драма, Комедия, CпортРежиссер: Владимир ГончуковАктеры: Виталий Доронин, Даниил Сагал, Николай Ивакин, Константин Градополов, Константин Михайлов, Константин Сорокин, Виктор Проклов, Ариадна Тур, Ефим Копелян, Роберт Росс, Иван Бобров, Эммануил Геллер, Николай Волков, Николай КомиссаровПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2815A3EF11A9D0D263BD29906CE53735ACB705A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

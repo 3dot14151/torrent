@@ -1,3 +1,90 @@
+###  Публикация: 1263339   (286540) от 20.11.2018
+
+Gordian Knot - Gordian Knot (1998) Japan [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_286540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galois (2:05)
+02. Code / Anticode (6:44)
+03. Reflections (6:49)
+04. Megrez (4:00)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79451F9E1238F1AF93C0FEE8ED08F0879EE751CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263341   (286462) от 20.11.2018
+
+Skyharbor - Sunshine Dust (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_286462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signal (1:20)
+02. Dim (4:58 )
+03. Out Of Time (4:57)
+04. Synthetic Hands (5:41)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EAF252518F57792A79F0991E4137D308D2039F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263573   (286450) от 20.11.2018
+
+Anubis Gate - Covered In Black (2017) [FLAC|Lossless|tracks + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_286450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychotopia (6:41)
+02. The New Delhi Assassination (3:16)
+03. The Combat (5:43)
+04. Too Much Time (7:35)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE5A087DA63E7518A48E6EB75F9BB693A8F2CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263470   (286444) от 20.11.2018
 
 Vanden Plas - The God Thing (1997) Reissue, Special Edition, 2004, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -6,7 +93,7 @@ Vanden Plas - The God Thing (1997) Reissue, Special Edition, 2004, Inside Out Mu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286444.jpg" />
+  <img src="Z:/picture/008/save_picture_286444.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Deafheaven - New Bermuda (2015) [FLAC|Lossless|image + .cue] <Post-Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286439.jpg" />
+  <img src="Z:/picture/008/save_picture_286439.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Witchery - I Am Legion (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286403.jpg" />
+  <img src="Z:/picture/008/save_picture_286403.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Holter - Vlad The Impaler (2018) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286307.jpg" />
+  <img src="Z:/picture/008/save_picture_286307.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Conjonctive - Until The Whole World Dies... (2013) [FLAC|Lossless]<Blackened Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286306.jpg" />
+  <img src="Z:/picture/008/save_picture_286306.jpg" />
 </div>
 
 
@@ -156,7 +243,7 @@ Those Who Fear - 3 Альбома (2013-2016) [FLAC|tracks|Lossless]<Moshable Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284892.jpg" />
+  <img src="Z:/picture/008/save_picture_284892.jpg" />
 </div>
 
 
@@ -185,7 +272,7 @@ Missa Mercuria - Missa Mercuria (2002) [FLAC|Lossless|image + .cue] <Progressive
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284686.jpg" />
+  <img src="Z:/picture/008/save_picture_284686.jpg" />
 </div>
 
 
@@ -214,7 +301,7 @@ Event Horizon - Naked On The Black Floor (2006) [FLAC|mage +.cue|Lossless]<Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284145.jpg" />
+  <img src="Z:/picture/008/save_picture_284145.jpg" />
 </div>
 
 
@@ -243,7 +330,7 @@ Thomsen - Unbroken (2014) [FLAC|mage +.cue|Lossless]<Heavy, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284144.jpg" />
+  <img src="Z:/picture/008/save_picture_284144.jpg" />
 </div>
 
 
@@ -272,7 +359,7 @@ Votum - Metafiction (2009)  [FLAC|Lossless|image + .cue]<Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283070.jpg" />
+  <img src="Z:/picture/008/save_picture_283070.jpg" />
 </div>
 
 
@@ -301,7 +388,7 @@ Pagan's Mind - 5 Albums, 2 Lives (2000 - 2015) 13 CD [FLAC|APE|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281160.jpg" />
+  <img src="Z:/picture/008/save_picture_281160.jpg" />
 </div>
 
 
@@ -330,7 +417,7 @@ Dymna Lotva - 1 Album, 7 Singles & EP (2016 - 2018) [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281151.jpg" />
+  <img src="Z:/picture/008/save_picture_281151.jpg" />
 </div>
 
 
@@ -360,7 +447,7 @@ W. Angel's Conquest - Taste of Life (2015) [FLAC|image+cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280934.jpg" />
+  <img src="Z:/picture/008/save_picture_280934.jpg" />
 </div>
 
 
@@ -389,7 +476,7 @@ Lindemann - Knebel (2019) Single [FLAC|Lossless|WEB-DL|tracks]<Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280660.jpg" />
+  <img src="Z:/picture/008/save_picture_280660.jpg" />
 </div>
 
 
@@ -415,7 +502,7 @@ Fusion Bomb - Concrete Jungle (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279257.jpg" />
+  <img src="Z:/picture/008/save_picture_279257.jpg" />
 </div>
 
 
@@ -444,7 +531,7 @@ Mob Rules - Beast Over Europe (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279164.jpg" />
+  <img src="Z:/picture/008/save_picture_279164.jpg" />
 </div>
 
 
@@ -473,7 +560,7 @@ Epica - Consign To Oblivion (2005) 2CD, Expanded Edition, 2015, Transmission Rec
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279100.jpg" />
+  <img src="Z:/picture/008/save_picture_279100.jpg" />
 </div>
 
 
@@ -502,7 +589,7 @@ Antiquus Scriptum - Immortalis Factus (2008) [FLAC|Lossless|image + .cue] <Symph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277917.jpg" />
+  <img src="Z:/picture/008/save_picture_277917.jpg" />
 </div>
 
 
@@ -531,7 +618,7 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277766.jpg" />
+  <img src="Z:/picture/008/save_picture_277766.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ The Dark Element - Songs the Night Sings (2019) [FLAC|Lossless|WEB-DL|tracks] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276212.jpg" />
+  <img src="Z:/picture/008/save_picture_276212.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ Jinjer - Macro (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Groove Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276174.jpg" />
+  <img src="Z:/picture/008/save_picture_276174.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ Blodulv - Wehrkraft (2009) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275076.jpg" />
+  <img src="Z:/picture/008/save_picture_275076.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ Blodulv - Diatribe (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275075.jpg" />
+  <img src="Z:/picture/008/save_picture_275075.jpg" />
 </div>
 
 
@@ -661,93 +748,6 @@ Blodulv - Diatribe (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF67CCA33E064A8B9800E5331901EC4ED81C9228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188282   (275074) от 02.12.2017
-
-Blodulv - Blodulv (2003) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Regulus - Peaceraper
-02. Legion Murdergoat
-03. Jormungrund
-04. Odium(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA83F232BD0E2D5546B4531999BA0C68A8099AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188287   (275027) от 02.12.2017
-
-Blodulv - III - Burial (2005) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Burial
-03. Imperium Sanctum (Bleeding Mercury)
-04. Tank Warfare(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34FC1C21AFEFCA23A094D1855649F7FC8D7554A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188421   (275025) от 02.12.2017
-
-Thormenthor - Abstract Divinity (1994) [APE|Lossless|image + .cue] <Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstract divinity
-02. The proportional dream
-03. Encircled by aura sphere
-04. Nothing expanded(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:33:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC95211B58C382D9FA7EBED4479CAF97E7573F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

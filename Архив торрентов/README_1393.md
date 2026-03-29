@@ -6,7 +6,7 @@ RAW Power 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738173.jpg" />
+  <img src="Z:/picture/008/save_picture_738173.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Downie 4 v4.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738172.jpg" />
+  <img src="Z:/picture/008/save_picture_738172.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Permute 3 v3.8.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738167.jpg" />
+  <img src="Z:/picture/008/save_picture_738167.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Bartender 4 v4.31b U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738166.jpg" />
+  <img src="Z:/picture/008/save_picture_738166.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Alfred 4 Powerpack 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738165.jpg" />
+  <img src="Z:/picture/008/save_picture_738165.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Yate 6.8.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738163.jpg" />
+  <img src="Z:/picture/008/save_picture_738163.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Project Office Pro 9.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738161.jpg" />
+  <img src="Z:/picture/008/save_picture_738161.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Things 3 v3.15.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738159.jpg" />
+  <img src="Z:/picture/008/save_picture_738159.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Permute 3 v3.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738154.jpg" />
+  <img src="Z:/picture/008/save_picture_738154.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Infuse PRO 7 v7.3.3 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738150.jpg" />
+  <img src="Z:/picture/008/save_picture_738150.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Internet Download Manager 6.40 Build 5 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738148.jpg" />
+  <img src="Z:/picture/008/save_picture_738148.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Adobe Substance 3D Designer 11.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738142.jpg" />
+  <img src="Z:/picture/008/save_picture_738142.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Adobe Substance 3D Sampler 3.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738141.jpg" />
+  <img src="Z:/picture/008/save_picture_738141.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ HDCleaner 2.015 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738140.jpg" />
+  <img src="Z:/picture/008/save_picture_738140.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Wondershare PDFelement Pro OCR 8.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738138.jpg" />
+  <img src="Z:/picture/008/save_picture_738138.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Keka 1.2.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738136.jpg" />
+  <img src="Z:/picture/008/save_picture_738136.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ TechSmith Snagit 2022.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738133.jpg" />
+  <img src="Z:/picture/008/save_picture_738133.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ AllDup 4.5.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738120.jpg" />
+  <img src="Z:/picture/008/save_picture_738120.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ OCCT 10.0.7 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738117.jpg" />
+  <img src="Z:/picture/008/save_picture_738117.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Opera 83.0.4254.19 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738113.jpg" />
+  <img src="Z:/picture/008/save_picture_738113.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Freac 1.1.6 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738096.jpg" />
+  <img src="Z:/picture/008/save_picture_738096.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ SamDrivers 22.00 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738093.jpg" />
+  <img src="Z:/picture/008/save_picture_738093.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Spotify 1.1.77.643 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738084.jpg" />
+  <img src="Z:/picture/008/save_picture_738084.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Internet Download Manager 6.40 Build 7 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738081.jpg" />
+  <img src="Z:/picture/008/save_picture_738081.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Revo Uninstaller Free 2.3.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738080.jpg" />
+  <img src="Z:/picture/008/save_picture_738080.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Nekonverter 1.2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738054.jpg" />
+  <img src="Z:/picture/008/save_picture_738054.jpg" />
 </div>
 
 

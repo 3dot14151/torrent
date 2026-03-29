@@ -1,3 +1,152 @@
+###  Публикация: 1018992   (752100) от 22.05.2016
+
+Joe Cocker - Respect Yourself (2002) [APE|Lossless|tracks + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_752100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can't Have My Heart
+02. Love Not War
+03. You Took It So Hard
+04. Never Tear Us Apart(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036E764FB2340C5CC3D8A7DA0FCC8A986A5A81BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781952   (750451) от 01.05.2014
+
+VA - Billboard Top Rock'n'Roll Hits (1955-1959) 5CD /1988-1989 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_750451.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
+А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1955
+Продoлжитeльность: 00:26:14
+Трeклиcт:
+01. Bill Haley & His Comets - Rock Around The Clock  (2:13)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA11AE036D3387CBF38BDC43257B67C37105FEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 782540   (750449) от 01.05.2014
+
+VA - Billboard Top Rock'n'Roll Hits (1965-1969)  5CD /1988 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_750449.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
+А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1965
+Продoлжитeльность: 00:28:18
+Трeклиcт:
+01. Shirley Ellis - The Name Game  (3:03)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:27:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:958C2F8521F423440901E417DE23C5C857DFB36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781989   (750421) от 01.05.2014
+
+VA - Billboard Top Rock'n'Roll Hits (1960-1964) 5CD  /1993 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_750421.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
+А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1960
+Продoлжитeльность: 00:23:41
+Трeклиcт:
+01. Joe Jones - You Talk Too Much  (2:31)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2DDF2813562C0765BD495942C69F0340B4B1209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 782551   (750406) от 01.05.2014
+
+VA - Billboard Top Rock'n'Roll Hits (1970-1972, 1974) 4CD /1989 Rhino Records/ [FLAC|Lossless]<Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_750406.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом грандиозном проекте Rhino Records, охватившем практически три с половиной десятилетия музыкальной жизни планеты собраны по десять хитов каждого года с момента 12 ноября 1955 года, когда Billboard опубликовала свой первый The Top 100 и до 1990 года.
+А если к нему добавить еще серию Billboard Pop Memories, которой Rhino Records охватила период с 1920 по 1950 (   Читать дальше...   )1970
+Продoлжитeльность: 00:32:06
+Трeклиcт:
+01. Shocking Blue - Venus  (3:05)(   Читать дальше...   )Жанр: Rock, Rock & Roll, Blues, Funk-Soul, Rhythm & BluesПродолжительность: 02:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF58D61E8F9A7CB7D5B615DB79E77E46FD0197EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019469   (750257) от 23.05.2016
 
 Steve Vai - Real Illusions: Reflections (2005) Unofficial Release [APE|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -6,7 +155,7 @@ Steve Vai - Real Illusions: Reflections (2005) Unofficial Release [APE|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750257.jpg" />
+  <img src="Z:/picture/005/save_picture_750257.jpg" />
 </div>
 
 
@@ -35,7 +184,7 @@ Galactic - Already Ready Already (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Fun
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750023.jpg" />
+  <img src="Z:/picture/008/save_picture_750023.jpg" />
 </div>
 
 
@@ -64,7 +213,7 @@ Cat Stevens - Foreigner (1973) Island Masters - IMCD 72, 1993 [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750020.jpg" />
+  <img src="Z:/picture/005/save_picture_750020.jpg" />
 </div>
 
 
@@ -93,7 +242,7 @@ Tyler Kamen - Transformation (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750014.jpg" />
+  <img src="Z:/picture/008/save_picture_750014.jpg" />
 </div>
 
 
@@ -122,7 +271,7 @@ Santana - Greatest Hits (2010) 2CD, Compilation, Unofficial Release, Digipak [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749944.jpg" />
+  <img src="Z:/picture/008/save_picture_749944.jpg" />
 </div>
 
 
@@ -151,7 +300,7 @@ VA - Greatest Ever Feelgood Songs (2022) 4xCD [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749801.jpg" />
+  <img src="Z:/picture/008/save_picture_749801.jpg" />
 </div>
 
 
@@ -180,7 +329,7 @@ The 69 Eyes - Universal Monsters (2016) [FLAC|Lossless|image + .cue] <Gothic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748567.jpg" />
+  <img src="Z:/picture/008/save_picture_748567.jpg" />
 </div>
 
 
@@ -209,7 +358,7 @@ Ken Hensley - Rare and Timeless (2018) Compilation [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747723.jpg" />
+  <img src="Z:/picture/008/save_picture_747723.jpg" />
 </div>
 
 
@@ -238,7 +387,7 @@ David Duchovny - Hell Or Highwater (2015) [FLAC|tracks|WEB-DL]<Folk Rock, Indie 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746818.jpg" />
+  <img src="Z:/picture/008/save_picture_746818.jpg" />
 </div>
 
 
@@ -267,7 +416,7 @@ Bonnie Tyler - Free Spirit (1995) [FLAC|Lossless|image + .cue] <Ballad, Classic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746559.jpg" />
+  <img src="Z:/picture/008/save_picture_746559.jpg" />
 </div>
 
 
@@ -296,7 +445,7 @@ Peter Gabriel - Growing Up (2019) Live [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746546.jpg" />
+  <img src="Z:/picture/008/save_picture_746546.jpg" />
 </div>
 
 
@@ -325,7 +474,7 @@ VA - Ultimate... Guitar Legends (4CD) Box Set (2015) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746494.jpg" />
+  <img src="Z:/picture/008/save_picture_746494.jpg" />
 </div>
 
 
@@ -354,7 +503,7 @@ Tina Turner - What's Love Got To Do With It (1993) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745317.jpg" />
+  <img src="Z:/picture/008/save_picture_745317.jpg" />
 </div>
 
 
@@ -383,7 +532,7 @@ Jive Bunny and the Masremixers - Gold (2021) 3xCD [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745193.jpg" />
+  <img src="Z:/picture/005/save_picture_745193.jpg" />
 </div>
 
 
@@ -412,7 +561,7 @@ Cher - 200% Ultra Hits '99 (1999) [FLAC|Lossless|image + .cue] <Soft Rock, Pop R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745151.jpg" />
+  <img src="Z:/picture/005/save_picture_745151.jpg" />
 </div>
 
 
@@ -441,7 +590,7 @@ Nestor - Kids In A Ghost Town (2021) Japanese Edition [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745066.jpg" />
+  <img src="Z:/picture/008/save_picture_745066.jpg" />
 </div>
 
 
@@ -470,7 +619,7 @@ Electric Light Orchestra - ELO's Greatest Hits (1994) Unofficial Release [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745047.jpg" />
+  <img src="Z:/picture/008/save_picture_745047.jpg" />
 </div>
 
 
@@ -499,7 +648,7 @@ Jon Lord - Concerto For Group & Orchestra (2012) [FLAC|Lossless|image + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744858.jpg" />
+  <img src="Z:/picture/005/save_picture_744858.jpg" />
 </div>
 
 
@@ -527,7 +676,7 @@ Magenta - The Lost Reel (2020) Tigermoth Records [FLAC|Lossless|image + .cue] <P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744196.jpg" />
+  <img src="Z:/picture/008/save_picture_744196.jpg" />
 </div>
 
 
@@ -556,7 +705,7 @@ Elvis Costello & The Imposters - The Boy Named If (2022) [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743642.jpg" />
+  <img src="Z:/picture/008/save_picture_743642.jpg" />
 </div>
 
 
@@ -585,7 +734,7 @@ VA - Billboard Top Hits (1985-1989) 5CD [FLAC|Lossless]<Rock, Pop, Electronic, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743558.jpg" />
+  <img src="Z:/picture/008/save_picture_743558.jpg" />
 </div>
 
 
@@ -600,153 +749,6 @@ VA - Billboard Top Hits (1985-1989) 5CD [FLAC|Lossless]<Rock, Pop, Electronic, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F39433B9DFFDA9EA1778F55DB64C4A6937D8D567
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783247   (743551) от 05.05.2014
-
-VA - Billboard Top Hits (1980-1984) 5CD /1992 Rhino Records/ [FLAC|Lossless]<Rock, Pop, Electronic, Soft Rock, Pop Rock, Disco>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начиная с 1991 года Rhino Records изменила несколько название и оформление своей знаменитой серии, не изменив главного принципа её построения: по 10 хитов Billboard за каждый год из The Top 100. Одновременно с ежегодными выпусками стали выпускаться boxset за пять лет.
-Представляя вашему вниманию очередную часть энциклопедии музыкальной жизни 20-го века, надеюсь, (   Читать дальше...   )1980
-Продoлжитeльность: 00:39:37
-Трeклиcт:
-01. Blondie - Call Me  (3:36)(   Читать дальше...   )Жанр: Rock, Pop, Electronic, Soft Rock, Pop Rock, DiscoПродолжительность: 03:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BBA2DBE26F331DF9AEF0706060211C2FEBE129A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783190   (743531) от 05.05.2014
-
-VA - Billboard Top Hits (1975-1979) 5CD /1991 Rhino Records/ [FLAC|Lossless]<Rock,  Pop, Electronic, Soft Rock, Pop Rock, Disco>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начиная с 1991 года Rhino Records изменила несколько название и оформление своей знаменитой серии, не изменив главного принципа её построения: по 10 хитов Billboard за каждый год из The Top 100. Одновременно с ежегодными выпусками стали выпускаться boxset за пять лет.
-Представляя вашему вниманию очередную часть энциклопедии музыкальной жизни 20-го века, надеюсь, (   Читать дальше...   )1975
-Продoлжитeльность: 00:34:18
-Трeклиcт:
-01. America - Sister Golden Hair  (3:20)(   Читать дальше...   )Жанр: Rock,  Pop, Electronic, Soft Rock, Pop Rock, DiscoПродолжительность: 02:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73074B1DA8B7E19A5F378A266672B59F4E446319
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020635   (743101) от 27.05.2016
-
-Queen - A Night At The Opera (1975) GoldCD Reissue, 1992, MFSL UltraDisc II [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death On Two Legs - Dedicated To (03:43)
-02. Lazing On A Sunday Afternoon (01:07)
-03. I'm In Love With My Car (03:04)
-04. You're My Best Friend (02:52)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE91B3D5B8698678DB6ECD54258FC1E3A8CC20E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282842   (742538) от 14.02.2019
-
-Perfect Son - Cast (2019) [FLAC|Lossless|tracks + .cue] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reel Me (02:44)
-02. Lust (02:58)
-03. It's for Life (04:29)
-04. Old Desires (03:38)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4AD4082880DA21246DBC1FFA5059733D0DC7186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282693   (742235) от 14.02.2019
-
-VA - Soft Rock Ballads (2006) 3CD [FLAC|Lossless|tracks + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742235.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:51] 01 - You're My Best Friend (Queen)
-[3:53] 02 - Make Me Smile (Come Up and See Me) (Steve Harley & Cockney Rebel)
-[6:28] 03 - Baker Street (Gerry Rafferty)
-[3:34] 04 - The Joker (Steve Miller Band)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 03:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DBD5E0E3112BAA7DC45246FC42CCCB6C34AF95
 ```
 
 https://mybot314.ru/tekegram_catalog/

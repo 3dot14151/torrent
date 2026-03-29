@@ -1,3 +1,29 @@
+###  Публикация: 1417452   (357917) от 20.10.2020
+
+Ю.В. Апальков | Боевые корабли японского флота [4 части] (1997-2000) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_357917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Справочник содержит сведения о тактико-технических элементах и карьере боевых кораблей специальной постройки, входивших в состав действующих соединений, находившихся в постройке, либо внесенные в кораблестроительные программы Японского Императорского флота в период с 10.1918 по 8.1945 гг. Схематично показан их внешний вид в двух проекциях в различные периоды службы, (   Читать дальше...   )Жанр: Военная техника, СправочникФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A2391EFB15D1A461023F62B9B0E38973E60BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417447   (357817) от 20.10.2020
 
 Ю.В. Апальков и др. | Боевые корабли мира на рубеже XX-XXI веков [4 части] (2000-2004) [PDF]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357817.jpg" />
+  <img src="Z:/picture/008/save_picture_357817.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357546.jpg" />
+  <img src="Z:/picture/008/save_picture_357546.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357148.jpg" />
+  <img src="Z:/picture/008/save_picture_357148.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356782.jpg" />
+  <img src="Z:/picture/008/save_picture_356782.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356777.jpg" />
+  <img src="Z:/picture/008/save_picture_356777.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355932.jpg" />
+  <img src="Z:/picture/008/save_picture_355932.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355616.jpg" />
+  <img src="Z:/picture/008/save_picture_355616.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355613.jpg" />
+  <img src="Z:/picture/008/save_picture_355613.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355487.jpg" />
+  <img src="Z:/picture/008/save_picture_355487.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ Gordon L. Rottman | Victory 1945: Western Allied Troops in Northwest Europe (201
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354504.jpg" />
+  <img src="Z:/picture/008/save_picture_354504.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353697.jpg" />
+  <img src="Z:/picture/008/save_picture_353697.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353557.jpg" />
+  <img src="Z:/picture/008/save_picture_353557.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353452.jpg" />
+  <img src="Z:/picture/008/save_picture_353452.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353322.jpg" />
+  <img src="Z:/picture/008/save_picture_353322.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353248.jpg" />
+  <img src="Z:/picture/008/save_picture_353248.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351240.jpg" />
+  <img src="Z:/picture/008/save_picture_351240.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Gordon L. Rottman | World War II US Army Combat Equipments (2016) [EPUB, PDF] [E
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350072.jpg" />
+  <img src="Z:/picture/008/save_picture_350072.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350008.jpg" />
+  <img src="Z:/picture/008/save_picture_350008.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Gordon L. Rottman | Vietnam War US & Allied Combat Equipments (2017) [EPUB, PDF]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349939.jpg" />
+  <img src="Z:/picture/008/save_picture_349939.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Rebecca Skinner | British Paratrooper 1940–45 (2015) [EPUB, PDF] [Warrior #174
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347919.jpg" />
+  <img src="Z:/picture/008/save_picture_347919.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Angus Konstam | British Commando 1940–45 (2016) [PDF] [Warrior #181] [EN]
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347911.jpg" />
+  <img src="Z:/picture/008/save_picture_347911.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346716.jpg" />
+  <img src="Z:/picture/008/save_picture_346716.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346697.jpg" />
+  <img src="Z:/picture/008/save_picture_346697.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345656.jpg" />
+  <img src="Z:/picture/008/save_picture_345656.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344081.jpg" />
+  <img src="Z:/picture/008/save_picture_344081.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6AB9FCBD428A8DA0F333912FDBE0ADB485254B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 410915   (343738) от 14.11.2011
-
-Игорь Симбирцев | Спецслужбы первых лет СССР. 1923-1939 [2008] [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343738.jpg" />
-</div>
-
-
-###  Подробнее
-
-В своей книге Игорь Симбирцев прослеживает историю советских спецслужб периода, который уложился между двумя войнами: Гражданской и Великой Отечественной. Автор открывает малоизвестные детали нашумевших операций этого времени, обнажая механизм "создания" новых антисоветских организаций: "Синдикат-2", "Трест" и т. д. Описывает репрессии (   Читать дальше...   )Жанр: ИсторияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB351C92DE4449A2D91ABE7C629CC8216D224FE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

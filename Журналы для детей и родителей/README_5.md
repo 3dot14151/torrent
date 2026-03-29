@@ -1,3 +1,32 @@
+###  Публикация: 958310   (324877) от 20.11.2015
+
+Журнал | Твоя Юла №12 (декабрь 2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_324877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детский познавательный журнал:
+- викторины;
+- комиксы;
+- страшилки;(   Читать дальше...   )Жанр: Журнал для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DA78BA11F61CF807C7EF67A808AA4347EC8AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958312   (324874) от 20.11.2015
 
 Журнал | Смекалочка №23 (139) (ноябрь 2015) [PDF]
@@ -6,7 +35,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324874.jpg" />
+  <img src="Z:/picture/008/save_picture_324874.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317180.jpg" />
+  <img src="Z:/picture/008/save_picture_317180.jpg" />
 </div>
 
 
@@ -60,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316322.jpg" />
+  <img src="Z:/picture/008/save_picture_316322.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314073.jpg" />
+  <img src="Z:/picture/008/save_picture_314073.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312138.jpg" />
+  <img src="Z:/picture/008/save_picture_312138.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312040.jpg" />
+  <img src="Z:/picture/008/save_picture_312040.jpg" />
 </div>
 
 
@@ -165,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309101.jpg" />
+  <img src="Z:/picture/008/save_picture_309101.jpg" />
 </div>
 
 
@@ -191,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308912.jpg" />
+  <img src="Z:/picture/008/save_picture_308912.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307958.jpg" />
+  <img src="Z:/picture/008/save_picture_307958.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307602.jpg" />
+  <img src="Z:/picture/008/save_picture_307602.jpg" />
 </div>
 
 
@@ -269,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307228.jpg" />
+  <img src="Z:/picture/008/save_picture_307228.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_305716.jpg" />
+  <img src="Z:/picture/005/save_picture_305716.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303903.jpg" />
+  <img src="Z:/picture/008/save_picture_303903.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297192.jpg" />
+  <img src="Z:/picture/008/save_picture_297192.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295144.jpg" />
+  <img src="Z:/picture/008/save_picture_295144.jpg" />
 </div>
 
 
@@ -402,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290750.jpg" />
+  <img src="Z:/picture/008/save_picture_290750.jpg" />
 </div>
 
 
@@ -429,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290689.jpg" />
+  <img src="Z:/picture/008/save_picture_290689.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280419.jpg" />
+  <img src="Z:/picture/008/save_picture_280419.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280292.jpg" />
+  <img src="Z:/picture/008/save_picture_280292.jpg" />
 </div>
 
 
@@ -508,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280274.jpg" />
+  <img src="Z:/picture/008/save_picture_280274.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280170.jpg" />
+  <img src="Z:/picture/008/save_picture_280170.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262378.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262168.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261902.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261142.jpg" />
 </div>
 
 
@@ -653,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90D330F2FA307D735BF390208E4438177F8159CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 504979   (260854) от 03.06.2012
-
-Журнал | Галилео. Наука опытным путём №35 [2012] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Погрузись в мир науки с коллекцией "Галилео. Наука опытным путем"! Каждый выпуск знакомит с окружающим миром и предоставляет возможность провести некоторые опыты в домашних условиях. Журнал написан доступным языком, все факты объясняются с помощью наглядных рисунков, диаграмм и примеров. Информация представлена в разных разделах, собрав которые, можно составить научную энциклопедию.2012Жанр: научно-популярный журнал для детей и взрослыхФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E79B1F8FF3A297F6045D1646C1120B94D27B81
 ```
 
 https://mybot314.ru/tekegram_catalog/

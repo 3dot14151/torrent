@@ -1,3 +1,32 @@
+###  Публикация: 1193067   (262488) от 19.12.2017
+
+Epolets - Діти моря (2017) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Інтро  (00:20)
+02.  Копі паст  (04:09)
+03.  Діти моря  (03:11)
+04.  Напої мене  (03:19)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874721687782AF3E52C1C5F5B357F9C5BCC03A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1192944   (262472) от 19.12.2017
 
 VA - 101 Drivetime (2017) 5CD [MP3|320 Kbps] <Rock, Pop Rock, Pop>
@@ -6,7 +35,7 @@ VA - 101 Drivetime (2017) 5CD [MP3|320 Kbps] <Rock, Pop Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262472.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ ViceVersa - The Electric Flame (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261823.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Richard Marx - Inside My Head (Compilation 2CD) (2012) [MP3|256 кб/с]<Melodic
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260845.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ Garrison - The Final Chapter (2025) [MP3|320 Kbps] <AOR, Arena-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260671.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ Paul McCartney - The Gold Collection [3CD] (2012) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260515.jpg" />
+  <img src="Z:/picture/005/save_picture_260515.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260243.jpg" />
+  <img src="Z:/picture/005/save_picture_260243.jpg" />
 </div>
 
 
@@ -198,7 +227,7 @@ Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260162.jpg" />
+  <img src="Z:/picture/005/save_picture_260162.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ Maribel - Reveries (2012) [MP3|256 кб/с]<Shoegaze Indie-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259797.jpg" />
+  <img src="Z:/picture/005/save_picture_259797.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Royal Thunder - CVI (2012) [MP3|320 кб/с]<Psych Stoner Southern Hard Rock / F
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259059.jpg" />
+  <img src="Z:/picture/005/save_picture_259059.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ Cuzo - Alquimia Para Principiantes (2012) [MP3|320 кб/с]<Psychedelic Stoner R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259023.jpg" />
+  <img src="Z:/picture/005/save_picture_259023.jpg" />
 </div>
 
 
@@ -335,7 +364,7 @@ Dumbsaint - Something That You Feel Will   Find Its Own Form (2012) [MP3|320 к�
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_258702.jpg" />
+  <img src="Z:/picture/005/save_picture_258702.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ Kiss - Alive! (Live) (1975) Remaster, 2025, UMe Direct 2 [MP3|320 Kbps] <Hard-Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257988.jpg" />
+  <img src="Z:/picture/005/save_picture_257988.jpg" />
 </div>
 
 
@@ -397,7 +426,7 @@ Red Elvises - Drinking With Jesus (2008) [MP3|320 кб/с]<Rock-n-Roll, Rockabil
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257434.jpg" />
+  <img src="Z:/picture/005/save_picture_257434.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ VA - Time Life - Guitar Rock 60's to 90's (25CD) (1994) [MP3|~225 кб/с ]<Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257257.jpg" />
+  <img src="Z:/picture/005/save_picture_257257.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256909.jpg" />
+  <img src="Z:/picture/005/save_picture_256909.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ VA - A Tribute To Queen (2012) [MP3|320 кб/с]<Rock, HardRock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256158.jpg" />
+  <img src="Z:/picture/005/save_picture_256158.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ Dan Wande - Highway 45 (2023) [MP3|320 Kbps] <Hard'n'Heavy>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255474.jpg" />
+  <img src="Z:/picture/005/save_picture_255474.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ Framauro - Alea Iacta Est (The Die Is Cast) (2023) [MP3|320 Kbps] <Progressive R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255443.jpg" />
+  <img src="Z:/picture/005/save_picture_255443.jpg" />
 </div>
 
 
@@ -595,7 +624,7 @@ Jukebox Heroes - Jukebox Heroes (1992) Reissue, 2023, Pride & Joy [MP3|320 Kbps]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255093.jpg" />
+  <img src="Z:/picture/005/save_picture_255093.jpg" />
 </div>
 
 
@@ -624,7 +653,7 @@ The 69 Eyes - Death of Darkness (2023) [MP3|320 Kbps] <Gothic Industrial Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254913.jpg" />
+  <img src="Z:/picture/005/save_picture_254913.jpg" />
 </div>
 
 
@@ -653,7 +682,7 @@ Genesis - BBC Broadcasts (1978-1992) 5CD Box Set, Compilation, (2023) UMR/EMI [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250289.jpg" />
+  <img src="Z:/picture/004/save_picture_250289.jpg" />
 </div>
 
 
@@ -682,7 +711,7 @@ Francis Rossi - 2 albums (1996, 2010) [MP3|320 кб/с]<Rock, Pop-rock, R'n'B>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249140.jpg" />
+  <img src="Z:/picture/004/save_picture_249140.jpg" />
 </div>
 
 
@@ -717,7 +746,7 @@ Aranda - Four0Five Sessions (2025) [MP3|320 Kbps] <Alternative-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248555.jpg" />
+  <img src="Z:/picture/004/save_picture_248555.jpg" />
 </div>
 
 
@@ -746,7 +775,7 @@ John Lindberg Trio - Hell Of A Ride (2012) [MP3|~245 кб/с (V0)]<Rockabilly, R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248421.jpg" />
+  <img src="Z:/picture/004/save_picture_248421.jpg" />
 </div>
 
 
@@ -781,7 +810,7 @@ Russ Diapper - Kingsnake (2012) [MP3|~225 кб/с (V1)]<Hard Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248170.jpg" />
+  <img src="Z:/picture/004/save_picture_248170.jpg" />
 </div>
 
 
@@ -801,41 +830,6 @@ Russ Diapper - Kingsnake (2012) [MP3|~225 кб/с (V1)]<Hard Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D33A067C24C958EC37A3385726B21E69BEE7A3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492258   (247916) от 05.05.2012
-
-Alan Simon - Excalibur III - The Origins (2012) [MP3|320 кб/с]<Folk, Rock, Celtic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 — The Origins Part 1
- 02 — Saman
- 03 — Tamlah
- 04 — Evil Day
- 05 — Iron Age
- 06 — Motherland
- 07 — Skye
- 08 — Beltaine
- 09 — Incantations
- 10 — The Promise(   Читать дальше...   )2012Жанр: Folk, Rock, CelticПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838FBDB72C1459A885BF0BB270B866FA38942F44
 ```
 
 https://mybot314.ru/tekegram_catalog/

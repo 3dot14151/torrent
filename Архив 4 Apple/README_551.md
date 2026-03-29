@@ -1,3 +1,111 @@
+###  Публикация: 1513511   (224188) от 29.11.2021
+
+SiteSucker 4.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224188.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker- это альтернативный менеджер загрузки сайтов. SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+SiteSucker умеет загружать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.11.2021Разработчик: © 2021 Rick CraniskyПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859B4B069E3897B83C6803484E8EF7A481BFC44C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342487   (224180) от 02.12.2019
+
+Inboard 1.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение позволяет Вам легко организовать фотографии и скриншоты. Inboard обеспечивает интуитивный пользовательский интерфейс, где Ваши изображения организованы в библиотеку и есть возможность добавить любое число изображений.
+
+Иображения показаны в виде превью, Вы можете изменить их размер, используя ползунок. К тому же, Вы можете сортировать изображения по дате (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.11.2019Разработчик: Regular SIAПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский и Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AF0407053FD742C73F229BCA7A4B4A44D08B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513578   (224172) от 29.11.2021
+
+iBoostUp Premium 9.7.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_224172.jpg" />
+</div>
+
+
+###  Подробнее
+
+iBoostUp настраивает и оптимизирует ваш Mac, очищая ненужные файлы, фиксируя ваш жесткий диск, предоставляя рекомендации по эффективности, защищая вашу конфиденциальность, удаляя файлы cookie, показывая вам легкодоступную системную информацию и многое другое!
+iBoostUp Memory Booster позволяет вам просматривать подробную информацию о системной памяти и, возможно, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2021Разработчик: © iBoostUp Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AB5A844A2048E42174BB646C73403FE40DD8D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651001   (224129) от 04.08.2023
+
+StopTheMadness 40.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224129.jpg" />
+</div>
+
+
+###  Подробнее
+
+StopTheMadness — это расширение для браузеров Safari, Firefox, Google Chrome и Chromium, которое не позволяет веб-сайтам усложнять использование вашего браузера. И это защищает вашу конфиденциальность. StopTheMadness не является блокировщиком рекламы: он предлагает уникальные функции, недоступные в блокировщиках рекламы или любых других приложениях. StopTheMadness (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.07.2023Разработчик: © 2018 Jeffrey JohnsonПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12ACF03EF8C3A1CBBAA82E768ECDD14357C2CFEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650929   (224122) от 04.08.2023
 
 MWeb Pro 4.4.7 [Multi]
@@ -6,7 +114,7 @@ MWeb Pro 4.4.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224122.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ MacCleanse 12 v.12.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224115.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ RightFont 8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224096.jpg" />
 </div>
 
 
@@ -86,7 +194,7 @@ Find Any File (FAF) 2.3.2 b12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224080.jpg" />
+  <img src="Z:/picture/005/save_picture_224080.jpg" />
 </div>
 
 
@@ -113,7 +221,7 @@ SiteSucker Pro 5.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_224067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_224067.jpg" />
 </div>
 
 
@@ -139,7 +247,7 @@ SiteSucker Pro 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224030.jpg" />
+  <img src="Z:/picture/005/save_picture_224030.jpg" />
 </div>
 
 
@@ -165,7 +273,7 @@ OnyX 4.1.3 for macOS Monterey 12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224004.jpg" />
+  <img src="Z:/picture/005/save_picture_224004.jpg" />
 </div>
 
 
@@ -192,7 +300,7 @@ Path Finder 9.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223984.jpg" />
+  <img src="Z:/picture/005/save_picture_223984.jpg" />
 </div>
 
 
@@ -218,7 +326,7 @@ Mate Translate 8.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223972.jpg" />
+  <img src="Z:/picture/005/save_picture_223972.jpg" />
 </div>
 
 
@@ -245,7 +353,7 @@ The Unarchiver - Unzip RAR ZIP 3.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223953.jpg" />
+  <img src="Z:/picture/005/save_picture_223953.jpg" />
 </div>
 
 
@@ -271,7 +379,7 @@ Apple Remote Desktop 3.9.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223936.jpg" />
+  <img src="Z:/picture/005/save_picture_223936.jpg" />
 </div>
 
 
@@ -297,7 +405,7 @@ MediaInfo 18.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223934.jpg" />
+  <img src="Z:/picture/005/save_picture_223934.jpg" />
 </div>
 
 
@@ -323,7 +431,7 @@ Alfred 4 Powerpack 4.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223886.jpg" />
+  <img src="Z:/picture/005/save_picture_223886.jpg" />
 </div>
 
 
@@ -350,7 +458,7 @@ JetBrains GoLand for Mac 2023.2 Intel/ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223864.jpg" />
 </div>
 
 
@@ -376,7 +484,7 @@ NoteBurner iTunes DRM Audio Converter 2.4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223837.jpg" />
+  <img src="Z:/picture/005/save_picture_223837.jpg" />
 </div>
 
 
@@ -402,7 +510,7 @@ DjVu Reader Pro 2.5.9 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223821.jpg" />
+  <img src="Z:/picture/005/save_picture_223821.jpg" />
 </div>
 
 
@@ -429,7 +537,7 @@ System Toolkit 4.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223787.jpg" />
+  <img src="Z:/picture/005/save_picture_223787.jpg" />
 </div>
 
 
@@ -455,7 +563,7 @@ Vinegar 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223749.jpg" />
+  <img src="Z:/picture/005/save_picture_223749.jpg" />
 </div>
 
 
@@ -482,7 +590,7 @@ MacPilot 8.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223727.jpg" />
+  <img src="Z:/picture/005/save_picture_223727.jpg" />
 </div>
 
 
@@ -509,7 +617,7 @@ Focusplan Pro - Mind Map 1.6.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223670.jpg" />
+  <img src="Z:/picture/005/save_picture_223670.jpg" />
 </div>
 
 
@@ -535,7 +643,7 @@ ABBYY Lingvo Dictionary для Mac 1.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223613.jpg" />
+  <img src="Z:/picture/005/save_picture_223613.jpg" />
 </div>
 
 
@@ -562,7 +670,7 @@ Data Guardian 7 v.7.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223610.jpg" />
 </div>
 
 
@@ -573,113 +681,6 @@ Data Guardian 7 v.7.5.1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE2A3C43FBE54E7AE26F39817ED593F9ABE0BAB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651146   (223601) от 05.08.2023
-
-GraphicConverter for Mac 12.0.4 Beta [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223601.jpg" />
-</div>
-
-
-###  Подробнее
-
-GraphicConverter 11 — полнофункциональный графический редактор, позволяющий импортировать изображения из файлов в 200 различных форматах, провести все необходимые изменения, а затем сохранить в одном из 80 поддерживаемых форматов. Программа позволяет производить все основные операции с файлами: цветокоррекцию, кадрирование, изменение размеров и разрешения, несложные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2023Разработчик: © 2023 Lemke Software GmbHПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5993D114323FE718F47BBD52CBC19A387FE3552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651139   (223591) от 05.08.2023
-
-Dato 5.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
-Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 13.3Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BD5BA853C69ECAB5FBF22695CF2A4E4CA299D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651134   (223566) от 05.08.2023
-
-Athentech Perfectly Clear WorkBench for Mac 4.6.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2023Разработчик: © 2023 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14FEF242197FC88DF6965A97478FCA2AD0131142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513572   (223556) от 29.11.2021
-
-Wondershare Recoverit 10.0.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 28.11.2021Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB999A60410EE5B8786C11D2B431BC6B68C6950
 ```
 
 https://mybot314.ru/tekegram_catalog/

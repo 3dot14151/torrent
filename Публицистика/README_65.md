@@ -1,3 +1,82 @@
+###  Публикация: 960040   (312541) от 26.11.2015
+
+Ивар Калныньш | Моя молодость – СССР (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312541.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Мама, узнав о том, что я хочу учиться на актера, только всплеснула руками: «Ивар, но артисты ведь так громко говорят…» Однако я уже сделал свой выбор» – рассказывает Ивар Калныньш в книге «Моя молодость – СССР». Благодаря этому решению он стал одним из самых узнаваемых актеров советского кинематографа.
+Многие из нас знают его как Тома Фенелла из картины «Театр», (   Читать дальше...   )Жанр: Биографии и Мемуары, КиноФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13592DF036FC5966A91C519D6197620BA035C56D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959687   (312417) от 26.11.2015
+
+Григорий Явлинский | Периферийный авторитаризм. Как и куда пришла Россия (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена анализу особенностей российской политической системы, причин и путей ее формирования. В представленной читателям работе автор подробно исследует российский периферийный авторитаризм, предлагает прогноз развития системы и варианты выхода из политического кризиса. Книга продолжает ряд ранее опубликованных работ автора, посвященных периферийному капитализму. (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C238EB83CD09C548237A6991BFBC5664F808988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959843   (312412) от 26.11.2015
+
+Л. А. Фотиева | Как работал Владимир Ильич Ленин (1956) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312412.jpg" />
+</div>
+
+
+###  Подробнее
+
+В краткой брошюре, разумеется, невозможно осветить полностью стиль работы В. И. Ленина. Для этого требуется большой научно-исследовательский труд. Написанное здесь имеет целью познакомить лишь с некоторыми приемами и методами повседневной работы В. И. Ленина как председателя Совнаркома, с основными требованиями, которые он предъявлял к работникам советского государственного (   Читать дальше...   )Жанр: История, политологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1445E9991FEBC8E5B21C12CBCFB250CD52EFD348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959897   (312119) от 26.11.2015
 
 Николай Зенькович | И пришел Путин… Источник, близкий к Кремлю (2015) [FB2]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312119.jpg" />
+  <img src="Z:/picture/008/save_picture_312119.jpg" />
 </div>
 
 
@@ -34,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311859.jpg" />
+  <img src="Z:/picture/008/save_picture_311859.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311817.jpg" />
+  <img src="Z:/picture/008/save_picture_311817.jpg" />
 </div>
 
 
@@ -88,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311491.jpg" />
+  <img src="Z:/picture/008/save_picture_311491.jpg" />
 </div>
 
 
@@ -114,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310927.jpg" />
+  <img src="Z:/picture/008/save_picture_310927.jpg" />
 </div>
 
 
@@ -142,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310203.jpg" />
+  <img src="Z:/picture/008/save_picture_310203.jpg" />
 </div>
 
 
@@ -168,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310104.jpg" />
+  <img src="Z:/picture/008/save_picture_310104.jpg" />
 </div>
 
 
@@ -196,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309989.jpg" />
+  <img src="Z:/picture/008/save_picture_309989.jpg" />
 </div>
 
 
@@ -223,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309808.jpg" />
+  <img src="Z:/picture/008/save_picture_309808.jpg" />
 </div>
 
 
@@ -249,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307445.jpg" />
+  <img src="Z:/picture/008/save_picture_307445.jpg" />
 </div>
 
 
@@ -276,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307378.jpg" />
+  <img src="Z:/picture/008/save_picture_307378.jpg" />
 </div>
 
 
@@ -303,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307349.jpg" />
+  <img src="Z:/picture/008/save_picture_307349.jpg" />
 </div>
 
 
@@ -330,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306427.jpg" />
+  <img src="Z:/picture/008/save_picture_306427.jpg" />
 </div>
 
 
@@ -356,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305457.jpg" />
+  <img src="Z:/picture/008/save_picture_305457.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305209.jpg" />
+  <img src="Z:/picture/008/save_picture_305209.jpg" />
 </div>
 
 
@@ -408,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304814.jpg" />
+  <img src="Z:/picture/008/save_picture_304814.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303548.jpg" />
+  <img src="Z:/picture/008/save_picture_303548.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303540.jpg" />
+  <img src="Z:/picture/008/save_picture_303540.jpg" />
 </div>
 
 
@@ -490,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303236.jpg" />
+  <img src="Z:/picture/008/save_picture_303236.jpg" />
 </div>
 
 
@@ -517,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302949.jpg" />
+  <img src="Z:/picture/008/save_picture_302949.jpg" />
 </div>
 
 
@@ -545,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302429.jpg" />
+  <img src="Z:/picture/008/save_picture_302429.jpg" />
 </div>
 
 
@@ -573,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302215.jpg" />
+  <img src="Z:/picture/008/save_picture_302215.jpg" />
 </div>
 
 
@@ -599,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301919.jpg" />
+  <img src="Z:/picture/008/save_picture_301919.jpg" />
 </div>
 
 
@@ -613,86 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D5EA8EC444A15D0BF22ECAFB482B8205436BF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184398   (301370) от 17.11.2017
-
-Г. Н. Вачнадзе | Идеологические диверсии империализма (1981) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301370.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного советского ученого, доктора исторических наук Г. Н. Вачнадзе рассказывается о приемах и методах империалистической пропаганды, направленной против Советского Союза и других стран социализма. Используя обширный фактический материал, автор анализирует враждебную работу западных радиостанций "Голос Америки", Би-би-си, "Свободная Европа", (   Читать дальше...   )Жанр: История, политология, экономика, психология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB46DA7D74A42E011DD65AB7A33C485090C646C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261647   (301263) от 12.11.2018
-
-И. Ф. Филиппов | Записки о "третьем рейхе" (1966) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор "Записок о "Третьем рейхе"" на основе фактов и собственных наблюдений рисует обстановку в гитлеровской Германии накануне второй мировой войны, раскрывает античеловеческую сущность гитлеровского фашизма, теоретический характер методов правления национал-социалистической клики, приведший Германию к катастрофе.
-
-Книга всем своим содержанием (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADF4F12E9341F26A132D0A33837DB2061104FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184414   (301188) от 17.11.2017
-
-Игорь Прокопенко | Новые угрозы XXI века (2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного тележурналиста Игоря Прокопенко посвящена угрозам для человека, которые скрываются, казалось бы, в уже привычных и повседневных вещах, но появившихся в обиходе относительно недавно: в фастфуде, мобильных телефонах и компьютерных играх. Читателю откроются поразительные факты повседневной жизни в странах Запада и России, связанных с деградацией системы (   Читать дальше...   )Жанр: Научно-популярная литература, Публицистика, Таинственные явленияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F759CB24F3C499646E197797DE00E693138D22A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

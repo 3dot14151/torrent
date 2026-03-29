@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838150.jpg" />
+  <img src="Z:/picture/008/save_picture_838150.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Skype 8.77.0.90 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838121.jpg" />
+  <img src="Z:/picture/008/save_picture_838121.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Skype 8.77.0.90 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838112.jpg" />
+  <img src="Z:/picture/008/save_picture_838112.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838076.jpg" />
+  <img src="Z:/picture/008/save_picture_838076.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Icecream Screen Recorder Pro 3.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838063.jpg" />
+  <img src="Z:/picture/008/save_picture_838063.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838053.jpg" />
+  <img src="Z:/picture/008/save_picture_838053.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ferry Corsten - Corsten's Countdown 194 (2011-03-16) [MP3|256 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838046.jpg" />
+  <img src="Z:/picture/008/save_picture_838046.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838033.jpg" />
+  <img src="Z:/picture/008/save_picture_838033.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Calibre 5.29.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837998.jpg" />
+  <img src="Z:/picture/008/save_picture_837998.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Spotify 1.1.69.612 Portable by JolyAnderson [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837997.jpg" />
+  <img src="Z:/picture/008/save_picture_837997.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Chromium 94.0.4606.81 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837991.jpg" />
+  <img src="Z:/picture/008/save_picture_837991.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ QOwnNotes 21.10.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837983.jpg" />
+  <img src="Z:/picture/008/save_picture_837983.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ WhyNotWin11 2.4.2.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837982.jpg" />
+  <img src="Z:/picture/008/save_picture_837982.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Telegram Desktop 3.1.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837981.jpg" />
+  <img src="Z:/picture/008/save_picture_837981.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837971.jpg" />
+  <img src="Z:/picture/008/save_picture_837971.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ VirtualBox 5.1.16 r113841 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837954.jpg" />
+  <img src="Z:/picture/008/save_picture_837954.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mirror for LG TV 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837953.jpg" />
+  <img src="Z:/picture/008/save_picture_837953.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837946.jpg" />
+  <img src="Z:/picture/008/save_picture_837946.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837938.jpg" />
+  <img src="Z:/picture/008/save_picture_837938.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Google Chrome 57.0.2987.98 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837935.jpg" />
+  <img src="Z:/picture/008/save_picture_837935.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837933.jpg" />
+  <img src="Z:/picture/008/save_picture_837933.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Skype 7.22.32.108 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837931.jpg" />
+  <img src="Z:/picture/008/save_picture_837931.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ AutoLogger 2015.11.18 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837922.jpg" />
+  <img src="Z:/picture/008/save_picture_837922.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837919.jpg" />
+  <img src="Z:/picture/008/save_picture_837919.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Bandizip 5.13 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837918.jpg" />
+  <img src="Z:/picture/008/save_picture_837918.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Icecream Screen Recorder Pro 3.61 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837917.jpg" />
+  <img src="Z:/picture/008/save_picture_837917.jpg" />
 </div>
 
 

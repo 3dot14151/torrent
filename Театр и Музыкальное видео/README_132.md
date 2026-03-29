@@ -1,3 +1,171 @@
+###  Публикация: 476396   (85752) от 01.04.2012
+
+Видеоклипы International Performers in 2011 DVD-5 vol. 01 Пиратская Вечеринка 4.35Gb
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308B6A76FEB2C578831193D2598865C581F9C58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476769   (85725) от 01.04.2012
+
+Armin van buuren video asot 550 live in Kiev (2012) (CamRip/DVD5)
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Rayel – 550 senta vs Shogun – Skyfire (accapella) (AVB intro mix)
+ 02. Omnia & IRA – The Fusion (Armada)
+ 03. Dennis Sheperd & Talla2 XLC – Two Worlds (Euphonic)
+ 04. Wezz Devall – Kill Of The Year (Captivating Sounds)
+ 05. Orjan Nilsen – Amsterdam (Armind)
+ 06. Tritonal – Slave (Tritonal & Ben Gold Club Dub) (Air Up There Recordings)
+ 07. W&W – Invasion (Club Mix) (ASOT 550 anthem) (Armada)
+ 08. Orjan Nilsen – Between The Rays (Armind)
+ 09. Setrise vs Johann Stone – Icesave (Original Mix)
+ 10. Gaia – Stellar (Armind)(   Читать дальше...   )Жанр: Музыка/TranceПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476015   (85555) от 31.03.2012
+
+Видеоклипы «t.A.T.u.» - All The Things She Said. Пиратская Вечеринка HD x264 1080p
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85555.jpg" />
+</div>
+
+
+###  Подробнее
+
+«All the Things She Said» — первый сингл с дебютного англоязычного альбома «200 km/h in the Wrong Lane» группы «Тату», выпущенный 10 сентября 2002 года. Стал первым синглом российских исполнителей, который занял первое место в британском чарте UK Singles Chart, удерживая позицию в течение четырёх недель. По итогам 2003 года сингл занял 6-е место по продажам в Великобритании (   Читать дальше...   )Жанр: TV, Video, Popular music, Pop music, Pop, Club, Dance, HouseПеревод: Не требуетсяПродолжительность: 00 часа 04 мин 08 сек (00:04:08)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7139303D63F6C06D99794BD8A38368F79774E76A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474534   (85018) от 28.03.2012
+
+Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080p] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85018.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden» - это масштабное шоу, снятое 21 и 22 февраля 2011 года в Нью-Йорке во время аншлаговых концертов Леди Гаги в рамках знаменитого «The Monster Ball Tour» – одно из самых значительных событий поп-культуры за последние 20 лет. Леди Гага в сопровождении 10 виртуозных музыкантов и 10 блистательных танцоров (   Читать дальше...   )01. Intro
+02. Dance In The Dark
+03. Glitter And Grease
+04. Just Dance(   Читать дальше...   )Жанр: PopСубтитры: Английские, РусскиеПродолжительность: 01:54:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474313   (84954) от 28.03.2012
+
+Iron Maiden: En Vivo! (2012) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84954.jpg" />
+</div>
+
+
+###  Подробнее
+
+«En Vivo!» — что в переводе с испанского означает «Живьём!» — был записан 10 апреля прошлого года в ходе мирового турне в поддержку 15 лонгплея группы. Масштабное зрелище разворачивалось на забитом неистовыми южноамериканскими фэнами стадионе Estadio Nacional, что в Сантьяго. Басист и основатель Стив Харрис по поводу пополнения концертного каталога Мэйден: «Для меня крайне важно было то, что получилось запечатлеть в Южной Америке, так как реакция поклонников в той части света всегда ошеломляла нас, и я хотел отразить это в процессе съёмок. После длительных дискуссий мы остановили свой выбор на шоу в Сантьяго, осознав, что перфоманс на Estadio Nacional стал лучшим во всём туре, а играть на этой престижной площадке для нас особое событие. По причинами известным нашим почитателям, понадобилось много времени, прежде чем отыграть своё первое шоу в Чили. И однажды, когда оно наконец-таки состоялось, отдача была настолько феноменальной, что нам пришлось возвращаться сюда снова, и снова. И каждый наш приезд лучше предыдущего! (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC4D15511F2ADD3DE37A4C8F5842FCAAC972521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474092   (84939) от 28.03.2012
+
+Hammerfall - Клипы (1997 - 2009) DVDRip-AVC
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F1B1D93C5EC67326741A32FFD3A23AFE704E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 473570   (84631) от 26.03.2012
 
 Iron Maiden: En Vivo! (2012) [1080p] Blu-Ray
@@ -6,7 +174,7 @@ Iron Maiden: En Vivo! (2012) [1080p] Blu-Ray
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84631.jpg" />
 </div>
 
 
@@ -42,7 +210,7 @@ Iron Maiden: En Vivo! (2011/2012) [720p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84613.jpg" />
 </div>
 
 
@@ -71,7 +239,7 @@ Iron Maiden - En Vivo! (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84515.jpg" />
 </div>
 
 
@@ -98,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84332.jpg" />
 </div>
 
 
@@ -124,7 +292,7 @@ Angel Voices. Libera in Concert(2007) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84295.jpg" />
 </div>
 
 
@@ -153,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84246.jpg" />
 </div>
 
 
@@ -184,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84078.jpg" />
 </div>
 
 
@@ -210,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84048.jpg" />
 </div>
 
 
@@ -236,7 +404,7 @@ Monsters of Metal Vol.8 (2012) 2хDVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83746.jpg" />
 </div>
 
 
@@ -271,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83711.jpg" />
 </div>
 
 
@@ -305,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83696.jpg" />
 </div>
 
 
@@ -332,7 +500,7 @@ Gregorian - Christmas Chants & Visions - Live in Berlin (2008) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83095.jpg" />
 </div>
 
 
@@ -361,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83066.jpg" />
 </div>
 
 
@@ -388,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82932.jpg" />
 </div>
 
 
@@ -416,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82805.jpg" />
 </div>
 
 
@@ -445,7 +613,7 @@ UK Top 40 Music Video Hits Febuary 2012 (DVD5)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82706.jpg" />
 </div>
 
 
@@ -474,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82271.jpg" />
 </div>
 
 
@@ -500,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81908.jpg" />
 </div>
 
 
@@ -526,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81897.jpg" />
 </div>
 
 
@@ -552,7 +720,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81846.jpg" />
 </div>
 
 
@@ -563,172 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:726444257FB6864030D8D7CCBE95745337A0FE50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467196   (81791) от 13.03.2012
-
-Душевные песни, знакомые с детства / THE OLD [Part 2] (2007) SATRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПродолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F8985D8DB057504E90314DD3E569E37AC1E2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466493   (81697) от 12.03.2012
-
-Grace Jones - Live At Avo Session Basel, Switzerland 13th November (2009) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grace Jones предстала в мире шоу бизнеса в качестве талантливой актрисы, модели и эстрадной поп-дивы, демонстрирующей свою бесконечную чреду фантазий, неуемную жажду деятельности и сюрреалистические идеи. Каждое выступление Грейс Джонс – загадка для зрителей. То она, обнажившись, измазывает всю себя речной тиной и явно обличает полную амуницию набора настоящей американской (   Читать дальше...   )Жанр: TV, Video, Popular musicПеревод: Не требуетсяФормат: DVD5Продолжительность: 1 час 15 мин 43 сек (01:15:43)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465584   (81287) от 10.03.2012
-
-Ирина Аллегрова - Юбилейный концерт в Олимпийском (2012) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Народная артистка России Ирина Аллегрова объявила о завершении активной концертной деятельности.
-
-Ирина Аллегрова - одна из последних в поколении настоящих звезд, которые зажглись еще в Советском Союзе и привели российскую популярную песню в ХХI век...
-Вместе с ней мы пережили целую эпоху. Под ее песни мы шалели в 80-х от нежданного глотка свободы, переживали развал (   Читать дальше...   )01. Автограф (Пролог)2012
-02. Три мужа назад
-03. Жаль
-04. Красиво любить(   Читать дальше...   )Производство: Россия, Первый каналЖанр: КонцертПродолжительность: 01:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2F414316ED74CB0FD62A03D49C5763F21D78CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465582   (81224) от 10.03.2012
-
-СупердискотЭка / Супердискотека 90-х (2012) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81224.jpg" />
-</div>
-
-
-###  Подробнее
-
-СупердискотЭка 90-х возвращает в детство, когда мы обменивались на переменке вкладышами, вырывали странички с замечаниями из дневника, спешили домой рубиться в Сегу и Денди, а по вечерам всей семьей смотрели Санта-Барбару.
-Гости СупердискотЭки 90-х смогут поставить челку, поиграть в классики и бутылочку, зайти в гастроном и заняться выжиганием на уроке труда.01. Intro
-02. Татьяна Буланова - Мой сон
-03. Ненси - Дым сигарет с ментолом
-04. Наталья Королева - Желтые тюльпаны(   Читать дальше...   )Жанр: КонцертПродолжительность: ~ 02:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACE7DE87DF4664E5E1F8B2A927AB0AE42D37FF8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464828   (81105) от 09.03.2012
-
-Yanni - Live At El Morro, Puerto Rico (2011) HDTV [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81105.jpg" />
-</div>
-
-
-###  Подробнее
-
-16  и 17декабря  2011года, Янни исполнил 20-летний мечту выступить в красивом и историческом месте  16-го века Кастильо Сан-Фелипе дель Морро в Сан-Хуане, Пуэрто-Рико. Были исполнены многие классические хиты Yanni, так же как несколько новых произведений . Его музыка уникальна, равно как и состав его оркестра, объединяющий прекрасных музыкантов.Жанр: New AgeРежиссер: YanniАктеры: Оркестр и вокалисты Lisa Lavie , Lauren JelencovichПеревод: ОтсутствуетПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465255   (81068) от 09.03.2012
-
-Видеоклипы Digital Musical Ray 2011. Пиратская Вечеринка 7,95 Gb BDRip Quality 720p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый сборник клипов:Жанр: TV, Video, Popular music, Pop musicПеревод: Не требуетсяПродолжительность: 2 часа 48 мин 08 сек (02:48:08)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD7D1D5FA3135CB41264CB50F58B575159B74524
 ```
 
 https://mybot314.ru/tekegram_catalog/

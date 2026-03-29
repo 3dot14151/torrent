@@ -1,3 +1,107 @@
+###  Публикация: 1640245   (33316) от 23.12.2024
+
+Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi] (0.9.978.1712/dlc) Scene Tenoke
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шутер с видом от первого лица, в котором игрокам предлагается отправиться в опасный и жестокий открытый мир, и выживать там, постоянно отстаивая свое право не пребывание здесь… События игры происходят на просторах огромной промышленной деревушки в вымышленном неназванном регионе, а также, в окрестностях. С виду, это самое обычное место, но на самом деле тут на каждом (   Читать дальше...   )Тип издания: SceneРазработчик: Street's GameЖанр: Экшены, Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B203C045C171E9A33876BF4FE0EE43F49230A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768006   (33303) от 23.12.2024
+
+Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРlay [Forges of Corruption Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Устройте кровавую бойню, разносите врагов на куски. Вас ждёт ураганная стрельба в стилистике классических шутеров 90-х годов во вселенной Warhammer 40 000. Играйте за отважного космического десантника Малума Каэдо, взявшего на себя смертельно опасную миссию. Вам предстоит отыскать осколок таинственного источника энергии на Грайе: этот мир-кузню вот-вот захватят культисты, (   Читать дальше...   )Тип издания: RepackРазработчик: Auroch DigitalЖанр: Экшены, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB10653A0146915FF6551C8915933E76ED6337D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587267   (33216) от 24.12.2024
+
+HROT (2021) [Multi] (1.3) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33216.jpg" />
+</div>
+
+
+###  Подробнее
+
+HROT - шутер от первого лица, выступающий настоящей одой по шутерам конца 90-х и начала 00-х годов. Окунитесь в ретро-геймплей, аутентичная атмосфера которого достигается за счет угловатой трехмерной графики и олдскульных механик. История развивается в 1986 году в одной социалистической стране, граничащей с Чехословакией, входящей в состав Советского Союза. Случается (   Читать дальше...   )Тип издания: LicenseРазработчик: SpytihněvЖанр: Шутеры, Экшны, FPPЯзык субтитров: Английский, ЧешскийЯзык интерфейса: Английский, Чешский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5315576BD78F7BD0B28914E5F086E01303C797BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768273   (33202) от 24.12.2024
+
+Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack Pioneer [Ultimate Bundle]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра, где выжить - означает победить. Проект, который приносит реалии того, что было бы, если человечество создало роботов, способных использовать оружие так, как им вздумается. Generation Zero показывает нам Швецию 1980 года. На всей планете случился апокалипсис, а по улицам теперь ходят неизвестные машины, которые уничтожают всё на своём пути. Альтернативная Швеция (   Читать дальше...   )Тип издания: RepackРазработчик: Systemic ReactionЖанр: Экшены, Выживание, ШутерыЯзык озвучки: Английский, ШведскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:460A988C9CE5FC78D4A20F0E0A3DF04CB26CD9B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755527   (32977) от 26.12.2024
 
 Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Repack FitGirl
@@ -6,7 +110,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32977.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ SPRAWL (2023) [Multi] (1.7) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32873.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Shadow Warrior Classic Redux (2013) [En] (1.1.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32161.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Priest Simulator: Vampire Show (2022) [Multi] (1.0) Scene Tenoke
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31719.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Medal of Honor Anthology (2002-2012) [Ru/En] Rip OneTwo
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31541.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Mullet MadJack (2024) [Ru/Multi] (1.12) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31500.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Carnival Of Souls (2024) [En] (1.0) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31080.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294.40/dlc) Repack Decepticon [Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30918.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Hellbreach: Vegas (2024) [Ru/Multi] (1.0.4) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30814.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Crime Boss Rockay City (2023) [Ru/Multi] (1.13.2.0/dlc) Repack Decepticon
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30598.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Skydance's BEHEMOTH (2024) [Multi] (1.0/dlc) Scene Rune [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30502.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Metro Awakening (2024) (1.0 build 16229071/dlc) Scene Rune [Deluxe Edition] [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30498.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ The Walking Dead: Saints & Sinners (2020) [Multi] (1.0) Scene VREX [VR]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30364.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Sons of the Forest (2023) [Ru/Multi] (1.0 53951) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30186.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Eximius: Seize the Frontline (2018) [Ru/Multi] (1.2.2/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30058.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.080.00) Repack R.G. Ме
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29863.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ REKKR: Sunken Land (2021) [En] (1.12) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29562.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Dying Light (2021) [Ru/En] (1.49.0hf10/dlc) Repack dixen18 [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29560.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Death in the Water 2 (2023) [Ru/Multi] (1.1.15) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29461.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ System Shock (2023) [Ru/Multi] (1.3.0.19128) Repack Let'sРlay [Remake]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29180.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Call of Duty: Black Ops Cold War (2020) [Ru/Multi] (1.34.0.15931218) Repack sele
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29174.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Dying Light (2016) [Ru/En] (1.50.0/dlc) Repack Decepticon [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28951.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Dying Light (2016) [Ru/En] (1.50.0/dlc) Repack Decepticon [Definitive Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1064530E6FEA3E2DA5F53D5CE52FBD515EFA93B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776648   (28913) от 02.02.2025
-
-Metal Savior Black (2025) [En] (1.0) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстро развивающийся научно-фантастический шутер с тоннами врагов, оружия и секретов. Выдержите ли вы натиск? Добро пожаловать на охранный дрон XAC-987. Оружейная база, спрятанная глубоко под поверхностью планеты Аркрониум, была захвачена нанотехнологическими машинами. Они запрограммированы на уничтожение всего на своем пути. Вам поручено уничтожить все нанотехнологические (   Читать дальше...   )Тип издания: RepackРазработчик: Gray MantisЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A270E11654DD23DF265873F8E287F758057E81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337060   (28528) от 06.02.2025
-
-Dying Light: The Following (2016) [Ru/En] (1.38.0/dlc) Repack xatab [Enhanced Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улучшенное издание. Выживание в стиле паркур и зомби-апокалипсис — на качественно новом уровне. Оцените новейшую систему «Легенда», улучшенную графику и оптимизированный игровой процесс. Dying Light – это игра, цель которой – выжить в открытом мире.Тип издания: RepackРазработчик: TechlandЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED8DDF6D0FAEFA1E652A8076B6C3799D0DF17E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778178   (28316) от 08.02.2025
-
-Hired 2 Die (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Между нашим восприятием реальности и самой реальностью - граница тонкая. В какой-то жуткий момент восприятие обычного человека способно изменить реальность, породив то, что мы называем Искажениями. Эти Искажения возникают там, где психика человека испытывает наибольшее давление, и испытываемый ею стресс порождает странные объекты и опасных существ. Загадочная, и (   Читать дальше...   )Тип издания: RepackРазработчик: Electric MonkeysЖанр: ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Бразильский Португальский и другиеЯзык интерфейса: Русский, Английский, Бразильский Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B807559616909D8870EABE5B9EED5CF2A10D525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778368   (28309) от 08.02.2025
-
-Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.091) Repack EXROW
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serious Sam 2 - продолжение легендарного шутера с видом от третьего лица с легендарным серьезным Сэмом в главной роли. Как и прежде, вас ожидает бесконечная борьба с ордами инопланетных захватчиков, которые посланы загадочным злодеем Менталом. Но теперь вы сможете передвигаться не только на своих двоих, но и использовать различный транспорт, позволяющий увеличить (   Читать дальше...   )Тип издания: RepackРазработчик: CroteamЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21DA428E0E713B4D6407E892C6114213601B9D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1336732   (277591) от 08.11.2019
+
+The Presidents of the United States of America - Pure Frosting (1998) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Delicatessen (4:15)
+02. Video Killed the Radio Star (3:24)
+03. Mobile Home (2:55)
+04. Japan (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9026294CAD7468F347D02B8031451BD2B004C3E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590958   (277397) от 25.11.2018
+
+The Beatles - 9 CD (1963-1979) Remaster / Toshiba EMI Ltd./ [WavPack|Lossless]<Beat, Pop rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277397.jpg" />
+</div>
+
+
+###  Подробнее
+
+В списке «Rolling Stone 500» первое место занимает альбом The Beatles Sgt. Pepper’s Lonely Hearts Club Band. Ещё четыре их альбома в числе первых пятнадцати: Revolver, Rubber Soul, The Beatles, Abbey Road - заняв соответственно 3-е, 5-е, 10-е и 14-е места. В списке журнала «Rolling Stone 500 лучших песен всех времён и народов» больше всего песен The Beatles - 23. (   Читать дальше...   )Cписок альбомов:
+1963 - Please Please Me (1973)
+1964 - Beatles For Sale (1973)
+1964 - The Beatles Beat (1976)(   Читать дальше...   )Жанр: beat, pop, rockПродолжительность: 04:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E74D40B878EFBFA301B0540A041EEA4C6B4A8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082597   (277365) от 13.12.2016
+
+Kanoi - Blue Sky, Sunshine & Gemstone Sunrise (2015 - 2016) [FLAC|Lossless|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On And On And On (06:33)
+02. Mountains Of The Sun (06:23)
+03. Countryside Loop (03:42)
+04. Countryside Mantra (03:19)Жанр: Progressive RockПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F73F23EBDCA42A17F7C9325F49699D33BD5DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082715   (277248) от 13.12.2016
+
+Fools Garden - High Times - Best of (2009) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277248.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: Studio Version
+01. Lemon Tree (3:08)
+02. Wild Days (3:29)
+03. Probably (2:51)(   Читать дальше...   )Жанр: RockПродолжительность: 2:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F54918D06E3BCFE6F160F1AD77FEB9EB6B69A508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318826   (277190) от 08.11.2019
+
+Queen - Sheer Heart Attack (1974) Japanese Edition, 2018 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_277190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brighton Rock (05:10)
+02. Killer Queen (03:00)
+03. Tenement Funster (02:46)
+04. Flick of the Wrist (03:17)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75D304535F2C59369AB69C492629E7150689951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 68036   (276350) от 26.11.2018
 
 Billy Joel - River Of Dreams (1993) [APE|Lossless] <Pop Rock>
@@ -6,7 +151,7 @@ Billy Joel - River Of Dreams (1993) [APE|Lossless] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276350.jpg" />
+  <img src="Z:/picture/008/save_picture_276350.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Trey Gunn(King Crimson) - Raw Power (1999) [FLAC|Lossless|image + .cue] <Avant-G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275918.jpg" />
+  <img src="Z:/picture/008/save_picture_275918.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ U2 - Songs Of Experience (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275720.jpg" />
+  <img src="Z:/picture/008/save_picture_275720.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ The Rolling Stones - On Air (2017) Deluxe Edition [FLAC|Lossless|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275640.jpg" />
+  <img src="Z:/picture/008/save_picture_275640.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Rush - Sectors (1974-1989) 15CDs Box Set, remastered /2011, Anthem/ [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275288.jpg" />
+  <img src="Z:/picture/008/save_picture_275288.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Danny B. Harvey & Mysti Moon - Hell Cat Stomp (2014) [FLAC|Lossless|image + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274841.jpg" />
+  <img src="Z:/picture/008/save_picture_274841.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Graham Gouldman - Play Nicely And Share (2017) E.P. [FLAC|Lossless|image + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274728.jpg" />
+  <img src="Z:/picture/008/save_picture_274728.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ U2 - Songs Of Experience (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274511.jpg" />
+  <img src="Z:/picture/008/save_picture_274511.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Graham Gouldman - Love And Work (2012) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274450.jpg" />
+  <img src="Z:/picture/008/save_picture_274450.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ The Beatles - Red & Blue Albums (1962-1970) Japanese Edition, Remastered, 2010 [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273950.jpg" />
+  <img src="Z:/picture/008/save_picture_273950.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ The Presidents of the United States of America - Kudos to You (2014) [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273765.jpg" />
+  <img src="Z:/picture/008/save_picture_273765.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ King Crimson - Teatro Toniola, Mestre Venice, Italy (1995) 2010 [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272325.jpg" />
+  <img src="Z:/picture/008/save_picture_272325.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ King Crimson - Teatro Carlo Felice, Genova, Italy (2003) 2006 [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271361.jpg" />
+  <img src="Z:/picture/008/save_picture_271361.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ Neil Young - Songs for Judy (2018) Live album [FLAC|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271003.jpg" />
+  <img src="Z:/picture/008/save_picture_271003.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270352.jpg" />
+  <img src="Z:/picture/008/save_picture_270352.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ SuperHeavy - SuperHeavy (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_270120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_270120.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ The Doors - Waiting For The Sun (1968) 2CD + LP Box Set, Remastered, Elektra, 20
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269994.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ Def Leppard - The Story So Far: The Best Of Def Leppard (2018) Deluxe Edition [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269937.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ Creedence Clearwater Revival Featuring John Fogerty - Chronicle (The 20 Greatest
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269111.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ Deep Purple - Soldier Of Fortune: The Greatest Hits (1994) [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269101.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Del Shannon-The Complete UK Singles More 1961-1966 (2013) [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268417.jpg" />
 </div>
 
 
@@ -599,152 +744,6 @@ Del Shannon-The Complete UK Singles More 1961-1966 (2013) [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:296424A06F680EB4712E65908CA1F55933949229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339041   (267981) от 17.11.2019
-
-VA - The Hits Album: The Rock Album (2019) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <Rock, Soft-Rock, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267981.jpg" />
-</div>
-
-
-###  Подробнее
-
-В комментах к выложенной ранее версии этого альбома в мп3 один из членов клуба написал: "Хорошая подборка. Чел душу вложил."
-Не согласиться с тем, что чел в лице Sony Music UMC вложил действительно душу в эту подборку нельзя. Не смотря на то, что она уже была на трекере, выкладываю её еще раз теперь уже в lossless формате. Думаю, истинные ценители рока (   Читать дальше...   )CD1:
-01. Meat Loaf - Bat Out Of Hell  (4:53)
-02. Toto - Hold The Line  (3:55)
-03. Reo Speedwagon - Keep On Loving You  (3:21)(   Читать дальше...   )Релиз состоялся: 01 ноября 2019 г.Жанр: Rock, Soft-Rock, Pop-RockПродолжительность: 05:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99767A3B2C71FBCD1988B8F4CA9995A3E8C17E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190594   (266903) от 10.12.2017
-
-U2 - Songs of Experience (2017) Japan Release [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is All We Have Left (02:41)
-02. Lights Of Home (04:17)
-03. You're The Best Thing About Me (03:45)
-04. Get Out Of Your Own Way (03:58)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45821BD7962C29D2B9F881349B00BDCDB115360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191022   (265091) от 12.12.2017
-
-U2 - U218 Singles (Vol.1,2) (2006) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vertigo (2005 Live From Milan) (3:54)
-02. I Will Follow (2005 Live From Milan) (4:27)
-03. Elevation (2005 Live From Milan) (5:52)
-04. I Still Haven't Found What I'm Looking For (2005 Live From Milan) (5:41)(   Читать дальше...   )Жанр: Rock |Продолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A3F44AE1462B078A81669975FA6614F900386A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339835   (264629) от 21.11.2019
-
-Chris Rea - Dancing With Strangers (1987) 2CD, Deluxe Edition, Reissue, 2019, Magnet Records [FLAC|Lossless|image + .cue] <Blues Rock, Pop Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Joys Of Christmas [5:15]
- 02 - I Can't Dance To That [4:19]
- 03 - Windy Town [4:24]
- 04 - Gonna Buy a Hat [4:24](   Читать дальше...   )Жанр: Blues Rock, Pop Rock, Country RockПродолжительность: 02:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6138757319D7B614C975B0505DDF75BD5F893B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191197   (264515) от 13.12.2017
-
-Terra Lightfoot - New Mistakes (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise 03:42
-02. Pinball King 03:19
-03. Ruthless 03:25
-04. You Get High 03:26(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741B38B4B68828C4C40E1A007090332864BC1F02
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ BNA Theme Song - Ready to & NIGHT RUNNING (2020) [FLAC 2.0|48/24|tracks|WEB-DL] 
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783839.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Re: Zero | Re: Life in a different world from zero ORIGINAL SOUND TRUCK (2016) [
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783837.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ BNA Complete album (2020) [FLAC|lossless|tracks+.cue] <OST+OP+ED+Insert Songs>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768253.jpg" />
+  <img src="Z:/picture/008/save_picture_768253.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Frontier Aja - Koumajou Densetsu OST (2009-2011) [FLAC|Lossless] <OST, Touhou, J
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756046.jpg" />
+  <img src="Z:/picture/008/save_picture_756046.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Oedo wa Nemurenai! OST (1993) [FLAC|Lossless|tracks] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734146.jpg" />
+  <img src="Z:/picture/008/save_picture_734146.jpg" />
 </div>
 
 
@@ -154,7 +154,7 @@ Uma Musume: Pretty Derby ED1 — Grow Up Shine! | Девушки-лошадки:
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656738.jpg" />
+  <img src="Z:/picture/008/save_picture_656738.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Uma Musume: Pretty Derby OP1 — Make Debut! | Девушки-лошадки: М
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656650.jpg" />
+  <img src="Z:/picture/008/save_picture_656650.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Kenichiro Suehiro, VA - Re: Zero kara Hajimeru Isekai Seikatsu (2016) 7 CD [FLAC
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655720.jpg" />
+  <img src="Z:/picture/008/save_picture_655720.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Sailor Moon Complete Discography / Сейлор Мун полная коллек
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639040.jpg" />
+  <img src="Z:/picture/008/save_picture_639040.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Bleach Soundtrack Collection / Блич коллекция соундтреко�
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627163.jpg" />
+  <img src="Z:/picture/008/save_picture_627163.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Junketsu no Maria OST (2015|FLAC) <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614150.jpg" />
+  <img src="Z:/picture/008/save_picture_614150.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ KanColle Music Collection [2014|FLAC] <OST, Vocal>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614010.jpg" />
+  <img src="Z:/picture/008/save_picture_614010.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ PSYCHO-PASS OST (2014-2015|FLAC) <OP|ED|OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613938.jpg" />
+  <img src="Z:/picture/008/save_picture_613938.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Gunslinger Stratos OST [2015|FLAC] <ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612393.jpg" />
+  <img src="Z:/picture/008/save_picture_612393.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Nagato Yuki-chan no Shoushitsu OST [2015|FLAC] <ED, Character Songs>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612386.jpg" />
+  <img src="Z:/picture/008/save_picture_612386.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Seraph of the End OST [2015|FLAC] <OP+ED
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612359.jpg" />
+  <img src="Z:/picture/008/save_picture_612359.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Plastic Memories OST [2015|FLAC] <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612349.jpg" />
+  <img src="Z:/picture/008/save_picture_612349.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ Yahari Ore no Seishun Love Come wa Machigatteiru Zoku OST [2015|FLAC] <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612348.jpg" />
+  <img src="Z:/picture/008/save_picture_612348.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dungeon ni Deai wo Motomeru no wa Machigatteiru Darou ka OST [2014|FLAC] <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612346.jpg" />
+  <img src="Z:/picture/008/save_picture_612346.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Paprika / Паприка (2006) [FLAC|Lossless|WEB-DL] <OST>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608582.jpg" />
+  <img src="Z:/picture/008/save_picture_608582.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Comic Girls OST (2018) [FLAC|tracks] <OP+ED>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598035.jpg" />
+  <img src="Z:/picture/008/save_picture_598035.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Omega no Shikai OST — 2 альбома (2006-2008) /Doujin/ Vocal [FLAC|Lossle
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555022.jpg" />
+  <img src="Z:/picture/008/save_picture_555022.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Ai no Uta ~ LOVE SONG COLLECTION (2008) [FLAC|Lossless|tracks] <J-Pop>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554436.jpg" />
+  <img src="Z:/picture/008/save_picture_554436.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ ALICE SOFT Vocal Collection — 2 альбома (2010-2011) Anime games OST [FL
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554434.jpg" />
+  <img src="Z:/picture/008/save_picture_554434.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ LiLiM Vocal Collection (2007) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554431.jpg" />
+  <img src="Z:/picture/008/save_picture_554431.jpg" />
 </div>
 
 
@@ -717,7 +717,7 @@ THE WORKS (2009) Anime games OST [FLAC|Lossless|tracks] <J-Pop>
 >>Аниме OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554425.jpg" />
+  <img src="Z:/picture/008/save_picture_554425.jpg" />
 </div>
 
 

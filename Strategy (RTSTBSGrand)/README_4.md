@@ -1,3 +1,29 @@
+###  Публикация: 1511913   (787787) от 23.11.2021
+
+Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.09.00/dlc) License FAIRLIGHT [Complete Edition]
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_787787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гладиус Прайм был известен среди Имперских ученых, как планета богатая на археологические находки. Во время его колонизации были найдены древние реликвии, намекающие на окутанное тайной прошлое планеты. Находки оказались нечто большим, чем реликвиями. Пробудился ужасный отголосок древнего прошлого, и жители Гладиуса оказались втянуты в смертельную войну за выживание. (   Читать дальше...   )Тип издания: LicenseРазработчик: Proxy StudiosЖанр: Пошаговая стратегия 4XЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB2AF30C6DAE18F3F265405120B17CD2A88941B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309345   (786609) от 06.06.2020
 
 Steel Division 2 (2019) [Ru/Multi] (36778/dlc) License CODEX
@@ -6,7 +32,7 @@ Steel Division 2 (2019) [Ru/Multi] (36778/dlc) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786609.jpg" />
+  <img src="Z:/picture/008/save_picture_786609.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Battlezone 98 Redux (2016) [Ru/Multi] (2.2.301/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786259.jpg" />
+  <img src="Z:/picture/008/save_picture_786259.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Sid Meiers: Civilization VI /  Sid Meiers: Civilization 6 (2016) [Ru/Multi] (1.0
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782813.jpg" />
+  <img src="Z:/picture/008/save_picture_782813.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Desperados III (3) (2020) [Ru/Multi] (1.1.18) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782207.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Carrier Command: Gaea Mission (2012) [Ru/Multi] (1.6.0011) Repack R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781980.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Stellaris (2016) [Ru/En] (2.0.2/dlc) Repack R.G. Механики
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776621.jpg" />
+  <img src="Z:/picture/008/save_picture_776621.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Space Tycoon (2019) [En/Ch] (1.0) License SKIDROW
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772526.jpg" />
+  <img src="Z:/picture/008/save_picture_772526.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.1/dlc) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770102.jpg" />
+  <img src="Z:/picture/008/save_picture_770102.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Star Ruler 2 - Wake of the Heralds (2015) [Ru/En] (2.0.0/dlc) License PROPER - P
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769445.jpg" />
+  <img src="Z:/picture/008/save_picture_769445.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ SpellForce 2 (2017) [Ru/Multi] (2.01.8596) License PLAZA [Anniversary Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768380.jpg" />
+  <img src="Z:/picture/008/save_picture_768380.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Etherlords 2: The Second Age / Демиурги 2 (2003) [Ru/En/Ge] (1.03/1.01) 
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767569.jpg" />
+  <img src="Z:/picture/008/save_picture_767569.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Galactic Civilizations I (2003) [En] (2.0.0.4/dlc) License GOG [Ultimate Edition
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766730.jpg" />
+  <img src="Z:/picture/008/save_picture_766730.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Galactic Civilizations II (2011) [En] (2.1.0.3/dlc) License GOG [Ultimate Editio
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766729.jpg" />
+  <img src="Z:/picture/008/save_picture_766729.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ SpellForce 2 (2017) [Ru/En/Ge] (2.01.85906) License GOG [Anniversary Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766696.jpg" />
+  <img src="Z:/picture/008/save_picture_766696.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ AGEod's American Civil War: 1861-1865 – The Blue and the Gray / AGEod's Americ
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765991.jpg" />
+  <img src="Z:/picture/008/save_picture_765991.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Cossacks: Imperia / Казаки: Империя [Multi5/Ru] (P/Mod) 2006 | Levi
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764670.jpg" />
+  <img src="Z:/picture/008/save_picture_764670.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Charterstone (2020) [Multi] (1.2.7) License GOG [Digital Edition]
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761516.jpg" />
+  <img src="Z:/picture/008/save_picture_761516.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.73.3.9771) Rep
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757688.jpg" />
+  <img src="Z:/picture/008/save_picture_757688.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.73.3.9771) Lic
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757681.jpg" />
+  <img src="Z:/picture/008/save_picture_757681.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Medieval II: Total War + Kingdoms [Ru] (RePack) 2007 | R.G. Catalyst
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757425.jpg" />
+  <img src="Z:/picture/008/save_picture_757425.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ The Mims Beginning (2016) [En] (1.0.0.280) License CODEX
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757076.jpg" />
+  <img src="Z:/picture/005/save_picture_757076.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Endless Legend (2014) [Ru/Multi] (1.8.2/dlc) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753181.jpg" />
+  <img src="Z:/picture/008/save_picture_753181.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Ostalgie: The Berlin Wall (2018) [Ru/En] (1.0.6.c) License PLAZA
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745765.jpg" />
+  <img src="Z:/picture/008/save_picture_745765.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ Star Trek: Starfleet Command III (2002) [En] (1.01.534_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742018.jpg" />
+  <img src="Z:/picture/008/save_picture_742018.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ Star Trek: Armada (2000) [En] (1.2_rdna_fix) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742007.jpg" />
+  <img src="Z:/picture/008/save_picture_742007.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ Star Trek: Armada - официальная игра по мотивам знам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76051E520BA934B67453CD83E704273CE401F99F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524760   (742006) от 17.01.2022
-
-Star Trek: Armada II (2001) [En] (1.1_rdna_fix) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Star Trek: Armada 2 - стратегическая игра, разработанная по мотивам одноименного телевизионного шоу Звездный путь. В сиквеле возвращаются борги с новым и более опасным оружием. Они намереваются уничтожить всю галактику. Также на поле боя выходить таинственный вид 8472, который появился в результате пространственного разлома.Тип издания: LicenseРазработчик: Mad Doc SoftwareЖанр: Стратегия, В реальном времени, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7765264314CEE66BFF2CACBD6B7E7EEED6F0723D
 ```
 
 https://mybot314.ru/tekegram_catalog/

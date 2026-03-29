@@ -6,7 +6,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693650.jpg" />
+  <img src="Z:/picture/008/save_picture_693650.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693635.jpg" />
+  <img src="Z:/picture/008/save_picture_693635.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693623.jpg" />
+  <img src="Z:/picture/008/save_picture_693623.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693403.jpg" />
+  <img src="Z:/picture/008/save_picture_693403.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692122.jpg" />
+  <img src="Z:/picture/008/save_picture_692122.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691987.jpg" />
+  <img src="Z:/picture/008/save_picture_691987.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691707.jpg" />
+  <img src="Z:/picture/008/save_picture_691707.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691636.jpg" />
+  <img src="Z:/picture/008/save_picture_691636.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690794.jpg" />
+  <img src="Z:/picture/008/save_picture_690794.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690075.jpg" />
+  <img src="Z:/picture/008/save_picture_690075.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689050.jpg" />
+  <img src="Z:/picture/008/save_picture_689050.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688780.jpg" />
+  <img src="Z:/picture/008/save_picture_688780.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688209.jpg" />
+  <img src="Z:/picture/008/save_picture_688209.jpg" />
 </div>
 
 
@@ -336,6 +336,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289401   (688131) от 15.03.2019
+
+Глупое молодое сердце / Holmo nuori sydan (Stupid young heart) (2018) HDRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_688131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ленни и Кира - обычные старшеклассники из небогатых семей. Когда Кира понимает, что забеременела, паре приходится в экстренном порядке начать взрослеть и учиться решать недетские проблемы.Производство: Финляндия, Нидерланды, Швеция / Tuffi Films, Windmill Film, HobЖанр: ДрамаРежиссер: Сельма ВилхуненАктеры: Пихла Виитала, Вилле Хаапасало, Роза Хонконен, Антон Кеттунен, Джере Ристсеппя, Ааму Милонов, Мика Мелендер, Катья Куккола, Лена Ванхамяки, Соня ЛиндфорсПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:42:01Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB43810C789436D19E466D1A3132DA816E054EBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289398   (687832) от 15.03.2019
 
 Большое убийство / Big Kill (2018) HDRip [MVO] [AD]
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687832.jpg" />
+  <img src="Z:/picture/008/save_picture_687832.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687826.jpg" />
+  <img src="Z:/picture/008/save_picture_687826.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686117.jpg" />
+  <img src="Z:/picture/008/save_picture_686117.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685979.jpg" />
+  <img src="Z:/picture/008/save_picture_685979.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685974.jpg" />
+  <img src="Z:/picture/008/save_picture_685974.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685969.jpg" />
+  <img src="Z:/picture/008/save_picture_685969.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685826.jpg" />
+  <img src="Z:/picture/008/save_picture_685826.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685822.jpg" />
+  <img src="Z:/picture/008/save_picture_685822.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685669.jpg" />
+  <img src="Z:/picture/008/save_picture_685669.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685657.jpg" />
+  <img src="Z:/picture/008/save_picture_685657.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684679.jpg" />
+  <img src="Z:/picture/008/save_picture_684679.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684445.jpg" />
+  <img src="Z:/picture/008/save_picture_684445.jpg" />
 </div>
 
 
@@ -641,34 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3869C459D76161B7100EF4FADF7EFAA9ECECC57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535570   (684105) от 07.03.2022
-
-Хронос / Cronos (1993) BDRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хронос - это маленькое устройство, которое сбежавший из Испании в Мексику алхимик Умберто Фальконелли изобрел в 1536 году. Устройство, дарующее бессмертие. Правда, в 1937 году жизнь алхимика все-таки оборвалась в результате трагической случайности, потому что Хронос обещал вечную жизнь тому, кто будет питать его собственной кровью.
-
-Имущество особняка, где жил алхимик, (   Читать дальше...   )Производство: Мексика / CNCAIMC, Iguana Producciones, Ventana FilmsЖанр: ужасы, драмаРежиссер: Гильермо дель ТороАктеры: Федерико Луппи, Рон Перлман, Клаудио Брук, Маргарита Исабель, Тамара Шанат, Даниэль Хименес Качо, Марио Иван Мартинес, Фарнесио де Берналь, Хуан Карлос Коломбо, Хорхе Мартинес де ОйосПеревод: Многоголосый закадровый (Omskbird)Язык озвучки: русскийПродолжительность: 01:32:28Реклама: Присутствуют 2 аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2299F277702A1BB5EB443C1885623D4B9BB86721
 ```
 
 https://mybot314.ru/tekegram_catalog/

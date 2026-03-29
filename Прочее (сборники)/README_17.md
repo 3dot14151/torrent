@@ -1,3 +1,189 @@
+###  Публикация: 1358516   (968754) от 08.02.2020
+
+VA - The Official UK Top 40 Singles Chart 07.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd - Blinding Lights
+02. Roddy Ricch - The Box
+03. Lewis Capaldi - Before You Go
+04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE4300B3B6F912C93063BADCA227255AAC5A7EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358431   (968739) от 08.02.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix) 2:56
+02. Anthony Keyrouz - Love Yourself 2:56
+03. Zivert - Credo 3:04
+04. Billie Eilish - Everything I Wanted 4:05(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580F420E568552164A2BB7D5A18CD2492F32DE5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 618997   (968609) от 15.02.2013
+
+VA - Elegant Cafe Vol. 1-2 (2013) [MP3|320 кб/с]<Lounge, Jazz Blends, Easy Listening>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968609.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Sara K. — If I Could Sing Your Blues (3:49)
+02. Highnote — Good Morning Heartache (6:06)
+03. David Broza — Old Satan (3:52)
+04. True Audiophile. The Best Of Groove Note — Track05 (5:46)
+05. John Pizzarelli — My Blue Heaven (4:00)
+06. Sara K. — What You Don't Know (4:32)
+07. Diana Panton — Felicidade (4:41)
+08. Rosa Passos And Ron Carter — Garota De Ipanema (3:19)
+09. Shirma Rouse & Kim Hoorweg — I Say A Little Prayer (3:25)(   Читать дальше...   )Жанр: Lounge, Jazz Blends, Easy ListeningПродолжительность: 04:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F0D86335DBB8576C94F9F5F444AFA0AFA7F1EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616597   (968541) от 15.02.2013
+
+VA - D.J H i t s  777 ( 1990 - 2000 г ) (2010) [MP3|256 кб/с]<Eurodance, Pop, Rap.>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968541.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Masterboy - Show me colours
+002 Banditos Bonitos feat Nina - Gimme sunshine
+003 Passpar - My fantasy
+004 Activate - I say what i want
+005 Melodie MC - Anyone out there
+006 Respect - Take me away
+007 D. Lies feat Raffa - Lies
+008 Princessa - Any one but you
+009 Sir Prize - Love is the answer
+010 Twenty 4 Seven - We are the world(   Читать дальше...   )Жанр: Eurodance, Pop, Rap.Продолжительность: 51:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE81BED04998450209592774B241ED03978F6AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976895   (967786) от 19.01.2016
+
+VA - Battle DJ (2016) [MP3|320 кб/с] <Dance, Club, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IOWA - Бьёт Бит (Dj Andy Light & Dj O'Neill Sax Remix)
+02. Mike Candys feat. Evelyn & Tony T - Everybody (Tony Kart & Alexx Crown Remix)
+03. Ost Up - Про него (Dj MriD & Tony Kart Remix)
+04. Тимати feat. Рекорд Оркестр - Баклажан ( Viduta Remix )(   Читать дальше...   )Жанр: Dance, Club, House, TranceПродолжительность: 07:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E08E25BAD8F614A05E9AE5215737E3B95ACECBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977117   (967745) от 19.01.2016
+
+VA - 90s & 00s Covers Playlist (2015) [MP3|320 кб/с] <Pop, Covers>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Creep (03:59)
+02. Meg Birch - Losing My Religion (Acoustic) (04:10)
+03. Alice Lamb - Tears in Heaven (Acoustic) (02:56)
+04. Talisha Karrer - Somewhere Only We Know (03:28)(   Читать дальше...   )Производство: Lark RecordingsЖанр: Pop, CoversПродолжительность: 01:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17334A5770E572234201A134574A1321FBC04C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358710   (967319) от 09.02.2020
 
 VA - Highly Likely: Turbo Funky Mix (2020) [MP3|320 Kbps] <Funky Disco, Nu Disco, Disco House>
@@ -6,7 +192,7 @@ VA - Highly Likely: Turbo Funky Mix (2020) [MP3|320 Kbps] <Funky Disco, Nu Disco
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967319.jpg" />
 </div>
 
 
@@ -35,7 +221,7 @@ VA - Europa Plus. Тор 40 Украина (2016) [MP3|320 кб/с] <Dance, Club
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966650.jpg" />
 </div>
 
 
@@ -64,7 +250,7 @@ VA - An Endless Drive (2016) [MP3|320 кб/с] <Club, House, Electro, Trance, Te
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965768.jpg" />
 </div>
 
 
@@ -93,7 +279,7 @@ VA - Collection Of Modern Dance Ethnic Group (2016) [MP3|256-320 кб/с] <Moder
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964598.jpg" />
 </div>
 
 
@@ -122,7 +308,7 @@ VA - 90s Basic Element Insight (2020) [MP3|320 Kbps] <Eurodance, Euro-House, Dan
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963880.jpg" />
 </div>
 
 
@@ -151,7 +337,7 @@ VA - Зайцев.нет Лучшие новинки Февраля (2020) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963878.jpg" />
 </div>
 
 
@@ -180,7 +366,7 @@ VA - Control Improvement Solutions (2016) [MP3|320 кб/с] <Dance, Club, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963706.jpg" />
 </div>
 
 
@@ -209,7 +395,7 @@ VA - LOVERS Dance Cocktail (2015) [MP3|320 кб/с] <Dance, Deep House, Vocal Tr
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963631.jpg" />
 </div>
 
 
@@ -238,7 +424,7 @@ VA - Немного песен о любви (2020) [MP3|320 Kbps] <Pop, Rock, O
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963161.jpg" />
 </div>
 
 
@@ -267,7 +453,7 @@ VA - 100 Greatest Love Songs (2020) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963097.jpg" />
 </div>
 
 
@@ -296,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962621.jpg" />
 </div>
 
 
@@ -325,7 +511,7 @@ VA - Unlimited Love (2020) [MP3|320 Kbps] <Pop, Rock>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961920.jpg" />
 </div>
 
 
@@ -354,7 +540,7 @@ VA - не Громкие новинки недели 55 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961881.jpg" />
 </div>
 
 
@@ -383,7 +569,7 @@ VA - ЕвроХит Топ 40 Europa Plus 14.02.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961853.jpg" />
 </div>
 
 
@@ -412,7 +598,7 @@ VA - The Official UK Top 40 Singles Chart (19-01-2014) [MP3|320 кб/с]<Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961449.jpg" />
 </div>
 
 
@@ -442,7 +628,7 @@ VA - Indie Dance: Disco Elixir (2016) [MP3|320 кб/с] <Funky House, Nu Disco, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961060.jpg" />
 </div>
 
 
@@ -471,7 +657,7 @@ VA - Музыка любви - 5CD (2008) [MP3|320 kbps] <Other, Romantic>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960986.jpg" />
 </div>
 
 
@@ -497,7 +683,7 @@ VA - Громкие новинки Февраля (2020) [MP3|320 Kbps] <Pop, Da
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960294.jpg" />
 </div>
 
 
@@ -526,7 +712,7 @@ Robyx Party - Long Single Mix 1990 Mix Part 1-2 (2016) [MP3|320 кб/с] <Italo-
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959868.jpg" />
 </div>
 
 
@@ -555,7 +741,7 @@ VA - Hot Eurodance Party (2016) [MP3|160-320 кб/с] <eurodance, pop, house>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959771.jpg" />
 </div>
 
 
@@ -569,182 +755,6 @@ VA - Hot Eurodance Party (2016) [MP3|160-320 кб/с] <eurodance, pop, house>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D6DBF7EAF576D12F6BF59ABB7357F7384788D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360605   (959408) от 16.02.2020
-
-VA - The Official UK Top 40 Singles Chart 14.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Roddy Ricch - The Box
-03. Lewis Capaldi - Before You Go
-04. Dua Lipa - Don't Start Now(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96937A1A7AC7866257DE1CD1B0A2E6D151B8F9A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979618   (958434) от 27.01.2016
-
-VA - The Eurodance Evolution 2016 (2016) [MP3|320 кб/с] <Pop, Euro, Indie, Folk, Hip-Hop, RnB>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free 2 Night - Under the Sun (Eurodance Remix) [04:33]
-02. Real 2 Day Ft B.P. - Change Our Life (Radio Mix) [03:12]
-03. B.P.M - No End No Limit (Radio Mix) [03:27]
-04. Shilton - Don't Stop Your Dreams (Eurodance Radio Mix) [03:00](   Читать дальше...   )Жанр: Pop, Euro, Indie, Folk, Hip-Hop, RnBПродолжительность: 06:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0668CD3F90102E813D953D89FEBF77FBE40D6026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979642   (958202) от 27.01.2016
-
-Ace Of Base - Super Hits Collection (2015) [MP3|320 кб/с] <Disco , Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always Have, Always Will
-02. Wonderful Life
-03. Dr. Sun
-04. All That She Wants(   Читать дальше...   )Жанр: Disco , EurodanceПродолжительность: 01:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2DE72C3CC466BC8B7EF4033B98C33D58BB744D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360849   (958082) от 17.02.2020
-
-VA - Зимняя свежая 30-тка Vol.4 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958082.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Anessa Kay - Уходи (3:00)
-2.Elbrus - Я Не Верю (3:07)
-3.Gezweirdo feat. Nomovoln - Цепи (3:18)
-4.HammAli & Navai - Где Ты Была (3:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:29:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D92F62ABCC0318416552ED6FCD5BE1F68F8D5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856531   (957579) от 05.01.2015
-
-VA - The Official UK Top 40 Singles Chart (04-01-2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Публикую первый в этом году традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
-Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь.
-Во все треки вшиты обложки альбомов.01. Mark Ronson - Uptown Funk! (Feat.Bruno Mars)  (4:31)
-02. Philip George - Wish You Were Mine  (2:58)
-03. Ed Sheeran - Thinking Out Loud  (4:42)
-04. Ben Haenow - Something I Need  (3:46)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066C24ABB9D11C5587701F3841365B9C8C992B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980014   (957218) от 28.01.2016
-
-VA - Space And Time (2016) [MP3|320 кб/с] <Disco, Electonic, Space rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geraldine Cordeau - Space And Time `84 (5:29)
-02. Logic System - Orient Express `82 (4:14)
-03. Kraftwerk - Spacelab `78 (5:55)
-04. Supersempfft - Roboterwerke `79 (4:31)(   Читать дальше...   )Жанр: Disco, Electonic, Space rockПродолжительность: 05:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41394E2B7E762DC3403BFC5FF633E5194E2E3F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

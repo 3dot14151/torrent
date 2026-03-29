@@ -1,3 +1,55 @@
+###  Публикация: 1665528   (182086) от 30.09.2023
+
+Разочарование / Disenchantment (2023) WEB-DLRip (сезон 5, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в Средневековье в королевстве Дримландия, где живёт юная принцесса-алкоголичка Бин. Отказавшись выходить замуж, Бин отправляется в путешествие по стране в компании эльфа и демона. По дороге трио встретит множество фантастических тварей и дураков людского происхождения.Производство: США / Curiosity Company, The, NetFlix, ULULU CompanyЖанр: приключения, комедия, фэнтези, Для взрослыхРежиссер: Ира Шерак, Дуэйн Кэри-Хилл, Брайан ШислиПеревод: Многоголосый профессиональный (NewStation)Язык озвучки: русский, английскийСубтитры: отсутствуютПродолжительность: ~00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9291CD2B4085CED58CB6A4A888B755C4B0FF5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665525   (182055) от 30.09.2023
+
+Разочарование / Disenchantment (2023) WEB-DL [H.264/1080p-LQ] (сезон 5, серии 1-10 из 10) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие разворачивается в Средневековье в королевстве Дримландия, где живёт юная принцесса-алкоголичка Бин. Отказавшись выходить замуж, Бин отправляется в путешествие по стране в компании эльфа и демона. По дороге трио встретит множество фантастических тварей и дураков людского происхождения.Производство: США / Curiosity Company, The, NetFlix, ULULU CompanyЖанр: приключения, комедия, фэнтези, Для взрослыхРежиссер: Ира Шерак, Дуэйн Кэри-Хилл, Брайан ШислиПеревод: Многоголосый профессиональный (NewStation)Язык озвучки: русский, английскийСубтитры: русские, английские, украинские, испанские, норвежские, индонезийские, греческие, румынские, немецкие, тайские, японские, итальянские, португальские, китайские, финские, шведские, ивритские, арабские, голландские, датские, польские, турецкие, корейские, французскиеПродолжительность: ~00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E54128BC24A23353788C38CA6142CC223ED6456C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665380   (181963) от 30.09.2023
 
 Кунг-фу Панда: Рыцарь дракона / Kung Fu Panda: The Dragon Knight (2023) WEB-DL [H.264/1080p] (сезон 3, серии 1-19 из 19)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181963.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181893.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181678.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181152.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181049.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_179874.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_179451.jpg" />
+  <img src="Z:/picture/005/save_picture_179451.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177981.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176623.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176522.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176437.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_176403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_176403.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175790.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175751.jpg" />
+  <img src="Z:/picture/004/save_picture_175751.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_175124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_175124.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173874.jpg" />
+  <img src="Z:/picture/004/save_picture_173874.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173681.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173655.jpg" />
+  <img src="Z:/picture/004/save_picture_173655.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173541.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173487.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172963.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172951.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172773.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171365.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52C6C198A2B4DBBE3420D88A0B89CCE2D15B00CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670668   (171331) от 24.10.2023
-
-Космобой / Kid Cosmic (2021-2022) WEB-DLRip [H.264/1080p] (сезон 1-3, серии 1-24 из 24) VSI Moscow, TVShows, HDRezka Studio
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мальчик находит пять мощных космических камней, и его мечта стать супергероем сбывается. Но спасать мир всё же не так просто — и одному ему точно не справиться. Эпицентр повествования сюжетной линии мультсериала "Космобой" займет девятилетний малец, поведение которого вызывает определенные странности. Мальчик, проживающий с дедушкой на территории небольшой (   Читать дальше...   )Производство: США, Netflix Animation, Craig McCracken ProductionsЖанр: Мультсериал, фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Крэйг МакКрекен, Дэйв Томас, Роберт Ренцетти, Пол Уотлинг, Бенжамин БалистрериАктеры: Джек Фишер, Аманда Селин Миллер, Лили Роуз Сильвер, Том Кенни, Кит Фергюсон, Фред Татаскьор, Грей ДеЛайл, Ким Ярбро, Кристиан Ланц, Эрик БаузаПеревод: Дублированный (VSI Moscow), многоголосый закадровый (HDRezka Studio, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: русские (full, forced), английские (full)Продолжительность: 24 x ~ 00:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5791D3204BDE641E8090F7A322B7958F741D505F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513998   (170779) от 05.12.2021
-
-Губка Боб Квадратные Штаны / SpongeBob SquarePants (1999-2021) (Сезон 1 -13, эпизодов 1-270) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Население подводного городка Бикини Боттом составляют разные морские обитатели. Среди них — лучший друг Спанч Боба, морская звезда по имени Патрик, раздражительный надменный кальмар Сквидвард и белка по имени Сэнди, которая тоже живёт под водой, используя гидрокостюм. Спанч Боб работает поваром в закусочной «Красти Краб», которая управляется старым скрягой мистером (   Читать дальше...   )Производство: США, United Plankton Pictures, Nicktoons ProductionsЖанр: Комедия, Приключения, ФэнтезиРежиссер: Стивен Хилленбёрг, Мистер Лоуренс, Алан Смарт, Пол Тиббит, Винсент УоллерАктеры: Том Кенни, Билл Фагербакки, Роджер Бампасс, Клэнси Браун, Даг Лоуренс, Кэролин Лоуренс, Джилл Тэлли, Лори Алан, Сирена Ирвин, Ди Брэдли Бейкер, Мэри Джо Кэтлетт и другиеПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 270x ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4935FA74E642200AAF9922F86072EF200EB67265
 ```
 
 https://mybot314.ru/tekegram_catalog/

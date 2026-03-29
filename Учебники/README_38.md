@@ -1,3 +1,55 @@
+###  Публикация: 1535565   (684108) от 07.03.2022
+
+Е.А. Кирова (ред.) | Налоги и налогообложение. Учебник и практикум (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684108.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе представлена эволюция налогообложения с древнейших времен до наших дней. Рассмотрены основные принципы и особенности построения современной налоговой системы РФ. Дана подробная характеристика основных налогов и обязательных платежей по состоянию на 1 мая 2021 г., рассмотрены вопросы налогового права, налогообложения юридических и физических лиц, а также субъектов (   Читать дальше...   )Жанр: НалогообложениеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D69B1C953C2E2511B0FFDA603767A7648B48ED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535597   (684106) от 07.03.2022
+
+О.С.  Боброва и др. | Основы бизнеса. Учебник и практикум (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_684106.jpg" />
+</div>
+
+
+###  Подробнее
+
+В курсе рассматриваются теоретические основы и практические аспекты предпринимательства в России, включая его историю, среду формирования, организационные основы, в частности — налоговое регулирование, материальные и нематериальные ресурсы, включая инвестиции. Уделено внимание государственной поддержке бизнеса. Раскрыта сущность планирования, описаны практико-ориентированные (   Читать дальше...   )Жанр: БизнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D73D4DCD2817FB3CCABC5490D949C863E50954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535698   (684103) от 07.03.2022
 
 Е.Е. Румянцева | Противодействие коррупции. Учебник и практикум (2022) [PDF]
@@ -6,7 +58,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684103.jpg" />
+  <img src="Z:/picture/008/save_picture_684103.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684098.jpg" />
+  <img src="Z:/picture/008/save_picture_684098.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683847.jpg" />
+  <img src="Z:/picture/008/save_picture_683847.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683726.jpg" />
+  <img src="Z:/picture/008/save_picture_683726.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681346.jpg" />
+  <img src="Z:/picture/008/save_picture_681346.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680586.jpg" />
+  <img src="Z:/picture/008/save_picture_680586.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680290.jpg" />
+  <img src="Z:/picture/008/save_picture_680290.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678956.jpg" />
+  <img src="Z:/picture/008/save_picture_678956.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678851.jpg" />
+  <img src="Z:/picture/008/save_picture_678851.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678839.jpg" />
+  <img src="Z:/picture/008/save_picture_678839.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678707.jpg" />
+  <img src="Z:/picture/008/save_picture_678707.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678695.jpg" />
+  <img src="Z:/picture/008/save_picture_678695.jpg" />
 </div>
 
 
@@ -327,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678144.jpg" />
+  <img src="Z:/picture/008/save_picture_678144.jpg" />
 </div>
 
 
@@ -353,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677264.jpg" />
+  <img src="Z:/picture/008/save_picture_677264.jpg" />
 </div>
 
 
@@ -379,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677141.jpg" />
+  <img src="Z:/picture/008/save_picture_677141.jpg" />
 </div>
 
 
@@ -406,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677014.jpg" />
+  <img src="Z:/picture/008/save_picture_677014.jpg" />
 </div>
 
 
@@ -433,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674772.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674638.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674620.jpg" />
 </div>
 
 
@@ -513,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674472.jpg" />
+  <img src="Z:/picture/008/save_picture_674472.jpg" />
 </div>
 
 
@@ -539,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674464.jpg" />
+  <img src="Z:/picture/008/save_picture_674464.jpg" />
 </div>
 
 
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674462.jpg" />
+  <img src="Z:/picture/008/save_picture_674462.jpg" />
 </div>
 
 
@@ -593,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674325.jpg" />
+  <img src="Z:/picture/008/save_picture_674325.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674156.jpg" />
+  <img src="Z:/picture/008/save_picture_674156.jpg" />
 </div>
 
 
@@ -631,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:946D4E1D58056C9A88A8301467C67A87577FC949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136369   (673135) от 23.05.2017
-
-А.А. Демичев, О.С. Грачева | Экологическое право (2017) [RTF, FB2]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673135.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебнике, подготовленном в соответствии с требованиями Государственного образовательного стандарта высшего профессионального образования по специальностям «Юриспруденция», «Правоохранительная деятельность» и «Правовое обеспечение национальной безопасности», на основе анализа действующего законодательства рассматриваются основные проблемы общей и особенной частей (   Читать дальше...   )Жанр: Экология, юриспруденция, учебникФормат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7207876C63771F4D15164E085F979D430E8479E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136345   (672878) от 23.05.2017
-
-Б.С. Гольдштейн | Системы коммутации (2003) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник охватывает широкий спектр вопросов автоматической коммутации и предназначен для студентов телекоммуникационных университетов и других высших учебных заведений, обучающихся по специальности 200900 - «Сети связи и системы коммутации», а также по специальностям 201000 - «Многоканальные телекоммуникационные системы» и 550400 - «Телекоммуникации» и соответствует (   Читать дальше...   )Жанр: Связь, электроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E440364FDE749E04FCAA57BEA4C1F21FCC13775A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1265209   (276586) от 26.11.2018
+
+Нумер 482 - ДРУ (2018) [MP3|320 kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свобода 482 (03:50)
+02. Добрий ранок, Україно (03:24)
+03. Коли вона поруч (02:44)
+04. Без тебе (03:41)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C02806A10E5BC82AEA775A820DFC10E42958EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337045   (276111) от 09.11.2019
 
 Zucchero - D.O.C. (2019) [MP3|320 Kbps] <Pop, Rock, Latin>
@@ -6,7 +35,7 @@ Zucchero - D.O.C. (2019) [MP3|320 Kbps] <Pop, Rock, Latin>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276111.jpg" />
+  <img src="Z:/picture/008/save_picture_276111.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ John Fogerty - 50 Year Trip Live at Red Rocks (2019) [MP3|320 Kbps] <Classic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276092.jpg" />
+  <img src="Z:/picture/008/save_picture_276092.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sting - Greatest Hits (2017) 2CD [MP3|320 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275380.jpg" />
+  <img src="Z:/picture/008/save_picture_275380.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274875.jpg" />
+  <img src="Z:/picture/008/save_picture_274875.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Air Guitar Anthems (2016) 3CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274725.jpg" />
+  <img src="Z:/picture/008/save_picture_274725.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Red Button - Can't Stop Thinking About Her (2007) [MP3|320 Kbps] <Brit Pop, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273777.jpg" />
+  <img src="Z:/picture/008/save_picture_273777.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Slaughter And The Dogs - Vicious (2016) [MP3|320 Kbps] <Punk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273772.jpg" />
+  <img src="Z:/picture/008/save_picture_273772.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The Bigness - Time Traveler (2016) [MP3|320 Kbps] <Indie Rock, Female Vocal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273721.jpg" />
+  <img src="Z:/picture/008/save_picture_273721.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Ruby Dee And The Snakehandlers - Little Black Heart (2016) [MP3|320 Kbps] <Rocka
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273696.jpg" />
+  <img src="Z:/picture/008/save_picture_273696.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - The Hits Album - The Rock Album (2019) 4CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273545.jpg" />
+  <img src="Z:/picture/008/save_picture_273545.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Somephoenics - Product: Life (2016) [MP3|320 Kbps] <Alternative Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272479.jpg" />
+  <img src="Z:/picture/008/save_picture_272479.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Coldplay - Everyday Life (2СD) (2019) [MP3|320 Kbps] <Indie Rock, Britpop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272458.jpg" />
+  <img src="Z:/picture/008/save_picture_272458.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ BrainStorm - Closer to You (2018) EP [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271986.jpg" />
+  <img src="Z:/picture/008/save_picture_271986.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Chicago - XXXIII - O Christmas Three (2011) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271855.jpg" />
+  <img src="Z:/picture/008/save_picture_271855.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Jessy Joyce - Love Me (1976) LP [MP3|320 Kbps] <Electronic, Psychedelic Rock, Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270971.jpg" />
+  <img src="Z:/picture/008/save_picture_270971.jpg" />
 </div>
 
 
@@ -447,7 +476,7 @@ Elvis Presley - '68 Comeback Special (50th Anniversary Edition) (2018) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270958.jpg" />
+  <img src="Z:/picture/008/save_picture_270958.jpg" />
 </div>
 
 
@@ -476,7 +505,7 @@ Equilibrium - Turis Fratyr (2005) [MP3|320 kbps]<Epic Folk/Viking Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270366.jpg" />
+  <img src="Z:/picture/008/save_picture_270366.jpg" />
 </div>
 
 
@@ -505,7 +534,7 @@ Human Egg - Human Egg (1978) LP [MP3|320 Kbps] <Electronic, Space Rock, Psychede
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270071.jpg" />
 </div>
 
 
@@ -534,7 +563,7 @@ The Escape Club - Cloud 10 (2005) [MP3|320 Kbps] <Alternative Pop Rock, Ambient 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270047.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Snowball - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Rock, Jazz-Funk, Prog
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268987.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ Polecats - Polecats Are Go! (1981) Reissue CD, 2003, Anagram Records [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268044.jpg" />
+  <img src="Z:/picture/008/save_picture_268044.jpg" />
 </div>
 
 
@@ -621,7 +650,7 @@ Ben Moody - 4 Альбома + B-Sides (2005 - 2011) Дискография [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267532.jpg" />
+  <img src="Z:/picture/008/save_picture_267532.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264282.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Vintage Reserve - Vintage Reserve (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263528.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Intergalactic Touring Band - Intergalactic Touring Band (1977) Reissue CD, 2010,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262631.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ Intergalactic Touring Band (Межгалактическая Гастрольн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8C44405A127AF1D5D574E08A7BACE17FFB4AE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193067   (262488) от 19.12.2017
-
-Epolets - Діти моря (2017) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_262488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Інтро  (00:20)
-02.  Копі паст  (04:09)
-03.  Діти моря  (03:11)
-04.  Напої мене  (03:19)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:874721687782AF3E52C1C5F5B357F9C5BCC03A9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

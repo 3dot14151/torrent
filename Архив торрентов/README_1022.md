@@ -6,7 +6,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813316.jpg" />
+  <img src="Z:/picture/008/save_picture_813316.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813307.jpg" />
+  <img src="Z:/picture/008/save_picture_813307.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ USDownloader 1.3.5.9 Portable (25.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813301.jpg" />
+  <img src="Z:/picture/008/save_picture_813301.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Airmail 3.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813300.jpg" />
+  <img src="Z:/picture/008/save_picture_813300.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813299.jpg" />
+  <img src="Z:/picture/008/save_picture_813299.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Canyon Capers 1.0.73 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813288.jpg" />
+  <img src="Z:/picture/008/save_picture_813288.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Icecream Screen Recorder PRO 6.21 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813262.jpg" />
+  <img src="Z:/picture/008/save_picture_813262.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813254.jpg" />
+  <img src="Z:/picture/008/save_picture_813254.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ GOM Player 2.3.0 Build 5248 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813243.jpg" />
+  <img src="Z:/picture/008/save_picture_813243.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Bass Booster Pro 2.1 (16.05.2013) <En>
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813220.jpg" />
+  <img src="Z:/picture/008/save_picture_813220.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813216.jpg" />
+  <img src="Z:/picture/008/save_picture_813216.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813192.jpg" />
+  <img src="Z:/picture/008/save_picture_813192.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813190.jpg" />
+  <img src="Z:/picture/008/save_picture_813190.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ App Cleaner Pro 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813185.jpg" />
+  <img src="Z:/picture/008/save_picture_813185.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Extreme Picture Finder 3.34.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813183.jpg" />
+  <img src="Z:/picture/008/save_picture_813183.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813181.jpg" />
+  <img src="Z:/picture/008/save_picture_813181.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813172.jpg" />
+  <img src="Z:/picture/008/save_picture_813172.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Metallica: Fan Can Six, Copenhagen (2009) Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813167.jpg" />
+  <img src="Z:/picture/008/save_picture_813167.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Insofta 3D Text Commander 3.0.3 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813166.jpg" />
+  <img src="Z:/picture/008/save_picture_813166.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813135.jpg" />
+  <img src="Z:/picture/008/save_picture_813135.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Avira Antivirus Free 15.0.17.273 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813116.jpg" />
+  <img src="Z:/picture/008/save_picture_813116.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Metallica - Ride The Lightning (2016) Deluxe Remaster [MP3|320 кб/с] <Rock, T
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813107.jpg" />
+  <img src="Z:/picture/008/save_picture_813107.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Autodesk AutoCAD MAP 3D 2017 N009AE (x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813106.jpg" />
+  <img src="Z:/picture/008/save_picture_813106.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Autodesk AutoCAD Plant 3D 2017 I052.02.r2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813104.jpg" />
+  <img src="Z:/picture/008/save_picture_813104.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813099.jpg" />
+  <img src="Z:/picture/008/save_picture_813099.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813084.jpg" />
+  <img src="Z:/picture/008/save_picture_813084.jpg" />
 </div>
 
 

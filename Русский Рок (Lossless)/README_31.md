@@ -6,7 +6,7 @@ NRKTK - Black (2009) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437387.jpg" />
+  <img src="Z:/picture/008/save_picture_437387.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436160.jpg" />
+  <img src="Z:/picture/008/save_picture_436160.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ NRKTK - Разочарование Года (2012) [FLAC|Lossless|WEB-DL|tracks]
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435228.jpg" />
+  <img src="Z:/picture/008/save_picture_435228.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432065.jpg" />
+  <img src="Z:/picture/008/save_picture_432065.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Панк-о-мания (2000) [FLAC|lossless|image + .cue] <Punk Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427918.jpg" />
+  <img src="Z:/picture/008/save_picture_427918.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427280.jpg" />
+  <img src="Z:/picture/008/save_picture_427280.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426517.jpg" />
+  <img src="Z:/picture/005/save_picture_426517.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Metheora - Голоса (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425578.jpg" />
+  <img src="Z:/picture/008/save_picture_425578.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424077.jpg" />
+  <img src="Z:/picture/008/save_picture_424077.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422961.jpg" />
+  <img src="Z:/picture/008/save_picture_422961.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422953.jpg" />
+  <img src="Z:/picture/008/save_picture_422953.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Без меня. Трибьют Егора Летова (2019) [FLAC|Lossle
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422914.jpg" />
+  <img src="Z:/picture/008/save_picture_422914.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421450.jpg" />
+  <img src="Z:/picture/005/save_picture_421450.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421413.jpg" />
+  <img src="Z:/picture/008/save_picture_421413.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ BY CRY - BY CRY (2015) [FLAC|Lossless|tracks + .cue] <Folk, Rock>
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420102.jpg" />
+  <img src="Z:/picture/008/save_picture_420102.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417919.jpg" />
+  <img src="Z:/picture/008/save_picture_417919.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416095.jpg" />
+  <img src="Z:/picture/008/save_picture_416095.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_414743.jpg" />
+  <img src="Z:/picture/005/save_picture_414743.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413891.jpg" />
+  <img src="Z:/picture/005/save_picture_413891.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413889.jpg" />
+  <img src="Z:/picture/005/save_picture_413889.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Cyanide Grenade - 2 CD: Quintessence of Death / Kind Of Virus (2017-2020) [FLAC|
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413825.jpg" />
+  <img src="Z:/picture/008/save_picture_413825.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413677.jpg" />
+  <img src="Z:/picture/005/save_picture_413677.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413078.jpg" />
+  <img src="Z:/picture/008/save_picture_413078.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412539.jpg" />
+  <img src="Z:/picture/008/save_picture_412539.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Jointstereo - Refract The Fears (2012) [FLAC|Lossless]<Death Doom Metal / Atmosp
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_412029.jpg" />
+  <img src="Z:/picture/005/save_picture_412029.jpg" />
 </div>
 
 
@@ -771,7 +771,7 @@ Louna - Начало нового круга (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411557.jpg" />
+  <img src="Z:/picture/008/save_picture_411557.jpg" />
 </div>
 
 

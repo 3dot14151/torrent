@@ -1,3 +1,119 @@
+###  Публикация: 1322017   (452596) от 27.08.2019
+
+Charles Mingus - Mingus Ah Um (1959) 2019, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Hard Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Git It in Your Soul [7:29]
+02. Goodbye Pork Pie Hat [4:54]
+03. Boogie Stop Shuffle [3:48]
+04. Self-Portrait in Three Colors [3:12](   Читать дальше...   )Жанр: Hard Bop, Avant-Garde JazzПродолжительность: 00:46:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BFB0D6F621979A6D05D2CC957D5E729B4C8695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 705193   (452011) от 29.09.2013
+
+VA - Party Jazz (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Swing, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Armstrong & The All Stars - I Like This Kind Of Party (2:36)
+02. Louis Jordan - House Party (2:51)
+03. James Brown - Ain't Nobody Here But Us Chickens (2:58)
+04. Manny Corchado & His Orchestra feat. Tito Jimenez - Pow Wow (3:35)(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FBCB61B0B4A9604041EB2ADD859D0C778E95D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 705204   (452006) от 29.09.2013
+
+VA - Black Power (2009) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Jazz-Funk, Delta Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oscar Brown Jr.Forty - Acres And A Mule   (3:24)
+02.  Ray Charles - Lift Every Voice And Sing   (3:09)
+03.  Les McCann - Compared To What?   (2:33)
+04.  John Lee Hooker - The Motor City Is Burning   (2:51)(   Читать дальше...   )Жанр: Jazz, Jazz-Funk, Delta BluesПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2F0D486D868FCF691E77FF58342C1A582128C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569459   (451897) от 13.08.2022
+
+Jacques Loussier Trio - Plays Debussy (2000) Telarc [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clair de Lune [8:04]
+02. Prelude a l'Apres-Midi d'Un Faune, L 87 [10:48]
+03. Two Arabesques No. 1 in E [6:24]
+04. La Fille Aux Cheveux de Lin [4:44](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5F4E309B70B46750A83059569B105C5DD5B1963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943065   (451886) от 02.10.2015
 
 Rebecca Hardiman - Easy Living (2015) [FLAC|image+.cue]<Vocal Jazz>
@@ -6,7 +122,7 @@ Rebecca Hardiman - Easy Living (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451886.jpg" />
+  <img src="Z:/picture/008/save_picture_451886.jpg" />
 </div>
 
 
@@ -36,7 +152,7 @@ VA - Jazz Loves Marvin Gaye (2011) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451853.jpg" />
+  <img src="Z:/picture/008/save_picture_451853.jpg" />
 </div>
 
 
@@ -65,7 +181,7 @@ June Christy - Ballads For Night People (1959) 2005, Capitol Jazz [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451838.jpg" />
+  <img src="Z:/picture/008/save_picture_451838.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ Tianna Hall - Hit Me With A Hot Note (2015) [FLAC|Lossless]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451763.jpg" />
+  <img src="Z:/picture/008/save_picture_451763.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ VA - Feel Good Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451606.jpg" />
+  <img src="Z:/picture/008/save_picture_451606.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ Cecil L. Recchia - The Gumbo (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451384.jpg" />
+  <img src="Z:/picture/008/save_picture_451384.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Frank Strozier - Long Night (1961, 1962) 2002, Milestone[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451295.jpg" />
+  <img src="Z:/picture/008/save_picture_451295.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ Frank Rosolino - Thinking About You (1976) 2CD, 2001, Sackville Recordings[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451293.jpg" />
+  <img src="Z:/picture/008/save_picture_451293.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ Archie Shepp - Four for Trane (1964) /1997, MCA Records/[FLAC|tracks+.cue]<Avant
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449692.jpg" />
+  <img src="Z:/picture/008/save_picture_449692.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ Mildred Aubry - Caminho (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449691.jpg" />
+  <img src="Z:/picture/008/save_picture_449691.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ Monique Dimattina - Everybody Loves Somebody (2015) [FLAC|tracks]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449689.jpg" />
+  <img src="Z:/picture/008/save_picture_449689.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ Matt Bianco - Sunshine Days (The Official Greatest Hits) (2010) [FLAC|Lossless]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449574.jpg" />
+  <img src="Z:/picture/008/save_picture_449574.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ Sonny Thompson - Swings In Paris (1972) 2019, Solid Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449461.jpg" />
+  <img src="Z:/picture/008/save_picture_449461.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ VA - Bar Jazz (2006) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449376.jpg" />
+  <img src="Z:/picture/008/save_picture_449376.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ J.J. Johnson - First Place (1957) Remaster, 2015, Sony Music[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449297.jpg" />
+  <img src="Z:/picture/008/save_picture_449297.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ Masabumi Kikuchi - One Way Traveller (1982) Remaster, 2016, Sony Music[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449169.jpg" />
+  <img src="Z:/picture/008/save_picture_449169.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Frank Strozier - The Fantastic Frank Strozier (1959,1960) 1997, Vee Jay[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449168.jpg" />
+  <img src="Z:/picture/008/save_picture_449168.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ VA - Bar Jazz Vol.2 (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448921.jpg" />
+  <img src="Z:/picture/008/save_picture_448921.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ VA - Cocktail Jazz (2008) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448911.jpg" />
+  <img src="Z:/picture/008/save_picture_448911.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ Carlos Santana - Blues For Salvador (1987) [FLAC|Lossless|image + .cue] <Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448870.jpg" />
+  <img src="Z:/picture/008/save_picture_448870.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ Herbie Hancock - The Very Best Of (1991) [FLAC|Lossless|image + .cue] <Jazz-Funk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448867.jpg" />
+  <img src="Z:/picture/008/save_picture_448867.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ Edward Simon - Edward Simon (1995) Kokopelli Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448810.jpg" />
+  <img src="Z:/picture/008/save_picture_448810.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ Edward Simon - Edward Simon (1995) Kokopelli Records [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:054BB44FD665127FAFFA07B61AEA39FAA74114A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247944   (448809) от 17.09.2018
-
-Harold Lopez-Nussa - El Viaje (2016) Mack Avenue [FLAC|Lossless|tracks + .cue] <Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me voy pa' Cuba [5:37]
-02. Africa [5:09]
-03. Feria [3:57]
-04. Lobo's Cha [5:26](   Читать дальше...   )Жанр: Cuban JazzПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBF8900B49D84644FE0895A6FD82D1877A01A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247938   (448808) от 17.09.2018
-
-Don Elliott - Six Classic Albums (1954 - 1958) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448808.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Angela [2:44]
-02. Five O Clock Whistle [4:27]
-03. Everything I Love [3:12](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 03:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F1F88E8D416C2D9CF17C6F46F7C16E106807AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 38638   (448738) от 15.09.2020
-
-Felix Slovacek - A Jeho Beatles (1996) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448738.jpg" />
-</div>
-
-
-###  Подробнее
-
-Феликс Словачек - это целая планета на мировом джазовом небосклоне. Без участия этого блистательного саксофониста и кларнетиста из Праги, без его знаменитого биг-бэнда не обходится почти ни один фестиваль мирового уровня. Феликс Словачек - мультиинструменталист. Он играет на кларнете, фортепиано, контрабасе, ударных, дирижирует и сочиняет музыку, прекрасно знает (   Читать дальше...   )01. Free As A Bird  (4:06)
-02. And I Love Her  (3:18)
-03. Something  (2:48)
-04. Eleanor Rigby  (2:35)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E87BD2CA94321DF0B86E4A731EEBA23794BF16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163637   (448583) от 06.09.2017
-
-Randy Brecker & Eliane Elias - Amanda (1985) Passport Records [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Splash [05:24]
-02. Para Nada (For Nothing) [07:10]
-03. Pandamandium [06:23]
-04. Samba De Bamba [08:17](   Читать дальше...   )Жанр: World Fusion, Latin JazzПродолжительность: 00:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DC9E2FB41BCBEA4C406953CE250FDED4CA2428
 ```
 
 https://mybot314.ru/tekegram_catalog/

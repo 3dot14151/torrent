@@ -1,3 +1,57 @@
+###  Публикация: 1442763   (1036242) от 26.01.2021
+
+Ubuntu*Pack Unity 18.04 (декабрь 2020) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99B30FB270A6815E7B4470854B8355DEEEFB6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442762   (1036233) от 26.01.2021
+
+Ubuntu*Pack MATE 18.04 (декабрь 2020) [amd64, i386] 2xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+Интерфейс
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3F9058B5479F869ADB2F04C1274E559613AA73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442758   (1036212) от 26.01.2021
 
 Ubuntu*Pack KDE (Kubuntu) 18.04 (декабрь 2020) [amd64, i386] 2xDVD
@@ -6,7 +60,7 @@ Ubuntu*Pack KDE (Kubuntu) 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036212.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ Ubuntu*Pack LXDE (Lubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036209.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Ubuntu*Pack Xfce (Xubuntu) 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036201.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ Ubuntu*Pack GNOME Like Win 18.04 (декабрь 2020) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036191.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ Ubuntu 22.04.2 LTS, KDE Plasma, [amd64] 1xDVD (март 2023) [Авторска�
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033587.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032951.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032942.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ Debian Edu - Skolelinux 10.8.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032919.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ Ubuntu 20.04.2.0 Focal Fossa LTS [amd64] 2xDVD
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031711.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ WifiSlax 3.3 [Аудит безопасности, хакинг] [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031529.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ Mageia 8 [i586] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028870.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ Mageia 8 [x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028816.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ Mathlinux 2011 alpha (Дистрибутив для математиков, фи
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024795.jpg" />
 </div>
 
 
@@ -356,7 +410,7 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [amd64] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024003.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [i386] 4xDVD+1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023757.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ Parrot OS Security 4.11 [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020750.jpg" />
 </div>
 
 
@@ -437,7 +491,7 @@ SystemRescueCD 8.0.2 [x86/x64] 2xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020552.jpg" />
 </div>
 
 
@@ -463,7 +517,7 @@ Ctlos Linux Xfce 2.0.0 [x86-64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019400.jpg" />
 </div>
 
 
@@ -491,7 +545,7 @@ HP-UX 11.11 [PA-RISC, Itanium] 9xCD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018872.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ AIX 7.2 TL4 SP2 [POWER] 2xDVD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018864.jpg" />
 </div>
 
 
@@ -548,7 +602,7 @@ FreeNAS 11.3-U5 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018149.jpg" />
 </div>
 
 
@@ -574,7 +628,7 @@ XigmaNAS 12.2.0.4.8311 [x64] 1xCD+4xIMG
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017634.jpg" />
 </div>
 
 
@@ -601,7 +655,7 @@ Calculate Linux 21 [x86_64] 8xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017485.jpg" />
 </div>
 
 
@@ -627,7 +681,7 @@ FreeBSD 13.0 [i386, amd64] 2xDVD
 >>ОС *BSD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014393.jpg" />
 </div>
 
 
@@ -638,59 +692,6 @@ FreeBSD - это современная операционная система 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6E22E80A0EEED86C7B4AE79B986FB47200D985B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475224   (1012356) от 06.06.2021
-
-Debian Edu - Skolelinux 10.9.0 Buster [Linux для школы] [i386, x86-64] 2xBD, 2xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Debian Edu, также известный как Skolelinux, является дистрибутивом Linux на основе Debian, предоставляющим «из коробки» готовое окружение для развёртывания полностью готовой и настроенной школьной сети. Сразу же после установки на школьном сервере запускаются все необходимые для школьной сети службы и просто ждут пользователей, сами машины добавляются в сеть через (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9FD1D6E6ADE9387F39EC2225C32305C0520F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472137   (1011032) от 14.06.2021
-
-antiX Linux 19.4 Grup Yorum [i386, x86_64] 6xСD + 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоялся релиз легковесного Live-дистрибутива AntiX 19.4, построенного на пакетной базе Debian и ориентированного для установки на устаревшее оборудование. Выпуск основан на пакетной базе Debian 10 (Buster), но поставляется без системного менеджера systemd и с eudev вместо udev. Для инициализации на выбор могут использоваться runit или sysvinit.
-Пользовательское (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD665398394CB68AC977A19229016011415CF63
 ```
 
 https://mybot314.ru/tekegram_catalog/

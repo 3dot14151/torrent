@@ -1,3 +1,84 @@
+###  Публикация: 1676435   (156574) от 13.11.2023
+
+V-Ray 6.10.02 for Cinema 4D 2024
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое V-Ray?
+Chaos® V-Ray® — это плагин 3D-рендеринга, доступный для всех основных программ 3D-дизайна и САПР. Он прекрасно работает с 3ds Max, Cinema 4D, Houdini, Maya, Nuke, Revit, Rhino, SketchUp и Unreal.
+
+С помощью V-Ray художники и дизайнеры могут исследовать и делиться своими проектами, а также создавать высококачественные 3D-визуализации.(   Читать дальше...   )Язык интерфейса: English
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94383FFDA77AA259EA379302BF9308B27B87A66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194393   (156493) от 24.12.2017
+
+DesignToolBox 2.4.0 [Multi]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156493.jpg" />
+</div>
+
+
+###  Подробнее
+
+DesignToolBox - это набор инструментов, предназначенных для ускорения и упрощения базовых задач моделирования архитектурных, городских или внутренних сцен.Язык интерфейса: Английский, Немецкий и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:747EF60D1CAAEAE08ECA18BB05684115A5C44019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694363   (121149) от 24.01.2024
+
+Mandelbulber 2.31.0 + Standalone [Multi]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mandelbulber- экспериментальное приложение, разработанное для создания и работы с 3D - фракталами. Особенности: великолепная гибкость по работе с 3D-фракталами, работа с освещением тенями, цветом, поддержка эффектов ambient окклюзии, глубины резкости и т.д. Неограниченное разрешение изображения на 64-битных системах. Простой в использовании 3D-навигатор по фракталу. (   Читать дальше...   )Язык интерфейса: Английский и другие (русского нет)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8F5E22CC67ED9B2D09A7D8B4A3D4968842EDC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701484   (116413) от 21.02.2024
 
 Structure Studios - VIP3D Suite v3 2023.1.4 by Zmco [En]
@@ -6,7 +87,7 @@ Structure Studios - VIP3D Suite v3 2023.1.4 by Zmco [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116413.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ ZBrush 2024.0.2.22 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115123.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ SketchUp Pro 2026 26.0.429 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101634.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ Marmoset Toolbag 5.02 (5022) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101631.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ SketchUp Pro 2026 26.0.429 RePack by KpoJIuK [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101594.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ Punch! Professional Home Design Platinum 12.0.2 [English]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87704.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ Reconstruct Subdiv script for Autodesk Maya v1.3 by Nick Barre [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63516.jpg" />
 </div>
 
 
@@ -190,7 +271,7 @@ Bondware Poser Pro 13.3.686 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62904.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ Room Arranger 9.8.3.645 RePack (& Portable) by TryRooM [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61512.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ Room Arranger 9.8.3.645 (x64) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61488.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59953.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ SIGERSHADERS XS Material Presets Studio 6.2.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58386.jpg" />
 </div>
 
 
@@ -323,7 +404,7 @@ Adobe Substance 3D Designer 2024 13.1.2 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57989.jpg" />
 </div>
 
 
@@ -349,7 +430,7 @@ Marvelous Designer Personal 2024.0.125.47553 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57560.jpg" />
 </div>
 
 
@@ -375,7 +456,7 @@ CLO Standalone 7.3.240.46861 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57544.jpg" />
 </div>
 
 
@@ -401,7 +482,7 @@ Forester v1.5.5 For Cinema 4D R18-2024 Win 1.5.5 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57447.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56719.jpg" />
 </div>
 
 
@@ -456,7 +537,7 @@ Adobe Substance 3D Painter 10.0.0 build 3640 (x64) Portable by 7997 [Multi]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55912.jpg" />
 </div>
 
 
@@ -482,7 +563,7 @@ SideFX Houdini 20.0.547 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51257.jpg" />
 </div>
 
 
@@ -508,7 +589,7 @@ Arnold for Houdini 6.2.5.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51217.jpg" />
 </div>
 
 
@@ -534,7 +615,7 @@ Octane Render 2022.1 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50944.jpg" />
 </div>
 
 
@@ -560,7 +641,7 @@ Arnold Render for Cinema 4D (C4DtoA) 4.7.3 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50898.jpg" />
 </div>
 
 
@@ -589,7 +670,7 @@ Corona Renderer 12 for Cinema 4D R17-2024 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50790.jpg" />
 </div>
 
 
@@ -600,84 +681,6 @@ Corona Renderer — мощный, но простой в использован�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0A21256E53A98D05283C1A25136FA361A45B9D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738534   (49130) от 23.07.2024
-
-Adobe Substance 3D Sampler 2024 4.5.0 (x64) Portable by 7997 [Multi]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Substance 3D Sampler — это приложение нового поколения, позволяющее легко и просто создавать коллекции материалов. Можно смешивать и корректировать существующие материалы или создавать новые из фотографий и отсканированных изображений в высоком разрешении. Adobe Substance 3D Sampler лежит в основе вашего рабочего процесса 3D: без труда преобразуйте реальное (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE85682F57C5F5451661F98D0101721C51732A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738547   (49123) от 23.07.2024
-
-RizomUV Virtual Spaces / Real Space 2024.0.100 [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49123.jpg" />
-</div>
-
-
-###  Подробнее
-
-RizomUV VS - это полнофункциональное приложение UV развертки, с функциями, превосходящими большинство предложений, представленных в настоящее время на рынке. В то время как его брат, RizomUV RS ((Real Spaces), предназначен для пространства САПР, RizomUV VS (Virtual Spaces) - это приложение UV развертки для индустрии компьютерной графики, от инди-кадров до игр, в (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5237747AD7EAA472C36999A12F94BAB06D8B242
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744491   (46062) от 22.08.2024
-
-Sweet Home 3D 7.5 + Portable [Multi/Ru]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sweet Home 3D – замечательная программа для создания плана дома и моделирования дизайна вашего интерьера. Программа написана на языке Java, является мультиязычной и исходный код у нее открытый. С помощью данной программы можно сделать планировку дома, добавить мебель и многое другое на свой вкус.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF5E21C40D45BC1430BC36FC39DB222EFE315BD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

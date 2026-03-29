@@ -1,3 +1,32 @@
+###  Публикация: 1461153   (1021921) от 09.04.2021
+
+New Arcades - Returning Home (The Instrumentals) (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Movies (3:22)
+02. Into the Unknown (3:53)
+03. If Only You Could See (4:17)
+04. Further (4:00)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31181C064C353840A4FFDF906CC9E7B39D405CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461865   (1021628) от 11.04.2021
 
 Junior Boys - Collection 5 Releases (2004-2016) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, Indie Pop>
@@ -6,7 +35,7 @@ Junior Boys - Collection 5 Releases (2004-2016) [FLAC|Lossless|tracks + .cue] <E
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021628.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Первому Покорителю Космоса (To The First Conqueror 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021187.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Nickolay Fedorenko - Dance Planet (2014) [FLAC|Lossless|WEB-DL|tracks] <Spacesyn
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020678.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Synthwave Dreams, Vol. 13 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020657.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Front Line Assembly - Mechanical Soul (2021) [FLAC|Lossless|image + .cue] <Elect
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020656.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Synthwave Dreams, Vol. 14 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020653.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Electric Dark Souls - Planet 0712 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019992.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Electric Dark Souls - Heroes (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Re
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019966.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Kiez Beats: Synthwave, Vol. 8 (2021) Anniversary Edition [FLAC|Lossless|WEB
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018600.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Yello - Yello 40 Years (2021) 4CD, RM. Ltd. [FLAC|Lossless|WEB-DL|tracks] <Elect
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018370.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ New Canyons - Heavy Water (2021) [FLAC|Lossless|WEB-DL|tracks] <shoegaze, synthp
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018094.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Synthwave Dreams, Vol. 16 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014362.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Marvel83' - Atlantis (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011479.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Nutronixx - Planet Of Love (2020) [FLAC|Lossless|tracks + .cue] <Synth-pop, Euro
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009472.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Summer In Space Vol. 4 (2021) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009180.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Retro Active 1-7 (Rare & Remixed) (2004-2010) [FLAC|Lossless|image + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007120.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Space Odyssey – Trip Six: New Year's Voyage 2020 (2020) 2CD, Compilation,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004395.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ W O L F C L U B (Wolfclub) - Just Drive - Part 2 (2021) [FLAC|Lossless|WEB-DL|tr
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003857.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Iris - Siх (2019) [FLAC|Lossless|image + .cue] <SynthPop, SynthWave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002988.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002479.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Chromatics - Closer to Grey (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991871.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Space Project - The Return Of Space Raiders (2008) [FLAC|Lossless|image + .cue] 
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989054.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Alphaville - Salvation (1997) Reissue 2000, Metropolis Records [FLAC|Lossless|im
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987881.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Pet Shop Boys - Hotspot (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986975.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Depeche Mode - Happiest Boys (1999) [#BRONS 376, Unofficial Remix Compilation] [
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985891.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Depeche Mode - Happiest Boys (1999) [#BRONS 376, Unofficial Remix Compilation] [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0425DA166925F8FB9B83425CCBCD1A21C4D06692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355173   (984744) от 25.01.2020
-
-Pet Shop Boys - Hotspot (2020) 2CD Special Edition [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Will-o-the-wisp
-02. You are the one
-03. Happy people(   Читать дальше...   )Жанр: Synthpop |Продолжительность: 01:24:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D216F7121C249B88E1843E2AB1A8A903BC239D9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

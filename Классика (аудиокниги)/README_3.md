@@ -1,3 +1,82 @@
+###  Публикация: 1468113   (1017434) от 06.05.2021
+
+Александр Гладков | Давным - давно (1949) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые поставлена в 1941 году в осаждённом Ленинграде актёрами ЦТСА
+ В основе сюжета некоторые эпизоды из биографии героини Отечественной войны 1812 года Надежды Дуровой. Героиня спектакля - Шура Азарова, переодевшись мужчиной, вступила в кавалерийский полк, и бесстрашно сражалась с французами, ничем не уступая лихим и отважным гусарам и своему нареченному жениху.Жанр: Комедия, РадиоспектакльВ ролях: Николай Коновалов, Любовь Добржанская и др. актёрыПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:904D4D423FE644C85ED9606CBA579FC4CDCBB2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468147   (1017406) от 06.05.2021
+
+Вальтер Скотт | Квентин Дорвард (2006) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие романа происходит во второй половине XV века во Франции. В это непростое для страны время во главе ее стал хитрый, расчетливый и жестокий король Людовик XI. Молодой шотландец Квентин Дорвард приезжает во Францию в надежде заработать и прославиться. В пути прямодушный и благородный юноша знакомится с неким «дядюшкой Пьером», не подозревая, что это сам Людовик (   Читать дальше...   )Жанр: Классика, Исторический романПродолжительность: 20:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F028054892447C5B57DB05ABA6B70FA5B36A5603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468112   (1017389) от 06.05.2021
+
+Василий Аксенов | Остров Крым (2006) [MP3, Александр Алексеев-Валуа]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крым не был взят большевиками во время Гражданской войны, он остался независимой территорией, имя которой – Остров Крым. Фантастика!? Аксенов написал об этом в 70-х. Впервые книга увидела свет в 1981-м, и еще долго не была доступна российскому читателю. Сценарием фантастической истории интересовался Голливуд – не сложилось пока. Мы не можем сегодня посмотреть «Остров (   Читать дальше...   )Жанр: Роман, Классика, Антиутопия, Социальная фантастикаИздательство: АудиокнигаПродолжительность: 15:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6B4A0630A9ADC89259593F264F6352FA0C2A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469512   (1016438) от 12.05.2021
 
 Лев Толстой | Братья Козельцовы (1971) [MP3]
@@ -6,7 +85,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016438.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016372.jpg" />
 </div>
 
 
@@ -61,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016199.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016096.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015980.jpg" />
 </div>
 
 
@@ -141,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015961.jpg" />
 </div>
 
 
@@ -168,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015784.jpg" />
 </div>
 
 
@@ -196,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015481.jpg" />
 </div>
 
 
@@ -222,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015188.jpg" />
 </div>
 
 
@@ -248,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014606.jpg" />
 </div>
 
 
@@ -274,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014601.jpg" />
 </div>
 
 
@@ -302,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014211.jpg" />
 </div>
 
 
@@ -328,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011428.jpg" />
 </div>
 
 
@@ -356,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010245.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010245.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010240.jpg" />
 </div>
 
 
@@ -409,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010049.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009576.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009337.jpg" />
 </div>
 
 
@@ -490,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009303.jpg" />
 </div>
 
 
@@ -518,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009300.jpg" />
 </div>
 
 
@@ -544,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009295.jpg" />
 </div>
 
 
@@ -572,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008999.jpg" />
 </div>
 
 
@@ -598,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007312.jpg" />
 </div>
 
 
@@ -609,84 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F83E80756BD771CEB04F50A3AB1EB95BAC191F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483610   (1006735) от 14.07.2021
-
-Эрнест Хемингуэй | Острова в океане (2014) [MP3, Максим Пинскер]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это последний, незавершённый роман писателя бы издан уже после его смерти в 1970 году. Искренняя и правдивая книга о самоотверженности и отваге, о нравственном долге перед собой и окружающими очень отличается от всех остальных произведений Хемингуэя. Во многом - благодаря разнообразию тем и настроений, во многом - из-за неожиданного юмора. Книга свидетельствует об (   Читать дальше...   )Жанр: Зарубежная классика, Классическая проза, Литература 20 векаПеревод: Евгения Калашникова, Наталья ВолжинаПродолжительность: 15:22:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A00187710230E6E2435317A955E3B8B612928E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484103   (1006390) от 17.07.2021
-
-Этель Лилиан Войнич | Овод (2017) [MP3, Всеволод Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиоверсия бессмертного произведения, которое кроме многочисленных переизданий было трижды экранизировано, по его мотивам был поставлен балет и рок-мюзикл. Во времена Советского Союза «Овод» была настолько популярным произведением, что Н. С. Хрущёв даже выписал специальную премию автору за многократное переиздание книги. Произведение распространяли известные революционные (   Читать дальше...   )Жанр: Классическая прозаПеревод: Наталия Альбертовна ВолжинаПродолжительность: 11:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89087B024638580E344257DD239B41D3253107A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484254   (1006273) от 18.07.2021
-
-Дюма Александр | Чёрный тюльпан (2021) [MP3, Илья Акинтьев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аудиостудия «Ардис» предлагает вашему вниманию исторический роман Александра Дюма «Чёрный тюльпан», посвящённый драматическим событиям 1672 года, вошедшего в голландскую историю как «год бедствий». Французская армия вторглась на территорию Объединенных провинций, разъяренные голландцы линчуют главу своего правительства и его брата. Кроме того, страну охватила настоящая (   Читать дальше...   )Жанр: Зарубежная классика, Зарубежные приключения, Исторические приключенияПродолжительность: 07:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF219C08B055F418A7B36A1E40E06EBFD617B04F
 ```
 
 https://mybot314.ru/tekegram_catalog/

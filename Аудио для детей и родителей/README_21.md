@@ -1,3 +1,87 @@
+###  Публикация: 232078   (830883) от 04.05.2020
+
+В. Толкунова, О. Анофриев, И. Сурина - Классические колыбельные (1998) [MP3|192 kbps] <детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наступил час ночной (Й. Брамс, Г. Шерер)
+02. Баю, баюшки, баю, не ложися на краю... (Ц. Кюи, слова народные)
+03. Спи, малютка (М. Балакирев, А. Арсеньев)
+04. Вечером (музыка народная)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0254A2B967D688325B1358E5CDB1AFB3908659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380957   (829741) от 05.05.2020
+
+Морис Метерлинк | Синяя птица (2003) [MP3, Марина Толоконская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829741.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Синяя Птица» — феерия-сказка, воплотившая в себе философию мечты. Можно даже сказать, что эта драматическая притча — утопия и пророчество одновременно — символистский слепок и отголосок «Божественной комедии» Данте. Ибо, подобно великому флорентийцу, Метерлинк проводит своих героев и через Царство Мертвых, и через Страну Блаженств, через Прошлое, Настоящее и Будущее. (   Читать дальше...   )Тип издания: ОцифровкаЖанр: Детская литература, зарубежная классикaИздательство: Нигде не купишьПродолжительность: 04:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A77A911D6F120DC33FD1FF3875B7E420AF0A37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 385459   (829504) от 05.05.2020
+
+Cedarmont Kids - Toddler Tunes (1996) [MP3|192 kbps]<Классика для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829504.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Wheels On The Bus
+2. The Alphabet Song
+3. Polly, Put The Kettle On
+4. God Made Me(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A834BB1B4F37E373EFDB9D4FB57D9B534B709A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 394984   (829055) от 05.05.2020
 
 Анжелика Маркова - Музыка рождения. Слова и музыка М.Л. Лазарева (2006) [MP3|320 kbps]<Детские песенки>
@@ -6,7 +90,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829055.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828490.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828485.jpg" />
 </div>
 
 
@@ -87,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828159.jpg" />
 </div>
 
 
@@ -113,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828008.jpg" />
 </div>
 
 
@@ -139,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826763.jpg" />
 </div>
 
 
@@ -165,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826754.jpg" />
 </div>
 
 
@@ -191,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826642.jpg" />
 </div>
 
 
@@ -217,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826356.jpg" />
 </div>
 
 
@@ -243,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825300.jpg" />
 </div>
 
 
@@ -269,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825256.jpg" />
 </div>
 
 
@@ -296,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825151.jpg" />
 </div>
 
 
@@ -323,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825136.jpg" />
 </div>
 
 
@@ -350,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825035.jpg" />
 </div>
 
 
@@ -377,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824777.jpg" />
 </div>
 
 
@@ -403,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824746.jpg" />
 </div>
 
 
@@ -429,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824742.jpg" />
 </div>
 
 
@@ -456,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823486.jpg" />
 </div>
 
 
@@ -483,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823217.jpg" />
 </div>
 
 
@@ -509,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823127.jpg" />
 </div>
 
 
@@ -537,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823116.jpg" />
 </div>
 
 
@@ -564,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823014.jpg" />
 </div>
 
 
@@ -591,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821339.jpg" />
+  <img src="Z:/picture/008/save_picture_821339.jpg" />
 </div>
 
 
@@ -603,87 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36F3B10FB96253C1470BA1B3BAF40E974FED5182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116744   (821046) от 21.03.2017
-
-Чингиз Айтматов | Верблюжий глаз (1963) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первые, а потому нелегкие шаги в самостоятельной жизни делает юноша Кемель. Работая простым водовозом, он учится преодолевать трудности, отстаивать свое человеческое достоинство.Жанр: Радиоспектакль, детская литератураПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9791B24E2AF16C2CA516669A139F2B9C18AC593F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382814   (817525) от 12.05.2020
-
-Кристиан Пино | Звезда в клетке [Сборник] (1971-1990) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький мечтатель Марк. Тайком от всех он мечтает заполучить с неба сверкающую звездочку. Как-то поздним вечером Марку удалось поймать сачком одну неосторожную звездочку и посадить ее в клетку. Сколько радости доставило ему это событие! А вот звездочке пришлось несладко и она угасала. Мальчик заметил это и выпустил ее из клетки, решив, что настоящее место звезды (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 01:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED2A6DB8C4E044F5D6076A9D55CF64783007ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 315974   (817413) от 29.03.2011
-
-VA - Uinutav beebimuusika (2001) [MP3|320 kbps]<Убаюкивающие мелодии для младенцев>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817413.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Brahmsi hällilaul
-2. My Bonnie (H.J. Fuller)
-3. Rock-a-Bye-Baby (E.I. Canning)
-4. Twinklem Twinkle Little Star (Mozart)(   Читать дальше...   )Жанр: Убаюкивающие мелодии для младенцевПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA22CB051EEEF1D28CDA0AEC229AF301A70B9A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,118 @@
+###  Публикация: 1790640   (68019) от 10.04.2025
+
+VA - Espresso Pronto Napoli! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, , Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Melania - Resta cu' mme (4:57)
+02.  Chiara Civello - Tu Si Na Cosa Grande (4:26)
+03.  Francia Damore - Un Giorno Che Non Va (3:56)
+04.  Fred Buccini - Nun è peccato (3:47)(   Читать дальше...   )Жанр: Lounge, , Smooth JazzПродолжительность: 01:21:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C1BC1BBFC19FEAB0BF88B9C1CD4E4373B3FC12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790641   (68015) от 10.04.2025
+
+VA - Noches de Jazz Latino (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gato Barbieri - Europa (Earth's Cry, Heaven's Smile) (4:26)
+02.  Chucho Valdés - La Comparsa (6:57)
+03.  Candido - Mambo Inn (4:54)
+04.  Chano Dominguez - Ay Amor (4:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D66EC45F9AD3A756137120111C02DADBDCD12A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790946   (67961) от 11.04.2025
+
+Lev Kushnir Quartet - Stars Fell On Samotlor (2001) 2024, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Loves You Porgy / It Ain't Necessarily So [15:03]
+02. One Finger Snap / You Don't Know What Love Is [17:43]
+03. There Is No Greater Love [7:24]Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1B2A041353D26E20114B81F8FE07FDF1E66CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791183   (67886) от 12.04.2025
+
+Wolfgang Lohr - The Lohring 20s (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Swing (2:54)
+02. Don't Drink & Jive (2:31)
+03. Ashley Slater - Boring 20s (2:51)
+04. Think Twice (2:52)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A2F00A3E286123DF60A4A34E5E9245BC520E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791275   (67865) от 13.04.2025
 
 Scott Bradlee's Postmodern Jukebox - Puttin' On The Rizz (2024) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
@@ -6,7 +121,7 @@ Scott Bradlee's Postmodern Jukebox - Puttin' On The Rizz (2024) [FLAC|Lossless|W
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67865.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ Scott Bradlee's Postmodern Jukebox - Lounge Language Models (2025) [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67841.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Evgeny Rang Quartet - Midnight Cool (2024) Apollon & Evterpa [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67833.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Charlie Mingus - Four Classic Albums: Second Set (1956, 1957) 2CD, 2018, Avid Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67829.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ Michel Legrand - Michel Legrand By Michel Legrand (2002) Decca [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67801.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ The Oscar Peterson Quartet - City Lights: Live in Munich (1994) 2024, Mack Avenu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67778.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Frankie Campofelice - Every Night at Seven (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67773.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ VA - House Adventures 12 & 13 (Black Mighty Wax presents) (2025) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67771.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ VA - Easy Living: Spring Jazz Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67766.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ VA - Books & Coffee Vol. 3_ Jazz & Easy-Listening Mix (2025) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67765.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ Bill Evans - We Will Meet Again (1979) 2013, Warner [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67746.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Pixel Music AI - Electro Swing, but in Japanese (2025) [FLAC|Lossless|WEB-DL|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67700.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ Buddy Rich - Birdland (2015) Lightyear [FLAC|Lossless|tracks + .cue] <Big Band, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67663.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ Buddy Rich - Trios (1976, 1977) 2023, Lightyear [FLAC|Lossless|tracks + .cue] <S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67659.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ Saori Yano - Answer (2012) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67605.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ Saori Yano - Best (2007) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67595.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ Clifford Brown - Memorial Album (1953) 2003, Toshiba-EMI [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67572.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ Bucky Pizzarelli - Renaissance: A Journey From Classical To Jazz (2015) Arbors R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67566.jpg" />
 </div>
 
 
@@ -528,7 +643,7 @@ Roy Eldridge & Charlie Shavers - Swing Trumpets (2024) Circle Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67555.jpg" />
 </div>
 
 
@@ -557,7 +672,7 @@ Buddy Rich - Just In Time: The Final Recording (1986) 2CD, 2019, Gearbox Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67538.jpg" />
 </div>
 
 
@@ -585,7 +700,7 @@ Yasuhiro Kohno - Princess Sayaka (1995) ASCAP Record [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67518.jpg" />
 </div>
 
 
@@ -614,7 +729,7 @@ VA - The Best of Classic Jazz 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67487.jpg" />
 </div>
 
 
@@ -628,122 +743,6 @@ VA - The Best of Classic Jazz 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E70140EE4A6D70B3C882C23B8AA951E9B5D09F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793530   (67461) от 25.04.2025
-
-VA - Smooth Jazz Sounds 2025 (Original Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Elegant Moves - Sweet Life (Original Mix)(03:37)
-02 Carter Davids - Sunshine Feelings (Original Mix)(03:22)
-03 John Burtons - Summer Devotion (Original Mix)(04:08)
-04 Marco Bonucci - Summer Garden (Original Mix)(03:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D0E680C585491F37CD27B48757A1AFB528FE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793635   (67449) от 25.04.2025
-
-Terry Smith - Fall Out (1968) 2006, Sunbeam Records [FLAC|Lossless|tracks + .cue] <Big Band, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Minor [6:00]
-02. The Look of Love [4:48]
-03. Early Morning Groove [3:54]
-04. My Man's Gone Now [4:55](   Читать дальше...   )Жанр: Big Band, Jazz-RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5041E1390375F45692A6EBF6A6106B86D7DF367F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793835   (67435) от 26.04.2025
-
-Jeff Linsky - California (1996) Concord [FLAC|Lossless|tracks + .cue] <Latin Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crossing [5:24]
-02. Murrieta's Farewell [4:38]
-03. Samba Cruz [5:53]
-04. For Elsa [4:01](   Читать дальше...   )Жанр: Latin Jazz, Guitar JazzПродолжительность: 00:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BBF2B5C3D5184B75A16798C0AA97D0C44391ED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794007   (67377) от 27.04.2025
-
-Michel Legrand - Happy Radio Days (2004) Erato [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Stage & Screen>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tico Tico [3:42]
-02. Charmaine [2:56]
-03. The Typewriter [1:45]
-04. Where Or When [4:10](   Читать дальше...   )Жанр: Mainstream Jazz, Stage & ScreenПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA73CA8385BBD9443710488420943F6BE82066C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

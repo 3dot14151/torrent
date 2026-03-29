@@ -1,3 +1,119 @@
+###  Публикация: 1063386   (434664) от 16.10.2016
+
+Katie Melua - In Winter (2016) [FLAC|Lossless|image + .cue] <Vocal Jazz, Folk, World>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Little Swallow
+02. River
+03. Perfect World
+04. Cradle Song(   Читать дальше...   )Жанр: Vocal Jazz, Folk, WorldПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1E71C3DDD342814CAC6F506222676162FB2EDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 245017   (434446) от 13.10.2010
+
+Matt Bianco - Rico (2000) [FLAC|Lossless]<Jazz, Smooth Jazz, Bossanova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_434446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cha Cha Cuba
+02. Boogaloo
+03. Stake Out
+04. Mood Swing(   Читать дальше...   )Жанр: Jazz, Smooth Jazz, BossanovaПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410672   (434114) от 22.09.2020
+
+Evan Christopher - Delta Bound (2007) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vieux Carre [5:51]
+02. Rampart Street Ramble [5:59]
+03. Creole Belles [4:03]
+04. New Orleans [7:27](   Читать дальше...   )Жанр: SwingПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA9A6DDBD28CDBD75DF57B717AE6BC845180F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410697   (434058) от 22.09.2020
+
+Louis Armstrong - The Essence of Louis Armstrong (1991) [FLAC|Lossless|tracks + .cue] <Swing, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_434058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mack the Knife (3:24)
+02. Back O' Town Blues (3:51)
+03. Six Foot Four (3:33)
+04. All of Me (3:49)(   Читать дальше...   )Жанр: Swing, DixielandПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC78677A5BC95FBB842DFDFC9D928EA93B5DD584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410665   (434053) от 22.09.2020
 
 Louis Armstrong - Hello, Dolly! (1964) 1994, Kapp Records [FLAC|Lossless|tracks + .cue] <Swing, Dixieland>
@@ -6,7 +122,7 @@ Louis Armstrong - Hello, Dolly! (1964) 1994, Kapp Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434053.jpg" />
+  <img src="Z:/picture/008/save_picture_434053.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Art Blakey And The Jazz Messengers - In My Prime I (1978) 1989, Limited Edition 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434047.jpg" />
+  <img src="Z:/picture/008/save_picture_434047.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Oliver Gannon - Easy Sailing (2014) [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433983.jpg" />
+  <img src="Z:/picture/008/save_picture_433983.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Oliver Jones - From Lush (1995) [FLAC|image+.cue]<Big Band, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433982.jpg" />
+  <img src="Z:/picture/008/save_picture_433982.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ofer Shapiro Quintet - Two Views (2010) [FLAC|image+.cue]<Post-Bop, Ethnic Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433978.jpg" />
+  <img src="Z:/picture/008/save_picture_433978.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Odyssey Trio - Pictures (2014) [FLAC|tracks+.cue]<Contemporary Jazz, Piano>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433977.jpg" />
+  <img src="Z:/picture/008/save_picture_433977.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Odelia Dahan and the Yellow Submarine Ensemble - Solika (2008) [FLAC|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433975.jpg" />
+  <img src="Z:/picture/008/save_picture_433975.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Louis Armstrong - The Great Jazz Collection (50-e - 60-e) 1995, Scana [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433974.jpg" />
+  <img src="Z:/picture/008/save_picture_433974.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Orchestra Of Mirrored Reflections - Frequency Jazz (2015) [FLAC|Lossless|Web
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433969.jpg" />
+  <img src="Z:/picture/008/save_picture_433969.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Kenny Dorham - Eight Classic Albums (1953 - 1960) 4CD, 2012, Real Gone Jazz [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433601.jpg" />
+  <img src="Z:/picture/008/save_picture_433601.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Omnibus Wind Ensemble - Music By Frank Zappa (1995) [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433451.jpg" />
+  <img src="Z:/picture/008/save_picture_433451.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ The Flatlands Collective - Maatjes (2008) Clean Feed [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433050.jpg" />
+  <img src="Z:/picture/008/save_picture_433050.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Rembrandt Frerichs - Ordem e Progresso (2009) 2CD, Rembrandt Frerichs [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433049.jpg" />
+  <img src="Z:/picture/008/save_picture_433049.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Don Redman And His Orchestra - 1931-1933 (1990) Classics [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432944.jpg" />
+  <img src="Z:/picture/008/save_picture_432944.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Duke Ellington And His Orchestra - Such Sweet Thunder (1957) 1991, Columbia[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432854.jpg" />
+  <img src="Z:/picture/008/save_picture_432854.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Janet Klein And Her Parlor Boys - Oh! (2006) Not On Label[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432703.jpg" />
+  <img src="Z:/picture/008/save_picture_432703.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ The Grassella Oliphant Quartette - The Grass Roots (1965) Remaster, 2013, Warner
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432699.jpg" />
+  <img src="Z:/picture/008/save_picture_432699.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Made in Cuba (2000) 2CD [WavPack|Lossless|image + .cue] <Latin, Afro-Cuban 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432260.jpg" />
+  <img src="Z:/picture/008/save_picture_432260.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Evan Christopher - The Remembering Song (2010) Arbors Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431992.jpg" />
+  <img src="Z:/picture/008/save_picture_431992.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ New York Jazz Quartet - Surge (1977) 1992, Enja Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431990.jpg" />
+  <img src="Z:/picture/008/save_picture_431990.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ The Karel Roessingh Trio - Cat Fud (1995) Self-Released [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431986.jpg" />
+  <img src="Z:/picture/008/save_picture_431986.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Joe Gordon - Social Call (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431983.jpg" />
+  <img src="Z:/picture/008/save_picture_431983.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Joe Gordon - Social Call (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB0781CA81005D528207E7BB7CC26480D9886F6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410835   (431982) от 23.09.2020
-
-Slide Hampton - Drum Suite (1962) 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fump [5:21]
-02. Lover [5:10]
-03. Like Someone in Love [8:27]
-04. Gallery Groove [4:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DB3AE148C39FCBF3C4C8AF0020B7A6E46F4BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410875   (431979) от 23.09.2020
-
-New York Jazz Quartet - Blues For Sarka (1978) 1998, Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Blues [15:29]
-02. Rodney Round Robin [5:45]
-03. I'll Tell You Tonite [7:15]
-04. Blues For Sarka [7:11](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC2F96B1AA6C6B606A47FFDA1496E8B5EFF1BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410841   (431933) от 23.09.2020
-
-Nat King Cole - Spotlight on Nat King Cole (1944 - 1960) 1995, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Funny that Way [3:04]
-02. Sunday, Monday or Always [2:21]
-03. Crazy She Calls Me [2:36]
-04. Spring Is Here [2:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6744B37D9FCED6664CA5340861D7E044D19EE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410842   (431931) от 23.09.2020
-
-Louis Armstrong - Highlights from His Decca Years (1924 - 1958) 1994, 2CD, GRP [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431931.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Wild Man Blues [3:06]
-02. Weary Blues [2:48]
-03. Georgia Bo Bo [3:06](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F558B3DE88F10B62FEF638571DE2C38D06A8480
 ```
 
 https://mybot314.ru/tekegram_catalog/

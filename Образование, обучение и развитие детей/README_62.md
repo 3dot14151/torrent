@@ -1,3 +1,55 @@
+###  Публикация: 728848   (314294) от 30.11.2013
+
+Синтез | Математические формулы. Краткий справочник (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличный небольшой справочник, который всегда удобно иметь под рукой. В книге собраны самые основные формулы по элементарной и высшей математике. Материал размещен сжато и компактно. Учитывая также хорошее качество pdf файла, достаточно распечатать отдельную страницу, и шпаргалка по соответствующему разделу математики готова.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BB3A0B2DEE229C0FC2F20A117833F7F5B81F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260007   (314051) от 06.11.2018
+
+Я.И. Перельман | Живая математика. Издание 3-е (1949) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга покойного Я.И. Перельмана принадлежит к числу наиболее доступных книг из известного цикла автора, посвященного занимательным вопросам математики. Здесь собраны разнообразные математические головоломки, из которых многие облечены в форму маленьких рассказов. Для их решения достаточно знакомства с элементарной арифметикой и простейшими сведениями из геометрии. (   Читать дальше...   )Жанр: Познавательная литература, Учебное пособие, задачник, головоломкиФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E945829B5B0714029E3E19EAC69E426AC33CF152
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260002   (314049) от 06.11.2018
 
 Денис Голиков | Знакомьтесь, это Snap! (2017) [DJVU]
@@ -6,7 +58,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314049.jpg" />
+  <img src="Z:/picture/008/save_picture_314049.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313909.jpg" />
+  <img src="Z:/picture/008/save_picture_313909.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313695.jpg" />
+  <img src="Z:/picture/008/save_picture_313695.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313666.jpg" />
+  <img src="Z:/picture/008/save_picture_313666.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313650.jpg" />
+  <img src="Z:/picture/008/save_picture_313650.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313534.jpg" />
+  <img src="Z:/picture/008/save_picture_313534.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313482.jpg" />
+  <img src="Z:/picture/008/save_picture_313482.jpg" />
 </div>
 
 
@@ -192,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313406.jpg" />
+  <img src="Z:/picture/008/save_picture_313406.jpg" />
 </div>
 
 
@@ -220,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312252.jpg" />
+  <img src="Z:/picture/008/save_picture_312252.jpg" />
 </div>
 
 
@@ -246,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312249.jpg" />
+  <img src="Z:/picture/008/save_picture_312249.jpg" />
 </div>
 
 
@@ -272,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311923.jpg" />
+  <img src="Z:/picture/008/save_picture_311923.jpg" />
 </div>
 
 
@@ -298,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311063.jpg" />
+  <img src="Z:/picture/008/save_picture_311063.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311032.jpg" />
+  <img src="Z:/picture/008/save_picture_311032.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309995.jpg" />
+  <img src="Z:/picture/008/save_picture_309995.jpg" />
 </div>
 
 
@@ -381,7 +433,7 @@ English Show  | Шпаргалка по всем английским време
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309230.jpg" />
+  <img src="Z:/picture/008/save_picture_309230.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309163.jpg" />
+  <img src="Z:/picture/008/save_picture_309163.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309062.jpg" />
+  <img src="Z:/picture/008/save_picture_309062.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307837.jpg" />
+  <img src="Z:/picture/008/save_picture_307837.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307727.jpg" />
+  <img src="Z:/picture/008/save_picture_307727.jpg" />
 </div>
 
 
@@ -514,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307345.jpg" />
+  <img src="Z:/picture/008/save_picture_307345.jpg" />
 </div>
 
 
@@ -542,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307342.jpg" />
+  <img src="Z:/picture/008/save_picture_307342.jpg" />
 </div>
 
 
@@ -570,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306147.jpg" />
+  <img src="Z:/picture/008/save_picture_306147.jpg" />
 </div>
 
 
@@ -598,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306143.jpg" />
+  <img src="Z:/picture/008/save_picture_306143.jpg" />
 </div>
 
 
@@ -626,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305467.jpg" />
+  <img src="Z:/picture/008/save_picture_305467.jpg" />
 </div>
 
 
@@ -637,61 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F19C4F7F601768100D2CC9026D2FC3211C079FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261139   (304431) от 10.11.2018
-
-И.Л. Бабинская | Задачи математических олимпиад (1975) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой сборник олимпиадных задач по арифметике, алгебре, геометрии и тригонометрии, разбитый по темам, причем почти каждая тема предваряется теоретическими положениями.
-Пособие адресовано учителям математики и интересующимся математикой учащимся.Жанр: задачникФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B081435E9B383BDCD6845320015BBA7986411C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423109   (304288) от 11.11.2020
-
-Александр Тихонов | Всё для детского сада. Домашние животные (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашние животные - следующая замечательная книга из серии "Всё для детского сада". Увлекательный текст, запоминающиеся стихи, яркие рисунки непременно вызовут живой отклик, а ведь это так важно - заинтересовать детей, привить тягу к знаниям, к природе и животному миру в самом маленьком возрасте!
-
-В книге известного биолога Александра Тихонова представлены (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24F5988C1DD50F09DB86B2031C601A30AD71800
 ```
 
 https://mybot314.ru/tekegram_catalog/

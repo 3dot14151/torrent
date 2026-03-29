@@ -1,3 +1,55 @@
+###  Публикация: 199989   (782343) от 11.05.2010
+
+Страсти по насекомым 2. Насекомые на продажу / Insectia 2. Insects For Sale (2000) HDTVRip (серия 9 из 13)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снятый по строгим научным стандартам, сериал "Страсти по насекомым" один из самых лучших образовательных фильмов по энтомологии - науке, изучающей насекомых. Несомненно, заслуга в этом выдающегося популяризатора и прекрасного рассказчика Джорджа Броссара. После пятнадцатилетней карьеры нотариуса в возрасте 38 лет Броссар оставляет это скучное занятие и (   Читать дальше...   )Производство: Франция, Pixcom, Cineteve, La CinquiemeЖанр: Документальный, природа, энтомологияРежиссер: Герман ГутерресПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:22:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390917   (781837) от 18.06.2020
+
+Волшебная Исландия / Magisches Island - Leben auf der groessten Vulkaninsel der Welt (Magical Iceland) (2019) BDRemux [H.264/1080p] (3 фильма)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исландию называют страной воды и огня. Термальные источники, вулканы и ледники – это сила первозданной природы во всем ее проявлении. Здесь самый капризный климат на Земле, и все же от хрупкой красоты Исландии захватывает дух, а природа этой страны уникальна.Производство: Германия, NautilusfilmЖанр: Документальный, природа, флора, фаунаРежиссер: Ян ХафтПеревод: Одноголосый закадровый, профессиональныйСубтитры: РусскиеПродолжительность: 00:50:21+00:30:48+00:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74FBFE0FD85868D94BF66B2EE248304EE1E0D917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208449   (779917) от 22.02.2018
 
 Змеи. Тайны самых смертоносных созданий на Земле (Змея, которая проглотила свет) / Snake. That Swallowed Light (2017) HDTVRip [H.264/720p-LQ]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779917.jpg" />
+  <img src="Z:/picture/008/save_picture_779917.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_779371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_779371.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779367.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778522.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777043.jpg" />
+  <img src="Z:/picture/008/save_picture_777043.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776354.jpg" />
+  <img src="Z:/picture/008/save_picture_776354.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774728.jpg" />
+  <img src="Z:/picture/008/save_picture_774728.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774450.jpg" />
+  <img src="Z:/picture/008/save_picture_774450.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774436.jpg" />
+  <img src="Z:/picture/008/save_picture_774436.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771353.jpg" />
+  <img src="Z:/picture/008/save_picture_771353.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770557.jpg" />
+  <img src="Z:/picture/008/save_picture_770557.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ NG. Таинственные гориллы / Mystery Gorilla (2009) HDTVRip [H.
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770339.jpg" />
+  <img src="Z:/picture/008/save_picture_770339.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769187.jpg" />
+  <img src="Z:/picture/008/save_picture_769187.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768465.jpg" />
+  <img src="Z:/picture/008/save_picture_768465.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768402.jpg" />
+  <img src="Z:/picture/008/save_picture_768402.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768301.jpg" />
+  <img src="Z:/picture/008/save_picture_768301.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767680.jpg" />
+  <img src="Z:/picture/008/save_picture_767680.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767039.jpg" />
+  <img src="Z:/picture/008/save_picture_767039.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766855.jpg" />
+  <img src="Z:/picture/008/save_picture_766855.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ IMAX: Рождение океана (Происхождение океана) / 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766806.jpg" />
+  <img src="Z:/picture/008/save_picture_766806.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765651.jpg" />
+  <img src="Z:/picture/008/save_picture_765651.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764355.jpg" />
+  <img src="Z:/picture/008/save_picture_764355.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764306.jpg" />
+  <img src="Z:/picture/008/save_picture_764306.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764045.jpg" />
+  <img src="Z:/picture/008/save_picture_764045.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7E5CE94D2E4C056DFBEE2E4E6FEB0FB40C446F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521762   (763447) от 04.01.2022
-
-Пир тварей. Круговорот жизни / Banquet of the Beasts - The Cycle of Life (2021) HDTVRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что происходит, когда в чаще леса погибает животное? Наука преследует мрачную задачу: изучить во всех подробностях то, что происходит с мертвыми животными в дикой природе.Производство: Германия, Marco Polo Film AGЖанр: документальный, природа, флора, фаунаРежиссер: Даниэла Пульверер, Борис РаимПеревод: одноголосый профессиональный (Iyuno-SDI Group Russia)Субтитры: отсутствуютПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368620CFEFED4F3DCDF965BB6CC3FEBF0C072200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 722557   (762722) от 16.05.2016
-
-Изучая природу / Experience Nature (2012) BDRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французские Альпы по праву считаются одним из самых живописных уголков Земли. Авторы фильма приглашают совершить увлекательное путешествие в этот потрясающий мир зеленых склонов и величественных вершин. Любоваться разнообразными красотами уникальной местности можно бесконечно: белоснежные пики, окутанные пушистыми облаками, бурлящие реки, кристально чистые озера (   Читать дальше...   )Жанр: Документальный, научно-популярный, природаПеревод: Одноголосый закадровый (профессиональный)Язык субтитров: русскийПродолжительность: 01:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D235A891707829D11E1018E8D12258E986B7C4E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

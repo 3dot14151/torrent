@@ -6,7 +6,7 @@ Ultra Adware Killer 5.7.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850365.jpg" />
+  <img src="Z:/picture/008/save_picture_850365.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lattice 1.6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850361.jpg" />
+  <img src="Z:/picture/008/save_picture_850361.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850357.jpg" />
+  <img src="Z:/picture/008/save_picture_850357.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850314.jpg" />
+  <img src="Z:/picture/008/save_picture_850314.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Gilisoft Video Converter 9.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850310.jpg" />
+  <img src="Z:/picture/008/save_picture_850310.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Display Driver Uninstaller 15.7.5.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850309.jpg" />
+  <img src="Z:/picture/008/save_picture_850309.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Skype 7.22.0.107 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850305.jpg" />
+  <img src="Z:/picture/008/save_picture_850305.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ EagleGet 2.0.4.9 Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850304.jpg" />
+  <img src="Z:/picture/008/save_picture_850304.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ WinUtilities Professional Edition 12.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850303.jpg" />
+  <img src="Z:/picture/008/save_picture_850303.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ M4VGear DRM Media Converter 4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850297.jpg" />
+  <img src="Z:/picture/008/save_picture_850297.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ VidCoder 2.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850285.jpg" />
+  <img src="Z:/picture/008/save_picture_850285.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Sierra Cache Cleaner 11.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850280.jpg" />
+  <img src="Z:/picture/008/save_picture_850280.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850277.jpg" />
+  <img src="Z:/picture/008/save_picture_850277.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Erik Wøllo (Erik Wollo) - Different Spaces (2017) Projekt [FLAC|Lossless|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850276.jpg" />
+  <img src="Z:/picture/008/save_picture_850276.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850275.jpg" />
+  <img src="Z:/picture/008/save_picture_850275.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850274.jpg" />
+  <img src="Z:/picture/008/save_picture_850274.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Powernerd - Nerd Power (2016) [MP3|320 Kbps] <Synthwave, Synth-pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850273.jpg" />
+  <img src="Z:/picture/008/save_picture_850273.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Gilisoft Secure Disc Creator 7.1.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850270.jpg" />
+  <img src="Z:/picture/008/save_picture_850270.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Mirillis Splash 2.0.3.0 Premium RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850267.jpg" />
+  <img src="Z:/picture/008/save_picture_850267.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Skype 7.22.32.107 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850264.jpg" />
+  <img src="Z:/picture/008/save_picture_850264.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850262.jpg" />
+  <img src="Z:/picture/008/save_picture_850262.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850256.jpg" />
+  <img src="Z:/picture/008/save_picture_850256.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ AdwCleaner 5.108 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850254.jpg" />
+  <img src="Z:/picture/008/save_picture_850254.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Opera 36.0.2130.46 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850253.jpg" />
+  <img src="Z:/picture/008/save_picture_850253.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ WinUtilities Professional Edition 14.51 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850234.jpg" />
+  <img src="Z:/picture/008/save_picture_850234.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ PicturesToExe Deluxe 9.0.3 Portable by Sitego [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850233.jpg" />
+  <img src="Z:/picture/008/save_picture_850233.jpg" />
 </div>
 
 

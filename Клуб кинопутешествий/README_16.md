@@ -1,3 +1,55 @@
+###  Публикация: 1395196   (757193) от 09.07.2020
+
+Вызов вершин. Доломитовые Альпы (Италия) / Extreme Treks (2018) HDTV [H.264/1080i] (Сезон 2, эпизод 4)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757193.jpg" />
+</div>
+
+
+###  Подробнее
+
+На севере Италии, в Южных Известняковых Альпах, пролегает горный массив, который притягивает туристов своей живописной красотой и разнообразием форм. Любители активного отдыха приезжают испытать свои силы,   что бы посмотреть на красоту природы.Производство: EU, Ryan Pyle ProductionsЖанр: Документальный, познавательный, путешествияРежиссер: Райан ПилПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9A338813B300C76231304BB7557539D93F6B365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280960   (756969) от 05.02.2019
+
+Путешествие по паркам / Rock in the Park (2016-2018) HDTVRip (Сезон 4, серии 26 из 26)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествие по природным паркам. Вместе с ведущими программы мы поднимемся в горы и спустимся под воду,чтобы увидеть красоту и опасности окружающего нас мира.Производство: США, Tremendous Entertainment, The CW NetworkЖанр: Документальный, природа, путешествиеПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: серии x ~00:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE74EFA00039185DE61FB97C2883CE3199D87BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018352   (755737) от 20.05.2016
 
 Орел и решка. Шопинг (2016.05.18) SATRip (cезон 4: Роттердам)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755737.jpg" />
+  <img src="Z:/picture/008/save_picture_755737.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755583.jpg" />
+  <img src="Z:/picture/005/save_picture_755583.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755494.jpg" />
+  <img src="Z:/picture/008/save_picture_755494.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755492.jpg" />
+  <img src="Z:/picture/008/save_picture_755492.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755491.jpg" />
+  <img src="Z:/picture/008/save_picture_755491.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755490.jpg" />
+  <img src="Z:/picture/008/save_picture_755490.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755483.jpg" />
+  <img src="Z:/picture/008/save_picture_755483.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755404.jpg" />
+  <img src="Z:/picture/008/save_picture_755404.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ NG: Новый Шелковый путь / The Silk Railroad (2018) SATRip (се
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755193.jpg" />
+  <img src="Z:/picture/008/save_picture_755193.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754088.jpg" />
+  <img src="Z:/picture/008/save_picture_754088.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753744.jpg" />
+  <img src="Z:/picture/008/save_picture_753744.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753726.jpg" />
+  <img src="Z:/picture/008/save_picture_753726.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752764.jpg" />
+  <img src="Z:/picture/008/save_picture_752764.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752335.jpg" />
+  <img src="Z:/picture/008/save_picture_752335.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752279.jpg" />
+  <img src="Z:/picture/008/save_picture_752279.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752276.jpg" />
+  <img src="Z:/picture/008/save_picture_752276.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752274.jpg" />
+  <img src="Z:/picture/008/save_picture_752274.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752272.jpg" />
+  <img src="Z:/picture/008/save_picture_752272.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752210.jpg" />
+  <img src="Z:/picture/008/save_picture_752210.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752207.jpg" />
+  <img src="Z:/picture/008/save_picture_752207.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752205.jpg" />
+  <img src="Z:/picture/008/save_picture_752205.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752203.jpg" />
+  <img src="Z:/picture/008/save_picture_752203.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752202.jpg" />
+  <img src="Z:/picture/008/save_picture_752202.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752199.jpg" />
+  <img src="Z:/picture/008/save_picture_752199.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8AF20E9E5C190A511F74563324D1888143CC2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395850   (752198) от 12.07.2020
-
-Город на берегу. Танжер / Waterfront Cities Of The World (2014) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танжер – крупный портовый город в Марокко, расположенный на берегу Гибралтарского пролива. Ещё с финикийских времен этот порт является так называемыми воротами между Африкой и Европой.Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Николя Буше, Этиен ДесирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8948878F302FEDA3171AF071699FD12CFF8CF051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395834   (752194) от 12.07.2020
-
-Город на берегу. Рейкьявик / Waterfront Cities Of The World (2011) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рейкьявик (Исландия) - город на берегу Атлантики. Это самая северная в мире столица государства. Город тихий, уютный и приспособленный для комфортной жизни.Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Николя Буше, Этиен ДесирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41E7117028A26EF703635FA4C04A9CF661834DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

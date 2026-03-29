@@ -1,3 +1,29 @@
+###  Публикация: 909609   (623714) от 19.06.2015
+
+Р. Андерсон, Р.Ч. Андерсон | Парусные корабли. (2014) [FB2]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_623714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая читателю книга прослеживает историю развития парусного судна на протяжении шести тысячелетий - от древних времен до конца XIX века. В ней рассматриваются суда Древнего Египта и Крита, Финикии, Греции и Рима, а также европейские, азиатские и американские суда. Следуя главным направлениям развития северных и южных европейских судов, авторы описывают технические (   Читать дальше...   )Жанр: История, кораблестроениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC373A84146C5DD70D5D75254D0C1C76971B0F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909357   (623712) от 19.06.2015
 
 Н. И. Гродеков | Хивинский поход 1873 года. Действия кавказских отрядов (1883) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623712.jpg" />
+  <img src="Z:/picture/008/save_picture_623712.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623535.jpg" />
+  <img src="Z:/picture/008/save_picture_623535.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622164.jpg" />
+  <img src="Z:/picture/008/save_picture_622164.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622128.jpg" />
+  <img src="Z:/picture/008/save_picture_622128.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622004.jpg" />
+  <img src="Z:/picture/008/save_picture_622004.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621655.jpg" />
+  <img src="Z:/picture/008/save_picture_621655.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621346.jpg" />
+  <img src="Z:/picture/008/save_picture_621346.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621060.jpg" />
+  <img src="Z:/picture/008/save_picture_621060.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619078.jpg" />
+  <img src="Z:/picture/008/save_picture_619078.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618914.jpg" />
+  <img src="Z:/picture/008/save_picture_618914.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618911.jpg" />
+  <img src="Z:/picture/008/save_picture_618911.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618598.jpg" />
+  <img src="Z:/picture/008/save_picture_618598.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618414.jpg" />
+  <img src="Z:/picture/008/save_picture_618414.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618325.jpg" />
+  <img src="Z:/picture/008/save_picture_618325.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616958.jpg" />
+  <img src="Z:/picture/008/save_picture_616958.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616333.jpg" />
+  <img src="Z:/picture/008/save_picture_616333.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616296.jpg" />
+  <img src="Z:/picture/008/save_picture_616296.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616212.jpg" />
+  <img src="Z:/picture/008/save_picture_616212.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616183.jpg" />
+  <img src="Z:/picture/008/save_picture_616183.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616051.jpg" />
+  <img src="Z:/picture/008/save_picture_616051.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615308.jpg" />
+  <img src="Z:/picture/008/save_picture_615308.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615185.jpg" />
+  <img src="Z:/picture/008/save_picture_615185.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614389.jpg" />
+  <img src="Z:/picture/008/save_picture_614389.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613964.jpg" />
+  <img src="Z:/picture/008/save_picture_613964.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613210.jpg" />
+  <img src="Z:/picture/008/save_picture_613210.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:475DA7F14A3CD67F6273592419E318782FA699BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911592   (612569) от 25.06.2015
-
-Вера Инбер | Почти три года. Ленинградский дневник (2015) [FB2, EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вера Михайловна Инбер родилась в Одессе в 1890 году, окончила гимназию, поступила на историко-филологический факультет одесских Высших женских курсов, затем четыре года жила в Европе. В 1912 году в Париже вышел ее первый стихотворный сборник «Печальное вино», который когда-то похвалил Блок. В 1918-м Инбер читала свои стихи на московских вечерах вместе с Бальмонтом, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88600EB73E9DAA657A024457A430848AF7FA6969
 ```
 
 https://mybot314.ru/tekegram_catalog/

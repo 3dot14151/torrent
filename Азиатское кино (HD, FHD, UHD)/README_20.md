@@ -1,3 +1,107 @@
+###  Публикация: 1502566   (826603) от 15.10.2021
+
+Солнце не движется (Застывшее солнце) / Taiyo wa Ugokanai / The Sun Does Not Move (2021) BDRemux [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кадзухико Такано и Рёити Таока — агенты промышленной шпионской организации «А. Н. Цуусин». Они охотятся за инновационными технологиями использования солнечной энергии, что интересует и правительства других государств. Кадзухико предстоит столкнуться с корейским шпионом Кимом, загадочной женщиной Аяко и влиятельными мужчинами из разных стран.Производство: Япония, B2Y Productions, Gentosha, HoriproЖанр: Боевик, фантастикаРежиссер: Эйитиро ХасумиАктеры: Тацуя Фудзивара, Рёма Такэути, Хан Хё-джу, Пён Ё-хан, Хаято Итихара, Хироси Кацуно, Сэисиро Като, Сара Минами, Ёсико Миядзаки, Коити СатоПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, китайскиеПродолжительность: 01:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54998E8C1265DF2600B2DED7F4917D45EC7103AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 775295   (823344) от 09.04.2014
+
+Мастер тай-цзи / Man of Tai Chi (2013) BDRemux [1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пекин. Амбициозный юноша Чэнь Линь-Ху по кличке «Тигр» подрабатывает скромным курьером, но после работы он превращается в молодую звезду боевых искусств, постепенно оттачивая свои навыки, следуя традициям Тайцзи Лин Кун. Обучившись размеренным и мирным движениям из Тайцзи, он приспособил их для бойцовских соревнований. Донака Марк, скрываясь от гонконгской полиции, (   Читать дальше...   )Производство: Китай, Гонконг, США / Universal PicturesЖанр: БоевикРежиссер: Киану Ривз / Keanu ReevesАктеры: Тайгер Ху Чен, Киану Ривз, Карен Мок, Хай Юй, Цин Е, Саймон Ям, Ико Ювайс, Сильвио Шимач, Цзюй Кунь, Джереми МеринасПеревод: ДублированныйЯзык субтитров: Русский (forced, full), украинский, английский (full, SDH)Продолжительность: 01:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4030BFD2A0F3769BD4C84B3F6382B283BFB108CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115005   (821959) от 20.03.2017
+
+Служанка / The Handmaiden / Agasshi (2016) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_821959.jpg" />
+</div>
+
+
+###  Подробнее
+
+30-е годы прошлого столетия. Корея, оккупированная японцами. Мошенник по прозвищу Граф предлагает бедной девушке Сук-хи поучаствовать в деле, обещая солидный заработок. План афериста следующий. В огромном поместье, не общаясь с внешним миром, живет богатая японка Хидеко. Однако ее дядя, контролирующий каждый шаг девушки, изредка устраивает приемы для местных аристократов. (   Читать дальше...   )Производство: Южная КореяЖанр: Драма, Мелодрама, Детектив, ТриллерРежиссер: Пак Чхан-укАктеры: Ким Мин-хи, Ким Тхэ-ри, Ха Джон-у, Чо Джин-ун, Ким Хэ-сук, Мун Со-ри, Ли Ён-нё, Ли Дон-хви, Ю Мин-чхэ, Чо Ын-хёнПеревод: Дублированный (iTunes Russia)Субтитры: Русские, английские, китайскиеПродолжительность: 02:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0B07B9F3A152E81F6BF60937E4296CBD7268BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503339   (821227) от 18.10.2021
+
+Ушедшие / Okuribito / Departures (2008) BDRemux [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_821227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Виолончелист Дайго остался без работы. Вместе с женой он перебирается из мегаполиса в родной провинциальный городок, где ему предложили работу в некоем агентстве, как будто туристическом. Однако оказывается, что это - похоронное бюро, и Дайго предстоит обмывать тела покойников, наряжать их и готовить к переходу в лучший мир.Производство: Япония / Amuse Soft, Asahi Shimbun, DentsuЖанр: Драма, музыкаРежиссер: Ёдзиро ТакитаАктеры: Масахиро Мотоки, Цутому Ямадзаки, Рёко Хиросуэ, Кадзуко Ёсиюки, Кимико Ё, Такаси Сасано, Тэтта Сугимото, Тору Минэгиси, Тацуо Ямада, Юкари ТатибанаПеревод: Многоголосый профессиональный (Селена Интернешнл)Язык озвучки: Русский, японскийСубтитры: Русские (Full), английские (pgs)Продолжительность: 02:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DF2EE0172070EE04FF10AA129BA74099B90098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007407   (820649) от 15.04.2016
 
 Ферзь / Wazir (2016) BDRemux [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820649.jpg" />
+  <img src="Z:/picture/008/save_picture_820649.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820145.jpg" />
+  <img src="Z:/picture/008/save_picture_820145.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819392.jpg" />
+  <img src="Z:/picture/008/save_picture_819392.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817122.jpg" />
+  <img src="Z:/picture/008/save_picture_817122.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815854.jpg" />
+  <img src="Z:/picture/008/save_picture_815854.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814003.jpg" />
+  <img src="Z:/picture/008/save_picture_814003.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813698.jpg" />
+  <img src="Z:/picture/008/save_picture_813698.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813555.jpg" />
+  <img src="Z:/picture/008/save_picture_813555.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813540.jpg" />
+  <img src="Z:/picture/008/save_picture_813540.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812954.jpg" />
+  <img src="Z:/picture/008/save_picture_812954.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812211.jpg" />
+  <img src="Z:/picture/008/save_picture_812211.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811535.jpg" />
+  <img src="Z:/picture/008/save_picture_811535.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810849.jpg" />
+  <img src="Z:/picture/008/save_picture_810849.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810066.jpg" />
+  <img src="Z:/picture/008/save_picture_810066.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_810011.jpg" />
+  <img src="Z:/picture/005/save_picture_810011.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809105.jpg" />
+  <img src="Z:/picture/008/save_picture_809105.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808976.jpg" />
+  <img src="Z:/picture/008/save_picture_808976.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808209.jpg" />
+  <img src="Z:/picture/008/save_picture_808209.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807987.jpg" />
+  <img src="Z:/picture/008/save_picture_807987.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807428.jpg" />
+  <img src="Z:/picture/008/save_picture_807428.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806384.jpg" />
+  <img src="Z:/picture/008/save_picture_806384.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804265.jpg" />
+  <img src="Z:/picture/008/save_picture_804265.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D91EF66F5C0702329BF993D197B4702E304A82C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120448   (803020) от 30.03.2017
-
-Музей / Myujiamu (Museum) (2016) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Происходит серия убийств, причём именно в те дни, когда идёт дождь. Детектив Хисаси Савамура пытается поймать убийцу и вскоре понимает, что следующими жертвами будут его жена и сын. Подозреваемый — человек в маске лягушки.Производство: Япония, Twins JapanЖанр: Ужасы, Триллер, КриминалРежиссер: Кэйдзи ОтомоАктеры: Сюн Огури, Сюхэй Номура, Матико Оно, Томоми Маруяма, Масато Ибу, Томоко Табата, Микако Итикава, Нао ОмориПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Субтитры: Китайские (отключаемые)Продолжительность: 02:12:02Реклама: Отсутствует
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB5C2C82EBC8EE8AEC22E81B069B897743C4EA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199067   (802368) от 14.01.2018
-
-Золотой монах / Xiang mo zhuan (2017) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает историю монаха, который внезапно понимает, что он реинкарнация волшебного духа, скинутого с небес, и теперь намеревается найти свою истинную фею любви.Производство: Китай / Asian DragonЖанр: Комедия, боевик, приключения, фантастика, фэнтезиРежиссер: Билли Чун, Вон ЦзинАктеры: Кай Чжэн, Китти Чжан, Ло Ка-Ин, Мао Цзюньцзе ...Перевод: Любительский двухголосый (East Dream)Субтитры: Китайские (хардсаб)Продолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB21846DCDA476E302CB503C09B75B82C509F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199138   (801407) от 15.01.2018
-
-Мошенники / The Swindlers / Kkun (2017) BDRip [H.264/720p-LQ] [MVO] [PR]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько лет назад мошенник международного масштаба Чан Ду-чхиль провернул финансовую афёру, в результате которой множество семей лишилось последних сбережений. По стране прокатилась волна самоубийств — многие потеряли не только деньги, но и близких людей. Сам же Чан Ду-чхиль умудрился сбежать из страны по поддельным документам, которые изготовил Хван Ю-сок, позже (   Читать дальше...   )Производство: Южная Корея / Showbox EntertainmentЖанр: Драма, криминалРежиссер: Чан Чхан-вонАктеры: Хён Бин, Ю Джи-тхэ, Пэ Сон-у, Пак Сон-ун, Нана, Ан Сэ-ха, Чхве Док-мун, Чхве Иль-хва, Хо Сон-тхэ, Ём Дон-хонПеревод: Любительский двухголосый (RealFake)Субтитры: ОтсутствуютПродолжительность: 01:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29ADB95EE063CEF4FB60511D3CE61DAB27706E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506122   (801392) от 29.10.2021
-
-Зомби одним планом! / Kamera wo Tomeru na! / One Cut of the Dead (2017) BDRip [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съемочная группа приехала на заброшенный промышленный объект времен Второй Мировой войны, чтобы снимать фильм ужасов про зомби. Никто из участников съемочного процесса не подозревал, что это не просто заброшенная фильтровальная станция, а место, где в 40-ые годы ставились жестокие эксперименты над людьми. И плоды тех экспериментов до сих пор живы и бродят по лабиринтам (   Читать дальше...   )Производство: Япония / ENBU Seminar, PanpokopinaЖанр: Комедия, ужасыРежиссер: Синъитиро УэдаАктеры: Такаюки Хамацу, Юдзуки Акияма, Харуми Сюхама, Кадзуаки Нагая, Хироси Итихара, Мао, Сакина Ивадзи, Такуя Фудзимура, Аяна Года, Манабу ХосоиПеревод: Профессиональный многоголосый (Jaskier)Субтитры: Русские, английскиеПродолжительность: 01:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0584A12E420BC4CB78797D2FCD8BDB7543E42DA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

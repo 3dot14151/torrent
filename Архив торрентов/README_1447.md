@@ -6,7 +6,7 @@ OCCT 6.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724986.jpg" />
+  <img src="Z:/picture/008/save_picture_724986.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Internet Download Manager 6.38 Build 2 Final + Retail + Themes
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724982.jpg" />
+  <img src="Z:/picture/008/save_picture_724982.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Waterfox Current / Classic 2020.07.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724981.jpg" />
+  <img src="Z:/picture/008/save_picture_724981.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724978.jpg" />
+  <img src="Z:/picture/008/save_picture_724978.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724976.jpg" />
+  <img src="Z:/picture/008/save_picture_724976.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ FSMonitor 1.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724971.jpg" />
+  <img src="Z:/picture/008/save_picture_724971.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Ubuntu 15.04 Vivid Vervet [i386, amd64] 2xDVD, 2xCD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724970.jpg" />
+  <img src="Z:/picture/008/save_picture_724970.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ Microsoft Windows 10 Single Language Technical Preview 10.0.10061 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724967.jpg" />
+  <img src="Z:/picture/008/save_picture_724967.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ Apple iWork: Keynote 6.5.3, Numbers 3.5.3 & Pages 5.5.3 (upd 21.04.2015) [Multi/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724954.jpg" />
+  <img src="Z:/picture/008/save_picture_724954.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10061 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724953.jpg" />
+  <img src="Z:/picture/008/save_picture_724953.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Microsoft Windows 10 Enterprise Technical Preview 10.0.10061 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724952.jpg" />
+  <img src="Z:/picture/008/save_picture_724952.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724917.jpg" />
+  <img src="Z:/picture/008/save_picture_724917.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - VS (mixed by Mike Koglin) (2006) [MP3|320 Kbps] <Trance, Progressive Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724915.jpg" />
+  <img src="Z:/picture/008/save_picture_724915.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724913.jpg" />
+  <img src="Z:/picture/008/save_picture_724913.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Mario Piu - Vision (2003) 2CD [MP3|320 Kbps] <Trance, Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724912.jpg" />
+  <img src="Z:/picture/008/save_picture_724912.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ MacFamilyTree 8 v8.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724907.jpg" />
+  <img src="Z:/picture/008/save_picture_724907.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Media Player Classic Home Cinema 1.7.16 RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724902.jpg" />
+  <img src="Z:/picture/008/save_picture_724902.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Soft Organizer Pro 8.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724855.jpg" />
+  <img src="Z:/picture/008/save_picture_724855.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ File Juicer 4.57 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724845.jpg" />
+  <img src="Z:/picture/008/save_picture_724845.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724842.jpg" />
+  <img src="Z:/picture/008/save_picture_724842.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ NCH Crescendo Masters Pro 8.02 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724825.jpg" />
+  <img src="Z:/picture/008/save_picture_724825.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ NCH DreamPlan Plus 6.78 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724823.jpg" />
+  <img src="Z:/picture/008/save_picture_724823.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ SILKYPIX Developer Studio Pro 10E v10.0.18.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724819.jpg" />
+  <img src="Z:/picture/008/save_picture_724819.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ TinkerTool System 7 v7.85 + TinkerTool 8.3  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724818.jpg" />
+  <img src="Z:/picture/008/save_picture_724818.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724815.jpg" />
+  <img src="Z:/picture/008/save_picture_724815.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724814.jpg" />
+  <img src="Z:/picture/008/save_picture_724814.jpg" />
 </div>
 
 

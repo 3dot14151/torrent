@@ -6,7 +6,7 @@
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644556.jpg" />
+  <img src="Z:/picture/008/save_picture_644556.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642746.jpg" />
+  <img src="Z:/picture/008/save_picture_642746.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642434.jpg" />
+  <img src="Z:/picture/008/save_picture_642434.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ PAW Patrol The Movie: Adventure City Calls / Щенячий патруль в к
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642255.jpg" />
+  <img src="Z:/picture/008/save_picture_642255.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Cocoto Festival [Wii] [PAL] [Multi 5] (2009)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642118.jpg" />
+  <img src="Z:/picture/008/save_picture_642118.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ The Tomb Raider Trilogy (2011) [PS3] [EUR] 3.56 [Cobra ODE / E3 ODE PRO ISO] [Un
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640492.jpg" />
+  <img src="Z:/picture/008/save_picture_640492.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Cocoto Kart Racer [Wii] [PAL] [Multi 5] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640230.jpg" />
+  <img src="Z:/picture/008/save_picture_640230.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Crash Time 5: Undercover (2013) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [U
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639476.jpg" />
+  <img src="Z:/picture/008/save_picture_639476.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Death Track: Resurrection (2010) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639473.jpg" />
+  <img src="Z:/picture/008/save_picture_639473.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Tank Battles (2009) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.0.1] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639370.jpg" />
+  <img src="Z:/picture/008/save_picture_639370.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Saints Row IV + DLC (2013) [Xbox360] [Region Free] [Freeboot] [Repack] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639171.jpg" />
+  <img src="Z:/picture/008/save_picture_639171.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 >>Ромы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638438.jpg" />
+  <img src="Z:/picture/008/save_picture_638438.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ HISTORY Great Battles Medieval (2011) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO I
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637651.jpg" />
+  <img src="Z:/picture/008/save_picture_637651.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Mouse Craft (2014) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.0.1] [
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637644.jpg" />
+  <img src="Z:/picture/008/save_picture_637644.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Onechanbara Z: Kagura with NoNoNo! (2013) [PS3] [JAP] 3.55 [Cobra ODE / E3 ODE P
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637643.jpg" />
+  <img src="Z:/picture/008/save_picture_637643.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ El Shaddai: Ascension of the Metatron (2011) [PS3] [USA] 3.56 [Cobra ODE / E3 OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637641.jpg" />
+  <img src="Z:/picture/008/save_picture_637641.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Bloodborne: Game of the Year Edition (2015) [PS4] [EUR] 4.05 [HEN] [Repack / 1.0
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637083.jpg" />
+  <img src="Z:/picture/008/save_picture_637083.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637014.jpg" />
+  <img src="Z:/picture/008/save_picture_637014.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Cars 3: Driven to Win (2017) [PS3] [USA] 4.21 [Repack] [Multi]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636668.jpg" />
+  <img src="Z:/picture/008/save_picture_636668.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Black (2006) [Xbox] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634828.jpg" />
+  <img src="Z:/picture/008/save_picture_634828.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Baldur's Gate: Dark Alliance (2002) [Xbox] [RegionFree] FreeBoot [Unofficial] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633220.jpg" />
+  <img src="Z:/picture/008/save_picture_633220.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Dreamfall: The Longest Journey (2006) [Xbox] [RegionFree] FreeBoot [Unofficial] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633114.jpg" />
+  <img src="Z:/picture/008/save_picture_633114.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Sid Meier's Pirates! (2005) [Xbox] [RegionFree] FreeBoot [Unofficial] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633109.jpg" />
+  <img src="Z:/picture/008/save_picture_633109.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Spider-Man 3 [PSP] [ENG] (2007)
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630349.jpg" />
+  <img src="Z:/picture/008/save_picture_630349.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Street Fighter III: Third Strike Online Edition (2011) [PS3] [EUR] 4.21 [Repack]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626076.jpg" />
+  <img src="Z:/picture/008/save_picture_626076.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ LEGO Harry Potter: Years 5–7 (2011) [PS3] [EUR] 3.55 [Unofficial] [Ru/En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625918.jpg" />
+  <img src="Z:/picture/008/save_picture_625918.jpg" />
 </div>
 
 

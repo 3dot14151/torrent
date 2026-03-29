@@ -1,3 +1,148 @@
+###  Публикация: 1412406   (418365) от 29.09.2020
+
+Big Thinkers - A New Beginning (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farm 03:45
+02. Everybody 04:53
+03. Life Games 07:26
+04. Madney 04:47(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43251F2F198B44969E0656B768F25EF7407C84C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412402   (418360) от 29.09.2020
+
+Built For The Future - Brave New World (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_418360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brave New World (11:51)
+02. Breathe (5:34)
+03. The Sheltering Sky (7:55)
+04. Zenith (7:15)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088CE15DE474998917FCDDFC50DC7C819922D516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251231   (417935) от 01.10.2018
+
+Bubu - El Eco del Sol (2018) (2018) [FLAC|Lossless|image + .cue] <Progressive rock, Eclectic prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Resplandor [03:49]
+02. El Eco del Sol [09:05]
+03. Ariel [03:45]
+04. Omer [06:49](   Читать дальше...   )Жанр: Progressive rock, Eclectic progПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A86CFD181E78FDEAF7E32222F7A12ED110D96A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947776   (417721) от 17.10.2015
+
+VA - The Very Best of Power Ballads (2005) 3CD [FLAC|track+.cue]<Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это один из первых релизов в мр3, скачанных мною в клубе и заслушанных до дыр. Каждый раз при публикации сборников The Very Best сразу возникают споры о том бэст это или не бэст. Надеюсь, что в этом случае Вы просто послушаете эти треки и настроение у Вас точно будет - БЭСТ!CD1:
+01. Queen - We Are the Champions  (3:01)
+02. Foreigner - I Want to Know What Love Is  (4:53)
+03. Phil Collins - In the Air Tonight  (5:29)(   Читать дальше...   )Тип издания: 3CD Box-SetЖанр: Rock, Hard RockПродолжительность: 03:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F4C2C96DBE9EF71F936A63106AEF0D2C6D3C82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065553   (417212) от 24.10.2016
+
+Imperial State Electric - All Through The Night (2016) [FLAC|Lossless|image + .cue] <Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_417212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Empire Of Fire    (03:28) 
+  02. All Through The Night    (02:36) 
+  03. Remove Your Doubt    (03:46) 
+  04. Break It Down    (03:14) (   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112C9FFD567931EC5C66D1FB69AC98A8FF1418E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065909   (416823) от 24.10.2016
 
 David Crosby - Lighthouse (2016) [FLAC|Lossless|image + .cue] <Acoustic, Rock, Singer-Songwriter>
@@ -6,7 +151,7 @@ David Crosby - Lighthouse (2016) [FLAC|Lossless|image + .cue] <Acoustic, Rock, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416823.jpg" />
+  <img src="Z:/picture/008/save_picture_416823.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - The Many Faces Of The Beatles (2016) 3CD Box Set [FLAC|Lossless|image + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416334.jpg" />
+  <img src="Z:/picture/008/save_picture_416334.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Fatal Fusion - The Ancient Tale (2013) [FLAC|Lossless|tracks + .cue] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416187.jpg" />
+  <img src="Z:/picture/008/save_picture_416187.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Karnataka - Secrets Of Angels (2015) [FLAC|tracks + .cue]<Progressive Rock, Symp
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415986.jpg" />
+  <img src="Z:/picture/008/save_picture_415986.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Ram Jam - Greatest Hits (2020) [FLAC|Lossless|image + .cue] <Rock, Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415887.jpg" />
+  <img src="Z:/picture/008/save_picture_415887.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Big Day Out: Discrespective 1992-1997 / 1999-2002 (2002) [FLAC|Lossless|WEB
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414946.jpg" />
+  <img src="Z:/picture/008/save_picture_414946.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Tim Buckley - Greetings From L.A. (1972)[FLAC|Lossless|WEB-DL|tracks] <Funk, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414795.jpg" />
+  <img src="Z:/picture/008/save_picture_414795.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Omega - Gammapolis & Live At Kisstadion (1979) 2xCD, Compilation, Reissue, 2022,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414751.jpg" />
+  <img src="Z:/picture/008/save_picture_414751.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Pixies - Head Carrier (2016) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Indie-Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414577.jpg" />
+  <img src="Z:/picture/008/save_picture_414577.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ The Hu - The Gereg (2019) [FLAC|Lossless|Web-DL|tracks] <Rock, Folk, Heavy Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414199.jpg" />
+  <img src="Z:/picture/008/save_picture_414199.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Taxxi - Collection (2020) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413993.jpg" />
+  <img src="Z:/picture/008/save_picture_413993.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - Pure... Rock 'n' Roll (2013) Box Set, 4 CD [FLAC|Lossless]<Rock 'n' Roll, O
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413760.jpg" />
+  <img src="Z:/picture/008/save_picture_413760.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Bryan Adams - Get Up (2015) [FLAC|image+.cue]<Pop Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413751.jpg" />
+  <img src="Z:/picture/008/save_picture_413751.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Bon Jovi - 2020 (2020) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413478.jpg" />
+  <img src="Z:/picture/008/save_picture_413478.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ Robert Plant - Digging Deep: Subterranea (2020) [FLAC|Lossless|WEB-DL|tracks] <C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413475.jpg" />
+  <img src="Z:/picture/008/save_picture_413475.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Sounds Of The Eighties - The Mid-'80s (1996) [FLAC|Lossless|tracks + .cue] <Vari
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412731.jpg" />
+  <img src="Z:/picture/008/save_picture_412731.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Last Train - The Big Picture (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, G
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412593.jpg" />
+  <img src="Z:/picture/008/save_picture_412593.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Dan McCafferty (Ex. Nazareth) - Last Testament (2019) [FLAC|Lossless|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412102.jpg" />
+  <img src="Z:/picture/008/save_picture_412102.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ Marco Bernard and Kimmo Porsti (The Samurai Of Prog ) - Gulliver (2020) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412020.jpg" />
+  <img src="Z:/picture/008/save_picture_412020.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Marco Bernard and Kimmo Porsti (The Samurai Of Prog) - La Tierra (2020) [FLAC|Lo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412019.jpg" />
+  <img src="Z:/picture/008/save_picture_412019.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ The Samurai Of Prog - The Demise Of The Third King's Empire (2020) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411924.jpg" />
+  <img src="Z:/picture/008/save_picture_411924.jpg" />
 </div>
 
 
@@ -598,151 +743,6 @@ The Samurai Of Prog - The Demise Of The Third King's Empire (2020) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49F593118E8717D7CD8B21044815DB4E2E52DC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413140   (411742) от 02.10.2020
-
-Elvis Presley - Elvis His First Christmas Album Now in Stereo (2020) New Mono to Stereo Mixes [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411742.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:25] 01. Santa Claus Is Back in Town (Mono to Stereo Mix)
-[02:26] 02. White Christmas (Mono to Stereo Mix)
-[01:58] 03. Here Comes Santa Claus (Right down Santa Claus Lane) (Mono to Stereo Mix)
-[01:58] 04. I'll Be Home for Christmas (Mono to Stereo Mix)(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7922AABC3AA0F6AA2EC0F4059FD85510DFB64211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413077   (411730) от 02.10.2020
-
-Roger Waters - Us + Them (2020) Live [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411730.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Intro
-02. Speak to Me
-03. Breathe(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAC44D42649A934BE9716353B3BE69FED1E5A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948537   (411386) от 20.10.2015
-
-Leo Sayer - Restless Years (2015) [FLAC|Lossless]<Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Year
-02. Competing With A Dj
-03. How Did We Get So Old
-04. Revolution Of The Heart(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791CE2C003C80CB38C3070817FA4ADBB99CF5CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252047   (411302) от 04.10.2018
-
-Bayside - Acoustic Volume 2 (2018) [FLAC|Lossless|tracks + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sick Sick Sick
-02. Mary
-03. It Don't Exist
-04. Duality(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F1733A1157F27FC528A40698DC30A9BDDC159C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168048   (410502) от 23.09.2017
-
-Eloy - The Vision, The Sword & The Pyre (Part I) (2017) [FLAC|Lossless|image + .cue] <Prog Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной концептуальный альбом немецких ветеранов прогрессива – группы Eloy, вышедший после длительного перерыва. История Жанны Д’Арк, которую Франк Борнеманн излагает своей музыкой на двух дисках: первая часть «Видения, меча и костра» вышла в 2017 году, а вторая ожидается в 2018. Кроме базового квинтета музыкантов группы, Франк привлек множество вокалистов, пару (   Читать дальше...   )01. The age of the Hundred Years' War (4:16)
- 02. Domremy on the 6th of January 1412 (1:47)
- 03. Early signs ... from a longed for miracle (4:13)
- 04. Autumn 1428 at home (0:55)(   Читать дальше...   )Жанр: Prog Rock, Space RockПродолжительность: 01:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69A520ECAF9B73388D3F27435F9517A37DC63BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

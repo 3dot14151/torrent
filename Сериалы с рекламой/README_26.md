@@ -1,3 +1,30 @@
+###  Публикация: 1419622   (337234) от 29.10.2020
+
+Алекс Уго / Alex Hugo (2014-2017) WEB-DLRip (сезон 1-3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адаптация единственного романа американского поэта Ричарда Хьюго / Richard Hugo "Смерть и прекрасная жизнь / Death and the Good Life" (1981).
+Алекс Юго, бывший марсельский полицейский, решил покинуть город насилия, которому устал противостоять, и, движимый жаждой свободы, поселился в горной деревне, где устроился в местной жандармерии и наслаждался покоем, (   Читать дальше...   )Производство: Франция / France 2 (FR2)Жанр: драма, криминал, детектив, приключенияРежиссер: Пьер Изуар, Оливье Ланглуа, Muriel AubinАктеры: Самюэль Ле Бьян, Лионель Астье, Майкл Фетусси, Фабьен Баиарди, Мэрилин Канто, Каролин Баер, Gilles Spadari, Луиза Шпиндель, Франк Адриен, Фридерик Ашар и д.р.Перевод: Двуголосый закадровый (ViruseProject)Субтитры: Русские (отдельно)Продолжительность: ~01:30:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06478F047221DE00D98C0E464302332818EBE7BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419999   (335335) от 30.10.2020
 
 Темное желание / Dark Desire (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-18 из 18) ViruseProject [AD]
@@ -6,7 +33,7 @@
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335335.jpg" />
+  <img src="Z:/picture/008/save_picture_335335.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335321.jpg" />
+  <img src="Z:/picture/008/save_picture_335321.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333664.jpg" />
+  <img src="Z:/picture/008/save_picture_333664.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333657.jpg" />
+  <img src="Z:/picture/008/save_picture_333657.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333264.jpg" />
+  <img src="Z:/picture/008/save_picture_333264.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332536.jpg" />
+  <img src="Z:/picture/008/save_picture_332536.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332479.jpg" />
+  <img src="Z:/picture/008/save_picture_332479.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322375.jpg" />
+  <img src="Z:/picture/008/save_picture_322375.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322015.jpg" />
+  <img src="Z:/picture/008/save_picture_322015.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321895.jpg" />
+  <img src="Z:/picture/008/save_picture_321895.jpg" />
 </div>
 
 
@@ -266,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321892.jpg" />
+  <img src="Z:/picture/008/save_picture_321892.jpg" />
 </div>
 
 
@@ -292,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321888.jpg" />
+  <img src="Z:/picture/008/save_picture_321888.jpg" />
 </div>
 
 
@@ -318,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321543.jpg" />
+  <img src="Z:/picture/008/save_picture_321543.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320762.jpg" />
+  <img src="Z:/picture/008/save_picture_320762.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319797.jpg" />
+  <img src="Z:/picture/008/save_picture_319797.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319701.jpg" />
+  <img src="Z:/picture/008/save_picture_319701.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319612.jpg" />
+  <img src="Z:/picture/008/save_picture_319612.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319550.jpg" />
+  <img src="Z:/picture/008/save_picture_319550.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319547.jpg" />
+  <img src="Z:/picture/008/save_picture_319547.jpg" />
 </div>
 
 
@@ -502,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319538.jpg" />
+  <img src="Z:/picture/008/save_picture_319538.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318067.jpg" />
+  <img src="Z:/picture/008/save_picture_318067.jpg" />
 </div>
 
 
@@ -554,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317938.jpg" />
+  <img src="Z:/picture/008/save_picture_317938.jpg" />
 </div>
 
 
@@ -580,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317404.jpg" />
+  <img src="Z:/picture/008/save_picture_317404.jpg" />
 </div>
 
 
@@ -606,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317294.jpg" />
+  <img src="Z:/picture/008/save_picture_317294.jpg" />
 </div>
 
 
@@ -632,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316430.jpg" />
+  <img src="Z:/picture/008/save_picture_316430.jpg" />
 </div>
 
 
@@ -644,33 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D4BB8E6B08449B0BE3E99C8C3B782FCD369CEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582004   (316428) от 12.10.2022
-
-Монтеросси / Monterossi - La serie (2022) WEB-DLRip (сезон 1, серии 1-6 из 6) ViruseProject [AD]
-
->>Зарубежные сериалы
->>Сериалы с рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карло Монтеросси (Фабрицио Бентивольо), знаменитый и талантливый сценарист очень популярного ТВ-шоу. Одним поздним вечером Монтеросси, попивая в одиночестве любимый дорогущий виски, открывает дверь доставщику, который тычет ему в лицо дулом пистолета… А спасает его от смерти всё тот же бокал любимого виски.
-Теперь Монтеросси решает вести своё расследование параллельно (   Читать дальше...   )Производство: Италия / Amazon Studios, PalomarЖанр: триллер, криминалРежиссер: Роан ДжонсонАктеры: Фабрицио Бентивольо, Диего Рибон, Luca Nucera, Донателла Финокьяро, Мартина Саммарко, Silvia Briozzo, Марина Оккьонеро, Мария Пайато, Карла Синьорис, Джузеппе Ипполити и др.Перевод: Двуголосый профессиональный (ViruseProject)Язык озвучки: Русский, итальянскийСубтитры: Русские, английские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E49B5E9E439B74BFF84824A7EA72F994E190FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

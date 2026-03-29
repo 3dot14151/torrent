@@ -1,3 +1,29 @@
+###  Публикация: 517142   (648917) от 30.06.2012
+
+[Программа] (Android 1.6+) Startup Manager (Full Version) 3.7 - Запуск приложений и сервисов
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_648917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Управление запуском приложений и сервисов. На прошивках с рутом не просто убивает приложения при загрузке, но отключает их. Данный вариант модифицирован, и кроме основных благ дает возможность убрать из загрузки сам Startup Manager.Разработчик: IMOBLIFE Co. LtdЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517287   (648858) от 30.06.2012
 
 [Игра] (Android 2.1+) Рыбное место 1.4.4
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_648858.jpg" />
+  <img src="Z:/picture/005/save_picture_648858.jpg" />
 </div>
 
 
@@ -38,7 +64,7 @@ Calls Blacklist PRO 1.05 [Программа] (Android 2.1+) - Блокиров�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_648801.jpg" />
+  <img src="Z:/picture/005/save_picture_648801.jpg" />
 </div>
 
 
@@ -64,7 +90,7 @@ Sniffi 1.5.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647549.jpg" />
+  <img src="Z:/picture/008/save_picture_647549.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ Rotate The Cube 1.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647539.jpg" />
+  <img src="Z:/picture/008/save_picture_647539.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ FRONTLINE COMMANDO:WW2 1.0.2.1 + КЭШ [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647438.jpg" />
+  <img src="Z:/picture/008/save_picture_647438.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ MEGA 2.5.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647434.jpg" />
+  <img src="Z:/picture/008/save_picture_647434.jpg" />
 </div>
 
 
@@ -171,7 +197,7 @@ Kung Fury: Street Rage 15 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647217.jpg" />
+  <img src="Z:/picture/008/save_picture_647217.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_647144.jpg" />
+  <img src="Z:/picture/005/save_picture_647144.jpg" />
 </div>
 
 
@@ -227,7 +253,7 @@ Portal Pinball 1.0.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647124.jpg" />
+  <img src="Z:/picture/008/save_picture_647124.jpg" />
 </div>
 
 
@@ -253,7 +279,7 @@ Goat Simulator GoatZ 1.1.3 + КЭШ [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647067.jpg" />
+  <img src="Z:/picture/008/save_picture_647067.jpg" />
 </div>
 
 
@@ -279,7 +305,7 @@ Hitman: Sniper 1.2.0 + КЭШ [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647016.jpg" />
+  <img src="Z:/picture/008/save_picture_647016.jpg" />
 </div>
 
 
@@ -305,7 +331,7 @@ Viral (YouTube Pop-up HD) v3.9.4.2 Pro [Ru/Multi] - Функциональнны
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647008.jpg" />
+  <img src="Z:/picture/008/save_picture_647008.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ Blackmart  0.99.2.77B [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647007.jpg" />
+  <img src="Z:/picture/008/save_picture_647007.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646905.jpg" />
+  <img src="Z:/picture/008/save_picture_646905.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ Goat Rampage PRO v2.0.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646148.jpg" />
+  <img src="Z:/picture/008/save_picture_646148.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645072.jpg" />
+  <img src="Z:/picture/005/save_picture_645072.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Baidu Super Root 3.3.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644797.jpg" />
+  <img src="Z:/picture/008/save_picture_644797.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_642415.jpg" />
+  <img src="Z:/picture/005/save_picture_642415.jpg" />
 </div>
 
 
@@ -495,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641807.jpg" />
+  <img src="Z:/picture/008/save_picture_641807.jpg" />
 </div>
 
 
@@ -521,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641517.jpg" />
+  <img src="Z:/picture/008/save_picture_641517.jpg" />
 </div>
 
 
@@ -547,7 +573,7 @@ RAM Manager Pro 7.3.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641503.jpg" />
+  <img src="Z:/picture/008/save_picture_641503.jpg" />
 </div>
 
 
@@ -573,7 +599,7 @@ Hungry Shark Evolution 3.2.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641469.jpg" />
+  <img src="Z:/picture/008/save_picture_641469.jpg" />
 </div>
 
 
@@ -601,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641296.jpg" />
+  <img src="Z:/picture/008/save_picture_641296.jpg" />
 </div>
 
 
@@ -628,7 +654,7 @@ Maleficent. Shooting Stars / Малефисента. Звездопад 2.1.0  [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641269.jpg" />
+  <img src="Z:/picture/008/save_picture_641269.jpg" />
 </div>
 
 
@@ -655,7 +681,7 @@ Hitman: Sniper 1.2.43823 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641147.jpg" />
+  <img src="Z:/picture/008/save_picture_641147.jpg" />
 </div>
 
 
@@ -666,32 +692,6 @@ Hitman: Sniper – великолепный тир с известным по с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F02AC17B333F6C08C8F754426844129F8933E7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906586   (641142) от 10.06.2015
-
-LEGO® Ninjago Tournament 1.04.2.71038 [Ru]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641142.jpg" />
-</div>
-
-
-###  Подробнее
-
-LEGO Ninjago Tournament – игра приглашает вас принять участие в знаменитом межгалактическом турнире стихий. На чемпионате собираются большое количество доблестных воинов и сильных соперников. Используя все свои умения и способности победите всех соперников которые окажутся на одном ринге против тебя. Во время прохождения вы можете совершенствовать своего персонажа, (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 20 мая 2015 г.Разработчик: The LEGO GroupПоддерживаемая ОС: Android 4.0.3+Жанр: ActionЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD4709AC9CAC4709DFCA63A665ABB343A75DDBE
 ```
 
 https://mybot314.ru/tekegram_catalog/

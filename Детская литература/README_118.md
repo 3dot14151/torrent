@@ -1,3 +1,32 @@
+###  Публикация: 934454   (502527) от 05.09.2015
+
+Л.Н. Толстой | Два товарища (1978) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_502527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два товарища.
+Шли по лесу два товарища, и выскочил на них медведь. Один бросился бежать, влез на дерево и спрятался, а другой остался на дороге. Делать было ему нечего - он упал наземь и притворился мертвым...
+
+Для старшего дошкольного возраста.Жанр: Детская проза, басниФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26D9A2C68DFDFC0550E119E2186385A4071CCEDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934595   (502522) от 05.09.2015
 
 Л. Н. Толстой | Воробей на-часах (1953) [DJVU]
@@ -6,7 +35,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502522.jpg" />
+  <img src="Z:/picture/008/save_picture_502522.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502407.jpg" />
+  <img src="Z:/picture/008/save_picture_502407.jpg" />
 </div>
 
 
@@ -61,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502402.jpg" />
+  <img src="Z:/picture/008/save_picture_502402.jpg" />
 </div>
 
 
@@ -87,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502397.jpg" />
+  <img src="Z:/picture/008/save_picture_502397.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502159.jpg" />
+  <img src="Z:/picture/008/save_picture_502159.jpg" />
 </div>
 
 
@@ -140,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501723.jpg" />
+  <img src="Z:/picture/008/save_picture_501723.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501720.jpg" />
+  <img src="Z:/picture/008/save_picture_501720.jpg" />
 </div>
 
 
@@ -193,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501585.jpg" />
+  <img src="Z:/picture/008/save_picture_501585.jpg" />
 </div>
 
 
@@ -219,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501434.jpg" />
+  <img src="Z:/picture/008/save_picture_501434.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501433.jpg" />
+  <img src="Z:/picture/008/save_picture_501433.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501432.jpg" />
+  <img src="Z:/picture/008/save_picture_501432.jpg" />
 </div>
 
 
@@ -300,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501343.jpg" />
+  <img src="Z:/picture/008/save_picture_501343.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501326.jpg" />
+  <img src="Z:/picture/008/save_picture_501326.jpg" />
 </div>
 
 
@@ -352,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500629.jpg" />
+  <img src="Z:/picture/008/save_picture_500629.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500626.jpg" />
+  <img src="Z:/picture/008/save_picture_500626.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500624.jpg" />
+  <img src="Z:/picture/008/save_picture_500624.jpg" />
 </div>
 
 
@@ -431,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500554.jpg" />
+  <img src="Z:/picture/008/save_picture_500554.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500353.jpg" />
+  <img src="Z:/picture/008/save_picture_500353.jpg" />
 </div>
 
 
@@ -485,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499402.jpg" />
+  <img src="Z:/picture/008/save_picture_499402.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498953.jpg" />
+  <img src="Z:/picture/008/save_picture_498953.jpg" />
 </div>
 
 
@@ -537,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498626.jpg" />
+  <img src="Z:/picture/008/save_picture_498626.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498620.jpg" />
+  <img src="Z:/picture/008/save_picture_498620.jpg" />
 </div>
 
 
@@ -590,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498616.jpg" />
+  <img src="Z:/picture/008/save_picture_498616.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498510.jpg" />
+  <img src="Z:/picture/008/save_picture_498510.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498419.jpg" />
+  <img src="Z:/picture/008/save_picture_498419.jpg" />
 </div>
 
 
@@ -655,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E712D551D7BD7D3D2FD02524B64BA3B79B4E6594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564806   (497654) от 21.07.2022
-
-Лев Толстой (сост.) | Липунюшка (1966) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497654.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге юные читатели познакомятся со сказками, загадками и пословицами отобранными и обработанными Львом Николаевичем Толстым.
-Для детей младшего школьного возраста. Иллюстрации И.Кузнецова.Жанр: Сказки, Загадки, ПословицыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73404BA6331E9498554F8EECAD99B87CEADDFB1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

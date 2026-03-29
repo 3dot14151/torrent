@@ -6,7 +6,7 @@ Quantum Conundrum [Ru/En] (RePack/1.0u2) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537751.jpg" />
+  <img src="Z:/picture/008/save_picture_537751.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536614.jpg" />
+  <img src="Z:/picture/008/save_picture_536614.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Deponia [Multi3\+] (Steam-Rip/1.2) 2012 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536552.jpg" />
+  <img src="Z:/picture/008/save_picture_536552.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Deponia [Ru] (RePack/1.2) 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536270.jpg" />
+  <img src="Z:/picture/008/save_picture_536270.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Death Rally [En] (RePack/1.00.20.023) 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536155.jpg" />
+  <img src="Z:/picture/008/save_picture_536155.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Alan Wake's Коллекция [Multi12/Ru] (L/Steam-Rip) 2012 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536154.jpg" />
+  <img src="Z:/picture/008/save_picture_536154.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Afterfall: Insanity Extended Edition / Afterfall: Тень прошлого Ра
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536031.jpg" />
+  <img src="Z:/picture/008/save_picture_536031.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Inversion [Ru/En] (Repack/1.0.0.1) 2012 l R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536022.jpg" />
+  <img src="Z:/picture/008/save_picture_536022.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ DOOM (2016) [Ru/En] (1.0/upd2) Repack VickNet
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535976.jpg" />
+  <img src="Z:/picture/008/save_picture_535976.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Jotun (2015) [Ru/Multi] (1.0/u3) License GOG [Valhalla Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535954.jpg" />
+  <img src="Z:/picture/008/save_picture_535954.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Serious Sam 3: Before First Encounter / Крутой Сэм 3: До Первог
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535748.jpg" />
+  <img src="Z:/picture/008/save_picture_535748.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Lost Planet 3 (2013) [Ru/En] (1.0/4DLC) Repack Табличка
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535745.jpg" />
+  <img src="Z:/picture/008/save_picture_535745.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ UnEpic (2011) [Ru/Multi] (1.50.06) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533920.jpg" />
+  <img src="Z:/picture/008/save_picture_533920.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Parkitect (2016) [En/Mutli] (Alpha 5с) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533910.jpg" />
+  <img src="Z:/picture/008/save_picture_533910.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Alpha Protocol [Ru/En/Multi8] (L/Steam-Rip/1.0.0.0) 2010 | R.G. GameWorks
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533879.jpg" />
+  <img src="Z:/picture/008/save_picture_533879.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.4.1.0s/dlc) Repack R.G. Механ
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533794.jpg" />
+  <img src="Z:/picture/008/save_picture_533794.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533710.jpg" />
+  <img src="Z:/picture/008/save_picture_533710.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ The Banner Saga (2014) [Ru/Multi] (2.18.08/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532867.jpg" />
+  <img src="Z:/picture/008/save_picture_532867.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Animal [Ru] (RePack) 1996 | RG Games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532505.jpg" />
+  <img src="Z:/picture/008/save_picture_532505.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Investigator (2016) [Ru/En] (1.12) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531823.jpg" />
+  <img src="Z:/picture/008/save_picture_531823.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [Ru/Multi] (1.02) SteamRip R.G. И�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531597.jpg" />
+  <img src="Z:/picture/008/save_picture_531597.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Age Of Mythology (2014) [Ru/En] (1.9.2975) RePack Audioslave [Extended Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531311.jpg" />
+  <img src="Z:/picture/008/save_picture_531311.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Battles for Glory 2 / Битвы за славу 2 (2007) [Ru] (1.0) Repack Anto
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531106.jpg" />
+  <img src="Z:/picture/008/save_picture_531106.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ The Legend of Heroes: Trails of Cold Steel II (2016) [PS3] [USA] 4.46 [Repack] [
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530317.jpg" />
+  <img src="Z:/picture/008/save_picture_530317.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.0.5) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530216.jpg" />
+  <img src="Z:/picture/008/save_picture_530216.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Zombie Army Trilogy (2015) [Ru/En] (1.8.20.01) Repack Mizantrop1337
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530208.jpg" />
+  <img src="Z:/picture/008/save_picture_530208.jpg" />
 </div>
 
 

@@ -1,3 +1,109 @@
+###  Публикация: 273634   (272422) от 24.12.2010
+
+И.С. Тургенев | Записки охотника. Повести. Стихотворения (2008) [MP3, Олег Исаев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272422.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Школьная библиотека" предлагает вам послушать цикл рассказов "Записки охотника", оказавший заметное влияние на русскую литературу и ставший одним из самых заметных произведений в творчестве Тургенева. Благодаря "Запискам" автор получил мировую известность, с них же началось его сотрудничество с "Современником" Н. А. Некрасова. (   Читать дальше...   )Жанр: Рассказ, повесть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E743D3854E62510A314FFF982B5C18EF95281D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 274235   (272343) от 24.12.2010
+
+Александр Дюма (отец) | Трилогия о Генрихе Наваррском (Книга 3). Сорок пять (2001) [MP3, Михаил Поздняков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272343.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сорок пять» написан в 1847 и является последним романом трилогии Александра Дюма о Генрихе Наваррском и о гугенотских войнах (Религиозные или гугенотские войны — серия затяжных гражданских войн между католиками и протестантами (гугенотами), куда входят «Королева Марго» и «Графиня де Монсоро».
+События, воскрешенные в романе «Сорок пять», относятся к 1585 году, когда (   Читать дальше...   )Жанр: Исторический, классика, приключения
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9125E372106FA159493F0C17393762D6AB7BDDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338417   (269758) от 15.11.2019
+
+Фаддей Булгарин и др. | Классика русского рассказа. [Выпуск №6] (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269758.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередном выпуске литературного аудиоальманаха «Классика русского рассказа № 6» вас ждут аудиоверсии произведений лучших писателей конца XVIII начала XX веков.Жанр: КлассикаПродолжительность: 08:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1B49B948D6302F81C298C035F1ED4D38B9812B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 275926   (269533) от 27.12.2010
+
+Уильям Сомерсет Моэм | Острие бритвы (2003) [MP3, Александр Балакирев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269533.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: XX век. Зарубежная проза.
+Роман «Острие бритвы» – один из лучших произведений У.С. Моэма, написан в 1944 году. Это не просто роман, а подлинная «школа нравов» английской богемы начала XX века. За взаимоотношениями персонажей, страстей и натур у Сомерсета Моэма отчетливо проступает художественно-философский анализ «вечных» тем мировой литературы: смысл (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Мария ЛориеИздательство: Студия «АРДИС»Продолжительность: 11:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B96ECF16A40A2044DB848F1776C5F0E7AE7BB08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 428975   (267710) от 28.12.2011
 
 В.А. Гиляровский | Жизнерадостные люди [2010] [MP3]
@@ -6,7 +112,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267710.jpg" />
+  <img src="Z:/picture/008/save_picture_267710.jpg" />
 </div>
 
 
@@ -34,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267509.jpg" />
+  <img src="Z:/picture/008/save_picture_267509.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267315.jpg" />
+  <img src="Z:/picture/008/save_picture_267315.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264121.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261531.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261004.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260731.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260729.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260700.jpg" />
+  <img src="Z:/picture/005/save_picture_260700.jpg" />
 </div>
 
 
@@ -250,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260694.jpg" />
+  <img src="Z:/picture/005/save_picture_260694.jpg" />
 </div>
 
 
@@ -279,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_260464.jpg" />
+  <img src="Z:/picture/005/save_picture_260464.jpg" />
 </div>
 
 
@@ -308,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257944.jpg" />
+  <img src="Z:/picture/005/save_picture_257944.jpg" />
 </div>
 
 
@@ -337,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257885.jpg" />
+  <img src="Z:/picture/005/save_picture_257885.jpg" />
 </div>
 
 
@@ -365,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257768.jpg" />
+  <img src="Z:/picture/005/save_picture_257768.jpg" />
 </div>
 
 
@@ -393,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257766.jpg" />
+  <img src="Z:/picture/005/save_picture_257766.jpg" />
 </div>
 
 
@@ -421,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257714.jpg" />
+  <img src="Z:/picture/005/save_picture_257714.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257713.jpg" />
+  <img src="Z:/picture/005/save_picture_257713.jpg" />
 </div>
 
 
@@ -477,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257624.jpg" />
+  <img src="Z:/picture/005/save_picture_257624.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257622.jpg" />
+  <img src="Z:/picture/005/save_picture_257622.jpg" />
 </div>
 
 
@@ -532,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256359.jpg" />
+  <img src="Z:/picture/005/save_picture_256359.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255593.jpg" />
+  <img src="Z:/picture/005/save_picture_255593.jpg" />
 </div>
 
 
@@ -589,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255590.jpg" />
+  <img src="Z:/picture/005/save_picture_255590.jpg" />
 </div>
 
 
@@ -602,117 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CE740C03DE5F7CF6E8B3DE5F5C24B4937772DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629007   (254806) от 25.04.2023
-
-Джованни Боккаччо | Декамерон (2004) [MP3, Евгений Терновский, Владимир Сушков]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Декамерон» (1352) Джованни Боккаччо – бессмертное творение великого итальянского писателя эпохи Возрождения, состоящее из увлекательных и поучительных новелл приключенческого, юмористического, трагического и эротического содержания. Для своего времени это произведение было новаторским и знаковым, мгновенно распространилось по Европе восхищёнными переписчиками (   Читать дальше...   )Жанр: Классическая проза, РоманПродолжительность: 34:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E5FD2816834FAF2252A87704E78B7AA77883EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836739   (254135) от 12.11.2025
-
-Фёдор Достоевский | Игрок (Бабуленька) (Инсценировка) (2021) [MP3, Фаина Раневская и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Из архива «Гостелерадиофонда».
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
-Инсценировка «Бабуленька» по роману «Игрок».
-История русской аристократки, пошедшей на поводу у азарта и (   Читать дальше...   )Жанр: Русская литература, классика, драма, романИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:356FEE932825CE37047776CFB938E5A15DB3B0E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836740   (254133) от 12.11.2025
-
-Фёдор Достоевский | Белые ночи (2022) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254133.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
-Студия «Ардис» предлагает вашему вниманию повесть Фёдора Достоевского «Белые ночи» – одно из лучших произведений школы (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Студия «АРДИС»Продолжительность: 02:16:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E002DA4D923D2DFDB797C17C5363C58869BD325C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1836743   (254132) от 12.11.2025
-
-Фёдор Достоевский | Кроткая (2021) [MP3, Иван Литвинов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика.
-Фёдор Михайлович Достоевский (1821–1881) – один из самых значительных и известных в мире русских писателей и мыслителей. Автор знаменитых во всём мире романов «Преступление и наказание», «Братья Карамазовы», «Идиот».
-Студия «Ардис» предлагает вашему вниманию небольшую повесть Фёдора Достоевского «Кроткая», рассказывающую историю жизни (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 01:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD8E36C96B38DB6B8AA8E7D0E78CBC166714B861
 ```
 
 https://mybot314.ru/tekegram_catalog/

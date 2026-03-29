@@ -1,3 +1,148 @@
+###  Публикация: 1139193   (661206) от 01.06.2017
+
+Unruly Child - Unruly Child (1992) [FLAC|Lossless|tracks] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Rise
+02. Take Me Down Nasty
+03. Who Cries Now
+04. To Be Your Everything(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA03A9E9FB3DAC5C88E3819B136CA8119C891203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538852   (661180) от 22.03.2022
+
+Kid Rock - Bad Reputation (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Don't Tell Me How To Live (00:04:04)
+02 - We The People (00:04:09)
+03 - My Kind of Country (00:03:56)
+04 - Bad Reputation (00:04:09)(   Читать дальше...   )Жанр: Alternative, Southern RockПродолжительность: 01:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0FD432D742C61FA996CE62A1365D5A2D11EDC27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139167   (660995) от 01.06.2017
+
+Roger Waters - Is This The Life We Really Want? (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Art-Rock, Progressive-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When We Were Young 1:40
+02.  Deja Vu 4:27
+03.  The Last Refugee 4:13
+04.  Picture That 6:48(   Читать дальше...   )Жанр: Rock, Art-Rock, Progressive-RockПродолжительность: 00:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB815DE421B2F3412543AA1D9757B6361932D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139242   (660271) от 02.06.2017
+
+Saint Just - La Casa Del Lago (1974) Reissue, 1994, Mellow Records [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660271.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tristana (6:41)
+2. Nella Vita, Un Pianto (11:04)
+3. Viaggio Nel Tempo (6:33)
+4. La Casa del Lago (6:28)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928AFB5C8C18EF49796FA6C0D63696C2B9F03C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139211   (660185) от 02.06.2017
+
+Robert Fripp and the League Of Crafty Guitarists - Live! (1986) [FLAC|Lossless|image + .cue] <Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_660185.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Guitar Craft Theme I: Invocation
+2. The Tight Muscle Party at Love Beach - Robert Fripp, Essex, Andrew
+3. Chords That Bind
+4. Guitar Craft Theme III: Eye of the Needle(   Читать дальше...   )Жанр: Prog-RockПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0227332C0844DC29C92C8B89A64713A436F88BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138147   (659203) от 03.06.2017
 
 Siena Root - A Dream of Lasting Peace (2017) KSL Edition [FLAC|Lossless|tracks + .cue] <Rock>
@@ -6,7 +151,7 @@ Siena Root - A Dream of Lasting Peace (2017) KSL Edition [FLAC|Lossless|tracks +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659203.jpg" />
+  <img src="Z:/picture/008/save_picture_659203.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Roger Waters - Is This The Life We Really Want? (2017) [FLAC|Lossless|tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658794.jpg" />
+  <img src="Z:/picture/008/save_picture_658794.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Porcupine Tree - 46 albums (1989-2010) [FLAC|Lossless] <Progressive Rock / Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_658538.jpg" />
+  <img src="Z:/picture/005/save_picture_658538.jpg" />
 </div>
 
 
@@ -98,7 +243,7 @@ VA - Beautiful Day (featuring R. Stewart, J. Cocker, Free and many more) (2004) 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657951.jpg" />
+  <img src="Z:/picture/008/save_picture_657951.jpg" />
 </div>
 
 
@@ -127,7 +272,7 @@ Dorian Wilde - Unlimited (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657302.jpg" />
+  <img src="Z:/picture/008/save_picture_657302.jpg" />
 </div>
 
 
@@ -156,7 +301,7 @@ Spiritraiser - Ciklos (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Psyched
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657301.jpg" />
+  <img src="Z:/picture/008/save_picture_657301.jpg" />
 </div>
 
 
@@ -185,7 +330,7 @@ The Urban Sea - Fall Back To Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657275.jpg" />
+  <img src="Z:/picture/008/save_picture_657275.jpg" />
 </div>
 
 
@@ -214,7 +359,7 @@ Meat Loaf - Couldn't Have Said It Better (2003) 2CD, Special Edition [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657272.jpg" />
+  <img src="Z:/picture/008/save_picture_657272.jpg" />
 </div>
 
 
@@ -243,7 +388,7 @@ The Legendary Pink Dots - The Museum of Human Happiness (2022) [FLAC|Lossless|WE
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657271.jpg" />
+  <img src="Z:/picture/008/save_picture_657271.jpg" />
 </div>
 
 
@@ -272,7 +417,7 @@ Meat Loaf - Bat Out Of Hell III The Monster Is Loose (2006) [FLAC|Lossless|WEB-D
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657266.jpg" />
+  <img src="Z:/picture/008/save_picture_657266.jpg" />
 </div>
 
 
@@ -301,7 +446,7 @@ Meat Loaf - Bat Out Of Hell II Back Into Hell (2006) Deluxe Edition, 3CD [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657260.jpg" />
+  <img src="Z:/picture/008/save_picture_657260.jpg" />
 </div>
 
 
@@ -330,7 +475,7 @@ Placebo - Never Let Me Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657144.jpg" />
+  <img src="Z:/picture/008/save_picture_657144.jpg" />
 </div>
 
 
@@ -359,7 +504,7 @@ Streetwalkers - Downtown Flyers (2002) [FLAC|image+.cue]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656982.jpg" />
+  <img src="Z:/picture/008/save_picture_656982.jpg" />
 </div>
 
 
@@ -388,7 +533,7 @@ Kossoff, Kirke, Tetsu & Rabbit - Kossoff, Kirke, Tetsu, Rabbit (1972) Remastered
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656981.jpg" />
+  <img src="Z:/picture/008/save_picture_656981.jpg" />
 </div>
 
 
@@ -417,7 +562,7 @@ Kitty, Daisy & Lewis - The Third (2015) [FLAC|tracks+.cue]<Rock & Roll, Ska, Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656975.jpg" />
+  <img src="Z:/picture/008/save_picture_656975.jpg" />
 </div>
 
 
@@ -446,7 +591,7 @@ Steve Kipner - Knock the Walls Down (1979) [FLAC|Lossless|tracks + .cue] <Pop Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656925.jpg" />
+  <img src="Z:/picture/008/save_picture_656925.jpg" />
 </div>
 
 
@@ -475,7 +620,7 @@ Back Street Crawler - 2nd Street (1976) Remastered /2004, Wounded Bird Records/ 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656890.jpg" />
+  <img src="Z:/picture/008/save_picture_656890.jpg" />
 </div>
 
 
@@ -504,7 +649,7 @@ Electric Desert - Electric Desert (2014) 2 CD [FLAC|tracks+.cue]<Progressive Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656889.jpg" />
+  <img src="Z:/picture/008/save_picture_656889.jpg" />
 </div>
 
 
@@ -533,7 +678,7 @@ Alquin - 3 Originals: Nobody Can Wait Forever/Best Kept Secret/Alquin On Tour (1
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656885.jpg" />
+  <img src="Z:/picture/008/save_picture_656885.jpg" />
 </div>
 
 
@@ -562,7 +707,7 @@ Kitty, Daisy & Lewis - Smoking In Heaven (2011) [FLAC|tracks+.cue]<Rock & Roll, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656884.jpg" />
+  <img src="Z:/picture/008/save_picture_656884.jpg" />
 </div>
 
 
@@ -591,7 +736,7 @@ Kitty, Daisy & Lewis - Kitty, Daisy & Lewis (2009) [FLAC|tracks+.cue]<Rock & Rol
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656883.jpg" />
+  <img src="Z:/picture/008/save_picture_656883.jpg" />
 </div>
 
 
@@ -605,151 +750,6 @@ Kitty, Daisy & Lewis - Kitty, Daisy & Lewis (2009) [FLAC|tracks+.cue]<Rock & Rol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CD685B6528D6D36406AB75122D0D620787A90FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903893   (656877) от 01.06.2015
-
-Lord Sutch and Heavy Friends - Hands of Jack the Ripper (1972) Remastered /2005, Wounded Bird Records/ [FLAC|image+.cue]<Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotta Keep A-Rocking (Lord Sutch) 04:42
-02. Roll Over Beethoven (Chuck Berry) 02:38
-03. Country Club (Lord Sutch) 03:21
-04. Hands Of Jack The Ripper (Lord Sutch) 09:39(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD209439B03B2EBEAE8B660B5F7B13CACB0EDC34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903886   (656874) от 01.06.2015
-
-Pete Townshend - Empty Glass (1980) [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rough Boys 04:05
-02. I Am An Animal 03:48
-03. And I Moved 03:24
-04. Let My Love Open The Door 02:45(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1818B2427A26DC9FE53F6B5601E2CC5AD3DFCD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904043   (656873) от 01.06.2015
-
-Back Street Crawler - The Band Plays On (1975) Remastered /2014, Wowow Entertainment/ [FLAC|image+.cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Do Woman 04:17
-02. New York, New York 04:40
-03. Stealing My Way 04:21
-04. Survivor 03:35(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253BF9EEE925983306E6DE3F8FB68F51BE77B1F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903873   (656790) от 01.06.2015
-
-Humble Pie - Humble Pie (1970) Remastered /2012, Lemon Recordings/ [FLAC|image+.cue]<Rock, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live With Me (Humble Pie) 07:54
-02. Only A Roach (Shirley) 02:48
-03. One Eyed Trouser Snake Rumba (Humble Pie) 02:50
-04. Earth And Water Song (Frampton) 06:17(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E22DE8684A6F221DBDEDB04D45165B90C5C83F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903829   (656781) от 01.06.2015
-
-George Thorogood & The Destroyers - Born To Be Bad (1988) [FLAC|image+.cue]<Blues Rock, Boogie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake Your Moneymaker (Elmore James) 03:31
-02. You Talk Too Much (George Thorogood) 04:41
-03. Highway 49 (Big Joe Williams) 05:50
-04. Born to Be Bad (Thorogood) 03:34(   Читать дальше...   )Жанр: Blues Rock, Boogie RockПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4F252CCAA92D1027815A5D054717698BABF9B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

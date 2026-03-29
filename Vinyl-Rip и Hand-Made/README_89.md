@@ -1,3 +1,233 @@
+###  Публикация: 1797927   (66661) от 19.05.2025
+
+Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66661.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1-We Are the Many
+A2-The Bogeyman
+A3-Memorial
+A4-No Tomorrow(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA70B4AC39FB8D2E3FCF2F44C7D27EAEBC61590C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797848   (66655) от 19.05.2025
+
+Fear Factory - Recoded (2022) Released, 2023, Nuclear Blast [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66655.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Adapt or Die (Intro Narrative by Jake Stern, sound FX by Zardonic)
+A2. Hatred Will Prevail (Monolith Remix by Rhys Fulber)
+A3. Disobey (Disruptor Remix by Zardonic)
+A4. I Am The Nightrider (Fuel Injected Suicide Machine Remix by Dualized/Zardonic)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606BC69336610CF1241D8E5E2924B7227192F44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797823   (66654) от 19.05.2025
+
+Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dystopia (04:24)
+02. Ascent Of The Blessed (04:10)
+03. Virus (03:55)
+04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797918   (66651) от 19.05.2025
+
+DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66651.jpg" />
+</div>
+
+
+###  Подробнее
+
+DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
+2005 - The Fury Of Our Maker's Hand
+2007 - The Last Kind Words
+2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798728   (66590) от 23.05.2025
+
+Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66590.jpg" />
+</div>
+
+
+###  Подробнее
+
+A. The Sword Woman (05:23)
+B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолжительность: 00:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798792   (66553) от 24.05.2025
+
+Soulfly - Conquer (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Nu-Metal, Groove, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66553.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Blood Fire War Hate
+A2. Unleash
+A3. Paranoia
+B1. Warmageddon(   Читать дальше...   )Жанр: Nu-Metal, Groove, Thrash MetalПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BA63258CFA7EEC13DA0FF4E08AC956D1207424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799191   (66503) от 26.05.2025
+
+Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pyogenesis — немецкая рок-группа, жанрово охватывающая широкий стилевой спектр от дэт-метала до поп-рока.1994 - Sweet X-Rated Nothings
+1995 - Twinaleblood
+1997 - Unpop
+1998 - Mono... Or Will It Ever Be The Way It Used To BeЖанр: Doom/Death Metal, PunkПродолжительность: 08:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC0301664862F63EC6B82B28B89EC6293212CD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799851   (66355) от 30.05.2025
+
+Any Given Day - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Any Given Day - немецкая металкор-группа, образованная в 2012 году в городе Гельзенкирхен.2014 - My Longest Way Home
+2016 - Everlasting
+2019 - Overpower
+2024 - LimitlessЖанр: MetalcoreПродолжительность: 03:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7996BF4F792D65AC5CC3526C76233FB10A6E76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1800028   (66342) от 31.05.2025
 
 VA - IX. Album Supraphonu (1970) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Europop>
@@ -6,7 +236,7 @@ VA - IX. Album Supraphonu (1970) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Europo
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66342.jpg" />
 </div>
 
 
@@ -35,7 +265,7 @@ The Duskfall - Studio Albums (5 releases) (2002-2014) hand made [restored, decli
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66280.jpg" />
 </div>
 
 
@@ -64,7 +294,7 @@ Eva (Csepregi Eva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|192/24|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66105.jpg" />
 </div>
 
 
@@ -93,7 +323,7 @@ Phlebotomized - Studio Albums (3 releases) (2019-2023) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66045.jpg" />
 </div>
 
 
@@ -121,7 +351,7 @@ Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65967.jpg" />
 </div>
 
 
@@ -149,7 +379,7 @@ Sonata Arctica - Silence (2001) Released, 2017, Spinefarm Records [FLAC|24/192|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65950.jpg" />
 </div>
 
 
@@ -178,7 +408,7 @@ Thenighttimeproject - Studio Albums (2 releases) (2016-2019) hand made [restored
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65904.jpg" />
 </div>
 
 
@@ -205,7 +435,7 @@ Soulfly - Savages (2013)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Groove, Thrash, D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65814.jpg" />
 </div>
 
 
@@ -234,7 +464,7 @@ Veil Of Conspiracy (ex-Astral Domine) - Studio Albums (4 releases) (2014-2025) h
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65813.jpg" />
 </div>
 
 
@@ -263,7 +493,7 @@ Manowar - The Triumph of Steel (1992) Released, 2011, Back On Black [FLAC|24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65746.jpg" />
 </div>
 
 
@@ -292,7 +522,7 @@ The Halo Effect - March of the Unheard (2025) [WavPack|32/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65558.jpg" />
 </div>
 
 
@@ -321,7 +551,7 @@ Alkonost - Дар Саламандры (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Pa
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65469.jpg" />
 </div>
 
 
@@ -350,7 +580,7 @@ DGM - Endless (2024) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65427.jpg" />
 </div>
 
 
@@ -379,7 +609,7 @@ DGM - Life (2023) [DSD128|Lossless|tracks|Vinyl-Rip] <Progressive Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65426.jpg" />
 </div>
 
 
@@ -408,7 +638,7 @@ Steel Rhino - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65320.jpg" />
 </div>
 
 
@@ -435,7 +665,7 @@ Super Grup Electrecord - Slagare, Slagare, Slagare (1977) [FLAC 2.0|192/24|image
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65302.jpg" />
 </div>
 
 
@@ -464,7 +694,7 @@ Annisokay - Studio Albums (9 releases) (2010-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65272.jpg" />
 </div>
 
 
@@ -493,7 +723,7 @@ Grand Alchemist - Studio Albums (2 releases) (2003; 2012) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65091.jpg" />
 </div>
 
 
@@ -505,238 +735,6 @@ Grand Alchemist - метал-группа из города Холмэстран
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:611AC3F9BD47C43F5EC663AAAB2AF11C07824863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807928   (65089) от 21.07.2025
-
-Magneton - Jo Fiu Leszek [Magneton 2] (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65089.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Jo Fiu Leszek
-A2 Blues
-A3 Szerelem
-A4 Szomoru Dal(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832F053FF7AA0A1FD77AA61D8B7289042E12D0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807957   (65088) от 21.07.2025
-
-Паранойя (Paranoia) - Месть Зла (Evil's Revenge) (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Power, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65088.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Повелитель Снов
-A2 - Месть Зла
-A3 - Слуги Дьявола
-A4 - Мертвый Марш(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6054A0F427B01883500A2D9777DDE5F2496DFD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808074   (65035) от 22.07.2025
-
-VA - 4-й Альбом Супрафона 2 (1966) Partially Mixed, Sampler [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening, Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65035.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Rudolf Cortés - Tiše Den Zhasíná
-A2 Jana Beláková - Lampy Už Dávno Zhasly
-A3 Jiří Popper - Bílou Tmou
-A4 Yvonne Přenosilová - Mě Se Líbí Bob(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 00:28:5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6867976673CE29AEC16CC887766E8F41E3CBD73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808052   (65031) от 22.07.2025
-
-Dio - Lock Up The Wolves (1990) Reissue, 2021, Vertigo [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65031.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Wild One
-A2. Born On The Sun
-A3. Hey Angel
-B1. Between Two Hearts(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1714BC883CFB7745D916978CBB72608436C162E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809037   (64770) от 28.07.2025
-
-Night Tempo - Night Tempo Presents The Showa Idol Groove (Rare Groove From 80s) (2021) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop, Synthwave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Deja Vu (Night Tempo Showa Groove Mix)
-A2 Nice-catch! (Night Tempo Showa Groove Mix)
-A3 淋しい熱帯魚 - Glowing tropical fish (Night Tempo Showa Groove Mix)(   Читать дальше...   )Жанр: Electronic, Synth-pop, SynthwaveПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AF4075B841A08C23BD8ECE29C0CE1AF42FD07E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809797   (64655) от 01.08.2025
-
-Tomoko Aran – Fuyu-Kukan = Floating Space = 浮遊空間 (1983) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, New Wave, City Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Body To Body
-A2 Lonely Night
-A3 I'm In Love(   Читать дальше...   )Жанр: Electronic, New Wave, City PopПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2127C96833163B25D9A419C8EF12198A11B1ADD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810070   (64614) от 02.08.2025
-
-The Alan Parsons Project - Collection (1976-1987) [DSD 128|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64614.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Alan Parsons Project — рок-группа из Великобритании, творившая с 1975 по 1990 годы в стилях арт-рок, симфонический рок и прогрессивный рок. Основана Аланом Парсонсом (Alan Parsons) и Эриком Вульфсоном (Eric Woolfson). После 1990 года группа официально не существует, но Алан Парсонс и Эрик Вульфсон продолжали выпускать сольные альбомы, близкие к творчеству группы. (   Читать дальше...   )1976 Tales Of Mystery And Imagination (UK, Charisma – CDS 4003 LP)
-1977 - I Robot (Japan, Arista – IES-80885 LP)
-1978 Pyramid (UK, Arista – SPART 1054 LP)
-1979 - Eve (Japan, Arista – 20RS-36 LP)Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C8FA323DC7C23C2EDFA43C9EF2A7C3FF27ABCC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821665   (63877) от 03.10.2025
-
-VA - XVI. Album Supraphonu (1977) Compilation, Partially Mixed, Sampler [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63877.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 K. Gott, L. Staidl Se Svym Orchestrem - Divkam
-A2 M. Vobornikova A Sbor L. Panka, Tanecni Orchestr Cs. Rozhlasu - Rada Silne Muze Mam
-A3 W. Matuska A O. Blechova, Studiovy Orchestr Mojmir Balling - Kdo Ma Rad
-A4 H. Zagorova, K. Vagner Se Svym Orchestrem - Kdyz Pisne Lzou(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B13E718F16DDE7C1C74DFA46CCFC99FDA4D753
 ```
 
 https://mybot314.ru/tekegram_catalog/

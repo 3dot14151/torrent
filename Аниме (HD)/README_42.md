@@ -1,3 +1,29 @@
+###  Публикация: 1190217   (157129) от 24.12.2017
+
+Two Car: Racing Sidecar | Две машины [2017, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьницы Юри Мията и Мегуми Мегуро живут на малонаселённом островке Мияке в двухстах километрах к югу от Токио и увлекаются гонками на мотоциклах с колясками. Юри — женственная, хладнокровная и стройная девушка-водитель, управляющая тормозом и газом. Мегуми — очаровательная и импульсивная пацанка, занимающая место пассажира и использующая вес тела и акробатические (   Читать дальше...   )Производство: Студия Silver LinkЖанр: спортРежиссер: Тамура МасафумиПеревод: RizenTeamЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C260799CFCB612A0360720A7B90A6EBDA1C201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499667   (157045) от 18.12.2021
 
 Yakunara Mug Cup mo Niban Kama / Let's Make a Mug Too 2 / Давайте тоже сделаем кружку [TB-2] [2021, TV, 12] WEBRip 720p raw
@@ -6,7 +32,7 @@ Yakunara Mug Cup mo Niban Kama / Let's Make a Mug Too 2 / Давайте тож�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157045.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ Dynamic Chord | Динамический аккорд [2017, TV, 12] WEBRip 720p
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156948.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ Dies Irae | Судный день [2017, TV, 11 + SP] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156814.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Uchi no Shishou wa Shippo ga Nai | My Master Has No Tail | У моего мас�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156811.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Chuubyou Gekihatsu Boy | Outburst Dreamer Boys | Сумасшедшие ребя
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156629.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Juuni Taisen | 12 войн [2017, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156256.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Kami-tachi ni Hirowareta Otoko | By the Grace of the Gods | Избранный �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155529.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Tonikaku Kawaii: Fly Me to the Moon / Tonikawa: Over the Moon for You / Крас
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155516.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ Haikyuu!! To the Top (2020) | Волейбол [ТВ-4, часть II] [2020, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155458.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Ani ni Tsukeru Kusuri wa Nai! 2 | В случае с братом медицин
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154883.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Sankaku Mado no Sotogawa wa Yoru | The Night Beyond the Tricornered Window | Н�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154841.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Isekai Shokudou 2 | Restaurant to Another World 2 | Кафе из другого
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154727.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ Houseki no Kuni | Land of the Lustrous | Страна самоцветов [2017
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154677.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Blue Period | Голубой период [2021, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154589.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 эп.] WebRip 720
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154464.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ One Room: Third Season | Из одной комнаты [ТВ-3] [2020, TV, 12] 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153917.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ Kyuuketsuki Sugu Shinu | The Vampire Dies in No Time | Этот вампир п�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153484.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ Banana Fish | Рыбка-бананка [2018, TV, 24] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152969.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ Null Peta | Null & Peta | Нуль и Пета [2019, TV, 12 эп.] WEBRip 720p 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152958.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ Starmyu / High School Star Musical / Старшая школа музыкаль�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152607.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ Yuukoku no Moriarty | Moriarty the Patriot | Патриотизм Мориарт
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152409.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ Takt Op.Destiny / Такт Опус. Судьба [2021, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151911.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Houkago Saikoro Club | After School Dice Club | Клуб настольных и
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151151.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ Fairy Gone 2 / Пропавшие феи 2 [2019, TV, 12] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151111.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ Guraburu! | Grand Blues! | Великий блюз! [2020, TV, 12] WEBRip 720p r
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150331.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ Guraburu! | Grand Blues! | Великий блюз! [2020, TV, 12] WEBRip 720p r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:494E1CF8E4D477274AB3EE4BC9156CBF3B8D3A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414553   (150279) от 24.12.2020
-
-Ikebukuro West Gate Park | Западные ворота парка Икэбукуро [2020, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150279.jpg" />
-</div>
-
-
-###  Подробнее
-
-В токийском районе Икебукуро Нищигучи Коэн (тот самый Икебукуро Уэст Гейт Парк) живёт 20-летний Макото Мадзима, сын торговца фруктами, известный под прозвищем Решала из Икебукуро. По большей части он бездельничает вместе со своими приятелями Щуном, Масой и Такащи (последний ещё и предводитель местной банды), но иногда, как правило, помимо воли, оказывается замешан (   Читать дальше...   )Производство: Студия Doga Kobo / 動画工房Жанр: детективРежиссер: Косида ТомоакиПеревод: YakuSubЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEB1281682A851023D794B1BCA7AB27C2DBF272
 ```
 
 https://mybot314.ru/tekegram_catalog/

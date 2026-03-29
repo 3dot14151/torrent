@@ -1,3 +1,162 @@
+###  Публикация: 1194887   (151163) от 27.12.2017
+
+Роскосмос "оцифрует" всю Россию к 2020-му году
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компьютерная модель поверхности нашей планеты, создаваемая в рамках инициированного госкорпорацией "Роскосмос" проекта "Цифровая Земля", к 2020-му году охватит всю территорию России. Об этом рассказал в интервью "Известиям" гендиректор холдинга "Российские космические системы" (РКС) Андрей Тюлин.Пилотными регионами реализации (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195083   (151104) от 27.12.2017
+
+Mozilla Firefox Quantum 57.0.3 Final [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свободный веб-браузер Mozilla Firefox на движке Gecko, ориентированный на приватность и безопасность в Интернете. В новой версии браузера Mozilla Firefox обновился движок – улучшилось качество отображения сайтов, возросла скорость их загрузки, совместимость со стандартами. Firefox содержит массу крупных и мелких улучшений интерфейса и, как следствие, работать стало (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B6BB77C6D6CB5179C0C12AB05C06784950863C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968519   (151015) от 25.12.2015
+
+НАСА переносит на два года запуск марсианской миссии Mars InSight
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запуск очередной масштабной миссии по изучению Красной Планеты был отложен более чем на два года в связи с дефектами некоторых компонентов основного научного инструмента космического аппарата Mars InSight (Interior Exploration using Seismic Investigations Geodesy and Heat Transport). Изначально запуск миссии планировалось произвести в марте следующего года, однако, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086303   (150936) от 24.12.2016
+
+Расплата / The Accountant (2016) HDRip [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150936.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему «на хвост» садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: США, Warner Bros. Pictures...Жанр: Боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (Чистый звук)Субтитры: отсутствуютПродолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E5EADD4EEE93356FA27730B24EF600E1E7FE3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195063   (150933) от 27.12.2017
+
+Андрей Круз | Коммерсант (2018) [FB2]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Vamos!» из вселенной «Земля лишних»
+
+Выиграть битву еще не значит одержать победу в войне. Да, отбиться от банды албанцев Александру Баринову, переселенцу на Новую Землю, вполне успешному бизнесмену и по совместительству бойцу невидимого фронта, удалось, но кто сказал, что это гарантирует спокойное существование на всю оставшуюся жизнь, тем более (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F584797E6EC46144A782F738D58A2E052BDD8D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269971   (150931) от 22.12.2018
+
+Операция в Красном море / Hong hai xing dong (2018) BDRip [VO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150931.jpg" />
+</div>
+
+
+###  Подробнее
+
+События происходят в 2015 году, когда разворачивалась гражданская война в Йемене. История рассказывает о том, как китайские солдаты спасали судьбы тысяч.
+Война просто стирает с лица земли все живое, она обесценивает жизни людей, делает их ничем. И вот против такого страшного отношения к людским судьбам восстают герои этой картины. Они не жалеют сил, самих себя, свое (   Читать дальше...   )Производство: Китай / Bona Film Group, P.L.A Navy Government TV Art Central of China, The, Star Dream Studio MediaЖанр: БоевикРежиссер: Данте ЛамАктеры: И Чжан, Джонни Хуан, Хай-Цин, Ду Цзян, Луся Цзян, Санаа Алауи, Инь Фан, Ван Юйтянь, Го Цзяхао, Генри Принц МакПеревод: Одноголосый закадровый, любительский (Переводман)Субтитры: Русские (Forced, отдельным файлом)Продолжительность: 02:18:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412F594C49975CE263901332E73EBF23DE32F3A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085715   (150919) от 24.12.2016
 
 Инферно / Inferno (2016) WEB-DL [H.264/1080p-LQ] [Line]
@@ -6,7 +165,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150919.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Sid Meier's Civilization VI / Sid Meier's Civilization 6 (2016) [Ru/Multi] (1.0.
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150826.jpg" />
 </div>
 
 
@@ -58,7 +217,7 @@ ABBYY FineReader 14.0.107.212 Enterprise RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150816.jpg" />
 </div>
 
 
@@ -84,7 +243,7 @@ Microsoft® Windows® 10 Ent 1809 RS5 x86-x64 Ru-En-De-Uk by OVGorskiy® 12.2018
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150812.jpg" />
 </div>
 
 
@@ -110,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150802.jpg" />
 </div>
 
 
@@ -136,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150800.jpg" />
 </div>
 
 
@@ -162,7 +321,7 @@ Udemy | Полный курс по кибербезопасности: Сете�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150795.jpg" />
 </div>
 
 
@@ -191,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150792.jpg" />
 </div>
 
 
@@ -217,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150790.jpg" />
 </div>
 
 
@@ -243,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150784.jpg" />
 </div>
 
 
@@ -269,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150781.jpg" />
 </div>
 
 
@@ -295,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150776.jpg" />
 </div>
 
 
@@ -321,7 +480,7 @@ Microsoft Office for Mac Standard 2019 v.16.20.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150771.jpg" />
 </div>
 
 
@@ -348,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150328.jpg" />
 </div>
 
 
@@ -374,7 +533,7 @@ Microsoft разрабатывает собственные процессоры
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150287.jpg" />
 </div>
 
 
@@ -400,7 +559,7 @@ Boris FX Mocha Pro 2021 v8.0.1 Build 101 standalone + plugins Adobe&OFX [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150153.jpg" />
 </div>
 
 
@@ -426,7 +585,7 @@ Majo no Tabitabi / Wandering Witch: The Journey of Elaina / Странствия
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150150.jpg" />
 </div>
 
 
@@ -452,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150030.jpg" />
 </div>
 
 
@@ -479,7 +638,7 @@ Adguard 6.0.146.791 RC [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149925.jpg" />
 </div>
 
 
@@ -505,7 +664,7 @@ IP-TV Player 0.28.1.8842 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149856.jpg" />
 </div>
 
 
@@ -516,165 +675,6 @@ IP-TV Player - это высококачественный проигрыват�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1393C899EC56A81D9B0155149638C4F5962129DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969019   (149813) от 25.12.2015
-
-TeamViewer 11.0.53254 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149813.jpg" />
-</div>
-
-
-###  Подробнее
-
-TeamViewer устанавливает подключение к любому компьютеру или серверу в любой точке мира в течение нескольких секунд. Вы можете удалённо управлять компьютером вашего партнёра, как будто сидите прямо перед ним. Программа позволяет получить доступ к компьютеру из любой точки интернета (IP-адрес удаленной машины можно не знать, но на втором компьютере тоже должна быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2B685D941148071F4946133380DBC43BE21658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968656   (149781) от 25.12.2015
-
-Adobe Photoshop Lightroom 6.3 RePack by D!akov (24.12.2015) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15AC666644B839E144D4A841FF4B7B21C6ADFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968778   (149758) от 25.12.2015
-
-PROMT Professional 11 Build 9.0.556 DC 20.11.2015 + Dictionaries Collection [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149758.jpg" />
-</div>
-
-
-###  Подробнее
-
-PROMT Professional 11 – переводчик и словарь для малого и среднего бизнеса. Программа позволяет быстро и качественно перевести деловой документ, сайт, письмо или сообщение от партнера. При этом гарантируется сохранение конфиденциальности переводимой информации.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBC3D1FAF9750B6F6338FAE623C654999F72870F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968233   (149733) от 25.12.2015
-
-W.D.I | Веб-дизайн Интенсив (2015) PCRec [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149733.jpg" />
-</div>
-
-
-###  Подробнее
-
-35-дневная образовательная программа;
-Состоит из 9 образовательных секций с видеоуроками (44 урока)
-Домашние задания после каждой сессии
-10 вебинаров с разбором домашних заданий(   Читать дальше...   )Производство: РоссияЖанр: Веб-дизайнПродолжительность: 40:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7642402BE5682C28554F0D5F286757739DA892D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 657725   (149003) от 23.12.2018
-
-Добро пожаловать, или Посторонним вход воспрещен (1964) BDRemux [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пионер Костя Иночкин, будучи в пионерском лагере, переплыл реку и оказался на запретной для посещений территории, за что и был изгнан его начальником товарищем Дыниным. Не желая доводить бабушку до инфаркта своим досрочным прибытием, мальчик тайно возвращается в лагерь, где пионеры так же тайно содержат его и предпринимают все меры, чтобы не состоялся родительский (   Читать дальше...   )Производство: СССР, МосфильмЖанр: Комедия, семейныйРежиссер: Элем КлимовАктеры: Виктор Косых, Евгений Евстигнеев, Арина Алейникова, Илья Рутберг, Лидия Смирнова, Алексей Смирнов, Нина Шацкая, Лидия Волкова, Татьяна Барышева, Александр БайковСубтитры: ОтсутствуютПродолжительность: 01:13:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3778B00268477C6E6657201AEED183B4B375C6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230921   (148991) от 23.12.2018
-
-Wreckfest (2018) [Ru/Multi] (1.233553/dlc) Repack xatab
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забудьте о правилах! Wreckfest - это полный контакт и никакой пощады! Эпические столкновения, нешуточная борьба до самого финиша и миллион способов гнуть и корежить металл - вот что ждет вас в Wreckfest, новой гоночной игре со сверхреалистичной симуляциейТип издания: RepackРазработчик: BugbearЖанр: Action, Indie, Racing, Simulator, SportsЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7C9108DA42D6F7740EC871993755B3DC0E4E72
 ```
 
 https://mybot314.ru/tekegram_catalog/

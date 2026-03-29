@@ -1,3 +1,29 @@
+###  Публикация: 1536378   (58732) от 24.04.2024
+
+Buccaneers! (2022) [Ru/Multi] (1.1.01) License GOG [VR]
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почувствуйте себя бесстрашным капитаном бравых пиратов, в Buccaneers! - классической пиратской ролевой игре. Измените ход истории, присоединитесь к одной из уникальных фракций - сделайте все чтобы покорить коварное Карибское море. Buccaneers! предлагают огромный простор для реиграбельности, ищите легендарные сокровища, участвуйте в захватывающих морских баталиях, (   Читать дальше...   )Тип издания: LicenseРазработчик: Skyward DigitalЖанр: Экшны, Ролевая игра, Про мореЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, КитайскийЯзык интерфейса: Русский, Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53662CD3FEEC096DB09ED6FBF91C2058274717A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718271   (58713) от 24.04.2024
 
 Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) Scene Skidrow
@@ -6,7 +32,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) S
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58713.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58580.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Strayed Lights (2023) [Ru/Multi] (1.4.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58399.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58383.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Trailmakers (2019) [Ru/Multi] (1.8/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58288.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Project MIKHAIL: A Muv-Luv War Story (2024) [Multi] (1.0000.5178) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58091.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Wild Card Football (2023) [Multi] (20240423/dlc) Scene Tenoke [Ultimate Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57980.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.0.2/dlc) Repack FitGirl [Deluxe Editi
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56943.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Ira (2023) [Multi] (1.0.10) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56921.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Strongloween: The Escape (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56915.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Gift (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56590.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Ruindog (2024) [Ru/Multi] (1.0.03) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56497.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Heavy Storm Shadow (2024) [Ru/Multi] (1.043) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56387.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ We Need To Go Deeper (2019) [En] (1.6.5.g) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56260.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ What the Fog (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56183.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56090.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Tchia (2024) [Ru/Multi] (2.01/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56048.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Besiege (2020) [Ru/Multi] (1.50/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55447.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55435.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ RKGK / Rakugaki (2024) [Multi] (1.0.0.648) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55410.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ THE KING OF FIGHTERS XV (15) (2022) [Ru/Multi] (2.32/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55229.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ ReConnect Exit LOOP (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54501.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Tiny Terry's Turbo Trip (2024) [Multi] (1.28.1701) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54479.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Rocket Rumble (2024) [Ru/Multi] (0.2.221) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54470.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Umbraclaw (2024) [Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54467.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Umbraclaw – события нашей игры вращаются вокруг
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C959FE9E0B23A1BAD7C53075B44D537B9281BB9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727792   (54375) от 04.06.2024
-
-Rainbow Cotton (2024) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rainbow Cotton возвращается! Легендарная ведьма Коттон снова выходит на сцену в этой ремастированной версии культовой классической игры. Изначально игра была выпущена только в Японии на Dreamcast в 2000 году, но теперь Rainbow Cotton впервые выходит по всему миру, открывая очаровательный 3D-мир для совершенно новой аудитории. Игроки берут на себя управление Коттон, (   Читать дальше...   )Тип издания: RepackРазработчик: KRITZELKRATZ 3000Жанр: Экшены, Казуальные игрыЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A909F4DA3D7639B58318F752425636B01FC3CBC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

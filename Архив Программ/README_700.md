@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696032.jpg" />
+  <img src="Z:/picture/008/save_picture_696032.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Red Giant Effects Suite 11.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696026.jpg" />
+  <img src="Z:/picture/008/save_picture_696026.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ RegCool 1.126 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695943.jpg" />
+  <img src="Z:/picture/008/save_picture_695943.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4833.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695921.jpg" />
+  <img src="Z:/picture/008/save_picture_695921.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4833.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695919.jpg" />
+  <img src="Z:/picture/008/save_picture_695919.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Siemens Solid Edge ST8 108.00.00.091 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695910.jpg" />
+  <img src="Z:/picture/008/save_picture_695910.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ AdminPE 3.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695908.jpg" />
+  <img src="Z:/picture/008/save_picture_695908.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ K-Lite Codec Pack Update 16.8.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695885.jpg" />
+  <img src="Z:/picture/008/save_picture_695885.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Wise Care 365 Pro 6.1.9.606 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695870.jpg" />
+  <img src="Z:/picture/008/save_picture_695870.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Reg Organizer 8.86 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695864.jpg" />
+  <img src="Z:/picture/008/save_picture_695864.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Revo Uninstaller Pro 4.5.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695863.jpg" />
+  <img src="Z:/picture/008/save_picture_695863.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Stereoscopic Player v1.7.1 [Мульти/Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695846.jpg" />
+  <img src="Z:/picture/008/save_picture_695846.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Wise Care 365 Pro 5.5.5.550 (DC 12.08.2020) RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695834.jpg" />
+  <img src="Z:/picture/008/save_picture_695834.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ TweakPower 1.153 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695820.jpg" />
+  <img src="Z:/picture/008/save_picture_695820.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ AdminPE10 1.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695792.jpg" />
+  <img src="Z:/picture/008/save_picture_695792.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ ESET NOD32 4.x/3.x (x32 x64) Offline Update 13671 (июнь 2016) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695787.jpg" />
+  <img src="Z:/picture/008/save_picture_695787.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) RePack by D!akov (12.06.2016) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695781.jpg" />
+  <img src="Z:/picture/008/save_picture_695781.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Glary Utilities Pro 5.183.0.212 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695773.jpg" />
+  <img src="Z:/picture/008/save_picture_695773.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ EZ CD Audio Converter 10.0.3.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695772.jpg" />
+  <img src="Z:/picture/008/save_picture_695772.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Perfectly Clear WorkBench 4.1.0.2244 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695771.jpg" />
+  <img src="Z:/picture/008/save_picture_695771.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ DesktopOK 9.71 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695770.jpg" />
+  <img src="Z:/picture/008/save_picture_695770.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Ashampoo Burning Studio 23.0.5 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695768.jpg" />
+  <img src="Z:/picture/008/save_picture_695768.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Internet Download Manager 6.06 Build 3 Beta [Rus/Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695702.jpg" />
+  <img src="Z:/picture/008/save_picture_695702.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ NirLauncher Package 1.23.29 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695690.jpg" />
+  <img src="Z:/picture/008/save_picture_695690.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Glary Utilities Pro 5.115.0.140 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695672.jpg" />
+  <img src="Z:/picture/008/save_picture_695672.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Glary Utilities Pro 5.115.0.140 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695668.jpg" />
+  <img src="Z:/picture/008/save_picture_695668.jpg" />
 </div>
 
 

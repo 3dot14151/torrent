@@ -1,3 +1,90 @@
+###  Публикация: 1394699   (762294) от 06.07.2020
+
+Серия Кубков NASCAR 2020. 16-й Этап. Индианаполис 400. Гонка / NASCAR Cup Series 2020. Round 16. Big Machine Hand Sanitizer 400. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_762294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
+05 июля 2020 года. Спидвей (штат Индиана, США).
+16-й Этап. Индианаполис 400 (Big Machine Hand Sanitizer 400)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:801F53115F0A9D59C760B7D1C8A892142ACA5412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394630   (762292) от 06.07.2020
+
+Формула-3. Сезон 2020. 1-й Этап. Гран-при Австрии. Гонка 2 (05.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_762292.jpg" />
+</div>
+
+
+###  Подробнее
+
+2-й чемпионат ФИА Формула-3. Сезон 2020 года
+05 июля 2020, воскресенье. 10:45 МСК
+1-й Этап. Гран-при Австрии. Шпильберг (Австрия)
+Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: Качество видео:        HDTVRip
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C54A9116E0D23467A8BFCB5A2AC51AD0D83A88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394632   (762217) от 06.07.2020
+
+Формула-2. Сезон 2020. 1-й Этап. Гран-при Австрии. Гонка 2 (05.07.2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_762217.jpg" />
+</div>
+
+
+###  Подробнее
+
+4-й Чемпионат ФИА Формула-2. Сезон 2020 года
+05 июля 2020, воскресенье. 12:10 МСК
+1-й Этап. Гран-при Австрии. Шпильберг (Австрия)
+Гонка 2(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C865091A7A9417397A643BAACDFABD1568C36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280772   (756828) от 05.02.2019
 
 Гонщик Гран-При / Grand Prix Driver (2018) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-4 из 4) [VO] [AD]
@@ -6,7 +93,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756828.jpg" />
+  <img src="Z:/picture/008/save_picture_756828.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756706.jpg" />
+  <img src="Z:/picture/008/save_picture_756706.jpg" />
 </div>
 
 
@@ -60,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752271.jpg" />
+  <img src="Z:/picture/008/save_picture_752271.jpg" />
 </div>
 
 
@@ -89,7 +176,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752193.jpg" />
+  <img src="Z:/picture/008/save_picture_752193.jpg" />
 </div>
 
 
@@ -118,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750069.jpg" />
+  <img src="Z:/picture/008/save_picture_750069.jpg" />
 </div>
 
 
@@ -147,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750068.jpg" />
+  <img src="Z:/picture/008/save_picture_750068.jpg" />
 </div>
 
 
@@ -176,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750063.jpg" />
+  <img src="Z:/picture/008/save_picture_750063.jpg" />
 </div>
 
 
@@ -202,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742695.jpg" />
+  <img src="Z:/picture/008/save_picture_742695.jpg" />
 </div>
 
 
@@ -231,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742636.jpg" />
+  <img src="Z:/picture/008/save_picture_742636.jpg" />
 </div>
 
 
@@ -260,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740450.jpg" />
+  <img src="Z:/picture/008/save_picture_740450.jpg" />
 </div>
 
 
@@ -289,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740448.jpg" />
+  <img src="Z:/picture/008/save_picture_740448.jpg" />
 </div>
 
 
@@ -318,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734763.jpg" />
+  <img src="Z:/picture/008/save_picture_734763.jpg" />
 </div>
 
 
@@ -344,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732950.jpg" />
+  <img src="Z:/picture/008/save_picture_732950.jpg" />
 </div>
 
 
@@ -373,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725074.jpg" />
+  <img src="Z:/picture/008/save_picture_725074.jpg" />
 </div>
 
 
@@ -402,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721292.jpg" />
+  <img src="Z:/picture/008/save_picture_721292.jpg" />
 </div>
 
 
@@ -431,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716851.jpg" />
+  <img src="Z:/picture/008/save_picture_716851.jpg" />
 </div>
 
 
@@ -460,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714768.jpg" />
+  <img src="Z:/picture/008/save_picture_714768.jpg" />
 </div>
 
 
@@ -489,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711479.jpg" />
+  <img src="Z:/picture/008/save_picture_711479.jpg" />
 </div>
 
 
@@ -518,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711330.jpg" />
+  <img src="Z:/picture/008/save_picture_711330.jpg" />
 </div>
 
 
@@ -545,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711313.jpg" />
+  <img src="Z:/picture/008/save_picture_711313.jpg" />
 </div>
 
 
@@ -574,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711304.jpg" />
+  <img src="Z:/picture/008/save_picture_711304.jpg" />
 </div>
 
 
@@ -603,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710838.jpg" />
+  <img src="Z:/picture/008/save_picture_710838.jpg" />
 </div>
 
 
@@ -632,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709398.jpg" />
+  <img src="Z:/picture/008/save_picture_709398.jpg" />
 </div>
 
 
@@ -646,87 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:778F3B7230C562FE9A5C3B0EB116039F5FA9BC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401439   (709053) от 10.08.2020
-
-Формула Е 2019-2020. 9-й Этап. еПри Берлина II. Гонка / Formula E Championship 2019-2020. Round 09. Berlin E-Prix II. Race (2020) HDTV [H.264/1080i-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709053.jpg" />
-</div>
-
-
-###  Подробнее
-
-6-й сезон Формула Е 2019-2020 года, чемпионат мира среди автомобилей с электроприводом, признанный Международной автомобильной федерацией (FIA) как самый высший класс электрических гоночных автомобилей с открытыми колесами.
-09 августа 2020, воскресенье. 20:03 МСК
-9-й Этап. еПри Берлина II. Берлин (Германия)
-Кругов:	37(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6C67057104934D9AC7F54BD5BA639A1B7AD171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401626   (707588) от 11.08.2020
-
-Национальное первенство Великобритании по шоссейно-кольцевым автогонкам БТСС 2020. Брэндс Хэтч, Гонка 1-3 / BTCC. Brands Hatch, Race 1-3 (2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Великобритании по шоссейно-кольцевым гонкам среди легковых автомобилей (англ. British Touring Car Championship, BTCC) — это национальное туринговое автомобильное первенство, существующее с 1958 года. Серия базируется в Великобритании.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 47:59 + 46:45 + 36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E28BEF6D2CA8DC6749D2F0CF431828BDB0EEAF3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402069   (701720) от 14.08.2020
-
-Формула-Е 2019-2020. Этап 10-11. Германия (Берлин). Гонка 1-2. Formula-E: Berlin E-Prix (12-13.08.2020) WEB-DL [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701720.jpg" />
-</div>
-
-
-###  Подробнее
-
-10-11 этапы электрической формулы Formula E в Германии, Берлине.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:49:14 + 01:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7692FDCA6912CB382B78AF55A965047286EA208B
 ```
 
 https://mybot314.ru/tekegram_catalog/

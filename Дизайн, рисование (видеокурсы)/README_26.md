@@ -1,3 +1,29 @@
+###  Публикация: 1505123   (805707) от 26.10.2021
+
+Profileschool, Никита Чесноков | Cinema 4D. Продвинутый уровень (2019) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_805707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите прокачать свой скилл не только в 3D графике, но и в моушн-дизайне? Продвинутый курс – это возможность выйти на новый уровень по изготовлению качественной графики и собрать достойное профессиональное портфолио. Мы научим вас создавать бродкаст-сцены со стеклянными материалами, использовать стандартный рендер для достижения фотореализма, интегрировать 3D в видео (   Читать дальше...   )Производство: ProfileschoolЖанр: Создание видеоПродолжительность: 20:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6E6B215B54400D7F5E5F0EFA122F3496F256FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505335   (805702) от 26.10.2021
 
 Дарья Булавина | Курс по Photoshop 1М (2021) WEB-DL [AD]
@@ -6,7 +32,7 @@
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805702.jpg" />
+  <img src="Z:/picture/008/save_picture_805702.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804659.jpg" />
+  <img src="Z:/picture/008/save_picture_804659.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ XYZ School, Константин Файзуллин | Нарративный д�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803851.jpg" />
+  <img src="Z:/picture/008/save_picture_803851.jpg" />
 </div>
 
 
@@ -90,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801365.jpg" />
+  <img src="Z:/picture/008/save_picture_801365.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801349.jpg" />
+  <img src="Z:/picture/008/save_picture_801349.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801347.jpg" />
+  <img src="Z:/picture/008/save_picture_801347.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Greyscalegorilla, Nik V | Topology Crash Course (2020) PCRec [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800827.jpg" />
+  <img src="Z:/picture/008/save_picture_800827.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ Stan Prokopenko | How To Draw Gesture (En) (2013) WEB-DL [En]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800823.jpg" />
+  <img src="Z:/picture/008/save_picture_800823.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800762.jpg" />
+  <img src="Z:/picture/008/save_picture_800762.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800732.jpg" />
+  <img src="Z:/picture/008/save_picture_800732.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ Master Draw, Денис Крупчатников | Курс скетчинга �
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800731.jpg" />
+  <img src="Z:/picture/008/save_picture_800731.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ Master Draw, Денис Крупчатников | Конструктивный 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800726.jpg" />
+  <img src="Z:/picture/008/save_picture_800726.jpg" />
 </div>
 
 
@@ -331,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800723.jpg" />
+  <img src="Z:/picture/008/save_picture_800723.jpg" />
 </div>
 
 
@@ -359,7 +385,7 @@ Pixel, Таня Климань | Персонажи в Adobe Illustrator (2020) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800681.jpg" />
+  <img src="Z:/picture/008/save_picture_800681.jpg" />
 </div>
 
 
@@ -388,7 +414,7 @@ Cloudlessons, Инна Гревцева | Основы коммерческой 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800680.jpg" />
+  <img src="Z:/picture/008/save_picture_800680.jpg" />
 </div>
 
 
@@ -416,7 +442,7 @@ Polygon Runway, Roman Klco | 3D персонажи и иллюстрации в 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800668.jpg" />
+  <img src="Z:/picture/008/save_picture_800668.jpg" />
 </div>
 
 
@@ -444,7 +470,7 @@ Skillbox, Pic-o-matic, Денис Бобкин и др. | Книжная илл�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799756.jpg" />
+  <img src="Z:/picture/008/save_picture_799756.jpg" />
 </div>
 
 
@@ -472,7 +498,7 @@ Yanetskaya, Светлана Янецкая | Ми-ми-мишная иллюс�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798603.jpg" />
+  <img src="Z:/picture/008/save_picture_798603.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Yanetskaya, Светлана Янецкая | Цифровая книжная и
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798540.jpg" />
+  <img src="Z:/picture/008/save_picture_798540.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Udemy, Алексей Кириченко (Alexey Kirichenko) | Персонаж�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798528.jpg" />
+  <img src="Z:/picture/008/save_picture_798528.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ Skillshare, Gesa Pickbrenner | Learn Blender 2.90: Creative and 3D Printable Jew
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798077.jpg" />
+  <img src="Z:/picture/008/save_picture_798077.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ Skillshare, Gesa Pickbrenner | Foundations of Blender 2.90: Jewelry Design in 3D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798067.jpg" />
+  <img src="Z:/picture/008/save_picture_798067.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ CG Cookie, Kent Trammell | Styling and Rendering Long Hair with Blender and Cycl
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797333.jpg" />
+  <img src="Z:/picture/008/save_picture_797333.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ FlippedNormals, Konrad Hetko | Creating Hair for Games in Blender (2021) PCRec [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797275.jpg" />
+  <img src="Z:/picture/008/save_picture_797275.jpg" />
 </div>
 
 
@@ -661,7 +687,7 @@ Highlights School | Основы веб-дизайна (2015) PCRec [H.264/720p]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797231.jpg" />
+  <img src="Z:/picture/008/save_picture_797231.jpg" />
 </div>
 
 
@@ -675,34 +701,6 @@ Highlights School | Основы веб-дизайна (2015) PCRec [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756BC00395F2563BEC853659F67FDDA83FFAFB24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385819   (795102) от 28.05.2020
-
-Даниил Волосатов | Основы коммерческого веб-дизайна 3.0 (2019) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучающий курс включает 107 уроков (объединённых в 4 модуля) и 26 домашних заданий. Его длительность – 15 часов (только видеоуроков). Начиная с самого нуля, ты создашь профессиональный сайт и лендинг, которые не стыдно презентовать в своем портфолио.
-
-Преимущества курса – особые авторские приемы: Даниил делится своим опытом в ценообразовании и масштабных проектах. (   Читать дальше...   )Производство: https://photoshop-master.orgЖанр: ДизайнПродолжительность: ~15:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6CBCE365D86D070B9EF654AE75330368911960
 ```
 
 https://mybot314.ru/tekegram_catalog/

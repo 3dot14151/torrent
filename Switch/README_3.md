@@ -6,7 +6,7 @@ Animal Crossing: New Horizons (2020) [Switch] [USA] 16.0.0 [NSP] [License / 2.0.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_202024.jpg" />
+  <img src="Z:/picture/005/save_picture_202024.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Bayonetta 3 (2022) [Switch] [EUR] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192442.jpg" />
+  <img src="Z:/picture/004/save_picture_192442.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Factorio (2022) [Switch] [US] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192202.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Sonic Frontiers (2022) [Switch] [US] 14.1.2 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191179.jpg" />
+  <img src="Z:/picture/004/save_picture_191179.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Witcher 3: Wild Hunt - Complete Edition (2019) [Switch] [EUR] 16.0.0 [NSZ] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178471.jpg" />
+  <img src="Z:/picture/005/save_picture_178471.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Sam & Max Save the World (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.2] [R
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176202.jpg" />
+  <img src="Z:/picture/004/save_picture_176202.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Clubhouse Games: 51 Worldwide Classics (2020) [Switch] [USA] 10.2.0 [NSP] [Licen
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175450.jpg" />
+  <img src="Z:/picture/004/save_picture_175450.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ DOOM Eternal (2020) [Switch] [EUR] 10.2.0 [NSP] [License / 1.2 / DLC] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174015.jpg" />
+  <img src="Z:/picture/004/save_picture_174015.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Mortal Kombat 1 Premium Edition (2023) [Switch] [USA] 16.0.3 [NSZ] [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173268.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ The Long Dark (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.89.69528] [Ru/Mult
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_170213.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ LEGO CITY Undercover (2017) [Switch] [EUR] [NSZ] [License / 1.0.2] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167767.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ OCTOPATH TRAVELER (2018) [Switch] [USA] 8.1.0 [NSP] [Unofficial / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156698.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Hogwarts Legacy (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0.1 / DLC] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156093.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Hotline Miami Collection (2019) [Switch] [USA] 16.0.0 [NSP] [License / 2.03] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156078.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Red Dead Redemption (2023) [Switch] [USA] 16.0.3 [NSZ] [License / 1.0.3] [Ru/En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154828.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Mario Kart 8 Deluxe (2017) [Switch] [EUR] 16.1.0 [NSZ] [License / 3.0.0 / DLC] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154809.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Unravel Two (2019) [Switch] [USA] 9.1.0 [NSZ] [License] [En]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154647.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Super Smash Bros. Ultimate (2018) [Switch] [Region Free] 6.0 [eShop] [Ru/Multi]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152961.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Grid Autosport (2019) [Switch] [USA] 9.0.1 [NSZ] [License / DLC / 1.5_46790] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152718.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ New Super Mario Bros. U Deluxe (2019) [Switch] [EUR] 8.1.0 [NSZ] [License] [Ru/M
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145518.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Borderlands 3 Ultimate edition (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134679.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Minecraft Dungeons (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.17.0.0 / DLC]
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133982.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Super Mario Bros Wonder (2023) [Switch] [USA] 17.0.0 [NSP] [License / 1.0.1] [Ru
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132170.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Diablo II: Resurrected (2021) [Switch] [USA] 16.1.0 [NSP] [License / 1.0.25.0] [
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55476.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ The Legend of Zelda: Echoes of Wisdom (2024) [Switch] [USA] 18.1.0 [License / 1.
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42699.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Alien: Isolation (2019) [Switch] [USA] 14.0.0 [NSZ] [License / 1.1.4_60709] [Ru/
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42489.jpg" />
 </div>
 
 

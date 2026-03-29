@@ -1,3 +1,57 @@
+###  Публикация: 1818422   (2444) от 16.09.2025
+
+Ui Kits - UI8 - FRQNCY STUDIO [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frequency — это современный и минималистичный шаблон студии, созданный для агентств, дизайнеров и креативщиков, стремящихся эффектно представить свои работы. Благодаря ритмичным макетам, смелой типографике и захватывающей анимации этот шаблон обеспечивает плавный переход от домашней страницы к кейсам. Он включает в себя настраиваемые страницы для работы, студии, (   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA41C9BEEDF182DB6212B82DB72A65B1233EBD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818538   (2320) от 17.09.2025
+
+Ui Kits - UI8 - HotelQu - Booking Hotel Mobile App [FIG]
+
+>>Материалы для мультимедиа и дизайна
+>>Web-дизайн и шаблоны сайтов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2320.jpg" />
+</div>
+
+
+###  Подробнее
+
+HotelQu — это UI-кит для мобильного приложения бронирования отелей, включающий 125+ высококачественных экранов с чистым, аккуратным и современным дизайном. Доступны светлая и тёмная темы оформления в Figma.
+
+Этот UI-кит можно бесплатно настроить под ваши нужды в любом проекте. HotelQu предлагает бесплатные шрифты, безупречный дизайн, поддержку организованных слоёв (   Читать дальше...   )Формат: FIG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA82937FA33A91026B4AF1C0520B2812BCB91C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818979   (1975) от 19.09.2025
 
 Ui Kits - UI8 - Farmiant - Farming Assistant App UI Kit [FIG]
@@ -6,7 +60,7 @@ Ui Kits - UI8 - Farmiant - Farming Assistant App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1975.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Ui Kits - UI8 - Travela - Travel & Booking Mobile App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1570.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1455.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ Ui Kits - UI8 - Oxtopus - Web3 Wallet Mobile App [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1422.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ Ui Kits - UI8 - Marz - Crypto Wallet App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1309.jpg" />
 </div>
 
 
@@ -143,7 +197,7 @@ Ui Kits - UI8 - Virtual Brain | AI Chatbot App UI Kit [FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_795.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Ui Kits - UI8 - Lumen Loops [SVG, WEBM, MP4, FIG]
 >>Web-дизайн и шаблоны сайтов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_793.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1493904   (892410) от 05.09.2021
+
+Chris de Burgh - The Legend of Robin Hood (2021) [MP3|320 Kbps] <Pop Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_892410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Robin Hood Overture [00:03:08]
+02 - The Tale of Robin Hood [00:03:13]
+03 - The Wedding Feast [00:03:47]
+04 - Only a Child [00:03:01](   Читать дальше...   )Жанр: Pop Rock, Folk RockПродолжительность: 01:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74E00D464A9335C740528608ED695473AA18D4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371614   (890082) от 31.03.2020
 
 Брати Гадюкіни - Сміх і гріх (2019) [MP3|320 kbps] <Rock>
@@ -6,7 +35,7 @@
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890082.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Proud Peasant - Peasantsong (2021) [MP3|320 Kbps] <Progressive-Rock, Symphonic-P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889351.jpg" />
+  <img src="Z:/picture/005/save_picture_889351.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Omana - Альбом Жахів (2020) [MP3|320 kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887262.jpg" />
+  <img src="Z:/picture/005/save_picture_887262.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - History of Rock (2016) [MP3|320 кб/с] <Rock, Mashup>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886212.jpg" />
+  <img src="Z:/picture/005/save_picture_886212.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Steve Hackett - Surrender of Silence (2021) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886116.jpg" />
+  <img src="Z:/picture/005/save_picture_886116.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Knight Area - Heaven and Beyond (2017) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885920.jpg" />
+  <img src="Z:/picture/005/save_picture_885920.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - NOW Rock Icons (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885470.jpg" />
+  <img src="Z:/picture/005/save_picture_885470.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Cinderella - Best ballads (2001) [MP3|320 kbps]<Hard-rock / Glam-rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_883649.jpg" />
+  <img src="Z:/picture/008/save_picture_883649.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ VA - Eddie Stobart Trucking Songs: Trucking All over the World (2014) [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883522.jpg" />
+  <img src="Z:/picture/005/save_picture_883522.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Rhythm Sophie - Born To Live The Blues (2014) [MP3|320 кб/с] <Rhythm & Blues,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882958.jpg" />
+  <img src="Z:/picture/005/save_picture_882958.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ VA - 100Hits Rock (5CD) (2007) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_881959.jpg" />
+  <img src="Z:/picture/008/save_picture_881959.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ VA - 100 Rock Classics (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881890.jpg" />
+  <img src="Z:/picture/005/save_picture_881890.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ VA - Kid Friendly Classic Rock (2021) [MP3|320 Kbps] <Rock, Children Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880536.jpg" />
+  <img src="Z:/picture/005/save_picture_880536.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Ufo - Force It (1975) Deluxe Edition, 2021, Remaster [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880525.jpg" />
+  <img src="Z:/picture/005/save_picture_880525.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Jenix - Circles (2014) [MP3|320 кб/с]<Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880103.jpg" />
+  <img src="Z:/picture/005/save_picture_880103.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Syd Barrett - Crazy Diamond (2021) Compilation, Japanese Edition [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878933.jpg" />
+  <img src="Z:/picture/005/save_picture_878933.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Chris Rea - Looking For The Summer (2021) 2xCD, Compilation, Japanese Edition [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878809.jpg" />
+  <img src="Z:/picture/005/save_picture_878809.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876725.jpg" />
+  <img src="Z:/picture/005/save_picture_876725.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876701.jpg" />
+  <img src="Z:/picture/005/save_picture_876701.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Firkin - Finger in the Pie (2014) [MP3|320 кб/с]<Folk-Rock, Punk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876390.jpg" />
+  <img src="Z:/picture/005/save_picture_876390.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Accept (JP) - Apogee (2021) [MP3|320 Kbps] <Symphonic Prog>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875843.jpg" />
+  <img src="Z:/picture/005/save_picture_875843.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Jimi Hendrix - Best Of Jimi Hendrix (1999) 2CD [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875341.jpg" />
+  <img src="Z:/picture/005/save_picture_875341.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Joe Satriani - Shapeshifting (2020) [MP3|320 Kbps] <Instrumental Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874089.jpg" />
+  <img src="Z:/picture/008/save_picture_874089.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Sam Apple Pie - East 17 (1972) [MP3|320 кб/с] <Rock, Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873895.jpg" />
+  <img src="Z:/picture/008/save_picture_873895.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ Led Zeppelin - Ballads (2014) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873281.jpg" />
+  <img src="Z:/picture/008/save_picture_873281.jpg" />
 </div>
 
 
@@ -719,41 +748,6 @@ Led Zeppelin - Ballads (2014) [MP3|320 кб/с] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43998707B1E01E2374CAE79861B9C9B8B8D36286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186869   (873239) от 30.03.2010
-
-VA Rock Ballads - Сборник (2009) [MP3|320 kbps]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beatles - Yesterday (2:05)
-02. Smokie - What Can I Do (3:40)
-03. Helloween - A Tale That Wasn't Right (4:45)
-04. Kate Bush - Army Dreamers (3:15)
-05. Rod Stewart - Sailing (4:22)
-06. Smokie - Stranger (3:16)
-07. The Platters - Onlu You (2:39)
-08. The Beatles - And I Love Her (2:28)
-09. Rare Bird - Sympathy (2:45)
-10. The Beatles - I'll Be Back (2:20)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

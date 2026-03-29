@@ -1,3 +1,83 @@
+###  Публикация: 1246001   (467544) от 08.09.2018
+
+Джейми Кэт Каллан | О-ля-ля! Французские секреты великолепной внешности (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_467544.jpg" />
+</div>
+
+
+###  Подробнее
+
+К 30 годам все француженки очаровательны и прекрасны, даже если от природы у них весьма средние данные. Не стремясь следовать трендам, они тем не менее всегда выглядят стильно. Ложиться под нож пластического хирурга – это не про них! Француженки умеют стареть едва заметно и очень достойно. Может показаться, что безупречный вкус и невероятный шарм они впитывают еще (   Читать дальше...   )Жанр: Социальная психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB14DD37F5D55ED6631BE7A671DF0D3BFBA7731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246029   (467439) от 08.09.2018
+
+Мариано Сигман | Тайная жизнь мозга. Как наш мозг думает, чувствует и принимает решения (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_467439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настало время раскрыть все тайны нашего мозга! В этой книге Мариано Сигман, аргентинский нейробиолог и спикер TED Talks, отправляется в путешествие по закоулкам человеческого сознания.
+
+Основанное на последних научных достижениях и открытиях, его исследование дает ответы на самые, казалось бы, неразрешимые вопросы о нашем мышлении и переворачивает представление о (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B6568255E73D7E2E9530067E52AC623B2C0F01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245663   (467357) от 08.09.2018
+
+Джона Сакс | Мысли парадоксально. Как дурацкие идеи меняют жизнь (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_467357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы – люди привычки, запрограммированы эволюцией на безопасность, особенно когда ставки высоки. Но мир меняется, и теперь, не выйдя из зоны комфорта, невозможно добиться желаемых высот. Благодаря книге «Мысли парадоксально. Как дурацкие идеи меняют жизнь» вы узнаете, как бросить вызов себе, измениться, не бояться мыслить смело и рискованно – ведь кто не рискует, тот (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42D3977CA3BD6EA876D0C41CC551DAD791ABF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320588   (466920) от 20.08.2019
 
 Уильямс Кэролайн (ред.)| Как работает ваш мозг. Внутри самого сложного объекта во Вселенной (2019) [PDF]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466920.jpg" />
+  <img src="Z:/picture/008/save_picture_466920.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466917.jpg" />
+  <img src="Z:/picture/008/save_picture_466917.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466824.jpg" />
+  <img src="Z:/picture/008/save_picture_466824.jpg" />
 </div>
 
 
@@ -90,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466065.jpg" />
+  <img src="Z:/picture/008/save_picture_466065.jpg" />
 </div>
 
 
@@ -116,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465122.jpg" />
+  <img src="Z:/picture/008/save_picture_465122.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465095.jpg" />
+  <img src="Z:/picture/008/save_picture_465095.jpg" />
 </div>
 
 
@@ -170,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464762.jpg" />
+  <img src="Z:/picture/008/save_picture_464762.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464761.jpg" />
+  <img src="Z:/picture/008/save_picture_464761.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464457.jpg" />
+  <img src="Z:/picture/008/save_picture_464457.jpg" />
 </div>
 
 
@@ -249,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463473.jpg" />
+  <img src="Z:/picture/008/save_picture_463473.jpg" />
 </div>
 
 
@@ -276,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463343.jpg" />
+  <img src="Z:/picture/008/save_picture_463343.jpg" />
 </div>
 
 
@@ -304,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463341.jpg" />
+  <img src="Z:/picture/008/save_picture_463341.jpg" />
 </div>
 
 
@@ -332,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463232.jpg" />
+  <img src="Z:/picture/008/save_picture_463232.jpg" />
 </div>
 
 
@@ -358,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463231.jpg" />
+  <img src="Z:/picture/008/save_picture_463231.jpg" />
 </div>
 
 
@@ -385,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462043.jpg" />
+  <img src="Z:/picture/008/save_picture_462043.jpg" />
 </div>
 
 
@@ -411,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461461.jpg" />
+  <img src="Z:/picture/008/save_picture_461461.jpg" />
 </div>
 
 
@@ -440,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461430.jpg" />
+  <img src="Z:/picture/008/save_picture_461430.jpg" />
 </div>
 
 
@@ -466,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461047.jpg" />
+  <img src="Z:/picture/008/save_picture_461047.jpg" />
 </div>
 
 
@@ -492,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460943.jpg" />
+  <img src="Z:/picture/008/save_picture_460943.jpg" />
 </div>
 
 
@@ -518,7 +598,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460940.jpg" />
+  <img src="Z:/picture/008/save_picture_460940.jpg" />
 </div>
 
 
@@ -546,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460493.jpg" />
+  <img src="Z:/picture/008/save_picture_460493.jpg" />
 </div>
 
 
@@ -573,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459776.jpg" />
+  <img src="Z:/picture/008/save_picture_459776.jpg" />
 </div>
 
 
@@ -599,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459358.jpg" />
+  <img src="Z:/picture/008/save_picture_459358.jpg" />
 </div>
 
 
@@ -610,86 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AA487387C1865798BDDDE76C4D81C7D3E52024D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059897   (459192) от 05.10.2016
-
-Ди Джой Коултер | Супер ноль. Как перезагрузка мозга открывает вашу врожденную гениальность (2016) [EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459192.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вспомните, каково это – воспринимать мир как в детстве. Остро ощущать все, что происходит вокруг, удивляться каждой мелочи и загораться желанием творить. С книгой «Супер ноль» вы отправитесь в путешествие для того, чтобы освежить свой взгляд на действительность и раскрыть свои многочисленные способности. Рассказывая об увлекательных исследованиях, идеях, историях (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA6A8FA1FCEA5F423E65EAC5127CBBD7835CDBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059877   (459139) от 05.10.2016
-
-Джулия Кэмерон | Долгие прогулки. Практический подход к творчеству (2016) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая книга трилогии "Путь художника", в которой Джулия Кэмерон рассказывает о следующем шаге её курса по раскрытию креативности.
-Эта книга - продолжение культового "Пути художника" Джулии Кэмерон, вторая часть её трилогии. В ней она показывает читателям, как преодолеть препятствия, встречающиеся на творческом пути. Кэмерон разбирает проблемы, (   Читать дальше...   )Жанр: Психология, Креативность, ТворчествоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F805D0352CF17EA7351198E620DFC3D3FF925A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162290   (458774) от 01.09.2017
-
-Бор Стенвик | Все мы врём. Как ложь, жульничество и самообман делают нас людьми (2016) [PDF, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Занимательные истории и научные гипотезы, изложенные в книге, помогут вам разобраться в разных видах лжи, и понять, почему большинство людей и животных просто не в состоянии без нее обходиться.
-Вы также научитесь распознавать чужой обман и меньше обманывать самих себя.Жанр: ПсихологияФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CC5787A968A5DAB0FFAE3DFBC9EC6AB7A22ED4
 ```
 
 https://mybot314.ru/tekegram_catalog/

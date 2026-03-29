@@ -6,7 +6,7 @@ I Miss My Death - Mysto (2020) [MP3|320 Kbps] <Gothic Sympho Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874711.jpg" />
+  <img src="Z:/picture/005/save_picture_874711.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Axxis - Virus of a Modern Time (2020) (EP) [MP3|320 Kbps] <Melodic Heavy, Power 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874577.jpg" />
+  <img src="Z:/picture/005/save_picture_874577.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Metal Church - From the Vault (2020) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874568.jpg" />
+  <img src="Z:/picture/005/save_picture_874568.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Crisix - From Blue To Black (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873908.jpg" />
+  <img src="Z:/picture/008/save_picture_873908.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Inner Wish - Inner Wish (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873903.jpg" />
+  <img src="Z:/picture/008/save_picture_873903.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Mob Rules - Tales From Beyond (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873900.jpg" />
+  <img src="Z:/picture/008/save_picture_873900.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Mystic Prophecy - War Brigade (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873897.jpg" />
+  <img src="Z:/picture/008/save_picture_873897.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Blaze Bayley - Infinite Entanglement (2016) [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873848.jpg" />
+  <img src="Z:/picture/008/save_picture_873848.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ ColdWorld - Autumn (2016) [MP3|320 Kbps] <Depressive Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873833.jpg" />
+  <img src="Z:/picture/008/save_picture_873833.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Frowning - Extinct (2017) [MP3|320 Kbps] <Funeral Doom Metal, Doom-Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873825.jpg" />
+  <img src="Z:/picture/008/save_picture_873825.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Almanac - Tsar (2016) [MP3|320 кб/с] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873691.jpg" />
+  <img src="Z:/picture/008/save_picture_873691.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Omnium Gatherum - 7 Albums, 4 Singles, 4 Demo, 3 Reissue & Remaster (1999-2016) 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873679.jpg" />
+  <img src="Z:/picture/008/save_picture_873679.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Megatherium - 3 Альбома (2016-2020) [MP3|320 Kbps] <Psychedelic Stoner, D
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873157.jpg" />
+  <img src="Z:/picture/008/save_picture_873157.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Bullet - Highway Pirates (2011) [MP3|320 kbps]<Heavy metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873122.jpg" />
+  <img src="Z:/picture/008/save_picture_873122.jpg" />
 </div>
 
 
@@ -417,7 +417,7 @@ Rage - Resurrection Day (2021) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873016.jpg" />
+  <img src="Z:/picture/008/save_picture_873016.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Arctic Sleep - 8 Albums/1 Tribute (2006 - 2020) [MP3|320 Kbps] <Atmospheric Doom
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872993.jpg" />
+  <img src="Z:/picture/008/save_picture_872993.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Vredehammer - Violator (2016) [MP3|320 кб/с] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872122.jpg" />
+  <img src="Z:/picture/008/save_picture_872122.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Deos - .​.​.​To Depart (2015) [MP3|320 кб/с] <Funeral Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872091.jpg" />
+  <img src="Z:/picture/008/save_picture_872091.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Toxic Waltz - From A Distant View (2016) [MP3|320 кб/с] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872087.jpg" />
+  <img src="Z:/picture/008/save_picture_872087.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Human Fortress - Thieves Of The Night (2016) [MP3|320 кб/с] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872080.jpg" />
+  <img src="Z:/picture/008/save_picture_872080.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ The Storyteller - Sacred Fire (2015) [MP3|320 кб/с]<Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872073.jpg" />
+  <img src="Z:/picture/008/save_picture_872073.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ Entwine - 7 альбомов (1999-2015) [MP3|320 кб/с] <Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872037.jpg" />
+  <img src="Z:/picture/008/save_picture_872037.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Dante - When We Were Beautiful (2016) [MP3|320 кб/с] < Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872029.jpg" />
+  <img src="Z:/picture/008/save_picture_872029.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ Ancestral - Master Of Fate (2017) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871659.jpg" />
+  <img src="Z:/picture/008/save_picture_871659.jpg" />
 </div>
 
 
@@ -707,7 +707,7 @@ Final Product - 3 Singles (2019-2020) [MP3|320 Kbps] <Metalcore, Melodic Death M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871360.jpg" />
+  <img src="Z:/picture/008/save_picture_871360.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ Viscera - Obsidian (2020) [MP3|320 Kbps] <Progressive Metalcore, Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871354.jpg" />
+  <img src="Z:/picture/008/save_picture_871354.jpg" />
 </div>
 
 

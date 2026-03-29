@@ -1,3 +1,60 @@
+###  Публикация: 1145470   (621546) от 25.06.2017
+
+Пола Брекстон | Возвращение ведьмы (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_621546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Дочь ведьмы».
+
+Лодка, серебристая река в жутковатом свете ночи, и жизнь, висящая на волоске… Героям нового романа Полы Брекстон придется несладко.
+Теган уже не угловатый подросток. Смерть лучшего друга, ведьмы Элизабет, навсегда изменила ее и заставила по-другому взглянуть на знакомые вещи. Она объездила мир, познакомилась с новыми людьми. Теган (   Читать дальше...   )Жанр: Городское фэнтези, Зарубежное фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A5DC79F6D090498296EEC221B59E21A4CE1CE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036379   (620998) от 20.07.2016
+
+Алиса Одинцова | Любовь и мафия (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Любовь и мафия».
+
+Город засыпает…просыпается мафия. Этот мир соблазнов и возможностей, жестокости и порока принадлежит магическим кланам, которые не остановятся ни перед чем, чтобы утвердить свою репутацию. Для Катарины Ларссон, потомственного полицейского, нет ничего важнее долга и чести, но убийство брата переворачивает ее жизнь с ног на голову. (   Читать дальше...   )Жанр: Современные детективы, Детективная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33363493E2C4911E9A3FA403C36D7564D45D2B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522847   (620976) от 14.07.2012
 
 Дмитрий Браславский, Наталия Подлесная | Войны магов (3 книги) [2006-2007] [RTF, FB2]
@@ -6,7 +63,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620976.jpg" />
+  <img src="Z:/picture/008/save_picture_620976.jpg" />
 </div>
 
 
@@ -32,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620918.jpg" />
+  <img src="Z:/picture/008/save_picture_620918.jpg" />
 </div>
 
 
@@ -58,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620907.jpg" />
+  <img src="Z:/picture/008/save_picture_620907.jpg" />
 </div>
 
 
@@ -85,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620880.jpg" />
+  <img src="Z:/picture/008/save_picture_620880.jpg" />
 </div>
 
 
@@ -111,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620854.jpg" />
+  <img src="Z:/picture/008/save_picture_620854.jpg" />
 </div>
 
 
@@ -140,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620727.jpg" />
+  <img src="Z:/picture/008/save_picture_620727.jpg" />
 </div>
 
 
@@ -168,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620724.jpg" />
+  <img src="Z:/picture/008/save_picture_620724.jpg" />
 </div>
 
 
@@ -196,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620653.jpg" />
+  <img src="Z:/picture/008/save_picture_620653.jpg" />
 </div>
 
 
@@ -224,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620261.jpg" />
+  <img src="Z:/picture/008/save_picture_620261.jpg" />
 </div>
 
 
@@ -250,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619976.jpg" />
+  <img src="Z:/picture/008/save_picture_619976.jpg" />
 </div>
 
 
@@ -279,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619624.jpg" />
+  <img src="Z:/picture/008/save_picture_619624.jpg" />
 </div>
 
 
@@ -306,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619506.jpg" />
+  <img src="Z:/picture/008/save_picture_619506.jpg" />
 </div>
 
 
@@ -332,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619385.jpg" />
+  <img src="Z:/picture/008/save_picture_619385.jpg" />
 </div>
 
 
@@ -359,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619228.jpg" />
+  <img src="Z:/picture/008/save_picture_619228.jpg" />
 </div>
 
 
@@ -386,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619090.jpg" />
+  <img src="Z:/picture/008/save_picture_619090.jpg" />
 </div>
 
 
@@ -412,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618844.jpg" />
+  <img src="Z:/picture/008/save_picture_618844.jpg" />
 </div>
 
 
@@ -438,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618627.jpg" />
+  <img src="Z:/picture/008/save_picture_618627.jpg" />
 </div>
 
 
@@ -464,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618540.jpg" />
+  <img src="Z:/picture/008/save_picture_618540.jpg" />
 </div>
 
 
@@ -490,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618492.jpg" />
+  <img src="Z:/picture/008/save_picture_618492.jpg" />
 </div>
 
 
@@ -516,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618430.jpg" />
+  <img src="Z:/picture/008/save_picture_618430.jpg" />
 </div>
 
 
@@ -543,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617959.jpg" />
+  <img src="Z:/picture/008/save_picture_617959.jpg" />
 </div>
 
 
@@ -572,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617874.jpg" />
+  <img src="Z:/picture/008/save_picture_617874.jpg" />
 </div>
 
 
@@ -601,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617745.jpg" />
+  <img src="Z:/picture/008/save_picture_617745.jpg" />
 </div>
 
 
@@ -628,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617605.jpg" />
+  <img src="Z:/picture/008/save_picture_617605.jpg" />
 </div>
 
 
@@ -639,63 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6ADBF465E903177287988CFCE6961EA96A7108E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037042   (617054) от 22.07.2016
-
-Сергей Малицкий | Очертание тьмы (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман цикла «Приют окаянных».
-
-В пережившем вторжение, войну и планетарную катастрофу индустриальном мире через тысячи лет мрака и бедствий воцарилось время меча и магии. Природа залечивает раны, время стирает память о минувшем, но прошлое возвращается так же, как кровь из открывшейся раны пропитывает одежду.
-(   Читать дальше...   )Жанр: Героическая фантастика, Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71FC948D1AAA39BEC40B408A078DC06BFF4CC10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037039   (616959) от 22.07.2016
-
-Николай Степанов | Крылья для демона (2016) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Лорд».
-
-Провалившемуся в обитель демонов, как правило, возврата нет. Но каждое правило, как известно, имеет исключение. Вот и Леонид Царьков сумел вернуться на небеса, да еще остров с собой прихватил. Правда, в нагрузку ему навязали рыжего захребетника. И крутись теперь с этим хозяйством, как хочешь: война с мятежниками, интриги вельмож, вторжение (   Читать дальше...   )Жанр: Попаданцы, Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D360655EA0CE7E6DCA6B72FE4A4FA4C7E70566E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

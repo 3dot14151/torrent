@@ -1,3 +1,59 @@
+###  Публикация: 509990   (672803) от 13.06.2012
+
+Т.Н.Доронова, Е.В.Соловьева, А.Е.Жичкина, С.И.Мусиенко | Дошкольные учреждения и семья [2001] [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель данного пособия - помочь сотрудникам дошкольных образовательных учреждений установить равноправное творческое взаимодействие с семьями своих воспитанников, которое является залогом полноценного развития ребенка. В руководстве представлены содержание, формы и методы, обеспечивающие преемственность воспитания и обучения в условиях дошкольного образовательного учреждения и семьи.
+
+Книга может быть рекомендована руководителям ДОУ и старшим воспитателям. Надеемся, что она окажется полезной и вызовет интерес родителей, имеющих детей дошкольного возраста.2001Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0942759BD246E1741E83B4261D5319D5FCD16CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030779   (672066) от 01.07.2016
+
+Л. Попова (ред.) | Новый англо-русский русско-английский словарь с грамматическим приложением (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый англо-русский русско-английский словарь окажет неоценимую помощь в процессе изучения английского языка. Содержит около 40 000 слов и словосочетаний. В нем вы найдете самые необходимые слова и словосочетания, которые изучают в курсе школьной программы. Словарь дополнен кратким курсом английской грамматики.
+
+Предназначен для всех, кто изучает английский язык (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158BF6DC562D5A556879B56F86C31CDE524A8C25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031046   (670148) от 02.07.2016
 
 Анна Шатилова, Людмила Шмидтова | Занимательная математика, КВНы, викторины (2003) [PDF]
@@ -6,7 +62,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670148.jpg" />
+  <img src="Z:/picture/008/save_picture_670148.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669144.jpg" />
+  <img src="Z:/picture/008/save_picture_669144.jpg" />
 </div>
 
 
@@ -61,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668494.jpg" />
+  <img src="Z:/picture/008/save_picture_668494.jpg" />
 </div>
 
 
@@ -89,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667185.jpg" />
+  <img src="Z:/picture/008/save_picture_667185.jpg" />
 </div>
 
 
@@ -115,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667181.jpg" />
+  <img src="Z:/picture/008/save_picture_667181.jpg" />
 </div>
 
 
@@ -141,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666502.jpg" />
+  <img src="Z:/picture/008/save_picture_666502.jpg" />
 </div>
 
 
@@ -169,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664143.jpg" />
+  <img src="Z:/picture/008/save_picture_664143.jpg" />
 </div>
 
 
@@ -195,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664005.jpg" />
+  <img src="Z:/picture/008/save_picture_664005.jpg" />
 </div>
 
 
@@ -221,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663873.jpg" />
+  <img src="Z:/picture/008/save_picture_663873.jpg" />
 </div>
 
 
@@ -249,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662215.jpg" />
+  <img src="Z:/picture/008/save_picture_662215.jpg" />
 </div>
 
 
@@ -276,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662022.jpg" />
+  <img src="Z:/picture/008/save_picture_662022.jpg" />
 </div>
 
 
@@ -302,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662019.jpg" />
+  <img src="Z:/picture/008/save_picture_662019.jpg" />
 </div>
 
 
@@ -328,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660111.jpg" />
+  <img src="Z:/picture/008/save_picture_660111.jpg" />
 </div>
 
 
@@ -355,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660013.jpg" />
+  <img src="Z:/picture/008/save_picture_660013.jpg" />
 </div>
 
 
@@ -383,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659600.jpg" />
+  <img src="Z:/picture/008/save_picture_659600.jpg" />
 </div>
 
 
@@ -409,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658896.jpg" />
+  <img src="Z:/picture/008/save_picture_658896.jpg" />
 </div>
 
 
@@ -435,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658890.jpg" />
+  <img src="Z:/picture/008/save_picture_658890.jpg" />
 </div>
 
 
@@ -464,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658770.jpg" />
+  <img src="Z:/picture/008/save_picture_658770.jpg" />
 </div>
 
 
@@ -492,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657703.jpg" />
+  <img src="Z:/picture/008/save_picture_657703.jpg" />
 </div>
 
 
@@ -521,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657674.jpg" />
+  <img src="Z:/picture/008/save_picture_657674.jpg" />
 </div>
 
 
@@ -550,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656685.jpg" />
+  <img src="Z:/picture/008/save_picture_656685.jpg" />
 </div>
 
 
@@ -576,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656430.jpg" />
+  <img src="Z:/picture/008/save_picture_656430.jpg" />
 </div>
 
 
@@ -602,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656122.jpg" />
+  <img src="Z:/picture/008/save_picture_656122.jpg" />
 </div>
 
 
@@ -629,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655681.jpg" />
+  <img src="Z:/picture/008/save_picture_655681.jpg" />
 </div>
 
 
@@ -641,58 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1E3567521090C60C2FFEDA3326F898E911AE1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904381   (655580) от 02.06.2015
-
-Семен Узин | Загадки материков и океанов (1958) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кажется, что уже все острова, материки и океаны давно открыты и исследованы, но это совсем не так. Где-то глубоко в недрах Земли или в глубинах океана есть еще много любопытного, скрытого от посторонних глаз. Открыв книгу, перелистывая страницу за страницей, можно ощутить себя капитаном дальнего увлекательного плавания. Может, следующий открытый материк будет именно (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDB2EEB6194835BA7632B8524DD62614D1C7C8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904719   (654066) от 03.06.2015
-
-Юлия Гиппенрейтер | Самая важная книга для родителей (2013) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654066.jpg" />
-</div>
-
-
-###  Подробнее
-
-это издание вошли бестселлеры профессора Ю. Б. Гиппенрейтер «Общаться с ребенком. Как?», «Продолжаем общаться с ребенком. Так?» и хрестоматия «Родителям: как быть ребенком» – книги, совершившие революцию в области воспитания и продолжающие окрылять родителей. Автор подробно рассматривает воспитательные нормы, бытующие в нашей культуре много десятилетий, – и показывает, (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86BC20CB19B5495BD2418428C6893A7DC9A979BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

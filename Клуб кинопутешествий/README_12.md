@@ -1,3 +1,57 @@
+###  Публикация: 1380884   (824596) от 08.05.2020
+
+Прогулки по Дрездену, Германия / Dresden, Deutschland (2019) CamRip [H.264/1080p] [PR]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Короткометражный фильм по основным достопримечательностям Дрездена в Германии.
+//
+Ein Kurzfilm über die Hauptattraktionen der Stadt Dresden in Deutschland.Производство: Германия, РоссияЖанр: видовой, короткометражныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C091C183ECE78412B345314B267BE832010AE8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381310   (824592) от 08.05.2020
+
+Прогулки по Кисловодску (видеоэкскурсия) / Walks in Kislovodsk (2017) CamRip [H.264/1080p] [PR]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Короткометражная видеоэкскурсия «Прогулки по Кисловодску» даёт возможность зрителю увидеть красивые места, которые можно посетить в городе Кисловодске.Производство: Россия, КисловодскЖанр: видовой, короткометражныйРежиссер: Денис ВарламовПеревод: Не требуется (нет диалогов и озвученных комментариев)Продолжительность: 00:08:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A683B199C22F909C86E181828C6066BD270F54C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116193   (824577) от 19.03.2017
 
 Орел и решка. Перезагрузка (2017.03.19) WEB-DL [H.264/1080p-LQ] (сезон 14: Бангкок)
@@ -6,7 +60,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824577.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824572.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824480.jpg" />
 </div>
 
 
@@ -87,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824479.jpg" />
 </div>
 
 
@@ -115,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821238.jpg" />
+  <img src="Z:/picture/008/save_picture_821238.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819803.jpg" />
+  <img src="Z:/picture/008/save_picture_819803.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819754.jpg" />
+  <img src="Z:/picture/008/save_picture_819754.jpg" />
 </div>
 
 
@@ -195,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819648.jpg" />
+  <img src="Z:/picture/008/save_picture_819648.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817605.jpg" />
+  <img src="Z:/picture/008/save_picture_817605.jpg" />
 </div>
 
 
@@ -248,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813695.jpg" />
+  <img src="Z:/picture/008/save_picture_813695.jpg" />
 </div>
 
 
@@ -274,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813679.jpg" />
+  <img src="Z:/picture/008/save_picture_813679.jpg" />
 </div>
 
 
@@ -300,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813235.jpg" />
+  <img src="Z:/picture/008/save_picture_813235.jpg" />
 </div>
 
 
@@ -326,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812669.jpg" />
+  <img src="Z:/picture/008/save_picture_812669.jpg" />
 </div>
 
 
@@ -355,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811671.jpg" />
+  <img src="Z:/picture/008/save_picture_811671.jpg" />
 </div>
 
 
@@ -382,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811669.jpg" />
+  <img src="Z:/picture/008/save_picture_811669.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811662.jpg" />
+  <img src="Z:/picture/008/save_picture_811662.jpg" />
 </div>
 
 
@@ -435,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811493.jpg" />
+  <img src="Z:/picture/008/save_picture_811493.jpg" />
 </div>
 
 
@@ -461,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811362.jpg" />
+  <img src="Z:/picture/008/save_picture_811362.jpg" />
 </div>
 
 
@@ -487,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811224.jpg" />
+  <img src="Z:/picture/008/save_picture_811224.jpg" />
 </div>
 
 
@@ -514,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810423.jpg" />
+  <img src="Z:/picture/008/save_picture_810423.jpg" />
 </div>
 
 
@@ -541,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809242.jpg" />
+  <img src="Z:/picture/008/save_picture_809242.jpg" />
 </div>
 
 
@@ -567,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807967.jpg" />
+  <img src="Z:/picture/008/save_picture_807967.jpg" />
 </div>
 
 
@@ -593,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804309.jpg" />
+  <img src="Z:/picture/008/save_picture_804309.jpg" />
 </div>
 
 
@@ -620,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804301.jpg" />
+  <img src="Z:/picture/008/save_picture_804301.jpg" />
 </div>
 
 
@@ -632,59 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:075C28A255A5EC2247DFA1FAFCA0DFF6489BD6E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010264   (803838) от 24.04.2016
-
-Открытие Китая (2016.04.24) SATRip (серия 9)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803838.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Открытие Китая" - это цикл авторских документальных фильмов о Поднебесной. Автор Евгений Колесов – не профессиональный журналист, а бизнесмен.
-Двадцать лет назад, еще студентом, он поехал в Китай учиться, да так там и остался. Основал заграницей успешную консалтинговую фирму, женился на русской девушке, родил четверых детей. А потом как человек творческий (   Читать дальше...   )Телекомпания: Первый каналЖанр: Документальный, познавательный, путешествиеСубтитры: ОтсутствуютПродолжительность: 00:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB435FFD5EFBD842C828E3FA6AB629DF9A5F058B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120634   (801940) от 31.03.2017
-
-Великая гора Хуаншань (2014) HDTVRip [H.264/720p-LQ] (серии 1-6 из 6)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801940.jpg" />
-</div>
-
-
-###  Подробнее
-
-В глубине континента в 400 километрах от побережья Восточно-Китайского моря, возвышается горная гряда Хуаншань. Считается что Хуаншань был наречен в честь легендарного правителя древности, заложившего основы китайского государства. Китайцы называют Хуаншань "горами пяти чудес природы". Здесь можно увидеть реликтовые сосны и невероятной красоты скалы, взглянуть (   Читать дальше...   )Телекомпания: Китай, CCTVЖанр: Документальный, История, ВидовойРежиссер: Ван ЧжэньтаоПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русские неотключаемые (вшитые)Продолжительность: каждая часть ~00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5092EB0D2BEAA183A3EE63D3AF4A58D4441BC997
 ```
 
 https://mybot314.ru/tekegram_catalog/

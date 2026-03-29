@@ -1,3 +1,83 @@
+###  Публикация: 1521707   (764424) от 03.01.2022
+
+Иван Михайлович Концевич | Оптина Пустынь и ее время (2019) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Оптина Пустынь и ее время» написана известным писателем и богословом русского зарубежья Иваном Михайловичем Концевичем (1893-1965). В вводных главах раскрывается понятие старчества и прослеживается его история в России в XVIII-XIX веках. Особое внимание автор уделяет жизни и подвигам преподобных старцев Оптинских. В книге содержатся их письма и поучения, драгоценные (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:724750F7E58A314F6F8839D4BF5C44222265B416
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521528   (764421) от 03.01.2022
+
+Василисса Деревягина (сост.) | Миром правит Бог. Старцы Псково-Печерского монастыря о Промысле Божием (2019) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия представляет собой тематические подборки высказываний Псково-Печерских старцев. Псково-Печерское старчество — это особое явление, так как преемство от старца к ученику никогда не прерывалось. Поэтому эти наставления будут полезны всем: и воцерковленным людям, и тем, кто только начинает задумываться о духовной жизни и ищет свой путь к Богу. Данный сборник посвящён (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58D24534DB88E0F81E391F7DF8BD971B11904D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521734   (764415) от 03.01.2022
+
+Сретенский монастырь (изд.) | Псалтирь с заупокойными молитвами (2019) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764415.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге даны каноны и молитвы, которые мирянин может сам читать дома или на кладбище. Для удобства читающего, изложен порядок чтения Псалтири без сокращений молитв после кафизм.
+
+«Состояние усопших подобно положению человека, плывущего по очень опасной реке. Молитва за усопших - спасательный канат, который бросает человек утопающему ближнему. Если бы каким-нибудь (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F41ADB7D0921AA18627ECAA0EFFC8242CA166F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214517   (764057) от 22.03.2018
 
 Протоиерей Константин Островский | Умереть нам не удастся (2017) [PDF, DJVU]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764057.jpg" />
+  <img src="Z:/picture/008/save_picture_764057.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764055.jpg" />
+  <img src="Z:/picture/008/save_picture_764055.jpg" />
 </div>
 
 
@@ -61,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763303.jpg" />
+  <img src="Z:/picture/008/save_picture_763303.jpg" />
 </div>
 
 
@@ -90,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763291.jpg" />
+  <img src="Z:/picture/008/save_picture_763291.jpg" />
 </div>
 
 
@@ -118,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763249.jpg" />
+  <img src="Z:/picture/008/save_picture_763249.jpg" />
 </div>
 
 
@@ -144,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763027.jpg" />
+  <img src="Z:/picture/008/save_picture_763027.jpg" />
 </div>
 
 
@@ -173,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763025.jpg" />
+  <img src="Z:/picture/008/save_picture_763025.jpg" />
 </div>
 
 
@@ -199,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762947.jpg" />
+  <img src="Z:/picture/008/save_picture_762947.jpg" />
 </div>
 
 
@@ -225,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761779.jpg" />
+  <img src="Z:/picture/008/save_picture_761779.jpg" />
 </div>
 
 
@@ -251,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760429.jpg" />
+  <img src="Z:/picture/008/save_picture_760429.jpg" />
 </div>
 
 
@@ -277,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760423.jpg" />
+  <img src="Z:/picture/008/save_picture_760423.jpg" />
 </div>
 
 
@@ -303,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760242.jpg" />
+  <img src="Z:/picture/008/save_picture_760242.jpg" />
 </div>
 
 
@@ -331,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760240.jpg" />
+  <img src="Z:/picture/008/save_picture_760240.jpg" />
 </div>
 
 
@@ -359,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759839.jpg" />
+  <img src="Z:/picture/008/save_picture_759839.jpg" />
 </div>
 
 
@@ -385,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759837.jpg" />
+  <img src="Z:/picture/008/save_picture_759837.jpg" />
 </div>
 
 
@@ -411,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759830.jpg" />
+  <img src="Z:/picture/008/save_picture_759830.jpg" />
 </div>
 
 
@@ -437,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759292.jpg" />
+  <img src="Z:/picture/008/save_picture_759292.jpg" />
 </div>
 
 
@@ -463,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759201.jpg" />
+  <img src="Z:/picture/008/save_picture_759201.jpg" />
 </div>
 
 
@@ -489,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759191.jpg" />
+  <img src="Z:/picture/008/save_picture_759191.jpg" />
 </div>
 
 
@@ -515,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759050.jpg" />
+  <img src="Z:/picture/008/save_picture_759050.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758537.jpg" />
+  <img src="Z:/picture/008/save_picture_758537.jpg" />
 </div>
 
 
@@ -567,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757735.jpg" />
+  <img src="Z:/picture/008/save_picture_757735.jpg" />
 </div>
 
 
@@ -593,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757635.jpg" />
+  <img src="Z:/picture/008/save_picture_757635.jpg" />
 </div>
 
 
@@ -604,87 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF6597DDD54E79D9D38D3F0CEFF4FB8E9CAD2C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018056   (757554) от 19.05.2016
-
-Протоиерей Андрей Ткачёв | О мире и человеке. Сборник статей (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человеку нужно понять себя. Понять и найти. Многие вещи, которые казались нашим предкам прописными и очевидными, сегодня нужно доказывать. Это тяжёлый труд - объяснять и доказывать очевидное. Доказывать, что целомудрие - это красиво, что трудолюбие - это почётно, что верность - это свято... И Евангелие помогает нам в этом. С помощью Божьего слова мы хотим понять (   Читать дальше...   )Жанр: Духовно-просветительское изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131BB69CC64E9BD3A25DB8413EC42FD42A738ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522631   (756783) от 08.01.2022
-
-Митрополит Симон (Новиков) | Воспеваю благодать Твою, Владычице (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник проповедей, произнесённых митрополитом Симоном (Новиковым; 1928–2006) в рязанских храмах на Богородичные праздники. В издании также представлено краткое жизнеописание владыки.Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1CD83B618D4757424B237B3EE47FE2A36B75F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522816   (755187) от 09.01.2022
-
-Сатисъ (изд.) | Каноны, чтомые в различных нуждах (2007) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник канонов — второе, исправленное и дополненное издание — предлагается для келейного (домашнего) употребления. Каноны, вошедшие в него, — о самых насущных духовных и житейских нуждах.
-
-Да услышит Всеблагий Господь наши молитвы.
-(   Читать дальше...   )Жанр: ПравославиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28AC9A81EBA96387AC6636AA6BCB122D41E31FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

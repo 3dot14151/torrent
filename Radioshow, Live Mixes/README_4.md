@@ -1,3 +1,61 @@
+###  Публикация: 1498007   (859660) от 25.09.2021
+
+Dimitri Vegas & Like Mike - Tomorrowland Friendship Mix (2021-09-16) [MP3|320 Kbps] <Electro Pop, Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_859660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimitri Vegas & Like Mike & Felix Jaehn & Nea - Heard About Me
+02. Dimitri Vegas & Like Mike & Regard - Say My Name
+03. Dimitri Vegas & Like Mike & Azteck & ANGEMI - We'll Be Dancing Soon
+04. Dino Warriors ft. Leony - Show Me Love (Dimitri Vegas Edit)(   Читать дальше...   )Жанр: Electro Pop, Electro House, Big RoomПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDFE6246FB2C83B8D6E4383ADBC09974618A348D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109791   (857377) от 28.02.2017
+
+Aly & Fila - Future Sound Of Egypt 485 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming - Spirit Awaking
+02. A.R.D.I. ft. Allam - Never Look Back
+03. The Thrillseekers ft. Shannon Hurley - Stay (Here With Me) (Club Mix)
+04. Solis & Sean Truby pres. S&ST - Roots(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B268EA4ED9E2C9FA7ED39100306CDD0BDBAB242
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498631   (852733) от 29.09.2021
 
 Charlotte de Witte b2b Enrico Sangiuliano - The Age Of Love Stream (2021-08-12) [MP3|320 Kbps] <Techno>
@@ -6,7 +64,7 @@ Charlotte de Witte b2b Enrico Sangiuliano - The Age Of Love Stream (2021-08-12) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852733.jpg" />
+  <img src="Z:/picture/008/save_picture_852733.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Third Party - Release Radio (01-54) (2016-2021) [MP3|320 Kbps] <Electro House, P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843920.jpg" />
+  <img src="Z:/picture/008/save_picture_843920.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Live @ Behind The Mask, Transmission Prague, O2 Arena Prague, Czech Republi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839693.jpg" />
+  <img src="Z:/picture/008/save_picture_839693.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Vitaly Otto - City of Trance 001-042 (Обновляемая) (2014-2016) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839435.jpg" />
+  <img src="Z:/picture/008/save_picture_839435.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Microsha 89 - Микшер русской кибернетики #206 (2021) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838124.jpg" />
+  <img src="Z:/picture/008/save_picture_838124.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, District At
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836674.jpg" />
+  <img src="Z:/picture/008/save_picture_836674.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Korolova - Live @ Guaba Beach Bar Limassol, Cyprus (2021-09-10) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836548.jpg" />
+  <img src="Z:/picture/008/save_picture_836548.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Korolova & Two Are - Live @ Kachanivka Palace, Ukraine (2021-10-08) [MP3|320 Kbp
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836414.jpg" />
+  <img src="Z:/picture/008/save_picture_836414.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Korolova - Live @ New York, United States (2021-08-27) [MP3|320 Kbps] <Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836408.jpg" />
+  <img src="Z:/picture/008/save_picture_836408.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ daveepa x Fuerte x Rencontre Nocturne - Festival Anthem Music Mix 2020-04-10 [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835065.jpg" />
+  <img src="Z:/picture/008/save_picture_835065.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Kaneda - Eternal Spirit 001-... / Eternal Light 001-050 / Promo & Guest Mixes (2
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834509.jpg" />
+  <img src="Z:/picture/008/save_picture_834509.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ DJ Feel - Top 30 Of February (2017) [MP3|320 Kbps] <Progressive Trance, Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832079.jpg" />
 </div>
 
 
@@ -357,7 +415,7 @@ VA - Live  Creamfields UK, United Kingdom (2021) [MP3|320 Kbps] <Trance, Techno,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830005.jpg" />
 </div>
 
 
@@ -386,7 +444,7 @@ VA - Ori Uplift - Uplifting Only 255 (Tune of the Year Vote - Top 25 Countdown) 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822425.jpg" />
 </div>
 
 
@@ -415,7 +473,7 @@ VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819198.jpg" />
+  <img src="Z:/picture/008/save_picture_819198.jpg" />
 </div>
 
 
@@ -444,7 +502,7 @@ VA - Aly & Fila - Future Sound of Egypt 529 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819193.jpg" />
+  <img src="Z:/picture/008/save_picture_819193.jpg" />
 </div>
 
 
@@ -473,7 +531,7 @@ VA - Markus Schulz - Global DJ Broadcast - New Year’s Rehab (2018) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819069.jpg" />
+  <img src="Z:/picture/008/save_picture_819069.jpg" />
 </div>
 
 
@@ -502,7 +560,7 @@ VA - Ori Uplift - Uplifting Only 256 (Ori's Top 30 Vocal Uplifters of 2017) (201
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817698.jpg" />
+  <img src="Z:/picture/008/save_picture_817698.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ DJ Nike Twist - TranceWave 138 @ GTI Radio (21.04.2016) [MP3|320 кб/с] <Tranc
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803212.jpg" />
+  <img src="Z:/picture/008/save_picture_803212.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ VA - Ori Uplift - Uplifting Only 257 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801839.jpg" />
+  <img src="Z:/picture/008/save_picture_801839.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ VA - Aly & Fila - Future Sound Of Egypt 530 (2018) [MP3|320 Kbps] <Trance,Uplift
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801836.jpg" />
+  <img src="Z:/picture/008/save_picture_801836.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ VA - Markus Schulz - Global DJ Broadcast:World Tour - Los Angeles (2018) [MP3|32
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801094.jpg" />
+  <img src="Z:/picture/008/save_picture_801094.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ VA - DJ Feel - TOP 40 Russian Tracks 2017 (2018) [MP3|320 Kbps] <Trance,Progress
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801037.jpg" />
+  <img src="Z:/picture/008/save_picture_801037.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ Matt Bukovski - Live @ Pacha Poznań, Poland (2021-10-23) [MP3|320 Kbps] <Trance
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799167.jpg" />
+  <img src="Z:/picture/008/save_picture_799167.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ Matt Bukovski - Live @ Pacha Poznań, Poland (2021-10-23) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4C109F15E44494E66ADED0CFA6720EADD791DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506944   (799163) от 02.11.2021
-
-Maurice West - Live @ Stedelijk Museum (ADE) (2021-10-15) [MP3|320 Kbps] <House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maurice West - The Great Escape
-02. Armin van Buuren & AVIRA & Sam Martin vs. Tiësto & BT - Mask vs. Love Comes Again (Maurice West Mashup)
-03. Justus - Satisfaction 2021
-04. MOGUAI - ACIIID (Kryder & Benny Benassi Remix)(   Читать дальше...   )Жанр: House, Trance, TechnoПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88E88F7E142754AEAAC79220BC31432ECCBB0E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506270   (799132) от 02.11.2021
-
-Tiësto - Musical Freedom Radio October (2021-10-16) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiesto & Karol G - Don't Be Shy
-02. Kiko Franco & Bruno Be - Friday Night (It's Not Right)
-03. Mr. Belt & Wezol ft. Yasmin Jane - Broken Moonlight
-04. KREAM & Millean. ft. Bemende - What You've Done To Me(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FEBD48A557495DA48C3DF79955608130343C1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

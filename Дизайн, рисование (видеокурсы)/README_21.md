@@ -1,3 +1,31 @@
+###  Публикация: 1372536   (884773) от 03.04.2020
+
+CG Cookie | Основы моделирования 3D-меша в Blender 2.8 / Fundamentals of 3D Mesh Modeling in Blender 2.8 (2020) PCRec [H.264/1080p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот учебный курс проведет вас через все основные рабочие процессы моделирования полигональной сетки и покажет как использовать инструменты Blender.
+Вместе мы рассмотрим все наиболее часто используемые инструменты и настройки Blender, которые вы будете использовать для всех ваших следующих проектов моделирования.
+Но, что не менее важно, я помогу Вам понять фундаментальные (   Читать дальше...   )Производство: CG CookieЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 04:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE5400A10680227A7C7A17780772713EA1F228A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495384   (880377) от 12.09.2021
 
 FXPHD, Jeronimo Maggi | Advanced VEX & Python for Houdini TDs (2019) PCRec
@@ -6,7 +34,7 @@ FXPHD, Jeronimo Maggi | Advanced VEX & Python for Houdini TDs (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880377.jpg" />
+  <img src="Z:/picture/005/save_picture_880377.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ Chris Orwig | [Lynda.com]Photoshop Blend Modes for Photography [H.264/720p] [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878679.jpg" />
+  <img src="Z:/picture/005/save_picture_878679.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ j-design.pro, Сергей Привалов | 3D моделирование в Z
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878611.jpg" />
+  <img src="Z:/picture/005/save_picture_878611.jpg" />
 </div>
 
 
@@ -87,7 +115,7 @@ kondratiki | Абсолютный ZBrush курс ZBrush-1 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878596.jpg" />
+  <img src="Z:/picture/005/save_picture_878596.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ Viscorbel, Austris | Classic Furniture VOL2 ORNAMENT (2013) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877251.jpg" />
+  <img src="Z:/picture/005/save_picture_877251.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ Udemy, Steve Lord | Sculpting Animals (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877230.jpg" />
+  <img src="Z:/picture/005/save_picture_877230.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ Digital Tutors, Alex Jerjomin | Importing and Rendering a Stylized Environment i
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877120.jpg" />
+  <img src="Z:/picture/005/save_picture_877120.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ Digital Tutors, Alex Jerjomin | Texturing a Stylized Game Environment in Photosh
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877119.jpg" />
+  <img src="Z:/picture/005/save_picture_877119.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ Digital Tutors, Justin Marshall | Cloth Workflows in ZBrush (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877112.jpg" />
+  <img src="Z:/picture/005/save_picture_877112.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ Digital Tutors, Alex Jerjomin | Sculpting a Stylized Game Environment in ZBrush 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876981.jpg" />
+  <img src="Z:/picture/008/save_picture_876981.jpg" />
 </div>
 
 
@@ -276,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876961.jpg" />
+  <img src="Z:/picture/005/save_picture_876961.jpg" />
 </div>
 
 
@@ -304,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874675.jpg" />
+  <img src="Z:/picture/005/save_picture_874675.jpg" />
 </div>
 
 
@@ -332,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874674.jpg" />
+  <img src="Z:/picture/005/save_picture_874674.jpg" />
 </div>
 
 
@@ -358,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874387.jpg" />
+  <img src="Z:/picture/005/save_picture_874387.jpg" />
 </div>
 
 
@@ -387,7 +415,7 @@ Rohan Dalvi | Making dessert in Houdini Part 2 (2016) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872851.jpg" />
+  <img src="Z:/picture/008/save_picture_872851.jpg" />
 </div>
 
 
@@ -414,7 +442,7 @@ Uartsy, Marshall Vandruff | Animal Anatomy (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872597.jpg" />
+  <img src="Z:/picture/008/save_picture_872597.jpg" />
 </div>
 
 
@@ -441,7 +469,7 @@ Digital Tutors, Joshua Kinney | Game Asset Production Pipeline for Unity (2015) 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871049.jpg" />
+  <img src="Z:/picture/008/save_picture_871049.jpg" />
 </div>
 
 
@@ -469,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870894.jpg" />
+  <img src="Z:/picture/008/save_picture_870894.jpg" />
 </div>
 
 
@@ -497,7 +525,7 @@ Pixel, Сергей Галак | Анимация персонажа в After Ef
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870824.jpg" />
+  <img src="Z:/picture/008/save_picture_870824.jpg" />
 </div>
 
 
@@ -524,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870792.jpg" />
+  <img src="Z:/picture/008/save_picture_870792.jpg" />
 </div>
 
 
@@ -551,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870706.jpg" />
+  <img src="Z:/picture/008/save_picture_870706.jpg" />
 </div>
 
 
@@ -577,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869408.jpg" />
+  <img src="Z:/picture/008/save_picture_869408.jpg" />
 </div>
 
 
@@ -606,7 +634,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 7-8 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864582.jpg" />
+  <img src="Z:/picture/008/save_picture_864582.jpg" />
 </div>
 
 
@@ -632,7 +660,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 5-6 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864580.jpg" />
+  <img src="Z:/picture/008/save_picture_864580.jpg" />
 </div>
 
 
@@ -658,7 +686,7 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 3-4 (2020) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864570.jpg" />
+  <img src="Z:/picture/008/save_picture_864570.jpg" />
 </div>
 
 
@@ -669,34 +697,6 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 3-4 (2020) PCRec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5521A7D33014A5DA3F6096C8048824E8CAFB01E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 873768   (864476) от 02.03.2015
-
-Lynda.com | Photoshop CC Один-на-Один. Мастер (2013) PCRec [EN]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обучающий пошаговый видеокурс по новой версии Photoshop CC от признанного эксперта по продуктам Adobe Дика МакКлелланда (Deke McClelland).
-Это четвертая заключительная часть серии видеокурсов "Photoshop CC One-on-One", в которой Дик показывает самые продвинутые возможности Photoshop CC.
-В этой части рассматриваются такие вопросы, как: создание профессиональных (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 09:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149220B4958B4AD665CBA2329EC26B158E067B0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

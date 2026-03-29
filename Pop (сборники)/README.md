@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1862228   (1062939) от 
+
+VA - Весна на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klangkarussell - Ride (3:46)
+02. Sonny Fodera & D.O.D & Poppy Baskcomb - Think About Us (2:58)
+03. Sombr - Homewrecker (3:29)
+04. Alan Walker & Isabella Melkman & Katherine O'Ryan - Broken Strings (2:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388E99956984E16D2D31F4F01D394BCB0C6F0C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861054   (1062183) от 
+
+Eurythmics & Annie Lennox - Compilation (1979-2018) [MP3|320 Kbps] <Pop, New wave, Synth-pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Missionary Man ❂ Revenge 1986
+02. Here Comes The Rain Again ❂ Touch 1983
+03. Beautiful Child ❂ Peace 1999
+04. Sweet Dreams (Are Made Of This) ❂ Sweet Dreams (Are Made Of This) 1983(   Читать дальше...   )Жанр: Pop, New wave, Synth-popПродолжительность: 05:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687B6DFDFC7E425D31685368FD5FC3C49E21D41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859836   (1061363) от 
 
 VA - The 90s Pop Box (2026) [MP3|320 Kbps] <Pop/Rock>
@@ -7,7 +65,7 @@ VA - The 90s Pop Box (2026) [MP3|320 Kbps] <Pop/Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061363.jpg" />
+  <img src="Z:/picture/005/save_picture_1061363.jpg" />
 </div>
 
 
@@ -36,7 +94,7 @@ VA - Russian Hits 2024 (2024) [MP3|320 Kbps] <Pop, hip-hop, electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060202.jpg" />
+  <img src="Z:/picture/009/save_picture_1060202.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ Adriano Celentano best (1960-2021) [MP3|320 Kbps] <pop,electronic,rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060022.jpg" />
+  <img src="Z:/picture/005/save_picture_1060022.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ Lovrite - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eu
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059442.jpg" />
+  <img src="Z:/picture/005/save_picture_1059442.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ VOYAGE - Favorites Collection (2026) [MP3|320 Kbps] <Italodisco, Italodance, Eur
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059273.jpg" />
+  <img src="Z:/picture/005/save_picture_1059273.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ Amanda Lear - Compilation (1977-2025) [MP3|320 Kbps] <Pop, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058402.jpg" />
+  <img src="Z:/picture/005/save_picture_1058402.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ VA - Russian Hits 2025 (2025) [MP3|320 Kbps] <Pop, hip-hop, electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058398.jpg" />
+  <img src="Z:/picture/005/save_picture_1058398.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Romantic Dreams - Favorites Collection Part 11 (2026) [MP3|320 Kbps] <Italodisco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058129.jpg" />
+  <img src="Z:/picture/005/save_picture_1058129.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ VA - Euro Hits 2021 (2021) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058046.jpg" />
+  <img src="Z:/picture/005/save_picture_1058046.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ Reyvi - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058026.jpg" />
+  <img src="Z:/picture/005/save_picture_1058026.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ BONEY M. best (1975-1993) [MP3|320 Kbps] <pop, electronic, soul, funk>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057089.jpg" />
+  <img src="Z:/picture/005/save_picture_1057089.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ ABBA best (1973-1981) [MP3|320 Kbps] <Еlectronic, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056305.jpg" />
+  <img src="Z:/picture/005/save_picture_1056305.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ VA - Euro Hits 2022 (2022) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056156.jpg" />
+  <img src="Z:/picture/005/save_picture_1056156.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ VA - Euro Hits 2023 (2023) [MP3|320 Kbps] <pop,dance,electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055458.jpg" />
+  <img src="Z:/picture/005/save_picture_1055458.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Romantic Dreams - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Italodisco
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055436.jpg" />
+  <img src="Z:/picture/005/save_picture_1055436.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ VA - The Best Of Italo-Disco 2025 (2026) [MP3|320 Kbps] <Italo-Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053751.jpg" />
+  <img src="Z:/picture/005/save_picture_1053751.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ VA - Summer Dance Explosion (2025) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053623.jpg" />
+  <img src="Z:/picture/005/save_picture_1053623.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ RetroVinyl80 - Collection (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053479.jpg" />
+  <img src="Z:/picture/005/save_picture_1053479.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ VA - Euro Hits 2024 (2024) [MP3|320 Kbps] <pop,dance,electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053322.jpg" />
+  <img src="Z:/picture/005/save_picture_1053322.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ AI.KA Digital Singer - Collection (2025) [MP3|320 Kbps] <Pop, AI Music>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052795.jpg" />
+  <img src="Z:/picture/005/save_picture_1052795.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ VA - Euro Hits 2025 (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052784.jpg" />
+  <img src="Z:/picture/005/save_picture_1052784.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051647.jpg" />
+  <img src="Z:/picture/005/save_picture_1051647.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ VA - Зима на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051027.jpg" />
+  <img src="Z:/picture/005/save_picture_1051027.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 19 (2025) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1050702.jpg" />
+  <img src="Z:/picture/008/save_picture_1050702.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ VA - Свежий Русский Хит от ALEXnROCK часть 19 (2025) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6B44FC8727A10CC14D1B11D3D1B91F542E0CFE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843696   (1049547) от 21.12.2025
-
-Dakota Lane - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Déjà Vu
-02 - Lucifer
-03 - I Am Safe Inside Your Heart
-04 - Lonely Satellite(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC503CB1DDEC65ED3066B6DC171B7794B30FA943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843695   (1049546) от 21.12.2025
-
-Dakota Lane - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Crying in the Night
-02 - You Wrote My Life
-03 - In 100 Years
-04 - Samba, Sweet Elena (Samba Mix)(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3B4316D071419B0598D377D3010BAFCDF2B514F
 ```
 
 https://mybot314.ru/tekegram_catalog/

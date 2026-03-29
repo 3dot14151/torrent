@@ -1,3 +1,29 @@
+###  Публикация: 1042742   (578338) от 13.08.2016
+
+Пятая графа. Эмиграция (2012) DVB
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578338.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 февраля 1971 года в 11 часов утра министр внутренних дел СССР Николай Щелоков получает экстренное сообщение - захвачена приемная Президиума Верховного Совета СССР! Событие неслыханное по тем временам: террористы в самом центре Москвы, почти у Кремля! Поверить в происходящее невозможно. Через 10 минут на стол министра ложится новое донесение: захватчиков 24 человека. (   Читать дальше...   )Телекомпания: Россия, AV Content ProductionЖанр: ДокументальныйПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C646D81A923123B782E6EA38A29B8109A31B522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042709   (578324) от 13.08.2016
 
 Поезд-призрак. Тайна золота Колчака (2010) DVB
@@ -6,7 +32,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578324.jpg" />
+  <img src="Z:/picture/008/save_picture_578324.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578310.jpg" />
+  <img src="Z:/picture/008/save_picture_578310.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576543.jpg" />
+  <img src="Z:/picture/008/save_picture_576543.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576445.jpg" />
+  <img src="Z:/picture/008/save_picture_576445.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576437.jpg" />
+  <img src="Z:/picture/008/save_picture_576437.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576436.jpg" />
+  <img src="Z:/picture/008/save_picture_576436.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576434.jpg" />
+  <img src="Z:/picture/008/save_picture_576434.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574687.jpg" />
+  <img src="Z:/picture/008/save_picture_574687.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574678.jpg" />
+  <img src="Z:/picture/008/save_picture_574678.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574552.jpg" />
+  <img src="Z:/picture/008/save_picture_574552.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570808.jpg" />
+  <img src="Z:/picture/008/save_picture_570808.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570802.jpg" />
+  <img src="Z:/picture/008/save_picture_570802.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570473.jpg" />
+  <img src="Z:/picture/008/save_picture_570473.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569633.jpg" />
+  <img src="Z:/picture/008/save_picture_569633.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569519.jpg" />
+  <img src="Z:/picture/008/save_picture_569519.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569460.jpg" />
+  <img src="Z:/picture/008/save_picture_569460.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566712.jpg" />
+  <img src="Z:/picture/008/save_picture_566712.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565353.jpg" />
+  <img src="Z:/picture/008/save_picture_565353.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563582.jpg" />
+  <img src="Z:/picture/008/save_picture_563582.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561633.jpg" />
+  <img src="Z:/picture/008/save_picture_561633.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561481.jpg" />
+  <img src="Z:/picture/008/save_picture_561481.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559757.jpg" />
+  <img src="Z:/picture/008/save_picture_559757.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559430.jpg" />
+  <img src="Z:/picture/008/save_picture_559430.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558491.jpg" />
+  <img src="Z:/picture/008/save_picture_558491.jpg" />
 </div>
 
 
@@ -637,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556053.jpg" />
+  <img src="Z:/picture/008/save_picture_556053.jpg" />
 </div>
 
 
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1399BE8A309D9FC17F097C1E76484A4DBE35E744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236436   (554411) от 17.07.2018
-
-Тайна Ипатьевского подвала. Предательство Европы (2018) DVB [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ганина Яма – так называют в народе лес в двадцати с лишним километрах от Екатеринбурга. Когда-то здесь было 30 шахт, в которых добывали руду для Верх-Исетского завода. Здесь же в июле 1918 года с помощью огня, керосина и серной кислоты были уничтожены тела последнего российского императора Николая II, его жены, детей и последних верных поданных. Даже через 100 лет (   Читать дальше...   )Телекомпания: Россия / ООО "Град"Жанр: Документальный, История, БиографияСубтитры: отсутствуютПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D62E932CAF3D0DB8BC002C56A5BD46F4EE8A6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,108 @@
+###  Публикация: 186630   (909579) от 26.02.2016
+
+Discovery: Понимание: Астероиды / Understanding: Asteroids (2004) TVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909579.jpg" />
+</div>
+
+
+###  Подробнее
+
+65 миллионов лет назад падение астероида на Землю привело к планетарной катастрофе, в результате которой вымерли динозавры. Возможно ли  повторение трагедии и что мы можем противопоставить этой угрозе?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186677   (909576) от 26.02.2016
+
+Discovery: Понимание: Дорожное движение / Understanding: Traffic (2004) TVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ничто не вызывает у человека столько раздражения, сколько дорожные пробки, способные вывести из себя кого угодно. О проблемах дорожного движения.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 186447   (909522) от 26.02.2016
+
+Discovery: Понимание: Шансы в жизни / Understanding: The Oddsin Life (1999) TVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909522.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удача - случайность с хорошим исходом, неудача - та же случайность, но с противоположным результатом. Может ли человек не зависеть от случайностей?Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990800   (909424) от 26.02.2016
+
+Discovery. Техногеника. Ледоколы (2016) HDTVRip [720p-LQ]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техногеника — это серия документальных фильмов, каждый из которых посвящен одному из наиболее значимых для России и уникальных в мировом контексте памятников (или объектов) технического инженерного искусства, объектов, значение которых для развития нашей страны переоценивать невозможно, объектов, создание которых обогатило опыт всей человеческой цивилизации.
+Наш (   Читать дальше...   )Телекомпания: Discovery ChannelЖанр: ДокументальныйПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FE02093AB4FE8BAF7E794791AEFF0070BA4CB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 370039   (909414) от 26.02.2016
 
 Discovery: Каннибализм. Последний запрет / Cannibalism. The Last Taboo (2002) SATRip
@@ -6,7 +111,7 @@ Discovery: Каннибализм. Последний запрет / Cannibalism
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909414.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Discovery: Понимание: Авиа-диспетчерская служба 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909409.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909380.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ Discovery: Тело человека. Грани Возможного (4 Сер�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909307.jpg" />
 </div>
 
 
@@ -112,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909267.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908138.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ Discovery: Понимание: Убийства / Understanding: Murder (2004) T
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907767.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ Discovery: Понимание: Сила генов / Understanding: The Power of
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907748.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907740.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ Discovery: Понимание: Огонь / Understanding: Fire (1998) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907732.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ Discovery: Понимание: Искатели острых ощущений / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907728.jpg" />
 </div>
 
 
@@ -299,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907721.jpg" />
 </div>
 
 
@@ -326,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907719.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ Discovery: Понимание: Хитрости и секреты промышл
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907685.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ Discovery: Понимание: Ожирение / Understanding: Fat (2004) TVRi
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907673.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ Discovery. Первое лунное поселение / Base Camp Moon (2008) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907607.jpg" />
 </div>
 
 
@@ -431,7 +536,7 @@ Discovery: Понимание: Эволюция / Understanding: Evolution (2004
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907602.jpg" />
 </div>
 
 
@@ -457,7 +562,7 @@ Discovery: Понимание: Сон / Understanding: Sleep (1998) TVRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907595.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ Discovery: 10 возможных концов света / 10 Ways The World Wil
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907514.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTV [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907506.jpg" />
 </div>
 
 
@@ -536,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905930.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905923.jpg" />
 </div>
 
 
@@ -575,110 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C3F8396082CA9B8F9A67666EB9D5AC8582E6ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186065   (905897) от 28.02.2016
-
-Discovery: Понимание: Пещеры / Understanding: Caves (1998) TVRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пещеры - удивительная экосистема, живущая по законам, отличным от многих других пространств на Земле...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175412   (905756) от 28.02.2016
-
-Discovery: В мире машин: Трансатлантические испытания (состязания) 9 серий / Mean Machines: Transatlantic Challenge (2007) TVRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощные машины с той и другой стороны Атлантики соревнуются между собой в торможении, скорости и маневренности. Какая машина станет победителем?Жанр: Документальный, ТелепередачаПродолжительность: 00:22:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 61294   (905728) от 28.02.2016
-
-Discovery: Поля сражений. Борьба с немецкими субмаринами / Battlefield. The War Against The U-Boats (2005) TVRip
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подлодки должны были стать для немцев тем оружием, которое в случае успешного применения против Атлантических конвоев Союзников позволило бы ввергнуть Великобританию в экономическую блокаду и поставило ее на колени. Таким и были планы руководства фашисткой Германии, и необходимо признать, что в осуществлении своего плана они достигли определенных успехов. Борьба (   Читать дальше...   )Жанр: ДокументалистикаРежиссер: DiscoveryПеревод: Русский переводПродолжительность: 1 часть 00.46.32 X 2 часть 00.46.35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292923   (905080) от 08.02.2011
-
-Современные чудеса. Технические новинки / Modern Marvels. Novelties (2002) SATRip
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торжество изобретательности, научной мысли и воображения – «Современные Чудеса» с присущей им легкостью и остроумием представляют увлекательные истории ученых, мечтателей и прагматиков, стоящих за созданием повседневных вещей, технологическими прорывами и настоящими рукотворными чудесами. Как получается кино? Кто изобрел телефон? Способны ли компьютеры думать? Отдавая (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99A2BBC23C202AA90203AE8860275D4EA82D6C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

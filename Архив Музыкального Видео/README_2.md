@@ -6,7 +6,7 @@
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667137.jpg" />
+  <img src="Z:/picture/008/save_picture_667137.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Melissa Etheridge - A Little Bit of Me – Live in L.A. (2014) BDRemux [H.264/10
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647321.jpg" />
+  <img src="Z:/picture/008/save_picture_647321.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Kanye West - Late Orchestration (Live At Abbey Road) (2006) Blu-Ray [H.264/1080i
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_644939.jpg" />
+  <img src="Z:/picture/005/save_picture_644939.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Iam - 20 - Live Retour Aux Pyramides (2008) Blu-Ray [H.264/1080i]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_628651.jpg" />
+  <img src="Z:/picture/005/save_picture_628651.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624839.jpg" />
+  <img src="Z:/picture/008/save_picture_624839.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Semargl - God Is Not Love (Uncensored) (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624620.jpg" />
+  <img src="Z:/picture/008/save_picture_624620.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Alessia - Everyday (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623206.jpg" />
+  <img src="Z:/picture/008/save_picture_623206.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ Let's Go Project - Le Le Ley (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621075.jpg" />
+  <img src="Z:/picture/008/save_picture_621075.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Taio Cruz - Do What You Like (2015) MasterRip [H.264/1080p]
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620103.jpg" />
+  <img src="Z:/picture/008/save_picture_620103.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Ramus ft. April - it's Summertime (2012) [H.264/1080р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615190.jpg" />
+  <img src="Z:/picture/008/save_picture_615190.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ The Chemical Brothers - Further (Bonus DVD Japanese Edition) (2010) DVD-5
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_605842.jpg" />
+  <img src="Z:/picture/005/save_picture_605842.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ Nora ft. Zzap & Chriss, Bim Bimma - Gangsta (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599770.jpg" />
+  <img src="Z:/picture/008/save_picture_599770.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Dash Berlin - Tour Russia by Open Gate (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597534.jpg" />
+  <img src="Z:/picture/008/save_picture_597534.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Orjan Nilsen - Le Tour De Trance (2012) [H.264/720р] WEBRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597292.jpg" />
+  <img src="Z:/picture/008/save_picture_597292.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597144.jpg" />
+  <img src="Z:/picture/008/save_picture_597144.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583866.jpg" />
+  <img src="Z:/picture/008/save_picture_583866.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ DOLPHIN / ДЕЛЬФИН 2006.03.04. Екатеринбург [2006 г., Happy-D
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583091.jpg" />
+  <img src="Z:/picture/008/save_picture_583091.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Lucky Man Project - Pumpin' (2011) HDTV
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583063.jpg" />
+  <img src="Z:/picture/008/save_picture_583063.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Eminem - Полёт в космос / Eminem - Space bound (2011) HDTVRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581846.jpg" />
+  <img src="Z:/picture/008/save_picture_581846.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Hard Bass 2011 - The Live Registration (2011) BDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580823.jpg" />
+  <img src="Z:/picture/008/save_picture_580823.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579766.jpg" />
+  <img src="Z:/picture/008/save_picture_579766.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Raluka - Out of your Business (2011) HDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578708.jpg" />
+  <img src="Z:/picture/008/save_picture_578708.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ DJ Smash&– Можно без слов (2011) HDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578574.jpg" />
+  <img src="Z:/picture/008/save_picture_578574.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ DEV - In The Dark / DEV - In The Dark (2011) HDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578572.jpg" />
+  <img src="Z:/picture/008/save_picture_578572.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Medina - Addiction (2011) HDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577206.jpg" />
+  <img src="Z:/picture/008/save_picture_577206.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ David Guetta ft Nicki Minaj & FloRida – Where Them Girls At (2011) HDRip
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576939.jpg" />
+  <img src="Z:/picture/008/save_picture_576939.jpg" />
 </div>
 
 

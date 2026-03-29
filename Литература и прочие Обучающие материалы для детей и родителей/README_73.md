@@ -1,3 +1,142 @@
+###  Публикация: 976787   (967661) от 19.01.2016
+
+Сергей Кашаев, Людмила Шерстнева | Паскаль для школьников. Подготовка к ЕГЭ (2014) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание третье, переработанное и дополненное.
+
+Подробно описаны приемы программирования на Паскале и технология разработки различных алгоритмов программ с акцентом на темы, выносимые на Единый государственный экзамен по информатике и информационно-коммуникационным технологиям. Рассматриваются: описание языка Паскаль, конструкции алгоритмов и блок-схемы, одномерные (   Читать дальше...   )Жанр: Pascal, ЕГЭ, единый государственный экзамен (ЕГЭ), задания по информатике, обучение программированиюФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63ABD635528946C138BDBEBF3172CDE2569923A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977101   (967523) от 19.01.2016
+
+Е. Мирская (гл. ред.) | Детская иллюстрированная энциклопедия (1996) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967523.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Около 500 статей от А до Я — о том, что должен знать каждый ребенок, и о том, что интересно всем детям
+• 22-страничное справочное приложение «Цифры и факты»
+• Более 3500 потрясающих цветных иллюстраций
+НЕЗАМЕНИМОЕ СПРАВОЧНОЕ ИЗДАНИЕ(   Читать дальше...   )Жанр: ЭнциклопедииФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968D3AF952B6857DFD75E44CE2AB0A25B5205C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977105   (967514) от 19.01.2016
+
+Бет Боджсон | Основы техники рисования цветным карандашом (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Изобразительное искусство
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробный, хорошо проиллюстрированный рассказ об исполнении изображений различных объектов цветными карандашами. Цветные карандаши — простое, недорогое и необыкновенно выразительное средство для рисования. И вряд ли кто-то владеет ими лучше, чем Бет Боджсон.
+
+Автор научит накладывать тональные слои, удалять наложенный цвет, а также многим другим профессиональным (   Читать дальше...   )Жанр: РисованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F60C7961DD3ABA31ECCFFB7BCC1F6310E1E1785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358903   (967429) от 09.02.2020
+
+Роальд Даль | Волшебный палец (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для семьи Крэгов охота - просто развлечение. А восьмилетняя девочка, которая живет по соседству, ненавидит охоту. Она старается вразумить Крэгов, но они только поднимают ее на смех. Однажды Крэги заходят так далеко, что сил терпеть их жестокость у девочки не остается, и она тычет в них своим Волшебным пальцем. Когда девочка очень-очень рассержена, через нее как будто (   Читать дальше...   )Жанр: Сказки для детейПеревод: Елена СурицФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FDA0E7762273EF73C2776D050BB302B6642D3A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358904   (967426) от 09.02.2020
+
+Юлия Кузнецова | Каникулы в Риге (2018) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гришка невыносим, а мама его постоянно поддерживает! В этом Маша уверена на все сто.
+Маша – вредина, которая вечно маме поддакивает! В этом ни капли не сомневается Гришка. А мама считает, что у нее замечательные дети, пусть с ними и не всегда просто.
+Гришка и Маша – брат с сестрой, которые ссорятся и мирятся по три раза на дню. Даже на каникулах, даже любуясь красотами (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9847163907867BE6831E51B9809B920DE0C2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358902   (967326) от 09.02.2020
 
 Роальд Даль | Большой и Добрый Великан (2018) [EPUB]
@@ -6,7 +145,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967326.jpg" />
 </div>
 
 
@@ -32,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967240.jpg" />
 </div>
 
 
@@ -58,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967147.jpg" />
 </div>
 
 
@@ -84,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967137.jpg" />
 </div>
 
 
@@ -111,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967002.jpg" />
 </div>
 
 
@@ -138,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966842.jpg" />
 </div>
 
 
@@ -165,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966695.jpg" />
 </div>
 
 
@@ -193,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966555.jpg" />
 </div>
 
 
@@ -219,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966528.jpg" />
 </div>
 
 
@@ -247,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966272.jpg" />
 </div>
 
 
@@ -273,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966221.jpg" />
 </div>
 
 
@@ -301,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966201.jpg" />
 </div>
 
 
@@ -328,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966197.jpg" />
 </div>
 
 
@@ -354,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966145.jpg" />
 </div>
 
 
@@ -381,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965959.jpg" />
 </div>
 
 
@@ -408,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965606.jpg" />
 </div>
 
 
@@ -435,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965591.jpg" />
 </div>
 
 
@@ -462,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965141.jpg" />
 </div>
 
 
@@ -488,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965000.jpg" />
 </div>
 
 
@@ -515,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964999.jpg" />
 </div>
 
 
@@ -543,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964991.jpg" />
 </div>
 
 
@@ -555,139 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33BE55BDDC0783F4F22B8CFE5EFF288ECA76674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977950   (964811) от 22.01.2016
-
-С. Тачалов | Живые зонтики (1964) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы для младшего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FEB4582F0C9C0D8506F46DD53FCA7554886255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977940   (964807) от 22.01.2016
-
-Юрий Богушевич | В городке над Неманом (1973) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть для среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE7647C4101584F7F9C6CA70BB6727DBB0310A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977939   (964789) от 22.01.2016
-
-Игорь Озимов и др. | Литературно-художественный альманах «Дружба», № 3 (1954) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мих. Жестев  Оленька.
- Оленька спрыгнула с высокого школьного крыльца, обогнала шумную ватагу ребят и помчалась через березовую рощу в поле. Размахивая туго набитой клеенчатой сумкой, прыгая через лужи, еще не просохшие после первого весеннего дождя, она бежала по извилистой тропинке и что-то весело напевала высоким, чистым голосом. Она всегда что-нибудь пела, — то (   Читать дальше...   )Жанр: Советская проза, детская прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A4E9D521633210870EC7D3E8004E4D6BFF282D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977951   (964726) от 22.01.2016
-
-Юрий Томин | Избранное (1989) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964726.jpg" />
-</div>
-
-
-###  Подробнее
-
-В однотомник вошли лучшие произведения писателя: повести «Борька, я и Невидимка» городу волшебник», «Карусели над городом» и два рассказа.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CDE53FB8C5F05BAE5E5F488FA6E2ACA7D99001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978047   (964663) от 22.01.2016
-
-Л. М. Жариков | Бог и Лёнька. Рассказ (1976) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964663.jpg" />
-</div>
-
-
-###  Подробнее
-
-События, описанные в рассказе «Бог и Лёнька», происходили в маленьком шахтёрском городке в дореволюционные годы.
-
-Вы прочитаете о том, как жили тогда шахтёры, какую борьбу с царским произволом вели революционеры-подполыцики, как росли и мужали  дети шахтёрской бедноты. Из этого рассказа вы  узнаете о том, как сын рабочего Лёнька Устинов,  наивно (   Читать дальше...   )Жанр: Художественная литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC43B696A991B4EA09843D62755C450599D3532
 ```
 
 https://mybot314.ru/tekegram_catalog/

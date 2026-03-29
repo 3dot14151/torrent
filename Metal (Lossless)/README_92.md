@@ -1,3 +1,90 @@
+###  Публикация: 1524722   (742258) от 17.01.2022
+
+Darkness Divine - Departure (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 15 Seconds (05:18)
+02. Mirror (05:13)
+03. Everflow (04:29)
+04. Stranger (04:07)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AF833BC0A21AA58FD3154B87522CF533682532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524767   (742243) от 17.01.2022
+
+Arsenic - Faith Is Gone (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:22)
+02. Sick Of This (02:28)
+03. Die Alone (02:42)
+04. Against The Edge (02:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C2DDF8D7C5BB25DA786E98F43E98DAC1D2C7F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524774   (742242) от 17.01.2022
+
+Coldspell - A New World Arise (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forevermore
+02. Call Of The Wild
+03. It Hurts
+04. Miles Away(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFCB6D315B6028D6C1C52756209CB7C80465763
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397240   (741374) от 19.07.2020
 
 Morta Skuld - Wounds Deeper Than Time (2017) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +93,7 @@ Morta Skuld - Wounds Deeper Than Time (2017) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741374.jpg" />
+  <img src="Z:/picture/008/save_picture_741374.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Mean Streak - Eye of the Storm (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741369.jpg" />
+  <img src="Z:/picture/008/save_picture_741369.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Alestorm - No Grave But the Sea (2017) Napalm Records [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741359.jpg" />
+  <img src="Z:/picture/008/save_picture_741359.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ The Project Hate MCMXCIX - The Lustrate Process (2009) [WavPack|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741124.jpg" />
+  <img src="Z:/picture/008/save_picture_741124.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Watain - Trident Wolf Eclipse (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741043.jpg" />
+  <img src="Z:/picture/008/save_picture_741043.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Slammer - The Work of Idle Hands... (1989) [FLAC|Lossless|image + .cue] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741042.jpg" />
+  <img src="Z:/picture/008/save_picture_741042.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Morta Skuld - Serving Two Masters (2014) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740476.jpg" />
+  <img src="Z:/picture/008/save_picture_740476.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Duel Of Fate - Don't Leave This World (2006) [FLAC|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740475.jpg" />
+  <img src="Z:/picture/008/save_picture_740475.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Vampire - Rex (2020) Century Media Records [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740472.jpg" />
+  <img src="Z:/picture/008/save_picture_740472.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Natron - Bedtime for Mercy (2000) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740327.jpg" />
+  <img src="Z:/picture/008/save_picture_740327.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Myrk - Icons of the Dark (2003) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740326.jpg" />
+  <img src="Z:/picture/008/save_picture_740326.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Beast In Вlасk [ex-Battle Beast] - Frоm Неll With Lоve (2019) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740261.jpg" />
+  <img src="Z:/picture/008/save_picture_740261.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Avantasia - Moonglow (2019) 2CD Limited Edition [FLAC|Lossless|image + .cue] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740254.jpg" />
+  <img src="Z:/picture/008/save_picture_740254.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Immorior - Herbstmar (2014) [FLAC|Lossless|image + .cue] <Post Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739914.jpg" />
+  <img src="Z:/picture/008/save_picture_739914.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Misery Index - Rituals of Power (2019) Deluxe Edition [FLAC|Lossless|tracks] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739904.jpg" />
+  <img src="Z:/picture/008/save_picture_739904.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Dream Child - Reaching The Golden Gates (1998) [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739903.jpg" />
+  <img src="Z:/picture/008/save_picture_739903.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Herman Frank (ex-Accept) - Fight The Fear (2019) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739670.jpg" />
+  <img src="Z:/picture/008/save_picture_739670.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Deadlock - Earth.Revolt (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739379.jpg" />
+  <img src="Z:/picture/008/save_picture_739379.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Grand Delusion - After The Flood (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739137.jpg" />
+  <img src="Z:/picture/008/save_picture_739137.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ The Ferrymen - One More River To Cross (2022) [FLAC|Lossless|tracks + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739118.jpg" />
+  <img src="Z:/picture/008/save_picture_739118.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ Comeback Kid - Heavy Steps (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739109.jpg" />
+  <img src="Z:/picture/008/save_picture_739109.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ Toundra - 6 Albums (2009-2022) [FLAC|Lossless|tracks + .cue] <Post-Rock, Post-Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739000.jpg" />
+  <img src="Z:/picture/008/save_picture_739000.jpg" />
 </div>
 
 
@@ -647,7 +734,7 @@ Stygian Dark - Gorelords Of War (2021) [FLAC|Lossless|image + .cue] <Old School 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738809.jpg" />
+  <img src="Z:/picture/008/save_picture_738809.jpg" />
 </div>
 
 
@@ -661,93 +748,6 @@ Stygian Dark - Gorelords Of War (2021) [FLAC|Lossless|image + .cue] <Old School 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B76F80DD4FC67BB6AE2E38A109D4A9EC6B41C797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526253   (738806) от 23.01.2022
-
-Mercury Gates - Carpathos Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carpathos Rising
-02. Chosen Sentinels
-03. Moonshiner
-04. Future Faces(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A510CFB03D85B1044F11FF32B08D66669F932850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526265   (738800) от 23.01.2022
-
-Planeswalker - Tales Of Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales Of Magic
-02. The Spark
-03. Shadow Of Emeria
-04. Blackblade(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA521C2935D457B8A1050BCB26552BE20EC4069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526433   (738495) от 24.01.2022
-
-Between the Buried and Me - Automata I,II (2018) 2xCD, EP [FLAC|Lossless|tracks + .cue] <Progressive Metal, Avant-Garde Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738495.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - 2018 Automata I EP:
-01. Condemned to the Gallows (06:35)
-02. House Organ (03:41)
-03. Yellow Eyes (08:45)(   Читать дальше...   )Жанр: Progressive Metal, Avant-Garde MetalПродолжительность: 01:08:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50B592E1DE4E16DFD60A2B0722949C6D33D9B3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

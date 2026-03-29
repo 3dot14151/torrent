@@ -7,7 +7,7 @@ Sarah Brightman & The London Symphony Orchestra - Time To Say Goodbye (1997) [FL
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060038.jpg" />
+  <img src="Z:/picture/005/save_picture_1060038.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ VA - Wake Up Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059372.jpg" />
+  <img src="Z:/picture/005/save_picture_1059372.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Megumi Yoshida, Bach - Organ Works Vol. 1. (2016) [OGG Vorbis|480 Kbps] <Classic
 >>Полные собрания сочинений
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046421.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ VA - Handel's Young Messiah (1990) [FLAC|Lossless|tracks + .cue] <Classical Cros
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044936.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ Hélène Grimaud - Hélène Grimaud plays Rachmaninoff and Shostakovich (2023) [
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044431.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ VA - Classical Music: Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043455.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ Schubert - Symphony No. 8 'Unfinished' & Symphony No. 5 (1985) [FLAC|Lossless|tr
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042771.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ J. S. Bach ‎ - Organ Works (Lionel Rogg) (1998) [FLAC|Lossless|image + .cue] <
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042249.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ VA - Relaxing 2021 [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042242.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042134.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Mendelssohn - Symphony No. 3, Symphony No. 4 (Georg Solti) (1986) [FLAC|Lossless
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041997.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ VA - Metal Opera (1991) [FLAC|Lossless|image + .cue] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040609.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ The Neon Philharmonic Orchestra - Switched On Classics (1995) [FLAC|Lossless|ima
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040581.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Schubert - Rosamunde (Elly Ameling, Kurt Masur) (1985) [FLAC|Lossless|image + .c
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039825.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Haydn - Die Tageszeiten (La Petite Bande, Sigiswald Kuijken) (2012) [FLAC|Lossle
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039529.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Ilya Beshevli (Илья Бешевли) - Wanderer (Deluxe Edition) (2016) [FLAC
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037734.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Ilya Beshevli (Илья Бешевли) - Deja Vu (2018) [FLAC|Lossless|WEB-DL|t
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037731.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Ilya Beshevli (Илья Бешевли) - Touch of Miracle (2019) [FLAC|Lossless
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037723.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ VA - Pavarotti: Puccini, Verdi & Donizetti (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037504.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Lindsey Stirling - Warmer In The Winter (2017) Japanese Edition [FLAC|Lossless|i
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035688.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Jef Martens - Building A Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Clas
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034899.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Autumn Tears - The Air Below The Water (2020) 2xCD [FLAC|Lossless|image + .cue] 
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032504.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ VA - Winter Mood - Sweet Melancholic Piano Music for a Winter Snowy Day (2021) [
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032263.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ R.Strauss - Also sprach Zarathustra (2019) [FLAC|Lossless|image + .cue] <Classic
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032261.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ NeoBarock – J.S. Bach: Metamorphose (2019) Ambitus [FLAC 2.0|44.1/24|tracks|WE
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029937.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029937.jpg" />
 </div>
 
 
@@ -736,7 +736,7 @@ Mao Fujita - Chopin: Impromptus and Scherzos (2020) Naxos [FLAC 2.0|96/24|tracks
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029929.jpg" />
 </div>
 
 

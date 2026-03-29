@@ -6,7 +6,7 @@ F1 2014 [PS3] [EUR] [En] [4.60] [Cobra ODE / E3 ODE PRO ISO] (2014)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379805.jpg" />
+  <img src="Z:/picture/008/save_picture_379805.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Deadly Premonition: The Director's Cut [PS3] [3D] [EUR] [En] [4.31] [Cobra ODE /
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379804.jpg" />
+  <img src="Z:/picture/008/save_picture_379804.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Deus Ex: Human Revolution - Director's Cut [PS3] [EUR] [En] [4.46] [Cobra ODE / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379686.jpg" />
+  <img src="Z:/picture/008/save_picture_379686.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BlazBlue: Chrono Phantasma EXTEND / BlazBlue: Chronophantasma EXTEND (2015) [PS3
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378980.jpg" />
+  <img src="Z:/picture/008/save_picture_378980.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Nintendo Gamecube (Redump от 2018-08-25) [GameCube] [NTSC-J] (#-Z)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378926.jpg" />
+  <img src="Z:/picture/008/save_picture_378926.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Weird Park: The Final Show (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378062.jpg" />
+  <img src="Z:/picture/008/save_picture_378062.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ SteamWorld Heist (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377801.jpg" />
+  <img src="Z:/picture/008/save_picture_377801.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Earth Defense Force Antology [XBOX360] [ENG] (2014) (15574) [FreeBoot]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377640.jpg" />
+  <img src="Z:/picture/008/save_picture_377640.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Summer Stars 2012 [PS3] [ENG] [PAL] [MOVE] [3.55] (2012)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377403.jpg" />
+  <img src="Z:/picture/008/save_picture_377403.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Deus Ex: Human Revolution (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [Ru
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376710.jpg" />
+  <img src="Z:/picture/008/save_picture_376710.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ NHL Legacy Edition (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376590.jpg" />
+  <img src="Z:/picture/008/save_picture_376590.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [WiiU] [EUR] 5.3.2 [WUP Installer] 
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375362.jpg" />
+  <img src="Z:/picture/008/save_picture_375362.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ WWE 2K14 [PS3] [EUR] [En] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2013)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375268.jpg" />
+  <img src="Z:/picture/008/save_picture_375268.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ X-Blades (Ониблэйд) (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374526.jpg" />
+  <img src="Z:/picture/008/save_picture_374526.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Just Dance 2016 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374231.jpg" />
+  <img src="Z:/picture/008/save_picture_374231.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Pro Evolution Soccer 2014 / PES 2014 [PS3] [EUR] [Ru/En] [4.46] [Cobra ODE / E3 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372881.jpg" />
+  <img src="Z:/picture/008/save_picture_372881.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Mass Effect 3: Special Edition (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [Licens
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372697.jpg" />
+  <img src="Z:/picture/008/save_picture_372697.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Bastion (2015) [PSVita] [EUR] 3.60 [HENkaku] [Unofficial] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372127.jpg" />
+  <img src="Z:/picture/008/save_picture_372127.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Salt and Sanctuary (2017) [PSVita] [USA] 3.65 [NoNpDrm] [License] [Ru/En]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372119.jpg" />
+  <img src="Z:/picture/008/save_picture_372119.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Just Dance 2016 (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [En]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371853.jpg" />
+  <img src="Z:/picture/008/save_picture_371853.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Burnout Paradise: The Ultimate Box (2009) [PS3] [EUR] 3.40 [Repack / 1.90] [Ru/E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371244.jpg" />
+  <img src="Z:/picture/008/save_picture_371244.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Mortal Kombat 9: Komplete Edition (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License]
 >>PS Vita
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371230.jpg" />
+  <img src="Z:/picture/008/save_picture_371230.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Batman: Arkham Knight. Premium Edition / Batman: Рыцарь Аркхема (Pr
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371202.jpg" />
+  <img src="Z:/picture/008/save_picture_371202.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Hyrule Warriors (2014) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / 1.12.0] [Mu
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370761.jpg" />
+  <img src="Z:/picture/008/save_picture_370761.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Splatoon (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / v272] [Multi]
 >>Wii U
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370472.jpg" />
+  <img src="Z:/picture/008/save_picture_370472.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Resident Evil: Chronicles Collection HD [PS3] [ENG] [NTSC] [MOVE] [PSN] [3.55] (
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369707.jpg" />
+  <img src="Z:/picture/008/save_picture_369707.jpg" />
 </div>
 
 

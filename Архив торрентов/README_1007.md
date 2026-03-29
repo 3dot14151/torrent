@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816890.jpg" />
+  <img src="Z:/picture/008/save_picture_816890.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816885.jpg" />
+  <img src="Z:/picture/008/save_picture_816885.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816875.jpg" />
+  <img src="Z:/picture/008/save_picture_816875.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Autodesk AutoCAD Electrical 2017 HF1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816861.jpg" />
+  <img src="Z:/picture/008/save_picture_816861.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816860.jpg" />
+  <img src="Z:/picture/008/save_picture_816860.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ RuntimePack 16.4.17 Full [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816859.jpg" />
+  <img src="Z:/picture/008/save_picture_816859.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Microsoft Office 2010 Standard 14.0.7166.5000 SP2 RePack by KpoJIuK (2016.04) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816852.jpg" />
+  <img src="Z:/picture/008/save_picture_816852.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816832.jpg" />
+  <img src="Z:/picture/008/save_picture_816832.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ oCam 379.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816790.jpg" />
+  <img src="Z:/picture/008/save_picture_816790.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816781.jpg" />
+  <img src="Z:/picture/008/save_picture_816781.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Armin Van Buuren & Betsie Larkin - Again (Alex M.O.R.P.H. & ReOrder Remixes) (20
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816776.jpg" />
+  <img src="Z:/picture/008/save_picture_816776.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Game of Thrones: A Telltale Games Series. Episode 1/2/3 v. 1.0 (2015) [Ru/En] [O
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816766.jpg" />
+  <img src="Z:/picture/008/save_picture_816766.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Error Lookup 2.3.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816737.jpg" />
+  <img src="Z:/picture/008/save_picture_816737.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816731.jpg" />
+  <img src="Z:/picture/008/save_picture_816731.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Yaoguai Mingdan / Список нечисти [2014, TV, 11 из 18] WEBRip 720p
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816718.jpg" />
+  <img src="Z:/picture/008/save_picture_816718.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Webroot SecureAnywhere AntiVirus for Gamers 9.0.29.38 (акция Comss) Web-ins
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816708.jpg" />
+  <img src="Z:/picture/008/save_picture_816708.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Windows 10 Pro x64 v.1909.18363.815 2in1 April 2020 by Generation2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816703.jpg" />
+  <img src="Z:/picture/008/save_picture_816703.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Adobe Acrobat Reader DC 2020.009.20063 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816700.jpg" />
+  <img src="Z:/picture/008/save_picture_816700.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ AMD Radeon Software Crimson ReLive Edition 17.3.3 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816643.jpg" />
+  <img src="Z:/picture/008/save_picture_816643.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Tenorshare Any Data Recovery Pro 5.5.0.0 RePack by tolyan76 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816636.jpg" />
+  <img src="Z:/picture/008/save_picture_816636.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ JetBrains RubyMine 2017.1 Build #RM-171.3780.96 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816630.jpg" />
+  <img src="Z:/picture/008/save_picture_816630.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816629.jpg" />
+  <img src="Z:/picture/008/save_picture_816629.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Comodo Cloud Antivirus 1.10.412605.476 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816628.jpg" />
+  <img src="Z:/picture/008/save_picture_816628.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816623.jpg" />
+  <img src="Z:/picture/008/save_picture_816623.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Jungle Book / Книга Джунглей / Маугли 1.1.1  (SEGA Genesi
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816621.jpg" />
+  <img src="Z:/picture/008/save_picture_816621.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816611.jpg" />
+  <img src="Z:/picture/008/save_picture_816611.jpg" />
 </div>
 
 

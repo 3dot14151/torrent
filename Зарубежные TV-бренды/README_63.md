@@ -1,3 +1,107 @@
+###  Публикация: 1297738   (592709) от 07.05.2019
+
+NG: Египет с величайшим исследователем в мире / Egypt with the World's Greatest Explorer (2019) HDTV [H.264/1080i-LQ] (серии 3 из 3)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Названный Книгой рекордов Гиннеса "величайшим из ныне живущих исследователей в мире" сэр Ранульф Файнс, возвращается на арену одного из своих прежних подвигов - в Египет, чтобы повторить свою экспедицию по Нилу, совершенную им в 1968 году на судне на воздушной подушке.Производство: Великобритания, Woodcut MediaЖанр: Документальный, история, исследованияРежиссер: Мэтью ДиасПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40558E9DC4BA75C73FDFB8928868E54BFA9AFC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915603   (592248) от 05.07.2015
+
+Discovery: Разрушители легенд. Посадка в самолёт. Биопули / MythBusters. Plane Boarding. Bite the Bullet (2014) WEB-DLRip  (Сезон 14, эпизод 07) (Игорь Головилин)
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592248.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Разрушители легенд» (англ. MythBusters) — американская научно-популярная телепередача на канале Discovery Channel. Передачу ведут специалисты по спецэффектам Джейми Хайнеман и Адам Севидж, использующие свои навыки и опыт для экспериментальной проверки различных баек, слухов, городских легенд и других порождений популярной культуры. Съёмки передачи обычно проходят (   Читать дальше...   )Телекомпания: DiscoveryЖанр: Познавательное шоуРежиссер: Steve Christiansen, Lauren WilliamsПеревод: Любительский (одноголосый, закадровый) - Игорь ГоловилинПродолжительность: ~ 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7BD394A0E5E2FE63961DCE6126C6CD2CD1D7741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915538   (592243) от 05.07.2015
+
+Animal Planet. Большие и страшные / Biggest and Baddest (2014) HDTVRip [Сезон 2, Серии 1-6 из 6]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отважный биолог Найл МакКенн бесстрашно идет навстречу опасности, чтобы рассказать вам о самых свирепых животных мира. Найл МакКенн хочет выяснить все, что мы должны знать о самых больших и опасных животных. От азиатских джунглей до австралийских болот к самым опасным их обитателям Найл МакКенн подберется максимально близко.Телекомпания: Канада, The Canadian or Video Production Tax CreditЖанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA869747A78CC07E927C2A1C8EAAF1D125A81578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 913389   (592230) от 05.07.2015
+
+Discovery. Дома на деревьях / Treehouse Masters (2014-2015) HDTVRip [Сезон 3, Серии 1-11] [Обновляемая]
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Discovery Channel приглашает вас забраться повыше - в удивительный мир, разместившийся среди древесных крон, и познакомиться с его создателем Питом Нельсоном. Он создаёт жилища для тех, кто хочет остаться наедине с природой или просто вспомнить детство, когда домик на дереве был мечтой каждого ребенка. Пит берется за любые заказы - от миниатюрных шалашей до настоящих (   Читать дальше...   )Телекомпания: США, Discovery Channel HDЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: Серия по ~00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F450C70967E9C23FD7617CC097EC167F99FCBF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915611   (592228) от 05.07.2015
 
 Animal Planet. Большие и страшные / Biggest and Baddest (2014) HDTV [H.264/720p] [Сезон 2, Серии 1-6 из 6]
@@ -6,7 +110,7 @@ Animal Planet. Большие и страшные / Biggest and Baddest (2014) H
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592228.jpg" />
+  <img src="Z:/picture/008/save_picture_592228.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Animal Planet. Королева львов / The Lion Queen (2015) HDTVRip [Се
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592213.jpg" />
+  <img src="Z:/picture/008/save_picture_592213.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Animal Planet. Тайная жизнь домашних питомцев / Secre
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592200.jpg" />
+  <img src="Z:/picture/008/save_picture_592200.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Discovery. Аэропорт изнутри / Airport from within (2015) HDTVRip 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592187.jpg" />
+  <img src="Z:/picture/008/save_picture_592187.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ Discovery. Хуже не бывает / World's Worst (2014) HDTVRip [Серии
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591837.jpg" />
+  <img src="Z:/picture/008/save_picture_591837.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ Discovery: Разрушители легенд. Спецвыпуск Индиа�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591834.jpg" />
+  <img src="Z:/picture/008/save_picture_591834.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ Discovery. Реальные дальнобойщики / Outback Truckers (2014-
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591817.jpg" />
+  <img src="Z:/picture/008/save_picture_591817.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591812.jpg" />
+  <img src="Z:/picture/008/save_picture_591812.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ Animal Planet. Природа Ближнего Востока / Wildest Middle E
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591776.jpg" />
+  <img src="Z:/picture/008/save_picture_591776.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ Discovery: Разрушители легенд. Спецвыпуск Индиа�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591775.jpg" />
+  <img src="Z:/picture/008/save_picture_591775.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ Discovery: Разрушители легенд. Спецвыпуск Симпс�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591772.jpg" />
+  <img src="Z:/picture/008/save_picture_591772.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591335.jpg" />
+  <img src="Z:/picture/008/save_picture_591335.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591157.jpg" />
+  <img src="Z:/picture/008/save_picture_591157.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590850.jpg" />
+  <img src="Z:/picture/008/save_picture_590850.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Da Vinci Learning: BBC: Музыка простых чисел / The Music of th
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590825.jpg" />
+  <img src="Z:/picture/008/save_picture_590825.jpg" />
 </div>
 
 
@@ -400,7 +504,7 @@ Discovery. Гаражное золото / Garage Gold (2014) HDTVRip [Сезо�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590388.jpg" />
+  <img src="Z:/picture/008/save_picture_590388.jpg" />
 </div>
 
 
@@ -426,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589748.jpg" />
+  <img src="Z:/picture/008/save_picture_589748.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ NG: Дикая сторона кошек / Wild Side of Cats (2012) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589503.jpg" />
+  <img src="Z:/picture/008/save_picture_589503.jpg" />
 </div>
 
 
@@ -478,7 +582,7 @@ NG: Дикая река Конго / Wild Congo (2013) HDTVRip [H.264/720p-LQ] (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589172.jpg" />
+  <img src="Z:/picture/008/save_picture_589172.jpg" />
 </div>
 
 
@@ -504,7 +608,7 @@ Discovery. Мужские берлоги / Epic Man Cave Builds (2015) HDTVRip [
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588931.jpg" />
+  <img src="Z:/picture/008/save_picture_588931.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588248.jpg" />
+  <img src="Z:/picture/008/save_picture_588248.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587910.jpg" />
+  <img src="Z:/picture/008/save_picture_587910.jpg" />
 </div>
 
 
@@ -568,114 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2973B9EF5DD2AF02C44EB033B961C4DDC3F883C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301053   (587015) от 09.05.2019
-
-BBC: Дикая Африка и Маленькие гиганты / Wild Africa & Tiny Giants (2014 -2015) BDRemux [H.264/1080p] (2 части) [EN / EN Sub]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дикая Африка.
-Африка — это старейший континент нашей планеты, колыбель цивилизации. Несмотря на свой почтенный возраст, более 270 миллионов лет, этот омываемый океанами материк является пожалуй единственным, сохранившим гармонию с природой и не подвергшимся разрушительному влиянию человеческой деятельности.
-Маленькие гиганты.
-О том, что происходит под нами и вокруг (   Читать дальше...   )Производство: Великобритания, BBC EarthЖанр: Документальный, природа, флора, фаунаРежиссер: Марк БраунлоуПеревод: ОтсутствуетСубтитры: АнглийскиеПродолжительность: 00:43:16+00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834560D0701607003424C60FC5E6C52438F4DC28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301386   (586168) от 10.05.2019
-
-NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это удивительное путешествие по всему миру в поисках самых смертельно опасных хищников. А между тем, эти повергающие в трепет кадры отображают повседневную жизнь дикой природы.
-Несмотря на свой древний внешний вид, рептилии - это животные, полные загадок, и сложные для изучения. Во время охоты змеи в совершенстве контролируют каждый миг, который отделяет жизнь от (   Читать дальше...   )Производство: Испания, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Хуан Антонио Родригес ЛьяноПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4815CD737E9F232BFC7C0A769A5ADB0174B17144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918873   (585749) от 16.07.2015
-
-NG: Миссия Плутон (Встреча с Плутоном) / Mission Pluto (2015) HDTVRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585749.jpg" />
-</div>
-
-
-###  Подробнее
-
-После путешествия длиной в три миллиарда миль Космический зонд "Новые горизонты", отправленный к Плутону почти 10 лет назад, впервые передал на Землю уникальные снимки этой далекой планеты. В этой передачи мы узнаем о трудностях, которые пришлось преодолевать разработчикам проекта и перспективах в изучении последнего и самого далёкого объекта Солнечной (   Читать дальше...   )Телекомпания: Bigger Bang Communications Ltd for National Geographic ChannalЖанр: Документальный, научно-познавательный, космосРежиссер: Nic YoungПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17A0D069EB7DEC9A2F3E1E06E449924C2F845D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435807   (585586) от 16.07.2015
-
-ВВС: Живая природа. Ребятам о зверятах / BBC: All About Animals (26 серий из 26) (2006) 2 x DVD-9 + 3 x DVD-5
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на передачу "Ребятам о зверятах" - познавательный и увлекательный сериал для самых маленьких зрителей. В этом фильме дети смогут не только наблюдать за любимыми животными, но и узнают ответы на многие любопытные вопросы, например такие как: кто громче всех рычит, у кого самая большая семья и даже у кого самый неприятный запах. А также познакомятся (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Дэвид КарлингПеревод: Профессиональный двухголосыйПродолжительность: ~ 02:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A9B353F8AF5B08F80CEB2BC6FBBDD99BC133F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

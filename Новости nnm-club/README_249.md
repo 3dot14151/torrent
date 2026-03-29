@@ -1,3 +1,160 @@
+###  Публикация: 1293496   (164671) от 12.12.2021
+
+Flibusta Downloader v3.2.2.1 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доступ к библиотеке Флибусты через технологии TOR. Работает без подключения к прокси.Тип издания: FreeРелиз состоялся: 21.04.2021Разработчик: el-dorianПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53AA5D1575BA52A5622D3E6F9E0ABB8170439C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431764   (164585) от 16.12.2020
+
+Довод / Tenet (2020) BDRip [H.264/1080p] [IMAX Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164585.jpg" />
+</div>
+
+
+###  Подробнее
+
+После теракта в киевском оперном театре агент ЦРУ объединяется с британской разведкой, чтобы противостоять русскому олигарху, который сколотил состояние на торговле оружием. Для этого агенты используют инверсию времени, заставляющую уже произошедшие события идти вспять.Производство: Великобритания, США / Syncopy, Warner Bros.Жанр: Фантастика, боевикРежиссер: Кристофер НоланАктеры: Джон Дэвид Вашингтон, Роберт Паттинсон, Элизабет Дебики, Кеннет Брана, Аарон Тейлор-Джонсон, Майкл Кейн, Химеш Патель, Юрий Колокольников, Димпл Кападиа, Клеманс ПоэзиПеревод: Дублированный (iTunes)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70A79A03A9A1F2A960E7677179583E14748D5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288281   (164580) от 16.12.2020
+
+Devil May Cry 5 (2019) [Ru/Multi] (1.0.5962864/dlc) Repack Other s [Deluxe Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший охотник на демонов возвращается в новом стильном боевике. В пятой части легендарной серии Devil May Cry вы вновь сможете насладиться сверхскоростными сражениями с участием невероятных персонажей. Новейшие технологии компьютерной графики позволили Capcom создать этот непревзойденный шедевр жанра экшен.Тип издания: RepackРазработчик: CAPCOMЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA15E06F789056CB7E6FA79F196CBC828CC26397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597810   (164465) от 16.12.2022
+
+Банши Инишерина / The Banshees of Inisherin (2022) WEB-DLRip [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164465.jpg" />
+</div>
+
+
+###  Подробнее
+
+История двух друзей, которые вступают в конфликт на отдалённом ирландском острове.Производство: Ирландия, Великобритания, США / Blueprint Pictures, Film 4, Fox Searchlight PicturesЖанр: драма, комедияРежиссер: Мартин МакдонаАктеры: Колин Фаррелл, Брендан Глисон, Керри Кондон, Барри Кеоган, Гари Лайдон, Пэт Шорт, Шила Флиттон, Брид Ни Нетэн, Джон Кенни, Аарон МонахэнПеревод: Многоголосый профессиональный (HDRezka Studio, TVShows), авторский (Юрий Сербин)Язык озвучки: русский, английскийСубтитры: английские (SDH), русские (forced, full) - отдельными файламиПродолжительность: 01:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD49C01799280618CB2C7DEC97361552F8F6EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428585   (164455) от 16.12.2022
+
+Borland Delphi 7 Science Edition 2020 [Ru/En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Delphi 7 - всеми известная программа от компании Borland, а именно средство разработки для программирования как на начальном, так и на профессиональном уровне. Один из самых лучших и популярных продуктов от компании Borland.
+В состав пакета входит расширенный комплект разрабочика - более сотни сторонних компонент и исправлений, корректно настроенных для исключения (   Читать дальше...   )Язык интерфейса: установщик русский/среда IDE  - английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5FF447F6AC1DBEAFCAA5D8AF41010AC4AF1591B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345933   (164086) от 18.12.2019
+
+Япония и Корея приступают к переводу своей энергетики на водород
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_164086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Глобальная инициатива между корейскими и японскими компаниями Kawasaki Heavy Industries, Iwatani Corporation, Shell Japan и J-Power по созданию новой транспортной инфраструктуры, основанной на применении водорода в качестве топлива, дала первые результаты. Kawasaki ввела в эксплуатацию корабль «Suiso Frontier», который стал первым в мире судном, предназначенным для (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308775   (163949) от 18.12.2019
 
 Assetto Corsa Competizione (2019) [Ru/Multi] (1.2.0) Repack =nemos=
@@ -6,7 +163,7 @@ Assetto Corsa Competizione (2019) [Ru/Multi] (1.2.0) Repack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163949.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game (2019) P
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163918.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ XYZ School, Егор Гришин | Скетчинг (2020-2021) PCRec
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163854.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ S.M.A.R.T. Vision 4.1.0.1796 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163850.jpg" />
 </div>
 
 
@@ -112,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163840.jpg" />
 </div>
 
 
@@ -140,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163616.jpg" />
 </div>
 
 
@@ -166,7 +323,7 @@ Quake: Enhanced (2021) [Ru/Multi] (1.0/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163572.jpg" />
 </div>
 
 
@@ -192,7 +349,7 @@ F-Secure Freedome VPN 2.39.6634 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163368.jpg" />
 </div>
 
 
@@ -218,7 +375,7 @@ Windows 10 20H2 (19042.685) x64 Home + Pro + Enterprise (3in1) by Brux v.12.2020
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163360.jpg" />
 </div>
 
 
@@ -244,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163349.jpg" />
 </div>
 
 
@@ -270,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163191.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163182.jpg" />
 </div>
 
 
@@ -322,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163103.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163089.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ Ballance / Баланс (2004) [Ru] (1.0) License
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163081.jpg" />
 </div>
 
 
@@ -400,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_162856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_162856.jpg" />
 </div>
 
 
@@ -426,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162820.jpg" />
 </div>
 
 
@@ -452,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_162805.jpg" />
+  <img src="Z:/picture/005/save_picture_162805.jpg" />
 </div>
 
 
@@ -479,7 +636,7 @@ PotPlayer 1.7.21397 (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162562.jpg" />
 </div>
 
 
@@ -505,7 +662,7 @@ Call Recorder - SKVALEX v3.4.9 [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162478.jpg" />
 </div>
 
 
@@ -516,163 +673,6 @@ Call Recorder - SKVALEX предназначен для автоматическ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DF1829A31EF0D4670474633248B0C2401FB6443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420020   (162472) от 18.12.2020
-
-Мандалорец / The Mandalorian (2020) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8) [En/Ru Sub]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Fairview Entertainment, Lucasfilm Ltd., Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Карл Уэзерс, Джина Карано, Джанкарло Эспозито, Мерседес Кестнер-Варнадо, Рио Хэкфорд, Кайл Пацек, Вернер Херцог, Ник Нолти, Тайка Вайтити и др.Перевод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: ~00:35:00-00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:271FB9927BB7F0C63223C494D71AC5E6491D4B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328024   (162456) от 18.12.2020
-
-Tropico 6 (2019) [Ru/En] (1.11/dlc) Repack xatab [El Prez Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые в серии: огромные архипелаги! Управляйте несколькими островами сразу и отвечайте на новые вызовы. Отправляйте своих агентов за границу на охоту за чудесами света – пора расширить вашу коллекцию. Стройте мосты и тоннели, перевозите граждан и туристов на такси, автобусах и канатных дорогах.Тип издания: RepackРазработчик: Limbic EntertainmentЖанр: Strategy, SimulationЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38039ECD26EEA5D2B9030A8849142F5E299B79F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080182   (162454) от 15.12.2021
-
-КЕ-ДЫ (2016) WEBRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_162454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накануне призыва в армию молодой человек Саша по прозвищу «Джаггер» решает потратить свои скромные сбережения на модные кеды. Случайным образом кеды приводят его к девушке Амире, с которой он проводит ночь. Наутро выясняется, что у девушки есть девятилетний сын Митя. Мальчик страдает аутизмом и еще каким-то психическим заболеванием. Амира просит Джаггера и его приятеля (   Читать дальше...   )Производство: Россия, МосфильмЖанр: ДрамаРежиссер: Сергей СоловьёвАктеры: Николай Суслов, Аглая Шиловская, Илья Нагирняк, БастаПеревод: Не требуется (русский)Продолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48303D712C5273B6FC7DE6D7A2DE6D9CB5A00692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597595   (162265) от 19.12.2022
-
-Суд оставил в силе запрет браузера Tor на территории РФ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_162265.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саратовский областной суд оставил в силе решение Ленинского районного суда города Саратова о блокировке сайта The Tor Project, а также браузера Tor в Google Play.По итогам рассмотрения жалобы судья Татьяна Чаплыгина посчитала изложенные «The Tor Project Inc» доводы неубедительными и оставила решение райсуда в силе
-«Решение Ленинского районного суда Саратова от 28 (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595170   (162219) от 19.12.2022
-
-Уэнсдэй / Wednesday (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Red Head Sound, LostFilm, HDRezka Studio, NewComers, RuDub, NewStudio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уэнсдэй, дочь Гомеса и Мортиши Аддамс, учится в академии Nevermore. Ей предстоит освоить экстрасенсорные способности, чтобы остановить местного серийного убийцу и раскрыть тайну родителей.Производство: США / MGM Television, Millar Gough Ink, Tee and Charles Addams FoundationЖанр: фэнтези, комедия, криминал, детектив, семейныйРежиссер: Тим Бёртон, Джеймс Маршалл, Gandja MonteiroАктеры: Дженна Ортега, Гвендолин Кристи, Рики Линдхоум, Джейми МакШейн, Хантер Дуэн, Перси Хайнс Уайт, Эмма Майерс, Джой Сандай, Джорджи Фармер, Наоми ТанкелПеревод: Дублированный (Red Head Sound), Многоголосый профессиональный (LostFilm, HDRezka Studio, NewComers, RuDub, NewStudio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full)Продолжительность: ~ 00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B609E5FB3110D0BB08B95ECF4F2EC50C625CC475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673602   (161858) от 04.11.2023
-
-Десятки тысяч GPU в нейтральных водах — Del Complex придумала, как обойти санкции и ограничения для ИИ
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Технологическая компания Del Complex анонсировала проект BlueSea Frontier Compute Cluster (BSFCC), который предполагает создание независимых городов-государств в нейтральных водах, включающих мощные вычислительные комплексы и не ограниченных ужесточившимися законами США и Европы в отношении ИИ-разработок.В Del Complex утверждают, что в рамках BSFCC будут создаваться (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

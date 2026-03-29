@@ -1,3 +1,148 @@
+###  Публикация: 1679199   (140225) от 24.11.2023
+
+Camel - Moonmadness (1976) Remastered & Expanded Edition, 2023, UMC-Decca [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aristillus (NEW Remixed 2023) [00:01:58]
+02. Song Within A Song (NEW Remixed 2023) [00:07:13]
+03. Chord Change (NEW Remixed 2023) [00:06:47]
+04. Spirit Of The Water (NEW Remixed 2023) [00:02:10](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 3 CD, 01:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48731DBF2E00EED563428B815E4BD85F48EBD47D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349126   (139671) от 30.12.2019
+
+Bonnie Tyler - The RCA Years (2019) Compilation, 4CD,  Reissue, Remastered [FLAC|Lossless|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Got So Used To Loving You [3:13]
+ 02 - Love Of A Rolling Stone [3:25]
+ 03 - Lost In France [3:53]
+ 04 - Piece Of My Heart [3:48](   Читать дальше...   )Жанр: Pop RockПродолжительность: 03:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3AAD5DD6D5EBBD6E91B38AC3DEB00976235AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272934   (139664) от 30.12.2018
+
+Riot Horse - Cold Hearted Woman (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Hearted Woman (05:04)
+02. Moving Out of Town (04:10)
+03. My Only Woman (04:28)
+04. Glad You Came (05:26)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E2671EF2FCC6DCC0FE71FB4652FD6390D348A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272952   (139655) от 30.12.2018
+
+John Hackett & Nick Fletcher - Beyond the Stars (2018) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Stars
+02. A Horse Named Cadillac
+03. A Time in Place
+04. Leaving It All Behind(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45258ABBB8FE775E156A9B511405952EDB1EC89E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272927   (139643) от 30.12.2018
+
+The Marcus King Band - Carolina Confessions (2018) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confessions (00:05:24)
+02. Where I'm Headed (00:04:53)
+03. Homesick (00:06:24)
+04. 8 a.m. (00:03:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EF7B09BB0EC15DD8463320C21B2CA2A0BF39E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272962   (139636) от 30.12.2018
 
 Christian Tolle Project - Point Blank (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -6,7 +151,7 @@ Christian Tolle Project - Point Blank (2018) [FLAC|Lossless|tracks + .cue] <Hard
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139636.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Chrome Division - One Last Ride (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139624.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Glass Hammer - Chronomonaut (2018) [FLAC|Lossless|tracks + .cue] <Symphonic Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139610.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Clepsydra - The Gap (2019) 2xCD, Remastered, 2021, Oskar [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139503.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Neil Young - Songs for Judy (2018) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Country Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139228.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Grace and Fire - Elysium (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139172.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Jon Lord - Beyond The Notes (2004) SACD [FLAC|Lossless|tracks + .cue] <Prog Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138993.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Bon Jovi - This Left Feels Right (2003) SACD [FLAC|Lossless|tracks + .cue] <Aren
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138760.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Chris Rea - The Road To Hell (1989) Geffen Records [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138677.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Peter Hammill - In A Foreign Town / Out Of Water (1988-1990) Remaster, 2023, Eso
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138409.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ William Shatner - Shatner Claus (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137992.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Devil's Hand - Devil's Hand (Ft. Slamer - Freeman) (2018) [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137983.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ Camel - Discography: 37 аlbums, 70 CD (1973-2019) [FLAC|Lossless|image + .cue |
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137887.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ Paul Carrack - These Days (2018) Mike & The Mechanics [FLAC|Lossless|tracks + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137877.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ Roy Orbison & The Royal Philharmonic Orchestra - Unchained Melodies (2018) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137752.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ Gothik Serpent - The Examination II (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136812.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ Hammy Haze - Hammy Haze's Adult Radio Vol I (2025) [FLAC 24/44.1|Lossless|WEB-DL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136808.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ Hollow Rhyme - Inns Fuel & Ale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136807.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ Jaret Miner - Leave Your Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136806.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ Jay Parrino - Cover Recovery 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136804.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Justin Runyon - Swirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136797.jpg" />
 </div>
 
 
@@ -599,151 +744,6 @@ Justin Runyon - Swirl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B31855A108171DA8E79819525C0AEAE46552CBB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825201   (136794) от 16.10.2025
-
-Kerosene 454 - At Zero (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anti-Magnet (4:42)
-02.  Automatic (2:58)
-03.  Negatives (4:07)
-04.  Diminishing (5:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1ED1687ADE2312873607712E3309941D5A5F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825203   (136790) от 16.10.2025
-
-Kerry Charles - It'll Be Over Soon (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  With Myself (4:11)
-02.  Pay to Survive (3:15)
-03.  Can't Buy Love (4:22)
-04.  In Deep (3:37)(   Читать дальше...   )Жанр: Rock, Alternative & IndieПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF58AEA0BB85A1918810957CE9DFE6E46D088804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825402   (136721) от 17.10.2025
-
-David Gilmour - The Luck And Strange Concerts (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 5 A.M. (Live from the Luck and Strange Concerts)
-02 - Black Cat (Live from the Luck and Strange Concerts)
-03 - Luck and Strange (Live from the Luck and Strange Concerts)
-04 - Breathe (In the Air) (Live from the Luck and Strange Concerts)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A32DD0B816EEDCA0459D1062EF0E2792B3D43E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825409   (136719) от 17.10.2025
-
-Scorpions - From The First Sting (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – This Is My Song (Live at Rock & Pop, 09.11.1973)
-02 – Speedy’s Coming (Remastered 2023)
-03 – In Trance (Remastered 2023)
-04 – Pictured Life (Remastered 2023)(   Читать дальше...   )Жанр: RockПродолжительность: 01:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3C52C1F235EDD228B7B7F7BE53CCF5FDBC3D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825417   (136718) от 17.10.2025
-
-Rick Wakeman - Melancholia (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sitting at the Window [00:03:23]
-02. Reflection [00:03:41]
-03. Pathos [00:04:12]
-04. Dance of the Ghosts [00:03:57](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69800564A5301127E24D6F73006A4EEF68B9BA91
 ```
 
 https://mybot314.ru/tekegram_catalog/

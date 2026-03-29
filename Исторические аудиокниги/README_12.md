@@ -1,3 +1,57 @@
+###  Публикация: 1206996   (781280) от 16.02.2018
+
+Сухбат Афлатуни | Поклонение волхвов (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый роман известного прозаика и поэта Евгения Абдуллаева, пишущего под псевдонимом Сухбат Афлатуни, охватывает огромный период в истории России: от середины 19-го века до наших дней – и рассказывает историю семьи Триярских, родоначальник которой, молодой архитектор прогрессивных взглядов, Николай, был близок к революционному кружку Петрашевского и тайному обществу (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 36:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87D7963B50AEE5AAAF9418E5809812B8419DE89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 200931   (781178) от 14.05.2010
+
+Виктор Татарский | Крах Барбароссы. Документы истории [2010] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский цикл передач "Крах Барбароссы. Документы истории" на волнах "Радио России" в дни празднования 65-летия Победы.
+Восьмисерийный радиоспектакль построен на реальных документах - памятниках Второй мировой - письмах, дневниках, официальных материалах военного времени. В том числе фрагментах речей дипломатов и политиков - идеологов той войны. Читает автор Виктор Татарский.
+Разнообразие материала, представленного в передаче, позволяет вдумчивому слушателю расширить свой исторический кругозор и самостоятельно сделать выводы о прошлом.Жанр: История
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391368   (781021) от 20.06.2020
 
 Николай Костомаров | Русская история в жизнеописаниях её главнейших деятелей. [Выпуски 4-5] (2020) [MP3]
@@ -6,7 +60,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781021.jpg" />
+  <img src="Z:/picture/008/save_picture_781021.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780266.jpg" />
+  <img src="Z:/picture/008/save_picture_780266.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780255.jpg" />
+  <img src="Z:/picture/008/save_picture_780255.jpg" />
 </div>
 
 
@@ -84,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780095.jpg" />
+  <img src="Z:/picture/008/save_picture_780095.jpg" />
 </div>
 
 
@@ -110,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779795.jpg" />
+  <img src="Z:/picture/008/save_picture_779795.jpg" />
 </div>
 
 
@@ -136,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778918.jpg" />
 </div>
 
 
@@ -163,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778836.jpg" />
 </div>
 
 
@@ -189,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778162.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778162.jpg" />
 </div>
 
 
@@ -216,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777627.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777511.jpg" />
 </div>
 
 
@@ -269,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777266.jpg" />
+  <img src="Z:/picture/008/save_picture_777266.jpg" />
 </div>
 
 
@@ -296,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777070.jpg" />
+  <img src="Z:/picture/008/save_picture_777070.jpg" />
 </div>
 
 
@@ -322,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776788.jpg" />
+  <img src="Z:/picture/008/save_picture_776788.jpg" />
 </div>
 
 
@@ -348,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776779.jpg" />
+  <img src="Z:/picture/008/save_picture_776779.jpg" />
 </div>
 
 
@@ -375,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776491.jpg" />
+  <img src="Z:/picture/008/save_picture_776491.jpg" />
 </div>
 
 
@@ -401,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776452.jpg" />
+  <img src="Z:/picture/008/save_picture_776452.jpg" />
 </div>
 
 
@@ -428,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776408.jpg" />
+  <img src="Z:/picture/008/save_picture_776408.jpg" />
 </div>
 
 
@@ -454,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776364.jpg" />
+  <img src="Z:/picture/008/save_picture_776364.jpg" />
 </div>
 
 
@@ -482,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776153.jpg" />
+  <img src="Z:/picture/008/save_picture_776153.jpg" />
 </div>
 
 
@@ -508,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775758.jpg" />
+  <img src="Z:/picture/008/save_picture_775758.jpg" />
 </div>
 
 
@@ -534,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775707.jpg" />
+  <img src="Z:/picture/008/save_picture_775707.jpg" />
 </div>
 
 
@@ -560,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773939.jpg" />
+  <img src="Z:/picture/008/save_picture_773939.jpg" />
 </div>
 
 
@@ -589,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773495.jpg" />
+  <img src="Z:/picture/008/save_picture_773495.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769639.jpg" />
+  <img src="Z:/picture/008/save_picture_769639.jpg" />
 </div>
 
 
@@ -627,58 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01D9679B640A2C5375C68F31F24F7CBF408C99DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392706   (769070) от 27.06.2020
-
-Джордж Лейн | Краткая история. Монголы (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769070.jpg" />
-</div>
-
-
-###  Подробнее
-
-В период своего расцвета Монгольская империя, сформировавшаяся в XIII веке в результате завоеваний Чингисхана и его преемников, включала в себя самую большую из когда-либо существовавших единую государственную территорию, простираясь от Восточной Европы до Японского моря и от русского Новгорода до Юго-Восточной Азии. Краткое изложение истории Монгольской империи (   Читать дальше...   )Жанр: ИсторияПродолжительность: 11:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5F8B85861C12A06191208C41AD712B163442A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213553   (768125) от 17.03.2018
-
-Виктор Артёмов, Юрий Лубченков | Рождение Новороссии. От Екатерины II до Александра I (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новороссия возникла и развивалась как составная часть Русского Мира, где национальная и религиозная толерантность, широта души, уважение традиций и духовность всегда были и есть его основой того мира, что вырос из Древнерусского государства, Московской Руси, Российской империи, а потом - и СССР. Как образовалась Новороссия? Кто создавал и что способствовало развитию (   Читать дальше...   )Жанр: Отечественная историяПродолжительность: 17:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D153E340059C0070BBB45C1B6D436BAB18702C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

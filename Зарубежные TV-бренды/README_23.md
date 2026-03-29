@@ -1,3 +1,107 @@
+###  Публикация: 749417   (805349) от 23.04.2016
+
+Animal Planet. Симпатичные котята и щенки / Too Cute (2012) HDTV [H.264/1080i] [2 серия из 45]
+
+>>Зарубежные TV-бренды
+>>Animal Planet
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_805349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Истории взросления котят и щенков. Начиная от их первых неустойчивых шагов, их жизнь будет эпическим путешествием для этих малышей. Эти милые создания слишком привлекательны, слишком любопытны, и слишком симпатичны.Жанр: Документальный, научно-познавательный, природаПеревод: ДублированныйПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB2EF400D1E674937026441BA349E51278DA631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743199   (805228) от 23.04.2016
+
+NG. Суперсооружения Третьего рейха / Nazi megastructures (2013) [1 сезон, 6 серий из 6] HDTVRip [H.264/720p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_805228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Апрель 1945. Берлин – столица фашистской Германии. Главный оплот Гитлера. Ему приходится готовить Берлин к битве. Город превратился в крепость и в его центре – неуязвимый подземный Фюрербункер. Миллион русских солдат, пять эшелонов обороны и битва, которая определит будущее мира. Гитлер готовится к отражению атаки его главной цитадели. Это история крепости Берлин.Телекомпания: National GeographicЖанр: документальный, историяРежиссер: -/-Перевод: Профессиональный, одноголосый |АРК ТВ|Субтитры: НетПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8937B583A682A915AE42CEDD7FBC9A8DA43829EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008919   (805117) от 23.04.2016
+
+BBC. Нетронутые уголки дикой природы / Nature's Microworlds (2012-2014) HDTVRip [H.264/720p] (сезон 1-3 из 3, серии 3-16 из 16)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_805117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наша планета – величайшая загадка Вселенной. Миры внутри других миров, каждый из которых - это самостоятельная экосистема, наполненная жизнью. Для того чтобы понять, как эти миры устроены, мы попытаемся исследовать их по отдельности. Мы сможем разобрать эту необыкновенную мозаику по кусочкам и обнаружить главный элемент – ключ к самой жизни, спрятанный глубоко в (   Читать дальше...   )Телекомпания: BBCЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88E11B54804C2A4CC84B46F4DD360310D0AF3AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505581   (804245) от 27.10.2021
+
+NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p] (серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_804245.jpg" />
+</div>
+
+
+###  Подробнее
+
+В южной части Атлантического и Индийского океанов находятся острова Южная Джорджия, Буве и Крозе, которые являются домом для одних из самых крупных в мире популяций тюленей и пингвинов. Этим животным, великолепно адаптировавшимся к жизни в холодном океане, необходимо выходить на берег для того, чтобы вырастить свое потомство, и за ними неотступно следуют зубатые (   Читать дальше...   )Производство: Южная Африка / Obsessively Creative CC Wildbear Entertainment National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Стефания МюллерПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 2 х ~ 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8EB1DB10193D40E07FB185EC7F64693EA932F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544457   (804201) от 19.04.2014
 
 BBC. Horizon. Охота за бозоном Хиггса / BBC. Horizon. The Hunt for Higgs (2012) HDTVRip [H.264/720p]
@@ -6,7 +110,7 @@ BBC. Horizon. Охота за бозоном Хиггса / BBC. Horizon. The Hu
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804201.jpg" />
+  <img src="Z:/picture/008/save_picture_804201.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Discovery. Величайшая загадка Эвереста / Everest's Grea
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804131.jpg" />
+  <img src="Z:/picture/008/save_picture_804131.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC: Шок и Трепет. История электричества. Искр
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804068.jpg" />
+  <img src="Z:/picture/008/save_picture_804068.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Discovery. Чудаки и акулы / Jackass Shark Week (2021) HDTVRip [H.264
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804000.jpg" />
+  <img src="Z:/picture/008/save_picture_804000.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ National Geographic: Самые опасные животные: Восьмин�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803197.jpg" />
+  <img src="Z:/picture/008/save_picture_803197.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803098.jpg" />
+  <img src="Z:/picture/008/save_picture_803098.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC. Панорама. Нелегальная торговля органами 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802492.jpg" />
+  <img src="Z:/picture/008/save_picture_802492.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802476.jpg" />
+  <img src="Z:/picture/008/save_picture_802476.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p-L
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802468.jpg" />
+  <img src="Z:/picture/008/save_picture_802468.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ BBC. Horizon: Охота за бозоном Хиггса-Спец выпуск 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802450.jpg" />
+  <img src="Z:/picture/008/save_picture_802450.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC: Скрытые убийцы в домах... / Hidden Killers (2013-2014) W
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802410.jpg" />
+  <img src="Z:/picture/008/save_picture_802410.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802376.jpg" />
+  <img src="Z:/picture/008/save_picture_802376.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801989.jpg" />
+  <img src="Z:/picture/008/save_picture_801989.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801954.jpg" />
+  <img src="Z:/picture/008/save_picture_801954.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801474.jpg" />
+  <img src="Z:/picture/008/save_picture_801474.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801437.jpg" />
+  <img src="Z:/picture/008/save_picture_801437.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мир будущего
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801298.jpg" />
+  <img src="Z:/picture/008/save_picture_801298.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NGW: Южная Африка: Земля контрастов / South Africa: La
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800835.jpg" />
+  <img src="Z:/picture/008/save_picture_800835.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NGW: Дикие места Ирана / Iran's Wild Side (2019) WEBRip [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800115.jpg" />
+  <img src="Z:/picture/008/save_picture_800115.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NG. Дикие места Таиланда / Thailand's Wild Side (2019) WEBRip 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800043.jpg" />
+  <img src="Z:/picture/008/save_picture_800043.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ BBC. Панорама. Харви Вайнштейн: вся подноготн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799983.jpg" />
+  <img src="Z:/picture/008/save_picture_799983.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799725.jpg" />
+  <img src="Z:/picture/008/save_picture_799725.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00BAD87601E2E46F60625E4D0A10626934CF2022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164658   (799432) от 03.04.2017
-
-NG: Запреты / Taboo (2002-2009) SATRip [30 серий]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_799432.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждой культуры существуют свои традиции и свои правила жизни. Мы знакомимся с самыми странными и порой неприемлемыми для природы человека обрядами и ритуалами, которые являются неотъемлемой частью культуры некоторых народностей на нашей земле. Что заставляет некоторых людей вставлять стальные рыболовные крючки в кожу на спине своего приятеля, чтобы подвесить его (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: ~30 -00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122161   (799181) от 04.04.2017
-
-Discovery. Техногеника. Стратегические Бомбардировщики (2017) HDTVRip [H.264/720p-LQ] (Сезон 2, серия 11 из 13)
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стратегические бомбардировщики интересны не только как памятники холодной войны, но в первую очередь как машины, которые воплощают передовые решения в области конструкции планера, новых материалов и самых совершенных двигателей. Гонка вооружений между СССР и США привела к созданию практически совершенных стратегических бомбардировщиков, способствуя развитию не только (   Читать дальше...   )Телекомпания: Discovery Channel РоссияЖанр: Документальный, История, ТелепередачаПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3601468B8B6D59BCE490A1F7212F97512703482D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121876   (799159) от 04.04.2017
-
-BBC. Самые милые животные / Super Cute Animals (2014) HDTVRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некоторые их них симпатично выглядят, некоторые - забавно себя ведут, но ясно одно - мир полон милых животных. Эта передача расскажет о том, что такое "мило" с научной точки зрения. Узнайте, почему чарующий звук спящих колибри - это вопрос их выживания. Морские выдры выглядят как комочки меха, но теперь вы можете узнать, зачем им на самом деле столько меха. (   Читать дальше...   )Телекомпания: Великобритания / BBCЖанр: Документальный, познавательный, природа, животныеРежиссер: Хлое ПирнПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F02AEB23ED07A2DAD862CD275170D62E48DA95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121975   (799152) от 04.04.2017
-
-Тёмная сторона Всемирной Паутины / Inside the Dark Web (2014) IPTVRip [H.264]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799152.jpg" />
-</div>
-
-
-###  Подробнее
-
-Должна ли сеть быть свободной? Или ее нужно контролировать? Многие обеспокоены тем, что правительство и разнообразные корпорации могут следить за каждым нашим шагом. Есть люди, которые раз за разом отвечают на это, изобретая все новые системы защиты своей информации. Однозначны ли эти технологии? Ведь в интернете можно купить все - от оружия до личных данных кредитных (   Читать дальше...   )Телекомпания: Horizon, BBCЖанр: ДокументальныйРежиссер: Майк РедфордПеревод: "Видеофильм ТВ", двуголосый закадровый, профессиональныйПродолжительность: 00:51:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6FB210BD2AA5D38BC06C4A9C36D3ECC4532802
 ```
 
 https://mybot314.ru/tekegram_catalog/

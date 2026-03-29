@@ -1,3 +1,119 @@
+###  Публикация: 1015216   (149139) от 25.12.2016
+
+VA - Echogarden Compilation #1 • #2 • #3 (2013-2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Scavengers - Seamount (07:58)
+ 02. Overcast Sound - Water Changes Colour (07:17)
+ 03. Förster - Grün XIX (07:26)
+ 04. Basicnoise - EH4800 (07:21)(   Читать дальше...   )Тип издания: WEB, CompilationЖанр: Dub Techno, Techno, Ambient |Продолжительность: 02:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6C1BDA7B229D855DA0BDFF29F206F14579D4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677879   (149058) от 19.11.2023
+
+Vince Clarke - Songs of Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electro, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Винс Кларк (Vince Clarke, настоящее имя — Винсент Джон Мартин (Vincent John Martin) - британский синтипоп-музыкант и автор песен, связан с большим числом известных групп, включая Depeche Mode, Yazoo, The Assembly и Erasure. Один из основателей Depeche Mode, покинул группу 12 января 1982 года. Он провёл в группе два года и является автором восьми из одиннадцати песен (   Читать дальше...   )01. Cathedral
+02. White Rabbit
+03. Passage
+04. Imminent(   Читать дальше...   )Жанр: Ambient, Electro, ExperimentalПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11612E28FFD7F3A7E165484D2BE7F73352B56A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347702   (148868) от 24.12.2019
+
+VA - Oh Holy Night (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ninze & Okaxy - Apollo (original mix) (7:01)
+02. David Dorad - Mexican Alien Song (Dorade Royal version) (9:22)
+03. Acud - Sancha (original mix) (6:33)
+04. Bookwood - Cali (original mix) (5:25)(   Читать дальше...   )Жанр: Deep Progressive HouseПродолжительность: 02:07:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EEFC453A8D0E281A6F286CA82A231AE561B253A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347560   (148755) от 24.12.2019
+
+VA - Bar 25 Music Presents: Selektion 2019 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead-Tones - For The World To Know About (original mix) (7:38)
+02. Bondi - Away From Heaven (Niko Schwind remix) (7:32)
+03. She Knows - Passing Hours (Sascha Cawa remix) (6:55)
+04. Nicone - Una Rosa Es Una Rosa (feat Narra - original mix) (5:33)(   Читать дальше...   )Жанр: Melodic House & TechnoПродолжительность: 02:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E11890A77B8C026B4C9F79A748BE2F08E049171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1519790   (147182) от 25.12.2021
 
 VA - Anjunadeep. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -6,7 +122,7 @@ VA - Anjunadeep. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147182.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - AFTR:HRS (Mixed by Tiesto) (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146572.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Anjunabeats. The Yearbook 2021 (2021) Mixed [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145509.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Massimo Vivona - Metromatiko (2018) Headzone Records [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144809.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Kobarey - The Four Sides of Orithyia (2018) Lowless [FLAC|Lossless|WEB-DL|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144800.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ My_Initials - Twelve (2017) ScanDark Recordings [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144443.jpg" />
 </div>
 
 
@@ -178,7 +294,7 @@ Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144431.jpg" />
 </div>
 
 
@@ -207,7 +323,7 @@ Sofi Tukker - Soft Animals (2016) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Nu-Di
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144334.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Gabe Gurnsey - Physical (2018) [FLAC|Lossless|tracks + .cue] <Disco House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142798.jpg" />
 </div>
 
 
@@ -265,7 +381,7 @@ Moby - Everything Was Beautiful, and Nothing Hurt (Remixes) (2018) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142781.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ Pete Tong - Ibiza Classics (with The Heritage Orchestra Conducted by Jules Buckl
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142498.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ VA - Club Sounds The Ultimate Club Dance Collection Best Of 2017 [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142352.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ VA - Schneeweiss 10 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142061.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ VA - Steyoyoke Gems Solar 08 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <P
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142040.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ VA - Amnesia Ibiza-Underground 9 (2009) 2CD [FLAC|Lossless|tracks + .cue] <Elect
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142023.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ VA - Ritter Butzke: 10 Years (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <T
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141999.jpg" />
 </div>
 
 
@@ -468,7 +584,7 @@ VA - Schneeweiss 11 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141957.jpg" />
 </div>
 
 
@@ -497,7 +613,7 @@ Oliver Koletzki - Fire In The Jungle (2019) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141926.jpg" />
 </div>
 
 
@@ -526,7 +642,7 @@ DJ Aligator Project - Greatest Hits & Remixes (2003) [FLAC|Lossless|WEB-DL|track
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141723.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ VA - Hed Kandi The Mix (2005) HEDK054 [FLAC|Lossless|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140848.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ VA - Anjunadeep: The Yearbook 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140671.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ VA - Ouie First X (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139755.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ VA - Ouie First X (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D6AE3465068D874CCEC03E9EBB6DFDD9E2358D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436242   (139749) от 30.12.2020
-
-Stardust - Music Sounds Better With You (1998) Maxi-Single [FLAC|Lossless|tracks + .cue] <Electronic, Garage House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music Sounds Better With You (Radio Edit) (4:25)
- 02. Music Sounds Better With You (12' Club Mix) (6:51)
- 03. Music Sounds Better With You (Anthem From Paris) (10:30)
- 04. Music Sounds Better With You (Chateau Flight Remix) (7:18)Жанр: Electronic, Garage HouseПродолжительность: 00:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8D489AE0995BE7BBA7809D7CD6053A42C70787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273161   (139554) от 30.12.2018
-
-Claptone - Fantast (2018) [FLAC|Lossless|tracks + .cue] <Deep House, Indie Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birdsong
-02. In the night
-03. Under the moon
-04. Stay the night(   Читать дальше...   )Жанр: Deep House, Indie DanceПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224E72C841675F134033AFECB6C51D9B7AA6585A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679523   (138194) от 25.11.2023
-
-VA - Blufin Loves Amsterdam 11 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Bruns & Balder Beyer - Breakout (We'll Be Just Fine) (Original Mix) [7:10]
-02. Toni Rios & Who Cares & Tosz - What Is Love (Federico Guglielmi Twct Remix) [7:46]
-03. Daniel Bruns & Balder Beyer - Breakout (We'll Be Just Fine) (Source & Rumitz Remix) [7:15]
-04. Iamlyriks - Nothing More (Toni Rios & Sanmartello Remix) [6:57](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA79C557672A072D289AD8B5C0C9842D471B27B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349112   (138187) от 31.12.2019
-
-VA - The Soundgarden: Winter Collection (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K Loveski & Ewan Rill – Jala (06:26)
-02. Yoni Yarchi & Daniel van der Zwaag – Utopia (09:50)
-03. Artfaq – Lost Cosmonaut (08:11)
-04. LeSonic & White Leaf – Kalopsia (07:04)(   Читать дальше...   )Жанр: Progressive House, Tech House, MinimalПродолжительность: 01:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17D511DC2D84AEE0D3C64A496CB27AB7B4462665
 ```
 
 https://mybot314.ru/tekegram_catalog/

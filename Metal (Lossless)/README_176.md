@@ -1,3 +1,90 @@
+###  Публикация: 1256220   (356325) от 21.10.2018
+
+Disturbed - Evolution (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_356325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Ready
+02. No More
+03. A Reason to Fight
+04. In Another Time(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144AA94543B77953DD31FF6FBC3120F49FFC8338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417606   (355907) от 21.10.2020
+
+Mega Colossus - HyperGlaive (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunsword
+02. Sea Of Stars
+03. Gods And Demons
+04. The Judge(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC26CCFCB9D0ED34CE644EE9B5A6255FAA7A895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417550   (355901) от 21.10.2020
+
+Lancelot - But I Just Can't Stay Behind (1983) Reissue, Remastered, 2015, Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_355901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop Man
+02. Home Again
+03. Struck Down
+04. Stargazer(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CBC711B20297A405C0E6B05C518D66BF60687CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417664   (355899) от 21.10.2020
 
 Vengeance - Piece Of Cake (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
@@ -6,7 +93,7 @@ Vengeance - Piece Of Cake (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355899.jpg" />
+  <img src="Z:/picture/008/save_picture_355899.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Paradise Lost - In Requiem (2007) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355896.jpg" />
+  <img src="Z:/picture/008/save_picture_355896.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Paradise Lost - Faith Divides Us - Death Unites Us (2009) Japanese Edition [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355763.jpg" />
+  <img src="Z:/picture/008/save_picture_355763.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Paradise Lost - Tragic Idol (2012) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355752.jpg" />
+  <img src="Z:/picture/008/save_picture_355752.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Withering Surface - Meet Your Maker (2020) [FLAC|Lossless|image + .cue] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355625.jpg" />
+  <img src="Z:/picture/008/save_picture_355625.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Terra Atlantica - Beyond The Borders (2022) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354825.jpg" />
+  <img src="Z:/picture/008/save_picture_354825.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Megadeth - The Sick, The Dying... And The Dead! (2022) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354726.jpg" />
+  <img src="Z:/picture/008/save_picture_354726.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Oceans of Slumber - Winter (2016) [FLAC|Lossless|image + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354593.jpg" />
+  <img src="Z:/picture/008/save_picture_354593.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Bilskirnir - Hammerschlag (2017) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354567.jpg" />
+  <img src="Z:/picture/008/save_picture_354567.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Ginevra - We Belong To The Stars (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354495.jpg" />
+  <img src="Z:/picture/008/save_picture_354495.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Megadeth - Countdown To Extinction (1992) 20-th Anniversary Deluxe Edition /2012
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_354480.jpg" />
+  <img src="Z:/picture/005/save_picture_354480.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ In Flames - Battles (2016) Limited Edition [FLAC|Lossless|image + .cue] <Modern 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354367.jpg" />
+  <img src="Z:/picture/008/save_picture_354367.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Nocturnus AD - Paradox (2019) [FLAC|Lossless|image + .cue] <Atmospheric, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353686.jpg" />
+  <img src="Z:/picture/008/save_picture_353686.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Dream Evil - Dragonslayer (2002) Japanese Edition / King Record /[FLAC|image +.c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353659.jpg" />
+  <img src="Z:/picture/008/save_picture_353659.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Trivium - Silence In The Snow (2015) [FLAC|image+.cue]<New Wave Of American Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353504.jpg" />
+  <img src="Z:/picture/008/save_picture_353504.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Malevolent Creation - Doomsday X (2007) [WavPack|Lossless|image + .cue] <Floridi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352602.jpg" />
+  <img src="Z:/picture/008/save_picture_352602.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Weeping Wound - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352557.jpg" />
+  <img src="Z:/picture/008/save_picture_352557.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Yevabog - Between Two Fires (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352556.jpg" />
+  <img src="Z:/picture/008/save_picture_352556.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Witchery - Nightside (2022) [FLAC|Lossless|WEB-DL|tracks] <Blackened Thrash, Spe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352553.jpg" />
+  <img src="Z:/picture/008/save_picture_352553.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Kaine - After Extinction (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352548.jpg" />
+  <img src="Z:/picture/008/save_picture_352548.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Epoch Of Unlight - At War With The Multiverse (2022) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352546.jpg" />
+  <img src="Z:/picture/008/save_picture_352546.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Freedom Call - Master Of Light (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352481.jpg" />
+  <img src="Z:/picture/008/save_picture_352481.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ The Erinyes - The Erinyes (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352449.jpg" />
+  <img src="Z:/picture/008/save_picture_352449.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ The Erinyes - The Erinyes (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78ABBF93763A6EE880044A480CB346BCB47107B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072435   (352270) от 13.11.2016
-
-Dirkschneider - Live - Back To The Roots (2016) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 02:31
-02. Starlight 03:42
-03. Living For Tonite 04:00
-04. Flash Rockin' Man 04:21(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2827EB42F3EF6DFDC7D5C2E107AF7E3DB63576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256689   (352107) от 23.10.2018
-
-Brief Respite - Lullaby to the Moon (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.    Shattered Glass    05:49
-02.    Order by Chaos    06:12
-03.    Amer et contre tous    04:29
-04.    Lullaby to the Moon    05:00(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED8E574DD6E5EE5D0FEF845C2DC3D145A86D92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418097   (351488) от 23.10.2020
-
-Hexx - Entangled In Sin (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watching Me Burn (4:33)
-02. Entangled in Sin (3:24)
-03. Vultures Gather Round (3:28)
-04. Beautiful Lies (5:06)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08C7C6912D84807EF4735D92923F8976EA6142EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

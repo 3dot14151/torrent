@@ -1,3 +1,81 @@
+###  Публикация: 1082113   (279006) от 12.12.2016
+
+Юлия Бортновская-Медокс | Зимние сказки, стихи и загадки (2015) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_279006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогие мамы и папы, бабушки и дедушки! Зима - это игры в снежки, катание с горок, лепка снеговиков и, конечно же, самый любимый праздник малышей - Новый год с дедом Морозом и Снегурочкой под наряженной ёлкой. вошедшие в эту аудиокнигу веселые стихотворенья, сказки и загадки на зимние и новогодние темы очень понравятся детям.Жанр: Для детей дошкольного возрастаПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2746B106FB8B5D3DFBB2CFF5C68BDD9512DBBD0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 272449   (278822) от 19.12.2010
+
+VA - DisneyMania [7 CD] (2002-2010) [MP3|150-267 kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_278822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Детские песниПродолжительность: 05:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E47034C4ADDC0B3B6E46AD4E156781B8B84AD3C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083537   (273706) от 16.12.2016
+
+Леонид Пантелеев, Юрий Владимиров и др. | О братьях наших меньших (1999) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273706.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Золотая коллекция" - это серия лучших инсценировок русских и зарубежных классических сказок и рассказов, это бесценная и неисчерпаемая кладовая русской и зарубежной культуры, это духовное наследие поколений, это первые "учебники жизни" ребенка.Жанр: Детская литератураПродолжительность: 02:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C857832FA58EB669D2CE451A0A1BCD196FFAB8AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265674   (273022) от 29.11.2018
 
 Анна Морис | 50 правил воспитания детей (2012) [MP3]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273022.jpg" />
+  <img src="Z:/picture/008/save_picture_273022.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272788.jpg" />
+  <img src="Z:/picture/008/save_picture_272788.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272484.jpg" />
+  <img src="Z:/picture/008/save_picture_272484.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271652.jpg" />
+  <img src="Z:/picture/008/save_picture_271652.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271588.jpg" />
+  <img src="Z:/picture/008/save_picture_271588.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271579.jpg" />
+  <img src="Z:/picture/008/save_picture_271579.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271508.jpg" />
+  <img src="Z:/picture/008/save_picture_271508.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271454.jpg" />
+  <img src="Z:/picture/008/save_picture_271454.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Nicolette Larson - Sleep Baby Sleep (1994) [MP3|160 kbps]<Колыбельные
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271325.jpg" />
+  <img src="Z:/picture/008/save_picture_271325.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270773.jpg" />
+  <img src="Z:/picture/008/save_picture_270773.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ VA - Вспоминая СССР. Любимые детские песни (1968
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270755.jpg" />
+  <img src="Z:/picture/008/save_picture_270755.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ Anthony Miles - Мама и ребенок / Mother & Baby (2000) [FLAC|Lossless
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270713.jpg" />
+  <img src="Z:/picture/008/save_picture_270713.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270669.jpg" />
+  <img src="Z:/picture/008/save_picture_270669.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270410.jpg" />
+  <img src="Z:/picture/008/save_picture_270410.jpg" />
 </div>
 
 
@@ -383,7 +461,7 @@ VA - Ритмы детства. Веселые детские танцеваль
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270137.jpg" />
+  <img src="Z:/picture/008/save_picture_270137.jpg" />
 </div>
 
 
@@ -412,7 +490,7 @@ VA - Новогодний мюзикл. Потому что Зима - это з
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269926.jpg" />
 </div>
 
 
@@ -441,7 +519,7 @@ VA - Barbie Let's All Party (2009) [MP3|160 kbps]<Детские песни/Danc
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269678.jpg" />
 </div>
 
 
@@ -470,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268217.jpg" />
+  <img src="Z:/picture/008/save_picture_268217.jpg" />
 </div>
 
 
@@ -496,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266661.jpg" />
 </div>
 
 
@@ -522,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266504.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266486.jpg" />
 </div>
 
 
@@ -579,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266414.jpg" />
 </div>
 
 
@@ -608,7 +686,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266377.jpg" />
 </div>
 
 
@@ -622,90 +700,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DCD3E40D96039A0A446CB66812DE9911A68DA1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 429167   (266369) от 29.12.2011
-
-Анна Петряшева - Я рисую (2009) [MP3|320 kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266369.jpg" />
-</div>
-
-
-###  Подробнее
-
-1+ /-11 Мама
-2+/-12  Все ли можно сосчитать?
-3+/-13 Чучело
-4+/-14 Песенка сладкоежек(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE9BF4EEA1D3216147EE12832B8F61AEB4A463C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 429229   (266307) от 29.12.2011
-
-Маша Воинова - Алексей Воинов - Разноцветное лето (2008) [MP3|320 kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266307.jpg" />
-</div>
-
-
-###  Подробнее
-
-1+/-9. Альбом
-2+/-10. Разноцветное лето
-3+/-11. В двух шагах
-4+/-12. Волшебный дом(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB8976E716E672A2837320470EDA264FFC17927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267693   (265806) от 07.12.2018
-
-Жан-Клод Мурлева | Река, текущая вспять (2000) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чтобы взять каплю воды из реки, текущей вспять, каплю, способную сделать человека бессмертным, маленький лавочник Томек совершит долгое и сложное путешествие. Пройдя через множество препятствий, он станет смелым, стойким, находчивым юношей, найдёт свою любовь и приобретёт настоящих друзей, прежде чем поймёт, что смерть — не больше и не меньше, чем часть жизни.Жанр: СказкаПродолжительность: 01:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F122D4268F0E4BAF22DB2F7046DCA0D48FB63EB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

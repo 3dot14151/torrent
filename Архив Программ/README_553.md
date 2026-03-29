@@ -6,7 +6,7 @@ Adobe Acrobat Reader DC 2015.007.20033 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771294.jpg" />
+  <img src="Z:/picture/008/save_picture_771294.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SONY Vegas Pro 13.0 Build 444 (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771291.jpg" />
+  <img src="Z:/picture/008/save_picture_771291.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771268.jpg" />
+  <img src="Z:/picture/008/save_picture_771268.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GPU-Z 0.8.8 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771255.jpg" />
+  <img src="Z:/picture/008/save_picture_771255.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AVG AntiVirus 2016 16.71.7597 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771254.jpg" />
+  <img src="Z:/picture/008/save_picture_771254.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AVG Internet Security 2016 16.71.7597 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771243.jpg" />
+  <img src="Z:/picture/008/save_picture_771243.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ IObit Driver Booster Pro 6.2.1.268 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771203.jpg" />
+  <img src="Z:/picture/008/save_picture_771203.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ LibreOffice 5.1.3 Stable + Help Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771152.jpg" />
+  <img src="Z:/picture/008/save_picture_771152.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Adobe Acrobat Reader DC 2015.016.20039 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771125.jpg" />
+  <img src="Z:/picture/008/save_picture_771125.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ UC Browser 5.6.12265.1015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771119.jpg" />
+  <img src="Z:/picture/008/save_picture_771119.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Kaspersky Lab Products Remover 1.0.1064 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_771115.jpg" />
+  <img src="Z:/picture/005/save_picture_771115.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ PortableApps.com Platform 14.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771087.jpg" />
+  <img src="Z:/picture/008/save_picture_771087.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ WinRAR 5.40 Beta 1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771013.jpg" />
+  <img src="Z:/picture/008/save_picture_771013.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ AI RoboForm Enterprise 7.9.18.5 Final Repack by Alker [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771010.jpg" />
+  <img src="Z:/picture/008/save_picture_771010.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ TeamViewer 11.0.59518 Free | Corporate | Premium RePack (& Portable) by D!akov [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771009.jpg" />
+  <img src="Z:/picture/008/save_picture_771009.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Daum PotPlayer 1.6.60136 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771002.jpg" />
+  <img src="Z:/picture/008/save_picture_771002.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Daum PotPlayer 1.6.60136 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770954.jpg" />
+  <img src="Z:/picture/008/save_picture_770954.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ uTorrentPro 3.4.7 Build 42330 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770889.jpg" />
+  <img src="Z:/picture/008/save_picture_770889.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ McNeel Rhinoceros 5 SR13 5.13.60404.13390 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770879.jpg" />
+  <img src="Z:/picture/008/save_picture_770879.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ DVDFab 9.1.9.6 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770764.jpg" />
+  <img src="Z:/picture/008/save_picture_770764.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Windows Firewall Control 4.4.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770721.jpg" />
+  <img src="Z:/picture/008/save_picture_770721.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ IObit Uninstaller Free 10.0.0.42 Beta [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770679.jpg" />
+  <img src="Z:/picture/008/save_picture_770679.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Media Player Classic Home Cinema 1.9.5 RePack (& portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770678.jpg" />
+  <img src="Z:/picture/008/save_picture_770678.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Photo Supreme 5.4.1.2998 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770675.jpg" />
+  <img src="Z:/picture/008/save_picture_770675.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Reg Organizer 7.10 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770666.jpg" />
+  <img src="Z:/picture/008/save_picture_770666.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ MediaHuman YouTube Downloader 3.9.9.40 (1706) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770622.jpg" />
+  <img src="Z:/picture/008/save_picture_770622.jpg" />
 </div>
 
 

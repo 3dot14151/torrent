@@ -1,3 +1,179 @@
+###  Публикация: 1280851   (757095) от 05.02.2019
+
+VA - German Top 50 Party Schlager Charts 04.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_757095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Anders - Sie sagte doch sie liebt mich (feat. Florian Silbereisen)
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Die Liebe Siegt Sowieso
+04. Maite Kelly - Heute Nacht für immer(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F693DBEB09E911ED62306A7600A88A3DEF6E672F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522768   (756766) от 08.01.2022
+
+VA - Music News vol.159 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756766.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lynnea M - Three Little Words (Syn Cole VIP Mix) (03:05)
+ 002. ALIENKEY feat. NADVAMU - Чужая (03:23)
+ 003. Alina Gerc - Hello (01:37)
+ 004. Alison Wonderland - Fear Of Dying (03:08)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1558CD913DA8E9D3830FF783B2C57083FD80FE0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215693   (756348) от 27.03.2018
+
+VA - Music For Fitness Green Party (2018) [MP3|320 Kbps] <Pop, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756348.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dimix - Started A Fire (Instrumental Mix)
+002. DJ Mix - 5K Power-Run-Mix
+003. Jax Jones Feat. Raye - You Don't Know Me
+004. Liam Payne - Strip That Down(   Читать дальше...   )Жанр: Pop, Dance, Electro HouseПродолжительность: 08:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B780A7C08A6CD7B280B46B3A3B806CF06EA62CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522798   (756326) от 08.01.2022
+
+VA - Радио Рекорд Итоговый Суперчарт 2021 - 100 лучших треков [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756326.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Bad Habits (3:51)
+002. Minelli - Rampampam (3:20)
+003. Masked Wolf - Astronaut In The Ocean (Alok Remix) (2:08)
+004. Nessa Barrett feat. Jxdn - La Di Die (D. Anuchin Radio Edit) (2:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050CBC2F352B8E59E9D4C1FCDD7C40D412E28841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781447   (756250) от 28.04.2014
+
+VA - The Official UK Top 40 Singles Chart (27-04-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Все изменения по сравнению с прошлым чатом Вы можете посмотреть здесь. А новинки под спойлером NEW.
+Во все треки вшиты обложки альбомов.01. Mr. Probz - Waves  (3:28)
+02. Kiesza - Hideaway  (4:12)
+03. Sigma - Nobody To Love  (4:12)
+04. John Legend - All Of Me  (4:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEABDA398D61E49BA57CC8D334DED5B4B06F57CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018542   (755931) от 20.05.2016
+
+VA - Музыкальный заряд бодрости 2 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_755931.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дмитрий Прянов - Я Любуюсь Тобой
+002. Disclosure Feat. The Weeknd - Nocturnal
+003. Burito - Верхних Этажей Тайная Любовь
+004. Dada Life - One Smile(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA2BB6B7B63DDD6C58E0525A6264FBF8CAAB1203
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018501   (755675) от 20.05.2016
 
 VA - Passion Dance Hit 90's (2016) [MP3|314~320 кб/с] <Techno, Pop, Dance>
@@ -6,7 +182,7 @@ VA - Passion Dance Hit 90's (2016) [MP3|314~320 кб/с] <Techno, Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755675.jpg" />
+  <img src="Z:/picture/008/save_picture_755675.jpg" />
 </div>
 
 
@@ -35,7 +211,7 @@ VA - Guitar Collection 4 (2016) [MP3|320 кб/с] <Instrumental, Acoustic, Blues
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755521.jpg" />
+  <img src="Z:/picture/008/save_picture_755521.jpg" />
 </div>
 
 
@@ -64,7 +240,7 @@ VA - В Ремиксах. Disco 90-х 100 hits (2016) [MP3|192-320 кб/с] <Clu
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755421.jpg" />
+  <img src="Z:/picture/008/save_picture_755421.jpg" />
 </div>
 
 
@@ -93,7 +269,7 @@ VA - This is Rock Blues folk country (2020) [MP3|320 Kbps] <Rock, Blues, Country
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755286.jpg" />
+  <img src="Z:/picture/008/save_picture_755286.jpg" />
 </div>
 
 
@@ -122,7 +298,7 @@ VA - Летняя свежая 30-тка Vol 2 (2020) [MP3|320 Kbps] <Pop, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755277.jpg" />
+  <img src="Z:/picture/008/save_picture_755277.jpg" />
 </div>
 
 
@@ -151,7 +327,7 @@ VA - Pure Bass: Deluxe Session (2019) [MP3|320 Kbps] <DnB, Dubstep, Jungle>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755206.jpg" />
+  <img src="Z:/picture/008/save_picture_755206.jpg" />
 </div>
 
 
@@ -180,7 +356,7 @@ Natune - Obsession (2018) Army Of Lovers Cover Remix [MP3|192 Kbps] <Club, Dance
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754696.jpg" />
+  <img src="Z:/picture/008/save_picture_754696.jpg" />
 </div>
 
 
@@ -206,7 +382,7 @@ VA - 100 пудовый хит 50х50 №2 (2016) [MP3|256 кб/с] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753891.jpg" />
+  <img src="Z:/picture/008/save_picture_753891.jpg" />
 </div>
 
 
@@ -235,7 +411,7 @@ VA - Crown Escapades (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752415.jpg" />
+  <img src="Z:/picture/005/save_picture_752415.jpg" />
 </div>
 
 
@@ -264,7 +440,7 @@ VA - Самые сливки. Europa Plus 50x50 (2016) [MP3|256 кб/с] <Pop, D
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_751996.jpg" />
+  <img src="Z:/picture/005/save_picture_751996.jpg" />
 </div>
 
 
@@ -293,7 +469,7 @@ VA - ЕвроХит Топ 40 Europa Plus 08.02.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751739.jpg" />
+  <img src="Z:/picture/008/save_picture_751739.jpg" />
 </div>
 
 
@@ -322,7 +498,7 @@ VA - Сегодня на радио хиты FM Vol.4 (2019) [MP3|320 Kbps] <Pop
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751513.jpg" />
+  <img src="Z:/picture/008/save_picture_751513.jpg" />
 </div>
 
 
@@ -351,7 +527,7 @@ In-Grid - Tu Es Foutu (2019) Remix [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751058.jpg" />
+  <img src="Z:/picture/008/save_picture_751058.jpg" />
 </div>
 
 
@@ -377,7 +553,7 @@ VA - Club Funky House: Majestic Remix (2016) [MP3|320 кб/с] <Club, Electro, F
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750185.jpg" />
+  <img src="Z:/picture/008/save_picture_750185.jpg" />
 </div>
 
 
@@ -406,7 +582,7 @@ VA - Vocalove (2020) [MP3|320 Kbps] <Pop, Rock, Other>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750159.jpg" />
+  <img src="Z:/picture/008/save_picture_750159.jpg" />
 </div>
 
 
@@ -435,7 +611,7 @@ VA - Summer Lovin' (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750153.jpg" />
+  <img src="Z:/picture/008/save_picture_750153.jpg" />
 </div>
 
 
@@ -464,7 +640,7 @@ VA - The Official UK Top 40 Singles Chart 08.02.2019 [MP3|320 Kbps] <Pop, Dance,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750022.jpg" />
+  <img src="Z:/picture/008/save_picture_750022.jpg" />
 </div>
 
 
@@ -493,7 +669,7 @@ VA - Winter White Party (2019) [MP3|320 Kbps] <Club, Dance, House>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750019.jpg" />
+  <img src="Z:/picture/008/save_picture_750019.jpg" />
 </div>
 
 
@@ -522,7 +698,7 @@ VA - Acoustic Chill by Deezer (2020) [MP3|320 Kbps] <Rock, R&B, Soul & Funk>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749840.jpg" />
+  <img src="Z:/picture/008/save_picture_749840.jpg" />
 </div>
 
 
@@ -551,7 +727,7 @@ VA - The Official UK Top 40 Singles Chart 30.03.2018 (2018) [MP3|320 Kbps] <Pop,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749570.jpg" />
+  <img src="Z:/picture/005/save_picture_749570.jpg" />
 </div>
 
 
@@ -565,177 +741,6 @@ VA - The Official UK Top 40 Singles Chart 30.03.2018 (2018) [MP3|320 Kbps] <Pop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:606919AF02C8506BCD773EACC9D55DB502BDD8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216512   (749432) от 31.03.2018
-
-VA - Cosmic Party (2018) [MP3|320 Kbps] <SpaceDisco , SpaceSynth , Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alden Tyrell - Phaze Me
-02. Smirnovlezha - April Sky
-03. Frankie - Quicksand (Original Mix)
-04. Max Shandula - Summer Consolation(   Читать дальше...   )Жанр: SpaceDisco , SpaceSynth , ElectronicПродолжительность: 06:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8412BB7B477FF424C82C37A21ACBFF16C33149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216507   (749327) от 31.03.2018
-
-VA - Hits Cocktail Vol.17 (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tungevaag & Raaban - All For Love
-02. Darius & Finlay x Last Night feat. Max Landry - Close My Eyes
-03. Odyssey feat. Breana Marin - Fire
-04. Foxa x Bazzflow Ft. Jex - Find You (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 04:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6CBD4533AFBB07A401323CE57278FBE4D662BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216476   (749316) от 31.03.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 30.03.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
-02. Luis Fonsi, Demi Lovato - Echame La Culpa
-03. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession
-04. Jax Jones - Breathe (Ina Wroldsen)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A04FB74F9D1A936ABB78710BB4BF4E1F83FFA1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019667   (748063) от 24.05.2016
-
-C.C. Catch - Super Hits Collection (2015) [MP3|256 кб/с] <Eurodisco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cause You Are Young
-02. Heartbreak Hotel
-03. Goog Guys Only Win In Movies
-04. You Can Run Away From It(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9BAAC9470DCE4CB52AA6B7057F170BF8C2F095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216661   (747841) от 01.04.2018
-
-VA - La Player Tempted Latinos (2018) [MP3|320 Kbps] <Latin Pop, Norteno, Banda, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Cant Get You Out Of My Head (Lmpool Long Edit Reggaeton To Top40s Trans 100bpm _ 128bpm) 4:39
-02. Maluma - El Prestamo (Lmpool Short Edit In & Out) 1:59
-03. Cauty - Kylie & Kyrie (Lmpool Short Edit Morphius Clap Intro) 2:57
-04. Bad Bunny - Dime Si Te Acuerdas (Lmpool Long Edit Morphius Clap Intro) 3:16(   Читать дальше...   )Жанр: Latin Pop, Norteno, Banda, OtherПродолжительность: 04:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6512A91C185658977C6755FB1CC97880665E6A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281819   (747702) от 10.02.2019
-
-La Bouche - Be My Lover (2017) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747702.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. La Bouche - Be My Lover (Upfinger & Velchev) RemixЖанр: Club, DanceПродолжительность: 00:04:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D9BEDB23C15F0DEBDA3ACC65043A5279FC921D
 ```
 
 https://mybot314.ru/tekegram_catalog/

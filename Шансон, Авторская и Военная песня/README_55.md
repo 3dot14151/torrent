@@ -1,3 +1,73 @@
+###  Публикация: 485573   (89818) от 21.04.2012
+
+VA - Для всех, кто служит (2006 - 2008) (2CD)[MP3|320 кб/с]<Военная песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Военная песняПродолжительность: 01:12:24
+ 01. Владимир Воркутинский - Салажата (2:46)
+ 02. Деникин и 'Группа поддержки' - Я ухожу (2:54)
+ 03. Ольга Сердцева - Дорога встречная (3:34)
+ 04. Михаил Бондарев - Батя (3:43)
+ 05. гр. Гуляй поле - Победа (3:31)
+ 06. Анатолий Полотно - Последняя война (4:18)
+ 07. Катя Назарова - Неделя до приказа (4:05)
+ 08. Вадим Манцев и гр. 'ОЗ' - Еду я домой (3:23)
+ 09. Вячеслав Константинов - Ямочки (4:23)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E4548D5C653271074C9A71FF2296950017FE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 485464   (89606) от 20.04.2012
+
+VA - Мы Вас помним, Вы заслужили (2010) [MP3|320 kbps]<Военная песня>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. К. Шульженко - Давай закурим
+02. Краснознаменный академический ансамбль песни и пляски имени А.В.
+Александрова - Священная война
+03. Г. Виноградов - Эх, дороги
+04. С. Хромченко - В лесу прифронтовом
+05. Краснознаменный академический ансамбль песни и пляски имени А.В.
+Александрова - Смуглянка
+06. Г. Виноградов - Катюша
+07. Л. Утесов - Офицерский вальс
+08. Г. Абрамов - Шумел сурово Брянский лес(   Читать дальше...   )2010Жанр: Военная песняПродолжительность: 01:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A938ECE888B95B427DE916FE1E9FF4B96C2A43C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484680   (89261) от 18.04.2012
 
 VA - Песни о Великой войне (2005) [APE|Lossless]<Военная Песня>
@@ -6,7 +76,7 @@ VA - Песни о Великой войне (2005) [APE|Lossless]<Военна�
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89261.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ VA - Песни о Великой войне (2005) [MP3|320 kbps]<Военна�
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89236.jpg" />
 </div>
 
 
@@ -76,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89115.jpg" />
 </div>
 
 
@@ -111,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85744.jpg" />
 </div>
 
 
@@ -146,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85701.jpg" />
 </div>
 
 
@@ -181,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85521.jpg" />
 </div>
 
 
@@ -216,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81377.jpg" />
 </div>
 
 
@@ -249,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81273.jpg" />
 </div>
 
 
@@ -275,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80990.jpg" />
 </div>
 
 
@@ -310,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80055.jpg" />
 </div>
 
 
@@ -336,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79261.jpg" />
 </div>
 
 
@@ -371,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78541.jpg" />
 </div>
 
 
@@ -406,7 +476,7 @@ Dalida - 2 альбома (2010) [FLAC|Lossless]<Pop, Chanson>
 >>Зарубежный Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77758.jpg" />
 </div>
 
 
@@ -432,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76802.jpg" />
 </div>
 
 
@@ -467,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71969.jpg" />
 </div>
 
 
@@ -496,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71967.jpg" />
 </div>
 
 
@@ -525,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71958.jpg" />
 </div>
 
 
@@ -554,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71957.jpg" />
 </div>
 
 
@@ -583,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71688.jpg" />
 </div>
 
 
@@ -612,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71676.jpg" />
 </div>
 
 
@@ -641,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71632.jpg" />
 </div>
 
 
@@ -670,7 +740,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71626.jpg" />
 </div>
 
 
@@ -699,7 +769,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71586.jpg" />
 </div>
 
 
@@ -728,7 +798,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71537.jpg" />
 </div>
 
 
@@ -742,64 +812,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D885DD5EBFBA01B8005D53FD173045D18DBFB37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774916   (71500) от 25.01.2025
-
-Алла Иошпе и Стахан Рахимов - Вчера и сегодня (2008) [MP3|320 Kbps] <Ретро, Эстрада>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Листая старые альбомы [00:07:10]
-02. Говорят [00:03:07]
-03. Дорогая моя, дорогой [00:03:42]
-04. Гости на дачу [00:03:44](   Читать дальше...   )Жанр: Ретро / ЭстрадаФормат: MP3 (tracks)Продолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104C2DC514F50F9A191BCBB19E2EA4C65CA4888A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776544   (71209) от 02.02.2025
-
-Валерий Чечет - Песни о войне. К 80-летию победы в Великой Отечественной войне 1941-1945 (2025) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Я оставлю тебе [00:02:12]
-02 - Ночь летнего солнцестояния [00:02:17]
-03 - Памяти подольских курсантов [00:02:31]
-04 - На безымянной высоте [00:03:36](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C55BB7DAED1D5FD237C1FC26D4ACEA6FB0686BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

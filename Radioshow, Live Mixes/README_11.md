@@ -1,3 +1,61 @@
+###  Публикация: 1155689   (531678) от 04.08.2017
+
+VA - Ori Uplift - Uplifting Only 234 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_531678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PRE-RELEASE PICK: InnerSync - Fairies from the Magic Forest (EXCLUSIVE PREMIERE)
+02. Sunsitive feat. Angel Falls - Summer Love (Derek Palmer Remix)
+03. Aurosonic & Sue McLaren - Captured By Gravity (Omar Sherif Extended Mix)
+04. Bryan Kearney & Plumb - All Over Again (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D8903C5C9B2F4E8FF403137C97E6E6A92536573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312602   (530960) от 05.07.2019
+
+Ed Lynam - Live @ Infected, Odense, Denmark 2019-06-22 [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - I Feel Love (Nicholson Remix)
+02. Sash! - Mysterious Times (Nicholson Remix)
+03. Michael Splint Feat. Sasja - You Set Me Free (DJ Choose & F's Remix)
+04. Walt - Let The Music Play (David Rust Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E63E4CBA4623138432713A2C90CB2F784D90072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312596   (530957) от 05.07.2019
 
 Daniel Lesden - Live @ Night Terrace, Aglomerat Moscow, Russia 2019-06-28 [MP3|320 Kbps] <Trance, Progressive House. Psy Trance>>
@@ -6,7 +64,7 @@ Daniel Lesden - Live @ Night Terrace, Aglomerat Moscow, Russia 2019-06-28 [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530957.jpg" />
+  <img src="Z:/picture/008/save_picture_530957.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530184.jpg" />
+  <img src="Z:/picture/008/save_picture_530184.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ David Guetta - Capital FM Summertime Ball, Wembley Stadium London (2022-06-12) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530081.jpg" />
+  <img src="Z:/picture/008/save_picture_530081.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Justus - Live at W Amsterdam, Netherlands (Exclusive Mix) (2022-05-30) [MP3|320 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528856.jpg" />
+  <img src="Z:/picture/008/save_picture_528856.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ David Guetta & MORTEN - Live @ kineticFIELD, EDC Las Vegas, United States (2022-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528797.jpg" />
+  <img src="Z:/picture/008/save_picture_528797.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Swedish House Mafia & The Weeknd - Live @ Coachella Stage, Coachella Festival We
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528789.jpg" />
+  <img src="Z:/picture/008/save_picture_528789.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Hardwell - Tomorrowland Friendship Mix (2022-06-23) [MP3|320 Kbps] <Techno, Big 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527182.jpg" />
+  <img src="Z:/picture/008/save_picture_527182.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Live @ The Indy 500 Snake Pit, United States (2022-05-29) [MP3|~245 Kbps (V
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524322.jpg" />
+  <img src="Z:/picture/008/save_picture_524322.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523551.jpg" />
+  <img src="Z:/picture/008/save_picture_523551.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Ori Uplift & Rich Triphonic - Uplifting Only 288 (2018) [MP3|320 Kbps] <Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520257.jpg" />
+  <img src="Z:/picture/008/save_picture_520257.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520255.jpg" />
+  <img src="Z:/picture/008/save_picture_520255.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Lane 8 - Summer 2022 Mixtape (2022-06-29) [MP3|320 Kbps] <Progressive House, Dee
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519827.jpg" />
+  <img src="Z:/picture/008/save_picture_519827.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Markus Schulz - Global DJ Broadcast (Sunrise Set) (2022-06-30) [MP3|320 Kbps] <P
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517714.jpg" />
+  <img src="Z:/picture/008/save_picture_517714.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Tiesto - Tomorrowland Friendship Mix (2022-06-30) [MP3|320 Kbps] <Electro Pop, B
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517661.jpg" />
+  <img src="Z:/picture/008/save_picture_517661.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Aly & Fila - Future Sound Of Egypt 607 (John '00' Fleming Takeover) (2019-07-17)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513629.jpg" />
+  <img src="Z:/picture/008/save_picture_513629.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ Markus Schulz - Global DJ Broadcast (18 July 2019) with guest Nifra (2019) [MP3|
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513628.jpg" />
+  <img src="Z:/picture/008/save_picture_513628.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ Armin van Buuren - A State of Trance 923 (2019) [MP3|320 Kbps] <Progressive, Tra
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513624.jpg" />
+  <img src="Z:/picture/008/save_picture_513624.jpg" />
 </div>
 
 
@@ -494,7 +552,7 @@ VA - Ori Uplift & Stefano Ivanovic - Uplifting Only 289 (2018) [MP3|320 Kbps] <T
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513157.jpg" />
+  <img src="Z:/picture/008/save_picture_513157.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix)(2018) [MP3|320 Kb
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513120.jpg" />
+  <img src="Z:/picture/008/save_picture_513120.jpg" />
 </div>
 
 
@@ -552,7 +610,7 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour - Ibiza) (20
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509215.jpg" />
+  <img src="Z:/picture/008/save_picture_509215.jpg" />
 </div>
 
 
@@ -581,7 +639,7 @@ Martin Garrix - Tomorrowland Friendship Mix (2022-07-07) [MP3|320 Kbps] <Electro
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509115.jpg" />
+  <img src="Z:/picture/008/save_picture_509115.jpg" />
 </div>
 
 
@@ -610,7 +668,7 @@ MORTEN - 4U Sunset Festival, Brazil (2022-04-29) [MP3|320 Kbps] <Electro House, 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508072.jpg" />
+  <img src="Z:/picture/008/save_picture_508072.jpg" />
 </div>
 
 
@@ -639,7 +697,7 @@ Fancy Inc & KVSH & Bhaskar - So Track Boa Festival Belo Horizonte, Brazil (2022)
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508059.jpg" />
+  <img src="Z:/picture/008/save_picture_508059.jpg" />
 </div>
 
 
@@ -668,7 +726,7 @@ Lucas & Steve & DubVision - Exclusive Mix (2022-07-08) [MP3|320 Kbps] <Big Room,
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506307.jpg" />
+  <img src="Z:/picture/008/save_picture_506307.jpg" />
 </div>
 
 
@@ -682,64 +740,6 @@ Lucas & Steve & DubVision - Exclusive Mix (2022-07-08) [MP3|320 Kbps] <Big Room,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B091D0F4E4552C4696E9C0485670CB5CA1412154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933944   (503662) от 04.09.2015
-
-Dj Feel - TOP 30 OF August (2015) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeremy Vancaulart feat. Amy Kirkpatrick - The Fall (Original Mix)
-02. Above Beyond feat. Gemma Hayes - Counting Down The Days (Judah Remix)
-03. Andrew Rayel & Alexander Popov - Mimesis (Original Mix)
-04. Dark Echo & Oleg Farrier Vs. All Sandu - In The Dark (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D300A20C35C5FE5968448B478EED2143D77DE135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563990   (501670) от 17.07.2022
-
-DubVision & Third Party - S2O Songkran Music Festival Korea, South Korea (2022) [MP3|320 Kbps] <Progressive House, Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501670.jpg" />
-</div>
-
-
-###  Подробнее
-
-DubVision @ S2O Songkran Music Festival Korea, South Korea 2022-07-10:
-
-01. DubVision - No More w/Dave Kurtis - Raise Your Hands
-02. Afrojack - ID (Co-Prod. by Magnificence)(   Читать дальше...   )Жанр: Progressive House, Electro House, Big RoomПродолжительность: 01:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D404249E1B34B47FDF0964EA70AFCEAAF99300FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

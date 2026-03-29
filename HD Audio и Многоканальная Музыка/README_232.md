@@ -1,3 +1,235 @@
+###  Публикация: 1648817   (38123) от 06.11.2024
+
+Sonata Arctica - Studio Albums (16 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_38123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonata Arctica — пауэр-метал-группа из Кеми, Финляндия, действующая с 1999 года.
+Первоначально основанная в 1996 году как хард-рок-группа Tricky Beans (позже Tricky Means), группа остановилась на названии Sonata Arctica в 1999 году, поскольку их музыкальный стиль изменился на пауэр-метал, вдохновленный Stratovarius.1999 - Ecliptica
+2001 - Silence
+2003 - Winterheart's Guild
+2004 - Reckoning NightЖанр: Power MetalПродолжительность: 16:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255B3A5253A42123A7784089EF934C2F28358006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684807   (37977) от 07.11.2024
+
+Astral Doors - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Astral Doors — шведская хеви-метал-группа, основанная в 2002 году гитаристом Йоахимом Нордлундом и барабанщиком Йоханом Линдстедтом.2003 - Cloudbreaker
+2005 - Evil Is Forever
+2006 - Astralism
+2007 - New RevelationЖанр: Heavy/Power MetalПродолжительность: 09:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722C79342F8CBDFF4720B923B4FEE2E896A76563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544792   (37910) от 08.11.2024
+
+Eldest 11 - Studio Albums (10 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Modern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Eldest 11 - группа загадка. Группа, не дающая концерты и интервью. Группа, от года к году не меняющая свое звучание, при этом умудряющийся оставаться самобытной и уникальной в плане создаваемой атмосферы и эмоций.2009 - Worst Part of a Decade
+2010 - Lovers & Haters
+2011 - Message to U
+2013 - The Morning StarЖанр: Nu Metal, Modern RockПродолжительность: 09:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB08FBBC9AE4A5F325A7CBDB28010A4DFCD20D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759398   (37877) от 08.11.2024
+
+Neal Morse - No Hill For A Climber (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternity in Your Eyes (20:56)
+02. Thief (5:22)
+03. All the Rage (5:34)
+04. Ever Interceding (6:31)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, Hard RockПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC95906993A737F60DDE4C0D9AD26F960ABE1611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613178   (37797) от 09.11.2024
+
+Delain - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Delain — нидерландская группа, исполняющая музыку в стиле симфоник-метал. Коллектив был основан в 2002 году Мартейном Вестерхольтом, бывшим клавишником Within Temptation.2006 - Lucidity
+2009 - April Rain
+2012 - We Are The Others
+2013 - Interlude (Compilation)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 11:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FBC5BC3AC9D0E497883D3A3F4BE7C621DB8C686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696895   (37774) от 09.11.2024
+
+Depressive Witches - Studio Albums (3 releases) (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black Metal/Black 'n' Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блэк-метал группа Depressive Witches была основана в 2018 году в Пикардии, Франция2021 - Bad Flask
+2022 - Distant Kingdoms
+2024 - Lost, Forgotten and HeartbrokenЖанр: Black Metal/Black 'n' RollПродолжительность: 01:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18795B0E9A75DA019FE904BCA4104F41352A33F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721063   (37759) от 09.11.2024
+
+Paragon - Studio Albums (13 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon — немецкая метал-группа из Гамбурга, играющая в стиле пауэр-метал. Была основана в 1990 году Мартином Кристианом.1995 - World Of Sin
+1998 - The Final Command
+1999 - Chalice Of Steel
+2001 - SteelboundЖанр: Power/Speed MetalПродолжительность: 11:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290C6BEDC1568C3E6DF61492DB572AFBEFA44F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1759549   (37757) от 09.11.2024
+
+Jean Michel Jarre - Zoolook (1984) 40th Anniversary - new mastering, 2024, Sony Music Catalog [FLAC 24/48|Lossless|WEB-DL|tracks] <Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethnicolor (new mastering) [00:11:41]
+02. Diva (new mastering) [00:07:31]
+03. Zoolook (new mastering) [00:03:52]
+04. Wooloomooloo (new mastering) [00:03:18](   Читать дальше...   )Жанр: TechnoПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE332D503D227C9315936977E2CE9B9331A7F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759767   (37670) от 10.11.2024
 
 Primal Scream - Come Ahead (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
@@ -6,7 +238,7 @@ Primal Scream - Come Ahead (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alterna
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37670.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Annalisa - E Poi Siamo Finiti Nel Vortice (2023)  [DSD64 2.0|1bit/2822,4kHz |SAC
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37656.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Crippled Black Phoenix - The Wolf Changes Its Fur But Not Its Nature (2024) [FLA
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37577.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Shaka Ponk - Shaka Ponk (2023) Deluxe Edition, 2024, Tot Ou Tard [FLAC 24/44.1|L
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37570.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Blind Guardian - Studio Albums (13 releases) (1988-2024) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37545.jpg" />
 </div>
 
 
@@ -152,7 +384,7 @@ Kreator - Studio Albums (9 releases) (1995-2022) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37507.jpg" />
 </div>
 
 
@@ -181,7 +413,7 @@ Citizen Soldier - Icarus (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alt.Me
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37370.jpg" />
 </div>
 
 
@@ -210,7 +442,7 @@ The Black Keys - Ohio Players (Trophy Edition) (2024) [FLAC 24/96|Lossless|WEB-D
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37313.jpg" />
 </div>
 
 
@@ -239,7 +471,7 @@ di liberta - Dictum (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indi Folk, Dar
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37312.jpg" />
 </div>
 
 
@@ -268,7 +500,7 @@ Linkin Park - From Zero (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37302.jpg" />
 </div>
 
 
@@ -297,7 +529,7 @@ Lionville - Supernatural (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37293.jpg" />
 </div>
 
 
@@ -326,7 +558,7 @@ As I Lay Dying - Through Storms Ahead (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37291.jpg" />
 </div>
 
 
@@ -355,7 +587,7 @@ Starchaser - Into The Great Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37290.jpg" />
 </div>
 
 
@@ -384,7 +616,7 @@ Abc - 2 Albums (2022, 2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37289.jpg" />
 </div>
 
 
@@ -413,7 +645,7 @@ George Harrison - Living in the Material World (50th Anniversary) (1973) Reissue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37284.jpg" />
 </div>
 
 
@@ -442,7 +674,7 @@ Nickelback - Live From Nashville (Live From Nashville) (2024) [FLAC 24/96|Lossle
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37278.jpg" />
 </div>
 
 
@@ -471,7 +703,7 @@ Trapeze - Lost Tapes, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Ro
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37271.jpg" />
 </div>
 
 
@@ -500,7 +732,7 @@ Grey Attack - Back to Greysland (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mo
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37269.jpg" />
 </div>
 
 
@@ -514,232 +746,6 @@ Grey Attack - Back to Greysland (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B478457299A7E2BE2014388B87AB29ABBB454519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760630   (37231) от 15.11.2024
-
-Godsmack - IV (2006) Reissue, 2024, Universal Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative metal, hard rock, heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin In Sin (4:40)
-02. Speak (New Version) (3:57)
-03. The Enemy (4:07)
-04. Shine Down (5:01)(   Читать дальше...   )Жанр: Alternative metal, hard rock, heavy metalПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7877EC77C7DE4C21FAF358A1217C8DE8E223AFF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760601   (37213) от 15.11.2024
-
-Linkin Park - From Zero (Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Zero (Intro) (0:22)
-02. The Emptiness Machine (3:10)
-03. Cut the Bridge (3:49)
-04. Heavy Is the Crown (2:47)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FA7423FE340BF39A5AC3784A048D3E116005CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760650   (37205) от 15.11.2024
-
-Gwen Stefani - Bouquet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Somebody Else’s
-02 – Bouquet
-03 – Pretty
-04 – Empty Vase(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601912D31A426F7071FC5724325A27A4FE26ED7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760598   (37202) от 15.11.2024
-
-Rockets - The Final Frontier (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride The Sky (4:20)
-02. Stand On The World (4:13)
-03. Flesh and Bones (5:56)
-04. All 4-One (3:47)(   Читать дальше...   )Жанр: Space RockПродолжительность: 00:55:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BAB929786F0E603F54BDE698821A303600ADD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760631   (37186) от 15.11.2024
-
-The Guess Who - American Woman (1970) Remastered, 2024, SMCMG [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Woman (5:09)
-02. No Time (3:49)
-03. Talisman (5:10)
-04. No Sugar Tonight / New Mother Nature (4:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF56AB69E9A2970247F414FE60C0CD1898AB0BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760625   (37183) от 15.11.2024
-
-Sodom - Tapping The Vein (1992) Super Deluxe Edition, 2024, SPV [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Death, Thrash MetalПродолжительность: 5 CD, 04:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280D3A7B5FC434937D763E1FD707945DC8E71F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760719   (37172) от 15.11.2024
-
-Poppy - Negative Spaces (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. have you had enough? (3:38)
-02. the cost of giving up (3:18)
-03. they’re all around us (3:25)
-04. yesterday (0:48)(   Читать дальше...   )Жанр: Alternative Metal, Metalcore, ElectronicПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF30C44A9B1306713FF79B2EC904FAA7666710AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761087   (36977) от 17.11.2024
-
-Steve Vai, Generation Axe, Brian May, Zakk Wylde, Nuno Bettencourt, Yngwie Malmsteen, Tosin Abasi - Bohemian Rhapsody (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bohemian Rhapsody (6:42)Жанр: RockПродолжительность: 00:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FB7C612EF803943C6F056AA84BD8DAB7075F87
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 737003   (222210) от 21.12.2013
+
+Н. Дмитриева | Кот и Туська (1928) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_222210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для дошкольного возраста.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2303894FA462CFDD81460511D2789A21B45608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 736389   (222180) от 21.12.2013
 
 Михаил Слонимский | Подвиг Андрея Коробицына (1938) [DJVU]
@@ -6,7 +32,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222180.jpg" />
+  <img src="Z:/picture/005/save_picture_222180.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222179.jpg" />
+  <img src="Z:/picture/005/save_picture_222179.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222115.jpg" />
+  <img src="Z:/picture/005/save_picture_222115.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221972.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221955.jpg" />
+  <img src="Z:/picture/005/save_picture_221955.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221803.jpg" />
+  <img src="Z:/picture/005/save_picture_221803.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221797.jpg" />
+  <img src="Z:/picture/005/save_picture_221797.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221583.jpg" />
+  <img src="Z:/picture/005/save_picture_221583.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221571.jpg" />
+  <img src="Z:/picture/005/save_picture_221571.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221369.jpg" />
+  <img src="Z:/picture/005/save_picture_221369.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221151.jpg" />
+  <img src="Z:/picture/005/save_picture_221151.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221098.jpg" />
+  <img src="Z:/picture/005/save_picture_221098.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221053.jpg" />
+  <img src="Z:/picture/005/save_picture_221053.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220642.jpg" />
+  <img src="Z:/picture/005/save_picture_220642.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220576.jpg" />
+  <img src="Z:/picture/005/save_picture_220576.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220348.jpg" />
+  <img src="Z:/picture/005/save_picture_220348.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220128.jpg" />
+  <img src="Z:/picture/005/save_picture_220128.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220066.jpg" />
+  <img src="Z:/picture/005/save_picture_220066.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219923.jpg" />
+  <img src="Z:/picture/005/save_picture_219923.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219505.jpg" />
+  <img src="Z:/picture/005/save_picture_219505.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219335.jpg" />
+  <img src="Z:/picture/005/save_picture_219335.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219329.jpg" />
+  <img src="Z:/picture/005/save_picture_219329.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219142.jpg" />
+  <img src="Z:/picture/005/save_picture_219142.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218810.jpg" />
+  <img src="Z:/picture/005/save_picture_218810.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218711.jpg" />
+  <img src="Z:/picture/005/save_picture_218711.jpg" />
 </div>
 
 
@@ -653,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:222A663C02162414505A61F668BA1964BAD9FDA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269807   (218235) от 16.12.2018
-
-Джей Джей Барридж | Суперзавры. Секрет рапторов (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представь мир, в котором динозавры выжили и эволюционировали в суперзавров! Далекие индонезийские острова Ару. Неизведанные джунгли, где обитают самые загадочные животные на свете - райские хищники, потомки динозавров, опасные и прекрасные одновременно.
-Что привело сюда трех путников из Англии? Би, ее бабушка Барбара Браунли и их верный компаньон Теодор Логан прибыли (   Читать дальше...   )Жанр: Проза для детей, ФэнтезиПеревод: Галина НиловаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B88796282D6E8238442373C43A496CD823F4BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

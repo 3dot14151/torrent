@@ -1,3 +1,82 @@
+###  Публикация: 1277899   (774937) от 22.01.2019
+
+NG: Как устроен интернет. 50 лет онлайн / Inside the Internet. 50 Years of Life Online (2019) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмечая 50-ю годовщину создания интернета, Nat Geo предпринимает веселую ностальгическую поездку в его прошлое по кибершоссе, с самых первых дней и до настоящего времени. Я ЛЮБЛЮ ИНТЕРНЕТ - это та часть славного пути, которая рассказывает о том, "как интернет изменил все" - наши дружеские связи, наши привычки, даже наш образ мышления. Это ностальгическое (   Читать дальше...   )Производство: США, National Geographic StudiosЖанр: Документальный, технологии, интернетРежиссер: Тодд ХерманнПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD7275F81891C1DC71B05F0F0EE7B12A4B7D662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277988   (774233) от 23.01.2019
+
+NGW: Рожденные в Африке. Опасная игровая площадка / Born in Africa (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проследите все этапы взросления этих милых пушистых зверьков, переживая вместе с их матерями за их жизнь и деля с ними моменты нежности к своим детенышам.
+Детеныш каждого животного развивается с разной скоростью, и это влияет на процесс его обучения. В этой серии вы сможете день за днем наблюдать этот процесс, стать свидетелями их прогресса и неправильных действий.Производство: Франция, One Planet, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Стефани ГолдшмитПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8DE9424BC37A3492DFFB6CA06782239648D881F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278021   (774226) от 23.01.2019
+
+NG: C точки зрения науки: Вымирание человечества / Naked Science: Wipepout (2006) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наш мир изобилует разнообразием форм жизни: от простейших одноклеточных существ до, собственно, человека. А теперь представьте себе мир, утопающий в смертоносных газах, иссушаемый аномальной жарой, разрушаемый фатальными спадами температур под пронизывающими космическими излучениями. Мир, на который падают астероиды, разрушаемые высокотемпературными ударными волнами. (   Читать дальше...   )Производство: США, National Geographic, Pioneer Productions, Steadfast TelevisionЖанр: Документальный, познавательный, научно-популярныйРежиссер: Рабиндер МинхасПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C95418717F013F9A9D730A12548CCD734EBDD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277990   (774150) от 23.01.2019
 
 NGW: Дикая Корея. За границей / Wild Korea. Voice of nature (2018) HDTV [H.264/1080i-LQ]
@@ -6,7 +85,7 @@ NGW: Дикая Корея. За границей / Wild Korea. Voice of nature 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774150.jpg" />
+  <img src="Z:/picture/008/save_picture_774150.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772812.jpg" />
+  <img src="Z:/picture/008/save_picture_772812.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_771148.jpg" />
+  <img src="Z:/picture/005/save_picture_771148.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ NG. Убийство Кеннеди / Killing Kennedy (2013) HDTVRip [H.264/720p
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771113.jpg" />
+  <img src="Z:/picture/008/save_picture_771113.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ NG. Комета века / Comet of the century (2013) HDTVRip [H.264/720p-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770114.jpg" />
+  <img src="Z:/picture/008/save_picture_770114.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ NG: Королевство белого волка / Kingdom of The White Wolf (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769659.jpg" />
+  <img src="Z:/picture/008/save_picture_769659.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768738.jpg" />
+  <img src="Z:/picture/008/save_picture_768738.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ NG. Тайны истории: Бостонский душитель / The Hunt 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768355.jpg" />
+  <img src="Z:/picture/008/save_picture_768355.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ NG. Тайны истории. Эксперименты ЦРУ / CIA Secret Expe
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768326.jpg" />
+  <img src="Z:/picture/008/save_picture_768326.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ NG. Тайны истории: Ди Би Купер. Сбежавший терр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768316.jpg" />
+  <img src="Z:/picture/008/save_picture_768316.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ NG: Затерянные сокровища змеиных царей майя /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767301.jpg" />
+  <img src="Z:/picture/008/save_picture_767301.jpg" />
 </div>
 
 
@@ -293,7 +372,7 @@ NG: Джейн / Jane (2017) IPTVRip [H.264]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767228.jpg" />
+  <img src="Z:/picture/008/save_picture_767228.jpg" />
 </div>
 
 
@@ -319,7 +398,7 @@ Nat Geo Wild: Потерянные миры Индии / India's Lost Worlds (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766148.jpg" />
+  <img src="Z:/picture/008/save_picture_766148.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ NG. Тайны истории: Джордж Вашингтон / The Real George
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766128.jpg" />
+  <img src="Z:/picture/008/save_picture_766128.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ NG: Откуда берутся диктаторы / Making a Dictator (2018) SA
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766108.jpg" />
+  <img src="Z:/picture/008/save_picture_766108.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765965.jpg" />
+  <img src="Z:/picture/008/save_picture_765965.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765961.jpg" />
+  <img src="Z:/picture/008/save_picture_765961.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ NGW: Рожденные в Африке. Уроки охоты / Born in Africa 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765398.jpg" />
+  <img src="Z:/picture/008/save_picture_765398.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ NGW: Дикая Ботсвана / Wild Botswana (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765396.jpg" />
+  <img src="Z:/picture/008/save_picture_765396.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ NG: Странная дружба / Unlikely Animal Friends (2016) HDTV [H.264/1
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765395.jpg" />
+  <img src="Z:/picture/008/save_picture_765395.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765333.jpg" />
+  <img src="Z:/picture/008/save_picture_765333.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip [H.264/72
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765249.jpg" />
+  <img src="Z:/picture/008/save_picture_765249.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765087.jpg" />
+  <img src="Z:/picture/008/save_picture_765087.jpg" />
 </div>
 
 
@@ -591,84 +670,6 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B5F1077E6F43D71E8BFB2C5E393317C43B856DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126658   (765038) от 18.04.2017
-
-NG: Разгадка египетских тайн / Egypt unwrapped (2008) HDTVRip  [H.264/720p-LQ] (Серии 1-5; 8; из 8)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765038.jpg" />
-</div>
-
-
-###  Подробнее
-
-История древнего Египта... Чего в ней больше — достоверных фактов или захватывающих воображение легенд и мифов? Этот сериал представит новый взгляд на самые известные тайны Египта. Гидом в этом захватывающем путешествии в глубь веков станет знаменитый египтолог, генеральный секретарь комитета древностей Египта доктор Захи Хавасс. Вам предстоит узнать подлинную историю (   Читать дальше...   )Производство: Великобритания, Atlantic Productions, FremantleMedia Enterprises for National GeographicЖанр: Документальный, история, археология, исследования, мифы, загадки, тайныРежиссер: Дуг Ховарт, Дэвид ЛиПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 5x~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90A1254D64A72591385A7E9116699279158883C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279808   (764301) от 31.01.2019
-
-NG: Инстинкт выживания: Китай. Яростная река / Primal survivor: China, Raging River (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хейзен Одел присоединяется к племени дулунов в долине реки Дулун. Преодолевая бурные воды и леса, полные ядовитых змей и медведей, он вместе с проводниками направляется в покрытые снегом горы, чтобы собрать там целебные травы и мед из ульев, которые защищают тысячи пчел. Хейзен должен проверить себя и возвратиться в деревню, чтобы накормить жителей и оставить им (   Читать дальше...   )Производство: США, Icon Films, National GeographicЖанр: Документальный, исследование, путешествияРежиссер: Джо Лонкрейн, Алекс Паркинсон, Анвар Мамон, Энтони БарвеллПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C493BBE26CCF8DE9D4E4BA42515A971D466EA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279810   (764300) от 31.01.2019
-
-NG: Инстинкт выживания: Пустыни / Primal survivor: Deserts (2018) DVB
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хейзен Одел принимает исключительно сложный вызов выживания в самых непригодных для жизни местах мира, каковыми по праву являются пустыни, где добыть пищу и воду почти невозможно, а палящее солнце способно за минуты сжечь вашу кожу. Хейзен столкнется в этом путешествии с опасными гигантами пустыни, преодолеет смертельно опасные зыбучие пески и будет использовать (   Читать дальше...   )Производство: США, Icon Films, National GeographicЖанр: Документальный, исследование, путешествияРежиссер: Джо Лонкрейн, Алекс Паркинсон, Анвар Мамон, Энтони БарвеллПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB15280CF78213FB67FD13A374D1F494A58E7D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

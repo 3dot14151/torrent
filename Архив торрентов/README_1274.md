@@ -6,7 +6,7 @@ Ummy Video Downloader 1.7.2.8 portable by DRON [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767747.jpg" />
+  <img src="Z:/picture/008/save_picture_767747.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EZ CD Audio Converter 6.0.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767746.jpg" />
+  <img src="Z:/picture/008/save_picture_767746.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767740.jpg" />
+  <img src="Z:/picture/008/save_picture_767740.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ WidsMob Montage 1.14 (1210) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767738.jpg" />
+  <img src="Z:/picture/008/save_picture_767738.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Pixelmator Pro 1.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767737.jpg" />
+  <img src="Z:/picture/008/save_picture_767737.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Mp3tag 2.93 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767734.jpg" />
+  <img src="Z:/picture/008/save_picture_767734.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Nightmares On Wax - Back to Mine: Nightmares on Wax (2019) Compilation [FLAC|Los
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767731.jpg" />
+  <img src="Z:/picture/008/save_picture_767731.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Sweet Home 3D 6.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767726.jpg" />
+  <img src="Z:/picture/008/save_picture_767726.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ The Signal From Toelva (2017) [En] (1.02) License HI2U
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767718.jpg" />
+  <img src="Z:/picture/008/save_picture_767718.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ MediaHuman Youtube Downloader 3.9.9.40 (build 2906) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767711.jpg" />
+  <img src="Z:/picture/008/save_picture_767711.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767698.jpg" />
+  <img src="Z:/picture/008/save_picture_767698.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ Ultra Mood - AIR (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767695.jpg" />
+  <img src="Z:/picture/008/save_picture_767695.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Contacts Journal CRM 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767693.jpg" />
+  <img src="Z:/picture/008/save_picture_767693.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Glary Disk Cleaner 5.0.1.211 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767691.jpg" />
+  <img src="Z:/picture/008/save_picture_767691.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Opera 69.0.3686.36 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767690.jpg" />
+  <img src="Z:/picture/008/save_picture_767690.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Alfred 4 Powerpack 4.1 (build1165) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767685.jpg" />
+  <img src="Z:/picture/008/save_picture_767685.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Brave Browser 0.59.30 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767683.jpg" />
+  <img src="Z:/picture/008/save_picture_767683.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767681.jpg" />
+  <img src="Z:/picture/008/save_picture_767681.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ WinCatalog 18.6.2.125 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767677.jpg" />
+  <img src="Z:/picture/008/save_picture_767677.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Master PDF Editor 5.3.00 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767674.jpg" />
+  <img src="Z:/picture/008/save_picture_767674.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ RegCool 1.101 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767672.jpg" />
+  <img src="Z:/picture/008/save_picture_767672.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ FonePaw Data Recovery 1.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767670.jpg" />
+  <img src="Z:/picture/008/save_picture_767670.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767660.jpg" />
+  <img src="Z:/picture/008/save_picture_767660.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ K-Lite Codec Pack 13.1.0 Mega/Full/Standard/Basic [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767659.jpg" />
+  <img src="Z:/picture/008/save_picture_767659.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767655.jpg" />
+  <img src="Z:/picture/008/save_picture_767655.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Nox App Player 3.8.1.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767652.jpg" />
+  <img src="Z:/picture/008/save_picture_767652.jpg" />
 </div>
 
 

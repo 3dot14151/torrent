@@ -1,3 +1,90 @@
+###  Публикация: 1255217   (366250) от 17.10.2018
+
+Boris - Secrets (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm Worm / Bida / C-kool / Bit –Part 02– / Epithese / Terra Nullius / Sections / In/out/in/out / Footprints / Tracing Finger / 13 / Black, Black Muddy Flow (11:47)
+02. For Example / Week End (6:34)
+03. Big Ship / Albinos / En Attendant Godot / Seven Bells / Fragment Of Wisdom / Last Blue Berry Jam / Metro / Clear Light (13:44)
+04. Q & A (11:34)Жанр: Doom MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6FA39FBE325421079A7B734ED977B70409B60E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255411   (366240) от 17.10.2018
+
+Therion - Sirius B (2004) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blood of Kingu (5:45)
+ 02. Son of the Sun (5:36)
+ 03. The Khlysti Evangelist (5:39)
+ 04. Dark Venus Persephone (4:02)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0388E04A1D34A8DF6BEEA07B51E2BF4807147C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576345   (366174) от 14.09.2022
+
+Devoted Madness - Devoted Madness (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_366174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Through the Eyes
+02. Out of Control
+03. Crashwood
+04. Build Your Supremacy(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C77B82F3FCD80E4328210911C075C59063F621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328253   (365879) от 29.09.2019
 
 Korn/KoЯn - The Nothing (2019) [FLAC|Lossless|tracks + .cue] <Nu-Metal>
@@ -6,7 +93,7 @@ Korn/KoЯn - The Nothing (2019) [FLAC|Lossless|tracks + .cue] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365879.jpg" />
+  <img src="Z:/picture/008/save_picture_365879.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Volbeat - Rewind Replay Rebound (Japanese Edition) (2019) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365877.jpg" />
+  <img src="Z:/picture/008/save_picture_365877.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Ureas - The Naked Truth (2006) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365409.jpg" />
+  <img src="Z:/picture/008/save_picture_365409.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Tibetan Sky Burial - Lamenta (2020) [FLAC|Lossless|WEB-DL|tracks] <Blackened Pos
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365407.jpg" />
+  <img src="Z:/picture/008/save_picture_365407.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Everything In Slow Motion - Influence (2020) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365403.jpg" />
+  <img src="Z:/picture/008/save_picture_365403.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Chaos Divine - Legacies (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365390.jpg" />
+  <img src="Z:/picture/008/save_picture_365390.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Gone are the Days - There (2019) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Alter
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365384.jpg" />
+  <img src="Z:/picture/008/save_picture_365384.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Moonlight Haze - Lunaris (2020) [FLAC|Lossless|image + .cue] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365243.jpg" />
+  <img src="Z:/picture/008/save_picture_365243.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Rammstein - Rammstein (2019) Deluxe Edition [FLAC|Lossless|image + .cue] <Indust
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365231.jpg" />
+  <img src="Z:/picture/008/save_picture_365231.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Dee Snider - We Are The Ones (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364478.jpg" />
+  <img src="Z:/picture/008/save_picture_364478.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Semifer - Insane Death Cults (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364385.jpg" />
+  <img src="Z:/picture/008/save_picture_364385.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Shambles - Oneiric Visions (2022) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364374.jpg" />
+  <img src="Z:/picture/008/save_picture_364374.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Innumerable Forms - 3 Albums (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364373.jpg" />
+  <img src="Z:/picture/008/save_picture_364373.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Forgotten North - Ara II (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Folk Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364372.jpg" />
+  <img src="Z:/picture/008/save_picture_364372.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ SDI - 80s Metal Band (2020) [FLAC|Lossless|image + .cue] <Speed Metal, Thrash, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364368.jpg" />
+  <img src="Z:/picture/008/save_picture_364368.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Sweet Oblivion Feat. Geoff Tate - Sweet Oblivion Feat. Geoff Tate (2019) [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364360.jpg" />
+  <img src="Z:/picture/008/save_picture_364360.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Borknagar - True North (2019) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363592.jpg" />
+  <img src="Z:/picture/008/save_picture_363592.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Klone - Le Grand Voyage (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363414.jpg" />
+  <img src="Z:/picture/008/save_picture_363414.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Spirit Adrift - 4 Albums; 2 Singles (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363025.jpg" />
+  <img src="Z:/picture/008/save_picture_363025.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Paul Di'Anno's Battlezone - Children Of Madness (1987) 2016 Japan Remaster [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361954.jpg" />
+  <img src="Z:/picture/008/save_picture_361954.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Spiral Wounds - Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361895.jpg" />
+  <img src="Z:/picture/008/save_picture_361895.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Stench of Death - Aeternum Ater (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361894.jpg" />
+  <img src="Z:/picture/008/save_picture_361894.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Stallion - From The Dead (2017) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361893.jpg" />
+  <img src="Z:/picture/008/save_picture_361893.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Stallion - From The Dead (2017) [FLAC|Lossless|image + .cue] <Heavy, Speed Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCE08DC5A146FF865D295B686589132C38285918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576755   (361891) от 16.09.2022
-
-Silentend - Neverending War (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - M.A.D (05:23)
-02 - The Sacred Defiled (05:36)
-03 - Massive Oppression (06:10)
-04 - Rage Arise (06:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03EC23DB7D743233F548AA1681061124096E4B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576799   (361890) от 16.09.2022
-
-Demonical - Mass Destroyer (2022) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361890.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. We Conquer the Throne 03:13
-2. Sun Blackened 03:40
-3. Fallen Mountain 05:04
-4. Wrathspawn 03:45(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0EAC081F7DC682788A52A61381C561D878E476F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255619   (361836) от 19.10.2018
-
-House Vs. Hurricane - Perspectives (2010) [FLAC|Lossless|tracks + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaps & Bounds (4:40)
- 02. We, The Reserveless (3:54)
- 03. Lesson Learnt (2:48)
- 04. Off The Wall (3:20)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69144835D525CBFF41211459963FA4E4B308C03A
 ```
 
 https://mybot314.ru/tekegram_catalog/

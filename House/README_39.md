@@ -1,3 +1,127 @@
+###  Публикация: 1232744   (596470) от 26.06.2018
+
+VA - Ibiza Deep House (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_596470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VA - Ibiza Deep House 2018 (Continuous Mix 1) 1:37:10
+02. VA - Ibiza Deep House 2018 (Continuous Mix 2) 1:19:52
+03. VA - Ibiza Deep House 2018 (Continuous Mix 3) 1:00:15
+04. Anatoliy Kurakin - Rhithm Advance (Original Mix) 6:23(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09181FD29BFCC30DB9D2119BA9B3CE05E2750C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914594   (596371) от 03.07.2015
+
+VA - Ibiza Deep House (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_596371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ally Sereda - Foreplay (Leon S Remix) (06:27)
+02. Miguel Alcobia - Hold On (08:37)
+03. Jaques Le Noir - Repeat Your Kiss (05:57)
+04. Chrissy DePauw - Spiriling (Leon S Deep Vocal Mix) (07:06)(   Читать дальше...   )Производство: Planet House MusicЖанр: Deep House, Chill HouseПродолжительность: 02:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F1D97648BD35D9CD6648138420ACDEE1575BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526575   (595741) от 25.07.2012
+
+VA - All Gone Pete Tong Groove Armada Miami 12 (2012) [MP3|320 кб/с]<Electronic, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_595741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовый британский диджей Pete Tong анонсировал выход своей новой компиляции, которая была создана в содружестве с музыкантами из группы Groove Armada.Компиляция получила название «All Gone Miami 12» и разделена на два диска, за каждый из которых отвечает отдельная творческая единица. Первый диск составил и подобрал сам Пит, а второй на совести участников Армады.
+
+Релиз запланирован на 26 марта 2012 года, а в качестве выпускающего лейбла заявлен знаменитый рекординг Defected.1. Groove Armada - Disco, Love, Groove (4:17)
+ 2. Toby Tobias feat. Brendan Reilly - Tomorrow's Bringing (Bicep NY Mix) (2:03)
+ 3. Placeholder - Don't U Know (Jacob Korn NuGroove Remix) (2:57)
+ 4. Parallel Dance Ensemble - Shopping Cart (Maxxi Soundsystem Remix) (3:36)
+ 5. Fingers Inc. - Music Take Me Up (5:12)
+ 6. Cle - Feel It (Don't Cha Know) (4:38)
+ 7. DJ Nibc & Patrick L feat. Andreas Cavaco - Call Me (Tiger Stripes Remix) (3:01)
+ 8. Shenoda - Finally (Original Mix) (4:05)
+ 9. Bingo Players - Devotion (Original Mix) (0:48)
+ 10. Nina Kraviz - Ghetto Kraviz (1:48)(   Читать дальше...   )Жанр: Electronic, HouseПродолжительность: 01:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E0E8291FA323C1EE31ED3EBE23C95F0375BB60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150239   (595278) от 14.07.2017
+
+VA - 100% Super Hits (Summer '17) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_595278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Flight – Extasy (Latin Summer Mix) 06:17
+02. Lykov – I Can Live 04:36
+03. Richard Highway – Somebody 03:54
+04. DJ Favorite – Reach the Sky 03:59(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7ACDCC83E35094AEFC078A302B298B207B1A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233006   (595085) от 27.06.2018
 
 VA - The Gold Of Ibiza (2018) [MP3|320 Kbps] <Funky, Club House>
@@ -6,7 +130,7 @@ VA - The Gold Of Ibiza (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595085.jpg" />
+  <img src="Z:/picture/008/save_picture_595085.jpg" />
 </div>
 
 
@@ -35,7 +159,7 @@ VA - 50 Hot Summer Tunes For Your Beachday (2018) [MP3|320 Kbps] <Funky, Club Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595015.jpg" />
+  <img src="Z:/picture/008/save_picture_595015.jpg" />
 </div>
 
 
@@ -64,7 +188,7 @@ VA - Italo Disco: Essential House Music (Compiled and Mixed by Gerti Prenjasi) (
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595006.jpg" />
+  <img src="Z:/picture/008/save_picture_595006.jpg" />
 </div>
 
 
@@ -93,7 +217,7 @@ Groove Armada - Greatest Hits (2007) Compilation [MP3|320 Kbps] <Trip Hop, Downt
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594569.jpg" />
+  <img src="Z:/picture/008/save_picture_594569.jpg" />
 </div>
 
 
@@ -122,7 +246,7 @@ VA - One Night In St. Tropez 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594070.jpg" />
+  <img src="Z:/picture/008/save_picture_594070.jpg" />
 </div>
 
 
@@ -151,7 +275,7 @@ VA - Destination Ibiza 2017 [MP3|320 Kbps] <Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594069.jpg" />
+  <img src="Z:/picture/008/save_picture_594069.jpg" />
 </div>
 
 
@@ -180,7 +304,7 @@ VA - Black Hole House Music 07-17 (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594067.jpg" />
+  <img src="Z:/picture/008/save_picture_594067.jpg" />
 </div>
 
 
@@ -209,7 +333,7 @@ VA - Italo Dance Rimini 2017 [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594066.jpg" />
+  <img src="Z:/picture/008/save_picture_594066.jpg" />
 </div>
 
 
@@ -238,7 +362,7 @@ VA - Electro Summer 2017 [MP3|320 Kbps] <Electro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594056.jpg" />
+  <img src="Z:/picture/008/save_picture_594056.jpg" />
 </div>
 
 
@@ -267,7 +391,7 @@ VA - Avicii Presents Strictly Miami (2017) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594037.jpg" />
+  <img src="Z:/picture/008/save_picture_594037.jpg" />
 </div>
 
 
@@ -296,7 +420,7 @@ VA - Progressive House Destination Vol.2 (2017) [MP3|320 Kbps] <Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593918.jpg" />
+  <img src="Z:/picture/008/save_picture_593918.jpg" />
 </div>
 
 
@@ -325,7 +449,7 @@ VA - Armada Music - '90s / '00s Dance Hits Vol 1 (2022) [MP3|320 Kbps] <Funky, C
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593891.jpg" />
+  <img src="Z:/picture/008/save_picture_593891.jpg" />
 </div>
 
 
@@ -354,7 +478,7 @@ VA - Latin Fitness Workout 2017 (Ideal For Cardio, Gym, Running & Aerobics) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593868.jpg" />
+  <img src="Z:/picture/008/save_picture_593868.jpg" />
 </div>
 
 
@@ -383,7 +507,7 @@ VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593019.jpg" />
+  <img src="Z:/picture/008/save_picture_593019.jpg" />
 </div>
 
 
@@ -412,7 +536,7 @@ VA - Progressive House 100 - The Ultimate Selection (2022) [MP3|320 Kbps] <Progr
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592894.jpg" />
+  <img src="Z:/picture/008/save_picture_592894.jpg" />
 </div>
 
 
@@ -441,7 +565,7 @@ VA - Nothing But... Dance Vol.14 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592811.jpg" />
+  <img src="Z:/picture/008/save_picture_592811.jpg" />
 </div>
 
 
@@ -470,7 +594,7 @@ VA - Festival Favorites 2015 - Armada Music (2015) [MP3|320 кб/с]<Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590942.jpg" />
+  <img src="Z:/picture/008/save_picture_590942.jpg" />
 </div>
 
 
@@ -499,7 +623,7 @@ Popof - Love Somebody (2015) [MP3|320 кб/с]<House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589108.jpg" />
+  <img src="Z:/picture/008/save_picture_589108.jpg" />
 </div>
 
 
@@ -528,7 +652,7 @@ VA - Record SUPERCHART #196 с DJ Feel (25.06.2011) [MP3|192-320 kbps]<House, El
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586282.jpg" />
+  <img src="Z:/picture/008/save_picture_586282.jpg" />
 </div>
 
 
@@ -554,7 +678,7 @@ VA - Flowers Of May (2019) [MP3|320 Kbps] <Ambient, Downtempo>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586268.jpg" />
+  <img src="Z:/picture/008/save_picture_586268.jpg" />
 </div>
 
 
@@ -583,7 +707,7 @@ VA - Ibiza Chillhouse Party (2015) [MP3|320 кб/с]<Deep House, Chill House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585950.jpg" />
+  <img src="Z:/picture/008/save_picture_585950.jpg" />
 </div>
 
 
@@ -612,7 +736,7 @@ VA - House Music Anthems '19 (2019) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585351.jpg" />
+  <img src="Z:/picture/008/save_picture_585351.jpg" />
 </div>
 
 
@@ -626,128 +750,6 @@ VA - House Music Anthems '19 (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D8A947C626C197E78455E397C08B25E9FF69A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301518   (585349) от 11.05.2019
-
-VA - Total Disco House, Vol.1 (2019) [MP3|320 Kbps] <Nu Disco, Indie Dance,  Jackin House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discotron - Play That Funky Music (Original Mix)
-02. Disko Junkie - Paradise (Original Mix)
-03. Jack Le Funk - Vibin' (La Da Da) (Original Mix)
-04. Discotron - Let's Get This Straight (Original Mix)(   Читать дальше...   )Жанр: Nu Disco, Indie Dance,  Jackin HouseПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21657D53D2818C3E50027D6DE390C9177E3454D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358611   (585310) от 03.07.2011
-
-VA - Ibiza Summer (2011) [MP3|320 kbps]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585310.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Divino Medrano - El Paraiso (Original Mix) (7:29)
-2. Felix Grant - Gypsy On The Roof (Original Mix) (7:36)
-3. Doneyck - My House (Original Mix) (6:34)
-4. Doneyck - My House (Alex Gomez Remix) (6:34)
-5. Botz & Flydrums, Dani Villa - Celtic Rain 2011 (2011 Original Mix) (7:16)
-6. David Mayl, Roberto Sansixto - Skeleti-Ko (Original Mix) (7:09)
-7. Divino Medrano, Damian Portugal - Ladies & Gentleman (Original Club Mix) (6:57)
-8. Fiuset - Nu Skull (Original Mix) (6:53)
-9. Mauro B, Gerard C - Close Your Eyes (Original Mix) (6:45)
-10. Jan Pich - Dumby (Original Mix) (5:44)(   Читать дальше...)Жанр: HouseПродолжительность: 02:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D231DB41432681C44C0EAF6FF0904A8ED573D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041814   (581572) от 10.08.2016
-
-VA - IBIZA - Hot Summer (2016) [MP3|320 Kbps] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jake Terra  -  Climax (Original Mix)  4:36
-02. Karen Garrett  -  Turn It Up (Original Mix)  4:34
-03. Mike Guad  -  Only You (Original Mix)  5:05
-04. SPRiTO  -  All I Want (Original Mix)  4:02(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE283DC90FBA1583A7BACD2E0086A9750FCBBE39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041864   (581564) от 10.08.2016
-
-VA - Weekend Workout Hits (2016) [MP3|320 Kbps] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fais & Afrojack  -  Hey  3:35
-02. Matt Simons  -  Catch & Release (Deepend Remix)  3:16
-03. MOWE & Daniel Nitt  -  Lovers Friends  3:45
-04. Jebroer  -  Me Gabber  2:57(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C973C87334F1375177C591E2E58FB79B503079
 ```
 
 https://mybot314.ru/tekegram_catalog/

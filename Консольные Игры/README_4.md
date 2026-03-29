@@ -6,7 +6,7 @@ Call of Duty: World at War [Wii] [PAL] [En/Fr] (2008)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977203.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Siren: New Translation / Siren: Blood Curse [PS3] [JPN] [En/Jp] [2.35] [Cobra OD
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976343.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mini Ninjas (2009) [PS3] [EUR] 2.60 [Cobra ODE / E3 ODE PRO ISO] [License] [Mult
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976231.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ DARK SOULS II: Scholar of the First Sin (2015) [PS3] [EUR] 3.30 [HEN / CFW] [Rep
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976182.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Need for Speed Most Wanted (2005) [PS2] [EUR] [Unofficial] [Ru]
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975200.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975200.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Assassin's Creed III Remastered (2019) [Switch] [EUR] 8.1.0 [NSZ] [License / DLC
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975045.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PSP
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974768.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ de Blob 2 (2011) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [License] [En] [M
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972895.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ The Legend of Heroes: Trails of Cold Steel (2013) [PS3] [USA] 3.55 [Cobra ODE / 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972890.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Evoland: Legendary Edition (2019) [Switch] [USA] 9.1.0 [NSZ] [Unofficial / 1.0.5
 >>Switch
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972728.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ HAZE [PS3] [PAL] [RUSSOUND] [2.20] [Cobra ODE / E3 ODE PRO ISO] (2008)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972606.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Champion Jockey: G1 Jockey & Gallop Racer (2011) [PS3] [EUR] 3.66 [Cobra ODE / E
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970349.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ NIER [PS3] [USA] [En] [3.15] [Cobra ODE / E3 ODE PRO ISO] (2010)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969927.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Tour de France 2015 (2015) [PS3] [EUR] 4.70 [Cobra ODE / E3 ODE PRO ISO] [Licens
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969392.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Zuma's Revenge! (2009) [PS3] [EUR] 4.21+ [PSN] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969242.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Worms: Revolution / Worms: Революция (2012) [PS3] [EUR] 4.21+ [Repack] 
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969235.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Metal Gear Rising: Revengeance [PS3] [USA] [En] [L] [4.31] (2013)
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969091.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ Zombie Driver HD (2012) [PS3] [USA] 4.21+ [Repack / 1.02 / 3 DLC] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968372.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ Wanted: Weapons of Fate (2009) [Xbox360] [RegionFree] [Freeboot] [Unofficial] [R
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968368.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Zombie Apocalypse: Never Die Alone (2011) [PS3] [EUR] 4.21+ [Repack] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968276.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Resident Evil Zero HD Remaster (2016) [PS3] [EUR] 4.21+ [PSN / 3 DLC] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968268.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Zumba Kids: The Ultimate Zumba Dance Party [Wii] [PAL] [Multi 5] (2014)
 >>Wii, GameCube
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967940.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Metal Gear Rising: Revengeance [XBOX360] [Region Free] [En] [LT+2.0] (XGD3 / 155
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967109.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Tom Clancy's Ghost Recon: Future Soldier [PS3] [Ru] [Repack] (2012) | R.G. Infer
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967056.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Resident Evil Zero HD Remaster (2016) [Xbox360] [RegionFree] FreeBoot [License] 
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966378.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Spec Ops: The Line [PS3] [Ru] [Repack] 2012 | R.G. Inferno
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965934.jpg" />
 </div>
 
 

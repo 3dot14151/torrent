@@ -1,3 +1,110 @@
+###  Публикация: 1102604   (888629) от 10.02.2017
+
+Total Commander 9.0a (x86) Freemen 17.2 slim RePack (& Portable) by notn [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7FEE4AB442DEB51FC3B17D75C17CEB7C43A811D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 202636   (888596) от 07.09.2021
+
+Из коллекции Жан-Поль Бельмондо / De la collection de Jean-Paul Belmondo (1960-2001) DVDRip, TVRip, VHSRip (Частичная фильмография)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная подборка фильмов великого французского актера Жана-Поля Бельмондо является продолжением  существующей на этом трекере 1 части фильмографии Коллекция Жан-Поль Бельмондо / Collection Jean-Paul Belmondo (1958-2008) DVDRip
+Автору вышеуказанного релиза спасибо за его релиз и идейную поддержку в создании данного.
+Все чего нет в этой раздаче Вы найдете у него.
+Недостающие (   Читать дальше...   )Жанр: Комедия, Драма, Мелодрама, Военный, Криминал, Приключения, короткометражка… (см. описания отдельных фильмов в раздаче)Актеры: Жан-Поль Бельмондо и другие (см. описания отдельных фильмов в раздаче)Перевод: Разные… см. описания отдельных фильмов в раздачеПродолжительность: см. описания отдельных фильмов в раздаче
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C600FA7ABC4283777F155DCB5B4BDD856A8C1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479080   (888593) от 07.09.2021
+
+Рик и Морти / Rick and Morty (2021) WEB-DLRip [H.264/1080p-LQ] (сезон 5, серии 10 из 10) Сыендук
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учёный-социопат вовлекает своего невинного внука в опасные межпространственные приключения.Производство: США, Harmonius Claptrap, Justin Roiland's Solo Vanity Card Productions, Starburns Industries, Williams StreetЖанр: мультфильм, комедия, фантастика, для взрослыхРежиссер: Пит Мишелс, Брайан Ньютон, Джон РайсАктеры: Джастин Ройланд, Крис Парнелл, Спенсер Грэммер, Сара Чок, Кари Уолгрен, Райан Ридли, Том Кенни, Морис ЛаМарш, Фил Хендри, Брэндон Джонсон и др.Перевод: Одноголосый закадровый, СыендукСубтитры: Английские (отключаемые), Русские (отключаемые)Продолжительность: ~ 00:20:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C2021E891D09A23F7207EE3B997A15F3F454CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762872   (888250) от 04.03.2014
+
+Август / August: Osage County (2013) BDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_888250.jpg" />
+</div>
+
+
+###  Подробнее
+
+В городе Талса, штат Оклахома, в отчий дом съезжаются члены большой семьи Уэстонов. Случилось несчастье и три дочери Барбара, Карен и Иви, их мать Виолетта, тетя Метти Фей, а также их мужья, дети и ухажеры собираются под одной крышей, пьют виски и выясняют отношения, обвиняя друг друга в предательствах, подавленных чувствах и изломанных судьбах. У каждого есть свой (   Читать дальше...   )Производство: СШАЖанр: ДрамаРежиссер: Джон Уэллс / John WellsАктеры: Мэрил Стрип, Джулия Робертс, Юэн МакГрегор, Эбигейл Бреслин, Крис Купер, Марго Мартиндейл, Джулианна Николсон, Бенедикт Камбербэтч, Дермот Малруни, Джульетт ЛьюисПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 02:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15AB7637EA38FC5FE2100460343036381126A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 640011   (887989) от 06.04.2013
 
 Реальные парни / Stand Up Guys (2012) BDRip
@@ -6,7 +113,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887989.jpg" />
+  <img src="Z:/picture/005/save_picture_887989.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Mozilla Firefox ESR 45.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887452.jpg" />
+  <img src="Z:/picture/005/save_picture_887452.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Auto PowerOFF 6.3 [Ru] (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887276.jpg" />
+  <img src="Z:/picture/005/save_picture_887276.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887252.jpg" />
+  <img src="Z:/picture/005/save_picture_887252.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887219.jpg" />
+  <img src="Z:/picture/005/save_picture_887219.jpg" />
 </div>
 
 
@@ -136,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887155.jpg" />
+  <img src="Z:/picture/005/save_picture_887155.jpg" />
 </div>
 
 
@@ -162,7 +269,7 @@ W10 Digital Activation 1.4.1 TEST by Ratiborus [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886931.jpg" />
+  <img src="Z:/picture/005/save_picture_886931.jpg" />
 </div>
 
 
@@ -188,7 +295,7 @@ Detroit: Become Human (2020) [Ru/Multi] (1.0) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886929.jpg" />
+  <img src="Z:/picture/005/save_picture_886929.jpg" />
 </div>
 
 
@@ -214,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886886.jpg" />
+  <img src="Z:/picture/005/save_picture_886886.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886710.jpg" />
+  <img src="Z:/picture/005/save_picture_886710.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886382.jpg" />
+  <img src="Z:/picture/005/save_picture_886382.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ Little Snitch 4.5 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886273.jpg" />
+  <img src="Z:/picture/005/save_picture_886273.jpg" />
 </div>
 
 
@@ -320,7 +427,7 @@ Adobe Photoshop 2020 21.1.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886267.jpg" />
+  <img src="Z:/picture/005/save_picture_886267.jpg" />
 </div>
 
 
@@ -346,7 +453,7 @@ The Complex (2020) [Ru/Multi] (PUBLIC 911) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886261.jpg" />
+  <img src="Z:/picture/005/save_picture_886261.jpg" />
 </div>
 
 
@@ -372,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886183.jpg" />
+  <img src="Z:/picture/005/save_picture_886183.jpg" />
 </div>
 
 
@@ -400,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885819.jpg" />
+  <img src="Z:/picture/005/save_picture_885819.jpg" />
 </div>
 
 
@@ -427,7 +534,7 @@ NVIDIA GeForce Desktop 364.51 BETA + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885712.jpg" />
+  <img src="Z:/picture/005/save_picture_885712.jpg" />
 </div>
 
 
@@ -453,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885514.jpg" />
+  <img src="Z:/picture/005/save_picture_885514.jpg" />
 </div>
 
 
@@ -479,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885512.jpg" />
+  <img src="Z:/picture/005/save_picture_885512.jpg" />
 </div>
 
 
@@ -505,7 +612,7 @@ Windows 7 Professional SP1 IDimm Edition х86/x64 v.22.16 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885500.jpg" />
+  <img src="Z:/picture/005/save_picture_885500.jpg" />
 </div>
 
 
@@ -534,7 +641,7 @@ American Truck Simulator (2016) [Ru/Multi] (1.41.1.66s/dlc) SteamRip =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885308.jpg" />
+  <img src="Z:/picture/005/save_picture_885308.jpg" />
 </div>
 
 
@@ -560,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884550.jpg" />
+  <img src="Z:/picture/005/save_picture_884550.jpg" />
 </div>
 
 
@@ -571,112 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A89660E45B14985920D0E6668C56AC20DF3ED7DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493731   (884034) от 10.09.2021
-
-Госорганы стали чаще обращаться к «Яндексу» с целью раскрытия личных данных пользователей
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884034.jpg" />
-</div>
-
-
-###  Подробнее
-
-За период с января по июнь этого года государственные органы направили «Яндексу» 19 650 запросов, касающихся раскрытия данных пользователей. Об этом компания отчиталась на своём официальном сайте.Число запросов в первом полугодии выросло на 27,8 % по сравнению с аналогичным периодом прошлого года, когда «Яндекс» получил 15 376 запросов. Темпы роста числа обращений (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444822   (883569) от 10.09.2021
-
-The Medium (2021) [Ru/Multi] (1.0.184) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883569.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Medium – психологический хоррор с видом от третьего лица. Игра, в которой представлены фирменная двойная реальность и оригинальный саундтрек совместной работы Аркадиуша Рейковского и Акиры Ямаоки. Разгадайте мрачную тайну, раскрыть которую под силу лишь медиуму. Исследуйте реальный мир и мир духов одновременно. Используйте свои возможности ясновидения, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Bloober TeamЖанр: Adventure (Horror), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18044DC28197B1E2AC42F346681683579F70B5A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021679   (883564) от 10.09.2021
-
-Проповедник / Пастырь / Preacher (2016) WEB-DL [H.264/720p] (сезон 1, серии 1-10 из 10) Кубик в Кубе
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Священник Джесси Кастер по воле случая стал носителем внутри своего естества странного существа по имени Генезис. Это дитя совокупления ангела и демона представляет собой одновременно чистый идеал и квинтэссенцию света, но также сгусток абсолютного зла. Генезис — единственное существо во Вселенной, которое может встать вровень с Богом, если того пожелает, а его носитель (   Читать дальше...   )Производство: США / AMC Studios, Sony Pictures Television, DC EntertainmentЖанр: ужасы, фэнтези, драма, детектив, приключенияРежиссер: Майкл Словис, Эван Голдберг, Сет РогенАктеры: Доминик Купер, Джозеф Гилган, Рут Негга, Люси Гриффитс, У. Эрл Браун, Том Брук, Анатол Юсеф, Йен Коллетти, Дерек Уилсон, Джеки Эрл Хейли и др.Перевод: Двуголосый профессиональный - Кубик в КубеЯзык озвучки: Русский, английскийСубтитры: русские, английские
-
-ВНИМАНИЕ! Присутствует ненормативная лексика!Продолжительность: ~00:49:00 серия (01:04:48 первая серия)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF46A3FDD7A12773620A2DEBF9FA6852317FD87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185736   (883264) от 24.03.2010
-
-Ария - 31 Альбом (1985 - 2009) [FLAC|Lossless]<Heavy Metal>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ария - советская и российская группа, играющая в жанре хэви-метал, музыка которой выдержана в стиле групп новой волны британского хэви-метала.Жанр: Heavy MetalПродолжительность: 31:36:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

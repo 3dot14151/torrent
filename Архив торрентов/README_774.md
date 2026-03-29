@@ -6,7 +6,7 @@ The Bat! Professional 7.4.12 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876225.jpg" />
+  <img src="Z:/picture/005/save_picture_876225.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Airships: Conquer the Skies (2018) [Ru/Multi] (1.0.15.4) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876208.jpg" />
+  <img src="Z:/picture/005/save_picture_876208.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Zentimo xStorage Manager 1.10.1.1259 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876207.jpg" />
+  <img src="Z:/picture/005/save_picture_876207.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Serial Box 03-2014 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876192.jpg" />
+  <img src="Z:/picture/005/save_picture_876192.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876185.jpg" />
+  <img src="Z:/picture/005/save_picture_876185.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ McNeel Rhinoceros 5.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876183.jpg" />
+  <img src="Z:/picture/005/save_picture_876183.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ VA - Car Audio Vol.11 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876181.jpg" />
+  <img src="Z:/picture/008/save_picture_876181.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ USB Safely Remove 5.5.1.1250 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876121.jpg" />
+  <img src="Z:/picture/005/save_picture_876121.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Grids for Instagram 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876116.jpg" />
+  <img src="Z:/picture/005/save_picture_876116.jpg" />
 </div>
 
 
@@ -263,7 +263,7 @@ Patch My PC 2.3.6.5 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876027.jpg" />
+  <img src="Z:/picture/005/save_picture_876027.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876024.jpg" />
+  <img src="Z:/picture/008/save_picture_876024.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876011.jpg" />
+  <img src="Z:/picture/005/save_picture_876011.jpg" />
 </div>
 
 
@@ -341,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876005.jpg" />
+  <img src="Z:/picture/005/save_picture_876005.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ IObit Smart Defrag Pro 5.5.0.1024 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876000.jpg" />
+  <img src="Z:/picture/005/save_picture_876000.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ AusLogics BoostSpeed 9.1.2.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875996.jpg" />
+  <img src="Z:/picture/005/save_picture_875996.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875991.jpg" />
+  <img src="Z:/picture/005/save_picture_875991.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875988.jpg" />
+  <img src="Z:/picture/005/save_picture_875988.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875985.jpg" />
+  <img src="Z:/picture/005/save_picture_875985.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875983.jpg" />
+  <img src="Z:/picture/008/save_picture_875983.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875982.jpg" />
+  <img src="Z:/picture/005/save_picture_875982.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875981.jpg" />
+  <img src="Z:/picture/005/save_picture_875981.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ FireAlpaca 2.6.5 + Standalone [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875971.jpg" />
+  <img src="Z:/picture/005/save_picture_875971.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ LDPlayer 3.121 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875969.jpg" />
+  <img src="Z:/picture/005/save_picture_875969.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ Vivaldi 4.2.2406.42 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875968.jpg" />
+  <img src="Z:/picture/005/save_picture_875968.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Java SE Development Kit 17.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875966.jpg" />
+  <img src="Z:/picture/005/save_picture_875966.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ PDF24 Creator 10.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875963.jpg" />
+  <img src="Z:/picture/005/save_picture_875963.jpg" />
 </div>
 
 

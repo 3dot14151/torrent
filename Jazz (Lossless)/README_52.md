@@ -1,3 +1,120 @@
+###  Публикация: 1109847   (857439) от 28.02.2017
+
+Count Basie - The Real... Count Basie (2015) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Twelfth Street Rag
+2. Between the Devil and the Deep Blue Sea
+3. Easy Does It(   Читать дальше...   )Жанр: JazzПродолжительность: 02:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF035420934D008413B810112CDB6D378AE5545
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376805   (857014) от 19.04.2020
+
+Duke Ellington - Take The A Train 1929 - 1952 (2006) Milan Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The A Train [2:57]
+02. Perdido [1:59]
+03. Frankie And Johnnie [3:10]
+04. Introduction & Cotton Club Stomp [1:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6D26548F56606641970E2732D8EC50FB958A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376907   (857013) от 19.04.2020
+
+Harry Allen With Monty Alexander Trio - Soul Of My Life (2006) Swing Bros. Records Inc. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Send Me [6:09]
+02. I Just Called to Say I Love You [4:24]
+03. You Make Me Feel Brand New [5:57]
+04. You Are the Sunshine of My Life [5:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4329B7DA98894D5922ADF17746A43F5A1FB3BB4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189276   (856139) от 22.03.2014
+
+Сhicago - Night & Day (Big Band) (1995) [FLAC|Lossless]<Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_856139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удивительный "ретро-проект" от Чикаго, при участии Линды Ронсдадт, как аранжировщика и Нельсона Риддла в качестве дирижера.
+Современное звучание классических джазовых стандартов, думаю, оставит новые впечатления у ценителей "старого" добротного джаза...01. - Chicago  (3:10)
+02. - Caravan  (3:27)
+03. - Dream A Little Dream Of Me  (3:17)
+04. - Goody Goody  (4:09)(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000955   (855936) от 27.03.2016
 
 Abbey Lincoln - That's Him! (1957) Remaster, 1999, Victor[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +123,7 @@ Abbey Lincoln - That's Him! (1957) Remaster, 1999, Victor[FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855936.jpg" />
+  <img src="Z:/picture/008/save_picture_855936.jpg" />
 </div>
 
 
@@ -35,7 +152,7 @@ James Moody - Quadromania: Just Moody (1948-1955) 4CD, 2005, Membran Music [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855754.jpg" />
+  <img src="Z:/picture/008/save_picture_855754.jpg" />
 </div>
 
 
@@ -64,7 +181,7 @@ Duke Ellington - Paris, March 1964 (2013) La Maison du Duke [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855683.jpg" />
+  <img src="Z:/picture/008/save_picture_855683.jpg" />
 </div>
 
 
@@ -93,7 +210,7 @@ Ray Barretto And New World Spirit - Contact! (1997) Blue Note [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855678.jpg" />
+  <img src="Z:/picture/008/save_picture_855678.jpg" />
 </div>
 
 
@@ -122,7 +239,7 @@ Stevie Wonder - Number Ones (2007) [FLAC|Lossless|image + .cue] <Soul, Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855600.jpg" />
+  <img src="Z:/picture/008/save_picture_855600.jpg" />
 </div>
 
 
@@ -151,7 +268,7 @@ Keiko Matsui - Wildflower (2003) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855598.jpg" />
+  <img src="Z:/picture/008/save_picture_855598.jpg" />
 </div>
 
 
@@ -180,7 +297,7 @@ Harry Allen & Trio da Paz - Harry Allen Meets Trio da Paz (2007) Swingbros Co. [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855209.jpg" />
+  <img src="Z:/picture/008/save_picture_855209.jpg" />
 </div>
 
 
@@ -209,7 +326,7 @@ Harry Allen Quintet - Down For The Count (2007) Swingbros Co. [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855208.jpg" />
+  <img src="Z:/picture/008/save_picture_855208.jpg" />
 </div>
 
 
@@ -238,7 +355,7 @@ Count Basie - Dejavu Retro Gold Collection (2001) 2CD [FLAC|Lossless]<Swing, Big
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855001.jpg" />
+  <img src="Z:/picture/008/save_picture_855001.jpg" />
 </div>
 
 
@@ -267,7 +384,7 @@ Dinah Shore - Dinah Sings Some Blues With Red & Dinah, Down Home! (1998) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854343.jpg" />
+  <img src="Z:/picture/008/save_picture_854343.jpg" />
 </div>
 
 
@@ -296,7 +413,7 @@ Joe Williams & Dave Pell - Prez & Joe: In Celebtration Of Lester Young (1979) 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853867.jpg" />
+  <img src="Z:/picture/008/save_picture_853867.jpg" />
 </div>
 
 
@@ -325,7 +442,7 @@ Bill Cunliffe - Bill Plays Bud (1996) 1998, Naxos Jazz [APE|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853864.jpg" />
+  <img src="Z:/picture/008/save_picture_853864.jpg" />
 </div>
 
 
@@ -354,7 +471,7 @@ Harry Allen & Alan Barnes - Barnestorming (2007) Woodville [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853716.jpg" />
+  <img src="Z:/picture/008/save_picture_853716.jpg" />
 </div>
 
 
@@ -383,7 +500,7 @@ Maynard Ferguson - Memories Of Maynard: The Best Of The Columbia Years (2018) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853667.jpg" />
+  <img src="Z:/picture/008/save_picture_853667.jpg" />
 </div>
 
 
@@ -412,7 +529,7 @@ The Puppini Sisters - Dance Dance Dance (2020) [FLAC|Lossless|image + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853560.jpg" />
+  <img src="Z:/picture/008/save_picture_853560.jpg" />
 </div>
 
 
@@ -441,7 +558,7 @@ Nat King Cole - Milestones Of A Legend (1950 - 1962) 10CD, 2015, The Intense Med
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852876.jpg" />
+  <img src="Z:/picture/008/save_picture_852876.jpg" />
 </div>
 
 
@@ -470,7 +587,7 @@ Kenny Burrell - At The Village Vanguard (1978, 1983) 2CD, 1999, Muse [APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852641.jpg" />
+  <img src="Z:/picture/008/save_picture_852641.jpg" />
 </div>
 
 
@@ -499,7 +616,7 @@ The Don Rendell / Ian Carr Quintet - Phase III & Live (1967/1968) 2CD, 2004, BGO
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852292.jpg" />
+  <img src="Z:/picture/008/save_picture_852292.jpg" />
 </div>
 
 
@@ -528,7 +645,7 @@ Akiko Muto Trio - The Windmills Of Your Mind (2007) Jasnac [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852180.jpg" />
+  <img src="Z:/picture/008/save_picture_852180.jpg" />
 </div>
 
 
@@ -557,7 +674,7 @@ Don Ralke And His Orchestra - But You've Never Heard Gershwin With Bongos & The 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852179.jpg" />
+  <img src="Z:/picture/008/save_picture_852179.jpg" />
 </div>
 
 
@@ -586,7 +703,7 @@ Dave Brubeck - The Real... Dave Brubeck (2012) 3CD [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852085.jpg" />
+  <img src="Z:/picture/008/save_picture_852085.jpg" />
 </div>
 
 
@@ -615,7 +732,7 @@ Ehud Asherie With Harry Allen - Lower East Side (2013) Posi-Tone Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851950.jpg" />
+  <img src="Z:/picture/008/save_picture_851950.jpg" />
 </div>
 
 
@@ -629,122 +746,6 @@ Ehud Asherie With Harry Allen - Lower East Side (2013) Posi-Tone Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE82470397FFCA09C770774CE12692D53D0E694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377630   (851941) от 22.04.2020
-
-Harry Allen - 007 Songs (2010) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The James Bond Theme [0:25]
-02. Surrender [5:23]
-03. On Her Majesty's Secret Service [5:13]
-04. You Only Live Twice [2:56](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2FFD3959D1D726B8F03062C7452FD2740F1FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377517   (851898) от 22.04.2020
-
-Harry Allen - Viva! Bossa Nova (2008) Swingbros Co. [FLAC|Lossless|image + .cue] <Mainstream Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wave [6:21]
-02. Desafinado [5:39]
-03. Dindi [5:04]
-04. Mais que Nada [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, Bossa NovaПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A061042B4FFF79420FF4721868E2F19143746E35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001954   (850568) от 30.03.2016
-
-Courtney Pine - Within the Realms of Our Dreams (1990) Antilles[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Zaire [06:17]
- 02.The Sepia Love Song [08:38]
- 03.Una Muy Bonita [05:13]
- 04.Donna Lee [04:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B560DBA7487A47827C820BAE31A97E9AAC6D9E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110956   (850529) от 04.03.2017
-
-Lee Konitz meets Don Friedman (1992) 1994, Camerata Tokyo [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alone Together [11:54]
- 02.In Your Own Sweet Way [10:12]
- 03.Huntington Street [07:46]
- 04.Opus d'Amour [09:41](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D3E0BC5BE86FF607EE3618392B9BFD2696334F
 ```
 
 https://mybot314.ru/tekegram_catalog/

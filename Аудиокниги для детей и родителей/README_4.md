@@ -1,3 +1,82 @@
+###  Публикация: 1454785   (1026078) от 16.03.2021
+
+Кир Булычёв | Сто лет тому вперед (2021) [Сборник] [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кир Булычёв — один из самых популярных советских фантастов. Его самое известное произведение — цикл детских книг о девочке из будущего Алисе Селезнёвой, оказавший большое влияние на российскую популярную культуру. Однако он написал и множество фантастики для взрослых, научных трудов и стихов. Книги Булычёва были экранизированы более двадцати раз.Жанр: Детская литература, Сказка, ФантастикаПродолжительность: 23:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90DB017A3DB17B4BE9125760F1C4A4BE0CF50AA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455054   (1026005) от 17.03.2021
+
+Марк Твен | Том Сойер – сыщик (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Марка Твена «Том Сойер – сыщик», повествует о дальнейших приключениях любимых героев многих поколений детей – Тома Сойера и Гека Финна.
+Гек рассказывает о том, как друзья помогли расследовать в Арканзасе запутанное преступление:Жанр: Детская литература, ПриключенияПродолжительность: 02:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B82E8B8B288E5F31F75BCE77044D1931356A054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032482   (1025076) от 22.03.2021
+
+Андрей Жвалевский, Евгения Пастернак | Время всегда хорошее (2013) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025076.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Что будет, если девчонка из 2018 года вдруг окажется в 1980 году? А мальчик из 1980 года перенесется на ее место? Где лучше? И что такое «лучше»? Где интереснее играть: на компьютере или во дворе? Что важнее: свобода и раскованность в чате или умение разговаривать, глядя в глаза друг другу? И самое главное — правда ли, что «время тогда было другое»? А может (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 05:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE619B1FA12E805378014D21F4D3E72979A0512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456777   (1024941) от 23.03.2021
 
 Евгений Гаглоев | Хрустальный дворец. Высокие звезды. Книга 3 (2020) [MP3]
@@ -6,7 +85,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024941.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024928.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023833.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023812.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023761.jpg" />
 </div>
 
 
@@ -138,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023729.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023701.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023623.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023623.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023610.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023584.jpg" />
 </div>
 
 
@@ -272,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023267.jpg" />
 </div>
 
 
@@ -304,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023225.jpg" />
 </div>
 
 
@@ -330,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023150.jpg" />
 </div>
 
 
@@ -356,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022598.jpg" />
 </div>
 
 
@@ -382,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022571.jpg" />
 </div>
 
 
@@ -408,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022562.jpg" />
 </div>
 
 
@@ -434,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022558.jpg" />
 </div>
 
 
@@ -463,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022556.jpg" />
 </div>
 
 
@@ -492,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022371.jpg" />
 </div>
 
 
@@ -521,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022343.jpg" />
 </div>
 
 
@@ -548,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022299.jpg" />
 </div>
 
 
@@ -574,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022159.jpg" />
 </div>
 
 
@@ -601,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022154.jpg" />
 </div>
 
 
@@ -615,86 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5461FB4165A2E3D993E31A75C5A6E68E50F65CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461201   (1022135) от 08.04.2021
-
-Энди Шеферд | Мальчик, который летал с драконами. Книга 3 (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томас не может представить свою жизнь без маленького дракончика Блика. Для него это не просто питомец, а настоящий лучший друг! Но Томас пообещал дедушке, что отпустит дракончика домой, на волю. Проблема только в том, что это ужасно непросто. Им же так весело вместе! А еще нужно понять, где у драконов дом и как заставить их уйти. И что за тайну скрывает дерево с (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 04:23:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5D0042178CE0507752EC5C5D7AD8680B47BC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461200   (1022134) от 08.04.2021
-
-Энди Шеферд | Мальчик, который воспитывал драконов. Книга 2 (2020) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огненное шоу с драконами и фейерверками продолжается!
-
-У Томаса и его друзей есть большой секрет – это дракончик Блик, выросший на особом драконьем дереве в дедушкином саду. Но очень сложно скрыть своего питомца, когда он, словно непредсказуемый вулкан в твоем кармане, дышит огнем, норовит обжечь в любую минуту и вообще ведет себя как захочет. Томасу придется проявить (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 03:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C913B89DB86B5B88FA3E41088B6B0DBE81C11A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461195   (1022122) от 08.04.2021
-
-Энди Шеферд | Мальчик, который выращивал драконов. Книга 1 (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юный Томас считал себя опытным огородником и твердо знал, что ничего непредсказуемого в дедушкином саду быть не может. Поэтому странный фрукт, выросший на каком-то кактусе, особого подозрения не вызвал. Томас наверняка не принес бы его домой, если бы знал, что из чего-то, похожего на ананас, вылупится прелестный дракончик и превратит его жизнь в сплошные проблемы (   Читать дальше...   )Жанр: Детская литература/ФантастикаПродолжительность: 03:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:224060F4F5277B9C35663BC3634B71D2B01D0D86
 ```
 
 https://mybot314.ru/tekegram_catalog/

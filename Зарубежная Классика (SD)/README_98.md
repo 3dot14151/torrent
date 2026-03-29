@@ -1,3 +1,81 @@
+###  Публикация: 1615964   (245699) от 20.03.2023
+
+Тень тонкого человека / Shadow of the Thin Man (1941) DVDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245699.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Ник и Нора в поисках приятного времяпровождения приезжают на ипподром и узнают об убийстве жокея, который недавно был обвинен в сдаче гонки. Дело ведет давний знакомый (по второму фильму) Ника, лейтенант Абрамс, и поэтому Нику трудно остаться в стороне. В добавок майор Скалли, отвечающий за расследование игорных преступлений, просит Ника помочь в этом (   Читать дальше...   )Производство: США, Metro-Goldwyn-MayerЖанр: детектив, комедия, криминалРежиссер: В.С. Ван ДайкАктеры: Уильям Пауэлл, Мирна Лой, Бэрри Нельсон, Донна Рид, Сэм Ливин, Алан Бакстер, Генри О’Нилл, Ричард Холл, Стелла Адлер, Лоринг СмитПеревод: Авторский (Сергей Кузнецов)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C0BDD4F832B6B6F801162959FED11C5A181B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630363   (245698) от 30.04.2023
+
+В поисках любви / Looking for Love (1964) HDTVRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Либби Карузо (Конни Фрэнсис) после бесполезных попыток найти себя в шоу-бизнесе решает бросить все и всерьез заняться личной жизнью. Она устраивается на работу в брокерскую контору и встречает мужчину, как она считает, своей мечты, Пола. Однако Пол игнорирует Либби в основном из-за ее мелкого роста. Либби придумывает вешалку для одежды, которую называет «Камердинерка», (   Читать дальше...   )Производство: США / Euterpe Inc., FramnetЖанр: комедия, мюзиклРежиссер: Дон УайсАктеры: Конни Френсис, Джим Хаттон, Сьюзэн Оливер, Джоби Бэйкер, Барбара Николс, Джонни Карсон, Джордж Хэмилтон, Ивет Мимьё, Пола Прентисс, Дэнни ТомасПеревод: Одноголосый любительский, GrampyЯзык озвучки: Русский, английскийСубтитры: Русские (на песни), английскиеПродолжительность: 01:23:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE28D06E913A7813F3E59B2FCFAFE4AD0584CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616088   (245676) от 20.03.2023
+
+Мистер Дидс переезжает в город / Mr. Deeds Goes to Town (1936) DVDRip [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лонгфеллоу Дидс, простой парень из провинциального Вермонта, поэт-любитель, пишущий стихи для поздравительных открыток и любитель игры на гобое, наследует огромное состояние своего дяди и за одну ночь становится известен всей стране. Весь городок собирается на вокзале, чтобы проводить Дидса, в Нью-Йорк, где он должен вступить во владение дядюшкиным капиталом и переехать (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: мелодрама, комедия, экранизацияРежиссер: Фрэнк КапраАктеры: Гэри Купер, Джин Артур, Джордж Бэнкрофт, Лайонел Стэндер, Дагласс Дамбрилл, Рэймонд Уолберн, Х.Б. Уорнер, Рут Доннелли, Уолтер Кэтлетт, Джон Рэй, Стэнли ЭндрюПеревод: Авторский (Григорий Либергал)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1AC7836CBF03FE25C9D13839502BEAD5147D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554677   (245561) от 26.07.2022
 
 Несчастный случай / Accident (1967) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245561.jpg" />
+  <img src="Z:/picture/004/save_picture_245561.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245499.jpg" />
+  <img src="Z:/picture/004/save_picture_245499.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245266.jpg" />
+  <img src="Z:/picture/004/save_picture_245266.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245231.jpg" />
+  <img src="Z:/picture/004/save_picture_245231.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244948.jpg" />
+  <img src="Z:/picture/004/save_picture_244948.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244864.jpg" />
+  <img src="Z:/picture/004/save_picture_244864.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244793.jpg" />
+  <img src="Z:/picture/004/save_picture_244793.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244373.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244294.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244247.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244224.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244104.jpg" />
 </div>
 
 
@@ -319,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244085.jpg" />
 </div>
 
 
@@ -345,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243939.jpg" />
+  <img src="Z:/picture/004/save_picture_243939.jpg" />
 </div>
 
 
@@ -371,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243810.jpg" />
+  <img src="Z:/picture/004/save_picture_243810.jpg" />
 </div>
 
 
@@ -397,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243549.jpg" />
+  <img src="Z:/picture/004/save_picture_243549.jpg" />
 </div>
 
 
@@ -423,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243064.jpg" />
+  <img src="Z:/picture/004/save_picture_243064.jpg" />
 </div>
 
 
@@ -449,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242967.jpg" />
+  <img src="Z:/picture/005/save_picture_242967.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242826.jpg" />
+  <img src="Z:/picture/005/save_picture_242826.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242469.jpg" />
+  <img src="Z:/picture/005/save_picture_242469.jpg" />
 </div>
 
 
@@ -527,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242381.jpg" />
+  <img src="Z:/picture/004/save_picture_242381.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242258.jpg" />
+  <img src="Z:/picture/004/save_picture_242258.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242012.jpg" />
+  <img src="Z:/picture/004/save_picture_242012.jpg" />
 </div>
 
 
@@ -591,85 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:213F6B5977C887E660E99CFBE42DACCE0C28C93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615061   (241765) от 07.04.2023
-
-Больше, чем секретарша / More Than a Secretary (1936) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэрол Болдуин и Хелен Дэвис являются владельцами и инструкторами Высшей секретарской школы. Фред Гилберт - редактор журнала "Тело и мозг", звонит Кэрол, чтобы пожаловаться. Он уволил многих выпускниц её школы. Она идёт к нему в офис, чтобы узнать из первых рук, чего он ожидает. Он ошибочно принимает её за новую секретаршу и велит ей приходить на работу (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: комедияРежиссер: Альфред Э. ГринАктеры: Джин Артур, Джордж Брент, Лайонел Стэндер, Рут Доннелли, Реджинальд Денни, Дороти Кент, Чарльз Хэлтон, Джеральдин Холл, Ник Коуплэнд, Том РикеттсПеревод: Авторский  (Алексей Яковлев)Язык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95E5FE491A9C3B5C58E2A433671AE25625A94B5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615037   (241749) от 07.04.2023
-
-Буря в стакане воды / Storm in a Teacup (1937) DVDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франк Бердон — новый репортер в провинциальной шотландской газете. Ему поручено взять интервью у местного политического деятеля Уильяма Гоу. Журналист узнает о скандальной истории с Гоу и решает опубликовать ее, вместо ожидаемого положительного репортажа. Отношения накаляются и перерастают в уголовное дело, но одновременно, Бердон влюбляется в дочь Гоу, Викторию.Производство: Великобритания, London Film Productions, Victor Saville ProductionsЖанр: мелодрама, комедияРежиссер: Йен Далримпл, Виктор СавиллАктеры: Вивьен Ли, Рекс Харрисон, Сесил Паркер, Сара Оллгуд, Урсула Джинс, Гас МакНотон, Эдгар К. Брюс, Роберт Хейл, Квентин МакФирсон, Артур УонтнерПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: отсутствуютПродолжительность: 01:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714D3967544B87067F9E50AE539638C5B282FE51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615147   (241693) от 08.04.2023
-
-Жестокое море / The Cruel Sea (1953) BDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои этого фильма - мужчины и их корабли. И единственный злодей среди них — жестокое море.
-Жизнь и смерть английского конвойного корвета К-49 и его капитана Эриксона во время боев с немцами в Атлантике. Война на море и в океане - без прикрас и без ура-патриотизма, сильные характеры, обреченный героизм.Производство: Великобритания / Ealing Studios, Michael Balcon ProductionsЖанр: драма, военный, историяРежиссер: Чарльз ФрендАктеры: Джек Хокинс, Дональд Синден, Джон Стрэттон, Денхолм Эллиотт, Джон Уорнер, Стенли Бейкер, Брюс Сетон, Лайам Редмонд, Вирджиния МакКенна, Мойра ЛистерПеревод: Одноголосый профессиональныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB3549C699807C532BB2AE1FE704F075BB3EEE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

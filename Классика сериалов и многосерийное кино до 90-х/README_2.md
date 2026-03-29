@@ -1,3 +1,82 @@
+###  Публикация: 979680   (956924) от 28.01.2016
+
+Трое – это компания / Three's Company (1977) DVDRip (сезон 1, серии 1-6 из 6) (R.G.FAMILY)
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956924.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Трое – это компания" - наиболее любимый американскими телезрителями ситком конца 70-х - начала 80-х.
+Легкая, развлекательная комедия в жанре фарса о приключениях Джека - студента кулинарного техникума, Дженет - продавщицы цветочного магазина и Криси - машинистки. Молодые люди вместе снимают квартиру. Их связывают дружеские платонические отношения с налетом (   Читать дальше...   )Производство: США, DLT Entertainment, The NRW Company,  Three's Company Productions, TTC.Жанр: комедияРежиссер: Дэйв Пауэрс, Билл Обин, Майкл Росс,  Берт Бринкерхофф, Сэм Гари, Боб Прист.Актеры: Джон Риттер, Джойс Девитт, Ричард Кляйн, Дон Ноттс, Сюзанн Сомерс, Присцилла Барнс, Одра Линдли, Норман Фелл, Дженили Харрисон, Энн Уэджуорт и др.Перевод: Многоголосый закадровый, любительский - R.G.FAMILYПродолжительность: ~00:25:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0704177DFE7028F72A2236686A0E039DE8B8626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477771   (956795) от 28.01.2016
+
+Ликвидация (2007) DVDRip [14 серий из 14]
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Отечественная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одесса, 1946 год. По наводке пойманного накануне бандита Сеньки Шалого заместитель начальника отдела по борьбе с бандитизмом Одесского уголовного розыска Давид Маркович Гоцман находит склад с военным обмундированием, около тысячи комплектов. С добровольной помощью друга детства, «завязавшего» вора-щипача Фимы-«Полужида», Давид Маркович выходит на след преступников (   Читать дальше...   )Жанр: Военный, БоевикРежиссер: Сейгей УрсулякАктеры: Владимир Машков, Михаил Пореченков, Сергей Маковецкий, Константин Лавроненко, Александр Семчев, Светлана Крючкова, Ксения Раппопорт, Полина АгурееваПродолжительность: 14 х ~00:45:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625779   (945395) от 04.03.2013
+
+Проклятые короли / Les Rois maudits (1972-1973) DVDRip [1-6 серии из 6]
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_945395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая, ставшая культовой, экранизация цикла исторических романов знаменитого французкого классика Мориса Дрюона (23 апреля 1918 -14 апреля 2009) "Проклятые короли". В сериале представлена широкая панорама истории Франции и Англии первой половины XIV века, от ареста тамплиеров (1307) до начала Столетней войны. Действие происходит во времена правления последних (   Читать дальше...   )Жанр: Исторический, драмаРежиссер: Клод БармаАктеры: Жиль Беа, Элен Дюк, Жан-Люк Моро, Андре Люге, Жан Пиа, Луи Сенье, Жан Дезайи, Жан Дешам, Катрин Рувель, Жорж Стаке, Жан Шеврье, Анн Крейс, Жозе-Мария Флота, Робер Парти, Патрик Прежан, Катрин Риш, Ги Сен-Жан, Анри Вирложё, Бенуа Брион, Джанин Криспин, Женевьев Казиль, Пьер Галлон, Моник Лежён, Клодин Раффалли, Роберт Ногаре, Рене Руссель, Жорж Сер, Жан Амос, Мюриэль (   Читать дальше...   )Перевод: Профессиональный одноголосый закадровый («Культура»)Продолжительность: 6 серий по ~01:38:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090806   (944230) от 08.01.2017
 
 Канадская конная полиция против атомных захватчиков / Canadian Mounties vs Atomic Invaders (1953) DVDRip (серии 1-12 из 12) Трамвай фильм
@@ -6,7 +85,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_944230.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942139.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941564.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940679.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940577.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940575.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938033.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936997.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935908.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_932749.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926521.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921440.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919287.jpg" />
 </div>
 
 
@@ -348,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913465.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907999.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899709.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895626.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893112.jpg" />
 </div>
 
 
@@ -479,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Чертова служба в госпитале МЭШ / M*A*S*H
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_890184.jpg" />
+  <img src="Z:/picture/008/save_picture_890184.jpg" />
 </div>
 
 
@@ -505,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Чертова служба в госпитале МЭШ / M*A*S*H
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890180.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Чертова служба в госпитале МЭШ / M*A*S*H
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890178.jpg" />
 </div>
 
 
@@ -557,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Чертова служба в госпитале МЭШ / M*A*S*H
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890157.jpg" />
 </div>
 
 
@@ -583,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890133.jpg" />
 </div>
 
 
@@ -594,85 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C461F7EC00FB7186ACF1C25EAD2D189853B224E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994149   (889108) от 08.03.2016
-
-Сёгун / Shogun (1980) BDRip [H.264/720p-LQ] (сезон 1, серии 1-3 из 3)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889108.jpg" />
-</div>
-
-
-###  Подробнее
-
-XVI век. Английское судно терпит крушение у берегов Японии. Выжившие члены экипажа, среди которых лоцман Джон Блэкторн, попадают в плен. Могущественный князь Торанага берет Блэкторна, знающего географию, математику и военное дело, под свою опеку. Шаг за шагом англичанин постигает суровые самурайские законы, учит японский язык, вникает в абсолютно чуждую европейцу (   Читать дальше...   )Производство: США, Япония / Asahi National Broadcasting Company, Jardine Matheson Co. Ltd., National Broadcasting Company (NBC), Paramount Television, Toho CompanyЖанр: Драма, Приключения, ВоенныйРежиссер: Джерри ЛондонАктеры: Ричард Чемберлен, Тосиро Мифунэ, Ёко Симада, Фрэнки Сакаи, Алан Бэдел, Майкл Хордерн, Дэмиен Томас, Джон Рис-Дэвис, Владек Шейбал, Джордж ИннесПеревод: Двуголосый закадровый, профессиональный (ОРТ)Язык субтитров: Русский, английскийПродолжительность: 02:52:24, 03:00:45, 03:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB6330ECF9AFCE61C3D2B67BC7445C9985ADD0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102262   (888548) от 10.02.2017
-
-Твин Пикс / Twin Peaks (1990) BDRip [H.264/720p-LQ] (сезон 2, серии 1-22 из 22) LostFilm
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888548.jpg" />
-</div>
-
-
-###  Подробнее
-
-История начинается с известия о находке обнаженного тела Лоры Палмер, «завернутого в полиэтилен» и выброшенного волнами на берег озера. В ходе расследования перед внимательными взглядами агента Купера, шерифа Трумана и его помощников проходят разные жители Твин Пикс. Постепенно зритель открывает для себя темную и страшную сторону жизни обитателей на первый взгляд (   Читать дальше...   )Производство: СШАЖанр: триллер, драма, криминал, детективРежиссер: Дэвид ЛинчАктеры: Кайл МакЛоклен, Майкл Онткин, Шерил Ли, Лара Флинн Бойл, Шерилин Фенн, Рэй Уайз, Мигель Феррер, Дэвид Линч, Билли Зейн, Хэзер Грэмс и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:45:00 серия (1 серия ~01:34:00)Реклама: присутствуют заставка и логотип LostFilm
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:215F0AF59BA560F58D30866F2B13F37C6312491D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870847   (880760) от 21.02.2015
-
-Мираж (1983) SATRip (серии 1-3 из 3)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Отечественная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880760.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам романа Дж.Х. Чейза "Весь мир в кармане".
-Оказавшись в жизненном тупике, герои фильма решаются на дерзкое ограбление: похищение бронированной машины с огромной суммой денег. Каждый из них верит, что большие деньги принесут ему свободу и счастье. Кажется, весь мир у них в кармане. Но дальше начинается непредвиденное...Производство: Гостелерадио, Рижская киностудияЖанр: ДетективРежиссер: Алоиз БренчАктеры: Мирдза Мартинсоне, Мартиньш Вилсонс, Регимантас Адомайтис, Интс Буранс, Борис Иванов, Андрис Берзиньш, Янис Клушс, Паул Буткевич, Бронислав Лизбовскис, И. КруминьшПродолжительность: 01:07:06 + 01:09:40 + 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3F2BDF6C94AC64C98755854887C0A8A939B04F
 ```
 
 https://mybot314.ru/tekegram_catalog/

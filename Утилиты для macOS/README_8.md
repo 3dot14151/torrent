@@ -6,7 +6,7 @@ Ceceree 1.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891521.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Window Tidy 2.1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891161.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Weather Widget Deskto‪p Full version 3.9.6 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890906.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Mira v1.5.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890887.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ SyncMate 2.5.0.921 UB
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890813.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ Reflector 2.6.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890452.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Stats 2.6.9 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889331.jpg" />
+  <img src="Z:/picture/005/save_picture_889331.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ handyPrint 5.4.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889215.jpg" />
+  <img src="Z:/picture/005/save_picture_889215.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ Stellar Partition Manager 3.0.0.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887936.jpg" />
+  <img src="Z:/picture/005/save_picture_887936.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Adobe Zii 2020 - Universal Patcher 5.1.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886766.jpg" />
+  <img src="Z:/picture/005/save_picture_886766.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Stellar Data Recovery Technician 10.0.0.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886491.jpg" />
+  <img src="Z:/picture/005/save_picture_886491.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Periscope Pro 3.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886192.jpg" />
+  <img src="Z:/picture/005/save_picture_886192.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Xmas snow 1.5.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886094.jpg" />
+  <img src="Z:/picture/005/save_picture_886094.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ Theine 3.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886060.jpg" />
+  <img src="Z:/picture/005/save_picture_886060.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ HashTab 6.0.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885762.jpg" />
+  <img src="Z:/picture/005/save_picture_885762.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ macOS Server 5.10 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885051.jpg" />
+  <img src="Z:/picture/005/save_picture_885051.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ Wondershare Data Recovery 3.7.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883425.jpg" />
+  <img src="Z:/picture/005/save_picture_883425.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ ChronoSync 4.9.9 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883403.jpg" />
+  <img src="Z:/picture/005/save_picture_883403.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Disk Cleaner - Free Your Hard Drive Space 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883374.jpg" />
+  <img src="Z:/picture/005/save_picture_883374.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Disk Drill Entreprise 2.4.438 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882320.jpg" />
+  <img src="Z:/picture/005/save_picture_882320.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ AnyMP4 iPhone Data Recovery for Mac 7.3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880734.jpg" />
+  <img src="Z:/picture/005/save_picture_880734.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Timerik 1.3 [En/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878216.jpg" />
+  <img src="Z:/picture/005/save_picture_878216.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Webcam Settings Control: Full Camera Adjustment 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874821.jpg" />
+  <img src="Z:/picture/005/save_picture_874821.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Paragon Camptune X v10.10.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874382.jpg" />
+  <img src="Z:/picture/005/save_picture_874382.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ QR Factory 2.9.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873838.jpg" />
+  <img src="Z:/picture/008/save_picture_873838.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Duplicate Sweeper 1.06 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873161.jpg" />
+  <img src="Z:/picture/008/save_picture_873161.jpg" />
 </div>
 
 

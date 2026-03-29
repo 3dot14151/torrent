@@ -1,3 +1,235 @@
+###  Публикация: 1794891   (67195) от 01.05.2025
+
+Soulfly - Dark Ages (2005) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67195.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. The Dark Ages
+A2. Babylon
+A3. I And I
+A4. Carved Inside(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E556FBE75FCDB812ADC7FEA45478886B6ECD8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794865   (67194) от 01.05.2025
+
+The Defaced - Studio Albums (4 releases) (2001-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67194.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Defaced - метал-группа из Хельсингборга, Швеция, основана в 1999 году.2001 - Domination Commence
+2002 - Karma in Black
+2008 - Anomaly
+2022 - CharlatansЖанр: Groove/Thrash MetalПродолжительность: 02:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D66C0C3F4ADE8DFA452D837D734F196AED980B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795138   (67172) от 03.05.2025
+
+Ghost Brigade - Studio Albums (4 releases) (2007-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal, Post-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghost Brigade - метал-группа из Ювяскюля, Финляндия, основана в 2005 году.2007 - Guided by Fire
+2009 - Isolation Songs
+2011 - Until Fear No Longer Defines Us
+2014 - IV - One With the StormЖанр: Melodic Death/Doom Metal, Post-MetalПродолжительность: 03:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632E934776AC7C54D18B00736CE482D66E4EC978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795131   (67140) от 03.05.2025
+
+All for Metal - Gods of Metal (Year of the Dragon) (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67140.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Cry For Help (Intro)
+A2 Gods Of Metal
+A3 Year Of The Dragon
+A4 The Way Of The Samurai(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832D0DE88865E1AF3087BC25EADA79B86759BB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795268   (67112) от 03.05.2025
+
+Ancient Wisdom - For Snow Covered the Northland (1996) Released, 2022, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67112.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. A Hymn to the Northern Empire (02:59)
+A2. In the Land of the Crimson Moon (05:51)
+A3. They Gather Where Snow Falls Forever (06:04)
+A4. Through Rivers of the Eternal Blackness (05:45)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00: 47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E874CBFBFE98CEC1D763DD6E19606CC20AEFB379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795109   (67110) от 03.05.2025
+
+Circle Of Chaos - Studio Albums (4 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Circle Of Chaos - метал-группа из Стокгольма, Швеция, основана в 2008 году.2010 - Black Oblivion
+2012 - Twoheaded Serpent (EP)
+2014 - Crossing the Line
+2022 - Forlorn ReignЖанр: Melodic Death MetalПродолжительность: 02:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FA22AFDCBA7604BBF09A7274585E5B3178449F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795280   (67091) от 04.05.2025
+
+Metallica - 72 Seasons (2023) [DSD128|Lossless|tracks + .cue|Vinyl-Rip]<Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67091.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. 72 Seasons (07:44)
+A2. Shadows Follow (06:11)
+A3. Screaming Suicide (05:30)
+B1. Sleepwalk My Life Away (06:55)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A02C3C5CAD8F6E0A1B172F0D850B27646EC733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795331   (67089) от 04.05.2025
+
+Souldrainer - Studio Albums (4 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Souldrainer - метал-группа из Остерсунда, Швеция, основана в 1999 году.2007 - Reborn
+2011 - Heavens gate
+2014 - Architect
+2022 - DepartureЖанр: Melodic Death MetalПродолжительность: 03:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760D7F93ED04DF444399E2ACCC0E9560CCE2F032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795297   (67080) от 04.05.2025
 
 Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal>
@@ -6,7 +238,7 @@ Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67080.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67049.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67048.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Charlie Rich - Behind Closed Doors (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67039.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Avenger - Godless (...Assuming the Throne of Immortality...) (2003) [WavPack|32/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67032.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Blood Incantation - Starspawn (2016) Released, 2021, Century Media [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67019.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Dissentient - Studio Albums (4 releases) (2011-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67018.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67018.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Blood Incantation - Hidden History of the Human Race (2019) [FLAC|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66973.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Manowar - Fighting the World (1987) [DSD128|Lossless|image + .cue|Vinyl-Rip] <He
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66962.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Carrion - Evil Is There (1986) [FLAC|24/96|image + .cue|Vinyl-Rip] <Speed, Thras
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66950.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Believer - Sanity Obscure (1990) Released 1991, R/C Records [FLAC|24/192|image +
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66944.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Raise Hell - Studio Albums (5 releases) (1998-2015) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66924.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Believer - Dimensions (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66858.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Blood Incantation - Timewave Zero (2022) EP [FLAC|24/192|image + .cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66834.jpg" />
 </div>
 
 
@@ -410,7 +642,7 @@ Novembre - Studio Albums (8 releases) (1994-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66826.jpg" />
 </div>
 
 
@@ -439,7 +671,7 @@ Blood Incantation - Absolute Elsewhere (2024) [WavPack|32/192|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66762.jpg" />
 </div>
 
 
@@ -466,7 +698,7 @@ Rapture (Finland) - Studio Albums (3 releases) (1999-2005) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66703.jpg" />
 </div>
 
 
@@ -494,7 +726,7 @@ Manowar - Kings of Metal (1988) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66673.jpg" />
 </div>
 
 
@@ -508,236 +740,6 @@ A4. Sting Of The Bumblebee(   Читать дальше...   )Жанр: Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCF917A4B48A2FE7DD100AF9766E85FC2B3E9B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797927   (66661) от 19.05.2025
-
-Caliban - I`m Nemesis (2012) Released, 2023, Arising Empire [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66661.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1-We Are the Many
-A2-The Bogeyman
-A3-Memorial
-A4-No Tomorrow(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA70B4AC39FB8D2E3FCF2F44C7D27EAEBC61590C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797848   (66655) от 19.05.2025
-
-Fear Factory - Recoded (2022) Released, 2023, Nuclear Blast [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66655.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Adapt or Die (Intro Narrative by Jake Stern, sound FX by Zardonic)
-A2. Hatred Will Prevail (Monolith Remix by Rhys Fulber)
-A3. Disobey (Disruptor Remix by Zardonic)
-A4. I Am The Nightrider (Fuel Injected Suicide Machine Remix by Dualized/Zardonic)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606BC69336610CF1241D8E5E2924B7227192F44D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797823   (66654) от 19.05.2025
-
-Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dystopia (04:24)
-02. Ascent Of The Blessed (04:10)
-03. Virus (03:55)
-04. Phantom Pain (04:03)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00: 43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797918   (66651) от 19.05.2025
-
-DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66651.jpg" />
-</div>
-
-
-###  Подробнее
-
-DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
-2005 - The Fury Of Our Maker's Hand
-2007 - The Last Kind Words
-2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798728   (66590) от 23.05.2025
-
-Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66590.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. The Sword Woman (05:23)
-B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолжительность: 00:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798792   (66553) от 24.05.2025
-
-Soulfly - Conquer (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Nu-Metal, Groove, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66553.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Blood Fire War Hate
-A2. Unleash
-A3. Paranoia
-B1. Warmageddon(   Читать дальше...   )Жанр: Nu-Metal, Groove, Thrash MetalПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BA63258CFA7EEC13DA0FF4E08AC956D1207424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799191   (66503) от 26.05.2025
-
-Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pyogenesis — немецкая рок-группа, жанрово охватывающая широкий стилевой спектр от дэт-метала до поп-рока.1994 - Sweet X-Rated Nothings
-1995 - Twinaleblood
-1997 - Unpop
-1998 - Mono... Or Will It Ever Be The Way It Used To BeЖанр: Doom/Death Metal, PunkПродолжительность: 08:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC0301664862F63EC6B82B28B89EC6293212CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799851   (66355) от 30.05.2025
-
-Any Given Day - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any Given Day - немецкая металкор-группа, образованная в 2012 году в городе Гельзенкирхен.2014 - My Longest Way Home
-2016 - Everlasting
-2019 - Overpower
-2024 - LimitlessЖанр: MetalcoreПродолжительность: 03:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7996BF4F792D65AC5CC3526C76233FB10A6E76C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ ICQ 10.0 build 12014 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880827.jpg" />
+  <img src="Z:/picture/005/save_picture_880827.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Drum & Bass Arena 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880826.jpg" />
+  <img src="Z:/picture/005/save_picture_880826.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Tails 2.2 [анонимный доступ в сети] [i386] 1xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880824.jpg" />
+  <img src="Z:/picture/005/save_picture_880824.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880823.jpg" />
+  <img src="Z:/picture/005/save_picture_880823.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880801.jpg" />
+  <img src="Z:/picture/008/save_picture_880801.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880783.jpg" />
+  <img src="Z:/picture/005/save_picture_880783.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Edubuntu 14.04.2 LTS (Ubuntu для школ и вузов) [i386, amd64] 2xDVD
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880765.jpg" />
+  <img src="Z:/picture/005/save_picture_880765.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Scorpions - Return To Forever (2015) Deluxe Edition [FLAC|Lossless]<Hard-Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880764.jpg" />
+  <img src="Z:/picture/005/save_picture_880764.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Stand Up (2016.03.13) DVB (сезон 4, выпуск 3)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880749.jpg" />
+  <img src="Z:/picture/005/save_picture_880749.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880738.jpg" />
+  <img src="Z:/picture/005/save_picture_880738.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Display Driver Uninstaller 15.7.5.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880736.jpg" />
+  <img src="Z:/picture/005/save_picture_880736.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880735.jpg" />
+  <img src="Z:/picture/005/save_picture_880735.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Microsoft Edge 93.0.961.47 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880724.jpg" />
+  <img src="Z:/picture/005/save_picture_880724.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Balabolka 2.15.0.799 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880722.jpg" />
+  <img src="Z:/picture/008/save_picture_880722.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Q-Dir 9.89 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880714.jpg" />
+  <img src="Z:/picture/005/save_picture_880714.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ K-Lite Codec Pack Update 16.4.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880712.jpg" />
+  <img src="Z:/picture/005/save_picture_880712.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ BurnAware Professional 14.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880710.jpg" />
+  <img src="Z:/picture/008/save_picture_880710.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Stand Up (2016.03.13) SATRip (сезон 4, выпуск 3)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880642.jpg" />
+  <img src="Z:/picture/005/save_picture_880642.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880637.jpg" />
+  <img src="Z:/picture/005/save_picture_880637.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ AdwCleaner 5.102 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880636.jpg" />
+  <img src="Z:/picture/005/save_picture_880636.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ doPDF 11.2.187 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880622.jpg" />
+  <img src="Z:/picture/005/save_picture_880622.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Etcher 1.5.122 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880612.jpg" />
+  <img src="Z:/picture/005/save_picture_880612.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880600.jpg" />
+  <img src="Z:/picture/005/save_picture_880600.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Prison School | KANGOKU GAKUEN | Школа-Тюрьма [1-108 гл., 2011] [Р
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880588.jpg" />
+  <img src="Z:/picture/005/save_picture_880588.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Nanatsu no Taizai /  The Seven Deadly Sins / Семь Смертных Грех�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880568.jpg" />
+  <img src="Z:/picture/005/save_picture_880568.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Gilisoft Video Editor 7.2.0 DC 26.02.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880555.jpg" />
+  <img src="Z:/picture/005/save_picture_880555.jpg" />
 </div>
 
 

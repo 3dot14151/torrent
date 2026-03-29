@@ -1,3 +1,113 @@
+###  Публикация: 1120065   (804572) от 29.03.2017
+
+SIGERSHADERS Corona Material Presets Pro 2.0.2 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_804572.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Siger Studio’s SIGERSHADERS Corona Material Presets Pro - это объёмная коллекция материалов для 3ds Max + Corona, включающая в себя User Library material manager.
+Коллекция состоит из различных категорий материалов. Будь то: металлы, ткань, стёкло и т.д.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F309CDD4467B017CF2216367B658B3908F2345F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118215   (804567) от 29.03.2017
+
+Александр Сераков | Adobe Illustrator. Базовый курс (2016) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_804567.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом курсе вы освоите инструменты самого популярного редактора векторной графики, научитесь применять их в дизайне, иллюстрации и откроете для себя новые пространства творческой реализации.
+
+Курс начинается с простых инструментов, которые дают представление о традиционных подходах к работе с векторной графикой. Постепенно задачи усложняются и мы переходим к новым (   Читать дальше...   )Жанр: Обучающее видеоПродолжительность: 14:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6618195ECB369EBE623BC580F589C1858567754B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505078   (803855) от 27.10.2021
+
+Windows 11 PRO 21H2 x64 Rus by OneSmiLe [22000.282]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана из оригинального образа
+ru-ru_windows_11_business_editions_version_21h2_updated_october_2021_x64_dvd_aeafe964
+Удалены все модерн приложения, кроме Edge
+Поиск работает (значок скрыт)(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:879896C97E4D1DDB3C57AD4A6E1069BB8E9CE2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504426   (803849) от 27.10.2021
+
+Дюна / Dune: Part One (2021) WEB-DL [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наследник знаменитого дома Атрейдесов Пол отправляется вместе с семьей на одну из самых опасных планет во Вселенной — Арракис. Здесь нет ничего, кроме песка, палящего солнца, гигантских чудовищ и основной причины межгалактических конфликтов — невероятно ценного ресурса, который называется меланж. В результате захвата власти Пол вынужден бежать и скрываться, и это (   Читать дальше...   )Производство: США, Канада, Венгрия /  Warner Bros, Legendary Entertainment, Villeneuve FilmsЖанр: Фантастика, боевик, драма, приключенияРежиссер: Дени ВильнёвАктеры: Тимоти Шаламе, Ребекка Фергюсон, Оскар Айзек, Джош Бролин, Джейсон Момоа, Зендея, Стеллан Скарсгард, Хавьер Бардем, Дэйв Батиста, Шарлотта РэмплингПеревод: Дублированный (iTunes), Многоголосый профессиональный (Jaskier, HDRezka Studio), Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), украинские (Forced), английские (Forced, Full, SDH)Продолжительность: 02:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657A88811F4643F2A3943E99512BABD7B32CFF2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 775900   (803813) от 19.04.2014
 
 Minecraft (2011) [Ru/Multi] (1.7.7) Repack Kron
@@ -6,7 +116,7 @@ Minecraft (2011) [Ru/Multi] (1.7.7) Repack Kron
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803813.jpg" />
+  <img src="Z:/picture/008/save_picture_803813.jpg" />
 </div>
 
 
@@ -36,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803739.jpg" />
+  <img src="Z:/picture/008/save_picture_803739.jpg" />
 </div>
 
 
@@ -62,7 +172,7 @@ Adobe Photoshop 2020 21.1.3.190 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803736.jpg" />
+  <img src="Z:/picture/008/save_picture_803736.jpg" />
 </div>
 
 
@@ -88,7 +198,7 @@ LockScreen 2.0 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803316.jpg" />
+  <img src="Z:/picture/008/save_picture_803316.jpg" />
 </div>
 
 
@@ -114,7 +224,7 @@ Bandicam 3.0.4.1036 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803232.jpg" />
+  <img src="Z:/picture/008/save_picture_803232.jpg" />
 </div>
 
 
@@ -140,7 +250,7 @@ Joe Bonamassa - 23 альбома (2000-2016) Официальная диско�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803220.jpg" />
+  <img src="Z:/picture/008/save_picture_803220.jpg" />
 </div>
 
 
@@ -172,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803208.jpg" />
+  <img src="Z:/picture/008/save_picture_803208.jpg" />
 </div>
 
 
@@ -198,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803141.jpg" />
+  <img src="Z:/picture/008/save_picture_803141.jpg" />
 </div>
 
 
@@ -224,7 +334,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.4 Build 286 Stable + Portable 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802878.jpg" />
+  <img src="Z:/picture/008/save_picture_802878.jpg" />
 </div>
 
 
@@ -252,7 +362,7 @@ Malwarebytes Anti-Malware Premium 3.0.6.1469 DC 29.03.2017 RePack by KpoJIuK [Mu
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802864.jpg" />
+  <img src="Z:/picture/008/save_picture_802864.jpg" />
 </div>
 
 
@@ -278,7 +388,7 @@ Sticky Password Premium 8.0.11.49 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802860.jpg" />
+  <img src="Z:/picture/008/save_picture_802860.jpg" />
 </div>
 
 
@@ -305,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802833.jpg" />
+  <img src="Z:/picture/008/save_picture_802833.jpg" />
 </div>
 
 
@@ -331,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802823.jpg" />
+  <img src="Z:/picture/008/save_picture_802823.jpg" />
 </div>
 
 
@@ -357,7 +467,7 @@ Dead Space Anthology (2008-2013) [Ru/Multi] Repack R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802812.jpg" />
+  <img src="Z:/picture/008/save_picture_802812.jpg" />
 </div>
 
 
@@ -383,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802808.jpg" />
+  <img src="Z:/picture/008/save_picture_802808.jpg" />
 </div>
 
 
@@ -409,7 +519,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/dlc/u3) OriginRip Let'sPlay [Digit
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802806.jpg" />
+  <img src="Z:/picture/008/save_picture_802806.jpg" />
 </div>
 
 
@@ -435,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802662.jpg" />
+  <img src="Z:/picture/008/save_picture_802662.jpg" />
 </div>
 
 
@@ -461,7 +571,7 @@ Telegram создаст свою криптовалюту, заменит ею �
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_802372.jpg" />
+  <img src="Z:/picture/005/save_picture_802372.jpg" />
 </div>
 
 
@@ -487,7 +597,7 @@ Adobe Photoshop Lightroom Classic 11.0.0.10 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802200.jpg" />
+  <img src="Z:/picture/008/save_picture_802200.jpg" />
 </div>
 
 
@@ -513,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_802026.jpg" />
+  <img src="Z:/picture/005/save_picture_802026.jpg" />
 </div>
 
 
@@ -539,7 +649,7 @@ VMware Workstation 12 Pro 12.1.1 build 3770994 RePack by KpoJIuK [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801902.jpg" />
+  <img src="Z:/picture/008/save_picture_801902.jpg" />
 </div>
 
 
@@ -565,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801897.jpg" />
+  <img src="Z:/picture/008/save_picture_801897.jpg" />
 </div>
 
 
@@ -576,110 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7CE923400992DAAD0926C935ACDC7879EB021E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120653   (801806) от 31.03.2017
-
-Сегодня международный день резервного копирования (День бэкапа)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_801806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный день резервного копирования (англ. World Backup Day) или День бэкапа (от англ. backup) проводится ежегодно 31 марта. Резервное копирование — это создание копии данных на носителе (жёстком диске, флеш-карте, CD-диске и других носителях), предназначенном для восстановления данных в случае их повреждения или потери на основном носителе. (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120521   (801644) от 31.03.2017
-
-MAGIX Vegas Pro 14.0 Build 244 RePack by KpoJIuK [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801644.jpg" />
-</div>
-
-
-###  Подробнее
-
-MAGIX Vegas PRO — профессиональная программа для многодорожечной записи, редактирования и монтажа видео и аудио потоков. Инструменты, содержащиеся в 'Vegas Pro', дают возможность редактирования, и обработки в реальном времени форматов DV, AVCHD, HDV, SD/HD-SDI и XDCAM™, точную корректировку аудио, создание объёмного звука и двухслойных DVD. Вы можете прожечь Blu-ray (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C70AA863B3503D825DD2EC5EE63B1B7492D8A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120913   (801171) от 01.04.2017
-
-Компания SpaceX произвела успешный повторный запуск и посадку использованной ранее ступени ракеты-носителя Falcon 9
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_801171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известная аэрокосмическая компания SpaceX в очередной раз вошла в историю, произведя повторный запуск и успешную посадку использованной ранее первой ступени ракеты-носителя Falcon 9. Восстановленная после первого запуска ракета стартовала 30 марта 2017 года в 22:27 по времени Гринвичского меридиана со стартовой площадки Launch Complex 39 космодрома Космического центра (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120609   (800935) от 01.04.2017
-
-uTorrent Pro 3.5 Build 43580 Stable RePack (& Portable) by D!akov [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800935.jpg" />
-</div>
-
-
-###  Подробнее
-
-µTorrent — быстрый, удобный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую полосу (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB0EFC587E5BEF47B88AB8582A0CAE831A34DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

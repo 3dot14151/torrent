@@ -1,3 +1,29 @@
+###  Публикация: 916327   (590890) от 08.07.2015
+
+UC Browser - быстрый Cерфинг v10.3.0 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590890.jpg" />
+</div>
+
+
+###  Подробнее
+
+UC Browser – хороший, быстрый браузер для андроид, от разработчиков UCWeb Inc. Уникальность UC Browser в том, что он запросто адаптируется под скорость передачи данных (сжимает трафик), грузит страницы и делает многое другое гораздо быстрее других браузеров.Тип издания: FreeРелиз состоялся: 1 июля 2015 г.Разработчик: UCWeb Inc.Поддерживаемая ОС: Android: 2.2+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10C17471D85AC61C93BA458E4F66993EEC89688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916295   (590872) от 08.07.2015
 
 AIDA64 v1.22 [Ru]
@@ -6,7 +32,7 @@ AIDA64 v1.22 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590872.jpg" />
+  <img src="Z:/picture/008/save_picture_590872.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Akunin Book от Бориса Акунина 4.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590855.jpg" />
+  <img src="Z:/picture/008/save_picture_590855.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ FL Studio Mobile  v2.0.2 [Eng]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590822.jpg" />
+  <img src="Z:/picture/008/save_picture_590822.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Smurfs Village v1.6.0a [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590409.jpg" />
+  <img src="Z:/picture/008/save_picture_590409.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ CastleStorm - Free to Siege v1.76 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590349.jpg" />
+  <img src="Z:/picture/008/save_picture_590349.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Despicable Me / Гадкий Я V3.0.1a   [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590287.jpg" />
+  <img src="Z:/picture/008/save_picture_590287.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590272.jpg" />
+  <img src="Z:/picture/008/save_picture_590272.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590104.jpg" />
+  <img src="Z:/picture/008/save_picture_590104.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ Fleksy Keyboard - Happy Typing 6.0.3 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589871.jpg" />
+  <img src="Z:/picture/008/save_picture_589871.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ F-Droid 0.94 (test) [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589827.jpg" />
+  <img src="Z:/picture/008/save_picture_589827.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ PhotoMath v8.5.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589675.jpg" />
+  <img src="Z:/picture/008/save_picture_589675.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ Mobile Security Firewall v1.0 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589561.jpg" />
+  <img src="Z:/picture/008/save_picture_589561.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ Vertex Impress U прошивка Miui v5
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589438.jpg" />
+  <img src="Z:/picture/008/save_picture_589438.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Zedge Ringtones & Wallpapers 4.12.3 Final/ Версия 4.15b1 [Multi/Ru] - Об
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589422.jpg" />
+  <img src="Z:/picture/008/save_picture_589422.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ Lucky Patcher by ChelpuS 10.1.7 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589344.jpg" />
+  <img src="Z:/picture/008/save_picture_589344.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Transparent clock & weather / Прозрачные часы и погода 6.4.
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589342.jpg" />
+  <img src="Z:/picture/008/save_picture_589342.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ Duolingo Plus: изучение иностранных языков 5.56.4 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589316.jpg" />
+  <img src="Z:/picture/008/save_picture_589316.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ Minecraft - Pocket Edition v.0.9.5 alpha [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589139.jpg" />
+  <img src="Z:/picture/008/save_picture_589139.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ Washington Post v6.5.1 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588998.jpg" />
+  <img src="Z:/picture/008/save_picture_588998.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ The Guardian - News & Sport v6.82.13333 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588996.jpg" />
+  <img src="Z:/picture/008/save_picture_588996.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588944.jpg" />
+  <img src="Z:/picture/008/save_picture_588944.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Chronus: Home & Lock Widget 20.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588913.jpg" />
+  <img src="Z:/picture/008/save_picture_588913.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ Chronus: Home & Lock Widget 20.0 Mod by Rajat [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588883.jpg" />
+  <img src="Z:/picture/008/save_picture_588883.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588610.jpg" />
+  <img src="Z:/picture/008/save_picture_588610.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ QuickEdit Text Editor Pro 1.8.6 Mod by KirIif' [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588519.jpg" />
+  <img src="Z:/picture/008/save_picture_588519.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ QuickEdit Text Editor Pro - Полноценный и многофункцион
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47F049572BC409BE195DD29D59EB517F1BB63D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552174   (587621) от 20.05.2022
-
-SeriesGuide – менеджер фильмов и сериалов 64.0.7 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587621.jpg" />
-</div>
-
-
-###  Подробнее
-
-С SeriesGuide вы можете находить сериалы и фильмы для просмотра, отслеживать просмотренные серии и фильмы, получать уведомления о предстоящих сериях, создавать резервные копии и синхронизировать их между всеми устройствами.Тип издания: PremiumРелиз состоялся: 19.05.2022Разработчик: Uwe Trottmann SoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC607DDB5C0772441AE2928AEC057AF86B354CAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

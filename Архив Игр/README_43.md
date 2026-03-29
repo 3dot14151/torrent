@@ -6,7 +6,7 @@ Tales from the Borderlands: Episode 1 - 3 (2014) [Xbox360] [RegionFree] [FreeBoo
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513699.jpg" />
+  <img src="Z:/picture/008/save_picture_513699.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hockey? (L) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513255.jpg" />
+  <img src="Z:/picture/008/save_picture_513255.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ NHL 12 [PS3] [RUS] [PAL] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513216.jpg" />
+  <img src="Z:/picture/008/save_picture_513216.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Incoming + OST [Ru] (Rip) 1998 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512285.jpg" />
+  <img src="Z:/picture/008/save_picture_512285.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The Expendables 2. Videogame [En] (RePack/1.0) 2012 l R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512125.jpg" />
+  <img src="Z:/picture/008/save_picture_512125.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ NBA 2K12 [PS3] [ENG] [PAL] [MOVE] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512116.jpg" />
+  <img src="Z:/picture/008/save_picture_512116.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sleeping Dogs - Limited Edition [Ru/En] (Lossless RePack/1.4) 2012 l ShTeCvV
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512057.jpg" />
+  <img src="Z:/picture/008/save_picture_512057.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Sleeping Dogs - Limited Edition [Ru] (Repack/1.4) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512056.jpg" />
+  <img src="Z:/picture/008/save_picture_512056.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Rochard [Ru/En/Multi12) (RePack/1.23) 2011 | R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511459.jpg" />
+  <img src="Z:/picture/008/save_picture_511459.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Rochard [Ru\En\Multi12] (Steam-Rip/1.23) 2011 | R.G. Origins
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511457.jpg" />
+  <img src="Z:/picture/008/save_picture_511457.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Santa Fe Mysteries: Sacred Ground [Ru] (RePack) 1996 | RG games/Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511433.jpg" />
+  <img src="Z:/picture/008/save_picture_511433.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ The Expendables 2 Videogame [En] (RePack/1.0) 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511424.jpg" />
+  <img src="Z:/picture/008/save_picture_511424.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Darksiders II [En] (RePack/1.0) 2012 l R.G. World Games
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511351.jpg" />
+  <img src="Z:/picture/008/save_picture_511351.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ The Expendables 2 Videogame [En/Multi5] (Lossless RePack/1.0) 2012 l R.G. Origam
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511312.jpg" />
+  <img src="Z:/picture/008/save_picture_511312.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ The Expendables 2 Videogame [En/Multi5] (RePack/1.0) 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511272.jpg" />
+  <img src="Z:/picture/008/save_picture_511272.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Inversion [Ru] (RePack/1.0.1.0) 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511258.jpg" />
+  <img src="Z:/picture/008/save_picture_511258.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ Magicka + 18 DLC [Ru/En] (RePack/1.4.8.1)  2011 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511256.jpg" />
+  <img src="Z:/picture/008/save_picture_511256.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510885.jpg" />
+  <img src="Z:/picture/008/save_picture_510885.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510737.jpg" />
+  <img src="Z:/picture/008/save_picture_510737.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510404.jpg" />
+  <img src="Z:/picture/008/save_picture_510404.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Galaxy on Fire 2 Full HD [Multi11/+] (RePack/1.0) 2012 | SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510374.jpg" />
+  <img src="Z:/picture/008/save_picture_510374.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Sleeping Dogs - Limited Edition [Ru] (Repack/1.3) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510316.jpg" />
+  <img src="Z:/picture/008/save_picture_510316.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Resident Evil 6 [Xbox 360] [DEMO] [En] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510235.jpg" />
+  <img src="Z:/picture/008/save_picture_510235.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Hitman: Sniper Challenge (NoDVD/1.0) 2012 | SKiDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510233.jpg" />
+  <img src="Z:/picture/008/save_picture_510233.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Amazing Spider-Man [Ru] (RePack/1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510153.jpg" />
+  <img src="Z:/picture/008/save_picture_510153.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ Batman: Arkham City / Batman: Аркхем Сити + 14 DLC [Ru/En] (RePack/1.0
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510147.jpg" />
+  <img src="Z:/picture/008/save_picture_510147.jpg" />
 </div>
 
 

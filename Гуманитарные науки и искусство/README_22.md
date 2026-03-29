@@ -1,3 +1,29 @@
+###  Публикация: 1372566   (884963) от 03.04.2020
+
+Энн Джензер | Как писать нон-фикшн. Расскажите о сложных темах миллионам (2020) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите писать так, чтобы увлекать читателя, независимо от темы, то эта книга для вас. Здесь вы найдете множество советов и рекомендаций, как преподнести сложный материал в доступной и занимательной форме. Вы узнаете, что именно позволяет научно-популярным текстам оставаться легкими и интересными и как эти приемы можно использовать в вашей собственной работе.Жанр: Творчество, Писательское мастерствоПеревод: Мария СухотинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2936A031965F1031B0C1D7EBECC0565D69CD6461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995158   (884615) от 11.03.2016
 
 Л. Д. Любимов | Искусство древнего мира (1980) [DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884615.jpg" />
+  <img src="Z:/picture/005/save_picture_884615.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884115.jpg" />
+  <img src="Z:/picture/005/save_picture_884115.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882814.jpg" />
+  <img src="Z:/picture/005/save_picture_882814.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882714.jpg" />
+  <img src="Z:/picture/005/save_picture_882714.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882512.jpg" />
+  <img src="Z:/picture/005/save_picture_882512.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880556.jpg" />
+  <img src="Z:/picture/005/save_picture_880556.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879407.jpg" />
+  <img src="Z:/picture/005/save_picture_879407.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879173.jpg" />
+  <img src="Z:/picture/005/save_picture_879173.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878961.jpg" />
+  <img src="Z:/picture/005/save_picture_878961.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878883.jpg" />
+  <img src="Z:/picture/005/save_picture_878883.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878374.jpg" />
+  <img src="Z:/picture/005/save_picture_878374.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877692.jpg" />
+  <img src="Z:/picture/005/save_picture_877692.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877684.jpg" />
+  <img src="Z:/picture/005/save_picture_877684.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876632.jpg" />
+  <img src="Z:/picture/005/save_picture_876632.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876427.jpg" />
+  <img src="Z:/picture/005/save_picture_876427.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876194.jpg" />
+  <img src="Z:/picture/005/save_picture_876194.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_875467.jpg" />
+  <img src="Z:/picture/008/save_picture_875467.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874298.jpg" />
+  <img src="Z:/picture/005/save_picture_874298.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874119.jpg" />
+  <img src="Z:/picture/008/save_picture_874119.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873899.jpg" />
+  <img src="Z:/picture/008/save_picture_873899.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872450.jpg" />
+  <img src="Z:/picture/008/save_picture_872450.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872044.jpg" />
+  <img src="Z:/picture/008/save_picture_872044.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871877.jpg" />
+  <img src="Z:/picture/008/save_picture_871877.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871661.jpg" />
+  <img src="Z:/picture/008/save_picture_871661.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871569.jpg" />
+  <img src="Z:/picture/008/save_picture_871569.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4C36CD7D4B85952C80C48E1147BD8318CD52A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1485225   (870816) от 18.09.2021
-
-Книжная серия | «Популярная философия с иллюстрациями» [7 книг] (2020-2021) [FB2, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870816.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Популярная философия с иллюстрациями» (изд.«АСТ») – издательская серия, в которой планируется выпуск знаковых философских произведений с комментариями и иллюстрациями, которые сделают чтение более понятным и увлекательным.Жанр: Научно-популярная литература, Психология, Древневосточная литература, Античная литература, Книги по философииФормат: FB2, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2FD89A85881828877811559109A560922FBE55
 ```
 
 https://mybot314.ru/tekegram_catalog/

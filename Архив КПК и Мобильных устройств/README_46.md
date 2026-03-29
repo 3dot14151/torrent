@@ -1,3 +1,32 @@
+###  Публикация: 882285   (619625) от 21.06.2015
+
+Major GUN 3.2 -  Майор ГАН  [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время действовать! Скачай первый бесконечный шутер!
+- Никаких брифингов!
+- Никаких скучных историй!
+Террористы захватили район и только ты сможешь их остановить. Играй и наслаждайся ярким дизайном, уникальной системой управления и аркадным геймплеем - это лучшая бесконечная стрелялка!(   Читать дальше...   )Тип издания: Лицензия+ModРелиз состоялся: 24.03.2015Разработчик: byss mobileПоддерживаемая ОС: Android 2.3+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C582398C513FF45ACCBA70588BB29AA68DA13044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908706   (619623) от 21.06.2015
 
 Heroes and Castles 2 1.00.03.3 [En]
@@ -6,7 +35,7 @@ Heroes and Castles 2 1.00.03.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619623.jpg" />
+  <img src="Z:/picture/008/save_picture_619623.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ Splitter Critters 1.1.4 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619601.jpg" />
+  <img src="Z:/picture/008/save_picture_619601.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619572.jpg" />
+  <img src="Z:/picture/008/save_picture_619572.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ Train Sim Pro 3.3.9 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619497.jpg" />
+  <img src="Z:/picture/008/save_picture_619497.jpg" />
 </div>
 
 
@@ -113,7 +142,7 @@ Heroes of Dragon Age 4.0.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619489.jpg" />
+  <img src="Z:/picture/008/save_picture_619489.jpg" />
 </div>
 
 
@@ -139,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617598.jpg" />
+  <img src="Z:/picture/008/save_picture_617598.jpg" />
 </div>
 
 
@@ -168,7 +197,7 @@ MoreLocale 2 2.3.1 [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617514.jpg" />
+  <img src="Z:/picture/008/save_picture_617514.jpg" />
 </div>
 
 
@@ -197,7 +226,7 @@ Quick PDF Scanner Pro 3.2.314. - Сканирование в PDF-формат [E
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617506.jpg" />
+  <img src="Z:/picture/008/save_picture_617506.jpg" />
 </div>
 
 
@@ -223,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617400.jpg" />
+  <img src="Z:/picture/008/save_picture_617400.jpg" />
 </div>
 
 
@@ -251,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617397.jpg" />
+  <img src="Z:/picture/008/save_picture_617397.jpg" />
 </div>
 
 
@@ -279,7 +308,7 @@ Handy Photo 2.3.5 [Ru] - Фоторедактор
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617162.jpg" />
+  <img src="Z:/picture/008/save_picture_617162.jpg" />
 </div>
 
 
@@ -305,7 +334,7 @@ QuickEdit Text Editor Pro 1.1.7 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616876.jpg" />
+  <img src="Z:/picture/008/save_picture_616876.jpg" />
 </div>
 
 
@@ -332,7 +361,7 @@ ApkCrack 0.7.1[Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616871.jpg" />
+  <img src="Z:/picture/008/save_picture_616871.jpg" />
 </div>
 
 
@@ -358,7 +387,7 @@ Battery Doctor (Battery Saver) 5.23 (build 5230006) [Ru/Multi] - Професс�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616866.jpg" />
+  <img src="Z:/picture/008/save_picture_616866.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_616295.jpg" />
+  <img src="Z:/picture/005/save_picture_616295.jpg" />
 </div>
 
 
@@ -410,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616052.jpg" />
+  <img src="Z:/picture/008/save_picture_616052.jpg" />
 </div>
 
 
@@ -436,7 +465,7 @@ Mercury watchface by Tove [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615856.jpg" />
+  <img src="Z:/picture/008/save_picture_615856.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ AndroHelm Antivirus 2.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615784.jpg" />
+  <img src="Z:/picture/008/save_picture_615784.jpg" />
 </div>
 
 
@@ -489,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614925.jpg" />
+  <img src="Z:/picture/008/save_picture_614925.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614506.jpg" />
+  <img src="Z:/picture/008/save_picture_614506.jpg" />
 </div>
 
 
@@ -541,7 +570,7 @@ Maple Player Classic 2.5.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614395.jpg" />
+  <img src="Z:/picture/008/save_picture_614395.jpg" />
 </div>
 
 
@@ -567,7 +596,7 @@ Jelly Splash 2.6.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614154.jpg" />
+  <img src="Z:/picture/008/save_picture_614154.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614084.jpg" />
+  <img src="Z:/picture/008/save_picture_614084.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614009.jpg" />
+  <img src="Z:/picture/008/save_picture_614009.jpg" />
 </div>
 
 
@@ -652,7 +681,7 @@ Six-Guns [3D] 2.9.0h  [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613932.jpg" />
+  <img src="Z:/picture/008/save_picture_613932.jpg" />
 </div>
 
 
@@ -666,32 +695,6 @@ Six-Guns [3D] 2.9.0h  [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42CFA63D848591ADFFC7313C1A8C7B7CB3AF2085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884191   (613830) от 24.06.2015
-
-Tales from the Borderlands 1.74 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tales from the Borderlands — пятая часть эпизодической серии игр для андроид от создателей The Wolf Among Us и The Walking Dead! Действие игры происходит в мире Пандоры, после событий Borderlands 2. Вы будете играть за авантюриста Риса и его друга, которые стремятся к величию. Вас, как невольных партнеров, бросили в путешествие с чемоданом денег, которые вы должны (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 12 июня 2015г.Разработчик: Telltale GamesПоддерживаемая ОС: Android 2.3+Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8E210603BF648F021EA4B96F00DBC8277706D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

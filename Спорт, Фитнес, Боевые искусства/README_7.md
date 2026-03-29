@@ -1,3 +1,56 @@
+###  Публикация: 1221621   (692991) от 25.04.2018
+
+Микеле Алаймо | Как стать спадистом (2018) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692991.jpg" />
+</div>
+
+
+###  Подробнее
+
+Теорико-практический трактат по современному итальянскому фехтованию мечем, с приложением «О фехтовании с точки зрения гигиены образования и физической терапии».Жанр: Боевые искусства, ФехтованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41DDC99A3606B2CD550AC02DE79D357D6DC1B559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221623   (692984) от 25.04.2018
+
+Джузеппе Морсикато Паллавичини | Первая и вторая части фехтования (2018) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_692984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная книга содержит перевод первого и второго закрытого коллекционного трактата по фехтованию Маэстро фехтования Джузеппе Морсикато Паллавичини.
+Паллавичини оставил после себя очень великий труд, который представляет собой огромную ценность до сегодняшнего дня. В книге представлены все иллюстрации с объяснениями, разнообразные сведения по истории фехтования, касающиеся (   Читать дальше...   )Жанр: Боевые искусства, ФехтованиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760F676D9EF48BCB0D29A3D471A47D0E5430DD53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221575   (692886) от 25.04.2018
 
 Джо Фрил | Библия триатлета. Исчерпывающее руководство (2018) [PDF]
@@ -6,7 +59,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692886.jpg" />
+  <img src="Z:/picture/008/save_picture_692886.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691634.jpg" />
+  <img src="Z:/picture/008/save_picture_691634.jpg" />
 </div>
 
 
@@ -63,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691072.jpg" />
+  <img src="Z:/picture/008/save_picture_691072.jpg" />
 </div>
 
 
@@ -89,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691065.jpg" />
+  <img src="Z:/picture/008/save_picture_691065.jpg" />
 </div>
 
 
@@ -117,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680288.jpg" />
+  <img src="Z:/picture/008/save_picture_680288.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677907.jpg" />
+  <img src="Z:/picture/008/save_picture_677907.jpg" />
 </div>
 
 
@@ -171,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676653.jpg" />
+  <img src="Z:/picture/008/save_picture_676653.jpg" />
 </div>
 
 
@@ -198,7 +251,7 @@ Ryan George | Freeweight Training Anatomy (2016) [PDF] [En]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676610.jpg" />
+  <img src="Z:/picture/008/save_picture_676610.jpg" />
 </div>
 
 
@@ -224,7 +277,7 @@ Wayne Westcott, Thomas Baechle | Strength Training Past 50 (2015) [PDF] [En]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670792.jpg" />
+  <img src="Z:/picture/008/save_picture_670792.jpg" />
 </div>
 
 
@@ -251,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670484.jpg" />
+  <img src="Z:/picture/008/save_picture_670484.jpg" />
 </div>
 
 
@@ -277,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670481.jpg" />
+  <img src="Z:/picture/008/save_picture_670481.jpg" />
 </div>
 
 
@@ -304,7 +357,7 @@ Nick Tumminello | Building Muscle and Performance (2016) [PDF] [En]
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669068.jpg" />
+  <img src="Z:/picture/008/save_picture_669068.jpg" />
 </div>
 
 
@@ -330,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663036.jpg" />
+  <img src="Z:/picture/008/save_picture_663036.jpg" />
 </div>
 
 
@@ -356,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660195.jpg" />
+  <img src="Z:/picture/008/save_picture_660195.jpg" />
 </div>
 
 
@@ -382,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658651.jpg" />
+  <img src="Z:/picture/008/save_picture_658651.jpg" />
 </div>
 
 
@@ -408,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657638.jpg" />
+  <img src="Z:/picture/008/save_picture_657638.jpg" />
 </div>
 
 
@@ -434,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653064.jpg" />
+  <img src="Z:/picture/008/save_picture_653064.jpg" />
 </div>
 
 
@@ -461,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652994.jpg" />
+  <img src="Z:/picture/008/save_picture_652994.jpg" />
 </div>
 
 
@@ -487,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650927.jpg" />
+  <img src="Z:/picture/008/save_picture_650927.jpg" />
 </div>
 
 
@@ -515,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650925.jpg" />
+  <img src="Z:/picture/008/save_picture_650925.jpg" />
 </div>
 
 
@@ -543,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650257.jpg" />
+  <img src="Z:/picture/008/save_picture_650257.jpg" />
 </div>
 
 
@@ -571,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646074.jpg" />
+  <img src="Z:/picture/008/save_picture_646074.jpg" />
 </div>
 
 
@@ -597,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644578.jpg" />
+  <img src="Z:/picture/008/save_picture_644578.jpg" />
 </div>
 
 
@@ -623,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641608.jpg" />
+  <img src="Z:/picture/008/save_picture_641608.jpg" />
 </div>
 
 
@@ -634,59 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B97B2130E8AFDB0FF1E82046EBDD7CFC0A6747B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906708   (641145) от 10.06.2015
-
-Мартин Дж. Догерти | Рукопашный бой по системе спецназа (2011) [DJVU, PDF]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Убойные приемы рукопашного боя от признанного эксперта самообороны, обладателя черного пояса по джиу-джитсу Мартина Дж.Догерти!
-То, чему обучают только в элитных войсках, теперь доступно и вам. Джебы и кроссы, хуки и апперкоты, удары по голове и по корпусу, блокирующие приемы, захваты и броски, крюки и подсечки, ведение боя из разных положений, из боксерской и борцовской (   Читать дальше...   )Жанр: СамозащитаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570D25F3598E425FC445CB8FCDEBB8FE72AA3565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142906   (639219) от 16.06.2017
-
-Joel Snape, Jon Lipsey | Ultimate Training Bible (2016) [PDF] [En]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальная Библия тренировок, написанная экспертами мужского журнала Men's Fitness, книга, которая несомненно изменит вашу жизнь к лучшему. В конце концов, каждый ищет 12-недельный план тренировок, которые приносят удивительные результаты, но редко кто задает вопрос: что происходит на 13 неделе? Эта книга отвечает на этот вопрос. Эксперты Men's Fitness собрали полное (   Читать дальше...   )Жанр: БодибилдингФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73223314AD19B43EBDA0C758E38C337F3F104A61
 ```
 
 https://mybot314.ru/tekegram_catalog/

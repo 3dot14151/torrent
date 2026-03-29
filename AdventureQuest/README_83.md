@@ -1,3 +1,81 @@
+###  Публикация: 1702752   (47780) от 05.08.2024
+
+My Lovely Wife (2022) [Ru/Multi] (1.1.14f2) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47780.jpg" />
+</div>
+
+
+###  Подробнее
+
+My Lovely Wife - приключенческая игра, события которой стартуют со смерти любимой жены главного героя. Протагониста зовут Джек, а его возлюбленную - Луна. Вам необходимо ходить на свидания с новыми девушками, пытаясь отпустить боль утраты, чтобы начать новую жизни. Игровой процесс включает в себя элементы симулятора, стратегии, менеджмента и алхимии. Разработчики (   Читать дальше...   )Тип издания: LicenseРазработчик: GameChanger Studio, Toge ProductionsЖанр: Приключенческие игры, Казуальные игры, Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Немецкий, Японский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:538645422DB2FD0814608707FB6B04D46244DF20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741102   (47733) от 05.08.2024
+
+Minds Beneath Us (2024) [Multi] (1.0.1) Scene Skidrow
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minds Beneath Us - приключенческая игра в стиле киберпанк, основанная на сюжете, в которой нет игровой механики, но содержится множество разветвлений и диалогов, связанных с выбором. Игра отлично сочетает нарисованных от руки 2D-персонажей и 3D-окружение, которое вы будете изведывать на улицах футуристичного Тайбэя. Вы сыграете за Джейсона Дэя - простого безработного, (   Читать дальше...   )Тип издания: SceneРазработчик: BearBoneStudioЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Английский, Китайский (традиционный, упрощенный), ЯпонскийЯзык интерфейса: Английский, Китайский (традиционный, упрощенный), Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDF384A03055A7BDACF0BF02762B440E75372097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741339   (47709) от 06.08.2024
+
+Subnautica: Below Zero (2019) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра про подводный мир, которая стала продолжением оригинальной игры, полностью позаимствовав движок. В мире Subnautica: Below Zero обитают не простые существа, похожие на тех, что были в предыдущей части, а пришельцы, с которыми бороться интересней, а их мир гораздо краше, чем наша реальность.Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E28A85B04BA712C65B72AC5B66820AB829D75F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741320   (47704) от 06.08.2024
 
 Setteeh / Сэттээх (2024) [Ru/En] (Build 15264138) Repack Other s
@@ -6,7 +84,7 @@ Setteeh / Сэттээх (2024) [Ru/En] (Build 15264138) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47704.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47679.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Sylvio: Black Waters (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47568.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47559.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47549.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47548.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Cursed Bet (2024) [En] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47538.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47512.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47460.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47359.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Universe For Sale (2023) [Multi] (1.3.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47280.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Blacklist Mafia (2024) [Ru/En] (Build 15226435) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47277.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Moonless Moon (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47255.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Eternal Escape: castle of shadows (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47033.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ A Space for the Unbound (2023) [Multi] (1.0.35.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47007.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ The Bathhouse (2024) [Multi] (1.03) Repack FitGirl [Restored Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46873.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Snufkin: Melody of Moominvalley / Снусмумрик: Мелодия Муми-
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46785.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Star Named EOS (2024) [Ru/Multi] (1.0.0_04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46644.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Repack Other s [Complete Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46558.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ MoonFire: A Seeker's Saga (2024) [En] (1.3.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46536.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Guayota (2024) [Multi] (1.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46527.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ DREDGE (2023) [Ru/Multi] (1.5.1/dlc) Scene DOGE
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46514.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Welcome to Elk (2020) [Multi] (1.22.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46478.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Welcome to Elk – это биографическое приключение, �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31CA6A148F9315A793DB418117DD5B1DFBDF57F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743959   (46428) от 18.08.2024
-
-Nancy Drew: Secret of the Scarlet Hand / Нэнси Дрю: Тайна алой руки (2002) [Ru] (1.0) License Новый Диск
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сокровища Майя станут главной причиной проблем у героини в игре «Нэнси Дрю. Тайна Алой Руки», где её пригласили на подготовку выставки в музее «Бич-Хилл». Она расположен в Вашингтоне, и сюда придут высокопоставленные чиновники и просто много горожан, потому что про эти племена уже все СМИ говорят. И тут привозят старый артефакт истории в виде монолита, который должен (   Читать дальше...   )Тип издания: LicenseРазработчик: HeR InteractiveЖанр: Квесты, Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35F3118A9111DFDB0F6B1CA9977D64B316E3A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744071   (46311) от 19.08.2024
-
-Nancy Drew: Danger on Deception Island / Нэнси Дрю. Туманы острова Лжи (2003) [Ru] (1.0) License Новый Диск
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46311.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nancy Drew: Danger on Deception Island - детективный квест про сыщицу Нэнси Дрю. Действия игры разворачиваются на курортном архипелаге Лжи. Героиня посещает бухту Морского дракона. Ее приглашает подруга-океанолог Кейт Файрстоун, занимающаяся изучением китов. Она обнаруживает, что ей мешают с исследованиями и получает письма с угрозами. Протагонистка вызывается помочь (   Читать дальше...   )Тип издания: LicenseРазработчик: HeR InteractiveЖанр: Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A3ABFBA9C597B85B7842E71A7939365CFC68E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744172   (46236) от 20.08.2024
-
-Lifeless Planet (2014) [Ru/Multi] (4.6.7.12281826) Repack Other s [Premier Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lifeless Planet - новое трёхмерное приключение для платформы ПК, в котором игрокам предлагается ощутить себя одиноким астронавтом, летящим на способную поддерживать жизнь планету за пределами нашей системы. После аварийной посадки мечта о новой Земле сменяется отчаянием, когда он понимает, что планета, на которой он находится, пуста и безжизненна. В этом запустении (   Читать дальше...   )Тип издания: RepackРазработчик: Stage 2 StudiosЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062329B424770BBBDDEB5D3B8252E93830C87F32
 ```
 
 https://mybot314.ru/tekegram_catalog/

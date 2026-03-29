@@ -6,7 +6,7 @@ Haunted Train 2: Frozen In Time (2015) [En] Unofficial [Collector's Edition / К
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693702.jpg" />
+  <img src="Z:/picture/008/save_picture_693702.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Haunted Hotel 8: Eternity / Проклятый отель 8: Вечность (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693353.jpg" />
+  <img src="Z:/picture/008/save_picture_693353.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Grim Facade 8: The Red Cat / За гранью жестокости 8: Крас�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692946.jpg" />
+  <img src="Z:/picture/008/save_picture_692946.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Worlds Align 2: Deadly Dream / Слияние миров 2: Смертельна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692083.jpg" />
+  <img src="Z:/picture/008/save_picture_692083.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Ominous Tales. The Forsaken Isle / Зловещие истории. Покину
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691129.jpg" />
+  <img src="Z:/picture/008/save_picture_691129.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dark Romance 8: Winter Lily (2018) [En] (1.0) Unofficial [Collector's Edition]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690388.jpg" />
+  <img src="Z:/picture/008/save_picture_690388.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Labyrinths of the World 7: A Dangerous Game (2018) [En] (1.0) Unofficial [Collec
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690385.jpg" />
+  <img src="Z:/picture/008/save_picture_690385.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mystery Case Files 21: The Harbinger (2020) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690333.jpg" />
+  <img src="Z:/picture/008/save_picture_690333.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Whispered Secrets 9: Cursed Wealth (2019) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690226.jpg" />
+  <img src="Z:/picture/008/save_picture_690226.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Grim Tales 14: The Time Traveler (2018) [En] (1.0) Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690223.jpg" />
+  <img src="Z:/picture/008/save_picture_690223.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Dark Tales 12: Edgar Allan Poe's Morella (2017) [En] (1.0) Unofficial [Collector
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690222.jpg" />
+  <img src="Z:/picture/008/save_picture_690222.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Lost Lagoon 2: Cursed & Forgotten / Затерянная лагуна 2. Нов�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689473.jpg" />
+  <img src="Z:/picture/008/save_picture_689473.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Whispered Secrets 13: Tying the Knot (2022) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688489.jpg" />
+  <img src="Z:/picture/008/save_picture_688489.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Chimeras 5 Mark of Death / Химеры: Метка смерти (2017) [Ru] (1.
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686961.jpg" />
+  <img src="Z:/picture/008/save_picture_686961.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Queens Quest 4 Sacred Truce Collector's Edition/Королевский Квес�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686733.jpg" />
+  <img src="Z:/picture/008/save_picture_686733.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Wanderlust 2: The City of Mists (2019) [En] (1.0) Unofficial [Collector's Editio
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686243.jpg" />
+  <img src="Z:/picture/008/save_picture_686243.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Mystery Case Files 20: Black Crown / За семью печатями 20: Чёр
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686179.jpg" />
+  <img src="Z:/picture/008/save_picture_686179.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Hidden Expedition 19: The Price of Paradise / Секретная экспеди�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686176.jpg" />
+  <img src="Z:/picture/008/save_picture_686176.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Mortimer Beckett And The Secrets Of Spooky Manor / Мортимер Бэккет
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685275.jpg" />
+  <img src="Z:/picture/008/save_picture_685275.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ DeathMan / Кощей Бессмертный (L) [Русский] (2012)
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685265.jpg" />
+  <img src="Z:/picture/008/save_picture_685265.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Hiddenverse. The Iron Tower (2018) [En] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684327.jpg" />
+  <img src="Z:/picture/008/save_picture_684327.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks (2018) [En] (1.0) Unoffici
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684233.jpg" />
+  <img src="Z:/picture/008/save_picture_684233.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Myths of the World 14: Love Beyond (2017) [En] (1.0) Unofficial [Collector's Edi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684135.jpg" />
+  <img src="Z:/picture/008/save_picture_684135.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Fright Chasers 4: Thrills, Chills and Kills / Ловцы Страхов 4: Тр�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684000.jpg" />
+  <img src="Z:/picture/008/save_picture_684000.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Secret City 2: The Sunken Kingdom / Тайный город 2: Затонувш�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683601.jpg" />
+  <img src="Z:/picture/008/save_picture_683601.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Lost Lands: The Four Horsemen / Затерянные Земли. Четыре В
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683108.jpg" />
+  <img src="Z:/picture/008/save_picture_683108.jpg" />
 </div>
 
 

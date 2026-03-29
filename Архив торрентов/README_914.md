@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839300.jpg" />
+  <img src="Z:/picture/008/save_picture_839300.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Focus Magic 4.02a Portable by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839296.jpg" />
+  <img src="Z:/picture/008/save_picture_839296.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839283.jpg" />
+  <img src="Z:/picture/008/save_picture_839283.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839276.jpg" />
+  <img src="Z:/picture/008/save_picture_839276.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839262.jpg" />
+  <img src="Z:/picture/008/save_picture_839262.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839260.jpg" />
+  <img src="Z:/picture/008/save_picture_839260.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839259.jpg" />
+  <img src="Z:/picture/008/save_picture_839259.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Mystery Seekers: The Secret of the Haunted Mansion (P) [En] 2011
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839258.jpg" />
+  <img src="Z:/picture/008/save_picture_839258.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ MusicBee 1.2.4037 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839257.jpg" />
+  <img src="Z:/picture/008/save_picture_839257.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ VA - Лучшая клубная сотня-4 (2011) [MP3|320 kbps]<Dance, House
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839256.jpg" />
+  <img src="Z:/picture/008/save_picture_839256.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839254.jpg" />
+  <img src="Z:/picture/008/save_picture_839254.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Michael Bormann - Different (2010) [APE|Lossless]<Melodic Hard Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839252.jpg" />
+  <img src="Z:/picture/008/save_picture_839252.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839250.jpg" />
+  <img src="Z:/picture/008/save_picture_839250.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ VidCoder 0.8.2.0 [Англиский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839249.jpg" />
+  <img src="Z:/picture/008/save_picture_839249.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Hornil StylePix v 1.7.0.2430 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_839248.jpg" />
+  <img src="Z:/picture/009/save_picture_839248.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839247.jpg" />
+  <img src="Z:/picture/008/save_picture_839247.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839244.jpg" />
+  <img src="Z:/picture/008/save_picture_839244.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Opera 11.10 Beta Build 2048 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839243.jpg" />
+  <img src="Z:/picture/008/save_picture_839243.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839242.jpg" />
+  <img src="Z:/picture/008/save_picture_839242.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839241.jpg" />
+  <img src="Z:/picture/008/save_picture_839241.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ AAct Network 1.2.2 Portable by Ratiborus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839217.jpg" />
+  <img src="Z:/picture/008/save_picture_839217.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ BELOFF [dp] 2020.04.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839197.jpg" />
+  <img src="Z:/picture/008/save_picture_839197.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Cyberduck 7.3.1 Build 32784 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839193.jpg" />
+  <img src="Z:/picture/008/save_picture_839193.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ JetBrains WebStorm 2016.1.1 Build #WS-145.597 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839174.jpg" />
+  <img src="Z:/picture/008/save_picture_839174.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839172.jpg" />
+  <img src="Z:/picture/008/save_picture_839172.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ Hard Disk Sentinel Pro 5.01 Build 8557 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839161.jpg" />
+  <img src="Z:/picture/008/save_picture_839161.jpg" />
 </div>
 
 

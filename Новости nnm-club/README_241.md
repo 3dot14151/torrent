@@ -1,3 +1,160 @@
+###  Публикация: 1654268   (193965) от 21.08.2023
+
+Apple и Intel нажаловались на Индию в правительство США: страна не должна ограничивать импорт
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_193965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индийские власти в этом месяце внезапно решили ограничить импорт в страну ноутбуков, планшетов и серверного оборудования, но вскоре перенесли срок введения требований к наличию экспортных лицензий на 1 ноября этого года. У данной инициативы, направленной на стимулирование внутреннего производства, уже нашлись открытые противники из числа американских компаний, чья (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654442   (193951) от 21.08.2023
+
+Суд постановил, что произведения, созданные ИИ, не могут быть защищены авторским правом
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_193951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Судья окружного суда США Берил А. Хоуэлл (Beryl A. Howell) постановила, что искусство, созданное с помощью ИИ, не может быть защищено авторским правом. Это решение было принято в ответ на иск Стивена Талера (Stephen Thaler), который пытался зарегистрировать авторское право на изображение, созданное с помощью алгоритма Creativity Machine.Стивен Талер неоднократно (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654473   (193942) от 21.08.2023
+
+Схватка / Heat (1995) BDRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нил МакКоли — один из лучших преступников Лос-Анджелеса. Ему противостоит лучший детектив Винсент Ханна. Две сильнейшие команды сходятся друг против друга в смертельной схватке.Производство: США / Warner Bros., New Regency Productions, Forward PassЖанр: боевик, драма, криминал, триллерРежиссер: Майкл МаннАктеры: Аль Пачино, Роберт Де Ниро, Вэл Килмер, Том Сайзмор, Эми Бреннеман, Джон Войт, Дайан Венора, Эшли Джадд, Майкелти Уильямсон, Уэс СтьюдиПеревод: Многоголосый профессиональный (Карусель), двухголосый профессиональный (Twister / Кипарис)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 02:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C96DD92E4AC92F86CAAA76358E2CE14C8D49CC1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655234   (193791) от 25.08.2023
+
+Браузер Microsoft Edge начал помечать установщик Google Chrome как «вредоносный файл»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_193791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользователи браузера Microsoft Edge на Windows 10 и Windows 11 столкнулись с неожиданной проблемой: при попытке скачать установочный файл Google Chrome, он помечается как потенциально вредоносный.Встроенная система безопасности Edge предлагает удалить файл ChromeSetup.exe и попробовать использовать Edge, подталкивая пользователей к этому с помощью множества всплывающих (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655145   (193779) от 25.08.2023
+
+Обновление Windows 11 привело к синим экранам смерти с ошибкой «неподдерживаемый процессор»
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_193779.jpg" />
+</div>
+
+
+###  Подробнее
+
+ 
+Компания Microsoft подтвердила наличие проблемы в Windows 11, связанной с появлением синих экранов смерти (BSOD) с сообщением об ошибке «UNSUPPORTED_PROCESSOR». Проблема возникает после установки пакета с ежемесячными исправлениями KB5029351, распространение которого началось ранее на этой неделе.«В настоящее время мы проводим расследование, чтобы определить, вызвана (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1655153   (193716) от 26.08.2023
+
+Отменяя сетевую нейтральность, Россия вновь наступает на американские грабли
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_193716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спор о том, должны ли интернет-компании платить операторам связи за транзит трафика, идут уже два десятилетия по всему миру. Есть обширная практика и богатый опыт введения и отмены национального режима (принципа) «сетевой нейтральности». Но провайдеры не устают требовать компенсации за «украденное» у них интернет-платформами, а те – уличать связистов в отсталости (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1655476   (193608) от 28.08.2023
 
 В России началось серийное производство электропоездов «Иволга 4.0»,
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_193608.jpg" />
+  <img src="Z:/picture/005/save_picture_193608.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_193524.jpg" />
+  <img src="Z:/picture/005/save_picture_193524.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_193316.jpg" />
+  <img src="Z:/picture/005/save_picture_193316.jpg" />
 </div>
 
 
@@ -85,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_193195.jpg" />
 </div>
 
 
@@ -111,7 +268,7 @@ A.L. Weber / T. Rice - Jesus Christ Superstar. Различные вариант
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193046.jpg" />
+  <img src="Z:/picture/004/save_picture_193046.jpg" />
 </div>
 
 
@@ -137,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193034.jpg" />
+  <img src="Z:/picture/004/save_picture_193034.jpg" />
 </div>
 
 
@@ -163,7 +320,7 @@ Gotham Knights (2022) [Multi] (9794860/dlc) Repack DjDI [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193032.jpg" />
+  <img src="Z:/picture/004/save_picture_193032.jpg" />
 </div>
 
 
@@ -189,7 +346,7 @@ NASA профинансировало создание гигантского н
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192907.jpg" />
 </div>
 
 
@@ -215,7 +372,7 @@ YouTube Vanced (Extended) 17.33.42 Mod by Number one' [Ru/Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192737.jpg" />
+  <img src="Z:/picture/004/save_picture_192737.jpg" />
 </div>
 
 
@@ -241,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192512.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ Windows 10 Enterprise LTSB (x64) Elgujakviso Edition (v.28.10.22) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192426.jpg" />
+  <img src="Z:/picture/004/save_picture_192426.jpg" />
 </div>
 
 
@@ -297,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192422.jpg" />
+  <img src="Z:/picture/004/save_picture_192422.jpg" />
 </div>
 
 
@@ -323,7 +480,7 @@ Saints Row: The Third Remastered (2021) [Ru/Multi] (1.0.6.1/dlc) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192419.jpg" />
+  <img src="Z:/picture/004/save_picture_192419.jpg" />
 </div>
 
 
@@ -349,7 +506,7 @@ Intel грозит судебный иск из-за уязвимости Downfa
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192327.jpg" />
 </div>
 
 
@@ -375,7 +532,7 @@ Zorin OS 16.2 Pro/Pro Lite [64-bit] 2xDVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192177.jpg" />
 </div>
 
 
@@ -403,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192171.jpg" />
 </div>
 
 
@@ -429,7 +586,7 @@ Windows 10 Pro 22H2 Build 19045.3324 x64 ReviOS (23.08.2023) [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191959.jpg" />
 </div>
 
 
@@ -455,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_191937.jpg" />
+  <img src="Z:/picture/005/save_picture_191937.jpg" />
 </div>
 
 
@@ -483,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191866.jpg" />
 </div>
 
 
@@ -510,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191645.jpg" />
+  <img src="Z:/picture/004/save_picture_191645.jpg" />
 </div>
 
 
@@ -522,167 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30B3CF56E77D7E79F218B9DEE52915B025E623F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658139   (191503) от 07.09.2023
-
-Очередное достижение: 1000+ релизов от Vitaxa52!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191503.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Очередное достижение: 1000+ релизов от Vitaxa52!Дорогие одноклубники! Ещё один из наших релизёров добрался до желанной отметки в 1000 релизов!От лица всего коллектива модераторов и администрации трекера, хочу поздравить и выразить благодарность. Спасибо тебе за упорство, труд и потраченные силы. Уверен, что пользователи нашего трекера присоединятся к поздравлениям (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587976   (191221) от 05.11.2022
-
-Названа доля пользователей Windows 11
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_191221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Statcounter: на Windows 11 перешли 15 процентов пользователей ОС от Microsoft
-Специалисты агентства Statcounter назвали долю пользователей актуальной операционной системы от Microsoft. Об этом сообщает издание Neowin.По данным Statcounter, на Windows 11 перешли 15,44 процента пользователей ОС от Microsoft — новая операционная система оказалась на втором месте по (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 685984   (191157) от 05.11.2022
-
-SoundHound∞ v10.2 [Ru/Multi]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191157.jpg" />
-</div>
-
-
-###  Подробнее
-
-SoundHound поможет вам легко найти понравившуюся мелодию (аналог Shazam). Просто поднесите устройство к источнику звука или же напойте мелодию сами. Давно искали песню, даже мелодию успели забыть... и тут она играет по радио или тв. Или проснулись утром, а в голове крутится одна и та же мелодия, мотив из детства или та самая композиция со школьной дискотеки. Да просто (   Читать дальше...   )Тип издания: Mod / PaidРелиз состоялся: 02.11.2022Разработчик: SoundHound Inc.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BE05B3E5ED8906FBC73410D27A61CB1641C6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623401   (191039) от 08.09.2023
-
-Юмор на все времена (2022-2023) WEBRip (56 выпусков)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа «Юмор на все времена» рассказывает о творческой жизни талантливых юмористов, их взлётах и падениях, курьёзных ситуациях и о незабываемых эстрадных номерах. Ведущий программы Аркадий Инин с каждым из героев программы был знаком лично или дружен до сих пор. Он знает о советских юмористах практически всё и готов поделиться с телезрителями неизвестными до сих (   Читать дальше...   )Производство: Россия, Москва МедиаЖанр: документальный, биография, эстрадаЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: выпуски ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDBC68A29AAF77D53E7DC74AF9396E1EE3FB208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968846   (191027) от 08.09.2023
-
-Сквозь горизонт  / Горизонт событий / Event Horizon (1997) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191027.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2047 году космический корабль под названием «Сквозь горизонт» вновь появился после исчезновения семь лет назад. На нем ставился эксперимент путешествия со сверхсветовой скоростью. С корабля был получен сигнал, но голос лишь отдаленно напоминал человеческий. Группа ученых и астронавтов тут же отправляется на корабль с целью его исследования и возвращения домой. (   Читать дальше...   )Производство: Великобритания, США / Paramount Pictures, Golar Productions, Impact PicturesЖанр: Ужасы, Фантастика, Триллер, ДетективРежиссер: Пол У. С. АндерсонАктеры: Лоренс Фишбёрн, Сэм Нил, Кэтлин Куинлен, Джоэли Ричардсон, Ричард Т. Джонс, Джек Ноузуорти, Джейсон Айзекс, Шон Пертуи, Питер Маринкер, Холли ЧантПеревод: Многоголосый закадровый (Киномания)Субтитры: Русские, английскиеПродолжительность: 01:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8CED45067C8F21F84BACB5AC72CB074FD50A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587936   (190926) от 06.11.2022
-
-GoodbyeDPI 0.2.2. Launcher 5.7 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_190926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа Launcher for GoodbyeDPI для запуска утилиты GoodbyeDPI с понятным интерфейсом
-Утилита GoodbyeDPI предназначена для обхода систем глубокого анализа трафика (Deep Packet Inspection) и получения доступа к заблокированным сайтам.
-
-Работает с пассивными (подключенными с помощью оптического сплиттера или с зеркалированием трафика) и активными (подключенными последовательно) (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9DF961777A627655042717BAC39902E34E62745
 ```
 
 https://mybot314.ru/tekegram_catalog/

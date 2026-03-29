@@ -6,7 +6,7 @@ Daum PotPlayer 1.7.17508 Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720507.jpg" />
+  <img src="Z:/picture/008/save_picture_720507.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ JetBrains WebStorm 2018.3.4 Build #WS-183.5429.34 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720504.jpg" />
+  <img src="Z:/picture/008/save_picture_720504.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Vivaldi Browser 1.10.829.3 Snapshot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720443.jpg" />
+  <img src="Z:/picture/008/save_picture_720443.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Viber 17.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720421.jpg" />
+  <img src="Z:/picture/008/save_picture_720421.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Display Driver Uninstaller 17.0.6.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720334.jpg" />
+  <img src="Z:/picture/008/save_picture_720334.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ ReviverSoft Driver Reviver 5.18.0.6 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720328.jpg" />
+  <img src="Z:/picture/008/save_picture_720328.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ O&O Defrag Professional 20.5 Build 603 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720323.jpg" />
+  <img src="Z:/picture/008/save_picture_720323.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Cent Browser 2.5.6.57 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720322.jpg" />
+  <img src="Z:/picture/008/save_picture_720322.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Wise Disk Cleaner 9.25.644 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720302.jpg" />
+  <img src="Z:/picture/008/save_picture_720302.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Cyberfox 47.0 for AMD [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720299.jpg" />
+  <img src="Z:/picture/008/save_picture_720299.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ qBittorrent 4.4.1 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720292.jpg" />
+  <img src="Z:/picture/008/save_picture_720292.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Remote Desktop Manager Enterprise 2022.1.11.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720290.jpg" />
+  <img src="Z:/picture/008/save_picture_720290.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ CyberLink PowerDirector Ultimate 20.1.2607.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720287.jpg" />
+  <img src="Z:/picture/008/save_picture_720287.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ WhatsApp 2.2202.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720286.jpg" />
+  <img src="Z:/picture/008/save_picture_720286.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ CCleaner 5.90.9443 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720277.jpg" />
+  <img src="Z:/picture/008/save_picture_720277.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ WinUtilities Pro 12.51 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720206.jpg" />
+  <img src="Z:/picture/008/save_picture_720206.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VirtualBox 5.1.22 r115126 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720200.jpg" />
+  <img src="Z:/picture/008/save_picture_720200.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VirtualBox 5.1.22.115126 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720199.jpg" />
+  <img src="Z:/picture/008/save_picture_720199.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ ScreenPresso Pro 1.6.3.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720184.jpg" />
+  <img src="Z:/picture/008/save_picture_720184.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ ICQ 10.0 build 12077 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720183.jpg" />
+  <img src="Z:/picture/008/save_picture_720183.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ IObit Smart Defrag Pro 5.1.0.787 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720181.jpg" />
+  <img src="Z:/picture/008/save_picture_720181.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720083.jpg" />
+  <img src="Z:/picture/008/save_picture_720083.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ O&O Defrag Professional 20.5 Build 603 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720077.jpg" />
+  <img src="Z:/picture/008/save_picture_720077.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ CCleaner 5.29.6033 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720062.jpg" />
+  <img src="Z:/picture/008/save_picture_720062.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ O&O Defrag Professional 20.5 Build 603 RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720054.jpg" />
+  <img src="Z:/picture/008/save_picture_720054.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720048.jpg" />
+  <img src="Z:/picture/008/save_picture_720048.jpg" />
 </div>
 
 

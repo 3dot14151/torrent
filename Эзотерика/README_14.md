@@ -1,3 +1,29 @@
+###  Публикация: 914585   (597886) от 02.07.2015
+
+Сан Лайт | Энергия мысли. Искусство созидательного мышления (2012) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_597886.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге представлены принципы и методы созидательного мышления, благодаря которым вы можете преобразить свою жизнь и быстро достичь поразительных результатов во всех своих начинаниях. Мысль – это огромная сила, с ее помощью созданы все окружающие вас богатства цивилизации. Управление мыслью принесет вам удачу, процветание и гармонию, а также позволит насладиться (   Читать дальше...   )Жанр: Руководства, Эзотерика, СамосовершенствованиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9197DBD3783A8FEB504B05AF39FEC7C4ED0571BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914589   (597875) от 02.07.2015
 
 Сан Лайт | Формулы денег. Практическое руководство (2014) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597875.jpg" />
+  <img src="Z:/picture/008/save_picture_597875.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597744.jpg" />
+  <img src="Z:/picture/008/save_picture_597744.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596935.jpg" />
+  <img src="Z:/picture/008/save_picture_596935.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595275.jpg" />
+  <img src="Z:/picture/008/save_picture_595275.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594443.jpg" />
+  <img src="Z:/picture/008/save_picture_594443.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591777.jpg" />
+  <img src="Z:/picture/008/save_picture_591777.jpg" />
 </div>
 
 
@@ -167,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591371.jpg" />
+  <img src="Z:/picture/008/save_picture_591371.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588387.jpg" />
+  <img src="Z:/picture/008/save_picture_588387.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587955.jpg" />
+  <img src="Z:/picture/008/save_picture_587955.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586416.jpg" />
+  <img src="Z:/picture/008/save_picture_586416.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585411.jpg" />
+  <img src="Z:/picture/008/save_picture_585411.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585397.jpg" />
+  <img src="Z:/picture/008/save_picture_585397.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585032.jpg" />
+  <img src="Z:/picture/008/save_picture_585032.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583739.jpg" />
+  <img src="Z:/picture/008/save_picture_583739.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583672.jpg" />
+  <img src="Z:/picture/008/save_picture_583672.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582791.jpg" />
+  <img src="Z:/picture/008/save_picture_582791.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582489.jpg" />
+  <img src="Z:/picture/008/save_picture_582489.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582456.jpg" />
+  <img src="Z:/picture/008/save_picture_582456.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581811.jpg" />
+  <img src="Z:/picture/008/save_picture_581811.jpg" />
 </div>
 
 
@@ -512,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581409.jpg" />
+  <img src="Z:/picture/008/save_picture_581409.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580337.jpg" />
+  <img src="Z:/picture/008/save_picture_580337.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579345.jpg" />
+  <img src="Z:/picture/008/save_picture_579345.jpg" />
 </div>
 
 
@@ -591,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578439.jpg" />
+  <img src="Z:/picture/008/save_picture_578439.jpg" />
 </div>
 
 
@@ -617,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575409.jpg" />
+  <img src="Z:/picture/008/save_picture_575409.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575373.jpg" />
+  <img src="Z:/picture/008/save_picture_575373.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA0DA704944F3F6AE8A47EAB7C9E2E1DAFF40C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043011   (574277) от 15.08.2016
-
-Барбара Бессен | Крайон. ДНК бессмертия: Как активизировать ген вечной жизни (2012) [FB2]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор книги – Барбара Бессен – в течение многих лет работает в духовном контакте с неземной сущностью. Крайон – так называет себя представитель  космического разума – рассказывает, как раскрыть заложенный в ДНК код бессмертия, освободиться от тяжестей кармических долгов и начать новую жизнь в новых энергиях измененной кристаллической решетки Земли. Он передает миру (   Читать дальше...   )Жанр: Зарубежная эзотерическая и религиозная литература, ЭзотерикаПеревод: О. ЕрженинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BFBF3F1432FFCF32309FC2A80E5A047F6CA63A
 ```
 
 https://mybot314.ru/tekegram_catalog/

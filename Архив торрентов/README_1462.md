@@ -6,7 +6,7 @@ Alfred Powerpack 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721167.jpg" />
+  <img src="Z:/picture/008/save_picture_721167.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ FinePrint 9.25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721166.jpg" />
+  <img src="Z:/picture/008/save_picture_721166.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Adobe Flash Player 29.0.0.140 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721164.jpg" />
+  <img src="Z:/picture/008/save_picture_721164.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Wondershare Video Converter Ultimate 10.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721163.jpg" />
+  <img src="Z:/picture/008/save_picture_721163.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ W10Privacy 3.0.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721160.jpg" />
+  <img src="Z:/picture/008/save_picture_721160.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Raxco PerfectDisk Professional Business / Server 14.0 Build 892 RePack by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721158.jpg" />
+  <img src="Z:/picture/008/save_picture_721158.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ AOMEI Backupper Technician Plus 4.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721154.jpg" />
+  <img src="Z:/picture/008/save_picture_721154.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Adobe Flash Player 29.0.0.140 Final [3 в 1] RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721153.jpg" />
+  <img src="Z:/picture/008/save_picture_721153.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Reg Organizer 8.10 Final RePack (& Portable) by elchupaсabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721152.jpg" />
+  <img src="Z:/picture/008/save_picture_721152.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721132.jpg" />
+  <img src="Z:/picture/005/save_picture_721132.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Freemake Video Converter 4.1.6.2 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721119.jpg" />
+  <img src="Z:/picture/008/save_picture_721119.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ AIMP 3.60 Build 1492 Final RePack (& Portable) by D!akov (with DPS Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721116.jpg" />
+  <img src="Z:/picture/008/save_picture_721116.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721106.jpg" />
+  <img src="Z:/picture/005/save_picture_721106.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721103.jpg" />
+  <img src="Z:/picture/005/save_picture_721103.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721101.jpg" />
+  <img src="Z:/picture/005/save_picture_721101.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721092.jpg" />
+  <img src="Z:/picture/005/save_picture_721092.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ RapidWeaver 8 v8.1.6 (20662) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721087.jpg" />
+  <img src="Z:/picture/008/save_picture_721087.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Keep It 1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721084.jpg" />
+  <img src="Z:/picture/008/save_picture_721084.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721083.jpg" />
+  <img src="Z:/picture/008/save_picture_721083.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721082.jpg" />
+  <img src="Z:/picture/008/save_picture_721082.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Money Pro 2.0.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721080.jpg" />
+  <img src="Z:/picture/008/save_picture_721080.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Aiseesoft HD Converter 9.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721078.jpg" />
+  <img src="Z:/picture/008/save_picture_721078.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Kinza Browser 5.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721074.jpg" />
+  <img src="Z:/picture/008/save_picture_721074.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Vivaldi 2.3.1440.57 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721073.jpg" />
+  <img src="Z:/picture/008/save_picture_721073.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Alien Skin Exposure X4 Bundle 4.0.6.170 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721070.jpg" />
+  <img src="Z:/picture/008/save_picture_721070.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721069.jpg" />
+  <img src="Z:/picture/008/save_picture_721069.jpg" />
 </div>
 
 

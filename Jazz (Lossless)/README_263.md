@@ -1,3 +1,119 @@
+###  Публикация: 852297   (223801) от 21.12.2014
+
+The Christmas Swing Orchestra - Christmas Swing (1999) [FLAC|Lossless]<Jazz Holiday,  Christmas Holidays>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В преддверии Рождества и Нового Года для любителей джаза представляю интересную компиляцию Christmas Swing. Обязательно послушайте увертюру к "Щелкунчику" и "Танец цветов", Па-де-де (Вариация II) Танец Феи Драже (которая почему-то превратилсь в звучное "Sugar Rum Cherry") от туда же. Думаю, что наравне с легко узнаваемыми напевами П.И. (   Читать дальше...   )01. Santa Claus Is Coming To Town  (4:55)
+02. Nutcracker Overture  (3:22)
+03. Peanut Brittle Brigade  (4:46)
+04. Sugar Rum Cherry  (3:20)(   Читать дальше...   )Жанр: Jazz Holiday,  Christmas HolidaysПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8A2F0C91A9634BD5A28929A2BDE62B4176E3E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585082   (223682) от 20.10.2022
+
+Milt Jackson - Ain't But A Few Of Us Left (1981) 1993, Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't But a Few of Us Left [7:28]
+02. Stuffy [6:01]
+03. A Time for Love [6:01]
+04. Body and Soul [5:58](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E80E9478190BB4EFA7E7D531F1B759E8E8CFB9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269086   (223516) от 13.12.2018
+
+Tom Bacon - The Flipside: Jazz Horn Solos (1989) Summit Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concerto for Tom: Tomfoolery [4:41]
+02. Concerto for Tom: Hornful of Blues [4:55]
+03. Concerto for Tom: Cooking with Bacon [3:16]
+04. Grand Ur [5:42](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3528D744CFDDD65D960A39BA04B0816D826ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269089   (223510) от 13.12.2018
+
+Bunny Berigan - 1938 - 1942 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_223510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Dark [2:46]
+02. Walkin' The Dog [3:07]
+03. Patty Cake, Patty Cake [3:31]
+04. Jazz Me Blues [3:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE79954FF30CB325A7B6E97315F6B3000F416A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268807   (223500) от 13.12.2018
 
 Ted Sirota's Rebel Souls - Breeding Resistance (2004) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -6,7 +122,7 @@ Ted Sirota's Rebel Souls - Breeding Resistance (2004) Delmark Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223500.jpg" />
+  <img src="Z:/picture/005/save_picture_223500.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Howard Rumsey's Lighthouse All-Stars - Lighthouse At Laguna (1955) 1989, Origina
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223494.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Rachel Caswell - We're All In The Dance (2018) Turtle Ridge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223489.jpg" />
+  <img src="Z:/picture/005/save_picture_223489.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Rosemary Clooney - 16 Most Requested Songs (1950-e - 1960-e) 1989, Columbia [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223479.jpg" />
+  <img src="Z:/picture/005/save_picture_223479.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Ronnie Scott - Six Classic Albums Plus Bonus Singles (1956 - 1961) 4CD, 2015, Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223446.jpg" />
+  <img src="Z:/picture/005/save_picture_223446.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Papik - Bossarama (2023) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Easy Listeni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223182.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Beaux J Poo Boo - All Things Are New (2005) Summit Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222904.jpg" />
+  <img src="Z:/picture/005/save_picture_222904.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Miho Hazama - Imaginary Visions (2021) Edition Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222897.jpg" />
+  <img src="Z:/picture/005/save_picture_222897.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ John Dankworth & Rochester Pops - Ellington: Echoes of Harlem (1988) ProJazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222884.jpg" />
+  <img src="Z:/picture/005/save_picture_222884.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Art Farmer, Benny Golson, Jazztet - The Complete Argo-Mercury Sessions (1960 - 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222860.jpg" />
+  <img src="Z:/picture/005/save_picture_222860.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Tamara Kuldin - This May Only Be a Dream (2020) [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222792.jpg" />
+  <img src="Z:/picture/005/save_picture_222792.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Miles Davis - So What? (1947-1962) 3CD, 2014, Le Chant Du Monde[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222727.jpg" />
+  <img src="Z:/picture/005/save_picture_222727.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Beegie Adair - Best Of Beegie Adair: Jazz Piano Christmas Perform (2020) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222722.jpg" />
+  <img src="Z:/picture/005/save_picture_222722.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222694.jpg" />
+  <img src="Z:/picture/005/save_picture_222694.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222511.jpg" />
+  <img src="Z:/picture/005/save_picture_222511.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Horace Silver - Paris Blues (1962) 2002, Pablo [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_222485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_222485.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Verve & Blue Note Today (2020) [FLAC|Lossless|tracks + .cue] <Jazz, Mainstr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222411.jpg" />
+  <img src="Z:/picture/005/save_picture_222411.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ The Ian McDougall Sextet - Dry With A Twist (1999) Factor [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221713.jpg" />
+  <img src="Z:/picture/005/save_picture_221713.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Andy Sheppard Quartet - Romaria (2018) ECM Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221702.jpg" />
+  <img src="Z:/picture/005/save_picture_221702.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Beady Belle - Dedication (2018) Jazzland Recordings [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221681.jpg" />
+  <img src="Z:/picture/005/save_picture_221681.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Bob Belden - Black Dahlia (2001) Blue Note Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221590.jpg" />
+  <img src="Z:/picture/005/save_picture_221590.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Ana Carla Maza - Alma (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221504.jpg" />
+  <img src="Z:/picture/005/save_picture_221504.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Ana Carla Maza - Alma (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4BD1AA8F6F45F583F6D6EC6FCAD7CAB84B36EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513922   (221427) от 01.12.2021
-
-Eddie Higgins - Romantic Higgins (2009) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Don't Know What Love Is [5:27]
-02. My Funny Valentine [5:38]
-03. Over the Rainbow [4:20]
-04. Danny Boy [5:06](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED146A2B7FB459D028333886A6A5C9C08F0BC94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585478   (221375) от 22.10.2022
-
-Papik & Alfredo Bochicchio - Cocktail Guitar, Vol.2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breezin'
-02. Nel Blu Dipinto Di Blu (Volare)
-03. Fo The Love Of You
-04. Flor D'Luna (Moonflower)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE2F178B0C2BB7E144A35514FA0806BD41E3FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513909   (221350) от 01.12.2021
-
-V.A. - Bossa & Latin Flavours (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Nu Jazz, Latin>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa Nostra – Inverno (Cybophonia Bossa 'N' Funk remix)
-02. 12 Fingers – Rio (feat. Viviane Cruz)
-03. Bossa Nostra – Espera (feat. Bruna Loppez)
-04. Silvia Donati – Avenida (feat. Clan Greco)(   Читать дальше...   )Жанр: Bossa Nova, Nu Jazz, LatinПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1548E3C321452F16072EBC2BF5713DB72776AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651571   (221319) от 07.08.2023
-
-Herbie Nichols - Love, Gloom, Cash, Love (1957) 1994, Bethlehem [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Close For Comfort [4:55]
-02. Every Cloud [4:01]
-03. Argumentative [3:43]
-04. Love, Gloom, Cash, Love [4:25](   Читать дальше...   )Жанр: Bop, Post-Bop, Piano JazzПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F56C4CB0E23E0972FBB5AFD7E82E7E78AE89ACDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

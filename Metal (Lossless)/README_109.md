@@ -1,3 +1,88 @@
+###  Публикация: 1141629   (648384) от 11.06.2017
+
+Pyogenesis - A Kingdom to Disappear (2017) [FLAC|Lossless|image + .cue] <Gothic Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep Is Good (Intro) 01:26
+02. Every Man for Himself... and God Against All 03:53
+03. I Have Seen My Soul 04:43
+04. A Kingdom to Disappear (It's Too Late) 03:30(   Читать дальше...   )Жанр: Gothic Dark MetalПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58ECECB7FD3C86E5D333D7AB62EED4407C7069B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292280   (648176) от 28.03.2019
+
+Rammstein - Deutschland (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
+
+>>След.
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648176.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Deutschland
+2. Deutschland (Rmx by Richard Z. Kruspe)Жанр: Industrial MetalПродолжительность: 00:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CC6C40195D5086724D958CB717EA58D84CAE0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032104   (648022) от 06.07.2016
+
+Twilight - The Edge (1992) Reissue, 1999 [FLAC|Lossless|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Far Beyond the Edge of Sanity    06:12
+02.  Blacklight    04:19
+03.  Salem    06:02
+04.  Twilight    06:12(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44CB7E57CA8AB52FBDE7A3FF70CE1E72ADD0D56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031982   (648021) от 06.07.2016
 
 Denner - Shermann - Masters Of Evil (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -6,7 +91,7 @@ Denner - Shermann - Masters Of Evil (2016) [FLAC|Lossless|image + .cue] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648021.jpg" />
+  <img src="Z:/picture/008/save_picture_648021.jpg" />
 </div>
 
 
@@ -35,7 +120,7 @@ Beyond Twilight - For The Love Of Art And The Making (2006) [APE|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648016.jpg" />
+  <img src="Z:/picture/008/save_picture_648016.jpg" />
 </div>
 
 
@@ -64,7 +149,7 @@ Yngwie Malmsteen - World On Fire (2016) [FLAC|Lossless|image + .cue] <Neoclassic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647630.jpg" />
+  <img src="Z:/picture/008/save_picture_647630.jpg" />
 </div>
 
 
@@ -93,7 +178,7 @@ Paradise Lost - The Plague Within (2015) 2CD Deluxe Edition [FLAC|image+.cue]<Go
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647448.jpg" />
+  <img src="Z:/picture/008/save_picture_647448.jpg" />
 </div>
 
 
@@ -121,7 +206,7 @@ Sabaton - Carolus Rex (2012) (Japanese Edition)[FLAC|Lossless]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647323.jpg" />
+  <img src="Z:/picture/008/save_picture_647323.jpg" />
 </div>
 
 
@@ -150,7 +235,7 @@ Ancient Settlers - Our Last Eclipse (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646946.jpg" />
+  <img src="Z:/picture/008/save_picture_646946.jpg" />
 </div>
 
 
@@ -179,7 +264,7 @@ Neuraxis - Asylon (2011) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646933.jpg" />
+  <img src="Z:/picture/008/save_picture_646933.jpg" />
 </div>
 
 
@@ -208,7 +293,7 @@ Universe Infinity - Rock Is Alive (2018) Japan [FLAC|Lossless|image + .cue] <Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646929.jpg" />
+  <img src="Z:/picture/008/save_picture_646929.jpg" />
 </div>
 
 
@@ -237,7 +322,7 @@ Inquisition - Demonic Ritual In Unholy Blackness (2018) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646924.jpg" />
+  <img src="Z:/picture/008/save_picture_646924.jpg" />
 </div>
 
 
@@ -266,7 +351,7 @@ Dreamtale - Everlasting Flame (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646881.jpg" />
+  <img src="Z:/picture/008/save_picture_646881.jpg" />
 </div>
 
 
@@ -295,7 +380,7 @@ Far From Your Sun - The Origin of Suffering (2022) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646750.jpg" />
+  <img src="Z:/picture/008/save_picture_646750.jpg" />
 </div>
 
 
@@ -324,7 +409,7 @@ Overtures - Rebirth (2011) [FLAC|image + .cue]<Heavy / Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645879.jpg" />
+  <img src="Z:/picture/008/save_picture_645879.jpg" />
 </div>
 
 
@@ -353,7 +438,7 @@ Armored Saint - Win Hands Down (2015) [FLAC | image+.cue | Lossless]<Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645648.jpg" />
+  <img src="Z:/picture/008/save_picture_645648.jpg" />
 </div>
 
 
@@ -382,7 +467,7 @@ Lindemann - Praise Abort (2015) Single & EP [FLAC|tracks|WEB-DL]<Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645324.jpg" />
+  <img src="Z:/picture/008/save_picture_645324.jpg" />
 </div>
 
 
@@ -411,7 +496,7 @@ Danzig - Thrall-Demonsweatlive (1993) EP, Club Edition, Repress [FLAC|Lossless|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645284.jpg" />
+  <img src="Z:/picture/008/save_picture_645284.jpg" />
 </div>
 
 
@@ -440,7 +525,7 @@ Lords Of The Trident - The Offering (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644906.jpg" />
+  <img src="Z:/picture/008/save_picture_644906.jpg" />
 </div>
 
 
@@ -469,7 +554,7 @@ Dream Evil - Six (2017) Jараnese Еditiоn [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644864.jpg" />
+  <img src="Z:/picture/008/save_picture_644864.jpg" />
 </div>
 
 
@@ -498,7 +583,7 @@ Enisum - Moth's Illusion (2019) Limited Bonus CD Edition [FLAC|Lossless|tracks +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643374.jpg" />
+  <img src="Z:/picture/008/save_picture_643374.jpg" />
 </div>
 
 
@@ -527,7 +612,7 @@ Anthem - Nucleus (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643294.jpg" />
+  <img src="Z:/picture/008/save_picture_643294.jpg" />
 </div>
 
 
@@ -556,7 +641,7 @@ Cadaveria - Horror Metal (2012) [FLAC|Lossless|image + .cue] <Gothic Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643237.jpg" />
+  <img src="Z:/picture/008/save_picture_643237.jpg" />
 </div>
 
 
@@ -585,7 +670,7 @@ The Human Abstract - Nocturne (2006) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643150.jpg" />
+  <img src="Z:/picture/008/save_picture_643150.jpg" />
 </div>
 
 
@@ -614,7 +699,7 @@ Cadaveria - Mondoscuro (2016) [FLAC|Lossless|image + .cue] <Gothic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643147.jpg" />
+  <img src="Z:/picture/008/save_picture_643147.jpg" />
 </div>
 
 
@@ -643,7 +728,7 @@ Grimorium Verum - Reall (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643136.jpg" />
+  <img src="Z:/picture/008/save_picture_643136.jpg" />
 </div>
 
 
@@ -657,93 +742,6 @@ Grimorium Verum - Reall (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C199288E3CCA504D02ECF9094C732D7E8737D015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541689   (643132) от 04.04.2022
-
-Petrification - Hollow Of The Void (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Prelude
-02.Arachne Exsanguine
-03.Technological Assimilation
-04.Summon Horrendous Destruction(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E697CBA0E23F0657FC4A15F2F57AF83DEAA8B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142458   (642982) от 14.06.2017
-
-Tiluland - Axes Of The Universe (2011) [FLAC|Lossless|tracks + .cue] <Power Metal, Shred, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (To the Kings)  (01:22) 
-02. Tilu of the Kings  (04:36) 
-03. March of Immortals  (04:06) 
-04. Heroes  (03:49) (   Читать дальше...   )Жанр: Power Metal, Shred, InstrumentalПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E007C1B6B88DBB9BEC4851CF79DAC54EEE20B18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541789   (642617) от 04.04.2022
-
-Cobra Spell - Anthems Of The Night (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addicted To The Night
-02. The Midnight Hour
-03. Steal My Heart Away
-04. AccelerateЖанр: Heavy MetalПродолжительность: 00:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D491342991D45191472F471C992A96AD35EF47F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

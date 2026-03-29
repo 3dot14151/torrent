@@ -6,7 +6,7 @@ Minecraft (2019) [PS4] [EUR] 9.00 [HEN] [License / 2.35 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212055.jpg" />
+  <img src="Z:/picture/005/save_picture_212055.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Farm Together (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.35 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211514.jpg" />
+  <img src="Z:/picture/005/save_picture_211514.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Martha Is Dead (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211447.jpg" />
+  <img src="Z:/picture/005/save_picture_211447.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ MX vs ATV Legends (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.08] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211435.jpg" />
+  <img src="Z:/picture/005/save_picture_211435.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ NBA 2K22 (2021) [PS4] [USA] 5.05 [HEN] [License / 1.13] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211431.jpg" />
+  <img src="Z:/picture/005/save_picture_211431.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Cuphead Delicious Last Course (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DL
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211418.jpg" />
+  <img src="Z:/picture/005/save_picture_211418.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ The Quarry (2022) [PS4] [USA] 5.05 [HEN] [License / 1.04 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211205.jpg" />
+  <img src="Z:/picture/005/save_picture_211205.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Prey (2017) [PS4] [EUR] 9.0 [HEN] [License / 1.12 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210958.jpg" />
+  <img src="Z:/picture/005/save_picture_210958.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Tom Clancy's Ghost Recon: Wildlands (2018) [PS4] [EUR] 9.00 [HEN] [License / 1.3
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210505.jpg" />
+  <img src="Z:/picture/005/save_picture_210505.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Manhunt [Uncensored] (2004) [Xbox360] [PAL] [FreeBoot] [License] [Ru]
 >>Xbox 360
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210327.jpg" />
+  <img src="Z:/picture/005/save_picture_210327.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [PS4] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210185.jpg" />
+  <img src="Z:/picture/005/save_picture_210185.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bus Simulator 21 (2021) [PS4] [USA] 5.05 [HEN] [License / 2.21 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209925.jpg" />
+  <img src="Z:/picture/005/save_picture_209925.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Nickelodeon All-Star Brawl (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.15 / DLC] 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209915.jpg" />
+  <img src="Z:/picture/005/save_picture_209915.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Tiny Tina's Wonderlands (2022) [PS4] [USA] 5.05 [HEN] [License / 1.08 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209765.jpg" />
+  <img src="Z:/picture/005/save_picture_209765.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Fullmetal Alchemist and the Broken Angel (2005) [PS2] [NTSC] [Unofficial] [Ru/En
 >>PS2
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209667.jpg" />
+  <img src="Z:/picture/005/save_picture_209667.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ DiRt Rally 2.0 (2019) [USA] 5.05 [HEN] [License / 1.26 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209626.jpg" />
+  <img src="Z:/picture/005/save_picture_209626.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Remnant From The Ashes (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.24 / DLC] [Ru/
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208478.jpg" />
+  <img src="Z:/picture/005/save_picture_208478.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Worms Collection (2012) [PS3] [EUR] 4.21+ [License] [En]
 >>PS3
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208185.jpg" />
+  <img src="Z:/picture/005/save_picture_208185.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ In Nightmare (2022) [PS4] [USA] 5.05 [HEN] [License / 1.05] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208131.jpg" />
+  <img src="Z:/picture/005/save_picture_208131.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Saints Row (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.06 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207275.jpg" />
+  <img src="Z:/picture/005/save_picture_207275.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Kena: Bridge of Spirits (2021) [PS4] [USA] 5.05 [HEN] [License / 2.02 / DLC] [Ru
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206917.jpg" />
+  <img src="Z:/picture/005/save_picture_206917.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Ultra Age (2021) [PS4] [USA] 5.05 [HEN] [License / 2.02 / DLC] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206680.jpg" />
+  <img src="Z:/picture/005/save_picture_206680.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ The Dark Pictures Anthology Little Hope (2020) [PS4] [EUR] 5.05 [HEN] [License /
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206222.jpg" />
+  <img src="Z:/picture/005/save_picture_206222.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ F1 22 (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.12] [Ru/Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205802.jpg" />
+  <img src="Z:/picture/005/save_picture_205802.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ LEGO Star Wars: The Skywalker Saga (2022) [PS4] [USA] 5.05 [HEN] [Repack / 1.07 
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205413.jpg" />
+  <img src="Z:/picture/005/save_picture_205413.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ WWE 2K22 (2022) [PS4] [USA] 5.05 [HEN] [License / 1.18 / DLC] [Multi]
 >>PS4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205145.jpg" />
+  <img src="Z:/picture/004/save_picture_205145.jpg" />
 </div>
 
 

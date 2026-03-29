@@ -6,7 +6,7 @@ Cinnarch 2013.04.05 [i686 + x86-64] (4xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877630.jpg" />
+  <img src="Z:/picture/005/save_picture_877630.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ KaOS Linux 2016.03 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876774.jpg" />
+  <img src="Z:/picture/005/save_picture_876774.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ PCLinuxOS 2013.04 KDE FullMonty [i586] (1xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872755.jpg" />
+  <img src="Z:/picture/008/save_picture_872755.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Manjaro Linux 0.8.5 (Arch с несколькими рабочими стола�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871036.jpg" />
+  <img src="Z:/picture/008/save_picture_871036.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Q4OS 1.4.8 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864066.jpg" />
+  <img src="Z:/picture/008/save_picture_864066.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ ROSA Marathon 2012 RP2 (Enterprise Desktop X1) (Национальная про�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863503.jpg" />
+  <img src="Z:/picture/008/save_picture_863503.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ OSGeo-Live 9.0 (Дистрибутив для географов, картогр
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862661.jpg" />
+  <img src="Z:/picture/008/save_picture_862661.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Manjaro Linux 0.8.5 (Arch + lxde, kde, mate) [i686] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860789.jpg" />
+  <img src="Z:/picture/008/save_picture_860789.jpg" />
 </div>
 
 
@@ -234,7 +234,7 @@ Manjaro Linux 0.8.5 (Arch + lxde, kde, mate) [x86-64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860592.jpg" />
+  <img src="Z:/picture/008/save_picture_860592.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Foresight Linux 2.5.3 [x86, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860583.jpg" />
+  <img src="Z:/picture/008/save_picture_860583.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Scientific Linux 6.4 Live [i386] (DVD + 2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860219.jpg" />
+  <img src="Z:/picture/008/save_picture_860219.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Pear Linux 7.0 [amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859921.jpg" />
+  <img src="Z:/picture/008/save_picture_859921.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Scientific Linux 6.4 Live [x86-64] (DVD + 2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859818.jpg" />
+  <img src="Z:/picture/008/save_picture_859818.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Pinguy OS 14.04.4-1 [i686, x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853625.jpg" />
+  <img src="Z:/picture/008/save_picture_853625.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Kubuntu 13.04 Raring Ringtail [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852493.jpg" />
+  <img src="Z:/picture/008/save_picture_852493.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Xubuntu 13.04 [i386, amd64] (2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852490.jpg" />
+  <img src="Z:/picture/008/save_picture_852490.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Edubuntu 13.04 (Ubuntu для школ и вузов) [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852486.jpg" />
+  <img src="Z:/picture/008/save_picture_852486.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ CAE Linux 2018 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846138.jpg" />
+  <img src="Z:/picture/008/save_picture_846138.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Ubuntu Studio 13.04 [i386 + amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843330.jpg" />
+  <img src="Z:/picture/008/save_picture_843330.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Debian GNU/Linux 8.4.0 Jessie [amd64] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843124.jpg" />
+  <img src="Z:/picture/008/save_picture_843124.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Sabayon 13.04 (CoreCDX, HardenedServer, ServerBase, SpinBase) [x86, x86-64] (4xD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841564.jpg" />
+  <img src="Z:/picture/008/save_picture_841564.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841482.jpg" />
+  <img src="Z:/picture/008/save_picture_841482.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ JonDo 0.9.42 (Анонимный доступ в сети) [x86] (DVD, CD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841481.jpg" />
+  <img src="Z:/picture/008/save_picture_841481.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841466.jpg" />
+  <img src="Z:/picture/008/save_picture_841466.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Debian GNU/Linux 8.4.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841386.jpg" />
+  <img src="Z:/picture/008/save_picture_841386.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839988.jpg" />
+  <img src="Z:/picture/008/save_picture_839988.jpg" />
 </div>
 
 

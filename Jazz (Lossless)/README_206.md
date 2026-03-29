@@ -1,3 +1,119 @@
+###  Публикация: 1256032   (359278) от 20.10.2018
+
+Don Byas - Complete American Small Group Recordings (1944 - 1946) 4CD, 2001, Definitive Records [APE|Lossless|image + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359278.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Riffin' and Jivin' [2:57]
+02. Free and Easy [2:52]
+03. Worried 'N Blue [3:15](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 04:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F42E94EC9137C85FEB203F287FA0520A60BF57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255920   (359277) от 20.10.2018
+
+Trilok Gurtu - "Usfret" (1988) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shobharock (7:37)
+ 02. Shangri La / Usfret (13:02)
+ 03. Om (7:12)
+ 04. Deep Tri (7:03)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2028744CAE8415F625F48EDD10672FE1865A740D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255925   (359273) от 20.10.2018
+
+Evan Parker Electro-Acoustic Ensemble - The Eleventh Hour (2005) [FLAC|Lossless|tracks + .cue] <Jazz, Experimental, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow Play (17:29)
+ 02. The Eleventh Hour, Part 1 (12:52)
+ 03. The Eleventh Hour, Part 2 (9:33)
+ 04. The Eleventh Hour, Part 3 (12:03)(   Читать дальше...   )Жанр: Jazz, Experimental, Free ImprovisationПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024CE657311C4D0E32B643B608AA0BE40E77856E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328911   (359267) от 02.10.2019
+
+Paul Bley - The Complete Footloose (1962 - 1963) 1987, King Record [FLAC|Lossless|tracks + .cue] <Piano Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Floater [6:30]
+02. When Will the Blues Leave [6:12]
+03. Around Again [4:11]
+04. Stereophrenic [5:10](   Читать дальше...   )Жанр: Piano Jazz, Post-BopПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF18FE1804C05988D59EF03CF38DEC70E6E0E802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255924   (359185) от 20.10.2018
 
 Trilok Gurtu - Crazy Saints (1993) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
@@ -6,7 +122,7 @@ Trilok Gurtu - Crazy Saints (1993) [FLAC|Lossless|tracks + .cue] <Contemporary J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359185.jpg" />
+  <img src="Z:/picture/008/save_picture_359185.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Kenny Dorham - K.D. Is Here: New York City 1962 & 1966 (2016) Uptown Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358854.jpg" />
+  <img src="Z:/picture/008/save_picture_358854.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Sonny Stitt - Stitt Plays Bird (1963) 2003, Atlantic [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358853.jpg" />
+  <img src="Z:/picture/008/save_picture_358853.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Andrew Hill - Smoke Stack (1963) 1994, Toshiba-EMI [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358428.jpg" />
+  <img src="Z:/picture/008/save_picture_358428.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Tito Puente - The Best of Tito Puente: The Millennium Collection (1991 - 1999) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358419.jpg" />
+  <img src="Z:/picture/008/save_picture_358419.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bobby Jaspar - Modern Jazz Au Club Saint Germain (1955) 2011, Universal[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357380.jpg" />
+  <img src="Z:/picture/008/save_picture_357380.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Peggy Lee - Dream Street (1957) 1999, Universal[FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357378.jpg" />
+  <img src="Z:/picture/008/save_picture_357378.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Peggy Lee - Sea Shells (1958) 1999, Universal[FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357377.jpg" />
+  <img src="Z:/picture/008/save_picture_357377.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Kurt Elling - The Beautiful Day: Kurt Elling Sings Christmas (2016) Sony Music M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357338.jpg" />
+  <img src="Z:/picture/008/save_picture_357338.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Sam "The Man" Taylor - Sam Taylor Pops Daizen Shu (2003) [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357129.jpg" />
+  <img src="Z:/picture/008/save_picture_357129.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Benny Goodman - The Legendary Small Groups (1935 - 1938) 2003, BMG [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356906.jpg" />
+  <img src="Z:/picture/008/save_picture_356906.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Paul Bley - Solo (1989) Justin Time [FLAC|Lossless|tracks + .cue] <Avant-Garde J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356738.jpg" />
+  <img src="Z:/picture/008/save_picture_356738.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Brian Simpson - Something About You (2018) [FLAC|Lossless|image + .cue] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356673.jpg" />
+  <img src="Z:/picture/008/save_picture_356673.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Thad Jones - Mad Thad (1957) /1999, OJC/[FLAC|image+.cue]<Bop, Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356337.jpg" />
+  <img src="Z:/picture/008/save_picture_356337.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sonny Criss - The Joy Of Sax (1999) /Ars Nova/[APE|tracks+.cue]<Bop, Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356336.jpg" />
+  <img src="Z:/picture/008/save_picture_356336.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Ray Brown - Bass Hit! (1956) /1999, Verve/[FLAC|tracks+.cue]<Bop, Mainstream Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356332.jpg" />
+  <img src="Z:/picture/008/save_picture_356332.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Bill Evans - Spring Leaves (1959/1961) /2000, Milestone Records/[APE|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356331.jpg" />
+  <img src="Z:/picture/008/save_picture_356331.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Peter Guidi Qartet & Trio - Forbidden Flute (1999) Munich Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356269.jpg" />
+  <img src="Z:/picture/008/save_picture_356269.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Kurt Elling - Passion World (2015) /Concord/[FLAC|tracks+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356213.jpg" />
+  <img src="Z:/picture/008/save_picture_356213.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Tito Puente & His Orchestra - Live at the 1977 Monterey Jazz Festival (2008) Mon
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355906.jpg" />
+  <img src="Z:/picture/008/save_picture_355906.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Sam Gendel & Sam Wilkes - Music for Saxofone & Bass Guitar (2018) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355748.jpg" />
+  <img src="Z:/picture/008/save_picture_355748.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Zaz - Sur La Route (2015) [FLAC|Lossless|WEB-DL] <Nu Jazz, Chanson>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355462.jpg" />
+  <img src="Z:/picture/008/save_picture_355462.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Zaz - Sur La Route (2015) [FLAC|Lossless|WEB-DL] <Nu Jazz, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2DF367130545ACD4DE5C70D9179824FF0714ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072103   (355028) от 12.11.2016
-
-Miss Sophie Lee and The Parish Suites - Traverse This Universe (2016) Sophieleemusic[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You And Me (The Universe) [04:20]
- 02.That's When Your Heartaches Begin [04:22]
- 03.Someday [03:27]
- 04.A Safe Place [03:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE973B08B9A43A0C5465A9052274CB5B63B38A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072137   (355022) от 12.11.2016
-
-Carmen McRae - The Sound Of Silence & Portrait Of Carmen (1968) 2001,  Collectables Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Sound of Silence [03:02]
- 02.I Got It Bad and That Ain't Good [03:28]
- 03.MacArthur Park [04:02]
- 04.Watch What Happens [02:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48424F9556A7C43F92C6886392C5CF1CE2AF850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577586   (354828) от 19.09.2022
-
-Dave Liebman & Franco D'Andrea - Nine Again (1990) Red Record [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Leaves [7:46]
-02. Don't You Know the Time It Was [9:27]
-03. Caravan [9:12]
-04. Sweet Georgia Brown [4:50](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6B2F7D77CE4454FA10BACC9FD75E43E1966D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577736   (354649) от 19.09.2022
-
-V.A. - Smooth Jazz n Chill Vol. 7 (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Cole - Feelings
-02. Michael Broening - Summer In Blue
-03. Cindy Bradley - Love Yourself
-04. Mark Jaimes - Evenin'(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A457A05FBD3CBB09ACCD99066443F32210282FB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Electro Cocktail, Vol. 2 (2021) [AAC|~326 Kbps] <Lounge, Chill House, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788372.jpg" />
+  <img src="Z:/picture/008/save_picture_788372.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Electro Cocktail, Vol. 1 (2018) [AAC|~321 Kbps] <Lounge, Chill House, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788369.jpg" />
+  <img src="Z:/picture/008/save_picture_788369.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Squid Game (Original Soundtrack from the Netflix Series) (2021) [AAC|~285 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788359.jpg" />
+  <img src="Z:/picture/008/save_picture_788359.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788356.jpg" />
+  <img src="Z:/picture/008/save_picture_788356.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788301.jpg" />
+  <img src="Z:/picture/008/save_picture_788301.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788064.jpg" />
+  <img src="Z:/picture/008/save_picture_788064.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Chillout Explained (2021) [AAC|~289 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787955.jpg" />
+  <img src="Z:/picture/008/save_picture_787955.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Sunset in Africa, Vol. 1 (2020) [AAC|~322 Kbps] <House, Deep House, Organic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787954.jpg" />
+  <img src="Z:/picture/008/save_picture_787954.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Ibiza Winter Island 2022 (The Lounge Edition) (2021) [AAC|~326 Kbps] <Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787953.jpg" />
+  <img src="Z:/picture/008/save_picture_787953.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Nightflight New York, Vol. 2 (2015) [AAC|~328 Kbps] <Lounge, Chill Out, Smo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787952.jpg" />
+  <img src="Z:/picture/008/save_picture_787952.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Nightflight New York (2013) [AAC|~331 Kbps] <Lounge, Chill Out, Smooth Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787951.jpg" />
+  <img src="Z:/picture/008/save_picture_787951.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ VA - Sunset in Africa, Vol. 2 (2021) [AAC|~322 Kbps] <House, Deep House, Organic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787948.jpg" />
+  <img src="Z:/picture/008/save_picture_787948.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Chill Today, vol. 2 (2016) [AAC|~304 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787902.jpg" />
+  <img src="Z:/picture/008/save_picture_787902.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Chill Today, vol. 1 (2011) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787900.jpg" />
+  <img src="Z:/picture/008/save_picture_787900.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Chill Today, vol. 3 (2018) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787899.jpg" />
+  <img src="Z:/picture/008/save_picture_787899.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Chill Today, vol. 4 (2021) [AAC|~299 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787893.jpg" />
+  <img src="Z:/picture/008/save_picture_787893.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787808.jpg" />
+  <img src="Z:/picture/008/save_picture_787808.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787620.jpg" />
+  <img src="Z:/picture/008/save_picture_787620.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787618.jpg" />
+  <img src="Z:/picture/008/save_picture_787618.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787563.jpg" />
+  <img src="Z:/picture/008/save_picture_787563.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787549.jpg" />
+  <img src="Z:/picture/008/save_picture_787549.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787531.jpg" />
+  <img src="Z:/picture/008/save_picture_787531.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787495.jpg" />
+  <img src="Z:/picture/008/save_picture_787495.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787454.jpg" />
+  <img src="Z:/picture/008/save_picture_787454.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787452.jpg" />
+  <img src="Z:/picture/008/save_picture_787452.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ VA - Soundbar Deluxe Chill Lounge, Vol. 3 (2017) [AAC|~329 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787391.jpg" />
+  <img src="Z:/picture/008/save_picture_787391.jpg" />
 </div>
 
 

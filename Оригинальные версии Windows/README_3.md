@@ -6,7 +6,7 @@ Microsoft Windows 11 [10.0.22000.493], Version 21H2 (Updated February 2022) - О
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720143.jpg" />
+  <img src="Z:/picture/008/save_picture_720143.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 201
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689681.jpg" />
+  <img src="Z:/picture/008/save_picture_689681.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Microsoft Windows 10.0.17763.316 Enterprise LTSC Version 1809 (Updated March 201
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687717.jpg" />
+  <img src="Z:/picture/008/save_picture_687717.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Microsoft Windows 10.0.19042.1586, Version 20H2 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669178.jpg" />
+  <img src="Z:/picture/008/save_picture_669178.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Microsoft Windows 10.0.19043.1586, Version 21H1 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669092.jpg" />
+  <img src="Z:/picture/008/save_picture_669092.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Microsoft Windows 10.0.19042.1586, Version 20H2 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669084.jpg" />
+  <img src="Z:/picture/008/save_picture_669084.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Microsoft Windows 10.0.19043.1586, Version 21H1 (Updated March 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668976.jpg" />
+  <img src="Z:/picture/008/save_picture_668976.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Microsoft Windows 10.0.19044.1586, Version 21H2 (Updated March 2022)  - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668966.jpg" />
+  <img src="Z:/picture/008/save_picture_668966.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Microsoft Windows 11 [10.0.22000.556], Version 21H2 (Updated March 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668717.jpg" />
+  <img src="Z:/picture/008/save_picture_668717.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ Microsoft Windows 10.0.19044.1526, Version 21H2 (Updated February 2022)  - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666281.jpg" />
+  <img src="Z:/picture/008/save_picture_666281.jpg" />
 </div>
 
 
@@ -284,7 +284,7 @@ Microsoft Windows 7 SP1 Updated (12.05.2011) - Оригинальные обра
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657452.jpg" />
+  <img src="Z:/picture/008/save_picture_657452.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ Microsoft Windows 7 Enterprise with SP1 x86 Updated (12.05.2011) - Оригин�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640940.jpg" />
+  <img src="Z:/picture/008/save_picture_640940.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Microsoft Windows 10.0.19042.1645, Version 20H2 (Updated April 2022) - Ориг�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614689.jpg" />
+  <img src="Z:/picture/008/save_picture_614689.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Microsoft Windows 11 [10.0.22000.613], Version 21H2 (Updated April 2022) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612552.jpg" />
+  <img src="Z:/picture/008/save_picture_612552.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Microsoft Windows 10.0.19044.1645, Version 21H2 (Updated April 2022)  - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612551.jpg" />
+  <img src="Z:/picture/008/save_picture_612551.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Microsoft Windows 10.0.19043.1706, Version 21H1 (Updated May 2022) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589349.jpg" />
+  <img src="Z:/picture/008/save_picture_589349.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Microsoft Windows 10.0.19043.1706, Version 21H1 (Updated May 2022) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589270.jpg" />
+  <img src="Z:/picture/008/save_picture_589270.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Microsoft Windows 10 Home Single Language 10.0.14393 Version 1607 - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587071.jpg" />
+  <img src="Z:/picture/008/save_picture_587071.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Microsoft Windows 10 Home Single Language 10.0.14393 Version 1607 - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587070.jpg" />
+  <img src="Z:/picture/008/save_picture_587070.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Microsoft Windows 10 Enterprise 2016 LTSB 10.0.14393 Version 1607 (x64) [En] WZT
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582122.jpg" />
+  <img src="Z:/picture/008/save_picture_582122.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Microsoft Windows 10 Enterprise 2016 LTSB 10.0.14393 Version 1607 - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579039.jpg" />
+  <img src="Z:/picture/008/save_picture_579039.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Microsoft Windows 10 Enterprise N 2016 LTSB 10.0.14393 Version 1607 - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579036.jpg" />
+  <img src="Z:/picture/008/save_picture_579036.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Microsoft Windows 10 Enterprise 2016 LTSB 10.0.14393 Version 1607 - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579033.jpg" />
+  <img src="Z:/picture/008/save_picture_579033.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Microsoft Windows Embedded 8.1 Enterprise x86 with Update 3 - Оригиналь
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569527.jpg" />
+  <img src="Z:/picture/008/save_picture_569527.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Microsoft Windows Embedded 8.1 Enterprise x64 with Update 3 - Оригиналь
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569510.jpg" />
+  <img src="Z:/picture/008/save_picture_569510.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x64) WZT [He]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565908.jpg" />
+  <img src="Z:/picture/008/save_picture_565908.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ HDCleaner 1.292 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842973.jpg" />
+  <img src="Z:/picture/008/save_picture_842973.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Torch Browser 69.2.0.1704 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842962.jpg" />
+  <img src="Z:/picture/008/save_picture_842962.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ ReviverSoft PC Reviver 2.6.3.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842928.jpg" />
+  <img src="Z:/picture/008/save_picture_842928.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Simple VHD Manager 1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842914.jpg" />
+  <img src="Z:/picture/008/save_picture_842914.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ ORPALIS PaperScan Professional 3.0.103 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842909.jpg" />
+  <img src="Z:/picture/008/save_picture_842909.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Internet Download Manager 6.37 Build 11 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842893.jpg" />
+  <img src="Z:/picture/008/save_picture_842893.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ SUMo Pro 5.10.16.455 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842891.jpg" />
+  <img src="Z:/picture/008/save_picture_842891.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ SQL Dynamite 2.5.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842882.jpg" />
+  <img src="Z:/picture/008/save_picture_842882.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ R-Studio 7.8 Build 161189 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842850.jpg" />
+  <img src="Z:/picture/008/save_picture_842850.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Slimjet 13.0.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842838.jpg" />
+  <img src="Z:/picture/008/save_picture_842838.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Cakewalk SONAR Platinum 23.2.0 Build 45 (2017.02) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842834.jpg" />
+  <img src="Z:/picture/008/save_picture_842834.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Xinorbis 8.0.6 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842833.jpg" />
+  <img src="Z:/picture/008/save_picture_842833.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ O&O ShutUp10 1.4.1387 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842832.jpg" />
+  <img src="Z:/picture/008/save_picture_842832.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Inkscape 0.92.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842821.jpg" />
+  <img src="Z:/picture/008/save_picture_842821.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ YouTube By Click Premium 2.2.127 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842804.jpg" />
+  <img src="Z:/picture/008/save_picture_842804.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ LosslessCut 3.21.0 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842798.jpg" />
+  <img src="Z:/picture/008/save_picture_842798.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Multi Commander Full Edition 9.7 Build 2590 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842791.jpg" />
+  <img src="Z:/picture/008/save_picture_842791.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Opera 11.10 build 2040 Alpha [Мультиязычный (русский при�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842747.jpg" />
+  <img src="Z:/picture/008/save_picture_842747.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Reg Organizer 7.35 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842730.jpg" />
+  <img src="Z:/picture/008/save_picture_842730.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ System Ninja 3.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842725.jpg" />
+  <img src="Z:/picture/008/save_picture_842725.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ PDF-XChange Viewer Pro 2.5.321.0 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842705.jpg" />
+  <img src="Z:/picture/008/save_picture_842705.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ mp3DirectCut 2.23 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842704.jpg" />
+  <img src="Z:/picture/008/save_picture_842704.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ mp3DirectCut 2.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842696.jpg" />
+  <img src="Z:/picture/008/save_picture_842696.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Punto Switcher 4.3.6 Build 1853 Final RePack by elchupacabra [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842691.jpg" />
+  <img src="Z:/picture/008/save_picture_842691.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Hard Disk Sentinel Pro 5.00 Build 8557 Final RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842689.jpg" />
+  <img src="Z:/picture/008/save_picture_842689.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ PDF-XChange Editor Plus 6.0.321.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842687.jpg" />
+  <img src="Z:/picture/008/save_picture_842687.jpg" />
 </div>
 
 

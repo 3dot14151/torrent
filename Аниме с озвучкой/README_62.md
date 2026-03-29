@@ -1,3 +1,29 @@
+###  Публикация: 1771591   (31707) от 07.01.2025
+
+Atri: My Dear Moments | Atri -My Dear Moments- | Атри [2024, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31707.jpg" />
+</div>
+
+
+###  Подробнее
+
+В будущем большая часть цивилизации уступила натиску поднимающегося океана. Потерявший в результате несчастного случая ногу Нацуки живёт в старом катере бабушки, безуспешно пытаясь расплатиться с долгами. Однажды, спустившись под воду на батискафе в поисках сокровищ, он обнаруживает капсулу с роботом, удивительно похожим на человека.Производство: TroycaЖанр: приключенияРежиссер: Като МакотоЯзык озвучки: Японский, русский (Anilibria, Studio Band, AniDub Online)Субтитры: Русские, английские (Crunchyroll)Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC07C0033B3B8FA406FCD44FE0AC10AC79291891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750704   (31690) от 07.01.2025
 
 Blue Lock | Синяя тюрьма: Блю Лок [ТВ-1] [2022, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +32,7 @@ Blue Lock | Синяя тюрьма: Блю Лок [ТВ-1] [2022, TV, 24 из 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31690.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31655.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31204.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ Black Clover (2017) | Чёрный клевер [ТВ-1] [2017, TV, 170 эп. + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29198.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEB-DL 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29197.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ Ji Jia Shou Shen: Baolie Feiche 5 | Screechers Wild 5! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28919.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28685.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 из 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27657.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26747.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Паре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26051.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25941.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Kikansha no Mahou wa Tokubetsu Desu | A Returner's Magic Should Be Special | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25662.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ Isekai Shoukan wa Nidome Desu | Summoned to Another World for a Second Time | П
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25646.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ Gekijouban Spy x Family Code: White | Spy x Family Code: White | Семья шп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25642.jpg" />
 </div>
 
 
@@ -383,7 +409,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25614.jpg" />
 </div>
 
 
@@ -409,7 +435,7 @@ Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25325.jpg" />
 </div>
 
 
@@ -435,7 +461,7 @@ Beyblade Burst Super King | Beyblade Burst Sparking | Бейблэйд Взры�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25224.jpg" />
 </div>
 
 
@@ -464,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24974.jpg" />
 </div>
 
 
@@ -491,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24972.jpg" />
 </div>
 
 
@@ -517,7 +543,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24622.jpg" />
 </div>
 
 
@@ -543,7 +569,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki 2 | How a Realist Hero Rebuilt the King
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24413.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24315.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23996.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi | Истoрия o сл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23925.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta | Kura-Kon | Я жени
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23789.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta | Kura-Kon | Я жени
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:118DC43FF7DAD5FEC4B99126FC901C7F8C230401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786107   (23329) от 27.03.2025
-
-Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифицирован по жизни [2024, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давно разочаровавшийся в жизни японский писатель, по-булгаковски именующий себя Мастером, в очередной раз пытается покончить с собой, да не один, а вместе со своей верной подругой, но вместо Царства Смерти попадает в мир меча и магии. Теперь единственной целью этого склонного к самоубийству циника становиться узнать, что стало с его подругой, после чего он планирует (   Читать дальше...   )Производство: Atelier PontdarcЖанр: приключения, комедия, фэнтезиРежиссер: Кавай СигэкиЯзык озвучки: Японский, русский (ТО Дубляжная, AniLibria, Studio Band)Субтитры: Русские (Crunchyroll)Продолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5481012C8DAAF1DA3362F2AF564997C5DAE5325E
 ```
 
 https://mybot314.ru/tekegram_catalog/

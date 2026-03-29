@@ -1,3 +1,29 @@
+###  Публикация: 1227042   (650054) от 24.05.2018
+
+Олег Гор | Просветленные видят в темноте. Как превратить поражение в победу (2018) [PDF]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнесмен Олег Гор вновь встретился с темной стороной бытия, когда привычная жизнь дала трещину. В одночасье он потерял все, что имел: налаженный бизнес, комфортное жилье, накопления, статус и друзей... и стал объектом внимания тайских бандитов. Самое время впасть в отчаяние, опустить руки и забыть о всякой духовности... Но не тут-то было! На помощь автору в кризисной (   Читать дальше...   )Жанр: Эзотерика, парапсихология, тайеыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F718B89BFC0DA8DACBECE85B4F0B6A781513A6CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292103   (648513) от 28.03.2019
 
 Фрейя Асвинн | Руны и сила женщины. Тайны северных мистерий (2019) [PDF]
@@ -6,7 +32,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648513.jpg" />
+  <img src="Z:/picture/008/save_picture_648513.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648043.jpg" />
+  <img src="Z:/picture/008/save_picture_648043.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647313.jpg" />
+  <img src="Z:/picture/008/save_picture_647313.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647134.jpg" />
+  <img src="Z:/picture/008/save_picture_647134.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646492.jpg" />
+  <img src="Z:/picture/008/save_picture_646492.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646423.jpg" />
+  <img src="Z:/picture/008/save_picture_646423.jpg" />
 </div>
 
 
@@ -169,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644977.jpg" />
+  <img src="Z:/picture/008/save_picture_644977.jpg" />
 </div>
 
 
@@ -197,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644957.jpg" />
+  <img src="Z:/picture/008/save_picture_644957.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641143.jpg" />
+  <img src="Z:/picture/008/save_picture_641143.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640887.jpg" />
+  <img src="Z:/picture/008/save_picture_640887.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639488.jpg" />
+  <img src="Z:/picture/008/save_picture_639488.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637275.jpg" />
+  <img src="Z:/picture/008/save_picture_637275.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637043.jpg" />
+  <img src="Z:/picture/008/save_picture_637043.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632476.jpg" />
+  <img src="Z:/picture/008/save_picture_632476.jpg" />
 </div>
 
 
@@ -382,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631876.jpg" />
+  <img src="Z:/picture/008/save_picture_631876.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631719.jpg" />
+  <img src="Z:/picture/008/save_picture_631719.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631716.jpg" />
+  <img src="Z:/picture/008/save_picture_631716.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631581.jpg" />
+  <img src="Z:/picture/008/save_picture_631581.jpg" />
 </div>
 
 
@@ -488,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631546.jpg" />
+  <img src="Z:/picture/008/save_picture_631546.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629780.jpg" />
+  <img src="Z:/picture/008/save_picture_629780.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629136.jpg" />
+  <img src="Z:/picture/008/save_picture_629136.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629086.jpg" />
+  <img src="Z:/picture/008/save_picture_629086.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627951.jpg" />
+  <img src="Z:/picture/008/save_picture_627951.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627622.jpg" />
+  <img src="Z:/picture/008/save_picture_627622.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627515.jpg" />
+  <img src="Z:/picture/008/save_picture_627515.jpg" />
 </div>
 
 
@@ -658,34 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B80736C7CCFAE5F03CC92DD7243A959A0F8CCB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144043   (627228) от 22.06.2017
-
-Петра Бурлан, Пётр Бурлан | Симорон из первых рук, или Бурлан-до. Как достичь того, чего достичь невозможно (2008) [DJVU]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами книга о самой загадочной из существующих психотехнологий. О безотказном инструменте под названием «СИМОРОН (БУРЛАН-ДО)», над причиной поразительной эффективности которого ломают головы многие. Кроме тех, кто просто берёт и пользуется этим инструментом, придуманным два десятилетия назад киевскими исследователями Петрой и Петром Бурланами.
-
-Их сотни тысяч, (   Читать дальше...   )Жанр: Психология развитияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1620D22310FA1331DF06AD7C2B99E6D6CADA1378
 ```
 
 https://mybot314.ru/tekegram_catalog/

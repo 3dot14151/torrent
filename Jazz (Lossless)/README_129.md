@@ -1,3 +1,119 @@
+###  Публикация: 1145736   (619993) от 26.06.2017
+
+Keith Jarrett - Standards, Vol. 2 (1983) Remaster, 1985, ECM Records [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Tender (7:15)
+02. Moon And Sand (8:54)
+03. In Love In Vain (7:06)
+04. Never Let Me Go (7:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108E3C543FB4EB7B1A9E791FF871F388789D39C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910758   (619975) от 21.06.2015
+
+Tommy Flanagan - Let's: play the Music of Thad Jones (1993) /2005, Enja/[FLAC|tracks+.cue]<Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's [05:35]
+02. Mean What You Say [05:41]
+03. To You [03:37]
+04. Bird Song [05:31](   Читать дальше...   )Жанр: Jazz, Post-Bop, Piano JazzПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2ABFC108C450BA58FA8DB122669615473F5C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145727   (619678) от 26.06.2017
+
+Diana Krall - Turn Up the Quiet (2017) Japan, SHM-CD [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone In Love
+02. Isn't It Romantic
+03. L-O-V-E
+04. Night And Day(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F84FB9516697D8AC43AAED30311F71DBFDF4F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036587   (619335) от 21.07.2016
+
+Warren Bernhardt Trio - Ain't Life Grand (1990) Digital Music Products[FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sara's Touch [07:03]
+ 02.Blue Lake [06:13]
+ 03.Ain't Life Grand [04:38]
+ 04.Sweet Gardenia [05:50](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5297544F4A3D914B57AD62F62538AAB0C6B6345D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036820   (619146) от 21.07.2016
 
 VA - When the Saints Go Marching in: Jazz Greatest (2005) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -6,7 +122,7 @@ VA - When the Saints Go Marching in: Jazz Greatest (2005) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619146.jpg" />
+  <img src="Z:/picture/008/save_picture_619146.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Betty Carter - Social Call (1955, 1956) 2016, Sony Music [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619076.jpg" />
+  <img src="Z:/picture/008/save_picture_619076.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Club Des Belugas - Ragbag (2018) [FLAC|Lossless|image + .cue] <Swing-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618973.jpg" />
+  <img src="Z:/picture/008/save_picture_618973.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Carlos Martins - Passagem (1996) Enja Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618858.jpg" />
+  <img src="Z:/picture/008/save_picture_618858.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Charlie Byrd - Bossa Nova Pelos Passaros (1962-1963) /2002, Riverside/[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618495.jpg" />
+  <img src="Z:/picture/008/save_picture_618495.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Duke Ellington - Live in Zurich, Switzerland 2.5.1950 (2007) [FLAC|tracks]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618489.jpg" />
+  <img src="Z:/picture/008/save_picture_618489.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Albert Sanz Trio - O Que Sera (2012) Nuba Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618353.jpg" />
+  <img src="Z:/picture/008/save_picture_618353.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ The Joe Newman Septet - The Midgets (1956) 1998, BMG Music [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618242.jpg" />
+  <img src="Z:/picture/008/save_picture_618242.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ The Modern Jazz Quartet - Fontessa - The Little Comedy (1960) Remaster, 1996, Gi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618229.jpg" />
+  <img src="Z:/picture/008/save_picture_618229.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Rita Reys - The Real… Rita Reys (The Ultimate Collection) (2017) 3CD [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618225.jpg" />
+  <img src="Z:/picture/008/save_picture_618225.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Wynton Marsalis - Black Codes (From The Underground) (1985) [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617977.jpg" />
+  <img src="Z:/picture/008/save_picture_617977.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Harold Ashby - On The Sunny Side Of The Street (1992) Remaster, 2015, Solid Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617457.jpg" />
+  <img src="Z:/picture/008/save_picture_617457.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sadao Watanabe - Swiss Air (1975) Remaster, 2014, Sony Music[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617456.jpg" />
+  <img src="Z:/picture/008/save_picture_617456.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Jimmy Smith - Respect & Livin' It Up (1967, 1968) 2010, Verve[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617279.jpg" />
+  <img src="Z:/picture/008/save_picture_617279.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ B.T. Express - Do It ('Til You're Satisfied) (1990) [FLAC|Lossless]<Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_617203.jpg" />
+  <img src="Z:/picture/005/save_picture_617203.jpg" />
 </div>
 
 
@@ -446,7 +562,7 @@ Ellis Marsalis - Duke In Blue (1999) Columbia [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617093.jpg" />
+  <img src="Z:/picture/008/save_picture_617093.jpg" />
 </div>
 
 
@@ -475,7 +591,7 @@ Patricia Barber - Higher (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616917.jpg" />
+  <img src="Z:/picture/008/save_picture_616917.jpg" />
 </div>
 
 
@@ -504,7 +620,7 @@ Budapest Ragtime Band - Caravan (1994) BRB Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616698.jpg" />
+  <img src="Z:/picture/008/save_picture_616698.jpg" />
 </div>
 
 
@@ -533,7 +649,7 @@ Illinois Jacquet - The Blues; That's Me! (1969) /2000, Original Jazz Classics/[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616570.jpg" />
+  <img src="Z:/picture/008/save_picture_616570.jpg" />
 </div>
 
 
@@ -562,7 +678,7 @@ Gilberto Gil - Sao Joao Vivo  (2001) 2002, Warner Music Brasil [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616500.jpg" />
+  <img src="Z:/picture/008/save_picture_616500.jpg" />
 </div>
 
 
@@ -591,7 +707,7 @@ Ornette Coleman - Skies Of America (1972) /2014, Columbia/[FLAC|tracks+.cue]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616442.jpg" />
+  <img src="Z:/picture/008/save_picture_616442.jpg" />
 </div>
 
 
@@ -620,7 +736,7 @@ Eartha Kitt - The Real... Eartha Kitt (The Ultimate Collection) (2015) 3CD [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616351.jpg" />
+  <img src="Z:/picture/008/save_picture_616351.jpg" />
 </div>
 
 
@@ -634,122 +750,6 @@ Eartha Kitt - The Real... Eartha Kitt (The Ultimate Collection) (2015) 3CD [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55FA1BBF24C91A991D950D886A69EFD3644D7585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037061   (615743) от 23.07.2016
-
-Celine Bonacina Crystal Quartet - Crystal Rain (2016) [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smiles for Serious People (7:36)
-02. Cyclone (2:12)
-03. Child's Mood (7:51)
-04. Crystal Rain (4:58)(   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9160254CD2FC1BF6BC3A6F75AAB2516170828A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037045   (615742) от 23.07.2016
-
-Carla Cook - Dem Bones (2001) [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The More I See You (4:53)
-02. Like A Lover (6:42)
-03. Oh Gee (4:13)
-04. Dem Bones (6:55)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4590F1E3B3C0071BF6D3B7BFF0BC3CB38B40CA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230255   (615709) от 12.06.2018
-
-Chet Baker And Crew (1956, 1959) 2CD, 2018, Jazz Images [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615709.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tabu [5:40]
-02. Halema [3:54]
-03. To Mickey's Memory [5:16](   Читать дальше...   )Жанр: CoolПродолжительность: 01:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59FB2A5D6644720611BDE54B0B15264D6218456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036936   (615675) от 23.07.2016
-
-Laurindo Almeida - Guitar From Ipanema (1964) Japan Edition, 2011, Capitol / EMI [FLAC|Lossless|image + .cue] <Jazz, World Fusion, Brazilian Traditions>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girl from Ipanema    02:20
-02. Manha de Carnaval    03:10
-03. Sarah's Samba    02:08
-04. Winter Moon    02:59(   Читать дальше...   )Жанр: Jazz, World Fusion, Brazilian TraditionsПродолжительность: 00:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E0117801AF2CADFE1EE31A442AC35B9DA825A76
 ```
 
 https://mybot314.ru/tekegram_catalog/

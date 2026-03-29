@@ -1,3 +1,115 @@
+###  Публикация: 1098644   (567096) от 22.07.2017
+
+PDF Squeezer 3.7.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567096.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF-компрессор предназначен для сокращения размеров файлов больших PDF-документов.
+Приложение позволяет сжимать размеры PDF-документов путем сжатия изображений и удаления ненужной информации. Это позволит получить хороший компромисс между параметрами широкополосной сети, необходимым временем передачи файлов по сети и затратами на хранение цифрового контента.
+
+Особенности: (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июля 2017Разработчик: Daniel DienerПоддерживаемая ОС: OS X 10.9.5 +Язык интерфейса: Русский, Английский, Испанский, Итальянский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2818163B3D5860D170CDC90A2E7E55749CFE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152131   (566681) от 22.07.2017
+
+ConceptDraw Office 4.0.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566681.jpg" />
+</div>
+
+
+###  Подробнее
+
+ConceptDraw Office – пакет приложений для бизнес-продуктивности, разработанный компанией CS Odessa .
+Пакет ConceptDraw Office включает в себя инструменты для создания и обработки интеллект-карт (mind map), программное обеспечение для управления проектами, и графический редактор для создания бизнес–графики.
+Приложения в составе ConceptDraw Office поддерживают авторскую (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: CS Odessa Corp.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844E6F89DEDB0924CD4C9E7EC0E4F5401A5B2506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152533   (565678) от 23.07.2017
+
+Kiwi for Gmail 2.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kiwi для Gmail 2.0 объединяет все G Suite (ранее Google Apps) с Gmail в качестве центральной части. Мы превращаем Gmail и остальную часть G Suite в полноценный настольный клиент, который берет все, что вы знаете и любите Gmail и такие приложения, как Документы, Таблицы и Презентации, и добавляете замечательные новые функции - в том числе возможность упростить вашу (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.07.2017Разработчик: Zive, Inc.Поддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D746E1EB5243CE34485A1B72B18A12E9DA8215EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147343   (565672) от 23.07.2017
+
+File Cabinet Pro 4.2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_565672.jpg" />
+</div>
+
+
+###  Подробнее
+
+File Cabinet Pro  - менеджер документов из строки меню
+Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
+
+Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 июля 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25105CB4E9E98C4A5DA1D2135643D8CA8F1BE3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044677   (565655) от 20.08.2016
 
 goPanel 1.5.1 [En]
@@ -6,7 +118,7 @@ goPanel 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565655.jpg" />
+  <img src="Z:/picture/008/save_picture_565655.jpg" />
 </div>
 
 
@@ -35,7 +147,7 @@ SpamSieve 2.9.36 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565541.jpg" />
+  <img src="Z:/picture/008/save_picture_565541.jpg" />
 </div>
 
 
@@ -63,7 +175,7 @@ One Chat - All in one Messenger 3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565478.jpg" />
+  <img src="Z:/picture/008/save_picture_565478.jpg" />
 </div>
 
 
@@ -92,7 +204,7 @@ Beyond Compare 4.1.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565344.jpg" />
+  <img src="Z:/picture/008/save_picture_565344.jpg" />
 </div>
 
 
@@ -121,7 +233,7 @@ Polarr Photo Editor Pro 5.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565273.jpg" />
+  <img src="Z:/picture/008/save_picture_565273.jpg" />
 </div>
 
 
@@ -149,7 +261,7 @@ Disk Doctor: System Cleaner 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565258.jpg" />
+  <img src="Z:/picture/008/save_picture_565258.jpg" />
 </div>
 
 
@@ -178,7 +290,7 @@ CloudTV 3.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565143.jpg" />
+  <img src="Z:/picture/008/save_picture_565143.jpg" />
 </div>
 
 
@@ -205,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564863.jpg" />
+  <img src="Z:/picture/008/save_picture_564863.jpg" />
 </div>
 
 
@@ -233,7 +345,7 @@ Coda 2.5.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564344.jpg" />
+  <img src="Z:/picture/008/save_picture_564344.jpg" />
 </div>
 
 
@@ -260,7 +372,7 @@ Adobe Muse CC 2015.0.2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564156.jpg" />
+  <img src="Z:/picture/008/save_picture_564156.jpg" />
 </div>
 
 
@@ -287,7 +399,7 @@ Carbon Copy Cloner 4.1.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563606.jpg" />
+  <img src="Z:/picture/008/save_picture_563606.jpg" />
 </div>
 
 
@@ -316,7 +428,7 @@ World Clock 1.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563572.jpg" />
+  <img src="Z:/picture/008/save_picture_563572.jpg" />
 </div>
 
 
@@ -345,7 +457,7 @@ CodeRunner 2.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563443.jpg" />
+  <img src="Z:/picture/008/save_picture_563443.jpg" />
 </div>
 
 
@@ -374,7 +486,7 @@ SSH Config Editor 1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563296.jpg" />
+  <img src="Z:/picture/008/save_picture_563296.jpg" />
 </div>
 
 
@@ -403,7 +515,7 @@ SonicWeb Internet Radio Player 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563294.jpg" />
+  <img src="Z:/picture/008/save_picture_563294.jpg" />
 </div>
 
 
@@ -429,7 +541,7 @@ VueScan Pro 9.5.55 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563245.jpg" />
+  <img src="Z:/picture/008/save_picture_563245.jpg" />
 </div>
 
 
@@ -455,7 +567,7 @@ Wondershare Filmora 8.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563152.jpg" />
+  <img src="Z:/picture/008/save_picture_563152.jpg" />
 </div>
 
 
@@ -484,7 +596,7 @@ FontExplorer X Pro 5.0.1 (11502) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562631.jpg" />
+  <img src="Z:/picture/008/save_picture_562631.jpg" />
 </div>
 
 
@@ -511,7 +623,7 @@ Dreamfall Chapters Book 1-2-3 v. 1.0 (2014) [Multi] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562562.jpg" />
+  <img src="Z:/picture/008/save_picture_562562.jpg" />
 </div>
 
 
@@ -537,7 +649,7 @@ iA Writer 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562143.jpg" />
+  <img src="Z:/picture/008/save_picture_562143.jpg" />
 </div>
 
 
@@ -564,7 +676,7 @@ MWeb: Markdown writing, note taking, static blog generator 3.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562087.jpg" />
+  <img src="Z:/picture/008/save_picture_562087.jpg" />
 </div>
 
 
@@ -591,7 +703,7 @@ Sketch 51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562049.jpg" />
+  <img src="Z:/picture/008/save_picture_562049.jpg" />
 </div>
 
 
@@ -603,113 +715,6 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D06118F35483275A52FBA6D391B97E56D4D7852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304678   (561980) от 27.05.2019
-
-Final Draft 11 v11.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Final Draft — профессиональная программа для написания сценариев для фильмов, телевизионных шоу и спектаклей.
-Программа представляет из себя многооконный текстовый процессор с массой специализированных под написание сценариев возможностей.
-Для использования программы вам совершенно не требуется знать правила оформления сценариев — Final Draft автоматически преобразует (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.05.2019Разработчик: Cast & Crew Production Software, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5804F2DA02124EDC086F650A56646D996827DFC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304583   (561972) от 27.05.2019
-
-Artpaper: new daily wallpapers 3.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Artpaper освежит ваш рабочий стол, принеся на него 1000 картин из лучших галерей.Тип издания: macOS SoftwareРелиз состоялся: 23.05.2019Разработчик: Twopeople Software LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:121A70A36E52E5917D8770F9AC4479AA619C899D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045221   (561820) от 22.08.2016
-
-3DWeather 1.9.8 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561820.jpg" />
-</div>
-
-
-###  Подробнее
-
-3DWeather- впечатляющий информер погоды, который показывает информацию о погоде в удивительном стиле. 3D анимационный виджет на рабочем столе создает живописное представление о состоянии текущей погоды. Можно  скрыть виджет и получить доступ к приложению из строки меню. Очень легко и быстро получить последние обновления информации о погоде и прогноз погоды на каждый (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19.08.2016Разработчик: InspiringLife.coПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37E4959721ED42EDE02F2CEBEBA35E766FB6D910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153043   (561757) от 25.07.2017
-
-Hedge 1.8.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Резервное копирование и проверка файлов
-Есть много вариантов, когда речь заходит об утилитах копирования и проверки. Одна из новейших программ, называется Hedge For Mac. Hedge For Mac позволяет пользователю создавать несколько резервных копий своих мультимедийных носителей и полностью проверять эти копии. Программа использует очень простой пользовательский интерфейс, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: hedgeformacПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7437475CAE50912CC8B2B9010DEF96F11128F00
 ```
 
 https://mybot314.ru/tekegram_catalog/

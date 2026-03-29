@@ -1,3 +1,172 @@
+###  Публикация: 483390   (88983) от 17.04.2012
+
+Первая передача на НТВ. Автомобильная передача. Выпуск №77 (15.04.2012) SATRip (Аналог передачи «Главная дорога»)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88983.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается о приобретении собственного авто, ждут ответы на самые актуальные вопросы.
+  К сожалению, мало кто из автовладельцев может похвастаться тем, что ни разу не попадал в неприятные ситуации. И речь не только о ДТП: некачественное обслуживание и сервис, подставы на дорогах и прочие неприятности — у большинства найдется несколько подобных историй в запасе.                      Всегда ли мы знаем, как вести себя в таких случаях? «Первая передача» не только расскажет о типичных проблемах автовладельцев, но и поможет их решить. С кого требовать возмещение ущерба, если вы попали в яму на дороге? Что делать, если вас обманули в автосалоне? Как заставить заплатить за ремонт, если (   Читать дальше...   )Жанр: АвтопередачаРежиссер: Андрей ЩитовПродолжительность: ~ 00:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AC551628BD158EF88E5E4ECC7237684C2DF4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484479   (88975) от 17.04.2012
+
+Вечерний Ургант. Выпуск №2 (2012.04.17) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FDFE53E434728CB35947ECC07A07A04E8E63C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483982   (88952) от 17.04.2012
+
+Секретная операция в Филадельфии: Собачьи бои / Covert Action in Philadelphia: Dog fightin (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полицейские совместно с инспекторами ОЗЖ Филадельфии тайно следят за воротилами незаконного бизнеса собачьих боёв.Жанр: Документальный, ТелепередачаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7277CCA4695B6498D341ADB061688A0B358A5E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484128   (88806) от 16.04.2012
+
+Вечерний Ургант. Выпуск №1 (2012.04.16) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергЖанр: ТВ-ШоуПродолжительность: ~ 00:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF87FE368F1F32AE2058DEF03547306BEA7EC8F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483021   (88378) от 14.04.2012
+
+Формула 1. Сезон 2012. Этап 3. Гран-при Китая. Квалификация (Эфир 14.04.2012) HDTVRip [720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этап чемпионата Formula 1 (F1) состоит из трёх свободных заездов, квалификации (3 сегмента) и гонки.
+Места пилотов на стартовой решётке (старт с места) определяются по итогам квалификации.
+Зачётные очки начисляются первым 10 пилотам по системе "25–18–15–12–10–8–6–4–2–1".Жанр: СпортТелекомпания: Спорт 1 HDПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480355   (88017) от 12.04.2012
+
+Lichtmond (2010) BDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающее путешествие в фэнтези, в лучах лунного света через волшебные звуки. Погрузитесь в неординарную музыку и пусть ваши FullHD экраны превратятся на один час в двери сказочных миров, которые до селе Вам не приходилось видеть, но наверняка вы мечтали о них. Это удивительное Blu-ray издание, с уникальным звуковым рядом, как по качеству так и по наполнению невиданной красоты видеорядом футуристических 3D миров. Ни в коем случае не пропустите этот диск, пусть он наполнит Ваш дом, яркими красками и высококачественным божественным звучанием произведений Giorgio и Martin Koppehele.
+Братья Koppehele, авторы пользующиеся заслуженной популярностью среди любителей многоканальной музыки, и не только, представляют новый проект - "Lichtmond" ("Лунный свет"). Альбом в стиле эмбиент-поп, выпущен на трех носителях: CD, DVD и Blu-ray. На DVD содержится 5.1-канальное аудио; на Blu-ray - 7.1; 5.1; PCM-2.0 и видео высокого разрешения. Визуальная часть на DVD и BD представляет собой анимацию испанского художника-мультипликатора (   Читать дальше...   )01. Erwachen
+02. Morgenrot
+03. Philosophy of Love
+04. Fruhlingstanzerin
+05. Wenn des Mondes Strahl
+06. Der Orangenzweig
+07. Ich und Du
+08. Sounds of Distance
+09. Sonnenlicht
+10. Shine on me(   Читать дальше...   )Жанр: Релакс, МузыкаРежиссер: Giorgio & Martin KoppeheleАктеры: Giorgio & Martin KoppeheleПеревод: ОтсутствуетПродолжительность: 00: 47:00 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9F5D458638488567868D65B1E90B9E19B24B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 481054   (87785) от 11.04.2012
 
 [EN] Рестлинг / WWE Monday Night RAW SuperShow 09.04.2012 (2012) HDTVRip [H.264]
@@ -6,7 +175,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87785.jpg" />
 </div>
 
 
@@ -32,7 +201,7 @@ NG:Спасти Титаник с Бобом Баллардом / Save the Titan
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87759.jpg" />
 </div>
 
 
@@ -58,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87366.jpg" />
 </div>
 
 
@@ -84,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87264.jpg" />
 </div>
 
 
@@ -111,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87122.jpg" />
 </div>
 
 
@@ -137,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86982.jpg" />
 </div>
 
 
@@ -163,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86855.jpg" />
 </div>
 
 
@@ -189,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86138.jpg" />
 </div>
 
 
@@ -215,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86137.jpg" />
 </div>
 
 
@@ -241,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85925.jpg" />
 </div>
 
 
@@ -276,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85887.jpg" />
 </div>
 
 
@@ -302,7 +471,7 @@ History Channel: Добро пожаловать в 80-е (серии 1-6 из 6
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85716.jpg" />
 </div>
 
 
@@ -330,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85663.jpg" />
 </div>
 
 
@@ -356,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85257.jpg" />
 </div>
 
 
@@ -382,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85255.jpg" />
 </div>
 
 
@@ -408,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85082.jpg" />
 </div>
 
 
@@ -448,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84844.jpg" />
 </div>
 
 
@@ -474,7 +643,7 @@ BBC. Йеллоустоун: Борьба за жизнь / Yellowstone: Battle 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84570.jpg" />
 </div>
 
 
@@ -500,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84386.jpg" />
 </div>
 
 
@@ -526,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84318.jpg" />
 </div>
 
 
@@ -537,175 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A5A04569788C188EFDECE475B449A1D8850549
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473336   (84253) от 25.03.2012
-
-Формула 1. Сезон 2012. Этап 2. Гран-при Малайзии. Гонка. (Эфир 24.03.2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап чемпионата Formula 1 (F1) состоит из трёх свободных заездов, квалификации (3 сегмента) и гонки.
-Места пилотов на стартовой решётке (старт с места) определяются по итогам квалификации.
-Зачётные очки начисляются первым 10 пилотам по системе "25–18–15–12–10–8–6–4–2–1".Жанр: СпортТелекомпания: Спорт 1 HDПродолжительность: 03:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519ADA56CC407971D904A3E940420E88080B10D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473306   (84243) от 25.03.2012
-
-Видео-приложение к журналу "Рыбачьте с нами". Выпуск № 32. Апрель (2012) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84243.jpg" />
-</div>
-
-
-###  Подробнее
-
-О фильме: Очередной выпуск видеоприложения к журналу Рыбачьте с нами за апрель 2012 года.
-
-1. Рыбалка в Норвегии
-2. Понемногу обо всем
-3. Весенний матч
-4. Зимний спиннинг по-кубански
-5. Рыболовные новинки (Выставка "Охота и рыбалка на Руси-2012")
-6. Наш анонс (Рыбалка на Кольском полуострове)
-7. Видео наших белорусских друзей
-8. Рыболовный магазин на диванеЖанр: Документальный, Телепередача, СпортПеревод: ОтсутствуетПродолжительность: 01:21:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785420C746426C581FEF3759258DC8B1D61DD17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472687   (84117) от 24.03.2012
-
-Формула 1. Гран-При Малайзии. Квалификация (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B177753956B946F793DA6FE4DBAF6451268B0A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472694   (84083) от 24.03.2012
-
-Формула 1. Сезон 2012. Этап 2. Гран-при Малайзии. Квалификация (Эфир 24.03.2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этап чемпионата Formula 1 (F1) состоит из трёх свободных заездов, квалификации (3 сегмента) и гонки.
-Места пилотов на стартовой решётке (старт с места) определяются по итогам квалификации.
-Зачётные очки начисляются первым 10 пилотам по системе "25–18–15–12–10–8–6–4–2–1".Жанр: СпортТелекомпания: Спорт 1 HDПродолжительность: 01:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7623CD826AC69AA9ECC5B16934EB01FF5E8491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472737   (84077) от 24.03.2012
-
-Формула 1. Гран-При Малайзии. Квалификация (2012) HDTVRip [720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208D240B7E36E1ABA7EC706D2658881D0ECC5B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471961   (83723) от 22.03.2012
-
-NG: Последнее пристанище тамплиеров / The last stand of the templar's (2010) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переправа Иакова. Голый холм с видом на реку Иордан, в ста шестидесяти километрах к северу от Иерусалима. Команда археологов ведёт раскопки замка тамплиеров XII века. Средневековые мусульманские хроники утверждают, что за шесть дней жесткого боя погибло около 800 тамплиеров.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB983F492F9E2E0A37EBA22143E6302A67FDEC0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

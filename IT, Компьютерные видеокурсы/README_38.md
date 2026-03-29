@@ -1,3 +1,139 @@
+###  Публикация: 1508963   (794536) от 12.11.2021
+
+Skillbox, Артём Кожуховский | Базы данных для разработчиков (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы научитесь использовать, проектировать и оптимизировать базы данных и эффективно работать с ними через код. Сможете улучшать производительность приложений и подбирать подходящие базы под требования бизнеса.Производство: SkillboxЖанр: ПрограммированиеПродолжительность: 21:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52090AC034087CC0A05861514E24B115FBBAC903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386271   (794326) от 29.05.2020
+
+Udemy | React For The Rest Of Us (2020/05) PCRec [H.264/1080p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Learn the world's most popular library for creating user interfaces!
+
+What makes this course different is we take the time to understand *why* we're doing what we're doing. We begin by asking an important question that so many other React courses skip entirely; What problem does React solve?
+(   Читать дальше...   )Производство: UdemyЖанр: Программирование, JavaScript, ReactЯзык озвучки: АнглийскийПродолжительность: 15:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD1BC37D59A8FE5B0F69682B8A19E8DF60D2BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386501   (794215) от 29.05.2020
+
+Skillbox | PHP-разработчик с нуля до PRO (2018) PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение инструментов по написанию сценариев веб-приложений и сайтов. Содержит 98 уроков разного уровня сложности. Подходит новичкам, начинающим разработчикам и IT-специалистам других сфер. Способствует продвижению в профессии PHP-разработчиков. В программе: вёрстка, работа с базами данных, освоение фреймворка Laravel.Жанр: Программирование, PHPЯзык озвучки: РусскийПродолжительность: 49:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B37F9947DFCFB3FA6A93446003B9ACD59E7036EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386592   (793116) от 30.05.2020
+
+Udemy | Тестирование ПО. С нуля до Junior QA (2020) PCRec [H.264/720p-LQ]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы готовы начать карьеру в тестировании и хотите зарабатывать на том, что тестируете сайты, игры, мобильные приложения. То в этом курсе вы сможете найти ответы от А до Я как это сделать.
+Всё начинается со знаний.
+Здесь записаны видеуроки, в которых есть необходимая теория для трудоустройства и работы.
+Практика. В курсе даны задания на выполнение. А для тех кто (   Читать дальше...   )Производство: Алексей ВасилевскийЖанр: ТестированиеЯзык озвучки: РусскийПродолжительность: 2:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95291D84B2ECE058A867FD75947B7A61A2CB30A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 243751   (792792) от 07.01.2019
+
+CG Cookie - 2010 Blender Training Series (full parts 1 & 2) [2010, ENG] PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792792.jpg" />
+</div>
+
+
+###  Подробнее
+
+На официальном сайте вода, поэтому пишу отсебятину. Данный материал предназначен для начинающих изучать Blender или желающих перейти со старой версии на новый Blender 2.5-2.6. В первой части (главы 1-5) автор знакомит нас с основами работы в программе, а во второй части (главы 6-12) шаг за шагом моделируется, текстурируется, ригится и рендерится воинственная девица (   Читать дальше...   )Жанр: Видеоуроки по Blender 2.5Продолжительность: более 23 часов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1906DB3F21D783F0EB91E0E2B96056CAE816A521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510187   (791950) от 15.11.2021
 
 Udemy, Daniel Orchard | Vehicles in Unreal Engine 4 (2020) PCRec [EN / EN Sub]
@@ -6,7 +142,7 @@ Udemy, Daniel Orchard | Vehicles in Unreal Engine 4 (2020) PCRec [EN / EN Sub]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791950.jpg" />
+  <img src="Z:/picture/008/save_picture_791950.jpg" />
 </div>
 
 
@@ -33,7 +169,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791739.jpg" />
+  <img src="Z:/picture/008/save_picture_791739.jpg" />
 </div>
 
 
@@ -59,7 +195,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791737.jpg" />
+  <img src="Z:/picture/008/save_picture_791737.jpg" />
 </div>
 
 
@@ -88,7 +224,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791736.jpg" />
+  <img src="Z:/picture/008/save_picture_791736.jpg" />
 </div>
 
 
@@ -117,7 +253,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791734.jpg" />
+  <img src="Z:/picture/008/save_picture_791734.jpg" />
 </div>
 
 
@@ -146,7 +282,7 @@ GeekUniversity | Факультет информационной безопас�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791728.jpg" />
+  <img src="Z:/picture/008/save_picture_791728.jpg" />
 </div>
 
 
@@ -175,7 +311,7 @@ JUG Ru Group | Heisenbug 2021 Moscow. Конференция по тестиро
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_791320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_791320.jpg" />
 </div>
 
 
@@ -204,7 +340,7 @@ Geekbrains | Frontend-разработчик. Часть 5 из 5 (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791236.jpg" />
+  <img src="Z:/picture/008/save_picture_791236.jpg" />
 </div>
 
 
@@ -232,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790159.jpg" />
+  <img src="Z:/picture/008/save_picture_790159.jpg" />
 </div>
 
 
@@ -259,7 +395,7 @@ GeekBrains | Тестировщик ПО (2019) PCRec [H.264/720p-LQ]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789958.jpg" />
+  <img src="Z:/picture/008/save_picture_789958.jpg" />
 </div>
 
 
@@ -286,7 +422,7 @@ Udemy, The Net Ninja (Shaun Pelling) | Создавайте Веб-Прилож�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789577.jpg" />
+  <img src="Z:/picture/008/save_picture_789577.jpg" />
 </div>
 
 
@@ -312,7 +448,7 @@ Udemy, Maximilian Schwarzmüller | Flutter & Dart - The Complete Guide (2021) WE
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789556.jpg" />
+  <img src="Z:/picture/008/save_picture_789556.jpg" />
 </div>
 
 
@@ -340,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789223.jpg" />
+  <img src="Z:/picture/008/save_picture_789223.jpg" />
 </div>
 
 
@@ -367,7 +503,7 @@ Udemy | Познавая вёрстку HTML, CSS и кое что ещё (2018)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789217.jpg" />
+  <img src="Z:/picture/008/save_picture_789217.jpg" />
 </div>
 
 
@@ -395,7 +531,7 @@ Udemy | Основы работы с Git и GitHub (2018) PCRec [H.264]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789210.jpg" />
+  <img src="Z:/picture/008/save_picture_789210.jpg" />
 </div>
 
 
@@ -421,7 +557,7 @@ HTML Academy | Профессиональный JavaScript, уровень 2 (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789208.jpg" />
+  <img src="Z:/picture/008/save_picture_789208.jpg" />
 </div>
 
 
@@ -448,7 +584,7 @@ Udemy | Изучите HTML и CSS за несколько часов (2018) PCR
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788820.jpg" />
+  <img src="Z:/picture/008/save_picture_788820.jpg" />
 </div>
 
 
@@ -474,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788258.jpg" />
+  <img src="Z:/picture/008/save_picture_788258.jpg" />
 </div>
 
 
@@ -503,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787912.jpg" />
+  <img src="Z:/picture/008/save_picture_787912.jpg" />
 </div>
 
 
@@ -529,7 +665,7 @@ GeekUniversity | Первая четверть. Разработка Frontend-а
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787907.jpg" />
+  <img src="Z:/picture/008/save_picture_787907.jpg" />
 </div>
 
 
@@ -555,7 +691,7 @@ Udemy, Anfisa Breus | Elementor 2021- от новичка до профи (2021)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787764.jpg" />
+  <img src="Z:/picture/008/save_picture_787764.jpg" />
 </div>
 
 
@@ -569,141 +705,6 @@ Udemy, Anfisa Breus | Elementor 2021- от новичка до профи (2021)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87ACC155BE1E40813A5FA024879C6AE3F0F7D6E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512130   (787757) от 23.11.2021
-
-javascript.ninja, Виталий Слободин, Илья Климов | CI/CD для frontend-инженера (2021) WEB-DL [AD]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787757.jpg" />
-</div>
-
-
-###  Подробнее
-
-DevOps - это прежде всего культура, а не должность. Эффективное понимание DevOps-процессов резко повышает вашу ценность для компании, а CI/CD - сердце DevOps
-C фокусом на JS. Не только фронт, но и бэк
-CI/CD - универсальная штука, не привязанная к языку. Тем не менее, везде есть определенная специфика и нюансы, связанные с инструментами и стеком
-(   Читать дальше...   )Производство: javascript.ninjaЖанр: АдминистрированиеПродолжительность: 25:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BFF1A7DD54E8BC6C0525738C0B41F8EE620E8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512110   (787755) от 23.11.2021
-
-Udemy, Илья Фофанов, Dmitri Nesteruk | Шаблоны проектирования на Python (2021) WEB-DL [AD]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787755.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этом курсе мы рассмотрим все шаблоны проектирования из книги "банды четырёх", а также их различные современные вариации с поправками и использованием особенностей языка Python.
-Что такое паттерны проектирования?
-Паттерны проектирования - это типовые решения типовых задач. Впервые были введены в оборот в 1994 году с выходом книги Design Patterns: Elements (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 09:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC53DE0D13168839D64C9B3168BABA9199AE25E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512121   (787750) от 23.11.2021
-
-Stepik, Никита Пестров и др. | Создание Web-сервисов на Python (2021) WEB-DL [AD]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современная жизнь немыслима без web-сервисов, ежедневно приносящих дивиденды в самых разных областях человеческой деятельности. А значит, профессия web-разработчика еще долго будет оставаться высокооплачиваемой и востребованной на рынке IT-специалистов. Существует множество решений и инструментов на разных языках программирования, упрощающих и ускоряющих web-разработку. (   Читать дальше...   )Производство: StepikЖанр: ПрограммированиеПродолжительность: 11:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:754DBC22B0DA507262CC2441EE770E2E2A3CD231
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202507   (787475) от 03.02.2018
-
-Игорь Непипенко | Typescript (2018) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787475.jpg" />
-</div>
-
-
-###  Подробнее
-
-TypeScript увеличивает эффективность и надёжность JavaScript-разработки добавлением строгой типизации. Он взят за основу в некоторых современных фреймворках, таких как AngularJS 2.0 и Ionic Framework 2.0. В этом курсе мы с вами шаг за шагом пройдем от знакомства с основными идеями до реального использования TypeScript, на практике посмотрим как решать типичные проблемы. (   Читать дальше...   )Производство: javascript.ruЖанр: программированиеПродолжительность: 08:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B7E06550E677F30C435EBE06227232DE3A29ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203282   (787421) от 03.02.2018
-
-LoftSchool | Основы вёрстки (2017) PCRec [H.264]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каким бы сложным ни было приложение или сайт, для него всегда нужен интерфейс. И этот интерфейс должен быть сверстан правильно, с прицелом на будущее. Ошибки в верстке видны пользователю сразу же, при первом взгляде. Именно поэтому я приглашаю вас пройти курс по основам верстки, так как сверстал уже больше 300 сайтов различных типов и мне есть, чем с вами поделиться!Производство: Владимир СабанцевЖанр: Программирование, HTML, CSSПродолжительность: 19:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27E9849A939763C98FD6E048CE6AE8731784DF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

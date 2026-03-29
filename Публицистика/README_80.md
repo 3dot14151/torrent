@@ -1,3 +1,83 @@
+###  Публикация: 1696425   (119647) от 02.02.2024
+
+Борис Соколов | Три любви Михаила Булгакова (2014) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119647.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Жён менять надо, батенька. Чтобы быть писателем, надо три раза жениться», – говорил начинающему Булгакову уже маститый Алексей Толстой. И эти слова оказались пророческими – в жизни Мастера были три романа, три любви, три жены.
+
+Что за женщины покорили его сердце, сыграв главные роли в его творчестве и судьбе? Кому из них Булгаков обязан спасением от наркомании и (   Читать дальше...   )Жанр: биографии и мемуарыЯзык: русскийИздательство: ЯузаФормат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F04C444DE59BDAAD50D21F75D7A14864154D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696439   (119640) от 02.02.2024
+
+Виталий Вульф, Серафима Чеботарь | Сильные женщины. От княгини Ольги до Маргарет Тэтчер (2013) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119640.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Железные леди» – говорят о таких женщинах, как Маргарет Тэтчер, которые собственным примером опровергли миф о «слабом поле». Ведь британский премьер не одинока – в этой книге перед вами пройдёт целая плеяда несгибаемых женщин, превосходивших мужчин не только умом, талантом и красотой, но и силой воли, твёрдостью характера, величием духа. От легендарной княгини Ольги, (   Читать дальше...   )Жанр: биографии и мемуарыЯзык: русскийИздательство: ЯузаФормат: PDF, FB2, EPUB, MOBIКачество: изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E895E620F22FA816A53C2314EB49A235450D7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240375   (119223) от 05.02.2024
+
+Н. А. Соловьев-Несмелов | Гении-изобретатели и люди труда (1917) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание составляет ряд биографических статей, посвященных всемирно известным научным деятелям, ученым и изобретателям: Джеймсу Уатту, Роберту Фултону, Джорджу Стефенсону, Гемфри Дэви, Кеплеру, Исааку Ньютону, Сваммердаму, Латрелю и Давиду Ливингстону.Жанр: История, биография, публицистка, искусство, науковедениеЯзык: Русский (дореформенный)Издательство: Типография т-ва И. Д. СытинаФормат: PDFКачество: Хороший скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1DEB168C7ED813F320AB2BE073EBC37BBADBA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689431   (115413) от 27.02.2024
 
 А. Волошин | Мишени стрелять не могут (2023) [PDF, FB2, EPUB]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115413.jpg" />
 </div>
 
 
@@ -34,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115412.jpg" />
 </div>
 
 
@@ -60,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115404.jpg" />
 </div>
 
 
@@ -88,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115222.jpg" />
 </div>
 
 
@@ -114,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112061.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109856.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108528.jpg" />
 </div>
 
 
@@ -196,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107717.jpg" />
 </div>
 
 
@@ -222,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107708.jpg" />
 </div>
 
 
@@ -248,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106873.jpg" />
 </div>
 
 
@@ -274,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106817.jpg" />
 </div>
 
 
@@ -300,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103385.jpg" />
 </div>
 
 
@@ -326,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103248.jpg" />
 </div>
 
 
@@ -352,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103030.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103025.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103023.jpg" />
 </div>
 
 
@@ -435,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102997.jpg" />
 </div>
 
 
@@ -461,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90935.jpg" />
 </div>
 
 
@@ -487,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90698.jpg" />
 </div>
 
 
@@ -513,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88968.jpg" />
 </div>
 
 
@@ -540,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82610.jpg" />
 </div>
 
 
@@ -566,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81334.jpg" />
 </div>
 
 
@@ -592,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80073.jpg" />
 </div>
 
 
@@ -603,84 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:592595B5CB506EAD8DCB2819A51AF80D4E68EA68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788087   (68667) от 28.03.2025
-
-Александр  Довженко | Дневниковые записи/Щоденникові записи 1939-1956 (2013) [PDF] [RU, UKR]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга - первая полная научная публикация дневниковых записей Александра Петровича Довженко за период с 1939 г. по 1956 г. Согласно дневниковому жанру, автор фиксирует основные события своей личной и творческой жизни, начиная с выхода на экраны фильма "Щорс" (1939) и до завершения работы над сценарием "Поэма о море" (1956). Подробно описаны (   Читать дальше...   )Жанр: Дневники, история, культурологияЯзык: Русский / УкраинскийИздательство: ФолиоФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7FF4C03DD42DEFC849664F17D419CB3D455D069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788338   (68582) от 29.03.2025
-
-Лидия Чуковская | Записки об Анне Ахматовой [3 книги] (1996-1997) [PDF, DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Лидии Чуковской об Анне Ахматовой - не воспоминания. Это - дневник, записи для себя, по живому следу событий. В записях отчетливо проступают приметы ахматовского быта, круг ее друзей, черты ее личности, характер ее литературных интересов. Записи ведутся "в страшные годы ежовщины". В тюрьме расстрелян муж Лидии Чуковской, в тюрьме ждет приговора и (   Читать дальше...   )Жанр: Биографии и мемуарыИздательство: Нева, Фолио, СогласиеФормат: PDF, DJVUКачество: Обработанный скан, OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC404E35065CE7D271E4ABEA5F42916551CA9062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789115   (68395) от 02.04.2025
-
-Александр Твардовский | Дневник 1950-1959 (2013) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дневник 1950-х годов запечатлел бурные, драматические со­бытия и в жизни страны, и в жизни автора дневника: смерть Сталина, XX съезд партии, назначение Твардовского главным редактором НОВОГО МИРА, перестройку журнала, пер­вый разгон его редакции в 1954-м, запрещение поэмы ТЁРКИН НА ТОМ СВЕТЕ, начало "оттепели", возвращение Твардовского в НОВЫЙ МИР в 1958-м... (   Читать дальше...   )Жанр: Биографии и мемуарыИздательство: ПРОЗАиКФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEE3236DF938A43C4C429B37BFE64691D38D245
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1263900   (279462) от 24.11.2018
+
+Jim Brickman - 8: Just Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_279462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warm Evening Breeze
+02. 4-7-8
+03. A Chill in the Air
+04. 5 Seconds In, 5 Seconds Out(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B58A0635478FE113D5D74FA4FC3DB7F0C8404326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264206   (279458) от 24.11.2018
+
+Jim Brickman - Soothe, Vol. 3: Meditation - Music for Peaceful Relaxation (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_279458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relax (8:13)
+ 02. Flying Meditation (9:22)
+ 03. Dunes (6:14)
+ 04. Dewdrops (8:41)(   Читать дальше...   )Жанр: New Age, Piano, RelaxationПродолжительность: 03:02:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC548BE74876FBA697DC1F1DE0B157BAB3BEA3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263516   (279352) от 24.11.2018
 
 James Newton Howard - Фантастические твари: Преступления Грин-де-Вальда / Fantastic Beasts: The Crimes of Grindelwald (2018) [FLAC|Lossless|tracks + .cue]<Score>
@@ -6,7 +64,7 @@ James Newton Howard - Фантастические твари: Преступл�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279352.jpg" />
+  <img src="Z:/picture/008/save_picture_279352.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ James Newton Howard - Фантастические твари: Преступл�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279349.jpg" />
+  <img src="Z:/picture/008/save_picture_279349.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [MP3|320 кб/с]<Soundtrac
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279159.jpg" />
+  <img src="Z:/picture/008/save_picture_279159.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|track
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279153.jpg" />
+  <img src="Z:/picture/008/save_picture_279153.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279117.jpg" />
+  <img src="Z:/picture/008/save_picture_279117.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ Neil H - Syllabus Of Magic - Merlins Quest (2010) [FLAC|Lossless|tracks + .cue] 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279107.jpg" />
+  <img src="Z:/picture/008/save_picture_279107.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ Best Relaxation Music - Kundalini Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279062.jpg" />
+  <img src="Z:/picture/008/save_picture_279062.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Various Artists - Наши песни - Песни Победы (2001) [APE|loss
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279028.jpg" />
+  <img src="Z:/picture/008/save_picture_279028.jpg" />
 </div>
 
 
@@ -232,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278955.jpg" />
+  <img src="Z:/picture/008/save_picture_278955.jpg" />
 </div>
 
 
@@ -261,7 +319,7 @@ VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278762.jpg" />
+  <img src="Z:/picture/008/save_picture_278762.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Roc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278755.jpg" />
+  <img src="Z:/picture/008/save_picture_278755.jpg" />
 </div>
 
 
@@ -318,7 +376,7 @@ Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278721.jpg" />
+  <img src="Z:/picture/008/save_picture_278721.jpg" />
 </div>
 
 
@@ -347,7 +405,7 @@ Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossle
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278632.jpg" />
+  <img src="Z:/picture/008/save_picture_278632.jpg" />
 </div>
 
 
@@ -376,7 +434,7 @@ Atlantida Project - Bezdna (2016) [MP3|320 Kbps] <Cyberfolk / Electronic / Ethni
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278529.jpg" />
+  <img src="Z:/picture/008/save_picture_278529.jpg" />
 </div>
 
 
@@ -405,7 +463,7 @@ Goran Bregovic - Discography (1989..2008) [MP3|320 kbps]<Balkan Ethno, World Mus
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278284.jpg" />
+  <img src="Z:/picture/008/save_picture_278284.jpg" />
 </div>
 
 
@@ -431,7 +489,7 @@ James Last - The Classic Touch (1988) 5CD [FLAC|Lossless]<Instrumental, Easy Lis
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277615.jpg" />
+  <img src="Z:/picture/008/save_picture_277615.jpg" />
 </div>
 
 
@@ -460,7 +518,7 @@ Gipsy Kings - 16 альбомов (1982-2006) [MP3|320 кб/с]<Rumba - Flamenco
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277574.jpg" />
+  <img src="Z:/picture/008/save_picture_277574.jpg" />
 </div>
 
 
@@ -489,7 +547,7 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277528.jpg" />
+  <img src="Z:/picture/008/save_picture_277528.jpg" />
 </div>
 
 
@@ -518,7 +576,7 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [FLAC|L
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277526.jpg" />
+  <img src="Z:/picture/008/save_picture_277526.jpg" />
 </div>
 
 
@@ -547,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277404.jpg" />
+  <img src="Z:/picture/008/save_picture_277404.jpg" />
 </div>
 
 
@@ -576,7 +634,7 @@ Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Sco
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277375.jpg" />
+  <img src="Z:/picture/008/save_picture_277375.jpg" />
 </div>
 
 
@@ -605,7 +663,7 @@ Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277295.jpg" />
+  <img src="Z:/picture/008/save_picture_277295.jpg" />
 </div>
 
 
@@ -634,7 +692,7 @@ Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277184.jpg" />
+  <img src="Z:/picture/008/save_picture_277184.jpg" />
 </div>
 
 
@@ -663,7 +721,7 @@ Sade - The Big Unknown (From the motion picture "Widows") (2018) Single [FLAC|Lo
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276417.jpg" />
+  <img src="Z:/picture/008/save_picture_276417.jpg" />
 </div>
 
 
@@ -674,64 +732,6 @@ Sade - The Big Unknown (From the motion picture "Widows") (2018) Single [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B0799FBB6ED10C363B5E3A5408FFF2C19029044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336604   (276042) от 09.11.2019
-
-Martin Ermen - Piano Dreams Collection (2017-2018) 4CD [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Song (3:48)
-02. Heroe (4:34)
-03. Can't Get You out of My Head (3:09)
-04. Morning Has Broken (3:10)(   Читать дальше...   )Жанр: New Age, Instrumental, Piano, Relaxation |Продолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4B4C0457D502EBDD21A19E696182DA91C04EA7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337185   (276010) от 09.11.2019
-
-Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC|Lossless|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Major Lazer & Khalid - Trigger (02:52)
-02. Au/Ra & Alan Walker - Ghost (02:59)
-03. CHVRCHES - Death Stranding (05:19)
-04. The Neighbourhood - Yellow Box (03:03)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BE3874C93B8431E0E0A3BB81EBAED69EBF7CC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

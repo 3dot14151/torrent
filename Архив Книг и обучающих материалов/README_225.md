@@ -1,3 +1,29 @@
+###  Публикация: 1752219   (41977) от 29.09.2024
+
+И. Н.  Мелихов | Скрытый гипноз. Практическое руководство (2021) [MP3, Неизвестен]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига представляет собой самоучитель для самостоятельного овладения приёмами гипнотического воздействия на людей, позволяющими производить манипуляции, внушение, зомбирование. Книга написана очень доступным языком, в легко усваиваемой форме. Обучение адаптировано к нашей обыденной жизни и адресовано в основном бизнесменам, работникам правоохранительных органов, (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 17:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985E0E470C17FB5DDC8EDB4E5F7ED26559AAA3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770925   (31983) от 04.01.2025
 
 Иван Гончаров | Обломов (2020) [MP3, Александр Клюквин]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31983.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25841.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25841.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9484.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2698.jpg" />
 </div>
 
 

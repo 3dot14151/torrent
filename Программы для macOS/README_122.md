@@ -1,3 +1,138 @@
+###  Публикация: 1457389   (242650) от 26.03.2021
+
+DSP-Quattro 5.6.0 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242650.jpg" />
+</div>
+
+
+###  Подробнее
+
+DSP-Quattro мощный и очень удобный в работе аудио/сд мастеринг редактор, с поддержкой AU/VST плагинов.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: Stefano DainoПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAF0526640E9D2E8AB7A325E84E087A8AB82BE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624154   (242546) от 04.04.2023
+
+Mullvad Browser 12.0.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mullvad Browser основан на движке Firefox ESR. Содержит множество функций Tor Browser, но не использует сеть Tor, а предназначен для использования с надежным VPN (не требует использования Mullvad VPN).
+Mullvad Browser подойдет для пользователей, которые хотят защитить свою конфиденциальность, избегая использования Tor. Браузер включает режим «HTTPS Only», дополнения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.01.2023Разработчик: © 2023 Mullvad VPN ABПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46925F93D74D3FC7CFCFA2F7B7AED5E49BF806C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628122   (242529) от 21.04.2023
+
+Tab Launcher 2.9.6 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tab Launcher – хорошая альтернатива стандартному доку в Mac
+Tab Launcher – простое приложение, которое позволяет добавить ещё одну панель, очень похожую на оригинальный Dock, в пространство вашего рабочего стола в OS X.
+TabLauncher поможет вам быстро и легко, используя минимальное количество ресурсов вашего компьютера, найти и запустить любимые программы и файлы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.04.2023Разработчик: © 2011 OktoidПоддерживаемая ОС: macOS X 10.9 +Язык интерфейса: Английский, Японский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED4A1F827A71FCC5300ED806146707342BBC697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628446   (242135) от 23.04.2023
+
+Iris 1.5.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Iris — это высокопроизводительный экранный рекордер, который записывает в формате h.264. Iris использует ускорение встроенного графического процессора, если оно доступно. Дополнительно может включать видео с камеры и до двух микрофонов. Iris может бесплатно попробовать водяной знак, встроенный в записи.Тип издания: macOS SoftwareРелиз состоялся: 22.04.2023Разработчик: © 2023 Static Z SoftwareПоддерживаемая ОС: macOS 10.15.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09698570B58F78B30935AEC5FB1B99DB4F28B974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628700   (242010) от 23.04.2023
+
+iClip - Clipboard Recorder & ClipArt Manager 5.5.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242010.jpg" />
+</div>
+
+
+###  Подробнее
+
+iClip - управляйте данными в буфере обмена.
+С iClip, вы быстро сохраните, организуете доступ к битам информации, которые просто не практично сохранять как целые документы. Утилита имеет удобный пользовательский интерфейс и приятную графику.
+iClip позволяет быстро заносить и хранить небольшие фрагменты текста и изображений, интернет адреса и другую информацию. Данные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.04.2023Разработчик: © 2009-2022 Irradiated SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0138804A06414A70FC7EC2E096426D4223998B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108465   (241868) от 25.02.2017
 
 Short Menu 2.4 [En]
@@ -6,7 +141,7 @@ Short Menu 2.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241868.jpg" />
+  <img src="Z:/picture/004/save_picture_241868.jpg" />
 </div>
 
 
@@ -35,7 +170,7 @@ MarkMyWords 2.4.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241808.jpg" />
+  <img src="Z:/picture/004/save_picture_241808.jpg" />
 </div>
 
 
@@ -61,7 +196,7 @@ batchRESIZE 1.76 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241714.jpg" />
+  <img src="Z:/picture/004/save_picture_241714.jpg" />
 </div>
 
 
@@ -87,7 +222,7 @@ Magic Sort List 3.5.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241675.jpg" />
+  <img src="Z:/picture/004/save_picture_241675.jpg" />
 </div>
 
 
@@ -115,7 +250,7 @@ Image Plus - Easy Photo Editor 1.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241650.jpg" />
+  <img src="Z:/picture/004/save_picture_241650.jpg" />
 </div>
 
 
@@ -141,7 +276,7 @@ InstaGrid 3.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241504.jpg" />
+  <img src="Z:/picture/004/save_picture_241504.jpg" />
 </div>
 
 
@@ -167,7 +302,7 @@ Crop Any Video 2.0.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241190.jpg" />
+  <img src="Z:/picture/004/save_picture_241190.jpg" />
 </div>
 
 
@@ -196,7 +331,7 @@ Any Media Info 2.1.2 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241168.jpg" />
+  <img src="Z:/picture/004/save_picture_241168.jpg" />
 </div>
 
 
@@ -223,7 +358,7 @@ Later - Create Quick Reminders With Presets 1.0.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240949.jpg" />
+  <img src="Z:/picture/004/save_picture_240949.jpg" />
 </div>
 
 
@@ -252,7 +387,7 @@ iShowU Studio 2 v2.3.3 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240947.jpg" />
+  <img src="Z:/picture/004/save_picture_240947.jpg" />
 </div>
 
 
@@ -279,7 +414,7 @@ TweetShot 4.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240815.jpg" />
+  <img src="Z:/picture/004/save_picture_240815.jpg" />
 </div>
 
 
@@ -305,7 +440,7 @@ Faxbot 2.6.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240777.jpg" />
+  <img src="Z:/picture/004/save_picture_240777.jpg" />
 </div>
 
 
@@ -332,7 +467,7 @@ Dial!List 1.9.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240643.jpg" />
+  <img src="Z:/picture/004/save_picture_240643.jpg" />
 </div>
 
 
@@ -360,7 +495,7 @@ ShredIt X 6.4.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240552.jpg" />
+  <img src="Z:/picture/004/save_picture_240552.jpg" />
 </div>
 
 
@@ -387,7 +522,7 @@ JPEG Jackal PRO 2.1 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240378.jpg" />
+  <img src="Z:/picture/004/save_picture_240378.jpg" />
 </div>
 
 
@@ -413,7 +548,7 @@ Aiseesoft Mac Video Enhancer for Mac 9.2.32 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240268.jpg" />
+  <img src="Z:/picture/004/save_picture_240268.jpg" />
 </div>
 
 
@@ -441,7 +576,7 @@ Mitti 2.2.9 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240222.jpg" />
+  <img src="Z:/picture/004/save_picture_240222.jpg" />
 </div>
 
 
@@ -468,7 +603,7 @@ AnyMP4 DVD Copy 3.1.36 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240206.jpg" />
+  <img src="Z:/picture/004/save_picture_240206.jpg" />
 </div>
 
 
@@ -494,7 +629,7 @@ TinkerTool System 6 v6.98 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240182.jpg" />
+  <img src="Z:/picture/004/save_picture_240182.jpg" />
 </div>
 
 
@@ -520,7 +655,7 @@ Screaming Frog SEO Spider 17.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240017.jpg" />
+  <img src="Z:/picture/004/save_picture_240017.jpg" />
 </div>
 
 
@@ -546,7 +681,7 @@ Semulov 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240010.jpg" />
+  <img src="Z:/picture/004/save_picture_240010.jpg" />
 </div>
 
 
@@ -558,138 +693,6 @@ Semulov 2.6 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C65502A2C8D22670761057845A43D889B1E99099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415567   (239966) от 12.10.2020
-
-Handy Note 1.1.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Handy Note - это прекрасно написанное приложение для заметок, которое позволяет быстро записывать важную информацию и сохранять ее на экране.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: FIPLAB LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B633866CD7DA8572428B1315694467F5F3DE96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621655   (239890) от 25.03.2023
-
-WebScraper 4.15.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239890.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папку.Тип издания: macOS SoftwareРелиз состоялся: 22.03.2023Разработчик: ©2007-2021 S P DixonПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E27E87A2D271BFA49746DC6684812A7CAB2AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467257   (239874) от 03.05.2021
-
-Sound Grinder 4.1.1 [En]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sound Grinder ™, и пакетная обработка в macOS станет вашим новым любимым занятием. Многофункциональный, гибкий и доставляющий удовольствие, Sound Grinder позволяет одновременно обрабатывать тысячи файлов без потери времени или метаданных.
-Быстро, эффективно и надежно. Sound Grinder предоставляет множество функций, которые помогают избавиться от разочарований при (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Monkey Tools, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4241F925424025E3A3A25FD63C530E4BDC1663C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467223   (239790) от 03.05.2021
-
-Circular Studio 2.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Circular Studio  - новый поворот в редактировании фотографий. Превратите ваши фотографии в удивительные круговые изображения.
-Circular Studio  веселое приложение с мощными новыми возможностями, вы можете легко увеличивать и уменьшать масштаб вашего кругового изображения. Добавьте профессиональные эффекты, такие как блики и небесные объекты: солнце, луна, птицы и т.д. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.04.2021Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7A26DDDA45867126F19C1D474CEEFD5FC65803F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467428   (239748) от 03.05.2021
-
-References.Design 2.4.1 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Органайзер изображений References.Design, работающий на базе искусственного интеллекта, оптимизированного для дизайна, автоматически анализирует визуальные стили и цветовые темы ваших изображений и на основе этого группирует их в различные группы. Теперь вы можете просматривать контент в случайном порядке, но при этом не терять фокус.Тип издания: macOS SoftwareРелиз состоялся: 03.07.2020Разработчик: Shanghai Linyu Technology Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CEC566EE76B30E988A57BE3FCE5CCE61E84B63
 ```
 
 https://mybot314.ru/tekegram_catalog/

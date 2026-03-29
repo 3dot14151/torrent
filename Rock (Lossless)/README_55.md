@@ -1,3 +1,148 @@
+###  Публикация: 1285739   (718809) от 27.02.2019
+
+Eric Clapton - The Best Of... (unknown year) Unofficial Release [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears In Heaven
+02. Cocaine
+03. Wonderful Tonight
+04. I Shot The Sherife(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E054AF6E0D10E2595641F91F6C92021860E20923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400710   (717222) от 06.08.2020
+
+Paul Cotton - When The Coast Is Clear (2004) [FLAC|Lossless|image + .cue] <Classic Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Coast Is Clear 5:25
+02. The Sunset Kidd 4:36
+03. High Water 4:27
+04. It Never Goes Away 5:08(   Читать дальше...   )Жанр: Classic Rock, Country RockПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7557E6A1E87BB6F28872FEF131091A9C487647D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130276   (716887) от 01.05.2017
+
+Jaime Kyle - Untangled (1999) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock, Country Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sentimental  (03:48) 
+02.  Cry  (04:11) 
+03.  Revelation  (04:07) 
+04.  Dreaming Out Loud  (03:49) (   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Country RockПродолжительность: 00:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF2C11A5B7EAA784D0BC6E34A017344B381577E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130287   (716790) от 01.05.2017
+
+Roy Clark - The Lightning Fingers of Roy Clark (1999) [FLAC|Lossless|image + .cue] <Surf, Rock & Roll, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Twelfth Street Rag  (02:45) 
+02.  Texas Twist  (02:09) 
+03.  Golden Slippers  (02:28) 
+04.  Weepin' Willow Twist  (02:21) (   Читать дальше...   )Жанр: Surf, Rock & Roll, CountryПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3021C7BB0B4CB60E62AA14F3A8ABA9B5AD04B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130261   (716653) от 01.05.2017
+
+Tak Matsumoto & Daniel Ho - Electric Island, Acoustic Sea (2017) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, Folk, World, & Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soaring on Dreams (5:32)
+02. Fujiyama Highway (4:08)
+03. Magokoro (True Heart) (5:01)
+04. Infinite Escapade (4:45)(   Читать дальше...   )Жанр: Instrumental Rock, Folk, World, & CountryПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4AAC2790E9FC2824D56807576873624C92F5094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130233   (716326) от 01.05.2017
 
 Golden Earring - 50 Years Anniversary Album (2015) [FLAC|Lossless|image + .cue] <Progressive Rock>
@@ -6,7 +151,7 @@ Golden Earring - 50 Years Anniversary Album (2015) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716326.jpg" />
+  <img src="Z:/picture/008/save_picture_716326.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ The Alan Parsons Symphonic Project - Live In Colombia (2CD) (2016) [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715953.jpg" />
+  <img src="Z:/picture/008/save_picture_715953.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Joe Bonamassa - A New Day Now (20th Anniversary Edition) (2020) [FLAC|Lossless|W
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715015.jpg" />
+  <img src="Z:/picture/008/save_picture_715015.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Bryan Adams - Shine A Light (2019) Polydor Records [FLAC|Lossless|WEB-DL|tracks]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714820.jpg" />
+  <img src="Z:/picture/008/save_picture_714820.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Boomer - Dim Side Of Mars (2002) [FLAC|Lossless|image + .cue]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714417.jpg" />
+  <img src="Z:/picture/008/save_picture_714417.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Paul McCartney - Pure McCartney (2CD) (2016) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713541.jpg" />
+  <img src="Z:/picture/008/save_picture_713541.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713459.jpg" />
+  <img src="Z:/picture/008/save_picture_713459.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Zelbo - In My Dreams (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melod
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713016.jpg" />
+  <img src="Z:/picture/008/save_picture_713016.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Bite The Bullet - End Of The Line (2022) [FLAC|Lossless|image + .cue] <Melodic R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712967.jpg" />
+  <img src="Z:/picture/008/save_picture_712967.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Duncan MacKay - Score (1977) 2016,  Fresh Music, Belle Antique [FLAC|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712688.jpg" />
+  <img src="Z:/picture/008/save_picture_712688.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Chicago - Japanese Singles Collection (2021) 2xCD, Japanese Edition, Compilation
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712684.jpg" />
+  <img src="Z:/picture/008/save_picture_712684.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ John Mellencamp Featuring Carlene Carter - Sad Clowns & Hillbillies (2017) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712551.jpg" />
+  <img src="Z:/picture/008/save_picture_712551.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Hatfield And The North - 6 albums (1973-2006) 6 CD, Discography [WavPack|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712438.jpg" />
+  <img src="Z:/picture/008/save_picture_712438.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ Paul McCartney - Flowers In The Dirt (1989) Remastered 2017 (3CD) [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712279.jpg" />
+  <img src="Z:/picture/008/save_picture_712279.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ Tamarisk - Breaking the Chains (2018) [FLAC|Lossless|tracks + .cue] <Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711971.jpg" />
+  <img src="Z:/picture/008/save_picture_711971.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ Phil Collins - The Essential Going Back (2016) 2CD, Deluxe Edition [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711869.jpg" />
+  <img src="Z:/picture/008/save_picture_711869.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ Trick Pony - Trick Pony (2001) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711345.jpg" />
+  <img src="Z:/picture/008/save_picture_711345.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ Dukes Of The Orient - Freakshow (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711326.jpg" />
+  <img src="Z:/picture/008/save_picture_711326.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ The Steel Woods - Old News (2019) [FLAC|Lossless|tracks + .cue] <Rock, Southern 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711216.jpg" />
+  <img src="Z:/picture/008/save_picture_711216.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ Billy Thorpe & The Aztecs - The Very Best Of Billy Thorpe & The Aztecs (1994) [F
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710675.jpg" />
+  <img src="Z:/picture/008/save_picture_710675.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Orymus - Miracles (2015) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710196.jpg" />
+  <img src="Z:/picture/008/save_picture_710196.jpg" />
 </div>
 
 
@@ -599,151 +744,6 @@ Orymus - Miracles (2015) [FLAC|Lossless|image + .cue] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9B04C03F6F78C4BF574E053B715139185545C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219777   (710043) от 16.04.2018
-
-Casino (Clive Nolan) - Casino (1992) Japan Press, 1994 [FLAC|Lossless|image + .cue] <Neo-Prog, Progressive Opera, Prog-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prey (10:38)
-i) Prey
-ii) Overheard in Passing # 1 (at the Bar)
-02. Crap Game (5:47)(   Читать дальше...   )Жанр: Neo-Prog, Progressive Opera, Prog-RockПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB4A4BB0A30B21FAC40CB90764F6E71721D696D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401527   (709404) от 10.08.2020
-
-Marakesh - Marakesh (1976) Reissue, Remastered, 2016, Paisley Press [FLAC|Lossless|image + .cue] <Symphonic, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will She Come (07:40)
-02. Autumn-DY 49 (09:01)
-03. Moonshadows (01:37)
-04. I Will Stay (05:54)(   Читать дальше...   )Жанр: Symphonic, Progressive RockПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3743963DE7620E0FE13A80B30F3ADF916C5C25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533011   (708995) от 22.02.2022
-
-Traffic - Far From Home (1994) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riding High 5:30
-02. Here Comes A Man 5:06
-03. Far From Home 8:33
-04. Nowhere Is Their Freedom 6:57(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7612DE36C202225774E6C47958E5ACF190AE8C13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025820   (708201) от 13.06.2016
-
-Elton John - Elton John (2001) Unofficial Release [APE|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your song
-02. Take me to the pilot
-03. Sixty years on
-04. Ballad of a well-known gun(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AB6B322914F8CC8CD6F1F6F61161129F83FD92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025892   (708200) от 13.06.2016
-
-Phil Lynott - Yellow Pearl - A Collection (2010) [APE|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yellow Pearl (Second 7" Remix) 1980/ 03:23/
-02. Dear Miss Lonely Hearts 1980/ 04:11/
-03. King's Call 1980 / 03:40/
-04. A Child's Lullaby 1980/ 02:43/(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4658E006CD68EFDE81D869A3522142B0FC6A7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,83 @@
+###  Публикация: 1834701   (250452) от 04.11.2025
+
+Игорь Рыбаков | Ярд. Персональные стратегии превосходства (2025) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_250452.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгеЖанр: Как достичь успеха, Личная эффективностьИздательство: АСТФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4A3F47776B5C020D2D432F22685249E7DEF495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834699   (250451) от 04.11.2025
+
+Джеймс Скотт | Темная психология и манипуляции. Нападай и защищайся (2024) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_250451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Темная психология – это все техники, задача которых нанести максимальный урон человеческой личности.
+Джеймс Скотт, профессор Чикагского университета, собрал воедино все разрушительные способы воздействия – от обмана до газлайтинга и макиавеллизма. Автор приводит множество реальных примеров и научных исследований, а еще демонстрирует, как темная психология применяется (   Читать дальше...   )Жанр: Психологическая защита, Психологическое воздействиеПеревод: Князев К.Издательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023D685E89B77862C6696CD64A0D22F8464B5873
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834386   (250417) от 03.11.2025
+
+Василий Шуров, Анна Пронина | Антистрах. От тревоги к действию: твои инструменты для новой реальности (2025) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_250417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если овцу посадить в клетку рядом с клеткой волка и при этом создать необходимые условия для жизни – овца умрет. От стресса, вызванного тревогой. Сегодня такие «волки» преследуют нас повсюду.
+Новостные сводки, экономическая нестабильность, стремительные изменения в обществе ежедневно проверяют нашу психику на прочность. Книга – проводник в мир психического здоровья. (   Читать дальше...   )Жанр: Саморазвитие / личностный рост, СамосовершенствованиеИздательство: РИПОЛ КлассикФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53591154670F8D2D320EB4E061004C6FE9D5849E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834527   (250394) от 03.11.2025
 
 Алексей Знаков | Невербалика. А вы пробовали читать мысли? Техники, приемы, секреты общения (2018) [PDF, FB2, EPUB]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250394.jpg" />
+  <img src="Z:/picture/004/save_picture_250394.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250382.jpg" />
+  <img src="Z:/picture/004/save_picture_250382.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250375.jpg" />
+  <img src="Z:/picture/004/save_picture_250375.jpg" />
 </div>
 
 
@@ -86,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250368.jpg" />
+  <img src="Z:/picture/004/save_picture_250368.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250367.jpg" />
+  <img src="Z:/picture/004/save_picture_250367.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250366.jpg" />
+  <img src="Z:/picture/004/save_picture_250366.jpg" />
 </div>
 
 
@@ -167,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250364.jpg" />
+  <img src="Z:/picture/004/save_picture_250364.jpg" />
 </div>
 
 
@@ -194,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247781.jpg" />
+  <img src="Z:/picture/004/save_picture_247781.jpg" />
 </div>
 
 
@@ -220,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246172.jpg" />
 </div>
 
 
@@ -246,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246086.jpg" />
 </div>
 
 
@@ -274,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246083.jpg" />
 </div>
 
 
@@ -303,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243933.jpg" />
+  <img src="Z:/picture/004/save_picture_243933.jpg" />
 </div>
 
 
@@ -330,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242868.jpg" />
+  <img src="Z:/picture/005/save_picture_242868.jpg" />
 </div>
 
 
@@ -357,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242823.jpg" />
+  <img src="Z:/picture/004/save_picture_242823.jpg" />
 </div>
 
 
@@ -385,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242795.jpg" />
+  <img src="Z:/picture/005/save_picture_242795.jpg" />
 </div>
 
 
@@ -411,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241732.jpg" />
+  <img src="Z:/picture/004/save_picture_241732.jpg" />
 </div>
 
 
@@ -437,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238670.jpg" />
+  <img src="Z:/picture/005/save_picture_238670.jpg" />
 </div>
 
 
@@ -464,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238550.jpg" />
+  <img src="Z:/picture/005/save_picture_238550.jpg" />
 </div>
 
 
@@ -491,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236692.jpg" />
+  <img src="Z:/picture/005/save_picture_236692.jpg" />
 </div>
 
 
@@ -517,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233408.jpg" />
 </div>
 
 
@@ -545,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233050.jpg" />
+  <img src="Z:/picture/005/save_picture_233050.jpg" />
 </div>
 
 
@@ -573,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231996.jpg" />
+  <img src="Z:/picture/004/save_picture_231996.jpg" />
 </div>
 
 
@@ -599,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231940.jpg" />
+  <img src="Z:/picture/004/save_picture_231940.jpg" />
 </div>
 
 
@@ -610,84 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEB85F568DC8EC7DCC9246F14C126F320988B306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636374   (231805) от 29.05.2023
-
-Лидия Денворт | О дружбе. Эволюция, биология и суперсила главных в жизни связей (2022) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231805.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге «О дружбе» научный журналист Лидия Денворт отправляется на поиски биологических, психологических и эволюционных основ дружбы. Вместе с ней мы посещаем обезьяний заповедник в Пуэрто-Рико и колонию бабуинов в Кении, чтобы исследовать социальные связи обезьян, позволяющие понять наши собственные. Автор показывает, что дружба зародилась на заре человечества: (   Читать дальше...   )Жанр: Социальная психологияПеревод: Александр АнваерФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A90BEFDEB6C599A3D3DF2256F682AEF78C5C1FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636372   (231797) от 29.05.2023
-
-Джон Хилл, Джо Оливер | Коучинг на основе терапии принятия и ответственности. Отличительные особенности (2023) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коучинг на основе терапии принятия и ответственности нацелен в первую очередь на то, чтобы помочь клиентам развить психологическую гибкость и научить их предпринимать целенаправленные действия, основанные на личных ценностях. Он подходит для использования в индивидуальном и групповом формате и отлично зарекомендовал себя в сфере здоровья, спорта, бизнеса, работы (   Читать дальше...   )Жанр: Психология, коучинг, обучениеПеревод: В.А. БелоковскаяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0CDA5D3ED692B1E02783A8FF10A1AE8F8EC081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636350   (231783) от 29.05.2023
-
-Дэвид Розенгрен | Мотивационное консультирование. Воркбук для психологов (2023) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Розенгрен – доктор наук, клинический психолог с 30-летним опытом терапии и организационной работы, консультант и тренер мотивационного консультирования. Тщательно отобранные автором более 80 рабочих листов с шаблонами и примерами диалогов, упражнений и возможностей для практической работы с клиентом позволят усовершенствовать навыки проведения четырех процессов (   Читать дальше...   )Жанр: Мотивация, Практическая психология, Психологические тренинги, ПсихотерапияПеревод: А.И. КарпухинаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0187D488090FF29BE41C001499752BB2739663EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,171 @@
+###  Публикация: 954549   (339971) от 08.11.2015
+
+Футбол. Чемпионат Англии 2015-16. EPL. 12 тур. Манчестер Юнайтед – Вест Бромвич (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Англии 2015-16, EPL. 12 тур. Манчестер Юнайтед – Вест Бромвич.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:53:47 + 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A658FBD72D6344D8E48C7443B254898F691F2375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 411049   (339027) от 16.11.2011
+
+NGW: Замбези / The Zambezi (2010) HDTVRip (эпизоды 1-2 из 2)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_339027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замбези - четвертая по протяженности река в Африке, ее длина составляет более 2650 км. И для животных, и для людей она является источником жизни. В ее дельте, пресная вода смешивается с солью океана. Само название Замбези, означает - Великая река. Ее путь лежит через Южную Африку, и она дарует жизнь этому древнему континенту. Замбези меняется в зависимости от времени (   Читать дальше...   )Производство: Германия, A Science Vision GmbH, ORF, Universum NDR, Naturfilm Studio Hamburg, WDR Arte, National Geographic ChannelsЖанр: Документальный, флора, фаунаРежиссер: Михаэль ШламбергерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2 x ~ 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591DD5D386CB38729DABC84B6C664D4827A02679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257985   (338835) от 29.10.2018
+
+Футбол. Лига Европы УЕФА 2018-2019. Группа D. 3-й тур. Андерлехт (Бельгия) — Фенербахче (Турция) (25.10.2018) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338835.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 октября 2018 года, четверг. 19:55 МСК
+Лига Европы УЕФА 2018 - 2019. Групповой турнир
+Группа D. 3-й тур.
+Андерлехт (Брюссель, Бельгия) — Фенербахче (Стамбул, Турция)(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0224E64B5E80F13849CA9BFDBE1E8EBDE046AA59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257988   (338824) от 29.10.2018
+
+Футбол. Лига Европы УЕФА 2018-2019. Группа E. 3-й тур. Спортинг (Португалия) – Арсенал (Англия) (25.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338824.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 октября 2018 года, четверг. 19:55 МСК
+Лига Европы УЕФА 2018 - 2019. Групповой турнир
+Группа E. 3-й тур.
+Спортинг (Лиссабон, Португалия) – Арсенал (Лондон, Англия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB644CC9D38FF0A733C3154125DC889B3897579C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258014   (338810) от 29.10.2018
+
+Футбол. Лига Европы УЕФА 2018-2019. Группа H. 3-й тур. Марсель (Франция) — Лацио (Италия) (25.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338810.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 октября 2018 года, четверг. 22:00 МСК
+Лига Европы УЕФА 2018 - 2019. Групповой турнир
+Группа H. 3-й тур.
+Марсель (Марсель, Франция) — Лацио (Рим, Италия)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB6085E55FE4A309DFE048DC502B1AD69E4F5E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258027   (338805) от 29.10.2018
+
+Футбол. Лига Европы УЕФА 2018-2019. Группа K. 3-й тур. Ренн (Франция) — Динамо К (Украина) (25.10.2018) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338805.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 октября 2018 года, четверг. 22:00 МСК
+Лига Европы УЕФА 2018 - 2019. Групповой турнир
+Группа K. 3-й тур.
+Ренн (Ренн, Франция) — Динамо (Киев, Украина)(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385EF022DD7DFC96AF840196DA4562326D248A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258375   (338677) от 29.10.2018
 
 Фигурное катание. Гран-при 2018-2019. 1-й Этап. Skate America 2018. Эверетт (США). 1-й День (19.10.2018) WEB-DL [H.264/720p-LQ]
@@ -6,7 +174,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338677.jpg" />
+  <img src="Z:/picture/008/save_picture_338677.jpg" />
 </div>
 
 
@@ -35,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338506.jpg" />
+  <img src="Z:/picture/008/save_picture_338506.jpg" />
 </div>
 
 
@@ -64,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338076.jpg" />
+  <img src="Z:/picture/008/save_picture_338076.jpg" />
 </div>
 
 
@@ -90,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338051.jpg" />
+  <img src="Z:/picture/008/save_picture_338051.jpg" />
 </div>
 
 
@@ -121,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337657.jpg" />
+  <img src="Z:/picture/008/save_picture_337657.jpg" />
 </div>
 
 
@@ -147,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337655.jpg" />
+  <img src="Z:/picture/008/save_picture_337655.jpg" />
 </div>
 
 
@@ -173,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337644.jpg" />
+  <img src="Z:/picture/008/save_picture_337644.jpg" />
 </div>
 
 
@@ -199,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337035.jpg" />
+  <img src="Z:/picture/008/save_picture_337035.jpg" />
 </div>
 
 
@@ -226,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336647.jpg" />
+  <img src="Z:/picture/008/save_picture_336647.jpg" />
 </div>
 
 
@@ -255,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336646.jpg" />
+  <img src="Z:/picture/008/save_picture_336646.jpg" />
 </div>
 
 
@@ -284,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336643.jpg" />
+  <img src="Z:/picture/008/save_picture_336643.jpg" />
 </div>
 
 
@@ -313,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336641.jpg" />
+  <img src="Z:/picture/008/save_picture_336641.jpg" />
 </div>
 
 
@@ -342,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336540.jpg" />
+  <img src="Z:/picture/008/save_picture_336540.jpg" />
 </div>
 
 
@@ -371,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336539.jpg" />
+  <img src="Z:/picture/008/save_picture_336539.jpg" />
 </div>
 
 
@@ -400,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336537.jpg" />
+  <img src="Z:/picture/008/save_picture_336537.jpg" />
 </div>
 
 
@@ -429,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336536.jpg" />
+  <img src="Z:/picture/008/save_picture_336536.jpg" />
 </div>
 
 
@@ -458,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336534.jpg" />
+  <img src="Z:/picture/008/save_picture_336534.jpg" />
 </div>
 
 
@@ -487,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336533.jpg" />
+  <img src="Z:/picture/008/save_picture_336533.jpg" />
 </div>
 
 
@@ -516,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336531.jpg" />
+  <img src="Z:/picture/008/save_picture_336531.jpg" />
 </div>
 
 
@@ -545,7 +713,7 @@ Discovery: Махинаторы / Wheeler Dealers. 1986 Audi Quattro (2009) HDTV
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336425.jpg" />
+  <img src="Z:/picture/008/save_picture_336425.jpg" />
 </div>
 
 
@@ -557,168 +725,6 @@ Discovery: Махинаторы / Wheeler Dealers. 1986 Audi Quattro (2009) HDTV
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D57CEC129187B4F7EA52C7A3A3A3660BB56CABC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074721   (336361) от 20.11.2016
-
-Фигурное катание. Гран-при сезона 2016-2017 "Кубок Китая-2016". Мужчины. Произвольная программа (19.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336361.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 ноября 2016, суббота. 13:45 МСК
-5-й Этап серии Гран-при сезона 2016-2017
-"Кубок Китая-2016", Пекин (Китай)
-(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DFCFE4505A9AD6DDFDC96EEFF0EC93F3B80822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180836   (335687) от 06.11.2017
-
-Фигурное катание. Гран-при 2017-2018. 3-й Этап. Кубок  Китая 2017. Пекин (Китай). 1 День (03.11.2017) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335687.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 ноября 2017 года, пятница.
-Серия Гран-при по фигурному катанию сезона 2017-2018.
-«Cup of China 2017» — 3-й Этап Гран-при. Пекин (Китай).
-1. Танцы на льду. Короткий танец(   Читать дальше...   )Телекомпания: Eurosport 2 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:54:48—01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E7327BFFD383C565194D24C58AB74D114AA302D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955321   (335582) от 10.11.2015
-
-Обзор. Чемпионат Италии 2015-16. 12 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор Чемпионата Италии 2015-2016 годаТелекомпания: НТВ+ Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAEF61F9484F1F46844E87DF35AADEB0B25D2258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955338   (335581) от 10.11.2015
-
-Обзор. Чемпионат России 2015-16. 15 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор Чемпионата России 2015-2016 года.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:360514059A90E203D9D77B57D54C6EDCE6501A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955352   (335580) от 10.11.2015
-
-Обзор. Кубок Англии 2015-2016. 1 Раунд. Обзор матчей (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 1 раунда Кубка Англии 2015-2016.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41AF79764AF9CB57EAF923F69D77A0C0FFAA62D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955343   (335579) от 10.11.2015
-
-90 минут плюс. Итоги 15 тура. (2015) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335579.jpg" />
-</div>
-
-
-###  Подробнее
-
-90 минут лучшая аналитическая программа о российском футболе. В течение полутора-двух-трёх часов рассказывается о самых интересных и актуальных вопросах нашего футбола. Каждую неделю Александр Шмурнов приглашает к себе в студию гостей, где обсуждает с ними самые заметные явления в футболе, произошедшие за неделю.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаПродолжительность: 01:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C327513CA50FB71F124AEA7841ED9DBF49F3767C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1381542   (825615) от 07.05.2020
+
+Berserk | Берсерк [TV-1] [1997, TV, 25 ep] BDRip 1080p 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отважный молодой воин Гатс испытывает судьбу в качестве наёмника на передовой. Роковая встреча сводит Гатса с харизматичным и беспощадным юношей по имени Гриффит. Возглавляя непобедимый отряд, известный как «Банда Ястреба», Гриффит владеет грозной силой, несравнимой ни с чем. Движимые стремлением к статусу, «ястребы» проявляют невиданную доселе доблесть в военных (   Читать дальше...   )Производство: Oriental Light and Magic, ЯпонияЖанр: Приключения, ФэнтезиРежиссер: Такахаси НаохитоОзвучка: Многоголосая закадроваяСубтитры: ПолныеПродолжительность: 25 Эпизодов по 23 Мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817765260D1B8A99404DCE92263315001CA8B186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360458   (825614) от 07.05.2020
 
 Sword Art Online | Мастера Меча Онлайн [ТВ-1] [2012, TV, 25 ep] BDRip 1080p 10-bit raw+rus
@@ -6,7 +32,7 @@ Sword Art Online | Мастера Меча Онлайн [ТВ-1] [2012, TV, 25 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825614.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824197.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ DanMachi  | Gekijouban Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka: 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823833.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Sword Art Online: Extra Edition | Мастера Меча Онлайн: Посл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823832.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823831.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka | Is It Wrong
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823830.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823830.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ DanMachi | Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka II | Is It Wr
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823828.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Manie-Manie: Meikyuu Monogatari / Neo-Tokyo / Нео-Токио (Лабирин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823809.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823807.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Kono Subarashii Sekai ni Shukufuku o! / Этот замечательный ми
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823806.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Ergo Proxy | Эрго Прокси [2006, TV, 23 эп.] BDrip 1080p Hi10P raw + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823123.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ Altered Carbon: Resleeved | Видоизменённый углерод: Вос�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822088.jpg" />
+  <img src="Z:/picture/008/save_picture_822088.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Ni no Kuni | Вторая страна [2019, Movie] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820817.jpg" />
+  <img src="Z:/picture/008/save_picture_820817.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ Eiga Koe no Katachi | A Silent Voice | Форма Голоса [2016, Movie] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820276.jpg" />
+  <img src="Z:/picture/008/save_picture_820276.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ K / K Project / Проект Кей [2012, TV, 13] BD-Rip 720p Hi10p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819307.jpg" />
+  <img src="Z:/picture/008/save_picture_819307.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Tokyo Ghoul | Токийский Гуль [ТВ-1] [2014, TV, 12 из 12] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818916.jpg" />
+  <img src="Z:/picture/008/save_picture_818916.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818910.jpg" />
+  <img src="Z:/picture/008/save_picture_818910.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Strike the Blood | Удар Крови [TV-1] [2013, TV, 24 ep] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816587.jpg" />
+  <img src="Z:/picture/008/save_picture_816587.jpg" />
 </div>
 
 
@@ -479,7 +505,7 @@ Sukitte Ii na yo. / Say "I Love You" / Скажи: «Я люблю тебя» [2
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816274.jpg" />
+  <img src="Z:/picture/008/save_picture_816274.jpg" />
 </div>
 
 
@@ -505,7 +531,7 @@ Kono Naka ni Hitori, Imouto ga Iru! / Nakaimo: My Little Sister is among Them! /
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816273.jpg" />
+  <img src="Z:/picture/008/save_picture_816273.jpg" />
 </div>
 
 
@@ -531,7 +557,7 @@ Gekijouban Bishoujo Senshi Sailor Moon Eternal | Pretty Guardians Sailor Moon Et
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815394.jpg" />
+  <img src="Z:/picture/008/save_picture_815394.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Blend S | Садистская Смесь [2017, TV, 12 ep] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814668.jpg" />
+  <img src="Z:/picture/008/save_picture_814668.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Sword Art Online: Ordinal Scale | Мастера Меча Онлайн: Поря
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814667.jpg" />
+  <img src="Z:/picture/008/save_picture_814667.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Death Parade / Парад смерти [2015, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814308.jpg" />
+  <img src="Z:/picture/008/save_picture_814308.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Ruby Weiss Blake Yan (RWBY) / Red White Black Yellow (RWBY) / Красная, Б
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813794.jpg" />
+  <img src="Z:/picture/008/save_picture_813794.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ Ruby Weiss Blake Yan (RWBY) / Red White Black Yellow (RWBY) / Красная, Б
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92E2002F9C6CE258CFD7DA40198E74DC9A72F4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504094   (813542) от 22.10.2021
-
-Robot Carnival | Карнавал роботов [1987, OVA, 9 из 9] BDRip 1036p 10-bit raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дамы и господа! Добро пожаловать на карнавал роботов — праздник смерти, радости, печали и любви, разрушений и новой жизни. Карнавал пронесет вас через пространство и время, закружит в танце фантастической робототехники и покажет различные варианты событий, последующие за созданием жизни человеческими руками. Люди жаждут развлечений и опасаются собственных созданий, (   Читать дальше...   )Производство: A.P.P.P.Жанр: фантастика, меха, драмаПеревод: MolchoonЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 9 эп. по 5-20 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D7C5036EBB1D9D4FF18BA5E64AAB08CDD16029
 ```
 
 https://mybot314.ru/tekegram_catalog/

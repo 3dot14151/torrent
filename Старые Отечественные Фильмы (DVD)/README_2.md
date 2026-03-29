@@ -1,3 +1,29 @@
+###  Публикация: 927805   (523866) от 14.08.2015
+
+Сыщик (1979) DVD9 (серии 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_523866.jpg" />
+</div>
+
+
+###  Подробнее
+
+После армии Женька Кулик пришел работать в милицию. Занимаясь бытовыми делами и мелкими кражами, он мечтал ловить настоящих преступников. Его даже за это «сыщиком» прозвали. И вот однажды Женькина мечта сбылась - лицом к лицу он столкнулся с матерым бандитом…Производство: СССР / к/с имени М. ГорькогоЖанр: Боевик, КриминалРежиссер: Владимир ФокинАктеры: Андрей Ташков, Борис Химичев, Александр Пашутин, Игорь Кваша, Леонид Ярмольник, Лариса Лужина, Владимир Волков, Николай Скоробогатов, Вадим Захарченко, Валерий Беляков, Юрий Сорокин, Юрий Гусев, Олег ЧайкаЯзык субтитров: РусскийПродолжительность: 01:02:36 + 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD263E81074FAD01C1810731B0AA84D94CA2BE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 72652   (520660) от 29.06.2022
 
 Раба любви (1975) DVD5 [Реставрация КП]
@@ -6,7 +32,7 @@
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520660.jpg" />
+  <img src="Z:/picture/008/save_picture_520660.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520486.jpg" />
+  <img src="Z:/picture/008/save_picture_520486.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518565.jpg" />
+  <img src="Z:/picture/008/save_picture_518565.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516144.jpg" />
+  <img src="Z:/picture/008/save_picture_516144.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515571.jpg" />
+  <img src="Z:/picture/008/save_picture_515571.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515425.jpg" />
+  <img src="Z:/picture/008/save_picture_515425.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515421.jpg" />
+  <img src="Z:/picture/008/save_picture_515421.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514940.jpg" />
+  <img src="Z:/picture/008/save_picture_514940.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512282.jpg" />
+  <img src="Z:/picture/008/save_picture_512282.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510715.jpg" />
+  <img src="Z:/picture/008/save_picture_510715.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506371.jpg" />
+  <img src="Z:/picture/008/save_picture_506371.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_493523.jpg" />
+  <img src="Z:/picture/005/save_picture_493523.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477264.jpg" />
+  <img src="Z:/picture/008/save_picture_477264.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474180.jpg" />
+  <img src="Z:/picture/008/save_picture_474180.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471496.jpg" />
+  <img src="Z:/picture/008/save_picture_471496.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464645.jpg" />
+  <img src="Z:/picture/008/save_picture_464645.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462022.jpg" />
+  <img src="Z:/picture/008/save_picture_462022.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455537.jpg" />
+  <img src="Z:/picture/008/save_picture_455537.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455531.jpg" />
+  <img src="Z:/picture/008/save_picture_455531.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453517.jpg" />
+  <img src="Z:/picture/008/save_picture_453517.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444949.jpg" />
+  <img src="Z:/picture/008/save_picture_444949.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442445.jpg" />
+  <img src="Z:/picture/008/save_picture_442445.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438396.jpg" />
+  <img src="Z:/picture/008/save_picture_438396.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437731.jpg" />
+  <img src="Z:/picture/008/save_picture_437731.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434804.jpg" />
+  <img src="Z:/picture/008/save_picture_434804.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C44F65CF05F8A2F638E534944E3BEA23FB6DD6C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707236   (434800) от 06.10.2013
-
-Риск (1970) DVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение фильма "Марианна" (1967). Действие происходит в годы войны в польском городе, оккупированном фашистами. Советский разведчик, скрывающийся под именем майора немецкой медицинской службы Курца, и радистка Мария получают задание достать карты и схемы укрепрайона... 1944 год. На польском направлении фашисты создают секретный оборонительный заслон. (   Читать дальше...   )Жанр: Военный, ДрамаРежиссер: Василе ПаскаруАктеры: Наталья Зорина, Леонхард Мерзин, Николай Бурляев, Улдис Пуцитис, Вацлав Дворжецкий, Олгерт Кродерс, Герман Юшко, Олев Эскола, Игорь Стариков, Казимир ЗабулёнисПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC7F18CA819F34F70C905C36DA15B9F1BD886F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

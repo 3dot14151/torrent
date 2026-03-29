@@ -1,3 +1,55 @@
+###  Публикация: 1060526   (452951) от 08.10.2016
+
+Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The Yoda Chronicles (2013) WEB-DLRip [H.264] (сезон 1, серии 1-3 из 3) MP4|1024x576]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступило время тяжких испытаний. На просторах галактики бушует бесконечная война, где зловещий Дарк Сидиус и его приспешники состряпали новый план свержения Республики. Тем временем в академии джедаев, магистр Йода обучает молодых падаванов, не подозревая о надвигающейся беде. Под обличием друга, Палпатин заставил Йоду отправится на Альдераан, чтобы помочь Оби-Вану (   Читать дальше...   )Производство: Дания, Китай / LEGOЖанр: Мультфильм, Фантастика, Приключения,Режиссер: Майкл ХэгнерАктеры: Энтони Дэниелс, Тревор Дивэлл, Брайан Добсон, Майкл Донован, Брайан Драммонд, Эндрю Френсис, Адриан Холмс, Том Кэйн, Келли Мецгер, Кирби МорроуПеревод: Дублированный  - ("Невафильм")Язык субтитров: АнглийскийПродолжительность: ~00:22:00 серияРеклама: Без рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057EB0B008498C196C3640EF377FB15342D9F2D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060527   (452773) от 08.10.2016
+
+Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The Yoda Chronicles (2013) WEB-DLRip [H.264] (сезон 2, серии 1-4 из 4) MP4|1024x576]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наступило время тяжких испытаний. На просторах галактики бушует бесконечная война, где зловещий Дарк Сидиус и его приспешники состряпали новый план свержения Республики. Тем временем в академии джедаев, магистр Йода обучает молодых падаванов, не подозревая о надвигающейся беде. Под обличием друга, Палпатин заставил Йоду отправится на Альдераан, чтобы помочь Оби-Вану (   Читать дальше...   )Производство: Дания, Китай / LEGOЖанр: Мультфильм, Фантастика, Приключения,Режиссер: Майкл ХэгнерАктеры: Энтони Дэниелс, Тревор Дивэлл, Брайан Добсон, Майкл Донован, Брайан Драммонд, Эндрю Френсис, Адриан Холмс, Том Кэйн, Келли Мецгер, Кирби МорроуПеревод: Дублированный  - ("Невафильм")Язык субтитров: АнглийскийПродолжительность: ~00:22:00 серияРеклама: Без рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39C0EC34B753763326E3131D8C44DFC77762861F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245488   (452316) от 15.09.2018
 
 Разочарование / Disenchantment (2018) WEBRip [H.264/1080p-LQ] (Сезон 1, серии 1-10 из 10) Good People
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452316.jpg" />
+  <img src="Z:/picture/008/save_picture_452316.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452300.jpg" />
+  <img src="Z:/picture/008/save_picture_452300.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451053.jpg" />
+  <img src="Z:/picture/008/save_picture_451053.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450387.jpg" />
+  <img src="Z:/picture/008/save_picture_450387.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448216.jpg" />
+  <img src="Z:/picture/008/save_picture_448216.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Lego Звездные войны: Хроники Йоды / LEGO STAR WARS: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448097.jpg" />
+  <img src="Z:/picture/008/save_picture_448097.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447963.jpg" />
+  <img src="Z:/picture/008/save_picture_447963.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447827.jpg" />
+  <img src="Z:/picture/008/save_picture_447827.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444104.jpg" />
+  <img src="Z:/picture/008/save_picture_444104.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444102.jpg" />
+  <img src="Z:/picture/008/save_picture_444102.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442997.jpg" />
+  <img src="Z:/picture/008/save_picture_442997.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442346.jpg" />
+  <img src="Z:/picture/008/save_picture_442346.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438998.jpg" />
+  <img src="Z:/picture/008/save_picture_438998.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437968.jpg" />
+  <img src="Z:/picture/008/save_picture_437968.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437166.jpg" />
+  <img src="Z:/picture/008/save_picture_437166.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437097.jpg" />
+  <img src="Z:/picture/008/save_picture_437097.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435798.jpg" />
+  <img src="Z:/picture/008/save_picture_435798.jpg" />
 </div>
 
 
@@ -452,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434011.jpg" />
+  <img src="Z:/picture/008/save_picture_434011.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431542.jpg" />
+  <img src="Z:/picture/008/save_picture_431542.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431427.jpg" />
+  <img src="Z:/picture/008/save_picture_431427.jpg" />
 </div>
 
 
@@ -530,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431367.jpg" />
+  <img src="Z:/picture/008/save_picture_431367.jpg" />
 </div>
 
 
@@ -556,7 +608,7 @@ LEGO Звездные войны: Хроники Йоды / LEGO Star Wars: The 
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430003.jpg" />
+  <img src="Z:/picture/008/save_picture_430003.jpg" />
 </div>
 
 
@@ -582,7 +634,7 @@ LEGO Звездные войны: Истории дроидов / LEGO Star Wars
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429995.jpg" />
+  <img src="Z:/picture/008/save_picture_429995.jpg" />
 </div>
 
 
@@ -608,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429871.jpg" />
+  <img src="Z:/picture/008/save_picture_429871.jpg" />
 </div>
 
 
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40CC0866C25606C1168E108A7E8D899053AF887D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063403   (429787) от 18.10.2016
-
-LEGO Звездные войны: Хроники Йоды / LEGO Star Wars: The Yoda Chronicles (2013) WEB-DL [H.264/720p] (Сезон 1 - 2, серии 7 из 7)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступило время тяжких испытаний. На просторах галактики бушует бесконечная война, где зловещий Дарк Сидиус и его приспешники состряпали новый план свержения Республики. Тем временем в академии джедаев, магистр Йода обучает молодых падаванов, не подозревая о надвигающейся беде. Под обличием друга, Палпатин заставил Йоду отправится на Альдераан, чтобы помочь Оби-Вану (   Читать дальше...   )Производство: Дания, КитайЖанр: Детский, Приключения, ФантастикаРежиссер: Майкл ХэгнерПеревод: ДублированныйСубтитры: Английские (вшитые, отключаемые)Продолжительность: 7 серий x 00:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00872FE9E4DA5F2B4374DA06F69C1C8784F9D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 830239   (428099) от 11.10.2014
-
-Путешествия Адибу: Как устроен человек / Adiboo Adventure: Inside The Human Body (2006) SATRip (40 из 40 серий)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебный мальчик Адибу и его друг Робиток переносятся в тело человека, чтобы исследовать, как работают все органы и системы. Вместе с ними мы переживем фантастическое приключение и узнаем много нового и полезного. Ведь человек — одна из самых больших загадок природы.
-А вы знаете, как устроено человеческое тело? Знают некоторые, но не все, и особенно дети. Вот и (   Читать дальше...   )Жанр: Компьютерная анимация, ДетскийРежиссер: Эрик БастьеПерсонажи: Адибу, Робиток, Бузи, ОдилияПеревод: ДублированныйПродолжительность: 40 х 00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7A15A008EA2B84DD72055D7C175389D0230BDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

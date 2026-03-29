@@ -6,7 +6,7 @@ BBC: В какой Вселенной мы находимся? / Which Universe 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33724.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32061.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32042.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31848.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ BBC. Древние державы / Ancient Powers (2023) WEB-DL [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31125.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30399.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ BBC. 1929: Великий крах / 1929: The Great Crash (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30396.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ BBC: Нацизм - Предостережение истории / The Nazis: A
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30090.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30085.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ BBC: Апокалипсис динозавров / Dinosaur Apocalypse (2022) WE
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30070.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29980.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ BBC: Грязные города / Filthy Cities (2011) HDTV [H.264/1080i] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29951.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29876.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ BBC: Планета людей / BBC: Human planet (2011) BDRemux [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29763.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ BBC. Космическая одиссея. Путешествие по гала
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29664.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29663.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ BBC. Отвага и предательство: Столетняя война /
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29642.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) BDRemux [H.26
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29639.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BBC. Теории заговора. Вакцинные войны / Conspiracy F
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29566.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ BBC: Аляска. Земли замёрзшего королевства / Alas
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29537.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29537.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BBC: Вулканы в космосе / Space Volcanoes (2017) HDTV [H.264/1080i
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29528.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ BBC. Нас уже 7.7 миллиардов человек. Дальше - бо�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29357.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ BBC: Horizon. Тёмная сторона Всемирной Паутины / In
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29334.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ BBC: Теории заговора: Тайное правительство и �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29303.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ BBC. Подделка или удача / Fake or Fortune? (2011) HDTVRip (се�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28997.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ BBC. История возникновения лекарств (Спасите�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28993.jpg" />
 </div>
 
 

@@ -1,3 +1,90 @@
+###  Публикация: 1431378   (167311) от 13.12.2020
+
+Sodom - Genesis XIX (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Superstition (1:02)
+02. Sodom & Gomorrah (4:06)
+03. Euthanasia (3:54)
+04. Genesis XIX (7:09)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D1C5D2B909973B9C1782D1FE8E5934E173BAB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672817   (167291) от 30.10.2023
+
+Viogression - Perception Blur (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Execution (Execution Demo)
+02. Fleshlords (Execution Demo)
+03. Nothing (Psychosomatic Insanity) (Execution Demo)
+04. Survival Denial (Execution Demo)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:115AAF40210D082D59C2521A0ACFA33C1206ECE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408427   (167107) от 30.10.2023
+
+Skeletal Remains - Devouring Mortality (2018) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ripperology (5:21)
+02. Seismic Abyss (4:34)
+03. Catastrophic Retribution (5:29)
+04. Devouring Mortality (3:59)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED56701BF54DB11DB9FCA95B04D6132652179A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516228   (167101) от 10.12.2021
 
 Soul Remnants - Raising The Sacrificial Dagger (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
@@ -6,7 +93,7 @@ Soul Remnants - Raising The Sacrificial Dagger (2021) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167101.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Animal Drive - Bite! (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167063.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Matter Of Taste - Chateau Obscure (1996) [FLAC|Lossless|image + .cue] <Progressi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166990.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Crimson Tears - Gothica (2005) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166985.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Disbelief - Navigator (2007) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166980.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Exhorder - Mourn The Southern Skies (2019) [FLAC|Lossless|image + .cue] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166972.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Realm - Endless War (1988) Reissued 2006 [FLAC|Lossless|image + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166968.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Oopart - Echoes of the Shadhavar (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166963.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Loudblast - Manifesto (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166954.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Aneuma - Climax (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166939.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Crimson Tears - The Dark Awakening (2007) [FLAC|Lossless|image + .cue] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166935.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Asgarth - Zeldatik (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166932.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Andra - Circle Of Fire (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166926.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Everest Queen - 2 Albums (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166914.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Lordi - Lordiversity: Abracadaver (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166893.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Rising Faith - The Arrival (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166889.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Dream Theater - Distant Memories - Live In London (2020) 3xCD [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166847.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Crystal Viper - The Last Axeman (2022) Japanese Edition, Compilation [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166837.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Soilwork - A Whisp of the Atlantic (2021) EP [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166799.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Garden Of Delight - Lutherion II (2006) [FLAC|Lossless|image + .cue] <Gothic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166480.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Baring Teeth - The Path Narrows (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166465.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Autopsy - Ashes, Organs, Blood and Crypts (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166454.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Garden Of Delight - Lutherion III (2007) [FLAC|Lossless|image + .cue] <Gothic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166448.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Garden Of Delight - Lutherion III (2007) [FLAC|Lossless|image + .cue] <Gothic Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55A15943494D6626AFA3F0073380519F985E1D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673091   (166418) от 31.10.2023
-
-Garden Of Delight - Lutherion I (2005) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stigmata (Nailed)
-02. Bleak Horizon
-03. The Sinners
-04. Immortality(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47AF304DDEDA567C211725BA987101475C33B74E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673097   (166393) от 31.10.2023
-
-Garden Of Delight - Darkest Hour (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Exordium
-02. Adoration
-03. Transmission
-04. Reign(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5348DE2659F9CD373003EFDF395B2505A3E0969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516347   (166286) от 11.12.2021
-
-Vibrion - Bacterya (2016) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Day Of Replication
-02 - The Wrath Of The Beast
-03 - The Worm Immune
-04 - The Walls Of Caffa(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D871CEC512A67884C5524478CFA415D954B9ECA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

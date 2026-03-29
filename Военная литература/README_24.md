@@ -1,3 +1,29 @@
+###  Публикация: 520935   (631441) от 09.07.2012
+
+С.П.Махов | Тайны подводной войны. 1914-1945 [2012] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_631441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Историю Первой и Второй мировых войн трудно представить без подводной войны, которую вели их участники. Подлодки сразу зарекомендовали себя как грозное оружие, представляющее заметную угрозу для боевых кораблей, и один из главных родов сил флота в борьбе на коммуникациях противника. Неудивительно, что подводная война вызывает такой большой интерес у любителей военной истории. Это подтверждается большим количеством дискуссий, которые возникают в сети Интернет, где на исторических форумах ведутся жаркие споры на темы, был ли торпедирован германский линкор "Тирпиц", каковы реальные успехи наших подводников, насколько правомерно было потопление британских лайнеров "Атсния" и "Лузитания" и т.п. И уж, конечно, отдельно стоит выделить интерес к подводной войне, которую вели немецкие подводные лодки во время обеих мировых войн. Данная книга представляет собой сборник, составленный из работ российских исследователей и историков, посвященных отдельным периодам и эпизодам подводной войны.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8BF0EEB3EAA7C7CBE13E356B73A52B4047F231
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906285   (631407) от 15.06.2015
 
 Книжная серия | Гроссмейстеры тайной войны [7 книг] (2011-2015) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631407.jpg" />
+  <img src="Z:/picture/008/save_picture_631407.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630630.jpg" />
+  <img src="Z:/picture/008/save_picture_630630.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629489.jpg" />
+  <img src="Z:/picture/008/save_picture_629489.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629483.jpg" />
+  <img src="Z:/picture/008/save_picture_629483.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629345.jpg" />
+  <img src="Z:/picture/008/save_picture_629345.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628343.jpg" />
+  <img src="Z:/picture/008/save_picture_628343.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628342.jpg" />
+  <img src="Z:/picture/008/save_picture_628342.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627987.jpg" />
+  <img src="Z:/picture/008/save_picture_627987.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627514.jpg" />
+  <img src="Z:/picture/008/save_picture_627514.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_627156.jpg" />
+  <img src="Z:/picture/005/save_picture_627156.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626583.jpg" />
+  <img src="Z:/picture/008/save_picture_626583.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626379.jpg" />
+  <img src="Z:/picture/008/save_picture_626379.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625649.jpg" />
+  <img src="Z:/picture/008/save_picture_625649.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625642.jpg" />
+  <img src="Z:/picture/008/save_picture_625642.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624943.jpg" />
+  <img src="Z:/picture/008/save_picture_624943.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624207.jpg" />
+  <img src="Z:/picture/008/save_picture_624207.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624077.jpg" />
+  <img src="Z:/picture/008/save_picture_624077.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624075.jpg" />
+  <img src="Z:/picture/008/save_picture_624075.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624072.jpg" />
+  <img src="Z:/picture/008/save_picture_624072.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624071.jpg" />
+  <img src="Z:/picture/008/save_picture_624071.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623983.jpg" />
+  <img src="Z:/picture/008/save_picture_623983.jpg" />
 </div>
 
 
@@ -556,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623943.jpg" />
+  <img src="Z:/picture/008/save_picture_623943.jpg" />
 </div>
 
 
@@ -582,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623847.jpg" />
+  <img src="Z:/picture/008/save_picture_623847.jpg" />
 </div>
 
 
@@ -608,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623845.jpg" />
+  <img src="Z:/picture/008/save_picture_623845.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623732.jpg" />
+  <img src="Z:/picture/008/save_picture_623732.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:800030E781C799851E37B945EC27440D2949C562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909609   (623714) от 19.06.2015
-
-Р. Андерсон, Р.Ч. Андерсон | Парусные корабли. (2014) [FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая читателю книга прослеживает историю развития парусного судна на протяжении шести тысячелетий - от древних времен до конца XIX века. В ней рассматриваются суда Древнего Египта и Крита, Финикии, Греции и Рима, а также европейские, азиатские и американские суда. Следуя главным направлениям развития северных и южных европейских судов, авторы описывают технические (   Читать дальше...   )Жанр: История, кораблестроениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC373A84146C5DD70D5D75254D0C1C76971B0F9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

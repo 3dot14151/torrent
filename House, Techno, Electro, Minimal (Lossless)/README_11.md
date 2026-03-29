@@ -1,3 +1,90 @@
+###  Публикация: 1252942   (921991) от 18.08.2021
+
+R.Hz - Discography 53 Releases (2016-2021) Ubertrend Records, Toxic Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starry Sky (09:36)
+ 02. Steam (07:19)
+ 03. Scatter (06:50)
+ 04. Comb (06:34)Тип издания: WebЖанр: Dub Techno, Ambient, Techno •Продолжительность: 28:06:27 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83660884DAE8A226FBAB315110A2F41B12856251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096138   (920991) от 23.01.2017
+
+VA - Kind Vibrations (2015) [FLAC|Lossless|tracks] <Downtempo, Ambient, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sufi's Life - Blessings To All [08:49]
+02. Tor.Ma In Dub - The Secret Message [04:00]
+03. Ishdub - Tatanka (Melodica Version) [06:17]
+04. Gnomes of Kush - Jah Love The Kush [03:57](   Читать дальше...   )Жанр: Downtempo, Ambient, HouseПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B568E97F330AFB41E0BC9D7BB28DED519822532B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096400   (920938) от 23.01.2017
+
+VA - Deep Chilled Island Moods - Volumen Uno (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nebu Mitte - With You (Yves Murasca vs. Nebu Revised Re-Twist) [05:40]
+02. Lux Lutious - 3 Lights (Chris Rockz Re-Work) [06:28]
+03. Karol XVII - Maruda (Gorge's Summer Vibes Remix) [07:53]
+04. Jonny Cade - Dotty Hook Up (Pol_On for the Lazy Days Remix) [06:31](   Читать дальше...   )Жанр: Deep House, Chill House, Nu DiscoПродолжительность: 01:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D63A7B28AB0CFAC1146AB45018B5FA27370CE7E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366962   (920717) от 13.03.2020
 
 Four Tet - Sixteen Oceans (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Ambient, IDM, Electronic, Experimental>
@@ -6,7 +93,7 @@ Four Tet - Sixteen Oceans (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Ambient, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920717.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Shingo Nakamura - Glow (The Remixes) (2021) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920688.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Fritz Kalkbrenner - True Colours (2020) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920583.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Adani & Wolf - Here Comes the Hero (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920582.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Boris Brejcha - Violet Pill (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Mi
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920306.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ Kölsch (Kolsch) - Discography 32 Releases (2010-2021) Kompakt [FLAC|Lossless|tr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918643.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Leaving Laurel - Leaving Laurel (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917572.jpg" />
 </div>
 
 
@@ -205,7 +292,7 @@ Scatman John - Scatman's World (1995) [FLAC|Lossless|image + .cue] <Euro House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916839.jpg" />
 </div>
 
 
@@ -234,7 +321,7 @@ Conforce - Kinetic Image (2013) Delsin [FLAC|Lossless]<Techno, Experimental>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916153.jpg" />
 </div>
 
 
@@ -263,7 +350,7 @@ Vitalic - Voyager (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Nu-Disco>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914987.jpg" />
 </div>
 
 
@@ -292,7 +379,7 @@ MMYYLO - Venamy (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Dark D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914055.jpg" />
 </div>
 
 
@@ -321,7 +408,7 @@ Modjo - Modjo (2001) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <House, Disc
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913677.jpg" />
 </div>
 
 
@@ -347,7 +434,7 @@ Dj Antonio - XIII - Deja Vu. 1 Year Together (2007) [FLAC|Lossless|tracks + .cue
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913662.jpg" />
 </div>
 
 
@@ -373,7 +460,7 @@ VA - Cycles 8 (Mixed By Max Graham) (2017) [FLAC|Lossless|WEB|tracks|image] <Pro
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912586.jpg" />
 </div>
 
 
@@ -402,7 +489,7 @@ VA - Global Underground: Select #2 (2017) [FLAC|Lossless|WEB|tracks|image] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912483.jpg" />
 </div>
 
 
@@ -431,7 +518,7 @@ VA - Faze #28: Adriatique (2014) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912279.jpg" />
 </div>
 
 
@@ -460,7 +547,7 @@ VA - Sunset Moods: Tulum (A Selection of Finest Sundowner Island Moods & Grooves
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912270.jpg" />
 </div>
 
 
@@ -489,7 +576,7 @@ K Ø Z L Ø V (K O Z L O V) - Coronavirus (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912221.jpg" />
 </div>
 
 
@@ -515,7 +602,7 @@ VA - Reflections (Dub) (2015) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Minimal
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912174.jpg" />
 </div>
 
 
@@ -544,7 +631,7 @@ VA - Sasha And John Digweed - Northern Exposure Vol. 1-3 (1996-1999) [FLAC, APE|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911981.jpg" />
 </div>
 
 
@@ -570,7 +657,7 @@ Etapp Kyle - Nolove (2020) Ostgut Ton [FLAC|Lossless|WEB-DL|tracks] <Techno, Lef
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911049.jpg" />
 </div>
 
 
@@ -599,7 +686,7 @@ VA - Melodica Electronica Vol.3 (2017) [FLAC|Lossless|tracks] <Deep House, Tech 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910763.jpg" />
 </div>
 
 
@@ -628,7 +715,7 @@ Variant - Discography 36 Releases (2009-2016) echospace [detroit] [FLAC|Lossless
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910174.jpg" />
 </div>
 
 
@@ -639,93 +726,6 @@ Variant - Discography 36 Releases (2009-2016) echospace [detroit] [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E955C33CEBAB4D82FD6486DC13EA411904C234C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990619   (910113) от 26.02.2016
-
-VA - Suntribe Vol.8 (2004) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Righi & Dan - Havana Loca (4:59)
-02. Unisono fx - Rain (latin club) (5:20)
-03. Asia Teck - Medioriente (6:39)
-04. Friday Tribe - King Chop (5:16)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8073D8036C1B92E828AFCFEF0CAF536CA39A7F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990814   (910064) от 26.02.2016
-
-Millimetric - Reconfiguration (2011) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, EBM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoking Kills (The Hacker Remix) (06:57)
-02. Dans Mes Yeux (Lyynk Remix) (05:11)
-03. Manic Depression (David Carretta Remix) (07:27)
-04. Colargol (Adriano Canzian Remix) (06:53)(   Читать дальше...   )Жанр: Techno, Electro, EBMПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3C094639010A57B8DDA74600DFF3FA62CD7490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990684   (910025) от 26.02.2016
-
-VA - Salvacion Ibiza (2003) [FLAC|Lossless|tracks + .cue] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_910025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam La More - Takin' Hold (6:00)
-02. Demetreus - Better Love (5:50)
-03. Noferini & DJ Guy - A Sunny Day (5:19)
-04. Gaudino feat. Crystal Waters - Destination Unknown (5:05)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23976FCC2A27E61CB5EDCEF7AF1753C09480DC7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

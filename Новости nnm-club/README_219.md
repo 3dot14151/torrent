@@ -1,3 +1,162 @@
+###  Публикация: 502378   (272715) от 29.11.2018
+
+Доктор Хаус / House M.D. (2004-2012) WEB-DLRip (сезоны 1-8, серии 1-177 из 177) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Грегори Хаус (Хью Лори) – выдающийся врач и злой гений, который не отличается проникновенностью в общении с больными и коллегами и с удовольствием избегает и тех, и других, однако при этом способен привести к успеху самые запутанные медицинские случаи.
+Все свое время Хаус проводит в борьбе с собственной болью, которая порождает его жесткую ядовитую манеру (   Читать дальше...   )Производство: США, Heel & Toe Films, Shore Z Productions, Bad Hat Harry ProductionsЖанр: драма, детективРежиссер: Грег Яйтанс, Деран Сарафян, Дэвид СтрейтонАктеры: Хью Лори, Роберт Шон Леонард, Лиза Эдельштейн, Омар Эппс, Джесси Спенсер, Дженнифер Моррисон, Боббин Бергсторм, Оливия Уайлд, Питер Джекобсон, Кэл Пенн и др.Перевод: Многоголосый профессиональный (LostFilm)Язык озвучки: РусскийПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1ECA97794AD65F2B03C3DC0B8D947062FE0B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337692   (272188) от 12.11.2019
+
+Оксана Решетнёва | Фотошоп с нуля 4.0 (2019) PCRec [H.264/1080р-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый полный курс по Adobe Photoshop для начинающих пользователей на русском языке от проекта "Фотошоп-мастер".
+Откройте для себя все возможности Adobe Photoshop — программы №1 для графического дизайна и обработки фотографий.
+Начиная с 4 главы курса, к каждому уроку будет домашнее задание, состоящее из 2-6 упражнений. Каждое упражнение – это маленькая законченная (   Читать дальше...   )Производство: Фотошоп мастерЖанр: Видеоуроки, ФотошопПродолжительность: 32:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B3723E19F1917C62FC8A9E19B86382D078D53C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659555   (272187) от 12.11.2019
+
+А. Бернацкий и др.| Киберсант-Вебмастер (2010) [unpacked]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс «Киберсант-Вебмастер» пригодится всем, кто хочет быстро и эффективно научиться решать задачи веб-мастеринга и стать спецом по созданию веб-сайтов профессионального уровня. В нем пошаговый и доходчиво изложен материал, начиная с самых азов; видео уроки, показывающие и объясняющие буквально на пальцах, как создается профессиональный сайт. Курс Киберсант-Вебмастер (   Читать дальше...   )Жанр: Вебдизайн, Веб-мастеринг, Создание сайтовФормат: unpacked
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4031B1C48CD2B7AF695EE2410A913D10385BC294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167488   (272184) от 12.11.2019
+
+Need for Speed: ProStreet (2007) [Ru/En] (1.1/dlc) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая игра серии Need for Speed даст вам возможность посоревноваться с лучшими уличными гонщиками в множестве турниров. Теперь вам не нужно прятаться от копов – все заезды проводятся легально на специально огороженных участках дорог. В Need for Speed ProStreet вашими главными соперниками будут очень умелые гонщики. На трассе они ведут себя очень агрессивно и в любой (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЖанр: Racing (Cars), Simulator, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CAB42DAE64930E325EBD21A7CBBC7AB6FE1A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273045   (272171) от 24.12.2010
+
+Windows XP Pro SP3 StableOS 1.10 FullLite 1.10 [Русский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_272171.jpg" />
+</div>
+
+
+###  Подробнее
+
+StableOS это быстроразвертываемый дистрибутив Windows XP SP3 без лишних украшений . Отличается от большинства сборок тем, что в нём вы не найдете тем оформления и огромных паков с программами. Вы не будете скачивать тонны ненужного софта. В StableOS есть только одна тема оформления: классическая.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083602   (272049) от 17.12.2016
+
+StarChip - "космический корабль" в виде чипа, который сможет добраться до Альфы Центавра за 20 лет
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_272049.jpg" />
+</div>
+
+
+###  Подробнее
+
+С учетом нынешнего уровня развития космический технологий для того, чтобы добраться до ближайшей к Солнцу звезды, к Альфе Центавра, потребуется около 18 тысячи лет. Но расчеты показывают, что крошечный космический "корабль" в виде чипа с "солнечным парусом", разогнанный до скорости в одну пятую от скорости света, способен преодолеть это расстояние (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084213   (271902) от 17.12.2016
 
 Extensis Suitcase Fusion 7 v18.2.1 [Multi]
@@ -6,7 +165,7 @@ Extensis Suitcase Fusion 7 v18.2.1 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271902.jpg" />
+  <img src="Z:/picture/008/save_picture_271902.jpg" />
 </div>
 
 
@@ -35,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_271730.jpg" />
+  <img src="Z:/picture/005/save_picture_271730.jpg" />
 </div>
 
 
@@ -61,7 +220,7 @@ Phase One Capture One Pro 12.0.0.291 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271640.jpg" />
+  <img src="Z:/picture/008/save_picture_271640.jpg" />
 </div>
 
 
@@ -87,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271603.jpg" />
+  <img src="Z:/picture/008/save_picture_271603.jpg" />
 </div>
 
 
@@ -113,7 +272,7 @@ Windows 10 Enterprise 1909 18363.476 x64 Rus by OneSmiLe (13.11.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271116.jpg" />
+  <img src="Z:/picture/008/save_picture_271116.jpg" />
 </div>
 
 
@@ -142,7 +301,7 @@ Windows 10 Enterprise LTSC 2019 17763.864 x64 Rus by OneSmiLe (13.11.2019)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271101.jpg" />
+  <img src="Z:/picture/008/save_picture_271101.jpg" />
 </div>
 
 
@@ -171,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271096.jpg" />
+  <img src="Z:/picture/008/save_picture_271096.jpg" />
 </div>
 
 
@@ -197,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271079.jpg" />
+  <img src="Z:/picture/008/save_picture_271079.jpg" />
 </div>
 
 
@@ -223,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_271053.jpg" />
+  <img src="Z:/picture/005/save_picture_271053.jpg" />
 </div>
 
 
@@ -250,7 +409,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru] (1.06) Repack Other s [Ultimate HD Edi
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270930.jpg" />
+  <img src="Z:/picture/008/save_picture_270930.jpg" />
 </div>
 
 
@@ -276,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_270780.jpg" />
+  <img src="Z:/picture/005/save_picture_270780.jpg" />
 </div>
 
 
@@ -302,7 +461,7 @@ ABBYY Finereader 14 Enterprise  14.0.105.234 Repack (Тестирование) [
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270687.jpg" />
+  <img src="Z:/picture/008/save_picture_270687.jpg" />
 </div>
 
 
@@ -329,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270678.jpg" />
+  <img src="Z:/picture/008/save_picture_270678.jpg" />
 </div>
 
 
@@ -356,7 +515,7 @@ FIFA 19 (2018) [Ru/Multi] (1.0) License CPY
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270594.jpg" />
+  <img src="Z:/picture/008/save_picture_270594.jpg" />
 </div>
 
 
@@ -382,7 +541,7 @@ Grand Theft Auto IV / GTA IV [XBOX360] [PAL / NTSC/J] [XGD2] [Ru] (2008) | R.G. 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270584.jpg" />
+  <img src="Z:/picture/008/save_picture_270584.jpg" />
 </div>
 
 
@@ -410,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270583.jpg" />
+  <img src="Z:/picture/008/save_picture_270583.jpg" />
 </div>
 
 
@@ -436,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270581.jpg" />
+  <img src="Z:/picture/008/save_picture_270581.jpg" />
 </div>
 
 
@@ -462,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270577.jpg" />
+  <img src="Z:/picture/008/save_picture_270577.jpg" />
 </div>
 
 
@@ -488,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_270364.jpg" />
+  <img src="Z:/picture/005/save_picture_270364.jpg" />
 </div>
 
 
@@ -514,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_270339.jpg" />
+  <img src="Z:/picture/005/save_picture_270339.jpg" />
 </div>
 
 
@@ -525,164 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338114   (270204) от 14.11.2019
-
-Adobe Photoshop 2020 21.0.1.47 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Photoshop CC 2020 - новая, следующая за CC 2019 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A5EE2D8FA5D8C07EDE2E8B1814CB957F228461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187279   (270021) от 06.12.2017
-
-Хождение по мукам (2017) WEBRip [H.264/1080p-LQ] (серии 1-12 из 12)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о судьбах русской интеллигенции накануне, во время и после революционных событий 1917 года. В центре сюжета — история жизни двух сестер Булавиных, Дарьи и Катерины, и их возлюбленных: офицера Вадима Рощина и инженера Балтийского завода Телегина. Вихри мировой войны, двух революций и Гражданской войны разносят четырех главных героев по разным уголкам (   Читать дальше...   )Производство: РоссияЖанр: драмаРежиссер: Константин ХудяковАктеры: Юлия Снигирь, Анна Чиповская, Павел Трубинер, Леонид Бичевин, Антон Шагин, Андрей Мерзликин, Светлана Ходченкова, Алексей Колган, Александр Яценко, Евгений Стычкин и др.Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17167B92B99E06FBBF8DF29B6FEC901C98C8479F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266497   (269785) от 02.12.2018
-
-mini10PE 18.12.2 [Ru] [x86/x64] (авторская раздача)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мини загрузочный диск на базе Microsoft Windows 10 Pro 10.0.17763.107 Version 1809 для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления, диагностики компьютера, восстановления файлов.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C35D1CD31CD6BB751E5D3FC7213FE825DA8D9810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266278   (269764) от 02.12.2018
-
-Windows Login Unlocker 1.0 (тестирование) [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана для сброса, изменения  паролей или разблокировки учетных записей Windows.
-С её помощью можно восстановить доступ к любой учетной записи Windows, будь то локальный профиль или аккаунт Microsoft.
-Позволяет вернуть доступ без повреждения системных файлов и переустановки системы.Язык интерфейса: English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9777430B5104084BFD6315EB464DB6D8B4B1BBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264015   (269750) от 02.12.2018
-
-HellGate: London / London 2038 (2007/2018) [Ru/En] (1.2a) Repack R.G. Revenants
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269750.jpg" />
-</div>
-
-
-###  Подробнее
-
-London 2038 не является переизданием вышедшим в 2018 году. История игры проста - демонические существа вырвались наружу, уничтожая город за городом. Кто-то уже сотни лет ожидал пришествия демонов, как тамплиеры, а для кого-то появление дьявольских существ оказалась роковой неожиданностью.Тип издания: RepackРазработчик: Flagship StudiosЖанр: Action (Shooter), RPG (Rogue/Action), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54FEF2F302039232B4C29194DCC06C286CA44CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338267   (269298) от 15.11.2019
-
-VMware Workstation 15 Pro 15.5.1 Build 15018445 (15.11.2019) RePack by KpoJIuK [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269298.jpg" />
-</div>
-
-
-###  Подробнее
-
-VMware Workstation — популярная программа для создания нескольких виртуальных компьютеров в одной системе. Предназначена в первую очередь для программистов и системных администраторов, которым необходимо протестировать приложения, работающие в различных средах. Собственная технология VMware MultipleWorlds дает возможность изолировать операционные системы и приложения (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4871C79E84E25E285DAD2E35B34899C405BB4BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1455191   (1025702) от 18.03.2021
+
+Stubbs the Zombie in Rebel Without a Pulse (2005) [Ru/Multi] (1.3.0.6351) Repack Other s
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025702.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте зомби, творите беспредел и жрите мозги. 1959 год. Город Панчбоул — столица прогресса и образец прекрасной жизни. Однако вам предстоит доказать, что закон и порядок — ничто по сравнению с целеустремленным зомби. Парень Мэгги вернулся, а это значит только одно — Панчбоул больше никогда не будет прежним!Тип издания: RepackРазработчик: AspyrЖанр: Action, 3D, 3rd PersonЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4BBA6FED9F459F199467020BB1EC76506FD73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103611   (1021346) от 12.04.2021
+
+SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021346.jpg" />
+</div>
+
+
+###  Подробнее
+
+В SimCity 4 вы не просто строите свой город, а вдыхаете в него жизнь. Создайте мегаполис, объединяя самые разные населенные пункты, среди которых могут быть спальные районы, высокотехнологические городские центры, места отдыха и фермерские общины. Можно создать регион, в котором города, связанные полностью интегрированной транспортной системой, будут иметь общие (   Читать дальше...   )Тип издания: LicenseРазработчик: MaxisЖанр: Strategy (God Sim, Manage, Busin., Real-time), 3DЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F306ABCC0026B2DE0C5F3ECFC89E626EE7DB491E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133765   (1017979) от 02.05.2021
 
 Hammer of the Gods (1994) [Ru/En] (1.0.2035) License
@@ -6,7 +58,7 @@ Hammer of the Gods (1994) [Ru/En] (1.0.2035) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017979.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Hocus Pocus (1994) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017170.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ The Ultimate Doom (1995) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016640.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Sanitarium / Шизариум (1998) [Ru/En] (1.0hf) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016630.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Inherit the Earth: Quest for the Orb (1994) [Ru/En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016525.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Nancy Drew: Curse of Blackmoor Manor / Нэнси Дрю: Проклятье п�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016054.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013648.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Slipways (2021) [Multi] (1.0) License Skidrow
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012624.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Olympus 2207 (2014) [Ru] (1.2) Mod NebesaGames
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012046.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010923.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010915.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Breath of Fire IV (2003) [Ru/En] (1.0) Repack Other s
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010408.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ West of Dead (2020) [Ru/Multi] (1.11.8.29/dlc) License GOG [Path of the Crow Del
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007206.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Shadoworlds (1992) [En] (0.9.1) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004950.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Back to the Future: The Game (2010) [Multi] (1.0.0.8) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004186.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Secret Files: Tunguska (2009) [En] (1.02) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003925.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Jade Empire (2005) [Ru] (1.00) Repack xatab [Special Edition]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003650.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Call to Power 2 (2000) [En] (1.1) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003027.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Shadow Watch [Ru] (P) 2000
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000372.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Zoo Tycoon [Ru/En] (P) 2001 | 7Wolf
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997639.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ MediEvil: Dilogy [Ru] (PC/Emul) 1998-2000 | Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997632.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Re-Volt [En/Multi8] (RePack/1.2a12.1225) 1999 | R.G. Revenants
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993878.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ Meet the Robinsons / В гости к Робинсонам (2007) [Ru] (1.0) Lic
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985670.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Rugby 20 (2020) [Multi] (1.0.0) License HOODLUM
 >>Simulation (Sport)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984394.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ Rugby 20 (2020) [Multi] (1.0.0) License HOODLUM
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:577E50CB60172958A5193E1C1C8D4A36B717F9A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355708   (981893) от 27.01.2020
-
-Vampire: The Masquerade - Bloodlines (2004) [Multi] (1.2/10.2) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ночная жизнь Лос-Анджелеса всегда била ключом, но никто не знает наверняка, что скрывается за сверкающими огнями и злачными ночными клубами. Пока смертные живут обычной жизнью, кланы вампиров плетут сети заговоров, стремясь осуществить свои таинственные цели. Едва став вампиром, вы предстали перед Принцем города, решившим покарать вас за грехи вашего создателя. Неизвестный (   Читать дальше...   )Тип издания: LicenseРазработчик: Troika GamesЖанр: Экшн, Ролевая игра, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEF1628922EECBBF49E0C401DC7B25B4118B8C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973487   (979881) от 08.01.2016
-
-Evil Dead: Regeneration (2005) [Ru/En] (1.0) Repack R.G. Revenants
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эксперименты безумного доктора пробудили древнее, но вместе с тем такое знакомое Зло, которое немедленно начало распространяться по округе, уничтожая и извращая все живое на своем пути. Настало время старине Эшу опять спасать мир! На этот раз герою потребуется все его мужество, удача и умение обращаться с оружием, чтобы в очередной раз остановить Зло, но теперь у (   Читать дальше...   )Тип издания: RepackРазработчик: Cranky Pants GamesЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C6EA121D12E46B0625129D87356534C09753D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

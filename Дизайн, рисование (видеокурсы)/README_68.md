@@ -1,3 +1,32 @@
+###  Публикация: 1618023   (201508) от 09.03.2023
+
+Kalacheva School, Вера Соколова | Новый английский курсив (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_201508.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Новый английский курсив» — самый свежий онлайн-курс Веры Соколовой для всех, кто хочет немного «похулиганить» в каллиграфическом смысле слова
+
+Мой прежний курс «Английский курсив» был максимально классическим, не обладал развлекательным моментом и, увы, безнадёжно устарел.
+(   Читать дальше...   )Производство: Kalacheva SchoolЖанр: Рисование, КаллиграфияЯзык озвучки: РусскийПродолжительность: 03:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7BAE2A900154B76FE04187BF2B71BCD2727119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620233   (201143) от 19.03.2023
 
 FXPHD, Andrew Lowell | HOU220 – Houdini FX, Particle Fundamentals and Fuzzy Logic (2019) WEB-DL [EN]
@@ -6,7 +35,7 @@ FXPHD, Andrew Lowell | HOU220 – Houdini FX, Particle Fundamentals and Fuzzy Lo
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201143.jpg" />
+  <img src="Z:/picture/005/save_picture_201143.jpg" />
 </div>
 
 
@@ -34,7 +63,7 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201126.jpg" />
+  <img src="Z:/picture/005/save_picture_201126.jpg" />
 </div>
 
 
@@ -63,7 +92,7 @@ ArtiGood, Николай Солодов | Акварельный курс «Зи
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201071.jpg" />
+  <img src="Z:/picture/005/save_picture_201071.jpg" />
 </div>
 
 
@@ -91,7 +120,7 @@ Vertex School, Keith Kamholz | Houdini FX & Redshift (2022) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201050.jpg" />
+  <img src="Z:/picture/005/save_picture_201050.jpg" />
 </div>
 
 
@@ -120,7 +149,7 @@ Udemy, Pirate Sheep | Houdini Hacks: 3D Dynamics for Absolute Beginners (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201039.jpg" />
+  <img src="Z:/picture/005/save_picture_201039.jpg" />
 </div>
 
 
@@ -149,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_201020.jpg" />
+  <img src="Z:/picture/004/save_picture_201020.jpg" />
 </div>
 
 
@@ -178,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_201019.jpg" />
+  <img src="Z:/picture/004/save_picture_201019.jpg" />
 </div>
 
 
@@ -204,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200999.jpg" />
+  <img src="Z:/picture/004/save_picture_200999.jpg" />
 </div>
 
 
@@ -233,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200961.jpg" />
+  <img src="Z:/picture/004/save_picture_200961.jpg" />
 </div>
 
 
@@ -261,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200939.jpg" />
+  <img src="Z:/picture/005/save_picture_200939.jpg" />
 </div>
 
 
@@ -288,7 +317,7 @@ Skillshare, Derek Davidson | 3D Creature Modeling with Nomad Sculpt (2023) WEB-D
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200935.jpg" />
+  <img src="Z:/picture/005/save_picture_200935.jpg" />
 </div>
 
 
@@ -316,7 +345,7 @@ Skillshare, Jake Fleming | Vector To Pixel Art (2020) WEB-DL [EN]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200810.jpg" />
+  <img src="Z:/picture/005/save_picture_200810.jpg" />
 </div>
 
 
@@ -342,7 +371,7 @@ Class101, Studio Pants | Retro Video Game Like Illustrations: Pixel Art for Begi
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200795.jpg" />
+  <img src="Z:/picture/005/save_picture_200795.jpg" />
 </div>
 
 
@@ -368,7 +397,7 @@ DESIGNLINE, Сергей Гуров | Поиск и реализация виз�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200771.jpg" />
+  <img src="Z:/picture/005/save_picture_200771.jpg" />
 </div>
 
 
@@ -394,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200769.jpg" />
+  <img src="Z:/picture/005/save_picture_200769.jpg" />
 </div>
 
 
@@ -423,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200766.jpg" />
+  <img src="Z:/picture/005/save_picture_200766.jpg" />
 </div>
 
 
@@ -452,7 +481,7 @@ Udemy, Alan Ayoubi | After Effects Animated Graphics Beast (2020) WEB-DL [AD] [E
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200736.jpg" />
+  <img src="Z:/picture/005/save_picture_200736.jpg" />
 </div>
 
 
@@ -478,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200683.jpg" />
+  <img src="Z:/picture/005/save_picture_200683.jpg" />
 </div>
 
 
@@ -507,7 +536,7 @@ Kalacheva School, Аксинья La Paloma | Подозрительные лиц
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200666.jpg" />
+  <img src="Z:/picture/005/save_picture_200666.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ Maria Sw, Мария Приходько | Рисую как Maria Sw 2.0. Тар
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200612.jpg" />
+  <img src="Z:/picture/005/save_picture_200612.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200590.jpg" />
+  <img src="Z:/picture/005/save_picture_200590.jpg" />
 </div>
 
 
@@ -592,7 +621,7 @@ CGcircuit, David Anastácio Ferreira | Houdini Elements - Particles FX (2022) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200572.jpg" />
+  <img src="Z:/picture/005/save_picture_200572.jpg" />
 </div>
 
 
@@ -619,7 +648,7 @@ Geometrium studio, Павел Герасимов | Техническое зад
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200543.jpg" />
+  <img src="Z:/picture/005/save_picture_200543.jpg" />
 </div>
 
 
@@ -648,7 +677,7 @@ class101, tfvkne | From Visualization to Illustration: Understanding Basic Anato
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200509.jpg" />
+  <img src="Z:/picture/005/save_picture_200509.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200495.jpg" />
+  <img src="Z:/picture/005/save_picture_200495.jpg" />
 </div>
 
 
@@ -685,35 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:467981E8172EA359BE7176DB516A8A8488AF5D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623253   (200454) от 01.04.2023
-
-Арт-студия Matita, Егор Матита | Портреты. Достижение фотореализма. Тариф - Я сам (2023) WEB-DL [RU]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого этот курс:
-Курс, основанный на многолетнем опыте преподавания и подкрепленный результатами тысяч наших учеников гарантирует каждому результат в освоении жанра фотореалистичных портретов.
-
-А блок продвижения поможет каждому художнику начать получать заказы на свои услуги и превратить любимое хобби в дело жизни.(   Читать дальше...   )Производство: Арт-студия MatitaЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 72:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33E8CC5E02CFBA179F076969259DC313E90B3C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

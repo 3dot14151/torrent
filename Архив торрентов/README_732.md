@@ -6,7 +6,7 @@ Nox App Player 7.0.1.6000 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887283.jpg" />
+  <img src="Z:/picture/005/save_picture_887283.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF Reader++ 1.58 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887279.jpg" />
+  <img src="Z:/picture/005/save_picture_887279.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Downie 4.0.6 (Build 4086) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887266.jpg" />
+  <img src="Z:/picture/005/save_picture_887266.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887237.jpg" />
+  <img src="Z:/picture/005/save_picture_887237.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Vivaldi 2.11.1811.51 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887201.jpg" />
+  <img src="Z:/picture/005/save_picture_887201.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887147.jpg" />
+  <img src="Z:/picture/005/save_picture_887147.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ My Life With The Thrill Kill Kult / Thrill Kill Kult / TKK + 7 Side Projects - D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887143.jpg" />
+  <img src="Z:/picture/005/save_picture_887143.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ The Bat! Professional 7.4.8 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887142.jpg" />
+  <img src="Z:/picture/005/save_picture_887142.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Norton AntiVirus 22.9.0.68 [Ru] (с антивирусными базами)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887139.jpg" />
+  <img src="Z:/picture/005/save_picture_887139.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Serial Box 04.2020 + SerialSeeker 2.0 (build 44) + iSerial Reader 2.0.23 (build 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887134.jpg" />
+  <img src="Z:/picture/005/save_picture_887134.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887126.jpg" />
+  <img src="Z:/picture/005/save_picture_887126.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ iMazing 2.11.3 (Build 13589) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887109.jpg" />
+  <img src="Z:/picture/005/save_picture_887109.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Affinity Designer Beta 1.8.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887100.jpg" />
+  <img src="Z:/picture/005/save_picture_887100.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887082.jpg" />
+  <img src="Z:/picture/005/save_picture_887082.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Chromium 80.0.3987.162 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887068.jpg" />
+  <img src="Z:/picture/005/save_picture_887068.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.00.02) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887067.jpg" />
+  <img src="Z:/picture/005/save_picture_887067.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ save2pc Ultimate 5.59.1593 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887062.jpg" />
+  <img src="Z:/picture/005/save_picture_887062.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Icecream Screen Recorder PRO 6.16 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887044.jpg" />
+  <img src="Z:/picture/005/save_picture_887044.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887011.jpg" />
+  <img src="Z:/picture/005/save_picture_887011.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Windows Firewall Control 4.9.3.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887009.jpg" />
+  <img src="Z:/picture/005/save_picture_887009.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Norton 360 22.9.0.68 [Ru] (с антивирусными базами)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887005.jpg" />
+  <img src="Z:/picture/005/save_picture_887005.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887004.jpg" />
+  <img src="Z:/picture/005/save_picture_887004.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Norton Internet Security 22.9.0.68 [Ru] (с антивирусными база�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886995.jpg" />
+  <img src="Z:/picture/005/save_picture_886995.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886994.jpg" />
+  <img src="Z:/picture/005/save_picture_886994.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886990.jpg" />
+  <img src="Z:/picture/005/save_picture_886990.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Affinity Photo Beta 1.8.3.180 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886989.jpg" />
+  <img src="Z:/picture/005/save_picture_886989.jpg" />
 </div>
 
 

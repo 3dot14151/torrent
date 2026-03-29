@@ -1,3 +1,55 @@
+###  Публикация: 649216   (733109) от 24.05.2014
+
+Монстры против Пришельцев / Monsters vs. Aliens (2013) WEB-DLRip (серия 1-52 из 52)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_733109.jpg" />
+</div>
+
+
+###  Подробнее
+
+После последней вылазки Монстров, всё тихо и спокойно в зоне 50 с чём-то. До тех пор пока не прибыл пришелец по имени Ковертон. Он впечатляет президента США и обещает мирное сосуществование. Но Монстры, генерал Воякер и президент не догадываются, что Ковертон работает на злую инопланетную организацию, которая хочет захватить Землю.Жанр: Мультфильм, фантастика, комедия, семейный, приключениеПеревод: Дублированный - NickelodeonЯзык субтитров: ОтсутствуютПродолжительность: Каждая серия ~ 00:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B2C170CA6EA5E30F6AC325B0AB4B6735993B8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 135128   (732252) от 08.06.2013
+
+Воины-скелеты / Skeleton Warriors (1994) VHSRip (S1, E13)
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_732252.jpg" />
+</div>
+
+
+###  Подробнее
+
+После смерти короля, мудрого и доброго правителя далекой планеты, младший брат поддался на предательские уговоры коварного Барона Дарка, служившего ранее отцу, и выступил против старшего. Он помог ему завладеть половиной кристалла Звезды Света, который давал силу и энергию королевству Луменсити. После схватки Барон и его приспешники превратились в живые, неуязвимые (   Читать дальше...   )Жанр: Мультсериал, Приключения, Фантастика, ФэнтезиРежиссер: Виктор Дал ЧелФормат: AVI (XviD)Продолжительность: 13 х ~00:21:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127199   (731856) от 21.04.2017
 
 Бэтмен: Отвага и смелость / Batman: The Brave and the Bold (2011) WEB-DL [H.264/720p] (Сезон 3, серий 01-13 из 13)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731856.jpg" />
+  <img src="Z:/picture/008/save_picture_731856.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731298.jpg" />
+  <img src="Z:/picture/008/save_picture_731298.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731231.jpg" />
+  <img src="Z:/picture/005/save_picture_731231.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730852.jpg" />
+  <img src="Z:/picture/008/save_picture_730852.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730836.jpg" />
+  <img src="Z:/picture/008/save_picture_730836.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730429.jpg" />
+  <img src="Z:/picture/008/save_picture_730429.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729085.jpg" />
+  <img src="Z:/picture/008/save_picture_729085.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728396.jpg" />
+  <img src="Z:/picture/008/save_picture_728396.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728094.jpg" />
+  <img src="Z:/picture/008/save_picture_728094.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727520.jpg" />
+  <img src="Z:/picture/008/save_picture_727520.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725675.jpg" />
+  <img src="Z:/picture/008/save_picture_725675.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722965.jpg" />
+  <img src="Z:/picture/008/save_picture_722965.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722962.jpg" />
+  <img src="Z:/picture/008/save_picture_722962.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722350.jpg" />
+  <img src="Z:/picture/008/save_picture_722350.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722221.jpg" />
+  <img src="Z:/picture/008/save_picture_722221.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719330.jpg" />
+  <img src="Z:/picture/008/save_picture_719330.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719300.jpg" />
+  <img src="Z:/picture/008/save_picture_719300.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718922.jpg" />
+  <img src="Z:/picture/008/save_picture_718922.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718817.jpg" />
+  <img src="Z:/picture/008/save_picture_718817.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718812.jpg" />
+  <img src="Z:/picture/008/save_picture_718812.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718678.jpg" />
+  <img src="Z:/picture/008/save_picture_718678.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718673.jpg" />
+  <img src="Z:/picture/008/save_picture_718673.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718587.jpg" />
+  <img src="Z:/picture/008/save_picture_718587.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718382.jpg" />
+  <img src="Z:/picture/008/save_picture_718382.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C47641167767AEF85507355ACD72A02E7FD56C1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023805   (717364) от 08.06.2016
-
-Лего Рыцари Нексо / Lego Nexo Knights (2015) WEB-DL [H.264/1080p-LQ] (10 серий из 10) [UKR]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы окунетесь в параллельный мир Средневековья, мир передовых технологий, роботов и рыцарей будущего. В Найтонии царил лад и покой, подданные любили короля и восславляли его. Но в один миг тучи над королевством сгустились – королевский шут тро нашел Книгу Монстров и обратился на темную сторону зла. Эта книга несла в себе страшную силу, в ней от первой странички до (   Читать дальше...   )Производство: Дания, M2 EntertainmentЖанр: Детский, Приключения, ФэнтезиРежиссер: Питер ГриффитсПеревод: ДублированныйОзвучка: ТК Плюс ПлюсПродолжительность: 00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F48279C345AF9D603182CD890E53C2BD0F0337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024312   (717237) от 08.06.2016
-
-Щенячий патруль / PAW Patrol (2015 - 2016) HDTVRip (Сезон 3, Серии 1-5 из ?)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зик Райдер — озорной десятилетний мальчик, талантливый не по годам. Он отлично разбирается в электронике и технике и умело с ней обращается. Его жизнь насыщена и полна бесстрашных приключений. Вместе с шестью веселыми и храбрыми щенятами он создал отважную команду под названием «Щенячий патруль».
-Сообща они выполняют спасательные миссии: с удовольствием помогают (   Читать дальше...   )Производство: Канада, СШАЖанр: Детский, ПриключенияРежиссер: Джэми УитниПерсонажи: Деван Коэн, Кристиан Дистефано, Каллан Холли, Alex Thorne, Гейдж Манро, Джули Лемье, Max Calinescu, Дрю Дэвис...Перевод: ДублированныйПродолжительность: серия по ~00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F2C10DD57EE83FE1FBB06190E55580A15E9C711
 ```
 
 https://mybot314.ru/tekegram_catalog/

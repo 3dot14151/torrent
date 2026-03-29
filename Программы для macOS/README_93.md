@@ -1,3 +1,136 @@
+###  Публикация: 1249261   (435981) от 23.09.2018
+
+Orbis (Formerly MenuWeather) 5.0.1 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orbis (был MenuWeather) - простой, но мощный клиент погоды в меню.Тип издания: macOS SoftwareРелиз состоялся: 19.09.2018Разработчик: Evan ColemanПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1ADC8FFD1B656B41DABD87AD1DDF6A4D01CF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249311   (435880) от 23.09.2018
+
+SILKYPIX Developer Studio Pro 8E 8.0.24.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435880.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro — мощная программа, которая предназначена для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
+
+С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.09.2018Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28D6FE150787796154CC9C93A2E2142AC3F261D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249380   (435879) от 23.09.2018
+
+Dropzone 3 v3.6.9 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что Mac OS X заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные операции, которые хотелось бы делать автоматически. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Aptonic LimitedПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C99C000554FA82EDB1692A5B2347DE80C6ECC5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249187   (435872) от 23.09.2018
+
+NotePlan - Markdown Calendar 1.6.29 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435872.jpg" />
+</div>
+
+
+###  Подробнее
+
+NotePlan - календарь, где вы управляете вашими ежедневные задачами и событиями, используя редактор Markdown.
+NotePlan был реализован, как уникальный инструмент для повышения Вашей производительности, включающий в себя: Календарь, Todos и редактор Markdown.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Eduard MetzgerПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BAAE9FCEA945964CB4D3CA66CEE5B2639BFE34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410433   (435658) от 21.09.2020
+
+Turbo Boost Switcher Pro 2.9.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_435658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Установите Turbo Boost Switcher, и аккумулятор вашего Mac прослужит на 25% больше и снизит температуру процессора до 25 ° C в зависимости от использования, включая более низкие скорости вращения вентилятора из-за снижения температуры.Тип издания: macOS SoftwareРелиз состоялся: 30.10.2019Разработчик: rugarciap.comПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1090D9B37AF380F10211A9889E1894BE8EE8014B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249298   (435548) от 23.09.2018
 
 iSkysoft iTransfer 4.5.0.1 [En]
@@ -6,7 +139,7 @@ iSkysoft iTransfer 4.5.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435548.jpg" />
+  <img src="Z:/picture/008/save_picture_435548.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Reeder 3.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435507.jpg" />
+  <img src="Z:/picture/008/save_picture_435507.jpg" />
 </div>
 
 
@@ -61,7 +194,7 @@ AudioBook Converter for Mac 5.1.2 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435293.jpg" />
+  <img src="Z:/picture/008/save_picture_435293.jpg" />
 </div>
 
 
@@ -87,7 +220,7 @@ Startupizer 2.3.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435233.jpg" />
+  <img src="Z:/picture/008/save_picture_435233.jpg" />
 </div>
 
 
@@ -116,7 +249,7 @@ Statsey - app usage statistics in your menu bar 1.0.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435231.jpg" />
+  <img src="Z:/picture/008/save_picture_435231.jpg" />
 </div>
 
 
@@ -145,7 +278,7 @@ Tadam: Stay focused at work 2.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434826.jpg" />
+  <img src="Z:/picture/008/save_picture_434826.jpg" />
 </div>
 
 
@@ -173,7 +306,7 @@ iFFmpeg 6.2.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434814.jpg" />
+  <img src="Z:/picture/008/save_picture_434814.jpg" />
 </div>
 
 
@@ -199,7 +332,7 @@ Monit 2.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433956.jpg" />
+  <img src="Z:/picture/008/save_picture_433956.jpg" />
 </div>
 
 
@@ -227,7 +360,7 @@ Darkroom: Photo & Video Editor 6.0.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433936.jpg" />
+  <img src="Z:/picture/008/save_picture_433936.jpg" />
 </div>
 
 
@@ -253,7 +386,7 @@ Pacifist 4.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433834.jpg" />
+  <img src="Z:/picture/008/save_picture_433834.jpg" />
 </div>
 
 
@@ -280,7 +413,7 @@ Mellel4 v4.1.2 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433459.jpg" />
+  <img src="Z:/picture/008/save_picture_433459.jpg" />
 </div>
 
 
@@ -308,7 +441,7 @@ Fantastical 2 v2.5.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433452.jpg" />
+  <img src="Z:/picture/008/save_picture_433452.jpg" />
 </div>
 
 
@@ -334,7 +467,7 @@ ChatMate for WhatsApp 4.3.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433311.jpg" />
+  <img src="Z:/picture/008/save_picture_433311.jpg" />
 </div>
 
 
@@ -360,7 +493,7 @@ SMARTReporter 3.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433288.jpg" />
+  <img src="Z:/picture/008/save_picture_433288.jpg" />
 </div>
 
 
@@ -386,7 +519,7 @@ BrowserFreedom 1.4.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432519.jpg" />
+  <img src="Z:/picture/008/save_picture_432519.jpg" />
 </div>
 
 
@@ -412,7 +545,7 @@ AnyMP4 MOV Converter 6.3.10 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432254.jpg" />
+  <img src="Z:/picture/008/save_picture_432254.jpg" />
 </div>
 
 
@@ -438,7 +571,7 @@ Capture One Pro 10 v10.2.105 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432209.jpg" />
+  <img src="Z:/picture/008/save_picture_432209.jpg" />
 </div>
 
 
@@ -465,7 +598,7 @@ Intensify CK (Pro) 1.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432142.jpg" />
+  <img src="Z:/picture/008/save_picture_432142.jpg" />
 </div>
 
 
@@ -493,7 +626,7 @@ RightFont 6.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431842.jpg" />
+  <img src="Z:/picture/008/save_picture_431842.jpg" />
 </div>
 
 
@@ -520,7 +653,7 @@ AICopy - Docs, Article Creator 2.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431774.jpg" />
+  <img src="Z:/picture/008/save_picture_431774.jpg" />
 </div>
 
 
@@ -546,7 +679,7 @@ Word Counter Pro 3.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431763.jpg" />
+  <img src="Z:/picture/008/save_picture_431763.jpg" />
 </div>
 
 
@@ -557,144 +690,6 @@ Word Counter Pro - это простое и мощное приложение д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4BE1AC32C869F99EBD8084786A1A715E3171E47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571664   (431762) от 22.08.2022
-
-Folder 1.0.3 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Folder — ваш помощник, ярый борец за ваше удобство и комфорт в любой работе на компьютере. Используйте приложение, чтобы изменить значок папки. Значок новой папки определяет, какие документы имеют высокий приоритет, а какие из них имеют нормальный или низкий приоритет. Легко увидеть, какие операции завершены полностью, какие выполнены частично, а какие еще не начаты. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.08.2022Разработчик: © 2021 ZYSoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2875427D176604ED95A36A9470E8A26604EBFC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249807   (431375) от 25.09.2018
-
-popCalendar 1.8.7 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431375.jpg" />
-</div>
-
-
-###  Подробнее
-
-popCalendar представляет собой миниатюрный календарь , который помещается в строке меню , давая вам более быстрый доступ к вашему расписанию .
-
-Показ за месяц позволяет найти нужный вам день или дату, в то время как щелчок мышью позволяет увидеть все события этого дня.
-Все это без необходимости запуска iCal!Тип издания: macOS SoftwareРелиз состоялся: 23.09.2018Разработчик: Michaël ParrotПоддерживаемая ОС: MacOS 10.9 +Язык интерфейса: Английский, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209EDCA01F642BC75F74249E4E8C9CF5B06DAAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249707   (431200) от 25.09.2018
-
-iNet Network Scanner 2.5 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431200.jpg" />
-</div>
-
-
-###  Подробнее
-
-iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
-
-iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.09.2018Разработчик: BananaGlueПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Немецкий и Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598921D03975B926D51AF19BBC8BE0915119730E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249817   (430552) от 25.09.2018
-
-Mindjet MindManager 11 v11.2.111 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Mindjet является разработчиком программных приложений, которые экономят время и повышают производительность, предоставляя бизнес профессионалам простой и вместе с тем мощный способ управления сложной информацией и идеями. Продукты Mindjet помогают развивать корпоративные бизнес-процессы, начинать новые проекты и поддерживать сотрудничество; эффективны как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: CorelПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3382C8DFA278CAB7CFA47B5942D39BB8E56C6FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165821   (430039) от 14.09.2017
-
-Raya Pro 2.0 & InstaMask 1.0 fix - panel for Adobe Photoshop [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Raya Pro является одной из лучших панелей для Photoshop.
-Raya Pro - это плагин для вашего Фотошопа, после установки которого у вас в программе появится дополнительная панель ее видно на скриншотах. Она позволит вам максимально комфортно смешивать слои и работать с ними, у вас будут все нужные инструменты под рукой.
-
-InstaMask - это новая мощная панель маскировки (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: сентябрь 2017Разработчик: Jimmy McIntyre Software & Development LTDПоддерживаемая ОС: OS X / WindowsЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FDAA4B5E53CC7366DC01423B296FEC5432F3D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

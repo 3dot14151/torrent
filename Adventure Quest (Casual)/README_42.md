@@ -6,7 +6,7 @@ Hidden Mysteries: Royal Family Secrets / Секреты Королевской �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411431.jpg" />
+  <img src="Z:/picture/008/save_picture_411431.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ E.P.I.C.: Wishmaster Adventures / Э.П.О.С.: Дороги желаний [Ru]
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411290.jpg" />
+  <img src="Z:/picture/008/save_picture_411290.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mayan Prophecies: Ship of Spirits. Collector's Edition / Проклятие Ма
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411286.jpg" />
+  <img src="Z:/picture/008/save_picture_411286.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ The Secret Order 4: Beyond Time / Тайный орден 4: Вне времен
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410428.jpg" />
+  <img src="Z:/picture/008/save_picture_410428.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Forgotten Kingdoms 2: The Ruby Ring / Забытые Королевства 2: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410349.jpg" />
+  <img src="Z:/picture/008/save_picture_410349.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Forgotten Kingdoms: Dream of Ruin / Забытые Королевства: Ра�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410244.jpg" />
+  <img src="Z:/picture/008/save_picture_410244.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Forbidden Secrets: Alien Town Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410153.jpg" />
+  <img src="Z:/picture/008/save_picture_410153.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Haunted Halls 3: Revenge of Doctor Blackmore. Collector's Edition / Дома с 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409690.jpg" />
+  <img src="Z:/picture/008/save_picture_409690.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Tales of Terror: Crimson Dawn / Трепетные истории: Багров�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409496.jpg" />
+  <img src="Z:/picture/008/save_picture_409496.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Secret Order 3: Ancient Times / Тайный орден 3: Древние в
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408716.jpg" />
+  <img src="Z:/picture/008/save_picture_408716.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Mystery Trackers 15: Darkwater Bay / Охотники за тайнами 15. Б
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408532.jpg" />
+  <img src="Z:/picture/008/save_picture_408532.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Living Legends 10: The Blue Chamber (2022) [En] (1.0) Unofficial [Collector's Ed
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407390.jpg" />
+  <img src="Z:/picture/008/save_picture_407390.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Detectives United 5: Deadly Debt / Лига детективов 5: Смерте
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407376.jpg" />
+  <img src="Z:/picture/008/save_picture_407376.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Web of Deceit: Black Widow Collector's Edition [En] (P) 2012
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406373.jpg" />
+  <img src="Z:/picture/008/save_picture_406373.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Shadow Wolf Mysteries 3: Cursed Wedding Collector's Edition / Призрачна
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404437.jpg" />
+  <img src="Z:/picture/008/save_picture_404437.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Dark Realm: Guardian of Flames / Темный мир 4: Хранитель пл�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403871.jpg" />
+  <img src="Z:/picture/008/save_picture_403871.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ The Wisbey Mystery / Тайна Визби (2016) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403113.jpg" />
+  <img src="Z:/picture/008/save_picture_403113.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Secret of Great Queens: Old Tower / Тайны Великих Королев: С
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403067.jpg" />
+  <img src="Z:/picture/008/save_picture_403067.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Awakening 7: The Golden Age / Пробуждение 7: Золотой век (2
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399425.jpg" />
+  <img src="Z:/picture/008/save_picture_399425.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ PuppetShow 8: The Face of Humanity / Шоу марионеток 8: Быть ч�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398514.jpg" />
+  <img src="Z:/picture/008/save_picture_398514.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Weeping Skies / Плач Небес (2015) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391953.jpg" />
+  <img src="Z:/picture/008/save_picture_391953.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Runaway Express Mystery / Тайна Летящего Экспресса (2015) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391858.jpg" />
+  <img src="Z:/picture/008/save_picture_391858.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Psycho Train / Поезд Психопата (2014) [Ru] (1.0) Unofficial
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391851.jpg" />
+  <img src="Z:/picture/008/save_picture_391851.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390412.jpg" />
+  <img src="Z:/picture/008/save_picture_390412.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Spirit of Revenge 6: Unrecognized Master / Месть духа 6: Непризн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389638.jpg" />
+  <img src="Z:/picture/008/save_picture_389638.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Dark Parables 16: Portrait of the Stained Princess (2019) [En] (1.0) Unofficial 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387182.jpg" />
+  <img src="Z:/picture/008/save_picture_387182.jpg" />
 </div>
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1708745   (112926) от 22.03.2024
+
+Eddie Zeeman - Detours and Treasures (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kawartha Land (00:03:57)
+02. Preacher (00:03:59)
+03. Now or Never (00:05:02)
+04. Once Upon a Time (00:04:38)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78E69B6B25F94AD0EECA3E420DF391A3343A9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709307   (112839) от 24.03.2024
+
+VA - Workout 2024 - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Out Boy - We Didn’t Start the Fire (3:35)
+02. All Time Low - Fake as Hell (feat. Avril Lavigne) (2:59)
+03. Linkin Park - Lost (3:19)
+04. Green Day - The American Dream Is Killing Me (3:06)(   Читать дальше...   )Жанр: RockПродолжительность: 02:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0613AF88BA5A1015113EE5A4C2BC14116908FBEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709523   (112793) от 25.03.2024
+
+VA - Driving USA (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Dreams (2018 Remaster) (4:17)
+02. Coldplay - Yellow (4:27)
+03. Kid Rock - All Summer Long (4:58)
+04. The Doobie Brothers - Listen to the Music (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 03:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8311337D65BE707CD9CA0C38834828C2CE399DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709522   (112776) от 25.03.2024
+
+VA - Domingo Rockero (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stone Roses - Love Spreads (5:47)
+02. The Mock Turtles - Can You Dig It? (4:08)
+03. Pulp - Disco 2000 (4:34)
+04. Smash Mouth - Walkin' On The Sun (3:28)(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1AF493429C631755D38B73E2BB08767345AC39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710453   (112664) от 27.03.2024
+
+The Cure - Paris (Live At Le Zenith 1992 - 30th Anniversary Expanded Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Apart (Live At Zenith, Paris) [6:39]
+02 - Lovesong (Live At Zenith, Paris) [3:32]
+03 - A Letter To Elise (Live At Zenith, Paris) [4:56]
+04 - Catch (Live At Zenith, Paris) [2:45](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, RockПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05281CBDB33AD7C17DC6A89EF17BBA9157557F6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710413   (112659) от 27.03.2024
 
 VA - Happy Father's Day - Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +151,7 @@ VA - Happy Father's Day - Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112659.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ VA - Father's Day: Classic Rock Edition (2023) [FLAC|Lossless|WEB-DL|tracks] <Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112657.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - I Love Rock 'N' Roll: Anthems for Hard Times (2023) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112647.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Finger-Picking Masters (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112637.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ The Prog Collective - Dark Encounters (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112469.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ Madness - The Liberty of Norton Folgate (2009) Remaster, 2023, Expanded Edition,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112459.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Hot Rod Frankie - God, Gasoline & Me (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112343.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Rock Fun & Happy Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112076.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Rock Now Mixtape (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112065.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Bokassa - Live At The BBC (2020) (Live) [FLAC|Lossless|WEB-DL|tracks] <Stoner Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112007.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ Smokie - 8 Albums (1975-1982) Reissue, 2007-2008, 7T's GLAM [FLAC|Lossless|track
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111989.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ Dreamcarnation - Dreamcarnation (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111920.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ Gentle Giant - Three Friends (1972) Reissue, 1989, Columbia [FLAC|Lossless|image
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111808.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ David Cross - Crossing the Tracks (2018) [FLAC|Lossless|image + .cue] <Art Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111758.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ NeXuS - Primera Impresion - La Coleccion Esencial (2024) [FLAC|Lossless|WEB-DL|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111756.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Saracen - Red Sky (2003) [FLAC|Lossless|image + .cue] <AOR, Heavy Metal, Prog Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111755.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ Astral Magic - Strange Sensation (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedel
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111754.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ Caravan - All Over You And You Too (2012) 2 x CD, Compilation, Reissue, Remaster
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111748.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ The Black Keys - Ohio Players (2024) [FLAC|Lossless|image + .cue] <Garage Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111744.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ White Dog - Double Dog Dare (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111717.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ Santana - Santana (1969) [FLAC|Lossless|image + .cue] <Psychedelic Rock, Classic
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111713.jpg" />
 </div>
 
 
@@ -601,151 +746,6 @@ Santana — дебютный студийный альбом американс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66C2B7087A9F28F6B8CED20C9E7CFAD582D11C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714672   (111670) от 10.04.2024
-
-Sebastian Hardie - Four Moments (1975) Reissue, Remastered, 2004, Polydor [FLAC|Lossless|image + .cue] <Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Moments, Part 1: Glories Shall Be Released
-02. Four Moments, Part 2: Dawn of Our Sun
-03. Four Moments, Part 3: Journey Through Our Dreams
-04. Four Moments, Part 4: Everything Is Real(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA82D5F9CEF230D7D153D89D809D5799C57B6CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714698   (111589) от 11.04.2024
-
-The Palace Of Tears - Veiled Screen, Woven Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Black Obsidian Beyond Oblivion (00:08:23)
-02 - An Echo in Time (00:06:18)
-03 - The Embers of Your Being Glow Still (00:05:56)
-04 - Cimetiere de L'absinthe no. 333 (00:02:52)(   Читать дальше...   )Жанр: Gothic Rock, DarkwaveПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D54E43D89BF7E891CF7F818D20C832B747EA618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715623   (111532) от 12.04.2024
-
-Ascent - Gamma (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Heavy Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gamma Community (1:53)
-02. Kamikaze (4:53)
-03. Master of Nothing (5:49)
-04. Hades (5:32)(   Читать дальше...   )Жанр: Progressive Rock, Heavy ProgПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC0EAC339A5BC8B0A8F0159E412F27755D9CD401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715954   (111371) от 14.04.2024
-
-VA - Something Aggressive (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slipknot - Custer (4:14)
-02. Disturbed - Down with the Sickness (4:39)
-03. Avenged Sevenfold - Hail to the King (5:06)
-04. Machine Head - Davidian (4:57)(   Читать дальше...   )Жанр: RockПродолжительность: 03:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2AB9BB5F91B8CB09B1DD9A5577C6AF14A27113
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716186   (111370) от 14.04.2024
-
-Strawbs - Just A Collection Of Antiques And Curios (1970) Reissue, Remastered, 2003, A&M Records [FLAC|Lossless|image + .cue] <Folk Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Luther King’s Dream
-02. The Antique Suite
-03. Temperament of Mind
-04. Fingertips(   Читать дальше...   )Жанр: Folk Rock, Prog RockПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9D45C632B18085F96371DF07344AA5DE7C75186
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,36 @@
+###  Публикация: 497627   (253793) от 17.05.2012
+
+Н.Рязанцева, Д.Рязанцев | 1С:Предприятие. Бухгалтеркий учет. Секреты работы [2003] [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_253793.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена системе программ ведения автоматизированного учета на
+предприятиях, в организациях и учреждениях "1С:Предприятие". Излагаются
+принципы работы системы с учетом всех нормативных требований. Представлены сведения об автоматизированном формировании бухгалтерских проводок
+и аналитических отчетов широкого спектра, ведение первичной документации
+и многое другое. Обсуждаются схемы движения документов во всех разделах
+бухгалтерского учета в новом плане счетов. Изложение материала сопровождается практическими примерами, позволяющими быстрее понять и усвоить приемы
+и методы работы с программой. Рассматриваются ошибки и сложности, которые
+могут возникнуть у пользователя при работе в этом пакете.2003Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D0749943D627872761F8B2D590F5CC255F104E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 497535   (253485) от 16.05.2012
 
 Е.А. Ситосенко | Управление заказами в системе программ 1С:Предприятие 8.0 [2005] [DJVU]
@@ -6,7 +39,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253485.jpg" />
+  <img src="Z:/picture/005/save_picture_253485.jpg" />
 </div>
 
 
@@ -41,7 +74,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250277.jpg" />
+  <img src="Z:/picture/004/save_picture_250277.jpg" />
 </div>
 
 
@@ -67,7 +100,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249876.jpg" />
+  <img src="Z:/picture/004/save_picture_249876.jpg" />
 </div>
 
 
@@ -95,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245664.jpg" />
+  <img src="Z:/picture/004/save_picture_245664.jpg" />
 </div>
 
 
@@ -122,7 +155,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244477.jpg" />
+  <img src="Z:/picture/004/save_picture_244477.jpg" />
 </div>
 
 
@@ -148,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243274.jpg" />
+  <img src="Z:/picture/004/save_picture_243274.jpg" />
 </div>
 
 
@@ -174,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242940.jpg" />
+  <img src="Z:/picture/005/save_picture_242940.jpg" />
 </div>
 
 
@@ -202,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240931.jpg" />
+  <img src="Z:/picture/004/save_picture_240931.jpg" />
 </div>
 
 
@@ -230,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240578.jpg" />
+  <img src="Z:/picture/004/save_picture_240578.jpg" />
 </div>
 
 
@@ -256,7 +289,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240566.jpg" />
+  <img src="Z:/picture/004/save_picture_240566.jpg" />
 </div>
 
 
@@ -282,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240558.jpg" />
+  <img src="Z:/picture/004/save_picture_240558.jpg" />
 </div>
 
 
@@ -308,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240409.jpg" />
+  <img src="Z:/picture/004/save_picture_240409.jpg" />
 </div>
 
 
@@ -335,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237207.jpg" />
+  <img src="Z:/picture/005/save_picture_237207.jpg" />
 </div>
 
 
@@ -361,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234804.jpg" />
 </div>
 
 
@@ -387,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231598.jpg" />
+  <img src="Z:/picture/005/save_picture_231598.jpg" />
 </div>
 
 
@@ -413,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231394.jpg" />
+  <img src="Z:/picture/004/save_picture_231394.jpg" />
 </div>
 
 
@@ -439,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231250.jpg" />
+  <img src="Z:/picture/004/save_picture_231250.jpg" />
 </div>
 
 
@@ -466,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229867.jpg" />
+  <img src="Z:/picture/005/save_picture_229867.jpg" />
 </div>
 
 
@@ -492,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228898.jpg" />
+  <img src="Z:/picture/004/save_picture_228898.jpg" />
 </div>
 
 
@@ -518,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228676.jpg" />
 </div>
 
 
@@ -546,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228496.jpg" />
+  <img src="Z:/picture/005/save_picture_228496.jpg" />
 </div>
 
 
@@ -572,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227931.jpg" />
+  <img src="Z:/picture/005/save_picture_227931.jpg" />
 </div>
 
 
@@ -601,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227175.jpg" />
+  <img src="Z:/picture/005/save_picture_227175.jpg" />
 </div>
 
 
@@ -628,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226210.jpg" />
+  <img src="Z:/picture/005/save_picture_226210.jpg" />
 </div>
 
 
@@ -654,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225914.jpg" />
+  <img src="Z:/picture/005/save_picture_225914.jpg" />
 </div>
 
 
@@ -668,33 +701,6 @@ Digital, еще 15 лет назад практически отсутствую
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F42C887EE282C9E4EB22C2A67A743D737965949
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268532   (225693) от 11.12.2018
-
-Андрей Рябых, Светлана Русова | Как заработать на криптовалютах и блокчейне. Объясняем на пальцах (2019) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Биткоины и блокчейн у всех на слуху уже не первый год. Эта тема стала особенно популярна после стремительного роста курса криптовалюты. Одни кусают локти, потому что в свое время не вложились в нее, другие планируют сделать это в ближайшее время, третьи не придают всему этому особого значения.
-Но даже сейчас большинство до конца не понимает, что такое криптовалюта, (   Читать дальше...   )Жанр: БизнесФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6174A5772659DB5A8A02D7CBCCDB171103DF835D
 ```
 
 https://mybot314.ru/tekegram_catalog/

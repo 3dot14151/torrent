@@ -6,7 +6,7 @@ Kane Strang - Two Hearts and No Brain (2017) [FLAC|Lossless|tracks + .cue] <Indi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792234.jpg" />
+  <img src="Z:/picture/008/save_picture_792234.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ BlueHarvest 7.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792223.jpg" />
+  <img src="Z:/picture/008/save_picture_792223.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ CoolUtils Total Audio Converter 5.3.0.160 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792217.jpg" />
+  <img src="Z:/picture/008/save_picture_792217.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Aiseesoft Screen Recorder 1.1.28 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792216.jpg" />
+  <img src="Z:/picture/008/save_picture_792216.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Yate 6.6.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792214.jpg" />
+  <img src="Z:/picture/008/save_picture_792214.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ Deliver 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792212.jpg" />
+  <img src="Z:/picture/008/save_picture_792212.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Data Guardian 7 v7.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792211.jpg" />
+  <img src="Z:/picture/008/save_picture_792211.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Valentina Studio Pro 11.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792210.jpg" />
+  <img src="Z:/picture/008/save_picture_792210.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ FontXChange 5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792208.jpg" />
+  <img src="Z:/picture/008/save_picture_792208.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Filmage Converter-ConvertVideo 1.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792205.jpg" />
+  <img src="Z:/picture/008/save_picture_792205.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Performance Index 64 Pro 4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792204.jpg" />
+  <img src="Z:/picture/008/save_picture_792204.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Filmage Screen-Screen Recorder 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792203.jpg" />
+  <img src="Z:/picture/008/save_picture_792203.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Lunar Pro for Mac 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792199.jpg" />
+  <img src="Z:/picture/008/save_picture_792199.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Kaleidoscope 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792195.jpg" />
+  <img src="Z:/picture/008/save_picture_792195.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Wise Disk Cleaner 10.1.5.762 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792191.jpg" />
+  <img src="Z:/picture/008/save_picture_792191.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Aiseesoft Video Converter Ultimate 9.2.36 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792166.jpg" />
+  <img src="Z:/picture/008/save_picture_792166.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Navicat Premium 12.0.22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792163.jpg" />
+  <img src="Z:/picture/008/save_picture_792163.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Cisdem PDFMaster 4.1.0 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792153.jpg" />
+  <img src="Z:/picture/008/save_picture_792153.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ iPulse 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792152.jpg" />
+  <img src="Z:/picture/008/save_picture_792152.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ Pacifist 4.0.1 CR2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792147.jpg" />
+  <img src="Z:/picture/008/save_picture_792147.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Bandizip: Archiver 7.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792141.jpg" />
+  <img src="Z:/picture/008/save_picture_792141.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ GeoGebra 6.0.675.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792136.jpg" />
+  <img src="Z:/picture/008/save_picture_792136.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ BWMeter 8.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792128.jpg" />
+  <img src="Z:/picture/008/save_picture_792128.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Aiseesoft Video Converter Ultimate 9.2.36 RePack (&Portable) by Manshet [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792114.jpg" />
+  <img src="Z:/picture/008/save_picture_792114.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Maxthon Browser 5.1.6.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792111.jpg" />
+  <img src="Z:/picture/008/save_picture_792111.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Google Chrome 64.0.3282.119 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792110.jpg" />
+  <img src="Z:/picture/008/save_picture_792110.jpg" />
 </div>
 
 

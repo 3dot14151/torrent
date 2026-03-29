@@ -6,7 +6,7 @@
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330141.jpg" />
+  <img src="Z:/picture/008/save_picture_330141.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329691.jpg" />
+  <img src="Z:/picture/008/save_picture_329691.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Русская дискотека 70-х (2012) [MP3|320 кб/с]<Pop>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319519.jpg" />
+  <img src="Z:/picture/008/save_picture_319519.jpg" />
 </div>
 
 
@@ -99,7 +99,7 @@ Frank Duval - Touch My Soul (1989) [MP3|320 кб/с]<Pop-Rock>
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312666.jpg" />
+  <img src="Z:/picture/008/save_picture_312666.jpg" />
 </div>
 
 
@@ -133,7 +133,7 @@ VA-Александра Пахмутова - любимые песни (1975) [M
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312448.jpg" />
+  <img src="Z:/picture/008/save_picture_312448.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308724.jpg" />
+  <img src="Z:/picture/008/save_picture_308724.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ VA - Незабытые танго (2010) [MP3|320 Kbps] <Эстрада, сов
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308608.jpg" />
+  <img src="Z:/picture/008/save_picture_308608.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294805.jpg" />
+  <img src="Z:/picture/008/save_picture_294805.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ VA - Ностальгия по семидесятым (CD 1-9) (2009) [MP3|256 k
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293205.jpg" />
+  <img src="Z:/picture/008/save_picture_293205.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278865.jpg" />
+  <img src="Z:/picture/008/save_picture_278865.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278796.jpg" />
+  <img src="Z:/picture/008/save_picture_278796.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276078.jpg" />
+  <img src="Z:/picture/008/save_picture_276078.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271789.jpg" />
+  <img src="Z:/picture/008/save_picture_271789.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271738.jpg" />
+  <img src="Z:/picture/008/save_picture_271738.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256732.jpg" />
+  <img src="Z:/picture/005/save_picture_256732.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250935.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249915.jpg" />
+  <img src="Z:/picture/004/save_picture_249915.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - Зарубежная Дискотека 80-х (2012) [MP3|256 кб/с]<Disc
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248980.jpg" />
+  <img src="Z:/picture/004/save_picture_248980.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237109.jpg" />
+  <img src="Z:/picture/005/save_picture_237109.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217107.jpg" />
+  <img src="Z:/picture/005/save_picture_217107.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210263.jpg" />
+  <img src="Z:/picture/005/save_picture_210263.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209975.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209956.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208917.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Ромашки спрятались•Песни Евгения Птичк�
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208494.jpg" />
 </div>
 
 
@@ -758,7 +758,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Советская эстрада, Ретро
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206715.jpg" />
+  <img src="Z:/picture/005/save_picture_206715.jpg" />
 </div>
 
 

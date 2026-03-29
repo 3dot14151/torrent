@@ -1,3 +1,113 @@
+###  Публикация: 1164459   (439198) от 10.09.2017
+
+Xojo IDE RAD 17.2.0.37811 (2017r2) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_439198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xojo (ранее Real Studio, а еще ранее Real Basic) - объектно-ориентированная, кросс-платформенная, визуальная среда разработки приложений для Mac OS X, Linux, Windows, iOS и Raspberry PI, которая позволяет разрабатывать удобные и легкие приложения, утилиты (в том числе консольные) и приложения для Web, с возможностью поддержки самых популярных баз данных.
+
+Приложение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.08.2017Разработчик: Xojo Inc.Поддерживаемая ОС: macOS 10.9.5 или вышеЯзык интерфейса: Ангилйский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F54CAD9A957D7F6BA114D2415746981A4058E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248805   (439175) от 21.09.2018
+
+DaisyDisk 4.6.5.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_439175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случалось ли так, что Вы не знаете, куда подевался ЖД на 600 ГБ? Для того, чтобы выяснить кто занял всю площадь, еcть замечательная программа и имя ей — DaisyDisk.
+Данная программа предоставляет удобное визуальное представление вашего жесткого диска, позволяя пользователю определить, какие файлы наиболее «прожорливы» по части свободного дискового пространства и удалить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.09.2018Разработчик: Software Ambience Corp.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6601D24F408FA1E0744F1150AEF46163CD13587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248791   (439170) от 21.09.2018
+
+Alien Skin Exposure X4 Bundle 4.0.1.27 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_439170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E06F5A4E165D3FD65B38F8BCCCB17102F583BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062649   (438968) от 14.10.2016
+
+AppDelete 4.3.0.1 [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_438968.jpg" />
+</div>
+
+
+###  Подробнее
+
+AppDelete - позволяет деинсталлировать приложения из системы, с удалением всех связанных файлов на жестком диске.
+Для запуска программы достаточно перетащить папку с ненужным приложением на иконку AppDelete. После этого по всей системе проводится поиск и удаление связанных файлов.
+
+Опционально, эти данные могут быть перенесены в специальную корзину, откуда они будут (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 октября 2016Разработчик: Reggie AshworthПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA7E1E3816CE5DD26EE4320ACFB4CDB20BCBC7A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410378   (438643) от 20.09.2020
 
 PullTube 1.5.5 [Multi/Ru]
@@ -6,7 +116,7 @@ PullTube 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438643.jpg" />
+  <img src="Z:/picture/008/save_picture_438643.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ SyncTime 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438631.jpg" />
+  <img src="Z:/picture/008/save_picture_438631.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ PhoneRescue for iOS 4.0.0.20200919 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438548.jpg" />
+  <img src="Z:/picture/008/save_picture_438548.jpg" />
 </div>
 
 
@@ -84,7 +194,7 @@ Affinity Publisher Beta 1.9.0.742 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438516.jpg" />
+  <img src="Z:/picture/008/save_picture_438516.jpg" />
 </div>
 
 
@@ -111,7 +221,7 @@ AnyTrans for iOS 8.8.0.20200918 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438514.jpg" />
+  <img src="Z:/picture/008/save_picture_438514.jpg" />
 </div>
 
 
@@ -139,7 +249,7 @@ Transmit 5.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438509.jpg" />
+  <img src="Z:/picture/008/save_picture_438509.jpg" />
 </div>
 
 
@@ -167,7 +277,7 @@ Chain Timer 9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438476.jpg" />
+  <img src="Z:/picture/008/save_picture_438476.jpg" />
 </div>
 
 
@@ -193,7 +303,7 @@ Screegle - Clean Screen Sharing 2.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438473.jpg" />
+  <img src="Z:/picture/008/save_picture_438473.jpg" />
 </div>
 
 
@@ -219,7 +329,7 @@ NetShred X 5.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438470.jpg" />
+  <img src="Z:/picture/008/save_picture_438470.jpg" />
 </div>
 
 
@@ -245,7 +355,7 @@ VideoDuke 2.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438469.jpg" />
+  <img src="Z:/picture/008/save_picture_438469.jpg" />
 </div>
 
 
@@ -272,7 +382,7 @@ Chronicle Pro 14.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438468.jpg" />
+  <img src="Z:/picture/008/save_picture_438468.jpg" />
 </div>
 
 
@@ -299,7 +409,7 @@ Music Tag Editor Pro 7.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438466.jpg" />
+  <img src="Z:/picture/008/save_picture_438466.jpg" />
 </div>
 
 
@@ -327,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438463.jpg" />
+  <img src="Z:/picture/008/save_picture_438463.jpg" />
 </div>
 
 
@@ -353,7 +463,7 @@ Affinity Photo Beta 1.9.0.196 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438426.jpg" />
+  <img src="Z:/picture/008/save_picture_438426.jpg" />
 </div>
 
 
@@ -379,7 +489,7 @@ My Metronome 1.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438377.jpg" />
+  <img src="Z:/picture/008/save_picture_438377.jpg" />
 </div>
 
 
@@ -405,7 +515,7 @@ KCNcrew Pack 08-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438374.jpg" />
+  <img src="Z:/picture/008/save_picture_438374.jpg" />
 </div>
 
 
@@ -431,7 +541,7 @@ Millumin 4 v 4.12.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438372.jpg" />
+  <img src="Z:/picture/008/save_picture_438372.jpg" />
 </div>
 
 
@@ -457,7 +567,7 @@ NCH ClickCharts Diagram Pro 6.83 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438370.jpg" />
+  <img src="Z:/picture/008/save_picture_438370.jpg" />
 </div>
 
 
@@ -483,7 +593,7 @@ PDF Reader Pro Edition 2.8.15.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438366.jpg" />
+  <img src="Z:/picture/008/save_picture_438366.jpg" />
 </div>
 
 
@@ -509,7 +619,7 @@ PullTube 1.8.4.4 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438365.jpg" />
+  <img src="Z:/picture/008/save_picture_438365.jpg" />
 </div>
 
 
@@ -535,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438363.jpg" />
+  <img src="Z:/picture/008/save_picture_438363.jpg" />
 </div>
 
 
@@ -561,7 +671,7 @@ Gemini 2: The Duplicate Finder 2.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438344.jpg" />
+  <img src="Z:/picture/008/save_picture_438344.jpg" />
 </div>
 
 
@@ -574,115 +684,6 @@ Gemini поможет быстро найти и удалить одинаков
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E191FCCC871498A60F0042633D2780BCA7BD151F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410100   (438342) от 20.09.2020
-
-Navicat Premium 15.0.21 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 15.09.2020Разработчик: PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F50B65086C897A5A55AB94C9F1F631EC9306EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410375   (438339) от 20.09.2020
-
-CrossOver 20.0-b2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет CrossOver основан на программном коде коде Wine и представляет собой оболочку для запуска программ под Windows на платформе macOS. Кроме этого, он позволяет запускать игры, что для многих пользователей является решающим фактором при выборе операционной системы.
-
-Отметим, что вышеупомянутый Wine представляет собой программную прослойку, позволяющую выполнять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: CodeWeaversПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9F6D24618133C754588C069BC5977E0CF902AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944906   (438319) от 08.10.2015
-
-BlueHarvest 6.3.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438319.jpg" />
-</div>
-
-
-###  Подробнее
-
-BlueHarvest - автоматически удаляем скрытый мусор
-BlueHarvest -  утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
-
-Данная программа будет полезна для тех, кто любит включенную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 октября 2015Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A077414F1BE785BBCDF6A008C3A3358EA11D611A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570884   (438297) от 19.08.2022
-
-Navicat Premium 16.1.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Premium представляет собой очень мощный инструмент для администрирования баз данных, который позволяет подключаться к MySQL, SQLite, Oracle и PostgreSQL базам данных одновременно в одном приложении, что делает администрирование нескольких видов баз очень простым и удобным.Тип издания: macOS SoftwareРелиз состоялся: 16.08.2022Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D73E2E3ADC6746A693A4F2203DB30D8B4047FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

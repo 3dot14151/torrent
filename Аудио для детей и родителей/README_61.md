@@ -1,3 +1,82 @@
+###  Публикация: 1074670   (336138) от 20.11.2016
+
+Александра Анненская | Брат и сестра. Младший брат (2014) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336138.jpg" />
+</div>
+
+
+###  Подробнее
+
+В повести «Брат и сестра» Анненская призывает юного читателя задуматься над разницей между такими понятиями как «удовольствие» и «счастье», стремится привить детям любовь к нравственным идеалам. Герои повести, осиротев после смерти матери, попадают в чужую семью и ведут себя по-разному: Маша, прошедшая трудный путь жизненных испытаний, видит смысл и радость своей (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 05:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF1E9D33838F1AB78028763ED8E211386B4314B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420055   (335819) от 30.10.2020
+
+Валентин Постников | Мармеладная бабушка (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Знаете ли вы, что самый вкусный мармелад делают в Португалии? Наверное, поэтому именно там живёт Мармеладная бабушка, которая готовит мармелад лучше всех на свете. Да вот беда, стоит бабушке чихнуть, как она оказывается совершенно в другом месте. Чихнула – и она уже на крыше дома, снова чихнула – и улетела в чулан, а из чулана – на дерево.
+А ещё бабушка отлично ездит (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 03:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F92D01A0412F3871BFCE3B886827296AB9CA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 652935   (335088) от 30.10.2020
+
+Виктор Голявкин | Тетрадки под дождём (2011) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_335088.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли веселые и поучительные рассказы для детей младшего школьного возраста известного и замечательного детского писателя Виктора Владимировича Голявкина. Автор тепло и с юмором рассказывает о жизни современных детей, об их проблемах, увлечениях, интересах.Жанр: советская литература, литература для детейПродолжительность: 01:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D92895A5E438CDA41701688AD69040A7E6EF6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 451103   (334909) от 30.10.2020
 
 Непоседы - 10 лет: Лучшее (2001) [MP3|320 kbps]<Песни для всей семьи>
@@ -6,7 +85,7 @@
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334909.jpg" />
+  <img src="Z:/picture/008/save_picture_334909.jpg" />
 </div>
 
 
@@ -35,7 +114,7 @@ VA - Країна дитинства (2007) [MP3|128 kbps]<Песенки для
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334462.jpg" />
+  <img src="Z:/picture/008/save_picture_334462.jpg" />
 </div>
 
 
@@ -64,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334008.jpg" />
+  <img src="Z:/picture/008/save_picture_334008.jpg" />
 </div>
 
 
@@ -90,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334001.jpg" />
+  <img src="Z:/picture/008/save_picture_334001.jpg" />
 </div>
 
 
@@ -116,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333938.jpg" />
+  <img src="Z:/picture/008/save_picture_333938.jpg" />
 </div>
 
 
@@ -142,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333880.jpg" />
+  <img src="Z:/picture/008/save_picture_333880.jpg" />
 </div>
 
 
@@ -170,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333823.jpg" />
+  <img src="Z:/picture/008/save_picture_333823.jpg" />
 </div>
 
 
@@ -199,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333584.jpg" />
+  <img src="Z:/picture/008/save_picture_333584.jpg" />
 </div>
 
 
@@ -225,7 +304,7 @@ Baby Einstein - Baby Santa Holiday Classics (2000) [MP3|192 kbps]<Классич
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333562.jpg" />
+  <img src="Z:/picture/008/save_picture_333562.jpg" />
 </div>
 
 
@@ -254,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333560.jpg" />
+  <img src="Z:/picture/008/save_picture_333560.jpg" />
 </div>
 
 
@@ -282,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332550.jpg" />
+  <img src="Z:/picture/008/save_picture_332550.jpg" />
 </div>
 
 
@@ -308,7 +387,7 @@ VA - Поп-рок-хиты в стиле колыбельных для малы
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332075.jpg" />
+  <img src="Z:/picture/008/save_picture_332075.jpg" />
 </div>
 
 
@@ -337,7 +416,7 @@ VA - Livin'G presents: Happy Box, Happy Kids, Happy Time. Music Box, Baby Box, v
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332067.jpg" />
+  <img src="Z:/picture/008/save_picture_332067.jpg" />
 </div>
 
 
@@ -366,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329895.jpg" />
+  <img src="Z:/picture/008/save_picture_329895.jpg" />
 </div>
 
 
@@ -396,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329373.jpg" />
+  <img src="Z:/picture/008/save_picture_329373.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328862.jpg" />
+  <img src="Z:/picture/008/save_picture_328862.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ VA - Детские песни. 200 песен (2011) [MP3|128-256 kbps]<Дет�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328474.jpg" />
+  <img src="Z:/picture/008/save_picture_328474.jpg" />
 </div>
 
 
@@ -482,7 +561,7 @@ VA - Детская площадка №1 (2011) [MP3|320 kbps]<Детские �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327629.jpg" />
+  <img src="Z:/picture/008/save_picture_327629.jpg" />
 </div>
 
 
@@ -511,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327389.jpg" />
+  <img src="Z:/picture/008/save_picture_327389.jpg" />
 </div>
 
 
@@ -537,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327311.jpg" />
+  <img src="Z:/picture/008/save_picture_327311.jpg" />
 </div>
 
 
@@ -563,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327046.jpg" />
+  <img src="Z:/picture/008/save_picture_327046.jpg" />
 </div>
 
 
@@ -592,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326858.jpg" />
+  <img src="Z:/picture/008/save_picture_326858.jpg" />
 </div>
 
 
@@ -619,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326794.jpg" />
+  <img src="Z:/picture/008/save_picture_326794.jpg" />
 </div>
 
 
@@ -632,90 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:164CA8D82770DC6511587189728A27B4205E1573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 414925   (326678) от 25.11.2011
-
-Илья и Елена Челноковы - 5 альбомов (2002-2008) [MP3|128-320 kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Детские песни и минусовкиПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47755C2BE90C6B36FF70D5DB7470223DEBA9E5D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 416602   (324007) от 28.11.2011
-
-VA - Новогоднее рождество (2008) [MP3|320 kbps]<Детские песенки и музыка>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324007.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. О.Юдахина и И.Жишанов - Новый Год +/-
-2. Е.Зарицкая и Н.Денисов – Карнавал +/-
-3. Е.Зарицкая и И.Шевчук – Белоснежка +/-
-4. С.Брюхно - Рождество +/-(   Читать дальше...   )Жанр: Детские песенки и музыкаПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBC4BE8E9EA2C6C05777D945DF8700B95BC7F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 416610   (323902) от 28.11.2011
-
-VA - Новогоднее волшебство (2009) [MP3|320 kbps]<Детские песенки и музыка>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323902.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Р.Гуцалюк и Н.Соловьева – Снегопад +/-
-2. Л.Кулинова – Метелица +/-
-3. Л.Кулинова – Новогоднее волшебство +/-
-4. Л.Кулинова – Новый год +/-(   Читать дальше...   )Жанр: Детские песенки и музыкаПродолжительность: 01:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:241B8E07567ECC12B85531E09DE03F3A134461CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

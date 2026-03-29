@@ -6,7 +6,7 @@ Sk'p - Orpiclem (2014) [FLAC|Lossless|WEB-DL]<IDM, Ambient, Glitch>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860562.jpg" />
+  <img src="Z:/picture/008/save_picture_860562.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860536.jpg" />
+  <img src="Z:/picture/008/save_picture_860536.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Daum PotPlayer 1.6.59347 Stable RePack by 7sh3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860531.jpg" />
+  <img src="Z:/picture/008/save_picture_860531.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ FastStone Capture 8.4 RePack (&Portable) by VIPol (23.03.2016) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860529.jpg" />
+  <img src="Z:/picture/008/save_picture_860529.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860527.jpg" />
+  <img src="Z:/picture/008/save_picture_860527.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ AnyDesk 2.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860523.jpg" />
+  <img src="Z:/picture/008/save_picture_860523.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860518.jpg" />
+  <img src="Z:/picture/008/save_picture_860518.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860515.jpg" />
+  <img src="Z:/picture/008/save_picture_860515.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Front 242 - Backcatalogue (1987) Compilation, RE. RM., 1992, Epic [FLAC|Lossless
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860500.jpg" />
+  <img src="Z:/picture/008/save_picture_860500.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Dark Reader for Safari 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860498.jpg" />
+  <img src="Z:/picture/008/save_picture_860498.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ FreeFileSync 10.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860484.jpg" />
+  <img src="Z:/picture/008/save_picture_860484.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860467.jpg" />
+  <img src="Z:/picture/008/save_picture_860467.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860462.jpg" />
+  <img src="Z:/picture/008/save_picture_860462.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860460.jpg" />
+  <img src="Z:/picture/008/save_picture_860460.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Split Screen 3.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860448.jpg" />
+  <img src="Z:/picture/008/save_picture_860448.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860446.jpg" />
+  <img src="Z:/picture/008/save_picture_860446.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Black Gold (2014) [Ru] (0.0.1.032) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860420.jpg" />
+  <img src="Z:/picture/008/save_picture_860420.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860408.jpg" />
+  <img src="Z:/picture/008/save_picture_860408.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ The Descendant (2016) [En] (1.0) License FAIRLIGHT [Episode 1]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860406.jpg" />
+  <img src="Z:/picture/008/save_picture_860406.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ DriverPack Solution 16.3 Full + Драйвер-Паки 16.03.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860404.jpg" />
+  <img src="Z:/picture/008/save_picture_860404.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860393.jpg" />
+  <img src="Z:/picture/008/save_picture_860393.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ SUMo Pro 5.10.15.453 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860378.jpg" />
+  <img src="Z:/picture/008/save_picture_860378.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Downie 4.0.8 (Build 4092) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860372.jpg" />
+  <img src="Z:/picture/008/save_picture_860372.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.02.26 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860327.jpg" />
+  <img src="Z:/picture/008/save_picture_860327.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ KeepVid Pro 6.1.1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860315.jpg" />
+  <img src="Z:/picture/008/save_picture_860315.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860314.jpg" />
+  <img src="Z:/picture/008/save_picture_860314.jpg" />
 </div>
 
 

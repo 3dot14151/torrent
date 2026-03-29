@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808066.jpg" />
+  <img src="Z:/picture/008/save_picture_808066.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Multi Commander Full Edition 11.4 Build 2831 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808065.jpg" />
+  <img src="Z:/picture/008/save_picture_808065.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ AMS Greeting Card Studio v5.15 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808059.jpg" />
+  <img src="Z:/picture/008/save_picture_808059.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Opera 50.0.2762.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808012.jpg" />
+  <img src="Z:/picture/008/save_picture_808012.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Internet Download Manager 6.30 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808011.jpg" />
+  <img src="Z:/picture/008/save_picture_808011.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Opera 50.0.2762.58 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808009.jpg" />
+  <img src="Z:/picture/008/save_picture_808009.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Ant Download Manager Pro 1.18.0 Build 70489 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807986.jpg" />
+  <img src="Z:/picture/008/save_picture_807986.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Easy Disc Burner 4.7.7.349 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807974.jpg" />
+  <img src="Z:/picture/008/save_picture_807974.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Boilsoft Video Splitter 8.3.0 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807961.jpg" />
+  <img src="Z:/picture/008/save_picture_807961.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Devious Machines - Plugins Bundle 10.2021 VST, VST3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807960.jpg" />
+  <img src="Z:/picture/008/save_picture_807960.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AIMP 5.00 build 2338 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807959.jpg" />
+  <img src="Z:/picture/008/save_picture_807959.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Universal Media Creation Tool 23.10.2021 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807948.jpg" />
+  <img src="Z:/picture/008/save_picture_807948.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Adobe Substance 3D Designer 11.2.0 Build 4869 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807937.jpg" />
+  <img src="Z:/picture/008/save_picture_807937.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Kdenlive 20.04.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807854.jpg" />
+  <img src="Z:/picture/008/save_picture_807854.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Wise Force Deleter 1.25.26 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807834.jpg" />
+  <img src="Z:/picture/008/save_picture_807834.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Wise Disk Cleaner 9.23.642 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807827.jpg" />
+  <img src="Z:/picture/008/save_picture_807827.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Uninstall Tool 3.4.5 Build 5432 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807824.jpg" />
+  <img src="Z:/picture/008/save_picture_807824.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Adobe Substance 3D Painter 7.3.0 Build 1272 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807817.jpg" />
+  <img src="Z:/picture/008/save_picture_807817.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ PotPlayer 210929 (1.7.21564) (x64) RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807816.jpg" />
+  <img src="Z:/picture/008/save_picture_807816.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Blackmagic Design DaVinci Resolve Studio 17.4 Build 12 RePack by KpoJIuK [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807790.jpg" />
+  <img src="Z:/picture/008/save_picture_807790.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Sothink SWF Decompiler 6.1 build 617 [Multilanguage (без русского)]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807762.jpg" />
+  <img src="Z:/picture/008/save_picture_807762.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ KCleaner Pro 3.6.6.105 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807734.jpg" />
+  <img src="Z:/picture/008/save_picture_807734.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ WinTools.net Premium 16.4.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807716.jpg" />
+  <img src="Z:/picture/008/save_picture_807716.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Google Chrome 50.0.2661.87 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807585.jpg" />
+  <img src="Z:/picture/008/save_picture_807585.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ ACDSee Pro 9.2 Build 524 (x86) Lite RePack by MKN [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807582.jpg" />
+  <img src="Z:/picture/008/save_picture_807582.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ PDF-XChange Viewer Pro 2.5.317.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807579.jpg" />
+  <img src="Z:/picture/008/save_picture_807579.jpg" />
 </div>
 
 

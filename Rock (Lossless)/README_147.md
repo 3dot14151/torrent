@@ -1,3 +1,148 @@
+###  Публикация: 1589039   (190878) от 07.11.2022
+
+Ebb - Mad & Killing Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_190878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vorspiel / Grieg's Diner [00:02:49]
+02. The Animal Said I [00:06:22]
+03. Tension [00:06:43]
+04. Hecate [00:06:26](   Читать дальше...   )Жанр: Progressive Rock, Art Rock, Female VocalПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA28AC69C02A1EAF88C0E25968C2AACDAAB1F240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588991   (190814) от 07.11.2022
+
+Twelfth Night - Smiling At Grief.... Revisited (1982) 40th Anniversary Edition, 2022, Twelfth Night [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East of Eden (Steven Wilson Mix) [00:03:36]
+02. This City (Peter Jones Mix) [00:03:17]
+03. The Honeymoon Is Over (Karl Groom Mix) [00:02:31]
+04. Creepshow (Simon Godfrey Mix) [00:10:12](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AE8C10DA4133FF8A133340C737C7FEBDDA64E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588896   (190755) от 07.11.2022
+
+The Beatles - Revolver (1966) Box Set, 5 x CD, Remastered, 2022, Super Deluxe Edition, Apple Records; Universal Music Group International [FLAC|Lossless|tracks + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Revolver: Альбом The Beatles 1966 года, изменивший все. Сбивая популярную музыку со своей оси и открывая новую яркую эру экспериментальной, авангардной звуковой психоделии, Revolver произвел коренные культурные изменения и ознаменовал важный поворот в собственной творческой эволюции The Beatles. С Revolver Джон Леннон, Пол Маккартни, Джордж Харрисон и Ринго Старр (   Читать дальше...   )CD - 1 - Revolver (New Stereo Mix)
+CD - 2 - Sessions One
+CD - 3 - Sessions Two
+CD - 4 - Original Mono Master(   Читать дальше...   )Жанр: Classic RockПродолжительность: 02:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F403433D4C6AC1A723AA99FFCC17DEB009933F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659101   (190672) от 10.09.2023
+
+Downes Braide Association - Celestial Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog-Related, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look What You Do [00:06:17]
+02. Clear Light [00:05:00]
+03. Keep On Moving [00:06:36]
+04. Darker Side Of Fame [00:03:56](   Читать дальше...   )Жанр: Prog-Related, Pop RockПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950378E62CB10FF1E7AD90E9BFA23DD2C218A0D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658909   (190663) от 10.09.2023
+
+Teiger - Teiger (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Rock, Progressive Rock, Acoustic Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crawl [00:03:19]
+02. Sahara [00:03:51]
+03. Come And Find Me [00:03:27]
+04. Slow Burning [00:03:53](   Читать дальше...   )Жанр: Atmospheric Rock, Progressive Rock, Acoustic Rock, Female VocalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4F66E7E2ECB5FF6C90BEB9921B3F4AB41F3327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1659131   (190607) от 10.09.2023
 
 The Flower Kings - Look At You Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Prog>
@@ -6,7 +151,7 @@ The Flower Kings - Look At You Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190607.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Fleetwood Mac - Rumours Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190513.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Glucose - Beatles Meets Queen (2012) Japan [FLAC|Lossless|image+.cue]<Indie Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190330.jpg" />
 </div>
 
 
@@ -94,7 +239,7 @@ Jonathan M Dexter - Waking Sculptures (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_190243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_190243.jpg" />
 </div>
 
 
@@ -123,7 +268,7 @@ Puddle of Mudd - Ubiquitous (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190138.jpg" />
 </div>
 
 
@@ -152,7 +297,7 @@ VA - Romantic Rock Mix (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190076.jpg" />
 </div>
 
 
@@ -181,7 +326,7 @@ Mecanicos de Satan - Nomade (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, S
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189795.jpg" />
 </div>
 
 
@@ -210,7 +355,7 @@ Onsegen Ensemble - Realms (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189786.jpg" />
 </div>
 
 
@@ -239,7 +384,7 @@ Bruce Springsteen - Only the Strong Survive (2022) [FLAC 2.0|24/96|WEB-DL|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189685.jpg" />
 </div>
 
 
@@ -268,7 +413,7 @@ Oak - The Quiet Rebellion Of Compromise (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189485.jpg" />
 </div>
 
 
@@ -297,7 +442,7 @@ The White Buffalo - Year Of The Dark Horse (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189435.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ Austin Gold - Those City Lights (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189430.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ Bruce Springsteen - Only the Strong Survive (2022) [FLAC|Lossless|tracks + .cue]
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189413.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ VA - Fresh Rock Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189389.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ VA - Welcome to My Life - Pop-Rock Anthem (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189363.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ VA - Full Volume Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189348.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ VA - Massive Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189308.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ Authari - Golden Age (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hea
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189189.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ Larkin Poe - Blood Harmony (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189016.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ Theicon - Beyond The Universe - Act 1-2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188876.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ Medina Azahara - La Capsula del Tiempo (2022) Compilation [FLAC|Lossless|WEB-DL|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188866.jpg" />
 </div>
 
 
@@ -601,151 +746,6 @@ Medina Azahara - La Capsula del Tiempo (2022) Compilation [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:525B1A32650FF6432A6996FE7C78E0A3A3DEE08D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590729   (188541) от 15.11.2022
-
-The Grey Curtain - The Florist (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Florere 00:43
-02. Crippled 04:37
-03. Burn That Bridge 03:41
-04. White Picket Fence 04:08(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDAE1703714F6DBB2E2F46BC59D4CCEB3FD73A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631838   (188470) от 15.09.2023
-
-Simon Viklund - Steal From The Rich, Give To Myself (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steal From the Rich, Give to Myself
-02. Remix Material: Vocals 1
-03. Remix Material: Vocals 2
-04. Remix Material: Vocals 3(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94E59248D50E1A0DE6B93B716DA33265E17140F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661892   (188242) от 16.09.2023
-
-Bonnie Tyler - Free Spirit (1995) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limelight ( Overture Mix ) 5:12
-02. Nothing To Do With Love  4:53
-03. You're The One  3:59
-04. Making Love ( Out Of Nothing At All ) 7:47(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D53CA3E9F80C99A051AC7ED4B376333A60934937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591054   (187827) от 16.11.2022
-
-Zack Avicenne - Time Is Not A Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Day 05:16
-02. Sometimes I Feel 04:54
-03. Emancipation 07:44
-04. It's A Pact With The Devil 07:01(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:07:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0B2D43E18BA7CC20ECB9007BDD8FD80FA8EC9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591480   (187252) от 18.11.2022
-
-Vault - The Perfect Truth (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Perfect Truth (05:24)
-02. In Limbo (01:22)
-03. Lucid Dream (04:54)
-04. Metamorphosis (03:08)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F664632CC0E041B8410E29F9EE52632F498227
 ```
 
 https://mybot314.ru/tekegram_catalog/

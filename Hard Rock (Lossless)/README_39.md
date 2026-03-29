@@ -1,3 +1,61 @@
+###  Публикация: 1550826   (591226) от 13.05.2022
+
+Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_591226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paroxysm
+02. One And Only
+03. Hero
+04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550958   (590777) от 14.05.2022
+
+Stinger - Expect The Unexpected (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_590777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Diggin' Up The Dirt (00:04:22)
+02 - Chasing Utopia (00:05:10)
+03 - Monkey (00:03:22)
+04 - Highfalutin' (00:02:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E016EE2A845F594B6EAFE9B00EF3851A90ACCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550960   (590755) от 14.05.2022
 
 Junkyard Drive - Electric Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Junkyard Drive - Electric Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590755.jpg" />
+  <img src="Z:/picture/008/save_picture_590755.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Graham Bonnet Band - Day Out In Nowhere (2022) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590752.jpg" />
+  <img src="Z:/picture/008/save_picture_590752.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ The Big Deal - First Bite (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590738.jpg" />
+  <img src="Z:/picture/008/save_picture_590738.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Jeff Scott Soto - Complicated (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590240.jpg" />
+  <img src="Z:/picture/008/save_picture_590240.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ The Brave - Evie’s Little Garden (2021) [FLAC|Lossless|image + .cue] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590229.jpg" />
+  <img src="Z:/picture/008/save_picture_590229.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Romulox - The Three Kings (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589735.jpg" />
+  <img src="Z:/picture/008/save_picture_589735.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Deep Purple - Deep Purple (1969) K2HD, Limited Edition /2014, Victor/ [FLAC|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589517.jpg" />
+  <img src="Z:/picture/008/save_picture_589517.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Cinderella - The Best Of: The Millennium Collection (2000) [FLAC|image + .cue]<H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589493.jpg" />
+  <img src="Z:/picture/008/save_picture_589493.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Sidewinder - Vines (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589429.jpg" />
+  <img src="Z:/picture/008/save_picture_589429.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ CoreLeoni - III (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587708.jpg" />
+  <img src="Z:/picture/008/save_picture_587708.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Jizzy Pearl - Hell, CA (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587664.jpg" />
+  <img src="Z:/picture/008/save_picture_587664.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Whitesnake - Flesh & Blood (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587149.jpg" />
+  <img src="Z:/picture/008/save_picture_587149.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Zinny Zan - Lullabies for the Masses (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585885.jpg" />
+  <img src="Z:/picture/008/save_picture_585885.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Kragher - Natteravn (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585880.jpg" />
+  <img src="Z:/picture/008/save_picture_585880.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Jones Street - Dancin' With The Devil (1995) 2021 [FLAC|Lossless|WEB-DL|tracks] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585877.jpg" />
+  <img src="Z:/picture/008/save_picture_585877.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Lipstick - Inner City (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585876.jpg" />
+  <img src="Z:/picture/008/save_picture_585876.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Cyanide 4 - Amalgama (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585848.jpg" />
+  <img src="Z:/picture/008/save_picture_585848.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Robin Red - Robin Red (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585833.jpg" />
+  <img src="Z:/picture/008/save_picture_585833.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ L.R.S. (La Verdi - Ramos - Shotton) - Down to the Core (2014) [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585533.jpg" />
+  <img src="Z:/picture/008/save_picture_585533.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Mike Tramp - Nomad (2015) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR, Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585522.jpg" />
+  <img src="Z:/picture/008/save_picture_585522.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Orion The Hunter - Orion The Hunter (1984) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585273.jpg" />
+  <img src="Z:/picture/008/save_picture_585273.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - The Crown Jewels. A Tribute to Queen (2006) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583413.jpg" />
+  <img src="Z:/picture/008/save_picture_583413.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Gasoline Stars - Good Looks, Bad Behaviour (2014) [APE|Lossless|image + .cue] <G
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583382.jpg" />
+  <img src="Z:/picture/008/save_picture_583382.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ H.E.A.T. - Into The Great Unknown (2017) [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583323.jpg" />
+  <img src="Z:/picture/008/save_picture_583323.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ H.E.A.T. - Into The Great Unknown (2017) [FLAC|Lossless|image + .cue] <Melodic H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AC12D56087B0F299C552DA68D6FD4FBA7F877C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041507   (582475) от 09.08.2016
-
-Mike Pachelli - Tube Driven (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Intro [0:03:12.35]
-02. Stand Alone [0:05:18.47]
-03. Texas Twin [0:04:07.53]
-04. Good Day's Rain(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502FE046920491BDA01112DB90664EAF15E0F1F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041491   (582464) от 09.08.2016
-
-Nick Simpers Fandango - Slipstreaming & Future Times (1999) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Candice Larene 6:35
-02. Rocky Road Blues 5:04
-03. Independent Man 6:33
-04. The Stallion 3:51(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:34 + 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077E2FF8C0224C63EA11F27A4556832306F80EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

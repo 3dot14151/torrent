@@ -1,3 +1,119 @@
+###  Публикация: 1084414   (271464) от 18.12.2016
+
+Guy Lafitte - Blue And Sentimental (1954) 2011, Universal[FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue And Sentimental [06:39]
+ 02.She's Funny That Way [03:14]
+ 03.If I Had You [02:51]
+ 04.Get Happy [02:58](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781AE9D2F9B4DC55972CD51B88074816FF29649C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084422   (271462) от 18.12.2016
+
+Betty Carter & Trio - I Didn't Know What Time It Was (1993) Jazz Door[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Intro [07:49]
+ 02.What's New [03:55]
+ 03.Tight [01:50]
+ 04.Medley [09:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6EA73ABF35D6EF6CE5E87BF5F564BCDD3E5D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266268   (271165) от 01.12.2018
+
+Earl Klugh - Life Stories (1986) Warner [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Traveler [4:05]
+02. Just For Your Love [4:15]
+03. Second Chance [4:01]
+04. For the Love of You [6:04](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15E7311EBBC812DC5D2365B189D95019FB79463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266207   (271164) от 01.12.2018
+
+Charlie Haden & Brad Mehldau - Long Ago And Far Away (2007) 2018, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_271164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Au Privave [9:55]
+02. My Old Flame [9:14]
+03. What'll I Do [12:00]
+04. Long Ago And Far Away [15:05](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E0E3748062C83C59C2B854F6FD7EC4FA33B3DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266272   (271159) от 01.12.2018
 
 Bebo Valdes - Bebo de Cuba (2004) 2CD, Calle 54 Records [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz, World Fusion>
@@ -6,7 +122,7 @@ Bebo Valdes - Bebo de Cuba (2004) 2CD, Calle 54 Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271159.jpg" />
+  <img src="Z:/picture/008/save_picture_271159.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bryan Ferry And His Orchestra - Bitter-Sweet (2018) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270994.jpg" />
+  <img src="Z:/picture/008/save_picture_270994.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ James Williams, Richard Davis, Ronnie Burrage - I Remember Clifford (1990) DIW [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270688.jpg" />
+  <img src="Z:/picture/008/save_picture_270688.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Jay Thomas With The Oliver Groenewald Newnet - I Always Knew (2018) Origin Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270682.jpg" />
+  <img src="Z:/picture/008/save_picture_270682.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Floris Kappeyne Trio - Interchange (2017) Challenge Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270491.jpg" />
+  <img src="Z:/picture/008/save_picture_270491.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Lou Levy - By Myself (1993) 1995, Verve [FLAC|Lossless|tracks + .cue] <Cool, Pia
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270487.jpg" />
+  <img src="Z:/picture/008/save_picture_270487.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Steve Lacy - More Monk (1989) 1991, Soul Note [FLAC|Lossless|tracks + .cue] <Ava
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270485.jpg" />
+  <img src="Z:/picture/008/save_picture_270485.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Bud Shank Quintet & Lou Levy Trio - Jazz in Hollywood Series (1954) 1997, Origin
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270484.jpg" />
+  <img src="Z:/picture/008/save_picture_270484.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Stan Kenton & His Orchestra - 7.5 On The Richter Scale (1973) 1991, Creative Wor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270439.jpg" />
+  <img src="Z:/picture/008/save_picture_270439.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Count Basie - Basie's Beatle Bag (1966) 1998, Verve [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270428.jpg" />
+  <img src="Z:/picture/008/save_picture_270428.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Katharine McPhee - I Fall In Love Too Easily (2017) [FLAC|Lossless|WEB-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270360.jpg" />
+  <img src="Z:/picture/008/save_picture_270360.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Aaron Weinstein - A Handful of Stars (2005) Arbors Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270092.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sabina Hank - Blue Moments (2001) Quinton Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270091.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Lee Morgan - Taru (1968) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270089.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Dorothy Ashby - Dorothy's Harp (1969) 2014, Universal [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270083.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Barry Harris Plays Tadd Dameron (1975) 1998, Prevue [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_270078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_270078.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ John Coltrane - Giant Steps (1959) 1987, Atlantic [FLAC|Lossless|image + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269911.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Jay Thomas & Michael Van Bebber Quintet - The Promise (2019) CUG Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269898.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Wallace Roney - Munchin' (1995) Muse Records [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269897.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ De-Phazz & STUBAphilharmonie - De Capo (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269812.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ VA - Simply Jazz After Dark (2014) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269766.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Yusef Lateef - Hush 'N' Thunder (1972) 1998, 32Jazz [WavPack|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269622.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Yusef Lateef - Hush 'N' Thunder (1972) 1998, 32Jazz [WavPack|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:421D81CD1C0D7B423F0B37966B00A058DFCFD93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266776   (269227) от 03.12.2018
-
-Wilbur Harden & John Coltrane - Tanganyika Strut (1958) 1991, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanganyika Strut [9:57]
-02. B.J. [4:33]
-03. Anedac [5:12]
-04. Once in a While [9:22]Жанр: Hard BopПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9364B878C027B2A53BCD489C893C8BB1CF7336C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266784   (269226) от 03.12.2018
-
-Matt Belsante - Nice 'n' Easy (2018) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice 'n' Easy [4:13]
-02. Cheek to Cheek [4:42]
-03. Since I Fell for You [4:22]
-04. There Will Never Be Another You [4:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E827EF2F95C8DD940696226727F98CCBDA2D2964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266788   (269225) от 03.12.2018
-
-Harry Connick, Jr. & Kelli O'Hara - Songs From Thou Shalt Not (2006) Columbia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Musical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh, My Dear (Something's Gone Wrong) [4:19]
-02. Can't We Tell [4:01]
-03. Such Love [5:50]
-04. I Like Love More [3:07](   Читать дальше...   )Жанр: Vocal Jazz, MusicalПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C85D94D32771232C05F1E2A0A0C6F94B0FC7F1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338632   (269015) от 16.11.2019
-
-Junior Mance - Three Classic Albums Plus 1959 - 1961 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269015.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. A Smooth One [3:31]
-02. Miss Jackie's Delight [3:56]
-03. Whisper Not [4:23](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 02:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40F4E29FBBDAD21785989856B40A129BFD2C969
 ```
 
 https://mybot314.ru/tekegram_catalog/

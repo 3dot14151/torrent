@@ -1,3 +1,83 @@
+###  Публикация: 1034857   (630508) от 15.07.2016
+
+Андрей Сахаров | Владимир Мономах (2010) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_630508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное произведение повествует об одном из самых известных государственных деятелей Древней Руси, великом князе киевском Владимире Мономахе (1053-1125).
+Читатель (слушатель), ознакомившись с этой книгой, получит достаточно достоверное и яркое представление об одном из интереснейших периодов русской истории, об эпохе расцвета Киевской Руси в XI - начале XII века.Жанр: ЖЗЛПродолжительность: 18:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13476A159E87633C0D5D4DB8614EE68E7AC15A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291926   (628369) от 08.04.2019
+
+Владимир Шигин | Легенды и были старого Кронштадта (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже при первом упоминании слова "Кронштадт" сразу же представляются одетые в гранит набережные и частокол корабельных мачт, перезвон склянок и мокрая брусчатка мостовой, низкое балтийское небо и молчаливые матросы в бушлатах с надвинутыми на лоб бескозырками…
+На самом деле сегодняшний Кронштадт совсем не такой, как мы его себе представляем, а куда более (   Читать дальше...   )Жанр: Исторический романПродолжительность: 11:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8506C36C99F0C2B224F29591C306737DFEC8F8A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292533   (628357) от 08.04.2019
+
+Николай Дмитриев | Карта царя Алексея (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нет покоя государю Московии Алексею Михайловичу, прозванному Тишайшим. Усмирены враги внешние, но в низовьях Волги разгорается пламя казачьей вольницы под предводительством дерзкого Стеньки Разина. Да и на Русский Север настырно лезут незваные гости, которым очень хочется не только найти морской путь в таинственную Мангазею, но и обустроиться на чужих для них берегах (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 09:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977E8805AE635A11B246EB3205B17836374C9C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292077   (628261) от 08.04.2019
 
 Валерий Чудов | Честь превыше смерти (2014) [MP3]
@@ -6,7 +86,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628261.jpg" />
+  <img src="Z:/picture/008/save_picture_628261.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628249.jpg" />
+  <img src="Z:/picture/008/save_picture_628249.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627732.jpg" />
+  <img src="Z:/picture/008/save_picture_627732.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627592.jpg" />
+  <img src="Z:/picture/008/save_picture_627592.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627488.jpg" />
+  <img src="Z:/picture/008/save_picture_627488.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627487.jpg" />
+  <img src="Z:/picture/008/save_picture_627487.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626514.jpg" />
+  <img src="Z:/picture/008/save_picture_626514.jpg" />
 </div>
 
 
@@ -192,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622625.jpg" />
+  <img src="Z:/picture/008/save_picture_622625.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621002.jpg" />
+  <img src="Z:/picture/008/save_picture_621002.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619150.jpg" />
+  <img src="Z:/picture/008/save_picture_619150.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613370.jpg" />
+  <img src="Z:/picture/008/save_picture_613370.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608529.jpg" />
+  <img src="Z:/picture/008/save_picture_608529.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608527.jpg" />
+  <img src="Z:/picture/008/save_picture_608527.jpg" />
 </div>
 
 
@@ -351,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608526.jpg" />
+  <img src="Z:/picture/008/save_picture_608526.jpg" />
 </div>
 
 
@@ -378,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607817.jpg" />
+  <img src="Z:/picture/008/save_picture_607817.jpg" />
 </div>
 
 
@@ -405,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606367.jpg" />
+  <img src="Z:/picture/008/save_picture_606367.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604750.jpg" />
+  <img src="Z:/picture/008/save_picture_604750.jpg" />
 </div>
 
 
@@ -457,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604738.jpg" />
+  <img src="Z:/picture/008/save_picture_604738.jpg" />
 </div>
 
 
@@ -483,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604391.jpg" />
+  <img src="Z:/picture/008/save_picture_604391.jpg" />
 </div>
 
 
@@ -509,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604310.jpg" />
+  <img src="Z:/picture/008/save_picture_604310.jpg" />
 </div>
 
 
@@ -535,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604308.jpg" />
+  <img src="Z:/picture/008/save_picture_604308.jpg" />
 </div>
 
 
@@ -561,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603458.jpg" />
+  <img src="Z:/picture/008/save_picture_603458.jpg" />
 </div>
 
 
@@ -587,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603220.jpg" />
+  <img src="Z:/picture/008/save_picture_603220.jpg" />
 </div>
 
 
@@ -598,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE463C786BCD3EA3CDDA47A83027DC171AB2A4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148892   (602924) от 08.07.2017
-
-Николай Соколов | Убийство царской семьи (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602924.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1918 году в Екатеринбурге было совершено зверское преступление. Мать, отец и их дети - четыре девочки и маленький мальчик - были жестоко убиты. Их достреливали в упор, добивали штыками. Стены комнаты, забрызганные кровью, расчлененные тела, попытка скрыть следы преступления... Наверное, появись такое сообщение в прессе, даже в наше криминальное время, оно заставило (   Читать дальше...   )Жанр: ИсторияПродолжительность: 18:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4565BE3319DE1DAAFC0E34DE0D9362837921FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232105   (602731) от 22.06.2018
-
-Андрей Васильченко | Сумрачный гений III Рейха. Карл Хаусхофер. Человек, стоявший за Гитлером (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Карла Хаусхофера была в равной мере загадочной и трагичной. Хотя бы по этой причине она обрастала огромным количеством мифов. Баварский кадровый офицер фактически создал новую научную дисциплину - геополитику. Сейчас ее изучают во многих российских университетах, хотя еще недавно она считалась «реакционной концепцией, использующей извращенно истолкованные данные (   Читать дальше...   )Жанр: ИсторияПродолжительность: 09:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16023210380B8E5A4D212C7EF4873170A019588D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232237   (602304) от 23.06.2018
-
-Агата Кристи | Автобиография (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агата Кристи - непревзойденный мастер детективного жанра, "королева детектива". Мы почти совсем ничего не знаем об этой женщине, о ее личной жизни, любви, страданиях, мечтах. Как удалось скромной англичанке, не связанной ни криминалом, ни с полицией, стать автором десятков произведений, в которых описаны самые изощренные преступления и не менее изощренные (   Читать дальше...   )Жанр: МемуарыПродолжительность: 28:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54C852685A578AB63598A41F74DE157AA4EC0AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

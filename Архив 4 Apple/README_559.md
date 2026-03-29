@@ -1,3 +1,108 @@
+###  Публикация: 1652494   (217846) от 11.08.2023
+
+Topaz Video AI for Mac 3.3.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.08.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.14 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCE07E4F83AF37114BA630BC3A1A15C152E323D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514381   (217811) от 03.12.2021
+
+Color Wheel 6.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровой, абстрактный, классический - все типы цветовых кругов в одном приложении!Тип издания: macOS SoftwareРелиз состоялся: 01.12.2021Разработчик: © 2021 Roman SevastyanovПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:881DDBD94809CB954C3B8D10FB7B853ADE24C1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514439   (217796) от 03.12.2021
+
+SQLPro for MSSQL 2021.106 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217796.jpg" />
+</div>
+
+
+###  Подробнее
+
+SQLPro для MSSQL - легкий клиент для управление базами данных Microsoft SQL Server, что позволяет получить быстрый и простой доступ к MSSQL серверам, в том числе через облачные сервисы, такие как SQL Azure или Amazon RDS.Тип издания: macOS SoftwareРелиз состоялся: 02.12.2021Разработчик: © 2021 Hankinsoft Development, Inc.Поддерживаемая ОС: OS X 10.12 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95EFF06CEC8F6199BF7805CAA5C15D2C31F084DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514379   (217726) от 03.12.2021
+
+Paste Queue (Multi Clipboard) 1.4.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paste Queue - это отличная экономия времени при копировании и вставке нескольких элементов между местоположениями. Просто сначала скопируйте все необходимые элементы. Затем вставьте их по одному или все сразу - нет необходимости переключаться между источником и местом назначения.
+Например, вы можете скопировать имя, номер телефона и адрес по одному с помощью сочетания (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.12.2021Разработчик: © 2021 Hoi ChangПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6353B672A410AF09052A276EBE64053C6A8BB3C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652477   (217617) от 11.08.2023
 
 Sublime Text 4.0 Build 4154 Dev for Mac [En]
@@ -6,7 +111,7 @@ Sublime Text 4.0 Build 4154 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217617.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Movavi Video Editor 4 v4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217597.jpg" />
 </div>
 
 
@@ -62,7 +167,7 @@ CleanMyMac 3.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217387.jpg" />
+  <img src="Z:/picture/005/save_picture_217387.jpg" />
 </div>
 
 
@@ -91,7 +196,7 @@ PullTube 1.8.5.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217292.jpg" />
 </div>
 
 
@@ -117,7 +222,7 @@ Multitouch 1.27.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217204.jpg" />
 </div>
 
 
@@ -143,7 +248,7 @@ Pastebot 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217190.jpg" />
+  <img src="Z:/picture/005/save_picture_217190.jpg" />
 </div>
 
 
@@ -170,7 +275,7 @@ Fork 2.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217188.jpg" />
 </div>
 
 
@@ -196,7 +301,7 @@ AnyTrans 5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217154.jpg" />
+  <img src="Z:/picture/005/save_picture_217154.jpg" />
 </div>
 
 
@@ -223,7 +328,7 @@ File Juicer 4.52 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217123.jpg" />
+  <img src="Z:/picture/005/save_picture_217123.jpg" />
 </div>
 
 
@@ -251,7 +356,7 @@ VectorStyler for Mac 1.1.094 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217051.jpg" />
 </div>
 
 
@@ -277,7 +382,7 @@ PullTube 1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217035.jpg" />
+  <img src="Z:/picture/005/save_picture_217035.jpg" />
 </div>
 
 
@@ -303,7 +408,7 @@ SQLPro Studio 2020.101 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217031.jpg" />
+  <img src="Z:/picture/005/save_picture_217031.jpg" />
 </div>
 
 
@@ -329,7 +434,7 @@ Middle 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217019.jpg" />
+  <img src="Z:/picture/005/save_picture_217019.jpg" />
 </div>
 
 
@@ -355,7 +460,7 @@ SSH Config Editor Pro 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216987.jpg" />
 </div>
 
 
@@ -381,7 +486,7 @@ SiteSucker 4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216940.jpg" />
 </div>
 
 
@@ -410,7 +515,7 @@ Proxyman for Mac 4.9.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216918.jpg" />
 </div>
 
 
@@ -436,7 +541,7 @@ Sensei 1.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216890.jpg" />
 </div>
 
 
@@ -462,7 +567,7 @@ WiFiSpoof 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216862.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216862.jpg" />
 </div>
 
 
@@ -491,7 +596,7 @@ iStatistica Pro 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216723.jpg" />
 </div>
 
 
@@ -517,7 +622,7 @@ iStatistica 5.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216671.jpg" />
 </div>
 
 
@@ -543,7 +648,7 @@ iExplorer 4.0.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216372.jpg" />
 </div>
 
 
@@ -571,7 +676,7 @@ Geekbench 4.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216340.jpg" />
 </div>
 
 
@@ -585,110 +690,6 @@ Geekbench 4 предлагает обновленный интерфейс и р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A49AB69EF5F23C56A18528F7851A4E920C8E6BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652830   (216334) от 13.08.2023
-
-DJ Mix Pads 2 - Remix Version 5.5.21 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216334.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ Mix Pads 2 - Remix Version - это уникальное приложение для музыкантов, которая включает все необходимое для создания битов.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2023Разработчик: © 2023 Music Paradise, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263CA24D33DD9A7A84989045914888AADB6B1539
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270053   (216305) от 17.12.2018
-
-SnippetsLab 1.8.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Улучшите свою производительность вместо с SnippetsLab. SnippetsLab — это простой в использовании менеджер фрагментов кода. Он позволяет вам структурировано и организованно хранить сниппеты, легко находить нужные, а также синхронизировать их между устройствами через iCloud. Интерфейс SnippetsLab минималистичен и оптимизирован для OS X Yosemite.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2018Разработчик: Renfei SongПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4903E74CEC7412B80EFD68403DCB8179CE4066C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269998   (216269) от 17.12.2018
-
-KCNcrew Pack 12.15.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216269.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.12.2018Разработчик: iSerialПоддерживаемая ОС: macOS 10.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAE4FF4724C5F6BE1C3B1193D29A71DC94DE5B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270035   (216244) от 17.12.2018
-
-Permute 3 v3.0.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 15.12.2018Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B3B16D54C80A8F2BEEEAB36A40E9016400E1832
 ```
 
 https://mybot314.ru/tekegram_catalog/

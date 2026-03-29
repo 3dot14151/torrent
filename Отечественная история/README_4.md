@@ -1,3 +1,30 @@
+###  Публикация: 1015099   (775767) от 09.05.2016
+
+Парад Победы, посвященный 71-ой годовщине Победы в ВОВ 1941-1945г., Санкт-Петербург. Дворцовая площадь (2016.05.09) HDTVRip [H.264/720p-LQ] [Life78]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военный парад, посвященный 71-й годовщине Победы в Великой Отечественной войне.
+Каждый год 9 мая во многих странах мира отмечают День Победы над немецко-фашистскими захватчиками. Но нигде этот праздник не празднуют с таким размахом, как в России. В 2016 году отмечается 71 год со Дня Победы.Телекомпания: Life 78Жанр: Документальный, военный парадСубтитры: ОтсутствуютПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA78B00A9D75AD39940B0737995106B59D59CBA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015070   (775765) от 09.05.2016
 
 Парад Победы, посвященный 71-ой годовщине Победы в ВОВ 1941-1945г., Москва (2016.05.09) SATRip [НТВ]
@@ -6,7 +33,7 @@
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775765.jpg" />
+  <img src="Z:/picture/008/save_picture_775765.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775764.jpg" />
+  <img src="Z:/picture/008/save_picture_775764.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775752.jpg" />
+  <img src="Z:/picture/008/save_picture_775752.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775720.jpg" />
+  <img src="Z:/picture/008/save_picture_775720.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775716.jpg" />
+  <img src="Z:/picture/008/save_picture_775716.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775691.jpg" />
+  <img src="Z:/picture/008/save_picture_775691.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775688.jpg" />
+  <img src="Z:/picture/008/save_picture_775688.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775681.jpg" />
+  <img src="Z:/picture/008/save_picture_775681.jpg" />
 </div>
 
 
@@ -221,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775508.jpg" />
+  <img src="Z:/picture/008/save_picture_775508.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774930.jpg" />
+  <img src="Z:/picture/008/save_picture_774930.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774927.jpg" />
+  <img src="Z:/picture/008/save_picture_774927.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765848.jpg" />
+  <img src="Z:/picture/008/save_picture_765848.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764818.jpg" />
+  <img src="Z:/picture/008/save_picture_764818.jpg" />
 </div>
 
 
@@ -353,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763611.jpg" />
+  <img src="Z:/picture/008/save_picture_763611.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760317.jpg" />
+  <img src="Z:/picture/008/save_picture_760317.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759836.jpg" />
+  <img src="Z:/picture/008/save_picture_759836.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749792.jpg" />
+  <img src="Z:/picture/008/save_picture_749792.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746516.jpg" />
+  <img src="Z:/picture/008/save_picture_746516.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735342.jpg" />
+  <img src="Z:/picture/008/save_picture_735342.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731870.jpg" />
+  <img src="Z:/picture/008/save_picture_731870.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730865.jpg" />
+  <img src="Z:/picture/008/save_picture_730865.jpg" />
 </div>
 
 
@@ -562,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725097.jpg" />
+  <img src="Z:/picture/008/save_picture_725097.jpg" />
 </div>
 
 
@@ -589,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723960.jpg" />
+  <img src="Z:/picture/008/save_picture_723960.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720325.jpg" />
+  <img src="Z:/picture/008/save_picture_720325.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная история
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716602.jpg" />
+  <img src="Z:/picture/008/save_picture_716602.jpg" />
 </div>
 
 
@@ -653,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EC583529AF4015209807B0B70A447D613F6CC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015064   (715720) от 09.06.2016
-
-Парад Победы в СССР 1985 года (1985) TVRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военный парад в ознаменование 40-й годовщины победы советского народа в Великой Отечественной войне. Москва, Красная площадь, 9 Мая 1985 года.Телекомпания: ИнтервидениеЖанр: ТелепередачаПродолжительность: 1:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39B25182AE3E526FBDCBCB877365316E494BB198
 ```
 
 https://mybot314.ru/tekegram_catalog/

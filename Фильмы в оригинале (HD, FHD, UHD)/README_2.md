@@ -1,3 +1,107 @@
+###  Публикация: 1476559   (1011630) от 11.06.2021
+
+Неолит / The Neolith (2020) WEBRip [H.264/1440p-LQ]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таинственный человек принимает меры против стаи кровожадных чужаков, чья жажда господства процветает.Производство: Великобритания / Claret & BlueЖанр: Короткометражный, боевик, приключенияРежиссер: Дэниэл БукокАктеры: Лассе Восс, Дэн Бойе, Джек Корри, Нанна ЛинеПеревод: ОтсутствуетЯзык озвучки: Оригинал (древнескандинавский язык)Субтитры: ОтсутствуютПродолжительность: 00:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0E41A6CDCB7931C472AC4D2FDA572E5621CA41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438512   (1011424) от 12.06.2021
+
+Бродяга Архимед (Архимед, клошар) / Archimede, le clochard (1959) BDRip [H.264/1080p] [FR / RU Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клошар Архимед — обаятельный, воспитанный, эрудированный человек. Кристально честный — нитки чужой не возьмет. Но со сложным характером, оттого и погром в баре учинить, или какого-нибудь типа в форме обругать он не задумается. У Архимеда в распоряжении целых четыре многоэтажных дома. Они еще не достроены, потому жить никто не мешает. Одна проблема — децибелы. С утра (   Читать дальше...   )Производство: Франция, Италия / Filmsonor, Intermondia Films, CinédisЖанр: драма, комедияРежиссер: Жиль ГранжьеАктеры: Жан Габен, Дарри Коул, Бернар Блие, Дора Долл, Поль Франкёр, Габи Бассет, Саша Брике, Ги Декомбль, Альбер Динан, Бернар Ла ЖарижПеревод: ОтсутствуетЯзык озвучки: ФранцузскийСубтитры: Русские (оригинальные, по своему переводу — Веселый Гном)Продолжительность: 01:23:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:193C4CA235135EB72009B5044F32D720143807B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478230   (1010426) от 18.06.2021
+
+Ограбление по-джентльменски / The Misfits (2021) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010426.jpg" />
+</div>
+
+
+###  Подробнее
+
+После дерзкого побега из тюрьмы самый известный вор в мире Ричард Пейс заключает сделку с «Командой изгоев», которые грабят богатых и отдают деньги бедным. Под началом бывалого вора-джентльмена новые Робин Гуды нацеливаются на крупнейшее хранилище золотых слитков в мире, владелец которого — Уорнер Шольц — отмывает деньги международных преступников, а по совместительству (   Читать дальше...   )Производство: США / Highland Film Group (HFG)K. JAM MediaRNG EntertainmentЖанр: Боевик, триллер, приключенияРежиссер: Ренни ХарлинАктеры: Пирс Броснан, Джейми Чон, Тим Рот, Гермиона Корфилд, Ник Кэннон, Pirat Nithipaisarnsakul, Гонсало Менендес, Адам Стоун, Сэм Калиди, Дэвид БатчелорПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B2B04E59AE759B8E0A5715D8E889ADDDBD37273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480464   (1008885) от 28.06.2021
+
+Тихое место 2 / A Quiet Place Part II (2021) WEB-DL [H.265/2160p] [HDR, 10-bit] [EN / RU, UK, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья Эбботт продолжает бороться за жизнь в полной тишине. Вслед за смертельной угрозой, с которой они столкнулись в собственном доме, им предстоит познать ужасы внешнего мира. Они вынуждены отправиться в неизвестность, где быстро обнаруживают, что существа, охотящиеся на звук, — не единственные враги за пределами безопасной песчаной тропы.Производство: США / Buffalo FilmWorks, Paramount Pictures, Platinum Dunes, Sunday Night ProductionsЖанр: Фантастика, ужасы, драма, триллерРежиссер: Джон КрасинскиАктеры: Эмили Блант, Джон Красински, Милли Симмондс, Ноа Джуп, Киллиан Мёрфи, Джимон Хонсу, Окьерете Онаодован, Скут МакНэри, Zachary Golinger, Блейк ДеЛонгПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские, русские, украинские, мультиязычныеПродолжительность: 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F6C29F33AB1ED60BA4F97520F0410E959E1C6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480569   (1008781) от 29.06.2021
 
 Тихое место 2 / A Quiet Place Part II (2021) WEBRip [H.264/720p-LQ] [EN / RU, UK, EN Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008781.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008413.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007748.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007743.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007735.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007712.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007675.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007646.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006372.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006323.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005892.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005866.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004954.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004945.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004943.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004803.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003942.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002363.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000752.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999870.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998182.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996876.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15337B48A55A8AA76C36CE1798FE200D398FD2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604736   (996028) от 18.01.2013
-
-Агент под прикрытием / So Undercover (2012) BDRip [720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня — Молли — частный детектив, нанятый ФБР для расследования одного важного дела. Девушка отправляется в колледж, чтобы под прикрытием попасть в тайное женское общество.Жанр: Боевик, КомедияРежиссер: Том ВонАктеры: Алексис Кнапп, Майли Сайрус, Джереми Пивен, Джошуа Боуман, Отем Ризер, Меган Парк, Мэттью Сеттл, Камерон Дин Стюарт, Андреа Франкл, Майк О’МэллиПеревод: ОтсутствуетПродолжительность: 01:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BB61F3133D66F0441E67BFF7E391037AD463B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971182   (987314) от 02.01.2016
-
-Он никогда не умирал / He Never Died (2015) WEB-DLRip [H.264/720p-LQ] [EN / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек (Генри Роллинз) - одинокий социопат, убивающий дни игрой в бинго, телевизором или просто сном. А еще он питается кровью, никогда не умирал и хорошо известен всем читавшим Ветхий Завет. Его размеренная жизнь меняется, когда на горизонте появляются 19-летняя дочь и куча неприятностей.Производство: США, Канада, Alternate Ending StudiosЖанр: Триллер, Комедия, Драма, УжасыРежиссер: Джейсон КравчикАктеры: Генри Роллинз, Стивен Огг, Бу Бу Стюарт, Джордан Тодоси, Джеймс Кейд, Майкл Крэм, Чантал Крэйг, Дэн Петронижевич, Тамара Альмейда, Кейт ГринхаусПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: РусскийПродолжительность: 01:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B2E8493F510C090662BAA86D32E1B21B47E2DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971672   (985401) от 03.01.2016
-
-Приговорённые 2: Охота в пустыне / The Condemned 2  (2015) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уилл Таннер из тех, кто выбрал для себя профессию «охотников за головами». Однажды он попадает в серьезные неприятности: его задерживает полиция, и ему выносят приговор. Его и бывшую его команду вовлекают в игру на выживание под объективами камер в угоду интересам благополучной публики. Ставки сделаны, приговоренные должны проявить в жестких обстоятельствах максимум (   Читать дальше...   )Производство: США, WWE StudiosЖанр: боевик, триллерРежиссер: Роэль РейнАктеры: Рэнди Ортон, Эрик Робертс, Уэс Стьюди, Стивен Майкл Квезада, Билл Стинчкомб, Алекс Найт, Дилан Кенин, Майкл Шитс, Дон Бикнелл, Марк Сивертсен, Мерритт К. Гловер, Мэттью ПейджПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:30:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85737281D4DF65793377F4FC9E096AE95F5C02C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971596   (985389) от 03.01.2016
-
-Он никогда не умирал / He Never Died (2015) WEB-DL [H.264/1080p-LQ] [EN / RU Sub]
-
->>След.
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джек (Генри Роллинз) - одинокий социопат, убивающий дни игрой в бинго, телевизором или просто сном. А еще он питается кровью, никогда не умирал и хорошо известен всем читавшим Ветхий Завет. Его размеренная жизнь меняется, когда на горизонте появляются 19-летняя дочь и куча неприятностей.Производство: США, Канада, Alternate Ending StudiosЖанр: Триллер, Комедия, Драма, УжасыРежиссер: Джейсон КравчикАктеры: Генри Роллинз, Стивен Огг, Бу Бу Стюарт, Джордан Тодоси, Джеймс Кейд, Майкл Крэм, Чантал Крэйг, Дэн Петронижевич, Тамара Альмейда, Кейт ГринхаусПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: РусскийПродолжительность: 01:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDDE59ECC1BC3A3E1784CE4755C661CB31D09CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1665353   (182531) от 30.09.2023
+
+Michael Wolff - Portraiture, The Blues Period (1998) Fuel 2000 [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blues Period [6:02]
+02. Sonnymoon for Two [5:57]
+03. On Green Dolphin Street [6:33]
+04. Round Midnight [5:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECADB89658C0C3A899626651D2E8FD98908FBF5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593090   (181984) от 25.11.2022
+
+Charlie Christian & Benny Goodman - 1939 - 1941 (1992) Jazz Roots [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Home [3:16]
+02. Till Tom Special [3:02]
+03. AC-DC Current [2:48]
+04. Seven Come Eleven [2:46](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA8D530A9694858A36E2A0C42865053241F5278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592821   (181966) от 25.11.2022
+
+Cecil Alexander - Introducing (2022) Heartcore Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bright Green [6:09]
+02. Shug [4:24]
+03. Till Then [4:30]
+04. 9th Round [4:58](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950650CF2508ECA135866081C7AD92961352579E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593179   (181787) от 25.11.2022
+
+Papik - Enjoy The Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say It (feat. Alan Scaffardi)
+02. Enjoy The Ride (feat. Walter Ricci)
+03. La Vita E' Piu' Bella Cosi' (feat. Rosalia De Souza)
+04. Adventure Of A Lifetime (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Jazz, Pop JazzПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20EF923E39A312306451A60FACE3F33AB0F583BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593102   (181728) от 25.11.2022
 
 Jazzamor - Don't Let Your Angels Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Acid Jazz>
@@ -6,7 +122,7 @@ Jazzamor - Don't Let Your Angels Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181728.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Hank Mobley - Hank Mobley (1957) 1996, Toshiba-EMI [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181645.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Michael Wolff - Impure Thoughts (2000) Indianola Music Group [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181640.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Duke Ellington - Gold (1940-e - 1960-e) 1993, Gold [FLAC|Lossless|image + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181604.jpg" />
+  <img src="Z:/picture/005/save_picture_181604.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ The Thelonious Monk Quartet - Monk's Dream (1962) 2014, Original Recordings Grou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181588.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Kaoru Nakasone - Fragrance (2000) M&I [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181574.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Tab Smith - Jump Time (1951, 1952) 1991, Delmark Records [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181573.jpg" />
+  <img src="Z:/picture/005/save_picture_181573.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Tab Smith - Top 'N' Bottom (1953, 1954) 1997, Delmark Records [FLAC|Lossless|ima
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181567.jpg" />
+  <img src="Z:/picture/005/save_picture_181567.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Tab Smith - Ace High (1952, 1953) 1992, Delmark Records [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181541.jpg" />
+  <img src="Z:/picture/005/save_picture_181541.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Candy Dulfer - 16 albums, 4 singles, 26 CD (1989-2022) [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181454.jpg" />
+  <img src="Z:/picture/005/save_picture_181454.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Peggy Lee - The Best of Miss Peggy Lee (1945-1969)1998, Capitol Records[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_181431.jpg" />
+  <img src="Z:/picture/005/save_picture_181431.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - The Columbia Jazz Piano Moods Sessions (1949 - 1952) 7CD, 2000, Mosaic Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181147.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Michael Wolff - Bounce (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180950.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Paul Bley Trio - Complete Savoy Sessions (1962-1963) 2008, Gambit Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180945.jpg" />
+  <img src="Z:/picture/005/save_picture_180945.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Paquito D'Rivera & Trio Corrente - Song For Maura (2013) Sunnyside [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180943.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Jack McDuff - The Heatin' System (1972) 2007, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180914.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Vainoras and the altar of the drill - Develop your eyesight for the darkness (20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180861.jpg" />
+  <img src="Z:/picture/005/save_picture_180861.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Barbara Lea - Remembering Remembering Lee Wiley (1995) Audiophile[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180679.jpg" />
+  <img src="Z:/picture/005/save_picture_180679.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - The Complete Bee Hive Sessions (1977 - 1984) 12CD, 2015, Mosaic Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180483.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Hal Galper Quintet - Live At The Berlin Philharmonic (1977, 19768) 2CD, 2021, Or
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180336.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Art Pepper - The 1975 Garden State Jam Sessions (2005) 2CD, Lone Hill Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_180127.jpg" />
+  <img src="Z:/picture/005/save_picture_180127.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Eddie Daniels & Roger Kellaway - A Duet Of One (2005) 2008, IPO Recordings [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180042.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Eddie Daniels & Roger Kellaway - A Duet Of One (2005) 2008, IPO Recordings [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2822C59CA3738F761DE031F104F69A1A8C4567EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593610   (179900) от 28.11.2022
-
-Konstantin Klashtorni - Smooth Essence (The Best Of) (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7 x 7 (4:13)
- 02. Humble and Kind (4:07)
- 03. Irresistible (4:13)
- 04. Together Again (4:07)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 01:21:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E926DAC9A886FA1225FC40CC66518CB00E274D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666414   (179714) от 04.10.2023
-
-George Freeman - Rebellion (1995) Southport Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There Will Never Be Another You [7:56]
-02. I Should Care [9:54]
-03. Time Was [7:37]
-04. Joshua Fit the Battle of Jericho [9:24](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35257C29FB3CADAC6379A4C520A281DC9E973DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666417   (179704) от 04.10.2023
-
-George Freeman - George Burns! (1999) Southport Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Cha Time! [4:04]
-02. Hot Box [5:28]
-03. And She Left Me [4:16]
-04. Vonski [5:00](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:03:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3803B3277D0BB09490D65E504F36DD8A91893E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666411   (179682) от 04.10.2023
-
-John Coltrane With Eric Dolphy - Evenings At The Village Gate (1961) 2023, Impulse! [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_179682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Favorite Things [15:54]
-02. When Lights Are Low [15:27]
-03. Impressions [10:13]
-04. Greensleeves [16:03](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD39467372D7FB1EBF793CD5300756CA070F428
 ```
 
 https://mybot314.ru/tekegram_catalog/

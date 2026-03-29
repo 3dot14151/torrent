@@ -1,3 +1,173 @@
+###  Публикация: 1276967   (775503) от 21.01.2019
+
+VA - Super Disco Еxclusive Vol.2 (2019) [MP3|256-320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775503.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Captain Jack - In The Army Now (Radio Mix)
+002. A. Rassevich - The Red Space (QRVZH Remix)
+003. DJ BeeCo - Give me kiss, kiss
+004. Jayan - Hasta Luego(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ED55B6610F1BA59617CDCC6F10FFA802ED5A096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276966   (775500) от 21.01.2019
+
+VA - Super Disco Еxclusive Vol.1 (2019) [MP3|320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775500.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dr. Alban - Its My Life (DJ SAVIN  Alex Pushkarev Remix)
+002. Above & Beyond feat. Justine Suissa - Cold Feet
+003. Michelle Andrade - Hasta la Vista
+004. Ennio Morricone - Chi Mai (A-Mase Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E3A53F485E176E94A9E1226D99612AF7A8EC31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277754   (775499) от 21.01.2019
+
+Roxette - Listen To Your Heart (2016) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roxette - Listen To Your Heart (Ennis Remix)Жанр: Club, DanceПродолжительность: 00:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFD024F94A845CAF77CEB819A66E3D1CD9CEB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276989   (775498) от 21.01.2019
+
+VA - Super Disco Еxclusive Vol.5 (Новогодний) (2019) [MP3|320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_775498.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vanotek feat. Eneli - Back To Me
+002. 7even (GR) - Mystery (Original Mix)
+003. Adelina - Bye Bye (Robert Cristian Remix)
+004. Techno Project & Dj Geny Tur - DUDUK(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 07:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5829745F8FAD880A24149F572704AFA4589E8A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212712   (774878) от 13.03.2018
+
+VA - Дискотека 2018 Dance Club Vol. 176 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1
+01. DJ Valdi Feat. Gemeni & April - Dead in an Hour (2:52)
+02. Maurice West & SaberZ - Rhythm Of The Night (Extended Mix) (4:37)
+03. Virtua Futura & Andy Lime - Way Home (Original mix) СUT (3:00)(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 14:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1450F502750227215EBCFD7610EEBFDD5CEE1793
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212853   (774006) от 14.03.2018
+
+Savage - Only You (2017) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774006.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Only You
+2. Master Remix
+3. Up MusicЖанр: Club, DanceПродолжительность: 00:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA56103EB5721C23E333F5064826DE396FA197B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278010   (773956) от 23.01.2019
 
 VA - Дискотека 2019 Dance Club Vol. 187 от NNNB [MP3|320 Kbps] <Club, Dance, Other>
@@ -6,7 +176,7 @@ VA - Дискотека 2019 Dance Club Vol. 187 от NNNB [MP3|320 Kbps] <Club,
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773956.jpg" />
+  <img src="Z:/picture/008/save_picture_773956.jpg" />
 </div>
 
 
@@ -35,7 +205,7 @@ VA - Velkomst Nu Disco Dance (2019) [MP3|320 Kbps] <Nu Disco, Dance Disco>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773295.jpg" />
+  <img src="Z:/picture/008/save_picture_773295.jpg" />
 </div>
 
 
@@ -64,7 +234,7 @@ VA - Billboard Hot 100 Singles Chart 26.01.2019 (2019) [MP3|320 Kbps] <Pop, Danc
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773176.jpg" />
+  <img src="Z:/picture/008/save_picture_773176.jpg" />
 </div>
 
 
@@ -93,7 +263,7 @@ VA - Music News vol.21 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773102.jpg" />
+  <img src="Z:/picture/008/save_picture_773102.jpg" />
 </div>
 
 
@@ -122,7 +292,7 @@ VA - 90's Dance Attack (2019) [MP3|320 Kbps] <Euro-House, Dream House, Hard Tran
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773004.jpg" />
+  <img src="Z:/picture/008/save_picture_773004.jpg" />
 </div>
 
 
@@ -151,7 +321,7 @@ VA - Новая Клубная Сборка лето 2016. 50 хитов (2016) 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772567.jpg" />
+  <img src="Z:/picture/008/save_picture_772567.jpg" />
 </div>
 
 
@@ -180,7 +350,7 @@ Barcode Brothers - Sms (2018) Remix [MP3|320 Kbps] <Club, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772515.jpg" />
+  <img src="Z:/picture/008/save_picture_772515.jpg" />
 </div>
 
 
@@ -206,7 +376,7 @@ VA - Metropolis: 200 Popular Euro Hits (2018) [MP3|320 Kbps] <Pop, Dance, RnB>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771860.jpg" />
+  <img src="Z:/picture/008/save_picture_771860.jpg" />
 </div>
 
 
@@ -235,7 +405,7 @@ VA - Зайцев.нет: Лучшие Новинки Марта (2018) [MP3|320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771750.jpg" />
+  <img src="Z:/picture/008/save_picture_771750.jpg" />
 </div>
 
 
@@ -264,7 +434,7 @@ VA - Зайцев.Нет: Лучшие Новинки Мая (2016) [MP3|192-320
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771120.jpg" />
+  <img src="Z:/picture/008/save_picture_771120.jpg" />
 </div>
 
 
@@ -293,7 +463,7 @@ VA - не Громкие новинки недели 72 (2020) [MP3|320 Kbps] <P
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770626.jpg" />
+  <img src="Z:/picture/008/save_picture_770626.jpg" />
 </div>
 
 
@@ -322,7 +492,7 @@ VA - Auto-hits. Hot mix (2016) [MP3|320 кб/с] <Dance, Club>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770396.jpg" />
+  <img src="Z:/picture/008/save_picture_770396.jpg" />
 </div>
 
 
@@ -351,7 +521,7 @@ VA - EDM Ibiza: Eurodance Party (2016) [MP3|238-320 кб/с] <Club, House, Eurod
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769682.jpg" />
+  <img src="Z:/picture/008/save_picture_769682.jpg" />
 </div>
 
 
@@ -380,7 +550,7 @@ VA - Весенний хит супер популярный 7 (2016) [MP3|256 �
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769628.jpg" />
+  <img src="Z:/picture/008/save_picture_769628.jpg" />
 </div>
 
 
@@ -409,7 +579,7 @@ VA - Promo DJ TOP 100 Remixes Spring (2016) [MP3|320 кб/с] <Club House, Vocal
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769521.jpg" />
+  <img src="Z:/picture/008/save_picture_769521.jpg" />
 </div>
 
 
@@ -436,7 +606,7 @@ VA - ЕвроХит Топ 40 Europa Plus 26.06.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768927.jpg" />
+  <img src="Z:/picture/008/save_picture_768927.jpg" />
 </div>
 
 
@@ -465,7 +635,7 @@ VA - Sexy Music or Songs to Striptease to or Songs to Have Sex (Fuck Music 2CD) 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768866.jpg" />
+  <img src="Z:/picture/008/save_picture_768866.jpg" />
 </div>
 
 
@@ -494,7 +664,7 @@ VA - Зайцев.Нет - Лучшие Новинки Апрель (2017) [MP3|
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768645.jpg" />
+  <img src="Z:/picture/008/save_picture_768645.jpg" />
 </div>
 
 
@@ -523,7 +693,7 @@ VA - ЕвроХит Топ 40 Europa Plus 25.01.2019 [MP3|320 Kbps] <Pop, Dance>
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768519.jpg" />
+  <img src="Z:/picture/008/save_picture_768519.jpg" />
 </div>
 
 
@@ -552,7 +722,7 @@ VA - PromoDJ TOP 100 Club Tracks April 2017  [MP3|320 Kbps] <Club House, Dance, 
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768374.jpg" />
+  <img src="Z:/picture/008/save_picture_768374.jpg" />
 </div>
 
 
@@ -566,179 +736,6 @@ VA - PromoDJ TOP 100 Club Tracks April 2017  [MP3|320 Kbps] <Club House, Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3346EF1BF0BCAF366F2C020BE0EF40F787F1B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393273   (768277) от 29.06.2020
-
-VA - Hits Of The 80s (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768277.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rick Astley - Never Gonna Give You Up 3:34
-002. Billy Ocean - When The Going Gets Tough, The Tough Get Going 4:08
-003. The Clash - Should I Stay Or Should I Go (Remastered) 3:08
-004. Matthew Wilder - Break My Stride 3:04(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 07:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:058257B7877B1B8A4E997854441631B27627AD22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213556   (768172) от 17.03.2018
-
-VA - Empire Records - Girlz Romances 7 (2018) [MP3|320 Kbps] <Pop, Ballads>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Beth Hart  -  Picture In A Frame  4:40
-02.  Natalia Avelon feat. Bela B.  -  Dark Desires  3:45
-03.  Katie Melua  -  If You Were A Sailboat  4:03
-04.  Julia Samoylova  -  Flame Is Burning  3:02(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 02:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA62F1A007EDD43155DDF34D75B09E9BDBF85BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213454   (768155) от 17.03.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 16.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Whatever It Takes
-02. Luis Fonsi, Demi Lovato - Echame La Culpa
-03. Jax Jones - Breathe (Ina Wroldsen)
-04. MARUV & Boosin - Drunk Groove(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E883C4B09464CFE128226B9B85E4B50654EE5D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125534   (768061) от 15.04.2017
-
-VA - DJ Feel: TOP 30 Of March (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aly & Fila - Beyond The Lights (Extended Mix)  7:46
-02.  Davey Asprey - Fallout (Original Mix)  3:26
-03.  Emmer - Here (Extended Mix)  6:46
-04.  Matrick - We Fight For Our Survival (Make One Remix)  4:39(   Читать дальше...   )Жанр: TranceПродолжительность: 04:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871B3A9F5A73E1834596A314E3F69BD2C320F6CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213494   (767973) от 17.03.2018
-
-Grivina - Я Хочу (2018) Remix [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я Хочу
-2. Alex Mistery
-3. Up MusicЖанр: Deep HouseПродолжительность: 00:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA0289D14BF099344476A44F131A9620C07AA89F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125472   (767882) от 15.04.2017
-
-VA - Легко на сердце от песни весёлой (2017) [MP3|192-320 Kbps] <Поп, Шансон>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767882.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Пикачушь - В Турции жарит солнце  3:39
-002.  Александр Босс - О тебе - Сулико  3:49
-003.  Вася Пряников - Задолбала  3:59
-004.  Красная Плесень - Корова (Черные глазЫ)  3:28(   Читать дальше...   )Жанр: Поп, ШансонПродолжительность: 11:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B48E77D3155C91FDDF99763904C931E146B59A
 ```
 
 https://mybot314.ru/tekegram_catalog/

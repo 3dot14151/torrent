@@ -1,3 +1,87 @@
+###  Публикация: 664854   (745681) от 05.06.2013
+
+Stimming - Stimming (2013) [FLAC|Lossless]<Tech House, Deep House, Minimal Techno, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_745681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Deep House, Minimal Techno, ElectronicПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396628   (745587) от 16.07.2020
+
+Matt Fax - Contrast (2017) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeolis Mons I (Original Mix) (2:47)
+ 02. The Chase (Original Mix) (4:04)
+ 03. Kinetic (Original Mix) (3:18)
+ 04. Close 2 U (Original Mix) (3:52)(   Читать дальше...   )Жанр: EDM, Progressive House, DowntempoПродолжительность: 01:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E7D74D322B4AC8DC6E3CBA2688F12E49F2FF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396775   (745582) от 16.07.2020
+
+Matt Fax - Contrast (Remixed) (2018) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeolis Mons I (Monika Remix) (3:35)
+ 02. The Chase (Jaytech Remix) (4:33)
+ 03. Kinetic (Estiva Remix) (3:19)
+ 04. Close 2 U (Anden Remix) (3:48)(   Читать дальше...   )Жанр: EDM, Progressive House, Deep HouseПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E2B8EAE24EDC27C641E93650EF689E1986CF3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396601   (745579) от 16.07.2020
 
 Matt Fax - Progressions (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Electro>
@@ -6,7 +90,7 @@ Matt Fax - Progressions (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House,
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745579.jpg" />
+  <img src="Z:/picture/008/save_picture_745579.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745407.jpg" />
+  <img src="Z:/picture/008/save_picture_745407.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745406.jpg" />
+  <img src="Z:/picture/008/save_picture_745406.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ David August - D'Angelo (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep H
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745401.jpg" />
+  <img src="Z:/picture/008/save_picture_745401.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ Substak - Deeper Walk (2018) Sea of Clouds [FLAC|Lossless|WEB-DL|tracks] <Dub Te
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742403.jpg" />
+  <img src="Z:/picture/008/save_picture_742403.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ DAVI - Metropolis EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742315.jpg" />
+  <img src="Z:/picture/008/save_picture_742315.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ DAVI - Metanoia EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742308.jpg" />
+  <img src="Z:/picture/008/save_picture_742308.jpg" />
 </div>
 
 
@@ -209,7 +293,7 @@ Phil Stroud - Australiana (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Deep Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741371.jpg" />
+  <img src="Z:/picture/008/save_picture_741371.jpg" />
 </div>
 
 
@@ -238,7 +322,7 @@ VA - Chriss Ronson - Focus: 003 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741119.jpg" />
+  <img src="Z:/picture/008/save_picture_741119.jpg" />
 </div>
 
 
@@ -267,7 +351,7 @@ Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741050.jpg" />
+  <img src="Z:/picture/008/save_picture_741050.jpg" />
 </div>
 
 
@@ -296,7 +380,7 @@ VA - India Gets Physical Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740204.jpg" />
+  <img src="Z:/picture/008/save_picture_740204.jpg" />
 </div>
 
 
@@ -325,7 +409,7 @@ Lane 8 - Reviver (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738137.jpg" />
+  <img src="Z:/picture/008/save_picture_738137.jpg" />
 </div>
 
 
@@ -354,7 +438,7 @@ Warner Case - dance music for dancing, vol. 1-2 (2019-2020) [FLAC|Lossless|WEB-D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736199.jpg" />
+  <img src="Z:/picture/008/save_picture_736199.jpg" />
 </div>
 
 
@@ -383,7 +467,7 @@ VA - Summerhits 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735252.jpg" />
+  <img src="Z:/picture/008/save_picture_735252.jpg" />
 </div>
 
 
@@ -412,7 +496,7 @@ Kaskade - Fire & Ice v3 (2022) [FLAC|Lossless|WEB|tracks] <Progressive House, Me
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733132.jpg" />
+  <img src="Z:/picture/005/save_picture_733132.jpg" />
 </div>
 
 
@@ -441,7 +525,7 @@ Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|WEB-DL|tracks] <Electron
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731842.jpg" />
+  <img src="Z:/picture/008/save_picture_731842.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ Feral - Court Of Light (2019) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730057.jpg" />
+  <img src="Z:/picture/008/save_picture_730057.jpg" />
 </div>
 
 
@@ -499,7 +583,7 @@ Death In Vegas - Transmission (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728934.jpg" />
+  <img src="Z:/picture/008/save_picture_728934.jpg" />
 </div>
 
 
@@ -528,7 +612,7 @@ VA - Anjunadeep 10 (Mixed by Jody Wisternoff & James Grant) (2019) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727831.jpg" />
+  <img src="Z:/picture/008/save_picture_727831.jpg" />
 </div>
 
 
@@ -557,7 +641,7 @@ VA - Winter Collection 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ho
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727818.jpg" />
+  <img src="Z:/picture/008/save_picture_727818.jpg" />
 </div>
 
 
@@ -586,7 +670,7 @@ Pantha du Prince - The Triad (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronica, 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727783.jpg" />
+  <img src="Z:/picture/008/save_picture_727783.jpg" />
 </div>
 
 
@@ -615,7 +699,7 @@ VA - Deep Value, Vol. 3 (Mixed by Mihai Popoviciu) (2019) Bondage Music [FLAC|Lo
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726546.jpg" />
+  <img src="Z:/picture/008/save_picture_726546.jpg" />
 </div>
 
 
@@ -644,7 +728,7 @@ VA - John Digweed - Re: Structured (Bedrock Records) (2015) Box Set [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726413.jpg" />
+  <img src="Z:/picture/008/save_picture_726413.jpg" />
 </div>
 
 
@@ -658,93 +742,6 @@ VA - John Digweed - Re: Structured (Bedrock Records) (2015) Box Set [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB9133C95510996B33B0BC38EF8FC0FC060F23BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399919   (725152) от 02.08.2020
-
-Zhu - Ringos Desert (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Deep House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stormy Love, NM. (3:48)
- 02. Still Want U (3:33)
- 03. Guilty Love (4:33)
- 04. Desert Woman (6:15)(   Читать дальше...   )Жанр: Electronic, Deep House, DowntempoПродолжительность: 00:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F950D1BA3AC7F9E3D31C896040BDC8FAAC850AD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284799   (724916) от 24.02.2019
-
-VA - Alfa State - Plays 7V (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ercos Blanka - Brigante (08:55)
-02. Ben Preisinger - The Quiet Wanderer (07:03)
-03. Agatha Pher - Light Shadow (06:40)
-04. Yarosslav - Boundaries (Iron Curtis No Boundaries Mix) (07:32)(   Читать дальше...   )Жанр: Deep House, Downtempo, Tech House, TechnoПродолжительность: 02:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8923A78D659952C4EA1C4B67F482EA90E9772058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284779   (724781) от 24.02.2019
-
-Poppy Ackroyd - Resolve Reimagined (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paper (Max Cooper Remix) (06:21)
-02. Light (Hauschka Remix) (04:51)
-03. The Calm Before (Daisuke Tanabe Remix) (05:52)
-04. Resolve (Floex Remix) (07:40)(   Читать дальше...   )Жанр: Electronic, Ambient, DowntempoПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7964DDD88803EFF195529599737F7728185321B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

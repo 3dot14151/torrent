@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699574.jpg" />
+  <img src="Z:/picture/008/save_picture_699574.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ EarthView 6.4.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699565.jpg" />
+  <img src="Z:/picture/008/save_picture_699565.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Topaz Video Enhance AI 1.5.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699563.jpg" />
+  <img src="Z:/picture/008/save_picture_699563.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ ORPALIS PaperScan Professional 3.0.116 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699561.jpg" />
+  <img src="Z:/picture/008/save_picture_699561.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699519.jpg" />
+  <img src="Z:/picture/008/save_picture_699519.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Process Lasso Pro 9.1.0.6 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699503.jpg" />
+  <img src="Z:/picture/008/save_picture_699503.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Autodesk AutoCAD MEP 2017 HF3 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699475.jpg" />
+  <img src="Z:/picture/008/save_picture_699475.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft Windows 10 Insider Preview Version 1607 build 10.0.14367 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699470.jpg" />
+  <img src="Z:/picture/008/save_picture_699470.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ DriverPack Solution 17.6.13 Offline [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699466.jpg" />
+  <img src="Z:/picture/008/save_picture_699466.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ LibreOffice 7.0.0.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699444.jpg" />
+  <img src="Z:/picture/008/save_picture_699444.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ eM Client Pro 8.0.3283.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699440.jpg" />
+  <img src="Z:/picture/008/save_picture_699440.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BELOFF [dp] 2020.08.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699435.jpg" />
+  <img src="Z:/picture/008/save_picture_699435.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ PrivaZer 4.0.41 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699416.jpg" />
+  <img src="Z:/picture/008/save_picture_699416.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ LibreOffice 6.2.1.2 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699371.jpg" />
+  <img src="Z:/picture/008/save_picture_699371.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Calibre 3.40.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699367.jpg" />
+  <img src="Z:/picture/008/save_picture_699367.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Hetman Partition Recovery 3.1 Home/Office/Commercial Edition RePack (& Portable)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699360.jpg" />
+  <img src="Z:/picture/008/save_picture_699360.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Bandicam 4.6.2.1699 RePack (& portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699349.jpg" />
+  <img src="Z:/picture/008/save_picture_699349.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Icecream Ebook Reader Pro 5.22 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699347.jpg" />
+  <img src="Z:/picture/008/save_picture_699347.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Product Key Explorer 4.2.6.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699344.jpg" />
+  <img src="Z:/picture/008/save_picture_699344.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ OCCT 10.1.4 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699319.jpg" />
+  <img src="Z:/picture/008/save_picture_699319.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ SamDrivers 22.1 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699301.jpg" />
+  <img src="Z:/picture/008/save_picture_699301.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Notepad++ 8.3.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699295.jpg" />
+  <img src="Z:/picture/008/save_picture_699295.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699279.jpg" />
+  <img src="Z:/picture/008/save_picture_699279.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Rainmeter 4.3.0 Build 3296 RC2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699278.jpg" />
+  <img src="Z:/picture/008/save_picture_699278.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ MAGIX Samplitude Pro X4 Suite 15.0.2.141 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699272.jpg" />
+  <img src="Z:/picture/008/save_picture_699272.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Auslogics BoostSpeed 11.5.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699260.jpg" />
+  <img src="Z:/picture/008/save_picture_699260.jpg" />
 </div>
 
 

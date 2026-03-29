@@ -6,7 +6,7 @@ Deliver Express 2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734027.jpg" />
+  <img src="Z:/picture/008/save_picture_734027.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PullTube 1.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734018.jpg" />
+  <img src="Z:/picture/008/save_picture_734018.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Default Folder X 5.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734016.jpg" />
+  <img src="Z:/picture/008/save_picture_734016.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Typeface Pro 3 v3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734013.jpg" />
+  <img src="Z:/picture/008/save_picture_734013.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Opera GX 83.0.4254.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733994.jpg" />
+  <img src="Z:/picture/008/save_picture_733994.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Glary Utilities Pro 5.181.0.210 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733977.jpg" />
+  <img src="Z:/picture/008/save_picture_733977.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Google Chrome 98.0.4758.80 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733974.jpg" />
+  <img src="Z:/picture/005/save_picture_733974.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Ultimaker Cura 4.13.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733970.jpg" />
+  <img src="Z:/picture/008/save_picture_733970.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Brave Browser 1.35.100 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733963.jpg" />
+  <img src="Z:/picture/008/save_picture_733963.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Google Chrome 98.0.4758.80 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733961.jpg" />
+  <img src="Z:/picture/008/save_picture_733961.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Far Manager 3.0.5959 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733958.jpg" />
+  <img src="Z:/picture/008/save_picture_733958.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733951.jpg" />
+  <img src="Z:/picture/008/save_picture_733951.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ WinNTSetup 5.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733947.jpg" />
+  <img src="Z:/picture/005/save_picture_733947.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ ESET Online Scanner 3.6.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733941.jpg" />
+  <img src="Z:/picture/008/save_picture_733941.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733939.jpg" />
+  <img src="Z:/picture/005/save_picture_733939.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Topaz Gigapixel AI 5.8.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733908.jpg" />
+  <img src="Z:/picture/005/save_picture_733908.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Movavi Video Editor Plus 22.1.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733906.jpg" />
+  <img src="Z:/picture/005/save_picture_733906.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Smultron 12.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733886.jpg" />
+  <img src="Z:/picture/005/save_picture_733886.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ BBEdit 13 v13.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733885.jpg" />
+  <img src="Z:/picture/005/save_picture_733885.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ VideoDuke 1.12 (build 286) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733884.jpg" />
+  <img src="Z:/picture/008/save_picture_733884.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Tagr 5 v5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733881.jpg" />
+  <img src="Z:/picture/008/save_picture_733881.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ PrivaZer 4.0.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733872.jpg" />
+  <img src="Z:/picture/008/save_picture_733872.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Rhinoceros 6 v6.28.20199 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733871.jpg" />
+  <img src="Z:/picture/008/save_picture_733871.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ VA - Beach Bar Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733869.jpg" />
+  <img src="Z:/picture/008/save_picture_733869.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ Say Hi - 7 альбомов (2002-2011) [FLAC|Lossless|tracks + .cue]<Indie Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733866.jpg" />
+  <img src="Z:/picture/008/save_picture_733866.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ AusLogics Disk Defrag Pro 9.5.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733855.jpg" />
+  <img src="Z:/picture/008/save_picture_733855.jpg" />
 </div>
 
 

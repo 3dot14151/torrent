@@ -6,7 +6,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 4 (2015) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245245.jpg" />
+  <img src="Z:/picture/004/save_picture_245245.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 1 (2014) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245229.jpg" />
+  <img src="Z:/picture/004/save_picture_245229.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Chill with Style - The Lounge & Chill-Out Collection, Vol. 2 (2014) [AAC|~3
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245223.jpg" />
+  <img src="Z:/picture/004/save_picture_245223.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - The Electro Swing Revolution (2011) [AAC|~305 Kbps] <Electro Swing, Nu Jazz
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245168.jpg" />
+  <img src="Z:/picture/004/save_picture_245168.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Nightflight Rio - 22 Premium Downbeat & Lounge Trax (2014) [AAC|~340 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245115.jpg" />
+  <img src="Z:/picture/004/save_picture_245115.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Nightflight Mallorca – 22 Premium Downbeat & Lounge Trax (2013) [AAC|~345
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245106.jpg" />
+  <img src="Z:/picture/004/save_picture_245106.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Reggaeton Nocturno, Vol. 4 (2022) [AAC|~312 Kbps] <Reggae, Dancehall>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245092.jpg" />
+  <img src="Z:/picture/004/save_picture_245092.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Nightflight Dubai, Vol. 2 - 22 Premium Downbeat & Lounge Trax (2015) [AAC|~
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245077.jpg" />
+  <img src="Z:/picture/004/save_picture_245077.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Deep Voyage 2 (2020) [AAC|~319 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245057.jpg" />
+  <img src="Z:/picture/004/save_picture_245057.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Back to Earth #04 (2021) [AAC|~328 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244950.jpg" />
+  <img src="Z:/picture/004/save_picture_244950.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Back to Earth #03 (2021) [AAC|~323 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244939.jpg" />
+  <img src="Z:/picture/004/save_picture_244939.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Back to Earth #01 (2020) [AAC|~323 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244916.jpg" />
+  <img src="Z:/picture/004/save_picture_244916.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Back to Earth #02 (2020) [AAC|~323 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244907.jpg" />
+  <img src="Z:/picture/004/save_picture_244907.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Sunrise Meditation, Vol. 04 (2020) [AAC|~311 Kbps] <Lounge, Lo-Fi, Ambient,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244897.jpg" />
+  <img src="Z:/picture/004/save_picture_244897.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Back to Earth #05 (2022) [AAC|~327 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244891.jpg" />
+  <img src="Z:/picture/004/save_picture_244891.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - ICONYC Five Years, Pt. 1 (2021) [AAC|~331 Kbps] <Progressive House, Melodic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244858.jpg" />
+  <img src="Z:/picture/004/save_picture_244858.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244855.jpg" />
+  <img src="Z:/picture/004/save_picture_244855.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - ICONYC Five Years, Pt. 2 (2022) [AAC|~332 Kbps] <Progressive House, Melodic
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244850.jpg" />
+  <img src="Z:/picture/004/save_picture_244850.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - Discovery Series 002 (2019) [AAC|~335 Kbps] <Melodic House & Techno>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244844.jpg" />
+  <img src="Z:/picture/004/save_picture_244844.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ VA - Discovery Series 001 (2019) [AAC|~335 Kbps] <Melodic House & Techno, Deep H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244836.jpg" />
+  <img src="Z:/picture/004/save_picture_244836.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Discovery Series 003 (2021) [AAC|~342 Kbps] <Melodic House & Techno, Organi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244828.jpg" />
+  <img src="Z:/picture/004/save_picture_244828.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Discovery Series 004 (2022) [AAC|~331 Kbps] <Progressive House, Melodic Hou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244823.jpg" />
+  <img src="Z:/picture/004/save_picture_244823.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Chilhouette - Questions (2015) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244800.jpg" />
+  <img src="Z:/picture/004/save_picture_244800.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - My Chillout Playlist (2022) [AAC|~306 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244795.jpg" />
+  <img src="Z:/picture/004/save_picture_244795.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ VA - Winter Lounge, Vol. 2 (2022) [AAC|~301 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244785.jpg" />
+  <img src="Z:/picture/004/save_picture_244785.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Chilhouette - Sights from Within (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244778.jpg" />
+  <img src="Z:/picture/004/save_picture_244778.jpg" />
 </div>
 
 

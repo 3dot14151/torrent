@@ -1,3 +1,139 @@
+###  Публикация: 1211069   (777781) от 06.03.2018
+
+Digital Clock 3D 1.1.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная подборка цифровых часов, начиная от ретро и закачивая современным вариантом OLED. Подключить все это великолепие, можно, как в качестве обоев, так и в качестве заставки. Выберите стиль, который вам больше всего нравится или оставьте его на волю случая, смакуя ультрареалистичную 3D графику!Тип издания: macOS SoftwareРелиз состоялся: 30.10.2014Разработчик: 3PlanesoftПоддерживаемая ОС: OS X 10.6.6 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7476708ACB840DB0D713CB7432F2DF5A467E822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013451   (777646) от 04.05.2016
+
+Timelime 1.4.3 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отслеживание и визуализировать ваши часы работы .
+Timelime это самый простой и самый красивый способ отслеживать и визуализировать свои рабочие часы.
+Timelime является идеальным помощником для:  Фрилансеров и независимых подрядчиков, которые должны отслеживать свое время, затрачиваемое на проекты;  студентов, которые хотят тратить больше времени на изучение, контролируя (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27.10.2015Разработчик: Niko KrämerПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93A9391023249DFC82E95A7663458B3DB5126011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013317   (777604) от 04.05.2016
+
+Things 2.8.4 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 мая 2016Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8EC95345B281054B86F6D8D4B3DE261EB63741C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211413   (777483) от 07.03.2018
+
+Movavi Screen Capture Pro 5.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Screen Capture Pro для Mac поможет быстро и легко делиться с коллегами происходящим на экране при помощи видео и скриншотов. Показывайте «баги» и ошибки на скриншотах, добавляйте пояснительные стрелки и надписи. Записывайте важные видеозвонки и онлайн-собеседования, чтобы вернуться к ним позже. Экономьте время благодаря понятному интерфейсу и быстрому сохранению. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.02.2018Разработчик: MovaviПоддерживаемая ОС: OS X 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD1BE30C596C2F3C2122A91038056C66CE30204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211408   (777478) от 07.03.2018
+
+OmniFocus 2.12 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живите продуктивной жизнью в контексте с OmniFocus 2 для Mac. Разделяйте рабочие и личные вопросы с помощью контекстов, перспектив и фокуса. Игнорируйте маловажное, сосредоточьтесь на том, что можно сделать прямо сейчас, и добивайтесь большего. Все это вы можете делать гораздо быстрее, чем раньше.
+
+Интерфейс OmniFocus создан «с чистого листа» и ориентирован на ваши (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.03.2018Разработчик: The Omni GroupПоддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD8427F6FBD87BB74D49955AB55CB5E67A0878EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013483   (777452) от 04.05.2016
 
 Xilisoft Video Converter Ultimate 7.8.16 [Multi]
@@ -6,7 +142,7 @@ Xilisoft Video Converter Ultimate 7.8.16 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777452.jpg" />
 </div>
 
 
@@ -32,7 +168,7 @@ Templates Lab for MS Office 3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777430.jpg" />
 </div>
 
 
@@ -59,7 +195,7 @@ Microsoft Office Standard 2016 Volume License Edition v15.21.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777421.jpg" />
 </div>
 
 
@@ -86,7 +222,7 @@ Microsoft Office Standard 2016 VL v15.21.1 (with individual installers) [Multi/R
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777053.jpg" />
+  <img src="Z:/picture/008/save_picture_777053.jpg" />
 </div>
 
 
@@ -113,7 +249,7 @@ Alien Skin Software Photo Bundle Collection (Update 05.05.2016) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777048.jpg" />
+  <img src="Z:/picture/008/save_picture_777048.jpg" />
 </div>
 
 
@@ -139,7 +275,7 @@ Forecast 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776930.jpg" />
+  <img src="Z:/picture/008/save_picture_776930.jpg" />
 </div>
 
 
@@ -168,7 +304,7 @@ Episode Engine with Pro Audio Option 7.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776803.jpg" />
+  <img src="Z:/picture/008/save_picture_776803.jpg" />
 </div>
 
 
@@ -196,7 +332,7 @@ Uplet: bulk instagram uploader 1.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776769.jpg" />
+  <img src="Z:/picture/008/save_picture_776769.jpg" />
 </div>
 
 
@@ -222,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776706.jpg" />
+  <img src="Z:/picture/008/save_picture_776706.jpg" />
 </div>
 
 
@@ -249,7 +385,7 @@ App Uninstaller 4.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776509.jpg" />
+  <img src="Z:/picture/008/save_picture_776509.jpg" />
 </div>
 
 
@@ -275,7 +411,7 @@ FreeWay Pro 7.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776443.jpg" />
+  <img src="Z:/picture/008/save_picture_776443.jpg" />
 </div>
 
 
@@ -303,7 +439,7 @@ PhoneExpander 1.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776371.jpg" />
+  <img src="Z:/picture/008/save_picture_776371.jpg" />
 </div>
 
 
@@ -331,7 +467,7 @@ Call Recorder for Skype 2.5.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776244.jpg" />
+  <img src="Z:/picture/008/save_picture_776244.jpg" />
 </div>
 
 
@@ -360,7 +496,7 @@ iSmartPhoto 1.7.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776114.jpg" />
+  <img src="Z:/picture/008/save_picture_776114.jpg" />
 </div>
 
 
@@ -389,7 +525,7 @@ VidConvert 1.6.5 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775715.jpg" />
+  <img src="Z:/picture/008/save_picture_775715.jpg" />
 </div>
 
 
@@ -417,7 +553,7 @@ Mail Designer Pro 2 v2.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774985.jpg" />
+  <img src="Z:/picture/008/save_picture_774985.jpg" />
 </div>
 
 
@@ -445,7 +581,7 @@ Corel ParticleShop 1.2.566 and Brush Pack v1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774698.jpg" />
+  <img src="Z:/picture/008/save_picture_774698.jpg" />
 </div>
 
 
@@ -474,7 +610,7 @@ Mojave Cache Cleaner 12.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774225.jpg" />
+  <img src="Z:/picture/008/save_picture_774225.jpg" />
 </div>
 
 
@@ -502,7 +638,7 @@ Aquarium 4K - Live Wallpaper 1.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774217.jpg" />
+  <img src="Z:/picture/008/save_picture_774217.jpg" />
 </div>
 
 
@@ -528,7 +664,7 @@ CodeKit 2.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774198.jpg" />
+  <img src="Z:/picture/008/save_picture_774198.jpg" />
 </div>
 
 
@@ -555,7 +691,7 @@ Chroma 1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774117.jpg" />
+  <img src="Z:/picture/008/save_picture_774117.jpg" />
 </div>
 
 
@@ -569,140 +705,6 @@ Chroma даст вам естественно гармоничные цвета 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0239995B701BE96CD2E181D95D08B3EFCB95E7F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015616   (774050) от 11.05.2016
-
-Jetico BestCrypt 2.0.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774050.jpg" />
-</div>
-
-
-###  Подробнее
-
-BestCrypt - это пакет программ для создания на жестком диске компьютера виртуального зашифрованного диска. С зашифрованным контейнером можно работать как с обычным жестким диском - размещать на нем файлы и производить с ними любые операции, инсталлировать программы и т.д. и т.п. Шифрование/расшифровка идет в фоновом режиме, так что пользователь не замечает разницы (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 марта 2016Разработчик: Jetico Inc.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D13C306E5820EE19414E4D996C92E8752556F0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015659   (773985) от 11.05.2016
-
-Anatomy & Physiology 3.0.17 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатомия и физиология - Введение в структуры и функции тела
-Anatomy & Physiology - начните шаг за шагом с визуальным введением в каждую систему человеческого тела. Это приложение использует 3D-модели, иллюстрации и 3D-анимации, чтобы представить основные концепции для начинающих и знающих. Для вас старалась группа высококвалифицированных специалистов, работу (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 25 апреля 2016Разработчик: Argosy Publishing, Inc.,Поддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE96EC3AC2F233DFB1DC2A53F5B1953D16FA14A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015651   (773836) от 11.05.2016
-
-Human Anatomy Atlas – 3D Anatomical Model of the Human Body 7.4.01 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Human Anatomy Atlas - лучший 3D анатомический атлас  будет незаменимым как для людей связанных с медициной, так и для просто интересующихся людей. Отлично поможет изучить и заполнить пробелы в знаниях по анатомии человека-женщины и человека-мужчины. Для вас старалась группа высококвалифицированных специалистов, работу которых проверяли врачи и анатомы. Так что все (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 июня 2015Разработчик: Argosy Publishing, Inc.,Поддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1020BBFC90B0D26346F6B502DC4A4C8444F6801E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015621   (773828) от 11.05.2016
-
-Microsoft Office Standard 2016 v15.22 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко узнаваемый Office, разработанный для Mac
-Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint, Outlook и OneNote, сочетающие в себе знакомый интерфейс Office и уникальные возможности Mac, которые успели вам полюбиться. Поддержка полноэкранного режима с оптимизацией для Retina дисплеев стало приятным и уместным нововведением.Тип издания: OS X SoftwareРелиз состоялся: 10 мая 2016Разработчик: MicrosoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C759765C4999895B842EE71E4B21104373A9DA5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124769   (773530) от 13.04.2017
-
-Fax Templates for Pages 1.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fax Templates for Pages -  высококачественный набор из более 100 оригинальных шаблонов для приложения Pages Apple. В то время как многие предприятия перешли на различных современные коммуникационные технологий, некоторые до сих пор настаивают на использовании факсимильного аппарата. Вы можете быть на вершине факса с диапазоном стильных шаблонов от Graphic Node.
-
-Каждый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10 апреля 2017Разработчик: Graphic NodeПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F362FF2B2C6FE6B78806F8E3B7BDD75C69580B1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

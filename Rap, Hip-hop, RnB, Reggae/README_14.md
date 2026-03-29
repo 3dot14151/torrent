@@ -6,7 +6,7 @@ UB40 - UB40 (1988) Reissue [FLAC|Lossless|image + .cue] <Electronic, Synth-pop>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731822.jpg" />
+  <img src="Z:/picture/008/save_picture_731822.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nyctophiliac - Dark Side of the Mental (2016) [FLAC|Lossless|Web-DL|tracks] <Abs
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724776.jpg" />
+  <img src="Z:/picture/008/save_picture_724776.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723747.jpg" />
+  <img src="Z:/picture/008/save_picture_723747.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ N.W.A. - Greatest Hits (1996) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720953.jpg" />
+  <img src="Z:/picture/008/save_picture_720953.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Dr. Dre - 2001 (1999) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720787.jpg" />
+  <img src="Z:/picture/008/save_picture_720787.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Pastor Napas - Азъ есмь (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719397.jpg" />
+  <img src="Z:/picture/008/save_picture_719397.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719395.jpg" />
+  <img src="Z:/picture/008/save_picture_719395.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Murda Killa x 13senpai - D.S.H.H. (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719262.jpg" />
+  <img src="Z:/picture/008/save_picture_719262.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719261.jpg" />
+  <img src="Z:/picture/008/save_picture_719261.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ VELIAL SQUAD - Black Mass III (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719260.jpg" />
+  <img src="Z:/picture/008/save_picture_719260.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ JEEMBO - BLACK BOX (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719258.jpg" />
+  <img src="Z:/picture/008/save_picture_719258.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719251.jpg" />
+  <img src="Z:/picture/008/save_picture_719251.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ KUNTEYNIR - Дорога в облака (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Un
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719248.jpg" />
+  <img src="Z:/picture/008/save_picture_719248.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719153.jpg" />
+  <img src="Z:/picture/008/save_picture_719153.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ ST1M x Black Bros. - King Is Back 3 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719150.jpg" />
+  <img src="Z:/picture/008/save_picture_719150.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Logic - No Pressure (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719012.jpg" />
+  <img src="Z:/picture/008/save_picture_719012.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Groove Da Praia - The Groove Girls (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae,
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718864.jpg" />
+  <img src="Z:/picture/008/save_picture_718864.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Groove Da Praia - Transformations (2016) [FLAC|Lossless|WEB-DL|tracks] <Reggae, 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718755.jpg" />
+  <img src="Z:/picture/008/save_picture_718755.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Gaslamp Killer - Heart Math (2020) [MP3|320 Kbps] <Abstract, Hip-Hop, Instru
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714886.jpg" />
+  <img src="Z:/picture/008/save_picture_714886.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Becko - Inner Self (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714885.jpg" />
+  <img src="Z:/picture/008/save_picture_714885.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Trueтень & Алексей Сулима - Калейдоскоп (2020) [MP3|
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713333.jpg" />
+  <img src="Z:/picture/008/save_picture_713333.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Lil Pump - Harverd Dropout (2019) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713049.jpg" />
+  <img src="Z:/picture/008/save_picture_713049.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ NLE Choppa - Top Shotta (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Trap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713033.jpg" />
+  <img src="Z:/picture/008/save_picture_713033.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Felt - Felt 4 U (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711011.jpg" />
+  <img src="Z:/picture/008/save_picture_711011.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704312.jpg" />
+  <img src="Z:/picture/008/save_picture_704312.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Sting & Shaggy - 44/876 (2018) [MP3|320 Kbps] <Reggae, Pop>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703883.jpg" />
+  <img src="Z:/picture/008/save_picture_703883.jpg" />
 </div>
 
 

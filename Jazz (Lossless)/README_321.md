@@ -1,3 +1,119 @@
+###  Публикация: 1718812   (110709) от 27.04.2024
+
+VA - Italian Soft Jazzy Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Banda Brasileira - Napule è (4:10)
+02. Papik - Ancora Tu (5:12)
+03. Melania - Malafemmena (4:22)
+04. Walter Ricci - Tu Si Na Cosa Grande (4:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167FE2683BBF3E048C1C6B8BF6F8B8107D8F60F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718890   (110708) от 27.04.2024
+
+Miles Davis - Four Classic Albums (1957 - 1960) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buzzard Song [4:11]
+02. Bess, You Is My Woman Now [5:15]
+03. Gone [3:41]
+04. Gone, Gone, Gone [2:07](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 02:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF54FD0F05E82CFD16A54F8C9D247BAD8FC71F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718904   (110702) от 27.04.2024
+
+Barbara Morrison featuring Houston Person - I Wanna Be Loved (2017) Savant [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perdido [2:59]
+02. I Wanna Be Loved [4:17]
+03. This Time the Dream's on Me [3:13]
+04. I'll Close My Eyes [5:10](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A0D1CD53327865A62DF960653C73A3285184249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718893   (110695) от 27.04.2024
+
+Judy Wexler - Dreams & Shadows (2008) Jazzed Media [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Comes Love [4:42]
+02. Dreams & Shadows (Delilah) [4:30]
+03. In Love in Vain [2:47]
+04. Photograph [2:37](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3B7B10C348EEE90FF59A5554ADF7FE025FDD6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718742   (110692) от 27.04.2024
 
 Judy Wexler - Easy on the Heart (2005) Jazzopolis [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
@@ -6,7 +122,7 @@ Judy Wexler - Easy on the Heart (2005) Jazzopolis [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110692.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Judy Wexler - Under A Painted Sky (2011) Jazzed Media [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110631.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Bobby Watson & Horizon - No Question About It (1988) Blue Note [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110622.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Rob Stoneback Big Band - Caught In The Web (1996) Sea Breeze [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110612.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Barbara Morrison featuring Houston Person - A Sunday Kind Of Love (2010 - 2012) 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110608.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Instrumental Wedding Music Zone, Jazz Erotic Lounge Collective - Wedding Night E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110506.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Dave Brubeck - Jazz Impressions Of Japan & Jazz Impressions Of New York (1960, 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110482.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Bobby Watson & Horizon - Horizon Reassembled (2004) Palmetto Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110478.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bobby Watson & Horizon - Post-Motown Bop (1991) Blue Note [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110476.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ The Dave Brubeck Quartet - Plays Music From West Side Story (1960, 1965) 1986, C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110473.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Mike Holober & The Gotham Jazz Orchestra - Thought Trains (1996) 2004, Sons Of S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110469.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Jazzlamic Jihad (The Hard Bop Holy War) - Forbidden Expression (1994) Ratamacue 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110466.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Judy Garland - That's Entertainment! (1960) 1987, Capitol Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110460.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Dave Brubeck - Blue Rondo: The 1987 Dave Brubeck Quartet (2000) Concord Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110458.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Bobby Watson - Keepin' It Real (2020) Smoke Sessions Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110391.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110391.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Gerald Ross - Absolute Uke (2015) UkeTone Records [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110369.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Kandace Springs - Run Your Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110309.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Bobby Watson - At the Gouvy Festival: In The Groove (2000) Challenge Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110306.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Raphael Imbert, Johan Farjot & Guests - Les 1001 Nuits du Jazz: Live au Bal Blom
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110289.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Yusef Lateef - Atlantis Lullaby: The Concert From Avignon (1972) 2CD, 2024, Elem
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110101.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Willow - empathogen (2024) [FLAC|Lossless|WEB-DL|tracks] <alternative pop, Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110092.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Lennie Tristano - The New Tristano (1960 - 1962) 2013, Warner [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110058.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Lennie Tristano - The New Tristano (1960 - 1962) 2013, Warner [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEF796F40299EE89B8AEA2227B801B1C058724E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720567   (110055) от 06.05.2024
-
-Ben Webster - Ben Webster (1940-e) 2004, Centurion Jazz [FLAC|Lossless|image + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linger Awhile [3:14]
-02. Woke Up Clipped [3:11]
-03. Blue Skies [3:15]
-04. Rug Cutter's Swing [3:02](   Читать дальше...   )Жанр: SwingПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1601F547F995F379244ACC185D0E0DE7FD1B1ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721116   (110053) от 06.05.2024
-
-Houston Person - Legends Of Acid Jazz: Person to Person! & Houston Express (1970, 1971) 1996, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son of Man [8:33]
-02. Tear Drops [4:41]
-03. Close to You [5:20]
-04. Drown in My Own Tears [7:23](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A143815C85AF6B348A6B8661949CF1FDFE3071AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720568   (110045) от 06.05.2024
-
-Johan Farjot & Friends - Caravan Party (2021) 2023, Klarthe Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brother Can You Spare a Dime [5:04]
-02. Woodstock [5:24]
-03. Ode to Sainte Cecile [4:24]
-04. If You Knew [3:35](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Vocal JazzПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F385710E7DC6B54EDDC84E3356DDD084834AB201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721469   (109962) от 08.05.2024
-
-Charles McPherson - Charles McPherson (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's Going On [3:32]
-02. Serenity [7:28]
-03. My Funny Valentine [7:45]
-04. Another Kind of Blues [7:15](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71282E424BA2426C22E870948F0D66258DE57D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

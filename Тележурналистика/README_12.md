@@ -1,3 +1,136 @@
+###  Публикация: 1365401   (930561) от 07.03.2020
+
+Терапия (2017) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцать питерских подростков, которые были осуждены за преступления различной степени тяжести, получают помилование, и реальные сроки им заменяют на условные с обязательством проживания в центре социальной реабилитации.Производство: РоссияЖанр: ДокументальныйРежиссер: Юлия СерьгинаСубтитры: Отсутствуют
+Внимание! Присутствует ненормативная лексика.Продолжительность: 00:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDFBEF9C2356DB888EE10D10E16157046F9FCE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365410   (930022) от 07.03.2020
+
+Война снайпера / A Sniper's War (2018) WEBRip [H.264/720p-LQ] [PR]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антиамериканские взгляды привели снайпера Деки на войну на Востоке Украины. Сейчас его жизнь под угрозой — в социальных сетях ему назначена «дуэль» со стороны противника.
+Находясь на передовой вместе со своим героем, режиссер проникает в сложную личность человека, который каждый день ходит по лезвию ножа. Кто же Деки на самом деле — жертва обстоятельств, солдат или (   Читать дальше...   )Производство: США, Украина, Россия / Ukraine VulturesЖанр: ДокументальныйРежиссер: Ольга ШехтерПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:25:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C6089A75260E4EED0F145FCF3E5ADE370711BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986896   (929348) от 15.02.2016
+
+Итоги дня (15.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что произошло? Как это было? Кто виноват и в чем причина? Кому это нужно и чего это стоило?
+Ответы на главные вопросы — в новой информационной программе «Итоги дня» — по будням в 22:00 на НТВ.В этом выпуске: Блокировка фур: как российским грузовикам теперь доставлять товары клиентам из Европы и чем может обернуться транзитная война для нас с вами? Репетиция вторжения: почему Турция отрицает ввод войск в Сирию и одобрят ли союзники Анкары по НАТО начало наземной операции? Долой самострой! Как вслед за ларьками и киосками в списке на снос оказался буддистский храм в уральской (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EA45345C3DB6B37B199C26B10D37963EC470DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862578   (928961) от 24.01.2015
+
+Осторожно, мошенники! Курс обмана (2015.01.21) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" в стартует новая программа "Осторожно, мошенники!", которая еженедельно станет рассказывать о самых распространенных способах отъема денег (   Читать дальше...   )В выпуске: Да здравствует кризис! Трудные времена в экономике – золотое время для мошенников всех мастей. Граждан лихо обводят вокруг пальца на каждом шагу: в обменниках, автосалонах, турфирмах, магазинах. Как сохранить рассудок и не попасть в ловко расставленные сети? Корреспонденты программы "Осторожно, мошенники!" рассказывают об этом в очередном выпуске.Телекомпания: Жанр: ДокументальныйПродолжительность: ~ 00:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFADB793B83A694320953D7912013D268E8C1B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365629   (928932) от 08.03.2020
+
+Чудо техники с Сергеем Малозёмовым (08.03.2020) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подышал, очнулся, имплант! Безопасна ли новая модная услуга стоматологических клиник — лечение зубов под медикаментозным сном? Какое постельное белье дольше хранит краску и не протирается — дорогое или дешевое. Новинка недели — стиральная машина с ультрафиолетом. Правда ли она успешно противостоит вирусам и аллергенам? Сергей Малозёмов протестировал чудо-товар — (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116D3F49A44EC5FF281FFF3427CD18D99077DEDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987122   (927974) от 16.02.2016
 
 В теме. Шпионские тайны (15.02.2016) SATRip
@@ -6,7 +139,7 @@
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927974.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927973.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927837.jpg" />
 </div>
 
 
@@ -84,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927666.jpg" />
 </div>
 
 
@@ -110,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927601.jpg" />
 </div>
 
 
@@ -136,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927403.jpg" />
 </div>
 
 
@@ -165,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927203.jpg" />
 </div>
 
 
@@ -191,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926226.jpg" />
 </div>
 
 
@@ -217,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926153.jpg" />
 </div>
 
 
@@ -243,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925010.jpg" />
 </div>
 
 
@@ -269,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924674.jpg" />
 </div>
 
 
@@ -295,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924673.jpg" />
 </div>
 
 
@@ -321,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924671.jpg" />
 </div>
 
 
@@ -348,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924374.jpg" />
 </div>
 
 
@@ -374,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924337.jpg" />
 </div>
 
 
@@ -400,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922894.jpg" />
 </div>
 
 
@@ -426,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922893.jpg" />
 </div>
 
 
@@ -452,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922890.jpg" />
 </div>
 
 
@@ -478,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922887.jpg" />
 </div>
 
 
@@ -504,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922797.jpg" />
 </div>
 
 
@@ -530,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922756.jpg" />
 </div>
 
 
@@ -541,136 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0AA3F04540CA1EF7C4291ABC8D7E172F2B3BDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095915   (922067) от 22.01.2017
-
-Теория заговора. Ужин не отдавай врагу (2017.01.22) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принято считать — ужин отдай врагу. Но врачи говорят, что есть вечером нужно. Отказ от ужина — прямой путь к инфаркту и инсульту. Правда, другие врачи говорят ровно наоборот. Ужинать — это все равно, что загонять себя в гроб.Производство: РоссияТелекомпания: Первый каналЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52995F9E40A158F7ED2CDC40C6207EFD979231A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988543   (921098) от 20.02.2016
-
-Центральное телевидение (20.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня мы вылавливаем новости в телеэфире и Интернете, обсуждаем в очередях и в блогах, обмениваемся ссылками на интересные видеоролики и фото и не делим новости на «официальные» и «из жизни». Чтобы вызвать цепную реакцию, любая тема должна отвечать единственному требованию — быть интересной. Тот же принцип положен в основу нового воскресного проекта НТВ «Центральное (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49E2B8442085B46A336E76AD2900D2E66F99E219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988781   (921083) от 20.02.2016
-
-В теме. Королевский статус (20.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Почему ЕС пошел на условия Британии? Почему Лондону невыгодна глубокая интеграция в институты ЕС, рассказал политолог Михаил ДелягинТелекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B542ED8BAABCC0727B189E2D528F984B40246FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988454   (921054) от 20.02.2016
-
-ЧП. Чрезвычайное происшествие. Расследование. Вас тут не стояло (2016.02.19) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как временное стало капитальным? Кто они — тайные хозяева ларечной Москвы – авторитетные бизнесмены, коммерсанты в погонах и друзья Юрия Михайловича? «Вас тут не стояло» — смотрите в программе «ЧП. Расследование».«Чрезвычайное происшествие. Расследование» — это эксклюзивная информация из надежных источников. Документальные расследования, проводимые программой, затрагивают самые актуальные темы: организованную преступность и коррупцию, экономические преступления и терроризм. Зрителей ждут мнения участников событий, комментарии экспертов и версии правоохранительных органов.Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B657F31B783BF2AC1A715B45EF0FE1368119D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988531   (921016) от 20.02.2016
-
-Человек и закон (20.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921016.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Тверской области скорая помощь не приехала к попавшей под поезд женщине. Пострадавшую без руки и ноги полчаса везли в больницу на электричке. Медики утверждают, что не отказывались помочь, но звонившие сами отменили вызов. В Екатеринбурге две группировки попрошаек устроили мафиозную разборку со стрельбой. Профессиональные нищие не поделили хлебное место возле торгового (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BF44776BF4C8A88A1178238CE76CB9E57A94B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1401496   (709545) от 10.08.2020
+
+Rhino Bucket - The Hardest Town (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_709545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hardest Town (04:01)
+02. Justified (04:27)
+03. Know My Name (03:44)
+04. Dog Don't Bite (05:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744782C8941C1F8BAF0CA95B76457D733A2B2293
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401298   (709400) от 10.08.2020
+
+FM - Atomic Generation (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_709400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Magic (04:30)
+02. Too Much Of A Good Thing (04:10)
+03. Killed By Love (04:40)
+04. In It For The Money (04:16)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41643911D0CA6DF52010DEF7266B11DD3742CEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131216   (708913) от 05.05.2017
 
 Don Patrol - A Wire, a Deal & the Devil (1992) Japan [APE|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +64,7 @@ Don Patrol - A Wire, a Deal & the Devil (1992) Japan [APE|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708913.jpg" />
+  <img src="Z:/picture/008/save_picture_708913.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ The Knack - Get The Knack (1979) 2017, Capitol Records, Universal Music, Mobile 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706721.jpg" />
+  <img src="Z:/picture/008/save_picture_706721.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ George Lynch - Sacred Groove (1993) [FLAC|Lossless|tracks] <Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706069.jpg" />
+  <img src="Z:/picture/008/save_picture_706069.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ AC/DC - On The Highway To Melbourne (The 1988 Hometown Broadcast) (2022) [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705001.jpg" />
+  <img src="Z:/picture/008/save_picture_705001.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Scorpions - Rock Believer (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704841.jpg" />
+  <img src="Z:/picture/008/save_picture_704841.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Forcefield II - The Talisman (1988) [WavPack|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704081.jpg" />
+  <img src="Z:/picture/008/save_picture_704081.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Outland - Different Worlds (2003) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703936.jpg" />
+  <img src="Z:/picture/008/save_picture_703936.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Grand Design - V (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703811.jpg" />
+  <img src="Z:/picture/008/save_picture_703811.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Kiss - Monster (2012) International Tour Edition / 2013, Universal / [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702681.jpg" />
+  <img src="Z:/picture/005/save_picture_702681.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Shotgun Revolution - All This Could Be Yours (2016) [FLAC|Lossless|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702507.jpg" />
+  <img src="Z:/picture/008/save_picture_702507.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Degreed - Are You Ready (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701382.jpg" />
+  <img src="Z:/picture/008/save_picture_701382.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Whitesnake - Unzipped (2018) 5CD, Super Deluxe Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699372.jpg" />
+  <img src="Z:/picture/008/save_picture_699372.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ DeVicious - Reflections (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698100.jpg" />
+  <img src="Z:/picture/008/save_picture_698100.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Mean Mother - No Rest For The Wasted (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697113.jpg" />
+  <img src="Z:/picture/008/save_picture_697113.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Blindstone / Martin Jepsen Andersen - 11 albums (2003-2020) Discography [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695558.jpg" />
+  <img src="Z:/picture/008/save_picture_695558.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Scorpions - Rock Believer (2022) Deluxe Limited Edition [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694002.jpg" />
+  <img src="Z:/picture/008/save_picture_694002.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Tokyo Motor Fist - Lions (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692349.jpg" />
+  <img src="Z:/picture/008/save_picture_692349.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Warrant - Louder Harder Faster (2017) [FLAC|Lossless|tracks]<Hard Rock, Glam Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691303.jpg" />
+  <img src="Z:/picture/008/save_picture_691303.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Slash feat. Myles Kennedy and The Conspirators - 4 (2022) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690713.jpg" />
+  <img src="Z:/picture/008/save_picture_690713.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Enuff Z'Nuff - Brainwashed Generation (2020) [FLAC|Lossless|image + .cue] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690605.jpg" />
+  <img src="Z:/picture/008/save_picture_690605.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Out Of This World - Out Of This World (2022) 2xCD [FLAC|Lossless|image + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688689.jpg" />
+  <img src="Z:/picture/008/save_picture_688689.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Caliberty - Caliberty (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686838.jpg" />
+  <img src="Z:/picture/008/save_picture_686838.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Heartland - Into the Future (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686713.jpg" />
+  <img src="Z:/picture/008/save_picture_686713.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ City Of Lights - Before The Sun Sets (2022) Japanese Edition [FLAC|Lossless|imag
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686710.jpg" />
+  <img src="Z:/picture/008/save_picture_686710.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ City Of Lights - новый мелодик-хард-рок проект брит
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0C5DA918E84A7E3B979C1F0F7252F8B2D5B194B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289137   (686637) от 16.03.2019
-
-Tesla - Shock (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Won't Take Me Alive (03:34)
-02. Taste Like (03:12)
-03. We Can Rule The World (04:15)
-04. Shock (03:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D731D94E14FD8C4BA85C342E2FAB475A0A9804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178621   (685976) от 16.03.2019
-
-ELF | The Elves (featuring Ronnie James Dio) - 5 альбомов, 8CD (1971-2018) [FLAC|Lossless| image + .cue | tracks+.cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа "Elf" известна в основном благодаря участию в ней вокалиста Ронни Джеймса Дио (Рональд Падавона), продолжившего потом работу в таких коллективах, как "Rainbow" и "Black sabbath". Созданная в конце 60-х годов команда носила название "The electric elves". Изначальный состав выглядел так: Дио (бас, вокал), его двоюродный (   Читать дальше...   )Список альбомов:
-1971 | The Elves – And Before Elf there were Elves
-1972 | Elf
-1974 | Carolina County Ball(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 05:47:56 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E3350D7A0C6A05DE179176FFD97CD450137560
 ```
 
 https://mybot314.ru/tekegram_catalog/

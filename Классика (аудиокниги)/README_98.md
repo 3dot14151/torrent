@@ -1,3 +1,114 @@
+###  Публикация: 1814194   (6263) от 23.08.2025
+
+Исаак Бабель | Как это делалось в Одессе (2008) [MP3, Олег Фёдоров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Проза Серебряного Века.
+Исаак Эммануилович Бабель (1894–1940) – писатель, журналист и драматург, известный своими «Одесскими рассказами» и сборником «Конармия».
+Рассказ «Как это делалось в Одессе» (1923), цикл «Одесские рассказы». Первая публикация – «Литературное приложение» к газете «Известия Одесского губисполкома, губкома КП(б)У и губпрофсовета», (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 03:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75E5422CF0DD65EC7027FFD25D95237C32988D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1814193   (6251) от 23.08.2025
+
+Исаак Бабель | Беня Крик (2017) [MP3, Игорь Тарадайкин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Исаак Эммануилович Бабель (1894–1940) – писатель, журналист и драматург, известный своими «Одесскими рассказами» и сборником «Конармия».
+Бенцион (Беня) Менделевич Крик по прозвищу Король – главный герой ряда произведений Исаака Бабеля: сборника «Одесские рассказы», пьесы «Закат», киноповести «Беня Крик», аудиозапись которой в исполнении (   Читать дальше...   )Жанр: Русская литература, классика, киноповестьИздательство: Студия «АРДИС»Продолжительность: 01:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999F03BD208357104255892125DC0A6F2963714A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815496   (5121) от 30.08.2025
+
+Владимир Клавдиевич Арсеньев | Встречи в тайге (2015) [MP3, Станислав Федосов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Клавдиевич Арсеньев (1872-1930) – российский исследователь Дальнего Востока, писатель и географ. Изучал в 1902-1903 гг. Южное Приморье, а в 1906–1910 гг. – горы Сихотэ-Алиня.
+Студия «АРДИС» предлагает вашему вниманию аудиокнигу «Встречи в тайге» знаменитого русского исследователя Дальнего Востока и писателя Владимира Арсеньева. В.К. Арсеньев писал свои книги (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Студия «АРДИС»Продолжительность: 05:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C4FA7C85EF29EC03B46889617D803BC993C7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 442989   (4878) от 01.09.2025
+
+Иоганн Вольфганг Гёте | Страдания юного Вертера (2005) [MP3, Кирилл Гребенщиков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия: «XVIII век. Зарубежная проза».
+Иоганн Вольфганг Гёте (1749–1832) – величайший немецкий поэт и мыслитель, автор бессмертного «Фауста».
+«Страдания молодого Вертера» – принесший автору мировую славу роман, проникнут духом и идеями Гердера и Руссо. Герой произведения Вертер – даровитый молодой человек с передовыми взглядами и устремлениями. Он глубоко страдает (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Наталья КасаткинаИздательство: Студия «АРДИС»Продолжительность: 05:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90519EFF652F553008CC4EE6B82ED1D155BD3CE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 442885   (4877) от 01.09.2025
 
 Иоганн Вольфганг Гёте | Фауст (Переводчик Николай Холодковский) (2008) [MP3, Илья Прудовский]
@@ -6,7 +117,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4877.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4784.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4784.jpg" />
 </div>
 
 
@@ -62,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4780.jpg" />
 </div>
 
 
@@ -91,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4775.jpg" />
 </div>
 
 
@@ -119,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4636.jpg" />
 </div>
 
 
@@ -147,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4294.jpg" />
 </div>
 
 
@@ -175,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4273.jpg" />
 </div>
 
 
@@ -204,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4039.jpg" />
 </div>
 
 
@@ -230,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4035.jpg" />
 </div>
 
 
@@ -256,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4022.jpg" />
 </div>
 
 
@@ -282,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4020.jpg" />
 </div>
 
 
@@ -308,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4017.jpg" />
 </div>
 
 
@@ -334,7 +445,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3146.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3146.jpg" />
 </div>
 
 
@@ -362,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3129.jpg" />
 </div>
 
 
@@ -389,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3119.jpg" />
 </div>
 
 
@@ -417,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3116.jpg" />
 </div>
 
 
@@ -445,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3114.jpg" />
 </div>
 
 
@@ -473,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2737.jpg" />
 </div>
 
 
@@ -499,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2164.jpg" />
 </div>
 
 
@@ -527,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1294.jpg" />
 </div>
 
 
@@ -555,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_753.jpg" />
 </div>
 
 
@@ -583,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_487.jpg" />
 </div>
 
 
@@ -594,116 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A54AB073E2731D803C8DC92EBC3B6D369066D0E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820747   (64) от 29.09.2025
-
-Дмитрий Мамин-Сибиряк | Золото (2025) [MP3, Иван Букчин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мамин-Сибиряк мастерски передает атмосферу суровых условий труда и страстного стремления к богатству. Читайте о том, как алчность может разрушать жизни людей.
-Роман «Золото» дает яркую панораму жизни уральских золотоискателей в 60-е годы XIX века. Только что отменено крепостное право. И люди часто не понимают, как распорядиться внезапно свалившейся на них свободой. (   Читать дальше...   )Жанр: Социальная проза, реализм, классикаИздательство: Аудиокнига (АСТ)Продолжительность: 10:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E7EB504845C51568EFA50C8C20182BE20A5AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820751   (39) от 29.09.2025
-
-Максим Горький | Детство. В людях. Мои университеты (2025) [MP3, Филипп Матвеев-Витовский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё началось рано в детстве, продолжилось «в людях», а грандиозно и драматично завершилось «в университетах»: культовая трилогия Максима Горького!
-Автобиографическая трилогия Максима Горького «Детство. В людях. Мои университеты», над которой он работал 10 лет – одно из самых значительных произведений русской реалистической литературы ХХ века. Сам писатель называл (   Читать дальше...   )Жанр: Социальная проза, реализм, классикаИздательство: Аудиокнига (АСТ)Продолжительность: 22:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51F024E42306405AA879769DF448EA28F5F72692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820880   (10) от 29.09.2025
-
-Джером К. Джером | Наброски для повести (2012) [MP3, Сергей Килессо]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика.
-Джером Клапка Джером (1859–1927) – английский писатель-юморист, драматург.
-«Наброски для повести» – одна из самых значительных работ Джерома К. Джерома.
-«Однажды, роясь в давно не открывавшемся ящике старого письменного стола, я наткнулся на толстую, насквозь пропитанную пылью тетрадь, с крупной надписью на изорванной коричневой обложке: (   Читать дальше...   )Жанр: Зарубежная литература, классика, повестьПеревод: Любови Мурахиной-АксёновойИздательство: МедиаКнигаПродолжительность: 06:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F618FE9CACB36CAABBCB38480AA2DB9D802D2C67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820817   (3) от 29.09.2025
-
-Шарлотта Бронте, Клэр Бойлан | Эмма Браун (2025) [MP3, Станислав Иванов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незавершённая рукопись великой Бронте получила продолжение, сохранив дух эпохи и глубину характеров. История загадочной Эммы – это путь к истине, раскрывающий тайны прошлого и силу женского характера.
-Однажды богатый и представительный джентльмен оставляет дочку в престижном пансионе для девочек. Поначалу хозяйки пансиона окружают малышку заботой, однако, когда приходит (   Читать дальше...   )Жанр: Социальная проза, реализм, классика, драммаИздательство: Аудиокнига (АСТ)Продолжительность: 17:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0EDC1EB2F71658FE03C4B2BB72433617083B4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

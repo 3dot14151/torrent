@@ -1,3 +1,81 @@
+###  Публикация: 1295251   (621849) от 11.04.2019
+
+Phoenix Wright: Ace Attorney Trilogy (2019) [En/Jp] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_621849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Место действия этой классической приключенческой серии происходит в зале заседаний. Уже более 6,7 миллиона копий продано по всему миру, и теперь эта игра может появиться и у вас. Испытайте острые ощущения, защищая клиентов в зале заседаний. Участвуйте в увлекательных делах, раскрывайте тайны, стоящие за каждым из них, и собственноручно докопайтесь до истины!Тип издания: LicenseРазработчик: CAPCOMЖанр: Adventure, Quest, NovellaЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2134FF807504386237EAA9EE110687E25A736FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036369   (620579) от 20.07.2016
+
+The Assembly (2016) [En/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивная история для взрослой аудитории от первого лица. The Assembly - это масштабная игра, разработанная специально для виртуальной реальности. Играйте за двух персонажей и раскройте секреты таинственной организации, делая сложный моральный выбор, полагаясь на противоположные точки зрения.Тип издания: LicenseРазработчик: nDreamsЖанр: Action, 3DЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2F5BE5B1DEEA8D228CC74A3A8426D177DC1DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036374   (620416) от 20.07.2016
+
+The Assembly (2016) [Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интерактивная история для взрослой аудитории от первого лица. The Assembly — это масштабная игра, разработанная специально для виртуальной реальности. Играйте за двух персонажей и раскройте секреты таинственной организации, делая сложный моральный выбор, полагаясь на противоположные точки зрения. Столкнитесь с испытаниями, исследуйте секретный бункер Assembly и принимайте (   Читать дальше...   )Тип издания: RepackРазработчик: nDreamsЖанр: Adventure (Survival horror), 3D, 1st Person, IndieЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Французский, НемецкийЯзык интерфейса: Английский, Французский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B2F06C24F4B020FCA0C2BDD41935D58F4FE55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1073443   (619296) от 26.06.2017
 
 Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.2a) License GOG
@@ -6,7 +84,7 @@ Silence: The Whispered World 2 (2016) [Ru/Multi] (1.2.2a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619296.jpg" />
+  <img src="Z:/picture/008/save_picture_619296.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Virginia (2016) [Ru/Multi] (1.02a) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617583.jpg" />
+  <img src="Z:/picture/008/save_picture_617583.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616872.jpg" />
+  <img src="Z:/picture/008/save_picture_616872.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Bohemian Killing (2016) [En/Pl] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616798.jpg" />
+  <img src="Z:/picture/008/save_picture_616798.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615996.jpg" />
+  <img src="Z:/picture/008/save_picture_615996.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614824.jpg" />
+  <img src="Z:/picture/008/save_picture_614824.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Curious Cases (2019) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614821.jpg" />
+  <img src="Z:/picture/008/save_picture_614821.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ No70 Eye of Basir (2017) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614136.jpg" />
+  <img src="Z:/picture/008/save_picture_614136.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ No70: Eye of Basir (2017) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614132.jpg" />
+  <img src="Z:/picture/008/save_picture_614132.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Golem (2018) [Ru/Multi] (1.0.1.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613556.jpg" />
+  <img src="Z:/picture/008/save_picture_613556.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Shelter 2 (2015) [Ru/Multi] (1.0/dlc) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613014.jpg" />
+  <img src="Z:/picture/008/save_picture_613014.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Firewatch (2016) [Ru/Multi] (1.1.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612546.jpg" />
+  <img src="Z:/picture/008/save_picture_612546.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Machinarium / Машинариум (2009) [Ru/Multi] (1.0.0.1) SteamRip Let'sPla
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612537.jpg" />
+  <img src="Z:/picture/008/save_picture_612537.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ The Way (2016) [Ru/Multi] (1.07b) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612071.jpg" />
+  <img src="Z:/picture/008/save_picture_612071.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Post Mortem (2003) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610894.jpg" />
+  <img src="Z:/picture/008/save_picture_610894.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Please (2017) [En] (1.0) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610708.jpg" />
+  <img src="Z:/picture/008/save_picture_610708.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ FRAMED Collection (2018) [Multi] (1.0.16#456) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610353.jpg" />
+  <img src="Z:/picture/008/save_picture_610353.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Tales from the Borderlands (2014) [En] (1.0.0.1) License CODEX [Episode 1-3: Zer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610171.jpg" />
+  <img src="Z:/picture/008/save_picture_610171.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ LEGO The Incredibles (2018) [Ru/Multi] (1.0.0/dlc) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608302.jpg" />
+  <img src="Z:/picture/008/save_picture_608302.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ Lucius II: The Prophecy (2015) [Ru/En] (1.0.150601.b) Repack xGhost
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608211.jpg" />
+  <img src="Z:/picture/008/save_picture_608211.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Minecraft: Story Mode (2015) [Ru/Multi] (1.0.0.1) License RELOADED [Episodes 1-7
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607786.jpg" />
+  <img src="Z:/picture/008/save_picture_607786.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ The Talos Principle (2014) [Ru/Multi] (1.0.301136/dlc) SteamRip Let'sPlay [Gold 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607270.jpg" />
+  <img src="Z:/picture/008/save_picture_607270.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ Clocker (2019) [Ru/Multi] (1.1.0) License HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604039.jpg" />
+  <img src="Z:/picture/008/save_picture_604039.jpg" />
 </div>
 
 
@@ -592,84 +670,6 @@ Clocker - игра-головоломка о ВРЕМЕНИ. В этой игр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9A7629704A55FFB698171F14AB7AE3FDA4B3557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297419   (604018) от 22.04.2019
-
-Clocker (2019) [Ru/Multi] (1.1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clocker - игра-головоломка о ВРЕМЕНИ. В этой игре повествуется история между отцом и дочерью, используя технику двойных главных героев. Управляйте двумя отдельными персонажами по одному, и вы будете постепенно разгадаете головоломки, продвигаясь по временной шкале и находя приключения. В игре представлены уникальные временные механизмы, художественный рисованный (   Читать дальше...   )Тип издания: RepackРазработчик: Wild Kid GamesЖанр: Adventure, Puzzle, RPG, 2DЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A24BBFCB79837267F14F7789FF1EF7C2D4C2BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231752   (603641) от 20.06.2018
-
-КГБ в смокинге (2009) [Ru] (1.0) License
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603641.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая журналистка Катя Мальцева и подумать не могла, что окажется важным звеном в тщательно подготовленной операции КГБ. Несколько невероятных совпадений - и вот она уже в кабинете всемогущего Андропова! Личный разговор закончился весьма неожиданно. Девушка отправляется в невообразимо далёкие для советского человека страны по ту сторону "железного занавеса". (   Читать дальше...   )Тип издания: LicenseРазработчик: Madia EntertainmentЖанр: Adventure, Point-and-clickЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84D5A702F9F5B21FEA8A79669B06B442200AD12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148948   (602801) от 08.07.2017
-
-Ben The Exorcist (2017) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - молодой и очень непредсказуемый парень по имени Бен, и вы необычный человек, ведь ваша работа - изгонять демонов из тех, кто подвергся их воздействию. Иначе говоря, вы есть экзорцист. Да, работа непростая и очень опасная, но к любой работе можно найти здравый подход и даже относиться к ней с юмором. Вас пригласили в один старинный особняк для того, чтобы расследовать (   Читать дальше...   )Тип издания: RepackРазработчик: Wraith StudioЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, ПольскийЯзык интерфейса: Русский, Английский, Польский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:453FA3EB7ED253C549CADDF62463570EB92B74D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

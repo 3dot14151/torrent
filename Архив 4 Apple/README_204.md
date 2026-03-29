@@ -6,7 +6,7 @@ iToolab SIMUnlocker 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787131.jpg" />
+  <img src="Z:/picture/008/save_picture_787131.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sketch 80.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787120.jpg" />
+  <img src="Z:/picture/008/save_picture_787120.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Realmac 8 8.1 RapidWeaver Final Candidate 7 (build 20573b) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787025.jpg" />
+  <img src="Z:/picture/008/save_picture_787025.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ TrashMe 2.1.20 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787020.jpg" />
+  <img src="Z:/picture/008/save_picture_787020.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Final Cut Pro X 10.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786911.jpg" />
+  <img src="Z:/picture/008/save_picture_786911.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Artstudio Pro 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786908.jpg" />
+  <img src="Z:/picture/008/save_picture_786908.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Adobe Photoshop CC 2017.1 (18.1.0) [En+Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786450.jpg" />
+  <img src="Z:/picture/008/save_picture_786450.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786407.jpg" />
+  <img src="Z:/picture/008/save_picture_786407.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ SkyLab Studio 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786394.jpg" />
+  <img src="Z:/picture/008/save_picture_786394.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VueScan Pro 9.5.73 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786372.jpg" />
+  <img src="Z:/picture/008/save_picture_786372.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Tap 1.5 F [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786358.jpg" />
+  <img src="Z:/picture/008/save_picture_786358.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Paws for Trello 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786347.jpg" />
+  <img src="Z:/picture/008/save_picture_786347.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Total Video Converter Pro 4.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786287.jpg" />
+  <img src="Z:/picture/008/save_picture_786287.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ One Chat - All in one Messenger 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786173.jpg" />
+  <img src="Z:/picture/008/save_picture_786173.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ QLab Pro 4.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786168.jpg" />
+  <img src="Z:/picture/008/save_picture_786168.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Adobe Dreamweaver CC 2017 (17.0.2) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786096.jpg" />
+  <img src="Z:/picture/008/save_picture_786096.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Audirvana Plus 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786095.jpg" />
+  <img src="Z:/picture/008/save_picture_786095.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Adobe Photoshop CC 2017.1 (18.1) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786003.jpg" />
+  <img src="Z:/picture/008/save_picture_786003.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Bumpr 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785974.jpg" />
+  <img src="Z:/picture/008/save_picture_785974.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ NetWorker - Advanced Network Information App 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785968.jpg" />
+  <img src="Z:/picture/008/save_picture_785968.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785966.jpg" />
+  <img src="Z:/picture/008/save_picture_785966.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Network Speed Monitor 2.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785956.jpg" />
+  <img src="Z:/picture/008/save_picture_785956.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Secret Folder Pro 9.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785938.jpg" />
+  <img src="Z:/picture/008/save_picture_785938.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ QuickPhotos for Google 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785832.jpg" />
+  <img src="Z:/picture/008/save_picture_785832.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ NetWorker - Advanced Network Information App 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785822.jpg" />
+  <img src="Z:/picture/008/save_picture_785822.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ EverWeb (Standalone) 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785798.jpg" />
+  <img src="Z:/picture/008/save_picture_785798.jpg" />
 </div>
 
 

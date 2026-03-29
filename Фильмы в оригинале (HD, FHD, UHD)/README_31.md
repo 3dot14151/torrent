@@ -1,3 +1,108 @@
+###  Публикация: 920716   (578777) от 23.07.2015
+
+Правдивая история / True Story  (2015) BDRip [H.264/720p] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578777.jpg" />
+</div>
+
+
+###  Подробнее
+
+История взаимоотношений журналиста Майкла Финкеля и убийцы, разыскиваемого ФБР, по имени Кристиан Лонго, который много лет скрывался за пределами США под именем Финкеля.Производство: США, New Regency Pictures and Plan B Entertainment.Жанр: триллер, драма, детективРежиссер: Руперт ГулдАктеры: Джона Хилл, Джеймс Франко, Фелисити Джонс, Мария Диззия, Итан Сапли, Конор Кикот, Шарлотта Дрисколл, Стелла Рэй Пэйн, Роберт Джон Бёрк, Байрон Дженнингс, Гретхен Мол, Бетти ДжилпинПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английскийПродолжительность: 01:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A018D212894F8E585244597B18A9F7662953815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233721   (577650) от 01.07.2018
+
+Тихое место / A Quiet Place  (2018) BDRemux [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_577650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья с двумя детьми живёт на отдалённой ферме. Казалось бы, жизнь этих людей совершенно не отличается от жизни других таких семей, но они живут в месте, которое наполнено ужасными монстрами, реагирующими на любой звук. Семейство разучило целый комплекс специальных жестов, которые помогают им общаться друг с другом, не издавая ни единого звука. Кроме того, каждый (   Читать дальше...   )Производство: США / Platinum Dunes, Sunday NightЖанр: ужасы, фантастика, триллер, драмаРежиссер: Джон КрасинскиАктеры: Эмили Блант, Джон Красински, Милли Симмондс, Ноа Джуп, Кейд Вудворд, Леон Рассом, Дорис МакКарти, Рода ПеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, французские, испанские, португальскиеПродолжительность: 01:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE8C8B8792FA7F0594DAD8C8011883EA346788EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042963   (576135) от 14.08.2016
+
+До встречи с тобой / Me Before You (2016) BDRip [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_576135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лу Кларк знает, сколько шагов от автобусной остановки до ее дома. Она знает, что ей очень нравится работа в кафе и что, скорее всего, она не любит своего бойфренда Патрика. Но Лу не знает, что вот-вот потеряет свою работу и что в ближайшем будущем ей понадобятся все силы, чтобы преодолеть свалившиеся на нее проблемы.
+Уилл Трейнор знает, что сбивший его мотоциклист (   Читать дальше...   )Производство: США, Великобритания, Metro-Goldwyn-Mayer, New Line CinemaЖанр: драмаРежиссер: Теа ШэррокАктеры: Эмилия Кларк, Сэм Клафлин, Дженна-Луиз Коулмэн, Мэттью Льюис, Чарльз Дэнс, Джоанна Ламли, Джанет МакТир, Ванесса Кирби, Брендан Койл, Александр Купер, ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:483AB8448A0D71F884B2066FBC8A8C374A46D757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150866   (575931) от 17.07.2017
+
+Святой / The Saint (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_575931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отчаявшийся богач просит вора международного класса - Саймона Тамплиера по прозвищу Святой - отыскать похищенную дочь. Саймону предстоит не только убегать от полиции, но и столкнуться с опасным противником из своего собственного прошлого.Производство: США, Motion Picture Corporation of America (MPCA), Silver Screen PicturesЖанр: Боевик, Приключения, КриминалРежиссер: Саймон УэстАктеры: Элиза Душку, Роджер Мур, Энрике Мурсиано, Сэмми Ханратти, Грег Гранберг, Томас Кречман, Яни Гельман, Кирсти Митчелл, Адам Рэйнер, Беатрис РозенПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BE43DD098EC9BA06D625EE50EE754367BF2D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150930   (575805) от 17.07.2017
 
 В поисках кораллов / Chasing Coral (2017) WEBRip [H.264/1080p-LQ] [EN / EN, AR, FR, PO, RO, CH Sub]
@@ -6,7 +111,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575805.jpg" />
+  <img src="Z:/picture/008/save_picture_575805.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575447.jpg" />
+  <img src="Z:/picture/008/save_picture_575447.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575414.jpg" />
+  <img src="Z:/picture/008/save_picture_575414.jpg" />
 </div>
 
 
@@ -86,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575137.jpg" />
+  <img src="Z:/picture/008/save_picture_575137.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574271.jpg" />
+  <img src="Z:/picture/008/save_picture_574271.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574108.jpg" />
+  <img src="Z:/picture/008/save_picture_574108.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574084.jpg" />
+  <img src="Z:/picture/008/save_picture_574084.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572476.jpg" />
+  <img src="Z:/picture/008/save_picture_572476.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572019.jpg" />
+  <img src="Z:/picture/008/save_picture_572019.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572016.jpg" />
+  <img src="Z:/picture/008/save_picture_572016.jpg" />
 </div>
 
 
@@ -269,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571579.jpg" />
+  <img src="Z:/picture/008/save_picture_571579.jpg" />
 </div>
 
 
@@ -295,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570613.jpg" />
+  <img src="Z:/picture/008/save_picture_570613.jpg" />
 </div>
 
 
@@ -321,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570461.jpg" />
+  <img src="Z:/picture/008/save_picture_570461.jpg" />
 </div>
 
 
@@ -347,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569858.jpg" />
+  <img src="Z:/picture/008/save_picture_569858.jpg" />
 </div>
 
 
@@ -373,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568516.jpg" />
+  <img src="Z:/picture/008/save_picture_568516.jpg" />
 </div>
 
 
@@ -400,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566887.jpg" />
+  <img src="Z:/picture/008/save_picture_566887.jpg" />
 </div>
 
 
@@ -426,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566884.jpg" />
+  <img src="Z:/picture/008/save_picture_566884.jpg" />
 </div>
 
 
@@ -452,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564891.jpg" />
+  <img src="Z:/picture/008/save_picture_564891.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564259.jpg" />
+  <img src="Z:/picture/008/save_picture_564259.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562863.jpg" />
+  <img src="Z:/picture/008/save_picture_562863.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562297.jpg" />
+  <img src="Z:/picture/008/save_picture_562297.jpg" />
 </div>
 
 
@@ -556,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561394.jpg" />
+  <img src="Z:/picture/008/save_picture_561394.jpg" />
 </div>
 
 
@@ -567,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94546FAA47DACD2FD4966219391967070A5BA789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045219   (561262) от 22.08.2016
-
-Соседи. На тропе войны 2 / Neighbors 2: Sorority Rising  (2016) BDRip [H.264/1080p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561262.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз в дом по соседству с Маком и Келли въезжает университетский женский клуб. Чтобы разобраться с новыми соседями, которые не дают им покоя, Мак и Келли решают обратиться за помощью к их бывшему врагу - Тедди Сандерсу.Производство: СШАЖанр: комедияРежиссер: Николас СтоллерАктеры: Сет Роген, Зак Эфрон, Роуз Бирн, Хлоя Грейс Морец, Айк Баринхолц, Кирси Клемонс, Дэйв Франко, Джеррод Кармайкл, Кристофер Минц-Плассе, Бини Фелдштейн, Клара Мамет, АквафинаПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F2A47A3BA88A69DD038EF42A764A9BB196856F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153057   (561061) от 25.07.2017
-
-Меч короля Артура / King Arthur: Legend of the Sword (2017) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой Артур живёт на задворках Лондиниума вместе со своей бандой. Он и понятия не имел о своём королевском происхождении, пока однажды не взял в руки меч Эскалибур. Меч начинает менять Артура. В результате он присоединяется к сопротивлению и таинственной молодой девушке по имени Гвиневра. Ему предстоит научиться понимать магическое оружие, которым он овладел, столкнуться (   Читать дальше...   )Производство: США, Warner Bros., Village Roadshow Pictures, Weed Road PicturesЖанр: Боевик, Приключения, Драма, ФэнтезиРежиссер: Гай РичиАктеры: Чарли Ханнэм, Астрид Берже-Фрисби, Джуд Лоу, Джимон Хонсу, Эрик Бана, Эйдан Гиллен, Фредди Фокс, Крэйг МакГинли, Том Ву, Кингсли Бен-АдирПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 02:06:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EC0D5A40F9FDB571DEB2D00B4F94A00B8CCDCE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153058   (561052) от 25.07.2017
-
-Во всем виноват енот / Wakefield (2016) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Говард Уэйкфилд, преуспевающий юрист, верный муж, заботливый отец двух дочерей, однажды круто изменил свою жизнь. Это произошло внезапно, когда он подходил к родному роскошному гнездышку в пригороде Нью-Йорка. Погнавшись за наглым енотом, сидевшим у него на пути, Уэйкфилд оказался на чердаке заброшенного гаража, откуда были видны светящиеся окна его гостиной. Накрыт (   Читать дальше...   )Производство: США, Mockingbird Pictures, Dominion PicturesЖанр: ДрамаРежиссер: Робин СуикордАктеры: Брайан Крэнстон, Дженнифер Гарнер, Йен Энтони Дэйл, Беверли Д’Анджело, Джейсон О’Мара, Пиппа Беннетт-Уорнер, Эллери Спрейберри, Моника Лосон, Виктория Бруно, Фредерик Кив ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: АнглийскиеПродолжительность: 01:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28527C709770271551E1E03CA1A20153CF0060A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235467   (560143) от 11.07.2018
-
-Неповиновение / Disobedience  (2017) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина возвращается в свой ортодоксальный еврейский дом после смерти раввина, своего отца. Общественное возмущение вызывает интерес, возникший у нее к подруге детства.Производство: Великобритания, Ирландия, США / Braven Films, Element Pictures, Film 4, Stage 6 FilmsЖанр: драма, мелодрамаРежиссер: Себастьян ЛелиоАктеры: Рэйчел Вайс, Рэйчел МакАдамс, Алессандро Нивола, Энтон Лессер, Аллан Кордунер, Николас Вудесон, Дэвид Флишман, Стив Ферст, Тревор Аллан Дейвис, Софиа Браун, Бернис СтиджерсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B58952C219D85969E0600ED4025FE346B7AC58BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

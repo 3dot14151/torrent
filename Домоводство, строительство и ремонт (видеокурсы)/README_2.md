@@ -1,3 +1,58 @@
+###  Публикация: 982108   (785506) от 12.04.2017
+
+Сергей Домогацкий | Как экономить на строительстве (2015) PCRec [H.264, PDF]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практическое пособие по строительству собственного дома для начинающих и не только. Современные застройщики в погоне за прибылью пренебрегают нормами экологичности и энергосбережения. В итоге, порой, мы за свои деньги получаем не только холодный, а еще и вредный для проживания дом. Не экономьте на себе и своем здоровье! Экономьте на строительстве, опираясь на опыт (   Читать дальше...   )Жанр: СтроительствоПродолжительность: 00:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4885D843C79EE77767C5EA8A14784BD95BF5803D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521689   (764180) от 03.01.2022
+
+Monecle, Вилена Малая | Пошив сумок с нуля до результата [Тариф Базовый] (2021) WEB-DL
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_764180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Онлайн курс по пошиву сумок.
+Сошьете 12 различных сумок по готовым выкройкам.
+Узнаете нюансы пошива и крепления отдельных деталей.
+Научитесь вшивать карманы, клапаны и другие детали несколькими способами.Производство: MonecleЖанр: ШитьёПродолжительность: 18:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4610F3F4D9C620C737914B0F3CCE60E6F2BAED2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216520   (749417) от 31.03.2018
 
 НТВ |  Квартирный вопрос (31.03.2018) SATRip
@@ -6,7 +61,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749417.jpg" />
+  <img src="Z:/picture/008/save_picture_749417.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749416.jpg" />
+  <img src="Z:/picture/005/save_picture_749416.jpg" />
 </div>
 
 
@@ -61,7 +116,7 @@ ZoomSchool, Екатерина Степанова | Пошив нижнего б
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747769.jpg" />
+  <img src="Z:/picture/008/save_picture_747769.jpg" />
 </div>
 
 
@@ -89,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742004.jpg" />
+  <img src="Z:/picture/008/save_picture_742004.jpg" />
 </div>
 
 
@@ -118,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738697.jpg" />
+  <img src="Z:/picture/008/save_picture_738697.jpg" />
 </div>
 
 
@@ -147,7 +202,7 @@ Betonmaster, Архипов Кирилл | Бетон 2.0 (2021) WEB-DL [Пак�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732625.jpg" />
+  <img src="Z:/picture/008/save_picture_732625.jpg" />
 </div>
 
 
@@ -176,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732620.jpg" />
+  <img src="Z:/picture/008/save_picture_732620.jpg" />
 </div>
 
 
@@ -205,7 +260,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731414.jpg" />
+  <img src="Z:/picture/008/save_picture_731414.jpg" />
 </div>
 
 
@@ -231,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730492.jpg" />
+  <img src="Z:/picture/008/save_picture_730492.jpg" />
 </div>
 
 
@@ -257,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720559.jpg" />
+  <img src="Z:/picture/008/save_picture_720559.jpg" />
 </div>
 
 
@@ -283,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719468.jpg" />
+  <img src="Z:/picture/008/save_picture_719468.jpg" />
 </div>
 
 
@@ -312,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717869.jpg" />
+  <img src="Z:/picture/008/save_picture_717869.jpg" />
 </div>
 
 
@@ -338,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712600.jpg" />
+  <img src="Z:/picture/008/save_picture_712600.jpg" />
 </div>
 
 
@@ -364,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711432.jpg" />
+  <img src="Z:/picture/008/save_picture_711432.jpg" />
 </div>
 
 
@@ -393,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710853.jpg" />
+  <img src="Z:/picture/008/save_picture_710853.jpg" />
 </div>
 
 
@@ -422,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706728.jpg" />
+  <img src="Z:/picture/008/save_picture_706728.jpg" />
 </div>
 
 
@@ -448,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690784.jpg" />
+  <img src="Z:/picture/008/save_picture_690784.jpg" />
 </div>
 
 
@@ -474,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689390.jpg" />
+  <img src="Z:/picture/008/save_picture_689390.jpg" />
 </div>
 
 
@@ -500,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666661.jpg" />
+  <img src="Z:/picture/008/save_picture_666661.jpg" />
 </div>
 
 
@@ -526,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647013.jpg" />
+  <img src="Z:/picture/008/save_picture_647013.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646622.jpg" />
+  <img src="Z:/picture/008/save_picture_646622.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632931.jpg" />
+  <img src="Z:/picture/008/save_picture_632931.jpg" />
 </div>
 
 
@@ -606,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629089.jpg" />
+  <img src="Z:/picture/008/save_picture_629089.jpg" />
 </div>
 
 
@@ -632,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628967.jpg" />
+  <img src="Z:/picture/008/save_picture_628967.jpg" />
 </div>
 
 
@@ -647,59 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53EB6093BA6A84B998BF489F54A202FB76BA65FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521165   (628653) от 10.07.2012
-
-Александр Цой | Мастер класс. Суши и роллы [2010] IPTVRip
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шеф повар ресторана "Храм Дракона" Александр Цой готовит блюда японский кухни.
-Легкий суп, суши и роллы.Жанр: Документальный, кулинария, мастер-класс, обучающее видеоПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4521631619F869A5F3003177894CE547674E5EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523648   (614376) от 17.07.2012
-
-Владимир Козин | Все об отоплении дома (2011) SATRip
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_614376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель видеокурса помочь тем, кто давно задумался сделать систему отопления в доме, на даче, в квартире, гараже. Но не знает с чего начать.Жанр: обучающее видеоПродолжительность: 01:40:05
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

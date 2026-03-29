@@ -1,3 +1,81 @@
+###  Публикация: 966738   (218831) от 18.12.2015
+
+Сказание о Вёлунде (1979/2013) [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сказание о «Вёлунде» – одна из древних скандинавских легенд, один из множества эпизодов, которыми полны скандинавские мифы о людях и богах, богатырях и карликах. Скандинавы верили в подземные склады, которые стерегут гигантские змеи и хитрые карлики, в глубокие пещеры, где скрываются от света и людских раздоров тролли-гномы – мастера кузнечного дела. Уж если они (   Читать дальше...   )Жанр: Музыкальная сказкаПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C346BBF389E4D6F5A760D04B61F1E8964978AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343507   (218618) от 06.12.2019
+
+Юрий Нагибин | Зимний дуб. Сборник (1960-1980-2010) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юрий Нагибин (1920-1994), советский писатель, журналист и прозаик, сценарист,создал более 170 прекрасных произведений для детей и взрослых. Книги его неоднократно переиздавались.Жанр: Радиоспектакль. Детская литератураАктеры: Ростислав Плятт, А. Покровский, Ирина Архипова, Борис Рыжухин, Зинаида Шарко, Алиса Фрейндлих, Всеволод Ларионов, Клара Румянова, Татьяна Курьянова, Сергей НиконенкоПродолжительность: 09:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F60E878328BE7E86D012407FA9475C913C93E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084889   (218600) от 19.12.2016
+
+Рудольф Распе | Приключения Барона Мюнхгаузена (1986) [MP3, Виктор Степанов и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_218600.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основу фантастических ''Приключений барона Мюнхгаузена'' положены рассказы действительно жившего в XVIII веке в Германии барона Мюнхгаузена. Публикация книги Распе под боком у барона, в Геттингене, привела барона в ярость из-за того, что герой был снабжен его полным именем. Барон счел свое имя обесчещенным и собирался подать в суд . Вдобавок труд Распе сразу приобрел (   Читать дальше...   )Жанр: Детская литература, аудиоспектакльИздательство: МелодияПродолжительность: 00:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D3E6F1663557293592FB5CBBC00E691341D2C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966709   (218495) от 18.12.2015
 
 Самуил Яковлевич Маршак | Двенадцать месяцев (1948/2013) [WavPack]
@@ -6,7 +84,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218495.jpg" />
+  <img src="Z:/picture/005/save_picture_218495.jpg" />
 </div>
 
 
@@ -35,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218446.jpg" />
+  <img src="Z:/picture/005/save_picture_218446.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218379.jpg" />
+  <img src="Z:/picture/005/save_picture_218379.jpg" />
 </div>
 
 
@@ -88,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218365.jpg" />
+  <img src="Z:/picture/005/save_picture_218365.jpg" />
 </div>
 
 
@@ -117,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218139.jpg" />
 </div>
 
 
@@ -143,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217848.jpg" />
 </div>
 
 
@@ -169,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217802.jpg" />
 </div>
 
 
@@ -196,7 +274,7 @@ VA | Новогодние сказки (2006) [MP3]
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217633.jpg" />
 </div>
 
 
@@ -223,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217144.jpg" />
+  <img src="Z:/picture/005/save_picture_217144.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217134.jpg" />
+  <img src="Z:/picture/005/save_picture_217134.jpg" />
 </div>
 
 
@@ -275,7 +353,7 @@ VA - С Новым Годом [Детские Новогодние Минусо�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217101.jpg" />
+  <img src="Z:/picture/005/save_picture_217101.jpg" />
 </div>
 
 
@@ -304,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216932.jpg" />
 </div>
 
 
@@ -330,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216904.jpg" />
 </div>
 
 
@@ -356,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216392.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216357.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ VA - Волшебные голоса природы: Малыш в лесу (200
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216212.jpg" />
 </div>
 
 
@@ -444,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215916.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215683.jpg" />
+  <img src="Z:/picture/005/save_picture_215683.jpg" />
 </div>
 
 
@@ -498,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214645.jpg" />
+  <img src="Z:/picture/005/save_picture_214645.jpg" />
 </div>
 
 
@@ -524,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214595.jpg" />
+  <img src="Z:/picture/005/save_picture_214595.jpg" />
 </div>
 
 
@@ -550,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214431.jpg" />
+  <img src="Z:/picture/005/save_picture_214431.jpg" />
 </div>
 
 
@@ -576,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214123.jpg" />
+  <img src="Z:/picture/005/save_picture_214123.jpg" />
 </div>
 
 
@@ -605,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214114.jpg" />
+  <img src="Z:/picture/005/save_picture_214114.jpg" />
 </div>
 
 
@@ -618,89 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB1DF986B30EF61AEE241BFC0726CE1E801E767D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532227   (214060) от 24.11.2020
-
-Алексей Рыбников - Детские песни Часть I-Буратино (2005) [MP3|320 кб/с]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-1. БУ-РА-ТИ-НО (Н. Бродская) (2:09)
- 2. Песня папы Карло (Н. Гринько) (2:42)
- 3. Песня Барабаса и кукол (В. Этуш, детский ансабль) (3:07)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EDF41E902965521D0FC99487C478DC26CC64457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587084   (214048) от 29.10.2022
-
-Елена Лукашева | Здоровый ребёнок. Настольная книга заботливой мамы (2021) [MP3, Люба Петрова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214048.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вы знаете, как правильно кормить и лечить ребенка? Нужно ли ему делать прививки, как помочь, когда режутся зубки, каким должно быть содержание подгузника… Интересно? Дальше будет еще интереснее! Ведь это всего лишь малая часть вопросов, занимающих умы молодых родителей. Информации вокруг – море, но как научиться плавать, когда с одной стороны гигантские волны слухов (   Читать дальше...   )Жанр: воспитание детей, здоровье детейПродолжительность: 05:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAFD33CFF5037380D4F18B6D326D9B449DA19BA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586949   (213993) от 29.10.2022
-
-Элинор Портер | Поллианна (2022) [MP3, Алла Човжик]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудно найти радость там, где её нет. Но если следовать правилу, точнее игре, которую придумала героиня повести американской писательницы Э. Портер «Поллианна»: «уметь радоваться жизни при любых обстоятельствах», всё обретает новый смысл. Может быть, именно в этом успех книги, которую читают во всём мире вот уже более ста лет!
-
-Произведения Элинор Портер входят в (   Читать дальше...   )Жанр: детская проза, зарубежная классика, зарубежные детские книги, книги для подростков, литература 20 векаПродолжительность: 05:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999D6A64E86C6351B92375B61532208FC8DB02C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 942851   (451744) от 02.10.2015
+
+Чарлз Тодд | Поиски в темноте (2015) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проезжая мимо небольшого городка в Дорсетшире, бывший солдат Берт Моубрей увидел на платформе свою жену и детей, погибших во время бомбежки. Решив, что они живы и жена его обманула, солдат разыскивает их, угрожая убить. Спустя несколько дней в окрестностях находят труп женщины с изуродованным лицом. Все улики указывают на помешавшегося от горя солдата. Инспектор (   Читать дальше...   )Жанр: ДетективФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40D25C22186EE5B48A822695935EC4DA3CEF18A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943018   (451740) от 02.10.2015
 
 Хелен Гилтроу | Расстояние (2015) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451740.jpg" />
+  <img src="Z:/picture/008/save_picture_451740.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451697.jpg" />
+  <img src="Z:/picture/008/save_picture_451697.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451696.jpg" />
+  <img src="Z:/picture/008/save_picture_451696.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451558.jpg" />
+  <img src="Z:/picture/008/save_picture_451558.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451557.jpg" />
+  <img src="Z:/picture/008/save_picture_451557.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451494.jpg" />
+  <img src="Z:/picture/008/save_picture_451494.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451429.jpg" />
+  <img src="Z:/picture/008/save_picture_451429.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451423.jpg" />
+  <img src="Z:/picture/008/save_picture_451423.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451407.jpg" />
+  <img src="Z:/picture/008/save_picture_451407.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451401.jpg" />
+  <img src="Z:/picture/008/save_picture_451401.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451113.jpg" />
+  <img src="Z:/picture/008/save_picture_451113.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451111.jpg" />
+  <img src="Z:/picture/008/save_picture_451111.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451098.jpg" />
+  <img src="Z:/picture/008/save_picture_451098.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451044.jpg" />
+  <img src="Z:/picture/008/save_picture_451044.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450714.jpg" />
+  <img src="Z:/picture/008/save_picture_450714.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Shaun T | Insanity The Asylum [Vol.2] (2012) DVDRip [EN]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450483.jpg" />
+  <img src="Z:/picture/008/save_picture_450483.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450276.jpg" />
+  <img src="Z:/picture/008/save_picture_450276.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450233.jpg" />
+  <img src="Z:/picture/008/save_picture_450233.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450163.jpg" />
+  <img src="Z:/picture/008/save_picture_450163.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ Video2Brain |Photoshop Artist in Action: Uli Staiger's Perestroika [2012] PCRec[
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450154.jpg" />
+  <img src="Z:/picture/008/save_picture_450154.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450038.jpg" />
+  <img src="Z:/picture/008/save_picture_450038.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449739.jpg" />
+  <img src="Z:/picture/008/save_picture_449739.jpg" />
 </div>
 
 
@@ -596,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449587.jpg" />
+  <img src="Z:/picture/008/save_picture_449587.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449580.jpg" />
+  <img src="Z:/picture/008/save_picture_449580.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449439.jpg" />
+  <img src="Z:/picture/008/save_picture_449439.jpg" />
 </div>
 
 
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BAA369BF4887703D9B504A6486DFF6291836F90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552406   (449359) от 26.09.2012
-
-Журнал | Скоровар №14 [2012] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередной номер всем известного и популярного кулинарного издания "Скоровар". В газете собраны лучшие рецепты читателей со всех уголков России и ближнего зарубежья. Приятного аппетита!Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD4503631BAF8316A51BE14001D7A499EFA66BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

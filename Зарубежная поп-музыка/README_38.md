@@ -1,3 +1,32 @@
+###  Публикация: 1547227   (603427) от 27.04.2022
+
+VA - DMC Dance Mixes 299 Ibiza (2022) [MP3|320 Kbps] <House, Breaks, Dance-pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic & Luke J West - Paradise (Extended)
+02. Burns - Talamanca (Robin Schulz Remix)
+03. Charli XCX Ft Rina Sawayama - Beg For You (Just Kiddin Remix)
+04. Dave Aude & Nicole Markson - It's Your Body (Until Dawn Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Bassline, VocalПродолжительность: 01:19:50 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29AFA0F1729B248201C525B272A5957674AD4517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231868   (602767) от 22.06.2018
 
 VA - 50 Jahre Discofox (2018) [MP3|320 Kbps] <Disco, Pop, Schlager>
@@ -6,7 +35,7 @@ VA - 50 Jahre Discofox (2018) [MP3|320 Kbps] <Disco, Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602767.jpg" />
+  <img src="Z:/picture/008/save_picture_602767.jpg" />
 </div>
 
 
@@ -38,7 +67,7 @@ Chrysta Bell - ThisTrain (2011) [MP3|320 Kbps] <Nuar, Trip-Hop, Blue>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602669.jpg" />
+  <img src="Z:/picture/008/save_picture_602669.jpg" />
 </div>
 
 
@@ -67,7 +96,7 @@ VA - DMC Essential Club Hits 188 (2022) [MP3|320 Kbps] <House, Tech House, Techn
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602468.jpg" />
+  <img src="Z:/picture/008/save_picture_602468.jpg" />
 </div>
 
 
@@ -96,7 +125,7 @@ VA - Billion Sellers - The Best Of DMC (Classic Mixes) (Vol.1) (2022) [MP3|320 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602378.jpg" />
+  <img src="Z:/picture/008/save_picture_602378.jpg" />
 </div>
 
 
@@ -125,7 +154,7 @@ TB Frank (ex. The Neon Judgement) & Baustein - Tock! (2018) [MP3|320 Kbps] <Alte
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602333.jpg" />
+  <img src="Z:/picture/008/save_picture_602333.jpg" />
 </div>
 
 
@@ -154,7 +183,7 @@ Pink (P!nk) - Hurts 2B Human (2019) [MP3|320 Kbps] <Pop, Rock, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602149.jpg" />
+  <img src="Z:/picture/008/save_picture_602149.jpg" />
 </div>
 
 
@@ -183,7 +212,7 @@ Chrysta Bell & David Lynch - Somewhere In The Nowhere (2016) [MP3|320 Kbps] <Nua
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601904.jpg" />
+  <img src="Z:/picture/008/save_picture_601904.jpg" />
 </div>
 
 
@@ -212,7 +241,7 @@ Atmosfear - En Trance (1981) Reissue CD, Discotheque, 2005 [MP3|320 Kbps] <Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601163.jpg" />
+  <img src="Z:/picture/008/save_picture_601163.jpg" />
 </div>
 
 
@@ -241,7 +270,7 @@ Dzidzio (Дзідзьо) - 3 Albums + 1 Remix + 10 Singles (2012-2022) [MP3|320 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599303.jpg" />
+  <img src="Z:/picture/008/save_picture_599303.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ USS (Ubiquitous Synergy Seeker) - Advanced Basics (2014) EP [MP3|320 Kbps] <Alte
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598634.jpg" />
+  <img src="Z:/picture/008/save_picture_598634.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ USS (Ubiquitous Synergy Seeker) - Approved (2011) EP [MP3|256 Kbps] <Alternative
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598626.jpg" />
+  <img src="Z:/picture/008/save_picture_598626.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ USS (Ubiquitous Synergy Seeker) - New World Alphabet (2017) [MP3|320 Kbps] <Alte
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598531.jpg" />
+  <img src="Z:/picture/008/save_picture_598531.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ The Twins - 7 Albums (1981-1993) CD [MP3|320 Kbps] <Electronic, Synth-pop, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596613.jpg" />
+  <img src="Z:/picture/008/save_picture_596613.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Maren Elise - Think About It And Say Yes! (2015) [MP3|320 кб/с]<Alternative, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596506.jpg" />
+  <img src="Z:/picture/008/save_picture_596506.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Jule Vera - Friendly Enemies (2015) [MP3|320 кб/с]<Alternative, Pop Rock, Fem
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596504.jpg" />
+  <img src="Z:/picture/008/save_picture_596504.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ VA - Hot Parade Dance Summer 2018 [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596350.jpg" />
+  <img src="Z:/picture/008/save_picture_596350.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ VA - Die Deutschen Disco Charts - Schlager Superhits (2019) [MP3|320 Kbps] <Schl
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596162.jpg" />
+  <img src="Z:/picture/008/save_picture_596162.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ VA - NRJ Hit List 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596057.jpg" />
+  <img src="Z:/picture/008/save_picture_596057.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ VA - 90s Dance Hits, Vol. 3 (2019) [MP3|320 Kbps] <Dance, Electronic,  Eurodance
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595980.jpg" />
+  <img src="Z:/picture/008/save_picture_595980.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Catherine Clarnette - Bold (2016) [MP3|320 Kbps] <Alternative Pop, Dark Pop, Jaz
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595917.jpg" />
+  <img src="Z:/picture/008/save_picture_595917.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Schnuffel - 3 альбома + 5 синглов (2008-2009) [MP3|320 kbps]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_595528.jpg" />
+  <img src="Z:/picture/005/save_picture_595528.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Fancy - Полная коллекция хитов (2012) [MP3|320 кб/с]<Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595445.jpg" />
+  <img src="Z:/picture/008/save_picture_595445.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ n.Lannon - Falling Inside (2015) [OGG|444-549 кб/с]<Indie Pop Folktronica, Ch
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595197.jpg" />
+  <img src="Z:/picture/008/save_picture_595197.jpg" />
 </div>
 
 
@@ -679,7 +708,7 @@ VA - Schlager für Alle 4 (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594969.jpg" />
+  <img src="Z:/picture/008/save_picture_594969.jpg" />
 </div>
 
 
@@ -708,7 +737,7 @@ VA - 110 Hits 2019 Vol.2 (2019) [MP3|320 Kbps] <Pop, Rock, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594724.jpg" />
+  <img src="Z:/picture/008/save_picture_594724.jpg" />
 </div>
 
 
@@ -722,35 +751,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE2000C344FAA031EBF5F1F87C8DD21A2F5BE1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548968   (594007) от 06.05.2022
-
-VA - Mastermix presents MX: Balearic (2022) [MP3|320 Kbps] <Chillhop, Lo-Fi, Broken Beat>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Chambers - Caramel
-02. Max Mozart - Goals
-03. Eden Santonio - Medication
-04. Amadeus Mozart - Beach Opera(   Читать дальше...   )Жанр: Chillhop, Lo-Fi, Broken BeatПродолжительность: 00:52:35 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778FEABCC0D73E8351EAA600FF9840CF59813949
 ```
 
 https://mybot314.ru/tekegram_catalog/

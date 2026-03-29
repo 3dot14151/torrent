@@ -1,3 +1,81 @@
+###  Публикация: 911693   (591835) от 06.07.2015
+
+Пит и Тилли / Pete 'n' Tillie (1972) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_591835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тилли — умная, скромная и рассудительная женщина бальзаковского возраста. Пит — остроумный, саркастичный, крайне прямолинейный и успешный мужчина, который не пропускает ни одной юбки. Несмотря на полярность характеров, их свидание вслепую, организованное общими друзьями, оборачивается необычным романом. Но впереди героев ждет множество испытаний…Производство: США / Universal PicturesЖанр: Драма, Мелодрама, КомедияРежиссер: Мартин РиттАктеры: Уолтер Мэттау, Кэрол Бёрнетт, Джеральдин Пейдж, Бэрри Нельсон, Рене Обержонуа, Ли Монтгомери, Генри Джонс, Кент Смит, Филип Бурнюф, Уит БисселлПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E4E7B144EAB76468A686AA402D4741E4C62E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547348   (591567) от 12.05.2022
+
+Я вернулась, дорогой / Move over, Darling (1963) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_591567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эллен Вагстафф Арден мама двух маленьких детей. Как считалось, она была без вести пропавшей после несчастного случая с самолетом. Ее муж, Ник Арден, был один из оставшихся в живых. После долгих лет ее поиска, он решает продолжить жить дальше. Он объявляет свою жену без вести пропавшей и решает жениться на Бьянки и все это в один день. Однако, Эллен осталось жива. (   Читать дальше...   )Производство: США / Arcola PicturesЖанр: Мелодрама, КомедияРежиссер: Майкл ГордонАктеры: Дорис Дэй, Джеймс Гарнер, Полли Берген, Тельма Риттер, Фред Кларк, Дон Ноттс, Эллиотт Рейд, Эдгар Бьюкэнэн, Джон Эстин, Пэт ХарингтонПеревод: Одноголосый профессиональный (Игорь Степанов)Язык озвучки: РРусский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3457566724F0004E099C74EEF24CCB306A3AD02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916091   (591348) от 07.07.2015
+
+Поезд на Дуранго / Train for Durango / Un treno per Durango (1968) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_591348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бандиты нападают на поезд и похищают сейф с золотом. По их следам пускаются два искателя приключений — американец и мексиканец, которым периодически помогает загадочный незнакомец.Производство: Италия, Испания / M.C.M., TecisaЖанр: Комедия, ВестернРежиссер: Марио КайаноАктеры: Энтони Штеффен, Марк Дэймон, Энрико Мария Салерно, Доминик Босчеро, Роберто Камардьель, Хосе Бодало, Мануэль Сарсо, Альдо Самбрель, Рафаэль Альбачин, Симон АрриагаПеревод: Одноголосый закадровый (В.Котов)Субтитры: ОтсутствуютПродолжительность: 01:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD722C002F76AA5642D10DD9FFC962CD334845BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912174   (591347) от 07.07.2015
 
 Левая рука Бога / The Left Hand of God (1955) HDTVRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591347.jpg" />
+  <img src="Z:/picture/008/save_picture_591347.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590893.jpg" />
+  <img src="Z:/picture/008/save_picture_590893.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590796.jpg" />
+  <img src="Z:/picture/008/save_picture_590796.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590664.jpg" />
+  <img src="Z:/picture/008/save_picture_590664.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590366.jpg" />
+  <img src="Z:/picture/008/save_picture_590366.jpg" />
 </div>
 
 
@@ -140,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590365.jpg" />
+  <img src="Z:/picture/008/save_picture_590365.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590358.jpg" />
+  <img src="Z:/picture/008/save_picture_590358.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590294.jpg" />
+  <img src="Z:/picture/008/save_picture_590294.jpg" />
 </div>
 
 
@@ -220,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589515.jpg" />
+  <img src="Z:/picture/008/save_picture_589515.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589484.jpg" />
+  <img src="Z:/picture/008/save_picture_589484.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589450.jpg" />
+  <img src="Z:/picture/008/save_picture_589450.jpg" />
 </div>
 
 
@@ -298,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589305.jpg" />
+  <img src="Z:/picture/008/save_picture_589305.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589083.jpg" />
+  <img src="Z:/picture/008/save_picture_589083.jpg" />
 </div>
 
 
@@ -350,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589063.jpg" />
+  <img src="Z:/picture/008/save_picture_589063.jpg" />
 </div>
 
 
@@ -376,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588847.jpg" />
+  <img src="Z:/picture/008/save_picture_588847.jpg" />
 </div>
 
 
@@ -402,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588450.jpg" />
+  <img src="Z:/picture/008/save_picture_588450.jpg" />
 </div>
 
 
@@ -428,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588422.jpg" />
+  <img src="Z:/picture/008/save_picture_588422.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587804.jpg" />
+  <img src="Z:/picture/008/save_picture_587804.jpg" />
 </div>
 
 
@@ -482,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587639.jpg" />
+  <img src="Z:/picture/008/save_picture_587639.jpg" />
 </div>
 
 
@@ -508,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587623.jpg" />
+  <img src="Z:/picture/008/save_picture_587623.jpg" />
 </div>
 
 
@@ -534,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587590.jpg" />
+  <img src="Z:/picture/008/save_picture_587590.jpg" />
 </div>
 
 
@@ -560,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586754.jpg" />
+  <img src="Z:/picture/008/save_picture_586754.jpg" />
 </div>
 
 
@@ -586,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586710.jpg" />
+  <img src="Z:/picture/008/save_picture_586710.jpg" />
 </div>
 
 
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9A519119AA8364FDB02BF69AEF49E45D63B7015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552529   (586693) от 21.05.2022
-
-Дочь дьявола / La fille du diable (1946) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Преследуемого полицией грабителя Саже по доброте душевной подсаживает к себе в машину возвращающийся в родные края из Америки Людовик Мерсье. Но на ночной дороге автомобиль, управляемый изрядно набравшимся по случаю возвращения на родину репатриантом, терпит аварию. Мерсье погибает, а чудом выживший Саже присваивает себе его личность. В маленьком провинциальном городке (   Читать дальше...   )Производство: Франция, Pathé Consortium Cinéma, Safia, Société Nouvelle Pathé CinémaЖанр: драмаРежиссер: Анри ДекуанАктеры: Пьер Френе, Фернан Леду, Тереза Дорни, Пьер Жювене, Роберт Селер, Поль Франкёр, Николас Амато, Андре Васле, Альберт Гладо, Франсуа ПатрисПеревод: авторский (Андрей Дольский)Субтитры: английскиеПродолжительность: 01:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044C846CD485EB371BD653420380C426DEC63B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039269   (586396) от 05.08.2016
-
-Дочь пирата / Buccaneer's Girl (1950) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робингудствующий пират грабит только корабли богатого, но злобного торговца Нарбонна. Жизнерадостная Дэбби, пассажирка его последнего трофея, прячется на пиратском корабле и влюбляется в него…Производство: США / Universal International Pictures (UI or U-I)Жанр: Мьюзикл, Боевик, Мелодрама, Комедия, ПриключенияРежиссер: Фредерик Де КордоваАктеры: Ивонн Де Карло, Филип Френд, Роберт Дуглас, Эльза Ланчестер, Андреа Кинг, Норман Ллойд, Джей С. Флиппен, Генри Дэниелл, Дагласс Дамбрилл, Верна ФелтонПеревод: Двуголосый закадровыйПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA90E37DC5D083E7BD24385529F01D6805757FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917101   (585855) от 16.07.2015
-
-Праздничная гостиница / Holiday Inn (1942) BDRip [color version]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мюзикл, о певце и танцоре Джиме Харди, который оставляет шоу-бизнес, чтобы стать фермером-джентльменом в Новой Англии. Однако фермерская жизнь оказывается для него слишком трудной и обыденной, и, пытаясь «убить двух зайцев», герой превращает свою ферму в загородный развлекательный клуб, широко открывающий двери в дни национальных праздников и торжеств. Его заведение (   Читать дальше...   )Производство: СШАЖанр: Комедия, Мюзикл, МелодрамаРежиссер: Марк Сэндрич / Mark SandrichАктеры: Бинг Кросби, Фред Астер, Марджори Рейнольдс, Вирджиния Дэйл, Уолтер Абель, Луиз Биверс, Ирвинг Бэйкон, Марек Уиндхейм, Джеймс Белл, Джон ГаллодетПеревод: Двуголосый закадровый (П. Гланц и И. Королёва)Продолжительность: 01:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88747DA689F86A0F9F40A838A0BE94254981D0FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

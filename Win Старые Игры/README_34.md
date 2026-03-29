@@ -1,3 +1,55 @@
+###  Публикация: 489931   (102193) от 30.04.2012
+
+A Savage Frontier Fantasy Role-Playing Epic Антология [En] (RePack) 1991-1992 | Pilotus
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_102193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть дилогии Savage Frontier. Есть возможность перенести персонажей из первой части.Тип издания: RePackЖанр: Ролевая играЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489915   (102075) от 29.04.2012
+
+Desert Strike: Return to the Gulf и Jungle Strike (RePack) [En] 1994-1995 | Pilotus
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_102075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jungle Strike – это доведенный до ума Desert Strike, пусть и с энным количеством новинок. Геймплей, по большому счету, остался без изменений. Нам всё так же предстоит управлять вертолетом, у которого кончаются топливо и патроны, запасы которых нам надо постоянно пополнять, а также получает повреждения броня, которую надо восстанавливать. На мой взгляд, очень удачным нововведением стало появление новых транспортных средств. Это просто находка, которая в свое время не дала серии Страйков превратиться в средненькую «мыльную оперу» и затеряться на просторах посредственных игр.Тип издания: RePackЖанр: Аркадная леткалкаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489918   (101961) от 29.04.2012
 
 Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
@@ -6,7 +58,7 @@ Humans Коллекция [En] (RePack) 1993-1994 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_101961.jpg" />
+  <img src="Z:/picture/005/save_picture_101961.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Rings of Medusa и Return of Medusa [En] (RePack) 1990-1991 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_101959.jpg" />
+  <img src="Z:/picture/005/save_picture_101959.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Laser Squad [En] (RePack) 1992 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_101791.jpg" />
+  <img src="Z:/picture/005/save_picture_101791.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ Sniper Elite [En/Ru] (RePack) 2005 l R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101688.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ Shortline [En] (RePack) 1992 | Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91075.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ SimLife (RePack) [En] 1992 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91062.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ SimAnt: The Electronic Ant Colony (RePack) [En] 1991 | Pilotus
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90898.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90716.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ Prince Of Qin [Ru/En] (P) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90531.jpg" />
 </div>
 
 
@@ -248,7 +300,7 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90518.jpg" />
 </div>
 
 
@@ -274,7 +326,7 @@ SCAR: Squadra Corse Alfa Romeo / SCAR: Спортивная команда Ал�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90305.jpg" />
 </div>
 
 
@@ -302,7 +354,7 @@ Tom Clancy's Splinter Cell: Pandora Tomorrow [Ru] (RePack) 2004 | Pilotus
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89925.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ Ballerburg / Баллербург [Ru] (RePack) 2002 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89272.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89138.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88904.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ Carmageddon TDR2000 / Кармагеддон. Колеса смерти [Ru] (Re
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88902.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ Realms of Arkania Антология [En/Ru] (RePack) 1992-1996 | Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88714.jpg" />
 </div>
 
 
@@ -463,7 +515,7 @@ American McGee's Alice / Америкэн Макги: Алиса [Ru] (RePack) 2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88507.jpg" />
 </div>
 
 
@@ -489,7 +541,7 @@ Robocop / Робокоп [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87911.jpg" />
 </div>
 
 
@@ -517,7 +569,7 @@ Full Spectrum Warrior [Ru] (RePack) 2004 | Pilotus
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87617.jpg" />
 </div>
 
 
@@ -544,7 +596,7 @@ Crime Life: Gang Wars / Crime Life: Уличные войны [Ru/En] (Lossless 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87472.jpg" />
 </div>
 
 
@@ -572,7 +624,7 @@ Angels vs Devils [Ru] (L) 2004
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87244.jpg" />
 </div>
 
 
@@ -599,7 +651,7 @@ Marc Ecko's Getting Up: Contents Under Pressure [Ru/En] (Lossless RePack) 2006 |
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87094.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87094.jpg" />
 </div>
 
 
@@ -625,7 +677,7 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87054.jpg" />
 </div>
 
 
@@ -636,58 +688,6 @@ Civilization 2 Test of Time (Rip) [Ru] 1999 | Pilotus
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479412   (87009) от 07.04.2012
-
-Witchaven [En] (RePack) 1995 | Pilotus
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изначально эта игра позиционировалась как экшн от первого лица  с легкими ролевыми моментами. Моменты, стоит отметить, не просто легкие, а скорее невесомые. Герой, этакий средневековый охотник на ведьм, а быть может - наоборот, ведьмак, промышляет тем, что рубит нечисть. Есть такая работа - нечисть рубить.Тип издания: RePackЖанр: Экшен от первого лица (фэнтази)Язык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479832   (86985) от 07.04.2012
-
-Morpheus [Ru] (P) 1998
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы - полярный исследователь, Мэтью Холмс-младший. Ваш отец потерялся во льдах много лет назад. И вот вы, так же, как он когда-то, обнаруживаете среди льдов Арктики судно, именуемое Геркуланией. Загадочное, безжизненное на первый взгляд, оно чем то притягивает вас. Вы просто не можете уйти, не поняв его загадку, не раскрыв тайну многих людей, населявших это судно. Да и чем черт не шутит, может быть найдете какую-либо информацию об отце.Тип издания: ПираткаЖанр: КвестЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F6CDCBA1F130F2931263C867D5C6DDFEA6043CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

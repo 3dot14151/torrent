@@ -1,3 +1,133 @@
+###  Публикация: 1776447   (28910) от 02.02.2025
+
+Леди Каруидзава / Karuizawa fujin / Lady Karuizawa (1982) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жена богатого бизнесмена, склонного к жестокости, нанимает опального официанта, чтобы тот обучал ее маленького сына в их летнем доме. Они становятся любовниками, но его амбиции и корысть приводят к трагическим последствиям.Производство: Япония / NikkatsuЖанр: драмаРежиссер: Масару КонумаАктеры: Мива Такада, Такаюки Годаи, Синдзиро Эхара, Акэми Нэгиси, Ёсио Цутия, Ёко Адзуса, Тосиюки Китами, Масанори Ириэ, Масато Ито, Юсукэ КоикэПеревод: Одноголосый любительский (Сергей Гост)Язык озвучки: русский, японскийСубтитры: английские, французскиеПродолжительность: 01:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF7E16E0A27BB81B57D7FBE5727E6F1F06213CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761096   (28840) от 03.02.2025
+
+Хиросима / Hiroshima (1953) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28840.jpg" />
+</div>
+
+
+###  Подробнее
+
+По повести Арата Осада (1887-1961) "Дети атомной бомбы". Гимназия в Хиросиме. В классе учителя Китагавы слушают по радио рассказ об атомной бомбардировке Хиросимы. Внезапно падает в обморок ученица Матико Оба. Она страдает белокровием. Треть учеников класса также пережили атомную бомбардировку. В эти дни в Хиросиме уже мало что напоминает тот день, на улицах (   Читать дальше...   )Производство: Япония / East West, Japan's Teacher's UnionЖанр: драма, военныйРежиссер: Хидэо СэкигаваАктеры: Эйдзи Окада, Юмэдзи Цукиока, Ёси Като, Такаси Канда, Исудзу Ямада, Токуэ Ханадзава, Кэндзо Каварадзаки, Сидзуэ Каварадзаки, Хатаэ Киси, Эйтаро МацуямаПеревод: Дублированный (Киностудия им. М. Горького), многоголосый любительский (STEPonee)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D18A29C20EF7D283073BC809F81F48CFEDE7135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776943   (28799) от 03.02.2025
+
+Азуми / Azumi (2003) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Средние века. В течение нескольких лет в уединённом месте десять детей под руководством Учителя осваивали науку убивать. Теперь они стали самыми искусными воинами. Пройдя последнее учебное испытание - парный поединок с лучшим другом, в котором в живых мог остаться только один - пятеро убийц-профессионалов, в том числе и лучшая из них юная Азуми, отправляются выполнять (   Читать дальше...   )Производство: Япония / Amuse Pictures Inc., Nippon Herald Films...Жанр: фэнтези, драма, боевик, триллерРежиссер: Рюхэй КитамураАктеры: Ая Уето, Шун Огури, Хироки Наримия, Кенджи Кохаши, Такатоши Канеко, Юма Ишигаки, Ясуоми Сано, Шиньджи Сузуки, Eita, Шого ЯмагучиПеревод: многоголосый (Cinema Prestige), одноголосыйЯзык озвучки: русский, японскийСубтитры: отсутствуютПродолжительность: 02:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD69C217E6313D805B62B04E759D99FF9620C2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776912   (28771) от 03.02.2025
+
+Бездна страха / Shi ren sha / Shark Evil (2023) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время охоты на акул браконьеры своими действиями вызывают ярость у большой белой акулы. Познав вкус человеческой плоти, морской хищник устраивает смертельную охоту за группой друзей, решивших отметить выпускной на шикарной яхте.Производство: Китай / Beijing Qishu Youyu Culture Media, Guangdong Jingying Media, Haiyuntian Film and Television GroupЖанр: фантастика, триллерРежиссер: Чэнь ХуаньсянАктеры: Чэнь Синьчжэ, Дун Фань, Вэй Сяосюнь, Цай Синь, Хуан Цзылин, Вэй Дай, Бао Гуан, Жун Вэйфэн, Хао УПеревод: Многоголосый профессиональный (Paragraph Media)Язык озвучки: Русский, КитайскийСубтитры: Русские (Forced), НемецкиеПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2FB0D42453DC889BBACEA98E0E37BE750E1A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776916   (28758) от 03.02.2025
+
+Бездна страха / Shi ren sha / Shark Evil (2023) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время охоты на акул браконьеры своими действиями вызывают ярость у большой белой акулы. Познав вкус человеческой плоти, морской хищник устраивает смертельную охоту за группой друзей, решивших отметить выпускной на шикарной яхте.Производство: Китай / Beijing Qishu Youyu Culture Media, Guangdong Jingying Media, Haiyuntian Film and Television GroupЖанр: фантастика, триллерРежиссер: Чэнь ХуаньсянАктеры: Чэнь Синьчжэ, Дун Фань, Вэй Сяосюнь, Цай Синь, Хуан Цзылин, Вэй Дай, Бао Гуан, Жун Вэйфэн, Хао УПеревод: Многоголосый профессиональный (Paragraph Media)Язык озвучки: Русский, КитайскийСубтитры: Русские (Forced), НемецкиеПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6C759BDFCBEA0AC7470D075D30C3F917CA76F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777107   (28734) от 04.02.2025
 
 Месть Ян Дары / Jan Dara (2001) BDRip [H.264/720p] [DVO]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28734.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28656.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28440.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26661.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26363.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26346.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26280.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26164.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25833.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25757.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25119.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24979.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24907.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24826.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24698.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24693.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22068.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21971.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21962.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20842.jpg" />
 </div>
 
 
@@ -526,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19997.jpg" />
 </div>
 
 
@@ -537,136 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C77A5820EA4FF4F432FD4B184CDFA059B62FD96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794501   (19874) от 29.04.2025
-
-100 ярдов / Men qian bao di / 100 Yards (2023) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19874.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти уважаемого мастера боевых искусств двое студентов становятся непримиримыми врагами, соперничающими за владение его академией. Конфликт разгорается, вовлекая все больше участников и ломая вековые традиции ушу, призывающие к сдержанности и взаимному уважению.Производство: Китай / Poly Film Investment, Tianjin Film StudioЖанр: боевикРежиссер: Сюй Хаофэн, Сюй ЦзюньфэнАктеры: Джеки Хён, Энди Он, Би Хейден Ко, Тан Шии, Кевин Ли, Мао Тао, Ли Юань, Темур Мамисашвили, Сюй Чанчу, Fredrik YderströmПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: Русский, КитайскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E4CC24B901D385FB0578701F98389988020876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794524   (19873) от 29.04.2025
-
-100 ярдов / Men qian bao di / 100 Yards (2023) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19873.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти уважаемого мастера боевых искусств двое студентов становятся непримиримыми врагами, соперничающими за владение его академией. Конфликт разгорается, вовлекая все больше участников и ломая вековые традиции ушу, призывающие к сдержанности и взаимному уважению.Производство: Китай / Poly Film Investment, Tianjin Film StudioЖанр: боевикРежиссер: Сюй Хаофэн, Сюй ЦзюньфэнАктеры: Джеки Хён, Энди Он, Би Хейден Ко, Тан Шии, Кевин Ли, Мао Тао, Ли Юань, Темур Мамисашвили, Сюй Чанчу, Fredrik YderströmПеревод: Многоголосый профессиональный (Кипарис)Язык озвучки: Русский, КитайскийСубтитры: Русские (Forced, Full), АнглийскиеПродолжительность: 01:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFE20CC539F636348AE908FBBBD61C38CBDD1686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795060   (19634) от 02.05.2025
-
-Расхитители гробниц. Королева монстров / Luo bu po you ling / Lop Nor Tomb (2023) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласно древней легенде, королева Лоуаня была жестокой правительницей, и предводитель народа гумо убил её священным мечом. Это привело к падению её государства. Тем не менее, верная красная жрица королевы скрыла её тело в черной башне Лоп-нор, которую охраняет черный змей до тех пор, пока она не оживёт. Никто не знает, что произошло с красной жрицей, но её барабан, (   Читать дальше...   )Производство: КитайЖанр: приключения, фэнтези, боевикРежиссер: Кай Кевин ХуанАктеры: Бай Энь, Ху Сюээр, Ян Дунци, Би Мэнгэ, Цзюй Пэнцзяо, Лю Фэйфань, Гао ЦзыганПеревод: Дублированный (Moygolos)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE719167AB4CEF4A4BDB64D23DD9DCE52FC0838A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795106   (19597) от 02.05.2025
-
-Монах и ружьё / The Monk and the Gun (2023) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Притча о невозможности принять современность, не считаясь с прошлым... События происходят в Бутане после отречения короля в 2006 году. Перемены наконец-то назрели. Бутан становится последней страной в мире, которая подключилась к интернету и телевидению. А ещё самое большое изменение из всех: демократия. Чтобы научить людей голосовать, власти устраивают имитацию (   Читать дальше...   )Производство: Бутан, Тайвань, Франция, США, Гонконг / Dangphu Dingphu: A 3 Pigs Production, Closer MediaЖанр: драма, комедияРежиссер: Паво Чоининг ДорджиАктеры: Тандин Вангчук, Гарри Эйнхорн, Тандин Пхубц, Тандин Сонам, Пема Цангмо Шерпа, Деки Лхамо, Чоейнг Джатшо, Ипхел Лхендуп Сендел, Келсанг ЧоеджайПеревод: любительский двухголосый (Pazl Voice)Язык озвучки: русский, дзонг-кэСубтитры: русские (надписи и полные, Pazl Voice), английскиеПродолжительность: 01:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED92CDB7DC6A5B06E6A6B9E19CE297D59108B31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795590   (19270) от 05.05.2025
-
-Затвор / Shutter (2004) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19270.jpg" />
-</div>
-
-
-###  Подробнее
-
-После вечеринки у друзей Джейн с парнем-фотографом Таном на машине случайно сбивает девушку. Тан не даёт ей выйти из машины, и они уезжают. После этого происшествия на снимках, которые он проявляет, появляется странная тень. Сначала Тан решает, что это просто брак, но тень появляется снова и снова. А друзья Тана начинают погибать...Производство: Таиланд / GMM Pictures Co., PhenomenaЖанр: ужасыРежиссер: Баньенг Писензенекун, Пакпум ВонпумАктеры: Ананда Эверингем, Наттавирануч Тонгми, Ачита Сикамана, Унноп Чанпайбул, Титикарн Тонгпрасеартх, Сивагорн Муттамара, Чаччая Чалемпхол, Качормсак Нарыпатр, Апичарт Чусакуль, Бинн КитчачонпонгПеревод: авторский (Сергей Кузнецов)Язык озвучки: русский, тайскийСубтитры: английскиеПродолжительность: 01:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C0BE9BCEB8295730D7753ECBB0636977AF62F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

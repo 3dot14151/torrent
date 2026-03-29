@@ -1,3 +1,61 @@
+###  Публикация: 501378   (26962) от 21.02.2025
+
+Crazy Lixx - 9 альбомов (2007 - 2025) [FLAC|Lossless|image + .cue]<Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crazy Lixx - шведская хард-рок, хард'н'хэви группа, основанная в 2002 году Мальмё, Швеция. Состав до первого альбома был следующий: вокалист - Danny Rexon,гитарист-Vic Zino, барабанщик-Joйl Cirera и басист-Loke Rivano. На данный момент на месте Vic Zino, перешедшего в Hardcore Superstar, в группе играет Andy Dawson. Это одна из первых групп, представлявших Новую (   Читать дальше...   )Список альбомов:
+2007 - Loud Minority
+2010 - New Religion
+2012 - Riot AvenueЖанр: Hard Rock, GlamПродолжительность: 06:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BDC273B019F9B89027275B4B1011CFE5A61C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468494   (26833) от 22.02.2025
+
+Krokus - 24 albums, 31 CD (1976-2024) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Krokus — ветераны швейцарского хард-рока, добившиеся международного признания и распродавшие свыше 14 миллионов своих пластинок по всему миру. Группа была основана в городе Солотурн в 1974 году Крисом фон Рёре (бас, вокал) и Томи Кифером (гитара). Оригинальный состав выпустил один альбом в 1976-ом году, резко отличавшийся от дальнейших опусов арт-роковой направленностью (   Читать дальше...   )--------------------------
+
+01. Intro (Medley) (10:07)
+- Highway to Hell(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 1d 1:07:21 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36191156D31ECFBE2EB0B798960BC13D2419022B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1172459   (26648) от 24.02.2025
 
 UFO (U.F.O.) - 33 Albums, 7 Box-sets, 107 CD (1970-2024) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock>
@@ -6,7 +64,7 @@ UFO (U.F.O.) - 33 Albums, 7 Box-sets, 107 CD (1970-2024) [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26648.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Dee Snider - 12 albums (1992-2021) [FLAC|Lossless|image + .cue | tracks +.cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25991.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Angeline - Rhythm of One (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25618.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Talisman - 10 альбомов, 21 CD (1990 - 2013) [FLAC|image+.cue|tracks+.cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25602.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Kiss - Creatures Of The Night 40th Anniversary Super Deluxe Edition (1982) 5 x C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25505.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Black Label Society - Unblackened (2013) Reissue, 2021, Ear Music Classics [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24991.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ UFO - The Complete Studio Albums 1974-1986 (2014) BOX Set, 10xCD, Compilation, R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22991.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Ratt - The Atlantics Years (1984-1990) (2020) 5 x CD, Box Set [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22578.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Iommi, Glenn Hughes - Fused (2005) Reissue, 2024, BMG [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22472.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ L.A. Guns - Leopard Skin (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22266.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ The Who - The Best Of (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22185.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ L.A. Guns - 24 Albums, 1 EP (1988 - 2025) 31 CD [FLAC|Lossless|image + .cue|trac
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21815.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ L.A.Guns - Leopard Skin (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Met
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21722.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Alice Cooper - Original Album Series (2012) Box Set, 5xCD, Reissue, Warner Music
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21418.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Guns N' Roses - Greatest Hits Live Broadcast Collection (2025) Live [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21417.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Black Sabbath - The Legendary California Jam, 1974 (2025) Live [FLAC|Lossless|WE
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21302.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ The Darkness - 11 Albums (2003 - 2025) [FLAC|Lossless|tracks + .cue, image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21193.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Seem Wild - The Great Gig at Heaven Pt1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Ha
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20169.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Queensrÿche - Empire (1990) BOX Set, 3xCD, Compilation, Reissue, Remastered, 20
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18408.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Guns N' Roses - Appetite For Democracy 3D (2014) BOX Set, 2xCD, Limited Edition 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18179.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18179.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Cirith Ungol - Servants Of Chaos (2001) 2 x CD, Compilation, Reissue, 2011, Meta
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17670.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Obús - Vamos Muy Bien (2006) 2 x CD, Compilation, Reissue, 2007, Sony BMG Music
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_17566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_17566.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Halestorm - Everest (2025) [FLAC|Lossless|WEB-DL|tracks] < Hard Rock, Alt. Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16716.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Hard Rock Covers (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16704.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Hard Rock Covers (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73464DDCC8D16B22820C2C6DD231911C8E618863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811040   (16620) от 07.08.2025
-
-Skip House - Outlaw Redux (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Outlaw Redux (4:05)
-02.  Big Daddy Blues (3:48)
-03.  Paradoxical Lady (5:57)
-04.  Simple Stupid Groove (4:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43EC5C38AC09FCF995F5E01166D79E92522E12C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800873   (15473) от 06.06.2025
-
-Streetcar Revenge - Streetcar Revenge (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Too Late (03:24)
- 02. Satellite (04:33)
- 03. Dead Will Rise (05:33)
- 04. You Don't Love Me (04:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D1D3A8BAC47F0AD210FD66FE4CC7B8710038BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

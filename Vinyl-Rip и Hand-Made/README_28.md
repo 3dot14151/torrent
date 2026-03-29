@@ -1,3 +1,234 @@
+###  Публикация: 1240137   (531262) от 09.08.2018
+
+Black Jack - Hot Passion (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_531262.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. I Am The Disco Machine (3:06)
+A2. Hot Passion (5:38)
+A3. Y-O-U (4:19)
+A4. Go Down Main Street (3:41)(   Читать дальше...   )Производство: Pinball Records - 6. 23 794Жанр: DiscoПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7A2EBDBF9C006B8AEC65127062BE7AF7C8000DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157080   (525794) от 10.08.2017
+
+Владимир Высоцкий - Сборник песен (стереозвук) (1980) Мелодия [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Chanson>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525794.jpg" />
+</div>
+
+
+###  Подробнее
+
+СТОРОНА-1:
+01. Чёрные бушлаты (03:40)
+02. Песня о госпитале (01:24)
+03. Прерванный полёт (05:01)(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36ED9E36988D559CA0BAAAFF853878089FDDAFD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157440   (525163) от 12.08.2017
+
+Карабас Барабас и Мальвина - Мальвина (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Мальвина
+03. Ждать не буду!
+04. На день рожденья Мальвины(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70281BC85B4BAE8691CBD941569E7C9B18C9B576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157414   (525128) от 12.08.2017
+
+Ласковый Май - 1 альбом -Оренбург- (1988) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белые розы (05:29)
+02. Я откровенен лишь с луной (03:42)
+03. Лето (03:40)
+04. Пусть будет ночь (05:38)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33289A3AEB105AD0C34B7EEDE4AC7A4DC3566415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157308   (525127) от 12.08.2017
+
+Мираж - Звёзды нас ждут (1987) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёзды нас ждут (06:18)
+02. Видео (04:29)
+03. Электричество (04:30)
+04. Безумный мир (04:02)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA3739293C2B66E860F5B557DF82EF9CE9C30738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928203   (522479) от 16.08.2015
+
+Smokie - Midnight Cafe (1976) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Something's Been Making Me Blue  3:02
+2. Wild Wild Angels  3:58
+3. Poor Lady (Midnight Baby)  4:42(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876ADB15A390E796B2A9CD0BE07EC26667190001
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928219   (522404) от 16.08.2015
+
+Эдуард Артемьев - Свой Среди Чужих, Чужой Среди Своих (1975) [FLAC 2.0 16/44.1|tracks]<Stage & Screen>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_522404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Градский- Песня О Корабле (4:38)(DR9)
+02. Оркестр - Ограбление Поезда (1:17) (DR9)
+03. Оркестр - Финал (3:08) (DR9)Жанр: Stage & ScreenПродолжительность: 00:9:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D38D15991BEF0FD92B3228F714B01E975EF0D79B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929709   (518478) от 20.08.2015
+
+Genesis - Abacab (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_518478.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Abacab (7:04)
+A2. No Reply At All (4:40)
+A3. Me And Sarah Jane (6:04)
+A4. Keep It Dark (4:34)(   Читать дальше...   )Производство: Vertigo / Nippon PhonogramЖанр: Progressive RockПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CDECC206FFE0AC0FF1BD664830D41DF3DC59C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241093   (518119) от 19.08.2018
 
 Eric Clapton - Reptile (2001) [FLAC 2.0|88.2/24|tracks|DVD-Audio] <Blues, Rock, Soft Rock>
@@ -6,7 +237,7 @@ Eric Clapton - Reptile (2001) [FLAC 2.0|88.2/24|tracks|DVD-Audio] <Blues, Rock, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518119.jpg" />
+  <img src="Z:/picture/008/save_picture_518119.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Black Sabbath - Russian Vinyl Collection/Блэк Сэбэт - Русская к
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516602.jpg" />
+  <img src="Z:/picture/008/save_picture_516602.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Luciano Pavarotti - The Essential Pavarotti (1991) [FLAC 2.0 24/192|image+.cue (
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516201.jpg" />
+  <img src="Z:/picture/008/save_picture_516201.jpg" />
 </div>
 
 
@@ -93,7 +324,7 @@ Roger Hodgson - Hai Hai (1987) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514025.jpg" />
+  <img src="Z:/picture/008/save_picture_514025.jpg" />
 </div>
 
 
@@ -122,7 +353,7 @@ Vangelis - Spiral (1977) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<New Age>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512811.jpg" />
+  <img src="Z:/picture/008/save_picture_512811.jpg" />
 </div>
 
 
@@ -151,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512612.jpg" />
+  <img src="Z:/picture/008/save_picture_512612.jpg" />
 </div>
 
 
@@ -180,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508167.jpg" />
+  <img src="Z:/picture/008/save_picture_508167.jpg" />
 </div>
 
 
@@ -209,7 +440,7 @@ Francoise Hardy - Star (1977) [FLAC 2.0 24/96 | image+.cue|(Vinyl Rip)]<Chanson>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508163.jpg" />
+  <img src="Z:/picture/008/save_picture_508163.jpg" />
 </div>
 
 
@@ -238,7 +469,7 @@ Electric Light Orchestra - Time (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progre
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507968.jpg" />
+  <img src="Z:/picture/008/save_picture_507968.jpg" />
 </div>
 
 
@@ -267,7 +498,7 @@ Antonio Vivaldi - The Four Seasons (1982) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507957.jpg" />
+  <img src="Z:/picture/008/save_picture_507957.jpg" />
 </div>
 
 
@@ -296,7 +527,7 @@ VA - Дискоклуб 4Б: Популярные русские песни и �
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507063.jpg" />
+  <img src="Z:/picture/008/save_picture_507063.jpg" />
 </div>
 
 
@@ -325,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506070.jpg" />
+  <img src="Z:/picture/008/save_picture_506070.jpg" />
 </div>
 
 
@@ -354,7 +585,7 @@ Francoise Hardy - Le Double Disque D'or De Francoise Hardy (1977) [FLAC 2.0 24/9
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505286.jpg" />
+  <img src="Z:/picture/008/save_picture_505286.jpg" />
 </div>
 
 
@@ -383,7 +614,7 @@ Megadeth - Countdown To Extinction (1992) [FLAC 2.0 24/96|traks(Vinyl-Rip)]<Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505200.jpg" />
+  <img src="Z:/picture/008/save_picture_505200.jpg" />
 </div>
 
 
@@ -412,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505126.jpg" />
+  <img src="Z:/picture/008/save_picture_505126.jpg" />
 </div>
 
 
@@ -441,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503192.jpg" />
+  <img src="Z:/picture/008/save_picture_503192.jpg" />
 </div>
 
 
@@ -470,7 +701,7 @@ Kiss - Dynasty (1979) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Glam Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500208.jpg" />
+  <img src="Z:/picture/008/save_picture_500208.jpg" />
 </div>
 
 
@@ -499,7 +730,7 @@ Pink Floyd - The Wall. 1979. (LPCM, 96 kHz, 24 bit, stereo) [Audio-DVD from Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498480.jpg" />
+  <img src="Z:/picture/008/save_picture_498480.jpg" />
 </div>
 
 
@@ -510,238 +741,6 @@ Pink Floyd - The Wall. 1979. (LPCM, 96 kHz, 24 bit, stereo) [Audio-DVD from Viny
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820471   (496444) от 10.09.2014
-
-Foreigner - 4 (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496444.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Night Life (3:51)
-A2. Juke Box Hero (4:20)
-A3. Break it Up (4:14)
-A4. Waiting for a Girl Like You (4:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AADACB392DFD3487C52CE9E329BE6620AA9574C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935944   (496384) от 11.09.2015
-
-Rey Dorset & Mungo Jerry - Golden Orpheus Festival Live (1978) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496384.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Всичко Се Люлее (Everything Swing)
-A2	Лейди Роуз (Lady Rose)
-A3	Жената, Облечена В Черно (The Woman Dressed In Black)
-A4	Блус За Залива Сан Франциско (A Blues For The San Francisco Bay)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFEF3FB9080A47E408374A3E2A816C4A9DBF525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243001   (495893) от 25.08.2018
-
-Yes - Magnification (2001) [FLAC 2.0|96/24|tracks|DVD-Audio] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Magnification
-02 - Spirit Of Survival
-03 - Don't Go
-04 - Give Love Each Day(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5459338B71F0F2A4AE869C225A963C18337E41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157784   (495428) от 14.08.2017
-
-VA - Мельница - Песни Игоря Николаева (1987) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игорь Николаев - Незнакомка (04:18)
-02. Александр Кальянов - Старый друг (06:56)
-03. Алла Пугачева - Любимчик Пашка (03:20)
-04. Игорь Скляр - Понедельник (02:54)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CB922EAE8B71F9F5347E5FD3A4BCB4E23CB8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404264   (494936) от 24.08.2020
-
-Rainbow - On Stage (1977) 2LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494936.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Intro: Over The Rainbow
-A2 Kill The King
-A3.a Man On The Silver Mountain
-A3.b Blues(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96584AF4318C25805A10726CAE2BB607AF72A563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936557   (494011) от 12.09.2015
-
-Beth Hart - My California (2010) /2014/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My California (4:35)
-02. Life is Callin (3:51)
-03. Happiness... Any Day Now (4:23)
-04. Love is the Hardest (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33EB41B1872DB0A0154020F4522E08B47ED7D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243449   (491710) от 27.08.2018
-
-Sting - Brand New Day (1999) [FLAC 2.0|48/24|tracks|DVD-Audio] <Pop, Soft Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Thousand Years
-02 - Desert Rose
-03 - Big Lie Small World
-04 - After The Rain Has Fallen(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E2CD874E0636EC9096A84BD77EAC022BEE7DCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318014   (490675) от 08.08.2019
-
-София Ротару - Звёздная Коллекция (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лаванда
-02. Хуторянка
-03. Люби меня
-04. Луна-луна(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA58E8605695D09B1A6EEDE0876797CE1396BD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

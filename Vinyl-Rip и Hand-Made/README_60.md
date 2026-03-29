@@ -1,3 +1,234 @@
+###  Публикация: 1678561   (139726) от 24.11.2023
+
+КИНО - Атаман (1990 / 2012) hand made, remastered [FLAC|16/44.1|tracks|CD-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139726.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:16] 1. Атаман
+[4:16] 2. Атаман (Karaoke)
+[3:01] 3. Атаман (Acoustic version 1990)Жанр: RockПродолжительность: 00:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436084   (139412) от 30.12.2020
+
+Max Greger - Da Ist Musik Drin (1976) Promo Record - Not For Sale [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий джазовый музыкант, саксофонист, руководитель оркестра и дирижер. Родился 2 апреля 1926 года в Мюнхене-Гизинге, Германия, умер 15 августа 2015 года в Мюнхене, Германия. Отец Макса Грегера-младшего.Seite 1:
+A1 Girls, Girls, Girls
+A2 Save Your Kisses For Me
+A3 The Song Is You(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273047   (138945) от 30.12.2018
+
+VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Хоралов - А снег рисует...
+02. Л. Долина - Страна Лимония
+03. И. Саруханов - Падал снег
+04. Группа "НРГ" - Время зовет меня(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436103   (138880) от 30.12.2020
+
+VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+m3u|MC-Rip] <Pop, Traditional>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Gene Autry - Rudolph the Red-Nosed Reindeer
+Ultimate Christmas, Vol. 1
+1994 compilation - Collectables - Marks(   Читать дальше...   )Жанр: Pop, TraditionalПродолжительность: 01:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE42AAD15DE06B40A307BB5F86301B14A7F2561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679464   (138537) от 25.11.2023
+
+Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138537.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Pyramid Of Terror
+A2 I Am The Freak
+A3 Secrets Of Time
+A4 Master Of The Deep(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1486F1F1ADA50A18A99DE57232FB9633CF3BA5F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679363   (138112) от 25.11.2023
+
+Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138112.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 True Love
+A2 Ramblin' Rose
+A3 I Love You Because
+A4 Goodnight Irene(   Читать дальше...   )Жанр: Celtic, Folk, Easy ListeningПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A7AA0F1D98679ACFBF1ACB9AD27491F0398F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088514   (138074) от 31.12.2016
+
+John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138074.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. (Just Like) Starting Over (3:57)
+A2. Kiss Kiss Kiss (2:43)
+A3. Clean Up Time (2:59)
+A4. Give Me Something (1:35)(   Читать дальше...   )Производство: Geffen Records - GHS 2001Жанр: RockПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB95406EDB5EC49270208A11177AFDD1E23A082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349159   (137949) от 31.12.2019
+
+Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jitterbug Waltz (5:21)
+ 02. Nuages (2:26)
+ 03. A Night in Tunisia (5:55)
+ 04. Blue and Sentimental (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088306   (137699) от 31.12.2016
 
 Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Classic Rock, Prog Rock>
@@ -6,7 +237,7 @@ Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137699.jpg" />
 </div>
 
 
@@ -35,7 +266,7 @@ Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|i
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137613.jpg" />
 </div>
 
 
@@ -64,7 +295,7 @@ Imagination - Imagination (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-Po
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137173.jpg" />
 </div>
 
 
@@ -93,7 +324,7 @@ Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136850.jpg" />
 </div>
 
 
@@ -121,7 +352,7 @@ Arcturus - Studio Albums (6 releases) (1996-2015) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136750.jpg" />
 </div>
 
 
@@ -150,7 +381,7 @@ Sabaton - Studio Albums (12 releases) (2005-2025) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136740.jpg" />
 </div>
 
 
@@ -179,7 +410,7 @@ Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135329.jpg" />
 </div>
 
 
@@ -208,7 +439,7 @@ Opeth - Ghost Reveries (2005) Reissue, 2013, 	Roadrunner Records, Cargo Records 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135301.jpg" />
 </div>
 
 
@@ -237,7 +468,7 @@ Michal David + The Paces - I'd Love To Live (1983) [FLAC 2.0|24/192|image + .cue
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134951.jpg" />
 </div>
 
 
@@ -266,7 +497,7 @@ Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134943.jpg" />
 </div>
 
 
@@ -295,7 +526,7 @@ Opeth - Pale Communion (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134644.jpg" />
 </div>
 
 
@@ -324,7 +555,7 @@ Sorcerer - Studio Albums (5 releases) (1995-2023) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134295.jpg" />
 </div>
 
 
@@ -353,7 +584,7 @@ Poison Dollys - Invasion (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134207.jpg" />
 </div>
 
 
@@ -382,7 +613,7 @@ Opeth - Sorceress (2016) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133972.jpg" />
 </div>
 
 
@@ -411,7 +642,7 @@ Lucia Altieri - Lucia Altieri (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <P
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133951.jpg" />
 </div>
 
 
@@ -440,7 +671,7 @@ Opeth - Deliverance & Damnation Remixed (2015) Compilation [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133939.jpg" />
 </div>
 
 
@@ -469,7 +700,7 @@ Them - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [F
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133897.jpg" />
 </div>
 
 
@@ -498,7 +729,7 @@ Dwa Plus Jeden - Bez Limitu (1983) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133116.jpg" />
 </div>
 
 
@@ -512,235 +743,6 @@ Music By – C. Szlazak(   Читать дальше...   )Жанр: Pop Rock, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F77F0378226E9E6B0BD4D19E76C21B47C29B5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681651   (132742) от 03.12.2023
-
-Nuclear - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nuclear — чилийская трэш-метал-группа, основанная в Арике, Чили, в 1998 году.2006 - Heaven Denied
-2008 - Ten Broken Codes
-2010 - Jehovirus
-2015 - Formula for AnarchyЖанр: Thrash MetalПродолжительность: 03:26:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170A4189CFD363D30263F9CA1F3DB650A5F484D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681443   (132720) от 03.12.2023
-
-Modus - Friends (1987) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132720.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Show Must Go On
-A2 Friends
-A3 Stallion In The Dawn
-A4 Where Do You Go?(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE706B5823E98F878BF8B6C1534663476060308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592967   (132568) от 28.12.2012
-
-Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip)] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: power metal, heavy metalПродолжительность: 6:18:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682358   (131508) от 07.12.2023
-
-Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pyramaze — датская пауэр-метал группа, образованная в 2001 году.2004 - Melancholy Beast
-2006 - Legend Of The Bone Carver
-2008 - Immortal
-2015 - Disciples Of The SunЖанр: Progressive Power MetalПродолжительность: 06:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FD17833A6834C9759E877803F36D54D69A5A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682844   (131186) от 08.12.2023
-
-Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dream Sequencer
-02. My House On Mars
-03. 2084
-04. One Small Step(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C1A7E8EB5C90D93CB840A8050A257FA092949B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682573   (131167) от 08.12.2023
-
-Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The New Real
-02. Pink Beatles In A Purple Zeppelin
-03. Parental Procreation Permit
-04. When I'm A Hundred Sixty-Four(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08B0416DE78605A75E676BE1AAD55DEE51B6E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682671   (131165) от 08.12.2023
-
-Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The New Dimension
-02. Isis And Osiris
-03. Amazing Flight
-04. Time Beyond Time(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC295937AE4BA55A8BC75DBF7D1CE65845E5E42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620165   (130690) от 09.12.2023
-
-КняZz (Князь; Андрей Князев; Король и Шут) - Студийные альбомы (10 релизов) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130690.jpg" />
-</div>
-
-
-###  Подробнее
-
-«КняZz» — российская рок-группа из Санкт-Петербурга, созданная в 2011 году Андреем Князевым, являвшимся на момент её создания участником панк-группы «Король и Шут». Весной того же года Андрей Сергеевич отказался от работы в театре над рок-оперой «TODD» совместно с Михаилом Горшенёвым и решил создать сайд-проект для реализации собственного творческого потенциала. (   Читать дальше...   )2005 - Любовь негодяя
-2011 - Письмо из Трансильвании
-2012 - Тайна кривых зеркал
-2013 - Роковой карнавалЖанр: Punk RockПродолжительность: 07:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D277B86D06D3816C4F580DA1E4B71CF5CE764C54
 ```
 
 https://mybot314.ru/tekegram_catalog/

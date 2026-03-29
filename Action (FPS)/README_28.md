@@ -1,3 +1,113 @@
+###  Публикация: 1258719   (376049) от 24.09.2019
+
+Agony UNRATED (2018) [Ru/Multi] (1.0/upd5) License CODEX
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_376049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Agony UNRATED — версия хоррора Agony с видом от первого лица без цензуры, в котором игрокам предстоит управлять попавшей в ад душой человека, не помнящего своего прошлого. Блуждая по лабиринтам подземелья в поисках выхода, они будут вселяться в другие заблудшие души и низших демонов, чтобы выжить в этом непростом окружении. Вернуть герою воспоминания может только (   Читать дальше...   )Тип издания: LicenseРазработчик: Madmind StudioЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60B6F0A5BBEC4267E31FAA5281EF37C7C6B87FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176023   (373695) от 20.10.2017
+
+Shadow Warrior (2013) [Ru/Multi] (1.1.2/1.5.0/dlc) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_373695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow Warrior - ремейк шутера от первого лица от создателей легендарного Duke Nukem 3D, поднявшийся на волне его популярности. Играть нам предстоит за старого ниндзя, которого зовут Ло Ванг (Lo Wang) и он жаждет стереть с лица земли корпорацию Zilla Enterprises, чем он и занимается на протяжении всей игры, но делает это весело и зажигательно, почти так же, как старина (   Читать дальше...   )Тип издания: RepackРазработчик: Flying Wild HogЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F203DB530068C89C5FCD1F585F31420E4697717E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252408   (373169) от 31.10.2010
+
+Call of Juarez Дилогия [Ru] (RePack) 2006-2009 | R.G. ReCoding
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_373169.jpg" />
+</div>
+
+
+###  Подробнее
+
+  
+Дата выхода: 1 сентября 2006
+Дата выхода в России: 20 октября 2006
+Жанр: Action (Shooter) / 3D / 1st PersonРазработчик: Techland
+Издатель: Ubisoft Entertainment
+Издатель в России: 1CЯзык интерфейса: 
+Язык озвучки: (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DE1A221E9725F29EE4A18E8752CE280AA064177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069454   (372701) от 04.11.2016
+
+In Verbis Virtus (2015) [Ru/Multi] (1.0.2420) License PROPHET
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_372701.jpg" />
+</div>
+
+
+###  Подробнее
+
+In Verbis Virtus – фантастический приключенческий экшен от первого лица, в котором вы выступите в роли волшебника. Надевайте свои магические наряды и отправляйтесь на поиски древней силы. Исследуйте затерянный замок с давно забытыми, наполненными неописуемой красотой и страхом комнатами. Разблокируйте заклинания и используйте их для решения различных загадок и борьбы (   Читать дальше...   )Тип издания: LicenseРазработчик: Indomitus GamesЖанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8918DEACC2E3A6BC0B1027274C4B9A6F4DD3E729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950154   (371679) от 25.10.2015
 
 Viscera Cleanup Detail (2015) [En] (1.0) License CODEX
@@ -6,7 +116,7 @@ Viscera Cleanup Detail (2015) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371679.jpg" />
+  <img src="Z:/picture/008/save_picture_371679.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.11.0/dlc) Repack R.G. Catalyst [Deluxe E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371354.jpg" />
+  <img src="Z:/picture/008/save_picture_371354.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ Call of Juarez / Call of Juarez: Сокровища Ацтеков (2006) [Ru/En
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370345.jpg" />
+  <img src="Z:/picture/008/save_picture_370345.jpg" />
 </div>
 
 
@@ -85,7 +195,7 @@ Deus Ex Anthology (2001-2014) [Ru/Multi] Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370321.jpg" />
+  <img src="Z:/picture/008/save_picture_370321.jpg" />
 </div>
 
 
@@ -111,7 +221,7 @@ Medal of Honor (2010) [Ru] (1.0.75.0) Rip xatab [Limited Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369767.jpg" />
+  <img src="Z:/picture/008/save_picture_369767.jpg" />
 </div>
 
 
@@ -137,7 +247,7 @@ Medal of Honor Warfighter (2012) [Ru] (1.0.0.3/dlc) Repack xatab [Limited Editio
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369755.jpg" />
+  <img src="Z:/picture/008/save_picture_369755.jpg" />
 </div>
 
 
@@ -163,7 +273,7 @@ Neptune: Arena FPS (2017) [En] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367155.jpg" />
+  <img src="Z:/picture/008/save_picture_367155.jpg" />
 </div>
 
 
@@ -189,7 +299,7 @@ Welcome to Hanwell (2017) [En] (1.0/Hotfix) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366954.jpg" />
+  <img src="Z:/picture/008/save_picture_366954.jpg" />
 </div>
 
 
@@ -215,7 +325,7 @@ Autumn Dream (2016) [Ru/En] (1.6.9.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365900.jpg" />
+  <img src="Z:/picture/008/save_picture_365900.jpg" />
 </div>
 
 
@@ -242,7 +352,7 @@ Gods Basement (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365423.jpg" />
+  <img src="Z:/picture/008/save_picture_365423.jpg" />
 </div>
 
 
@@ -268,7 +378,7 @@ Debris (2017) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364787.jpg" />
+  <img src="Z:/picture/008/save_picture_364787.jpg" />
 </div>
 
 
@@ -294,7 +404,7 @@ Welcome to Hanwell (2017) [En] (1.0/Hotfix) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364697.jpg" />
+  <img src="Z:/picture/008/save_picture_364697.jpg" />
 </div>
 
 
@@ -320,7 +430,7 @@ Inmates (2017) [Ru/Multi] (1.0.2) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364688.jpg" />
+  <img src="Z:/picture/008/save_picture_364688.jpg" />
 </div>
 
 
@@ -346,7 +456,7 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (20181127/dlc) Repack CoD - MW2
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364517.jpg" />
+  <img src="Z:/picture/008/save_picture_364517.jpg" />
 </div>
 
 
@@ -372,7 +482,7 @@ Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augm
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362659.jpg" />
+  <img src="Z:/picture/008/save_picture_362659.jpg" />
 </div>
 
 
@@ -398,7 +508,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.20/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362650.jpg" />
+  <img src="Z:/picture/008/save_picture_362650.jpg" />
 </div>
 
 
@@ -424,7 +534,7 @@ Crime Cities (2000) [En/Pl] (1.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362563.jpg" />
+  <img src="Z:/picture/008/save_picture_362563.jpg" />
 </div>
 
 
@@ -450,7 +560,7 @@ Operation Flashpoint: Red River (2011) [Ru] (1.2.0) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359746.jpg" />
+  <img src="Z:/picture/008/save_picture_359746.jpg" />
 </div>
 
 
@@ -476,7 +586,7 @@ Serious Sam 3: BFE - Deluxe Edition [Ru/Multi 8] (Repack/3.0.3) 2011 l R.G. Reve
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359467.jpg" />
+  <img src="Z:/picture/008/save_picture_359467.jpg" />
 </div>
 
 
@@ -502,7 +612,7 @@ Serious Sam 3: Before First Encounter - Deluxe Edition [Ru/En/Multi9] (Steam-Rip
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359447.jpg" />
+  <img src="Z:/picture/008/save_picture_359447.jpg" />
 </div>
 
 
@@ -528,7 +638,7 @@ Deus Ex: Human Revolution (2011) [Ru/Multi] (1.4.651.0/dlc) Repack West4it [Augm
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358368.jpg" />
+  <img src="Z:/picture/008/save_picture_358368.jpg" />
 </div>
 
 
@@ -554,7 +664,7 @@ Borderlands: The Pre-Sequel (2014) [Ru/Multi] (1.0.7/dlc) Repack R.G. Механ
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352748.jpg" />
+  <img src="Z:/picture/008/save_picture_352748.jpg" />
 </div>
 
 
@@ -565,110 +675,6 @@ Borderlands: The Pre-Sequel (2014) [Ru/Multi] (1.0.7/dlc) Repack R.G. Механ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C8B8839213B0578A8154F26C179127781919AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577848   (351749) от 20.09.2022
-
-Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) Repack DjDI
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Более двадцати лет назад мы пытались побороть этот вирус в Харране... и потерпели поражение. Теперь мы проигрываем вновь. Город - последнее из крупных человеческих поселений - раздирает внутренняя вражда. Цивилизация отброшена во тьму средневековья, но надежда еще жива.Тип издания: RepackРазработчик: TechlandЖанр: Action, Open World, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3A69487A281B7F0F1037AE1164D8B9FA969D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256779   (351668) от 23.10.2018
-
-25 Cadre of Death (2018) [Ru/Multi] (1.0) License HOODLUM [Episode 1]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — Калеб Ридус, после тяжелого рабочего дня просматривает вечерние новости, и ничего бы не предвещало беды, если бы новости внезапно не прервались , показывая трансляцию какого-то странного видео. Особо не предав этому значения, Калеб ложится спать, сослав происходящее на дурной сон.Тип издания: LicenseРазработчик: indie_games_studioЖанр: Adventure, Horror, IndieЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5B86FE8FA4584EA43E126ECBAE87676C9ED49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255395   (351568) от 23.10.2018
-
-Gods Basement (2018) [Ru/Multi] (1.0/upd1) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351568.jpg" />
-</div>
-
-
-###  Подробнее
-
-God's Basement — это хоррор-игра, рассчитанная на одного человека, повествование которой ведется от первого лица. Ты просыпаешься в обычном, довольно скучном офисе и слышишь слабый звук телефонного звонка, идущий из соседней комнаты. Звонящий представляется Оператором и дает тебе набор инструкций, которым ты должен следовать. Документы, разбросанные по комнате, намекают (   Читать дальше...   )Тип издания: LicenseРазработчик: ErebusЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283E92E97014E3A77529A37093E5B3CC45245E81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256826   (351565) от 23.10.2018
-
-25 Cadre of Death (2018) [Ru/Multi] (1.0) Repack Other s [Episode 1]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мертвый город Тайм Бич, в американском штате Миссури, порождает чувство страха и одиночества. Этот город и его округи полностью отрезаны от реального мира. Главному герою — Калебу Ридусу, попав туда по не понятным причинам, предстоит разобраться что произошло.Тип издания: RepackРазработчик: indie_games_studioЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C46AB87AE83D3F78ADD74D1356B28A449F32C0A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

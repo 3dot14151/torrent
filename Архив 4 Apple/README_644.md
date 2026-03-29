@@ -1,3 +1,108 @@
+###  Публикация: 1434754   (150016) от 25.12.2020
+
+PullTube 1.6.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150016.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 25.12.2020Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF4DFC66387DCCD5A69F8D257D75DBCC1A34A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519244   (149986) от 23.12.2021
+
+Scrollow 1.6.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrollow позволяет управлять различными параметрами системы (громкость, яркость экрана, подсветка клавиатуры) и управлять мультимедиа (переключение треков, воспроизведение и пауза), не касаясь функциональных клавиш или используя Touch Bar. Просто используйте жесты прокрутки вверху экрана или на значке в строке меню приложения.Тип издания: macOS SoftwareРелиз состоялся: 19.12.2021Разработчик: © 2021 Nikita ZubkovПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF0E54F714AEFB163C63DDFEA85F31514AE023DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434740   (149982) от 25.12.2020
+
+Viper FTP 5.5.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-клиент для macOS, с поддержкой популярный протоколов - FTP, SFTP, WebDAV и Amazon S3, который позволяет легко получить доступ к различным удаленным серверам для управления, получения/передачи файлов.
+Контекстное меню Viper FTP обеспечивает доступ к многочисленным инструментам и функциям, которые позволяют открыть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.12.2020Разработчик: Grzegorz StaszczykПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1292F11DF2961D3B44BA4A890EE477EA5E1013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519359   (149969) от 23.12.2021
+
+XCap 1.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита XCap - создана специально для цифровых микроскоповТип издания: macOS SoftwareРелиз состоялся: 19.12.2021Разработчик: © 2021 SHIH-CHUEH CHENПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Традиционный китайский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D82B479ADFFDAEA7C82C4B33B4DB62F1D271D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086868   (149948) от 25.12.2016
 
 Zoom It 1.2.3 [En]
@@ -6,7 +111,7 @@ Zoom It 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149948.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ Inklet 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149924.jpg" />
 </div>
 
 
@@ -62,7 +167,7 @@ Allavsoft Video Downloader Converter 3.24.2.8025 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149876.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149876.jpg" />
 </div>
 
 
@@ -88,7 +193,7 @@ DxO PhotoLab 5 ELITE Edition 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149826.jpg" />
 </div>
 
 
@@ -115,7 +220,7 @@ Cockos REAPER for Mac v6.43  [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149817.jpg" />
 </div>
 
 
@@ -141,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149810.jpg" />
 </div>
 
 
@@ -167,7 +272,7 @@ Combo Cleaner Premium 1.3.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149798.jpg" />
 </div>
 
 
@@ -193,7 +298,7 @@ iMap Builder: Organisation 11.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149788.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ AnyTrans for iOS 8.8.1.20201224 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149787.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149722.jpg" />
 </div>
 
 
@@ -272,7 +377,7 @@ Wondershare Filmora Х v10.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149409.jpg" />
 </div>
 
 
@@ -298,7 +403,7 @@ Boom 3D 1.1.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149043.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ Amadeus Pro  2.7 (build 2254) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149033.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149024.jpg" />
 </div>
 
 
@@ -380,7 +485,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5.2b2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148969.jpg" />
 </div>
 
 
@@ -409,7 +514,7 @@ Artstudio Pro 2.3.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148962.jpg" />
 </div>
 
 
@@ -435,7 +540,7 @@ GarageSale 8 v8.0.9 (build 1138) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148954.jpg" />
 </div>
 
 
@@ -461,7 +566,7 @@ My Metronome 1.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148917.jpg" />
 </div>
 
 
@@ -487,7 +592,7 @@ AirRadar 5 v5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148912.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148912.jpg" />
 </div>
 
 
@@ -513,7 +618,7 @@ MacPilot 11 v11.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148905.jpg" />
 </div>
 
 
@@ -540,7 +645,7 @@ Adguard 2.4.1.708 nightly (CL - 1.5.163) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148847.jpg" />
 </div>
 
 
@@ -566,7 +671,7 @@ ScreenFloat-Better Screenshots 1.5.19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148838.jpg" />
 </div>
 
 
@@ -579,112 +684,6 @@ ScreenFloat — приложение для создания висящих на
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5414C121A9AC5406D39A25C87A25311AA4731D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347740   (148836) от 24.12.2019
-
-Apeaksoft Android Toolkit 1.1.18 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Android ToolKit - предоставляет вам полное решение для восстановления данных Android, позволяющее эффективно решать все проблемы потери файлов Android за три простых шага: подключить Android к ПК, сканировать устройство Android, просматривать и восстанавливать данные Android.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Apeaksoft StudioПоддерживаемая ОС: macOS 10.6 Snow LeopardЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94D8D57E48A3F56D4D177FA07D79065945CE890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519570   (148833) от 24.12.2021
-
-Slidepad 1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148833.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
-Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
-Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2021Разработчик: © 2021 SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6274330DF170D3B6BA6A4AD7E3E2FA5F87B460DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519614   (148823) от 24.12.2021
-
-Timer RH PRO  2.10 [En/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Timer RH PRO - утилита для управления собственным временем.Тип издания: macOS SoftwareРелиз состоялся: 25.10.2021Разработчик: © 2021 Pavlo LiashenkoПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C6A55D1CEC984EF7506084DDA68D01DE4C681B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519596   (148819) от 24.12.2021
-
-Diagrams 2.2.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Diagrams - это редактор диаграмм для Mac, который помогает вам лучше понять ваши конструкции и процессы с помощью визуализации. Его доступный дизайн, чистый интерфейс, четкий визуальный стиль и оптимизированное взаимодействие с холстом позволяют создавать красивые диаграммы и в кратчайшие сроки интегрировать их в свои рабочие процессы.Тип издания: macOS SoftwareРелиз состоялся: 23.12.2021Разработчик: © 2020-2021 Structured Path GmbHПоддерживаемая ОС: macOS 10.15.2+Язык интерфейса: Английский, Немецкий и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D253DC02470B1372181DBDAE9FDBD19330BED4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sacred Spirit Band - Sacred Spirit (2004) [MP3|320 кб/с]<Native American,New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997522.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ Ethnico - Prophecy for Montezuma (2013) [MP3|320 кб/с]<Ehno-meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997034.jpg" />
 </div>
 
 
@@ -76,7 +76,7 @@ Maneesh de Moor - 4 albums (2001-2007) [MP3|320 кб/с]<New age, Meditative, Am
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996980.jpg" />
 </div>
 
 
@@ -106,7 +106,7 @@ Morning Stars - Only Instrumental (2011) [MP3|320 кб/с]<New age, Native ameri
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995224.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Chakra's Dream - 27 albums (2002 - 2009) [MP3|128-320 кб/с]<New age, Meditati
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990753.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ VA - Angel Prayer (2012) [MP3|320 кб/с]<New age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990575.jpg" />
 </div>
 
 
@@ -211,7 +211,7 @@ Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditat
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990210.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ VA - Restart 2020 Chillout (2020) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984868.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Enigma - Revival from Disuse (feat. Fato Deejays) 2009 (2009) [MP3|320 kbps]<New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983989.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Paul Cardall - Saving Tiny Hearts (2014) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979263.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ Almudena Merino Mino - Dejolull, La Cepa Magica (2015) [MP3|320 кб/с] <New Ag
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978942.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Glenn D. Wright & R. Arduini - Best Of New Age (2CD) (1999) [MP3|320 кб/с]<Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976836.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Michele McLaughlin - Undercurrent (2015) [MP3|320 кб/с] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975681.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ The Piano Girls - Hey Guys, Listen to My Piano (2014) [MP3|320 кб/с] <New Age
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975474.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Luna - 3 альбома (1992-1998) [MP3|256-320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975351.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Manish Vyas - Atma Bhakti (2015) [MP3|320 кб/с] <New Age, World, Mantra>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973344.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Douglas Blue Feather - Rhythms of the Night (2015) [MP3|320 кб/с] <New Age, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972107.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Richard Ackrill - The Lightness of Being (2012) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971264.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrument
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971187.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Jim Brickman - Believe (2014) [MP3|320 кб/с] <New Age, Solo Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964709.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Gary Girouard - The Naked Piano: Transitions (2016) [MP3|320 кб/с] <New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963578.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Stephen Rhodes - New Images (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963577.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ David Arkenstone - Parisian Nights (2016) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962292.jpg" />
 </div>
 
 
@@ -726,7 +726,7 @@ Oliver Scheffner - The Magic of the Moon (2014) [MP3|320 кб/с] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962283.jpg" />
 </div>
 
 
@@ -755,7 +755,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960908.jpg" />
 </div>
 
 
@@ -784,7 +784,7 @@ David Wahler - Secret Dream (2012) [MP3|320 кб/с] <New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959885.jpg" />
 </div>
 
 

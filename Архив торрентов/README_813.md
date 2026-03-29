@@ -6,7 +6,7 @@ ScreenHunter Pro 7.0.1055 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865313.jpg" />
+  <img src="Z:/picture/008/save_picture_865313.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Arte / Арте [2020, TV, 2 из 12] WEB-DL 1080p Rus
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865307.jpg" />
+  <img src="Z:/picture/008/save_picture_865307.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865291.jpg" />
+  <img src="Z:/picture/008/save_picture_865291.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865274.jpg" />
+  <img src="Z:/picture/008/save_picture_865274.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ The Bat! Professional 9.1.14 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865258.jpg" />
+  <img src="Z:/picture/008/save_picture_865258.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ priPrinter Professional 6.6.0.2491 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865255.jpg" />
+  <img src="Z:/picture/008/save_picture_865255.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Adobe Flash Player 32.0.0.363 (Adobe Runtimes AllInOne 14.04.2020) RePack by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865248.jpg" />
+  <img src="Z:/picture/008/save_picture_865248.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Ashampoo UnInstaller 9.00.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865246.jpg" />
+  <img src="Z:/picture/008/save_picture_865246.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Adobe Press | Adobe Photoshop CS6. Официальный учебный кур�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865179.jpg" />
+  <img src="Z:/picture/008/save_picture_865179.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Adobe Flash Player 32.0.0.363 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865167.jpg" />
+  <img src="Z:/picture/008/save_picture_865167.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Textify 1.8.2 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865161.jpg" />
+  <img src="Z:/picture/008/save_picture_865161.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865148.jpg" />
+  <img src="Z:/picture/008/save_picture_865148.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865082.jpg" />
+  <img src="Z:/picture/008/save_picture_865082.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ R-Studio Network Edition 8.13 build 176095 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865077.jpg" />
+  <img src="Z:/picture/008/save_picture_865077.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Victoria 5.28 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865069.jpg" />
+  <img src="Z:/picture/008/save_picture_865069.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865062.jpg" />
+  <img src="Z:/picture/008/save_picture_865062.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865032.jpg" />
+  <img src="Z:/picture/008/save_picture_865032.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ ExifEditor 1.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864993.jpg" />
+  <img src="Z:/picture/008/save_picture_864993.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - House Vip (31.03.10) [MP3|192-320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864991.jpg" />
+  <img src="Z:/picture/008/save_picture_864991.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ VA - House Vip (01.04.10) [MP3|192-320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864988.jpg" />
+  <img src="Z:/picture/008/save_picture_864988.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ PopClip 2021.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864963.jpg" />
+  <img src="Z:/picture/008/save_picture_864963.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ VideoProc Converter 4K 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864962.jpg" />
+  <img src="Z:/picture/008/save_picture_864962.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ MacX MediaTrans 7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864960.jpg" />
+  <img src="Z:/picture/008/save_picture_864960.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Soulver 3 v3.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864957.jpg" />
+  <img src="Z:/picture/008/save_picture_864957.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VideoProc (former MacX Video Converter Pro) 4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864956.jpg" />
+  <img src="Z:/picture/008/save_picture_864956.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Task Office 6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864955.jpg" />
+  <img src="Z:/picture/008/save_picture_864955.jpg" />
 </div>
 
 

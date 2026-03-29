@@ -1,3 +1,91 @@
+###  Публикация: 597472   (1000377) от 02.01.2013
+
+DVJ Bazuka - Happy Vodka Bithez (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отЖанр: House, ElectroПродолжительность: 00:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8B7A6905967BC2447F0DF3CDA163E701C2C0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598303   (999825) от 04.01.2013
+
+Лучшие клипы 2012 / Slim Shady Place Video Yearmix 2012 [720p] BDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый год Sebastiaan Sopamena (aka DJ SSP) радует нас новой подборкой лучших клипов, перетекающих один в другой, выполненной для Slim Shady Place. Это своего рода сборник лучших музыкальных видеотворений 2012 года. Отличная возможность увидеть самые яркие клипы СО ВСЕГО МИРА за два последних года!
+Приятного просмотра Slim Shady Place Video Yearmix 2012!Жанр: Pop / House / Eurodance / Electronic / R&BПеревод: ОригинальныйПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C9878BEDA069995808C70D28D2B1D56F89023A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598141   (999635) от 05.01.2013
+
+Светлана Разина - Презентация нового альбома (2008) CamRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Наступает Ночь
+02. Нравится
+03. Звёзды / Я Не Хочу / Солнечное Лето (попурри)
+04. Музыка Нас Связала
+05. Демон
+06. Реинкарнация
+07. Короче (feat B. Лесовская)
+08. Плакать
+09. Света
+10. Налоговый Инспектор(   Читать дальше...   )Жанр: POPПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597947BC1D0E8755C10CC4E20A68EE06E68D38EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599449   (999323) от 06.01.2013
 
 BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
@@ -6,7 +94,7 @@ BAZUKA - Christmaz Bitchez (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999323.jpg" />
 </div>
 
 
@@ -32,7 +120,7 @@ Ibiza vs. VDJ Rossonero - Happy New Year (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999314.jpg" />
 </div>
 
 
@@ -58,7 +146,7 @@ Young Swift Feat. Young Jeezy - I Like (Uncensored)(2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999303.jpg" />
 </div>
 
 
@@ -84,7 +172,7 @@ Slade At The BBC (1969-1991) (2012) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999109.jpg" />
 </div>
 
 
@@ -119,7 +207,7 @@ Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998559.jpg" />
 </div>
 
 
@@ -145,7 +233,7 @@ Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998531.jpg" />
 </div>
 
 
@@ -171,7 +259,7 @@ EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998523.jpg" />
 </div>
 
 
@@ -197,7 +285,7 @@ DJ Shog - Another World (10 Years) (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998364.jpg" />
 </div>
 
 
@@ -223,7 +311,7 @@ Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998332.jpg" />
 </div>
 
 
@@ -249,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998260.jpg" />
 </div>
 
 
@@ -275,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998019.jpg" />
 </div>
 
 
@@ -301,7 +389,7 @@ Eloy - The Legacy Box DVD 1 (русские субтитры) (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997817.jpg" />
 </div>
 
 
@@ -333,7 +421,7 @@ Black Veil Brides - Legion Of The Black (2012) [H.264/1080p-LQ] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997663.jpg" />
 </div>
 
 
@@ -362,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996877.jpg" />
 </div>
 
 
@@ -391,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996648.jpg" />
 </div>
 
 
@@ -426,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995990.jpg" />
 </div>
 
 
@@ -455,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995809.jpg" />
 </div>
 
 
@@ -484,7 +572,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995794.jpg" />
 </div>
 
 
@@ -513,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995789.jpg" />
 </div>
 
 
@@ -542,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995702.jpg" />
 </div>
 
 
@@ -573,7 +661,7 @@ ABBA - ABBA (Deluxe Edition) (2012) DVD5
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995498.jpg" />
 </div>
 
 
@@ -602,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995443.jpg" />
 </div>
 
 
@@ -631,7 +719,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995439.jpg" />
 </div>
 
 
@@ -645,90 +733,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F657D92D66FAF09AB783F0705A1966CBC4FC7BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605695   (995366) от 20.01.2013
-
-Dance Hits 90's - Retro Dance Party (2011) [H.264] DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка - EurodanceПродолжительность: vol.1: 02:50:21,
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FF8F00C7E5F8D13A629214B5961560C8F27A41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606962   (994639) от 22.01.2013
-
-Лучшие клипы / The best videos of all time (Pop, Sexy) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angus and Julia Stone - Big Jet Plane
-02. Pussycat Dolls - Don't Cha
-03. Chica Bomb - Sexy
-04. Нюша - Воспоминание(   Читать дальше...   )Жанр: Музыка, Pop, Sexy, Dance, HouseПродолжительность: 01:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DC77AB62214043740DBE27A22A2796670D7E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607111   (994637) от 22.01.2013
-
-Лучшие клипы / The best videos of all time (Rock'n'roll) H.264 (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Richard - Lucille
-02. Bill Haley And His Comets - Vive La Rock 'N' Roll
-03. AC DC - That's the Way I Wanna Rock N' Roll
-04. Britney Spears - I Love Rock 'N' Roll(   Читать дальше...   )Жанр: Музыка, Rock, Rock'n'rollПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E85A64ECB7F1C1CCEF837049CBCBB0047FAE871E
 ```
 
 https://mybot314.ru/tekegram_catalog/

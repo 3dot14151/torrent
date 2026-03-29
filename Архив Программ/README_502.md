@@ -6,7 +6,7 @@ SeaMonkey 2.53.10 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789743.jpg" />
+  <img src="Z:/picture/008/save_picture_789743.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Cockos REAPER 6.42 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789740.jpg" />
+  <img src="Z:/picture/008/save_picture_789740.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Celemony - Melodyne Studio 4 4.2.1.003 STANDALONE, VST, VST3, RTAS, AAX (x86/x64
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789730.jpg" />
+  <img src="Z:/picture/008/save_picture_789730.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Download Master 6.22.1.1677 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789707.jpg" />
+  <img src="Z:/picture/008/save_picture_789707.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Avira Phantom VPN Free / Pro 2.12.3.16045 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789706.jpg" />
+  <img src="Z:/picture/008/save_picture_789706.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Windows and Office Genuine ISO Verifier 11.10.23.21 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789697.jpg" />
+  <img src="Z:/picture/008/save_picture_789697.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Mozilla FireFox 94.0.2.7991 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789683.jpg" />
+  <img src="Z:/picture/008/save_picture_789683.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Chromium 96.0.4664.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789681.jpg" />
+  <img src="Z:/picture/008/save_picture_789681.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ qBittorrent 4.1.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789659.jpg" />
+  <img src="Z:/picture/008/save_picture_789659.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Wise Program Uninstaller 2.6.1.148 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789652.jpg" />
+  <img src="Z:/picture/008/save_picture_789652.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AnyDesk 7.0.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789636.jpg" />
+  <img src="Z:/picture/008/save_picture_789636.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ GOM Player Plus 2.3.71.5335 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789635.jpg" />
+  <img src="Z:/picture/008/save_picture_789635.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VLC Media Player 3.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789616.jpg" />
+  <img src="Z:/picture/008/save_picture_789616.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ O&O Defrag Professional 25.1 Build 7305 RePack (& Portable) by 9649 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789607.jpg" />
+  <img src="Z:/picture/008/save_picture_789607.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.6 (Offline Cache, Unofficial) [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789595.jpg" />
+  <img src="Z:/picture/008/save_picture_789595.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Blackmagic Design DaVinci Resolve Studio 17.4.2 Build 9 RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789573.jpg" />
+  <img src="Z:/picture/008/save_picture_789573.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ TeamViewer 15.22.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789572.jpg" />
+  <img src="Z:/picture/008/save_picture_789572.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Topaz Video Enhance AI 2.6.1 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789567.jpg" />
+  <img src="Z:/picture/008/save_picture_789567.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Adobe InDesign 2022 17.0.1.105 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789555.jpg" />
+  <img src="Z:/picture/008/save_picture_789555.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Microsoft Visual Studio 2022 Enterprise 17.0.0 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789553.jpg" />
+  <img src="Z:/picture/008/save_picture_789553.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ IObit Smart Defrag Pro 5.8.5.1285 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789497.jpg" />
+  <img src="Z:/picture/008/save_picture_789497.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Auslogics Disk Defrag Free 8.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789493.jpg" />
+  <img src="Z:/picture/008/save_picture_789493.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ IObit Smart Defrag Pro 5.8.5.1285 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789477.jpg" />
+  <img src="Z:/picture/008/save_picture_789477.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Athentech Perfectly Clear + WorkBench 3.5.6.1144 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789470.jpg" />
+  <img src="Z:/picture/008/save_picture_789470.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Mozilla Firefox Quantum 58.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789455.jpg" />
+  <img src="Z:/picture/008/save_picture_789455.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ IObit Uninstaller Pro 7.3.0.13 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789453.jpg" />
+  <img src="Z:/picture/008/save_picture_789453.jpg" />
 </div>
 
 

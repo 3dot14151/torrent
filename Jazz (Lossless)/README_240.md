@@ -1,3 +1,118 @@
+###  Публикация: 1267189   (244928) от 05.12.2018
+
+George Cables - Shared Secrets (2001) MuseFX Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5 Will Get Ya 10 [6:07]
+02. Blackfoot [5:20]
+03. S.F.C.B [5:07]
+04. Secrets of Love [6:33](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7AFAF382112FA002E647CE0F603ED44101CDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267181   (244908) от 05.12.2018
+
+Count Basie - Swinging The Blues (1937 - 1949) 2000, Disques Dreyfus [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumpin' At The Woodside [3:03]
+02. Louisiana [2:27]
+03. Katy [2:57]
+04. Broadway [2:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60BCF1DAFCB13E3DE6BA407877F5DB6A19A7CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266984   (244899) от 05.12.2018
+
+Art Pepper - Neon Art: Volume Three (1981) 2015, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make A List (Make A Wish) [24:40]
+02. Everything Happens To Me [8:36]
+03. Arthur's Blues [10:27]Жанр: Post-BopПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FD68F794A7BFD80DEB54A889F4736848C7549E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529378   (244815) от 06.02.2022
+
+Dizzy Gillespie Quintet - Treffpunkt Jazz (1961) 2020, Jazzhaus [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mooche [16:05]
+02. Con Alma [12:11]
+03. Willow Weep for Me [4:19]
+04. Oops-Shoo-Be-Doo-Be [3:55](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B303A8832823334B957AE63DCE63AEDEBB3267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609641   (244773) от 04.02.2023
 
 Kai Winding & Curtis Fuller - Bone Appetit (1980) 2004, Par Media Music [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
@@ -6,7 +121,7 @@ Kai Winding & Curtis Fuller - Bone Appetit (1980) 2004, Par Media Music [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244773.jpg" />
+  <img src="Z:/picture/004/save_picture_244773.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ Lester Young - Four Classic Albums: Second Set (1943 - 1957) 2CD, 2020, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244737.jpg" />
+  <img src="Z:/picture/004/save_picture_244737.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Hank Jones - Urbanity (1947-1953) 1997, Verve[FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244670.jpg" />
+  <img src="Z:/picture/004/save_picture_244670.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Lars Gullin - Baritone Sax (1956) Remaster, 2013, Warner[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244665.jpg" />
+  <img src="Z:/picture/004/save_picture_244665.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ Pierre de Bethmann - Sisyphe (2014) 2CD, Plus Loin Music[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244655.jpg" />
+  <img src="Z:/picture/004/save_picture_244655.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Clint Houston - Inside The Plain Of The Elliptic (1979) Remaster, 2015, Solid Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244644.jpg" />
+  <img src="Z:/picture/004/save_picture_244644.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ SFJAZZ Collective - Live 2005 2nd Annual Concert Tour (2005) 2CD, SFJazz Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244639.jpg" />
+  <img src="Z:/picture/004/save_picture_244639.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ Donald Byrd - Live: Cookin' With Blue Note At Montreux (1973) 2022, Blue Note [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244638.jpg" />
+  <img src="Z:/picture/004/save_picture_244638.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ Peter Erskine - Dr. Um (2016) Fuzzy Music [FLAC|Lossless|tracks + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244621.jpg" />
+  <img src="Z:/picture/004/save_picture_244621.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ Mal Waldron - Up Popped the Devil (1973) 2003, Enja Records[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244618.jpg" />
+  <img src="Z:/picture/004/save_picture_244618.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ Ella Fitzgerald - BD Jazz (1945 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244617.jpg" />
+  <img src="Z:/picture/004/save_picture_244617.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Charlie Parker - Five Classic Albums (1949 - 1954) 2CD, 2020, Avid Jazz [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244609.jpg" />
+  <img src="Z:/picture/004/save_picture_244609.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ Henry Threadgill - Double Up, Plays Double Up Plus (2018) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244606.jpg" />
+  <img src="Z:/picture/004/save_picture_244606.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ Tal Babitzky - Internal Voice (2002) [FLAC|Lossless|tracks + .cue] <Fusion, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244566.jpg" />
+  <img src="Z:/picture/004/save_picture_244566.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ Elmo Hope - Trio And Quintet (1953 - 1957) 1991, Blue Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244529.jpg" />
+  <img src="Z:/picture/004/save_picture_244529.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ Sonny Criss - The Beat Goes On! (1968) 2000, Original Jazz Classics [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244527.jpg" />
+  <img src="Z:/picture/004/save_picture_244527.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ Laurent de Wilde - The Present (2006) Nocturne[FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244506.jpg" />
+  <img src="Z:/picture/004/save_picture_244506.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ Cannonball Adderley - Nippon Soul (1963) 1990, Original Jazz Classics[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244500.jpg" />
+  <img src="Z:/picture/004/save_picture_244500.jpg" />
 </div>
 
 
@@ -528,7 +643,7 @@ The John Colianni Trio - Blues-O-Matic (1989) Concord Jazz[APE|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244478.jpg" />
+  <img src="Z:/picture/004/save_picture_244478.jpg" />
 </div>
 
 
@@ -557,7 +672,7 @@ Art Blakey And The Jazz Messengers - Soul Finger (1965) 2009, Universal[FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244475.jpg" />
+  <img src="Z:/picture/004/save_picture_244475.jpg" />
 </div>
 
 
@@ -586,7 +701,7 @@ Willie ''The Lion'' Smith - 1938 - 1940 (1993) Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244422.jpg" />
 </div>
 
 
@@ -615,7 +730,7 @@ Woody Herman - Road Band (1954, 1955) 2005, Membran Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244411.jpg" />
 </div>
 
 
@@ -629,122 +744,6 @@ Woody Herman - Road Band (1954, 1955) 2005, Membran Music [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62275FE4F7958F12505E67F19F61D45104096CDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294661   (244409) от 08.04.2019
-
-Povarovo - Tchernovik (2007) Reissue, 2012, Denovali  [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Dark Ambient, Future Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Going (3:30)
-02. Dumb and Short (1:42)
-03. After Breake (5:12)
-04. Methro Nome (3:25)(   Читать дальше...   )Производство: Denovali Records - DEN083Жанр: Dark Jazz, Dark Ambient, Future JazzПродолжительность: 01:09:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11D611E9F1F88ADADEF6630A7705A2D304ACDA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072164   (244401) от 12.11.2016
-
-The Jimmy Giuffre 3 - Trav'lin' Light (1958) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Trav'lin' Light [04:27]
- 02.The Swamp People [05:37]
- 03.The Green Country (New England Mood) [03:08]
- 04.Forty-Second Street [06:18](   Читать дальше...   )Жанр: CoolПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98A3340462DE75D9CEB78A5A15ED4BBC0291E2F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625705   (244381) от 11.04.2023
-
-McCoy Tyner - Sama Layuca (1974) 2002, Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sama Layuca [8:38]
-02. Above the Rainbow [3:03]
-03. La Cubana [10:27]
-04. Desert Cry [4:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17ED47254D1211043B80D7D1AC5D332AD9B81B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072290   (244361) от 12.11.2016
-
-Peter Fernandes - The New Me (2011) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Minute To Midnight (Intro) [1:07]
-02. The New Wave [6:15]
-03. Twitch [6:35]
-04. Casionometry [7:10](   Читать дальше...   )Жанр: FusionПродолжительность: 00:54:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFDA8DFA187C13FF98BCACC0E423D980A6DC836
 ```
 
 https://mybot314.ru/tekegram_catalog/

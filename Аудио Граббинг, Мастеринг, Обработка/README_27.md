@@ -1,3 +1,107 @@
+###  Публикация: 1517215   (163347) от 14.12.2021
+
+UVI - Falcon v2.5.3 STANDALONE, EXE/VST/AAX(MOD) x64 RePack by R2R [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Falcon - это продвинутый и поистине неограниченный гибридный инструмент, объединяющий обширную коллекцию передовых генераторов, эффектов, модуляторов и обработчиков событий и предоставляющий их в адаптируемой к рабочему процессу среде с большим количеством сценариев. Falcon позволяет создавать и управлять звуком с непревзойденной точностью и утонченностью, от базовой (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14AE7B4E5F032FDEDAF49B39FB32B3243A602140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517455   (162848) от 15.12.2021
+
+UVI - Synth Anthology 3 v1.0.1 (UVI Falcon) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятная коллекция звуков аппаратного синтезатора, мастерски запрограммированных, индивидуально созданных с помощью внешних процессоров, мультисэмплированных и доведенных до совершенства. Synth Anthology 3 обеспечивает чистые и мощные звуки 132 аппаратных синтезаторов, аккуратно обработанные по вкусу лучшими аппаратными процессорами на рынке. Вы найдете все, от (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8A7FECA796E37F20108E6886DCC517DFF6D215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517518   (162821) от 15.12.2021
+
+UVI - Key Suite Digital v1.1.1 (UVI Falcon) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще в 80-х годах многие производители синтезаторов начали выпускать клавиатуры и модули, предназначенные для звуков акустического и электрического пианино. Самым культовым из этих инструментов был Roland MKS-20, который представил звуковой движок SAS (структурированный / адаптивный синтез). Эти инструменты не были идеальными, особенно по современным стандартам, но (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B35299BF1252CE0391016BF6B608B1287A8B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517286   (162717) от 15.12.2021
+
+Gospel Musicians - FM TiNES for (UVI Falcon) 2.0 [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162717.jpg" />
+</div>
+
+
+###  Подробнее
+
+FM TiNES - это библиотека сэмплов и синтезаторов, содержащая более 20 ГБ самых красивых и вдохновляющих электрических пианино, которые я когда-либо слышал.Нашей целью было охватить все жанры патчей электрического пианино, а не только FM. Благодаря колокольчикам типа D50, красивым пэдам, богатым струнам и многослойному FM EP, FM TiNES станет самой популярной библиотекой (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D29219295C325134853B93CA4EB87FE9CA1F5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517381   (162479) от 15.12.2021
 
 reFX - Nexus 3.4.4 VSTi (x64) + Content [En]
@@ -6,7 +110,7 @@ reFX - Nexus 3.4.4 VSTi (x64) + Content [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162479.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ Antares - AVOX 4 v4.2.0 VST, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161770.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ UVI - Austrian Grand v.1.0.3 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161561.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ UVI - Model D Falcon 1.6 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161539.jpg" />
 </div>
 
 
@@ -115,7 +219,7 @@ VI Labs Audio - Ravenscroft 275 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161480.jpg" />
 </div>
 
 
@@ -141,7 +245,7 @@ Cableguys - ShaperBox 3 3.2 VST, VST 3, AAX (x64) RePack by TeamCubeadooby [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161298.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ Boz Digital Labs - Sasquatch 2.0.5 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161141.jpg" />
 </div>
 
 
@@ -195,7 +299,7 @@ Boz Digital Labs - ProVocative 1.0.6 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161088.jpg" />
 </div>
 
 
@@ -222,7 +326,7 @@ Boz Digital Labs - Pan Knob 1.0.2 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161058.jpg" />
 </div>
 
 
@@ -248,7 +352,7 @@ The Tunes - Navira 1.1.6 VSTi [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159595.jpg" />
 </div>
 
 
@@ -275,7 +379,7 @@ FAW SubLab 1.1.9 STANDALONE, VSTi, VSTi3, AAX (x86/x64) RePack by TeamCubeadooby
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159301.jpg" />
 </div>
 
 
@@ -302,7 +406,7 @@ Xfer Records - Serum & SerumFX 1.35b7 VSTi, VSTi3, AAX (x86/x64) RePack by TCD [
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159247.jpg" />
 </div>
 
 
@@ -328,7 +432,7 @@ Plugin Alliance - All Bundle 2022 VST / VSTi, VST3 / VSTi3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159160.jpg" />
 </div>
 
 
@@ -354,7 +458,7 @@ Dawesome - Kult 1.0.0 VSTi 3 (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158992.jpg" />
 </div>
 
 
@@ -380,7 +484,7 @@ Cherry Audio - GX-80 1.0.9.123 Standalone, VSTi, VSTi 3, AAX (x64) RePack by R2R
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158918.jpg" />
 </div>
 
 
@@ -406,7 +510,7 @@ iZotope Music Production Suite Pro 2021.12 STANDALONE, VST, VST3, AAX (x64) RePa
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157503.jpg" />
 </div>
 
 
@@ -432,7 +536,7 @@ Sonible - smart:limit 1.1.3 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155638.jpg" />
 </div>
 
 
@@ -458,7 +562,7 @@ Rob Papen - Go2 1.0.1b VSTi, AAX (x86/x64) Repack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155618.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ Roland VS - SRX DANCE TRAX VSTi, VSTi3, AAX 1.0.1 [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155212.jpg" />
 </div>
 
 
@@ -512,7 +616,7 @@ Tone2 - Warmverb Multi-FX 1.2.1/1.2.2 VST (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155174.jpg" />
 </div>
 
 
@@ -538,7 +642,7 @@ Adam Szabo - Viper 1.0.91 VSTi (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153969.jpg" />
 </div>
 
 
@@ -564,7 +668,7 @@ UVI - Key Suite Electric 1.0.6 (UVI Falcon) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153954.jpg" />
 </div>
 
 
@@ -575,111 +679,6 @@ UVI - Key Suite Electric 1.0.6 (UVI Falcon) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E9F704D3C45B1B2BE30A5D72103A3DD1FA96B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347086   (153948) от 22.12.2019
-
-2CAudio - Vector 1.0.0 VST, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vector - это инструмент анализа пространственных изображений, который помогает производителям и инженерам принимать более обоснованные решения во время микширования и мастеринга. Это помогает вам обнаруживать и избегать пространственных угроз, таких как экстремальная антифаза, избегая ложных срабатываний, которые иногда даются другими инструментами. Это позволяет (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6E4A070F66F3B8646CE364AE16778FA8DBA2C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270697   (152206) от 22.12.2018
-
-Rob Papen - BLUE II 1.0.3b VSTi, AAX (x86/x64) Repack by VR (Rev.2) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rob Papen BLUE II - второе поколение известного и популярного виртуального синтезатора от легендарного Роба Пэйпена (Rob Papen), который предоставляет всем ценителям качественного звука современный, музыкальный и креативный подход в создании уникальных звуков. Rob Papen BLUE II легко комбинирует в себе одновременно сразу несколько типов звукового синтеза, включая (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FBE5E131CE63819696F5D1A103FABD9FC03985E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271244   (152164) от 22.12.2018
-
-Loopmasters - Bass Master 1.1.2 VSTi (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тяжелые, рвущие динамики звуки - всего несколько кликов от Bass Master. Этот инструмент полностью посвящен басу, и построен на удостоенной наград звуковой истории Loopmasters.
-Огромное разнообразие источников звука Bass Master - вдохновение для тяжелого, мощного басового тона в любом жанре. Отобранный набор из 217 волновых форм (это почти 50 000 возможных комбинаций), (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C400E27CF04655EB859AC0BA4AA88E568AA3506D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601222   (152067) от 30.12.2022
-
-Xfer Records - Serum & SerumFX 1.35b7 VSTi, VSTi3, AAX (x86/x64) Update [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152067.jpg" />
-</div>
-
-
-###  Подробнее
-
-Serum – таблично-волновой синтезатор мечты, со звуком действительно высокого качества, визуальным и творчески ориентированным интерфейсом, имеет встроенный редактор волновых таблиц, чтобы создание музыки не было утомительным процессом. В синтезаторе представлено огромное количество волновых таблиц, и конечно же возможность создания собственных. Генератор унисона, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:783659CDB0C2CEF77B30977B268792F11C65F1BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

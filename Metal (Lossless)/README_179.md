@@ -1,3 +1,90 @@
+###  Публикация: 1578503   (343553) от 24.09.2022
+
+Silent Knight - Full Force (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood In The Water
+02. Full Force
+03. The Last Candle Burns
+04. Dark & Mysterious Times(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDD3C7F2B84F18FCBC73E22CD46CF06D66A5CA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410349   (343246) от 24.09.2022
+
+Frayle - 3 Albums, 1 EP, 3 Singles (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom, Post-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Treacle & Revenge [00:03:52]
+02. Bright Eyes [00:04:37]
+03. Skin & Sorrow [00:05:24]
+04. Ipecac [00:04:49](   Читать дальше...   )Жанр: Atmospheric Doom, Post-MetalПродолжительность: 7CD, 02:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F75F8AA740CC48D7837A9E8E71C1F55294E8C02B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578499   (343245) от 24.09.2022
+
+SpellBook - Deadly Charms (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_343245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1928
+02. Rehmeyer’s Hollow
+03. Goddess
+04. Pandemonium(   Читать дальше...   )Жанр: Heavy, Doom MetalПродолжительность: 00:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A5E53AA63C0507B8C870705B9D803CBC212371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954175   (342420) от 07.11.2015
 
 Voice - Golden Signs (2001) Japan [FLAC|Lossless]<Power Metal>
@@ -6,7 +93,7 @@ Voice - Golden Signs (2001) Japan [FLAC|Lossless]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342420.jpg" />
+  <img src="Z:/picture/008/save_picture_342420.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Lordi - Babez for Breakfast (2010) Japan [FLAC|Lossless]<Heavy Metal / Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342386.jpg" />
+  <img src="Z:/picture/008/save_picture_342386.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Tsjuder - Antiliv (2015) [FLAC|Lossless]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342372.jpg" />
+  <img src="Z:/picture/008/save_picture_342372.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Ektomorf - Aggressor (2015) [FLAC|tracks|WEB-DL]<Groove / Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342286.jpg" />
+  <img src="Z:/picture/008/save_picture_342286.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Lake Of Tears - Moons And Mushrooms (2007) [FLAC|Lossless|tracks + .cue] <Doom M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342192.jpg" />
+  <img src="Z:/picture/008/save_picture_342192.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Amorphis - Queen Of Time (2018) Japanese Edition [FLAC|Lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342191.jpg" />
+  <img src="Z:/picture/008/save_picture_342191.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Ensiferum - Two Paths (2017) [FLAC|Lossless|tracks + .cue] <Folk Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341336.jpg" />
+  <img src="Z:/picture/008/save_picture_341336.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Axxis - Monster Hero (2018) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341333.jpg" />
+  <img src="Z:/picture/008/save_picture_341333.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Bloated Pig - 6 (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341226.jpg" />
+  <img src="Z:/picture/008/save_picture_341226.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Beside - Almighty God (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341224.jpg" />
+  <img src="Z:/picture/008/save_picture_341224.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Bloodbath - Survival of the Sickest (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341222.jpg" />
+  <img src="Z:/picture/008/save_picture_341222.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Art of Attrition - The Void Eternal (2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341221.jpg" />
+  <img src="Z:/picture/008/save_picture_341221.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Become the Watcher - Trauma (2022) [FLAC|Lossless|WEB-DL|tracks] <Slamming Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341220.jpg" />
+  <img src="Z:/picture/008/save_picture_341220.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Blackbraid - Blackbraid I (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341216.jpg" />
+  <img src="Z:/picture/008/save_picture_341216.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Megadeth - Th1rt3en (2011) Official Russian Edition [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341213.jpg" />
+  <img src="Z:/picture/008/save_picture_341213.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Limbonic Art - Spectre Abysm (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341208.jpg" />
+  <img src="Z:/picture/008/save_picture_341208.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Destruction - Thrash Anthems II (2017) [FLAC|Lossless|image + .cue] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340143.jpg" />
+  <img src="Z:/picture/008/save_picture_340143.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Summoning - Lugburz (1995) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340128.jpg" />
+  <img src="Z:/picture/008/save_picture_340128.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Summoning - Dol Guldur (1997) [FLAC|Lossless|tracks + .cue] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340127.jpg" />
+  <img src="Z:/picture/008/save_picture_340127.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Summoning - Let Mortal Heroes Sing Your Fame (2001) [FLAC|Lossless|tracks + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340116.jpg" />
+  <img src="Z:/picture/008/save_picture_340116.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Unleashed - Hell's Unleashed (2002) [FLAC|Lossless]<Death Metal, Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340114.jpg" />
+  <img src="Z:/picture/008/save_picture_340114.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Summoning - Minas Morgul (1995) Reissue, 2002, IROND [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340113.jpg" />
+  <img src="Z:/picture/008/save_picture_340113.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Collapse 7 - In Deep Silence (2004) [FLAC|Lossless]<Melodic Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340106.jpg" />
+  <img src="Z:/picture/008/save_picture_340106.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Collapse 7 - In Deep Silence (2004) [FLAC|Lossless]<Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F0A2D9096FDC176EF79CCBB33A3D9723C791735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954470   (340096) от 08.11.2015
-
-Unleashed - Warrior (1997) [FLAC|image +.cue]<Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Warmachine
-02 In Hellfire
-03 Mediawhore
-04 Down Under Ground(   Читать дальше...   )Жанр: Death Metal, MetalcoreПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FB6219BB6F7B0E39D2CB9DEF31F4B9FEBF5049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419485   (339986) от 28.10.2020
-
-Summoning - Stronghold (1999) [FLAC|Lossless|tracks + .cue] <Black Metal, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhûn (3:24)
-02. Long Lost To Where No Pathway Goes (7:21)
-03. The Glory Disappears (7:48)
-04. Like Some Snow-white Marble Eyes (7:18)(   Читать дальше...   )Жанр: Black Metal, Symphonic MetalПродолжительность: 01:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1CF6F8F36E6648398C49F77385367A2D8B57F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419489   (339863) от 28.10.2020
-
-Summoning - Oath Bound (2006) [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Dungeon Synth, Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bauglir (2:57)
-02. Across the Streaming Tide (10:18)
-03. Mirdautas Vras (8:12)
-04. Might and Glory (8:24)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Dungeon Synth, Viking MetalПродолжительность: 01:08:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A3D44764215A15FD3D68071AC6FF0229DFF045
 ```
 
 https://mybot314.ru/tekegram_catalog/

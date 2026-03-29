@@ -1,3 +1,29 @@
+###  Публикация: 723147   (359953) от 16.11.2013
+
+Джеймс Шуровьески | Мудрость толпы (2007) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_359953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Шуровьески, финансовый аналитик New York Times и Wall Street Journal, анализируя в книге "Мудрость толпы" результаты масштабных и многоплановых исследований - в области военной истории и политики, поведенческой экономики, биологических систем и повседневной психологии - убедительно доказывает, что коллективный потенциал большой группы так называемых (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF527F08E0414EF13EB08BAF40DF58F7718DA96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328710   (358770) от 02.10.2019
 
 Ричард Кох | Сила упрощения (2017) [FB2]
@@ -6,7 +32,7 @@
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358770.jpg" />
+  <img src="Z:/picture/008/save_picture_358770.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358767.jpg" />
+  <img src="Z:/picture/008/save_picture_358767.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358764.jpg" />
+  <img src="Z:/picture/008/save_picture_358764.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358340.jpg" />
+  <img src="Z:/picture/008/save_picture_358340.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358279.jpg" />
+  <img src="Z:/picture/008/save_picture_358279.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358277.jpg" />
+  <img src="Z:/picture/008/save_picture_358277.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358087.jpg" />
+  <img src="Z:/picture/008/save_picture_358087.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357704.jpg" />
+  <img src="Z:/picture/008/save_picture_357704.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356465.jpg" />
+  <img src="Z:/picture/008/save_picture_356465.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354511.jpg" />
+  <img src="Z:/picture/008/save_picture_354511.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353114.jpg" />
+  <img src="Z:/picture/008/save_picture_353114.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352982.jpg" />
+  <img src="Z:/picture/008/save_picture_352982.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352345.jpg" />
+  <img src="Z:/picture/008/save_picture_352345.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351979.jpg" />
+  <img src="Z:/picture/008/save_picture_351979.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349646.jpg" />
+  <img src="Z:/picture/008/save_picture_349646.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349634.jpg" />
+  <img src="Z:/picture/008/save_picture_349634.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349398.jpg" />
+  <img src="Z:/picture/008/save_picture_349398.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349315.jpg" />
+  <img src="Z:/picture/008/save_picture_349315.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349159.jpg" />
+  <img src="Z:/picture/008/save_picture_349159.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349153.jpg" />
+  <img src="Z:/picture/008/save_picture_349153.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348667.jpg" />
+  <img src="Z:/picture/008/save_picture_348667.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347476.jpg" />
+  <img src="Z:/picture/008/save_picture_347476.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347365.jpg" />
+  <img src="Z:/picture/008/save_picture_347365.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347357.jpg" />
+  <img src="Z:/picture/008/save_picture_347357.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бизнес, Менеджмент, Деловая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346708.jpg" />
+  <img src="Z:/picture/008/save_picture_346708.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D97DA583E9F1243DB5BC74002C02F12D37849EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953670   (346481) от 05.11.2015
-
-Александр Денисов | Как заработать на бирже. Просто о сложном (2013) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как начать работу на валютной и фондовой бирже? С чего начать и что необходимо иметь, чтобы приступить к онлайн торговле акциями и валютами? Реально ли заработать на бирже? Что такое «голубые фишки»? Какую стратегию выбрать новичку, чтобы риск потери средств был минимален? На эти и многие другие вопросы читатель сможет найти ответы в данной книге. Материал книги (   Читать дальше...   )Жанр: Ценные бумаги, инвестиции, о бизнесе популярноФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D25BBFD96D8A3CC70AD553AAA317FC1F3840690
 ```
 
 https://mybot314.ru/tekegram_catalog/

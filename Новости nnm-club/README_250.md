@@ -1,3 +1,160 @@
+###  Публикация: 1420020   (162472) от 18.12.2020
+
+Мандалорец / The Mandalorian (2020) WEBRip [H.264/1080p] (сезон 2, серии 1-8 из 8) [En/Ru Sub]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одинокий мандалорец-наёмник живёт на краю обитаемой галактики, куда не дотягивается закон Новой Республики. Представитель некогда могучей расы благородных воинов теперь вынужден влачить жалкое существование среди отбросов общества.Производство: США / Fairview Entertainment, Lucasfilm Ltd., Walt Disney StudiosЖанр: фантастика, боевик, приключенияРежиссер: Дебора Чоу, Рик Фамуйива, Дэйв ФилониАктеры: Педро Паскаль, Карл Уэзерс, Джина Карано, Джанкарло Эспозито, Мерседес Кестнер-Варнадо, Рио Хэкфорд, Кайл Пацек, Вернер Херцог, Ник Нолти, Тайка Вайтити и др.Перевод: отсутствуетЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: ~00:35:00-00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271FB9927BB7F0C63223C494D71AC5E6491D4B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328024   (162456) от 18.12.2020
+
+Tropico 6 (2019) [Ru/En] (1.11/dlc) Repack xatab [El Prez Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые в серии: огромные архипелаги! Управляйте несколькими островами сразу и отвечайте на новые вызовы. Отправляйте своих агентов за границу на охоту за чудесами света – пора расширить вашу коллекцию. Стройте мосты и тоннели, перевозите граждан и туристов на такси, автобусах и канатных дорогах.Тип издания: RepackРазработчик: Limbic EntertainmentЖанр: Strategy, SimulationЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38039ECD26EEA5D2B9030A8849142F5E299B79F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080182   (162454) от 15.12.2021
+
+КЕ-ДЫ (2016) WEBRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_162454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Накануне призыва в армию молодой человек Саша по прозвищу «Джаггер» решает потратить свои скромные сбережения на модные кеды. Случайным образом кеды приводят его к девушке Амире, с которой он проводит ночь. Наутро выясняется, что у девушки есть девятилетний сын Митя. Мальчик страдает аутизмом и еще каким-то психическим заболеванием. Амира просит Джаггера и его приятеля (   Читать дальше...   )Производство: Россия, МосфильмЖанр: ДрамаРежиссер: Сергей СоловьёвАктеры: Николай Суслов, Аглая Шиловская, Илья Нагирняк, БастаПеревод: Не требуется (русский)Продолжительность: 01:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48303D712C5273B6FC7DE6D7A2DE6D9CB5A00692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597595   (162265) от 19.12.2022
+
+Суд оставил в силе запрет браузера Tor на территории РФ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_162265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саратовский областной суд оставил в силе решение Ленинского районного суда города Саратова о блокировке сайта The Tor Project, а также браузера Tor в Google Play.По итогам рассмотрения жалобы судья Татьяна Чаплыгина посчитала изложенные «The Tor Project Inc» доводы неубедительными и оставила решение райсуда в силе
+«Решение Ленинского районного суда Саратова от 28 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595170   (162219) от 19.12.2022
+
+Уэнсдэй / Wednesday (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) Red Head Sound, LostFilm, HDRezka Studio, NewComers, RuDub, NewStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уэнсдэй, дочь Гомеса и Мортиши Аддамс, учится в академии Nevermore. Ей предстоит освоить экстрасенсорные способности, чтобы остановить местного серийного убийцу и раскрыть тайну родителей.Производство: США / MGM Television, Millar Gough Ink, Tee and Charles Addams FoundationЖанр: фэнтези, комедия, криминал, детектив, семейныйРежиссер: Тим Бёртон, Джеймс Маршалл, Gandja MonteiroАктеры: Дженна Ортега, Гвендолин Кристи, Рики Линдхоум, Джейми МакШейн, Хантер Дуэн, Перси Хайнс Уайт, Эмма Майерс, Джой Сандай, Джорджи Фармер, Наоми ТанкелПеревод: Дублированный (Red Head Sound), Многоголосый профессиональный (LostFilm, HDRezka Studio, NewComers, RuDub, NewStudio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full)Продолжительность: ~ 00:55:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B609E5FB3110D0BB08B95ECF4F2EC50C625CC475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673602   (161858) от 04.11.2023
+
+Десятки тысяч GPU в нейтральных водах — Del Complex придумала, как обойти санкции и ограничения для ИИ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Технологическая компания Del Complex анонсировала проект BlueSea Frontier Compute Cluster (BSFCC), который предполагает создание независимых городов-государств в нейтральных водах, включающих мощные вычислительные комплексы и не ограниченных ужесточившимися законами США и Европы в отношении ИИ-разработок.В Del Complex утверждают, что в рамках BSFCC будут создаваться (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577843   (161627) от 04.11.2023
 
 Три сестры / Uc Kiz Kardes (2022-2023) WEB-DLRip [H.264/720p-LQ] (сезон 2, серии 1-37 (17-53) из 37) SesDizi
@@ -6,7 +163,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161627.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161627.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161225.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160875.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160502.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160486.jpg" />
 </div>
 
 
@@ -136,7 +293,7 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159911.jpg" />
 </div>
 
 
@@ -162,7 +319,7 @@ The Bat! Professional 10.3.3 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159707.jpg" />
 </div>
 
 
@@ -188,7 +345,7 @@ Akiba Maid Sensou / Akiba Maid War / Война горничных Акибы [2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159492.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159475.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ Spy x Family | Семья шпиона [2022, TV, 25 эп.] WEBRip 720p raw
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159473.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_159409.jpg" />
+  <img src="Z:/picture/005/save_picture_159409.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ Samsung на 10 % подняла цены на свою флеш-памяти 3D
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_159172.jpg" />
+  <img src="Z:/picture/005/save_picture_159172.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки х
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159163.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159109.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ YouTube в войне с блокировщиками рекламы наруш�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_159106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_159106.jpg" />
 </div>
 
 
@@ -400,7 +557,7 @@ CleanMyMac X 4.12.3 U2B [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159101.jpg" />
 </div>
 
 
@@ -426,7 +583,7 @@ Microsoft® Windows® 11 x64 Ru 23H2 4in1 Upd 11.2023 by OVGorskiy
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159048.jpg" />
 </div>
 
 
@@ -452,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_158870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_158870.jpg" />
 </div>
 
 
@@ -480,7 +637,7 @@ Doma TV Net Pro v4.3 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158769.jpg" />
 </div>
 
 
@@ -506,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158719.jpg" />
 </div>
 
 
@@ -517,162 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F5FA46EE8C86EA411B2C95CBD50902BFB758C70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967198   (158520) от 20.12.2015
-
-Новейший завет / Le tout nouveau testament (2015) WEB-DLRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Да, Бог существует. Но он совсем не такой, каким мы его представляли. Он живет в Брюсселе, и у него есть не только сын, но и дочь. Она сбегает из дома и отправляется в наш мир искать приключения и испытывать терпение своего отца на прочность. Надолго ли его хватит?..Производство: Бельгия, Франция, ЛюксембургЖанр: КомедияРежиссер: Жако ван ДормельАктеры: Бенуа Пульворд, Катрин Денёв, Франсуа Дамиенс, Иоланда Моро, Пили Груан, Лаура Верлинден, Серж Ларивье, Дидье Де Нек, Марко Лоренцини, Ромен ЖеленПеревод: Дублированный  (iTunes)Продолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CED600EDB44470FF78058CA37AEFA5EF7BC4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967220   (158517) от 20.12.2015
-
-Football Manager 2016 (2015) [Ru/Multi] (16.1.1) Repack Piston
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Football Manager – это симулятор футбольного менеджера, наиболее близкий к настоящей работе менеджера. Приняв руководство любым клубом из более 50 стран по всему миру, вы решаете, кто выйдет на поле, а кто останется полировать скамейку запасных, имеете дело со СМИ и занимаетесь проблемами игроков. Вы определяете тактику на матч, беседуете с командой, делаете замены, (   Читать дальше...   )Тип издания: RepackРазработчик: Sports InteractiveЖанр: Strategy (Manage, Busin., Turn-based), Sport (Soccer)Язык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:971DE5A6CA6FA224C58EAA412620AC76CA30ADDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967919   (158289) от 21.12.2015
-
-Revo Uninstaller Pro 3.1.5 RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для удаления нежелательных приложений, установленных на вашем компьютере. Revo Uninstaller имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (деинсталляция, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3B1F913437DD91B7C404B3CBA6CAA601090194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948423   (158280) от 21.12.2015
-
-Метод (2015) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня Есеня хочет после окончания института работать с Родионом Меглиным — загадочным, скрытным, следователем-одиночкой с невероятной раскрываемостью дел разнообразных маньяков. Каков его метод, никто не знает. Есеня, попав к нему в стажеры, начинает понимать, что суть метода в том, что Меглин сам — маньяк. Он ИХ чувствует. Ему разрешено ликвидировать одних, (   Читать дальше...   )Производство: Россия / кинокомпания "Среда"Жанр: триллер, криминал, драмаРежиссер: Юрий БыковАктеры: Константин Хабенский, Паулина Андреева, Виталий Кищенко, Александр Цекало, Екатерина Дубакина, Александр Петров (II), Тимофей Трибунцев, Игорь Савочкин, Алексей Серебряков, Юрий Колокольников, Юрий Быков, Ян Цапник, Захар Кабанов и др.Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80AE6718C4BC2D7623C9CE1F58A963844162C9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948329   (158277) от 21.12.2015
-
-Метод (2015) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня Есеня хочет после окончания института работать с Родионом Меглиным — загадочным, скрытным, следователем-одиночкой с невероятной раскрываемостью дел разнообразных маньяков. Каков его метод, никто не знает. Есеня, попав к нему в стажеры, начинает понимать, что суть метода в том, что Меглин сам — маньяк. Он ИХ чувствует. Ему разрешено ликвидировать одних, (   Читать дальше...   )Производство: Россия / Первый канал HDЖанр: триллер, криминал, драмаРежиссер: Юрий БыковАктеры: Константин Хабенский, Паулина Андреева, Виталий Кищенко, Александр Цекало, Екатерина Дубакина, Александр Петров, Тимофей Трибунцев, Игорь Савочкин, Алексей Серебряков, Юрий Колокольников, Юрий Быков, Ян Цапник, Захар Кабанов и др.Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C89416CE9BBE49513772467A6F162EBDCA972B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944002   (158276) от 21.12.2015
-
-Родина / Чужой среди своих / Homeland (2015) WEB-DLRip (сезон 5, серии 1-12 из 12) Пифагор
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158276.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой сериала — сержант ВМФ США, который после восьмилетнего плена вернулся на родину. После возвращения он начинает себя вести подозрительно. Что бы во всём разобраться, за дело берётся офицер ЦРУ, которая обвиняет сержанта в предательстве и причастности к целой серии террористических актов против Америки.Производство: США / Teakwood Lane Productions, Cherry Pie Productions, Keshet BroadcastingЖанр: триллер, драма, детективРежиссер: Лесли Линка Глаттер, Майкл Куэста, Дэниэл ЭттиэсАктеры: Клэр Дэйнс, Дэмиэн Льюис, Мэнди Пэтинкин, Морена Баккарин, Дэвид Хэрвуд, Руперт Френд, Джексон Пэйс, Морган Сэйлор, Ф. Мюррэй Абрахам, Диего Клаттенхофф и др.Перевод: Многоголосый закадровый, профессиональный - студия Пифагор по заказу AmediaЯзык субтитров: русский (форсированные, 5-12 серии)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31D5A84BBCAC2FD171EAF9FEFEDCE895C17A1A70
 ```
 
 https://mybot314.ru/tekegram_catalog/

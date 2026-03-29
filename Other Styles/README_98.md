@@ -1,3 +1,61 @@
+###  Публикация: 1312212   (530711) от 05.07.2019
+
+Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные дела 3 (Original Score from the Netflix Original Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys and Girls (01:49)
+02. I Like Presents Too (01:27)
+03. Starcourt (03:05)
+04. Blank Makes You Crazy (01:06)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB194008692913F942311F34FE190B11CBDD3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312403   (530708) от 05.07.2019
+
+Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Responsorios (6:19)
+02. Graduale (6:38)
+03. Cosmos (4:51)
+04. Aleluia (4:18)(   Читать дальше...   )Жанр: New Age, Enigmatic, Eurodance, AmbientПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312201   (530694) от 05.07.2019
 
 Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -6,7 +64,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530694.jpg" />
+  <img src="Z:/picture/008/save_picture_530694.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Оригиналь
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530614.jpg" />
+  <img src="Z:/picture/008/save_picture_530614.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529929.jpg" />
+  <img src="Z:/picture/008/save_picture_529929.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Anastasia - Songs of the Soul (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529754.jpg" />
+  <img src="Z:/picture/008/save_picture_529754.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Omkara - Let Nothing Remain (2010) [MP3|~264 kbps]<Mantras, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529491.jpg" />
+  <img src="Z:/picture/008/save_picture_529491.jpg" />
 </div>
 
 
@@ -155,7 +213,7 @@ Jim Brickman - Soothe, Vol. 1. Music To Quiet Your Mind and Soothe Your World (2
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529249.jpg" />
+  <img src="Z:/picture/008/save_picture_529249.jpg" />
 </div>
 
 
@@ -184,7 +242,7 @@ Jim Brickman - Soothe, Vol. 2: Sleep (2016) [FLAC|Lossless|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529208.jpg" />
+  <img src="Z:/picture/008/save_picture_529208.jpg" />
 </div>
 
 
@@ -213,7 +271,7 @@ Karunesh - Sun Within (2016) [MP3|320 Kbps] <New Age, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529132.jpg" />
+  <img src="Z:/picture/008/save_picture_529132.jpg" />
 </div>
 
 
@@ -242,7 +300,7 @@ Stefan Grossman - Those Pleasant Days (2004) 2 CD, Compilation [FLAC|Lossless|im
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528814.jpg" />
+  <img src="Z:/picture/008/save_picture_528814.jpg" />
 </div>
 
 
@@ -271,7 +329,7 @@ William Ogmundson - Simple Gifts (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528679.jpg" />
+  <img src="Z:/picture/008/save_picture_528679.jpg" />
 </div>
 
 
@@ -300,7 +358,7 @@ Mo Coulson & Chris Conway - Spirits of the Mermaids (2013) [MP3|320 кб/с]<New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528641.jpg" />
+  <img src="Z:/picture/008/save_picture_528641.jpg" />
 </div>
 
 
@@ -329,7 +387,7 @@ Ketama - Antologa De Ketama (2015) 2 CD [MP3|320 кб/с]<Spanish, Nuevo Flamenc
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528636.jpg" />
+  <img src="Z:/picture/008/save_picture_528636.jpg" />
 </div>
 
 
@@ -358,7 +416,7 @@ Jim Brickman - Pure Cinema (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528075.jpg" />
+  <img src="Z:/picture/008/save_picture_528075.jpg" />
 </div>
 
 
@@ -387,7 +445,7 @@ Karunesh - Sun Within (2016) [FLAC|Lossless|tracks] <World Fusion, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527912.jpg" />
+  <img src="Z:/picture/008/save_picture_527912.jpg" />
 </div>
 
 
@@ -416,7 +474,7 @@ Hard Working Americans - We're All In This Together (2017) [MP3|320 Kbps] <Count
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527653.jpg" />
+  <img src="Z:/picture/008/save_picture_527653.jpg" />
 </div>
 
 
@@ -445,7 +503,7 @@ Oliver Scheffner - Mystic Healing Harmony (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527646.jpg" />
+  <img src="Z:/picture/008/save_picture_527646.jpg" />
 </div>
 
 
@@ -474,7 +532,7 @@ VA - Sirtaki Dance (2003) [MP3|192-320 kbps] <Instrumental, Dance>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527429.jpg" />
+  <img src="Z:/picture/008/save_picture_527429.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ Tatanka - Vol 4 (2006) [MP3|256 Kbps] <Native american, Ethnic, Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527004.jpg" />
+  <img src="Z:/picture/008/save_picture_527004.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526692.jpg" />
+  <img src="Z:/picture/008/save_picture_526692.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526403.jpg" />
+  <img src="Z:/picture/008/save_picture_526403.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ David Hollandsworth - Discovery (2015) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526079.jpg" />
+  <img src="Z:/picture/008/save_picture_526079.jpg" />
 </div>
 
 
@@ -619,7 +677,7 @@ Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526077.jpg" />
+  <img src="Z:/picture/008/save_picture_526077.jpg" />
 </div>
 
 
@@ -648,7 +706,7 @@ Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525966.jpg" />
+  <img src="Z:/picture/008/save_picture_525966.jpg" />
 </div>
 
 
@@ -677,7 +735,7 @@ Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbp
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525820.jpg" />
+  <img src="Z:/picture/008/save_picture_525820.jpg" />
 </div>
 
 
@@ -691,64 +749,6 @@ Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C9CFEB082C5E613C3791FD9B5C521EFC49D1CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157274   (525466) от 11.08.2017
-
-Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aesir (Ethnic Version) [04:49]
-02. Aesir (Orchestra) [04:50]
-03. Aesir (Instrumental) [04:51]
-04. Archangel (Instrumental) [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAACC363C457698011363A940A3CCDFD1CCA143D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370570   (525281) от 02.08.2011
-
-VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525281.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hava Nagila
-002. Israel
-003. Lamce Ram Ciam
-004. Ba Aretz(   Читать дальше...   )Жанр: FolkПродолжительность: 06:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309D99C633404F84F7137F448DEF7C6D8431340F
 ```
 
 https://mybot314.ru/tekegram_catalog/

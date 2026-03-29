@@ -6,7 +6,7 @@ VA - Follow the Light (Beautiful Chill out Tunes), Vol. 4 (2021) [AAC|~317 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796345.jpg" />
+  <img src="Z:/picture/008/save_picture_796345.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Follow the Light (Beautiful Chill out Tunes), Vol. 3 (2021) [AAC|~318 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796343.jpg" />
+  <img src="Z:/picture/008/save_picture_796343.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Follow the Light (Beautiful Chill out Tunes), Vol. 2 (2021) [AAC|~308 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796342.jpg" />
+  <img src="Z:/picture/008/save_picture_796342.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Aces - Under My Influence (Deluxe) (2021) [AAC|~321 Kbps] <Indie Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796341.jpg" />
+  <img src="Z:/picture/008/save_picture_796341.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Follow the Light (Beautiful Chill out Tunes), Vol. 1 (2021) [AAC|~312 Kbps]
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796328.jpg" />
+  <img src="Z:/picture/008/save_picture_796328.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Aphrodisiac Grooves (2021) [AAC|~303 Kbps] <Downtempo, Nu Soul, Jazz>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796285.jpg" />
+  <img src="Z:/picture/008/save_picture_796285.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Bedroom Jazz Vibes, Vol.1 (Smooth Sexy Lounge Sounds For Chillout) (2021) [
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796276.jpg" />
+  <img src="Z:/picture/008/save_picture_796276.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796229.jpg" />
+  <img src="Z:/picture/008/save_picture_796229.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796186.jpg" />
+  <img src="Z:/picture/008/save_picture_796186.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796185.jpg" />
+  <img src="Z:/picture/008/save_picture_796185.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796147.jpg" />
+  <img src="Z:/picture/008/save_picture_796147.jpg" />
 </div>
 
 
@@ -313,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796145.jpg" />
+  <img src="Z:/picture/008/save_picture_796145.jpg" />
 </div>
 
 
@@ -339,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796108.jpg" />
+  <img src="Z:/picture/008/save_picture_796108.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795864.jpg" />
+  <img src="Z:/picture/008/save_picture_795864.jpg" />
 </div>
 
 
@@ -394,7 +394,7 @@ VA - Krafted Chill 2021 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795723.jpg" />
+  <img src="Z:/picture/008/save_picture_795723.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 4 (2016) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795720.jpg" />
+  <img src="Z:/picture/008/save_picture_795720.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ VA - Balearic Lounge Winter 2021 (2020) [AAC|~320 Kbps] <Lo-Fi, Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795719.jpg" />
+  <img src="Z:/picture/008/save_picture_795719.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ VA - Dreams Boutique (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795718.jpg" />
+  <img src="Z:/picture/008/save_picture_795718.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 1 (2016) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795717.jpg" />
+  <img src="Z:/picture/008/save_picture_795717.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ VA - Balearic Lounge Winter 2022 (2021) [AAC|~324 Kbps] <Lo-Fi, Lounge, Chill Ou
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795716.jpg" />
+  <img src="Z:/picture/008/save_picture_795716.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 3 (2016) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795715.jpg" />
+  <img src="Z:/picture/008/save_picture_795715.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 2 (2016) [AAC
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795679.jpg" />
+  <img src="Z:/picture/008/save_picture_795679.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ VA - Balearic Bar & Beach Tunes (2021) [AAC|~330 Kbps] <Lounge, Chill Out, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795676.jpg" />
+  <img src="Z:/picture/008/save_picture_795676.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ VA - Café del Mar XXVII (Vol. 27) (2021) [AAC|~347 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795667.jpg" />
+  <img src="Z:/picture/008/save_picture_795667.jpg" />
 </div>
 
 
@@ -684,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795610.jpg" />
+  <img src="Z:/picture/008/save_picture_795610.jpg" />
 </div>
 
 
@@ -713,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795580.jpg" />
+  <img src="Z:/picture/008/save_picture_795580.jpg" />
 </div>
 
 

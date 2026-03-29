@@ -1,3 +1,65 @@
+###  Публикация: 643144   (872755) от 14.04.2013
+
+PCLinuxOS 2013.04 KDE FullMonty [i586] (1xDVD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_872755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь представлен релиз PCLinuxOS 2013.04 KDE FullMonty. Основанный 24 октября 2003 года на Mandrake 9.2, PCLinuxOS придерживается собственного пути развития.  Редакция 'KDE Full Monty', где помимо обычной KDE-инсталляции содержится специальная структура рабочего стола, а также многие дополнительные приложения и предустановленные драйверы. В FullMonty разработчиками применена новая концепция: activity-focused формат виртуального рабочего стола, разработанный для обращения к типовым задачам и потребностям пользователя. KDE FullMonty распространяется в виде 32-битного DVD-образа, который может быть установлен на компьютерах с 64-битной архитектурой.
+
+В релизе PCLinuxOS 2013.04:  KDE 4.10.1;   ядро 3.2.18-pclos2.bfs; комплект свежих версий проприетарных графических драйверов NVidia; тема PCLOS410;  уведомляющая о возможности обновления установленных приложений утилита QT-update-notifier.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644217   (871036) от 15.04.2013
+
+Manjaro Linux 0.8.5 (Arch с несколькими рабочими столами) [i686, x86-64] (2xDVD+4xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_871036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены несколько редакций Manjaro Linux 0.8.5 с разными рабочими окружениями, дистрибутива основанного на Arch Linux. Продолжена поддержка игровой платформы Steam; реализована система автоматических уведомлений о наличии системных обновлений. В дистрибутив включены: Cinnamon (который был представлен в более раннем релизе здесь) Openbox 3.5.0 и Xfce 4.10.. Остальные рабочие окружения, а именно  E17, KDE, LXDE and MATE могут быть установлены из релизов Community Editions, когда они будут готовы .
+
+Включены некоторые новые пакеты, ядро версии 3.8.5-1; systemd 198; X.Org Server 1.14.0; включена поддержка пропреитарных драйверов для AMD и NVIDIA. Также внесены многочисленные изменения в другие пакеты.Опытные пользователи оценят такие новые для Manjaro возможности, как Unified Extensible Firmware Interface (EFI), B-Tree File System (btrfs), поддержку RAID.
+
+Присутствует графический инсталлятор, что отличает дистрибутив от предыдущей версии 0.8.4
+
+
+45e4333af4de60cb3b4540aa7a8e93ed  manjaro-net-0.8.5-x86_64.iso
+a0c947c99d25dbd6a30643de1e53fbf5 (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 645684   (863503) от 19.04.2013
 
 ROSA Marathon 2012 RP2 (Enterprise Desktop X1) (Национальная программная платформа) [i586, x86-64] (2xDVD)
@@ -6,7 +68,7 @@ ROSA Marathon 2012 RP2 (Enterprise Desktop X1) (Национальная про�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863503.jpg" />
+  <img src="Z:/picture/008/save_picture_863503.jpg" />
 </div>
 
 
@@ -34,7 +96,7 @@ OSGeo-Live 9.0 (Дистрибутив для географов, картогр
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862661.jpg" />
+  <img src="Z:/picture/008/save_picture_862661.jpg" />
 </div>
 
 
@@ -60,7 +122,7 @@ MovieShot 1.0 [x86] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862526.jpg" />
+  <img src="Z:/picture/008/save_picture_862526.jpg" />
 </div>
 
 
@@ -89,7 +151,7 @@ Manjaro Linux 0.8.5 (Arch + lxde, kde, mate) [i686] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860789.jpg" />
+  <img src="Z:/picture/008/save_picture_860789.jpg" />
 </div>
 
 
@@ -119,7 +181,7 @@ Manjaro Linux 0.8.5 (Arch + lxde, kde, mate) [x86-64] (3xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860592.jpg" />
+  <img src="Z:/picture/008/save_picture_860592.jpg" />
 </div>
 
 
@@ -149,7 +211,7 @@ Foresight Linux 2.5.3 [x86, x86-64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860583.jpg" />
+  <img src="Z:/picture/008/save_picture_860583.jpg" />
 </div>
 
 
@@ -177,7 +239,7 @@ Scientific Linux 6.4 Live [i386] (DVD + 2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860219.jpg" />
+  <img src="Z:/picture/008/save_picture_860219.jpg" />
 </div>
 
 
@@ -205,7 +267,7 @@ Pear Linux 7.0 [amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859921.jpg" />
+  <img src="Z:/picture/008/save_picture_859921.jpg" />
 </div>
 
 
@@ -235,7 +297,7 @@ Bugtraq II Black Widow beta (хакинг и анализ безопасност
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859920.jpg" />
+  <img src="Z:/picture/008/save_picture_859920.jpg" />
 </div>
 
 
@@ -263,7 +325,7 @@ Scientific Linux 6.4 Live [x86-64] (DVD + 2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859818.jpg" />
+  <img src="Z:/picture/008/save_picture_859818.jpg" />
 </div>
 
 
@@ -291,7 +353,7 @@ Box Shot 3D 2.10 [En] [x86, x64] (cxarchive)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857171.jpg" />
+  <img src="Z:/picture/008/save_picture_857171.jpg" />
 </div>
 
 
@@ -318,7 +380,7 @@ Pinguy OS 14.04.4-1 [i686, x86-64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853625.jpg" />
+  <img src="Z:/picture/008/save_picture_853625.jpg" />
 </div>
 
 
@@ -344,7 +406,7 @@ Kubuntu 13.04 Raring Ringtail [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852493.jpg" />
+  <img src="Z:/picture/008/save_picture_852493.jpg" />
 </div>
 
 
@@ -370,7 +432,7 @@ Xubuntu 13.04 [i386, amd64] (2xCD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852490.jpg" />
+  <img src="Z:/picture/008/save_picture_852490.jpg" />
 </div>
 
 
@@ -400,7 +462,7 @@ Edubuntu 13.04 (Ubuntu для школ и вузов) [i386, amd64] (2xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852486.jpg" />
+  <img src="Z:/picture/008/save_picture_852486.jpg" />
 </div>
 
 
@@ -428,7 +490,7 @@ CAE Linux 2018 [x86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846138.jpg" />
+  <img src="Z:/picture/008/save_picture_846138.jpg" />
 </div>
 
 
@@ -454,7 +516,7 @@ Debian GNU/Linux 8.4.0 Jessie [amd64] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843124.jpg" />
+  <img src="Z:/picture/008/save_picture_843124.jpg" />
 </div>
 
 
@@ -480,7 +542,7 @@ Sabayon 13.04 (CoreCDX, HardenedServer, ServerBase, SpinBase) [x86, x86-64] (4xD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841564.jpg" />
+  <img src="Z:/picture/008/save_picture_841564.jpg" />
 </div>
 
 
@@ -508,7 +570,7 @@ Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86-64] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841482.jpg" />
+  <img src="Z:/picture/008/save_picture_841482.jpg" />
 </div>
 
 
@@ -536,7 +598,7 @@ JonDo 0.9.42 (Анонимный доступ в сети) [x86] (DVD, CD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841481.jpg" />
+  <img src="Z:/picture/008/save_picture_841481.jpg" />
 </div>
 
 
@@ -566,7 +628,7 @@ Sabayon 13.04 (GNOME, KDE, Xfce, Mate) [x86] (4xDVD)
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841466.jpg" />
+  <img src="Z:/picture/008/save_picture_841466.jpg" />
 </div>
 
 
@@ -594,7 +656,7 @@ Debian GNU/Linux 8.4.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841386.jpg" />
+  <img src="Z:/picture/008/save_picture_841386.jpg" />
 </div>
 
 
@@ -620,7 +682,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [i386] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839988.jpg" />
+  <img src="Z:/picture/008/save_picture_839988.jpg" />
 </div>
 
 
@@ -646,7 +708,7 @@ Debian GNU/Linux 8.4.0 Jessie Live [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839538.jpg" />
+  <img src="Z:/picture/008/save_picture_839538.jpg" />
 </div>
 
 
@@ -657,60 +719,6 @@ Debian GNU/Linux 8.4.0 Jessie Live [amd64] 7xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77CA47E4545A49254F777858CC7C4D162915BC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651851   (837788) от 03.05.2013
-
-Korora  Linux (ex. Kororaa) 18 [x86, x86-64] (4xDVD)
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ян Фирнс Смарт (Ian Firns) представил релиз Kororaa Linux 18, обновлённой версии дружественного к начинающим пользователям GNU/Linux дистрибутива на основе Fedora. Kororaa Linux распространяется в виде отдельных редакций с рабочим окружением KDE и GNOME, для архитектур i686 и x86-64.
-
-Релиз Korora выполнен на основе Fedora 18, от которой отличается, в том числе, дополнительной оптимизацией KDE, GNOME и базовой системы; наличием сторонних репозиториев (Adobe, Chrome, RPMFusion, VirtualBox); использованием Firefox в качестве web-браузера по умолчанию (с интегрированной темой для KDE); подключенными расширениями Firefox (Adblock Plus, DownThemAll, Flashblock, Xclear); наличием клиентов для ведения микроблогов (Choqok для KDE, Empathy для GNOME); полной поддержкой мультимедиа «из коробки» (за исключением Flash, однако доступен инсталлятор для установки плагина Adobe Flash); в качестве медиаплеера по умолчанию используется VLC, видеоркдактор (Kdenlive для KDE, OpenShot для GNOME).
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004771   (836433) от 07.04.2016
-
-Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [i386] 7xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836433.jpg" />
-</div>
-
-
-###  Подробнее
-
-На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5EE053ADD798155AB469EB9B2E7846CFD77C74A
 ```
 
 https://mybot314.ru/tekegram_catalog/

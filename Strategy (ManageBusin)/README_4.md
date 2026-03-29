@@ -1,3 +1,81 @@
+###  Публикация: 1292513   (644328) от 30.03.2019
+
+Tropico 6 (2019) [Ru/Multi] (1.0/dlc) License PLAZA [El Prez Edition]
+
+>>След.
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые в серии: огромные архипелаги! Управляйте несколькими островами сразу и отвечайте на новые вызовы. Отправляйте своих агентов за границу на охоту за чудесами света – пора расширить вашу коллекцию. Стройте мосты и тоннели, перевозите граждан и туристов на такси, автобусах и канатных дорогах.Тип издания: LicenseРазработчик: Limbic EntertainmentЖанр: Strategy, SimulationЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3736D7237CB89EC4AB1523506B5D8680757C653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162436   (642477) от 28.05.2018
+
+Planet Coaster (2016) [Ru/En] (1.6.2/dlc) Repack xatab
+
+>>След.
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_642477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Planet Coaster представляет собой реалистичный симулятор парка развлечений. Игра открывает практически бесконечные возможности перед игроками. Создайте парк с чистого листа, изменяя в нём всё до мельчайших деталей, наблюдайте за своими посетителями, следите за их желаниями и удивляйте их.Тип издания: RepackРазработчик: Frontier DevelopmentsЖанр: Simulation, StrategyЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BDB0FF0D631E3F4BEB47B2A5579333F5D1B6781
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300856   (636652) от 07.04.2022
+
+Pathway (2019) [Multi] (1.4.0) License GOG
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636652.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pathway — это стратегическая RPG в атмосфере 1930-х годов. Отправляйтесь в великую неизведанную пустыню! Побеждайте врагов силой оружия и хитростью в пошаговых боях, расхищайте гробницы и принимайте непростые решения в процедурно созданной эксцентричной экспедиции!Тип издания: LicenseРазработчик: RobotalityЖанр: Приключение, Стратегия, ИсторическаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, французскийЯзык интерфейса: Английский, Немецкий, французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39F913D468A68C73E76DA9C6A7E6A0F853CC3933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293240   (634820) от 04.04.2019
 
 Tropico 6 (2019) [Ru/En] (96607/dlc) Repack R.G. Механики [El Prez Edition]
@@ -6,7 +84,7 @@ Tropico 6 (2019) [Ru/En] (96607/dlc) Repack R.G. Механики [El Prez Editi
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634820.jpg" />
+  <img src="Z:/picture/008/save_picture_634820.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Constructor (2017) [Multi] (1.0) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632832.jpg" />
+  <img src="Z:/picture/008/save_picture_632832.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Pro Cycling Manager 2013 (2013) [Multi] License CPY
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631773.jpg" />
+  <img src="Z:/picture/008/save_picture_631773.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Lethis - Path of Progress (2015) [Ru/Multi] (1.4.0 fix 8487) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624915.jpg" />
+  <img src="Z:/picture/008/save_picture_624915.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622147.jpg" />
+  <img src="Z:/picture/008/save_picture_622147.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ RESCUE 2: Everyday Heroes (2015) [Ru/Multi] (1.0) License SKIDROW
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615536.jpg" />
+  <img src="Z:/picture/008/save_picture_615536.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Anno 1404 (2010) [Ru/En] (1.3.3645/2.1.5010/dlc) Repack xatab [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613002.jpg" />
+  <img src="Z:/picture/008/save_picture_613002.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Urban Empire (2017) [Ru/Multi] (1.2.1.3.12587/dlc) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612447.jpg" />
+  <img src="Z:/picture/008/save_picture_612447.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Villagers (2016) [Ru/Multi] (1.100) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604379.jpg" />
+  <img src="Z:/picture/008/save_picture_604379.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Pathway (2019) [En/Ge/Fr] (1.0.5) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603511.jpg" />
+  <img src="Z:/picture/008/save_picture_603511.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Mob Rule Classic / Street Wars: Constructor Undergroud (1999) [En] (2.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603323.jpg" />
+  <img src="Z:/picture/008/save_picture_603323.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Beholder 3 (2022) [Ru/Multi] (1.0.9_99) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599301.jpg" />
+  <img src="Z:/picture/008/save_picture_599301.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Blood Bowl 2 (2015) [Ru/Multi] (2.2.18.9/dlc) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597087.jpg" />
+  <img src="Z:/picture/008/save_picture_597087.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ Rise of Industry (2019) [Ru/Multi] (1.0.0.0205A) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595882.jpg" />
+  <img src="Z:/picture/008/save_picture_595882.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Hospital Tycoon / Больничный магнат [En/Ru] (P) 2007
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586730.jpg" />
+  <img src="Z:/picture/008/save_picture_586730.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585706.jpg" />
+  <img src="Z:/picture/008/save_picture_585706.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ Banished (2014) [En] (1.0.7) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579787.jpg" />
+  <img src="Z:/picture/008/save_picture_579787.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ Despotism 3k (2018) [Ru/En] (1.2.6) Repack Fenias2011
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573898.jpg" />
+  <img src="Z:/picture/008/save_picture_573898.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ The Guild 2: Renaissance [En] (RePack) 2010 | Ultra
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_572396.jpg" />
+  <img src="Z:/picture/005/save_picture_572396.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ RollerCoaster Tycoon World (2016) [Ru/Multi] (1.0/upd4/dlc) Repack Other s [Delu
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570094.jpg" />
+  <img src="Z:/picture/008/save_picture_570094.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ Aven Colony (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559094.jpg" />
+  <img src="Z:/picture/008/save_picture_559094.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ Traffic Manager / Verkehrsplaner: Die Simulation [Ge\En] (L) 2011
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559007.jpg" />
+  <img src="Z:/picture/008/save_picture_559007.jpg" />
 </div>
 
 
@@ -585,7 +663,7 @@ China: Mao's legacy (2019) [Ru/En] (1.0.2) Repack Other s
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557759.jpg" />
+  <img src="Z:/picture/008/save_picture_557759.jpg" />
 </div>
 
 
@@ -596,84 +674,6 @@ China: Mao's legacy (2019) [Ru/En] (1.0.2) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34E824391BD34FCBB3D0D1E87239C68B7F81E33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078055   (556647) от 28.07.2017
-
-Halcyon 6: Starbase Commander (2016) [En] (1.3.1.9) License GOG
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Halcyon 6: Starbase Commander – это космическая RPG стратегия, где на начальном этапе вам будет выдана старая космическая станция. Путешествуя по случайно генерируемому космосу, вы будете искать редкие ресурсы, которые позволят модернизировать ваш корабль. Конечно же, по пути вас будут ждать приключения и сражения с самыми различными противниками, причем сражения (   Читать дальше...   )Тип издания: LicenseРазработчик: Massive Damage, Inc.Жанр: Инди, Ролевые игры, Симуляторы, СтратегииЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417FED0F6C22485250531AE02007F774F124D8EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013668   (535872) от 09.09.2016
-
-Blood Bowl 2 (2015) [Ru/Multi] (2.3.17.1/dlc) License CODEX
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение видеоигровой адаптации знаменитой настольной стратегии, объединившей американский футбол и фэнтезийную вселенную Warhammer.      Оставаясь верной основной концепции оригинальной Blood Bowl, принесшей ей огромный успех, вторая часть выводит игру на новый уровень качества. Специально разработанный графический движок позволил существенно улучшить визуальную составляющую. (   Читать дальше...   )Тип издания: LicenseРазработчик: Cyanide StudiosЖанр: Strategy (Real-time, Turn-based), Sport (Futuristic), 3DЯзык озвучки: Английский, ФранцузскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC8324FAE0392D2D9B3B106400858A1C3C61178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533356   (532310) от 10.08.2012
-
-Airlines 2 [Ru] (RePack) 2002 | RG Games\Pilotus
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стратегическая игра. Вам предстоит управлять авиакомпанией(   Читать дальше...   )Тип издания: RePackРазработчик: InterActive Vision GamesЖанр: Экономический симулятор, бизнес стратегияЯзык озвучки: -\-Язык интерфейса: Русский (7 волк)
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

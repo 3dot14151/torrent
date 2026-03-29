@@ -6,7 +6,7 @@ Ashampoo Snap 8.0.2 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811332.jpg" />
+  <img src="Z:/picture/008/save_picture_811332.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ChromePass 1.36 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811324.jpg" />
+  <img src="Z:/picture/008/save_picture_811324.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ MetaProducts Offline Explorer Enterprise 7.1.4470 SR1 Portable by punsh [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811320.jpg" />
+  <img src="Z:/picture/008/save_picture_811320.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Flash Player 28.00.137 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811312.jpg" />
+  <img src="Z:/picture/008/save_picture_811312.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VMware Workstation Pro 14.1.1 Build 7528167 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811299.jpg" />
+  <img src="Z:/picture/008/save_picture_811299.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Avidemux 2.7.5 Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811287.jpg" />
+  <img src="Z:/picture/008/save_picture_811287.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ PotPlayer 1.7.21212 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811286.jpg" />
+  <img src="Z:/picture/008/save_picture_811286.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PotPlayer 1.7.21212 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811273.jpg" />
+  <img src="Z:/picture/008/save_picture_811273.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Advanced Renamer 3.76 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811217.jpg" />
+  <img src="Z:/picture/008/save_picture_811217.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Google Chrome 41.0.2272.118 Enterprise (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811208.jpg" />
+  <img src="Z:/picture/008/save_picture_811208.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ WifiInfoView 1.97 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811189.jpg" />
+  <img src="Z:/picture/008/save_picture_811189.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4815.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811187.jpg" />
+  <img src="Z:/picture/008/save_picture_811187.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Java SE Runtime Environment 8 Update 92 RePack by D!akov [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811180.jpg" />
+  <img src="Z:/picture/008/save_picture_811180.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Autodesk AutoCAD Map 3D 2017 HF1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811176.jpg" />
+  <img src="Z:/picture/008/save_picture_811176.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ PDF-XChange Viewer Pro 2.5.317.1 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811172.jpg" />
+  <img src="Z:/picture/008/save_picture_811172.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Altium Designer 20.1.7 build 139 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811140.jpg" />
+  <img src="Z:/picture/008/save_picture_811140.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ UltraUXThemePatcher 3.1.11 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811069.jpg" />
+  <img src="Z:/picture/008/save_picture_811069.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Autodesk AutoCAD MEP 2017 HF1 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811055.jpg" />
+  <img src="Z:/picture/008/save_picture_811055.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Acronis True Image 19.0.6559 / Universal Restore 11.5.40028 / Disk Director 12.0
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811054.jpg" />
+  <img src="Z:/picture/008/save_picture_811054.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Reg Organizer 7.10 Beta [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811046.jpg" />
+  <img src="Z:/picture/008/save_picture_811046.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Google Chrome 41.0.2272.118 Stable (x86/x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811040.jpg" />
+  <img src="Z:/picture/008/save_picture_811040.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ICQ 10.0 build 12161 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810971.jpg" />
+  <img src="Z:/picture/008/save_picture_810971.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810940.jpg" />
+  <img src="Z:/picture/008/save_picture_810940.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Acronis True Image 19.0.6559 / Disk Director 12.0.3270 (x86/x64/UEFI) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810936.jpg" />
+  <img src="Z:/picture/008/save_picture_810936.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ DriverPack Solution Online 17.6.7 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810922.jpg" />
+  <img src="Z:/picture/008/save_picture_810922.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Skype 7.3.59.101 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810870.jpg" />
+  <img src="Z:/picture/008/save_picture_810870.jpg" />
 </div>
 
 

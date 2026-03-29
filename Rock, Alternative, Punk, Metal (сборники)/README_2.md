@@ -1,3 +1,148 @@
+###  Публикация: 1462588   (1020971) от 15.04.2021
+
+VA - Rock Music 2 (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вадим Спирихин - Все мосты сожжены (4:51)
+02. ДМЦ feat. Йорш - Прости Не Помню (2:48)
+03. Zayde Wolf - Back At It (3:16)
+04. Наконечный & Растич - Сердце (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 05:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75857C9F889DBDF5436CC9A5E74374548CFE7A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465899   (1018802) от 28.04.2021
+
+VA - The Alternative History: Rock Indie Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок — это путь. Это такая тропинка. Через тьму, через страх, через твои собственные ночные кошмары. Если у тебя в груди живет боль, и ты поешь, ты играешь эту музыку — ты выводишь ее в мир и выводишь себя к свету!001. Daka - Just Friends
+002. Champagne Colored Cars - Cache Memory
+003. Chris Garneau - Old Code
+004. Accidents - Cuando El Dia Llegue(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBB9E6FFB77DFC8316F6D808BA057C44ED0B633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465901   (1018681) от 28.04.2021
+
+VA - The Best Pop Rock Ballads 2000s (2021) [MP3|320 Kbps] <Pop, Rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ценитель качественной музыки? У вас в наушниках постоянно звучат мелодичные гитарные рифы? Тогда вы очутились здесь не случайно! Старое, доброе, настоящее и милое сердцу! - Это девиз музыкального сборника «The Best Pop Rock Ballads 2000s». На лонгплее, кроме всеми признанных музыкальных шедевров, звучат и малоизвестные композиции андерграундной сцены.001. Daniel Schuhmacher - Why
+002. Zella Day - The Outlaw Josey Wales
+003. Brandon Heath - Sunrise
+004. Alex Lloyd - Bring It On(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C4A16FCA22E4C43E7CAA3D1F13D11A1FE31D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466404   (1018393) от 30.04.2021
+
+VA - Beast Mode Rock (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Roach - Ricochet (3:09)
+02. The Prodigy - Firestarter (4:39)
+03. Sixx A.M. - Rise (3:53)
+04. Bush - Machinehead (4:16)(   Читать дальше...   )Жанр: RockПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F89EF3CE75FD5482E4D1C1B749DDD178629FA2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467169   (1017910) от 03.05.2021
+
+VA - Rock In The City (Vol.02) (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это крутая музыка, которую невозможно слушать тихо - ибо мощные гитарные запилы, сильный вокал и неиссякаемый драйв попросту не дадут сделать это. Если для вас слово "РОК" не пустой звук, а смысл жизни, - нам с Вами по пути!001. John Paul Keith - Keep On Keep On
+002. Wig Wam - Dirty Little Secret
+003. Møaa - Exist
+004. Superdrone - Find You(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3240C8223785A2221C5FA44BF43FC518802012A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468428   (1017064) от 08.05.2021
 
 VA - Music for You vol.16 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
@@ -6,7 +151,7 @@ VA - Music for You vol.16 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017064.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial R
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017031.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ VA - Punk Rock Bulldozer (2CD) (2021) [MP3|320 Kbps] <Punk Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016765.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ VA - Music For You vol.17 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016746.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ The Tiger Lillies - Dark Songs not About Love & Flowers (Compilation Album) (199
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015142.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Rebell Trap Music Mondays (2021) [MP3|320 Kbps] <Indie, Pop Rock, Alternati
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014036.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ VA - unknOwn bands (2013 - 2016) [MP3|192 - 320 Kbps] <Alternative, Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014033.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - The Classics Rock 'n' Roll (2021) [MP3|320 Kbps] <Rock & Roll, Rock Classic
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014005.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ VA - Musical Critic: Сборники паблика Musical Critic (2010 - 2013
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013993.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ VA - 70's Rock Power (2021) [MP3|320 Kbps] <Rock, Classic-Rock, Hard-Rock, Balla
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013968.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ VA - Soft Rock (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013473.jpg" />
 </div>
 
 
@@ -325,7 +470,7 @@ VA - The End: Apocalypse Sound (2021) [MP3|320 Kbps] <Metal, Hard Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012902.jpg" />
 </div>
 
 
@@ -354,7 +499,7 @@ VA - Rock Matrix (2021) [MP3|320 Kbps] <Rock, Alternative, Classic Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012724.jpg" />
 </div>
 
 
@@ -383,7 +528,7 @@ VA - Mass In The Catacomb (2021) [MP3|320 Kbps] <Hard Rock, Metal>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011534.jpg" />
 </div>
 
 
@@ -412,7 +557,7 @@ VA - Confessions (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010509.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ VA - Punk Rock Stars (2021) [MP3|320 Kbps] <Punk, Rock Punk>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010190.jpg" />
 </div>
 
 
@@ -470,7 +615,7 @@ VA - Rock (2021) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010142.jpg" />
 </div>
 
 
@@ -499,7 +644,7 @@ VA - The Purgatory (2021) [MP3|320 Kbps] <Metal, Hard Rock, Core>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009578.jpg" />
 </div>
 
 
@@ -528,7 +673,7 @@ VA - Rock Drive 13 (2021) от DON Music [MP3|320 Kbps] <Hard Rock, Blues Rock, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009250.jpg" />
 </div>
 
 
@@ -557,7 +702,7 @@ Joe Cocker - The Last Road (2021) 2CD, Compilation [MP3|320 Kbps] <Rock, Blues, 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009230.jpg" />
 </div>
 
 
@@ -586,7 +731,7 @@ VA - The Music Pie: Pop-Rock Indie (2CD) (2021) [MP3|320 Kbps] <Indie, Pop-Rock,
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007763.jpg" />
 </div>
 
 
@@ -600,151 +745,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:790FE77A964467DE4829940F08BCC5A227EA27F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482164   (1007722) от 07.07.2021
-
-VA - 100 Greatest Alternative 80s (2021) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Smiths - How Soon Is Now? (2008 Remaster)
-02. Joy Division - Love Will Tear Us Apart (2010 Remaster)
-03. Pixies - Monkey Gone to Heaven
-04. New Order - Blue Monday(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942E4B6A5E937898A7D7E14B6B1CA4ECD651B824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482080   (1007715) от 07.07.2021
-
-VA - Rock covers (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nirvana - The Man Who Sold The World (4:21)
-02. Frank Carter & The Rattlesnakes - Nothing Breaks Like a Heart (3:30)
-03. Jeff Beck, Johnny Depp - Isolation (5:14)
-04. Halestorm - Get Lucky (3:08)(   Читать дальше...   )Жанр: RockПродолжительность: 06:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E878C1144CBFC34531B926F4964EF9BFA6B022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482682   (1007409) от 09.07.2021
-
-VA - 100 Greatest Modern Indie Songs (2021) [MP3|320 Kbps] <Alternative & Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 1975 – The Sound (04:08)
-02. Grimes – Kill V. Maim (04:06)
-03. Foals – Mountain at My Gates (04:04)
-04. Arctic Monkeys – Do I Wanna Know? (04:32)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 06:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA402E5FC2C3D464C20A06AD548DFC7D3FC95FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483444   (1006883) от 13.07.2021
-
-VA - That Other World: Indie & Alternative Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006883.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pale Waves - Wish U Were Here
-002. The Natvral - Sylvia, The Cup Of Youth
-003. That Handsome Devil - Punch In The Face
-004. Flock Of Dimes - Hard Way(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA386C4CE0D5E38A077E339948380FFCFF4304B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484270   (1006081) от 19.07.2021
-
-VA - Rock Hits (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006081.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pearl Jam - Release (9:06)
-002. Green Day - Jesus of Suburbia (9:08)
-003. Guns N' Roses - November Rain (8:57)
-004. Green Day - Holiday Boulevard of Broken Dreams (8:13)(   Читать дальше...   )Жанр: RockПродолжительность: 25:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91D6A9964C252C7AF5EB2E638CF3F7F6D863412
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,107 @@
+###  Публикация: 1249720   (430383) от 25.09.2018
+
+Монстры на каникулах 3: Море зовёт / Hotel Transylvania 3: Summer Vacation (2018) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_430383.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Дракула вместе со своими друзьями отправляется в круиз на шикарном лайнере. Развлечения там на любой вкус: от монстробаскетбола и экзотических экскурсий, до лунных ванн. Неожиданно Дракула влюбляется в капитана корабля — загадочную и прекрасную Эрику, и его дочка Мэвис понимает, что поездка может превратиться в кошмар: ведь Эрика хранит ужасный секрет, (   Читать дальше...   )Производство: США, Columbia Pictures, Media Rights Capital, Sony Pictures AnimationЖанр: Мультфильм, Фэнтези, Комедия, Приключения, СемейныйРежиссер: Генндий ТартаковскийАктеры: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Фрэн Дрешер, Стив Бушеми, Молли Шеннон, Дэвид Спейд, Кигэн-Майкл Ки, Джим ГэффиганПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7A382222E40175D131D8D17F8E5E49ABCA29DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250092   (428070) от 26.09.2018
+
+Монстры на каникулах 3: Море зовёт / Hotel Transylvania 3: Summer Vacation (2018) WEB-DLRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_428070.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этот раз Дракула вместе со своими друзьями отправляется в круиз на шикарном лайнере. Развлечения там на любой вкус: от монстробаскетбола и экзотических экскурсий, до лунных ванн. Неожиданно Дракула влюбляется в капитана корабля — загадочную и прекрасную Эрику, и его дочка Мэвис понимает, что поездка может превратиться в кошмар: ведь Эрика хранит ужасный секрет, (   Читать дальше...   )Производство: США / Columbia Pictures, Media Rights Capital, Sony Pictures AnimationЖанр: Фентези, Комедия, ПриключенияРежиссер: Генндий ТартаковскийАктеры: Адам Сэндлер, Энди Сэмберг, Селена Гомес, Кевин Джеймс, Фрэн Дрешер, Стив Бушеми, Молли Шеннон, Дэвид Спейд, Кигэн-Майкл Ки, Джим ГэффиганПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Украинские (Full), Английские (Full)Продолжительность: 01:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF89206B8AA790BA4EA0F00C3EE5B0DD6745F7AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555944   (427989) от 04.10.2012
+
+Обитель зла: Проклятие / Biohazard: Damnation (2012) ВDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение популярной компьютерной анимации «Обитель зла: Вырождение». Леон Кеннеди отправляется в Восточную Европу на борьбу с монстрами — порождениями корпорации Амбрела. Больше монстров, больше пушек, больше экшена.Производство: Япония | Digital Frontier, Sony Pictures Entertainment, Capcom CompanyЖанр: Мультфильм, Ужасы, Фантастика, Боевик, ТриллерРежиссер: Макото КамияПерсонажи: Робин Сакс, Кортни Тейлор, Кэролин Лоуренс, Мэттью Мерсер, Уэнди Ли, Дейв Уиттенберг, Салли Саффиоти, Вэл Тассо, Элисон КортПеревод: Многоголосый закадровый, профессиональныйСубтитры: Русский, Украинский, АнглийскийПродолжительность: 01:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F976FE7B985A3BBD91E3C5CE0CEEF1780CB967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 830356   (427772) от 11.10.2014
+
+7-ой гном / Der 7bte Zwerg (2014) DVDRip
+
+>>След.
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427772.jpg" />
+</div>
+
+
+###  Подробнее
+
+В замке Фантабулараса большой переполох: принцесса Роза празднует свой 18-й день рождения. Приняты самые строгие меры безопасности, ведь злобная Колдунья Делламорта, которая прокляла Розу на ее крестинах, не позволит проклятию раствориться в воздухе. Семеро гномов — Умник, Рыжик, Ворчун, Соня, Силач, Бодряк и Бобо — ничего не знают об этом, когда отправляются на (   Читать дальше...   )Производство: Германия / Animationsfabrik Hamburg, Erfttal FilmЖанр: ПриключенияРежиссер: Борис АльиновичАктеры: Борис Альинович, Элвин Камерон, Нина Хаген, Норберт Хейстеркамп, Мирко Нончев, Ана Сани, Ральф Шмитц, Мартин Шнайдер, Отто Ваалкес, Густав-Петер ВёлерПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE390BA9CD156745FC5799F3130397FC833B2E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 708950   (427664) от 09.10.2013
 
 Трансформеры. Прайм Звериные Охотники: Восстание Предаконов / Transformers. Prime Beast Hunters: Predacons Rising (2013) HDRip
@@ -6,7 +110,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427664.jpg" />
+  <img src="Z:/picture/008/save_picture_427664.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427265.jpg" />
+  <img src="Z:/picture/008/save_picture_427265.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427260.jpg" />
+  <img src="Z:/picture/008/save_picture_427260.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426062.jpg" />
+  <img src="Z:/picture/008/save_picture_426062.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424934.jpg" />
+  <img src="Z:/picture/008/save_picture_424934.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424766.jpg" />
+  <img src="Z:/picture/008/save_picture_424766.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424673.jpg" />
+  <img src="Z:/picture/008/save_picture_424673.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424315.jpg" />
+  <img src="Z:/picture/008/save_picture_424315.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423406.jpg" />
+  <img src="Z:/picture/008/save_picture_423406.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423145.jpg" />
+  <img src="Z:/picture/008/save_picture_423145.jpg" />
 </div>
 
 
@@ -270,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422406.jpg" />
+  <img src="Z:/picture/008/save_picture_422406.jpg" />
 </div>
 
 
@@ -296,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422251.jpg" />
+  <img src="Z:/picture/008/save_picture_422251.jpg" />
 </div>
 
 
@@ -322,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418208.jpg" />
+  <img src="Z:/picture/008/save_picture_418208.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418099.jpg" />
+  <img src="Z:/picture/008/save_picture_418099.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416992.jpg" />
+  <img src="Z:/picture/008/save_picture_416992.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_416701.jpg" />
+  <img src="Z:/picture/005/save_picture_416701.jpg" />
 </div>
 
 
@@ -427,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415923.jpg" />
+  <img src="Z:/picture/008/save_picture_415923.jpg" />
 </div>
 
 
@@ -453,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415825.jpg" />
+  <img src="Z:/picture/008/save_picture_415825.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_414787.jpg" />
+  <img src="Z:/picture/005/save_picture_414787.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_414609.jpg" />
+  <img src="Z:/picture/005/save_picture_414609.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413641.jpg" />
+  <img src="Z:/picture/008/save_picture_413641.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413592.jpg" />
+  <img src="Z:/picture/008/save_picture_413592.jpg" />
 </div>
 
 
@@ -568,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F84154A4FDF976C159B9F452D7E0512E3498BD29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503282   (413320) от 01.10.2020
-
-Преследование / The Chase (2012) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413320.jpg" />
-</div>
-
-
-###  Подробнее
-
-На первый взгляд несложная работа для наемного убийцы, но дело пошло не так как ожидалось..Производство: ЧилиЖанр: Рисованная анимация, короткометражный, не детскийРежиссер: Томас ВергараПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F356C66F886702A14717FC2A0750B44BF927CEA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711273   (413245) от 15.10.2013
-
-Спасти Землю / Echo Planet (2012) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой американский мальчик, Сэмуэл Джонсон младший, вступил в бойскауты и пропал во время похода. Правда, он сын президента, так что он не может пропасть просто так — и обязательно найдет выход. Сэм провалился сквозь землю и оказался на противоположном конце света- в непроходимых джунглях. Именно там его ожидает страшное известие — из-за того, что люди перестали (   Читать дальше...   )Производство: Таиланд / Golden Network AsiaЖанр: Детский, ПриключенияРежиссер: Компин КемгумнирдАктеры: Ноппан Чантасорн, Атхипич Чутиваткаджорнчай, Конгдей Джатуранрасаме, Тходсапол Сирививат, Нуэнгтхида СопхонПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7587E337F189D98AA1FC009E299368E7AD36267F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947520   (413169) от 19.10.2015
-
-Бэтмен встречает Космического Призрака / Batman Meets Space Ghost (2011) DVDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражная спин-офф лента, где Бэтмен и Космический Призрак сражаются с Королём чудовищ.Производство: Аlan Burnett & Paul Dini & Steven Melching (Великобритания/США)Жанр: Короткометражный, ПриключенияРежиссер: Бен ДжонсПерсонажи: Бэтмен, Космический Призрак, Джэ, Джэйс, обезьянка Блип, Король чудовищ и его монстрыПеревод: Одноголосый закадровый, авторскийОзвучка / Автор перевода: Трамвай фильмЯзык субтитров: Русский (только комментарий к видео)Продолжительность: 00:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF423D172672987BCAF677DCBB06A1EABBDE553E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948200   (413159) от 19.10.2015
-
-Головоломка / Inside Out (2015) HDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Райли — обычная 11-летняя школьница, и, как у каждого из нас, ее поведение определяют пять базовых эмоций: Радость, Печаль, Страх, Гнев и Брезгливость. Эмоции живут в сознании девочки и каждый день помогают ей справляться с проблемами, руководя всеми ее поступками. До поры до времени эмоции живут дружно, но вдруг оказывается, что Райли и ее родителям предстоит переезд (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: мультфильм, семейный, комедияРежиссер: Пит Доктер, Роналдо Дель КарменПерсонажи: Эми Полер, Филлис Смит, Ричард Кайнд, Билл Хейдер, Льюис Блэк, Минди Кейлинг, Кейтлин Диас, Дайан Лэйн, Кайл МакЛоклен, Пола Паундстон, Бобби Мойнахан, Паула Пелл, Дэйв Гольц, Фрэнк Оз, Джош Кули, Фли, Джон Ратценбергер, Карлос Аласраки, Питер Сэгал, Рашида ДжонсПеревод: Профессиональный (полное дублирование) (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FD7D143AB86EE9B1F5CD65C4FDC9C586D429D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

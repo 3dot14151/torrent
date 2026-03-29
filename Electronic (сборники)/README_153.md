@@ -1,3 +1,73 @@
+###  Публикация: 568418   (390457) от 05.11.2012
+
+VA - Big Room Amsterdam (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_390457.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cenk Basaran - The Finger (Original Mix) (6:00)
+2. Facade and Holliday - The Envy Theme (Matt Holliday's Prog Ware House Remix) (6:54)
+3. Somna - Afterglow (Original Mix) (8:37)
+4. Mosahar - Floor On Fire (Original Mix) (6:59)
+5. Kearney - Exactly (Giuseppe Ottaviani Mix) (7:43)
+6. Katy Rutkovski - Hidden Dawn (Original Mix) (6:03)
+7. Michael Dow - Ursa Minor (Original Mix) (8:45)
+8. Paul Denton - Monday Club (Original Mix) (6:48)
+9. Gary Proud - Apollo's Children (Original Mix) (7:25)
+10. Melinda Gareh - Supernal (Luke Terry Remix) (8:45)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C77A2D0DB3B99328162F8A70E7059CC8DB15F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570594   (390397) от 05.11.2012
+
+VA - Dub-Pack - Week 4 (2012) [MP3|320 кб/с]<Dub-Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_390397.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 4 Strings – Take Me Away
+2. Alex Clare – Too Close (Distance Remix)
+3. Black Sun Empire – Hypersun
+4. Booty Luv – Say It (Nero Remix)
+5. Borgore – Birthday And The Black November
+6. Chase & Status feat. Takura – Streetlife
+7. Clint Mansell – Requiem For A Dream (Chrispy Remix)
+8. Cottonmouth – Moving On
+9. Dysphemic – Hypnosis
+10. Foreign Beggars feat. Noisia  – No Holds Barred (Excision Remix)(   Читать дальше...   )Жанр: Dub-StepПродолжительность: 02:08:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0DC5D54479FB99B5C1FEC379B3DBC7B65D27A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570483   (390396) от 05.11.2012
 
 VA - Dub-Pack - Week 2 (2012) [MP3|320 кб/с]<Dub-Step>
@@ -6,7 +76,7 @@ VA - Dub-Pack - Week 2 (2012) [MP3|320 кб/с]<Dub-Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390396.jpg" />
+  <img src="Z:/picture/008/save_picture_390396.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ VA - Dub-Pack - Week 6 (2012) [MP3|320 кб/с]<Dub-Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390392.jpg" />
+  <img src="Z:/picture/008/save_picture_390392.jpg" />
 </div>
 
 
@@ -76,7 +146,7 @@ VA - Dub-Pack - Week 5 (2012) [MP3|320 кб/с]<Dub-Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390381.jpg" />
+  <img src="Z:/picture/008/save_picture_390381.jpg" />
 </div>
 
 
@@ -111,7 +181,7 @@ VA - Dub-Pack - Week 3 (2012) [MP3|320 кб/с]<Dub-Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390340.jpg" />
+  <img src="Z:/picture/005/save_picture_390340.jpg" />
 </div>
 
 
@@ -146,7 +216,7 @@ VA - Dub-Pack - Week 1 (2012) [MP3|320 кб/с]<Dub-Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390334.jpg" />
+  <img src="Z:/picture/008/save_picture_390334.jpg" />
 </div>
 
 
@@ -181,7 +251,7 @@ VA - Best of In Da Club Vol.19 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Up
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390333.jpg" />
+  <img src="Z:/picture/008/save_picture_390333.jpg" />
 </div>
 
 
@@ -216,7 +286,7 @@ VA - In Da Club - Radio Waves Volume 1-4 (Summer 2012) [MP3|320 кб/с]<Trance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390268.jpg" />
+  <img src="Z:/picture/008/save_picture_390268.jpg" />
 </div>
 
 
@@ -251,7 +321,7 @@ VA - Empire Records - Blue Line 8 (2017) [MP3|320 Kbps] <Dance, Club, Electro Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389775.jpg" />
+  <img src="Z:/picture/008/save_picture_389775.jpg" />
 </div>
 
 
@@ -280,7 +350,7 @@ VA - Empire Records - House Clinic 2 (2017) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389634.jpg" />
+  <img src="Z:/picture/008/save_picture_389634.jpg" />
 </div>
 
 
@@ -309,7 +379,7 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #100 (2012) [MP3|320 кб/с]<Voc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389414.jpg" />
+  <img src="Z:/picture/008/save_picture_389414.jpg" />
 </div>
 
 
@@ -344,7 +414,7 @@ VA - Private Lounge - Autumn Session Vol.3 (2017) [MP3|320 Kbps] <Lounge , Deep 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388932.jpg" />
+  <img src="Z:/picture/008/save_picture_388932.jpg" />
 </div>
 
 
@@ -373,7 +443,7 @@ VA - Dub-Pack - Week 7 (2012) [MP3|320 кб/с]<Dub-Step>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388491.jpg" />
+  <img src="Z:/picture/008/save_picture_388491.jpg" />
 </div>
 
 
@@ -408,7 +478,7 @@ VA - Record Super Chart 556 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387903.jpg" />
+  <img src="Z:/picture/008/save_picture_387903.jpg" />
 </div>
 
 
@@ -437,7 +507,7 @@ VA - Beatport Trance Pack  (29.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Voca
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387830.jpg" />
+  <img src="Z:/picture/008/save_picture_387830.jpg" />
 </div>
 
 
@@ -466,7 +536,7 @@ VA - Turbo mix №8 (2016) [MP3|319-320 Kbps] <Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387818.jpg" />
+  <img src="Z:/picture/008/save_picture_387818.jpg" />
 </div>
 
 
@@ -495,7 +565,7 @@ VA - In Colours (9CD) (2010-2012) [MP3|320 кб/с]<Chillout, Lounge, Ambient, D
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387739.jpg" />
+  <img src="Z:/picture/008/save_picture_387739.jpg" />
 </div>
 
 
@@ -530,7 +600,7 @@ VA - Progressive House Vol.6 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progres
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387541.jpg" />
+  <img src="Z:/picture/008/save_picture_387541.jpg" />
 </div>
 
 
@@ -559,7 +629,7 @@ VA - Future Garage Vol.41 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Downtempo,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387364.jpg" />
+  <img src="Z:/picture/008/save_picture_387364.jpg" />
 </div>
 
 
@@ -588,7 +658,7 @@ VA - Beatport Bassline: Sound Pack # 185 (2020) [MP3|320 Kbps] <D&B, Bassline, B
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385620.jpg" />
+  <img src="Z:/picture/008/save_picture_385620.jpg" />
 </div>
 
 
@@ -617,7 +687,7 @@ Spacekraft - The Legend Of The Samurai (2017) [MP3|~210 Kbps - 320 Kbps] <Synth 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385550.jpg" />
+  <img src="Z:/picture/008/save_picture_385550.jpg" />
 </div>
 
 
@@ -646,7 +716,7 @@ VA - Hyperspace: Synth Space Electronic (2020) [MP3|320 Kbps] <Synthspace, Elect
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385516.jpg" />
+  <img src="Z:/picture/008/save_picture_385516.jpg" />
 </div>
 
 
@@ -675,7 +745,7 @@ VA - Trance Collection Vol.72 (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Tra
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385339.jpg" />
+  <img src="Z:/picture/008/save_picture_385339.jpg" />
 </div>
 
 
@@ -704,7 +774,7 @@ VA - Beatport Trance Pack  (30.10) (2016) [MP3|320 Kbps] <Trance, Melodic, Emoti
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385222.jpg" />
+  <img src="Z:/picture/008/save_picture_385222.jpg" />
 </div>
 
 
@@ -733,7 +803,7 @@ VA - Club Sounds: Futuristic Electro House (2019) [MP3|320 Kbps] <Future House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385213.jpg" />
+  <img src="Z:/picture/008/save_picture_385213.jpg" />
 </div>
 
 
@@ -747,64 +817,6 @@ VA - Club Sounds: Futuristic Electro House (2019) [MP3|320 Kbps] <Future House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7F1BD5403879FA2DC23536A7007A845B4DA46C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326413   (385202) от 20.09.2019
-
-VA - Autumn Mood: Positive Session (2019) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385202.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ricardo Piedra - Enceladus (Teklix Remix)
-002. Miles Diego - Good Morning Budapest
-003. Mr. Wilson - Annavi (Chris Newville Remix)
-004. Mental Drops - Genesis(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 13:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DA83CBC745344615D715069A0A1A2E742BAAD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414266   (384742) от 08.10.2020
-
-VA - Top 150 Deep House Tracks Vol.4 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384742.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Evanescence - Bring Me To Life (A-Mase Radio Mix) 3:54
-002. Pushkarev - Broken Love (Fly & Sasha Fashion Remix) 5:09
-003. A. Rassevich feat. Susie Johnson - The Dice (Mike Drozdov & VetLove Remix) 5:52
-004. GeoM - Don't Stop (Housenick Remix) 5:42(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive House, Vocal HouseПродолжительность: 13:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2670EA369DEDC28F6236F8C4E3794A3726FA1CE3
 ```
 
 https://mybot314.ru/tekegram_catalog/

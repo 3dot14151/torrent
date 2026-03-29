@@ -1,3 +1,61 @@
+###  Публикация: 1510032   (792140) от 15.11.2021
+
+Peter Pearson - Hearts and Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_792140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Edge Of A Dream (5:36)
+02. Coup De Coeur (Feat. Tim Gelo) (5:39)
+03. A Thousand Petals (6:24)
+04. Hearts And Flowers (5:36)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B03D3F2E1BCA0F5145E852746ED02B9CF19F4C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510633   (790762) от 17.11.2021
+
+VA - Beautiful Sunday Morning: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_790762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandra Hampton Merge Of Equals - Beautiful (4:25)
+02. Marga Sol - Beautiful & Bitter (Original Mix) (4:28)
+03. Brass Alessio Ventura Dario Benedetti - Ordinary World (Cover) (6:12)
+04. Simply Chill - Coming Home (Original Mix) (3:38)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E58FE59B6E7BE0B32716CC263749749190A1DAAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203061   (789083) от 31.01.2018
 
 Rameses B - Spacewalk (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Drum & Bass, Ambient>
@@ -6,7 +64,7 @@ Rameses B - Spacewalk (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Drum & Bas
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789083.jpg" />
+  <img src="Z:/picture/008/save_picture_789083.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tor - Blue Book (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Trip Hop, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789030.jpg" />
+  <img src="Z:/picture/008/save_picture_789030.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Blank & Jones - Milchbar: Seaside Season 9 (2017) [FLAC|Lossless|WEB-DL|tracks] 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786106.jpg" />
+  <img src="Z:/picture/008/save_picture_786106.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Faro - Shape Of Sense (2009) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785790.jpg" />
+  <img src="Z:/picture/008/save_picture_785790.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Faro - Dreaming In Orange (2010) Reissue, 2017 [FLAC|Lossless|WEB-DL|tracks] <Ch
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785786.jpg" />
+  <img src="Z:/picture/008/save_picture_785786.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Vintage Reggae Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy-listening,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784769.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Psybos - Discography 5 Releases (2018-2020) Psybos Incorporated [FLAC|Lossless|W
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784206.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Blank & Jones - Morning Of The Earth | My Island (2018) EP [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783491.jpg" />
+  <img src="Z:/picture/008/save_picture_783491.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Sunset Surfing Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|trac
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783361.jpg" />
+  <img src="Z:/picture/008/save_picture_783361.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - On the Beach Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783358.jpg" />
+  <img src="Z:/picture/008/save_picture_783358.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Sea Cruising Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783065.jpg" />
+  <img src="Z:/picture/008/save_picture_783065.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Smolik - Smolik3 (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Nu-Jazz, Chill
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779140.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Urban Love - Renditions, Pt. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Balearic, D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778874.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Moby - Everything Was Beautiful And Nothing Hurt (2018) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778817.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Moby - Everything Was Beautiful And Nothing Hurt (2018) [FLAC|Lossless|tracks + 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778509.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ zerO One - Signals (2015) [FLAC|Lossless|tracks] <Chillout, Electronic, Downtemp
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776484.jpg" />
+  <img src="Z:/picture/008/save_picture_776484.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Onuka - Onuka (2014) [FLAC|Lossless|image + .cue] <Electronic, Folk, Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776012.jpg" />
+  <img src="Z:/picture/008/save_picture_776012.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Abstract Vibes 2 - More Vibes (1997) [FLAC|Lossless|tracks + .cue] <Downtem
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775165.jpg" />
+  <img src="Z:/picture/008/save_picture_775165.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Tea Leaves (2019) Compiled by DJ V ++ [FLAC|Lossless|WEB-DL|tracks] <Downte
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774315.jpg" />
+  <img src="Z:/picture/008/save_picture_774315.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ V.A. - Best Of Del Mar Vol.9: Beautiful Chill Sound (2020) [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766903.jpg" />
+  <img src="Z:/picture/008/save_picture_766903.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Michael E - I Had the Strangest Dream (2020) [FLAC|Lossless|WEB-DL|tracks] <Bale
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766302.jpg" />
+  <img src="Z:/picture/008/save_picture_766302.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - The Elektrolux Decade - 10 Years Elektrolux (2005) [FLAC|Lossless|tracks+.c
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766121.jpg" />
+  <img src="Z:/picture/008/save_picture_766121.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Kid Koala - Music to Draw To: Io (2019) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766116.jpg" />
+  <img src="Z:/picture/008/save_picture_766116.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Weber & Weber - Music Box (2019) Lemongrassmusic [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766043.jpg" />
+  <img src="Z:/picture/008/save_picture_766043.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Weber & Weber - Music Box (2019) Lemongrassmusic [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D6B9C898CA125DDCAEFAABCFFDA4447303D4E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394161   (765433) от 03.07.2020
-
-VA - Sunny Day Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Bossalova (Original Mix)
-02. Schwarz, Funk - Fallen (Bossa Mix)
-03. Chillson, Marc Hartman - On This Day
-04. St Project - Bossaporita(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284BB253120095C2F566F169D8973CD470B881AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521920   (763452) от 04.01.2022
-
-VA - My Lounge Room (Chillout Your Mind) (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Tender Moments (Original Mix) (4:49)
-02. Michael e - Thrilling (Original Mix) (5:52)
-03. Marga Sol, Digby Jones - What I Need (Instrumental Mix) (4:38)
-04. Living Room - Don't Cry Baby (2:40)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6CEBFC2A52C61EC534D0FA6403D1B66A9F1582
 ```
 
 https://mybot314.ru/tekegram_catalog/

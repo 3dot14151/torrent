@@ -6,7 +6,7 @@ Peter Jablonski - Chopin: Complete Mazurkas, Vol.1 (2022) [FLAC|Lossless|image +
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159618.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Serj Tankian - Invocations (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Classical,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158915.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158915.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Andre Rieu And His Johann Strauss Orchestra - The Christmas I Love (2011) [FLAC|
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155097.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Corelli - The Complete Works
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154844.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine L
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154315.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154136.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Violina Petrychenko - Winter Whispers: Ukrainian Piano Tales (2023) [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152890.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ The Piano Guys - Live! (2015) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152508.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Katherine Jenkins - This Is Christmas (2012) [FLAC|Lossless|tracks + .cue] <Clas
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152443.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151422.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151396.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ VA - Christmas With The Stars And The Royal Philharmonic Orchestra (2019) Jewelb
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150817.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, М
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147865.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Winter Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146960.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Nikolai Baskov - Christmas Songs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146896.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Maria Pia De Vito, Francois Couturier, Anja Lechner, Michele Rabbia - Il Pergole
 >>Классика (HD Audio)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143847.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ Bond - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover,
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143787.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Schubert: Symphony no.8 'Unfinished' - Schumann: Symphony no.4 (Karl Bohm & Orch
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143438.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Andre Rieu - Happy Together (2021) [MP3|320 Kbps] <Classical>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143259.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossle
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143117.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ The Baroque Christmas Album - Various Artists (2005) [APE|Lossless] <Classical, 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143100.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Andreas Scholl - Kantate: German Baroque Cantatas (1998) Harmonia Mundi France [
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142484.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Karl Jenkins - Symphonic Adiemus (2017) [FLAC|Lossless|tracks + .cue] <Classical
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137957.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ bond - Play (2011) [FLAC|Lossless]<Classical Crossover>
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137187.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ Mozart: Requiem, K. 626 - Say: Mozart & Mevlana, Op. 110 by Fazil Say, Fatma Sai
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136858.jpg" />
 </div>
 
 
@@ -724,7 +724,7 @@ PALLADIUM Electric Band - Taboo (2012) [MP3|256 Kbps] <Instrumental, Classical C
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136805.jpg" />
 </div>
 
 

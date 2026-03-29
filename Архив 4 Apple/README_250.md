@@ -6,7 +6,7 @@ Parallels Desktop for Mac Business Edition 14.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731465.jpg" />
+  <img src="Z:/picture/008/save_picture_731465.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Nice Clipboard - a cloud synced clipboard manager 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731146.jpg" />
+  <img src="Z:/picture/008/save_picture_731146.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Quiver: The Programmer's Notebook 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731134.jpg" />
+  <img src="Z:/picture/008/save_picture_731134.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Sublime Text 3 Dev (3130) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731132.jpg" />
+  <img src="Z:/picture/008/save_picture_731132.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Direct Message for Instagram Pro 4.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731127.jpg" />
+  <img src="Z:/picture/008/save_picture_731127.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ ProFind 1.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731065.jpg" />
+  <img src="Z:/picture/008/save_picture_731065.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ FontXChange 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731058.jpg" />
+  <img src="Z:/picture/008/save_picture_731058.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Mountain Duck 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731057.jpg" />
+  <img src="Z:/picture/008/save_picture_731057.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ Scrutiny 8 v8.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731056.jpg" />
+  <img src="Z:/picture/008/save_picture_731056.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ Money Pro 2.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731040.jpg" />
+  <img src="Z:/picture/008/save_picture_731040.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Mirror for Philips TV 2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731023.jpg" />
+  <img src="Z:/picture/008/save_picture_731023.jpg" />
 </div>
 
 
@@ -314,7 +314,7 @@ Xojo IDE RAD 17.1.0.36429 (2017r1) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730853.jpg" />
+  <img src="Z:/picture/008/save_picture_730853.jpg" />
 </div>
 
 
@@ -342,7 +342,7 @@ Super Vectorizer 1.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730799.jpg" />
+  <img src="Z:/picture/008/save_picture_730799.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Sublime Text 3 Dev (3131) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730738.jpg" />
+  <img src="Z:/picture/008/save_picture_730738.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Bartender 3 v3.0.55b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730465.jpg" />
+  <img src="Z:/picture/008/save_picture_730465.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Parallels Desktop for Mac Business Edition 12.2.0-41591 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730249.jpg" />
+  <img src="Z:/picture/008/save_picture_730249.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ PullTube v0.9.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730102.jpg" />
+  <img src="Z:/picture/008/save_picture_730102.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ RapidWeaver 8 v8.1.5 (20654)[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730099.jpg" />
+  <img src="Z:/picture/008/save_picture_730099.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Studies 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730096.jpg" />
+  <img src="Z:/picture/008/save_picture_730096.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Vellum 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730088.jpg" />
+  <img src="Z:/picture/008/save_picture_730088.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ EverWeb 2.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730059.jpg" />
+  <img src="Z:/picture/008/save_picture_730059.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Algoriddim djay Pro 2 (Complete FX Pack) 2.0.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730058.jpg" />
+  <img src="Z:/picture/008/save_picture_730058.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Aiseesoft Mac Video Converter Ultimate 9.2.22 (81348) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730055.jpg" />
+  <img src="Z:/picture/008/save_picture_730055.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ PullTube 1.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730051.jpg" />
+  <img src="Z:/picture/008/save_picture_730051.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Isotropix Clarisse iFX 4.0b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730013.jpg" />
+  <img src="Z:/picture/008/save_picture_730013.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Movavi PDF Editor 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730006.jpg" />
+  <img src="Z:/picture/008/save_picture_730006.jpg" />
 </div>
 
 

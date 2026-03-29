@@ -1,3 +1,61 @@
+###  Публикация: 1378282   (241542) от 25.04.2020
+
+VA - Drum Night DJ Set (2020) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241542.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. B-Plexx - Remedy
+002. Mako - Offline
+003. Trn18 - Ufo (Original Mix)
+004. Scocho - Lost Forever(   Читать дальше...   )Жанр: Drum And Bass, Electro BassПродолжительность: 11:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8FA192FDC62478C9BEA0D0A3A29E867416C38B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625186   (241418) от 09.04.2023
+
+VA - Record Super Chart 08.04.2023 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_241418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiesto - Lay Low (2:33)
+02. Oliver Tree feat. Robin Schulz - Miss You (3:26)
+03. Miley Cyrus - Flowers (3:20)
+04. The Future X - This Kind Of Love (2:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C190B90217B5EBBB504E24D877FD33AF16D332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119792   (241340) от 29.03.2017
 
 VA - Music For Everyone - Club House Vol.5 (2017) [MP3|320 Kbps] <House>
@@ -6,7 +64,7 @@ VA - Music For Everyone - Club House Vol.5 (2017) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241340.jpg" />
+  <img src="Z:/picture/004/save_picture_241340.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Best of Deep-House. Volume 3. The Strong Rhythm [Compiled by Firstlast] (20
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241162.jpg" />
+  <img src="Z:/picture/004/save_picture_241162.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Dynamite Disco (2023) [MP3|320 Kbps] <Disco, Instrumental>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240899.jpg" />
+  <img src="Z:/picture/004/save_picture_240899.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Big Room 2 (2023) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240381.jpg" />
+  <img src="Z:/picture/004/save_picture_240381.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - TOP Non-Stop 2010-2019 - Progressive House (2022) [MP3|192-320 Kbps] <Progr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239897.jpg" />
+  <img src="Z:/picture/004/save_picture_239897.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Favorite Techno (2021) [MP3|320 Kbps] <Techno, Minimal, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239430.jpg" />
+  <img src="Z:/picture/004/save_picture_239430.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Exclusives HGM: DnB Collection (2021) [MP3|320 Kbps] <Drum & Bass, Bassline
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239330.jpg" />
+  <img src="Z:/picture/004/save_picture_239330.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Beatport Electro House: Sound Pack #295 (2021) [MP3|320 Kbps] <Club, Dance,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239214.jpg" />
+  <img src="Z:/picture/004/save_picture_239214.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Beatport Funky House: Sound Pack #296 (2021) [MP3|320 Kbps] <Funky, Disco H
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239200.jpg" />
+  <img src="Z:/picture/004/save_picture_239200.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - TOP Non-Stop 2000-2009 - Dance House Music. Part 3 (2023) [MP3|192-320 Kbps
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239193.jpg" />
+  <img src="Z:/picture/005/save_picture_239193.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Galactic Beats Future: House Mixtape (2021) [MP3|320 Kbps] <House, Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239142.jpg" />
+  <img src="Z:/picture/004/save_picture_239142.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Stive Morgan - Compilation (2022) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238914.jpg" />
+  <img src="Z:/picture/005/save_picture_238914.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Analog '82 - To A Time Of Memories (2023) [MP3|320 Kbps] <Synthwave, Retrowave>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238379.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Beatport Electro House: Sound Pack #238 (2021) [MP3|320 Kbps] <House, Deep 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237848.jpg" />
+  <img src="Z:/picture/004/save_picture_237848.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Abstract Electronic: Experimental Synth Pack (2021) [MP3|320 Kbps] <Synthwa
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237841.jpg" />
+  <img src="Z:/picture/004/save_picture_237841.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - 60 minutes. Old School Dance Music vol.18 (mixed by Dj V) (2023) [MP3|320 K
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237840.jpg" />
+  <img src="Z:/picture/004/save_picture_237840.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - EDM Banger Tools (2021) [MP3|320 Kbps] <Techno, House, Electro, EDM>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237698.jpg" />
+  <img src="Z:/picture/004/save_picture_237698.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Deep House: Soulful Melodic Sound (2021) [MP3|320 Kbps] <Deep House, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237539.jpg" />
+  <img src="Z:/picture/004/save_picture_237539.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Dancefloor Hits 2023 (Extended Mix) (2023) [MP3|320 Kbps] <Dance, Club, Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237436.jpg" />
+  <img src="Z:/picture/005/save_picture_237436.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Beatport Deep House: Sound Pack #252 (2021) [MP3|320 Kbps] <Deep House, Ele
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237046.jpg" />
+  <img src="Z:/picture/005/save_picture_237046.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Summer Melodies Vol. 9 (2022) [MP3|320 Kbps] <Electronic, House, Progressiv
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236925.jpg" />
+  <img src="Z:/picture/005/save_picture_236925.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - i12 Inch Mash Up & Remixes (Other) (2023) [MP3|320 Kbps] <Dubstep, Groove, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236853.jpg" />
+  <img src="Z:/picture/005/save_picture_236853.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Trap (2023) [MP3|320 Kbps] <Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235844.jpg" />
+  <img src="Z:/picture/004/save_picture_235844.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Record Super Chart 27.03.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235743.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Record Super Chart 27.03.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A8D1305B9DF3CA7EE627617A298A4E6484E732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530757   (235280) от 12.02.2022
-
-VA - Moon Light: Exotic Psy Trance Mystery (2022) [MP3|320 Kbps] <Psychedelic Trance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка психоделической подборки "Moon Light" рисует в воображении атмосферу мистического мира старых северных богов, древних культурных традиций, курганов и скалистых лесов, застывших на морозе. Этот набор треков основан на богатых и разнообразных традициях народной музыки, уходящих корнями в глубину нашего прошлого.001. Deadhead - Time Is The Answer
-002. Zenquence - Meditation
-003. Solitary Shell - Sky Fracture
-004. The Darkface - Vetala(   Читать дальше...   )Жанр: Psychedelic Trance, ElectroПродолжительность: 12:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34FC7D9C00B7DCDA03E57B86E729C5C6F5A5F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551908   (233959) от 21.05.2022
-
-VA - Synthesis (2022) [MP3|320 Kbps] <Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полное погружение в интенсивные потоки синтетического искусства Вам гарантирует музыка сборника под названием "Synthesis". Слушайте с открытой душой и будьте готовы познать кульминацию электронного искусства и глубину открытого космоса.001. Xander Perera - New World
-002. Meetsysteem - Het Zwarte Gat
-003. Rostislav Melangeur - El'dorado
-004. Kuriose Naturale - One(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 09:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F1B09862630D8A78ADFDBC646846FB8919DFD13
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,280 +1,25 @@
-###  Публикация: 895539   (591244) от 07.07.2015
+###  Публикация: 1549559   (592964) от 08.05.2022
 
-Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip (сезон 2, серии 1-10 из 10) LostFilm
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: ужасы, драмаРежиссер: Х.А. Байона, Дирбла Уолш, Сэм МендесАктеры: Тимоти Далтон, Ева Грин, Джош Хартнетт, Рори Киннер, Хелен МакКрори, Билли Пайпер, Гарри Тредэвэй, Рив Карни, Алан Армстронг, Рик Берн и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599E4F202686A39D16D492D3D7DCE3737D224868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 890524   (591243) от 07.07.2015
-
-Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip (сезон 2, серии 1-10 из 10) BaibaKo
-
->>Зарубежные сериалы
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: ужасы, драмаРежиссер: Х.А. Байона, Дирбла Уолш, Сэм МендесАктеры: Тимоти Далтон, Ева Грин, Джош Хартнетт, Рори Киннер, Хелен МакКрори, Билли Пайпер, Гарри Тредэвэй, Рив Карни, Алан Армстронг, Рик Берн и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Юлия Котурбаш, Anna_Smile, Олекса Мельник и Акмал ГурезовПродолжительность: ~00:54:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBE8FC23144AB90D18D99D1317779DB3A27CEF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550718   (591242) от 13.05.2022
-
-Bare King - Beggars (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardcore, Deathcore>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - No Forgiveness (Grief)
-02 - Degradation
-03 - Annotations of Hell (Pain)
-04 - Defeatist(   Читать дальше...   )Жанр: Metalcore, Hardcore, DeathcoreПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550783   (591241) от 13.05.2022
-
-Fátima (Fatima) - Fossil (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Mongolo Bill [00:03:59]
-02 Arch-Vile [00:04:25]
-03 Turks Fruit [00:06:09]
-04 King of the Rats [00:05:43](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687E90859247B4FE330FDE0B48DEEEB3A1E3A00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551021   (591240) от 13.05.2022
-
-Cancerslug - Full Term Abortions (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cum Rag (00:01:38)
-02 - When You Lie (00:01:59)
-03 - kitchen blues (00:02:04)
-04 - waiting to die (00:01:41)(   Читать дальше...   )Жанр: Punk Rock, Horror PunkПродолжительность: 00:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C173FDF6EA44493F07EE120E03363C1FDFCE4DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550682   (591239) от 13.05.2022
-
-Ron Miles - Rainbow Sign (2020) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Those Who Dream [15:56]
-02. Queen of the South [4:20]
-03. Average [11:12]
-04. Rainbow Sign [7:09](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCBFD8D66FF57A7DF68623D18E6A7F9F6246070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550977   (591238) от 13.05.2022
-
-Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinkali - 5:04
-02. Afror - 8:42
-03. Unsleepers - 5:06
-04. Buran  - 8:55(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AEAAFB6530623EF609969B00FB0D32E416F11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550910   (591237) от 13.05.2022
-
-Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Meddler [8:31]
-02. Ode to Ray [6:10]
-03. Whims of the Bluebird [10:09]
-04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550793   (591236) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born in '82 - Platov Airport (5:30)
-02. Rapaik - Disguise Self (5:52)
-03. Ella Mordo - No Love '86 (mfpalm Remix) (2:55)
-04. Atakta - Giving Up The Ghost (4:41)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989B60C80347EDEC7EE43ACE859C88BDA6B59646
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550925   (591235) от 13.05.2022
-
-Ecstatic Vision - Elusive Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Space Rock>
+Kaleidobolt - Bitter (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Stoner Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591235.jpg" />
+  <img src="Z:/picture/008/save_picture_592964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. March of the Troglodytes
-02. Elusive Mojo
-03. Times Up
-04. The Kenzo Shake(   Читать дальше...   )Жанр: Sludge, Stoner, Space RockПродолжительность: 00:35:48
+01 - Another Toothpick (00:06:17)
+02 - Big Sky Land (00:07:09)
+03 - I Am the Seer (00:06:37)
+04 - Deadpan Blues (00:05:59)(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner RockПродолжительность: 00:43:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FF7D06D3DEB44041A96A6D3950328B1C2C74759
+magnet:?xt=urn:btih:26E90AC8A4D0CE7FDB38873BEBE3610065228B52
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550789   (591234) от 13.05.2022
+###  Публикация: 1549787   (592963) от 08.05.2022
 
-VA - Synthwave Dreams, Vol. 17 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Ready For The World - Ruff 'N' Ready (1988) [FLAC|Lossless|tracks + .cue] <Soul, R&B, Funk>
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591234.jpg" />
+  <img src="Z:/picture/008/save_picture_592963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. TELEGIMNASTIKA - Perlo (7:05)
-02. Born in '82 - I Want To Go Far Away (3:58)
-03. Microsha 89 & Twinhead Pony - Endless (3:42)
-04. Enium - Feel Life (6:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:08:04
+01. My Girly Riley, Valentine 5:30
+02. Shame Potts 4:56
+03. Cowboy Riley, Valentine 4:29
+04. Gently Riley 5:30(   Читать дальше...   )Жанр: Soul, R&B, FunkПродолжительность: 00:56:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F60D68BBC79B639BCE3B7DCF2093CF766B3A870
+magnet:?xt=urn:btih:F96C87FD2E8666F2A1DDA2FA3DAD595FC693BAB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,202 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550795   (591233) от 13.05.2022
+###  Публикация: 1549504   (592962) от 08.05.2022
 
-VA - Synthwave Dreams, Vol. 20 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NINJACAT & VHS STORE - Pink Sky (2:55)
-02. Born in '82 - Night Road To The Airport (6:01)
-03. Bogdan Bondar & MVG - Sprinkles (3:45)
-04. Dwextrom - Fallen Lord (4:21)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20469C95941146042DD422ADA7AC9286CF536E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550799   (591232) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 22 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ionov - Break My Heart (3:00)
-02. VsrtWuto - Shuto Nightshift (6:25)
-03. CJ Cyclone - Electronic Body (3:16)
-04. Bloume - Light (4:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584C843B3804328229C697F605FEC1AB30E7AF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550800   (591231) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivan Starzev - Up Tonight (Microsha 89 Remix) (4:05)
-02. Rinak - Evolution (TELEGIMNASTIKA Remix) (5:06)
-03. Born in '82 - Summer Rays (4:25)
-04. Ionov - Break My Heart (TELEGIMNASTIKA Remix) (3:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7471A4CC382611CB9519F59D900DB78AD6A80313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550798   (591230) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 21 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VsrtWuto - Late Night Cruise (3:30)
-02. Unfancy D - Rain (La-la-la) (4:20)
-03. Akira - Out The Fire (3:16)
-04. Born in '82 - Evolution (5:34)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286E51614FF944F86A42FE3EE84E4C5148E54192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550893   (591229) от 13.05.2022
-
-Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livets Trädgård (3:29)
-02. Svekets Prins (6:37)
-03. Hjärtat Vet Vad Handen Gör (8:30)
-04. De Närmast Sörjande (7:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CCA2C8EB3BFC5F704B82D994D0B660FD1A3C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550790   (591228) от 13.05.2022
-
-VA - Synthwave Dreams, Vol. 18 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unfancy D - Teslagirl (5:12)
-02. Fraver & Born in '82 - Void In Space (4:40)
-03. Enium - Nostalgia (Let's Do The Night) (7:06)
-04. Shtanze - Retropunk (4:31)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153C0D421DE5E938ACBF9743F7AD12574876A3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550826   (591226) от 13.05.2022
-
-Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+Nidhoggs (Nidhöggs) - Persecution (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Psychedelic>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591226.jpg" />
+  <img src="Z:/picture/008/save_picture_592962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paroxysm
-02. One And Only
-03. Hero
-04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
+01 - Persecution (00:08:07)
+02 - Space Monkey (00:07:26)
+03 - Gandalf is Dead (00:07:20)
+04 - Burning my Wings to Fly (00:05:49)(   Читать дальше...   )Жанр: Hard Rock, Heavy PsychedelicПродолжительность: 01:08:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
+magnet:?xt=urn:btih:D7E8F4B7E5C381F526201A1E8F407EF01FC047CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,24 +85,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550908   (591225) от 13.05.2022
+###  Публикация: 1549582   (592961) от 08.05.2022
 
-Рваные Раны - Лучшая проклятая вещь (2022) [MP3|320 Kbps] <Punk Rock>
+Fernando Perdomo - Out to Sea 4 (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>
->>
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591225.jpg" />
+  <img src="Z:/picture/008/save_picture_592961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Проклятая вещь
-2. Строгий отец
-3. Слышишь сука!?
-4. Вы - закройте рты!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:51
+01 - Out To Sea 4 Theme (00:04:35)
+02 - Bliss Ascending (00:03:19)
+03 - Crestfallen (00:03:34)
+04 - Water Landing (00:03:42)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3300DFCBDDA95905C59D114AD597AE0586F225F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549690   (592960) от 08.05.2022
+
+Enzo Favata - Made In Sardinia (2003) [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_592960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boche 'E Notte 7:05
+02. Aprile A Castelsardo 6:13
+03. Sa Bella Su Mundu (Song For A Little Flower) 04:16
+04. Processione (Duo Version) 02:23(   Читать дальше...   )Жанр: Jazz, Folk, World, & CountryПродолжительность: 01:01:33
 
 ## Скачать торент
 ```bash
@@ -543,28 +143,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550802   (591224) от 13.05.2022
+###  Публикация: 1549843   (592959) от 08.05.2022
 
-VA - Synthwave Dreams, Vol. 24 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+Штефани Дале | Земляничная фея. Три волшебные ягодки (2018) [PDF]
 
->>Electronic
->>Synthpop, New Wave, Retro (Hi-Res)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591224.jpg" />
+  <img src="Z:/picture/008/save_picture_592959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Born in '82 - Resisted (4:03)
-02. Ildar Bik - Racer (5:22)
-03. A-Reis - Meteor (3:45)
-04. Fraver & Born in '82 - Void in Space (Born in '82 l'amour Remix) (5:15)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:41
+Каждый день Земляничной феи полон удивительных приключений. Вот и на этот раз она вместе со своими друзьями устроит в саду парк аттракционов, за день вылечит целый лягушачий хор и одержит блестящую победу над неведомым чудищем. А ещё станет обладательницей настоящих волшебных ягод!
+Истории про Земляничную фею автора и художника Штефани Дале наполнены чудесами и ягодным (   Читать дальше...   )Жанр: Детская литература, СказкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26C72C02B418F534C440BB20C6CF0356F07B1C19
+magnet:?xt=urn:btih:E7432694E788422FD25091A2379A607057FA6CAD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,28 +170,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550907   (591223) от 13.05.2022
+###  Публикация: 1549544   (592958) от 08.05.2022
 
-Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
+Affirm featuring Bayley & Hunt - One More Moment (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591223.jpg" />
+  <img src="Z:/picture/008/save_picture_592958.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Queen Of The Night (4:10)
-02. Let's Get Ridiculous (4:23)
-03. R U Ready 4 The Boom (4:38)
-04. Raise Your Hands (3:07)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:48
+01 - Overflowing (00:06:59)
+02 - Cry Cry (00:06:23)
+03 - Who Am I (00:04:50)
+04 - Where Are You Now (00:06:46)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA12967172F80B727F99B5148DC3AB6E60E7040C
+magnet:?xt=urn:btih:DB6786A289D6E87339026D435D14BBDC9CFE3C70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -601,22 +199,133 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550932   (591222) от 13.05.2022
+###  Публикация: 1233489   (592957) от 30.06.2018
 
-Игорь Акимушкин | Жил-был бобр (1987) [PDF]
+Близнецы / Gemini (2017) BDRip [1080p] ATV (MVO)
 
->>
->>
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591222.jpg" />
+  <img src="Z:/picture/008/save_picture_592957.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой книге автор рассказывает про жизнь бобров. Кто такие, чем занимаются, чего боятся и чем полезны...
-Для детей дошкольного возраста. Иллюстрации П.Панченко.Жанр: РассказФормат: PDF
+Чудовищное преступление ставит под угрозу и без того сложные отношения между упорным личным ассистентом и ее боссом — голливудской старлеткой.Производство: США /  Film Science, PASTEL, Rough House PicturesЖанр: Триллер, ДетективРежиссер: Аарон КацАктеры: Лола Кёрк, Зои Кравиц, Джон Чо, Грета Ли, Рики Лейк, Мишель Форбс, Нельсон Франклин, Рив Карни, Джессика Паркер Кеннеди, Джеймс РэнсонПеревод: Профессиональный (многоголосый, закадровый) (HDRezka Studio)Субтитры: Английский (Full)Продолжительность: 01:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6F66A49C79377CA92F24DBACB63DE2B9972341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233511   (592956) от 30.06.2018
+
+VA - Die 90er Live (2018) 2CD [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Culture Beat - Mr. Vain
+02. Snap! - Rhythm Is A Dancer (7_ Edit)
+03. Prince Ital Joe - United (feat. Marky Mark) (Radio Edit)
+04. East 17 - It's Alright (The Guvnor Mix)(   Читать дальше...   )Жанр: Eurodance, Europop, Italo DanceПродолжительность: 02:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2823BDF544341E1AE46B6ADA5462909C461DE29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233492   (592955) от 30.06.2018
+
+Мэтт Рафф | Злые обезьяны (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джейн Шарлотта арестована за убийство. Она говорит, что работает на секретную организацию, в Департаменте по ликвидации безнадежных лиц, или, как его еще называют, в «Злых Обезьянах», и спасает мир, убивая настоящих злодеев. После такого признания ее отправляют в закрытую психиатрическую клинику, где местному психиатру предстоит определить, безумна ли Джейн. А может, (   Читать дальше...   )Жанр: ТриллерыПеревод: Мария АкимоваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4726F84E1E535E6B9650C7EFBEC4DC5B147F35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233562   (592954) от 30.06.2018
+
+Василий Горностаев | Ролевой синдром (2018) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Свободные агенты».
+
+Ещё в детстве Ким начал видеть мир через призму игрового интерфейса. Он был таким не один. Это искажение восприятия назвали «ролевой синдром», и пусть оно не имело особых последствий, его обладателей всё равно стали считать психами. Но вот по прошествии двух десятков лет Ким вернулся в родной город и его синдром резко осложнился: (   Читать дальше...   )Жанр: Городское фэнтези, ЛитРПГ, РеалРПГФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D9DD15C55E3F4986272B5E41EFE80C39EB6BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233287   (592953) от 30.06.2018
+
+VA - Road Blues (Vol.03) (2018) [MP3|320 Kbps] <Rock Blues, Country>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_592953.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Les Cowboys Fringants - Octobre
+002. Southern Avenue - Don't Give Up
+003. Howe Gelb - Terribly So
+004. James Armstrong - Blues Been Good To Me(   Читать дальше...   )Жанр: Rock Blues, CountryПродолжительность: 08:01:48
 
 ## Скачать торент
 ```bash
@@ -628,28 +337,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550834   (591221) от 13.05.2022
+###  Публикация: 1233348   (592952) от 30.06.2018
 
-Saint Serpent - The Moonshine Sessions and the Trailer Park Witch (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
+Ким Стэнли Робинсон | Голубой Марс (2018) [MP3]
 
->>
->>
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591221.jpg" />
+  <img src="Z:/picture/008/save_picture_592952.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Bow Down (00:03:38)
-02 - Negative Creep (00:03:29)
-03 - A Cold One (00:03:25)
-04 - Fortunate Son (00:03:00)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:30:22
+Красной планеты больше нет.
+Отныне зеленый и изобильный, Марс из пустыни превратился в мир, где люди могут процветать. Но вновь разгорается жестокая борьба между Красными, отстаивающими независимость Марса, и Зелеными – «терраформирователями». В это время переполненной и загрязненной Земле угрожает крупнейшее наводнение, грозящее уничтожить все живое. Марс становится (   Читать дальше...   )Жанр: Космическая фантастика, Научная фантастикаПродолжительность: 32:48:04
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:C99397086C644F08C03473429370605C97501AB0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,25 +364,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550969   (591220) от 13.05.2022
+###  Публикация: 1233585   (592951) от 30.06.2018
 
-Человек и закон (13.05.2022) SATRip
+Алан Дин Фостер | Колодец (1997) [FB2]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591220.jpg" />
+  <img src="Z:/picture/008/save_picture_592951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Основные темы общественно-политической программы "Человек и закон" - борьба с организованной преступностью, расследования о коррупции в высших эшелонах власти, криминальные истории. Программа старается дать взвешенную оценку важнейшим событиям в политической, экономической и социальной жизни страны, освещает огромный спектр вопросов и проблем, с которыми (   Читать дальше...   )Телекомпания: 1 каналЖанр: Документальный, Телепередача, КриминалПродолжительность: 00:48:33
+Роман популярного американского писателя А. Фостера написан в жанре остросюжетного фантастического детектива.
+Отважному экипажу корабля «Атлантис» поручено осуществить направленный взрыв гигантского астероида, грозящего Земле глобальной катастрофой. Но ни сами астронавты, ни те, кто отправил их на опасное задание, не могли даже предположить, что этот грозный космический (   Читать дальше...   )Жанр: Космическая фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9ABAD2DB6F244EC42B6234E2A4BB18A7CA2F9D9D
+magnet:?xt=urn:btih:CB643F0D58BAABDEC8952CF47819F25926F0056F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,25 +391,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550940   (591219) от 13.05.2022
+###  Публикация: 1233407   (592950) от 30.06.2018
 
-Случай с Бедфордом / The Bedford Incident (1965) BDRip [H.264/720p]
+Муза смерти / Muse (2017) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессор литературы Самуэль Саломон год назад ушел с работы после трагической смерти подруги. Он страдает от повторяющегося ночного кошмара, в котором видит женщину, зверски убиваемую при странном ритуале. Неожиданно ту же самую женщину, которая появляется каждую ночь в его снах, находят мертвой при тех же самых обстоятельствах. Самуэль пробирается на место преступления (   Читать дальше...   )Производство: Испания, Ирландия, Бельгия, Франция / Castelao Pictures, Fantastic Films, Filmax Entertainment, Frakas ProductionsЖанр: Ужасы, Фантастика, Триллер, ДрамаРежиссер: Жауме БалагуэроАктеры: Эллиот Кауэн, Франка Потенте, Ана Улару, Леонор Уотлинг, Мануэла Вельес, Джоэнн Уэлли, Кристофер Ллойд, Каллахэн О’Коннелл, Сэм Харди, Стелла МакКаскерПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E58D6853ED8D0762B342126C11762D030B9E6AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233079   (592949) от 30.06.2018
+
+Третья тень / Daisan no Kagemusha (1963) DVDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая половина XVI века, период Сражающихся Провинций - Сэнгоку. Горная провинция Хида становится местом бесконечных войн соперничающих друг с другом удельных князей. Перемены наступают с момента вступления в борьбу честолюбивого и удачливого князя Икэмото Ясутаки, безжалостно уничтожающего противников одного за другим с целью подчинения своей власти всей Хиды. (   Читать дальше...   )Производство: Япония, Daiei Film CompanyЖанр: Драма, БоевикРежиссер: Иноуэ УмэцугуАктеры: Итикава Райдзо, Такатихо Хидзуру, Банри Масяо, Кобаяси Кацухико, Амати Сигэру, Симада Рюдзо, Исигуро Тацуя, Суми Риэко, Канэко НобуоПеревод: Одноголосый закадровыйСубтитры: японскиеПродолжительность: 01:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887C4467605CF8E012CF1DD8096AEC3D5E44C58A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233413   (592948) от 30.06.2018
+
+Тигр снегов (1987) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591219.jpg" />
+  <img src="Z:/picture/008/save_picture_592948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сценарий основан на романе Марка Расковича 1963 года. Американский журналист собирается взять интервью у Эрика Финлэндера, капитана американского эсминца, во время рядового патрулирования. В процессе разговора капитан засекает на глубине советскую подводную лодку, и начинается погоня...Производство: Великобритания, США, Columbia Pictures, Bedford Productions Ltd.Жанр: драма, триллерРежиссер: Джеймс Б. ХаррисАктеры: Ричард Уидмарк, Сидни Пуатье, Джеймс Макартур, Мартин Болсам, Уолли Кокс, Эрик Портман, Майкл Кэйн, Колин Мейтленд, Пол Тамарин, Фрэнк ЛиберманПеревод: профессиональный многоголосый (СПб 5 канал)Субтитры: английскиеПродолжительность: 01:42:03
+История взаимоотношений отца и сына. Бывший известный боксер Ахан, не ужившись в большом спорте, уезжает из города. Судьба приводит его в горы, где он становится звероловом. Ахан не замечает, как равнодушно, а порой и жестко, он относится к животным. Только конфликт с сыном Али, произошедший после ловли "тигра снегов" - снежного барса - многому научил Ахана...Производство: СССР, КазахфильмЖанр: ДрамаРежиссер: Лариса Мухамедгалиева, Вячеслав БеляловАктеры: Абдрашид Абдрахманов, Али Белялов, Даниил Нетребин, Алеша Черепнев, Жанна Керимтаева, Тунгышбай ЖаманкуловПродолжительность: 01:06:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:003DA3099D3B8B2EBB500FDDCF47DF2379883C8C
+magnet:?xt=urn:btih:85A065C7D927797FFE4565FED9ECB94E693730D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -709,28 +469,242 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550713   (591218) от 13.05.2022
+###  Публикация: 1233346   (592947) от 30.06.2018
 
-Sunflower Bean - Headful of Sugar (2022) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Indie Rock>
+Отец, сын и любовница / For Richer, for Poorer (1992) DVDRip [H.264]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_591218.jpg" />
+  <img src="Z:/picture/005/save_picture_592947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Who Put You Up To This? [03:19]
-02. In Flight [03:25]
-03. Otherside [03:10]
-04. Roll The Dice [03:14](   Читать дальше...   )Жанр: Psychedelic Rock, Indie RockПродолжительность: 00:35:07
+Год назад у Арама Катурьяна было все: много денег, дом в Беверли Хиллз, красавица — жена, любовница, собака и горячо любимый сын Майкл, вернувшийся с учебы из Европы. Привыкший к роскоши, Майкл не думает о будущем. Это очень огорчает отца.
+И вот, чтобы стимулировать беспробудно развлекающегося сына к какому-либо делу, Арам продает все, что у него есть, объясняя свой (   Читать дальше...   )Производство: США / Citadel EntertainmentЖанр: Драма, Мелодрама, КомедияРежиссер: Джей СэндричАктеры: Джек Леммон, Талия Шайр, Джонатан Силвермен, Джоанна Глисон, Мэдлин Кан, Джордж Уайнер, Дэкин Мэтьюз, Стефен Кэффри, Хэл Риддл, Чарльз Томас МерфиПеревод: Многоголосый закадровый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:30:47
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233467   (592946) от 30.06.2018
+
+Векторный клипарт - Abstract Logo with People 43 [AI]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_592946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Абстрактные логотипы с людьми
+5 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233485   (592945) от 30.06.2018
+
+Экшены - Creative Market - Watercolor Photoshop Action - 2011245 [ATN, ABR]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_592945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Watercolor - данный экшен фотошоп превратит ваши фото в полотно акварели. Для достижения наилучших результатов, рекомендуется использовать фотографии с высоким разрешением в диапазоне от 2000px – 5000px.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232750   (592944) от 30.06.2018
+
+Tangerine Dream - One Night In Space: Live at the Alte Oper Frankfurt (2007) DVD5 [hand made]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_592944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видеоверсия выступления легенды немецкой электронной музыки Tangerine Dream,состоявшегося 7.10.2007г  в зале Alte Oper Frankfurt, Germany.01.Yesterday (Music Box)
+02.Ayumi's Butterflies
+03.No More Candles Burning
+04.Lady Monk(   Читать дальше...   )Производство: EastgateЖанр: electronicРежиссер: Edgar FroeseПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:54:16
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233615   (592943) от 30.06.2018
+
+С меня хватит! / Falling Down (1993) BDRip [720p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неудачи преследуют Уильяма всю жизнь. Особенно этим жарким летом. На работе его отправили в бессрочный отпуск. Решением суда ему запрещено встречаться с дочкой. Обозлившись на весь мир, Уильям решается на месть. Круша все на своем пути, он пробивается сквозь раскаленный город на день рождения к своей дочке. Люди воспринимают его как маньяка, и только опытный детектив (   Читать дальше...   )Производство: США, Франция, Великобритания /  Alcor Films, Canal+, Regency EnterprisesЖанр: Триллер, Драма, КриминалРежиссер: Джоэл ШумахерАктеры: Майкл Дуглас, Роберт Дювалл, Барбара Херши, Тьюзди Уэлд, Рейчел Тикотин, Фредерик Форрест, Лоис Смит, Рэймонд Дж. Бэрри, Д.В. Моффетт, Стив ПаркПеревод: Профессиональный (многоголосый, закадровый), Профессиональный (двухголосый, закадровый), Авторский (одноголосый, закадровый)Субтитры: Русские (вшитые, отключаемые), Английские (вшитые, отключаемые)Продолжительность: 01:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1C38F9AAB3686FD2152E41C1BE3B010D111562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233641   (592942) от 30.06.2018
+
+Notepad++ 7.5.7 Final + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Notepad++ - бесплатный редактор текстовых файлов, значительно превосходящий Блокнот по функциональности. Поддерживает синтаксис всевозможных языков программирования, предназначен для работы в операционной системе MS Windows. Этот проект базируется на компоненте Scintilla (очень мощном компоненте для редактирования) написанном на C++ с использованием только Win32 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B918C9E20C437D314F2A5A2D82F935C1522577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233532   (592941) от 30.06.2018
+
+Дебора Макнамара | Покой, игра, развитие. Как взрослые растят маленьких детей, а маленькие дети растят взрослых (2016) [PDF, FB2, FB3, RTF, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тема книги – дети дошкольного возраста. Без преувеличения, Дебора Макнамара написала полноценное пособие для родителей о том, как понять суть внутреннего мира детей. Показывая, что дошкольный возраст играет решающую роль в развитии способности к отношениям, она рассматривает незрелость, присущую ребенку этого возраста, – одно из наиболее игнорируемых и неверно понимаемых (   Читать дальше...   )Жанр: Воспитание детей, Детская психология, Зарубежная психологияФормат: PDF, FB2, FB3, RTF, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1EBBABECF765D56685771EDB4388355DEDB3C20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233410   (592940) от 30.06.2018
+
+VA - Евро Хит Топ 40 Europa Plus 29.06.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_592940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dynoro feat. Gigi D'Agostino - In My Mind 3:05
+02. Tom Walker - Leave A Light On 3:06
+03. CamelPhat & Elderbrook - Cola (Robin Schulz Remix) 5:15
+04. MARUV & Boosin - Drunk Groove 3:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:20:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233619   (592939) от 30.06.2018
+
+The Bat! Professional 8.5.2 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_592939.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bat! – общепризнанная система обработки электронных сообщений, которая прекрасно совмещает в себе все качества, необходимые опытному пользователю. Интуитивный интерфейс позволяет пользователям The Bat! приступить к работе сразу после установки. Эффективный механизм фильтрации и сортировки помогает обрабатывать огромные потоки входящей почты, с которыми не справляются (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14C266457F397791CB9E08299078FDCD035311FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

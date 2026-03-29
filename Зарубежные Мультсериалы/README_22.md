@@ -1,3 +1,55 @@
+###  Публикация: 1062909   (619289) от 26.06.2017
+
+Симпсоны / The Simpsons (2016) WEB-DL [H.264/720p-LQ] (сезон 28, серии 1-22 из 22) Vo-production
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619289.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Симпсоны» - это пародия на всех и вся, и на типичный американский уклад жизни в целом. Главные герои этого мультсериала - показательная в своей типичности семья Симпсонов - обжора и лежебока, недалекий Гомер, его жена-умница домохозяйка Мардж, их дети сорванец Барт, одаренная умная девочка Лиза и совсем еще младенец Мэгги. Каждая серия не только богата юмором, но (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Марк Керклэнд, Стивен Дин Мур, Боб АндерсонПерсонажи: Дэн Кастелланета, Джули Кавнер, Нэнси Картрайт, Ярдли Смит, Гарри Ширер, Хэнк Азария, Памела Хейден, Тресс МакНилл, Карл Видерготт, Мэгги Росвэлл и др.Перевод: Многоголосый закадровый, профессиональныйОзвучка / Автор перевода: Vo-productionПродолжительность: ~00:22:00 серияРеклама: Присутствуют вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9674C8581D217C2304E6F49CCEFA62A177B408F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 803544   (618861) от 10.07.2014
+
+Ким Пять-с-плюсом / Kim Possible (2002-2007) HDTVRip, WEB-DL [720p] (Сезон: 1-3 Серии 01-66 из 87)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_618861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда тебе пятнадцать лет, и ты работаешь секретным агентом, путешествуя по миру и помогая нуждающимся, возвращаться к жизни обычного тинейджера нет никакого желания. Особенно если в твоей семье числятся мать - нейрохирург, отец - ракетостроитель и пара полоумных братьев, намеревающихся пойти по следам папаши. Таким родственникам, как и школьным учителям, объяснять (   Читать дальше...   )Производство: США / Walt Disney Television AnimationЖанр: Мультфильм, Боевик, Мелодрама, Комедия, Детектив, Приключения, СемейныйРежиссер: Стив Лоутер, Дэвид Блок, Крис БэйлиПерсонажи: Кристи Карлсон Романо, Уилл Фридел, Нэнси Картрайт, Таж Моури, Джон Ди Маджио, Николь Салливан, Джин Смарт, Кирстен Стормс, Гэри Коул, Патрик ВарбертонПеревод: Дублированный (Nevafilm)Язык субтитров: Английский (2 ,3 сезон)Продолжительность: Серия по ~ 00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B3B7F8E7A8E329A0C4D961C492D128BFF7F1CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230130   (618789) от 10.06.2018
 
 Бэтмен Будущего (Новый Бэтмен) / Batman Beyond (1999-2001) DVDRemux (сезоны 1-3 из 3, серии 01-52 из 52)
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618789.jpg" />
+  <img src="Z:/picture/008/save_picture_618789.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618667.jpg" />
+  <img src="Z:/picture/008/save_picture_618667.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618577.jpg" />
+  <img src="Z:/picture/008/save_picture_618577.jpg" />
 </div>
 
 
@@ -89,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617672.jpg" />
+  <img src="Z:/picture/008/save_picture_617672.jpg" />
 </div>
 
 
@@ -115,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616820.jpg" />
+  <img src="Z:/picture/008/save_picture_616820.jpg" />
 </div>
 
 
@@ -142,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616780.jpg" />
+  <img src="Z:/picture/008/save_picture_616780.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616745.jpg" />
+  <img src="Z:/picture/008/save_picture_616745.jpg" />
 </div>
 
 
@@ -195,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616735.jpg" />
+  <img src="Z:/picture/008/save_picture_616735.jpg" />
 </div>
 
 
@@ -222,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615731.jpg" />
+  <img src="Z:/picture/008/save_picture_615731.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615546.jpg" />
+  <img src="Z:/picture/008/save_picture_615546.jpg" />
 </div>
 
 
@@ -275,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615326.jpg" />
+  <img src="Z:/picture/008/save_picture_615326.jpg" />
 </div>
 
 
@@ -301,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613350.jpg" />
+  <img src="Z:/picture/008/save_picture_613350.jpg" />
 </div>
 
 
@@ -328,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612729.jpg" />
+  <img src="Z:/picture/008/save_picture_612729.jpg" />
 </div>
 
 
@@ -356,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611943.jpg" />
+  <img src="Z:/picture/008/save_picture_611943.jpg" />
 </div>
 
 
@@ -382,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611305.jpg" />
+  <img src="Z:/picture/008/save_picture_611305.jpg" />
 </div>
 
 
@@ -408,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611038.jpg" />
+  <img src="Z:/picture/008/save_picture_611038.jpg" />
 </div>
 
 
@@ -434,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611036.jpg" />
+  <img src="Z:/picture/008/save_picture_611036.jpg" />
 </div>
 
 
@@ -460,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607284.jpg" />
+  <img src="Z:/picture/008/save_picture_607284.jpg" />
 </div>
 
 
@@ -486,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606605.jpg" />
+  <img src="Z:/picture/008/save_picture_606605.jpg" />
 </div>
 
 
@@ -512,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606580.jpg" />
+  <img src="Z:/picture/008/save_picture_606580.jpg" />
 </div>
 
 
@@ -538,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606444.jpg" />
+  <img src="Z:/picture/008/save_picture_606444.jpg" />
 </div>
 
 
@@ -564,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606052.jpg" />
+  <img src="Z:/picture/008/save_picture_606052.jpg" />
 </div>
 
 
@@ -590,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605774.jpg" />
+  <img src="Z:/picture/008/save_picture_605774.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605750.jpg" />
+  <img src="Z:/picture/008/save_picture_605750.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:556164FCFF0DA12D99828AB01BE68BEBC23CCA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 686295   (605453) от 05.08.2013
-
-Симпсоны / The Simpsons (2006-2008) PDTVRip (Сезон 18-19) [UKR]
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Симпсоны (англ. The Simpsons) - самый длинный анимационный сериал в истории американского телевидения: более 500 эпизодов, которые, в свою очередь, объединены в 23 сезона, примерно по 20 серий в каждом. Дебютировал 17 декабря 1989 на телеканале FOX. Сериал «Симпсоны» - сатирическая пародия на жизнь «рядового» американца, воплощенная в семье Симпсонов. События происходят (   Читать дальше...   )Жанр: КомедияРежиссер: Мэтт ГроунингПерсонажи: Дэн Касталанетта (Гомер), Джули Кавнер (Мардж), Нэнси Картрайт (Барт), Ядли Смит (Лиса), Гарри Ширер (Нед Фландерс и Монтгомери Бернс)Перевод: Дублированный (Украинский)Продолжительность: 42 х ~00:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBCDFD711227B06B511E3C0C140CA513044970F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913595   (604697) от 29.06.2015
-
-Джи – нестандартная смерть / Dji. Death Sails (2014) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джи — не очень везучая смерть, которой никак не удается выполнить свою работу. На этот раз ему предстоит встретиться с пиратом, который остался один на плоту посреди открытого моря. Ситуация идеальна, ничто не должно помешать Джи, но неожиданно события принимают совсем другой оборот.Производство: МолдоваЖанр: КороткометражныйРежиссер: Дмитрий ВолошинПеревод: Без словПродолжительность: 00:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE13ED3EB869AA4986556C37D0084585AD534B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

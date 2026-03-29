@@ -1,3 +1,90 @@
+###  Публикация: 1622591   (239220) от 29.03.2023
+
+Synn Unsworth - Phobetor (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_239220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Empty Inside (04:53)
+02 - Girl in the Mirror (04:53)
+03 - Phobetor (06:37)
+04 - Madness from the Depths (05:18)(   Читать дальше...   )Жанр: Groove, Death MetalПродолжительность: 00:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F910852E3CBC77A21B0235011F2AAE191DC5286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1438233   (239211) от 07.01.2021
+
+Mandator - Perfect Progeny / Strangled (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_239211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Stick your knife
+02 Coition interruptus
+03 Surrealistic manoeuvres
+04 An invisible disease strikes(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:11:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4AE31A7EC1ACDD9BD2D5CB63A16D288FEF5128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622683   (239208) от 29.03.2023
+
+Grisly - Tomb King (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_239208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shadowborn 03:27
+2. Tomb King 03:06
+3. Hours of Torment 03:39
+4. The Key to Algernon 03:00(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B365735CB88594483AFD0EE5B9DBEDA67F30C459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622547   (239194) от 29.03.2023
 
 Shores Of Null - The Loss Of Beauty (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Doom Metal>
@@ -6,7 +93,7 @@ Shores Of Null - The Loss Of Beauty (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239194.jpg" />
+  <img src="Z:/picture/005/save_picture_239194.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Mahr - Maelstrom (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239188.jpg" />
+  <img src="Z:/picture/004/save_picture_239188.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Surujuhla - Musta maa (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239171.jpg" />
+  <img src="Z:/picture/005/save_picture_239171.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Die like Gentlemen - Hard Truths (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239106.jpg" />
+  <img src="Z:/picture/005/save_picture_239106.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Raze The Void - Para Sempre (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239094.jpg" />
+  <img src="Z:/picture/005/save_picture_239094.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Throne Of Heresy - Antioch (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239090.jpg" />
+  <img src="Z:/picture/004/save_picture_239090.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Majustice - Ancestral Recall (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239087.jpg" />
+  <img src="Z:/picture/005/save_picture_239087.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Itinerum - Dream and Fly (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239080.jpg" />
+  <img src="Z:/picture/005/save_picture_239080.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Throne Of Heresy - Decameron (2017) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239067.jpg" />
+  <img src="Z:/picture/004/save_picture_239067.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Pressure Points - Remorses To Remember (2010) [FLAC|Lossless|image + .cue] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239050.jpg" />
+  <img src="Z:/picture/004/save_picture_239050.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Fange - Privation (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Sludge, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_239049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_239049.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Pressure Points - The Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239033.jpg" />
+  <img src="Z:/picture/004/save_picture_239033.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Dark Moor - Origins (2018) [2CD] Japanese Ed. (Reissued 2019) [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239007.jpg" />
+  <img src="Z:/picture/005/save_picture_239007.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Goot - God's Doubt (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238998.jpg" />
+  <img src="Z:/picture/005/save_picture_238998.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Aletsch - 2 Albums (2019, 2021) [FLAC|Lossless|tracks + .cue] <Nu-Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238988.jpg" />
+  <img src="Z:/picture/005/save_picture_238988.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Alien Force - We Meet Again (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238956.jpg" />
+  <img src="Z:/picture/004/save_picture_238956.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Last In Line - Jericho (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Ro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238938.jpg" />
+  <img src="Z:/picture/004/save_picture_238938.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Mass Madness - Innerbeast (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238906.jpg" />
+  <img src="Z:/picture/005/save_picture_238906.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Velvet & Cashmere - Dose Of Masculinity (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238899.jpg" />
+  <img src="Z:/picture/004/save_picture_238899.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Amken - Passive Aggression (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238890.jpg" />
+  <img src="Z:/picture/005/save_picture_238890.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Vortex - The Future Remains In Oblivion (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238879.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Ghosther - Immersion (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Metal, Modern Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238859.jpg" />
+  <img src="Z:/picture/005/save_picture_238859.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Art Nation - Inception (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_238857.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_238857.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Art Nation - Inception (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:663DA813FAF09C35867A0F0906E1CE8A9A6ADB22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638645   (238850) от 10.06.2023
-
-Excalion - Once upon a Time (2023) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keitele (03:41)
-02. Resolution (05:47)
-03. Soulbound (04:50)
-04. Words Cannot Heal (04:46)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F895ADF440D11CE4A2DEB224A6CFB995FFD76B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577639   (238835) от 19.09.2022
-
-Sightless Era - Revelation (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son of Misery [00:03:51]
-02. Revelation [00:03:56]
-03. In Your Eyes [00:04:11]
-04. Incarceration [00:04:34](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:21:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB235319CC2D9A4A06A535673849E561714F3070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638620   (238833) от 10.06.2023
-
-Eternity's End - Embers Of War (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Power, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreadnought (The Voyage Of The Damned)
-02. Bane Of The Black Sword
-03. Hounds Of Tindalos
-04. Call Of The Valkyries(   Читать дальше...   )Жанр: Progressive Power, Speed MetalПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7AF63BA3DDAD7C6188007FE92FF988136B365B
 ```
 
 https://mybot314.ru/tekegram_catalog/

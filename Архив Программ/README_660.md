@@ -6,7 +6,7 @@ KMS Tools Portable 07.06.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717240.jpg" />
+  <img src="Z:/picture/008/save_picture_717240.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Autodesk 3ds Max 2017 SP1 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717232.jpg" />
+  <img src="Z:/picture/008/save_picture_717232.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Recuva 1.53.1087 Professional | Technician Edition RePack (& portable) by D!akov
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717228.jpg" />
+  <img src="Z:/picture/008/save_picture_717228.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SamDrivers 16.6 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717226.jpg" />
+  <img src="Z:/picture/008/save_picture_717226.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Zoner Photo Studio Professional 17 Build 9 DC 27.04.2015 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717206.jpg" />
+  <img src="Z:/picture/008/save_picture_717206.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Display Driver Uninstaller 15.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717201.jpg" />
+  <img src="Z:/picture/008/save_picture_717201.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ashampoo Snap 10.0.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717173.jpg" />
+  <img src="Z:/picture/008/save_picture_717173.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Ashampoo Driver Updater 1.2.0.49468 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717167.jpg" />
+  <img src="Z:/picture/008/save_picture_717167.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Macrium Reflect 7.1.2963 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717161.jpg" />
+  <img src="Z:/picture/008/save_picture_717161.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Q-Dir 8.69 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717095.jpg" />
+  <img src="Z:/picture/008/save_picture_717095.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ JetBrains WebStorm 10.0.2 Build #WS-141.728 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717088.jpg" />
+  <img src="Z:/picture/008/save_picture_717088.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Video Thumbnails Maker Platinum 6.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717087.jpg" />
+  <img src="Z:/picture/008/save_picture_717087.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ MyLanViewer 4.18.7 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717084.jpg" />
+  <img src="Z:/picture/008/save_picture_717084.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.5023.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717037.jpg" />
+  <img src="Z:/picture/008/save_picture_717037.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Microsoft Office 2013 SP1 Standard 15.0.5023.1000 (2018.04) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717035.jpg" />
+  <img src="Z:/picture/008/save_picture_717035.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Microsoft Office Professional 2003 SP3 (2018.04) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717029.jpg" />
+  <img src="Z:/picture/008/save_picture_717029.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Microsoft Office 2010 SP2 Professional Plus + Visio Premium + Project Pro 14.0.7
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717026.jpg" />
+  <img src="Z:/picture/008/save_picture_717026.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Microsoft Office 2010 SP2 Standard 14.0.7197.5000 (2018.04) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717023.jpg" />
+  <img src="Z:/picture/008/save_picture_717023.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ FBackup 8.8.335 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716998.jpg" />
+  <img src="Z:/picture/008/save_picture_716998.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Complete Internet Repair 5.2.3.4120 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716988.jpg" />
+  <img src="Z:/picture/008/save_picture_716988.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Microsoft Office 2016 Standard 16.0.4678.1000 (2018.04) RePack by KpoJIuK [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716910.jpg" />
+  <img src="Z:/picture/008/save_picture_716910.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ KRT CLUB 1.1.0.19 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716904.jpg" />
+  <img src="Z:/picture/008/save_picture_716904.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ CCleaner 5.69.7865 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716864.jpg" />
+  <img src="Z:/picture/008/save_picture_716864.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Topaz Gigapixel AI 5.0.4 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716859.jpg" />
+  <img src="Z:/picture/008/save_picture_716859.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ PotPlayer 1.7.21280 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716854.jpg" />
+  <img src="Z:/picture/008/save_picture_716854.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Blender 2.83.4 LTS + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716852.jpg" />
+  <img src="Z:/picture/008/save_picture_716852.jpg" />
 </div>
 
 

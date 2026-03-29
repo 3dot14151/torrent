@@ -1,3 +1,84 @@
+###  Публикация: 290032   (884050) от 10.09.2021
+
+День на скачках / A Day at the Races (1937) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884050.jpg" />
+</div>
+
+
+###  Подробнее
+
+У очаровательной женщины, запутавшейся в долгах, хотят отнять заложенный и перезаложенный санаторий, в котором осталась только одна богатая пациентка, настоявшая на том, чтобы главврачом назначили любовь ее далекой молодости, ветеринара Хэкенбуша.Производство: США, Metro-Goldwyn-Mayer (MGM)Жанр: Мюзикл, комедия, спортРежиссер: Сэм ВудАктеры: Граучо Маркс, Чико Маркс, Харпо Маркс, Аллан Джонс, Морин О`Салливан, Маргарет Дюмон, Леонард Кели, Дагласс Дамбрилл, Эстер Мьюир, Зиг Руман, Роберт Миддлмэсс, Вивьен Фэй, Кинг Баггот, Кенни Бэйкер (II), Вивиан Бэрри, Барбара Бедфорд, Джино Коррадо, Ричард ФарнсуортПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8564914A33534383D814625AB88FCD12B29E705D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389630   (884044) от 10.09.2021
+
+Ромео и Джульетта / Romeo and Juliet (1936) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая экранизация одноименной трагедии Уильяма Шекспира.
+Прекрасная и одновременно печальная история Ромео и Джульетты – юных возлюбленных, силой своего чувства преодолевших, казалось бы, самое непреодолимое – ненависть, вражду и даже саму смерть...Производство: США (Metro-Goldwyn-Mayer)Жанр: Мелодрама, трагедия, экранизацияРежиссер: Джордж КьюкорАктеры: Норма Ширер, Лесли Хауард, Джон Бэрримор, Эдна Мэй Оливер, Бейзил Рэтбоун, Си. Обри Смит, Энди ДивайПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A87DD8A6400E13345E8DCDFEB1683533E18B670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387682   (884013) от 10.09.2021
+
+Потерянный горизонт / Lost Horizon (1937) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_884013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великолепная приключенческая фантастика, сверхнеобычная работа Фрэнка Капры (1897-1991), ведущего комедиографа 30-х-40-х.
+
+Герои фильма попадают в мифическую страну Шангри-Ла, о которой грезят все поклонники эзотерических знаний. По их мнению, духовный «центр» человечества расположен в сердце Гималаев, в районе, который не отмечен на картах и, по существу, недоступен, (   Читать дальше...   )Производство: США, Columbia Pictures CorporationЖанр: Фэнтези, драма, приключенияРежиссер: Фрэнк КапраАктеры: Рональд Колман, Джейн Виатт, Эдвард Эверетт Хортон, Джон Ховард, Томас Митчелл, Марго, Изабель Джуэлл, Х.Б. Уорнер, Сэм Джаффе, Норман ЭйнслиПеревод: Многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 02:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAACA691E8B78822E11AFE046CD76CF3CBE7473D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 392300   (883924) от 10.09.2021
 
 Сто мужчин и одна девушка / One Hundred Men and a Girl (1937) DVDRip
@@ -6,7 +87,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883924.jpg" />
+  <img src="Z:/picture/005/save_picture_883924.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883922.jpg" />
+  <img src="Z:/picture/005/save_picture_883922.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883472.jpg" />
+  <img src="Z:/picture/005/save_picture_883472.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882907.jpg" />
+  <img src="Z:/picture/005/save_picture_882907.jpg" />
 </div>
 
 
@@ -111,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882874.jpg" />
+  <img src="Z:/picture/005/save_picture_882874.jpg" />
 </div>
 
 
@@ -137,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882871.jpg" />
+  <img src="Z:/picture/005/save_picture_882871.jpg" />
 </div>
 
 
@@ -163,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882748.jpg" />
+  <img src="Z:/picture/005/save_picture_882748.jpg" />
 </div>
 
 
@@ -189,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882724.jpg" />
+  <img src="Z:/picture/005/save_picture_882724.jpg" />
 </div>
 
 
@@ -215,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882711.jpg" />
+  <img src="Z:/picture/005/save_picture_882711.jpg" />
 </div>
 
 
@@ -241,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882708.jpg" />
+  <img src="Z:/picture/005/save_picture_882708.jpg" />
 </div>
 
 
@@ -267,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_882602.jpg" />
+  <img src="Z:/picture/008/save_picture_882602.jpg" />
 </div>
 
 
@@ -293,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882560.jpg" />
+  <img src="Z:/picture/005/save_picture_882560.jpg" />
 </div>
 
 
@@ -319,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_882520.jpg" />
+  <img src="Z:/picture/008/save_picture_882520.jpg" />
 </div>
 
 
@@ -345,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882255.jpg" />
+  <img src="Z:/picture/005/save_picture_882255.jpg" />
 </div>
 
 
@@ -371,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881594.jpg" />
+  <img src="Z:/picture/005/save_picture_881594.jpg" />
 </div>
 
 
@@ -397,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880971.jpg" />
+  <img src="Z:/picture/005/save_picture_880971.jpg" />
 </div>
 
 
@@ -423,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880755.jpg" />
+  <img src="Z:/picture/005/save_picture_880755.jpg" />
 </div>
 
 
@@ -450,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880542.jpg" />
+  <img src="Z:/picture/005/save_picture_880542.jpg" />
 </div>
 
 
@@ -476,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880531.jpg" />
+  <img src="Z:/picture/005/save_picture_880531.jpg" />
 </div>
 
 
@@ -502,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880442.jpg" />
+  <img src="Z:/picture/005/save_picture_880442.jpg" />
 </div>
 
 
@@ -528,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879832.jpg" />
+  <img src="Z:/picture/005/save_picture_879832.jpg" />
 </div>
 
 
@@ -554,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879483.jpg" />
+  <img src="Z:/picture/005/save_picture_879483.jpg" />
 </div>
 
 
@@ -580,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879380.jpg" />
+  <img src="Z:/picture/005/save_picture_879380.jpg" />
 </div>
 
 
@@ -592,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C21347DE82B1E36E3DE0BB330DC4E31C22C5FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995774   (879213) от 14.03.2016
-
-Поддержи своего стрелка / Support Your Local Gunfighter (1971) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брачный аферист Латиго Смит, ускользая от очередной брошенной дамочки, оказывается в шахтёрском городке с красноречивым названием Чистилище. Городок этот контролируется двумя конкурирующими группировками. Противоречия не разрешимы, и глава одной из группировок вызывает знаменитого стрелка Свифти Моргана чтобы уладить проблему с конкурентом. Латиго Смит оказывается (   Читать дальше...   )Производство: СШАЖанр: Комедия, мелодрама, вестерн, приключенияРежиссер: Берт КеннедиАктеры: Джеймс Гарнер, Гарри Морган, Сюзанн Плешетт, Джек Илэм, Джоан Блонделл, Мари Уиндсор, Джон Денер, Генри Джонс, Даб Тейлор, Кэтлин Фримен, Дик Кертис, Уиллис Бучи, Уолтер Бурк, Джин Эванс, Грэйди Саттон, Эллен Корби, Вирджиния Кейперс, Херб Вигран, Педро Гонзалез Гонзалез, Майк Вагнер, Терри Уилсон, Рой Гленн, Джон Вилер, Джерри Гэтлин, Чак Коннорс, Джон Дахейм, Уильям (   Читать дальше...   )Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D094BBD3CE4CD3ECFC46966BA749FBBFFF5292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642390   (878744) от 11.04.2013
-
-Привидение / Призрак / Ghost (1990) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Счастливая парочка возвращается домой после вечера в театре. На тёмной аллее на них нападает грабитель… Защищаясь, Сэм погибает. Теперь он только призрак, но всё еще может помочь своей возлюбленной! Сэм-привидение узнаёт, что его смерть не была случайной, а над Молли нависла смертельная опасность! Но для Молли он теперь «человек-невидимка», которого она не видит (   Читать дальше...   )Жанр: Фэнтези, Триллер, Драма, Мелодрама, ДетективРежиссер: Джерри Цукер / Jerry ZuckerАктеры: Патрик Суэйзи, Деми Мур, Вупи Голдберг, Тони Голдвин, Стэнли Лоуренс, Кристофер Дж. Кин, Сьюзэн Бреслау, Мартина Дэйнан, Рик Клебер, Мэка Фоли, Рик Авилес, Фил Лидз, Джон Хью, Sam Tsoutsouvas, Шарон Бреслау, Винсент Скиавелли, Анджелина Эстрада, Armelia McQueen, Гэйл Боггс, Том Керли, Стивен РутПеревод: 5х Многоголосый, 3х Авторский одноголосыйЯзык субтитров: РусскийПродолжительность: 02:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8660E977B7EB1E8DCCC35C76E802F531E1A877C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 346631   (877839) от 10.03.2014
-
-Возвращение Дона Камилло / Le Retour de Don Camillo (1953) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй фильм в серии о доне Камилло. Пастор дон Камилло возвращается в родной городок после вынужденной ссылки за плохое поведение…......Жанр: комедияРежиссер: Жюльен ДювивьеПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F240E0E20F8C3B3E99AC4BCBAF03BD7A2B862DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

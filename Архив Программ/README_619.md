@@ -6,7 +6,7 @@ AVS Video Software 12.9.6.22 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739764.jpg" />
+  <img src="Z:/picture/008/save_picture_739764.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ YouTube By Click Premium 2.2.134 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739763.jpg" />
+  <img src="Z:/picture/008/save_picture_739763.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Prelude 2020 9.0.1.64 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739759.jpg" />
+  <img src="Z:/picture/008/save_picture_739759.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Daum PotPlayer 1.7.21239 Stable + Portable (x86/x64) by SamLab [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739713.jpg" />
+  <img src="Z:/picture/008/save_picture_739713.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Revo Uninstaller Free 2.1.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739712.jpg" />
+  <img src="Z:/picture/008/save_picture_739712.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SoftPerfect RAM Disk 4.1.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739703.jpg" />
+  <img src="Z:/picture/008/save_picture_739703.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ CCleaner 5.69.7865 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739701.jpg" />
+  <img src="Z:/picture/008/save_picture_739701.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ GoodSync Enterprise 10.9.24.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739663.jpg" />
+  <img src="Z:/picture/008/save_picture_739663.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Kaspersky Rescue Disk 2018 18.0.11.3(c) (20.07.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739649.jpg" />
+  <img src="Z:/picture/008/save_picture_739649.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Master PDF Editor 5.3.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739608.jpg" />
+  <img src="Z:/picture/008/save_picture_739608.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ The Bat! Professional 8.8.0 x86 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739592.jpg" />
+  <img src="Z:/picture/008/save_picture_739592.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ uTorrent 3.5.5 Build 45081 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739530.jpg" />
+  <img src="Z:/picture/008/save_picture_739530.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Microsoft Visual C++ AIO Runtime Libraries Full Pack by Wilenty 14.02.2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739522.jpg" />
+  <img src="Z:/picture/008/save_picture_739522.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Windows 10 (v1809) x64 5in1 by kuloymin v18.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739471.jpg" />
+  <img src="Z:/picture/008/save_picture_739471.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ KMSAuto Lite 1.5.5 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739444.jpg" />
+  <img src="Z:/picture/008/save_picture_739444.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Process Lasso Pro 10.4.2.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739065.jpg" />
+  <img src="Z:/picture/008/save_picture_739065.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ PrivaZer 4.0.39 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739064.jpg" />
+  <img src="Z:/picture/008/save_picture_739064.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.18 RePack (& portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739038.jpg" />
+  <img src="Z:/picture/008/save_picture_739038.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ DiskDigger 1.59.19.3203 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738996.jpg" />
+  <img src="Z:/picture/008/save_picture_738996.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Spotify 1.1.77.643 (Repack & Portable) by Elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738987.jpg" />
+  <img src="Z:/picture/008/save_picture_738987.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Vit Registry Fix Pro 14.6.0 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738986.jpg" />
+  <img src="Z:/picture/008/save_picture_738986.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ TreeSize Professional 8.2.2.1626 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738984.jpg" />
+  <img src="Z:/picture/008/save_picture_738984.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Cockos REAPER 6.46 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738772.jpg" />
+  <img src="Z:/picture/008/save_picture_738772.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Bootstrap Studio 5.9.1 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738747.jpg" />
+  <img src="Z:/picture/008/save_picture_738747.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Topaz DeNoise AI 3.5.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738691.jpg" />
+  <img src="Z:/picture/008/save_picture_738691.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738619.jpg" />
+  <img src="Z:/picture/008/save_picture_738619.jpg" />
 </div>
 
 

@@ -7,7 +7,7 @@ ZP UI 2.0.0 [Ru] (авторский релиз)
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051794.jpg" />
+  <img src="Z:/picture/005/save_picture_1051794.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ ZP UI 1.0.7 [Ru] (авторский релиз)
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050590.jpg" />
+  <img src="Z:/picture/005/save_picture_1050590.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ RHVoice - синтезаторы речи SAPI 5  v4.0 - 4.8 для Balabolka [M
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048040.jpg" />
+  <img src="Z:/picture/008/save_picture_1048040.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Music Collector 21.01 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037909.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Denemo 2.6 Portable [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035529.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ IK Multimedia Miroslav Philharmonik Orchestra & Choir Workstation 1.1 [Eng][VST,
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998714.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Similarity 1.8.1 build 1624 [Мульти/Русский]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996283.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Adobe Audition FLT Filters 2012 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995361.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ AP Guitar Tuner 3.08 [Английский]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_906130.jpg" />
+  <img src="Z:/picture/009/save_picture_906130.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Plug&Mix - V.I.P. Bundle v.2.0.0 x86.x64[VST][En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903599.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Nuance Vocalizer Expressive: Katya, Milena, Yuri, Allison, Susan 5.2.3 RePack by
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870985.jpg" />
+  <img src="Z:/picture/008/save_picture_870985.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Pinnacle Steinberg MyMp3PRO 5.1.0.21 Portable [ENG]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838833.jpg" />
+  <img src="Z:/picture/008/save_picture_838833.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Voxal Voice Changer Plus 2.0 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802844.jpg" />
+  <img src="Z:/picture/008/save_picture_802844.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Neuratron PhotoScore & NotateMe 8.0.4 Ultimate [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789342.jpg" />
+  <img src="Z:/picture/008/save_picture_789342.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Tag&Rename 3.9.5 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778214.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Jajuk 11.0 + Portable [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766058.jpg" />
+  <img src="Z:/picture/008/save_picture_766058.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ LMMS (Linux MultiMedia Studio) 1.2.2 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764358.jpg" />
+  <img src="Z:/picture/008/save_picture_764358.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ Aerodrums 1.0.22 [Multi]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723723.jpg" />
+  <img src="Z:/picture/008/save_picture_723723.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ Tag&Rename 3.9.14 RePack (& Portable) by elchupacabra [Ru/En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636678.jpg" />
+  <img src="Z:/picture/008/save_picture_636678.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ VOCALOID4 Editor 4.3.0 Repack by AlexVox и csf22 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577521.jpg" />
+  <img src="Z:/picture/008/save_picture_577521.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ AudioBook Reader 0.0.7.1 + Portable [Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564571.jpg" />
+  <img src="Z:/picture/008/save_picture_564571.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ Sam Broadcaster STUDIO 2016.7
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548939.jpg" />
+  <img src="Z:/picture/008/save_picture_548939.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Sam Broadcaster PRO 2016.7 [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548915.jpg" />
+  <img src="Z:/picture/008/save_picture_548915.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ Virtual Audio Cable 4.15 Retail [En]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526246.jpg" />
+  <img src="Z:/picture/008/save_picture_526246.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ MiniLyrics 7.7.49 [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523813.jpg" />
+  <img src="Z:/picture/008/save_picture_523813.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Tag&Rename 3.9.15 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Прочее ПО для Аудио
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517782.jpg" />
+  <img src="Z:/picture/008/save_picture_517782.jpg" />
 </div>
 
 

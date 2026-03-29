@@ -1,3 +1,56 @@
+###  Публикация: 949004   (379578) от 22.10.2015
+
+Е.Ю. Агеев | Защита информационных процессов в компьютерных системах (2007) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379578.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ходе выполнения практических работ студенты знакомятся с такими инструментами получения информации о сетевой инфраструктуре и возможных уязвимостях компьютерных систем, как сканер сетевых портов и сканер уязвимостей конечных устройств, изучают элементы защиты электронных документов и сообщений электронной почты. Методические указания предназначены для студентов (   Читать дальше...   )Жанр: БезопасностьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46D0FAC779E7D9604DE18D5342E7F431CCE2B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253768   (379508) от 11.10.2018
+
+В.Н. Гордиенко (ред.) | Оптические телекоммуникационные системы (2011) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изложены принципы построения и основные особенности оптических телекоммуникационных систем, использующих в качестве среды передачи волоконно-оптические кабели. Подробно рассмотрены физические основы работы различных оптических и оптоэлектронных компонент, их параметры и характеристики.
+Обсуждаются особенности передачи цифровых сигналов по линейным трактам и оборудования (   Читать дальше...   )Жанр: Электроника, связьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E93DD961F45F623C4F2B39327C40C97B4207FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253213   (379415) от 11.10.2018
 
 А.А. Дурнаков | Электропитание устройств и систем телекоммуникаций. Принципы построения выпрямителей, фильтров, стабилизаторов (2018) [PDF]
@@ -6,7 +59,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379415.jpg" />
+  <img src="Z:/picture/008/save_picture_379415.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379311.jpg" />
+  <img src="Z:/picture/008/save_picture_379311.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378799.jpg" />
+  <img src="Z:/picture/008/save_picture_378799.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378758.jpg" />
+  <img src="Z:/picture/008/save_picture_378758.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378752.jpg" />
+  <img src="Z:/picture/008/save_picture_378752.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378639.jpg" />
+  <img src="Z:/picture/008/save_picture_378639.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378630.jpg" />
+  <img src="Z:/picture/008/save_picture_378630.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378475.jpg" />
+  <img src="Z:/picture/008/save_picture_378475.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377235.jpg" />
+  <img src="Z:/picture/008/save_picture_377235.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376603.jpg" />
+  <img src="Z:/picture/008/save_picture_376603.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376372.jpg" />
+  <img src="Z:/picture/008/save_picture_376372.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376207.jpg" />
+  <img src="Z:/picture/008/save_picture_376207.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376204.jpg" />
+  <img src="Z:/picture/008/save_picture_376204.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375126.jpg" />
+  <img src="Z:/picture/008/save_picture_375126.jpg" />
 </div>
 
 
@@ -376,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375113.jpg" />
+  <img src="Z:/picture/008/save_picture_375113.jpg" />
 </div>
 
 
@@ -402,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375082.jpg" />
+  <img src="Z:/picture/008/save_picture_375082.jpg" />
 </div>
 
 
@@ -428,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374881.jpg" />
+  <img src="Z:/picture/008/save_picture_374881.jpg" />
 </div>
 
 
@@ -455,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374652.jpg" />
+  <img src="Z:/picture/008/save_picture_374652.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374330.jpg" />
+  <img src="Z:/picture/008/save_picture_374330.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374083.jpg" />
+  <img src="Z:/picture/008/save_picture_374083.jpg" />
 </div>
 
 
@@ -536,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373923.jpg" />
+  <img src="Z:/picture/008/save_picture_373923.jpg" />
 </div>
 
 
@@ -562,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373665.jpg" />
+  <img src="Z:/picture/008/save_picture_373665.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373527.jpg" />
+  <img src="Z:/picture/008/save_picture_373527.jpg" />
 </div>
 
 
@@ -615,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373008.jpg" />
+  <img src="Z:/picture/008/save_picture_373008.jpg" />
 </div>
 
 
@@ -626,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE68D39D79F41AB3CFA7721872A6D8087E614C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176298   (372025) от 21.10.2017
-
-В.А. Харитонов | Строительство магистрального трубопровода нефти и газа (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Магистральные трубопроводы являются одним из наиболее экономичных и рациональных транспортных средств нефти, а в случае перемещения газообразных сред, если исключить возможность перевоза газа в сжиженном состоянии цистернами, - наиболее безопасным и рациональным видом транспорта. Также это один из самых капитало- и металлоемких видов транспорта с высоким уровнем (   Читать дальше...   )Жанр: СтроительствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454636267511F38FDD24D93720D3AEB8DA6A852E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176417   (372022) от 21.10.2017
-
-Ф.С. Сафуанов, Е.В. Макушкин | Аффект: практика судебной психолого-психиатрической экспертизы (2016) [FB2, EPUB]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372022.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хрестоматии представлены тексты известных судебных психиатров и психологов, посвященные проблеме определения аффекта у обвиняемого в практике судебной экспертизы. Освещена история становления уголовно-релевантного понятия аффекта. Приведены представления об аффекте в общей психологии. Изложены современные судебно-психологические экспертные критерии диагностики (   Читать дальше...   )Жанр: Психология, ЮриспруденцияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE35E75CF9C6C6E277A137251B9C1FC3AA98A3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

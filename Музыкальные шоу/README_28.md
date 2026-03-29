@@ -1,3 +1,56 @@
+###  Публикация: 1079662   (294152) от 04.12.2016
+
+Точь-в-точь. Суперсезон (2016.12.04) SATRip (сезон 4, выпуск 10)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сезон одного из самых популярных в стране музыкально развлекательных телепроектов порадует поклонников невероятными сценическими перевоплощениями и самыми известными хитами! В этот раз за звание победителя поспорят те, кому однажды уже приходилось подниматься на сцену «Точь в Точь».
+Новый сезон «Точь в Точь», пожалуй, самый разноплановый – участники проекта (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-шоуСубтитры: ОтсутствуютПродолжительность: 02:27:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AB1F87F0706D702C49FE94F5B745F1270EFDA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079548   (294017) от 04.12.2016
+
+Танцы (2016.12.03) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 19)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_294017.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DE7CBD30445A69F0CFE4BC7DC62E125AE9A631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962692   (293347) от 05.12.2015
 
 Главная сцена. Сезон 2. Выпуск 11 (2015.12.05) SATRip
@@ -6,7 +59,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293347.jpg" />
+  <img src="Z:/picture/008/save_picture_293347.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292772.jpg" />
+  <img src="Z:/picture/008/save_picture_292772.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292765.jpg" />
+  <img src="Z:/picture/008/save_picture_292765.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292651.jpg" />
+  <img src="Z:/picture/008/save_picture_292651.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292208.jpg" />
+  <img src="Z:/picture/008/save_picture_292208.jpg" />
 </div>
 
 
@@ -141,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291333.jpg" />
+  <img src="Z:/picture/008/save_picture_291333.jpg" />
 </div>
 
 
@@ -167,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291155.jpg" />
+  <img src="Z:/picture/008/save_picture_291155.jpg" />
 </div>
 
 
@@ -193,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290974.jpg" />
+  <img src="Z:/picture/008/save_picture_290974.jpg" />
 </div>
 
 
@@ -219,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290864.jpg" />
+  <img src="Z:/picture/008/save_picture_290864.jpg" />
 </div>
 
 
@@ -248,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290743.jpg" />
+  <img src="Z:/picture/008/save_picture_290743.jpg" />
 </div>
 
 
@@ -274,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289765.jpg" />
+  <img src="Z:/picture/008/save_picture_289765.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287952.jpg" />
+  <img src="Z:/picture/008/save_picture_287952.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287802.jpg" />
+  <img src="Z:/picture/008/save_picture_287802.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287608.jpg" />
+  <img src="Z:/picture/008/save_picture_287608.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285670.jpg" />
+  <img src="Z:/picture/008/save_picture_285670.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285572.jpg" />
+  <img src="Z:/picture/008/save_picture_285572.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284451.jpg" />
+  <img src="Z:/picture/008/save_picture_284451.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284425.jpg" />
+  <img src="Z:/picture/008/save_picture_284425.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284065.jpg" />
+  <img src="Z:/picture/008/save_picture_284065.jpg" />
 </div>
 
 
@@ -508,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283930.jpg" />
+  <img src="Z:/picture/008/save_picture_283930.jpg" />
 </div>
 
 
@@ -534,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283902.jpg" />
+  <img src="Z:/picture/008/save_picture_283902.jpg" />
 </div>
 
 
@@ -560,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282779.jpg" />
+  <img src="Z:/picture/008/save_picture_282779.jpg" />
 </div>
 
 
@@ -586,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282696.jpg" />
+  <img src="Z:/picture/008/save_picture_282696.jpg" />
 </div>
 
 
@@ -612,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282690.jpg" />
+  <img src="Z:/picture/008/save_picture_282690.jpg" />
 </div>
 
 
@@ -623,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FD053290A26C048088CAD07BBE2C11D432AD484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081737   (282681) от 10.12.2016
-
-Танцы (2016.12.10) DVB (сезон 3, выпуск 20)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282681.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECA7E39098CDD972557A49228FBEF4753C8EB67E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081605   (282513) от 10.12.2016
-
-Голос (2016.12.09) HDTVRip [H.264/720p] (сезон 5, выпуск 15)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Участников проекта ждут нелегкие деньки, ведь теперь им нужно будет выступать в прямом эфире! Каждый Наставник разбил свою команду на две тройки - из каждой из них выйти в полуфинал сможет лишь один вокалист. Но теперь судьбу участников решают не только Наставники, но и зрители. Поддержите своих любимчиков и помогите им стать лучшими!Телекомпания: Первый канал HDЖанр: ТВ-шоу, музыкальный, развлекательныйПродолжительность: 02:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66F9AD78929F1DD54E055044E9E5097B75B15077
 ```
 
 https://mybot314.ru/tekegram_catalog/

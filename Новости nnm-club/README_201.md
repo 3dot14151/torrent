@@ -1,3 +1,161 @@
+###  Публикация: 956588   (328953) от 15.11.2015
+
+Scrivener 1.9.0.0 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Scrivener — мощный текстовый редактор для тех, кто работает с большими объемами текста (писателей, журналистов, сценаристов, ученых). Программа обеспечивает максимум возможностей для организации текста, структурирования, создания заметок, карточек, комментариев, таблиц, добавления картинок, ссылок.Язык интерфейса: Русский, английский, немецкий, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AD1FA85AA4DF34DDC1D1DB8A0409B3DCC0BCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956765   (328952) от 15.11.2015
+
+DAEMON Tools Ultra 4.0.1.0425 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328952.jpg" />
+</div>
+
+
+###  Подробнее
+
+DAEMON Tools Ultra — это самая мощная, функциональная и профессиональная программа для работы с образами, которую мы когда-либо создавали. Эмулируйте виртуальные приводы, создавайте загрузочные USB для восстановления операционных систем, используйте RAM-диски для того, чтобы ускорить работу ПК, и подключайтесь к удаленным USB-устройствам по протоколу iSCSI с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D846F5430ABA5699F3DE1E35297A2717B60DF9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 414092   (328295) от 23.11.2011
+
+Специалист | HTML и CSS. Уровень 1. Создание сайтов по стандартам W3C и переход на HTML 5 и СSS 3 (WMV3) [2011] PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328295.jpg" />
+</div>
+
+
+###  Подробнее
+
+HTML и CSS — основные языки разметки и стилей, с помощью которых разрабатываются веб-страницы. На курсе Вы изучите основы языка разметки HTML, способы применения CSS, основы построения сайтов для сети Интернет. Вы получите необходимые навыки для построения сайтов с помощью статических страниц в сети Интернет. Успешное обучение на этом курсе даст Вам прочную базу (   Читать дальше...   )Жанр: Web-дизайнПродолжительность: 23:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7927D011E28B48BF78CD9DA1CE3032247942536
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957039   (328088) от 16.11.2015
+
+Parallels Desktop for Mac Business Edition 11.1.0 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallels Desktop для Mac - Самое быстрое, простое и мощное решение для запуска Windows-приложений на Mac без перезагрузки.
+С Parallels Desktop для Mac вы можете одновременно запускать приложения Windows и Mac OS X без перезагрузки, перетаскивать файлы между приложениями Windows и Mac, а также запускать приложения Windows из панели Mac Dock. Благодаря его высокой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 ноября 2015Разработчик: Parallels Holdings, LtdПоддерживаемая ОС: OS X 10.9.5+Язык интерфейса: Русский, Английский, Французский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F2E7565CAA56B9E2F972A5784E56C0D81CA357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957174   (328086) от 16.11.2015
+
+Двадцать восемь панфиловцев (2015) WEBRip [H.264/1080p] [Трейлер]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенью 1941-го года немецкие части, стоявшие возле Волоколамска, отделяло от Москвы, каких-нибудь, два часа по шоссе. Однако, на этом шоссе стояла 316-я стрелковая дивизия, под командованием генерала И. В. Панфилова. Этот военачальник обладал настолько высоким авторитетом среди личного состава, что бойцы дивизии сами называли себя панфиловцами. А дивизию — панфиловской.Производство: РоссияЖанр: Боевик, Военный, ДрамаРежиссер: Ким Дружинин, Андрей ШальопаАктеры: Азамат Нигманов, Александр Устюгов, Яков Кучеревский, Дмитрий Пучков, Олег Фёдоров, Алексей МорозовПеревод: Не требуется (русский язык)Продолжительность: 00:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:536D921992E21E90FB90BF61A7658D815026B73C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957087   (328081) от 16.11.2015
+
+Проекты - VideoHive - Photo Animator - 12972961 [AEP]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_328081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания анимационных эффектов для Ваших фото.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5DCC7E19E99F543930F0EF3308BA0046C667F27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954599   (328079) от 16.11.2015
 
 Зеркало для героя (1987) DVDRip [H.264]
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328079.jpg" />
+  <img src="Z:/picture/008/save_picture_328079.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ Alcohol 120% 2.0.3.8314 Final RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328078.jpg" />
+  <img src="Z:/picture/008/save_picture_328078.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328068.jpg" />
+  <img src="Z:/picture/008/save_picture_328068.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_327933.jpg" />
+  <img src="Z:/picture/005/save_picture_327933.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_327790.jpg" />
+  <img src="Z:/picture/005/save_picture_327790.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327285.jpg" />
+  <img src="Z:/picture/008/save_picture_327285.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ Windows 10 PE x86x64 13.11.15 by Xemom1 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327170.jpg" />
+  <img src="Z:/picture/008/save_picture_327170.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326089.jpg" />
+  <img src="Z:/picture/008/save_picture_326089.jpg" />
 </div>
 
 
@@ -215,7 +373,7 @@ LEX LIVE 10 2022 v.22.10.5 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326026.jpg" />
+  <img src="Z:/picture/008/save_picture_326026.jpg" />
 </div>
 
 
@@ -242,7 +400,7 @@ F-Secure Freedome VPN 2.55.431.0 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326024.jpg" />
+  <img src="Z:/picture/008/save_picture_326024.jpg" />
 </div>
 
 
@@ -268,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325563.jpg" />
+  <img src="Z:/picture/008/save_picture_325563.jpg" />
 </div>
 
 
@@ -294,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325404.jpg" />
+  <img src="Z:/picture/008/save_picture_325404.jpg" />
 </div>
 
 
@@ -320,7 +478,7 @@ Door Kickers (2014) [Ru/Multi] (1.0.9) Repack John2s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325400.jpg" />
+  <img src="Z:/picture/008/save_picture_325400.jpg" />
 </div>
 
 
@@ -346,7 +504,7 @@ Sparkol VideoScribe 2.3.0 PRO RePack by PooShock [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325399.jpg" />
+  <img src="Z:/picture/008/save_picture_325399.jpg" />
 </div>
 
 
@@ -372,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325395.jpg" />
+  <img src="Z:/picture/008/save_picture_325395.jpg" />
 </div>
 
 
@@ -398,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_325190.jpg" />
+  <img src="Z:/picture/005/save_picture_325190.jpg" />
 </div>
 
 
@@ -424,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_325177.jpg" />
+  <img src="Z:/picture/005/save_picture_325177.jpg" />
 </div>
 
 
@@ -452,7 +610,7 @@ Altium Designer 15.0.7 (build 36915) Ru-Board Edition [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325176.jpg" />
+  <img src="Z:/picture/008/save_picture_325176.jpg" />
 </div>
 
 
@@ -478,7 +636,7 @@ Udemy, YouRa Allakhverdov | Android разработка с нуля до про
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325139.jpg" />
+  <img src="Z:/picture/008/save_picture_325139.jpg" />
 </div>
 
 
@@ -505,7 +663,7 @@ Alone in the Dark / Alone in the Dark: У последней черты  [Ru] (R
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325055.jpg" />
+  <img src="Z:/picture/008/save_picture_325055.jpg" />
 </div>
 
 
@@ -517,167 +675,6 @@ Alone in the Dark / Alone in the Dark: У последней черты  [Ru] (R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D36CC63BA0809AF3296131FA07F4934294C40C5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958036   (324501) от 20.11.2015
-
-Любовь / Love (2015) WEBRip [H.264 / 720p-LQ] [EN]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любовь вне добра и зла. Любовь — это генетическая потребность. Это дар и проклятие. Любовь — это болезнь, наркотик. Это потеря и обретение себя. Любовь — это самое прекрасное и самое ужасное в нашей жизни. Любовь — это переплетение душ и соединение тел. «Любовь» — это возбуждающая сексуальная мелодрама о парне, девушке и еще одной девушке.Производство: Франция, Бельгия, Les Cinémas de la Zone, RT Features, Rectangle ProductionsЖанр: Драма, МелодрамаРежиссер: Гаспар НоэАктеры: Аоми Муйок, Карл Глусман, Клара Кристин, Хуан Сааведра, Бенуа Деби, Венсан Мараваль, Дебора РевиПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D3A7AEF05A058F138502DA19674C3C08F46C0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958139   (324423) от 20.11.2015
-
-Watch Dogs (2014) [Ru] (1.06.329/dlc) Repack xatab [Digital Deluxe Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все друг с другом связаны. Мы зависим от новинок рынка высоких технологий, ведь лишь с их помощью узнаем, что происходит в мире. Но у прогресса есть и темная сторона. Каждое наше действие оставляет след: каждый наш шаг, каждая остановка, все, что нам нравится или не нравится. И дело не только в нас. Мегаполисы опутаны цифровыми сетями.Тип издания: RepackРазработчик: Ubisoft Montral, Ubisoft Reflections и Ubisoft RomaniaЖанр: Action, Shooter, 3D, 3rd Person, StealthЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C963B5CB50EC866FE90DAC51FE3E4D320D8C91F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692842   (324420) от 20.11.2015
-
-City Maps 2Go Pro Offline Maps v3.16.1 [En] - оффлайн интерактивные карты и путеводитель по всему миру!
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324420.jpg" />
-</div>
-
-
-###  Подробнее
-
-City Maps 2Go Pro Offline Maps - Это интерактивные карты и путеводитель по всему миру! Если вы любите путешествовать, то приложение City Maps 2Go Pro Offline Maps для Android создано для вас! Приложению не требуется Wi-Fi или мобильный интернет, оно работает в автономном режиме. В базе приложения более 8000 тысяч карт с достопримечательностями и культурными центрами. (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 18.11.2015Разработчик: Ulmon GmbHПоддерживаемая ОС: Android 4.0 +Язык интерфейса: English
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0835D723F3422D92D5AE24E6BEE908B532AB4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958110   (324419) от 20.11.2015
-
-Бегущий в лабиринте: Испытание огнём / Maze Runner: The Scorch Trials (2015) HDRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324419.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лабиринт пройден, но Томасу, Терезе, Минхо и прочим глэйдерам не приходится расслабляться. Таинственное руководство ПОРОКА — секретной организации, устроившей гонки на выживание — назначает ребятам новые, смертельно опасные испытания. На сей раз их ждет переход по раскаленной пустыне и встреча с жертвами неизлечимой болезни, которые отличаются буйным нравом и непредсказуемым (   Читать дальше...   )Производство: США, TSG Entertainment, Temple Hill Entertainment, Gotham GroupЖанр: Фантастика, Боевик, ТриллерРежиссер: Уэс БоллАктеры: Дилан О’Брайен, Ки Хонг Ли, Кая Скоделарио, Томас Сэнгстер, Декстер Дарден, Алекс Дж. Флорес, Джейкоб Лофленд, Роза Салазар, Джанкарло Эспозито, Патришия КларксонПеревод: Дублированный (Лицензия)Продолжительность: 02:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075E33E84B5126C05A1FCE8941FD0C2826C98F84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332842   (324204) от 08.10.2022
-
-Manfred Mann / Manfred Mann's Earth Band - 38 Albums, 4 Box-Set, 130CD (1964-2022) [FLAC|Lossless|image + .cue | tracks+.cue] <Prog Rock, Electric Prog, Jazz Rock, Hard Rock, Bit Rock>
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Манфред Манн за свою более чем 50-летнюю карьеру успел оставить след во многих музыкальных жанрах: это и поп-музыка с ритм-энд-блюзом в рамках творчества группы Manfred Mann, и экспериментальный джаз-рок, который играла команда Manfred Mann Chapter Three, и целый спектр от прогрессив-рока до новой волны в коллективе Manfred Mann’s Earth Band, и африканская народная (   Читать дальше...   )--------------------------
-
-01. Martha's Madman (10:07)
-02. Times They Are a Changin (6:35)(   Читать дальше...   )Жанр: Prog Rock, Electric Prog, Jazz Rock, Hard Rock, Bit Rock |Продолжительность: 4d 6:42:39 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698F88A96804054B8FADEAE66BA10E57A5C0A32B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 263217   (324100) от 27.11.2010
-
-MX vs. ATV: Reflex [En] (RePack) 2010 | R.G. Catalyst
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324100.jpg" />
-</div>
-
-
-###  Подробнее
-
-MX vs. ATV Reflex продолжает и развивает игровую серию, хорошо знакомую всем поклонникам экстремальных виртуальных гонок. В новом эпизоде гонщиков ждет реалистичная физика, трассы, меняющиеся в реальном времени, и новая система управления, которая позволяет выполнять поистине смертельные трюки!
-За физику отвечает технология Rhythm Racing 2.0, благодаря которой транспортные средства подскакивают на кочках и срываются в занос максимально правдоподобно, а вылетевший из седла мотоциклист падает и кувыркается совсем как настоящий. При этом каждый пройденный по трассе круг ощутимо меняет дорожное покрытие. Квадроциклы, мотоциклы, джипы и другие вездеходы буквально вспахивают колесами мягкий податливый грунт, оставляя за собой колею — почва деформируется в реальном времени!
-Чтобы удержаться в седле и первым добраться до финиша, от гонщика требуется все его мастерство и сноровка. В MX vs. ATV Reflex реализована новая система управления, когда игрок руководит транспортным средством и водителем по отдельности. Это позволяет (   Читать дальше...   )Тип издания: RepackЖанр: Arcade / Racing (Motorcycles) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

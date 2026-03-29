@@ -6,7 +6,7 @@ Green Crow - Пауза (2017) [MP3|320 Kbps] <Pub Folk, Celtic Punk, Folk Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793892.jpg" />
+  <img src="Z:/picture/008/save_picture_793892.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Simon Sigurdson - The Second Coming (2016) [MP3|320 кб/с] <New Age, Contempor
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793746.jpg" />
+  <img src="Z:/picture/008/save_picture_793746.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Ann Sweeten - Where Butterflies Dance (2016) [MP3|320 кб/с] <New Age, Neoclas
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793732.jpg" />
+  <img src="Z:/picture/008/save_picture_793732.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Douglas Blue Feather - Cosmic Visions (2016) [MP3|320 кб/с] <New Age, Native 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793648.jpg" />
+  <img src="Z:/picture/008/save_picture_793648.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Bert Jansch - Bert Jansch (1965) Remastered 2001 [FLAC|Lossless|tracks] <Folk, W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793628.jpg" />
+  <img src="Z:/picture/008/save_picture_793628.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Fred Neil - Fred Neil (1967) Reissue 2006 [FLAC|Lossless|tracks] <Rock & Roll, F
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793578.jpg" />
+  <img src="Z:/picture/008/save_picture_793578.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ John Fluker - 11:11 (2016) [MP3|320 кб/с] <New Age, Neoclassical, Solo Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793577.jpg" />
+  <img src="Z:/picture/008/save_picture_793577.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793568.jpg" />
+  <img src="Z:/picture/008/save_picture_793568.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Roland Romanelli (ex. Space) - Meditations Et Reves (Meditations and Dreams) (19
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793557.jpg" />
+  <img src="Z:/picture/008/save_picture_793557.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793522.jpg" />
+  <img src="Z:/picture/008/save_picture_793522.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Most Comfort Melodies for Spa: Deep Sleep Sounds for Meditation (2017) [MP3
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793513.jpg" />
+  <img src="Z:/picture/008/save_picture_793513.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Spirit & Soul, Vol. 1 (Spiritual Yoga & Meditation Moods) (2017) [MP3|320 K
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793507.jpg" />
+  <img src="Z:/picture/008/save_picture_793507.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ The Louvin Brothers - Tragic Songs Of Life (1956) [FLAC|Lossless|tracks] <Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793469.jpg" />
+  <img src="Z:/picture/008/save_picture_793469.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Marty Robbins - Gunfighter Ballads And Trail Songs (1959) Remastered 1999 [FLAC|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793465.jpg" />
+  <img src="Z:/picture/008/save_picture_793465.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Henry Jackman - Первый мститель Противостояние / Cap
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793453.jpg" />
+  <img src="Z:/picture/008/save_picture_793453.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Henry Jackman - Первый Мститель Противостояние / Cap
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793443.jpg" />
+  <img src="Z:/picture/008/save_picture_793443.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Sc
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793430.jpg" />
+  <img src="Z:/picture/008/save_picture_793430.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Frank Steiner Jr. - 2 альбома (1996-2004) [APE|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793428.jpg" />
+  <img src="Z:/picture/008/save_picture_793428.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [MP3|320 Kbps] <Ne
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793427.jpg" />
+  <img src="Z:/picture/008/save_picture_793427.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [FLAC|Lossless|WEB
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793425.jpg" />
+  <img src="Z:/picture/008/save_picture_793425.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Sc
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793419.jpg" />
+  <img src="Z:/picture/008/save_picture_793419.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Darkher - Realms (2016) [MP3|320 Kbps] <Dark Folk, Gothic, Doom>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793417.jpg" />
+  <img src="Z:/picture/008/save_picture_793417.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Cliff Martinez - The Knick / Больница Никербокер: Season 1,2 (
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793360.jpg" />
+  <img src="Z:/picture/008/save_picture_793360.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Percy Faith - The Real... Percy Faith And His Orchestra (2016) 3CD [FLAC|Lossles
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793188.jpg" />
+  <img src="Z:/picture/008/save_picture_793188.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Deuter - Mirage (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792989.jpg" />
+  <img src="Z:/picture/008/save_picture_792989.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Ernesto Cortazar - Legend Of The Sea (2009) [FLAC|Lossless|WEB-DL|tracks] <New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792778.jpg" />
+  <img src="Z:/picture/008/save_picture_792778.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829190.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829177.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828900.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Clinton Shorter and VA - Контрабанда / Contraband (2012) [AAC|WEB-DL|
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828897.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828877.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828783.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828597.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ VA - Lavender in Summer: Chillout Your Mind (2021) [AAC|~319 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828514.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ VA - Global Chill Out Masters, Vol. 3 (2021) [AAC|~318 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828513.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - 0815 Lo-Fi Chill Hop, Vol. 2 (2020) [AAC|~293 Kbps] <Jazzy, Chillhop, Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828512.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - 0815 Lo-Fi Chill Hop, Vol. 3 (2021) [AAC|~301 Kbps] <Jazzy, Chillhop, Loung
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828511.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Playa del Lounge (2010) [AAC|~332 Kbps] <Lounge, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828510.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ VA - Playa del Lounge 2 (2011) [AAC|~346 Kbps] <Lounge, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828509.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Playa del Lounge 4 (2013) [AAC|~327 Kbps] <Lounge, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828508.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828508.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ VA - Beautiful Barcelona (Chill House Deluxe) (2021) [AAC|~323 Kbps] <Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828507.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Luxury Kingsize Lounge, Vol. 3 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828505.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ VA - The Seeds of Lounge, Vol. 2 (2021) [AAC|~308 Kbps] <Lounge, Chill Out, Down
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828504.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ VA - Global Chill Out Masters, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828503.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ VA - Models Lounge (You'll Be Falling in Love) (2021) [AAC|~325 Kbps] <Lounge, C
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828501.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ VA - Luxury Kingsize Lounge, Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, D
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828500.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ VA - Chillout Beats 1: Chillout Your Mind (2021) [AAC|~314 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828414.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Sopor Aeternus & The Ensemble of Shadows - Island of the Dead (2020) [AAC|~337 K
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828412.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ VA - Los Angeles Beach Lounge, Vol. 1 (2017) [AAC|~314 Kbps] <Chill Out, Lounge,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828411.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ VA - City Cafe: Urban Chillout Vibes (2021) [AAC|~327 Kbps] <Lounge, Chill Out, 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828409.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ VA - Lounge Philosophy, Vol. 1 (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828408.jpg" />
 </div>
 
 
@@ -714,7 +714,7 @@ VA - Bonfire on the Beach: Chillout Your Mind (2021) [AAC|~308 Kbps] <Lounge, Ch
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828407.jpg" />
 </div>
 
 

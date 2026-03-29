@@ -1,3 +1,293 @@
+###  Публикация: 1612759   (207198) от 16.02.2023
+
+AWR Design Environment 10.04 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальное программное решение для разработки всех видов радиочастотных и СВЧ устройств, начиная от сложных СВЧ сборок и заканчивая интегральными СВЧ микросхемами.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39198D4F96C1B03C24424AB6673E586AFC0D244A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612738   (207194) от 16.02.2023
+
+Keysight Advanced Design System 2023 Update 1 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207194.jpg" />
+</div>
+
+
+###  Подробнее
+
+ADS (Advanced Design System)- система автоматизированного проектирования
+
+Система ADS является самой передовой в отрасли системой автоматизированного проектирования (САПР) ВЧ, СВЧ и высокоскоростных цифровых электронных устройств. В САПР ADS впервые использованы такие инновационные и коммерчески успешные технологии, как X-параметры* и 3D электромагнитное (ЭМ) моделирование, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBB893F747E950EB62AB0FFA612AC8C5AA5FB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650997   (207192) от 04.08.2023
+
+Topaz Photo AI 1.5.0 (x64) RePack by KpoJIuK [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A8B6735EAC83FF1E8F95ADC2CC6851129FF687F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650878   (207191) от 03.08.2023
+
+Wise Memory Optimizer 4.1.9.122 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатная утилита для освобождения оперативной памяти, увеличения скорости и улучшения производительности ПК. Позволяет высвободить и настроить оперативную память, занятую бесполезными приложениями. Проста в использовании, подходит как новичкам, так и экспертам.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D3E27303BCD40D82FACE792D2988B1C0F2CCA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650892   (207176) от 04.08.2023
+
+KStars 3.6.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207176.jpg" />
+</div>
+
+
+###  Подробнее
+
+KStars - бесплатное, с открытым исходным кодом, кроссплатформенное программное обеспечение для астрономии. Она обеспечивает точную графическую симуляцию ночного неба, с любой точки Земли, в любую дату и время. Экспозиция включает до 100 миллионов звезд, 13 000 объектов глубокого космоса, все 8 планет, Солнце и Луну, а также тысячи комет, астероидов, сверхновых и (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012966AF75FE8C663160772914E1BDF93485648F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651024   (207167) от 04.08.2023
+
+Firefox Browser 116.0.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40007CA01793BFAD4E0178F81915603D00D53CA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613092   (207155) от 17.02.2023
+
+Topaz Photo AI 1.2.2 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A987C24D647475AD631E0AEBA191782C6DCC4E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613064   (207146) от 17.02.2023
+
+Google Chrome 110.0.5481.104 Stable + Enterprise [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B884631E862BA1C67F7B79C57B8A3F06BF0167FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613002   (207144) от 17.02.2023
+
+PIDKey Lite 1.64.4 b30 Portable by Ratiborus [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207144.jpg" />
+</div>
+
+
+###  Подробнее
+
+PIDKey Lite предназначена для просмотра, обновления и сохранения в базе информации о ключах для продуктов M$.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82236B2A5FE1302AE46585D9F31A3857902F9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613061   (207137) от 17.02.2023
+
+Microsoft Edge WebView2 Runtime 1.3.173.45 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элемент управления Microsoft Edge WebView2 позволяет внедрять веб-технологии (HTML, CSS и JavaScript) в собственные приложения. Элемент управления WebView2 использует Microsoft Edge в качестве подсистемы рендеринга для отображения веб-контента в собственных приложениях.
+С помощью WebView2 вы можете встраивать веб-код в различные части собственного приложения или (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE596E7912DE75FA056C32AB897BE11E7547583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613070   (207136) от 17.02.2023
+
+Opera Crypto Browser 95.0.4635.47 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_207136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер Opera Crypto Browser является современным браузером, поддерживающим актуальные веб-технологии для работы с любыми сайтами, онлайн-сервисами и веб-приложениями. Уникальностью браузера является поддержка технологий Web3, которые позволяют воспользоваться новейшими функциями и преимуществами нового поколения интернета.
+Встроенный крипто-кошелек позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F5994BE832789E814B314A48F797DE4661F33A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650902   (207118) от 04.08.2023
 
 ImgDrive Free 2.0.6 + Portable [Multi/Ru]
@@ -6,7 +296,7 @@ ImgDrive Free 2.0.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207118.jpg" />
 </div>
 
 
@@ -32,7 +322,7 @@ LosslessCut 3.52.0 Standantalone (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207111.jpg" />
+  <img src="Z:/picture/005/save_picture_207111.jpg" />
 </div>
 
 
@@ -58,7 +348,7 @@ Avidemux 2.8.2 Nightly(r230212) + Portable (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207108.jpg" />
+  <img src="Z:/picture/005/save_picture_207108.jpg" />
 </div>
 
 
@@ -84,7 +374,7 @@ HomeBank 5.6.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207093.jpg" />
 </div>
 
 
@@ -112,7 +402,7 @@ NewFileTime 7.07 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207090.jpg" />
 </div>
 
 
@@ -138,7 +428,7 @@ Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.0 Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207085.jpg" />
 </div>
 
 
@@ -164,7 +454,7 @@ Ashampoo UnInstaller 12.00.12 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207083.jpg" />
 </div>
 
 
@@ -190,7 +480,7 @@ Floorp Browser 11.1.0 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207063.jpg" />
 </div>
 
 
@@ -216,7 +506,7 @@ ACDSee Photo Studio Ultimate 2023 16.0.2.3172 Full / Lite RePack by KpoJIuK  [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207060.jpg" />
+  <img src="Z:/picture/005/save_picture_207060.jpg" />
 </div>
 
 
@@ -242,7 +532,7 @@ Universal USB Installer 2.0.1.6 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207037.jpg" />
 </div>
 
 
@@ -268,7 +558,7 @@ Wondershare UniConverter Ultimate 15.0.1.5 (х64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207036.jpg" />
 </div>
 
 
@@ -294,7 +584,7 @@ Corel VideoStudio Ultimate 2022 25.2.0.566 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207032.jpg" />
+  <img src="Z:/picture/005/save_picture_207032.jpg" />
 </div>
 
 
@@ -320,7 +610,7 @@ uTorrent Pack 1.2.3.73 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207031.jpg" />
 </div>
 
 
@@ -347,7 +637,7 @@ Boilsoft Video Splitter 8.3.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207029.jpg" />
+  <img src="Z:/picture/005/save_picture_207029.jpg" />
 </div>
 
 
@@ -373,7 +663,7 @@ Multi Commander Full Edition 13.1 Build 2955 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207028.jpg" />
 </div>
 
 
@@ -385,297 +675,6 @@ Multi Commander - мощный многооконный менеджер фай�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E630F9E68E172E645D64293190ED47B72005AC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651154   (207023) от 05.08.2023
-
-Display Driver Uninstaller 18.0.6.5 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel и драйверы звуковой карты Realtek / Sound Blaster из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4DC5092C31026545E75EE0BB6C8E121808594D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613817   (206994) от 19.02.2023
-
-Start Everywhere 1.4.0.36 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Start Everywhere - это программное обеспечение с меню "Пуск", которое предлагает несколько уникальных решений, позволяющих запускать приложения, установленные на компьютере, и быстро получать доступ к документам. Внешний вид, работа и управление Start Everywhere могут быть гибко настроеныЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5BDCB63021F8ACEA8D3569C57470047B9B52E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651308   (206974) от 06.08.2023
-
-Imagine 1.1.5 + Portable + Plugins  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюверам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68A32B205FA230E788F9DDD16035CBA4690BFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651546   (206969) от 06.08.2023
-
-AIMP 5.11 Build 2434 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206969.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AAC706B4A0106C0E32FC85C324693D64BE70B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651390   (206961) от 06.08.2023
-
-DefenderUI 1.12 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206961.jpg" />
-</div>
-
-
-###  Подробнее
-
-DefenderUI - бесплатная программа, являющаяся альтернативной графической оболочкой для настройки антивируса Безопасность Windows. Программа включает возможность изменять все настройки безопасности и поведения встроенного в Windows антивируса. DefenderUI значительно повышает удобство использования и открывает многие скрытые функции безопасности Microsoft Defender.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41A8DA8C354C5A6E5F03C35EECB6E2A1C68DE5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651749   (206957) от 07.08.2023
-
-Антивирусная утилита AVZ 5.83 (18.07.2023) (Неофициальная) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206957.jpg" />
-</div>
-
-
-###  Подробнее
-
-AVZ - Бесплатная быстро работающая антивирусная утилита. Включает в себя собственно AVZ и дополнительные утилиты AVZGuard/AVZPM/BootCleaner.
-Основное назначение - обнаружение и удаление SpyWare и AdWare модулей, а также Dialer (Trojan.Dialer), троянских программ, BackDoor модулей, сетевых и почтовых червей, TrojanSpy, TrojanDownloader, TrojanDropper.
-По сути, AVZ (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52697FF14F510B9492B2F670A3182A5B81FA8C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613830   (206941) от 19.02.2023
-
-X-Mouse Button Control 2.20 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206941.jpg" />
-</div>
-
-
-###  Подробнее
-
-X-Mouse Button Control позволяет создавать профили управления мышью под конкретные приложения. Для каждого профиля можно настроить до 5 «слоев» различной конфигурации кнопок, которые можно переключать используя горячие клавиши или кнопки. По умолчанию, профили автоматически активируются при перемещении курсора мыши над определенное окно или приложение. Так же программа (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E897B04CA9C3F5E1C709C0396CB433E1A306A6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651620   (206940) от 07.08.2023
-
-Rhinoceros 3D 7.31.23166.15001 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rhinoceros 3D - профессиональная среда для моделирования и разработки 3D объектов и моделей. Предоставляет пользователю возможности для работы с передовыми инструментами и моделями абсолютно любой сложности. В данную среду для проектирования интегрирован редактор Grasshopper.
-Приложение предоставляет большой набор функций и инструментов. Инструмент Grasshopper для (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79CC7C5B864DAAB0BC731B7288C25B24DBFDDAE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651476   (206939) от 06.08.2023
-
-Supermium 117.0.5874.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Supermium форк Chromium для Windows - современный браузер с открытым исходным кодом для пользователей "устаревших" версий Windows.
-По заявлению разработчика, целью Supermium является предоставление новейших функций Chromium, поддержки рендеринга веба-страниц и исправлений безопасности для пользователей Windows Vista (extended kernel), Windows 7 и Windows (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CF1A62B1ED33ED28C80290A42AE9DE7835A69D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651505   (206937) от 06.08.2023
-
-Windows 11 Manager 1.2.9 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 Manager - это универсальная утилита специально для Microsoft Windows 11, она включает в себя более сорока различных утилит для оптимизации, настройки, очистки, ускорения и восстановления вашей Windows 11, помогает ускорить работу вашей системы, устранить системные ошибки, повысьте стабильность и безопасность, персонализируйте свою копию Windows 11 и оправдайте (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD1CA9420F0E28B9BEA6E729D5B4B412AD22B795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613742   (206935) от 19.02.2023
-
-CareUEyes 2.2.4.0 Pro RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы проводите перед экраном компьютера по 8-12 часов в день, порой засиживаясь за клавиатурой допоздна, имеет смысл подумать о сохранении зрения. Поможет в этом деле программа CareUEyes.
-CareUEyes служит для изменения цветовой температуры и яркости изображения на экране компьютера, а кроме того способна напомнить пользователю о необходимости сделать перерыв и (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A5B8E202B171A67FBC87411EE61F718D6F3989
 ```
 
 https://mybot314.ru/tekegram_catalog/

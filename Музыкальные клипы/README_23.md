@@ -1,3 +1,81 @@
+###  Публикация: 551375   (453317) от 24.09.2012
+
+Dirty Bad Unit ft. Mangu - Everyday We Lovin (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_453317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF37E63A28282B455859465B1D91157CC07907D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551378   (453120) от 24.09.2012
+
+Booba - Caramel (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_453120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-HopПродолжительность: 00:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F639A9DB86D19E1C2F114F96149EE5EEDCDF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551840   (451422) от 25.09.2012
+
+Polina Griffith - Ain`t Givin Up (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D69685E22BD73416FC7763E257CD5FF611A63DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 390016   (451413) от 20.09.2011
 
 C.C.Catch - Catch The Hits - Ultimate video collection (2005) DVDRip
@@ -6,7 +84,7 @@ C.C.Catch - Catch The Hits - Ultimate video collection (2005) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451413.jpg" />
+  <img src="Z:/picture/008/save_picture_451413.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Federico Scavo - Ride Like The Wind (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451408.jpg" />
+  <img src="Z:/picture/008/save_picture_451408.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ VA - Official UK Top 40 Video Chart (02-10-2015) WEBRip [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451364.jpg" />
+  <img src="Z:/picture/008/save_picture_451364.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Cinnamon Chasers (2009-2011) [720p] HDTVRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448413.jpg" />
+  <img src="Z:/picture/008/save_picture_448413.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448163.jpg" />
+  <img src="Z:/picture/008/save_picture_448163.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446661.jpg" />
+  <img src="Z:/picture/008/save_picture_446661.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ Barillo - Dust (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446413.jpg" />
+  <img src="Z:/picture/008/save_picture_446413.jpg" />
 </div>
 
 
@@ -191,7 +269,7 @@ KooFee feat. Manu Blanco - El Culito (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446222.jpg" />
+  <img src="Z:/picture/008/save_picture_446222.jpg" />
 </div>
 
 
@@ -217,7 +295,7 @@ Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446087.jpg" />
+  <img src="Z:/picture/008/save_picture_446087.jpg" />
 </div>
 
 
@@ -243,7 +321,7 @@ Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445770.jpg" />
+  <img src="Z:/picture/008/save_picture_445770.jpg" />
 </div>
 
 
@@ -269,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445677.jpg" />
+  <img src="Z:/picture/008/save_picture_445677.jpg" />
 </div>
 
 
@@ -295,7 +373,7 @@ VA - Осенний марафон № 195 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444752.jpg" />
+  <img src="Z:/picture/008/save_picture_444752.jpg" />
 </div>
 
 
@@ -324,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444038.jpg" />
+  <img src="Z:/picture/008/save_picture_444038.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443628.jpg" />
+  <img src="Z:/picture/008/save_picture_443628.jpg" />
 </div>
 
 
@@ -382,7 +460,7 @@ Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443354.jpg" />
+  <img src="Z:/picture/008/save_picture_443354.jpg" />
 </div>
 
 
@@ -408,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439728.jpg" />
+  <img src="Z:/picture/008/save_picture_439728.jpg" />
 </div>
 
 
@@ -438,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438399.jpg" />
+  <img src="Z:/picture/008/save_picture_438399.jpg" />
 </div>
 
 
@@ -464,7 +542,7 @@ Mr Saik - Lights Out (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437113.jpg" />
+  <img src="Z:/picture/008/save_picture_437113.jpg" />
 </div>
 
 
@@ -490,7 +568,7 @@ Cabin Crew - Star To Fall (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437096.jpg" />
+  <img src="Z:/picture/008/save_picture_437096.jpg" />
 </div>
 
 
@@ -516,7 +594,7 @@ Basshunter - Dream on the Dancefloor (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436815.jpg" />
+  <img src="Z:/picture/008/save_picture_436815.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ Ben Gold feat. The Glass Child - Fall With Me (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436672.jpg" />
+  <img src="Z:/picture/008/save_picture_436672.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ David Guetta feat. Sia - She Wolf (Falling to Pieces) (2012) [H.264/1080p] WEBRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436437.jpg" />
+  <img src="Z:/picture/008/save_picture_436437.jpg" />
 </div>
 
 
@@ -594,7 +672,7 @@ Smokie  Greatest Hits 1975-1979 (2011) DVDRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435838.jpg" />
+  <img src="Z:/picture/008/save_picture_435838.jpg" />
 </div>
 
 
@@ -614,103 +692,6 @@ Smokie  Greatest Hits 1975-1979 (2011) DVDRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54E0EF2A2700E3BB7ABC7AACEF992BBFCDDD6209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554702   (435702) от 01.10.2012
-
-Nazareth - Video Collection(1972-2007) (2012) DVDRip.TVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nazareth — шотландская рок-группа, созданная в 1968 году музыкантами группы The Shadettes в городе Данфермлин. В оригинальный состав вошли: вокалист Дэн Маккаферти, гитарист Мэнни Чарлтон, басист Пит Эгнью и барабанщик Дэррил Свит.
-Собраны лучшие клипы группы.01. Morning Dew. (72).
-02. Love Hurts. (1974).
-03. This Flight Tonight.(74).
-04. Jetlag (75).
-05. Bad Bad Boy (75).
-06. Kentucky Freid Blues.(77) .
-07. Place In Your Heart. (1977).
-08. Born To Love.(77).
-09. Night Woman.(77).
-10. Shot Me Down (1977).(   Читать дальше...   )Продолжительность: 02:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA7EDEFBA231076D96E4DC00E7E7AACA590E10A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554887   (433672) от 02.10.2012
-
-W.A.S.P. - First Blood... Last Visions... (1993) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипы группы01. Animal F*** Like A Beast
-02. L.O.V.E. Machine
-03. I Wanna Be Somebody
-04. On Your Knees
-05. Blind In Texas
-06. Wild Child
-07. I Don't Need No Doctor
-08. The Real Me
-09. Forever Free
-10. The Idol(   Читать дальше...   )Жанр: Музыка, Metal, Hard rock
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE98089D64E9166137944DBBFA2C34CCDA5F91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555652   (431781) от 03.10.2012
-
-Cinnamon Chasers (2012) [1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ElectronicПродолжительность: 00:04:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F75757E3218E6ACEECF271D1C665150BFD1E683
 ```
 
 https://mybot314.ru/tekegram_catalog/

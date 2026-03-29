@@ -1,3 +1,164 @@
+###  Публикация: 1764380   (101549) от 07.12.2024
+
+Coldplay - A Sky Full Of Stars (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101549.jpg" />
+</div>
+
+
+###  Подробнее
+
+«A Sky Full of Stars» (в переводе с англ. — «Небо, полное звёзд») — третий сингл британской группы Coldplay из их шестого студийного альбома Ghost Stories. В альтернативном клипе, снятом дизайн-студией Artisan, группа исполняет песню в темной комнате, где на пол проецируется анимация из звезд. Музыканты взаимодействуют с проекцией, а звезды кружатся и (   Читать дальше...   )Жанр: EDM, поп, альтернативный рокПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057DF79FD55CE91A6942322572F75A769D696E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480897   (99257) от 10.04.2012
+
+Ковалева из провинции (1975) SATRip
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ТелеспектакльРежиссер: Игорь Владимиров, Майя МарковаАктеры: Алиса Фрейндлих, Анатолий Равикович, Алексей Петренко, Овсей Каган, Валерий Кузин, Ефим Каменецкий, Галина Никулина, Леонид Дьячков, Михаил Девяткин, Владимир Цибин, Цицилия Файн, Алексей Розанов, Ольга Осипова, Лидия ТрубниковаПродолжительность: 02:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A326604057C89DE8562A80B7FA78CDDCF3CC730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479492   (98968) от 07.04.2012
+
+Джиган - Нас больше нет (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Hip-HopПродолжительность: 00:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99C2926B8B611E33FE757B8ABBBE81391EAC03D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479502   (98957) от 07.04.2012
+
+INNA - WOW (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5831ED6424E6FC8EBDF5DC3FEF21C5E30447B77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475198   (98113) от 30.03.2012
+
+Музыкальный коллектив Петра Налича, концерт в клубе Б1 MAXIMUM (2009) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Авторская песняРежиссер: Gala-recordsАктеры: МКПН
+
+Обложку DVD нарисовал, как всегда, сам Пётр. На самом диске есть бонусыПродолжительность: 01:16:32 (концерт - 58:32, интервью - 8:41, ролики - 8:24)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCFD76BB20BBCA6735850FEC05C03293F02DD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468000   (96840) от 16.03.2012
+
+Сурганова и Оркестр  (15.11.2011) концерт в Киеве ЦКИ НАУ <Rock> CamRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_96840.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Интро
+ 002 Увидимся скоро
+ 003 Хвала
+ 004 SanctumSanctorum(   Читать дальше...   )Жанр: RockПродолжительность: 02:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1F2F8220CD74837F2807051ACD97FAEC87CD96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 462395   (95522) от 04.03.2012
 
 Сурганова и Оркестр (21.04.2006) в клубе Порт<Rock> CamRip
@@ -6,7 +167,7 @@
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_95522.jpg" />
 </div>
 
 
@@ -36,7 +197,7 @@ Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94904.jpg" />
 </div>
 
 
@@ -62,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94645.jpg" />
 </div>
 
 
@@ -91,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94506.jpg" />
 </div>
 
 
@@ -117,7 +278,7 @@ Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_94209.jpg" />
 </div>
 
 
@@ -143,7 +304,7 @@ Pretenders - Loose in L.A. (2003/2012) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91070.jpg" />
 </div>
 
 
@@ -178,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90867.jpg" />
 </div>
 
 
@@ -204,7 +365,7 @@ Chloe Agnew (Celtic Woman) Walking In The Air (2005) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_90425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90425.jpg" />
 </div>
 
 
@@ -239,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89736.jpg" />
 </div>
 
 
@@ -268,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89683.jpg" />
 </div>
 
 
@@ -297,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89414.jpg" />
 </div>
 
 
@@ -326,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89269.jpg" />
 </div>
 
 
@@ -355,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89015.jpg" />
 </div>
 
 
@@ -381,7 +542,7 @@ Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88840.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88840.jpg" />
 </div>
 
 
@@ -410,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88747.jpg" />
 </div>
 
 
@@ -440,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88392.jpg" />
 </div>
 
 
@@ -469,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88265.jpg" />
 </div>
 
 
@@ -498,7 +659,7 @@ Deep Purple - Phoenix Rising (2011) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87978.jpg" />
 </div>
 
 
@@ -528,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87725.jpg" />
 </div>
 
 
@@ -557,7 +718,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87524.jpg" />
 </div>
 
 
@@ -568,180 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46FC4F39F433E5515249B9ED0FD258665A414A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480393   (87461) от 09.04.2012
-
-Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 0:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7821E8C23966F164F40C2710B7154CC11D7BADA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479834   (87434) от 09.04.2012
-
-Пушкин. Евгений Онегин / читает Сергей Юрский (1999) VHSRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: поэзияРежиссер: Наталия СероваПродолжительность: 02:21:24 + 02:35:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697F2761F02F2EC3875C9D72CA1DD3AFEC9B6B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479723   (87234) от 08.04.2012
-
-Bee Gees - The Ultimate DVD only (2009) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/RockРежиссер: VariosАктеры: Bee Gees: Barry, Robin and Maurice GibbПеревод: ОтсутствуетПродолжительность: 1:05:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479346   (87227) от 08.04.2012
-
-ABBA - Number Ones (2006) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом-компиляция шведской группы ABBA, выпущенный Universal Music Group в 2006 году. Этот альбом (DVD-версия) включает видеоклипы песен, ставших хитами №1 в ведущих хит-парадах разных стран.1. Gimme! Gimme! Gimme! (A Man After Midnight)
-2. Mamma Mia
-3. Dancing Queen
-4. Super Trouper
-5. SOS
-6. Summer Night City
-7. Money, Money, Money
-8. The Winner Takes It All
-9. Chiquitita
-10. One Of Us(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:54:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479498   (87197) от 08.04.2012
-
-Simon and Garfunkel - The Concert In Central Park, 1981 (2004) DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый концерт легендарного дуэта в центральном парке Нью-Йорка в сентябре 1981 года. Они спели для более чем 500.000 зрителей совершенно бесплатно!!!01. "Mrs. Robinson"
-02. "Homeward Bound"
-03. "America"
-04. "Me and Julio Down by the Schoolyard"
-05. "Scarborough Fair" (traditional, arr. Paul Simon and Art Garfunkel)
-06. "April Come She Will"
-07. "Wake Up Little Susie" (Felice and Boudleaux Bryant)
-08. "Still Crazy After All These Years"
-09. "American Tune"
-10. "Late in the Evening"(   Читать дальше...   )Режиссер: Michael Lindsay-HoggПеревод: Отсутствует
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479248   (87167) от 08.04.2012
-
-John Lennon / Lennon - Legend - The Very Best of John Lennon (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic Rock, ДокументальныйРежиссер: Yoko Ono, James ChadsАктеры: John Lennon, Yoko Ono, Miles Davis, Brian Epstein, Mal EvansПеревод: ОтсутствуетПродолжительность: 01:41:43
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

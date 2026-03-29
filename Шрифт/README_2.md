@@ -1,3 +1,107 @@
+###  Публикация: 1111625   (848165) от 05.03.2017
+
+Шрифты - CreativeMarket - ChapterOne - 4 Font Styles+Extras [TTF, OTF, AI, EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848165.jpg" />
+</div>
+
+
+###  Подробнее
+
+ChapterOne интересный шрифт, с старинным конденсированным характером и OpenType особенностью. Этот пакет включает специальные принадлежности - логотип, и вы можете редактировать это. Подходит и применяется для создания дизайна брендов, логотипов, упаковок продукции, приглашений, этикеток и многое другое.Формат: TTF, OTF, AI, EPS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73AA28C74C91A97DE0335BD08E721E0A7194D861
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111639   (848163) от 05.03.2017
+
+Шрифты - CreativeMarket - daydream [OTF, TTF, SVG, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daydream является шрифтом, который имеет характер вверх и вниз, как танцор. Шрифт имеет очень уникальный стиль каллиграфии, он очень подходит для использования в работе современного дизайна. Может использоваться в качестве заголовков, логотипов, свадебных приглашений и многое другое.Формат: OTF, TTF, EOT, SVG, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1BD81E26783BE9324C5D20346B4A26FE7CF9363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111633   (848155) от 05.03.2017
+
+Шрифты - CreativeMarket - Borders, a hand brushed font [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848155.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый и оригинальный шрифт похожий на кисть, который имеет верхний и нижний регистр символов.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F8302D0E3CC79CD406BE7B52BC935AFA8245794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111727   (846405) от 06.03.2017
+
+Шрифты - CreativeMarket - Rhinos Rocks +Swashes [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846405.jpg" />
+</div>
+
+
+###  Подробнее
+
+RHINOS ROCKS является кистевым шрифт, он включая все глифы США и поставляется в обычной и наклонной версии. Сделано с круглым маркером и реалистичные движения в нем. Очень интересно использовать для логотипов, упаковок продуктов, товаров, поздравительных открыток и многое другое.Формат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280D2B29BF91DD70F95409EB1D93864509C5C4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111726   (846404) от 06.03.2017
 
 Шрифты - TheHungryJPEG - The FREE March Fonts Bundle [TTF, OTF, EOT, WOFF]
@@ -6,7 +110,7 @@
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846404.jpg" />
+  <img src="Z:/picture/008/save_picture_846404.jpg" />
 </div>
 
 
@@ -33,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846307.jpg" />
+  <img src="Z:/picture/008/save_picture_846307.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842694.jpg" />
+  <img src="Z:/picture/008/save_picture_842694.jpg" />
 </div>
 
 
@@ -88,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834968.jpg" />
+  <img src="Z:/picture/008/save_picture_834968.jpg" />
 </div>
 
 
@@ -117,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834944.jpg" />
+  <img src="Z:/picture/008/save_picture_834944.jpg" />
 </div>
 
 
@@ -146,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834927.jpg" />
+  <img src="Z:/picture/008/save_picture_834927.jpg" />
 </div>
 
 
@@ -175,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834765.jpg" />
+  <img src="Z:/picture/008/save_picture_834765.jpg" />
 </div>
 
 
@@ -204,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834657.jpg" />
+  <img src="Z:/picture/008/save_picture_834657.jpg" />
 </div>
 
 
@@ -233,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834642.jpg" />
+  <img src="Z:/picture/008/save_picture_834642.jpg" />
 </div>
 
 
@@ -262,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833293.jpg" />
 </div>
 
 
@@ -290,7 +394,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833144.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833143.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829243.jpg" />
 </div>
 
 
@@ -377,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829182.jpg" />
 </div>
 
 
@@ -403,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825968.jpg" />
 </div>
 
 
@@ -430,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825963.jpg" />
 </div>
 
 
@@ -457,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823255.jpg" />
 </div>
 
 
@@ -485,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822457.jpg" />
 </div>
 
 
@@ -513,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811603.jpg" />
+  <img src="Z:/picture/008/save_picture_811603.jpg" />
 </div>
 
 
@@ -539,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811454.jpg" />
+  <img src="Z:/picture/008/save_picture_811454.jpg" />
 </div>
 
 
@@ -565,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811453.jpg" />
+  <img src="Z:/picture/008/save_picture_811453.jpg" />
 </div>
 
 
@@ -591,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811447.jpg" />
+  <img src="Z:/picture/008/save_picture_811447.jpg" />
 </div>
 
 
@@ -602,110 +706,6 @@ Inspecture Brush Script - это новый шрифт, обработанный
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D45FD53783C12238D30850C0B4050983BC4E6BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198092   (811446) от 09.01.2018
-
-Шрифты - Creative Market - Elf—handwritten font - 1632938 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elf - сложный ручной шрифт для элегантных надписей, который был сначала нарисован и тщательно обработан на бумаге, а затем был оцифрован и превращен в функционирующий шрифт. Elf является частью Rabbits, большой тематической коллекции очень эмоциональных рукописных шрифтов. Этот шрифт может стать звездой вашего дизайна или просто внести свой вклад в это. Его диапазон (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADCF0E992CFF08AE3C7E338D967699CB846969F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198121   (809841) от 10.01.2018
-
-Шрифты - Creative  Market - Hatter Display Pro/ All Bundle - 2006944 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hatter Display Pro - это самая полная и окончательная версия Hatter, которая содержит 12 шрифтов, среди которых содержится кириллица, Swash, Alternatives, Dingbats, Ornaments.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE381407749251278050DA1CDB8BFB6A3C160416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198125   (809714) от 10.01.2018
-
-Шрифты - Creative Market - Mucho Gusto Font Family - 2084613 [OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новой семейство шрифтов Mucho Gusto, которое состоит из трех шрифтов: Script, Extras (буквенные обозначения, стрелки) и Doodles. Это семейство шрифтов было создано специально для пищевой промышленности и отлично смотрится в меню, логотипы ресторана, карты рецептов, упаковка продукта, кружки и многое другое.Формат: OTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE89C484693588F7F6A39A79B95AF7C41BFED21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198586   (805912) от 12.01.2018
-
-Шрифты - Creative Market - Font Big Madness (Latin & Cyrillic) - 2077468 [OTF, WOFF, EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805912.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот довольно игривый и веселый шрифт подойдет любителям юмора, так как фразы от скучного и обычного написанного им превращаются в интересные и забавные написания.Формат: OTF, WOFF, EPS, AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E17AD6E8F50880B6FBDB3483041B7E9CE55638
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Sonar - Volt Revisited (2003) Hands Productions [FLAC|Lossless|Vinyl|tracks] <Rh
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746126.jpg" />
+  <img src="Z:/picture/008/save_picture_746126.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Phase Fatale - Scanning Backwards (2020) [FLAC|Lossless|tracks + .cue] <EBM, Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745441.jpg" />
+  <img src="Z:/picture/005/save_picture_745441.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Sufjan Stevens, Bryce Dessner, Nico Muhly, James McAlister: Planetarium (20
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734921.jpg" />
+  <img src="Z:/picture/008/save_picture_734921.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Dormantgod - Animated Bas-Reliefs (2007) [FLAC|Lossless|image + .cue] <Dark Ambi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725070.jpg" />
+  <img src="Z:/picture/008/save_picture_725070.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ben Frost - A U R O R A (2014) [FLAC|Lossless|WEB-DL]<Experimental, Industrial, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720465.jpg" />
+  <img src="Z:/picture/008/save_picture_720465.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Zentriert ins Antlitz (E.M.I.T.R, Innovation Reality) - Discography 16 Releases 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716571.jpg" />
+  <img src="Z:/picture/008/save_picture_716571.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ OSSIA - Devil’s Dance (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dron
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713163.jpg" />
+  <img src="Z:/picture/008/save_picture_713163.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Klangstabil - Collection 10 Releases (1995-2015) Ant-Zen, MHz [FLAC|Lossless|tra
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712360.jpg" />
+  <img src="Z:/picture/008/save_picture_712360.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Ost+Front - Dein Helfer In Der Not (2020) 3xCD [FLAC|Lossless|image + .cue] <Ind
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711151.jpg" />
+  <img src="Z:/picture/008/save_picture_711151.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Dive - Underneath (2017) [FLAC|Lossless|WEB-DL|tracks] <EBM, Darkwave, Industria
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710656.jpg" />
+  <img src="Z:/picture/008/save_picture_710656.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Ensemble Economique - In Silhouette (2017) [FLAC|Lossless|Web-DL|tracks] <Experi
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_695813.jpg" />
+  <img src="Z:/picture/005/save_picture_695813.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Vanilla - Origin (2015) [FLAC|Lossless|Web-DL|tracks] <Electronic, Jazz, Experim
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694450.jpg" />
+  <img src="Z:/picture/008/save_picture_694450.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ iVardensphere - Discography 15 Releases (2009-2017) [FLAC|Lossless|tracks+.cue, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692987.jpg" />
+  <img src="Z:/picture/008/save_picture_692987.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Rammstein - Zeit (2022) Single [FLAC|Lossless|image + .cue] <Industrial>
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670612.jpg" />
+  <img src="Z:/picture/008/save_picture_670612.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Rammstein - Remixes (2020) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Elec
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664277.jpg" />
+  <img src="Z:/picture/008/save_picture_664277.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Edward Ka-Spel, Jetzmann/L.Ski & Asmus Tietchens - Das Digitale Vertrauen (1997)
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652206.jpg" />
+  <img src="Z:/picture/008/save_picture_652206.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Chiptune Radio - 8-bit tribute to The Offspring (2015) [FLAC|Lossless|tracks] <8
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645693.jpg" />
+  <img src="Z:/picture/008/save_picture_645693.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Atsushi Izumi - Snow (2018) Subtrakt [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644878.jpg" />
+  <img src="Z:/picture/008/save_picture_644878.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Igorrr - Savage Sinusoid (2017) [FLAC|Lossless|tracks+.cue] <Breakcore, Black Me
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644469.jpg" />
+  <img src="Z:/picture/008/save_picture_644469.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Tabor Radosti (Tábor Radosti) - Discography 6 Releases (2001-2016) [FLAC|Lossle
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633139.jpg" />
+  <img src="Z:/picture/008/save_picture_633139.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Blutengel - Labyrinth (2007) Limited Edition, 2CD Box Set [FLAC|Lossless|image +
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622193.jpg" />
+  <img src="Z:/picture/008/save_picture_622193.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Blutengel - Erlosung - The Victory of Light (2021) Deluxe Edition, 2CD Box Set [
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622069.jpg" />
+  <img src="Z:/picture/008/save_picture_622069.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Hocico - HyperViolent (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, El
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618396.jpg" />
+  <img src="Z:/picture/008/save_picture_618396.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Death Loves Veronica - Lucid Dreams (2020) [FLAC|Lossless|WEB-DL|tracks] <Darkwa
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613167.jpg" />
+  <img src="Z:/picture/008/save_picture_613167.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Death Loves Veronica - Chemical (2021) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, 
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611238.jpg" />
+  <img src="Z:/picture/008/save_picture_611238.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Death Loves Veronica - Corruption for the Insidious (2022) [FLAC|Lossless|WEB-DL
 >>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609511.jpg" />
+  <img src="Z:/picture/008/save_picture_609511.jpg" />
 </div>
 
 

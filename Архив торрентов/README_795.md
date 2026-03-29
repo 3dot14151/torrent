@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870172.jpg" />
+  <img src="Z:/picture/008/save_picture_870172.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870171.jpg" />
+  <img src="Z:/picture/008/save_picture_870171.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870170.jpg" />
+  <img src="Z:/picture/008/save_picture_870170.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870169.jpg" />
+  <img src="Z:/picture/008/save_picture_870169.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870168.jpg" />
+  <img src="Z:/picture/008/save_picture_870168.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870166.jpg" />
+  <img src="Z:/picture/008/save_picture_870166.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870164.jpg" />
+  <img src="Z:/picture/008/save_picture_870164.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ AnyMP4 PDF Converter Ultimate 3.2.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870161.jpg" />
+  <img src="Z:/picture/008/save_picture_870161.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870160.jpg" />
+  <img src="Z:/picture/008/save_picture_870160.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ AutoMounter 1.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870159.jpg" />
+  <img src="Z:/picture/008/save_picture_870159.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ VA - The Sound Of Trance Vol.02 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870158.jpg" />
+  <img src="Z:/picture/008/save_picture_870158.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ ReadKit 2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870152.jpg" />
+  <img src="Z:/picture/008/save_picture_870152.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Framer Studio v84 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870150.jpg" />
+  <img src="Z:/picture/008/save_picture_870150.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ R-Studio 7.8 Build 160829 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870149.jpg" />
+  <img src="Z:/picture/008/save_picture_870149.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Download Master 6.8.1.1509 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870141.jpg" />
+  <img src="Z:/picture/008/save_picture_870141.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870134.jpg" />
+  <img src="Z:/picture/008/save_picture_870134.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Steve Birch - Wonderland (2017) [MP3|320 Kbps] <Psy-Trance , Progressive Psy-Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870077.jpg" />
+  <img src="Z:/picture/008/save_picture_870077.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Trancefusion Chapter 2 (Compiled by Boom Shankar) (2017) [MP3|320 Kbps] <Ps
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870073.jpg" />
+  <img src="Z:/picture/008/save_picture_870073.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Blochemy - Da Mear (2016) [MP3|320 кб/с] <IDM, Glitch, Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870071.jpg" />
+  <img src="Z:/picture/008/save_picture_870071.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870063.jpg" />
+  <img src="Z:/picture/008/save_picture_870063.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870055.jpg" />
+  <img src="Z:/picture/008/save_picture_870055.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ GreenCloud Printer Pro 7.7.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870051.jpg" />
+  <img src="Z:/picture/008/save_picture_870051.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ AIMP 4.01 Build 1705 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870049.jpg" />
+  <img src="Z:/picture/008/save_picture_870049.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Audirvana Plus 2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870044.jpg" />
+  <img src="Z:/picture/008/save_picture_870044.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870040.jpg" />
+  <img src="Z:/picture/008/save_picture_870040.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870039.jpg" />
+  <img src="Z:/picture/008/save_picture_870039.jpg" />
 </div>
 
 

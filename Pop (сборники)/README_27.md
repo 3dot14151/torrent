@@ -1,3 +1,61 @@
+###  Публикация: 1119016   (809596) от 27.03.2017
+
+VA - Танцевальная вечеринка на Hit FM выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809596.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Слава Басюл - Ты Меня Ранишь Поцелуями 4:45
+002. Тина Кароль - Lost In The Rain 3:18
+003. Алина Башкина Feat. Dj Andrey Sanin - Ты Изменил Мою Жизнь 3:18
+004. Oleynik - Остановись 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656622359110D0CD64D045104F76D61EE9683983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119020   (809465) от 27.03.2017
+
+VA - Лучший весенний хит. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_809465.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. София Куценко - Луна 3:34
+002. Виталий Козловский - Мое Желание 3:31
+003. Зара - Забыть О Тебе 3:32
+004. Bubble Gum - Вытворяют Чудеса 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EF37BF9DD224E42972F21A0E9191B6EAB90162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119024   (809462) от 27.03.2017
 
 VA - Отдыхаем с лучшими хитами. Звездная тусовочка выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
@@ -6,7 +64,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809462.jpg" />
+  <img src="Z:/picture/008/save_picture_809462.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - 100-ка популярных весенних хитов выпуск № 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809455.jpg" />
+  <img src="Z:/picture/008/save_picture_809455.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Mr.Credo - Ч@родей (2015) [MP3|256-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809361.jpg" />
+  <img src="Z:/picture/008/save_picture_809361.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Музыкальный презент хорошей музыки на Euro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809291.jpg" />
+  <img src="Z:/picture/008/save_picture_809291.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Молодежный бум хитовый. Сборник № 8 (2017) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809290.jpg" />
+  <img src="Z:/picture/008/save_picture_809290.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Только хиты. Русский сборник от Хит fm вып�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809153.jpg" />
+  <img src="Z:/picture/008/save_picture_809153.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - German Top 100 Single Charts 12.01.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808155.jpg" />
+  <img src="Z:/picture/008/save_picture_808155.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - На волне позитива. Сборник № 7 (2017) [MP3|256 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807477.jpg" />
+  <img src="Z:/picture/008/save_picture_807477.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Весенняя танцевальная вечеринка выпуск �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807351.jpg" />
+  <img src="Z:/picture/008/save_picture_807351.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Весенняя сотка популярных треков (2017) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807337.jpg" />
+  <img src="Z:/picture/008/save_picture_807337.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Joe Dassin - Joe Dassin & Toto Cutugno (2018) Compilations [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806054.jpg" />
+  <img src="Z:/picture/008/save_picture_806054.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Hit Music (лето 2020) от Мяу (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804044.jpg" />
+  <img src="Z:/picture/008/save_picture_804044.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Бомба Hits. Весенний (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803550.jpg" />
+  <img src="Z:/picture/008/save_picture_803550.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Музыка солнца (2014) [MP3|192-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803458.jpg" />
+  <img src="Z:/picture/008/save_picture_803458.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Dинамик. Весна (2017) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803449.jpg" />
+  <img src="Z:/picture/008/save_picture_803449.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Русский хит. Самые сливки дискотек 80-90х (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802225.jpg" />
+  <img src="Z:/picture/008/save_picture_802225.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802112.jpg" />
+  <img src="Z:/picture/008/save_picture_802112.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - De Top 100 Aller Tijden 1976 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801769.jpg" />
+  <img src="Z:/picture/008/save_picture_801769.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Положительный заряд Hit FM. Версия № 5 (2017) [MP
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800652.jpg" />
+  <img src="Z:/picture/008/save_picture_800652.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Звездная тусовочка. Часть № 4 (2017) [MP3|256 Kbps]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800649.jpg" />
+  <img src="Z:/picture/008/save_picture_800649.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Лучший весенний хит выпуск № 8 (2017) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800646.jpg" />
+  <img src="Z:/picture/008/save_picture_800646.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Музыкальный презент на Europa Plus выпуск № 7 (
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800641.jpg" />
+  <img src="Z:/picture/008/save_picture_800641.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Танцевальная вечеринка Хит FM. Выпуск № 6 (
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800605.jpg" />
+  <img src="Z:/picture/008/save_picture_800605.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Любимые хиты весны. Версия № 7 (2017) [MP3|256 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800602.jpg" />
+  <img src="Z:/picture/008/save_picture_800602.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Любимые хиты весны. Версия № 7 (2017) [MP3|256 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FA96A6A2F11006F977680DD9EDCEE57DBD8D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120988   (800601) от 02.04.2017
-
-VA - Лучшая дискотека на Europa Plus. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800601.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vavan Aka Вова Селиванов - Хулиганка 3:36
-002. Мария Миа - Я Буду 2:50
-003. Mainstream One - Нам Солнце Светит Ярче 3:00
-004. Регина Тодоренко - Не Обижу 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DCB313235FADCA32EA74F871DFE7F8887E9DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120971   (800555) от 02.04.2017
-
-VA - Музыкальный подарок от Европы Плюс. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800555.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ирма Нойман - Я Буду 2:51
-002. Ольга Орлова - Девушка Простая 3:35
-003. А-Студио - Только С Тобой 4:19
-004. Майк Павлов - Лайки 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82BFFFDAED399C0AECEFB3902FC50B1A3733000C
 ```
 
 https://mybot314.ru/tekegram_catalog/

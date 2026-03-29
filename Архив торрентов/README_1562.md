@@ -6,7 +6,7 @@ DjVu Reader Pro 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697065.jpg" />
+  <img src="Z:/picture/008/save_picture_697065.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ BBEdit 12.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697058.jpg" />
+  <img src="Z:/picture/008/save_picture_697058.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697047.jpg" />
+  <img src="Z:/picture/008/save_picture_697047.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Man vs. Wild [Wii] [NTSC] [ENG] (2011)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697033.jpg" />
+  <img src="Z:/picture/008/save_picture_697033.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ The First Templar / The First Templar: В поисках Святого Граа
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_697028.jpg" />
+  <img src="Z:/picture/005/save_picture_697028.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697005.jpg" />
+  <img src="Z:/picture/008/save_picture_697005.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697004.jpg" />
+  <img src="Z:/picture/008/save_picture_697004.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Beyond Compare 4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697001.jpg" />
+  <img src="Z:/picture/008/save_picture_697001.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Vivaldi 1.9.818.49 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696998.jpg" />
+  <img src="Z:/picture/008/save_picture_696998.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Bulk Crap Uninstaller 3.8.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696989.jpg" />
+  <img src="Z:/picture/008/save_picture_696989.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696987.jpg" />
+  <img src="Z:/picture/008/save_picture_696987.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ AusLogics BoostSpeed Premium 7.9.0.0 DC 07.05.2015 RePack (& Portable) by KpoJIu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696984.jpg" />
+  <img src="Z:/picture/008/save_picture_696984.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Nero Burning ROM & Nero Express 2015 16.0.24.0 Portable by PortableAppZ [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696976.jpg" />
+  <img src="Z:/picture/008/save_picture_696976.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Speaking clock DVBeep Pro 6.0.6 [Ru] - Говорящие часы
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696972.jpg" />
+  <img src="Z:/picture/008/save_picture_696972.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696947.jpg" />
+  <img src="Z:/picture/008/save_picture_696947.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Postbox 5.0.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696940.jpg" />
+  <img src="Z:/picture/008/save_picture_696940.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ VA - Progressive Goa Trance 2017 Vol.2 (2017) [MP3|320 Kbps] <Psy-Trance, Psyche
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696936.jpg" />
+  <img src="Z:/picture/008/save_picture_696936.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Any Video Converter Ultimate 6.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696935.jpg" />
+  <img src="Z:/picture/008/save_picture_696935.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Windows 7 Manager 5.1.0 RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696925.jpg" />
+  <img src="Z:/picture/008/save_picture_696925.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Microsoft Visio 2016 Professional Preview 16.0.3930.1008 [Ru/En] (онлайн-�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696918.jpg" />
+  <img src="Z:/picture/008/save_picture_696918.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696887.jpg" />
+  <img src="Z:/picture/008/save_picture_696887.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696885.jpg" />
+  <img src="Z:/picture/008/save_picture_696885.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696884.jpg" />
+  <img src="Z:/picture/008/save_picture_696884.jpg" />
 </div>
 
 
@@ -626,7 +626,7 @@ Wise Care 365 Pro 4.63.441 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696879.jpg" />
+  <img src="Z:/picture/008/save_picture_696879.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ Shaggy - Out Of Many, One Music (2013) [FLAC|Lossless|tracks + .cue] <Reggae, Da
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696871.jpg" />
+  <img src="Z:/picture/008/save_picture_696871.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Cacheman 10.10.0.12 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696860.jpg" />
+  <img src="Z:/picture/008/save_picture_696860.jpg" />
 </div>
 
 

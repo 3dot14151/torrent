@@ -1,3 +1,29 @@
+###  Публикация: 1166106   (426299) от 16.09.2017
+
+23 Греха / Kuttram 23 (2017) DVDRip [HIN/Ru Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426299.jpg" />
+</div>
+
+
+###  Подробнее
+
+стория начинается с девушки по имени Джессика. Во время исповедования своих грехов священнику в церкви Св. Фомы на окраине Ченнаи, Джессику похищают. Помощник комиссара инспектор Ветриман, расследуя это загадочное исчезновение, узнает, что последний, кто ее видел был священник отец Джозеф. Но и он загадочным образом был убит. В это же время, старший брат Ветримана (   Читать дальше...   )Производство: ИндияЖанр: Криминал, ТриллерРежиссер: АривазхаганАктеры: Абхиная, Амит Бхаргава, Аравинд Акаш, Арун Виджай, Вамси Кришна, Махима Намбияр, Миша Гошал, Нилима Рани, Суджа Варуни, Тамби РамайаПеревод: ОтсутствуетЯзык озвучки: хиндиСубтитры: Русские,неотключаемыеПродолжительность: 02:07:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5971A1C053F1AF5E563060920CD4C788B652B236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 693705   (425603) от 10.10.2013
 
 Перед полуночью / Before Midnight (2013) HDRip [EN / EN, RU Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425603.jpg" />
+  <img src="Z:/picture/008/save_picture_425603.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423173.jpg" />
+  <img src="Z:/picture/008/save_picture_423173.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417490.jpg" />
+  <img src="Z:/picture/008/save_picture_417490.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414033.jpg" />
+  <img src="Z:/picture/008/save_picture_414033.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413025.jpg" />
+  <img src="Z:/picture/008/save_picture_413025.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411329.jpg" />
+  <img src="Z:/picture/008/save_picture_411329.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409333.jpg" />
+  <img src="Z:/picture/008/save_picture_409333.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407056.jpg" />
+  <img src="Z:/picture/008/save_picture_407056.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_406050.jpg" />
+  <img src="Z:/picture/005/save_picture_406050.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404782.jpg" />
+  <img src="Z:/picture/008/save_picture_404782.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402784.jpg" />
+  <img src="Z:/picture/008/save_picture_402784.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396580.jpg" />
+  <img src="Z:/picture/008/save_picture_396580.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391679.jpg" />
+  <img src="Z:/picture/008/save_picture_391679.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385158.jpg" />
+  <img src="Z:/picture/008/save_picture_385158.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377753.jpg" />
+  <img src="Z:/picture/008/save_picture_377753.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377063.jpg" />
+  <img src="Z:/picture/008/save_picture_377063.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377051.jpg" />
+  <img src="Z:/picture/008/save_picture_377051.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360833.jpg" />
+  <img src="Z:/picture/008/save_picture_360833.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360012.jpg" />
+  <img src="Z:/picture/008/save_picture_360012.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356159.jpg" />
+  <img src="Z:/picture/008/save_picture_356159.jpg" />
 </div>
 
 
@@ -530,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354854.jpg" />
+  <img src="Z:/picture/008/save_picture_354854.jpg" />
 </div>
 
 
@@ -557,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348512.jpg" />
+  <img src="Z:/picture/008/save_picture_348512.jpg" />
 </div>
 
 
@@ -583,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339824.jpg" />
+  <img src="Z:/picture/008/save_picture_339824.jpg" />
 </div>
 
 
@@ -609,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337178.jpg" />
+  <img src="Z:/picture/008/save_picture_337178.jpg" />
 </div>
 
 
@@ -635,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337012.jpg" />
+  <img src="Z:/picture/008/save_picture_337012.jpg" />
 </div>
 
 
@@ -646,32 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:014A1AAEAAFF38FE1CF962036D9AE952D61BB8C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181129   (335190) от 06.11.2017
-
-Бомбила / Ryde (2016) BDRip [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Технологии нас сближают, но порой незнакомцы становятся слишком близки к нам. Насколько вы действительно можете кому-то доверять? С новым приложением для такси никогда не знаешь, кто тебе попадётся. И сможешь ли доехать до места живым…Производство: США, Vega EntertainmentЖанр: Ужасы, ТриллерРежиссер: Brian Frank ViscigliaАктеры: Дэвид Уочс, Джессика Серфати, Ронни Альварес, Kyle Thomas Schmidt, Вероника Лорен, Дельпано Виллис, Valerie Lynn Smith, Dylan Taylor, Ририа Ниимура, Chance GuessПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA392C623F99AD5AB9319F9C8F79C1A5B7DA24C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

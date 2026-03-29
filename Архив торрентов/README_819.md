@@ -6,7 +6,7 @@
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863963.jpg" />
+  <img src="Z:/picture/008/save_picture_863963.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dism++ 10.1.4.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863957.jpg" />
+  <img src="Z:/picture/008/save_picture_863957.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.70.3800 Final + P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863955.jpg" />
+  <img src="Z:/picture/008/save_picture_863955.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863954.jpg" />
+  <img src="Z:/picture/008/save_picture_863954.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The KMPlayer 4.0.6.4 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863953.jpg" />
+  <img src="Z:/picture/008/save_picture_863953.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ K-Lite Codec Pack 12.0.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863951.jpg" />
+  <img src="Z:/picture/008/save_picture_863951.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Rhinoceros 5 v5.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863924.jpg" />
+  <img src="Z:/picture/008/save_picture_863924.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Vertus Fluid Mask 3.3.16 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863923.jpg" />
+  <img src="Z:/picture/008/save_picture_863923.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Marmoset Hexels 2 v2.03 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863921.jpg" />
+  <img src="Z:/picture/008/save_picture_863921.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ XWiki Enterprise 8.0 Portable by LuchS_52 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863920.jpg" />
+  <img src="Z:/picture/008/save_picture_863920.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ TeraCopy Pro 3.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863915.jpg" />
+  <img src="Z:/picture/008/save_picture_863915.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Adobe components: Flash Player 24.0.0.221 + AIR 24.0.0.180 + Shockwave Player 12
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863914.jpg" />
+  <img src="Z:/picture/008/save_picture_863914.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ TidyTabs 1.2.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863908.jpg" />
+  <img src="Z:/picture/008/save_picture_863908.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Kaleidoscope 2.3.1 (build 1441) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863899.jpg" />
+  <img src="Z:/picture/008/save_picture_863899.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ NetBalancer 9.16.2 build 2295 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863895.jpg" />
+  <img src="Z:/picture/008/save_picture_863895.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4805.1001 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863842.jpg" />
+  <img src="Z:/picture/008/save_picture_863842.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863833.jpg" />
+  <img src="Z:/picture/008/save_picture_863833.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Autodesk AutoCAD 2017 N.52.0.0 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863832.jpg" />
+  <img src="Z:/picture/008/save_picture_863832.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4805.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863831.jpg" />
+  <img src="Z:/picture/008/save_picture_863831.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Balrum (2016) [En] (1.06) Repack АRMENIAC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863830.jpg" />
+  <img src="Z:/picture/008/save_picture_863830.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ CCleaner 5.16.5551 Free | Professional | Business | Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863825.jpg" />
+  <img src="Z:/picture/008/save_picture_863825.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ NETGATE Spy Emergency 24.0.300.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863801.jpg" />
+  <img src="Z:/picture/008/save_picture_863801.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ AV Uninstall Tools Pack 2017.02 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863794.jpg" />
+  <img src="Z:/picture/008/save_picture_863794.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Drainworks 1.3.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863768.jpg" />
+  <img src="Z:/picture/008/save_picture_863768.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Pano2VR Pro 6.1.5 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863739.jpg" />
+  <img src="Z:/picture/008/save_picture_863739.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Loaris Trojan Remover 3.1.24.1455 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863738.jpg" />
+  <img src="Z:/picture/008/save_picture_863738.jpg" />
 </div>
 
 

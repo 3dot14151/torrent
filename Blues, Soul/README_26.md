@@ -1,3 +1,32 @@
+###  Публикация: 1162559   (456821) от 02.09.2017
+
+Elles Bailey - Wildfire (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildfire (04:34)
+02. Same Flame (03:23)
+03. What If I (03:33)
+04. Barrel Of Your Gun (03:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A92A9DEFE24DA4CFA32D03E9499F06757F37F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060511   (455309) от 07.10.2016
 
 Jerimiah Marques And The Blue Aces - Winning Hand (2016) [MP3|320 Kbps] <Electric Blues>
@@ -6,7 +35,7 @@ Jerimiah Marques And The Blue Aces - Winning Hand (2016) [MP3|320 Kbps] <Electri
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455309.jpg" />
+  <img src="Z:/picture/008/save_picture_455309.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Dudley Taft - Summer Rain (2017) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454849.jpg" />
+  <img src="Z:/picture/008/save_picture_454849.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Jorge Salán & The Majestic Jaywalkers - Graffire (2016) [MP3|320 Kbps] <Blues R
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453540.jpg" />
+  <img src="Z:/picture/008/save_picture_453540.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Chicago Plays The Stones (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451199.jpg" />
+  <img src="Z:/picture/008/save_picture_451199.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Popa Chubby - The Catfish (2016) [MP3|320 Kbps] <Modern NY Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450610.jpg" />
+  <img src="Z:/picture/008/save_picture_450610.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Russian Money - Nothing for You There (2016) [MP3|320 Kbps] <Blues, Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450606.jpg" />
+  <img src="Z:/picture/008/save_picture_450606.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Aynsley Lister - Eyes Wide Open (2016) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448999.jpg" />
+  <img src="Z:/picture/008/save_picture_448999.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Peter Ward - Blues On My Shoulders (2017) [MP3|320 Kbps] <Electric Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448543.jpg" />
+  <img src="Z:/picture/008/save_picture_448543.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Peter Parcek - Mississippi Suitcase (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447486.jpg" />
+  <img src="Z:/picture/008/save_picture_447486.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Eric Johanson - Below Sea Level (2020) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447478.jpg" />
+  <img src="Z:/picture/008/save_picture_447478.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Marshall Okell - Sipping on Rocket Fuel (2015) [MP3|320 кб/с]<Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447467.jpg" />
+  <img src="Z:/picture/008/save_picture_447467.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Eight O'Five Jive - Too Many Men (2014) [MP3|320 кб/с]<Jump Blues, Swing>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447403.jpg" />
+  <img src="Z:/picture/008/save_picture_447403.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Lou Pallo - Thank You Les. A Tribute To Les Paul (2012) [MP3|320 кб/с]<Jazz, 
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446099.jpg" />
+  <img src="Z:/picture/008/save_picture_446099.jpg" />
 </div>
 
 
@@ -395,7 +424,7 @@ Gary Moore - Blues For Jimi (Live) (2012) [MP3|~245 кб/с (V0)]<Rock, Hard Roc
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446089.jpg" />
+  <img src="Z:/picture/008/save_picture_446089.jpg" />
 </div>
 
 
@@ -424,7 +453,7 @@ Betty Blackmail Band - Murky Waters (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442416.jpg" />
+  <img src="Z:/picture/008/save_picture_442416.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ Gaetano Pellino - 2nd Century Blues (2013) [MP3|320 Kbps] <Blues, Modern Electri
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442407.jpg" />
+  <img src="Z:/picture/008/save_picture_442407.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ Linsey Alexander - My Days Are So Long (2009) [MP3|320 Kbps] <Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440581.jpg" />
+  <img src="Z:/picture/008/save_picture_440581.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ Kim Simmonds And Savoy Brown - The Devil To Pay (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440519.jpg" />
+  <img src="Z:/picture/008/save_picture_440519.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ Dave P. Moore - Fort Necessity (2019) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437874.jpg" />
+  <img src="Z:/picture/008/save_picture_437874.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Nick Waterhouse - Never Twice (2016) [MP3|320 Kbps] <Rhythm & Blues, Rock'n'Roll
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437278.jpg" />
+  <img src="Z:/picture/008/save_picture_437278.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Delta Moon - Babylon Is Falling (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435536.jpg" />
+  <img src="Z:/picture/008/save_picture_435536.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Willie May - Blues Mona (2015) [MP3|320 кб/с]<Blues, Country Blues, Funky>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433933.jpg" />
+  <img src="Z:/picture/008/save_picture_433933.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Cass Greaves - He's Whiskey in a Teacup (2015) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433922.jpg" />
+  <img src="Z:/picture/008/save_picture_433922.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ White Night Blues - Live in Poland (2010) [MP3|320 кб/с]<Blues>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433921.jpg" />
+  <img src="Z:/picture/008/save_picture_433921.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ The Alabama Lovesnakes - III (2018) [MP3|320 Kbps] <Blues Rock>
 >>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431203.jpg" />
+  <img src="Z:/picture/008/save_picture_431203.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ The Alabama Lovesnakes - III (2018) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9314CC91786C75B4696239435196D549ADC6E28E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063981   (430342) от 18.10.2016
-
-Nick Michael Taylor - Sweet Sour And Blue (2015) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying Out To You   (04:01)
-02. Keep On Running   (03:39)
-03. Your Kind Of Love (Is Better Than No Love At All)   (03:17)
-04. Had To Cry Today   (06:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F0C47CD938A71F4FA2FC2E01F1555B596366C53
 ```
 
 https://mybot314.ru/tekegram_catalog/

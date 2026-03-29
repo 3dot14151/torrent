@@ -1,3 +1,112 @@
+###  Публикация: 1424374   (229581) от 16.11.2020
+
+Translate Tab 2.0.11 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Так уж сложилось, что потребность переводить возникает у многих и часто. Это может быть как несколько слов, так и какая нибудь статейка с зарубежного сайта по интересующей тематике. И скорее всего сегодняшний пользователь выберет переводчик Google Translate, как наиболее удобный сервис онлайн перевода. Неудобность лишь в том, что в браузере, в который нужно все время (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.11.2020Разработчик: Alex IzvekovПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A0CA80442F15E129F7F161D7DA7313CAD204E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1424447   (229546) от 16.11.2020
+
+DearMob iPhone Manager 4.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229546.jpg" />
+</div>
+
+
+###  Подробнее
+
+DearMob iPhone Manager разработан для более безопасного и простого управления iOS: регулярно создавайте резервные копии в случае неожиданных сценариев, передавайте все, что вам нравится, и управляйте файлами, чтобы улучшить свою «цифровую» жизнь.
+Теперь вы можете избавиться от iTunes / Finder и получить больше возможностей.Тип издания: macOS SoftwareРелиз состоялся: 29.09.2020Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5B70CA342149882A2426DD1787B7473EE697604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512787   (229506) от 26.11.2021
+
+SnapMotion Unlimited 5.0.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229506.jpg" />
+</div>
+
+
+###  Подробнее
+
+SnapMotion - приложение, которое может извлекать изображения быстрым и простым способом из любого видео вручную в выбранное время или автоматически, каждые х секунд, в зависимости от настроек.
+
+SnapMotion имеет два режима:
+● Ручной режим, где вы можете извлекать изображения точно в установленное время.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.11.2021Разработчик: © 2012-2019 NeededAppsПоддерживаемая ОС: macOS 11.0.+Язык интерфейса: Английский, Немецки и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3696A31A32A49FF52BAAEAC47709B8D5426E5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512781   (229490) от 26.11.2021
+
+Find Any File (FAF) 2.3.2 b9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2021Разработчик: © 2021 Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B838125BC9885D36943FD488010E97BE74456FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649560   (229482) от 28.07.2023
 
 Native SQLite Manager 1.25.0 [En]
@@ -6,7 +115,7 @@ Native SQLite Manager 1.25.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229482.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ Bartender 4 v4.1.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229477.jpg" />
+  <img src="Z:/picture/004/save_picture_229477.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ GlueMotion 2 v.2.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229474.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ Airtool 2 v.2.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229468.jpg" />
 </div>
 
 
@@ -112,7 +221,7 @@ djay - DJ App & AI Mixer 3.1.8  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229458.jpg" />
+  <img src="Z:/picture/004/save_picture_229458.jpg" />
 </div>
 
 
@@ -138,7 +247,7 @@ Comic Life 3 v3.5.18 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229426.jpg" />
+  <img src="Z:/picture/004/save_picture_229426.jpg" />
 </div>
 
 
@@ -165,7 +274,7 @@ Music Tag Editor 5.10.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229420.jpg" />
+  <img src="Z:/picture/004/save_picture_229420.jpg" />
 </div>
 
 
@@ -193,7 +302,7 @@ Zoc Terminal 8.01.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229419.jpg" />
+  <img src="Z:/picture/004/save_picture_229419.jpg" />
 </div>
 
 
@@ -219,7 +328,7 @@ Mimestream 1.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229404.jpg" />
 </div>
 
 
@@ -246,7 +355,7 @@ Smultron 12.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229402.jpg" />
+  <img src="Z:/picture/004/save_picture_229402.jpg" />
 </div>
 
 
@@ -274,7 +383,7 @@ iNet Network Scanner 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229396.jpg" />
 </div>
 
 
@@ -301,7 +410,7 @@ FSNotes 6.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229388.jpg" />
 </div>
 
 
@@ -327,7 +436,7 @@ Clipboard Manager 2.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229364.jpg" />
 </div>
 
 
@@ -355,7 +464,7 @@ NoteBurner Netflix Video Downloader 1.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229351.jpg" />
+  <img src="Z:/picture/004/save_picture_229351.jpg" />
 </div>
 
 
@@ -381,7 +490,7 @@ Fork 2.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229315.jpg" />
 </div>
 
 
@@ -407,7 +516,7 @@ Cisdem Data Recovery 6.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229306.jpg" />
+  <img src="Z:/picture/004/save_picture_229306.jpg" />
 </div>
 
 
@@ -433,7 +542,7 @@ Nova 11.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229276.jpg" />
 </div>
 
 
@@ -460,7 +569,7 @@ PDF Converter Master 6.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229237.jpg" />
+  <img src="Z:/picture/004/save_picture_229237.jpg" />
 </div>
 
 
@@ -487,7 +596,7 @@ Aiseesoft Mac Video Converter Ultimate for Mac 10.3.80 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229193.jpg" />
 </div>
 
 
@@ -513,7 +622,7 @@ Nevercenter CameraBag Photo 2021.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229161.jpg" />
+  <img src="Z:/picture/004/save_picture_229161.jpg" />
 </div>
 
 
@@ -540,7 +649,7 @@ Pixelmator Pro 3.3.11 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229122.jpg" />
 </div>
 
 
@@ -567,7 +676,7 @@ Nevercenter CameraBag Pro 2021.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229121.jpg" />
+  <img src="Z:/picture/004/save_picture_229121.jpg" />
 </div>
 
 
@@ -578,112 +687,6 @@ CameraBag позволяет мгновенно применить одну из
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9F8440B460D9EB7364BCA7D2D657F9E86FB9A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341699   (229107) от 29.11.2019
-
-Paw 3.1.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый продвинутый инструмент API для Mac
-Paw является полнофункциональным HTTP-клиентом, который позволяет тестировать API.
-Здесь вы можете с лёгкостью формировать запросы (начиная от HTTP-заголовков, заканчивая телом POST и данными авторизации), тут же проверять их на наличие ошибок (например, отсутствие необходимых полей OAuth или неверный Content-Type), затем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Paw Inc.Поддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF1147BADF9A539DEFB01C21253E7A9BCF2901C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341753   (229068) от 29.11.2019
-
-PDF to EPUB Converter 6.2.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конвертируйте PDF в EPUB с высокой скоростью. Конвертер PDF в EPUB будет сначала анализировать данные PDF, выявлять абзацы и организовывать их в EPUB. Даже если PDF-файл содержит несколько столбцов, приложение также может правильно преобразовать содержимое.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB45E7D7D1A6ED962D1F82237B7CD4971D478E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341686   (229010) от 29.11.2019
-
-Allegorithmic Substance Designer 2019.2.3 (build 2683) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Substance Designer - мощная программа, которая предназначена для создания, редактирования и обработки сложных текстур. Программа позволяет микшировать и манипулировать битмапами, векторными изображениями и процедурными элементами. Текстуры созданные с помощью Substance Designer являются динамическими, то есть их можно свободно модифицировать на любом этапе создания. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.11.2019Разработчик: AllegorithmicПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417A076E328F0F95226538E2FC45FF91A12BF433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649946   (228773) от 29.07.2023
-
-Omni Toolbox 1.4.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Omni Toolbox - это обширный набор инструментов для создания графических отчетов об оборудовании iPhone, проверки аккумулятора iPhone, загрузки видеороликов TikTok, создания рингтонов и исправления общих сбоев программного обеспечения iOS.Тип издания: macOS SoftwareРелиз состоялся: 28.07.2023Разработчик: © 2023 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26503DBFE9DFD01687522DE8E5F4F9365BD588D
 ```
 
 https://mybot314.ru/tekegram_catalog/

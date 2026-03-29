@@ -1,3 +1,114 @@
+###  Публикация: 1267584   (265456) от 07.12.2018
+
+Hands Off! 4.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Off! - контроль доступа в Интернет
+Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.12.2018Разработчик: One Periodic IncПоддерживаемая ОС: macOS 10.12.6 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E2CC7BA74F2FF1B747A26C3D5491D10C52BBCC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339702   (265374) от 20.11.2019
+
+A Better Finder Rename 11 v11.05 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265374.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
+Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2019Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8AA06F2DF77EEC9016FEE528D112AD9192F12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339736   (265373) от 20.11.2019
+
+IconJar 2.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все ваши иконки отлично организованы в удобный интерфейс
+Разработанный, чтобы сделать жизнь разработчиков приложений и дизайнеров немного легче, IconJar представляет собой легкий и удобный органайзер иконок для вашего Mac.
+
+Если вы дизайнер или просто-напросто кто-то, чья линия работы включает в себя работу со значками (или глифы), то вы знаете, как громоздким оказывается (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Davey Heuser and Curtis HardПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DD18C90B69AB425F36CFA5992896B3A0E7AA51A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339670   (265372) от 20.11.2019
+
+SpamSieve 2.9.38 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для macOS. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнно вам поможет.
+
+Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам фильтра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2019Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C498BCE102F77AF16356995BCCED62A5E5C176FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339738   (265371) от 20.11.2019
 
 Soulver 3.1.3 [Multi]
@@ -6,7 +117,7 @@ Soulver 3.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265371.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ ScreenFlow 9 v9.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265366.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ SILKYPIX Developer Studio Pro 9E v9.0.15.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265364.jpg" />
 </div>
 
 
@@ -89,7 +200,7 @@ Audirvana 3.5.26 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265363.jpg" />
 </div>
 
 
@@ -115,7 +226,7 @@ Fantastical 2 v2.5.13 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265361.jpg" />
 </div>
 
 
@@ -143,7 +254,7 @@ Path Finder 9.0.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265356.jpg" />
 </div>
 
 
@@ -169,7 +280,7 @@ TouchCopy 16.36 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265355.jpg" />
 </div>
 
 
@@ -198,7 +309,7 @@ MacCleaner PRO 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265354.jpg" />
 </div>
 
 
@@ -224,7 +335,7 @@ Typeface 2 v2.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265350.jpg" />
 </div>
 
 
@@ -253,7 +364,7 @@ Blocs 3.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265348.jpg" />
 </div>
 
 
@@ -281,7 +392,7 @@ Sketch 60.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265322.jpg" />
 </div>
 
 
@@ -308,7 +419,7 @@ Wirecast Pro 13.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265321.jpg" />
 </div>
 
 
@@ -334,7 +445,7 @@ Cookie 5.7.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265286.jpg" />
 </div>
 
 
@@ -363,7 +474,7 @@ Antivirus Zap 3.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265176.jpg" />
 </div>
 
 
@@ -389,7 +500,7 @@ Carbon Copy Cloner 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265158.jpg" />
 </div>
 
 
@@ -418,7 +529,7 @@ iDatabase 3.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265144.jpg" />
 </div>
 
 
@@ -444,7 +555,7 @@ PaintCode 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265133.jpg" />
 </div>
 
 
@@ -470,7 +581,7 @@ Macgo Mac Blu-ray Player Pro 3.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265130.jpg" />
 </div>
 
 
@@ -496,7 +607,7 @@ TG Pro (Temperature Gauge Pro) 2.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265098.jpg" />
 </div>
 
 
@@ -523,7 +634,7 @@ Tipard Blu-ray Player for Mac 6.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265073.jpg" />
 </div>
 
 
@@ -549,7 +660,7 @@ ABBYY Lingvo Dictionary для Mac 1.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265071.jpg" />
 </div>
 
 
@@ -576,7 +687,7 @@ Bartender 3 v.3.0.32 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265054.jpg" />
 </div>
 
 
@@ -588,115 +699,6 @@ Bartender - утилита для простой организации икон
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27DDD0FCD684AFA799BB0A942CB44A13B9D6C686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191187   (264928) от 12.12.2017
-
-Adobe Photoshop Lightroom Classic CC 2018 v7.1.0 [Multi]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Photoshop Lightroom предназначено для профессиональных фотографов и любителей и позволяющее быстро импортировать и обрабатывать изображения, а также управлять библиотекой фотографий. Такие функции, как Smart Preview и Advanced Healing Brush расширяют возможности полнофункциональной версии Photoshop в области тонкого редактирования фотографий. Инструмент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: Adobe Systems IncПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский, Немецкий и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF6923773D5E28593770C07F81CA4A8D976C298
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238634   (264814) от 08.12.2018
-
-BATTLETECH  v1.3.0.413r (25481) (2018) [En] [macOS Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battletech - это пошаговый ролевой экшен с роботами от создателей вселенной BattleTech и серии MechWarrior, который создается силами Harebrained Schemes, создателей последних частей Shadowrun, которые объединили усилия вместе с создателем оригинальной серии, Джорданом Вейманом. События новой части разворачиваются в 3025 году, а управлять игрокам предстоит отрядом (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2018Разработчик: Harebrained SchemesПоддерживаемая ОС: 10.13.3+Жанр: Strategy, Turn-basedЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE220F14AABC5E5B3B2CDCD8BAC81BC462C7B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339744   (264712) от 21.11.2019
-
-Alfred 4 Powerpack 4.0.7 (1126) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-
-Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Running with CrayonsПоддерживаемая ОС: OS X 10.9 или более поздняя версияЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AE095952710479F297ADF261C6B2047EC8528C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339748   (264711) от 21.11.2019
-
-Yate 5 v5.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yate - Мощный и удобный редактор ID3-тегов с широким набором полезных функций.
-Yate был разработан для людей, которые серьезно относятся к маркировке и организации их аудио файлов. Yate позволит привести в порядок и сделать более красивым ваш сборник музыки с помощью тегов и огромного количества дополнительной информации о песнях.
-
-У Yate есть длинный список особенностей, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2019Разработчик: Many RobotsПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960E769FFCE0E8C49AF1B2FDCE3B83682A4E346C
 ```
 
 https://mybot314.ru/tekegram_catalog/

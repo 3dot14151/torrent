@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891962.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723840.jpg" />
+  <img src="Z:/picture/008/save_picture_723840.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690246.jpg" />
+  <img src="Z:/picture/008/save_picture_690246.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595016.jpg" />
+  <img src="Z:/picture/008/save_picture_595016.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_260772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260772.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200978.jpg" />
+  <img src="Z:/picture/004/save_picture_200978.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171788.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61958.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57956.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54628.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52931.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52802.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52802.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20081.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Менты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19648.jpg" />
 </div>
 
 

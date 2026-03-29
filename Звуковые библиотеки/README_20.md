@@ -1,3 +1,82 @@
+###  Публикация: 1100718   (177096) от 05.12.2020
+
+Звуковые библиотеки - OwnHammer - Collections [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_177096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кастомизированный набор библиотек и коллекций импульсов гитарных кабинетов от OwnHammer. Системные требования: DAW и плагины для обработки импульсов.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CDC8EAFFC0CFD37491967DCF0AA57E68EE7956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079716   (177029) от 05.12.2020
+
+Звуковые библиотеки - OwnHammer - Impulse Response Libraries [WAV]
+
+>>След.
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_177029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор кастомизированных библиотек Single Cabinet IR Libraries от OwnHammer.
+Системные требования: DAW и плагины для обработки импульсов.Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCECC6880B0E05D3B5E32020EE8985305615EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428100   (176679) от 06.12.2020
+
+Звуковые библиотеки - Toontrack - Metal EBX v1.0.1 [OBW, MIDI]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_176679.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metal EBX - это расширение для EZbass, разработанное для предоставления широкой палитры тонов для металла. Сочетая в себе детали, ясность и исключительную мощь в форме безупречно выраженных низких частот, этот инструмент проверяет все характеристики, необходимые для прохождения трека брутального дэт-метала на бешеной скорости, как и ритмичный прогрессивный пассаж, (   Читать дальше...   )Формат: OBW, MIDI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5945E199F8023F2339C30D14288332A9FE96FB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429337   (176659) от 06.12.2020
 
 Звуковые библиотеки - OwnHammer - 6-Pack Bundle [WAV]
@@ -6,7 +85,7 @@
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176659.jpg" />
+  <img src="Z:/picture/004/save_picture_176659.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176415.jpg" />
+  <img src="Z:/picture/004/save_picture_176415.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175812.jpg" />
+  <img src="Z:/picture/004/save_picture_175812.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174969.jpg" />
+  <img src="Z:/picture/004/save_picture_174969.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173550.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173520.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173422.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169586.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ Cinetools - Terminus [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169509.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168666.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167329.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ Sonuscore - Ethnic Flute Phrases - RePack Андрей650071 [KONTAKT]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167152.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166680.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162988.jpg" />
 </div>
 
 
@@ -373,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162734.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162734.jpg" />
 </div>
 
 
@@ -399,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161788.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157566.jpg" />
 </div>
 
 
@@ -455,7 +534,7 @@ Boom Library - Cinematic Strikes Designed [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156914.jpg" />
 </div>
 
 
@@ -482,7 +561,7 @@ NNM-Club Unmarked Team - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156687.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ Sonuscore - The Orchestra Complete v1.1 [Kontakt, OGG]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155063.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ Boom Library - JET - FLY BYS [WAV]
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153924.jpg" />
 </div>
 
 
@@ -562,7 +641,7 @@ NNM-Club Sound Cleaners - Cleared Music & Audio Tracks (No Watermark) - Vol.02 [
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151572.jpg" />
 </div>
 
 
@@ -589,7 +668,7 @@ NNM-Club Unmarked Team - Чистые музыкальные треки с Audio
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151055.jpg" />
 </div>
 
 
@@ -601,84 +680,6 @@ NNM-Club Unmarked Team - Чистые музыкальные треки с Audio
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3497C42C3FA61BFEC2EA7D6D3A40921A80C59865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825921   (150734) от 18.10.2025
-
-Звуковые библиотеки - The Sound of Machines - Metal Percussion: T Pot Bridge Sample Pack [AIF]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мне очень нравится гулять по этой пешеходной дорожке в моём городе Ричмонде, штат Вирджиния. Хотя официальное название моста — Мемориальный мост Т. Тайлера Поттерфилда, местные называют его мостом Т-Пот. Гораздо проще сказать. Отсюда открываются головокружительные виды на бурлящую реку Джеймс внизу и центр Ричмонда (в зависимости от того, на какие здания вы смотрите). (   Читать дальше...   )Формат: AIF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747866E73D0237E84E1FB55A969A7673283F87C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271770   (148375) от 24.12.2018
-
-Звуковые библиотеки - Bluezone Corporation - Movie Trailer Sound Effects [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movie Trailer Sound Effects - это пакет сэмплов Trailer / Cinematic, охватывающий широкий спектр тщательно записанных окружений, звуковых эффектов, ударов, текстур синтеза и переходов.Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D0B7C4BA2AB85C5FC1E0685CA47AAAEE4D6705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519387   (148160) от 24.12.2021
-
-Звуковые библиотеки - Project SAM - Symphobia 1 v2.0 RePack ViP [Kontakt, OGG]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оцените полностью обновленную версию Symphobia 2.0 Получите классический и проверенный временем звук Symphobia в совершенно новом интерфейсе с массой новых возможностей.Формат: Kontakt: NICNT, NCSN, NKC, NKR, NKX, NKA, NKI, OGG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C997F7FF5EB5CEE76E9156F786919A34EEAC4B86
 ```
 
 https://mybot314.ru/tekegram_catalog/

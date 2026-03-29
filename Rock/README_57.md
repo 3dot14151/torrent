@@ -1,3 +1,32 @@
+###  Публикация: 1411270   (427525) от 25.09.2020
+
+The Rolling Stones - Steel Wheels Live (Live From Atlantic City, NJ, 1989) (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_427525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start Me Up (Live) (03:47)
+ 02. Bitch (Live) (03:28)
+ 03. Sad Sad Sad (Live) (03:47)
+ 04. Undercover Of The Night (Live) (04:21)(   Читать дальше...   )Жанр: RockПродолжительность: 02:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F66B8008A116026ED55A3432B149F7050679E3A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411314   (427519) от 25.09.2020
 
 Fish - Weltschmerz (2020) 2xCD [MP3|320 Kbps] <Art Rock>
@@ -6,7 +35,7 @@ Fish - Weltschmerz (2020) 2xCD [MP3|320 Kbps] <Art Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427519.jpg" />
+  <img src="Z:/picture/008/save_picture_427519.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Rehab Allstars - Feel The Blues (2015) [OGG| 521-558 кб/с]<Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427358.jpg" />
+  <img src="Z:/picture/008/save_picture_427358.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ THR3E - 30 Day Hop (2015) [OGG| 505-529 кб/с]<Rock'n'Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427312.jpg" />
+  <img src="Z:/picture/008/save_picture_427312.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Rod Stewart - Blood Red Roses (2018) Deluxe Version [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426874.jpg" />
+  <img src="Z:/picture/008/save_picture_426874.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Now That's What I Call Driving Rock (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426636.jpg" />
+  <img src="Z:/picture/008/save_picture_426636.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Papadosio - Pattern Integrities (2016) EP [MP3|320 Kbps] <Experimental Electroni
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426251.jpg" />
+  <img src="Z:/picture/008/save_picture_426251.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Kerry Livgren - Q.A.R. (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425600.jpg" />
+  <img src="Z:/picture/008/save_picture_425600.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Ray Thomas - Words & Music (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423166.jpg" />
+  <img src="Z:/picture/008/save_picture_423166.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Kasabian - West Ryder Pauper Lunatic Asylum (2009) [MP3|320 kb/s]<Indie Rock / B
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_422855.jpg" />
+  <img src="Z:/picture/005/save_picture_422855.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ The Power Station - 2 Albums (1985, 1996) [MP3|320 Kbps] <Rock, Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422544.jpg" />
+  <img src="Z:/picture/008/save_picture_422544.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ Bakerloo - Bakerloo (1969) Reissue, 1993, Repertoire Records [MP3|320 Kbps] <Hea
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422062.jpg" />
+  <img src="Z:/picture/008/save_picture_422062.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ Maureen & The Mercury 5 - Gimme Mo! (2017) [MP3|320 Kbps] <Rockabilly, Swing>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421785.jpg" />
+  <img src="Z:/picture/008/save_picture_421785.jpg" />
 </div>
 
 
@@ -359,7 +388,7 @@ Led Zeppelin - Led Zeppelin x Led Zeppelin (2018) Remastered [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421733.jpg" />
+  <img src="Z:/picture/008/save_picture_421733.jpg" />
 </div>
 
 
@@ -388,7 +417,7 @@ Setka - Silent Warning (2020) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420642.jpg" />
+  <img src="Z:/picture/008/save_picture_420642.jpg" />
 </div>
 
 
@@ -417,7 +446,7 @@ Falling Up - 11 альбомов, 2 Сингла, 2 EP (2004-2017) [MP3|128-320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419711.jpg" />
+  <img src="Z:/picture/008/save_picture_419711.jpg" />
 </div>
 
 
@@ -446,7 +475,7 @@ The 69 Eyes - West End (2019) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418848.jpg" />
+  <img src="Z:/picture/008/save_picture_418848.jpg" />
 </div>
 
 
@@ -475,7 +504,7 @@ Copperhead - Copperhead (1973) Reissue, 2001, Acadia [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417571.jpg" />
+  <img src="Z:/picture/008/save_picture_417571.jpg" />
 </div>
 
 
@@ -504,7 +533,7 @@ Johnny Winter - Still Alive And Well (1973) 1994, Columbia [MP3|320 Kbps] <Rock,
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417428.jpg" />
+  <img src="Z:/picture/008/save_picture_417428.jpg" />
 </div>
 
 
@@ -533,7 +562,7 @@ Santana - Santana IV Live at the House of Blues Las Vegas (2016) 2CD [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416335.jpg" />
+  <img src="Z:/picture/008/save_picture_416335.jpg" />
 </div>
 
 
@@ -562,7 +591,7 @@ The Archipelago - Mind And Failure (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416184.jpg" />
+  <img src="Z:/picture/008/save_picture_416184.jpg" />
 </div>
 
 
@@ -591,7 +620,7 @@ VA - Body Pump Rock Classics (2020) [MP3|320 Kbps] <Rock, Dance>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415883.jpg" />
+  <img src="Z:/picture/008/save_picture_415883.jpg" />
 </div>
 
 
@@ -620,7 +649,7 @@ Led Zeppelin - An Introduction To Led Zeppelin (2018) Remastered [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415243.jpg" />
+  <img src="Z:/picture/008/save_picture_415243.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ The Love Affair - The Everlasting Love Affair (1968) Reissue, 2005, Dogtoire [MP
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414868.jpg" />
+  <img src="Z:/picture/008/save_picture_414868.jpg" />
 </div>
 
 
@@ -678,7 +707,7 @@ Robert Plant - Digging Deep: Subterranea (2020) 2xCD [MP3|320 Kbps] <Classic Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413730.jpg" />
+  <img src="Z:/picture/008/save_picture_413730.jpg" />
 </div>
 
 
@@ -707,7 +736,7 @@ Jon Lord - 15 альбомов (1971-2010) [MP3|320 kbps]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413567.jpg" />
+  <img src="Z:/picture/005/save_picture_413567.jpg" />
 </div>
 
 
@@ -726,35 +755,6 @@ Jon Lord - 15 альбомов (1971-2010) [MP3|320 kbps]<Rock>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251998   (413189) от 03.10.2018
-
-VA - 00s Rock Party (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Darkness - I Believe In a Thing Called Love
-02. Nickelback - When We Stand Together
-03. Jet - Are You Gonna Be My Girl
-04. The Donnas - Take It Off(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:464C3AEA0518DBD123DB1015426F4F48B9295F43
 ```
 
 https://mybot314.ru/tekegram_catalog/

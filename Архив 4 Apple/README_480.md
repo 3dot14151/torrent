@@ -1,3 +1,110 @@
+###  Публикация: 1338206   (269877) от 15.11.2019
+
+Valentina Studio Pro 9.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valentina Studio - это идеальный инструмент управления данными для администраторов баз данных. Valentina Studio PRO для разблокировки современных инструментов моделирования данных, дизайна и редактирования отчетов и многого другого.Тип издания: macOS SoftwareРелиз состоялся: 02.10.2019Разработчик: Paradigma SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FA1C81652B6428D109B4F9A4C83E3B54DF9EDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338434   (269790) от 15.11.2019
+
+Adobe Zii 2020 - Universal Patcher v5.0.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1993CD95AEEBCFFB10050CA2F74BAB9AF7CA9687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338427   (269711) от 15.11.2019
+
+Carbon Copy Cloner 5 v5.1.14 (build 5863) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Carbon Copy Cloner –  утилита для резервного копирования данных.
+Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
+
+Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2019Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3229C9AC50D133364DC62BF70B0A89CD6AB46173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338368   (269691) от 15.11.2019
+
+Adobe Bridge 2020 10.0.0.124 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Bridge предоставит вам централизованный доступ ко всем мультимедийным ресурсам, необходимым для творческих проектов. Вы сможете легко редактировать компоненты в пакетном режиме, редактировать цифровые изображения в формате RAW, работать с форматами IPTC и XMP, выставлять рейтинг изображениям, добавлять водяные знаки а также централизованно устанавливать параметры (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.13 и новееЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2253A1D646B606A5F86DB5BE875B1AAA6BCFD816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189797   (269545) от 07.12.2017
 
 Sketch 48 [En]
@@ -6,7 +113,7 @@ Sketch 48 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269545.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Adobe Acrobat Pro DC 2019.021.20049 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269541.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269476.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ Gifox – Gif Recording & Sharing 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269471.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ Airmail 3 v3.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269421.jpg" />
 </div>
 
 
@@ -142,7 +249,7 @@ Paste 2.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269163.jpg" />
 </div>
 
 
@@ -168,7 +275,7 @@ ABBYY FineReader OCR Pro for Mac 12.1.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269035.jpg" />
 </div>
 
 
@@ -195,7 +302,7 @@ TinkerTool System 6.82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268918.jpg" />
 </div>
 
 
@@ -224,7 +331,7 @@ CleanMyMac X 4.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268671.jpg" />
 </div>
 
 
@@ -251,7 +358,7 @@ Sketch 48.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268574.jpg" />
 </div>
 
 
@@ -278,7 +385,7 @@ iFinance 4.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268426.jpg" />
 </div>
 
 
@@ -304,7 +411,7 @@ Hype 3 Pro 3.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268388.jpg" />
 </div>
 
 
@@ -333,7 +440,7 @@ SketchUp Pro 2018 v18.1.1180 [Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268245.jpg" />
+  <img src="Z:/picture/008/save_picture_268245.jpg" />
 </div>
 
 
@@ -359,7 +466,7 @@ DiskCatalogMaker 7.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268241.jpg" />
+  <img src="Z:/picture/008/save_picture_268241.jpg" />
 </div>
 
 
@@ -386,7 +493,7 @@ Athentech Perfectly Clear Complete 3 v3.9.0.1696 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268240.jpg" />
+  <img src="Z:/picture/008/save_picture_268240.jpg" />
 </div>
 
 
@@ -414,7 +521,7 @@ Scherlokk - Files finder 4 v4.1.4 (build 41431) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268239.jpg" />
+  <img src="Z:/picture/008/save_picture_268239.jpg" />
 </div>
 
 
@@ -440,7 +547,7 @@ Feeder 3 v3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268238.jpg" />
+  <img src="Z:/picture/008/save_picture_268238.jpg" />
 </div>
 
 
@@ -468,7 +575,7 @@ SuperDuper! 3.3.B6 (v119.7) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268237.jpg" />
+  <img src="Z:/picture/008/save_picture_268237.jpg" />
 </div>
 
 
@@ -494,7 +601,7 @@ PrefEdit 4.31 (build 191113) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268235.jpg" />
+  <img src="Z:/picture/008/save_picture_268235.jpg" />
 </div>
 
 
@@ -521,7 +628,7 @@ Disk Graph 2.1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268234.jpg" />
+  <img src="Z:/picture/008/save_picture_268234.jpg" />
 </div>
 
 
@@ -547,7 +654,7 @@ PullTube 1.2.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268233.jpg" />
+  <img src="Z:/picture/008/save_picture_268233.jpg" />
 </div>
 
 
@@ -573,7 +680,7 @@ TG Pro (Temperature Gauge Pro) 2.44 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268232.jpg" />
+  <img src="Z:/picture/008/save_picture_268232.jpg" />
 </div>
 
 
@@ -585,112 +692,6 @@ TG Pro — контроль температуры и вентиляторов �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F252489A912B4C2585DF36E272FD9A998D9191EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338939   (268231) от 17.11.2019
-
-DropDMG 3.5.9 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
-Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2019Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Голландский, Датский и д.р.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167EE73DD236F1C64C41A4FECD91F000E010E564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338997   (268230) от 17.11.2019
-
-EazyDraw 9 v9.5.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268230.jpg" />
-</div>
-
-
-###  Подробнее
-
-EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 14.11.2019Разработчик: Dekorra Optics, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:856A0894246A4C743DE81A0EFC6EA9EFE5E789C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338957   (268229) от 17.11.2019
-
-Folder Tidy 2.7.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Довольно часто бывает так, что на рабочем столе скапливается большое количество файлов и папок, которые хочется всегда иметь под рукой и до которых не "доходят руки", чтобы навести порядок.
-Утилита Folder Tidy предназначена именно для таких пользователей, помогая навести порядок на вашем рабочем столе.Тип издания: OS X SoftwareРелиз состоялся: 16.11.2019Разработчик: Tunabelly SoftwareПоддерживаемая ОС: MacOS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D019B45E1C338659F8AE4BD522D6E5D2836AAA40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339097   (268227) от 17.11.2019
-
-Check Off- A Task Manager 5.7.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268227.jpg" />
-</div>
-
-
-###  Подробнее
-
-CheckOff- приложение для управления задачами, которое работает как автономное приложение или приложение меню бар.Тип издания: macOS SoftwareРелиз состоялся: 12.11.2019Разработчик: ChromeDome SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68C4A4794C0B9230E878D434211C0ED4DCFE7B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1293041   (640640) от 01.04.2019
+
+Windstorm / Ostwind - Ari's Arrival (2019) [Multi] (1.1.0) License PLAZA
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_640640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уиндсторм пережил пожар. И даже юная Мика не может помочь ему. Та как у Ари нет никакого опыта в верховой езде, то она быстро завязывает дружбу с Уиндстормом. Мистер Каан учит девочку правильному уходу за лошадьми, а еще вырабатывает у неё правильную осанку при езде на лошади. Ари научится ездить так же быстро, как и её предшественница.Тип издания: LicenseРазработчик: Aesir InteractiveЖанр: Adventure, SimulationЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Английский, Немецкий и другиеЯзык интерфейса: Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352DE537545C5848831609C05B8ABB7B39253AD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213938   (635264) от 01.06.2018
 
 Pure Farming 2018 (2018) [Ru/Multi] (1.2.0/dlc) Repack xatab [Deluxe Edition]
@@ -6,7 +32,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.2.0/dlc) Repack xatab [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635264.jpg" />
+  <img src="Z:/picture/008/save_picture_635264.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Soviet Monsters: Ekranoplans (2016) [Ru/Multi] (1.0) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631909.jpg" />
+  <img src="Z:/picture/008/save_picture_631909.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/Multi] (1.5.20/dlc) License RELOADED
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627662.jpg" />
+  <img src="Z:/picture/008/save_picture_627662.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Flower (2019) [Ru/Multi] (1.44) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623593.jpg" />
+  <img src="Z:/picture/008/save_picture_623593.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ ABZU / ABZÛ (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622418.jpg" />
+  <img src="Z:/picture/008/save_picture_622418.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Car Mechanic Simulator 2015 (2015) [Ru/Multi] (1.0.7.5/dlc) Repack Other s [Gold
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622153.jpg" />
+  <img src="Z:/picture/008/save_picture_622153.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Train Sim World: CSX Heavy Haul (2017) [Ru/Multi] (1.4) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619298.jpg" />
+  <img src="Z:/picture/008/save_picture_619298.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Farm Expert 2016 (2015) [En] (2.18) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619185.jpg" />
+  <img src="Z:/picture/008/save_picture_619185.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Car Detailing Simulator (2022) [Ru/Multi] (1.000.27/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617773.jpg" />
+  <img src="Z:/picture/008/save_picture_617773.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Construction Machines Simulator 2016 (2015) [Multi] (1.0) License SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617342.jpg" />
+  <img src="Z:/picture/008/save_picture_617342.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Holy Potatoes! A Spy Story?! (2018) [Ru/En] (1.0.22) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614722.jpg" />
+  <img src="Z:/picture/008/save_picture_614722.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ Victory At Sea Pacific (2018) [Ru/Multi] (1.4.0) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614715.jpg" />
+  <img src="Z:/picture/008/save_picture_614715.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ Armageddon Riders (RePack) [Ru] 2009 | R.G. Games Warrior
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614470.jpg" />
+  <img src="Z:/picture/008/save_picture_614470.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612536.jpg" />
+  <img src="Z:/picture/008/save_picture_612536.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Dead in Vinland (2018) [En/Ge/Fr] (1.1) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606523.jpg" />
+  <img src="Z:/picture/008/save_picture_606523.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Railway Empire (2018) [Ru/Multi] (1.4.0.20902/dlc) Repack =nemos=
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603655.jpg" />
+  <img src="Z:/picture/008/save_picture_603655.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Haimrik (2018) [Ru/Multi] (1.0) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603631.jpg" />
+  <img src="Z:/picture/008/save_picture_603631.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Car Mechanic Simulator 2018 (2017) [Ru/Multi] (1.6.0/dlc) Repack R.G. Механ
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601791.jpg" />
+  <img src="Z:/picture/008/save_picture_601791.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.4.1/dlc) License PLAZA [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600700.jpg" />
+  <img src="Z:/picture/008/save_picture_600700.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Farm Expert 2016 (2015) [Ru] (2.18) Repack xGhost
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599247.jpg" />
+  <img src="Z:/picture/008/save_picture_599247.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Cold Waters (2017) [En] (1.15c) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597612.jpg" />
+  <img src="Z:/picture/008/save_picture_597612.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Dead In Vinland (2018) [Ru/Multi] (1.4/dlc) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594525.jpg" />
+  <img src="Z:/picture/008/save_picture_594525.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Dead In Vinland (2018) [Ru/Multi] (1.4/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594300.jpg" />
+  <img src="Z:/picture/008/save_picture_594300.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Ravenous Devils (2022) [Ru/Multi] (1.0.1) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592402.jpg" />
+  <img src="Z:/picture/008/save_picture_592402.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Ravenous Devils (2022) [Ru/Multi] (1.0.1) License GOG [18+]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591950.jpg" />
+  <img src="Z:/picture/008/save_picture_591950.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Ravenous Devils (2022) [Ru/Multi] (1.0.1) License GOG [18+]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFF06FF6679ACCEC6E22296FA9DE23C4E42366E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269231   (582009) от 14.05.2019
-
-Frostpunk (2018) [Ru/Multi] (1.3.3) Repack R.G. Catalyst
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Frostpunk – первая игра в жанре "выживание общества". Как правитель последнего города на земле вы будете управлять его жителями и инфраструктурой. Какие решения вы примете во имя выживания? Как себя поведете в переломный момент? Кем при этом станете?Тип издания: RepackРазработчик: 11 bit studiosЖанр: Strategy, Simulation, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6A677685EF69AE55680EE387018716D18571A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

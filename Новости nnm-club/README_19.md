@@ -1,3 +1,113 @@
+###  Публикация: 602996   (997077) от 14.01.2013
+
+Rage [Ru] (RiP/1.0.34.2015/3 DLC) 2011 | Fenixx
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда человечество оказалось перед угрозой уничтожения от столкновения Земли с гигантским астероидом, лидеры всех наций приняли решение создать специальные ковчеги, в которых избранные нашли бы убежище глубоко под поверхностью планеты... Именно они должны возродить жизнь на Земле, после того как минует опасность. Вы попали в число избранных. Спустя годы после катастрофы ковчеги открылись, и вы оказались в мире, который сильно отличается от прежнего. Но самое главное — далеко не все его обитатели рады вашему возвращению. Вам надо научиться бороться и выживать. Учтите, времени очень мало — бандиты, мутанты и даже местное правительство уже идут по вашему следу. (   Читать дальше...   )Тип издания: RiP (Лицензии)Жанр: Action (Shooter) / Add-on (Content pack) / 3D / 1st PersonЯзык озвучки: Русский, Английский (DLC The Scorchers)Язык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D149E1667E45F4F5F7B3C722E1847D041AB836D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603411   (996840) от 15.01.2013
+
+Церковь и трезвость несовместимы (2012) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Церковь столетиями старательно спаивает свою паству. В этом ни у кого нет сомнений. Но вот слова они говорят противоположные, и не опасаясь своего бога, обманывают всех верующих направо и налево, имея доход от торговли вином...
+
+На днях состоялся круглый стол Координационного Совета по борьбе с алкоголизмом в Санкт-Петербурге, совместно с представителями РПЦ. Видеозапись этого мероприятия вы можете посмотреть по этой ссылке, а здесь мы представим небольшой анализ всего, прозвучавшего на этом Круглом Столе, и рассмотрим наиболее принципиальные моменты.Жанр: ИнформационныйПеревод: Не требуетсяФормат: AVIПродолжительность: 00:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C603F2F7F8E791A72B79ACA89BB7AD0FB3ECE72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603300   (996823) от 15.01.2013
+
+"Лаборатория Касперского" раскрыла международную шпионскую сеть
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996823.jpg" />
+</div>
+
+
+###  Подробнее
+
+
+14.01.2013Антивирусная "Лаборатория Касперского" обнаружила международную сеть под кодовым названием "Red October" ("Красный октябрь"), используемую для кибершпионажа. Первая часть "исследования операции 'Red October'" опубликована на сайте лаборатории 14 января. Анонсирована также вторая часть, "содержащая детальный технический анализ всех известных модулей", которая должна выйти в течение нескольких дней.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603761   (996809) от 15.01.2013
+
+Photodex ProShow Producer 5.0.3297 RePack by KpoJIuK [Русский / Английский]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996809.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProShow Producer 5 – новая версия приложения для создания профессиональных презентаций, которая включает в себя сотни новых функций и обновленный интерфейс. Программа поддерживает работу со слоями и дает возможность использовать неограниченное число слоев для каждого слайда. Программа поддерживает прозрачность для файлов PSD, PNG, TIFF и GIF, дает возможность использовать маски слоя, эффекты перехода, градиентную заливку или заливку цветом. Фотографии, используемые в презентации, можно редактировать, применяя к ним такие инструменты как повышение четкости, изменение контрастности и насыщенности цветов. Презентация может содержать подписи, в том числе и анимированные, и фоновую музыку. Готовый проект может быть сохранен в одном из четырнадцати форматов, в том числе в HD Video, Flash и QuickTime.
+
+(   Читать дальше...   )Название программы: Photodex ProShow ProducerЯзык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600743   (996564) от 16.01.2013
 
 Метод Фрейда (1-12 серии из 12) (2012) DVB
@@ -6,7 +116,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996564.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ Bandicam 1.8.5.303 [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996563.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996561.jpg" />
 </div>
 
 
@@ -86,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996555.jpg" />
 </div>
 
 
@@ -112,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996281.jpg" />
 </div>
 
 
@@ -140,7 +250,7 @@ Euro Truck Simulator 2 [Ru/En/Multi32] (Steam-Rip/1.2.6.1) 2012 | R.G. GameWorks
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996280.jpg" />
 </div>
 
 
@@ -169,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996277.jpg" />
 </div>
 
 
@@ -197,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996267.jpg" />
 </div>
 
 
@@ -223,7 +333,7 @@ Driver Genius 12.0.0.1211 DataCode 17.01.2013 RePacK/Portable by SV [Eng.\Rus.]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995716.jpg" />
 </div>
 
 
@@ -249,7 +359,7 @@ SONY Sound Forge Pro 10.0.507 RePack by MKN [Русский / Английски
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995700.jpg" />
 </div>
 
 
@@ -277,7 +387,7 @@ Max Payne 3 [Ru/En/Multi8] (L/1.0.0.82) 2012 | RELOADED
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995696.jpg" />
 </div>
 
 
@@ -303,7 +413,7 @@ KMSnano 13 Automatic By Heldigard [Английский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_995352.jpg" />
 </div>
 
 
@@ -329,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994950.jpg" />
 </div>
 
 
@@ -355,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994077.jpg" />
 </div>
 
 
@@ -381,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993178.jpg" />
 </div>
 
 
@@ -407,7 +517,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992985.jpg" />
 </div>
 
 
@@ -433,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_992874.jpg" />
+  <img src="Z:/picture/008/save_picture_992874.jpg" />
 </div>
 
 
@@ -460,7 +570,7 @@ Farming Simulator 2013 [Ru/En] (RePack) 2012 | R.G. Механики
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992481.jpg" />
 </div>
 
 
@@ -489,7 +599,7 @@ FL Studio 10.0.9c Producer Edition [Английский + Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992477.jpg" />
 </div>
 
 
@@ -517,7 +627,7 @@ Primo Ramdisk Server Edition 5.6.0 [MULTi / Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992476.jpg" />
 </div>
 
 
@@ -545,7 +655,7 @@ Paragon Hard Disk Manager 12 Professional 10.1.19.16240 + Boot Media Builder [Р
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992473.jpg" />
 </div>
 
 
@@ -573,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992321.jpg" />
 </div>
 
 
@@ -584,113 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4B46E47E673C5FCD31C00045397B0F2D49C81F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353073   (991579) от 18.01.2020
-
-Японский миллиардер Маэдзава ищет женщину для полета на Луну
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космический турист Юсаку Маэдзава, который должен первым отправиться в полет на космическом корабле Starship компании SpaceX в 2023 году, ищет спутницу жизни, готовую составить ему компанию в туре вокруг спутника Земли.Объявление об этом 44-летний японский миллиардер разместил на своем сайте, указав, что хотел бы разделить это приключение со своей любимой. Заявки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609386   (991437) от 27.01.2013
-
-Diablo 2: Lord of destruction / Median XL Ultimative v6d [Ru] (Mod) 2000/2013
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Median XL - это мод для Diablo II LoD. По сравнению с оригинальной игрой, в нём изменены полностью все навыки, улучшены и добавлены вещи, монстры, а также присутствуют уберквесты - более трудные локации.
-Пользователь MarcoNecroX с официального форума Median XL создал совместно с несколькими другими пользователями глобальную модификацию мода под названием Median XL Ultimative, включающую в себя новые вещи и навыки, новых монстров и парочку новых уберквестов.Тип издания: ModЖанр: RPG (Rogue/Action)Язык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14510294605DFCF852474836FE6496AD08C1226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008692   (991264) от 18.01.2020
-
-Протоиерей Владимир Головин | Проповеди (2008-2019) WEB-DL [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Протоиерей Владимир Головин является священнослужителем Русской Православной Церкви. Из разных частей света паломники приезжают в город Болгар, где живет батюшка, чтобы получить от него наставления в христианской вере, чтобы услышать из его уст глаголы жизни вечной.
-В храме Мученика Авраамия, где служит батюшка Владимир, возрождается многовековой опыт молитвы по (   Читать дальше...   )Жанр: Религия и культыПродолжительность: 374:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B979DC597BD52C4329AB427CEA53F99EEBF9843B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432214   (990529) от 06.01.2012
-
-В Швеции копирование информации признано религией
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведская группа, выступающая за свободный обмен цифровой информацией, получила официальную регистрацию в качестве религиозной организации, передает Би-би-си.Группа, которая называет себя "Церковью Копимизма" (от англ. copy и me - "скопируй меня"), говорит, что официальное признание со стороны государства даст ей правовую защиту и свободу "священнодействия".Шведские СМИ отмечают, что "Церковь Копимизма" тесно связана с "Пиратским движением" Швеции, которое выступает за свободное распространение информации и против защиты авторских прав.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

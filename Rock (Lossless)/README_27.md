@@ -1,3 +1,148 @@
+###  Публикация: 990750   (905674) от 28.02.2016
+
+Pink Floyd - A Saucerful Of Secrets (1968) Remastered, 1987, EMI [FLAC|Lossless|image + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let There Be More Light (5:39)
+02. Remember A Day (4:33)
+03. Set The Controls For The Heart Of The Sun (5:27)
+04. Corporal Clegg (4:12)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F621D05E2D10BDC49CCFAC9DBC4A235ED24FDA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369054   (905445) от 22.03.2020
+
+VA - Best Rock Ever (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Green Day - Boulevard Of Broken Dreams 4:22
+02. Biffy Clyro - Many Of Horror 4:19
+03. Muse - Plug In Baby 3:38
+04. Nickelback - Rockstar 4:12(   Читать дальше...   )Жанр: RockПродолжительность: 02:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0437CE9488E13ABB2657557D989FA0CAE627DF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099386   (905321) от 01.02.2017
+
+Theo - Heart Of Soul (2016) [FLAC|Lossless|image + .cue] <Classick Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Of Soul
+02. I Want To Thank You
+03. Songs Of Marvin Gaye
+04. Get It On(   Читать дальше...   )Жанр: Classick Rock, Blues RockПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6713ECB072EA02A091E802DF5A58E0C695972F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492089   (905199) от 28.08.2021
+
+Jimmy Barnes - Flesh And Blood (2021) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flesh And Blood
+02. I'm Coming Home
+03. Gateway To Your Heart
+04. This Is The Truth(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4696D759CD0CB696B478303FB2B035F6D488FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099371   (904772) от 01.02.2017
+
+Shocking Blue - The Best Of Shocking Blue (1987) [FLAC|Lossless|image + .cue]<Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Venus 3:01
+02.Hot Sand 2:35
+03.Deamon Lover 6:00
+04.Never Release The One You Love 2:56(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B69A68F9E2E8BF54850D9A2C6707DDAFC40455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992052   (904163) от 29.02.2016
 
 Planet P Project - Planet P (1983) Remastered, 2008, Renaissance Records [FLAC|Lossless|image + .cue]<Progressive Rock, Art Rock>
@@ -6,7 +151,7 @@ Planet P Project - Planet P (1983) Remastered, 2008, Renaissance Records [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904163.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Suzi Quatro - All the Best (2012) 2CD, Compilation [FLAC|Lossless|tracks] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904098.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Mythopoeic Mind - Hatchling (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904044.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Dire Straits - Sultans Of Swing (The Very Best Of Dire Straits) (1998) Compilati
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903968.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ Oleg Serkov - Love Deviant (2009) EP, приложение к журналу CHI
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903816.jpg" />
 </div>
 
 
@@ -154,7 +299,7 @@ Se Delan - Drifter (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903592.jpg" />
 </div>
 
 
@@ -183,7 +328,7 @@ Santana - Supernatural (1999) Special Russian Version, Golden Collection [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903567.jpg" />
 </div>
 
 
@@ -212,7 +357,7 @@ Mick Jagger - Primitive Cool (1987) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903358.jpg" />
 </div>
 
 
@@ -241,7 +386,7 @@ Electric Light Orchestra - ELO's Greatest Hits (1979) Remaster, 1988, Epic Recor
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902968.jpg" />
 </div>
 
 
@@ -270,7 +415,7 @@ Pink Floyd - Delicate Sound Of Thunder (1988) [FLAC|Lossless|tracks + .cue] <Psy
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902038.jpg" />
 </div>
 
 
@@ -299,7 +444,7 @@ Tom Morello - The Atlas Underground (2018) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902013.jpg" />
 </div>
 
 
@@ -328,7 +473,7 @@ Pink Floyd - The Wall (1979) 2CD, Remastered, 1994  EMI United Kingdom [FLAC|Los
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901896.jpg" />
 </div>
 
 
@@ -357,7 +502,7 @@ The Wicked Mercy - Sundown (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901699.jpg" />
 </div>
 
 
@@ -386,7 +531,7 @@ VA - Made In Britain (2001) S&V #04/2001 [FLAC|Lossless|tracks + .cue] <Alternat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900956.jpg" />
 </div>
 
 
@@ -415,7 +560,7 @@ Pretenders - Hate for Sale (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900433.jpg" />
 </div>
 
 
@@ -441,7 +586,7 @@ Ratt - 10 Albums, 1 Box-Set, 26CD (1983-2015) [FLAC|Lossless|image + .cue | trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900164.jpg" />
 </div>
 
 
@@ -473,7 +618,7 @@ Travis Moreno - Travis Moreno (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899958.jpg" />
 </div>
 
 
@@ -502,7 +647,7 @@ Heart - Greatest Hits (2000) Compilation, Japanese Edition [FLAC|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899534.jpg" />
 </div>
 
 
@@ -531,7 +676,7 @@ Heart - Greatest Hits (1998) remastered, 2011, Audio Fidelity [WavPack|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899156.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Syndone - Kama Sutra (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Art
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899008.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ Marillion - Kayleigh (1996) [FLAC|Lossless|tracks + .cue] <Symphonic Rock, Class
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898997.jpg" />
 </div>
 
 
@@ -603,151 +748,6 @@ Marillion - Kayleigh (1996) [FLAC|Lossless|tracks + .cue] <Symphonic Rock, Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECB70FAD80C9511BBB528E1A8DDB141891D6DE81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992529   (898972) от 03.03.2016
-
-VA - Romantic Collection - Boogie-Woogie (2000) [FLAC|Lossless|image + .cue] <Rock n Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898972.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Dirty  Boogie (The  Brian  Setzer  Orchestra) [03:15]
-2. Katushka (Pilgrims) [02:41]
-3. Brand New Cadillac (Es Feiv) [02:08]
-4. Run For Your Life (Robert Cordon) [02:20](   Читать дальше...   )Жанр: Rock n RollПродолжительность: 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89DC06C788B6B87B0A951BAEDF700AD7985527C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493008   (898766) от 01.09.2021
-
-Brian Setzer - Gotta Have The Rumble (2021) [FLAC|Lossless|image + .cue] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Checkered Flag (4:05)
-02. Smash Up On Highway One (3:47)
-03. Stack My Money (2:46)
-04. The Wrong Side Of The Tracks (4:01)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2919418F388C81CE3F40BEC545CF29A1F274433B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492371   (898247) от 26.03.2020
-
-George Michael And Queen With Lisa Stansfield – Five Live (1993) [FLAC|Lossless|image + .cue] <Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody To Love (5:19)
-02. Killer (5:58)
-03. Papa Was A Rollin' Stone (5:24)
-04. These Are The Days of Our Lives (with Lisa Stansfield) (4:44)(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504C64EF08EB8274DE55B17C0E42416BBC312F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100664   (898107) от 05.02.2017
-
-Eris Pluvia - Different Earths (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Renaissance (The Door Of My Soul Reprise) (3:23)
-02. Man On A Rope (5:58)
-03. Aqua (4:11)
-04. Rain Is Falling (5:13)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8206A52001C85FE2F82BBAB0F051F3DABCB57AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100770   (898103) от 05.02.2017
-
-Hear N' Ade - Now Hear This (2016) [FLAC|Lossless|tracks + .cue] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bible Belt 04:06
-02. Shout 04:12
-03. Miss Demeanor 04:35
-04. High Road 03:19(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA6BC5E0CB46C1A3B55D66F5BAFF82B6744FFC6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

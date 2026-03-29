@@ -1,3 +1,114 @@
+###  Публикация: 1185410   (292938) от 21.11.2017
+
+ACDSee Photo Studio 4.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение ACDSee Photo Studio 4 — одно из лучших решений для работы с графическими изображениями в среде Mac. Качественная обработка фотоснимков, оптимизация всех аспектов рабочего процесса, экономия времени, усилий и финансов пользователей — все это обеспечивает ACDSee Photo Studio 4.
+
+Интерфейс программы позволяет проводить удобную для работы настройку. Его ориентация (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: ACD Systems International Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807BFFA011AEE3DFAEA081E45A0E1D5594358D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185476   (292736) от 21.11.2017
+
+Adobe InDesign CC 2018 v13.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe InDesign CC — профессиональный продукт для проектирования дизайна любых печатных или Интернет изданий. Adobe InDesign CC обладает всеми прогрессивными возможностями и инструментами машинной верстки, с помощью которых можно быстро и эффективно разрабатывать дизайн страниц любой сложности. Программа поддерживает импорт рисунков и текста из самых разнообразных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2017Разработчик: Adobe SystemsПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Немецкий, Французский  и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6359B511ECDFD82B98AA01C471E8042F3122BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962703   (292635) от 05.12.2015
+
+Money Pro 1.5.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Money Pro - Управляйте деньгами: бюджеты, счета, напоминания, синхронизация
+ Money Pro является следующим поколением программы Money - Мои деньги (более 2 миллионов скачиваний по всему миру).
+
+Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Удобная синхронизация (iPhone, iPad, Mac). Money (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 05 декабря 2015Разработчик: iBear LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4404334036176BAF910FA23A00CF9D7B96993BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185506   (292604) от 21.11.2017
+
+Parallels Desktop for Mac Business Edition 13.2.0 (43213) [Multi/Ru]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_292604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parallels Desktop для Mac Business Edition — самое удобное и многофункциональное решение для запуска Windows на компьютерах Mac для профессионалов, рабочих коллективов и корпоративных пользователей. Благодаря высокой производительности вы можете запускать любое Windows-приложение, такое как Microsoft Office, без какого-либо ущерба для быстродействия.
+
+Parallels Desktop (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2017Разработчик: Parallels Holdings LtdПоддерживаемая ОС: macOS 10.10.5 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63B68007BC781F9B2320A90D0EAF7FFE70778832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334612   (292567) от 30.10.2019
 
 Bartender 3 v3.1.7 [En]
@@ -6,7 +117,7 @@ Bartender 3 v3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292567.jpg" />
+  <img src="Z:/picture/008/save_picture_292567.jpg" />
 </div>
 
 
@@ -33,7 +144,7 @@ Native Instruments Traktor Pro 3 v3.2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292566.jpg" />
+  <img src="Z:/picture/008/save_picture_292566.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ Kiwi for Gmail 2.0.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292539.jpg" />
+  <img src="Z:/picture/008/save_picture_292539.jpg" />
 </div>
 
 
@@ -89,7 +200,7 @@ CleanMyMac X 4.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292529.jpg" />
+  <img src="Z:/picture/008/save_picture_292529.jpg" />
 </div>
 
 
@@ -116,7 +227,7 @@ iSkysoft iMedia Converter Deluxe 10.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292527.jpg" />
+  <img src="Z:/picture/008/save_picture_292527.jpg" />
 </div>
 
 
@@ -144,7 +255,7 @@ Motion 5.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292526.jpg" />
+  <img src="Z:/picture/008/save_picture_292526.jpg" />
 </div>
 
 
@@ -172,7 +283,7 @@ Final Cut Pro X 10.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292525.jpg" />
+  <img src="Z:/picture/008/save_picture_292525.jpg" />
 </div>
 
 
@@ -200,7 +311,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292410.jpg" />
+  <img src="Z:/picture/008/save_picture_292410.jpg" />
 </div>
 
 
@@ -228,7 +339,7 @@ Corporate Templates - Business Stationery 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292213.jpg" />
+  <img src="Z:/picture/008/save_picture_292213.jpg" />
 </div>
 
 
@@ -256,7 +367,7 @@ SecuritySpy 5 v5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292207.jpg" />
+  <img src="Z:/picture/008/save_picture_292207.jpg" />
 </div>
 
 
@@ -282,7 +393,7 @@ Araxis Merge Pro Edition 2020.5479 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292206.jpg" />
+  <img src="Z:/picture/008/save_picture_292206.jpg" />
 </div>
 
 
@@ -310,7 +421,7 @@ ON1 HDR 2021 v15.0.1.9783 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292201.jpg" />
+  <img src="Z:/picture/008/save_picture_292201.jpg" />
 </div>
 
 
@@ -336,7 +447,7 @@ ON1 Resize 2021 v15.0.1.9783 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292198.jpg" />
+  <img src="Z:/picture/008/save_picture_292198.jpg" />
 </div>
 
 
@@ -362,7 +473,7 @@ iFlicks 3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292197.jpg" />
+  <img src="Z:/picture/008/save_picture_292197.jpg" />
 </div>
 
 
@@ -390,7 +501,7 @@ Business Templates for Pages 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292065.jpg" />
+  <img src="Z:/picture/008/save_picture_292065.jpg" />
 </div>
 
 
@@ -419,7 +530,7 @@ Luminar 1.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292057.jpg" />
+  <img src="Z:/picture/008/save_picture_292057.jpg" />
 </div>
 
 
@@ -447,7 +558,7 @@ Espresso 2.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291994.jpg" />
+  <img src="Z:/picture/008/save_picture_291994.jpg" />
 </div>
 
 
@@ -475,7 +586,7 @@ Infographics for Pages 3.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291992.jpg" />
+  <img src="Z:/picture/008/save_picture_291992.jpg" />
 </div>
 
 
@@ -502,7 +613,7 @@ Waltr 1.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291987.jpg" />
+  <img src="Z:/picture/008/save_picture_291987.jpg" />
 </div>
 
 
@@ -529,7 +640,7 @@ QLab Pro 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291979.jpg" />
+  <img src="Z:/picture/008/save_picture_291979.jpg" />
 </div>
 
 
@@ -557,7 +668,7 @@ MacFamilyTree 8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291909.jpg" />
+  <img src="Z:/picture/008/save_picture_291909.jpg" />
 </div>
 
 
@@ -586,7 +697,7 @@ VueScan Pro 9.5.61 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291906.jpg" />
+  <img src="Z:/picture/008/save_picture_291906.jpg" />
 </div>
 
 
@@ -597,117 +708,6 @@ VueScan — программа для работы со сканерами HP, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B5A03C19F58CBA5B16F19E2976119B4B99EF5F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185665   (291736) от 22.11.2017
-
-KeyKey 2.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291736.jpg" />
-</div>
-
-
-###  Подробнее
-
-KeyKey — учимся слепому набору
-Слепая десятипальцевая печать — штука полезная. Даже если вы пишите только комментарии в соцсетях, представьте как здорово общаться не отвлекаясь на набор и исправление ошибок. Ну а блогерам, маркетологам, журналистам этот навык жизненно необходим.
-
-Чтобы научится слепому набору не нужны учителя и дорогостоящие курсы. KeyKey работает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2017Разработчик: Sergiy VynnychenkoПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Украинский и Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789D5A268790A51DABCA7E03B297F4BDC37EB9ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185664   (291726) от 22.11.2017
-
-iExplorer 4.1.11 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
-
-iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 ноября 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E40625EEF72CE5637732C1493531B86FF02822F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185663   (291723) от 22.11.2017
-
-AnyTrans 6.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291723.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans - Управляем своими файлами вместе с AnyTrans
-AnyTrans - файловый менеджер, который отвечает за перемещение файлов с персонального компьютера на устройство iOS. Для более легкого обучения пользования всеми функциями менеджера предусмотрен специальный режим легкого и быстрого обучения "iWizard", который последовательно проведет вас через необходимые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: ноябрь 2017Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский, Немецкий, Испанский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FBCB376F4C20D19BA2EEF2B87D31224FAF2623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334784   (291680) от 31.10.2019
-
-Art Files 3 v3.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Art Files идеально подходит для иллюстраторов и художников или тех, кто работает с графическими файлами и нуждается в отправке документов другим лицам для редактирования или печати.
-Программа собирает все данные о .ai файлах (Adobe illustrator) - данные о шрифтах, других файлах, которые относятся к Вашему проекту. Также Art Files обладает уникальной способностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Code LineПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB3E4CF03042F081E4518E5484B6CE9A81B750A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

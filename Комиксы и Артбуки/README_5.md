@@ -6,7 +6,7 @@ Moore | Росомаха Нуар / Wolverine Noir (2009) [pdf]
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460687.jpg" />
+  <img src="Z:/picture/008/save_picture_460687.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460549.jpg" />
+  <img src="Z:/picture/008/save_picture_460549.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Santa Monica Studios | Артбук по игре God of War / The Art of God of
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454584.jpg" />
+  <img src="Z:/picture/008/save_picture_454584.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Kojima Productions | Артбук по игре Metal Gear Solid V / The Art of 
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448191.jpg" />
+  <img src="Z:/picture/008/save_picture_448191.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы без перевода
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446668.jpg" />
+  <img src="Z:/picture/008/save_picture_446668.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ Irrational Games | Артбук по игре BioShock Infinite / The Art of Bio
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444186.jpg" />
+  <img src="Z:/picture/008/save_picture_444186.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ CCP Games | Артбук по вселенной игр EVE / EVE Universe - The
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442005.jpg" />
+  <img src="Z:/picture/008/save_picture_442005.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441820.jpg" />
+  <img src="Z:/picture/008/save_picture_441820.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Oscar Martin / Оскар Мартин | Tom and Jerry / Том и Джерри 
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439287.jpg" />
+  <img src="Z:/picture/008/save_picture_439287.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Spicy Horse | Артбук по игре Alice: Madness Returns / The Art of Ali
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437523.jpg" />
+  <img src="Z:/picture/008/save_picture_437523.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434987.jpg" />
+  <img src="Z:/picture/008/save_picture_434987.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434643.jpg" />
+  <img src="Z:/picture/008/save_picture_434643.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434365.jpg" />
+  <img src="Z:/picture/008/save_picture_434365.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Hasbro Studios | Артбук по мультфильму My Little Pony / The A
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433217.jpg" />
+  <img src="Z:/picture/008/save_picture_433217.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Disney | Aladdin / Аладдин (1996-1997) [CBR]
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430451.jpg" />
+  <img src="Z:/picture/008/save_picture_430451.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430291.jpg" />
+  <img src="Z:/picture/008/save_picture_430291.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430277.jpg" />
+  <img src="Z:/picture/008/save_picture_430277.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430167.jpg" />
+  <img src="Z:/picture/008/save_picture_430167.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430015.jpg" />
+  <img src="Z:/picture/008/save_picture_430015.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429890.jpg" />
+  <img src="Z:/picture/008/save_picture_429890.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Warner Bros | Артбук по фильму Матрица / The Art of the Mat
 >>Артбуки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429460.jpg" />
+  <img src="Z:/picture/008/save_picture_429460.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428617.jpg" />
+  <img src="Z:/picture/008/save_picture_428617.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428602.jpg" />
+  <img src="Z:/picture/008/save_picture_428602.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428436.jpg" />
+  <img src="Z:/picture/008/save_picture_428436.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428280.jpg" />
+  <img src="Z:/picture/008/save_picture_428280.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комиксы на русском языке
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428269.jpg" />
+  <img src="Z:/picture/008/save_picture_428269.jpg" />
 </div>
 
 

@@ -1,3 +1,118 @@
+###  Публикация: 1194269   (157963) от 24.12.2017
+
+Billy Harper - The Believer (1980) 2009, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is It Not True, Simply Because You Cannot Believe It? [19:56]
+02. I Do Believe [04:37]
+03. Believe, For It Is True! [12:12]Жанр: Post-BopПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F80D46CBD80E393016846BE6976087AA4335B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194276   (157960) от 24.12.2017
+
+Clayton-Hamilton Jazz Orchestra - Absolutely! (1994) MLake Street Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues For Stephanie [07:04]
+02. Jazz Party [04:41]
+03. For All We Know [05:10]
+04. On The Sunny Side Of The Street [03:56](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCD40809EA2366AF2920D6833752D54046A1F4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194272   (157923) от 24.12.2017
+
+Enrico Pieranunzi Quintet - Don't Forget The Poet (2006) CHallenge Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Persona [06:07]
+02. Don't Forget The Poet [04:58]
+03. Child Of The Real And Ideal [05:41]
+04. Coralie [05:40](   Читать дальше...   )Жанр: Contemporary Jazz, Post-BopПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2ABE1EA5D2156326C3BC53737EF43E12938B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600452   (157853) от 27.12.2022
+
+Django Reinhardt - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Si tu savais [2:47]
+02. Eveline [2:16]
+03. Diminishing [3:18]
+04. Mike [2:52](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA50B69916341DF5DD0BE92F455E1357A697A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676426   (157728) от 13.11.2023
 
 Jack DeJohnette - Sound Travels (2012) Entertainment One [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
@@ -6,7 +121,7 @@ Jack DeJohnette - Sound Travels (2012) Entertainment One [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157728.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ Stone Raiders - Truth To Power (2012) [FLAC|Lossless|tracks + .cue] <Eclectic Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157434.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ Eddie Cano & His Quintet - Brought Back Live From P.J.'s (1967) 2014, Universal[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157401.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ Kenny Dorham - Quiet Kenny (1959) 2001, Prestige[FLAC|tracks+.cue] <Hard Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157365.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ The Dutch Swing College Band - The Best Of Dixie (1999) MasterTone Multimedia Lt
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157295.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ Archie Shepp Quartet - I Didn't Know About You (1990) 2015, Timeless Records[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157228.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Stacey Kent feat. Art Hirahara - Songs From Other Places (2022) Special Edition 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157197.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ Doc Cheatham - The Eighty-Seven Years Of Doc Cheatham (1993) Columbia[APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157040.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ The J.J. Johnson Quintet - J Is For Jazz (1956) Remaster, 2015, Sony Music[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157026.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ The Chico Hamilton Quintet - With Strings Attached (1959) 2007, Collectables[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156998.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ Dalindeo - Kallio (2013) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Rockabilly>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156987.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Hank Crawford & Jimmy McGriff - Crunch Time (1998), Fantasy[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156967.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ Casiopea - Dramatic (1993) Village[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156951.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ Dexter Gordon - Ca'Purange (1972) 1999, Original Jazz Classics[FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156404.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ Erroll Garner - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156309.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ Herlin Riley - Perpetual Optimism (2017) 2019, Mack Avenue [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156143.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ Tony Parenti's All Stars - Happy Jazz (1955) 2007, Membran Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156126.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156126.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ Benny Carter - Further Definitions (1961, 1966) 2005, Impulse! [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156098.jpg" />
 </div>
 
 
@@ -528,7 +643,7 @@ Paolo Fresu - Birth Of The Cool (2012) Musica Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156036.jpg" />
 </div>
 
 
@@ -557,7 +672,7 @@ The Jaki Byard Quartet With Joe Farrell - The Last From Lennie's (1965) 2003, Pr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156022.jpg" />
 </div>
 
 
@@ -586,7 +701,7 @@ Claudio Roditi - Slow Fire (1989) Milestone Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156007.jpg" />
 </div>
 
 
@@ -615,7 +730,7 @@ Jim Snidero - Waves Of Calm (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155845.jpg" />
 </div>
 
 
@@ -629,122 +744,6 @@ Jim Snidero - Waves Of Calm (2019) Savant [FLAC|Lossless|tracks + .cue] <Post-Bo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78921B7EB76F43677B16E2EE1EA51C30AE7494A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676643   (155821) от 14.11.2023
-
-Harold Lopez-Nussa - Timba A La Americana (2023) Blue Note Records [FLAC|Lossless|tracks + .cue] <Cuban Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funky [4:12]
-02. Cake a la Moda [4:43]
-03. Mal du Pays [4:49]
-04. Rat-a-Tat [4:26](   Читать дальше...   )Жанр: Cuban Jazz, Piano JazzПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751C4B96CF8903846D663AB13A0EB99C07FCC7B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346957   (155729) от 21.12.2019
-
-Ahmad Jamal - Ballades (2019) Jazz Village [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marseille [4:56]
-02. Because I Love You [6:00]
-03. I Should Care [3:25]
-04. Poinciana [4:28](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E29B0203D4A407276E40D93B1B9F48C10B13254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194639   (155687) от 25.12.2017
-
-Swingrowers - Remote (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight (03:44)
-02. Baby Lone (03:47)
-03. That's Right! (03:19)
-04. Stay Swing (03:33)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:731739DA28CF1330D127F5125B217EC400D157ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346964   (155484) от 21.12.2019
-
-Regis Philbin - When You're Smiling (2004) Hollywood Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Make Me Feel So Young [3:24]
-02. Pennies from Heaven [3:18]
-03. It Had to Be You [3:08]
-04. When You're Smiling [3:14](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E64CFACF346F979998C8EFD1E5465698CAFF1A93
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ ExamDiff Pro Master Edition 10.0.1.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724612.jpg" />
+  <img src="Z:/picture/008/save_picture_724612.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724607.jpg" />
+  <img src="Z:/picture/008/save_picture_724607.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Master PDF Editor 5.3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724606.jpg" />
+  <img src="Z:/picture/008/save_picture_724606.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Avast Secure Browser 72.0.1151.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724605.jpg" />
+  <img src="Z:/picture/008/save_picture_724605.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724602.jpg" />
+  <img src="Z:/picture/008/save_picture_724602.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Sandboxie 5.55.11 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724573.jpg" />
+  <img src="Z:/picture/008/save_picture_724573.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ RegCool 1.311 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724571.jpg" />
+  <img src="Z:/picture/008/save_picture_724571.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Glary Utilities Pro 5.182.0.211 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724565.jpg" />
+  <img src="Z:/picture/008/save_picture_724565.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Patricia Spero - Harpe et Relaxation (2014) [FLAC|Lossless|image + .cue] <Classi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724560.jpg" />
+  <img src="Z:/picture/008/save_picture_724560.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Disk Drill Enterprise 4.6.377 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724555.jpg" />
+  <img src="Z:/picture/008/save_picture_724555.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724552.jpg" />
+  <img src="Z:/picture/008/save_picture_724552.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724543.jpg" />
+  <img src="Z:/picture/008/save_picture_724543.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Dash 4.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724541.jpg" />
+  <img src="Z:/picture/008/save_picture_724541.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Inboard 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724535.jpg" />
+  <img src="Z:/picture/008/save_picture_724535.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Money Pro 1.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724533.jpg" />
+  <img src="Z:/picture/008/save_picture_724533.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ Allavsoft Video Downloader Converter 3.14.4.6325 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724530.jpg" />
+  <img src="Z:/picture/008/save_picture_724530.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Internet Download Manager 6.38 Build 2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724529.jpg" />
+  <img src="Z:/picture/008/save_picture_724529.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ DJ Feel - TranceMission (24-04-2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724523.jpg" />
+  <img src="Z:/picture/008/save_picture_724523.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724503.jpg" />
+  <img src="Z:/picture/008/save_picture_724503.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Kermode - Between Mountain and Moon (2016) [MP3|320 Kbps] <Dubstep, Glitch Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724501.jpg" />
+  <img src="Z:/picture/008/save_picture_724501.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ CloudMounter 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724499.jpg" />
+  <img src="Z:/picture/008/save_picture_724499.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724481.jpg" />
+  <img src="Z:/picture/008/save_picture_724481.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724470.jpg" />
+  <img src="Z:/picture/008/save_picture_724470.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ JetBrains Rider 2018.3.3 Build #RD-183.5619.41 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724468.jpg" />
+  <img src="Z:/picture/008/save_picture_724468.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ u-he - Hive 1.2.1.8296 VSTi, VSTi3, AAX (x86/x64) RePack by VR [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724465.jpg" />
+  <img src="Z:/picture/008/save_picture_724465.jpg" />
 </div>
 
 
@@ -688,7 +688,7 @@ PDF Shaper Professional 8.9 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724464.jpg" />
+  <img src="Z:/picture/008/save_picture_724464.jpg" />
 </div>
 
 

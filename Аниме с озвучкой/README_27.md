@@ -1,3 +1,30 @@
+###  Публикация: 837746   (567911) от 29.07.2015
+
+Trinity Seven / Святая семёрка [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus x5(ext)
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_567911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что нужно настоящему японскому школьнику? Хорошая физическая форма, богатое воображение, моральная стойкость и, конечно, решительность! Арата Касуга, узнав, что неведомые магические силы грубо вмешались в его жизнь, похитив любимую кузину Хидзири, не стал в истерике кататься по полу, размазывая слезы, а твердо решил сам овладеть магией и рассчитаться с обидчиками. (   Читать дальше...   )Жанр: приключения, комедия, фэнтези, эттиРежиссер: Нисикиори ХиросиПеревод: Русские субтитры от GMC
+Переводчик: Elven_tankman, Редакторы: Koushin, Nerevar, Оформление: SurokuneСубтитры: ASS, Полные | Надписи (внешними файлами)Формат: MKVПродолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420D0B6BEB1202CB48D783918021830859B0B4B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 708157   (567788) от 29.07.2015
 
 Magi: The Kingdom of Magic / Маги (ТВ-2): Королевство Магии [2014, TV, 25 ep] BDRip Hi10p 720p Raw+Rus x7(ext)
@@ -6,7 +33,7 @@ Magi: The Kingdom of Magic / Маги (ТВ-2): Королевство Маги�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567788.jpg" />
+  <img src="Z:/picture/008/save_picture_567788.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ Kimi no Na wa | Your Name | Твоё имя [2016, Movie] BDRip 400p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566563.jpg" />
+  <img src="Z:/picture/008/save_picture_566563.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ Soul Link | Связь душ [2006, TV, 12 эп.] DVDrip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562985.jpg" />
+  <img src="Z:/picture/008/save_picture_562985.jpg" />
 </div>
 
 
@@ -85,7 +112,7 @@ Chirin no Suzu | Ringing Bell | Колокольчик Чирина [1978, Movie
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562983.jpg" />
+  <img src="Z:/picture/008/save_picture_562983.jpg" />
 </div>
 
 
@@ -111,7 +138,7 @@ Yume de Aetara | If I See You in My Dreams | Увидеть тебя в моих
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562981.jpg" />
+  <img src="Z:/picture/008/save_picture_562981.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ Tonari no Totoro / My Neighbor Totoro / Мой сосед Тоторо [1988] BD
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562171.jpg" />
+  <img src="Z:/picture/008/save_picture_562171.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ Tetsuwan Birdy Decode: The Cipher | Birdy the Mighty Decode: The Cipher | Мог
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561159.jpg" />
+  <img src="Z:/picture/008/save_picture_561159.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ Tetsuwan Birdy Decode:02 | Birdy the Mighty: Decode | Могучая Берди 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561158.jpg" />
+  <img src="Z:/picture/008/save_picture_561158.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ Shin Kimagure Orange Road: Soshite, Ano Natsu no Hajimari | Новые капр�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561157.jpg" />
+  <img src="Z:/picture/008/save_picture_561157.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ Kidou Senshi Gundam 0080: Pocket no Naka no Sensou | Mobile Suit Gundam 0080: Wa
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561156.jpg" />
+  <img src="Z:/picture/008/save_picture_561156.jpg" />
 </div>
 
 
@@ -268,7 +295,7 @@ Megazone 23 | Мегазона 23 [1985-1989, OVA, 4 эп.] DVDrip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561155.jpg" />
+  <img src="Z:/picture/008/save_picture_561155.jpg" />
 </div>
 
 
@@ -294,7 +321,7 @@ Tetsuwan Birdy Decode | Birdy the Mighty Decode | Могучая Берди [Т�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561153.jpg" />
+  <img src="Z:/picture/008/save_picture_561153.jpg" />
 </div>
 
 
@@ -320,7 +347,7 @@ Lost Universe / Затерянная Вселенная [1998, TV, 26 из 26] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561149.jpg" />
+  <img src="Z:/picture/008/save_picture_561149.jpg" />
 </div>
 
 
@@ -346,7 +373,7 @@ Madan no Ou to Vanadis / Lord Marksman and Vanadis / Повелитель вол
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560711.jpg" />
+  <img src="Z:/picture/008/save_picture_560711.jpg" />
 </div>
 
 
@@ -372,7 +399,7 @@ Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармаге�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557217.jpg" />
+  <img src="Z:/picture/008/save_picture_557217.jpg" />
 </div>
 
 
@@ -398,7 +425,7 @@ Killing Bites [TV-1] | Смертельный укус [2018, TV, 12 из 12] BD
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556161.jpg" />
+  <img src="Z:/picture/008/save_picture_556161.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554283.jpg" />
+  <img src="Z:/picture/008/save_picture_554283.jpg" />
 </div>
 
 
@@ -453,7 +480,7 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554282.jpg" />
+  <img src="Z:/picture/008/save_picture_554282.jpg" />
 </div>
 
 
@@ -480,7 +507,7 @@ Ginga Eiyuu Densetsu | Legend of the Galactic Heroes | Легенда о гер�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554279.jpg" />
+  <img src="Z:/picture/008/save_picture_554279.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ Ginga Eiyuu Densetsu: Aratanaru Tatakai no Overture | Legend of Galactic Heroes 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551699.jpg" />
+  <img src="Z:/picture/008/save_picture_551699.jpg" />
 </div>
 
 
@@ -534,7 +561,7 @@ Noragami / Бездомный бог [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551151.jpg" />
+  <img src="Z:/picture/008/save_picture_551151.jpg" />
 </div>
 
 
@@ -560,7 +587,7 @@ Maken-ki! Two / Макен-Ки! 2 [2014, TV, 10 ep] BDRip 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549217.jpg" />
+  <img src="Z:/picture/008/save_picture_549217.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ Fairy Tail / Сказка о Хвосте феи [2009, TV, 175 из 175] DTV 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547159.jpg" />
+  <img src="Z:/picture/008/save_picture_547159.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ Sanzoku no Musume Ronja / Ronja the Robber's Daughter / Ронья, дочь р�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546643.jpg" />
+  <img src="Z:/picture/008/save_picture_546643.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ Isekai no Seikishi Monogatari / Saint Knight Story in an Alternate World / Ин�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545353.jpg" />
+  <img src="Z:/picture/008/save_picture_545353.jpg" />
 </div>
 
 
@@ -651,32 +678,6 @@ Isekai no Seikishi Monogatari / Saint Knight Story in an Alternate World / Ин�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D43B831073E121CB459474E7C81FC0DA118F938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817779   (543965) от 01.09.2014
-
-Mikakunin de Shinkoukei / Engaged to the Unidentified / Помолвлена с незнакомцем [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кобэни Ёномори, симпатичная девушка и отличная хозяйка, получила на 16-й день рождения самый необычный подарок. Мать объявила, что по слову покойного деда, главы клана, Кобэни с детства помолвлена с наследником семьи Мицуминэ, своим ровесником по имени Хакуя. Сам суженый знатного рода, но вырос в горной деревне, и, чтобы обрести городской шик и приобщиться к цивилизации, отныне будет жить с ними – а вот, кстати, и он. Окончательно добило Ёномори-младшую явление вихря энергии в виде малышки Масиро Мицуминэ, которая (   Читать дальше...   )Жанр: комедия, повседневность, романтикаРежиссер: Фудзивара ЁсиюкиПеревод: Firegorn-TeamФормат: MKV |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CAC488221D3367D9ECFBF267B8DF42309CE7252
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814019.jpg" />
+  <img src="Z:/picture/008/save_picture_814019.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814018.jpg" />
+  <img src="Z:/picture/008/save_picture_814018.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814017.jpg" />
+  <img src="Z:/picture/008/save_picture_814017.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814016.jpg" />
+  <img src="Z:/picture/008/save_picture_814016.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814015.jpg" />
+  <img src="Z:/picture/008/save_picture_814015.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814014.jpg" />
+  <img src="Z:/picture/008/save_picture_814014.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814013.jpg" />
+  <img src="Z:/picture/008/save_picture_814013.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814012.jpg" />
+  <img src="Z:/picture/008/save_picture_814012.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Soft Organizer Pro 9.11 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814006.jpg" />
+  <img src="Z:/picture/008/save_picture_814006.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ WinNTSetup 5.0.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814000.jpg" />
+  <img src="Z:/picture/008/save_picture_814000.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Notepad++ 8.1.9 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813981.jpg" />
+  <img src="Z:/picture/008/save_picture_813981.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813953.jpg" />
+  <img src="Z:/picture/008/save_picture_813953.jpg" />
 </div>
 
 
@@ -329,7 +329,7 @@ Riot - The Brethren Of The Long House (1995) Japan [APE|Lossless|image + .cue] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813948.jpg" />
+  <img src="Z:/picture/008/save_picture_813948.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Riot - Sons Of Society (1999) Japan [APE|Lossless|image + .cue] <Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813947.jpg" />
+  <img src="Z:/picture/008/save_picture_813947.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Riot - Angel Eyes (1997) Japan [APE|Lossless|image + .cue] <Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813944.jpg" />
+  <img src="Z:/picture/008/save_picture_813944.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813942.jpg" />
+  <img src="Z:/picture/008/save_picture_813942.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813941.jpg" />
+  <img src="Z:/picture/008/save_picture_813941.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Riot - Shine On (1998) Japan [APE|Lossless|image + .cue] <Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813940.jpg" />
+  <img src="Z:/picture/008/save_picture_813940.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813936.jpg" />
+  <img src="Z:/picture/008/save_picture_813936.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813933.jpg" />
+  <img src="Z:/picture/008/save_picture_813933.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ VA - Beatport Top 10 Trance (30.03.2011) (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813911.jpg" />
+  <img src="Z:/picture/008/save_picture_813911.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Middle 1.3.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813891.jpg" />
+  <img src="Z:/picture/008/save_picture_813891.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Deckset 2.0.16 (build 2578) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813883.jpg" />
+  <img src="Z:/picture/008/save_picture_813883.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ iA Writer 5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813882.jpg" />
+  <img src="Z:/picture/008/save_picture_813882.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ Cisdem Video Converter 5.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813881.jpg" />
+  <img src="Z:/picture/008/save_picture_813881.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ TextMate 2 v2.0.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813880.jpg" />
+  <img src="Z:/picture/008/save_picture_813880.jpg" />
 </div>
 
 

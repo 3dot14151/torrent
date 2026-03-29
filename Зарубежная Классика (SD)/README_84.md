@@ -1,3 +1,84 @@
+###  Публикация: 1175100   (362695) от 25.10.2017
+
+Двое в пути / Two for the Road (1967) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_362695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Переживающие кризис супружеской жизни, Марк и Джоанна Уоллес отправляются отдохнуть на французскую Ривьеру, место их знакомства. Будучи студентом, Марк, изучавший памятники европейской архитектуры, встретился там с весёлой компанией девушек-музыкантов.
+Вначале Марк «запал» на Джекки, но затем переключился на Джоанну… Уже поженившись, они ещё не раз совершали поездки (   Читать дальше...   )Производство: Великобритания / 20th Century Fox Film Corporation, Stanley Donen FilmsЖанр: Драма, Мелодрама, КомедияРежиссер: Стенли ДоненАктеры: Одри Хепберн, Альберт Финни, Элинор Брон, Уильям Дэниелс, Гэбриэлль Миддлтон, Клод Дофен, Надя Грей, Жорж Декриер, Жаклин Биссет, Джуди КорнуэллПеревод: Многоголосый закадровый, двуголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 01:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F086C5E77873F96CA0C7D952D3BB787F406DF37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 721436   (362535) от 15.11.2013
+
+Супермозг / Le cerveau (1969) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_362535.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе фильма лежит реальная история ограбления поезда Глазго-Лондон в 1963 году.
+
+Мелкий воришка Артур (Жан-Поль Бельмондо) задумал, наконец, провернуть крупное дело — ограбить НАТОвский поезд, перевозящий тайные фонды 14-ти стран из Парижа в Брюссель. Для этого Артур бежит из тюрьмы за четыре дня до освобождения при помощи своего друга Анатоля (Бурвиль). Но и (   Читать дальше...   )Жанр: Приключения, Комедия, КриминалРежиссер: Жерар УриАктеры: Жан-Поль Бельмондо, Бурвиль, Дэвид Нивен, Эли Уоллах , Сильвия Монти, Раймон Жером, Робер Далбан, Марио Дави, Анри Жене, Поль МерсиПеревод: Двуголосый закадровыйЯзык субтитров: Русские, английские, французские отключаемыеПродолжительность: 01:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E101FA03DD27E1FB02B9B450C3BC7EA901F8958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 721860   (362519) от 15.11.2013
+
+Первая брачная ночь / La mariee est trop belle (1956) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_362519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стремясь поднять тираж, издатели модного журнала Мишель и Марго придумывают устроить большое шоу под названьем "Свадьба" и создать идеальную молодую и красивую пару. Молодой актер Патрис и хорошенькая парижанка Шушу, делающая карьеру фотомодели, становятся женихом и невестой, правда, лишь на страницах журнала. Неожиданно для себя Мишель начинает испытывать (   Читать дальше...   )Жанр: Комедия, МелодрамаРежиссер: Пьер Гаспар-ЮиАктеры: Бриджит Бардо, Мишлин Прель, Луи Журдан, Марсель Амон, Роже Дюма, Николь Геден, Мадлен Ламберт, Жан-Франсуа КальвеПеревод: Многоголосый закадровыйСубтитры: Русские, отдельным файломПродолжительность: 01:29:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97FF3F50CAEA5C227DFFE0AF1FD9186D23EF4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 764326   (362459) от 18.10.2020
 
 Путешествие на Юпитер / Le voyage sur Jupiter (1909) DVDRip
@@ -6,7 +87,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362459.jpg" />
+  <img src="Z:/picture/008/save_picture_362459.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361739.jpg" />
+  <img src="Z:/picture/008/save_picture_361739.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361556.jpg" />
+  <img src="Z:/picture/008/save_picture_361556.jpg" />
 </div>
 
 
@@ -85,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361089.jpg" />
+  <img src="Z:/picture/008/save_picture_361089.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361013.jpg" />
+  <img src="Z:/picture/008/save_picture_361013.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360970.jpg" />
+  <img src="Z:/picture/008/save_picture_360970.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360421.jpg" />
+  <img src="Z:/picture/008/save_picture_360421.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359789.jpg" />
+  <img src="Z:/picture/008/save_picture_359789.jpg" />
 </div>
 
 
@@ -221,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359674.jpg" />
+  <img src="Z:/picture/008/save_picture_359674.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358561.jpg" />
+  <img src="Z:/picture/008/save_picture_358561.jpg" />
 </div>
 
 
@@ -273,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358093.jpg" />
+  <img src="Z:/picture/008/save_picture_358093.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357935.jpg" />
+  <img src="Z:/picture/008/save_picture_357935.jpg" />
 </div>
 
 
@@ -326,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357804.jpg" />
+  <img src="Z:/picture/008/save_picture_357804.jpg" />
 </div>
 
 
@@ -352,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355328.jpg" />
+  <img src="Z:/picture/008/save_picture_355328.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355324.jpg" />
+  <img src="Z:/picture/008/save_picture_355324.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355249.jpg" />
+  <img src="Z:/picture/008/save_picture_355249.jpg" />
 </div>
 
 
@@ -432,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355234.jpg" />
+  <img src="Z:/picture/008/save_picture_355234.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355220.jpg" />
+  <img src="Z:/picture/008/save_picture_355220.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354477.jpg" />
+  <img src="Z:/picture/008/save_picture_354477.jpg" />
 </div>
 
 
@@ -511,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354068.jpg" />
+  <img src="Z:/picture/008/save_picture_354068.jpg" />
 </div>
 
 
@@ -537,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353947.jpg" />
+  <img src="Z:/picture/008/save_picture_353947.jpg" />
 </div>
 
 
@@ -564,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353580.jpg" />
+  <img src="Z:/picture/008/save_picture_353580.jpg" />
 </div>
 
 
@@ -590,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353449.jpg" />
+  <img src="Z:/picture/008/save_picture_353449.jpg" />
 </div>
 
 
@@ -601,88 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0992BD2F43990D8ED52FBFCF3D2053B01962187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177141   (353444) от 29.10.2017
-
-Последний закат / The Last Sunset (1961) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брендан О'Мэлли, пересекает границу с Мексикой и едет на ранчо Белл Брекенридж.
-Красавица была его возлюбленной и теперь замужем за алкоголиком и трусом Джоном
-Брекенриджем, но О'Мэлли все еще влюблен в нее. Джон нанимает О'Мэлли, чтобы
-перегнать его стадо в Техас. К ним присоединяется и шериф Дана Стриблинг, который(   Читать дальше...   )Производство: США / Brynaprod S.A., Universal International Pictures (UI or U-I)Жанр: Мелодрама, ВестернРежиссер: Роберт ОлдричАктеры: Рок Хадсон, Кирк Дуглас, Дороти Мэлоун, Джозеф Коттен, Кэрол Линли, Невилл Брэнд, Режис Туми, Джеймс Вэстмолэнд, Адам Уильямс, Джек ЭламПеревод: Многоголосый закадровый («Селена Интернешнл» по заказу СТС)Субтитры: ОтсутствуютПродолжительность: 01:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F216D717D0B3494820E88B0EEE40448B08FCBC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414874   (353249) от 22.10.2020
-
-Мари-Октябрь / Marie-Octobre (1959) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353249.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам одноимённого романа Жака Робера.
-Участники французского Сопротивления, потерявшие друг друга из виду после войны, собираются на вечеринку в загородном доме, где в годы оккупации Франции размещалась штаб-квартира группы. 15 лет назад при операции захвата группы гестаповцами здесь был убит её командир Пьер Кастиль. Вечеринка организована двумя бывшими подпольщиками (   Читать дальше...   )Производство: Франция / Abbey Films, Doxa Films, Orex Films, Societe Française du Theatre et CinemaЖанр: Драма, детективРежиссер: Жюльен ДювивьеАктеры: Даниель Дарьё, Бернар Блие, Робер Дальбан, Поль Франкёр, Жанна Фюзье-Жир, Поль Гер, Даниэль Ивернель, Поль Мёрисс, Серж Реджани, Ноэль Роквер, Лино Вентура и др.Перевод: Дублированный, двуголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F5DBA48EBDB6745C95C5D68A119A144061ABABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 763941   (352830) от 22.10.2020
-
-Луна всего лишь в метре / Сон астронома / La lune a un metre / The Astronomer's Dream (1898) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Феерическое и весёлое зрелище приготовил известнейший киноволшебник Жорж Мельес - сон астронома, в котором Луна пожаловала к нему в гости и оказалась всего в метре, да ещё такая озорная! Правда, тут не обошлось без происков беса, периодически появляющегося на экране. Но хорошо, что есть и добрая фея, которая всегда "придёт и молча поправит всё"...Производство: Франция, Star-FilmЖанр: Короткометражка, комедия, немое киноРежиссер: Жорж МельесАктеры: Жанна д’Альси, Жорж МельесСубтитры: ОтсутствуютПродолжительность: 00:03:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88213A01AE99E8659237ACF9B5F9241CEFCEFF07
 ```
 
 https://mybot314.ru/tekegram_catalog/

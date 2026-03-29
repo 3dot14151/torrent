@@ -1,3 +1,30 @@
+###  Публикация: 498765   (254375) от 19.05.2012
+
+Удиви меня. Сезон №3. Выпуск №7 (2012.05.19) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_254375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие фокусники страны демонстрируют свое искусство и борются за звание сильнейшего! Они пилят и протыкают, манипулируют и поражают ловкостью рук, заставляют предметы испаряться, а девушек – появляться! Главный приз шоу: поездку в Лас-Вегас на шоу «Мистерия» легендарного Цирка дю Солей.
+«Мистерия» - это уникальная постановка, которую можно увидеть собственными глазами только в Лас-Вегасе! Шоу было 8 раз удостоено награды «Лучшая постановка» по оценкам журнала Las Vegas Review Journal. В состав труппы входят 72 артиста из 18 стран мира.Жанр: ТВ-ШоуПродолжительность: ~ 01:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C591737AD82AA20C7A48F567497944D97420A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498394   (253938) от 18.05.2012
 
 Каникулы в Мексике - 2. Выпуск №55 (2012.05.18) SATRip
@@ -6,7 +33,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253938.jpg" />
+  <img src="Z:/picture/005/save_picture_253938.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253646.jpg" />
+  <img src="Z:/picture/005/save_picture_253646.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253636.jpg" />
+  <img src="Z:/picture/005/save_picture_253636.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253377.jpg" />
+  <img src="Z:/picture/005/save_picture_253377.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253356.jpg" />
+  <img src="Z:/picture/005/save_picture_253356.jpg" />
 </div>
 
 
@@ -136,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253190.jpg" />
+  <img src="Z:/picture/005/save_picture_253190.jpg" />
 </div>
 
 
@@ -162,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253154.jpg" />
+  <img src="Z:/picture/005/save_picture_253154.jpg" />
 </div>
 
 
@@ -188,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252869.jpg" />
+  <img src="Z:/picture/005/save_picture_252869.jpg" />
 </div>
 
 
@@ -214,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252845.jpg" />
+  <img src="Z:/picture/005/save_picture_252845.jpg" />
 </div>
 
 
@@ -240,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251450.jpg" />
+  <img src="Z:/picture/004/save_picture_251450.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251437.jpg" />
+  <img src="Z:/picture/004/save_picture_251437.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251113.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250760.jpg" />
 </div>
 
 
@@ -345,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250703.jpg" />
+  <img src="Z:/picture/004/save_picture_250703.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247935.jpg" />
+  <img src="Z:/picture/004/save_picture_247935.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247922.jpg" />
+  <img src="Z:/picture/004/save_picture_247922.jpg" />
 </div>
 
 
@@ -424,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247487.jpg" />
+  <img src="Z:/picture/004/save_picture_247487.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247292.jpg" />
+  <img src="Z:/picture/004/save_picture_247292.jpg" />
 </div>
 
 
@@ -477,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246455.jpg" />
+  <img src="Z:/picture/004/save_picture_246455.jpg" />
 </div>
 
 
@@ -503,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246371.jpg" />
+  <img src="Z:/picture/004/save_picture_246371.jpg" />
 </div>
 
 
@@ -529,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246320.jpg" />
+  <img src="Z:/picture/004/save_picture_246320.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245696.jpg" />
+  <img src="Z:/picture/004/save_picture_245696.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245034.jpg" />
+  <img src="Z:/picture/004/save_picture_245034.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244931.jpg" />
+  <img src="Z:/picture/004/save_picture_244931.jpg" />
 </div>
 
 
@@ -635,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244004.jpg" />
+  <img src="Z:/picture/004/save_picture_244004.jpg" />
 </div>
 
 
@@ -646,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5F6E56D87594132FD742C59C82B1A26092EA03F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074629   (243926) от 19.11.2016
-
-Охота (2016.11.19) SATRip (выпуск 10)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243926.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 сентября жизнь нескольких десятков людей изменится навсегда. В этот день 29 человек из разных уголков России превратятся в живую мишень для агентов спецслужб в рамках невероятного социального эксперимента НТВ «Охота». Участникам триллера в реальном времени предстоит выжить в условиях тотальной слежки. Они забудут голоса родных, теплую постель, свой пароль к аккаунту (   Читать дальше...   )Производство: НТВЖанр: Реалити-шоу, ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780E5F70772CF3AE3FBE0AAF43FA05BE35F2626A
 ```
 
 https://mybot314.ru/tekegram_catalog/

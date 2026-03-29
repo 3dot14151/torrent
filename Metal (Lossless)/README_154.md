@@ -1,3 +1,90 @@
+###  Публикация: 1408802   (451840) от 14.09.2020
+
+Soulwound - The Suffering (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waste of Life [00:04:10]
+02. Ritual Cleansing [00:04:51]
+03. Pleasures [00:06:02]
+04. The Cult of I [00:04:28](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA72B47FCD563FE449730A0CFE9BC8F841C6EE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569575   (451823) от 13.08.2022
+
+Jani Liimatainen - My Father’s Son (2022) [FLAC|Lossless|image + .cue] <Power Metal, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathing Divinity (Vocals: Bjorn “Speed” Strid)
+02. All Dreams Are Born To Die (Vocals: Tony Kakko)
+03. What Do You Want (Vocals: Renan Zonta)
+04. Who Are We (Vocals: Timo Kotipelto)(   Читать дальше...   )Жанр: Power Metal, AORПродолжительность: 00:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC0C5B480CE3B42819F62D757F3FE790B0278A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569502   (451792) от 13.08.2022
+
+Atrox Trauma - On the Line of Nothing and Something (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - On The Line Of Nothing And Something (00:01:25)
+02 - You Are Servant (00:03:04)
+03 - Parasite Elite (00:02:09)
+04 - I Don't Understand (00:03:46)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6831BDF0EC84CC3C68246AEF0BCB8D35277EB2EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408898   (451710) от 14.09.2020
 
 Stryper - Even The Devil Believes (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Heavy Metal>
@@ -6,7 +93,7 @@ Stryper - Even The Devil Believes (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451710.jpg" />
+  <img src="Z:/picture/008/save_picture_451710.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Gloryhammer - Space 1992: Rise of the Chaos Wizards (2015) Limited Edition 2CD [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451642.jpg" />
+  <img src="Z:/picture/008/save_picture_451642.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451610.jpg" />
+  <img src="Z:/picture/008/save_picture_451610.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Crematory - Inglorious Darkness (2022) [FLAC|Lossless|image + .cue] <Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451520.jpg" />
+  <img src="Z:/picture/008/save_picture_451520.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Calarook - Surrender Or Die (2020) [FLAC|Lossless|image + .cue] <Folk Metal, Vik
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451466.jpg" />
+  <img src="Z:/picture/008/save_picture_451466.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ W.A.S.P. - Golgotha (2015) Limited Digipak [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451370.jpg" />
+  <img src="Z:/picture/008/save_picture_451370.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ TBC - 28 Days (2010) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451292.jpg" />
+  <img src="Z:/picture/008/save_picture_451292.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Brutality - Sea of Ignorance (2016) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451285.jpg" />
+  <img src="Z:/picture/008/save_picture_451285.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ TBC - The Rise (2012) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451281.jpg" />
+  <img src="Z:/picture/008/save_picture_451281.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Narnia - Narnia (2016) [FLAC|Lossless|image + .cue] <Neoclassical Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451277.jpg" />
+  <img src="Z:/picture/008/save_picture_451277.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Charred Walls Of The Damned - Creatures Watching Over The Dead (2016) [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451151.jpg" />
+  <img src="Z:/picture/008/save_picture_451151.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Crimson Glory - In Dark Places... 1986-2000 (2010) 5CD Box Set [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450988.jpg" />
+  <img src="Z:/picture/008/save_picture_450988.jpg" />
 </div>
 
 
@@ -357,7 +444,7 @@ Semblant - Vermilion Eclipse (2022) [FLAC|Lossless|image + .cue] <Extreme Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449679.jpg" />
+  <img src="Z:/picture/008/save_picture_449679.jpg" />
 </div>
 
 
@@ -386,7 +473,7 @@ Lacrimosa - Elodia (1999) Irond , Reissue 2002 [FLAC|Lossless|image + .cue] <Neu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449671.jpg" />
+  <img src="Z:/picture/008/save_picture_449671.jpg" />
 </div>
 
 
@@ -415,7 +502,7 @@ Conan & Deadsmoke - DOOM SESSIONS VOL​.​1 (2020) Split Album [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449338.jpg" />
+  <img src="Z:/picture/008/save_picture_449338.jpg" />
 </div>
 
 
@@ -443,7 +530,7 @@ Natural Spirit - Під серпом часу (2020) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449336.jpg" />
+  <img src="Z:/picture/008/save_picture_449336.jpg" />
 </div>
 
 
@@ -472,7 +559,7 @@ Angerseed - The Proclamation (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449292.jpg" />
+  <img src="Z:/picture/008/save_picture_449292.jpg" />
 </div>
 
 
@@ -501,7 +588,7 @@ Lacrimosa - Hoffnung (2015) Deluxe Edition [FLAC|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448598.jpg" />
+  <img src="Z:/picture/008/save_picture_448598.jpg" />
 </div>
 
 
@@ -530,7 +617,7 @@ Demon Hunter - War (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Modern Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448401.jpg" />
+  <img src="Z:/picture/008/save_picture_448401.jpg" />
 </div>
 
 
@@ -559,7 +646,7 @@ Epica - The Score - An Epic Journey (2005) [FLAC|Lossless|image + .cue] <Neo-Cla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448392.jpg" />
+  <img src="Z:/picture/008/save_picture_448392.jpg" />
 </div>
 
 
@@ -588,7 +675,7 @@ Ihsahn - Pharos (2020) EP [FLAC|Lossless|image + .cue] <Extreme Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447574.jpg" />
+  <img src="Z:/picture/008/save_picture_447574.jpg" />
 </div>
 
 
@@ -617,7 +704,7 @@ Altars - Ascetic Reflection (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447411.jpg" />
+  <img src="Z:/picture/008/save_picture_447411.jpg" />
 </div>
 
 
@@ -646,7 +733,7 @@ Heart Of A Coward - Deliverance (2015) [FLAC|tracks|WEB-DL]<Progressive Metalcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447332.jpg" />
+  <img src="Z:/picture/008/save_picture_447332.jpg" />
 </div>
 
 
@@ -660,93 +747,6 @@ Heart Of A Coward - Deliverance (2015) [FLAC|tracks|WEB-DL]<Progressive Metalcor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92400E3E07D5D0F0BE6DB0F64302C941EBF2505F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569827   (447322) от 15.08.2022
-
-Axioma - Sepsis (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blood Ruminations (00:06:44)
-02 - Contortions of Passage (00:06:56)
-03 - Septic (00:03:06)
-04 - God Extraction (00:04:52)(   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E75530515CCEA668990EC6778188DE3E55C581B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569898   (447299) от 15.08.2022
-
-Age Of Darkness - As Essence Left Your Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Funeral March -6ft Under (00:02:47)
-02 - Black Knight (00:02:43)
-03 - Madness (Explicit Version) (00:04:25)
-04 - Age of Darkness (00:03:57)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50DB401159C09910AE4ECFFC72134CA1485B882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569972   (447197) от 15.08.2022
-
-Amon Amarth - The Great Heathen Army (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Get in the Ring (00:04:24)
-02 - The Great Heathen Army (00:04:04)
-03 - Heidrun (00:04:42)
-04 - Oden Owns You All (00:04:17)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591276C6B8D24644728762B1F3691CEB465163F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 385510   (748106) от 14.07.2020
+
+VA - 300 лучших хитов. Детское радио FM (2009) [MP3|128 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_748106.jpg" />
+</div>
+
+
+###  Подробнее
+
+001_Лев и Брадобрей
+002_Золушка
+003_Деревянные Лошадки
+004_Подарки(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 09:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF807563D695AFC0EB3218BF505B43CDD500EFCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 206676   (747452) от 03.06.2010
+
+VA - Злодейские песенки (2001) [FLAC|Lossless]<Музыка для детей>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня Шапокляк 			(01:16)
+02. Песня "Диких гитар" 		(01:31)
+03. Песня злого Пирата 			(01:46)
+04. Дуэт черного Кота и злого Пирата 	(01:41)(   Читать дальше...   )Жанр: Музыка для детейПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 376222   (746840) от 15.07.2020
+
+VA - C'est La Fete (2000) [MP3|320 kbps]<Детские песенки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746840.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vive La Compagnie
+2. Sur Le Pont D'avignon
+3. Le Pont De Londres
+4. Il Pleut Il Mouille(   Читать дальше...   )Жанр: Детские песенкиПродолжительность: 00:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C775F91A32DC9D64A6E310A52DEFBE0B0A51844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524072   (746628) от 14.01.2022
 
 Константин Георгиевич Паустовский | Созвездие гончих псов и другие повести и рассказы (2017) [MP3, Вениамин Смехов]
@@ -6,7 +93,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746628.jpg" />
+  <img src="Z:/picture/008/save_picture_746628.jpg" />
 </div>
 
 
@@ -32,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746626.jpg" />
+  <img src="Z:/picture/008/save_picture_746626.jpg" />
 </div>
 
 
@@ -60,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746553.jpg" />
+  <img src="Z:/picture/008/save_picture_746553.jpg" />
 </div>
 
 
@@ -86,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745588.jpg" />
+  <img src="Z:/picture/008/save_picture_745588.jpg" />
 </div>
 
 
@@ -113,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745581.jpg" />
+  <img src="Z:/picture/008/save_picture_745581.jpg" />
 </div>
 
 
@@ -142,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745355.jpg" />
+  <img src="Z:/picture/008/save_picture_745355.jpg" />
 </div>
 
 
@@ -171,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745195.jpg" />
+  <img src="Z:/picture/008/save_picture_745195.jpg" />
 </div>
 
 
@@ -197,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745194.jpg" />
+  <img src="Z:/picture/008/save_picture_745194.jpg" />
 </div>
 
 
@@ -225,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744144.jpg" />
+  <img src="Z:/picture/008/save_picture_744144.jpg" />
 </div>
 
 
@@ -254,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744141.jpg" />
+  <img src="Z:/picture/008/save_picture_744141.jpg" />
 </div>
 
 
@@ -283,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744073.jpg" />
+  <img src="Z:/picture/008/save_picture_744073.jpg" />
 </div>
 
 
@@ -312,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743641.jpg" />
+  <img src="Z:/picture/008/save_picture_743641.jpg" />
 </div>
 
 
@@ -338,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742706.jpg" />
+  <img src="Z:/picture/008/save_picture_742706.jpg" />
 </div>
 
 
@@ -367,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742694.jpg" />
+  <img src="Z:/picture/008/save_picture_742694.jpg" />
 </div>
 
 
@@ -396,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741373.jpg" />
+  <img src="Z:/picture/008/save_picture_741373.jpg" />
 </div>
 
 
@@ -423,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741365.jpg" />
+  <img src="Z:/picture/008/save_picture_741365.jpg" />
 </div>
 
 
@@ -452,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740473.jpg" />
+  <img src="Z:/picture/008/save_picture_740473.jpg" />
 </div>
 
 
@@ -479,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739884.jpg" />
+  <img src="Z:/picture/008/save_picture_739884.jpg" />
 </div>
 
 
@@ -508,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739880.jpg" />
+  <img src="Z:/picture/008/save_picture_739880.jpg" />
 </div>
 
 
@@ -537,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739700.jpg" />
+  <img src="Z:/picture/008/save_picture_739700.jpg" />
 </div>
 
 
@@ -566,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739372.jpg" />
+  <img src="Z:/picture/008/save_picture_739372.jpg" />
 </div>
 
 
@@ -593,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739131.jpg" />
+  <img src="Z:/picture/008/save_picture_739131.jpg" />
 </div>
 
 
@@ -619,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738801.jpg" />
+  <img src="Z:/picture/008/save_picture_738801.jpg" />
 </div>
 
 
@@ -630,93 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF875503F621CC51D041ABFC346DC0CCA5C9DE3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397792   (737598) от 22.07.2020
-
-Бурёнка Даша - Сборник 3 (2018) [MP3|320 Kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01+/-11. Божья Коровка
-02+/-12. Ням-Ням-Нямочки
-03+/-13. Моя Мама - Фея
-04+/-14. Валенки(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38296C6738199A2B6F7F8D10B34EBE11051A2077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397802   (737597) от 22.07.2020
-
-Бурёнка Даша - Сборник 4 (2019) [MP3|320 Kbps]<Детские песни и минусовки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01+/-11. Бегемоты-Кашалоты
-02+/-12. Блины
-03+/-13. День Рождения
-04+/-14. Детский Сад(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24DA52F1E8D81CD89905F82B7C4C1095B5608027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397820   (737557) от 22.07.2020
-
-Наринэ Абгарян | Манюня, юбилей Ба и прочие треволнения (2017) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737557.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Любая история имеет свое начало и свой конец».
-Перед вами – третья, заключительная книга о девочке Манюне и прочих ее друзьях-родственниках.
-Это большое счастье, когда история одной семьи находит отклик в сердцах стольких людей.
-Мы хотим поблагодарить вас за то, что вы были с нами.(   Читать дальше...   )Жанр: Детская литература/Проза/ПриключенияПродолжительность: 10:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DEA1D924F5DF7A0CD3D2B183706EA6BF8B96B8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

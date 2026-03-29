@@ -6,7 +6,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761955.jpg" />
+  <img src="Z:/picture/008/save_picture_761955.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759361.jpg" />
+  <img src="Z:/picture/008/save_picture_759361.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753338.jpg" />
+  <img src="Z:/picture/008/save_picture_753338.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753311.jpg" />
+  <img src="Z:/picture/008/save_picture_753311.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746173.jpg" />
+  <img src="Z:/picture/008/save_picture_746173.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745046.jpg" />
+  <img src="Z:/picture/008/save_picture_745046.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745027.jpg" />
+  <img src="Z:/picture/008/save_picture_745027.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743215.jpg" />
+  <img src="Z:/picture/008/save_picture_743215.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739739.jpg" />
+  <img src="Z:/picture/008/save_picture_739739.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731431.jpg" />
+  <img src="Z:/picture/008/save_picture_731431.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728069.jpg" />
+  <img src="Z:/picture/008/save_picture_728069.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724229.jpg" />
+  <img src="Z:/picture/008/save_picture_724229.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721598.jpg" />
+  <img src="Z:/picture/008/save_picture_721598.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720822.jpg" />
+  <img src="Z:/picture/008/save_picture_720822.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714873.jpg" />
+  <img src="Z:/picture/008/save_picture_714873.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711867.jpg" />
+  <img src="Z:/picture/008/save_picture_711867.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711450.jpg" />
+  <img src="Z:/picture/008/save_picture_711450.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707130.jpg" />
+  <img src="Z:/picture/008/save_picture_707130.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704718.jpg" />
+  <img src="Z:/picture/008/save_picture_704718.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697592.jpg" />
+  <img src="Z:/picture/008/save_picture_697592.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696870.jpg" />
+  <img src="Z:/picture/008/save_picture_696870.jpg" />
 </div>
 
 
@@ -555,6 +555,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027601   (694046) от 20.06.2016
+
+Тит Нат Хан | Как любить осознанно (2016) [FB2]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_694046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга освобождает понятие любви от информационного шума и стрессов.
+
+В ней вы найдете зерна мудрости, которые оказывают мощное целительное воздействие на нас в тот момент, когда мы начинаем их практиковать. Знаем ли мы, что значит быть присутствующим? Как культивировать любовь в себе и любимом человеке? Что является главным во взаимоотношениях? Если мы постигнем (   Читать дальше...   )Жанр: Религии мира, буддизм, дзэн-буддизмФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F271141D5DD355116E53DCCE6578D1493D96449F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028053   (692490) от 21.06.2016
 
 Елена Мазова | Домовой - защитник и хранитель. О жизни и деятельности домовых и об их пользе для человека (2016) [FB2]
@@ -563,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692490.jpg" />
+  <img src="Z:/picture/008/save_picture_692490.jpg" />
 </div>
 
 
@@ -589,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692242.jpg" />
+  <img src="Z:/picture/008/save_picture_692242.jpg" />
 </div>
 
 
@@ -615,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686088.jpg" />
+  <img src="Z:/picture/008/save_picture_686088.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682062.jpg" />
+  <img src="Z:/picture/008/save_picture_682062.jpg" />
 </div>
 
 
@@ -654,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33C16980D7F03D01FD6C006E52DD4303A2DD6F36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290375   (678159) от 20.03.2019
-
-Эмма Милдон | Эволюция богини. Новое практическое руководство по развитию женских сверхспособностей (2019) [PDF]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678159.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Эволюция богини» Эммы Милдон – современное практическое руководство по обретению внутренней силы, раскрытию женского потенциала, достижению гармонии с собой и миром. Эта книга – бесценный подарок для женщин, занимающихся духовным поиском.Жанр: ЭзотерикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05097E7B3623B0D5EB186FE86C4B51FB8D0F5262
 ```
 
 https://mybot314.ru/tekegram_catalog/

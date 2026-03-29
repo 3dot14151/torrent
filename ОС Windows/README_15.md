@@ -1,3 +1,56 @@
+###  Публикация: 1296789   (609916) от 18.04.2019
+
+Microsoft Windows 10.0.17763.437 Version 1809 (April 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.437 (Updated April 2019).
+Business Edition и Consumer Edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A205AFF32D22D4CD3F436B649EAADEEBE843E0A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545919   (609159) от 22.04.2022
+
+Windows 11 21H2 Build 22000.613 16in1 Integral Edition 2022.4.14 Ru-Multi38 by Ramsey [Multi/Ru]
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609159.jpg" />
+</div>
+
+
+###  Подробнее
+
+За основу для этой сборки взят оригинальный образ Windows 11 от Microsoft. В одном образе объединены 16 разных редакций с выбором одного из 38-ми (!!!) языков. Интегрированы обновления по апрель 2022 года. Сняты ограничения установки на компьютеры без поддержки UEFI и безопасной загрузки, без поддержки TPM, с ОЗУ менее 4Гб и с одноядерным процессором. Более подробную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39876244FF48F4CF3B321CF7B478B130C8ECA6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296781   (607894) от 19.04.2019
 
 Microsoft Windows 10.0.17763.437 Version 1809 (Updated April 2019) - Оригинальные образы от Microsoft MSDN [Ru]
@@ -6,7 +59,7 @@ Microsoft Windows 10.0.17763.437 Version 1809 (Updated April 2019) - Ориги�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607894.jpg" />
+  <img src="Z:/picture/008/save_picture_607894.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ Microsoft Windows 10.0.18362.30 Version 1903 (May 2019 Update) - Оригина�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607893.jpg" />
+  <img src="Z:/picture/008/save_picture_607893.jpg" />
 </div>
 
 
@@ -60,7 +113,7 @@ Microsoft Windows 10.0.18362.30 Version 1903 (May 2019 Update) - Оригина�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605986.jpg" />
+  <img src="Z:/picture/008/save_picture_605986.jpg" />
 </div>
 
 
@@ -87,7 +140,7 @@ Microsoft Windows Server 2012 R2 with Update 3 - Оригинальные обр
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605903.jpg" />
+  <img src="Z:/picture/008/save_picture_605903.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ Microsoft Windows 10 Education 10.0.14393 Version 1607 - Оригинальны�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595530.jpg" />
+  <img src="Z:/picture/008/save_picture_595530.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ Recovery USB-flash for Acer Aspire Switch 10 SW3 / Windows 8.1 (х86) [Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594331.jpg" />
+  <img src="Z:/picture/008/save_picture_594331.jpg" />
 </div>
 
 
@@ -168,7 +221,7 @@ Microsoft Windows 10 10.0.14393 Version 1607 - Оригинальные обра
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594093.jpg" />
+  <img src="Z:/picture/008/save_picture_594093.jpg" />
 </div>
 
 
@@ -194,7 +247,7 @@ Microsoft Windows 10 Professional 10.0.14393 Version 1607 - Оригинальн
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594091.jpg" />
+  <img src="Z:/picture/008/save_picture_594091.jpg" />
 </div>
 
 
@@ -220,7 +273,7 @@ Windows Home Server 2011 - Оригинальные образы от Microsoft 
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591254.jpg" />
+  <img src="Z:/picture/008/save_picture_591254.jpg" />
 </div>
 
 
@@ -247,7 +300,7 @@ Microsoft Windows Server 2012 R2 Essentials with Update 3 - Оригинальн
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590797.jpg" />
+  <img src="Z:/picture/008/save_picture_590797.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ Microsoft Windows XP Home with Service Pack 3 - Оригинальные обр�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590254.jpg" />
+  <img src="Z:/picture/008/save_picture_590254.jpg" />
 </div>
 
 
@@ -300,7 +353,7 @@ Microsoft Windows XP Professional with Service Pack 3 - Оригинальные
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590251.jpg" />
+  <img src="Z:/picture/008/save_picture_590251.jpg" />
 </div>
 
 
@@ -326,7 +379,7 @@ Microsoft Windows XP Professional VL with Service Pack 3 - Оригинальн�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590250.jpg" />
+  <img src="Z:/picture/008/save_picture_590250.jpg" />
 </div>
 
 
@@ -352,7 +405,7 @@ Microsoft Windows Storage Server 2012 R2 and Microsoft Windows Server 2012 R2 Fo
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589797.jpg" />
+  <img src="Z:/picture/008/save_picture_589797.jpg" />
 </div>
 
 
@@ -378,7 +431,7 @@ Microsoft Windows 10.0.19043.1706, Version 21H1 (Updated May 2022) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589349.jpg" />
+  <img src="Z:/picture/008/save_picture_589349.jpg" />
 </div>
 
 
@@ -407,7 +460,7 @@ Windows Server, Version 20H2 (10.0.19042.1706) (Updated May 2022) - Оригин
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589273.jpg" />
+  <img src="Z:/picture/008/save_picture_589273.jpg" />
 </div>
 
 
@@ -433,7 +486,7 @@ Microsoft Windows 10.0.19043.1706, Version 21H1 (Updated May 2022) - Ориги�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589270.jpg" />
+  <img src="Z:/picture/008/save_picture_589270.jpg" />
 </div>
 
 
@@ -462,7 +515,7 @@ Microsoft Windows 10 Education 10.0.14393 Version 1607 - Оригинальны�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588014.jpg" />
+  <img src="Z:/picture/008/save_picture_588014.jpg" />
 </div>
 
 
@@ -488,7 +541,7 @@ Microsoft Windows 10 Home Single Language 10.0.14393 Version 1607 - Оригин
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588005.jpg" />
+  <img src="Z:/picture/008/save_picture_588005.jpg" />
 </div>
 
 
@@ -514,7 +567,7 @@ Microsoft Windows 10 Multiple Editions 10.0.14393 Version 1607 - Оригина�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588002.jpg" />
+  <img src="Z:/picture/008/save_picture_588002.jpg" />
 </div>
 
 
@@ -540,7 +593,7 @@ Microsoft Windows 10 Home Single Language 10.0.14393 Version 1607 - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587071.jpg" />
+  <img src="Z:/picture/008/save_picture_587071.jpg" />
 </div>
 
 
@@ -566,7 +619,7 @@ Microsoft Windows 10 Home Single Language 10.0.14393 Version 1607 - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587070.jpg" />
+  <img src="Z:/picture/008/save_picture_587070.jpg" />
 </div>
 
 
@@ -592,7 +645,7 @@ Microsoft Windows 10 Enterprise 10.0.14393 Version 1607 - Оригинальны
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587055.jpg" />
+  <img src="Z:/picture/008/save_picture_587055.jpg" />
 </div>
 
 
@@ -618,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Разное (RC, Beta и Service Packs)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586598.jpg" />
+  <img src="Z:/picture/008/save_picture_586598.jpg" />
 </div>
 
 
@@ -629,61 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:254706D94EB4CF6A2E5BD1AEA48706212CB4CD0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040593   (586098) от 05.08.2016
-
-Microsoft Windows 10 Multiple Editions 10.0.14393 Version 1607 - Оригинальные образы от Microsoft MSDN [Ukr]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586098.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB7E24293B6E759A4F229EBD876F42ADA37A217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918870   (584655) от 17.07.2015
-
-Recovery USB-Flash for DELL 3542 / Windows 8.1 (х64) [Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584655.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Dell_3542_W81.tib,
-записанный на ноутбуке Dell Inspiron 3542-4019 с помощью программы Dell BаckUp and Recovery
-Образ флешки создан программой Acronis True Image Home 2013.
-Служит для восстановления ноутбука до заводских настроек.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A601DAEF4D4380B8EE3ED6C459CF099D5028BA75
 ```
 
 https://mybot314.ru/tekegram_catalog/

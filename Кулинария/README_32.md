@@ -1,3 +1,30 @@
+###  Публикация: 1148304   (604207) от 05.07.2017
+
+Дэл Шруф | Китайское исследование. Простые и быстрые рецепты. Готовим один раз, едим всю неделю (2016) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_604207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питаться здоровой едой теперь станет намного проще и удобнее, чем когда-либо. Когда дело подходит к обеду или перекусу, вы выбираете между здоровым питанием и быстрыми вариантами? Смотрите ли вы в холодильник, пытаясь придумать, что можно приготовить за пару минут? Даже в самом плотном графике есть место для вкусной и полезной еды.
+Дэл Шруф разработал специальные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEF9CFC4DC264C04EE904944F62F5F4DB5E76546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297054   (604031) от 22.04.2019
 
 Валентина Ильянкова, Александр Коренюгин | Кухня СССР [8 книг] (2017-2019) [PDF]
@@ -6,7 +33,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604031.jpg" />
+  <img src="Z:/picture/008/save_picture_604031.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603159.jpg" />
+  <img src="Z:/picture/008/save_picture_603159.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603018.jpg" />
+  <img src="Z:/picture/008/save_picture_603018.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601577.jpg" />
+  <img src="Z:/picture/008/save_picture_601577.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601572.jpg" />
+  <img src="Z:/picture/008/save_picture_601572.jpg" />
 </div>
 
 
@@ -141,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599452.jpg" />
+  <img src="Z:/picture/008/save_picture_599452.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599433.jpg" />
+  <img src="Z:/picture/008/save_picture_599433.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597740.jpg" />
+  <img src="Z:/picture/008/save_picture_597740.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597490.jpg" />
+  <img src="Z:/picture/008/save_picture_597490.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597366.jpg" />
+  <img src="Z:/picture/008/save_picture_597366.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595719.jpg" />
+  <img src="Z:/picture/008/save_picture_595719.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595709.jpg" />
+  <img src="Z:/picture/008/save_picture_595709.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594554.jpg" />
+  <img src="Z:/picture/008/save_picture_594554.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593479.jpg" />
+  <img src="Z:/picture/008/save_picture_593479.jpg" />
 </div>
 
 
@@ -380,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593293.jpg" />
+  <img src="Z:/picture/008/save_picture_593293.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591846.jpg" />
+  <img src="Z:/picture/008/save_picture_591846.jpg" />
 </div>
 
 
@@ -432,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591843.jpg" />
+  <img src="Z:/picture/008/save_picture_591843.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591840.jpg" />
+  <img src="Z:/picture/008/save_picture_591840.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591790.jpg" />
+  <img src="Z:/picture/008/save_picture_591790.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590916.jpg" />
+  <img src="Z:/picture/008/save_picture_590916.jpg" />
 </div>
 
 
@@ -538,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590386.jpg" />
+  <img src="Z:/picture/008/save_picture_590386.jpg" />
 </div>
 
 
@@ -564,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590346.jpg" />
+  <img src="Z:/picture/008/save_picture_590346.jpg" />
 </div>
 
 
@@ -590,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589542.jpg" />
+  <img src="Z:/picture/008/save_picture_589542.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589535.jpg" />
+  <img src="Z:/picture/008/save_picture_589535.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589524.jpg" />
+  <img src="Z:/picture/008/save_picture_589524.jpg" />
 </div>
 
 
@@ -653,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C94ECDCFDF17288FD249844A236389D82C7F6F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918582   (586844) от 15.07.2015
-
-Галина Кизима | Консервирование и лучшие кулинарные рецепты опытных садоводов и огородников (2015) [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рецепты заготовок, представленные в этой книге, выбраны автором – известным садоводом-любителем Галиной Александровной Кизимой неспроста. Дело в том, что все они отвечают главным критериям дачников, которые хотят сохранить выращенный своими руками урожай – быстро, вкусно и безопасно. Многие рецепты были присланы автору ее читателями, но большинство она апробировала (   Читать дальше...   )Жанр: КулинарияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D43554B8637F90CFA055E2A82D3954EA0E3D0F9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

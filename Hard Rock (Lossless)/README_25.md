@@ -1,3 +1,61 @@
+###  Публикация: 1012328   (794803) от 30.04.2016
+
+Freakshow - Freakshow (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Freakshow (3:27)
+02. Everyone (2:53)
+03. You Who Wins (2:35)
+04. It's Really Over (3:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C0FC08AB7A634310C06B985CA8EB599DA89BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012248   (794712) от 30.04.2016
+
+Sixx: A.M. - Prayers For The Damned (Vol.1) (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise (3:54)
+02. You Have Come To The Right Place (4:29)
+03. I'm Sick (4:13)
+04. Prayers For The Damned (4:40)(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73D8D1B1906DFC8E0BCA4BC526554185005086E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160932   (794672) от 22.01.2018
 
 Cozy Powell - 8 альбомов, 11 CD (1970-2009) Discography [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Progressive Rock, Instrumental Rock>
@@ -6,7 +64,7 @@ Cozy Powell - 8 альбомов, 11 CD (1970-2009) Discography [FLAC|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794672.jpg" />
+  <img src="Z:/picture/008/save_picture_794672.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ L.A. Guns - Checkered Past (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794073.jpg" />
+  <img src="Z:/picture/008/save_picture_794073.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ George Lynch - Shadow Train (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793510.jpg" />
+  <img src="Z:/picture/008/save_picture_793510.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ Geordie - 8 Albums, 1 Box Set (1973 -2016) 19 CD [FLAC|Lossless|image + .cue|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793219.jpg" />
+  <img src="Z:/picture/008/save_picture_793219.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ Amore Ad Lunam - White Wings Raven Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Me
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792941.jpg" />
+  <img src="Z:/picture/008/save_picture_792941.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ Rondinelli - Our Cross-Our Sins (2002) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792935.jpg" />
+  <img src="Z:/picture/008/save_picture_792935.jpg" />
 </div>
 
 
@@ -181,7 +239,7 @@ Worry Blast - .44 (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792872.jpg" />
+  <img src="Z:/picture/008/save_picture_792872.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Magnum - The River Sessions (2005) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792629.jpg" />
+  <img src="Z:/picture/008/save_picture_792629.jpg" />
 </div>
 
 
@@ -239,7 +297,7 @@ Deep Purple - Infinite (2017) Limited Edition [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792323.jpg" />
+  <img src="Z:/picture/008/save_picture_792323.jpg" />
 </div>
 
 
@@ -268,7 +326,7 @@ Atomic Love Reactor - Creation of a Masterpeace (2021) [FLAC|Lossless|WEB-DL|tra
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792149.jpg" />
+  <img src="Z:/picture/008/save_picture_792149.jpg" />
 </div>
 
 
@@ -297,7 +355,7 @@ Atomic Love Reactor - The Arrival (2016) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792143.jpg" />
+  <img src="Z:/picture/008/save_picture_792143.jpg" />
 </div>
 
 
@@ -326,7 +384,7 @@ Wildside - 4 albums, 5 CD (1992-2020) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791813.jpg" />
+  <img src="Z:/picture/008/save_picture_791813.jpg" />
 </div>
 
 
@@ -355,7 +413,7 @@ Macumbazilla - ...at a Crossroads (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790815.jpg" />
+  <img src="Z:/picture/008/save_picture_790815.jpg" />
 </div>
 
 
@@ -384,7 +442,7 @@ Mike Onesko's Guitar Army - The Last Solo (2021) [FLAC|Lossless|tracks + .cue] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790389.jpg" />
+  <img src="Z:/picture/008/save_picture_790389.jpg" />
 </div>
 
 
@@ -413,7 +471,7 @@ Cherokee - Blood & Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789840.jpg" />
+  <img src="Z:/picture/008/save_picture_789840.jpg" />
 </div>
 
 
@@ -442,7 +500,7 @@ Barnabas Sky - Inspirations (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789817.jpg" />
+  <img src="Z:/picture/008/save_picture_789817.jpg" />
 </div>
 
 
@@ -471,7 +529,7 @@ Carl Sentance - Electric Eye (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789809.jpg" />
+  <img src="Z:/picture/008/save_picture_789809.jpg" />
 </div>
 
 
@@ -500,7 +558,7 @@ Station - Perspective (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789428.jpg" />
+  <img src="Z:/picture/008/save_picture_789428.jpg" />
 </div>
 
 
@@ -529,7 +587,7 @@ Crazy Lixx - Street Lethal (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Glam 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789367.jpg" />
+  <img src="Z:/picture/008/save_picture_789367.jpg" />
 </div>
 
 
@@ -558,7 +616,7 @@ Billy Squier - 14 Albums (1980 - 2011) 17 CD [FLAC|Lossless|image + .cue |tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789232.jpg" />
+  <img src="Z:/picture/008/save_picture_789232.jpg" />
 </div>
 
 
@@ -587,7 +645,7 @@ Java - Change Of Heart (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, F
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788413.jpg" />
+  <img src="Z:/picture/008/save_picture_788413.jpg" />
 </div>
 
 
@@ -616,7 +674,7 @@ Tania Kikidi - Rock & Roll Paradise (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788411.jpg" />
+  <img src="Z:/picture/008/save_picture_788411.jpg" />
 </div>
 
 
@@ -645,7 +703,7 @@ Change Of Heart - Last Tiger (2016) [FLAC|Lossless|image + .cue] <Melodic Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788385.jpg" />
+  <img src="Z:/picture/008/save_picture_788385.jpg" />
 </div>
 
 
@@ -674,7 +732,7 @@ Ammouri - Dare To Be Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Fema
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788201.jpg" />
+  <img src="Z:/picture/008/save_picture_788201.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ Ammouri - Dare To Be Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Fema
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E498036982884A1369A922DF3925A80F381B950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512112   (787888) от 23.11.2021
-
-Remedy - The Villain in Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Villain in Me (03:53)
-02. Shadow of Death (04:59)
-03. Alone (04:52)
-04. Behold My Destiny (03:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F421A9B39EB21A8A62EBD0C1101A67CF46C161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511973   (787886) от 23.11.2021
-
-L.A. Guns - Checkered Past (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожители хард-рока L.A. Guns выпустили свой новый студийный альбом Checkered Past 12 ноября 2021 года. Написанный и записанный в то время, когда мир все еще находился в тисках пандемии коронавируса, новый студийный альбом представляет Tracii Guns, Phil Lewis, bassist Johnny Martin, guitarist Ace Von Johnson и drummer Scot Coogan, которые продолжают демонстрировать (   Читать дальше...   )01. Cannonball (3:28)
-02. Bad Luck Charm (4:00)
-03. Living Right Now (3:32)
-04. Get Along (5:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8DA836A6C5CA0D46859B2E02BC0181BD582D5A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

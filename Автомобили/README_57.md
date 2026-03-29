@@ -1,3 +1,29 @@
+###  Публикация: 963907   (285627) от 09.12.2015
+
+Журнал | Полный привод 4x4 №11 (145) (ноябрь 2015) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_285627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал рассказывает о том, как правильно управлять полноприводной машиной, чтобы максимально эффективно и безопасно использовать весь ее потенциал на всех типах дорог - от асфальтированных магистралей до лесовозных усов. Дает практические рекомендации: по тюнингу автомобиля: что можно сделать, чем усовершенствовать и дополнить внедорожник, квадроцикл, снегоход; как (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891074916596F1D752F4C80E726C31168194E169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 423545   (284385) от 16.12.2011
 
 Журнал | Полный привод 4х4 №12 [2011] [PDF]
@@ -6,7 +32,7 @@
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284385.jpg" />
+  <img src="Z:/picture/008/save_picture_284385.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284041.jpg" />
+  <img src="Z:/picture/008/save_picture_284041.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283790.jpg" />
+  <img src="Z:/picture/008/save_picture_283790.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283131.jpg" />
+  <img src="Z:/picture/008/save_picture_283131.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282692.jpg" />
+  <img src="Z:/picture/008/save_picture_282692.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280256.jpg" />
+  <img src="Z:/picture/008/save_picture_280256.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279533.jpg" />
+  <img src="Z:/picture/008/save_picture_279533.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279531.jpg" />
+  <img src="Z:/picture/008/save_picture_279531.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279527.jpg" />
+  <img src="Z:/picture/008/save_picture_279527.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279520.jpg" />
+  <img src="Z:/picture/008/save_picture_279520.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279518.jpg" />
+  <img src="Z:/picture/008/save_picture_279518.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279158.jpg" />
+  <img src="Z:/picture/008/save_picture_279158.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278494.jpg" />
+  <img src="Z:/picture/008/save_picture_278494.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278154.jpg" />
+  <img src="Z:/picture/008/save_picture_278154.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277285.jpg" />
+  <img src="Z:/picture/008/save_picture_277285.jpg" />
 </div>
 
 
@@ -404,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276441.jpg" />
+  <img src="Z:/picture/008/save_picture_276441.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275902.jpg" />
+  <img src="Z:/picture/008/save_picture_275902.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Audi A8(D2) (1994-1999) Мультимедийное руководство по
 >>Автомобильные мультимедийные материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275064.jpg" />
+  <img src="Z:/picture/008/save_picture_275064.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274814.jpg" />
+  <img src="Z:/picture/008/save_picture_274814.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273956.jpg" />
+  <img src="Z:/picture/008/save_picture_273956.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272223.jpg" />
+  <img src="Z:/picture/008/save_picture_272223.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272062.jpg" />
+  <img src="Z:/picture/008/save_picture_272062.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270599.jpg" />
+  <img src="Z:/picture/008/save_picture_270599.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270310.jpg" />
+  <img src="Z:/picture/008/save_picture_270310.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269896.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Fast Ford - журнал для владельцев и потенциальны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97D6ACFBB1F6474630CF3553AE99D76DC6953084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338459   (269889) от 15.11.2019
-
-Журнал | Fast Car UK №13 (декабрь 2019) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Car - британский автомобильный журнал, освещающий рынок модифицированных автомобилей и автомобильную культуру. Это был первый британский журнал, посвященный этому жанру. Он принадлежит Kelsey Media, базирующейся в Westerham, Kent. Журнал выходит 13 раз в год.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:362D516FBD4B611104D44F94634CA9DEC4A7A6A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

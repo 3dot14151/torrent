@@ -1,3 +1,235 @@
+###  Публикация: 1649764   (216114) от 13.08.2023
+
+Orphaned Land (& Amaseffer) - Studio Albums (10 releases) (1993-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death/Middle Eastern Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Orphaned Land — израильская рок-группа, объединяющая в своем творчестве элементы европейского метала и народной музыки Ближнего Востока.1993 - The Beloved's Cry
+1994 - Sahara
+1996 - El Norra Alila
+2004 - MaboolЖанр: Doom/Death/Middle Eastern Folk MetalПродолжительность: 11:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFCC2A565AE0D72AEAF067B350E52991FB88680
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586355   (214753) от 28.10.2022
+
+Hanson - This Time Around (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Never Know
+02. If Only
+03. This Time Around
+04. Runaway Run(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987664214E6F11079542D287358ED422A18C20BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586124   (214672) от 28.10.2022
+
+Frankie Goes To Hollywood - Liverpool (1986/1988) Reissue [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Rock, Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214672.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Warriors Of The Wasteland
+A2 Rage Hard
+A3 Kill The Pain
+A4 Maximum Joy(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438AFE97694D907AB666D22E3B16F6A61A682133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586013   (214597) от 28.10.2022
+
+Bullet For My Valentine - Studio Albums (7 releases) (2006 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Metalcore, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_214597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bullet For My Valentine — британская металкор-группа. Была сформирована в 1998 году в городе Бридженд под названием Jeff Killed John и состояла из Мэттью Така (вокал, ритм-гитара), Майкла Пэджета (соло-гитара), Ника Крэндли (бас-гитара) и Майкла Томаса (ударные). Первоначально её участники исполняли каверы на песни Metallica и Nirvana, параллельно занимаясь написанием (   Читать дальше...   )2006 - The Poison
+2008 - Scream Aim Fire
+2010 - Fever
+2013 - Temper TemperЖанр: Metalcore, Heavy MetalПродолжительность: 08:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653322   (214374) от 17.08.2023
+
+Asia - Alpha (1983) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alpha
+A1 Don't Cry
+A2 The Smile Has Left Your Eyes
+A3 Never In A Million Years(   Читать дальше...   )Жанр: Pop Rock, Symphonic RockПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A42E6A5A78A9883EA18C93959CF9F44C9B54D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653669   (214264) от 17.08.2023
+
+Asia - Asia (1982) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214264.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Heat Of The Moment
+A2 Only Time Will Tell
+A3 Sole Survivor
+A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653299   (214043) от 17.08.2023
+
+ELO (Electric Light Orchestra) - Discovery (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Prog Rock, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_214043.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Shine A Little Love
+A2 Confusion
+A3 Need Her Love
+A4 The Diary Of Horace Wimp(   Читать дальше...   )Жанр: Pop Rock, Prog Rock, Symphonic RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342898   (213980) от 08.12.2019
+
+Pink Floyd - The Dark Side of the Moon (1973) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213980.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Speak To Me 1:12
+2. Breathe 2:44
+3. On The Run 3:35
+4. Time 7:06(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE8A338EEA5B1C10C759FEF4DC3F42E42B1881AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 661321   (213969) от 17.08.2023
 
 Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock, Glam Rock>
@@ -6,7 +238,7 @@ Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213969.jpg" />
+  <img src="Z:/picture/005/save_picture_213969.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Gloria Gaynor/Глория Гейнор - Love Tracks/Пути Любви (1978/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213843.jpg" />
+  <img src="Z:/picture/005/save_picture_213843.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213671.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphon
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213667.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213660.jpg" />
+  <img src="Z:/picture/005/save_picture_213660.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213540.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213390.jpg" />
+  <img src="Z:/picture/005/save_picture_213390.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Hea
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213384.jpg" />
+  <img src="Z:/picture/005/save_picture_213384.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Sweet - Легенды Зарубежного Рока (2000) Compilation, Unoff
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212054.jpg" />
+  <img src="Z:/picture/004/save_picture_212054.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ Axel Rudi Pell - Легенды Зарубежного Рока (2001) Compilati
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211934.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Gloryhammer - Studio Albums (4 releases) (2013-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211882.jpg" />
+  <img src="Z:/picture/005/save_picture_211882.jpg" />
 </div>
 
 
@@ -324,7 +556,7 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211804.jpg" />
 </div>
 
 
@@ -353,7 +585,7 @@ Uriah Heep - Легенды Зарубежного Рока (1999) Compilation, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211473.jpg" />
 </div>
 
 
@@ -382,7 +614,7 @@ Bathory & Quorthon - Studio Albums (8 releases) (1994-2003) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211409.jpg" />
 </div>
 
 
@@ -408,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211271.jpg" />
+  <img src="Z:/picture/005/save_picture_211271.jpg" />
 </div>
 
 
@@ -437,7 +669,7 @@ Alice Cooper - Легенды Зарубежного Рока (2000) Compilation
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211108.jpg" />
 </div>
 
 
@@ -466,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210780.jpg" />
 </div>
 
 
@@ -495,7 +727,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210315.jpg" />
 </div>
 
 
@@ -509,240 +741,6 @@ A4 Танцевали Пары(   Читать дальше...   )Жанр: Lati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E57C4B6B7ECC3820126283DEC211B08B454D5722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603756   (210261) от 11.01.2023
-
-Шахерезада - Свадьба в Малиновке (1992) [WavPack 2.0|192/32|tracks|MB-Rip] <Pop, Dance, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210261.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:03] 01. Берег Левый, берег Правый
-[3:47] 02. Командир Полка
-[5:18] 03. Цыганочка-Яночка
-[3:47] 04. Это не сон(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C02762DD7A2E305447501C9C4AA8D425D81B0BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604028   (210213) от 12.01.2023
-
-VA - Танцуем Без Перерыва (1973) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210213.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Оркестр Джеймса Ласта – Скокиан
-А2 Оркестр Джеймса Ласта – Звезды В Твоих Глазах
-А3 Оркестр Джеймса Ласта – Жизнь Прекрасна
-А4 Оркестр Поля Мориа – Изадора(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484377A9E695C9E0DEAD36036F3A1CB9490D33BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661858   (209828) от 16.01.2023
-
-Azul Y Negro - Digital (1983)  [FLAC|2.0 24/192|image (Vinyl-Rip)<Electronic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night 4:03
-02. Isadora 4:03
-03. No Controlo Nada 3:53
-04. Me Estoy Volviendo Loco 3:35(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4BD9E87949CE71FE289F047EAF16A076B29EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613838   (209326) от 09.07.2023
-
-Bloodbound - Studio Albums (10 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloodbound — шведская метал-группа, сочетающая в себе как традиционный по стилю пауэр-метал, с присущей ему динамикой, мелодикой и сменами ритмов, так и не менее традиционный хеви-метал с мощным акцентированным вокалом, героическими текстами и сольными партиями гитаристов.2005 - Nosferatu
-2007 - Book Of The Dead
-2009 - Tabula Rasa
-2011 - Unholy CrossЖанр: Heavy/Power MetalПродолжительность: 08:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF9B50B56DEB4A690E67CDD03026A7F0B104D125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645475   (209223) от 10.07.2023
-
-VA - Bars Of Gold (1977) Compilation, Gatefold [FLAC|24/192|image + .cue|Vinyl-Rip] <Funk, Pop Rock, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209223.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Manuel & The Music Of The Mountains - The Windmills Of Your Mind
-A2 Cliff Richard - Spanish Harlem
-A3 Bobbie Gentry - Ode To Billy Joe
-A4 Roger Whittaker - Dirty Old Town(   Читать дальше...   )Жанр: Funk, Country, Pop Rock, Easy ListeningПродолжительность: 01:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD8D4E54EAE979C637F7A47C69564A37CD4CC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645674   (209153) от 11.07.2023
-
-VA - 22 Superhits (1976) [FLAC|24/96|image + .cue|Vinyl-Rip] <Pop Rock, Glam, Country, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209153.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hot Chocolate - You Sexy Thing
-A2 Silver Convention - Save Me
-A3 Chequers - Rock On Brother
-A4 Drifters - Hello Happiness(   Читать дальше...   )Жанр: Pop Rock, Glam, Country, SoulПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23BBC4E9ACA3EF0514DC61B52F614085D892AE85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574794   (208677) от 07.09.2022
-
-Blackmore's Night - Дискография (13 albums) (1997-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Folk rock, Neo-medieval>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blackmore’s Night — фолк-рок-группа, основанная в 1997 году бывшим гитаристом «Deep Purple» и «Rainbow» Ричи Блэкмором (акустические и электрические гитары, мандола, лютня и другие инструменты) и Кэндис Найт (вокал, духовые, перкуссия). Название группы может толковаться и как каламбур: «Найт Блэкмора».
-Музыкальной основой и главным вдохновением музыкантов является (   Читать дальше...   )1997 - Shadow of the Moon
-1999 - Under a Violet Moon
-2001 - Fires at Midnight
-2003 - Ghost of a Rose(   Читать дальше...   )Жанр: Folk rock, Neo-medievalПродолжительность: 13:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C053294091A78AD79E78FAEA3F3D23B502A1EB28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514480   (207992) от 15.09.2022
-
-Megadeth - Дискография (23 releases) (1985-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Megadeth — американская трэш-метал-группа из города Лос-Анджелес, штат Калифорния, сформированная в 1983 году. Коллектив основан гитаристом и вокалистом Дэйвом Мастейном и бас-гитаристом Дэвидом Эллефсоном.
-Вместе с такими группами как Slayer, Metallica и Anthrax входит в «большую четвёрку трэш-метала».1985 - Killing Is My Business... and Business Is Good!
-1986 - Peace Sells... But Who's Buying?
-1988 - So Far, So Good... So What!
-1990 - Rust in PeaceЖанр: Thrash Metal, Heavy MetalПродолжительность: 31:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A6F9A9D23BA243BA5709BF7CC33F62DA0379A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

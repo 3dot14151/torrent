@@ -6,7 +6,7 @@ FilePane 1.9.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818008.jpg" />
+  <img src="Z:/picture/008/save_picture_818008.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818000.jpg" />
+  <img src="Z:/picture/008/save_picture_818000.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ VA - Ministry of Sound: Addicted to Bass (2014) 3CD [MP3|320 kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817994.jpg" />
+  <img src="Z:/picture/008/save_picture_817994.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Bartender 4 v4.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817979.jpg" />
+  <img src="Z:/picture/008/save_picture_817979.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Downcast 2.11.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817976.jpg" />
+  <img src="Z:/picture/008/save_picture_817976.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ aText 2.39.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817975.jpg" />
+  <img src="Z:/picture/008/save_picture_817975.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Cisdem AppCrypt 6.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817973.jpg" />
+  <img src="Z:/picture/008/save_picture_817973.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Bartender 4 v4.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817972.jpg" />
+  <img src="Z:/picture/008/save_picture_817972.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ VA - Shogun - 100, Pt. 2 (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817947.jpg" />
+  <img src="Z:/picture/008/save_picture_817947.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Dropzone 3.5.5 (893) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817946.jpg" />
+  <img src="Z:/picture/008/save_picture_817946.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Curio 10.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817943.jpg" />
+  <img src="Z:/picture/008/save_picture_817943.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ Framer Studio 61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817942.jpg" />
+  <img src="Z:/picture/008/save_picture_817942.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817941.jpg" />
+  <img src="Z:/picture/008/save_picture_817941.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ VA - Circus Reloaded, Vol.3 (2016) [MP3|320 кб/с] <Dubstep, Trap, Grime>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817939.jpg" />
+  <img src="Z:/picture/008/save_picture_817939.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817936.jpg" />
+  <img src="Z:/picture/008/save_picture_817936.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817935.jpg" />
+  <img src="Z:/picture/008/save_picture_817935.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Setup Factory 9.2.0.0 RePack by Leserg [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817910.jpg" />
+  <img src="Z:/picture/008/save_picture_817910.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817897.jpg" />
+  <img src="Z:/picture/008/save_picture_817897.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ iCompta 6 v6.0.51 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817896.jpg" />
+  <img src="Z:/picture/008/save_picture_817896.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ VideoProc Converter 4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817883.jpg" />
+  <img src="Z:/picture/008/save_picture_817883.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ Allavsoft Video Downloader Converter 3.24.0.7961 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817880.jpg" />
+  <img src="Z:/picture/008/save_picture_817880.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817860.jpg" />
+  <img src="Z:/picture/008/save_picture_817860.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817850.jpg" />
+  <img src="Z:/picture/008/save_picture_817850.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817840.jpg" />
+  <img src="Z:/picture/008/save_picture_817840.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817839.jpg" />
+  <img src="Z:/picture/008/save_picture_817839.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ VA - Digitally Enhanced Vol. 4 (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817833.jpg" />
+  <img src="Z:/picture/008/save_picture_817833.jpg" />
 </div>
 
 

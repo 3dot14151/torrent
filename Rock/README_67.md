@@ -1,3 +1,32 @@
+###  Публикация: 1580373   (330889) от 01.10.2022
+
+Roadhouse - Roadhouse (1991) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_330889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	All Join Hands
+02.	Time
+03.	Tower Of Love
+04.	A Little Love(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8C8E0F84C8AF8C128C96F5A6D8C29E44252A45A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580473   (330802) от 01.10.2022
 
 Def Leppard - CD Collection Volume 3 (2021) (6 CD), Remastered, Compilation, 2021, UMC [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
@@ -6,7 +35,7 @@ Def Leppard - CD Collection Volume 3 (2021) (6 CD), Remastered, Compilation, 202
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330802.jpg" />
+  <img src="Z:/picture/008/save_picture_330802.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Zdob Si Zdub - Белое вино / Красное вино (2010) [MP3|320 к�
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330213.jpg" />
+  <img src="Z:/picture/008/save_picture_330213.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Def Leppard - London To Vegas (2020) (4 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329984.jpg" />
+  <img src="Z:/picture/008/save_picture_329984.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ B.O.W. (Brotherhood Of Wolves) - A Dump Of Twisted Destinies (2022) [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329924.jpg" />
+  <img src="Z:/picture/008/save_picture_329924.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Arena - 12 Albums LP (2022) [MP3|320 Kbps] <Arena Rock, Progressive Rock, Neo-Pr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329836.jpg" />
+  <img src="Z:/picture/008/save_picture_329836.jpg" />
 </div>
 
 
@@ -152,7 +181,7 @@ Def Leppard - CD Collection Volume 2 (2019) Box Set: 7 CD [OGG Vorbis|484 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328004.jpg" />
+  <img src="Z:/picture/008/save_picture_328004.jpg" />
 </div>
 
 
@@ -181,7 +210,7 @@ Black Oak Arkansas - Original Album Series (2013) 5CD Box Set [MP3|320 кб/с]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327612.jpg" />
+  <img src="Z:/picture/008/save_picture_327612.jpg" />
 </div>
 
 
@@ -210,7 +239,7 @@ Queen - Forever (2014) 2SHM-CD, Japanese Edition [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327304.jpg" />
+  <img src="Z:/picture/008/save_picture_327304.jpg" />
 </div>
 
 
@@ -239,7 +268,7 @@ Richard Marx - Limitless (2020) [OGG Vorbis|484 Kbps] <Rock, Soft Rock, Pop Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327288.jpg" />
+  <img src="Z:/picture/008/save_picture_327288.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ Slade - Live In London (1975) Bootleg [MP3|192 кб/с]<Rock, Hard Rock, Glam Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325749.jpg" />
+  <img src="Z:/picture/008/save_picture_325749.jpg" />
 </div>
 
 
@@ -297,7 +326,7 @@ Charlotte Wessels (Delain) - Tales From Six Feet Under (2021) [MP3|320 Kbps] <Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325510.jpg" />
+  <img src="Z:/picture/008/save_picture_325510.jpg" />
 </div>
 
 
@@ -326,7 +355,7 @@ Charlotte Wessels - Tales From Six Feet Under Vol. II (2022) [MP3|320 Kbps] <Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325371.jpg" />
+  <img src="Z:/picture/008/save_picture_325371.jpg" />
 </div>
 
 
@@ -355,7 +384,7 @@ Roger Waters - The Wall (2015) 2CD Live [MP3|320 кб/с]<Soundtrack, Progressiv
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324713.jpg" />
+  <img src="Z:/picture/008/save_picture_324713.jpg" />
 </div>
 
 
@@ -384,7 +413,7 @@ Slade - Crackers (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324481.jpg" />
+  <img src="Z:/picture/008/save_picture_324481.jpg" />
 </div>
 
 
@@ -413,7 +442,7 @@ Mark Knopfler - The Studio Albums 2009-2018 (2022) 5CD [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324352.jpg" />
+  <img src="Z:/picture/008/save_picture_324352.jpg" />
 </div>
 
 
@@ -442,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323588.jpg" />
+  <img src="Z:/picture/008/save_picture_323588.jpg" />
 </div>
 
 
@@ -471,7 +500,7 @@ Status Quo - Collected (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323495.jpg" />
+  <img src="Z:/picture/008/save_picture_323495.jpg" />
 </div>
 
 
@@ -500,7 +529,7 @@ Robert Palmer - 3 Albums (1979-1990) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323352.jpg" />
+  <img src="Z:/picture/008/save_picture_323352.jpg" />
 </div>
 
 
@@ -529,7 +558,7 @@ Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323279.jpg" />
+  <img src="Z:/picture/008/save_picture_323279.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ Liar - 2 Albums (1977, 1978) [MP3|320 Kbps] <Classic Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322212.jpg" />
+  <img src="Z:/picture/008/save_picture_322212.jpg" />
 </div>
 
 
@@ -587,7 +616,7 @@ Big Head Todd & The Monsters - New World Arisin' (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321923.jpg" />
+  <img src="Z:/picture/008/save_picture_321923.jpg" />
 </div>
 
 
@@ -616,7 +645,7 @@ Refugium - Refugium (2022) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320984.jpg" />
+  <img src="Z:/picture/008/save_picture_320984.jpg" />
 </div>
 
 
@@ -645,7 +674,7 @@ Santiano - Die Sehnsucht ist mein Steuermann - Das Beste aus 10 Jahren (2022) 2C
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320969.jpg" />
+  <img src="Z:/picture/008/save_picture_320969.jpg" />
 </div>
 
 
@@ -674,7 +703,7 @@ Esabuc - Taciturn (2020) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319904.jpg" />
+  <img src="Z:/picture/008/save_picture_319904.jpg" />
 </div>
 
 
@@ -703,7 +732,7 @@ Toh Kay - 2 альбома (2010-2011) [MP3|320 kbps] <Rock, Acoustic, Ska>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_319872.jpg" />
+  <img src="Z:/picture/005/save_picture_319872.jpg" />
 </div>
 
 
@@ -723,35 +752,6 @@ Toh Kay - 2 альбома (2010-2011) [MP3|320 kbps] <Rock, Acoustic, Ska>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181998   (319424) от 09.11.2017
-
-Fats Domino - Greatest Hits (1991) [MP3|320 Kbps] <Rock'n'roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blueberry Hill (02:28)
-02. I'm In Love Again (01:58)
-03. My Blue Heaven (02:09)
-04. When My Dreamboat Comes Home (02:25)(   Читать дальше...   )Жанр: Rock'n'rollПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AEC450A75C63251C6026B84AFA8707FFF41549F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861053   (1062180) от 
+
+Валентин Цветков | Космос. Полная энциклопедия (2024) [PDF]
+
+>>Научная и техническая литература
+>>Энциклопедии и словари
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энциклопедия знакомит с устройством Вселенной, небесными телами, звёздными системами, астрономическими открытиями и историей астрономии. Особое место занимает раздел о небе Земли, ведь именно отсюда мы видим движение светил и созвездия. Изучив небо разных широт, читатель отправится в путешествие по нашей Солнечной системе и Галактике. Как зажигаются звёзды, что такое (   Читать дальше...   )Жанр: астрономия, энциклопедииИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9852C71BAC515F7D996FF50DBEC81CA21E84B519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859715   (1061487) от 
 
 Е.Н. Антонова (сост.) | Русско-цыганский словарь (2025) [PDF, FB2, RTF, TXT, EPUB, MOBI] [RU, RM]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061487.jpg" />
+  <img src="Z:/picture/005/save_picture_1061487.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060739.jpg" />
+  <img src="Z:/picture/005/save_picture_1060739.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060320.jpg" />
+  <img src="Z:/picture/005/save_picture_1060320.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057543.jpg" />
+  <img src="Z:/picture/005/save_picture_1057543.jpg" />
 </div>
 
 
@@ -117,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055051.jpg" />
+  <img src="Z:/picture/005/save_picture_1055051.jpg" />
 </div>
 
 
@@ -143,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055049.jpg" />
+  <img src="Z:/picture/005/save_picture_1055049.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055048.jpg" />
+  <img src="Z:/picture/005/save_picture_1055048.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055045.jpg" />
+  <img src="Z:/picture/005/save_picture_1055045.jpg" />
 </div>
 
 
@@ -224,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055044.jpg" />
+  <img src="Z:/picture/005/save_picture_1055044.jpg" />
 </div>
 
 
@@ -250,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055043.jpg" />
+  <img src="Z:/picture/005/save_picture_1055043.jpg" />
 </div>
 
 
@@ -278,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055042.jpg" />
+  <img src="Z:/picture/005/save_picture_1055042.jpg" />
 </div>
 
 
@@ -304,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055041.jpg" />
+  <img src="Z:/picture/005/save_picture_1055041.jpg" />
 </div>
 
 
@@ -330,7 +356,7 @@ The Diagram Group | Musical Instruments of the World. An Illustrated Encyclopedi
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055039.jpg" />
+  <img src="Z:/picture/005/save_picture_1055039.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055024.jpg" />
+  <img src="Z:/picture/005/save_picture_1055024.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054894.jpg" />
+  <img src="Z:/picture/005/save_picture_1054894.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054893.jpg" />
+  <img src="Z:/picture/005/save_picture_1054893.jpg" />
 </div>
 
 
@@ -436,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054892.jpg" />
+  <img src="Z:/picture/005/save_picture_1054892.jpg" />
 </div>
 
 
@@ -462,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054773.jpg" />
+  <img src="Z:/picture/005/save_picture_1054773.jpg" />
 </div>
 
 
@@ -489,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054354.jpg" />
+  <img src="Z:/picture/005/save_picture_1054354.jpg" />
 </div>
 
 
@@ -515,7 +541,7 @@ Marek Golebiowski | An Encyclopedia of American Culture (2016) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053799.jpg" />
+  <img src="Z:/picture/005/save_picture_1053799.jpg" />
 </div>
 
 
@@ -541,7 +567,7 @@ Anthony C. Thiselton | A Concise Encyclopedia of the Philosophy of Religion (200
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053798.jpg" />
+  <img src="Z:/picture/005/save_picture_1053798.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ Manju Jaidka, Tej N. Dhar | The Routledge Encyclopedia of Indian Writing in Engl
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053797.jpg" />
+  <img src="Z:/picture/005/save_picture_1053797.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ Philip M. Peek, Kwesi Yankah | African Folklore. An Encyclopedia (2004) [PDF] [E
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053796.jpg" />
+  <img src="Z:/picture/005/save_picture_1053796.jpg" />
 </div>
 
 
@@ -619,7 +645,7 @@ Lilia Fernández | 50 Events That Shaped Latino History. An Encyclopedia of the 
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053793.jpg" />
+  <img src="Z:/picture/005/save_picture_1053793.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ BradyGames | Capcom 30th Anniversary Character Encyclopedia (2013) [PDF] [EN]
 >>Энциклопедии и словари
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053792.jpg" />
+  <img src="Z:/picture/005/save_picture_1053792.jpg" />
 </div>
 
 
@@ -659,35 +685,6 @@ Full of facts, statistics, and historical information, the Capcom 30th Anniversa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502DC2AA051A9D903844AD98AF6B051B9E2A7DBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849364   (1053791) от 23.01.2026
-
-Jay H. Lehr, Jack Keeley | Alternative Energy and Shale Gas Encyclopedia (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Энциклопедии и словари
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053791.jpg" />
-</div>
-
-
-###  Подробнее
-
-A comprehensive depository of all information relating to the scientific and technological aspects of Shale Gas and Alternative Energy.
-Conveniently arranged by energy type including Shale Gas, Wind, Geothermal, Solar, and Hydropower.
-Perfect first-stop reference for any scientist, engineer, or student looking for practical and applied energy information.
-Emphasizes (   Читать дальше...   )Жанр: Энциклопедии, ГидроэнергетикаЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812B47F2A176FB4CE2298F46FF19DD3211F9655F
 ```
 
 https://mybot314.ru/tekegram_catalog/

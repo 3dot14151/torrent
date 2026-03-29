@@ -1,3 +1,73 @@
+###  Публикация: 449403   (93028) от 11.02.2012
+
+VA - Record Super Chart № 226 (04.02.2012) [MP3|192-320 kbps]<House, Trance, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_93028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LMFAO - Sexy And You Know It [03:19]
+ 02. Klaas - Changes (Original Mix) [06:00]
+ 03. Dj Kuba & Ne!tan - Deejay Deejay (Peppermint Remix) [05:08]
+ 04. Klaas & Bodybangers - I Like (Bodybangers Mix) [04:58]
+ 05. Sarvi - Amore (Chuckie Remix) [05:16]
+ 06. Niels van Gogh vs. Emilio Verdez - Beatrocker (Original Mix) [05:17]
+ 07. Rihanna Feat. Calvin Harris - We Found Love (Chuckie Remix) [03:35]
+ 08. Dj Antoine vs. Empire Of The Sun - Walking On A Dream (Mash Up) [03:29]
+ 09. DJ's From Mars feat. Fragma - Insane (In Da Brain) (Original Club Mix) [05:35]
+ 10. Rene Rodriguez vs. DJ Antoine feat. MC Yankoo - Shake 3x (Radio Edit) [03:05](   Читать дальше...   )04.02.2012Жанр: House, Trance, DanceПродолжительность: 02:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F691104A08D187B8C6F902247BEF4B15010DC651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487229   (90612) от 25.04.2012
+
+VA - Electro Life 17 (by ZiP) (2012) [MP3|320 kbps]<Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Scooter - It's A Biz (Ain't Nobody)(Club Mix)
+02 - 5sta Family - Вместе мы (DJ Solovey Remix)
+03 - Madonna - Girl Gone Wild (Offer Nissim Club Mix)
+04 - Henry John Morgan, Sunn - Destination Of Love (HJM & Dunn Rework)
+05 - Lad Idorf & Sergey Chorniy - Respect (Original Mix)
+06 - Mike Candys ft. Evelyn & Patrick Miller - 2012 (If The World Would End)(Club Mix)
+07 - Moskito, RockFor ft. Syntheticsax - Together (Original Mix)
+08 - Sasha Dith, Steve Modana & Саша Зверева - Супербой (Greysound Remix)
+09 - SHM, Tiesto vs. Purple Project - Antidote (DJ Baur vs. DJ Nejtrino Mash-Up)
+10 - Tony Igy - Astronomia (Fast Foot Remix)Жанр: Electro House, Progressive HouseПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF77C12B41A68AB19B75E25831C3D32624F65F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 485991   (89774) от 21.04.2012
 
 VA - Lounge Music Collection - All for love (2010) [MP3]<Chillout, Lounge>
@@ -6,7 +76,7 @@ VA - Lounge Music Collection - All for love (2010) [MP3]<Chillout, Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89774.jpg" />
 </div>
 
 
@@ -41,7 +111,7 @@ VA - Клубные новинки Vol.67 from GvertO (2012) [MP3|320 кб/с]<C
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89575.jpg" />
 </div>
 
 
@@ -76,7 +146,7 @@ VA - Best of Europe Club Hits, Vol.2 (The Ultimate Trance and Dance Session) (20
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87117.jpg" />
 </div>
 
 
@@ -111,7 +181,7 @@ VA - Electro Life 16 (by ZiP) (2012) [MP3|256-320 kbps] <Electro House, Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84031.jpg" />
 </div>
 
 
@@ -146,7 +216,7 @@ VA - Record Super Chart № 229 (25.02.2012) [MP3|~142-320 кб/с]<House, Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78749.jpg" />
 </div>
 
 
@@ -181,7 +251,7 @@ VA - Dubstep Light vol. 4 (2012) [MP3|320 kbps]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75718.jpg" />
 </div>
 
 
@@ -216,7 +286,7 @@ VA - Beatport TOP 100 Download February (02.2012) [MP3|320 kbps]<House, Electro,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74845.jpg" />
 </div>
 
 
@@ -251,7 +321,7 @@ VA - KAZAL Records presents Volume1 (2024) [MP3|320 Kbps] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71634.jpg" />
 </div>
 
 
@@ -280,7 +350,7 @@ VA - Musical kaleidoscope part 23 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71451.jpg" />
 </div>
 
 
@@ -309,7 +379,7 @@ VA - Compilation part 140 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71449.jpg" />
 </div>
 
 
@@ -338,7 +408,7 @@ VA - Musical kaleidoscope part 24 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71274.jpg" />
 </div>
 
 
@@ -367,7 +437,7 @@ VA - Compilation part 141 Electronic (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71273.jpg" />
 </div>
 
 
@@ -396,7 +466,7 @@ VA - Musical kaleidoscope part 25 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71207.jpg" />
 </div>
 
 
@@ -425,7 +495,7 @@ VA - Spacesynth Forever 3 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71095.jpg" />
 </div>
 
 
@@ -454,7 +524,7 @@ VA - Spacesynth Forever 4 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71071.jpg" />
 </div>
 
 
@@ -483,7 +553,7 @@ VA - Spacesynth Forever 5 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70967.jpg" />
 </div>
 
 
@@ -512,7 +582,7 @@ VA - Musical kaleidoscope part 27 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70709.jpg" />
 </div>
 
 
@@ -541,7 +611,7 @@ VA - Musical kaleidoscope part 26 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70684.jpg" />
 </div>
 
 
@@ -570,7 +640,7 @@ VA - Compilation part 142 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70657.jpg" />
 </div>
 
 
@@ -599,7 +669,7 @@ Fidel Wicked - Compilation (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70632.jpg" />
 </div>
 
 
@@ -628,7 +698,7 @@ VA - Compilation part 143 (2025) [MP3|320 Kbps] <Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70617.jpg" />
 </div>
 
 
@@ -657,7 +727,7 @@ Stoto - Compilation (2025) [MP3|320 Kbps] <Electronic, Instrumental>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70613.jpg" />
 </div>
 
 
@@ -686,7 +756,7 @@ VA - House of the past years (2025) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70612.jpg" />
 </div>
 
 
@@ -715,7 +785,7 @@ VA - Musical kaleidoscope part 29 Easy listening (2025) [MP3|320 Kbps] <Electron
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70592.jpg" />
 </div>
 
 
@@ -729,64 +799,6 @@ VA - Musical kaleidoscope part 29 Easy listening (2025) [MP3|320 Kbps] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A503F2BF7D56027DDBE81874BE1FAB0C26ABF7AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779877   (70585) от 15.02.2025
-
-VA - Musical kaleidoscope part 28 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teddy Swims, Osmani Acuna - The Door (Saxophone Cover)
-02. Sisco Le Voyageur - Musique Du Mystere
-03. Jk Sax, Richard Marx - Right Here Waiting (Saxophone Cover)
-04. Sisco Le Voyageur - Melodica(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8842BB9A12A61520CDDFF9817B74C924CDAE654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781466   (70222) от 23.02.2025
-
-VA - Musical kaleidoscope part 30 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Le Voyage De Shakuhachi
-02. Kasimoff - Enigma
-03. Sisco Le Voyageur - Enigma French 43
-04. Сергей  Грищук - В  Объятиях Времени(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8638D135649F1D4D1C072E0CC03F33AC22BC01DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

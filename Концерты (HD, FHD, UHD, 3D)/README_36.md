@@ -1,3 +1,90 @@
+###  Публикация: 1603376   (210477) от 09.01.2023
+
+Квартирник у Маргулиса. Группа «Пелагея» (07.01.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_210477.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «Пелагея» на «Квартирнике НТВ у Маргулиса»01. 00:00:00 «Казак»
+02. 00:05:18 Приветствие
+03. 00:07:23 «Ой, да не вечер»
+04. 00:12:42 Про имя(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B9B513EB0C5807406F60FE8CBFAF4BB55EC051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603375   (210453) от 09.01.2023
+
+Квартирник у Маргулиса. Специальный выпуск (06.01.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_210453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеканал НТВ представляет специальный выпуск «Квартирника НТВ у Маргулиса», посвященный Новому году и Рождеству. Программа была снята во втором филиале Национального медицинского исследовательского центра высоких медицинских технологий им.  А. А. Вишневского, где проходят лечение и реабилитацию российские военнослужащие. В съемках приняли участие: певица Юта, Сергей (   Читать дальше...   )00:00:09 Любимый мой
+00:04:39 Жили-были
+00:10:38 Надежда
+00:14:55 Живи(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:21:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D6A5D1040F3367C2DF2D4FB8EDDC965253A6C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582325   (210363) от 28.06.2023
+
+Квартирник у Маргулиса. Zero People (09.10.2022) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_210363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zero People — это сайд-проект музыкантов популярной рок-группы Animal ДжаZ Александра Кросовицкого и Александра Заранкина. За 11-летнюю историю они выпустили шесть альбомов, стали одной из самых популярных и востребованных групп в стране и доказали, что «пиано-рок» с исповедальными текстами может собирать многотысячные залы. В гостях у Евгения Маргулиса Zero People (   Читать дальше...   )00:00:06 Квартирник у Маргулиса - Zero People
+00:00:06 Ремесло
+00:07:32 Человек
+00:14:04 Беда(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: Пиано-рокПродолжительность: 01:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E457D138C7D53D8D222AFB530BFE455CC74AD7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642108   (210129) от 30.06.2023
 
 eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
@@ -6,7 +93,7 @@ eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210129.jpg" />
 </div>
 
 
@@ -36,7 +123,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209961.jpg" />
+  <img src="Z:/picture/005/save_picture_209961.jpg" />
 </div>
 
 
@@ -62,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209944.jpg" />
 </div>
 
 
@@ -91,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209822.jpg" />
+  <img src="Z:/picture/005/save_picture_209822.jpg" />
 </div>
 
 
@@ -120,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209793.jpg" />
 </div>
 
 
@@ -147,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209753.jpg" />
 </div>
 
 
@@ -174,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209733.jpg" />
 </div>
 
 
@@ -201,7 +288,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205794.jpg" />
+  <img src="Z:/picture/005/save_picture_205794.jpg" />
 </div>
 
 
@@ -227,7 +314,7 @@ Sting / Live in Berlin (2010) [1080p] BDRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204735.jpg" />
+  <img src="Z:/picture/004/save_picture_204735.jpg" />
 </div>
 
 
@@ -253,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204288.jpg" />
 </div>
 
 
@@ -282,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204124.jpg" />
 </div>
 
 
@@ -308,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203817.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203817.jpg" />
 </div>
 
 
@@ -335,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203525.jpg" />
 </div>
 
 
@@ -362,7 +449,7 @@ Tarja Turunen - Best Of: Living The Dream Circus Life (2022) BDRip [H.265/1080p-
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202964.jpg" />
+  <img src="Z:/picture/004/save_picture_202964.jpg" />
 </div>
 
 
@@ -388,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_201767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_201767.jpg" />
 </div>
 
 
@@ -417,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201115.jpg" />
+  <img src="Z:/picture/005/save_picture_201115.jpg" />
 </div>
 
 
@@ -446,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_198917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_198917.jpg" />
 </div>
 
 
@@ -475,7 +562,7 @@ SHAMAN – «Я русский» (2023) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198653.jpg" />
 </div>
 
 
@@ -501,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197427.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197409.jpg" />
+  <img src="Z:/picture/004/save_picture_197409.jpg" />
 </div>
 
 
@@ -556,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197172.jpg" />
 </div>
 
 
@@ -585,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196656.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196451.jpg" />
 </div>
 
 
@@ -622,98 +709,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D099CB0796794F94811C89EDA6E9ECA21AB35F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643914   (196204) от 04.07.2023
-
-Original ENIGMA Voices LIVE 2019 (2023) CamRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любительская Multicam-запись дебютного концертного тура с песнями группы ENIGMA, организованного тремя вокалистами, которые помогали Мишелю Крету в создании этой культовой музыки.
-Ямайский музыкант Эндрю Дональдс, немецкий исполнитель Андреас Харде/Angel X и латвийская певица Алиса Кетнере/Fox Lima сообразили на троих давать живые выступления под брендом01) Intro
-02) Gravity Of Love
-03) The Rivers Of Belief
-04) Beyond The Invisible(   Читать дальше...   )Жанр: Нью-эйдж, Уорлдбит, ЧиллаутПродолжительность: 01:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A5EDA772B44A353742CE940AC54B50DAF7F299F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647470   (195555) от 19.07.2023
-
-Golden Voice of ENIGMA - МИР Сибири (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональная запись концертного выступления Эндрю Дональдса с песнями группы ENIGMA, прошедшего летом 2023 года на Шушенском фестивале «МИР Сибири».
-Концертная программа ямайского музыканта включает как классику Энигмы вроде Modern Crusaders и Seven Lives, так и его собственные треки из сольной карьеры.
-Инструментальное сопровождение на сцене создавал симфонический (   Читать дальше...   )01) Intro
-02) The Roundabout
-03) Mishale
-04) In The Shadow, In The Light(   Читать дальше...   )Жанр: Нью-эйдж, Чиллаут, УорлдбитПродолжительность: 01:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00543DE3AEA63F5B9CDCC9580796D380070F2A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656586   (193515) от 01.09.2023
-
-Two Steps From Hell - Wacken Open Air 2023 (2023) WEB-DL [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Two Steps From Hell с музыкального фестиваля Wacken Open Air, прошедший в августе 2023 года под руководством авторов проекта Томаса Бергерсена и Ника Феникса.
-В этот раз с группой гастролировали две вокалистки - монгольская певица Уянга Болд и уже давно ставшая формальным «голосом» группы Мерете Солтведт.
-В музыкальной программе первого европейского выступления (   Читать дальше...   ) 
-1 Protectors Of The Earth
-2 Strength Of A Thousand Men
-3 Flight Of The Silverbird(   Читать дальше...   )Жанр: Симфоническая Рок-ОпераПродолжительность: 01:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B3DE1FA3A1C8F9EB94D8465F301CD774AEA9AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

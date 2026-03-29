@@ -1,4 +1,85 @@
 https://t.me/izofen
+###  Публикация: 1861260   (1062606) от 
+
+Мартин Джеймс | The Prodigy. Мы живём ритмом. История группы из первых уст (2026) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Яркая иллюстрированная история легендарной британской группы The Prodigy!
+The Prodigy – настоящий феномен в музыке 1990-х годов. Из подпольных лондонских клубов на 200 человек она выбралась на крупнейшие мировые стадионы и зародила настоящий культ электронной музыки сначала в родной Великобритании, а затем и по всему миру. Рейв-культура получила популярность вместе (   Читать дальше...   )Жанр: Биографии и мемуарыПеревод: Станислав ТкачукИздательство: БомбораФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322E43D4911A026380D03EF48D71311698F6EFA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861320   (1062487) от 
+
+Парамаханса Йогананда | Автобиография йога (2023) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта легендарная книга написана выдающимся йогом Парамахансой Йоганандой в 1946 году. С тех пор она переведена более чем на 50 языков, стала классикой духовной литературы и повлияла на жизни множества людей. Среди почитателей книги – Стив Джобс, Джордж Харрисон, Элвис Пресли и многие другие.
+Левитирующие йоги и святые, гималайские мудрецы и покорители тигров, факиры (   Читать дальше...   )Жанр: Восточная философия, духовная литератураПеревод: В. Л. КоваленкоИздательство: АСТФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24EA04CA2DA3BC25529C53F5A5A53ED5086FBF78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860696   (1062039) от 
+
+Хантер Стоктон Томпсон | Ангелы Ада (новый перевод) (2025) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга-сенсация. Книга-скандал. В 1966 году она произвела эффект разорвавшейся бомбы, да и в наши дни считается единственным достоверным исследованием быта и нравов странного племени "современных варваров" из байкерских группировок.
+Хантеру Томпсону удалось совершить невозможное: этот основатель гонзо-журналистики стал своим в самой прославленной "семье" (   Читать дальше...   )Жанр: Современная зарубежная литература, КонтркультураПеревод: Сергея РюминаИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADBB9E70FF5E90003CEF91D811CDA4F5F8DA5BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858645   (1060550) от 12.03.2026
 
 Александр Никонов | Будущее человечества. Точка невозврата пройдена? (2025) [PDF, FB2, EPUB]
@@ -7,7 +88,7 @@ https://t.me/izofen
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060550.jpg" />
+  <img src="Z:/picture/005/save_picture_1060550.jpg" />
 </div>
 
 
@@ -36,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060198.jpg" />
+  <img src="Z:/picture/009/save_picture_1060198.jpg" />
 </div>
 
 
@@ -62,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060196.jpg" />
+  <img src="Z:/picture/009/save_picture_1060196.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057475.jpg" />
+  <img src="Z:/picture/005/save_picture_1057475.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057449.jpg" />
+  <img src="Z:/picture/005/save_picture_1057449.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057426.jpg" />
+  <img src="Z:/picture/005/save_picture_1057426.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057252.jpg" />
+  <img src="Z:/picture/005/save_picture_1057252.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057163.jpg" />
+  <img src="Z:/picture/005/save_picture_1057163.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057092.jpg" />
+  <img src="Z:/picture/005/save_picture_1057092.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057090.jpg" />
+  <img src="Z:/picture/005/save_picture_1057090.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057080.jpg" />
+  <img src="Z:/picture/005/save_picture_1057080.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056912.jpg" />
+  <img src="Z:/picture/005/save_picture_1056912.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056895.jpg" />
+  <img src="Z:/picture/005/save_picture_1056895.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056286.jpg" />
+  <img src="Z:/picture/005/save_picture_1056286.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054694.jpg" />
+  <img src="Z:/picture/005/save_picture_1054694.jpg" />
 </div>
 
 
@@ -405,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054084.jpg" />
+  <img src="Z:/picture/005/save_picture_1054084.jpg" />
 </div>
 
 
@@ -431,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054046.jpg" />
+  <img src="Z:/picture/005/save_picture_1054046.jpg" />
 </div>
 
 
@@ -457,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052808.jpg" />
+  <img src="Z:/picture/005/save_picture_1052808.jpg" />
 </div>
 
 
@@ -483,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052806.jpg" />
+  <img src="Z:/picture/005/save_picture_1052806.jpg" />
 </div>
 
 
@@ -509,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052771.jpg" />
+  <img src="Z:/picture/005/save_picture_1052771.jpg" />
 </div>
 
 
@@ -535,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052367.jpg" />
+  <img src="Z:/picture/005/save_picture_1052367.jpg" />
 </div>
 
 
@@ -561,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052286.jpg" />
+  <img src="Z:/picture/005/save_picture_1052286.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051873.jpg" />
+  <img src="Z:/picture/005/save_picture_1051873.jpg" />
 </div>
 
 
@@ -598,86 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A2A32644C3699E65F14C5829D487F46BAA86E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846449   (1051673) от 08.01.2026
-
-Евгений Лукин | На палачах крови нет. Типы и нравы Ленинградского НКВД (2022) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уникальную книгу петербургского писателя Евгения Валентиновича Лукина «На палачах крови нет» составили биографические очерки о чекистах — организаторах массовых репрессий в Ленинграде и Ленинградской области в 1937–1938 годах. Очерки написаны на основе совершенно секретных материалов из архивов Федеральной службы безопасности России.
-
-Первое издание этой книги, опубликованное (   Читать дальше...   )Жанр: История, ПублицистикаИздательство: СкифияФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AF19CB199D3E6C479F99E7AE8F5C8381E1C1830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846788   (1051562) от 09.01.2026
-
-Тай Боллинджер | Правда О Раке (2025) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рак уносит больше жизней, чем вы думаете. По данным Всемирной организации здравоохранения, каждая третья женщина и каждый второй мужчина в течение жизни столкнутся с диагнозом «рак». Для Тая Боллинджера это не просто статистика. Это личное. Потеряв семерых членов своей семьи из-за рака за десять лет, Тай отправился в глобальное путешествие, чтобы узнать как можно (   Читать дальше...   )Жанр: ПублицистикаПеревод: DJSIИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0EC9EE556256DCA2521D36752CB52369E6778F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846267   (1051532) от 07.01.2026
-
-Евгений Фельдман | Мечтатели против космонавтов (2024) [PDF, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы видели фотографии Евгения Фельдмана, даже если не знаете, кто их снял. Панорама митинга на Болотной, Алексей Навальный с «дошираком» и по дороге в ЦИК, столкновения с «Беркутом» на Майдане, «парад пленных» в Донецке, живая цепь в Минске — в кадрах Фельдмана уместилась целая эпоха, и никто другой не видел столько ее ключевых событий с такого близкого расстояния. (   Читать дальше...   )Жанр: История, документалистика, современная литератураИздательство: BAbookФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24FD64F3CE72D1AB1DB84AC4FD251E081B487237
 ```
 
 https://mybot314.ru/tekegram_catalog/

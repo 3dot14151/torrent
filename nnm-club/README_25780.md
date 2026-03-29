@@ -1,135 +1,22 @@
-###  Публикация: 1140463   (39495) от 23.10.2024
+###  Публикация: 1754193   (40880) от 09.10.2024
 
-Sarah Vaughan - Complete Musicraft Master Takes (2000) 2CD, Jazz Factory [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39495.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lover Man [03:26]
-02. Time and Again [03:19]
-03. A Hundred Years From Today [02:59](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:19:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449C7E6842D5CF72D3B863922057772A6A28BABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756682   (39494) от 23.10.2024
-
-Beth Hart - You Still Got Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savior With A Razor (feat. Slash) (4:48)
-02. Suga N My Bowl (feat. Eric Gales) (3:33)
-03. Never Underestimate A Gal (3:07)
-04. Drunk On Valentine (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64BC716FC6FA46B39CA10F54443A6976D202B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756807   (39493) от 23.10.2024
-
-Осатаневшая / Kim Bok-nam salinsageonui jeonmal (2010) BDRip [H.264] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трагическая история двух подруг - Хо Вон, успешно работающей в Сеуле, и Бок Нам, живущей в нищете на отдалённом острове. Спустя 15 лет после того как она покинула остров, Хо Вон, взяв отпуск, возвращается на родину и с ужасом наблюдает с какой жестокостью обращаются с подругой её родственники и муж. Бок Нам, измученная жестоким обращением, много раз предпринимала (   Читать дальше...   )Производство: Южная Корея / Boston Investments, Filma Pictures, Tori PicturesЖанр: драма, криминал, триллерРежиссер: Чхоль Су ЧжанАктеры: Ён Хи Со, Гым Хи Хван, Чон Хак Пак, Су Рён Пэк, Чжи Ын Ли (II), Чжэ Мин, Сон У Пэ, Док Чжэ Чо, Ён О, Гён Э Ким, Ён Сун Сон, Сун Чхоль ЮПеревод: профессиональный многоголосыйЯзык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 01:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41330EB1EA7E1EA15EF43E2B3E32010E442399B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295187   (39492) от 23.10.2024
-
-Sarah Vaughan - A Time In My Life (1971) 1987, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine [4:41]
-02. On Thinking It Over [3:31]
-03. Inner City Blues (Make Me Wanna Holler) [4:13]
-04. Sweet Gingerbread Man [3:06](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55E9568E192A840E6B8A965561392A879CB721C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756761   (39491) от 23.10.2024
-
-FontExpert 2025 20.0 Release 1 (x64) [Multi/Ru]
+FastCopy Pro 5.8.0 [Multi]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fontexpert - полнофункциональная программа для просмотра шрифтов, печати, поиска, загрузки и управления коллекциями шрифтов. Вы также сможете обнаруживать и решать проблемы со шрифтами форматов TrueType, OpenType, PostScript. Данная утилита отображает гарнитуры установленных шрифтов, а также позволяет пролистывать папки и предварительно просматривать гарнитуры шрифтов, (   Читать дальше...   )Язык интерфейса: Английский, Русский и другие
+FastCopy - инструмент для быстрого копирования/удаления файлов и папок. Поддерживает юникод (unicode) символы и пути/имена файлов, превышающие ограничение константы MAX_PATH (260 символов). Автоматически выбирает различные режимы в зависимости от того, находятся ли исходная и конечная папка на одном и том же или на разных жестких дисках (HDD или SSD). При параллельном (   Читать дальше...   )Язык интерфейса: Английский, Китайский, Японский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A6EDE20676A0F6E21F32880B2D599C81669A1BE
+magnet:?xt=urn:btih:60CB416C9D651844B1C5738BDA1358C89884C93E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756835   (39490) от 23.10.2024
+###  Публикация: 1754217   (40879) от 09.10.2024
 
-Ventusky: Прогноз погоды v38.0 Mod by Alex.Strannik [Ru/Multi]
+Quilts and Cats of Calico (2024) [Ru/Multi] (1.0.96.0927.1622) Repack FitGirl
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Win Игры
+>>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 23.10.2024Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+Quilts & Cats of Calico - это уникальная и наполненная теплом и уютом игра-головоломка. Здесь вас ждет возможность поработать портным и создать уникальное одеяло из лоскутов. Сочетайте цвета и узоры на лоскутах, чтобы получить не только очки, но также привлечь милых котиков, которые решат, где устроиться поспать на вашем творении. Если вы фанат настолок, то вы (   Читать дальше...   )Тип издания: RepackРазработчик: Monster CouchЖанр: Казуальные игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F573DAA65DA4D99FBE83683038F93E5DF3F387D7
+magnet:?xt=urn:btih:34104A254880EC6F914D3B81B92F805F3F0E2EB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,25 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756826   (39489) от 23.10.2024
+###  Публикация: 1754233   (40878) от 09.10.2024
 
-Женщина озера / La Donna del lago (1965) BDRip [VO]
+Валерий Большаков | Целитель (Книга 12). Малышка из Рио (2024) [MP3, Рустам Багизов]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В один итальянский городок, стоящий на берегу озера, приезжает писатель, синьор Бернард. Данный момент нельзя назвать очень удачным в его жизни - он расстается с женщиной, которая его очень любит, и едет в этот городок, чтобы повидать девушку, с которой они встретились там пару лет назад. Он очень ждет этой встречи, но приехав, он узнает что эта девушка, которую (   Читать дальше...   )Производство: Италия / B.R.C. Produzione S.r.l., Instituto LuceЖанр: триллер, драма, криминал, детективАктеры: Питер Болдуин, Сальво Рандоне, Валентина Кортезе, Пиа Линдстрем, Пьер Джованни Анчизи, Эннио Бальбо, Анна-Мария Герарди, Бруно Шипиони, Витторио ДузеПеревод: Одноголосый любительский (Stalk)Язык озвучки: Русский, ИтальянскийСубтитры: ОтсутствуютПродолжительность: 01:25:16
+На дворе 1989 год. СССР серьезно изменился к концу XIII пятилетки, а его рост не оборвался в смутные времена предательской "перестройки". Советский Союз по-прежнему велик, могуч - и нерушим. 1980-е годы не омрачены "эпохой пышных похорон" - старая гвардия жива и здорова, спасибо Мише Гарину.
+Ему скоро тридцать, но Миша до сих пор не уверен, что (   Читать дальше...   )Жанр: Альтернативная история ,ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:16:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC73B5293122C965144DDAAC7CBEEAF1576917A6
+magnet:?xt=urn:btih:BB68ABE1C43CE687DBDF53D75D905D31A161F951
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,25 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756834   (39488) от 23.10.2024
+###  Публикация: 1754225   (40877) от 09.10.2024
 
-Журнал | Downgrade №41 (2022) [PDF]
+Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 
->>Журналы
->>Компьютерные журналы
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "Downgrade" посвящён, в первую очередь, старому программному и аппаратному обеспечению. Но эту тему можно трактовать достаточно широко - сюда можно отнести и использование разных эмуляторов, проблемы запуска старых программ на новых компьютерах (и наоборот), историю информатики и вычислительной техники и т.д.Жанр: Компьютерный журналИздательство: Интернет-изданиеФормат: PDFКачество: Изначально электронное (ebook)
+Исследуйте Арктику со своей командой на собачьих упряжках, каяком и парашютом! Постройте и настройте свой базовый лагерь, соберите ресурсы, позаботьтесь о своих экспериментах на этом мирном острове. Arctico - атмосферный симулятор выживания с видом от первого и от третьего лица. Главное средство для выживания в игре - упряжка из четырех собак. На ней можно передвигаться, (   Читать дальше...   )Тип издания: RepackРазработчик: Claudio Norori, Antonio VargasЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: Русский, Английский, Испанский и другиеЯзык субтитров: Русский, Английский, Испанский и другиеЯзык интерфейса: Русский, Английский, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34BE35F5AE9E40B9D4407A97D7238B97F5C3D8FB
+magnet:?xt=urn:btih:90AFCD3E5053246F7E579222DF1327ED89F739FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +103,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756727   (39487) от 23.10.2024
+###  Публикация: 1754237   (40876) от 09.10.2024
 
-Журнал | Downgrade №48 (2024) [PDF]
+Steve Roach - One Day of Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ambient, Drone>
 
->>Журналы
->>Компьютерные журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "Downgrade" посвящён, в первую очередь, старому программному и аппаратному обеспечению. Но эту тему можно трактовать достаточно широко - сюда можно отнести и использование разных эмуляторов, проблемы запуска старых программ на новых компьютерах (и наоборот), историю информатики и вычислительной техники и т.д.Жанр: Компьютерный журналИздательство: Интернет-изданиеФормат: PDFКачество: Изначально электронное (ebook)
+01. Steve Roach - All I Know (19:26)
+02. Steve Roach - Slow Emotion (19:15)
+03. Steve Roach - In Twilight's Shadow (12:33)
+04. Steve Roach, Linda Kohanov - One Day (9:14)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:13:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C42C1E051046A327506D5910C2435EC135FAD7E6
+magnet:?xt=urn:btih:3F45EE357D558C8B9CA4AD944216D119E307BA94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,28 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756753   (39486) от 23.10.2024
+###  Публикация: 1754251   (40875) от 09.10.2024
 
-Rey-Nichols Shovelhead Band - Music From The Canyon (1999) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+Juke Joint, The Everblades - Can’t Slow Me (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It Must Be Love (4:21)
-02. Looking For My Baby (3:59)
-03. Takin' Care Of Business (3:14)
-04. Red Truck (Instrumental) (0:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:00
+01. New Meaning to the Blues (3:28)
+02. Defined in Sorrow (2:38)
+03. Mama Told Me (2:16)
+04. Can’t Slow Me (2:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF8A0B85450BF378B79DAE3433C86A114F0C5617
+magnet:?xt=urn:btih:4537A1F0AD583FE1FA86005046D533DE4C1FDBE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,28 +161,257 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756751   (39485) от 23.10.2024
+###  Публикация: 1754305   (40874) от 09.10.2024
 
-Sapho - El sol y la luna (1987) [FLAC|Lossless|tracks + .cue] <Pop>
+Hardy - Мир Криминала (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пуля-дура 05:29
+02. На всех парусах 06:56
+03. Звериная душа 07:27
+04. Всё та же злость 04:01(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 01:02:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40519EF13CE5CFD7AD63690EA07EA4CD0ED574E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754329   (40873) от 09.10.2024
+
+Our Graves - System Overload (2024) [MP3|320 Kbps] <EBM, Industrial, Dark Electro>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System Overload (4:39)
+02. Precious Lies (3:57)
+03. We Want It All (4:37)
+04. Faceless (4:54)(   Читать дальше...   )Жанр: EBM, Industrial, Dark ElectroПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A6FF0A44BCD9A0B85A1B00575459659667FC6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754230   (40872) от 09.10.2024
+
+VA -  Dance to Trance Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Djcincinati & NELLY TGM - Your Silence [7:38]
+02. Irregular Ratio - The Way Out (Extended Mix) [5:03]
+03. Ray Van Miles & Landi - Stars (Extended Mix) [6:46]
+04. W A T T O - Activate [3:54](   Читать дальше...   )Жанр: TranceПродолжительность: 03:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35A25661396F03EAB7C17BDA91F896316F9AF7E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754335   (40871) от 09.10.2024
+
+The Smoothies - SoulFingers (Soul Velvet Nights) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everlasting Echoes [00:04:00]
+02. Midnight Glow [00:03:36]
+03. 3rd Avenue Dreaming [00:04:00]
+04. Dad's Love [00:02:51](   Читать дальше...   )Жанр: SoulПродолжительность: 00:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BA7A1D98076F80758631DD10C75DA2DDA43F90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754322   (40870) от 09.10.2024
+
+VA - The Orient Collective - Divine Oracle (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Slick - Sharaih (4:34)
+02. Groovecat - Komagene (5:53)
+03. Kapchiz - Osiris (6:48)
+04. Mikhail Catan - Indra (6:43)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91673D02A425D9D15AA6C6B77C2B3CADEACB8197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754348   (40869) от 09.10.2024
+
+Shadowrunner - The Stranger (2021) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Retrowave, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Stranger part I [2:27]
+02 - The Stranger part II (feat. Trenton) [3:47]
+03 - One Night (feat. Trenton) [3:55]
+04 - Vectogram [4:17](   Читать дальше...   )Жанр: Dreamwave, Retrowave, SynthwaveПродолжительность: 00:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FE7C425763C152F5281CED0A8C12E7A7ED54AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754323   (40868) от 09.10.2024
+
+Tablacus Explorer 24.10.9 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tablacus Explorer - удобный в работе и простой в использовании файловый менеджер, позволяющий работать с двумя, либо четырьмя панелями, с возможностью создавать нужное количество вкладок на каждой. Tablacus Explorer дублирует все стандартные функции Проводника для работы с папками и файлами, дополняя их удобным представлением. Благодаря утилите процессы копирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB03AB983FA5180367465C21C2686CF642D73E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754327   (40867) от 09.10.2024
+
+The Smile - Cutouts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreign Spies [00:04:48]
+02. Instant Psalm [00:04:18]
+03. Zero Sum [00:02:47]
+04. Colours Fly [00:04:55](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3789DDF927CAF4B971C090C33456071D1BC49F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754366   (40866) от 09.10.2024
+
+Wings - Wings Wild Life (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Atahualpa
-02. Mauvais Song
-03. Petite Fille Veut Le Monde
-04. Malaise Avec Lezard(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:58
+01. Mumbo
+02. Bip Bop
+03. Love Is Strange
+04. Wild Life(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ECEA33D63FA7C1C34CC9078CAF31959DCBA7728
+magnet:?xt=urn:btih:28CC151918D9559425050EFFA2727ECC6469B4FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,28 +419,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756844   (39484) от 23.10.2024
+###  Публикация: 1754269   (40865) от 09.10.2024
 
-Papik & Stefy Gamboni - Vita (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz>
+Pavarotti - Donizetti (1987) [FLAC|Lossless|tracks + .cue] <Classical, Opera>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Классика
+>>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Amoreunicoamore
-02. Vita
-03. Questione Di Feeling (feat. Stefy Gamboni)
-04. Portati Via(   Читать дальше...   )Жанр: Pop JazzПродолжительность: 00:52:20
+01. Ah! Mes AmisPavarottiPour Mon Ame (La Fille Du Regiment) 6:57
+02. Pour Me Rapprochher De Marie (La Fille Du Regiment) 3:40
+03. Quanto E Bella (L'elisir D'amore) 2:27
+04. Una Furtiva Lagrima (L'elisir D'amore) 4:48(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:04:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB60883A152C93B1C7536F23B84779CBF04D0280
+magnet:?xt=urn:btih:6DC8D0BBFB1CD0581E176AFCA02673B85E130C82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,25 +448,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756755   (39483) от 23.10.2024
+###  Публикация: 1754362   (40864) от 09.10.2024
 
-Журнал | Сабрина №6 (июнь 2024) [PDF]
+Paul McCartney - McCartney (1970) SHM-CD, Japanese Edition, Reissue, 2024, MPL – UICY [FLAC|Lossless|image + .cue] <Pop, Rock>
 
->>Журналы
->>Хобби (журналы)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: Вязание, хоббиИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+01. The Lovely Linda
+02. That Would Be Something
+03. Valentine Day
+04. Every Night(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:35:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C6AF424E3CFDE3E293E126F6EC2937BCAB01101
+magnet:?xt=urn:btih:E16823306DD6909F7E6854A3D215623364C3CF87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -354,28 +477,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756822   (39482) от 23.10.2024
+###  Публикация: 1754343   (40863) от 09.10.2024
 
-Jazzamor - Reworks (20 Years of Jazzamor) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Jazz, Acid Jazz, Pop>
+Microsoft Visual Studio 2019 Enterprise 16.11.41 (Offline Cache) [Ru/En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Caminho
-02. For A While
-03. The Autumn Dismay
-04. Strange To Be In Paradise(   Читать дальше...   )Жанр: Nu-Jazz, Acid Jazz, PopПродолжительность: 00:49:13
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CFB2FA309097D44EC45050D3BC4895BCB0C49C0
+magnet:?xt=urn:btih:2D25A873E573C291F74E2DC71777A97C7F5A99EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,25 +503,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756756   (39481) от 23.10.2024
+###  Публикация: 1754256   (40862) от 09.10.2024
 
-Журнал | Сабрина №7 (июль 2024) [PDF]
+И.В. Пятницкий | Теоретические основы аналитической химии (1978) [PDF]
 
->>Журналы
->>Хобби (журналы)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: Вязание, хоббиИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+В пособии рассматриваются четыре главных типа химических реакций: кислотно-основные процессы, реакции фазового разделения, реакции комплексообразования, окислительно-восстановительные реакции.Жанр: ХимияИздательство: Вища школаФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4B61548ADA5008F6CE210033D43884CC3C41C51
+magnet:?xt=urn:btih:E29380519722A160373850E3044624251B88A47E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -409,25 +529,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756774   (39480) от 23.10.2024
+###  Публикация: 1754227   (40861) от 09.10.2024
 
-Журнал | Сабрина №9 (сентябрь 2024) [PDF]
+Paul McCartney & Wings - Wild Life (1971) Archive Collection, Remaster, 2018, Paul McCartney Catalog [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
 
->>Журналы
->>Хобби (журналы)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: Вязание, хоббиИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+01. Mumbo (Remastered 2018) [00:03:55]
+02. Bip Bop (Remastered 2018) [00:04:10]
+03. Love Is Strange (Remastered 2018) [00:04:50]
+04. Wild Life (Remastered 2018) [00:06:40](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:21:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BBD2DD7E319691ADBA49BD5442FBCECBF7039BC
+magnet:?xt=urn:btih:F84666A3163944C5E6EC85D5A15EFE3BCE533870
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,27 +558,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756800   (39479) от 23.10.2024
+###  Публикация: 1754340   (40860) от 09.10.2024
 
-Togu Audio Line - TAL-G-Verb 1.2.8 VST, VST 3, AAX, CLAP (x64) [En]
+Бен Бова | Вопрос (2024) [MP3, Puffin Сafe]
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TAL-G-Verb — музыкальный эффект, способный создавать высококачественные искусственные звуки реверберации.
-Подходит для всех типов звуков от барабанов до насыщенных пэдов и спецэффектов. Внутренний редактор позволяет манипулировать и настраивать алгоритм реверберации в соответствии с вашими потребностями.
-Встроенный движок grain способен преобразовывать монозвуки (   Читать дальше...   )Язык интерфейса: Английский
+«Стоящие на более высокой ступени развития инопланетяне пролетали через Солнечную систему и приветствовали младших братьев по разуму, предлагая им за семь суток сформулировать один самый важный вопрос, на который можно получить исчерпывающий ответ.» ©Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:50:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5EB29E863D5F1EB4EAD4FEE10269688C8536640
+magnet:?xt=urn:btih:206E92132A29BC30DA8AA85EAADCC175AF56276A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -463,25 +584,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756757   (39478) от 23.10.2024
+###  Публикация: 1754328   (40859) от 09.10.2024
 
-Журнал | Сабрина №8 (август 2024) [PDF]
+BalenaEtcher 1.19.24 + Portable (Pre-release) [En]
 
->>Журналы
->>Хобби (журналы)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: Вязание, хоббиИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
+Etcher – простое и надежное приложение для записи ISO, ZIP и других образов на съемные носители информации, включая SD карты. Работать с программой очень легко: сперва необходимо выбрать образ для записи, затем указать подключенный накопитель, после чего нажать на кнопку "Flash" и утилита выполнит запись образа на выбранный носитель.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DABDE25A6A98F2051BDA9CF4E20CDFB90A5B24A
+magnet:?xt=urn:btih:B8D9BB37BF79897EDCAD55171ED1E28C8FF5E915
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,25 +610,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756770   (39477) от 23.10.2024
+###  Публикация: 1754367   (40858) от 09.10.2024
 
-Белый город | Серия «Симфония веры» [9 томов] (2006-2009) [PDF, FB2, EPUB, MOBI, TXT]
+Paul McCartney & Wings – Red Rose Speedway (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop Rock>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия «Симфония веры» создана в помощь людям, обращающимся к творениям святых отцов в поиске их высказываний по различным темам. Это может быть и священник, готовящийся к проповеди, и семинарист, пишущий реферат, и любой верующий человек, ищущий ответ на свой насущный вопрос. В серию вошли слова и наставления оптинских старцев, преподобного Ефрема Сирина, святого (   Читать дальше...   )Жанр: ПравославиеИздательство: Белый городФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+01. Big Barn Bed
+02. My Love
+03. Get on the Right Thing
+04. One More Kiss(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA2380C61E36A308D51442A0E263CF406CEC0BAC
+magnet:?xt=urn:btih:0CCF1E7D64FB7E5E7F68FE8740BD0671BD55A515
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -515,25 +639,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756738   (39476) от 23.10.2024
+###  Публикация: 1754363   (40857) от 09.10.2024
 
-Заклятье. Шестое чувство / Пока ты не исчез / Desaparecer por completo (2022) WEBRip [H.264/1080p] [DVO] [AD]
+Paul And Linda McCartney - Ram (1971) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Capitol Records [FLAC|Lossless|image + .cue] <Pop, Rock>
 
->>Остальное
->>Фильмы с Рекламой
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фотограф криминальной хроники Сантьяго сталкивается с серией зловещих убийств. Тайком сняв и опубликовав вызывающие ужас кадры, он замечает, что с ним начинают происходить странные, необъяснимые вещи. Когда становится понятно, что врачи не могут ему помочь, так как физически он полностью здоров, Сантьяго начинает осознавать, что происходит. У него остаётся совсем (   Читать дальше...   )Производство: Мексика / Moonlight Pictures, Panorama Global, Varios LobosЖанр: ужасыРежиссер: Луис Хавьер ЭнайнеАктеры: Арольд Торрес, Тете Эспиноса, Фермин Мартинес, Вики Араико, Норма Рейна Брито, Кетцалли Кортес, Элихио Мелендес, Хосе Мануэль Понселис, Вальдо Факко, Луис Арриета и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:11Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+01. Too Many People
+02. 3 Legs
+03. Ram On
+04. Dear Boy(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:43:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF722DBA6DBD68C0C8EF16794A43DB3A952F4978
+magnet:?xt=urn:btih:15B23974B1F615EC51C2234A02C6B829569F9D50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -541,109 +668,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553520   (39475) от 23.10.2024
+###  Публикация: 1754214   (40856) от 09.10.2024
 
-Sarah Vaughan - The Jazz Collector Edition (1940-e) 1991, LaserLight [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September Song [3:04]
-02. Time After Time [3:03]
-03. Lover Man (Oh, Where Can You Be?) [3:24]
-04. What a Difference a Day Makes [2:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF4432A174B57E04F239A09D7CE0D77E279A6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756737   (39474) от 23.10.2024
-
-Человек / Human (2015) HDRip [H.264] [MVO]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский фотограф и режиссёр Ян Артюса-Бертран собрал более 2000 историй людей, которые живут в 70 странах. На экране они говорят о любви, ненависти, детях, жизни и смерти, то есть о том, что делает нас людьми и что свойственно человеку. Фильм отвечает на эти вопросы на разных языках и с разных концов Земли. Пазл сложился из интервью самых разных людей — от Билла (   Читать дальше...   )Производство: Франция / Humankind Production, Abel Aflam, GoodPlanet FoundationЖанр: документальныйРежиссер: Янн Артюс-БертранАктеры: Атман, Пепе МуджикаПеревод: профессиональный многоголосыйЯзык озвучки: русский, многоязычныйСубтитры: английские хардсабыПродолжительность: 02:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1D66696F5C3F825E871F0E3D79106205043601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756739   (39473) от 23.10.2024
-
-Заклятье. Шестое чувство / Пока ты не исчез / Desaparecer por completo (2022) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотограф криминальной хроники Сантьяго сталкивается с серией зловещих убийств. Тайком сняв и опубликовав вызывающие ужас кадры, он замечает, что с ним начинают происходить странные, необъяснимые вещи. Когда становится понятно, что врачи не могут ему помочь, так как физически он полностью здоров, Сантьяго начинает осознавать, что происходит. У него остаётся совсем (   Читать дальше...   )Производство: Мексика / Moonlight Pictures, Panorama Global, Varios LobosЖанр: ужасыРежиссер: Луис Хавьер ЭнайнеАктеры: Арольд Торрес, Тете Эспиноса, Фермин Мартинес, Вики Араико, Норма Рейна Брито, Кетцалли Кортес, Элихио Мелендес, Хосе Мануэль Понселис, Вальдо Факко, Луис Арриета и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:11Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6B7A0778FE5E09949BA1836552B8ECA956B7CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756722   (39472) от 23.10.2024
-
-Наталья Зубарева | Вальс гормонов 2 (2018) [MP3, Юлия Бочанова]
+Димитрий Ростовский | Жития святых. Месяц сентябрь (2022) [MP3, Л. Лепшина, В. Максимов, В. Козичев]
 
 >>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
+>>Религия (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уникальные знания, которые совершат революцию в вашей голове!
-"Вальс Гормонов 2. Девочка, девушка, женщина + «мужская партия».
-Танцуют все!" – вторая аудиокнига самого популярного доктора Инстаграм, блог которой читает более 2 миллионов подписчиков, а мега-бестселлер «Вальс Гормонов» продан тиражом 200 тысяч экземпляров.
-Нигде не публиковавшаяся информация (   Читать дальше...   )Жанр: Медицина, здоровьеИздательство: Аудиокнига АСТПродолжительность: 09:52:45
+Жития святых издавна были основным содержанием Миней-Четьих - произведений русской церковно-исторической и духовно-учительной литературы. Повествования о жизни святых Православной Церкви излагаются в Минеях-Четьих по порядку месяцев и дней каждого месяца. Из четырех известных сочинений такого рода Минеи-Четьи Св. Димитрия Ростовского, написанные на церковно-славянском (   Читать дальше...   )Жанр: ПравославиеИздательство: Неофициальное изданиеПродолжительность: 23:56:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86BABD4FB9ABA459FC7019A2DE1C6DBD46172E54
+magnet:?xt=urn:btih:876A5290ABC3A656F4FEB8CEF3BBCCA443C57A71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,51 +694,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756713   (39471) от 23.10.2024
+###  Публикация: 1754248   (40855) от 09.10.2024
 
-Factorio (2020) [Ru/Multi] (2.0.7/dlc) Repack FitGirl
+О.Ф. Гинзбург, А.А. Петров | Лабораторные работы по органической химии (1982) [PDF]
 
->>Win Игры
->>Simulation (Other)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40855.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Factorio – игра, в которой вы строите и обслуживаете фабрики. Вы будете добывать ресурсы, развивать технологии, создавать инфраструктуру, автоматизировать производство и сражаться с врагами. В начале игры вам предстоит валить лес, рыть шахты, строить конвейеры и роботов вручную, но вскоре фабрика превратится в мощный индустриальный комплекс с огромными солнечными (   Читать дальше...   )Тип издания: RepackРазработчик: Wube Software LTDЖанр: Стратегия, Строительство, МенеджментЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+В пособии приводятся общие указания по методам работы, по технике безопасности, по методам синтеза органических соединений. Для каждого типа превращений дано несколько лабораторных работ. В книге рассматривается идентификация органических соединений с использованием современных методов спектроскопии. В последнем разделе изложены краткие сведения об основной справочной (   Читать дальше...   )Жанр: ХимияИздательство: Высшая школаФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F803539AA7449C47590E9FF8C1006F55D0D501B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756776   (39470) от 23.10.2024
-
-Журнал | Сабрина №10 (октябрь 2024) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39470.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Сабрина" - популярный журнал по вязанию. На его страницах представлены разнообразные модели для женщин всех возрастов, имеющих разный опыт вязания. Здесь вы найдете множество идей, как выглядеть модно и эффектно без особых затрат. Все модели представлены в нескольких размерах, поэтому женщины могут сами выбрать ту модель, которая подходит им наиболее удачно (   Читать дальше...   )Жанр: Вязание, хоббиИздательство: ООО "ИМ Медиа"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629882010662889C77D6F56A5804BB0220F13DAA
+magnet:?xt=urn:btih:10D42DA9C73CE3F72ACC90DE1011D4C260D8A7C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

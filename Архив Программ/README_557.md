@@ -6,7 +6,7 @@ R-Drive Image 6.3 Build 6305 + BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769356.jpg" />
+  <img src="Z:/picture/008/save_picture_769356.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Files Inspector Pro 2.0 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769352.jpg" />
+  <img src="Z:/picture/008/save_picture_769352.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Zentimo xStorage Manager 2.3.2.1280 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769349.jpg" />
+  <img src="Z:/picture/008/save_picture_769349.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Honeyview 5.33 Build 5429 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769333.jpg" />
+  <img src="Z:/picture/008/save_picture_769333.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ WhatsApp 2.2025.7.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769332.jpg" />
+  <img src="Z:/picture/008/save_picture_769332.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Topaz Gigapixel AI 5.0.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769327.jpg" />
+  <img src="Z:/picture/008/save_picture_769327.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ UltraISO Premium Edition 9.7.3.3629 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769323.jpg" />
+  <img src="Z:/picture/008/save_picture_769323.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ The KMPlayer 4.2.2.41 repack by cuta (build 4) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769306.jpg" />
+  <img src="Z:/picture/008/save_picture_769306.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ CCleaner 5.68.7820 Free/Professional/Business/Technician Edition RePack (& Porta
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769305.jpg" />
+  <img src="Z:/picture/008/save_picture_769305.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ iSpy 7.2.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769301.jpg" />
+  <img src="Z:/picture/008/save_picture_769301.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AutoRuns 13.98 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769292.jpg" />
+  <img src="Z:/picture/008/save_picture_769292.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Adobe After Effects 2020 17.1.1.34 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769291.jpg" />
+  <img src="Z:/picture/008/save_picture_769291.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769235.jpg" />
+  <img src="Z:/picture/008/save_picture_769235.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ PTE AV Studio Pro 10.0.11 Build 8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769226.jpg" />
+  <img src="Z:/picture/008/save_picture_769226.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ XnViewMP 0.96.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769203.jpg" />
+  <img src="Z:/picture/008/save_picture_769203.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ GridinSoft Anti-Malware 4.1.51.4977 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769202.jpg" />
+  <img src="Z:/picture/008/save_picture_769202.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ YouTube By Click Premium 2.2.131 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769198.jpg" />
+  <img src="Z:/picture/008/save_picture_769198.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ WinCatalog 19.8.0.624 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769193.jpg" />
+  <img src="Z:/picture/008/save_picture_769193.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.6 + Portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769191.jpg" />
+  <img src="Z:/picture/008/save_picture_769191.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Media Player Classic Home Cinema 1.9.6 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769188.jpg" />
+  <img src="Z:/picture/008/save_picture_769188.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Audacity 2.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769134.jpg" />
+  <img src="Z:/picture/008/save_picture_769134.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ eM Client Pro 8.0.2751.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769087.jpg" />
+  <img src="Z:/picture/008/save_picture_769087.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Microsoft Edge 83.0.478.56 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769069.jpg" />
+  <img src="Z:/picture/008/save_picture_769069.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769066.jpg" />
+  <img src="Z:/picture/008/save_picture_769066.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Display Driver Uninstaller 18.0.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769060.jpg" />
+  <img src="Z:/picture/008/save_picture_769060.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Sumatra PDF 3.3.12844 Pre-release + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769058.jpg" />
+  <img src="Z:/picture/008/save_picture_769058.jpg" />
 </div>
 
 

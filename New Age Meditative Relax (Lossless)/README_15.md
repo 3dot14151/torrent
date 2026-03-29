@@ -1,3 +1,32 @@
+###  Публикация: 1034563   (632438) от 14.07.2016
+
+Louis Landon - Healing Hearts 2 - Solo Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_632438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisters [00:04:46]
+02. Free At Last [00:05:18]
+03. Butterfly [00:05:07]
+04. Relax and Enjoy [00:04:54](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90BA070049B746FE8889B3A922E010680B699A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143896   (631481) от 20.06.2017
 
 Oliver Scheffner - Traum vom endlosen Himmel (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -6,7 +35,7 @@ Oliver Scheffner - Traum vom endlosen Himmel (2017) [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631481.jpg" />
+  <img src="Z:/picture/008/save_picture_631481.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629502.jpg" />
+  <img src="Z:/picture/008/save_picture_629502.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Sean Christopher - Mystique (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626662.jpg" />
+  <img src="Z:/picture/008/save_picture_626662.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bernward Koch - Walking through Clouds (2014) Real Music [FLAC|Lossless|WEB-DL|t
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624117.jpg" />
+  <img src="Z:/picture/008/save_picture_624117.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ James Asher - Return of the Tiger (2011) [FLAC|Lossless|tracks + .cue] <New Age,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623568.jpg" />
+  <img src="Z:/picture/008/save_picture_623568.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Paul Lawler - Sleep Easy (2011) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622811.jpg" />
+  <img src="Z:/picture/008/save_picture_622811.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Wuauquikuna - VII: The Sun Of The Inka's (2016) [FLAC|Lossless|image + .cue] <Na
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621548.jpg" />
+  <img src="Z:/picture/008/save_picture_621548.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620962.jpg" />
+  <img src="Z:/picture/008/save_picture_620962.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ David Arkenstone - Pure Sleep (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620621.jpg" />
+  <img src="Z:/picture/008/save_picture_620621.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Paul Sills - Aniem (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619070.jpg" />
+  <img src="Z:/picture/008/save_picture_619070.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Leo Rojas - Das Beste - My Serenade To Mother Earth (2015) [FLAC|Lossless]<Panfl
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617516.jpg" />
+  <img src="Z:/picture/008/save_picture_617516.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Kevin Kern - More Than Words: The Best of Kevin Kern (2014) Real Music [FLAC|Los
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617005.jpg" />
+  <img src="Z:/picture/008/save_picture_617005.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Opii - Secrets (2015) [FLAC|Lossless|WEB-DL]<New Age, Enigmatic, Chillout>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616058.jpg" />
+  <img src="Z:/picture/008/save_picture_616058.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614052.jpg" />
+  <img src="Z:/picture/008/save_picture_614052.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Andreas Vollenweider - ...Behind The Gardens - Behind The Wall - Under The Tree.
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613855.jpg" />
+  <img src="Z:/picture/008/save_picture_613855.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Bernward Koch - Filled with Light (2017) Real Music [FLAC|Lossless|WEB-DL|tracks
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613446.jpg" />
+  <img src="Z:/picture/008/save_picture_613446.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Rhonda Mackert - Time Not Forgotten (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612335.jpg" />
+  <img src="Z:/picture/008/save_picture_612335.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Medwyn Goodall - Great Spirit 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610512.jpg" />
+  <img src="Z:/picture/008/save_picture_610512.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Hennie Bekker - Beyond Dreams - Pathways to Deep Relaxation (2016) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610194.jpg" />
+  <img src="Z:/picture/008/save_picture_610194.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608849.jpg" />
+  <img src="Z:/picture/008/save_picture_608849.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Richard Evans - Exhale (2013) Avalon Records [FLAC|Lossless|WEB-DL|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608534.jpg" />
+  <img src="Z:/picture/008/save_picture_608534.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Jonn serrie - Thousand star (2009) [FLAC|Lossless|tracks + .cue] < New Age, Ambi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603483.jpg" />
+  <img src="Z:/picture/008/save_picture_603483.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Lynn Tredeau - Shifting Sands (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602538.jpg" />
+  <img src="Z:/picture/008/save_picture_602538.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Edelis - Sensation of the World (2009) Rerecorded Version, 2017, ROMAN Music Rec
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602518.jpg" />
+  <img src="Z:/picture/008/save_picture_602518.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Empire Of Love - Mysterious I-II (2016-2017) [FLAC|Lossless|WEB|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602487.jpg" />
+  <img src="Z:/picture/008/save_picture_602487.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Empire Of Love - Mysterious I-II (2016-2017) [FLAC|Lossless|WEB|tracks] <New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2B497B5B3FD313FCEE8D0A9E9A90AA07316FB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298248   (601876) от 27.04.2019
-
-Angelight - Четыре ветра (2006) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Северный ветер (15:05)
-02. Южный ветер (14:06)
-03. Западный ветер (12:56)
-04. Восточный ветер (14:56)Жанр: New AgeПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB7412B5FFFFEA952694AEBE35B6012708A3F4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

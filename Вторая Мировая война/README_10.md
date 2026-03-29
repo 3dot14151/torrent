@@ -1,3 +1,56 @@
+###  Публикация: 902745   (552807) от 17.06.2019
+
+Рецепт Победы. Медицина в годы Великой Отечественной войны (2015) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда началась война, военные медики оказались в тяжелейшей ситуации. На фронте катастрофически не хватало врачей, особенно хирургов. Медсестры, санитары, санинструкторы в большинстве своем успели окончить только ускоренные курсы. Почти половина госпиталей и фармацевтических складов в первые же месяцы войны оказалась на оккупированной территории. Прифронтовая обстановка (   Читать дальше...   )Телекомпания: Россия HDЖанр: ДокументальныйРежиссер: Глеб ДобровольскийПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D2277FB0AC31C68D416967BD23C310BDB0C2AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046670   (551723) от 27.08.2016
+
+Танковый удар (2016) DVDRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_551723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Август 1943-го… Красная Армия проводит Белгородско-Харьковскую операцию, с задачей уничтожить группировку вермахта. В операции участвуют Воронежский и Степной фронты, две полноценные гвардейские танковые армии. Уже с первых дней наступления противник отброшен на сотню километров.
+В составе Воронежского фронта действует 27-я армия, на острие которой вступил в бой (   Читать дальше...   )Телекомпания: УкраинаЖанр: Документальный, война, историяПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26666B9BB760CEE50FFED3E7E9FF223D3EF9C2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045355   (548015) от 31.08.2016
 
 Люди Гитлера / Die Suche nach Hitlers Volk - Deutschlandreise '45 / Hitler’s People (2015) HDTVRip (серии 1-2 из 2)
@@ -6,7 +59,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548015.jpg" />
+  <img src="Z:/picture/008/save_picture_548015.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546384.jpg" />
+  <img src="Z:/picture/008/save_picture_546384.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544758.jpg" />
+  <img src="Z:/picture/008/save_picture_544758.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ National Geographic. Очевидцы: День «Д» / Eyewitness: D-Day (2019
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541789.jpg" />
+  <img src="Z:/picture/008/save_picture_541789.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ National Geographic. Очевидцы: День «Д» / Eyewitness: D-Day (2019
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541718.jpg" />
+  <img src="Z:/picture/008/save_picture_541718.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539204.jpg" />
+  <img src="Z:/picture/008/save_picture_539204.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539117.jpg" />
+  <img src="Z:/picture/008/save_picture_539117.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538869.jpg" />
+  <img src="Z:/picture/008/save_picture_538869.jpg" />
 </div>
 
 
@@ -217,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538844.jpg" />
+  <img src="Z:/picture/008/save_picture_538844.jpg" />
 </div>
 
 
@@ -243,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537324.jpg" />
+  <img src="Z:/picture/008/save_picture_537324.jpg" />
 </div>
 
 
@@ -269,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535377.jpg" />
+  <img src="Z:/picture/008/save_picture_535377.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ PQ-17: Катастрофа арктического конвоя / PQ17: An Arc
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534940.jpg" />
+  <img src="Z:/picture/008/save_picture_534940.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534557.jpg" />
+  <img src="Z:/picture/008/save_picture_534557.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533804.jpg" />
+  <img src="Z:/picture/008/save_picture_533804.jpg" />
 </div>
 
 
@@ -375,7 +428,7 @@ NG. Очевидцы: День Д / Eyewitness: D-Day (2019) HDTV [H.264/1080i-L
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532468.jpg" />
+  <img src="Z:/picture/008/save_picture_532468.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528792.jpg" />
+  <img src="Z:/picture/008/save_picture_528792.jpg" />
 </div>
 
 
@@ -427,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527754.jpg" />
+  <img src="Z:/picture/008/save_picture_527754.jpg" />
 </div>
 
 
@@ -453,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527683.jpg" />
+  <img src="Z:/picture/008/save_picture_527683.jpg" />
 </div>
 
 
@@ -479,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520007.jpg" />
+  <img src="Z:/picture/008/save_picture_520007.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518197.jpg" />
+  <img src="Z:/picture/008/save_picture_518197.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515084.jpg" />
+  <img src="Z:/picture/008/save_picture_515084.jpg" />
 </div>
 
 
@@ -558,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514342.jpg" />
+  <img src="Z:/picture/008/save_picture_514342.jpg" />
 </div>
 
 
@@ -584,7 +637,7 @@ NG. Суперсооружения Третьего рейха: война с С
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512751.jpg" />
+  <img src="Z:/picture/008/save_picture_512751.jpg" />
 </div>
 
 
@@ -611,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507162.jpg" />
+  <img src="Z:/picture/008/save_picture_507162.jpg" />
 </div>
 
 
@@ -622,58 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1EB01AD6353E75120583EBDE6DD79472ED447FF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934362   (503485) от 04.09.2015
-
-Август (2015) HDTV [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм «Август» посвящён стратегической военной операции Вооруженных сил Советского Союза против войск нацистской Германии и Румынии во время Великой Отечественной войны (с целью разгрома крупной немецко-румынской группировки, прикрывавшей балканское направление, освобождения Молдавии и вывода Румынии из войны) — Ясско-Кишинёвской операции. В Советской (   Читать дальше...   )Телекомпания: ЗАО «Телекомпания ТСВ»Жанр: Документальный, просветительский, познавательныйПеревод: ОтсутствуетПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9901E68E3935CCA1291901C8C62D08A824251BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 234174   (502584) от 07.09.2010
-
-Живая история: Война и мир (2007) SATRip (8 фильмов из 8)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает страшную правду о временах Великой Отечественной войны. О том, как жили простые люди на окуппированных территориях – на Украине, в Белоруссии, в РСФСР. Они оказались между двух огней: с одной стороны – фашистские комендатуры, с другой – партизанские формирования. Никому невозможно верить, никому нельзя отказать. В этой ситуации все вели себя по-разному, (   Читать дальше...   )Производство: ООО „Профи ТВ“Жанр: ДокументальныйРежиссер: Ярослав Гэляс, Богдан КоровченкоПеревод: не требуется (фильм на русском)Продолжительность: 00:44:44
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

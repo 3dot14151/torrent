@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 11.0.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760904.jpg" />
+  <img src="Z:/picture/008/save_picture_760904.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Beth Hart - Better Than Home [Deluxe Edition] (2015) [FLAC|Lossless]<Blues Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760903.jpg" />
+  <img src="Z:/picture/008/save_picture_760903.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760900.jpg" />
+  <img src="Z:/picture/008/save_picture_760900.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760890.jpg" />
+  <img src="Z:/picture/008/save_picture_760890.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760886.jpg" />
+  <img src="Z:/picture/008/save_picture_760886.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760881.jpg" />
+  <img src="Z:/picture/008/save_picture_760881.jpg" />
 </div>
 
 
@@ -176,7 +176,7 @@ GPU Shark 0.9.4.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760871.jpg" />
+  <img src="Z:/picture/008/save_picture_760871.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ Second Sight [Ru] (P) 2005
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760853.jpg" />
+  <img src="Z:/picture/008/save_picture_760853.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760820.jpg" />
+  <img src="Z:/picture/008/save_picture_760820.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ WinASO Registry Optimizer 5.0.0.0 RePack by WYLEK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760810.jpg" />
+  <img src="Z:/picture/008/save_picture_760810.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760802.jpg" />
+  <img src="Z:/picture/008/save_picture_760802.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760801.jpg" />
+  <img src="Z:/picture/008/save_picture_760801.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ GreenBrowser 6.9.0517 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760792.jpg" />
+  <img src="Z:/picture/008/save_picture_760792.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ Drake - Views (2016) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760790.jpg" />
+  <img src="Z:/picture/008/save_picture_760790.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Leawo Prof. Media 7.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760783.jpg" />
+  <img src="Z:/picture/008/save_picture_760783.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Winter Fishing / Зимняя рыбалка 3D 2 [Ru/En] - симулятор �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760779.jpg" />
+  <img src="Z:/picture/008/save_picture_760779.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760755.jpg" />
+  <img src="Z:/picture/008/save_picture_760755.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760738.jpg" />
+  <img src="Z:/picture/008/save_picture_760738.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760734.jpg" />
+  <img src="Z:/picture/008/save_picture_760734.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Ummy Video Downloader 1.3.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760731.jpg" />
+  <img src="Z:/picture/008/save_picture_760731.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ EZ CD Audio Converter 3.0.3.2 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760713.jpg" />
+  <img src="Z:/picture/008/save_picture_760713.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760688.jpg" />
+  <img src="Z:/picture/008/save_picture_760688.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760683.jpg" />
+  <img src="Z:/picture/008/save_picture_760683.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ Deus Ex: Human Revolution - Director's Cut (2013) [PS3] [EUR] 4.46 [License] [En
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760678.jpg" />
+  <img src="Z:/picture/008/save_picture_760678.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760675.jpg" />
+  <img src="Z:/picture/008/save_picture_760675.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760674.jpg" />
+  <img src="Z:/picture/008/save_picture_760674.jpg" />
 </div>
 
 

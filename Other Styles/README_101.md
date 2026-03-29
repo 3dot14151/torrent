@@ -1,3 +1,61 @@
+###  Публикация: 932411   (509362) от 29.08.2015
+
+VA - Easy Listening Music: Relaxing Piano Music, Vol. 1 (2015) [MP3|320 кб/с]<Relaxation, New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larry Dalton - Minuet in G Minor, Suite No. 1
+02. Shannon Devos - Ambiance of a Piano
+03. Peng Jing - Days of Sunshine
+04. Gonella - Notturno No. 3(   Читать дальше...   )Жанр: Relaxation, New AgeПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F35FC38EA887BA674287CC1B495E5C6EE89BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562174   (509027) от 09.07.2022
+
+Malte Marten - Lifeline (2021) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpan>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_509027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky & Sand
+02. Breath
+03. Lifeline
+04. Lotus Unfolding(   Читать дальше...   )Жанр: Meditative, HandpanПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2393BFC6D6C726E4521FF4F32942889D6AAB3D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562420   (509024) от 09.07.2022
 
 Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New Age, Native>
@@ -6,7 +64,7 @@ Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509024.jpg" />
+  <img src="Z:/picture/008/save_picture_509024.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Jean-Michel Jarre - Essential Recollection (2015) [MP3|320 кб/с]<Ambient, New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509018.jpg" />
+  <img src="Z:/picture/008/save_picture_509018.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Biffy Clyro ‎ - Balance, Not Symmetry (2019) Original Motion Picture Soundtrac
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508825.jpg" />
+  <img src="Z:/picture/008/save_picture_508825.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Luis Berra - Before Chaos (2019) [MP3|320 Kbps] <Instrumental, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508795.jpg" />
+  <img src="Z:/picture/008/save_picture_508795.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Alkualat - Space Journey (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditati
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508736.jpg" />
+  <img src="Z:/picture/008/save_picture_508736.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Phildel - Qi (2015) [MP3|320 кб/с]<Piano, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508242.jpg" />
+  <img src="Z:/picture/008/save_picture_508242.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, C
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508231.jpg" />
+  <img src="Z:/picture/008/save_picture_508231.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Francisco Canaro - Tango Collection (2010) [MP3|192 кб/с]<Tango>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508047.jpg" />
+  <img src="Z:/picture/008/save_picture_508047.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Paco De Lucia - 38 albums (1965 - 2005) [MP3|160-320 kbps]<Flamenco>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507943.jpg" />
+  <img src="Z:/picture/008/save_picture_507943.jpg" />
 </div>
 
 
@@ -273,7 +331,7 @@ Jean-Michel Jarre - Essential Recollection (2015) [FLAC|Lossless|WEB-DL]<Ambient
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507889.jpg" />
+  <img src="Z:/picture/008/save_picture_507889.jpg" />
 </div>
 
 
@@ -302,7 +360,7 @@ VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, C
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507582.jpg" />
+  <img src="Z:/picture/008/save_picture_507582.jpg" />
 </div>
 
 
@@ -337,7 +395,7 @@ VA - Salsa Summer Hits 2019 [MP3|320 Kbps] <Kizomba, Merengue, Sonero, Other>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506824.jpg" />
+  <img src="Z:/picture/008/save_picture_506824.jpg" />
 </div>
 
 
@@ -366,7 +424,7 @@ Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506102.jpg" />
+  <img src="Z:/picture/008/save_picture_506102.jpg" />
 </div>
 
 
@@ -401,7 +459,7 @@ Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505363.jpg" />
+  <img src="Z:/picture/008/save_picture_505363.jpg" />
 </div>
 
 
@@ -430,7 +488,7 @@ London Philharmonic Orchestra - The Genius of Film Music 1960s-80s (2015) Live [
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505273.jpg" />
+  <img src="Z:/picture/008/save_picture_505273.jpg" />
 </div>
 
 
@@ -459,7 +517,7 @@ VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505271.jpg" />
+  <img src="Z:/picture/008/save_picture_505271.jpg" />
 </div>
 
 
@@ -488,7 +546,7 @@ VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504885.jpg" />
+  <img src="Z:/picture/008/save_picture_504885.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrume
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504867.jpg" />
+  <img src="Z:/picture/008/save_picture_504867.jpg" />
 </div>
 
 
@@ -550,7 +608,7 @@ Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504856.jpg" />
+  <img src="Z:/picture/008/save_picture_504856.jpg" />
 </div>
 
 
@@ -585,7 +643,7 @@ Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504839.jpg" />
+  <img src="Z:/picture/008/save_picture_504839.jpg" />
 </div>
 
 
@@ -620,7 +678,7 @@ Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504743.jpg" />
+  <img src="Z:/picture/008/save_picture_504743.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Eth
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504740.jpg" />
+  <img src="Z:/picture/008/save_picture_504740.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504510.jpg" />
+  <img src="Z:/picture/008/save_picture_504510.jpg" />
 </div>
 
 
@@ -714,7 +772,7 @@ Ambra - Honour and Glory (2002) [MP3|~245 кб/с (V0)]<Electronic, Enigmatic, N
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504499.jpg" />
+  <img src="Z:/picture/008/save_picture_504499.jpg" />
 </div>
 
 
@@ -734,76 +792,6 @@ Ambra - Honour and Glory (2002) [MP3|~245 кб/с (V0)]<Electronic, Enigmatic, N
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539784   (504400) от 28.08.2012
-
-Mariza - 5 альбомов (2001 - 2010) [FLAC|Lossless]<Fado>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fado Vianinha (Fado Vianinha) [02:31]
-02. Promete, Jura (Fado Sergio) [03:53]
-03. As Meninas Dos Meus Olhos (Fado Alfacinha) [02:35]
-04. Mais Uma Lua (Fado Varela) [03:38]
-05. Dona Rosa (Fado Bailarico) [02:16]
-06. Ai, Esta Pena De Mim (Fado Ze Antonio) [02:33]
-07. Na Rua Do Silencio (Fado Alexandrino) [02:48]
-08. Rosa Da Madragoa (Fado Seixal) [01:54]
-09. Boa Noite Solidao (Fado Carlos Da Maia) [03:45]
-10. Desalma (Fado Alberto) [02:30](   Читать дальше...   )Жанр: FadoПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538378   (504391) от 28.08.2012
-
-Lichtmond (Лунный свет) - Erwachen Fruhlingstanzerin (2010) [MP3|256 кб/с]<NewAge, Ambiente, Chill Out, Trance>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erwachen
-02. Morgenrot
-03. Philosophy of Love
-04. Frühlingstänzerin
-05. Wenn des Mondes Strahl
-06. Der Orangenzweig
-07. Ich und Du
-08. Sounds of Distance
-09. Sonnenlicht
-10. Shine on me(   Читать дальше...   )Жанр: NewAge, Ambiente, Chill Out, TranceПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7602585721B1D70C0F1CED62E1EE2509CDDEC22
 ```
 
 https://mybot314.ru/tekegram_catalog/

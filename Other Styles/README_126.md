@@ -1,3 +1,67 @@
+###  Публикация: 1073424   (345841) от 16.11.2016
+
+Bob Lowey - The Journey (An Emotional Soundscape) (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01  Morning Humdrum [00:00:47]
+02  Courage and Confusion [00:07:46]
+03  Premonition [00:01:27]
+04  The Journey [00:08:47](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8ECA2ED4DE64764944A361D724459654949BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579902   (345755) от 24.11.2012
+
+VA - My Love My Guitar. The Best of Acoustic Guitar (2006) [MP3|320 кб/с]<Instrumental, Acoustic guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345755.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:45) 01. Tommy Emmanuel c.g.p. - Angelina
+(4:23) 02. Ian Melrose - Candia
+(3:26) 03. Lucas Michailidis - All Grown Up
+(3:35) 04. Peter Huttlinger - Over The Rainbow
+(4:12) 05. Dominic Miller - La Boca
+(3:34) 06. Doug Smith - August 23rd
+(4:51) 07. Peppino D'Agostino & Stef Bruns - Manha de Carnaval
+(2:30) 08. Pierre Bensusan - Chant de Nuit
+(4:16) 09. David Cullen - Glide Ride
+(3:32) 10. Eric Lugosch - SovereigntyЖанр: Instrumental, Acoustic guitarПродолжительность: 01:01:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F803EAF139FB9F41E37F98881A50292B4E3044A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330007   (345612) от 08.10.2019
 
 Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Soundtrack) (2004) [MP3|320 Kbps] <Classical, Baroque>
@@ -6,7 +70,7 @@ Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345612.jpg" />
+  <img src="Z:/picture/008/save_picture_345612.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Pictur
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345384.jpg" />
+  <img src="Z:/picture/008/save_picture_345384.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ Thom Yorke - Suspiria (Music for the Luca Guadagnino Film) (2018) Soundtrack [FL
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345355.jpg" />
+  <img src="Z:/picture/008/save_picture_345355.jpg" />
 </div>
 
 
@@ -90,7 +154,7 @@ Tony Anderson - Chasm (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Instrume
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345182.jpg" />
+  <img src="Z:/picture/008/save_picture_345182.jpg" />
 </div>
 
 
@@ -119,7 +183,7 @@ Enigma - The Fall Of A Rebel Angel (2016) Japanese Edition [FLAC|Lossless|image 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344639.jpg" />
+  <img src="Z:/picture/008/save_picture_344639.jpg" />
 </div>
 
 
@@ -148,7 +212,7 @@ Paul Joe Fish & Gamma - Silver Sound (2015) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344579.jpg" />
+  <img src="Z:/picture/008/save_picture_344579.jpg" />
 </div>
 
 
@@ -177,7 +241,7 @@ Gregorian - Masters of Chant X: The Final Chapter (2015) [MP3|320 кб/с]<New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343923.jpg" />
+  <img src="Z:/picture/008/save_picture_343923.jpg" />
 </div>
 
 
@@ -206,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343387.jpg" />
+  <img src="Z:/picture/008/save_picture_343387.jpg" />
 </div>
 
 
@@ -234,7 +298,7 @@ Trobar De Morte - The Silver Wheel (2012) 2015, Limited Edition, Numbered, Reiss
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343306.jpg" />
+  <img src="Z:/picture/008/save_picture_343306.jpg" />
 </div>
 
 
@@ -263,7 +327,7 @@ Trobar De Morte - Beyond The Woods - The Acoustic Songs (2011) [FLAC|Lossless|tr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343302.jpg" />
+  <img src="Z:/picture/008/save_picture_343302.jpg" />
 </div>
 
 
@@ -292,7 +356,7 @@ Trobar De Morte - Ouroboros (2016) [FLAC|Lossless|tracks + .cue] <Celtic, Darkwa
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343294.jpg" />
+  <img src="Z:/picture/008/save_picture_343294.jpg" />
 </div>
 
 
@@ -321,7 +385,7 @@ Trobar De Morte - Legends Of Blood And Light (2008) Reissue, 2016 [FLAC|Lossless
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343293.jpg" />
+  <img src="Z:/picture/008/save_picture_343293.jpg" />
 </div>
 
 
@@ -350,7 +414,7 @@ Atom Music Audio - Underworld (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, E
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343133.jpg" />
+  <img src="Z:/picture/008/save_picture_343133.jpg" />
 </div>
 
 
@@ -379,7 +443,7 @@ Alexandre Desplat - L'Odyssee / Одиссея (La Bande Originale Du Film) (201
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342831.jpg" />
+  <img src="Z:/picture/008/save_picture_342831.jpg" />
 </div>
 
 
@@ -408,7 +472,7 @@ Jack Wall & Trent Reznor - Call of Duty: Black Ops II (2012) [MP3|320 кб/с]<S
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342465.jpg" />
+  <img src="Z:/picture/008/save_picture_342465.jpg" />
 </div>
 
 
@@ -443,7 +507,7 @@ Clint Bajakian - Outlaws (Game Soundtrack) (1997) [FLAC|Lossless|tracks] <Soundt
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342363.jpg" />
+  <img src="Z:/picture/008/save_picture_342363.jpg" />
 </div>
 
 
@@ -472,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342036.jpg" />
+  <img src="Z:/picture/008/save_picture_342036.jpg" />
 </div>
 
 
@@ -498,7 +562,7 @@ ERA - The 7th Sword (2017) [MP3|320 Kbps] <New-Age, Ethereal>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341973.jpg" />
+  <img src="Z:/picture/008/save_picture_341973.jpg" />
 </div>
 
 
@@ -527,7 +591,7 @@ VA - Modern Sound Orchestras - Morning Has Broken (1992) [FLAC|Lossless|image + 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341283.jpg" />
+  <img src="Z:/picture/008/save_picture_341283.jpg" />
 </div>
 
 
@@ -556,7 +620,7 @@ Phil Thornton - Rhythm of the Rainforest (2009) [FLAC|Lossless|tracks + .cue] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341076.jpg" />
+  <img src="Z:/picture/008/save_picture_341076.jpg" />
 </div>
 
 
@@ -585,7 +649,7 @@ Robert Thies & Damjan Krajacic - Blue Landscapes II: Discoveries (2016) [MP3|320
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340563.jpg" />
+  <img src="Z:/picture/008/save_picture_340563.jpg" />
 </div>
 
 
@@ -614,7 +678,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340434.jpg" />
+  <img src="Z:/picture/008/save_picture_340434.jpg" />
 </div>
 
 
@@ -643,7 +707,7 @@ Andre Rieu - Celebrates ABBA (2013) Scene [FLAC|Lossless|tracks] <Instrumental, 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340295.jpg" />
+  <img src="Z:/picture/008/save_picture_340295.jpg" />
 </div>
 
 
@@ -672,7 +736,7 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340235.jpg" />
+  <img src="Z:/picture/008/save_picture_340235.jpg" />
 </div>
 
 
@@ -686,64 +750,6 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A777D9DEA5E06D43073FB50133338102A10DD40D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073951   (340224) от 18.11.2016
-
-Hudson Mohawke - Ded Sec - Watch Dogs 2 (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shanghaied (03:54)
-02. Burning Desire (Hacker) (01:22)
-03. W4tched (Cinema) (01:07)
-04. Haum Sweet Haum (04:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDD9740AC1DAA03E8E5DD19FF131F961309C65F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954331   (340095) от 08.11.2015
-
-David Wise - Tengami (2014) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Awakening
-02 - The Pale Moonlight
-03 - Into the Darkness
-04 - Dreams Unfolding(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227549CB6DC2135B598EF90FAA033DCC1B68310F
 ```
 
 https://mybot314.ru/tekegram_catalog/

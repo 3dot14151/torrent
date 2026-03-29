@@ -1,3 +1,32 @@
+###  Публикация: 927626   (524849) от 13.08.2015
+
+Новогодний голубой огонек "Самая высокая..." (2 части) (1967) DVDRip [H.264] [hand made colored / full colourization]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздничные Новогодние "Голубые огоньки" 62-го — 70-го годов (точнее все то, что ценой неимоверных усилий удалось собрать, скомпоновать и все-таки выпустить, используя материалы, чудом сохранившиеся в Государственном Телерадиофонде). На черно-белой пленке возникают знакомые лица — лица известных актеров, музыкантов, телевизионных ведущих. Советские космонавты (   Читать дальше...   )1 Часть
+01. Снежный вальс (Г.Писаренко)
+02. Коммунизм - это молодость мира (Е.Кибкало)
+03. Выступает О.Попов(   Читать дальше...   )Производство: СССР, ГостелерадиофондЖанр: Фильм-концерт, телепередачаРежиссер: Ю. СааковАктеры: Галина Писаренко, Евгений Кибкало, Людмила Зыкина, Марк Бернес, Майя Плисецкая, Иван Козловский, Юрий Мазурок, Дин Рид, Годерзи Чохели, Лариса Голубкина, Полад Бюль-бюль-оглы, Жерен Вин Дэвис, Николай Гяуров, Олег ПоповПродолжительность: 01:21:52 + 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40EAC42C0AE6512B1A4A1FE0013D245620771111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157783   (524712) от 13.08.2017
 
 Танковый биатлон (2017.08.12) HDTV [H.264/1080i-LQ] (сезон 5, финал)
@@ -6,7 +35,7 @@
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524712.jpg" />
+  <img src="Z:/picture/008/save_picture_524712.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517411.jpg" />
+  <img src="Z:/picture/008/save_picture_517411.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516262.jpg" />
+  <img src="Z:/picture/008/save_picture_516262.jpg" />
 </div>
 
 
@@ -85,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515350.jpg" />
+  <img src="Z:/picture/008/save_picture_515350.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513007.jpg" />
+  <img src="Z:/picture/008/save_picture_513007.jpg" />
 </div>
 
 
@@ -137,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510110.jpg" />
+  <img src="Z:/picture/008/save_picture_510110.jpg" />
 </div>
 
 
@@ -163,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509468.jpg" />
+  <img src="Z:/picture/008/save_picture_509468.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506265.jpg" />
+  <img src="Z:/picture/008/save_picture_506265.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504614.jpg" />
+  <img src="Z:/picture/008/save_picture_504614.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503651.jpg" />
+  <img src="Z:/picture/008/save_picture_503651.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502625.jpg" />
+  <img src="Z:/picture/008/save_picture_502625.jpg" />
 </div>
 
 
@@ -295,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502526.jpg" />
+  <img src="Z:/picture/008/save_picture_502526.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501247.jpg" />
+  <img src="Z:/picture/008/save_picture_501247.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499462.jpg" />
+  <img src="Z:/picture/008/save_picture_499462.jpg" />
 </div>
 
 
@@ -374,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498444.jpg" />
+  <img src="Z:/picture/008/save_picture_498444.jpg" />
 </div>
 
 
@@ -400,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496491.jpg" />
+  <img src="Z:/picture/008/save_picture_496491.jpg" />
 </div>
 
 
@@ -426,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494450.jpg" />
+  <img src="Z:/picture/008/save_picture_494450.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494373.jpg" />
+  <img src="Z:/picture/008/save_picture_494373.jpg" />
 </div>
 
 
@@ -480,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490568.jpg" />
+  <img src="Z:/picture/008/save_picture_490568.jpg" />
 </div>
 
 
@@ -506,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490468.jpg" />
+  <img src="Z:/picture/008/save_picture_490468.jpg" />
 </div>
 
 
@@ -532,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490408.jpg" />
+  <img src="Z:/picture/008/save_picture_490408.jpg" />
 </div>
 
 
@@ -558,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490077.jpg" />
+  <img src="Z:/picture/008/save_picture_490077.jpg" />
 </div>
 
 
@@ -584,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490076.jpg" />
+  <img src="Z:/picture/008/save_picture_490076.jpg" />
 </div>
 
 
@@ -610,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487732.jpg" />
+  <img src="Z:/picture/008/save_picture_487732.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Телешоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486998.jpg" />
+  <img src="Z:/picture/008/save_picture_486998.jpg" />
 </div>
 
 
@@ -647,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5479E5A0A65410353BAF0132E95C3ABFFB289FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055322   (486110) от 23.09.2016
-
-Вечерний Ургант (2016.09.21) SATRip (cезон 10, выпуск 14)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420CAA6333A20FD90191DE0782AECDA9BBDB1DC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

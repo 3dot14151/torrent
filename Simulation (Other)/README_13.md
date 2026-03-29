@@ -1,3 +1,29 @@
+###  Публикация: 1838283   (259828) от 21.11.2025
+
+Oxygen Not Included (2019) [Ru/Multi] (700386/dlc) Repack Necros [Complete Bundle]
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_259828.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре-симуляторе космических колоний «Кислород не включен» вы обнаружите, что недостаток кислорода, тепла и средств к существованию является постоянной угрозой выживанию вашей колонии. Проведите колонистов через опасности подземной жизни астероидов и наблюдайте, как их население растет, пока они станут не просто выживать, но процветать. И убедитесь, что вы не забыли (   Читать дальше...   )Тип издания: RepackРазработчик: Klei EntertainmentЖанр: Инди, СимуляторыЯзык озвучки: Русский, Английский, Китайский (упрощенный), КорейскийЯзык интерфейса: Русский, Английский, Китайский (упрощенный), Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C7B17CBABB28CA0E8D615473C1A7DB1C00080A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503271   (259485) от 29.05.2012
 
 Agricultural Simulator: Historical Farming (RePack) [Multi3/-] 2012 | Sash HD
@@ -6,7 +32,7 @@ Agricultural Simulator: Historical Farming (RePack) [Multi3/-] 2012 | Sash HD
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_259485.jpg" />
+  <img src="Z:/picture/005/save_picture_259485.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Railroads Online (2021) [Ru/Multi] (0.10.0.0.0 52150) Repack Pioneer
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257859.jpg" />
+  <img src="Z:/picture/005/save_picture_257859.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ The Planet Crafter (2024) [Ru/Multi] (1.609/dlc) Repack Necros [Deluxe Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257748.jpg" />
+  <img src="Z:/picture/005/save_picture_257748.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257620.jpg" />
+  <img src="Z:/picture/005/save_picture_257620.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Barotrauma (2023) [Ru/Multi] (1.10.7.2/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257529.jpg" />
+  <img src="Z:/picture/005/save_picture_257529.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Supermarket Simulator (2025) [Ru/Multi] (1.1.7) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256823.jpg" />
+  <img src="Z:/picture/005/save_picture_256823.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Zoochosis (2024) [Ru/Multi] (2.2.3) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256820.jpg" />
+  <img src="Z:/picture/005/save_picture_256820.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Dragon Song Tavern: Cozy and Adventurous (2025) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256768.jpg" />
+  <img src="Z:/picture/005/save_picture_256768.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Deconstruction Simulator (2025) [Ru/Multi] (8028) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256767.jpg" />
+  <img src="Z:/picture/005/save_picture_256767.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ LAN Party Adventures (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256760.jpg" />
+  <img src="Z:/picture/005/save_picture_256760.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Monster Care Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256752.jpg" />
+  <img src="Z:/picture/005/save_picture_256752.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Campus Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256751.jpg" />
+  <img src="Z:/picture/005/save_picture_256751.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ ServiceIT: You can do IT (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256748.jpg" />
+  <img src="Z:/picture/005/save_picture_256748.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Bridge Constructor Playground (2014) [Ru/Multi] (1.4-fix) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256637.jpg" />
+  <img src="Z:/picture/005/save_picture_256637.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Bridge Constructor Medieval / Bridge Constructor: Средневековье (20
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256636.jpg" />
+  <img src="Z:/picture/005/save_picture_256636.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.3.1.628/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256610.jpg" />
+  <img src="Z:/picture/005/save_picture_256610.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Organs Please (2022) [Ru/En] (1.02) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254662.jpg" />
+  <img src="Z:/picture/005/save_picture_254662.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Cat Town (2022) [Multi] (1.0) Scene DARKSiDERS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252477.jpg" />
+  <img src="Z:/picture/005/save_picture_252477.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Bridge Constructor Stunts (2016) [Ru/Multi] (1.1-fix) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252476.jpg" />
+  <img src="Z:/picture/005/save_picture_252476.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Lumberjack's Dynasty (2021) [Ru/Multi] (1.09.1/dlc) License GOG [Digital Support
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252253.jpg" />
+  <img src="Z:/picture/004/save_picture_252253.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Cats & Cups (2025) [Ru/Multi] (1.0.5) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250931.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Stormworks: Build and Rescue (2020) [Ru/En] (1.15.5/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250921.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Trailmakers (2019) [Ru/Multi] (213.503.082.0/dlc) Repack Necros [Ultimate Editio
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_250881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_250881.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ THW-Simulator 2012 [Ger] (L) 2012 | ALiAS
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250670.jpg" />
+  <img src="Z:/picture/004/save_picture_250670.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Phantom Squad (2025) [Ru/Multi] (1.0.0.fb6954) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250502.jpg" />
+  <img src="Z:/picture/004/save_picture_250502.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Phantom Squad погружает вас в хаос тактического б�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5D9C61157DCA54037C4F42989F35240204F3682
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834685   (250350) от 04.11.2025
-
-House Flipper 2 / Хаус Флиппер 2 (2023) [Ru/Multi] (1.10.2/dlc) Repack Necros [Digital Deluxe Edition]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пора стряхнуть пыль с молотка - «Хаус Флиппер» возвращается в новом виде! Покупайте и ремонтируйте заброшенные дома! Или вы предпочитаете строить новые? Теперь можно и это! Примерьте роль флиппера-новичка и заработайте состояние, помогая жителям милого городка Pinnacove.Тип издания: RepackРазработчик: Frozen District, EmpyreanЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Польский, Французский и другиеЯзык интерфейса: Русский, Английский, Польский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66309ED7F9B2AA89F13BF804C8C6415800C8B8E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

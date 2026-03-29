@@ -1,3 +1,55 @@
+###  Публикация: 993146   (897337) от 04.03.2016
+
+Александр Шубин | Махно и его время  (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897337.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой книге известного историка А. В. Шубина рассказывается о лидере массового повстанческого движения, анархисте Несторе Махно. Жизнь «батьки» показана на широком фоне событий революции и гражданской войны в России и на Украине. Перед глазами читателя проходит множество героев: Ленин и Деникин, Сталин и Петлюра, сибиряки и украинцы, жители столиц и деревенской (   Читать дальше...   )Жанр: История, роман, прозаПродолжительность: 14:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6C5C7446E87D437B47657F491C074EDB1E9F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101150   (896224) от 06.02.2017
+
+Николай Сухов | Казачка (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман "Казачка" замечательного волгоградского писателя-фронтовика Николая Васильевича Сухова посвящен четырем годам жизни обыкновенной донской станицы. Но каким годам! Разгар Первой мировой войны, великие потрясения 1917 года и ужасы Гражданской войны - все это довелось пережить главным героям романа. Пережить и выжить, и не потеряться, не озвереть в круговерти (   Читать дальше...   )Жанр: Исторический романПродолжительность: 28:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFEE7A404BF85727353829A4469FAA69D88DCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370640   (895196) от 28.03.2020
 
 Сергей Чупринин | Вот жизнь моя. Фейсбучный роман (2020) [MP3]
@@ -6,7 +58,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895196.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894962.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_894686.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893939.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891562.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891281.jpg" />
 </div>
 
 
@@ -166,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890923.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889788.jpg" />
 </div>
 
 
@@ -221,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_889774.jpg" />
 </div>
 
 
@@ -247,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888077.jpg" />
+  <img src="Z:/picture/005/save_picture_888077.jpg" />
 </div>
 
 
@@ -273,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887974.jpg" />
+  <img src="Z:/picture/005/save_picture_887974.jpg" />
 </div>
 
 
@@ -300,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887814.jpg" />
+  <img src="Z:/picture/005/save_picture_887814.jpg" />
 </div>
 
 
@@ -326,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887716.jpg" />
+  <img src="Z:/picture/005/save_picture_887716.jpg" />
 </div>
 
 
@@ -352,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887601.jpg" />
+  <img src="Z:/picture/005/save_picture_887601.jpg" />
 </div>
 
 
@@ -378,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887510.jpg" />
+  <img src="Z:/picture/005/save_picture_887510.jpg" />
 </div>
 
 
@@ -405,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886432.jpg" />
+  <img src="Z:/picture/005/save_picture_886432.jpg" />
 </div>
 
 
@@ -431,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879140.jpg" />
+  <img src="Z:/picture/005/save_picture_879140.jpg" />
 </div>
 
 
@@ -457,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878209.jpg" />
+  <img src="Z:/picture/005/save_picture_878209.jpg" />
 </div>
 
 
@@ -484,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876656.jpg" />
+  <img src="Z:/picture/005/save_picture_876656.jpg" />
 </div>
 
 
@@ -511,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875045.jpg" />
+  <img src="Z:/picture/005/save_picture_875045.jpg" />
 </div>
 
 
@@ -537,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874938.jpg" />
+  <img src="Z:/picture/005/save_picture_874938.jpg" />
 </div>
 
 
@@ -563,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868913.jpg" />
+  <img src="Z:/picture/008/save_picture_868913.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867696.jpg" />
+  <img src="Z:/picture/008/save_picture_867696.jpg" />
 </div>
 
 
@@ -615,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866355.jpg" />
+  <img src="Z:/picture/008/save_picture_866355.jpg" />
 </div>
 
 
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D4E0E98F0B8B5D8C25171D5E452788DAE44473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107491   (865903) от 23.02.2017
-
-Дмитрий Волкогонов | Лев Троцкий. Политический портрет (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лев Троцкий погиб более полувека назад от руки сталинского агента. Но что же такого было в этом "герое - революции", оракуле и пророке "мирового пожара", что делало его, давно бежавшего из СССР, по - прежнему опасным для Сталина? Почему соперничество двух вождей большевизма приняло столь трагический оттенок и имело столь страшные последствия для (   Читать дальше...   )Жанр: ИсторияПродолжительность: 16:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68A6B492B57DC08BF5F274F2A0EB27B2CCCC059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 303172   (865280) от 02.03.2011
-
-Екатерина II Великая | Записки императрицы Екатерины Второй [1991] [MP3, Лилия Пилькевич]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сколько бы ни было написано об этой императрице, наверное, навсегда останется ЗАГАДКА ЕКАТЕРИНЫ. Ибо во второй половине 18 века на троне в России оказалась женщина, не имевшая никаких прав на престол, да к тому же - свергнувшая мужа, законного государя, да к тому же - иноземка. И не просто «оказалась», а пребывала на нем 34 года...Жанр: Исторические мемуарыПродолжительность: 08:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0694824A93F842F18003559E63EC8CCE97EBD953
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 607936   (994216) от 24.01.2013
+
+Газета | Секреты моего дома № 7 [2001] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нижегородская газета.
+Тематика газеты — полезные советы: ремонт, дизайн, гараж, досуг.
+Широко освещаются следующие темы:
+— Идеи по рациональному обустройству дома;
+— Оригинальный подход и свежие решения в интерьере;
+— Ремонт и выбор материалов.
+
+В номере 12 страниц формата А3, собственный скан.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB607912B2F26D1F9F34A8979D934E4C8D73755
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 431069   (993256) от 03.01.2012
+
+Журнал | ХлебСоль №12 [декабрь 2011] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_993256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кулинарный журнал с Юлией Высоцкой.
+Мы знаем, что наши читательницы не стоят сутками у плиты. Поэтому не пропагандируем дорогие гастрономические редкости. Большинство рецептов журнала создано из тех ингредиентов, которые всегда под рукой и их запас легко пополнить в любом супермаркете. Мы думаем о таких же, как мы сами, молодых женщинах, которые активно работают, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32B279FF3A7CAAF2B0FA49E30B2E36F50E360E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609205   (992895) от 26.01.2013
+
+Газета | Сезон у дачи №1 (январь 2013) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531A5AE2F6F15B2C358598194B9791A4F04CF8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609393   (992306) от 27.01.2013
+
+Журнал | Мой прекрасный сад [Украина] №2 (февраль 2013) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Мой прекрасный сад» - самый популярный журнал по декоративному садоводству в Европе. Журнал предназначен для садоводов-любителей, владельцев загородных домов и дач.
+Тема номера: готовимся к новому сезону.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2622B3FF58F25BC975AC0A02582F11959B2394EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610050   (991278) от 28.01.2013
 
 Газета | Сезон у дачи №2 (январь 2013) [PDF]
@@ -6,7 +119,7 @@
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991278.jpg" />
 </div>
 
 
@@ -32,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990696.jpg" />
 </div>
 
 
@@ -58,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990693.jpg" />
 </div>
 
 
@@ -84,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989945.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989945.jpg" />
 </div>
 
 
@@ -110,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989944.jpg" />
 </div>
 
 
@@ -136,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989941.jpg" />
 </div>
 
 
@@ -162,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989898.jpg" />
 </div>
 
 
@@ -188,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989895.jpg" />
 </div>
 
 
@@ -214,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989894.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989894.jpg" />
 </div>
 
 
@@ -240,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989893.jpg" />
 </div>
 
 
@@ -266,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989886.jpg" />
 </div>
 
 
@@ -292,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989770.jpg" />
 </div>
 
 
@@ -318,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989480.jpg" />
 </div>
 
 
@@ -344,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_989479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_989479.jpg" />
 </div>
 
 
@@ -370,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988574.jpg" />
 </div>
 
 
@@ -397,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988559.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988559.jpg" />
 </div>
 
 
@@ -423,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988443.jpg" />
 </div>
 
 
@@ -449,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988412.jpg" />
 </div>
 
 
@@ -475,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987258.jpg" />
 </div>
 
 
@@ -501,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_987234.jpg" />
 </div>
 
 
@@ -527,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986993.jpg" />
 </div>
 
 
@@ -553,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986116.jpg" />
 </div>
 
 
@@ -564,110 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A6B1C09407EB8F24EF99DFEA9BC40C92B6ABEAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355013   (986108) от 24.01.2020
-
-Газета | Хозяин. Дом. Сад. Огород. Спецвыпуск [Украина] №9. Грибы (2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеукраинская газета- энциклопедия полезных советов. В каждом номере масса полезных советов по ремонту и строительству, садоводству и виноградарству, огородничеству и пчеловодству, скотоводству и ещё много полезного и интересного.Жанр: ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBAAA2EB439070D8A81553E73A95F32BDBC80B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355025   (986104) от 24.01.2020
-
-Газета | Хозяин. Дом. Сад. Огород. Спецвыпуск [Украина] №5. Облегчаем труд на участке (2019) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всеукраинская газета- энциклопедия полезных советов. В каждом номере масса полезных советов по ремонту и строительству, садоводству и виноградарству, огородничеству и пчеловодству, скотоводству и ещё много полезного и интересного.Жанр: садоводство, огородничествоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209418543BC275188C45DF76D06EEBE7F0AEEB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612540   (986090) от 02.02.2013
-
-Журнал | Сам [Россия] №2 (февраль 2013) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986090.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сам» - журнал домашних мастеров: описания, схемы и чертежи самодельных станков и приспособлений, оригинальной мебели, теплиц и других конструкций. Советы по ремонту автомобиля и квартиры, предметов интерьера и бытовых приборов. Много полезного найдут для себя рыболовы и туристы, домашние хозяйки и радиолюбители. Много новых практических идей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00687F5EE4AE1BA09C4790A5130D980858BA5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 740547   (985906) от 01.01.2014
-
-Журнал | Сам [Россия] №1 (январь 2014) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сам - журнал домашних мастеров: описания, схемы и чертежи самодельных станков и приспособлений, оригинальной мебели, теплиц и других конструкций. Советы по ремонту автомобиля и квартиры, предметов интерьера и бытовых приборов. Много полезного найдут для себя рыболовы и туристы, домашние хозяйки и радиолюбители. Много новых практических идей.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E20CC3A2B0BD84FE684F497F47A24F9010B0A57
 ```
 
 https://mybot314.ru/tekegram_catalog/

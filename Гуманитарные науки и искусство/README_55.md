@@ -1,3 +1,32 @@
+###  Публикация: 1229598   (624354) от 07.06.2018
+
+А. Я. Вышинский и др. (ред.) | Криминалистика: учебник для слушателей правовых вузов [2 книги] (1935-1936) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник по криминалистике, подготовленный Научно-исследовательским институтом уголовной политики, является основным учебным пособием по курсу криминалистики для слушателей правовых вузов и практическим пособием для органов расследования и судебно-прокурорских работников.
+
+Учебник издается в двух книгах:
+(   Читать дальше...   )Жанр: История, политология, правоведение, криминалистика, искусствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB745A8C7BBB35CA0105683DAF2F6800E896490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909394   (624323) от 19.06.2015
 
 К. Г. Левыкин | Памятью сердца в минувшее… (2004) [FB2, EPUB]
@@ -6,7 +35,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624323.jpg" />
+  <img src="Z:/picture/008/save_picture_624323.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624321.jpg" />
+  <img src="Z:/picture/008/save_picture_624321.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624248.jpg" />
+  <img src="Z:/picture/008/save_picture_624248.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624246.jpg" />
+  <img src="Z:/picture/008/save_picture_624246.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624212.jpg" />
+  <img src="Z:/picture/008/save_picture_624212.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624119.jpg" />
+  <img src="Z:/picture/008/save_picture_624119.jpg" />
 </div>
 
 
@@ -162,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624118.jpg" />
+  <img src="Z:/picture/008/save_picture_624118.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624085.jpg" />
+  <img src="Z:/picture/008/save_picture_624085.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624064.jpg" />
+  <img src="Z:/picture/008/save_picture_624064.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623951.jpg" />
+  <img src="Z:/picture/008/save_picture_623951.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623930.jpg" />
+  <img src="Z:/picture/008/save_picture_623930.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623844.jpg" />
+  <img src="Z:/picture/008/save_picture_623844.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622383.jpg" />
+  <img src="Z:/picture/008/save_picture_622383.jpg" />
 </div>
 
 
@@ -351,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622234.jpg" />
+  <img src="Z:/picture/008/save_picture_622234.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622227.jpg" />
+  <img src="Z:/picture/008/save_picture_622227.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622223.jpg" />
+  <img src="Z:/picture/008/save_picture_622223.jpg" />
 </div>
 
 
@@ -431,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622220.jpg" />
+  <img src="Z:/picture/008/save_picture_622220.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622219.jpg" />
+  <img src="Z:/picture/008/save_picture_622219.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622131.jpg" />
+  <img src="Z:/picture/008/save_picture_622131.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622130.jpg" />
+  <img src="Z:/picture/008/save_picture_622130.jpg" />
 </div>
 
 
@@ -535,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622126.jpg" />
+  <img src="Z:/picture/008/save_picture_622126.jpg" />
 </div>
 
 
@@ -561,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622119.jpg" />
+  <img src="Z:/picture/008/save_picture_622119.jpg" />
 </div>
 
 
@@ -588,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622012.jpg" />
+  <img src="Z:/picture/008/save_picture_622012.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621908.jpg" />
+  <img src="Z:/picture/008/save_picture_621908.jpg" />
 </div>
 
 
@@ -640,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621904.jpg" />
+  <img src="Z:/picture/008/save_picture_621904.jpg" />
 </div>
 
 
@@ -653,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E3029C28013C6244D4F5526C8BCE6B14CAC3EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909618   (621667) от 20.06.2015
-
-Э. В. Ртвеладзе, Ш. Р. Пидаев | Каталог древних монет Южного Узбекистана (1981) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621667.jpg" />
-</div>
-
-
-###  Подробнее
-
-В монографии дается подробное описание монет, найденных при раскопках древних поселений Сурхандарьинской области. Этот большой нумизматический материал позволяет осветить многие вопросы товарно-денежных отношений, политической истории и экономики юга Узбекистана в греко-бактрнйское и кушанское время (III в. до и. э.—IV в. н. э.). Прослеживаются экономические и культурные (   Читать дальше...   )Жанр: НумизматикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C79EE4025F20339DE92D0EB8BAE1E5376DA726D
 ```
 
 https://mybot314.ru/tekegram_catalog/

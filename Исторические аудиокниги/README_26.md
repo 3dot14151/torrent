@@ -1,3 +1,82 @@
+###  Публикация: 1060092   (457561) от 06.10.2016
+
+Василий Немирович-Данченко | Скобелев (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена выдающемуся русскому полководцу - генералу М. Д. Скобелеву, особо отличившемуся в освободительной войне болгарского народа против Турции в 1877- 1878 гг.
+В повествовании ярко, достоверно, выразительными литературными средствами отображены события, очевидцем которых был автор - русский писатель, брат известного театрального деятеля Владимира Ивановича (   Читать дальше...   )Жанр: Воспоминания; Военная прозаПродолжительность: 10:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52D7976261DAB350B339A3DC8767FA681765ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246723   (456987) от 13.09.2018
+
+Гектор Флейшман | Шпионка императора (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ноябрь 1803-го. Жизнь первого консула Наполеона Бонапарта постоянно находится под угрозой. Парижская гильотина и военно-полевые суды не уменьшают числа заговорщиков-роялистов. К чувству ненависти к узурпатору прибавляется ещё и горячее желание отомстить за смерть своих единомышленников. Наполеон уже привык к этому. Он двигает полками, флиртует с актрисами, ссорится (   Читать дальше...   )Жанр: Исторический романПродолжительность: 10:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDCE4D60840B185D205EB9936FBCBE23006E49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162505   (456823) от 02.09.2017
+
+Антонин Ладинский | Когда пал Херсонес (2007) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это первая часть трилогии А. Ладинского, посвященной Киевской Руси. Повествование ведется от лица просвещенного грека Ираклия Метафраста — свидетеля событий тех дней, когда начали развиваться отношения Византии, с внезапно выросшей в причерноморских степях молодой, дерзкой, одетой в овчины Киевской Русью. Вторая и третья части трилогии - романы `Анна Ярославна - (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 10:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3859AFF1FE2BCD9523C6540C2CC5B5F1673E9805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408372   (455772) от 12.09.2020
 
 Брайан Мерчант | Универсальное устройство. Неизвестная история создания iPhone (2020) [MP3]
@@ -6,7 +85,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455772.jpg" />
+  <img src="Z:/picture/008/save_picture_455772.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455592.jpg" />
+  <img src="Z:/picture/008/save_picture_455592.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454831.jpg" />
+  <img src="Z:/picture/008/save_picture_454831.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454760.jpg" />
+  <img src="Z:/picture/008/save_picture_454760.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454747.jpg" />
+  <img src="Z:/picture/008/save_picture_454747.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453728.jpg" />
+  <img src="Z:/picture/008/save_picture_453728.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453604.jpg" />
+  <img src="Z:/picture/008/save_picture_453604.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453377.jpg" />
+  <img src="Z:/picture/008/save_picture_453377.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452769.jpg" />
+  <img src="Z:/picture/008/save_picture_452769.jpg" />
 </div>
 
 
@@ -247,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451454.jpg" />
+  <img src="Z:/picture/008/save_picture_451454.jpg" />
 </div>
 
 
@@ -274,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449166.jpg" />
+  <img src="Z:/picture/008/save_picture_449166.jpg" />
 </div>
 
 
@@ -300,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448092.jpg" />
+  <img src="Z:/picture/008/save_picture_448092.jpg" />
 </div>
 
 
@@ -326,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447626.jpg" />
+  <img src="Z:/picture/005/save_picture_447626.jpg" />
 </div>
 
 
@@ -352,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447139.jpg" />
+  <img src="Z:/picture/008/save_picture_447139.jpg" />
 </div>
 
 
@@ -378,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447107.jpg" />
+  <img src="Z:/picture/008/save_picture_447107.jpg" />
 </div>
 
 
@@ -404,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446516.jpg" />
+  <img src="Z:/picture/008/save_picture_446516.jpg" />
 </div>
 
 
@@ -430,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444917.jpg" />
+  <img src="Z:/picture/008/save_picture_444917.jpg" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442874.jpg" />
+  <img src="Z:/picture/008/save_picture_442874.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442872.jpg" />
+  <img src="Z:/picture/008/save_picture_442872.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442862.jpg" />
+  <img src="Z:/picture/008/save_picture_442862.jpg" />
 </div>
 
 
@@ -536,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442503.jpg" />
+  <img src="Z:/picture/008/save_picture_442503.jpg" />
 </div>
 
 
@@ -562,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437339.jpg" />
+  <img src="Z:/picture/008/save_picture_437339.jpg" />
 </div>
 
 
@@ -588,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437219.jpg" />
+  <img src="Z:/picture/008/save_picture_437219.jpg" />
 </div>
 
 
@@ -599,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D8998A97C2235ACF3D16953644B741E71BA35AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165065   (436920) от 11.09.2017
-
-Александр Ржешевский | Павлов. Тайна расстрелянного генерала (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий Григорьевич Павлов - одна из наиболее трагических фигур начала Великой Отечественной войны. Генерал армии, Герой Советского Союза, заслуженно снискавший боевую славу на полях сражений гражданской войны в Испании, Павлов, будучи начальником Особого Западного военного округа, принял наиболее страшный и жестокий удар немецко-фашистских войск - на направлении (   Читать дальше...   )Жанр: Роман. БиографияПродолжительность: 12:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C136688048FFEAA3A9C4E3301F758B71E2F0859B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 26705   (435298) от 01.10.2012
-
-Валентин Пикуль | Фаворит
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_435298.jpg" />
-</div>
-
-
-###  Подробнее
-
-В романе запечатлены важнейшие события отечественной истории второй половины XVIII столетия. В центре повествования — образ фаворита императрицы Екатерины II Алексеевны, выдающегося государственного деятеля, полководца Григория Александровича Потемкина. Среди действующих лиц — императрица Елизавета Петровна и граф Алексей Разумовский, великий русский ученый Михаил (   Читать дальше...   )Жанр: ИсторияПродолжительность: 57:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063213   (434822) от 16.10.2016
-
-Рафаэль Сабатини | Буканьер Его Величества (2009) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исторический роман Рафаэля Сабатини — о пиратах Карибского моря. Главные герои оказываются в самых невероятных ситуациях, их окружают подлинные, невымышленные персонажи, например, Генри Морган и другие известные личности.Жанр: Исторический роман, приключенияПродолжительность: 05:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32CB1C85CBFD1BAEBC35930D5681E35BC073651A
 ```
 
 https://mybot314.ru/tekegram_catalog/

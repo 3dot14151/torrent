@@ -1,3 +1,55 @@
+###  Публикация: 1511684   (788716) от 21.11.2021
+
+Marsupilami: Hoobadventure (2021) [Ru/Multi] (1.0rd) License CODEX
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марсупилами Панч, Твистер и Хоуп мирно живут в джунглях Паломбии. Однажды друзья, играя на пляже, случайно открывают проклятый саркофаг и выпускают на волю таинственное привидение, которое накладывает ужасное проклятие на всех зверей. К счастью, марсупилами к нему невосприимчивы. Наши герои должны отправиться на поиски врага, чтобы снять проклятие.Тип издания: LicenseРазработчик: Ocellus StudioЖанр: Платформер, ПриключенияЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB0A62CDF86655336B4B8BA80F9FC2987776D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511445   (788715) от 21.11.2021
+
+Hextech Mayhem: A League of Legends Story (2021) [Ru/Multi] (1.21.11.19/dlc) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_788715.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом скоростном ритмическом раннере любое действие влечет за собой взрывную реакцию — и беспределу нет предела. Примерьте на себя роль йордла Зиггса, эксперта по хексчатке, и начните буйство на улицах Пилтовера!Тип издания: LicenseРазработчик: Choice ProvisionsЖанр: Экшн, Аркада, ПлатформерЯзык озвучки: Русский, Английский, Немецкий, Турецкий и другиеЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF8F32EFABE86C8F417CFCA1C83AEADAE5A4E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123582   (786268) от 08.04.2017
 
 Headlander (2016) [Ru/Multi] (1.0) License GOG
@@ -6,7 +58,7 @@ Headlander (2016) [Ru/Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786268.jpg" />
+  <img src="Z:/picture/008/save_picture_786268.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ The Sexy Brutale (2017) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785526.jpg" />
+  <img src="Z:/picture/008/save_picture_785526.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Remnants of Naezith (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783970.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Planetoid Pioneers (2018) [En] (1.0) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783698.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Pid (2012) [Multi] (18421) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783416.jpg" />
+  <img src="Z:/picture/008/save_picture_783416.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Aegis Defenders (2018) [En/Jp] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782818.jpg" />
+  <img src="Z:/picture/008/save_picture_782818.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Hunahpu Quest. Mechanoid (2018) [Ru/En] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780358.jpg" />
+  <img src="Z:/picture/008/save_picture_780358.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ DYO (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780326.jpg" />
+  <img src="Z:/picture/008/save_picture_780326.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0.43.1/dlc) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779442.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Little Nightmares (2017) [Ru/Multi] (1.0/dlc) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779428.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Little Nightmares (2017) [Ru/En] (1.0/dlc) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779026.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Owlboy (2016) [Ru/En/Jp] (1.3.6613.28019) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778588.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Cosmochoria (2015) [En] (1.18.4) Repack ARMENIAC
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773990.jpg" />
+  <img src="Z:/picture/008/save_picture_773990.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772643.jpg" />
+  <img src="Z:/picture/008/save_picture_772643.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Unruly Heroes (2019) [Ru/Multi] (1.0) Repack xatab
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772527.jpg" />
+  <img src="Z:/picture/008/save_picture_772527.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Lost Castle (2016) [Ru/Multi] (1.83) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772510.jpg" />
+  <img src="Z:/picture/008/save_picture_772510.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ La-Mulana (2012) [Ru/Multi] (1.6.6.1b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766879.jpg" />
+  <img src="Z:/picture/008/save_picture_766879.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Save Jesus (2016) [En] (1.0) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766006.jpg" />
+  <img src="Z:/picture/008/save_picture_766006.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ UNSIGHTED (2021) [Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764954.jpg" />
+  <img src="Z:/picture/008/save_picture_764954.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Headlander (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764222.jpg" />
+  <img src="Z:/picture/008/save_picture_764222.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Gigapocalypse (2021) [Multi] (1.9.81) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761529.jpg" />
+  <img src="Z:/picture/008/save_picture_761529.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Celeste (2018) [Ru/Multi] (1.1.3.0) Repack alivedeath
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757705.jpg" />
+  <img src="Z:/picture/008/save_picture_757705.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Rise & Shine (2017) [Ru/Multi] (1.0) Repack R.G. Catalyst
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747704.jpg" />
+  <img src="Z:/picture/008/save_picture_747704.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Evil Cogs (2018) [Ru/Multi] (1.0) Repack Other s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747388.jpg" />
+  <img src="Z:/picture/008/save_picture_747388.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Evil Cogs (2018) [Ru/Multi] (1.0) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6865B9B2B6B6F4E43FDDE3F383EC19FFA78C2350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524259   (744975) от 15.01.2022
-
-Cave Story+ (2011) [Multi] (1.0.1.0) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_744975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cave Story, вероятно, является самой известной инди-игрой всех времен. Она предлагает уникальную историю с яркими характерами, тайнами и часами непрекращающегося веселья. Cave Story — это приключенческий экшен от получившего признание критиков независимого дизайнера Дайсукэ Амайи, известного фанатам под псевдонимом Pixel. Наполненная непревзойденным обаянием и шармом, (   Читать дальше...   )Тип издания: LicenseРазработчик: Nicalis, Inc., Studio PixelЖанр: Экшн, Приключение, ПлатформерЯзык субтитров: Английский, ЯпонскийЯзык интерфейса: Английский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4615A5EF8AC5809F11FBF1D6C9F94948EE444747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127234   (740497) от 20.04.2017
-
-The Disney Afternoon Collection (2017) [Ru] (1.0) Repack MaggotFreddy
-
->>След.
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправьтесь в золотую эпоху видеоигр с любимыми персонажами Disney в «The Disney Afternoon Collection». В коллекции вас ждут множество новых режимов и веселые дополнительные материалы. Это отличный подарок для любого поклонника Disney! The Disney Afternoon Collection — сборник HD-переизданий классических платформеров, разработанные японской студией Capcom, которые (   Читать дальше...   )Тип издания: RepackРазработчик: Capcom, Digital EclipseЖанр: Action, Arcade (Platform)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BC450AA43CCA415C22096788025842B6B7A9C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

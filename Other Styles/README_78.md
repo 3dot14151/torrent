@@ -1,3 +1,67 @@
+###  Публикация: 1228250   (637510) от 31.05.2018
+
+Andreas - Paradise Cafe (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise Cafe
+02. Earth Halo
+03. Evolving the Distance
+04. Passion for Life(   Читать дальше...   )Жанр: New Age, Relax, ChilloutПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFDFB1DF784BDF57D8618EC079FAE9AAFBADC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519466   (637490) от 06.07.2012
+
+Лала Хоперъ и ансамбль Цыганская кибитка - Душа просит праздника !!! (2010) [MP3|256 кб/с]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637490.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кай ё не (2:07)
+ 2. Слово (1:07)
+ 3. Костёр в тумане светит (2:16)
+ 4. Нанге цоха (1:48)
+ 5. Красивая (3:36)
+ 6. Небо (3:10)
+ 7. Ночь костёр (3:21)
+ 8. Вольная (2:26)
+ 9. Запрягайте вороных (2:10)
+ 10. Только раз (3:31)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F345EF15F82A2C0A5A1EB26EE8A9C4535B88645A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 146089   (637317) от 12.06.2015
 
 Буготак - Колёса должны вращаться (2009) [MP3|VBR~207 kbps]<сибирский этно-рок>
@@ -6,7 +70,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_637317.jpg" />
+  <img src="Z:/picture/005/save_picture_637317.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HB
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637313.jpg" />
+  <img src="Z:/picture/008/save_picture_637313.jpg" />
 </div>
 
 
@@ -64,7 +128,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637218.jpg" />
+  <img src="Z:/picture/008/save_picture_637218.jpg" />
 </div>
 
 
@@ -99,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637061.jpg" />
+  <img src="Z:/picture/008/save_picture_637061.jpg" />
 </div>
 
 
@@ -128,7 +192,7 @@ Yanni - Live at El Morro, Puerto Rico (2012) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_636910.jpg" />
+  <img src="Z:/picture/005/save_picture_636910.jpg" />
 </div>
 
 
@@ -163,7 +227,7 @@ Phil Thornton - Rejuvenation - Beyond the Edge of Dreams (2014) [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636142.jpg" />
+  <img src="Z:/picture/008/save_picture_636142.jpg" />
 </div>
 
 
@@ -189,7 +253,7 @@ George Winston - Night Divides The Day - The Music Of The Doors (2002) [FLAC|Los
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636039.jpg" />
+  <img src="Z:/picture/008/save_picture_636039.jpg" />
 </div>
 
 
@@ -218,7 +282,7 @@ Ennio Morricone - Film Music By Ennio Morricone (1993) [FLAC|Lossless|tracks + .
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635930.jpg" />
+  <img src="Z:/picture/008/save_picture_635930.jpg" />
 </div>
 
 
@@ -247,7 +311,7 @@ Deep Forest - Hit Collection (2000) [FLAC|Lossless|image + .cue] <Electronic, Ho
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635816.jpg" />
+  <img src="Z:/picture/008/save_picture_635816.jpg" />
 </div>
 
 
@@ -276,7 +340,7 @@ Neu! - Neu! Box (1972-1986) 2010 / Gronland Rec (1972-1986) [MP3|320 кб/с]<Kr
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635730.jpg" />
+  <img src="Z:/picture/008/save_picture_635730.jpg" />
 </div>
 
 
@@ -305,7 +369,7 @@ Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635697.jpg" />
+  <img src="Z:/picture/008/save_picture_635697.jpg" />
 </div>
 
 
@@ -334,7 +398,7 @@ VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу пе�
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635631.jpg" />
+  <img src="Z:/picture/008/save_picture_635631.jpg" />
 </div>
 
 
@@ -369,7 +433,7 @@ Metafora - Flores Alvarez (2012) [MP3|320 кб/с]<instrumental metal>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635620.jpg" />
+  <img src="Z:/picture/008/save_picture_635620.jpg" />
 </div>
 
 
@@ -404,7 +468,7 @@ VA - What are you thinking about soldier / О чем задумался, слу�
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635619.jpg" />
+  <img src="Z:/picture/008/save_picture_635619.jpg" />
 </div>
 
 
@@ -439,7 +503,7 @@ VA - 101 Movie Songs (5CD) (2012) [MP3|181-288 кб/с]<Pop, Rock>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635472.jpg" />
+  <img src="Z:/picture/008/save_picture_635472.jpg" />
 </div>
 
 
@@ -474,7 +538,7 @@ VA - Four Guitars (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Easy Listening
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635369.jpg" />
+  <img src="Z:/picture/008/save_picture_635369.jpg" />
 </div>
 
 
@@ -503,7 +567,7 @@ VA - Песни кубанских казаков (2002) [MP3|320 кб/с]<Folk 
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635344.jpg" />
+  <img src="Z:/picture/008/save_picture_635344.jpg" />
 </div>
 
 
@@ -538,7 +602,7 @@ VA - Cossacks-Songs and dances of the Don and Cuban Cossacks / Казаки-пе
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635203.jpg" />
+  <img src="Z:/picture/008/save_picture_635203.jpg" />
 </div>
 
 
@@ -573,7 +637,7 @@ Slavik...Kemmler - Will I Be Faithful? (1995) Maxi-Single [FLAC|Lossless|image +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634360.jpg" />
+  <img src="Z:/picture/008/save_picture_634360.jpg" />
 </div>
 
 
@@ -602,7 +666,7 @@ The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .c
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634311.jpg" />
+  <img src="Z:/picture/008/save_picture_634311.jpg" />
 </div>
 
 
@@ -631,7 +695,7 @@ VA - Legends (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634309.jpg" />
+  <img src="Z:/picture/008/save_picture_634309.jpg" />
 </div>
 
 
@@ -660,7 +724,7 @@ Bluchel & Von Deylen - Bi Polar (2004) [FLAC|Lossless|image + .cue]<Electronic, 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634299.jpg" />
+  <img src="Z:/picture/008/save_picture_634299.jpg" />
 </div>
 
 
@@ -689,7 +753,7 @@ Airforce Delta / Deadly Skies (1999) unofficial [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634298.jpg" />
+  <img src="Z:/picture/008/save_picture_634298.jpg" />
 </div>
 
 
@@ -718,7 +782,7 @@ VA - Flamenco Passion (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamen
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633916.jpg" />
+  <img src="Z:/picture/008/save_picture_633916.jpg" />
 </div>
 
 
@@ -732,64 +796,6 @@ VA - Flamenco Passion (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502DFC029A9EFF84D67003FB0D1570366CDAC589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293964   (633610) от 05.04.2019
-
-Piano Peace - Melancholy Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Melancholia
-02 Silent Woods
-03 Wonders
-04 The Darkness(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFC5B41D8CA4C68CCF235781A34410FF10C83D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542547   (633564) от 09.04.2022
-
-VA - Terra nostra (Banda sonora original) (1999) [FLAC|Lossless|tracks + .cue] <Classical, Folk, World, Country, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agnaldo Rayol & Charlotte Church - Tormento d' amore.
-02. Jose Augusto - 'O sole mio!.
-03. Toquinho - Comme facette mammeta.
-04. Emlio Santiago - La signora di trent' anni fa.(   Читать дальше...   )Жанр: Classical, Folk, World, Country, Stage & ScreenПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFFF95ED63B2D1F6CAD4E6FC1DA69FFD783EC24
 ```
 
 https://mybot314.ru/tekegram_catalog/

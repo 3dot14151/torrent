@@ -1,3 +1,87 @@
+###  Публикация: 1389404   (784585) от 10.06.2020
+
+Джеймс Олдридж | Последний дюйм (1987) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Олдридж рассказал замечательную историю о мальчике и его отце - об их отношениях, о судьбах и о тех подвигах, на которые они оба способны. Пронзительный рассказ, который побуждает посмотреть на детей с немного другой стороны, выйдя за рамки обыденности.Жанр: ПриключенияПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAE437FA71762B3A6A5714E291834315DE90DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389637   (784126) от 11.06.2020
+
+Владимир Львовский - Новогодний сундучок (2008) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-10. Праздник счастья и добра
+02+/-11. Пусть приходит Новый год
+03+/-12. В новогоднюю сказку поверь
+04+/-13. В Лапландии дальней(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FDF2D48FB74418AB3DAD838B74A9CDD1555608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389631   (784125) от 11.06.2020
+
+Владимир Львовский - Новогодний бал (2008) [MP3|320 Kbps]<Детские песни и минусовки>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01+/-09. Новогодний будет бал
+02+/-10. Марсианский Новый год
+03+/-11. Новогодние часы
+04+/-12. Новогодние свечи(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2D24431758B7CD06F15B2F468153D61FB1E1BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389994   (783692) от 13.06.2020
 
 Елена Арифуллина | Кощеева дочка и бабушкина внучка (2020) [MP3]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783692.jpg" />
 </div>
 
 
@@ -33,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783688.jpg" />
+  <img src="Z:/picture/008/save_picture_783688.jpg" />
 </div>
 
 
@@ -59,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783677.jpg" />
+  <img src="Z:/picture/008/save_picture_783677.jpg" />
 </div>
 
 
@@ -86,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783417.jpg" />
+  <img src="Z:/picture/008/save_picture_783417.jpg" />
 </div>
 
 
@@ -112,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783411.jpg" />
+  <img src="Z:/picture/008/save_picture_783411.jpg" />
 </div>
 
 
@@ -138,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783406.jpg" />
+  <img src="Z:/picture/008/save_picture_783406.jpg" />
 </div>
 
 
@@ -166,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783104.jpg" />
+  <img src="Z:/picture/008/save_picture_783104.jpg" />
 </div>
 
 
@@ -194,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782936.jpg" />
+  <img src="Z:/picture/008/save_picture_782936.jpg" />
 </div>
 
 
@@ -223,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782734.jpg" />
+  <img src="Z:/picture/008/save_picture_782734.jpg" />
 </div>
 
 
@@ -251,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782300.jpg" />
 </div>
 
 
@@ -279,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782272.jpg" />
 </div>
 
 
@@ -308,7 +392,7 @@ VA - Classic Disney - 60 Years Of Musical Magic (1995-1998) 5CD [FLAC|tracks]<So
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781756.jpg" />
 </div>
 
 
@@ -337,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781461.jpg" />
 </div>
 
 
@@ -366,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781460.jpg" />
 </div>
 
 
@@ -395,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781438.jpg" />
 </div>
 
 
@@ -424,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781064.jpg" />
+  <img src="Z:/picture/008/save_picture_781064.jpg" />
 </div>
 
 
@@ -453,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778164.jpg" />
 </div>
 
 
@@ -480,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777445.jpg" />
 </div>
 
 
@@ -512,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777193.jpg" />
+  <img src="Z:/picture/008/save_picture_777193.jpg" />
 </div>
 
 
@@ -542,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777188.jpg" />
+  <img src="Z:/picture/008/save_picture_777188.jpg" />
 </div>
 
 
@@ -571,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777140.jpg" />
+  <img src="Z:/picture/008/save_picture_777140.jpg" />
 </div>
 
 
@@ -597,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777124.jpg" />
+  <img src="Z:/picture/008/save_picture_777124.jpg" />
 </div>
 
 
@@ -626,7 +710,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777121.jpg" />
+  <img src="Z:/picture/008/save_picture_777121.jpg" />
 </div>
 
 
@@ -637,91 +721,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E45F4A73B123291B2BB0CE1CB106690D65585FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967404   (777117) от 08.03.2018
-
-О. Пройслер | Маленькая Баба-Яга (1988/1996) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777117.jpg" />
-</div>
-
-
-###  Подробнее
-
-А ну-ка признавайтесь, кто из вас слышал о танцующей, нет, о гарцующей, да нет же! - о встающей на дыбы, стремясь сбросить наездницу, а потом, после хорошей взбучки, укрощённой и ставшей смирнее овечки... метле? Неужто никто? Да ведь именно на этой самой метле в полном смысле слова «вылетает в трубу» одна из самых знаменитых ведьм на свете!01 | Маленькая Баба-Яга, часть 1 | 22:58
-02 | Маленькая Баба-Яга, часть 2 | 22:50Жанр: АудиоспектакльПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1785E90F0BAAE9048F5021C71F45F504E968CD63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969644   (777115) от 08.03.2018
-
-Антуан де Сент-Экзюпери | Маленький принц (1977/2006) [WavPack]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777115.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Маленький принц» (фр. Le Petit Prince) — аллегорическая повесть, наиболее известное произведение Антуана де Сент-Экзюпери.
-Впервые опубликована 6 апреля 1943 года в Нью-Йорке.
-«Вот самый лучший его портрет…» — «Маленький принц», гл. II
-Рисунки в книге выполнены самим автором и не менее знамениты, чем сама книга. Важно, что это не иллюстрации, а органическая часть (   Читать дальше...   )Жанр: МоноспектакльПродолжительность: 00:44:29
-
-01 | Маленький принц. Часть 5 | 11:26
-02 | Маленький принц. Часть 6 | 11:22(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440FDE680C8AF6050EAEA586D8A4CB7A96BA74FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014795   (776185) от 08.05.2016
-
-Владимир Ляленков | Знаменитая танковая (2016) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть о славном боевом пути Кантемировской танковой дивизии в годы Великой Отечественной войны.Жанр: Детская проза. О войнеПродолжительность: 03:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0FC130D70CB163B9D6ACBCBF1C0019267C3E737
 ```
 
 https://mybot314.ru/tekegram_catalog/

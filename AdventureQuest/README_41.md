@@ -1,3 +1,81 @@
+###  Публикация: 388669   (457733) от 17.09.2011
+
+Call of Cthulhu: Prisoner of Ice (1995) [Ru] (1.0) Repack Pilotus
+
+>>Win Старые Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год 1937-й. Антарктика. Нацисты, всегда стремившиеся отыскать доказательства своего высокого происхождения, находят что-то действительно пугающее. В нескольких ящиках на их секретной базе хранятся замороженные существа... Однако, норвежский антрополог Хемсон с помощью британской подлодки крадёт три загадочных ящика. Их атакует германский самолёт, и, прежде, чем его (   Читать дальше...   )Тип издания: RePackРазработчик: Chaosium, InfogramesЖанр: Adventure, Point&Click, HorrorЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F858B1EF87264A0280887547E44172B838A10672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568867   (457046) от 10.08.2022
+
+Hooked on You: A Dead by Daylight Dating Sim (2022) [Ru/Multi] (1.0.15) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Милости просим на Остров Убийц! Ваши спутники — четверка соблазнительных убийц. Несмотря на пугающую наружность, им тоже хочется романтики. Вам предстоит покорить их сердца и раскрыть мрачные тайны. Что впереди: любовь, дружба... страшная смерть?Тип издания: RepackРазработчик: PsyopЖанр: Adventure (Visual novel), CasualЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C856239D9DD122934FB7122C83E08669BE502C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060307   (456765) от 06.10.2016
+
+Duke Grabowski, Mighty Swashbuckler (2016) [En/Ge] (1.0) License RELOADED
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_456765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duke Grabowski, Mighty Swashbuckler - это рисованный приключенческий квест про пиратов в духе классических The Curse of Monkey Island и Ghost Pirates of Vooju Island. Может ли самый грубый пират Азарббина стать благородным сорвиголовой? Дюк Грабовски - громила пират, который имеет доброе сердце, но привыкший решать все проблемы при помощи кулаков.Тип издания: LicenseРазработчик: Venture Moon IndustriesЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C45C590BA536044808D61D66828BDAA6AB433039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962320   (456638) от 06.10.2016
 
 Dreamfall Chapters (2014-2016) [Ru/Multi] (5.3.1) License GOG [Special Edition]
@@ -6,7 +84,7 @@ Dreamfall Chapters (2014-2016) [Ru/Multi] (5.3.1) License GOG [Special Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456638.jpg" />
+  <img src="Z:/picture/008/save_picture_456638.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ The Unfinished Swan (2020) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455010.jpg" />
+  <img src="Z:/picture/008/save_picture_455010.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Disneyland Adventures (2018) [Ru/Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454305.jpg" />
+  <img src="Z:/picture/008/save_picture_454305.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Deponia Doomsday (2016) [Ru/Multi] (1.1.0246) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452571.jpg" />
+  <img src="Z:/picture/008/save_picture_452571.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Agatha Christie: The ABC Murders (2016) [Ru/Multi] (1.02) License PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452364.jpg" />
+  <img src="Z:/picture/008/save_picture_452364.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ The Old House (2020) [Ru/En] (1.0) Steam-Rip CHRONOS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450956.jpg" />
+  <img src="Z:/picture/008/save_picture_450956.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Brothers: A Tale of Two Sons (2013) [Ru/Multi] (1.0/u1) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449987.jpg" />
+  <img src="Z:/picture/008/save_picture_449987.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Amerzone: The Explorer's Legacy (1999) [Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445742.jpg" />
+  <img src="Z:/picture/008/save_picture_445742.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Deponia [Ru/En] (Repack/1.3) 2012 | R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445422.jpg" />
+  <img src="Z:/picture/008/save_picture_445422.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ The Beginner's Guide (2015) [Ru/En] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444056.jpg" />
+  <img src="Z:/picture/008/save_picture_444056.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Battle Chef Brigade (2017) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443680.jpg" />
+  <img src="Z:/picture/008/save_picture_443680.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ The Whispered World  / Ускользающий мир [Ru] (L) 2010
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_443051.jpg" />
+  <img src="Z:/picture/005/save_picture_443051.jpg" />
 </div>
 
 
@@ -321,7 +399,7 @@ Penumbra: Black Plague / Пенумбра 2: Дневники мертвецов
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_443038.jpg" />
+  <img src="Z:/picture/005/save_picture_443038.jpg" />
 </div>
 
 
@@ -349,7 +427,7 @@ Lost Horizon 2 (2015) [En] (1.0.3) Repack Mr.Weegley
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441803.jpg" />
+  <img src="Z:/picture/008/save_picture_441803.jpg" />
 </div>
 
 
@@ -375,7 +453,7 @@ Solstice (2016) [En] (1.4.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441680.jpg" />
+  <img src="Z:/picture/008/save_picture_441680.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd1/dlc) License HOODLUM [Deluxe Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441418.jpg" />
+  <img src="Z:/picture/008/save_picture_441418.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ Transference (2018) [Ru/Multi] (1.0) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441314.jpg" />
+  <img src="Z:/picture/008/save_picture_441314.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ LOST EMBER (2019) [Ru/Multi] (1.1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439779.jpg" />
+  <img src="Z:/picture/008/save_picture_439779.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ Darksiders Genesis (2019) [Ru/Multi] (1.04a) Repack xatab (обновляема�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439756.jpg" />
+  <img src="Z:/picture/008/save_picture_439756.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ My Brother Rabbit (2018) [Ru/Multi] (1.0/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436847.jpg" />
+  <img src="Z:/picture/008/save_picture_436847.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ Late Shift (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436390.jpg" />
+  <img src="Z:/picture/008/save_picture_436390.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ Stay Close (2016) [En] (1.04) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436370.jpg" />
+  <img src="Z:/picture/008/save_picture_436370.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ Beatbuddy: Tale of the Guardians (2013) [Ru/Multi] (1.2.9) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435787.jpg" />
+  <img src="Z:/picture/008/save_picture_435787.jpg" />
 </div>
 
 
@@ -594,84 +672,6 @@ Beatbuddy: Tale of the Guardians (2013) [Ru/Multi] (1.2.9) Repack Other s
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B06EA4DFAAC96D7DFD40F01BA0FDF97D995ED934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410546   (435656) от 21.09.2020
-
-Wind Peaks (2020) [Ru/Multi] (2019.3.15.5898046) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wind Peaks — это поисковая игра, вручную нарисованная в мультипликационной стилистике, рассказывающая историю о группе скаутов, которые находят карту и благодаря ей попадают в магическую часть леса. В WInd Peaks история рассказывается через спрятанные предметы и окружение. Чтобы продвинуться по ней и активировать кат-сцену, найдите все предметы на уровне.Тип издания: RepackРазработчик: Actoon StudioЖанр: Adventure (Quest), Hidden Object, 2DЯзык интерфейса: Русский, Английский, Португальский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A073BDE7B5F7CB1E0E1C114ECEB0897361B24E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571512   (431288) от 22.08.2022
-
-A Tale of Paper: Refolded (2022) [Ru/Multi] (1.0) License GOG [Digital Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431288.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Tale of Paper - это платформер-головоломка, рассказывающий историю Линии, волшебного персонажа из бумаги, который может менять свою форму с помощью оригами. Превращаться в лягушку, ракету, птицу и других персонажей, пока Лайн отправляется в эмоциональное путешествие, чтобы осуществить мечту своего создателя.Тип издания: LicenseРазработчик: Open House GamesЖанр: Приключение, Головоломка, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C80A2390CF2494302AE20EF58B574062629578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165319   (430054) от 14.09.2017
-
-Still Life 2 (2009) [Multi] (1.0) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто же скрывается под именем мистера Икс? В игре Still Life 2 вас ждет долгожданный финал оригинальной Still Life и новое расследование агента Виктории МакФерсон. Осенью 2008 года Викторию отправляют в штат Мейн, где было обнаружено тело Эллен Данниган. Характер действий преступника, а также отправленное полиции и прессе видео не оставляют сомнений: Мучитель с Восточного (   Читать дальше...   )Тип издания: LicenseРазработчик: GameCO StudiosЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F28FBE5BBE1D1476A74704021F01A17528EE3E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

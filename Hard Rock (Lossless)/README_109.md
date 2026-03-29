@@ -1,3 +1,61 @@
+###  Публикация: 379766   (5771) от 27.08.2025
+
+Sammy Hagar (frontman Montrose, Van Halen, Chickenfoot) - 34 Albums (1976 - 2022) 42 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5771.jpg" />
+</div>
+
+
+###  Подробнее
+
+К вокалисту Sammy Hagar, по прозвищу The Red Rocker, известность пришла, когда он присоединился к группе Ronnie Montrose "Montrose". С его участием было записано два самых удачных альбома, причем один из хитов, "Bad Motor Scooter", имел в авторах Хагара. Отношения с Ронни складывались непросто, и вскоре Сэмми ушел из "Montrose". С 1976 (   Читать дальше...   )Список альбомов:
+1976 - Nine On A Ten Scale
+1977 - Musical Chairs
+1977 - Sammy Hagar (aka Red)Жанр: Hard RockПродолжительность: 33:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BADEC85A80E12A7CCB6690EE0D9D5058837C772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815470   (5153) от 30.08.2025
+
+Queensryche - Live Evolution (2001) Japanese Edition, 2XCD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk 1 - EP/Warning/Rage Suite; Mindcrime Suite:
+EP/Warning/Rage Suite
+1-1 NM156 3:57
+1-2 Walk In The Shadows 3:37(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D5CA73AF3ABA862B8033A62DB2A4B6C154A115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815613   (4953) от 31.08.2025
 
 IMKT - Sooner Or Later (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -6,7 +64,7 @@ IMKT - Sooner Or Later (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4953.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Lillian Axe - Fields Of Yesterday (1999) Reissue, 2004, CD-Maximum [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4924.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Kiss - Unchained & Unmasked (1993) 2 x CD [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4440.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Glenn Hughes - Chosen (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4127.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ November - The Long Way Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3458.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Sean David Leland - Hear Me Roar (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2777.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Various - Bat Head Soup - Tribute To Ozzy (2000) Japanese Edition, 2023, TOCP, C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2772.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Deep Purple - Made In Japan (1972) 5 x CD, Reissue, 2025, Warner Records LLC [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2664.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Ward XVI - Identity (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Avant-Garde
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1969.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1164.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Gypsy's Kiss - Piece By Piece (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_518.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Hellcats - Unstoppable (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Madra - Sem Parada (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_20.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_20.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Crime - Cold Air (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_16.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_16.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Teenbird - Beauty of the Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11.jpg" />
 </div>
 
 

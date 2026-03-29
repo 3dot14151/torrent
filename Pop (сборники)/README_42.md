@@ -1,3 +1,61 @@
+###  Публикация: 1219081   (717659) от 12.04.2018
+
+VA - Экспресс русских хитов на Hit FM (4) (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717659.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лев Тимашов Feat. А.Арсентьев - 48 Минут
+002. Неангелы - Точки
+003. Стас Пухх - Ты Как Пуля В Груди
+004. Сергей Восьмой - Скажи Мне Брат(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0ADA8082777214906C38D0A3E5417902785EFF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218980   (717657) от 12.04.2018
+
+VA - Экспресс русских хитов на Hit FM (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717657.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Nana - Вибрации
+002. Алекс Малиновский - Пойдем Со Мной
+003. Андрей Леницкий - Подари Мне Любовь
+004. Вирус - Лети(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C020E4347FC4728DEC0C41C374EB680BE771CC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218978   (717027) от 12.04.2018
 
 VA - 100 Хитов Любимой Музыки (2018) [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -6,7 +64,7 @@ VA - 100 Хитов Любимой Музыки (2018) [MP3|320 Kbps] <Pop, Danc
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717027.jpg" />
+  <img src="Z:/picture/008/save_picture_717027.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Драйвовый весенний молодежный музон. Вер
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716804.jpg" />
+  <img src="Z:/picture/008/save_picture_716804.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Весенняя 100-ка популярных треков. Часть №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716796.jpg" />
+  <img src="Z:/picture/008/save_picture_716796.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Весенние заводные хиты выпуск № 7 (2017) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716793.jpg" />
+  <img src="Z:/picture/008/save_picture_716793.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Весенний молодежный хитовичок (2017) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716660.jpg" />
+  <img src="Z:/picture/008/save_picture_716660.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Горячая танцплощадка весенняя (2017) [MP3|256 Kb
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716655.jpg" />
+  <img src="Z:/picture/008/save_picture_716655.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Любимые хиты весны. Выпуск № 12 (2017) [MP3|256 Kbp
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716651.jpg" />
+  <img src="Z:/picture/008/save_picture_716651.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Русский отрыв Русского радио. Сборник № 4
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716650.jpg" />
+  <img src="Z:/picture/008/save_picture_716650.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Душевный сборник Русского радио выпуск �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716646.jpg" />
+  <img src="Z:/picture/008/save_picture_716646.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - German Top 50 Official Dance Charts 28.04.2017 (2017) [MP3|320 Kbps] <Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716515.jpg" />
+  <img src="Z:/picture/008/save_picture_716515.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Official UK Top 40 Singles Chart 28.04.2017 (2017) [MP3|320 Kbps] <Pop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716406.jpg" />
+  <img src="Z:/picture/008/save_picture_716406.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Экспресс русских хитов на Hit FM (5) (2018) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715739.jpg" />
+  <img src="Z:/picture/008/save_picture_715739.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Экспресс русских хитов на Hit FM (6) (2018) [MP3|256 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715729.jpg" />
+  <img src="Z:/picture/008/save_picture_715729.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Настроение Весны От Авторадио (2018) [MP3|256-320
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715363.jpg" />
+  <img src="Z:/picture/008/save_picture_715363.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Первый день весны (2019) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714823.jpg" />
+  <img src="Z:/picture/008/save_picture_714823.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Летний плейлист 2 (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714073.jpg" />
+  <img src="Z:/picture/008/save_picture_714073.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - German Top 100 Single Charts 13.04.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714024.jpg" />
+  <img src="Z:/picture/008/save_picture_714024.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Bon Voyage Songs Popular (2016) [MP3|221-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713705.jpg" />
+  <img src="Z:/picture/008/save_picture_713705.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - German Top 100 Single Charts 07.08.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713359.jpg" />
+  <img src="Z:/picture/008/save_picture_713359.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Танцевальное Лето Зарубежный (2016) [MP3|320 кб
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711947.jpg" />
+  <img src="Z:/picture/008/save_picture_711947.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Весеннее созвездие хитов (2018) [MP3|256 Kbps] <По�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711922.jpg" />
+  <img src="Z:/picture/008/save_picture_711922.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Весеннее созвездие хитов (2) (2018) [MP3|256 Kbps] <�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711914.jpg" />
+  <img src="Z:/picture/008/save_picture_711914.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - De Top 100 Aller Tijden 1987 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711908.jpg" />
+  <img src="Z:/picture/008/save_picture_711908.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - German Top 50 Official Dance Charts 01.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711325.jpg" />
+  <img src="Z:/picture/008/save_picture_711325.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - German Top 50 Official Dance Charts 01.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30DD2E61EA86FEF8B8677EE266258094AEA7F00E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532708   (710891) от 21.02.2022
-
-VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marnik & Alfons - Harry Potter Style
-02. Victor Ark - More Physical
-03. Charli Xcx - Good Ones
-04. Max Coveri - I Don't Wanna Break Your Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:55:05 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0859BDA41D52D3D1A2DE0EF9C030F4B1B1AE2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131153   (710661) от 04.05.2017
-
-Mark Ashley - Mp3 Play (2017) [MP3|320 Kbps] <EuroDisco, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Valerie
-02. Lover Why
-03. Stay
-04. It's All Over(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 04:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AE4CB1494819203E2F8E4AA49E75CA3F211CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

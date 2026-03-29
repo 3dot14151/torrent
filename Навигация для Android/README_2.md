@@ -1,3 +1,30 @@
+###  Публикация: 1814406   (6175) от 24.08.2025
+
+Антирадар HUD Speed v72.3 Mod by Slavatv5 [Ru]
+
+>>Программы, Игры и прочее
+>>Навигация для Android
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антирадар HUD Speed – это цифровой спидометр с функцией предупреждения о превышении ограничения скорости и об опасностях на дороге: камеры, Стрелки, Автодории, посты и прочее.
+HeadUp Display (HUD) – это возможность использовать ваш телефон или планшет как проекционный дисплей. Просто положите устройство под лобовое стекло и вы увидите проекцию скорости и предупреждений (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.08.2025Разработчик: AIRBITS & Reactive PhoneПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B571FDB312E95A00E007A48B265750BC64FCF46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814402   (6165) от 24.08.2025
 
 GPS АнтиРадар v50.3 Mod by Slavatv5 [Ru]
@@ -6,7 +33,7 @@ GPS АнтиРадар v50.3 Mod by Slavatv5 [Ru]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6165.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ GPS Compass Navigator v2.20.35 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6160.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ GPS Locker Prime v2.5.0 Mod by Balatan [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6154.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Save location GPS / Сохранить местоположение GPS v9.6 Mod
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4450.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ All-In-One Offline Maps v3.17 Mod by Alex.Strannik [Ru/Multi]
 >>Навигация для Android
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4189.jpg" />
 </div>
 
 

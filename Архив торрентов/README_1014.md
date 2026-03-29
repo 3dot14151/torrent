@@ -6,7 +6,7 @@ Volumouse 2.03 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815265.jpg" />
+  <img src="Z:/picture/008/save_picture_815265.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Ashampoo Snap 9.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815264.jpg" />
+  <img src="Z:/picture/008/save_picture_815264.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Midnight Protocol (2021) [Ru/Multi] (1.0.6) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815254.jpg" />
+  <img src="Z:/picture/008/save_picture_815254.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Media Player Classic - Black Edition (MPC-BE) 1.4.6.1416 Beta + Portable [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815248.jpg" />
+  <img src="Z:/picture/008/save_picture_815248.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Scrapnaut (2021) [Ru/Multi] (1.5.1c) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815238.jpg" />
+  <img src="Z:/picture/008/save_picture_815238.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Alcohol 120% 2.1.1 Build 1019 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815235.jpg" />
+  <img src="Z:/picture/008/save_picture_815235.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ iMazing 2.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815205.jpg" />
+  <img src="Z:/picture/008/save_picture_815205.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815204.jpg" />
+  <img src="Z:/picture/008/save_picture_815204.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815199.jpg" />
+  <img src="Z:/picture/008/save_picture_815199.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815198.jpg" />
+  <img src="Z:/picture/008/save_picture_815198.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815197.jpg" />
+  <img src="Z:/picture/008/save_picture_815197.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815192.jpg" />
+  <img src="Z:/picture/008/save_picture_815192.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815189.jpg" />
+  <img src="Z:/picture/008/save_picture_815189.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Mortal Skies 1.03 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815150.jpg" />
+  <img src="Z:/picture/008/save_picture_815150.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815145.jpg" />
+  <img src="Z:/picture/008/save_picture_815145.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Macrium Reflect v 7.2.4884 Free Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815140.jpg" />
+  <img src="Z:/picture/008/save_picture_815140.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815121.jpg" />
+  <img src="Z:/picture/008/save_picture_815121.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ PhoneClean Pro 5.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815111.jpg" />
+  <img src="Z:/picture/008/save_picture_815111.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815102.jpg" />
+  <img src="Z:/picture/008/save_picture_815102.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ ACDSee Ultimate 9.2 Build 648 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815099.jpg" />
+  <img src="Z:/picture/008/save_picture_815099.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ AIMP 4.02 Build 1711 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815089.jpg" />
+  <img src="Z:/picture/008/save_picture_815089.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ Zorin OS 6.3 "Core" edition [x32, x64] (DVD)
 >>Архив *Nix
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815085.jpg" />
+  <img src="Z:/picture/008/save_picture_815085.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815066.jpg" />
+  <img src="Z:/picture/008/save_picture_815066.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815056.jpg" />
+  <img src="Z:/picture/008/save_picture_815056.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ HyperSnap 8.13.00 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815055.jpg" />
+  <img src="Z:/picture/008/save_picture_815055.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815052.jpg" />
+  <img src="Z:/picture/008/save_picture_815052.jpg" />
 </div>
 
 

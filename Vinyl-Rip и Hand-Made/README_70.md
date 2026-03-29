@@ -1,3 +1,235 @@
+###  Публикация: 1707333   (113360) от 16.03.2024
+
+Владимир Мигуля и группа "Земляне" - Песни В. Мигули (1981) [FLAC 24/96|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Поезд. (Н.Олев)
+02 - В саду играет музыка. (М.Танич)
+03 - Танцуем "диско". (А.Дементьев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CC2ABCA3284B62DB9CE190F52CCAAA5EDCE547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707109   (113359) от 16.03.2024
+
+VA - С Новым Годом! (1983) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чокло (А. Вильельдо)
+Танго-квартет
+02. Завируха (Э. Ханок — Г. Буравкин)
+Ансамбль «Верасы»(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D71F315A617AB89E38525C3AD9C3DFA51656663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707331   (113357) от 16.03.2024
+
+Владимир Кузьмин - Ромео и Джульетта (1989) [FLAC 24/192|Lossless|tracks] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Ромео И Джульетта — 4.12
+02. Долгая ночь — 4.17
+03. Блеск в ее глазах — 3.49(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA63FB4BC55C24217C33839E48C65BE7D452F97F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707344   (113351) от 16.03.2024
+
+Геннадий Белов - Геннадий Белов (1977) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Травы, травы (В.Шаинский - И.Юшин)
+02. Шумят хлеба (А.Пахмутова - С.Гребенников)
+03. Черноглазая казачка (М.Блантер - И.Сельвинский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F1EEA7EAD75F272EFAFCAC28FA6141FACE8065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707339   (113345) от 16.03.2024
+
+Вячеслав Добрынин - Колдовское озеро (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Колдовское озеро (М. Рябинин) — 2.46
+02. Вспомни (С. Осиашвили) — 4.04
+03. Нежная — 3.52(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFAEEA98AEB7D6312EF2C92DBA81D3B981178052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707000   (113342) от 16.03.2024
+
+Владимир Асмолов - Славянский Базар (1991) [FLAC 24/192|Lossless|tracks] <Chanson, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Славянский Базар — 3 12
+2. Ляна — 4.50
+3. Неловкое признание — 3.40(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF550A794EADD651CA2985309D154B5BB59DF04D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707118   (113339) от 16.03.2024
+
+Владимир Кузьмин - Пока не пришел понедельник (1989) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Пока не пришел понедельник.
+02 - Странные дни.
+03 - Симона.(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCAF74FD1A40A4EE01256B3C0D299EE5FC3E61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707116   (113337) от 16.03.2024
+
+VA - Вас поздравляют звёзды! (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Рождество (А. Буйнов — И. Резник)
+Алла Пугачева, Руслан Горобец, Батыр Шукенов, Александр Барыкин, Александр Буйнов
+02. Ломбаба (музыка традиционная — С. Минаев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941B09A9774DCE39C45A8297CC80046CE118DF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707212   (113328) от 16.03.2024
 
 Elan - School Party (1986) [FLAC 16/192|Lossless|tracks] <Pop Rock>
@@ -6,7 +238,7 @@ Elan - School Party (1986) [FLAC 16/192|Lossless|tracks] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113328.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Alice Cooper - Dada (1983) [FLAC 24/96|Lossless|tracks] <Hard-Rock, Classic Rock
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113327.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113318.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ VA - Для вас, женщины! Женский портрет (1987) [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113316.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ M.O.D - Devolution (1994) [WavPack|32/192|image + .cue|Vinyl-Rip] <Thrash Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113256.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ M.O.D - Surfin' M.O.D (1988) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113255.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ VA - Мелодии в танцевальных ритмах (1972) [FLAC 24/192
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113209.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113194.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ VA - Музыкальный телетайп 2 (1987) [FLAC 24/192|Lossless|trac
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113193.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ VA - Эстрадная орбита (1974) [FLAC 24/192|Lossless|tracks] <Retro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113191.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ VA - От мелодии к мелодии (5 серия) - Концерт ит�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113190.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113185.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113184.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113183.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Ganymed - Dimension No.3 (1980) [FLAC 24/96|Lossless|tracks] <Pop, Electronic, D
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113180.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113177.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113154.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Elektric Music - Esperanto (1993) [FLAC 24/96|Lossless|tracks] <Electronic, Synt
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113147.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Lead Vocals – Andy McCluskey(   Читать дальше...   )Жанр: Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AABAFE58EC8827D6C617A7E76DF01D18450D4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707767   (113122) от 19.03.2024
-
-Darkthrone - Transilvanian Hunger (1994) Reissue, 2013, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113122.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Transilvanian Hunger
-A2 Over Fjell Og Gjennom Torner
-A3 Skald Av Satans Sol
-A4 Slottet I Det Fjerne(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7828B4BE5FD1DE746465EF40AC59AB90AB54DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708241   (113113) от 19.03.2024
-
-Darkthrone - Panzerfaust (1995) Reissue, 2010, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, NWOBHM>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113113.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 En Vind Av Sorg
-A2 Triumphant Gleam
-A3 The Hordes Of Nebulah
-B1 Hans Siste Vinter(   Читать дальше...   )Жанр: Black Metal, NWOBHMПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B0938C55A6F3719B733F2F9F8F41E6F6346CA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708358   (113096) от 20.03.2024
-
-VA - Яблони в цвету (1976) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Яблони в цвету (Е. Мартынов — И. Резник)
-Евгений Мартынов
-02. Арлекино (Э. Димитров — русский текст В. Баркаса)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE2C98E209D16FD4AEFB5BB5ED016D83B7C2CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708341   (113088) от 20.03.2024
-
-Stone Temple Pilots - Studio Albums (10 releases) (1992-2020) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Grunge, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stone Temple Pilots — хард-рок/гранж-группа, образованная в 1986 году в Сан-Диего, Калифорния.1992 - Core
-1993 - MTV Unplugged
-1994 - Purple
-1996 - Tiny Music...Songs from the Vatican Gift ShopЖанр: Grunge, Hard RockПродолжительность: 07:54:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873AC5D9FB44DF74F8E3CDFAE423AC243C4ADCA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708349   (113085) от 20.03.2024
-
-Дин Рид (Dean Reed) - Дин Рид (1970) [FLAC 24/192|Lossless|tracks] <Retro, World, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Наш летний романс (муз. и сл. Д. Рида)
-Our Summer Romance (D. Reed)
-02. Свободная мелодия (авторы неизвестны*)(   Читать дальше...   )Жанр: Retro, World, CountryПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3178E7D53CECD0476A70D3D1D5CD295709E3B208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708356   (113084) от 20.03.2024
-
-VA - Эстрадное обозрение (2 серия) (1961) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Мистуфль (Ф. Лемарк) — Франсис Лемарк (Франция)
-La Mistoufle (F. Lemarque) — Francis Lemarque
-02. Осёл и крестьянин (Д. Модуньо) — Франсис Лемарк (Франция)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:27:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB07C7B253ABCCEF05875B1FD89FDF0DAEF454A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708342   (113078) от 20.03.2024
-
-Rockets - Wonderland (2019) [FLAC 24/96|Lossless|tracks] <Synth-pop, Space-rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113078.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Wonderland
-Featuring – Axel Cooper*, Fabrice Pascal*
-A2 Kids From Mars
-A3 Heaven(   Читать дальше...   )Жанр: Synth-pop, Space-rockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FDAD33AEFCFBD821CB7FCDEFEA566B5D52613F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708348   (113074) от 20.03.2024
-
-Диалог - Ночной дождь (1987) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Гринландия (Музыка и слова К. Брейтбурга)
-02. Рыбак (К. Брейтбург - А. Тарковский)
-03. Флейта (К. Брейтбург - А. Тарковский)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3EBBB2FA591FC39156D935BE2D5F4A3EB189C01
 ```
 
 https://mybot314.ru/tekegram_catalog/

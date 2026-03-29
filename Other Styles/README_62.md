@@ -6,7 +6,7 @@ Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716127.jpg" />
+  <img src="Z:/picture/008/save_picture_716127.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Midori - Mellow - Relaxation Piano (2014) [FLAC|Lossless|tracks] <New Age, Instr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716126.jpg" />
+  <img src="Z:/picture/008/save_picture_716126.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motio
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716035.jpg" />
+  <img src="Z:/picture/008/save_picture_716035.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Deva Premal & Miten with Manose - Cosmic Connections Live (with Manose) (2016) L
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716020.jpg" />
+  <img src="Z:/picture/008/save_picture_716020.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA, Tyler Bates - Guardians of the Galaxy / Стражи Галактики (Ori
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715964.jpg" />
+  <img src="Z:/picture/008/save_picture_715964.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Sou
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715958.jpg" />
+  <img src="Z:/picture/008/save_picture_715958.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Michael Giacchino - Zootopia / Зверополис (Original Motion Picture Sou
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715830.jpg" />
+  <img src="Z:/picture/008/save_picture_715830.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ Dr. Jeffrey Thompson & Mick Rossi - Dancing Clouds (2007) [FLAC|Lossless|tracks]
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715730.jpg" />
+  <img src="Z:/picture/008/save_picture_715730.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715508.jpg" />
+  <img src="Z:/picture/008/save_picture_715508.jpg" />
 </div>
 
 
@@ -264,7 +264,7 @@ Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715500.jpg" />
+  <img src="Z:/picture/008/save_picture_715500.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Toby Fox - Undertale Soundtrack (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715453.jpg" />
+  <img src="Z:/picture/008/save_picture_715453.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ The Innocence Mission - Sun On The Square (2018) [FLAC|Lossless|tracks + .cue] <
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715076.jpg" />
+  <img src="Z:/picture/008/save_picture_715076.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Jim Brickman - Relax to the Hits of Jim Brickman (2019) [FLAC|Lossless|WEB-DL|tr
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714911.jpg" />
+  <img src="Z:/picture/008/save_picture_714911.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Meditation Music Zone & Ensemble de Musique Zen Relaxante - Bouddha 2019: Bar, l
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714910.jpg" />
+  <img src="Z:/picture/008/save_picture_714910.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, R
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714825.jpg" />
+  <img src="Z:/picture/008/save_picture_714825.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ Two Steps From Hell - Dragon (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714718.jpg" />
+  <img src="Z:/picture/008/save_picture_714718.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Shannon Rae - Shannon Rae (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714143.jpg" />
+  <img src="Z:/picture/008/save_picture_714143.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Alex Hart - On This Day (2014) [MP3|320 кб/с] <Country, Alt Country>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714139.jpg" />
+  <img src="Z:/picture/008/save_picture_714139.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [MP3|320 кб/с] <New Age, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714134.jpg" />
+  <img src="Z:/picture/008/save_picture_714134.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [FLAC|Lossless|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714083.jpg" />
+  <img src="Z:/picture/008/save_picture_714083.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motio
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714075.jpg" />
+  <img src="Z:/picture/008/save_picture_714075.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Terry Oldfield & Soraya - Namaste (2016) [MP3|320 кб/с] <New age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713994.jpg" />
+  <img src="Z:/picture/008/save_picture_713994.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Are Lonesome Tonight. 23 Romantic Instrumentals (UY) Unofficial Release [AP
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713962.jpg" />
+  <img src="Z:/picture/008/save_picture_713962.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Nature Sounds & Yoga Tribe - The Natural Orchestra (2016) [MP3|320 кб/с] <New
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713796.jpg" />
+  <img src="Z:/picture/008/save_picture_713796.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Danheim - Herja (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713353.jpg" />
+  <img src="Z:/picture/008/save_picture_713353.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Ikaiki Taky - Inka Llacta (2009) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713041.jpg" />
+  <img src="Z:/picture/008/save_picture_713041.jpg" />
 </div>
 
 

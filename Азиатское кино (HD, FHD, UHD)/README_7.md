@@ -1,3 +1,107 @@
+###  Публикация: 1466199   (1018614) от 29.04.2021
+
+Кооперация / Confidential Assignment / Gongjo (2017) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковник погранслужбы Северной Кореи Чха Ги-сон занимался поставкой контрабандного оружия для армии, но однажды решил воспользоваться положением и начал возить через границу ещё и наркотики. Был в этом уличен, разжалован, лишен всех регалий. Чтобы отомстить режиму чучхе (в том числе за погибшую в тюрьме жену) бывший полковник выкрал сделанные Пхеньяном клише для (   Читать дальше...   )Производство: Южная Корея / CJ EntertainmentЖанр: боевик, драма, комедияРежиссер: Ким Сон-хунАктеры: Хён Бин, Ю Хэ-джин, Ким Джу-хёк, Чан Ён-нам, Ли Дон-хви, Юна, Кон Джон-хван, Ли Хэ-ён, Чон Гук-хванПеревод: Дублированный (iTunes)Субтитры: Русские, АнглийскиеПродолжительность: 02:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D300FAF9DFD39B308033D08342A125DEA0D697D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466131   (1018562) от 29.04.2021
+
+Тихий лес / Wu sheng (The Silent Forest) (2020) BDRip [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чанг Ченг, переходит в школу для слабослышащих детей. Но вскоре радость от перехода в эту школу превращается в страх, когда он становится свидетелем того, что там происходит.Производство: Тайвань, Redbit PicturesЖанр: ДрамаРежиссер: Ко ЧжэньняньАктеры: Баффи Чэнь, Лю Цзычжуань, Лю Куаньтин, Ян Куэймэй, Тай Бо, Джесси Чан, Вера Чэнь, Хуан Шанхо, Ким Хён-бин, Пань ЧиньюйПеревод: Авторский (BadBajo)Субтитры: Английские (отключаемые), китайскиеПродолжительность: 01:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819ACB327C10E29235AB956B844D04822DCE7AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152350   (1018500) от 29.04.2021
+
+Кооперация / Confidential Assignment / Gongjo (2017) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковник погранслужбы Северной Кореи Чха Ги-сон занимался поставкой контрабандного оружия для армии, но однажды решил воспользоваться положением и начал возить через границу ещё и наркотики. Был в этом уличен, разжалован, лишен всех регалий. Чтобы отомстить режиму чучхе (в том числе за погибшую в тюрьме жену) бывший полковник выкрал сделанные Пхеньяном клише для (   Читать дальше...   )Производство: Южная Корея / CJ EntertainmentЖанр: боевик, драма, комедияРежиссер: Ким Сон-хунАктеры: Хён Бин, Ю Хэ-джин, Ким Джу-хёк, Чан Ён-нам, Ли Дон-хви, Юна, Кон Джон-хван, Ли Хэ-ён, Чон Гук-хванПеревод: Дублированный (iTunes)Субтитры: Русские, АнглийскиеПродолжительность: 02:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F0C7F0ACDFCD7973C9D8C0F937F9AA8F34F609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466565   (1018413) от 30.04.2021
+
+Кооперация / / Confidential Assignment / Gongjo (2017) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полковник погранслужбы Северной Кореи Чха Ги-сон занимался поставкой контрабандного оружия для армии, но однажды решил воспользоваться положением и начал возить через границу ещё и наркотики. Был в этом уличен, разжалован, лишен всех регалий. Чтобы отомстить режиму чучхе (в том числе за погибшую в тюрьме жену) бывший полковник выкрал сделанные Пхеньяном клише для (   Читать дальше...   )Производство: Южная Корея / CJ EntertainmentЖанр: боевик, драма, комедияРежиссер: Ким Сон-хунАктеры: Хён Бин, Ю Хэ-джин, Ким Джу-хёк, Чан Ён-нам, Ли Дон-хви, Юна, Кон Джон-хван, Ли Хэ-ён, Чон Гук-хванПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7BDC48986246C660398971FF48D06A21C816CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466638   (1018373) от 30.04.2021
 
 Кулак легенды / Герой цзин-ву / Jing wu ying xiong (1994) BDRip [H.264/1080p]
@@ -6,7 +110,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018373.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018029.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017706.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017701.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017515.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017353.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017348.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017323.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017248.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017238.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017061.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017011.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016870.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016250.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015564.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015554.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015452.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015414.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015384.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015374.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015269.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015203.jpg" />
 </div>
 
 
@@ -566,111 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D15BF46088FC9EF29429075D834B3C63379FE792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471676   (1014938) от 21.05.2021
-
-Герой / Hero / Ying xiong (2002) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Китай расколот на княжества, но уже есть лидер, который хочет покорить соседей и стать императором объединенной страны. К нему засланы убийцы, безукоризненно владеющие боевыми искусствами; у них фольклорные имена Сломанный Меч, Летящий Снег и Небо.
-Их противник обозначен как Безымянный, он хочет защитить императора. Его разговор с Всесильным образует раму, скрепляющую (   Читать дальше...   )Производство: Китай, Гонконг / Beijing New Picture Film Co., China Film Co-Production Corporation, Elite Group EnterprisesЖанр: Фэнтези, боевик, драмаРежиссер: Ли Фэн, Чжан Имоу, Ван БиньАктеры: Джет Ли, Тони Люн Чу Вай, Мэгги Чун, Чжан Цзыи, Донни Йен, Чэнь Даомин, Лю Чжунъюань, Чжэн Тяньюн, Цинь Янь, Чанг Сяо ЯнгПеревод: Многоголосый профессиональный, Двуголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 01:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1F0744182566C7445852074880A981F0813BA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471511   (1014810) от 22.05.2021
-
-Мастер Z: Наследие Ип Мана / Cheung Tin-Chi / Master Z: The Ip Man Legacy (2018) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014810.jpg" />
-</div>
-
-
-###  Подробнее
-
-После поражения от Ип Мана Чун Тинь-Чи решает исправиться и вести тихую мирную жизнь, но зло само нарывается на неприятности.Производство: Китай, Гонконг / Golden Harvest Company, Mandarin Motion PicturesЖанр: боевикРежиссер: Юэнь Ву-ПинАктеры: Макс Чжан, Дэйв Батиста, Мишель Йео, Тони Джа, Крисси Чау, Кевин Чэн, Син Юй, Филип КюнПеревод: Дублированный (iTunes)Язык озвучки: Русский, китайскийСубтитры: Русские (Full), английскиеПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E398F01EFCC284907DD9F9E7622A017C1806364D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471498   (1014799) от 22.05.2021
-
-Братство клинков 2 / Brotherhood of Blades II: The Infernal Battlefield (2017) BDRip [H.264/1080p-LQ] [DVO] [PR]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несмотря на то, что Шэнь Лянь служит императорским стражником, высокое положение не даёт ему никаких привилегий. Простые люди его боятся, «коллеги» ждут малейшей его оплошности. Однажды Шэнь Лянь случайно находит след, который ведёт к заговору против императора. Попытка разоблачения усугубляет и без того непростое положение героя: теперь он вынужден убить или просто (   Читать дальше...   )Производство: Китай, United Entertainment Partners Dirty Monkey Films Group Free Whale Pictures Hua Wen Movie GroupЖанр: боевик, историяРежиссер: Лу ЯнАктеры: Чан Чэнь, Ян Ми, Чжан И, Цзинь Шицзя, Лэй Цзяинь, Ли Юань, Nazeeh Tarsha, Синь ЧжилэйПеревод: Двуголосый любительскийСубтитры: Русские форсированные (надписи), Русские (Ворон, Редакция: Ленка "ФСГ Альянс"), Английские, КитайскиеПродолжительность: 01:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7D924CADFCD835CD1FC57BCD636AC7BE52C98A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471523   (1014798) от 22.05.2021
-
-Мастер Z: Наследие Ип Мана / Cheung Tin-Chi / Master Z: The Ip Man Legacy (2018) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014798.jpg" />
-</div>
-
-
-###  Подробнее
-
-После поражения от Ип Мана Чун Тинь-Чи решает исправиться и вести тихую мирную жизнь, но зло само нарывается на неприятности.Производство: Китай, Гонконг / Golden Harvest Company, Mandarin Motion PicturesЖанр: боевикРежиссер: Юэнь Ву-ПинАктеры: Макс Чжан, Дэйв Батиста, Мишель Йео, Тони Джа, Крисси Чау, Кевин Чэн, Син Юй, Филип КюнПеревод: Дублированный (iTunes)Язык озвучки: Русский, китайскийСубтитры: Русские, английскиеПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C7CD8C96BCBC84CE2467D1EB79E644F16AFDF3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

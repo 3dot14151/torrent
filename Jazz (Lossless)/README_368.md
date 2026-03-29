@@ -1,3 +1,119 @@
+###  Публикация: 1813082   (7192) от 17.08.2025
+
+Chillaxonic - Summer Selection (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ineffable (5:22)
+02.  Oasis (4:58)
+03.  Aurora (5:13)
+04.  Within Attraction (3:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877B3290DD8042D0CD2F5144F92776702B26D05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813080   (7181) от 17.08.2025
+
+Carlos Camilo - Allure (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, African Music>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Making out (3:58)
+02.  Head game strong (3:56)
+03.  Going downtown (4:13)
+04.  From the back (3:39)(   Читать дальше...   )Жанр: Smooth Jazz, African MusicПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01B9BB18BBF4E87A48F1208E1BD94F9BA8B7D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813109   (7024) от 18.08.2025
+
+Al Cohn - Broadway (1954) 1992, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help Keep Your City Clean Blues [6:47]
+02. Broadway (take 1) [9:06]
+03. Broadway (take 2) [7:52]
+04. Suddenly It's Spring (take 1) [6:28](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BC893F2F227713D2462A77A6C1CCFE8082FD9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813488   (6894) от 19.08.2025
+
+Gil Evans - The Complete Pacific Jazz Sessions (1958, 1959) 2006, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. St. Louis Blues [5:26]
+02. King Porter Stomp [3:20]
+03. Willow Tree [4:40]
+04. Struttin' with Some Barbecue [4:32](   Читать дальше...   )Жанр: Cool, Modern Big BandПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7BB3F8DF758C6D2FAB2881F9E3A780C0E7EE2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813820   (6416) от 22.08.2025
 
 Scott LaFaro - Deep In A Dream: Live In 1958 (2012) Pacific Delights [FLAC|Lossless|image + .cue] <Cool, Hard Bop>
@@ -6,7 +122,7 @@ Scott LaFaro - Deep In A Dream: Live In 1958 (2012) Pacific Delights [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6416.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6416.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Chill Magic Summer (Beach-Wind Down Jazzy & Relaxed House vibes) (2025) [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5984.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Soul Summer On The Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smoo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5949.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Dj Moy - Funk Beach (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5932.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Sadao Watanabe - Peace (2024) Victor [FLAC|Lossless|image + .cue] <Smooth Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5332.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Leroy Vinnegar Quintet - Leroy Walks Again!! (1962, 1963) 1990, Original Jazz Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4928.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Hans Koller - Minor Meetings (1958) 2014, Sonorama Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4647.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Zoot Sims - On The Korner (1983) 1994, Pablo [FLAC|Lossless|tracks + .cue] <Main
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4381.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Zoot Sims - I Wish I Were Twins (1981) 1998, Pablo [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4274.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Greatest Hits from The Roaring Twenties: The Sound of the Jazz Age (2025) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3729.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3729.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Julie London - Five Classic Albums (1955 - 1960) 2CD, 2023, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3432.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Anton Ryazanov Project - Collection 4 Albums (2024-2025) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3109.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Zoot Sims - Live In Philly (1973) 1998, Jazz Heritage [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2903.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Rick Keller - Heroes (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2741.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Warren Vache & Bill Charlap - 2gether (2000) 2011, Nagel Heyer Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2607.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Bill Evans - Quiet Now: Never Let Me Go (1999) Verve [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2137.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Chet Baker - The Italian Sessions (1962) 1996, RCA-Victor [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1431.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Hank Mobley - Three Classic Albums Plus (1956) 2CD, 2016, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1268.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Lennie Tristano And Warne Marsh - Intuition (1956) 1996, Capitol Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_957.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Wes Montgomery - Movin': The Compete Verve Recordings (1964-1968) 5CD, 2011, Uni
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Stan Getz & Jimmy Raney - Complete Studio Sessions (1948 - 1953) 2CD, 2003, Defi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_22.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_22.jpg" />
 </div>
 
 

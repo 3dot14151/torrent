@@ -1,3 +1,55 @@
+###  Публикация: 1065389   (893300) от 04.09.2021
+
+Magicmaker (2014) [En] (1.0.17) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893300.jpg" />
+</div>
+
+
+###  Подробнее
+
+MagicMaker - волшебный платформер с приключениями, где вы будете путешествовать по случайно генерируемым подземельям! В роли охранника Школы Магии Дорвола, вы будете выполнять различные задания, для обеспечения безопасности своих подопечных. По мере прохождения, вы будете находить базовые заклинания, из которых можно создавать огромное количество уникальных заклинаний, (   Читать дальше...   )Тип издания: LicenseРазработчик: Tasty Stewdios LLCЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AAB88FD2F21999B85B4457A6EA4B3C7A2CD2D3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493925   (891985) от 05.09.2021
+
+Timespinner (2018) [Ru/Multi] (1.033) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда родителей Лунеис убили у неё на глазах, а Маховик времени был разрушен, она неожиданно переместилась в неизвестный мир без надежды на возвращение. Лунеис поклялась отомстить злобной Империи Лакием, используя свою способность управлять временем, но течение времени иногда нельзя делить на белое и чёрное. Исследуйте обширный мир с невероятной детализацией и красочной (   Читать дальше...   )Тип издания: LicenseРазработчик: Lunar Ray GamesЖанр: Metroidvania, Platformer, RPG, Action, Time ControlЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AFC37A80684532CE60568FEE0632C70BB6B3D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493943   (891978) от 05.09.2021
 
 Olija (2021) [Ru/Multi] (2-1-2021) License GOG
@@ -6,7 +58,7 @@ Olija (2021) [Ru/Multi] (2-1-2021) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891978.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Dance Magic (2016) [En] (1.0) License POSTMORTEM
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890747.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Wuppo (2016) [En] (1.2.8/dlc) License GOG [Definitive Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_889711.jpg" />
+  <img src="Z:/picture/008/save_picture_889711.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Golf Club Wasteland (2021) [Ru/Multi] (7298022) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885546.jpg" />
+  <img src="Z:/picture/005/save_picture_885546.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ BloodRayne Betrayal: Fresh Bites (2021) [Multi] (0.95) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885321.jpg" />
+  <img src="Z:/picture/005/save_picture_885321.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Cobalt (2016) [Multi] (133b Gold) Repack R.G. Механики
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883911.jpg" />
+  <img src="Z:/picture/005/save_picture_883911.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879146.jpg" />
+  <img src="Z:/picture/005/save_picture_879146.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Flynn: Son of Crimson (2021) [Ru/Multi] (1.01b) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874220.jpg" />
+  <img src="Z:/picture/005/save_picture_874220.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Knights of Pen & Paper (2014) [Multi] (1.0/dlc) License GOG [+1 Deluxier Edition
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872636.jpg" />
+  <img src="Z:/picture/008/save_picture_872636.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Hidden Folks / Скрытые Люди (2017) [Ru/Multi] (1.02) Repack John2s
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872476.jpg" />
+  <img src="Z:/picture/008/save_picture_872476.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Zombotron (2019) [Ru/Multi] (1.2.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867746.jpg" />
+  <img src="Z:/picture/008/save_picture_867746.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Move or Die (2016) [Ru/Multi] (7.0.3 Hotfix) Repack VseTop
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862029.jpg" />
+  <img src="Z:/picture/008/save_picture_862029.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Hollow Knight (2017) [En] (1.0.0.6) License RELOADED
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861900.jpg" />
+  <img src="Z:/picture/008/save_picture_861900.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Actraiser Renaissance (2021) [Multi] (7413691) License CODEX
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855710.jpg" />
+  <img src="Z:/picture/008/save_picture_855710.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Hoa (2021) [Ru/Multi] (1.05) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853986.jpg" />
+  <img src="Z:/picture/008/save_picture_853986.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ Axiom Verge (2015) [Ru/Multi] (1.31) Repack ARMENIAC
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850052.jpg" />
+  <img src="Z:/picture/008/save_picture_850052.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Aeon Drive (2021) [Ru/Multi] (1.2.03.1825) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849264.jpg" />
+  <img src="Z:/picture/008/save_picture_849264.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Amygdala (2015) [En] (1.0/15.07.16) Repack Defuser222
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848488.jpg" />
+  <img src="Z:/picture/008/save_picture_848488.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Deadbolt (2016) [En] (1.0.2) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846196.jpg" />
+  <img src="Z:/picture/008/save_picture_846196.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Samudra (2021) [En] (7439019) License PLAZA
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845715.jpg" />
+  <img src="Z:/picture/008/save_picture_845715.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ ABRACA - Imagic Games (2016) [Multi] (1.0) License PROPHET
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842701.jpg" />
+  <img src="Z:/picture/008/save_picture_842701.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ MineCraft mcstav (2011) [Ru] (1.6.4) Unofficial mcstavteam [ServerClient]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841454.jpg" />
+  <img src="Z:/picture/008/save_picture_841454.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ Conga Master (2016) [Multi] (1.0) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841108.jpg" />
+  <img src="Z:/picture/008/save_picture_841108.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ Toby: The Secret Mine (2015) [En] (1.0) License TiNYiSO
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837621.jpg" />
+  <img src="Z:/picture/008/save_picture_837621.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ Toby: The Secret Mine (2015) [En] (1.0) License TiNYiSO
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:184A21C37D2322224FC28804651F66FFCA1B218C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005918   (830473) от 10.04.2016
-
-Recursion Deluxe (2016) [En] (1.0.0) Repack ALiAS
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Recursion Deluxe - красивый пиксельный паззл-платформер о забавном человечке, потерпевшем крушение на незнакомой планете. Теперь ему необходимо преодолеть более 30 уровней, чтобы вернуться домой.Тип издания: RepackРазработчик: 2D Heroes,	Ursa GamesЖанр: ПлатформерыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CDCBF7CA16F0896F6A53881F5F1FBDC2555631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381076   (829172) от 05.05.2020
-
-Mable & The Wood (2019) [Ru/Multi] (1.1.0) License GOG
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас воскресили адепты загадочного культа. Они рассказывают о связанном с вами древнем пророчестве. Оно гласит, что вы будете убивать Великих чудовищ, принимать их облик и использовать силы этих существ ради спасения гибнущего мира. Но что, если культисты ошиблись? В конце концов, этому пророчеству много лет, а со временем любые слова теряют смысл... Что делать, когда (   Читать дальше...   )Тип издания: LicenseРазработчик: Triplevision GamesЖанр: Экшн, Приключение, MetroidvaniaЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F27389FE177EE613E14A7E67D95FDF7D79F8B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

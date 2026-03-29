@@ -1,3 +1,59 @@
+###  Публикация: 907099   (639730) от 11.06.2015
+
+Гопал Дюбей | Основные принципы устройства электроприводов (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639730.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые опубликованный в 1994 году (и с тех пор переизданный девять раз), этот учебник используется во всем мире как студентами, так и практикующими инженерами. Настоящее издание предлагает более детальное описание полупроводниковых приводов, дополнено многочисленными примерами решенных и нерешенных задач.
+
+Книга предназначена для студентов и аспирантов, изучающих (   Читать дальше...   )Жанр: Учебники, ЭлектротехникаПеревод: С. В. Аникин, Е. С. СерыйФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174D7E20EB1D362B54B8FB92BF925E1C0944594B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907209   (639648) от 11.06.2015
+
+Павел Мясоедов, И. Простяков | Как самому сделать лыжи и лыжное снаряжение (1941) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошие лыжи можно сделать самому с помощью обычного столярного инструмента и весьма несложных приспособлений. Самое основное — это найти соответствующий материал, из которого можно изготовить лыжи, и уметь правильно обработать его.
+
+Для изготовления лыж требуются следующие инструменты: топор, лучковая пила или ножовка, рубанок с плоской железкой, рубанок с полукруглой (   Читать дальше...   )Жанр: Руководства, Сделай самФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B0D37F9962A946BB80EB6C593E1E392C55E9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907202   (639552) от 11.06.2015
 
 Н. А. Кондрашов и др. | Сборник задач и упражнений по введению в языкознание (1991) [DJVU]
@@ -6,7 +62,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639552.jpg" />
+  <img src="Z:/picture/008/save_picture_639552.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639549.jpg" />
+  <img src="Z:/picture/008/save_picture_639549.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639379.jpg" />
+  <img src="Z:/picture/008/save_picture_639379.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639224.jpg" />
+  <img src="Z:/picture/008/save_picture_639224.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639173.jpg" />
+  <img src="Z:/picture/008/save_picture_639173.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639016.jpg" />
+  <img src="Z:/picture/008/save_picture_639016.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638900.jpg" />
+  <img src="Z:/picture/008/save_picture_638900.jpg" />
 </div>
 
 
@@ -191,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638770.jpg" />
+  <img src="Z:/picture/008/save_picture_638770.jpg" />
 </div>
 
 
@@ -219,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638764.jpg" />
+  <img src="Z:/picture/008/save_picture_638764.jpg" />
 </div>
 
 
@@ -246,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638638.jpg" />
+  <img src="Z:/picture/008/save_picture_638638.jpg" />
 </div>
 
 
@@ -273,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638040.jpg" />
+  <img src="Z:/picture/008/save_picture_638040.jpg" />
 </div>
 
 
@@ -300,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637971.jpg" />
+  <img src="Z:/picture/008/save_picture_637971.jpg" />
 </div>
 
 
@@ -326,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637939.jpg" />
+  <img src="Z:/picture/008/save_picture_637939.jpg" />
 </div>
 
 
@@ -352,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637886.jpg" />
+  <img src="Z:/picture/008/save_picture_637886.jpg" />
 </div>
 
 
@@ -380,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637762.jpg" />
+  <img src="Z:/picture/008/save_picture_637762.jpg" />
 </div>
 
 
@@ -406,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637753.jpg" />
+  <img src="Z:/picture/008/save_picture_637753.jpg" />
 </div>
 
 
@@ -432,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637743.jpg" />
+  <img src="Z:/picture/008/save_picture_637743.jpg" />
 </div>
 
 
@@ -460,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637634.jpg" />
+  <img src="Z:/picture/008/save_picture_637634.jpg" />
 </div>
 
 
@@ -486,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637627.jpg" />
+  <img src="Z:/picture/008/save_picture_637627.jpg" />
 </div>
 
 
@@ -512,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637437.jpg" />
+  <img src="Z:/picture/008/save_picture_637437.jpg" />
 </div>
 
 
@@ -538,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637430.jpg" />
+  <img src="Z:/picture/008/save_picture_637430.jpg" />
 </div>
 
 
@@ -565,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637324.jpg" />
+  <img src="Z:/picture/008/save_picture_637324.jpg" />
 </div>
 
 
@@ -592,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635962.jpg" />
+  <img src="Z:/picture/008/save_picture_635962.jpg" />
 </div>
 
 
@@ -619,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635727.jpg" />
+  <img src="Z:/picture/008/save_picture_635727.jpg" />
 </div>
 
 
@@ -630,58 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB661CC0B9962F5E120283F3C6DA7A3CB5CCC542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228256   (635682) от 01.06.2018
-
-Ю.А. Бычков и др. | Основы теоретической электротехники (2008) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал излагается со строгих математических позиций, с обязательной физической трактовкой. Курс начинается с изучения функциональных свойств цепей как преобразователей сигналов сначала во временной, а затем в частотной областях. Изложены классические и современные приложения теории цепей — дискретные цепи, теория фильтров, активные цепи, синтез двухполюсников, (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FD90073E3BDCFE5CD7D7526AD7B4F648029A70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228285   (635554) от 01.06.2018
-
-Е.М. Гершензон и др. | Курс общей физики [6 книг] (2000-2004) [DJVU]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс общей физики Е.М. Гершензона в 4-х томах + задачник + лабораторный практикумЖанр: ФизикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:614D10564BF4D79ED95F5D16FAA68F7D43F8011C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,86 @@
+###  Публикация: 1413131   (411567) от 02.10.2020
+
+Александр Никонов | Физика на пальцах. Для детей и родителей (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Понимаете ли вы теорию Стивена Хокинга и теорию относительности? Знаете ли и сможете ли доступно объяснить основы квантовой физики? Расскажете об открытии Марии Склодовской-Кюри? Хотите понять самую модную науку XXI века? Неважно, учитесь ли вы в школе или уже давно закончили ее. Если вы любознательный человек, то эта книга ДЛЯ ВАС! САМАЯ ГЛАВНАЯ НАУКА - ЭТО ФИЗИКА! (   Читать дальше...   )Жанр: Научно-популярная литератураЯзык озвучки: РусскийПродолжительность: 07:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC40D5FE7D9E7DAD95868CC39CECEEE9AB02106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948575   (410805) от 20.10.2015
+
+VA - Выпускной Вечер прощанья со школой (2012) [MP3|256 кб/с]<Детские песни и караоке>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_410805.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Белая сирень ...Плачут девчонки, мальчишки вздыхают... (минус) (4:48)
+2. Белая сирень ...Плачут девчонки, мальчишки вздыхают... (плюс) (4:49)
+3. В старом классе ...Последняя строка дописана в тетради... (минус) (3:17)
+4. В старом классе ...Последняя строка дописана в тетради... (плюс) Марина Девятова (3:19)(   Читать дальше...   )Жанр: Детские песни и караокеПродолжительность: 08:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3ABF9B87681732ECAA936828808FFD97D6EAF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413338   (409853) от 03.10.2020
+
+Лариса Суркова | Главная книга о воспитании. Как здорово быть с детьми (2020) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_409853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все советы Ларисы Сурковой для детей всех возрастов!
+Дети – наше счастье! Сколько радости и счастливых моментов дарят нам эти шалопаи и шалуньи! Но воспитание – сложный и сбалансированный процесс, где каждому родителю надо умело находить подход к ребенку в любом возрасте, будь это период кризиса 3-х лет или первые подростковые сложности.
+В этой аудиокниге собраны (   Читать дальше...   )Жанр: Детская психология, Воспитание детейПродолжительность: 11:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8958951708A040BC1DF2B8167097F103009EF7D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413573   (408355) от 04.10.2020
 
 Юлия Гиппенрейтер | Счастливый ребенок. Новые вопросы и новые ответы (2017) [MP3]
@@ -6,7 +89,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408355.jpg" />
+  <img src="Z:/picture/008/save_picture_408355.jpg" />
 </div>
 
 
@@ -35,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408239.jpg" />
+  <img src="Z:/picture/008/save_picture_408239.jpg" />
 </div>
 
 
@@ -61,7 +144,7 @@ Sweet Little Band - Музыка для детей Led Zeppelin (2014) [MP3|320 
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407881.jpg" />
+  <img src="Z:/picture/008/save_picture_407881.jpg" />
 </div>
 
 
@@ -90,7 +173,7 @@ VA - Волшебные голоса природы: Малыш у реки (200
 >>Классика для мам и малышей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407850.jpg" />
+  <img src="Z:/picture/008/save_picture_407850.jpg" />
 </div>
 
 
@@ -119,7 +202,7 @@ VA - Лучшие песни из передачи "Радионяня" (2006) [
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407736.jpg" />
+  <img src="Z:/picture/008/save_picture_407736.jpg" />
 </div>
 
 
@@ -148,7 +231,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406899.jpg" />
+  <img src="Z:/picture/008/save_picture_406899.jpg" />
 </div>
 
 
@@ -175,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406765.jpg" />
+  <img src="Z:/picture/008/save_picture_406765.jpg" />
 </div>
 
 
@@ -201,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406620.jpg" />
+  <img src="Z:/picture/008/save_picture_406620.jpg" />
 </div>
 
 
@@ -228,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406545.jpg" />
+  <img src="Z:/picture/008/save_picture_406545.jpg" />
 </div>
 
 
@@ -255,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405254.jpg" />
+  <img src="Z:/picture/008/save_picture_405254.jpg" />
 </div>
 
 
@@ -289,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404879.jpg" />
+  <img src="Z:/picture/008/save_picture_404879.jpg" />
 </div>
 
 
@@ -315,7 +398,7 @@ VA - Nanourismata (2010) [MP3|320 кб/с]<Колыбельные для дет�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404809.jpg" />
+  <img src="Z:/picture/008/save_picture_404809.jpg" />
 </div>
 
 
@@ -344,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403778.jpg" />
+  <img src="Z:/picture/008/save_picture_403778.jpg" />
 </div>
 
 
@@ -370,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402810.jpg" />
+  <img src="Z:/picture/008/save_picture_402810.jpg" />
 </div>
 
 
@@ -396,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402760.jpg" />
+  <img src="Z:/picture/008/save_picture_402760.jpg" />
 </div>
 
 
@@ -424,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402321.jpg" />
+  <img src="Z:/picture/008/save_picture_402321.jpg" />
 </div>
 
 
@@ -452,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401946.jpg" />
+  <img src="Z:/picture/008/save_picture_401946.jpg" />
 </div>
 
 
@@ -478,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397306.jpg" />
+  <img src="Z:/picture/008/save_picture_397306.jpg" />
 </div>
 
 
@@ -507,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396075.jpg" />
+  <img src="Z:/picture/005/save_picture_396075.jpg" />
 </div>
 
 
@@ -534,7 +617,7 @@ VA - Спи, ангелочек, усни (2009) [MP3|320 kbps]<Колыбель
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396008.jpg" />
+  <img src="Z:/picture/008/save_picture_396008.jpg" />
 </div>
 
 
@@ -563,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393971.jpg" />
+  <img src="Z:/picture/008/save_picture_393971.jpg" />
 </div>
 
 
@@ -589,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392690.jpg" />
+  <img src="Z:/picture/008/save_picture_392690.jpg" />
 </div>
 
 
@@ -617,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392550.jpg" />
+  <img src="Z:/picture/008/save_picture_392550.jpg" />
 </div>
 
 
@@ -628,91 +711,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4268714F5602A322E3EDE975DB9F35CF1076F78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391266   (387763) от 04.09.2022
-
-VA - Детские песни. Школьные годы чудесные (2015) [MP3|128 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хор ЦДДЖ - Школьные годы
-02. Хор п/у В.Соколова - С добрым утром, любимая школа
-03. Хор п/у В.Локтева - Наш край
-04. Хор п/у А.Чмырева - Школьный вальс(   Читать дальше...   )Жанр: Детские песниПродолжительность: 02:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648DE84F7BD6ECDF84E67E65E076D896FBEA2F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571563   (387354) от 07.11.2012
-
-Елена Качур, Наталья Манушкина и др. | Раннее развитие: Алфавит [2012] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387354.jpg" />
-</div>
-
-
-###  Подробнее
-
-Малыш отправится на волшебную прогулку по лесу, в котором прячутся все буквы. Веселые стихи помогут маленькому непоседе незаметно выучить алфавит и запомнить названия букв. В конце путешествия ребенок, играя, закрепит полученные знания и расставит по местам все 33 буквы!
-
-Развивающая аудиопрограмма «Алфавит» предназначена для малышей от 2-х до 5-ти лет.Жанр: детская развивающая аудиокнигаФормат: MP3Продолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D638EAE7831E14DC16BE29ACF088CA8476543A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571567   (387351) от 07.11.2012
-
-Елена Качур, Наталья Манушкина и др. | Раннее развитие: Счет от 1 до 10 [2012] [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавные стихотворения и яркие образы легко запомнятся малышу, а вместе с ними - и все цифры. Во время спектакля Вы можете играть с ребенком, вместе рисовать или показывать числа. Все это поможет маленькому непоседе хорошо подготовиться к школе и научиться уверенно считать до десяти!
-
-Развивающая аудиопрограмма «Счет от 1 до 10» предназначена для малышей от 2-х до 5-ти лет.Жанр: детская развивающая аудиокнигаФормат: MP3Продолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D6AE82DDCC8265B1B2FF8190BAE766DDB348E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

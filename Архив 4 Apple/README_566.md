@@ -1,3 +1,108 @@
+###  Публикация: 1642722   (210283) от 28.06.2023
+
+Wolfram Mathematica 13.3.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210283.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении трёх десятилетий система Mathematica определяет передовой край технических вычислений и обеспечивает основную среду для проведения расчётов для миллионов изобретателей, педагогов, студентов и других пользователей по всему миру.Тип издания: macOS SoftwareРелиз состоялся: 11.04.2023Разработчик: © 2022 WolframПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A95A12C867B58476460E4254F5DD86F414D8580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642820   (210184) от 29.06.2023
+
+iStat Menus 6 v.6.71 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210184.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.06.2023Разработчик: © 2022 Bjango Pty LtdПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43AF678CE77A3942B45D5A9148F7B135B1F3C8FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572927   (209487) от 29.08.2022
+
+Adobe Substance 3D Painter 8.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209487.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Substance 3D Painter есть инструменты, необходимые для текстурирования ваших 3D-ресурсов, от расширенных кистей до интеллектуальных материалов, которые автоматически адаптируются к вашей модели. Вдохните жизнь в свое искусство.Тип издания: macOS SoftwareРелиз состоялся: 25.08.2022Разработчик: © 2014-2021 AdobeПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADCACD0599100A63E6AE05F26E640B887E15F5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573316   (209300) от 31.08.2022
+
+Luminar Neo 1.3.0 U2B [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Тип издания: macOS SoftwareРелиз состоялся: 28.08.2022Разработчик: © 2010 - 2022 Skylum ®Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D787224296F2065BBD2C0D04627ADE8E2336D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573694   (209219) от 01.09.2022
 
 DjVu Reader Pro 2.6.8 [Ru/En]
@@ -6,7 +111,7 @@ DjVu Reader Pro 2.6.8 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209219.jpg" />
+  <img src="Z:/picture/005/save_picture_209219.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ Commander One PRO - FTP client 3.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208858.jpg" />
+  <img src="Z:/picture/005/save_picture_208858.jpg" />
 </div>
 
 
@@ -61,7 +166,7 @@ Magnet 2.11.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208850.jpg" />
+  <img src="Z:/picture/005/save_picture_208850.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Disk Drill Enterprise 5.1.1112 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208581.jpg" />
+  <img src="Z:/picture/005/save_picture_208581.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ Planner 5D Premium 4.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208569.jpg" />
+  <img src="Z:/picture/005/save_picture_208569.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ MAMP PRO 6 v.6.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208481.jpg" />
+  <img src="Z:/picture/005/save_picture_208481.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ ZBrush 2023.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208411.jpg" />
 </div>
 
 
@@ -192,7 +297,7 @@ Final Cut Pro X 10.6.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208385.jpg" />
 </div>
 
 
@@ -219,7 +324,7 @@ WiFi Explorer 3 Pro 3.5.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208366.jpg" />
 </div>
 
 
@@ -246,7 +351,7 @@ ProPresenter 7.13.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208346.jpg" />
 </div>
 
 
@@ -274,7 +379,7 @@ ZBrush 2023.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208298.jpg" />
+  <img src="Z:/picture/005/save_picture_208298.jpg" />
 </div>
 
 
@@ -300,7 +405,7 @@ Elmedia Video Player Pro 8.16 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208148.jpg" />
 </div>
 
 
@@ -327,7 +432,7 @@ macOS 12 Monterey 12.6.8 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207885.jpg" />
 </div>
 
 
@@ -353,7 +458,7 @@ macOS 12 Monterey 12.6 (Installer) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207862.jpg" />
+  <img src="Z:/picture/005/save_picture_207862.jpg" />
 </div>
 
 
@@ -379,7 +484,7 @@ Navicat Premium 16.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207813.jpg" />
 </div>
 
 
@@ -405,7 +510,7 @@ Davinci Resolve Studio 18.0.3 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207745.jpg" />
+  <img src="Z:/picture/005/save_picture_207745.jpg" />
 </div>
 
 
@@ -433,7 +538,7 @@ Wondershare Repairit 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207714.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207714.jpg" />
 </div>
 
 
@@ -460,7 +565,7 @@ DoYourData Start Menu Pro 4.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207696.jpg" />
 </div>
 
 
@@ -486,7 +591,7 @@ JetBrains Clion 2023.1.5 for Mac Intel/ARM [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207657.jpg" />
 </div>
 
 
@@ -512,7 +617,7 @@ Omni Recover 3.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207516.jpg" />
 </div>
 
 
@@ -539,7 +644,7 @@ AudFree Spotify Music Converter for Mac 2.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207500.jpg" />
 </div>
 
 
@@ -565,7 +670,7 @@ Aiseesoft Mac Screen Recorder 2.2.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207428.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207428.jpg" />
 </div>
 
 
@@ -576,113 +681,6 @@ Aiseesoft Mac Screen Recorder 2.2.6 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68FFE2DD1AF74F906A2B53555218A5CB1D36BC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650394   (207424) от 01.08.2023
-
-Serial Box & SerialSeeker 2023 - 08 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207424.jpg" />
-</div>
-
-
-###  Подробнее
-
-База серийных номеров проекта iSerial.
-В ней содержится информация по активации (серийные номера, информация о других методах активации) как для программ платформы PowerPC, так и Intel.
-База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2023Разработчик: ©2002-2021 The Three MonkeysПоддерживаемая ОС: OS X 10.5 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529C819AC2D71B87EDFC5D6B48B948BB11619D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650358   (207343) от 02.08.2023
-
-Native Instruments Kontakt 7 v.7.5.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2023Разработчик: © 2022 Native Instruments GmbHПоддерживаемая ОС: macOS 10.14.0 +Язык интерфейса: Английский, Немецкий, Французский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FE56A21F7B78EDC0897B3CD0F83DD67938AEE2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649917   (207312) от 02.08.2023
-
-Ableton Live Suite 11 v.11.3.4 U2B [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207312.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live - это быстрое и гибкое программное обеспечение для создания и исполнения музыки. Он включает в себя эффекты, инструменты, звуки и всевозможные творческие функции - все, что вам нужно для создания любой музыки. Создавайте в традиционном линейном расположении или импровизируйте без ограничений временной шкалы в режиме просмотра сеансов Live. Свободно перемещайтесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2023Разработчик: © 2022 AbletonПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E56FAE08AEEBF24579D8B210206F5846EAA64F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650834   (207264) от 03.08.2023
-
-TechTool Pro 18 v.18.0.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207264.jpg" />
-</div>
-
-
-###  Подробнее
-
-TechTool Pro — диагностику заказывали?
-Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.07.2023Разработчик: © 2023 Micromat Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830F28BD2899F04199BF5B7468E7790F856B9183
 ```
 
 https://mybot314.ru/tekegram_catalog/

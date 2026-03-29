@@ -1,3 +1,32 @@
+###  Публикация: 1721275   (110118) от 06.05.2024
+
+VA - Futurenow (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Chillwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exemia & Thermal Noise - Insert Memory Disk (5:19)
+02. Lexinton Tales - Dead End (3:48)
+03. GlitchBay - Simulation (3:22)
+04. Blind Cobra - Viper Vice (2:57)(   Читать дальше...   )Жанр: Synthwave, Retrowave, ChillwaveПродолжительность: 01:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F97856096F913AA6299A6F52D564C8C9D65A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721317   (110117) от 06.05.2024
 
 Spacebirds - Singles Team (Singles Collection 2008-2023) (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -6,7 +35,7 @@ Spacebirds - Singles Team (Singles Collection 2008-2023) (2024) [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110117.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Futurenow 2.0 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, C
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110095.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Dug Masters - Fantastic Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacewave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110090.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Travelers (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110085.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - Futurenow 3.0 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, C
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110084.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - Horizons (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110082.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Dug Masters - Teleport (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacewave, Synthwav
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109991.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Extra Terra - Accelerate or Die (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109613.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - We Love Synthpop (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109549.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Retouch - Technocracy (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Dreamwave
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109483.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Laserdance - Laserdance Orchestra Vol. 2 (1994) Reissue, 2024, ZYX Italo [FLAC|L
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108535.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Erasure - From Moscow to Mars (2019) Remixes, 2019, BMG Company [FLAC|Lossless|W
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108529.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Laserdance - Laserdance Orchestra Vol. 1 (1994) Reissue, 2024, ZYX Italo [FLAC|L
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108501.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ autoKratz - Animal (2009) 15th Anniversary Edition, 2024, Bad Life[FLAC|Lossless
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107825.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107663.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Depeche Mode - A Broken Frame (1982) 1st German Press [APE|Lossless|image + .cue
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107565.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Thomas Dolby - The Flat Earth (1984) 40th Anniversary Edition, 2024, Echo [FLAC|
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107484.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Billie Piper - Day & Night (2020) Mix, 2024, Virgin Records [FLAC|Lossless|WEB-D
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107239.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Ray Orion - Sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106413.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Kazaky - The Hills Chronicles (2014) [WavPack|Lossless|image + .cue] <Synth-pop,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105906.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Bright Light Bright Light - Life Is Easy (2014) 10th Anniversary Deluxe Edition,
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105901.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Limahl - Never Ending Story (2006) [WavPack|Lossless|image + .cue] <Synth Pop>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105742.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Erasure - Wild! (1989) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105630.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Conscience - 3 Albums (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, electro-po
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105560.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Mondmann - Celestial Shifts (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synt
 >>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105488.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Mondmann - Celestial Shifts (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B508A7F8BC3CCB9948CDE8C0BEF4298D79C8F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742715   (105482) от 14.08.2024
-
-Metroland - Forum (2024) [FLAC|Lossless|WEB-DL|tracks] <Minimal Electro, Synthpop, Technopop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cooperation In A Fragmented World [00:04:55]
-02. The Great Reset [00:07:33]
-03. Activity As A Timetrigger [00:03:58]
-04. Happy Nothing [00:05:43](   Читать дальше...   )Жанр: Minimal Electro, Synthpop, TechnopopПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12796BFB556B9A0B9FE98F7C13E9B48F40A61949
 ```
 
 https://mybot314.ru/tekegram_catalog/

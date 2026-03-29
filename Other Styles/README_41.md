@@ -6,7 +6,7 @@ Mike Lazarev - Dislodged (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, M
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802711.jpg" />
+  <img src="Z:/picture/008/save_picture_802711.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Jonny Greenwood - Phantom Thread / Призрачная нить (2018) Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802705.jpg" />
+  <img src="Z:/picture/008/save_picture_802705.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802379.jpg" />
+  <img src="Z:/picture/008/save_picture_802379.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802092.jpg" />
+  <img src="Z:/picture/008/save_picture_802092.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Harry Gregson-Williams - Live by Night / Закон ночи (Original Motion Pi
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802049.jpg" />
+  <img src="Z:/picture/008/save_picture_802049.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ryan Farish - United (2017) [MP3|320 Kbps] <Electronic, Downtempo, New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802005.jpg" />
+  <img src="Z:/picture/008/save_picture_802005.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Harp Twins (Camille and Kennerly) - 3 альбома (2013 - 2015) [MP3|320 кб
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801981.jpg" />
+  <img src="Z:/picture/008/save_picture_801981.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801967.jpg" />
+  <img src="Z:/picture/008/save_picture_801967.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801881.jpg" />
+  <img src="Z:/picture/008/save_picture_801881.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Ghost in the Shell / Призрак в доспехах (Music Inspired by 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801797.jpg" />
+  <img src="Z:/picture/008/save_picture_801797.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Padma Previ - Goddess Chants (2008) [FLAC|Lossless|image + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801773.jpg" />
+  <img src="Z:/picture/008/save_picture_801773.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Padma Previ - Saraswati (2012) [FLAC|Lossless|image + .cue] <Meditative, Mantras
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801720.jpg" />
+  <img src="Z:/picture/008/save_picture_801720.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ New Sun Pops Orchestra - Guitar Mood (1976) 2 Альбома, LP [FLAC|Lossless|
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801690.jpg" />
+  <img src="Z:/picture/008/save_picture_801690.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ LEYA - Flood Dream (2020) [FLAC|Lossless|tracks + .cue] <Avant - Folk, Chamber M
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801687.jpg" />
+  <img src="Z:/picture/008/save_picture_801687.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801678.jpg" />
+  <img src="Z:/picture/008/save_picture_801678.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop,
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801195.jpg" />
+  <img src="Z:/picture/008/save_picture_801195.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801093.jpg" />
+  <img src="Z:/picture/008/save_picture_801093.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Jon Thebur - Sansula (2017) [MP3|320 Kbps] <New age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801080.jpg" />
+  <img src="Z:/picture/008/save_picture_801080.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Sax Project - Saxo and Movies (2011) 3CD [MP3|320 Kbps] <Easy Listening, Sax>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801041.jpg" />
+  <img src="Z:/picture/008/save_picture_801041.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Eguana & Qeight - The Book of Changes (2021) [MP3|320 Kbps] <Electronic, Downtem
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800976.jpg" />
+  <img src="Z:/picture/008/save_picture_800976.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Alex Lucas & Olan Mill - Tramuntana (2016) [MP3|320 Kbps] <New Age, Instrumental
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800615.jpg" />
+  <img src="Z:/picture/008/save_picture_800615.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Mogwai - Kin (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800573.jpg" />
+  <img src="Z:/picture/008/save_picture_800573.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800552.jpg" />
+  <img src="Z:/picture/008/save_picture_800552.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800551.jpg" />
+  <img src="Z:/picture/008/save_picture_800551.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Mars Lasar - Utopia (2017) [MP3|320 Kbps] <New Age, Ambient, Chillout>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800506.jpg" />
+  <img src="Z:/picture/008/save_picture_800506.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800503.jpg" />
+  <img src="Z:/picture/008/save_picture_800503.jpg" />
 </div>
 
 

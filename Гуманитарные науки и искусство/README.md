@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861888   (1062687) от 
+
+Наталья Самутина | Эта музыка слишком прекрасна. Тексты о кино и не только (2025) [FB2, EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание представляет собой сборник статей и рецензий известной российской исследовательницы кино и визуальной культуры Натальи Самутиной (1972–2021). Она была одним из немногих российских ученых, последовательно развивавших и продвигавших в российскую науку проблематику международных film studies (теории и истории кино). Ее исследовательский стиль характеризует сочетание (   Читать дальше...   )Жанр: Публицистика. Культурология. КинематографИздательство: Новое литературное обозрениеФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395635522CE93D8EAE77CCC5B7C29EB905CD106D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859777   (1061448) от 
 
 В. Козлов | Психология счастья: история, теория, феноменология (2026) [PDF]
@@ -7,7 +33,7 @@ https://t.me/izofen
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061448.jpg" />
+  <img src="Z:/picture/005/save_picture_1061448.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060738.jpg" />
+  <img src="Z:/picture/005/save_picture_1060738.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059087.jpg" />
+  <img src="Z:/picture/005/save_picture_1059087.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057196.jpg" />
+  <img src="Z:/picture/005/save_picture_1057196.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057091.jpg" />
+  <img src="Z:/picture/005/save_picture_1057091.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056322.jpg" />
+  <img src="Z:/picture/005/save_picture_1056322.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054698.jpg" />
+  <img src="Z:/picture/005/save_picture_1054698.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054696.jpg" />
+  <img src="Z:/picture/005/save_picture_1054696.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054693.jpg" />
+  <img src="Z:/picture/005/save_picture_1054693.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ G. Miller, Scott Spoolman, Danielle Andrews-Brown | Environmental Science (MindT
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054632.jpg" />
+  <img src="Z:/picture/005/save_picture_1054632.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Emily Schlickman, Brett Milligan | Design by Fire. Resistance, Co-Creation and R
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054631.jpg" />
+  <img src="Z:/picture/005/save_picture_1054631.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054476.jpg" />
+  <img src="Z:/picture/005/save_picture_1054476.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052819.jpg" />
+  <img src="Z:/picture/005/save_picture_1052819.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052605.jpg" />
+  <img src="Z:/picture/005/save_picture_1052605.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052398.jpg" />
+  <img src="Z:/picture/005/save_picture_1052398.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052211.jpg" />
+  <img src="Z:/picture/005/save_picture_1052211.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051077.jpg" />
+  <img src="Z:/picture/005/save_picture_1051077.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Teruko Sakurai | Anime & Manga Digital Coloring Guide: Choose the Colors That Br
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048591.jpg" />
+  <img src="Z:/picture/008/save_picture_1048591.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048439.jpg" />
+  <img src="Z:/picture/008/save_picture_1048439.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048437.jpg" />
+  <img src="Z:/picture/008/save_picture_1048437.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048366.jpg" />
+  <img src="Z:/picture/008/save_picture_1048366.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047585.jpg" />
+  <img src="Z:/picture/008/save_picture_1047585.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047520.jpg" />
+  <img src="Z:/picture/008/save_picture_1047520.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047519.jpg" />
+  <img src="Z:/picture/008/save_picture_1047519.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047480.jpg" />
+  <img src="Z:/picture/008/save_picture_1047480.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25C846F3EF7640F078BFE6B9721F3BB500AEF3B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840734   (1047479) от 06.12.2025
-
-В.Н. Демин | Основной принцип материализма (1983) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047479.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге кандидата философских наук В. Н. Демина анализируется фундаментальное положение диалектико-материалистической философии - принцип материальности мира. В ней показывается, что этот основной принцип материализма позволяет не только выявлять объективные закономерности, присущие природе и социальной действительности, но и определять научную достоверность теоретических (   Читать дальше...   )Жанр: История, науковедение, философияИздательство: ПолитиздатФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BF715E48B32458DE06779CC9BBBD62B08925FA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

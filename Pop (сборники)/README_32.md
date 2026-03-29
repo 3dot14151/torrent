@@ -1,3 +1,61 @@
+###  Публикация: 1206609   (782013) от 14.02.2018
+
+VA - Русское Радио. Лучшее 2017 от DON Music (2018) [MP3|256/320 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782013.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Григорий Лепс - Орлы или вороны (feat. Максим Фадеев) (03:27)
+002. Полина Гагарина - Обезоружена (03:46)
+003. Сергей Лазарев - Так красиво (03:41)
+004. Ёлка - Мир открывается (03:41)(   Читать дальше...   )Жанр: ПопПродолжительность: 07:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9ED6CD591DCC5602D94D693A72B0D91B4BBD424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390855   (781800) от 18.06.2020
+
+VA - 100 Greatest Pop Ballads (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781800.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello
+002. John Legend - All of Me
+003. Mariah Carey - Hero
+004. Whitney Houston - I Will Always Love You(   Читать дальше...   )Жанр: PopПродолжительность: 06:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3511F9CE2E683E26A805F1C520250A313E886AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206979   (781293) от 16.02.2018
 
 VA - German Top 100 Single Charts 16.02.2018 [MP3|320 Kbps] <Pop>
@@ -6,7 +64,7 @@ VA - German Top 100 Single Charts 16.02.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781293.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Absolute Winter Hits (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781276.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Friend Zone: Disco Funky Mix (2020) [MP3|320 Kbps] <Disco, Funky, Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_781033.jpg" />
+  <img src="Z:/picture/008/save_picture_781033.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780946.jpg" />
+  <img src="Z:/picture/008/save_picture_780946.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - De Top 100 Aller Tijden 1981 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780566.jpg" />
+  <img src="Z:/picture/008/save_picture_780566.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Музыкальный Деликатес (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780205.jpg" />
+  <img src="Z:/picture/008/save_picture_780205.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - German Top 100 Single Charts 23.02.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779982.jpg" />
+  <img src="Z:/picture/008/save_picture_779982.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - De Top 100 Aller Tijden 1982 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779129.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Hit Music (весна 2018) от Мяу [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779088.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - German Top 100 Single Charts 02.03.2018 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779006.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - May Discotheque - Holiday Hit Parade N1 (2016) [MP3|192-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778377.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - Горячая весенняя дискотека (2016) [MP3|256 кб/с]
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778344.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Mega Hits Euro Top N7 (2016) [MP3|256-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778338.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Супер Auto-Hit Новинки (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778331.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Русское радио. Веселой Пасхи! (2016) [MP3|256 кб/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778328.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ VA - Весна плюс 5 (2016) [MP3|256 кб/с] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777653.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Top 80 Dance Club Discotheque (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777635.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Euro Best Hits N7 Top 100 (2016) [MP3|192-320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777620.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Зажигательный молодежный музыкайф на Europ
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777619.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Return Of The 90s (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777613.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Главная дискотека мая 50х50 (2016) [MP3|256 кб/с] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777610.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Workout Music - Work Out Mix (2016) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777587.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777550.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Авто Recordный сборник хитов Vol.10 (2016) [MP3|256-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777533.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Авто Recordный сборник хитов Vol.10 (2016) [MP3|256-320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA57A6DF287D559E9499128C219AFD95F27BD938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211515   (777476) от 07.03.2018
-
-VA - 8 марта: Лучшие песни для неё (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Григорий Лепс - Я поднимаю руки (3:50)
-02. Стас Михайлов - Там (3:40)
-03. Стас Пьеха - Моя прекрасная леди (3:45)
-04. IOWA - Улыбайся (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB7151A03003AC3CF944684153E0432B39A22A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013772   (777314) от 05.05.2016
-
-VA - International Web-Radio Playlist (Dance) (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danky & Brain - Chasing Cars (Radio Mix) (feat. Jenny Joao)
-02. Empir3 - Ride Like the Wind (Blutraxx's Remix) (feat. Pit Bailay)
-03. Marc Mounier - There Were Times (Radio Version)
-04. Honeyz - Definitely Something (Soulshaker Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D489F06754E85F022197CBDF55F6C3D7E3A85685
 ```
 
 https://mybot314.ru/tekegram_catalog/

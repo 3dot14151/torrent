@@ -6,7 +6,7 @@ MemTest86 9.3 Build 1000 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840962.jpg" />
+  <img src="Z:/picture/008/save_picture_840962.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840958.jpg" />
+  <img src="Z:/picture/008/save_picture_840958.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VueScan Pro 9.7.67 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840957.jpg" />
+  <img src="Z:/picture/008/save_picture_840957.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ MyPhoneExplorer 1.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840956.jpg" />
+  <img src="Z:/picture/008/save_picture_840956.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Caramba Switcher + Lab 2021.06.14 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840945.jpg" />
+  <img src="Z:/picture/008/save_picture_840945.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ DipTrace 3.0.0.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840921.jpg" />
+  <img src="Z:/picture/008/save_picture_840921.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ RonyaSoft CD DVD Label Maker 2.02.10 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840903.jpg" />
+  <img src="Z:/picture/008/save_picture_840903.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ IObit Uninstaller Pro 9.4.0.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840863.jpg" />
+  <img src="Z:/picture/008/save_picture_840863.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ IObit Smart Defrag Pro 6.5.0.92 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840839.jpg" />
+  <img src="Z:/picture/008/save_picture_840839.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Topaz Mask AI 1.2.2 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840837.jpg" />
+  <img src="Z:/picture/008/save_picture_840837.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ DAEMON Tools Lite 11.0.0.1894  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840809.jpg" />
+  <img src="Z:/picture/008/save_picture_840809.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Radical Image Optimization Tool (RIOT) 0.4.6 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840803.jpg" />
+  <img src="Z:/picture/008/save_picture_840803.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ WinPatrol PLUS 20.0.2011.1 Final [english/русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840802.jpg" />
+  <img src="Z:/picture/008/save_picture_840802.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Work with registry 5.0 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840791.jpg" />
+  <img src="Z:/picture/008/save_picture_840791.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ QtWeb Internet Browser 3.7 (build 063) +Portable [ML/RUS]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840789.jpg" />
+  <img src="Z:/picture/008/save_picture_840789.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Google Chrome 81.0.4044.129 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840759.jpg" />
+  <img src="Z:/picture/008/save_picture_840759.jpg" />
 </div>
 
 
@@ -446,7 +446,7 @@ SQLite Expert Professional 5.3.5.476 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840753.jpg" />
+  <img src="Z:/picture/008/save_picture_840753.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Movavi Slideshow Maker 6.5.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840747.jpg" />
+  <img src="Z:/picture/008/save_picture_840747.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ UFS Explorer Professional Recovery v3.18.3 (x86x64) Eng. Rus
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840710.jpg" />
+  <img src="Z:/picture/008/save_picture_840710.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Display Driver Uninstaller 18.0.2.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840699.jpg" />
+  <img src="Z:/picture/008/save_picture_840699.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ OBS Studio 25.0.8 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840686.jpg" />
+  <img src="Z:/picture/008/save_picture_840686.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ uTorrent 2.2.1.25113 [Multi/Rus] Stable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840654.jpg" />
+  <img src="Z:/picture/008/save_picture_840654.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Xilisoft HD Video Converter 6.5.3.0310 [Multi+Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840643.jpg" />
+  <img src="Z:/picture/008/save_picture_840643.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ TeamViewer Free 15.5.3 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840632.jpg" />
+  <img src="Z:/picture/008/save_picture_840632.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ qBittorrent 4.2.5 Portable by Deodatto + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840621.jpg" />
+  <img src="Z:/picture/008/save_picture_840621.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ XnView 2.32 | Minimal | Standard | Extended + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840598.jpg" />
+  <img src="Z:/picture/008/save_picture_840598.jpg" />
 </div>
 
 

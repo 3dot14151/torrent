@@ -1,3 +1,107 @@
+###  Публикация: 1798170   (1761) от 21.09.2025
+
+S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [Ru/Multi] (1.10.1-64) License GOG [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращаемся к тому, с чего все началось - трилогия S.T.A.L.K.E.R., один из самых дальновидных и новаторских шутеров от первого лица на выживание всех времен возвращается. Теперь масштабированное, улучшенное приключение, в которое обязательно нужно поиграть для нового поколения.Тип издания: LicenseРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578D5D61FEEF0D54AE16F166A4147094B7326DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798171   (1727) от 21.09.2025
+
+S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Multi] (1.10.1-64) License GOG [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возвращаемся к тому, с чего все началось - трилогия S.T.A.L.K.E.R., один из самых дальновидных и новаторских шутеров от первого лица на выживание всех времен возвращается. Теперь масштабированное, улучшенное приключение, в которое обязательно нужно поиграть для нового поколения.Тип издания: LicenseРазработчик: GSC Game WorldЖанр: Экшены, Ролевые игрыЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE93D47DC7623D5F6379B03771598CDBFC963E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556802   (1400) от 23.09.2025
+
+POSTAL: Brain Damaged (2022) [Multi] (1.10.4/dlc) License GOG [Connoisseur Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1400.jpg" />
+</div>
+
+
+###  Подробнее
+
+POSTAL: Brain Damaged - это новая динамичная версия культовой серии игр Running With Scissors с ретроспективной графикой и динамичным современным геймплеем. Совершите дикую прогулку на американских горках по запутанной стране чудес, заключённой в запутанном уме почтового Чувака. Приготовьтесь испытать Postal с совершенно новой точки зрения! Этот побочный продукт (   Читать дальше...   )Тип издания: LicenseРазработчик: Hyperstrange, CreativeForge GamesЖанр: Экшны, От первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Английский, Польский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Польский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8BF2DE404B0964AA4974338E640392FD83AB1C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743493   (1372) от 23.09.2025
+
+Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди огненных баталий Project Warlock 2 есть рациональное зерно – противостояние сил света и тьмы. В мире, полном мерзких тварей, главный герой учился чародейскому искусству у своего наставника. Но очнувшись в покинутом замке, протагонист обнаруживает, что его учитель бесследно пропал, а округа буквально кишит монстрами. Взяв себя в руки, Палмер перезаряжает посох, (   Читать дальше...   )Тип издания: LicenseРазработчик: Buckshot SoftwareЖанр: Экшены, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Польский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4384C11F5EAE9EE0EF7EC281A95D2700057C4A41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770317   (943) от 26.09.2025
 
 Dying Light (2016) [Ru/En] (1.54.0/dlc) Repack Let'sРlay [Definitive Edition]
@@ -6,7 +110,7 @@ Dying Light (2016) [Ru/En] (1.54.0/dlc) Repack Let'sРlay [Definitive Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_943.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Let'sРlay [Digi
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_928.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_899.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ DOOM Eternal (2020) [Ru/Multi] (20078587/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_884.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ High On Life (2022) [Ru/Multi] (Build 12527950/dlc) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_867.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.8.0-71665-194/dlc) Repack Wanterlude
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_849.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Severed Steel (2021) [Ru/Multi] (5.62) License GOG [Digital Deluxe]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_724.jpg" />
 </div>
 
 

@@ -1,3 +1,393 @@
+###  Публикация: 1482628   (1007356) от 09.07.2021
+
+3D модели - Maxtree - Plant Models Vol 57 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это коллекция высококачественных 3D-моделей растений. Включает в себя 12 видов, всего 72 моделиФормат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D27444878B84874C5FBAADA6EBD5AAE9555998B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482637   (1007345) от 09.07.2021
+
+3D модели - KitBash3D - Colonial [Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA, ASSET, UASSET, HIP]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стройте исторические городские площади или постройте фантастический город в стиле неоклассицизма. Эти величественные сооружения заимствованы из традиций архитектуры Палладио и Регентства с использованием красивых фронтонов, арок, колонн, венецианских окон, медного покрытия и высоких сложных башен. Благодаря разнообразию текстур камня, кирпича, штукатурки и дерева (   Читать дальше...   )Формат: Octane|RedShift|Native|V-Ray|*.max, FBX, OBJ, BLEND, C4D, MA, ASSET, UASSET, HIP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5015558DF04DDD918AA7BBBD850C50DEEE8E1E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482745   (1007222) от 10.07.2021
+
+3D модели - Maxtree - Plant Models Vol 59 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Модели растений Том 59-это коллекция высококачественных 3D-моделей. Включает в себя 11 видов, всего 69 одиночных моделей.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40A349FB083021366D7852E22A6EA7231EBE2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481024   (1007066) от 11.07.2021
+
+3D модели - CGTrader - Contemporary cars for Arch viz 3D Model Collection [3DS, C4D, FBX, MAX, OBJ, MTL, DAE]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пак 3D моделей содержит коллекцию из 15 современных автомобилей известных компаний.Формат: 3DS, C4D, FBX, MAX, OBJ, MTL, DAE
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7ECED0651D6A053F4CAE74044293D1964328D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483417   (1006906) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #15 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006906.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 249x1220-6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2205460E2BF695BF913A185C801ADEEC856E9CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483420   (1006901) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #16 [PNG, TIF, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 218x1108-6271x6645
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2C6A0B214881A5961559C13D8A89FABB70533C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483422   (1006900) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #17 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 211x512-4592x3448
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63DC03218DFCF3786182F0111E1D5E51BE951E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483423   (1006899) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #18 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 201x217-5679x4731
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18F311EB2C4C0D707D1E3970FA2F279E80BA114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483424   (1006897) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #19 [PNG, TIF, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 248x750-9186x3496
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4246598305F5920510E24D6F14034CD885FC7136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483426   (1006896) от 13.07.2021
+
+Растровый клипарт - Сборник клипарта #20 [PNG, TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 260x262-4896x2753
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ADEB3BAE997A4144F389347D2A937913300D189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483431   (1006880) от 13.07.2021
+
+Растровый клипарт - PixelSquid - Nursery Collection [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт Nursery для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C492757AAFBC48E67D5FED5F47CA38CBDB564BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483427   (1006867) от 13.07.2021
+
+Растровый клипарт - PixelSquid - Nautical Collection [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт Nautical для вашего творчества на прозрачном фонеФормат: PSDРазрешение файлов: 2048x2048
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892EC48BBD9A2539840B0275C16A9F44322FA7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483457   (1006865) от 13.07.2021
+
+3D модели - Hum3D - VAZ Lada 2110 sedan 1995 [3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006865.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки VAZФормат: 3DS, ASC, C4D, FBX, LWO, MAX, OBJ, STL, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF414BAC964DE04A5E89BAF6A1BF40550A46A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483487   (1006859) от 13.07.2021
+
+3D модели - Hum3D - VAZ Lada Samara (2113) hatchback 3-door 1997 [FBX, MAX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006859.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки VAZФормат: FBX, MAX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7F98791CBC399B5B9E0064D7F2CE9B308A4EFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483500   (1006748) от 14.07.2021
+
+3D модели - Hum3D - Chevrolet El Camino 1982 [FBX, MAX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006748.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиля марки ChevroletФормат: FBX, MAX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E67AE931312A7791A5ACB40D97E620811B561172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483503   (1006740) от 14.07.2021
 
 3D модели - TurboSquid - Chevrolet Corvette ZR1 C7 2018 - 1240637 [V-Ray|*.max, FBX]
@@ -6,7 +396,7 @@
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006740.jpg" />
 </div>
 
 
@@ -32,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006733.jpg" />
 </div>
 
 
@@ -58,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006664.jpg" />
 </div>
 
 
@@ -84,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006662.jpg" />
 </div>
 
 
@@ -110,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006661.jpg" />
 </div>
 
 
@@ -136,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006659.jpg" />
 </div>
 
 
@@ -162,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006658.jpg" />
 </div>
 
 
@@ -188,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006657.jpg" />
 </div>
 
 
@@ -214,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006656.jpg" />
 </div>
 
 
@@ -240,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006653.jpg" />
 </div>
 
 
@@ -266,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006649.jpg" />
 </div>
 
 
@@ -277,396 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ED91D840E47C488640DE50B0DA9A528A19F56B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483679   (1006648) от 15.07.2021
-
-Растровый клипарт - Сборник клипарта #33 [PNG, TIF, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 214x227-5787x3858
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D8DA4BCF10E6F0D74E12E66518993F20D66DF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483664   (1006625) от 15.07.2021
-
-3D модели - Hum3D - Chevrolet C70 Dump Truck 1979 [3DS, C4D, FBX, LWO, MAX, OBJ, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006625.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки ChevroletФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4047CFDD17C89ACC71968ED4E009B3173AC4B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483680   (1006612) от 15.07.2021
-
-3D модели - Hum3D - Buick Wildcat Police 1968 [3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006612.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки BuickФормат: 3DS, C4D, FBX, LWO, MAX, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4438F4D0B55EAEB7F3A6334CAECD80A20C35D888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483397   (1006609) от 15.07.2021
-
-Пресеты - Via Photo - Яркие пресеты [DNG]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор летних пресетов из 15 шт., которые «оживят» любую фотографию! Выжмут сочные оттенки даже из самых скучных на первый взгляд фото.Формат: DNG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B5C889A0359DA9CA9289A456C859DBD7ECFBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484264   (1006225) от 18.07.2021
-
-3D модели - ArtStation, Sketchfab - Сборник оружия [FBX, MAX, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006225.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике оружия 103шт 3д модели.Формат: FBX, MAX, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7BE44F82E7091AA456D9E35F52E61EA34B4843A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484258   (1006202) от 18.07.2021
-
-3D модели - Unreal Engine - 1950s NYC Environment Megapack ( Modular with Interiors and Characters) [UASSET]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот наши 7 месяцев упорной работы в качестве команды Leartes, мегапакета среды Нью-Йорка 1950-х годов с более чем 1150 уникальными сетками, множеством BluePrints для удобства использования, объединенными частями здания для меньшего количества вызовов рисования в сцене, мы сделали все возможное для оптимизации, поскольку проект огромен и Активов много. Мы создали (   Читать дальше...   )Формат: UASSET
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B2FBEABA5FC9701DADDA3B89BB09F6A8F59C85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483795   (1006175) от 18.07.2021
-
-3D модели - 3DDD - 3DSky PRO models 2021 [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с 3ddd/3dsky со статусом Profi. В отличие от бесплатных моделей, к этим применяются более строгие требования по качеству.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC48E14818411BF6CE29859D70E7CA49EE64EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484350   (1006145) от 19.07.2021
-
-Растровый клипарт - Сборник клипарта #35 [PNG, TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 226x368-5000x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1299230F4EF1931F14EF7E7BF3FC18C0D31D7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484347   (1006144) от 19.07.2021
-
-Растровый клипарт - Сборник клипарта #34 [PNG, TIF, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 212x80-5574x3634
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62AFAA97677CE22C2D39B5CBBCEA8F2766642F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484353   (1006140) от 19.07.2021
-
-Растровый клипарт - Сборник клипарта #36 [PNG, TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 213x640-6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85EB23439ABBE44C1451418B22ACE9B789153DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484354   (1006131) от 19.07.2021
-
-Растровый клипарт - Сборник клипарта #37 [PNG, TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 248x233-5666x5737
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344057A0B846B5E221FF959CF6A1B17EF0151262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484366   (1006099) от 19.07.2021
-
-Фоны - Creative Market - Boho Pattern Bundle - 6256209 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006099.jpg" />
-</div>
-
-
-###  Подробнее
-
-546 Узоров Бохо; в комплекте 39 сборок .. Бохо-фоны, Бохо бесшовные текстуры.Формат: JPGРазрешение файлов: 3600x3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17D37EDD0600B9AD2CB3C4D6C6A8CEF3EB84C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484360   (1006071) от 19.07.2021
-
-3D модели - ArtStation - Sci-Fi walls Kitbash Pack 80+_Vol.2 [FBX, MAX]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006071.jpg" />
-</div>
-
-
-###  Подробнее
-
-80 ассетов в 3D (60 ассетов + 20 бесплатных элементов).Формат: FBX, MAX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C992D587135D9EAC98AC386835784FE06CCBD6F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484880   (1005827) от 22.07.2021
-
-Растровый клипарт - Сборник клипарта #40 [PNG, TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005827.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 247x159-5670x6317
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C36DEDB5DC6AB9A351A5991C28AF832FAC45C4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484878   (1005826) от 22.07.2021
-
-Растровый клипарт - Сборник клипарта #39 [PNG, TIF, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIF, JPGРазрешение файлов: 238x412-5529x4917
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AAFE679BA0AB2C4FF0229674BD65C868651A308
 ```
 
 https://mybot314.ru/tekegram_catalog/

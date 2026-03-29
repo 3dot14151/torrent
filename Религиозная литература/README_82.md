@@ -1,3 +1,84 @@
+###  Публикация: 957688   (326767) от 18.11.2015
+
+Ф. М. Путинцев | Политическая роль и тактика сект (1935) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326767.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге т. Путинцева дан анализ политической роли и тактики сект начиная с 1900-х гг. и кончая нашими днями.
+
+Рассматривая тактику сект при советской власти на разных этапах, автор вскрывает реакционную сущность сект, показывая наряду с этим процесс высвобождения верующих из под влияния сектантства в результате успехов социалистического строительства.
+(   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01F8EE701893E0732A62D666D70B4F8D3CD2AE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958089   (324993) от 20.11.2015
+
+А.И. Сидоров, O.E. Нестерова и др. | Раннехристианская и византийская экзегетика (2008) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_324993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник статей посвящен такой важной, но в современной отечественной филологической науке мало изучаемой проблеме, как толкование Библии в раннехристианский и византийский период. Наряду с тем, что в нем дан подробный исторический обзор истории развития методов толкования Священного Писания со II по VIII вв., его авторов интересовали важные теоретические проблемы, (   Читать дальше...   )Жанр: Сборник статей, экзегезаФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D893D04C57672CAA97517C46A9CF3C5C2386278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958599   (324027) от 21.11.2015
+
+Прп. Алексий Карпаторусский | Путь к святости (2009) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_324027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга посвящена непростой жизни одного из величайших карпаторусских святых, апостола Подкарпатья, жившего на рубеже XIX и XX веков, - преподобного Алексия Карпаторусского, урожденного Александра Кабалюка. Святыми не рождаются, ими становятся; его путь к святости был долог и труден, да он и не может быть иным. Господь многократно ставил его перед нравственным (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9E76A6D38C63C4CF869C89AD66921AD731D5F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958588   (323981) от 21.11.2015
 
 Зоя Афанасьева (сост.) | Не оставляй Божественной молитвы (2014) [PDF]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323981.jpg" />
+  <img src="Z:/picture/008/save_picture_323981.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323966.jpg" />
+  <img src="Z:/picture/008/save_picture_323966.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323593.jpg" />
+  <img src="Z:/picture/008/save_picture_323593.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323569.jpg" />
+  <img src="Z:/picture/008/save_picture_323569.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323434.jpg" />
+  <img src="Z:/picture/008/save_picture_323434.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323176.jpg" />
+  <img src="Z:/picture/008/save_picture_323176.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322946.jpg" />
+  <img src="Z:/picture/008/save_picture_322946.jpg" />
 </div>
 
 
@@ -192,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322222.jpg" />
+  <img src="Z:/picture/008/save_picture_322222.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322035.jpg" />
+  <img src="Z:/picture/008/save_picture_322035.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322034.jpg" />
+  <img src="Z:/picture/008/save_picture_322034.jpg" />
 </div>
 
 
@@ -270,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322032.jpg" />
+  <img src="Z:/picture/008/save_picture_322032.jpg" />
 </div>
 
 
@@ -296,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322029.jpg" />
+  <img src="Z:/picture/008/save_picture_322029.jpg" />
 </div>
 
 
@@ -324,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322026.jpg" />
+  <img src="Z:/picture/008/save_picture_322026.jpg" />
 </div>
 
 
@@ -350,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322025.jpg" />
+  <img src="Z:/picture/008/save_picture_322025.jpg" />
 </div>
 
 
@@ -376,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322019.jpg" />
+  <img src="Z:/picture/008/save_picture_322019.jpg" />
 </div>
 
 
@@ -402,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321920.jpg" />
+  <img src="Z:/picture/008/save_picture_321920.jpg" />
 </div>
 
 
@@ -428,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321499.jpg" />
+  <img src="Z:/picture/008/save_picture_321499.jpg" />
 </div>
 
 
@@ -454,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320652.jpg" />
+  <img src="Z:/picture/008/save_picture_320652.jpg" />
 </div>
 
 
@@ -480,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319075.jpg" />
+  <img src="Z:/picture/008/save_picture_319075.jpg" />
 </div>
 
 
@@ -506,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318947.jpg" />
+  <img src="Z:/picture/008/save_picture_318947.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318657.jpg" />
+  <img src="Z:/picture/008/save_picture_318657.jpg" />
 </div>
 
 
@@ -558,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318511.jpg" />
+  <img src="Z:/picture/008/save_picture_318511.jpg" />
 </div>
 
 
@@ -587,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317859.jpg" />
+  <img src="Z:/picture/008/save_picture_317859.jpg" />
 </div>
 
 
@@ -598,87 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A47753E71BC03E5E15BE5C84D7A5B2B1C5EA6A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421538   (317660) от 05.11.2020
-
-Ковчег (изд.) | Книга о Пресвятой Богородице (2000) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земная жизнь Пресвятой Богородицы. Прославленные иконы Божией Матери: их происхождение, древние и новые чудеса. Молитвы ко Пресвятой Богородице.
-
-Божия Матерь, Приснодева Мария, есть высшее существо из всех сотворённых разумных существ, несравненно высшее самых высших Ангелов, Херувимов и Серафимов, несравненно высшее всех святых человеков.
-(   Читать дальше...   )Жанр: ПравославиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5333FC4E3CA1BB1468A121A8FA6DFEA011B0F488
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 728404   (317551) от 29.11.2013
-
-В.В. Болотов | Лекции по истории Древней Церкви. [Том 1-4] (1907-1918) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Василий Васильевич Болотов (1853-1900) - русский историк и филолог, член-корреспондент Императорской Академии наук по разряду историко-политических наук. Главный научный интерес Болотова был связан с изучением истории Ближнего Востока и прежде всего - церковной истории. Степень глубины и тщательности, с которой Болотов подходил к изучению интересующей его темы, поражает. (   Читать дальше...   )Жанр: Религиозная литература, история церквиЯзык: Русский (дореформенный)Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B50F24475037B4EAC9E1EB5D3D29213BD36941
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959275   (317397) от 24.11.2015
-
-И.В. Шкуратова | Советское государство и внешнеполитическая деятельность Русской Православной Церкви. 1945-1961 гг. (2005) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Целью данного исследования ставится возможность определить роль РПЦ как фактора международных отношений к контексте внешней политики Советского государства, осуществляемой в условиях «холодной войны»; проследить на документальном материале развитие православно-католических и православно-экуменических отношений от приоритетов конфессиональной исключительности к диалогу.Жанр: ДиссертацияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:741A371A8C81D60F5D94F3741859801AF87D0564
 ```
 
 https://mybot314.ru/tekegram_catalog/

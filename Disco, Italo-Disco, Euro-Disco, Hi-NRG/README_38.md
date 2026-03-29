@@ -6,7 +6,7 @@ VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261799.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Italo Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261795.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Euro Disco: The Lost Legends Vol.8 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261791.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Euro Disco: The Lost Legends Vol.10 (2017) [MP3|320 Kbps] <Euro-Disco, Synt
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261787.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Euro Disco: The Lost Legends Vol.1 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261781.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Euro Disco - The Lost Legends Vol. 4 (2017) [MP3|320 Kbps] <Synth-pop, Hi N
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261780.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Scotch - Pictures Of Old Days (1987) Reissue, Remastered, Deluxe Edition, 2016 [
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255712.jpg" />
+  <img src="Z:/picture/005/save_picture_255712.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - ZYX Italo Disco New Generation Vol. 1 (2012) [OGG Vorbis|480 Kbps] <Italo-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255060.jpg" />
+  <img src="Z:/picture/005/save_picture_255060.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Harari - 3 Albums (1979-1981) LP [MP3|320 Kbps] <Afrobeat, Funk, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254746.jpg" />
+  <img src="Z:/picture/005/save_picture_254746.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Best Of Disco Balls Records 2022, Vol. 3 (2023) [MP3|320 Kbps] <Disco, Nu-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249770.jpg" />
+  <img src="Z:/picture/004/save_picture_249770.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Edna B. Jerano - Let Your Feelings Show (1978) LP [MP3|320 Kbps] <Electronic, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246066.jpg" />
+  <img src="Z:/picture/004/save_picture_246066.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Blue - Everybody Needs Somebody (1986) Italy 12" Single [MP3|320 Kbps] <Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244650.jpg" />
+  <img src="Z:/picture/004/save_picture_244650.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ VA - Quantize Miami Sampler (2023) [MP3|320 Kbps] <Disco, Nu-Disco, Afrobeat, Fu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244340.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ VA - Choices (2023) [MP3|320 Kbps] <Disco, Soulful, Afrobeat, Nu Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244333.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ VA - Itґs Megamix Time 3 (2023) [MP3|320 Kbps] <Italo Disco, New Wave, Hi NRG, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243979.jpg" />
+  <img src="Z:/picture/004/save_picture_243979.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Irene Cara - Fame (1983) Netherlands 12" Single [MP3|320 Kbps] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243282.jpg" />
+  <img src="Z:/picture/004/save_picture_243282.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - ZYX Italo Disco New Generation Vol. 2 (2013) 2 CD [OGG Vorbis|480 Kbps] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243199.jpg" />
+  <img src="Z:/picture/004/save_picture_243199.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Spinners - Dancin' And Lovin' (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242900.jpg" />
+  <img src="Z:/picture/005/save_picture_242900.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - ZYX Italo Disco New Generation Vol. 4 (2014) 2 CD [OGG Vorbis|480 Kbps] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242765.jpg" />
+  <img src="Z:/picture/005/save_picture_242765.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Silver Convention - Success (1976) LP, Compilation feat Penny McLean, Ramona Wul
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242471.jpg" />
+  <img src="Z:/picture/005/save_picture_242471.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Enrico Intra - Momento Intra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop, I
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242075.jpg" />
+  <img src="Z:/picture/004/save_picture_242075.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Elvin Shaad - Live For Love (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk So
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241811.jpg" />
+  <img src="Z:/picture/004/save_picture_241811.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ VA - Disco Fluid Vol. 2 (2023) [MP3|320 Kbps] <Disco, Indie Dance, Funky House, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241438.jpg" />
+  <img src="Z:/picture/004/save_picture_241438.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Midnight Gang - Love Is Magic (1980) LP [MP3|320 Kbps] <Electronic, Funk Soul, D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240793.jpg" />
+  <img src="Z:/picture/004/save_picture_240793.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Modern Talking - Atlantis Is Calling (1986) Japan 12" Single, Promo [MP3|320 Kbp
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240011.jpg" />
+  <img src="Z:/picture/004/save_picture_240011.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - ZYX Italo Disco New Generation Vol. 5 (2014) 2 CD [OGG Vorbis|480 Kbps] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239571.jpg" />
+  <img src="Z:/picture/004/save_picture_239571.jpg" />
 </div>
 
 

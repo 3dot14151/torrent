@@ -1,3 +1,159 @@
+###  Публикация: 1032297   (647087) от 06.07.2016
+
+Spec Ops: The Line (2012) [Ru/En] (1.0.6890.0/upd 2/dlc) Repack =nemos=
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_647087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необычный кинематографичный шутер от третьего лица, который заставит вас вступить в противостояние не только с реальными противниками, но даже с собственными принципами. Приготовьтесь оказаться в мире, где нет места понятию «нравственность» и на каждом шагу приходится выбирать — кому жить, а кому умереть. Spec Ops: The Line сочетает увлекательную сюжетную кампанию (   Читать дальше...   )Тип издания: RepackРазработчик: Yager DevelopmentЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5A550877ED59EE3E1E9C464A17FEEEA425865B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227540   (646376) от 26.05.2018
+
+Friday the 13th: The Game / Пятница 13 (2017) [Ru/En] (B11030/dlc) Repack xatab
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Местом действия игры является вымышленный лагерь «Хрустальное Озеро» из серии фильмов «Пятница, 13». События разворачиваются в 1980-е годы.  Многопользовательском режиме в одной сессии могут играть восемь человек. Один из игроков (выбранный случайно) будет управлять ДжейсономТип издания: RepackРазработчик: IllFonicЖанр: Action (Survival horror), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC28FD89703E4BB33419FC3168D935ABB652CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292509   (644442) от 30.03.2019
+
+One Piece: World Seeker (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оставьте компас дома и вместе с Луффи отправляйтесь в приключение, где вам предстоит открыть множество тайн на новом острове!  На загадочном Тюремном острове творятся странные дела. Включает оригинальных персонажей, созданных самим Эйитиро Одой! Сражайтесь со знаменитыми врагами Луффи из серии ONE PIECE, используя волю и силы плода резина-резина!Тип издания: RepackРазработчик: GANBARIONЖанр: Action, Adventure, 3rd PersonЯзык озвучки: ЯпонскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515866E38186D96A1C2FE285F6D72A9343161B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292404   (644335) от 30.03.2019
+
+Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американские колонии, 1775 год. Время гражданских волнений и политического подъема Америки. Коренной американский ассасин, сражаясь ради защиты своей земли, зажжет огни разгорающейся национальной революции.Тип издания: LicenseРазработчик: UbisoftЖанр: Action, Adventure, Open World, 3rd Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0868F3F41627DD0F18D0C049CF931AD3BDC33CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064093   (644179) от 13.06.2017
+
+Epistory - Typing Chronicles (2015) [Ru/Multi] (1.3.5) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_644179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пустая страница – кошмар любого писателя. Ее пустота вглядывается в вас, манит возможностями, недоступной славой и отчаянными поисками неуловимой музы. Epistory – история той самой Музы, путешествующей верхом на огромной лисе по сказочному миру-оригами и воплощающей нерассказанные истории.Тип издания: LicenseРазработчик: Fishing CactusЖанр: Action, 3DЯзык озвучки: Русский, Английский, Немецкий и другиеЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DD93836A146E9DDA956DF67C912E6C54B4F742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032616   (643264) от 08.07.2016
+
+The Saboteur (2009) [Ru] (1.3/dlc) Portable PortGamPC
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_643264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pandemic Studios приглашает вас сыграть роль диверсанта в игре с открытым миром нового поколения, сочетающей в себе элементы, как приключения, так и боевика. Отомстите за гибель своих близких, выследив их убийц в оккупированном нацистами Париже. Вам предстоит сражаться, карабкаться и водить машину. Это первая игра, в которой пользователю предстоит вплотную заняться (   Читать дальше...   )Тип издания: PortableРазработчик: Pandemic StudiosЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD4D651F89C0B345213A1CFD9A06D0B9FE72E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032005   (643256) от 08.07.2016
 
 Furi (2016) [Ru/Multi] (1.0.46) Repack Other s
@@ -6,7 +162,7 @@ Furi (2016) [Ru/Multi] (1.0.46) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643256.jpg" />
+  <img src="Z:/picture/008/save_picture_643256.jpg" />
 </div>
 
 
@@ -34,7 +190,7 @@ Killer is Dead (2014) [Ru/Multi] (1.0) SteamRip Let'sРlay [Nightmare Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642942.jpg" />
+  <img src="Z:/picture/008/save_picture_642942.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ Evil Tag (2017) [Ru/En] (1.02f) License POSTMORTEM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642450.jpg" />
+  <img src="Z:/picture/008/save_picture_642450.jpg" />
 </div>
 
 
@@ -87,7 +243,7 @@ Furi (2016) [Ru/Multi] (1.0) Repack Dok2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641409.jpg" />
+  <img src="Z:/picture/008/save_picture_641409.jpg" />
 </div>
 
 
@@ -113,7 +269,7 @@ RWBY: Grimm Eclipse (2016) [En] (1.0.01rc2) Repack Dok2
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641408.jpg" />
+  <img src="Z:/picture/008/save_picture_641408.jpg" />
 </div>
 
 
@@ -139,7 +295,7 @@ Prototype (2009) [Ru/En] (1.0.0.1/fix) Repack =nemos=
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641307.jpg" />
+  <img src="Z:/picture/008/save_picture_641307.jpg" />
 </div>
 
 
@@ -165,7 +321,7 @@ R.I.P.D. The Game / R.I.P.D.: Призрачный патруль (2013) [Ru/Mul
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637726.jpg" />
+  <img src="Z:/picture/008/save_picture_637726.jpg" />
 </div>
 
 
@@ -193,7 +349,7 @@ Through the Woods (2016) [Ru/Multi] (1.0) SteamRip Let'sPlay [Digital Collector'
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636825.jpg" />
+  <img src="Z:/picture/008/save_picture_636825.jpg" />
 </div>
 
 
@@ -219,7 +375,7 @@ Tomb Raider: Anniversary (2007) [Ru/Multi] (1.0) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633101.jpg" />
+  <img src="Z:/picture/008/save_picture_633101.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ Blades of Time. Limited Edition  (Steam-Rip) [Ru/Multi7] 2012 | R.G. Игром�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632757.jpg" />
+  <img src="Z:/picture/008/save_picture_632757.jpg" />
 </div>
 
 
@@ -275,7 +431,7 @@ Hitman: Absolution (2012) [Ru/Multi] (1.0.447.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631241.jpg" />
+  <img src="Z:/picture/008/save_picture_631241.jpg" />
 </div>
 
 
@@ -301,7 +457,7 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629803.jpg" />
+  <img src="Z:/picture/008/save_picture_629803.jpg" />
 </div>
 
 
@@ -327,7 +483,7 @@ Attack on Titan 2 (2018) [Multi] (1.4.0.0/dlc) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629331.jpg" />
+  <img src="Z:/picture/008/save_picture_629331.jpg" />
 </div>
 
 
@@ -353,7 +509,7 @@ Outcast [Ru/En] (Repack/1.0.46.7) 1999 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628443.jpg" />
+  <img src="Z:/picture/008/save_picture_628443.jpg" />
 </div>
 
 
@@ -381,7 +537,7 @@ Silent Hill 4: The Room [Ru] (RePack) 2004 | R.G. Element Arts
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628310.jpg" />
+  <img src="Z:/picture/008/save_picture_628310.jpg" />
 </div>
 
 
@@ -407,7 +563,7 @@ The Cursed Crusade (2011) [Ru/En] (Update 7) Repack R.G. Revenants
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627289.jpg" />
+  <img src="Z:/picture/008/save_picture_627289.jpg" />
 </div>
 
 
@@ -433,7 +589,7 @@ The Piano (2018) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625865.jpg" />
+  <img src="Z:/picture/008/save_picture_625865.jpg" />
 </div>
 
 
@@ -459,7 +615,7 @@ EARTH DEFENSE FORCE 4.1: The Shadow of New Despair (2016) [En/Ja] (1.0) Repack O
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622283.jpg" />
+  <img src="Z:/picture/008/save_picture_622283.jpg" />
 </div>
 
 
@@ -485,7 +641,7 @@ Blades of Time / Клинки Времени [Ru/En/Multi7] (RePack/u5) 2012 | R
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622245.jpg" />
+  <img src="Z:/picture/008/save_picture_622245.jpg" />
 </div>
 
 
@@ -513,7 +669,7 @@ EARTH DEFENSE FORCE 4.1: The Shadow of New Despair (2016) [En/Ja] (1.0) License 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622142.jpg" />
+  <img src="Z:/picture/008/save_picture_622142.jpg" />
 </div>
 
 
@@ -524,162 +680,6 @@ Earth Defense Force 4.1: The Shadow of New Despair – новая игра в с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C825DBA561BAFC538142AA6DD3B93AF936916720
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544218   (621513) от 15.04.2022
-
-The Last Stand: Aftermath (2021) [Ru/Multi] (1.1.0.11) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621513.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Last Stand: Aftermath — это новейшая игра от опытных разработчиков Con Artist Games, создателей серии The Last Stand. Продолжение серии — это великолепная независимая игра для одного игрока, которую можно отнести к жанрам «экшн», «приключения» и roguelite. Выберите выжившего, чтобы вместе с этим персонажем исследовать руины цивилизации, искать топливо для перемещения (   Читать дальше...   )Тип издания: RepackРазработчик: Con Artist GamesЖанр: Action (Roguelike, Isometric), Adventure, RPG, 3DЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8FADBE2D21DBE9E77711663461AEF2533B3D23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229954   (620509) от 09.06.2018
-
-State of Decay (2015) [Ru/Multi] (1.0/dlc) Repack xatab [Year One Survival Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разработчики тщательно поработали над тем, чтобы сделать State of Decay и дополнения Breakdown и Lifeline еще лучше: теперь игроки смогут насладиться всеми прелестями формата полной высокой четкости (1080p). Новые задания и оружие, бонусный контентТип издания: RepackРазработчик: Undead LabsЖанр: Action, Shooter, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9263EE3E5BBA676EDB9B04B895777F8685DD6BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145520   (619359) от 26.06.2017
-
-Bayonetta (2017) [Ru/Multi] (1.01) Repack ivandubskoj
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный директор PlatinumGames Хидэки Камия, создавший знаменитые Resident Evil и Devil May Cry, а также компания SEGA запускают одну из самых прославленных action-игр всех времен на ПК. Байонетта. Единственная выжившая из старинного клана ведьм, сохранявшего равновесие между светом, тьмой и хаосом. Байонетта спряталась в гробнице, чтобы защитить себя и весь (   Читать дальше...   )Тип издания: RepackРазработчик: PlatinumGamesЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00EDC86A1E81FC17386610068E31C9A6CB3CDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230271   (617068) от 11.06.2018
-
-Styx: Master of Shadows (2014) [Ru/En] (1.02) Repack xatab
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стикс – исключительный гоблин, непревзойденный мастер скрытности, воровства и убийств. Ему предстоит отправиться в башню Акенаш, где хранится сердце драгоценного Дерева Мира. Там Стиксу представится отличный шанс быстро подзаработать и, возможно, узнать немало интересного.Тип издания: RepackРазработчик: Cyanide StudioЖанр: Action, 3D, 3rd Person, StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA227D4D867EEEC07466B72B2036032B8077777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231716   (616474) от 14.04.2019
-
-Crying is not Enough (2018) [Ru/Multi] (1.0/upd1) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crying is not Enough (“Крик не поможет”) - это игра на выживание жанра ужасов от третьего лица. Игроку приходится сталкиваться с врагами, используя оружие и другие механизмы выживания. Он должен решать различные головоломки и добиваться прогресса, медленно раскрывая историю.Тип издания: LicenseРазработчик: Storyline TeamЖанр: Action (Horror), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFC1FBBA5E17977D24C7E326F6AA3E7F1F3ADC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545184   (616002) от 18.04.2022
-
-The Haunted: Hells Reach (2011) [Multi] (1.0 Build 8564469/dlc) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весь ад вырвался наружу!!! The Haunted — это динамичный экшн от третьего лица с элементами хоррора, сосредоточенный на кооперативном прохождении. Ваша цель — зачистить проклятые места и пережить нападения адского отродья. В игре есть несколько многопользовательских режимов, таких, как «Выживание», «Демоны против людей» и «Демонизация».Тип издания: RepackРазработчик: KTX SoftwareЖанр: Action (Shooter), 3rd Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB0BCABAEF7DF8482696F82AF63A375FA769D28
 ```
 
 https://mybot314.ru/tekegram_catalog/

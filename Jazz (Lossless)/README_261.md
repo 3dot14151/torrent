@@ -1,3 +1,119 @@
+###  Публикация: 1268360   (228250) от 10.12.2018
+
+Clora Bryant - Gal With A Horn (1957) 1995, V.S.O.P. Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_228250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gypsy in My Soul [2:48]
+02. Makin' Whoopee [3:34]
+03. Man with a Horn [3:58]
+04. Sweet Georgia Brown [4:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E32B3AE98ED32A0F1584D3FBF4346F3FD55A671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268354   (228244) от 10.12.2018
+
+Helen Carr - The Complete Bethlehem Collection (1955) 1993, Bethlehem [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_228244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Mine [3:02]
+02. I Don't Want to Cry Anymore [5:16]
+03. Tulip or Turnip [2:25]
+04. Memory of the Rain [2:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8C31094F39DC1386C3CD3343049E09A1B1F014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268345   (228227) от 10.12.2018
+
+Shirley Horn - Live At The 4 Queens (1988) 2016, Resonance Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_228227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi-Fly [6:31]
+02. You'd Be So Nice to Come Home To [4:03]
+03. Meditation (Meditacao) [9:12]
+04. The Boy from Ipanema [5:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7758C5BF9B4D67DD6F5C15C4F5A694FBCDC1B35A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268350   (228218) от 10.12.2018
+
+Hank Crawford - From The Heart (1962) 2004, Collectables [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_228218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Cry Baby [4:22]
+02. Sweet Cakes [3:41]
+03. You've Changed [3:20]
+04. Baby Let Me Hold Your Hand [3:54](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08902CF6C71FEC84866813F878E9022C093DB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424528   (228206) от 17.11.2020
 
 Duke Ellington - Festival Session (1959) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -6,7 +122,7 @@ Duke Ellington - Festival Session (1959) 2016, Jazz Images [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228206.jpg" />
+  <img src="Z:/picture/005/save_picture_228206.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Larry Coryell - Coryell (1969) 2016, Real Gone Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228132.jpg" />
+  <img src="Z:/picture/005/save_picture_228132.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Miles Davis - Workin' (1956) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228091.jpg" />
+  <img src="Z:/picture/005/save_picture_228091.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Eric Reed - For Such A Time As This (2020) Smoke Sessions Records [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228089.jpg" />
+  <img src="Z:/picture/005/save_picture_228089.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Dick Wellstood - Live At The Sticky Wicket (1986) 2CD, 1997, Arbors Records [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228081.jpg" />
+  <img src="Z:/picture/005/save_picture_228081.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Mildred Bailey - Smoke Dreams 1935 - 1939 (1999) Definitive Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227690.jpg" />
+  <img src="Z:/picture/005/save_picture_227690.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Mildred Bailey - Band Vocalist, Vol. 2 1931 - 1934 (1994) The Old Masters [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227685.jpg" />
+  <img src="Z:/picture/005/save_picture_227685.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Mildred Bailey - A Forgotten Lady 1935 - 1942 (1996) Jazz Archives [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227675.jpg" />
+  <img src="Z:/picture/005/save_picture_227675.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bucky Pizzarelli - April Kisses (1999) Arbors Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227658.jpg" />
+  <img src="Z:/picture/005/save_picture_227658.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Verve & Blue Note Today (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Mainstr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227604.jpg" />
+  <img src="Z:/picture/005/save_picture_227604.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Jazz Lullaby (2008) [FLAC|Lossless|tracks + .cue] <Jazz, Children>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227603.jpg" />
+  <img src="Z:/picture/005/save_picture_227603.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Louis Armstrong - Swing That Music 1935 - 1939 (1990) Jazz Archives [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227570.jpg" />
+  <img src="Z:/picture/005/save_picture_227570.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ V.A. - Chill-Out Jazz (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227192.jpg" />
+  <img src="Z:/picture/005/save_picture_227192.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Stan Getz - Master Of The Sax (1946 - 1957) 10CD, 2010, Intense [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227172.jpg" />
+  <img src="Z:/picture/005/save_picture_227172.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Frank Sinatra - Reprise Rarities - Vol. 5 (2021) [FLAC|Lossless|WEB-DL|tracks] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227133.jpg" />
+  <img src="Z:/picture/005/save_picture_227133.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ Ryan Kisor - Battle Cry (1998) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226656.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ Oscar Pettiford - Lost Tapes: Germany 1958/1959 (2013) SWR Music [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226649.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Harold Land - The Fox & Take Aim (1959, 1960) 2011, Essential Jazz Classics [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226631.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Harold Land - Xocia's Dance (Sue-sha) (1981) 1990, Muse Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226615.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Rosemary Clooney And Duke Ellington - Blue Rose (1956) 1991, Mobile Fidelity Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226602.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Peggy Lee - Best 22 Songs (1930-e - 1960-e) 1986, MCA Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226595.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Masada - Live In Sevilla (2000) Tzadik[FLAC|tracks+.cue] <World Fusion, Ethnic J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226461.jpg" />
+  <img src="Z:/picture/005/save_picture_226461.jpg" />
 </div>
 
 
@@ -635,122 +751,6 @@ Masada - Live In Sevilla (2000) Tzadik[FLAC|tracks+.cue] <World Fusion, Ethnic J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC85DBF7269084E6437D955AF016C908AC172D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424799   (226278) от 18.11.2020
-
-Bobby Timmons - Quartets And Orchestra (1967, 1968) 2001, Milestone [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Ain't Got It [3:19]
-02. Up Up and Away [4:11]
-03. Travelin' Light [5:10]
-04. Come Sunday [3:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E11338D942C16A23C249D11B3F2936CA4FF19CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424804   (226215) от 18.11.2020
-
-Oscar Peterson Trio - Tristeza On Piano (1970) 2005, MPS Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tristeza [3:16]
-02. Nightingale [6:48]
-03. Porgy [6:16]
-04. Triste [5:24](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:45:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01EA45D22E3CD95F78742BBF501C6EADDC33EBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342193   (226147) от 01.12.2019
-
-Lu Watters' Yerba Buena Jazz Band - Air Shots From The Dawn Club 1941 - 1942 (1997) Merry Makers Record Company [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South [2:45]
-02. London Blues [2:59]
-03. The Wise Old Owl [2:18]
-04. Yerba Buena Shout [2:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891F1DC2C02C46D63B635994411DE570FBB16318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424805   (226089) от 18.11.2020
-
-Nino Tempo - Purveyor of Balladry: The Best Of Nino Tempo On Atlantic (1990 - 1993) 2018, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darn That Dream (Live) [4:56]
-02. This Masquerade (Instrumental Version) [3:57]
-03. Anyone Who Had a Heart [3:09]
-04. Amazon River (feat. April Stevens) [4:10](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0F3BBEF50D098F24FA785D7AEBA9AC0AE47E81
 ```
 
 https://mybot314.ru/tekegram_catalog/

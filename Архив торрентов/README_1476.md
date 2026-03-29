@@ -6,7 +6,7 @@ Attack Heroes (2017) [En/Ch/Ja] (1.08) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718251.jpg" />
+  <img src="Z:/picture/008/save_picture_718251.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718245.jpg" />
+  <img src="Z:/picture/008/save_picture_718245.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718244.jpg" />
+  <img src="Z:/picture/008/save_picture_718244.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Microsoft Office 2021 for Mac LTSC v16.58 VL [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718190.jpg" />
+  <img src="Z:/picture/008/save_picture_718190.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MONACH - Черный день (2016) EP [MP3|320 кб/с] <Rap, Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718164.jpg" />
+  <img src="Z:/picture/008/save_picture_718164.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Casablanca - Apocalyptic Youth (2012) [FLAC|Lossless|tracks] <Hard Rock, Melodic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718163.jpg" />
+  <img src="Z:/picture/008/save_picture_718163.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Hazel 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718159.jpg" />
+  <img src="Z:/picture/008/save_picture_718159.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718147.jpg" />
+  <img src="Z:/picture/008/save_picture_718147.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (1.1) Repack YelloSOFT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718141.jpg" />
+  <img src="Z:/picture/008/save_picture_718141.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ AdminPE10 2.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718139.jpg" />
+  <img src="Z:/picture/008/save_picture_718139.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ AdminPE 3.8 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718128.jpg" />
+  <img src="Z:/picture/008/save_picture_718128.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Pedro Del Mar - Mellomania Deluxe 438 (07-06-2010) [MP3|256 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_718065.jpg" />
+  <img src="Z:/picture/005/save_picture_718065.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ SSH Shell 16.06 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718057.jpg" />
+  <img src="Z:/picture/008/save_picture_718057.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Mozilla Firefox 48.0 beta 1 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718054.jpg" />
+  <img src="Z:/picture/008/save_picture_718054.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ ZD Soft Screen Recorder 9.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718052.jpg" />
+  <img src="Z:/picture/008/save_picture_718052.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ Olaf Stuut - Run (2016) [MP3|320 кб/с] <Experimental>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718049.jpg" />
+  <img src="Z:/picture/008/save_picture_718049.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ Sketches Pro 1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718048.jpg" />
+  <img src="Z:/picture/008/save_picture_718048.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ BitPerfect 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718046.jpg" />
+  <img src="Z:/picture/008/save_picture_718046.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718016.jpg" />
+  <img src="Z:/picture/008/save_picture_718016.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718010.jpg" />
+  <img src="Z:/picture/008/save_picture_718010.jpg" />
 </div>
 
 
@@ -550,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717965.jpg" />
+  <img src="Z:/picture/008/save_picture_717965.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Weltschmerz - The Norwood Scale (2016) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <In
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717918.jpg" />
+  <img src="Z:/picture/008/save_picture_717918.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ SRWare Iron 51.0.2700.0 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717917.jpg" />
+  <img src="Z:/picture/008/save_picture_717917.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717913.jpg" />
+  <img src="Z:/picture/008/save_picture_717913.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ NetTraffic 1.33 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717909.jpg" />
+  <img src="Z:/picture/008/save_picture_717909.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ IObit Smart Defrag Pro 5.1.0.787 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717908.jpg" />
+  <img src="Z:/picture/008/save_picture_717908.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Adam Wolfe - Flames of Time / Адам Вулф: Пламя времен (2016) 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315463.jpg" />
+  <img src="Z:/picture/008/save_picture_315463.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ World Keepers: Last Resort / Хранители Мира: Последняя Н�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314629.jpg" />
+  <img src="Z:/picture/008/save_picture_314629.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Fear For Sale 12: Tiny Terrors / Страх на продажу: Кукольн�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313969.jpg" />
+  <img src="Z:/picture/008/save_picture_313969.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.0) License H
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313316.jpg" />
+  <img src="Z:/picture/008/save_picture_313316.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Mystery Case Files 13: Ravenhearst Unlocked (2015) [En] Unofficial [Collector's 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312410.jpg" />
+  <img src="Z:/picture/008/save_picture_312410.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Dark Tales 8: Edgar Allen Poe's The Tell-tale Heart (2015) [En] Unofficial [Coll
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312260.jpg" />
+  <img src="Z:/picture/008/save_picture_312260.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ashley Clark 2: The Secrets of the Ancient Temple / Эшли Кларк. Сек�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311918.jpg" />
+  <img src="Z:/picture/008/save_picture_311918.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Dark Asylum: Mystery Adventure / Загадки разума. Грани доз�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311757.jpg" />
+  <img src="Z:/picture/008/save_picture_311757.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Haunted Hotel 15: The Evil Inside / Проклятый отель 15: Зло в�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311699.jpg" />
+  <img src="Z:/picture/008/save_picture_311699.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ The Andersen Accounts 3: A Voice of Reason / Досье Андерсена 3: Г
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311455.jpg" />
+  <img src="Z:/picture/008/save_picture_311455.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Paranormal Files 4: Hook Man's Legend / Паранормальные явлен�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311312.jpg" />
+  <img src="Z:/picture/008/save_picture_311312.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Enchanted Kingdom 8: Master of Riddles (2020) [En] (1.0) Unofficial [Collector's
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310611.jpg" />
+  <img src="Z:/picture/008/save_picture_310611.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Mystery Tales 10: The Reel Horror / Загадочные истории 10: Уж
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309697.jpg" />
+  <img src="Z:/picture/008/save_picture_309697.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The Curio Society. Eclipse Over Mesina (2015) [En] Unofficial [Collector's Editi
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307719.jpg" />
+  <img src="Z:/picture/008/save_picture_307719.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Dreadful Tales 2: The Fire Within (2019) [En] (1.0) Unofficial [Collector's Edit
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307323.jpg" />
+  <img src="Z:/picture/008/save_picture_307323.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Mystery Case Files 14: Broken Hour Collector's Edition (2016) [En] (1.0) Unoffic
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306421.jpg" />
+  <img src="Z:/picture/008/save_picture_306421.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Invasion: Lost in Time / Вторжение: Затерянные во врем�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305150.jpg" />
+  <img src="Z:/picture/008/save_picture_305150.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Chimeras 4 Mortal Medicine / Химеры 4. Смертельная медици
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304307.jpg" />
+  <img src="Z:/picture/008/save_picture_304307.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ The Curio Society 2: New Order / Антикварное общество. Нов
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304181.jpg" />
+  <img src="Z:/picture/008/save_picture_304181.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Halloween Chronicles 2: Evil Behind a Mask (2019) [En] (1.0) Unofficial [Collect
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303277.jpg" />
+  <img src="Z:/picture/008/save_picture_303277.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Endless Fables 2: Frozen Path / Сказки без конца 2: Ледяная
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300858.jpg" />
+  <img src="Z:/picture/008/save_picture_300858.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Whispered Secrets 6: Song of Sorrow / Нашептанные секреты 6: �
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299697.jpg" />
+  <img src="Z:/picture/008/save_picture_299697.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Hidden Expedition 10: The Fountain of Youth / Секретная экспеди�
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299574.jpg" />
+  <img src="Z:/picture/008/save_picture_299574.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Fright Chasers: Dark Exposure / Ловцы страхов: Темная сущн
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298778.jpg" />
+  <img src="Z:/picture/008/save_picture_298778.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Family Mysteries: Poisonous Promises (2019) [En] (1.0) Unofficial [Collector's E
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298662.jpg" />
+  <img src="Z:/picture/008/save_picture_298662.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ The Keeper of Antiques 2: The Imaginary World / Антиквар 2: В мире 
 >>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296742.jpg" />
+  <img src="Z:/picture/008/save_picture_296742.jpg" />
 </div>
 
 

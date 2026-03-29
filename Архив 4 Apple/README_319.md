@@ -1,3 +1,110 @@
+###  Публикация: 1297992   (602624) от 25.04.2019
+
+Kerbal Space Program (1.7.0/dlc) (2019) [En/Ru] [macOS Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kerbal Space Program - многожанровая игра, где вы создаёте свою космическую программу. Вам предстоит создать и построить космический корабль или ракету способную летать и доставить экипаж в космос, не убив его. В распоряжении многочисленные части и комплектующие, которые должны быть собраны в функциональный корабль.
+
+Каждая часть имеет свою функцию и влияет на возможности (   Читать дальше...   )Тип издания: macOS Native gameРелиз состоялся: 2019Разработчик: SquadПоддерживаемая ОС: OS X 10.7Жанр: SimulationЯзык интерфейса: Русский, Английский (раздельные установщики)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E202A81015AA73E774A7FC4C5D40F7C290117A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547669   (602463) от 29.04.2022
+
+Allavsoft Video Downloader Converter 3.24.6.8147 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 29.04.2022Разработчик: © 2022 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369DD8600309A1999BD6D72A2E500C6E441C97D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547677   (602416) от 29.04.2022
+
+FxFactory Pro 8.0.0 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602416.jpg" />
+</div>
+
+
+###  Подробнее
+
+FxFactory Pro включает  фильтры, генераторы и переходы для Final Cut Pro X, Motion, Premiere Pro и After Effects. FxFactory - первый расширяемый пакет визуальных эффектов для Final Cut Pro. Неограниченная емкость: загружайте дополнительные плагины в FxMarket.
+Пользователь может проверить все плагины и настроить их подходящим образом для своего проекта, либо создать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.04.2022Разработчик: © 2022 Noise Industries, LLCПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AEA70E6455FDCA032E922D139FE414D7814C94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547655   (602381) от 29.04.2022
+
+PDF Reader Pro Edition 2.8.10 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602381.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.04.2022Разработчик: © 2021 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E214120338CF1FF24121377F3094743F2B5F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232259   (602332) от 23.06.2018
 
 Airmail 3 v3.5.8 [Multi/Ru]
@@ -6,7 +113,7 @@ Airmail 3 v3.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602332.jpg" />
+  <img src="Z:/picture/008/save_picture_602332.jpg" />
 </div>
 
 
@@ -34,7 +141,7 @@ DxO PhotoLab ELITE Edition 1.2.0.75 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602256.jpg" />
+  <img src="Z:/picture/008/save_picture_602256.jpg" />
 </div>
 
 
@@ -62,7 +169,7 @@ Folx Pro 5.5.13723 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602240.jpg" />
+  <img src="Z:/picture/008/save_picture_602240.jpg" />
 </div>
 
 
@@ -90,7 +197,7 @@ ScreenFlow 7.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602207.jpg" />
+  <img src="Z:/picture/008/save_picture_602207.jpg" />
 </div>
 
 
@@ -119,7 +226,7 @@ Valentina Studio Pro 12.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602046.jpg" />
+  <img src="Z:/picture/008/save_picture_602046.jpg" />
 </div>
 
 
@@ -145,7 +252,7 @@ NCH ClickCharts Diagram Pro 6.62 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602028.jpg" />
+  <img src="Z:/picture/008/save_picture_602028.jpg" />
 </div>
 
 
@@ -171,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602003.jpg" />
+  <img src="Z:/picture/008/save_picture_602003.jpg" />
 </div>
 
 
@@ -197,7 +304,7 @@ ON1 Resize AI 2022.1 v16.1.1.12258 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602001.jpg" />
+  <img src="Z:/picture/008/save_picture_602001.jpg" />
 </div>
 
 
@@ -223,7 +330,7 @@ TotalFinder 1.14.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601996.jpg" />
+  <img src="Z:/picture/008/save_picture_601996.jpg" />
 </div>
 
 
@@ -250,7 +357,7 @@ Total War: WARHAMMER II v1.0.2 (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601785.jpg" />
+  <img src="Z:/picture/008/save_picture_601785.jpg" />
 </div>
 
 
@@ -276,7 +383,7 @@ Renamer 5.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601594.jpg" />
+  <img src="Z:/picture/008/save_picture_601594.jpg" />
 </div>
 
 
@@ -302,7 +409,7 @@ Serial Box (iSerial Reader 2.0.12 or Serial Seeker 1.3.8) 08-2013 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601366.jpg" />
+  <img src="Z:/picture/008/save_picture_601366.jpg" />
 </div>
 
 
@@ -330,7 +437,7 @@ Deliver Express 2.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601089.jpg" />
+  <img src="Z:/picture/008/save_picture_601089.jpg" />
 </div>
 
 
@@ -356,7 +463,7 @@ Chain Timer 8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601088.jpg" />
+  <img src="Z:/picture/008/save_picture_601088.jpg" />
 </div>
 
 
@@ -382,7 +489,7 @@ Script Debugger 8 v8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601087.jpg" />
+  <img src="Z:/picture/008/save_picture_601087.jpg" />
 </div>
 
 
@@ -409,7 +516,7 @@ BBEdit 14.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601007.jpg" />
+  <img src="Z:/picture/008/save_picture_601007.jpg" />
 </div>
 
 
@@ -435,7 +542,7 @@ The Unarchiver - Unzip RAR ZIP 3.3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600947.jpg" />
+  <img src="Z:/picture/008/save_picture_600947.jpg" />
 </div>
 
 
@@ -461,7 +568,7 @@ JustStream PRO 2.4 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600942.jpg" />
+  <img src="Z:/picture/008/save_picture_600942.jpg" />
 </div>
 
 
@@ -487,7 +594,7 @@ iMap Builder: Organisation 11.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600910.jpg" />
+  <img src="Z:/picture/008/save_picture_600910.jpg" />
 </div>
 
 
@@ -513,7 +620,7 @@ Corel Painter 2018 (18.0.0.600) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600906.jpg" />
+  <img src="Z:/picture/008/save_picture_600906.jpg" />
 </div>
 
 
@@ -540,7 +647,7 @@ SQLPro Studio 2022.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600894.jpg" />
+  <img src="Z:/picture/008/save_picture_600894.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ SQLPro for Postgre 2022.31 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600890.jpg" />
+  <img src="Z:/picture/008/save_picture_600890.jpg" />
 </div>
 
 
@@ -577,118 +684,6 @@ SQLPro для Postgres является передовым, но легким к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9996BA2D558E6B8F6C6DAB813C78BD0E178AC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149559   (600377) от 11.07.2017
-
-Nice Clipboard - a cloud synced clipboard manager 1.4.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nice Clipboard - это менеджер истории буфера обмена, который всегда ждет вас под значком меню на вашем Mac или на главном экране вашего iPhone. Он синхронизируется через iCloud между компьютерами Mac и iOS и построен с использованием новейших технологий Apple, чтобы быть легким и сверхбыстрым. Эти функции делают ваш буфер обмена гораздо более полезным инструментом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.07.2017Разработчик: Nice AppsПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF1A205B8B92904BD1CF93ECE9345C0EE966DA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149558   (600374) от 11.07.2017
-
-NetWorker - Advanced Network Information App 3.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600374.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetWorker отображает сетевую информацию в строке меню. В нем также есть окно, которое показывает дополнительную информацию о текущем активном сетевом адаптере.
-
- NetWorker: ● Полностью настраиваемый вид. Вы можете просматривать следующие свойства (поддерживаются загрузка и выгрузка): • Скорость • Ежедневный, месячный и общий трафик • График ● Текущий активный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.06.2017Разработчик: Sascha SimonПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712E4A166C83E9BD507A6AA00F616DB1726BE636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149569   (600373) от 11.07.2017
-
-Tooth Fairy 2.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tooth Fairy -  один клик для управления любым устройством посредством Bluetooth.
-Tooth Fairy поможет вам перейти от одного выбранного устройства Bluetooth к другому, непосредственно из меню или даже при помощи глобальных клавиш, которые вы сами зададите.
-
-Примечание. Tooth Fairy может подключаться к устройствам, которые могут быть подключены через меню системы bluetooth. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.07.2017Разработчик: Lu YibinПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D467C7CE70364374BD0EA24F1BA7688BDE6D1F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149497   (600301) от 11.07.2017
-
-Carbon Copy Cloner 4.1.16 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Copy Cloner –  утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 июня 2017Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56FC13D0F2574F9D991CE284899B8FC75ACF5764
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Internet Download Manager 6.25 Build 19 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748353.jpg" />
+  <img src="Z:/picture/008/save_picture_748353.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AVG Internet Security 2016 16.71.7598 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748351.jpg" />
+  <img src="Z:/picture/008/save_picture_748351.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ SideNotes 1.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748350.jpg" />
+  <img src="Z:/picture/008/save_picture_748350.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Permute 3 v3.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748346.jpg" />
+  <img src="Z:/picture/008/save_picture_748346.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Magic Battery 7.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748345.jpg" />
+  <img src="Z:/picture/008/save_picture_748345.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Wise Care 365 Pro 4.18.404 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748340.jpg" />
+  <img src="Z:/picture/008/save_picture_748340.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CCleaner 5.18.5607 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748338.jpg" />
+  <img src="Z:/picture/008/save_picture_748338.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Darkest of Days / Самый чёрный день [Ru/En] (RePack/1.05) 2009 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748320.jpg" />
+  <img src="Z:/picture/008/save_picture_748320.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Wirecast Pro 11.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748304.jpg" />
+  <img src="Z:/picture/008/save_picture_748304.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ HyperSnap 8.16.09 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748296.jpg" />
+  <img src="Z:/picture/008/save_picture_748296.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Telegram Desktop 1.5.12 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748288.jpg" />
+  <img src="Z:/picture/008/save_picture_748288.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ FreeFileSync 10.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748287.jpg" />
+  <img src="Z:/picture/008/save_picture_748287.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Ark and Neo | Подкасты (2014-2018) [MP3] [En]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748284.jpg" />
+  <img src="Z:/picture/008/save_picture_748284.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC2020-07-13) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748265.jpg" />
+  <img src="Z:/picture/008/save_picture_748265.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Adobe Flash Player 32.0.0.403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748254.jpg" />
+  <img src="Z:/picture/008/save_picture_748254.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748242.jpg" />
+  <img src="Z:/picture/008/save_picture_748242.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ iNet Network Scanner 2.8.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748240.jpg" />
+  <img src="Z:/picture/008/save_picture_748240.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ Dash 6.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748238.jpg" />
+  <img src="Z:/picture/008/save_picture_748238.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Wondershare PDFelement Pro OCR 8.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748234.jpg" />
+  <img src="Z:/picture/008/save_picture_748234.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ ExactScan Pro 22.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748222.jpg" />
+  <img src="Z:/picture/008/save_picture_748222.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ BurnAware Free 15.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748215.jpg" />
+  <img src="Z:/picture/008/save_picture_748215.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ RegCool 1.308 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748210.jpg" />
+  <img src="Z:/picture/008/save_picture_748210.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Ashampoo WinOptimizer 14.00.00 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748199.jpg" />
+  <img src="Z:/picture/008/save_picture_748199.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ CCleaner 5.18.5607 Professional | Business | Technician Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748195.jpg" />
+  <img src="Z:/picture/008/save_picture_748195.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748194.jpg" />
+  <img src="Z:/picture/008/save_picture_748194.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748188.jpg" />
+  <img src="Z:/picture/008/save_picture_748188.jpg" />
 </div>
 
 

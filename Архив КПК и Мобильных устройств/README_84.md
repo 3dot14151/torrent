@@ -1,3 +1,32 @@
+###  Публикация: 1423327   (301903) от 12.11.2020
+
+Horror Show v0.96 [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Horror Show - атмосферный хоррор на Android с необычным геймплеем. Вам предстоит выбрать, кем вы будете: маньяком или выжившим.
+
+Особенности игры Horror Show:
+Леденящие кровь звуковые эффекты;(   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 9 ноября 2020 г.Разработчик: Azur Interactive Games LimitedПоддерживаемая ОС: Android 4.4 и вышеЖанр: Action (Экшен)Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66ECE35EF94E78E482ED73DCD2F373BFE8A1CF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261754   (300895) от 12.11.2018
 
 The X Files v1.0 [Ru]
@@ -6,7 +35,7 @@ The X Files v1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300895.jpg" />
+  <img src="Z:/picture/008/save_picture_300895.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300842.jpg" />
+  <img src="Z:/picture/008/save_picture_300842.jpg" />
 </div>
 
 
@@ -59,7 +88,7 @@ Rewun Icon Pack 3.0.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300405.jpg" />
+  <img src="Z:/picture/008/save_picture_300405.jpg" />
 </div>
 
 
@@ -85,7 +114,7 @@ Coloring / Раскраска v2.0.63 Unlocked [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300396.jpg" />
+  <img src="Z:/picture/008/save_picture_300396.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ Pulsar Music Player Pro 1.2.0 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298451.jpg" />
+  <img src="Z:/picture/008/save_picture_298451.jpg" />
 </div>
 
 
@@ -137,7 +166,7 @@ Earth Protect Squad v2.07.64b [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297598.jpg" />
+  <img src="Z:/picture/008/save_picture_297598.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ Mad Contacts Widget 1.32 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297568.jpg" />
+  <img src="Z:/picture/008/save_picture_297568.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ Endurance: космический РПГ шутер v1.8.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297334.jpg" />
+  <img src="Z:/picture/008/save_picture_297334.jpg" />
 </div>
 
 
@@ -219,7 +248,7 @@ Plants vs. Zombies 3 20.0.265726 + MOD [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297053.jpg" />
+  <img src="Z:/picture/008/save_picture_297053.jpg" />
 </div>
 
 
@@ -245,7 +274,7 @@ Assassin's Creed Pirates 1.0.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296896.jpg" />
+  <img src="Z:/picture/008/save_picture_296896.jpg" />
 </div>
 
 
@@ -274,7 +303,7 @@ Vintage Scene v4.39 [En] -  создание эффекта старой фот�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296480.jpg" />
+  <img src="Z:/picture/008/save_picture_296480.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295914.jpg" />
+  <img src="Z:/picture/008/save_picture_295914.jpg" />
 </div>
 
 
@@ -327,7 +356,7 @@ Nomad Sculpt v1.32.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295455.jpg" />
+  <img src="Z:/picture/008/save_picture_295455.jpg" />
 </div>
 
 
@@ -353,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295230.jpg" />
+  <img src="Z:/picture/008/save_picture_295230.jpg" />
 </div>
 
 
@@ -379,7 +408,7 @@ Discovery: Золотая лихорадка / Gold Rush: 8 season (2017) HDTV [
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294798.jpg" />
+  <img src="Z:/picture/008/save_picture_294798.jpg" />
 </div>
 
 
@@ -405,7 +434,7 @@ Launcher 8 WP v3.4.4 VIP [Ru/Multi] - Полноценный лончер для
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293639.jpg" />
+  <img src="Z:/picture/008/save_picture_293639.jpg" />
 </div>
 
 
@@ -431,7 +460,7 @@ Anatomy & Physiology v4.1.16 [Multi] - анатомия и физиология 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293430.jpg" />
+  <img src="Z:/picture/008/save_picture_293430.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293255.jpg" />
+  <img src="Z:/picture/008/save_picture_293255.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ ES File Explorer Pro 1.0.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292505.jpg" />
+  <img src="Z:/picture/008/save_picture_292505.jpg" />
 </div>
 
 
@@ -509,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291978.jpg" />
+  <img src="Z:/picture/008/save_picture_291978.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ Guitar chords and tabs PRO 2.0.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291895.jpg" />
+  <img src="Z:/picture/008/save_picture_291895.jpg" />
 </div>
 
 
@@ -563,7 +592,7 @@ Photo Gallery and Screensaver v2.4.0 [En/Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291833.jpg" />
+  <img src="Z:/picture/008/save_picture_291833.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Breaking Bad v1.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291255.jpg" />
+  <img src="Z:/picture/008/save_picture_291255.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Fishing Kings HD 3.2.6 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291237.jpg" />
+  <img src="Z:/picture/008/save_picture_291237.jpg" />
 </div>
 
 
@@ -642,7 +671,7 @@ DiskDigger photo recovery 1.0-2018-11-15 Pro [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291076.jpg" />
+  <img src="Z:/picture/008/save_picture_291076.jpg" />
 </div>
 
 
@@ -653,32 +682,6 @@ DiskDigger может восстановить потерянные и фото 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D7552BEB49E5156944D0EFA7A60E2007426A3D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206761   (291071) от 17.11.2018
-
-Journey - дневник, журнал v2.7.0C [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встаньте на путь самосовершенствования, повышая качество жизни, любви и здоровья. Фиксируйте события, удачи и маленькие секреты вашей жизни, и вспоминайте эти прекрасные моменты вместе с Journey. Нам доверяют миллионы пользователей! Journey - идеальный компаньон, который сохранит ваши личные воспоминания на всю жизнь.Тип издания: Пиратка (разблокированная)Релиз состоялся: 16.11.2018Разработчик: Two App Studio Pte. Ltd.Поддерживаемая ОС: Android (версия зависит от устройства)Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:882C1EC6151549A9AF47146B9CD8C24B290F166B
 ```
 
 https://mybot314.ru/tekegram_catalog/

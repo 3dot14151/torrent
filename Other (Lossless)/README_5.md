@@ -6,7 +6,7 @@ VA - The Orient Collective: Agharta (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180108.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180108.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - The Orient Collective: From the Ancient Lands (2023) [FLAC|Lossless|WEB-DL|
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_180070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_180070.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173516.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161940.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Иисус Христос - Суперзвезда (Театр им. Мос
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_161883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_161883.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Ravi Shankar, Yehudi Menuhin - Shankar: Sitar Concertos and Other Works (2005) 2
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_157375.jpg" />
+  <img src="Z:/picture/005/save_picture_157375.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Eden Weint Im Grab - Nachtidyll - Ein Akustisches Zwischenspiel (2012) [FLAC|Los
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147407.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambien
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145285.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Die Toten kehren wieder mit dem Wind - Ein Wanderer (2013) [FLAC|Lossless|image 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141160.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135296.jpg" />
+  <img src="Z:/picture/005/save_picture_135296.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134223.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Globus - Epicon (2006) [APE|Lossless]<New Age, Epic Music>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131948.jpg" />
 </div>
 
 
@@ -369,7 +369,7 @@ VA - 80's Club Classics Repress (2003) 2CD [FLAC|Lossless]<Hip Hop, Electro, Sou
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130836.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129193.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ VA - The Orient Collective: Desert Tones (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126113.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ VA - The Orient Collective: Space Tribe (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122188.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ VA - The Orient Collective: Mithras (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115011.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114849.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114831.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114831.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110325.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ VA - The Orient Collective: Golden Sand (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109008.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ VA - The Orient Collective: Red Carpet (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_108875.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VA - The Orient Collective: Alchemy (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105166.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ VA - Golden Sound Of Panflute (2007) 3CD [WavPack|Lossless|image + .cue] <Romant
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105070.jpg" />
 </div>
 
 
@@ -723,7 +723,7 @@ The Orient Collective - Gateway to Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103827.jpg" />
 </div>
 
 
@@ -752,7 +752,7 @@ VA - The Orient Collective: Journey to the Soul (2024) [FLAC|Lossless|WEB-DL|tra
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_103754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103754.jpg" />
 </div>
 
 

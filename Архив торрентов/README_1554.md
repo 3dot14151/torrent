@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698874.jpg" />
+  <img src="Z:/picture/008/save_picture_698874.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ DJ Feel - TranceMission (01-05-2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698868.jpg" />
+  <img src="Z:/picture/008/save_picture_698868.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698867.jpg" />
+  <img src="Z:/picture/008/save_picture_698867.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ DjVuLibre DjView 4.10.1 RePack (& Portable) by Trovel [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698843.jpg" />
+  <img src="Z:/picture/008/save_picture_698843.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Re-Loader 1.3 RC 5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698838.jpg" />
+  <img src="Z:/picture/008/save_picture_698838.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698805.jpg" />
+  <img src="Z:/picture/008/save_picture_698805.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ SimpleMind 1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698781.jpg" />
+  <img src="Z:/picture/008/save_picture_698781.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Rayman Fiesta Run 1.2.6 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698771.jpg" />
+  <img src="Z:/picture/008/save_picture_698771.jpg" />
 </div>
 
 
@@ -227,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698766.jpg" />
+  <img src="Z:/picture/008/save_picture_698766.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698696.jpg" />
+  <img src="Z:/picture/008/save_picture_698696.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Screenshot Captor 4.21.1 Portable by Kopejkin [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698690.jpg" />
+  <img src="Z:/picture/008/save_picture_698690.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ MacBooster 5.0.0 Beta [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698687.jpg" />
+  <img src="Z:/picture/008/save_picture_698687.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ Nero Burning ROM 2015 16.0.02700 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698676.jpg" />
+  <img src="Z:/picture/008/save_picture_698676.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698674.jpg" />
+  <img src="Z:/picture/008/save_picture_698674.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Acronis Backup 11.5.43956 with Universal Restore [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698669.jpg" />
+  <img src="Z:/picture/008/save_picture_698669.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698661.jpg" />
+  <img src="Z:/picture/008/save_picture_698661.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698656.jpg" />
+  <img src="Z:/picture/008/save_picture_698656.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698615.jpg" />
+  <img src="Z:/picture/008/save_picture_698615.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Comedy Баттл. Новый сезон / Comedy Club (2018.04.20) HDTV [H.264/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698606.jpg" />
+  <img src="Z:/picture/008/save_picture_698606.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698573.jpg" />
+  <img src="Z:/picture/008/save_picture_698573.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698572.jpg" />
+  <img src="Z:/picture/008/save_picture_698572.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698571.jpg" />
+  <img src="Z:/picture/008/save_picture_698571.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698570.jpg" />
+  <img src="Z:/picture/008/save_picture_698570.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698569.jpg" />
+  <img src="Z:/picture/008/save_picture_698569.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698568.jpg" />
+  <img src="Z:/picture/008/save_picture_698568.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698567.jpg" />
+  <img src="Z:/picture/008/save_picture_698567.jpg" />
 </div>
 
 

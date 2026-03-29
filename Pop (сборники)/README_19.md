@@ -1,3 +1,61 @@
+###  Публикация: 1372826   (882128) от 05.04.2020
+
+VA - German Top 100 Single Charts 03.04.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_882128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zuna x Loredana - Du bist mein
+02. The Weeknd - Blinding Lights
+03. UFO361 - Allein sein
+04. Kontra K - Puste sie weg(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E860BA541196E93BAD3AD025C0DBF2D848EC9CF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373176   (882001) от 05.04.2020
+
+VA - Stand By Me: Planet Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_882001.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Connor - Fashion (Extended Version)
+002. Swimming Tapes - Keep Her Closer
+003. Mark Morrison - Return Of The Mack (C & J Street Mix)
+004. T-Micky - N'oublie Pas(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B623D5BD8B4A6EC5F60A98AAC3DB028D7863A1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 298700   (881726) от 21.02.2011
 
 VA - Зимний танцпол (2011) [MP3|256 kbps]<Pop>
@@ -6,7 +64,7 @@ VA - Зимний танцпол (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_881726.jpg" />
+  <img src="Z:/picture/009/save_picture_881726.jpg" />
 </div>
 
 
@@ -32,7 +90,7 @@ VA - Очень Горячая 200-ка 50/50 №3 (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_881599.jpg" />
+  <img src="Z:/picture/009/save_picture_881599.jpg" />
 </div>
 
 
@@ -58,7 +116,7 @@ VA - 200 Хитов Позитива (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_881428.jpg" />
+  <img src="Z:/picture/009/save_picture_881428.jpg" />
 </div>
 
 
@@ -84,7 +142,7 @@ VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 к
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881057.jpg" />
+  <img src="Z:/picture/005/save_picture_881057.jpg" />
 </div>
 
 
@@ -113,7 +171,7 @@ VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880628.jpg" />
+  <img src="Z:/picture/005/save_picture_880628.jpg" />
 </div>
 
 
@@ -142,7 +200,7 @@ VA - Best Of 2021 - Herbst/Winter (2021) 2CD [MP3|320 Kbps] <Hip Hop, Latin, Dan
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880611.jpg" />
+  <img src="Z:/picture/005/save_picture_880611.jpg" />
 </div>
 
 
@@ -171,7 +229,7 @@ VA - The Loveliness Disco (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880610.jpg" />
+  <img src="Z:/picture/005/save_picture_880610.jpg" />
 </div>
 
 
@@ -200,7 +258,7 @@ VA - Танцевальная зима. Снежная 100-ка выпуск №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880191.jpg" />
+  <img src="Z:/picture/005/save_picture_880191.jpg" />
 </div>
 
 
@@ -229,7 +287,7 @@ VA - Автозвук. Отборный зимний хит. Выпуск № 5 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880188.jpg" />
+  <img src="Z:/picture/005/save_picture_880188.jpg" />
 </div>
 
 
@@ -258,7 +316,7 @@ VA - Полный отрыв выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880179.jpg" />
+  <img src="Z:/picture/005/save_picture_880179.jpg" />
 </div>
 
 
@@ -287,7 +345,7 @@ VA - A Day for Love: Special Valentines Day Selection. Acoustic Versions of Love
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880170.jpg" />
+  <img src="Z:/picture/005/save_picture_880170.jpg" />
 </div>
 
 
@@ -316,7 +374,7 @@ VA - Дискотека зимних дорог. Индустрия поп му�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880153.jpg" />
+  <img src="Z:/picture/005/save_picture_880153.jpg" />
 </div>
 
 
@@ -345,7 +403,7 @@ VA - Только хиты. Русский сборник на Hit FM. Верс�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880038.jpg" />
+  <img src="Z:/picture/005/save_picture_880038.jpg" />
 </div>
 
 
@@ -374,7 +432,7 @@ Smokie - 100% Smokie (2020) [MP3|320 Kbps] <Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879933.jpg" />
+  <img src="Z:/picture/005/save_picture_879933.jpg" />
 </div>
 
 
@@ -403,7 +461,7 @@ VA - Оп-оп... Послушай поп (2015) MP3 (2015) [MP3|256 кб/с] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879400.jpg" />
+  <img src="Z:/picture/005/save_picture_879400.jpg" />
 </div>
 
 
@@ -432,7 +490,7 @@ VA - Популярный хитовый музыкайф. 100 хитов (2016)
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878985.jpg" />
+  <img src="Z:/picture/005/save_picture_878985.jpg" />
 </div>
 
 
@@ -461,7 +519,7 @@ Kenny G - 100% Kenny G (2020) [MP3|320 Kbps] <Pop, Jazz, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878425.jpg" />
+  <img src="Z:/picture/005/save_picture_878425.jpg" />
 </div>
 
 
@@ -490,7 +548,7 @@ VA - Сборник от CJ.Koka v.01 (2016) [MP3|320 кб/с] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877197.jpg" />
+  <img src="Z:/picture/005/save_picture_877197.jpg" />
 </div>
 
 
@@ -519,7 +577,7 @@ VA - Снежный популярный отрыв выпуск № 5 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876740.jpg" />
+  <img src="Z:/picture/005/save_picture_876740.jpg" />
 </div>
 
 
@@ -548,7 +606,7 @@ VA - На волне позитива выпуск № 2 (2017) [MP3|256 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876645.jpg" />
+  <img src="Z:/picture/005/save_picture_876645.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ VA - Молодежный бум хитовый. Версия № 3 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876643.jpg" />
+  <img src="Z:/picture/005/save_picture_876643.jpg" />
 </div>
 
 
@@ -606,7 +664,7 @@ VA - Зажигательный музон (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_876082.jpg" />
+  <img src="Z:/picture/009/save_picture_876082.jpg" />
 </div>
 
 
@@ -632,7 +690,7 @@ VA - Популярный музон хорошего настроения (2016
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875578.jpg" />
+  <img src="Z:/picture/005/save_picture_875578.jpg" />
 </div>
 
 
@@ -661,7 +719,7 @@ VA - Топ в тачку №2 (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875459.jpg" />
+  <img src="Z:/picture/005/save_picture_875459.jpg" />
 </div>
 
 
@@ -675,61 +733,6 @@ VA - Топ в тачку №2 (2016) [MP3|256 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07868184C49D2E654DA19C05491D9CF154608C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 300504   (874660) от 25.02.2011
-
-VA - Лучшие хиты «Авто Радио» vol.4 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_874660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F71F911871935D3929BD52FB4E637A7124EF14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106060   (873831) от 19.02.2017
-
-VA - Зимняя русская радиоволна. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alekseev - Держи Меня 4:37
-002. Supernova - Я И Мои Девочки 3:09
-003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
-004. Султан (Sultan) - Она Моя 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C1E325ABF4FDFFA36A0E5F7AA550ED1D58DD2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

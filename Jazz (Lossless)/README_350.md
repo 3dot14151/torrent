@@ -1,3 +1,119 @@
+###  Публикация: 1784320   (69557) от 10.03.2025
+
+Art Pepper - Straight Life: The Savoy Sessions (1986) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight Life [2:54]
+02. Chili Pepper [2:59]
+03. Cinnamon [3:09]
+04. Tickle Toe [2:53](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BFAD4E79B25910A94759F237B18AD19D9D084F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784508   (69553) от 11.03.2025
+
+Chick Corea - Now He Sings, Now He Sobs (1968) 2024, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steps - What Was [13:55]
+02. Matrix [6:32]
+03. Now He Sings - Now He Sobs [7:07]
+04. Now He Beats the Drum - Now He Stops [10:40](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11421191A2CC41A1B9939279E0FE49790A1B496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784654   (69533) от 12.03.2025
+
+Art Pepper - The Trip (1976) 1987, Victor [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trip (original take) [8:58]
+02. The Trip (alternate take) [13:02]
+03. A Song for Richard [6:19]
+04. Sweet Love of Mine [6:37](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25E6EC71A36FBACB6915EF76166B84479D5CED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784660   (69532) от 12.03.2025
+
+Art Pepper - The Way It Was! (1956 - 1960) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Believe That You're in Love with Me [5:26]
+02. I Can't Believe That You're in Love with Me (alternate take) [5:38]
+03. All the Things You Are [6:36]
+04. All the Things You Are (alternate take) [6:31](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:52:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0747B04530DCCDCFCA42B86B62774146A58D3730
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784509   (69531) от 12.03.2025
 
 Bud Powell - Bud's Bubble (1944 - 1947) 2000, EPM Musique [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
@@ -6,7 +122,7 @@ Bud Powell - Bud's Bubble (1944 - 1947) 2000, EPM Musique [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69531.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Bud Powell - Jazz Giant (1949, 1950) 2001, Verve Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69530.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Art Pepper - Winter Moon (1980) 2005, Galaxy [FLAC|Lossless|tracks + .cue] <Cool
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69487.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ The Bud Powell Trio - Time Was (1956, 1957) 1987, Bluebird [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69484.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Tony Scott - Three Classic Albums Plus (1953 - 1958) 2CD, 2013, Avid Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69483.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Art Pepper - Timeless (1952, 1953) 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69413.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Bud Powell - The Definitive Bud Powell (1947 - 1953) 2002, Blue Note [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69411.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Art Pepper - Neon Art: Volume One (1981) 2015, Omnivore Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69296.jpg" />
 </div>
 
 
@@ -236,7 +352,7 @@ Art Pepper - Neon Art: Volume Two (1981) 2015, Omnivore Recordings [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69293.jpg" />
 </div>
 
 
@@ -264,7 +380,7 @@ Wayne Shorter - Night Dreamer (1964) 2024, Universal [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69291.jpg" />
 </div>
 
 
@@ -293,7 +409,7 @@ VA - Funky Atmospheres (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69252.jpg" />
 </div>
 
 
@@ -322,7 +438,7 @@ VA - Fusion Jazz Funk Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion &
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69240.jpg" />
 </div>
 
 
@@ -351,7 +467,7 @@ Sonny Rollins - In Denmark, Vol.1 (1968) 1992, Moon Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69212.jpg" />
 </div>
 
 
@@ -378,7 +494,7 @@ Sonny Rollins - In Denmark, Vol.2 (1968) 1992, Moon Records [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69210.jpg" />
 </div>
 
 
@@ -407,7 +523,7 @@ VA - Jazz House Party Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69112.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69112.jpg" />
 </div>
 
 
@@ -436,7 +552,7 @@ VA - Jazztronical 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69110.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ Wayne Shorter - Juju (1964) 2024, Universal [FLAC|Lossless|tracks + .cue] <Hard 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69104.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ Anita O'Day - Live At Basie (1978) 2007, Ratspack Records [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69103.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ Phil Woods - Four Classic Albums (1956 - 1961) 2CD, 2015, Avid Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69096.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ Project G-7 - Tribute to Wes Montgomery, Vol.1 (1993) Evidence [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69014.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ Project G-7 - Tribute to Wes Montgomery, Vol.2 (1993) Evidence [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69013.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ Herbie Hancock - My Point Of View (1963) 2024,Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69012.jpg" />
 </div>
 
 
@@ -624,122 +740,6 @@ Herbie Hancock - My Point Of View (1963) 2024,Universal [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A018DF0FC5615C9F7D8219DA0C1042966657C2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786606   (68963) от 21.03.2025
-
-Buck Hill - I'm Beginning To See The Light (1991) Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Hill [3:55]
-02. Lullaby of Loosdrecht [7:59]
-03. Mitzi [4:41]
-04. Bossa for Sax [9:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:728189B35F69A06594CA73AFD2BB0DCA89A57A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786603   (68959) от 21.03.2025
-
-Warren Vache - Talk To Me Baby (1996) Muse Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Y Va (Off We Go) [4:16]
-02. The Arrival [6:39]
-03. You'll Never Know [4:48]
-04. The Eels Nephew [4:19](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B848B8DA174DEF385CE0780FF1336A4F93B973E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786779   (68918) от 22.03.2025
-
-Jay Hoggard - The Fountain (1992) Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Potato [9:11]
-02. Stompin' at the Savoy [7:29]
-03. Prelude to a Kiss [7:30]
-04. Starting Over [4:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6D69D927F9C9A4AE597A30AF0C89A09960F7EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786781   (68914) от 22.03.2025
-
-Randy Johnston - Jubilation (1994) Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jubilation [4:10]
-02. One for Detroit [5:50]
-03. You Are Too Beautiful [7:35]
-04. Willow Weep for Me [9:09](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE472F399720A04CAE30D99DE6D901454139850F
 ```
 
 https://mybot314.ru/tekegram_catalog/

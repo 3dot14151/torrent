@@ -1,3 +1,32 @@
+###  Публикация: 1135285   (683052) от 18.05.2017
+
+Лидия Грибова (сост.) | Птичка-пуночка (1980) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_683052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно, а когда именно, никто и не знает, стали рассказывать сказки. Каждым народом свои сказки сложены, каждый народ любит, помнит и бережёт свои сказки. Те, что собраны в этой книге, — придуманы чукчами и эскимосами.
+
+Живут чукчи и эскимосы в тундре, на Крайнем Севере нашей страны, на Чукотском полуострове, у холодных морей.
+(   Читать дальше...   )Жанр: Детская проза, СказкаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4961004D81D67134CC9F80C4A21E1A2E9A9D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222670   (683037) от 30.04.2018
 
 Н.В. Тулупов, П.М. Шестаков (ред.) | Разсказы. Басни. Стихотворения (1916) [PDF]
@@ -6,7 +35,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683037.jpg" />
+  <img src="Z:/picture/008/save_picture_683037.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683036.jpg" />
+  <img src="Z:/picture/008/save_picture_683036.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682780.jpg" />
+  <img src="Z:/picture/008/save_picture_682780.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682359.jpg" />
+  <img src="Z:/picture/008/save_picture_682359.jpg" />
 </div>
 
 
@@ -110,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682079.jpg" />
+  <img src="Z:/picture/008/save_picture_682079.jpg" />
 </div>
 
 
@@ -136,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681340.jpg" />
+  <img src="Z:/picture/008/save_picture_681340.jpg" />
 </div>
 
 
@@ -166,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681200.jpg" />
+  <img src="Z:/picture/008/save_picture_681200.jpg" />
 </div>
 
 
@@ -192,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680923.jpg" />
+  <img src="Z:/picture/008/save_picture_680923.jpg" />
 </div>
 
 
@@ -218,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680516.jpg" />
+  <img src="Z:/picture/008/save_picture_680516.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680355.jpg" />
+  <img src="Z:/picture/008/save_picture_680355.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680256.jpg" />
+  <img src="Z:/picture/008/save_picture_680256.jpg" />
 </div>
 
 
@@ -298,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680255.jpg" />
+  <img src="Z:/picture/008/save_picture_680255.jpg" />
 </div>
 
 
@@ -324,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680170.jpg" />
+  <img src="Z:/picture/008/save_picture_680170.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679387.jpg" />
+  <img src="Z:/picture/008/save_picture_679387.jpg" />
 </div>
 
 
@@ -378,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679320.jpg" />
+  <img src="Z:/picture/008/save_picture_679320.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679294.jpg" />
+  <img src="Z:/picture/008/save_picture_679294.jpg" />
 </div>
 
 
@@ -432,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679285.jpg" />
+  <img src="Z:/picture/008/save_picture_679285.jpg" />
 </div>
 
 
@@ -461,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679261.jpg" />
+  <img src="Z:/picture/008/save_picture_679261.jpg" />
 </div>
 
 
@@ -487,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679132.jpg" />
+  <img src="Z:/picture/008/save_picture_679132.jpg" />
 </div>
 
 
@@ -513,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679129.jpg" />
+  <img src="Z:/picture/008/save_picture_679129.jpg" />
 </div>
 
 
@@ -539,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678544.jpg" />
+  <img src="Z:/picture/008/save_picture_678544.jpg" />
 </div>
 
 
@@ -566,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678491.jpg" />
+  <img src="Z:/picture/008/save_picture_678491.jpg" />
 </div>
 
 
@@ -594,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678489.jpg" />
+  <img src="Z:/picture/008/save_picture_678489.jpg" />
 </div>
 
 
@@ -623,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678183.jpg" />
+  <img src="Z:/picture/008/save_picture_678183.jpg" />
 </div>
 
 
@@ -649,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678182.jpg" />
+  <img src="Z:/picture/008/save_picture_678182.jpg" />
 </div>
 
 
@@ -661,34 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B01678E7C005027EDD51A9FAAE17B8131ECC7B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223178   (677411) от 03.05.2018
-
-А. Худошин | Рассказы старца Паисия (2014) [PDF, DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677411.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике представлены поучения старца Паисия Афонского, пересказанные простым и понятным ребёнку языком. Автор не упустил описать жизнь самого старца, а также святогорский быт. Книга рассчитана на детей возраста 6-14 лет.
-
-Рассказы сопровождены яркими и запоминающимися стихотворениями и красочными иллюстрациями. Книга станет хорошим подарком для детей и юношества. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1897D8A4C21AC8C76AD9379444304E014A8525F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

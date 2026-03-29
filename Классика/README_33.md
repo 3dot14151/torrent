@@ -6,7 +6,7 @@ Schubert - Piano transcriptions (Antti Siirala ) (2003) [FLAC|image +.cue]<Class
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435846.jpg" />
+  <img src="Z:/picture/008/save_picture_435846.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ludovico Einaudi - Undiscovered (2020) Compilation [FLAC|Lossless|WEB-DL|tracks]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435814.jpg" />
+  <img src="Z:/picture/008/save_picture_435814.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Weekend classics series by Deutsche Grammophon (11 CD из 35) (2006) [APE,
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435492.jpg" />
+  <img src="Z:/picture/008/save_picture_435492.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ David Garrett - Explosive (2015) Deluxe Edition [MP3|320 кб/с]<Classical, Cro
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435265.jpg" />
+  <img src="Z:/picture/008/save_picture_435265.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Arianna Savall - Peiwoh (2009) [FLAC|Lossless|tracks + .cue] <Classical, Vocal M
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434675.jpg" />
+  <img src="Z:/picture/008/save_picture_434675.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Wolfgang Amadeus Mozart - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] 
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434291.jpg" />
+  <img src="Z:/picture/008/save_picture_434291.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ludwig Van Beethoven - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Cl
 >>Классика (сборники) (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434287.jpg" />
+  <img src="Z:/picture/008/save_picture_434287.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Lubomyr Melnyk - Rivers and Streams (2015) [FLAC|Lossless|tracks + .cue] <Classi
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433303.jpg" />
+  <img src="Z:/picture/008/save_picture_433303.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ BrunuhVille - The Eternal Forest (2011) [MP3|320 кб/с]<Neo-Classical, Instrum
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431447.jpg" />
+  <img src="Z:/picture/008/save_picture_431447.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ BrunuhVille - Tales From The Lost Kingdom (2012) [MP3|320 кб/с]<Neo-Classical
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431434.jpg" />
+  <img src="Z:/picture/008/save_picture_431434.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ BrunuhVille - Once Upon A Time (2011) [MP3|320 кб/с]<Neo-Classical, Instrumen
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431252.jpg" />
+  <img src="Z:/picture/008/save_picture_431252.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Claudio Constantini, Louiza Hamadi - 20th Century Tango (2020) Ibc classical [FL
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429534.jpg" />
+  <img src="Z:/picture/008/save_picture_429534.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Franz Schubert - Symphonies Nos. 1 & 2 (Claudio Abbado & The Chamber Orchestra o
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429311.jpg" />
+  <img src="Z:/picture/008/save_picture_429311.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Полные собрания сочинений (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428637.jpg" />
+  <img src="Z:/picture/008/save_picture_428637.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Roman Ilyin - Pieces. Part 1 (2019) [MP3|320 Kbps] <Modern classical, ensemble, 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427332.jpg" />
+  <img src="Z:/picture/008/save_picture_427332.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ The New London Chorale - The Young Beethoven (1990) [FLAC|Lossless|image + .cue]
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426974.jpg" />
+  <img src="Z:/picture/008/save_picture_426974.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - The Best 50 of Classical Piano (2022) [FLAC|Lossless|WEB-DL|tracks] <Classi
 >>Фортепиано (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425404.jpg" />
+  <img src="Z:/picture/008/save_picture_425404.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ The New London Chorale - The Young Handel (1995) [FLAC|Lossless|image + .cue] <�
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424617.jpg" />
+  <img src="Z:/picture/008/save_picture_424617.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ BrunuhVille - Northwind (2015) [MP3|320 кб/с]<Neo-Classical, Instrumental, Ce
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422479.jpg" />
+  <img src="Z:/picture/008/save_picture_422479.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Roman Ilyin - Pieces. Part 2 (2019) [MP3|320 Kbps] <Modern classical, ensemble, 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420965.jpg" />
+  <img src="Z:/picture/008/save_picture_420965.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Rossini - Guillaume Tell (Lamberto Gardelli & Royal Philharmonic Orchestra) (201
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420265.jpg" />
+  <img src="Z:/picture/008/save_picture_420265.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Prokofiev - Symphony No.1, Piano Concertos Nos.1 & 2 (Karel Ancerl) (2002) [FLAC
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420124.jpg" />
+  <img src="Z:/picture/008/save_picture_420124.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ VA - Избранное (2007) [MP3|320]<Классика>
 >>Классика (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_418564.jpg" />
+  <img src="Z:/picture/005/save_picture_418564.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Beethoven - Chamber Music for Winds Vol.1 (Consortium Classicum) (1996) [FLAC| i
 >>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417966.jpg" />
+  <img src="Z:/picture/008/save_picture_417966.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ David Garrett - Rock Revolution (2017) Deluxe Edition [MP3|320 Kbps] <Classical 
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416639.jpg" />
+  <img src="Z:/picture/008/save_picture_416639.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ Nicolo Paganini (1782-1840) The 6 Violin Concertos (3CD) [MP3|320 kb/s]<Classica
 >>Концерты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_416526.jpg" />
+  <img src="Z:/picture/005/save_picture_416526.jpg" />
 </div>
 
 

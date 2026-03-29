@@ -6,7 +6,7 @@ Cacheman 10.0.1.0 DC 18.06.2016 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698119.jpg" />
+  <img src="Z:/picture/008/save_picture_698119.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chromodo Browser 50.14.22.468 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698116.jpg" />
+  <img src="Z:/picture/008/save_picture_698116.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiseesoft Total Video Converter 9.0.16 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698115.jpg" />
+  <img src="Z:/picture/008/save_picture_698115.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Yate 6.0.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698108.jpg" />
+  <img src="Z:/picture/008/save_picture_698108.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Texpad 1.8.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698106.jpg" />
+  <img src="Z:/picture/008/save_picture_698106.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698102.jpg" />
+  <img src="Z:/picture/008/save_picture_698102.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698095.jpg" />
+  <img src="Z:/picture/008/save_picture_698095.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_698081.jpg" />
+  <img src="Z:/picture/005/save_picture_698081.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Bong-Ra - Megasaurus / Gargantuan (2010) [MP3|320 kbps]<Drum&Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698058.jpg" />
+  <img src="Z:/picture/008/save_picture_698058.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698041.jpg" />
+  <img src="Z:/picture/008/save_picture_698041.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698037.jpg" />
+  <img src="Z:/picture/008/save_picture_698037.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Cisdem Video Converter 6.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698033.jpg" />
+  <img src="Z:/picture/008/save_picture_698033.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Tipard PDF Converter Platinum 3.3.6 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698031.jpg" />
+  <img src="Z:/picture/008/save_picture_698031.jpg" />
 </div>
 
 
@@ -358,7 +358,7 @@ DJ KUBA & NEITAN - Live @ Sunrise Festival Poland 2020-07-25 [MP3|320 Kbps] <Ele
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698030.jpg" />
+  <img src="Z:/picture/008/save_picture_698030.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Max Million - Monogramma EP (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <Psybient
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698028.jpg" />
+  <img src="Z:/picture/008/save_picture_698028.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Thomas Newman - Finding Dory / В поисках Дори (Original Motion Pictu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698018.jpg" />
+  <img src="Z:/picture/008/save_picture_698018.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698017.jpg" />
+  <img src="Z:/picture/008/save_picture_698017.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Anvir Task Manager 8.1.2 DC 18.06.2016 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698016.jpg" />
+  <img src="Z:/picture/008/save_picture_698016.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Mitti 1.5.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698015.jpg" />
+  <img src="Z:/picture/008/save_picture_698015.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ De/Vision - 13 (2016) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, New Wave>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698014.jpg" />
+  <img src="Z:/picture/008/save_picture_698014.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ iTrash 5.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698009.jpg" />
+  <img src="Z:/picture/008/save_picture_698009.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698002.jpg" />
+  <img src="Z:/picture/008/save_picture_698002.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Dropbox 1.1.31 [Multilanguage]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_697979.jpg" />
+  <img src="Z:/picture/005/save_picture_697979.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ App Icon Generator 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697932.jpg" />
+  <img src="Z:/picture/008/save_picture_697932.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697926.jpg" />
+  <img src="Z:/picture/008/save_picture_697926.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Windows Repair (All In One) 3.9.2 Pro + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697921.jpg" />
+  <img src="Z:/picture/008/save_picture_697921.jpg" />
 </div>
 
 

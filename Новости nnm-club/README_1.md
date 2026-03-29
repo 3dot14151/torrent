@@ -1,3 +1,109 @@
+###  Публикация: 1840330   (1047276) от 05.12.2025
+
+Micron закрыла бренд Crucial и свернула производство потребительских SSD и ОЗУ, направив все силы на ИИ
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1047276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Micron объявила о том, что она фактически упраздняет бренд Crucial, под которым производила модули оперативной памяти и SSD. Если точнее, Micron говорит о выходе из потребительского бизнеса Crucial.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840294   (1047088) от 04.12.2025
+
+Роскомнадзор начал менять подход к блокировке запрещенного контента
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1047088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскомнадзор обновил настройки систем противодействия угрозам, что привело к сбоям в работе VPN в России. Так регулятор пытается усложнить доступ к средствам обхода блокировок для пользователей, объясняют эксперты
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839715   (1046753) от 01.12.2025
+
+В России открылось ещё одно производство материалов для печатных плат
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046753.jpg" />
+</div>
+
+
+###  Подробнее
+
+На заводе будут выпускать фольгированные диэлектрики и препреги как для стандартных задач, так и для высокочастотных и высокоскоростных устройств.Мощности завода рассчитаны на выпуск до 1,25 млн м² продукции в год. Из них 300 000 м² подходят для производства плат 6 и 7 классов точности, то есть более сложных и плотных по компоновке. Такие платы используют (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1839331   (1046682) от 30.11.2025
+
+Ученые выяснили, когда мозг перестает развиваться: 32 года — точка невозврата
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый анализ почти четырёх тысяч МРТ-сканов показал, что человеческий мозг проходит через пять заметно различающихся этапов, и каждый связан с перестройкой внутренней структуры, влияющей на способы обработки информации. Эти длительные периоды задают траекторию умственного развития — от первых лет жизни до глубокой старости — и в итоге определяют, как меняются когнитивные (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 11914   (1046561) от 28.11.2025
 
 Карлос Кастанеда  |  Полное собрание сочинений.
@@ -6,7 +112,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046561.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Neiry представила управляемых «голубей-биодр�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046550.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046540.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Visualcapitalist: Китай опередил Европу по потребле
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046462.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046379.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ BLACKTAIL (2022) [Ru/Multi] (1.4) License GOG
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046365.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046364.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ Aven Colony (2017) [Ru/En] (1.0.25665/dlc) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046363.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (Build 10114057/d
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045961.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045960.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045959.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ Udemy, YouRa Allakhverdov | Современный React - с Нуля до Пр
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045699.jpg" />
 </div>
 
 
@@ -321,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045696.jpg" />
 </div>
 
 
@@ -350,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045612.jpg" />
 </div>
 
 
@@ -376,7 +482,7 @@ BELOFF 2023 (Авторская раздача)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045610.jpg" />
 </div>
 
 
@@ -402,7 +508,7 @@ Aqua Mail Pro v1.42.0-239 [Ru/Ml]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045530.jpg" />
 </div>
 
 
@@ -429,7 +535,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1045528.jpg" />
+  <img src="Z:/picture/005/save_picture_1045528.jpg" />
 </div>
 
 
@@ -455,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045527.jpg" />
 </div>
 
 
@@ -482,7 +588,7 @@ Microsoft Office 2016-2019 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1045526.jpg" />
+  <img src="Z:/picture/005/save_picture_1045526.jpg" />
 </div>
 
 
@@ -508,7 +614,7 @@ PC Building Simulator (2019) [Ru/Multi] (1.15.3.0/dlc) License GOG [Overclocked 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045235.jpg" />
 </div>
 
 
@@ -534,7 +640,7 @@ AMD обнаружила 31 новую уязвимость в своих про
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044902.jpg" />
 </div>
 
 
@@ -560,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044890.jpg" />
 </div>
 
 
@@ -571,112 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF607F7277061C948DE6DAAA8DB5C4B83BFFD830
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605380   (1044801) от 18.01.2023
-
-Очередное достижение: 1000 релизов от krochka1
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1044801.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 1000 релизов от krochka1!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища krochka1 с 1000-м релизом! Спасибо за регулярное пополнение трекера отличной музыкой!
-От всей души поздравляем с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnm-club!  :pozdravlyayu:Надеюсь, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525728   (1044781) от 18.01.2023
-
-Терминатор 2: Судный день / Terminator 2: Judgment Day (1991) BDRip [H.264/1080p-LQ] [Extended Special Edition] [handmade remastered AI]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война роботов и людей продолжается. Казалось, что человечество обречено на полное уничтожение. Но благодаря своему лидеру Джону Коннору у сопротивления появляется шанс победить. Не имея возможности убить Джона в реальном времени, роботы отправляют в прошлое свою самую совершенную разработку - терминатора-убийцу из жидкого металла, способного принимать любое обличье. (   Читать дальше...   )Производство: США, Франция / Carolco Pictures, Pacific Western, Lightstorm Entertainment, Canal+Жанр: Фантастика, Боевик, ТриллерРежиссер: Джеймс КэмеронАктеры: Арнольд Шварценеггер, Линда Хэмилтон, Эдвард Ферлонг, Роберт Патрик, Эрл Боэн, Джо Мортон, С. Ипейта Меркерсон, Кастуло Герра, Дэнни Кукси, Дженетт ГолдстинПеревод: Дублированный (со вставками MVO от Позитив)Субтитры: Русские, английскиеПродолжительность: 02:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27D622CE2168EF6439B7607B07B6F6F17847E08C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605724   (1044662) от 19.01.2023
-
-Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (01.2023) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 7 SP1, включающая в себя 13 русских редакций и 13 английских редакций x86/x64, с обновлениями по 01.2023, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F8E7C2D834287D0991F28BAC8709EFBD9BA7B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536159   (1044659) от 19.01.2023
-
-Многоавторский сборник | Серия супер-крупных книг «Diximir» (старое название: «Абсолют») [62 книг] (2018-2023) [FB2, PDF] [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия супер-крупных книг «Diximir» (старое название: «Абсолют»), на сегодняшний день наиболее мощное собрание компиляций в сети. В каждом томе собраны все произведения одного из представленных авторов, а их в серии очень много и все они являются признанными литературными мэтрами.
-Книги изготовлены мастером Diximir на очень высоком уровне, как в чисто техническом (   Читать дальше...   )Жанр: МногожанровыйИздательство: Интернет издательство «Diximir»Формат: FB2, PDFКачество: Изначально электронное (ebook), обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A586EEABB72CDB39F71C97AF475ED045B9BAABA
 ```
 
 https://mybot314.ru/tekegram_catalog/

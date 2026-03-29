@@ -1,3 +1,107 @@
+###  Публикация: 918873   (585749) от 16.07.2015
+
+NG: Миссия Плутон (Встреча с Плутоном) / Mission Pluto (2015) HDTVRip [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_585749.jpg" />
+</div>
+
+
+###  Подробнее
+
+После путешествия длиной в три миллиарда миль Космический зонд "Новые горизонты", отправленный к Плутону почти 10 лет назад, впервые передал на Землю уникальные снимки этой далекой планеты. В этой передачи мы узнаем о трудностях, которые пришлось преодолевать разработчикам проекта и перспективах в изучении последнего и самого далёкого объекта Солнечной (   Читать дальше...   )Телекомпания: Bigger Bang Communications Ltd for National Geographic ChannalЖанр: Документальный, научно-познавательный, космосРежиссер: Nic YoungПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17A0D069EB7DEC9A2F3E1E06E449924C2F845D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553900   (580873) от 27.05.2022
+
+Дикие кошки Таиланда / Thailand's Wild Cats (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_580873.jpg" />
+</div>
+
+
+###  Подробнее
+
+В джунглях Таиланда скрыто древнее царство - последнее убежище тайских диких кошек. Эти почти невидимые идеальные охотники все время проводят в поисках добычи, выборе партнера и защите своего потомства. В этом непроходимом лесу, где живут дымчатый леопард, азиатская кошка-рыболов и король джунглей - тигр, разворачиваются драмы невиданного напряжения и масштаба.Производство: Великобритания, Южная Африка, Warehouse 51 Productions, Lion Mountain Media, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Питер ЛамбертиПеревод: дублированныйСубтитры: английскиеПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01E2667F590A310BE360593A3F90FE758F1C9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554313   (578795) от 29.05.2022
+
+Египет с высоты птичьего полёта / Egypt from Above (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 2)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египет... Родина одной из древнейших могучих и долговечных цивилизаций в мире. Захватывающее путешествие по воздуху позволит нам посетить самые удивительные места и покажет, как невероятные достижения древних помогли сформировать современный Египет. Обозревая грандиозный ландшафт с высоты птичьего полёта, мы узнаем, как многие поколения египтян строили уникальное (   Читать дальше...   )Производство: Великобритания, Windfall Films LTD, National GeographicЖанр: документальный, история, путешествия, культураРежиссер: Мэтт Каррингтон, Фрэнки Фазерс / Matt Currington, Frankie FathersПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: 2x ~00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75FF7F339E40AF7053C6B315519B6D4ACB4B222A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233748   (578058) от 01.07.2018
+
+NGW: Пир драконов / Dragons Feast (Into the Dragon's Lair) (2012) HDTVRip [H.264/1080i-LQ] [hand made 50 fps]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посмотрите на яростное пожирание добычи крокодилами, благодаря кадрам, снятым человеком, рискнувшим оказаться среди них в момент их трапезы.Производство: США, NHU Africa, Foster Brothers Film Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Крейг Фостер, Деймон ФостерПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13FEA91A0C63F59BB2AD6C7FC397491B33378519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233568   (577928) от 01.07.2018
 
 NGW: Кошачья душа / Soul of the Cat (2017) HDTVRip [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NGW: Кошачья душа / Soul of the Cat (2017) HDTVRip [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577928.jpg" />
+  <img src="Z:/picture/008/save_picture_577928.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Дикая природа Индонезии / Wild Indonesia (2014) HDTV [
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577867.jpg" />
+  <img src="Z:/picture/008/save_picture_577867.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Хиросима: На следующий день / Hiroshima: The Next Dey
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577835.jpg" />
+  <img src="Z:/picture/008/save_picture_577835.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577517.jpg" />
+  <img src="Z:/picture/008/save_picture_577517.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Птичья популяция / Bird Nation (2018) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576000.jpg" />
+  <img src="Z:/picture/008/save_picture_576000.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW: Хищник в раю. Прибрежные убийцы / Predator in Par
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575995.jpg" />
+  <img src="Z:/picture/008/save_picture_575995.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NGW. Королевство обезьян: Брат против брата / K
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575987.jpg" />
+  <img src="Z:/picture/008/save_picture_575987.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ NGW: По следам мифических чудовищ. Монгольски
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575784.jpg" />
+  <img src="Z:/picture/008/save_picture_575784.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575191.jpg" />
+  <img src="Z:/picture/008/save_picture_575191.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ NG: Суперсооружения Третьего рейха / Nazi Megastruct
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575186.jpg" />
+  <img src="Z:/picture/008/save_picture_575186.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ NG: Осушить океан: затонувший город пиратов / 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574057.jpg" />
+  <img src="Z:/picture/008/save_picture_574057.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ NG: Восхождение чёрного волка / The Rise of black Wolf (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572596.jpg" />
+  <img src="Z:/picture/008/save_picture_572596.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572375.jpg" />
+  <img src="Z:/picture/008/save_picture_572375.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ NG: Последние львы / The Last Lions (2011) BDRip [H.264/720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571685.jpg" />
+  <img src="Z:/picture/008/save_picture_571685.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NGW: Слон: Король Калахари / Elephant. King of the Kalahari (2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570902.jpg" />
+  <img src="Z:/picture/008/save_picture_570902.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NGW: Прекрасная Америка: Величественный Севе�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570759.jpg" />
+  <img src="Z:/picture/008/save_picture_570759.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NGW: Прекрасная Америка. На границе с дикой пр
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570631.jpg" />
+  <img src="Z:/picture/008/save_picture_570631.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NG: Последние животные / The Last Animals (2017) HDTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570507.jpg" />
+  <img src="Z:/picture/008/save_picture_570507.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NG:  Дорога в ад / Descent into Hell (2002) SATRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568680.jpg" />
+  <img src="Z:/picture/008/save_picture_568680.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NG.Запреты: Соединённые Штаты алкоголя / NG.Taboo
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568675.jpg" />
+  <img src="Z:/picture/008/save_picture_568675.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567025.jpg" />
+  <img src="Z:/picture/008/save_picture_567025.jpg" />
 </div>
 
 
@@ -557,7 +661,7 @@ NGW: Хищник в раю. Битва в джунглях / Predator in Paradi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566993.jpg" />
+  <img src="Z:/picture/008/save_picture_566993.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ NGW: Хищник в раю. Битва в джунглях / Predator in Paradi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A5719A974528F2AE4D60701684BF627C4D171C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234870   (565736) от 08.07.2018
-
-NGW: В мире дикой природы. Долина смерти / Into The Wilderness. Death Valley (2009) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долина смерти. Межгорная впадина в Калифорнии. Одно из самых суровых и безжизненных мест на планете. По иронии судьбы самый засушливый регион западного полушария находится над крупнейшей подземной водной системой США. А этот водоем хранит в себе крохотную рыбку, которая существовала ещё в Ледниковом периоде. Их осталось всего пара сотен.Производство: США, National Geographic Channel Network International, LLCЖанр: Документальный, природа, флора, фаунаРежиссер: Тодд ГерманнПеревод: Двуголосый закадровый, профессиональный (Первый ТВЧ)Субтитры: отсутствуютПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0041A20EC35BE715FCE459C0FCE0D9B0632318D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234965   (565734) от 08.07.2018
-
-NG: Кладбище воинов. Флотилия проклятых / Warrior Graveyard. Navy of the Damned (2011) HDTVRip [H.264/1080i-LQ] [PR]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Останки моряков были обнаружены в районе трех морских портов на юге Англии. Благодаря кропотливой судебно-медицинской экспертизы, подробно изучены останки шести человек, которые служили в Королевском флоте в течение 18 и 19 веков. Их кости обнаруживают шокирующий ряд заболеваний, в том числе цинга, недоедание, венерические заболевания, переломы, ампутированные конечности, (   Читать дальше...   )Производство: США, October Films, Channel4, National Geographic ChannelЖанр: Документальный, историяРежиссер: Джереми ТернерПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10147E9C5C4B7BE65C6F07765D4F909D4204F824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234994   (565691) от 08.07.2018
-
-NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы увидите Землю так, как прежде никогда не видели... С помощью рентгеновского зрения мы увидим планету, которую нельзя увидеть никак иначе. Сейчас армада датчиков, расположенных под землей, в небе, в океане и даже в наших городах, исследуют планету. Они видят тайные области планеты, это очень похоже на томографию. Сканируя Землю, мы сможем увидеть планету - ту, (   Читать дальше...   )Производство: США, BASE Productions, Inc. for National Geographic Channel, NGC Network International, LLC and NGC Network US, LLCЖанр: Документальный, научно-познавательныйРежиссер: Джон Бренкус, Микки Стерн, Робберт КурранПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 01:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1B5540E125842B93298C282D23023513E9E261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235157   (563820) от 09.07.2018
-
-NG: С точки зрения науки: Великое оледенение / Naked Science: Big Freeze (2007) HDTV [H.264/1080i-LQ] (Сезон 3, эпизод 4)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Океаны могут порождать периоды похолодания, сопровождающиеся вымиранием видов и катаклизмами. Последние данные говорят о том, что глобальное потепление вскоре может привести нас к ледниковому периоду.Производство: США, Pioneer Production for National Geographic ChannelЖанр: Документальный, научно-познавательныйРежиссер: Алекс УильямсонПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C481429F62625AB285896FA5490E97A631FA3EC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

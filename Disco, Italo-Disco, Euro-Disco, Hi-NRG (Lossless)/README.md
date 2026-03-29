@@ -7,7 +7,7 @@ Lian Ross - V (2025) [FLAC|Lossless|image + .cue] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061577.jpg" />
+  <img src="Z:/picture/005/save_picture_1061577.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Discobra - Italo-Disco In My Veins (2026) [FLAC|Lossless|WEB-DL|tracks] <Italo D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060632.jpg" />
+  <img src="Z:/picture/005/save_picture_1060632.jpg" />
 </div>
 
 
@@ -65,7 +65,7 @@ Ryan Paris - The Best Songs (2026) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059586.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Baccara - Evolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046624.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Rüdiger Meng (Roger Meno) - Rhythm And Energy (1991) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044851.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Rüdiger Meng (Roger Meno) - Disco Groovin' (1988) [FLAC|Lossless|WEB-DL|tracks]
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044846.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044541.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ RSF - Metropol Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italoda
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044527.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ VA - Disco Nights (The Collection) (2009) [FLAC|Lossless|WEB-DL|tracks] <Disco, 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044389.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044389.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Chilly - Devils Dance (1983) 2023 Reissue, Remastered, Unofficial [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042856.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ VA - The Best 70s Album In The World...Ever! (2023) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041307.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ D. White - How Are You? (2020) [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041075.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Secret Service - Secret Mission (2022) [FLAC|Lossless|image + .cue] <Euro-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041040.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Alan Barry - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|imag
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040337.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ A La Carte - The Ultimate Best of Album (2016) Remastered [FLAC|Lossless|WEB-DL|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040335.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ric Perilano's Disco Sound Band - Sound Of The 80s (Instrumental) (2010) [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040079.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Systems In Blue - Blue Universe (The 4th Album) (2020) [FLAC|Lossless|image + .c
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039271.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Italoconnection - Nordisko (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037506.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Radio Mania, Vol. 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <EuroDance, Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036908.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ VA - Radio Mania, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <EuroDance, Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036907.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Ottawan - Hunds UP (1989) Compilation, Karussell [FLAC|Lossless|tracks + .cue] <
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036390.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ VA - Italo Disco New Revival Volume 5 (2015) [FLAC|Lossless|WEB-DL|tracks] <Ital
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036324.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Steps - What the Future Holds (2020) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop, E
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035707.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Mark Ashley - MT (2021) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035475.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Mark Ashley - Christmas for My Fans (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-D
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035473.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ Mark Ashley - Greatest Hits 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035457.jpg" />
 </div>
 
 

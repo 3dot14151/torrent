@@ -6,7 +6,7 @@ Charles Web Debugging Proxy 3.11.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796096.jpg" />
+  <img src="Z:/picture/008/save_picture_796096.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ EASEUS Partition Master 11.0 Server / Professional / Technican / Unlimited Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796095.jpg" />
+  <img src="Z:/picture/008/save_picture_796095.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Java SE Runtime Environment 9.0.4 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796085.jpg" />
+  <img src="Z:/picture/008/save_picture_796085.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BlueStacks App Player 4.0.1.102 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796078.jpg" />
+  <img src="Z:/picture/008/save_picture_796078.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ IObit Driver Booster Pro 5.2.0.686 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796073.jpg" />
+  <img src="Z:/picture/008/save_picture_796073.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Registry First Aid Platinum 10.1.0 Build 2297 RePack (& Portable) by Manshet [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796051.jpg" />
+  <img src="Z:/picture/008/save_picture_796051.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ AIMP 4.02 Build 1713 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796049.jpg" />
+  <img src="Z:/picture/008/save_picture_796049.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ LightShot 5.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796047.jpg" />
+  <img src="Z:/picture/008/save_picture_796047.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Windows 11 Manager 1.0.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796035.jpg" />
+  <img src="Z:/picture/008/save_picture_796035.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ AIMP 5.00 Build 2344 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796031.jpg" />
+  <img src="Z:/picture/008/save_picture_796031.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ CCleaner 5.39.6399  Free / Professional / Business / Technician Edition RePack (
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796007.jpg" />
+  <img src="Z:/picture/008/save_picture_796007.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4639.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795997.jpg" />
+  <img src="Z:/picture/008/save_picture_795997.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ CrystalDiskInfo 6.8.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795971.jpg" />
+  <img src="Z:/picture/008/save_picture_795971.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795947.jpg" />
+  <img src="Z:/picture/008/save_picture_795947.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795939.jpg" />
+  <img src="Z:/picture/008/save_picture_795939.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ VMware Workstation 16 Pro 16.2.1 Build 18811642 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795933.jpg" />
+  <img src="Z:/picture/008/save_picture_795933.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Privacy Eraser Free 4.62.0 Build 3442 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795925.jpg" />
+  <img src="Z:/picture/008/save_picture_795925.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Opera GX 68.0.3618.142 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795915.jpg" />
+  <img src="Z:/picture/008/save_picture_795915.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ IObit Smart Defrag Pro 6.5.5.102 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795913.jpg" />
+  <img src="Z:/picture/008/save_picture_795913.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Slimjet 26.0.9.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795909.jpg" />
+  <img src="Z:/picture/008/save_picture_795909.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Q-Dir 8.33 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795908.jpg" />
+  <img src="Z:/picture/008/save_picture_795908.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ EASEUS Partition Master 11.0 Server / Professional / Technican / Unlimited Editi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795905.jpg" />
+  <img src="Z:/picture/008/save_picture_795905.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Blackmagic Design Fusion Studio 8.0 Build 18 + Edit Connection Repack TeamVR [En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795901.jpg" />
+  <img src="Z:/picture/008/save_picture_795901.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Xilisoft Video Converter Ultimate 7.8.16 Build 20160419 Portable by PortableWare
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795899.jpg" />
+  <img src="Z:/picture/008/save_picture_795899.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ PTE AV Studio Pro 10.0.10 Build 8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795883.jpg" />
+  <img src="Z:/picture/008/save_picture_795883.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ RJ TextEd 14.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795876.jpg" />
+  <img src="Z:/picture/008/save_picture_795876.jpg" />
 </div>
 
 

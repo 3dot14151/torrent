@@ -1,3 +1,29 @@
+###  Публикация: 1172048   (394924) от 06.10.2017
+
+Журнал | Все загадки мира №19 (сентябрь 2017) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_394924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для людей, которым нравится узнавать новое, расширять кругозор, быть в курсе научно-популярных событий. Удивительные явления, невероятные гипотезы, сенсации и мнения экспертов. А также интересные: открытия, феномены, версии. Авторитетное и увлекательное изложение познавательных фактов.Жанр: Популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44821127376817B61A3F696D6AE82FED2DFF479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171999   (394903) от 06.10.2017
 
 Журнал | Все загадки мира №17 (август 2017) [PDF]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394903.jpg" />
+  <img src="Z:/picture/008/save_picture_394903.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394740.jpg" />
+  <img src="Z:/picture/008/save_picture_394740.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394174.jpg" />
+  <img src="Z:/picture/008/save_picture_394174.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393894.jpg" />
+  <img src="Z:/picture/008/save_picture_393894.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393801.jpg" />
+  <img src="Z:/picture/008/save_picture_393801.jpg" />
 </div>
 
 
@@ -148,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393379.jpg" />
+  <img src="Z:/picture/008/save_picture_393379.jpg" />
 </div>
 
 
@@ -174,7 +200,7 @@ income-forex.net | Видеокурс "ПАММ-инвестор" / ПАММ И�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393160.jpg" />
+  <img src="Z:/picture/008/save_picture_393160.jpg" />
 </div>
 
 
@@ -206,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393137.jpg" />
+  <img src="Z:/picture/008/save_picture_393137.jpg" />
 </div>
 
 
@@ -233,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393101.jpg" />
+  <img src="Z:/picture/008/save_picture_393101.jpg" />
 </div>
 
 
@@ -259,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393068.jpg" />
+  <img src="Z:/picture/008/save_picture_393068.jpg" />
 </div>
 
 
@@ -285,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392988.jpg" />
+  <img src="Z:/picture/008/save_picture_392988.jpg" />
 </div>
 
 
@@ -316,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392304.jpg" />
+  <img src="Z:/picture/008/save_picture_392304.jpg" />
 </div>
 
 
@@ -342,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_392301.jpg" />
+  <img src="Z:/picture/008/save_picture_392301.jpg" />
 </div>
 
 
@@ -368,7 +394,7 @@ Justin Fink | Строим сарай в саду / Build a Garden Shed [2012] W
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_391626.jpg" />
+  <img src="Z:/picture/005/save_picture_391626.jpg" />
 </div>
 
 
@@ -395,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391262.jpg" />
+  <img src="Z:/picture/008/save_picture_391262.jpg" />
 </div>
 
 
@@ -421,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391207.jpg" />
+  <img src="Z:/picture/008/save_picture_391207.jpg" />
 </div>
 
 
@@ -447,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391186.jpg" />
+  <img src="Z:/picture/008/save_picture_391186.jpg" />
 </div>
 
 
@@ -473,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390913.jpg" />
+  <img src="Z:/picture/008/save_picture_390913.jpg" />
 </div>
 
 
@@ -499,7 +525,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390895.jpg" />
+  <img src="Z:/picture/008/save_picture_390895.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390849.jpg" />
+  <img src="Z:/picture/008/save_picture_390849.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390679.jpg" />
+  <img src="Z:/picture/008/save_picture_390679.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390668.jpg" />
+  <img src="Z:/picture/005/save_picture_390668.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390625.jpg" />
+  <img src="Z:/picture/008/save_picture_390625.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_390577.jpg" />
+  <img src="Z:/picture/005/save_picture_390577.jpg" />
 </div>
 
 
@@ -659,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390443.jpg" />
+  <img src="Z:/picture/008/save_picture_390443.jpg" />
 </div>
 
 
@@ -670,32 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EDD6573CE23D9D7D6F245DBA1627BE2CFA40D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570488   (390387) от 05.11.2012
-
-Журнал | Полный привод 4х4 №10 [октябрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390387.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Полный привод 4 х 4" - национальный внедорожный журнал дает объективную информацию по всему спектру тем: автомобильные новости, презентации новых моделей, тесты машин и дополнительного оборудования, школа “внедорожной” езды, тюнинг, опыт эксплуатации автомобилей и специальных “внедорожных” аксессуаров.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EE1E840CCC5DFD75E5C9CF0B1C4F3B61A17B4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1160809   (471985) от 26.08.2017
+
+Орел и решка. Кругосветка (2016.04.18) WEB-DL [H.264/1080p-LQ] (сезон 12, выпуск 10: ГОА. Индия)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_471985.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 12-м сезоне трэвел-шоу «Орел и решка» отправляется в настоящее путешествие вокруг света! Впереди 40 стран и 270 дней пути от Гринвича до Гринвича без права возвращаться домой! Восемь человек - восемь характеров и восемь чемоданов! И никто из них теперь не спрячется за камерой. Теперь все участники на виду! Как работает съемочная группа, как отдыхает, с какими проблемами (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56600584936BDA5A747B2D18D891B2171A68E3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161144   (469803) от 27.08.2017
+
+Орел и решка. Перезагрузка (2017.08.27) WEB-DL [H.264/1080p-LQ] (сезон 14: Астана, Казахстан)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_469803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF9F20BFCDE7BC1D4D6C36A24C459324C336FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161208   (469789) от 27.08.2017
 
 Орел и решка. Рай и ад-2 (2017.08.27) WEB-DL [H.264/720p-LQ] (сезон 15: Сардиния, Италия)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469789.jpg" />
+  <img src="Z:/picture/008/save_picture_469789.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469437.jpg" />
+  <img src="Z:/picture/008/save_picture_469437.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469418.jpg" />
+  <img src="Z:/picture/008/save_picture_469418.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ BBC: Путешествие в Гайану / Expedition Guyana (2008) HDTVRip (
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468825.jpg" />
+  <img src="Z:/picture/008/save_picture_468825.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466077.jpg" />
+  <img src="Z:/picture/008/save_picture_466077.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466066.jpg" />
+  <img src="Z:/picture/008/save_picture_466066.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465266.jpg" />
+  <img src="Z:/picture/008/save_picture_465266.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463780.jpg" />
+  <img src="Z:/picture/008/save_picture_463780.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462708.jpg" />
+  <img src="Z:/picture/008/save_picture_462708.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462049.jpg" />
+  <img src="Z:/picture/008/save_picture_462049.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458011.jpg" />
+  <img src="Z:/picture/008/save_picture_458011.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457944.jpg" />
+  <img src="Z:/picture/008/save_picture_457944.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457912.jpg" />
+  <img src="Z:/picture/008/save_picture_457912.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456978.jpg" />
+  <img src="Z:/picture/008/save_picture_456978.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456912.jpg" />
+  <img src="Z:/picture/008/save_picture_456912.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456900.jpg" />
+  <img src="Z:/picture/008/save_picture_456900.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455861.jpg" />
+  <img src="Z:/picture/008/save_picture_455861.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454855.jpg" />
+  <img src="Z:/picture/008/save_picture_454855.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454678.jpg" />
+  <img src="Z:/picture/008/save_picture_454678.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ Viasat Nature: Большой Кавказ / The Greater Caucasus (2014) SATRip
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453904.jpg" />
+  <img src="Z:/picture/008/save_picture_453904.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453822.jpg" />
+  <img src="Z:/picture/008/save_picture_453822.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453766.jpg" />
+  <img src="Z:/picture/008/save_picture_453766.jpg" />
 </div>
 
 
@@ -587,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451822.jpg" />
+  <img src="Z:/picture/008/save_picture_451822.jpg" />
 </div>
 
 
@@ -613,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451820.jpg" />
+  <img src="Z:/picture/008/save_picture_451820.jpg" />
 </div>
 
 
@@ -624,58 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F8111DC839A684F8311B9745E324EE838E0407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569528   (451810) от 13.08.2022
-
-Таласса - Морской журнал / Thalassa, le magazine de la mer (2013-2014) DVB (часть 2, выпуски 1-20 из 20) [FR/RU Sub]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таласса — персонаж древнегреческой мифологии, богиня моря. Во Франции это название популярной еженедельной телепередачи "Таласса" канала France 3 на тему моря и связанных с ним сюжетов с экологической, спортивной, человеческой и исторической точек зрения.Производство: Франция, France 3Жанр: документально–познавательный, путешествияРежиссер: Жорж ПернуПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (неотключаемые, перевод Е. Маньен, М. Лабори, И. Рыбкиной, К. Семенюк, М. Кузиной, А. Вижье, И. Безлюдной, Éclair Group)Продолжительность: серии x ~01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CD0A66CBC778BEABFBD0CBDDCAFAA93C209205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569535   (451808) от 13.08.2022
-
-Таласса - Морской журнал / Thalassa, le magazine de la mer (2014) DVB (часть 3, выпуски 1-20 из 20) [FR/RU Sub]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таласса — персонаж древнегреческой мифологии, богиня моря. Во Франции это название популярной еженедельной телепередачи "Таласса" канала France 3 на тему моря и связанных с ним сюжетов с экологической, спортивной, человеческой и исторической точек зрения.Производство: Франция, France 3Жанр: документально–познавательный, путешествияРежиссер: Жорж ПернуПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (неотключаемые, перевод Е. Маньен, М. Лабори, И. Рыбкиной, К. Семенюк, М. Кузиной, А. Вижье, И. Безлюдной, Éclair Group)Продолжительность: серии x ~01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E15B8DB5699F05DFAA4F628E9E4B87AECD9A40
 ```
 
 https://mybot314.ru/tekegram_catalog/

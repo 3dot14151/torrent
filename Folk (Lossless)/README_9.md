@@ -6,7 +6,7 @@ Fleur (Flёur) - Сияние (2004) Reissue, 2006, Masterwort Production [FLAC|
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395646.jpg" />
+  <img src="Z:/picture/008/save_picture_395646.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Elizabeth Cook - This Side of the Moon (2004) [FLAC|Lossless|tracks + .cue] <Cou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394845.jpg" />
+  <img src="Z:/picture/008/save_picture_394845.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Meldis - Грани Миров (2013) [FLAC|Lossless|image + .cue] <Folk, Celtic
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391230.jpg" />
+  <img src="Z:/picture/008/save_picture_391230.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Santiano - 3 Альбома (2012 - 2015) [FLAC|Lossless|tracks + .cue | image +
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380009.jpg" />
+  <img src="Z:/picture/008/save_picture_380009.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Rawlins Cross - Reel 'n' Roll (1993) [FLAC|Lossless|tracks + .cue] <Rock, Folk, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368216.jpg" />
+  <img src="Z:/picture/008/save_picture_368216.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366059.jpg" />
+  <img src="Z:/picture/008/save_picture_366059.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Angel Olsen - All Mirrors (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Dark
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363108.jpg" />
+  <img src="Z:/picture/008/save_picture_363108.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Trobar De Morte - The Silver Wheel (2012) 2015, Limited Edition, Numbered, Reiss
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343306.jpg" />
+  <img src="Z:/picture/008/save_picture_343306.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Trobar De Morte - Beyond The Woods - The Acoustic Songs (2011) [FLAC|Lossless|tr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343302.jpg" />
+  <img src="Z:/picture/008/save_picture_343302.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Trobar De Morte - Ouroboros (2016) [FLAC|Lossless|tracks + .cue] <Celtic, Darkwa
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343294.jpg" />
+  <img src="Z:/picture/008/save_picture_343294.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Trobar De Morte - Legends Of Blood And Light (2008) Reissue, 2016 [FLAC|Lossless
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343293.jpg" />
+  <img src="Z:/picture/008/save_picture_343293.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Janis Ian - The Bottom Line Encore Collection (Live album) (999) Compilation [FL
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314355.jpg" />
+  <img src="Z:/picture/008/save_picture_314355.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310400.jpg" />
+  <img src="Z:/picture/008/save_picture_310400.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ Dori Freeman - Letters Never Read (2017) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310088.jpg" />
+  <img src="Z:/picture/008/save_picture_310088.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Lee Ann Womack - The Lonely, The Lonesome & The Gone (2017) [FLAC|Lossless|track
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309958.jpg" />
+  <img src="Z:/picture/008/save_picture_309958.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ Kris Kristofferson - Live At The Big Sur Folk Festival (2016) [FLAC|Lossless|WEB
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306787.jpg" />
+  <img src="Z:/picture/008/save_picture_306787.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302640.jpg" />
+  <img src="Z:/picture/008/save_picture_302640.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ Catherine MacLellan - Silhouette (2011) [FLAC|Lossless]<Acoustic/Indie/Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298177.jpg" />
+  <img src="Z:/picture/008/save_picture_298177.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ Faith Hill - Take Me As I Am (1993) Warner 9 45389-2 [FLAC|Lossless|image + .cue
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297751.jpg" />
+  <img src="Z:/picture/008/save_picture_297751.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Celtic Woman - The Magic of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291130.jpg" />
+  <img src="Z:/picture/008/save_picture_291130.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289198.jpg" />
+  <img src="Z:/picture/008/save_picture_289198.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Clannad - The Real... Clannad (The Ultimate Collection) 3CD (2018) [FLAC|Lossles
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285928.jpg" />
+  <img src="Z:/picture/008/save_picture_285928.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ Kacey Musgraves - Pageant Material (2015) [FLAC|Lossless|tracks] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284555.jpg" />
+  <img src="Z:/picture/008/save_picture_284555.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Guilhem Desq - Visions (2017) Les Jeudis Du Rock, 2018 [FLAC|Lossless|Web-DL|tra
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284259.jpg" />
+  <img src="Z:/picture/008/save_picture_284259.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossle
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278632.jpg" />
+  <img src="Z:/picture/008/save_picture_278632.jpg" />
 </div>
 
 
@@ -737,7 +737,7 @@ Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, W
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277184.jpg" />
+  <img src="Z:/picture/008/save_picture_277184.jpg" />
 </div>
 
 

@@ -1,3 +1,135 @@
+###  Публикация: 1443153   (1036036) от 27.01.2021
+
+А. Докукина (ред.) | Читаем сами обо всём на свете. Динозавры (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много-много лет назад на нашей планете жили удивительные существа — динозавры. Как они выглядели, чем отличались друг от друга, что любили на обед и как добывали себе еду — ответы на эти вопросы маленькие читатели узнают из нашей книги. В ней крупный шрифт, простой и понятный текст и множество иллюстраций, поэтому дети без труда смогут прочитать её самостоятельно! (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4045FE65CB6DB0C6846387DD264950E3D815871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443120   (1036012) от 27.01.2021
+
+Януш Корчак | Всё о том, как любить ребенка (2021) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Януш Корчак (1878–1942) – великий польский педагог, талантливый писатель и общественный деятель. В годы Первой мировой войны он служил военным врачом в дивизионном полевом госпитале Русской императорской армии, после стал работать врачом в приютах для украинских детей. В годы Второй мировой войны, будучи отправленным в концлагерь вместе с воспитанниками «Дома сирот», (   Читать дальше...   )Жанр: Психология, Педагогика, Воспитание детейПеревод: К.Э. СенкевичФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8631D4AEEC618D22721771B55E624A7A6843591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443135   (1036006) от 27.01.2021
+
+Любовь Вайткене, Мира Филиппова | Это невероятно. Невероятная наука (2018) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга, несомненно, привлечет внимание юных читателей.
+
+Ведь в ней содержится немало интересных статей из области астрономии, биологии и естественных наук. Здесь в сопровождении наглядных поясняющих иллюстраций представлены невероятные химические превращения, занимательные физические эксперименты, описаны загадочные космические явления и порой непредсказуемое (   Читать дальше...   )Жанр: Познавательная литература/Развитие ребенкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B2AF2E0BF91A24228C5DB5C0D0515DC5791691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443115   (1036000) от 27.01.2021
+
+Питер Дж. Бентли | Всё об искусственном интеллекте за 60 минут (2020) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жить в современном мире, не взаимодействуя с искусственным интеллектом и не подвергаясь его воздействию, практически невозможно. Как так получилось? И что будет дальше? Меняют ли роботы наш мир к лучшему или создают еще больше проблем? Ответы на эти и другие вопросы, а также историю развития ИИ – от истоков и мотивации его зарождения до использования умных алгоритмов (   Читать дальше...   )Жанр: Познавательная и развивающая литература для детейПеревод: Алексей ИвашечкинФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7EBBB48243475F06DB7A09102C3D122CF30D318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443143   (1035990) от 27.01.2021
+
+Андрей Мерников, Вячеслав Ликсо | Большая энциклопедия техники. Иллюстрированная энциклопедия (2013) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035990.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении нескольких тысячелетий применялись механизмы, основанные на использовании мускульной силы человека или рабочего животного. И только в конце ХІХ века появился двигатель внутреннего сгорания современной конструкции, которому было суждено коренным образом повлиять на развитие цивилизации—к настоящему времени создано огромное количество техники не только (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8E1259E1C80251E1BD3006720AB4E8FF708080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 510234   (1035921) от 27.01.2021
 
 И.А. Лыкова | Весёлый городец (2009) [PDF]
@@ -6,7 +138,7 @@
 >>Изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035921.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035908.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035882.jpg" />
 </div>
 
 
@@ -84,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035880.jpg" />
 </div>
 
 
@@ -110,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035768.jpg" />
 </div>
 
 
@@ -136,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035767.jpg" />
 </div>
 
 
@@ -162,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035750.jpg" />
 </div>
 
 
@@ -188,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035743.jpg" />
 </div>
 
 
@@ -214,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035667.jpg" />
 </div>
 
 
@@ -240,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035662.jpg" />
 </div>
 
 
@@ -266,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035653.jpg" />
 </div>
 
 
@@ -292,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035643.jpg" />
 </div>
 
 
@@ -318,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035607.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035607.jpg" />
 </div>
 
 
@@ -345,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035496.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035496.jpg" />
 </div>
 
 
@@ -372,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035495.jpg" />
 </div>
 
 
@@ -399,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035492.jpg" />
 </div>
 
 
@@ -427,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035491.jpg" />
 </div>
 
 
@@ -456,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035484.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035484.jpg" />
 </div>
 
 
@@ -482,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035451.jpg" />
 </div>
 
 
@@ -508,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035403.jpg" />
 </div>
 
 
@@ -534,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035357.jpg" />
 </div>
 
 
@@ -545,138 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B583194B9B48A5747D1BB8E7E15C71BA3FD961A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487486   (1035350) от 29.01.2021
-
-Н.М. Сокольникова | Основы Живописи (1998) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основы живописи
-Построена на том, что живопись является искусством цвета. В книге рассматриваются основы науки о цвете, особое внимание уделяется вопросам восприятия цвета.Жанр: Живопись, рисованиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B206167402F5DDBB2B64BFA0B55DBB4C6075DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517737   (1035347) от 29.01.2021
-
-Ю. Батюлева (сост.) | Пропись для написания элементов букв (2011) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035347.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Пропись для написания элементов букв» из серии «Классические прописи» предназначена для детей дошкольного и младшего школьного возраста. Она станет незаменимым помощником вашему ребёнку для развития мелкой моторики руки и отработки элементов букв.Жанр: Рабочая тетрадьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA13CBC62540ABE5191DCCB2056ACD4A35647C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583103   (1035344) от 29.01.2021
-
-Теодорико Батталини | Рисуем акварелью. От азов мастерства к тончайшим нюансам (2007) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный рисунок - искусство тончайших нюансов, переливчатых оттенков, переменчивых состояний. Это техника требует точной работы, почти импровизации, но ее привлекательность именно в свежести и силе впечатления. Активная роль бумаги, просвечивающей сквозь легкий слой краски, живописные размывы и затеки, пластичные и мягкие переходы тонов - главные стилистические (   Читать дальше...   )Жанр: Изобразительное искусство. АрхитектураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DFE49A849351A6B6CB94B8D1F9F5D70936C6E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617290   (1035336) от 06.03.2023
-
-Вадим Охотников | В мире исканий (1949) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035336.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов Вадима Охотникова в жанре научной фантастики.
-Для детей среднего школьного возраста. Иллюстрации А.Васина.Жанр: Научная фантастика, повесть, рассказФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:032F05610062404151015EAD34A953F354D3E596
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517753   (1035318) от 29.01.2021
-
-Ю. Батюлева (сост.) | Пропись для правильного написания прописных букв (2011) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Рабочие тетради, прописи и разукрашки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035318.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Пропись для правильного написания прописных букв" из серии "Классические прописи" поможет развить у ребенка умение совершать плавное и неотрывное движение руки во время письма. Кроме того, ваш малыш научится координировать мелкие движения кисти руки и осуществлять зрительный контроль за ними. Пропись представляет собой тетрадь в косую линейку, (   Читать дальше...   )Жанр: Рабочая тетрадьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FEA3C45BBA1158BF4519303E1C7D23C388C994
 ```
 
 https://mybot314.ru/tekegram_catalog/

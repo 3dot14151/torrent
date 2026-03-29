@@ -1,3 +1,90 @@
+###  Публикация: 1157482   (525179) от 12.08.2017
+
+Rage - Seasons Of The Black (2017) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_525179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Season Of The Black (4:56)
+02. Serpents In Disguise (4:13)
+03. Blackened Karma (4:40)
+04. Time Will Tell (5:05)(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ECDFAAC24E5303F45FCBF063327E861C07913B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 371292   (524987) от 03.08.2011
+
+Kauan - 4 albums (2007-2011) [FLAC|Lossless] <Doom Metal, Post-Rock, Neoclassical>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kauan - проект, основанный Антоном Беловым (Helengard, inea) в феврале 2005 года. Само слово Kauan с финского переводится как «долго». Музыкальное направление, в котором проект записал первый альбом, критики назвали folk doom metal. Проект концентрирует внимание на передаче состояния и атмосферы. Каждая песня написана как результат процесса, запечатлевающего и передающего (   Читать дальше...   )01. Tahtien Hiljainen Laulu (14:58)
+02. Kauniin Kuun Savelen (08:23)
+03. Ikuinen Junan Kulku (11:14)
+04. Suora Liila Sydankayra (11:49)Жанр: Doom Metal, Post-Rock, NeoclassicalПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157836   (524769) от 13.08.2017
+
+Masterplan - MK II (2007) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_524769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Phoenix Rising (1:18)
+ 02 - Warrior's Cry (5:21)
+ 03 - Lost And Gone (2:59)
+ 04 - Keeps Me Burning (4:01)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396A7D77048632A72EB3DE73F1E634F89E9BDA29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559364   (524498) от 25.06.2022
 
 Marianas Rest - Marianas Rest (Demo) (2014) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
@@ -6,7 +93,7 @@ Marianas Rest - Marianas Rest (Demo) (2014) [FLAC|Lossless|WEB-DL|tracks] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524498.jpg" />
+  <img src="Z:/picture/008/save_picture_524498.jpg" />
 </div>
 
 
@@ -34,7 +121,7 @@ Aposento - Welcome To Darkness (1997) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524441.jpg" />
+  <img src="Z:/picture/008/save_picture_524441.jpg" />
 </div>
 
 
@@ -63,7 +150,7 @@ Thunderstick - Something Wicked This Way Comes (2017) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524418.jpg" />
+  <img src="Z:/picture/008/save_picture_524418.jpg" />
 </div>
 
 
@@ -92,7 +179,7 @@ Bullet For My Valentine - Venom (2015) Deluxe Edition [FLAC|tracks+.cue]<Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523887.jpg" />
+  <img src="Z:/picture/008/save_picture_523887.jpg" />
 </div>
 
 
@@ -121,7 +208,7 @@ Sanguis - Ascension (2008) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523786.jpg" />
+  <img src="Z:/picture/008/save_picture_523786.jpg" />
 </div>
 
 
@@ -150,7 +237,7 @@ Silent Stream Of Godless Elegy - Behind The Shadows (1998) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523785.jpg" />
+  <img src="Z:/picture/008/save_picture_523785.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Sinsaenum - Repulsion for Humanity (2018) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523703.jpg" />
+  <img src="Z:/picture/008/save_picture_523703.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ Dawn Of Destiny - Of Silence (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523492.jpg" />
+  <img src="Z:/picture/008/save_picture_523492.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Sonata Arctica - The Harvests 2007-2017 (2018) Japanese Edition, 2CD [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522840.jpg" />
+  <img src="Z:/picture/008/save_picture_522840.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ Hush - The Pornography of Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522787.jpg" />
+  <img src="Z:/picture/008/save_picture_522787.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Vuur - In This Moment We Are Free - Cities (2017) Japanese Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522707.jpg" />
+  <img src="Z:/picture/008/save_picture_522707.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Purveyor - Ruminations (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522056.jpg" />
+  <img src="Z:/picture/008/save_picture_522056.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Thobbe Englund - From the Wilderness (2015) [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521990.jpg" />
+  <img src="Z:/picture/008/save_picture_521990.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Strydegor - In The Shadow Of Remembrance (2012) [FLAC|Lossless]<Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521692.jpg" />
+  <img src="Z:/picture/008/save_picture_521692.jpg" />
 </div>
 
 
@@ -417,7 +504,7 @@ Ruinas - Resurrekzion (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Grindco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520988.jpg" />
+  <img src="Z:/picture/008/save_picture_520988.jpg" />
 </div>
 
 
@@ -446,7 +533,7 @@ Death Crusader - Death Crusader (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520986.jpg" />
+  <img src="Z:/picture/008/save_picture_520986.jpg" />
 </div>
 
 
@@ -475,7 +562,7 @@ Sacred Son - The Foul Deth of Engelond (2022) [FLAC|Lossless|WEB-DL|tracks] <Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520890.jpg" />
+  <img src="Z:/picture/008/save_picture_520890.jpg" />
 </div>
 
 
@@ -504,7 +591,7 @@ Scars Of The Insane - D.H.A.R.M.A. (2018) [FLAC|Lossless|image + .cue] <Thrash, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520885.jpg" />
+  <img src="Z:/picture/008/save_picture_520885.jpg" />
 </div>
 
 
@@ -533,7 +620,7 @@ Victorius - Dinosaur Warfare Pt. 2 - The Great Ninja War (2022) [FLAC|Lossless|W
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520805.jpg" />
+  <img src="Z:/picture/008/save_picture_520805.jpg" />
 </div>
 
 
@@ -562,7 +649,7 @@ Werewolves - From the Cave to the Grave (2022) [FLAC|Lossless|WEB-DL|tracks] <Te
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520745.jpg" />
+  <img src="Z:/picture/008/save_picture_520745.jpg" />
 </div>
 
 
@@ -591,7 +678,7 @@ Veil of Maya - Matriarch (2015) [FLAC|image+.cue]<Progressive Metalcore/Deathcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520619.jpg" />
+  <img src="Z:/picture/008/save_picture_520619.jpg" />
 </div>
 
 
@@ -620,7 +707,7 @@ Periphery - 2 альбома - Juggernaut: Alpha\Omega (2015) [FLAC|tracks+.cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520613.jpg" />
+  <img src="Z:/picture/008/save_picture_520613.jpg" />
 </div>
 
 
@@ -649,7 +736,7 @@ Hel - Das Atmen der Erde (2012) [FLAC|Lossless]<Progressive Metal/Pagan Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520434.jpg" />
+  <img src="Z:/picture/008/save_picture_520434.jpg" />
 </div>
 
 
@@ -669,105 +756,6 @@ Hel - Das Atmen der Erde (2012) [FLAC|Lossless]<Progressive Metal/Pagan Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534308   (520244) от 13.08.2012
-
-Pathfinder - 2 Albums (2010-2012) [FLAC/WavPack|Lossless]<Symphonic Power Metal/Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот коллектив был образован в 2006 году в Польше басистом Arkadiusz Ruith и гитаристом Karol Mania. Их страна всегда славилась блэк/дэт метал коллективами, такими как Vader и Behemoth. Парни решили не идти по их стопам, а играть нечто другое.01. Ventus Ignis Terra Aqua (2:05)
-02. Fifth Element (8:44)
-03. Ready To Die Between Stars (5:49)
-04. The Day When I Turn Back Time (6:18)
-05. Chronokinesis (5:27)
-06. March To Darkest Horizon (7:50)
-07. Yin Yang (4:03)
-08. Elemental Power (4:34)
-09. Ad Futuram Rei Memoriam (5:04)
-10. When The Sunrise Breaks The Darkness (6:15)(   Читать дальше...   )Жанр: Symphonic Power Metal/Progressive MetalПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533839   (520234) от 13.08.2012
-
-Weird Fate - The Collapse Of All That Has Been (2012) [WavPack|Lossless]<Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creeping Corrosion (1:00)
-02. Mirage Of A Star (9:31)
-03. Nacht (8:34)
-04. And Utter Emptiness (2:07)
-05. The Collapse Of All That Has Been (6:52)
-06. Manifest Of The Crestfallen (7:56)
-07. 1709 (1:47)
-08. In Stille (7:30)
-09. Anguish (1:52)
-10. Futile Words (8:18)Жанр: Black MetalПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241456   (520125) от 17.08.2018
-
-Doro - Forever Warriors // Forever United (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All for Metal
-02. Bastardos
-03. If I Can't Have You - No One Will (feat. Johan Hegg)
-04. Soldier of Metal(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CABB453DD30BC0E5EC8535F516C443C69C6151E
 ```
 
 https://mybot314.ru/tekegram_catalog/

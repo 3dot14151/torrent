@@ -1,3 +1,29 @@
+###  Публикация: 1729342   (33261) от 23.12.2024
+
+Beyblade Burst Chouzetsu | Beyblade Burst Turbo | Бейблэйд Бёрст: Турбо [2018, TV, 51 эп.] WEB-DL 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя два года после Международного Кубка Блэйдера история посвящается Айгеру Акабане, «дикарю», который вырос в природе. После битвы с Вальтом Аоем он вдохновился стать Блэйдером №1 в мире вместе со своим Бейблэйдом Зи Ахиллесом. Он стремится бороться с сильными противниками, чтобы стать сильнее. Чтобы победить Вальта Аоя и стать чемпионом мира, Айгер начинает (   Читать дальше...   )Производство: OLMЖанр: ПриключенияРежиссер: Акияма КацухитоСубтитры: ОтсутствуютПродолжительность: 51 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DD0779FBF8476CE43686703A96937149D3CD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745418   (33260) от 23.12.2024
 
 Zhandou Wang: Jufeng Zhan Hun 5 | Infinity Nado 5 | Инфинити Надо 5 [2018, TV, 31 из 31 эп.] WEBRip 1080p rus
@@ -6,7 +32,7 @@ Zhandou Wang: Jufeng Zhan Hun 5 | Infinity Nado 5 | Инфинити Надо 5 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33260.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Beyblade Burst God | Beyblade Burst Evolution | Бейблэйд Бёрст Эв
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33258.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Beyblade Burst | Бейблэйд Бёрст [2016, TV, 51 эп.] WEB-DL 1080p r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33252.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33190.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33099.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Rekishi ni Nokoru Akujo ni Naruzo | Rekiaku | Я стану злодейкой, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33089.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] BDRip 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33059.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32988.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32666.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32524.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32479.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Gekijouban Bishoujo Senshi Sailor Moon Cosmos | Pretty Guardian Sailor Moon Cosm
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32323.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Maou 2099 | Demon Lord 2099 | Повелитель демонов 2099 [2024, TV
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32049.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31957.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31920.jpg" />
 </div>
 
 
@@ -406,7 +432,7 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31906.jpg" />
 </div>
 
 
@@ -432,7 +458,7 @@ Atri: My Dear Moments | Atri -My Dear Moments- | Атри [2024, TV, 13 из 13]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31707.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ Blue Lock | Синяя тюрьма: Блю Лок [ТВ-1] [2022, TV, 24 из 2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31690.jpg" />
 </div>
 
 
@@ -484,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31655.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31204.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Black Clover (2017) | Чёрный клевер [ТВ-1] [2017, TV, 170 эп. + 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29198.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEB-DL 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29197.jpg" />
 </div>
 
 
@@ -595,7 +621,7 @@ Ji Jia Shou Shen: Baolie Feiche 5 | Screechers Wild 5! | Дикие Скриче
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28919.jpg" />
 </div>
 
 
@@ -622,7 +648,7 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28685.jpg" />
 </div>
 
 
@@ -648,7 +674,7 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 из 12
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27657.jpg" />
 </div>
 
 
@@ -659,33 +685,6 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 из 12
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67E199BE46A74C9D14ECCFEBF15715085309D9C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756237   (26747) от 23.02.2025
-
-Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to World`s Strongest Season 3 | Арифурэта: Сильнейший ремесленник в мире [ТВ-3] [2024, TV, 16 из 16] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_26747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений Хадзиме Нагумо, третий сезон!
-Семнадцатилетний Хадзиме Нагумо — типичный отаку. Его жизнь состоит из ночных посиделок за играми и мирного сна за партой во время школьных занятий. Но однажды всё меняется: Хадзиме вместе со всем своим классом попадает в параллельный фэнтезийный мир. Там их встречают как героев и немедленно выдают квест: спасти (   Читать дальше...   )Производство: Япония, студия asreadЖанр: приключения, фэнтези, исекай, эттиРежиссер: Иванага АкираЯзык озвучки: Русский закадровый (Dream Cast), (TVShows), (AniLibria.TV), (SHIZA Project), (KoeKak)Субтитры: Русские надписи, русские (софтсаб), Multi-6Продолжительность: 16 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B426AD3503A7275BD26EBCE645F31A366BF12D61
 ```
 
 https://mybot314.ru/tekegram_catalog/

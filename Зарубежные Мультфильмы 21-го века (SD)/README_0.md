@@ -1,3 +1,81 @@
+###  Публикация: 1439708   (1039416) от 14.01.2021
+
+Академия монстров / Escuela de Miedo / Cranston Academy: Monster Zone (2020) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьнику Дэнни живется несладко: он не может подружиться с одноклассниками и не находит общего языка с преподавателями. И всему виной его гениальность. Но однажды он попадает в школу для одаренных детей, где случайно открывает портал в мир... монстров.Производство: Мексика / Anima Estudios, ReDefineЖанр: МультфильмРежиссер: Леопольдо АгиларПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209F8F5495D6A9F879E73FB948F39530E3403947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 166193   (1035516) от 05.03.2023
+
+Артур и месть Урдалака / Arthur et la vengeance de Maltazard (2009) DVDRip
+
+>>След.
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артур в восторге, потому что этой ночью заканчивается десятый лунный цикл, и он, наконец, сможет вернуться в страну минипутов, чтобы воссоединиться с Селенией. В деревне минипуты приготовили в его честь роскошный банкет, а маленькая принцесса облачилась в платье из лепестков роз. Но отец Артура именно в этот долгожданный день объявляет, что их каникулы у бабушки (   Читать дальше...   )Производство: Франция, Apipoulai, Europa Corp., TF1 Films ProductionЖанр: мультфильм, фэнтези, семейныйРежиссер: Люк БессонАктеры: Фредди Хаймор, Джимми Фэллон, Миа Фэрроу, Снуп Догг, Аса Баттерфилд, Логан Миллер, Роберт Стэнтон, Лу Рид, Пенни Бальфур, Рон КроуфордПеревод: Профессиональный (полное дублирование)Продолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEF8EB87A2B6F3AB1A7A9FA2620FE18670EE29A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 311158   (1035515) от 05.03.2023
+
+Облачно, возможны осадки в виде фрикаделек / Cloudy with a Chance of Meatballs (2009) BDRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035515.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой мультфильма  странный ученый Флинт Локвуд, который всегда хотел изобрести что-то такое, что сделает его родной городок счастливым. И вот, у него получилось! Еды теперь хватает всем, и она просто падает с неба, создавая новые пейзажи вокруг: можно любоваться закатом с живописных холмов из фруктового желе. Но иногда вкусные осадки в виде фрикаделек могут (   Читать дальше...   )Жанр: Комедия, ПриключенияРежиссер: Фил Лорд, Крис МиллерПеревод: Дублированный + Оригинальная дорожкаЯзык субтитров: английские, французские, испанскиеПродолжительность: 01:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1996DD864D9E748B97CB4E74A7F0EECDAC5F9AEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 465560   (1030845) от 25.03.2023
 
 Как приручить дракона: Дар ночной фурии / Dragons: Gift of the Night Fury (2011) BDRip [MVO]
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030845.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028969.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024521.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023451.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023227.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023223.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023103.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022422.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022402.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022230.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022151.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021092.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020935.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018197.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018151.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017650.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017382.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016517.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016505.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015069.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013796.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012256.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012202.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42040F6FAF3D30587A1386C0DF1A1257B581E1D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478986   (1009894) от 21.06.2021
-
-Лука / Luca (2021) WEB-DLRip [H.264] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незабываемые каникулы, в которых есть место и домашней пасте, и мороженому, и бесконечным поездкам на мопеде мальчик по имени Лука проводит в красивом приморском городке, расположенном на итальянской Ривьере. Ни одно приключение Луки не обходится без участия его нового лучшего друга, и беззаботность отдыха омрачает только лишь тот факт, что на самом деле в облике (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, семейный, приключения, комедия, фэнтезиРежиссер: Энрико КасаросаАктеры: Джейкоб Тремблей, Джек Дилан Грейзер, Саша Барон Коэн, Майя Рудольф, Джакомо Джианниотти, Джим Гэффиган, Сэнди Мартин, Эмма Берман, Франческа Фанти, Джино Д АкампоПеревод: Любительский многоголосый (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (full), Английские (SDH)Продолжительность: 01:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7207710E0874004EEDE3C9F23B0C93B0FE32092
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482497   (1007453) от 09.07.2021
-
-Истоки анимации.  Дад сбегает из дома / Dud Leaves Home (1919) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снова Дад-мечтатель. Что необходимо для того, чтобы ухаживать за девушкой? Правильно - денежки. Во всяком случае в Америке точно. Вот и у Дада эта проблема.Производство: СШАЖанр: Анимация, короткометражный, немое кино.Режиссер: Уоллес А. КарлсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380E9C58386FD8B7C9341505CC8C032FD105848F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482844   (1007213) от 10.07.2021
-
-Босс-молокосос 2 / The Boss Baby: Family Business (2021) WEB-DLRip [DVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение семейной мультипликационной комедии 2017 года о высокоинтеллектуальных младенцах – сотрудниках небесной корпорации по «производству и выпуску» детей. Умники в пеленках, лишенные детства, снова внедряются в обычные семьи.Производство: США / DreamWorks AnimationЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Том МакГратАктеры: Алек Болдуин, Джеймс Марсден, Эми Седарис, Ариана Гринблатт, Джефф Голдблюм, Ева Лонгория, Джеймс МакГрат, Джимми Киммел, Лиза Кудроу, Рафаэль АлехандроПеревод: Двухголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: Русские (full) - отдельноПродолжительность: 01:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8F59E72182FB9455E56CEFAAAAF49E87DFF78F
 ```
 
 https://mybot314.ru/tekegram_catalog/

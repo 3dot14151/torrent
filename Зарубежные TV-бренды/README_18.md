@@ -1,3 +1,107 @@
+###  Публикация: 1303607   (846130) от 25.04.2020
+
+NG: Затерянные сокровища Майя / Lost Treasures of the Maya (2019) HDTV [H.264/1080i-LQ] (серии 1-2 из 4) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_846130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альберт Лин отправляется в гватемальские джунгли, чтобы исследовать результаты составленной с помощью новейших технологий "карты сокровищ", позволившей обнаружить десятки тысяч древних руин.Производство: Великобритания, National GeographicЖанр: Документальный, история, исследованияРежиссер: Алистер Дункан, Джеймс Левел, Бэн Уилсон, Грэхам КуперПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E042A15E24E4FB1D49C60C0862D0A10888C17E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378619   (845801) от 25.04.2020
+
+BBC. Европа изнутри: десять лет смятения (десять лет разногласий) / Inside Europe: Ten Years of Turmoil (2019) HDTVRip [H.264/1080p-LQ] (серии 3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_845801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европейский долговой кризис, рост иммиграции, референдум о членстве Великобритании в Европейском союзе, подъём национализма. В последнее десятилетие Единая Европа переживала один острейший кризис за другим. И теперь, когда долго обсуждавшийся выход Британии из Евросоюза становится реальностью, самое время вспомнить недавнее прошлое Единой Европы и заглянуть в её (   Читать дальше...   )Производство: Великобритания, BBC TwoЖанр: Документальный, политикаРежиссер: Тим Штирзакер, Таня Рахманова, Ариан РикерПеревод: Двуголосый закадровый, профессиональный (BBC News Русская служба)Субтитры: отсутствуютПродолжительность: 3 х ~00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:412A1E91F7E8437DF439CAB5420844D45F74F1A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 308509   (845646) от 13.03.2011
+
+NG: Дикая природа России / NG: Wild Russia (2009) HDTVRip (серии 1-6 из 6)
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_845646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простираясь на 11 часовых поясов и расположившись на территории двух континентов, от центра Европы до Тихого океана, эта огромная страна поражает своим размахом и нетронутыми природными богатствами, которые в их первозданной красоте таят необъятные Российские просторы, раскинувшиеся вдали от шумных и тесных мегаполисов - Москвы и Санкт - Петербурга. Получив уникальную (   Читать дальше...   )Телекомпания: NGЖанр: ДокументальныйПеревод: ДублированныйПродолжительность: NG: Wild Russia
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD27CBE189E46A23949C8F37F1D60B5644328A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 650312   (845456) от 29.04.2013
+
+Мрачное обаяние Адольфа Гитлера / The Dark Charisma of Adolf Hitler (2012) SATRip (серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_845456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адольф Гитлер - лидер страны с богатейшей культурой в самом сердце Европы. Человек, не способный к нормальным человеческим отношениям, лишенный сострадания, преисполненный ненависти и предрассудков. Еще задолго до Второй Мировой Войны Гитлер с жестокостью говорил о своих политических противниках. Ненависть Гитлера приведет к холокосту, а его жажда завоеваний оставит (   Читать дальше...   )Производство: Великобритания, LR History TV Productions (for BBC)Жанр: Документальный, история, война, биографияРежиссер: Лоуренс РизПеревод: Профессиональный двухголосый (ТПО «RED MEDIA»)Продолжительность: Каждая серия х ~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DEF6AED00645002B96FAD438F2E42F16FC9CB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 706689   (845094) от 28.03.2014
 
 BBC: Замерзшая планета (Застывшая планета) / Frozen planet (2011) Blu-Ray [H.264/1080i] (сезон 1, серий 8, диски 1-3 из 3)
@@ -6,7 +110,7 @@ BBC: Замерзшая планета (Застывшая планета) / Fro
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845094.jpg" />
+  <img src="Z:/picture/008/save_picture_845094.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Tехнологии, которые нас меняют / DSKNECTD: Is Technolog
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844663.jpg" />
+  <img src="Z:/picture/008/save_picture_844663.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844273.jpg" />
+  <img src="Z:/picture/008/save_picture_844273.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843107.jpg" />
+  <img src="Z:/picture/008/save_picture_843107.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843098.jpg" />
+  <img src="Z:/picture/008/save_picture_843098.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG. Бушующие миры: Смертоносная пыль / Storm Worlds:
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843019.jpg" />
+  <img src="Z:/picture/008/save_picture_843019.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ NG: Марс: Один день на красной планете / Mars: One D
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842550.jpg" />
+  <img src="Z:/picture/008/save_picture_842550.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842013.jpg" />
+  <img src="Z:/picture/008/save_picture_842013.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ National Geographic. Охотники на питонов. Нашествие з
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841531.jpg" />
+  <img src="Z:/picture/008/save_picture_841531.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841425.jpg" />
+  <img src="Z:/picture/008/save_picture_841425.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841424.jpg" />
+  <img src="Z:/picture/008/save_picture_841424.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Discovery: Железная дорога Аляски  / Railroad Alaska (2016) 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841061.jpg" />
+  <img src="Z:/picture/008/save_picture_841061.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840946.jpg" />
+  <img src="Z:/picture/008/save_picture_840946.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Discovery: Золотая лихорадка / Gold Rush (2018) HDTV  [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_840741.jpg" />
+  <img src="Z:/picture/009/save_picture_840741.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840688.jpg" />
+  <img src="Z:/picture/008/save_picture_840688.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ Discovery: Золотая лихорадка / Gold Rush (2019) HDTV [H.264/1080
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840627.jpg" />
+  <img src="Z:/picture/008/save_picture_840627.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840150.jpg" />
+  <img src="Z:/picture/008/save_picture_840150.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ Discovery. Дороги России: Трасса Кола (2016) HDTVRip [720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839622.jpg" />
+  <img src="Z:/picture/008/save_picture_839622.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ Discovery. Смертельный улов / Deadliest Catch (2019) HDTVRip [H.2
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838923.jpg" />
+  <img src="Z:/picture/008/save_picture_838923.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ DV: Из истории великих научных открытий / Great M
 >>Da Vinci Learning
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838843.jpg" />
+  <img src="Z:/picture/008/save_picture_838843.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838200.jpg" />
+  <img src="Z:/picture/008/save_picture_838200.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Animal Planet
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837852.jpg" />
+  <img src="Z:/picture/008/save_picture_837852.jpg" />
 </div>
 
 
@@ -564,110 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9197FA92ACBCC68C13146B9C85A9B3BB6C52A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100210   (837849) от 11.03.2017
-
-Африканские охотники / Africa's Hunters. (2017) HDTVRip [H.264/1080p] (1 сезон, серия 1-6 из 6)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дикая природа, которая заставляет своих детищ сражаться за выживание, используя самые жестокие методы. Пищевая цепочка на Африканском континенте весьма запутанная. Здесь животные одновременно могут быть как хищниками, так и жертвами. Сложно сказать, кто именно занимает вершину этой сложнейшей цепи. Здесь есть место и диким кошкам, и медведям, и псам и многим другим (   Читать дальше...   )Телекомпания: National Geographic ChannelЖанр: Документальный, фаунаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 6 х ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A515459263D14A89518297FDD01E18F467369073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379669   (837382) от 30.04.2020
-
-BBC. Тайный командующий. Военный стратег Ирана / Shadow Commander: Iran’s Military Mastermind (2019) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иранский военачальник, командир элитного подразделения иранской армии, Касем Сулеймани, сейчас находится на пике своего могущества – его почитают на Востоке, его боятся на Западе. На протяжении 20-ти лет он играл ключевую роль в самых значимых событиях на Ближнем Востоке. Этот фильм посвящен его личной истории – истории превращения юноши из рабочего класса в главного (   Читать дальше...   )Производство: Великобритания, BBC TwoЖанр: Документальный, расследование, историяРежиссер: Саша Джоэль АхиллиПеревод: Двуголосый закадровый, профессиональный (BBC News Русская служба)Субтитры: отсутствуютПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58253218C936D19E518CA7CBA9A285F7EE56EAE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 233169   (836690) от 02.04.2014
-
-BBC: Мир природы: Львы пустыни / Natural World: Desert Lions (2007) DVDRip [113 серия]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Намиб - древнейшая пустыня на земле. Безжалостная и непрощающая, постичь её нелегко. Изменчивые воды Берега скелетов закрывают доступ к пустыне по всей её длине. Неудивительно, что Намиб так хорошо хранит свои секреты. Когда-то здесь жили львы. Однако они были подобны призракам, их редко кто видел. Потом, более двадцати лет назад, они куда-то исчезли. И сегодня один (   Читать дальше...   )Жанр: ДокументальныйПеревод: ДублированныйЯзык субтитров: Русские, английскиеПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310144   (835759) от 19.03.2011
-
-DV: Из истории великих научных открытий / Great Moments in Science and Technology (Meilensteine der Naturwissenschaft und Technik) (1992) SATRip [21-30 выпуски]
-
->>Зарубежные TV-бренды
->>Da Vinci Learning
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835759.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сериале “Из истории великих научных открытий» зрители узнают о научной и политической подоплеке некоторых великих изобретений и открытий. В интригующей передаче «Из истории великих научных открытий» вы изнутри увидите научный и социально-политический фундамент наиболее удивительных мировых изобретений и открытий. При помощи компьютерной анимации, драматических постановок и впечатляющих исторических документов, воплощены в жизнь и объяснены истории пионеров науки, их методов и предметов исследований: от первых шагов в поле исследования, их дальнейшего развития и до сегодняшнего дня. Узнайте или познакомьтесь заново с изобретениями, открытиями и учеными, которые заложили фундамент науки, которую мы знаем сегодня.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 10x~ 00:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F684DECC0190B94447BB8D8643126210619740E
 ```
 
 https://mybot314.ru/tekegram_catalog/

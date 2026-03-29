@@ -1,3 +1,107 @@
+###  Публикация: 1498469   (195035) от 28.07.2023
+
+NG. Самая огромная акула-бык / World's Biggest Bull Shark (2021) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_195035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Морской эколог доктор Нил Хаммершлаг объединяется с бывшим бойцом королевской морской пехоты Джеймсом Глэнси и эволюционным биологом доктором Тоби Дейли-Энгелем, чтобы выяснить, как Биг Булл, одна из самых крупных когда-либо пойманных тупорылых акул, выросла такой гигантской. А также узнать, не существуют ли другие подобные громадины.Производство: США, Red Rock Films, National GeographicЖанр: Документальный, фаунаРежиссер: Дэвид С. ФальконеПеревод: Одноголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAA2A4A3B69AEEE8EB488019EACBF4BD009FA26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517200   (195021) от 28.07.2023
+
+Становление Кусто / Becoming Cousteau (2021) WEBRip [H.264/1080p]
+
+>>След.
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_195021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляд на жизнь, достижения и трагедии, окружавшие известного исследователя и защитника окружающей среды Жака Кусто, благодаря архиву его недавно отреставрированных съемок.Производство: США / ACE Content, National Geographic, National Geographic Documentary Films, Story SyndicateЖанр: Документальный, биография, приключенияРежиссер: Лиз ГарбусУчастники: Венсан Кассель, Кэрол Бёрнетт, Луи Маль, Жак Ив Кусто, Дебора Норвилл, Пабло Пикассо, Жан-Мишель Кусто, Филипп Кусто, Дэвид Л. Волпер, Симона КустоПеревод: Двуголосый любительский (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2B6D388295F27C86B585EF17919E32988399C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484897   (195004) от 29.07.2023
+
+NG. 700 Акул / 700 Sharks (2018) WEB-DL [H.264/1080p]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_195004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая большая стая серых акул в мире... 700 особей... Такое количество хищников собирается в полнолуние с единственной целью - поесть. Команда ученых совершит погружение, чтобы с помощью сверхсовременного оборудования запечатлеть грандиозную охоту и выяснить, что происходит в этом огромном скоплении акул.Производство: Франция, Германия, Французская Полинезия, ARTE, Andromeуde Oceanologie, CNRS Images, Filmin'Tahiti, Le cinquieme reve, Les Gens Biens Productions, National GeographicЖанр: Документальный, фауна, исследованияРежиссер: Люк МарескоУчастники: Дэн Нахтраб, Лоран Бальеста, Чарли ХувенерсПеревод: Одноголосый профессиональный (Велес)Субтитры: Английские, русскиеПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF4D6D0479B7B97FE323891F8CCA2AD59D1CBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216343   (194981) от 31.07.2023
+
+NG: Земля: Биография Планеты / Earth: Making of a Planet (2011) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_194981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля... Насколько нам известно, это единственное обитаемое небесное тело во Вселенной. Почему? Чем наша планета так особенна? Ответы кроются в далеком прошлом Земли. Чтобы их отыскать, нам надо совершить путешествие в прошлое и увидеть первых ходивших по земле людей... Проехаться по континентам, движущихся навстречу друг другу... Повстречаться с динозаврами-убийцами, (   Читать дальше...   )Производство: Великобритания, Канада, Pioneer Productions International Limited, Handel ProductionsЖанр: ДокументальныйРежиссер: Явар АббасПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 01:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04EA6E423577B909145E60DBABB48E67423AC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363432   (194978) от 29.07.2023
 
 NG: Путешествие на край Вселенной / Journey to the Edge of the Universe (2008) BDRip [H.265/1080p-LQ] [10-bit]
@@ -6,7 +110,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194978.jpg" />
+  <img src="Z:/picture/004/save_picture_194978.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194038.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192809.jpg" />
+  <img src="Z:/picture/004/save_picture_192809.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192632.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191796.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Секреты истории - Эксперименты ЦРУ: Контр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_190955.jpg" />
+  <img src="Z:/picture/004/save_picture_190955.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190462.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189498.jpg" />
+  <img src="Z:/picture/005/save_picture_189498.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ NG: 11 сентября - хроника террора / Inside 9/11 (2007) TVR
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_189484.jpg" />
+  <img src="Z:/picture/005/save_picture_189484.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188212.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187032.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ NG. Охотники за вирусами / Virus Hunters (2020) IPTV [H.264/10
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184897.jpg" />
+  <img src="Z:/picture/004/save_picture_184897.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182987.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_181974.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ NG: Момент смерти / Moment of Death (2008) DVDRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177918.jpg" />
+  <img src="Z:/picture/005/save_picture_177918.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ NG: Чужие миры / Alien Worlds (2009) HDTVRip [720p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176313.jpg" />
+  <img src="Z:/picture/004/save_picture_176313.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ NG. С Точки Зрения Науки: Полёт в систему Юпит
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174885.jpg" />
+  <img src="Z:/picture/004/save_picture_174885.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ NG: Последствия: Мир без нефти / Aftermath: World without 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174690.jpg" />
+  <img src="Z:/picture/004/save_picture_174690.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ NGW: 700 Акул / 700 Sharks (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173770.jpg" />
+  <img src="Z:/picture/004/save_picture_173770.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ NG. Эпические приключения с Берти Грегори / Epi
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172754.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ NGW: Драконы Комодо / Komodo Dragons (2018) WEBRip [H.264/1080p]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169290.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ NG. Ледяная дорога / Ice Road Rescue (2021) HDTV [H.264/1080i] (с�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169093.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ NG. Ледяная дорога / Ice Road Rescue (2021) HDTV [H.264/1080i] (с�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A91925243D0AE5BF30B3701F1E0C49C97701D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1515743   (168323) от 08.12.2021
-
-NGW: Скрытые чудеса Африки / Africa's Hidden Wonders (2020) WEBRip [H.264/1080p] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168323.jpg" />
-</div>
-
-
-###  Подробнее
-
-От диких пустынь и действующих вулканов до огромных озер и рек - Африка - страна крайностей. На этом впечатляющем континенте звери дикой природы сражаются за выживание в самых суровых условиях мира.Производство: Нидерланды / Off the Fence B. V., National GeographicЖанр: Документальный, Природа, Фауна, ФлораРежиссер: Надеге ЛайчиПеревод: Одноголосый профессиональный (Студия Велес)Субтитры: ОтсутствуютПродолжительность: 3x ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0992CF2030C4CF83D2DABE4590F9BFCD39350002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516119   (167509) от 09.12.2021
-
-NG: Война Гитлера против прессы / Hitler's Battle Against the Press (2018) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167509.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1920-х годах журналисты газеты «Мюнхенер Пост» (Münchner Post) уже видели опасность, исходившую от Гитлера. Решительно и бесстрашно они писали об угрозе национал-социализма. Гитлер называл эту газету «мастерской дьявола» и угрожал её сотрудникам с помощью своих головорезов. Сегодня эти смелые редакторы и их газета оказались в полном забвении. Только одна книга (   Читать дальше...   )Производство: США, Германия / National Geographic ChannelЖанр: Документальный, ИсторияРежиссер: Уте Бёнэн, Геральд ЭндресПеревод: Одноголосый профессиональный (Студия «Велес»)Субтитры: ОтсутствуютПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E36933423E780D56046A7574152F6DCCE9620BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216190   (167182) от 13.12.2020
-
-NG: С точки зрения науки: Предотвратить конец света / Naked Science: Preventing Armageddon (2010) SATRip
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167182.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом эпизоде мы следим за работой ученых, которые пытаются предотвратить столкновение крупного астероида с землей, в результате которого наша планета может погибнуть. Как утверждает геолог Рэй Андерсон, огромная скала весом в 50 миллионов тонн неотвратимо движется к земле со скоростью 60000 миль в час. Удар такого астероида при столкновении с нашей планетой в 10 (   Читать дальше...   )Телекомпания: National GeographicЖанр: ДокументальныйРежиссер: Мартин ГорстПеревод: Одноголосый профессиональныйПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDDCF197C6ABA6BBB91AF7DBDA130D81667D9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516225   (166657) от 10.12.2021
-
-NG: Неразгаданные тайны Солнца / Dark Secrets of the Sun (2020) WEBRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солнце содержит в себе 99,9% всего вещества нашей солнечной системы и выделяет горячую плазму со скоростью почти миллион миль в час. Температура в его ядре достигает 27 миллионов градусов по Фаренгейту. Оно конвульсирует, пылает, и даже издает звуки. Ученые считают солнце одной из самых удивительных физических лабораторий во вселенной. Теперь, с помощью космических (   Читать дальше...   )Производство: США / Duncan Copp LTD, National Geographic, NOVA/WGBH BostonЖанр: ДокументальныйРежиссер: Дункан КоппПеревод: Одноголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EC3BD30DA038322C6BF3756FA864EEAED17D53D
 ```
 
 https://mybot314.ru/tekegram_catalog/

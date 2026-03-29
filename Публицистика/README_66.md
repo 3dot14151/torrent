@@ -1,3 +1,83 @@
+###  Публикация: 1184398   (301370) от 17.11.2017
+
+Г. Н. Вачнадзе | Идеологические диверсии империализма (1981) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301370.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге известного советского ученого, доктора исторических наук Г. Н. Вачнадзе рассказывается о приемах и методах империалистической пропаганды, направленной против Советского Союза и других стран социализма. Используя обширный фактический материал, автор анализирует враждебную работу западных радиостанций "Голос Америки", Би-би-си, "Свободная Европа", (   Читать дальше...   )Жанр: История, политология, экономика, психология, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB46DA7D74A42E011DD65AB7A33C485090C646C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261647   (301263) от 12.11.2018
+
+И. Ф. Филиппов | Записки о "третьем рейхе" (1966) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор "Записок о "Третьем рейхе"" на основе фактов и собственных наблюдений рисует обстановку в гитлеровской Германии накануне второй мировой войны, раскрывает античеловеческую сущность гитлеровского фашизма, теоретический характер методов правления национал-социалистической клики, приведший Германию к катастрофе.
+
+Книга всем своим содержанием (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADF4F12E9341F26A132D0A33837DB2061104FE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184414   (301188) от 17.11.2017
+
+Игорь Прокопенко | Новые угрозы XXI века (2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_301188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного тележурналиста Игоря Прокопенко посвящена угрозам для человека, которые скрываются, казалось бы, в уже привычных и повседневных вещах, но появившихся в обиходе относительно недавно: в фастфуде, мобильных телефонах и компьютерных играх. Читателю откроются поразительные факты повседневной жизни в странах Запада и России, связанных с деградацией системы (   Читать дальше...   )Жанр: Научно-популярная литература, Публицистика, Таинственные явленияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F759CB24F3C499646E197797DE00E693138D22A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261689   (301187) от 12.11.2018
 
 А. А. Галкин (общ. ред.) | Геноцид! (1985) [DJVU]
@@ -6,7 +86,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301187.jpg" />
+  <img src="Z:/picture/008/save_picture_301187.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301151.jpg" />
+  <img src="Z:/picture/008/save_picture_301151.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300983.jpg" />
+  <img src="Z:/picture/008/save_picture_300983.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300982.jpg" />
+  <img src="Z:/picture/008/save_picture_300982.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300800.jpg" />
+  <img src="Z:/picture/008/save_picture_300800.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299139.jpg" />
+  <img src="Z:/picture/008/save_picture_299139.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299128.jpg" />
+  <img src="Z:/picture/008/save_picture_299128.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299035.jpg" />
+  <img src="Z:/picture/008/save_picture_299035.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299033.jpg" />
+  <img src="Z:/picture/008/save_picture_299033.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299019.jpg" />
+  <img src="Z:/picture/008/save_picture_299019.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298959.jpg" />
+  <img src="Z:/picture/008/save_picture_298959.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298792.jpg" />
+  <img src="Z:/picture/008/save_picture_298792.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298780.jpg" />
+  <img src="Z:/picture/008/save_picture_298780.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298716.jpg" />
+  <img src="Z:/picture/008/save_picture_298716.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298641.jpg" />
+  <img src="Z:/picture/008/save_picture_298641.jpg" />
 </div>
 
 
@@ -401,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298624.jpg" />
+  <img src="Z:/picture/008/save_picture_298624.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298562.jpg" />
+  <img src="Z:/picture/008/save_picture_298562.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297438.jpg" />
+  <img src="Z:/picture/008/save_picture_297438.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297430.jpg" />
+  <img src="Z:/picture/008/save_picture_297430.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297297.jpg" />
+  <img src="Z:/picture/008/save_picture_297297.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297287.jpg" />
+  <img src="Z:/picture/008/save_picture_297287.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297285.jpg" />
+  <img src="Z:/picture/008/save_picture_297285.jpg" />
 </div>
 
 
@@ -586,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297042.jpg" />
+  <img src="Z:/picture/008/save_picture_297042.jpg" />
 </div>
 
 
@@ -598,87 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D89F2CFEAAE06A0D13B4BC8FC41806BD01A855C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185054   (297038) от 19.11.2017
-
-Джошуа Купер Рамо | Седьмое чувство. Под знаком предсказуемости: как прогнозировать и управлять изменениями в цифровую эпоху (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые теория, рассматривающая труднопрогнозируемые редкие события и их влияние на окружающую действительность, была описана Нассимом Талебом в книге "Чёрный лебедь. Под знаком непредсказуемости" еще в 2007 году.
-Спустя 10 лет эта тема по-прежнему актуальна. Мир охвачен террористической угрозой, волны беженцев наводняют Европу, нестабильная экономическая (   Читать дальше...   )Жанр: Социология. Обществознание, ЭкономикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E65016D766295A92F0154FE9D6176F1600F03FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962235   (295062) от 04.12.2015
-
-Игорь Осовин | Шестое вымирание. XXI век катастроф (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295062.jpg" />
-</div>
-
-
-###  Подробнее
-
-За последние 30 лет количество природных катастроф выросло на 430%. Наша планета все больше похожа на перегретый котел, готовый вот-вот взорваться, или на аварийный реактор с отказавшей защитой.
-Можно ли остановить эту цепную реакцию катаклизмов – или жизнь на Земле обречена на очередное Великое вымирание? Когда взорвется Йеллоустоунский супервулкан и чем это грозит (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A10072AB797FDA73F392D67190CA500294450448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185146   (295021) от 20.11.2017
-
-Леонид Млечин | 26 главных разведчиков России (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295021.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны портреты 26 руководителей советской и российской политической разведки, начиная с первого начальника иностранного отдела ВЧК и заканчивая нынешним директором СВР.
-Среди них есть такие известные персонажи, как Артур Артузов, Павел Судоплатов, Владимир Крючков, Леонид Шебаршин и Евгений Примаков, так и те, чьи достижения и провалы ведомы только профессионалам. (   Читать дальше...   )Жанр: Cпецслужбы, Биографии и Мемуары, ПублицистикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F5578F975BF45011353BB991ECA842447ECC69
 ```
 
 https://mybot314.ru/tekegram_catalog/

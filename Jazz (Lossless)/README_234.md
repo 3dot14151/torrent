@@ -1,3 +1,119 @@
+###  Публикация: 1268056   (264462) от 09.12.2018
+
+Jaki Byard Quartet - Live! (1965) 1992, Prestige [APE|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twelve [12:10]
+02. Denise [9:42]
+03. Thing What Is [11:36]
+04. Broadway [13:39](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9165DB10CC51C745AB8153B012551A4123DB09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340098   (264312) от 22.11.2019
+
+Roy Haynes - True Or False 1986 (1997) Evidence [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limehouse Blues [4:51]
+02. In a Sentimental Mood [7:21]
+03. Big Foot [4:38]
+04. Psalm [12:28](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74C697E4C981326122F7A6F6BD729F1A3778D6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191662   (264185) от 14.12.2017
+
+Lionel Hampton & Friends (1990) Groove Merchant [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foolin' 'Round [12:39]
+02. Hamp's Blues [09:39]
+03. Waltz for Bill Evans [06:47]
+04. Vamp (Sundance) [12:29]Жанр: Swing, Mainstream JazzПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF99ABF7A84ABAA9AF0E2F164F4AF0A387781E2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191667   (264184) от 14.12.2017
+
+Chris Potter - Pure (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salome's Dance [06:43]
+02. Checking Out [04:03]
+03. Resonance [03:51]
+04. Bad Guys [06:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AF49D6CBBDE30AB080B6BF312B32B43F39A55D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191497   (264183) от 14.12.2017
 
 George Otsuka Trio - Page 2 (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -6,7 +122,7 @@ George Otsuka Trio - Page 2 (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264183.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Chris Potter - Moving In (1996) Concord Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264181.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Wes Montgomery - Dangerous (1961 - 1963) 1999, Milestone Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264177.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ George Otsuka Trio - Last Summer: Page 3 (1969) 2014, Nippon Columbia [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264176.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Optimystica Orchestra - Полубоги Вина (2005) 2018, Remastered [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264016.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Chris Potter - Coming Together (2009) Inarhyme Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263918.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ George Shearing & Brian Torff - Lullaby of Birdland (1979, 1980) 2CD, 2000, Conc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263914.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dave Brubeck Quartet - At Wilshire Ebell (1953) 2006, Fresh Sound Records [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263901.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Brian Culbertson - 15 Альбомов (1995-2018) [FLAC|Lossless|image+ .cue, t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263789.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ Bud Powell Trio - Bouncing With Bud 1962 (1997) Mobile Fidelity Sound Lab [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263629.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ Dave Brubeck - Time Signatures: A Career Retrospective 1950-e - 1970-e (1992) 4C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263626.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ Denny Zeitlin & David Friesen - Live at the Jazz Bakery (1996) 1999, Intuition R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263561.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ Lionel Hampton - Hamp's Blues & Flying Home (1969, 1974) 2CD, 1992, Lester Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263538.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Earl Hines - Here Comes Earl 'Fatha' Hines & Spontaneous Explorations (1964, 196
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263536.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ Benjamin Herman featuring Daniel von Piekartz - Trouble (2014) Dox Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263535.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ Art Farmer with Joe Henderson - Yama (1979) 2017, King Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263531.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Herbie Hancock - Dancin' Grooves (1999) SME Records [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263521.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ George Benson - Pacific Fire (1983) Japan, 2017 [FLAC|Lossless|tracks + .cue] <J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263479.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ Seal - Standards (2017) Japan SHM-CD [FLAC|Lossless|image + .cue] <Vocal Jazz, F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263396.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ Farmers Market - Slav to the Rhythm (2012) [FLAC|Lossless|tracks + .cue] <Jazz R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263302.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ Radare - Der Endless Dream (2019) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Expe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263296.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ Stephane Grappelli - Live 1992 (2002) Disques Dreyfus [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_263257.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ Stephane Grappelli - Live 1992 (2002) Disques Dreyfus [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:507731E79CA418056849A77D76C8E80CCF3F4BE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192359   (263252) от 17.12.2017
-
-David Ian - Vintage Christmas Trio (2017) Prescott Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deck the Halls [04:20]
-02. It Came Upon a Midnight Clear [03:51]
-03. Joy to the World [03:08]
-04. White Christmas [03:23](   Читать дальше...   )Жанр: Mainstream Jazz, Piano Jazz, ChristmasПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C320B9E34C74C763F470A1A5D297059EFF9E34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192366   (263247) от 17.12.2017
-
-Mike Moreno - 3 For 3 (2017) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Big Push [06:55]
-02. For Those Who Do [06:28]
-03. You Must Believe in Spring [07:11]
-04. Clube da Esquina No. 1 [05:38](   Читать дальше...   )Жанр: Contemporary Jazz, Guitar JazzПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA3E3F12E6F42033FE4B0F3B9EF49D82AEACED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192364   (263180) от 17.12.2017
-
-Esperanza Spalding - Exposure & Undeveloped (2017) 2CD, Concord Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263180.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Exposure:
-01. Swimming Toward the Black Dot [04:53]
-02. Public Trance It [04:35]
-03. Heaven in Pennies (feat. Robert Glasper) [06:20](   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 01:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52539EB067FB404AA4E3F5696B6EE4C10E0F9729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192463   (263159) от 17.12.2017
-
-Djabe & Steve Hackett - Life Is A Journey: The Sardinia Tapes (2017) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Is A Journey
-02. Golden Sand
-03. Castelsardo At Night
-04. What's The News Antonio?(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB6E61A295D4B744F985FBA6E6471544E8E8D6DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

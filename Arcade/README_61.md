@@ -1,3 +1,29 @@
+###  Публикация: 1776283   (3274) от 12.09.2025
+
+ReSetna (2025) [Ru/Multi] (1.7.1) Repack Let'sРlay
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3274.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где органической жизни давно не осталось, ReSetna пробуждена ИИ APEX, чтобы противостоять растущей угрозе таинственного Сигнала. По мере того как Сигнал распространяет хаос, нарушая равновесие мира и сводя роботов с ума, продвинутый боевой робот ReSetna должна установить истину, стоящую за появлением Сигнала, и устранить его влияние. Со своим преданным дроном-спутником (   Читать дальше...   )Тип издания: RepackРазработчик: Today's GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3F2BDE445AF903FDDC9D7177C5AB2E9D2BF30F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378379   (3090) от 13.09.2025
 
 Airships: Conquer the Skies (2015) [Ru/Multi] (1.2.8.2/dlc) License GOG (обновляемая)
@@ -6,7 +32,7 @@ Airships: Conquer the Skies (2015) [Ru/Multi] (1.2.8.2/dlc) License GOG (обн�
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3090.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Iron Core: Mech Survivor (2025) [Ru/Multi] (3.0.8) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3082.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Virtua Fighter 5 R.E.V.O. (2025) [Multi] (1.05/dlc) Repack Let'sРlay [30th Anni
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3067.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ The Riftbreaker (2021) [Ru/Multi] (Exe:1101 Data:732/dlc) Repack Let'sРlay [Com
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2722.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ PATAPON 1+2 REPLAY (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2587.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ The Precinct (2025) [Ru/Multi] (1.9.19872) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2577.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack Let'sРlay [Supporte
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2431.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack FitGirl [Supporter E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2099.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ StarVaders (2025) [Ru/Multi] (1.1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1940.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Bloons TD 6 (2018) [Ru/Multi] (50.2.9835) Repack Pioneer
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1720.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Ravenswatch (2023) [Ru/Multi] (1.03.01.00.26879/dlc) Repack Other s [Supporter E
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1651.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Ctrl Alt Ego (2022) [Ru/Multi] (1.5.5) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1397.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2014.013.003.009.008/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1383.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ DRAGON BALL: Sparking! ZERO (2024) [Ru/Multi] (2014.013.003.009.008/dlc) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1272.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11564 HF2)/dlc) Repack Let'sРlay 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_405.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Ultimat
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_177.jpg" />
 </div>
 
 

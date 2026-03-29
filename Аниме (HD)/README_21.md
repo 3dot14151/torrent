@@ -1,3 +1,29 @@
+###  Публикация: 1299556   (597854) от 02.05.2019
+
+Hoozuki no Reitetsu 3 / Хладнокровный Ходзуки [ТВ-3] [2018, TV, 13 из 13] HDTV 720p Raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_597854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы думаете, что смерть способна решить все проблемы, то вы в корне ошибаетесь. В рай вы попадёте или же в ад, везде своих проблем предостаточно. Однако, речь в нашем аниме пойдёт именно про ад, ведь так куда интереснее. Про трудности простых смертных мы говорить не будем, у нас тут вопрос глобального масштаба. В аду перенаселение! Слишком уж много грешников (   Читать дальше...   )Производство: Studio DEENЖанр: комедия, фэнтезиРежиссер: Ёнэда КадзухироСубтитры: РусскиеПродолжительность: 13 серий по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410918E231E6ECFC2D9C64ED40F9628E2043339C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218531   (597772) от 25.06.2018
 
 Cutie Honey Universe | Вселенная Милашки Хани [2018, TV, 12 эп.] WEB-DL 720p raw
@@ -6,7 +32,7 @@ Cutie Honey Universe | Вселенная Милашки Хани [2018, TV, 12 
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597772.jpg" />
+  <img src="Z:/picture/008/save_picture_597772.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Caligula | Калигула [2018, TV, 12 эп.] WEB-DL 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597615.jpg" />
+  <img src="Z:/picture/008/save_picture_597615.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Comic Girls / Девочки-мангаки [2018, TV, 12] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597611.jpg" />
+  <img src="Z:/picture/008/save_picture_597611.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ High School DxD BorN | High School DxD Third | High School DxD 3rd Season | Де
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597298.jpg" />
+  <img src="Z:/picture/008/save_picture_597298.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Love Live! Sunshine!! (2017) | Живая любовь! [ТВ-4] [2017, TV, 13 �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596144.jpg" />
+  <img src="Z:/picture/008/save_picture_596144.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Souryo to Majiwaru Shikiyoku no Yoru ni... / Жаркая ночь с монах
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596136.jpg" />
+  <img src="Z:/picture/008/save_picture_596136.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Koukaku no Pandora: Ghost Urn (2016) | Pandora in the Crimson Shell: Ghost Urn |
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595475.jpg" />
+  <img src="Z:/picture/008/save_picture_595475.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Piano no Mori (2019) | Рояль в лесу [ТВ-2] [2019, TV, 12 из 12] WE
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593775.jpg" />
+  <img src="Z:/picture/008/save_picture_593775.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Hinamatsuri | Праздник Хины [2018, TV, 12 эп.] WEBRip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593241.jpg" />
+  <img src="Z:/picture/008/save_picture_593241.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Yamada-kun to 7-nin no Majo / Ямада и семь ведьм [2015, TV, 12] H
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592196.jpg" />
+  <img src="Z:/picture/008/save_picture_592196.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Aoi Tamago | Pale Cocoon | Бледный Кокон [2006, OVA] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591765.jpg" />
+  <img src="Z:/picture/008/save_picture_591765.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Plastic Memories | Синтетические воспоминания [2015, TV
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591705.jpg" />
+  <img src="Z:/picture/008/save_picture_591705.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Date a Live II / Рандеву с Жизнью 2 [2014, TV, 10] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591463.jpg" />
+  <img src="Z:/picture/008/save_picture_591463.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Danna ga Nani o Itteiruka Wakaranai Ken 2 Sureme / Я своего мужа со
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586634.jpg" />
+  <img src="Z:/picture/008/save_picture_586634.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Fate/Stay Night: Unlimited Blade Works | Судьба: Ночь Схватки [
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584599.jpg" />
+  <img src="Z:/picture/008/save_picture_584599.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Planetarian: Chiisana Hoshi no Yume / Planetarian: The Reverie of a Little Plane
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582233.jpg" />
+  <img src="Z:/picture/008/save_picture_582233.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ Koyomimonogatari | Истории Коёми [2015, TV, 12 эп.] BDrip 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580207.jpg" />
+  <img src="Z:/picture/008/save_picture_580207.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Golden Time / Золотая Пора [2013, TV, 24] HDTV 720p raw
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577943.jpg" />
+  <img src="Z:/picture/008/save_picture_577943.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ Alice or Alice | Алиса или Алиса: Брат-сестролюб и е
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577790.jpg" />
+  <img src="Z:/picture/008/save_picture_577790.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ Boku wa Tomodachi ga Sukunai Next | Haganai Next | У меня мало друз
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577781.jpg" />
+  <img src="Z:/picture/008/save_picture_577781.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ Ginga Eiyuu Densetsu: Die Neue These - Kaikou | Легенда о героях �
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577635.jpg" />
+  <img src="Z:/picture/008/save_picture_577635.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Tada-kun wa Koi o Shinai | Tada Never Falls in Love | Тада-кун не вл�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577516.jpg" />
+  <img src="Z:/picture/008/save_picture_577516.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Mahou Shoujo Ore | Magical Girl Ore | Я — девочка-волшебница
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577515.jpg" />
+  <img src="Z:/picture/008/save_picture_577515.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Rinne no Lagrange: Flower declaration of your heart S2 / Сердца твоег
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576567.jpg" />
+  <img src="Z:/picture/008/save_picture_576567.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 >>Аниме (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575457.jpg" />
+  <img src="Z:/picture/008/save_picture_575457.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5268CEFF326A24B92D170017FBA7A7B0F3E7A5CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221396   (574409) от 03.07.2018
-
-Butlers: Chitose Momotose Monogatari | Butlers x Battlers | Дворецкие: История тысячи столетий [2018, TV, 12] WEBRip 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кома Дзингудзи по прозвищу Джей умён, хорош собой и вообще президент студсовета, а его прекрасная улыбка заставляет трепетать женские сердца. Цубаса Хаякава — всесторонне одарённый и вежливый бариста; его латте с изображениями совушек весьма популярен среди посетительниц кафе. А ещё эти двое путешествуют сквозь время, чтобы одолеть некоего главного врага. Так очаровательные (   Читать дальше...   )Производство: Студия Silver LinkЖанр: приключенияРежиссер: Такахаси КэнПеревод: RizenTeamЯзык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD09AE7768D4C3E70B2174D885C845494C99DB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

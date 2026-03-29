@@ -1,3 +1,73 @@
+###  Публикация: 437639   (977551) от 17.01.2012
+
+VA - 80's Revolution - Disco Fox Vol 1-3 (6CD) (2010, 2011) [MP3|320 kbps]<Synthpop, Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disco Fox Vol 1
+Продолжительность: 01:09:21
+CD1 01. Bad Boys Blue - Don't Walk Away, Suzanne (Dance Mix)
+ 02. Bernie Paul - Attenzione / Go Go Radio (12'' Version)
+ 03. Foreign Currency - C'est La Vie (12'' Version)
+ 04. Roxanne - Charlene (Long Version)
+ 05. Joe Lockwood - Hey You (12'' Version)
+ 06. Essence - Kahlua Sun (Extended Dance Version)
+ 07. Shipra - Joy (In My Heart) (12'' Version)
+ 08. Curacao - Yasou (Special Russian Mix)(   Читать дальше...   )2010, 2011Жанр: Synthpop, Italo DiscoПродолжительность: 07:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118DB247D8D23D180856ADD04F3DFA334D6D1DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614130   (977372) от 08.02.2013
+
+VA - 100 Huge Hits Of The 60s & 70s (2007) 4CD BoxSet[MP3|320 кб/с]<Pop-Rock, Jazz, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Undertones - Teenage Kicks [02:27]
+02. The Regents - 7 Teen [03:25]
+03. Sham 99 - Hersham Boys [03:28]
+04. Jilted John - Jilted John [02:56]
+05. Jonathan Richman And The Modern Lovers - Roadrunner [04:07]
+06. Dave & Ansel Collins - Double Barrel [02:45]
+07. Althia & Donna - Uptown Top Ranking [03:53]
+08. Ken Boothe - Everything I Own [03:47]
+09. Nicky Thomas - Love Of The Common People [02:20]
+10. Bob And Marcia - Young, Gifted And Black [03:10](   Читать дальше...   )Жанр: Pop-Rock, Jazz, RockПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E4A70E625E00AE7FB1A05EE0876EC26F42C17ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974232   (976510) от 11.01.2016
 
 VA - 100 популярных супер хитов от Русского Радио (2016) [MP3|320 кб/с] <Pop>
@@ -6,7 +76,7 @@ VA - 100 популярных супер хитов от Русского Рад
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976510.jpg" />
 </div>
 
 
@@ -35,7 +105,7 @@ VA - Итоговый ЕвроХит Топ 40 2013  [MP3|~245 кб/с (V0)]<Pop
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976352.jpg" />
 </div>
 
 
@@ -64,7 +134,7 @@ Reverend and The Makers - Collection (2007-2012) [OGG|459-548 кб/с] <Dance Ro
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975868.jpg" />
 </div>
 
 
@@ -93,7 +163,7 @@ VA - German Top 100 Single Charts 31.01.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975614.jpg" />
 </div>
 
 
@@ -122,7 +192,7 @@ VA - Акварели (Super DISCOTEKA 70s|80s) (2016) [MP3|320 кб/с] <Disco,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975565.jpg" />
 </div>
 
 
@@ -151,7 +221,7 @@ VA - 100 Greatest Modern Pop Songs (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975374.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975374.jpg" />
 </div>
 
 
@@ -180,7 +250,7 @@ VA - Жаркая драйвовая туса (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974468.jpg" />
 </div>
 
 
@@ -209,7 +279,7 @@ VA - Жажда скорости танцевальный ритм (2016) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974402.jpg" />
 </div>
 
 
@@ -238,7 +308,7 @@ VA - Je T'Aime (2CD) (2013) [MP3|320 кб/с]<Pop \ Pop-Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973874.jpg" />
 </div>
 
 
@@ -273,7 +343,7 @@ VA - Радио Шторм - Русский Шторм - 87 (2013) [MP3|128-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973807.jpg" />
 </div>
 
 
@@ -308,7 +378,7 @@ VA - Best DJ of Radio Records (2013) [MP3|256 кб/с]<Pop,Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973411.jpg" />
 </div>
 
 
@@ -343,7 +413,7 @@ VA - Зимний Горячий Best-Hits (2016) [MP3|256 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973199.jpg" />
 </div>
 
 
@@ -372,7 +442,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973119.jpg" />
 </div>
 
 
@@ -401,7 +471,7 @@ VA - Зима на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972940.jpg" />
 </div>
 
 
@@ -430,7 +500,7 @@ VA - The Official UK Top 40 Singles Chart (10-02-2013) [MP3|320 кб/с]<Pop, Da
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972404.jpg" />
 </div>
 
 
@@ -459,7 +529,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971922.jpg" />
 </div>
 
 
@@ -488,7 +558,7 @@ VA - Top 100 Самые скачиваемые треки (2013) [MP3|256 кб/�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970333.jpg" />
 </div>
 
 
@@ -523,7 +593,7 @@ VA - Антология французской музыки (10CD) (2004) [MP3|2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969533.jpg" />
 </div>
 
 
@@ -558,7 +628,7 @@ VA - Звездный снегопад хитов (2016) [MP3|256-320 кб/с] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967718.jpg" />
 </div>
 
 
@@ -587,7 +657,7 @@ VA - Звездный Mix. Улетная 100-ка (2016) [MP3|256-320 кб/с] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967669.jpg" />
 </div>
 
 
@@ -616,7 +686,7 @@ VA - German Top 100 Single Charts 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967407.jpg" />
 </div>
 
 
@@ -645,7 +715,7 @@ VA - На100ящие модные хиты. Русская версия (2013) [
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966431.jpg" />
 </div>
 
 
@@ -680,7 +750,7 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962037.jpg" />
 </div>
 
 
@@ -709,7 +779,7 @@ VA - Rock & Pop Ballads Collection от ALEXnROCK Часть 1 (2020) [MP3|320 K
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961761.jpg" />
 </div>
 
 
@@ -723,64 +793,6 @@ VA - Rock & Pop Ballads Collection от ALEXnROCK Часть 1 (2020) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA241195D9D3605C84D46CA4C7EBC49531679209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978694   (960941) от 25.01.2016
-
-VA - Зимний Муз-драйв 100-ка популярной музыки (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NikitA - Вдыхай
-02. Sasha Lopez - Moments ft Ale Blake & Broono (Extended Club Mix)
-03. Дима Билан - Неделимые
-04. Alex Kafer & Lera Feat. Ural Djs - Алешка(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126BB984306825319E14C44DA370626654966C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979272   (959653) от 26.01.2016
-
-VA - Зимняя 100-ка Популярных Треков (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ева Польна - Мало
-02. Ёлка - Праздник К Нам Приходит!
-03. Kristina Si - Не Обижай Меня
-04. Milki - Лапочка(   Читать дальше...   )Жанр: PopПродолжительность: 06:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE9014694044E490120935A9D6A18EA9522641D
 ```
 
 https://mybot314.ru/tekegram_catalog/

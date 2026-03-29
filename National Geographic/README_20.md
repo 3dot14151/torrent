@@ -1,3 +1,109 @@
+###  Публикация: 1231945   (603152) от 21.06.2018
+
+NG: Амазония: наизловещий ритуал / Search for the Amazon Headshrinkers (2009) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Недавно были обнаружены архивные съемки 1960-х годов показывающие, шокирующие съемки экспедиции Эдмунда Белявского который сталкивется в Амазонии с изготовлением тсанаса (сушенных голов). Страшные легенды из Амазонии рассказывают про индейских изготовителей тсантса, которые уменьшают головы противника, что бы мстительная душа была бессильна. Теперь, NGC имеет эксклюзивный (   Читать дальше...   )Производство: США, Diverse Productions Ltd, FIVE, National Geographic ChannelЖанр: ДокументальныйРежиссер: Пирс ДжиббонПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CED684C5DA4657CA8F9BFACF6BA1E0B07039112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297741   (603071) от 24.04.2019
+
+NGW: Дикие охотники. Кошки / Wild Hunters. Cats (2019) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это удивительное путешествие по всему миру в поисках самых смертельно опасных хищников. А между тем, эти повергающие в трепет кадры отображают повседневную жизнь дикой природы.
+И евразийские рыси в Европе и длиннохвостые кошки в Индии имеют одну общую особенность: они представляют собой смертельно опасные машины для убийства. Это настоящие чемпионы в области охоты.Производство: Испания, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Хуан Антонио Родригес ЛьяноПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A362B03ECF37E6BFDC6A1FDD2B499687EE2983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298021   (602637) от 25.04.2019
+
+NG: Осушить океан: глубокое погружение. Затонувшие берега Америки / Drain the Oceans: Deep Dive. America's Sunken Shores (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602637.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война, погода и человеческие ошибки привели к самым крупным морским катастрофам в истории США. Но представьте, если бы мы смогли "осушить" океан, чтобы открыть тайны, которые скрывают моря, омывающие побережье обеих Америк. Пёрл Харбор - кто произвел первый выстрел? Что из себя представляли могучие силы, которые сделали Алькатрас и и Залив Сан-Франциско (   Читать дальше...   )Производство: Великобритания, Австралия, Mallinson Sadler Productions, Electric Pictures, National GeographicЖанр: Документальный, история, исследованияРежиссер: Софи Элвин Харрис, Майкл ДивайсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B6E744A631E6E6DB866EFC7B9FC03E021EAFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298098   (602142) от 26.04.2019
+
+NGW: Секреты зоопарка. Ждем малыша! / Secrets of the Zoo (2018) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_602142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы получите беспрецедентную возможность увидеть то, что скрыто от посетителей одного из самых больших и популярных зоопарков: "Колумбийского зоопарка и аквариума".
+Прежде, чем ворота зоопарка Коламбус откроются для посетителей, у персонала масса работы. Сотрудники этого выставочного комплекса в самом Сердце Африки должны сделать утренний обход и накормить (   Читать дальше...   )Производство: США, Nat Geo WildЖанр: Документальный, фаунаРежиссер: Меттью УильямсПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:367BCC13795FFD9DF6CC0E1216AE802C3A486D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298423   (601858) от 27.04.2019
 
 NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HDTV [H.264/1080i-LQ] (Сезон 5, эпизод 16)
@@ -6,7 +112,7 @@ NG. Мегазаводы: Тата Нано / Megafactories: Tata Nano (2023) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601858.jpg" />
+  <img src="Z:/picture/008/save_picture_601858.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ National Geographic. В Святом Иерусалиме / Secrets of Jerusalem
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601216.jpg" />
+  <img src="Z:/picture/008/save_picture_601216.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ NGW: На прогулке с жирафами / Walking with Giraffes (2017) HD
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599930.jpg" />
+  <img src="Z:/picture/008/save_picture_599930.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ NGW: Гризли Аляски бросают вызов. Осада белым�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599925.jpg" />
+  <img src="Z:/picture/008/save_picture_599925.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ NG: Прекрасная Америка: Величественный Север
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598226.jpg" />
+  <img src="Z:/picture/008/save_picture_598226.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ NGW: Могущественные рептилии / Planet of the Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598067.jpg" />
+  <img src="Z:/picture/008/save_picture_598067.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ NGW: Малыши-экстремалы / Extreme babies animal (2016) HDTV [H.26
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596254.jpg" />
+  <img src="Z:/picture/008/save_picture_596254.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ NGW: Дикие охотники. Рептилии / Wild Hunters. Reptiles (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595965.jpg" />
+  <img src="Z:/picture/008/save_picture_595965.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ NGW: Гризли Аляски бросают вызов. Короли остр�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595005.jpg" />
+  <img src="Z:/picture/008/save_picture_595005.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594602.jpg" />
+  <img src="Z:/picture/008/save_picture_594602.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ NGW: В поисках таинственного зверя / Search for the Se
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593547.jpg" />
+  <img src="Z:/picture/008/save_picture_593547.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593271.jpg" />
+  <img src="Z:/picture/008/save_picture_593271.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ NG. Взлёт чёрных фараонов / Rise of the Black Pharoahs (2014)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593114.jpg" />
+  <img src="Z:/picture/008/save_picture_593114.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ NGW: Короли ящериц / Lizard Kings (2009) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592989.jpg" />
+  <img src="Z:/picture/008/save_picture_592989.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ NG: Экспедиция на Марс / Expedition Mars (2016) HDTV [H.264/1080
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592969.jpg" />
+  <img src="Z:/picture/008/save_picture_592969.jpg" />
 </div>
 
 
@@ -397,7 +503,7 @@ NGW: Змеи в городе / Snakes in the city (2015-2017) HDTV [H.264/1080i
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592877.jpg" />
+  <img src="Z:/picture/008/save_picture_592877.jpg" />
 </div>
 
 
@@ -423,7 +529,7 @@ NG: Египет с величайшим исследователем в мир�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592709.jpg" />
+  <img src="Z:/picture/008/save_picture_592709.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591157.jpg" />
+  <img src="Z:/picture/008/save_picture_591157.jpg" />
 </div>
 
 
@@ -475,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589748.jpg" />
+  <img src="Z:/picture/008/save_picture_589748.jpg" />
 </div>
 
 
@@ -501,7 +607,7 @@ NG: Дикая сторона кошек / Wild Side of Cats (2012) HDTVRip [H.2
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589503.jpg" />
+  <img src="Z:/picture/008/save_picture_589503.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ NG: Дикая река Конго / Wild Congo (2013) HDTVRip [H.264/720p-LQ] (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589172.jpg" />
+  <img src="Z:/picture/008/save_picture_589172.jpg" />
 </div>
 
 
@@ -553,7 +659,7 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) HDTV [H
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586168.jpg" />
+  <img src="Z:/picture/008/save_picture_586168.jpg" />
 </div>
 
 
@@ -565,110 +671,6 @@ NGW: Дикие охотники. Змеи / Wild Hunters. Snakes (2019) HDTV [H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4815CD737E9F232BFC7C0A769A5ADB0174B17144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918873   (585749) от 16.07.2015
-
-NG: Миссия Плутон (Встреча с Плутоном) / Mission Pluto (2015) HDTVRip [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585749.jpg" />
-</div>
-
-
-###  Подробнее
-
-После путешествия длиной в три миллиарда миль Космический зонд "Новые горизонты", отправленный к Плутону почти 10 лет назад, впервые передал на Землю уникальные снимки этой далекой планеты. В этой передачи мы узнаем о трудностях, которые пришлось преодолевать разработчикам проекта и перспективах в изучении последнего и самого далёкого объекта Солнечной (   Читать дальше...   )Телекомпания: Bigger Bang Communications Ltd for National Geographic ChannalЖанр: Документальный, научно-познавательный, космосРежиссер: Nic YoungПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B17A0D069EB7DEC9A2F3E1E06E449924C2F845D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553900   (580873) от 27.05.2022
-
-Дикие кошки Таиланда / Thailand's Wild Cats (2021) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580873.jpg" />
-</div>
-
-
-###  Подробнее
-
-В джунглях Таиланда скрыто древнее царство - последнее убежище тайских диких кошек. Эти почти невидимые идеальные охотники все время проводят в поисках добычи, выборе партнера и защите своего потомства. В этом непроходимом лесу, где живут дымчатый леопард, азиатская кошка-рыболов и король джунглей - тигр, разворачиваются драмы невиданного напряжения и масштаба.Производство: Великобритания, Южная Африка, Warehouse 51 Productions, Lion Mountain Media, National GeographicЖанр: документальный, природа, флора, фаунаРежиссер: Питер ЛамбертиПеревод: дублированныйСубтитры: английскиеПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01E2667F590A310BE360593A3F90FE758F1C9B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554313   (578795) от 29.05.2022
-
-Египет с высоты птичьего полёта / Egypt from Above (2019) WEB-DL [H.264/1080p] (сезон 1, серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Египет... Родина одной из древнейших могучих и долговечных цивилизаций в мире. Захватывающее путешествие по воздуху позволит нам посетить самые удивительные места и покажет, как невероятные достижения древних помогли сформировать современный Египет. Обозревая грандиозный ландшафт с высоты птичьего полёта, мы узнаем, как многие поколения египтян строили уникальное (   Читать дальше...   )Производство: Великобритания, Windfall Films LTD, National GeographicЖанр: документальный, история, путешествия, культураРежиссер: Мэтт Каррингтон, Фрэнки Фазерс / Matt Currington, Frankie FathersПеревод: одноголосый профессиональный (Велес)Субтитры: английскиеПродолжительность: 2x ~00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FF7F339E40AF7053C6B315519B6D4ACB4B222A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233748   (578058) от 01.07.2018
-
-NGW: Пир драконов / Dragons Feast (Into the Dragon's Lair) (2012) HDTVRip [H.264/1080i-LQ] [hand made 50 fps]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посмотрите на яростное пожирание добычи крокодилами, благодаря кадрам, снятым человеком, рискнувшим оказаться среди них в момент их трапезы.Производство: США, NHU Africa, Foster Brothers Film Productions, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Крейг Фостер, Деймон ФостерПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13FEA91A0C63F59BB2AD6C7FC397491B33378519
 ```
 
 https://mybot314.ru/tekegram_catalog/

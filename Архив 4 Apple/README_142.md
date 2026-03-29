@@ -6,7 +6,7 @@
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855207.jpg" />
+  <img src="Z:/picture/008/save_picture_855207.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Default Folder X 5.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855206.jpg" />
+  <img src="Z:/picture/008/save_picture_855206.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ One Switch 1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855075.jpg" />
+  <img src="Z:/picture/008/save_picture_855075.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Zii 2020 - Universal Patcher 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854593.jpg" />
+  <img src="Z:/picture/008/save_picture_854593.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Exposure Software Blow Up 3 v3.1.4.389 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854548.jpg" />
+  <img src="Z:/picture/008/save_picture_854548.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Exposure Software Snap Art 4 v4.1.3.382 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854544.jpg" />
+  <img src="Z:/picture/008/save_picture_854544.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Exposure X7 v7.0.0.96 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854540.jpg" />
+  <img src="Z:/picture/008/save_picture_854540.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ EverWeb (Standalone) 3.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854535.jpg" />
+  <img src="Z:/picture/008/save_picture_854535.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Exposure X7 Bundle v7.0.0.58 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854530.jpg" />
+  <img src="Z:/picture/008/save_picture_854530.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ WiFi Explorer Pro 3 v3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854417.jpg" />
+  <img src="Z:/picture/008/save_picture_854417.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Icon Slate 4.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853917.jpg" />
+  <img src="Z:/picture/008/save_picture_853917.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ LaunchBar 6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853909.jpg" />
+  <img src="Z:/picture/008/save_picture_853909.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ RightFont 3.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853899.jpg" />
+  <img src="Z:/picture/008/save_picture_853899.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ iMazing 1.5.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853887.jpg" />
+  <img src="Z:/picture/008/save_picture_853887.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Vitamin-R 2 v2.45 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853872.jpg" />
+  <img src="Z:/picture/008/save_picture_853872.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ VOX 2.7.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853863.jpg" />
+  <img src="Z:/picture/008/save_picture_853863.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ UninstallPKG 1.0.25 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853818.jpg" />
+  <img src="Z:/picture/008/save_picture_853818.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ MediaInfo 0.7.92 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853812.jpg" />
+  <img src="Z:/picture/008/save_picture_853812.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ DupeZap 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853806.jpg" />
+  <img src="Z:/picture/008/save_picture_853806.jpg" />
 </div>
 
 
@@ -521,7 +521,7 @@ Exif Editor 1.1.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853796.jpg" />
+  <img src="Z:/picture/008/save_picture_853796.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Serial Box 03-2017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853776.jpg" />
+  <img src="Z:/picture/008/save_picture_853776.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Path Finder 7.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853768.jpg" />
+  <img src="Z:/picture/008/save_picture_853768.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Sidify Apple Music Converter 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853764.jpg" />
+  <img src="Z:/picture/008/save_picture_853764.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ File Cabinet Pro 7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853718.jpg" />
+  <img src="Z:/picture/008/save_picture_853718.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Blocs 3.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853717.jpg" />
+  <img src="Z:/picture/008/save_picture_853717.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Path Finder 9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853561.jpg" />
+  <img src="Z:/picture/008/save_picture_853561.jpg" />
 </div>
 
 

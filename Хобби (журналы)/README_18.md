@@ -1,3 +1,83 @@
+###  Публикация: 1216728   (745993) от 02.04.2018
+
+Журнал | The Best of Woodsmith Shop (зима 2017) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745993.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены лучшие проекты, показанные в журнале Woodsmith.
+Woodsmith — журнал по столярному делу представляет для всех мастеров по дереву новые идеи для творчества, обзоры деревообрабатывающей техники и оборудования для мастерской, проекты по изготовлению из дерева различной мебели, поделок, садовых беседок и прочих малых архитектурных строений, которые приводятся (   Читать дальше...   )Жанр: Столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B630B8C9120FA68D932EF9EE55678B4A23BC9F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020544   (745456) от 26.05.2016
+
+Журнал | Сабрина №6 (июнь 2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_745456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый популярный в Европе журнал по вязанию. На русском языке выходит с 1993 года.
+Все модели — как женские, так и мужские — всегда на пике моды, подходят для людей любого возраста и на все случаи жизни. В каждом номере более 30 моделей с инструкциями, схемами и выкройками. Широко представлена молодежная тема, отдельная тема журнала — экстравагантные модели для тех, (   Читать дальше...   )Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4A6AB129BF938CF39948A70A634ED9FE404214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020914   (743877) от 27.05.2016
+
+Журнал | Маленькая Diana №4 (апрель 2016) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленькая Diana - ежемесячный журнал по вязанию для женщин. Пользуется любовью читательниц благодаря практичным моделям на любой вкус: спортивным и классическим, для работы и отдыха. Изюминка журнала - модели для вязания на спицах и крючком, подчеркивающие женственность и сексуальность.Жанр: ВязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EDCD1E40FFECB9EA49EB24D109474D092841DDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020905   (743777) от 27.05.2016
 
 Журнал | Вязание ваше хобби №6 (2016) [PDF]
@@ -6,7 +86,7 @@
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743777.jpg" />
+  <img src="Z:/picture/008/save_picture_743777.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743705.jpg" />
+  <img src="Z:/picture/008/save_picture_743705.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743702.jpg" />
+  <img src="Z:/picture/008/save_picture_743702.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743699.jpg" />
+  <img src="Z:/picture/008/save_picture_743699.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743235.jpg" />
+  <img src="Z:/picture/008/save_picture_743235.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743131.jpg" />
+  <img src="Z:/picture/008/save_picture_743131.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739272.jpg" />
+  <img src="Z:/picture/008/save_picture_739272.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736903.jpg" />
+  <img src="Z:/picture/008/save_picture_736903.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736098.jpg" />
+  <img src="Z:/picture/008/save_picture_736098.jpg" />
 </div>
 
 
@@ -242,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735637.jpg" />
+  <img src="Z:/picture/008/save_picture_735637.jpg" />
 </div>
 
 
@@ -268,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734791.jpg" />
+  <img src="Z:/picture/008/save_picture_734791.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734176.jpg" />
+  <img src="Z:/picture/008/save_picture_734176.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733271.jpg" />
+  <img src="Z:/picture/008/save_picture_733271.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732688.jpg" />
+  <img src="Z:/picture/008/save_picture_732688.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732072.jpg" />
+  <img src="Z:/picture/008/save_picture_732072.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731959.jpg" />
+  <img src="Z:/picture/008/save_picture_731959.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730986.jpg" />
+  <img src="Z:/picture/008/save_picture_730986.jpg" />
 </div>
 
 
@@ -452,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730746.jpg" />
+  <img src="Z:/picture/008/save_picture_730746.jpg" />
 </div>
 
 
@@ -479,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729973.jpg" />
+  <img src="Z:/picture/008/save_picture_729973.jpg" />
 </div>
 
 
@@ -506,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729812.jpg" />
+  <img src="Z:/picture/008/save_picture_729812.jpg" />
 </div>
 
 
@@ -532,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729744.jpg" />
+  <img src="Z:/picture/008/save_picture_729744.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729402.jpg" />
+  <img src="Z:/picture/008/save_picture_729402.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729107.jpg" />
+  <img src="Z:/picture/005/save_picture_729107.jpg" />
 </div>
 
 
@@ -597,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 667517   (728488) от 12.06.2013
-
-Журнал | Вязание ваше хобби №7 (июль 2013) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вязание ваше хобби - ежемесячный журнал по вязанию на спицах и крючком. В номере представлены неповторимые трикотажные модели сочных расцветок: топы, платья, пуловеры с короткими рукавами и жилеты. В этом сезоне популярны ажурные узоры, изысканные рельефы и рисунки. Для интерьера - красивые и уютные подушки.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A227979D31AE18E96CAB76995F290297B70BD6AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530665   (727869) от 12.02.2022
-
-Журнал | The Woodworker & Good Woodworking №3 (март 2022) [PDF] [En]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите изготовить вручную красивую мебель для собственного дома или сделать небольшие вещи, такие как шкатулку для пустяков, миски и игрушки, чтобы продать или подарить их в качестве подарка, журнал Woodworker наверняка заставит вас встряхнуться и приступить к работе над вашим следующим проектом. Каждый месяц есть чем заняться, пока не выйдет следующий номерЖанр: Столярное делоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347BBD6285D62E289843AEA7DEC56B6B55BFC14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128467   (727315) от 25.04.2017
-
-Журнал | Шитье и крой (ШиК). Спецвыпуск №5 [+выкройки] (2017) [PDF, JPG]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал по шитью с выкройками, адресован тем, кто следит за модой и создает гардероб своими руками. Более того — он помогает читательницам создать свой собственный модный образ, дополненный модными аксессуарами. Специальный выпуск журнала представляет 40 моделей одежды из голландского журнала Knippie. Удобные модели для самых маленьких, одежда для подростков.Жанр: шитье и кройФормат: PDF, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D580B55E94BBC6A9E41C3EA80EF1647C48FDC0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

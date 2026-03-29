@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858524.jpg" />
+  <img src="Z:/picture/008/save_picture_858524.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Beach Club Del Mar Cafe - Chill House Edition Vol.2 (2010) [MP3|~265 kbps]<
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_858517.jpg" />
+  <img src="Z:/picture/009/save_picture_858517.jpg" />
 </div>
 
 
@@ -67,7 +67,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858485.jpg" />
+  <img src="Z:/picture/008/save_picture_858485.jpg" />
 </div>
 
 
@@ -94,7 +94,7 @@ Download Master 6.19.5.1651 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858482.jpg" />
+  <img src="Z:/picture/008/save_picture_858482.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Topaz DeNoise AI 2.1.6 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858481.jpg" />
+  <img src="Z:/picture/008/save_picture_858481.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Bulk Crap Uninstaller 4.16 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858476.jpg" />
+  <img src="Z:/picture/008/save_picture_858476.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Ashampoo Snap 11.1.0 RePack (&Portable) elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858475.jpg" />
+  <img src="Z:/picture/008/save_picture_858475.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Re:Zero kara Hajimeru Isekai Seikatsu - Hyouketsu no Kizuna | Re:Zero. Жизн�
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858471.jpg" />
+  <img src="Z:/picture/008/save_picture_858471.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ UnHackMe 11.65 Build 965 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858463.jpg" />
+  <img src="Z:/picture/008/save_picture_858463.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858442.jpg" />
+  <img src="Z:/picture/008/save_picture_858442.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ DAEMON Tools Pro 8.1.1.0666 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858441.jpg" />
+  <img src="Z:/picture/008/save_picture_858441.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858424.jpg" />
+  <img src="Z:/picture/008/save_picture_858424.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ VA - House Vip (06.04.10) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858398.jpg" />
+  <img src="Z:/picture/008/save_picture_858398.jpg" />
 </div>
 
 
@@ -365,7 +365,7 @@ VA - House Vip (04.04.10) [MP3|128-320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858397.jpg" />
+  <img src="Z:/picture/008/save_picture_858397.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ VA - House Vip (05.04.10) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858396.jpg" />
+  <img src="Z:/picture/008/save_picture_858396.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858317.jpg" />
+  <img src="Z:/picture/008/save_picture_858317.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858262.jpg" />
+  <img src="Z:/picture/008/save_picture_858262.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Topaz Gigapixel AI 4.6.0 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858246.jpg" />
+  <img src="Z:/picture/008/save_picture_858246.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858241.jpg" />
+  <img src="Z:/picture/008/save_picture_858241.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ NVIDIA GeForce/ION driver release 266.77 WHQL (Драйвер для видео�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_858238.jpg" />
+  <img src="Z:/picture/009/save_picture_858238.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858206.jpg" />
+  <img src="Z:/picture/008/save_picture_858206.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Marked 2 v2.6.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858188.jpg" />
+  <img src="Z:/picture/008/save_picture_858188.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Sync Folders Pro 4.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858187.jpg" />
+  <img src="Z:/picture/008/save_picture_858187.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Keep It 1.11.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858186.jpg" />
+  <img src="Z:/picture/008/save_picture_858186.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Boxy SVG 3  v3.63.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858184.jpg" />
+  <img src="Z:/picture/008/save_picture_858184.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ eBookBinder 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858183.jpg" />
+  <img src="Z:/picture/008/save_picture_858183.jpg" />
 </div>
 
 

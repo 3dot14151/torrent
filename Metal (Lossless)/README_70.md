@@ -1,3 +1,90 @@
+###  Публикация: 1382022   (822783) от 09.05.2020
+
+Diecast - Internal Revolution (2007) [FLAC|Lossless|image + .cue] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Internal Revolution
+02. Never Forget
+03. Hourglass
+04. Fractured(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D987BD414B1587DD84CF9138EEA16711FB08C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382006   (822782) от 09.05.2020
+
+Deadlock - Wolves (2007) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. World Domination [00:47]
+02. We Shall All Bleed [06:04]
+03. Code Of Honor [04:27]
+04. Losers' Ballet [06:39](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51716E4D8DEB65E0EA39C2A7938254D5DB9D27B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381942   (822781) от 09.05.2020
+
+Circus Maximus - Isolate (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Darkened Mind (5:33)
+02. Abyss (5:00)
+03. Wither (4:46)
+04. Sane No More (3:55)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767CAB17A903C3F1F9BE6A57C756FD95B9C36099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382002   (822778) от 09.05.2020
 
 Dark Moor - Beyond The Sea (2005) [FLAC|Lossless|image + .cue] <Power Metal>
@@ -6,7 +93,7 @@ Dark Moor - Beyond The Sea (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822778.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Ignea - The Sign of Faith (2017) [FLAC|lossless|tracks + .cue] <Progressive Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822743.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Crematory - Monument (2016) [FLAC|Lossless|image + .cue] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822466.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Dimmu Borgir - Spiritual Black Dimensions (1999) [FLAC|Lossless]<Sympho Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822364.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Demons & Wizards - Touched By The Crimson King (2005) [FLAC|Lossless]<Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822271.jpg" />
+  <img src="Z:/picture/008/save_picture_822271.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ System Of A Down (SOAD) - 7 albums, 3 singles, 11CD (1998-2011) [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822252.jpg" />
+  <img src="Z:/picture/008/save_picture_822252.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ In Extremo - 20 Releases (1997-2020) [FLAC|tracks|Lossless] <Folk-Metal, Neue De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822105.jpg" />
+  <img src="Z:/picture/008/save_picture_822105.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Fluisteraars - Gegrepen Door De Geest Der Zielsontluiking (2021) [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821447.jpg" />
+  <img src="Z:/picture/008/save_picture_821447.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Blessdivine - Between Sin & Sacrifice (2021) [FLAC|Lossless|WEB-DL|tracks] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821446.jpg" />
+  <img src="Z:/picture/008/save_picture_821446.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ October Falls - A Fall Of An Epoch (2020) [FLAC|Lossless|tracks + .cue] <Atmosph
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821434.jpg" />
+  <img src="Z:/picture/008/save_picture_821434.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Last Days Of Eden - Chrysalis (2018) [FLAC|Lossless|image + .cue] <Symphonic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821432.jpg" />
+  <img src="Z:/picture/008/save_picture_821432.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Destinity - In Continuum (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821345.jpg" />
+  <img src="Z:/picture/008/save_picture_821345.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ Manowar - Louder Than Hell (1996) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821338.jpg" />
+  <img src="Z:/picture/008/save_picture_821338.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Drama - Silver Brilliance of Nocticula (2006) [FLAC|Lossless|image + .cue] <Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821285.jpg" />
+  <img src="Z:/picture/008/save_picture_821285.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Scythe - Decay (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821191.jpg" />
+  <img src="Z:/picture/008/save_picture_821191.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Scythe - The Process Of Rotting (2004) [FLAC|Lossless|image + .cue] <Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821189.jpg" />
+  <img src="Z:/picture/008/save_picture_821189.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Dimmu Borgir - Stormblast (Special Edition) (2005) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821032.jpg" />
+  <img src="Z:/picture/008/save_picture_821032.jpg" />
 </div>
 
 
@@ -498,7 +585,7 @@ Within Temptation - Entertain You (2020) Single [FLAC|lossless] <Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820870.jpg" />
+  <img src="Z:/picture/008/save_picture_820870.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ VA - Beautiful Voices Vol. 1-3 (2005-2008) [FLAC|Lossless|tracks + .cue] <Sympho
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819942.jpg" />
+  <img src="Z:/picture/008/save_picture_819942.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ Cyborg Halucinations - Entheogenesys (2021) [FLAC|Lossless|WEB-DL|tracks] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819694.jpg" />
+  <img src="Z:/picture/008/save_picture_819694.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ Hurry Scuary - Break It Up (1988) [WavPack|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819690.jpg" />
+  <img src="Z:/picture/008/save_picture_819690.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ Leverage - Blind Fire (2008) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819688.jpg" />
+  <img src="Z:/picture/008/save_picture_819688.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ Black Soul Horde - Land Of Demise (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819591.jpg" />
+  <img src="Z:/picture/008/save_picture_819591.jpg" />
 </div>
 
 
@@ -654,93 +741,6 @@ Black Soul Horde - Land Of Demise (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47C55F946CA0A4BC3E9C5E9FC567C48EBAEF68D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503234   (819590) от 19.10.2021
-
-Leverage - Determinus (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn Love Burn
-02. Wind Of Morrigan
-03. Tiger
-04. Red Moon Over Sonora(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D06E3D036BCCC8FC65069E25AD8A23464133CF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503398   (819481) от 19.10.2021
-
-Black Sabbath - Live In Worcester'83 (1999) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819481.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1983 году в Black Sabbath сложилась весьма интересная "кадровая" ситуация. При микшировании концертного альбома Live Evil, между Айомми и Дио разгорелась ссора: первый обвинил второго в том, что тот пробрался ночью в студию чтобы увеличить громкость своего вокала. И к моменту выхода пластинки в январе 1983 года Дио покинул Black Sabbath, забрав с собой (   Читать дальше...   )01. Children Of The Grave
-02. Hot Line
-03. War Pigs
-04. Iron Man(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:11:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80080A9B02FC24A34225B98F419BE2C3A8AC9EFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382353   (819406) от 11.05.2020
-
-Catamenia - Eternal Winter's Prophecy (2000) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Gates of Anubis 03:06
-02 Soror Mystica 04:15
-03 Blackmension 03:50
-04 Kindom of legions 04:01(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5865DED98DD7A21ACEF09DFF19225C960D8DFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

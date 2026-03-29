@@ -1,3 +1,81 @@
+###  Публикация: 1097191   (914997) от 26.01.2017
+
+SWAT 4 / SWAT 4: The Stetchkov Syndicate (2005) [En] (1.1) License GOG [Gold Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914997.jpg" />
+</div>
+
+
+###  Подробнее
+
+SWAT 4 продолжает серию компьютерных игр, рассказывающих о нелегких буднях полицейского отряда специального назначения SWAT. Вам вновь предстоит стать во главе командования его бойцами и выполнить ряд сложных задач и миссий. Вас ждут операции по спасению мирных граждан, предотвращению тяжких преступлений, борьбе с преступными группировками и задержанию преступников. (   Читать дальше...   )Тип издания: LicenseРазработчик: Irrational Games, ActivisionЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:960FA859080CB3CDB3B56968E17F2340A9DAA0D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097637   (913452) от 27.01.2017
+
+BioShock Infinite (2013) [Ru/Multi] (1.1.25.5165/dlc) SteamRip Let'sPlay
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913452.jpg" />
+</div>
+
+
+###  Подробнее
+
+1912 год. Соединенные Штаты добились мирового господства, а летающий город Колумбия, открытый с большой помпой под ликование восторженной публики, стал величественным символом американских идеалов. Однако многообещающее начинание вскоре обернулось катастрофой: по неизвестной причине город внезапно исчез в заоблачной дали.Тип издания: SteamRipРазработчик: Irrational Games, 2K AustraliaЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D74688686D7C955F9459B8B01D70726F05923407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304765   (913324) от 17.03.2020
+
+RICO (2019) [Multi] (1.0.5/dlc) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы — боец оперативной группы RICO, и ваша задача проста: войти в помещение, нейтрализовать преступников и выйти обратно. В реальности все сложнее: благодаря процедурной генерации заданий вы никогда не знаете, кто или что ждет вас внутри. Подбирайте экипировку и используйте элемент внезапности для получения преимущества над врагом. Открывайте новое оружие, задания (   Читать дальше...   )Тип издания: RepackРазработчик: Ground ShatterЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE6F9DA9AD27C657D2930A3D3A9EF6C5E259369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990451   (910964) от 25.02.2016
 
 Call of Juarez: Bound in Blood (2009) [Ru] (1.1.0.0/tr) Repack =nemos=
@@ -6,7 +84,7 @@ Call of Juarez: Bound in Blood (2009) [Ru] (1.1.0.0/tr) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910964.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Last Floor (2020) [Ru/Multi] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909966.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ The Butterfly Sign (2016) [Ru/Multi] (1.1.5) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909737.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Painkiller / Painkiller: Крещеный Кровью (2005) [Ru/En] (1.64/dlc)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905972.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Marine Heavy Gunner: Vietnam / Морпех против терроризма 3:
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904415.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Rise of the Triad (2013) [En] (1.0) License HI2U [DOOM Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904341.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ The Town of Light (2016) [Ru/Multi] (1.0) Repack bosenok
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903626.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Quake II: Quad Damage (1997) [En] (3.20/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902560.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Quake III: Gold (2001) [En] (1.32/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902558.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Quake: The Offering (1998) [En] (1.09/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902551.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Resident Evil 7: Biohazard (2017) [Ru/Multi] (1.0/dlc) Repack YelloSOFT
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900753.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Chasing Dead (2016) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896766.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Battlefield 1 (2016) [Ru/Multi] (1.0.47.30570/upd3/dlc) Rip Other s [Digital Del
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895403.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Call of Duty: Infinite Warfare (2016) [En] (6.0.1211685) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893292.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Duke Nukem Forever (2011) [Ru] (1.0.244/dlc) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893104.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Bright Memory (2020) [Ru/Multi] (1.0/upd1) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891444.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Call of Duty: Advanced Warfare (2014) [Ru] (1.22.01/dlc) Rip xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887236.jpg" />
+  <img src="Z:/picture/005/save_picture_887236.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ The Solus Project (2016) [Ru/Multi] (1.031) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886723.jpg" />
+  <img src="Z:/picture/005/save_picture_886723.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Feelings Adrift (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885612.jpg" />
+  <img src="Z:/picture/005/save_picture_885612.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5.0/dlc) Repack R.G. Меха�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883817.jpg" />
+  <img src="Z:/picture/005/save_picture_883817.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Tom Clancy's Rainbow Six (1998) [En] (1.04) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882799.jpg" />
+  <img src="Z:/picture/005/save_picture_882799.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Tom Clancy's Ghost Recon (2001) [En/Ge] (1.4.0.0) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882788.jpg" />
+  <img src="Z:/picture/005/save_picture_882788.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Dark Shores (2017) [En] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882675.jpg" />
+  <img src="Z:/picture/005/save_picture_882675.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Dark Shores – хоррор на выживание с перманентной
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4F0340583BB7F356777871818370D99ED859FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301486   (881329) от 05.04.2020
-
-SiN (1998) [En] (1.13b/dlc) License GOG [Gold]
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881329.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если директор SinTEK Industries распространяет таблетки, изменяющие ДНК, – значит, пора пересмотреть законы морали. Если все та же коварная женщина-биохимик собирается захватить мир при помощи армии мутантов, – значит, пора переписать золотое правило нравственности. Вы – полковник Джон Блэйд, начальник самого известного частного охранного агентства Фрипорта. Элексис (   Читать дальше...   )Тип издания: LicenseРазработчик: Ritual EntertainmentЖанр: Шутер, От первого лица, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BCACB0FB9E1D111C7DB6F68BDF0234B1ADB543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996430   (880282) от 13.03.2016
-
-7554 (2012) [Ru] (1.0.0.1/dlc/tr) Repack =nemos=
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие игры происходит исключительно в так называемую Первую вьетнамскую войну (против французских колониальных войск), которую только через десяток лет сменила гораздо более, гм, популярная Вторая («По приказу дяди Хо уничтожим американских агрессоров», «Мисс Сайгон», Джейн Фонда в Ханое, «Апокалипсис сегодня», деревня Сонгми и все такое). Что ж, выбор Emobi интересный (   Читать дальше...   )Тип издания: RepackРазработчик: Emobi Games.Жанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: ВьетнамскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4EC6CAF7D4E5008DF32294A959B4C45871E2A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871759   (876864) от 23.02.2015
-
-Thief (2014) [Ru/En] (1.7 u8/dlc) Repack R.G. Games [Master Thief Edition]
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам позарез нужно что-то украсть – вы обратились по адресу. В Городе, полном опасностей, есть лишь один человек, способный выполнить самый сложный заказ. По сравнению с ним бледнеют жестокий барон Норткрест и его алчная стража, таинственная Королева попрошаек, пламенные революционеры и обитатели уличного «дна». Его зовут Гарретт, и он в совершенстве владеет (   Читать дальше...   )Тип издания: Переупакованная лицензияРазработчик: Eidos-Montréal и Nixxes Software BVЖанр: Action / 3D / 1st Person / StealthЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1242D232E82BA79116A54C869CE4830141CA2D3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

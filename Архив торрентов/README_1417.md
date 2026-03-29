@@ -6,7 +6,7 @@ Cacheman 10.10.0.11 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731962.jpg" />
+  <img src="Z:/picture/008/save_picture_731962.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731960.jpg" />
+  <img src="Z:/picture/008/save_picture_731960.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VueScan Pro 9.6.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731956.jpg" />
+  <img src="Z:/picture/008/save_picture_731956.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731919.jpg" />
+  <img src="Z:/picture/008/save_picture_731919.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731911.jpg" />
+  <img src="Z:/picture/008/save_picture_731911.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Smokie - Midnight Delight (1982) Remastered, 2016, Sony Music [FLAC|Lossless|ima
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731899.jpg" />
+  <img src="Z:/picture/008/save_picture_731899.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731883.jpg" />
+  <img src="Z:/picture/008/save_picture_731883.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ FBackup 9.5.507 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731871.jpg" />
+  <img src="Z:/picture/008/save_picture_731871.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ iVI 3.794 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731852.jpg" />
+  <img src="Z:/picture/008/save_picture_731852.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Cosmic Gate - Materia Chapter.One (The Extended Mixes) (2017) [FLAC|Lossless|WEB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731851.jpg" />
+  <img src="Z:/picture/008/save_picture_731851.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731850.jpg" />
+  <img src="Z:/picture/008/save_picture_731850.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Reg Organizer 7.80 Portable by Kopejkin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731846.jpg" />
+  <img src="Z:/picture/008/save_picture_731846.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Leawo Video Converter Ultimate 7.7.0.0 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731840.jpg" />
+  <img src="Z:/picture/008/save_picture_731840.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ WiFi Explorer Pro 2.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731833.jpg" />
+  <img src="Z:/picture/008/save_picture_731833.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Tribal A.D. - Tempest (2012) [FLAC|Lossless]<Tribal, Industrial>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731789.jpg" />
+  <img src="Z:/picture/005/save_picture_731789.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ HWiNFO 5.24-2850 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731776.jpg" />
+  <img src="Z:/picture/008/save_picture_731776.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731771.jpg" />
+  <img src="Z:/picture/008/save_picture_731771.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ Verizon IndyCar. 500 миль Индианаполиса (2016) HDTVRip [H.264/7
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731767.jpg" />
+  <img src="Z:/picture/008/save_picture_731767.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ VueScan Pro 9.5.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731766.jpg" />
+  <img src="Z:/picture/008/save_picture_731766.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ OCCT 10.1.0 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731746.jpg" />
+  <img src="Z:/picture/008/save_picture_731746.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Download Master 6.12.4.1555 RePack (&Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731733.jpg" />
+  <img src="Z:/picture/008/save_picture_731733.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_731729.jpg" />
+  <img src="Z:/picture/005/save_picture_731729.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Google Chrome 58.0.3029.81 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731727.jpg" />
+  <img src="Z:/picture/008/save_picture_731727.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ Dr. Folder 2.6.6.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731713.jpg" />
+  <img src="Z:/picture/008/save_picture_731713.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ ClipGrab 3.8.1 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731703.jpg" />
+  <img src="Z:/picture/008/save_picture_731703.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731695.jpg" />
+  <img src="Z:/picture/008/save_picture_731695.jpg" />
 </div>
 
 

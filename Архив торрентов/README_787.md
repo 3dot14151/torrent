@@ -6,7 +6,7 @@ Where's My Perry? / Где же Перри? 1.4.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872606.jpg" />
+  <img src="Z:/picture/008/save_picture_872606.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ When The Past Was Around (2020) [Ru/Multi] (1.0.3) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872595.jpg" />
+  <img src="Z:/picture/008/save_picture_872595.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Adobe Animate 2021 21.0.9.42677 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872590.jpg" />
+  <img src="Z:/picture/008/save_picture_872590.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ StardewGuide - Tools For Stardew Valley 1.7 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872580.jpg" />
+  <img src="Z:/picture/008/save_picture_872580.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ON1 Effects 2020.1 (build 14.1.1.8865) [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872576.jpg" />
+  <img src="Z:/picture/008/save_picture_872576.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SUMo Pro 5.10.14.452 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872572.jpg" />
+  <img src="Z:/picture/008/save_picture_872572.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ON1 Resize 2020.1 (build 14.1.1.8865) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872568.jpg" />
+  <img src="Z:/picture/008/save_picture_872568.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ BestReminder v2020.04.09.19 Covid Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872565.jpg" />
+  <img src="Z:/picture/008/save_picture_872565.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872536.jpg" />
+  <img src="Z:/picture/008/save_picture_872536.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872525.jpg" />
+  <img src="Z:/picture/008/save_picture_872525.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Sharp World Clock 4.85 [Eng]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872524.jpg" />
+  <img src="Z:/picture/008/save_picture_872524.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ DaisyDisk 4.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872513.jpg" />
+  <img src="Z:/picture/008/save_picture_872513.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ CPU-Z 1.78.3 Portable by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872505.jpg" />
+  <img src="Z:/picture/008/save_picture_872505.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ SketchUp Pro 2017 v17.2.2554 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872503.jpg" />
+  <img src="Z:/picture/008/save_picture_872503.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872499.jpg" />
+  <img src="Z:/picture/008/save_picture_872499.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ OCCT 4.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872496.jpg" />
+  <img src="Z:/picture/008/save_picture_872496.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872487.jpg" />
+  <img src="Z:/picture/008/save_picture_872487.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ Webbed (2021) [Ru/Multi] (1.02) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872480.jpg" />
+  <img src="Z:/picture/008/save_picture_872480.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ R-Drive Image Technician 6.3 Build 6300 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872455.jpg" />
+  <img src="Z:/picture/008/save_picture_872455.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ Microsoft Visual Studio 2019 Community 16.5.0 (Offline Cache, Unofficial) [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872449.jpg" />
+  <img src="Z:/picture/008/save_picture_872449.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Tenorshare iCareFone 6.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872448.jpg" />
+  <img src="Z:/picture/008/save_picture_872448.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Microsoft Visual Studio 2019 Professional 16.5.0 (Offline Cache, Unofficial) [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872443.jpg" />
+  <img src="Z:/picture/008/save_picture_872443.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Microsoft Visual Studio 2019 Enterprise 16.5.0 (Offline Cache, Unofficial) [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872438.jpg" />
+  <img src="Z:/picture/008/save_picture_872438.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ ABViewer Enterprise 14.1.0.61 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872436.jpg" />
+  <img src="Z:/picture/008/save_picture_872436.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ ACDSee Ultimate 10.3 Build 894 RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872415.jpg" />
+  <img src="Z:/picture/008/save_picture_872415.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ MoboPlayer Pro 1.3.314 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872410.jpg" />
+  <img src="Z:/picture/008/save_picture_872410.jpg" />
 </div>
 
 

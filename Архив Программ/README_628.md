@@ -6,7 +6,7 @@ MassTube Plus 14.0.0.400 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734271.jpg" />
+  <img src="Z:/picture/008/save_picture_734271.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Viber 13.5.0.64 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734269.jpg" />
+  <img src="Z:/picture/008/save_picture_734269.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ YTD Video Downloader PRO 5.9.18.2 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734265.jpg" />
+  <img src="Z:/picture/008/save_picture_734265.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Firefox Browser 79.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734260.jpg" />
+  <img src="Z:/picture/008/save_picture_734260.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Wise Registry Cleaner Pro 10.3.1.690 (DC 22.07.2020) RePack (& portable) by elch
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734232.jpg" />
+  <img src="Z:/picture/008/save_picture_734232.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Auslogics BoostSpeed Pro 11.5.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734228.jpg" />
+  <img src="Z:/picture/008/save_picture_734228.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Edge 84.0.522.48 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734224.jpg" />
+  <img src="Z:/picture/008/save_picture_734224.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734191.jpg" />
+  <img src="Z:/picture/008/save_picture_734191.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Google Earth Pro 7.3.3.7786 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734186.jpg" />
+  <img src="Z:/picture/008/save_picture_734186.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Google Earth Pro 7.3.3.7786 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734151.jpg" />
+  <img src="Z:/picture/008/save_picture_734151.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AnyDesk 6.0.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734145.jpg" />
+  <img src="Z:/picture/008/save_picture_734145.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Ableton - Live Suite 10.1.17 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734144.jpg" />
+  <img src="Z:/picture/008/save_picture_734144.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Hard Disk Sentinel PRO 5.61.11463 Final Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734118.jpg" />
+  <img src="Z:/picture/008/save_picture_734118.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Kodi 18.8 Leia [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734113.jpg" />
+  <img src="Z:/picture/005/save_picture_734113.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Uninstall Tool 3.5.10 Build 5670 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734107.jpg" />
+  <img src="Z:/picture/008/save_picture_734107.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Total Commander 9.51 Extended 20.7 Full / Lite RePack (& Portable) by BurSoft [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734099.jpg" />
+  <img src="Z:/picture/008/save_picture_734099.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Google Nik Software Complete Collection 1.2.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734052.jpg" />
+  <img src="Z:/picture/008/save_picture_734052.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Opera GX 83.0.4254.46 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733994.jpg" />
+  <img src="Z:/picture/008/save_picture_733994.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Glary Utilities Pro 5.181.0.210 + Portable (акция Comss) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733977.jpg" />
+  <img src="Z:/picture/008/save_picture_733977.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Google Chrome 98.0.4758.80 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733974.jpg" />
+  <img src="Z:/picture/005/save_picture_733974.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Ultimaker Cura 4.13.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733970.jpg" />
+  <img src="Z:/picture/008/save_picture_733970.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Brave Browser 1.35.100 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733963.jpg" />
+  <img src="Z:/picture/008/save_picture_733963.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Google Chrome 98.0.4758.80 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733961.jpg" />
+  <img src="Z:/picture/008/save_picture_733961.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Far Manager 3.0.5959 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733958.jpg" />
+  <img src="Z:/picture/008/save_picture_733958.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ WinNTSetup 5.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733947.jpg" />
+  <img src="Z:/picture/005/save_picture_733947.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ ESET Online Scanner 3.6.6.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733941.jpg" />
+  <img src="Z:/picture/008/save_picture_733941.jpg" />
 </div>
 
 

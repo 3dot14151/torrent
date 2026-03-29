@@ -1,3 +1,55 @@
+###  Публикация: 1098099   (910497) от 29.01.2017
+
+Маленькие но значительные: Пауки и насекомые / Little Matters: Spiders and Insects (2014) SATRip (2 серии)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видов разнообразных пауков и насекомых населяет планету превеликое множество, мы порой не догадываемся об удивительном микромире, окружающем нас.Телекомпания: ИспанияЖанр: ДокументальныйРежиссер: Альваро МендозаПеревод: Одноголосый закадровый, профессиональный, SDI MediaПродолжительность: 2 х ~00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAEA8E1A20682B3306E80872E05E5E99B3ED6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098102   (910390) от 29.01.2017
+
+Большой скачок. Океанариум изнутри (2014) HDTVRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910390.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента появления морских публичных аквариумов прошло уже 100 лет. Однако история настоящих больших океанариумов по сути только началась. Обеспечить капризным морским обитателям комфортные условия довольно сложно. Возможность содержать многих требовательных к условиям неволи жителей океанов появилась недавно, с развитием соответствующих технологий. Документальный (   Читать дальше...   )Телекомпания: Россия, Наука 2.0Жанр: Документальный, ВидовойПродолжительность: 00:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E10D5165BC444F7666FD3BBD63ED9D43E289E148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099181   (907064) от 31.01.2017
 
 Наука 2.0. Большой Скачок. Живое море (2014) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907064.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906968.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906866.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905786.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904214.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904104.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903123.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902265.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900725.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900725.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_900211.jpg" />
+  <img src="Z:/picture/008/save_picture_900211.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900169.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900052.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900052.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898776.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897414.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897379.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897003.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893418.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893238.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891766.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889416.jpg" />
+  <img src="Z:/picture/005/save_picture_889416.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889347.jpg" />
+  <img src="Z:/picture/005/save_picture_889347.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885890.jpg" />
+  <img src="Z:/picture/005/save_picture_885890.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885780.jpg" />
+  <img src="Z:/picture/005/save_picture_885780.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881796.jpg" />
+  <img src="Z:/picture/005/save_picture_881796.jpg" />
 </div>
 
 
@@ -617,62 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC3C535D753C35943572C0CBF7B167626A6034F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642257   (881120) от 10.04.2013
-
-NGW: Дунай. Европейская Амазонка / Danube. Europe's Amazon (2012) IPTVRip (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дунай, протекающий по территориям 10 стран, является самой многонациональной рекой в мире и второй по протяжённости рекой в Европе (после Волги), объединяющей разнообразные ландшафты и природные зоны. Река берёт исток на территории Германии, в горах Шварцвальда. Далее Дунай протекает или является границей десяти государств: Германия, Австрия, Словакия, Венгрия, Хорватия, (   Читать дальше...   )1. От Чёрного леса до Чёрного моря
-2. Леса, разливы, морозыПроизводство: Германия, Франция, США, ScienceVision, ORF Universum, Norddeutscher Rundfunk (NDR)Жанр: Документальный, природа, флора, фаунаРежиссер: Михаэль Шламбергер, Рита ШламбергерПеревод: Профессиональный одноголосый (АРК-ТВ, текст читал Игорь Тарадайкин)Продолжительность: 2 х ~ 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A0F8EC7D8774F9FF6BB33F0269B0B6CEB1F283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642018   (880696) от 10.04.2013
-
-Микрокосмос / Microcosmos (1996) [1080p] BDRip [hand made 60fps]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_880696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полтора часа, проведенные на неизвестной планете, где все расстояния измеряются миллиметрами. Ее обитатели: фантастические создания, насекомые, улитки и прочие обитатели травы и воды. Ее пейзажи: непроходимые дебри травяных кущ, капли росы, огромные, как воздушные шары.
-Зритель открывает для себя прекрасный, сияющий всеми красками радуги параллельный мир, где работают иные физические законы. Мир, залитый ирреальным светом, полный неведомых звуков. Страна, где животные умеют ходить по воде или разгуливать вниз головой.
-Фазан, разгуливающий по муравьиной тропе производит на вас не меньшее впечатление, чем Годзилла из знаменитого триллера, а обычная летняя гроза заставляет вспомнить о воздушной атаке сотни тяжелых бомбардировщиков. Постоянные переходы из одного мира в другой дают ошеломленным зрителям почувствовать относительность наших представлений о пространстве.
-Зритель ощущает себя крохотным десантником, заброшенным в самый эпицентр действия. Он слышит грохот муравьиных войн и рев пчелиных крыльев у себя за (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Клод Нуридзани, Мари ПеренуПродюсер: Кристоф Барратье, Ивет Мале, Жак ПерренПеревод: Не требуетсяПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39180F4660FEA4871060E0CF4EEBE1E7ABFF3168
 ```
 
 https://mybot314.ru/tekegram_catalog/

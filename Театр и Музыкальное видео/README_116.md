@@ -1,3 +1,159 @@
+###  Публикация: 1514938   (213735) от 05.12.2021
+
+Квартирник НТВ у Маргулиса. Гарик Сукачёв и Александр Ф. Скляр (04.12.2021) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний альбом известных музыкантов Гарика Сукачёва и Александра Ф. Скляра вышел 26 лет назад и мгновенно завоевал сердца слушателей. В эфире программы «Квартирник НТВ у Маргулиса» артисты презентовали свой новый альбом — «Боцман и Бродяга. Часть 2». В дружеской и расслабленной атмосфере Сукачёв и Скляр вспомнили забавные и трогательные истории, а также рассказали (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940F52AB7E62DDCCE9940A3D6C9271F9911D606E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832232   (213444) от 30.10.2025
+
+JinSoul - Ring of Chaos [4K 60fps 24bit BagsUpZ] 2025 (2025) WEBRip [H.265/2160p/60fps]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB95918EA5DA90DF0785AEFD2EB9463569F9F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832213   (213443) от 30.10.2025
+
+Miyeon - Sky Walking (Special) (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3701A49AC5B5679C04469CF2AE285719C54035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832135   (213442) от 30.10.2025
+
+SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD68A12C2B3D549089CEC156AE8EA891DDE30E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832132   (213441) от 30.10.2025
+
+Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: BalladПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6823238861F36C4BA400B95CB1D3FB12CE3E8ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832119   (213440) от 30.10.2025
+
+Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D3185F76B2FE624335DDF3C2922EBD3C3DD464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832098   (213439) от 30.10.2025
 
 aespa - Live Tour Synk Parallel Line in Tokyo Dome [Special Edition] (2025) [H.264/1080p] Blu-ray
@@ -6,7 +162,7 @@ aespa - Live Tour Synk Parallel Line in Tokyo Dome [Special Edition] (2025) [H.2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213439.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213351.jpg" />
+  <img src="Z:/picture/005/save_picture_213351.jpg" />
 </div>
 
 
@@ -61,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213182.jpg" />
+  <img src="Z:/picture/005/save_picture_213182.jpg" />
 </div>
 
 
@@ -90,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213176.jpg" />
+  <img src="Z:/picture/005/save_picture_213176.jpg" />
 </div>
 
 
@@ -119,7 +275,7 @@ Eminem & Snoop Dogg - From The D 2 The LBC (2022) WEB-DL [H.264/1080p] <Alternat
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212869.jpg" />
+  <img src="Z:/picture/005/save_picture_212869.jpg" />
 </div>
 
 
@@ -146,7 +302,7 @@ Gary Moore. Live at Monsters of Rock (2003) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212838.jpg" />
+  <img src="Z:/picture/005/save_picture_212838.jpg" />
 </div>
 
 
@@ -175,7 +331,7 @@ THE JEFF HEALEY BAND «SEE THE LIGHT» (1989) DVD-5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212788.jpg" />
+  <img src="Z:/picture/005/save_picture_212788.jpg" />
 </div>
 
 
@@ -201,7 +357,7 @@ Bonnie Tyler - Live In Germany (1993/2011) DVD5 <Pop Rock>
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212763.jpg" />
+  <img src="Z:/picture/005/save_picture_212763.jpg" />
 </div>
 
 
@@ -230,7 +386,7 @@ Blue Cheer: Rocks Europe (2009) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212760.jpg" />
+  <img src="Z:/picture/005/save_picture_212760.jpg" />
 </div>
 
 
@@ -259,7 +415,7 @@ Depeche Mode - Live at VOLT Festival, Sopron, Hungary (2018) WEB-DL [H.264/1080p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211328.jpg" />
+  <img src="Z:/picture/005/save_picture_211328.jpg" />
 </div>
 
 
@@ -288,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210519.jpg" />
 </div>
 
 
@@ -317,7 +473,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210477.jpg" />
+  <img src="Z:/picture/005/save_picture_210477.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210453.jpg" />
+  <img src="Z:/picture/005/save_picture_210453.jpg" />
 </div>
 
 
@@ -375,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210363.jpg" />
+  <img src="Z:/picture/005/save_picture_210363.jpg" />
 </div>
 
 
@@ -404,7 +560,7 @@ Bollywood: новогодний киноконцерт / Bollywood Mix Video (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210238.jpg" />
+  <img src="Z:/picture/005/save_picture_210238.jpg" />
 </div>
 
 
@@ -430,7 +586,7 @@ eRa - The Live Experience 2019 (2022) CamRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210129.jpg" />
 </div>
 
 
@@ -460,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209961.jpg" />
+  <img src="Z:/picture/005/save_picture_209961.jpg" />
 </div>
 
 
@@ -486,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209944.jpg" />
 </div>
 
 
@@ -515,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209822.jpg" />
+  <img src="Z:/picture/005/save_picture_209822.jpg" />
 </div>
 
 
@@ -544,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209793.jpg" />
 </div>
 
 
@@ -556,170 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42A4908875AAB5E891025BC26E4069E48C92CE84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643964   (209753) от 04.07.2023
-
-МузЛофт-подкаст / МузLoft. Иван Чебанов (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209753.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-У нас в гостях душевный, талантливый, музыкально-разносторонний покоритель женских сердец - Иван Чебанов. У него для вас много житейских историй и еще больше классных каверов и собственных композиций.Производство: Россия | Y-GenerationЖанр: PopУчастники: Иван ЧебановПродолжительность: 01:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E86F63355EBA38CB5A0A28265346125E60F7534D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643961   (209733) от 04.07.2023
-
-МузЛофт-подкаст / МузLoft. Брендон Стоун (2023) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209733.jpg" />
-</div>
-
-
-###  Подробнее
-
-МузЛофт – Здесь мы поем, ностальгируем и душевно болтаем о жизни с различными людьми из мира музыки.
-У нас в гостях музыкальная энциклопедия, кладезь историй, человек с невероятным жизненным бэкграундом, говоря проще - Брендон Стоун. При просмотре вы узнаете секреты немецкой версии шоу «Голос» и услышите много жизненных и поучительных историй.Производство: Россия | Y-GenerationЖанр: PopУчастники: Брендон СтоунПродолжительность: 01:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E7EA33A2FB8FA5BD00618F9937B7AF11C23C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490437   (209184) от 01.09.2022
-
-Лебединое озеро / Swan Lake (2007) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый репертуарный спектакль Мариинского театра в исполнении блестящей труппы, в главных ролях Ульяна Лопаткина и Данила Корсунцев. И этим сказано всё! Ульяна Лопаткина - настоящая королева лебедей. Это признано всем миром. Существует много вариантов этого бессмертного балета, но такого слияния балерины и созданного ей образа не было. Один из лучших балетных критиков (   Читать дальше...   )Производство: Россия / Мариинский театрЖанр: Балет, музыкаРежиссер: Росс МакгиббонАктеры: Ульяна Лопаткина, Данила Корсунцев, Ирина Голуб, Александра Гронская, Андрей Иванов, Антон Корсаков, Илья Кузнецов, Yekaterina Osmolkina, Pyotr StasuniasПродолжительность: 01:09:07+01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0242958029F801FD49B6CFB496694ED0AB2BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646821   (208922) от 15.07.2023
-
-Венгабойз - Видео коллекция / Vengaboys - Video collection (1997-2014) WEBRip, DVDRip [H.264/1080p-LQ] [Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cборник видеоклипов голландской музыкальной группы, пик популярности которой пришёлся на вторую половину 90-ых и первую половину "нулевых".Жанр: Dance-pop, EurodanceРежиссер: Масаси МутоПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8748073F862F9A412DF6D2B1DA8C57CA98745E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580312   (206830) от 01.10.2022
-
-Сборник клипов - Rock & Pop Ballads Часть 2 (2022) WEBRip [H.264/1080p-LQ] [upscale]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сборника клипов, с которого всё началось. Мой осенний подарок всем, кому в это время года приходят в душу эмоции. Кому то грусть, кому то ностальгия, кто то стихи пишет, ну а кому то просто некогда и он в дороге. В сборник вошло много лирики, поэзии и очень хорошей музыки. Надеюсь в это сложное время, музыка осени отвлечёт вас от проблем. Ремастеринг (   Читать дальше...   )00. Rock & Pop Ballads 2 - Intro
-01. Rod Stewart - Rhythm Of My Heart
-02. Richard Marx - Right Here Waiting
-03. Рондо- Ну и пусть(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37F8F312D0A6BBC7B994D9843A6ADFCAA02DF16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582143   (206409) от 08.10.2022
-
-Сборник клипов - Rock & Pop Ballads Часть 2 (2022) WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение сборника клипов, с которого всё началось. Мой осенний подарок всем, кому в это время года приходят в душу эмоции. Кому то грусть, кому то ностальгия, кто то стихи пишет, ну а кому то просто некогда и он в дороге. В сборник вошло много лирики, поэзии и очень хорошей музыки. Надеюсь в это сложное время, музыка осени отвлечёт вас от проблем. Ремастеринг (   Читать дальше...   )00. Rock & Pop Ballads 2 - Intro
-01. Rod Stewart - Rhythm Of My Heart
-02. Richard Marx - Right Here Waiting
-03. Рондо- Ну и пусть(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28735A8C0BE73057B5DB4866CCF11D021852ED53
 ```
 
 https://mybot314.ru/tekegram_catalog/

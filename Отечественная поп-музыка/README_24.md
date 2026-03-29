@@ -1,3 +1,119 @@
+###  Публикация: 1541462   (242704) от 03.04.2022
+
+Mad Show Boys - Эпидемия добра (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эпидемия добра.mp3
+02. Зебра-альбинос.mp3
+03. Звёздный путь.mp3
+04. Хечословацкая сепня.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6650AA5DE27F8C588BF0FFE1F397E7B6E54E474F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359604   (242685) от 15.02.2020
+
+Группа DJ Дождик - Почему Же... (2006) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Босяк (4:15)
+02. Мы Любим Тех (4:29)
+03. Почему Же (4:33)
+04. Баллада (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC85BD7B944D69CCC4189D9EFC1281E5987B5C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362541   (242522) от 24.02.2020
+
+Игорёк - Чисто без грязи (2004) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Почему так? (04:06)
+02. А я помечтаю (03:01)
+03. Красивая девчонка (02:57)
+04. Удержаться не могу (03:39)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DF9895F6D1E71A7CA3E90A950D6F8909EA93F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362542   (242510) от 24.02.2020
+
+Игорёк - Надо! (2006) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гуд Бай (02:51)
+02. Надо! (03:32)
+03. Супермаркет (02:55)
+04. Она (03:33)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178D8EB83429D19C771E3D84598DE7256A4DF835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362535   (242502) от 24.02.2020
 
 Игорёк - Третий (2003) [MP3|320 Kbps] <Pop, Europop>
@@ -6,7 +122,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242502.jpg" />
+  <img src="Z:/picture/005/save_picture_242502.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Премьер. 7 (1999) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242492.jpg" />
+  <img src="Z:/picture/005/save_picture_242492.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242459.jpg" />
+  <img src="Z:/picture/004/save_picture_242459.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242420.jpg" />
+  <img src="Z:/picture/005/save_picture_242420.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242407.jpg" />
+  <img src="Z:/picture/004/save_picture_242407.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Burito - Псевдопанк (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241867.jpg" />
+  <img src="Z:/picture/004/save_picture_241867.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ FIZICA - Бывшие (2023) Deluxe Edition [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241577.jpg" />
+  <img src="Z:/picture/005/save_picture_241577.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240391.jpg" />
+  <img src="Z:/picture/004/save_picture_240391.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Союз 17. 2 Альбома (1996) 3 CD [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240238.jpg" />
+  <img src="Z:/picture/004/save_picture_240238.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ GSPD - СПОРТ РЕЖИМ: КРАСНЫЙ СВЕТ (2023) [MP3|320 Kbps] <Pop
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239492.jpg" />
+  <img src="Z:/picture/004/save_picture_239492.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Polnalyubvi - О чем поет твое сердце (2023) [MP3|320 Kbps] <In
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238686.jpg" />
+  <img src="Z:/picture/005/save_picture_238686.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ EMIN - За минуту до... (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233636.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ CREAM SODA - INTERNET FRIENDS (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232347.jpg" />
+  <img src="Z:/picture/004/save_picture_232347.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Reflex - 20 лет - Лучшее и новое (2023) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231244.jpg" />
+  <img src="Z:/picture/004/save_picture_231244.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230456.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230447.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229604.jpg" />
+  <img src="Z:/picture/004/save_picture_229604.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229181.jpg" />
+  <img src="Z:/picture/004/save_picture_229181.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228876.jpg" />
+  <img src="Z:/picture/004/save_picture_228876.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228821.jpg" />
+  <img src="Z:/picture/004/save_picture_228821.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228805.jpg" />
+  <img src="Z:/picture/005/save_picture_228805.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226325.jpg" />
+  <img src="Z:/picture/005/save_picture_226325.jpg" />
 </div>
 
 
@@ -629,128 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EC88D8AC9A6D99E936F6150554892DCB2C87C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965563   (225126) от 14.12.2015
-
-ВИА Веселые ребята - Перекресток судьбы (2015) [MP3|256 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выше неба (А. Добронравов – В. Пеленягрэ) 3.47
-02. Ты летела ко мне (А. Добронравов – Н. Пляцковская) 3.56
-03. Одинокая птица(П. Слободкин – Н. Пляцковская) 4.48
-04. Светлая ночь (Музыка и слова А. Висты) 4.11(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD8AA1C01F5689A4E71AC84F6366E69E6690DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586336   (224277) от 10.12.2012
-
-Ksenona - Далеко-далеко (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KSENONA - Далеко-далеко (3:45)
-02. KSENONA - Unstoppable Sensation (3:19)
-03. KSENONA - Будет все хорошо (3:24)
-04. KSENONA - Close My Eyes (3:16)
-05. KSENONA - Это мой тайный мир (4:01)
-06. KSENONA - Hear My Voice (4:12)
-07. KSENONA - Песня ангелу (3:52)
-08. KSENONA - I Love Your Soul (3:30)
-09. KSENONA - Нелюбимый, нелюбимый (3:30)
-10. KSENONA - Горе не беда (3:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CCD6B13246147123735AB6B4D2B2A39930DBBE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268925   (224244) от 12.12.2018
-
-Николай Басков - Christmas Songs (2018) [MP3|320 Kbps] <Pop>
-
->>След.
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adeste Fideles
-2. Ave Maria
-3. Away In A Manger
-4. The First Noel(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237FB6E4B3B9B57AF06D38E927919E554CFAF02C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342993   (220970) от 04.12.2019
-
-Алиса Вокс - Упругий поп концерт (2019) Live [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220970.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выстрелы (Live)
-2. Мой (Live)
-3. Фейерверк (Live)
-4. Вечер (Live)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:744CA0E9D1CBED8B03C7153404CB11EDD59BF125
 ```
 
 https://mybot314.ru/tekegram_catalog/

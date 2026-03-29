@@ -1,3 +1,81 @@
+###  Публикация: 1356619   (977331) от 31.01.2020
+
+Catherine Classic (2019) [Ru] (1.04) Repack xatab
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познайте все прелести и ужасы любви вместе с Винсентом, который оказался перед нелёгким выбором: жениться на своей давней подруге Катерине или переехать к отпадной блондинке, в чьей постели он только что проснулся — и которую зовут Катриной! Но берегитесь! Одно неверное решение может стоить вам жизни. Этот уникальный гибрид приключенческого боевика и головоломки (   Читать дальше...   )Тип издания: RepackРазработчик: ATLUSЖанр: Приключенческие игрыЯзык озвучки: Русский, ЯпонскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8997E87D5CA7F3FF9F46A4ABF2749C12CCDBA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356822   (976233) от 01.02.2020
+
+Ministry of Broadcast (2020) [Ru/Multi] (1.1.0.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страна разделена Стеной. Чтобы пересечь ее и воссоединиться с семьей, вам нужно поучаствовать — и выиграть — в реалити-шоу, транслируемом правительством Режима. Ministry of Broadcast — однопользовательский платформер с кинематографичным сюжетом, в котором атмосфера в духе «1984» Оруэлла сочетается с элементами современных реалити-шоу. Полно черного юмора, сарказма (   Читать дальше...   )Тип издания: LicenseРазработчик: Ministry of Broadcast StudiosЖанр: Platformer, Adventure, Action, Game-ShowЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93860B589CE14662B80C9976317F324967513487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356838   (976178) от 01.02.2020
+
+SOMA (2015) [Ru/Multi] (1.510) Repack xatab
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спуститесь в мир SOMA и столкнитесь лицом к лицу с ужасом, что таится в глубинах океана. Вам придётся покопаться в документах и взломать не один компьютер, чтобы узнать правду, стоящую за царящим там хаосом. Найдите уцелевших обитателей и примите участие в событиях, которые определят будущее станции. Но будьте осторожны: опасность таится за каждым углом: обезумевшие (   Читать дальше...   )Тип издания: LicenseРазработчик: Frictional GamesЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFB18B66E403ECD3D2DEDC9E1DEA7864A6D286D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356827   (976176) от 01.02.2020
 
 The Pedestrian (2020) [En] (1.0.6) License GOG
@@ -6,7 +84,7 @@ The Pedestrian (2020) [En] (1.0.6) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976176.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Cognition: An Erica Reed Thriller. Episode 1 [En] (L/3.5.6.44817) 2012 | HI2U
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976022.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ Song of Horror (2019) [Multi] (1.31.0.0/upd3/dlc) License CODEX [Episode 1-4]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975090.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974008.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ Black Mirror Anthology / Антология. Чёрное зеркало [Ru/En]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973046.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ The Plan [En] (Repack) 2013 | R.G. Revenants
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973031.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ Kentucky Route Zero (2013) [Ru/Multi] (22.0) Repack Other s [PC Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970263.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ Utawarerumono: Mask of Deception (2020) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969399.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ Utawarerumono: Mask of Truth (2020) [Multi] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969304.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ Gemini: Heroes Reborn (2016) [Ru/Multi] (1.0) SteamRip Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967301.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ Gemini: Heroes Reborn (2016) [Ru/Multi] (1.0) Repack =nemos=
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967293.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ Scratches: Director's Cut / Шорох: Последний визит (2007) [Ru
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966313.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Whispering Willows (2014) [Ru/Multi] (1.29) Repack Let'sРlay
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965248.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ The Tiny Bang Story / История крошечного взрыва [Ru/En/Pl
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961081.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Nikopol: Secrets of The Immortals [En/Multi5] (L) 2008 | PROPHET
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958449.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) SteamRip Let'sРlay [The Complete Adve
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958134.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Kentucky Route Zero Act I [En] (Repack) 2013 | COGENT
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956447.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ The Walking Dead: Season Two (2013) [Ru/En] (1.0.0.1) Repack R.G. Механик
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954735.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ The Wolf Among Us (2013-2014) [Ru/En] (1.0) Repack R.G. Механики [Episod
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954728.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ The Walking Dead: Season One (2012) [Ru/En] (1.0.0.26/dlc) Repack R.G. Меха�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954726.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ King's Quest (2015) [Ru/En] (1.0) Repack R.G. Механики [Chapter 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954721.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953215.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Tales from the Borderlands (2014-2015) [Ru/En] (1.0.1) Repack R.G. Механи�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953188.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953188.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Tales from the Borderlands (2014-2015) [Ru/En] (1.0.1) Repack R.G. Механи�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2302A96F5304858904F8A899EC5D9B1464C21A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361854   (951975) от 21.02.2020
-
-The Suicide of Rachel Foster (2020) [Ru/Multi] (1.03B) Repack xatab
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять лет назад юная Николь вместе с матерью уезжает из семейного отеля после того, как становится известно о связи Леонарда, отца Николь, с девушкой по имени Рэйчел, ее беременности и самоубийстве. И сейчас, после смерти родителей, Николь возвращается в родные края, чтобы исполнить последнюю волю матери: продать отель и поговорить с родственниками Рэйчел. Она приезжает (   Читать дальше...   )Тип издания: RepackРазработчик: ONE-O-ONE GAMESЖанр: Приключенческие игры, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE09E17A1DF79EE64439D993BE2D37604675D10D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089405   (951516) от 03.01.2017
-
-A New Beginning - Final Cut (2011) [Ru/Multi] (2.0.3.0395) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адвенчура-триллер A New Beginning - Final Cut выполнен в стиле графических романов и достоин экранизации. В этой истории, полной шарма и юмором, вам предстоит спасти человечество от надвигающейся климатической катастрофы, побывав во многих точках земного шара. Бывший биоинженер Бент Свенсон был вынужден прекратить исследования по разработке альтернативного способа (   Читать дальше...   )Тип издания: LicenseРазработчик: Daedalic EntertainmentЖанр: AdventureЯзык озвучки: Русский, Английский, Немецкий, ФранцузскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DD44611A9FD1094727B4C04796D40784F737904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361701   (949113) от 23.02.2020
-
-Lost Brothers (2020) [Ru/En] (1.0/upd3) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lost Brothers - одиночная игра-загадка от первого лица, действие которой происходит в заброшенной шахте. Наш герой Джон, раздираемый демонами из прошлого, отправляется в лес, где много лет назад пропал его младший брат. Рядом с местом ночевки он находит рацию и с ним на связь выходит Саманта, попавшая под завал неподалеку. Девушка утверждает, что она хочет написать (   Читать дальше...   )Тип издания: RepackРазработчик: BitLightЖанр: Adventure, Action, 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600A33FA794F33DD103709F3E62A20AB07EB4F1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

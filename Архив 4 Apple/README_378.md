@@ -1,3 +1,108 @@
+###  Публикация: 1570764   (440655) от 18.08.2022
+
+4K Tokkit Pro 1.5.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один простой способ скачать все с TikTok. 4K Tokkit - это идеальное приложение для массовой загрузки контента TikTok. Сохраняйте задачи TikTok, подписи, целые аккаунты, хэштеги и отдельные видео в высоком качестве. Смотрите TikToks офлайн, просматривайте ленту TikTok без рекламы, делайте репосты клипов в другие социальные сети.Тип издания: macOS SoftwareРелиз состоялся: 18.08.2022Разработчик: © 2022 Open Media OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410B42FDC417470A7A132980F885D45EEBA09DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570807   (440645) от 18.08.2022
+
+Permute 3 v 3.9.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 17.08.2022Разработчик: © 2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D601ED2301A5A5BB37FBCFEEBD806C96563B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570799   (440625) от 18.08.2022
+
+FontLab 8 v 8.0.1.8249 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440625.jpg" />
+</div>
+
+
+###  Подробнее
+
+FontLab - профессиональный редактор шрифтов. Программа ориентирована на печатников, профессиональных дизайнеров, художников-шрифтовиков и студии, занимающиеся графическим дизайном. FontLab Studio обеспечивает широкий выбор функциональных средств для создания, обработки и модификации шрифтов категорий Type 1, TrueType, Multiple Master и OpenType.
+По словам специалистов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.08.2022Разработчик: © 2015–2021 by Fontlab Ltd, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D190278D2C5A929E6FAEB2CC5ADAADC546D199C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570789   (440491) от 18.08.2022
+
+ApolloOne - Photo Video Viewer 3.1.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_440491.jpg" />
+</div>
+
+
+###  Подробнее
+
+ApolloOne - это разработанное с нуля приложение как быстрый, эффективный и многофункциональный медиа-просмотрщик. ApolloOne использует расширенные функции операционной системы, такие как: многопоточность, Grand Central Dispatch и Core Image для высокой производительности приложения.Тип издания: macOS SoftwareРелиз состоялся: 04.08.2022Разработчик: © 2015-2022 Anogeissus Ltd.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E695A482283B30A3787EC79983FF705968AEFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570736   (440482) от 18.08.2022
 
 DjVu Reader Pro 2.6.7 [Ru/En]
@@ -6,7 +111,7 @@ DjVu Reader Pro 2.6.7 [Ru/En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440482.jpg" />
+  <img src="Z:/picture/008/save_picture_440482.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ iFinance 4.4.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440190.jpg" />
+  <img src="Z:/picture/008/save_picture_440190.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Boinx FotoMagico 5.6.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440178.jpg" />
+  <img src="Z:/picture/008/save_picture_440178.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Framer Studio v73 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440106.jpg" />
+  <img src="Z:/picture/008/save_picture_440106.jpg" />
 </div>
 
 
@@ -116,7 +221,7 @@ Serial Box 10-2013 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440099.jpg" />
+  <img src="Z:/picture/008/save_picture_440099.jpg" />
 </div>
 
 
@@ -144,7 +249,7 @@ Pacifist 3.5.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440095.jpg" />
+  <img src="Z:/picture/008/save_picture_440095.jpg" />
 </div>
 
 
@@ -173,7 +278,7 @@ iA Writer 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440038.jpg" />
+  <img src="Z:/picture/008/save_picture_440038.jpg" />
 </div>
 
 
@@ -199,7 +304,7 @@ Smultron 10.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440032.jpg" />
+  <img src="Z:/picture/008/save_picture_440032.jpg" />
 </div>
 
 
@@ -228,7 +333,7 @@ Serial 1.3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440009.jpg" />
+  <img src="Z:/picture/008/save_picture_440009.jpg" />
 </div>
 
 
@@ -256,7 +361,7 @@ File Juicer 4.49 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439966.jpg" />
+  <img src="Z:/picture/008/save_picture_439966.jpg" />
 </div>
 
 
@@ -284,7 +389,7 @@ TextLab 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439901.jpg" />
+  <img src="Z:/picture/008/save_picture_439901.jpg" />
 </div>
 
 
@@ -310,7 +415,7 @@ Shredo 1.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439874.jpg" />
+  <img src="Z:/picture/008/save_picture_439874.jpg" />
 </div>
 
 
@@ -339,7 +444,7 @@ WonderPen 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439869.jpg" />
+  <img src="Z:/picture/008/save_picture_439869.jpg" />
 </div>
 
 
@@ -367,7 +472,7 @@ Audio Hijack 3.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439835.jpg" />
+  <img src="Z:/picture/008/save_picture_439835.jpg" />
 </div>
 
 
@@ -394,7 +499,7 @@ FileMaker Server 15.0.2.206 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439789.jpg" />
+  <img src="Z:/picture/008/save_picture_439789.jpg" />
 </div>
 
 
@@ -421,7 +526,7 @@ Permute 2 v2.5.11 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439639.jpg" />
+  <img src="Z:/picture/008/save_picture_439639.jpg" />
 </div>
 
 
@@ -447,7 +552,7 @@ Notability 2.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439606.jpg" />
+  <img src="Z:/picture/008/save_picture_439606.jpg" />
 </div>
 
 
@@ -475,7 +580,7 @@ MyBrushes - Sketch, Paint, Design 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439604.jpg" />
+  <img src="Z:/picture/008/save_picture_439604.jpg" />
 </div>
 
 
@@ -503,7 +608,7 @@ Coda 2.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439599.jpg" />
+  <img src="Z:/picture/008/save_picture_439599.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ iShowU Studio 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439502.jpg" />
+  <img src="Z:/picture/008/save_picture_439502.jpg" />
 </div>
 
 
@@ -558,7 +663,7 @@ VueScan Pro 9.5.85 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439350.jpg" />
+  <img src="Z:/picture/008/save_picture_439350.jpg" />
 </div>
 
 
@@ -584,7 +689,7 @@ Sidify Apple Music Converter 1.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439313.jpg" />
+  <img src="Z:/picture/008/save_picture_439313.jpg" />
 </div>
 
 
@@ -596,116 +701,6 @@ Sidify Apple Music Converter может удалить DRM от Apple Music и �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE8356B88F2D2734C9812BA5E3214C62E6D7EA40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164459   (439198) от 10.09.2017
-
-Xojo IDE RAD 17.2.0.37811 (2017r2) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xojo (ранее Real Studio, а еще ранее Real Basic) - объектно-ориентированная, кросс-платформенная, визуальная среда разработки приложений для Mac OS X, Linux, Windows, iOS и Raspberry PI, которая позволяет разрабатывать удобные и легкие приложения, утилиты (в том числе консольные) и приложения для Web, с возможностью поддержки самых популярных баз данных.
-
-Приложение (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.08.2017Разработчик: Xojo Inc.Поддерживаемая ОС: macOS 10.9.5 или вышеЯзык интерфейса: Ангилйский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23F54CAD9A957D7F6BA114D2415746981A4058E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248805   (439175) от 21.09.2018
-
-DaisyDisk 4.6.5.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Случалось ли так, что Вы не знаете, куда подевался ЖД на 600 ГБ? Для того, чтобы выяснить кто занял всю площадь, еcть замечательная программа и имя ей — DaisyDisk.
-Данная программа предоставляет удобное визуальное представление вашего жесткого диска, позволяя пользователю определить, какие файлы наиболее «прожорливы» по части свободного дискового пространства и удалить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.09.2018Разработчик: Software Ambience Corp.Поддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6601D24F408FA1E0744F1150AEF46163CD13587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248791   (439170) от 21.09.2018
-
-Alien Skin Exposure X4 Bundle 4.0.1.27 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник из всех последних выпущенных на данный момент графических фильтров компании Alien Skin Software для Adobe Photoshop, Lightroom, Photoshop Elements и Apple Aperture. Данные фильтры будут полезны как новичкам, так и профессиональным пользователям перечисленных графических редакторов. С ними вы сможете легко и качественно обработать или украсить ваши изображения.Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E06F5A4E165D3FD65B38F8BCCCB17102F583BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062649   (438968) от 14.10.2016
-
-AppDelete 4.3.0.1 [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438968.jpg" />
-</div>
-
-
-###  Подробнее
-
-AppDelete - позволяет деинсталлировать приложения из системы, с удалением всех связанных файлов на жестком диске.
-Для запуска программы достаточно перетащить папку с ненужным приложением на иконку AppDelete. После этого по всей системе проводится поиск и удаление связанных файлов.
-
-Опционально, эти данные могут быть перенесены в специальную корзину, откуда они будут (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 октября 2016Разработчик: Reggie AshworthПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA7E1E3816CE5DD26EE4320ACFB4CDB20BCBC7A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

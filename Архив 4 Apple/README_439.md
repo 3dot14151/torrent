@@ -1,3 +1,111 @@
+###  Публикация: 1420366   (333236) от 31.10.2020
+
+Dash 5.5.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash - очень удобное приложение, включающее в себя браузер API документации и примеров фрагментов кода с возможностью поиска, для следующих языков, сред программирования и баз данных.Тип издания: macOS SoftwareРелиз состоялся: 31.10.2020Разработчик: Bogdan PopescuПоддерживаемая ОС: macOS 10.14 и новееЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C194937BBE6EB7145BA86DA00F4786220B3069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955583   (333193) от 11.11.2015
+
+Microsoft Office Standard 2016 v15.16 (with License Installer) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко узнаваемый Office, разработанный для Mac
+Быстро приступите к работе с современными версиями приложений Word, Excel, PowerPoint и Outlook, сочетающие в себе знакомый интерфейс Office и уникальные возможности Mac, которые успели вам полюбиться.Тип издания: OS X SoftwareРелиз состоялся: 10 ноября 2015Разработчик: MicrosoftПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий, Испанский и др.
+* язык интерфейса программы зависит от дефолтного OS
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3ECC4F59185CC6BED8FD70E02F9E47E1C93C01B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955696   (333183) от 11.11.2015
+
+JetBrains WebStorm 11.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333183.jpg" />
+</div>
+
+
+###  Подробнее
+
+JetBrains WebStorm  — мощный инструмент для разработки web-сайтов и редактирования HTML, CSS и javascript кода. Решение обеспечивает быструю навигацию по файлам и генерирует уведомления о возникающих проблемах в коде в режиме реального времени. JetBrains WebStorm позволяет добавлять разметку HTML-документов или элементов SQL непосредственно в javascript. JetBrains (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2015Разработчик: JetBrainsПоддерживаемая ОС: Mac OS X 10.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257503428FED5C172D6D5C9037067768A105E6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258848   (333156) от 01.11.2018
+
+TextMate 2.0-rc.13 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333156.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextMate для Mac OS - Отличный редактор программного кода и простых текстов. С помощью TextMate вы сможете обрабатывать скрипты, создавать макросы, интерактивно заполнять поля, проверять программный код на ошибки, подсвечивать код десятков языков программирования. Удобно реализована работа с множеством файлов, навигация и поиск по ним.
+
+Быстро растущее сообщество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2018Разработчик: MacroMates Ltd.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D3D40CE3B46B03B5459F2D4A5004B885F48F1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259001   (333147) от 01.11.2018
 
 PullTube 0.11.10 [Multi/Ru]
@@ -6,7 +114,7 @@ PullTube 0.11.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333147.jpg" />
+  <img src="Z:/picture/008/save_picture_333147.jpg" />
 </div>
 
 
@@ -34,7 +142,7 @@ Fileloupe - Media Browser 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333038.jpg" />
+  <img src="Z:/picture/008/save_picture_333038.jpg" />
 </div>
 
 
@@ -61,7 +169,7 @@ BlueHarvest 7 v7.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333034.jpg" />
+  <img src="Z:/picture/008/save_picture_333034.jpg" />
 </div>
 
 
@@ -89,7 +197,7 @@ MediaHuman YouTube Downloader 3.9.9.8 (3110) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333026.jpg" />
+  <img src="Z:/picture/008/save_picture_333026.jpg" />
 </div>
 
 
@@ -118,7 +226,7 @@ Movavi PDF Editor 1.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333025.jpg" />
+  <img src="Z:/picture/008/save_picture_333025.jpg" />
 </div>
 
 
@@ -144,7 +252,7 @@ AnyTrans for Android 6.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333023.jpg" />
+  <img src="Z:/picture/008/save_picture_333023.jpg" />
 </div>
 
 
@@ -170,7 +278,7 @@ CleanMyMac X 4.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332997.jpg" />
+  <img src="Z:/picture/008/save_picture_332997.jpg" />
 </div>
 
 
@@ -197,7 +305,7 @@ Winclone Pro 7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332932.jpg" />
+  <img src="Z:/picture/008/save_picture_332932.jpg" />
 </div>
 
 
@@ -223,7 +331,7 @@ TechSmith Snagit 2019.0.0 (94003) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332922.jpg" />
+  <img src="Z:/picture/008/save_picture_332922.jpg" />
 </div>
 
 
@@ -249,7 +357,7 @@ Hands Off! 4.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332869.jpg" />
+  <img src="Z:/picture/008/save_picture_332869.jpg" />
 </div>
 
 
@@ -276,7 +384,7 @@ Sketch 52.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332868.jpg" />
+  <img src="Z:/picture/008/save_picture_332868.jpg" />
 </div>
 
 
@@ -303,7 +411,7 @@ Debookee 7 v7.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332616.jpg" />
+  <img src="Z:/picture/008/save_picture_332616.jpg" />
 </div>
 
 
@@ -329,7 +437,7 @@ iA Writer 5.6.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332610.jpg" />
+  <img src="Z:/picture/008/save_picture_332610.jpg" />
 </div>
 
 
@@ -355,7 +463,7 @@ Blocs 1.5.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332473.jpg" />
+  <img src="Z:/picture/008/save_picture_332473.jpg" />
 </div>
 
 
@@ -384,7 +492,7 @@ IconJar 1.13.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332355.jpg" />
+  <img src="Z:/picture/008/save_picture_332355.jpg" />
 </div>
 
 
@@ -413,7 +521,7 @@ DoubleTake 2.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332354.jpg" />
+  <img src="Z:/picture/008/save_picture_332354.jpg" />
 </div>
 
 
@@ -439,7 +547,7 @@ iSkysoft Video Converter Ultimate 11.5.0.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332353.jpg" />
+  <img src="Z:/picture/008/save_picture_332353.jpg" />
 </div>
 
 
@@ -465,7 +573,7 @@ SoftRAID 5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332352.jpg" />
+  <img src="Z:/picture/008/save_picture_332352.jpg" />
 </div>
 
 
@@ -494,7 +602,7 @@ Softorino YouTube Converter 2 v2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332351.jpg" />
+  <img src="Z:/picture/008/save_picture_332351.jpg" />
 </div>
 
 
@@ -523,7 +631,7 @@ Keyboard Maestro 9 v9.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332276.jpg" />
+  <img src="Z:/picture/008/save_picture_332276.jpg" />
 </div>
 
 
@@ -551,7 +659,7 @@ NCH WavePad Mater 9.51 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332275.jpg" />
+  <img src="Z:/picture/008/save_picture_332275.jpg" />
 </div>
 
 
@@ -577,7 +685,7 @@ ChronoSync & ChronoAgent 4.9.5 & 1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332266.jpg" />
+  <img src="Z:/picture/008/save_picture_332266.jpg" />
 </div>
 
 
@@ -591,114 +699,6 @@ ChronoSync представляет собой приложение для Mac, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF239FE5E2A027390284DBBEF58737AD52B3AF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331394   (332166) от 15.10.2019
-
-Native Instruments Maschine 2 v2.8.7 Standalone AU VST [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maschine – это рабочая станция для создания битов со встроенным барабанным секвенсором, функциями семплирования и нарезки лупов, являющаяся самым актуальным на данный момент результатом инициативы Native Instruments по созданию гибридных аппаратно-программных инструментов.
-Программный компонент запускается как самостоятельное приложение или в качестве AU/VST/RTAS (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2019Разработчик: Native InstrumentsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2134A2E019AE34D2406578950B387C62CA696BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 840919   (332055) от 14.11.2014
-
-Компас++ PRO 3.3 [iOS 6.1 + jailbreak] [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Compass предлагает уникальные HD-темы компаса для iPhone и iPad. iPad имеет встроенный цифровой компас, однако приложение для его использования на устройстве отсутствует, и мы поможем вам решить эту проблему.
-Теперь вы никогда не потеряетесь, а компас будет очень стильным.
-Приложение для компаса поддерживает распознавание сетчатки на устройствах iPhone и iPad. Проводите пальцем по экрану вправо или влево и переключайтесь между 15+ красивыми темами.Тип издания: iPad / iPhoneРазработчик: OnDemandWorld LimitedЯзык интерфейса: русский, упрощенный китайский, японский, английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7949CBE7A98A95A85BBE69FBB1163D0AFC411F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955774   (331939) от 12.11.2015
-
-Apple iWork: Keynote 6.6.1, Numbers 3.6.1 & Pages 5.6.1 (upd 11.11.2015) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331939.jpg" />
-</div>
-
-
-###  Подробнее
-
-iWork — это самый простой способ создания великолепных документов, таблиц и презентаций. В Pages очень легко набирать тексты и создавать макеты страниц. Numbers поможет просто и эффективно работать с данными. А новые анимации, переходы и эффекты кинематографического качества в Keynote восхитят вашу аудиторию. Кроме того, пакет iWork работает с Microsoft Office, поэтому (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 ноября 2015Разработчик: Apple Inc.Поддерживаемая ОС: OS X 10.10.4 +Язык интерфейса: Русский, Английский, Голландский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC3A4C6154C99D57E952567871A018DEEEEA2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331501   (331754) от 15.10.2019
-
-Sketch 59 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS!
-Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.13.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B468D24AA549A420183E2D41B581B16E94001B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

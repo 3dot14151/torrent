@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731534.jpg" />
+  <img src="Z:/picture/008/save_picture_731534.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731532.jpg" />
+  <img src="Z:/picture/008/save_picture_731532.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730971.jpg" />
+  <img src="Z:/picture/008/save_picture_730971.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Cooked, Vol. 2 (2019) [AAC|~312 Kbps] <Lounge, Chill Out, Downtempo, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730965.jpg" />
+  <img src="Z:/picture/008/save_picture_730965.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - Cooked, Vol. 1 (2017) [AAC|~341 Kbps] <Lounge, Chill Out, Downtempo, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730961.jpg" />
+  <img src="Z:/picture/008/save_picture_730961.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - Colours of Lounge, Vol. 3 (2022) [AAC|~335 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730958.jpg" />
+  <img src="Z:/picture/008/save_picture_730958.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ VA - Antigua Orange: Urban Chillout Music (2022) [AAC|~315 Kbps] <Lounge, Chill 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730954.jpg" />
+  <img src="Z:/picture/008/save_picture_730954.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ VA - Future Avenue Winter 2022 (2022) [AAC|~337 Kbps] <Progressive House, Deep H
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730951.jpg" />
+  <img src="Z:/picture/008/save_picture_730951.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ VA - Blue Sailing: Chillout Your Mind (2022) [AAC|~341 Kbps] <Lounge, Chill Out,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730947.jpg" />
+  <img src="Z:/picture/008/save_picture_730947.jpg" />
 </div>
 
 
@@ -258,7 +258,7 @@ VA - Divas of Pop Lounge - Smooth Breathtaking Vocal Selection (2018) [AAC|~313 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730901.jpg" />
+  <img src="Z:/picture/008/save_picture_730901.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ VA - Chillout & Lounge Classics, Volume One (2022) [AAC|~297 Kbps] <Lounge, Chil
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730900.jpg" />
+  <img src="Z:/picture/008/save_picture_730900.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Blank & Jones, Julian & Roman Wasserfuhr - Relax - Jazzed 1 (2012) [AAC|~324 Kbp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730899.jpg" />
+  <img src="Z:/picture/008/save_picture_730899.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ VA - Cooked, Vol. 3 (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo, Smooth
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730898.jpg" />
+  <img src="Z:/picture/008/save_picture_730898.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ VA - Ibiza Sunset Disco Session, Vol. 1 (2022) [AAC|~322 Kbps] <House, Nu Disco,
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730897.jpg" />
+  <img src="Z:/picture/008/save_picture_730897.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ VA - Trance 2021 Top 100 (2022) [AAC|~327 Kbps] <Trance>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730896.jpg" />
+  <img src="Z:/picture/008/save_picture_730896.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Cafe De Anatolia, Professor - Ethno World (2020) [AAC|~294 Kbps] <Chill Out, Dow
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730894.jpg" />
+  <img src="Z:/picture/008/save_picture_730894.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ VA - Melodica, Vol. 10 (2022) [AAC|~341 Kbps] <Progressive House, Melodic House 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730889.jpg" />
+  <img src="Z:/picture/008/save_picture_730889.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ VA - Sexy Lounge Voices - Deep Chillout Diva Vibrations (2019) [AAC|~308 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730887.jpg" />
+  <img src="Z:/picture/008/save_picture_730887.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ VA - Hot All Night - Erotic Background Chill Out Lounge Music for Lovers (2016) 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730885.jpg" />
+  <img src="Z:/picture/008/save_picture_730885.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730873.jpg" />
+  <img src="Z:/picture/008/save_picture_730873.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Masafumi Takada - Evil Within (2014) [AAC|WEB-DL|256 Kbps]<Score>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730809.jpg" />
+  <img src="Z:/picture/008/save_picture_730809.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ VA - Erotic Moments (2022) [AAC|~297 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730778.jpg" />
+  <img src="Z:/picture/008/save_picture_730778.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Enigma - Le Roi est mort, vive le Roi! (1996) [AAC|~320 Kbps] <Electronic, Downt
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730775.jpg" />
+  <img src="Z:/picture/008/save_picture_730775.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Enigma - The Screen Behind the Mirror (2000) [AAC|~317 Kbps] <Electronic, New Ag
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730773.jpg" />
+  <img src="Z:/picture/008/save_picture_730773.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Cafe De Anatolia, Stephane Salerno, Jack Essek - Ethno World 2 (2020) [AAC|~313 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730772.jpg" />
+  <img src="Z:/picture/008/save_picture_730772.jpg" />
 </div>
 
 
@@ -719,7 +719,7 @@ Vysotsky - Vysotsky Sings His Favorites (1982) [AAC|~321 Kbps] <Pop, Chanson, Ba
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730764.jpg" />
+  <img src="Z:/picture/008/save_picture_730764.jpg" />
 </div>
 
 

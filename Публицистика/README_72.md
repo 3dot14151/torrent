@@ -1,3 +1,82 @@
+###  Публикация: 1514337   (217255) от 03.12.2021
+
+Георгий Бурков | Дневники, размышления, сюжеты (2020) [FB2, PDF, EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Георгий Бурков не писал мемуары. Он вообще выпадает из общего контекста. Только наедине со своей совестью перед листом чистой бумаги, которому доверяет свои сокровенные мысли. О стране, народе, театре и о жизни, где ему судьба преподносила встречу с интересными людьми. Дневники, в своём роде, пророческие, с болью в сердце обо всём, что так было дорого ему. И вот (   Читать дальше...   )Жанр: Биография. ПублицистикаФормат: FB2, PDF, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2919A0472F9B094F80533A410A6F84D37BDF6F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966840   (216659) от 19.12.2015
+
+Сергей Михайлович | Параллельные общества (2011) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нужно отказаться от садистского высокомерия, свойственного интеллектуалам и признать: если кого-то устраивает капитализм, рынок, корпорации, тотальный спектакль, люди имеют на все это полное право. В конце концов, люди все это называют другими, не столь обидными именами и принимают. А несогласные не имеют права всю эту прелесть у людей насильственно отнимать: все (   Читать дальше...   )Жанр: Общество, СоциологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CF05D58E29064EF85407FB34067F6B11C4D7BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967062   (216054) от 19.12.2015
+
+Дэвид Рокфеллер | Клуб банкиров (2013) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Рокфеллер - один из крупнейших политических и финансовых деятелей XX века, известный американский банкир, глава дома Рокфеллеров. Внук нефтяного магната и первого в истории миллиардера Джона Д.Рокфеллера, основателя Стандарт Ойл.
+Рокфеллер известен как один из первых и наиболее влиятельных идеологов глобализации и неоконсерватизма, основатель знаменитого Бильдербергского (   Читать дальше...   )Жанр: Биография, мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B128760875468B20A043193B3F0AE7DD38CB518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 627433   (215623) от 17.12.2018
 
 Валерий Ганичев | Ушаков (2010) [DJVU]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215623.jpg" />
+  <img src="Z:/picture/005/save_picture_215623.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215209.jpg" />
+  <img src="Z:/picture/005/save_picture_215209.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214984.jpg" />
+  <img src="Z:/picture/005/save_picture_214984.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214869.jpg" />
+  <img src="Z:/picture/005/save_picture_214869.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214690.jpg" />
+  <img src="Z:/picture/005/save_picture_214690.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214674.jpg" />
+  <img src="Z:/picture/005/save_picture_214674.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214659.jpg" />
+  <img src="Z:/picture/005/save_picture_214659.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214620.jpg" />
+  <img src="Z:/picture/005/save_picture_214620.jpg" />
 </div>
 
 
@@ -218,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214609.jpg" />
+  <img src="Z:/picture/005/save_picture_214609.jpg" />
 </div>
 
 
@@ -244,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214589.jpg" />
+  <img src="Z:/picture/005/save_picture_214589.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214574.jpg" />
+  <img src="Z:/picture/005/save_picture_214574.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214566.jpg" />
+  <img src="Z:/picture/005/save_picture_214566.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214518.jpg" />
+  <img src="Z:/picture/005/save_picture_214518.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214506.jpg" />
+  <img src="Z:/picture/005/save_picture_214506.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214497.jpg" />
+  <img src="Z:/picture/005/save_picture_214497.jpg" />
 </div>
 
 
@@ -401,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214457.jpg" />
+  <img src="Z:/picture/005/save_picture_214457.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214422.jpg" />
+  <img src="Z:/picture/005/save_picture_214422.jpg" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214288.jpg" />
+  <img src="Z:/picture/005/save_picture_214288.jpg" />
 </div>
 
 
@@ -482,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214240.jpg" />
+  <img src="Z:/picture/005/save_picture_214240.jpg" />
 </div>
 
 
@@ -508,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214130.jpg" />
+  <img src="Z:/picture/005/save_picture_214130.jpg" />
 </div>
 
 
@@ -534,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214014.jpg" />
+  <img src="Z:/picture/005/save_picture_214014.jpg" />
 </div>
 
 
@@ -561,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213778.jpg" />
+  <img src="Z:/picture/005/save_picture_213778.jpg" />
 </div>
 
 
@@ -587,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213734.jpg" />
+  <img src="Z:/picture/005/save_picture_213734.jpg" />
 </div>
 
 
@@ -598,85 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FBFC2A0C87FECF048BD9E33A246EE35A9452CD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482182   (212943) от 01.07.2022
-
-Книжная серия | «Заграница без вранья» [12 книг] (2015-2017) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все самое интересное о странах и регионах от первого лица. Чем на самом деле живут жители разных стран, что думают об остальном мире и что из бесконечного количества мифов об этих странах правда, а что — выдумка?Жанр: Документальная литература, Книги о путешествияхФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029BA745D3217F414B49E1C15F58234823542F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564540   (212351) от 20.07.2022
-
-Валентин Юрьевич Катасонов | Читая Шваба. Инклюзивный капитализм и великая перезагрузка. Открытый заговор против человечества (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212351.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новой книге профессора В.Ю. Катасонова рассказано о главном событии нашей исторической эпохи, о котором знают далеко не все. «Великая перезагрузка», или «Великое обнуление» – так назвали это событие его творцы, сильные мира сего, которые решили загнать население планеты в цифровое рабство и утвердить свой фашистский новый мировой порядок на века. Богатейшие люди (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD4B483A3DF2A78BF2343C4CF3E846C956ED99D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586273   (211501) от 25.10.2022
-
-Бернард Шоу | Приспособить мир к себе. Социализм для джентльменов (2022) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великий мастер парадокса, самый остроумный мудрец Британии, Бернард Шоу был не только драматургом, но и мыслителем, который едва ли не первым из западных интеллектуалов принял русскую революцию и считал Ленина и Сталина величайшими людьми на планете. Разумеется, наряду с самим собой.
-В этой книге он говорит от первого лица, а не от лиц выдуманных героев. Это самые (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D14F5CDB3DFEF634B74F85C129A8436BF43994
 ```
 
 https://mybot314.ru/tekegram_catalog/

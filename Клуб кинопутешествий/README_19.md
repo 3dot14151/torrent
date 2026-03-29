@@ -1,3 +1,55 @@
+###  Публикация: 1397315   (741332) от 19.07.2020
+
+Спрятанная Англия / Hidden Britain By Drone (2018) HDTV [H.264/1080i] (сезон 2, серии 1-5 из 5)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть увлекательных воздушных приключений в компании ведущего Тони Робинсона и его маленькой армии летающих дронов. Вместе с ними будем парить над зданиями, залетать в секретные тоннели, опускаться в глубокие пещеры - исследовать самые потаённые и скрытые от любопытных глаз уголки АнглииПроизводство: Великобритания, Windfall Films LtdЖанр: Документальный, путешествияРежиссер: Джеймс Колвел, Джонатан Ханни, Либби ОвертонПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 5 x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8319BAA270B499B2CD1D838DC2A51FBC9D6817DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397266   (741324) от 19.07.2020
+
+Спрятанная Англия / Hidden Britain By Drone (2016) HDTV [H.264/1080i] (сезон 1, серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_741324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя Англия и небольшая, здесь полно мест скрытых от посторонних глаз за высокими заборами и тяжёлыми воротами. Сэр Тони Робинсон - энтузиаст, историк и путешественник. Он изучает скрытое от взгляда с помощью современных технологий воздушной съёмки. Он отправляет свои летающие камеры на съёмку частных владений, исторических мест, секретных зон и непроходимой местности. (   Читать дальше...   )Производство: Великобритания, Windfall Films LtdЖанр: Документальный, путешествияРежиссер: Эйн О' ШиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 2 x ~00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69FD83107FDAA9A82B5839849A454BC049B3ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021352   (741078) от 29.05.2016
 
 Следуй за мной (2016.05.29) SATRip (выпуск 3)
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741078.jpg" />
+  <img src="Z:/picture/008/save_picture_741078.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740989.jpg" />
+  <img src="Z:/picture/008/save_picture_740989.jpg" />
 </div>
 
 
@@ -60,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740720.jpg" />
+  <img src="Z:/picture/008/save_picture_740720.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740715.jpg" />
+  <img src="Z:/picture/008/save_picture_740715.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740689.jpg" />
+  <img src="Z:/picture/008/save_picture_740689.jpg" />
 </div>
 
 
@@ -141,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740442.jpg" />
+  <img src="Z:/picture/008/save_picture_740442.jpg" />
 </div>
 
 
@@ -167,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740428.jpg" />
+  <img src="Z:/picture/008/save_picture_740428.jpg" />
 </div>
 
 
@@ -193,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740425.jpg" />
+  <img src="Z:/picture/008/save_picture_740425.jpg" />
 </div>
 
 
@@ -219,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740423.jpg" />
+  <img src="Z:/picture/008/save_picture_740423.jpg" />
 </div>
 
 
@@ -245,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740422.jpg" />
+  <img src="Z:/picture/008/save_picture_740422.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740216.jpg" />
+  <img src="Z:/picture/008/save_picture_740216.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739870.jpg" />
+  <img src="Z:/picture/008/save_picture_739870.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739867.jpg" />
+  <img src="Z:/picture/008/save_picture_739867.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739835.jpg" />
+  <img src="Z:/picture/008/save_picture_739835.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739828.jpg" />
+  <img src="Z:/picture/008/save_picture_739828.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739819.jpg" />
+  <img src="Z:/picture/008/save_picture_739819.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738130.jpg" />
+  <img src="Z:/picture/008/save_picture_738130.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736155.jpg" />
+  <img src="Z:/picture/008/save_picture_736155.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736152.jpg" />
+  <img src="Z:/picture/008/save_picture_736152.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ BBC. Нью-Йорк - самый большой город США / New York: A
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736123.jpg" />
+  <img src="Z:/picture/008/save_picture_736123.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736114.jpg" />
+  <img src="Z:/picture/008/save_picture_736114.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735662.jpg" />
+  <img src="Z:/picture/008/save_picture_735662.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734432.jpg" />
+  <img src="Z:/picture/008/save_picture_734432.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734428.jpg" />
+  <img src="Z:/picture/008/save_picture_734428.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D19C91CD4EC1635A8D18EBE58967AD29F0911BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706112   (733117) от 24.05.2014
-
-HD Suisse - Швейцария / HD Suisse: Swiss View (2007) HDTV [H.264/720p] [cерии 1-5, 7-21 из 21] [hand made 60fps]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спутниковый канал HD suisse приглашает Вас в увлекательное путешествие по Швейцарии. Потрясающий по красоте документальный проект швейцарского ТВ, снятый специально для популяризации красот страны среди потенциальных туристов.Жанр: ВидовойРежиссер: Марко ФумасолиПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 20 х ~01:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1003B6C295A821C233628C59EBFDFC7C6B0DA0CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397145   (732874) от 01.08.2020
-
-Романтическое путешествие по каналам Великобритании / Great Canal Journeys. Great Britain (2017) HDTV [H.264/1080i] (серии 1-5)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это путешествие пройдёт по самым старейшим водным артериям Великобритании в компании двух старейших английских мореходовПроизводство: Великобритания, Spun Gold TVЖанр: Документальный, природа, путешествияРежиссер: Майк ТейлорПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 4 x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CE009F1D8DC65FBEF7E913D5EBB539CBC0AD3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

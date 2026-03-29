@@ -1,3 +1,85 @@
+###  Публикация: 503742   (260825) от 03.06.2012
+
+A-Train (RePack) [En] 1992 | RG Games (Pilotus)
+
+>>Win Старые Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крайне интересная изометрическая стратегия, которая, вопреки короткому названию, весьма и весьма разнообразна.
+Кому-то может показаться, что это – «клон» или, в крайнем случае, «предтеча» шедевра Сида Мейера под названием Railroad Tycoon, но на самом деле это отнюдь не так. A-Train – игра яркая и самобытная, единственная игра, предлагающая вам создать город, градообразующим предприятием которого является железнодорожная компания.
+Вам в качестве главы этой самой компании необходимо решать две основные проблемы: развитие собственно бизнеса (то есть повышения прибыли от пассажирских и грузоперевозок на поездах) и развитие строящегося города, экономика которого хоть и основывается на мощностях вашего бизнеса, но всё же (по вашему, видимо, желанию) должна быть развитой и многоукладной (к слову, для меня так и остался непонятным статус игрока: судя по всему, он одновременно является и главой компании, и если не мэром, то, по крайней мере, «особой, приближённой к»).Тип издания: RePackЖанр: Экономическая стратегияЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499247   (260669) от 02.06.2012
+
+Port Royale 3: Pirates & Merchants [Ru/En] (RePack/1.1.2.24556) 2011 l R.G. Catalyst
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_260669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие Port Royale 3 развернется на Карибских островах в XVII веке, во время борьбы Англии, Испании, Франции и Голландии за господство в Карибском бассейне. Игрок будет молодым капитаном, пытающийся сколотить состояние и приобрести репутацию в Новом Свете. Для достижения своих целей будет предложено два пути: авантюрист-пират или торговец.
+Тех кто выберет путь пирата ждут различные рейды, охота за головами, грабеж и захваты городов. А торговцу придется задействовать все свои умения, чтобы стать самым влиятельным негоциантом в Новом Свете.
+В дополнение к одиночной компании будут мультиплеерные режимы игры.(   Читать дальше...   )Тип издания: RePackЖанр: Strategy (Manage/Busin. / Real-time) / 3DЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837375   (256759) от 16.11.2025
+
+Moon's Creed (2025) [Ru/Multi] (1.6) Repack FitGirl
+
+>>Win Игры
+>>Strategy (Manage/Busin)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_256759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовьтесь к эпическому приключению в уникальном жанре колодостроительной игры, где сталкиваются космические силы и хаос! Древняя сила галактик у вас на ладони! Выберите одного из героев Зодиака, который управляет энергиями космоса, стройте стратегические колоды и собирайте благословения древних созвездий, чтобы усилить свою мощь.Тип издания: RepackРазработчик: Creedon GamesЖанр: СтратегииЯзык субтитров: Русский, Английский, Турецкий, Китайский и другиеЯзык интерфейса: Русский, Английский, Турецкий, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:416894DB91795C775679A6A9D0296AE337B18DE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496174   (252777) от 13.05.2012
 
 Tropico 4 [Ru] (1.05/RePack) 2011 l UltraISO
@@ -6,7 +88,7 @@ Tropico 4 [Ru] (1.05/RePack) 2011 l UltraISO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252777.jpg" />
+  <img src="Z:/picture/005/save_picture_252777.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ ACRES (2023) [Ru/Multi] (1.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252479.jpg" />
+  <img src="Z:/picture/005/save_picture_252479.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ Thea 2: The Shattering (2019) [Ru/En] (2.0508.0677) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252130.jpg" />
+  <img src="Z:/picture/004/save_picture_252130.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252005.jpg" />
+  <img src="Z:/picture/004/save_picture_252005.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ Dwarf Fortress (2022) [En] (53.02) Repack Necros
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250597.jpg" />
+  <img src="Z:/picture/004/save_picture_250597.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ Roman Triumph: Survival City Builder (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250338.jpg" />
+  <img src="Z:/picture/004/save_picture_250338.jpg" />
 </div>
 
 
@@ -162,7 +244,7 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247002.jpg" />
+  <img src="Z:/picture/004/save_picture_247002.jpg" />
 </div>
 
 
@@ -188,7 +270,7 @@ Glory of the Roman Empire / Величие Римской Империи [Ru] (R
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246689.jpg" />
+  <img src="Z:/picture/004/save_picture_246689.jpg" />
 </div>
 
 
@@ -214,7 +296,7 @@ Godlike Burger (2022) [Ru/Multi] (1.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_235999.jpg" />
+  <img src="Z:/picture/005/save_picture_235999.jpg" />
 </div>
 
 
@@ -240,7 +322,7 @@ SuperPower 3 (2022) [Ru/Multi] (1.0b) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229292.jpg" />
+  <img src="Z:/picture/004/save_picture_229292.jpg" />
 </div>
 
 
@@ -266,7 +348,7 @@ Omerta: City of Gangsters (2013) [Ru/En] (1.07/dlc) Repack R.G. Origami [Gold Ed
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229032.jpg" />
+  <img src="Z:/picture/004/save_picture_229032.jpg" />
 </div>
 
 
@@ -292,7 +374,7 @@ The Game of Life 2 (2020) [Multi] (567387/dlc) License CODEX
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_228593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_228593.jpg" />
 </div>
 
 
@@ -318,7 +400,7 @@ Traffic Giant (2001) [En] (1.0.0.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_227231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_227231.jpg" />
 </div>
 
 
@@ -344,7 +426,7 @@ Sid Meier's Railroads! (RePack/1.1) [Ru/En] 2006 | R.G. ILITA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221869.jpg" />
+  <img src="Z:/picture/005/save_picture_221869.jpg" />
 </div>
 
 
@@ -371,7 +453,7 @@ Anno 2205 (2015) [Ru/Multi] (1.2.2311.44109/upd2) Repack xatab [Gold Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221399.jpg" />
+  <img src="Z:/picture/005/save_picture_221399.jpg" />
 </div>
 
 
@@ -397,7 +479,7 @@ Highrise Mogul (2021) [En] (1.01) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214804.jpg" />
+  <img src="Z:/picture/005/save_picture_214804.jpg" />
 </div>
 
 
@@ -423,7 +505,7 @@ The Guild 3 (2017) [Ru/Multi] (1.0.6) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214572.jpg" />
+  <img src="Z:/picture/005/save_picture_214572.jpg" />
 </div>
 
 
@@ -449,7 +531,7 @@ Shelter Manager (2021) [Ru/Multi] (0.5.5_prod2) License TiNYiSO
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214377.jpg" />
+  <img src="Z:/picture/005/save_picture_214377.jpg" />
 </div>
 
 
@@ -475,7 +557,7 @@ Tropico 6 (2019) [Ru] (1.070/dlc) Repack Other s [El Prez Edition]
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213949.jpg" />
+  <img src="Z:/picture/005/save_picture_213949.jpg" />
 </div>
 
 
@@ -501,7 +583,7 @@ Evil Bank Manager (2018) [Ru/Multi] (1.0) License PLAZA
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213748.jpg" />
+  <img src="Z:/picture/005/save_picture_213748.jpg" />
 </div>
 
 
@@ -527,7 +609,7 @@ Automachef (2019) [Multi] (33) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211267.jpg" />
+  <img src="Z:/picture/005/save_picture_211267.jpg" />
 </div>
 
 
@@ -553,7 +635,7 @@ Cat Cafe Manager (2022) [Multi] (1.2.468) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211137.jpg" />
+  <img src="Z:/picture/005/save_picture_211137.jpg" />
 </div>
 
 
@@ -579,7 +661,7 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209502.jpg" />
 </div>
 
 
@@ -590,84 +672,6 @@ Transport Giant (2004) [Ru/Multi] (2.30) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79EB43086E94F28DE2556994E42FB70977BCE080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646229   (208658) от 18.07.2023
-
-Papa's Freezeria Deluxe (2023) [En] (1.0.3) Repack NotDaMazzlov
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вернитесь на остров Калипсо, чтобы продавать сезонные мороженые в Papa's Freezeria Deluxe! Приготовьте мороженое для всех своих причудливых клиентов, зарабатывая чаевые, бонусы и особые рецепты. Deluxe версия имеет новые ингредиенты, новых клиентов и новые сезонные праздничные вкусности. Смените обстановку и отправляйтесь в путешествие на грузовике Food Truck, чтобы (   Читать дальше...   )Тип издания: RepackРазработчик: Flipline StudiosЖанр: Экшены, Казуальные игры, Инди, Симуляторы, СтратегииЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC5C17B8BB70E4C9CC1408C23247E8A412802579
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648496   (208248) от 23.07.2023
-
-Arsenal of Democracy: A Hearts of Iron Game (2010) [Ru/Multi] (1.12) License GOG
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arsenal of Democracy: A Hearts of Iron Game - стратегия, представленная глобальной картой. События развиваются с 1936 по 1964 год. Выбирайте одну из наций эпохи Второй мировой войны. Применяйте экономические навыки, дипломатию или прокачивайте военное дело. Занимайтесь разработкой новых технологий и разведкой. В боевых действиях примут участие наземная, морская и (   Читать дальше...   )Тип издания: LicenseРазработчик: BL-LogicЖанр: СтратегииЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0EC24BC666E453229FC5716DBA30A75DE87624D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648525   (208133) от 23.07.2023
-
-STORY OF SEASONS: A Wonderful Life (2023) [Multi] (1.0) Scene Rune
-
->>Win Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208133.jpg" />
-</div>
-
-
-###  Подробнее
-
-STORY OF SEASONS: A Wonderful Life предлагает погрузиться в атмосферу мирной жизни на ферме в уютном городке Forgotten Valley. Создавай живой оазис, культивируя урожай и разводя животных. Познакомься с дружелюбными жителями городка и найди любовь, чтобы создать свою семью и оставить неизгладимые воспоминания. Открой для себя новые возможности в этой переосмысленной (   Читать дальше...   )Тип издания: SceneРазработчик: Marvelous Inc.Жанр: Казуальные игры, Ролевые игры, СимуляторыЯзык субтитров: Английский, Немецкий, Французский, Испанский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525FF04A3A57D54D1CD813C920F8D92337F71A72
 ```
 
 https://mybot314.ru/tekegram_catalog/

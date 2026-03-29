@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754368.jpg" />
+  <img src="Z:/picture/008/save_picture_754368.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Two Worlds 2 / Два Мира 2 (2011) (Ru/Multi) (1.3.7) License PROPHET [Velv
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754347.jpg" />
+  <img src="Z:/picture/008/save_picture_754347.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754333.jpg" />
+  <img src="Z:/picture/005/save_picture_754333.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ EASEUS Partition Master 12.9 Technician Edition RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754282.jpg" />
+  <img src="Z:/picture/008/save_picture_754282.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ The Council (2018) [Ru] (0.9.1.5452) Repack alivedeath [Episode 1]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754279.jpg" />
+  <img src="Z:/picture/008/save_picture_754279.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.97.4600 RePack (& Portabl
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754274.jpg" />
+  <img src="Z:/picture/008/save_picture_754274.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Tor Browser Bundle 7.5.3 Final [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754273.jpg" />
+  <img src="Z:/picture/008/save_picture_754273.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754270.jpg" />
+  <img src="Z:/picture/005/save_picture_754270.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ StartIsBack++ 2.6.2 StartIsBack+ 1.7.6 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754269.jpg" />
+  <img src="Z:/picture/008/save_picture_754269.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Baldur's Gate (2012) [Multi] (1.0.2014) License PROPHET [Enhanced Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754247.jpg" />
+  <img src="Z:/picture/008/save_picture_754247.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754242.jpg" />
+  <img src="Z:/picture/005/save_picture_754242.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754229.jpg" />
+  <img src="Z:/picture/005/save_picture_754229.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ BBC: Полет Земли. (Земля с птичьего полёта). Аф�
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754215.jpg" />
+  <img src="Z:/picture/008/save_picture_754215.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754195.jpg" />
+  <img src="Z:/picture/008/save_picture_754195.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754192.jpg" />
+  <img src="Z:/picture/005/save_picture_754192.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754179.jpg" />
+  <img src="Z:/picture/008/save_picture_754179.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.97.4600 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754167.jpg" />
+  <img src="Z:/picture/008/save_picture_754167.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754157.jpg" />
+  <img src="Z:/picture/008/save_picture_754157.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754156.jpg" />
+  <img src="Z:/picture/008/save_picture_754156.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754154.jpg" />
+  <img src="Z:/picture/008/save_picture_754154.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754152.jpg" />
+  <img src="Z:/picture/008/save_picture_754152.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754148.jpg" />
+  <img src="Z:/picture/008/save_picture_754148.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754145.jpg" />
+  <img src="Z:/picture/008/save_picture_754145.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754123.jpg" />
+  <img src="Z:/picture/008/save_picture_754123.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ VA - Volant pres. Best Of Trance & Progressive House Vol. 03 (2016) [MP3|320 к�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754104.jpg" />
+  <img src="Z:/picture/008/save_picture_754104.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754102.jpg" />
+  <img src="Z:/picture/008/save_picture_754102.jpg" />
 </div>
 
 

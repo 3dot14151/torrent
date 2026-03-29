@@ -1,3 +1,161 @@
+###  Публикация: 1595681   (174673) от 06.12.2022
+
+Steganos VPN Online Shield 2.0.11 Revision 13052 (Акция COMSS от 2022.12.06) [Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steganos VPN Online Shield постоянно защищает ваши личные данные, когда Вы находитесь в Интернете. VPN-клиент блокирует действия хакеров, которые могут привести к краже важной информации, защищая Интернет-соединение надежным шифрованием, когда вы делаете онлайн-покупки, используете Интернет-банкинг или просто посещаете веб-сайты и социальные сети. Программа особенно (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0AA1B9DBB1D949A5D2A201728A27A7494843A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595769   (174361) от 07.12.2022
+
+Очередное достижение: 2000 релизов от vitolinform!!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_174361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное достижение: 2000 релизов от vitolinform!!!Уважаемые одноклубники, рада сообщить Вам о возможности поздравить нашего товарища с преодолением рубежа в 2000 релизов! Так держать!
+От всей души поздравляем
+vitolinform(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595600   (174245) от 07.12.2022
+
+История новогодних блюд: как оливье стал первым среди равных и почему селёдка носит шубу?
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_174245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как ни крути, новогодний стол в России — традиция особая, и у каждой семьи есть свои любимые рецепты. Но есть и такие блюда, чья история насчитывает не одну сотню лет, и их готовят в каждом доме в конце декабря. Откуда же пришли наши любимые оливье, селёдка под шубой и ещё несколько новогодних блюд рассказываем в статье.(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657104   (174222) от 11.10.2023
+
+Starfield (2023) [Multi] (1.7.36.0/dlc) Scene Rune [Premium Edition]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Starfield - первая более чем за 25 лет новая игровая вселенная от Bethesda Game Studios, авторов The Elder Scrolls V: Skyrim и Fallout 4. В этой космической ролевой игре вы сможете создать любого персонажа и исследовать вселенную так, как вам этого хочется. Раскройте величайшую тайну человечества. В 2330 году люди осваивают планеты за пределами Солнечной системы. (   Читать дальше...   )Тип издания: SceneРазработчик: Bethesda Game StudiosЖанр: Action, RPGЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04478B65FE9F4CFBCF35F5BB71A355EDABFC8B01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430275   (173985) от 09.12.2020
+
+Adobe Acrobat Pro DC 2020.013.20074 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_173985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acrobat DC — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EBDF2D4ADE8CB28BF99194E5443554B463FE63F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581586   (173682) от 18.12.2018
+
+Место преступления: Лас Вегас (сезоны 1-12), Майами (сезоны 1-10), Нью-Йорк (сезоны 1-8) / CSI: Las Vegas (seasons 1-12), Miami (seasons 1-10), NY (seasons 1-8) (Crime Scene Investigation) (2000-20 ...
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_173682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лас-Вегас… Своими яркими неоновыми огнями, сотнями игровых клубов и казино он манит всё новых и новых людей. Но далеко не все из них оказываются добропорядочными гражданами. В огромном людском потоке частенько прячутся преступники всех мастей. Они убеждены, что их злодеяния останутся незамеченными. Но они сильно ошибаются, ведь в городе работает неутомимая команда (   Читать дальше...   )Жанр: Детектив, Драма, КриминалРежиссер: Роб Бэйли, Оз Скотт, Алекс Закржевский и др.Актеры: Гэри Синиз, Мелина Канакаредес, Кармине Джовинаццо, Хилл Харпер, Анна Белкнап, Эдди Кехилл, А.Дж. Баккли, Роберт ДжойПеревод: Многоголосый закадровый, профессиональный (ДТВ)Озвучка: Владимир КурдовЯзык субтитров: Русские, АнглийскиеПродолжительность: ~ 00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:813BEDBCBC428B729A69C08F1713F7F65A9933E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1667703   (173560) от 12.10.2023
 
 Кошка полностью вывела из строя сегмент крупнейшей медицинской ИС США
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_173560.jpg" />
+  <img src="Z:/picture/005/save_picture_173560.jpg" />
 </div>
 
 
@@ -33,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173287.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173277.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ Nanatsu no Maken ga Shihai Suru / Reign of the Seven Spellblades / Семь гл
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173272.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ Lords of the Fallen (2023) [Ru/Multi] (1.1.184/dlc) Repack DjDI [Deluxe Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173071.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173066.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172960.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172908.jpg" />
 </div>
 
 
@@ -215,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172898.jpg" />
 </div>
 
 
@@ -241,7 +399,7 @@ Adobe Photoshop Lightroom Classic 13.0.1.1 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172701.jpg" />
 </div>
 
 
@@ -267,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172414.jpg" />
 </div>
 
 
@@ -293,7 +451,7 @@ The Mortuary Assistant (2022) [Ru/Multi] (1.2.3) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172154.jpg" />
 </div>
 
 
@@ -319,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172150.jpg" />
 </div>
 
 
@@ -345,7 +503,7 @@ Kaspersky Free 21.15.8.493 Repack by LcHNextGen (20.10.2023) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171966.jpg" />
 </div>
 
 
@@ -371,7 +529,7 @@ Parallels Desktop Business Edition 19 for Mac 19.1.0 [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171803.jpg" />
 </div>
 
 
@@ -398,7 +556,7 @@ MInstAll v.21.10.2023 By Andreyonohov (ISO) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171616.jpg" />
 </div>
 
 
@@ -424,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171611.jpg" />
 </div>
 
 
@@ -450,7 +608,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5413.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171609.jpg" />
 </div>
 
 
@@ -476,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171468.jpg" />
 </div>
 
 
@@ -502,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171460.jpg" />
 </div>
 
 
@@ -513,165 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671462   (171280) от 24.10.2023
-
-F-Secure Freedome VPN 2.69.35.0 RePack by elchupacabra [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171280.jpg" />
-</div>
-
-
-###  Подробнее
-
-F-Secure Freedome VPN - надежное и эффективное решение для поддержания вашей анонимности в Интернете. Защитите ваш компьютер от хакеров, вредоносных приложений и веб-сайтов, используйте шифрование для защиты Wi-Fi соединения и устанавливайте виртуальное местоположение для анонимной онлайн-активности с помощью F-Secure Freedome. Позвольте Freedome подключить вас к (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4FC863AC933995DFAB00ED3608835D65F22DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288189   (171278) от 24.10.2023
-
-Шрифты - NNM-Club - NoNaMe Classic - 1288189 [OTF, EOT, SVG, WOFF]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный кириллический шрифт сайта NoNaMe Club.Разработчик: Vadaboom
-
-Адаптация под кириллицу от "He Rez AD", им же расширена латиница для поддержки большего количества европейских языков: добавлены к уже имеющейся Польская, Румынская, Немецкая, Французская и др. + мелкие исправления + шрифт включает в cебя знак Биткойна (Bitcoin) U+20BF ($20BF).Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2F4F6A89F7535F307ED84EABFA5BCBEDCC906A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671388   (171123) от 25.10.2023
-
-Роскомнадзор не смог остановить рост числа пиратских ресурсов с фильмами и музыкой
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171123.jpg" />
-</div>
-
-
-###  Подробнее
-
-В первом полугодии заметно выросло количество нелегальных ресурсов с медийным контентом (книги, фильмы, музыка), отмечает «Коммерсантъ» со ссылкой на данные опроса TelecomDaily. В отношении фильмов рост пиратства в основном наблюдается в части западной продукции, сообщили в официальных онлайн-кинотеатрах. Попытки властей вернуть зарубежный контент на легальные площадки (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692163   (170727) от 09.12.2019
-
-Битва за Москву (1985) DVDRip [H.264] [Реставрация]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Киноэпопея в двух фильмах.
-В фильме "Агрессия" показаны события, происходившие в Европе, на территории СССР накануне и в начале Второй мировой войны. Интереснейшая картина смотрится захватывающе. С первых дней войны столица СССР начала готовиться к обороне. Были эвакуированы учереждения и заводы, посольства и министерства. В Москву из Ленинграда, чтобы (   Читать дальше...   )Производство: СССР, Чехословакия, Германия (ГДР), Вьетнам / Мосфильм, Deutsche Film (DEFA), Filmové studio Barrandov, Defa, Favim VRЖанр: Военный, ДрамаРежиссер: Юрий ОзеровАктеры: Яков Трипольский, Михаил Ульянов, Александр Голобородько, Бруно Фрейндлих, Николай Засухин, Анатолий Никитин, Владимир Трошин, Степан Микоян, Вячеслав Езепов, Юозас БудрайтисПродолжительность: 4 серии - 05:38:05 (01:17:52 + 01:28:17 + 01:23:05 + 01:28:51)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3A176FDBCFD13CF8BE1F3A700FE057E8ACCA8FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070624   (170723) от 09.12.2019
-
-City Car Driving (2016) [Ru/Multi] (1.5.9) Repack Other s [Home Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170723.jpg" />
-</div>
-
-
-###  Подробнее
-
-City Car Driving – реалистичный симулятор вождения автомобиля, который поможет вам освоить базовые навыки управления машиной в различных дорожных условиях, с погружением в среду, максимально приближенную к реальной. "Умный" трафик, непредсказуемые пешеходы и внезапные опасные ситуации не дадут расслабиться и будут поддерживать атмосферу реальной дорожной (   Читать дальше...   )Тип издания: RepackРазработчик: Forward Development, Ltd.Жанр: Simulator (Cars), 3DЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CF6F4FCDF54E1E5B26CAAF08000E00356206D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596052   (170619) от 08.12.2022
-
-Сердце пармы (2022) WEBRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170619.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русский князь Михаил и юная Тиче — дети разных народов, разных миров и разных богов. Любовь молодого воителя и ведьмы-ламии кажется невозможной, но преодолевает все запреты, запуская маховик рока. Отныне только от Михаила зависит будущее родной пармы, древних суровых земель, напоенных чудодейственной мощью кровавых языческих богов. Здесь сталкиваются герои и призраки, (   Читать дальше...   )Производство: Россия, Профит, Star MediaЖанр: драма, фэнтезиРежиссер: Антон МегердичевАктеры: Александр Кузнецов, Елена Ербакова, Сергей Пускепалис, Евгений Миронов, Виталий Кищенко, Фёдор Бондарчук, Владимир Свирский, Роза Хайруллина, Елена Панова, Александр ГорбатовПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95416C869CFB2FCFB62EEB5AD4E3E9F9048A36BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

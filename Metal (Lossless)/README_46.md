@@ -1,3 +1,94 @@
+###  Публикация: 978410   (962097) от 24.01.2016
+
+Primal Fear - Rulebreaker (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels Of Mercy (3:35)
+02. The End Is Near (4:26)
+03. Bullets & Tears (3:05)
+04. Rulebreaker (4:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD7060B8175B3AD5F7733131785720B354B78D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359978   (961791) от 14.02.2020
+
+Ozzy Osbourne - Ordinary Man (2020) [FLAC|Lossless|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight To Hell (03:46)
+02. All My Life (04:18)
+03. Goodbye (05:34)
+04. Ordinary Man (Feat. Elton John) (05:02)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E81DAFCF61A4539E60338CB74F7837BA121EFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747783   (961623) от 20.01.2014
+
+Alaskan - Despair Erosion Loss (2014) [FLAC|Lossless]<Atmospheric Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sacrifice  05:12
+02 - Fiend  07:33
+03 - Inferno  05:43
+04 - Submerged  05:16
+05 - Guiltless  07:20
+06 - Eternal  05:15
+
+Пост-метал коллектив из Оттавы,Онтарио (Канада), состоящий из участников групп The Vanishing Act, Whale Cry, Elephantoms & The WishlistЖанр: Atmospheric Sludge MetalПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F735A56182A891DEEB599E37BACF2FD29830EE09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978993   (961154) от 25.01.2016
 
 Abbath - Abbath (2016) Deluxe Edition [FLAC|Lossless|tracks+.cue] <Black Metal>
@@ -6,7 +97,7 @@ Abbath - Abbath (2016) Deluxe Edition [FLAC|Lossless|tracks+.cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961154.jpg" />
 </div>
 
 
@@ -35,7 +126,7 @@ Therion - Gothic Kabbalah (2007) 2CD Digipack Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960935.jpg" />
 </div>
 
 
@@ -64,7 +155,7 @@ Iced Earth - The Glorious Burden (2004) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960934.jpg" />
 </div>
 
 
@@ -93,7 +184,7 @@ Into Eternity - The Scattering Of Ashes (2006) [FLAC|Lossless]<Progressive Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960794.jpg" />
 </div>
 
 
@@ -122,7 +213,7 @@ Psychotic Waltz - 5 Albums, 1 Live, 1 Compilation (1990-2020) 15CD [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959396.jpg" />
 </div>
 
 
@@ -151,7 +242,7 @@ Inevitable End - The Oculus (2011) [FLAC|Lossless|image + .cue] <Death Metal, Gr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959393.jpg" />
 </div>
 
 
@@ -180,7 +271,7 @@ Holy Mother - Agoraphobia (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959334.jpg" />
 </div>
 
 
@@ -209,7 +300,7 @@ Wolfpakk - 5 albums (2011-2020) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958114.jpg" />
 </div>
 
 
@@ -238,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956291.jpg" />
 </div>
 
 
@@ -267,7 +358,7 @@ Dream Theater - The Astonishing (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956158.jpg" />
 </div>
 
 
@@ -296,7 +387,7 @@ Avantasia - Ghоstlights (2016) Limited Edition 2CD [FLAC|Lossless|image +.cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956104.jpg" />
 </div>
 
 
@@ -325,7 +416,7 @@ Serenity - Codex Atlanticus (2016) Japanese Edition [FLAC|Lossless|image +.cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956102.jpg" />
 </div>
 
 
@@ -354,7 +445,7 @@ U.D.O. - 8 Albums Anniversary Edition (2013) (AFM Records AFM 427-2 - 436-2 EU) 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955195.jpg" />
 </div>
 
 
@@ -383,7 +474,7 @@ Dream Theater - The Astonishing (2016) 2CD [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954362.jpg" />
 </div>
 
 
@@ -412,7 +503,7 @@ Doro - Doro (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954219.jpg" />
 </div>
 
 
@@ -441,7 +532,7 @@ Demons & Wizards - III (2020) [FLAC|Lossless|tracks + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954205.jpg" />
 </div>
 
 
@@ -470,7 +561,7 @@ Coma Void - Stormking Twilight (2001) [FLAC|Lossless|image + .cue] <Death Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953097.jpg" />
 </div>
 
 
@@ -499,7 +590,7 @@ Ozzy Osbourne - Greatest Hits (2009) [FLAC|Lossless]<Hard Rock, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952665.jpg" />
 </div>
 
 
@@ -534,7 +625,7 @@ Meshiaak - Alliance of Thieves (2016) [FLAC|lossless|image + .cue] <Thrash Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951942.jpg" />
 </div>
 
 
@@ -563,7 +654,7 @@ Royal Hunt - X (2010) [APE|Lossless]<Melodic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951423.jpg" />
 </div>
 
 
@@ -592,7 +683,7 @@ Morgart - Die Schlacht (In Acht Sinfonien) (2005) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951016.jpg" />
 </div>
 
 
@@ -621,7 +712,7 @@ Impellitteri - Pedal To The Metal (2004) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950900.jpg" />
 </div>
 
 
@@ -647,7 +738,7 @@ Sebastian Bach - Kicking And Screaming (2011) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950799.jpg" />
 </div>
 
 
@@ -661,92 +752,6 @@ Sebastian Bach - Kicking And Screaming (2011) [FLAC|Lossless|image + .cue] <Heav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00E095C9E2DC7C020BCFDE880237E1C5E252AD97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089508   (950762) от 04.01.2017
-
-Malum - Awakening of the Black Flame (2016) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will
-02. Ikuisen vihan tulessa
-03. Awakening of the Black FlameЖанр: Black MetalПродолжительность: 00:23:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD9F6E07E03F20BAF43E841E3A1A0C19264DE25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089269   (950758) от 04.01.2017
-
-Nocturnal Degrade - The Dying Beauty (2015) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Consequence
-02. In December
-03. Of My Soul and the Macrocosm
-04. Iceberg of Memories(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7524237B89C8F218BF5C273D920F59E3BA8494AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088906   (950533) от 04.01.2017
-
-Delain - Moonbathers (2016) Limited Edition 2CD [FLAC|Lossless|image + .cue] <Symphonic, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suckerpunch (Live in The Netherlands)
-02. Turn the Lights Out (Live in The Netherlands)
-03. The Glory and the Scum (Live in The Netherlands)
-04. Don't Let Go (Live in The Netherlands)(   Читать дальше...   )Жанр: Symphonic, Gothic MetalПродолжительность: 00:47:30 + 00:25:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4211DBCEFB24A179BE7D3B6FA8C4038F48B45558
 ```
 
 https://mybot314.ru/tekegram_catalog/

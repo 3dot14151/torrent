@@ -1,3 +1,30 @@
+###  Публикация: 1374287   (874430) от 09.04.2020
+
+В. Надеждина (сост.) | Готовим праздничные блюда для семейных торжеств и на каждый день (2012) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_874430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Праздников много, и каждый важен по своему. Новый год и Рождество, Пасха и дни рождения родных и близких друзей. Свадьбы, поступления и окончания школ и институтов, повышение по служебной лестнице.
+В этой книге собраны как рецепты разнообразных праздничных блюд, так и большое количество советов по украшению простых блюд, рациональному использованию продуктов и экономному (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEDB05CC861A7A8C32EEDE93BBA89E2F4501ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374406   (874306) от 09.04.2020
 
 Светлана Семенова | Постные блюда. Готовим в мультиварке (2015) [PDF]
@@ -6,7 +33,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874306.jpg" />
+  <img src="Z:/picture/005/save_picture_874306.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874127.jpg" />
+  <img src="Z:/picture/008/save_picture_874127.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873635.jpg" />
+  <img src="Z:/picture/008/save_picture_873635.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873519.jpg" />
+  <img src="Z:/picture/008/save_picture_873519.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873383.jpg" />
+  <img src="Z:/picture/008/save_picture_873383.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873376.jpg" />
+  <img src="Z:/picture/008/save_picture_873376.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873372.jpg" />
+  <img src="Z:/picture/008/save_picture_873372.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873363.jpg" />
+  <img src="Z:/picture/008/save_picture_873363.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873230.jpg" />
+  <img src="Z:/picture/008/save_picture_873230.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873224.jpg" />
+  <img src="Z:/picture/008/save_picture_873224.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873049.jpg" />
+  <img src="Z:/picture/008/save_picture_873049.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873048.jpg" />
+  <img src="Z:/picture/008/save_picture_873048.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873047.jpg" />
+  <img src="Z:/picture/008/save_picture_873047.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873045.jpg" />
+  <img src="Z:/picture/008/save_picture_873045.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873038.jpg" />
+  <img src="Z:/picture/008/save_picture_873038.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872869.jpg" />
+  <img src="Z:/picture/008/save_picture_872869.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872601.jpg" />
+  <img src="Z:/picture/008/save_picture_872601.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872452.jpg" />
+  <img src="Z:/picture/008/save_picture_872452.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870596.jpg" />
+  <img src="Z:/picture/008/save_picture_870596.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870588.jpg" />
+  <img src="Z:/picture/008/save_picture_870588.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869679.jpg" />
+  <img src="Z:/picture/008/save_picture_869679.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864260.jpg" />
+  <img src="Z:/picture/008/save_picture_864260.jpg" />
 </div>
 
 
@@ -585,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864259.jpg" />
+  <img src="Z:/picture/008/save_picture_864259.jpg" />
 </div>
 
 
@@ -611,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_863999.jpg" />
+  <img src="Z:/picture/009/save_picture_863999.jpg" />
 </div>
 
 
@@ -637,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_863901.jpg" />
+  <img src="Z:/picture/009/save_picture_863901.jpg" />
 </div>
 
 
@@ -648,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4757299CD90945219E1E61225F4934016EC4EF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108320   (863804) от 24.02.2017
-
-О. Ивенская (ред.) | Кулинарная энциклопедия. Том 32 "Р-С" (2017) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная энциклопедия - штука полезная, но скучноватая. Если нет надобности навести какую-нибудь справку, читать её вряд ли кто-то станет. Но вы уже, наверное, поняли, что перед вами - энциклопедия самая что ни на есть необычная. Её можно читать от первого тома до последнего, а можно просто открыть наугад, на любой странице - и тоже будет интересно. Или, допустим, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DBA1D1F4C4D801B7DEF6A9F77A754A56140CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

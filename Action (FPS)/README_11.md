@@ -1,3 +1,81 @@
+###  Публикация: 1277387   (785284) от 20.01.2019
+
+Burden (2018) [Ru/En] (1.0/upd14) License SKIDROW
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданная по мотивам любимых тем загадочных постапокалиптических вселенных, игра Burden кинет тебя прямо в самый центр одного из таких миров, полного загадок и тайн, а также постоянных угроз и экшена. В Burden каждый прожитый день – это не просто приключение, которое может привести к любому исходу, а вызов, бросаемый судьбе. От обогащения добычей и нахождения таинственных (   Читать дальше...   )Тип издания: LicenseРазработчик: Black Book DevelopmentЖанр: Adventure, Action, 3D, 1st PersonЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093545BA6B232DF26DA4EF40C5D66F779AE612F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171863   (785240) от 20.01.2019
+
+Dishonored 2 (2016) [Ru/Multi] (1.77.9) Repack R.G. Catalyst
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_785240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры Dishonored 2 разворачивается спустя пятнадцать лет после победы над лордом-регентом и избавления от ужасной крысиной чумы. Необычный враг отнял трон у императрицы Эмили Колдуин, и мрачная тень злого рока нависла над Островами.Тип издания: RepackРазработчик: Arkane StudiosЖанр: Action, 3D, 1st Person, StealthЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B061BEA577DB33C639703CA60FE0257F1B4A900A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330294   (784691) от 09.06.2020
+
+Killing Floor 2 (2016) [Ru/Multi] (1094/dlc) SteamRip =nemos= [Digital Deluxe Edition]
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784691.jpg" />
+</div>
+
+
+###  Подробнее
+
+В KILLING FLOOR 2 игроки окажутся в континентальной Европе, где вспышка болезни, вызванная неудачным экспериментом компании Horzine Biotech, быстро распространяется и принимает невероятный масштаб, парализуя Европейский Союз. Всего спустя месяц после заключительных событий в KILLING FLOOR, образцовые клоны заполонили все и цивилизация погружается в кризис.Тип издания: SteamRipРазработчик: Tripwire InteractiveЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC19B1E3782A31539E3069FAE31039B05E3AA561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204563   (784524) от 06.02.2018
 
 Call of Duty: Modern Warfare Remastered (2016) [Ru] (1.13) Rip Other s
@@ -6,7 +84,7 @@ Call of Duty: Modern Warfare Remastered (2016) [Ru] (1.13) Rip Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784524.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Silent Descent (2018) [En] (1.03) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784312.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/E
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784231.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Conarium (2017) [Ru/Multi] (1.0.0.6) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783952.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Kona / Kôna (2017) [Multi] (07-08-2017) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783713.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Condemned Criminal Origins (2006) [Ru] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783708.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ SKYHILL: Black Mist (2020) [Ru/Multi] (1.0.002) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783279.jpg" />
+  <img src="Z:/picture/008/save_picture_783279.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Borderlands: Trilogy (2009-2014) [Ru/Multi] (1.5.0.0/1.8.4/1.0.7/dlc) Repack R.G
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783074.jpg" />
+  <img src="Z:/picture/008/save_picture_783074.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Observer / >observer_ (2017) [Ru/Multi] (1.0.0.3) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781546.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Outlaws (1997) [En] (2.0/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781170.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Tropical Escape (2018) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780445.jpg" />
+  <img src="Z:/picture/008/save_picture_780445.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Hello Neighbor (2017) [Ru/Multi] (1.1.9) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780161.jpg" />
+  <img src="Z:/picture/008/save_picture_780161.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Shadow Warrior 2 (2016) [Ru/Multi] (1.1.14.0/dlc) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779837.jpg" />
+  <img src="Z:/picture/008/save_picture_779837.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Alien: Isolation (2014) [Ru/En] (1.0upd9/7dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779697.jpg" />
+  <img src="Z:/picture/008/save_picture_779697.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Hunt Down The Freeman (2018) [En] (1.0/upd1) Repack =nemos=
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779167.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Sniper: Ghost Warrior 3 / Снайпер: Воин-призрак 3 (2017) [Ru/M
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778890.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru/En] (16.00.20.0275) Repack R.G. Механик�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778582.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Quadrant Episode 1-3 (2015-2016) [En] (1.0) License PROPHET
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777843.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Fleeting Ages (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777810.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ F.E.A.R. 3 / F.3.A.R. (2011) [Ru] (16.0.20.1060) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_777701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_777701.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Share (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777450.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Vortex: The Gateway (2016) [Ru/Multi] (1.1520) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777051.jpg" />
+  <img src="Z:/picture/008/save_picture_777051.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Call of Duty 2 (2005) [Ru] (1.3) License 1C
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775485.jpg" />
+  <img src="Z:/picture/008/save_picture_775485.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Call of Duty 2 (2005) [Ru] (1.3) License 1C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEF9E08C65E7B4C3717800A96764311CDC354EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015153   (775457) от 09.05.2016
-
-Night Blights (2016) [En] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Night Blights — небольшая хоррор-игра подозрительно похожая на Five Nights at Freddy's 4, где вы в роли маленького ребенка должны защитить свою семью от страшных существ, которые приходят ночью. Эти существа непредсказуемые, смертельно опасные и они могут скрываться в любом самом неожиданном месте. Игра использует ваши детские страхи - вам будет казаться, что что-то (   Читать дальше...   )Тип издания: RepackРазработчик: Trapdoor Games,	Hot Cross GamesЖанр: Action, 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366BEFC5B0A56016518FCC91A6E80CA99B8CA589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277864   (774794) от 22.01.2019
-
-Enemy Front (2014) [Ru/En] (3.4.4.6290/dlc) Repack xatab
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enemy Front является шутером от первого лица, созданным на базе движка CryEngine 3. События в игре разворачиваются во времена Второй мировой войны. Вам, корреспонденту, но в роли солдата, действующего в тылу врага, предстоит преодолеть нелегкий путь к заданной цели.Тип издания: RepackРазработчик: City Interactive GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E3D4092C909780EB632531D374BC7335CC18DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277947   (774028) от 23.01.2019
-
-Brothers in Arms: Earned in Blood (2005) [En] (1.03) License GOG
-
->>Win Старые Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brothers in Arms: Earned in Blood — это тактический шутер, основанный на событиях дня Д, которые имели место в предыдущей части подвигов Джо Хартсока. Вместе с вами он отправится на важное задание для истории. На битву за освобождение Нормандии.Тип издания: LicenseРазработчик: Gearbox SoftwareЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F668E2E8845C2E045FD2532AF0AF9FDA98F054F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

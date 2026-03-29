@@ -1,3 +1,166 @@
+###  Публикация: 989936   (913245) от 24.02.2016
+
+Олег Митяев - Презентация диска «Позабытое чувство» Москва, Крокус Сити Холл (04.12.2011) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913245.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 декабря 2011 года на сцене Крокус Сити Холл состоялась презентация нового альбома Олега Митяева «Позабытое чувство». Олег Митяев известен всей стране песнями "Соседка", "Француженка", "Давай с тобой поговорим", "Сестра милосердия", "В осеннем парке", "Авиатор", "Лето — это маленькая жизнь", "С (   Читать дальше...   )01. Маршрутка
+02. Позабытое чувство
+03. Соседка
+04. Ленты(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: КонцертПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4F72C5C6DB5A403637F2AA16692E1BF7B216B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987719   (913032) от 24.02.2016
+
+The Beatles: Вечер трудного дня / A Hard Day's Night (1964/2014) BDRip [H.264/720p] (Criterion Collection) [hand made colored]
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_913032.jpg" />
+</div>
+
+
+###  Подробнее
+
+1964 год. Начало Битломании. "БИТЛЗ" дебютируют на американской сцене в шоу Эда Салливана. Режиссер Ричард Лестер делает первый фильм о группе, сняв его в жанре музыкальной комедии. "Вечер трудного дня" рассказывает фэнам группы об одном дне в жизни ВЕЛИКОЙ ЧЕТВЕРКИ...
+A Hard Day's Night - первый битловский фильм, снятый Ричардом Лестером, появился (   Читать дальше...   )Производство: ВеликобританияЖанр: Мюзикл, Комедия, МузыкальныйРежиссер: Ричард ЛестерАктеры: Ринго Старр, Пол Маккартни, Джон Леннон, Джордж Хэррисон, Уилфред Брэмбелл, Виктор Спинетти, Анна Куэйл, Норман Россингтон, Джон Джанкин, Дерик ГайлерПеревод: Одноголосый закадровый профессиональный (Максим Жолобов)Продолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482497B66EDE4397B0F13AC44FD5119527B00AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634136   (912961) от 24.03.2013
+
+Vanessa Hudgens vs. YLA - SSSex (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: HouseПродолжительность: 00:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D2A9BC5481573712DDE0DFD31670048A65D0E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634324   (912944) от 24.03.2013
+
+Katalina Rusu - My Name Is Love (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D762673395D3CD0F98AD67CC87D842B9977C8F3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 633919   (912782) от 24.03.2013
+
+Alex Clare - Too Close (2nd Version) (2012) [1080p] HDRemux
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Dubstep, SoulПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC7A926F092DECF6E09E9817127136D78834CF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634057   (912663) от 24.03.2013
+
+Louna - Проснись и Пой! (live) (2012) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертная видеосъемка и аудиозапись были осуществлены на большом сольном концерте группы Louna, который состоялся 26 октября 2012 года в московском клубе MILK. Интервью с группой было снято в помещении фотостудии "GetShot" (Москва). В фильме также использованы видеоматериалы выступлений группы на фестивалях "Нашествие-2012" и "Кубана-2011". (   Читать дальше...   )DVD1:
+01. Проснись и пой
+02. Кризис Крайст Суперстар
+03. Время Х(   Читать дальше...   )Жанр: КонцертПродолжительность: 02:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADCA78A0946C8FA766A15CEEDC1CEA31BF5FAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 634137   (912642) от 24.03.2013
 
 Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
@@ -6,7 +169,7 @@ Mz Mikal Blair (Model) - Broke Bitch (Uncensored) (2013) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912642.jpg" />
 </div>
 
 
@@ -32,7 +195,7 @@ The Freddie Mercury Tribute Concert for AIDS Awareness (1992) Blu-Ray [1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911782.jpg" />
 </div>
 
 
@@ -61,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911761.jpg" />
 </div>
 
 
@@ -87,7 +250,7 @@ Shania Twain - UP! Close & Personal (2004) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911715.jpg" />
 </div>
 
 
@@ -116,7 +279,7 @@ Shania Twain - LIVE (1999) Come On Over, DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911625.jpg" />
 </div>
 
 
@@ -145,7 +308,7 @@ Shania Twain - The Platinum Collection (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911616.jpg" />
 </div>
 
 
@@ -174,7 +337,7 @@ Shania Twain - UP! Live In Chicago (2003) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911603.jpg" />
 </div>
 
 
@@ -203,7 +366,7 @@ Shania Twain - The Specials (2001) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911599.jpg" />
 </div>
 
 
@@ -232,7 +395,7 @@ Joe Bonamassa - Tour De Force (Hammersmith Apollo) (2013) HDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911550.jpg" />
 </div>
 
 
@@ -263,7 +426,7 @@ Kreator - London Apocalypticon - Live at the Roundhouse (2020) BDRip [H.264/720p
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910778.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910778.jpg" />
 </div>
 
 
@@ -292,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910682.jpg" />
 </div>
 
 
@@ -318,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910556.jpg" />
 </div>
 
 
@@ -344,7 +507,7 @@ Lindemann - Live at Moscow (VTB Arena) (15.03.2020) WEB-DLRip [VP9/2160p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910520.jpg" />
 </div>
 
 
@@ -373,7 +536,7 @@ The Rolling Stones: Havana Moon (2016) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_910124.jpg" />
+  <img src="Z:/picture/008/save_picture_910124.jpg" />
 </div>
 
 
@@ -402,7 +565,7 @@ Brit Floyd - Space & Time - Live in Amsterdam (2016) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909898.jpg" />
 </div>
 
 
@@ -431,7 +594,7 @@ Europe: The Final Countdown – Live At The Roundhouse (2017) 30th Anniversary S
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909861.jpg" />
 </div>
 
 
@@ -460,7 +623,7 @@ Stooshe - Slip (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909706.jpg" />
 </div>
 
 
@@ -486,7 +649,7 @@ Dj Sava feat. Misha - Tenerife (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909525.jpg" />
 </div>
 
 
@@ -512,7 +675,7 @@ Elena ft. Glance - Ecou (2013) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909505.jpg" />
 </div>
 
 
@@ -538,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909481.jpg" />
 </div>
 
 
@@ -549,169 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E789C5268FB2B3D80C5930DA0F6E901C334E4CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635441   (909438) от 26.03.2013
-
-Anna Tatangelo - Occhio Per Occhio (2013) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13735E359531B1158732504F7FC4F327583C6845
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635343   (909339) от 26.03.2013
-
-London Philharmonic Orchestra & Rowan Atkinson (2012) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: InstrumentalПродолжительность: 00:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8142FE3DD714EF47E5E884090BD14F9184F073E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990820   (909286) от 26.02.2016
-
-VA - Коллекция клипов Rock, Metal, Heavy Metal (2012 - 2015) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция клипов для любителей рок и метал.
-Вся сила, энергия и мощь по настоящему крутой музыки!2Cellos - They Don't Care About Us (Michael Jackson Cover).avi
-A Sound of Thunder - Murderous Horde.avi
-AC-DC - Are You Ready.avi
-AC-DC - Rock The Blues Away.avi(   Читать дальше...   )Жанр: Музыкальные клипыПродолжительность: 31:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7722170C010964F7F3251577622229EAAAD16C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291734   (908788) от 06.02.2011
-
-Музыкальный ринг на НТВ. Выпуск №12. Вадим Казаченко vs Алексей Глызин  (05.02.2011) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый музыкальный проект НТВ — это бескомпромиссное музыкальное состязание, где каждому участнику придется проявить всю силу и мощь своего таланта. Раз в неделю на «Музыкальный ринг НТВ» будут выходить два популярных артиста или коллектива. Их главное оружие — вокал, ведь петь звездным соперникам предстоит только вживую. А вести проект, по всем правилам настоящего (   Читать дальше...   )Жанр: ТВ-ШоуПродолжительность: ~ 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98151821390053DD32F5389D34571A22020D3391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350780   (908696) от 20.03.2020
-
-Ozzy Osbourne - 4 Видеоклипа (2019-2020) WEB-DL [H.264, 1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Videos at Ozzy Osbourne: (00:11:03)
-2019 Ozzy Osbourne - Under the Graveyard [1080p] 2020 (00:05:47)
-2019 Ozzy Osbourne & Post Malone - Take What You Want (Live Video) [1080p] 2019 (00:02:46)
-2020 Ozzy Osbourne - Straight to Hell [1080p] 2020 (00:03:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782A59B121F5F3731DA24FB91E3C4C3EE33CDA09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635880   (907830) от 27.03.2013
-
-Alisher - Money (2013) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145F5471FA6A3BAE2A8371EF5339D757825FC697
 ```
 
 https://mybot314.ru/tekegram_catalog/

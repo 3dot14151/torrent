@@ -1,3 +1,29 @@
+###  Публикация: 1010443   (803606) от 24.04.2016
+
+Весенние каникулы / Spring Break (1983) DVDRip [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Две пары из двух парней разных колледжей хотят провести весенние каникулы вместе в Форт-Лодердейл, штат Флорида. Там у них будет много веселья.Производство: США, Columbia Pictures Corporation, Fogbound Inc., Sean S. Cunningham FilmsЖанр: Комедия, МелодрамаРежиссер: Шон С. КаннингэмАктеры: Дэвид Нелл, Перри Лэнг, Пол Лэнд, Стив Бассетт, Джейн Модин, Корина Уол, Ричард Б. Шалл, Джессика Джеймс, Даниэль Фаральдо, Дональд СимингтонПеревод: ОтсутствуетЯзык озвучки: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC7ABA519241E09D3D60D3B573EC0647C8A6E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199624   (800056) от 17.01.2018
 
 Большая игра / Molly's Game (2017) DVDScr [EN]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800056.jpg" />
+  <img src="Z:/picture/008/save_picture_800056.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793446.jpg" />
+  <img src="Z:/picture/008/save_picture_793446.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793394.jpg" />
+  <img src="Z:/picture/008/save_picture_793394.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793308.jpg" />
+  <img src="Z:/picture/008/save_picture_793308.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787878.jpg" />
+  <img src="Z:/picture/008/save_picture_787878.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786672.jpg" />
+  <img src="Z:/picture/008/save_picture_786672.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786071.jpg" />
+  <img src="Z:/picture/008/save_picture_786071.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786053.jpg" />
+  <img src="Z:/picture/008/save_picture_786053.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784892.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784819.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_783722.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779357.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779350.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779332.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776387.jpg" />
+  <img src="Z:/picture/008/save_picture_776387.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773083.jpg" />
+  <img src="Z:/picture/008/save_picture_773083.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771311.jpg" />
+  <img src="Z:/picture/008/save_picture_771311.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767591.jpg" />
+  <img src="Z:/picture/008/save_picture_767591.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759200.jpg" />
+  <img src="Z:/picture/008/save_picture_759200.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759196.jpg" />
+  <img src="Z:/picture/008/save_picture_759196.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759084.jpg" />
+  <img src="Z:/picture/008/save_picture_759084.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759018.jpg" />
+  <img src="Z:/picture/008/save_picture_759018.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758964.jpg" />
+  <img src="Z:/picture/008/save_picture_758964.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758963.jpg" />
+  <img src="Z:/picture/008/save_picture_758963.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758397.jpg" />
+  <img src="Z:/picture/008/save_picture_758397.jpg" />
 </div>
 
 
@@ -644,33 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11CF723F7F717EBDF835B31C7BCBEA393AB80FA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522627   (756644) от 08.01.2022
-
-Лошадь во дворе, шеф! (Во дворе лошадь, шеф!) / Šéfové: Na dvore je kun, sefe! (1988) DVDRip [H.264] [Cze / Ru Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четвёртый фильм из цикла про «Шефа». Действие происходит в постсоциалистической Чехословакии в 1989 году.
-Прошло 5 лет. В стране большие перемены: коммунистический режим пал — границы открыты для Запада. Международная мафия хочет переправить во Францию партию бриллиантов. Путь лежит через Чехию. Однако Интерпол не дремлет и вовремя ставит в известность чешскую полицию. (   Читать дальше...   )Производство: Чехословакия / Ceskoslovenská televize PrahaЖанр: КомедияРежиссер: Гинек БочанАктеры: Петр Нарожны, Карел Гержманек, Надя Конвалинкова, Иржина Богдалова, Владимир Кратина, Павел Новы, Густав Опоченский, Вацлав Постранецки, Адольф Когут, Любомир ЛипскийПеревод: только в виде русских субтитровЯзык озвучки: чешский (и французский в отдельных сценах)Субтитры: русские (перевод с чешского - krepelka)Продолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87544DF93EFCBB5B5548933C27D6CA6A78F16EC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

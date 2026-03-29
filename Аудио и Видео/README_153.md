@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600919.jpg" />
+  <img src="Z:/picture/008/save_picture_600919.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600784.jpg" />
+  <img src="Z:/picture/008/save_picture_600784.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599986.jpg" />
+  <img src="Z:/picture/008/save_picture_599986.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Dr. Jazz & Dirty Bucks Swing Band - 'O Bootleg (2018) [AAC|~329 Kbps] <Jazz, Swi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599853.jpg" />
+  <img src="Z:/picture/008/save_picture_599853.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Dr. Jazz & Dirty Bucks Swing Band - Papa Noel (2018) [AAC|~329 Kbps] <Jazz, Swin
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599852.jpg" />
+  <img src="Z:/picture/008/save_picture_599852.jpg" />
 </div>
 
 
@@ -143,7 +143,7 @@ Dr. Jazz & Dirty Bucks Swing Band - Song' e New Orleans (2021) [AAC|~328 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599848.jpg" />
+  <img src="Z:/picture/008/save_picture_599848.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599642.jpg" />
+  <img src="Z:/picture/008/save_picture_599642.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599334.jpg" />
+  <img src="Z:/picture/008/save_picture_599334.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ VA - Gerausche in Stereo, Vol. 1 (2022) [AAC|~323 Kbps] <House, Tech House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598360.jpg" />
+  <img src="Z:/picture/008/save_picture_598360.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Mohamed Rouane - Reve (2022) [AAC|~217 Kbps] <Organic House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598358.jpg" />
+  <img src="Z:/picture/008/save_picture_598358.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598237.jpg" />
+  <img src="Z:/picture/008/save_picture_598237.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598232.jpg" />
+  <img src="Z:/picture/008/save_picture_598232.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598221.jpg" />
+  <img src="Z:/picture/008/save_picture_598221.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Cosmopolitan Jazz Lounge, Vol.3 (Chillaxing Masterpieces Deluxe) (2022) [AA
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598206.jpg" />
+  <img src="Z:/picture/008/save_picture_598206.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Cosmopolitan Jazz Lounge, Vol.2 (Chillaxing Masterpieces Deluxe) (2022) [AA
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598202.jpg" />
+  <img src="Z:/picture/008/save_picture_598202.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ VA - Cosmopolitan Jazz Lounge, Vol.4 (Chillaxing Masterpieces Deluxe) (2022) [AA
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598189.jpg" />
+  <img src="Z:/picture/008/save_picture_598189.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ VA - Cosmopolitan Jazz Lounge, Vol.1 (Chillaxing Masterpieces Deluxe) (2022) [AA
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598033.jpg" />
+  <img src="Z:/picture/008/save_picture_598033.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598007.jpg" />
+  <img src="Z:/picture/008/save_picture_598007.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597512.jpg" />
+  <img src="Z:/picture/008/save_picture_597512.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597287.jpg" />
+  <img src="Z:/picture/008/save_picture_597287.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596539.jpg" />
+  <img src="Z:/picture/008/save_picture_596539.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596343.jpg" />
+  <img src="Z:/picture/008/save_picture_596343.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596298.jpg" />
+  <img src="Z:/picture/008/save_picture_596298.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596246.jpg" />
+  <img src="Z:/picture/008/save_picture_596246.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596243.jpg" />
+  <img src="Z:/picture/008/save_picture_596243.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596214.jpg" />
+  <img src="Z:/picture/008/save_picture_596214.jpg" />
 </div>
 
 

@@ -1,3 +1,161 @@
+###  Публикация: 1055686   (153648) от 23.12.2016
+
+Мир Наизнанку. Непал / Світ навиворіт с Дмитром Комаровим (2016) HDRip [H.264/1080p-LQ] (Сезон 8, серии 1- 15 из 15)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Непал – самая высокогорная страна на планете, поэтому постоянно страдает от землетрясений. Мир наизнанку покажет, как живет народ, обреченный каждую секунду бороться за свою жизнь и на себе испытает опасности этой страны. Мы отправимся в городок, который больше всего пострадал от страшного землетрясения 2015 года - Хокана. Раньше он считался одной из малоизвестных (   Читать дальше...   )Телекомпания: Украина, 1+1 ProductionЖанр: Документальный, ТелепередачаПеревод: Не требуется (Русский)Продолжительность: 01:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFC29B0E20120CB893DD5B70731B63AC39E633F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 445517   (153635) от 23.12.2016
+
+WiFi File Explorer Pro 1.11.0 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита, которая превращает смартфон в файл-сервер, доступный через беспроводную сеть Wi-Fi.
+С помощью этой программы можно просматривать и скачивать файлы с вашего устройства с других смартфонов и компьютеров.
+Для этого достаточно зайти через обычный браузер на IP, указанный в программе. Должно выполняться только одно условие – оба устройства должны быть подключены (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 23.12.16Разработчик: dooblouПоддерживаемая ОС: Android 2.3 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37B2267B0AEED5F58D64437BED7DF52DE77C3C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086051   (153620) от 23.12.2016
+
+Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Designer SP2 14.0.7177.5000 VL (x86) RePack by SPecialiST v16.12 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2010 — один из лучших наборов офисных приложений для компьютеров, телефонов и браузеров, включающий функции, на которые можно положиться уже сегодня, и возможности, которые могут потребоваться в будущем. Данный набор приложений позволяет уверенно принять вызов сегодняшней экономической ситуации, не упуская из виду факторы, необходимые для достижения (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429A1EE2D6AC4607FAD2FDAA8B7D55143F437EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086055   (153607) от 23.12.2016
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4456.1003 VL (x86) RePack by SPecialiST v16.12 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5905D72A9E020A41A0905A7B1C425073CA79B0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346872   (153502) от 22.12.2019
+
+"Старлайнер" вернется на Землю, не выполнив миссию по стыковке с МКС. Что пошло не так?
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_153502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытательный полет новейшего космического корабля "Старлайнер" фактически потерпел неудачу. Вместо стыковки с МКС, которая была запланирована на субботу, аппарат вернется на Землю - вместе с недоставленным грузом.В течение следующих 48 часов автоматическая спусковая капсула должна совершить посадку в пустыне штата Нью-Мексико. Изначально возвращение было (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517227   (153358) от 20.12.2021
+
+KMS Tools Portable by Ratiborus 14.12.2021 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153358.jpg" />
+</div>
+
+
+###  Подробнее
+
+KMS Tools — сборник программ от Ratiborus в одной оболочке, выбираем нужную и сразу можно пользоваться, никакой установки, все полностью портативно. К каждой программе прилагается описание на русском языке. Если есть вопросы по программе, не знаете зачем она нужна, нажимаем справа на вопросик и видим значки рядом с названиями ПО, нажимаем на них и получаем полную (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB42085160B53DC8F44E41D14F3131FDBB6E617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600586   (153187) от 29.12.2022
 
 Компания SpinQ Technology начала продавать квантовые компьютеры всем желающим
@@ -6,7 +164,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_153187.jpg" />
+  <img src="Z:/picture/005/save_picture_153187.jpg" />
 </div>
 
 
@@ -32,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_153152.jpg" />
+  <img src="Z:/picture/005/save_picture_153152.jpg" />
 </div>
 
 
@@ -58,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153021.jpg" />
 </div>
 
 
@@ -84,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153016.jpg" />
 </div>
 
 
@@ -110,7 +268,7 @@ XaKeR_CD USB Edition Full 13.0/Lite 3.0 (19.12.2018)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152844.jpg" />
 </div>
 
 
@@ -139,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152824.jpg" />
 </div>
 
 
@@ -165,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152668.jpg" />
 </div>
 
 
@@ -191,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152641.jpg" />
 </div>
 
 
@@ -218,7 +376,7 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152599.jpg" />
 </div>
 
 
@@ -244,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152220.jpg" />
 </div>
 
 
@@ -270,7 +428,7 @@ Corona Renderer 7 (Hotfix 1) for 3ds Max 2014-2022 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151853.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151606.jpg" />
 </div>
 
 
@@ -323,7 +481,7 @@ SpaceX запустила новые спутники Starlink для улучш
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151504.jpg" />
 </div>
 
 
@@ -349,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151468.jpg" />
 </div>
 
 
@@ -375,7 +533,7 @@ Cent Browser 5.0.1002.295 Stable + Portable [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151349.jpg" />
 </div>
 
 
@@ -401,7 +559,7 @@ PotPlayer 221215 (1.7.21862) (x64) Stable RePack (& portable) by 7sh3 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151308.jpg" />
 </div>
 
 
@@ -427,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151293.jpg" />
 </div>
 
 
@@ -454,7 +612,7 @@ Kerish Doctor 2022 4.90 (DC 18.12.2022) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151238.jpg" />
 </div>
 
 
@@ -480,7 +638,7 @@ Immortals Fenyx Rising (2020) [Ru/Multi] (1.3.4/dlc) Repack Other s [Gold Editio
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151197.jpg" />
 </div>
 
 
@@ -506,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151178.jpg" />
 </div>
 
 
@@ -517,165 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:710B0561089A014AC1ABB569EAAACC47354259C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194887   (151163) от 27.12.2017
-
-Роскосмос "оцифрует" всю Россию к 2020-му году
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компьютерная модель поверхности нашей планеты, создаваемая в рамках инициированного госкорпорацией "Роскосмос" проекта "Цифровая Земля", к 2020-му году охватит всю территорию России. Об этом рассказал в интервью "Известиям" гендиректор холдинга "Российские космические системы" (РКС) Андрей Тюлин.Пилотными регионами реализации (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195083   (151104) от 27.12.2017
-
-Mozilla Firefox Quantum 57.0.3 Final [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Свободный веб-браузер Mozilla Firefox на движке Gecko, ориентированный на приватность и безопасность в Интернете. В новой версии браузера Mozilla Firefox обновился движок – улучшилось качество отображения сайтов, возросла скорость их загрузки, совместимость со стандартами. Firefox содержит массу крупных и мелких улучшений интерфейса и, как следствие, работать стало (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B6BB77C6D6CB5179C0C12AB05C06784950863C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968519   (151015) от 25.12.2015
-
-НАСА переносит на два года запуск марсианской миссии Mars InSight
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запуск очередной масштабной миссии по изучению Красной Планеты был отложен более чем на два года в связи с дефектами некоторых компонентов основного научного инструмента космического аппарата Mars InSight (Interior Exploration using Seismic Investigations Geodesy and Heat Transport). Изначально запуск миссии планировалось произвести в марте следующего года, однако, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086303   (150936) от 24.12.2016
-
-Расплата / The Accountant (2016) HDRip [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лента расскажет историю математического гения Кристиана Вульфа, который подрабатывает аудитором для самых опасных преступных организаций. Когда ему «на хвост» садится отдел по борьбе с преступностью Министерства финансов во главе с Рэем Кингом Кристиан решает найти себе законопослушного клиента и проводит аудит в компании по производству новейшей робототехники, где (   Читать дальше...   )Производство: США, Warner Bros. Pictures...Жанр: Боевик, триллер, драма, криминалРежиссер: Гэвин О’КоннорАктеры: Бен Аффлек, Анна Кендрик, Дж.К. Симмонс, Джон Бернтал, Джеффри Тэмбор, Синтия Аддай-Робинсон, Джон Литгоу, Джин Смарт, Энди Умбергер, Элисон РайтПеревод: Дублированный (Чистый звук)Субтитры: отсутствуютПродолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E5EADD4EEE93356FA27730B24EF600E1E7FE3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195063   (150933) от 27.12.2017
-
-Андрей Круз | Коммерсант (2018) [FB2]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150933.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй роман цикла «Vamos!» из вселенной «Земля лишних»
-
-Выиграть битву еще не значит одержать победу в войне. Да, отбиться от банды албанцев Александру Баринову, переселенцу на Новую Землю, вполне успешному бизнесмену и по совместительству бойцу невидимого фронта, удалось, но кто сказал, что это гарантирует спокойное существование на всю оставшуюся жизнь, тем более (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F584797E6EC46144A782F738D58A2E052BDD8D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269971   (150931) от 22.12.2018
-
-Операция в Красном море / Hong hai xing dong (2018) BDRip [VO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150931.jpg" />
-</div>
-
-
-###  Подробнее
-
-События происходят в 2015 году, когда разворачивалась гражданская война в Йемене. История рассказывает о том, как китайские солдаты спасали судьбы тысяч.
-Война просто стирает с лица земли все живое, она обесценивает жизни людей, делает их ничем. И вот против такого страшного отношения к людским судьбам восстают герои этой картины. Они не жалеют сил, самих себя, свое (   Читать дальше...   )Производство: Китай / Bona Film Group, P.L.A Navy Government TV Art Central of China, The, Star Dream Studio MediaЖанр: БоевикРежиссер: Данте ЛамАктеры: И Чжан, Джонни Хуан, Хай-Цин, Ду Цзян, Луся Цзян, Санаа Алауи, Инь Фан, Ван Юйтянь, Го Цзяхао, Генри Принц МакПеревод: Одноголосый закадровый, любительский (Переводман)Субтитры: Русские (Forced, отдельным файлом)Продолжительность: 02:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:412F594C49975CE263901332E73EBF23DE32F3A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

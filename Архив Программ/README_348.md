@@ -6,7 +6,7 @@ oCam 500.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874302.jpg" />
+  <img src="Z:/picture/005/save_picture_874302.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Opera 67.0.3575.137 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874297.jpg" />
+  <img src="Z:/picture/005/save_picture_874297.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ The Bat! Professional 9.1.10 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874294.jpg" />
+  <img src="Z:/picture/005/save_picture_874294.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FastStone Image Viewer 6.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874290.jpg" />
+  <img src="Z:/picture/005/save_picture_874290.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4903.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874289.jpg" />
+  <img src="Z:/picture/005/save_picture_874289.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4903.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874285.jpg" />
+  <img src="Z:/picture/005/save_picture_874285.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Advanced SystemCare Pro 10.2.0.721 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874278.jpg" />
+  <img src="Z:/picture/005/save_picture_874278.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Waterfox Current / Classic 2020.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874197.jpg" />
+  <img src="Z:/picture/005/save_picture_874197.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Cent Browser 4.2.9.152 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874196.jpg" />
+  <img src="Z:/picture/005/save_picture_874196.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ OCCT 5.5.6.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874190.jpg" />
+  <img src="Z:/picture/005/save_picture_874190.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ The Bat! Professional 9.1.12 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874125.jpg" />
+  <img src="Z:/picture/008/save_picture_874125.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Visual Studio Code 1.44.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874118.jpg" />
+  <img src="Z:/picture/005/save_picture_874118.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ oCam Screen Recorder 500.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874095.jpg" />
+  <img src="Z:/picture/008/save_picture_874095.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ TreeSize Professional 7.1.5.1471 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874093.jpg" />
+  <img src="Z:/picture/008/save_picture_874093.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ FurMark 1.21.1.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874086.jpg" />
+  <img src="Z:/picture/005/save_picture_874086.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Bandicam 4.5.8.1673 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874020.jpg" />
+  <img src="Z:/picture/008/save_picture_874020.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Mozilla Firefox 46.0 beta 2 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873898.jpg" />
+  <img src="Z:/picture/008/save_picture_873898.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Dropbox 3.16.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873852.jpg" />
+  <img src="Z:/picture/008/save_picture_873852.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ CoolUtils Total Image Converter 5.1.118 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873843.jpg" />
+  <img src="Z:/picture/008/save_picture_873843.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873836.jpg" />
+  <img src="Z:/picture/008/save_picture_873836.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ TheWorld Browser 7.0.0.102 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873774.jpg" />
+  <img src="Z:/picture/008/save_picture_873774.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ CocCoc 54.2.133 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873762.jpg" />
+  <img src="Z:/picture/008/save_picture_873762.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Mp3tag 2.75 Final RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873689.jpg" />
+  <img src="Z:/picture/008/save_picture_873689.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Aiseesoft Total Media Converter 8.1.8 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873685.jpg" />
+  <img src="Z:/picture/008/save_picture_873685.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Mozilla Firefox 45.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873675.jpg" />
+  <img src="Z:/picture/008/save_picture_873675.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ AVG AntiVirus 2016 16.51.7497 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873564.jpg" />
+  <img src="Z:/picture/008/save_picture_873564.jpg" />
 </div>
 
 

@@ -1,3 +1,90 @@
+###  Публикация: 1581281   (326486) от 06.10.2022
+
+Tomb Of Finland - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting for the End [00:04:53]
+02. Coffin Bound [00:05:39]
+03. Perpetual Entombment [00:04:14]
+04. Cursed Be the One [00:05:22](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA51A8B1482EB6F23152244CE7681F0B4F08794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581434   (326485) от 06.10.2022
+
+Krankheit - Gargantua (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gargantua [00:03:14]
+02. Kommunikation [00:03:08]
+03. Bett des Prokrustes [00:02:56]
+04. Des Kaisers neue Kleider [00:03:59](   Читать дальше...   )Жанр: Gothic Industrial MetalПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD94512C3A7932A50B3332404E73193E1840DFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581300   (326482) от 06.10.2022
+
+Rage - Spreading The Plague (2022) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_326482.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. To Live and to Die 04:07
+2. Spreading the Plague 04:27
+3. The King Has Lost His Crown 04:29
+4. A New Land (acoustic version) 03:29(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:26:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1101472088928D4FE188DC861F21EB7F3EF473E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581573   (325592) от 07.10.2022
 
 Obituary - Slowly We Rot - Live & Rotting (2022) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +93,7 @@ Obituary - Slowly We Rot - Live & Rotting (2022) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325592.jpg" />
+  <img src="Z:/picture/008/save_picture_325592.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Obituary - Cause Of Death - Live Infection (2022) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325591.jpg" />
+  <img src="Z:/picture/008/save_picture_325591.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Chaosrising - 5 Relises (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325373.jpg" />
+  <img src="Z:/picture/008/save_picture_325373.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Holocross - Holocross (1988) [FLAC|Lossless|image + .cue] <Thrash, Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324694.jpg" />
+  <img src="Z:/picture/008/save_picture_324694.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Parius - The Signal Heard Throughout Space (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324693.jpg" />
+  <img src="Z:/picture/008/save_picture_324693.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Requiem - Collapse Into Chaos (2021) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324690.jpg" />
+  <img src="Z:/picture/008/save_picture_324690.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Knorkator - Sieg der Vernunft (2022) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsch
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324603.jpg" />
+  <img src="Z:/picture/008/save_picture_324603.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Sleeping Romance - We All Are Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Symp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324600.jpg" />
+  <img src="Z:/picture/008/save_picture_324600.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Queensryche - Digital Noise Alliance (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324594.jpg" />
+  <img src="Z:/picture/008/save_picture_324594.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Woods Of Wonders - Lost (2022) The Metal Opera [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324497.jpg" />
+  <img src="Z:/picture/008/save_picture_324497.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Ginevra - We Belong To The Stars (2022) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324494.jpg" />
+  <img src="Z:/picture/008/save_picture_324494.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Arturius - Arturius (2017) [FLAC|Lossless|image + .cue] <Symphonic Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323822.jpg" />
+  <img src="Z:/picture/008/save_picture_323822.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Savage Messiah - Hands of Fate (2017) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323740.jpg" />
+  <img src="Z:/picture/008/save_picture_323740.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Enslaved - E (2017) [FLAC|Lossless|image + .cue] <Progressive Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323727.jpg" />
+  <img src="Z:/picture/008/save_picture_323727.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Serenity - Lionheart (2017) Japanese Limited Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323723.jpg" />
+  <img src="Z:/picture/008/save_picture_323723.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Cannibal Corpse - Red Before Black (2017) Limited Edition [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323621.jpg" />
+  <img src="Z:/picture/008/save_picture_323621.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Armed For Apocalypse - Ritual Violence (2022) [FLAC|Lossless|WEB-DL|tracks] <Slu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323598.jpg" />
+  <img src="Z:/picture/008/save_picture_323598.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Sky Pig - It Thrives in Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323586.jpg" />
+  <img src="Z:/picture/008/save_picture_323586.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Never Back Down - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323584.jpg" />
+  <img src="Z:/picture/008/save_picture_323584.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Sundrifter - Visitations (2018) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Psyc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323545.jpg" />
+  <img src="Z:/picture/008/save_picture_323545.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ The Ocean - Phanerozoic I: Palaeozoic (2018) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323537.jpg" />
+  <img src="Z:/picture/008/save_picture_323537.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Neroargento - Land Of Silence (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323490.jpg" />
+  <img src="Z:/picture/008/save_picture_323490.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Edenbridge - Shangri-La (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323489.jpg" />
+  <img src="Z:/picture/008/save_picture_323489.jpg" />
 </div>
 
 
@@ -658,90 +745,6 @@ Edenbridge - Shangri-La (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C1AB15E3290670042E055849240DC9D724A9A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582286   (323358) от 09.10.2022
-
-Lost Society - If The Sky Came (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 112 (03:49)
-02. What Have I Done (04:02)
-03. (We Are The) Braindead (03:39)
-04. Stitches (03:29)(   Читать дальше...   )Жанр: Metalcore, Nu-MetalПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3078290E1E8579DFC1954548D2073C3DC933B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582410   (323344) от 09.10.2022
-
-Lacrimosa - Abendlied (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsche Todeskunst>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Abendlied (Single)Жанр: Neue Deutsche TodeskunstПродолжительность: 00:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A2E8390A761C906FD2145D8F92D020C71ABE53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582428   (323169) от 09.10.2022
-
-Iron Maiden - Live …New York 1982 (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murders In The Rue Morgue
-02. Wrathchild
-03. Run To The Hills
-04. Children Of The Damned(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FD63B5C004CF21AECF699B499B60F7E5C1C0A15
 ```
 
 https://mybot314.ru/tekegram_catalog/

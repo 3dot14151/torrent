@@ -1,3 +1,81 @@
+###  Публикация: 1382133   (820755) от 10.05.2020
+
+Иван Погонин | Бриллианты шталмейстера [сборник] (2020) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820755.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли два романа Ивана Погонина, главный герой которых – сыщик Мечислав Кунцевич – из небольшого криминального эпизода выходит на крупные дела. «Бриллианты шталмейстера» – о похищении драгоценностей и убийстве отпрыска высокопоставленного царедворца. «Белое золото» – о махинациях торговцев сахаром. Ретродетективы Погонина, как всегда, отличаются пристальным (   Читать дальше...   )Жанр: Исторические детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FB1F4B84A3CDDF4C33F88FC6997E089A9929F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196773   (820615) от 04.01.2018
+
+Лука Д'Андреа | Сущность зла (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820615.jpg" />
+</div>
+
+
+###  Подробнее
+
+После аварии, произошедшей на съемках, документалист Джереми Сэлинджер жестоко страдает от депрессии. Чтобы побыть вдали от всего и от всех, он со своей семьей едет на родину жены, в Южный Тироль, тихий уголок чудесной альпийской природы. Во время прогулки с дочерью по заповедному ущелью Блеттербах, знаменитому своими окаменелыми ископаемыми монстрами, Джереми случайно (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C102D492F5B99CC793F0CB59FCEF50B5A326C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382554   (818986) от 11.05.2020
+
+Николай Леонов, Алексей Макеев | Убит по собственному желанию (2020) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_818986.jpg" />
+</div>
+
+
+###  Подробнее
+
+В крупном областном центре совершена серия убийств. В числе погибших два предпринимателя, прокурор и журналист. Полковники МВД Гуров и Крячко выявляют людей, которые пересекались с потерпевшими. Подозрение падает на одного из них, бывшего боксера, а ныне таксиста. Оперативники устанавливают за ним наблюдение. Но боксер, почувствовав слежку, пытается бежать. Гуров (   Читать дальше...   )Жанр: Полицейские детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1B5A07A237A877967D496796366A4598296AA34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117424   (818936) от 22.03.2017
 
 Рональд Нокс | Следы на мосту. Тело в силосной башне [сборник] (2017) [FB2]
@@ -6,7 +84,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818936.jpg" />
+  <img src="Z:/picture/008/save_picture_818936.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818935.jpg" />
+  <img src="Z:/picture/008/save_picture_818935.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818790.jpg" />
+  <img src="Z:/picture/008/save_picture_818790.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818789.jpg" />
+  <img src="Z:/picture/008/save_picture_818789.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817738.jpg" />
+  <img src="Z:/picture/008/save_picture_817738.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817572.jpg" />
+  <img src="Z:/picture/008/save_picture_817572.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816799.jpg" />
+  <img src="Z:/picture/008/save_picture_816799.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816778.jpg" />
+  <img src="Z:/picture/008/save_picture_816778.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816074.jpg" />
+  <img src="Z:/picture/008/save_picture_816074.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815806.jpg" />
+  <img src="Z:/picture/008/save_picture_815806.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815555.jpg" />
+  <img src="Z:/picture/008/save_picture_815555.jpg" />
 </div>
 
 
@@ -301,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815517.jpg" />
+  <img src="Z:/picture/008/save_picture_815517.jpg" />
 </div>
 
 
@@ -327,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815503.jpg" />
+  <img src="Z:/picture/008/save_picture_815503.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815498.jpg" />
+  <img src="Z:/picture/008/save_picture_815498.jpg" />
 </div>
 
 
@@ -379,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815496.jpg" />
+  <img src="Z:/picture/008/save_picture_815496.jpg" />
 </div>
 
 
@@ -407,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815421.jpg" />
+  <img src="Z:/picture/008/save_picture_815421.jpg" />
 </div>
 
 
@@ -435,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812057.jpg" />
+  <img src="Z:/picture/008/save_picture_812057.jpg" />
 </div>
 
 
@@ -463,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811886.jpg" />
+  <img src="Z:/picture/008/save_picture_811886.jpg" />
 </div>
 
 
@@ -492,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811875.jpg" />
+  <img src="Z:/picture/008/save_picture_811875.jpg" />
 </div>
 
 
@@ -518,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811801.jpg" />
+  <img src="Z:/picture/008/save_picture_811801.jpg" />
 </div>
 
 
@@ -546,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811580.jpg" />
+  <img src="Z:/picture/008/save_picture_811580.jpg" />
 </div>
 
 
@@ -574,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811077.jpg" />
+  <img src="Z:/picture/008/save_picture_811077.jpg" />
 </div>
 
 
@@ -600,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809910.jpg" />
+  <img src="Z:/picture/008/save_picture_809910.jpg" />
 </div>
 
 
@@ -613,88 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5B73610825B0BBD0CC65D2A59467FE282FBC7B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009454   (809782) от 21.04.2016
-
-Джон Кризи | Инспектор Вест (1997) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четыре романа из цикла об инспекторе Весте.
-Джон Кризи (1908 - 1973) - один из выдающихся английских мастеров детектива, автор более 600 книг. Один из главных героев Кризи - инспектор Вест - присутствует во многих произведениях писателя. Динамичные, подчас непредсказуемые сюжеты романов, вошедших всборник, будут интересны широкому кругу читателей.Жанр: ДетективПеревод: О. ЮрьеваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0FDA558E02EAF313386B619DAA7B2DD85D664A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009362   (809774) от 21.04.2016
-
-Марина Крамер | Судьбу не изменить, или Дамы выбирают кавалеров (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добропорядочная англичанка Мериэнн Силва, в недалеком прошлом – глава крупной криминальной группировки уральского города Марина Коваль по кличке Наковальня, которая считается погибшей, узнает, что ее сводный брат, бывший генерал милиции Дмитрий стал кандидатом на пост мэра в родном городе. Вместе с мужем Женей Хохлом (Джеком Силвой) она решает разобраться, с какой (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD92F64963744AAA50E187EE213BC16A0D7E7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504756   (809738) от 24.10.2021
-
-Котаро Исака | Поезд убийц (2021) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809738.jpg" />
-</div>
-
-
-###  Подробнее
-
-НАЦИОНАЛЬНЫЙ БЕСТСЕЛЛЕР ЯПОНИИ
-ПРОДАНО ОКОЛО 1 000 000 КНИГ
-ОЖИДАЕТСЯ ГРАНДИОЗНАЯ КИНОПРЕМЬЕРА
-ФИЛЬМ ДЭВИДА ЛИТЧА(   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABA3E5016BCB2A66D57821CC8B9F4C5E498914F
 ```
 
 https://mybot314.ru/tekegram_catalog/

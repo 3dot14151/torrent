@@ -6,7 +6,7 @@ AutoHideMouseCursor 2.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868509.jpg" />
+  <img src="Z:/picture/008/save_picture_868509.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Curio 10.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868504.jpg" />
+  <img src="Z:/picture/008/save_picture_868504.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ VA - A State Of Trance Radio Top 20 March / April (2016) [MP3|320 кб/с] <Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868500.jpg" />
+  <img src="Z:/picture/008/save_picture_868500.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ qBittorrent 4.2.3 Dark (x64) Repack by SuratovVlad [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868473.jpg" />
+  <img src="Z:/picture/008/save_picture_868473.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Brett - Mode (2016) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Indietronic>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868448.jpg" />
+  <img src="Z:/picture/008/save_picture_868448.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Chris Liebing - AM.FM 001 - 053 (2015-2016) [MP3|320 кб/с] <Techno, Tech-Hous
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868443.jpg" />
+  <img src="Z:/picture/008/save_picture_868443.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868408.jpg" />
+  <img src="Z:/picture/008/save_picture_868408.jpg" />
 </div>
 
 
@@ -201,7 +201,7 @@ VA - Precision Selection Vol 1 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868407.jpg" />
+  <img src="Z:/picture/008/save_picture_868407.jpg" />
 </div>
 
 
@@ -230,7 +230,7 @@ MeinPlatz 4.88 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868402.jpg" />
+  <img src="Z:/picture/008/save_picture_868402.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ DomainHostingView 1.72 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868400.jpg" />
+  <img src="Z:/picture/008/save_picture_868400.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868393.jpg" />
+  <img src="Z:/picture/008/save_picture_868393.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ IsMyHdOK 1.22 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868392.jpg" />
+  <img src="Z:/picture/008/save_picture_868392.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ BrowsingHistoryView 1.85 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868390.jpg" />
+  <img src="Z:/picture/008/save_picture_868390.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ VA - House Vip (30.03.10) [MP3|320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868370.jpg" />
+  <img src="Z:/picture/008/save_picture_868370.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ qBittorrent 3.1.12 Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868361.jpg" />
+  <img src="Z:/picture/008/save_picture_868361.jpg" />
 </div>
 
 
@@ -421,7 +421,7 @@ Permute 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868345.jpg" />
+  <img src="Z:/picture/008/save_picture_868345.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ File Cabinet Pro 3.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868336.jpg" />
+  <img src="Z:/picture/008/save_picture_868336.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ UninstallPKG 1.0.24 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868333.jpg" />
+  <img src="Z:/picture/008/save_picture_868333.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868327.jpg" />
+  <img src="Z:/picture/008/save_picture_868327.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ PointerStick 2.72 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868323.jpg" />
+  <img src="Z:/picture/008/save_picture_868323.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ FontViewOK 4.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868318.jpg" />
+  <img src="Z:/picture/008/save_picture_868318.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Queen - Sheer Heart Attack (1974) [WavPack 2.0|192/32|image+cue|Vinyl-Rip] <Rock
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868316.jpg" />
+  <img src="Z:/picture/008/save_picture_868316.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ BrowserAddonsView 1.00 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868311.jpg" />
+  <img src="Z:/picture/008/save_picture_868311.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868280.jpg" />
+  <img src="Z:/picture/008/save_picture_868280.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Permute 3 v3.6.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868265.jpg" />
+  <img src="Z:/picture/008/save_picture_868265.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ Viper FTP 5.8.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868264.jpg" />
+  <img src="Z:/picture/008/save_picture_868264.jpg" />
 </div>
 
 

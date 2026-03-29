@@ -1,3 +1,81 @@
+###  Публикация: 1214045   (765672) от 20.03.2018
+
+Кэролайн Уилльямс | Мой продуктивный мозг. Как я проверила на себе лучшие методики саморазвития и что из этого вышло (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765672.jpg" />
+</div>
+
+
+###  Подробнее
+
+В очередной раз, опоздав на встречу в новом кафе, вы шутите, что страдаете географическим кретинизмом? Связки ключей разложены по всем сумкам и курткам, но вы их все равно не можете найти, когда нужно? Постоянно забываете, когда день рождения у свекрови и годовщина вашей свадьбы? Не отчаивайтесь, это лечится! Кэролайн Уилльямс, журналист и редактор, взяла на себя (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12556ED079693CD5D8F89B163913805FE5BE1391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214250   (765670) от 20.03.2018
+
+Кен Моги | Икигай. Смысл жизни по-японски (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Икигай – японская философия, которая помогает находить удовлетворение, радость и осознанность во всех делах каждый день и способствует долголетию (японские мужчины по продолжительности жизни занимают 4-е место в мире, а японские женщины – 2-е). Благодаря икигай человек учится приводить в порядок мысли, замечать красоту окружающего мира и радоваться мелочам, обретает (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3358C9091F963A829594687FD31621A9F4C2C903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214085   (765667) от 20.03.2018
+
+Такаси Цукияма | Как забыть все забывать. 15 простых привычек, чтобы не искать ключи по всей квартире (2018) [FB2, EPUB, PDF, RTF, TXT]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_765667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если в последнее время вы чувствуете, что иногда мозг дает сбои, вы плохо запоминаете новую информацию, с трудом сосредотачиваетесь, никак не можете вспомнить, куда положили телефон или ключи, обязательно прочитайте эту книгу. Она нужна всем, кто живет в мире информационного шторма, работает в условиях многозадачности, всегда в делах и забывает о себе. Японский нейробиолог (   Читать дальше...   )Жанр: Зарубежная психология, Личная эффективность, Практическая психология, Саморазвитие / личностный ростФормат: FB2, FB3, EPUB, EPUB (iOS), PDF (A4), PDF (A6), RTF, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF264310143BF192CD4474429A3B8AC8BE52008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394081   (765354) от 03.07.2020
 
 Лора Лэйн, Эллен Хоун | Золушка и стеклянный потолок и другие феминистские сказки (2020) [EPUB]
@@ -6,7 +84,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765354.jpg" />
+  <img src="Z:/picture/008/save_picture_765354.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765245.jpg" />
+  <img src="Z:/picture/008/save_picture_765245.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764789.jpg" />
+  <img src="Z:/picture/008/save_picture_764789.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764510.jpg" />
+  <img src="Z:/picture/008/save_picture_764510.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764359.jpg" />
+  <img src="Z:/picture/008/save_picture_764359.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764289.jpg" />
+  <img src="Z:/picture/008/save_picture_764289.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764243.jpg" />
+  <img src="Z:/picture/008/save_picture_764243.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763529.jpg" />
+  <img src="Z:/picture/008/save_picture_763529.jpg" />
 </div>
 
 
@@ -222,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763427.jpg" />
+  <img src="Z:/picture/008/save_picture_763427.jpg" />
 </div>
 
 
@@ -249,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763347.jpg" />
+  <img src="Z:/picture/008/save_picture_763347.jpg" />
 </div>
 
 
@@ -278,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763314.jpg" />
+  <img src="Z:/picture/008/save_picture_763314.jpg" />
 </div>
 
 
@@ -307,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763310.jpg" />
+  <img src="Z:/picture/008/save_picture_763310.jpg" />
 </div>
 
 
@@ -336,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762558.jpg" />
+  <img src="Z:/picture/008/save_picture_762558.jpg" />
 </div>
 
 
@@ -362,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762418.jpg" />
+  <img src="Z:/picture/008/save_picture_762418.jpg" />
 </div>
 
 
@@ -388,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761872.jpg" />
+  <img src="Z:/picture/008/save_picture_761872.jpg" />
 </div>
 
 
@@ -417,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761729.jpg" />
+  <img src="Z:/picture/008/save_picture_761729.jpg" />
 </div>
 
 
@@ -445,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761504.jpg" />
+  <img src="Z:/picture/008/save_picture_761504.jpg" />
 </div>
 
 
@@ -471,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761056.jpg" />
+  <img src="Z:/picture/008/save_picture_761056.jpg" />
 </div>
 
 
@@ -497,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760446.jpg" />
+  <img src="Z:/picture/008/save_picture_760446.jpg" />
 </div>
 
 
@@ -523,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760059.jpg" />
+  <img src="Z:/picture/008/save_picture_760059.jpg" />
 </div>
 
 
@@ -551,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760051.jpg" />
+  <img src="Z:/picture/008/save_picture_760051.jpg" />
 </div>
 
 
@@ -577,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759927.jpg" />
+  <img src="Z:/picture/008/save_picture_759927.jpg" />
 </div>
 
 
@@ -605,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759918.jpg" />
+  <img src="Z:/picture/008/save_picture_759918.jpg" />
 </div>
 
 
@@ -616,89 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6A126785D51EE458F75F0DA625AC411F6B468C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215282   (759544) от 25.03.2018
-
-Леонид Улановский | Девять выходов из безвыходного положения. Дневник психолога (2018) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами книга-дневник. В ней нет художественного вымысла. Это запись бесед психолога со своей посетительницей. Автор — практический психолог с более чем пятнадцатилетним стажем работы. Ценность материала в том, что все рекомендации конкретны и направлены на саморазвитие личности посетительницы.
-
-Поэтому каждый читатель найдёт здесь что-то необходимое лично ему (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:869726812635A73ADE7610D25BCF67086E55E9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 887652   (758992) от 12.04.2015
-
-Ольга Быкова | Свобода от страха. Признай и победи! (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758992.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге перечислены основные страхи, которые может переживать человек на протяжении всей своей жизни. Страх смерти, неудачи, отвержения, общественного мнения, нищеты, старости, потери любви, одиночества, успеха. Человек, находящийся в плену у таких страхов, не может достигнуть в жизни успеха и реализовать свой потенциал. В книге даны практические рекомендации, как победить страх.Жанр: ПсихологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54EB0873C6622CE9818BC6B705F4AD521D653AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280479   (758355) от 04.02.2019
-
-Ника Набокова | Исповедь бывшей любовницы. От неправильной любви – к настоящей (2017) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Возрастное ограничение: 18+
-
-Когда жизнь преподносит нам «сюрприз» в виде болезненных, невыносимых, запутанных ситуаций, мы впадаем в ступор. И тогда у нас появляется выбор: жаловаться и страдать или обернуть все происходящее в свою пользу.
-История, которой Ника Набокова делится с читателями, – про второй вариант. Эта книга – простой, доступный, понятный рассказ (   Читать дальше...   )Жанр: Практическая психология, Семейная психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711F189AE2ACD415925AA4FDF36FD9C0A624BFC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

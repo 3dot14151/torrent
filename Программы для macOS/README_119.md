@@ -1,3 +1,136 @@
+###  Публикация: 1193458   (262092) от 21.12.2017
+
+CalcTape Paper Tape Calculator 1.4.0 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вычислять. Комментировать. Исправлять.
+CalcTape это новый революционный вид калькулятора. С CalcTape остаются даже обширные расчеты обозримыми и структурированными. CalcTape делает арифметические операции очевидными - Вы можете создавать промежуточные результаты, исправлять или изменять все числа и действия.
+
+Даже при длинном списке вычислений, у вас из виду не потеряется (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.12.2017Разработчик: schoettler Software GmbHПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66150CEB607C12045EE66E2C7CA489D6FA1D20F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193442   (262063) от 21.12.2017
+
+Day One 2.5.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запечатлейте жизнь так, как вы ее проживаете. Элегантный интерфейс Day One делает ведение дневника о вашей жизни, от исключительных событий до повседневных моментов, истинным удовольствием. Day One — один из самых простых и удобных ежедневников с детально продуманным интерфейсом, который может использоваться для резервного копирования и синхронизации с iPhone/iPad.Тип издания: macOS SoftwareРелиз состоялся: 19.12.2017Разработчик: Bloom Built, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46AB7BF30543AED517FA35504FC9203A2FF8C635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193426   (262045) от 21.12.2017
+
+Complete Anatomy 2018 + Courses 3.3.0 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_262045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Complete Anatomy - подробнейший атлас анатомии человеческого тела, в который включены детальные иллюстрации, 3D-модели и описания практически всех органов и систем. Идеальный справочник для студентов медицинских ВУЗов и врачей. Студенты-медики, медицинские работники и на протяжении всей жизни будут взаимодействовать с более чем 6200 высокой разрешающей способностью (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2017Разработчик: 3D4Medical.com, LLCПоддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F9951309E57CC3AD2E9677096A8CEFBA77D60E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194035   (261738) от 23.12.2017
+
+Disk Space Analyzer 2.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Space Analyzer (ранее Disk Inspector) - приложение просканирует жесткий диск и сформирует наглядную диаграмму использования файловой системы. Приложение предназначено тем, кто следит за использованием дискокого пространста или например, ограничен пространством SSD диска. Вы можете управлять уже отсканированными файлами, даже не дожидаясь окончания процесса сканирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2017Разработчик: NektonyПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B4A8FAA7078AF170BBB255496661D1CF4F8983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837528   (257719) от 18.11.2025
+
+4K Video Downloader + 25.4.2.0258 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_257719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2025Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS (12+)Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744A924F959952DE2BE29D339DF24FE6D7F3A1A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837393   (256691) от 16.11.2025
 
 Autodesk AutoCAD 2026 for Mac W.119.M.325 [En]
@@ -6,7 +139,7 @@ Autodesk AutoCAD 2026 for Mac W.119.M.325 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256691.jpg" />
+  <img src="Z:/picture/005/save_picture_256691.jpg" />
 </div>
 
 
@@ -34,7 +167,7 @@ Screen Recorder HD Pro 3.1.6 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255546.jpg" />
+  <img src="Z:/picture/005/save_picture_255546.jpg" />
 </div>
 
 
@@ -63,7 +196,7 @@ NCH Switch Plus 11.09 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255511.jpg" />
+  <img src="Z:/picture/005/save_picture_255511.jpg" />
 </div>
 
 
@@ -90,7 +223,7 @@ Autodesk Maya 2024 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255145.jpg" />
+  <img src="Z:/picture/005/save_picture_255145.jpg" />
 </div>
 
 
@@ -116,7 +249,7 @@ Picture Instruments Preset Converter Pro 1.1.2 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254843.jpg" />
+  <img src="Z:/picture/005/save_picture_254843.jpg" />
 </div>
 
 
@@ -142,7 +275,7 @@ SyncTime 4.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254805.jpg" />
+  <img src="Z:/picture/005/save_picture_254805.jpg" />
 </div>
 
 
@@ -168,7 +301,7 @@ Adobe Illustrator 2026 30.0.0 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252417.jpg" />
+  <img src="Z:/picture/005/save_picture_252417.jpg" />
 </div>
 
 
@@ -197,7 +330,7 @@ Vectorworks 2025 Update 7 (Build 828783) [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251813.jpg" />
+  <img src="Z:/picture/005/save_picture_251813.jpg" />
 </div>
 
 
@@ -225,7 +358,7 @@ HD Video Converter Movavi 22.1.1 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250086.jpg" />
+  <img src="Z:/picture/004/save_picture_250086.jpg" />
 </div>
 
 
@@ -251,7 +384,7 @@ IP Scanner Pro 4.06 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249661.jpg" />
+  <img src="Z:/picture/004/save_picture_249661.jpg" />
 </div>
 
 
@@ -278,7 +411,7 @@ Nikon Camera Control Pro 2.34.2 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249627.jpg" />
+  <img src="Z:/picture/004/save_picture_249627.jpg" />
 </div>
 
 
@@ -304,7 +437,7 @@ Microsoft NTFS for Mac by Tuxera 2023.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249045.jpg" />
+  <img src="Z:/picture/004/save_picture_249045.jpg" />
 </div>
 
 
@@ -330,7 +463,7 @@ OnOne Perfect Photo Suite 6.1 [Eng]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248643.jpg" />
+  <img src="Z:/picture/005/save_picture_248643.jpg" />
 </div>
 
 
@@ -357,7 +490,7 @@ Adobe InDesign 2023 18.3 U2B [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247407.jpg" />
+  <img src="Z:/picture/004/save_picture_247407.jpg" />
 </div>
 
 
@@ -383,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246153.jpg" />
 </div>
 
 
@@ -409,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246151.jpg" />
 </div>
 
 
@@ -435,7 +568,7 @@ iFastZip - Extract RAR & ZIP & 7Z 9.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_246105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_246105.jpg" />
 </div>
 
 
@@ -461,7 +594,7 @@ Bigasoft QuickTime Converter for Mac 5.7.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246045.jpg" />
+  <img src="Z:/picture/004/save_picture_246045.jpg" />
 </div>
 
 
@@ -488,7 +621,7 @@ MediaHuman Video Converter азк Mac 2.0.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246011.jpg" />
+  <img src="Z:/picture/004/save_picture_246011.jpg" />
 </div>
 
 
@@ -514,7 +647,7 @@ SizeMyPics 1.7.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245951.jpg" />
+  <img src="Z:/picture/004/save_picture_245951.jpg" />
 </div>
 
 
@@ -540,7 +673,7 @@ Living Earth - Weather & Clock 1.29 fix [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245928.jpg" />
+  <img src="Z:/picture/004/save_picture_245928.jpg" />
 </div>
 
 
@@ -551,137 +684,6 @@ Radiantlabs представляет лучшие и самые красивые
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE8583C4152BB6C5C24AD9EB6AD8738177088CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608167   (245926) от 29.01.2023
-
-PowerPhotos 2.1.6 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245926.jpg" />
-</div>
-
-
-###  Подробнее
-
-PowerPhotos - позволяет разбить ваши изображения в приложении Фото, среди нескольких библиотек фотографий, вместо того, чтобы хранить все в одной гигантской библиотеке. Вы можете легко переключаться между библиотеками, или просто просматривать фотографии в вашей библиотеке непосредственно из PowerPhotos, без необходимости открывать каждую библиотеку.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2023Разработчик: Fat Cat SoftwareПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D9F1DFDBF906D0B43A37CAF5842E24A07818967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623593   (245889) от 02.04.2023
-
-TurnTable 4.1 [En]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый музыкальный плеер. Обзор и воспроизведение вашей музыкальной коллекции в новом виде музыкального интерфейса. Играйте в жизнь самым убедительным образом.
-Смотрите полноразмерные и «полноцветные» обложки альбомов, созданные как настоящий альбом, но для цифрового носителя.  В программном обеспечении никогда не было ничего подобного.Тип издания: OS X SoftwareРелиз состоялся: 02.04.2023Разработчик: © 2014-2021 Aquarius ComputerПоддерживаемая ОС: OS X 11.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162A8176CC7F78C62AA564BF0D791B2AC40E7DB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448577   (245837) от 18.02.2021
-
-Fontography - Text on Picture‪s‬ 2.0 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245837.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью Fontography - Text on Picture‪s‬ добавьте великолепный и вдохновляющий текст к своим фотографиям.Тип издания: macOS SoftwareРелиз состоялся: 12.0.4.2018Разработчик: Appgrammers LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51B4B78E8B96DBB7C7777D1EC3E8C27F359B1198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608078   (245824) от 29.01.2023
-
-Mac Backup Guru 6.9.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mac Backup Guru позволяет копировать и вставлять загрузочный том в Finder или создавать добавочные снимки. Это единственное простое в использовании программное обеспечение, позволяющее копировать и вставлять что угодно — даже загрузочный том — с помощью контекстного меню в Finder.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2022Разработчик: © 2023 macdaddyПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12A507428246C6B41A7E230096DD9F84D9630F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448567   (245805) от 18.02.2021
-
-Convertos 2.0 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Convertos - потрясающий конвертер величин.Тип издания: macOS SoftwareРелиз состоялся: 09.11.2020Разработчик: Vitaly Kuz'menkoПоддерживаемая ОС: macOS 10.12.2+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B495A6641F8131D52219E3BAD93C2E8C6DE160
 ```
 
 https://mybot314.ru/tekegram_catalog/

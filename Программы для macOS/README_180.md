@@ -1,3 +1,133 @@
+###  Публикация: 1704446   (114428) от 04.03.2024
+
+Tenorshare 4uKey - Password Manager 1.6.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114428.jpg" />
+</div>
+
+
+###  Подробнее
+
+4uKey -Password Manager упрощает поиск, восстановление, просмотр, экспорт и управление всеми вашими паролями на iPhone и iPad. Восстанавливает сохраненные пароли для входа на веб-сайт (например, недавно сбросили пароль для Twitter и забыли) или приложение Skype, WhatsApp, Youtube и т.д. Программа автоматически обнаружит ваше устройство и отобразит информацию об устройстве. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.18Разработчик: TenorshareПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E71B9FBF0B00AF0D512DD8F89DFDDA69BB57C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704415   (114421) от 04.03.2024
+
+Paste 4 for Mac 4.2.1 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшая утилита, которая незаметно работает в фоном режиме системы и следит за историей буфера обмена, и готово в любой момент предоставить на выбор нужный фрагмент из истории копирования. Таким образом, упрощая работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.02.2024Разработчик: © 2015-2024 Paste TeamПоддерживаемая ОС: macOS 12.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:150956839ADCD42AAE4098F981A446FF61026EF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704475   (114349) от 04.03.2024
+
+Aiseesoft Audio Converter for Mac 9.2.22 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft Audio Converter for Mac Конвертер аудио файлов, поддерживающий практически все распространенные форматы файлов, включая AAC, AC3, AIFF, AU, FLAC, MP3, M4A, OGG, WAV, WMA и т.д. Так же эта программа позволяет извлекать аудио-дорожки из видео-файлов в формате MPEG, MOV, MP4, M4V, RM, WMV, ASF, MKV, TS, MPV, AVI, 3GP, FLV и т.д. Помимо конвертирования аудио (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.01.2024Разработчик: © 2024 Aiseesoft StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF21D13DA1C0345E2BF0286E9CA817D3758268A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704419   (114341) от 04.03.2024
+
+Dropover Pro for Mac 4.13.2 [Multi]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropover - это утилита, облегчающая управление и перемещение содержимого между папками, приложениями, окнами и рабочими пространствами с помощью Drag and Drop. Подвигайте курсор, чтобы загрузить утилиту и перетащите все, что перетаскиваете в полку. Эта полка плавает поверх всех остальных окон, что позволяет без труда перейти к целевой папке или программе. Это работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.02.2024Разработчик: © 2024 Damir TursunovicПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12349F7E9DA96013485A814811270FA16E9F1875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704470   (114337) от 04.03.2024
+
+djay - DJ App & AI Mixer 5.1.3 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114337.jpg" />
+</div>
+
+
+###  Подробнее
+
+djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.04.2024Разработчик: © 2024 algoriddim GmbHПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F01E11ADC81229E1627DC373C425EFBD764E51B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704365   (114331) от 04.03.2024
 
 Reader for Mac 5.8 [En]
@@ -6,7 +136,7 @@ Reader for Mac 5.8 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114331.jpg" />
 </div>
 
 
@@ -33,7 +163,7 @@ Data Extractor 1.9.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114330.jpg" />
 </div>
 
 
@@ -60,7 +190,7 @@ TunesKit AceMovi Video Editor 4.9.23 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114325.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ MetaRename for Mac 1.0.10 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114313.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ SnapMotion Unlimited for Mac 5.2.1. [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114303.jpg" />
 </div>
 
 
@@ -141,7 +271,7 @@ GroupsPro 5.5.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114284.jpg" />
 </div>
 
 
@@ -168,7 +298,7 @@ Easy Data Transform for Mac 1.46.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114181.jpg" />
 </div>
 
 
@@ -194,7 +324,7 @@ MarginNote 3 Pro v.3.7.25 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114161.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114161.jpg" />
 </div>
 
 
@@ -221,7 +351,7 @@ iReal Pro 2024.2 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114157.jpg" />
 </div>
 
 
@@ -247,7 +377,7 @@ DxO FilmPack 7 for Mac v.7.5.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114150.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114150.jpg" />
 </div>
 
 
@@ -273,7 +403,7 @@ Menuwhere 2.2.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114138.jpg" />
 </div>
 
 
@@ -299,7 +429,7 @@ AList Desktop for Mac ARM 3.32.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114135.jpg" />
 </div>
 
 
@@ -325,7 +455,7 @@ DxO ViewPoint 4 for Mac v.4.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114122.jpg" />
 </div>
 
 
@@ -352,7 +482,7 @@ AList Desktop for Mac iNTEL 3.32.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114117.jpg" />
 </div>
 
 
@@ -378,7 +508,7 @@ App Cleaner & Uninstaller Pro 8.2.7 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114066.jpg" />
 </div>
 
 
@@ -406,7 +536,7 @@ DxO PhotoLab 6 ELITE Edition 6.15.0 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114043.jpg" />
 </div>
 
 
@@ -433,7 +563,7 @@ Boinx FotoMagico Pro 6 v.6.5.7 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114025.jpg" />
 </div>
 
 
@@ -460,7 +590,7 @@ A Better Finder Attributes 7 v.7.31 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114005.jpg" />
 </div>
 
 
@@ -486,7 +616,7 @@ Nova 11.9 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113996.jpg" />
 </div>
 
 
@@ -513,7 +643,7 @@ SimpleMind − Mind Mapping 2.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113991.jpg" />
 </div>
 
 
@@ -540,7 +670,7 @@ Navicat for SQL Server on Mac 16.3.7 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113986.jpg" />
 </div>
 
 
@@ -551,138 +681,6 @@ Navicat для SQL Server предоставляет вам полностью �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57617B01C8C8EBDF88A892CFC862E48BB456038D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705045   (113983) от 07.03.2024
-
-One Switch 1.34.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113983.jpg" />
-</div>
-
-
-###  Подробнее
-
-One Switch - это крошечное приложение, разработанное для повышения вашей эффективности благодаря быстрому доступу к нескольким важным коммутаторам. Его можно открыть в строке меню, и он позволяет переключать определенные функции системы всего парой кликов.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2023 FireballПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D1E242D0C23F99C2330692CCDFA7A188C69FECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705040   (113978) от 07.03.2024
-
-NextChat for Mac 2.11.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113978.jpg" />
-</div>
-
-
-###  Подробнее
-
-NextChat (также известный как ChatGPT-Next-Web или сокращенно NextChat) — это приложение, которое позволяет пользователям взаимодействовать с GPT. Несмотря на то, что на рынке существует множество приложений типа GPT, таких как официальный GPT OpenAI (включая версию Plus), LobeChat, ChuanhuChatGPT,chatgpt-web-midjourney-proxy, ChatBox, gpt_academic, ChatGPT-Web и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2024 GitHub, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10856EE1CE6B235C343E51FD94CF83B31EE5768D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705151   (113976) от 07.03.2024
-
-Calendar 366 II 2.15.3 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Посмотреть, добавлять, редактировать и удалять свои мероприятия легко. Создать и выполнить ваши напоминания с помощью всего одного клика. Calendar 366 Plus предоставит вам легкий доступ ко всем календарей, а также сделает более легким управление событиями и напоминаниями.
-Нажмите на иконку и получите обзор ваших событий. Нажмите на дату и посмотрите детали или переключитесь (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.03.2024Разработчик: © 2017-2024 n.spektorПоддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03109C1E7D6162EF2E00DB7184BB87F2215C5DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705149   (113968) от 07.03.2024
-
-AutoCrypt 2.5.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113968.jpg" />
-</div>
-
-
-###  Подробнее
-
-AutoCrypt - это приложение для шифрования / дешифрования с подходом на основе документов, которое может обрабатывать большое количество файлов в пакетном режиме.
-Оно позволяет сохранять в документах все настройки, используемые для шифрования файлов, включая файл, с которым нужно работать, и повторно использовать его в дальнейшем.Тип издания: macOS SoftwareРелиз состоялся: 06.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07F2849A41CAC8DA67CF552D065CCDC41950F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705070   (113959) от 07.03.2024
-
-PopChar for Mac 10.0 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш Mac включает более чем 700 шрифтов, каждый из которых содержит тысячи знаков - Почему бы не сделать их максимально доступными?Тип издания: macOS SoftwareРелиз состоялся: 05.03.2024Разработчик: © 2024 Ergonis SoftwareПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0574D0FE38096E3A2656181CC43D6A2A8B78F875
 ```
 
 https://mybot314.ru/tekegram_catalog/

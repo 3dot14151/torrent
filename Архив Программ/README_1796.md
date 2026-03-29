@@ -1,3 +1,292 @@
+###  Публикация: 1662850   (187413) от 19.09.2023
+
+CpuFrequenz 4.24 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187413.jpg" />
+</div>
+
+
+###  Подробнее
+
+CpuFrequenz - небольшой инструмент для точного определения частоты процессора. Время от времени компьютер начинает работать медленно. Возможно, это связано с процессором.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:308EEF0606DFAD8E70870CE1E816152ADDABFCD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591246   (187409) от 17.11.2022
+
+Nox App Player 7.0.5.0001 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмулятор Nox App Player работает на версии Android 5 / 7 / 9. Внутри Nox App Player предустановлен каталог Google Play, который упрощает установку программ, игр и прочего контента. Помимо этого, Nox App Player поддерживает ввод не только с клавиатуры, или мыши, но и с геймпадов и других игровых контроллеров, поэтому он отлично подойдет для геймеров. Также в Nox App (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D212B82055808DE1E1E4DE1ED811D9BB2043340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662978   (187403) от 19.09.2023
+
+YT Downloader 9.3.7 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187403.jpg" />
+</div>
+
+
+###  Подробнее
+
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDBF1DDF4CBBE9155F8A195E044F4AF88FA7385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662976   (187399) от 19.09.2023
+
+RogueKiller Anti-Malware 15.12.1.0 + Portable [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187399.jpg" />
+</div>
+
+
+###  Подробнее
+
+RogueKiller Anti-Malware можно использовать бесплатно для сканирования и очистки. Однако, приложение имеет дополнительные платные функции, которые обеспечивают защиту в режиме реального времени, более высокий уровень безопасности и позволяют более детально настраивать поведение программы. Среди дополнительных возможностей: автоматическое обновление, использование (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F537CF382EFF914CF47E95A8AE113B6834C68D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662862   (187394) от 19.09.2023
+
+Uninstall Tool 3.7.3 Build 5719 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29C362213809A70146C759C1BDE631E663B112B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662838   (187383) от 19.09.2023
+
+Your Universal MultiBoot Installer exFAT (BIOS & UEFI USB Boot) 1.0.2.3 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187383.jpg" />
+</div>
+
+
+###  Подробнее
+
+YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC654653517A594A4810058E27A9F8FFF4CEB14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662849   (187380) от 19.09.2023
+
+ProfiCAD 12.2.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187380.jpg" />
+</div>
+
+
+###  Подробнее
+
+ProfiCAD - программа, которая будет очень полезна работникам технических профессий и учащимся технических ВУЗов. Она представляет собой простой редактор, предназначенный для создания электрических схем и прочей похожей документации. Библиотека данного приложения включает в себя практически все существующие элементы для схем, которые разбиты на группы для обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2930AD4F4E7C022C191E53B4F32FDF3E0D295411
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662868   (187379) от 19.09.2023
+
+WinToUSB Technician 8.2 Portable by FC Portables [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187379.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD/DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B30A8A7B302BC7CE5ABE9076E3185D134668659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591221   (187374) от 17.11.2022
+
+Rufus 3.21 (Build 1947) Beta Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499208159A39E3E69D3A5DCA2F96A8523E044216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591164   (187372) от 17.11.2022
+
+Office 2013-2021 C2R Install  7.4.8 ++ x64 Portable by Ratiborus [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для онлайн установки Microsoft Office 2013-2021 на ваш ПК.
+Преимуществом программы есть возможность установки отдельных компонентов офис 2013-2021, а так же выбора языка устанавливаемого офисного пакета и выполнить активацию
+
+Помимо нового дизайна, выполненного в стилистике Windows 10, пакет получил несколько важных нововведений в плане функциональности.(   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5DD116D5113999BEFA4E656E98DD8100FB2F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591079   (187366) от 17.11.2022
+
+WinToUSB Free / Pro / Technician 7.4 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187366.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinToUSB — лучший Windows To Go (WTG) Creator, который позволяет вам устанавливать и запускать полнофункциональную Windows на внешнем жестком диске, USB-накопителе или диске Thunderbolt. Это так просто и эффективно: всего за 3 шага и несколько минут вы можете создать свой первый портативный Windows 11/10/8/7 или Windows Server прямо из файла ISO, WIM, ESD, SWM, VHD, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC26485941BDD9874F97AE7E61F9492FFD03F19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1662871   (187365) от 19.09.2023
 
 KMPlayer 4.2.3.4 Plus (x86) Portable by 7997 [Multi/Ru]
@@ -6,7 +295,7 @@ KMPlayer 4.2.3.4 Plus (x86) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187365.jpg" />
 </div>
 
 
@@ -32,7 +321,7 @@ AOMEI Backupper Technician Plus 7.3.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187357.jpg" />
 </div>
 
 
@@ -58,7 +347,7 @@ WinRAR 6.24 Beta 1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187355.jpg" />
 </div>
 
 
@@ -84,7 +373,7 @@ Adobe Photoshop 2023 (24.0.0.59) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187354.jpg" />
 </div>
 
 
@@ -110,7 +399,7 @@ Windows 10 22H2 x64 Rus by OneSmiLe [19045.2311]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187348.jpg" />
 </div>
 
 
@@ -139,7 +428,7 @@ Display Driver Uninstaller 18.0.6.8 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187340.jpg" />
 </div>
 
 
@@ -165,7 +454,7 @@ Adobe Acrobat Pro 2022.003.20282 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187316.jpg" />
 </div>
 
 
@@ -191,7 +480,7 @@ BlueStacks App Player 5.13.5.1001  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187313.jpg" />
 </div>
 
 
@@ -217,7 +506,7 @@ Hard Disk Sentinel PRO 6.10.5 Build 12918 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187307.jpg" />
 </div>
 
 
@@ -243,7 +532,7 @@ uTorrent Pack 1.2.3.75 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_187291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_187291.jpg" />
 </div>
 
 
@@ -270,7 +559,7 @@ Adobe Photoshop 2023 24.7.1.741 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187265.jpg" />
 </div>
 
 
@@ -296,7 +585,7 @@ IObit Driver Booster Pro 11.0.0.21 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187249.jpg" />
 </div>
 
 
@@ -322,7 +611,7 @@ Adobe Photoshop 2024 25.0.0.37 Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187221.jpg" />
 </div>
 
 
@@ -348,7 +637,7 @@ Auslogics Registry Cleaner Pro 10.0.0.0 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187181.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187181.jpg" />
 </div>
 
 
@@ -374,7 +663,7 @@ Cockos REAPER 6.70 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_187178.jpg" />
 </div>
 
 
@@ -385,295 +674,6 @@ Cockos Reaper является одной из самых продвинутых
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1711A43212B949ECF3DB5D89C77778ACCF946AA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591407   (187166) от 18.11.2022
-
-Slimjet 37.0.1.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8608B9D30D4F53A367FDA85AE78C79DA29A7391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591456   (187158) от 18.11.2022
-
-Microsoft Edge 107.0.1418.52 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, как вам удобно, импортировав закладки, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB226987F2B9663A6324F2748343270CE6B541CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663104   (187145) от 20.09.2023
-
-Skype 8.104.0.207 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skype предназначен для личного и делового общения в любое время, в любых обстоятельствах и на любых устройствах. Уникальные возможности голосовых и видеозвонков, а также текстовых сообщений помогают общаться и работать вместе. Он подходит для совершения звонков один на один и в группе. Вы можете проводить собрания и устраивать встречи с коллегами, делиться впечатлениями (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02FD7A4D24E61968DCB74E07A529E3E94B5289A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591508   (187135) от 18.11.2022
-
-doPDF 11.7.357 Free [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187135.jpg" />
-</div>
-
-
-###  Подробнее
-
-doPDF — программа для преобразования документов в формат PDF. Поддерживается работа со многими форматами файлов, включая Microsoft Excel, документы Word или PowerPoint, сообщения почты и веб-страницы.
-После установки doPDF в папке "Принтеры" появится новый виртуальный принтер, через который и будет происходить процесс преобразования. Таким образом, для (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6F592DCFAC0062E2C7BBC4FB64611F61A2AD3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663186   (187132) от 20.09.2023
-
-Sumatra PDF 3.5.15578 Pre-release + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5131A0A2FE9DFA738BB451BDFBFB613D5CDB233C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591567   (187131) от 18.11.2022
-
-GPU-Z 2.51.0 + ASUS_ROG Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187131.jpg" />
-</div>
-
-
-###  Подробнее
-
-GPU-Z - бесплатная программа от TechPowerUp для отображения технической информации о видеоадаптере (видеоконтроллере/видеокарте/видеомодуле), работающая под ОС Microsoft Windows. Программа отображает технические характеристики графического процессора и его видеопамяти, то есть определяет производителя и название видеоадаптера, тип видеопроцессора и его характеристики, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0D6BF25116808BAAFAB8684A3C786662E9088AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663102   (187130) от 20.09.2023
-
-Mp3tag 3.22a + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mp3tag предоставляет пользователям мощный и простой в использовании инструмент для быстрого редактирования тегов в различных популярных аудио файлах. Позволяет осуществлять правки в ID3-тегах, в комментариях MP3 и Ogg файлах, производить замену специальных символов или слов. Из других возможностей программы можно выделить функции импорта/экспорта информации, пользовательские (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEC14CEE0183EFDCB2CE75ADC871CFA1F079F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663184   (187123) от 20.09.2023
-
-ExamDiff Pro Master Edition 14.0.1.13 + Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187123.jpg" />
-</div>
-
-
-###  Подробнее
-
-ExamDiff - мощная и легкая в использовании программа для сравнения текстовых или бинарных файлов и директорий. Программа обладает уникальными возможностями, которые отличают ExamDiff Pro от других аналогичных приложений для сравнения файлов. ExamDiff Pro предлагает более эффективный и удобный способ для сравнения файлов и папок. С помощью ExamDiff Вы сможете сравнивать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DCF24B87A88DB9AA26913782B50827C2F1B7306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591513   (187122) от 18.11.2022
-
-SiSoftware Sandra Lite 20/21 R18 (версия 31.112) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187122.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiSoftware Sandra Lite - бесплатная версия многофункциональной программы для анализа, диагностики и тестирования компьютера и его компонентов. Программа позволяет получить расширенную информацию о системной плате, процессоре, комплектующих и периферийных устройствах, а также выполнять тесты производительности и диагностики.
-Разнообразные тесты помогут узнать вычислительные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE15AE0D33C623B6EB602BD980B82DD53D4624E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663163   (187121) от 20.09.2023
-
-HWiNFO 7.63 Build 5215 Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187121.jpg" />
-</div>
-
-
-###  Подробнее
-
-HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE421DFEEBDB0BC535A21BD14A1482578742E3A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591500   (187120) от 18.11.2022
-
-kiloHearts Subscription 2.0.11 VST/VSTi, VST3, AAX (x64) RePack by R2R [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_187120.jpg" />
-</div>
-
-
-###  Подробнее
-
-kiloHearts Subscription дает вам мгновенный доступ ко всем плагинам Kilohearts и всем официальным банкам контента. Это включает в себя наш новаторский модульный синтезатор Phase Plant, а также другие наши модульные хосты эффектов с широкими возможностями настройки, все наши плагины эффектов и несколько эксклюзивных банков контента от профессиональных художников и (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7330CDC5CE1F78A79F24FBF5398D9814D8FC290D
 ```
 
 https://mybot314.ru/tekegram_catalog/

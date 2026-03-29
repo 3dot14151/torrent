@@ -6,7 +6,7 @@
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744854.jpg" />
+  <img src="Z:/picture/008/save_picture_744854.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744207.jpg" />
+  <img src="Z:/picture/008/save_picture_744207.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742760.jpg" />
+  <img src="Z:/picture/008/save_picture_742760.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Project NT - Веселые песни о Жизни и Смерти (2019) WEB-
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742467.jpg" />
+  <img src="Z:/picture/008/save_picture_742467.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739606.jpg" />
+  <img src="Z:/picture/008/save_picture_739606.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739070.jpg" />
+  <img src="Z:/picture/008/save_picture_739070.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739039.jpg" />
+  <img src="Z:/picture/008/save_picture_739039.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736901.jpg" />
+  <img src="Z:/picture/008/save_picture_736901.jpg" />
 </div>
 
 
@@ -239,7 +239,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736190.jpg" />
+  <img src="Z:/picture/008/save_picture_736190.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736153.jpg" />
+  <img src="Z:/picture/008/save_picture_736153.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_735320.jpg" />
+  <img src="Z:/picture/005/save_picture_735320.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734422.jpg" />
+  <img src="Z:/picture/008/save_picture_734422.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733526.jpg" />
+  <img src="Z:/picture/008/save_picture_733526.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733520.jpg" />
+  <img src="Z:/picture/005/save_picture_733520.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733094.jpg" />
+  <img src="Z:/picture/005/save_picture_733094.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ The Чиж & Co - На поле танки грохотали (2020) [FLAC|Lossl
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733074.jpg" />
+  <img src="Z:/picture/005/save_picture_733074.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ VA - Трибьют Сергею "Чиж" Чигракову, Vol. 2 (2022) [FLA
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730763.jpg" />
+  <img src="Z:/picture/008/save_picture_730763.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730714.jpg" />
+  <img src="Z:/picture/008/save_picture_730714.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728002.jpg" />
+  <img src="Z:/picture/008/save_picture_728002.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727443.jpg" />
+  <img src="Z:/picture/008/save_picture_727443.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727032.jpg" />
+  <img src="Z:/picture/008/save_picture_727032.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Katalepsy - Terra Mortuus Est (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725217.jpg" />
+  <img src="Z:/picture/008/save_picture_725217.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_723751.jpg" />
+  <img src="Z:/picture/005/save_picture_723751.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721401.jpg" />
+  <img src="Z:/picture/008/save_picture_721401.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Los Havtanos - Иди ко мне / Ven A Me (2021) 2xCD [FLAC|Lossless|image + 
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718723.jpg" />
+  <img src="Z:/picture/008/save_picture_718723.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716268.jpg" />
+  <img src="Z:/picture/008/save_picture_716268.jpg" />
 </div>
 
 

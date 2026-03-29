@@ -1,3 +1,119 @@
+###  Публикация: 1281323   (753597) от 07.02.2019
+
+VA - Jazz In Texas 1924-1930 (1997) Timeless [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milenberg Joys (Jimmy Joy's St. Anthony's Hotel Orchestra) (2:58)
+02. Clarinet Marmalade (Blues) (Jimmy Joy's St. Anthony's Hotel Orchestra) (2:55)
+03. Mama Will Be Gone (Jimmy Joy's St. Anthony's Hotel Orchestra) (3:19)
+04. You'll Want Me Back Some Day (Lloyd Finlay And His Orchestra) (2:59)(   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C818AE69E5FDB09051AEFDAEFDEA070E73D228B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281398   (753596) от 07.02.2019
+
+Chris Gall - Room of Silence (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Piano>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Behind the Curtain
+02. Room of Silence
+03. It Never Entered My Mind
+04. Interlude I(   Читать дальше...   )Жанр: Contemporary Jazz, PianoПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091CFB2E3DFF232E6B2873E27691F72B69AFFD51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 888736   (753459) от 15.04.2015
+
+Cesaria Evora - Greatest Hits (2015) [FLAC|Lossless]<Ethnic, Jazz, Morna>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sodade (Version Piano Bar)
+02. Mae Carinhosa
+03. Mar De Canal
+04. Ligereza(   Читать дальше...   )Жанр: Ethnic, Jazz, MornaПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155F477FC278FE32446472B695186E530114E2E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523083   (753390) от 10.01.2022
+
+George Braith - The Complete Blue Note Sessions (1963) 2CD, 2001, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_753390.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Mary Ann [7:31]
+02. Home Street [6:57]
+03. Poinciana [6:17](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82A232026C6BFFB22494E6094F20DF5CC92F3EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215894   (753066) от 29.03.2018
 
 Edmond Hall, James P. Johnson, Vic Dickenson, Sidney De Paris - The Complete Blue Note Sessions (1943 - 1952) 4CD, 1985, Mosaic Records [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Stride, S ...
@@ -6,7 +122,7 @@ Edmond Hall, James P. Johnson, Vic Dickenson, Sidney De Paris - The Complete Blu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753066.jpg" />
+  <img src="Z:/picture/008/save_picture_753066.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Art Pepper - Live At The Village Vanguard (1977) 4CD, 1987, Victor [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753065.jpg" />
+  <img src="Z:/picture/008/save_picture_753065.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Della Reese - All Of Me (1999) 2001, Hallmark Music & Entertainment [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752089.jpg" />
+  <img src="Z:/picture/008/save_picture_752089.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Rebecca Kilgore - with the Keith Ingham Sextet (2001) Jump [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751670.jpg" />
+  <img src="Z:/picture/008/save_picture_751670.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Bill Barron - A Swedish - American Venture (1966 - 1984) 2002, Dragon Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751368.jpg" />
+  <img src="Z:/picture/008/save_picture_751368.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Shakatak - Invitations (Expanded) (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751212.jpg" />
+  <img src="Z:/picture/008/save_picture_751212.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Take B - The Disco Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Acid jazz, Loung
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751092.jpg" />
+  <img src="Z:/picture/008/save_picture_751092.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Woody Shaw - With Tone Jansa Quartet (1985) Remaster, 2015, Solid Records[FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750342.jpg" />
+  <img src="Z:/picture/008/save_picture_750342.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Stanley Clarke - At The Movies (1995) Unofficial Release [APE|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750268.jpg" />
+  <img src="Z:/picture/008/save_picture_750268.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Joe Lovano - Trio Tapestry (2019) ECM Records [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750138.jpg" />
+  <img src="Z:/picture/008/save_picture_750138.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Free Nelson Mandoomjazz - The Organ Grinder (2016) [FLAC|Lossless|Web-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750016.jpg" />
+  <img src="Z:/picture/008/save_picture_750016.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Charlie Ventura - East Of Suez (1945, 1947) 2000, Savoy [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749991.jpg" />
+  <img src="Z:/picture/008/save_picture_749991.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Bob Stewart - Then And Now (1996) Postcards [FLAC|Lossless|tracks + .cue] <Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749573.jpg" />
+  <img src="Z:/picture/005/save_picture_749573.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ The Chick Corea + Steve Gadd Band - Chinese Butterfly (2017) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749568.jpg" />
+  <img src="Z:/picture/005/save_picture_749568.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Harold Land - A Lazy Afternoon (1995) Postcards [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748696.jpg" />
+  <img src="Z:/picture/008/save_picture_748696.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ James Moody - Something Special (1986) Novus [FLAC|Lossless|tracks + .cue] <Hard
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748695.jpg" />
+  <img src="Z:/picture/008/save_picture_748695.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ The Vanguard Jazz Orchestra - Up from the Skies: Music Of Jim McNeely (2006) Pla
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748694.jpg" />
+  <img src="Z:/picture/008/save_picture_748694.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Buddy Rich - Quiet Riot 1940-e (2004) Proper Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748693.jpg" />
+  <img src="Z:/picture/008/save_picture_748693.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Pharoah Sanders - Love In Us All (1973) 2007, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748691.jpg" />
+  <img src="Z:/picture/008/save_picture_748691.jpg" />
 </div>
 
 
@@ -555,7 +671,7 @@ Rez Abbasi Acoustic Quartet - Intents and Purposes (2015) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748686.jpg" />
+  <img src="Z:/picture/008/save_picture_748686.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Phil Woods & Gene Quill Sextet - Phil And Quill (1956) Remaster, 2014, Sony Musi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748653.jpg" />
+  <img src="Z:/picture/008/save_picture_748653.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Ameen Saleem - The Groove Lab (2015) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748651.jpg" />
+  <img src="Z:/picture/008/save_picture_748651.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ Ameen Saleem - The Groove Lab (2015) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B118704F9BB1DABCDC4D977890A57782DE9A45C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019701   (748637) от 24.05.2016
-
-The Billy Cobham & George Duke Band - "Live" - On Tour In Europe (1976) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hip Pockets
-02. Ivory Tattoo
-03. Space Lady
-04. Almustafa The Beloved(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBE8B77B3966700DD597630F77672A0A7261202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281985   (748516) от 10.02.2019
-
-Brad Wheeler - The Future Was Yesterday (2005) Origin Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Vision [5:20]
-02. When One Has Peace [8:44]
-03. Journey After Hours [8:32]
-04. Foreign Affair [7:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182505D398B1AEE8CF286B0DF02BE52CFF700C74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523760   (748219) от 13.01.2022
-
-VA - Jazz At The Philharmonic (1944 - 1953) 2009, 10CD, The Intense Media [FLAC|Lossless|tracks + .cue] <Swing, Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748219.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - JATP All Stars Feat. J.J.Johnson:
-01. Lester Leaps In [9:11]
-02. Tea For Two [12:39]
-03. The Blues [10:36](   Читать дальше...   )Жанр: Swing, Bop, Vocal JazzПродолжительность: 09:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:315DDA33795E8C0BB5B14F45D3D7AFFD39D8484E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216710   (747923) от 01.04.2018
-
-Stan Getz presents Jimmy Rowles - The Peacocks (1975) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Never Be the Same [04:08]
-02. Lester Left Town [05:55]
-03. Body and Soul [05:54]
-04. What Am I Here For? [04:58](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88BB7134A675F64CA5BC5BB96821592F161C436D
 ```
 
 https://mybot314.ru/tekegram_catalog/

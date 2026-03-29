@@ -1,3 +1,62 @@
+###  Публикация: 548072   (468537) от 17.09.2012
+
+Autodesk AutoCAD 2013 LT SP1.1 x64 [Русский]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468537.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD LT® предназначен для выработки проектных концепций, черчения и деталировки. 2D-чертежи обладают высокой точностью, удобны для редактирования и демонстрации всем заинтересованным сторонам. Существуют версии продукта для Windows и Mac, что позволяет готовить проектную документацию на привычной платформе.
+•Оформление проектных идей — Точное документирование идей и проектов с помощью комплексного набора инструментов САПР для 2D-черчения и деталировки.
+•Взаимодействие — Безопасный обмен файлами в AutoCAD LT с помощью оригинальной DWG™-технологии, а также взаимодействие с коллегами и клиентами, работающими на различных платформах.
+•Повышение производительности — Эффективная подготовка проектной документации благодаря высокой производительности черчения и интуитивным средствам взаимодействия.Название программы: Autodesk AutoCAD 2013 LT SP1.1 x64Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549478   (459244) от 21.09.2012
+
+Multisim & Ultiboard (Circuit Design Suite) PowerPro 12.0.1 [Английский + Русский]
+
+>>След.
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_459244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Circuit Design Suite - одна из наиболее популярных в мире программ конструирования электронных схем, характеризуется сочетанием профессиональных возможностей и простоты, расширяемостью функций от простой настольной системы до сетевой корпоративной системы. Это объясняет широкое использование этой замечательной программы как для учебных целей так и для промышленного производства сложных электронных устройств.
+
+Доп. информация: National Instruments выпустила новые версии программных пакетов NI Multisim и NI Ultiboard. Последние версии программ обладают повышенной функциональностью, новыми возможностями пользовательского интерфейса и поддерживают более 300 новых компонентов от лидирующих мировых производителей. Благодаря новым возможностям разработка и создание прототипов электрических схем может проводиться гораздо быстрее и с большей точностью.
+
+Для облегчения процесса разработки, компания National Instruments дает возможность всем разработчикам электрических схем и печатных плат, профессорам и студентам объединиться (   Читать дальше...   )Название программы: Multisim & Ultiboard (Circuit Design Suite) PowerPro 12.0.1 RUS+ENGЯзык интерфейса: Английский + Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023749   (441621) от 01.09.2019
 
 solidThinking Inspire and Evolve Suite 2016.1 Build 5559 [Multi]
@@ -6,7 +65,7 @@ solidThinking Inspire and Evolve Suite 2016.1 Build 5559 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441621.jpg" />
+  <img src="Z:/picture/008/save_picture_441621.jpg" />
 </div>
 
 
@@ -33,7 +92,7 @@ Home Plan Pro 5.5.1.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434208.jpg" />
+  <img src="Z:/picture/008/save_picture_434208.jpg" />
 </div>
 
 
@@ -59,7 +118,7 @@ CorelCAD 2016 Build 16.0.0.1079 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408975.jpg" />
+  <img src="Z:/picture/008/save_picture_408975.jpg" />
 </div>
 
 
@@ -85,7 +144,7 @@ Global Mapper 14.0.2 [Русский]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_379699.jpg" />
+  <img src="Z:/picture/005/save_picture_379699.jpg" />
 </div>
 
 
@@ -111,7 +170,7 @@ CorelCAD 2017.0 Build 17.0.0.1310 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349232.jpg" />
+  <img src="Z:/picture/008/save_picture_349232.jpg" />
 </div>
 
 
@@ -137,7 +196,7 @@ CSoft Project StudioCS R6.0.028 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290427.jpg" />
+  <img src="Z:/picture/008/save_picture_290427.jpg" />
 </div>
 
 
@@ -163,7 +222,7 @@ COMSOL Multiphysics 6.4 Build 293 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_261534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_261534.jpg" />
 </div>
 
 
@@ -189,7 +248,7 @@ Pythagoras CAD + GIS 12.26 [ENG + RUS]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_256530.jpg" />
+  <img src="Z:/picture/005/save_picture_256530.jpg" />
 </div>
 
 
@@ -215,7 +274,7 @@ Realtime Landscaping Architect 2023 v23.02 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255465.jpg" />
+  <img src="Z:/picture/005/save_picture_255465.jpg" />
 </div>
 
 
@@ -242,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254459.jpg" />
+  <img src="Z:/picture/005/save_picture_254459.jpg" />
 </div>
 
 
@@ -269,7 +328,7 @@ Trimble Tekla Structures 2023 SP3 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252229.jpg" />
+  <img src="Z:/picture/004/save_picture_252229.jpg" />
 </div>
 
 
@@ -295,7 +354,7 @@ Wing Helper 1.50 [Multi]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249660.jpg" />
+  <img src="Z:/picture/004/save_picture_249660.jpg" />
 </div>
 
 
@@ -321,7 +380,7 @@ Altair Compose 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244956.jpg" />
+  <img src="Z:/picture/004/save_picture_244956.jpg" />
 </div>
 
 
@@ -347,7 +406,7 @@ Altair SimSolid 2022.2.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244873.jpg" />
+  <img src="Z:/picture/004/save_picture_244873.jpg" />
 </div>
 
 
@@ -375,7 +434,7 @@ Altair Flux & FluxMotor 2022.2.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244817.jpg" />
+  <img src="Z:/picture/004/save_picture_244817.jpg" />
 </div>
 
 
@@ -402,7 +461,7 @@ Altair Activate 2022.2.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244740.jpg" />
+  <img src="Z:/picture/004/save_picture_244740.jpg" />
 </div>
 
 
@@ -428,7 +487,7 @@ Altair SimLab 2022.3 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236468.jpg" />
+  <img src="Z:/picture/005/save_picture_236468.jpg" />
 </div>
 
 
@@ -454,7 +513,7 @@ Keysight EMPro 2023 Update 0.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231260.jpg" />
 </div>
 
 
@@ -483,7 +542,7 @@ Geomagic Control X 2020.1.1 [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230450.jpg" />
+  <img src="Z:/picture/005/save_picture_230450.jpg" />
 </div>
 
 
@@ -509,7 +568,7 @@ Gstarsoft GstarCAD 2016 Build 151116 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219587.jpg" />
+  <img src="Z:/picture/005/save_picture_219587.jpg" />
 </div>
 
 
@@ -535,7 +594,7 @@ CSoft WiseImage Pro Standalone 22.0.1741 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214346.jpg" />
+  <img src="Z:/picture/005/save_picture_214346.jpg" />
 </div>
 
 
@@ -561,7 +620,7 @@ Cabinet Vision 2021.1.0.571 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211397.jpg" />
+  <img src="Z:/picture/005/save_picture_211397.jpg" />
 </div>
 
 
@@ -587,7 +646,7 @@ Infolytica MagNet 7.4.1.4 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209671.jpg" />
 </div>
 
 
@@ -613,7 +672,7 @@ Siemens HyperLynx VX2.10 Build 19246144 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208636.jpg" />
 </div>
 
 
@@ -626,61 +685,6 @@ HyperLynx® – прорамный комплекс от Mentor Graphics®, ко
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA58546043F7E3379CF7985A25A8D37D35BDAC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610635   (207900) от 08.02.2023
-
-Avia Systems - Scan2CAD 10.4.16 Repack by F4CG [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа позволяет переводить растровые изображение в вектор.
-Автоматическое преобразование ваших проектов в вектор, совместимое практически со всеми приложениями CAD и CNC. Интеллектуальная автоматическая трассировка позволяет конвертировать проекты в несколько кликов, экономя бесконечное количество часов по сравнению с ручной трассировкой.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A0C3CEA873B13538821887A767897E7EA30914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612705   (207219) от 16.02.2023
-
-Keysight Genesys 2023 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Genesys - программное обеспечение для проектирования ВЧ и СВЧ устройств
-
-Программное обеспечение Genesys компании Keysight представляет собой доступное по цене, простое в использовании, высокопроизводительное средство проектирования, предназначенное для разработчиков ВЧ и СВЧ плат и модулей. Экономическую эффективность пакета могут подтвердить более 5000 пользователей. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84CCE1A0A10E6D57FCDD73125021A4FA9D442C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

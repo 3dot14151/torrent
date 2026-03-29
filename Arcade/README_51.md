@@ -1,3 +1,29 @@
+###  Публикация: 1760190   (37525) от 12.11.2024
+
+The Smurfs - Dreams (2024) [Ru/Multi] (0.0.18/dlc) Repack FitGirl
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гаргамель придумал новый злодейский план, чтобы поймать смурфиков! Он наложил хитроумное проклятие на кусты смилакса, и смурфики, решившие полакомиться вкусными листьями, стали впадать в глубокой сон. Отправьтесь в путешествие по снам, чтобы разбудить всех смурфиков прежде, чем ужасный Гаргамель доберется до деревни! Вас ждет захватывающее и непредсказуемое приключение: (   Читать дальше...   )Тип издания: RepackРазработчик: Ocellus StudioЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:333E41920BE0413DCD71AC9AB714FB918AF6D2F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760189   (37467) от 12.11.2024
 
 Valley Peaks (2024) [Multi] (1.0.8.0) License GOG
@@ -6,7 +32,7 @@ Valley Peaks (2024) [Multi] (1.0.8.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37467.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.5.593/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37461.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ OTXO (2023) [Ru/Multi] (1.106) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37031.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Tyrian 2000 (1999) [En] (3.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36987.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6.596/dlc) Repack Let'sРlay [The One Wh
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36962.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.1.0.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36713.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Microsoft Bicycle Board Games (2002) [En] (2.0) License
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36695.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36634.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ The Devil Within: Satgat (2024) [Multi] (1.0) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36621.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Bullet Runner (2024) [En] (1.2.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36601.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36532.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ MEGATON MUSASHI W: WIRED (2024) [Multi] (3.1.4/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36531.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.2.0.0) Repack dixen18
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36424.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Scene SKIDROW
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36368.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.07/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36321.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Project Zero 2: Apocalypse Party / Вечеринка Апокалипсиса (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36287.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Valkyrie of Phantasm (2022) [Multi] (1.04) Scene Skidrow
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36268.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ It's Only Money (2023) [En] (1.0.0-9254/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36164.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36164.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36123.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Beat Hazard Ultra (2010) [Multi] (1.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36036.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36022.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35767.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ GigaBash (2024) [Ru/Multi] (1.5.2/dlc) Repack seleZen
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35650.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ One Boss One Fight (2024) [Ru/Multi] (1.10) Repack Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35381.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ South Park: Snow Day! (2024) [Multi] (1.0.6/dlc) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35282.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0ADB52A63DC15AB84CBAD4787B99F106FF167FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751602   (34974) от 07.12.2024
-
-Disney Epic Mickey: Rebrushed (2024) [Multi] (1.0.3/dlc) License GOG
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disney Epic Mickey: Rebrushed оживляет магию мира Disney в красочном трехмерном платформере. В этой версии Микки Маус отправится в эпическое путешествие по Пустоши - царству забытых диснеевских персонажей. Вместе с Микки вам предстоит познакомиться с фантастическим миром, где вы с краской и кисточкой наперевес будете творить историю.Тип издания: LicenseРазработчик: Purple LampЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, Немецкий и другиеЯзык субтитров: Английский, Французский, Итальянский и другиеЯзык интерфейса: Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA5E6EF2B855418528C62418A50AD0FB0996A37
 ```
 
 https://mybot314.ru/tekegram_catalog/

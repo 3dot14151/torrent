@@ -1,3 +1,32 @@
+###  Публикация: 1668434   (173465) от 13.10.2023
+
+Creeper - Sanguivore (2023) [MP3|320 Kbps] <Britpop, Glam Rock, Pop-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further Than Forever [00:09:12]
+02 - Cry To Heaven [00:04:27]
+03. Sacred Blasphemy [00:02:53]
+04. The Ballad Of Spook & Mercy [00:04:39](   Читать дальше...   )Жанр: Britpop, Glam Rock, Pop-PunkПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8AA3F1B3BADCAB9C54260F11066C5BEFF2F7CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668442   (173455) от 13.10.2023
 
 U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173455.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ David Gilmour - The Luck and Strange Concerts (2025) [MP3|320 Kbps] <Rock, Progr
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173430.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic Rec
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173369.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Slade - 80's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173362.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ U.F.O. - Lights Out In Babenhausen - Live 1993 (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173206.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ The Dear Hunter - Migrant Returned (2013) Remaster, 2023, Equal Vision Records [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173204.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Smoke The Light - The Great Never Ending (2023) [MP3|320 Kbps] <Heavy Psychedeli
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171920.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Skinny Lister - Shanty Punk (2023) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171432.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ The Mojo Men - There Goes My Mind (2003) Remaster, 2023, 	Sundazed Music [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171408.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Gabriel Agudo - Tales & Thunders (2023) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171233.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Stratovarius - A Million Light Years Away (2000) Single [OGG Vorbis|480 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169332.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Stratovarius - S.O.S. (1998) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Po
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169309.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Objectif Running: Rock (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169186.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Stratovarius - I Walk To My Own Song (2003) Single [OGG Vorbis|480 Kbps] <Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_168433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_168433.jpg" />
 </div>
 
 
@@ -411,7 +440,7 @@ Prism - 8 Studio Albums (1977-2008) Collection [MP3|320 Kbps] <Pop Rock, Classic
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167464.jpg" />
 </div>
 
 
@@ -440,7 +469,7 @@ The Bee Gees - Brilliant From Birth (1998) 2 CD, Compilation, Remastered, Spin [
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167453.jpg" />
 </div>
 
 
@@ -469,7 +498,7 @@ Slade - Live and Loud! (2023) [MP3|320 Kbps] <Glam Rock, Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_167119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_167119.jpg" />
 </div>
 
 
@@ -498,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166973.jpg" />
 </div>
 
 
@@ -527,7 +556,7 @@ Pink Floyd - Live In Rome Palaeur 20 June 1971 (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166946.jpg" />
 </div>
 
 
@@ -556,7 +585,7 @@ Pink Floyd - Lyon 12 June 1971 & Tokyo 16 March 1972 (2021) [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166908.jpg" />
 </div>
 
 
@@ -585,7 +614,7 @@ Which One's Pink? - Pink Floyd Tribute Just the basic facts (2010) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166171.jpg" />
 </div>
 
 
@@ -614,7 +643,7 @@ Neal Schon - Universe (2020) [MP3|320 Kbps] <Instrumental Guitar Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166163.jpg" />
 </div>
 
 
@@ -643,7 +672,7 @@ Pink Floyd - Amsterdamse Bos, Free Concert, Live, 26 June 1971 (2021) [MP3|320 K
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166109.jpg" />
 </div>
 
 
@@ -672,7 +701,7 @@ Pink Floyd - Live In Montreux 18 & 19 Sept 1971 (2021) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166048.jpg" />
 </div>
 
 
@@ -701,7 +730,7 @@ Kerygmatic Project - Dreams World (2022) 2xCD [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166035.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ CD - 1 - Orchestral Version:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F68730DF4600B46337D364EDF356700DEF8AF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673357   (165460) от 01.11.2023
-
-Bruce Hornsby - Spirit Trail (1998) 25th Anniversary Edition, 2023, Zappo Productions [MP3|320 Kbps] <Rock, Singer & Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-DISC 01
-DISC 02
-DISC 03(   Читать дальше...   )Жанр: Rock, Singer & SongwriterПродолжительность: 4 CD, 03:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5EE2520F629A36B59DE9DD98E6A21C956162E8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

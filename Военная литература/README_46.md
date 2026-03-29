@@ -1,3 +1,29 @@
+###  Публикация: 584350   (310039) от 03.12.2012
+
+П.Бруксмит | Искусство снайперской подготовки [2004] [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_310039.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Искусство снайперской подготовки» — уникальная энциклопедия снайперского промысла. В ней исследуются особенности психологии снайпера, его роль и значение при проведении различных операций, рассказывается об оружии снайперов, о подготовке сверхметких стрелков в лучших снайперских школах мира, об обучении маскировке, камуфляжу и скрытному передвижению. Издание адресовано не только тем, кто интересуется этой разновидностью воинского искусства, но и широкому кругу любителей военной истории.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56DDEC685C7A54F9621DE15DF958323B2660E18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183495   (309807) от 13.11.2017
 
 Х. Хескет-Притчард | Первые снайперы. «Служба сверхметких стрелков в Мировую войну» (2013) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309807.jpg" />
+  <img src="Z:/picture/008/save_picture_309807.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308236.jpg" />
+  <img src="Z:/picture/008/save_picture_308236.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306979.jpg" />
+  <img src="Z:/picture/008/save_picture_306979.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306030.jpg" />
+  <img src="Z:/picture/008/save_picture_306030.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_306025.jpg" />
+  <img src="Z:/picture/008/save_picture_306025.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303044.jpg" />
+  <img src="Z:/picture/008/save_picture_303044.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301647.jpg" />
+  <img src="Z:/picture/008/save_picture_301647.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300958.jpg" />
+  <img src="Z:/picture/008/save_picture_300958.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298897.jpg" />
+  <img src="Z:/picture/008/save_picture_298897.jpg" />
 </div>
 
 
@@ -247,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298882.jpg" />
+  <img src="Z:/picture/008/save_picture_298882.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298696.jpg" />
+  <img src="Z:/picture/008/save_picture_298696.jpg" />
 </div>
 
 
@@ -301,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298689.jpg" />
+  <img src="Z:/picture/008/save_picture_298689.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297669.jpg" />
+  <img src="Z:/picture/008/save_picture_297669.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295219.jpg" />
+  <img src="Z:/picture/008/save_picture_295219.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294943.jpg" />
+  <img src="Z:/picture/008/save_picture_294943.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294621.jpg" />
+  <img src="Z:/picture/008/save_picture_294621.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292949.jpg" />
+  <img src="Z:/picture/008/save_picture_292949.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290146.jpg" />
+  <img src="Z:/picture/008/save_picture_290146.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290090.jpg" />
+  <img src="Z:/picture/008/save_picture_290090.jpg" />
 </div>
 
 
@@ -510,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290082.jpg" />
+  <img src="Z:/picture/008/save_picture_290082.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289436.jpg" />
+  <img src="Z:/picture/008/save_picture_289436.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288959.jpg" />
+  <img src="Z:/picture/008/save_picture_288959.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288955.jpg" />
+  <img src="Z:/picture/008/save_picture_288955.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287955.jpg" />
+  <img src="Z:/picture/008/save_picture_287955.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286875.jpg" />
+  <img src="Z:/picture/008/save_picture_286875.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2514951F4296A5C481117E01F4DFC65358DAEFEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186452   (286379) от 25.11.2017
-
-Станислав Чернявский | Дипломатия России. Опыт Первой мировой войны (2016) [FB2, EPUB]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286379.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге дается развернутый анализ гуманитарной деятельности МИД России в годы Первой мировой войны по возвращению на Родину и оказанию помощи соотечественникам, депортированным из воюющих стран Европы, а также задержанным в них гражданским лицам призывного возраста и военнопленным. Этот опыт приобретает особую актуальность сегодня, когда противодействие международному (   Читать дальше...   )Жанр: История, Геополитика, Первая мировая войнаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309E13D77DFBCA47E4299030759BC6C8A0D33887
 ```
 
 https://mybot314.ru/tekegram_catalog/

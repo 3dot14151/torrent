@@ -1,3 +1,148 @@
+###  Публикация: 1023207   (725854) от 04.06.2016
+
+The Rolling Stones - Totally Stripped (2016) Live [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Fade Away - Amsterdam (3:12)
+02. Honkey Tonk Woman - Paris (4:54)
+03. Dead Flowers - Amsterdam (4:00)
+04. Faraway Eyes - London (5:05)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D14D4D7A0F5B69ED66B6DBF3C1478EB12ABFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 326445   (725776) от 21.04.2011
+
+Mike & The Mechanics - The Road (2011)[FLAC|Lossless|image + .cue]<Progressive Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_725776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road (4:22)
+02. Reach Out (Touch The Sun) (4:04)
+03. Try To Save Me (3:48)
+04. Background Noise (4:18)(   Читать дальше...   )Жанр: Progressive Rock, Pop-RockПродолжительность: 00:46:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129067   (724670) от 27.04.2017
+
+Red Dawn - Never Say Surrender (1993) [APE|Lossless|image + .cue] <Hard Rock, Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flyin' High (5:45)
+02. I'll Be There (4:11)
+03. Liar (3:24)
+04. Dangerous Child (6:18)(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, AORПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3DFF709540326D6764964B198BD38E9C7000EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284922   (724616) от 24.02.2019
+
+The Claypool Lennon Delirium - South of Reality (2019) [FLAC|Lossless|tracks + .cue] <Experimental, Indie Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Fishes (06:06)
+02. Blood and Rockets - Movement I, Saga of Jack Parsons - Movement II, Too The Moon (06:29)
+03. South of Reality (03:27)
+04. Boriska (05:25)(   Читать дальше...   )Жанр: Experimental, Indie Rock, Psychedelic RockПродолжительность: 00:47:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AB3596B30F2BDE3B3EE206B4098273EB2D6289A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285050   (724611) от 24.02.2019
+
+Rod Stewart - Atlantic Crossing (1975) Remastered [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_724611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Time Loser
+02. Alright For An Hour
+03. All In The Name Of Rock 'N' Roll
+04. Drift Away(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635E81A9C385861F4B3FB04A387D4B9D152875B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128913   (724525) от 27.04.2017
 
 Neal Morse - Morsefest! 2015 -? And Sola Scriptura Live (2017) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
@@ -6,7 +151,7 @@ Neal Morse - Morsefest! 2015 -? And Sola Scriptura Live (2017) [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724525.jpg" />
+  <img src="Z:/picture/008/save_picture_724525.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Pink Floyd - Shine On (1992) 9CD BoxSet, Compilation, Remastered [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724328.jpg" />
+  <img src="Z:/picture/008/save_picture_724328.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Kelly Family - Over The Hump (1994) [FLAC|Lossless|image + .cue] <Folk Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724249.jpg" />
+  <img src="Z:/picture/008/save_picture_724249.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Keane - Greatest Hits (2007) [FLAC|Lossless|tracks] <Rock, Pop Rock, Brit Pop>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724247.jpg" />
+  <img src="Z:/picture/008/save_picture_724247.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ The Kelly Family - Almost Heaven (1996) [FLAC|Lossless|image + .cue] <Country Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724240.jpg" />
+  <img src="Z:/picture/008/save_picture_724240.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Rock Legends The Ultimate Collection (2018) 5CD [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723012.jpg" />
+  <img src="Z:/picture/008/save_picture_723012.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Pip Pyle - 7 Year Itch (1998) [WavPack|Lossless|image + .cue] <Canterbury Scene,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722626.jpg" />
+  <img src="Z:/picture/008/save_picture_722626.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Smokie - The Other Side Of The Road (1979) Reissue, 2016, Sony Music [FLAC|Lossl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722152.jpg" />
+  <img src="Z:/picture/008/save_picture_722152.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ The Cranberries - Something Else (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Ac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722146.jpg" />
+  <img src="Z:/picture/008/save_picture_722146.jpg" />
 </div>
 
 
@@ -268,7 +413,7 @@ Touch - Tomorrow Never Comes (2021) [FLAC|Lossless|image + .cue] <Melodic Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720767.jpg" />
+  <img src="Z:/picture/008/save_picture_720767.jpg" />
 </div>
 
 
@@ -297,7 +442,7 @@ Sandalinas - Fly To The Sun (2008) [FLAC|Lossless|image + .cue] <Melodic-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720676.jpg" />
+  <img src="Z:/picture/008/save_picture_720676.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ Frost - Falling Satellites (2016) Deluxe Edition [FLAC|Lossless|tracks + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720576.jpg" />
+  <img src="Z:/picture/008/save_picture_720576.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ Dan Reed - Transmission (2015) [FLAC|Lossless|image + .cue] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720572.jpg" />
+  <img src="Z:/picture/008/save_picture_720572.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ Dan Reed Network - Fight Another Day (2016) [FLAC|Lossless|tracks] <Melodic Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720458.jpg" />
+  <img src="Z:/picture/008/save_picture_720458.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ The Kelly Family - Christmas For All (1994) [FLAC|Lossless|image + .cue] <Soft R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720425.jpg" />
+  <img src="Z:/picture/008/save_picture_720425.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ Smokie - Solid Ground (1981) Reissue, 2016, Sony Music [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720316.jpg" />
+  <img src="Z:/picture/008/save_picture_720316.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ Adrian Belew (King Crimson) - Flux by Belew. Volume One (2016) [FLAC|Lossless|tr
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720300.jpg" />
+  <img src="Z:/picture/008/save_picture_720300.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ VA - Top Musicians Play Queen (2010) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720190.jpg" />
+  <img src="Z:/picture/008/save_picture_720190.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ Bryan Adams - The Best Of Me (1999) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720066.jpg" />
+  <img src="Z:/picture/008/save_picture_720066.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ Kansas - The Absence of Presence (2020) [FLAC|Lossless|tracks + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719142.jpg" />
+  <img src="Z:/picture/008/save_picture_719142.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ Creedence Clearwater Revival - The Very Best (unknown year) Unofficial Release [
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718816.jpg" />
+  <img src="Z:/picture/008/save_picture_718816.jpg" />
 </div>
 
 
@@ -601,151 +746,6 @@ Creedence Clearwater Revival - The Very Best (unknown year) Unofficial Release [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2F15F8F199C5FC36998CEE7E95E7C281200D1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285739   (718809) от 27.02.2019
-
-Eric Clapton - The Best Of... (unknown year) Unofficial Release [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears In Heaven
-02. Cocaine
-03. Wonderful Tonight
-04. I Shot The Sherife(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E054AF6E0D10E2595641F91F6C92021860E20923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400710   (717222) от 06.08.2020
-
-Paul Cotton - When The Coast Is Clear (2004) [FLAC|Lossless|image + .cue] <Classic Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Coast Is Clear 5:25
-02. The Sunset Kidd 4:36
-03. High Water 4:27
-04. It Never Goes Away 5:08(   Читать дальше...   )Жанр: Classic Rock, Country RockПродолжительность: 00:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7557E6A1E87BB6F28872FEF131091A9C487647D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130276   (716887) от 01.05.2017
-
-Jaime Kyle - Untangled (1999) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sentimental  (03:48) 
-02.  Cry  (04:11) 
-03.  Revelation  (04:07) 
-04.  Dreaming Out Loud  (03:49) (   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Country RockПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF2C11A5B7EAA784D0BC6E34A017344B381577E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130287   (716790) от 01.05.2017
-
-Roy Clark - The Lightning Fingers of Roy Clark (1999) [FLAC|Lossless|image + .cue] <Surf, Rock & Roll, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twelfth Street Rag  (02:45) 
-02.  Texas Twist  (02:09) 
-03.  Golden Slippers  (02:28) 
-04.  Weepin' Willow Twist  (02:21) (   Читать дальше...   )Жанр: Surf, Rock & Roll, CountryПродолжительность: 00:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3021C7BB0B4CB60E62AA14F3A8ABA9B5AD04B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130261   (716653) от 01.05.2017
-
-Tak Matsumoto & Daniel Ho - Electric Island, Acoustic Sea (2017) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, Folk, World, & Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soaring on Dreams (5:32)
-02. Fujiyama Highway (4:08)
-03. Magokoro (True Heart) (5:01)
-04. Infinite Escapade (4:45)(   Читать дальше...   )Жанр: Instrumental Rock, Folk, World, & CountryПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AAC2790E9FC2824D56807576873624C92F5094
 ```
 
 https://mybot314.ru/tekegram_catalog/

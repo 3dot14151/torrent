@@ -1,3 +1,82 @@
+###  Публикация: 1482182   (212943) от 01.07.2022
+
+Книжная серия | «Заграница без вранья» [12 книг] (2015-2017) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все самое интересное о странах и регионах от первого лица. Чем на самом деле живут жители разных стран, что думают об остальном мире и что из бесконечного количества мифов об этих странах правда, а что — выдумка?Жанр: Документальная литература, Книги о путешествияхФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029BA745D3217F414B49E1C15F58234823542F80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564540   (212351) от 20.07.2022
+
+Валентин Юрьевич Катасонов | Читая Шваба. Инклюзивный капитализм и великая перезагрузка. Открытый заговор против человечества (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212351.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новой книге профессора В.Ю. Катасонова рассказано о главном событии нашей исторической эпохи, о котором знают далеко не все. «Великая перезагрузка», или «Великое обнуление» – так назвали это событие его творцы, сильные мира сего, которые решили загнать население планеты в цифровое рабство и утвердить свой фашистский новый мировой порядок на века. Богатейшие люди (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD4B483A3DF2A78BF2343C4CF3E846C956ED99D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586273   (211501) от 25.10.2022
+
+Бернард Шоу | Приспособить мир к себе. Социализм для джентльменов (2022) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_211501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Великий мастер парадокса, самый остроумный мудрец Британии, Бернард Шоу был не только драматургом, но и мыслителем, который едва ли не первым из западных интеллектуалов принял русскую революцию и считал Ленина и Сталина величайшими людьми на планете. Разумеется, наряду с самим собой.
+В этой книге он говорит от первого лица, а не от лиц выдуманных героев. Это самые (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D14F5CDB3DFEF634B74F85C129A8436BF43994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586119   (211496) от 25.10.2022
 
 Елизавета Бута | Маньяк Фишер. История последнего расстрелянного в России убийцы (2022) [EPUB]
@@ -6,7 +85,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211496.jpg" />
+  <img src="Z:/picture/005/save_picture_211496.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211350.jpg" />
+  <img src="Z:/picture/005/save_picture_211350.jpg" />
 </div>
 
 
@@ -60,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210848.jpg" />
 </div>
 
 
@@ -86,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210271.jpg" />
+  <img src="Z:/picture/005/save_picture_210271.jpg" />
 </div>
 
 
@@ -112,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209971.jpg" />
+  <img src="Z:/picture/005/save_picture_209971.jpg" />
 </div>
 
 
@@ -140,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209473.jpg" />
 </div>
 
 
@@ -166,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208484.jpg" />
+  <img src="Z:/picture/005/save_picture_208484.jpg" />
 </div>
 
 
@@ -193,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208016.jpg" />
+  <img src="Z:/picture/005/save_picture_208016.jpg" />
 </div>
 
 
@@ -219,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207521.jpg" />
 </div>
 
 
@@ -245,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206783.jpg" />
 </div>
 
 
@@ -271,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206713.jpg" />
 </div>
 
 
@@ -299,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205960.jpg" />
+  <img src="Z:/picture/005/save_picture_205960.jpg" />
 </div>
 
 
@@ -327,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204350.jpg" />
 </div>
 
 
@@ -353,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202140.jpg" />
+  <img src="Z:/picture/004/save_picture_202140.jpg" />
 </div>
 
 
@@ -381,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202122.jpg" />
+  <img src="Z:/picture/004/save_picture_202122.jpg" />
 </div>
 
 
@@ -407,7 +486,7 @@ ADMIN RSOTM | Обратная сторона (2022) [PDF, FB2, EPUB, DJVU]
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201061.jpg" />
+  <img src="Z:/picture/005/save_picture_201061.jpg" />
 </div>
 
 
@@ -433,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201034.jpg" />
+  <img src="Z:/picture/005/save_picture_201034.jpg" />
 </div>
 
 
@@ -459,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200988.jpg" />
+  <img src="Z:/picture/004/save_picture_200988.jpg" />
 </div>
 
 
@@ -485,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199310.jpg" />
+  <img src="Z:/picture/005/save_picture_199310.jpg" />
 </div>
 
 
@@ -512,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199271.jpg" />
+  <img src="Z:/picture/005/save_picture_199271.jpg" />
 </div>
 
 
@@ -541,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198816.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198816.jpg" />
 </div>
 
 
@@ -567,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197290.jpg" />
 </div>
 
 
@@ -593,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197166.jpg" />
 </div>
 
 
@@ -604,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C82E7E485FB1DF8423B3805BB72B134BBB42591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640952   (196743) от 20.06.2023
-
-Алексей Левошко | Пособие будущему ополченцу (2020) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет из себя учебное пособие по быстрому построению эффективных боевых структур и быстрого обучения неквалифицированных солдат. Эта книга — концентрация реального боевого опыта современной войны. Войны, которую ведут те люди и с теми навыками, которые есть в реальности, а не те солдаты, которые смотрят на нас с пропагандистских плакатов. И эта война (   Читать дальше...   )Жанр: Военное дело, учебное пособиеИздательство: Координационный центр Помощи НовороссииФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97EF6ADCFD28F0BD78C4C4B6066D22F1C138DF2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642383   (196436) от 27.06.2023
-
-М.С. Григорьев,  М.Ю. Мягков | Черная книга (2023) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196436.jpg" />
-</div>
-
-
-###  Подробнее
-
-В «Чёрной книге» приведены страшные свидетельства о пытках, насилиях, убийствах, совершённых украинскими неонацистами и военнослужащими ВСУ в 2014–2023 годах. Люди в нашей стране и за рубежом должны знать, что все военные преступники, защищающие киевский режим, понесут заслуженное наказание. Следственный комитет России, Международный общественный трибунал по преступлениям (   Читать дальше...   )Жанр: ПублицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1EC8885D83622BBE7DD5B0B14F3AB49E62F4B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592009   (196275) от 03.07.2023
-
-Элизабет Шимпфёссль | Безумно богатые русские. От олигархов к новой буржуазии (2022) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Противоречивая слава российских олигархов давно выплеснулась за пределы страны, где они сколотили свои капиталы. Весь мир сплетничает о них, то посмеиваясь, то осуждая, однако с неизменным удовольствием берет их деньги. А что они думают о себе сами?
-Австрийская социолог Элизабет Шимфёссль, вот уже пятнадцать лет живущая в Лондоне, столице олигархов, провела сотню (   Читать дальше...   )Жанр: Социология, публицистикаПеревод: Ирина ЕвстигнееваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:258FE2A4F46DD010FAC9209D8BB51300AA2ED388
 ```
 
 https://mybot314.ru/tekegram_catalog/

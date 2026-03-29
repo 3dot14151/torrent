@@ -1,3 +1,67 @@
+###  Публикация: 937442   (488317) от 15.09.2015
+
+VA - Vocal Trance Collection Vol. 137 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_488317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dogus Kilic feat Rebecca Louise Burch - Set Us Free (Original Mix)
+02 Allen & Envy amp James Williams - Ark (Original Mix)
+03 Beat Service & Cathy Burton - Love Is Your Home (Original Mix)
+04 Ost & Meyer, Ronski Speed And Cate Kanell. Fortress (Dan Stone Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84D030C22FF1D7E9DD2A6F1D32059F76E56B884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544586   (487874) от 09.09.2012
+
+VA - Progressive Trance (2012) [MP3|320 кб/с]<Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_487874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pluton - Don't Take Drugs (06:24)
+02. DJ Sakin - Take A Look (Club Mix) (06:08)
+03. Oberon - An Alien'S Feeling (06:35)
+04. Matthew Chame - Some (Vocal Mix) (06:15)
+05. Avalona - Seven Skies (Sunset Remix) (08:39)
+06. Eirik C - Deep Blue (Noel Gitman Opened Door Remix) (06:35)
+07. Planet King - Everything It Is Ok (Roger Cadiz Remix) (08:39)
+08. FB Alex - Explorer (06:14)
+09. Javah ft Xan - Vice Of Life (07:13)
+10. El Maritimo - Mediterranean Sunset (09:03)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 05:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6245D27AE5855586215ACCE1420EAF7EE059B67D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544260   (487713) от 09.09.2012
 
 VA - Euphoric Emotions Vol.35 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
@@ -6,7 +70,7 @@ VA - Euphoric Emotions Vol.35 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487713.jpg" />
+  <img src="Z:/picture/008/save_picture_487713.jpg" />
 </div>
 
 
@@ -41,7 +105,7 @@ VA - Trance Nation Summer Party (2020) [MP3|320 Kbps] <Trance, Uplifting, Progre
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487380.jpg" />
+  <img src="Z:/picture/008/save_picture_487380.jpg" />
 </div>
 
 
@@ -70,7 +134,7 @@ VA - Cyber World: Part Of Techno (2020) [MP3|320 Kbps] <Techno, Minimal, Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487378.jpg" />
+  <img src="Z:/picture/008/save_picture_487378.jpg" />
 </div>
 
 
@@ -99,7 +163,7 @@ VA - Uplifting DJ Master Mix (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486249.jpg" />
+  <img src="Z:/picture/008/save_picture_486249.jpg" />
 </div>
 
 
@@ -128,7 +192,7 @@ VA - Summer House (Special Edition) (Compiled by ZeByte) (2017) [MP3|320 Kbps] <
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486243.jpg" />
+  <img src="Z:/picture/008/save_picture_486243.jpg" />
 </div>
 
 
@@ -157,7 +221,7 @@ VA - Special Mix for Muskat Bar (mixed by Dj V & Dj Anton Shtager) (2016) [MP3|3
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486106.jpg" />
+  <img src="Z:/picture/008/save_picture_486106.jpg" />
 </div>
 
 
@@ -186,7 +250,7 @@ VA - Pacific Sound (2015) [MP3|320 кб/с]<Psy Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486060.jpg" />
+  <img src="Z:/picture/008/save_picture_486060.jpg" />
 </div>
 
 
@@ -215,7 +279,7 @@ VA - Desert Speaks: Progressive Themes (2017) [MP3|320 Kbps] <Progressive Trance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485675.jpg" />
+  <img src="Z:/picture/008/save_picture_485675.jpg" />
 </div>
 
 
@@ -244,7 +308,7 @@ VA - Trance Tattoe #22 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485265.jpg" />
+  <img src="Z:/picture/008/save_picture_485265.jpg" />
 </div>
 
 
@@ -279,7 +343,7 @@ VA - Future Ambient Electronic (2018) [MP3|320 Kbps] <Ambient, Downtempo, Electr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484723.jpg" />
+  <img src="Z:/picture/008/save_picture_484723.jpg" />
 </div>
 
 
@@ -308,7 +372,7 @@ VA - Record Super Chart 599 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484716.jpg" />
+  <img src="Z:/picture/008/save_picture_484716.jpg" />
 </div>
 
 
@@ -337,7 +401,7 @@ VA - The Best Lounge Vol.45 (Compiled by Sergio) (2016) [MP3|320 Kbps] <Chillout
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484258.jpg" />
+  <img src="Z:/picture/008/save_picture_484258.jpg" />
 </div>
 
 
@@ -366,7 +430,7 @@ VA - Trance Collection Vol.51 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional,
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484190.jpg" />
+  <img src="Z:/picture/008/save_picture_484190.jpg" />
 </div>
 
 
@@ -395,7 +459,7 @@ VA - Good Chilling Good Feeling (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lo
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484061.jpg" />
+  <img src="Z:/picture/008/save_picture_484061.jpg" />
 </div>
 
 
@@ -424,7 +488,7 @@ VA - Record Super Chart 651 (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483532.jpg" />
+  <img src="Z:/picture/008/save_picture_483532.jpg" />
 </div>
 
 
@@ -453,7 +517,7 @@ VA - Euphoric Emotions Vol.34 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483520.jpg" />
+  <img src="Z:/picture/008/save_picture_483520.jpg" />
 </div>
 
 
@@ -488,7 +552,7 @@ VA - crazyДвиж (2020) [MP3|320 Kbps] <Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482869.jpg" />
+  <img src="Z:/picture/008/save_picture_482869.jpg" />
 </div>
 
 
@@ -517,7 +581,7 @@ VA - Original House Mix: Electro Summer Party (2019) [MP3|320 Kbps] <House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482836.jpg" />
+  <img src="Z:/picture/008/save_picture_482836.jpg" />
 </div>
 
 
@@ -546,7 +610,7 @@ VA - The Best - In Music We Trust Vol.7 (2016) [MP3|320 Kbps] <House, Electro Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481879.jpg" />
+  <img src="Z:/picture/008/save_picture_481879.jpg" />
 </div>
 
 
@@ -575,7 +639,7 @@ VA - Vocal Dubstep - Dubstep Light#7 (2015) [MP3|320 кб/с]<Dubstep, UKG, Grim
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481814.jpg" />
+  <img src="Z:/picture/008/save_picture_481814.jpg" />
 </div>
 
 
@@ -604,7 +668,7 @@ VA - Vocal Dubstep - Dubstep Light#6 (2015) [MP3|320 кб/с]<Dubstep, UKG, Grim
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481721.jpg" />
+  <img src="Z:/picture/008/save_picture_481721.jpg" />
 </div>
 
 
@@ -633,7 +697,7 @@ VA - EDM Universal Nation (2019) [MP3|320 Kbps] <Dance, House, Techno, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481063.jpg" />
+  <img src="Z:/picture/008/save_picture_481063.jpg" />
 </div>
 
 
@@ -662,7 +726,7 @@ VA - Trance Eve Volume 42 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tranc
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481007.jpg" />
+  <img src="Z:/picture/008/save_picture_481007.jpg" />
 </div>
 
 
@@ -697,7 +761,7 @@ VA - Dubsteps Ahead (2012) [MP3|320 кб/с]<Dubstep>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480999.jpg" />
+  <img src="Z:/picture/008/save_picture_480999.jpg" />
 </div>
 
 
@@ -717,61 +781,6 @@ VA - Dubsteps Ahead (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D532849FBF93596FD23058609156AC5BCFD62FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545582   (480387) от 12.09.2012
-
-VA - Record Superchart № 257 (08.09.2012) [MP3|320 кб/с]<Electro House / Trance / Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electro House / Trance / DanceПродолжительность: 02:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11DB64F088C7015590D168632883893E335ED32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938547   (479997) от 19.09.2015
-
-VA - Trance Desire Volume 55 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn & Eskova - One More Night (Original Mix) (07:46)
-02. Meridian And Vidoven With Tiff Lacey - Phoenix (Original Mix) (07:39)
-03. Andy Moor & Somna feat. Amy Kirkpatrick - One Thing About You (Original Mix) (05:54)
-04. Emma Louise - 17 Hours (Luigi Lusini Remix) (06:36)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D709929AA43DF7516D8BEE16234BBF24EC7EFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

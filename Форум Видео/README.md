@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Все о кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055211.jpg" />
+  <img src="Z:/picture/005/save_picture_1055211.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051006.jpg" />
+  <img src="Z:/picture/005/save_picture_1051006.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050750.jpg" />
+  <img src="Z:/picture/005/save_picture_1050750.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047058.jpg" />
+  <img src="Z:/picture/005/save_picture_1047058.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ТехПомощь по Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454536.jpg" />
+  <img src="Z:/picture/008/save_picture_454536.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_382667.jpg" />
+  <img src="Z:/picture/005/save_picture_382667.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Top 250 IMDb со ссылками на наши релизы
 >>Все о кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_301521.jpg" />
+  <img src="Z:/picture/005/save_picture_301521.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Все о кино
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_125208.jpg" />
+  <img src="Z:/picture/005/save_picture_125208.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114427.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60527.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60407.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55761.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54225.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47201.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41534.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24501.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23075.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22943.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15123.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Новинки мирового проката
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9677.jpg" />
 </div>
 
 

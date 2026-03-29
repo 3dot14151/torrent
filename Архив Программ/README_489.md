@@ -6,7 +6,7 @@ Chromium 66.0.3326.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793959.jpg" />
+  <img src="Z:/picture/008/save_picture_793959.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Ant Download Manager PRO 1.7.2 Build 48121 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793951.jpg" />
+  <img src="Z:/picture/008/save_picture_793951.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793897.jpg" />
+  <img src="Z:/picture/008/save_picture_793897.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ K-Lite Codec Pack Update 13.7.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793891.jpg" />
+  <img src="Z:/picture/008/save_picture_793891.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ GPU-Z 2.7.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793887.jpg" />
+  <img src="Z:/picture/008/save_picture_793887.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ WSCC (Windows System Control Center) 7.0.0.1 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793859.jpg" />
+  <img src="Z:/picture/008/save_picture_793859.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ MKVToolNix 20.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793816.jpg" />
+  <img src="Z:/picture/008/save_picture_793816.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Rob Papen - Predator 2 1.0.3 VSTi, AAX (x86/x64) Repack by 2R2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793808.jpg" />
+  <img src="Z:/picture/008/save_picture_793808.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Dr.Web Security Space 12.0.0.12140 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793777.jpg" />
+  <img src="Z:/picture/008/save_picture_793777.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Spotify 1.1.72.439 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793756.jpg" />
+  <img src="Z:/picture/008/save_picture_793756.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ EZ CD Audio Converter 4.0.2.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793725.jpg" />
+  <img src="Z:/picture/008/save_picture_793725.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ SoftPerfect NetWorx 6.1.1.18022 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793696.jpg" />
+  <img src="Z:/picture/008/save_picture_793696.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Balabolka 2.11.0.644 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793691.jpg" />
+  <img src="Z:/picture/008/save_picture_793691.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ MetaProducts Offline Explorer Enterprise 7.5.4610 RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793687.jpg" />
+  <img src="Z:/picture/008/save_picture_793687.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Ventoy 1.0.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793680.jpg" />
+  <img src="Z:/picture/008/save_picture_793680.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Daum PotPlayer 1.7.7150 Stable RePack + Portable by 7sh3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793600.jpg" />
+  <img src="Z:/picture/008/save_picture_793600.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Boris FX Continuum OFX.11.0.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793594.jpg" />
+  <img src="Z:/picture/008/save_picture_793594.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Registry Life 3.27 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793567.jpg" />
+  <img src="Z:/picture/008/save_picture_793567.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ EZ CD Audio Converter 4.0.2.1 Ultimate [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793547.jpg" />
+  <img src="Z:/picture/008/save_picture_793547.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Aiseesoft Burnova 1.0.6.61821 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793515.jpg" />
+  <img src="Z:/picture/008/save_picture_793515.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ SRWare Iron 50.0.2650.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793442.jpg" />
+  <img src="Z:/picture/008/save_picture_793442.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Gilisoft Video Editor 7.4.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793410.jpg" />
+  <img src="Z:/picture/008/save_picture_793410.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ EZ CD Audio Converter 4.0.2.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793397.jpg" />
+  <img src="Z:/picture/008/save_picture_793397.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ OCCT 6.0.0.99 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793391.jpg" />
+  <img src="Z:/picture/008/save_picture_793391.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ AdwCleaner 5.115 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793388.jpg" />
+  <img src="Z:/picture/008/save_picture_793388.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ MediaHuman YouTube Downloader 3.9.9.39 (2905) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793383.jpg" />
+  <img src="Z:/picture/008/save_picture_793383.jpg" />
 </div>
 
 

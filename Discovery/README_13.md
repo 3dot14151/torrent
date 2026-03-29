@@ -6,7 +6,7 @@ Discovery: Коварная Земля / Rogue Earth (2018) HDTVRip [H.264/1080p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555169.jpg" />
+  <img src="Z:/picture/008/save_picture_555169.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Discovery: История изобретений. С чего всё начин�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553075.jpg" />
+  <img src="Z:/picture/008/save_picture_553075.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551783.jpg" />
+  <img src="Z:/picture/008/save_picture_551783.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551736.jpg" />
+  <img src="Z:/picture/008/save_picture_551736.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551733.jpg" />
+  <img src="Z:/picture/008/save_picture_551733.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Discovery: Разрушители легенд / MythBusters (2016) HDTVRip (С�
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551692.jpg" />
+  <img src="Z:/picture/008/save_picture_551692.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551678.jpg" />
+  <img src="Z:/picture/008/save_picture_551678.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Discovery: Разрушители легенд / MythBusters (2016) WEB-DLRip [H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551649.jpg" />
+  <img src="Z:/picture/008/save_picture_551649.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Discovery. Короли столярного дела  / Redwood KINGS (2013) HD
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549345.jpg" />
+  <img src="Z:/picture/008/save_picture_549345.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Discovery: Эд Стаффорд: Выживание без купюр (Голо
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548910.jpg" />
+  <img src="Z:/picture/008/save_picture_548910.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547624.jpg" />
+  <img src="Z:/picture/008/save_picture_547624.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Discovery. Титаник. Ответы из Бездны / Titanic. Answers fro
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546464.jpg" />
+  <img src="Z:/picture/008/save_picture_546464.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545982.jpg" />
+  <img src="Z:/picture/008/save_picture_545982.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip [H.264/720p
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544619.jpg" />
+  <img src="Z:/picture/008/save_picture_544619.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTV [H.26
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544501.jpg" />
+  <img src="Z:/picture/008/save_picture_544501.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542219.jpg" />
+  <img src="Z:/picture/008/save_picture_542219.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Discovery:  Жизнь отвратительных животных / Nasty by 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542139.jpg" />
+  <img src="Z:/picture/008/save_picture_542139.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Discovery: Искусство выживания Рэя Мирса / Ray Mears B
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541825.jpg" />
+  <img src="Z:/picture/008/save_picture_541825.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540330.jpg" />
+  <img src="Z:/picture/008/save_picture_540330.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Discovery. Новые захоронения Египта / Egypt's New Tomb Rev
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538460.jpg" />
+  <img src="Z:/picture/008/save_picture_538460.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536826.jpg" />
+  <img src="Z:/picture/008/save_picture_536826.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Discovery: Неделя акул / Shark Week (2017) HDTVRip [H.264/720p-LQ] (С
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536755.jpg" />
+  <img src="Z:/picture/008/save_picture_536755.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Discovery: Люди: Кто мы? Нашествие людей / People: Who ar
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536152.jpg" />
+  <img src="Z:/picture/008/save_picture_536152.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Discovery: Войны за моллюсков / Dive Wars Australia (2014) HDTVR
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534448.jpg" />
+  <img src="Z:/picture/008/save_picture_534448.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Discovery. GameStop: вызов Уолл-стрит / GameStop: The Wallstreet H
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528587.jpg" />
+  <img src="Z:/picture/008/save_picture_528587.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Discovery: Кто подставил Иисуса? / Who Framed Jesus? (2010) SA
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527305.jpg" />
+  <img src="Z:/picture/008/save_picture_527305.jpg" />
 </div>
 
 

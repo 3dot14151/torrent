@@ -1,3 +1,30 @@
+###  Публикация: 1684950   (127450) от 17.12.2023
+
+Bratec Lis School, Элиза Талентино | Эффекты гравюры: цифровой образ с аналоговой душой (2023) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Освойте новый подход к созданию иллюстрации, погрузившись в экспериментальную технику – синтез гравюры на металле, живописи и современной цифровой иллюстрации. Найдите оригинальный стиль и обогатите свой творческий процесс.
+Вместе с иллюстратором из Италии Элизой Талентино будем создавать образы, наполненные уникальными, необычными эффектами, вдохновляясь средневековой (   Читать дальше...   )Производство: Bratec Lis SchoolЖанр: РисованиеЯзык озвучки: РусскийПродолжительность: 01:56:04Реклама: Наложение на видео, видео вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABC1FB487E5EAFD5DBF5E28BF26C7A417C85F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684941   (127435) от 17.12.2023
 
 Enterclass, Софья Романова | Озимое поле (2023) WEB-DL [AD] [RU]
@@ -6,7 +33,7 @@ Enterclass, Софья Романова | Озимое поле (2023) WEB-DL [A
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127435.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Udemy, Jones Granatyr | Midjourney in 2 hours: Practical Guide for Beginners Dis
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127316.jpg" />
 </div>
 
 
@@ -61,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126965.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126943.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126943.jpg" />
 </div>
 
 
@@ -119,7 +146,7 @@ KalachevaSchool, Татьяна Головко | Digital сафари. Тари�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126931.jpg" />
 </div>
 
 
@@ -147,7 +174,7 @@ Udemy, Thomas Harle | Unreal 5 Niagara - Advanced Niagara (2023) WEB-DL [EN, RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126145.jpg" />
 </div>
 
 
@@ -176,7 +203,7 @@ Udemy, Oner Oncer | 3ds Max + Corona Render Photorealistic 3D Rendering Course (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126131.jpg" />
 </div>
 
 
@@ -202,7 +229,7 @@ Asya-Design, Александра Бавыкина | 3D моделировани
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126103.jpg" />
 </div>
 
 
@@ -228,7 +255,7 @@ Asya-Design, Александра Бавыкина | Курс по 3D визуа
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125763.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ Udemy, Neil Bettison | The Blender 4 Ultimate Guide (2023) WEB-DL [EN] [RU]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125678.jpg" />
 </div>
 
 
@@ -282,7 +309,7 @@ Kalacheva School, Анна Цымбал | Новые основы леттери
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125629.jpg" />
 </div>
 
 
@@ -309,7 +336,7 @@ Granich.Design, Саша Буяк, Вадим Гранич | Графсисте�
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125493.jpg" />
 </div>
 
 
@@ -336,7 +363,7 @@ Granich.Design, Вадим Гранич | Графсистема Нео-Гео (
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125483.jpg" />
 </div>
 
 
@@ -363,7 +390,7 @@ Lectoroom, Мария Павлова | Разноцветные пионы в к
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125449.jpg" />
 </div>
 
 
@@ -390,7 +417,7 @@ Domestika, Jessica Roux | Natural Illustration with Digital Painting (2023) WEB-
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125351.jpg" />
 </div>
 
 
@@ -417,7 +444,7 @@ Udemy, Louay Zambarakji | The Complete Adobe After Effects Bootcamp: Basic to Ad
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125241.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125241.jpg" />
 </div>
 
 
@@ -445,7 +472,7 @@ Brick Visual, Andras Káldos, István Lovák, Péter Pazsiczky | Post-production
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125222.jpg" />
 </div>
 
 
@@ -473,7 +500,7 @@ Kaplan School, Диана Горбач | Танцующая кисть (2023) WE
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125084.jpg" />
 </div>
 
 
@@ -499,7 +526,7 @@ Udemy, Gregory Warner | Fundamentals of Affinity Designer (2018) WEB-DL [EN, RU 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125077.jpg" />
 </div>
 
 
@@ -527,7 +554,7 @@ Udemy, Jeremy Hazel | Affinity Designer - Design artistic text and Create Fonts 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125050.jpg" />
 </div>
 
 
@@ -555,7 +582,7 @@ Domestika, Nick Liefhebber | Illustrated pattern design: Eye catching vector ill
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124705.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124705.jpg" />
 </div>
 
 
@@ -582,7 +609,7 @@ Udemy, Jestoni Esteban | Affinity Designer: A Comprehensive Guide for Beginners 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124683.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ Udemy, Thomas Harle | Unreal 5 Niagara - Introduction To Niagara (2023) WEB-DL [
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124593.jpg" />
 </div>
 
 
@@ -635,7 +662,7 @@ Enterclass, Владислав Татаринов | Такая разная во
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124576.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124576.jpg" />
 </div>
 
 
@@ -661,7 +688,7 @@ Artstation, Michael Gerard | Unreal Complete Scene - Forest Environment (2023) W
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124443.jpg" />
 </div>
 
 
@@ -673,35 +700,6 @@ Artstation, Michael Gerard | Unreal Complete Scene - Forest Environment (2023) W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9845A0104D9D9E0CEC9049330202829125927180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689424   (124418) от 04.01.2024
-
-FastTrackTutorials, Tilmann Milde | Ultimate Lighting Course - In-Depth Tutorial (2023) WEB-DL [EN / EN, ES, CN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ultimate Lighting — углубленный учебный курс
-Узнайте, как работает профессиональный художник по свету, создавая освещение и настроение не только для больших и открытых помещений, но и для всего: от базовой теории освещения и технических концепций до расширения портфолио, рендеринга с великолепной композицией и чистой презентацией!
-
-СВЯТОЙ ГРААЛЬ ОСВЕЩЕНИЯ: ЛЮМЕН (   Читать дальше...   )Производство: FastTrackTutorialsЖанр: ВидеокурсЯзык озвучки: АнглийскийСубтитры: Английский, Испанский, КитайскийПродолжительность: 17:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0471C84D88AC87DAC197C31F9506943E1AC96E
 ```
 
 https://mybot314.ru/tekegram_catalog/

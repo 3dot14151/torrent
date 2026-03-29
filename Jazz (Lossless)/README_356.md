@@ -1,3 +1,119 @@
+###  Публикация: 1801960   (66109) от 14.06.2025
+
+The Swingfield Big Band - Big Band Favorites (2009) 2CD, Reflections [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight Serenade [4:06]
+02. I'll Be Seeing You [4:40]
+03. Over the Rainbow [4:45]
+04. Moon River [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9C8ABA120C1E4BF31FC294436745E11D0C9345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802275   (66095) от 15.06.2025
+
+V.A. - Best of BOSSA NOVA COVERS (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 48th St. Collective - Beautiful Things
+02. Amazonics - Heart of Glass
+03. Sarah Menescal - Vogue
+04. Nenei - L'AMOUR DE MA VIE(   Читать дальше...   )Жанр: Bossa Nova, Pop JazzПродолжительность: 01:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE81F5A7F85D0F73126D1FB2C078CF3CE44877F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802247   (66091) от 15.06.2025
+
+Michael Kaeshammer - The Pianist (2015) Self-Released [FLAC|Lossless|tracks + .cue] <Stride, Boogie-Woogie, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicago Breakdown [2:24]
+02. Lands End Parade [3:07]
+03. Stomp [2:54]
+04. Autumn Leaves [3:31](   Читать дальше...   )Жанр: Stride, Boogie-Woogie, Piano JazzПродолжительность: 00:29:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8014EE2606C818F4306ABF1386DFF0D1A69EF56E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802480   (66043) от 17.06.2025
+
+The Great Jazz Trio - At The Village Vanguard (1977) 2000, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moose the Mooche [6:11]
+02. Naima [11:40]
+03. Favors [9:31]
+04. 12+12 [9:31]Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCB5DAEC177A4CB64CB6E7C29D36C1E09607E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802603   (66015) от 18.06.2025
 
 Seth MacFarlane - Blue Skies (2022) Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ Seth MacFarlane - Blue Skies (2022) Verve [FLAC|Lossless|tracks + .cue] <Vocal J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66015.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Pieces Of A Dream - We Got This (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66014.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Eliane Elias - Dance Of Time (2017) Concord Jazz [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65971.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Sunny Day Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65969.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Eliane Elias - So Far So Close (1989) Blue Note [FLAC|Lossless|tracks + .cue] <L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65966.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Count Basie - The Standards (1989) CD, Compilation, Club Edition [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65963.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Miles Davis - Kind of Blue (1997) CD, Album, Reissue, Remastered [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65961.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Caravan Palace - Dusty House Mix (Mixed) (2025) [FLAC|Lossless|WEB-DL|tracks] <E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65940.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Sea Breeze & Papik - Go Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Sou
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65913.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Sonny Rollins - Freedom Weaver (1959) 3CD, 2024, Resonance Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65843.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Chilly Swing Band - Study Jazz with the Feel of a Spring Breeze (2025) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65829.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Ds Dream Band Stillminati - Electro Swing Classics (2025) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65826.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VibeSeeker - Electro Swing 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Elec
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65823.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Eddie Palmieri & Cal Tjader - Bamboleate (1967) 2007, Fania Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65812.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Chilly Swing Band - Music to Listen to in The Middle of Your Work (2025) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65808.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Tom Talbert Orchestra - This Is Living! (1997) [FLAC|Lossless|tracks + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65806.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Jimmy Smith - Four Classic Albums (1957 - 1960) 2CD, 2018, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65767.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Emanuel Kiriakou - Instrumental Blues (1998) [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65765.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Pasquale Grasso - Fervency (2025) Sony Music [FLAC|Lossless|tracks + .cue] <Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65726.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Chillaxing Jazz Kollektion - Groove Jazz N Chill #10 (2025) [FLAC|Lossless|WEB-D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65717.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65712.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Georgia Mancio & Alan Broadbent - Songbook (2017) Roomspin Records [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65701.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Georgia Mancio & Alan Broadbent - Songbook (2017) Roomspin Records [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29E6708CA09C1688008D18A74FC98A8F7FD75A59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804264   (65692) от 28.06.2025
-
-Paul Brown - So Much To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  So Much To Say (3:57)
-02.  Summertime (4:17)
-03.  Vice Versa (4:13)
-04.  My Sweet Baby (3:47)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:446BF38C14540AF3B829C49F46877FCF7F317739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804356   (65619) от 29.06.2025
-
-Bennie Green - with Art Farmer (1956) 1992, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Blue Heaven [5:27]
-02. Skycoach [5:31]
-03. Cliff Dweller [5:51]
-04. Let's Stretch [10:52](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4011BA41879DE8041D612CDF327A7DEC0D686D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804650   (65584) от 01.07.2025
-
-Funk Windows - Funk Tape (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Africana Streat (3:21)
-02.  Africana Street (Instrumental) (3:21)
-03.  Afrika Shine (3:44)
-04.  After Day (2:55)(   Читать дальше...   )Жанр: FunkПродолжительность: 02:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F164EA685C5B92981B2291D37E3362B4A54AB42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804651   (65580) от 01.07.2025
-
-TJ Edit - Disco Funk Archive (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Out Of Day (3:28)
-02.  Soul Naked (3:03)
-03.  Now Fllies (5:38)
-04.  On The Floor (3:44)(   Читать дальше...   )Жанр: FunkПродолжительность: 02:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B526CDCF81290063CA14DCBCB9C8B1CA173672C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

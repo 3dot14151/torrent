@@ -1,3 +1,32 @@
+###  Публикация: 1166729   (419252) от 19.09.2017
+
+Александр Круковский | Просветление. Взгляд изнутри (2017) [DOCX]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_419252.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой современный взгляд на основы просветления.
+Автор старается развеять распространённые домыслы и заблуждения.
+Просветление доступно Всем. Здесь и сейчас. Абсолютно бесплатно.
+Довольно серьёзное заявление, по предмету который превратился в серьёзный бизнес, как для религиозных общин, так и для разного рода Гуру.(   Читать дальше...   )Жанр: Дзен, Буддизм, ПросветлениеФормат: DOCX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE04445EFAD3AA1A974870B4057D5F081A29BACC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 831447   (417585) от 16.10.2014
 
 М.А. Головач (ред.) | Встреча [The Meeting] (2006) [DJVU] [Ru, En]
@@ -6,7 +35,7 @@
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417585.jpg" />
+  <img src="Z:/picture/008/save_picture_417585.jpg" />
 </div>
 
 
@@ -32,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417583.jpg" />
+  <img src="Z:/picture/008/save_picture_417583.jpg" />
 </div>
 
 
@@ -58,7 +87,7 @@ De.S., Trux | Тёмные культы. Проверка на вирусы со
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417454.jpg" />
+  <img src="Z:/picture/008/save_picture_417454.jpg" />
 </div>
 
 
@@ -84,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417310.jpg" />
+  <img src="Z:/picture/008/save_picture_417310.jpg" />
 </div>
 
 
@@ -111,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417008.jpg" />
+  <img src="Z:/picture/008/save_picture_417008.jpg" />
 </div>
 
 
@@ -138,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417001.jpg" />
+  <img src="Z:/picture/008/save_picture_417001.jpg" />
 </div>
 
 
@@ -164,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416987.jpg" />
+  <img src="Z:/picture/008/save_picture_416987.jpg" />
 </div>
 
 
@@ -190,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413336.jpg" />
+  <img src="Z:/picture/008/save_picture_413336.jpg" />
 </div>
 
 
@@ -216,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412328.jpg" />
+  <img src="Z:/picture/008/save_picture_412328.jpg" />
 </div>
 
 
@@ -242,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411376.jpg" />
+  <img src="Z:/picture/008/save_picture_411376.jpg" />
 </div>
 
 
@@ -268,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410385.jpg" />
+  <img src="Z:/picture/008/save_picture_410385.jpg" />
 </div>
 
 
@@ -294,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410379.jpg" />
+  <img src="Z:/picture/008/save_picture_410379.jpg" />
 </div>
 
 
@@ -321,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404934.jpg" />
+  <img src="Z:/picture/008/save_picture_404934.jpg" />
 </div>
 
 
@@ -350,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401314.jpg" />
+  <img src="Z:/picture/008/save_picture_401314.jpg" />
 </div>
 
 
@@ -376,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399303.jpg" />
+  <img src="Z:/picture/008/save_picture_399303.jpg" />
 </div>
 
 
@@ -403,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386836.jpg" />
+  <img src="Z:/picture/008/save_picture_386836.jpg" />
 </div>
 
 
@@ -429,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385181.jpg" />
+  <img src="Z:/picture/008/save_picture_385181.jpg" />
 </div>
 
 
@@ -456,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385102.jpg" />
+  <img src="Z:/picture/008/save_picture_385102.jpg" />
 </div>
 
 
@@ -483,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384817.jpg" />
+  <img src="Z:/picture/008/save_picture_384817.jpg" />
 </div>
 
 
@@ -510,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383291.jpg" />
+  <img src="Z:/picture/008/save_picture_383291.jpg" />
 </div>
 
 
@@ -536,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379373.jpg" />
+  <img src="Z:/picture/008/save_picture_379373.jpg" />
 </div>
 
 
@@ -564,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377867.jpg" />
+  <img src="Z:/picture/008/save_picture_377867.jpg" />
 </div>
 
 
@@ -597,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377023.jpg" />
+  <img src="Z:/picture/008/save_picture_377023.jpg" />
 </div>
 
 
@@ -625,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375975.jpg" />
+  <img src="Z:/picture/008/save_picture_375975.jpg" />
 </div>
 
 
@@ -651,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Эзотерика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374901.jpg" />
+  <img src="Z:/picture/008/save_picture_374901.jpg" />
 </div>
 
 
@@ -666,33 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0C0F18B0BEE03130FD391B9C28BB351CE8B8104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416110   (371425) от 14.10.2020
-
-Татьяна Борщ | Астрологический прогноз на все случаи жизни. Самый полный гороскоп на 2021 год (2020) [EPUB]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Движение небесных тел играло огромную роль на протяжении всей истории человечества. Наши предки не только знали, что приливы и отливы тесно связаны с фазами луны, но и отмечали особую связь между звездами и течением жизни. И постепенно научились читать их. Так появилась астрология.
-В давние времена астрология была привилегией королей, но сегодня приобщиться к источнику (   Читать дальше...   )Жанр: Астрология, Практическая эзотерикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D85BA73A4C00155901B0675DA798493A89A65A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

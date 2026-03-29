@@ -1,3 +1,160 @@
+###  Публикация: 520782   (629189) от 10.07.2012
+
+Al Kooper - Soul Of A Man & White Chocolate (1995 - 2008) [FLAC|Lossless]<Blues, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_629189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Time [04:55]
+02. You Never Know Til You Get There [04:04]
+03. Calling You [04:53]
+04. I Love You More Than Words Can Say [05:31]
+05. It Takes A Lot To Laugh (It Takes A Train To Cry) [04:46]
+06. I Cried So Hard [04:21]
+07. Staxability [04:04]
+08. You Make Me Feel So Good (All Over) [04:25]
+09. Susan [03:52]
+10. Hold On (Feat Catharine Russell) [03:51](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:02:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520876   (629084) от 10.07.2012
+
+It Bites - Map of The Past (2CD) (2012) [FLAC|Lossless]<Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_629084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man In The Photograph (3:46)
+02. Wallflower (4:50)
+03. Map Of The Past (4:37)
+04. Clocks (5:44)
+05. Flag (4:36)
+06. The Big Machine (5:19)
+07. Cartoon Graveyard (5:03)
+08. Send No Flowers (4:15)
+09. Meadow And The Stream (6:42)
+10. The Last Escape (6:06)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:52:40 / 00:56:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035159   (628669) от 16.07.2016
+
+Cartoon Theory - Planet Geisha (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Djent, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628669.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hypnotic Nova's Dance (feat. Plini and Luke Martin)
+2. O'Hanami 花見
+3. Wizardry Mind (feat. Plini)
+4. Planet Geisha I Sacred Geometry (feat. Plini & David Maxim Micic)(   Читать дальше...   )Жанр: Progressive Metal, Djent, ElectronicПродолжительность: 0:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085DED3EB8D8E66A1C8A691B644B5244286727FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035155   (628642) от 16.07.2016
+
+Neko Case, k.d. lang, Laura Veirs aka case-lang-veirs - case-lang-veirs (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Indie, Folk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628642.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Atomic Number 02:57
+2. Honey and Smoke
+3. Song for Judee
+4. Blue Fires(   Читать дальше...   )Жанр: Indie, Folk, RockПродолжительность: 0:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D2CE73B5CC2B5CD70C28613BA9E7D9112C2F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035293   (628537) от 16.07.2016
+
+Steven Tyler - We're All Somebody From Somewhere (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_628537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Own Worst Enemy (5:11)
+02. Were All Somebody From Somewhere (2:58)
+03. Hold On (Wont Let Go) (2:53)
+04. It Aint Easy (4:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6875D2371EFFB0D1570786065DFDFA60A84415A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909417   (628058) от 17.06.2015
 
 Emergency - 2 Альбома (1971-1972) Reissue, Remastered /2005, Green Tree/ [FLAC|image+.cue, track+.cue]<Jazz-Rock, Brass, Prog Rock>
@@ -6,7 +163,7 @@ Emergency - 2 Альбома (1971-1972) Reissue, Remastered /2005, Green Tree/ 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628058.jpg" />
+  <img src="Z:/picture/008/save_picture_628058.jpg" />
 </div>
 
 
@@ -34,7 +191,7 @@ Big Paul Ferguson - Remote Viewing  Reboot (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627964.jpg" />
+  <img src="Z:/picture/008/save_picture_627964.jpg" />
 </div>
 
 
@@ -63,7 +220,7 @@ Mike Campbell & The Dirty Knobs - External Combustion (2022) [FLAC|Lossless|WEB-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627899.jpg" />
+  <img src="Z:/picture/008/save_picture_627899.jpg" />
 </div>
 
 
@@ -92,7 +249,7 @@ Paul Simon - The Paul Simon Anthology (1993) Unofficial Release [APE|Lossless|im
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626707.jpg" />
+  <img src="Z:/picture/008/save_picture_626707.jpg" />
 </div>
 
 
@@ -121,7 +278,7 @@ Roxette - Joyride (1993) Unofficial Release [APE|Lossless|image + .cue] <Pop Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626651.jpg" />
+  <img src="Z:/picture/008/save_picture_626651.jpg" />
 </div>
 
 
@@ -150,7 +307,7 @@ Darryl Way - Vivaldi's Four Seasons In Rock (2018) [FLAC|Lossless|image + .cue] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626459.jpg" />
+  <img src="Z:/picture/008/save_picture_626459.jpg" />
 </div>
 
 
@@ -179,7 +336,7 @@ Steve Perry (Ex. Journey) - Street Talk / For The Love Of Strange Medicine (1984
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_624834.jpg" />
+  <img src="Z:/picture/005/save_picture_624834.jpg" />
 </div>
 
 
@@ -209,7 +366,7 @@ Graham Oliver - End Of An Era (2001) [FLAC|Lossless|image + .cue] <Blues Rock, H
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624729.jpg" />
+  <img src="Z:/picture/008/save_picture_624729.jpg" />
 </div>
 
 
@@ -238,7 +395,7 @@ The BossHoss - Internashville Urban Hymns (2005) [FLAC|Lossless|image + .cue] <R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624713.jpg" />
+  <img src="Z:/picture/008/save_picture_624713.jpg" />
 </div>
 
 
@@ -267,7 +424,7 @@ Blue Floyd - Live in Detroit (2014) 3xCD [FLAC|Lossless|image + .cue] <Progressi
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623683.jpg" />
+  <img src="Z:/picture/008/save_picture_623683.jpg" />
 </div>
 
 
@@ -296,7 +453,7 @@ Sound Of Smoke - Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623587.jpg" />
+  <img src="Z:/picture/008/save_picture_623587.jpg" />
 </div>
 
 
@@ -325,7 +482,7 @@ Rainbow (Ritchie Blackmore's Rainbow) - Since You Been Gone: The Essential Rainb
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623505.jpg" />
+  <img src="Z:/picture/008/save_picture_623505.jpg" />
 </div>
 
 
@@ -354,7 +511,7 @@ Smokie - Gold (1975-2015) Deluxe Edition (2015) 2CD [FLAC|Lossless]<Pop rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623410.jpg" />
+  <img src="Z:/picture/008/save_picture_623410.jpg" />
 </div>
 
 
@@ -383,7 +540,7 @@ Pink Floyd - Ummagumma (1969) 2 CD Box Set, Remaster /1994, EMI Records/ [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622684.jpg" />
+  <img src="Z:/picture/008/save_picture_622684.jpg" />
 </div>
 
 
@@ -412,7 +569,7 @@ Rockets - Space Rock: Greatest Hits (5CD Box Set) (2014) [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622515.jpg" />
+  <img src="Z:/picture/008/save_picture_622515.jpg" />
 </div>
 
 
@@ -441,7 +598,7 @@ Frank Migliorelli and The Dirt Nappers - The Things You Left Behind (2019) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622507.jpg" />
+  <img src="Z:/picture/008/save_picture_622507.jpg" />
 </div>
 
 
@@ -470,7 +627,7 @@ Tony Carey - The Boystown Tapes Reissued (2006) [FLAC|image+.cue]<Progressive Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622120.jpg" />
+  <img src="Z:/picture/008/save_picture_622120.jpg" />
 </div>
 
 
@@ -499,7 +656,7 @@ The Reign of Kindo - 3 альбома, 1 EP (2007 - 2013) [FLAC|Lossless]<Indie,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_622037.jpg" />
+  <img src="Z:/picture/005/save_picture_622037.jpg" />
 </div>
 
 
@@ -534,7 +691,7 @@ Bill Wyman - Back To Basics (2015) [FLAC|Lossless]<Rock, Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621901.jpg" />
+  <img src="Z:/picture/008/save_picture_621901.jpg" />
 </div>
 
 
@@ -563,7 +720,7 @@ The Beatles - Abbey Road (1969) Remastered, Stereo /Parlophone, Toshiba EMI/ [FL
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621551.jpg" />
+  <img src="Z:/picture/008/save_picture_621551.jpg" />
 </div>
 
 
@@ -592,7 +749,7 @@ Diana Rein - Long Road (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621160.jpg" />
+  <img src="Z:/picture/008/save_picture_621160.jpg" />
 </div>
 
 
@@ -606,157 +763,6 @@ Diana Rein - Long Road (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4BC72744641B25182E76CF1278E0348A06D5BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036143   (621001) от 20.07.2016
-
-Tim Montana and The Shrednecks - Tim Montana and The Shrednecks (2016) feat. Billy F. Gibbons of ZZ Top [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621001.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fifty Fifty (feat. Billy F Gibbons)
-2. Gravel Road
-3. Low Class
-4. Weed and Whiskey (feat. Billy F Gibbons)(   Читать дальше...   )Жанр: Southern Rock, Country RockПродолжительность: 0:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65576BB943477F7C25BF8A367BEBC60A687E4E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522819   (620549) от 14.07.2012
-
-VA - Rock Ballads - The Most Beautiful Classic Rock Songs (2004) [FLAC|Lossless]<Alternative Rock, Pop Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_620549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jeff Healey Band - While My Guitar Gently Weeps
-02. David Bowie - Starman
-03. Chad Kroeger Feat. Josey Scott - Hero
-04. Santana - Samba Pa Ti
-05. Bryan Ferry and Roxy Music - Jealous Guy
-06. Phil Collins - Another Day in Paradise
-07. The Corrs - Only When I Sleep
-08. Roxette - It Must Have Been Love
-09. Marillion - Kayleigh
-10. Toto - Africa(   Читать дальше...   )Жанр: Rock Ballads |Продолжительность: 01:15:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910808   (620119) от 21.06.2015
-
-VA - Heart Rock vol.1 (1989) 2CD[FLAC|tracks + .cue]<Soft Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prince And The Revolution - Purple Rain [4:07]
-02. Enya - Orinoco Flow [3:46]
-03. Chris Rea - Josephine [4:27]
-04. John Farnham - Youre The Voice [5:04](   Читать дальше...   )Жанр: Soft Rock, PopПродолжительность: 02:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8368B7946299C2E5411C4D91834FBD2BF2977D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145658   (619988) от 26.06.2017
-
-Heart - Magazine (1978) Reissue, 1995, Gema Special Markets [FLAC|Lossless|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartless
-02. Devil Delight
-03. Just The Wine
-04. Without You(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6284903243C23ED63B2B5F55FBD1B76EE7BFD6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145726   (619821) от 26.06.2017
-
-The Brian Jonestown Massacre - Don't Get Lost (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Minds Now Close (8:16)
-02. Melodys Actual Echo Chamber (3:50)
-03. Resist Much Obey Little (4:03)
-04. Charmed I'm Sure , (3:00)(   Читать дальше...   )Жанр: Indie Rock, PsychedelicПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C162081A6BD7AFEAFF68E3006C47781B29A7475
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 143131   (454516) от 29.09.2009
+
+Воровайки - XI - 11 альбом (2009) [MP3|320 kbps]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_454516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мотыльки
+02. Как трудно ждать
+03. Петухи
+04. Душа любви
+05. Дочь воровайки
+06. Пацанчик
+07. Белая чайка
+08. Ромео и Джульета
+09. Занозы души
+10. На Таганке(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409348   (447035) от 16.09.2020
+
+Виталий Аксёнов - Прорвёмся! (2020) [MP3|320 Kbps] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Мечта 3:43
+02 Золотой хлеб 4:00
+03 Бездна 3:50
+04 Семицветик 3:56(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E0BD83E6090A01CC62C07370F82CAC0957C4FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167867   (414719) от 21.09.2017
 
 Андрей Климнюк - Наш паровоз (2017) [MP3|320 Kbps] <Шансон>
@@ -6,7 +70,7 @@
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414719.jpg" />
+  <img src="Z:/picture/008/save_picture_414719.jpg" />
 </div>
 
 
@@ -35,7 +99,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_413424.jpg" />
+  <img src="Z:/picture/005/save_picture_413424.jpg" />
 </div>
 
 
@@ -70,7 +134,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410653.jpg" />
+  <img src="Z:/picture/008/save_picture_410653.jpg" />
 </div>
 
 
@@ -99,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408459.jpg" />
+  <img src="Z:/picture/008/save_picture_408459.jpg" />
 </div>
 
 
@@ -128,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407665.jpg" />
+  <img src="Z:/picture/008/save_picture_407665.jpg" />
 </div>
 
 
@@ -157,7 +221,7 @@ VA - 3D коллекция Бутырка, Иван Кучин, Сергей Н�
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406262.jpg" />
+  <img src="Z:/picture/008/save_picture_406262.jpg" />
 </div>
 
 
@@ -186,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403927.jpg" />
+  <img src="Z:/picture/008/save_picture_403927.jpg" />
 </div>
 
 
@@ -215,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402046.jpg" />
+  <img src="Z:/picture/008/save_picture_402046.jpg" />
 </div>
 
 
@@ -250,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398928.jpg" />
+  <img src="Z:/picture/008/save_picture_398928.jpg" />
 </div>
 
 
@@ -285,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398905.jpg" />
+  <img src="Z:/picture/008/save_picture_398905.jpg" />
 </div>
 
 
@@ -320,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396190.jpg" />
+  <img src="Z:/picture/005/save_picture_396190.jpg" />
 </div>
 
 
@@ -355,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_392776.jpg" />
+  <img src="Z:/picture/005/save_picture_392776.jpg" />
 </div>
 
 
@@ -390,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391547.jpg" />
+  <img src="Z:/picture/008/save_picture_391547.jpg" />
 </div>
 
 
@@ -419,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387762.jpg" />
+  <img src="Z:/picture/008/save_picture_387762.jpg" />
 </div>
 
 
@@ -448,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383642.jpg" />
+  <img src="Z:/picture/008/save_picture_383642.jpg" />
 </div>
 
 
@@ -477,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383448.jpg" />
+  <img src="Z:/picture/008/save_picture_383448.jpg" />
 </div>
 
 
@@ -506,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381951.jpg" />
+  <img src="Z:/picture/008/save_picture_381951.jpg" />
 </div>
 
 
@@ -535,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377104.jpg" />
+  <img src="Z:/picture/008/save_picture_377104.jpg" />
 </div>
 
 
@@ -564,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371022.jpg" />
+  <img src="Z:/picture/008/save_picture_371022.jpg" />
 </div>
 
 
@@ -599,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370559.jpg" />
+  <img src="Z:/picture/008/save_picture_370559.jpg" />
 </div>
 
 
@@ -634,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368670.jpg" />
+  <img src="Z:/picture/008/save_picture_368670.jpg" />
 </div>
 
 
@@ -669,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368666.jpg" />
+  <img src="Z:/picture/008/save_picture_368666.jpg" />
 </div>
 
 
@@ -704,7 +768,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368190.jpg" />
+  <img src="Z:/picture/008/save_picture_368190.jpg" />
 </div>
 
 
@@ -739,7 +803,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский Шансон
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366278.jpg" />
+  <img src="Z:/picture/008/save_picture_366278.jpg" />
 </div>
 
 
@@ -753,64 +817,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7961793ECB15D97ABDAD5BDCD779DE4A84DA5FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683403   (357417) от 31.10.2015
-
-Сергей Трофимов - 100 лучших композиций (2013) [MP3|320 кб/с]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снегири
-02. Моему другу
-03. Петушки
-04. Я и ты(   Читать дальше...   )Жанр: ШансонПродолжительность: 05:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9ACD908C0871C6B8EB37403E0DA38D87B45A87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329098   (356295) от 03.10.2019
-
-Воровайки - Начало (2019) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356295.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Америкосы
-2. Добрый вечер, дорогой
-3. Муха
-4. Разные маршруты(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDF20440C31D713FE9E4A06ADF56FCE3AD86495
 ```
 
 https://mybot314.ru/tekegram_catalog/

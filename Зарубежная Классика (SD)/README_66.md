@@ -1,3 +1,81 @@
+###  Публикация: 1049228   (532257) от 11.09.2016
+
+Боб и Кэрол, Тед и Элис / Bob & Carol & Ted & Alice (1969) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боб и Кэрол Сандерз — весьма необычная супружеская пара из Калифорнии, которые любят групповое мышление без комплексов. Желая разнообразить свою половую жизнь, они решают совершить сексуальный эксперимент, вступив для этого в интимную связь с другой парой. Тед и Элис Хендерсон — более традиционная пара, которая всегда с интересом выслушивает истории о провокационном (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Frankovich ProductionsЖанр: Драма, КомедияРежиссер: Пол МазурскиАктеры: Натали Вуд, Роберт Калп, Эллиотт Гулд, Дайан Кэннон, Хорст Эберсберг, Ли Бергер, Доналд Ф. Мюик, Кейти Стивенс, Селеста ЯрналлПеревод: Многоголосый закадровый (5-й канал СПб)Продолжительность: 01:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31438E8C62C8FE875A0C408B51935FC469FBD86C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532330   (532202) от 10.08.2012
+
+Кабаре / Cabaret (1972) [H.264] DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_532202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская певица Салли Боулз развлекает Берлин эпохи Веймарской республики на подмостках кабаре Kit-Kat club. За дверями клуба — политический и экономический хаос, восхождение к власти нацистов, еврейские погромы. Внутри — вечный праздник. Перемены в относительно беззаботную жизнь Салли вносят встреча с Брайаном — англичанином, подрабатывающим уроками, которые он дает богатой молодой еврейке, и Максом — богатым немецким плейбоем.Жанр: Мьюзикл, Драма, МузыкаРежиссер: Боб ФоссиПродюсер: Сай Фойер, Харольд НебензалАктеры: Лайза Миннелли, Майкл Йорк, Хельмут Грим, Джоэл Грей, Фриц Веппер, Мариза Беренсон, Elisabeth Neumann-Viertel, Хелен Вита, Сигрид фон Рихтхофен, Герд ВесперманнПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 01:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02019242CB4AEB8BF9C3FD5F6307C6BD04BE86E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 819015   (531731) от 08.09.2014
+
+Некоторым нравится... похолоднее / Certains l'aiment... froide (1960) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_531731.jpg" />
+</div>
+
+
+###  Подробнее
+
+1759 год. Умирает маркиз де Вальморен, оставляя завещание, которое он приказал вскрыть только через 200 лет. И напрасно суетится г-н Галопен, пытаясь получить от умершего долг: только через 200 лет. И вот, 200 лет прошло. 1959 год. Потомки маркиза собираются вместе, чтобы заслушать его завещание. И тут потенциальных наследников ждёт удар, ведь по завещанию всё наследство (   Читать дальше...   )Жанр: КомедияРежиссер: Жан БастиаАктеры: Луи де Фюнес, Пьер Дюдан, Франсис Бланш, Жан Ришар, Робер Манюэль, Матильда Казадезю, Мирей Перре, Карин Джэнсен, Никки Валор, Ноэль Роквер, Хабиб Бенглия и др.Перевод: Одноголосый закадровый    Andre1288Язык субтитров: РусскиеПродолжительность: 01:25:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6A95C6D94848514A0EA6BBF290F41D3D331E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921280   (531411) от 11.08.2015
 
 Очень важные персоны / The V.I.P.s (1963) DVDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531411.jpg" />
+  <img src="Z:/picture/008/save_picture_531411.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531192.jpg" />
+  <img src="Z:/picture/008/save_picture_531192.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531158.jpg" />
+  <img src="Z:/picture/008/save_picture_531158.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531111.jpg" />
+  <img src="Z:/picture/008/save_picture_531111.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530566.jpg" />
+  <img src="Z:/picture/008/save_picture_530566.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530491.jpg" />
+  <img src="Z:/picture/008/save_picture_530491.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530269.jpg" />
+  <img src="Z:/picture/008/save_picture_530269.jpg" />
 </div>
 
 
@@ -192,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529720.jpg" />
+  <img src="Z:/picture/008/save_picture_529720.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529478.jpg" />
+  <img src="Z:/picture/008/save_picture_529478.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529452.jpg" />
+  <img src="Z:/picture/008/save_picture_529452.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528941.jpg" />
+  <img src="Z:/picture/008/save_picture_528941.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528434.jpg" />
+  <img src="Z:/picture/008/save_picture_528434.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527903.jpg" />
+  <img src="Z:/picture/008/save_picture_527903.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527561.jpg" />
+  <img src="Z:/picture/008/save_picture_527561.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527270.jpg" />
+  <img src="Z:/picture/008/save_picture_527270.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526965.jpg" />
+  <img src="Z:/picture/008/save_picture_526965.jpg" />
 </div>
 
 
@@ -426,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526871.jpg" />
+  <img src="Z:/picture/008/save_picture_526871.jpg" />
 </div>
 
 
@@ -452,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526492.jpg" />
+  <img src="Z:/picture/008/save_picture_526492.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526464.jpg" />
+  <img src="Z:/picture/008/save_picture_526464.jpg" />
 </div>
 
 
@@ -506,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526055.jpg" />
+  <img src="Z:/picture/008/save_picture_526055.jpg" />
 </div>
 
 
@@ -536,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525910.jpg" />
+  <img src="Z:/picture/008/save_picture_525910.jpg" />
 </div>
 
 
@@ -562,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525124.jpg" />
+  <img src="Z:/picture/008/save_picture_525124.jpg" />
 </div>
 
 
@@ -588,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524918.jpg" />
+  <img src="Z:/picture/008/save_picture_524918.jpg" />
 </div>
 
 
@@ -599,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DC88B09ED56038249F2ED94AC4D04BA362886C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927548   (524843) от 13.08.2015
-
-Копи царя Соломона / King Solomon's Mines (1985) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отец главной героини отправляется на поиски бриллиантовых копей царя Соломона и пропадает без вести. Очаровательная Джесси Хьюстон затевает рискованное сафари для его спасения. Кто же будет ее проводником? Легендарный солдат удачи, известный как Куотермейн. Чтобы добраться до сокровищ и опередить кровожадного соперника, им приходится преодолеть множество препятствий: (   Читать дальше...   )Производство: США / CannonЖанр: Боевик, Комедия, Мелодрама, ПриключенияРежиссер: Дж. Ли ТомпсонАктеры: Ричард Чемберлен, Шэрон Стоун, Херберт Лом, Джон Рис-Дэвис, Кен Гампу, Джун Бузелези, Сэм Уильямс, Шайке Офир, Мик Лесли, Винсент Ван Дер Бил, Боб Грир, Оливер Тенгенде, Невилл Томас, Роки Грин, Кэлвин Джонс, Стэнли Норрис, Эндрю УэлиПеревод: Профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: АнглийскиеПродолжительность: 01:35:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606712776C63E20C74AB469FFBFDD3657E619A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556628   (524308) от 25.06.2022
-
-Отныне и навек / Now and forever (1934) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основан на рассказе "Честь Брайта" Джека Киркленда и Мелвилла Бейкера. Молодая пара мошенников Джерри Дэй и его красивая жена Тони ведут беспечный образ жизни. Проживая в дорогих отелях и путешествуя по миру, они выдают себя за состоятельных людей и всяческими уловками находят деньги на свою праздную жизнь. Тони давно просит Джерри завязать с преступными (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: драма, мелодрама, мюзиклРежиссер: Генри ХэтэуэйАктеры: Гэри Купер, Кэрол Ломбард, Ширли Темпл, Гай Стэндинг, Шарлотта Гранивиль"Дэнни", Гилберт Эмери, Генри Колкер, Тецу Комай, Эгон Бречер, Люк ЧанПеревод: профессиональный многоголосый (Светла)Субтитры: английскиеПродолжительность: 01:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71178C9F720FDDA49168FE7FDCCC7D952B3646A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053749   (524184) от 18.09.2016
-
-Отважные противники / Ride, Vaquero! (1953) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524184.jpg" />
-</div>
-
-
-###  Подробнее
-
-После окончания гражданской войны грубый и неотесанный месиканский бандит Хосе Эскуада и его правая рука, загадочный человек со стальными глазами по прозвищу Рио предупреждают поселенцев деревни, что они могут потерять свои земли. Только у одного человека, кажется, есть храбрость, чтобы противостоять злодеям: Король поселенцев Камерон, у которого был уже сожжен один (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Боевик, Драма, ВестернРежиссер: Джон ФэрроуАктеры: Роберт Тейлор, Ава Гарднер, Ховард Кил, Энтони Куинн, Курт Казнар, Тед де Корсия, Чарлита, Джек Элам, Уолтер Болдуин, Джо ДомингесПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9008D723112F1987209BA1AB226B83BD09880B
 ```
 
 https://mybot314.ru/tekegram_catalog/

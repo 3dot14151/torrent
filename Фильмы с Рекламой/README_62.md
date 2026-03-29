@@ -1,3 +1,29 @@
+###  Публикация: 1328540   (362790) от 30.09.2019
+
+Тайки / Taiki (2019) HDTVRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_362790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время семейной поездки, 9-ти летний Бруно, так достает своих родителей, что они оставляют его в лесу, чтобы проучить. Когда они возвращаются за ним, он решает преподать им урок.Производство: Нидерланды / Fiction ValleyЖанр: Драма, детектив, приключения, семейныйРежиссер: Мирьям Де УитАктеры: Pepijn van der Sman, Дженнифер Хоффман, Тибор Лукаш, Linde van der Storm, Аус Грейднаус, Камилла Ларссон, Надя Христианссон, Рэйми Самбо, Peter Stefansson, Элина Ду РитцПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:25:29Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37CF56558727BC9D0EB549F301F6DFB38C8D396F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177317   (362555) от 25.10.2017
 
 Сомнамбула / Sleepwalking in Suburbia (2017) WEB-DLRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362555.jpg" />
+  <img src="Z:/picture/008/save_picture_362555.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362304.jpg" />
+  <img src="Z:/picture/008/save_picture_362304.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360633.jpg" />
+  <img src="Z:/picture/008/save_picture_360633.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360482.jpg" />
+  <img src="Z:/picture/008/save_picture_360482.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360254.jpg" />
+  <img src="Z:/picture/008/save_picture_360254.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360132.jpg" />
+  <img src="Z:/picture/008/save_picture_360132.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359994.jpg" />
+  <img src="Z:/picture/008/save_picture_359994.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357987.jpg" />
+  <img src="Z:/picture/008/save_picture_357987.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357865.jpg" />
+  <img src="Z:/picture/008/save_picture_357865.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357862.jpg" />
+  <img src="Z:/picture/008/save_picture_357862.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357853.jpg" />
+  <img src="Z:/picture/008/save_picture_357853.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357755.jpg" />
+  <img src="Z:/picture/008/save_picture_357755.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357736.jpg" />
+  <img src="Z:/picture/008/save_picture_357736.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357649.jpg" />
+  <img src="Z:/picture/008/save_picture_357649.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357508.jpg" />
+  <img src="Z:/picture/008/save_picture_357508.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356138.jpg" />
+  <img src="Z:/picture/008/save_picture_356138.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356130.jpg" />
+  <img src="Z:/picture/008/save_picture_356130.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355966.jpg" />
+  <img src="Z:/picture/008/save_picture_355966.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355952.jpg" />
+  <img src="Z:/picture/008/save_picture_355952.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353808.jpg" />
+  <img src="Z:/picture/008/save_picture_353808.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353804.jpg" />
+  <img src="Z:/picture/008/save_picture_353804.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351106.jpg" />
+  <img src="Z:/picture/008/save_picture_351106.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350959.jpg" />
+  <img src="Z:/picture/008/save_picture_350959.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350924.jpg" />
+  <img src="Z:/picture/008/save_picture_350924.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350657.jpg" />
+  <img src="Z:/picture/008/save_picture_350657.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99C4B9B22961530B6F6DD9581C144220AC279B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256645   (349642) от 24.10.2018
-
-Останься со мной / The Keeping Hours (2017) WEB-DLRip [H.264/1080p-LQ] [Line, AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять лет назад в жизни главных героев произошла трагедия - в автомобильной аварии погиб их сын, Джейкоб. И вот спустя десять лет благодаря череде мистических событий у разведённых супругов появляется шанс искупить вину и обрести прощение.Производство: США / Blumhouse ProductionsЖанр: Ужасы, Триллер, Драма, МелодрамаРежиссер: Карен МонкриффАктеры: Ли Пейс, Кэрри Кун, Эми Смарт, Молли Хэйгэн, Ана Ортис, Анна Диоп, Кристина Видаль, Рэй Бэйкер, Клифф Чемберлен, Джейн ДэйлиПеревод: Дублированный (чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:35:43Реклама: Присутствует текстовая, аудио и видео реклама
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0352F24AC83E68465076D455716B55EC2C4C131F
 ```
 
 https://mybot314.ru/tekegram_catalog/

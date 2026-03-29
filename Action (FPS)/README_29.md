@@ -1,3 +1,107 @@
+###  Публикация: 1577848   (351749) от 20.09.2022
+
+Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) Repack DjDI
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более двадцати лет назад мы пытались побороть этот вирус в Харране... и потерпели поражение. Теперь мы проигрываем вновь. Город - последнее из крупных человеческих поселений - раздирает внутренняя вражда. Цивилизация отброшена во тьму средневековья, но надежда еще жива.Тип издания: RepackРазработчик: TechlandЖанр: Action, Open World, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3A69487A281B7F0F1037AE1164D8B9FA969D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256779   (351668) от 23.10.2018
+
+25 Cadre of Death (2018) [Ru/Multi] (1.0) License HOODLUM [Episode 1]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой — Калеб Ридус, после тяжелого рабочего дня просматривает вечерние новости, и ничего бы не предвещало беды, если бы новости внезапно не прервались , показывая трансляцию какого-то странного видео. Особо не предав этому значения, Калеб ложится спать, сослав происходящее на дурной сон.Тип издания: LicenseРазработчик: indie_games_studioЖанр: Adventure, Horror, IndieЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5B86FE8FA4584EA43E126ECBAE87676C9ED49A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255395   (351568) от 23.10.2018
+
+Gods Basement (2018) [Ru/Multi] (1.0/upd1) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351568.jpg" />
+</div>
+
+
+###  Подробнее
+
+God's Basement — это хоррор-игра, рассчитанная на одного человека, повествование которой ведется от первого лица. Ты просыпаешься в обычном, довольно скучном офисе и слышишь слабый звук телефонного звонка, идущий из соседней комнаты. Звонящий представляется Оператором и дает тебе набор инструкций, которым ты должен следовать. Документы, разбросанные по комнате, намекают (   Читать дальше...   )Тип издания: LicenseРазработчик: ErebusЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283E92E97014E3A77529A37093E5B3CC45245E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256826   (351565) от 23.10.2018
+
+25 Cadre of Death (2018) [Ru/Multi] (1.0) Repack Other s [Episode 1]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мертвый город Тайм Бич, в американском штате Миссури, порождает чувство страха и одиночества. Этот город и его округи полностью отрезаны от реального мира. Главному герою — Калебу Ридусу, попав туда по не понятным причинам, предстоит разобраться что произошло.Тип издания: RepackРазработчик: indie_games_studioЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C46AB87AE83D3F78ADD74D1356B28A449F32C0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201788   (350489) от 23.10.2020
 
 Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
@@ -6,7 +110,7 @@ Postal 2 (2003) [Ru/Multi] (5024/dlc) License GOG [Uncut Version]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350489.jpg" />
+  <img src="Z:/picture/008/save_picture_350489.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ Final DOOM (1994) [En] (1.9) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348489.jpg" />
+  <img src="Z:/picture/008/save_picture_348489.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ DOOM II (1994) [En] (1.9/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348361.jpg" />
+  <img src="Z:/picture/008/save_picture_348361.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Uprising 2: Lead and Destroy [En] (L) 1998
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347636.jpg" />
+  <img src="Z:/picture/008/save_picture_347636.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ EBOLA 3 (2022) [Ru/Multi] (1.2.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347205.jpg" />
+  <img src="Z:/picture/008/save_picture_347205.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ ShadowSide (2018) [Ru/En] (1.1/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347033.jpg" />
+  <img src="Z:/picture/008/save_picture_347033.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Homefront: The Revolution (2016) [Ru/En] (1.0781467/dlc) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346179.jpg" />
+  <img src="Z:/picture/008/save_picture_346179.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ Perception Remastered (2017) [Ru/Multi] (1.0) License RELOADED
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344012.jpg" />
+  <img src="Z:/picture/008/save_picture_344012.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/Mu
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343999.jpg" />
+  <img src="Z:/picture/008/save_picture_343999.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ ShadowSide (2018) [Ru/En] (1.1/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340177.jpg" />
+  <img src="Z:/picture/008/save_picture_340177.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Infliction (2018) [Ru/Multi] (3.0) Repack Other s [Extended Cut]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339200.jpg" />
+  <img src="Z:/picture/008/save_picture_339200.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (5730292/upd16/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339192.jpg" />
+  <img src="Z:/picture/008/save_picture_339192.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3) SteamRip R.G. Origins [Singleplayer Edit
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339160.jpg" />
+  <img src="Z:/picture/008/save_picture_339160.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ Viktor Kalvachev's - Blue Estate: The Game (2015) [En/Multi] (1.0) Lossless Repa
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338834.jpg" />
+  <img src="Z:/picture/008/save_picture_338834.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Redemption: Saints And Sinners (2016) [Ru/En] (1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337328.jpg" />
+  <img src="Z:/picture/008/save_picture_337328.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Far Cry 2 (2008) [Ru/En] (1.03/dlc) License GOG [Fortune's Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336915.jpg" />
+  <img src="Z:/picture/008/save_picture_336915.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Metal: Hellsinger (2022) [Ru/Multi] (1.0) License Razor1911
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335942.jpg" />
+  <img src="Z:/picture/008/save_picture_335942.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332980.jpg" />
+  <img src="Z:/picture/008/save_picture_332980.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Prodeus (2022) [Ru/Multi] (1.0.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330463.jpg" />
+  <img src="Z:/picture/008/save_picture_330463.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Monstrum (2015) [En] (1.3) SteamRip Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328143.jpg" />
+  <img src="Z:/picture/008/save_picture_328143.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Outlast 2 (2017) [Ru/Multi] (1.0.17518.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322713.jpg" />
+  <img src="Z:/picture/008/save_picture_322713.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Battlestrike: Shadow of Stalingrad / Battlestrike: Тень Сталинград
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322191.jpg" />
+  <img src="Z:/picture/008/save_picture_322191.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Battlestrike: Shadow of Stalingrad / Battlestrike: Тень Сталинград
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5F18C32D03A40BFC664BA25906F063F44BCFE29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311865   (320144) от 17.10.2019
-
-Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Mizantrop1337
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забудьте всё, что вы знаете о шутерах от первого лица: в Void Bastards вам нужно думать головой, а не просто целиться и стрелять. Вы должны вывести разношерстную толпу космических преступников из Саргассовой туманности. Принимайте решения и думайте куда направиться, что делать и с кем сражаться. Затем стыкуйтесь и вламывайтесь на чужие суда, полные странных и ужасных (   Читать дальше...   )Тип издания: RepackРазработчик: Blue ManchuЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3333B79B464ACC2BEDB2889D70D14F9124B645AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331822   (320036) от 17.10.2019
-
-Project R.I.P. (2019) [Ru/Multi] (1.05) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь изменилась, орды нежити и демонов вышли на поверхность и теперь правят землей. Человеческая раса была вынуждена спрятаться в подземных убежищах ради выживания. Чтобы вернуть контроль над землей, человечество собрало силы и создало небольшие специализированные группы для устранения угрозы под управлением ИИ. Эта разработка называлась Project Rest in Pieces, (   Читать дальше...   )Тип издания: RepackРазработчик: Storming TechЖанр: Action (Horror), RPG, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080831761402534743FE64262EF54D2C04AB1ACA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075378   (319932) от 22.11.2016
-
-Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кровь (2009) [Ru/Multi] (1.206580) License PLAZA
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ремейк культового шутера, разработанный на основе мощного графического движка Serious Engine 3. На заре XXI века человечество сделало невероятное открытие огромного научно-исторического значения. Плохо одно - открытие это ведет к неминуемой гибели планеты. Вся надежда на Крутого Сэма. У героя есть лишь один шанс, чтобы изменить прошлое и спасти человечество.Тип издания: LicenseРазработчик: Croteam и Devolver DigitalЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3366FC23032A5EFE3DF95DD9A084987B2E19B016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582652   (319303) от 29.11.2012
-
-Dark Shadows - Army of Evil [En] (L) 2012 | SKIDROW
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319303.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Dark Shadows: Army of Evil представлен только одиночный режим, разделенный на 19 уровней, на каждом из которых игроки смогут отыскать новый вид оружия. Игроки будут рубить, резать и колоть своих противников, а также бросать в них камни и расстреливать из лука. Разработчики обещают незабываемую мрачную атмосферу, сдобренную специальными «киношными» эффектами вроде трехмерных кровавых брызг. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B852788CF5F98E2B56F06CC6B842C6B66203BCF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

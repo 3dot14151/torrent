@@ -1,3 +1,32 @@
+###  Публикация: 1048435   (546530) от 02.09.2016
+
+Anthony Green - Pixie Queen (2016) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_546530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'll Be Fine (4:38)
+02. I'm Not Holding You Back (3:48)
+03. Will It Be (2:08)
+04. A Reason to Stay (3:29)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A620DF63E24CB5EC5FD61D2F72217B33CFAC2392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048442   (546527) от 02.09.2016
 
 Blues Pills - Golden Treasures (2016) [MP3|320 Kbps] <Rock>
@@ -6,7 +35,7 @@ Blues Pills - Golden Treasures (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546527.jpg" />
+  <img src="Z:/picture/008/save_picture_546527.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Mark Wood - Voodoo Violince (1991) [MP3|320 Kbps] <Melodic Rock, Instrumental Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546462.jpg" />
+  <img src="Z:/picture/008/save_picture_546462.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ A Day To Remember - Bad Vibrations (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546379.jpg" />
+  <img src="Z:/picture/008/save_picture_546379.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ The Wolverhinos - Love Runs Out! (2017) [MP3|320 Kbps] <Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546235.jpg" />
+  <img src="Z:/picture/008/save_picture_546235.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Quireboys - Twisted Love (2016) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545795.jpg" />
+  <img src="Z:/picture/008/save_picture_545795.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545740.jpg" />
+  <img src="Z:/picture/008/save_picture_545740.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Slade - Slade In Showplace (Dover, NJ) Jul 30, 1976 (bootleg) (1976) [MP3|320 Kb
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545389.jpg" />
+  <img src="Z:/picture/008/save_picture_545389.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ The 69 Eyes - 3 Relise (1997-2013) [MP3|320 Kbps] <Gothic Industrial Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542813.jpg" />
+  <img src="Z:/picture/008/save_picture_542813.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Mount Caravan - Demo (1998-2002) 2022, DAREDEVIL RECORDS [MP3|320 Kbps] <Heavy S
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542811.jpg" />
+  <img src="Z:/picture/008/save_picture_542811.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Sleazy RoXxX - Trinity Junction (2022) [MP3|320 Kbps] <Glam Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542704.jpg" />
+  <img src="Z:/picture/008/save_picture_542704.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542700.jpg" />
+  <img src="Z:/picture/008/save_picture_542700.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Mick Jagger - Gotta Get A Grip / England Lost (2017) 2 Single's [MP3|320 Kbps] <
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542540.jpg" />
+  <img src="Z:/picture/008/save_picture_542540.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Magic Bus (2015) 3CD Box Set [MP3|320 кб/с]<Rock, Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541317.jpg" />
+  <img src="Z:/picture/008/save_picture_541317.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Roki - Mother (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541140.jpg" />
+  <img src="Z:/picture/008/save_picture_541140.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Four Minute Man - Devil Inspired (2020) [MP3|320 Kbps] <Heavy Psych Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541136.jpg" />
+  <img src="Z:/picture/008/save_picture_541136.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Foot - You Are Weightless (2022) [MP3|320 kbps] <Heavy Stoner, Psych, Grunge Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541135.jpg" />
+  <img src="Z:/picture/008/save_picture_541135.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ The Album Leaf - Between Waves (2016) Deluxe Version [MP3|320 Kbps] <Post Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540647.jpg" />
+  <img src="Z:/picture/008/save_picture_540647.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Ought - Sun Coming Down (2015) [MP3|320 кб/с]<Alternative, Indie Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539313.jpg" />
+  <img src="Z:/picture/008/save_picture_539313.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Sergeant Thunderhoof - 3 Albums (2018-2022) [MP3|320 Kbps] <Stoner Psychedelic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539276.jpg" />
+  <img src="Z:/picture/008/save_picture_539276.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ The Grass Roots - Leaving It All Behind (1969) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537274.jpg" />
+  <img src="Z:/picture/008/save_picture_537274.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Glenn Frey (Ex. Eagles) - No Fun Aloud (1982) [MP3|320 Kbps] <Pop-Rock, Classic 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537140.jpg" />
+  <img src="Z:/picture/008/save_picture_537140.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Smokey Fingers - Promised Land (2016) [MP3|320 Kbps] <Southern Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536734.jpg" />
+  <img src="Z:/picture/008/save_picture_536734.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Tennessee Iron - Better Late Than Never (2016) [MP3|320 Kbps] <Tennessee Boogie 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536729.jpg" />
+  <img src="Z:/picture/008/save_picture_536729.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ The Beatles - Live At The Hollywood Bowl (1977) Remastered, 2016, Universal [MP3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536368.jpg" />
+  <img src="Z:/picture/008/save_picture_536368.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Absolute Rock Ballads Classics (2001) 2CD [MP3|320 Kbps] <Rock, Hard Rock, 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534368.jpg" />
+  <img src="Z:/picture/008/save_picture_534368.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Absolute Rock Ballads Classics (2001) 2CD [MP3|320 Kbps] <Rock, Hard Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9574311EA8B754DA06F3592069CD43B84EA16D87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312239   (534196) от 03.07.2019
-
-Mick Jagger - Wandering Spirit (1993) Reissue, 2019, Polydor Records [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wired All Night
-02. Sweet Thing
-03. Out Of Focus
-04. Don't Tear Me Up(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE61DCE75AFB191BD4C1F67A746941A49E6B478
 ```
 
 https://mybot314.ru/tekegram_catalog/

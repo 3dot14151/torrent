@@ -6,7 +6,7 @@ XYplorer 20.90.0100 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872836.jpg" />
+  <img src="Z:/picture/008/save_picture_872836.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ ON1 HDR 2020.1 (build 14.1.1.8876) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872833.jpg" />
+  <img src="Z:/picture/008/save_picture_872833.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ WinSnap 5.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872829.jpg" />
+  <img src="Z:/picture/008/save_picture_872829.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ VA - Cosmophilia Volume 1 (2003) 2CD [MP3|320 Kbps] <Psy-Trance, Progressive Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872827.jpg" />
+  <img src="Z:/picture/008/save_picture_872827.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Tipard Video Converter Ultimate 10.0.16 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872826.jpg" />
+  <img src="Z:/picture/008/save_picture_872826.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ IObit Driver Booster Pro 3.2.0.698 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872800.jpg" />
+  <img src="Z:/picture/008/save_picture_872800.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872795.jpg" />
+  <img src="Z:/picture/008/save_picture_872795.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872794.jpg" />
+  <img src="Z:/picture/008/save_picture_872794.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872793.jpg" />
+  <img src="Z:/picture/008/save_picture_872793.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872764.jpg" />
+  <img src="Z:/picture/008/save_picture_872764.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Core Temp 1.6 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872727.jpg" />
+  <img src="Z:/picture/008/save_picture_872727.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ LibreOffice 7.2.1.2 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872720.jpg" />
+  <img src="Z:/picture/008/save_picture_872720.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Any Video Converter Ultimate 6.0.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872719.jpg" />
+  <img src="Z:/picture/008/save_picture_872719.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Waterfox Current G3.2.6 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872709.jpg" />
+  <img src="Z:/picture/008/save_picture_872709.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ GIMP 2.10.28 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872708.jpg" />
+  <img src="Z:/picture/008/save_picture_872708.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Ditto Clipboard Manager 3.24.214.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872704.jpg" />
+  <img src="Z:/picture/008/save_picture_872704.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Wondershare Filmora 9 v9.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872697.jpg" />
+  <img src="Z:/picture/008/save_picture_872697.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Unity Pro 2019.2.21f1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872690.jpg" />
+  <img src="Z:/picture/008/save_picture_872690.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ ActivePresenter Pro Edition 8.0.5 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872688.jpg" />
+  <img src="Z:/picture/008/save_picture_872688.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Pale Moon 28.9.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872685.jpg" />
+  <img src="Z:/picture/008/save_picture_872685.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Unity Pro 2018.4.19f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872682.jpg" />
+  <img src="Z:/picture/008/save_picture_872682.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872650.jpg" />
+  <img src="Z:/picture/008/save_picture_872650.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ AutoRuns 13.7 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872632.jpg" />
+  <img src="Z:/picture/008/save_picture_872632.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872615.jpg" />
+  <img src="Z:/picture/008/save_picture_872615.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872611.jpg" />
+  <img src="Z:/picture/008/save_picture_872611.jpg" />
 </div>
 
 
@@ -666,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872609.jpg" />
+  <img src="Z:/picture/008/save_picture_872609.jpg" />
 </div>
 
 

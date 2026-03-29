@@ -1,3 +1,136 @@
+###  Публикация: 1540212   (654909) от 28.03.2022
+
+Smart Shooter 4 v4.24 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Shooter - приложение для работы с цифровыми фотографиями для привязанной съемки, удаленного захвата и расширенного управления камерой.
+Smart Shooter позволяет вам полностью контролировать свою камеру с вашего Mac, предоставляя вам свободу исследовать и экспериментировать, чтобы помочь получить идеальную картину. Автоматическая загрузка и отображение означает, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © Kuvacode OyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5339EFDAA6DD0E053354A05E7F794BFFE45C7CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140799   (654867) от 07.06.2017
+
+StatsBar 2.5 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654867.jpg" />
+</div>
+
+
+###  Подробнее
+
+StatsBar - системный монитор для процессора, памяти, дискового пространства, сети и батареи.
+StatsBar - небольшое, легкое и симпатичное приложение для получения системной информации в процессе работы компьютера, а точнее: загрузки CPU, использования памяти, информация о сетевом соединении и пропускной способности, а так же мощности и здоровья батареи (только для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: ноябрь 2016Разработчик: FIPLAB LtdПоддерживаемая ОС: MacOS X 10.7 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F772BB25B3B50B1543B003159373A8E71687CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140748   (654855) от 07.06.2017
+
+Simple Recorder Pro 1.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы можете найти его значок в меню справа. Нажмите его, чтобы открыть меню. Вы найдете этот значок в панели инструментов. Нажмите на этот значок, чтобы начать запись, а также чтобы ее окончить. Нажмите на правую кнопку мыши (или command) и значок, чтобы открыть меню.Тип издания: OS X SoftwareРелиз состоялся: 31 марта 2017Разработчик: Happy TapПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английскийи др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E599BDCD9BA0CEF43FB5637F034263E98BB94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140635   (654682) от 07.06.2017
+
+IINA 0.0.11 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный проигрыватель с открытым исходным кодом и современным дизайном, который способен удовлетворить даже самых требовательных пользователей и стать полноценной заменой VLC. Старый добрый VLC хоть и вполне справляется со своими задачами, но в последних версиях macOS выглядит уже откровенно устаревшим. В этом плане у IINA есть сразу несколько преимуществ: проигрыватель (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.06.2017Разработчик: Collider LIПоддерживаемая ОС: macOS 10.10+, 10.12 RecommendedЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B1014D9DDE4FFD7AF00ED8FDA881F10B0BDC97A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140581   (654562) от 07.06.2017
+
+DivX Pro 10.8.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_654562.jpg" />
+</div>
+
+
+###  Подробнее
+
+DivX Pro - универсальное решение, позволяющее смотреть, создавать и транслировать высококачественное HD-видео в формате DivX HEVC с разрешением до 1080p.
+DivX Pro — это пакет кодеков (DivX, H.264, AAC и MKV). В состав также входит DivX H.264 Decoder для аппаратного ускорения с помощью DXVA (DirectX Video Acceleration) - это дает возможность смотреть видео высокой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.05.2017Разработчик: Rovi CorporationПоддерживаемая ОС: Mac OS X 10.7+Язык интерфейса: Русский, Английский, Немецкий, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB2A0D78BB205F37C8CB2DEDFEB7E600D037DE20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540414   (654013) от 29.03.2022
 
 Lungo 2.0.5 [En]
@@ -6,7 +139,7 @@ Lungo 2.0.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654013.jpg" />
+  <img src="Z:/picture/008/save_picture_654013.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653942.jpg" />
+  <img src="Z:/picture/008/save_picture_653942.jpg" />
 </div>
 
 
@@ -58,7 +191,7 @@ Principle 2.1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653672.jpg" />
+  <img src="Z:/picture/008/save_picture_653672.jpg" />
 </div>
 
 
@@ -87,7 +220,7 @@ Ulysses 2.8.2 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653572.jpg" />
+  <img src="Z:/picture/008/save_picture_653572.jpg" />
 </div>
 
 
@@ -114,7 +247,7 @@ Instashare 1.4.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652775.jpg" />
+  <img src="Z:/picture/008/save_picture_652775.jpg" />
 </div>
 
 
@@ -141,7 +274,7 @@ PCalc 4.10.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652762.jpg" />
+  <img src="Z:/picture/008/save_picture_652762.jpg" />
 </div>
 
 
@@ -168,7 +301,7 @@ Speech 1.9.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652727.jpg" />
+  <img src="Z:/picture/008/save_picture_652727.jpg" />
 </div>
 
 
@@ -195,7 +328,7 @@ OmniOutliner Pro 5 v5.10 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652641.jpg" />
+  <img src="Z:/picture/008/save_picture_652641.jpg" />
 </div>
 
 
@@ -221,7 +354,7 @@ JPEG Jackal PRO 2.0.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652640.jpg" />
+  <img src="Z:/picture/008/save_picture_652640.jpg" />
 </div>
 
 
@@ -247,7 +380,7 @@ Cockos REAPER for Mac v6.53 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652533.jpg" />
+  <img src="Z:/picture/008/save_picture_652533.jpg" />
 </div>
 
 
@@ -273,7 +406,7 @@ WebDrive Enterprise for Mac v2018.0 (Build 18.0.600) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652406.jpg" />
+  <img src="Z:/picture/008/save_picture_652406.jpg" />
 </div>
 
 
@@ -301,7 +434,7 @@ Tenorshare 4MeKey for Mac 1.0.0 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652293.jpg" />
+  <img src="Z:/picture/008/save_picture_652293.jpg" />
 </div>
 
 
@@ -328,7 +461,7 @@ Snapheal Pro 1.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651006.jpg" />
+  <img src="Z:/picture/008/save_picture_651006.jpg" />
 </div>
 
 
@@ -356,7 +489,7 @@ Core Animator 1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650922.jpg" />
+  <img src="Z:/picture/008/save_picture_650922.jpg" />
 </div>
 
 
@@ -384,7 +517,7 @@ Ace Stream Media Player 3.1.6 (CrossOver) [Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650897.jpg" />
+  <img src="Z:/picture/008/save_picture_650897.jpg" />
 </div>
 
 
@@ -412,7 +545,7 @@ HDR Effect 1.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650755.jpg" />
+  <img src="Z:/picture/008/save_picture_650755.jpg" />
 </div>
 
 
@@ -439,7 +572,7 @@ Live Home 3D Standard 3.5.5 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650493.jpg" />
+  <img src="Z:/picture/008/save_picture_650493.jpg" />
 </div>
 
 
@@ -467,7 +600,7 @@ Tyme 2 v1.8.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650431.jpg" />
+  <img src="Z:/picture/008/save_picture_650431.jpg" />
 </div>
 
 
@@ -496,7 +629,7 @@ TechTool Pro 9.6.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650273.jpg" />
+  <img src="Z:/picture/008/save_picture_650273.jpg" />
 </div>
 
 
@@ -523,7 +656,7 @@ JetBrains PhpStorm 2018.1.4 [En]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649899.jpg" />
+  <img src="Z:/picture/008/save_picture_649899.jpg" />
 </div>
 
 
@@ -549,7 +682,7 @@ Advanced Duplicate Cleaner 1.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648760.jpg" />
+  <img src="Z:/picture/008/save_picture_648760.jpg" />
 </div>
 
 
@@ -561,137 +694,6 @@ Advanced Duplicate Cleaner 1.5 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFCFA631FF1084E30C69CB8F144D595DDEDDC30E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541028   (648661) от 01.04.2022
-
-Quick Print 1.0.10 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Quick Print — это удобная утилита, которая позволяет печатать невероятно простым способом. Быстрая печать печатает элементы Finder, не открывая собственное приложение, так же печатает буфер обмена.Тип издания: macOS SoftwareРелиз состоялся: 18.03.2017Разработчик: © 2019 Hyperbolic SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A666826F0933E11C21A46B71B7D17BCCD57787
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541012   (648652) от 01.04.2022
-
-Smooze Pro 2.0.19 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 31.03.2022Разработчик: © 2017 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F06E3FF8CA3CA32614DA78C7C5FAA69C4025F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032245   (647256) от 06.07.2016
-
-Adobe Muse CC 2015.2 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Muse CC - создавайте великолепные веб-сайты без написания кода.
-Если вы уже знакомы с Adobe InDesign, рекомендуем вам познакомиться с Adobe Muse, популярным у графических дизайнеров приложением для создания веб-сайтов. Не тратьте время на написание кода и быстро создавайте уникальные сайты с использованием знакомых инструментов и комбинаций клавиш, а также (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2016Разработчик: AdobeПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C613763CF3C5F9EF84E2FC9E334ADAF01DAF25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032488   (645565) от 07.07.2016
-
-Adobe Prelude CC 2015.4 (5.0.0.184) [Multi/Ru]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Prelude CC 2015 - программа для профессиональной оцифровки видеоматериалов, позволяющая преобразовывать любые форматы файлов и расставлять теги. Приложение предлагает эффективное управление процессом подготовки файлов, моментально создавая журналы по маркерам и другим временным метаданным, обеспечивающим возможность поиска в ходе окончательной обработки. С (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2016Разработчик: AdobeПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4FB27BAB0BEA88519D9287CCDFED24F248E71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032474   (645351) от 07.07.2016
-
-Adobe Animate CC 2015.2 (15.2.0.66) [Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Animate CC 2015, пришедший на смену Flash Professional - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Animate CC 2015 (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2016Разработчик: AdobeПоддерживаемая ОС: OS X 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0960C0FB44E64A9A1B2634298592218CA7D60D24
 ```
 
 https://mybot314.ru/tekegram_catalog/

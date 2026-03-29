@@ -6,7 +6,7 @@ iExplorer 4.1.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800215.jpg" />
+  <img src="Z:/picture/008/save_picture_800215.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Mozilla Thunderbird 68.8.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800209.jpg" />
+  <img src="Z:/picture/008/save_picture_800209.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Jota+ (Text Editor) v2020.09 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_800200.jpg" />
+  <img src="Z:/picture/005/save_picture_800200.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Principle 5.12 (build 5024) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800192.jpg" />
+  <img src="Z:/picture/008/save_picture_800192.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Chromium 83.0.4103.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800191.jpg" />
+  <img src="Z:/picture/008/save_picture_800191.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Outline 3.2110.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800184.jpg" />
+  <img src="Z:/picture/008/save_picture_800184.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Inboard - Image Organizer 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800179.jpg" />
+  <img src="Z:/picture/008/save_picture_800179.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Smart Disk Image Utilities 3.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800176.jpg" />
+  <img src="Z:/picture/008/save_picture_800176.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Unite 4 v4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800173.jpg" />
+  <img src="Z:/picture/008/save_picture_800173.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Pixellu SmartAlbums 2 v2.0.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800169.jpg" />
+  <img src="Z:/picture/008/save_picture_800169.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800167.jpg" />
+  <img src="Z:/picture/008/save_picture_800167.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800153.jpg" />
+  <img src="Z:/picture/008/save_picture_800153.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ VidCoder 2.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800139.jpg" />
+  <img src="Z:/picture/008/save_picture_800139.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Cent Browser 3.1.5.52 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800136.jpg" />
+  <img src="Z:/picture/008/save_picture_800136.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Brave Browser 1.9.72 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800125.jpg" />
+  <img src="Z:/picture/008/save_picture_800125.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ CudaText 1.101.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800122.jpg" />
+  <img src="Z:/picture/008/save_picture_800122.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ PhotoLine 22.02 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800120.jpg" />
+  <img src="Z:/picture/008/save_picture_800120.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Blackmagic Design Fusion Studio 17.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800109.jpg" />
+  <img src="Z:/picture/008/save_picture_800109.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Moom 3.2.23 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800103.jpg" />
+  <img src="Z:/picture/008/save_picture_800103.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ UltraEdit 21.00.0.12 fix [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800101.jpg" />
+  <img src="Z:/picture/008/save_picture_800101.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ TextSniper - OCR simplified 1.7.0 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800098.jpg" />
+  <img src="Z:/picture/008/save_picture_800098.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Martinic - AX73 1.0.2 VSTi (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800093.jpg" />
+  <img src="Z:/picture/008/save_picture_800093.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800078.jpg" />
+  <img src="Z:/picture/008/save_picture_800078.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Autodesk AutoCAD Mechanical 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800073.jpg" />
+  <img src="Z:/picture/008/save_picture_800073.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ SamDrivers 18.0 - LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800064.jpg" />
+  <img src="Z:/picture/008/save_picture_800064.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800045.jpg" />
+  <img src="Z:/picture/008/save_picture_800045.jpg" />
 </div>
 
 

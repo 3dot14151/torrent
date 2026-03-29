@@ -1,3 +1,81 @@
+###  Публикация: 1540017   (245498) от 29.03.2022
+
+A Musical Story (2022) [Ru/Multi] (1.0.5b) License GOG [Digital Deluxe Version]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245498.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Musical Story - это ритмическая игра в стиле 70-х. Исследуйте память Габриэла, который пытается справиться с ситуаций с помощью своих музыкальных воспоминаний. Это дебютная игра независимых французских разработчиков Glee-Cheese Studio. Над игрой работал Чарльз Барден (геймдизайн и музыка), Максим Константиниан (программирование), Валентин Дюклу (музыки и интеграция), (   Читать дальше...   )Тип издания: LicenseРазработчик: Glee-Cheese StudioЖанр: Приключение, ДрамаЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:976A1479EE950EDFAA5904E2DCEC2BF3248EB47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540560   (245153) от 30.03.2022
+
+Expedition Zero (2022) [Ru/Multi] (1.01.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_245153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Expedition Zero — survival horror про аномальную зону в лесах крайнего севера. Раскройте тайны пропавшей экспедиции и ужасающего лесного монстра. Исследуйте проклятый лес и заброшенный исследовательский лагерь. Тебя ждёт нехватка ресурсов и экстремальные погодные условия. Используй для выживания всё, что сможешь найти. Сможешь покинуть зону или раскрыть её тайны?Тип издания: RepackРазработчик: Enigmatic MachinesЖанр: Adventure (Survival horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DFF655397B9CC64648C43E4AE3907B1A58A041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540948   (244766) от 01.04.2022
+
+Glitchhikers: The Spaces Between (2022) [Multi] (1.0.3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_244766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что вы видите там, в окружающей нас бесконечной вселенной? И кто эти странные неземные существа, которые как бесплотные призраки возникают рядом, когда ваши пути на короткое время пересекаются? Реальны они или это просто плод вашего воображения? Glitchhikers: The Spaces Between – это игра о мыслях, которые возникают у вас на пути от одного места назначения к другому, (   Читать дальше...   )Тип издания: LicenseРазработчик: Silverstring Media Inc.Жанр: Приключение, КвестЯзык субтитров: Английский, КитайскийЯзык интерфейса: Английский, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404E3CC3310891425A77B1E9BDD08BCAC3A6E0CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566679   (244694) от 30.07.2022
 
 In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
@@ -6,7 +84,7 @@ In The Space - Escape Room (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244694.jpg" />
+  <img src="Z:/picture/004/save_picture_244694.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Catie in MeowmeowLand (2022) [Ru/Multi] (0.1.0.2_65f17ebd) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244676.jpg" />
+  <img src="Z:/picture/004/save_picture_244676.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Noctem (2022) [Multi] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244581.jpg" />
+  <img src="Z:/picture/004/save_picture_244581.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Dare to Stay (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244443.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ The Chronicle (2022) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244343.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Kamikaze Veggies (2022) [Ru/Multi] (1.0) License DARKSiDERS
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243332.jpg" />
+  <img src="Z:/picture/004/save_picture_243332.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Mists of Aiden (2020) [Ru/Multi] (1.0 Build 8798754) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237664.jpg" />
+  <img src="Z:/picture/004/save_picture_237664.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ South of the Circle (2022) [Ru/Multi] (23) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_237353.jpg" />
+  <img src="Z:/picture/005/save_picture_237353.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Dracula Origin (2008) [Ru/Multi] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236481.jpg" />
+  <img src="Z:/picture/005/save_picture_236481.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236275.jpg" />
+  <img src="Z:/picture/005/save_picture_236275.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Chinatown Detective Agency (2022) [Multi] (1.0.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235338.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Whateverland (2022) [Ru/Multi] (0.9.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234577.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ Recursive Ruin (2022) [Ru/Multi] (22.05.17) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233780.jpg" />
+  <img src="Z:/picture/005/save_picture_233780.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Goetia 2 (2022) [Multi] (1.0.4) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233614.jpg" />
+  <img src="Z:/picture/005/save_picture_233614.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ JANITOR BLEEDS (2022) [Ru/Multi] (1.0.41) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232591.jpg" />
+  <img src="Z:/picture/005/save_picture_232591.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232168.jpg" />
+  <img src="Z:/picture/005/save_picture_232168.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ A Golden Wake (2014) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231934.jpg" />
+  <img src="Z:/picture/004/save_picture_231934.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Don't Starve Together (2016) [Ru] (Build 696980/dlc) Repack Pioneer
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230562.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ LOST EMBER (2019) [Ru/Multi] (1.0.0.11965) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229470.jpg" />
+  <img src="Z:/picture/004/save_picture_229470.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Life after Death (2022) [Ru/En] (10.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228323.jpg" />
+  <img src="Z:/picture/005/save_picture_228323.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ Scorn (2022) [Ru/Multi] (Build 9713371) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228191.jpg" />
+  <img src="Z:/picture/005/save_picture_228191.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.35) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226363.jpg" />
+  <img src="Z:/picture/005/save_picture_226363.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Heavy Rain (2019) [Ru/Multi] (Build 362) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226331.jpg" />
+  <img src="Z:/picture/005/save_picture_226331.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Heavy Rain (2019) [Ru/Multi] (Build 362) Repack R.G. Механики
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5719F6CAA48F26C0A137B09FF0A91E839C85F82E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250801   (225338) от 02.08.2023
-
-Amnesia: The Dark Descent / Амнезия: Призрак прошлого (2010) [Ru/Multi] (1.41b/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Остатки памяти исчезают в темноте. Твой разум в смятении, и ты не в силах освободиться от навязчивого чувства преследования. Нужно найти выход. Проснуться... Ты, спотыкаясь, идешь по узкому коридору и слышишь плач вдалеке. Звук приближается. Нужно выяснить... Это действительно кто-то шаркает ногами? Или это просто игра твоего больного воображения?Тип издания: LicenseРазработчик: Frictional GamesЖанр: Приключение, От первого лица, ХоррорЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB5E3781B168ECD84650E62CEED6D31519A73F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101767   (225318) от 11.12.2018
-
-Husk (2017) [Ru/Multi] (1.0/upd5) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Husk — это продуманная игра в стиле Survival Horror, в которой говорится о зле, боли и поисках прощения в Шиверклиффе —городе, из которого по неизвестной причине ушли все жители. Эта игра задумана как дань уважения классическим триллерам, таким как «Сайлент Хилл» и «Твин Пикс». Идет 1995 год, ваш персонаж — Мэтью Палмер, и вы только что очнулись после крушения поезда. (   Читать дальше...   )Тип издания: RepackРазработчик: UndeadScoutЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0712906092D5319ECB3722F78C55B39CBCF7C6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336680   (223230) от 02.12.2019
-
-Loco Parentis (2019) [Ru/En] (1.2.0.4856) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Loco Parentis — сюрреалистичный survival-horror, где вам в одиночку, или с другом, предстоит решать загадки и пытаться выжить среди чудовищ внутри бесконечного подъезда.Тип издания: RepackРазработчик: Fair Games StudioЖанр: Adventure (Survival horror), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7435522E5E8D43D729CB2DADB105E7A9FCC35914
 ```
 
 https://mybot314.ru/tekegram_catalog/

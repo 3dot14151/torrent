@@ -6,7 +6,7 @@ Dato 3.3.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622369.jpg" />
+  <img src="Z:/picture/008/save_picture_622369.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SyncBird Pro 3.7.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622359.jpg" />
+  <img src="Z:/picture/008/save_picture_622359.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ LaunchBar 6.9 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621645.jpg" />
+  <img src="Z:/picture/008/save_picture_621645.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Hazel 4.0.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621079.jpg" />
+  <img src="Z:/picture/008/save_picture_621079.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ iExplorer 3.9.11 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618988.jpg" />
+  <img src="Z:/picture/008/save_picture_618988.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ MacAppBlocker 3.1.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618091.jpg" />
+  <img src="Z:/picture/008/save_picture_618091.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Paste 2.2.3 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616198.jpg" />
+  <img src="Z:/picture/008/save_picture_616198.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ Araxis Merge Pro Edition 2022.5706 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614795.jpg" />
+  <img src="Z:/picture/008/save_picture_614795.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ WiFi Signal: Status Monitor  4.4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613040.jpg" />
+  <img src="Z:/picture/008/save_picture_613040.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ Plisterine 3.0.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612021.jpg" />
+  <img src="Z:/picture/008/save_picture_612021.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ OS X Server 5.1.7 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609760.jpg" />
+  <img src="Z:/picture/008/save_picture_609760.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ Sublime Merge Build 2071 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604426.jpg" />
+  <img src="Z:/picture/008/save_picture_604426.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ BitMedic AntiVirus & Malware Security 2.6 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604138.jpg" />
+  <img src="Z:/picture/008/save_picture_604138.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Pelican - Clipboard Manager 1.2.0 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603969.jpg" />
+  <img src="Z:/picture/008/save_picture_603969.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ SmartMemoryCleaner 2.0.1 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601595.jpg" />
+  <img src="Z:/picture/008/save_picture_601595.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ CopyPaste Pro 3.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600072.jpg" />
+  <img src="Z:/picture/008/save_picture_600072.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Hopper Disassembler 3.9.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597869.jpg" />
+  <img src="Z:/picture/008/save_picture_597869.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Trim Enabler Pro 3.4 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592201.jpg" />
+  <img src="Z:/picture/008/save_picture_592201.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ SpeedTools Utilities 3.9 Pro [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591808.jpg" />
+  <img src="Z:/picture/008/save_picture_591808.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ HazeOver 1.4.4 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591326.jpg" />
+  <img src="Z:/picture/008/save_picture_591326.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Degrees Pro 4.2.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588597.jpg" />
+  <img src="Z:/picture/008/save_picture_588597.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Winclone Pro 7 v7.3.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582975.jpg" />
+  <img src="Z:/picture/008/save_picture_582975.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Super Refocus 1.5.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582353.jpg" />
+  <img src="Z:/picture/008/save_picture_582353.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Acronis True Image 2015 v1.0.6725 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581695.jpg" />
+  <img src="Z:/picture/008/save_picture_581695.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Disk Sensei 1.4 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580340.jpg" />
+  <img src="Z:/picture/008/save_picture_580340.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Cocktail 9.3.4 (El Capitan Edition) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579409.jpg" />
+  <img src="Z:/picture/008/save_picture_579409.jpg" />
 </div>
 
 

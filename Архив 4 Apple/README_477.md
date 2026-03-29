@@ -1,3 +1,112 @@
+###  Публикация: 1188678   (273240) от 03.12.2017
+
+Boom2:Volume Boost & Equalizer 1.6.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boom делает звук объемнее и качественней.
+Если вы часто испытываете проблемы с громкостью звука при просмотре фильмов или роликов в интернете, общении в аудио-чатах, или простом прослушивании музыки, Boom то, что вам требуется. В первую очередь Boom подойдет обладателям MacBook и MacBook Air, так как штатная акустика у портативных устройств оставляет желать лучшего. (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 28 сентября 2017Разработчик: Global Delight Technologies Pvt. Ltd.Поддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D59016BB77B84617021DB5F34394CB16CEEAB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188636   (273234) от 03.12.2017
+
+Disk Drill Media Recovery 3.5.873 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disk Drill Media Recovery - это самое простое и удобное приложение по восстановлению данных для Мака.
+
+Начиная с версии 2.x/3.x можно получить свои данные обратно с любого бинарного образа диска. Поддерживаются следующие форматы диска: DMG, ISO, IMG. Восстановить данные легко, как обычно, всего за 3 простых шага: №1 создать образ диска (используя Disk Utility, например); (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.12.2017Разработчик: Justin JohnsonПоддерживаемая ОС: OS X 10.8.5 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51ED31AB926C4E916CF130748CFB48B27DEA2F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188691   (273101) от 03.12.2017
+
+Max Payne 3 (2012) [Ru] [macOS WineSkin]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273101.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий Max Payne 2 прошло восемь лет. Макс уже не коп — он спившийся, сидящий на обезболивающих безработный. Сломленный. Раздавленный. Без цели. Но, волею случая перебравшись в Бразилию, он поступает на службу в частное охранное агентство и получает задание защищать семью успешного торговца недвижимостью. Вскоре Максу на собственной шкуре предстоит почувствовать: (   Читать дальше...   )Тип издания: macOS WineSkinРелиз состоялся: 2012Разработчик: Rockstar VancouverПоддерживаемая ОС: OS X Yosemite 10.10.5Жанр: Action, Shooter, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A13119A1ABC5103534D767E695AC915D3B1ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265777   (273068) от 29.11.2018
+
+MiniNote Pro 5.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_273068.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniNote Pro — очень простое и удобное приложение (замечательная замена нативным заметкам), которое находиться в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы которого можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много.
+
+В версии Pro можно воспользоваться возможностью форматированного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2018Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA249749B01C92D5C2B221077788895180E6298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265668   (273057) от 29.11.2018
 
 FSNotes 2.5 [En/Ru]
@@ -6,7 +115,7 @@ FSNotes 2.5 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273057.jpg" />
+  <img src="Z:/picture/008/save_picture_273057.jpg" />
 </div>
 
 
@@ -32,7 +141,7 @@ Things 3 v3.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273045.jpg" />
+  <img src="Z:/picture/008/save_picture_273045.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ Alarm Clock Pro 11.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273034.jpg" />
+  <img src="Z:/picture/008/save_picture_273034.jpg" />
 </div>
 
 
@@ -88,7 +197,7 @@ Calendar 366 II v2.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273031.jpg" />
+  <img src="Z:/picture/008/save_picture_273031.jpg" />
 </div>
 
 
@@ -116,7 +225,7 @@ MacPilot 10 v10.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273020.jpg" />
+  <img src="Z:/picture/008/save_picture_273020.jpg" />
 </div>
 
 
@@ -143,7 +252,7 @@ ProPresenter 6 v6.3.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272965.jpg" />
+  <img src="Z:/picture/008/save_picture_272965.jpg" />
 </div>
 
 
@@ -172,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272916.jpg" />
+  <img src="Z:/picture/008/save_picture_272916.jpg" />
 </div>
 
 
@@ -198,7 +307,7 @@ Capture One Pro 12 v12.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272861.jpg" />
+  <img src="Z:/picture/008/save_picture_272861.jpg" />
 </div>
 
 
@@ -225,7 +334,7 @@ ExactScan Pro 19.11 (build 19.11.11) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272711.jpg" />
+  <img src="Z:/picture/008/save_picture_272711.jpg" />
 </div>
 
 
@@ -251,7 +360,7 @@ Slidepad 1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272709.jpg" />
+  <img src="Z:/picture/008/save_picture_272709.jpg" />
 </div>
 
 
@@ -279,7 +388,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5.2b1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272708.jpg" />
+  <img src="Z:/picture/008/save_picture_272708.jpg" />
 </div>
 
 
@@ -308,7 +417,7 @@ Wondershare AllMyMusic 3.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272707.jpg" />
+  <img src="Z:/picture/008/save_picture_272707.jpg" />
 </div>
 
 
@@ -335,7 +444,7 @@ ScreenFlow 8 v8.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272705.jpg" />
+  <img src="Z:/picture/008/save_picture_272705.jpg" />
 </div>
 
 
@@ -364,7 +473,7 @@ Unite 2.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272704.jpg" />
+  <img src="Z:/picture/008/save_picture_272704.jpg" />
 </div>
 
 
@@ -390,7 +499,7 @@ RAW Power 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272701.jpg" />
+  <img src="Z:/picture/008/save_picture_272701.jpg" />
 </div>
 
 
@@ -418,7 +527,7 @@ Smultron 9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272658.jpg" />
+  <img src="Z:/picture/008/save_picture_272658.jpg" />
 </div>
 
 
@@ -447,7 +556,7 @@ PaintCode 3.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272655.jpg" />
+  <img src="Z:/picture/008/save_picture_272655.jpg" />
 </div>
 
 
@@ -475,7 +584,7 @@ Lingon X 4.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272651.jpg" />
+  <img src="Z:/picture/008/save_picture_272651.jpg" />
 </div>
 
 
@@ -502,7 +611,7 @@ LaunchBar 6.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272647.jpg" />
+  <img src="Z:/picture/008/save_picture_272647.jpg" />
 </div>
 
 
@@ -531,7 +640,7 @@ Exposure X5 v5.0.2.95 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272638.jpg" />
+  <img src="Z:/picture/008/save_picture_272638.jpg" />
 </div>
 
 
@@ -557,7 +666,7 @@ Mosaic Pro - Professional-level window management 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272635.jpg" />
+  <img src="Z:/picture/008/save_picture_272635.jpg" />
 </div>
 
 
@@ -586,7 +695,7 @@ Debookee 5.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272594.jpg" />
+  <img src="Z:/picture/008/save_picture_272594.jpg" />
 </div>
 
 
@@ -598,117 +707,6 @@ Debookee - Программа, анализирующая соединение �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4C0D785213E7DE1D4658D67E34DE84721BA270C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084019   (272584) от 17.12.2016
-
-Business Templates for Pages 3.1.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Business Templates-  профессиональные и стильные бизнес-шаблоны для Pages.
-Business Templates представляет собой прекрасный комплект из 455 шаблонов для Pages, начиная от визитных карточек и информационных бюллетеней, брошюр, календарей,  товарных чеков и счетов,  заканчивая различными формами для менеджемента и других публикаций.
-
-Используйте шаблоны одной страницы, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17 декабря 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBCA31A129355FF362433903DD00C636B350363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337670   (272545) от 12.11.2019
-
-Adobe Zii 2020 - Universal Patcher v5.0.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4100D6F495BCDE7DB67B09636FBFF88A9AE084DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084202   (272451) от 17.12.2016
-
-sdspeed 3.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272451.jpg" />
-</div>
-
-
-###  Подробнее
-
-sdspeed - Программное обеспечение для проверки целостности карты флэш-памяти SD
-sdspeed является единственным продуктом, который измеряют чтения и записи скорости и тестирования каждый бит карты памяти SD вы можете доверять без "конфликта интересов".
-
-Вы ищете тест скорости SD карты на Mac, как проверить скорость карты памяти, SD Card Speed Test, тест флэш-карты (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 июля 2016Разработчик: Michael MustunПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F7FB07C7507CF64ECBA7D4E3974B9372EFEF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337735   (272438) от 12.11.2019
-
-Find Any File (FAF) 2.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2019Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7627BB566ACD88F72E43678ED489396D4C5947
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1812549   (7759) от 15.08.2025
+
+Роджер Уотерс - Это не учения - Концерт в Праге / Roger Waters: This Is Not a Drill - Live from Prague (2025) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первоначально записанный и снятый во время концерта Уотерса на арене O2 в Чехии 25 мая 2023 года, этот Blu-ray диск запечатлел широко известное живое выступление Уотерса, включающее такие культовые треки, как «Us & Them», «Comfortably Numb», «Wish You Were Here» и «Is This The Life We Really Want?». Кроме того, Уотерс исполняет свою новую песню «The Bar», получившую (   Читать дальше...   )Производство: Sony musicЖанр: RockРежиссер: Sean Evans, Roger WatersУчастники: Roger Waters, Amanda Belair, Shanay Barnes Johnson, Jon Carin, Gus Seyffert, Seamus Blake, Dave Kilminster, Robert Walter, Jonathan Wilson, Joey WaronkerПродолжительность: 02:23:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E420B45A5AC41AEDBA0D384C1F5AC9AF5E8306B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812728   (7516) от 16.08.2025
+
+Roger Waters: This Is Not a Drill - Live from Prague (2025) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первоначально записанный и снятый во время концерта Уотерса на арене O2 в Чехии 25 мая 2023 года, этот Blu-ray диск запечатлел широко известное живое выступление Уотерса, включающее такие культовые треки, как «Us & Them», «Comfortably Numb», «Wish You Were Here» и «Is This The Life We Really Want?». Кроме того, Уотерс исполняет свою новую песню «The Bar», получившую (   Читать дальше...   )Производство: Sony musicЖанр: RockРежиссер: Sean Evans, Roger WatersУчастники: Roger Waters, Amanda Belair, Shanay Barnes Johnson, Jon Carin, Gus Seyffert, Seamus Blake, Dave Kilminster, Robert Walter, Jonathan Wilson, Joey WaronkerПродолжительность: 02:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD7CA2FCE7E0ED21717FD76554E1C6EB2A304B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812940   (7322) от 17.08.2025
+
+Кино. Последний концерт в Лужниках (1990) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последний концерт группы «Кино», который прошел на Большой спортивной арене Лужников 24 июня 1990 года, незадолго до трагической гибели Виктора Цоя. Во время шоу, на котором присутствовали 70 тысяч зрителей, зажгли Олимпийский огонь Игр-1980, а по окончании 45-минутного выступления группы «Кино» прогремел салют.Телекомпания: Россия | Первый каналЖанр: РокУчастники: Виктор Цой (вокал, гитара), Юрий Каспарян (соло-гитара), Георгий Гурьянов (драм-машина, ударные) и Игорь Тихомиров (бас-гитара)Продолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B654895929B0E6F40BBD840F6321E58957A75673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813775   (6645) от 21.08.2025
 
 NEMOPHILA - 5th Anniversary. JIGOKU NO YURUFUWA LIVE at NIPPON BUDOKAN (2024) BDRip [H.264/1080p]
@@ -6,7 +84,7 @@ NEMOPHILA - 5th Anniversary. JIGOKU NO YURUFUWA LIVE at NIPPON BUDOKAN (2024) BD
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6645.jpg" />
 </div>
 
 
@@ -36,7 +114,7 @@ Whitney Houston - Концерт в Южной Африке / Whitney Houston - 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5569.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5013.jpg" />
 </div>
 
 
@@ -91,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3939.jpg" />
 </div>
 
 
@@ -120,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_2760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2760.jpg" />
 </div>
 
 
@@ -149,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1665.jpg" />
 </div>
 
 
@@ -178,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_287.jpg" />
 </div>
 
 

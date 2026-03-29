@@ -1,3 +1,119 @@
+###  Публикация: 1006467   (827248) от 12.04.2016
+
+Abbey Lincoln - Abbey Is Blue (1959) Remaster,2005,Riverside Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afro-Blue (03:20)
+02. Lonely House (03:40)
+03. Let Up (05:32)
+04. Thursday's Child (03:32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A82E8D4BE5EF9C12877BF94F4A9D1CA0B4545550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006605   (827247) от 12.04.2016
+
+Pharoah Sanders - Village Of The Pharoahs & Wisdom Through Music (1973) 2011, Verve Music Group[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Village of The Pharoahs, Part One [07:15]
+ 02.Village of The Pharoahs, Part Two [04:58]
+ 03.Village of The Pharoahs, Part Three [04:52]
+ 04.Myth [01:48](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB57172F4368B01D3256789F62FBA2B2A1CE859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006569   (827245) от 12.04.2016
+
+Doctor Jazz's Universal Remedy! - Release 1.0 (2004) Unofficial Release [APE|Lossless|image + .cue] <Jazz, Future Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01	Milt Shake
+02	Groovy Night
+03	Elizabeat
+04	Seven Reasons Why(   Читать дальше...   )Жанр: Jazz, Future JazzПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B2B3DE1CE41BF79561A9BF109E3E397BF5AC083
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006557   (827089) от 12.04.2016
+
+The Glenn Miller Orchestra - In The Digital Mood (1984) Digital Mastering [APE|Lossless|image + .cue] <Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Mood
+02. Chattanooga Choo-Choo
+03. The American Patrol
+04. A String of Pearls(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A053470CC5B859175274CBC4CD9C8946AA01AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502542   (826819) от 15.10.2021
 
 Les McCann - Relationships: The Les McCann Anthology (1960 - 1972) 2CD, 1993, Rhino Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
@@ -6,7 +122,7 @@ Les McCann - Relationships: The Les McCann Anthology (1960 - 1972) 2CD, 1993, Rh
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826819.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Martial Solal - Big Band (1984) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826779.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Woody Shaw - Field Recordings Of A Jazz Master (1975, 1980,1981) 2012, Internati
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826775.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Houston Person - Broken Windows, Empty Hallways (1972) 2004, Prestige [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826774.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Carolyn Leonhart - Steal The Moon (2000) Sunnyside Communications [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826773.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Organissimo - Waiting For The Boogaloo Sisters… (2003) Big O Records [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826772.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Harry Allen Quartet - London Date (2016) Trio Records [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826768.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Michel Camilo & Tomatito - Spain (2000) Universal [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826662.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Clifford Brown & Max Roach - Brown and Roach Incorporated (1954) 2004, Universal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826660.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Miles Davis - In Person, Friday Night At The Blackhawk, San Francisco, Volume 1 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826659.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Fred Astaire - The Essential Collection (1933-1952) 2CD, 2006, Avid Entertainmen
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826658.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Michel Camilo & Tomatito - Spain Again (2006) Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826657.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Sonny Rollins And Coleman Hawkins - Sonny Meets Hawk!: The Two Giants Of The Ten
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826650.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Miles Davis - Kind Of Blue (1962) Remaster, 1987, CBS [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826456.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Dakota Staton - Dakota At Storyville 1961 (1991) Collectables [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826336.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ The Dave Brubeck Quartet - Jazz At Oberlin 1953 (2003) Fantasy [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826334.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Stan Getz & Charlie Byrd - Jazz Samba 1962 (2013) Analogue Productions [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826249.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Maria Jacobs - Lucky Girl (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826034.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Moacir Santos - Saudade (1974) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825582.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Phil Woods & The Japanese Rhythm Machine (1975) Remaster, 2014, Sony Music[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825580.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ George Coleman - Amsterdam After Dark (1978) Remaster, 2015, Solid Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825489.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Dusko Goykovich & Scott Hamilton - Second time Around (2015) Organic Music[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825393.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Dusko Goykovich & Scott Hamilton - Second time Around (2015) Organic Music[FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A241D88736BA75F48CFC9F45AF996B1AD014F9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116073   (825068) от 19.03.2017
-
-Phineas Newborn, Jr. - Here Is Phineas (1956) Remaster, 2013, Warner [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Barbados [04:06]
- 02.All The Things You Are [07:28]
- 03.The More I See You [04:07]
- 04.Celia [03:11](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F69B0071D05409FC7AE110090EB749B732F04DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116083   (824875) от 19.03.2017
-
-The Louis Armstrong - Collection (1920-e - 1960-e) 4CD, 1991, Tring [FLAC|Lossless|image + .cue] <Vocal Jazz, Swing, Dixieland>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824875.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Mame [02:25]
-02.Stompin At The Savoy [01:51]
-03.I Got Rhythm [03:36](   Читать дальше...   )Жанр: Vocal Jazz, Swing, DixielandПродолжительность: 03:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31129E4D890CBD3524D7A9230E74BC287755EADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116078   (824871) от 19.03.2017
-
-Oscar Peterson - 5 Original Albums (1955, 1959, 1962) 5CD, Remaster, Universal, 2016 [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824871.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Oscar Peterson Plays Count Basie:
-01.Lester Leaps In [03:59]
-02.Easy Does It [06:29]
-03.9:20 Special [03:41](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 03:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F819CB66775E0F728A3ADCB51B21802A876FC81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381746   (824817) от 08.05.2020
-
-Mildred Bailey - In Love: 1930-e - 1940-e (1998) Simitar [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Almost Like Being in Love [3:08]
-02. I'll Close My Eyes [3:07]
-03. At Sundown [3:24]
-04. Me and the Blues [3:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E91A0EB78E14B2A8D7B749D26CD2D2E721EC6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

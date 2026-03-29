@@ -6,7 +6,7 @@
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797383.jpg" />
+  <img src="Z:/picture/008/save_picture_797383.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Audirvana Plus 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797379.jpg" />
+  <img src="Z:/picture/008/save_picture_797379.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Auslogics BoostSpeed 10.0.2.0 DC 10.01.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797374.jpg" />
+  <img src="Z:/picture/008/save_picture_797374.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797371.jpg" />
+  <img src="Z:/picture/008/save_picture_797371.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797354.jpg" />
+  <img src="Z:/picture/008/save_picture_797354.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797346.jpg" />
+  <img src="Z:/picture/008/save_picture_797346.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797341.jpg" />
+  <img src="Z:/picture/008/save_picture_797341.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ AIMP 5.00 build 2342 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797334.jpg" />
+  <img src="Z:/picture/008/save_picture_797334.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Easy Duplicate Finder 7.13.0.29 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797330.jpg" />
+  <img src="Z:/picture/008/save_picture_797330.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797322.jpg" />
+  <img src="Z:/picture/008/save_picture_797322.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Capture One Pro 11 v11.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797319.jpg" />
+  <img src="Z:/picture/008/save_picture_797319.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Waltr 2 v2.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797318.jpg" />
+  <img src="Z:/picture/008/save_picture_797318.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ iTools Pro 1.7.7.3 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797303.jpg" />
+  <img src="Z:/picture/008/save_picture_797303.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Windows 10 Manager 1.1.2 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797284.jpg" />
+  <img src="Z:/picture/008/save_picture_797284.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797226.jpg" />
+  <img src="Z:/picture/008/save_picture_797226.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Ocenaudio 3.7.16 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797190.jpg" />
+  <img src="Z:/picture/008/save_picture_797190.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Media Player Classic Home Cinema 1.9.3 RePack (& portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797156.jpg" />
+  <img src="Z:/picture/008/save_picture_797156.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Trance Euphoria Vol.8 (Andorfine Records) (2020) [MP3|320 Kbps] <Trance, Up
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797155.jpg" />
+  <img src="Z:/picture/008/save_picture_797155.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797154.jpg" />
+  <img src="Z:/picture/008/save_picture_797154.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ PrivaZer 4.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797153.jpg" />
+  <img src="Z:/picture/008/save_picture_797153.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ CoolUtils Total Movie Converter 4.1.0.38 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797152.jpg" />
+  <img src="Z:/picture/008/save_picture_797152.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ CCleaner Browser 81.0.4133.132 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797135.jpg" />
+  <img src="Z:/picture/008/save_picture_797135.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Ashampoo WinOptimizer 18.00.15 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797133.jpg" />
+  <img src="Z:/picture/008/save_picture_797133.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ MAGIX Sound Forge Pro Suite 14.0 Build 65 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797128.jpg" />
+  <img src="Z:/picture/008/save_picture_797128.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ System Ninja 3.2.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797125.jpg" />
+  <img src="Z:/picture/008/save_picture_797125.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Windows 10 Manager 3.2.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797123.jpg" />
+  <img src="Z:/picture/008/save_picture_797123.jpg" />
 </div>
 
 

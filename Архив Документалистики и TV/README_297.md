@@ -1,3 +1,176 @@
+###  Публикация: 1190610   (267158) от 10.12.2017
+
+Биатлон. Кубок Мира 2017-2018. 2-й Этап. Хохфильцен (Австрия). Женщины. Гонка преследования (09.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267158.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 декабря 2017 года, суббота. 16:45 МСК
+2-й этап Кубка Мира по биатлону 2017-2018. Хохфильцен (Австрия)
+Женщины. Гонка преследования 10 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C4652C66CC2B28F5EE40E27D137B616C60D540
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189780   (267157) от 10.12.2017
+
+Футбол. Лига Чемпионов УЕФА 2017-2018. Группа D. 6-й тур. Барселона (Испания) – Спортинг (Португалия) (05.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267157.jpg" />
+</div>
+
+
+###  Подробнее
+
+05 декабря 2017 года, вторник. 22:45 МСК
+Лига Чемпионов УЕФА 2017-2018. Групповой турнир
+Группа D. 6-й тур.
+Барселона (Барселона, Испания) – Спортинг (Лиссабон, Португалия)(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0539934EE664BCD0C017718C61725DC1B15AD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189722   (267156) от 10.12.2017
+
+Футбол. Лига Чемпионов УЕФА 2017-2018. Группа A. 6-й тур. Манчестер Юнайтед (Англия) – ЦСКА (Россия) (05.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267156.jpg" />
+</div>
+
+
+###  Подробнее
+
+05 декабря 2017 года, вторник. 22:45 МСК
+Лига Чемпионов УЕФА 2017-2018. Групповой турнир
+Группа A. 6-й тур.
+Манчестер Юнайтед (Манчестер, Англия) – ЦСКА (Москва, Россия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92F64840F6ADF2E183B4FBA8924FB02B0DC4E6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189920   (267155) от 10.12.2017
+
+Футбол. Лига Чемпионов УЕФА 2017-2018. Группа G. 6-й тур. Порту (Португалия) – Монако (Монако) (06.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267155.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 декабря 2017 года, среда. 22:45 МСК
+Лига Чемпионов УЕФА 2017-2018. Групповой турнир
+Группа G. 6-й тур.
+Порту (Порту, Португалия) – Монако (Монако, Монако)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8AA11380BDE17D1C93C4E72BA7D2F4429E5DE99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190311   (267147) от 10.12.2017
+
+Футбол. Лига Европы УЕФА 2017-2018. Группа J. 6-й тур. Заря (Украина) – Атлетик Б (Испания) (07.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267147.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 декабря 2017 года, четверг. 23:05 МСК
+Лига Европы УЕФА 2017 - 2018. Групповой турнир
+Группа J. 6-й тур.
+Заря (Луганск, Украина) – Атлетик (Бильбао, Испания)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B2B12176BE16D85659BCD745727155336A5926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1190284   (267144) от 10.12.2017
+
+Футбол. Лига Европы УЕФА 2017-2018. Группа H. 6-й тур. Црвена Звезда (Сербия) – Кёльн (Германия) (07.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_267144.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 декабря 2017 года, четверг. 23:05 МСК
+Лига Европы УЕФА 2017 - 2018. Групповой турнир
+Группа H. 6-й тур.
+Црвена Звезда (Белград, Сербия) – Кёльн (Кёльн, Германия)(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE201B7E76FAE7C9BD343123979C08E35FF92FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1190163   (267138) от 10.12.2017
 
 Футбол. Лига Европы УЕФА 2017-2018. Группа A. 6-й тур. Славия П (Чехия) – Астана (Казахстан) (07.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +179,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267138.jpg" />
+  <img src="Z:/picture/008/save_picture_267138.jpg" />
 </div>
 
 
@@ -35,7 +208,7 @@ NASCAR-2019. 36-й Этап. Хомстед. Гонка / Monster Energy NASCAR 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267059.jpg" />
+  <img src="Z:/picture/008/save_picture_267059.jpg" />
 </div>
 
 
@@ -61,7 +234,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267040.jpg" />
+  <img src="Z:/picture/008/save_picture_267040.jpg" />
 </div>
 
 
@@ -90,7 +263,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266659.jpg" />
 </div>
 
 
@@ -119,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266534.jpg" />
 </div>
 
 
@@ -145,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266159.jpg" />
 </div>
 
 
@@ -173,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266043.jpg" />
 </div>
 
 
@@ -202,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266042.jpg" />
 </div>
 
 
@@ -230,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266041.jpg" />
 </div>
 
 
@@ -259,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266040.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266040.jpg" />
 </div>
 
 
@@ -287,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266039.jpg" />
 </div>
 
 
@@ -316,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265813.jpg" />
 </div>
 
 
@@ -343,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265809.jpg" />
 </div>
 
 
@@ -370,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265347.jpg" />
 </div>
 
 
@@ -398,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265290.jpg" />
 </div>
 
 
@@ -427,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265289.jpg" />
 </div>
 
 
@@ -456,7 +629,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265288.jpg" />
 </div>
 
 
@@ -485,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265243.jpg" />
 </div>
 
 
@@ -512,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265082.jpg" />
 </div>
 
 
@@ -541,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_265081.jpg" />
 </div>
 
 
@@ -555,173 +728,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D45DCCD9CA2688D7810C58188A6501C3F38968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267769   (265077) от 08.12.2018
-
-Биатлон. Кубок Мира 2018-2019. 1-й Этап. Поклюка (Словения). Смешанная эстафета-Супермикст (02.12.2018) HDTV [H.264/1080i-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265077.jpg" />
-</div>
-
-
-###  Подробнее
-
-02 декабря 2018 года, воскресенье. 14:00 МСК
-Кубка Мира по биатлону сезона 2018-2019. Этап 1. Поклюка (Словения):
-Смешанная эстафета-Супермикст
-Стадион: Sports Centre Triglav (Поклюка, Словения)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34447F13F3FB527F4DB4D916CD592018D045DAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191300   (264551) от 13.12.2017
-
-Биатлон с Дмитрием Губерниевым. Сезон 2017-2018. Выпуск 3 (2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эфир от: 10.12.2017
-Для биатлонистов зима - это время мобилизации сил и полной концентрации. Для зрителей - начало интереснейших соревнований и сильных переживаний за сборную.Телекомпания: Матч ТВ HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F78D6FCC3605C9A29039BE8D216D24D0B1BC8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191297   (264550) от 13.12.2017
-
-Горные лыжи. Кубок мира 2017–2018. Валь дe Изер (Франция). Мужчины. Слалом (10.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264550.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 декабря 2017 года, воскресенье. 14:30 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Валь дe Изер(Франция).
-Мужчины. СлаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:27:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85BA0C32E07E89CAF5692FC1D2A92B48A5C0F20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969565   (264400) от 27.12.2015
-
-Вести недели (27.12.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264400.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F30D0DBC09CA6213F39B6FD67449572EE5C0D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340095   (264304) от 22.11.2019
-
-Хоккей. НХЛ 2019-2020. Питтсбург Пингвинз - Нью-Йорк Айлендерс (21.11.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264304.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 ноября 2019 года, пятница 03:00 МСК
-Стадион: Барклейс-центр (Нью-Йорк, США), 13 212 зрителей (84 % при вместимости 15 795)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Ти-Джей Люксмор (Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E77425297C3D4281D6DA67A4B1F4BAC7CF4B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340085   (264301) от 22.11.2019
-
-Хоккей. НХЛ 2019-2020. Вашингтон Кэпиталз - Нью-Йорк Рейнджерс (20.11.2019) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264301.jpg" />
-</div>
-
-
-###  Подробнее
-
-21 ноября 2019 года, четверг 04:00 МСК
-Стадион: Мэдисон Сквер Гарден (Нью-Йорк, США), 17 239 зрителей (96 % при вместимости 18 006)
-Главный судья: Марк Жоанетт (Вердун, Канада); Главный судья: Фурман Саут (США)Телекомпания: NBCSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A850D3AE9804DD15FF47A85C9018183932D9CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

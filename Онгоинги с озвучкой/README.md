@@ -7,7 +7,7 @@ Sousou no Frieren TV-2 | Фрирен, провожающая в последн�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053854.jpg" />
+  <img src="Z:/picture/005/save_picture_1053854.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053178.jpg" />
+  <img src="Z:/picture/005/save_picture_1053178.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052911.jpg" />
+  <img src="Z:/picture/005/save_picture_1052911.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Hime-sama "Goumon" no Jikan Desu TV-2 | Время пытки, принцесс�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052898.jpg" />
+  <img src="Z:/picture/005/save_picture_1052898.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052760.jpg" />
+  <img src="Z:/picture/005/save_picture_1052760.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052625.jpg" />
+  <img src="Z:/picture/005/save_picture_1052625.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052568.jpg" />
+  <img src="Z:/picture/005/save_picture_1052568.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052490.jpg" />
+  <img src="Z:/picture/005/save_picture_1052490.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кае не страшно [202
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052178.jpg" />
+  <img src="Z:/picture/005/save_picture_1052178.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mato Seihei no Slave 2 | Chained Soldier 2 | Раб спецотряда дем�
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051962.jpg" />
+  <img src="Z:/picture/005/save_picture_1051962.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Omae Gotoki ga Maou ni Kateru to Omou na | Roll Over and Die | Неужели т
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051939.jpg" />
+  <img src="Z:/picture/005/save_picture_1051939.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Maou no Musume wa Yasashi Sugiru!! | The Demon King`s Daughter Is Too Kind! | Ma
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051836.jpg" />
+  <img src="Z:/picture/005/save_picture_1051836.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051815.jpg" />
+  <img src="Z:/picture/005/save_picture_1051815.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051698.jpg" />
+  <img src="Z:/picture/005/save_picture_1051698.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Goumon Baito-kun no Nichijou | The Daily Life of a Part-time Torturer | Повс
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051481.jpg" />
+  <img src="Z:/picture/005/save_picture_1051481.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051343.jpg" />
+  <img src="Z:/picture/005/save_picture_1051343.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051122.jpg" />
+  <img src="Z:/picture/005/save_picture_1051122.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku | Sentenced to Be a 
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051002.jpg" />
+  <img src="Z:/picture/005/save_picture_1051002.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050833.jpg" />
+  <img src="Z:/picture/005/save_picture_1050833.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046691.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230307.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230307.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Egao no Taenai Shokuba Desu | A Mangaka`s Weirdly Wonderful Workplace | Рабо
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_162269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_162269.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Chanto Suenai Kyuuketsuki-chan | Li`l Miss Vampire Can`t Suck Right | Вампи
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128657.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Kekkon Yubiwa Monogatari II | Легенда свадебных колец 2 | �
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125794.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121579.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104514.jpg" />
 </div>
 
 

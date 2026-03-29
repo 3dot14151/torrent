@@ -1,3 +1,81 @@
+###  Публикация: 1317744   (498388) от 03.08.2019
+
+Дэвид Гранн | Убийцы цветочной луны (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_498388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Племени осейджей повезло уцелеть, когда белые колонизовали Америку. И еще им повезло очутиться на богатых нефтью землях Оклахомы. На старте нефтяной лихорадки двадцатых пресса наперебой сообщала о сказочном обогащении «краснокожих миллионеров». На этом везение индейцев закончилось, потому что их стали методично убивать: по одному и целыми семьями. Справиться с криминальным (   Читать дальше...   )Жанр: Документальная литература, ПублицистикаПеревод: Евгений МордашевФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E8A23E813B81E449ACEA4A9D6D1FCB0EACEC8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317965   (497748) от 04.08.2019
+
+Валери Плейм Уилсон | Игра без правил. Как я была секретным агентом и как меня предал Белый дом (2012) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497748.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 июля 2003 года секретный агент ЦРУ Валери Плейм Уилсон неожиданно для себя прославилась: в газете «Вашингтон пост» черным по белому было напечатано ее полное имя и раскрыто место службы. Разразился громкий скандал, которому вскоре присвоили имя «Плеймгейт», по аналогии с печально знаменитыми Уотергейтом и Ирангейтом. По «странному» стечению обстоятельств, утечка (   Читать дальше...   )Жанр: Биографии и Мемуары, Военное дело, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE26D0B54155FFFD4DFBAF5E18A82FFC191D2549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317971   (497741) от 04.08.2019
+
+Джон Максвелл Кутзее | Толстой, Беккет, Флобер и другие. 23 очерка о мировой литературе (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_497741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Максвелл Кутзее – первый писатель, который дважды был награжден Букеровской премией – в 1983 году за роман «Жизнь и время Михаэла К.» и в 1999 году за роман «Бесчестье». В 2003 году он удостоился Нобелевской премии по литературе. «Описывая слабости и недостатки людей, писатель обнаруживает божественную искру в человеческом существе», – говорилось в заявлении (   Читать дальше...   )Жанр: Критика, Литературоведение, ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2524811E3DCF262A32E5B723213A3D132C04D066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935915   (497553) от 10.09.2015
 
 Кристофер Гортнер | Мадемуазель Шанель (2015) [FB2, RTF]
@@ -6,7 +84,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497553.jpg" />
+  <img src="Z:/picture/008/save_picture_497553.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497269.jpg" />
+  <img src="Z:/picture/008/save_picture_497269.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496596.jpg" />
+  <img src="Z:/picture/008/save_picture_496596.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496294.jpg" />
+  <img src="Z:/picture/008/save_picture_496294.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495833.jpg" />
+  <img src="Z:/picture/008/save_picture_495833.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495183.jpg" />
+  <img src="Z:/picture/008/save_picture_495183.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495164.jpg" />
+  <img src="Z:/picture/008/save_picture_495164.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494597.jpg" />
+  <img src="Z:/picture/008/save_picture_494597.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493302.jpg" />
+  <img src="Z:/picture/008/save_picture_493302.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492516.jpg" />
+  <img src="Z:/picture/008/save_picture_492516.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492126.jpg" />
+  <img src="Z:/picture/008/save_picture_492126.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492089.jpg" />
+  <img src="Z:/picture/008/save_picture_492089.jpg" />
 </div>
 
 
@@ -329,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492027.jpg" />
+  <img src="Z:/picture/008/save_picture_492027.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490112.jpg" />
+  <img src="Z:/picture/008/save_picture_490112.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490080.jpg" />
+  <img src="Z:/picture/008/save_picture_490080.jpg" />
 </div>
 
 
@@ -410,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489031.jpg" />
+  <img src="Z:/picture/008/save_picture_489031.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488740.jpg" />
+  <img src="Z:/picture/008/save_picture_488740.jpg" />
 </div>
 
 
@@ -465,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488190.jpg" />
+  <img src="Z:/picture/008/save_picture_488190.jpg" />
 </div>
 
 
@@ -491,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488015.jpg" />
+  <img src="Z:/picture/008/save_picture_488015.jpg" />
 </div>
 
 
@@ -517,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487328.jpg" />
+  <img src="Z:/picture/008/save_picture_487328.jpg" />
 </div>
 
 
@@ -545,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487255.jpg" />
+  <img src="Z:/picture/008/save_picture_487255.jpg" />
 </div>
 
 
@@ -573,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486086.jpg" />
+  <img src="Z:/picture/008/save_picture_486086.jpg" />
 </div>
 
 
@@ -599,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485458.jpg" />
+  <img src="Z:/picture/008/save_picture_485458.jpg" />
 </div>
 
 
@@ -611,85 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51CBF5C8EC69DF42306B06EB78CBCF979F440615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405429   (485182) от 29.08.2020
-
-Алексей Рыков | Тесла против Эйнштейна. Битва великих «оружейников» (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исход Второй Мировой решался не только на полях сражений, но и в секретных лабораториях и на оружейных полигонах – всю войну и гитлеровцы, и Союзники бились над созданием Wunder-Waffe («чудо-оружия»), гарантирующего быструю победу над любым противником. Самое активное участие в этих сверхсекретных экспериментах приняли два величайших ученых эпохи – Альберт Эйнштейн (   Читать дальше...   )Жанр: Биографии и мемуары, Военное дело, Спецслужбы, История, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652359A3F5BA4FA9E965DD96BB311184FF0CA86D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405454   (485002) от 29.08.2020
-
-Валентин Катасонов | Центробанки на службе «хозяев денег» (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485002.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге раскрывается тема деятельности центральных банков с позиций, отличных от традиционных трактовок либеральной экономической науки. Автор показывает, что центральный банк – не только институт, осуществляющий выпуск денег; он также контролирует банковский сектор экономики, а со временем начинает активно командовать всей экономикой. Показано, что центральный банк (   Читать дальше...   )Жанр: Мировая экономика, Экономическая политика, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49AA9B254BB997FC95537DA099F331FF864B99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405346   (484910) от 29.08.2020
-
-Кэролайн Криадо Перес | Невидимые женщины. Почему мы живем в мире, удобном только для мужчин. Неравноправие, основанное на данных (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представьте себе мир, где врач, сам того не ведая, выписывает препарат, который вам вреден; где вероятность получения вами серьезных увечий в случае автомобильной аварии на 47 % выше, чем у другой половины человечества; где ваш домашний труд после напряженного рабочего дня мало кто замечает и ценит. Знакомая картина? Значит, вы, скорее всего, женщина.
-Кэролайн Криадо (   Читать дальше...   )Жанр: Социология, ПублицистикаПеревод: Валерия БашкироваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79279C8B0D93A31A9339839CF173E20D0A2D5898
 ```
 
 https://mybot314.ru/tekegram_catalog/

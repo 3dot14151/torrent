@@ -1,3 +1,61 @@
+###  Публикация: 926227   (535582) от 09.08.2015
+
+VA - Blanck Mass Presents - The Strange Colour of Your Body's Tears Re-Score (2015) [MP3|320 кб/с]<Electronic, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_535582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roll the Dice - Portal
+02. Helm - Eye Balm
+03. Helm - Mirrored Palms
+04. Helm - Silencer II(   Читать дальше...   )Жанр: Electronic, ScoreПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E11CCC590C3AF3D328597858C2E66EBBF00ED7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926128   (535475) от 09.08.2015
+
+Medwyn Goodall - The Wisdom of Ages (2015) [MP3|320 кб/с]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_535475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anam Cara Reprise
+02. Love Conquers All
+03. Spin of the Reel
+04. The Wisdom of Ages(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31371629ABD73564FEBAB8B44B2F746C1EE7D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154766   (535186) от 02.08.2017
 
 Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk, Rock>
@@ -6,7 +64,7 @@ Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Coun
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535186.jpg" />
+  <img src="Z:/picture/008/save_picture_535186.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Dr. Dre - Compton (2015) [MP3|320 кб/с]<Soundtrack, Rap, Hip-Hop>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535158.jpg" />
+  <img src="Z:/picture/008/save_picture_535158.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534387.jpg" />
+  <img src="Z:/picture/008/save_picture_534387.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ V.A. - Romantic Piano - Evergreen (1999) [FLAC|Lossless]<Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533682.jpg" />
+  <img src="Z:/picture/008/save_picture_533682.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Igor Presnyakov (Игорь Пресняков) - Acoustic Rock Ballad Covers (2
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533310.jpg" />
+  <img src="Z:/picture/008/save_picture_533310.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532734.jpg" />
+  <img src="Z:/picture/008/save_picture_532734.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Now! - Country 11 (2016) [MP3|320 Kbps] <Country, Pop>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532694.jpg" />
+  <img src="Z:/picture/008/save_picture_532694.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ Kevin Kern - When I Remember (2016) [MP3|320 Kbps] <New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532558.jpg" />
+  <img src="Z:/picture/008/save_picture_532558.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Лег�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532546.jpg" />
+  <img src="Z:/picture/008/save_picture_532546.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ Blackmore’s Night - A Knight In York (2012) [WavPack|Lossless]<Folk Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532403.jpg" />
+  <img src="Z:/picture/008/save_picture_532403.jpg" />
 </div>
 
 
@@ -299,7 +357,7 @@ Jason Graves - Dead Space 2 (2011) Collector's Edition [FLAC|Lossless]<Score>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531903.jpg" />
+  <img src="Z:/picture/008/save_picture_531903.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531779.jpg" />
+  <img src="Z:/picture/008/save_picture_531779.jpg" />
 </div>
 
 
@@ -363,7 +421,7 @@ Joga Dass - Die Erzengel (2007) [WavPack|image+.cue]<Meditative, Chakraphon-Musi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531620.jpg" />
+  <img src="Z:/picture/008/save_picture_531620.jpg" />
 </div>
 
 
@@ -392,7 +450,7 @@ VA - Om Yoga Vol. 1, 2: Modern Music for Vinyasa/Flow  (2011-2013) 2CD [MP3|320 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531614.jpg" />
+  <img src="Z:/picture/008/save_picture_531614.jpg" />
 </div>
 
 
@@ -421,7 +479,7 @@ Ustad Abdul Halim Jaffer Khan - Enchanting Sitar (1978) [MP3|320 kbps] <Sitar>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531453.jpg" />
+  <img src="Z:/picture/008/save_picture_531453.jpg" />
 </div>
 
 
@@ -448,7 +506,7 @@ Kevin Cotter - Cotter (2018) [FLAC|Lossless|WEB-DL|tracks] <Piano, Contemporary 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531289.jpg" />
+  <img src="Z:/picture/008/save_picture_531289.jpg" />
 </div>
 
 
@@ -477,7 +535,7 @@ Paul Leonard-Morgan - Last Breath (Original Motion Picture Soundtrack) (2019) [F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530947.jpg" />
+  <img src="Z:/picture/008/save_picture_530947.jpg" />
 </div>
 
 
@@ -506,7 +564,7 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530825.jpg" />
+  <img src="Z:/picture/008/save_picture_530825.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ Joseph Bishara - Annabelle Comes Home / Проклятие Аннабель 3 (O
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530821.jpg" />
+  <img src="Z:/picture/008/save_picture_530821.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Оригиналь
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530816.jpg" />
+  <img src="Z:/picture/008/save_picture_530816.jpg" />
 </div>
 
 
@@ -593,7 +651,7 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530814.jpg" />
+  <img src="Z:/picture/008/save_picture_530814.jpg" />
 </div>
 
 
@@ -622,7 +680,7 @@ Kevin Kern - When I Remember (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530789.jpg" />
+  <img src="Z:/picture/008/save_picture_530789.jpg" />
 </div>
 
 
@@ -651,7 +709,7 @@ Michael Giacchino - Spider-Man: Far from Home / Человек-паук: Вда�
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530727.jpg" />
+  <img src="Z:/picture/008/save_picture_530727.jpg" />
 </div>
 
 
@@ -680,7 +738,7 @@ Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530719.jpg" />
+  <img src="Z:/picture/008/save_picture_530719.jpg" />
 </div>
 
 
@@ -694,64 +752,6 @@ Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E48B6CE2CC7EC765AAE620258A0DC04FAD10F9F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312212   (530711) от 05.07.2019
-
-Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные дела 3 (Original Score from the Netflix Original Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys and Girls (01:49)
-02. I Like Presents Too (01:27)
-03. Starcourt (03:05)
-04. Blank Makes You Crazy (01:06)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB194008692913F942311F34FE190B11CBDD3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312403   (530708) от 05.07.2019
-
-Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Responsorios (6:19)
-02. Graduale (6:38)
-03. Cosmos (4:51)
-04. Aleluia (4:18)(   Читать дальше...   )Жанр: New Age, Enigmatic, Eurodance, AmbientПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

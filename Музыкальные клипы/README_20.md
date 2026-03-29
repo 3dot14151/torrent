@@ -1,3 +1,87 @@
+###  Публикация: 930517   (515080) от 23.08.2015
+
+Ирина Круг – Лучшие концертные выступления (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из самых востребованных исполнительниц жанровой песни, на ее концертах всегда аншлаги, ее голос можно услышать из любой машины, в кафе, магазинах и пр., ее любят и знают, но вот увидеть ее на телеэкране практически невозможно. Тем ценнее становится каждая запись ее выступлений, тем более, что там действительно есть на что посмотреть. Этот сборник содержит лучшие (   Читать дальше...   )01. Напиши мне
+02. Юбочка
+03. Моя королева
+04. Я прочитаю в глазах твоих(   Читать дальше...   )Производство: Россия / "Classic Company"Жанр: МузыкаПеревод: ОтсутствуетСубтитры: нетПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A24F061781EA88EF9942812ADC46D479704AFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930893   (513869) от 24.08.2015
+
+VA - Летний марафон № 185 / (Новый Хитовый Сборник) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (23.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. 5 Seconds Of Summer - She's Kinda Hot (Official Video) (00:04:05)
+2. Achtabahn - To The King (Official Video) (00:02:54)
+3. Amure - Horses (Official Video) (00:05:15)
+4. Black Fox ft. Dj Chris Parker - Live show (Official Video) (00:07:32)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Chill Out, House, ProgressiveПродолжительность: 01:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF80D2CFECA00A81D7119D8775A6567A5C7B09A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536198   (513190) от 19.08.2012
+
+PSY - Gangnam  Style (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: K-pop, hip-hopПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F84BC367DB23A475243259C72CAEBFD55A21A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931188   (511631) от 26.08.2015
 
 The Best of... 40 Rock Song! (2015) WEBRip [H.264/720p-LQ]
@@ -6,7 +90,7 @@ The Best of... 40 Rock Song! (2015) WEBRip [H.264/720p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511631.jpg" />
+  <img src="Z:/picture/008/save_picture_511631.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510784.jpg" />
+  <img src="Z:/picture/008/save_picture_510784.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509859.jpg" />
+  <img src="Z:/picture/008/save_picture_509859.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ Alex Gaudino & Taboo - I Don't Wanna Dance (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509723.jpg" />
+  <img src="Z:/picture/008/save_picture_509723.jpg" />
 </div>
 
 
@@ -119,7 +203,7 @@ Maria Lapiedra - Tapame, Tapame (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509720.jpg" />
+  <img src="Z:/picture/008/save_picture_509720.jpg" />
 </div>
 
 
@@ -145,7 +229,7 @@ Merlin Milles ft. Rene Rodrigezz ft. Sigi Di Collini - Time 2 Wake Up (2012) [H.
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509693.jpg" />
+  <img src="Z:/picture/008/save_picture_509693.jpg" />
 </div>
 
 
@@ -171,7 +255,7 @@ Alex Ferarri - Bara Bara Bere Bere (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509642.jpg" />
+  <img src="Z:/picture/008/save_picture_509642.jpg" />
 </div>
 
 
@@ -197,7 +281,7 @@ VA - Летний марафон № 186 / Видеоклипы (Самые Та
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506906.jpg" />
+  <img src="Z:/picture/008/save_picture_506906.jpg" />
 </div>
 
 
@@ -226,7 +310,7 @@ Diplo feat. Lazerdisk Party Sex - Set It Off (2012) [H.264] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506662.jpg" />
+  <img src="Z:/picture/008/save_picture_506662.jpg" />
 </div>
 
 
@@ -252,7 +336,7 @@ Lady Gaga - Yoü And I  (2011) HDTVRip [1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504452.jpg" />
+  <img src="Z:/picture/008/save_picture_504452.jpg" />
 </div>
 
 
@@ -278,7 +362,7 @@ Dash Berlin feat. Emma Hewitt - Like Spinning Plates (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503709.jpg" />
+  <img src="Z:/picture/008/save_picture_503709.jpg" />
 </div>
 
 
@@ -304,7 +388,7 @@ Chris Parker - Symphony (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503400.jpg" />
+  <img src="Z:/picture/008/save_picture_503400.jpg" />
 </div>
 
 
@@ -330,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500871.jpg" />
+  <img src="Z:/picture/008/save_picture_500871.jpg" />
 </div>
 
 
@@ -356,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500193.jpg" />
+  <img src="Z:/picture/008/save_picture_500193.jpg" />
 </div>
 
 
@@ -385,7 +469,7 @@ Hi-Jakkers ft Tenny Ten, JP Tronik & Rodrigues - VIP (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499513.jpg" />
+  <img src="Z:/picture/008/save_picture_499513.jpg" />
 </div>
 
 
@@ -411,7 +495,7 @@ IKA - Москва Слезам Не Верит (DJ Sergey Fisun version) (2012)
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499122.jpg" />
+  <img src="Z:/picture/008/save_picture_499122.jpg" />
 </div>
 
 
@@ -437,7 +521,7 @@ VA - Осенний марафон № 188 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495788.jpg" />
+  <img src="Z:/picture/008/save_picture_495788.jpg" />
 </div>
 
 
@@ -466,7 +550,7 @@ I Like a Beautiful Dream 2 (2014) WEBRip [H.264/720p-LQ], [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494349.jpg" />
+  <img src="Z:/picture/008/save_picture_494349.jpg" />
 </div>
 
 
@@ -495,7 +579,7 @@ Parazitii feat. Dan Lazar - Toate-s La Fel (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493594.jpg" />
+  <img src="Z:/picture/008/save_picture_493594.jpg" />
 </div>
 
 
@@ -521,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490738.jpg" />
+  <img src="Z:/picture/008/save_picture_490738.jpg" />
 </div>
 
 
@@ -550,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489615.jpg" />
+  <img src="Z:/picture/008/save_picture_489615.jpg" />
 </div>
 
 
@@ -580,7 +664,7 @@ VA - Осенний марафон № 189 / Видеоклипы (Самые Т
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489563.jpg" />
+  <img src="Z:/picture/008/save_picture_489563.jpg" />
 </div>
 
 
@@ -609,7 +693,7 @@ MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487700.jpg" />
+  <img src="Z:/picture/008/save_picture_487700.jpg" />
 </div>
 
 
@@ -620,84 +704,6 @@ MDS - Gold (Puro Oro) (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B9D772DD47C3F25018C44E522CAB826AB56A1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544823   (487697) от 09.09.2012
-
-Alex Kenji ft. Ron Carrol - Good Time (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_487697.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9416E27CA3676B3FE08A4A5371B224C264AAC19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544847   (486785) от 09.09.2012
-
-Сборник клипов - VA - Various Music part. 33 (2012) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486785.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCCAADBA704C14CA39D401C58986D576B225522F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382477   (486504) от 04.09.2011
-
-Animusic HD (2010) BDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486504.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаРежиссер: Wayne Lytle/Уэйн ЛитлАктеры: animationПеревод: ОтсутствуетПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062E45360A908C66C19F996661B7FACC08E2E88B
 ```
 
 https://mybot314.ru/tekegram_catalog/

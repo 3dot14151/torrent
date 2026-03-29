@@ -1,3 +1,81 @@
+###  Публикация: 331074   (700912) от 03.05.2011
+
+Как приручить дракона /  How to Train Your Dragon (2010) BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы узнаете историю подростка Иккинга, которому не слишком близки традиции его героического племени, много лет ведущего войну с драконами. Мир Иккинга переворачивается с ног на голову, когда он неожиданно встречает дракона Беззубика ("ночная фурия"), который поможет ему и другим викингам увидеть привычный мир с совершенно другой стороны...Жанр: Мультфильм, Фэнтези, ПриключенияРежиссер: Дин ДеБлуа, Крис СандерсПерсонажи: Джей Барушель, Джерард Батлер, Крэйг Фергюсон, Америка Феррера, Джона Хилл, Кристофер Минц-Плассе, ТиДжей Миллер, Кристен Уиг Робин Аткин Даунс, Филип МакГрэйдПеревод: ДублированныйЯзык субтитров: Русский, Украинский, АнглийскийФормат: MKVПродолжительность: 01:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E48BD8CA2CF031BB534A4D5DA5AD6B3F8B8BC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533838   (700890) от 26.02.2022
+
+Зверопой 2 / Sing 2 (2021) WEB-DLRip [H.264] [Локализованная версия]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_700890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тяжело быть продюсером, когда ты коала и у тебя лапки. Еще сложнее, когда твоя верная помощница древнее печатной машинки. И совсем весело, когда твоя труппа — это танцующий без остановки пухляш, колючая девочка-панк, застенчивая школьница, верзила-гангстер и многодетная мама, чьи дети — поросята в прямом смысле слова. Рецепт успеха прост — рвануть в мировую столицу (   Читать дальше...   )Производство: США / Illumination Entertainment , Universal PicturesЖанр: мультфильм, мюзикл, комедия, приключения, семейныРежиссер: Гарт ДженнингсПеревод: Дублированный (КиноПоиск HD)Субтитры: русские, английскиеПродолжительность: 01:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7409825B84D810513C70257550850EC2DF989B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026812   (699720) от 17.06.2016
+
+Сезон охоты 4: Страшно глупо / Open Season: Scared Silly (2015) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_699720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элиот, Буг и вся их лесная братва попадают в совершенно новое и очень-очень смешное приключение.Производство: США, Sony Pictures AnimationЖанр: МультфильмРежиссер: Дэвид ФейссАктеры: Кэтлин Барр, Гари Чок, Тревор Дивэлл, Донни Джеймс Лукас, Мелисса Штурм, Мэттью В. ТейлорПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2FC0BA28EA321DB60F36E1B55AAEC5458736E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026885   (699584) от 17.06.2016
 
 Рыбьи истории / Fishtales (2016) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699584.jpg" />
+  <img src="Z:/picture/008/save_picture_699584.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695786.jpg" />
+  <img src="Z:/picture/008/save_picture_695786.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695405.jpg" />
+  <img src="Z:/picture/008/save_picture_695405.jpg" />
 </div>
 
 
@@ -76,6 +154,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 332916   (695219) от 06.05.2011
+
+Рио / Rio (2011) DVDRip
+
+>>След.
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_695219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый и очень недалёкий попугай, родившийся в неволе в небольшом городке штата Миннесота, улетает в поисках приключений, на родину предков, в Рио-де-Жанейро.Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Карлос СалданаАктеры: Карен Дишер, Джейсон Фриччион, София Скарпа Салдана, Лесли Манн, Келли Китон, Джесси Айзенберг, Ванда Сайкес, Джейн Линч, Родриго Санторо, Грасинья ЛепорансПеревод: ДублированныйПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED2EB3230CD3C4E18DBE6C8CF7478795603AF53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027729   (694049) от 20.06.2016
 
 Пернатая банда / El Americano: The Movie (2016) WEB-DLRip [Line]
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694049.jpg" />
+  <img src="Z:/picture/008/save_picture_694049.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693738.jpg" />
+  <img src="Z:/picture/008/save_picture_693738.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692112.jpg" />
+  <img src="Z:/picture/008/save_picture_692112.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692097.jpg" />
+  <img src="Z:/picture/008/save_picture_692097.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691220.jpg" />
+  <img src="Z:/picture/008/save_picture_691220.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689730.jpg" />
+  <img src="Z:/picture/008/save_picture_689730.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688028.jpg" />
+  <img src="Z:/picture/008/save_picture_688028.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686160.jpg" />
+  <img src="Z:/picture/008/save_picture_686160.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685404.jpg" />
+  <img src="Z:/picture/008/save_picture_685404.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685380.jpg" />
+  <img src="Z:/picture/008/save_picture_685380.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_684655.jpg" />
+  <img src="Z:/picture/005/save_picture_684655.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683338.jpg" />
+  <img src="Z:/picture/008/save_picture_683338.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683254.jpg" />
+  <img src="Z:/picture/008/save_picture_683254.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683174.jpg" />
+  <img src="Z:/picture/008/save_picture_683174.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683158.jpg" />
+  <img src="Z:/picture/008/save_picture_683158.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683148.jpg" />
+  <img src="Z:/picture/008/save_picture_683148.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683116.jpg" />
+  <img src="Z:/picture/008/save_picture_683116.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682555.jpg" />
+  <img src="Z:/picture/008/save_picture_682555.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681935.jpg" />
+  <img src="Z:/picture/008/save_picture_681935.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEE1CE994FE57F0C5040610D2428A03B559FAF4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507883   (681533) от 09.06.2012
-
-Рецепт любви / Love Recipe (2008) [H.264] WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681533.jpg" />
-</div>
-
-
-###  Подробнее
-
-В годовщину свадьбы, в этот праздничный день, пара старательно готовится к событию. Каждый по своему..Жанр: короткометражный анимационный фильмРежиссер: Фелипе ПизарроПерсонажи: СупругиПеревод: Без слов / НемойПродолжительность: 00:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5721EC40CC4519274E24AD4524E5D2CFFAFF103C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335870   (680604) от 13.05.2011
-
-Братец медвежонок / Brother Bear (2003) DVDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Давным-давно, в те времена, когда по Земле ходили мамонты, а вечные льды достигали южных морей, жил охотник по имени Кенаи. Он был храбр и ловок, но однажды прогневил Великих Духов, убив медведицу — священного для него зверя, чей тотем он носил на шее. Тогда духи предков в наказание превратили в медведя самого Кенаи. Теперь он не может говорить по-человечески, за (   Читать дальше...   )Жанр: Мультфильм, Фэнтези, ПриключенияРежиссер: Аарон Блейс, Роберт УолкерПерсонажи: Хоакин Феникс, Хоп Леви, Джереми Суарез, Рик Моранис, Дейв Томас, Д.Б. СуиниПеревод: ДублированныйФормат: MKVПродолжительность: 01:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECC4B184008C8C6F43EC3A59E16200AFA88BAD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898644   (677169) от 17.05.2015
-
-Лига справедливости: Гибель / Justice League: Doom (2012) HDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677169.jpg" />
-</div>
-
-
-###  Подробнее
-
-ига Справедливости узнает о том, что Бэтмен в тайне собирает данные о силах и слабостях каждого из участников. Лига принимает решение изгнать Бэтмена из команды. Cобранные им данные попадают в руки Ра`с Аль Гула, намеренного уничтожить участников Лиги Справедливости одного за другим, ударяя по слабым местам супергероев.Производство: СШАЖанр: Рисованная анимацияРежиссер: Лоурен МонтгомериПерсонажи: Натан Филлион, Алексис Денисоф, Клаудия Блэк, Майкл Розенбаум, Оливия Д’Або, Грей Делайл, Тим Дейли, Кевин Конрой, Фил Моррис, Пол БлекторнПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478CAF7BBBE66A5978C8BFA21462D3692FFC60AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898919   (676760) от 17.05.2015
-
-Храбрая сердцем / Brave (2012) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испокон веков мифы и легенды окутывают загадочной пеленой живописные отроги Шотландских гор. Искусной лучнице Мериде приходится выбирать свой путь в жизни самостоятельно, и однажды она отказывается следовать древним традициям королевства, бросая вызов могущественным шотландским кланам и их предводителям: нескладному лорду МакГаффину, угрюмому лорду Макинтошу и сварливому (   Читать дальше...   )Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Комедия, Приключения, ДетскийРежиссер: Марк Эндрюс, Бренда Чэпман, Стив Пурселл / Mark Andrews, Brenda Chapman, Steve PurcellПерсонажи: Келли Макдоналд, Эмма Томпсон, Билли Коннолли, Джули Уолтерс, Робби Колтрейн, Кевин МакКидд, Крэйг Фергюсон, Сэлли Кингхорн, Эйлид Фрайзер, Пейджи Баркер, Стивен Кри, Стив Пурселл, Каллум О’Нилл, Джон Ратценбергер...Перевод: ДублированныйСубтитры: Вшитые (Отключаемые)Язык субтитров: Русский, Украинский, АнглийскийПродолжительность: 01:34:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D019A5FF66C523211441D41FD0953B7923167D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

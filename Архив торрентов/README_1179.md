@@ -6,7 +6,7 @@ Ought - Room Inside the World (2018) [FLAC|Lossless|tracks + .cue] <Post-Punk, R
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784966.jpg" />
+  <img src="Z:/picture/008/save_picture_784966.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Loaris Trojan Remover 3.0.75.210 RePack (& Portable) by elchupacabra (21.01.2019
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784965.jpg" />
+  <img src="Z:/picture/008/save_picture_784965.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ ScreenToGif 2.16 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784963.jpg" />
+  <img src="Z:/picture/008/save_picture_784963.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784958.jpg" />
+  <img src="Z:/picture/008/save_picture_784958.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784950.jpg" />
+  <img src="Z:/picture/008/save_picture_784950.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784948.jpg" />
+  <img src="Z:/picture/008/save_picture_784948.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Superchunk - What a Time to Be Alive (2018) [FLAC|Lossless|tracks + .cue] <Indie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784942.jpg" />
+  <img src="Z:/picture/008/save_picture_784942.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784938.jpg" />
+  <img src="Z:/picture/008/save_picture_784938.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784934.jpg" />
+  <img src="Z:/picture/008/save_picture_784934.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784928.jpg" />
+  <img src="Z:/picture/008/save_picture_784928.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ Elmedia Video Player PRO 7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784927.jpg" />
+  <img src="Z:/picture/008/save_picture_784927.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ VA - Retrospective (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784926.jpg" />
+  <img src="Z:/picture/008/save_picture_784926.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784921.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Saxon - Thunderbolt (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784919.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Acme CAD Converter 2019 8.9.8.1488 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784917.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Sandboxie 5.23.4 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784909.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Duplicate File Detective 6.1.51 Enterprise [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784908.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ VA - Nothing But... Techno Essentials Vol.01 (2018) [MP3|320 Kbps] <Techno>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784896.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ WinTools.net  Premium 18.2.1  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784884.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Glary Utilities Pro 5.92.0.114 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784882.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Insofta 3D Text Commander 5.0.0 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784881.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ MassTube Plus 12.9.8.346 RePack (& Portable) by elchupacabra  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784873.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Icecream PDF Split & Merge PRO 3.41 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784858.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784858.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784846.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784845.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ MakeMKV 1.12.0 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784843.jpg" />
 </div>
 
 

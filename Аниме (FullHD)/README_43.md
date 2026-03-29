@@ -1,3 +1,165 @@
+###  Публикация: 1836364   (252528) от 10.11.2025
+
+Muu no Hakugei | The White Whale of Mu | Белый кит континента Му [1980, TV, 26] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_252528.jpg" />
+</div>
+
+
+###  Подробнее
+
+В древние времена континенты Атлантида и Му вели войну, и Атлантида проиграла. После поражения Атлантида превратилась в маленькую планету и переместилась во время в настоящее, чтобы снова попытаться захватить мир. Но пять воинов из Му собрались на острове Пасхи и вместе с гигантским белым китом, в котором находится мозг древнего Ра Му, сражаются с Атлантидой в различных (   Читать дальше...   )Производство: Япония, студия TMSЖанр: экшен, приключение, фантастикаРежиссер: Имадзава ТэцуоПеревод: Русские субтитры на основе перевода Inka-SubsЯзык озвучки: ЯпонскийСубтитры: Английские, Русские (внешние)Продолжительность: ТВ, 26 серии по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24678E5EFFE0489390E9230407863D26B7E54A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419518   (251790) от 03.06.2023
+
+Yahari Ore no Seishun LoveCome wa Machigatte Iru. Kan | OreGairu 3 | Как и ожидал, моя школьная романтическая жизнь не удалась [ТВ-3] [2020, TV, 12 эп. + 1 OVA] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_251790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжении истории хикки Хатимана.
+
+Нелюдимый старшеклассник Хатиман Хикигая стронулся в развитии с мертвой точки… и запутался. Он считал себя циником – а стал помогать людям, думал, что неудачник – а удостоился внимания незаурядных девушек, мечтал спокойно дотянуть до конца школы – а покоя-то нет! Стоило приоткрыться – и личина изгоя треснула, теперь приходится (   Читать дальше...   )Производство: студия FeelЖанр: комедия, романтика, повседневностьРежиссер: Ойкава КэйПеревод: SovetRomanticaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. + 1 OVA по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73258F4E0BA872AD93A9A5BD048968F47836F593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 493483   (250658) от 09.05.2012
+
+HEAVEN IS A PLACE ON EARTH / Gekijouban Hayate no Gotoku! Heaven is a Place on Earth / Боевой дворецкий Хаяте! Есть рай на земле [2011, MV] BDrip 1080p 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_250658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые приключения двух миллиардеров: богатейки и ее должника в полнометражном фильме
+Hayate the Combat Butler! Heaven is a Place on Earth .
+Хаятэ, Наги и остальные, проводят последние дни летних каникул в сельской местности Nishizawa.
+Но таинственный дух придумал схему, чтобы отделить дворецкого от его молодой госпожи.Жанр: комедия, пародия, приключенияРежиссер: Комори ХидэтоПродолжительность: 70 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216E9CB5CE1ED857A58193900C86DFAB3E7FA2F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834703   (250472) от 04.11.2025
+
+Dan Da Dan | Дандадан [ТВ-1] [2024, TV, 12 из 12] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_250472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Момо Аясэ верит в духов и призраков, но считает, что НЛО и пришельцы — полнейшая чушь и выдумки. Однажды она заводит дружбу с парнем из школы по прозвищу Окарун (настоящее его имя вслух лучше не произносить), который уверен в прямо противоположном. Чтобы доказать друг другу, что оппонент неправ, оба отправляются в знаковые для противных лагерей места: Момо — в точку, (   Читать дальше...   )Производство: Science SaruЖанр: Экшен, комедия, сверхъестественноеРежиссер: Ямасиро ФугаПеревод: Crunchyroll; SovetRomantica; Katsura
+ред. субтитров - Adventurer_KunЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3DCB2EC428DDF5EEE5BBEDA2E313A197E8D3C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 802577   (250050) от 16.03.2022
+
+Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Нананы [2014, TV, 11 эп. + 6 SP] BDrip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_250050.jpg" />
+</div>
+
+
+###  Подробнее
+
+17-летний Дзюго Яма, крепкий парень с непростым прошлым, ушел из дома и приехал учиться на рукотворный остров Нанаэ – рай для школьников и студентов. Но деньги нужны даже там, а с ними худо, поэтому парень соблазнился дешевой квартирой. Справедливость поговорки про дешевизну Яма-кун понял сразу, обнаружив в новом жилье симпатичную девчонку в белом платье. Нанана (   Читать дальше...   )Производство: Студия A-1 Pictures Inc.Жанр: комедия, романтика, сверхъестественноеРежиссер: Камэй КантаПеревод: LeDi-MaHo TeamЯзык субтитров: РусскийПродолжительность: 11 серий по 24 минуты + 6 SP по 4 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:893F28CBB7A950027F070129787054EA81A0326F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1467431   (249703) от 21.03.2022
+
+Boku no Hero Academia 5 | My Hero Academia Season 5 | Моя геройская академия [ТВ-5] [2021, TV, 25 из 25] WEBRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_249703.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если большинство людей владеет суперспособностями, то и воинов правосудия надо много. Школы для одаренных есть везде – а вот Идзуку Мидории, истовому фанату геройских дел, способностей не досталось, о чем он очень жалеет. Но ничего, судьба и храброе сердце однажды свели Мидорию с Всемогущим, сильнейшим героем на свете. Ветерану парень понравился – настолько, что (   Читать дальше...   )Производство: BonesЖанр: Приключения, фантастика, сёнэнРежиссер: Нагасаки КэндзиСубтитры: Русские, АнглийскиеПродолжительность: 25 серий по 24 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD585E4E7EADAC5EF4D389819A9C6CA78D144942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564741   (249647) от 20.07.2022
 
 Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.] BDRip 1080p raw
@@ -6,7 +168,7 @@ Egao no Daika | The Price of Smiles | Цена улыбки [2019, TV, 12 эп.]
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249647.jpg" />
+  <img src="Z:/picture/004/save_picture_249647.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ Getsuyoubi no Tawawa / Tawawa on Monday / Встречи с Тававой по 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249404.jpg" />
+  <img src="Z:/picture/004/save_picture_249404.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ Onegai Teacher / Пожалуйста! Учитель [2002, TV, 12 + OVA] BDrip
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_249305.jpg" />
+  <img src="Z:/picture/005/save_picture_249305.jpg" />
 </div>
 
 
@@ -86,7 +248,7 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243756.jpg" />
+  <img src="Z:/picture/004/save_picture_243756.jpg" />
 </div>
 
 
@@ -112,7 +274,7 @@ Fate/Grand Carnival | Судьба: Великий карнавал [2021, OVA, 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243076.jpg" />
+  <img src="Z:/picture/004/save_picture_243076.jpg" />
 </div>
 
 
@@ -138,7 +300,7 @@ Black Fox | Чёрная лиса [2019, Movie] BDRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243008.jpg" />
+  <img src="Z:/picture/005/save_picture_243008.jpg" />
 </div>
 
 
@@ -164,7 +326,7 @@ Hanebado! | Бадминтон Ханэсаки [2018, TV, 13 эп.] BDRip 1080p
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242413.jpg" />
+  <img src="Z:/picture/004/save_picture_242413.jpg" />
 </div>
 
 
@@ -190,7 +352,7 @@ Kaitou Queen wa Circus ga Osuki | Mirage QUEEN Prefers Circus | Королева
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242366.jpg" />
+  <img src="Z:/picture/004/save_picture_242366.jpg" />
 </div>
 
 
@@ -216,7 +378,7 @@ Oushitsu Kyoushi Haine | The Royal Tutor | Королевский репетит
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241462.jpg" />
+  <img src="Z:/picture/004/save_picture_241462.jpg" />
 </div>
 
 
@@ -242,7 +404,7 @@ Eiyuu Ou, Bu o Kiwameru Tame Tenseisu: Soshite, Sekai Saikyou no Minarai Kishi |
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240061.jpg" />
+  <img src="Z:/picture/004/save_picture_240061.jpg" />
 </div>
 
 
@@ -268,7 +430,7 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240036.jpg" />
+  <img src="Z:/picture/004/save_picture_240036.jpg" />
 </div>
 
 
@@ -294,7 +456,7 @@ Romantic Killer | Романтический убийца [2022, Web, 12 эп.] 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239260.jpg" />
+  <img src="Z:/picture/005/save_picture_239260.jpg" />
 </div>
 
 
@@ -320,7 +482,7 @@ Kobayashi-san Chi no Maidragon S + Mini Dragon | Miss Kobayashi's Dragon Maid S 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238895.jpg" />
+  <img src="Z:/picture/005/save_picture_238895.jpg" />
 </div>
 
 
@@ -346,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238382.jpg" />
+  <img src="Z:/picture/004/save_picture_238382.jpg" />
 </div>
 
 
@@ -372,7 +534,7 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238375.jpg" />
+  <img src="Z:/picture/004/save_picture_238375.jpg" />
 </div>
 
 
@@ -399,7 +561,7 @@ Shenmue the Animation | Шэнму [2022, TV, 13 из 13] WEBRip 1080p raw
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237923.jpg" />
+  <img src="Z:/picture/004/save_picture_237923.jpg" />
 </div>
 
 
@@ -425,7 +587,7 @@ Meitantei Conan: Hannin no Hanzawa-san | Detective Conan: The Culprit Hanzawa | 
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237676.jpg" />
+  <img src="Z:/picture/004/save_picture_237676.jpg" />
 </div>
 
 
@@ -451,7 +613,7 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_237419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_237419.jpg" />
 </div>
 
 
@@ -480,7 +642,7 @@ Azur Lane: Bisoku Zenshin! | Azur Lane: Slow Ahead! | Лазурный путь:
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234369.jpg" />
 </div>
 
 
@@ -507,7 +669,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233659.jpg" />
+  <img src="Z:/picture/005/save_picture_233659.jpg" />
 </div>
 
 
@@ -518,168 +680,6 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3901629BFFDABDBF3436081BD1D0020F2E060B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579674   (232556) от 28.09.2022
-
-Sidonia no Kishi: Ai Tsumugu Hoshi | Knights of Sidonia: Love Woven in the Stars | Рыцари Сидонии: Звезда, сотканная любовью [2021, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_232556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло 10 лет с событий второго сезона... Жители Сидонии смогли, наконец, отдохнуть от постоянных угроз пришельцев, именуемых Гаунами, а химере, знакомой нам, как Ширауи Цумуги, мирные дни помогли ей осознать свои чувства к Таниказе Нагате, выдающегося пилота и героя Сидонии. Однако, после стольких лет мирной жизни, Сидония вновь столкнулась с угрозой исчезновения. (   Читать дальше...   )Производство: студия Polygon Pictures / ポリゴン・ピクチュアズЖанр: приключения, фантастикаРежиссер: Сэсита ХироюкиПеревод: НеизвестноЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 120 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B2D58293B2841B8F89967C50F83A8C5048EBDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616058   (230988) от 03.06.2023
-
-Uzaki-chan wa Asobitai! Double | Uzaki-chan Wants to Hang Out! W | Узаки хочет тусоваться! [ТВ-2] [2022, TV, 13 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230988.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение истории.
-
-Третьекурсник Синъитиро Сакураи хочет наслаждаться тихой университетской жизнью, хочет быть один, но вьющаяся вокруг него Хана Узаки не даёт ему покоя. Подтрунивает, высмеивает, издевается… День за днём ему приходится терпеть выходки Узаки! Такая суматоха утомляет Синъитиро, и всё-таки проведённое с девушкой время нельзя назвать скучным. — Вдвоём (   Читать дальше...   )Производство: студия EngiЖанр: комедия, романтикаРежиссер: Миура КадзуяПеревод: CrunchyRoll (лирика - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BE859A927AFF1EB53B397A2B61B3DB60D340F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616045   (230913) от 03.06.2023
-
-Fuufu Ijou, Koibito Miman. | More Than a Married Couple, But Not Lovers | Больше, чем пара, меньше, чем любовники [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дзиро Якуин - замкнутый старшеклассник, у которого нет девушки. Но однажды в рамках школьной программы по практике отношений у него появляется пара - красивая гяру Акари Ватанабэ, полная противоположность Дзиро. Вместе они решают изображать из себя прекрасных партнёров, потому что за это полагается награда: возможность выбрать пару по вкусу.
-
-© crunchyrollПроизводство: студия Studio MotherЖанр: комедия, романтикаРежиссер: Като ТакаоПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED2CAF04E4B6A1ACD63EE966ABD2B59097B08ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616054   (230850) от 03.06.2023
-
-Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Асахи Кащигави — обычный японский школьник, который в один прекрасный день сталкивается с чередой необычных случаев по дороге в школу. Все они происходят согласно пространному телевизионному гороскопу, который он смотрел утром, а кульминацией должно стать неудачное столкновение с девушкой. Вот только встречает он не одну девушку, а нескольких и, по странному совпадению, (   Читать дальше...   )Производство: студия Passione / パッショーネЖанр: комедия, повседневность, романтика, эттиРежиссер: Нагаяма НобуёсиПеревод: AniLibriaЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6942CFBC71493D3D3C9B415B9B560AD532B33DB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637427   (230804) от 04.06.2023
-
-Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Моя новая горничная ну очень подозрительна [2022, TV, 11 эп.] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивую горничную по имени Лилит недавно наняли, чтобы она заботилась о сыне своего работодателя — Юри. Однако Юри с большим подозрением относится к любому её действию, поскольку подозревает, что новая горничная замышляет ужасные злодеяния. Несмотря на такую паранойю мальчика, Лилит влюбляется в Юри и часто дразнит его, чтобы укрепить их связь.Жанр: комедия, повседневностьРежиссер: Минато МирайПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 11 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD39CB55D80FC48CAB51B3386D66BADB29C93EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637429   (230782) от 04.06.2023
-
-Kimi o Aishita Hitori no Boku e | To Me, The One Who Loved You | Единственному мне, кто тебя любил [2022, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир, в котором было установлено, что люди обычно колеблются между несколько разными параллельными мирами...
-
-Коёми Хидака, который живет со своим отцом после развода родителей, встречает девушку по имени Шиори Сато в научно-исследовательском институте, где работает его отец.Они оба немного влюблены друг в друга, но все меняется, когда их родители снова женятся.Коёми (   Читать дальше...   )Производство: студия TMS Entertainment / トムス・エンタテインメントЖанр: романтика, фантастикаРежиссер: Касай КэнъитиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 100 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98781E847E928DDE573796A7D4FD584454AC0090
 ```
 
 https://mybot314.ru/tekegram_catalog/

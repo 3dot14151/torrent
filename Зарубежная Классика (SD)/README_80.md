@@ -1,3 +1,85 @@
+###  Публикация: 562262   (405404) от 19.10.2012
+
+Звездные войны: Эпизод 5 - Империя наносит ответный удар / Star Wars: Episode V - The Empire Strikes Back (1980) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борьба за Галактику обостряется в пятом эпизоде космической саги. Войска Императора начинают массированную атаку на повстанцев и их союзников.
+ Хан Соло и принцесса Лейя укрываются в Заоблачном Городе, в котором их и захватывает Дарт Вейдер, в то время как Люк Скайуокер находится на таинственной планете джунглей Дагобар.
+ Там Мастер — джедай Йода обучает молодого рыцаря навыкам обретения Силы. Люк даже не предполагает, как скоро ему придется воспользоваться знаниями старого Мастера: впереди битва с превосходящими (   Читать дальше...   )Жанр: Фантастика, Фэнтези, ПриключенияРежиссер: Ирвин Кершнер / Irvin KershnerАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Дэвид Праус, Питер Мейхью, Кенни Бейкер, Фрэнк Оз, Алек ГиннессПеревод: ДублированныйПродолжительность: 02:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87905203931B86DDDBD2A8FA3E4BD80AF7A007D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562239   (405403) от 19.10.2012
+
+Звездные войны: Эпизод 4 - Новая надежда / Star Wars: Episode IV - A New Hope (1977) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Татуин. Планета-пустыня. Уже постаревший рыцарь Джедай Оби Ван Кеноби спасает молодого Люка Скайуокера, когда тот пытается отыскать пропавшего дроида. С этого момента Люк осознает свое истинное назначение: он один из рыцарей Джедай. В то время как гражданская война охватила галактику, а войска повстанцев ведут бои против сил злого Императора, к Люку и Оби Вану присоединяется отчаянный пилот-наемник Хан Соло, и в сопровождении двух дроидов, R2D2 и C-3PO, этот необычный отряд отправляется на поиски предводителя (   Читать дальше...   )Жанр: Фантастика, Фэнтези, ПриключенияРежиссер: Джордж Лукас / George LucasАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Питер Кашинг, Алек Гиннесс, Энтони Дэниелс, Кенни Бейкер, Питер Мейхью, Дэвид Праус, Джеймс Эрл ДжонсПеревод: ДублированныйПродолжительность: 02:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C052C48DC1F7FBF819C3607A4300D4451DBD0478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562325   (405400) от 19.10.2012
+
+Звездные войны: Эпизод 6 - Возвращение Джедая / Star Wars: Episode VI - Return of the Jedi (1983) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_405400.jpg" />
+</div>
+
+
+###  Подробнее
+
+В заключительном шестом эпизоде «Звездных войн» Дарт Вейдер создает вторую «Звезду Смерти». Он объединяет все силы зла, чтобы с помощью этого смертоносного оружия нанести последний сокрушительный удар по повстанцам и их союзникам.
+ Люк Скайуокер вместе с принцессой Лейей и верными дроидами R2D2 и C-3PO отправляется спасать своего друга Хана Соло, который попал в плен к отвратительному Джаббе Хатту — могущественному повелителю преступников.
+ Повстанцы высаживаются на планету Эндор, чтобы оттуда вместе с Люком и (   Читать дальше...   )Жанр: Фантастика, Фэнтези, ПриключенияРежиссер: Ричард Маркуэнд / Richard MarquandАктеры: Марк Хэмилл, Харрисон Форд, Кэрри Фишер, Билли Ди Уильямс, Энтони Дэниелс, Питер Мейхью, Себастьян Шоу, Иэн МакДайармид, Фрэнк Оз, Джеймс Эрл ДжонсПеревод: ДублированныйПродолжительность: 02:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E1C0CF794F61AC6931D6D99881B0C9C1275CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 216387   (405361) от 19.10.2012
 
 Эммануэль 4 / Emmanuelle 4 (1984) DVDRip
@@ -6,7 +88,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405361.jpg" />
+  <img src="Z:/picture/008/save_picture_405361.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405173.jpg" />
+  <img src="Z:/picture/008/save_picture_405173.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404488.jpg" />
+  <img src="Z:/picture/008/save_picture_404488.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403759.jpg" />
+  <img src="Z:/picture/008/save_picture_403759.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403752.jpg" />
+  <img src="Z:/picture/008/save_picture_403752.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403485.jpg" />
+  <img src="Z:/picture/008/save_picture_403485.jpg" />
 </div>
 
 
@@ -163,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402984.jpg" />
+  <img src="Z:/picture/008/save_picture_402984.jpg" />
 </div>
 
 
@@ -189,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402772.jpg" />
+  <img src="Z:/picture/008/save_picture_402772.jpg" />
 </div>
 
 
@@ -215,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402346.jpg" />
+  <img src="Z:/picture/008/save_picture_402346.jpg" />
 </div>
 
 
@@ -241,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401326.jpg" />
+  <img src="Z:/picture/008/save_picture_401326.jpg" />
 </div>
 
 
@@ -267,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401316.jpg" />
+  <img src="Z:/picture/008/save_picture_401316.jpg" />
 </div>
 
 
@@ -293,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397448.jpg" />
+  <img src="Z:/picture/008/save_picture_397448.jpg" />
 </div>
 
 
@@ -319,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396855.jpg" />
+  <img src="Z:/picture/008/save_picture_396855.jpg" />
 </div>
 
 
@@ -345,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396818.jpg" />
+  <img src="Z:/picture/008/save_picture_396818.jpg" />
 </div>
 
 
@@ -371,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396616.jpg" />
+  <img src="Z:/picture/008/save_picture_396616.jpg" />
 </div>
 
 
@@ -397,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396544.jpg" />
+  <img src="Z:/picture/008/save_picture_396544.jpg" />
 </div>
 
 
@@ -424,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395852.jpg" />
+  <img src="Z:/picture/008/save_picture_395852.jpg" />
 </div>
 
 
@@ -452,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395786.jpg" />
+  <img src="Z:/picture/008/save_picture_395786.jpg" />
 </div>
 
 
@@ -478,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395472.jpg" />
+  <img src="Z:/picture/008/save_picture_395472.jpg" />
 </div>
 
 
@@ -506,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395448.jpg" />
+  <img src="Z:/picture/008/save_picture_395448.jpg" />
 </div>
 
 
@@ -532,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394807.jpg" />
+  <img src="Z:/picture/008/save_picture_394807.jpg" />
 </div>
 
 
@@ -558,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394719.jpg" />
+  <img src="Z:/picture/008/save_picture_394719.jpg" />
 </div>
 
 
@@ -584,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394705.jpg" />
+  <img src="Z:/picture/008/save_picture_394705.jpg" />
 </div>
 
 
@@ -595,86 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D361BB941A066AD4FB23C2054699DE33F1448FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568284   (394628) от 31.10.2012
-
-Смерть среди айсбергов / Orca, the Killer Whale (1977) [H.264] DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Капитан Нолан никогда не задумывался о том, какой непоправимый вред он наносит живой природе. Он просто отлично выполнял свою работу. Он делал то, что у него получалось лучше всего, — он убивал. Выходил в море и убивал китов. Однажды он вытащил из воды самку-китиху. Она погибла, а вместе с ней погиб и ее не успевший родиться детеныш.
-Трагедия произошла на глазах кита-самца. А «орки» однолюбы по своей природе, также как и лебеди, также как и многие живые существа…С этой минуты кит начал мстить людям. Людям, близких Нолану, но к капитану Нолану у кита был свой особый счет. Когда от рыбацкого поселка мало что осталось, обоим — и Нолану, и киту, — стало ясно: они должны сойтись в поединке, который для кого-то из них окажется последним…Жанр: Ужасы, Триллер, ПриключенияРежиссер: Майкл АндерсонПродюсер: Лучиано Винчензони, Дино Де ЛаурентисАктеры: Ричард Харрис, Шарлотта Рэмплинг, Уилл Сэмпсон, Бо Дерек, Кинен Уинн, Роберт Кэрредин, Скотт Уолкер, Питер Хутен, Уэйн Хэффли, Винсент ДжентилеПеревод: ДублированныйПродолжительность: 01:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C232B591D65F3925092B9B7E5967FC7A1D3940EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021456   (394594) от 06.10.2017
-
-Это не я, это – он! / C'est pas moi, c'est lui (1979) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тихий клерк в один прекрасный день получает заманчивое предложение — поработать в Тунисе. Отправляясь туда вместе с новым знакомым, итальянским актером, он и не подозревает, какие приключения ждут его в этом путешествии…Производство: ФранцияЖанр: Комедия, приключенияРежиссер: Пьер РишарАктеры: Пьер Ришар, Альдо Маччоне, Валери Мересс, Даниэль Минадзоли, Анетт Пувр, Жерар Эрнандес, Франка Валери, Анри Гарсен, Рауф Бен Амор, Франк-Оливье Бонне, Филипп Бриго, Марсель Гассук, Клер Маньен, Луи Наварре, Мари-Кристина Дешайе, Жаклин Ноэль, Бубуль, Нуреддин Касбауи, Абдельлатиф Хамруни, Жак Монне, Мишель МюллерПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B24756566B19040BFDCC152DC9C6615E250705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169945   (393822) от 07.10.2017
-
-Любовь под дождем / Un amour de pluie (1973) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курорт — это место, где расцветают романы. И не важно, что окружает праздных отдыхающих: пустыня или парк, озеро или море, солнце или дождь — у желания вкусить прелести влюбленности не бывает неинтересных ландшафтов или плохой погоды.
-Вот и две парижанки, молодая мать Элизабет и ее «взрослая» дочь Сесиль приезжают на престижный курорт в поисках уединения, а находят (   Читать дальше...   )Производство: Франция, Италия, Германия (ФРГ)/ Lira Films, Terra Filmkunst, Torino Roma Attivita Cinematografiche, TraeЖанр: Драма, МелодрамаРежиссер: Жан-Клод БриалиАктеры: Роми Шнайдер, Нино Кастельнуово, Сюзанн Флон, Мехди Эль Глауи, Бенедикт Бучер, Жан-Клод Бриали, Филипп Кастелли, Луи Наварр, Пьер Мира, Альбер МишельПеревод: Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879B966B9E7E6C17FDE13FC7E42FED128A82C5F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

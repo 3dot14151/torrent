@@ -1,3 +1,169 @@
+###  Публикация: 1643577   (233799) от 02.07.2023
+
+МузЛофт-подкаст / МузLoft. Владимир Селиванов (2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Селиванов. Реальные пацаны. Камеди клаб. Сольная карьера.
+Сегодня у нас в гостях актер, а с недавнего времени еще и музыкант, представитель жанра «Дворовая лирика» VAVAN. Владимир рассказал и спел о своём творческом пути и как на него повлияла популярность.Производство: Россия | Y-GenerationЖанр: Дворовая лирикаУчастники: Владимир СеливановПродолжительность: 01:05:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40E7EEA60F42529AB2E42C0141D36E0026CC5D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645178   (233471) от 08.07.2023
+
+Фантазер (1988) WEBRip
+
+>>Театр и Музыкальное видео
+>>Опера, Балет, Мюзиклы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фантазии-воспоминания балетного актера, прикованного к своей комнате физическим недугом.Производство: СССР / Мосфильм, Ритм, ВидеофильмЖанр: мюзиклРежиссер: Валерий БунинАктеры: Михаил Лавровский, Наталья Трубникова, Анна Кушнерева, Джонни Цхведиани, Борис Ефимов, Галина Шляпина, Николай Дорохов, Вячеслав Войнаровский, Егор Михайлов, Пётр МеркурьевСубтитры: отсутствуютПродолжительность: 01:22:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3147E247CA854D8708C13FA06E442B53AEB89C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645261   (233394) от 08.07.2023
+
+Пол Ван Дайк - Глобальный / Paul Van Dyk - Global (2003) DVDRip [H.264/1080p-LQ] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233394.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 реворков Пола на свои собственные оригинальные композиции, включая 2 невыпущенных сингла: "Animacion" из мексиканского фильма "Zudro" и трэк "My World." В раздаче представлено 74 минутное видео эссе артиста о его путешествии по всему миру + эксклюзивное интервью для DVD релиза.01. We are alive (USA)
+02. Seven ways (International)
+03. Forbidden fruit (Japan)
+04. Beautiful place (Germany / UK)(   Читать дальше...   )Производство: ГерманияЖанр: Trance, Progressive TranceРежиссер: Frederic Doss, Peter SchollАктеры: Paul Van DykПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: РусскиеПродолжительность: 01:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B466947691D7736B0E29B3C9628BC7DC0F1268A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634656   (233260) от 21.05.2023
+
+Квартирник у Маргулиса. Группа «Вельвет» (20.05.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_233260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бессменная солистка группы «Вельвет» — Екатерина Белоконь: в 2005 году сформировался постоянный для группы состав — вокал, гитара, бас, барабаны. В своем творчестве коллектив соединяет «поп» и «рок», а характер солистки определил стиль их песен: с одной стороны, нежный и меланхоличный, с другой — бойкий, обладающий жестким рокерским стержнем. В гостях у Евгения Маргулиса (   Читать дальше...   )00:00:06  Продавец кукол
+00:06:36  Птицы-канарейки
+00:13:15  Земля
+00:19:10  Я хочу быть живой(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517A9D1E70DDE2477827CC60D295C981F514968E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1515455   (232765) от 27.05.2022
+
+Depeche Mode: 101 (1989) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_232765.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 июня в Пасадене на стадионе РоузБоул прошел 101-й концерт в рамках мирового турне группы Депеш Мод. Вернувшись в Англию, группа выпустила двойной концертный альбом «101» и этот одноимённый документальный фильм.Производство: Великобритания, США / Mute Film, Pennebaker AssociatesЖанр: документальный, музыкаРежиссер: Дэвид Доукинс, Крис Хегедус, Д.А. ПеннебейкерАктеры: Эндрю Флетчер, Дэвид Гаан, Мартин Гор, Алан Уайлдер, Оливер Чеслер, Миа Дэкаро, Сандра Фергус, Кристофер Хардвик, Джей Серкен,  Лиз ЛазоПеревод: отсутствуетЯзык озвучки: английскийСубтитры: голландские, французские, немецкие, итальянские, португальские, испанскиеПродолжительность: 02:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF43A074A6AA0A66E1A5133D9FB4D8D9442C0AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636005   (232034) от 28.05.2023
+
+Квартирник у Маргулиса. Найк Борзов (27.05.2023) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_232034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Камерный концерт российского рок-музыканта, вокалиста и композитора Найка Борзова. Уже в 14 лет он создал свою первую группу «Инфекция»: несмотря на то, что коллектив просуществовал всего несколько лет, он успел выпустить два альбома, на одном из которых была песня «Лошадка», ставшая впоследствии хитом, и сделавшая артиста знаменитым. В 90-х он пустился в сольное (   Читать дальше...   )00:00:05  Загадка
+00:06:32  Не предел
+00:16:00  Про дурачка
+00:23:44  Одна она(   Читать дальше...   )Производство: РоссияЖанр: КонцертЯзык озвучки: РусскийПродолжительность: 01:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AC6B8A085D240D4EDA4BB3D1C2DB4689BB0FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 312621   (231872) от 31.05.2022
 
 Joe Bonamassa - Live From The Royal Albert Hall (2009) DVD5 + DVD9
@@ -6,7 +172,7 @@ Joe Bonamassa - Live From The Royal Albert Hall (2009) DVD5 + DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231872.jpg" />
+  <img src="Z:/picture/005/save_picture_231872.jpg" />
 </div>
 
 
@@ -33,7 +199,7 @@ ZZ TOP - Double Down Live 1980 * 2008 (2009) DVD9+DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231853.jpg" />
+  <img src="Z:/picture/005/save_picture_231853.jpg" />
 </div>
 
 
@@ -62,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231460.jpg" />
+  <img src="Z:/picture/004/save_picture_231460.jpg" />
 </div>
 
 
@@ -91,7 +257,7 @@ Joe Bonamassa "Live at rock palast" DVD
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231235.jpg" />
+  <img src="Z:/picture/005/save_picture_231235.jpg" />
 </div>
 
 
@@ -117,7 +283,7 @@ Joe Bonamassa - An Acoustic Evening At The Vienna Opera House (2013) DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231161.jpg" />
+  <img src="Z:/picture/005/save_picture_231161.jpg" />
 </div>
 
 
@@ -146,7 +312,7 @@ Lita Ford-The Complete Video Collection (2003) DVD9
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230982.jpg" />
+  <img src="Z:/picture/005/save_picture_230982.jpg" />
 </div>
 
 
@@ -176,7 +342,7 @@ ROCKPOP IN DORTMUND: Scorpions, Def Leppard, QuietRiot, Judas Priest, Ozzy Osbou
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230950.jpg" />
+  <img src="Z:/picture/005/save_picture_230950.jpg" />
 </div>
 
 
@@ -202,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230764.jpg" />
+  <img src="Z:/picture/004/save_picture_230764.jpg" />
 </div>
 
 
@@ -231,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230391.jpg" />
+  <img src="Z:/picture/004/save_picture_230391.jpg" />
 </div>
 
 
@@ -257,7 +423,7 @@ Deep Purple: Around The World Live (2008) (4 DVD Box Set) 3*DVD9 + DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230250.jpg" />
+  <img src="Z:/picture/005/save_picture_230250.jpg" />
 </div>
 
 
@@ -287,7 +453,7 @@ Echoes - Barefoot To The Moon (An Acoustic Tribute To Pink Floyd) (2015) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_229852.jpg" />
+  <img src="Z:/picture/005/save_picture_229852.jpg" />
 </div>
 
 
@@ -316,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229441.jpg" />
+  <img src="Z:/picture/004/save_picture_229441.jpg" />
 </div>
 
 
@@ -342,7 +508,7 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229407.jpg" />
+  <img src="Z:/picture/004/save_picture_229407.jpg" />
 </div>
 
 
@@ -368,7 +534,7 @@ Bob Marley - Concert tribute to Bob Marley(+бонус) (1999) DVDRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229323.jpg" />
+  <img src="Z:/picture/004/save_picture_229323.jpg" />
 </div>
 
 
@@ -397,7 +563,7 @@ ZZ Top - Live At Montreux 2013 (2014) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228900.jpg" />
+  <img src="Z:/picture/004/save_picture_228900.jpg" />
 </div>
 
 
@@ -427,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227792.jpg" />
+  <img src="Z:/picture/005/save_picture_227792.jpg" />
 </div>
 
 
@@ -456,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227672.jpg" />
+  <img src="Z:/picture/005/save_picture_227672.jpg" />
 </div>
 
 
@@ -485,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226174.jpg" />
+  <img src="Z:/picture/005/save_picture_226174.jpg" />
 </div>
 
 
@@ -512,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226061.jpg" />
+  <img src="Z:/picture/005/save_picture_226061.jpg" />
 </div>
 
 
@@ -538,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225900.jpg" />
+  <img src="Z:/picture/005/save_picture_225900.jpg" />
 </div>
 
 
@@ -549,174 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E4AC6A74F19CC56CFEE0D5A2D530CCCE9ADE7D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 848770   (225895) от 20.12.2014
-
-Никола Емелин - Емелин Вечер (2007) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись концерта Николая Емелина в Москве, в 2007 г.01. Русь
-02. Поэты - Ангелы
-03. 25-июля
-04. К бате(   Читать дальше...   )Жанр: Концерт, ФолкПродолжительность: 00:50:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F93DD24241802E6F943A84BEBFD508A1327083
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964667   (225872) от 14.12.2015
-
-Александр Пушкин - Повести Белкина. Гробовщик (1972) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моноспектакль по одноименной повести А.С. Пушкина.
-Гробовщик Адриан Прохоров отправляется в гости к своему новому знакомому - сапожнику. Во время застолья многочисленные гости решили выпить за здоровье тех, на кого они работают. Адриан решил, что подобное предложение было намеренной насмешкой над его ремеслом, которое он считал не хуже других. Обиженный гробовщик (   Читать дальше...   )Производство: СССР, Главная редакция литературно-драматических программЖанр: Моноспектакль, литературное чтение, драмаРежиссер: Ольга КозноваАктеры: Александр КалягинПродолжительность: 00:26:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938AD6BAA20E0DE0C0F46EF267B79D532FF88E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965579   (225857) от 14.12.2015
-
-Александр Пушкин - Медный всадник (1979) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Моноспектакль «Медный всадник» выпущен центральным телевидением СССР в 1979 году. Знаменитую поэму Пушкина читает народный артист Анатолий Папанов. Папанову как никому другому удалось передать всю прелесть этого художественного произведения. В своём монологе актёр особо выразительно подчеркивает отдельные места, мимикой и жестами выделяет некоторые особо значимые (   Читать дальше...   )Производство: СССР, Центральное телевидениеЖанр: Моноспектакль, литературное чтение, поэзияАктеры: Анатолий ПапановПродолжительность: 00:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF95C202F86BED3F27BEB2173B44D88332958358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965435   (225674) от 14.12.2015
-
-Квартирник у Маргулиса. 6 выпуск. Скляр (2015) WEBRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкант, автор песен, радиоведущий и актер Александр Ф. Скляр сегодня в гостях у Евгения Маргулиса. В теплой и душевной атмосфере гость квартирника исполнит свои самые известные и любимые песни: Кухня, Босиком по Луне, Не надо так, Кислое вино (вместе с Александром Пушным) и многие другие. Дата эфира: 12.12.2015.01. Ад-и-Рай
-02. На кухне
-03. Босиком по луне
-04. Не надо так(   Читать дальше...   )Жанр: КонцертПродолжительность: 0:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E21A4619CDBC461D754C660A3A813F1E59A897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586705   (225637) от 09.12.2012
-
-Metallica - Quebec Magnetic (2012) BDRip [720]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225637.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Metallica, снятое их старым другом и коллегой Wayne Isham в канадском Квебеке в 2009 году.
-
-Среди сетлиста нашлось место супер-хитам команды, среди которых “‘Master of Puppets”, “Battery” и “Seek and Destroy”. Также стоит отметить, что за данный выпуск проголосовало более 35 тысяч поклонников группы.Жанр: трэш-метал, концертПеревод: ОтсутствуетПродолжительность: 02:14:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965081   (225515) от 14.12.2015
-
-Adele - At The BBC (2015) HDTVRip [H.264]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225515.jpg" />
-</div>
-
-
-###  Подробнее
-
-На шоу BBC Адель исполнила свои самые популярные хиты. Адель - британская певица, композитор, поэт, исполняющая поп-джаз/соул, блюз. В этом году состоялась мировая супер-премьера долгожданного третьего студийного альбома Адель - «25»!01. Rolling In The Deep
-02. Hello
-03. Rumour Has It
-04. Skyfall(   Читать дальше...   )Производство: Великобритания, BBCЖанр: Поп-музыка, концертПродолжительность: 01:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C20BBA2793ECB3AC09185126F1C744621081C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,118 @@
+###  Публикация: 1832345   (213502) от 30.10.2025
+
+ЗакЛинания - Лирика (2020) [MP3|320 Kbps] <Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Здравствуй, мама смерть 2:59
+02 - Жизнь 3:23
+03 - Эта осень 3:55
+04 - Когда ты закроешь глаза рукой 3:19(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400DB8238398B48C88F966F7C29DCAC4677DF0C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832101   (213447) от 29.10.2025
+
+Магнитная Аномалия - 4 Albums (2008-2025) [MP3|320 Kbps] <Alternative-Rock, Indie, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Магнитная Аномалия (2008) 13 Капель яда
+Магнитная Аномалия (2021) Я больше не ем животных
+Магнитная Аномалия (2024) Изумрудный концерт (Live)(   Читать дальше...   )Жанр: Alternative-Rock, Indie, GrungeПродолжительность: 4 CD, 02:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB547D6B51EC6889A011D12D7AF5FD407EA07F9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624378   (213362) от 14.06.2022
+
+VA - Mastersland.com - Украдено Из Студии 1 и 2 + 10 лет в сети (2008-2011) [MP3|320 kbps] <Heavy Metal, Power Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213362.jpg" />
+</div>
+
+
+###  Подробнее
+
+2008 - Украдено Из Студии
+2010 - Украдено Из Студии 2
+2011 - Украдено Из Студии 3 - 10 Лет В СетиЖанр: Heavy Metal, Power Metal, Death MetalПродолжительность: 03:29:39 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D7FCDE14E295D86BCFA97EF4947A90F3CE91C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365627   (212353) от 20.07.2022
+
+Мария-Режина - 6 Relised (2013-2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Золотой Капрал [00:04:59]
+02 - Королева Песков [00:03:22]
+03 - Распад [00:04:57]
+04 - Голем [00:05:10](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 6CD, 04:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA9E02AAC280809B1CB5315456067EB989AA4D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638780   (211811) от 10.06.2023
 
 Джанни Родари - Game Over (2023) [MP3|320 Kbps] <Ska, Rock>
@@ -6,7 +121,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211811.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211809.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211695.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ VA - Электро Индустрия (Д​о​н​б​а​с​с) (2015-
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211612.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ VA - Полигон Records. Лучшее 2022 [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210530.jpg" />
+  <img src="Z:/picture/005/save_picture_210530.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210503.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Nagart - 3 Альбома, 4 Сингла (2017-2022) [MP3|320 Kbps] <Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209824.jpg" />
+  <img src="Z:/picture/005/save_picture_209824.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ The Blood Diary - Дневник кровавых историй (2023) [MP3|320
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209296.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209242.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209208.jpg" />
+  <img src="Z:/picture/005/save_picture_209208.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208015.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207512.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207509.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202448.jpg" />
 </div>
 
 
@@ -412,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202447.jpg" />
 </div>
 
 
@@ -441,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201225.jpg" />
+  <img src="Z:/picture/005/save_picture_201225.jpg" />
 </div>
 
 
@@ -470,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200062.jpg" />
+  <img src="Z:/picture/005/save_picture_200062.jpg" />
 </div>
 
 
@@ -499,7 +614,7 @@ Roman Rain - 9 Альбомов, 6 Синглов (2005-2023) [MP3|320 Kbps] <Al
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199474.jpg" />
+  <img src="Z:/picture/005/save_picture_199474.jpg" />
 </div>
 
 
@@ -530,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196259.jpg" />
 </div>
 
 
@@ -559,7 +674,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195851.jpg" />
 </div>
 
 
@@ -588,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195677.jpg" />
+  <img src="Z:/picture/004/save_picture_195677.jpg" />
 </div>
 
 
@@ -616,7 +731,7 @@ Radio Tapok - Эпоха Империй (2023) [MP3|320 Kbps] <Power Metal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194936.jpg" />
 </div>
 
 
@@ -630,122 +745,6 @@ Radio Tapok - Эпоха Империй (2023) [MP3|320 Kbps] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E40E01408390B367C02DD1B8BD5A414F742FA1EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587353   (192961) от 30.10.2022
-
-Юг 404 - Без депрессивного вайба (2022) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ищи меня с копами [00:03:19]
-02 - Сори за мат [00:02:09]
-03 - Дождь [00:02:57]
-04 - Курить и спать [00:03:18](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A19A19C8C5A289EB3B84D768ADEF4BB781B08E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587868   (192404) от 01.11.2022
-
-Кувалда - Парад Нечистой Силы (2022) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192404.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Парад Нечистой Силы
-2. Оборотень
-3. План Манхэттен
-4. Дождь из язв(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8DA458E4170E0BBF1A98F962F85C02F7E75F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588443   (191640) от 04.11.2022
-
-Самое Большое Простое Число - Ничего больше нет (2022) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191640.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вновь и вновь
-2. Зуб
-3. Ничего больше нет
-4. Скучно(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC44D04794DF19F59520F7E5A84ADBC90BFCF538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588445   (191637) от 04.11.2022
-
-ТАйМСКВЕР - Молодость (2022) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191637.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Жесть
-2. В темноте (feat. Гарри Топор)
-3. Моё одиночество
-4. Не молчать(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0226F0F816D0E4702887D5C714186B9E6B8EC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

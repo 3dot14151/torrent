@@ -1,3 +1,87 @@
+###  Публикация: 175220   (942013) от 13.02.2010
+
+А.С. Грибоедов | Горе от ума (Аудиоспектакль) [2007] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спектакль Государственного академического Малого театра СССР по знаменитой комедии А.С. Грибоедова «Горе от ума», а также диалог Фамусова и Чацкого в исполнении Михаила Царева.
+
+Александр Сергеевич Грибоедов писал о своем произведении: «Портреты и только портреты входят в состав комедии... в них, однако, есть черты, свойственные многим другим лицам, а иные всему (   Читать дальше...   )Жанр: Пьеса
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089326   (941538) от 10.01.2017
+
+Максим Горький | Городок Окуров (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941538.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1909 году Горьким была написана злободневная повесть «Городок Окуров», тематически связанная с эпохой 1905 года.
+«Городок Окуров» можно назвать книгой о мещанстве как общественном слое, взятом во всей его сложности и пестроте, со всеми его противоречиями: здесь и зажиточное мещанство, преимущественно торгаши, и беднота слободская, главным образом мастеровые, ремесленники. (   Читать дальше...   )Жанр: КлассикаПродолжительность: 05:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF5FED99667F4F0A195D215E57777FB801DF7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091130   (941424) от 10.01.2017
+
+Антон Чехов и др. | Рождественские рассказы русских писателей (2012) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Грин "Новогодний праздник отца и маленькой дочери", читает Ольга Остроумова
+02. Антон Чехов "Ванька", читает Владимир Симонов
+03. Антон Чехов "'Мошенники поневоле", читает Владимир Симонов
+04-05. Александр Куприн "Чудесный доктор", читает Игорь Костолевский(   Читать дальше...   )Жанр: Классика,АудиокнигаПродолжительность: 02:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BA1CEEBFBDF44DBB1A7A7B0E9B0298639BDE38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984334   (940292) от 08.02.2016
 
 Грэм Грин | Конец одного романа (2015) [MP3]
@@ -6,7 +90,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940292.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940240.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940240.jpg" />
 </div>
 
 
@@ -58,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937285.jpg" />
 </div>
 
 
@@ -85,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935519.jpg" />
 </div>
 
 
@@ -112,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935411.jpg" />
 </div>
 
 
@@ -139,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934879.jpg" />
 </div>
 
 
@@ -165,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934712.jpg" />
 </div>
 
 
@@ -191,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933336.jpg" />
 </div>
 
 
@@ -217,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930752.jpg" />
 </div>
 
 
@@ -243,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930721.jpg" />
 </div>
 
 
@@ -271,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930687.jpg" />
 </div>
 
 
@@ -297,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930661.jpg" />
 </div>
 
 
@@ -323,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930434.jpg" />
 </div>
 
 
@@ -350,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_930388.jpg" />
 </div>
 
 
@@ -376,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929658.jpg" />
 </div>
 
 
@@ -402,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929184.jpg" />
 </div>
 
 
@@ -428,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929168.jpg" />
 </div>
 
 
@@ -454,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_927788.jpg" />
 </div>
 
 
@@ -480,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926487.jpg" />
 </div>
 
 
@@ -506,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924706.jpg" />
 </div>
 
 
@@ -533,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924642.jpg" />
 </div>
 
 
@@ -561,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922845.jpg" />
 </div>
 
 
@@ -588,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919753.jpg" />
 </div>
 
 
@@ -598,85 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 В ролях: А.Баталов, А.Джигарханян, Е.Герасимов, И.Костолевский и другие заслуженные и народные артисты
 
 Агата Кристи «Происшествие в старом замке»(   Читать дальше...   )Жанр: Радио Спектакль
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289084   (918441) от 31.01.2011
-
-Стендаль, Бальзак, Мериме и др. | Неведомый шедевр. Рассказы французских писателей (1984) [MP3, Николай Козий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918441.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике «Неведомый шедевр. Рассказы французских писателей» представлены французские писатели XIX: Оноре де Бальзак, Проспер Мериме, Ги де Мопассан, Эмиль Золя, Альфонс Доде и Кладель ЛеонЖанр: Классика, рассказИздательство: Нигде не купишьПродолжительность: 19:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB824DAB2490617618774C84B102F4255FA93F9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 178477   (917512) от 02.03.2010
-
-Иван Бунин | Господин из Сан-Франциско (1958) [MP3, Михаил Астангов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ «Господин из Сан-Франциско» был написан Иваном Алексеевичем Буниным в 1915 г. Через 18 лет, в ноябре 1933 года, за книги «Господин из Сан-Франциско» и «Жизнь Арсеньева» Бунин, категорически не принявший революцию и уехавший из России, будет награжден Нобелевской премией. В своей благодарственной речи писатель скажет: «В мире должны существовать области полнейшей (   Читать дальше...   )Жанр: Рассказ
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 180107   (916115) от 03.03.2010
-
-Джек Лондон | Мартин Иден [Радиоспектакль] (1979) [APE|Lossless]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916115.jpg" />
-</div>
-
-
-###  Подробнее
-
-МАРТИН ИДЕН (спектакль с участием В.Высоцкого)
-В автобиографическом романе Джека Лондона - "Мартин Иден" (1909 г.) воссоздана нелегкая, но прекрасная пора его жизни, когда, скрипя и застревая, колесо фортуны медленно поворачивалось, пока не пришла минута торжества, ярко и откровенно выражены многие внутренние конфликты, пережитые писателем уже на заре творчества (   Читать дальше...   )Жанр: РадиоспектакльПродолжительность: 01:08:00
 
 ## Скачать торент
 ```bash

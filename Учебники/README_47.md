@@ -1,3 +1,58 @@
+###  Публикация: 911598   (612396) от 25.06.2015
+
+Е. А. Соловьев, В. В. Блохин | История древней и средневековой России (IX-XVII вв.) (2013) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_612396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие предназначено для углубленной подготовки студентов-иностранцев, обучающихся на факультете русского языка и общеобразовательных дисциплин, а также российских студентов. Разделы пособия написаны в соответствии с требованиями Государственного образовательного стандарта. В нем раскрываются основные темы истории и культуры Древней и средневековой России.
+
+Пособие (   Читать дальше...   )Жанр: Учебное пособие, История Древней Руси, СредневековьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56A8EA0979DAC651C75D111383BBA1A5A024702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911916   (612392) от 25.06.2015
+
+В.И. Колчков | Метрология, стандартизация и сертификация (2010) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_612392.jpg" />
+</div>
+
+
+###  Подробнее
+
+В учебнике изложены теоретические положения данных дисциплин, необходимые для проведения занятий, а также методические указания по проведению практических занятий: лабораторных работ, семинарских занятий и домашних работ.
+ Учебник предназначен студентам среднего профессионального образования, обучающимся по дисциплинам "Метрология, стандартизация и сертификация", (   Читать дальше...   )Жанр: МетрологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0DBC7E8F6A4236E44BFD97BB277E7B9BD612DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912673   (609224) от 27.06.2015
 
 П. С. Столяр | Критика буржуазных фальсификаторов истории второй мировой войны [Учебно-методическое пособие] (1968) [DJVU]
@@ -6,7 +61,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609224.jpg" />
+  <img src="Z:/picture/008/save_picture_609224.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608919.jpg" />
+  <img src="Z:/picture/008/save_picture_608919.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608912.jpg" />
+  <img src="Z:/picture/008/save_picture_608912.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608907.jpg" />
+  <img src="Z:/picture/008/save_picture_608907.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608701.jpg" />
+  <img src="Z:/picture/008/save_picture_608701.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608698.jpg" />
+  <img src="Z:/picture/008/save_picture_608698.jpg" />
 </div>
 
 
@@ -166,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608697.jpg" />
+  <img src="Z:/picture/008/save_picture_608697.jpg" />
 </div>
 
 
@@ -193,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608400.jpg" />
+  <img src="Z:/picture/008/save_picture_608400.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608083.jpg" />
+  <img src="Z:/picture/008/save_picture_608083.jpg" />
 </div>
 
 
@@ -245,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607008.jpg" />
+  <img src="Z:/picture/008/save_picture_607008.jpg" />
 </div>
 
 
@@ -271,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606919.jpg" />
+  <img src="Z:/picture/008/save_picture_606919.jpg" />
 </div>
 
 
@@ -297,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606912.jpg" />
+  <img src="Z:/picture/008/save_picture_606912.jpg" />
 </div>
 
 
@@ -323,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606742.jpg" />
+  <img src="Z:/picture/008/save_picture_606742.jpg" />
 </div>
 
 
@@ -349,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606736.jpg" />
+  <img src="Z:/picture/008/save_picture_606736.jpg" />
 </div>
 
 
@@ -376,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606671.jpg" />
+  <img src="Z:/picture/008/save_picture_606671.jpg" />
 </div>
 
 
@@ -402,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606556.jpg" />
+  <img src="Z:/picture/008/save_picture_606556.jpg" />
 </div>
 
 
@@ -428,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606429.jpg" />
+  <img src="Z:/picture/008/save_picture_606429.jpg" />
 </div>
 
 
@@ -454,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606327.jpg" />
+  <img src="Z:/picture/008/save_picture_606327.jpg" />
 </div>
 
 
@@ -480,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604922.jpg" />
+  <img src="Z:/picture/008/save_picture_604922.jpg" />
 </div>
 
 
@@ -507,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604906.jpg" />
+  <img src="Z:/picture/008/save_picture_604906.jpg" />
 </div>
 
 
@@ -533,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604842.jpg" />
+  <img src="Z:/picture/008/save_picture_604842.jpg" />
 </div>
 
 
@@ -559,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604292.jpg" />
+  <img src="Z:/picture/008/save_picture_604292.jpg" />
 </div>
 
 
@@ -585,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604282.jpg" />
+  <img src="Z:/picture/008/save_picture_604282.jpg" />
 </div>
 
 
@@ -611,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604254.jpg" />
+  <img src="Z:/picture/008/save_picture_604254.jpg" />
 </div>
 
 
@@ -622,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A87B074AB3FEF7AA5AA3C99CDBA5775DF6BFC6D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546958   (603883) от 26.04.2022
-
-А.М. Ховив (ред.) | Сенсорная электроника, датчики. Твердотельные сенсорные структуры на кремнии (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс «Твердотельные сенсорные структуры на кремнии» посвящен изложению анализу фундаментальных и прикладных свойств гетероструктур с сенсорными свойствами, изготовленных из современных материалов c различными по характеру и масштабу пространственно-энергетическими неоднородностями, нанокристаллических, аморфных, пористых, (микро)гетерогенных и гетерофазных, имеющих (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B28E99E3629ADC5E1F6B26C0B203D1A4813A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547116   (603879) от 26.04.2022
-
-М.Ю. Петушков | Автономные инверторы (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся преобразовательная техника основана на комбинациях четырех электротехнических компонентов. Их компоновка, состав и алгоритм работы и будут определять, к какому из типов преобразователей они будут относиться. Это касается и деления на классы внутри каждого из типа преобразователей. Основными элементами являются вентили или ключи; реактивные элементы: конденсаторы, (   Читать дальше...   )Жанр: Электроника, электротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729BF2EFC1960D9EE47AD60BA9529740B8951A47
 ```
 
 https://mybot314.ru/tekegram_catalog/

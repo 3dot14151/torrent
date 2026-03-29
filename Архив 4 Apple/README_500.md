@@ -1,3 +1,114 @@
+###  Публикация: 1457721   (242631) от 26.03.2021
+
+Bootstrap Studio 5.6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242631.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
+Оно поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
+Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2021Разработчик: BootstrapstudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD5ED9CD5FA82FF345A5067C4B8A0354BAEE33B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362626   (242624) от 24.02.2020
+
+FileAssistant 2.8 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко и быстро находить, копировать, вырезать, удалять файлы на Mac
+Вы не хотите тратить свое время, чтобы искать нужный файл на вашем Mac, не так ли? Вы не хотите , чтобы хранились дубликаты файлов на вашем Mac, не так ли? Просто скачайте FileAssistant, это поможет вм легко управлять файлами на Mac.
+
+Вы можете свободно перетаскивать или добавлять файлы / папки из (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: DoYourDataПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040D5309EA0DC61638DF33D81BB9169389DAC29E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541563   (242617) от 03.04.2022
+
+Audio Hijack 4.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
+В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2022Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14.4 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134913D3251E15DB093A3E9C3E05EE0382D632BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628111   (242574) от 21.04.2023
+
+Duplicate File Finder Pro 7.0.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate File Finder - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
+Функция Drag & drop и столько папок, сколько вы хотите, затем нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатами файлов по категориям: изображения, видео, музыки, архивы, документы и пр. Это очень легко, чтобы увидеть, сколько места занимает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.04.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A0F127940E4C99BBECDD1C7DDB4107B8CEBFBFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362620   (242559) от 24.02.2020
 
 DoYourData Start Menu Professional 3.9 [En]
@@ -6,7 +117,7 @@ DoYourData Start Menu Professional 3.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242559.jpg" />
+  <img src="Z:/picture/005/save_picture_242559.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ Integrity Plus 12.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242554.jpg" />
+  <img src="Z:/picture/005/save_picture_242554.jpg" />
 </div>
 
 
@@ -59,7 +170,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242547.jpg" />
+  <img src="Z:/picture/004/save_picture_242547.jpg" />
 </div>
 
 
@@ -86,7 +197,7 @@ Renamer 6.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242532.jpg" />
+  <img src="Z:/picture/005/save_picture_242532.jpg" />
 </div>
 
 
@@ -112,7 +223,7 @@ Omni Recover 3 v3.2.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242527.jpg" />
+  <img src="Z:/picture/004/save_picture_242527.jpg" />
 </div>
 
 
@@ -139,7 +250,7 @@ Framer Studio v82 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242523.jpg" />
+  <img src="Z:/picture/005/save_picture_242523.jpg" />
 </div>
 
 
@@ -166,7 +277,7 @@ Omni Toolbox 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242518.jpg" />
+  <img src="Z:/picture/005/save_picture_242518.jpg" />
 </div>
 
 
@@ -192,7 +303,7 @@ SyncBird Pro 3.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242509.jpg" />
+  <img src="Z:/picture/005/save_picture_242509.jpg" />
 </div>
 
 
@@ -218,7 +329,7 @@ Integrity Pro 12.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242501.jpg" />
+  <img src="Z:/picture/005/save_picture_242501.jpg" />
 </div>
 
 
@@ -244,7 +355,7 @@ TechSmith Camtasia 2022 Studio 2022.6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242487.jpg" />
+  <img src="Z:/picture/005/save_picture_242487.jpg" />
 </div>
 
 
@@ -270,7 +381,7 @@ FSNotes 5.3.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242486.jpg" />
+  <img src="Z:/picture/005/save_picture_242486.jpg" />
 </div>
 
 
@@ -296,7 +407,7 @@ Checksum Thing 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242472.jpg" />
+  <img src="Z:/picture/005/save_picture_242472.jpg" />
 </div>
 
 
@@ -323,7 +434,7 @@ Marked 2 v2.6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242460.jpg" />
+  <img src="Z:/picture/005/save_picture_242460.jpg" />
 </div>
 
 
@@ -350,7 +461,7 @@ Path Finder 2152 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242450.jpg" />
+  <img src="Z:/picture/005/save_picture_242450.jpg" />
 </div>
 
 
@@ -376,7 +487,7 @@ Posterino 3 v3.11.8[Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242448.jpg" />
+  <img src="Z:/picture/005/save_picture_242448.jpg" />
 </div>
 
 
@@ -403,7 +514,7 @@ Magoshare Data Recovery Professional 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242440.jpg" />
+  <img src="Z:/picture/005/save_picture_242440.jpg" />
 </div>
 
 
@@ -429,7 +540,7 @@ WonderPen 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242439.jpg" />
+  <img src="Z:/picture/005/save_picture_242439.jpg" />
 </div>
 
 
@@ -455,7 +566,7 @@ Export for iTunes 3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242431.jpg" />
+  <img src="Z:/picture/005/save_picture_242431.jpg" />
 </div>
 
 
@@ -481,7 +592,7 @@ iA Writer 5.6.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242430.jpg" />
+  <img src="Z:/picture/005/save_picture_242430.jpg" />
 </div>
 
 
@@ -507,7 +618,7 @@ NetWorker Pro 7.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242406.jpg" />
+  <img src="Z:/picture/004/save_picture_242406.jpg" />
 </div>
 
 
@@ -533,7 +644,7 @@ IconJar 1.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242383.jpg" />
+  <img src="Z:/picture/004/save_picture_242383.jpg" />
 </div>
 
 
@@ -562,7 +673,7 @@ SQLPro for SQLite 2022.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242361.jpg" />
+  <img src="Z:/picture/004/save_picture_242361.jpg" />
 </div>
 
 
@@ -573,118 +684,6 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F24804ABFFCAE3151E7D12B6E7D895F8C0DD8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628211   (242331) от 22.04.2023
-
-Geekbench 6.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242331.jpg" />
-</div>
-
-
-###  Подробнее
-
-Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
-Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
-Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2023Разработчик: © Primate Labs Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE79E901BE59BDC2F75FDA1F0B6B2769FB584382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105926   (242323) от 18.02.2017
-
-Paws for Trello 2.0.3 [Muli/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paws for Trello красивый Trello клиент для Mac.
-Trello уже полон полезных ярлыков и опций. В том числе сочетания клавиш, drag & drop и многое другое.
-
-- Красивый минимальный интерфейс, который позволяет Вам оставаться продуктивным.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 февраля 2017Разработчик: Milosz FalinskiПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1477CA080B815A8E123B9E4B8F9A234FE25D69F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628216   (242320) от 22.04.2023
-
-Lungo 2.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lungo предотвращает засыпание Mac и затемнение экрана.Тип издания: macOS SoftwareРелиз состоялся: 21.04.2023Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 13.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:774405B43648C4243EF7D3673D90BB27ADB2D209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105883   (242294) от 18.02.2017
-
-Newsflow 1.4.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря Newsflow вы можете читать новости с любимых веб-сайтов прямо на рабочем столе. Читайте статьи в быстром приложении для чтения новостей c множеством настроек.
-
-Особенности:
-- Красивые темы (включая ночной режим)(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 февраля 2017Разработчик: Rocky Sand Studio Ltd.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD998C70CB8C11DE3E5F0AC87F8B5A185CDFEE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

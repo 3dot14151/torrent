@@ -1,3 +1,30 @@
+###  Публикация: 1147308   (827471) от 06.05.2020
+
+Shaun T | CIZE - The End of Exercize Deluxe (2015) HDTVRip [H.264/720p-LQ] [EN]
+
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забудьте все, что пугало Вас в тренировках. Ведь начиная с этого дня тренировки будут не обязанностью, а потребностью.
+Благодаря Шону Ти всего за 4 недели, Вы танцуя улучшите свою форму! Расслабьтесь и обучитесь самым горячим профессионально поставленным танцевальным тренировкам. Вы будете так поглощены оттачиванием движений и выкладываться по-полной, что забудете, (   Читать дальше...   )Производство: США / BeachBody.comЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 06:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:602AD9EF391C8675E592D31C9186D6289913F672
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197851   (811755) от 09.01.2018
 
 TRX TV | TRX Strenght Workout (2008) DVDRip [EN]
@@ -6,7 +33,7 @@ TRX TV | TRX Strenght Workout (2008) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811755.jpg" />
+  <img src="Z:/picture/008/save_picture_811755.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ TRX Performance | Train Like The Pros (2011) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809992.jpg" />
+  <img src="Z:/picture/008/save_picture_809992.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ TRX Performance | Team Sports (2011) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809991.jpg" />
+  <img src="Z:/picture/008/save_picture_809991.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ TRX Kettlebell | Iron Circuit Conditioning (2009) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809839.jpg" />
+  <img src="Z:/picture/008/save_picture_809839.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ TRX Force | Tactical Conditioning Program (2011) DVD5 [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807879.jpg" />
+  <img src="Z:/picture/008/save_picture_807879.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ TRX Performance | MMA Workout (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807876.jpg" />
+  <img src="Z:/picture/008/save_picture_807876.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ Barre3 (2020) HDRip [H.264/1080p-LQ] (серий 126) [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807427.jpg" />
+  <img src="Z:/picture/008/save_picture_807427.jpg" />
 </div>
 
 
@@ -193,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804644.jpg" />
+  <img src="Z:/picture/008/save_picture_804644.jpg" />
 </div>
 
 
@@ -219,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803861.jpg" />
+  <img src="Z:/picture/008/save_picture_803861.jpg" />
 </div>
 
 
@@ -248,7 +275,7 @@ Cold Steel Inc | The Fighting Tomahawk [Часть1] (2012) DVD5 [En]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799156.jpg" />
+  <img src="Z:/picture/008/save_picture_799156.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796094.jpg" />
+  <img src="Z:/picture/008/save_picture_796094.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Jillian Michaels | Killer Arms and Back (2015) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793092.jpg" />
+  <img src="Z:/picture/008/save_picture_793092.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790107.jpg" />
+  <img src="Z:/picture/008/save_picture_790107.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790102.jpg" />
+  <img src="Z:/picture/008/save_picture_790102.jpg" />
 </div>
 
 
@@ -382,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789796.jpg" />
+  <img src="Z:/picture/008/save_picture_789796.jpg" />
 </div>
 
 
@@ -411,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789731.jpg" />
+  <img src="Z:/picture/008/save_picture_789731.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789699.jpg" />
+  <img src="Z:/picture/008/save_picture_789699.jpg" />
 </div>
 
 
@@ -466,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788310.jpg" />
+  <img src="Z:/picture/008/save_picture_788310.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ Jillian Michaels | Tone and Shred (2016) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785500.jpg" />
+  <img src="Z:/picture/008/save_picture_785500.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778060.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778056.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778056.jpg" />
 </div>
 
 
@@ -572,7 +599,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767530.jpg" />
+  <img src="Z:/picture/008/save_picture_767530.jpg" />
 </div>
 
 
@@ -599,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759263.jpg" />
+  <img src="Z:/picture/008/save_picture_759263.jpg" />
 </div>
 
 
@@ -634,7 +661,7 @@ Shaun T | FOCUS T25 (2013) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759167.jpg" />
+  <img src="Z:/picture/008/save_picture_759167.jpg" />
 </div>
 
 
@@ -662,7 +689,7 @@ TRX TV | Condition to Win (2011) WEB-DLRip [H.264][EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747712.jpg" />
+  <img src="Z:/picture/008/save_picture_747712.jpg" />
 </div>
 
 
@@ -673,32 +700,6 @@ TRX TV | Condition to Win (2011) WEB-DLRip [H.264][EN]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FEEC5315AC561D06902FDC2147D1B528422E279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216453   (747707) от 01.04.2018
-
-TRX TV | Strength (2011) WEB-DLRip [H.264][EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск TRX TV, посвященный развитию силовых качеств на петляхПроизводство: TRX TVЖанр: Функциональный тренингПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E66E5FEA7E09EEFD2D95F4659763115592655A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

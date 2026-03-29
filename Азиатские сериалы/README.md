@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1862167   (1062994) от 
+
+Легенда о Шэнь Ли / Yu Feng Xing  / The Legend of ShenLi (2024) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 1, серии 1-39 из 39) DubLikTV
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Древние боги погибли, оставив лишь последнего божественного правителя в мире — Синчжи. Ходили слухи, что десятки тысяч лет этот божественный правитель жил один в Небесах за гранью, без чувств и желаний. Во время войны между бессмертными и демонами он спас положение своими силами, и с тех пор его никто не видел — ни на небесах, ни в человеческом мире, где его звали (   Читать дальше...   )Производство: Китай / New Classics MediaЖанр: фэнтези, боевик, мелодрамаРежиссер: Дэн КэАктеры: Чжао Лиин, Кенни Линь, Сюань Лу, Синь Юньлай, Чжоу Цзюньвэй, Цзэн Ли, Сюй Хайцяо, Чжан Тяньян, Дун Цзэ, Джеки ЛиПеревод: Двуголосый любительский (DubLikTV)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:42:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3338D6796D99BA57C2B6716F1363A90CBF1D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861257   (1062608) от 
+
+Боевой континент / Dou luo da lu / Douluo Continent (2021) WEB-DL [AV1/1080p] [10-bit] (сезон 1, серии 1-40 из 40) FAN HD
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё ребёнком Тан Сань потерял мать, и вскоре отец отправил его обучаться боевым искусствам. В шестилетнем возрасте Сань был принят в академию Ношань и там крепко подружился с несколькими ребятами. Через некоторое время, как один из самых способных учеников, парень поступает в академию Тайшань, где преподают пятеро выдающихся мастеров.Производство: Китай / Tencent VideoЖанр: боевик, фэнтези, мелодрамаРежиссер: Ян ЧжэньюйАктеры: Сяо Чжань, У Сюаньи, Калвин Чэнь, Гао Тайюй, Лю Мэйтун, Лю Жуньнань, Гу Юмин, Хуан Цаньцань, Шэнь СяохайПеревод: Многоголосый профессиональный (FAN HD)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3953772960A27838D743999A670E1566CB379D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861266   (1062597) от 
+
+Боевой континент 2: Страна воинов / Duo Luo Da Lu Zhi Ran Hun Zhan / Douluo Continent 2: The Land of Warriors (2024) WEB-DL [AV1/2160p] [4K, SDR, 10-bit] (сезон 2, серии 1-38 из 38) DubLikTV
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062597.jpg" />
+</div>
+
+
+###  Подробнее
+
+После «Турнира академий» Тан Сань прощается с друзьями, обещая встретиться снова через пять лет, и они расходятся каждый своим путем. Вместе с отцом Тан Хао он отправляется в Скрытую долину для тренировок и совершенствования своих способностей. Дай Мубай и Чжу Чжуцин получают признание своих семей и становятся наследным принцем и наследной принцессой Звёздной Империи. (   Читать дальше...   )Производство: Китай / Linghe Cultural Media, Tencent Penguin PicturesЖанр: Экшн, приключения, фэнтези, романтикаРежиссер: Чэн Фэн, Вэй Ли ЧжоуАктеры: Чэнь Му Чи, Дин Цзя И, Чжан Юй Си, Кун Сюэ Эр, Цао Цзы Шо, Чжоу И Жань, Чжоу Цзин Бо, Чэнь Цзы Хань, Лю Се Нин, Сюй Вэй Ло, Се Цзу У, Сюй Цзя ЦиПеревод: Двуголосый любительский (DubLikTV)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD4A0E905A8155A3BDDC4873C518D2D8D240D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857791   (1060291) от 10.03.2026
 
 Я украла первую ночь главного героя! / Namjuui cheotnalbameul gajyeobeoryeotta / The First Night with the Duke (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-12 из 12) Тайм Медиа Групп
@@ -7,7 +85,7 @@ https://t.me/izofen
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060291.jpg" />
+  <img src="Z:/picture/009/save_picture_1060291.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059967.jpg" />
+  <img src="Z:/picture/009/save_picture_1059967.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059250.jpg" />
+  <img src="Z:/picture/005/save_picture_1059250.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059075.jpg" />
+  <img src="Z:/picture/005/save_picture_1059075.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052946.jpg" />
+  <img src="Z:/picture/005/save_picture_1052946.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048296.jpg" />
+  <img src="Z:/picture/008/save_picture_1048296.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047627.jpg" />
+  <img src="Z:/picture/008/save_picture_1047627.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045620.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045457.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045371.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044724.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044691.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044398.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043822.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043807.jpg" />
 </div>
 
 
@@ -399,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043792.jpg" />
 </div>
 
 
@@ -425,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043707.jpg" />
 </div>
 
 
@@ -451,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043516.jpg" />
 </div>
 
 
@@ -477,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043515.jpg" />
 </div>
 
 
@@ -503,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042489.jpg" />
 </div>
 
 
@@ -529,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042452.jpg" />
 </div>
 
 
@@ -555,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042345.jpg" />
 </div>
 
 
@@ -581,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042090.jpg" />
 </div>
 
 
@@ -592,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4D55DDF0604D975A6FDAAD22C3CBFC3746B84B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437263   (1042001) от 05.01.2021
-
-Кайрос / Kairoseu / Kairos (2020) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) NewDub
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042001.jpg" />
-</div>
-
-
-###  Подробнее
-
-У Ким Со-джина карьера на зависть и замечательная семья, но эта прекрасная жизнь рушится в один момент после похищения неизвестными его маленькой дочери. Мужчина впадает в отчаяние, когда внезапно получает возможность связаться с человеком в прошлом. Девушка Хан Э-ри разрывается между учёбой и работой, изо всех сил пытаясь накопить на операцию для больной матери, (   Читать дальше...   )Производство: Южная Корея, OH Story, Blossom StoryЖанр: триллер, фантастика, мелодрамаРежиссер: Пак Сын-уАктеры: Щин Сон-нок, Ли Сэ-ён, Ан Бо-хён, Нам Гю-ри, Кан Сын-юн, Ли Джу-мён, Чон Э-ри, Щин Гу, Квон Хёк, Хван Джон-минПеревод: Двуголосый любительский (NewDub)Язык озвучки: РусскийПродолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173E15A8E6DC40D76FFB1FF4389DC85D85C7F1FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437451   (1041940) от 05.01.2021
-
-Моя опасная жена / Naui Wiheomhan Anae / My Dangerous Wife (2020) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16) BaibaKo [PR]
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ким Юн Чхоль - владелец и шеф-повар известного ресторана, шесть лет счастливо женат на умной, красивой и богатой, практически идеальной Сим Чжэ Кён. Но брак, заключённый по большой любви, оказывается под угрозой, когда Ким Юн Чхоль влюбляется в красавицу Чжин Сон Ми, и между ними начинается страстный роман. Любовники планируют убить мешающую им Сим Чжэ Кён. Но однажды, (   Читать дальше...   )Производство: Южная Корея, KeyEastЖанр: драма, мелодрама, триллерРежиссер: Ли Хён-минАктеры: Ким Джон-ын, Чхве Вон-ён, Чхве Ю-хва, Щим Хе-джин, Ли Джун-хёк, Чон Су-ён, Ан Нэ-сан, Юн Е-хи, Юн Джон-сок, Ким Джа-ёнПеревод: Многоголосый профессиональный (BaibaKo)Продолжительность: ~01:10:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B522F6CAC210C1079B57C4C8ABC110CC91E34A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611224   (1041305) от 11.02.2023
-
-Любовное сражение / Битва любви / Люблю тебя ненавидеть / Yeonaedaejeon / Love To Hate You (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) Softbox
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дорама о мужчине и женщине, которые не доверяют противоположному полу и не верят в любовь.
-Ё Ми Ран – новый юрист юридической фирмы Gilmu, специализирующейся на индустрии развлечений. Она патологически ненавидит проигрывать мужчинам и считает, что единственный способ для женщины выжить в этом мире одной – это сделать успешную карьеру. Ё Ми Ран рассматривает свидания (   Читать дальше...   )Производство: Южная Корея / Seoul Broadcasting System (SBS)Жанр: мелодрама, комедияРежиссер: Ким Джон-гвонАктеры: Ким Ок-пин, Тео Ю, Ким Джи-хун, Ко Вон-хи, Ким До-ён, Ли Джу-бин, Ким Сон-нёнПеревод: Двуголосый любительский (Softbox)Язык озвучки: русский, корейский, английский, французскийСубтитры: украинские, английские (forced, full), французские (forced, full)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF76BC9C435D05D73773BC47405441086A5F933
 ```
 
 https://mybot314.ru/tekegram_catalog/

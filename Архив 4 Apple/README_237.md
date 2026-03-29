@@ -6,7 +6,7 @@ Things 3.4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742276.jpg" />
+  <img src="Z:/picture/008/save_picture_742276.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ EdgeView 3 v3.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742259.jpg" />
+  <img src="Z:/picture/008/save_picture_742259.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Wondershare PDFelement Pro OCR 8.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742257.jpg" />
+  <img src="Z:/picture/008/save_picture_742257.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ AYVY 1.17.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742246.jpg" />
+  <img src="Z:/picture/008/save_picture_742246.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ WiFi Scanner 3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742240.jpg" />
+  <img src="Z:/picture/008/save_picture_742240.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ PhotoScape X Pro 4.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742140.jpg" />
+  <img src="Z:/picture/008/save_picture_742140.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Capture One Pro 12 v12.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742109.jpg" />
+  <img src="Z:/picture/008/save_picture_742109.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Principle 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741955.jpg" />
+  <img src="Z:/picture/008/save_picture_741955.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Folx Downloader Pro 5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741952.jpg" />
+  <img src="Z:/picture/008/save_picture_741952.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ WiFi Radar Pro 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741948.jpg" />
+  <img src="Z:/picture/008/save_picture_741948.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Adobe Photoshop Lightroom Classic CC 2018 v7.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741702.jpg" />
+  <img src="Z:/picture/008/save_picture_741702.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741579.jpg" />
+  <img src="Z:/picture/008/save_picture_741579.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Cookie 5.5.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741198.jpg" />
+  <img src="Z:/picture/008/save_picture_741198.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ PhoneRescue for Android 3.7.0.20190214 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741157.jpg" />
+  <img src="Z:/picture/008/save_picture_741157.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ AnyTrans for Android 6.5.0.20190214 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741155.jpg" />
+  <img src="Z:/picture/008/save_picture_741155.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Calendar 366 Plus 1.4.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741130.jpg" />
+  <img src="Z:/picture/008/save_picture_741130.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ PrimoMusic Pro 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741123.jpg" />
+  <img src="Z:/picture/008/save_picture_741123.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ ExLibris 8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741112.jpg" />
+  <img src="Z:/picture/008/save_picture_741112.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Pastebot 2.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741016.jpg" />
+  <img src="Z:/picture/008/save_picture_741016.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ One Chat - All in one Messenger 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741008.jpg" />
+  <img src="Z:/picture/008/save_picture_741008.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Framer Studio 63 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740983.jpg" />
+  <img src="Z:/picture/008/save_picture_740983.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ SILKYPIX Developer Studio Pro 8E 8.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740910.jpg" />
+  <img src="Z:/picture/008/save_picture_740910.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ VueScan Pro 9.5.74 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740909.jpg" />
+  <img src="Z:/picture/008/save_picture_740909.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Polarr Photo Editor 3.7.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740899.jpg" />
+  <img src="Z:/picture/008/save_picture_740899.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ GraphicConverter 10.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740792.jpg" />
+  <img src="Z:/picture/008/save_picture_740792.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Lingon X 6.5.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740663.jpg" />
+  <img src="Z:/picture/008/save_picture_740663.jpg" />
 </div>
 
 

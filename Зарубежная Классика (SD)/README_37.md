@@ -1,3 +1,83 @@
+###  Публикация: 1121691   (773048) от 13.04.2017
+
+Побег из Алькатраса / Escape from Alcatraz (1979) HDTVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_773048.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общество всегда лелеяло мечту о возведении совершенной тюрьмы, из которой невозможно было бы бежать. И такое заведение удалось построить на острове неподалеку от Сан — Франциско.
+Тюрьма называлась «Алькатрас». Двадцать девять лет считалась она самой надежной тюрьмой США. В ней сидели знаменитые воры, мошенники и даже сам Аль Капоне. Но в один прекрасный день порог (   Читать дальше...   )Производство: СШАЖанр: Драма, криминал, биографияРежиссер: Дон СигелАктеры: Клинт Иствуд, Патрик МакГуэн, Робертс Блоссом, Джек Тибо, Фред Уорд, Пол Бенджамин, Ларри Хэнкин, Брюс М. Фишер, Фрэнк Ронцио, Фред Статмен ...Перевод: Профессиональный многоголосый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7872C0144039D270EBB5DE0AD472E0EFE8217F0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274770   (772828) от 24.01.2019
+
+Уилл Пэнни / Will Penny (1967) WEB-DLRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_772828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый ковбой Уилл Пенни устраивается на работу погонщиком скота, а по возвращению в свою хижину обнаруживает, что она занята незамужней женщиной с сыном-подростком.Производство: США / Paramount PicturesЖанр: Вестерн, МелодрамаРежиссер: Том ГрайзАктеры: Чарлтон Хестон, Джоан Хэккет, Дональд Плезенс, Ли Мэйджорс, Брюс Дерн, Бен Джонсон, Слим Пикенс, Клифтон Джеймс, Энтони Цербе, Рой ДженсонПеревод: Многоголосый закадровый, авторскийСубтитры: АнглийскиеПродолжительность: 01:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45167D013E75D87B6D42C29258A704D02F50BFB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014415   (772351) от 12.05.2016
+
+Жил-был полицейский / Il еtait une fois un flic... (1972) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_772351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комиссар Кампана (по легенде — брат недавно убитого мафиози) отправляется в Ниццу со спецзаданием — найти и обезвредить боссов наркокартеля. Кампана — мрачный крутой мужик, привыкший решать все вопросы кулаком и пистолетом, не любящий женщин и детей, мешающих работе.
+ Однако на этот раз руководство решило осложнить ему жизнь — вместе со своей напарницей, очаровательной (   Читать дальше...   )Производство: Италия, Франция / Gaumont International, Rizzoli Film S.p.a.Жанр: Комедия, КриминалРежиссер: Жорж ЛотнерАктеры: Мишель Константен, Мирей Дарк, Микаэль Лонсдаль, Даниэль Ивернель, Венантино Венантини, Джулиано Дисперати, Эрве Ийен, Робер Дальбан, Анри Гибе, Филлис МейджорПеревод: Дублированный, многоголосый закадровыйЯзык субтитров: Русский, английскийПродолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00A35085DBA34550CABED11036B86BD9D179E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 654949   (771946) от 25.05.2013
 
 Рюи Блаз: Опасное сходство / Ruy Blas (1947) DVDRip
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771946.jpg" />
+  <img src="Z:/picture/008/save_picture_771946.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771597.jpg" />
+  <img src="Z:/picture/008/save_picture_771597.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771585.jpg" />
+  <img src="Z:/picture/008/save_picture_771585.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771083.jpg" />
+  <img src="Z:/picture/008/save_picture_771083.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770942.jpg" />
+  <img src="Z:/picture/008/save_picture_770942.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770234.jpg" />
+  <img src="Z:/picture/008/save_picture_770234.jpg" />
 </div>
 
 
@@ -164,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770223.jpg" />
+  <img src="Z:/picture/008/save_picture_770223.jpg" />
 </div>
 
 
@@ -190,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769703.jpg" />
+  <img src="Z:/picture/008/save_picture_769703.jpg" />
 </div>
 
 
@@ -217,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769296.jpg" />
+  <img src="Z:/picture/008/save_picture_769296.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769042.jpg" />
+  <img src="Z:/picture/008/save_picture_769042.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768719.jpg" />
+  <img src="Z:/picture/008/save_picture_768719.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767477.jpg" />
+  <img src="Z:/picture/008/save_picture_767477.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767068.jpg" />
+  <img src="Z:/picture/008/save_picture_767068.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766826.jpg" />
+  <img src="Z:/picture/008/save_picture_766826.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766789.jpg" />
+  <img src="Z:/picture/008/save_picture_766789.jpg" />
 </div>
 
 
@@ -400,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766550.jpg" />
+  <img src="Z:/picture/008/save_picture_766550.jpg" />
 </div>
 
 
@@ -427,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766277.jpg" />
+  <img src="Z:/picture/008/save_picture_766277.jpg" />
 </div>
 
 
@@ -453,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766068.jpg" />
+  <img src="Z:/picture/008/save_picture_766068.jpg" />
 </div>
 
 
@@ -479,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766064.jpg" />
+  <img src="Z:/picture/008/save_picture_766064.jpg" />
 </div>
 
 
@@ -505,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765679.jpg" />
+  <img src="Z:/picture/008/save_picture_765679.jpg" />
 </div>
 
 
@@ -531,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765192.jpg" />
+  <img src="Z:/picture/008/save_picture_765192.jpg" />
 </div>
 
 
@@ -558,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765096.jpg" />
+  <img src="Z:/picture/008/save_picture_765096.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765008.jpg" />
+  <img src="Z:/picture/008/save_picture_765008.jpg" />
 </div>
 
 
@@ -597,86 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F574420078C06F13924633120180C67871AD2A9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214412   (764863) от 21.03.2018
-
-Никогда не было так мало / Never So Few (1959) WEB-DLRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бирма. Вторая Мировая война. Том Рейнольдс, командующий небольшим британско-американским соединением. Основная часть его сил составлена из местных войск кэхинов. Рейнольдса с небольшим отрядом посылают против японских позиций возле китайской границы. Там несколько его солдат попадают в засаду Националистической Китайской группы.
-После проведенной боевой операции (   Читать дальше...   )Производство: США / Canterbury Productions, Metro-Goldwyn-Mayer (MGM)Жанр: Драма, ВоенныйРежиссер: Джон СтёрджесАктеры: Фрэнк Синатра, Джина Лоллобриджида, Питер Лоуфорд, Стив МакКуин, Ричард Джонсон, Пол Хенрейд, Брайан Донлеви, Дин Джонс, Чарльз Бронсон, Филип Ан, Роберт Брэй, Кипп ХэмилтонПеревод: Авторский (Ю.Живов)Субтитры: АнглийскиеПродолжительность: 02:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA82F6A984721C0FC29A7E75D202D9F49C44203
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521625   (764344) от 03.01.2022
-
-Прекрасная американка / La belle Americaine (1961) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деятельная Полетт Периньон, жена Марселя, рабочего-металлурга, мечтающего о покупке соседского мотоцикла, видит в газете объявление о продаже американского автомобиля. Хозяйка почти новой машины просит за неё не дороже стоимости старого мотоцикла, и Марсель совершает сделку. Вот оно - cчастье! Однако с этого момента в жизни скромного пролетария начинается чёрная (   Читать дальше...   )Производство: Франция, Compagnie Commerciale Française Cinématographique (CCFC), Corflor, Le Film d'Art, Panorama FilmsЖанр: комедияРежиссер: Робер Дери, Пьер ЧернияАктеры: Альфред Адам, Колетт Броссе, Робер Бюрнье, Пьер Дак, Элиана д’Альмейда, Бернар Деран, Робер Дери, Анни Дюко, Жак Фаббри, Луи де ФюнесПеревод: дублированный, профессиональный многоголосый (ОРТ)Субтитры: нетПродолжительность: 01:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F8D4A38F7BFE6DA6AD5ACBD6343846326FFB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126083   (764234) от 19.04.2017
-
-Фотоувеличение / Blowup / Blow-Up (1966) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой — известный, талантливый молодой фотограф, прототипом которого был то ли Берт Штерн, то ли Дэвид Бейли, что скорее.
-Однажды, работая в городском парке, он случайно снимает заинтересовавшую его странную пару. А дальше… через вроде бы романтическое просвечивает вроде бы криминальное… События разворачиваются, ничего не проясняя… На сильно увеличенных кадрах (   Читать дальше...   )Производство: США, Великобритания, ИталияЖанр: триллер, драма, криминал, детективРежиссер: Микеланджело АнтониониАктеры: Дэвид Хеммингс, Ванесса Редгрейв, Сара Майлз, Питер Боулз, Джон Кастл, Джейн Биркин, Джиллиан Хиллз, Верушка фон ЛендорфПеревод: многоголосый, двухголосый x3, одноголосыйЯзык субтитров: русский x3, английскийПродолжительность: 01:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1176C2888C0596620F4445D21D9FBA5072E8CDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

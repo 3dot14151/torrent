@@ -1,4 +1,58 @@
 https://t.me/izofen
+###  Публикация: 1861203   (1062636) от 
+
+Бернард Корнуэлл | Сборник произведений [66 книг] (1997-2026) [FB2]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бернард Корнуэлл (англ. Bernard Cornwell) - Настоящее имя: Бернард Виггинс (Bernard Wiggins), родился в Лондоне 23 февраля 1944. Это был «ребёнок войны» – его отец был канадский летчик, а мать служила во вспомогательных частях ВВС. Его усыновила семья из Эссекса, принадлежавшая религиозной секте «Особые люди» (таковыми они, впрочем, и являлись). Он вырвался оттуда (   Читать дальше...   )Жанр: Проза, приключения, история, фэнтезиИздательство: РазличныеФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:820AD699DD52AF75F88F445A6EA96030D66DD26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861033   (1062525) от 
+
+Себастьян Фитцек | Собрание сочинений [28 книг] (2006-2025) [FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Собрания книг иностранных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Себастьян Фитцек — главный автор психологических триллеров в Германии и настоящий литературный феномен. Его книги мгновенно становятся бестселлерами, а сам он по праву считается мастером саспенса, способным заставить читателя сомневаться в реальности до самой последней страницы.
+
+Представьте, что ваш привычный мир — ложь, а вы — пешка в чужой жестокой игре. Герои (   Читать дальше...   )Жанр: Боевики, Детективы, ТриллерыПеревод: РазличныеЯзык: русскийИздательство: РазличныеФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6BA62A46AC9A57DD5C1031CB063D6302FD6EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859344   (1061079) от 
 
 Кэмерон Джонстон | Сборник произведений [3 книги] (2023-2026) [FB2]
@@ -7,7 +61,7 @@ https://t.me/izofen
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061079.jpg" />
+  <img src="Z:/picture/005/save_picture_1061079.jpg" />
 </div>
 
 
@@ -33,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055194.jpg" />
+  <img src="Z:/picture/005/save_picture_1055194.jpg" />
 </div>
 
 
@@ -59,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055166.jpg" />
+  <img src="Z:/picture/005/save_picture_1055166.jpg" />
 </div>
 
 
@@ -85,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054692.jpg" />
+  <img src="Z:/picture/005/save_picture_1054692.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051980.jpg" />
+  <img src="Z:/picture/005/save_picture_1051980.jpg" />
 </div>
 
 
@@ -138,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049186.jpg" />
+  <img src="Z:/picture/008/save_picture_1049186.jpg" />
 </div>
 
 
@@ -164,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048849.jpg" />
+  <img src="Z:/picture/008/save_picture_1048849.jpg" />
 </div>
 
 
@@ -191,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048170.jpg" />
+  <img src="Z:/picture/008/save_picture_1048170.jpg" />
 </div>
 
 
@@ -217,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045704.jpg" />
 </div>
 
 
@@ -243,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045159.jpg" />
 </div>
 
 
@@ -270,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041330.jpg" />
 </div>
 
 
@@ -298,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040499.jpg" />
 </div>
 
 
@@ -325,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039781.jpg" />
 </div>
 
 
@@ -351,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039702.jpg" />
 </div>
 
 
@@ -378,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037440.jpg" />
 </div>
 
 
@@ -404,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036278.jpg" />
 </div>
 
 
@@ -430,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036202.jpg" />
 </div>
 
 
@@ -456,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035709.jpg" />
 </div>
 
 
@@ -484,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035355.jpg" />
 </div>
 
 
@@ -511,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034868.jpg" />
 </div>
 
 
@@ -537,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1033410.jpg" />
 </div>
 
 
@@ -564,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1032946.jpg" />
 </div>
 
 
@@ -590,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028405.jpg" />
 </div>
 
 
@@ -617,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг иностранных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027985.jpg" />
 </div>
 
 
@@ -629,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97E9C857F4742054D9EAAE23960B4E171081F139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398780   (1027156) от 09.03.2021
-
-Энн Райс | Собрание произведений [96 книг, 12 комиксов, 1 манга] (1976 - 2021) [FB2, PDF, DOCX, EPUB, RTF] RUS, ENG [Обновляемая]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027156.jpg" />
-</div>
-
-
-###  Подробнее
-
-1941 — родилась в Новом Орлеане и получила при рождении имя “Говард Аллен О’Брайен” – мать считала, что если дать дочери мужское имя, то это ей сильно поможет в будущем. Испытать это суеверие на практике не довелось, так как с первого дня учебы в школе 6-летняя девочка заставила всех называть себя “Энн” – только «Энн».
-1956 – умирает мать – алкоголичка и ревностная (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Мистика, О вампирахФормат: FB2, PDF, DOCX, EPUB, RTF, CBR, CBZ, TXT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A8DF61D9E9046A7FC7BA97D8E4D54D5CD74A1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438904   (1026862) от 11.03.2021
-
-Брайан Смит | Собрание произведений [12 книг] (2010 - 2021) [FB2] [Обновляемая]
-
->>Художественная литература
->>Собрания книг иностранных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Ноя пошла под откос еще до того, как из-за вспышки неизвестного вируса человечество оказалось на пороге исчезновения. Неожиданная встреча с давно потерянной сестрой заставляет героя столкнуться лицом к лицу с призраками прошлого и последствиями тяжелой зависимости. Путешествуя по вымершим дорогам когда-то цветущего мира, Ной пытается отыскать утраченную возлюбленную, (   Читать дальше...   )Жанр: Фантастика, Мистика, Триллер, Сплаттерпанк, УжасыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B0D7B55A06742433C931A63818014608E4C84CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

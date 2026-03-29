@@ -1,3 +1,61 @@
+###  Публикация: 1194389   (59241) от 19.04.2024
+
+Demon - 14 albums, 28 CD (1981-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard'n'Heavy, NWOBHM>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Типичный представитель новой волны британского тяжелого металла, недооцененная группа "Demon" была основана в 1980 году в английском городишке Сток-он-Трент. Зачинателями команды стали бывшие участники "Iron cross" вокалист Дэйв Хилл и гитарист Мэл Спунер. Компанию им составили гитарист из "Hunter" Лес Хант, басист Пол Райли и ударник (   Читать дальше...   )--------------------------
+
+01. Hyperactive (Welcome To The New World) (4:44)
+02. Old England Eyes (5:19)(   Читать дальше...   )Жанр: Hard'n'Heavy, NWOBHM |Продолжительность: 26:23:16 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACC0988835AC8697823D3A980B0AC64940B6F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721367   (57297) от 07.05.2024
+
+XYZ - Take What You Can... Live (1997) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggie
+02. Take What You Can
+03. Come On 'N Love Me
+04. What Keeps Me Lovin' You(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05080B626D7F1729949CA418BC7A3FC193EA9B40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722535   (56869) от 11.05.2024
 
 Babylon A.D. - Rome Wasn't Built In A Day (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -6,7 +64,7 @@ Babylon A.D. - Rome Wasn't Built In A Day (2024) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56869.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Def Leppard - 25 albums, 11 Singles, 8 Box sets, 124 CD (1980-2024) [FLAC|Lossle
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56222.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Praying Mantis - 18 albums, 23CD (1981-2024) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55972.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Audio Reign - The Perfect Sea (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, P
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55935.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55935.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Slash - 11 albums, 14 CD (1995-2024) [FLAC|Lossless|image + .cue | tracks + .cue
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55039.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Laura Cox Band - 3 albums (2017-2023) [FLAC|Lossless|image + .cue | tracks + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54594.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Paralandra - The Body Electric (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54257.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Black Sabbath - Anno Domini (1989-1995) Reissue, Remastered, 2024, BMG [FLAC|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54186.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Magic Hat - Get Off My Lawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53616.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Cactus - Temple Of Blues - Influences & Friends (2024) [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53608.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Deep Purple - Pictures of You (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53538.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Black Country Communion - V (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53410.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53304.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Led Zeppelin - Remasters (1990) Japanese Edition, 2 x CD, Compilation, Reissue, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53006.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Magnum | Bob Catley | Hard Rain - 39 albums, 68 CD (1978-2024) [FLAC|Lossless|im
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52551.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Axel Rudi Pell - 43 albums, 54 CD (1984-2024) [FLAC|Lossless|image + .cue] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52550.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Robert Plant - Higher Rock (A Robert Plant Compilation) (2025) [FLAC|Lossless|tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52270.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Led Zeppelin - Live EP (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52060.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Motorhead (Lemmy, Phil Campbell And The Bastard Sons) - 85 albums, 3 Box Set, 16
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51989.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Deep Purple - Lazy Sod (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50773.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Black Sabbath - Anno Domini (1989-1995) Reissue, Remastered, 2024, Warner Record
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50771.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Mr. Big - Ten (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_50337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_50337.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Mr.Big - Ten (2024) [FLAC|Lossless|image + .cue] <Hard Rock, Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49922.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ TKO - Total Knock Out: The Complete TKO (2024) 5CD Boxed set [FLAC|Lossless|WEB-
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49721.jpg" />
 </div>
 
 
@@ -688,64 +746,6 @@ https://www.metal-archives.com/albums/TKO/Total_Knock_Out_-_The_Complete_TKO/123
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C8B55A89C9393DEA07DF53D48B2A4D8554E7CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737550   (49654) от 18.07.2024
-
-Deep Purple - =1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Show Me
-02. A Bit on the Side
-03. Sharp Shooter
-04. Portable Door(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B2FAD747E951B7002C07E78985753DA1C43316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737628   (49608) от 18.07.2024
-
-Falcon Trails - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fastlane (3:32)
-02. Feel (4:16)
-03. The Way We Want (4:28)
-04. Soul Satisfaction (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5794D622875E56C8E47D339B737763A4199FEDBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

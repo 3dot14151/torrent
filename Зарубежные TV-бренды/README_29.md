@@ -1,3 +1,107 @@
+###  Публикация: 1206677   (779880) от 22.02.2018
+
+History Channel: Убийца Зодиак: дело закрыто? / The Hunt for the Zodiac Killer (2017) HDTV [H.264/1080i-LQ] (сезон 1, серии 1-3) (обновляемая)
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_779880.jpg" />
+</div>
+
+
+###  Подробнее
+
+О новом расследовании нераскрытого дела таинственного серийного убийцы по прозвищу Зодиак. Удастся ли прочитать его закодированные записки, в которых он зашифровал сведения о себе? Уже есть главный подозреваемый.Производство: США, Karga Seven Pictures for History Channel, A&E NetworkЖанр: Документальный, Реальное ТВПеревод: Двуголосый закадровый, профессиональныйПродолжительность: эпизоды по ~00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA05D24BDE78689FCFDB49FE8640A19CA3FAB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208892   (779623) от 24.02.2018
+
+NG: Самурайский лук / Samurai Bow (2009) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнайте историю японского лука. Созданный более 1000 лет назад и бывший оружием самураев, он по-прежнему остается эффективным боевым средством.Производство: США, Attention! films / Parthenon EntertainmentЖанр: Документальный, история, религияРежиссер: Джон Вейт, Ян МарчПеревод: Одноголосый закадровый, профессиональный (АРК ТВ)Субтитры: отсутствуютПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E7397143E96BB7B4A7435EECEAFE9EB0B486AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209123   (779467) от 25.02.2018
+
+NGW: Дикая природа Китая / China's wild side (2017) WEB-DLRip [H.264/720p-LQ] (Серии 1-2 из 2) [PR]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_779467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Королевство дикой природы Китая, от его снежных вершин до плотного тропического леса в низине, стало домом для множества разнообразных животных. Зрители увидят практически неизвестную, дикую природу в двух уникальных его регионах - в Тибете и в провинции Юньнань.Производство: Новая Зеландия, National Geographic Partners, LLC.Жанр: Документальный, фауна, флораРежиссер: Лорни ТаунендПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:42:47+00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9EC25293BD0731E19D78411764C334CE27C706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209462   (779249) от 27.02.2018
+
+NGW: Человек среди гепардов / Man among cheetahs (2017) HDTV [H.264/1080i-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боб Пул, кинооператор, снимающий дикую природу, путешествует по суровому для жизни и живописному уголку Кении, чтобы снять на пленку редкие моменты из жизни самых быстрых в мире хищников.Производство: США, National GeographicЖанр: Документальный, фаунаРежиссер: Джеймс МэнфуллПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FE441D3BEBD510F4AAA6F94F9518295EBC2CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209492   (779232) от 27.02.2018
 
 NGW: Самый знаменитый в мире тигр / The world's most famous tiger (2017) HDTV [H.264/1080i-LQ]
@@ -6,7 +110,7 @@ NGW: Самый знаменитый в мире тигр / The world's most fam
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779232.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ NGW: Чудо-гепард / The miracle cheetah (2017) HDTV [H.264/1080i-LQ]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779224.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NGW: Пингвинопалуза / Penguin palooza (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778838.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778819.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ NGW: Ужас тигровой акулы / Tiger shark terror (2017) HDTVRip
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778669.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778506.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ NGW: Год диких животных: Сибирь / Siberia's wild year (201
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778485.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ BBC. Сокровища Инда / Treasures of the Indus (2014) HDTV  [H.264/10
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778083.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ Nat Geo Wild: Фантастические существа Мадагаскар
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778065.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778065.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ Discovery. Ледяное золото / Ice Cold Gold (2014) HDTVRip [H.264/108
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777433.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ BBC: Венера без прикрас / Venus Uncovered: Ancient Goddess of Lo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777113.jpg" />
+  <img src="Z:/picture/008/save_picture_777113.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ Discovery: Курс выживания с Беаром Гриллсом / Bear G
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777088.jpg" />
+  <img src="Z:/picture/008/save_picture_777088.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777042.jpg" />
+  <img src="Z:/picture/008/save_picture_777042.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Discovery. Секреты подземелья / Secrets of the Underground (201
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776989.jpg" />
+  <img src="Z:/picture/008/save_picture_776989.jpg" />
 </div>
 
 
@@ -371,7 +475,7 @@ NG: Инстинкт выживания. Моря-убийцы / Primal survivor
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776716.jpg" />
+  <img src="Z:/picture/008/save_picture_776716.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NG: Инстинкт выживания / Primal Survivor (2017) WEBRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776343.jpg" />
+  <img src="Z:/picture/008/save_picture_776343.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ NG: Инстинкт выживания / Primal Survivor (2015) SATRip (Сез�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776339.jpg" />
+  <img src="Z:/picture/008/save_picture_776339.jpg" />
 </div>
 
 
@@ -449,7 +553,7 @@ NG: Тайны корабля-сокровищницы династии Тан /
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775733.jpg" />
+  <img src="Z:/picture/008/save_picture_775733.jpg" />
 </div>
 
 
@@ -475,7 +579,7 @@ NGW: Спасение слонёнка / Baby Elephant Rescue (2018) HDTV [H.264
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775088.jpg" />
+  <img src="Z:/picture/008/save_picture_775088.jpg" />
 </div>
 
 
@@ -501,7 +605,7 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774937.jpg" />
+  <img src="Z:/picture/008/save_picture_774937.jpg" />
 </div>
 
 
@@ -527,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774935.jpg" />
+  <img src="Z:/picture/008/save_picture_774935.jpg" />
 </div>
 
 
@@ -553,7 +657,7 @@ NGW: Рожденные в Африке. Опасная игровая площ�
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774233.jpg" />
+  <img src="Z:/picture/008/save_picture_774233.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ NGW: Рожденные в Африке. Опасная игровая площ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8DE9424BC37A3492DFFB6CA06782239648D881F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278021   (774226) от 23.01.2019
-
-NG: C точки зрения науки: Вымирание человечества / Naked Science: Wipepout (2006) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш мир изобилует разнообразием форм жизни: от простейших одноклеточных существ до, собственно, человека. А теперь представьте себе мир, утопающий в смертоносных газах, иссушаемый аномальной жарой, разрушаемый фатальными спадами температур под пронизывающими космическими излучениями. Мир, на который падают астероиды, разрушаемые высокотемпературными ударными волнами. (   Читать дальше...   )Производство: США, National Geographic, Pioneer Productions, Steadfast TelevisionЖанр: Документальный, познавательный, научно-популярныйРежиссер: Рабиндер МинхасПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C95418717F013F9A9D730A12548CCD734EBDD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212839   (774212) от 14.03.2018
-
-History Channel: Автомобильная нация / Car Nation (2017) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>History Channel
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история про отношения Америки с автомобилями. Последние 50 лет Америка была движущей силой автомобильных новшеств. Машина отражает твою сущность. Все мечтают о лучшей, чем у соседа тачке. Многие из этих машин представляют Америку. Хамви символизировал силу и мощь Америки, и это продавалось. От попкультуры (эту тачку знали по шоу), до любви к технологиям. К Пинто (   Читать дальше...   )Телекомпания: США, History ChanelЖанр: Документальный, историяПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A1B650F9BDEBA358EAE02859B6A071AD556B82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277990   (774150) от 23.01.2019
-
-NGW: Дикая Корея. За границей / Wild Korea. Voice of nature (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774150.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение тысячелетий Корея славилась удивительной красотой своей природы. Сейчас она более известна своими длящимися уже десятилетия конфликтами, но даже несмотря на шрамы, которые оставила природе война, а также различные оборонительные сооружения, она остается поразительно красивой страной с необычным животным миром.Производство: США, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Джеймс РидПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DFF31C13CB4A83CF7F4F9AC09EC1E339C91E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277962   (774146) от 23.01.2019
-
-Animal Planet: Знакомство с пингвинами / Meet the Penguins (2017) HDTV [H.264/1080i-LQ] (серии 1-8)
-
->>Зарубежные TV-бренды
->>Animal Planet
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ о работе Фонда реабилитации морских птиц SANCCOB, который находится в столице ЮАР Кейптауне. Преданные своему делу сотрудники Фонда изо дня в день спасают жизнь пингвинам. Благодаря команде ветеринаров и волонтеров ежегодно удается выходить и вылечить около 1500 птиц. А поскольку в лечебном центре Фонда обитают самые шумные жители Кейптауна, тихих дней здесь (   Читать дальше...   )Производство: ЮАР, Animal PlanetЖанр: Документальный, природа, фаунаРежиссер: Ребекка ВаллисПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: серии x ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADDBA379084B6975369453A2F8047745C39CE07
 ```
 
 https://mybot314.ru/tekegram_catalog/

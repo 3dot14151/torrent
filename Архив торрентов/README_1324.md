@@ -6,7 +6,7 @@ Soft4Boost Toolbar Cleaner 4.5.5.297 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755732.jpg" />
+  <img src="Z:/picture/008/save_picture_755732.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755730.jpg" />
+  <img src="Z:/picture/008/save_picture_755730.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ oCam Screen Recorder 270.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755727.jpg" />
+  <img src="Z:/picture/008/save_picture_755727.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SAS: Secure Tomorrow / SAS: На страже будущего [Ru] (RePack) 200
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755713.jpg" />
+  <img src="Z:/picture/008/save_picture_755713.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Soft4Boost Document Converter 4.4.7.335 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755682.jpg" />
+  <img src="Z:/picture/008/save_picture_755682.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755681.jpg" />
+  <img src="Z:/picture/008/save_picture_755681.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Soft4Boost Any Audio Record 4.9.5.393 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755680.jpg" />
+  <img src="Z:/picture/008/save_picture_755680.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Soft4Boost AMPlayer 3.8.1.283 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755679.jpg" />
+  <img src="Z:/picture/008/save_picture_755679.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Soft4Boost Update Checker 6.7.3.333 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755674.jpg" />
+  <img src="Z:/picture/008/save_picture_755674.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755673.jpg" />
+  <img src="Z:/picture/005/save_picture_755673.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Top Girls And Cars HD 0.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755670.jpg" />
+  <img src="Z:/picture/008/save_picture_755670.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Top Girls And Moto HD 0.1 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755667.jpg" />
+  <img src="Z:/picture/008/save_picture_755667.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Guru's Jazzmatazz - 5 Albums + 2 Compilations + 2 Remixes (1993-2015) [MP3|320 �
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755623.jpg" />
+  <img src="Z:/picture/008/save_picture_755623.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ LibreOffice 5.1.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755617.jpg" />
+  <img src="Z:/picture/008/save_picture_755617.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755615.jpg" />
+  <img src="Z:/picture/008/save_picture_755615.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Internet Download Manager 6.25 Build 18 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755611.jpg" />
+  <img src="Z:/picture/008/save_picture_755611.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755608.jpg" />
+  <img src="Z:/picture/008/save_picture_755608.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_755607.jpg" />
+  <img src="Z:/picture/005/save_picture_755607.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755602.jpg" />
+  <img src="Z:/picture/008/save_picture_755602.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755596.jpg" />
+  <img src="Z:/picture/008/save_picture_755596.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755574.jpg" />
+  <img src="Z:/picture/008/save_picture_755574.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ WiFi Explorer 2.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755526.jpg" />
+  <img src="Z:/picture/008/save_picture_755526.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755525.jpg" />
+  <img src="Z:/picture/008/save_picture_755525.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Vyomy Gallery v1.5.8 Ad-Free [Ru/Multi] - Фото- и видео-галерея
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755520.jpg" />
+  <img src="Z:/picture/008/save_picture_755520.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755518.jpg" />
+  <img src="Z:/picture/008/save_picture_755518.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755515.jpg" />
+  <img src="Z:/picture/008/save_picture_755515.jpg" />
 </div>
 
 

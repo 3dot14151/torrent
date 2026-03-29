@@ -6,7 +6,7 @@ VA - NOW Reggae Classics (2020) [MP3|320 Kbps] <Reggae>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842801.jpg" />
+  <img src="Z:/picture/008/save_picture_842801.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840841.jpg" />
+  <img src="Z:/picture/008/save_picture_840841.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840836.jpg" />
+  <img src="Z:/picture/008/save_picture_840836.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Krec - Обелиск16 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839526.jpg" />
+  <img src="Z:/picture/008/save_picture_839526.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839458.jpg" />
+  <img src="Z:/picture/008/save_picture_839458.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ Lord - Перемены (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836392.jpg" />
+  <img src="Z:/picture/008/save_picture_836392.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Xzibit - Greatest Hits (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hip-Hop
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836096.jpg" />
+  <img src="Z:/picture/008/save_picture_836096.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ Drake - Dark Lane Demo Tapes (2020) Mixtapes [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835900.jpg" />
+  <img src="Z:/picture/008/save_picture_835900.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Jahmal TGK - Неваляшка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834988.jpg" />
+  <img src="Z:/picture/008/save_picture_834988.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Brick Bazuka - Я и Мой Демон (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834436.jpg" />
+  <img src="Z:/picture/008/save_picture_834436.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833863.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ VA - NOW Reggae Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Reggae, R&B>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832942.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Jillzay - Open Season (2017) EP [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829871.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Guf & Murovei - Дом, который построил Алик (2020) [MP3|320
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829296.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826895.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821070.jpg" />
+  <img src="Z:/picture/008/save_picture_821070.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Drake - More Life (2017) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820441.jpg" />
+  <img src="Z:/picture/008/save_picture_820441.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Atmosphere - WORD? (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819489.jpg" />
+  <img src="Z:/picture/008/save_picture_819489.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Lil Nas X - Montero (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Pop Rap, Trap
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819399.jpg" />
+  <img src="Z:/picture/008/save_picture_819399.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ ATL - Лимб (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818551.jpg" />
+  <img src="Z:/picture/008/save_picture_818551.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ L'One - Концерт с симфоническим оркестром (2018) [
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811772.jpg" />
+  <img src="Z:/picture/008/save_picture_811772.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ NIGXNIZ - INFRA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810244.jpg" />
+  <img src="Z:/picture/008/save_picture_810244.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810240.jpg" />
+  <img src="Z:/picture/008/save_picture_810240.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Archi - Не спасти не сохранить (2020) [MP3|320 Kbps] <Rap, Hi
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810239.jpg" />
+  <img src="Z:/picture/008/save_picture_810239.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810114.jpg" />
+  <img src="Z:/picture/008/save_picture_810114.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Tanir & Tyomcha - До мурашек (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810110.jpg" />
+  <img src="Z:/picture/008/save_picture_810110.jpg" />
 </div>
 
 

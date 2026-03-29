@@ -6,7 +6,7 @@ AIMP 4.13 Build 1887 DC 19.02.2017 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870911.jpg" />
+  <img src="Z:/picture/008/save_picture_870911.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Light Alloy 4.9.3 Build 2538 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870906.jpg" />
+  <img src="Z:/picture/008/save_picture_870906.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Alcohol 120% 2.0.3 Build 9811 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870902.jpg" />
+  <img src="Z:/picture/008/save_picture_870902.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Skype 7.33.0.104 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870898.jpg" />
+  <img src="Z:/picture/008/save_picture_870898.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ FastStone Capture 9.7 RePack & Portable by  by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870822.jpg" />
+  <img src="Z:/picture/008/save_picture_870822.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5215.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870817.jpg" />
+  <img src="Z:/picture/008/save_picture_870817.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ CoolUtils Total Audio Converter 5.2.0.152 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870806.jpg" />
+  <img src="Z:/picture/008/save_picture_870806.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ R-Studio Network Edition 8.13 build 176093 RePack (& Portable) by elchupacabra [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870765.jpg" />
+  <img src="Z:/picture/008/save_picture_870765.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ MediaHuman YouTube Downloader 3.9.9.35 (0604) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870758.jpg" />
+  <img src="Z:/picture/008/save_picture_870758.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870755.jpg" />
+  <img src="Z:/picture/008/save_picture_870755.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Total Uninstall Pro 5.9.2 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870715.jpg" />
+  <img src="Z:/picture/008/save_picture_870715.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VirusBuster Professional 32/64bit 7.0.52 [multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870709.jpg" />
+  <img src="Z:/picture/008/save_picture_870709.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Wondershare UniConverter 11.7.4.2 Repack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870678.jpg" />
+  <img src="Z:/picture/008/save_picture_870678.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Kinza Browser 6.2.0 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870677.jpg" />
+  <img src="Z:/picture/008/save_picture_870677.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Complete Internet Repair 5.2.3.4066 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870666.jpg" />
+  <img src="Z:/picture/008/save_picture_870666.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ CCleaner Browser 80.0.3765.152 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870599.jpg" />
+  <img src="Z:/picture/008/save_picture_870599.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ HiBit Uninstaller 2.3.50 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870518.jpg" />
+  <img src="Z:/picture/008/save_picture_870518.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ TeamViewer Free 15.4.8332 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870510.jpg" />
+  <img src="Z:/picture/008/save_picture_870510.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ BitTorrent 7.10.5 (build 45597) Portable by SanLex (Pro) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870504.jpg" />
+  <img src="Z:/picture/008/save_picture_870504.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ OEM Info Updater 9.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870434.jpg" />
+  <img src="Z:/picture/008/save_picture_870434.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ XMedia Recode 3.3.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870318.jpg" />
+  <img src="Z:/picture/008/save_picture_870318.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ oCam Screen Recorder 240.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870311.jpg" />
+  <img src="Z:/picture/008/save_picture_870311.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ QuickTextPaste 3.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870307.jpg" />
+  <img src="Z:/picture/008/save_picture_870307.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ USDownloader 1.3.5.9 Portable (19.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870306.jpg" />
+  <img src="Z:/picture/008/save_picture_870306.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ ICQ 10.0 build 12015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870267.jpg" />
+  <img src="Z:/picture/008/save_picture_870267.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ XYplorer 16.50.0200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870202.jpg" />
+  <img src="Z:/picture/008/save_picture_870202.jpg" />
 </div>
 
 

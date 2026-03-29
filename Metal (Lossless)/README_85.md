@@ -1,3 +1,90 @@
+###  Публикация: 1207429   (780439) от 19.02.2018
+
+Nightstryke - Power Shall Prevail (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Powerture
+02. Power Shall Prevail
+03. Hawk of the Night
+04. Steel Thunder(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27EF96C5ACAC5B72466004A1E9A881FEF8CD86A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207366   (780438) от 19.02.2018
+
+The Art of Mankind - Distant Light (2018) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is My Vengeance
+02. Prisoners of the Sun
+03. The Pretenders
+04. Burning Cradle(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0250396C1DD0F78FFCB17D886AE06117987DE99F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207425   (780437) от 19.02.2018
+
+Taake - Kong Vinter (2017) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_780437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sverdets vei
+02. Inntrenger
+03. Huset i havet
+04. Havet i huset(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4831AFDD0C5C9D59D9CE57AD7AD0B32D419FA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207486   (780435) от 19.02.2018
 
 Milking The Goatmachine - Goatgrind (2015) [APE|Lossless|image + .cue] <Grindcore>
@@ -6,7 +93,7 @@ Milking The Goatmachine - Goatgrind (2015) [APE|Lossless|image + .cue] <Grindcor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780435.jpg" />
+  <img src="Z:/picture/008/save_picture_780435.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Abstract Spirit - Tragedy and Weeds (2009) [FLAC|Lossless|image + .cue] <Funeral
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780433.jpg" />
+  <img src="Z:/picture/008/save_picture_780433.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Snakeyes - Metal Monster (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780428.jpg" />
+  <img src="Z:/picture/008/save_picture_780428.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ VA - Shock Rock Hellions - A Tribute To W.A.S.P. (2006) [FLAC|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780414.jpg" />
+  <img src="Z:/picture/008/save_picture_780414.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Heavatar - Opus II - The Annihilation (2018) [FLAC|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780382.jpg" />
+  <img src="Z:/picture/008/save_picture_780382.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Visions of Atlantis - The Deep & the Dark (2018) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780270.jpg" />
+  <img src="Z:/picture/008/save_picture_780270.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Funeral Winds - Koude Haat (2004) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780001.jpg" />
+  <img src="Z:/picture/008/save_picture_780001.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Thornesbreed - The Splendour Of The Repellent (2003) [APE|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780000.jpg" />
+  <img src="Z:/picture/008/save_picture_780000.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Sadauk - A New Dawn (2017) [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779995.jpg" />
+  <img src="Z:/picture/008/save_picture_779995.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ VA - The Realm of Napalm Records Vol.III (2012) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779993.jpg" />
+  <img src="Z:/picture/008/save_picture_779993.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Death Angel - Relentless Retribution (2010) Japanese Ed., Reissued, 2015 [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779988.jpg" />
+  <img src="Z:/picture/008/save_picture_779988.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Royal Hunt - Cast In Stone (2018) Japanesse Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779961.jpg" />
+  <img src="Z:/picture/008/save_picture_779961.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Patrick Rondat - On The Edge (1999) [APE|Lossless|image + .cue] <Neoclassical Sh
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779404.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779404.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Frantic Amber - Burning Insight (2015) Reissued, 2017 [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779143.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Angra - OMNI (ØMNI) (2018) [FLAC|Lossless|image + .cue] <Progressive Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779134.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Abigor - Hollenzwang (Chronicles of Perdition) (2018) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778553.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778553.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Exodus - Bonded By Thrash (2017) 2CD Bootleg [FLAC|Lossless|image + .cue] <Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778541.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Sunrise - Absolute Clarity (2016) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778375.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Midnight Eternal - Midnight Eternal (2016) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777637.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ F. Roses - The Prologue Of Mythology (2012) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777276.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Letzte Instаnz - Morgenlаnd (2018) [FLAC|Lossless|image + .cue] <Folk Metal, N
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777273.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Rob Zombie - The Electric Warlock Acid Witch Satanic Orgy Celebration Dispenser 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777223.jpg" />
+  <img src="Z:/picture/008/save_picture_777223.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Kadaverdisciplin - Death Supremacy (2017) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776577.jpg" />
+  <img src="Z:/picture/008/save_picture_776577.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Kadaverdisciplin - Death Supremacy (2017) [FLAC|Lossless|image + .cue] <Black Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D9444EE7791E06B46253765B01BAA5DF96F9D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212193   (776555) от 10.03.2018
-
-Lady Beast - II (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Metal Destiny (04:38)
-02. We Are The Witches (04:17)
-03. Bind The Runes (04:31)
-04. Caged Fury (03:25)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7D16FCEE5B1E9A6F376AC38C2475C3248715866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212000   (776550) от 10.03.2018
-
-Bloodhunter - The End of Faith (2017) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Forbidden Zone
-02. The End of Faith
-03. Eyes Wide Open
-04. Still Standing Up(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B893CCDA67BA326B21692A04D59023D772A3C143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212002   (776549) от 10.03.2018
-
-Defecto - Nemesis (2017) Japan, Reissued, 2018 [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final Night of Silence
-02. Nemesis
-03. Endlessly Falling
-04. Savage(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE70865EFBFD33E0BC60BBF705A66ED0D8E8E2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1072658   (345212) от 16.11.2016
+
+Пауло Коэльо | Мата Хари. Шпионка (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_345212.jpg" />
+</div>
+
+
+###  Подробнее
+
+От детства в маленьком голландском городке и брака с алкоголиком на Яве – к покорению Парижа, куда Мата Хари приехала без денег и где вскоре приобрела славу одной из самых элегантных женщин эпохи, – всю жизнь Мата Хари следовала своей правде, всегда была честна с собой и свободна от предрассудков и шаблонных истин. Она дорого за это заплатила. Пауло Коэльо с блистательным (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 03:24:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA9FBE8668CAAD8AD6FA4EAE559E6F3DC50CBD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179559   (344567) от 02.11.2017
+
+Дэвид Митчелл | Лужок Черного Лебедя (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_344567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Митчелл вновь удивляет читателя. Роман «Лужок Чёрного Лебедя» отличается от всех его романов. Эта книга наполнена аллюзиями на все значительные произведения мировой литературы и все же стоит особняком. И прежде всего потому, что главный герой, Джейсон Тейлор, мальчик, тайком пишущий стихи и борющийся с заиканием, хотя и напоминает нам героев Сэлинджера, Брэдбери, (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2739CAA4EDCAFF941000B047A76797BCDAC8AB24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418663   (344554) от 26.10.2020
 
 Дмитрий Чурсин | Домой (2020) [MP3]
@@ -6,7 +58,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344554.jpg" />
+  <img src="Z:/picture/008/save_picture_344554.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343515.jpg" />
+  <img src="Z:/picture/008/save_picture_343515.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343044.jpg" />
+  <img src="Z:/picture/008/save_picture_343044.jpg" />
 </div>
 
 
@@ -88,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343040.jpg" />
+  <img src="Z:/picture/008/save_picture_343040.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342408.jpg" />
+  <img src="Z:/picture/008/save_picture_342408.jpg" />
 </div>
 
 
@@ -140,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342304.jpg" />
+  <img src="Z:/picture/008/save_picture_342304.jpg" />
 </div>
 
 
@@ -168,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342295.jpg" />
+  <img src="Z:/picture/008/save_picture_342295.jpg" />
 </div>
 
 
@@ -196,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341687.jpg" />
+  <img src="Z:/picture/008/save_picture_341687.jpg" />
 </div>
 
 
@@ -223,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341299.jpg" />
+  <img src="Z:/picture/008/save_picture_341299.jpg" />
 </div>
 
 
@@ -249,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341200.jpg" />
+  <img src="Z:/picture/008/save_picture_341200.jpg" />
 </div>
 
 
@@ -276,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341012.jpg" />
+  <img src="Z:/picture/008/save_picture_341012.jpg" />
 </div>
 
 
@@ -305,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340353.jpg" />
+  <img src="Z:/picture/008/save_picture_340353.jpg" />
 </div>
 
 
@@ -331,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339104.jpg" />
+  <img src="Z:/picture/008/save_picture_339104.jpg" />
 </div>
 
 
@@ -357,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339094.jpg" />
+  <img src="Z:/picture/008/save_picture_339094.jpg" />
 </div>
 
 
@@ -383,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337680.jpg" />
+  <img src="Z:/picture/008/save_picture_337680.jpg" />
 </div>
 
 
@@ -409,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336729.jpg" />
+  <img src="Z:/picture/008/save_picture_336729.jpg" />
 </div>
 
 
@@ -435,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336722.jpg" />
+  <img src="Z:/picture/008/save_picture_336722.jpg" />
 </div>
 
 
@@ -461,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335936.jpg" />
+  <img src="Z:/picture/008/save_picture_335936.jpg" />
 </div>
 
 
@@ -487,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335808.jpg" />
+  <img src="Z:/picture/008/save_picture_335808.jpg" />
 </div>
 
 
@@ -515,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335736.jpg" />
+  <img src="Z:/picture/008/save_picture_335736.jpg" />
 </div>
 
 
@@ -541,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335626.jpg" />
+  <img src="Z:/picture/008/save_picture_335626.jpg" />
 </div>
 
 
@@ -568,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335600.jpg" />
+  <img src="Z:/picture/008/save_picture_335600.jpg" />
 </div>
 
 
@@ -594,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335598.jpg" />
+  <img src="Z:/picture/008/save_picture_335598.jpg" />
 </div>
 
 
@@ -620,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334986.jpg" />
+  <img src="Z:/picture/008/save_picture_334986.jpg" />
 </div>
 
 
@@ -631,59 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0ED12D6EE9C5A41F1C4BCD3C16A3F8F360F0CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331005   (334851) от 13.10.2019
-
-Дмитрий Липскеров | О нем и о бабочках (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой нового романа «О нем и о бабочках» попадает в очень деликатную и абсолютно гоголевскую ситуацию. Именно с нее начинаются события, переворачивающие весь мир, в котором плутоватые и мудрые персонажи, ангелы и обыкновенные люди, плетут судьбу мироздания.
-Дмитрий Липскеров – автор более 25 прозаических произведений, среди которых романы «Сорок лет Чанчжоэ» (шорт-лист (   Читать дальше...   )Жанр: Современная русская литератураПродолжительность: 12:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA00B2EC54000494BDFCAA6E0EF34C91EEA671D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331056   (334666) от 13.10.2019
-
-Цыпкин Александр | Девочка, которая всегда смеялась последней (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые лирическо-хулиганские рассказы от автора проекта «БеспринцЫпные Чтения». Александр Цыпкин – автор бестселлеров «Дом до свиданий», «Женщины непреклонного возраста», общим тиражом более 200 000 экземпляров. Его рассказы по всему миру со сцены читают: Сергей Бурунов, Максим Виторган, Сергей Гармаш, Михаил Горевой, Ингеборга Дапкунайте, Виктория Исакова, Данила (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 04:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50BD50177E1C58A29FB7FF798A3DD6F7AB0D52CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

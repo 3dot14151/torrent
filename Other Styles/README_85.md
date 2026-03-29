@@ -1,3 +1,61 @@
+###  Публикация: 1297558   (603082) от 24.04.2019
+
+Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (My World) (2:18)
+02. Arrival of the Jelly Bubbles (4:25)
+03. Bb's Nest Building (2:32)
+04. Bb's Working Their Magic (2:41)(   Читать дальше...   )Жанр: New age, WorldПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595DD704F5D8198D3ED3B18D1FA6E81A8EF67620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297778   (603075) от 24.04.2019
+
+Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_603075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loitsu (5:33)
+02. Valoa (3:36)
+03. Marian rukous (6:26)
+04. Aiti Maa (4:32)(   Читать дальше...   )Жанр: New age, World Music, EthnoПродолжительность: 00:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6F6FED079CDA1A55FD87F0C387D0641DD42C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297861   (602652) от 25.04.2019
 
 Message To Bears - Departures (2009) [FLAC|Lossless|tracks + .cue] <Ambient, Instrumental, Acoustic>
@@ -6,7 +64,7 @@ Message To Bears - Departures (2009) [FLAC|Lossless|tracks + .cue] <Ambient, Ins
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602652.jpg" />
+  <img src="Z:/picture/008/save_picture_602652.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VSOP Vienna Symphonic Orchestra Project - 7 (1996) [FLAC|Lossless|image + .cue] 
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602644.jpg" />
+  <img src="Z:/picture/008/save_picture_602644.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Lynn Tredeau - Shifting Sands (2017) [MP3|320 Kbps] <New Age, Piano, Instrumenta
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602539.jpg" />
+  <img src="Z:/picture/008/save_picture_602539.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Lynn Tredeau - Shifting Sands (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602538.jpg" />
+  <img src="Z:/picture/008/save_picture_602538.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Edelis - Sensation of the World (2009) Rerecorded Version, 2017, ROMAN Music Rec
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602518.jpg" />
+  <img src="Z:/picture/008/save_picture_602518.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Dolly Parton - The Real... Dolly Parton (The Ultimate Collection) (2013) 3CD [FL
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602505.jpg" />
+  <img src="Z:/picture/008/save_picture_602505.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Empire Of Love - Mysterious I-II (2016-2017) [FLAC|Lossless|WEB|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602487.jpg" />
+  <img src="Z:/picture/008/save_picture_602487.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Sax & Sex Collection (1995)(10CD)[FLAC|Lossless|tracks + .cue] <Smooth Jazz
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602365.jpg" />
+  <img src="Z:/picture/008/save_picture_602365.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Deadpool 2 / Дэдпул 2 (2018) [MP3|320 Kbps] <Pop, Rap, Electronic>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602223.jpg" />
+  <img src="Z:/picture/008/save_picture_602223.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Alan Silvestri - Avengers: Endgame / Мстители: Финал (Original Moti
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602127.jpg" />
+  <img src="Z:/picture/008/save_picture_602127.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Angelight - Четыре ветра (2006) [FLAC|Lossless|tracks + .cue] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601876.jpg" />
+  <img src="Z:/picture/008/save_picture_601876.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ DBUK - Songs Nine Through Sixteen (2019) [FLAC|Lossless|tracks + .cue] <Folk, Am
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601755.jpg" />
+  <img src="Z:/picture/008/save_picture_601755.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король м
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601750.jpg" />
+  <img src="Z:/picture/008/save_picture_601750.jpg" />
 </div>
 
 
@@ -381,7 +439,7 @@ Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король м
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601735.jpg" />
+  <img src="Z:/picture/008/save_picture_601735.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ VA - Игра престолов / For The Throne (Music Inspired by the HBO Ser
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601683.jpg" />
+  <img src="Z:/picture/008/save_picture_601683.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ Deva Premal & Miten with Manose - Songs For The Sangha (2015) [MP3|320 кб/с]<
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601149.jpg" />
+  <img src="Z:/picture/008/save_picture_601149.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ VA - Golden Cinema Hits (2006) [FLAC|image + .cue]<Soundtrack>
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601132.jpg" />
+  <img src="Z:/picture/008/save_picture_601132.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ Faun - Pagan (2022) [FLAC|Lossless|WEB-DL|tracks] <Medieval, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600253.jpg" />
+  <img src="Z:/picture/008/save_picture_600253.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600216.jpg" />
+  <img src="Z:/picture/008/save_picture_600216.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600134.jpg" />
+  <img src="Z:/picture/008/save_picture_600134.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ Shambhu - Lilac Skies (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Jazz, Acous
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600022.jpg" />
+  <img src="Z:/picture/008/save_picture_600022.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599928.jpg" />
+  <img src="Z:/picture/008/save_picture_599928.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ Kenio Fuke - Atlantida (2008) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, R
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599901.jpg" />
+  <img src="Z:/picture/008/save_picture_599901.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native Amer
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599618.jpg" />
+  <img src="Z:/picture/008/save_picture_599618.jpg" />
 </div>
 
 
@@ -689,64 +747,6 @@ Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native Amer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F48CAEC2A0B725BB1DD0156EBE61631924DC78F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038808   (599532) от 30.07.2016
-
-VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599532.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roger Miller - King of the Road
-2. Kenny Rogers - Ruby Don't Take Your Love to Town
-3. Johnny Cash - Ring of Fire
-4. Frankie Laine - High Noon(   Читать дальше...   )Жанр: CountryПродолжительность: 01:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF57AC550DD458D0DF192A93ED63EB8FD6869FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038772   (599531) от 30.07.2016
-
-Angi Schiliro - White Lady (1992) Japan 1-st Press 1993 [FLAC|Lossless|image + .cue] <Heavy Metal, Instrumental, Shred>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corrida (4:57)
-02. Love In Her Eyes (5:21)
-03. French Blues (4:37)
-04. The Storm (3:10)(   Читать дальше...   )Жанр: Heavy Metal, Instrumental, ShredПродолжительность: 0:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2B30A09E01998141F9F156A1DAF8852E537EC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

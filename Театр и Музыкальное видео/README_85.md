@@ -1,3 +1,165 @@
+###  Публикация: 551914   (448413) от 26.09.2012
+
+Cinnamon Chasers (2009-2011) [720p] HDTVRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ElectronicПродолжительность: 00:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B412144D340C5E69A01ECA5EA823799774CABE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 705206   (448358) от 30.09.2013
+
+На дне (2 части) (1972) DVDRip (Современник)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Фильм-спектакль, экранизацияРежиссер: Галина ВолчекАктеры: Евгений Евстигнеев, Игорь Кваша, Андрей Мягков, Валентин Никулин, Лилия Толмачева, Валерий Хлевинский, Алла Покровская, Нина Дорошина, Григорий Острин, Владимир Земляникин, Рогволд Суховерко, Елена Миллиоти, Авангард Леонтьев, Людмила Иванова, Виктор Сергачев, Олег Табаков, Петр ЩербаковПродолжительность: 01:34:46 + 01:18:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09C2BAE6A84BDB980C50491FAFBE4D90AF1C15E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552162   (448163) от 26.09.2012
+
+Альборада Дель Инка / Alborada Del Inka - Восход Инков (2008) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_448163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень красивая этническая музыка на фоне природы запада Южной Америки (Перу). Приятно как посмотреть так и просто пустить фоном. Ребята весьма талантливы!Жанр: Folk/Panflute/InstrumentalПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B490202F7D72A090FD608189B73250C686D5B66A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551598   (447722) от 26.09.2012
+
+Андреа Бочелли: Концерт iTunes Festival в Лондоне 2012 - Andrea Bocelli: Live at iTunes Festival London 2012 (2012) WEBRip [1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Андреа Бочелли - Концерт на iTunes Фестивале в Лондоне 18 cентября 2012 года... «Почему музыка? Потому что мы любим музыку», — сказал Стив Джобс на презентации в 2001 году. В 2007-м любовь получила прекрасное воплощение: в насквозь музыкальном Лондоне прошёл первый iTunes Festival. С тех пор он проводился каждый год, в июле, а принимал его в последние три года концертный зал The Roundhouse. В 2012-м англичанам вновь представился шанс послушать любимых исполнителей вживую. Музыкальный фестиваль iTunes Festival (   Читать дальше...   )Жанр: Концерт, Классическая музыка, вокал, кроссоверПродолжительность: 01:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0359246FEFA3DCE66784D629EDC35091CCD70EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943489   (446910) от 04.10.2015
+
+Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_446910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный бирмингемский музыкант Джефф Линн совершил триумфальный камбэк в виде первого полноценного шоу на британской земле впервые почти за 30 лет. Сопровождаемый BBC Concert Orchestra и штатным клавишником ELO Ричардом Тэнди, Джефф порадовал своих поклонников великолепным 80-минутным концертом, состоявшимся 14 сентября 2014 года в лондонском Гайд-Парке в рамках (   Читать дальше...   )Треклист:
+01. All Over the World
+02. Evil Woman
+03. Ma-Ma-Ma Belle(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2EF4EF27A88E3F56CA9BFAE733B6C5F70C09AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175198   (446721) от 03.10.2014
+
+Avril Lavigne - Live in Calgary Alberta (2007) HDTVRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_446721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Avril Lavigne в Calgary Alberta (Canada) 2 апреля 2007.01. Girlfriend
+02. I Can Do Better
+03. Sk8er Boi
+04. My Happy Ending(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 390809   (446661) от 22.09.2011
 
 Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес (2011) HDTVRip [1080p]
@@ -6,7 +168,7 @@ Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446661.jpg" />
+  <img src="Z:/picture/008/save_picture_446661.jpg" />
 </div>
 
 
@@ -32,7 +194,7 @@ Barillo - Dust (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446413.jpg" />
+  <img src="Z:/picture/008/save_picture_446413.jpg" />
 </div>
 
 
@@ -58,7 +220,7 @@ KooFee feat. Manu Blanco - El Culito (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446222.jpg" />
+  <img src="Z:/picture/008/save_picture_446222.jpg" />
 </div>
 
 
@@ -84,7 +246,7 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446177.jpg" />
+  <img src="Z:/picture/008/save_picture_446177.jpg" />
 </div>
 
 
@@ -113,7 +275,7 @@ Sandra Afrika - Neko ce mi nocas napraviti sina (2012) [H.264/720p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446087.jpg" />
+  <img src="Z:/picture/008/save_picture_446087.jpg" />
 </div>
 
 
@@ -139,7 +301,7 @@ Lindsey Stirling - Elements  (2012) [H.264/1080p] WEBRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445770.jpg" />
+  <img src="Z:/picture/008/save_picture_445770.jpg" />
 </div>
 
 
@@ -165,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_445677.jpg" />
+  <img src="Z:/picture/008/save_picture_445677.jpg" />
 </div>
 
 
@@ -191,7 +353,7 @@ VA - Осенний марафон № 195 / Видеоклипы (Зарубе�
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444752.jpg" />
+  <img src="Z:/picture/008/save_picture_444752.jpg" />
 </div>
 
 
@@ -220,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444038.jpg" />
+  <img src="Z:/picture/008/save_picture_444038.jpg" />
 </div>
 
 
@@ -249,7 +411,7 @@ Dr. Dre & Snoop Dogg Full Live @ Coachella 2012 HDTVRip
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443834.jpg" />
+  <img src="Z:/picture/008/save_picture_443834.jpg" />
 </div>
 
 
@@ -275,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443699.jpg" />
+  <img src="Z:/picture/008/save_picture_443699.jpg" />
 </div>
 
 
@@ -305,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443628.jpg" />
+  <img src="Z:/picture/008/save_picture_443628.jpg" />
 </div>
 
 
@@ -334,7 +496,7 @@ Uriah Heep - More Of Classic Heep Live (Video Сollection1972-1978) (2012) VHSRi
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443354.jpg" />
+  <img src="Z:/picture/008/save_picture_443354.jpg" />
 </div>
 
 
@@ -360,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442682.jpg" />
+  <img src="Z:/picture/008/save_picture_442682.jpg" />
 </div>
 
 
@@ -389,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442213.jpg" />
+  <img src="Z:/picture/008/save_picture_442213.jpg" />
 </div>
 
 
@@ -415,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439923.jpg" />
+  <img src="Z:/picture/008/save_picture_439923.jpg" />
 </div>
 
 
@@ -441,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439728.jpg" />
+  <img src="Z:/picture/008/save_picture_439728.jpg" />
 </div>
 
 
@@ -471,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_438642.jpg" />
+  <img src="Z:/picture/005/save_picture_438642.jpg" />
 </div>
 
 
@@ -497,7 +659,7 @@ Tito & Tarantula - Live in Rockpalast (2008) SATRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438490.jpg" />
+  <img src="Z:/picture/008/save_picture_438490.jpg" />
 </div>
 
 
@@ -526,7 +688,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438399.jpg" />
+  <img src="Z:/picture/008/save_picture_438399.jpg" />
 </div>
 
 
@@ -537,175 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D40B5C5A58E8EDE13E140379A10B346F7E8EF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410181   (438343) от 20.09.2020
-
-Квартирник НТВ у Маргулиса. Группа Куртки Кобейна (19.09.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438343.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Куртки Кобейна» — музыкальный продюсерский проект Шуры из «Би-2», который был создан два года назад. Коллектив не придерживается каких-то строгих жанровых рамок, так как все участники — представители разных музыкальных направлений. В прошлом году группа выпустила дебютный альбом, в записи которого приняли участие известные исполнители, например, Леонид Агутин, группы (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73004D1BA18B9BEF4546F77457B0729DA2B5333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554069   (438150) от 30.09.2012
-
-Blackmore's Night - A Knight In York (2012) [1080p] Blu Ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ренессанс-рок-группа BLACKMORE'S NIGHT, которую создали Ричи Блэкмор (Ritchie Blackmore) и его жена Кэндис Найт (Candice Night), выпускает концертник "A Knight In York" на Blu-ray. Когда 30 сентября прошлого года BLACKMORE'S NIGHT приехали в Йорк, жар глодал средневековые улицы и стены старого города купались в лучах солнца. А в Grand Opera House Ричи Блэкмор, Кэндис Найт и их группа разожгли свой огонь, уведя преданных поклонников в музыкальное путешествие сквозь века, исполняя песни с двух своих последних альбомов "Secret Voyage" и "Autumn Sky", такие как "Locked Within The Crystal Ball", "Darkness" и новую версию "First Of May" — редко исполняемой баллады, написанной BEE GEES. Для общего эффекта в котел были брошены песни с ранних альбомов, — особого упоминания заслуживает классическая "Fires At Midnight". Blackmore’s Night - A Knight In York был снят и записан во время тура по Великобритании в York Grand Opera House 30 сентября 2011 года. (   Читать дальше...   )01 Locked Within The Crystal Ball
-02 Guilded Cage
-03 The Circle
-04 Journeyman
-05 World Of Stone
-06 The Peasant's Promise
-07 Toast To Tomorrow
-08 Fire's At Midnight
-09 Barbara Allen
-10 Darkness(   Читать дальше...   )Жанр: Концерт, rock, folk rockПеревод: отсутствуетПродолжительность: 01:35:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707361   (437601) от 05.10.2013
-
-Black Sabbath - Live in O2 Academy Birmingham (2012) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437601.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках подготовки к их чрезвычайно ожидаемому выступлению на Download Festival в 2012 году, Black Sabbath объявили о возвращении на родину в O2 Academy в Бирмингеме. Это было первое выступление Black Sabbath в их родном городе в течение 11 лет - и их первый концерт с 2005 года.01 Intro
-02 Into the Void
-03 Under the Sun
-04 Snowblind(   Читать дальше...   )Жанр: Концерт, Heavy MetalПродолжительность: 01:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE154A00612916C70E33B2AF5A131236DF1CF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554354   (437113) от 01.10.2012
-
-Mr Saik - Lights Out (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C9392E3B7DE548B9BC5E556FCB3522DDD57741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554358   (437096) от 01.10.2012
-
-Cabin Crew - Star To Fall (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437096.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F947A493E203FF73ACA901A666D18546DC2519
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062674   (437075) от 15.10.2016
-
-Сказка за сказкой - Белое и чёрное (1984) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеспектакль Ленинградского телевидения из цикла передач "Сказка за сказкой". По мотивам грузинских сказок.
-Передача "Сказка за сказкой" выходила в эфир с 1979 по 1998 год не только в Ленинграде, но и в других городах Советского Союза, а также в Польше и Чехословакии. Это были телевизионные постановки сказок народов мира.Производство: СССР, Ленинградское телевидениеЖанр: Спектакль, детский, сказкаРежиссер: Глеб СелянинАктеры: Анатолий Равикович, Ольга Волкова, Анатолий Пузырев, Валерий Кузин, Инна Слободская, Ильгиз Булгаков, Агния ЕлекоеваПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE249E960A2877832380152D84FC8FF74D720F7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

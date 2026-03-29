@@ -6,7 +6,7 @@
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369853.jpg" />
+  <img src="Z:/picture/008/save_picture_369853.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369849.jpg" />
+  <img src="Z:/picture/008/save_picture_369849.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369730.jpg" />
+  <img src="Z:/picture/008/save_picture_369730.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Sandra - Into a Secret Land (1988) [AAC|~361 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369670.jpg" />
+  <img src="Z:/picture/008/save_picture_369670.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ Sandra - Ten On One (The Singles) (1987) [AAC|~358 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369669.jpg" />
+  <img src="Z:/picture/008/save_picture_369669.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Sandra - Paintings In Yellow (1990) [AAC|~352 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369668.jpg" />
+  <img src="Z:/picture/008/save_picture_369668.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ Sandra - Close To Seven (1992) [AAC|~344 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369662.jpg" />
+  <img src="Z:/picture/008/save_picture_369662.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ Video Kids - On Satellite (1985) [AAC|~357 Kbps] <Disco, Electro, Synth-pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369660.jpg" />
+  <img src="Z:/picture/008/save_picture_369660.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369605.jpg" />
+  <img src="Z:/picture/008/save_picture_369605.jpg" />
 </div>
 
 
@@ -259,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369534.jpg" />
+  <img src="Z:/picture/008/save_picture_369534.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369528.jpg" />
+  <img src="Z:/picture/008/save_picture_369528.jpg" />
 </div>
 
 
@@ -311,7 +311,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369435.jpg" />
+  <img src="Z:/picture/008/save_picture_369435.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369431.jpg" />
+  <img src="Z:/picture/008/save_picture_369431.jpg" />
 </div>
 
 
@@ -364,7 +364,7 @@ Video Kids - The Invasion Of The Spacepeckers (1985) [AAC|~364 Kbps] <Disco, Ele
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369426.jpg" />
+  <img src="Z:/picture/008/save_picture_369426.jpg" />
 </div>
 
 
@@ -393,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369324.jpg" />
+  <img src="Z:/picture/008/save_picture_369324.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369191.jpg" />
+  <img src="Z:/picture/008/save_picture_369191.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Sandra - Mirrors (1986) [AAC|~338 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368998.jpg" />
+  <img src="Z:/picture/008/save_picture_368998.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Sandra - The Long Play (1985) [AAC|~354 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368989.jpg" />
+  <img src="Z:/picture/008/save_picture_368989.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368567.jpg" />
+  <img src="Z:/picture/008/save_picture_368567.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368562.jpg" />
+  <img src="Z:/picture/008/save_picture_368562.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368447.jpg" />
+  <img src="Z:/picture/008/save_picture_368447.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368048.jpg" />
+  <img src="Z:/picture/008/save_picture_368048.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367963.jpg" />
+  <img src="Z:/picture/008/save_picture_367963.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367961.jpg" />
+  <img src="Z:/picture/008/save_picture_367961.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367947.jpg" />
+  <img src="Z:/picture/008/save_picture_367947.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367942.jpg" />
+  <img src="Z:/picture/008/save_picture_367942.jpg" />
 </div>
 
 

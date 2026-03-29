@@ -1,3 +1,108 @@
+###  Публикация: 1366154   (923185) от 11.03.2020
+
+Цвет из иных миров / Color Out of Space (2019) BDRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фермер Нэйтан Гарднер с женой и тремя детьми живёт в отдалении от цивилизации. Однажды рядом с его домом падает метеорит, на следующий же день исчезает, и теперь вокруг места падения разрастаются необычные цветы, а телевидение и мобильная связь работают с помехами. Приехавший проверить местную воду гидролог уверен, что пить её не стоит, но члены семьи Гарднер не (   Читать дальше...   )Производство: США, Малайзия, Португалия | SpectreVision, ACE Pictures Entertainment, ...Жанр: Ужасы, фантастикаРежиссер: Ричард СтэнлиАктеры: Николас Кейдж, Джоэли Ричардсон, Мадлен Артур, Эллиот Найт, Томми Чонг, Брендан Мейер, Джулиан Хиллиард, Джош С. Уоллер, К’Орианка Килчер, Мелисса НирманПеревод: Дублированный | iTunesСубтитры: Русские (forced, full FOCS ненормативная лексика), английскиеПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74EAFBB3CE4DE3DBB5D655D3BB13ACCE590CDC8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261829   (923183) от 11.03.2020
+
+Thief Simulator (2018) [Ru/Multi] (1.42) Repack Other s
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте настоящим вором. Воруйте вещи в полностью открытых для исследования районах. Наблюдайте за своей целью и собирайте информацию, которая поможет при ограблении. Бросайте вызов лучшим системам безопасности. Покупайте новейшее оборудование и обучайтесь новым воровским приемам. Продавайте добычу скупщикам краденного. Делайте все, что делают настоящие воры!Тип издания: RepackРазработчик: Noble MuffinsЖанр: Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B212E17BB5EAA36BECC2D54BEBBA9E74C3707D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 287933   (923158) от 28.01.2011
+
+Я плюю нa ваши могилы / I Spit on Your Grave (2010) HDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая писательница Дженнифер снимает домик в глухом лесу, чтобы в уединении написать очередной роман. Но издатель не дождется нового бестселлера… Четверо местных отморозков жестоко насилуют девушку и обрекают ее на мучительную смерть. Но спустя некоторое время Дженнифер вновь появляется в заброшенном городке. Она сумела выжить и теперь ее единственная цель — месть. И месть эта будет столь ужасной, что бывшие насильники проклянут тот день, когда встретили ее впервые…Жанр: триллер, криминалРежиссер: Стивен Р. МонроАктеры: Дэниел Фрэнзиси, Сара Батлер, Чэд Линдберг, Трейси Уолтер, Эндрю Ховард, Джефф Брэнсон, Родни Истман, Саксон Шарбино, Молли МиллиганПеревод: Любительский (двухголосый)Формат: AVIПродолжительность: 01:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CC4B4E7B0D7DE22A86AF847611F01698047B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288333   (923133) от 28.01.2011
+
+Age of Pirates 2: City of Abandoned Ships / Корсары: Город Потерянных Кораблей [Ru] (RePack/1.2.12 2009) | Fenixx
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Корсары: Город Потерянных Кораблей" - это новая игра в линейке «Корсаров», продолжение "Корсары: Возвращение Легенды", которая была разработана общими силами студии Seaward.ru и компании "Акелла" как альтернативный взгляд на знаменитую трилогию о пиратах.
+В "Городе Потерянных Кораблей" создатели "КВЛ" реализовали всё то, чему по причине временных ограничений, не нашлось места в «Возвращении легенды».Заслуженно большее внимание получили мистические мотивы в сюжете игры: теперь таинственному и потустороннему отведено две полноценные локации.Первая - собственно Город Потерянных Кораблей. Зловещая пристань, куда попадают затерявшиеся в Карибском море суда, с годами накопила несметные сокровища. Только одной смелости мало, чтобы отобрать их у мертвых.Вторая - золотая столица ацтеков Теночтитлан. Здесь, как известно, тоже есть, чем поживиться. Между пиратом и его безбедной старостью стоят лишь мифические существа из мрачных верований южноамериканского племени.Можно подумать, (   Читать дальше...   )Тип издания: Перепакованная лицензияЖанр: Action, Add-on (Standalone / Naval), RPG, 3rd Person, Privateer, TraderЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 287745   (923127) от 28.01.2011
 
 Microsoft Office 2010 x86/x64 License [Русский]
@@ -6,7 +111,7 @@ Microsoft Office 2010 x86/x64 License [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923127.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923015.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923006.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923006.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922453.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Acronis True Image 2017 New Generation 21.0.6116 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921796.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ DriverPack Solution 17.7.33 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921792.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921787.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921741.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921741.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ The Forest (2015) [En] (0.33b) Repack NIK220V
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921723.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ Red Comrades Save the Galaxy: Reloaded / Петька и Василий Иван
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921708.jpg" />
 </div>
 
 
@@ -267,7 +372,7 @@ PowerDirector – Video Editor v9.5.1 Mod [Ru/Multi] - мощный видео-�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921523.jpg" />
 </div>
 
 
@@ -293,7 +398,7 @@ Crysis 2 [Ru/En] (Lossless Repack/1.9) 2011 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921401.jpg" />
 </div>
 
 
@@ -319,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921346.jpg" />
 </div>
 
 
@@ -345,7 +450,7 @@ Windows Vista SP2 X86.Project (RED) v.2.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921336.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ Adobe  Photoshop 8.0 [Русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921335.jpg" />
 </div>
 
 
@@ -404,7 +509,7 @@ Dead Space Trilogy / Трилогия Dead Space [Ru/En/Multi] (RePack) 2008-201
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921029.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920679.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920637.jpg" />
 </div>
 
 
@@ -484,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920267.jpg" />
 </div>
 
 
@@ -511,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920109.jpg" />
 </div>
 
 
@@ -537,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920066.jpg" />
 </div>
 
 
@@ -563,7 +668,7 @@ mp3DirectCut 2.22 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920015.jpg" />
 </div>
 
 
@@ -574,111 +679,6 @@ mp3DirectCut 2.22 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8F4146B1F026965681D64C7FF77EB716AB8840A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366424   (920008) от 13.03.2020
-
-Роскомнадзор изучает сети на предмет блокировки
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Находящееся в ведении Роскомнадзора ФГУП "ГРЧЦ" заказало исследование устройства децентрализованных сетей с целью определить возможности ограничения доступа к опубликованной в них запрещенной к распространению в России информации. Соответствующее извещение было размещено 3 марта на портале госзакупок, первым на это обратил внимание "Коммерсант".Закупка (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988239   (919934) от 20.02.2016
-
-Resident Evil 0 / biohazard 0 HD REMASTER (2016) [Ru/Multi] (1.0/dlc) Repack SEYTER
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919934.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resident Evil  рассказывает всю правду о происшествии в особняке, породившем все последующие события серии Resident Evil. В обновленной версии сохранены сюжет и игровой процесс оригинальной игры, дополненные потрясающей HD-графикой, звуком в формате 5.1, возможностью выбора улучшенных элементов управления и поддержкой широкоформатных телевизоров. Приготовьтесь раскрыть (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8888818B84F30ADC20F0AB1A06E5F13D0FF29C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 837549   (919864) от 20.02.2016
-
-Evernote Premium 7.6 [Ru/Multi] - Создание заметок
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Evernote сделает из Android-телефона продолжение Вашей памяти. Это приложение позволяет Вам сохранять и вспоминать всё, что происходит в Вашей жизни. Заметки, идеи, фото- и аудиозаписи - всё это можно поместить в Evernote и синхронизировать с телефона на веб-сервер и далее на компьютер. (с) Evernote.
-Evernote для Android позволяет вам сохранять любые события, идеи, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 20.02.16Разработчик: Evernote CorporationПоддерживаемая ОС: Android. Зависит от устройстваЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B149803AB9520913BB79AD6DF64AC4D5BA570B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489951   (919863) от 19.08.2021
-
-HUMANKIND (2021) [Ru/Multi] (1.0.01.0034-S10/dlc) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919863.jpg" />
-</div>
-
-
-###  Подробнее
-
-HUMANKIND™ — главный труд Amplitude Studios, историческая стратегия, где ВЫ перепишите историю человечества. Это слияние культуры, истории и ценностей позволит вам создать уникальную цивилизацию. КАК ДАЛЕКО ВЫ ЗАВЕДЕТЕ HUMANKIND?Тип издания: RepackРазработчик: AMPLITUDE StudiosЖанр: Strategy (Turn-based), 4X, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735B57C2392A4410DE2423CC1228A96C90392E36
 ```
 
 https://mybot314.ru/tekegram_catalog/

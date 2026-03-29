@@ -1,3 +1,32 @@
+###  Публикация: 1270647   (155476) от 20.12.2018
+
+The Dooleys - 9 Albums (1976-1983) [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1976 - Доули Фэмили в Москве
+1977 - The Dooley Family And The Others
+1978 - The Dooleys(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 05:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A95AD75AA66D28D2938E47092B5302201B4E2A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270521   (155321) от 20.12.2018
 
 VA - Grease - 70s Party Songs (2018) [MP3|320 Kbps] <Pop, Funk, Hard Rock, Disco>
@@ -6,7 +35,7 @@ VA - Grease - 70s Party Songs (2018) [MP3|320 Kbps] <Pop, Funk, Hard Rock, Disco
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155321.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Best Of 2022 [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155227.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Hit News Vol. 3/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154721.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Hit News Vol. 4/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154654.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - 100 Hits Winter 2018 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153419.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153419.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Ivan Dorn (Иван Дорн) - 4 альбома (2012-2017) [MP3|320 Kbps] <Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153256.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Jeanette - 3 Albums (1976-1984) LP [MP3|320 Kbps] <Latin, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152657.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - ADE 2018 (2018) 2CD [MP3|320 Kbps] <Dance, House, Funky, Indie Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152624.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - La Chanson de l'Annee 2018 Vol.2 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152494.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - 538 - Hitzone - Best Of (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152482.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Xmas Hits (2018) [MP3|320 Kbps] <Dance, Pop, Ambient, New Age>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152437.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Promises - Promises (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152427.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152427.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Anne Murray - The Ultimate Christmas Collection (2020) [MP3|320 Kbps] <Pop, Folk
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151651.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ VA - Hit News Vol. 6 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151265.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Hit News Vol. 5/95 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151173.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Happy New Year 2022! (2021) [MP3|320 Kbps] <Pop, Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151118.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ VA - Best Songs of 2021 [MP3|320 Kbps] <Pop, Rock, Other>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150853.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Hit News Vol. 9 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150552.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Hit News Vol. 7 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150551.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - Hit News Vol. 8 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150549.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Don Amore - Memories Of Dreams (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150289.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - NOW That's What I Call 40 Years (2023) Vol. 1-4, 12 CD [MP3|320 Kbps] <Pop,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150284.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Jessie J - This Christmas Day (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150276.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - Christmas - The Ultimate Collection (2018) [MP3|320 Kbps] <Ballad, Country,
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149989.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ VA - Hit News Vol. 10 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149402.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149402.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ VA - Hit News Vol. 10 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F1E2307261FE56DB0F3BC20655D17FBB08F113E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969258   (148885) от 26.12.2015
-
-Ace Of Base - Cruel Summer (1998) Remastered, 2015, Mega Records [MP3|320 кб/с] <Pop, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148885.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cruel Summer (03:36)
-2. Donnie (Ole Evenrude Version) (03:49)
-3. Whenever You're Near Me (US Album Version) (03:32)
-4. Everytime It Rains (04:52)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209CCB0CA6F10ECFEC9142E01B743F569D97DDC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

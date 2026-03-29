@@ -1,3 +1,119 @@
+###  Публикация: 1227344   (646936) от 26.05.2018
+
+James P. Johnson - 1921 - 1928 (1992) Classics [FLAC|Lossless|tracks + .cue] <Ragtime, Stride, Early Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Harlem Strut [2:35]
+02. Keep Of The Grass [3:15]
+03. Carolina Shout [2:47]
+04. Carolina Shout [3:00](   Читать дальше...   )Жанр: Ragtime, Stride, Early JazzПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAB8AFAF2C6A0E38E7946EFA87A998FFE4DB318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227466   (646934) от 26.05.2018
+
+Dave Ferris - The Quiet One (1991) Nine Winds Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road to Boston [7:07]
+02. Original Music [6:15]
+03. Lazy Bones [6:03]
+04. A Midwest Moment [7:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21716E51B95EF5E4B51832AD22B80BB90FD2C943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227457   (646931) от 26.05.2018
+
+Chris Connor - Free Spirits (1961, 1962) 2014, Warner [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump For Joy [2:48]
+02. Night Bird [3:19]
+03. Milano [3:21]
+04. Opportunity, Please Knock [3:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8FC8F3E6528FB55379A653B474273D6D244A8D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227464   (646930) от 26.05.2018
+
+Calvin Johnson Jr. - Native Son (2013) Alma Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_646930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddy Bolden Stomp [4:04]
+02. Midnight in Moscow [3:17]
+03. Summertime [5:17]
+04. Royal Garden Blues [4:00](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8632FE6F7D12193CA5C1B8D707820ED1E957A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227459   (646928) от 26.05.2018
 
 Alan Pasqua - Twin Bill: Two Piano Music of Bill Evans (2012) Challenge Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -6,7 +122,7 @@ Alan Pasqua - Twin Bill: Two Piano Music of Bill Evans (2012) Challenge Records 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646928.jpg" />
+  <img src="Z:/picture/008/save_picture_646928.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dizzy Gillespie - 1947 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646921.jpg" />
+  <img src="Z:/picture/008/save_picture_646921.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Mitsuaki Kishi & Hiro Minowa - Time For Life (2018) Swingbros [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646919.jpg" />
+  <img src="Z:/picture/008/save_picture_646919.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Aretha Franklin - The Real... Aretha Franklin (2014) 3CD [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646608.jpg" />
+  <img src="Z:/picture/008/save_picture_646608.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Nat Adderley - Live At Memory Lane (1966) Remaster, 2012, Warner[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646178.jpg" />
+  <img src="Z:/picture/008/save_picture_646178.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Denny Zeitlin - Cathexis (1964) Remaster, 2014, Sony Music[FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646177.jpg" />
+  <img src="Z:/picture/008/save_picture_646177.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Darji & Hank Jones - Darji Meets Hank Jones (1982) Remaster, 2015, Solid Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646171.jpg" />
+  <img src="Z:/picture/008/save_picture_646171.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Kenny Dorham - Whistle Stop (1959, 1961) 2CD, 2012, Not Now Music[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646168.jpg" />
+  <img src="Z:/picture/008/save_picture_646168.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Pamela Williams - Eight Days of Ecstasy (1988) [FLAC|Lossless|tracks + .cue] <Sm
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646061.jpg" />
+  <img src="Z:/picture/008/save_picture_646061.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Randy Brecker - Nostalgic Journey: Tykocin Jazz Suite (2009) [FLAC|Lossless]<Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645803.jpg" />
+  <img src="Z:/picture/008/save_picture_645803.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Wynton Marsalis‎ - He And She (2009) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_645367.jpg" />
+  <img src="Z:/picture/005/save_picture_645367.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ Chet Baker - Career 1952-1988 (2005) 2CD, Shout! Factory [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645290.jpg" />
+  <img src="Z:/picture/008/save_picture_645290.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ Thelonious Monk - Making The Right Moods (1999) KRB [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644965.jpg" />
+  <img src="Z:/picture/008/save_picture_644965.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Antonio Farao - Black Inside (1998) 2005, Landy Star Music [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644963.jpg" />
+  <img src="Z:/picture/008/save_picture_644963.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Special EFX - Mystique (1987) GRP Records [FLAC|Lossless|tracks + .cue] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644961.jpg" />
+  <img src="Z:/picture/008/save_picture_644961.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ The Don Ellis Orchestra - Electric Bath (1967) 2016, Sony Music [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644889.jpg" />
+  <img src="Z:/picture/008/save_picture_644889.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ Thierry Lang Trio - Serenity (2014) Universal [FLAC|Lossless|tracks + .cue] <Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644863.jpg" />
+  <img src="Z:/picture/008/save_picture_644863.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Rodney Jones - When You Feel The Love (1980) Remaster, 2015, Solid Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644118.jpg" />
+  <img src="Z:/picture/008/save_picture_644118.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Francy Boland & The Orchestra - Blue Flame / Red Hot / White Heat (1972) 2CD, 20
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644111.jpg" />
+  <img src="Z:/picture/008/save_picture_644111.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Sinne Eeg - Don't Be So Blue (2011) Japan Edition [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644104.jpg" />
+  <img src="Z:/picture/008/save_picture_644104.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Sinne Eeg & Thomas Fonnesbaek - Eeg-Fonnesbaek (2015) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644017.jpg" />
+  <img src="Z:/picture/008/save_picture_644017.jpg" />
 </div>
 
 
@@ -621,7 +737,7 @@ Lambert, Hendricks & Ross - Everybody's Boppin' (1989) [FLAC|Lossless]<Jazz, Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643738.jpg" />
+  <img src="Z:/picture/005/save_picture_643738.jpg" />
 </div>
 
 
@@ -641,128 +757,6 @@ Lambert, Hendricks & Ross - Everybody's Boppin' (1989) [FLAC|Lossless]<Jazz, Bop
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516563   (643736) от 03.07.2012
-
-Laurindo Almeida & Baden Powell - Brasil Guitar Magic! (1999) [FLAC|Lossless]<Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_643736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laurindo Almeida
-01. Samba Medley [05:20]
-02. O Barquinho [04:09]
-03. The Busy Bee [01:20]
-04. Canto Do Ossanha [05:31]
-05. Samba Triste [03:19]
-06. Escadoo [03:06]
-07. Air On A G-String [04:52]
-08. Dorival [05:05]
-(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906720   (643703) от 09.06.2015
-
-Sofia Finnila - Everything I Love (2008) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheek to Cheek [05:00]
-02. So in Love [04:30]
-03. Boy Next Door [05:34]
-04. Everything I Love [04:48](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38351C7E767CB3F99E925A2A16C5CA820BE4805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906714   (643698) от 09.06.2015
-
-Duke Ellington - Meets Coleman Hawkins And John Coltrane (2011) [FLAC|Lossless]<Jazz, Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limbo Jazz [05:17]
-02. Mood Indingo [05:58]
-03. Ray Chareles' Place [04:06]
-04. Wanderlust [05:02](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, Hard BopПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6881AAF4A17C3937400595AAA04981F22BB07A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292793   (643388) от 31.03.2019
-
-Sonny Stitt - Kaleidoscope (1950 - 1952) 1992, Original Jazz Classics [FLAC|Lossless|image + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stitt's It [2:36]
-02. Cool Mambo [2:39]
-03. Blue Mambo [2:25]
-04. Sonny Sounds [2:29](   Читать дальше...   )Жанр: BopПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B36CC503CEB3F692D3E6E6586FB939034BBCF12
 ```
 
 https://mybot314.ru/tekegram_catalog/

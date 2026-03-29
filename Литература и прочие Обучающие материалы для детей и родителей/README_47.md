@@ -1,3 +1,137 @@
+###  Публикация: 1464879   (1019458) от 24.04.2021
+
+Александр Куликов | Мозгодром или математика на человеческом языке (1994) [PDF, DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кот Ангенс, знаменитый спутник инспектора Кругга, вспоминает о своих удивительных встречах с занимательной математикой в самых разных странах мира — древних и современных.Жанр: Познавательная литература для детей, Математика детямФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573FB4BE019236AC3CB6A696DD7B716458A06973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465071   (1019446) от 24.04.2021
+
+А.С. Шевченко (ред.) | Английский визуальный словарь с произношением (2021) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение английского языка может быть увлекательным, а заучивание новых слов не обязательно должно превращаться в бестолковую зубрежку. В эту книгу вошли самые нужные английские слова, которые сопровождаются транскрипцией буквами русского алфавита, а также иллюстрациями, что поможет ребенку легче усвоить материал.
+Книга предназначена прежде всего для учеников младших (   Читать дальше...   )Жанр: Иностранные языки/СловарьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D97280A39E9260123BC04DDA3CF2180D077EF8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464982   (1019445) от 24.04.2021
+
+М.С. Селиванова | Грамматика английского языка. 2-4 классы (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019445.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга адресована школьникам, начинающим изучать английский язык. В ней представлены самые основные правила грамматики английского языка.Жанр: Иностранные языки/Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:676348BF3232CD9AC09A10B0CF576BC2B45EBEED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505976   (1019432) от 24.04.2021
+
+А.Н. Исполатов | 1000 лучших игр, конкурсов, забав для детской компании (2009) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый сборник веселых конкурсов, розыгрышей, «тихих» и «шумных» игр для детей от 5 до 15 лет.
+Хочешь стать мастером игр?
+
+Дорогой друг! Ты держишь в руках очень полезную книгу, которая может стать помощницей в постижении азов профессии «массовик-затейник». Сегодня людей, организующих и проводящих игры и праздники, часто называют на иностранный манер «аниматорами». (   Читать дальше...   )Жанр: обучение и развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF011C50D5B440EAAF5ECB2A16C3BB5CB9DE7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679468   (1019419) от 24.04.2021
+
+Елена Каткова | Окружающий мир: итоговая аттестация за курс начальной школы. Типовые тестовые задания (2010) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019419.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие содержит 10 вариантов типовых тестовых заданий итоговой аттестации за курс начальной школы. Назначение пособия - отработка практических навыков учащихся по подготовке к экзамену в 4-м классе по предмету "Окружающий мир". В сборнике даны ответы на все варианты тестов.Жанр: Учебное пособиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DD3A43AE114C43CDFB1128C95F22305121E16D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 260374   (1019418) от 24.04.2021
 
 Светлана Чижова | Если ребенок левша (2007) [DJVU]
@@ -6,7 +140,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019418.jpg" />
 </div>
 
 
@@ -33,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019348.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019347.jpg" />
 </div>
 
 
@@ -85,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019343.jpg" />
 </div>
 
 
@@ -111,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019335.jpg" />
 </div>
 
 
@@ -137,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019333.jpg" />
 </div>
 
 
@@ -163,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019332.jpg" />
 </div>
 
 
@@ -190,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019329.jpg" />
 </div>
 
 
@@ -216,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019325.jpg" />
 </div>
 
 
@@ -243,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019324.jpg" />
 </div>
 
 
@@ -271,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019323.jpg" />
 </div>
 
 
@@ -297,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019321.jpg" />
 </div>
 
 
@@ -325,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019311.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019311.jpg" />
 </div>
 
 
@@ -353,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019308.jpg" />
 </div>
 
 
@@ -380,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019302.jpg" />
 </div>
 
 
@@ -408,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019301.jpg" />
 </div>
 
 
@@ -434,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019300.jpg" />
 </div>
 
 
@@ -460,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019299.jpg" />
 </div>
 
 
@@ -486,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019271.jpg" />
 </div>
 
 
@@ -512,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019270.jpg" />
 </div>
 
 
@@ -538,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019248.jpg" />
 </div>
 
 
@@ -550,143 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDB1A46AD3CEE55DD5AF179724DB6EB1FC389817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608747   (1019239) от 25.04.2021
-
-Г.Н. Жучкова | Нравственные беседы с детьми 4-6 лет (2008) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019239.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии представлены конспекты занятий для детей среднего и старшего дошкольного возраста.
-Удачное соединение нравственных бесед с разнообразными играми, психогимнастическими упражнениями и этюдами поможет развитию эмоциональной и двигательной сфер,
-формированию этических представлений у детей.
-Участие в разыгрывании сюжетов способствует раскрепощению и объединению (   Читать дальше...   )Жанр: обучение и развитие детейФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC64EB86BE66F43D17795B6F2781B4CEAEC7B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488352   (1019220) от 25.04.2021
-
-Игорь Селютин | Как нарисовать автомобиль (2006) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как нарисовать автомобиль? Все ответы в этой книжке для ваших Детей.Жанр: Живопись, рисованиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E4F6FF5AF4CBD91EFD8BF503D16B99BE54EE7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465260   (1019182) от 25.04.2021
-
-Е.А. Барашкова | Английский язык на каникулах. Неправильные глаголы: 5-6 классы (2021) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данное пособие полностью соответствует федеральному государственному образовательному стандарту (второго поколения). Серия "Английский язык на каникулах" - это продуманная система заданий для повторения и закрепления материала, усвоенного в школе. Задания не только активизируют
-учебный материал, но и развивают восприятие, внимание, память, мышление. Начисление (   Читать дальше...   )Жанр: Иностранные языки/Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E818A0369CA01A19729A7712AFAC6D781A2CB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465596   (1019148) от 26.04.2021
-
-Петр Волцит | Что такое? Кто такой? Из чего всё сделано? (2017) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из чего же сделаны наши мальчишки? Оказывается, из маленьких частичек – атомов! Ведь из них сделаны не только мальчишки, но всё что нас окружает. В книге Петра Волцита "Из чего всё сделано?" простым языком рассказано: откуда берется электричество в батарейках и что это вообще такое (с опытом), как выглядит атом, что такое радиация и как от неё уберечься, (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78C7A90E7302988BF90D6100BA8A475430A49E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465583   (1019144) от 26.04.2021
-
-Лариса Клюшник | Моя Россия. Великие люди России (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит сведения о великих людях России со времен Киевской Руси до наших дней. Читатель узнает о выдающихся правителях, полководцах, ученых, изобретателях, космонавтах, первопроходцах, писателях,
-композиторах, спортсменах, которыми гордится наша страна.
-
-Для младшего школьного возраста.Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:232E60855B27030ED77C1F370215575E809B6B67
 ```
 
 https://mybot314.ru/tekegram_catalog/

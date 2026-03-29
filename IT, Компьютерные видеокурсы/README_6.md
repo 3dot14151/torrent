@@ -1,3 +1,140 @@
+###  Публикация: 1442059   (1036795) от 24.01.2021
+
+Udemy, Code Star Academy и др. | The Complete Oracle SQL Bootcamp (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте востребованным специалистом по SQL и с уверенностью сдайте сертификационный экзамен по Oracle SQL 1Z0-071 (OCA)!
+В этом курсе все предметы объясняются в профессиональном порядке.
+Если вы новичок в SQL, нет проблем! Вы можете легко изучить все детали SQL. Если вы уже знаете SQL и хотите улучшить его, этот курс объясняет все детали, включая все предметы.
+Пройдя (   Читать дальше...   )Производство: UdemyЖанр: Программирование, базы данныхЯзык озвучки: АнглйискийПродолжительность: 22:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837177275AD9E2E78FE6C2366221FCF42AB5B918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442165   (1036792) от 24.01.2021
+
+Udemy, Kazi Ariyan | Django 3 - Python Backend Web Development For Beginner (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать на курс бэкэнд-разработки на Python и Django для начинающих! В этом курсе мы рассмотрим все, что вам нужно знать для создания веб-сайта с использованием Python, Django и многих других веб-технологий!
+Если вы хотите изменить карьерный путь, расширить свой текущий набор навыков, начать свой собственный предпринимательский бизнес, стать консультантом (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглйискийПродолжительность: 40:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C062E81173825B4DB45028B0EACC49FB3D4B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442092   (1036776) от 24.01.2021
+
+Udemy, Олег Новиков | Сайт на Django 3.1 Реализация ТЗ на позицию Junior Developer  (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаг за шагом,  Вы пройдете весь процесс по написанию сайта. Вы узнаете, каким образом  Django работает внутри,  как использовать внутреннюю структуру Django для создания сайта и многое другое. А после того, как приложение уже будет готово, Вы узнаете, как его можно разместить в интернете так, чтобы оно было доступно для всех.
+Основная целевая аудитория курса - студенты, (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 17:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3366B11347C19D97F139FBB9CE74316FA0D675F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442156   (1036761) от 24.01.2021
+
+Udemy, Эдуард Козлов | Изучаем PHP с нуля (базовый курс) (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот курс вобрал в себя исключительно практические вопросы разработки, ничего лишнего - только то, что действительно часто используется в PHP (а остальное вы легко найдете в мануалах).
+Курс проведен в оффлайн формате в несколько потоков, программа откатана и проверена. После прохождения курса лучшие студенты прошли стажировку в BrainForce и начали продуктивно работать (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеПродолжительность: 20:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC1A86C520248E01F9F5B1E815C0F4CC9779C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442368   (1036498) от 25.01.2021
+
+Udemy, Maximilian Schwarzmüller и др. | CSS - The Complete Guide 2021 (incl. Flexbox, Grid & Sass)  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036498.jpg" />
+</div>
+
+
+###  Подробнее
+
+CSS - сокращение от Cascading Style Sheets - это «язык программирования», который вы используете для превращения необработанных HTML-страниц в настоящие красивые веб-сайты.
+Этот курс охватывает все - мы начинаем с самых основ (что такое CSS? Как он работает? Как вы его используете)? и постепенно погружаюсь все глубже и глубже. И мы делаем это, показывая как практические (   Читать дальше...   )Производство: UdemyЖанр: Программирование, вёрсткаЯзык озвучки: АнглйискийПродолжительность: 20:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD79995715FC3F4DBE36EE82F0999D57A3D1268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442407   (1036493) от 25.01.2021
 
 Udemy, Maximilian Schwarzmuller | React - The Complete Guide (incl Hooks, React Router, Redux) (2021) PCRec [En /En Sub]
@@ -6,7 +143,7 @@ Udemy, Maximilian Schwarzmuller | React - The Complete Guide (incl Hooks, React 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036493.jpg" />
 </div>
 
 
@@ -35,7 +172,7 @@ Udemy, Алекс Маршал | Golang для начинающих (2021) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036464.jpg" />
 </div>
 
 
@@ -64,7 +201,7 @@ Coursera, Indranil Gupta | Cloud Computing Concepts, Part 1-2 (2020) PCRec [En /
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036273.jpg" />
 </div>
 
 
@@ -91,7 +228,7 @@ Coding Ninjas | Ninja Web Developer Career Track - NodeJS & ReactJs (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036211.jpg" />
 </div>
 
 
@@ -117,7 +254,7 @@ Coding Ninjas | Java Foundation with Data Structures & Algorithms (2020) PCRec [
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036207.jpg" />
 </div>
 
 
@@ -144,7 +281,7 @@ Udemy, Chad Darby | Spring & Hibernate for Beginners (includes Spring Boot) (202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1036171.jpg" />
 </div>
 
 
@@ -172,7 +309,7 @@ Udemy, Joseph Delgadillo и др. | The Complete Full-Stack JavaScript Course! (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035932.jpg" />
 </div>
 
 
@@ -199,7 +336,7 @@ Udemy, Dr. Angela Yu | iOS 13 и Swift 5 - Полное руководство �
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035890.jpg" />
 </div>
 
 
@@ -226,7 +363,7 @@ Coding For Entrepreneurs | Проекты и курсы. Django (2020) PCRec [En
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035348.jpg" />
 </div>
 
 
@@ -254,7 +391,7 @@ OTUS, Анастасия Асеева-Нгуен и др. | QA Lead. Часть 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035062.jpg" />
 </div>
 
 
@@ -281,7 +418,7 @@ OTUS, Любовь Данилова и др. | Автоматизация тес
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035060.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035060.jpg" />
 </div>
 
 
@@ -309,7 +446,7 @@ react12.io, Reed Barger | Создайте YouTube с помощью React / Bui
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034860.jpg" />
 </div>
 
 
@@ -338,7 +475,7 @@ Udemy, Jose Portilla | 2021 Полный Python Bootcamp: c нуля до гер
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034790.jpg" />
 </div>
 
 
@@ -365,7 +502,7 @@ OTUS, Михаил Кузнецов | Супер-интенсив "Версио�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034770.jpg" />
 </div>
 
 
@@ -394,7 +531,7 @@ Udemy, Jose Portilla м др. | Go: Полноценный Bootcamp (Golang) / G
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034766.jpg" />
 </div>
 
 
@@ -420,7 +557,7 @@ Udemy, Виктор Черемных | Кибербезопасность (2020)
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034763.jpg" />
 </div>
 
 
@@ -446,7 +583,7 @@ OTUS, Наталья Науменко | Супер-интенсив "CI/CD ил�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034756.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034756.jpg" />
 </div>
 
 
@@ -473,7 +610,7 @@ Total TypeScript, Matt Pocock | Professional TypeScript Training by Matt Pocock 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034727.jpg" />
 </div>
 
 
@@ -501,7 +638,7 @@ Udemy, Stephen Grider | React и Typescript: создание портфолио
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034518.jpg" />
 </div>
 
 
@@ -528,7 +665,7 @@ Udemy, ZTM Academy, Andrei Neagoie | The Complete Junior to Senior Web Developer
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034494.jpg" />
 </div>
 
 
@@ -554,7 +691,7 @@ MakeWeb | Практический курс «Javascript Fullstack разраб�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034489.jpg" />
 </div>
 
 
@@ -568,143 +705,6 @@ MakeWeb | Практический курс «Javascript Fullstack разраб�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:470FC7D19C88E2D52A243722484367D19E29FE90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438502   (1034484) от 09.03.2023
-
-Udemy, Dr. Angela Yu | The Complete 2023 Web Development Bootcamp (2023) WEB-DL [EN]
-
->>След.
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на полный курс веб-разработки, единственный курс, который вам нужен, чтобы научиться программировать и стать полноценным веб-разработчиком. Мой курс веб-разработки с более чем 12 000 оценок и средним 4,8 баллом является одним из САМЫХ ВЫСОКИХ РЕЗУЛЬТАТОВ в истории Udemy!
-Этот курс веб-разработки, продолжительностью более 50 часов, без сомнения, является (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 64:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:102A74F8C175E88089B5DC9F32E69BF1E5FEFBE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444509   (1034370) от 02.02.2021
-
-Udemy, Stephen Grider | The Modern Angular Bootcamp [2020] (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы хотите создавать большие масштабируемые приложения, Angular - это среда Javascript, которую нужно изучить!
-Angular разрабатывалась Google почти десять лет. У него одна цель: масштабирование для изящной обработки самых крупных и сложных веб-приложений. Если вы хотите создать большое приложение, Angular - это то, что вам нужно. Каждый другой онлайн-курс по (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 45:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF923E8BE56DD2B102253C94333D893466454578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444712   (1034281) от 02.02.2021
-
-Udemy, Ben Tristem и др. | Complete C# Unity Game Developer 3D (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unity - это невероятный 3D-пакет, используемый для создания видеоигр, архитектурных и медицинских изображений и многого другого. Проблема в том, что он большой и сложный в использовании, особенно для начинающих программистов и разработчиков игр. Мы делаем обучение программированию простым и увлекательным, помогая вам шаг за шагом создавать увлекательные игры.
-Присоединяйтесь (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 34:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC8E8207722880D3BF57B8CA0C6F19FE115594F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444500   (1034280) от 02.02.2021
-
-Udemy,  Dr. Angela Yu  | 100 Days of Code - The Complete Python Pro Bootcamp for 2021 (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на 100 Days of Code - The Complete Python Pro Bootcamp, единственный курс, который вам нужно научиться программировать с помощью Python. С более чем 100 000 отзывов и средней оценкой 4,8 мои курсы являются одними из САМЫХ ВЫСОКИХ РЕЙТИНГОВ в истории Udemy!
-100 дней, 1 час в день, научитесь строить 1 проект в день - вот как вы осваиваете Python.
-Этот (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 59:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A0A3A09A268B9DA566B82EA89EBF413002BEE86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444540   (1034272) от 02.02.2021
-
-Udemy, Chad Darby и др. | Full Stack: Angular and Java Spring Boot (2020) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнайте, как создать приложение Full Stack с помощью Angular и Java Spring Boot.
-Angular и Spring Boot - две из самых популярных технологий для разработки приложений Full Stack.
-Знание того, как создавать приложения Full Stack с помощью Angular и Java Spring Boot, может дать вам работу или улучшить то, что у вас есть. Это горячие навыки, и компании отчаянно ищут (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: ~19:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4E9356522067E143200135DA7FCE1AD78C4603
 ```
 
 https://mybot314.ru/tekegram_catalog/

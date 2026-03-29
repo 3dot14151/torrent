@@ -6,7 +6,7 @@ STASIS: BONE TOTEM (2023) [Ru/Multi] (1.0.1.2b) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251830.jpg" />
+  <img src="Z:/picture/005/save_picture_251830.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251606.jpg" />
+  <img src="Z:/picture/004/save_picture_251606.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ The Walking Dead: Episode 1 (P) [Ru/En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251532.jpg" />
+  <img src="Z:/picture/004/save_picture_251532.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Realms of Chaos [En] (RePack) 1995 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251374.jpg" />
+  <img src="Z:/picture/004/save_picture_251374.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 + DLC [Ru] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251346.jpg" />
+  <img src="Z:/picture/004/save_picture_251346.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Ridge Racer Unbounded + 1 DLC [Ru/En/Multi6] (RePack/1.09) 2012 l Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251257.jpg" />
+  <img src="Z:/picture/004/save_picture_251257.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Adventures of Robin Hood [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_251167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_251167.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250642.jpg" />
+  <img src="Z:/picture/004/save_picture_250642.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249235.jpg" />
+  <img src="Z:/picture/004/save_picture_249235.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249201.jpg" />
+  <img src="Z:/picture/004/save_picture_249201.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Angry Birds Space {1.1.0} (L) [En] 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248937.jpg" />
+  <img src="Z:/picture/004/save_picture_248937.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248640.jpg" />
+  <img src="Z:/picture/005/save_picture_248640.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248357.jpg" />
+  <img src="Z:/picture/004/save_picture_248357.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Nancy Drew: Tomb of the Lost Queen [En] (RePack) 2012 | R.G ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248347.jpg" />
+  <img src="Z:/picture/004/save_picture_248347.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Bram Stoker's Dracula [En] (RePack) 1993 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248257.jpg" />
+  <img src="Z:/picture/005/save_picture_248257.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Elf [En] (RePack) 1992 | Pilotus
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_248176.jpg" />
+  <img src="Z:/picture/005/save_picture_248176.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Resident Evil: Operation Raccoon [Multi8\+] 2012 | SHARINGAN [Lossless RePack]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248075.jpg" />
+  <img src="Z:/picture/004/save_picture_248075.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ MariaRo Ragnarok-Online Renewal (P) [En/Ru] 2002 (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248064.jpg" />
+  <img src="Z:/picture/004/save_picture_248064.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Street Fighter x Tekken [Ru] (RePack) 2012 | UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248052.jpg" />
+  <img src="Z:/picture/004/save_picture_248052.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Smashing Toys [Ru] (P) 2009
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248020.jpg" />
+  <img src="Z:/picture/004/save_picture_248020.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.237.6/dlc) Repack R.G. Меха
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226736.jpg" />
+  <img src="Z:/picture/005/save_picture_226736.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Sker Ritual (2022) [En] (0.1.3/dlc) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225959.jpg" />
+  <img src="Z:/picture/005/save_picture_225959.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Baldur's Gate Enhanced Edition [En] (RePack/1.0) 2012 | R.G ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225441.jpg" />
+  <img src="Z:/picture/005/save_picture_225441.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Castle Crashers [En] (RePack/1.0/2DLC) 2012 | Luminous
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225319.jpg" />
+  <img src="Z:/picture/005/save_picture_225319.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Fragoria (2007) [Ru] (3.3.1019) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224866.jpg" />
+  <img src="Z:/picture/005/save_picture_224866.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Aion: Эра Льда (2009) [Ru/En] (4.9.0715.39) License
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223126.jpg" />
+  <img src="Z:/picture/005/save_picture_223126.jpg" />
 </div>
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 1783989   (25302) от 08.03.2025
+
+Вера Никандрова | Выпечка лайт: круассаны, улитки, пицца (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Круассаны – это изделие, которое часто вызывает страх и останавливает в освоении этого изделия. Качественный крафтовый   круассан – это искусство, требующее определенной практики, набитой руки,  изучения поведения продуктов и приручения оборудования, прохождения пути мастерства, понимания сложных этапов тестоведения. Страх перед этим путем – не повод отказываться от (   Читать дальше...   )Жанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 05:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836B0884E6D0A8F29B8C91FD17F19495E1B32CD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784139   (25199) от 09.03.2025
+
+Умный садовник, Елена Савич | Всё о гортензиях (2024) WEB-DL [AD] [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гортензия — неприхотливый кустарник с эффектными пышными шапками цветов, которые радуют своих хозяев с середины лета до самых морозов.
+Чтобы гортензии в вашем саду были источником радости, необходимо перед посадкой с ними поближе познакомиться и определить для себя множество важных моментов.
+Например, где я хочу посадить кустарник, каким я вижу его через 3-5 лет, (   Читать дальше...   )Производство: Умный садовникЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 10:45:09Реклама: Ватермарки и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB77C186E9EBD0E4B3D088725C730DCFBA20D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784134   (25191) от 09.03.2025
 
 Яна Строинская | Самый полный курс по лечению и реанимации комнатных растений (2024) WEB-DL [AD] [RU]
@@ -6,7 +60,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25191.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24900.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24845.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24813.jpg" />
 </div>
 
 
@@ -119,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24495.jpg" />
 </div>
 
 
@@ -147,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24470.jpg" />
 </div>
 
 
@@ -175,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24249.jpg" />
 </div>
 
 
@@ -203,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23994.jpg" />
 </div>
 
 
@@ -232,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23987.jpg" />
 </div>
 
 
@@ -258,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23985.jpg" />
 </div>
 
 
@@ -287,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23651.jpg" />
 </div>
 
 
@@ -313,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23302.jpg" />
 </div>
 
 
@@ -339,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23231.jpg" />
 </div>
 
 
@@ -366,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23127.jpg" />
 </div>
 
 
@@ -393,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22697.jpg" />
 </div>
 
 
@@ -422,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21786.jpg" />
 </div>
 
 
@@ -451,7 +505,7 @@ George Vondriska | Создайте станцию для беспроводно
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20526.jpg" />
 </div>
 
 
@@ -477,7 +531,7 @@ Dale Barnard | Искусство и Ремесла Стиль Greene & Greene (
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18493.jpg" />
 </div>
 
 
@@ -503,7 +557,7 @@ Woodsmith PBS | Woodsmith shop (Season 6) (2012) TVRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18319.jpg" />
 </div>
 
 
@@ -529,7 +583,7 @@ Brenda K.B. Anderson | Вязаные носки (2023) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18283.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ George Vondriska | Создать невозможный стол (2024) WEBRip
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18262.jpg" />
 </div>
 
 
@@ -582,7 +636,7 @@ Nicki LaFoille | Сумка с разделителем (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18095.jpg" />
 </div>
 
 
@@ -608,7 +662,7 @@ Cynthia Nims | Французская домашняя кухня: Основн�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17877.jpg" />
 </div>
 
 
@@ -634,7 +688,7 @@ Illene Sofranko | Консервирование 101 (2025) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17790.jpg" />
 </div>
 
 
@@ -645,58 +699,6 @@ Illene Sofranko | Консервирование 101 (2025) WEBRip [EN, RU]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:002DF1CD9B7FFEDD7760EFB3C220662CB4FB1B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797883   (17778) от 19.05.2025
-
-Nicki LaFoille | Трикотажное ноу-хау + толстовка с капюшоном (2025) WEBRip [EN, RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17778.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уютный свитшот — необходимая вещь для прохладной погоды, и этот уникальный узор сочетает в себе функциональность и стиль с карманами и профессиональными деталями, такими как люверсы, воротник-хомут и отделочная строчка. Никки ЛаФойл расскажет вам обо всех различных видах трикотажных тканей, от основ терминологии до процента растяжения и советов по шитью. Затем получите (   Читать дальше...   )Жанр: РукоделиеЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 02:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71459EA0E1E42211376FF88EA0F5E22B46AB419A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798022   (17765) от 19.05.2025
-
-Sara Bendrick | Выходные в саду (2021) WEBRip [EN, RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовы немного замарать руки? Ландшафтный дизайнер Сара Бендрик познакомит вас с восемью стильными пейзажами на этом мастер-классе по садовому дизайну для начинающих.Жанр: СадоводствоЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 01:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3EFDB693E87C6FC89483B72DC62AB2697E8E2D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1015703   (774362) от 11.05.2016
+
+Booker Ervin, Pony Poindexter, Larry Young - Gumbo! (1963) 1999, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Front O'Town [05:09]
+ 02.Happy Strut [02:58]
+ 03.Creole Girl (aka Melphamiene) [04:08]
+ 04.4-11-44 [03:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5BD275F82B688A6E3742B37D6DA1F97C029676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278001   (774303) от 23.01.2019
+
+Miles Davis - Bitches Brew Live (1969, 1970) 2011, Legacy Recordings [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Runs The Voodoo Down [10:27]
+02. Sanctuary [3:59]
+03. It’s About That Time/The Theme [9:45]
+04. Directions [7:31](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855995F1D73E28CAF573097667DD6F9BD6E64803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213040   (774296) от 14.03.2018
+
+VA - Jazz Covers of Pop Songs Album (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_774296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody to Love - Meg Birch 3:40
+02. I’m Not in Love - Olivia Keast 2:51
+03. Lovely Day - Nora & Will 3:44
+04. Sweet Dreams (Are Made of This) - Talisha Karrer 2:36(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F37F54B957FD2AB2D98B5F9699B0EB7DFF2FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125024   (773609) от 13.04.2017
+
+Eric Alexander & Vincent Herring - The Battle: Live At Smoke (2005) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_773609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues Up And Down [12:50]
+ 02.Road Song [10:49]
+ 03.Firm Roots [09:38]
+ 04.Ritual Dance [08:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC5FF4E7906C420F846C0ABF2A1A286FE0006036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124693   (773608) от 13.04.2017
 
 Valery Ponomarev - Live At Sweet Basil (1994) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Valery Ponomarev - Live At Sweet Basil (1994) Reservoir [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773608.jpg" />
+  <img src="Z:/picture/008/save_picture_773608.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ The Syd Lawrence Orchestra - Big Band Spectacular! (2016) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773607.jpg" />
+  <img src="Z:/picture/008/save_picture_773607.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Lonnie Smith & Alvin Queen - Lenox And Seventh (1985) 2000, Black And Blue [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773602.jpg" />
+  <img src="Z:/picture/008/save_picture_773602.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Dizzy Gillespie, Stan Getz, Coleman Hawkins - Sittin' In (1957) 2005, Verve [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773532.jpg" />
+  <img src="Z:/picture/008/save_picture_773532.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Chuck Mangione - Journey To A Rainbow (1983) [FLAC|Lossless|image + .cue] <Fusio
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773529.jpg" />
+  <img src="Z:/picture/008/save_picture_773529.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Tommy Emmanuel - It’s Never Too Late (2015) [FLAC|Lossless|image + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773310.jpg" />
+  <img src="Z:/picture/008/save_picture_773310.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Lovie Austin - 1924 - 1926 (1994) Classics [FLAC|Lossless|tracks + .cue] <Early 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773306.jpg" />
+  <img src="Z:/picture/008/save_picture_773306.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Quincy Jones - Big Band Bossa Nova (1962) 1992, Reissue, Mercury [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773292.jpg" />
+  <img src="Z:/picture/008/save_picture_773292.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Johnny Smith - All Soul (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773269.jpg" />
+  <img src="Z:/picture/008/save_picture_773269.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Oscar Peterson - We Get Requests Again 1959 - 1968 (2004) Universal [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773254.jpg" />
+  <img src="Z:/picture/008/save_picture_773254.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Cannonball Adderley Quintet - The Happy People (1972) Remaster, 2013, Univer
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773162.jpg" />
+  <img src="Z:/picture/008/save_picture_773162.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Pat Martino - Fire Dance (1997) [FLAC|Lossless|tracks + .cue] <Jazz, world, Folk
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773144.jpg" />
+  <img src="Z:/picture/008/save_picture_773144.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ The Dave Brubeck Quartet - Bossa Nova USA (2013) [FLAC|Lossless] <Bossa Nova, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772635.jpg" />
+  <img src="Z:/picture/008/save_picture_772635.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ VA - Electro Swing Of Spirit (2012) 4CD Box [FLAC|Lossless]<Jazz, Nu Jazz, Futur
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772622.jpg" />
+  <img src="Z:/picture/008/save_picture_772622.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ VA - The Complete Brusnwick & Vocalion Recordings Of Louis Prima And Wingy Manon
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772105.jpg" />
+  <img src="Z:/picture/008/save_picture_772105.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Dave Brubeck - One Alone: Solo Piano (1998) 2000, Telarc [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772100.jpg" />
+  <img src="Z:/picture/008/save_picture_772100.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Nguyen Le & Ngo Hong Quang - Ha Noi Duo (2017) [FLAC|Lossless|tracks + .cue] <Wo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772097.jpg" />
+  <img src="Z:/picture/008/save_picture_772097.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ The BBC Big Band - Harlem Nocturne (2004) Galaxy Music [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772008.jpg" />
+  <img src="Z:/picture/008/save_picture_772008.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Swingle Singers - Best Of The Classic Years (1963 - 1968) 2003, Helicon [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772002.jpg" />
+  <img src="Z:/picture/008/save_picture_772002.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Kazutoki Umezu - Diva (1988) NEC Avenue [FLAC|Lossless|tracks + .cue] <Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771993.jpg" />
+  <img src="Z:/picture/008/save_picture_771993.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Bohren & Der Club Of Gore - Piano Nights (2014) [FLAC|Lossless|tracks + .cue] <D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771985.jpg" />
+  <img src="Z:/picture/008/save_picture_771985.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ John Lewis - Grand Encounter (1956) Remaster, 2014, Universal[FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771734.jpg" />
+  <img src="Z:/picture/008/save_picture_771734.jpg" />
 </div>
 
 
@@ -628,123 +744,6 @@ John Lewis - Grand Encounter (1956) Remaster, 2014, Universal[FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1252EBA28A6184A421EC7D08613315BF916165F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016268   (771728) от 13.05.2016
-
-Archie Shepp Quartet feat. Annette Lowman - Lover Man (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Starts Are In Your Eyes [06:29]
- 02.Lover Man [06:12]
- 03.Brandnew World / Breaking A New Day [09:24]
- 04.Margy Pargy [05:39](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62D9430C9FB370990136805967AC0C6B6B60B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391793   (771640) от 22.06.2020
-
-The Oscar Peterson Trio - The Music From Fiorello! 1960 (1994) Verve [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Did I Fall In Love [4:33]
-02. Little Tin Box [4:14]
-03. Home Again [3:03]
-04. Till Tomorrow [2:44](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A3BEF0A026557306EB59DD8F7D6B96F8F54FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016223   (771592) от 13.05.2016
-
-Ken Navarro - Unbreakable Heart (2015) [FLAC|Lossless|tracks] <Contemporary Smooth Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaco Smiled
-02. One Night In Mumbai
-03. Unbreakable Heart
-04. Juliet(   Читать дальше...   )Жанр: Contemporary Smooth Jazz, FusionПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EE89834A178C9E20F8FDFB3F306A1DFEE558D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761446   (771422) от 07.04.2015
-
-George Benson - 33 альбома (1966 - 2015) [FLAC|Lossless]<Jazz, Bop, Fusion, Soul-Jazz, Latin Jazz, Smooth Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мне уже приходилось писать на трекере о Бенсоне, этом десятикратном обладателем премии "Гремми". Представляемая Вашему вниманию дискография позволяет проследить эволюцию творчества Бенсона.
-Альбом Benson Burner первый из альбомов (наряду с It's Uptown и Cookbook), где Бенсон зарекомендовал себя джазовым мастером гитары. А в последних Irreplaceable и Songs (   Читать дальше...   )1966 - It's Uptown
-1967 - The George Benson Cookbook
-1968 - Giblet Gravy
-1968 - Shape Of Things To Come(   Читать дальше...   )Жанр: Jazz, Bop, Fusion, Soul-Jazz, Latin Jazz, Smooth Jazz, Easy ListeningПродолжительность: 26:28:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA67812B6E0B39DA8C85D85BFF1241BEBC114884
 ```
 
 https://mybot314.ru/tekegram_catalog/

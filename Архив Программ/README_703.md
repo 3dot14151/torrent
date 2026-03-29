@@ -1,3 +1,29 @@
+###  Публикация: 1221438   (694789) от 24.04.2018
+
+ESET Internet Security 11.1.54.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694789.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET Internet Security - комплексное антивирусное решение, которое совмещает максимальную защиту и минимальное воздействие на систему. Расширенные технологии используют интеллектуальные методы для предотвращения атак вирусами, троянами, шпионским ПО, червями, рекламных ПО, руткитами и другим видами угроз, при этом не снижая системную производительность и не прерывая (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7DA74F1576634C336CE783563D7E0FC96A3F7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133327   (694749) от 12.05.2017
 
 MSMG ToolKit 7.2 [En]
@@ -6,7 +32,7 @@ MSMG ToolKit 7.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694749.jpg" />
+  <img src="Z:/picture/008/save_picture_694749.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Soft4Boost Easy Disc Burner 4.8.5.379 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694705.jpg" />
+  <img src="Z:/picture/008/save_picture_694705.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Soft4Boost Any Uninstaller 6.9.9.545 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694698.jpg" />
+  <img src="Z:/picture/008/save_picture_694698.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Soft4Boost Secure Eraser 4.1.1.373 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694690.jpg" />
+  <img src="Z:/picture/008/save_picture_694690.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Office Tab Enterprise 13.10 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694677.jpg" />
+  <img src="Z:/picture/008/save_picture_694677.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ MSI Afterburner 4.5.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694670.jpg" />
+  <img src="Z:/picture/008/save_picture_694670.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Adobe Photoshop Lightroom Classic CC 2018 7.3.1 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694654.jpg" />
+  <img src="Z:/picture/008/save_picture_694654.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Autodesk AutoCAD 2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694645.jpg" />
+  <img src="Z:/picture/008/save_picture_694645.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Rollback Rx Professional 10.7 Build 2702518295 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694614.jpg" />
+  <img src="Z:/picture/008/save_picture_694614.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ SamDrivers 17.5 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694613.jpg" />
+  <img src="Z:/picture/008/save_picture_694613.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Microsoft Windows Operating Systems Set Release By StartSoft 20-2017 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694612.jpg" />
+  <img src="Z:/picture/008/save_picture_694612.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ ESET NOD32 Antivirus 10.1.204.5 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694611.jpg" />
+  <img src="Z:/picture/008/save_picture_694611.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Total Commander 9.0a LitePack | PowerPack 2017.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694608.jpg" />
+  <img src="Z:/picture/008/save_picture_694608.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Wise Registry Cleaner 9.21.593 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694552.jpg" />
+  <img src="Z:/picture/008/save_picture_694552.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Soft4Boost Dup File Finder 6.2.7.451 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694548.jpg" />
+  <img src="Z:/picture/008/save_picture_694548.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Windows Firewall Control 4.7.5.0 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694546.jpg" />
+  <img src="Z:/picture/008/save_picture_694546.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ GPU-Z 0.8.9 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694543.jpg" />
+  <img src="Z:/picture/008/save_picture_694543.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ AnyMP4 Video Enhancement 1.0.28 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694541.jpg" />
+  <img src="Z:/picture/008/save_picture_694541.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Soft4Boost Document Converter 4.5.1.351 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694540.jpg" />
+  <img src="Z:/picture/008/save_picture_694540.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Soft4Boost Update Checker 6.7.7.349 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694539.jpg" />
+  <img src="Z:/picture/008/save_picture_694539.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Soft4Boost Any Audio Grabber 5.9.9.403 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694456.jpg" />
+  <img src="Z:/picture/008/save_picture_694456.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Process Lasso Pro 8.9.8.12 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694452.jpg" />
+  <img src="Z:/picture/008/save_picture_694452.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ TapinRadio Pro 1.72.7 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694447.jpg" />
+  <img src="Z:/picture/008/save_picture_694447.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Soft4Boost Toolbar Cleaner 4.5.9.307 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694440.jpg" />
+  <img src="Z:/picture/008/save_picture_694440.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ CoolUtils Total Movie Converter 4.1.22 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694439.jpg" />
+  <img src="Z:/picture/008/save_picture_694439.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Total Movie Converter - многофункциональная программ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:349CAD2E38601825586B3DDE2E75770531CDE233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027747   (694298) от 20.06.2016
-
-Soft4Boost Any Audio Record 4.9.9.403 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная утилита, которая позволяет записывать звуковые данные с различных источников, таких как микрофон, виниловые пластинки, аудио CD, видеоигры, интернет-радиопередачи, программы типа Real Player и Skype.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4A54F3064C5074C3E649576E9603DDD6636484
 ```
 
 https://mybot314.ru/tekegram_catalog/

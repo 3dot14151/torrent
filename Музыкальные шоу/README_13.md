@@ -1,3 +1,58 @@
+###  Публикация: 903337   (659049) от 30.05.2015
+
+Танцуй. Выпуск №9 (2015.05.30) SATRip
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_659049.jpg" />
+</div>
+
+
+###  Подробнее
+
+На Первом канале стартует беспрецедентный по размаху всероссийский танцевальный конкурс. Самые яркие участники из разных уголков страны – от Калининграда до Владивостока – окажутся на большой сцене, чтобы на глазах миллионов телезрителей сразиться за звание лучшего. Их имена пока не известны широкой публике, у них нет званий и наград, но каждый из них любит и умеет (   Читать дальше...   )Производство: РоссияТелекомпания: Первый каналЖанр: ТВ-ШоуРежиссер: Илья АвербухПродолжительность: 02:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D818D0C1D443C98F266AF79B91128838011062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 901021   (658876) от 30.05.2015
+
+Евровидение 2015. Финал / Eurovision 2015. Final (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_658876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конкурс песни Евровидение 2015 — 60 конкурс песни «Евровидение», который пройдёт в Австрии в 2015 году. Австрия стала страной-победительницей предыдущего конкурса «Евровидение 2014», прошедшего в Копенгагене (Дания), набрав 290 баллов с песней «Rise Like a Phoenix» в исполнении Кончиты Вурст, также были официально объявлены окончательные даты для обоих полуфиналов (   Читать дальше...   )01. Словения – Maraaya, Here for You
+02. Франция –Лиза Ангелль, N'oubliez pas
+03. Израиль – Надав Гедж, Golden Boy
+04. Эстония – Элина Борн и Стиг Ряста, Goodbye to Yesterday(   Читать дальше...   )Жанр: КонцертПродолжительность: 03:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E079F9A7811C1292ECAC191A3A57A6CD3AE5EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903612   (657772) от 31.05.2015
 
 Один в один. Сезон №3. Выпуск №16 (2015.05.31) SATRip
@@ -6,7 +61,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657772.jpg" />
+  <img src="Z:/picture/008/save_picture_657772.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655412.jpg" />
+  <img src="Z:/picture/008/save_picture_655412.jpg" />
 </div>
 
 
@@ -59,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652635.jpg" />
+  <img src="Z:/picture/008/save_picture_652635.jpg" />
 </div>
 
 
@@ -88,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652307.jpg" />
+  <img src="Z:/picture/008/save_picture_652307.jpg" />
 </div>
 
 
@@ -114,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649360.jpg" />
+  <img src="Z:/picture/008/save_picture_649360.jpg" />
 </div>
 
 
@@ -140,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646416.jpg" />
+  <img src="Z:/picture/008/save_picture_646416.jpg" />
 </div>
 
 
@@ -167,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646414.jpg" />
+  <img src="Z:/picture/008/save_picture_646414.jpg" />
 </div>
 
 
@@ -194,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644836.jpg" />
+  <img src="Z:/picture/008/save_picture_644836.jpg" />
 </div>
 
 
@@ -220,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640975.jpg" />
+  <img src="Z:/picture/008/save_picture_640975.jpg" />
 </div>
 
 
@@ -249,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639544.jpg" />
+  <img src="Z:/picture/008/save_picture_639544.jpg" />
 </div>
 
 
@@ -275,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635969.jpg" />
+  <img src="Z:/picture/008/save_picture_635969.jpg" />
 </div>
 
 
@@ -301,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631690.jpg" />
+  <img src="Z:/picture/008/save_picture_631690.jpg" />
 </div>
 
 
@@ -327,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629368.jpg" />
+  <img src="Z:/picture/008/save_picture_629368.jpg" />
 </div>
 
 
@@ -356,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625644.jpg" />
+  <img src="Z:/picture/008/save_picture_625644.jpg" />
 </div>
 
 
@@ -382,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623788.jpg" />
+  <img src="Z:/picture/008/save_picture_623788.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622011.jpg" />
+  <img src="Z:/picture/008/save_picture_622011.jpg" />
 </div>
 
 
@@ -434,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616833.jpg" />
+  <img src="Z:/picture/008/save_picture_616833.jpg" />
 </div>
 
 
@@ -460,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616538.jpg" />
+  <img src="Z:/picture/008/save_picture_616538.jpg" />
 </div>
 
 
@@ -489,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608825.jpg" />
+  <img src="Z:/picture/008/save_picture_608825.jpg" />
 </div>
 
 
@@ -515,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606555.jpg" />
+  <img src="Z:/picture/008/save_picture_606555.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604412.jpg" />
+  <img src="Z:/picture/008/save_picture_604412.jpg" />
 </div>
 
 
@@ -570,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603451.jpg" />
+  <img src="Z:/picture/008/save_picture_603451.jpg" />
 </div>
 
 
@@ -596,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601569.jpg" />
+  <img src="Z:/picture/008/save_picture_601569.jpg" />
 </div>
 
 
@@ -622,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600943.jpg" />
+  <img src="Z:/picture/008/save_picture_600943.jpg" />
 </div>
 
 
@@ -636,58 +691,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B4B2BE1EDB96CF6DC91BE1059F125630CE96448
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152139   (568796) от 21.07.2017
-
-Победитель (2017.07.21) SATRip (выпуск 7)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568796.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" запускает новый музыкально-развлекательный проект, участникам которого предстоит не только бороться друг с другом за симпатии зрителей и жюри, но и преодолевать самих себя. "Победитель" - это не только музыкальные дуэли, но и психологические поединки. Сильнейшие участники из всех выпусков соберутся в финале, где экспертное жюри (   Читать дальше...   )Телекомпания: Первый каналЖанр: Музыкальное ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:06:57Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D890B9514761FA3B9E606ABDADA7666F7A177220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304250   (565115) от 25.05.2019
-
-Голос. Дети (2019.05.24) HDTV [H.264/1080i] (сезон 6, выпуск 12) Спецвыпуск
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565115.jpg" />
-</div>
-
-
-###  Подробнее
-
-C 15 февраля в шоу Голос дети новые наставники. В этот раз ими выступят Валерий Меладзе, Пелагея и Светлана Лобода. В шестом сезоне будут участвовать вокалисты, возраст которых не превышает 14 лет. В кастинге принимали участие не только российские, но и зарубежные вокалисты. В слепых прослушиваниях будет участвовать примерно 120 человек. В процессе слепых прослушиваний (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FAC10C9947580459D287CBFCEB151AE499D98E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

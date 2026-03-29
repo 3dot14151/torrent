@@ -1,3 +1,117 @@
+###  Публикация: 541305   (759394) от 26.04.2014
+
+BBC: Тайны Тихого океана (6 серий из 6) / BBC: South Pacific (Wild Pacific) (2009) BDRip [720p]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один океан, двадцать тысяч островов, четверть общего количества воды в мире… Это южная часть Тихого океана. Его название общеизвестно, но и через 230 лет после эпического путешествия капитана Кука этот обширный океан остается малоизученным. В этой бескрайней синеве отдельные острова — приют для разнообразной редкой живности. И это один из самых чистых океанов. Бирюзовое море, острова как на открытках — похоже на земной рай. Но всё не так, как кажется…Жанр: ДокументальныйПеревод: Профессиональный одноголосыйПродолжительность: 6 x ~ 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C773CCF669ADEB2296A72FDEBFF9F9E8231621E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551926   (759303) от 26.04.2014
+
+ВВС: Тело человека (сериал) / The Human Body (1998) [H.264] DVDRip
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный сериал «Тело человека» — это очень необычный и увлекательный рассказ о том, как в действительности функционирует организм человека, как взаимодействуют между собой его основные системы и органы.
+
+Уникальные технологии съемки с использованием миниатюрных видеокамер, внедряемых в человеческое тело, и применение специально разработанной компьютерной графики, позволяют изумленному зрителю как бы изнутри проследить за работой и основными этапами развития организма человека: с момента зачатия до рождения, от младенчества к юности, от возраста половой зрелости к старости, угасанию и смерти.
+
+Сериал состоит из 8 фильмов по 50 минут:
+1. История жизни
+2. Обыкновенное чудо
+3. Первые шаги
+4. Период полового созревания
+5. Мозг человека(   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 06:33:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 716782   (758975) от 18.05.2016
+
+BBC: Исаак Ньютон: Последний чародей (Последний из магов) / Isaac Newton: The Last Magician (2013) HDTVRip [H.264/720p-LQ]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_758975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие считают Исаака Ньютона величайшим гением всех времён. При жизни его считали полубогом науки. Ньютон раскрыл саму природу света, что позволило нам изучить Вселенную. Благодаря нему мы можем рассчитывать движение и предсказывать изменения. Он объяснил силу, объясняющую всю Вселенную точной математической формулой - Закон всемирного тяготения.
+Ньютона почитают (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документально-постановочный, историяРежиссер: Ренни БартлетПеревод: Двухголосый закадровый профессиональный (Видеофильм ТВ)Субтитры: английские
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3482D5066CD1F485E2392B7EF43203C910937E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017856   (758966) от 18.05.2016
+
+Тайны невидимого мира / Mysteries of   the Unseen World (2013) HDRip [VO]
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_758966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм покажет разные закоулки мира. Покажет и расскажет про то, что раньше никто и никогда не видел и не слышит. То, что лежат за пониманием обычного мировоззрения и кажется на грани фантастики. Речь будет идти и о том, что существует, но то что упускает человеческий глаз. Миры, которые сложно заметить не вооруженным взглядом...Производство: США / Day's End PicturesЖанр: Документальный, Научно-популярныйРежиссер: Луи ШварцбергПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC9DD990E0C3185D9EC3148BF2EE46C0063211F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742187   (758900) от 18.05.2016
 
 Discovery. Беар Гриллс: Выбраться живым / Get Out Alive with Bear Grylls (2013) WEB-DLRip [H.264/720p-LQ] (серии 1-8 из 8)
@@ -6,7 +120,7 @@ Discovery. Беар Гриллс: Выбраться живым / Get Out Alive 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758900.jpg" />
+  <img src="Z:/picture/008/save_picture_758900.jpg" />
 </div>
 
 
@@ -32,7 +146,7 @@ NG. Суперсооружения. Мегазаводы. Экстремальн
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758832.jpg" />
+  <img src="Z:/picture/008/save_picture_758832.jpg" />
 </div>
 
 
@@ -58,7 +172,7 @@ NGW: Прайд / Pride (2014) HDTV [H.264/1080i-LQ] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758615.jpg" />
+  <img src="Z:/picture/008/save_picture_758615.jpg" />
 </div>
 
 
@@ -84,7 +198,7 @@ BBC. США: Великая история и большое надувател�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758497.jpg" />
+  <img src="Z:/picture/008/save_picture_758497.jpg" />
 </div>
 
 
@@ -110,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758332.jpg" />
+  <img src="Z:/picture/008/save_picture_758332.jpg" />
 </div>
 
 
@@ -136,7 +250,7 @@ NG: Крокодил против акулы / The Croc That Ate Jaws (2021) WEB
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758243.jpg" />
+  <img src="Z:/picture/008/save_picture_758243.jpg" />
 </div>
 
 
@@ -162,7 +276,7 @@ NG: Потоп / The Flood (2018) WEB-DL [H.264/1080p] (серии 1-2 из 2)
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758239.jpg" />
+  <img src="Z:/picture/008/save_picture_758239.jpg" />
 </div>
 
 
@@ -188,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758193.jpg" />
+  <img src="Z:/picture/008/save_picture_758193.jpg" />
 </div>
 
 
@@ -215,7 +329,7 @@ NG: Кремниевая долина / Valley of the Boom (2019) SATRip (сер
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758189.jpg" />
+  <img src="Z:/picture/008/save_picture_758189.jpg" />
 </div>
 
 
@@ -241,7 +355,7 @@ BBC: Horizon. Исчезнувшие племена человечества / T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758149.jpg" />
+  <img src="Z:/picture/005/save_picture_758149.jpg" />
 </div>
 
 
@@ -267,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758015.jpg" />
+  <img src="Z:/picture/008/save_picture_758015.jpg" />
 </div>
 
 
@@ -293,7 +407,7 @@ BBC: Египет. Тайны, скрытые под землей. Часть 2 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757918.jpg" />
+  <img src="Z:/picture/008/save_picture_757918.jpg" />
 </div>
 
 
@@ -319,7 +433,7 @@ BBC: История хирургии. Запасные части [3 из 5] / B
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757914.jpg" />
+  <img src="Z:/picture/008/save_picture_757914.jpg" />
 </div>
 
 
@@ -346,7 +460,7 @@ NG: Увлекательная зоология: лучшее / Ultimate Animals
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757855.jpg" />
+  <img src="Z:/picture/008/save_picture_757855.jpg" />
 </div>
 
 
@@ -372,7 +486,7 @@ BBC: Амазонка - Великая река мира / BBC: Amazon: super ri
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757840.jpg" />
+  <img src="Z:/picture/008/save_picture_757840.jpg" />
 </div>
 
 
@@ -398,7 +512,7 @@ BBC. Тайны мозга. Патология / The Brain: A Secret History. Br
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757763.jpg" />
+  <img src="Z:/picture/008/save_picture_757763.jpg" />
 </div>
 
 
@@ -424,7 +538,7 @@ BBC. Horizon: Не верь глазам своим / Is Seeing Believing? (2010
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757658.jpg" />
+  <img src="Z:/picture/008/save_picture_757658.jpg" />
 </div>
 
 
@@ -450,7 +564,7 @@ Discovery. Американские гангстеры / American Gangsters (200
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757329.jpg" />
+  <img src="Z:/picture/008/save_picture_757329.jpg" />
 </div>
 
 
@@ -478,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757172.jpg" />
+  <img src="Z:/picture/008/save_picture_757172.jpg" />
 </div>
 
 
@@ -504,7 +618,7 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757007.jpg" />
+  <img src="Z:/picture/008/save_picture_757007.jpg" />
 </div>
 
 
@@ -530,7 +644,7 @@ NGW: Львы на деревьях / Tree Climbing Lions (2018) HDTV [H.264/108
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756834.jpg" />
+  <img src="Z:/picture/008/save_picture_756834.jpg" />
 </div>
 
 
@@ -556,7 +670,7 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756833.jpg" />
+  <img src="Z:/picture/008/save_picture_756833.jpg" />
 </div>
 
 
@@ -567,111 +681,6 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23028D124601F91E1E6845891F3621644F3ADCA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280860   (756710) от 05.02.2019
-
-NGW: Смертельно опасные монстры Австралии / Australia's Deadly Monsters (2017) HDTVRip [H.264/1080i-LQ] (серии 1-3 из 3)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756710.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой уникальной передаче вы услышите истории о столкновениях со смертельно опасными животными в Австралии.Производство: Австралия, Nat Geo WildЖанр: Документальный, природа, флора, фаунаРежиссер: Мартин БекерПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: серии x ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB06F52950AF0AAC63095B0C6A2ACC4195729C41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280855   (756708) от 05.02.2019
-
-BBC. Всё о мире обезьян / Monkeys Revealed (2014) HDTVRip (серии 3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот милый сериал исследует захватывающий мир приматов. Авторы совершат кругосветное путешествие, чтобы посмотреть на обезьян и лемуров и узнать, насколько люди близки к этим потрясающим животным.Производство: Великобритания, British Broadcasting Corporation (BBC)Жанр: Документальный, природа, флора, фаунаРежиссер: Джилз Баджер, Гэвин Бойлэнд, Рози ТомасПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 3 x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09C9A39DCE1CA6A8F3FB8C20DFEF568ECCAEB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280858   (756705) от 05.02.2019
-
-NGW: Смертоносная Африка. Пустыни / Africa's Deadly Kingdom (2018) HDTV [H.264/1080i-LQ]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об особенностях обитания наиболее примечательных животных континента Африка в их нескончаемой борьбе за выживание.Производство: Южная Африка, Lion Mountain Media, Nat Geo WildЖанр: Документальный, природа, флора, фаунаПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D11D1CFAE4A38A3915499F66CA4DB1C87800162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280934   (756693) от 05.02.2019
-
-BBC: Скрытые убийцы в домах послевоенного времени / Hidden Killers of The Post War Home (2016) HDTVRip [H.264/1080p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы запомнили 50-е как очень спокойное время, когда никто не запирал двери, соседи могли в любой момент заглянуть, чтобы попросить немного сахара, и на улицах можно было гулять без опаски. Но, как бы иронично это ни звучало, множество скрытых угроз просочились в дома после того, как люди перестали экономить.
-В этот раз доктор Сюзанна Липскомб, автор передач о скрытых (   Читать дальше...   )Производство: Великобритания, Modern Television, British Broadcasting Corporation (BBC)Жанр: Документальный, научно-популярныйРежиссер: Сюзанна ФиллипсПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B1201A46017985AC17999B8D1D382B003DE50E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ VA - Новинки Шансона Жаркое лето.: Сборник бла
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5930.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5930.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Русская 30-ка хитов 17 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4686.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Новые хитовые песни 2025, Часть 7 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4644.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4644.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Новые хитовые песни 2025, Часть 8 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4637.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Лучшая дискотека шансона - 20 (2025) [FLAC|Lossless|W
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4635.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Русская 30-ка хитов 16 (Новые русские песни)
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4634.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - 50 лучших хитов, Часть 4 (2025) [FLAC|Lossless|WEB-DL|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4631.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Новые хитовые песни 2025, Часть 9 (2025) [FLAC|Lossle
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4630.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - 50 лучших хитов, Часть 5 (2025) [FLAC|Lossless|WEB-DL|track
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4629.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Шансон премьера 2025 сентябрь (Новые песни.
 >>Русский Шансон (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60.jpg" />
 </div>
 
 

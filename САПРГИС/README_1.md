@@ -1,3 +1,56 @@
+###  Публикация: 1117542   (816376) от 23.03.2017
+
+Autodesk AutoCAD 2018 О.49.0.0 [Ru]
+
+>>След.
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_816376.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoCAD 2018 – это больше, чем проектирование. Придавайте форму окружающему вас миру с помощью мощных Интернет-ориентированных инструментов AutoCAD – САПР, которая разработана компанией Autodesk. Продукт позволяет создавать впечатляющие 3D-проекты, с высокой скоростью выпускать рабочую документацию и совместно работать в облаке. Доступ к проектам возможен не только (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0485F33248FE8664A6607FBFBCF5EFBF33B8DF8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008367   (812952) от 19.04.2016
+
+Autodesk Robot Structural Analysis Pro 2017 30.0.0.5913 (x64) [Ru/En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>САПР/ГИС
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_812952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autodesk Robot Structural Analysis Professional 2017 - программный комплекс для расчета строительных конструкций и сооружений на прочность, устойчивость и динамические воздействия. Расчет выполняется методом конечных элементов.
+Программа имеет сертификат соответствия РОСС US.СП15.H00174 № 0842773.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5833F2A9545BB41DEE6B35077901FFB121CDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008352   (812802) от 19.04.2016
 
 Autodesk Advance Steel 2017 Build 722 (x64) [Multi/Ru]
@@ -6,7 +59,7 @@ Autodesk Advance Steel 2017 Build 722 (x64) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812802.jpg" />
+  <img src="Z:/picture/008/save_picture_812802.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ Autodesk AutoCAD Civil 3D 2017 11.0.659.0 (x64) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812798.jpg" />
+  <img src="Z:/picture/008/save_picture_812798.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ Nemetschek Allplan 2015 (30 Years Edition) Build 28.501.4211.1019 (x64) [Multi/R
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807175.jpg" />
+  <img src="Z:/picture/008/save_picture_807175.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ Autodesk AutoCAD Design Suite Ultimate 2016 (x86, x64) [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802668.jpg" />
+  <img src="Z:/picture/008/save_picture_802668.jpg" />
 </div>
 
 
@@ -110,7 +163,7 @@ Autodesk EAGLE Premium 8.0.1 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786251.jpg" />
+  <img src="Z:/picture/008/save_picture_786251.jpg" />
 </div>
 
 
@@ -136,7 +189,7 @@ T-FLEX CAD 15.0.30.0 [Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786004.jpg" />
+  <img src="Z:/picture/008/save_picture_786004.jpg" />
 </div>
 
 
@@ -162,7 +215,7 @@ BricsCad Platinum 18.1.09.51732 [RU]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784535.jpg" />
 </div>
 
 
@@ -188,7 +241,7 @@ Autodesk AutoCAD Raster Design 2017 build 4.0.19.0 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758711.jpg" />
+  <img src="Z:/picture/008/save_picture_758711.jpg" />
 </div>
 
 
@@ -216,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741110.jpg" />
+  <img src="Z:/picture/008/save_picture_741110.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ Bentley MicroStation CONNECT Edition 10.00.00.25 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728066.jpg" />
+  <img src="Z:/picture/008/save_picture_728066.jpg" />
 </div>
 
 
@@ -270,7 +323,7 @@ IMSI TurboCAD 2016 Pro Platinum 23.1 Build 31.1 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705471.jpg" />
+  <img src="Z:/picture/008/save_picture_705471.jpg" />
 </div>
 
 
@@ -296,7 +349,7 @@ Autodesk СПДС модуль 5.0 для продуктов семейства 
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705285.jpg" />
+  <img src="Z:/picture/008/save_picture_705285.jpg" />
 </div>
 
 
@@ -322,7 +375,7 @@ AspenTech AspenONE 8.8 [En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696014.jpg" />
+  <img src="Z:/picture/008/save_picture_696014.jpg" />
 </div>
 
 
@@ -348,7 +401,7 @@ Autodesk Inventor Professional 2019 Build 136 [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686601.jpg" />
+  <img src="Z:/picture/008/save_picture_686601.jpg" />
 </div>
 
 
@@ -374,7 +427,7 @@ Autodesk AutoCAD Plant 3D 2019 (M046.04)  [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684556.jpg" />
+  <img src="Z:/picture/008/save_picture_684556.jpg" />
 </div>
 
 
@@ -400,7 +453,7 @@ Autodesk AutoCAD Mechanical 2019 (23.0.46.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684444.jpg" />
+  <img src="Z:/picture/008/save_picture_684444.jpg" />
 </div>
 
 
@@ -426,7 +479,7 @@ Autodesk AutoCAD Electrical 2019 (16.0.49.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684442.jpg" />
+  <img src="Z:/picture/008/save_picture_684442.jpg" />
 </div>
 
 
@@ -452,7 +505,7 @@ Autodesk AutoCAD Architecture 2019.0.1 (8.1.60.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684434.jpg" />
+  <img src="Z:/picture/008/save_picture_684434.jpg" />
 </div>
 
 
@@ -478,7 +531,7 @@ Autodesk Advance Steel 2019 (1578) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682335.jpg" />
+  <img src="Z:/picture/008/save_picture_682335.jpg" />
 </div>
 
 
@@ -505,7 +558,7 @@ Autodesk Navisworks Manage 2019 (16.0.1326.55) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682327.jpg" />
+  <img src="Z:/picture/008/save_picture_682327.jpg" />
 </div>
 
 
@@ -531,7 +584,7 @@ Autodesk AutoCAD MEP 2019 (8.1.48.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682324.jpg" />
+  <img src="Z:/picture/008/save_picture_682324.jpg" />
 </div>
 
 
@@ -557,7 +610,7 @@ Autodesk Robot Structural Analysis Professional 2019 (32.0.0.6490) [Multi/Ru]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680564.jpg" />
+  <img src="Z:/picture/008/save_picture_680564.jpg" />
 </div>
 
 
@@ -583,7 +636,7 @@ Autodesk AutoCAD Civil 3D 2019 (13.0.613.0) [Ru/En]
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680548.jpg" />
+  <img src="Z:/picture/008/save_picture_680548.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>САПР/ГИС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676161.jpg" />
+  <img src="Z:/picture/008/save_picture_676161.jpg" />
 </div>
 
 
@@ -621,58 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06FB09C30369D14A521429C1EE09430169ABA80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901727   (661748) от 27.05.2015
-
-CST Studio Suite 2015.01 SP1 [En]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интегрированная среда проектирования, предоставляющая пользователю доступ к широкому набору вычислительных технологий и объединяющая средства анализа схем и мультифизических эффектов.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D3B4C8EB949610DF4B92D7F48202975DCF31F8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139837   (658549) от 03.06.2017
-
-Autodesk СПДС модуль 6.0 для продуктов семейства AutoCAD 2018 [Ru]
-
->>Софт и оболочки для специалистов, Прочее
->>САПР/ГИС
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autodesk СПДС модуль – новое дополнение к продуктам семейства AutoCAD*, предназначенное для оформления рабочих чертежей в соответствии с принятыми в России стандартами системы проектной документации для строительства (СПДС). Этот модуль дает возможность оформлять чертежи в строгом соответствии с требованиями ГОСТ 21.1101-2009* «Основные требования к проектной и рабочей (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A06A90BD0FB425554E150E09C387E8BDA2F636F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

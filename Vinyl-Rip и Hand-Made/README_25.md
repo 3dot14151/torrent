@@ -1,3 +1,235 @@
+###  Публикация: 1039541   (594676) от 02.08.2016
+
+VA - Famous Jazz Pianists/Знаменити Джаз Пианисти (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594676.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bill Evans - Време За Любов (Time For Love)
+A2 Art Tatum - Блус В Сърцето Ми (Blues In My Heart)
+A3 Bill Evans - Среднощно Настроение (Midnight Mood)
+A4 Art Tatum - Хумореска (Humoresque)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABD8BC7D5A01F33BC91F52D3EAD1DEA6C0C8E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210967   (594606) от 05.05.2022
+
+Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я напишу письмо
+02. Играйте простую мелодию
+03. Однажды летним днем
+(И. Берлин)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039533   (594577) от 02.08.2016
+
+VA - Famous Jazz Singers/Знаменитые Джазовые Вокалистки (1978) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Soul-Jazz, Smooth Jazz, Jazz-Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594577.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dinah Washington - Willow, Weep For Me
+A2 Ella Fitzgerald - April In Paris
+A3 Nancy Wilson - The Boy From Ipanema
+A4 Carmen McRae - Exactly Like You(   Читать дальше...   )Жанр: Soul-Jazz, Smooth Jazz, Jazz-FunkПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC26ADCA15833D7CA36C185E8FAB32048C1FE669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039535   (594568) от 02.08.2016
+
+VA - Famous Jazz Singers/Знаменитые Джазовые Вокалисты (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Smooth Jazz, Jazz-Funk, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594568.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Louis Armstrong - I Get A Kick Out Of You
+A2 Nat King Cole - Stardust
+A3 Frank Sinatra - I've Got You Under My Skin
+A4 Tony Bennett - I've Grown Accustomed To Her Face(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, SwingПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9C3382778439949BC6EDAB0034DD6BE31F43BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039556   (594516) от 02.08.2016
+
+Московский Диксиленд "Капелла Дикси" (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixieland>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Олимпийский Сувенир
+02. Негритянская Песня
+03. Две Забытые Мелодии
+04. В Раздумье(   Читать дальше...   )Жанр: Jazz, DixielandПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C29062D77F0B1F8A3577109D6BD00F8AF65079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039521   (594514) от 02.08.2016
+
+Арсенал - Своими Руками (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594514.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Тайна (Mystery)
+А2 Посвящение Махавшину (Dedication To Mahavishnu)
+В1 Свет На Пути (Light On The Way)
+В2 Сюита В Фа Миноре (Suite In F Minor)Жанр: Jazz, FusionПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 806923   (594171) от 22.07.2014
+
+Van Halen - 1984 (1984)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594171.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. 1984 (1:07)
+A2. Jump (4:04)
+A3. Panama (3:33)
+A4. Top Jimmy (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D06854D4B32B2584F86081D4E764026D44453965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150247   (594036) от 15.07.2017
+
+VA - Песни На Стихи Андрея Вознесенского (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_594036.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Николай Гнатюк - Танец На Барабане
+A2 Ольга Пирак - Два Стрижа
+A3 Петер Тилс - Белый Шиповник
+A4 Яак Йоала - Подберу Музыку(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548801   (593957) от 06.05.2022
 
 The Ray Conniff Singers - It's The Talk Of The Town (1959) 1971 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
@@ -6,7 +238,7 @@ The Ray Conniff Singers - It's The Talk Of The Town (1959) 1971 [FLAC 2.0|192/24
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593957.jpg" />
+  <img src="Z:/picture/008/save_picture_593957.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Ray Conniff/Рэй Коннифф - Смех Под Дождем (1976) [FLAC 2.
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593733.jpg" />
+  <img src="Z:/picture/008/save_picture_593733.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Ray Conniff/Рэй Коннифф - Голубая Рапсодия (1987) [FLAC
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593359.jpg" />
+  <img src="Z:/picture/008/save_picture_593359.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Twisted Sister - Studio Albums (8 releases) (1982 - 2006) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592844.jpg" />
+  <img src="Z:/picture/008/save_picture_592844.jpg" />
 </div>
 
 
@@ -123,7 +355,7 @@ Opeth - Дискография (19 albums) (1995 - 2019) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592470.jpg" />
+  <img src="Z:/picture/008/save_picture_592470.jpg" />
 </div>
 
 
@@ -152,7 +384,7 @@ Mastodon - Дискография (15 albums) (2001 - 2021) hand made [restored,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592466.jpg" />
+  <img src="Z:/picture/008/save_picture_592466.jpg" />
 </div>
 
 
@@ -181,7 +413,7 @@ Sting - Collection (8 Albums) (1985 - 2003) hand made [restored, declipped] [FLA
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592446.jpg" />
+  <img src="Z:/picture/008/save_picture_592446.jpg" />
 </div>
 
 
@@ -210,7 +442,7 @@ VA - Звезды Мехико (1969) (Л. Барашков, Т. Миансар�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590222.jpg" />
+  <img src="Z:/picture/008/save_picture_590222.jpg" />
 </div>
 
 
@@ -239,7 +471,7 @@ Bad Company - Rough Diamonds (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590099.jpg" />
+  <img src="Z:/picture/008/save_picture_590099.jpg" />
 </div>
 
 
@@ -268,7 +500,7 @@ VA - Белый Теплоход - Золотые шлягеры 70-х (2000) Co
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589714.jpg" />
+  <img src="Z:/picture/008/save_picture_589714.jpg" />
 </div>
 
 
@@ -297,7 +529,7 @@ Billy Talent - Studio Albums (7 releases) (1999 - 2022) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589389.jpg" />
+  <img src="Z:/picture/008/save_picture_589389.jpg" />
 </div>
 
 
@@ -326,7 +558,7 @@ Electric Light Orchestra - Out Of The Blue (1977) 2LP  [FLAC 2.0 24/192|image (V
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588313.jpg" />
+  <img src="Z:/picture/008/save_picture_588313.jpg" />
 </div>
 
 
@@ -355,7 +587,7 @@ Sandra - Everlasting Love (1988) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synthpop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585889.jpg" />
+  <img src="Z:/picture/008/save_picture_585889.jpg" />
 </div>
 
 
@@ -390,7 +622,7 @@ Boston - Don't Look Back (1978) Santa Maria Press [FLAC 2.0|96/24|image+.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584759.jpg" />
+  <img src="Z:/picture/008/save_picture_584759.jpg" />
 </div>
 
 
@@ -419,7 +651,7 @@ Ray Charles - Selected Songs (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Funk,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584456.jpg" />
+  <img src="Z:/picture/008/save_picture_584456.jpg" />
 </div>
 
 
@@ -448,7 +680,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584429.jpg" />
+  <img src="Z:/picture/008/save_picture_584429.jpg" />
 </div>
 
 
@@ -477,7 +709,7 @@ C.C. Catch - Diamonds: Her Greatest Hits (1988) [FLAC 2.0|192/24|image +.cue|Vin
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584266.jpg" />
+  <img src="Z:/picture/008/save_picture_584266.jpg" />
 </div>
 
 
@@ -506,7 +738,7 @@ VA - Rock'n'Roll (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock & Roll>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584015.jpg" />
+  <img src="Z:/picture/008/save_picture_584015.jpg" />
 </div>
 
 
@@ -520,249 +752,6 @@ A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810810   (582453) от 06.08.2014
-
-Bad Company - 10 From 6 (1985)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582453.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Can't Get Enough (4:18)
-A2. Feel Like Makin' Love (5:12)
-A3. Run With The Pack (5:25)
-A4. Shooting Star (6:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DCA37F860681E62F864175C74038B3DA628726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359638   (581771) от 06.07.2011
-
-Billy Idol - Rebel Yell (1983) [APE 2.0 24/192|image (Vinyl-Rip)]<Pop Rock/Synth-Рop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581771.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-A1 Rebel Yell [04:47]
-A2 Daytime Drama [04:04]
-A3 Eyes Without A Face [04:58]
-A4 Blue Highway [05:08]
-Side 2
-B1 Flesh For Fantasy [04:37]
-B2 Catch My Fall [03:43]
-B3 Crank Call [04:00]
-B4 (Do Not) Stand In The Shadows [03:12](   Читать дальше...   )1983Жанр: Pop Rock/Synth-РopПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360094   (580828) от 07.07.2011
-
-Sandra - Into A Secret Land (1988) [APE 2.0 24/96|image (Vinyl-Rip)]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Secret Land [04:42]
- 02.  We'll Be Together [04:09]
- 03.  Heaven Can Wait [04:02]
- 04.  Just Like Diamonds [05:28]
- 05.  Around My Heart [03:16]
- 06.  Crazy Joliet [04:09]
- 07.  La Vista De Luna [03:43]
- 08.  Celebrate Your Life [03:26]
- 09.  Children of England [03:51]Жанр: Synth-popПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042170   (580390) от 11.08.2016
-
-Uriah Heep - Firefly (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hanging Tree (3:43)
-02. Been Away Too Long (5:04)
-03. Who Needs Me (3:39)
-04. Wise Man (4:43)(   Читать дальше...   )Производство: Bronze Records - 28 520 XOTЖанр: Hard RockПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18598CB474D2996289B3A154775FAF9A1859A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554401   (577365) от 30.05.2022
-
-Def Leppard - Diamond Star Halos (2022) 2xLP [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577365.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Take What You Want
-A2. Kick
-A3. Fire It Up
-A4. This Guitar(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:01:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF43303927AE49C36F90EDDB911E2110F73B111D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303227   (575535) от 19.05.2019
-
-Rammstein - Rammstein (2019) [FLAC|192/24|Lossless|tracks|Vinyl] <Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deutschland
-02. Radio
-03. Zeig Dich
-04. Ausländer(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF67764A229D91956D541E6046AE755E136003E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921490   (575418) от 25.07.2015
-
-Supertramp - ...famous last words... (1982) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575418.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Crazy (4:45)
-A2. Put On Your Old Brown Shoes (4:21)
-A3. It's Raining Again (4:26)
-A4. Bonnie (5:39)(   Читать дальше...   )Производство: A&M RecordsЖанр: Progressive RockПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15F840FC44121FF0E328E6774C5C2D9CF99DCE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921097   (575279) от 25.07.2015
-
-Владимир Высоцкий - Vladimir Vissotsky (1977) [APE|image + .cue|2.0 24/192(Vinyl-Rip)]<Авторская песня>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы вращаем Землю [3:31]
-02. Вариации на цыганские темы [4:36]
-03. Тот, который не стрелял [3:03]
-04. Прерванный полёт [4:40](   Читать дальше...   )Жанр: Авторская песняФормат: 24bit/192kHzПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D8FA1CF173D7C6736ECED467DDEAEEDEC882BA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

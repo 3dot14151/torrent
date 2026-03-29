@@ -6,7 +6,7 @@ GoldWave 6.27 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852091.jpg" />
+  <img src="Z:/picture/008/save_picture_852091.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Lyn 1.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852084.jpg" />
+  <img src="Z:/picture/008/save_picture_852084.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852045.jpg" />
+  <img src="Z:/picture/008/save_picture_852045.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ Electro Spectre - Beautiful Lies (2016) Limited Edition [FLAC|Lossless|image + .
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852043.jpg" />
+  <img src="Z:/picture/008/save_picture_852043.jpg" />
 </div>
 
 
@@ -117,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852042.jpg" />
+  <img src="Z:/picture/008/save_picture_852042.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Battery Health 5.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852041.jpg" />
+  <img src="Z:/picture/008/save_picture_852041.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ TSR Watermark Image Software Pro 3.5.5.6 RePack (& Portable) by TryRooM [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852040.jpg" />
+  <img src="Z:/picture/008/save_picture_852040.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ ThunderSoft Flash to Video Converter 2.3.8.0 RePack (& Portable) by 78Sergey-Din
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852038.jpg" />
+  <img src="Z:/picture/008/save_picture_852038.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Ultra Adware Killer 4.2.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852037.jpg" />
+  <img src="Z:/picture/008/save_picture_852037.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ VA - Gravity South (Mixed by Protoculture) (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852033.jpg" />
+  <img src="Z:/picture/008/save_picture_852033.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ VA - Progressive Goa Trance 2017 Vol.1 (2017) [MP3|320 Kbps] <Trance, Psy-Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852031.jpg" />
+  <img src="Z:/picture/008/save_picture_852031.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ VA - Vocal Trance Classics 006 (2017) [FLAC|Lossless|WEB-DL|tracks] <Trance, Voc
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852027.jpg" />
+  <img src="Z:/picture/008/save_picture_852027.jpg" />
 </div>
 
 
@@ -337,7 +337,7 @@ Neelix - On My Own (2017) [MP3|320 Kbps] <Psytrance,Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852021.jpg" />
+  <img src="Z:/picture/008/save_picture_852021.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ Tipard Video Converter Ultimate 9.0.20 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851987.jpg" />
+  <img src="Z:/picture/008/save_picture_851987.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Tipard Video Enhancer 1.0.10 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851985.jpg" />
+  <img src="Z:/picture/008/save_picture_851985.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851978.jpg" />
+  <img src="Z:/picture/008/save_picture_851978.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Sidify Apple Music Converter 1.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851976.jpg" />
+  <img src="Z:/picture/008/save_picture_851976.jpg" />
 </div>
 
 
@@ -471,7 +471,7 @@ Tipard All Music Converter 7.1.52 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851971.jpg" />
+  <img src="Z:/picture/008/save_picture_851971.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Icecream Screen Recorder Pro 4.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851967.jpg" />
+  <img src="Z:/picture/008/save_picture_851967.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Navicat Premium 11.2.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851966.jpg" />
+  <img src="Z:/picture/008/save_picture_851966.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851964.jpg" />
+  <img src="Z:/picture/008/save_picture_851964.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851955.jpg" />
+  <img src="Z:/picture/008/save_picture_851955.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851951.jpg" />
+  <img src="Z:/picture/008/save_picture_851951.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Book Collector Pro 20.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851949.jpg" />
+  <img src="Z:/picture/008/save_picture_851949.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ Grids for Instagram 6.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851948.jpg" />
+  <img src="Z:/picture/008/save_picture_851948.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ OmniGraffle Pro 7 v7.15.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851947.jpg" />
+  <img src="Z:/picture/008/save_picture_851947.jpg" />
 </div>
 
 

@@ -1,3 +1,113 @@
+###  Публикация: 1330681   (336854) от 12.10.2019
+
+Fenetre 0.7.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Держите окно открытым, всегда поверх всего остального.
+Картинка в картинке теперь доступно на вашем Mac.
+Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2019Разработчик: Yoann MoinetПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE0A3F50607AE6C4E2BEBC7240F276D50C8BD3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330632   (336852) от 12.10.2019
+
+DropDMG 3.5.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
+Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2019Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Голландский, Датский и д.р.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0B2198DB28B5E7E477747D336284E33FF52AE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330644   (336851) от 12.10.2019
+
+Studies 1.7.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
+
+Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: The Mental FacultyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B635054DFD0BE8AD0B2FF1AEF43A0D8EAFFEFAD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330672   (336850) от 12.10.2019
+
+Tri-BACKUP Pro 9 v9.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автоматическая защита и сохранение резервных копий ваших документов, файлов и информации с жестких дисков с помощью Tri-BACKUP. Выбор предопределенного действия или планирование периодической операции, такой как резервное копирование диска, синхронизацию папок или дисков и даже дренирование временных кэшей и папок или автоматический запуск сценариев или приложений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TRI-EDREПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:799DAA3B87DCDC85F2FE9F51361CD6E39A09993F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330669   (336848) от 12.10.2019
 
 iRingg 1.0.42 [En]
@@ -6,7 +116,7 @@ iRingg 1.0.42 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336848.jpg" />
+  <img src="Z:/picture/008/save_picture_336848.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ OmniGraffle Pro 7 v7.11.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336847.jpg" />
+  <img src="Z:/picture/008/save_picture_336847.jpg" />
 </div>
 
 
@@ -58,7 +168,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336846.jpg" />
+  <img src="Z:/picture/008/save_picture_336846.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ Mate Translate 6.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336844.jpg" />
+  <img src="Z:/picture/008/save_picture_336844.jpg" />
 </div>
 
 
@@ -115,7 +225,7 @@ Renamer 6.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336736.jpg" />
+  <img src="Z:/picture/008/save_picture_336736.jpg" />
 </div>
 
 
@@ -141,7 +251,7 @@ Power Manager 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336733.jpg" />
+  <img src="Z:/picture/008/save_picture_336733.jpg" />
 </div>
 
 
@@ -170,7 +280,7 @@ Audirvana 3.5.23 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336730.jpg" />
+  <img src="Z:/picture/008/save_picture_336730.jpg" />
 </div>
 
 
@@ -196,7 +306,7 @@ Carbon Copy Cloner 5 v5.1.12 (5830) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336728.jpg" />
+  <img src="Z:/picture/008/save_picture_336728.jpg" />
 </div>
 
 
@@ -225,7 +335,7 @@ Things 3 v3.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336726.jpg" />
+  <img src="Z:/picture/008/save_picture_336726.jpg" />
 </div>
 
 
@@ -253,7 +363,7 @@ iVI Video Converter 4 v4.650 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336725.jpg" />
+  <img src="Z:/picture/008/save_picture_336725.jpg" />
 </div>
 
 
@@ -280,7 +390,7 @@ The Clock - The Best World Clock 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336723.jpg" />
+  <img src="Z:/picture/008/save_picture_336723.jpg" />
 </div>
 
 
@@ -308,7 +418,7 @@ Typeface 2 v2.61 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336717.jpg" />
+  <img src="Z:/picture/008/save_picture_336717.jpg" />
 </div>
 
 
@@ -337,7 +447,7 @@ Librarian Pro 5 v5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336605.jpg" />
+  <img src="Z:/picture/008/save_picture_336605.jpg" />
 </div>
 
 
@@ -363,7 +473,7 @@ Scrivener 3 v3.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336603.jpg" />
+  <img src="Z:/picture/008/save_picture_336603.jpg" />
 </div>
 
 
@@ -390,7 +500,7 @@ TablePlus 2.9 (263) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336599.jpg" />
+  <img src="Z:/picture/008/save_picture_336599.jpg" />
 </div>
 
 
@@ -417,7 +527,7 @@ Sidify Apple Music Converter 1.4.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336589.jpg" />
+  <img src="Z:/picture/008/save_picture_336589.jpg" />
 </div>
 
 
@@ -444,7 +554,7 @@ Path Finder 8.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336522.jpg" />
+  <img src="Z:/picture/008/save_picture_336522.jpg" />
 </div>
 
 
@@ -470,7 +580,7 @@ Ableton Live Suite 10 v10.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336472.jpg" />
+  <img src="Z:/picture/008/save_picture_336472.jpg" />
 </div>
 
 
@@ -496,7 +606,7 @@ Alien Skin Eye Candy 7 v7.2.3.75 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336469.jpg" />
+  <img src="Z:/picture/008/save_picture_336469.jpg" />
 </div>
 
 
@@ -522,7 +632,7 @@ Records 1.6.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336441.jpg" />
+  <img src="Z:/picture/008/save_picture_336441.jpg" />
 </div>
 
 
@@ -549,7 +659,7 @@ WiFi Signal 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336431.jpg" />
+  <img src="Z:/picture/008/save_picture_336431.jpg" />
 </div>
 
 
@@ -576,7 +686,7 @@ Paragon NTFS for Mac 15.5.62
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336372.jpg" />
+  <img src="Z:/picture/008/save_picture_336372.jpg" />
 </div>
 
 
@@ -589,117 +699,6 @@ Paragon NTFS for macOS - единственный на рынке продукт
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1D47A78689F9E16E57C27327499216C9BBA139E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074985   (336239) от 20.11.2016
-
-SSH Config Editor 1.5.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный инструмент для управления файлами конфигурации SSH клиента OpenSSH. Вы можете добавить или изменить идентичность файлов, порт экспедирования  с графическим предварительным просмотром ), а также любой другой вариант SSH конфигурации.
-
-Особенности:
-• Добавление / изменение файлы удостоверений(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18 ноября 2016Разработчик: Petr HejkalПоддерживаемая ОС: macOS10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14FB910FB7463B1528DD10F1ACD0E3EA970A2454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420125   (335897) от 30.10.2020
-
-Slidepad 1.0.37 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335897.jpg" />
-</div>
-
-
-###  Подробнее
-
-С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
-Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
-Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2020Разработчик: SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575FA95204BB06C23FA93F275C76D34B36E49EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420129   (335895) от 30.10.2020
-
-Usher 2.0 Beta 4566 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Usher - Отличное средство для создания и ведения собственной фильмотеки. Usher поможет управиться с видео, которое хранится на жестких дисках и в медиатеках iTunes, iPhoto, и Aperture. Пользователи могут добавлять подробную информацию о каждом видео и использовать "умные" плейлисты для их фильтрации по этим данным.
-С помощью Usher пользователи смогут искать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2020Разработчик: Many TricksПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9999B3ADA3417F876AE529647795F079A621FD93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420045   (335824) от 30.10.2020
-
-Nova 2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nova - редактор для веб-разработчиков. Представьте себе создание контента, и одним щелчком кнопки вы наблюдаете, как Nova запускает ваш локальный сервер, захватывает соответствующий URL-адрес и мгновенно открывает для вас браузер. Просто подумайте о времени, которое вы сэкономите.
-Nova поддерживает отдельные задачи сборки, запуска и очистки. Он может открывать отчет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2020Разработчик: Panic, IncПоддерживаемая ОС: macOS 10.14.4+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42B885438E2CA2065509A32C750BFE37D045B2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

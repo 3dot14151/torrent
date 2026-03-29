@@ -1,3 +1,110 @@
+###  Публикация: 1554924   (574009) от 01.06.2022
+
+Виктор Гюго | Собор Парижской Богоматери (2022) [MP3, Иван Забелин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_574009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаем вашему вниманию знаменитый роман классика французской литературы Виктора Гюго «Собор Парижской Богоматери» (1831), первый исторический роман, написанный на французском языке. Роман живописует Париж XV века и великое творение готики. У Гюго легенда уравнена в правах с историей: «У книги нет никаких притязаний на историю, разве что на описание с известным (   Читать дальше...   )Жанр: Зарубежная классикаПродолжительность: 19:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5AF292E2B7A36329669479384D8A3CDC5AE6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554829   (573826) от 01.06.2022
+
+Сказки тысячи и одной ночи (пер. Михаил Салье). Ночи 459-509 (2022) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_573826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Последним компилятором сборника «Тысячи и одной ночи» был неизвестный по имени ученый шейх, который составил в XVIII веке в Египте наиболее позднее по времени собрание сказок «Тысячи и одной ночи». Самую значительную литературную обработку получили сказки также в Египте, двумя или тремя столетиями раньше.
+Эта редакция XIV – XVI веков «Книги тысяча и одной ночи», (   Читать дальше...   )Жанр: Зарубежная классика, Сказки, НовеллыПродолжительность: 04:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77EABB0A8C7E9387838960246E8ED3EF3AE0682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043188   (572837) от 16.08.2016
+
+Маргарита Наваррская | Гептамерон (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572837.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гептамерон - знаменитый сборник новелл, написанных королевой Маргаритой Наваррской (1492-1549).
+Вступительная статья А.Михайлова, комментарии З.Гуковской.
+Сборник новелл королевы Наваррской (1492 – 1549) был задуман как французский аналог «Декамерону» Боккаччо. В сборнике с большим разнообразием варьируется тема любви – то возвышенно, то фривольно и раскованно в (   Читать дальше...   )Жанр: Hовеллы, классикаПродолжительность: 22:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F5FD0710C8FA05476687161467C8681016BF1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555066   (572316) от 02.06.2022
+
+Александр Куприн | Поединок (2019) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_572316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Службу подпоручика Юрия Ромашова нельзя было назвать гладкой. Постоянные стычки с офицерами, насмешки, порицание и недовольство командования. Все это не добавляло оптимизма в жизнь молодого офицера. Он чувствовал себя одиноко и подавлено. Последний каплей стала гибель солдата в одной из рот. Это происшествие повлекло за собой волну пьянства. Во время попойки между (   Читать дальше...   )Жанр: Классическая проза, Русская классикаПродолжительность: 08:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C4FB4D45101683FED1DACE9837775B92D8647FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043306   (570925) от 17.08.2016
 
 Бернард Шоу | Дом, где разбиваются сердца (1975) [MP3]
@@ -6,7 +113,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570925.jpg" />
+  <img src="Z:/picture/008/save_picture_570925.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566755.jpg" />
+  <img src="Z:/picture/008/save_picture_566755.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566138.jpg" />
+  <img src="Z:/picture/008/save_picture_566138.jpg" />
 </div>
 
 
@@ -86,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566115.jpg" />
+  <img src="Z:/picture/008/save_picture_566115.jpg" />
 </div>
 
 
@@ -114,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565355.jpg" />
+  <img src="Z:/picture/008/save_picture_565355.jpg" />
 </div>
 
 
@@ -143,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565335.jpg" />
+  <img src="Z:/picture/008/save_picture_565335.jpg" />
 </div>
 
 
@@ -171,7 +278,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563576.jpg" />
+  <img src="Z:/picture/008/save_picture_563576.jpg" />
 </div>
 
 
@@ -197,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563574.jpg" />
+  <img src="Z:/picture/008/save_picture_563574.jpg" />
 </div>
 
 
@@ -223,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563444.jpg" />
+  <img src="Z:/picture/008/save_picture_563444.jpg" />
 </div>
 
 
@@ -251,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563436.jpg" />
+  <img src="Z:/picture/008/save_picture_563436.jpg" />
 </div>
 
 
@@ -278,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563380.jpg" />
+  <img src="Z:/picture/008/save_picture_563380.jpg" />
 </div>
 
 
@@ -306,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561658.jpg" />
+  <img src="Z:/picture/008/save_picture_561658.jpg" />
 </div>
 
 
@@ -332,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561516.jpg" />
+  <img src="Z:/picture/008/save_picture_561516.jpg" />
 </div>
 
 
@@ -358,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560363.jpg" />
+  <img src="Z:/picture/008/save_picture_560363.jpg" />
 </div>
 
 
@@ -384,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559965.jpg" />
+  <img src="Z:/picture/008/save_picture_559965.jpg" />
 </div>
 
 
@@ -410,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559902.jpg" />
+  <img src="Z:/picture/008/save_picture_559902.jpg" />
 </div>
 
 
@@ -436,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559679.jpg" />
+  <img src="Z:/picture/008/save_picture_559679.jpg" />
 </div>
 
 
@@ -462,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559563.jpg" />
+  <img src="Z:/picture/008/save_picture_559563.jpg" />
 </div>
 
 
@@ -489,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559505.jpg" />
+  <img src="Z:/picture/008/save_picture_559505.jpg" />
 </div>
 
 
@@ -515,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558724.jpg" />
+  <img src="Z:/picture/008/save_picture_558724.jpg" />
 </div>
 
 
@@ -542,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558589.jpg" />
+  <img src="Z:/picture/008/save_picture_558589.jpg" />
 </div>
 
 
@@ -568,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558028.jpg" />
+  <img src="Z:/picture/008/save_picture_558028.jpg" />
 </div>
 
 
@@ -580,110 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFCD23C1F5C8ADE5E8B7CCED7C696B68C9C015B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153524   (557980) от 27.07.2017
-
-Эдгар Аллан По | Ворон (2017) [MP3, Николай Станишевский]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдгар Алан По – поэт середины ΧΙΧ века, создатель символической поэзии, основанной на психологическом анализе. Ярким примером является поэма «Ворон», написанная в 1844 – 1849 годах. Чтобы лучше понять смысл данного произведения, обратимся к истории его создания. Прототипом лирической героини поэмы стала Вирджиния Клемм, жена Эдгара По. Она умерла в (   Читать дальше...   )Жанр: Классика, мистикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:08:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146B4814B8865A596B312309767619EB73BA5D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045503   (557934) от 24.08.2016
-
-Александр Пушкин, Михаил Лермонтов | Великие исполнители [Том 19] (2012) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557934.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Комсомольская правда» представляет цикл аудиоспектаклей «Великие исполнители». Вашему вниманию предлагается послушать поэмы «Медный всадник» и «Мцыри» в исполнении Народного артиста СССР (1949) Михаила Царева. Записи 1978 года.Жанр: Отечественная классика, литературные чтенияПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107A8CAC2B1FB99D0E8460CD6E85BDCBEF933BDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 814855   (557779) от 21.08.2014
-
-Николай Гоголь и др. | Классика русского рассказа №6 (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатели, аудиоверсии произведений которых представлены в шестом сборнике «Классика русского рассказа», продолжают развивать в своих повестях и рассказах лучшие идеи русской классики.Жанр: Русская классика, рассказы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D6AEF3FAC4697B39F709E78F31478376B681D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237033   (553244) от 22.07.2018
-
-Леонид Андреев | Жизнь Человека (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553244.jpg" />
-</div>
-
-
-###  Подробнее
-
-В произведении на суд публики представлена вся жизнь Человека. Действие разворачивается от момента рождения Человека до самой смерти. Он будет идти по жизни, как по лестнице, каждый раз поднимаясь на новую ступеньку. При этом Человек не знает, что ждет его на следующем уровне, он не может разгадать подсказок, дарованных ему судьбой. Все проходит, все меняется, но (   Читать дальше...   )Жанр: ДраматургияПродолжительность: 03:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9240B626193B4ED3ACCF373EEB9DD665E4C56D0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

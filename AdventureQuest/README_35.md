@@ -1,3 +1,81 @@
+###  Публикация: 1304127   (566715) от 24.05.2019
+
+PLANET ALPHA (2018) [Ru/Multi] (1.0.5.1) License GOG [Digital Deluxe]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_566715.jpg" />
+</div>
+
+
+###  Подробнее
+
+PLANET ALPHA - это прекрасный инопланетный мир, полный загадок и опасностей. Вам придется овладеть силой дня и ночи, чтобы бороться за выживание среди безжалостных врагов. Вас бросили в инопланетном мире...  Вы проснулись в странном инопланетном мире. Вы ранены, одиноки и совершенно потеряны в этих незнакомых землях. Вам предстоит отправиться в путешествие по этой (   Читать дальше...   )Тип издания: LicenseРазработчик: Planet Alpha ApSЖанр: Приключение, Экшн, ФантастикаЯзык озвучки: АнглийсуийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482CD6F67F51079A49DED57F8CED117AB1136D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304321   (564976) от 25.05.2019
+
+Dollhouse (2019) [Multi] (1.1.1) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_564976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жуткая игра в жанре хоррор затягивает вас в полную мистики атмосферу фильм-нуар. Вам предстоит проникнуть в глубины разума Мари — женщины-детектива, пытающейся воспоминание за воспоминанием разгадать тайны своего прошлого. Играя в кошки-мышки со своим преследователем, вы сможете смотреть его глазами с помощью опции «сфокусироваться».Тип издания: RepackРазработчик: Creazn StudioЖанр: Action, Adventure, HorrorЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E7893148A7E58BF5C6277E3230DE0B3C8B864A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044541   (564903) от 20.08.2016
+
+You Deserve (2016) [En/Es] (1.0) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_564903.jpg" />
+</div>
+
+
+###  Подробнее
+
+You Deserve - игра в приключенческом жанре. Вы никогда не думали, что все, что вы делаете, возможно, вернется к вам назад? Группа подростков преследовала сокурсника из средней школы. В конце концов, молодой человек был не в состоянии больше выносить все эти издевательства и в конечном итоге решил покончить с собой. Кто за это ответит?Тип издания: LicenseРазработчик: TGA CompanyЖанр: Adventure (Horror), 1st Person, IndieЯзык озвучки: Английский, ИспанскийЯзык субтитров: Английский, ИспанскийЯзык интерфейса: Английский, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45F9B29743C38FA4597FF3D48CEFEF62B19C9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044570   (564670) от 20.08.2016
 
 You Deserve (2016) [En/Es] (1.0) Repack Other s
@@ -6,7 +84,7 @@ You Deserve (2016) [En/Es] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564670.jpg" />
+  <img src="Z:/picture/008/save_picture_564670.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Reflecting Fate (2017) [En] (1.0) Repack Covfefe
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563028.jpg" />
+  <img src="Z:/picture/008/save_picture_563028.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Pilot Brothers 2 / Братья Пилоты 2: Дело о серийном м�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562857.jpg" />
+  <img src="Z:/picture/008/save_picture_562857.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Dreamfall Chapters (2017) [Multi] (5.7.2.1/dlc) License CODEX [The Final Cut Edi
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562743.jpg" />
+  <img src="Z:/picture/008/save_picture_562743.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ Preston Sterling (2016) [Ru/Multi] (1.1) License HI2U [Episode 1]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562722.jpg" />
+  <img src="Z:/picture/008/save_picture_562722.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ Pilot Brothers 3 / Братья Пилоты 3: Обратная сторона 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562719.jpg" />
+  <img src="Z:/picture/008/save_picture_562719.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ Door to Door (2016) [En] (1.0) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560876.jpg" />
+  <img src="Z:/picture/008/save_picture_560876.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ Alter Cosmos (2018) [En/Pl] (1.0) License SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560022.jpg" />
+  <img src="Z:/picture/008/save_picture_560022.jpg" />
 </div>
 
 
@@ -215,7 +293,7 @@ Lost Eden (1995) [Multi] (1.0cs) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559260.jpg" />
+  <img src="Z:/picture/008/save_picture_559260.jpg" />
 </div>
 
 
@@ -241,7 +319,7 @@ Firewatch (2016) [Ru/Multi] (1.09) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558364.jpg" />
+  <img src="Z:/picture/008/save_picture_558364.jpg" />
 </div>
 
 
@@ -267,7 +345,7 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558051.jpg" />
+  <img src="Z:/picture/008/save_picture_558051.jpg" />
 </div>
 
 
@@ -293,7 +371,7 @@ Conclusion (2016) [Ru/En] (1.0.2) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557485.jpg" />
+  <img src="Z:/picture/008/save_picture_557485.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557172.jpg" />
+  <img src="Z:/picture/008/save_picture_557172.jpg" />
 </div>
 
 
@@ -346,7 +424,7 @@ The Free Ones (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557169.jpg" />
+  <img src="Z:/picture/008/save_picture_557169.jpg" />
 </div>
 
 
@@ -372,7 +450,7 @@ Dreamfall Chapters: The Final Cut (2017) [En/Ge/Fr] (5.7.2.1) Repack R.G. Cataly
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556694.jpg" />
+  <img src="Z:/picture/008/save_picture_556694.jpg" />
 </div>
 
 
@@ -398,7 +476,7 @@ Trek to Yomi (2022) [Ru/Multi] (1.007) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556321.jpg" />
+  <img src="Z:/picture/008/save_picture_556321.jpg" />
 </div>
 
 
@@ -424,7 +502,7 @@ Forgotton Anne (2018) [Ru/Multi] (1.0) License PLAZA [The Collector's Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556304.jpg" />
+  <img src="Z:/picture/008/save_picture_556304.jpg" />
 </div>
 
 
@@ -450,7 +528,7 @@ Forgotton Anne (2018) [Ru/Multi] (5.5.3) License GOG [Collector's Upgrade]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555629.jpg" />
+  <img src="Z:/picture/008/save_picture_555629.jpg" />
 </div>
 
 
@@ -476,7 +554,7 @@ Blame Him (2019) [Ru/Multi] (1.04) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555270.jpg" />
+  <img src="Z:/picture/008/save_picture_555270.jpg" />
 </div>
 
 
@@ -502,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554963.jpg" />
+  <img src="Z:/picture/008/save_picture_554963.jpg" />
 </div>
 
 
@@ -528,7 +606,7 @@ Botanicula (2012) [Ru/Multi] (1.2.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554073.jpg" />
+  <img src="Z:/picture/008/save_picture_554073.jpg" />
 </div>
 
 
@@ -554,7 +632,7 @@ Toki (2019) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553865.jpg" />
+  <img src="Z:/picture/008/save_picture_553865.jpg" />
 </div>
 
 
@@ -580,7 +658,7 @@ Figment (2017) [Ru/Multi] (1.1.5/dlc) License PLAZA
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553800.jpg" />
+  <img src="Z:/picture/008/save_picture_553800.jpg" />
 </div>
 
 
@@ -591,84 +669,6 @@ Figment — игра в жанре приключенческий боевик, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E89984DA1481A8C5BD88CA695E1AA3B9A6D744E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237151   (553150) от 22.07.2018
-
-Machinarium / Машинариум (2009) [Ru/Multi] (Build 2975-A/dlc) License PLAZA [Definitive Version]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Помоги роботу Йозефу спасти его подругу Берту, похищенную бандитами из Братства Черных Шляп. Теперь с полноэкранным режимом, достижениями, новыми языками и полной поддержкой контроллера. Machinarium — обладательница множества наград от критиков, приключенческая игра-головоломка, созданная разработчиками популярных игр Samorost и Botanicula. Маленького робота выбросили (   Читать дальше...   )Тип издания: LicenseРазработчик: Amanita DesignЖанр: Adventure, LogicЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80862ECD1572FD6D39F2B7A3B67532515B4B3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309455   (550845) от 19.06.2019
-
-Life is Strange 2 (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst [Episodes 1-2]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встречайте новую историю в серии Life is Strange от DONTNOD Entertainment. Из-за трагических событий братья Шон и Даниэль Диасы сбегают из дома. Скрываясь от полиции, они обнаруживают у Даниэля телекинетическую способность — умение двигать предметы силой мысли. В поисках убежища братья отправляются в мексиканский городок Пуэрто-Лобос, на родину их отца. На плечи (   Читать дальше...   )Тип издания: RepackРазработчик: DONTNOD EntertainmentЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606E4377289A131E953031EC605011BED43DE50C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046834   (550725) от 28.08.2016
-
-Parvaneh: Legacy of the Light's Guardians (2016) [En] (1.0) License HI2U
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Parvaneh: Legacy of the Light's Guardians - очень красочная игрушка про отважного парня, который решил спасти свой прекрасный мир Нория от врагов под названием Khazdaks, которые в свою очередь прилетели с другой планеты и хотя отравить их реку. Начиная свое прохождение, главный герой по имени Фадия узнает, кто эти существа и откуда они взялись.Тип издания: LicenseРазработчик: Bearded Bird Game StudioЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: ФарсиЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22A685685FB44D66F3608C087F1A4DFEF2663F1
 ```
 
 https://mybot314.ru/tekegram_catalog/

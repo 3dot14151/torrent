@@ -6,7 +6,7 @@ Game of Thrones - A Telltale Games Series (2014) [Ru/En] (1.0.0.1) Repack R.G. C
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814319.jpg" />
+  <img src="Z:/picture/008/save_picture_814319.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ DayRate - Currency Converter 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814235.jpg" />
+  <img src="Z:/picture/008/save_picture_814235.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ iCollections 7 v7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814234.jpg" />
+  <img src="Z:/picture/008/save_picture_814234.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Data Guardian 7 v7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814232.jpg" />
+  <img src="Z:/picture/008/save_picture_814232.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Display Maestro 5 v5.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814227.jpg" />
+  <img src="Z:/picture/008/save_picture_814227.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Permute 3 v3.7.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814226.jpg" />
+  <img src="Z:/picture/008/save_picture_814226.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ BBEdit 14.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814225.jpg" />
+  <img src="Z:/picture/008/save_picture_814225.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Coherence X 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814223.jpg" />
+  <img src="Z:/picture/008/save_picture_814223.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814213.jpg" />
+  <img src="Z:/picture/008/save_picture_814213.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Amadine 1.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814193.jpg" />
+  <img src="Z:/picture/008/save_picture_814193.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Downie 4 v4.3.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814184.jpg" />
+  <img src="Z:/picture/008/save_picture_814184.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ ON1 HDR 2022 v16.0.1.11291 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814178.jpg" />
+  <img src="Z:/picture/008/save_picture_814178.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ ON1 NoNoise AI 2022 v16.0.1.11291 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814163.jpg" />
+  <img src="Z:/picture/008/save_picture_814163.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ ON1 Effects 2022 v16.0.1.11291 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814138.jpg" />
+  <img src="Z:/picture/008/save_picture_814138.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ VNC Connect Enterprise for Mac 6.8.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814135.jpg" />
+  <img src="Z:/picture/008/save_picture_814135.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814132.jpg" />
+  <img src="Z:/picture/008/save_picture_814132.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Microsoft Edge 95.0.1020.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814128.jpg" />
+  <img src="Z:/picture/008/save_picture_814128.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ Araxis Merge Pro Edition 2021.5644 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814127.jpg" />
+  <img src="Z:/picture/008/save_picture_814127.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Calibre 5.30.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814079.jpg" />
+  <img src="Z:/picture/008/save_picture_814079.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Rob Papen - Predator 3 1.0.0 VSTi, VSTi3, AAX (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814077.jpg" />
+  <img src="Z:/picture/008/save_picture_814077.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ CrystalDiskInfo 8.12.11 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814073.jpg" />
+  <img src="Z:/picture/008/save_picture_814073.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Vivaldi 4.3.2439.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814069.jpg" />
+  <img src="Z:/picture/008/save_picture_814069.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Opera 80.0.4170.63 Portable by JolyAnderson [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814067.jpg" />
+  <img src="Z:/picture/008/save_picture_814067.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Mozilla Thunderbird 91.2.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814065.jpg" />
+  <img src="Z:/picture/008/save_picture_814065.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ PDF24 Creator 10.6.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814062.jpg" />
+  <img src="Z:/picture/008/save_picture_814062.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814020.jpg" />
+  <img src="Z:/picture/008/save_picture_814020.jpg" />
 </div>
 
 

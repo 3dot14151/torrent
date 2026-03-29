@@ -1,3 +1,107 @@
+###  Публикация: 1759980   (37624) от 11.11.2024
+
+Похищение инопланетянами в Манхэттене / The Manhattan Alien Abduction (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) Flarrow Films
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37624.jpg" />
+</div>
+
+
+###  Подробнее
+
+В документальном сериале рассказывается удивительная история Линды Наполитано, жительницы Нью-Йорка, которая утверждает, что была похищена инопланетянами. 30 ноября 1989 года Наполитано, мать двоих детей и домохозяйка, сообщила о своём похищении. По её словам, она была поднята из окна своей квартиры на двенадцатом этаже в Нижнем Манхэттене и перенесена к Бруклинскому (   Читать дальше...   )Производство: США / NetflixЖанр: документальный, сверхъестественноеРежиссер: Вивьенн Перри, Дэниэл ВернонУчастники: Кэрол Рейни, Линда Наполитано, Питер Роббинс, Джонни Наполитано, Стив Наполитано, Розмари, Джон, Сара Лахлан, Тим Ахерн, Росс СэмбриджПеревод: Многоголосый профессиональный (Flarrow Films)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Full), английские (Forced, Full, SDH)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ACACBCE2E52C5598933643DE6E08CA6E432E687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758214   (37614) от 11.11.2024
+
+Говорит Зодиак / This Is the Zodiac Speaking (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) Red Head Sound
+
+>>Зарубежные TV-бренды
+>>Тайны и Загадки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37614.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом документальном сериале, посвящённом реальным преступлениям, семья, стремящаяся к раскрытию тайны, делится уликами и свидетельствами, касающимися главного подозреваемого в серии убийств, известных как «убийства Зодиака».Производство: США / Netflix, AMPLEЖанр: документальный, криминалРежиссер: Филип Лотт, Эри МаркУчастники: Дэвид Сивотер, Конни Сивотер, Дон Сивотер, Роберт Грейсмит, Дон Дистефано, Дж.С. Смит, Марлен Додж, Или Грин, Рита Уильямс, Дэрин Элворд, Мелоди Барджер, Ширли Леонард, Крис Чэмберс, Терри Пойсер, Том Войт, Сюзанна Райан, Элайджа Ван Зантен, Отем АйвиПеревод: Многоголосый профессиональный (Red Head Sound)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английские (SDH)Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBD6117CC89E9B581D7724834888DBB0F4CBE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727979   (37341) от 14.11.2024
+
+History Channel: Древние пришельцы / Ancient Aliens (2024) WEB-DL [H.264/1080p] (сезон 20, серии 1-20 из 20) Влад Дорф
+
+>>Зарубежные TV-бренды
+>>History Channel
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37341.jpg" />
+</div>
+
+
+###  Подробнее
+
+В телесериале рассказывается о различных аспектах теории палеоконтакта и высказываются предположения, что исторические тексты, археологические свидетельства и легенды народов мира содержат доказательства контактов человека с внеземными цивилизациями в прошлом.Производство: США / Prometheus Entertainment, A&E Television Networks, LLC., History ChannelЖанр: документальный, фантастика, историяРежиссер: Джон Леви, Кевин Барнс, Keith GuintoУчастники: Роберт Клотуорти, Джорджо А. Цукалос, Дэвид Чайлдресс, Уильям Генри, Джонатан Янг, Эрих фон Деникен, Джейсон Мартелл, Джордж Нури, Дэвид Уилкок, Andrew CollinsПеревод: Одноголосый любительский (Влад Дорф)Язык озвучки: Русский, АнглийскийСубтитры: Русские, английскиеПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A66C60804711713955713E4A3A11BB6A7CD11051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762163   (36293) от 24.11.2024
+
+NG: Конкистадоры: Взлет и падение / Conquistadors: The Rise and Fall (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-6 из 6) Pazl Voice
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот документальный сериал проливает свет на суровую правду, окружающую драматическую волну экспансии Европы с 1492 года после высадки Колумба в Карибском море.Производство: США / Dash Pictures, NTM ProductionsЖанр: документальный, историяРежиссер: Джеймс Вули, Дэниэл ШарпАктеры: Кристиан КамаргоПеревод: Многоголосый любительский (Pazl Voice)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Full)Продолжительность: ~00:40:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE503CDB620999CA9768D0DA2B42F01069D7A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615397   (36198) от 25.11.2024
 
 Очевидное-невероятное (1970-2010) TVRip, SATRip, DVDRip (150 выпусков)
@@ -6,7 +110,7 @@
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36198.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36198.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ History Channel: Филадельфийский эксперимент / Vanishi
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35493.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC. История математики / The Story of Maths (2008) SATRip (4 �
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35467.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC. Земля / Earth (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34859.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33888.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC: В какой Вселенной мы находимся? / Which Universe 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33724.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC: Солнечная система / Solar System (2024) BDRip [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32061.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32042.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31848.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ History Channel: Хватай не глядя / Storage Wars (2021) PCRec [H.264
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31610.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31558.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NG: Суперсооружения древности / Ancient Megastructures (
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31337.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ BBC. Древние державы / Ancient Powers (2023) WEB-DL [H.264/1080p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_31125.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ BBC. Horizon: Сколько людей может жить на Земле? / H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30399.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ BBC. 1929: Великий крах / 1929: The Great Crash (2009) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30396.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30396.jpg" />
 </div>
 
 
@@ -397,7 +501,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30144.jpg" />
 </div>
 
 
@@ -423,7 +527,7 @@ BBC: Нацизм - Предостережение истории / The Nazis: A
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30090.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_30085.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_30085.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ BBC: Апокалипсис динозавров / Dinosaur Apocalypse (2022) WE
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_30070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_30070.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ BBC: Калигула. Что это было / Caligula with Mary Beard (2013) 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29980.jpg" />
 </div>
 
 
@@ -528,7 +632,7 @@ NG. Приключения настоящего Флика / A Real Bug's Life (
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29966.jpg" />
 </div>
 
 
@@ -554,7 +658,7 @@ BBC: Грязные города / Filthy Cities (2011) HDTV [H.264/1080i] (се
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_29951.jpg" />
 </div>
 
 
@@ -565,110 +669,6 @@ BBC: Грязные города / Filthy Cities (2011) HDTV [H.264/1080i] (се
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B005D286C5720046C1E8745C4D652BCD5A7C6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235595   (29876) от 25.01.2025
-
-BBC. Большой Барьерный риф с Дэвидом Аттенборо / Great Barrier Reef with David Attenborough (2016) BDRip [H.264/1080p] (Сезон 1, серия 1-3 из 3)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите отправиться в захватывающее дух по красоте путешествие не отрываясь от мягкого, удобного дивана? Скорее берите с собой в путь что-нибудь повкуснее и вперед к новым вершинам подводного мира! Сэр Дэвид Аттенборо будет рад взять с собой в компанию пару-тройку лежебок, ведь балласт на судне всегда может пригодиться, а акулы никогда не были особо привередливы! (   Читать дальше...   )Производство: Великобритания, BBC Productions SalfordЖанр: Документальный, природа, флора, фаунаРежиссер: Майкл ДэвисУчастники: Сэр Дэвид АттенбороПеревод: Одноголосый закадровый, профессиональный (Омикрон)Субтитры: Русские, английскиеПродолжительность: 3 x ~ 00:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007FB67330726A42372B0CFEB5D034854A410747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678395   (29838) от 25.01.2025
-
-Discovery: Пропавшие женщины шоссе 20 / Lost Women of Highway 20 (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-3 из 3) [VO]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанный на реальных событиях проект лауреатки премии «Оскар» Октавии Спенсер расскажет про пустынный участок шоссе в Орегоне, где в период с конца 70-х и до начала 90-х годов несколько женщин пропали без вести, были изнасилованы или вовсе убиты.Производство: США, October Films, Warner Bros. DiscoveryЖанр: документальный, криминал, расследованиеРежиссер: Арианна ЛаПеннеУчастники: Октавия СпенсерПеревод: Одноголосый любительскийЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD29340864375AB484A0D443EB196738CF3689B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505465   (29763) от 26.01.2025
-
-BBC: Планета людей / BBC: Human planet (2011) BDRemux [H.264/1080p] (серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди упорно борются с дикой природой, создавая для себя искусственную среду обитания. Но природа не сдает свои позиции без боя...Производство: США / ВВС, Discovery Channel, France Television Co-ProductionЖанр: документальныйРежиссер: Марк Флауэрс, Николас Браун, Том Хью-Джонс, Тупенс СтоунПеревод: Профессиональный двухголосый, Авторский одноголосыйСубтитры: Русские, английскиеПродолжительность: 8 x 00:59:00 (07:52:00)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF143BCF02AB6BE66CB5C5295C547156BC124752
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652553   (29664) от 27.01.2025
-
-BBC. Космическая одиссея. Путешествие по галактике / Space Odyssey. Voyage to the Planets (2005) DVD9
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_29664.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Космическая Одиссея" предлагает нам заглянуть в мир будущего. А, точнее, узнать, что увидят космонавты, впервые добравшись и высадившись на планеты нашей Солнечной системы. Наше "путешествие" условно займет промежуток в 6 лет, начиная со старта с планеты Земля и заканчивая возможной трагической встречей с одной из комет. За это время космонавты (   Читать дальше...   )Жанр: документальныйПеревод: ДублированныйСубтитры: вшитые отключаемые (русский)Продолжительность: 02:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688F5EDDCA2ED760425A85F25D730947D3F4DBCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1254145   (377521) от 12.10.2018
+
+Иван Васильевич Попов | Труды по патрологии [2 книги] (2004 - 2005) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377521.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые после многих лет незаслуженного забвения отдельным изданием выходят в свет труды И.В.Попова по патрологии. В 1 том его сочинений вошли исследования о Макарии Египетском, Афанасии Александрийском, иконийском епископе Амфилохии, пиктавийском епископе Иларии, отдельные заметки о Дионисии Ареопагите Иоанне Златаусте, Тертуллиане, Дионисии Александрийксом (Великом). (   Читать дальше...   )Жанр: ПатристикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5CE7CD33F8B775F28B348BA8B0C2C2CB220282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253974   (377516) от 12.10.2018
+
+Иван Васильевич Попов | Труды по патрологии [2 книги] (2004 - 2005) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые после многих лет незаслуженного забвения отдельным изданием выходят в свет труды И.В.Попова по патрологии. В 1 том его сочинений вошли исследования о Макарии Египетском, Афанасии Александрийском, иконийском епископе Амфилохии, пиктавийском епископе Иларии, отдельные заметки о Дионисии Ареопагите Иоанне Златаусте, Тертуллиане, Дионисии Александрийксом (Великом). (   Читать дальше...   )Жанр: ПатристикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C01684636999873EA59E0175F82BCBA4DCDA3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243300   (377380) от 12.10.2018
+
+Трифонов Печенгский монастырь (изд.) | Беседы великих русских старцев. О Православной вере, спасении души и различных вопросах духовной жизни. (2003) [DJVU, PDF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_377380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: DJVU, PDF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61857580EBC02D65AB26586411E13211D2A2E334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414584   (376978) от 12.10.2020
 
 О. Рожнёва (сост.) | Святой апостол Иоанн Богослов и архимандрит Иоанн (Крестьянкин). Твой святой покровитель (2019) [FB2, EPUB]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376978.jpg" />
+  <img src="Z:/picture/008/save_picture_376978.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376776.jpg" />
+  <img src="Z:/picture/008/save_picture_376776.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376716.jpg" />
+  <img src="Z:/picture/008/save_picture_376716.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376632.jpg" />
+  <img src="Z:/picture/008/save_picture_376632.jpg" />
 </div>
 
 
@@ -112,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376624.jpg" />
+  <img src="Z:/picture/008/save_picture_376624.jpg" />
 </div>
 
 
@@ -138,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375125.jpg" />
+  <img src="Z:/picture/008/save_picture_375125.jpg" />
 </div>
 
 
@@ -164,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374290.jpg" />
+  <img src="Z:/picture/008/save_picture_374290.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373326.jpg" />
+  <img src="Z:/picture/008/save_picture_373326.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372011.jpg" />
+  <img src="Z:/picture/008/save_picture_372011.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371907.jpg" />
+  <img src="Z:/picture/008/save_picture_371907.jpg" />
 </div>
 
 
@@ -272,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371539.jpg" />
+  <img src="Z:/picture/008/save_picture_371539.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371194.jpg" />
+  <img src="Z:/picture/008/save_picture_371194.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368223.jpg" />
+  <img src="Z:/picture/008/save_picture_368223.jpg" />
 </div>
 
 
@@ -352,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367669.jpg" />
+  <img src="Z:/picture/008/save_picture_367669.jpg" />
 </div>
 
 
@@ -378,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367645.jpg" />
+  <img src="Z:/picture/008/save_picture_367645.jpg" />
 </div>
 
 
@@ -404,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367643.jpg" />
+  <img src="Z:/picture/008/save_picture_367643.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367634.jpg" />
+  <img src="Z:/picture/008/save_picture_367634.jpg" />
 </div>
 
 
@@ -460,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367321.jpg" />
+  <img src="Z:/picture/008/save_picture_367321.jpg" />
 </div>
 
 
@@ -488,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366413.jpg" />
+  <img src="Z:/picture/008/save_picture_366413.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366229.jpg" />
+  <img src="Z:/picture/008/save_picture_366229.jpg" />
 </div>
 
 
@@ -542,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365497.jpg" />
+  <img src="Z:/picture/008/save_picture_365497.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365483.jpg" />
+  <img src="Z:/picture/008/save_picture_365483.jpg" />
 </div>
 
 
@@ -597,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365481.jpg" />
+  <img src="Z:/picture/008/save_picture_365481.jpg" />
 </div>
 
 
@@ -608,87 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2E3F888344D152E2380F0ACE5FC5D30DEBC1DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177020   (365480) от 24.10.2017
-
-О. Г. Кадочникова | Древнеславянский перевод «Поучений огласительных и тайноводственных» свт. Кирилла Иерусалимского: лексика и текстология (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365480.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли статьи, посвященные изучению древнеславянского перевода Поучений огласительных и тайноводственных святителя Кирилла Иерусалимского. В ходе исследования, на широком фоне сравнительных материалов данных других старославянских текстов, диалектных и этимологических словарей, предпринимается попытка выяснить какое место занимает данный памятник в истории (   Читать дальше...   )Жанр: Сборник статей, палеография, текстологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BBC8FEABC226C5073DE7C9555CC47EE1A1CF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177255   (365466) от 24.10.2017
-
-Т.Г. Дорофеева | Культовые сооружения в истории религии (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография посвящена культовым сооружениям, принадлежащим различным религиозным верованиям. Они возводятся по строгим, отличным друг от друга канонизированным принципам, отражающимся в композиционных приемах планировки, во внешнем убранстве и в решении интерьеров.
-
-В книге рассматриваются мегалитические постройки, культовые сооружения Древнего Востока, античности, (   Читать дальше...   )Жанр: МонографияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:355A077948CFBCF153859A7FE0E2F407E581BC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328565   (363712) от 30.09.2019
-
-К. Лученко | Россия: взгляд с колокольни [От Калининграда до Якутии] (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга относится к востребованному сегодня жанру документальной прозы. Журналист Ксения Лученко и фотограф Анна Гальперина проехали по восьми регионам, от Калининградской области до Якутии, чтобы рассказать о том, как судьбы городов переплетаются с человеческими судьбами, как живут священники и церковные общины в современной России.
-В книге собраны авторские эссе (   Читать дальше...   )Жанр: Православие. Документальная прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBACA0A8962A0F6AA87684B33ADAC47D7CEFED00
 ```
 
 https://mybot314.ru/tekegram_catalog/

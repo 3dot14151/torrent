@@ -1,3 +1,29 @@
+###  Публикация: 1213415   (771625) от 16.03.2018
+
+Один в поле воин. Подвиг 41-го (2010) WEBRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_771625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето 1941-го. Танковая армада немецкого генерала Гудериана рвется на Восток. Кажется, ничто не может ее остановить. И вдруг на мосту у деревни Сокольничи колонну встречает шквал артиллерийского огня. Загорается головной танк, за ним второй, третий. В панике автоматчики, идущие за броней. И только через три часа боя немцы обнаруживают: разгром учинила не батарея русских, (   Читать дальше...   )Производство: Россия, Кинокомпания «Родина»Жанр: Документальный, война, историяРежиссер: Александр ЛадновПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660A1199D84BC057930E7A2946B161C6F5C1FD21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015075   (769534) от 15.05.2016
 
 Италия во Второй Мировой войне в цвете. Операция «Хаски» / Italy in WWII. Operation Husky (2002) DVDRip
@@ -6,7 +32,7 @@
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769534.jpg" />
+  <img src="Z:/picture/008/save_picture_769534.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768412.jpg" />
+  <img src="Z:/picture/008/save_picture_768412.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767442.jpg" />
+  <img src="Z:/picture/008/save_picture_767442.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766037.jpg" />
+  <img src="Z:/picture/008/save_picture_766037.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ National Geographic. Фашистский лагерь смерти. Больш�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764472.jpg" />
+  <img src="Z:/picture/008/save_picture_764472.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ National Geographic. Фашистский лагерь смерти. Больш�
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764471.jpg" />
+  <img src="Z:/picture/008/save_picture_764471.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763683.jpg" />
+  <img src="Z:/picture/008/save_picture_763683.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761869.jpg" />
+  <img src="Z:/picture/008/save_picture_761869.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761772.jpg" />
+  <img src="Z:/picture/008/save_picture_761772.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760417.jpg" />
+  <img src="Z:/picture/008/save_picture_760417.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ History Channel. Герои войны: Польша / Heroes of War: Poland (20
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760325.jpg" />
+  <img src="Z:/picture/008/save_picture_760325.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760249.jpg" />
+  <img src="Z:/picture/008/save_picture_760249.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ History Channel. Герои войны: Польша / Heroes of War: Poland (20
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760180.jpg" />
+  <img src="Z:/picture/008/save_picture_760180.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753293.jpg" />
+  <img src="Z:/picture/008/save_picture_753293.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751879.jpg" />
+  <img src="Z:/picture/008/save_picture_751879.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747625.jpg" />
+  <img src="Z:/picture/008/save_picture_747625.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743772.jpg" />
+  <img src="Z:/picture/008/save_picture_743772.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743194.jpg" />
+  <img src="Z:/picture/008/save_picture_743194.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742486.jpg" />
+  <img src="Z:/picture/008/save_picture_742486.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737301.jpg" />
+  <img src="Z:/picture/008/save_picture_737301.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732470.jpg" />
+  <img src="Z:/picture/008/save_picture_732470.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731990.jpg" />
+  <img src="Z:/picture/008/save_picture_731990.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730870.jpg" />
+  <img src="Z:/picture/008/save_picture_730870.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728188.jpg" />
+  <img src="Z:/picture/008/save_picture_728188.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ NG: Секретная атака Гитлера на Америку / Hitler's 
 >>Вторая Мировая война
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725909.jpg" />
+  <img src="Z:/picture/008/save_picture_725909.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ NG: Секретная атака Гитлера на Америку / Hitler's 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08B1E7053EA94CF70C2978A74F01E9244038555C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285097   (724608) от 24.02.2019
-
-Король, обманувший Гитлера / The King Who Tricked Hitler (2016) HDTVRip
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это одна из самых невероятных историй Второй мировой войны, рассказанная последним королем Румынии Михаилом I. Это история о решении короля, который в критический момент Второй мировой войны отказался от поддержки Германии, направив Румынию к союзникам. Считается, что это сократило войну на несколько месяцев, однако свобода Румынии была недолгой... Это история дворцовых (   Читать дальше...   )Производство: РумынияЖанр: Документальный, биография, война, историяРежиссер: Тревор ПоотсПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Субтитры: Английские на румынскую речь (вшитые)Продолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71020ABBC017AE43FCC6A1D249B25E6BA181652E
 ```
 
 https://mybot314.ru/tekegram_catalog/

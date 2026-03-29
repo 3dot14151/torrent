@@ -1,3 +1,122 @@
+###  Публикация: 1177260   (365161) от 24.10.2017
+
+Чёрный Обелиск - Акустика? (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_365161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время
+02. Свобода
+03. Снег
+04. Капли дождя(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392EE19774B75B49FD2D3826C3F4C17CE990AF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326598   (364607) от 17.10.2020
+
+Ария - Гость из царства теней (2019) Live [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гонка за славой
+02. Убить дракона
+03. Герой асфальта
+04. Эра Люцифера(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4492FC774D4B8A8331A8684E1C9DC88AD5B323A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 253671   (364261) от 04.11.2010
+
+Тараканы + Кирпичи - Сплит концерт (2010) [MP3|320 kbps] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тараканы! - Плюю я (2:59)
+02. Тараканы! - Нормальные ребята (2:57)
+03. Тараканы! - Вася-рок (2:20)
+04. Кирпичи - 2 по 100 (4:08)
+05. Кирпичи - Поезд в сторону Арбатской (3:18)
+06. Кирпичи - Кто же теперь будет спать со мной (3:51)Жанр: PunkПродолжительность: 00:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC10085D8A7035396CA1722A366291FE8D2C9C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 253987   (364203) от 04.11.2010
+
+Ленинград - Последний Концерт Ленинграда (2010) [MP3|320 kbps]<Ска>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_364203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello, Moscow
+02. МДМ
+03. ИТД
+04. Паганини
+05. Когда нет денегЖанр: СкаПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB8F4BDDC4ADE8BF8F6214224FE452683974BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255539   (364167) от 18.10.2018
 
 Оркестръ Тролля - Гастроном-Диксиленд (2018) [MP3|320 Kbps] <Beer Folk Rock>
@@ -6,7 +125,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364167.jpg" />
+  <img src="Z:/picture/008/save_picture_364167.jpg" />
 </div>
 
 
@@ -35,7 +154,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364036.jpg" />
+  <img src="Z:/picture/008/save_picture_364036.jpg" />
 </div>
 
 
@@ -64,7 +183,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363439.jpg" />
+  <img src="Z:/picture/008/save_picture_363439.jpg" />
 </div>
 
 
@@ -93,7 +212,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363293.jpg" />
+  <img src="Z:/picture/008/save_picture_363293.jpg" />
 </div>
 
 
@@ -123,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362988.jpg" />
+  <img src="Z:/picture/008/save_picture_362988.jpg" />
 </div>
 
 
@@ -152,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361634.jpg" />
+  <img src="Z:/picture/008/save_picture_361634.jpg" />
 </div>
 
 
@@ -181,7 +300,7 @@ Jane Air - Миелофон (2022) [MP3|320 Kbps] <Alternative Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361616.jpg" />
+  <img src="Z:/picture/008/save_picture_361616.jpg" />
 </div>
 
 
@@ -210,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361460.jpg" />
+  <img src="Z:/picture/008/save_picture_361460.jpg" />
 </div>
 
 
@@ -239,7 +358,7 @@ Munruthel - ВЕРОломство (2012) [MP3|320 кб/с]<Ambient, Folk Metal,
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361334.jpg" />
+  <img src="Z:/picture/008/save_picture_361334.jpg" />
 </div>
 
 
@@ -274,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360825.jpg" />
+  <img src="Z:/picture/008/save_picture_360825.jpg" />
 </div>
 
 
@@ -303,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360776.jpg" />
+  <img src="Z:/picture/008/save_picture_360776.jpg" />
 </div>
 
 
@@ -332,7 +451,7 @@ Stonehand - Дорожный Альбом (2020) [MP3|320 Kbps] <Heavy Metal, Ha
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360559.jpg" />
+  <img src="Z:/picture/008/save_picture_360559.jpg" />
 </div>
 
 
@@ -361,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360540.jpg" />
+  <img src="Z:/picture/008/save_picture_360540.jpg" />
 </div>
 
 
@@ -388,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360362.jpg" />
+  <img src="Z:/picture/008/save_picture_360362.jpg" />
 </div>
 
 
@@ -417,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360069.jpg" />
+  <img src="Z:/picture/008/save_picture_360069.jpg" />
 </div>
 
 
@@ -443,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359164.jpg" />
+  <img src="Z:/picture/008/save_picture_359164.jpg" />
 </div>
 
 
@@ -469,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359106.jpg" />
+  <img src="Z:/picture/008/save_picture_359106.jpg" />
 </div>
 
 
@@ -498,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358855.jpg" />
+  <img src="Z:/picture/008/save_picture_358855.jpg" />
 </div>
 
 
@@ -527,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358703.jpg" />
+  <img src="Z:/picture/008/save_picture_358703.jpg" />
 </div>
 
 
@@ -556,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358079.jpg" />
+  <img src="Z:/picture/008/save_picture_358079.jpg" />
 </div>
 
 
@@ -585,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357936.jpg" />
+  <img src="Z:/picture/008/save_picture_357936.jpg" />
 </div>
 
 
@@ -614,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357271.jpg" />
+  <img src="Z:/picture/008/save_picture_357271.jpg" />
 </div>
 
 
@@ -634,122 +753,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F57DEC1ED6C3032A91BEAA4EEEA03EED4B41C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577146   (357164) от 18.09.2022
-
-Kruger - Бомба (2022) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бомба [00:06:11]
-02 - 2020 [00:05:51]
-03 - Боль и Трон [00:05:24]
-04 - День Гнева [00:04:12](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70FD35D5A82C0B40BA85A6FFF048DA7C37D5D465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577430   (357043) от 18.09.2022
-
-Демократизатор (Demokratizator) - Пусть будет Пи### (2016) Remastered, 2022, Zymotic Productions [MP3|320 Kbps] <Hardcore Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Бухай за рулём! [00:02:31]
-02-Пи### бабу! [00:02:38]
-03-Водка.Е###.Драка.. [00:03:07]
-04-Глоток [00:02:27](   Читать дальше...   )Жанр: Hardcore Punk RockПродолжительность: 00:22:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A004BB8BCE91E1908996E89A6369D3DFB14DD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256304   (356785) от 21.10.2018
-
-Alkonost - Октаграмма (2018) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Тропа к весне
-03. Вслед молодой заре
-04. Танец цветенья(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F91C93C82BC93C3F2B19D7920726143E2E0B584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178504   (356110) от 28.10.2017
-
-Алексей Мурашов (Секрет) - LVI (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 6,5 евро
-02. Мама, ты сегодня не права
-03. Туз-Пуз (feat. Андрей Заблудовский)
-04. Доброе утро (feat. Александр Зарецкий)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A424A1061991E7B1E272FEE7488A65A1A978930A
 ```
 
 https://mybot314.ru/tekegram_catalog/

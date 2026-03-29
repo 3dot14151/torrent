@@ -1,3 +1,109 @@
+###  Публикация: 1203050   (730427) от 19.02.2019
+
+Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Catalyst
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_730427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Subnautica - это ролевая игра от создателей Natural Selection 2, в которой авторы пообещали соместить кинематографичность, открытый мир и проработку "больших" RPG. Subnautica – игра-песочница с открытым миром, созданная компанией Unknown Worlds Entertainment.Тип издания: RepackРазработчик: Unknown Worlds EntertainmentЖанр: Action (Survival horror), 3D, 1st Person, 3rd PersЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6879D690940DA6CA21B811A33BC69D6455DADB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021897   (730422) от 31.05.2016
+
+Очередное достижение: 1000 релизов от хинин
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_730422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Друзья!
+Рад сообщить Вам о возможности поздравить новоиспеченного релизера-тысячника.
+ Наш одноклубник, активный релизер, участник RG Книги хинин "скромно" перешагнул рубеж 1000 релизов!!!(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284034   (730418) от 19.02.2019
+
+Acronis Disk Director 12 Build 12.5.163 RePack by KpoJIuK [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_730418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Acronis Disk Director 12 — это набор мощных инструментов для оптимизации использования дисковых ресурсов и защиты данных. С его помощью можно создавать разделы дисков и управлять ими, чтобы хранить различные файловые или операционные системы на одном диске, быстро восстанавливать потерянные или удаленные данные, сокращать время создания резервных копий образов и (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3790BC42F6231C92824706A0FED1E2A547A34C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520814   (730323) от 09.02.2022
+
+Не смотрите наверх / Don't Look Up (2021) WEB-DL [H.264/720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_730323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Астрономы открывают новую комету и, рассчитав её траекторию, узнают, что через полгода она столкнётся с Землёй, что положит конец существованию человечества и всего живого на планете. Двое учёных с трудом добиваются аудиенции у президента США, но там к их предупреждению относятся с недоверием, тогда они выступают в популярной телепередаче, но большинство всё равно (   Читать дальше...   )Производство: CША / Bluegrass Films, Hyperobject IndustriesЖанр: Драма, фантастика, комедияРежиссер: Адам МакКейАктеры: Леонардо ДиКаприо, Дженнифер Лоуренс, Мэрил Стрип, Джона Хилл, Кейт Бланшетт, Роб Морган, Марк Райлэнс, Тайлер Перри, Тимоти Шаламе, Рон ПерлманПеревод: Дублированный, многоголосый профессиональный, авторскийСубтитры: Русские (forced х2, full), украинские (forced х2, full), английские, французские, немецкие, испанские, китайскиеПродолжительность: 02:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6EF035AEED1DD4BDEC24AB2B8A5B7CD29C29CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127209   (730264) от 22.04.2017
 
 Проекты - VideoHive - Made of Love - Romantic Slideshow - 19654947 [AEP]
@@ -6,7 +112,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730264.jpg" />
+  <img src="Z:/picture/008/save_picture_730264.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ The Forest (2015) [En] (0.59b) Repack Mr.Weegley
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730235.jpg" />
+  <img src="Z:/picture/008/save_picture_730235.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ Windows 7 Home Premium SP1 (x86/x64) Elgujakviso Edition (v.22.04.17) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730231.jpg" />
+  <img src="Z:/picture/008/save_picture_730231.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Tor Browser Bundle 6.0 Final [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730224.jpg" />
+  <img src="Z:/picture/008/save_picture_730224.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730210.jpg" />
+  <img src="Z:/picture/008/save_picture_730210.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730208.jpg" />
+  <img src="Z:/picture/008/save_picture_730208.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730204.jpg" />
+  <img src="Z:/picture/008/save_picture_730204.jpg" />
 </div>
 
 
@@ -192,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730194.jpg" />
+  <img src="Z:/picture/008/save_picture_730194.jpg" />
 </div>
 
 
@@ -218,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729489.jpg" />
+  <img src="Z:/picture/008/save_picture_729489.jpg" />
 </div>
 
 
@@ -244,7 +350,7 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729447.jpg" />
+  <img src="Z:/picture/008/save_picture_729447.jpg" />
 </div>
 
 
@@ -270,7 +376,7 @@ Microsoft Windows 7 SP1 x86/x64 Ru 9 in 1 Origin-Upd 02.2019 by OVGorskiy® 1DVD
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729445.jpg" />
+  <img src="Z:/picture/008/save_picture_729445.jpg" />
 </div>
 
 
@@ -296,7 +402,7 @@ Windows 11 Pro x64 21Н2 (build 22000.469) by ivandubskoj 07.02.2022 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729430.jpg" />
+  <img src="Z:/picture/008/save_picture_729430.jpg" />
 </div>
 
 
@@ -322,7 +428,7 @@ Microsoft Office LTSC 2021 Professional Plus / Standard + Visio + Project 16.0.1
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729419.jpg" />
+  <img src="Z:/picture/008/save_picture_729419.jpg" />
 </div>
 
 
@@ -348,7 +454,7 @@ Sandboxie 5.18 Final [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729363.jpg" />
+  <img src="Z:/picture/008/save_picture_729363.jpg" />
 </div>
 
 
@@ -374,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729314.jpg" />
+  <img src="Z:/picture/005/save_picture_729314.jpg" />
 </div>
 
 
@@ -400,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729293.jpg" />
+  <img src="Z:/picture/005/save_picture_729293.jpg" />
 </div>
 
 
@@ -426,7 +532,7 @@ Adobe Audition CC 2017.1 10.1.0.174 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729289.jpg" />
+  <img src="Z:/picture/008/save_picture_729289.jpg" />
 </div>
 
 
@@ -452,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729197.jpg" />
+  <img src="Z:/picture/008/save_picture_729197.jpg" />
 </div>
 
 
@@ -478,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729154.jpg" />
+  <img src="Z:/picture/008/save_picture_729154.jpg" />
 </div>
 
 
@@ -504,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729131.jpg" />
+  <img src="Z:/picture/008/save_picture_729131.jpg" />
 </div>
 
 
@@ -530,7 +636,7 @@ SCAD Office 21.1.1.1 [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729129.jpg" />
+  <img src="Z:/picture/008/save_picture_729129.jpg" />
 </div>
 
 
@@ -556,7 +662,7 @@ Commandos Антология [Ru] (L) 2011 | R.G. Origins
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729067.jpg" />
+  <img src="Z:/picture/008/save_picture_729067.jpg" />
 </div>
 
 
@@ -569,111 +675,6 @@ Commandos Антология [Ru] (L) 2011 | R.G. Origins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0692ED38D801376BFAC8FA1E66C53F69015C43B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638222   (729045) от 11.06.2013
-
-Игра престолов / Game of Thrones (Сезон 3 полный (10)) (2013) HDTVRip (МЕКС ИНФО)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729045.jpg" />
-</div>
-
-
-###  Подробнее
-
-К концу подходит время благоденствия, и лето, длившееся несколько десятилетий, угасает. Люди, отказавшиеся жить по законам Семи Королевств, получили название одичалых и были изгнаны за Стену, на страже которой стоит Ночной Дозор. Но орден был учрежден, чтобы защищать мир людей от совсем другой силы — Белых Ходоков, ныне пробудившихся и угрожающих всему живому. Король (   Читать дальше...   )Производство: США, HBO, Television 360, Grok! StudioЖанр: Драма, фэнтазиРежиссер: Тимоти Ван Паттен, Брайан Кирк, Даниэль Минахан, Алан ТейлорПеревод: Профессиональный многоголосый закадровый - NewStudio и МЕКС ИНФОПродолжительность: ~ 00:55:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646214   (729041) от 11.06.2013
-
-Демоны да Винчи / Da Vinci's Demons (Сезон 1 полный (8)) (2013) HDTV 720p (AlexFilm)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729041.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где мысль и вера находятся под контролем, один человек борется за то, чтобы сделать знания доступными для всех.
-Не рассказанная история трагичной жизни Леонардо да Винчи раскрывает портрет молодого человека, которого мучает дар гения. Он - еретик, жаждущий раскрыть ложь религии. Бунтарь, стремящийся низвергнуть элитарное общество. Незаконнорожденный сын, (   Читать дальше...   )Производство: США, StarzЖанр: Псевдоистория, драма, приключенияРежиссер: Дэвид С. Гойер, Джейми Пэйн, Пол Уилмсхёрст, Майкл Дж. БассеттПеревод: Профессиональный многоголосый закадровый - AlexFilmПродолжительность: ~ 00:59:00 серия
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284361   (728411) от 21.02.2019
-
-Ежегодное послание Президента России Владимира Путина Федеральному Собранию (20.02.2019) HDTV [H.264/1080i-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Путин обратился с Посланием к Федеральному Собранию. Церемония оглашения прошла в Москве, в Гостином дворе. На церемонии присутствовали члены Совета Федерации, депутаты Государственной Думы, члены Правительства, руководители Конституционного и Верховного судов, губернаторский корпус.Телекомпания: Россия 1 HDЖанр: Документальный, ПолитикаСубтитры: отсутствуютПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F271DA56B62EEDA1B7CE9CE267662DA1726C6F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284036   (728376) от 21.02.2019
-
-Хроники хищных городов / Mortal Engines (2018) WEB-DL [H.264/1080p] [Open Matte]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошли тысячелетия после того, как мир настиг апокалипсис. Человечество адаптировалось и теперь живет по новым правилам. Гигантские движущиеся мегаполисы рассекают пустоши и поглощают маленькие города ради ресурсов. Том Нэтсуорти из нижнего уровня великого Лондона оказывается в смертельной опасности, когда на его пути появляется скрывающаяся от закона бунтарка Эстер (   Читать дальше...   )Производство: Новая Зеландия, США / Media Rights Capital (MRC), Scholastic Productions, Silvertongue FilmsЖанр: Фантастика, фэнтези, боевик, триллер, приключенияРежиссер: Кристиан РиверсАктеры: Гера Хилмарсдоттир, Роберт Шиэн, Хьюго Уивинг, Джихе, Ронан Рафтери, Лейла Джордж, Патрик Мэлахайд, Стивен Лэнг, Колин Сэлмон, Марк МитчинсонПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 02:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD2994A5549858274FEFCCF235CABFC1A461B59
 ```
 
 https://mybot314.ru/tekegram_catalog/

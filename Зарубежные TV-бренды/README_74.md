@@ -1,3 +1,111 @@
+###  Публикация: 85981   (520840) от 16.08.2018
+
+Discovery. Византия: Утраченная Империя / Byzantium: The Lost Empire (1997/2006) DVDRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совершите путешествие вглубь веков в поисках происхождения западной веры. История Византии, первого христианского государства, – это история торжества веры. Византийские императоры стремились превратить Константинополь, «око веры христианской», в Новый Иерусалим, который стал бы раем на Земле. Эта программа расскажет об удивительном духовном наследии Византии: рукописях, (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Рон ДжонсонПеревод: Профессиональный (одноголосый)Продолжительность: 00:52:19
+
+На Византию с жадным интересом смотрели многие европейские монархи. Ни один правитель не обладал таким могуществом, как император Византии. Дорогие ткани, сверкающие эмали, убранные золотом и драгоценными камнями одежды, изделия из слоновой кости, бесценные благовония – эти несметные богатства восхищали и притягивали взоры. Огромные сокровища хранили в (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22E82FE0153295635FDAE4B6850C1EDE752D632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560478   (520671) от 29.06.2022
+
+Discovery: Путешествие в Малайзию / Passage To Malaysia: Into The Wild with Denise Keller (2009) DVDRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520671.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малайзия — одна из самых экзотичных стран в мире, и многое в ней выглядит необычно даже в сравнении с другими соседями по Юго-Восточной Азии. Она состоит из двух частей — материковой (на полуострове Малакка), где находится и столица страны; и островной — на острове Борнео (Калимантан). Телеведущая Дениз Келлер приглашает Вас в видеопутешествие именно по островной (   Читать дальше...   )Производство: США, Reel Networks FilmЖанр: документальный, путешествия, флора, фауна, традицииРежиссер: Дэвид МоджиПеревод: двуголосый профессиональныйСубтитры: английские (участки с речью на местном языке)Продолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F3C31D54C261EE527C272E5D84E37E81339A16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928472   (520492) от 18.08.2015
+
+BBC: Постигая звёздное небо / BBC: Stargazing Live (2013) SATRip [сезон 3 серия 1- 3 из 3]
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такое огромное, бескрайнее и глубокое небо. Миллионы лет миллиарды глаз смотрят вверх и пытаются разгадать, что же там, и почему нас туда так тянет. Дара О'Бриэн и профессор Брайан Кокс приглашают нас в космическое путешествие - наше удивительную ночное небо.Жанр: Документальный, научно-познавательный, космосРежиссер: Barbara WiltshireПеревод: Профессиональный (двухголосый), компания "Видеофильм ТВ"Формат: AVIПродолжительность: 00:48:01+00:48:26+00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD44828F6A0D16FD0FC9B01403DA61D439A2072A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928559   (520490) от 18.08.2015
+
+Nat Geo Wild: Жизнь на Большом Барьерном рифе / Life on the Reef (2012) HDRip (720p-LQ) [серии 1-3 из 3]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_520490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большой Барьерный Риф у побережья Австралии является крупнейшей в мире живой структурой и одной из самых богатых и самых сложных природных экосистем на Земле. Для некоторых, это место, полное тайн и трудностей, чужой мир, полный странных, прекрасных и смертоносных тварей. Для других он является истинным домом.
+В этом документальном мини-сериале мы познакомимся с (   Читать дальше...   )Телекомпания: США, Northern Pictures, National Geographic TelevisionЖанр: Документальный, научно-познавательныйРежиссер: Карина Холден / Karina HoldenПеревод: Одноголосый закадровый, профессиональный
+(студия "Велес", текст читал Олег Белов)Продолжительность: 00:42:31+00:42:42+00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37CE60C20B9FA95E79E21D227F99BC5616BD8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 228520   (520299) от 20.08.2010
 
 BBC: Мир природы: Королева снежных обезьян / Natural World: Snow Monkeys (2009) DVDRip [111 серия]
@@ -6,7 +114,7 @@ BBC: Мир природы: Королева снежных обезьян / Nat
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520299.jpg" />
+  <img src="Z:/picture/008/save_picture_520299.jpg" />
 </div>
 
 
@@ -32,7 +140,7 @@ Discovery: Хроники Эйфелевой башни / La Legende Vraie de la
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520226.jpg" />
+  <img src="Z:/picture/008/save_picture_520226.jpg" />
 </div>
 
 
@@ -58,7 +166,7 @@ Discovery: Человеческое Тело: Грани Возможного / 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519872.jpg" />
+  <img src="Z:/picture/008/save_picture_519872.jpg" />
 </div>
 
 
@@ -84,7 +192,7 @@ Discovery: 100 величайших гаджетов со Стивеном Фр�
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519801.jpg" />
+  <img src="Z:/picture/008/save_picture_519801.jpg" />
 </div>
 
 
@@ -110,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519269.jpg" />
+  <img src="Z:/picture/008/save_picture_519269.jpg" />
 </div>
 
 
@@ -136,7 +244,7 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519166.jpg" />
+  <img src="Z:/picture/008/save_picture_519166.jpg" />
 </div>
 
 
@@ -162,7 +270,7 @@ BBC: Мир природы. Сокровища Анд / Natural World. Treasure 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518247.jpg" />
+  <img src="Z:/picture/008/save_picture_518247.jpg" />
 </div>
 
 
@@ -188,7 +296,7 @@ NG. Осушить океан: глубокое погружение. Подво
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518077.jpg" />
+  <img src="Z:/picture/008/save_picture_518077.jpg" />
 </div>
 
 
@@ -214,7 +322,7 @@ Discovery. Возвращение суперзмеи-людоеда / Devoured: 
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518075.jpg" />
+  <img src="Z:/picture/008/save_picture_518075.jpg" />
 </div>
 
 
@@ -240,7 +348,7 @@ NG. Осушить океан: глубокое погружение / Drain the
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517785.jpg" />
+  <img src="Z:/picture/008/save_picture_517785.jpg" />
 </div>
 
 
@@ -266,7 +374,7 @@ Discovery: Пираты / Pirates (1998) DVDRip
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517686.jpg" />
+  <img src="Z:/picture/008/save_picture_517686.jpg" />
 </div>
 
 
@@ -292,7 +400,7 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517629.jpg" />
+  <img src="Z:/picture/008/save_picture_517629.jpg" />
 </div>
 
 
@@ -318,7 +426,7 @@ BBC:  Машина Большого Взрыва / The Big Bang Machine (2008) S
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_517192.jpg" />
+  <img src="Z:/picture/005/save_picture_517192.jpg" />
 </div>
 
 
@@ -344,7 +452,7 @@ BBC: Ноев Ковчег - реальная история / BBC: Noah`s Ark-T
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517123.jpg" />
+  <img src="Z:/picture/008/save_picture_517123.jpg" />
 </div>
 
 
@@ -371,7 +479,7 @@ Discovery. Челюсти наносят ответный удар / Jaws Strike
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516841.jpg" />
+  <img src="Z:/picture/008/save_picture_516841.jpg" />
 </div>
 
 
@@ -397,7 +505,7 @@ BBC. Планеты / The Planets (2019) BDRemux [H.264/1080i] (сезон 1, с
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516763.jpg" />
+  <img src="Z:/picture/008/save_picture_516763.jpg" />
 </div>
 
 
@@ -423,7 +531,7 @@ Discovery: Секреты и Заговоры / Codes and Conspiracies (2014) SA
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516204.jpg" />
+  <img src="Z:/picture/008/save_picture_516204.jpg" />
 </div>
 
 
@@ -450,7 +558,7 @@ Discovery: Секреты и Заговоры / Discovery: Codes and Conspiracie
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516151.jpg" />
+  <img src="Z:/picture/008/save_picture_516151.jpg" />
 </div>
 
 
@@ -476,7 +584,7 @@ Discovery. Вот это странно Корабль-призрак / Weird or
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516141.jpg" />
+  <img src="Z:/picture/008/save_picture_516141.jpg" />
 </div>
 
 
@@ -502,7 +610,7 @@ Discovery. Вот это странно. Кокаиновые мумии / Weird
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516135.jpg" />
+  <img src="Z:/picture/008/save_picture_516135.jpg" />
 </div>
 
 
@@ -528,7 +636,7 @@ NGW: Змеи-монстры / Monster Snakes (2019) HDTV [H.264/1080i]
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515878.jpg" />
+  <img src="Z:/picture/008/save_picture_515878.jpg" />
 </div>
 
 
@@ -554,7 +662,7 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTVRip (1 с
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514839.jpg" />
+  <img src="Z:/picture/008/save_picture_514839.jpg" />
 </div>
 
 
@@ -565,110 +673,6 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTVRip (1 с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:525F03B4F6D50A80FF49DAA0F1729E0C3DACAA50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 432436   (514815) от 22.08.2018
-
-BBC. Мир природы. Королева морских дьяволов / The Natural World. Queen of the Manta Rays (2009) BDRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андреа Маршалл переехала в Мозамбик, чтобы посвятить себя изучению морских дьяволов – самого крупного и развитого вида в семействе акул и скатов. Размах крыла морского дьявола достигает пяти метров. Этот вид отличается низким темпом размножения, так что морские биологи должны поторопиться, чтобы обеспечить будущее страдающим от рыбного промысла морским дьяволам. (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, научно-популярный, фаунаРежиссер: Марк ВудвордПеревод: Одноголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7F0A267F98FAF6A948D90283D7107413EC6D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924273   (513794) от 24.08.2015
-
-Discovery. Гигантские мечи / Big Giant Swords (2015) HDTV [H.264/720p] [Серии 1-6 из 6]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поклонники фэнтези наверняка мечтают, чтобы на нашей планете, пусть даже в недрах гор или дремучих лесах, жили гномы, умеющие ковать невероятное оружие и наделять его силой стихий. А что, если они действительно существуют, причем не где-нибудь, а рядом с нами? Например, герой программы «Гигантские мечи» сварщик Майк Крохвэлл, который кует действительно легендарное (   Читать дальше...   )Телекомпания: США, DiscoveryЖанр: Документальный, ТелепередачаПродолжительность: Серия по ~00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21CEF44058B8FE4592DEC51BF6176EF9BC25C40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315367   (513727) от 19.07.2019
-
-Discovery. Нашествие гигантских медуз / Attack of The Giant Jellyfish (2010) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир по угрозой! Армия бескровных, бескостных фантомов с океанских глубин, их становится всё больше.Производство: США, Discovery, Animal PlanetЖанр: Документальный, природа, фаунаРежиссер: Карстен ОбландерПеревод: Одноголосый закадровый, профессиональный (АРК-ТВ)Субтитры: отсутствуютПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:104CE1C799DF057422CDA7C7DDA7B12E1A30FEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537049   (513263) от 19.08.2012
-
-BBC. Horizon: Питание, голодание и долголетие / Eat, Fast and Live Longer (2012) SATRip [En] sub
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майкл Мосли поставил перед собой по- настоящему амбициозную задачу: он хочет прожить долгую жизнь, оставаясь при этом молодым и здоровым и в качестве бонуса – сбросить лишний вес. При этом, он не хочет вносить каких - либо значительных изменений в свой образ жизни. Он узнает о научных исследованиях, которые изменяют устоявшиеся представления о диетах и голодании. Испытывая результаты этих исследований на себе, Майкл понимает, что голодая, можно добиться значительных результатов в деле укрепления здоровья, все еще получая при этом удовольствие от еды.Жанр: ДокументальныйПеревод: ОтсутствуетЯзык субтитров: РусскиеПродолжительность: 00:58:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C286A4DB8C55BE6795275AE2C7D46B591F944388
 ```
 
 https://mybot314.ru/tekegram_catalog/

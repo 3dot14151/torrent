@@ -1,3 +1,32 @@
+###  Публикация: 1519099   (151328) от 22.12.2021
+
+Charlie - 10 Albums (1976-2015) CD [MP3|320 Kbps] <AOR, Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Charlie - AOR/хард-рок-группа из Лондона, Великобритания, была образована певцом и автором песен Терри Томасом в 1971 году под названием Charlie Cuckoo. Группа впервые распалась в 1986 году, была реформирована в 2009 году и снова распалась в 2015 году.Список альбомов:
+1976 - Fantasy Girls
+1977 - No Second Chance
+1978 - Lines(   Читать дальше...   )Жанр: AOR, Classic Rock, Pop RockПродолжительность: 08:30:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE11B9C836564C4A27ECA221F9885B73C721BCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601357   (150913) от 31.12.2022
 
 Gnarbot - Mystery Lodge (2022) [MP3|320 Kbps] <Progressive Rock / Jazz Rock / Math Rock>
@@ -6,7 +35,7 @@ Gnarbot - Mystery Lodge (2022) [MP3|320 Kbps] <Progressive Rock / Jazz Rock / Ma
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150913.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Skrizhali - Взгляд изнутри (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149868.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Pink Floyd Tribute (2021) 2xSet [MP3|320 Kbps] <Psychedelic Rock, Classic R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149502.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023, Frank Zappa Cat
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149381.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ The Police - Message In A Box: The Complete Recordings (1993) [MP3|320 кб/с]<
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148986.jpg" />
 </div>
 
 
@@ -153,7 +182,7 @@ Sticky Fingers - Like A Rolling Stone (2012) [MP3|320 кб/с]<Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148970.jpg" />
 </div>
 
 
@@ -188,7 +217,7 @@ Jo Jo Gunne - Jo Jo Gunne (1972) Reissue, 2003, Collectors' Choice Music [MP3|32
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148807.jpg" />
 </div>
 
 
@@ -217,7 +246,7 @@ Gary Batchelor - I Am The Eye (2020) [MP3|320 Kbps] <Progressive Rock, Progressi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148442.jpg" />
 </div>
 
 
@@ -246,7 +275,7 @@ Tiger Moth Tales - The Whispering Of The World - Live From The Quiet Room (2020)
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148403.jpg" />
 </div>
 
 
@@ -275,7 +304,7 @@ Jethro Tull - All The Best (2012) [MP3|320 кб/с]<Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148342.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148342.jpg" />
 </div>
 
 
@@ -312,7 +341,7 @@ Jo Jo Gunne - Jumpin' The Gunne (1973) Reissue, 2010, Dogtoire [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147634.jpg" />
 </div>
 
 
@@ -341,7 +370,7 @@ Cliff Richard - Rise Up (2018) [MP3|320 Kbps] <Rock, Pop>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147430.jpg" />
 </div>
 
 
@@ -370,7 +399,7 @@ Captain Ivory - No Vacancy (2016) [MP3|320 Kbps] <Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146880.jpg" />
 </div>
 
 
@@ -399,7 +428,7 @@ Devil Doll - The Return of Eve (2007) [MP3|320 Kbps] <Country Blues, Rockabilly>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146798.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146798.jpg" />
 </div>
 
 
@@ -428,7 +457,7 @@ Dilmoon - What Lies Beyond (2020) [MP3|320 Kbps] <Progressive Rock, Female Vocal
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146793.jpg" />
 </div>
 
 
@@ -457,7 +486,7 @@ Devil Doll - Queen Of Pain (2002) [MP3|320 Kbps] <Rockabilly, Country Blues>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146698.jpg" />
 </div>
 
 
@@ -486,7 +515,7 @@ Heavy Pettin - Best Of Heavy Pettin (2020) [MP3|320 Kbps] <Hard Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146695.jpg" />
 </div>
 
 
@@ -515,7 +544,7 @@ Claudia Cane Sings Bon Scott - CC/DC - A True AC/DC Remake (2011) [MP3|320 кб/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145557.jpg" />
 </div>
 
 
@@ -550,7 +579,7 @@ Yes - Songs From Tsongas (2014) 35th Anniversary Concert, 3xCD [MP3|320 Kbps] <P
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144359.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144359.jpg" />
 </div>
 
 
@@ -579,7 +608,7 @@ SvaDaRa - Pilgrim / Зареница (2020) [MP3|320 Kbps] <Progressive Folk Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144350.jpg" />
 </div>
 
 
@@ -608,7 +637,7 @@ Lindi Ortega (Линди Ортега) - The Taste Of Forbidden Fruit (2001) Las
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144335.jpg" />
 </div>
 
 
@@ -637,7 +666,7 @@ Lindi Ortega (Линди Ортега) - Fall From Grace (2007) Last Gang Record
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144319.jpg" />
 </div>
 
 
@@ -666,7 +695,7 @@ RSO - Rise (2017) EP, Orianthi feat. Richie Sambora [MP3|320 Kbps] <Pop Rock, Gu
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144054.jpg" />
 </div>
 
 
@@ -695,7 +724,7 @@ Polydeluxe - Behind The Backdoor (2015) [MP3|320 кб/с] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143843.jpg" />
 </div>
 
 
@@ -724,7 +753,7 @@ Child - Child (1969) [MP3|320 кб/с] <Psychedelic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143765.jpg" />
 </div>
 
 
@@ -738,35 +767,6 @@ Child - Child (1969) [MP3|320 кб/с] <Psychedelic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92B7F8C97A92D1A0CF85AB8E649D6BA362B2E0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195184   (143741) от 28.12.2017
-
-VA - Greatest Ever! Rock Ballads (2017) [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_143741.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  Whitesnake  -  Is This Love  4:41
-02.  Alannah Myles  -  Black Velvet  4:47
-03.  Foreigner  -  I Want to Know What Love Is  6:07(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:20:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917A0B1E4D1AA4BF4397140AB71A51F979772CBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1208554   (237215) от 05.05.2022
+
+VA - San Remo '88 (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massimo Ranieri - Perdere l’amore
+02. Fiordaliso - Per Noi
+03. Toto Cutugno - Emozioni
+04. Marcella - Dopo La Tempesta(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D837C629D012790A1BF5CFBB82BAB33E73DE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208010   (237201) от 05.05.2022
+
+Tom Jones/Том Джонс - Лучшие песни из репертуара... (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237201.jpg" />
+</div>
+
+
+###  Подробнее
+
+I сторона:
+01. Дочь тьмы - Daughter Of Darkness
+02. Если... - If
+03. Брат, одолжи десять центов - Brother Can You Spare A Dime(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD36A13677BAA06E0BDA2F5F8379532C236A6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630340   (237198) от 30.04.2023
+
+Орк. Большого театра СССР, дир. А. Жюрайтис - Р. Щедрин - Сюита № 2 из балета «Конек-горбунок» (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Р. ЩЕДРИН (р. 1932)
+2-я сюита из балета "Конек-Горбунок"
+01. Танец с балалайками
+02. Братья в ночном дозоре(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45283206E50DD258C2C51C4AD0FF3D051359274C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208569   (237196) от 05.05.2022
+
+VA - Superstars (1974) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Jones - Little Lonely One
+02. Gerry Dorsey - The Sentimental Joker
+03. Gilbert O'Sullivan - I Wish I Could Cry
+04. ''The Nocturnes'' - Why (Am I Treated So Bad)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B88A65B6D3FB6F93DC3C9DF6881B15B37930543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630226   (237159) от 30.04.2023
+
+Gorillaz - Cracker Island (2023) [DSD128 2.0|tracks|Vinyl-Rip] <Electronic, Hip Hop, Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracker Island (3:33)
+ 02. Oil (3:50)
+ 03. The Tired Influencer (3:31)
+ 04. Tarantula (3:32)(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, PopПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC458EC151F24CA9F2FCC5F22DBF416BD57AF0BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630326   (237126) от 30.04.2023
+
+Т. Николаева/Л. Брук и М. Тайманов - И. Стравинский/Ф. Пуленк - Каприччио/Концерт для двух ф-но с оркестром (1964) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_237126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каприччио Для Ф-но С Оркестром
+A1 Presto
+A2 Andante Rapsodico
+A3 Allegro Capriccioso Ma Non Giusto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2E61958C216378831928B25235310246FEA534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628032   (236992) от 21.04.2023
+
+Rupert Hine - Immunity (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236992.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Hang On To My Vertigo 4:40
+A2 Misplaced Love 4:14
+A3 Samsara 5:15
+A4 Surface Tension 4:19(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31C82911D4C441BCDED9C1FAAD2743E07BB5F002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630590   (236921) от 01.05.2023
+
+Manfred Mann's Earth Band - Ансамбль Мэнфреда Мэнна (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Prog Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236921.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Круги · Circles
+A2 Тонущий На Суше · Drowning On Dry Land · Рыбный Суп · Fish Soup
+A3 Институт В Чикаго · Chicago Institute
+A4 Калифорния · California(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F279370E9CF47C9306638DA9D8875246BF9FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630815   (236410) от 04.05.2023
 
 Depeche Mode - Playing The Angel (2005)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic>
@@ -6,7 +238,7 @@ Depeche Mode - Playing The Angel (2005)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236410.jpg" />
+  <img src="Z:/picture/005/save_picture_236410.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236395.jpg" />
+  <img src="Z:/picture/005/save_picture_236395.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Darkseed - Studio Albums (8 releases) (1996-2010) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236312.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Danzig - Studio Albums (9 releases) (1994-2017) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236104.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ VA - Мелодии Друзей (1971) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236092.jpg" />
+  <img src="Z:/picture/004/save_picture_236092.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Civil War - Studio Albums (5 releases) (2012-2022) hand made [restored, declippe
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235963.jpg" />
+  <img src="Z:/picture/004/save_picture_235963.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Entombed / Entombed A.D. - Studio Albums (16 releases) (1990-2019) hand made [re
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235909.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ A-ha - Stay On These Roads (1988) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip] <Elect
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235786.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235659.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ VA - Эстрадная Орбита (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-R
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235630.jpg" />
+  <img src="Z:/picture/004/save_picture_235630.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ The Sins Of Thy Beloved - Studio Albums (3 releases) (1997-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_235348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_235348.jpg" />
 </div>
 
 
@@ -324,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_235260.jpg" />
+  <img src="Z:/picture/004/save_picture_235260.jpg" />
 </div>
 
 
@@ -353,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234631.jpg" />
 </div>
 
 
@@ -382,7 +614,7 @@ Wuthering Heights - Studio Albums (5 releases) (1999-2010) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_234242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_234242.jpg" />
 </div>
 
 
@@ -411,7 +643,7 @@ Whitney Houston - I'm Your Baby Tonight (1990) [FLAC 2.0|24/96|image + .cue|Viny
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233980.jpg" />
 </div>
 
 
@@ -440,7 +672,7 @@ Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, Ne
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_233869.jpg" />
+  <img src="Z:/picture/005/save_picture_233869.jpg" />
 </div>
 
 
@@ -469,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233757.jpg" />
 </div>
 
 
@@ -498,7 +730,7 @@ Mnemic - Studio Albums (5 releases) (2003-2012) hand made [restored, declipped] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233340.jpg" />
 </div>
 
 
@@ -512,238 +744,6 @@ Mnemic — датская метал-группа, образованная в �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C09456FDADFAF80160FCB36C5A51FCEC1A07BAD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635042   (233007) от 23.05.2023
-
-Moonspell - Studio Albums (13 releases) (1995-2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_233007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moonspell — португальская метал-группа, основанная в 1992 году. На первых порах группа играла фолк/блэк-метал, позднее творчество группы обычно характеризуют как готик-дум-метал.1995 - Wolfheart
-1996 - Irreligious
-1998 - Sin Pecado
-1999 - The Butterfly EffectЖанр: Gothic MetalПродолжительность: 13:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642992   (232991) от 30.06.2023
-
-Emperor - Studio Albums (7 releases) (1993-2001) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emperor — норвежская блэк-метал-группа, основанная в 1991 году и оказавшая значительное влияние на развитие жанра.1993 - Emperor (EP)
-1994 - As The Shadows Rise (EP)
-1994 - In the Nightside Eclipse
-1998 - Anthems To The Welkin At DuskЖанр: Symphonic Black MetalПродолжительность: 04:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CC8EDBE9CC8A2E1A81A8C3BDD8F5C6ADA895EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634983   (232952) от 23.05.2023
-
-Давид Ойстрах - К. Дебюсси, С. Прокофьев, М. Равель, Э. Изаи – Сонаты для ф-но и скрипки (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232952.jpg" />
-</div>
-
-
-###  Подробнее
-
-Соната Для Скрипки И Ф-но Соль Минор, Соч. 1917 г. = Violin Sonata In G Minor (1917)
-А1 Allegro Vivo
-А2 Intermede. Fantasteque Et Leger
-А3 Finale. Tres Anime(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5768FFFB9DE22D4CA26F74B2BC23B6FE0046FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634583   (232878) от 23.05.2023
-
-Е. Могилевский, ф-но и симф. орк Мосгосфилармонии, дир. К. Кондрашин - С. Рахманинов – Концерт №3 для ф-но с оркестром, соч. 30 (1964) [FLAC 1.0|96/24|image+.cue|Vinyl-Rip] <Classical, Neo-Roman ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_232878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт №3 Для Фортепиано С Оркестром Ре Минор, Соч. 30
-A  1. Allegro ma non tanto
-B1 2. Intermezzo. Adagio
-B2 3. Finale. Alla breve(   Читать дальше...   )Жанр: Classical, Neo-RomanticПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F76111173180AF70D7042F6EC9C570DDDD5996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934981   (231774) от 02.10.2022
-
-Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and other Great Hits (1971) [FLAC 2.0 24/192|image+.cue (Vinyl Rip)]<Pop/Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chirpy Chirpy Cheep Cheep
-02. Lingering Sounds
-03. Fate Strange Fate
-04. I Can't Tell The Bottom From The Top(   Читать дальше...   )Жанр: Pop/EuropopПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA03A5BABA5D53E8FA538C3D0221E4EDAFD55035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312267   (231406) от 04.10.2022
-
-Ray Conniff - Hello Young Lovers (1970) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_231406.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Impossible Dream
-A2 An Improvisation On ''None But The Lonely Heart''
-A3 Yonger Than Springtime
-A4 Favourite Love Theme From Tchaikovsky's ''Romeo And Juliet''(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7D9C72EDC680AB97ED20B924505ED891DD990A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637016   (231036) от 02.06.2023
-
-Led Zeppelin - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231036.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Stairway To Heaven
-A2 Custard Pie
-A3 D'Yer Mak'er
-A4 Houses Of The Holy(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B023AFBE1BDCF28A2386BD86C4C89199AAA0E246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637048   (230996) от 02.06.2023
-
-Queen - Легенды Зарубежного Рока (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Arena Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_230996.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A Kind Of Magic (A Kind Of Magic)
-A2 Killer Queen (Sheer Heart Attack)
-A3 You're My Best Friend (A Night At The Opera)
-A4 Play The Game (The Game)(   Читать дальше...   )Жанр: Classic Rock, Arena RockПродолжительность: 01:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0219688D49CED240AA3B3BED93374284BBCE8F08
 ```
 
 https://mybot314.ru/tekegram_catalog/

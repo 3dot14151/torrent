@@ -1,3 +1,109 @@
+###  Публикация: 1457232   (236447) от 25.03.2021
+
+PatterNodes 2 v2.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236447.jpg" />
+</div>
+
+
+###  Подробнее
+
+PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
+Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35B2773FF8153EC0F80CEB8880847BBEEACF82A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457184   (236440) от 25.03.2021
+
+MacMagic 1.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236440.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacMagic может помочь очистить гигабайты дискового пространства, переполненного кешами плохо оптимизированных приложений, скрыть или отобразить файлы в Finder, помочь принудительно удалить содержимое корзины и выполнить различные другие задачи для автоматизации. Упростите свой рабочий процесс с утилитой MacMagic.Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: Koingo Software, IncПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68BD912F48E2A26428293F6254ECD49F21B05CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505936   (236437) от 29.10.2021
+
+Things 3 v3.15.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D57FABE112F61B1DF85A0F225874BB9FD035B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609332   (236433) от 03.02.2023
+
+NCH Crescendo Masters Pro 9.18 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236433.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение Crescendo Masters для написания музыкальных заметок и создания музыкальных партитур на Mac.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2023Разработчик: © 2023 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1BBF1EB7E0A05EE0330B93AD4069BB55119273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506010   (236429) от 29.10.2021
 
 CaptureGRID 4 v4.23 [En]
@@ -6,7 +112,7 @@ CaptureGRID 4 v4.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236429.jpg" />
+  <img src="Z:/picture/005/save_picture_236429.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Qbserve 1.88 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236404.jpg" />
+  <img src="Z:/picture/005/save_picture_236404.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ GlueMotion 2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236403.jpg" />
+  <img src="Z:/picture/005/save_picture_236403.jpg" />
 </div>
 
 
@@ -87,7 +193,7 @@ Athentech Perfectly Clear Video for Mac 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236399.jpg" />
+  <img src="Z:/picture/005/save_picture_236399.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ BBEdit 13 v13.5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236397.jpg" />
+  <img src="Z:/picture/005/save_picture_236397.jpg" />
 </div>
 
 
@@ -140,7 +246,7 @@ EazyDraw 10.7.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236394.jpg" />
+  <img src="Z:/picture/005/save_picture_236394.jpg" />
 </div>
 
 
@@ -166,7 +272,7 @@ Network & Battery 12.2.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236392.jpg" />
+  <img src="Z:/picture/005/save_picture_236392.jpg" />
 </div>
 
 
@@ -195,7 +301,7 @@ Find Any File (FAF) 2.3.2 b3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236389.jpg" />
+  <img src="Z:/picture/005/save_picture_236389.jpg" />
 </div>
 
 
@@ -222,7 +328,7 @@ Professional Recorder & Editor 6.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236381.jpg" />
+  <img src="Z:/picture/005/save_picture_236381.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236378.jpg" />
+  <img src="Z:/picture/005/save_picture_236378.jpg" />
 </div>
 
 
@@ -276,7 +382,7 @@ Exposure X6 v6.0.5.196 ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236377.jpg" />
+  <img src="Z:/picture/005/save_picture_236377.jpg" />
 </div>
 
 
@@ -302,7 +408,7 @@ Battery Charging Alert 3.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236370.jpg" />
+  <img src="Z:/picture/005/save_picture_236370.jpg" />
 </div>
 
 
@@ -329,7 +435,7 @@ Acorn 7 v7.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236369.jpg" />
+  <img src="Z:/picture/005/save_picture_236369.jpg" />
 </div>
 
 
@@ -356,7 +462,7 @@ SSH Config Editor Pro 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236363.jpg" />
+  <img src="Z:/picture/005/save_picture_236363.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ RapidWeaver 8 v8.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236354.jpg" />
+  <img src="Z:/picture/005/save_picture_236354.jpg" />
 </div>
 
 
@@ -409,7 +515,7 @@ Acon Digital Acoustica Premium Edition 7.3.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236348.jpg" />
+  <img src="Z:/picture/005/save_picture_236348.jpg" />
 </div>
 
 
@@ -435,7 +541,7 @@ Allavsoft Video Downloader Converter 3.23.4.7754 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236334.jpg" />
+  <img src="Z:/picture/005/save_picture_236334.jpg" />
 </div>
 
 
@@ -461,7 +567,7 @@ BetterZip 5 v5.1.1 b2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236326.jpg" />
+  <img src="Z:/picture/005/save_picture_236326.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ PullTube 1.8.5.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236322.jpg" />
 </div>
 
 
@@ -514,7 +620,7 @@ iReal Pro 2020.7.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236309.jpg" />
+  <img src="Z:/picture/005/save_picture_236309.jpg" />
 </div>
 
 
@@ -540,7 +646,7 @@ EditReady 23.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236287.jpg" />
 </div>
 
 
@@ -569,7 +675,7 @@ SiteSucker Pro 5.1.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236280.jpg" />
 </div>
 
 
@@ -580,113 +686,6 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B50A84BB2BADE23692250AC510694E0C4417B83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510308   (236272) от 16.11.2021
-
-FastScripts 3.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236272.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastScripts - Утилита для быстрого запуска AppleScript-ов и шелл-скриптов в любом приложении. Если нажать на значок FastScripts в строке меню, раскроется список скриптов, для запуска которых нужен всего один клик.
-Помимо этого каждому скрипту можно назначить сочетание клавиш для запуска. При работе с определенным приложением, все доступные для него скрипты будут (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: © 2021 Red Sweater Software, LLC.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980070D45112934E68E9BD3B2A2651A52E726C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510345   (236264) от 16.11.2021
-
-Scrutiny 10 v10.4.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
-Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши теги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.2021Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C253816B5BC6509B0FCCC1732DD16FC888BAE68A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457464   (236263) от 26.03.2021
-
-Viper FTP 5.7.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-клиент для macOS, с поддержкой популярный протоколов - FTP, SFTP, WebDAV и Amazon S3, который позволяет легко получить доступ к различным удаленным серверам для управления, получения/передачи файлов.
-Контекстное меню Viper FTP обеспечивает доступ к многочисленным инструментам и функциям, которые позволяют открыть (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2021Разработчик: Grzegorz StaszczykПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A316C149EDD53981EAB30F62D06B9B6A5C6B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641697   (236249) от 23.06.2023
-
-VueScan Pro 9.8.08 ARM/Intel [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236249.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan является приложением для работы со сканерами Minolta, HP, Nikon, Epson, Polaroid, Canon и мн.др. Поддерживается работа с глубиной цвета, а также автоматическая и ручная настройки большого количества параметров и пакетного режима сканирования. VueScan поддерживает больше 2800 моделей сканеров. Приложением предусмотрено автоустранение дефектов с изображения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2023Разработчик: © 2023 Hamrick SoftwareПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D50BCC3089A9A3F0C0F76C03EF7AC3D2428ECA28
 ```
 
 https://mybot314.ru/tekegram_catalog/

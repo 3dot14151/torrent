@@ -1,3 +1,61 @@
+###  Публикация: 1382235   (820876) от 10.05.2020
+
+VA - Beatport Trance: Electro Sound Pack: #76 (2020) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820876.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Infect Insect - Boiler Of Thoughts
+002. Aj Gibson & Claire Willis - Reach The Sun
+003. Division Zero - Resystance (Extended Mix)
+004. John Askew - Electraglide (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 11:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:045595A98E3A27B3A0958FD3CB8D58724A083E19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382291   (820758) от 10.05.2020
+
+VA - Best Electronic Of All Time (2020) [MP3|320 Kbps] <Electro, House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_820758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daft Punk - One More Time 5:20
+02. Moby - Porcelain 4:01
+03. Donna Summer - I Feel Love 3:45
+04. Depeche Mode - Enjoy The Silence 4:15(   Читать дальше...   )Жанр: Electro, House, OtherПродолжительность: 04:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70C6B8A53957A3A20CEC63C8B79E120E53AF9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007607   (819903) от 16.04.2016
 
 VA - Progressive Line Vol.4 (2016) [MP3|320 кб/с] <House, Progressive House>
@@ -6,7 +64,7 @@ VA - Progressive Line Vol.4 (2016) [MP3|320 кб/с] <House, Progressive House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819903.jpg" />
+  <img src="Z:/picture/008/save_picture_819903.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Super Bomb Electro: Classic 2 (2016) [MP3|320 кб/с] <Electro House, Elec
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819821.jpg" />
+  <img src="Z:/picture/008/save_picture_819821.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Extra Trance (episode 10) (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819655.jpg" />
+  <img src="Z:/picture/008/save_picture_819655.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ VA - Record Super Chart 16.10.2021 [MP3|320 Kbps] <Pop, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819390.jpg" />
+  <img src="Z:/picture/008/save_picture_819390.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ VA - Beatport Goa Trance: Electro Sound Pack #80 (2020) [MP3|320 Kbps] <Psychede
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819290.jpg" />
+  <img src="Z:/picture/008/save_picture_819290.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ VA - Beatport Uplifting Trance: Sound Pack #357 (2021) [MP3|320 Kbps] <Uplifting
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819086.jpg" />
+  <img src="Z:/picture/008/save_picture_819086.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ VA - Epic Chart Favorites Empire (2016) [MP3|320 кб/с] <Progressive House, El
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818102.jpg" />
+  <img src="Z:/picture/008/save_picture_818102.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - Sweet and Sexy 20 Amazing Lounge Anthems Vol.4 (2016) [MP3|320 кб/с] <Do
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818101.jpg" />
+  <img src="Z:/picture/008/save_picture_818101.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Club Dance Ambience Vol.65 (2016) [MP3|320 кб/с] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817937.jpg" />
+  <img src="Z:/picture/008/save_picture_817937.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ VA - Drum Anthems (2017) [MP3|320 Kbps] <Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817722.jpg" />
+  <img src="Z:/picture/008/save_picture_817722.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - The Official UK Top 40 Singles Chart 05.01.2018 [MP3|248-320 Kbps] <Electro
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817707.jpg" />
+  <img src="Z:/picture/008/save_picture_817707.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ VA - New Electronic (2020) [MP3|320 Kbps] <House, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817521.jpg" />
+  <img src="Z:/picture/008/save_picture_817521.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ VA - Synthwave Artifacts: Retro Wave (2020) [MP3|320 Kbps] <Synthwave, Electroni
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817243.jpg" />
+  <img src="Z:/picture/008/save_picture_817243.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ VA - Pure Heart Chillout Love Party (2015) [MP3|320 Kbps] <Downtempo, Chillout, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817190.jpg" />
+  <img src="Z:/picture/008/save_picture_817190.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ VA - Dream House (2020) [MP3|320 Kbps] <House, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816939.jpg" />
+  <img src="Z:/picture/008/save_picture_816939.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ KSHMR - The Best (2017) [MP3|320 Kbps] <House, Dutch, Electro House, Progressive
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816894.jpg" />
+  <img src="Z:/picture/008/save_picture_816894.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ VA - Deep House Collection Vol. 113 (2017) [MP3|320 Kbps] <Deep House, Club Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816765.jpg" />
+  <img src="Z:/picture/008/save_picture_816765.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ VA - Lounge At The Seashore 9 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downte
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816505.jpg" />
+  <img src="Z:/picture/008/save_picture_816505.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ VA - Uplifting Spring Addiction (2016) [MP3|320 кб/с] <Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816116.jpg" />
+  <img src="Z:/picture/008/save_picture_816116.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ VA - Resident Advisor Top 50 Charted Tracks March (2016) [MP3|320 кб/с] <Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816036.jpg" />
+  <img src="Z:/picture/008/save_picture_816036.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ VA - Лучшие диджеи мира (2021) [MP3|320 Kbps] <Club House, Dance
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815860.jpg" />
+  <img src="Z:/picture/008/save_picture_815860.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ VA - Record Super Chart #518 (2018) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815813.jpg" />
+  <img src="Z:/picture/008/save_picture_815813.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ VA - Tech House Vol. 2 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815627.jpg" />
+  <img src="Z:/picture/008/save_picture_815627.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ VA - Tech House Vol. 3 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815622.jpg" />
+  <img src="Z:/picture/008/save_picture_815622.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ VA - Tech House Vol. 3 (2017) b84 Version [MP3|320 Kbps] <Techno, Tech-House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A988F97CA96E9E66AC5A712461A5445024C69B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117791   (815620) от 24.03.2017
-
-VA - Beatport Trance Pack (23.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DIM3NSION - Voorpret (Original Mix)  7:02
-02.  Armin Van Buuren pres. Rising Star ft. Betsie Larkin - Again (Alex M.O.R.P.H. Remix)  3:22
-03.  Ben Stone & Mrozer - Astoria (Extended Mix)  6:45
-04.  JamX & De Leon - Can U Dig It (Dave Cold Remix)  6:33(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Melodic, Energy, ProgressiveПродолжительность: 03:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A015355608B7879D6AEA4932FF52D2005AD97D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382886   (815573) от 13.05.2020
-
-VA - Feel Good Dance (2020) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - Mr. Saxobeat 2:31
-02. Dayvi, Victor Cardenas, Kelly Ruiz - Baila Conmigo 3:10
-03. Sevenn - Loco Papi 2:59
-04. Jax Jones, Martin Solveig & Dragonette, Madison Beer, Europa - All Day And Night 2:49(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC16D6E00441E8B01013BF0AF3641A729489A09
 ```
 
 https://mybot314.ru/tekegram_catalog/

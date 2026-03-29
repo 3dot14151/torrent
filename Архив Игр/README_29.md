@@ -6,7 +6,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.1) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649347.jpg" />
+  <img src="Z:/picture/008/save_picture_649347.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.1) SteamRip ALiAS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649098.jpg" />
+  <img src="Z:/picture/008/save_picture_649098.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Hoodwink [Multi8\+] (Rip) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648989.jpg" />
+  <img src="Z:/picture/008/save_picture_648989.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ London 2012: The Official Video Game of the Olympic Games (RePack) [Multi5\-] 20
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648796.jpg" />
+  <img src="Z:/picture/008/save_picture_648796.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Lost Sea (2016) [Ru/Multi] (1.0.1) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647177.jpg" />
+  <img src="Z:/picture/008/save_picture_647177.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Resident Evil 5 (2009) [Ru/Multi] (1.0.0.129r1 (Update 1)) Repack R.G. Steamgame
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646786.jpg" />
+  <img src="Z:/picture/008/save_picture_646786.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Dungeons 3 / Dungeons III (2017) [En] (1.5.7/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646331.jpg" />
+  <img src="Z:/picture/008/save_picture_646331.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ GRID Autosport (2014) [Ru/Multi] (1.0.99.2995) License Reloaded
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645750.jpg" />
+  <img src="Z:/picture/008/save_picture_645750.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 l Seraph1
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645275.jpg" />
+  <img src="Z:/picture/008/save_picture_645275.jpg" />
 </div>
 
 
@@ -256,7 +256,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru/En] 2012 l VANSIK
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645176.jpg" />
+  <img src="Z:/picture/008/save_picture_645176.jpg" />
 </div>
 
 
@@ -285,7 +285,7 @@ Spec Ops: The Line (RePack) [Ru/En] 2012 l R.G. Recoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645069.jpg" />
+  <img src="Z:/picture/008/save_picture_645069.jpg" />
 </div>
 
 
@@ -315,7 +315,7 @@ Vessel [Ru/En] (RePack/1.13) 2012 l Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645063.jpg" />
+  <img src="Z:/picture/008/save_picture_645063.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Spec Ops: The Line (RePack/1.0.6890.0) [Ru/En] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645061.jpg" />
+  <img src="Z:/picture/008/save_picture_645061.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Spec Ops: The Line (Steam-Rip/1.0) [Ru/En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645056.jpg" />
+  <img src="Z:/picture/008/save_picture_645056.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2) [Ru] 2012 l a1chem1st
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644823.jpg" />
+  <img src="Z:/picture/008/save_picture_644823.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Day One: Garry's Incident (2013) [En] (1.0.9953.0/dlc) SteamRip Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644793.jpg" />
+  <img src="Z:/picture/008/save_picture_644793.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Spec Ops: The Line [Ru/En] (LossLess RePack/1.0.6890.0) 2012 l R.G. Revenants
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644685.jpg" />
+  <img src="Z:/picture/008/save_picture_644685.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Tom Clancy's Ghost Recon: Future Soldier (RePack/1.2/DLC) [Ru] 2012 l SEYTER
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644680.jpg" />
+  <img src="Z:/picture/008/save_picture_644680.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Spec Ops: The Line (RePack/1.0.6890.0/DLC) [Ru] 2012 l UltraISO
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644676.jpg" />
+  <img src="Z:/picture/008/save_picture_644676.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Spec Ops: The Line [Ru/En] (Lossless RePack/1.0.6890.0)  2012 l R.G. Origami
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644668.jpg" />
+  <img src="Z:/picture/008/save_picture_644668.jpg" />
 </div>
 
 
@@ -570,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644564.jpg" />
+  <img src="Z:/picture/008/save_picture_644564.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ Spec Ops: The Line (Steam-Rip/1.0.6890.0) [Ru] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644552.jpg" />
+  <img src="Z:/picture/008/save_picture_644552.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ Policenauts [PS1] [En, Ja] (1996)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644035.jpg" />
+  <img src="Z:/picture/008/save_picture_644035.jpg" />
 </div>
 
 
@@ -652,7 +652,7 @@ BLACKHOLE (2015) [Multi] (1.0.4e/dlc) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642946.jpg" />
+  <img src="Z:/picture/008/save_picture_642946.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ The Wolf Among Us (2013) [Ru/En] (1.0) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642940.jpg" />
+  <img src="Z:/picture/008/save_picture_642940.jpg" />
 </div>
 
 
@@ -704,7 +704,7 @@ Dragon Ball Xenoverse (2015) [Ru/Multi] (1.0.7.00/dlc) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642939.jpg" />
+  <img src="Z:/picture/008/save_picture_642939.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863726.jpg" />
+  <img src="Z:/picture/008/save_picture_863726.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863722.jpg" />
+  <img src="Z:/picture/008/save_picture_863722.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ABViewer Enterprise 11.1.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863718.jpg" />
+  <img src="Z:/picture/008/save_picture_863718.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Cowboy MInstALL Western By StartSoft 12-2016 Lite [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863717.jpg" />
+  <img src="Z:/picture/008/save_picture_863717.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Crazy Town - 2 альбома (1999-2002) Дискография [FLAC|image+.cu
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863709.jpg" />
+  <img src="Z:/picture/008/save_picture_863709.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863698.jpg" />
+  <img src="Z:/picture/008/save_picture_863698.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863670.jpg" />
+  <img src="Z:/picture/008/save_picture_863670.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863661.jpg" />
+  <img src="Z:/picture/008/save_picture_863661.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_863653.jpg" />
+  <img src="Z:/picture/009/save_picture_863653.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ R.E.M. - Collapse Into Now (2011) [MP3|320 kbps]<Alternative Rock>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863643.jpg" />
+  <img src="Z:/picture/008/save_picture_863643.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Revo Uninstaller Pro 4.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863612.jpg" />
+  <img src="Z:/picture/008/save_picture_863612.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ YTD Video Downloader PRO 5.9.17.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863606.jpg" />
+  <img src="Z:/picture/008/save_picture_863606.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ SMPlayer 20.4.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863597.jpg" />
+  <img src="Z:/picture/008/save_picture_863597.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863533.jpg" />
+  <img src="Z:/picture/008/save_picture_863533.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863531.jpg" />
+  <img src="Z:/picture/008/save_picture_863531.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863529.jpg" />
+  <img src="Z:/picture/008/save_picture_863529.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Tipard Video Converter Ultimate 10.0.18 RePack (& Portable) by TryRooM [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863527.jpg" />
+  <img src="Z:/picture/008/save_picture_863527.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863522.jpg" />
+  <img src="Z:/picture/008/save_picture_863522.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863497.jpg" />
+  <img src="Z:/picture/008/save_picture_863497.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863495.jpg" />
+  <img src="Z:/picture/008/save_picture_863495.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_863482.jpg" />
+  <img src="Z:/picture/009/save_picture_863482.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863475.jpg" />
+  <img src="Z:/picture/008/save_picture_863475.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ Topaz DeNoise AI 2.1.4 RePack (& Portable) by elchupacabra [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863453.jpg" />
+  <img src="Z:/picture/008/save_picture_863453.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ IcoFX 3.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863450.jpg" />
+  <img src="Z:/picture/008/save_picture_863450.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Revo Uninstaller Pro 4.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863447.jpg" />
+  <img src="Z:/picture/008/save_picture_863447.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Windows 10 Manager 3.2.5.0 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863443.jpg" />
+  <img src="Z:/picture/008/save_picture_863443.jpg" />
 </div>
 
 

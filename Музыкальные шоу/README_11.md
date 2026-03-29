@@ -1,3 +1,29 @@
+###  Публикация: 1284863   (726406) от 23.02.2019
+
+Голос. Дети (2019.02.22) HDTV [H.264/1080i-LQ] (сезон 6, выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726406.jpg" />
+</div>
+
+
+###  Подробнее
+
+C 15 февраля в шоу Голос дети новые наставники. В этот раз ими выступят Валерий Меладзе, Пелагея и Светлана Лобода. В шестом сезоне будут участвовать вокалисты, возраст которых не превышает 14 лет. В кастинге принимали участие не только российские, но и зарубежные вокалисты. В слепых прослушиваниях будет участвовать примерно 120 человек. В процессе слепых прослушиваний (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-шоуСубтитры: отсутствуютПродолжительность: 01:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1FCF161B5964A8A2C30CD615DE863057EBF9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531113   (724429) от 14.02.2022
 
 Маска (2022) WEBRip [H.264/1080p] (сезон 3, выпуск 1)
@@ -6,7 +32,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724429.jpg" />
+  <img src="Z:/picture/008/save_picture_724429.jpg" />
 </div>
 
 
@@ -35,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720706.jpg" />
+  <img src="Z:/picture/008/save_picture_720706.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720555.jpg" />
+  <img src="Z:/picture/008/save_picture_720555.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720461.jpg" />
+  <img src="Z:/picture/008/save_picture_720461.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720457.jpg" />
+  <img src="Z:/picture/008/save_picture_720457.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720019.jpg" />
+  <img src="Z:/picture/008/save_picture_720019.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718705.jpg" />
+  <img src="Z:/picture/008/save_picture_718705.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718137.jpg" />
+  <img src="Z:/picture/008/save_picture_718137.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713651.jpg" />
+  <img src="Z:/picture/008/save_picture_713651.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713519.jpg" />
+  <img src="Z:/picture/008/save_picture_713519.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710843.jpg" />
+  <img src="Z:/picture/008/save_picture_710843.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710798.jpg" />
+  <img src="Z:/picture/008/save_picture_710798.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_707638.jpg" />
+  <img src="Z:/picture/005/save_picture_707638.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706835.jpg" />
+  <img src="Z:/picture/008/save_picture_706835.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705815.jpg" />
+  <img src="Z:/picture/008/save_picture_705815.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704808.jpg" />
+  <img src="Z:/picture/008/save_picture_704808.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701486.jpg" />
+  <img src="Z:/picture/008/save_picture_701486.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701477.jpg" />
+  <img src="Z:/picture/008/save_picture_701477.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701347.jpg" />
+  <img src="Z:/picture/008/save_picture_701347.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700435.jpg" />
+  <img src="Z:/picture/008/save_picture_700435.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696778.jpg" />
+  <img src="Z:/picture/008/save_picture_696778.jpg" />
 </div>
 
 
@@ -558,6 +584,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 794551   (695595) от 09.06.2014
+
+Точь-в-точь (2014) HDTVRip/SATRip (сезон №1, выпуски №1-14 из 14)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_695595.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Точь-в-точь" - грандиозное шоу, в котором знаменитости пойдут на все, чтобы устроить фейерверк талантливых и неожиданных выступлений. Будет красиво, непредсказуемо, азартно, смешно. Над проектом работали создатели самых зрелищных шоу страны – таких, как "Евровидение", "Голос", "Золотой граммофон", "Фабрика звезд". (   Читать дальше...   )Жанр: ТВ-шоуПродолжительность: 35:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE0B988FF6B31AB8CC91B15550B853DDFB54DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 333779   (693826) от 07.05.2011
 
 Фабрика звезд. Возвращение. Выпуск 9. Части 1-2 (2011.05.07) SATRip
@@ -566,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693826.jpg" />
+  <img src="Z:/picture/008/save_picture_693826.jpg" />
 </div>
 
 
@@ -592,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693314.jpg" />
+  <img src="Z:/picture/008/save_picture_693314.jpg" />
 </div>
 
 
@@ -618,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693135.jpg" />
+  <img src="Z:/picture/008/save_picture_693135.jpg" />
 </div>
 
 
@@ -629,64 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26940C270E885AE8362CE87AD93362CC21D20EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133451   (692940) от 13.05.2017
-
-Евровидение 2017. Второй полуфинал / Євробачення 2017. Другий півфінал / Eurovision 2017. Second Semi-Final (11.05.2017) WEB-DLRip [H.264/1080p-LQ] [UKR, BEL]
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описание: Конкурс песни Евровидение 2017 (англ. Eurovision Song Contest 2017, фр. Concours Eurovision de la chanson 2017, укр. Пісенний конкурс Євробачення 2017) — 62-й конкурс песни «Евровидение», который пройдёт в Киеве (Украина). Страна стала победительницей предыдущего конкурса «Евровидение-2016», прошедшего в Стокгольме (Швеция), с песней Джамалы «1944», набравшей (   Читать дальше...   )01. Сербия, Тияна Богичевич — In Too Deep;
-02. Австрия, Натан Трент — Running on air;
-03. Македония, Яна Бурческа — Dance alone;
-04. Мальта, Клаудия Фаниэлло – Breathlessly;(   Читать дальше...   )Телекомпания: FeedЖанр: Ток-шоу, песенный конкурсПеревод: ОтсутствуетЯзык озвучки: Украинский (Тетяна Терехова та Андрій Городиський), белорусскийСубтитры: отсутствуютПродолжительность: 02:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A86484D41E561695C82117B6BE28354639436A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134042   (686672) от 16.05.2017
-
-Евровидение 2017. Финал / Євробачення 2017. Фінал / Eurovision 2017. Final (2017) WEB-DLRip [H.264/720p-LQ] [UKR, EN]
-
->>След.
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конкурс песни Евровидение 2017 (англ. Eurovision Song Contest 2017, фр. Concours Eurovision de la chanson 2017, укр. Пісенний конкурс Євробачення 2017) — 62-й конкурс песни «Евровидение», который пройдёт в Киеве (Украина). Страна стала победительницей предыдущего конкурса «Евровидение-2016», прошедшего в Стокгольме (Швеция), с песней Джамалы «1944», набравшей 534 (   Читать дальше...   )01. Израиль. Имри Зив – "I Feel Alive"
-02. Польша. Кася Мось – "Flashlight"
-03. Беларусь. Naviband – "Гісторыя майго жыцця"
-04. Австрия. Натан Трент – "Running On Air"(   Читать дальше...   )Телекомпания: BBCЖанр: Ток-шоу, песенный конкурсПеревод: ОтсутствуетЯзык озвучки: Украинский (Тетяна Терехова та Андрій Городиський), английскийСубтитры: отсутствуютПродолжительность: 03:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246B9A8A5EF4318CF2306E8CD8E1E56F12AA6C0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1211946   (776817) от 09.03.2018
+
+Я.И. Перельман | Занимательные задачи и опыты (1959) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776817.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящий сборник вошли материалы из разных книг Я.И. Перельмана, автором или составителем которых он был.
+Юный читатель найдет здесь немало интересных опытов и задач из области физики, математики, геометрии и другие научные развлечения, которыми он сможет заняться в свободное от уроков часы.
+Эти же материалы успешно может использовать и пионервожатый в своей работе (   Читать дальше...   )Жанр: Познавательная литератураФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA49B9360826DB783D1251F37FC45E5DDC96C5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014210   (776775) от 06.05.2016
+
+И.А. Агапова, М.А. Давыдова | Головоломки шарады ребусы на уроках и во внеурочное время (2008) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга знакомит читателя с правилами составления ребусов, которые необходимо знать для их разгадывания.
+Помимо ребусов, любознательный читатель найдет здесь для себя огромное количество разнообразных головоломок на любой вкус — логических, музыкальных, трюковых и т. д. В книгу включена история-головоломка «Цветущий остров вечного детства, или Суперновые приключения (   Читать дальше...   )Жанр: Головоломки, развлеченияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D699907D16B4A837488F06D1B1BBE36D1B7464E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212257   (776459) от 10.03.2018
 
 Я.И. Перельман | Занимательная физика. Книга вторая (1920) [DJVU]
@@ -6,7 +61,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776459.jpg" />
+  <img src="Z:/picture/008/save_picture_776459.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776425.jpg" />
+  <img src="Z:/picture/008/save_picture_776425.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776409.jpg" />
+  <img src="Z:/picture/008/save_picture_776409.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776081.jpg" />
+  <img src="Z:/picture/008/save_picture_776081.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776080.jpg" />
+  <img src="Z:/picture/008/save_picture_776080.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776055.jpg" />
+  <img src="Z:/picture/008/save_picture_776055.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776053.jpg" />
+  <img src="Z:/picture/008/save_picture_776053.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776047.jpg" />
+  <img src="Z:/picture/008/save_picture_776047.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776042.jpg" />
+  <img src="Z:/picture/008/save_picture_776042.jpg" />
 </div>
 
 
@@ -243,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775725.jpg" />
+  <img src="Z:/picture/008/save_picture_775725.jpg" />
 </div>
 
 
@@ -269,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775112.jpg" />
+  <img src="Z:/picture/008/save_picture_775112.jpg" />
 </div>
 
 
@@ -295,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774924.jpg" />
+  <img src="Z:/picture/008/save_picture_774924.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774774.jpg" />
+  <img src="Z:/picture/008/save_picture_774774.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774161.jpg" />
+  <img src="Z:/picture/008/save_picture_774161.jpg" />
 </div>
 
 
@@ -373,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771834.jpg" />
+  <img src="Z:/picture/008/save_picture_771834.jpg" />
 </div>
 
 
@@ -399,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771623.jpg" />
+  <img src="Z:/picture/008/save_picture_771623.jpg" />
 </div>
 
 
@@ -426,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771487.jpg" />
+  <img src="Z:/picture/008/save_picture_771487.jpg" />
 </div>
 
 
@@ -453,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771473.jpg" />
+  <img src="Z:/picture/008/save_picture_771473.jpg" />
 </div>
 
 
@@ -479,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771461.jpg" />
+  <img src="Z:/picture/008/save_picture_771461.jpg" />
 </div>
 
 
@@ -505,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771453.jpg" />
+  <img src="Z:/picture/008/save_picture_771453.jpg" />
 </div>
 
 
@@ -533,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771441.jpg" />
+  <img src="Z:/picture/008/save_picture_771441.jpg" />
 </div>
 
 
@@ -559,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771277.jpg" />
+  <img src="Z:/picture/008/save_picture_771277.jpg" />
 </div>
 
 
@@ -585,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770506.jpg" />
+  <img src="Z:/picture/008/save_picture_770506.jpg" />
 </div>
 
 
@@ -611,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770293.jpg" />
+  <img src="Z:/picture/008/save_picture_770293.jpg" />
 </div>
 
 
@@ -624,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:684C717A072FD674809275A3D3AF479D35E37F6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250789   (770284) от 23.06.2020
-
-Н. Архангельская; Е. Карлсен; А. Кеменова; С. Худак | Букварь (1970) [DJVU]
-
->>След.
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Буква́рь (азбука) — учебное пособие для обучения грамоте. Букварь помогает учащимся усвоить печатные и рукописные буквы и их звуковые значения, научиться читать слитно простейшие слоги и слова и правильно понимать читаемое, уметь читать и понимать небольшие тексты и уметь писать простейшие слова и предложения.Жанр: УчебникФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588BB28CE2B958BF7E84A03790673C7E89E06BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 122305   (770282) от 23.06.2020
-
-В.Г. Горецкий  | Букварь (1987) [JPEG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Советский Букварь средней общеобразовательной школы.Жанр: УчебникФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E3FBAD3C25AB3FF4B3BC232913CFCD197110E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

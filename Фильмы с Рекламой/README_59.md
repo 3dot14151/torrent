@@ -1,3 +1,29 @@
+###  Публикация: 1169647   (402230) от 28.09.2017
+
+Вышибала / The Bouncer (2016) HDTVRip [VO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_402230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Овадия, охранник ночного клуба в Тель-Авиве, принимает предложение главаря местной мафии заняться рэкетом, рассчитывая заработанными деньгами оплатить лечение бесплодия жены. После удачного лечения и наступления беременности Овадия хочет выйти из преступного бизнеса. Но это оказывается невозможно. Он сам становится жертвой шантажа.Производство: Франция, Израиль / Transfax Film ProductionsЖанр: ДрамаРежиссер: Meni YaishАктеры: Моррис Коэн, Ротем Зуссман-Коэн, Дэн Мор, Херцл Тоби, Алон Даан, Хаим ЗанатиПеревод: Одноголосый закадровый (tornado)Субтитры: ОтсутствуютПродолжительность: 01:39:12Реклама: Короткая аудореклама
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B1CEAA2F548A9D9C8D47FADFB037F0BFB23D6D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169692   (402225) от 28.09.2017
 
 Неопределённая слава / Incerta gloria (2017) WEB-DLRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402225.jpg" />
+  <img src="Z:/picture/008/save_picture_402225.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402082.jpg" />
+  <img src="Z:/picture/008/save_picture_402082.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402009.jpg" />
+  <img src="Z:/picture/008/save_picture_402009.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401082.jpg" />
+  <img src="Z:/picture/008/save_picture_401082.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397527.jpg" />
+  <img src="Z:/picture/008/save_picture_397527.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397323.jpg" />
+  <img src="Z:/picture/008/save_picture_397323.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390353.jpg" />
+  <img src="Z:/picture/008/save_picture_390353.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388543.jpg" />
+  <img src="Z:/picture/008/save_picture_388543.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387089.jpg" />
+  <img src="Z:/picture/008/save_picture_387089.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387088.jpg" />
+  <img src="Z:/picture/008/save_picture_387088.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387085.jpg" />
+  <img src="Z:/picture/008/save_picture_387085.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387082.jpg" />
+  <img src="Z:/picture/008/save_picture_387082.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387072.jpg" />
+  <img src="Z:/picture/008/save_picture_387072.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387062.jpg" />
+  <img src="Z:/picture/008/save_picture_387062.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386926.jpg" />
+  <img src="Z:/picture/008/save_picture_386926.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386922.jpg" />
+  <img src="Z:/picture/008/save_picture_386922.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386670.jpg" />
+  <img src="Z:/picture/008/save_picture_386670.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385243.jpg" />
+  <img src="Z:/picture/008/save_picture_385243.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385230.jpg" />
+  <img src="Z:/picture/008/save_picture_385230.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384562.jpg" />
+  <img src="Z:/picture/008/save_picture_384562.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384541.jpg" />
+  <img src="Z:/picture/008/save_picture_384541.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382956.jpg" />
+  <img src="Z:/picture/008/save_picture_382956.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382634.jpg" />
+  <img src="Z:/picture/008/save_picture_382634.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382632.jpg" />
+  <img src="Z:/picture/008/save_picture_382632.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382525.jpg" />
+  <img src="Z:/picture/008/save_picture_382525.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E736ACBCBF0E7E38E067C6CD020FF8E35C39330
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326752   (382520) от 21.09.2019
-
-Война токов / The Current War (2017) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм расскажет о противостоянии Томаса Эдисона и Джорджа Вестингауза в борьбе за использование постоянного и переменного токов. «Война» началась в 80-х годах XIX столетия и закончилась только в 2007 году с переходом Нью-Йорка с постоянного тока на переменный.Производство: США / Bazelevs Production, Film Rites, FlightAV.comЖанр: Драма, триллер, история, приключенияРежиссер: Альфонсо Гомес-РехонАктеры: Бенедикт Камбербэтч, Том Холланд, Майкл Шеннон, Николас Холт, Кэтрин Уотерстон, Мэттью Макфэдиен, Таппенс Мидлтон, Дэмиен Молони, Саймон Кунц, Луис Эшборн СеркисПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: Корейские (хардсаб)Продолжительность: 01:41:14Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CEA86F810249441EFFDECA5A8358B0173BCDC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

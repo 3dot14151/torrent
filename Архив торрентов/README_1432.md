@@ -6,7 +6,7 @@
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728718.jpg" />
+  <img src="Z:/picture/008/save_picture_728718.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728717.jpg" />
+  <img src="Z:/picture/008/save_picture_728717.jpg" />
 </div>
 
 
@@ -68,7 +68,7 @@ VA - Macrolab Minimal (2016) [MP3|320 кб/с] <Minimal Techno, Minimal House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728712.jpg" />
+  <img src="Z:/picture/008/save_picture_728712.jpg" />
 </div>
 
 
@@ -97,7 +97,7 @@ Bcee - Volume One (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728709.jpg" />
+  <img src="Z:/picture/008/save_picture_728709.jpg" />
 </div>
 
 
@@ -126,7 +126,7 @@ Pantha du Prince - The Triad (2016) [MP3|320 кб/с] <Electronica, Minimal>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728708.jpg" />
+  <img src="Z:/picture/008/save_picture_728708.jpg" />
 </div>
 
 
@@ -155,7 +155,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728699.jpg" />
+  <img src="Z:/picture/008/save_picture_728699.jpg" />
 </div>
 
 
@@ -181,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728698.jpg" />
+  <img src="Z:/picture/008/save_picture_728698.jpg" />
 </div>
 
 
@@ -210,7 +210,7 @@ DVDFab 12.0.6.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728691.jpg" />
+  <img src="Z:/picture/008/save_picture_728691.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728675.jpg" />
+  <img src="Z:/picture/008/save_picture_728675.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ FileZilla 3.25.2 RC1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728674.jpg" />
+  <img src="Z:/picture/008/save_picture_728674.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ VA - Body Virus (2016) [MP3|320 Kbps] <Dark Electro, EBM, Synth Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728670.jpg" />
+  <img src="Z:/picture/008/save_picture_728670.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Recue - Leftover Love (Extended Edition) (2010) [FLAC|Lossless|WEB-DL]<IDM, Down
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728669.jpg" />
+  <img src="Z:/picture/008/save_picture_728669.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Numi 3.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728656.jpg" />
+  <img src="Z:/picture/008/save_picture_728656.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ IObit Uninstaller Pro 8.3.0.14 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728651.jpg" />
+  <img src="Z:/picture/008/save_picture_728651.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Macrium Reflect v7.2.4063 Home Edition [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728647.jpg" />
+  <img src="Z:/picture/008/save_picture_728647.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ Endurance 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728646.jpg" />
+  <img src="Z:/picture/008/save_picture_728646.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ FastStone MaxView + portable 3.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728645.jpg" />
+  <img src="Z:/picture/008/save_picture_728645.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ FabFilter - Total Bundle 2019.02.19 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728643.jpg" />
+  <img src="Z:/picture/008/save_picture_728643.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ Mirillis Splash v2.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728640.jpg" />
+  <img src="Z:/picture/008/save_picture_728640.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ HWiNFO 5.30-2880 + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728594.jpg" />
+  <img src="Z:/picture/008/save_picture_728594.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Slimjet 10.0.5.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728577.jpg" />
+  <img src="Z:/picture/008/save_picture_728577.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728569.jpg" />
+  <img src="Z:/picture/008/save_picture_728569.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ VA - Cyber Machine Music (2016) [MP3|320 Kbps] <Dark Electro, Aggrotech, TBM>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728554.jpg" />
+  <img src="Z:/picture/008/save_picture_728554.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Light Alloy 4.10.0 Build 2945 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728544.jpg" />
+  <img src="Z:/picture/008/save_picture_728544.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728533.jpg" />
+  <img src="Z:/picture/008/save_picture_728533.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ WinRAR 5.70 Beta 2 [En+Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728528.jpg" />
+  <img src="Z:/picture/008/save_picture_728528.jpg" />
 </div>
 
 

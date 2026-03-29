@@ -1,3 +1,83 @@
+###  Публикация: 590086   (136401) от 19.12.2012
+
+Приключения на берегах Онтарио / Die Lederstrumpferzahlungen (1968) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Охотник Нат Бумпо попадает в тюрьму по вине коварного и подлого шерифа. Его выручает краснокожий друг Чингачгук, и очень скоро Нату приходится защищать форт майора Дунгэма от жестоких индейцев племени сиу. А в форте находится очень симпатичная девушка.Жанр: приключения, вестернРежиссер: Жан Древиль, Серджиу НиколаескуАктеры: Хельмут Ланге, Пьер Массими, Норберт Гастелль, Хольгер Хаген, Александру Давид, Томми Пипер, Манфред Зайпольд, Хельмут Шнайдер, Джульетт Виллар, Текла Карола ВидПеревод: ДублированныйФормат: AVIПродолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99ABBC197E76E91257C7229FFBCCFC70F4BC0146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590093   (136124) от 20.12.2012
+
+Джентльмен из Эпсома / Le gentleman d'Epsom (1962) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136124.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ричард Брианд-Чармери, бывший командор кавалерийского эскадрона, находится в отставке и промышляет «советами» на скачках. Он знаток всех лошадей на ипподроме и ловит наивных игроков, которые с охотой готовы заплатить за прогноз, тем более, если его сделал такой статный и солидный игрок, как господин Брианд. Чтобы гарантировано получить свой процент, он советует делать ставки нескольким игрокам одновременно на разных скакунов и сам не остается в накладе. «Командор» привык вести широкий образ жизни, а для этого нужны новые игроки, которых он «научит» и которым он «подскажет». Компаньон афериста, помогающий найти наивных новичков, рассказывает ему о рестораторе мсье Гаспаре Рипе, который имеет неплохой бизнес, но он глуп, жаден и страшно недоверчив. Чтобы уговорить его расстаться с деньгами, необходим человек с большим стажем игры на тотализаторе и великим опытом убеждения. А это, конечно же, «Командор». Одурманенный красивыми рассказами об успехах предсказаний «Командора», Рипе с радостью расстается с крупной суммой (   Читать дальше...   )Жанр: комедия, криминалРежиссер: Жиль ГранжьеВ ролях: Луи де Фюнес, Жан Габен, Мадлен Робинсон, Фрэнк Виллар, Жан Лефевр, Жак Марен, Жан Мартинелли, Жоэлль Бернар, Алин Бертран, Леонс Корн, Мари-Элен Дасте, Альбер ДинанПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1B8CB464B901C464B371C5D12071B504C7819E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 590669   (136090) от 20.12.2012
+
+Враг мой / Enemy Mine (1985) HDTVRip
+
+>>След.
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136090.jpg" />
+</div>
+
+
+###  Подробнее
+
+В глубинах нашей галактики, на огромном расстоянии от Земли люди ведут кровопролитную войну с расой рептилий. Войну, которой Земля отдает последние силы, войну на полное уничтожение.
+В одной из жестоких схваток в окрестностях гористой планеты в системе двойной звезды пилот Виллис Дэвидж сбивает машину чужого, но тут же получает несколько попаданий и выходит из боя.
+Единственное место, где можно выжить после падения — та самая планета. Но упав, он обнаруживает, что сбитый им чужой не погиб. Смертельные враги (   Читать дальше...   )Жанр: Фантастика, Боевик, ПриключенияРежиссер: Вольфганг ПетерсенАктеры: Деннис Куэйд, Луис Госсет мл., Брайон Джеймс, Ричард Маркус, Кэролин МакКормик, Бампер Робинсон, Джим Мапп, Лэнс Кервин, Скотт Крафт, Лу Майклс, Энди ГирПеревод: Дубляж с многоголосыми вставками + Профессиональный (многоголосый закадровый) - (Украинский - 2+2) + Оригинал (Английский) + Профессиональный (одноголосый закадровый) Юрий Живов (внешняя)Язык субтитров: Русские, Французкие, Английские - полныеПродолжительность: 01:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B31136CA2FA163C3969B351A4E4DFD9A21D18F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590150   (135795) от 21.12.2012
 
 Мания величия / La folie des grandeurs (1971) BDRip
@@ -6,7 +86,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135795.jpg" />
 </div>
 
 
@@ -33,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134795.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134795.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134774.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134772.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134736.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134533.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134142.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134105.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133747.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132988.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132386.jpg" />
 </div>
 
 
@@ -293,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131337.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_131238.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_131238.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130430.jpg" />
 </div>
 
 
@@ -371,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_130011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130011.jpg" />
 </div>
 
 
@@ -397,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129368.jpg" />
 </div>
 
 
@@ -423,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128186.jpg" />
 </div>
 
 
@@ -449,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127749.jpg" />
 </div>
 
 
@@ -476,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127125.jpg" />
 </div>
 
 
@@ -502,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126949.jpg" />
 </div>
 
 
@@ -528,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126939.jpg" />
 </div>
 
 
@@ -554,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126638.jpg" />
 </div>
 
 
@@ -580,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125603.jpg" />
 </div>
 
 
@@ -591,84 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD87B11A8EDCBAAF998031D8273B00AD92C594BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684725   (125310) от 28.12.2023
-
-Дом на площади / The House in the Square (1951) DVDRip  [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учёный, одержимый прошлым, перемещается в Лондон 18-го века, где он влюбляется в прекрасную молодую женщину.Производство: Великобритания, США / 20th Century Fox Film CorporationЖанр: фэнтези, драма, мелодрамаРежиссер: Рой Уорд БейкерАктеры: Тайрон Пауэр, Энн Блит, Майкл Ренни, Деннис Прайс, Беатрис Кэмпбелл, Кэтлин Байрон, Рэймонд Хантли, Ирен Браун, Рональд Адам, Роберт АткинсПеревод: Одноголосый любительский (Andre1288)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD39B53ADB4DF219A62C2F02C6A136815B7B2320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685309   (125228) от 29.12.2023
-
-Великолепный / Le magnifique (1973) BDRip [H.264] [4К Remastered]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писатель Франсуа Мерлен с отвращением пишет свою сорок третью "нетленку", подстегиваемый алчным и беспринципным издателем. У Франсуа уже не хватает воображения, чтобы придумывать всё новые коллизии. Он давно стал пленником своего героя в буквальном и переносном смысле. Для Мерлена Боб Сен-Клер - это то, что с ним никогда не может произойти, и на экране (   Читать дальше...   )Производство: Франция, Италия, Les Films Ariane, Mondex Films, Cerito Films...Жанр: комедия, мелодрама, приключенияРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Жаклин Биссет, Витторио Каприоли, Ганс Мейер, Моник Тарбес, Марио Давид, Бруно Гарсен, Раймон Жером, Жан Лефевр, Фабрицио МорескоПеревод: дублированный, профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, французскийСубтитры: русские, английские, французскиеПродолжительность: 01:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ECFA2EF3A951BA2E1C21F8E3E92E938EE4D8738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303102   (123493) от 11.01.2024
-
-Вокруг Света за 80 дней / Around the World in 80 Days (1956) WEB-DLRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обогнуть земной шар всего за 80 дней? Смешно! Даже лучшие паровые корабли Ее Величества Виктории не смогут сделать это. Но точный и пунктуальный Филеас Фогг заявил, что сможет. А когда члены лондонского престижного Реформ-Клуба попросят Фогга подкрепить его похвальбу солидной денежной ставкой, мы отправимся в путешествие Вокруг света в 80 дней!Производство: США, Великобритания / Michael Todd CompanyЖанр: Приключения, Комедия, Мелодрама, СемейныйРежиссер: Майкл Андерсон, Джон ФэрроуАктеры: Дэвид Нивен, Кантинфлас, Ширли МакЛейн, Роберт Ньютон, Шарль Буайе, Роберт Морли, Ноэл Коуард, Джон Гилгуд, Тревор Ховард, Джон Кэрредин, Джо Э. Браун, Мартина Кароль, Чарльз Коберн, Мелвилл Купер, Финлэй Карри, Марлен Дитрих, Фернандель, Бастер Китон, Джон Миллз, Джек Оуки, Фрэнк Синатра, Ред СкелтонПеревод: Дублированный, многоголосый закадровый, двухголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 03:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0C0805DC953A65AD86C7A162D9C57910C91528
 ```
 
 https://mybot314.ru/tekegram_catalog/

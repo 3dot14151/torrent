@@ -6,7 +6,7 @@ MKVToolNix 20.0.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793816.jpg" />
+  <img src="Z:/picture/008/save_picture_793816.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793814.jpg" />
+  <img src="Z:/picture/008/save_picture_793814.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Pixelmator Pro 1.0.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793812.jpg" />
+  <img src="Z:/picture/008/save_picture_793812.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Rob Papen - Predator 2 1.0.3 VSTi, AAX (x86/x64) Repack by 2R2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793808.jpg" />
+  <img src="Z:/picture/008/save_picture_793808.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ File List Export 2.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793800.jpg" />
+  <img src="Z:/picture/008/save_picture_793800.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Blazon Stone - No Sign Of Glory (2015) [WavPack|Lossless|image + .cue] <Heavy Me
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793798.jpg" />
+  <img src="Z:/picture/008/save_picture_793798.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793767.jpg" />
+  <img src="Z:/picture/008/save_picture_793767.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Spotify 1.1.72.439 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793756.jpg" />
+  <img src="Z:/picture/008/save_picture_793756.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793740.jpg" />
+  <img src="Z:/picture/008/save_picture_793740.jpg" />
 </div>
 
 
@@ -251,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793734.jpg" />
+  <img src="Z:/picture/008/save_picture_793734.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Old Soul Society - The Farmhouse Sessions (2016) [FLAC|Lossless|tracks] <Folk Ro
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793728.jpg" />
+  <img src="Z:/picture/008/save_picture_793728.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ EZ CD Audio Converter 4.0.2.1 Ultimate RePack (& Portable) by elchupacabra [Ru/E
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793725.jpg" />
+  <img src="Z:/picture/008/save_picture_793725.jpg" />
 </div>
 
 
@@ -332,7 +332,7 @@ Serial Box 05-2016 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793723.jpg" />
+  <img src="Z:/picture/008/save_picture_793723.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ VA - Suanda Music Radio Top 10 (March) (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793718.jpg" />
+  <img src="Z:/picture/008/save_picture_793718.jpg" />
 </div>
 
 
@@ -390,7 +390,7 @@ VA - Digital Society Recordings Vol.1 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793716.jpg" />
+  <img src="Z:/picture/008/save_picture_793716.jpg" />
 </div>
 
 
@@ -419,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793715.jpg" />
+  <img src="Z:/picture/008/save_picture_793715.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Dirty South - Live @ Soundcheck Nightclub (2016) [MP3|320 Kbps] <House, Tech Hou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793706.jpg" />
+  <img src="Z:/picture/008/save_picture_793706.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Adobe Audition CC 2018 v11.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793703.jpg" />
+  <img src="Z:/picture/008/save_picture_793703.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ SoftPerfect NetWorx 6.1.1.18022 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793696.jpg" />
+  <img src="Z:/picture/008/save_picture_793696.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Balabolka 2.11.0.644 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793691.jpg" />
+  <img src="Z:/picture/008/save_picture_793691.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ MetaProducts Offline Explorer Enterprise 7.5.4610 RePack (& Portable) by TryRooM
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793687.jpg" />
+  <img src="Z:/picture/008/save_picture_793687.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Capto – Screen Recording, Screen Captures, and Editing 1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793685.jpg" />
+  <img src="Z:/picture/008/save_picture_793685.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ VA - Vocal Trance Top 40 (2016) [MP3|320 кб/с] <Trance, Vocal Trance, Uplifti
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793683.jpg" />
+  <img src="Z:/picture/008/save_picture_793683.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Ventoy 1.0.61 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793680.jpg" />
+  <img src="Z:/picture/008/save_picture_793680.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Easily Embarrassed - EE4A (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chillou
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793677.jpg" />
+  <img src="Z:/picture/008/save_picture_793677.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Piezo 1.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793668.jpg" />
+  <img src="Z:/picture/008/save_picture_793668.jpg" />
 </div>
 
 

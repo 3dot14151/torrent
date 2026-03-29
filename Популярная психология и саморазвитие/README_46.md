@@ -1,3 +1,83 @@
+###  Публикация: 1223372   (673209) от 05.05.2018
+
+Алексей Лызлов | Психология до «психологии». От Античности до Нового времени (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_673209.jpg" />
+</div>
+
+
+###  Подробнее
+
+В авторском курсе Алексея Васильевича Лызлова рассматривается история европейской психологии от гомеровских времен до конца XVIII века, то есть до того момента, когда психология оформилась в самостоятельную дисциплину.
+
+«Наука о душе» раскрывается перед читателем с новой перспективы, когда мы знакомимся с глубокими прозрениями о природе человеческой души, имевшими (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71D7955E5F30574C6CE193FFD54F5CEDCE072FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136550   (672640) от 23.05.2017
+
+Ханне Брурсон | Мыслевирусы. Как не отравлять себе жизнь вредоносными мыслями (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672640.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: 95 процентам людей каждый день в голову приходят параноидальные, суицидальные, депрессивные, тревожные и навязчивые мысли. Так почему же все мы до сих пор не стали пациентами психиатров? Ответ прост: к подобным мыслям можно относиться не так серьезно, как мы привыкли. Наш мозг устроен так, что зацикливаться на плохом, искать в себе причину всех бед нам (   Читать дальше...   )Жанр: Общие работы по психотерапииФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42D417323E9680357453AE3FEDF91FFE7250342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291077   (672024) от 23.03.2019
+
+Дэниел Левитин | Организованный ум. Как мыслить и принимать решения (2019) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор бестселлеров и нейробиолог Дэниел Левитин рассказывает, как организовать свое время, дом и рабочее место, чтобы справиться с информационной перегрузкой и действовать максимально продуктивно. Он объясняет, как устроен наш мозг, и показывает, как применить последние данные когнитивной науки к обычной жизни – работе, здоровью, отношениям, – чтобы управлять информационным (   Читать дальше...   )Жанр: Самосовершенствование, СаморазвитиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96243D9EB21F7EEA69330D9ABEA740E41EA9A7A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030662   (671572) от 01.07.2016
 
 Лариса Парфентьева | 100 способов изменить жизнь. Часть первая (2016) [FB2, EPUB, PDF]
@@ -6,7 +86,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671572.jpg" />
+  <img src="Z:/picture/008/save_picture_671572.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670486.jpg" />
+  <img src="Z:/picture/008/save_picture_670486.jpg" />
 </div>
 
 
@@ -59,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670347.jpg" />
+  <img src="Z:/picture/008/save_picture_670347.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670236.jpg" />
+  <img src="Z:/picture/008/save_picture_670236.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670227.jpg" />
+  <img src="Z:/picture/008/save_picture_670227.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670221.jpg" />
+  <img src="Z:/picture/008/save_picture_670221.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668943.jpg" />
+  <img src="Z:/picture/008/save_picture_668943.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666496.jpg" />
+  <img src="Z:/picture/008/save_picture_666496.jpg" />
 </div>
 
 
@@ -219,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664740.jpg" />
+  <img src="Z:/picture/008/save_picture_664740.jpg" />
 </div>
 
 
@@ -247,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664720.jpg" />
+  <img src="Z:/picture/008/save_picture_664720.jpg" />
 </div>
 
 
@@ -273,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663704.jpg" />
+  <img src="Z:/picture/008/save_picture_663704.jpg" />
 </div>
 
 
@@ -301,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663633.jpg" />
+  <img src="Z:/picture/008/save_picture_663633.jpg" />
 </div>
 
 
@@ -327,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663012.jpg" />
+  <img src="Z:/picture/008/save_picture_663012.jpg" />
 </div>
 
 
@@ -353,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659924.jpg" />
+  <img src="Z:/picture/008/save_picture_659924.jpg" />
 </div>
 
 
@@ -379,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659809.jpg" />
+  <img src="Z:/picture/008/save_picture_659809.jpg" />
 </div>
 
 
@@ -405,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659729.jpg" />
+  <img src="Z:/picture/008/save_picture_659729.jpg" />
 </div>
 
 
@@ -431,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659726.jpg" />
+  <img src="Z:/picture/008/save_picture_659726.jpg" />
 </div>
 
 
@@ -458,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659639.jpg" />
+  <img src="Z:/picture/008/save_picture_659639.jpg" />
 </div>
 
 
@@ -484,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659638.jpg" />
+  <img src="Z:/picture/008/save_picture_659638.jpg" />
 </div>
 
 
@@ -512,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659636.jpg" />
+  <img src="Z:/picture/008/save_picture_659636.jpg" />
 </div>
 
 
@@ -538,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659596.jpg" />
+  <img src="Z:/picture/008/save_picture_659596.jpg" />
 </div>
 
 
@@ -564,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659051.jpg" />
+  <img src="Z:/picture/008/save_picture_659051.jpg" />
 </div>
 
 
@@ -593,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658679.jpg" />
+  <img src="Z:/picture/008/save_picture_658679.jpg" />
 </div>
 
 
@@ -606,88 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA8FD22E77DAE9960DFFF1F4CA73F81C7D71E679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903508   (657382) от 31.05.2015
-
-Сергей Кара-Мурза | Манипуляция сознанием. Век XXI (2015) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является переработанным и дополненным юбилейным изданием знаменитого труда Сергея Кара-Мурзы «Манипуляция сознанием», общий тираж которого достиг 50 000 экземпляров.
-
-Сергей Георгиевич выявляет устройство всей системы манипуляции общественным сознанием – как технологии господства властной элиты. Для России переход к этому новому типу власти означал бы смену (   Читать дальше...   )Жанр: Социальная психология, Личностный ростФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4A37E5E93A5C3F61B5E869A6440FA02B157613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903642   (656377) от 01.06.2015
-
-Сергей Петрушин | Почему любят одних, женятся на других, а живут с третьими (2015) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга родилась в результате многолетних личных размышлений, материалов консультаций, общения с коллегами. В ней говорится о том, могут ли мужчина и женщина договориться; что надо говорить, чтобы спасти отношения; как сохранить удовольствие от совместной жизни надолго; в каких случаях любовь не спасает от проблем.
-
-Прочтите и научитесь различать, какие отношения (   Читать дальше...   )Жанр: Семейная психологияФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87A811BDA8808C8CE1A45269AAE3DC06872B8A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903699   (656186) от 01.06.2015
-
-Эдвард де Боно | Искусство думать: Латеральное мышление как способ решения сложных задач (2015) [PDF, DOCX, FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не все задачи, которые ставит перед нами жизнь, могут быть решены при помощи логики. Иногда привитый нам в детстве навык мыслить последовательно оказывается бесполезен, потому что требуется задействовать иной тип мышления - творческий, или латеральный. Использование ментальных техник Эдварда де Боно, всемирно известного разработчика и популяризатора методики латерального (   Читать дальше...   )Жанр: ПсихологияФормат: PDF, DOCX, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9913B349FC017B83A0E4867B33B85BF4D1F58E
 ```
 
 https://mybot314.ru/tekegram_catalog/

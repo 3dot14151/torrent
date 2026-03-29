@@ -1,3 +1,30 @@
+###  Публикация: 1776502   (29023) от 01.02.2025
+
+AdGuard Ad Blocker  Nightly Premium [No-Root] v4.8.27 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29023.jpg" />
+</div>
+
+
+###  Подробнее
+
+AdGuard — лучший способ избавиться от навязчивой рекламы и онлайн-отслеживания, а также защитить свое устройство от вредоносных программ. Сделайте свой веб-серфинг быстрее, безопаснее и комфортнее с AdGuard!
+AdGuard — уникальный блокировщик рекламы без root для Android, который удаляет рекламу в приложениях и браузерах, защищает вашу конфиденциальность и помогает (   Читать дальше...   )Тип издания: Premium / Extra ModРелиз состоялся: 31.01.2025Разработчик: AdGuard Software LimitedПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFA02DA2A5B5815E7FD780C3739E259FB25FA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776503   (29016) от 01.02.2025
 
 IPTV Pro v9.0.3 Mod by Balatan [Ru/Multi]
@@ -6,7 +33,7 @@ IPTV Pro v9.0.3 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29016.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29012.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ Gaia GPS (Topo Maps) v2025.1 b9029 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29008.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Mindroid: AVS, Mind machine v7.6 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29004.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28581.jpg" />
 </div>
 
 
@@ -137,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28580.jpg" />
 </div>
 
 
@@ -163,7 +190,7 @@ Smart AudioBook Player Pro v11.2.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28554.jpg" />
 </div>
 
 
@@ -189,7 +216,7 @@ VK Музыка: песни и подкасты v7.8.1 Mod by VK Equals [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28552.jpg" />
 </div>
 
 
@@ -215,7 +242,7 @@ Vanced Tube v5.3.80.119 Mod by TRUMods [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28503.jpg" />
 </div>
 
 
@@ -241,7 +268,7 @@ ToonApp: AI Cartoon Photo Editor, Cartoon Yourself v2.7.8 Mod by Mixroot [Ru/Mul
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28461.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ jetAudio HD Music Player Plus v12.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28400.jpg" />
 </div>
 
 
@@ -293,7 +320,7 @@ VRadio - Online Radio App v2.7.7 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28377.jpg" />
 </div>
 
 
@@ -319,7 +346,7 @@ jetAudio HD Music Player Plus v12.3.0 Mod by Alex.Strannik [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28362.jpg" />
 </div>
 
 
@@ -345,7 +372,7 @@ One Read / Все Документы Читатель - Офис v1.2.2.43 Mod b
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28293.jpg" />
 </div>
 
 
@@ -371,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28264.jpg" />
 </div>
 
 
@@ -397,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28255.jpg" />
 </div>
 
 
@@ -423,7 +450,7 @@ TikTok Private Plus (PayBack Edition) v38.5.5 Mod by TikTok Updates + Plugin Upd
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28243.jpg" />
 </div>
 
 
@@ -450,7 +477,7 @@ LazyMedia Deluxe v3.356 Mod by Alex.Strannik [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28231.jpg" />
 </div>
 
 
@@ -476,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_28196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_28196.jpg" />
 </div>
 
 
@@ -505,7 +532,7 @@ MobiPDF: Редактор и сканер PDF  v11.2.266802 Mod by Balatan [Ru/M
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28151.jpg" />
 </div>
 
 
@@ -531,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28121.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ Food.ru: пошаговые рецепты v01.40.00 Mod by vadj [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28079.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_28063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_28063.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_27988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_27988.jpg" />
 </div>
 
 
@@ -641,7 +668,7 @@ TikTok 38.4.3 Mod by Dmitry Nechiporenko + Plugin 1.66 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_27981.jpg" />
 </div>
 
 
@@ -652,32 +679,6 @@ TikTok - социальное приложение для тех кто пред
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B3866F30C174CD04E95DEE7B761FBDA955AA75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779144   (27950) от 11.02.2025
-
-Дневник давления и пульса v3.6.1 Mod by vadj [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_27950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дневник артериального давления и пульса - незаменимое приложение, которое позволяет отслеживать кровяное давление, а также вести записи измерений частоты сердечных сокращений (ЧСС) - является отличным методом лечения и контроля гипертонии или гипотонии. Кардио журнал позволит регулярно вносить измерения артериального давления и показатели тонометра, а также ЧСС и (   Читать дальше...   )Тип издания: ModРелиз состоялся: 11.02.2025Разработчик: mEL StudioПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Multi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AE0AB7CF1239409EAC469C5AD344773F46E13A
 ```
 
 https://mybot314.ru/tekegram_catalog/

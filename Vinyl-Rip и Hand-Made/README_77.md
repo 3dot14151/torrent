@@ -1,3 +1,232 @@
+###  Публикация: 1736879   (106594) от 14.07.2024
+
+Bay City Rollers - 2 Albums (1974, 1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop Rock, Rock & RollПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F94BA56AEF5B4162000C2EC96B2C4C926F984449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737390   (106536) от 17.07.2024
+
+Vanden Plas - Studio Albums (12 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106536.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vanden Plas — немецкая рок-группа, играющая в стиле прогрессивный метал.
+Была образована в середине 80-х годов в немецком городе Кайзерслаутерн.1994 - Colour Temple
+1996 - Accult
+1997 - The God Thing
+1999 - Far Off GraceЖанр: Progressive MetalПродолжительность: 12:17:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4A4B0072D46E2BED9E476265E27A2702861E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737571   (106510) от 18.07.2024
+
+Shokran - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Djent, Math Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shokran — российская рок-группа, исполняющая прогрессивный метал и джент.
+Основана в 2012 году гитаристом Дмитрием Демьяненко.2014 - Supreme Truth
+2016 - Exodus
+2019 - Ethereal
+2024 - Duat(   Читать дальше...   )Жанр: Progressive Metal, Djent, Math MetalПродолжительность: 02:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC85FF1B7C284F0FBADE8D1A26E35EFF69222F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737969   (106438) от 20.07.2024
+
+Santana - Santana's Greatest Hits (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106438.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Evil Ways
+A2 Jingo
+A3 Hope You're Feeling Better
+A4 Samba Pa Ti(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A15D39BD18C031583CF1CD31F6ACEC3100D84B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737952   (106419) от 20.07.2024
+
+Kenny Rogers - Greatest Hits (1984) With The First Edition Group (P) 1969 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106419.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Sunshine
+A2 Goodtime Liberator
+A3 Ruben James
+A4 Always Leaving, Always Gone(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FE2EB46186F4CD03851D90B98F0696ACCAF9BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737833   (106397) от 20.07.2024
+
+Nonpoint - Studio Albums (13 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nonpoint — американская рок-группа, образованная в 1997 году в городе Форт-Лодердейл, штат Флорида.1997 - Separate Yourself
+2000 - Statement
+2002 - Development
+2004 - Recoil(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 10:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE88F362409B874F713D03209FF37B07FB8206F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738483   (106330) от 22.07.2024
+
+Ontborg - Studio Albums (2 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ontborg - мелодик-дэт-метал группа из Мерано, Южный Тироль, Италия.2019 - Within the Depths of Oblivion
+2023 - Following the Steps of DamnationЖанр: Melodic Death MetalПродолжительность: 01:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58410043C9F42253DDA1B1E9CFCB3DBC512B22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738265   (106315) от 22.07.2024
+
+Riverside - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock/Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Riverside — польская рок-группа, образовавшаяся в 2001 году в Варшаве.2003 - Out of Myself
+2005 - Second Life Syndrome
+2007 - Rapid Eye Movement
+2009 - Anno Domini High DefinitionЖанр: Progressive Rock/MetalПродолжительность: 11:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EA5A946EB3399EC006EFD379ED67DEC271FED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739107   (106160) от 26.07.2024
 
 Kiss - MTV Unplugged (1996) Club Edition [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
@@ -6,7 +235,7 @@ Kiss - MTV Unplugged (1996) Club Edition [FLAC 2.0|48/24|image +.cue|MC-Rip] <Ha
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106160.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106160.jpg" />
 </div>
 
 
@@ -35,7 +264,7 @@ KK's Priest - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106077.jpg" />
 </div>
 
 
@@ -62,7 +291,7 @@ VA - Остров Сокровищ или В стиле Шансон часть 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106046.jpg" />
 </div>
 
 
@@ -91,7 +320,7 @@ VA - Дискотека Казанова. Dream House vol. 4 - Спецвыпу�
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106028.jpg" />
 </div>
 
 
@@ -120,7 +349,7 @@ Mammoth WVH - Studio Albums (2 releases) (2021-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106016.jpg" />
 </div>
 
 
@@ -147,7 +376,7 @@ Abyssphere - Studio Albums (5 releases) (2008-2022) hand made [restored, declipp
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106014.jpg" />
 </div>
 
 
@@ -176,7 +405,7 @@ VA - XXXL 3. Танцевальный Размер (2000) Unofficial Release [FL
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105956.jpg" />
 </div>
 
 
@@ -205,7 +434,7 @@ Slaughter to Prevail - Kostolom (2021) Released, 2022, Sumerian Records [WavPack
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105924.jpg" />
 </div>
 
 
@@ -234,7 +463,7 @@ Twilight Force - Studio Albums (4 releases) (2014-2023) hand made [restored, dec
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105892.jpg" />
 </div>
 
 
@@ -263,7 +492,7 @@ Derdian - Studio Albums (8 releases) (2005-2023) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105666.jpg" />
 </div>
 
 
@@ -292,7 +521,7 @@ Frozen Land - Studio Albums (2 releases) (2018-2023) hand made [restored, declip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105611.jpg" />
 </div>
 
 
@@ -319,7 +548,7 @@ Textures - Studio Albums (5 releases) (2003-2016) hand made [restored, declipped
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105586.jpg" />
 </div>
 
 
@@ -348,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105577.jpg" />
 </div>
 
 
@@ -377,7 +606,7 @@ VA - The Keepers Of Jericho - A Tribute To Helloween (2000-2002) hand made [rest
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105572.jpg" />
 </div>
 
 
@@ -403,7 +632,7 @@ Celesty - Studio Albums (4 releases) (2002-2009) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105558.jpg" />
 </div>
 
 
@@ -432,7 +661,7 @@ Sinergy - Studio Albums (3 releases) (2000-2006) hand made [restored, declipped]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105550.jpg" />
 </div>
 
 
@@ -460,7 +689,7 @@ Ansambel ''Vitamiin'' - Ансамбль ''Витамин I'' (1983) [FLAC 2.0|4
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105384.jpg" />
 </div>
 
 
@@ -489,7 +718,7 @@ Baccara - Light My Fire (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105278.jpg" />
 </div>
 
 
@@ -503,238 +732,6 @@ B2 My Kisses Need A Cavalier(   Читать дальше...   )Жанр: Disco�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98E778A5339349C3EC972F34B2B44832166FBC47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744700   (105205) от 23.08.2024
-
-Caligula's Horse - Studio Albums (6 releases) (2011-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caligula's Horse - прогрессивная альтернативная рок-группа из Брисбена, Австралия, названная в честь драгоценного имущества печально известного римского деспота.2011 - Moments From Ephemeral City
-2013 - The Tide, The Thief & River's End
-2015 - Bloom
-2017 - In ContactЖанр: Progressive Metal/RockПродолжительность: 05:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BCCB10073372B17E5A051EEBB2A4690C0F469BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745113   (105184) от 24.08.2024
-
-Burning Point - Studio Albums (8 releases) (2001-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burning Point — финская пауэр-метал-группа из города Оулу. Burning Point сочетают музыкальность классических Accept, Black Sabbath и Judas Priest со страстью Children Of Bodom.2001 - Salvation By Fire
-2003 - Feeding The Flames
-2006 - Burned Down The Enemy
-2009 - EmpyreЖанр: Heavy Metal, Power MetalПродолжительность: 08:14:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80704816DAC85F2D4AC32C87410CB4431C94A07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745008   (105180) от 24.08.2024
-
-Soen - Studio Albums (7 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soen - прогрессивная рок/метал группа из Стокгольма, Швеция.2012 - Cognitive
-2014 - Tellurian
-2017 - Lykaia
-2019 - LotusЖанр: Progressive Rock, Progressive MetalПродолжительность: 07:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877852EBAD88A61CC6DD85F96CF4471BEEE052B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744999   (105168) от 24.08.2024
-
-Static-X (Wayne Static) - Studio Albums (10 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Industrial Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Static-X — американская метал-группа из Лос-Анджелеса, Калифорния, сформированная в 1994 году после распада Deep Blue Dream, предыдущей группы Уэйна Статика и Кена Джея. Стилистически представляет собой индастриал-метал с элементами ню-метала.1999 - Wisconsin Death Trip
-2001 - Machine
-2003 - Shadow Zone
-2004 - Beneath... Between... Beyond...Жанр: Industrial Metal, Nu MetalПродолжительность: 07:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF90C96A3C362A316F5209825AA81ACAD0830347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745175   (105110) от 25.08.2024
-
-Александр Галич - Когда Я Вернусь... (1989) [FLAC 2.0|88,2/24|image +.cue|Vinyl-Rip] <Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105110.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Фестиваль Песни В Сопоте В Августе 1969
-А2 Петербургский Романс
-А3 Баллада О Вечном Огне
-А4 Засыпая И Просыпаясь(   Читать дальше...   )Жанр: BalladПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA60F876CEC8B9EDF83D81E7C8008E8BDC6149A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745242   (105093) от 25.08.2024
-
-Last Autumn's Dream - Studio Albums (15 releases) (2003-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Hard Rock/AOR>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Last Autumn's Dream — хард-рок-группа, образованная в 2002 году вокалистом и клавишником Микаэлем Эрландссоном из Швеции и гитаристом Энди Малечеком из немецкой хард-рок-группы Fair Warning.2003 - Last Autumn's Dream
-2004 - Last Autumn's Dream II
-2005 - Winter In Paradise
-2006 - Saturn SkylineЖанр: Melodic Hard Rock, AORПродолжительность: 13:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206CD2C7FA19EF1F151EE71AB12A643235820B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745217   (105083) от 25.08.2024
-
-Engelbert Humperdinck - Live at the London Palladium (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|Audio-DVD] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture: Chariots of fire, Release me
-02. This is what you mean to me
-03. The way it used to be
-04. Still(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9D47BB657A57D8A66595C705CA0ACB7104B98B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745476   (105057) от 26.08.2024
-
-Shaman (a.k.a. Shaaman) - Studio Albums (5 releases) (2002-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shaman - бразильская прогрессив-пауэр-метал группа, образованная в 2000 году Рикардо Конфессори, Луисом Мариутти и Андре Матосом после того, как они покинули "Angra".2002 - Ritual
-2005 - Reason
-2007 - Immortal
-2010 - OriginsЖанр: Progressive/Power MetalПродолжительность: 04:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE556676D92A88B8559B5000E429A09E42ACDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

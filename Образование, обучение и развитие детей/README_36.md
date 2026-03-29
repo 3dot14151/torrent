@@ -1,3 +1,58 @@
+###  Публикация: 910655   (620669) от 21.06.2015
+
+Владимир Дуров и др. | Хозяева джунглей (2007) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тигры и слоны — как ни теснит их человек, но и по сей день они остаются хозяевами дремучих лесов.
+От заснеженного Уссурийского края до берегов Индийского океана прекрасные свирепые хищники держали в страхе людей и зверей. Многие смельчаки, о которых идет речь в этой книге, вступали с ними в борьбу, но не всем доставалась победа...
+А слоны — эти верные и мудрые помощники (   Читать дальше...   )Жанр: Природа и Животные, Детям о животныхФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C10B1CF39E522EC273279374EF551DD02141031
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295387   (620353) от 12.04.2019
+
+Флориан Шеффер | Электроника для детей (2019) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена для первоначального изучения электроники детьми и подростками в возрасте от 8–12 лет. Начиная с простейших опытов с гальваническим элементом из картошки и заканчивая транзисторным триггером Шмидта, автор проявляет чудеса немецкой тщательности и дотошности, подробно объясняя все эксперименты и сопровождая их превосходными иллюстрациями.
+В семи (   Читать дальше...   )Жанр: Радиоэлектроника, Обучение, развитие детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9539E8C63FB535AF375E6E7273CA30A91BE7DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910851   (619708) от 21.06.2015
 
 Л.Г. Нагаева | Я умею читать! 100 занимательных игр и упражнений, которые помогут вашему ребенку научиться читать быстро и правильно (2014) [PDF]
@@ -6,7 +61,7 @@
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619708.jpg" />
+  <img src="Z:/picture/008/save_picture_619708.jpg" />
 </div>
 
 
@@ -33,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619312.jpg" />
+  <img src="Z:/picture/008/save_picture_619312.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618995.jpg" />
+  <img src="Z:/picture/008/save_picture_618995.jpg" />
 </div>
 
 
@@ -87,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618908.jpg" />
+  <img src="Z:/picture/008/save_picture_618908.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618426.jpg" />
+  <img src="Z:/picture/008/save_picture_618426.jpg" />
 </div>
 
 
@@ -139,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618423.jpg" />
+  <img src="Z:/picture/008/save_picture_618423.jpg" />
 </div>
 
 
@@ -165,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617276.jpg" />
+  <img src="Z:/picture/008/save_picture_617276.jpg" />
 </div>
 
 
@@ -191,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615804.jpg" />
+  <img src="Z:/picture/008/save_picture_615804.jpg" />
 </div>
 
 
@@ -219,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615606.jpg" />
+  <img src="Z:/picture/008/save_picture_615606.jpg" />
 </div>
 
 
@@ -246,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615598.jpg" />
+  <img src="Z:/picture/008/save_picture_615598.jpg" />
 </div>
 
 
@@ -273,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615153.jpg" />
+  <img src="Z:/picture/008/save_picture_615153.jpg" />
 </div>
 
 
@@ -299,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614922.jpg" />
+  <img src="Z:/picture/008/save_picture_614922.jpg" />
 </div>
 
 
@@ -326,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614128.jpg" />
+  <img src="Z:/picture/008/save_picture_614128.jpg" />
 </div>
 
 
@@ -354,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613566.jpg" />
+  <img src="Z:/picture/008/save_picture_613566.jpg" />
 </div>
 
 
@@ -381,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612385.jpg" />
+  <img src="Z:/picture/008/save_picture_612385.jpg" />
 </div>
 
 
@@ -408,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612308.jpg" />
+  <img src="Z:/picture/008/save_picture_612308.jpg" />
 </div>
 
 
@@ -435,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612217.jpg" />
+  <img src="Z:/picture/008/save_picture_612217.jpg" />
 </div>
 
 
@@ -461,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611984.jpg" />
+  <img src="Z:/picture/008/save_picture_611984.jpg" />
 </div>
 
 
@@ -488,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610619.jpg" />
+  <img src="Z:/picture/008/save_picture_610619.jpg" />
 </div>
 
 
@@ -514,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609619.jpg" />
+  <img src="Z:/picture/008/save_picture_609619.jpg" />
 </div>
 
 
@@ -541,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609367.jpg" />
+  <img src="Z:/picture/008/save_picture_609367.jpg" />
 </div>
 
 
@@ -567,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609321.jpg" />
+  <img src="Z:/picture/008/save_picture_609321.jpg" />
 </div>
 
 
@@ -596,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609269.jpg" />
+  <img src="Z:/picture/008/save_picture_609269.jpg" />
 </div>
 
 
@@ -622,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608818.jpg" />
+  <img src="Z:/picture/008/save_picture_608818.jpg" />
 </div>
 
 
@@ -635,60 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A5ABFCF2F0651AD1D082C2524CE78868894967D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913054   (608591) от 27.06.2015
-
-Григорий Остер | Веселые учебники [4] (2015) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Феномен Остера в современной российской культуре и детской литературе не имеет себе равных. За исключением Успенского, его статус трудно сравнить со статусом какого-либо другого современного детского писателя. Его "Вредные советы" распродаются фантастическими тиражами, его мультфильмы стали классикой при жизни автора, его авторитет в теле- и радиопрограммах (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D72E02D4AB3C6DC9B12694022AE803529399DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038782   (604955) от 29.07.2016
-
-Анатолий Томилин | Тайны запаха и вкуса (2011) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о том, как люди учились использовать естественные ароматы и создавать искусственные; раскрывает некоторые тайны кулинарных "обманов"; показывает, как криминалисты расследуют преступления с помощью запахов. Она об удивительном и по-прежнему загадочном мире запахов и вкусов.
-
-Для детей среднего и старшего школьного возраста.Жанр: Образовательная литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEAFF67E96EC7709E03750E38E560ECDAE79DC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

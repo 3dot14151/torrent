@@ -1,3 +1,113 @@
+###  Публикация: 1408960   (451834) от 14.09.2020
+
+DoYourData AppUninser Pro 5.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451834.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoYourData AppUninser - очень мощный, но простой в использовании деинсталлятор Mac. Он может полностью удалить приложения, удалить связанные файлы и очистить все, что осталось. Он может полностью удалить даже самые «упрямые» приложения, аварийные программы, плагины, виджеты и панели настроек с вашего Mac. DoYourData AppUninser также может удалять ненужные языковые (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: DoYourDataПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A435D3558ABF088F89C022E6A84395E472DC513D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408917   (451833) от 14.09.2020
+
+MiniNote Pro 5.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451833.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniNote Pro — очень простое и удобное приложение (замечательная замена нативным заметкам), которое находиться в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы которого можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много.
+
+В версии Pro можно воспользоваться возможностью форматированного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2020Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D99D0883F845DBDCF70FC1C569679C535C4F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409014   (451832) от 14.09.2020
+
+Multitouch 1.18.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легко добавлять жесты в macOS с Multitouch!
+
+Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF18A88B58F7C0DAD6D7FA72EFC9CB2FC0B3CFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409013   (451825) от 14.09.2020
+
+Slidepad 1.0.36 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_451825.jpg" />
+</div>
+
+
+###  Подробнее
+
+С Slidepad не будет больше хлопот с переключением окон. Slidepad приносит многозадачность в стиле iPad на ваш Mac. Использовать Slidepad так же просто, как использовать док-станцию.
+Slidepad позаимствовал концепцию боковой панели у Franz и Station. Он намного более плавный, чем вкладки, и помогает быстро переключаться между различными веб-приложениями.
+Omnibox позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.09.2020Разработчик: SlidepadПоддерживаемая ОС: macOS 10.13.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6259F65D529E30BCAEACD17340168DB1FEA12A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408966   (451705) от 14.09.2020
 
 Dropzone 4 Pro v4.0.7 [En]
@@ -6,7 +116,7 @@ Dropzone 4 Pro v4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451705.jpg" />
+  <img src="Z:/picture/008/save_picture_451705.jpg" />
 </div>
 
 
@@ -33,7 +143,7 @@ Armikrog v. 2.0.0.1 (2015) [Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451617.jpg" />
+  <img src="Z:/picture/008/save_picture_451617.jpg" />
 </div>
 
 
@@ -59,7 +169,7 @@ CleanMyMac 3.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451354.jpg" />
+  <img src="Z:/picture/008/save_picture_451354.jpg" />
 </div>
 
 
@@ -88,7 +198,7 @@ Keka 1.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451212.jpg" />
+  <img src="Z:/picture/008/save_picture_451212.jpg" />
 </div>
 
 
@@ -115,7 +225,7 @@ Templates for Pages 5.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451147.jpg" />
+  <img src="Z:/picture/008/save_picture_451147.jpg" />
 </div>
 
 
@@ -144,7 +254,7 @@ Viscosity 1.7.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450350.jpg" />
+  <img src="Z:/picture/008/save_picture_450350.jpg" />
 </div>
 
 
@@ -173,7 +283,7 @@ Tinderbox 7.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450345.jpg" />
+  <img src="Z:/picture/008/save_picture_450345.jpg" />
 </div>
 
 
@@ -202,7 +312,7 @@ PDF Expert 2.2.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450335.jpg" />
+  <img src="Z:/picture/008/save_picture_450335.jpg" />
 </div>
 
 
@@ -231,7 +341,7 @@ CleanMyMac X 4.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450316.jpg" />
+  <img src="Z:/picture/008/save_picture_450316.jpg" />
 </div>
 
 
@@ -258,7 +368,7 @@ Color Finale Pro 1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450133.jpg" />
+  <img src="Z:/picture/008/save_picture_450133.jpg" />
 </div>
 
 
@@ -284,7 +394,7 @@ KeyKey 2.7.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450053.jpg" />
+  <img src="Z:/picture/008/save_picture_450053.jpg" />
 </div>
 
 
@@ -313,7 +423,7 @@ TextMate 1.5.11 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_449847.jpg" />
+  <img src="Z:/picture/005/save_picture_449847.jpg" />
 </div>
 
 
@@ -339,7 +449,7 @@ Bartender 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449575.jpg" />
+  <img src="Z:/picture/008/save_picture_449575.jpg" />
 </div>
 
 
@@ -366,7 +476,7 @@ CheckBook Pro 2.6.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449462.jpg" />
+  <img src="Z:/picture/008/save_picture_449462.jpg" />
 </div>
 
 
@@ -392,7 +502,7 @@ Outside 3.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449458.jpg" />
+  <img src="Z:/picture/008/save_picture_449458.jpg" />
 </div>
 
 
@@ -418,7 +528,7 @@ Posterino 3 v3.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449456.jpg" />
+  <img src="Z:/picture/008/save_picture_449456.jpg" />
 </div>
 
 
@@ -446,7 +556,7 @@ Translatium 13.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449452.jpg" />
+  <img src="Z:/picture/008/save_picture_449452.jpg" />
 </div>
 
 
@@ -472,7 +582,7 @@ Swift Publisher 5 v5.5.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449335.jpg" />
+  <img src="Z:/picture/008/save_picture_449335.jpg" />
 </div>
 
 
@@ -498,7 +608,7 @@ Claquette - Animated Screenshots 1.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449296.jpg" />
+  <img src="Z:/picture/008/save_picture_449296.jpg" />
 </div>
 
 
@@ -525,7 +635,7 @@ FontExplorer X Pro 5.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449286.jpg" />
+  <img src="Z:/picture/008/save_picture_449286.jpg" />
 </div>
 
 
@@ -552,7 +662,7 @@ Fidelia 1.6.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449284.jpg" />
+  <img src="Z:/picture/008/save_picture_449284.jpg" />
 </div>
 
 
@@ -579,7 +689,7 @@ MWeb: Markdown writing,note taking,static blog Gen 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449156.jpg" />
+  <img src="Z:/picture/008/save_picture_449156.jpg" />
 </div>
 
 
@@ -591,114 +701,6 @@ MWeb оддерживает расширенный синтаксис Github: TO
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61146B61870F48E0456AEB9B609B62E49C3CFBEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943270   (449117) от 03.10.2015
-
-Jotun v.1.0 (2015) [Multi/Ru] [OS X Native game]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jotun - это экшен-бродилка от канадской команды разработчиков, во главе которой стоит Вильям Дюбе. Игра предлагает принять участие в эпическом путешествии по древнескандинавской мифологии вместе с норвежским воином Тора (не путать с Тором), который умер в бесславном бою и теперь вынужден отправиться в Чистилище и восстановить свою воинскую честь перед богами. Ему (   Читать дальше...   )Тип издания: OS X Native gameРелиз состоялся: 2015Разработчик: Thunder Lotus GamesПоддерживаемая ОС: 10.10+Жанр: AdventureЯзык интерфейса: Русский, английский, немецкий и пр.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC7A8B17C8B76ACB528BED00B9519C460D07CAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061478   (449009) от 10.10.2016
-
-Typinator 6.11 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Typinator – упрощаем работу с текстом
-Работая за компьютером, пользователь многократно выполняет одну и ту же работу, порой и сам того не замечая. Особенно часто приходится делать повторные действия при наборе обычного текста. Так, например, если сотрудник фирмы общается с клиентами через Интернет, ему необходимо каждый раз использовать шаблонный текст – писать адрес (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 октября 2016Разработчик: Ergonis SoftwareПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:314656E2C13BD329C8B8121B5613A24A47FD48EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061504   (449002) от 10.10.2016
-
-Paperless 2.3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paperless - поможет создать базу данных эллектронных документов, где пользователи смогут каталогизировать, управлять и просматривать документы в удобном и доступном виде. Paperless поможет отсканировать чеки, отчеты и другие бумажные документы, а система OCR распознает их и использует полученную информацаю для заполнения соответствующих полей. А внести в базу электронные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.10.2016Разработчик: MarinersoftwareПоддерживаемая ОС: macOS X 10.8 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753BE62F8CB806A15C144D4FBA0CA7B5E139D37C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943172   (448826) от 03.10.2015
-
-CleanMyMac 3.1.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448826.jpg" />
-</div>
-
-
-###  Подробнее
-
-CleanMyMac 3 - Программа для очистки Мака
-Очищайте, оптимизируйте и обслуживайте ваш Мак с новым CleanMyMac 3. Он проверяет каждый уголок вашей системы, удаляет гигабайты мусора в два щелчка мышью и контролирует состояние вашего Мака.
-
-CleanMyMac позволяет избавиться от разнообразного мусора на вашем Маке: кэши программ, лог-файлы, ненужные локализации программ, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 октября 2015Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA84A133C19059333D6F5C6C9DDA49EDF902F4AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

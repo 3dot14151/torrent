@@ -6,7 +6,7 @@ Together 3.5.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776953.jpg" />
+  <img src="Z:/picture/008/save_picture_776953.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776943.jpg" />
+  <img src="Z:/picture/008/save_picture_776943.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Yummy FTP Pro 1.11.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776936.jpg" />
+  <img src="Z:/picture/008/save_picture_776936.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ Frank Nitt - Frankie Rothstein (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776932.jpg" />
+  <img src="Z:/picture/008/save_picture_776932.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776928.jpg" />
+  <img src="Z:/picture/008/save_picture_776928.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776926.jpg" />
+  <img src="Z:/picture/008/save_picture_776926.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Roadmap Planner - Strategic Planner, Product Ideas Accounting 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776920.jpg" />
+  <img src="Z:/picture/008/save_picture_776920.jpg" />
 </div>
 
 
@@ -199,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776913.jpg" />
+  <img src="Z:/picture/008/save_picture_776913.jpg" />
 </div>
 
 
@@ -225,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776909.jpg" />
+  <img src="Z:/picture/008/save_picture_776909.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776890.jpg" />
+  <img src="Z:/picture/008/save_picture_776890.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ Cyberfox 46.0.2 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776882.jpg" />
+  <img src="Z:/picture/008/save_picture_776882.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Free Studio 6.6.8.505 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776879.jpg" />
+  <img src="Z:/picture/008/save_picture_776879.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Anvir Task Manager 8.0.1 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776878.jpg" />
+  <img src="Z:/picture/008/save_picture_776878.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ MacFamilyTree 8.3.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776871.jpg" />
+  <img src="Z:/picture/008/save_picture_776871.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Jens Buchert - Lifecode (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776868.jpg" />
+  <img src="Z:/picture/008/save_picture_776868.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Ewol - Opaque / Odessa (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Drum & Bass, A
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776864.jpg" />
+  <img src="Z:/picture/008/save_picture_776864.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Sandboxie 5.23.7 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776862.jpg" />
+  <img src="Z:/picture/008/save_picture_776862.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776854.jpg" />
+  <img src="Z:/picture/008/save_picture_776854.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Dhamika - Endless Horizons (2016) Altar Records [FLAC|Lossless|WEB-DL|tracks] <P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776852.jpg" />
+  <img src="Z:/picture/008/save_picture_776852.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776851.jpg" />
+  <img src="Z:/picture/008/save_picture_776851.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776847.jpg" />
+  <img src="Z:/picture/008/save_picture_776847.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ BurnAware Professional 9.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776846.jpg" />
+  <img src="Z:/picture/008/save_picture_776846.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ Lyn 1.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776841.jpg" />
+  <img src="Z:/picture/008/save_picture_776841.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776838.jpg" />
+  <img src="Z:/picture/008/save_picture_776838.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ VA - Beautiful Songs For You Vol.9 (Compiled by Виктор31Rus & Людмил
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776820.jpg" />
+  <img src="Z:/picture/008/save_picture_776820.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776812.jpg" />
+  <img src="Z:/picture/008/save_picture_776812.jpg" />
 </div>
 
 

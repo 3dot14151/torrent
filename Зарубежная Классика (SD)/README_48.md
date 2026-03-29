@@ -1,3 +1,81 @@
+###  Публикация: 78048   (671171) от 02.07.2010
+
+Фантазм  / Phantasm (1979) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_671171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тринадцатилетний Майк, только что потерявший родителей, имел неосторожность оказаться на похоронах друга своего старшего брата, где стал свидетелем того, как по окончанию похорон Высокий Человек извлек гроб из свежей могилы и забрал с собой. Проследив за таинственным великаном, Майк обнаружил, что тот управляет некими летающими сферами и занимается тем, что оживляет (   Читать дальше...   )Жанр: ужасы, мистикаРежиссер: Дон Коскарелли /Don Coscarelli/Продолжительность: 01:24:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132317   (670775) от 24.05.2017
+
+Нежный проходимец / Tendre voyou (1966) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бельмондо играет хронического ловеласа и повесу, живущего охмурением богатых дам. Он, перепрыгивая из одной дамской постели в другую, оставляет их мужей в дураках, а часто и без денег…Производство: Франция, Италия / Criterion Productions, Fono Roma, Sud-Pacifique FilmsЖанр: КомедияРежиссер: Жан БекерАктеры: Жан-Поль Бельмондо, Надя Тиллер, Жан-Пьер Марьель, Роберт Морли, Женевьев Паж, Марсель Далио, Мишлин Дэкс, Филипп Нуаре, Мария Паком, Мишель Жирардон, Пьер Торнад, Милен Демонжо, Стефания СандреллиПеревод: Многоголосый закадровый, авторскийСубтитры: РусскиеПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AA19C56840BBEA7FD014BECEA1F5C517C0AB37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487401   (670420) от 14.03.2022
+
+Лицо со шрамом / Scarface (1983) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_670420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной 1980 года был открыт порт Мэйриэл Харбор, и тысячи кубинских беженцев ринулись в Соединенные Штаты на поиски Американской Мечты. Один из них нашел ее на залитых солнцем улицах Майами. Богатство, власть и страсть превзошли даже самые невероятные его мечты. Его звали Тони Монтана. Мир запомнил его под другим именем - «Лицо со шрамом»...Производство: США / Universal PicturesЖанр: Драма, КриминалРежиссер: Брайан Де ПальмаАктеры: Аль Пачино, Стивен Бауэр, Мишель Пфайффер, Мэри Элизабет Мастрантонио, Роберт Лоджа, Мириам Колон, Ф. Мюррэй Абрахам, Пол Шенар, Харрис Юлин, Анхель СаласарПеревод: Профессиональный многоголосый (Позитив-Мультимедиа, Премьер Видео Фильм)Продолжительность: 02:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C8546F5E5AC2806A54012D72E3621FFE260405D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536237   (670411) от 14.03.2022
 
 Лицо со шрамом / Scarface (1983) BDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670411.jpg" />
+  <img src="Z:/picture/008/save_picture_670411.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670157.jpg" />
+  <img src="Z:/picture/008/save_picture_670157.jpg" />
 </div>
 
 
@@ -62,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670145.jpg" />
+  <img src="Z:/picture/008/save_picture_670145.jpg" />
 </div>
 
 
@@ -89,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670068.jpg" />
+  <img src="Z:/picture/008/save_picture_670068.jpg" />
 </div>
 
 
@@ -115,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669130.jpg" />
+  <img src="Z:/picture/008/save_picture_669130.jpg" />
 </div>
 
 
@@ -142,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668576.jpg" />
+  <img src="Z:/picture/008/save_picture_668576.jpg" />
 </div>
 
 
@@ -168,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667697.jpg" />
+  <img src="Z:/picture/008/save_picture_667697.jpg" />
 </div>
 
 
@@ -195,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_667685.jpg" />
+  <img src="Z:/picture/005/save_picture_667685.jpg" />
 </div>
 
 
@@ -221,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667618.jpg" />
+  <img src="Z:/picture/008/save_picture_667618.jpg" />
 </div>
 
 
@@ -247,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667246.jpg" />
+  <img src="Z:/picture/008/save_picture_667246.jpg" />
 </div>
 
 
@@ -274,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667052.jpg" />
+  <img src="Z:/picture/008/save_picture_667052.jpg" />
 </div>
 
 
@@ -300,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666503.jpg" />
+  <img src="Z:/picture/008/save_picture_666503.jpg" />
 </div>
 
 
@@ -326,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665265.jpg" />
+  <img src="Z:/picture/008/save_picture_665265.jpg" />
 </div>
 
 
@@ -353,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664221.jpg" />
+  <img src="Z:/picture/008/save_picture_664221.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663641.jpg" />
+  <img src="Z:/picture/008/save_picture_663641.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663033.jpg" />
+  <img src="Z:/picture/008/save_picture_663033.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663010.jpg" />
+  <img src="Z:/picture/008/save_picture_663010.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661966.jpg" />
+  <img src="Z:/picture/008/save_picture_661966.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661841.jpg" />
+  <img src="Z:/picture/008/save_picture_661841.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661708.jpg" />
+  <img src="Z:/picture/008/save_picture_661708.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660975.jpg" />
+  <img src="Z:/picture/008/save_picture_660975.jpg" />
 </div>
 
 
@@ -565,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659947.jpg" />
+  <img src="Z:/picture/008/save_picture_659947.jpg" />
 </div>
 
 
@@ -592,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659904.jpg" />
+  <img src="Z:/picture/008/save_picture_659904.jpg" />
 </div>
 
 
@@ -603,84 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F204F8519AE926B187919B110F16D526C627155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223488   (659538) от 16.05.2018
-
-Обнажённая виолончель / Il merlo maschio (1971) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виолончелист Никколо Вивальди играет в городском оркестре Вероны на знаменитой Арене. Увы, но в оркестре он не первая, и даже не вторая виолончель. Но это не главная его печаль. Дело в том, что никто не запоминает его лица и имени — даже консьерж в доме, где он живёт с Костанцей, красавицей женой, которую он тайком сфотографировал дарёным «Поляроидом» в обнаженном (   Читать дальше...   )Производство: Италия / Clesi CinematograficaЖанр: КомедияРежиссер: Паскуале Феста КампанилеАктеры: Ландо Будзанка, Лаура Антонелли, Ферруччо Де Череза, Эльза Ваззолер, Джино Кавальери, Лучиано Бьянкьярди, Адольфо Беллетти, Гиги Бонфанти, Бруно Бошетти, Лино ТоффолоПеревод: Одноголосый закадровый (ССК+)Субтитры: ОтсутствуютПродолжительность: 01:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343237B8EB89CDA775919F077C81BFC4D8E6CE10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135474   (658907) от 03.06.2017
-
-Монти Уолш / Monte Walsh (1970) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658907.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мере приближения нового века стареющий ковбой старается придерживаться тех традиций, которые сделали его легендой. В то время как его тихий городок превращается в опустевшее место, как его друзья и любимые приходят и уходят, самыми сложными и загадочными для Монти Уолша навсегда останутся человеческое сердце и человеческая душа.Производство: США / Cinema Center FilmsЖанр: ВестернРежиссер: Уильям А. ФрейкерАктеры: Ли Марвин, Жанна Моро, Джек Пэланс, Митчелл Райан, Джим Дэвис, Г.Д. Спрэдлин, Джон Хадкинс, Рэймонд Гут, Джон МакКи, Майкл КонрадПеревод: Авторский (С.Кузнецов)Субтитры: Русские английскиеПродолжительность: 01:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681CBAEBC63F561A0783DA2C9C97745A3D2A7102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135215   (658789) от 03.06.2017
-
-Неисправимый / L'incorrigible (1975) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виктор выходит из тюрьмы, где отсидел три года и сразу же берется за старое. Он продает чужие квартиры, яхты, и даже истребители «Мираж» африканским странам.Производство: Франция / Cerito Films, Les Films Ariane, Mondex FilmsЖанр: КомедияРежиссер: Филипп де БрокаАктеры: Жан-Поль Бельмондо, Женевьев Бюжо, Жюльен Гиомар, Шарль Жерар, Даниэль Секкальди, Капюсин, Андреа Ферреоль, Мишель Бон, Альбер Симоно, Паскаль РобертсПеревод: Многоголосый, двуголосый закадровыйСубтитры: РусскиеПродолжительность: 01:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62FD88A9D502567B0F9BFD7D438796965CBC3941
 ```
 
 https://mybot314.ru/tekegram_catalog/

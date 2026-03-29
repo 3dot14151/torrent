@@ -6,7 +6,7 @@ TunesKit AceMovi Video Editor 4.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858182.jpg" />
+  <img src="Z:/picture/008/save_picture_858182.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AnyTrans for iOS 8.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858180.jpg" />
+  <img src="Z:/picture/008/save_picture_858180.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ SnippetsLab 2.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858177.jpg" />
+  <img src="Z:/picture/008/save_picture_858177.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ AnyMP4 iOS Cleaner 1.0.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858176.jpg" />
+  <img src="Z:/picture/008/save_picture_858176.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Draw a Stickman: EPIC 1.4.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858157.jpg" />
+  <img src="Z:/picture/008/save_picture_858157.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_858138.jpg" />
+  <img src="Z:/picture/009/save_picture_858138.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858091.jpg" />
+  <img src="Z:/picture/008/save_picture_858091.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Brad Smith / Pink Floyd - MOON8 (2010) [MP3|192 kbps]<Electronic / 8-Bit / Rock 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858078.jpg" />
+  <img src="Z:/picture/008/save_picture_858078.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858074.jpg" />
+  <img src="Z:/picture/008/save_picture_858074.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Andrew Rayel - A Place To Find Your Harmony #2, Duruitoarea, Moldova (2021-09-19
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858057.jpg" />
+  <img src="Z:/picture/008/save_picture_858057.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858040.jpg" />
+  <img src="Z:/picture/008/save_picture_858040.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_857996.jpg" />
+  <img src="Z:/picture/009/save_picture_857996.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857955.jpg" />
+  <img src="Z:/picture/008/save_picture_857955.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Balabolka 2.15.0.801 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857924.jpg" />
+  <img src="Z:/picture/008/save_picture_857924.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Chromium 94.0.4606.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857920.jpg" />
+  <img src="Z:/picture/008/save_picture_857920.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857913.jpg" />
+  <img src="Z:/picture/008/save_picture_857913.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857905.jpg" />
+  <img src="Z:/picture/008/save_picture_857905.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857849.jpg" />
+  <img src="Z:/picture/008/save_picture_857849.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857810.jpg" />
+  <img src="Z:/picture/008/save_picture_857810.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ SRWare Iron 93.0.4750.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857808.jpg" />
+  <img src="Z:/picture/008/save_picture_857808.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ PreSonus Studio One 5 Professional 5.4.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857803.jpg" />
+  <img src="Z:/picture/008/save_picture_857803.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857698.jpg" />
+  <img src="Z:/picture/008/save_picture_857698.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Ableton - Live Suite 11.0.10 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857666.jpg" />
+  <img src="Z:/picture/008/save_picture_857666.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Just Color Picker 5.6 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857656.jpg" />
+  <img src="Z:/picture/008/save_picture_857656.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857654.jpg" />
+  <img src="Z:/picture/008/save_picture_857654.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857652.jpg" />
+  <img src="Z:/picture/008/save_picture_857652.jpg" />
 </div>
 
 

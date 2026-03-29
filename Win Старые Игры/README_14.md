@@ -1,3 +1,59 @@
+###  Публикация: 356861   (587744) от 30.06.2011
+
+Spider-Man: Friend or Foe [Ru] (P) 2007
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_587744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сильные союзники. Вы можете выбрать напарника из длинного списка выдающихся героев, а затем свободно переключаться между ним и Паркером. Каждый помощник, будь то супергерой или суперзлодей, вносит неповторимый вклад в общее дело. Лишь совместив умения персонажей, вы доберетесь до победного финала.
+Враги на стороне добра. После того, как Человек-паук одолеет давних противников –Доктора Октопуса, Зеленого Гоблина и Песчаного человека, они присоединятся к нему.
+Совместные подвиги. В любой момент к вам может присоединиться друг и взять контроль над союзником Человека-паука. Плечо живого товарища надежнее виртуального помощника, и лишь пара игроков способна раскрыть глубокий тактический потенциал проекта.
+Сражайтесь на разных аренах! Одолевая соперников одного за другим, вы открываете новые площадки для подвигов.
+Есть повод вернуться! Повторите понравившиеся уровни в совместной игре, сразитесь друг против друга, пройдите кампанию с новыми союзниками или в обличье Человека-паука в черном костюме. Мрачная экипировка (   Читать дальше...   )Тип издания: ПираткаЖанр: ActionЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB54E1ADDE7094010FEF616BD1538B6F281EC9BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301121   (586902) от 09.05.2019
+
+Command & Conquer: Red Alert 3 (2008) [Ru/Multi] (1.12) License PROPHET
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Alert 3 - Uprising представляет собой глобальное дополнение оригинальной игры, состоящее из нескольких кампаний для индивидуального прохождения. Сюжет Command & Conquer Red Alert 3: Uprising повествует о событиях, случившихся после окончания мировой войны.Тип издания: LicenseРазработчик: EA Los AngelesЖанр: Strategy (Real-time), 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F22865475845F2ED46B2F040B88AF99305DAEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357869   (585706) от 02.07.2011
 
 Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
@@ -6,7 +62,7 @@ Trevor Chan's Capitalism II / Капитализм 2 (P) [Ru] 2001
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585706.jpg" />
+  <img src="Z:/picture/008/save_picture_585706.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ Disney Сollection: Aladdin, The Lion King, The Jungle Book (1993-1994) [En] (1.
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585064.jpg" />
+  <img src="Z:/picture/008/save_picture_585064.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ Star Wars™: Dark Forces (1995) [Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584913.jpg" />
+  <img src="Z:/picture/008/save_picture_584913.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ Command & Conquer: Red Alert 3 — Uprising (2009) [Ru] (1.12) Repack xatab
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584893.jpg" />
+  <img src="Z:/picture/008/save_picture_584893.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584148.jpg" />
+  <img src="Z:/picture/008/save_picture_584148.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ Campus [Ru] (RePack) 2007 | CCG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582714.jpg" />
+  <img src="Z:/picture/008/save_picture_582714.jpg" />
 </div>
 
 
@@ -165,7 +221,7 @@ Jagged Alliance 2: Wildfire / Jagged Alliance 2: Возвращение в Ар�
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580485.jpg" />
+  <img src="Z:/picture/008/save_picture_580485.jpg" />
 </div>
 
 
@@ -191,7 +247,7 @@ Iron Storm / Коммандос: В тылу врага (2002) [Ru/Multi] (1.041
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579697.jpg" />
+  <img src="Z:/picture/008/save_picture_579697.jpg" />
 </div>
 
 
@@ -217,7 +273,7 @@ Painkiller (2004) [Ru/En] (1.64/dlc) Repack Mentaz [Black Edition: PainKiller + 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576633.jpg" />
+  <img src="Z:/picture/008/save_picture_576633.jpg" />
 </div>
 
 
@@ -245,7 +301,7 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573983.jpg" />
+  <img src="Z:/picture/008/save_picture_573983.jpg" />
 </div>
 
 
@@ -271,7 +327,7 @@ Soldiers: Heroes of World War II / В тылу врага (2004) [Ru/En] (1.28.3
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573876.jpg" />
+  <img src="Z:/picture/008/save_picture_573876.jpg" />
 </div>
 
 
@@ -297,7 +353,7 @@ Battlestrike: The Siege / 1944: Огненные рубежи (2005) [Ru] (1.0) 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568337.jpg" />
+  <img src="Z:/picture/008/save_picture_568337.jpg" />
 </div>
 
 
@@ -323,7 +379,7 @@ Avernum 2 (2000) [En] (1.0.1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566810.jpg" />
+  <img src="Z:/picture/008/save_picture_566810.jpg" />
 </div>
 
 
@@ -349,7 +405,7 @@ London Racer: Destruction Madness / London Racer: Тотальное разру�
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564879.jpg" />
+  <img src="Z:/picture/008/save_picture_564879.jpg" />
 </div>
 
 
@@ -375,7 +431,7 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_564565.jpg" />
+  <img src="Z:/picture/005/save_picture_564565.jpg" />
 </div>
 
 
@@ -401,7 +457,7 @@ Aven Colony (2017) [Ru/Multi] (1.0) Repack Covfefe
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559094.jpg" />
+  <img src="Z:/picture/008/save_picture_559094.jpg" />
 </div>
 
 
@@ -427,7 +483,7 @@ Rex Nebular and the Cosmic Gender Bender (1992) [En] (1.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558051.jpg" />
+  <img src="Z:/picture/008/save_picture_558051.jpg" />
 </div>
 
 
@@ -453,7 +509,7 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557956.jpg" />
+  <img src="Z:/picture/008/save_picture_557956.jpg" />
 </div>
 
 
@@ -479,7 +535,7 @@ Worms Armageddon / Worms: Армагеддон (1999) [Ru/Multi] (3.8.1) Repack 
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557878.jpg" />
+  <img src="Z:/picture/008/save_picture_557878.jpg" />
 </div>
 
 
@@ -505,7 +561,7 @@ Mortyr: Dilogy / Мортир: Дилогия (1999-2004) [Ru/En] (1.0/1.352) Li
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557269.jpg" />
+  <img src="Z:/picture/008/save_picture_557269.jpg" />
 </div>
 
 
@@ -531,7 +587,7 @@ Myst IV: Revelation (2004) [Multi] (1.03hf2) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557172.jpg" />
+  <img src="Z:/picture/008/save_picture_557172.jpg" />
 </div>
 
 
@@ -557,7 +613,7 @@ True Crime Dilogy (2004-2006) [Ru/En] Repack R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556313.jpg" />
+  <img src="Z:/picture/008/save_picture_556313.jpg" />
 </div>
 
 
@@ -584,7 +640,7 @@ S.T.A.L.K.E.R.: Clear Sky / S.T.A.L.K.E.R.: Чистое небо (2008) [Ru/Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552682.jpg" />
+  <img src="Z:/picture/008/save_picture_552682.jpg" />
 </div>
 
 
@@ -610,7 +666,7 @@ Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551827.jpg" />
+  <img src="Z:/picture/008/save_picture_551827.jpg" />
 </div>
 
 
@@ -621,58 +677,6 @@ Cosmo's Cosmic Adventure (1992) [En] (1.20) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59C151339DAECF402A200B8C8CB61AA625C93A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046283   (551628) от 27.08.2016
-
-Star Wars Jedi Knight: Jedi Academy - Escape Yavin IV (2005) [Ru/En] (1.01/1.0) [Mod] Unofficial
-
->>Win Старые Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами продолжение великолепного экшена из серии "Star Wars Jedi Knight: Jedi Academy", в котором вам предлагается пройти 13 новых уровней, сразиться с новыми противниками и выполнить еще более увлекательную и интригующую миссию. Escape Yavin IV - одно из самых глобальных дополнении к популярной "Star Wars: Jedi Academy".Тип издания: UnofficialРазработчик: Raven SoftwareЖанр: Action, 3D, 3rd Person, 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01054CC65C2A4F989FA180912D8D17D8F1E75451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309440   (550862) от 19.06.2019
-
-Krush Kill ‘N Destroy 2: Krossfire (1998) [En] (1.0) License GOG
-
->>Win Старые Игры
->>Strategy Tactical (RTS/TBS/Wargame)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта планета слишком тесна для вас троих. Несмотря на то, что война превратила Землю в пустыню, три группировки – «Выжившие», «Мутанты» и роботы Серии 9 – по-прежнему яростно дерутся за территорию и готовы повторить ядерный армагеддон, чтобы выиграть войну. Вы тоже не прочь урвать себе кусочек планеты, для чего вооружились танками и собрали армию наемников. Сражайтесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Beam SoftwareЖанр: Стратегия, В реальном времени, ФантастикаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD22352DA57A34EF223E855A625591397B3600F
 ```
 
 https://mybot314.ru/tekegram_catalog/

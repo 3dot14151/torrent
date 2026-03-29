@@ -6,7 +6,7 @@ AIDA64 Engineer Edition 6.50.5800 Portable by FC Portables [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811700.jpg" />
+  <img src="Z:/picture/008/save_picture_811700.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 11 Manager 1.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811687.jpg" />
+  <img src="Z:/picture/008/save_picture_811687.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ACDSee Pro 9.2 Build 523 (x86) Lite RePack by MKN [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811636.jpg" />
+  <img src="Z:/picture/008/save_picture_811636.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Wise Game Booster 1.36.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811633.jpg" />
+  <img src="Z:/picture/008/save_picture_811633.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ The KMPlayer 4.0.7.1 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811632.jpg" />
+  <img src="Z:/picture/008/save_picture_811632.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ VirtualBox 5.0.18 Build 106667 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811630.jpg" />
+  <img src="Z:/picture/008/save_picture_811630.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ FinePrint 10.25 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811561.jpg" />
+  <img src="Z:/picture/008/save_picture_811561.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ PotPlayer 200513(1.7.21212.0) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811559.jpg" />
+  <img src="Z:/picture/008/save_picture_811559.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ QIP Infium 3.0.9044 [Русский, English]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811554.jpg" />
+  <img src="Z:/picture/008/save_picture_811554.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Rufus 3.17 (Build 1846) Stable + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811517.jpg" />
+  <img src="Z:/picture/008/save_picture_811517.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Allavsoft Video Downloader Converter 3.14.1.6291 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811496.jpg" />
+  <img src="Z:/picture/008/save_picture_811496.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ RadioBOSS Advanced 5.4.4.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811481.jpg" />
+  <img src="Z:/picture/008/save_picture_811481.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ FileZilla 3.25.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811470.jpg" />
+  <img src="Z:/picture/008/save_picture_811470.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ The KMPlayer 4.0.7.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811466.jpg" />
+  <img src="Z:/picture/008/save_picture_811466.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ TurboCollage Professional Edition 7.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811457.jpg" />
+  <img src="Z:/picture/008/save_picture_811457.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Air Explorer Pro 2.1.1 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811455.jpg" />
+  <img src="Z:/picture/008/save_picture_811455.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ SIV (System Information Viewer) 5.48 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811427.jpg" />
+  <img src="Z:/picture/008/save_picture_811427.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ PDF24 Creator 9.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811425.jpg" />
+  <img src="Z:/picture/008/save_picture_811425.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ CCleaner Browser 81.0.4054.116 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811420.jpg" />
+  <img src="Z:/picture/008/save_picture_811420.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ AnyMP4 Android Data Recovery 2.0.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811417.jpg" />
+  <img src="Z:/picture/008/save_picture_811417.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Icecream Video Editor Pro 2.05 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811414.jpg" />
+  <img src="Z:/picture/008/save_picture_811414.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Calibre 4.16.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811402.jpg" />
+  <img src="Z:/picture/008/save_picture_811402.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Ashampoo Snap 4.3.0 [Multi/Rus] + Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811379.jpg" />
+  <img src="Z:/picture/008/save_picture_811379.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Novicorp WinToFlash 0.8.0111 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811345.jpg" />
+  <img src="Z:/picture/008/save_picture_811345.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ GridinSoft Anti-Malware 3.0.33 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811342.jpg" />
+  <img src="Z:/picture/008/save_picture_811342.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Wireless Network Watcher 1.97 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811338.jpg" />
+  <img src="Z:/picture/008/save_picture_811338.jpg" />
 </div>
 
 

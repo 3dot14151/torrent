@@ -1,3 +1,30 @@
+###  Публикация: 1624543   (247411) от 23.06.2023
+
+В лоферах вприпрыжку | Долой безделье! | Skip to Loafer | Skip and Loafer [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_247411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня сериала Мицуми Ивакура, закончив сельскую среднюю школу, покидает родные пенаты и поступает в престижную старшую школу в Токио, сдав вступительные лучше всех. Но если в учёбе она и правда хороша, то её социальные навыки оставляют желать лучшего. Да и жизнь в новой школе начинается неважно: сначала она опаздывает на вступительную церемонию, а потом (   Читать дальше...   )Производство: Япония / Студия P.A. WorksЖанр: Комедия, романтика, повседневностьРежиссер: Дэай КотомиЯзык озвучки: Русский многоголосый, закадровый; Японский
+- HectoR, Kroxxa, Renie, Stasia Rem (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A054B712976435A9F977F3035091F872388DCED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628461   (247406) от 23.06.2023
 
 Yuusha ga Shinda! | The Legendary Hero Is Dead! | Гeрoй сдoх! [2023, TV, 12 из 12] WEBRip 1080p rus
@@ -6,7 +33,7 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Гeрoй сдoх! [2023, TV, 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247406.jpg" />
+  <img src="Z:/picture/004/save_picture_247406.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247215.jpg" />
+  <img src="Z:/picture/004/save_picture_247215.jpg" />
 </div>
 
 
@@ -59,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247135.jpg" />
+  <img src="Z:/picture/004/save_picture_247135.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247050.jpg" />
+  <img src="Z:/picture/004/save_picture_247050.jpg" />
 </div>
 
 
@@ -113,7 +140,7 @@ Vinland Saga Season 2 | Сага о Винланде 2 [2023, TV, 24 из 24] WE
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247000.jpg" />
+  <img src="Z:/picture/004/save_picture_247000.jpg" />
 </div>
 
 
@@ -139,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246784.jpg" />
+  <img src="Z:/picture/004/save_picture_246784.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246744.jpg" />
+  <img src="Z:/picture/004/save_picture_246744.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Perfect blue / Истинная грусть [1998] BDRip 1080p raw + rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246706.jpg" />
+  <img src="Z:/picture/004/save_picture_246706.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Angel Cop | Ангел-полицейский [1989, OVA, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245201.jpg" />
+  <img src="Z:/picture/004/save_picture_245201.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ Zhen Hun Jie: Bei Luo Shi Men Pian 2021 | Rakshasa Street 2 | Ракшаса: у
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_245058.jpg" />
+  <img src="Z:/picture/004/save_picture_245058.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244887.jpg" />
+  <img src="Z:/picture/004/save_picture_244887.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Nurarihyon no Mago: Sennen Makyou | Nura: Rise Of The Yokai Clan Demon Capital |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_244866.jpg" />
+  <img src="Z:/picture/004/save_picture_244866.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242285.jpg" />
+  <img src="Z:/picture/004/save_picture_242285.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241821.jpg" />
+  <img src="Z:/picture/004/save_picture_241821.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ Yakitori | Yakitori: Soldiers of Misfortune | Якитори [2023, Web, 6] WEBR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241403.jpg" />
+  <img src="Z:/picture/005/save_picture_241403.jpg" />
 </div>
 
 
@@ -400,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241372.jpg" />
+  <img src="Z:/picture/004/save_picture_241372.jpg" />
 </div>
 
 
@@ -426,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240888.jpg" />
+  <img src="Z:/picture/004/save_picture_240888.jpg" />
 </div>
 
 
@@ -452,7 +479,7 @@ Masamune-kun no Revenge (2018) | Месть Масамунэ OVA [2018, OVA] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240623.jpg" />
+  <img src="Z:/picture/004/save_picture_240623.jpg" />
 </div>
 
 
@@ -478,7 +505,7 @@ Masamune-kun no Revenge | Masamune-kun's Revenge | Месть Масамунэ [
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240599.jpg" />
+  <img src="Z:/picture/004/save_picture_240599.jpg" />
 </div>
 
 
@@ -504,7 +531,7 @@ Shikizakura | Вечноцветущая сакура [2021, TV, 12] WEBRip 1080
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240554.jpg" />
+  <img src="Z:/picture/004/save_picture_240554.jpg" />
 </div>
 
 
@@ -530,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240035.jpg" />
+  <img src="Z:/picture/004/save_picture_240035.jpg" />
 </div>
 
 
@@ -556,7 +583,7 @@ Fuufu Ijou, Koibito Miman | More Than a Married Couple, But Not Lovers | Бол�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239934.jpg" />
+  <img src="Z:/picture/004/save_picture_239934.jpg" />
 </div>
 
 
@@ -583,7 +610,7 @@ Tsuki to Laika to Nosferatu | Irina: The Vampire Cosmonaut | Луна, Лайк�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238952.jpg" />
+  <img src="Z:/picture/005/save_picture_238952.jpg" />
 </div>
 
 
@@ -609,7 +636,7 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238789.jpg" />
+  <img src="Z:/picture/005/save_picture_238789.jpg" />
 </div>
 
 
@@ -635,7 +662,7 @@ Majuu Sensen | The Demonic Beast Front | Битва с демонами [1990, O
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237663.jpg" />
+  <img src="Z:/picture/004/save_picture_237663.jpg" />
 </div>
 
 
@@ -646,32 +673,6 @@ Majuu Sensen | The Demonic Beast Front | Битва с демонами [1990, O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8B944A62ACF6CE9D97E7164369DADAD2BDEE61F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629496   (237615) от 28.04.2023
-
-Hula Fulla Dance | Танец хула-хула [2021, Movie] WEBRip 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма разворачивается на солнечных просторах Гавайи. Главная героиня, это семнадцатилетняя симпатичная девушка Хива Нацунаги, обладательница шикарных каштановых волос и глаз цвета карамели. Она всегда готова без сомнения и полностью окунуться в любые приключения и путешествия. Однажды ей приходит в голову мысль отправиться в Гавайи за сестрой. Попав в это (   Читать дальше...   )Производство: Япония, студия Bandai Namco PicturesЖанр: повседневностьРежиссер: Мидзусима СэйдзиЯзык озвучки: Русский (Anistar (без рекламы))Субтитры: ОтсутствуютПродолжительность: 1 эпизод по 98 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD3F98F8A5B9284360E0A0D9EB081F3E502C2A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

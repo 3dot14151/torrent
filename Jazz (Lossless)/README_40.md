@@ -1,3 +1,119 @@
+###  Публикация: 1099357   (905447) от 01.02.2017
+
+The Ned Irving Quintet - Round & Round (1996) Rafsky Records[FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Round & Round [05:13]
+ 02.The Long Road [06:58]
+ 03.We Didn't Know Then [06:18]
+ 04.Afbatu [05:58](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8B6024F981B0F068A1A648F3CDC436C99B287BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099361   (905418) от 01.02.2017
+
+Weslia Whitfield - Teach Me Tonight (1997) HighNote[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's A Most Unusual Day [02:35]
+ 02.I've Heard That Song Before [05:34]
+ 03.Almost Like Being In Love [03:07]
+ 04.Teach Me Tonight [04:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067C74EB1E3ACA4ED1955D57337ECAD782AE6756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099354   (905326) от 01.02.2017
+
+Thelonious Monk - Straight, No Chaser (1967) 2002, Sony[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Locomotive [06:41]
+ 02.I Didn't Know About You (Take 4) [06:53]
+ 03.Straight, No Chaser [11:29]
+ 04.Japanese Folk Song [16:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DED53FCDCBDD212903E5BF7D3A2AEE6DDAB0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099375   (905316) от 01.02.2017
+
+Camera Soul - Connections (2017) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connections
+02. Help Yourself
+03. Black Cat
+04. Trip(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D99102CC0CB36FEFE389B714A265F5A654A42F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099507   (905098) от 01.02.2017
 
 Jackie Gleason - The Romantic Moods Of Jackie Gleason (1996) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Jazz, Easy Listening>
@@ -6,7 +122,7 @@ Jackie Gleason - The Romantic Moods Of Jackie Gleason (1996) 2 CD, Compilation [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905098.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Dizzy Reece - Soundin' Off (1960) 2003, Toshiba[FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904555.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dizzy Gillespie - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Bop, Big B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903918.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Randy Brecker - In The Idiom (1987) Denon [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903903.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Bill Evans - Escape (1996) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903813.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Lawrence Brown - Slide Trombone (1955) 1999, Verve[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903712.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Harry Verbeke & Rob Agerbeek Quartet - Seven Steps (1982) Remaster, 2016, Solid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903707.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Renee Rosnes - Written In The Rocks (2016) Smoke Sessions Records[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903699.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Tomer Bar - Memories (2007) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903694.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Thelonious Monk Quartet with Johnny Griffin - Thelonious In Action (1958) 1995, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903676.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Necks - Unfold (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Free Impro
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903672.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - Blaxploitation: Soul Jazz & Funk From The Inner City (1996) 2CD, Global Tel
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903619.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ David Hines - Inner Duality (2009) Aluben Publishing BMI[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902815.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Joe Pass - Simplicity (1967) Remaster, 2011, EMI Music[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902788.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Modern Jazz Quartet - Third Stream Music (1960) Remaster, 2013, Warner[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902782.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Oscar Peterson & Dizzy Gillespie - 1974 (1987) Pablo [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902118.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Jeff Golub - Soul Sessions (2003) [FLAC|Lossless|image + .cue] <Jazz, Funk, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902020.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Morten Schanz - Godspeed (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901903.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Rumer - The Magic of Sarah Joyce (2017) [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901546.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Eight O'Five Jive - Swing Set (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jump 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901490.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Scott Bradlee's Postmodern Jukebox - Squad Goals (2016) [FLAC|Lossless|WEB-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901130.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901127.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D46D0017F9431AD3625C83307D3985AE5A71E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992475   (901106) от 02.03.2016
-
-Dr. Lonnie Smith - Rise Up! (2008) Palmetto Records[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Matterapat [06:47]
- 02.Come Together [05:08]
- 03.Pilgrimage [06:50]
- 04.Daper Dan [07:22](   Читать дальше...   )Жанр: Jazz Fusion, Hammond OrganПродолжительность: 01:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7996EB9FDD934BB4FB97E23A5EACF8981C874B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492806   (900876) от 31.08.2021
-
-Marbin - Marbin on Audiotree Live (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock , Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Messy Mark (00:06:45)
-02. African Shabtay (00:08:15)
-03. Juke Joint (00:06:46)
-04. Redline (00:08:42)Жанр: Progressive Rock , FusionПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DCB2529C373BD2C94A7860F0F075344556E4514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369852   (900530) от 25.03.2020
-
-Oscar Peterson & Harry Edison - 1974 (1992) Original Jazz Classics [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Living [6:14]
-02. Days Of Wine And Roses [4:55]
-03. Gee Baby, Ain't I Good To You [6:07]
-04. Basie [7:25](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F781A1A4BA3379ED28ED3353742CA52C28A8A74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369815   (900197) от 25.03.2020
-
-Billy Cobham - Drum 'n' Voice - All that Groove (2001) [FLAC|Lossless|image + .cue] <Jazz, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Africa's Sounds
-02. Shadow
-03. Red Baron
-04. Okky Dokky(   Читать дальше...   )Жанр: Jazz, Funk / SoulПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:896E9537364ACC079706F09018E40585C318AB93
 ```
 
 https://mybot314.ru/tekegram_catalog/

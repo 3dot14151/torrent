@@ -1,3 +1,112 @@
+###  Публикация: 1336294   (280816) от 06.11.2019
+
+Compress PDF 2.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_280816.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF-файл может быть очень большим, если он содержит много изображений в оригинальном качестве. Мы хотели бы сохранить документы, такие как брошюра о продукте, руководство пользователя, отчеты, предложения или другие, в виде файла PDF для распространения. Но вы не хотите размещать руководство пользователя объемом 50 МБ в формате PDF на своем веб-сайте или отправлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60783FD5DC1FBE9F2DEC81AC8D482D318E05ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336408   (280812) от 06.11.2019
+
+Geekbench 5 v5.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_280812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Geekbench 5 – бенчмарк для измерения производительности в реальных задачах
+Когда мы покупаем Mac или когда мы хотим быть уверены, что все компоненты нашей системы работают хорошо, мы, как правило, используем программы для выполнения тестов.
+
+Geekbench 5 предлагает обновленный интерфейс и ряд новых бенчмарков, которые созданы специально для измерения быстродействия (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2019Разработчик: Primate Labs Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575F25C08D9C1A4D71D8322E81CB641796B7D0A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336346   (280799) от 06.11.2019
+
+Adobe Zii 2020 - Universal Patcher v5.0.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_280799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE2794A848F2F6F836742A55B013BD2E3181621A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187335   (280769) от 28.11.2017
+
+UninstallPKG 1.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_280769.jpg" />
+</div>
+
+
+###  Подробнее
+
+UninstallPKG - приложение, которое позволяет Вам полностью удалять так называемые "пакеты" (расширения файла .pkg) и все их установленное содержимое с Вашего Mac.
+
+UninstallPKG может использоваться для очистки свободного пространства на диске , например удалить неиспользуемые драйвера принтера или полностью удалить приложения, которые Вы больше не используете. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2017Разработчик: CoreCodeПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE0B543742E58DD82AAE07569571597CA229D9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187340   (280760) от 28.11.2017
 
 Script Debugger 6.0.6 [En]
@@ -6,7 +115,7 @@ Script Debugger 6.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280760.jpg" />
+  <img src="Z:/picture/008/save_picture_280760.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ PopClip 2019.10 (3032) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280683.jpg" />
+  <img src="Z:/picture/008/save_picture_280683.jpg" />
 </div>
 
 
@@ -62,7 +171,7 @@ Canary Mail 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280617.jpg" />
+  <img src="Z:/picture/008/save_picture_280617.jpg" />
 </div>
 
 
@@ -91,7 +200,7 @@ PDF Expert 2.2.13 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280603.jpg" />
+  <img src="Z:/picture/008/save_picture_280603.jpg" />
 </div>
 
 
@@ -120,7 +229,7 @@ NetSpot PRO Wi-Fi Reporter 2.11.1000 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280506.jpg" />
+  <img src="Z:/picture/008/save_picture_280506.jpg" />
 </div>
 
 
@@ -149,7 +258,7 @@ Adguard 1.5.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280490.jpg" />
+  <img src="Z:/picture/008/save_picture_280490.jpg" />
 </div>
 
 
@@ -175,7 +284,7 @@ Amadeus Pro 2.4.3 (1977) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280447.jpg" />
+  <img src="Z:/picture/008/save_picture_280447.jpg" />
 </div>
 
 
@@ -201,7 +310,7 @@ Unclutter 2.1.6d [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280445.jpg" />
+  <img src="Z:/picture/008/save_picture_280445.jpg" />
 </div>
 
 
@@ -230,7 +339,7 @@ Audirvana Plus 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280429.jpg" />
+  <img src="Z:/picture/008/save_picture_280429.jpg" />
 </div>
 
 
@@ -259,7 +368,7 @@ iMazing 2.10.5 (11536) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280339.jpg" />
+  <img src="Z:/picture/008/save_picture_280339.jpg" />
 </div>
 
 
@@ -286,7 +395,7 @@ IconFly 3.8.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279573.jpg" />
+  <img src="Z:/picture/008/save_picture_279573.jpg" />
 </div>
 
 
@@ -314,7 +423,7 @@ PatterNodes 2 v2.1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279567.jpg" />
+  <img src="Z:/picture/008/save_picture_279567.jpg" />
 </div>
 
 
@@ -341,7 +450,7 @@ Amadeus Pro 2.5.2 (2084) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279526.jpg" />
+  <img src="Z:/picture/008/save_picture_279526.jpg" />
 </div>
 
 
@@ -367,7 +476,7 @@ Disco Dancer – Simple Scrobbler for Last.fm 1.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279286.jpg" />
+  <img src="Z:/picture/008/save_picture_279286.jpg" />
 </div>
 
 
@@ -394,7 +503,7 @@ iLock 2.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279284.jpg" />
+  <img src="Z:/picture/008/save_picture_279284.jpg" />
 </div>
 
 
@@ -423,7 +532,7 @@ Smooze 1.8.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279258.jpg" />
+  <img src="Z:/picture/008/save_picture_279258.jpg" />
 </div>
 
 
@@ -449,7 +558,7 @@ MediaInfo 0.7.91 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279193.jpg" />
+  <img src="Z:/picture/008/save_picture_279193.jpg" />
 </div>
 
 
@@ -477,7 +586,7 @@ SQLPro Studio 2019.09.27.3 (build 110557) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279172.jpg" />
+  <img src="Z:/picture/008/save_picture_279172.jpg" />
 </div>
 
 
@@ -503,7 +612,7 @@ SuperDuper! 3.3.B4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279169.jpg" />
+  <img src="Z:/picture/008/save_picture_279169.jpg" />
 </div>
 
 
@@ -529,7 +638,7 @@ VueScan Pro 9.5.62 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279103.jpg" />
+  <img src="Z:/picture/008/save_picture_279103.jpg" />
 </div>
 
 
@@ -555,7 +664,7 @@ AudioSwitcher 2.24.943 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279099.jpg" />
+  <img src="Z:/picture/008/save_picture_279099.jpg" />
 </div>
 
 
@@ -584,7 +693,7 @@ Things 3 v3.10.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279071.jpg" />
+  <img src="Z:/picture/008/save_picture_279071.jpg" />
 </div>
 
 
@@ -597,115 +706,6 @@ Things — приятный и простой ежедневник. Это ид�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EF8A21E80434312BB5E09E11C9760266D64D680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336540   (279053) от 07.11.2019
-
-Battery Health 3 v1.0.19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook, таких как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
-
-Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B377C9E59123047E81C6FB69EA1C15A145B7C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082369   (279009) от 12.12.2016
-
-HandsFree 2.5.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используйте любой телефон Bluetooth для звонков, текстовых сообщений, записи ….
-HandsFree 2 позволяет использовать Mac, для совершения телефонных звонков, отправлять / получать текстовые сообщения *, записывать разговоры, см списки вызовов и многое другое. Hands Free 2 работает в фоновом режиме (с всегда доступным значком в меню состояния), вам не придется беспокоиться (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 октября 2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01DADBA5F6B2EE4904643BF87D19E900D2D6538D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082341   (278994) от 12.12.2016
-
-Switch 3 Pro 3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Switch – профессиональный инструмент для воспроизведения медиа, контроля качества и конвертирования
-Switch позволяет Вам воспроизводить разнообразные Web- и профессиональные видео-форматы, анализировать и подстраивать свойства файла и экспортировать в новый файл.  Встроенный анализатор отображает свойства медиа: аудио каналы, соотношение сторон, битрейт и форматы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02 ноября 2016Разработчик: Telestream, IncПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36337EF87351BCB12E9E93A50798589CB89BDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187496   (278722) от 29.11.2017
-
-Debookee 6.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Debookee - инструмент анализа сети.
-Debookee - Программа, анализирующая соединение с интернетом и способная определить, с какого устройства был выход в сеть через вашу точку доступа. Вы сможете проверить траффик, исходящий с любого устройства: iPhone, iPad, Android, BlackBerry, PC, Mac и тп. Модуль сетевого анализа (NA) осуществляет мониторинг сети и в настоящее (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2017Разработчик: iwaxx Ltd.Поддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB7638CBD3F1BB8CB68F04FEDECA36CA500A74E
 ```
 
 https://mybot314.ru/tekegram_catalog/

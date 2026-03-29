@@ -1,3 +1,145 @@
+###  Публикация: 1104600   (880062) от 15.02.2017
+
+Little Audio App 1.2.1 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_880062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Little Audio App -  упрощенное воспроизведение и экспорт
+Little Audio App представляет собой удобный инструмент для воспроизведения и экспорта практически любого файла, который содержит аудио. Он может обрабатывать почти все, если файл содержит аудио в той или иной форме.
+
+Все, начиная от аудио форматов для контейнеров файлов фильмов, вы можете экспортировать в AAC (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01 февраля 2017Разработчик: Bitfield ABПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8BE7A5A4F9687F283B3F7C4574C89C439A886D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104936   (878216) от 16.02.2017
+
+Timerik 1.3 [En/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_878216.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Таймерик» – это элегантный и очень удобный в использовании таймер обратного отсчета времени.
+
+Базовая функция приложения — простая установка уведомлений. Хотите не забыть вытащить пирог из духовки, засидевшись за компьютером? Просто заведите «Таймерик»!
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 февраля 2017Разработчик: 2016 m!Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B24C4AF9AE2B936DC6F8911722E8505DD96A54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373919   (876859) от 08.04.2020
+
+Chaos Control Premium 1.8.1 [En/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хаос-контроль: органайзер целей и задач на базе GTD
+Хаос-контроль - это мощный органайзер, позволяющий фиксировать долгосрочные и среднесрочные цели, а также составлять списки дел на день.
+
+Ещё ни в одной биографии выдающегося бизнесмена, политика или артиста не было написано, что он достиг успеха благодаря использованию ежедневника, календаря, методик тайм-менеджмента (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.04.2020Разработчик: Tarasov MobileПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B97CA76E6AAB4DEF7DC2FA02D2296CCBDA1AD65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374004   (876365) от 08.04.2020
+
+Wondershare Recoverit Video Repair 1.1.2 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wondershare Recoverit Video Repair 1.0 обещает пользователям простой способ исправить свои поврежденные видеофайлы, независимо от формата, в котором они находятся. Приложение должно быть достаточно простым в использовании, и его стоит попробовать, если больше ничего не дает убедительных результатов. Приложение простое, в основном потому, что оно не заполнено слишком (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0ED9BFD856F11D9EC7AE4753BE342D16D090CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105411   (876344) от 17.02.2017
+
+Principle 2.1.4 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_876344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Principle: инструмент для прототипирования
+Principle — приложение для Mac OS, которое позволяет в два счета создать анимацию элементов пользовательского интерфейса и сгенерировать его интерактивный прототип. Будь то многоэкранное приложение или просто придуманный вами контрол, так просто и быстро реализовать это раньше не позволял ни один сервис.
+
+Principle — умный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16 февраля 2017Разработчик: Daniel HooperПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAC6F26FDAF94F388424E39FC772480D8FEA386B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105363   (876282) от 17.02.2017
 
 PhotoDesk - for Instagram 4.1.5 [Multi]
@@ -6,7 +148,7 @@ PhotoDesk - for Instagram 4.1.5 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876282.jpg" />
+  <img src="Z:/picture/005/save_picture_876282.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ DxO OpticsPro Elite 10.5.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875346.jpg" />
+  <img src="Z:/picture/005/save_picture_875346.jpg" />
 </div>
 
 
@@ -61,7 +203,7 @@ Bitdefender Antivirus 2016 v4.0.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875123.jpg" />
+  <img src="Z:/picture/005/save_picture_875123.jpg" />
 </div>
 
 
@@ -89,7 +231,7 @@ Webcam Settings Control: Full Camera Adjustment 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874821.jpg" />
+  <img src="Z:/picture/005/save_picture_874821.jpg" />
 </div>
 
 
@@ -118,7 +260,7 @@ Paragon Camptune X v10.10.20 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874382.jpg" />
+  <img src="Z:/picture/005/save_picture_874382.jpg" />
 </div>
 
 
@@ -144,7 +286,7 @@ QR Factory 2.9.1 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873838.jpg" />
+  <img src="Z:/picture/008/save_picture_873838.jpg" />
 </div>
 
 
@@ -171,7 +313,7 @@ Flyer Mill - Templates for Pages 1.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873521.jpg" />
+  <img src="Z:/picture/008/save_picture_873521.jpg" />
 </div>
 
 
@@ -198,7 +340,7 @@ Textual 7 v7.1.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873170.jpg" />
+  <img src="Z:/picture/008/save_picture_873170.jpg" />
 </div>
 
 
@@ -226,7 +368,7 @@ Soulver 3 v3.3.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873168.jpg" />
+  <img src="Z:/picture/008/save_picture_873168.jpg" />
 </div>
 
 
@@ -254,7 +396,7 @@ Anesidora 2.02 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873163.jpg" />
+  <img src="Z:/picture/008/save_picture_873163.jpg" />
 </div>
 
 
@@ -280,7 +422,7 @@ Duplicate Sweeper 1.06 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873161.jpg" />
+  <img src="Z:/picture/008/save_picture_873161.jpg" />
 </div>
 
 
@@ -307,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872874.jpg" />
+  <img src="Z:/picture/008/save_picture_872874.jpg" />
 </div>
 
 
@@ -335,7 +477,7 @@ Araxis Merge Pro Edition 2020.5350 for macOS 10.13–10.15 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872840.jpg" />
+  <img src="Z:/picture/008/save_picture_872840.jpg" />
 </div>
 
 
@@ -363,7 +505,7 @@ Cross DJ 3.4.3 [Multi]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872739.jpg" />
+  <img src="Z:/picture/008/save_picture_872739.jpg" />
 </div>
 
 
@@ -391,7 +533,7 @@ Gemini 2: The Duplicate Finder 2.6.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872442.jpg" />
+  <img src="Z:/picture/008/save_picture_872442.jpg" />
 </div>
 
 
@@ -419,7 +561,7 @@ Downie 3.9.11 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870950.jpg" />
+  <img src="Z:/picture/008/save_picture_870950.jpg" />
 </div>
 
 
@@ -447,7 +589,7 @@ Capturer - auto screen capturesr 1.0.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870057.jpg" />
+  <img src="Z:/picture/008/save_picture_870057.jpg" />
 </div>
 
 
@@ -475,7 +617,7 @@ NepTunes 1.63 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869967.jpg" />
+  <img src="Z:/picture/008/save_picture_869967.jpg" />
 </div>
 
 
@@ -504,7 +646,7 @@ Chikoo 1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868994.jpg" />
+  <img src="Z:/picture/008/save_picture_868994.jpg" />
 </div>
 
 
@@ -530,7 +672,7 @@ Tipard Mac 3D Converter 6.2.22 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868986.jpg" />
+  <img src="Z:/picture/008/save_picture_868986.jpg" />
 </div>
 
 
@@ -556,7 +698,7 @@ QR Factory 2.9.17 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868824.jpg" />
+  <img src="Z:/picture/008/save_picture_868824.jpg" />
 </div>
 
 
@@ -570,140 +712,6 @@ QR Factory является незаменимым и универсальным
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75135520B1C68879DAF928B7710974836F141610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644277   (868779) от 16.04.2013
-
-iWork 09.3 (2012) [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет iWork — это популярный офисный пакет для компьютеров Macintosh, который работает под управлением операционной системы Mac OS X. В него входят три приложения: текстовый процессор Pages, электронные таблицы Numbers и редактор презентаций Keynote.
-
-Состав раздачи: Pages 09 v4.3 (1048)
-Numbers 09 v2.3 (554)(   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 04 декабря 2012Разработчик: iTunes S.a.r.l.  Apple Inc.Поддерживаемая ОС: OS X Lion 10.7.4Язык интерфейса: Русский, Китайский, Датский, Голландский, Английский, Финский, Французский, Немецкий, Итальянский, Японский, Корейский, Норвежский, Польский, Португальский, Испанский, Шведский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375090   (868470) от 12.04.2020
-
-Tipard PDF to Word Converter for Mac 3.1.26 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tipard PDF to Word Converter - это простой и быстрый способ конвертировать PDF документы в Word и RTF форматы с продвинутой технологией OCR. Программа сохраняет первоначальный текст, изображения, формы и расположения в документах, обладает простым, интуитивно понятным интерфейсом и большой скоростью конвертации. Так-же программа помогает повторно использовать содержание (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Tipard StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E379CDD61150D5E37C8343335FA90A07DD37ED30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497124   (868266) от 20.09.2021
-
-LogRabbit 1.8 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868266.jpg" />
-</div>
-
-
-###  Подробнее
-
-LogRabbit - это незаменимое приложение просмотра logcat для разработчиков Android.
-Сэкономьте время и упростите работу с журналами устройств Android.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2019Разработчик: Chris WilsonПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A79BEDCFADAB44D936986FD329B3A75220E6FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497131   (868262) от 20.09.2021
-
-TuneBoto Amazon Music Converter 2 v2.4.0 [Multi]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший Amazon Music Converter для преобразования всех треков, альбомов и плейлистов Amazon в MP3, AAC, WAV, FLAC или AIFF.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: TuneBoto Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBB491EE65C1BDCB821A3726143FD756834581F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497001   (868134) от 20.09.2021
-
-Adobe Zii 2021 - Universal Patcher 6.1.6 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией практически всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 13.09.2021Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D0B20782373560DA5C50D4971FA08D053EA7283
 ```
 
 https://mybot314.ru/tekegram_catalog/

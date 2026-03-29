@@ -6,7 +6,7 @@ Wifi Signal Strength 2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713236.jpg" />
+  <img src="Z:/picture/008/save_picture_713236.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Ulysses 20.2 (60026) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713230.jpg" />
+  <img src="Z:/picture/008/save_picture_713230.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ Nova Launcher Prime v4.3.1 Mod Lite [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713225.jpg" />
+  <img src="Z:/picture/008/save_picture_713225.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713224.jpg" />
+  <img src="Z:/picture/008/save_picture_713224.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ Universal USB Installer 1.9.5.9 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713217.jpg" />
+  <img src="Z:/picture/008/save_picture_713217.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Unity Pro 2019 4.5f1 x64 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713184.jpg" />
+  <img src="Z:/picture/008/save_picture_713184.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ Evaer Video Recorder for Skype 1.6.2.82 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713156.jpg" />
+  <img src="Z:/picture/008/save_picture_713156.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713153.jpg" />
+  <img src="Z:/picture/008/save_picture_713153.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ SSH Config Editor 1.11.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713151.jpg" />
+  <img src="Z:/picture/008/save_picture_713151.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Desi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713149.jpg" />
+  <img src="Z:/picture/008/save_picture_713149.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713136.jpg" />
+  <img src="Z:/picture/008/save_picture_713136.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Tower of Time (2018) [En] (1.0) Repack MAXSEM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713128.jpg" />
+  <img src="Z:/picture/008/save_picture_713128.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Privacy Eraser Free 4.48.0 Build 2791 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713119.jpg" />
+  <img src="Z:/picture/008/save_picture_713119.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713118.jpg" />
+  <img src="Z:/picture/008/save_picture_713118.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ SPC Plugins - ArcSyn 3.0.0 VSTi (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713116.jpg" />
+  <img src="Z:/picture/008/save_picture_713116.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ AnyMP4 Mac Video Enhancement 8.2.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713112.jpg" />
+  <img src="Z:/picture/008/save_picture_713112.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713065.jpg" />
+  <img src="Z:/picture/008/save_picture_713065.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713064.jpg" />
+  <img src="Z:/picture/008/save_picture_713064.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ FastStone Capture 8.2 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713031.jpg" />
+  <img src="Z:/picture/008/save_picture_713031.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Folx GO+ 5.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713020.jpg" />
+  <img src="Z:/picture/008/save_picture_713020.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Mozilla Thunderbird 78.1.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713001.jpg" />
+  <img src="Z:/picture/008/save_picture_713001.jpg" />
 </div>
 
 
@@ -567,7 +567,7 @@ Sublime Text 4.0 Dev build 4081 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712994.jpg" />
+  <img src="Z:/picture/008/save_picture_712994.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Google Chrome 72.0.3626.121 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712981.jpg" />
+  <img src="Z:/picture/008/save_picture_712981.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712980.jpg" />
+  <img src="Z:/picture/008/save_picture_712980.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712968.jpg" />
+  <img src="Z:/picture/008/save_picture_712968.jpg" />
 </div>
 
 
@@ -678,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712966.jpg" />
+  <img src="Z:/picture/008/save_picture_712966.jpg" />
 </div>
 
 

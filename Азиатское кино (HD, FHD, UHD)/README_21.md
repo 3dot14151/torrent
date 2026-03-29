@@ -1,3 +1,107 @@
+###  Публикация: 1120448   (803020) от 30.03.2017
+
+Музей / Myujiamu (Museum) (2016) BDRip [H.264/720p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_803020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Происходит серия убийств, причём именно в те дни, когда идёт дождь. Детектив Хисаси Савамура пытается поймать убийцу и вскоре понимает, что следующими жертвами будут его жена и сын. Подозреваемый — человек в маске лягушки.Производство: Япония, Twins JapanЖанр: Ужасы, Триллер, КриминалРежиссер: Кэйдзи ОтомоАктеры: Сюн Огури, Сюхэй Номура, Матико Оно, Томоми Маруяма, Масато Ибу, Томоко Табата, Микако Итикава, Нао ОмориПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Субтитры: Китайские (отключаемые)Продолжительность: 02:12:02Реклама: Отсутствует
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB5C2C82EBC8EE8AEC22E81B069B897743C4EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199067   (802368) от 14.01.2018
+
+Золотой монах / Xiang mo zhuan (2017) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_802368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает историю монаха, который внезапно понимает, что он реинкарнация волшебного духа, скинутого с небес, и теперь намеревается найти свою истинную фею любви.Производство: Китай / Asian DragonЖанр: Комедия, боевик, приключения, фантастика, фэнтезиРежиссер: Билли Чун, Вон ЦзинАктеры: Кай Чжэн, Китти Чжан, Ло Ка-Ин, Мао Цзюньцзе ...Перевод: Любительский двухголосый (East Dream)Субтитры: Китайские (хардсаб)Продолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CB21846DCDA476E302CB503C09B75B82C509F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199138   (801407) от 15.01.2018
+
+Мошенники / The Swindlers / Kkun (2017) BDRip [H.264/720p-LQ] [MVO] [PR]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько лет назад мошенник международного масштаба Чан Ду-чхиль провернул финансовую афёру, в результате которой множество семей лишилось последних сбережений. По стране прокатилась волна самоубийств — многие потеряли не только деньги, но и близких людей. Сам же Чан Ду-чхиль умудрился сбежать из страны по поддельным документам, которые изготовил Хван Ю-сок, позже (   Читать дальше...   )Производство: Южная Корея / Showbox EntertainmentЖанр: Драма, криминалРежиссер: Чан Чхан-вонАктеры: Хён Бин, Ю Джи-тхэ, Пэ Сон-у, Пак Сон-ун, Нана, Ан Сэ-ха, Чхве Док-мун, Чхве Иль-хва, Хо Сон-тхэ, Ём Дон-хонПеревод: Любительский двухголосый (RealFake)Субтитры: ОтсутствуютПродолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29ADB95EE063CEF4FB60511D3CE61DAB27706E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506122   (801392) от 29.10.2021
+
+Зомби одним планом! / Kamera wo Tomeru na! / One Cut of the Dead (2017) BDRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Съемочная группа приехала на заброшенный промышленный объект времен Второй Мировой войны, чтобы снимать фильм ужасов про зомби. Никто из участников съемочного процесса не подозревал, что это не просто заброшенная фильтровальная станция, а место, где в 40-ые годы ставились жестокие эксперименты над людьми. И плоды тех экспериментов до сих пор живы и бродят по лабиринтам (   Читать дальше...   )Производство: Япония / ENBU Seminar, PanpokopinaЖанр: Комедия, ужасыРежиссер: Синъитиро УэдаАктеры: Такаюки Хамацу, Юдзуки Акияма, Харуми Сюхама, Кадзуаки Нагая, Хироси Итихара, Мао, Сакина Ивадзи, Такуя Фудзимура, Аяна Года, Манабу ХосоиПеревод: Профессиональный многоголосый (Jaskier)Субтитры: Русские, английскиеПродолжительность: 01:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0584A12E420BC4CB78797D2FCD8BDB7543E42DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506233   (800983) от 30.10.2021
 
 Портрет красивой девушки / Портрет красавицы / Miindo / Mi-in-do / Portrait of a Beauty (2008) BDRip [H.264/720p] [DVO]
@@ -6,7 +110,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800983.jpg" />
+  <img src="Z:/picture/008/save_picture_800983.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800588.jpg" />
+  <img src="Z:/picture/008/save_picture_800588.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800538.jpg" />
+  <img src="Z:/picture/008/save_picture_800538.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800284.jpg" />
+  <img src="Z:/picture/008/save_picture_800284.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800037.jpg" />
+  <img src="Z:/picture/008/save_picture_800037.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799856.jpg" />
+  <img src="Z:/picture/008/save_picture_799856.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799721.jpg" />
+  <img src="Z:/picture/008/save_picture_799721.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799348.jpg" />
+  <img src="Z:/picture/008/save_picture_799348.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799078.jpg" />
+  <img src="Z:/picture/008/save_picture_799078.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798917.jpg" />
+  <img src="Z:/picture/008/save_picture_798917.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798724.jpg" />
+  <img src="Z:/picture/008/save_picture_798724.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798442.jpg" />
+  <img src="Z:/picture/008/save_picture_798442.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798420.jpg" />
+  <img src="Z:/picture/008/save_picture_798420.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798402.jpg" />
+  <img src="Z:/picture/008/save_picture_798402.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798367.jpg" />
+  <img src="Z:/picture/008/save_picture_798367.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798246.jpg" />
+  <img src="Z:/picture/008/save_picture_798246.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798230.jpg" />
+  <img src="Z:/picture/008/save_picture_798230.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798114.jpg" />
+  <img src="Z:/picture/008/save_picture_798114.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797822.jpg" />
+  <img src="Z:/picture/008/save_picture_797822.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797732.jpg" />
+  <img src="Z:/picture/008/save_picture_797732.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797280.jpg" />
+  <img src="Z:/picture/008/save_picture_797280.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797185.jpg" />
+  <img src="Z:/picture/008/save_picture_797185.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6746D6CFA41BBE18DD524CC20A3810F1E1914C3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 770135   (797100) от 25.05.2020
-
-История двух сестер / A Tale of Two Sisters / Janghwa, Hongryeon (2003) BDRip [720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Две сестры возвращаются в дом своего отца и мачехи после продолжительного пребывания в психиатрической лечебнице. Ситуация в доме носит напряженный характер, так как состояние мачехи весьма несбалансированное. Вскоре в доме начинают происходить странные вещи, сёстрам кажется, что внутри есть кто-то еще...Жанр: Ужасы, Триллер, ДрамаРежиссер: Ким Чжи УнАктеры: Ким Кап Су, Ём Чон А, Им Су Чон, Мун Гын Ён, Сенг-Би ЛиПеревод: Авторский (одноголосый закадровый) Ю.Сербин, Авторский (одноголосый закадровый) С.Визгунов, Авторский (одноголосый закадровый) Е.Гранкин, Авторский (одноголосый закадровый) @PDЯзык субтитров: Русские (Сербин), английскиеПродолжительность: 01:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7836BCABCDBB041FC2F067830D5ABC5A6014CC0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508644   (796855) от 09.11.2021
-
-Полоскать горло сладким саке / Amai osake de ugai / My Sweet Grappa Remedies (2019) WEB-DL [H.264/1080p-LQ] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796855.jpg" />
-</div>
-
-
-###  Подробнее
-
-История Кавасима Ёсико (Мацуюки Ясуко), 40-летней одинокой женщины. Она счастливо проводит время со своей коллегой Вакабаяси-тян (Куроки Хару). Но однажды в жизни Ёсико происходят неожиданные изменения - она влюбляется в Окамото-куна (Симидзу Хироя) - парня, который в два раза младше нее.Производство: Япония, TV Asahi, Yoshimoto Kogyo Co. Ltd.Жанр: Драма, мелодрамаРежиссер: Акико ОкуАктеры: Ясуко Мацуюки, Кандзи Фурутати, Макото Идзубути, Кацуя Коисо, Хару Куроки, Томоя Маэно, Кадзухиро Накахара, Кодзо Сато, Хироя Симидзу, Даити ВатанабэПеревод: Двуголосый любительский (АрхиAsia)Субтитры: Русские, английские, китайскиеПродолжительность: 01:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3466F7EC38741585FC5EE899F64B8C8D4EA3AD77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011238   (796774) от 27.04.2016
-
-Дочь / Daughter (2015) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шерон — известный психотерапевт, занятая успешной собственной практикой. У нее есть дочь Дженни, но в последнее время девушка сама не своя — она словно специально провоцирует мать, а также прилюдно позорит ее во время выходов в свет. После того, как Дженни на важном приеме разбивает драгоценность за миллион долларов, а затем мочится на стол, карьера Шерон летит под (   Читать дальше...   )Производство: Гонконг / Sundream Motion PicturesЖанр: Ужасы, Триллер, ДрамаРежиссер: Пэнг Чун ЧанАктеры: Бо-Бо Фанг, Кара Хуэй, Кенни Вонг, Янни Чан, Петрина ФунгПеревод: Одноголосый закадровый, любительский (ngame, по субтитрам Enigma)Язык субтитров: ОтсутствуютПродолжительность: 01:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5650EA0AB8287C6ADE97EE04E15095ADDD3D4469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385808   (796513) от 26.05.2020
-
-Похищение / Abduction (2019) BDRip [H.264/1080p-LQ] [MVO] [PR]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Куинн выходит из фонтана в парке во Вьетнаме, не помня, кто он и откуда. Он начинает блуждать по городу и вскоре в его памяти всплывают фрагменты прошлого: его дочь Люси похитили неизвестные люди из другого измерения. Чтобы найти ее, потребуется вступить в смертельную схватку с могущественными злодеями.Производство: Китай, Ace Films, Red Sea MediaЖанр: Ужасы, фантастика, боевик, триллерРежиссер: Эрни БарбарашАктеры: Скотт Эдкинс, Энди Он, Труонг Нгок Ан, Лили Цзи, Аки Алеонг, Дэниэл Уайт, Майк Лидер, Брахим Ачаббаке, Пол В. Хе, Филипп ЖолиПеревод: Многоголосый профессиональный (HDRezka Studio)Субтитры: Русские (Forced), АнглийскиеПродолжительность: 01:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401E7CC2C60B00D599C00E712208B2C947C772B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

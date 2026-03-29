@@ -1,3 +1,90 @@
+###  Публикация: 1591821   (185524) от 20.11.2022
+
+Otus - Torch (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Tenebris 01:21
+02. Through the Flesh 07:24
+03. The Vessel 12:15
+04. Apnea 05:37(   Читать дальше...   )Жанр: Sludge, Doom MetalПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:344BE5507F7DFFF5F20FFC49A9D7F00B2593D887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664597   (185522) от 26.09.2023
+
+Bio-Cancer - Revengeance (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Citizen... Down! (05:05)
+02 - 44 Days in Hell (06:35)
+03 - Footprints on My Back (05:19)
+04 - Revengeance (05:11)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E09D6E9AD4F90B9BE9966DA37CF4738FF00A772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426918   (185518) от 26.11.2020
+
+Virgin Snatch - In The Name Of Blood (2006) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_185518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. State Of Fear
+02. Purge My Stain!
+03. Bred To Kill
+04. IV - Vote Of No Confidence(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40;12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:051093CEE088F26ADB48BFCC63BD0CE994BD3DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591593   (185514) от 20.11.2022
 
 Troll - Collection (1995 - 2010) 5 CD [FLAC|Lossless|image + .cue] <Black Metal, Symphonic Black Metal>
@@ -6,7 +93,7 @@ Troll - Collection (1995 - 2010) 5 CD [FLAC|Lossless|image + .cue] <Black Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185514.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Symphorce - Godspeed (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185512.jpg" />
+  <img src="Z:/picture/004/save_picture_185512.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Blowmind - 2 Albums (2018-2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Stoner Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185495.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185495.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Wind Rose - Wintersaga (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185481.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Moonlight Haze - De Rerum Natura (2019) Japanese Edition [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185455.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Candlemass - Sweet Evil Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185436.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Katatonia - Dead Air (2020) 2CD [FLAC|Lossless|image + .cue] <Doom Metal, Progre
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_185379.jpg" />
+  <img src="Z:/picture/004/save_picture_185379.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Morbid Angel - Abominations Of Desolation (1991) [WavPack|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_185251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185251.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Damnation's Hammer - Into The Silent Nebula (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184960.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Fossilization - Leprous Daylight (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184955.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Candleblack - The Passage of Time and Suffering (2023) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184893.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Crimson Dawn - It Came From The Stars (2023) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184779.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Kres - Na krawedziach nocy (2015) [FLAC|Lossless|image + .cue] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184672.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Kres - 40 nocy grudnia (2016) [FLAC|Lossless|image + .cue] <Atmospheric Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184662.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Smog - Nuor (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184658.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Kurnalcool - The Final Tazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184641.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Persuader - Necromancy (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184629.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Nekomata - ...And Then, The Abusement Park Left Town (2022) [FLAC|Lossless|WEB-D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184608.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Cruachan - Nine Years of Blood (2018) [FLAC|Lossless|image + .cue] <Irish Folk, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184600.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Crow's Flight - The Storm (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184597.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184597.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Avatarium - The Fire I Long For (2019) Japan Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184592.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Kosmik Tomb - Origins of the Horror (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184585.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Toxik - Dis Morta (2022) [FLAC|Lossless|image + .cue] <Technical Speed Metal, Th
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184549.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Toxik - Dis Morta (2022) [FLAC|Lossless|image + .cue] <Technical Speed Metal, Th
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F227B4C7F19DCB93C6E8A454736BE619537BB81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592150   (184531) от 21.11.2022
-
-Metalite - Biomechanicals (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Modern Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far From The Sanctuary
-02. Apocalypse
-03. Biomechanicals
-04. Warrior(   Читать дальше...   )Жанр: Modern Melodic MetalПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C629D97D36006D93E5481453E9BB048C71EFAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592154   (184528) от 21.11.2022
-
-Metalite - A Virtual World (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Modern Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Virtual World
-02. Cloud Connected
-03. Talisman
-04. Beyond The Horizon(   Читать дальше...   )Жанр: Modern Melodic MetalПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69255E2A07100A7D83B2AB54BD10BC35C81ED6B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592142   (184523) от 21.11.2022
-
-Novembers Doom - Nephilim Grove (2019) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184523.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Petrichor 06:12
-2. The Witness Marks 04:45
-3. Nephilim Grove 06:49
-4. What We Become 06:31(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE878073F5464EE98EBD65ED32E3EC426B9F55C
 ```
 
 https://mybot314.ru/tekegram_catalog/

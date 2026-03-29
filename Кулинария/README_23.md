@@ -1,3 +1,31 @@
+###  Публикация: 886264   (770731) от 08.04.2015
+
+Алексей Онегин | Моя кухня. Лучшие рецепты (2009) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_770731.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Вы держите в руках (точнее, рассматриваете на экране) мою первую кулинарную книгу. В нее вошли пять десятков рецептов, которые наверняка не оставят равнодушным любого, кто увлечен кулинарией: так же, как одержим ею я.
+
+И поскольку я глубоко убежден, что время, проведенное на кухне, в первую очередь должно приносить радость, все блюда из этой книги готовятся быстро и без труда, так что моими рецептами может воспользоваться даже начинающая хозяйка." Алексей ОнегинЖанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68228239041CDB2D64122F600968E64E8950EF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 886263   (770665) от 08.04.2015
 
 Алексей Онегин | Книга домашних деликатесов (2014) [PDF]
@@ -6,7 +34,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770665.jpg" />
+  <img src="Z:/picture/008/save_picture_770665.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770013.jpg" />
+  <img src="Z:/picture/008/save_picture_770013.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769902.jpg" />
+  <img src="Z:/picture/008/save_picture_769902.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769164.jpg" />
+  <img src="Z:/picture/008/save_picture_769164.jpg" />
 </div>
 
 
@@ -110,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769063.jpg" />
+  <img src="Z:/picture/008/save_picture_769063.jpg" />
 </div>
 
 
@@ -137,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769057.jpg" />
+  <img src="Z:/picture/008/save_picture_769057.jpg" />
 </div>
 
 
@@ -164,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768598.jpg" />
+  <img src="Z:/picture/008/save_picture_768598.jpg" />
 </div>
 
 
@@ -190,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768595.jpg" />
+  <img src="Z:/picture/008/save_picture_768595.jpg" />
 </div>
 
 
@@ -216,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768078.jpg" />
+  <img src="Z:/picture/008/save_picture_768078.jpg" />
 </div>
 
 
@@ -242,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767592.jpg" />
+  <img src="Z:/picture/008/save_picture_767592.jpg" />
 </div>
 
 
@@ -268,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767444.jpg" />
+  <img src="Z:/picture/008/save_picture_767444.jpg" />
 </div>
 
 
@@ -294,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766882.jpg" />
+  <img src="Z:/picture/008/save_picture_766882.jpg" />
 </div>
 
 
@@ -320,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766249.jpg" />
+  <img src="Z:/picture/008/save_picture_766249.jpg" />
 </div>
 
 
@@ -349,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766248.jpg" />
+  <img src="Z:/picture/008/save_picture_766248.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766159.jpg" />
+  <img src="Z:/picture/008/save_picture_766159.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766147.jpg" />
+  <img src="Z:/picture/008/save_picture_766147.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766093.jpg" />
+  <img src="Z:/picture/008/save_picture_766093.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766069.jpg" />
+  <img src="Z:/picture/008/save_picture_766069.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766049.jpg" />
+  <img src="Z:/picture/008/save_picture_766049.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765856.jpg" />
+  <img src="Z:/picture/008/save_picture_765856.jpg" />
 </div>
 
 
@@ -533,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764401.jpg" />
+  <img src="Z:/picture/008/save_picture_764401.jpg" />
 </div>
 
 
@@ -559,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764263.jpg" />
+  <img src="Z:/picture/008/save_picture_764263.jpg" />
 </div>
 
 
@@ -587,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763669.jpg" />
+  <img src="Z:/picture/008/save_picture_763669.jpg" />
 </div>
 
 
@@ -613,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762889.jpg" />
+  <img src="Z:/picture/008/save_picture_762889.jpg" />
 </div>
 
 
@@ -641,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762887.jpg" />
+  <img src="Z:/picture/008/save_picture_762887.jpg" />
 </div>
 
 
@@ -654,34 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FDE1429F5B65EF4BA23EA90A077BBCAF1363E2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280265   (761863) от 02.02.2019
-
-Пол Аллам, Дэвид МакГиннесс | Все сладкое. Превосходные рецепты из легендарной кондитерской (2019) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761863.jpg" />
-</div>
-
-
-###  Подробнее
-
-От самых простейших кексов до изысканных пирожных, паев, маслянистых и рассыпчатых круассанов и датской выпечки: книга "Все сладкое" от легендарной австралийской пекарни Bourke Street Bakery представляет вам результаты многих лет проб, экспериментов, совершенствования и улучшения секретных рецептов.
-
-"Все сладкое" - сборник идеальных рецептов (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3614B541F3BD424DA6E728E34D096A3AC8FAA404
 ```
 
 https://mybot314.ru/tekegram_catalog/

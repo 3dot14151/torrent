@@ -1,3 +1,29 @@
+###  Публикация: 932644   (507819) от 30.08.2015
+
+Масада (Крепость отчаянных) / Masada (1981) DVDRip [H.264] (сезон 1, серии 1-4 из 4) Наследие
+
+>>Классика сериалов и многосерийное кино до 90-х
+>>Зарубежная классика сериалов и старое многосерийное кино до 90-х
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_507819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иудейская война 66–73 гг. н. э. Флавиус Сильва, полководец римской армии в Палестине, стремится к разумному компромиссу с радикальным движением евреев-зилотов и выводу своего легиона из Иудеи. Он командует знаменитым Десятым легионом X ''Фретензис'', любимым легионом Юлия Цезаря. Но политика и деятели Рима принуждают его начать осаду крепости Масада. Инженерному (   Читать дальше...   )Производство: США, UNIVERSAL an MCA companyЖанр: драма, боевик, историческийРежиссер: Борис СагалАктеры: Питер О`Тул, Питер Штраусс, Майкл Шилло, Кристофер Биггинс, Клайв Фрэнсис, Дэвид Уорнер, Дэвид Опатошу, Дэвид Мауро, Дэвид А. Блок, Джулия Пагано, Джозеф Уайзмен, Джо Сагал, Вернон Добчефф, Барбара Каррера, Алан Файнстайн, Alexander Peleg, Энтони Куэйл, Хайнц Бернард, Ричард Пирсон, Пол Л. СмитПеревод: Многоголосый закадровый, профессиональный - ст. "Наследие" по заказу ОРТПродолжительность: 02:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9B4C58705EACCBC4E7883E2005CA903C0D1BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933731   (504008) от 03.09.2015
 
 Четыре танкиста и собака / Czterej pancerni i pies (1966) DVDRip [H.264] (сезон 1, серии 1-8 из 8) [hand made colored]
@@ -6,7 +32,7 @@
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504008.jpg" />
+  <img src="Z:/picture/008/save_picture_504008.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503141.jpg" />
+  <img src="Z:/picture/008/save_picture_503141.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501958.jpg" />
+  <img src="Z:/picture/008/save_picture_501958.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492185.jpg" />
+  <img src="Z:/picture/008/save_picture_492185.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474502.jpg" />
+  <img src="Z:/picture/008/save_picture_474502.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471423.jpg" />
+  <img src="Z:/picture/008/save_picture_471423.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464359.jpg" />
+  <img src="Z:/picture/008/save_picture_464359.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454168.jpg" />
+  <img src="Z:/picture/008/save_picture_454168.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447781.jpg" />
+  <img src="Z:/picture/008/save_picture_447781.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441387.jpg" />
+  <img src="Z:/picture/008/save_picture_441387.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436713.jpg" />
+  <img src="Z:/picture/008/save_picture_436713.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409156.jpg" />
+  <img src="Z:/picture/008/save_picture_409156.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408584.jpg" />
+  <img src="Z:/picture/008/save_picture_408584.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394592.jpg" />
+  <img src="Z:/picture/008/save_picture_394592.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383146.jpg" />
+  <img src="Z:/picture/008/save_picture_383146.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375979.jpg" />
+  <img src="Z:/picture/008/save_picture_375979.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_361059.jpg" />
+  <img src="Z:/picture/008/save_picture_361059.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360317.jpg" />
+  <img src="Z:/picture/005/save_picture_360317.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_356286.jpg" />
+  <img src="Z:/picture/008/save_picture_356286.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352826.jpg" />
+  <img src="Z:/picture/008/save_picture_352826.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338578.jpg" />
+  <img src="Z:/picture/008/save_picture_338578.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_334140.jpg" />
+  <img src="Z:/picture/008/save_picture_334140.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330610.jpg" />
+  <img src="Z:/picture/008/save_picture_330610.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324334.jpg" />
+  <img src="Z:/picture/008/save_picture_324334.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная классика сериалов и старое многосерийное кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_300565.jpg" />
+  <img src="Z:/picture/005/save_picture_300565.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964021   (283380) от 10.12.2015
-
-Христофор Колумб / Christopher Columbus (1985) DVDRip [H.264] (серии 1-4 из 4)
-
->>Классика сериалов и многосерийное кино до 90-х
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283380.jpg" />
-</div>
-
-
-###  Подробнее
-
-К путешествию в далекую Индию Колумб готовился не один год. С особой тщательностью был продуман маршрут, и только в 1492 году, преодолев все возможные препятствия, и финансовые, и моральные - Христофор отправляется в путешествие. Но куда он направляется на самом деле? Где эта сказочная волшебная страна с россыпями золота и драгоценных камней, тысячей благовоний и (   Читать дальше...   )Производство: Италия, США, Франция, ФРГЖанр: драма, приключения, биография, историяРежиссер: Альберто ЛаттуадаАктеры: Гэбриэл Бирн, Россано Брацци, Вирна Лизи, Оливер Рид, Раф Валлоне, Макс фон Зюдов, Фэй Данэуэй, Эли Уоллак, Николь Уильямсон, Мишель Оклер и др.Перевод: Двуголосый закадровый, профессиональный (Видеофильм)Продолжительность: 01:33:44 + 01:11:25 + 01:24:49 + 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894BEA6DCD0FF82C5198E7401E33C9CCB4A0051D
 ```
 
 https://mybot314.ru/tekegram_catalog/

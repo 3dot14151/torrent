@@ -1,3 +1,110 @@
+###  Публикация: 1430472   (173977) от 10.12.2020
+
+Mic Drop 1.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_173977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mic Drop позволяет пользователям отключать и включать микрофон с помощью настраиваемого глобального сочетания клавиш. С Mic Drop вы всегда знаете, включен ваш микрофон или нет, что помогает избежать неловких ситуаций. Он идеально подходит для удаленных сотрудников, учителей, подкастеров, исследователей или всех, кто проводит много времени на видеовстречах. Работает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Octopus ThinkПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BC2B589C6532DDAAAD7F544E5C19A4A16A13FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668556   (173976) от 12.10.2023
+
+Topaz Photo AI for Mac 2.0.5 U2B [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Тип издания: macOS SoftwareРелиз состоялся: 11.10.2023Разработчик: © 2022 Topaz LabsПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4DCECC212E6637970040FF1AB27B9C503EA4D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430662   (173972) от 10.12.2020
+
+File List Export 2.5.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_173972.jpg" />
+</div>
+
+
+###  Подробнее
+
+File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.12.2020Разработчик: Giorgos TrigonakisПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6760A7F973491C0F28685142687DC7F8B19B12EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430540   (173969) от 10.12.2020
+
+Piezo 1.7.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_173969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piezo позволяет легко и быстро записать звук на вашем компьютере. В течение нескольких секунд и вы будете иметь запись звука из любого приложения.
+Кроме записи звука из приложений Piezo умеет записывать звук из встроенного микрофона, что может быть полезно для быстрой записи подкастов или создания аудио-заметок.
+
+Piezo не требует никаких настроек, достаточно его (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.12.2020Разработчик: Rogue Amoeba Software, LLCПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8D5FD1C7945628BCCC0DBAF41FAB9792130CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430437   (173950) от 10.12.2020
 
 Perfect Horizon Full 1.1 [En]
@@ -6,7 +113,7 @@ Perfect Horizon Full 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173950.jpg" />
+  <img src="Z:/picture/004/save_picture_173950.jpg" />
 </div>
 
 
@@ -33,7 +140,7 @@ USBclean 3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173947.jpg" />
+  <img src="Z:/picture/004/save_picture_173947.jpg" />
 </div>
 
 
@@ -59,7 +166,7 @@ DVD-Cloner 2020 v7.40.719[En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173943.jpg" />
+  <img src="Z:/picture/004/save_picture_173943.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Blocs 4.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173940.jpg" />
+  <img src="Z:/picture/004/save_picture_173940.jpg" />
 </div>
 
 
@@ -112,7 +219,7 @@ DxO PureRAW 3 for Mac v.3.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173931.jpg" />
 </div>
 
 
@@ -139,7 +246,7 @@ Storyist 4 v4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173923.jpg" />
+  <img src="Z:/picture/004/save_picture_173923.jpg" />
 </div>
 
 
@@ -165,7 +272,7 @@ Swift Publisher 5 v5.5.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173914.jpg" />
+  <img src="Z:/picture/004/save_picture_173914.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ AnyTrans for iOS 8.8.0.20201208 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173909.jpg" />
+  <img src="Z:/picture/004/save_picture_173909.jpg" />
 </div>
 
 
@@ -219,7 +326,7 @@ Get Backup Pro 3 v3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173906.jpg" />
+  <img src="Z:/picture/004/save_picture_173906.jpg" />
 </div>
 
 
@@ -245,7 +352,7 @@ Omni Recover 2.9.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173904.jpg" />
+  <img src="Z:/picture/004/save_picture_173904.jpg" />
 </div>
 
 
@@ -273,7 +380,7 @@ Audio Playr 2.3  [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173902.jpg" />
+  <img src="Z:/picture/004/save_picture_173902.jpg" />
 </div>
 
 
@@ -301,7 +408,7 @@ NAMO 1.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173884.jpg" />
+  <img src="Z:/picture/004/save_picture_173884.jpg" />
 </div>
 
 
@@ -327,7 +434,7 @@ Luminar Neo 1.14.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173860.jpg" />
 </div>
 
 
@@ -353,7 +460,7 @@ Ableton Live Suite 11 v.11.3.12 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173833.jpg" />
 </div>
 
 
@@ -379,7 +486,7 @@ Pixelmator Pro 3.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173698.jpg" />
 </div>
 
 
@@ -406,7 +513,7 @@ djay Pro AI 3.0.3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173668.jpg" />
+  <img src="Z:/picture/004/save_picture_173668.jpg" />
 </div>
 
 
@@ -432,7 +539,7 @@ Artlantis 2021 v9.5.2.24851 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173662.jpg" />
+  <img src="Z:/picture/004/save_picture_173662.jpg" />
 </div>
 
 
@@ -458,7 +565,7 @@ Audio Hijack 3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_173647.jpg" />
+  <img src="Z:/picture/004/save_picture_173647.jpg" />
 </div>
 
 
@@ -485,7 +592,7 @@ EtreCheck Pro 6.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173506.jpg" />
 </div>
 
 
@@ -512,7 +619,7 @@ Marked 2 - Markdown Preview 2.6.29 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173504.jpg" />
 </div>
 
 
@@ -539,7 +646,7 @@ Dropzone 4 Pro 4.7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173503.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ Permute 3 v.3.11.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173502.jpg" />
 </div>
 
 
@@ -577,113 +684,6 @@ Permute - очень простой видео конвертер с миним�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDD8EFD2632B3394EDA56270795DE3B323C51EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668778   (173498) от 13.10.2023
-
-DirEqual 5.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173498.jpg" />
-</div>
-
-
-###  Подробнее
-
-DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
-Чтобы скопировать или удалить файлы / папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.10.2023Разработчик: © 2023 by Naarak-StudioПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63A6D8B702C2596F5452784202ED85D74D25B7A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668578   (173496) от 13.10.2023
-
-Dropshare 5 v.5.39 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173496.jpg" />
-</div>
-
-
-###  Подробнее
-
-DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
-Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2023Разработчик: © 2022 DropshareПоддерживаемая ОС: OS X 12.3 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA8250AC1AB82B0991FB963D3D7D5F63ABEFA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668576   (173494) от 13.10.2023
-
-A Better Finder Rename 12.01 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173494.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
-Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.10.2023Разработчик: © 2023 Frank ReiffПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFE95997B9E8A75AF3438FD808C3ACF04628FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668625   (173493) от 13.10.2023
-
-Native SQLite Manager 1.26.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Native SQLite Manager — это удобный менеджер баз данных SQLite.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2023Разработчик: © 2023 Krystian KołodziejПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366A3614572161A4A9E33AA9FAE799A24386F639
 ```
 
 https://mybot314.ru/tekegram_catalog/

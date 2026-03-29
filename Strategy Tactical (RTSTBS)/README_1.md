@@ -6,7 +6,7 @@ Warlock: Master of the Arcane [Ru] (RePack/1.4.1.56) 2012 | Audioslave
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991554.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Men of War: Assault Squad Game of the Year Edition [Ru/En/Multi7] (L/2.05.15) 20
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_988790.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Automachef (2019) [Multi] (1.1.0.0.380) License PLAZA [Lunar Update]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984603.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (4.22) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984301.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Man of Prey / Мародер [En] (L) 2009 | PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978261.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ Warlock. Master Of The Arcane [Ru/En/Multi6] (L/1.4.1.56/5 DLC) 2012 | PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970173.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ March of the Eagles [En] (RePack) 2013 | FAIRLIGHT
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963672.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Sword Legacy Omen (2018) [Ru/Multi] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961718.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Highborn [En] (Repack) 2013 | FANISO
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961070.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Men of War: Red Tide / Чёрные бушлаты (2009) [En] (1.00.0) License 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951489.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951489.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Worms Ultimate Mayhem / Worms: Убойные разборки (2011) [Ru/Multi]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950034.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Warshift (2015) [Ru/Multi] (1.93) Repack Other s [Standard Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949919.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946434.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ XCOM: Enemy Unknown (2012) [Ru/En] (1.0.0.4963/1.0.0.9040) Repack R.G. Меха�
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942458.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Corruption 2029 (2020) [Ru/Multi] (1.02/Build 927) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941863.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Ru/Multi] (1.2.1f) Repack R.G. Ме
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_940813.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ Men Of War. Vietnam: Special Edition [Ru/En/Multi6] (L/1.00.2) 2010 | PROPHET
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934235.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ BATTLETECH (2018) [Ru/Multi] (1.9.1/dlc) Repack xatab [Digital Deluxe Edition]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929849.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Warlock: Master Of The Arcane + 4 DLC [Ru/En] (Repack/1.4.1.56) 2012 | R.G. Cata
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929527.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ Warhammer 40,000: Mechanicus (2018) [Ru/En] (1.3.7/dlc) Repack xatab [Omnissiah 
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928570.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Siegecraft Commander (2017) [En] (1.2.3962) License PLAZA
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_928405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_928405.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923851.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ UFO: Alien Invasion (2007) [Ru/Multi] (2.5) License
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923736.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Stars in Shadow (2017) [En] (010917) License CODEX
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923660.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ XCOM 2 (2016) [Ru/Multi] (1.0.0.33124/dlc) SteamRip Let'sРlay [Digital Deluxe]
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919850.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Fantasy General II (2019) [Ru/Multi] (01.01.09312/dlc) Repack Other s
 >>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918482.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918482.jpg" />
 </div>
 
 

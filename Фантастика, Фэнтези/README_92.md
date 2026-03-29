@@ -1,3 +1,58 @@
+###  Публикация: 1138958   (661972) от 31.05.2017
+
+Айра Левин | Такой чудесный день (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661972.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире будущего человечество упорядочено и сплочено в единую Семью, управляемую и обслуживаемую суперкомпьютером. Общество, защищенное от проблем: расы генетически усреднены – темные волосы, средний рост, чуть раскосые глаза, дождь идет в ночные часы, чтобы не мешать горожанам, а наркотик, обязательный для всех и каждого, гарантирует хорошее самочувствие.
+И неужели (   Читать дальше...   )Жанр: Социально-психологическая фантастика, Зарубежная фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37AD067576D2AA91FEA4499701AC8FF4B5916F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138963   (661849) от 31.05.2017
+
+Константин Муравьев | Крот (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_661849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Технарь».
+
+Ты был студентом, но по воле судьбы или рока стал обычным младшим техником, а потом и наемником. Однако для некоторых ты агент внешней разведки одного из государств Содружества, работающий под позывным «Технарь». Чтобы спасти своих друзей, пожертвовал собой – и должен был погибнуть! Но ты выжил. И оказался в самом сердце вражеской эскадры, (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4AC526EB60008108B3057F68E2E1B899D30E24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225230   (661741) от 14.05.2018
 
 Виктор Точинов | Демоны Рая (2018) [FB2]
@@ -6,7 +61,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661741.jpg" />
+  <img src="Z:/picture/008/save_picture_661741.jpg" />
 </div>
 
 
@@ -35,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661721.jpg" />
+  <img src="Z:/picture/008/save_picture_661721.jpg" />
 </div>
 
 
@@ -63,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661707.jpg" />
+  <img src="Z:/picture/008/save_picture_661707.jpg" />
 </div>
 
 
@@ -92,7 +147,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661127.jpg" />
+  <img src="Z:/picture/008/save_picture_661127.jpg" />
 </div>
 
 
@@ -118,7 +173,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661109.jpg" />
+  <img src="Z:/picture/008/save_picture_661109.jpg" />
 </div>
 
 
@@ -144,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661103.jpg" />
+  <img src="Z:/picture/008/save_picture_661103.jpg" />
 </div>
 
 
@@ -173,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661091.jpg" />
+  <img src="Z:/picture/008/save_picture_661091.jpg" />
 </div>
 
 
@@ -201,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661002.jpg" />
+  <img src="Z:/picture/008/save_picture_661002.jpg" />
 </div>
 
 
@@ -230,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661001.jpg" />
+  <img src="Z:/picture/008/save_picture_661001.jpg" />
 </div>
 
 
@@ -258,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660999.jpg" />
+  <img src="Z:/picture/008/save_picture_660999.jpg" />
 </div>
 
 
@@ -284,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660998.jpg" />
+  <img src="Z:/picture/008/save_picture_660998.jpg" />
 </div>
 
 
@@ -312,7 +367,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660993.jpg" />
+  <img src="Z:/picture/008/save_picture_660993.jpg" />
 </div>
 
 
@@ -340,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660990.jpg" />
+  <img src="Z:/picture/008/save_picture_660990.jpg" />
 </div>
 
 
@@ -368,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660918.jpg" />
+  <img src="Z:/picture/008/save_picture_660918.jpg" />
 </div>
 
 
@@ -396,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660911.jpg" />
+  <img src="Z:/picture/008/save_picture_660911.jpg" />
 </div>
 
 
@@ -423,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660910.jpg" />
+  <img src="Z:/picture/008/save_picture_660910.jpg" />
 </div>
 
 
@@ -451,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660654.jpg" />
+  <img src="Z:/picture/008/save_picture_660654.jpg" />
 </div>
 
 
@@ -477,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659819.jpg" />
+  <img src="Z:/picture/008/save_picture_659819.jpg" />
 </div>
 
 
@@ -506,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659735.jpg" />
+  <img src="Z:/picture/008/save_picture_659735.jpg" />
 </div>
 
 
@@ -532,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659662.jpg" />
+  <img src="Z:/picture/008/save_picture_659662.jpg" />
 </div>
 
 
@@ -558,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659569.jpg" />
+  <img src="Z:/picture/008/save_picture_659569.jpg" />
 </div>
 
 
@@ -587,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659535.jpg" />
+  <img src="Z:/picture/008/save_picture_659535.jpg" />
 </div>
 
 
@@ -613,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659281.jpg" />
+  <img src="Z:/picture/008/save_picture_659281.jpg" />
 </div>
 
 
@@ -639,7 +694,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659278.jpg" />
+  <img src="Z:/picture/008/save_picture_659278.jpg" />
 </div>
 
 
@@ -652,62 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAA21015443A1137AA82B9F7CAD2E5D144A40604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514253   (659269) от 23.06.2012
-
-Олег Верещагин | Красный вереск [2009] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если не во что верить - изменит самый верный.
-Если не на что надеяться - побежит самый стойкий.
-Если нечего любить - отчается самый храбрый.
-Верь. Надейся. Люби. И не опускай оружия, ты можешь только стоять. До конца. До смерти. До понимания жизни... Либо умереть - как лягут карты судьбы. Как человек. Или как тварь дрожащая. Тебе выбирать.
-В этом мире редко доживают до тридцати. Наши - там.2009Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AD6B8AEE126DDDF77B928D1E9D4187C0757AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139756   (659077) от 03.06.2017
-
-Александра Гардт | Восточный роман (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Русская студентка Нина Светлова познакомилась с красивым восточным парнем по имени Ким Джаён. Он приехал из Южной Кореи по программе студенческого обмена. На самом деле цель его пребывания в России совсем другая. Ким – воин, один из стражей, контролирующих выполнение древнего договора между кланами сверхъестественных существ Востока и Запада. Вот только любовь к (   Читать дальше...   )Жанр: Боевое фэнтези, Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C01866248F43710B751079531A7A021085EDB294
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1075058   (320799) от 22.11.2016
+
+Е. А. Ножин | Основы советского ораторского искусства (1973) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга дает систематическое представление о советском ораторском искусстве как прикладной и теоретической дисциплине. В основе ее — учет данных языкознания, философии, логики, психологии, а также анализ ораторской практики выдающихся ораторов.Жанр: История, философия, искусство, психология, филология, риторика, логикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A68D8B698A71A6011F478213DFF75AD7CB7DC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181936   (320614) от 08.11.2017
 
 П.Д. Волкова | Великие художники: большая книга мастеров и эпох (2017) [PDF, FB2]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320614.jpg" />
+  <img src="Z:/picture/008/save_picture_320614.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320592.jpg" />
+  <img src="Z:/picture/008/save_picture_320592.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320431.jpg" />
+  <img src="Z:/picture/008/save_picture_320431.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319485.jpg" />
+  <img src="Z:/picture/008/save_picture_319485.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319480.jpg" />
+  <img src="Z:/picture/008/save_picture_319480.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319339.jpg" />
+  <img src="Z:/picture/008/save_picture_319339.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319277.jpg" />
+  <img src="Z:/picture/008/save_picture_319277.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319195.jpg" />
+  <img src="Z:/picture/008/save_picture_319195.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319125.jpg" />
+  <img src="Z:/picture/008/save_picture_319125.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318815.jpg" />
+  <img src="Z:/picture/008/save_picture_318815.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318811.jpg" />
+  <img src="Z:/picture/008/save_picture_318811.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318202.jpg" />
+  <img src="Z:/picture/008/save_picture_318202.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317618.jpg" />
+  <img src="Z:/picture/008/save_picture_317618.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317558.jpg" />
+  <img src="Z:/picture/008/save_picture_317558.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317306.jpg" />
+  <img src="Z:/picture/008/save_picture_317306.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316914.jpg" />
+  <img src="Z:/picture/008/save_picture_316914.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316781.jpg" />
+  <img src="Z:/picture/008/save_picture_316781.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316774.jpg" />
+  <img src="Z:/picture/008/save_picture_316774.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316630.jpg" />
+  <img src="Z:/picture/008/save_picture_316630.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316615.jpg" />
+  <img src="Z:/picture/008/save_picture_316615.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316595.jpg" />
+  <img src="Z:/picture/008/save_picture_316595.jpg" />
 </div>
 
 
@@ -565,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316591.jpg" />
+  <img src="Z:/picture/008/save_picture_316591.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316584.jpg" />
+  <img src="Z:/picture/008/save_picture_316584.jpg" />
 </div>
 
 
@@ -621,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316388.jpg" />
+  <img src="Z:/picture/008/save_picture_316388.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316360.jpg" />
+  <img src="Z:/picture/008/save_picture_316360.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47E77A977F92BAC600E27170FF798EE5ED66A507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076058   (316128) от 24.11.2016
-
-Е. С. Варга | Избранные произведения [3 тома] (1974) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316128.jpg" />
-</div>
-
-
-###  Подробнее
-
-По решению Президиума Академии наук СССР Институт мировой экономики и международных отношений подготовил издание избранных трудов академика Евгения Самойловича Варги — народного комиссара Венгерского Советского правительства в 1919 г., видного деятеля международного коммунистического и рабочего движения, выдающегося ученого-марксиста, с именем которого связан большой (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:193E7233374FDE1D00C5DB5D962605CD99AD24FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

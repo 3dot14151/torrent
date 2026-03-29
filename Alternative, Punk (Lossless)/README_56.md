@@ -1,3 +1,30 @@
+###  Публикация: 1651523   (221087) от 07.08.2023
+
+††† (Crosses) - 2 Relises (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Synthpop, Industrial Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221087.jpg" />
+</div>
+
+
+###  Подробнее
+
+2023 - Invisible Hand (Single)
+2023 - Permanent.Radiant.RemixedЖанр: Darkwave, Synthpop, Industrial RockПродолжительность: 2 CD, 00:24:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95DBCC8E2E4DDC67E273DEC63733549CFD6E3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1651697   (221063) от 07.08.2023
 
 Meg Myers - Sorry (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Female Vocal>
@@ -6,7 +33,7 @@ Meg Myers - Sorry (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_221063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_221063.jpg" />
 </div>
 
 
@@ -35,7 +62,7 @@ Meg Myers - Take Me To The Disco (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternati
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220928.jpg" />
 </div>
 
 
@@ -64,7 +91,7 @@ Bloodhound Gang - Hard-Off (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Pu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220002.jpg" />
+  <img src="Z:/picture/005/save_picture_220002.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ Antivalent - Lifelong (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219645.jpg" />
+  <img src="Z:/picture/005/save_picture_219645.jpg" />
 </div>
 
 
@@ -122,7 +149,7 @@ Meg Myers - Thank U 4 Taking Me 2 The Disco (2020) EP [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219492.jpg" />
 </div>
 
 
@@ -151,7 +178,7 @@ Meg Myers - I'd Like 2 Go Home Now (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219430.jpg" />
 </div>
 
 
@@ -180,7 +207,7 @@ Nanaki - Dandelion Radio Session (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219132.jpg" />
+  <img src="Z:/picture/005/save_picture_219132.jpg" />
 </div>
 
 
@@ -209,7 +236,7 @@ Headcrash - Overdose on Tradition (1995) [FLAC|Lossless|tracks + .cue] <Industri
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219125.jpg" />
+  <img src="Z:/picture/005/save_picture_219125.jpg" />
 </div>
 
 
@@ -238,7 +265,7 @@ The Cure - Japanese Whispers (1983) Fiction 817 470-2 [FLAC|Lossless|image + .cu
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218744.jpg" />
+  <img src="Z:/picture/005/save_picture_218744.jpg" />
 </div>
 
 
@@ -267,7 +294,7 @@ Breath of Sindragosa - The Decaying Seeds of Hatred (2022) [FLAC|Lossless|WEB-DL
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218430.jpg" />
+  <img src="Z:/picture/005/save_picture_218430.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ Abandoned In Destiny - Rays of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218417.jpg" />
+  <img src="Z:/picture/005/save_picture_218417.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ Amarionette - Gemini (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Progre
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218392.jpg" />
+  <img src="Z:/picture/005/save_picture_218392.jpg" />
 </div>
 
 
@@ -354,7 +381,7 @@ Rabbit Junk - Apocalypse for Beginners (2022) [FLAC|Lossless|WEB-DL|tracks] <Ind
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218335.jpg" />
 </div>
 
 
@@ -383,7 +410,7 @@ Iggy Pop - Avenue B (1999) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218270.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218270.jpg" />
 </div>
 
 
@@ -412,7 +439,7 @@ Lost in Kiev - Rupture (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Post-Met
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218242.jpg" />
 </div>
 
 
@@ -441,7 +468,7 @@ To Kill Achilles - Recovery (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardco
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217171.jpg" />
 </div>
 
 
@@ -470,7 +497,7 @@ Caskets - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore / Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_217114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_217114.jpg" />
 </div>
 
 
@@ -499,7 +526,7 @@ Editors - EBM (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217064.jpg" />
+  <img src="Z:/picture/005/save_picture_217064.jpg" />
 </div>
 
 
@@ -528,7 +555,7 @@ Jungle - Volcano (2023) [FLAC|Lossless|WEB-DL|tracks] <alternative, electronic, 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216261.jpg" />
 </div>
 
 
@@ -557,7 +584,7 @@ NateWantsToBattle - NateWantsToBattle (2022) [FLAC|Lossless|WEB-DL|tracks] <Post
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216046.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ Noel Gallagher (ex.Oasis) - 5 альбомов (2011-2021) 8CD [FLAC|Lossless|tr
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213156.jpg" />
+  <img src="Z:/picture/005/save_picture_213156.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ Jelly Roll - Whitsitt Chapel (2023) [FLAC|Lossless|WEB-DL|tracks] <Country Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_212099.jpg" />
+  <img src="Z:/picture/004/save_picture_212099.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ Poisonous Reflection - Time Is Not on Our Side (2023) [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211659.jpg" />
 </div>
 
 
@@ -673,7 +700,7 @@ Iggy Pop - Every Loser (2023) Scene [FLAC|Lossless|tracks] <Alternative Rock>
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210819.jpg" />
+  <img src="Z:/picture/005/save_picture_210819.jpg" />
 </div>
 
 
@@ -702,7 +729,7 @@ Element Eighty - A.D. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210373.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210373.jpg" />
 </div>
 
 
@@ -716,35 +743,6 @@ Element Eighty - A.D. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E2AEA041896A34494F70C4445183D6FFA8E961C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646056   (208975) от 13.07.2023
-
-Nothing But Thieves - Dead Club City (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Brit-Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the DCC [00:03:17]
-02. Overcome [00:03:34]
-03. Tomorrow Is Closed [00:03:58]
-04. Keeping You Around [00:03:35](   Читать дальше...   )Жанр: Alternative Rock, Brit-PopПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603E0223D30B65C8080CCB024B60F34C3E7218C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

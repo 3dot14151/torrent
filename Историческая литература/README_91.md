@@ -1,3 +1,134 @@
+###  Публикация: 1271506   (148676) от 24.12.2018
+
+И. П. Магидович (ред.) | "Книга" Марко Поло (1956) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148676.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Книга" Марко Поло принадлежит к числу редких средневековых сочинений, которые читаются и перечитываются в настоящее время. Она переведена почти на все европейские и многие другие языки. Чем больше времени проходит с года составления первой записи "Книги" (1298), тем больший интерес она возбуждает не только у специалистов - географов, историков, (   Читать дальше...   )Жанр: История, география, демография, этнография, культурология, искусствоФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CDB202AC42C8B8119FC30571CC6AA43EAB36D9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347692   (147845) от 24.12.2019
+
+А.О. Чубарьян (гл. ред.) | Всемирная история. В 6-ти томах [6 томов] (2011-2017) [PDF, DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое шеститомное издание "Всемирная история" подводит итоги работы историков за последние десятилетия. В настоящем томе освещена история возникновения человека и общества, становления первых цивилизаций. Предлагается комплексное рассмотрение цивилизаций Древнего Востока, античного мира и периферии, их типологической общности и специфики с особым вниманием (   Читать дальше...   )Жанр: ИсторияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5853BAE135DA27CF3D98FCF4DE078583E4E934BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434905   (147658) от 26.12.2020
+
+Глеб Носовский, Анатолий Фоменко | Новая Хронология. Реконструкция истории [3 книги] (2017-2019) [EPUB]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящие издания являются новыми и не основаны на прежних изданиях «Руси и Рима». Они выходят в свет по просьбе читателей, которые хотят видеть простое и в то же время достаточно полное изложение всеобщей истории с точки зрения Новой Хронологии. Авторы решили пойти навстречу этим пожеланиям. Все доказательства, ссылки и научные подробности в настоящих изданиях опущены, (   Читать дальше...   )Жанр: История Древнего мира, Популярно об историиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE831CCBF50CE3E8DA655D70FBA2E743AB1B64DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969627   (147593) от 27.12.2015
+
+Сергей Куняев | Николай Клюев (2014) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Николай Клюев — одна из сложнейших и таинственнейших фигур русской и мировой поэзии, подлинное величие которого по-настоящему осознаётся лишь в наши дни.
+Религиозная и мифологическая основа его поэтического мира, непростые узлы его ещё во многом не прояснённой биографии, сложные и драматичные отношения с современниками — Блоком, Есениным, Ивановым-Разумником, Брюсовым, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE5944F8AD502DAAC51CDD59C572410F251001A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969563   (147563) от 27.12.2015
+
+Уильям Мак-Нил | Восхождение Запада. История человеческого сообщества (2013) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147563.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Восхождение Запада" - один из наиболее значимых трудов современного классика американской исторической науки Уильяма Мак-Нила. В книге всемирная история рассмотрена как единое целое и предпринята попытка интерпретировать ее на основе концепции взаимопроникновения культур. Мак-Нил провел исследование развития социальных и культурных традиций, но особое (   Читать дальше...   )Жанр: История, археология, этнографияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D58661FFCD2F7AC357B8EC9D07AE7115295A84D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969254   (147523) от 27.12.2015
 
 Константин Романенко | Борьба и победы Иосифа Сталина. Тайны «Завещания Ленина» (2007) [DJVU]
@@ -6,7 +137,7 @@
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147523.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147121.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146944.jpg" />
 </div>
 
 
@@ -86,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146633.jpg" />
 </div>
 
 
@@ -112,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145904.jpg" />
 </div>
 
 
@@ -140,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145718.jpg" />
 </div>
 
 
@@ -166,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145545.jpg" />
 </div>
 
 
@@ -194,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145064.jpg" />
 </div>
 
 
@@ -220,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144934.jpg" />
 </div>
 
 
@@ -246,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144543.jpg" />
 </div>
 
 
@@ -272,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142916.jpg" />
 </div>
 
 
@@ -299,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142780.jpg" />
 </div>
 
 
@@ -325,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142634.jpg" />
 </div>
 
 
@@ -351,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142463.jpg" />
 </div>
 
 
@@ -377,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141614.jpg" />
 </div>
 
 
@@ -403,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141533.jpg" />
 </div>
 
 
@@ -429,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141408.jpg" />
 </div>
 
 
@@ -455,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141257.jpg" />
 </div>
 
 
@@ -482,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139704.jpg" />
 </div>
 
 
@@ -508,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139650.jpg" />
 </div>
 
 
@@ -535,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139620.jpg" />
 </div>
 
 
@@ -546,139 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F00AE42C731BC3C1F8202BFC7CEBF8EB93170419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970800   (139590) от 31.12.2015
-
-В. Н. Брюшинкин, В. С. Попова (ред.) | Неокантианство в России: Александр Иванович Введенский, Иван Иванович Лапшин (2013) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга посвящена двум университетским философам Санкт-Петербурга, основателю критической традиции в русской философии — А. И. Введенскому (1856—1925) и его последователю — И. И. Лапшину (1870—1952). Критицизм, внутренняя последовательность, логичность на фоне обращенности к проблемам образования — именно эти специфические черты неокантианства (как они представлены (   Читать дальше...   )Жанр: Биографии и Мемуары, ФилософияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF56C0B1C39EE29857CDB225D5A2D926429A6FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970819   (139566) от 31.12.2015
-
-О. А. Жукова, В. К. Кантор (ред.) | Петр Бернгардович Струве (2012) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том посвящен выдающемуся представителю русской интеллектуальной культуры конца XIX — первой половины XX в., социальному мыслителю, экономисту, политику Петру Бернгардовичу Струве (1870-1944). Биография П. Б. Струве - одна ид самых ярких и неординарных. Интеллектуальное наследие философа и публициста служит ключом к пониманию российской политической истории, вы -являя (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39BB749CE42594CE4730B291CD0BB63D6BF703D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970669   (139356) от 31.12.2015
-
-А. Н. Николюкин (ред.) | Василий Васильевич Розанов (2012) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139356.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге представлены статьи современных российских философов, писателей, литературоведов о творчестве и миросозерцании русского философа и писателя Василия Васильевича Розанова (1856—1919).
-Труды розановедов собраны за последние 25 лет. После смерти Розанова его наследие у нас не издавалось и находилось под запретом как «реакционное».
-Книга адресована широкому кругу (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B72D0EB2DB54478804B35DB5071F36E5546270F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970702   (139289) от 31.12.2015
-
-Федор Кудрявцев | Повесть о моей жизни (2014) [FB2]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Начало XX века. Федя Кудрявцев, крестьянский мальчик из Ярославской губернии, отправлен в Питер «в люди». Там он в полной мере испытывает участь чеховского Ваньки Жукова. Но затем судьба его меняется. Его берут буфетным мальчиком в Европейскую гостиницу. Весной 1914 года он вместе с другом старшего брата, австрийцем Францем Лерлом, тоже служащим гостиницы, оказывается (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC53AB77252970D137DD5AC2212E66AB4E16826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970657   (139279) от 31.12.2015
-
-А. Н. Паршин, О. М. Седых (ред.) | Павел Александрович Флоренский (2013) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139279.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборнике представлены статьи исследователей творчества философа Серебряного века священника Павла Александровича Флоренского (1882—1937). Подборка ориентирована на освещение вклада Флоренского в философскую и научную мысль XX века. Особое внимание уделено возможностям применения его идей в современном научно-философском познании.
-Книга адресована специалистам по (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A026BD3EECB443919C60859972C04D5BD07F5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

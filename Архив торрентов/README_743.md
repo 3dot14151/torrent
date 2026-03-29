@@ -6,7 +6,7 @@ Alfred 4 Powerpack 4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884464.jpg" />
+  <img src="Z:/picture/005/save_picture_884464.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Microsoft Edge 93.0.961.44 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884452.jpg" />
+  <img src="Z:/picture/005/save_picture_884452.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Sonible - smart:comp 1.1.1 VST, VST3, AAX (x64) RePack by RET [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884437.jpg" />
+  <img src="Z:/picture/005/save_picture_884437.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Calibre 5.27.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884434.jpg" />
+  <img src="Z:/picture/005/save_picture_884434.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ PicPick 5.1.8 Pro + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884432.jpg" />
+  <img src="Z:/picture/005/save_picture_884432.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ AnyMP4 PDF Converter for Mac 3.1.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884408.jpg" />
+  <img src="Z:/picture/005/save_picture_884408.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884404.jpg" />
+  <img src="Z:/picture/005/save_picture_884404.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884400.jpg" />
+  <img src="Z:/picture/005/save_picture_884400.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884398.jpg" />
+  <img src="Z:/picture/005/save_picture_884398.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884394.jpg" />
+  <img src="Z:/picture/005/save_picture_884394.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VSO ConvertXtoHD 2.0.0.27 RePack by FoXtrot [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884388.jpg" />
+  <img src="Z:/picture/005/save_picture_884388.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884382.jpg" />
+  <img src="Z:/picture/005/save_picture_884382.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884380.jpg" />
+  <img src="Z:/picture/005/save_picture_884380.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884375.jpg" />
+  <img src="Z:/picture/005/save_picture_884375.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ PC Cleaner Pro 8.1.0.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884374.jpg" />
+  <img src="Z:/picture/005/save_picture_884374.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884362.jpg" />
+  <img src="Z:/picture/005/save_picture_884362.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884357.jpg" />
+  <img src="Z:/picture/005/save_picture_884357.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884354.jpg" />
+  <img src="Z:/picture/005/save_picture_884354.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ NewFileTime 5.55 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884346.jpg" />
+  <img src="Z:/picture/005/save_picture_884346.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ DesktopOK 9.21 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884336.jpg" />
+  <img src="Z:/picture/005/save_picture_884336.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884322.jpg" />
+  <img src="Z:/picture/005/save_picture_884322.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Various Artists - The Metallica Blacklist (2021) Compilation / 4 CD [FLAC|Lossle
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884319.jpg" />
+  <img src="Z:/picture/005/save_picture_884319.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ PhotoInstrument 7.4 Build 832 Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884317.jpg" />
+  <img src="Z:/picture/005/save_picture_884317.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Google Chrome 49.0.2623.87 Stable Portable by PortableApps (Веб-устано�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884285.jpg" />
+  <img src="Z:/picture/005/save_picture_884285.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884270.jpg" />
+  <img src="Z:/picture/005/save_picture_884270.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884269.jpg" />
+  <img src="Z:/picture/005/save_picture_884269.jpg" />
 </div>
 
 

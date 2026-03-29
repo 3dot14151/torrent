@@ -1,3 +1,119 @@
+###  Публикация: 1312650   (530965) от 05.07.2019
+
+The Count Basie Orchestra - Long Live The Chief (1986) Denon [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Got It [5:41]
+02. April in Paris [3:43]
+03. Misunderstood Blues [7:16]
+04. Autumn Leaves [5:32](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Big BandПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ADD78F5FA716FA87E38761B6EEB04DA63D9E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312648   (530963) от 05.07.2019
+
+Chris Amemiya & Jazz Coalescence - In The Rain Shadow (2013) OA2 Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories of You [10:07]
+02. Geezers on Parade [9:41]
+03. The H.O.E. [11:27]
+04. Firefly [7:12](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EF9E5D28D531E233BB60546F91F42635FA984CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051899   (530680) от 12.09.2016
+
+Tommy Emmanuel & Frank Vignola - Just Between Frets : Groovemasters Vol. 11 (2009) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenderly     (03:56)
+02. Clouds     (05:00)
+03. How High The Moon     (04:25)
+04. I've Got a Crush On You     (01:00)(   Читать дальше...   )Жанр: Smooth Jazz, InstrumentalПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EA07B8D5B8C81594E1316610E87F6D4A61F086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051918   (530678) от 12.09.2016
+
+Tommy Emmanuel, Martin Taylor - The Colonel & The Governor (2013) [FLAC|Lossless|tracks + .cue] <Crossover, Guitar Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_530678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Won't Last A Day Without You     (05:11)
+02. Jersey Bounce     (03:54)
+03. Bernie's Tune     (03:28)
+04. A Smooth One     (05:30)(   Читать дальше...   )Жанр: Crossover, Guitar Jazz, InstrumentalПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6EB6AE221E07C7BB40DB4431040CD3EE6DF26A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927109   (529995) от 12.08.2015
 
 Art Blakey & The Jazz Messengers - Free For All (1964) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Hard Bop>
@@ -6,7 +122,7 @@ Art Blakey & The Jazz Messengers - Free For All (1964) /2014, Universal/[FLAC|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529995.jpg" />
+  <img src="Z:/picture/008/save_picture_529995.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Fattburger - Good News (1987) /Intima Records/[FLAC|tracks+.cue]<Jazz, Smooth, J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529945.jpg" />
+  <img src="Z:/picture/008/save_picture_529945.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Woody Herman - The 3 Herds (1945 - 1954) 2017, Sony Music [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529895.jpg" />
+  <img src="Z:/picture/008/save_picture_529895.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Lucky Millinder - 1941 - 1942 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529864.jpg" />
+  <img src="Z:/picture/008/save_picture_529864.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ John Coltrane - Blue Train (1957) 2CD, 2010, Not Now Music[FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529261.jpg" />
+  <img src="Z:/picture/008/save_picture_529261.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ David Kikoski - Phoenix Rising (2019) HighNote [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529226.jpg" />
+  <img src="Z:/picture/008/save_picture_529226.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Dave Stryker - Eight Track II (2016) Strikezone Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529225.jpg" />
+  <img src="Z:/picture/008/save_picture_529225.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Dwight Trible - Inspirations (2017) Gondwana Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529224.jpg" />
+  <img src="Z:/picture/008/save_picture_529224.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Buddy DeFranco (De Franco) And Oscar Peterson - Play George Gershwin (1954) 1998
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528933.jpg" />
+  <img src="Z:/picture/008/save_picture_528933.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Buddy Rich - Buddy Rich Band (1981) MCA Records [FLAC|Lossless|tracks + .cue] <M
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528864.jpg" />
+  <img src="Z:/picture/008/save_picture_528864.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Herbie Hancock - This Is Jazz (1998) Columbia [FLAC|Lossless|tracks + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528860.jpg" />
+  <img src="Z:/picture/008/save_picture_528860.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Lee Morgan - The Complete Live At The Lighthouse (1970) 8CD, 2021, Blue Note [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528851.jpg" />
+  <img src="Z:/picture/008/save_picture_528851.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Fattburger - Living In Paradise (1988) /Intima Records/[FLAC|tracks+.cue]<Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528767.jpg" />
+  <img src="Z:/picture/008/save_picture_528767.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Carter Jefferson - The Rise Of Atlantis (1978) /2015, Solid Records/[FLAC|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528766.jpg" />
+  <img src="Z:/picture/008/save_picture_528766.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Barney Wilen - More From Barney At The Club Saint-Germain (1959) /2014, Sony Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528765.jpg" />
+  <img src="Z:/picture/008/save_picture_528765.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ John Coltrane - Living Space (1965) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Av
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528760.jpg" />
+  <img src="Z:/picture/008/save_picture_528760.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ BBC Band - Big Band Classics (2015) [FLAC|tracks|WEB-DL]<Swing, Jazz, Big Band>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528685.jpg" />
+  <img src="Z:/picture/008/save_picture_528685.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ V.A. - The Complete 'Blue Cover' Series (2017) [FLAC|Lossless|WEB-DL|tracks] <El
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528410.jpg" />
+  <img src="Z:/picture/008/save_picture_528410.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Marty Ehrlich's Traveler's Tales - Malinke's Dance (2000) [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528290.jpg" />
+  <img src="Z:/picture/008/save_picture_528290.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ The Don Pullen & George Adams Quartet - Breakthrough (1986) Blue Note[APE|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528199.jpg" />
+  <img src="Z:/picture/008/save_picture_528199.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Raphael Imbert & Co - Music Is My Home (2016) [FLAC|Lossless|tracks + .cue] <Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528198.jpg" />
+  <img src="Z:/picture/008/save_picture_528198.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Coleman Hawkins / Frank Wess - Giants Of The Tenor Sax (1940, 1943, 1954) 1988, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528195.jpg" />
+  <img src="Z:/picture/008/save_picture_528195.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Coleman Hawkins / Frank Wess - Giants Of The Tenor Sax (1940, 1943, 1954) 1988, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1710A812E6BC880FD5789D263A1973D8AE5BBFF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313076   (528178) от 07.07.2019
-
-Mats Gustafsson / Barry Guy / Paul Lovens - Mouth Eating Trees And Related Activities (1996) [FLAC|Lossless|tracks + .cue] <Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part I (4:25)
- 02. Part II (12:31)
- 03. Part III (6:46)
- 04. Part IV (27:14)(   Читать дальше...   )Жанр: Free ImprovisationПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DB3017E159E98CE0BA13CC3E7DB107F76860F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156398   (527786) от 07.08.2017
-
-Tom Harrell - Prana Dance (2009) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Marching [05:55]
-02.Prana [07:30]
-03.Sequenza [08:26]
-04.Maharajah [05:19](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250342207D61490B2F89B036D311DC2857E81175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052826   (527380) от 15.09.2016
-
-Maaike Nicola - A Portrait Of Maaike (1989) IPS[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Easy Living [05:19]
- 02.Corcovado [03:29]
- 03.Day By Day [03:31]
- 04.Close Enough For Love [03:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE50E96B8EE4A9F5A2305C500384D4AD17576A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052808   (527375) от 15.09.2016
-
-Najee - You, Me and Forever (2015) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air (6:08)
-02. Fly With The Wind (3:50)
-03. Wave (5:23)
-04. Biggest Part Of Me (5:46)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BFF498935720706A23A47C5DC0D941F8AF08DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

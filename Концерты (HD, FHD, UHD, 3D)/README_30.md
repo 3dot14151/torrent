@@ -1,3 +1,82 @@
+###  Публикация: 1331035   (334852) от 13.10.2019
+
+Квартирник НТВ у Маргулиса. Группа A’Studio (12.10.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334852.jpg" />
+</div>
+
+
+###  Подробнее
+
+В гостях у Евгения Маргулиса — поп-группа A’Studio. Музыканты вспомнили, как играли на разогреве у самого Элтона Джона, рассказали истории из непрекращающейся гастрольной жизни, исполнили со зрителями свои песни, а также не забыли про свой главный хит — композицию «Улетаю».
+Участники A’Studio рассказали, с чего начался их творческий путь, какими были их самые необычные (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531D8DCF40F8562EF45D182A59F2A3B9E215C7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258050   (334346) от 31.10.2018
+
+Квартирник на НТВ у Маргулиса. Денис Мажуков (10.27.2018) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_334346.jpg" />
+</div>
+
+
+###  Подробнее
+
+На легендарном «Квартирнике» побывал Денис Мажуков, который подарил зрителям незабываемый концерт с зажигательными ритмами. Музыкант рассказал, как началось его увлечение рок-н-роллом и когда состоялся его дебют на телевидении. Евгений Маргулис узнал у звездного гостя, как ему удалось сделать выбор в жизни между спортом и музыкой. Денис вспомнил, что травма ноги (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:56:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3A9D77B76412A22F8FFFC36DE93B6B1A5D91F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955568   (333786) от 11.11.2015
+
+Bon Jovi - In Concert BBC Radio 2 (2013) HDTVRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_333786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живое выступление на канале BBC Radio 2 в январе 2013Жанр: МузыкальныйАктеры: Bon JoviПеревод: ОтсутствуетПродолжительность: 00:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770E39A1483A71B4593D44710B249A30DF01DB7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420533   (332477) от 01.11.2020
 
 Квартирник НТВ у Маргулиса. Группа Tesla Boy (31.10.2020) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +85,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332477.jpg" />
+  <img src="Z:/picture/008/save_picture_332477.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ Avril Lavigne - Live at The Roxy Theatre (2007) HDTVRip [H.264/720p-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_331450.jpg" />
+  <img src="Z:/picture/005/save_picture_331450.jpg" />
 </div>
 
 
@@ -63,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330900.jpg" />
+  <img src="Z:/picture/008/save_picture_330900.jpg" />
 </div>
 
 
@@ -92,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330815.jpg" />
+  <img src="Z:/picture/008/save_picture_330815.jpg" />
 </div>
 
 
@@ -120,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330805.jpg" />
+  <img src="Z:/picture/008/save_picture_330805.jpg" />
 </div>
 
 
@@ -149,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330798.jpg" />
+  <img src="Z:/picture/008/save_picture_330798.jpg" />
 </div>
 
 
@@ -177,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330717.jpg" />
+  <img src="Z:/picture/008/save_picture_330717.jpg" />
 </div>
 
 
@@ -205,7 +284,7 @@ Queen - Rock Montreal & Live Aid (2007) BDRemux [1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330258.jpg" />
+  <img src="Z:/picture/008/save_picture_330258.jpg" />
 </div>
 
 
@@ -231,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329843.jpg" />
+  <img src="Z:/picture/008/save_picture_329843.jpg" />
 </div>
 
 
@@ -259,7 +338,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329769.jpg" />
+  <img src="Z:/picture/008/save_picture_329769.jpg" />
 </div>
 
 
@@ -287,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329761.jpg" />
+  <img src="Z:/picture/008/save_picture_329761.jpg" />
 </div>
 
 
@@ -316,7 +395,7 @@ Europakonzert 2004 from Athens BDRip [H.264/1080i-LQ] <сlassical>
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328404.jpg" />
+  <img src="Z:/picture/008/save_picture_328404.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327495.jpg" />
+  <img src="Z:/picture/008/save_picture_327495.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325641.jpg" />
+  <img src="Z:/picture/008/save_picture_325641.jpg" />
 </div>
 
 
@@ -402,7 +481,7 @@ Bon Jovi - Live At Nokia Theatre (2005) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324870.jpg" />
+  <img src="Z:/picture/008/save_picture_324870.jpg" />
 </div>
 
 
@@ -431,7 +510,7 @@ Bon Jovi - Rock in Rio V (2013) HDTVRip [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324836.jpg" />
+  <img src="Z:/picture/008/save_picture_324836.jpg" />
 </div>
 
 
@@ -460,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323359.jpg" />
+  <img src="Z:/picture/008/save_picture_323359.jpg" />
 </div>
 
 
@@ -487,7 +566,7 @@ Roger Waters - The Wall (2015) [H.264] BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323246.jpg" />
+  <img src="Z:/picture/008/save_picture_323246.jpg" />
 </div>
 
 
@@ -516,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322978.jpg" />
+  <img src="Z:/picture/008/save_picture_322978.jpg" />
 </div>
 
 
@@ -542,7 +621,7 @@ Pain - We Come In Peace (2012) Blu-Ray [1080]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_322174.jpg" />
+  <img src="Z:/picture/005/save_picture_322174.jpg" />
 </div>
 
 
@@ -568,7 +647,7 @@ Katy Perry - Live At Glastonbury (2017) HDTVRip [H.265/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322100.jpg" />
+  <img src="Z:/picture/008/save_picture_322100.jpg" />
 </div>
 
 
@@ -597,7 +676,7 @@ Black Sabbath - Live... Gathered In Their Masses (2013) BDRip [720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321941.jpg" />
+  <img src="Z:/picture/008/save_picture_321941.jpg" />
 </div>
 
 
@@ -626,7 +705,7 @@ Roger Waters - The Wall (2014) BDRip [H.265/1080p-LQ] [PR]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321104.jpg" />
+  <img src="Z:/picture/008/save_picture_321104.jpg" />
 </div>
 
 
@@ -640,91 +719,6 @@ Roger Waters - The Wall (2014) BDRip [H.265/1080p-LQ] [PR]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C23CDBEF96BA4AEE478BC7F73AFE54F97AEC8917
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 415421   (318906) от 30.11.2011
-
-Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт известной американской альтернативной рок-группы на Красной площади в Москве.01. Intro
- 02. New Divide
- 03. Papercut
- 04. Given Up(   Читать дальше...   )Жанр: КонцертПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49643EA6747707F7A553951025B5DA18A1F3A3FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259571   (318764) от 04.11.2018
-
-Квартирник на НТВ у Маргулиса. Валерий Сюткин (11.03.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318764.jpg" />
-</div>
-
-
-###  Подробнее
-
-На «Квартирнике НТВ у Маргулиса» выступил легендарный музыкант Валерий Сюткин. Специально для зрителей НТВ музыкант исполнил свои лучшие композиции.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5652E3AFD6B73D7EB724413AEC97EB8FFEC7A6A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421661   (317487) от 05.11.2020
-
-Юлианна Караулова - "Карантинник" (2020) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317487.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Карантинники» — это онлайн-квартирники российских артистов в условиях самоизоляции. Музыканты исполняют свои произведения у себя дома или в репетиционной студии.
-Юлианна исполнила несколько песен и ответила на присланные ей вопросы.01 Дикая пума
-02 Маячки
-03 Просто так
-04 Внеорбитные(   Читать дальше...   )Производство: Россия | МТСЖанр: КонцертПродолжительность: 00:40:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFAA69355F4F225317D6E3D06B872C089258A886
 ```
 
 https://mybot314.ru/tekegram_catalog/

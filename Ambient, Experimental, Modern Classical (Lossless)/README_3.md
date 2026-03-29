@@ -1,3 +1,32 @@
+###  Публикация: 1356508   (974329) от 03.02.2020
+
+Tangerine Dream - Recurring Dreams (2020) Studio/Compilation, 2019 [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sequent 'C' 2019 (02:27)
+02. Monolight (Yellow Part) 2019 (07:40)
+03. Tangram Set 1 2019 (Excerpt) (05:44)
+04. Horizon 2019 (Pt. 1) (06:46)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1349BB2A7B20B88A718611F9B49DC551ACAA2AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040547   (968566) от 08.02.2020
 
 VA - Ambient Diary (One, Two, Three) (1997-2000) Elektrolux [FLAC|Lossless|tracks+.cue] <Ambient, IDM, Downtempo, Techno Ambient>
@@ -6,7 +35,7 @@ VA - Ambient Diary (One, Two, Three) (1997-2000) Elektrolux [FLAC|Lossless|track
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968566.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Marc Romboy - Voyage De La Planète (New Interpretations) (2020) Hyperharmonic [
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955910.jpg" />
 </div>
 
 
@@ -62,7 +91,7 @@ Biosphere - Substrata (1997) [FLAC|Lossless|tracks+.cue]<Ambient, Abstract>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951209.jpg" />
 </div>
 
 
@@ -88,7 +117,7 @@ Paul Haslinger - Exit Ghost (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Electronic, C
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948231.jpg" />
 </div>
 
 
@@ -117,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941545.jpg" />
 </div>
 
 
@@ -146,7 +175,7 @@ BT - _ (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, IDM>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_941210.jpg" />
 </div>
 
 
@@ -175,7 +204,7 @@ Lisa Gerrard - The Black Opal (2009) [FLAC|Lossless]<Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933922.jpg" />
 </div>
 
 
@@ -201,7 +230,7 @@ Toro Y Moi - Smartbeats (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimen
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933815.jpg" />
 </div>
 
 
@@ -230,7 +259,7 @@ Five Thousand Spirits - Towards Edentea (2011) Sempiterna Mutatio [FLAC|Lossless
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933807.jpg" />
 </div>
 
 
@@ -259,7 +288,7 @@ Pantha du Prince - Conference of Trees (2020) Modern Recordings [FLAC|Lossless|W
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933709.jpg" />
 </div>
 
 
@@ -288,7 +317,7 @@ The Last One - Discography 3 Releases (2019) iM Electronica, opn g8s [FLAC|Lossl
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929149.jpg" />
 </div>
 
 
@@ -317,7 +346,7 @@ Halftribe - Backwater Revisited (2019) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924165.jpg" />
 </div>
 
 
@@ -346,7 +375,7 @@ Seiji Takahashi - снег (2020) str012 [FLAC|Lossless|tracks+.cue] <Ambient, M
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_924124.jpg" />
 </div>
 
 
@@ -375,7 +404,7 @@ Eric "The" Taylor - The Guidance Of Ancestry (2019) Touched Music [FLAC 2.0|44.1
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923962.jpg" />
 </div>
 
 
@@ -404,7 +433,7 @@ Transponder - Terminae Space (2021) Exosphere [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923846.jpg" />
 </div>
 
 
@@ -433,7 +462,7 @@ Martin Sturtzer - The Stellar Winds (2021) Echo Elberfeld [FLAC 2.0|44.1/24|trac
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923838.jpg" />
 </div>
 
 
@@ -462,7 +491,7 @@ Hollan Holmes - Discography 7 Releases (2010-2020) [FLAC|Lossless|WEB-DL|tracks]
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923694.jpg" />
 </div>
 
 
@@ -491,7 +520,7 @@ Aukai - Discography 10 Releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921896.jpg" />
 </div>
 
 
@@ -520,7 +549,7 @@ Jon Hopkins - Discography 41 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tr
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921558.jpg" />
 </div>
 
 
@@ -549,7 +578,7 @@ Muhr - Depersonalization (2013) [FLAC|Lossless|WEB-DL|24Bit]<Ambient, Modern Cla
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916191.jpg" />
 </div>
 
 
@@ -578,7 +607,7 @@ David Arkenstone & Seth Osburn - Italian Nights (2017) [FLAC|Lossless|WEB-DL|tra
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_915737.jpg" />
 </div>
 
 
@@ -607,7 +636,7 @@ Roger Eno and Brian Eno - Mixing Colours (2020) Deutsche Grammophon [FLAC|Lossle
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910854.jpg" />
 </div>
 
 
@@ -636,7 +665,7 @@ VA - Faith In A Wet Season (2012) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910039.jpg" />
 </div>
 
 
@@ -665,7 +694,7 @@ Sinepearl - Cycles Within Cycles Within (2014) [FLAC|Lossless|WEB-DL]<Ambient>
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909124.jpg" />
 </div>
 
 
@@ -694,7 +723,7 @@ Xu & Darren Harper - Arising & Ceasing Of Things (2021) Rottenman Editions [FLAC
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908724.jpg" />
 </div>
 
 
@@ -708,35 +737,6 @@ Xu & Darren Harper - Arising & Ceasing Of Things (2021) Rottenman Editions [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC22D1293DFDE49FCAF20C40D811285F5E8EBCEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991505   (905912) от 28.02.2016
-
-Moby - Hotel : Ambient (2014) Reissue [FLAC|Lossless|tracks + .cue] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. May 04 Two (08:11)
- 02. The Come Down (05:18)
- 03. Overlands (06:49)
- 04. Live Forever (07:16)(   Читать дальше...   )Жанр: Ambient |Продолжительность: 00:56:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE5D53F75BDCD3C54B43FED7A63DD158C03CE16C
 ```
 
 https://mybot314.ru/tekegram_catalog/

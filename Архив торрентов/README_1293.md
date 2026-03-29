@@ -6,7 +6,7 @@ GPU-Z 1.20.0 + ASUS ROG Skin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764412.jpg" />
+  <img src="Z:/picture/008/save_picture_764412.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ WinCatalog 2017 17.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764406.jpg" />
+  <img src="Z:/picture/008/save_picture_764406.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PrivaZer 3.0.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764405.jpg" />
+  <img src="Z:/picture/008/save_picture_764405.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764399.jpg" />
+  <img src="Z:/picture/008/save_picture_764399.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Viber 6.7.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764394.jpg" />
+  <img src="Z:/picture/008/save_picture_764394.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Comodo IceDragon 64.0.4.15 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764392.jpg" />
+  <img src="Z:/picture/008/save_picture_764392.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Opera 58.0.3135.53 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764384.jpg" />
+  <img src="Z:/picture/008/save_picture_764384.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Wise System Monitor 1.4.9.119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764382.jpg" />
+  <img src="Z:/picture/008/save_picture_764382.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Permute 3 v3.0.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764378.jpg" />
+  <img src="Z:/picture/008/save_picture_764378.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Loaris Trojan Remover 3.0.76.211 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764377.jpg" />
+  <img src="Z:/picture/008/save_picture_764377.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Shadow Defender 1.4.0.680 (акция Comss) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764365.jpg" />
+  <img src="Z:/picture/008/save_picture_764365.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ UltraISO Premium Edition 9.7.3.3629 (DC 03.07.2020) RePack (& Portable) by KpoJI
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764361.jpg" />
+  <img src="Z:/picture/008/save_picture_764361.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ PrivaZer 4.0.37 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764351.jpg" />
+  <img src="Z:/picture/008/save_picture_764351.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ RegCool 1.304 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764350.jpg" />
+  <img src="Z:/picture/008/save_picture_764350.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ Text Editor Pro 19.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764345.jpg" />
+  <img src="Z:/picture/008/save_picture_764345.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Faderhead - Discography 40 Releases (2006-2021) [MP3|320 Kbps] <EBM, Synth-Pop, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764343.jpg" />
+  <img src="Z:/picture/008/save_picture_764343.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ FreeFileSync 11.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764341.jpg" />
+  <img src="Z:/picture/008/save_picture_764341.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Novicorp WinToFlash Professional 1.7.0000 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764329.jpg" />
+  <img src="Z:/picture/008/save_picture_764329.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764321.jpg" />
+  <img src="Z:/picture/008/save_picture_764321.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ AMD Radeon Software Crimson ReLive Edition 17.4.3 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764318.jpg" />
+  <img src="Z:/picture/008/save_picture_764318.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ EssentialPIM Pro Business Edition 8.14 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764311.jpg" />
+  <img src="Z:/picture/008/save_picture_764311.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764293.jpg" />
+  <img src="Z:/picture/008/save_picture_764293.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Driver Easy Pro 5.6.15.34863 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764288.jpg" />
+  <img src="Z:/picture/008/save_picture_764288.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ WinNTSetup 4.2.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764287.jpg" />
+  <img src="Z:/picture/008/save_picture_764287.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ TrustViewer 2.2.1.3651 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764282.jpg" />
+  <img src="Z:/picture/008/save_picture_764282.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Movavi Video Editor Plus 20.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764278.jpg" />
+  <img src="Z:/picture/008/save_picture_764278.jpg" />
 </div>
 
 

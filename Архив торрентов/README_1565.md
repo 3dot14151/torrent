@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696291.jpg" />
+  <img src="Z:/picture/008/save_picture_696291.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Baidu Cloud 5.4.5 [Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696283.jpg" />
+  <img src="Z:/picture/008/save_picture_696283.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ LINE 4.7.0.1027 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696279.jpg" />
+  <img src="Z:/picture/008/save_picture_696279.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696259.jpg" />
+  <img src="Z:/picture/008/save_picture_696259.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696216.jpg" />
+  <img src="Z:/picture/005/save_picture_696216.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ FastStone Photo Resizer 3.6 RePack (& Portable) by VIPol [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696190.jpg" />
+  <img src="Z:/picture/008/save_picture_696190.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Doomsday Clicker 1.3.5 Mod [Money] [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696184.jpg" />
+  <img src="Z:/picture/008/save_picture_696184.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Texpad 1.9.7 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696182.jpg" />
+  <img src="Z:/picture/008/save_picture_696182.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ GoodNotes 5 v5.8.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696178.jpg" />
+  <img src="Z:/picture/008/save_picture_696178.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ VA - Клубная атмосфера 50/50 (2011) [MP3|256-320 kbps]<Pop/Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696161.jpg" />
+  <img src="Z:/picture/005/save_picture_696161.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696138.jpg" />
+  <img src="Z:/picture/005/save_picture_696138.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4833.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696106.jpg" />
+  <img src="Z:/picture/008/save_picture_696106.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ FileMenu Tools 7.0.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696102.jpg" />
+  <img src="Z:/picture/008/save_picture_696102.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ NVIDIA GeForce Experience 2.11.3.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696096.jpg" />
+  <img src="Z:/picture/008/save_picture_696096.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696091.jpg" />
+  <img src="Z:/picture/008/save_picture_696091.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Darkroom: Photo & Video Editor 5.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696074.jpg" />
+  <img src="Z:/picture/008/save_picture_696074.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ Duplicate Finder and Remover 1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696069.jpg" />
+  <img src="Z:/picture/008/save_picture_696069.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ S:cage - 2 Albums (2004-2006) [MP3|320 kbps]<Rhythmic Noise, Industrial, Ambient
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696059.jpg" />
+  <img src="Z:/picture/008/save_picture_696059.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696038.jpg" />
+  <img src="Z:/picture/008/save_picture_696038.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ NVIDIA GeForce Desktop 368.51 Hotfix driver (x64) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696037.jpg" />
+  <img src="Z:/picture/008/save_picture_696037.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ Ramboat: Shoot and Dash 3.6.0 Mod [Money] [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696036.jpg" />
+  <img src="Z:/picture/008/save_picture_696036.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ StartIsBack++ 1.3 RePack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696033.jpg" />
+  <img src="Z:/picture/008/save_picture_696033.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696032.jpg" />
+  <img src="Z:/picture/008/save_picture_696032.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696030.jpg" />
+  <img src="Z:/picture/008/save_picture_696030.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696027.jpg" />
+  <img src="Z:/picture/008/save_picture_696027.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Red Giant Effects Suite 11.1.8 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696026.jpg" />
+  <img src="Z:/picture/008/save_picture_696026.jpg" />
 </div>
 
 

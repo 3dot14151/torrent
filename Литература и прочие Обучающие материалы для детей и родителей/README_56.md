@@ -1,3 +1,135 @@
+###  Публикация: 1472979   (1014044) от 27.05.2021
+
+Валерий Медведев | Капитан Соври-Голова или 36 и 9 (1974) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014044.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли рассказы из жизни неудержимого фантазёра Димы Колчанова по прозвищу капитан Соври-голова. Его затеи всегда необычны и изобретательны, но далеко не всегда заканчиваются благополучно и частенько оборачиваются против него самого. Такой уж этот мальчишка – он ни минуты не может усидеть на месте, с ним постоянно что-нибудь приключается!Жанр: детские приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4D2B7604CA7BB81C81C86ACAA9630DDFB6ACC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472973   (1014030) от 27.05.2021
+
+Валерий Медведев | Баранкин, будь человеком! (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Валерий Владимирович Медведев (1923–1998) – советский и российский писатель, актер, музыкант. Его повесть «Баранкин, будь человеком!», опубликованная в 1962 году, сразу обрела бешеную популярность среди юных читателей. История о том, как обычные школьники – Юра Баранкин и Костя Малинин – превращаются во всевозможных животных и даже в насекомых, поразила детей и взрослых (   Читать дальше...   )Жанр: детская проза, сказкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC06FC59EA90141C7CD25820687541193203FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473025   (1014012) от 27.05.2021
+
+Сергей Михалков | Сказки (1988) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014012.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу входят сказки известного советского писателя, Героя Социалистического труда, лауреата Ленинской и государственных премий С. В. Михалкова.Жанр: СказкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C65E89C94E0F330BF0C14AF556E7E6F40AEBD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473190   (1013849) от 28.05.2021
+
+Андрей Некрасов | Приключения капитана Врунгеля (2017) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013849.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Приключения капитана Врунгеля» - это юмористическая повесть о кругосветном путешествии команды парусной яхты «Беда», которой руководит находчивый и остроумный капитан, способный с лёгкостью найти выход из любой сложной ситуации. Произведение А. Некрасова, ставшее классикой советской детской литературы, проиллюстрировано известным художником А. Елисеевым.Жанр: приключения, юмористическаяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2225DE1B6789D19055DF4C08C1311BDCF7E7486D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473219   (1013839) от 28.05.2021
+
+Николай Носов | Фантазёры (1969) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013839.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эти рассказы дарят нам всем очень много хорошего, доброго. И прежде всего они дарят радость смеха, весёлого настроения!
+Есть люди, которые думают, что «весело» и «несерьёзно» — это одно и то же. А ведь это не так. Тем и привлекательны книги Носова, что, радуя, веселя, они в то же время заставляют серьёзно задумываться.
+Книга называется «Фантазёры». Иногда мы с удивлением (   Читать дальше...   )Жанр: детские приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF831144B7C1B27878B4936FCC023CEA7D7A47BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473192   (1013837) от 28.05.2021
 
 Андрей Некрасов | Приключения капитана Врунгеля (2020) [FB2]
@@ -6,7 +138,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013837.jpg" />
 </div>
 
 
@@ -32,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013811.jpg" />
 </div>
 
 
@@ -58,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013718.jpg" />
 </div>
 
 
@@ -86,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013716.jpg" />
 </div>
 
 
@@ -112,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013702.jpg" />
 </div>
 
 
@@ -141,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013701.jpg" />
 </div>
 
 
@@ -167,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013675.jpg" />
 </div>
 
 
@@ -193,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013674.jpg" />
 </div>
 
 
@@ -219,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013671.jpg" />
 </div>
 
 
@@ -247,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013640.jpg" />
 </div>
 
 
@@ -273,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013613.jpg" />
 </div>
 
 
@@ -299,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013552.jpg" />
 </div>
 
 
@@ -325,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013547.jpg" />
 </div>
 
 
@@ -353,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013527.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013527.jpg" />
 </div>
 
 
@@ -382,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013516.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013516.jpg" />
 </div>
 
 
@@ -410,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013399.jpg" />
 </div>
 
 
@@ -436,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013375.jpg" />
 </div>
 
 
@@ -462,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013372.jpg" />
 </div>
 
 
@@ -488,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013318.jpg" />
 </div>
 
 
@@ -516,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013272.jpg" />
 </div>
 
 
@@ -544,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013236.jpg" />
 </div>
 
 
@@ -557,140 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A18C454C5092C728CF9331757D892E56901417A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470114   (1013225) от 01.06.2021
-
-Надежда Лустина | Сказки из маминого сундучка. Терапевтические сказки (2019) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотели бы своему ребёнку книгу, где каждая сказка говорит на его языке, помогает прийти к взаимопониманию без слёз и истерик, мягко и ненавязчиво решает сложные детские проблемы? Тогда этот сборник для вас.
-
-31 сказка, 31 способ решения детских проблем, 41 иллюстрация и всё это в 1 волшебной книге! Терапевтические Сказки из маминого сундучка - это волшебные истории (   Читать дальше...   )Жанр: Детская познавательная и развивающая литература, Детская психология, СказкиФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6AE6768C4E60A1C59B38156789473FF7DA74AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470140   (1013217) от 01.06.2021
-
-Астрид Линдгрен | Новые проделки Эмиля из Лённеберги (2019) [PDF, FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой этой весёлой повести Астрид Линдгрен – Эмиль из Лённеберги, от проделок которого трепещет весь хутор. Однажды он так напугал бедных односельчан, что те решили избавиться от сорванца и отправить его в Америку. Они, наивные, полагали, что им сразу станет спокойнее. Собрали в узелок денег и принесли его маме… А что было дальше, вы узнаете, прочитав эту книжку.Жанр: Детская проза, Детские приключения, Зарубежные детские книгиПеревод: Людмила Ю. Брауде, Елена А. ПаклинаФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B7BD0F01AEBD9FA600E04581185E44BF5DC91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469907   (1013204) от 01.06.2021
-
-Вениамин Каверин | Два капитана (1961) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повествование о нелёгком жизненном пути главного героя, поставившего себе целью восстановить справедливость, несмотря на трудности, обман и измену.Жанр: приключения романФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7579C1026B32EC517ACA9C7537D8880836F1414E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474258   (1013187) от 01.06.2021
-
-О.Б. Богомолова | Информатика. Новый полный справочник для подготовки к ЕГЭ (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>ГИА, ОГЭ, ЕГЭ, ЕМЭ, ГВЭ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник поможет школьнику освежить в памяти основной теоретический материал по всему курсу информатики за 7-11 классы, ознакомиться с принципами решения типовых задач ЕГЭ, предлагавшихся в последние несколько лет, и подготовиться к экзамену.
-
-Для школьников, учителей информатики и методистов.Жанр: ЕГЭ/ИнформатикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A413A22DB7859C157DC7B6DEE3AA0321643B2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471789   (1013165) от 01.06.2021
-
-Александр Волков | Волшебник Изумрудного города [6 книг] (1992) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пронёсшийся над Канзасом ураган принёс в Волшебную страну Фею Убивающего домика — девочку Элли, да не одну, а прямо вместе с домиком и пёсиком Тотошкой. Но как же ей теперь вернуться домой?! В этом может помочь только один человек – волшебник Гудвин, Великий и Ужасный. По Дороге из Жёлтого Кирпича Элли с Тотошкой отправляются в путь, чтобы подружиться с пугалом Страшилой (   Читать дальше...   )Жанр: СказкаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809298617B199F2546C4F7A608B665DFE81977F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

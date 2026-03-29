@@ -1,4 +1,82 @@
 https://t.me/izofen
+###  Публикация: 1860864   (1062348) от 
+
+Adguard 7.22.6 (7.22.5267.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F76CF80CBA5C6F9C3CDD789C862602C7668B589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861125   (1062322) от 
+
+Ultra Adware Killer 10.9.10.0 [En]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultra Adware Killer - простая, но эффективная Windows утилита для удаления рекламного ПО в веб-браузерах Internet Explorer, Firefox и Chrome. Обнаруживает и удаляет нежелательные тулбары, плагины и расширения, ПНП, перехватчики поиска и домашней страницыЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35DC5778D0317B9EE708B4A8A4CE43CBEFC94CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860718   (1062017) от 
+
+Adguard 7.22.6 (7.22.5267.0) RePack by KpoJIuK [Multi/Ru]
+
+>>Безопасность
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, мошеннических и фишинговых ресурсов, и родительским контролем за онлайн-активностью детей. Веб-защита работает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6632F78813C0E9D362E5AD203D381A55A07A4916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859812   (1061420) от 
 
 DefenderUI 2.04 [Multi/Ru]
@@ -7,7 +85,7 @@ DefenderUI 2.04 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061420.jpg" />
+  <img src="Z:/picture/005/save_picture_1061420.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ Glary Malware Hunter PRO 1.213.0.847 Portable by FC Portables [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060711.jpg" />
+  <img src="Z:/picture/005/save_picture_1060711.jpg" />
 </div>
 
 
@@ -60,7 +138,7 @@ Glary Malware Hunter Pro 1.213.0.847 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060269.jpg" />
+  <img src="Z:/picture/009/save_picture_1060269.jpg" />
 </div>
 
 
@@ -87,7 +165,7 @@ Adguard 7.22.5 (7.22.5262.0) RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060017.jpg" />
+  <img src="Z:/picture/009/save_picture_1060017.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ DefenderUI 1.46 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059354.jpg" />
+  <img src="Z:/picture/005/save_picture_1059354.jpg" />
 </div>
 
 
@@ -139,7 +217,7 @@ MinerSearch 1.4.8.41 Portable [Ru/En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059261.jpg" />
+  <img src="Z:/picture/005/save_picture_1059261.jpg" />
 </div>
 
 
@@ -165,7 +243,7 @@ HitmanPro 3.8.50 Build 346 Portable by FCPortables [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057825.jpg" />
+  <img src="Z:/picture/005/save_picture_1057825.jpg" />
 </div>
 
 
@@ -193,7 +271,7 @@ HitmanPro 3.8.50 Build 346 RePack by No_Reply [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057637.jpg" />
+  <img src="Z:/picture/005/save_picture_1057637.jpg" />
 </div>
 
 
@@ -219,7 +297,7 @@ Antivirus Removal Tool 2026.02 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056260.jpg" />
+  <img src="Z:/picture/005/save_picture_1056260.jpg" />
 </div>
 
 
@@ -246,7 +324,7 @@ Glary Malware Hunter Pro 1.212.0.845 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056206.jpg" />
+  <img src="Z:/picture/005/save_picture_1056206.jpg" />
 </div>
 
 
@@ -273,7 +351,7 @@ Emsisoft Emergency Kit 2025.7.0.12683 Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054195.jpg" />
+  <img src="Z:/picture/005/save_picture_1054195.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ Folder Guard Pro 26.1 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054178.jpg" />
+  <img src="Z:/picture/005/save_picture_1054178.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ Glary Malware Hunter Pro 1.211.0.842 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053340.jpg" />
+  <img src="Z:/picture/005/save_picture_1053340.jpg" />
 </div>
 
 
@@ -355,7 +433,7 @@ MinerSearch 1.4.8.4 Portable  [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051514.jpg" />
+  <img src="Z:/picture/005/save_picture_1051514.jpg" />
 </div>
 
 
@@ -381,7 +459,7 @@ Dr.Web LiveDisk 9.0.0 (04.01.2026) [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051185.jpg" />
+  <img src="Z:/picture/005/save_picture_1051185.jpg" />
 </div>
 
 
@@ -409,7 +487,7 @@ Glary Malware Hunter Pro 1.210.0.841 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050514.jpg" />
+  <img src="Z:/picture/005/save_picture_1050514.jpg" />
 </div>
 
 
@@ -436,7 +514,7 @@ MinerSearch 1.4.8.3 Portable [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049940.jpg" />
+  <img src="Z:/picture/005/save_picture_1049940.jpg" />
 </div>
 
 
@@ -462,7 +540,7 @@ Malwarebytes AdwCleaner 8.7.0.619 Beta [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049325.jpg" />
+  <img src="Z:/picture/008/save_picture_1049325.jpg" />
 </div>
 
 
@@ -488,7 +566,7 @@ Adguard 7.22.3 (7.22.5240.0) RePack by KpoJIuK [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048145.jpg" />
+  <img src="Z:/picture/008/save_picture_1048145.jpg" />
 </div>
 
 
@@ -514,7 +592,7 @@ Glary Malware Hunter Pro 1.209.0.840 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047879.jpg" />
+  <img src="Z:/picture/008/save_picture_1047879.jpg" />
 </div>
 
 
@@ -541,7 +619,7 @@ Glary Malware Hunter Pro 1.208.0.839 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047615.jpg" />
+  <img src="Z:/picture/008/save_picture_1047615.jpg" />
 </div>
 
 
@@ -568,7 +646,7 @@ USB Guardian 4.6.0 [En]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037090.jpg" />
 </div>
 
 
@@ -594,7 +672,7 @@ DWAKU2 2.1.2 [Multi/Ru]
 >>Разное (остальные программы по безопасности)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027467.jpg" />
 </div>
 
 
@@ -608,89 +686,6 @@ DWAKU2 - это программа-помощник для антивирусн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8E1E65C2750D211A149DCA08B49FA6AD900A728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452956   (1026997) от 10.03.2021
-
-Faronics Deep Freeze Standard 8.60.020.5592 [En]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Freeze - программа мгновенно защищает и сохраняет базовые конфигурации компьютера. Независимо от того, какие изменения пользователь делает на рабочей станции, просто перезагрузите компьютер и все вернется в исходное состояние - вплоть до последнего байта. Приложение можно смело рекомендовать системным администраторам, в чьи обязанности входит обслуживание компьютерного (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494EE1C79E1233C82EA5AC82D6506BA61FD0E910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461304   (1021658) от 10.04.2021
-
-HitmanPro 3.8.22 Build 316 RePack by DoMiNo [Multi/Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021658.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitmanPro – мощный cканер для выявления различных вредоносных программ. Особенность HitmanPro в том, что он использует при проверке базы данных других приложений для обнаружения и удаления шпионских модулей (Ad-Aware SE Personal, Spy Sweeper, Spybot Search & Destroy, CWShredder, SpywareBlaste, Spyware Block List, Sysclean Package, SuperDAT VirusScan).
-
-После (   Читать дальше...   )Язык интерфейса: Русский, английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257FB2E3881792F566A34FBDF204083C112C7DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466446   (1018566) от 29.04.2021
-
-Norton Remove and Reinstall Tool 4.5.0.157 [Ru]
-
->>Безопасность
->>Разное (остальные программы по безопасности)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Norton Remove and Reinstall Tool — официальная утилита для корректного и полного удаления любых продуктов линейки Norton: Norton AntiVirus, Norton SystemWorks, Norton Personal Firewall и т.п.
-
-Есть 2 вида работы программы:
-1). Удалить и переустановить.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABADB696CC0EEFF436A871A456C44ADE9664EA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

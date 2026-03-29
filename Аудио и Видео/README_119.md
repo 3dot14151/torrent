@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697799.jpg" />
+  <img src="Z:/picture/008/save_picture_697799.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697740.jpg" />
+  <img src="Z:/picture/008/save_picture_697740.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Brian Tyler - Иллюзия обмана / Now You See Me (Original Motion Pict
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697686.jpg" />
+  <img src="Z:/picture/008/save_picture_697686.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697681.jpg" />
+  <img src="Z:/picture/008/save_picture_697681.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ VA - The Essential Downtempo, Vol. 3: Chillout Your Mind (2022) [AAC|~326 Kbps] 
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697671.jpg" />
+  <img src="Z:/picture/008/save_picture_697671.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697639.jpg" />
+  <img src="Z:/picture/008/save_picture_697639.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697635.jpg" />
+  <img src="Z:/picture/008/save_picture_697635.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697507.jpg" />
+  <img src="Z:/picture/008/save_picture_697507.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697405.jpg" />
+  <img src="Z:/picture/008/save_picture_697405.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697381.jpg" />
+  <img src="Z:/picture/008/save_picture_697381.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697062.jpg" />
+  <img src="Z:/picture/008/save_picture_697062.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696718.jpg" />
+  <img src="Z:/picture/008/save_picture_696718.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696635.jpg" />
+  <img src="Z:/picture/008/save_picture_696635.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696612.jpg" />
+  <img src="Z:/picture/008/save_picture_696612.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696494.jpg" />
+  <img src="Z:/picture/008/save_picture_696494.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ VA - Славные парни / The Nice Guys (Original Motion Picture Soundtra
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696288.jpg" />
+  <img src="Z:/picture/008/save_picture_696288.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Red Hot Chili Peppers - The Getaway (2016) [AAC|WEB-DL|256 Kbps]<Alternative Roc
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696192.jpg" />
+  <img src="Z:/picture/008/save_picture_696192.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696188.jpg" />
+  <img src="Z:/picture/008/save_picture_696188.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ VA - Deep & Joy, Vol. 2 (2022) [AAC|~328 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696181.jpg" />
+  <img src="Z:/picture/008/save_picture_696181.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Marga Sol - Love Sensation (Sensual Lounge Vibes) (2013) [AAC|~334 Kbps] <Lounge
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696179.jpg" />
+  <img src="Z:/picture/008/save_picture_696179.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ VA - Winter Relaxation, Vol. 5 (2022) [AAC|~309 Kbps] <Lounge, Chill Out, Downte
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696177.jpg" />
+  <img src="Z:/picture/008/save_picture_696177.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ VA - Full Moon Chill, Vol. 1 (2017) [AAC|~320 Kbps] <Lounge, Chill Out, Downtemp
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696176.jpg" />
+  <img src="Z:/picture/008/save_picture_696176.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ VA - Maretimo Records - Masterpieces, Vol. 2 (2020) [AAC|~324 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696175.jpg" />
+  <img src="Z:/picture/008/save_picture_696175.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Marga Sol - Awakening (Chillout Deluxe & Finest Lounge) (2013) [AAC|~278 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696174.jpg" />
+  <img src="Z:/picture/008/save_picture_696174.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ VA - Maretimo Records - Masterpieces, Vol. 1 (2017) [AAC|~333 Kbps] <Lounge, Chi
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696088.jpg" />
+  <img src="Z:/picture/008/save_picture_696088.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ VA - Deep & Joy, Vol. 1 (2022) [AAC|~325 Kbps] <House>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696087.jpg" />
+  <img src="Z:/picture/008/save_picture_696087.jpg" />
 </div>
 
 

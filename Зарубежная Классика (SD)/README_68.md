@@ -1,3 +1,82 @@
+###  Публикация: 8391   (515895) от 22.08.2015
+
+Собор Парижской богоматери / Notre Dame de Paris (1956) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_515895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классическая экранизация романа Виктора Гюго привлекает прежде всего декорациями и скрупулезным воссозданием эпохи царствования Людовика ХI, пышными костюмами и проникновенной игрой Джины Лоллобриджиды в роли Эсмеральды в апогее своей красоты и славы.
+На площади Собора Парижской богоматери танцует прекрасная цыганка Эсмеральда, привлекая священника Клода Фролло. (   Читать дальше...   )Производство: Франция, ИталияЖанр: Драма, История, УжасыРежиссер: Жан ДеланнуаАктеры: Джина Лоллобриджида, Энтони Куинн, Жан Дане, Ален Кюни, Робер Ирш, Даниэль Дюмон, Филипп Клэй, Морис Сарфати, Жан Тиссье, Валентайн ТессьерПеревод: Многоголосый закадровыйСубтитры: НетПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314123   (515879) от 17.07.2019
+
+Навеки дорогая / Forever, Darling (1956) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сьюзен и Лоренцо женаты уже более пяти лет, и они начинают отдаляться друг от друга. Тогда в жизни Сьюзен появляется ангел-хранитель, чтобы помочь ей сохранить брак.Производство: США / Zanra ProductionsЖанр: Фэнтези, КомедияРежиссер: Александр ХоллАктеры: Люсиль Болл, Дези Арназ, Джеймс Мейсон, Луи Кэлхерн, Джон Эмери, Джон Хойт, Натали Шафер, Мэйбл Альбертсон, Ральф Думке, Нэнси КалпПеревод: Одноголосый любительский, Игорь КлушинСубтитры: АнглийскиеПродолжительность: 01:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8004FA49A9760A64C7DAEA4BA9CCEE8A62442B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558445   (515587) от 04.07.2022
+
+Голубые небеса / Blue Skies (1946) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_515587.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на рассказе Ирвинга Берлина. Танцовщик и певец Джед Поттер оглядывается назад на любовный треугольник, длившийся много лет, в котором он играл роль «третьего лишнего». Он был влюблён в актрису Мэри О'Хара, а она любила импульсивного владельца ночного клуба Джонни Адамса, который был не постоянен в своих привязанностях и нигде не задерживался надолго...Производство: США, Paramount PicturesЖанр: мюзикл, мелодрама, комедияРежиссер: Виктор Шерцингер, Стюарт ХейслерАктеры: Бинг Кросби, Фред Астер, Джоан Колфилд, Билли Де Волф, Ольга Сан Хуан, Михаил Разумный, Фрэнк Фэйлен, Виктория Хорн, Кэролин ГраймсПеревод: профессиональный многоголосыйСубтитры: английскиеПродолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6A2EFB3BA08D049777280D9372697BDB907246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930407   (515209) от 23.08.2015
 
 Легенда о потерянном / Legend of the Lost (1957) DVDRip
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515209.jpg" />
+  <img src="Z:/picture/008/save_picture_515209.jpg" />
 </div>
 
 
@@ -35,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514932.jpg" />
+  <img src="Z:/picture/008/save_picture_514932.jpg" />
 </div>
 
 
@@ -61,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514894.jpg" />
+  <img src="Z:/picture/008/save_picture_514894.jpg" />
 </div>
 
 
@@ -87,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514659.jpg" />
+  <img src="Z:/picture/008/save_picture_514659.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514576.jpg" />
+  <img src="Z:/picture/008/save_picture_514576.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513841.jpg" />
+  <img src="Z:/picture/008/save_picture_513841.jpg" />
 </div>
 
 
@@ -165,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513799.jpg" />
+  <img src="Z:/picture/008/save_picture_513799.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513759.jpg" />
+  <img src="Z:/picture/008/save_picture_513759.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513706.jpg" />
+  <img src="Z:/picture/008/save_picture_513706.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513661.jpg" />
+  <img src="Z:/picture/008/save_picture_513661.jpg" />
 </div>
 
 
@@ -269,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513516.jpg" />
+  <img src="Z:/picture/008/save_picture_513516.jpg" />
 </div>
 
 
@@ -295,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513374.jpg" />
+  <img src="Z:/picture/008/save_picture_513374.jpg" />
 </div>
 
 
@@ -321,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513359.jpg" />
+  <img src="Z:/picture/008/save_picture_513359.jpg" />
 </div>
 
 
@@ -347,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512715.jpg" />
+  <img src="Z:/picture/008/save_picture_512715.jpg" />
 </div>
 
 
@@ -374,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512695.jpg" />
+  <img src="Z:/picture/008/save_picture_512695.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512656.jpg" />
+  <img src="Z:/picture/008/save_picture_512656.jpg" />
 </div>
 
 
@@ -427,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512361.jpg" />
+  <img src="Z:/picture/008/save_picture_512361.jpg" />
 </div>
 
 
@@ -453,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511701.jpg" />
+  <img src="Z:/picture/008/save_picture_511701.jpg" />
 </div>
 
 
@@ -480,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510860.jpg" />
+  <img src="Z:/picture/008/save_picture_510860.jpg" />
 </div>
 
 
@@ -506,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510858.jpg" />
+  <img src="Z:/picture/008/save_picture_510858.jpg" />
 </div>
 
 
@@ -533,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510648.jpg" />
+  <img src="Z:/picture/008/save_picture_510648.jpg" />
 </div>
 
 
@@ -560,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510529.jpg" />
+  <img src="Z:/picture/008/save_picture_510529.jpg" />
 </div>
 
 
@@ -586,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510448.jpg" />
+  <img src="Z:/picture/008/save_picture_510448.jpg" />
 </div>
 
 
@@ -597,84 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C221082824685CE31EDD368542B37E02A65B18B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 376395   (510211) от 17.08.2011
-
-Идиот в Париже / Un idiot a Paris (1967) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный французский комедийный актер Жан Лефевр так комментировал свою работу в этой картине: "В этом фильме есть все: и уморительные шутки, и чувство - сочетание, которое не встретишь в сегодняшних лентах". Трогательный и добрый простачок Гоби служит объектом насмешек в родной деревне. Больше всего односельчан забавляет то, что у молодого человека есть заветная мечта - увидеть Париж. Однажды "добрые" люди решают подшутить над дурачком Гоби и кладут его спящего в машину, которая отправляется в "мечту". Очутившись загадочным, как думает Гоби, образом в Париже, молодой человек путешествует по заветному городу и находит много друзей.......Жанр: комедияРежиссер: Серж КорберПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237015B7CCAFFF43FDF37637C3960C17DA9EF112
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927795   (509977) от 28.08.2015
-
-Соломенная женщина / Woman of Straw (1964) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история сиделки богатого старика, которую племянник богача уговаривает выйти замуж за своего пациента, овладеть его богатством, а после смерти старика вместе получить удовольствие от его денег. Сиделка постепенно начинает проникаться любовью к больному богачу, однако, когда он внезапно умирает ее обвиняют в убийстве...Производство: Великобритания / Michael Relph ProductionsЖанр: Триллер, Драма, КриминалРежиссер: Бэзил ДирденАктеры: Джина Лоллобриджида, Шон Коннери, Ральф Ричардсон, Александр Нокс, Джонни Секка, Лоуренс Харди, Питер Мэдден, Дэнни Дэниелс, Ноэль Хоулетт, Дуглас УилмерПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA17C10E10588C900063374AE5CABDE06824B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928086   (509948) от 28.08.2015
-
-Пламенеющая звезда / Flaming Star (1960) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509948.jpg" />
-</div>
-
-
-###  Подробнее
-
-По замыслу сценариста, Пресли наполовину индеец (мать-индианка) и наполовину белый(отец и сводный брат). Их презирают и мучают белые. В герое Пресли говорит кровь индейца, не давая ему покоя, в нем эти корни слишком сильны. Вот Пресли и вынужден метаться между одним лагерем и другим, в зависимости откуда подуют ветры предрассудков и гордости.Производство: США / Twentieth Century Fox Film CorporationЖанр: ВестернРежиссер: Дон СигелАктеры: Элвис Пресли, Барбара Иден, Стив Форрест, Долорес дель Рио, Джон МакИнтайр, Родольфо Акоста, Карл Свенсон, Форд Рейни, Ричард Джэкел, Энн БентонПеревод: Многоголосый закадровый (Первый канал)Субтитры: ОтсутствуютПродолжительность: 01:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21A0E2F9FCE9A2DC4809A04C44819F8593CB63B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1112809   (840096) от 10.03.2017
+
+Bloodbound - War Of Dragons (2017) 2CD, Limited Edition [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Era Begins (0:30)
+02. Battle in the Sky (4:25)
+03. Tears of a Dragonheart (3:50)
+04. War of Dragons (4:09)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B904EA1114641DDCE285BE3AEBEBCE1DA21A2F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500778   (839944) от 07.10.2021
+
+Blood Red Throne - Imperial Congregation (2021) [FLAC|Lossless|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imperial Congegration
+02. Itika
+03. Conquered Malevolence
+04. Transparent Existence(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EACFB54B01E400964ABD6F4164D263D3BDA86C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500884   (839943) от 07.10.2021
+
+Drakkar - Chaos Lord (2021) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dreaming City
+02. Lord Of A Dying Race
+03. Horns Up
+04. Chaos Lord(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C39EBFF081A9194B9ACAB1C3178DE6E0ECA7AE57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500400   (839935) от 07.10.2021
 
 Katatonia - Mnemosynean (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Doom Metal, Depressive Rock, Gothic Metal>
@@ -6,7 +93,7 @@ Katatonia - Mnemosynean (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Doom Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839935.jpg" />
+  <img src="Z:/picture/008/save_picture_839935.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Leviathan - Scar Sighted (2015) [FLAC|Lossless]<Black Metal/Dark Ambient>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839078.jpg" />
+  <img src="Z:/picture/008/save_picture_839078.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Spectral Lore - Eterofotos (2021) [FLAC|Lossless|image + .cue] <Atmospheric Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838243.jpg" />
+  <img src="Z:/picture/008/save_picture_838243.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Omission - Worship What You Fear (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838240.jpg" />
+  <img src="Z:/picture/008/save_picture_838240.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Voidfallen - The Atlas Of Spiritual Apocalypse (2021) [FLAC|Lossless|WEB-DL|trac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838238.jpg" />
+  <img src="Z:/picture/008/save_picture_838238.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ ToxicRose - In For The Kill (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Gl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838236.jpg" />
+  <img src="Z:/picture/008/save_picture_838236.jpg" />
 </div>
 
 
@@ -181,7 +268,7 @@ Evil Hunter - Lockdown (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838114.jpg" />
+  <img src="Z:/picture/008/save_picture_838114.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ Trivium - What the Dead Men Say (2020) Japan Bonus Tracks [FLAC|Lossless|tracks 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837578.jpg" />
+  <img src="Z:/picture/008/save_picture_837578.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Heaven's Gate - Menergy (1999) Japan[APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835343.jpg" />
+  <img src="Z:/picture/008/save_picture_835343.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Infrared - From the Black Swamp (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash, He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835312.jpg" />
+  <img src="Z:/picture/008/save_picture_835312.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Fallen Lillies - No Master For Lilly (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835310.jpg" />
+  <img src="Z:/picture/008/save_picture_835310.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Impiety - Vengeance Hell Immemorial (2013) [FLAC|Lossless|image + .cue] <Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835307.jpg" />
+  <img src="Z:/picture/008/save_picture_835307.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Rivers Of Nihil - The Work (2021) [FLAC|Lossless|image + .cue] <Technical Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835306.jpg" />
+  <img src="Z:/picture/009/save_picture_835306.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Dream Theater - Six Degrees Of Inner Turbulence (2001) 2CD, Reissue, 2002, Elekt
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835265.jpg" />
+  <img src="Z:/picture/008/save_picture_835265.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Spectral Darkwave - At Outer Dark (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835263.jpg" />
+  <img src="Z:/picture/008/save_picture_835263.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Desire - Legacy of the Past (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835261.jpg" />
+  <img src="Z:/picture/008/save_picture_835261.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Dream Theater - Dream Theater (2013) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835257.jpg" />
+  <img src="Z:/picture/008/save_picture_835257.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Dream Theater - Falling Into Infinity (1997) 2CD, Japanese Edition [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835256.jpg" />
+  <img src="Z:/picture/008/save_picture_835256.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Agressor - The Order Of Chaos (2020) 3xCD, Compilation, Box Set [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835254.jpg" />
+  <img src="Z:/picture/008/save_picture_835254.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Agressor - The Arrival (2021) 2xCD,  Compilation, Remastered, Season Of Mist [FL
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835251.jpg" />
+  <img src="Z:/picture/008/save_picture_835251.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Dream Theater - Six Degrees Of Inner Turbulence (2001) 2CD, Reissue, Remastered,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835250.jpg" />
+  <img src="Z:/picture/008/save_picture_835250.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Rivers Of Nihil - Where Owls Know My Name (2018) [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835249.jpg" />
+  <img src="Z:/picture/008/save_picture_835249.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Dream Theater - Metropolis Pt. 2: Scenes From A Memory (1999) Reissue, Remastere
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835248.jpg" />
+  <img src="Z:/picture/008/save_picture_835248.jpg" />
 </div>
 
 
@@ -659,94 +746,6 @@ Dream Theater - Metropolis Pt. 2: Scenes From A Memory (1999) Reissue, Remastere
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B7AC1F9517802AE819DFD8D78602ACAA33B09D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501360   (835247) от 10.10.2021
-
-Gus G. - Quantum Leap (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Guitar Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Греческий гитарист-виртуоз Гас Джи (Gus G.), хорошо известный в рок- и метал-кругах по работе с Оззи Осборном (Ozzy Osbourne) и собственной группой FIREWIND, выпустит новый сольный альбом "Quantum Leap" 8 октября на лейбле AFM.
-Он заявил: "Это мой первый полностью инструментальный сольный альбом. Это означает, что там вообще нет вокала, нет гостевых (   Читать дальше...   )01. Into the Unknown (05:22)
-02. Exosphere (03:39)
-03. Quantum Leap (04:48)
-04. Chronesthesia (05:01)(   Читать дальше...   )Жанр: Heavy Metal, Guitar InstrumentalПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FD31B137C945A12931B885607740AB446304D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501447   (835203) от 10.10.2021
-
-Dream Theater - Train Of Thought (2003) Reissue, Remastered, 2009, Elektra [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As I Am (7:49)
-02. This Dying Soul (11:28)
-03. Endless Sacrifice (11:25)
-04. Honor Thy Father (10:15)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24A6E9805719D22FCE3F4D4C831F5986B572286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501528   (835196) от 10.10.2021
-
-Dream Theater - Master Of Puppets - Live In Barcelona (2002) Reissue, Remastered, 2021, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battery (5:16)
-02. Master Of Puppets (8:46)
-03. The Thing That Should Not Be (7:05)
-04. Welcome Home (Sanitarium) (6:44)(   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48DB2718DFC9DD069D5C685ABFC74C9FDB4700E
 ```
 
 https://mybot314.ru/tekegram_catalog/

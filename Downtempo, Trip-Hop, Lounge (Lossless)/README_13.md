@@ -1,3 +1,87 @@
+###  Публикация: 1543134   (631680) от 10.04.2022
+
+VA - Coffee Break Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_631680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska - Special (5:26)
+02. M-Sol Project Marga Sol - Silent Traveler (3:57)
+03. Beamy - Sierra De La Plata (4:51)
+04. James Butler - Dinner for Two (Original Mix) (3:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CD93846646749E3B6813E7DF2E750581B75AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 349458   (625271) от 15.06.2011
+
+DJ Silence - Hours Of Silence (2009) [FLAC|Lossless]<Ambient, Psy Chill>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_625271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient, Psy ChillПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229501   (624443) от 07.06.2018
+
+VA - Paris Lounge Night (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonjour - Lemongrass
+02. Wandance Paris - Trio Eletrico
+03. En prive - Second Breath
+04. Autum in Paris - Josy, Catharina(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BC9D0E1F247CBD9A3A8AED38540387B05A2FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544936   (618391) от 17.04.2022
 
 VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -6,7 +90,7 @@ VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks]
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618391.jpg" />
+  <img src="Z:/picture/008/save_picture_618391.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ VA - Vargo Lounge - Summer Celebration 3 (2015) [FLAC|Lossless|WEB-DL]<Lounge, D
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618169.jpg" />
+  <img src="Z:/picture/008/save_picture_618169.jpg" />
 </div>
 
 
@@ -64,7 +148,7 @@ VA - The Beatless Collection Vol. 1 (2008) Elektrolux [FLAC|Lossless|tracks+.cue
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617089.jpg" />
+  <img src="Z:/picture/008/save_picture_617089.jpg" />
 </div>
 
 
@@ -93,7 +177,7 @@ Michael E - Behind Closed Doors (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616341.jpg" />
+  <img src="Z:/picture/008/save_picture_616341.jpg" />
 </div>
 
 
@@ -122,7 +206,7 @@ V.A. - Vintage Cafe: Lounge & Jazz Blends Vol.10 (2017) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615952.jpg" />
+  <img src="Z:/picture/008/save_picture_615952.jpg" />
 </div>
 
 
@@ -151,7 +235,7 @@ Jens Buchert - Aurora Electronica (2019) Elbroar [FLAC|Lossless|WEB-DL|tracks] <
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611830.jpg" />
+  <img src="Z:/picture/008/save_picture_611830.jpg" />
 </div>
 
 
@@ -180,7 +264,7 @@ Jens Buchert - Exoplanet (2019) Dimension Music [FLAC|Lossless|WEB-DL|tracks] <E
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610134.jpg" />
+  <img src="Z:/picture/008/save_picture_610134.jpg" />
 </div>
 
 
@@ -209,7 +293,7 @@ Jens Buchert - Elevation (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill House, Loun
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608715.jpg" />
+  <img src="Z:/picture/008/save_picture_608715.jpg" />
 </div>
 
 
@@ -238,7 +322,7 @@ VA - Paris Lounge Night (2016) [FLAC|Lossless|tracks] <Еаsу-Lіstеnіng>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606825.jpg" />
+  <img src="Z:/picture/008/save_picture_606825.jpg" />
 </div>
 
 
@@ -267,7 +351,7 @@ Claude Challe - Nirvana Lounge 02 (2002) 2CD Box [APE|Lossless|image + .cue] <Do
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604247.jpg" />
+  <img src="Z:/picture/008/save_picture_604247.jpg" />
 </div>
 
 
@@ -296,7 +380,7 @@ VA - Best Of Buddha (2002) 2CD [APE|Lossless|image + .cue] <Future Jazz, Downtem
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603857.jpg" />
+  <img src="Z:/picture/008/save_picture_603857.jpg" />
 </div>
 
 
@@ -325,7 +409,7 @@ VA - Spring Aromas: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Bal
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602025.jpg" />
+  <img src="Z:/picture/008/save_picture_602025.jpg" />
 </div>
 
 
@@ -354,7 +438,7 @@ Sean Hayman - Forget Time & Space (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601763.jpg" />
+  <img src="Z:/picture/008/save_picture_601763.jpg" />
 </div>
 
 
@@ -383,7 +467,7 @@ Cinematic - The World In Slow Motion (2019) [FLAC|Lossless|WEB-DL|tracks] <Loung
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601752.jpg" />
+  <img src="Z:/picture/008/save_picture_601752.jpg" />
 </div>
 
 
@@ -412,7 +496,7 @@ Lamb - The Secret Of Letting Go (2019) [FLAC|Lossless|tracks + .cue] <Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601596.jpg" />
+  <img src="Z:/picture/008/save_picture_601596.jpg" />
 </div>
 
 
@@ -441,7 +525,7 @@ Kid Loco - A Grand Love Story (1998) [FLAC|tracks +.cue]<Trip-Hop, Downtempo>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601144.jpg" />
+  <img src="Z:/picture/008/save_picture_601144.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ VA - Milchbar Seaside Season 11 (2019) Compiled by Blank & Jones [FLAC|Lossless|
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600843.jpg" />
+  <img src="Z:/picture/008/save_picture_600843.jpg" />
 </div>
 
 
@@ -499,7 +583,7 @@ Blank & Jones - Milchbar - Seaside Season 14 (2022) DJ Mix [FLAC|Lossless|WEB-DL
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600131.jpg" />
+  <img src="Z:/picture/008/save_picture_600131.jpg" />
 </div>
 
 
@@ -528,7 +612,7 @@ Schiller - Epic (2021) [FLAC|Lossless|tracks + .cue] <Chillout, Downtempo, Ambie
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_591186.jpg" />
+  <img src="Z:/picture/008/save_picture_591186.jpg" />
 </div>
 
 
@@ -557,7 +641,7 @@ Shantel - Club Guerilla (1997)  [FLAC|tracks +.cue]<Downtempo, Dub, Trip-Hop>
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590940.jpg" />
+  <img src="Z:/picture/008/save_picture_590940.jpg" />
 </div>
 
 
@@ -586,7 +670,7 @@ VA - Romantic Dinner Lounge (2019) (Chillout Your Mind) [FLAC|Lossless|WEB-DL|tr
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585263.jpg" />
+  <img src="Z:/picture/008/save_picture_585263.jpg" />
 </div>
 
 
@@ -615,7 +699,7 @@ New Composers - Advanced Indigo (2004) [FLAC|tracks +.cue]<Ethno Chill, Downtemp
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584023.jpg" />
+  <img src="Z:/picture/008/save_picture_584023.jpg" />
 </div>
 
 
@@ -644,7 +728,7 @@ VA - Italian Chillout Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Lo-Fi, Lounge, 
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581011.jpg" />
+  <img src="Z:/picture/008/save_picture_581011.jpg" />
 </div>
 
 
@@ -658,95 +742,6 @@ VA - Italian Chillout Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Lo-Fi, Lounge, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:043EA5CD4FA63536D0726E2B77B55A0A26A1B9B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042079   (580423) от 11.08.2016
-
-V.A. - Cafe del Mar XXII (Volumen Vientidos) (2016) 2CD [FLAC|Lossless|tracks + .cue] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. D.K. - Evening Shadows
-02. Bloom - Fall
-03. Ash Walker - Bongo Legs(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A081D53A5C849038C3FBE53DA747806937AFF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527936   (574615) от 27.07.2012
-
-Blank & Jones - Relax Edition 7 (2012) [FLAC|Lossless]<Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_574615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blank & Jones - Relax Edition 7 (2012)
-Год: 2012
-Жанр: Chillout, Lounge, Downtempo
-Продолжительность: 02:01:52
-Лейбл: Soundcolours
-Каталог №: SC 0129
-Сканы: Комплект
-Кодек: FLAC
-Битрейт: Lossless(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193232   (574141) от 20.05.2019
-
-9 Lazy 9 (9Lazy9) - Discography 8 Releases (1994-2011) Ninja Tune [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Future Jazz, Trip Hop, Breakbeat, Breaks>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Six Minutes In Manchester (9 Lazy 9 Mix) (04:35)Тип издания: CD, WEBЖанр: Future JazzПродолжительность: 00:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A70DA2A89EB07171263B0B15AB70393CC1EC3C9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

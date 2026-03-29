@@ -1,3 +1,90 @@
+###  Публикация: 1368932   (907493) от 21.03.2020
+
+Killswitch Engage - Alive or Just Breathing (2002) Reissue, 2005, Roadrunner Records [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Numbered Days (3:35)
+02. Self Revolution (3:09)
+03. Fixation on the Darkness (3:38)
+04. My Last Serenade (4:14)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F785EF984C2AEE09036945F38326E1F64C4160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098880   (907439) от 31.01.2017
+
+Bornholm - Primaeval Pantheons (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye of Knowledge - 07:13
+02. Atavism - 04:42
+03. Runes of Power - 05:35
+04. Old - 05:46(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BFC8632626814A2AFC2D7BE2BB8A2D8C31E9F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098870   (907436) от 31.01.2017
+
+Celtefog - Sounds of the Olden Days (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907436.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. My Last Sight to the Known Universe - 09:07
+2. Tombs of Memories - 06:28
+3. Call of the Ancestors - 08:37
+4. Three Nights in the Mediterranean Sea - 07:01(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBF88B4E44D6EAF3B6A1E5206D24154F5AFA1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098886   (907431) от 31.01.2017
 
 Belenos - Kornog (2016) Limited Edition [FLAC|Lossless|image + .cue] <Pagan Black Metal>
@@ -6,7 +93,7 @@ Belenos - Kornog (2016) Limited Edition [FLAC|Lossless|image + .cue] <Pagan Blac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907431.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Bifröst - Mana Ewah (2016) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907347.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Behemoth - Messe Noire (2018) [FLAC|Lossless|image + .cue] <Black Metal, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907291.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ ArkenFire - Trials Through Time (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907281.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Behemoth - I Loved You At Your Darkest (2018) Tour Edition, 2020, Nuclear Blast 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907262.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Ex Deo - The Thirteen Years Of Nero (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907261.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907261.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Nothgard - The Sinner's Sake (2016) [FLAC|Lossless|image + .cue] <Pagan Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907205.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ The Great Old Ones - EOD: A Tale Of Dark Legacy (2017) Deluxe Edition [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907190.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Pestilence - 10 Studio Albums (1988-2021) 20xCD [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907168.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Sepultura - Machine Messiah (2017) Japanese Edition [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907072.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ U.D.O. - Decadent [Japanese Edition] (2015) [FLAC|Lossless]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906320.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906320.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Redemption - The Art Of Loss (2016) Limited Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906185.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Burning Witches - Dance with the Devil (2020) [FLAC|Lossless|image + .cue] <Heav
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905636.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Timo Tolkki’s Avalon - The Enigma Birth (2021) [FLAC|Lossless|image + .cue] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905470.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905470.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Ramchat - Atrana (2016) [FLAC|Lossless|image + .cue] <Black, Pagan Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905443.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Doro - True At Heart (1991) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905017.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Impaled Nazarene - Eight Headed Serpent (2021) Limited Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904035.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Brujeria - The Mexecutioner! The Best Of Brujeria (Compilation) (2003) [APE|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903917.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Tank - Honour and Blood (1984) Reissue, 1990, Roadrunner Records [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903818.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Twin Obscenity - For Blood, Honour And Soil (1998) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903807.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Dãm - Purity (The Darwinian Paradox) (2005) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903702.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903702.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Concerto Moon - Between Life And Death (2015) Japanese Edition [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903688.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Concerto Moon - Angel Of Chaos (2010) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903685.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Concerto Moon - Angel Of Chaos (2010) Japanese Edition [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4861A20DBD76A8082055AA7D1A6B9B5F4C6835DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099624   (903406) от 02.02.2017
-
-Mors Principium Est - Embers Of A Dying World (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis 01:35
-02. Reclaim The Sun 04:39
-03. Masquerade 05:04
-04. Into The Dark 05:06(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCCBE911BA2AD7D567A44ACC8439DD2905FB6FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099635   (903294) от 02.02.2017
-
-Hobbs' Angel Of Death - Heaven Bled (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Mostro Di Firenzi 04:41
-02. Walk My Path 05:19
-03. Final Feast 03:56
-04. Suicide 03:58(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:145F814FF001072977D907E04C09C871DB15DF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992196   (902809) от 01.03.2016
-
-Sinbreed - Master Creator (2016) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creation Of Reality
-02. Across The Great Divides
-03. Behind A Mask
-04. Moonlit Night(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E599A54098DEA3380B2A649542CDD14CCC0E6CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

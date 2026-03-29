@@ -1,3 +1,164 @@
+###  Публикация: 1151507   (218278) от 10.08.2023
+
+Игра престолов / Game of Thrones (2017) WEBRip [H.264/1080p-LQ] (сезон 7, серии 1-7 из 7) LostFilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Укороченный (7 вместо традиционных 10 серий) и предпоследний по счету седьмой сезон приближает грандиозную фэнтези-сагу к финалу Игры. Ключевые участники во всеоружии: Дейенерис вместе с драконами и своим внушительным полчищем, Безумная Королева Серсея, Король Ночи с ходоками и новоявленный король Севера Джон Сноу. Вестерос на пороге Великой войны. Седьмой сезон (   Читать дальше...   )Производство: США, Великобритания / Home Box Office (HBO), Television 360, Grok! StudioЖанр: фэнтези, драма, приключенияРежиссер: Алан Тейлор, Марк Майлод, Джереми ПодесваАктеры: Питер Динклэйдж, Лина Хиди, Эмилия Кларк, Кит Харингтон, Николай Костер-Вальдау, Мэйси Уильямс, Софи Тернер, Айзек Хемпстед-Райт, Иэн Глен, Алфи Аллен и др.Перевод: Многоголосый закадровый, профессиональный - LostFilmСубтитры: русские, английскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC80BBD57ABC02C3CA4F2987E62412E9F2CE5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514259   (218137) от 02.12.2021
+
+Bandicam 5.3.3.1893 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bandicam позволяет записать определенную область на экране ПК, или в программе, которая использует графические технологии DirectX/OpenGL. Bandicam поможет вам выполнить видеозапись с высокой степенью сжатия, сохраняя качество видео ближе к оригинальной работе и обеспечивает производительность намного выше других программ, которые обладают подобными функциями.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:144D5B702547C3FC02CCFF9FA2EFF497A6153C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342938   (217538) от 06.12.2019
+
+⚡ Стаж в цифре: с 2021 года в России вводятся электронные трудовые книжки
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Госдума утвердила новый формат трудовых книжек в России. Все желающие до 30 декабря 2020 года смогут перейти на электронную версию этого документа. Соответствующее заявление нужно будет предоставить работодателю до конца следующего года. Если же работник этого не сделает, то трудовая книжка будет, как и раньше, вестись в бумажном формате. В Совете Федерации пояснили, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048108   (217416) от 11.08.2023
+
+Жан-Клод Ван Джонсон / Jean-Claude Van Johnson (2016) WEB-DLRip (сезон 1, серии 1-6 из 6) NewStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217416.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели сериала пытаются убедить зрителя в том, что на самом деле под всем известной фамилией Ван Дамм скрывается спецагент по фамилии Джонсон, который внешний вид актера использует исключительно для работы под прикрытием и успешного выполнения различных секретных операций. А свое очередное задание Джонсон выполняет, снимаясь в необычной версии «Приключений Гекльберри (   Читать дальше...   )Производство: США / Amazon Studios, Scott Free ProductionsЖанр: комедияРежиссер: Питер АтенсиоАктеры: Жан-Клод Ван Дамм, Кэт Фостер, Мойзес Ариас, Бар Пали, Тим Пепер, Филисия Рашад, Карло Рота, Дерен Лерой, Уинстон Джеймс Френсис и др.Перевод: Многоголосый профессиональный - NewStudio (ненормативная лексика)Язык озвучки: Русский, английскийСубтитры: русские (форсированные, на надписи, только 6 серия)
+
+Внимание! Присутствует ненормативная лексика.Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1B793C4158808714AA09E38A09C2D09393B0A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425279   (217275) от 22.11.2020
+
+В браузере Mozilla Firefox появился режим только https
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217275.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Mozilla занялись усовершенствованием уровня безопасности в интернет-обозревателе Firefox, которая совсем скоро обновится до 83-ей версии.Браузер Firefox 83 стал расходовать на 8% меньше оперативной памяти и загружать страницы на 15% быстрее, чем это делал Firefox 82. Mozilla добилась этого за счет оптимизации поддержки JavaScript, попутно добавив в свой браузер (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 745995   (217182) от 24.12.2014
+
+Joe Cocker - Fire it Up Live (2013) BDRip [720p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_217182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Come In Peace
+02. Feelin' Alright
+03. The Letter
+04. When The Night Comes(   Читать дальше...   )Производство: Германия / Sony BMG Music EntertainmentЖанр: Rock, Blues-RockРежиссер: Ник ВикхэмПеревод: ОтсутствуетПродолжительность: 01:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785B98535340476A4BC3ACED1FE1901A3CDEEAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288162   (217149) от 06.12.2019
 
 The Matrix: Path of Neo / Матрица: Путь Нео (2005) [Ru/En] (1.2) Repack R.G. Catalyst
@@ -6,7 +167,7 @@ The Matrix: Path of Neo / Матрица: Путь Нео (2005) [Ru/En] (1.2) R
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217149.jpg" />
+  <img src="Z:/picture/005/save_picture_217149.jpg" />
 </div>
 
 
@@ -32,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217085.jpg" />
+  <img src="Z:/picture/005/save_picture_217085.jpg" />
 </div>
 
 
@@ -58,7 +219,7 @@ Tom Clancy's Rainbow Six: Siege (2015) [Ru/En] (1.1) Repack R.G. Механик�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217037.jpg" />
+  <img src="Z:/picture/005/save_picture_217037.jpg" />
 </div>
 
 
@@ -84,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217020.jpg" />
+  <img src="Z:/picture/005/save_picture_217020.jpg" />
 </div>
 
 
@@ -110,7 +271,7 @@ Dying Light (2015) [Ru/En] (1.6.2/dlc) Repack R.G. Механики [Ultimate Ed
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_217009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_217009.jpg" />
 </div>
 
 
@@ -136,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_216959.jpg" />
+  <img src="Z:/picture/005/save_picture_216959.jpg" />
 </div>
 
 
@@ -162,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216860.jpg" />
 </div>
 
 
@@ -188,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216833.jpg" />
 </div>
 
 
@@ -216,7 +377,7 @@ Test Drive: Ferrari Racing Legends [En/Multi5] (L) 2012 | SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216059.jpg" />
 </div>
 
 
@@ -242,7 +403,7 @@ Darksiders 2: Death Lives [Ru/En] (Repack/u6) 2012 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216019.jpg" />
 </div>
 
 
@@ -270,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215950.jpg" />
 </div>
 
 
@@ -296,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215873.jpg" />
+  <img src="Z:/picture/005/save_picture_215873.jpg" />
 </div>
 
 
@@ -324,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215766.jpg" />
 </div>
 
 
@@ -350,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215747.jpg" />
 </div>
 
 
@@ -377,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215501.jpg" />
+  <img src="Z:/picture/005/save_picture_215501.jpg" />
 </div>
 
 
@@ -404,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215450.jpg" />
+  <img src="Z:/picture/005/save_picture_215450.jpg" />
 </div>
 
 
@@ -432,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215383.jpg" />
+  <img src="Z:/picture/005/save_picture_215383.jpg" />
 </div>
 
 
@@ -458,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215381.jpg" />
+  <img src="Z:/picture/005/save_picture_215381.jpg" />
 </div>
 
 
@@ -484,7 +645,7 @@ Air Explorer Pro 4.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215330.jpg" />
+  <img src="Z:/picture/005/save_picture_215330.jpg" />
 </div>
 
 
@@ -510,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215329.jpg" />
+  <img src="Z:/picture/005/save_picture_215329.jpg" />
 </div>
 
 
@@ -521,162 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACCB7BE6A8DAA7CF53A89C39D94346125F416F5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206586   (215316) от 07.12.2019
-
-Cкин New Navitel 320х240 для Navitel 9.8.187 на WinCE [Ru/En] + спидкамы
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скин New Navitel под разрешение 320х240, для версии Navitel 9.8.187 на WinCE 5.0(6.0). В скине New Navitel реализованы предупреждения разных типов: радарный комплекс фиксации нарушений, начало населенного пункта, камера движения по полосе общественного транспорта, камера Стрелка-СТ, контроль пешеходного перехода, контроль в спину, железнодорожный переезд, стационарный (   Читать дальше...   )Релиз состоялся: 09.02.2018Разработчик: trenntПоддерживаемая ОС: WinCE 5.0 и вышеЯзык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72535219EF3610D4A7B9941F81320FA1527AC6B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850712   (215237) от 25.12.2014
-
-Мажор (2014) HDTVRip (сезон 1, серии 1-12 из 12)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Таких, как наш главный герой Игорь Соколовский, называют мажорами. То есть, детей высокопоставленных, богатых родителей. Наш герой имеет юридическое образование, но ни одного дня не проработал. Безответственный прожигатель жизни. В один из загулов ночью он вступился за приятеля, подрался с полицейскими, выбил табельное оружие у офицера… В итоге отец лишает героя (   Читать дальше...   )Производство: Продюсерский центр "Среда", РоссияЖанр: Криминал, ДрамаРежиссер: Константин СтатскийАктеры: Павел Прилучный, Карина Разумовская, Дмитрий Шевченко, Денис Шведов, Александр Обласов, Никита Панфилов, Анна Андрусенко, Остап Ступка, Александр Дьяченко, Игорь Жижикин, Заза Чантурия, Дмитрий Гаврилов (II), Марина Дьяконенко, Алла Мартынюк, Саак ДурянПродолжительность: ~ 00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF8719E64851945907DF39ED74435108AC28A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085031   (215088) от 20.12.2016
-
-Набор обновлений UpdatePack7R2 16.12.20 [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор позволяет обновлять рабочую систему, а также интегрировать обновления в дистрибутив. Может быть установлен на любую редакцию Windows 7 и Server 2008 R2, любой разрядности и любого языка. Включены обновления для всех версий Internet Explorer, все критические, рекомендуемые и обновления безопасности. Смотрите подробности в списке обновлений.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1275AC3B123AE9FBEB32A83F6B5B3E4738D91DDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084989   (215078) от 20.12.2016
-
-Malwarebytes Anti-Malware Premium 3.0.5.1299 RePack by KpoJIuK [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215078.jpg" />
-</div>
-
-
-###  Подробнее
-
-Malwarebytes Anti-Malware - новая версия программы от создателей RogueRemover Pro, AboutBuster и других популярных утилит, способная находить и удалять разнообразные вредоносные программы. Программа использует эвристический метод сканирования, способный в реальном времени контролировать безопасность системы в целом. Также имеется возможность полного сканирования (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D632C149F2FEFCA54DB6B126BAE4E73CDD0758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 132746   (215023) от 20.12.2016
-
-Ookami to Koushinryou II / Spice and Wolf II / Волчица и пряности (второй сезон) [2009, TV, 12 + Special] HDTV 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение первого сезона: Любит человек побеждать мать-природу. Даже крестьяне из очередного фэнтезийного захолустья предпочли новые посевные технологии надежде на богиню-волчицу по имени Хоро, тысячи лет охранявшую их урожай. Совсем затосковала богиня, но древний договор отменить могли только люди, давно о нем позабывшие. И тут нежданно-негаданно ее освободил (   Читать дальше...   )Жанр: приключения, фэнтезиРежиссер: Такахаси ТакэоПродолжительность: 25 мин
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085036   (215014) от 20.12.2016
-
-XRECODE 3 Build 1.44 + Portable (x64) [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215014.jpg" />
-</div>
-
-
-###  Подробнее
-
-XRECODE 3 – уникальный конвертер аудио , снабженный удобным многоязычным «drag and drop» интерфейсом. Позволяет преобразовывать аудиоданные большинства распространенных форматов в m4a, alac, ape, flac, mp3, mp4 (используя NeroAAC), ogg, raw, wav, wav(rf64), wma, WavPack, mpc, mp2, Speex, ofr, ac3, aiff, tak. Оптимизирован для параллельной обработки нескольких файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8A3A142A14BB994C310AF7BBEC22052FF77C9E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1435647   (142531) от 29.12.2020
+
+Clouds - Clouds Acoustic (2020) Compilation [FLAC|Lossless|Web-DL|tracks] <Atmospheric Doom Metal, Acoustic, Melodic Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142531.jpg" />
+</div>
+
+
+###  Подробнее
+
+A compilation of songs from all the albums in an acoustic version.01. You Went So Silent (8:01)
+02. How Can I Be There (10:10)
+03. Images And Memories (5:53)
+04. Dor (7:58)(   Читать дальше...   )Жанр: Atmospheric Doom Metal, Acoustic, Melodic Doom MetalПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519D206FA6F7B499F3111DD95A1864EB9AB655B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679024   (142528) от 23.11.2023
+
+Kaunis Kuolematon - Mielenvalta (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surussa Uinuva [00:06:24]
+02. Elävältä Haudattu [00:06:40]
+03. Peilikuva [00:06:28]
+04. Mielenvalta [00:06:02](   Читать дальше...   )Жанр: Doom Metal, Gothic Metal, Melodic Death MetalПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B445028B8E85254F74227E1B20682D35FC092011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679030   (142524) от 23.11.2023
+
+Imparity - Tales Of Rust And Bones (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothic Metal, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hermetic Seal Of Light [00:08:25]
+02. Rust And Debris [00:06:52]
+03. Watch The World Go By [00:07:18]
+04. The Truth Of Bones [00:08:10](   Читать дальше...   )Жанр: Doom, Gothic Metal, Female VocalsПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE317E11CDF2023E3A989625530462FE190C4AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587020   (142227) от 17.12.2012
 
 Gorgoroth - Дискография (8 альбомов + Bootleg) (1994-2009) [FLAC/APE|Lossless]<Black Metal>
@@ -6,7 +93,7 @@ Gorgoroth - Дискография (8 альбомов + Bootleg) (1994-2009) [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142227.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Dungortheb - Intended To... (2003) [WavPack|Lossless|image + .cue] <Technical De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142098.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Psycroptic - Symbols of Failure (2006) [WavPack|Lossless|image + .cue] <Technica
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142084.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ GB Arts - The Lake (2000) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141910.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Alcest - 6 Albums, 2 EPs (2005-2019) [FLAC|Lossless|image + .cue] <Shoegaze, Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141799.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Opus VII - Prima Opus Magnum (2013) [FLAC|Lossless|image + .cue] <Melodic Doom, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141662.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Testament - The Formation of Damnation (2008) 2CD, Deluxe Edition [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141490.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ Rienaus - Saatanalle (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140994.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Aegrus - Thy Numinous Darkness (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140980.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Nadiwrath - Circle Of Pest (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140928.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Sarkrista - Summoners of the Serpents Wrath (2017) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140921.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Lyzzard - Savage (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140899.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Midnight - Sweet Death and Ecstasy (2017) [FLAC|Lossless|image + .cue] <Black Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140700.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140700.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Just Before Dawn - Precis innan gryningen (2013) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140554.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Nonpoint - Heartless (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Alternat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140283.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Grand Magus - Sword Songs (2016) Japan [WavPack|Lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140106.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ In Tormentata Quiete - 4 Albums (2005-2017) [FLAC|Lossless|image + .cue] <Folk R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140096.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Soulburn - Noa's D'ark (2020) Limited Edition [FLAC|Lossless|image + .cue] <Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139877.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Destruction - Born To Thrash: Live In Germany (2020) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139573.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139140.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Nail Within - Sound Of Demise (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138545.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Stangala - Klañv (Klanv) (2016) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Ston
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138351.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Stangala - Boued Tousek Hag Traou Mat All (2011) [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138339.jpg" />
 </div>
 
 
@@ -659,94 +746,6 @@ Stangala - Boued Tousek Hag Traou Mat All (2011) [FLAC|Lossless|image + .cue] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A319AA7FFC7F54A8AC5A136C2F2F93815AA408C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273275   (137941) от 31.12.2018
-
-Drive by Wire - Spellbound (2018) [FLAC|Lossless|tracks + .cue] <Psychedelic, Stoner, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glider
-02. Where have you been
-03. Mammoth
-04. Apollo(   Читать дальше...   )Жанр: Psychedelic, Stoner, Blues RockПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116841A0EBC9653CEF504B407BB37CC493FDDF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679314   (137804) от 25.11.2023
-
-Alta Reign - Upon the Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reverent [00:04:24]
-02. No Madness [00:05:45]
-03. Defy [00:04:21]
-04. Between The Eyes [00:04:41](   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844615515F06C6F7E30E3CB6C2072152A9347D23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564722   (137713) от 31.12.2022
-
-Devil’s Train - 3 Studio Albums (2012-2022) 3xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкие хард-рокеры DEVIL’S TRAIN, лидером которых является вокалист MYSTIC PROPHECY и STEEL PANTHER RD Liapakis выпустили на ROAR! Rock Of Angels третий студийный альбом “Ashes & Bones”.
-
-Имея на своем счету 10 лет карьеры и два тепло принятых альбома, европейский ответ на BLACK LABEL SOCIETY, THE DEAD DAISIES и BLACK STONE CHERRY представляет нашему вниманию (   Читать дальше...   )2012 - Devil's Train
-2015 - II
-2022 - Ashes & BonesЖанр: Heavy MetalПродолжительность: 02:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB4FC5DD3FEA6D4E8F5AC09ECF279718E51A83F
 ```
 
 https://mybot314.ru/tekegram_catalog/

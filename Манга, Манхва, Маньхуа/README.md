@@ -7,7 +7,7 @@ Saishuu Densha | The Last Train | Последний поезд (2015-2017) [4 �
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056819.jpg" />
+  <img src="Z:/picture/005/save_picture_1056819.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Given | Дарованный (2013-2023) [10 томов (57 глав + 15 EXTRA)
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056374.jpg" />
+  <img src="Z:/picture/005/save_picture_1056374.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Umibe no Etranger | The Stranger by the Shore | Незнакомец на бер
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055503.jpg" />
+  <img src="Z:/picture/005/save_picture_1055503.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Killer Pedro | Killer Peter | Киллер Педро | Киллер Питер 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046694.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Usemono Yado | Inn of the Lost Things | Дом утрат (2014) [3 тома] [�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026922.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Yunagi no Machi Sakura no Kuni | The Town of Evening Calm, The Country of Cherry
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026879.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Devil Housekeeper | Magic Emperor | Как демон-император ста�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020586.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020586.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ KuroGane / Курогане (2011) [4 томов| 1-31] [Манга] [Русск
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974868.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Yuuhi Romance / Роман Юуи (2007) [1-11 гл.] [Манга] [Русски
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971305.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Kansen Rettou | Pandemic | Пандемия (2008) [1-7 гл.] [Русский] 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950215.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Full Metal Panic! Sigma / Стальная тревога! Сигма  [2005] [�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_939315.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Great Teacher Onizuka / Великий учитель Онидзука (1997) [2
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935873.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Furou Kyoudai | The Furou Siblings | Двойняшки Фуро (2009-2011) [1-
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935832.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Love & Collage  / Любовная мозаика  (2005) [c 1 по 119 глав
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929541.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Grenadier / Гренадёр (2003) [1-37 гл.] [Манга] [complete] [Рус
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_925411.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Chrno Crusade: Mary Magdalene / Крестовый поход Хроно (1999) 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921682.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Tokyo Ghoul | Токийский гуль (2011) [14 томов; 143 главы]
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917896.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_905111.jpg" />
+  <img src="Z:/picture/008/save_picture_905111.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ Tower of God (season 2) / Башня бога (2 сезон) [2011] [0-132 гл.
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880516.jpg" />
+  <img src="Z:/picture/005/save_picture_880516.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ History's Strongest Disciple Kenichi / Сильнейший в истории у
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880487.jpg" />
+  <img src="Z:/picture/005/save_picture_880487.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ Hipira: The Little Vampire / Вампирчик Хипира (2001) [c 1 по 5 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875956.jpg" />
+  <img src="Z:/picture/005/save_picture_875956.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Kamisama ga Uso wo Tsuku / The Gods Tell Lies / Даже Боги лгут (2013
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875328.jpg" />
+  <img src="Z:/picture/005/save_picture_875328.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ TSUBASA: RESERVoir CHRoNiCLE / КРЫЛЬЯ: ХРОНики ИСТоЧНиКА [
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874651.jpg" />
+  <img src="Z:/picture/008/save_picture_874651.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ XXXholic / Триплексоголик [2003-2011] [213 глав] [Манга] 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874250.jpg" />
+  <img src="Z:/picture/008/save_picture_874250.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Gunnm Gaiden | Battle Angel Alita Extra Stories | Сны оружия: Побо�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869816.jpg" />
+  <img src="Z:/picture/008/save_picture_869816.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Gunnm | Battle Angel Alita | Сны оружия [9 томов (52 главы)] 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869538.jpg" />
+  <img src="Z:/picture/008/save_picture_869538.jpg" />
 </div>
 
 

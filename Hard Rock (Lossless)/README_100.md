@@ -1,3 +1,61 @@
+###  Публикация: 1765893   (101304) от 15.12.2024
+
+Brinker - Alloy Rock (1986) Reissue, Remastered, 2023, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Love (4:13)
+02. Just Missing You Tonight (4:09)
+03. Dreams And Yesterday (3:51)
+04. Feelin' (4:10)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ADF6700E0CA182D2A17030B3A648CA003DD6423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765885   (101298) от 15.12.2024
+
+Gotus - Gotus (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To The Mountain (3:49)
+02. Beware Of The Fire (3:57)
+03. Love Will Find Its Way (5:52)
+04. Undercover (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC069D68A35BD8E2D69009141949DC661869FFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769793   (100563) от 30.12.2024
 
 Queen - The Works (1984) Japanese Edition, SHM-CD, Reissue, Remastered, Repress, 2024, EMI [FLAC|Lossless|image + .cue] <Hard Rock, Pop Rock>
@@ -6,7 +64,7 @@ Queen - The Works (1984) Japanese Edition, SHM-CD, Reissue, Remastered, Repress,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100563.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Geordie - Unreleased Tapes (2005)[APE|lossless] <Classic Rock / Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_99670.jpg" />
+  <img src="Z:/picture/005/save_picture_99670.jpg" />
 </div>
 
 
@@ -65,7 +123,7 @@ Warhorse - Live At Woods (2025) 2xCD, Japanese Edition [FLAC|Lossless|image + .c
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98563.jpg" />
 </div>
 
 
@@ -97,7 +155,7 @@ Doro - B-sides & Rarities (2007) 2CD /2007, No Remorse Records/[FLAC|Lossless]<H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_96159.jpg" />
+  <img src="Z:/picture/005/save_picture_96159.jpg" />
 </div>
 
 
@@ -132,7 +190,7 @@ Bonfire - Don't touch the light (1986) 1-st Press / 1986, Sonopress / [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95357.jpg" />
+  <img src="Z:/picture/005/save_picture_95357.jpg" />
 </div>
 
 
@@ -166,7 +224,7 @@ Deep Purple & Friends - Purple And Other Colours (2003) [FLAC|Lossless]<Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95347.jpg" />
+  <img src="Z:/picture/005/save_picture_95347.jpg" />
 </div>
 
 
@@ -199,7 +257,7 @@ Yngwie Malmsteen - Marching Out (1984) /1994, Polydor/ [FLAC|Lossless]<Heavy/Pow
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95309.jpg" />
+  <img src="Z:/picture/005/save_picture_95309.jpg" />
 </div>
 
 
@@ -234,7 +292,7 @@ Crane - Refuge (2011) [FLAC|Lossless]<Hard Rock/Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_95254.jpg" />
+  <img src="Z:/picture/005/save_picture_95254.jpg" />
 </div>
 
 
@@ -269,7 +327,7 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_86105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86105.jpg" />
 </div>
 
 
@@ -304,7 +362,7 @@ Fox - 2012 (2012) [FLAC|Lossless]<Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_85870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85870.jpg" />
 </div>
 
 
@@ -339,7 +397,7 @@ Uriah Heep - 10 Albums (1970-1977) /Teichiku, Japan/ [FLAC|Lossless]<Progressive
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84765.jpg" />
 </div>
 
 
@@ -365,7 +423,7 @@ Manny Charlton Band (ex-Nazareth) - Stonkin' (2000) [FLAC|Lossless]<Classic Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83259.jpg" />
 </div>
 
 
@@ -399,7 +457,7 @@ Lee Small - Jamaica Inn (2012) [FLAC|lossless]<Hard Rock / Blues>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81656.jpg" />
 </div>
 
 
@@ -434,7 +492,7 @@ Sweet (The sweet) - 4 альбома (1974-1982) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81042.jpg" />
 </div>
 
 
@@ -464,7 +522,7 @@ Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79149.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Kiss - 5 Albums (1978-1982) [FLAC|Lossless]<Hard Rock, Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78128.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ Van Halen - A Different Kind Of Truth (2012) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76740.jpg" />
 </div>
 
 
@@ -570,7 +628,7 @@ Deep Purple - Nobody's Perfect (1988) 2SHM-CD Set /2011 Universal Music Japan/ [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76501.jpg" />
 </div>
 
 
@@ -606,7 +664,7 @@ Alice Cooper - 12 Albums (1969 -1978) Mini LP SHM-CD / 2011, Warner Music Japan 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75544.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75544.jpg" />
 </div>
 
 
@@ -641,7 +699,7 @@ Nazty Gunz - Hot Mess (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71885.jpg" />
 </div>
 
 
@@ -670,7 +728,7 @@ Reog - Reog (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71849.jpg" />
 </div>
 
 
@@ -699,7 +757,7 @@ Spencer Ezell - Ringside Seats (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71722.jpg" />
 </div>
 
 
@@ -728,7 +786,7 @@ The Big Deal - Electrified (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71690.jpg" />
 </div>
 
 
@@ -757,7 +815,7 @@ Devin Townsend - PowerNerd (2024) 2 x CD, Limited Edition [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71657.jpg" />
 </div>
 
 
@@ -771,64 +829,6 @@ Devin Townsend - PowerNerd (2024) 2 x CD, Limited Edition [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D866418BE53A02625FF4D64D205EC4DAC12FBA4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773917   (71617) от 18.01.2025
-
-Landfall - Wide Open Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tree Of Life
-02. SOS
-03. When The Curtain Falls
-04. Running In Circles(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0689CF8B2A750C9216937647CE429DCF6363D839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773961   (71578) от 19.01.2025
-
-One Day Remains - Amongst Beasts & Animals (2025) [FLAC|Lossless|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blame [00:04:47]
-02. Blind Leading the Blind [00:05:07]
-03. Came Back Around (Revisited) [00:04:03]
-04. Down (Revisited) [00:04:32](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D5484A693CFE04D7A72A08E8A31BF819550A93
 ```
 
 https://mybot314.ru/tekegram_catalog/

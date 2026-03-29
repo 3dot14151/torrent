@@ -6,7 +6,7 @@ ReviverSoft PC Reviver 2.6.1.8 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859112.jpg" />
+  <img src="Z:/picture/008/save_picture_859112.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Google Chrome 49.0.2623.108 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859106.jpg" />
+  <img src="Z:/picture/008/save_picture_859106.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - The London Studio Orchestra and Singers - For Lovers Only (1997) 3 CD Box S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859105.jpg" />
+  <img src="Z:/picture/008/save_picture_859105.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Titan FTP Server Enterprise 2016 Build 2662 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859104.jpg" />
+  <img src="Z:/picture/008/save_picture_859104.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Artweaver Free 5.1.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859101.jpg" />
+  <img src="Z:/picture/008/save_picture_859101.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Psychedelic Goa Trance Vol.2 (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859093.jpg" />
+  <img src="Z:/picture/008/save_picture_859093.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859091.jpg" />
+  <img src="Z:/picture/008/save_picture_859091.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859087.jpg" />
+  <img src="Z:/picture/008/save_picture_859087.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859086.jpg" />
+  <img src="Z:/picture/008/save_picture_859086.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859084.jpg" />
+  <img src="Z:/picture/008/save_picture_859084.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859077.jpg" />
+  <img src="Z:/picture/008/save_picture_859077.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Google Chrome 49.0.2623.108 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859061.jpg" />
+  <img src="Z:/picture/008/save_picture_859061.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Grids for Instagram 6.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859028.jpg" />
+  <img src="Z:/picture/008/save_picture_859028.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859002.jpg" />
+  <img src="Z:/picture/008/save_picture_859002.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859001.jpg" />
+  <img src="Z:/picture/008/save_picture_859001.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859000.jpg" />
+  <img src="Z:/picture/008/save_picture_859000.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858986.jpg" />
+  <img src="Z:/picture/008/save_picture_858986.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Daum PotPlayer 1.6.59347 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858985.jpg" />
+  <img src="Z:/picture/008/save_picture_858985.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Skype 7.22.32.104 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858984.jpg" />
+  <img src="Z:/picture/008/save_picture_858984.jpg" />
 </div>
 
 
@@ -516,7 +516,7 @@ Google Chrome 49.0.2623.108 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858981.jpg" />
+  <img src="Z:/picture/008/save_picture_858981.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858974.jpg" />
+  <img src="Z:/picture/008/save_picture_858974.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858973.jpg" />
+  <img src="Z:/picture/008/save_picture_858973.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858954.jpg" />
+  <img src="Z:/picture/008/save_picture_858954.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ save2pc Ultimate 5.59.1596 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858924.jpg" />
+  <img src="Z:/picture/008/save_picture_858924.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Movist Pro 2.2.17 (build 141) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858918.jpg" />
+  <img src="Z:/picture/008/save_picture_858918.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Trojan Killer 2.1.21 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858915.jpg" />
+  <img src="Z:/picture/008/save_picture_858915.jpg" />
 </div>
 
 

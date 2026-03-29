@@ -1,3 +1,119 @@
+###  Публикация: 802625   (626611) от 06.07.2014
+
+Diana Krall - The Very Best Of Diana Krall (2007), Limited Canadian Edition [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'S Wonderful 4:26
+02. Peel Me A Grape 5:49
+03. Pick Yourself Up 3:01
+04. Frim Fram Sauce 5:00(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:059C094309B73986BA7807BF173001295C6E7834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229488   (626571) от 06.06.2018
+
+Chet Baker - For Lovers (1952 - 1959) 3CD, 2018, Jazz Images [FLAC|Lossless|image + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626571.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. My Funny Valentine #1 [2:20]
+02. I Fall In Love Too Easily #1 [2:06]
+03. How Long Has This Been Going On? [4:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 03:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCEEE959CAE44218AAAE2CD56E849D1716D1ED3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294810   (626269) от 09.04.2019
+
+Jan Johansson - Musik genom fyra sekler med Jan Johansson (1995) 2CD, Heptagon Records [FLAC|Lossless|tracks + .cue] <Swedish Jazz, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626269.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Vem kan segla forutan vind [3:20]
+02. Herr Peder och Malfred [2:06]
+03. Vi skall stalla till med en roliger dans [3:13](   Читать дальше...   )Жанр: Swedish Jazz, Post-Bop, Piano JazzПродолжительность: 01:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255CB74E7879E4BB0A4B168217F80CAB74B93B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294711   (626266) от 09.04.2019
+
+Natalie Cressman & Ian Faquini - Setting Rays Of Summer (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_626266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Terê (4:30)
+02. L’Aube (2:05)
+03. Lenga Lenga (3:06)
+04. Debandada (4:35)(   Читать дальше...   )Жанр: Jazz, Brazilian JazzПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599F2B854EF5ABA86598E48038031FEAE8ED66B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543871   (626092) от 13.04.2022
 
 Melvin Rhyne - Stick To The Kick (1995) Criss Cross Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
@@ -6,7 +122,7 @@ Melvin Rhyne - Stick To The Kick (1995) Criss Cross Jazz [FLAC|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626092.jpg" />
+  <img src="Z:/picture/008/save_picture_626092.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Johnny Hartman - The Tokyo Albums (1972) 2005, Gambit Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626065.jpg" />
+  <img src="Z:/picture/008/save_picture_626065.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Jamie Saft, Steve Swallow, Bobby Previte - Loneliness Road (2017) RareNoiseRecor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626062.jpg" />
+  <img src="Z:/picture/008/save_picture_626062.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Sylvain Beuf - Time Feel (2021) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625960.jpg" />
+  <img src="Z:/picture/008/save_picture_625960.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Stanley Turrentine - The Blue Note Stanley Turrentine Quintet & Sextet Studio Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625949.jpg" />
+  <img src="Z:/picture/008/save_picture_625949.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ L. Subramaniam - Fantasy Without Limits (1980) Remaster, 1985, Trend [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625938.jpg" />
+  <img src="Z:/picture/008/save_picture_625938.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Jimmy Smith - Peter & The Wolf (1966) Remaster, 1999, Verve Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625936.jpg" />
+  <img src="Z:/picture/008/save_picture_625936.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Billy Taylor - It's A Matter Of Pride (1994) [FLAC|Lossless]<Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625233.jpg" />
+  <img src="Z:/picture/005/save_picture_625233.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Billy Pierce - One For Chuck (1991) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625224.jpg" />
+  <img src="Z:/picture/005/save_picture_625224.jpg" />
 </div>
 
 
@@ -279,7 +395,7 @@ Blake Aaron - Desire (2007) [FLAC|Lossless]<Smooth, Pop-Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625044.jpg" />
+  <img src="Z:/picture/005/save_picture_625044.jpg" />
 </div>
 
 
@@ -314,7 +430,7 @@ Blue Knights - Night Talk (2000) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_625031.jpg" />
+  <img src="Z:/picture/005/save_picture_625031.jpg" />
 </div>
 
 
@@ -349,7 +465,7 @@ Mount Everest Trio - Waves from Albert Ayler (1977) Unheard Music[APE|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624773.jpg" />
+  <img src="Z:/picture/008/save_picture_624773.jpg" />
 </div>
 
 
@@ -378,7 +494,7 @@ Sebastien Texier & Christophe Marguet 4tet - For Travellers Only (2018) Cristal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624544.jpg" />
+  <img src="Z:/picture/008/save_picture_624544.jpg" />
 </div>
 
 
@@ -407,7 +523,7 @@ Sam Most - Plays Bird, Bud, Monk & Miles (1957) /2014, Solid Records/[FLAC|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624332.jpg" />
+  <img src="Z:/picture/008/save_picture_624332.jpg" />
 </div>
 
 
@@ -436,7 +552,7 @@ Shirley Scott Trio - For Members Only & Great Scott!! (1963-1964) /2011, Verve/[
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624328.jpg" />
+  <img src="Z:/picture/008/save_picture_624328.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ Ellis Marsalis - Heart Of Gold (1992) Columbia [FLAC|Lossless|tracks + .cue] <Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624257.jpg" />
+  <img src="Z:/picture/008/save_picture_624257.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ Benny Waters - Live At The Pawnshop (1976) 1999, Opus 3 Records [FLAC|Lossless|i
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624256.jpg" />
+  <img src="Z:/picture/008/save_picture_624256.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ Benny Waters - From Paradise (Small's) To Shangri-La (1989) Muse Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624123.jpg" />
+  <img src="Z:/picture/008/save_picture_624123.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ Jenny Scheinman - Mischief & Mayhem (2012) Tzadik [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624034.jpg" />
+  <img src="Z:/picture/008/save_picture_624034.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ Anthony Wilson - Anthony Wilson (1997) Mama Foundation [FLAC|Lossless|image + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623980.jpg" />
+  <img src="Z:/picture/008/save_picture_623980.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ Dexter Gordon - Four Classic Albums: Second Set (1961, 1962) 2CD, 2019, Avid Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623975.jpg" />
+  <img src="Z:/picture/008/save_picture_623975.jpg" />
 </div>
 
 
@@ -639,7 +755,7 @@ Christian McBride & Inside Straight - Live At The Village Vanguard (2014) 2021, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623924.jpg" />
+  <img src="Z:/picture/008/save_picture_623924.jpg" />
 </div>
 
 
@@ -653,122 +769,6 @@ Christian McBride & Inside Straight - Live At The Village Vanguard (2014) 2021, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF74574346318CD678A6DCCB5A8FE06B2D9EF859
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145092   (623795) от 24.06.2017
-
-Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A New Mission
-02. Soulsalicious
-03. Senorita Bonita
-04. Cancun (A Tribute To Henry Mancini)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Bossa NovaПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035867   (622852) от 19.07.2016
-
-Anthony Davis - Of Blues And Dreams (1978) Sackville[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Of Blues And Dreams [05:00]
- 02.Suite For Another World - i. Lethe [11:42]
- 03.Suite For Another World - ii. Graef [06:10]
- 04.Suite For Another World - iii. Madame Xola [10:57](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5A2544FA3863CB264E3A94041A45C2A23CC5AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036061   (622825) от 19.07.2016
-
-The Carla Bley Band - Musique Mecanique (1978) 1979, ECM Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Experimental Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.440 [09:50]
- 02.Jesus Maria And Other Spanish Strains [11:55]
- 03.Musique Mecanique I [09:47]
- 04.Musique Mecanique II (At Midnight) [07:03](   Читать дальше...   )Жанр: Post-Bop, Experimental Big BandПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33296D03C87A70EAAEB70E30E68A5CD6984C64EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036173   (622759) от 19.07.2016
-
-Ina Forsman - Ina Forsman (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Jazz, Retro Pop Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanging Loose (3:19)
-02. Pretty Messed Up (3:46)
-03. Bubbly Kisses (5:23)
-04. Farewell (4:01)(   Читать дальше...   )Жанр: Blues, Jazz, Retro Pop RockПродолжительность: 0:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A470F7DFF449AC54BBBB7493DFD30646D4AAE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

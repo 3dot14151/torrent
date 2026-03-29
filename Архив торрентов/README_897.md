@@ -6,7 +6,7 @@ VA - Hands Up Dance Vol. 1 (14.03.2011) [MP3|320 kbps]<Trance, Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842847.jpg" />
+  <img src="Z:/picture/008/save_picture_842847.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Sky Technology - Next Visions (2011) [MP3|320 kbps] <Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842846.jpg" />
+  <img src="Z:/picture/008/save_picture_842846.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ VA - Хмельной Хит (2011) [MP3|128 kbps]<Pop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842842.jpg" />
+  <img src="Z:/picture/008/save_picture_842842.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Cakewalk SONAR Platinum 23.2.0 Build 45 (2017.02) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842834.jpg" />
+  <img src="Z:/picture/008/save_picture_842834.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Xinorbis 8.0.6 Free + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842833.jpg" />
+  <img src="Z:/picture/008/save_picture_842833.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ O&O ShutUp10 1.4.1387 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842832.jpg" />
+  <img src="Z:/picture/008/save_picture_842832.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ Inkscape 0.92.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842821.jpg" />
+  <img src="Z:/picture/008/save_picture_842821.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Transmission 1.8.4-seq [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842819.jpg" />
+  <img src="Z:/picture/008/save_picture_842819.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ YouTube By Click Premium 2.2.127 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842804.jpg" />
+  <img src="Z:/picture/008/save_picture_842804.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ LosslessCut 3.21.0 Portable (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842798.jpg" />
+  <img src="Z:/picture/008/save_picture_842798.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ SwitchResX 4.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842792.jpg" />
+  <img src="Z:/picture/008/save_picture_842792.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ Multi Commander Full Edition 9.7 Build 2590 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842791.jpg" />
+  <img src="Z:/picture/008/save_picture_842791.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Bishoujo Senshi Sailor Moon Super S | Красавица-Воин Сейлор �
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842789.jpg" />
+  <img src="Z:/picture/008/save_picture_842789.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842761.jpg" />
+  <img src="Z:/picture/008/save_picture_842761.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Haldolium - GLW - DRK (2011) [MP3|~202 kbps] <Psytrance, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842759.jpg" />
+  <img src="Z:/picture/008/save_picture_842759.jpg" />
 </div>
 
 
@@ -416,7 +416,7 @@ B.B. King - Martin Scorsese Presents  The Blues (2003) [FLAC|Lossless]<Modern El
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842750.jpg" />
+  <img src="Z:/picture/008/save_picture_842750.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Unknown Error - Knight Time EP (2010) [MP3|192-320 kbps]<Drum'n'Bass, Dub Step>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842748.jpg" />
+  <img src="Z:/picture/008/save_picture_842748.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Opera 11.10 build 2040 Alpha [Мультиязычный (русский при�
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842747.jpg" />
+  <img src="Z:/picture/008/save_picture_842747.jpg" />
 </div>
 
 
@@ -508,7 +508,7 @@ Reg Organizer 7.35 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842730.jpg" />
+  <img src="Z:/picture/008/save_picture_842730.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ PDF-XChange Viewer Pro 2.5.321.0 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842705.jpg" />
+  <img src="Z:/picture/008/save_picture_842705.jpg" />
 </div>
 
 
@@ -560,7 +560,7 @@ mp3DirectCut 2.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842696.jpg" />
+  <img src="Z:/picture/008/save_picture_842696.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Hard Disk Sentinel Pro 5.00 Build 8557 Final RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842689.jpg" />
+  <img src="Z:/picture/008/save_picture_842689.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ PDF-XChange Editor Plus 6.0.321.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842687.jpg" />
+  <img src="Z:/picture/008/save_picture_842687.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ WinToUSB Technician 5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842674.jpg" />
+  <img src="Z:/picture/008/save_picture_842674.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ NoteBurner Spotify Music Converter 1.1.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842667.jpg" />
+  <img src="Z:/picture/008/save_picture_842667.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ SoftPerfect RAM Disk 4.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842665.jpg" />
+  <img src="Z:/picture/008/save_picture_842665.jpg" />
 </div>
 
 

@@ -1,3 +1,111 @@
+###  Публикация: 1566652   (480421) от 30.07.2022
+
+PhoneRescue for iOS 4.2.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_480421.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.07.2022Разработчик: © 2022 iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF7025ACBC9206DD40A6AEE8D4B6182BD24655A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566826   (480274) от 30.07.2022
+
+Things 3 v3.15.19 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_480274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2022Разработчик: © 2007-2022 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA8F99DB6D9DEE31531258474FC9CAF1B3BF7727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566687   (480265) от 30.07.2022
+
+Bartender 4 v4.2.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_480265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все «лишние» иконки. В настройках приложения можно указать, какие объекты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.06.2022Разработчик: © 2021 Surtees Studios Ltd.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69C3FBB2ED476762727629AA611F1569B5D03F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244491   (480235) от 02.09.2018
+
+Fenêtre 0.6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_480235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fenêtre - Держите окно открытым, всегда поверх всего остального. Программа позволяет использовать режим картинка в картинке на вашем Mac. Fenêtre позволяет визуализировать видео, изображение или веб-сайт.
+
+Окно программы останется открытым поверх остальных. Функционал программы поможет Вам сосредоточиться на своей основной деятельности.Тип издания: macOS SoftwareРелиз состоялся: 30.08.2018Разработчик: Yoann MoinetПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09AF4A3C22877463DEB0F28680AE51BDD729C137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244540   (480166) от 02.09.2018
 
 Direct Mail 5.3.2 [Multi/Ru]
@@ -6,7 +114,7 @@ Direct Mail 5.3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480166.jpg" />
+  <img src="Z:/picture/008/save_picture_480166.jpg" />
 </div>
 
 
@@ -33,7 +141,7 @@ Watercolor Studio Pro 1.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480162.jpg" />
+  <img src="Z:/picture/008/save_picture_480162.jpg" />
 </div>
 
 
@@ -59,7 +167,7 @@ Alfred 3 Powerpack 3.7 (931)b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480158.jpg" />
+  <img src="Z:/picture/008/save_picture_480158.jpg" />
 </div>
 
 
@@ -85,7 +193,7 @@ Principle 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480151.jpg" />
+  <img src="Z:/picture/008/save_picture_480151.jpg" />
 </div>
 
 
@@ -112,7 +220,7 @@ Things 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479950.jpg" />
+  <img src="Z:/picture/008/save_picture_479950.jpg" />
 </div>
 
 
@@ -140,7 +248,7 @@ Scrivener 3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479931.jpg" />
+  <img src="Z:/picture/008/save_picture_479931.jpg" />
 </div>
 
 
@@ -167,7 +275,7 @@ iMazing 2.6.4 (9302) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479928.jpg" />
+  <img src="Z:/picture/008/save_picture_479928.jpg" />
 </div>
 
 
@@ -194,7 +302,7 @@ Magnet Pro 2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479926.jpg" />
+  <img src="Z:/picture/008/save_picture_479926.jpg" />
 </div>
 
 
@@ -220,7 +328,7 @@ HD Video Converter Movavi 5.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479813.jpg" />
+  <img src="Z:/picture/008/save_picture_479813.jpg" />
 </div>
 
 
@@ -247,7 +355,7 @@ Network Radar 2.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479628.jpg" />
+  <img src="Z:/picture/008/save_picture_479628.jpg" />
 </div>
 
 
@@ -275,7 +383,7 @@ Amadeus Pro 2.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479614.jpg" />
+  <img src="Z:/picture/008/save_picture_479614.jpg" />
 </div>
 
 
@@ -301,7 +409,7 @@ Wolfram Mathematica 10.0.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479418.jpg" />
+  <img src="Z:/picture/008/save_picture_479418.jpg" />
 </div>
 
 
@@ -330,7 +438,7 @@ Amadeus Pro 2.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479406.jpg" />
+  <img src="Z:/picture/008/save_picture_479406.jpg" />
 </div>
 
 
@@ -356,7 +464,7 @@ A Better Finder Rename 11 v11.21 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479387.jpg" />
+  <img src="Z:/picture/008/save_picture_479387.jpg" />
 </div>
 
 
@@ -383,7 +491,7 @@ LaunchBar 6.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479378.jpg" />
+  <img src="Z:/picture/008/save_picture_479378.jpg" />
 </div>
 
 
@@ -409,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479374.jpg" />
+  <img src="Z:/picture/008/save_picture_479374.jpg" />
 </div>
 
 
@@ -435,7 +543,7 @@ Lyn 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479298.jpg" />
+  <img src="Z:/picture/008/save_picture_479298.jpg" />
 </div>
 
 
@@ -463,7 +571,7 @@ Micromat Drive Scope 1.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479280.jpg" />
+  <img src="Z:/picture/008/save_picture_479280.jpg" />
 </div>
 
 
@@ -489,7 +597,7 @@ Alfred 4 Powerpack 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479263.jpg" />
+  <img src="Z:/picture/008/save_picture_479263.jpg" />
 </div>
 
 
@@ -517,7 +625,7 @@ TotalFinder 1.8.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479172.jpg" />
+  <img src="Z:/picture/008/save_picture_479172.jpg" />
 </div>
 
 
@@ -545,7 +653,7 @@ Adguard 2.5.0 (849) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479140.jpg" />
+  <img src="Z:/picture/008/save_picture_479140.jpg" />
 </div>
 
 
@@ -571,7 +679,7 @@ Sketch 40.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479043.jpg" />
+  <img src="Z:/picture/008/save_picture_479043.jpg" />
 </div>
 
 
@@ -583,111 +691,6 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44539F4CB94ADC91BBDBD40FB3AC23B210C1CEE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566861   (478653) от 31.07.2022
-
-TextMan 1.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478653.jpg" />
-</div>
-
-
-###  Подробнее
-
-С приложением TextMan вы избавитесь с рутиной работой по набору текста на веб-сайтах, в файлах формата PDF, изображениях или системных пользовательских интерфейсах. Просто выберите область экрана так же, как если бы вы делали снимок экрана, и найдите весь распознанный текст в буфере обмена, готовый для вставки куда угодно.Тип издания: macOS SoftwareРелиз состоялся: 27.07.2022Разработчик: © 2022 KF Interactive GmbHПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60C9F434367545697A72E9931E3957C1576CD0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566897   (478651) от 31.07.2022
-
-BusyContacts 2022.3.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478651.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusyContacts является менеджером контактов для OS X, что позволяет создавать, находить и управлять контактами более быстрым и эффективным способом.
-BusyContacts приносит в управление контактами те же возможности, мощность, гибкость, а также обмен ими, что и для пользователей BusyCal в управлении своими календарями. Более того, BusyContacts интегрируется с BusyCal (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2022Разработчик: © 2007-2022 Busy AppsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911B5C1E64E86612AD4C633A11C253ABC3440FCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566858   (478650) от 31.07.2022
-
-BarLinks: Menu Bar Bookmarks 1.0.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478650.jpg" />
-</div>
-
-
-###  Подробнее
-
-BarLinks позволяет хранить, быстро находить и открывать закладки прямо из строки меню. Он открывает любую ссылку, которую вы сохраняете, в новой вкладке с помощью браузера по умолчанию. Вам необязательно использовать браузер, чтобы открывать закладки из BarLinks. Утилита автоматически переключится на ваш браузер, пока вы используете любое другое приложение на своем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.07.2022Разработчик: © Eric LesrimaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54332462771C37A4C4DE4873C0EEAC81DAE74CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566862   (478646) от 31.07.2022
-
-rcmd • App Switcher 2.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переосмысленная вкладка Command. Мы переосмыслили Command-Tab, чтобы переключать приложения без суеты.Тип издания: macOS SoftwareРелиз состоялся: 28.07.2022Разработчик: © 2022 The low-tech guysПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B7E036E20529FE47DBD1AB67E9C6E1C391248B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

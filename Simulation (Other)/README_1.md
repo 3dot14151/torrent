@@ -1,3 +1,29 @@
+###  Публикация: 1843437   (1049410) от 20.12.2025
+
+Candy Shop Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1049410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отправьтесь в сладкое приключение, погрузившись в мир кондитерского предпринимательства. Откройте собственную кондитерскую и погрузитесь в восхитительный мир конфет, шоколада и сладких лакомств. Раскройте свой творческий потенциал на кухне и приготовьте аппетитную выпечку, которая порадует вкусовые рецепторы. От восхитительного шоколада до неотразимых жевательных (   Читать дальше...   )Тип издания: RepackРазработчик: Games IncubatorЖанр: Казуальные игры, Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39702DC70D1CB2BF967030559022B784F4F5A50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843424   (1049408) от 20.12.2025
 
 Supercar Collection Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
@@ -6,7 +32,7 @@ Supercar Collection Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049408.jpg" />
+  <img src="Z:/picture/008/save_picture_1049408.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Firefighting Simulator: Ignite (2025) [Ru/Multi] (1.003.28253.87380/dlc) Repack 
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049276.jpg" />
+  <img src="Z:/picture/008/save_picture_1049276.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Store Wars: Multiplayer Shop Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049231.jpg" />
+  <img src="Z:/picture/008/save_picture_1049231.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Xenopurge (2025) [Ru/Multi] (Build 20880157) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049227.jpg" />
+  <img src="Z:/picture/008/save_picture_1049227.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Star Ores Inc. (2025) [Ru/Multi] (1.0.23) License GOG [Book Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049099.jpg" />
+  <img src="Z:/picture/008/save_picture_1049099.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Star Ores Inc. (2025) [Ru/Multi] (1.0.23) Repack FitGirl [Book Bundle]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049098.jpg" />
+  <img src="Z:/picture/008/save_picture_1049098.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.132/dlc) Scene Rune [Digital Collect
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049093.jpg" />
+  <img src="Z:/picture/008/save_picture_1049093.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ MyVoiceZoo (2025) [Ru/Multi] (build 20860342) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048623.jpg" />
+  <img src="Z:/picture/008/save_picture_1048623.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Driving Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048517.jpg" />
+  <img src="Z:/picture/008/save_picture_1048517.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Driving Life (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048511.jpg" />
+  <img src="Z:/picture/008/save_picture_1048511.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Barotrauma (2023) [Ru/Multi] (1.11.4.1/dlc) Repack Other s
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048055.jpg" />
+  <img src="Z:/picture/008/save_picture_1048055.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.10.0.12/dlc) Repack FitGirl [Ultimate
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047928.jpg" />
+  <img src="Z:/picture/008/save_picture_1047928.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Snow Plowing Simulator (2024) [Ru/Multi] (build 20948151/dlc) Repack seleZen
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047790.jpg" />
+  <img src="Z:/picture/008/save_picture_1047790.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Restaurats (2025) [Ru/Multi] (0.19.0.19/dlc) Repack FitGirl [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047671.jpg" />
+  <img src="Z:/picture/008/save_picture_1047671.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Crime Simulator (2025) [Ru/Multi] (1.21 HF) Repack Let'sРlay
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046922.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.13.378/dlc) Repack Necros
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046641.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Bridge Constructor Studio (2025) [Ru/Multi] (1.0r11-fix) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046504.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ Shortest Trip to Earth (2019) [En] (1.3.7/dlc) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046378.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Workshop Simulator (2022) [Ru/Multi] (1.3.13977) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046072.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Atomicrops (2020) [Ru/Multi] (1.6.1f1-g/dlc) License GOG [Deluxe Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045782.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Moonshine Inc (2022) [Multi] (1.0.5) License GOG [Supporter Edition]
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044780.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Tortuga - A Pirate's Tale (2023) [Ru/Multi] (1.0.1.46268) Repack DjDI
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044263.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Bus Driving Sim 22 (2023) [Multi] (1.0) License TENOKE
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043199.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Per Aspera (2020) [Ru/Multi] (1.8.1.30444.2023.2.2/dlc) License GOG [Deluxe Edit
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041510.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Factorio (2020) [Ru/Multi] (1.1.35) License CODEX
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041229.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041229.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Factorio — это игра про добычу ресурсов, постро�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D41F0A08D242051B8EAE34B748DC2CB161E4D79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611640   (1040970) от 12.02.2023
-
-Garbage Truck Simulator (2023) [Ru/En] (1.0) License Tenoke
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Garbage Truck Simulator позволяет геймерам почувствовать себя мусорщиками. Игра является трехмерным симулятором водителя мусоровоза с видом от первого лица. В ней надо ездить на машине по улицам, останавливаться у жилых домов, заведений и предприятий и забирать выставленный на тротуаре мусор. Также можно покидать транспорт и гулять по дороге.Тип издания: LicenseРазработчик: Darius BodeЖанр: Казуальные игры, СимуляторыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE38F0EBB75F18D40B5F22D1316B18C05DBA75F
 ```
 
 https://mybot314.ru/tekegram_catalog/

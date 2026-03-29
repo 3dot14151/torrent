@@ -1,3 +1,109 @@
+###  Публикация: 1542269   (639232) от 06.04.2022
+
+Blocs 4.5.0.b4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blocs - простой способ создания красивых сайтов, который избавляет вас от необходимости написания кода вручную. Blocs генерирует хорошее качество кода без лишнего "мусора" и обеспечивает новый уровень работы, помогая Вам сосредоточиться на визуальном создании своего эксклюзивного дизайна.
+Кодирование без программирования - Вам не нужно понимать или использовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2022Разработчик: © 2022 BlocsAppПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68D4EE9539387AD5A0FED941245B64C0F2CF663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542412   (639229) от 06.04.2022
+
+RAW Power 3.4.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.03.2022Разработчик: © 2021 Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E54602C55D25EB5686D11493654F897346887F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293174   (639202) от 02.04.2019
+
+Permute 3 v3.1.7 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 26.03.2019Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DC72C500C4DCCAA1CF878A87A979C921046849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293172   (639194) от 02.04.2019
+
+Postbox v6.1.13 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_639194.jpg" />
+</div>
+
+
+###  Подробнее
+
+Postbox является почтовым клиентом, в основу создания которого лёг код Mozilla Thunderbird с большими функциональными возможностями. Во-первых, программа будет весьма полезна для тех, кто часто отправляет и получает письма, содержащие вложения – документы, фотографии и пр. Просматривать фотографии, которые вам прислали, можно непосредственно в программе, а потом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.04.2019Разработчик: Postbox, Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A80A5D5C93E3CEAB75E5DE1FACC848D997439C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907248   (639174) от 11.06.2015
 
 ProPresenter 6.0.3 [En]
@@ -6,7 +112,7 @@ ProPresenter 6.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639174.jpg" />
+  <img src="Z:/picture/008/save_picture_639174.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Lord of the Ring:  War in the North v. 1.0 (2011) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639172.jpg" />
+  <img src="Z:/picture/008/save_picture_639172.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ KeepVid Pro 6.2.0.15 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639081.jpg" />
+  <img src="Z:/picture/008/save_picture_639081.jpg" />
 </div>
 
 
@@ -88,7 +194,7 @@ Disk Drill Entreprise 3.2.831 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639076.jpg" />
+  <img src="Z:/picture/008/save_picture_639076.jpg" />
 </div>
 
 
@@ -115,7 +221,7 @@ MAMP & MAMP PRO 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639013.jpg" />
+  <img src="Z:/picture/008/save_picture_639013.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ WidsMob Viewer Pro 1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638938.jpg" />
+  <img src="Z:/picture/008/save_picture_638938.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ Hype 4 Pro v4.1.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638842.jpg" />
+  <img src="Z:/picture/008/save_picture_638842.jpg" />
 </div>
 
 
@@ -193,7 +299,7 @@ Bartender 3 v3.0.63b [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638714.jpg" />
+  <img src="Z:/picture/008/save_picture_638714.jpg" />
 </div>
 
 
@@ -220,7 +326,7 @@ Cookie 5.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638239.jpg" />
+  <img src="Z:/picture/008/save_picture_638239.jpg" />
 </div>
 
 
@@ -249,7 +355,7 @@ CodeRunner 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638150.jpg" />
+  <img src="Z:/picture/008/save_picture_638150.jpg" />
 </div>
 
 
@@ -278,7 +384,7 @@ AppDelete 4.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637773.jpg" />
+  <img src="Z:/picture/008/save_picture_637773.jpg" />
 </div>
 
 
@@ -307,7 +413,7 @@ GraphicConverter 10 v10.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637660.jpg" />
+  <img src="Z:/picture/008/save_picture_637660.jpg" />
 </div>
 
 
@@ -333,7 +439,7 @@ MovieSherlock 5.9.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637561.jpg" />
+  <img src="Z:/picture/008/save_picture_637561.jpg" />
 </div>
 
 
@@ -362,7 +468,7 @@ Retrobatch Pro 1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637558.jpg" />
+  <img src="Z:/picture/008/save_picture_637558.jpg" />
 </div>
 
 
@@ -390,7 +496,7 @@ Artstudio Pro 4.0.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637517.jpg" />
+  <img src="Z:/picture/008/save_picture_637517.jpg" />
 </div>
 
 
@@ -416,7 +522,7 @@ Mac Blu-ray Player Pro 3.2.26 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637512.jpg" />
+  <img src="Z:/picture/008/save_picture_637512.jpg" />
 </div>
 
 
@@ -442,7 +548,7 @@ Game of Thrones: A Telltale Games Series. Episode 1-4 v. 1.0 (2015) [Ru] [OS X N
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637426.jpg" />
+  <img src="Z:/picture/008/save_picture_637426.jpg" />
 </div>
 
 
@@ -470,7 +576,7 @@ Downie 3 v3.6.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637417.jpg" />
+  <img src="Z:/picture/008/save_picture_637417.jpg" />
 </div>
 
 
@@ -498,7 +604,7 @@ djay - DJ App & AI Mixer 3.1.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637395.jpg" />
+  <img src="Z:/picture/008/save_picture_637395.jpg" />
 </div>
 
 
@@ -524,7 +630,7 @@ Boinx FotoMagico 4.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637305.jpg" />
+  <img src="Z:/picture/008/save_picture_637305.jpg" />
 </div>
 
 
@@ -551,7 +657,7 @@ Smart Shooter 4 v4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637272.jpg" />
+  <img src="Z:/picture/008/save_picture_637272.jpg" />
 </div>
 
 
@@ -579,7 +685,7 @@ DxO PhotoLab 5 ELITE Edition 5.2.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637249.jpg" />
+  <img src="Z:/picture/008/save_picture_637249.jpg" />
 </div>
 
 
@@ -591,113 +697,6 @@ DxO PhotoLab 5 ELITE Edition 5.2.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23E7773454BCBF35732BDEFC06E398EEEF27F633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228337   (637242) от 31.05.2018
-
-Winclone Pro 7 v7.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита Winclone. Или как проще всего клонировать Windows на Mac..
-По непонятным  причинам стандартная Дисковая утилита не работает с Windows разделами на Mac OS X: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50DA142A8010DE4D44EBDC784CCCBA54BD0855E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542459   (637114) от 07.04.2022
-
-Screegle - Clean Screen Sharing 2.0.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screegle позволяет вам поделиться любым окном, которое вы хотите, поверх чистого фонового изображения рабочего стола. Screegle - это совместное использование экрана для профессионалов. Ваши коллеги, команда, клиенты или студенты видят чистую, не загроможденную версию вашего рабочего стола, которая содержит только окна, какие вы явно выбрали, и ничего больше. Больше (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.04.2022Разработчик: © 2022 © AppBlit LLCПоддерживаемая ОС: macOS 14.0+Язык интерфейса: Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF6298EB54E939FC1E35D65CE04BA6E49DA25BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542463   (637113) от 07.04.2022
-
-Invisor - Media File Inspector 3.19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Invisor – Инспектор файлов мультимедиа
-Отображает техническую информацию о вашем видео и аудио файлов с возможностью сравнения собранных данных.
-Invisor основан на хорошо известной библиотеке MediaInfo и показывает подробную информацию о контейнере файла и потоков данных, включая видео, аудио, субтитры и главы. Поддерживает большинство форматов видео и аудио файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.04.2022Разработчик: © 2021 Maxim PozdeevПоддерживаемая ОС: macOS 10.7.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44716837200E41AAA865B599F1C5CDF52910D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542631   (637108) от 07.04.2022
-
-4K Video Downloader 4.20.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.04.2022Разработчик: © 2022 OpenMedia OOOПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41233BB8016A899DFCA5790C9047471FA8D4ACAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

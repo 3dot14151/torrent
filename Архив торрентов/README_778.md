@@ -6,7 +6,7 @@ Christine - Death On Wheels (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Fut
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875056.jpg" />
+  <img src="Z:/picture/005/save_picture_875056.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Colibri - Native Lossless Audio 1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875053.jpg" />
+  <img src="Z:/picture/005/save_picture_875053.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Squeed 1.12.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875050.jpg" />
+  <img src="Z:/picture/005/save_picture_875050.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875046.jpg" />
+  <img src="Z:/picture/005/save_picture_875046.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875040.jpg" />
+  <img src="Z:/picture/005/save_picture_875040.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ ExpanDrive 5.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875030.jpg" />
+  <img src="Z:/picture/005/save_picture_875030.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ AIMP 4.13 Build 1887 DC 18.02.2017 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875027.jpg" />
+  <img src="Z:/picture/005/save_picture_875027.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Mp3tag 2.81 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875026.jpg" />
+  <img src="Z:/picture/005/save_picture_875026.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875024.jpg" />
+  <img src="Z:/picture/005/save_picture_875024.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875014.jpg" />
+  <img src="Z:/picture/005/save_picture_875014.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ VA - Gates Of Dawn (2014) [MP3|320 kbps] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875007.jpg" />
+  <img src="Z:/picture/005/save_picture_875007.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874994.jpg" />
+  <img src="Z:/picture/005/save_picture_874994.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874988.jpg" />
+  <img src="Z:/picture/005/save_picture_874988.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874985.jpg" />
+  <img src="Z:/picture/005/save_picture_874985.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874981.jpg" />
+  <img src="Z:/picture/005/save_picture_874981.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ AIMP 4.13 Build 1887 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874945.jpg" />
+  <img src="Z:/picture/005/save_picture_874945.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ FastStone Image Viewer 6.2 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874944.jpg" />
+  <img src="Z:/picture/005/save_picture_874944.jpg" />
 </div>
 
 
@@ -466,7 +466,7 @@ DevID Agent 4.36 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874935.jpg" />
+  <img src="Z:/picture/005/save_picture_874935.jpg" />
 </div>
 
 
@@ -492,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874925.jpg" />
+  <img src="Z:/picture/005/save_picture_874925.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874920.jpg" />
+  <img src="Z:/picture/008/save_picture_874920.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ VA - Nu-Lounge And The City 2CD (2010) [MP3|320 kbps]<Lo-Fi | Lounge | Chillout 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874913.jpg" />
+  <img src="Z:/picture/008/save_picture_874913.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874885.jpg" />
+  <img src="Z:/picture/005/save_picture_874885.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ Volume2 1.1.5.397 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874883.jpg" />
+  <img src="Z:/picture/005/save_picture_874883.jpg" />
 </div>
 
 
@@ -628,7 +628,7 @@ VA - Клубная Vip-тусовка (2011) [MP3|256 kbps]<Pop/Club>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874868.jpg" />
+  <img src="Z:/picture/008/save_picture_874868.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Orbit Downloader 4.0.0.7 [Multi\Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874859.jpg" />
+  <img src="Z:/picture/008/save_picture_874859.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ The Knife (The Kniφe) - Shaking The Habitual [3 CD] (2013) [FLAC|Lossless]<Elec
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874847.jpg" />
+  <img src="Z:/picture/005/save_picture_874847.jpg" />
 </div>
 
 

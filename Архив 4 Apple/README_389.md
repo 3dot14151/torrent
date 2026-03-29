@@ -1,3 +1,114 @@
+###  Публикация: 1166506   (423460) от 17.09.2017
+
+DaVinci Resolve Studio 14.0 + easyDCP [En]
+
+>>След.
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
+В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
+
+Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08 сентября 2017Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5252A59AFEB08557744F351A0FA20F1E39D608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411937   (423319) от 27.09.2020
+
+Acorn 6 v6.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждому нужно редактировать изображения в определенный момент, но не у всех есть на это время. Именно поэтому Вам необходима программа Acorn которая сэкономит Ваше время для качественного редактирования фотографий. С помощью Acorn Вы сможете добавить текст или фигуру к фотографии, объединить изображения вместе с другой фотографией, работать со слоями и т.д.
+
+Acorn (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2020Разработчик: © Flying Meat IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEDCE78754BF11E27F31242A97D47FFBF014BBAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411950   (423168) от 27.09.2020
+
+Dropshare 5.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423168.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+
+Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2020Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:664368EEB6AE231519E7193D7971839F7BBAC1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411907   (423154) от 27.09.2020
+
+Adobe Zii 2020 - Universal Patcher 5.2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 26.09.2020Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF555E30DA89C5965474BF56A1305135410B876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411966   (423071) от 27.09.2020
 
 SoundSource 5.0.5 [Multi]
@@ -6,7 +117,7 @@ SoundSource 5.0.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423071.jpg" />
+  <img src="Z:/picture/008/save_picture_423071.jpg" />
 </div>
 
 
@@ -34,7 +145,7 @@ Sublime Text 4.0 Dev build 4087 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422966.jpg" />
+  <img src="Z:/picture/008/save_picture_422966.jpg" />
 </div>
 
 
@@ -61,7 +172,7 @@ Magnet Pro 2.4.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422843.jpg" />
+  <img src="Z:/picture/008/save_picture_422843.jpg" />
 </div>
 
 
@@ -87,7 +198,7 @@ Feeder 3 v3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422775.jpg" />
+  <img src="Z:/picture/008/save_picture_422775.jpg" />
 </div>
 
 
@@ -115,7 +226,7 @@ PrefEdit 4.0 (Build 180917) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422769.jpg" />
+  <img src="Z:/picture/008/save_picture_422769.jpg" />
 </div>
 
 
@@ -142,7 +253,7 @@ DupeZap 4.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422768.jpg" />
+  <img src="Z:/picture/008/save_picture_422768.jpg" />
 </div>
 
 
@@ -171,7 +282,7 @@ Principle 4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422652.jpg" />
+  <img src="Z:/picture/008/save_picture_422652.jpg" />
 </div>
 
 
@@ -198,7 +309,7 @@ Money Pro 1.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422554.jpg" />
+  <img src="Z:/picture/008/save_picture_422554.jpg" />
 </div>
 
 
@@ -227,7 +338,7 @@ MacClean 3 v3.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422462.jpg" />
+  <img src="Z:/picture/008/save_picture_422462.jpg" />
 </div>
 
 
@@ -255,7 +366,7 @@ Pixelmator 3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422412.jpg" />
+  <img src="Z:/picture/008/save_picture_422412.jpg" />
 </div>
 
 
@@ -281,7 +392,7 @@ AnyToISO Pro 3.8.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421923.jpg" />
+  <img src="Z:/picture/008/save_picture_421923.jpg" />
 </div>
 
 
@@ -310,7 +421,7 @@ BookReader 5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421912.jpg" />
+  <img src="Z:/picture/008/save_picture_421912.jpg" />
 </div>
 
 
@@ -339,7 +450,7 @@ Downie 3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421765.jpg" />
+  <img src="Z:/picture/008/save_picture_421765.jpg" />
 </div>
 
 
@@ -368,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421596.jpg" />
+  <img src="Z:/picture/008/save_picture_421596.jpg" />
 </div>
 
 
@@ -396,7 +507,7 @@ Softorino YouTube Converter 1.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421478.jpg" />
+  <img src="Z:/picture/008/save_picture_421478.jpg" />
 </div>
 
 
@@ -424,7 +535,7 @@ SteerMouse 5.2.0 Rel2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421267.jpg" />
+  <img src="Z:/picture/008/save_picture_421267.jpg" />
 </div>
 
 
@@ -450,7 +561,7 @@ PDF Expert 2.4.29 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420969.jpg" />
+  <img src="Z:/picture/008/save_picture_420969.jpg" />
 </div>
 
 
@@ -479,7 +590,7 @@ Iridient Developer 3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420784.jpg" />
+  <img src="Z:/picture/008/save_picture_420784.jpg" />
 </div>
 
 
@@ -505,7 +616,7 @@ Cisdem Document Reader 5 v5.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420772.jpg" />
+  <img src="Z:/picture/008/save_picture_420772.jpg" />
 </div>
 
 
@@ -531,7 +642,7 @@ Astute Graphics Plug-ins Bundle for Adobe Illustrator CC 1.1.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420683.jpg" />
+  <img src="Z:/picture/008/save_picture_420683.jpg" />
 </div>
 
 
@@ -559,7 +670,7 @@ URL Manager Pro 5.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420638.jpg" />
+  <img src="Z:/picture/008/save_picture_420638.jpg" />
 </div>
 
 
@@ -587,7 +698,7 @@ Default Folder X 5.5b3  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420635.jpg" />
+  <img src="Z:/picture/008/save_picture_420635.jpg" />
 </div>
 
 
@@ -598,115 +709,6 @@ Default Folder X - Расширяет функциональные возмож�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83F2730B177EA3859C4928CB43C8E18917C34F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412278   (420627) от 28.09.2020
-
-MacX MediaTrans 7.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420627.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaTrans – это iOS-менеджер. С помощью Программы возможно быстро переносить различные медиафайлы между iOS девайсами и компьютером. Отличительная функция Программы - это перенос медиа с возможностью удаления DRM-защиты iTunes.
-
-MediaTrans фокусируется на одном простом деле, и делает это очень хорошо — она позволяет импортировать и экспортировать музыку, видео, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2020Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD672C931CA889AA0ADB671A2891160CA06CAFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324767   (420477) от 11.09.2019
-
-Capture One Pro 12 v12.1.3 [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420477.jpg" />
-</div>
-
-
-###  Подробнее
-
-Capture One Pro один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Phase OneПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Русский, Английский, Немецкий и др.
-* язык интерфейса программы зависит от дефолтного языка операционной системы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B3CCBD7BDFB137AAB9960CD40EB3143C6B94EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251082   (420404) от 30.09.2018
-
-liquivid Video Improve 2.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420404.jpg" />
-</div>
-
-
-###  Подробнее
-
-liquivid - интуитивно понятный, простой в использовании фото / видео редактор: очистить и улучшить все свои снимки с помощью одного клика, получить удовольствие от просмотра и поделиться воспоминаниями.
-
-liquivid предлагает множество привлекательных визуальных эффектов, исправляет искажения объектива, вызванные широкоугольными объективами (большинстве actioncams), (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: Razvan ChisuПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0227C8FB358D0382ABA0BDC9B5CC28F0EA24018D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250927   (420403) от 30.09.2018
-
-NetWorker - Network Info App 5.1.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420403.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetWorker - легкий и простой в использовании инструмент, который показывает либо текущую скорость download and upload, либо трафик сеанса вашего сетевого адаптера. Информация отображается в виде небольшого изображения в строке меню.Тип издания: macOS SoftwareРелиз состоялся: 28.09.2018Разработчик: Sascha SimonПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий и Упрощенный Китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EAABCEF8631A95F087B77840FA0F9FD3D56830
 ```
 
 https://mybot314.ru/tekegram_catalog/

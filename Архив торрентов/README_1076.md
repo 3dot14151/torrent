@@ -6,7 +6,7 @@ PrivaZer 4.0.32 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800981.jpg" />
+  <img src="Z:/picture/008/save_picture_800981.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Athentech Perfectly Clear WorkBench 4.0.0.2184 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800975.jpg" />
+  <img src="Z:/picture/008/save_picture_800975.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Affinity Designer 1.10.4 CR2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800973.jpg" />
+  <img src="Z:/picture/008/save_picture_800973.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Affinity Photo 1.10.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800972.jpg" />
+  <img src="Z:/picture/008/save_picture_800972.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ MAMP PRO 6 v6.6 fix [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800969.jpg" />
+  <img src="Z:/picture/008/save_picture_800969.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ LibreOffice 5.4.4 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800964.jpg" />
+  <img src="Z:/picture/008/save_picture_800964.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ TurboMosaic 3.0.4 Professional Edition [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800963.jpg" />
+  <img src="Z:/picture/008/save_picture_800963.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800959.jpg" />
+  <img src="Z:/picture/008/save_picture_800959.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800957.jpg" />
+  <img src="Z:/picture/008/save_picture_800957.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Torch Browser 60.0.0.1508 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800951.jpg" />
+  <img src="Z:/picture/008/save_picture_800951.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Wise Care 365 Pro 4.7.9.462 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800950.jpg" />
+  <img src="Z:/picture/008/save_picture_800950.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ GPU Caps Viewer 1.38.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800948.jpg" />
+  <img src="Z:/picture/008/save_picture_800948.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800947.jpg" />
+  <img src="Z:/picture/008/save_picture_800947.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Volume2 1.1.6.409 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800946.jpg" />
+  <img src="Z:/picture/008/save_picture_800946.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ dBpowerAMP Music Converter 16.4 Retail [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800945.jpg" />
+  <img src="Z:/picture/008/save_picture_800945.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Passware Kit Forensic 2017.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800942.jpg" />
+  <img src="Z:/picture/008/save_picture_800942.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Do Your Data Recovery Pro 7.5 [En] (промо-акция COMSS)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800933.jpg" />
+  <img src="Z:/picture/008/save_picture_800933.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ MacDroid Pro 1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800929.jpg" />
+  <img src="Z:/picture/008/save_picture_800929.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ reaConverter Pro 7.580 Repack & Portable by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800923.jpg" />
+  <img src="Z:/picture/008/save_picture_800923.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800921.jpg" />
+  <img src="Z:/picture/008/save_picture_800921.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Wondershare Filmora 9 v9.4.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800915.jpg" />
+  <img src="Z:/picture/008/save_picture_800915.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ CoolUtils Total Doc Converter 5.1.0.236 (Repack & Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800913.jpg" />
+  <img src="Z:/picture/008/save_picture_800913.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ Slate Digital & Murda Beatz - Murda Melodies 1.0.3 (x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800898.jpg" />
+  <img src="Z:/picture/008/save_picture_800898.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ MediaHuman YouTube Downloader 3.9.9.61 (2910) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800890.jpg" />
+  <img src="Z:/picture/008/save_picture_800890.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Internet Download Manager 6.39 Build 8 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800889.jpg" />
+  <img src="Z:/picture/008/save_picture_800889.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ GOM Player Plus 2.3.70.5334 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800888.jpg" />
+  <img src="Z:/picture/008/save_picture_800888.jpg" />
 </div>
 
 

@@ -1,3 +1,165 @@
+###  Публикация: 1130832   (58523) от 26.04.2024
+
+Американские боги / American Gods (2017) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8) Студия «Нота», LostFilm, AlexFilm, NewStudio
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тень — человек с прошлым. Но теперь единственное, чего он хочет — это жить тихой и спокойной жизнью со своей женой в стороне от проблем. Пока он не узнает о её гибели в результате несчастного случая. По пути на похороны домой, когда сильнейший шторм сотрясает самолёт, ему представляется странный человек с соседнего кресла. Он называет себя мистер Среда. И он знает (   Читать дальше...   )Производство: США, Canada Film Capital, Fremantle Media North AmericaЖанр: фэнтези, драма, детективРежиссер: Дэвид Слэйд, Адам Кэйн, Винченцо НаталиАктеры: Рики Уиттл, Эмили Браунинг, Брюс Лэнгли, Йетиде Бадаки, Пабло Шрайбер, Иэн МакШейн, Криспин Гловер, Джиллиан Андерсон, Клорис Личмен, Петер Стормаре и др.Перевод: дублированный (Студия «Нота»); многоголосый профессиональный (LostFilm, AlexFilm (ненормативная лексика), NewStudio (ненормативная лексика))Язык озвучки: Русский, английскийСубтитры: русские, английские
+
+ВНИМАНИЕ! Присутствует ненормативная лексика.Продолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F4D960345F6FE54490C3D96990534A20005306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718217   (58422) от 27.04.2024
+
+Adobe Photoshop 2024 25.7.0.504 RePack by KpoJIuK [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Photoshop 2024 - новая версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, коллажирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC15FBA0A7423AAE81B4653C4146A8826D784E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719115   (58328) от 28.04.2024
+
+F-Secure VPN 19.4 (online installation) [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обеспечьте безопасность и конфиденциальность своих цифровых моментов повсюду. Перед тем как устанавливать данный VPN настоятельно рекомендуется ознакомиться более подробно с его функциями на официальном сайте.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E22277FC7DF10CCA8CFDCA56D8BFF13CE3ECA3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715418   (58316) от 28.04.2024
+
+Navitel / Навител: Официальные карты релиза Q2 2024 [Ru/Multi]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58316.jpg" />
+</div>
+
+
+###  Подробнее
+
+• Карты только для версий 9.13...(от 41 по 74)
+• Это первое обновление карт за 2024г.
+• Вышли они в свободный доступ 11.04.2024.
+• Карты для Навител обновляются несколько раз в год.(   Читать дальше...   )Релиз состоялся: 10.04.2024Разработчик: NavitelПоддерживаемая ОС: Android, WinCE, LinuxЯзык интерфейса: Ru/Multi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130913EA0719D17B997C048231F28A8A02F3ADB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718115   (58314) от 28.04.2024
+
+Горький 53 (2024) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58314.jpg" />
+</div>
+
+
+###  Подробнее
+
+1953 год. Из-за массовой амнистии в СССР напряженная криминальная обстановка. В это же время в родной город Горький возвращается освободившийся из тюрьмы Иван Астафьев, бывший командир разведвзвода. И тут же становится жертвой нападения бандитов, а затем и ложного обвинения в избиении нападавших. Из беды выручает довоенный знакомый Ивана — капитан Шведов, который (   Читать дальше...   )Производство: Россия | «Кинокомпания ТРОМЕДИА»Жанр: Детектив, криминалРежиссер: Сергей КоротаевАктеры: Андрей Фролов, Алексей Барабаш, Екатерина Климова, Катерина Шпица, Александр Балуев, Алексей Макаров, Михаил Евланов, Александр Семчев, Любовь Константинова, Владимир БирюковСубтитры: РусскиеПродолжительность: ~00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF98A9CBC52BDC52FBCD6ED6E4D3B39A33CE325
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 785568   (58310) от 28.04.2024
+
+Остаться в живых / Lost (2004-2010) BDRemux [H.264/1080p] (сезоны 1-6, серии 1-121 из 121) Первый канал
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красавец-лайнер, совершающий полет из Сиднея в Лос-Анджелес, неожиданно терпит крушение. 48 пассажиров оказываются на пустынном острове посреди океана. Люди в панике. Надежда быть найденными довольно призрачна. Поэтому остается только одно: собраться с силами и постараться выжить на острове, начиненном множеством опасностей...Производство: США / Bad Robot, Touchstone Television, ABC SignatureЖанр: фантастика, детектив, фэнтези, триллер, драма, приключенияРежиссер: Джек Бендер, Стивен Уильямс, Пол А. ЭдвардсАктеры: Мэттью Фокс, Эванджелин Лилли, Джош Холлоуэй, Терри О’Куинн, Навин Эндрюс, Хорхе Гарсиа, Майкл Эмерсон, Эмили де Рэвин, Ким Юн-джин
+Дэниэл Дэ КимПеревод: Дублированный (Первый канал)Язык озвучки: Русский, английскийСубтитры: Русские (Forced - диалоги на корейском и надписи, Full), английскиеПродолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:788A9D0D42E1FD7C67F3486D69DB3FF9275D067B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719102   (58210) от 29.04.2024
 
 17 шикарных ФАНТАСТИЧЕСКИХ фильмов 2023-2024, которые вы могли пропустить
@@ -6,7 +168,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58210.jpg" />
 </div>
 
 
@@ -34,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58206.jpg" />
 </div>
 
 
@@ -60,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57995.jpg" />
 </div>
 
 
@@ -86,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57891.jpg" />
 </div>
 
 
@@ -112,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57859.jpg" />
 </div>
 
 
@@ -142,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57803.jpg" />
 </div>
 
 
@@ -168,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57769.jpg" />
 </div>
 
 
@@ -194,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57681.jpg" />
 </div>
 
 
@@ -220,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57679.jpg" />
 </div>
 
 
@@ -246,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57677.jpg" />
 </div>
 
 
@@ -272,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57574.jpg" />
 </div>
 
 
@@ -298,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57478.jpg" />
 </div>
 
 
@@ -327,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57378.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57378.jpg" />
 </div>
 
 
@@ -353,7 +515,7 @@ Kaspersky 21.17.7.539 Standard | Plus | Premium [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57368.jpg" />
 </div>
 
 
@@ -379,7 +541,7 @@ Outline Client VPN 1.13.1 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57366.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57366.jpg" />
 </div>
 
 
@@ -405,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57350.jpg" />
 </div>
 
 
@@ -431,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57278.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57278.jpg" />
 </div>
 
 
@@ -458,7 +620,7 @@ Windows 10 Enterprise LTSC (x64) Elgujakviso Edition (v.08.05.24) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57266.jpg" />
 </div>
 
 
@@ -487,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57259.jpg" />
 </div>
 
 
@@ -513,7 +675,7 @@ Red Dead Redemption II (2) (2019) [Ru/Multi] (1491.50/dlc) Repack FitGirl [Ultim
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57050.jpg" />
 </div>
 
 
@@ -524,165 +686,6 @@ RRed Dead Redemption 2 – приключенческий шутер от тре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4C2EF26B2447D832E74592B1A9C3E22C90A8342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721532   (57044) от 10.05.2024
-
-30 фильмов о Второй мировой войне
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57044.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-В большинстве стран ее называют Второй мировой, но в нашей памяти она навсегда останется Великой Отечественной. О, этом трагическом периоде снято множество кинофильмов. Мы предлагаем взглянуть на события тех лет глазами кинематографистов разных стран и посмотреть лучшие художественные фильмы про Великую Отечественную войну, снятые за последние годы.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721825   (56947) от 11.05.2024
-
-Онегин (2024) WEBRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Евгений Онегин живет на широкую ногу: балы, приемы, театральные премьеры и прочие развлечения, которые может предложить молодому человеку столица. Но светская жизнь давно утомила его, потому известие о болезни живущего в деревне дяди, он воспринимает, как возможность сбежать от опостылевшего света. Однако, добравшись до имения, Онегин узнает о кончине родственника, (   Читать дальше...   )Производство: Россия / К.Б.А. / Кинокомпания братьев АндреасянЖанр: мелодрама, драмаРежиссер: Сарик АндреасянАктеры: Виктор Добронравов, Денис Прытков, Лиза Моряк, Таня Сабинова, Алёна Хмельницкая, Алексей Гришин, Татьяна Лютаева, Владимир Вдовиченков, Ольга Тумайкина, Александр ЯцкоПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 02:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7DF801FC82F718F96FAB7B74D9C4F09FFC6F401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722075   (56929) от 11.05.2024
-
-Нас ждет огонь смертельный: 15 лучших советских фильмов о Великой Отечественной войне
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56929.jpg" />
-</div>
-
-
-###  Подробнее
-
-В праздничной подборке вспоминаем шедевр Элема Климова «Иди и смотри» (1985), а вместе с ним — другие знаковые советские фильмы о Великой Отечественной.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721801   (56828) от 12.05.2024
-
-Россия начала разработку ядерной энергоустановки для лунной станции
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Началась разработка ядерной энергетической установки для российско-китайского проекта лунной станции, сообщил РИА Новости гендиректор "Роскосмоса" Юрий Борисов.В конце апреля он объяснял, что необходимо создать компактный, надежный, долгосрочный и долговечный источник ядерной энергии на Луне. Это объясняется тем, что лунная ночь длится примерно 14 земных (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722314   (56735) от 13.05.2024
-
-Министерство неджентльменских дел / The Ministry of Ungentlemanly Warfare (2024) WEB-DL [H.265/2160p] [4K, SDR, 10-bit]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1942 год, Великобритания. Они - лучшие из лучших. Отпетые авантюристы и первоклассные спецы, привыкшие действовать в одиночку. Но когда на кону стоит судьба всего мира, им приходится объединиться в сверхсекретное боевое подразделение и отправиться на выполнение дерзкой миссии против нацистов. Теперь их дело - война, и вести они её будут совершенно не по-джентльменски.Производство: США, Великобритания, Турция, Black Bear Pictures, Jerry Bruckheimer Films, LionsgateЖанр: боевик, драма, военный, историяРежиссер: Гай РичиАктеры: Генри Кавилл, Алан Ричсон, Рори Киннер, Генри Голдинг, Фредди Фокс, Эйса Гонсалес, Алекс Петтифер, Бабс Олусанмокун, Кэри Элвес, Хиро Файнс ТиффинПеревод: Дублированный (Мосфильм-Мастер), двуголосый профессиональный (ViruseProject, Кубик в Кубе)Язык озвучки: русский, английскийСубтитры: русские (forced, full), английские (SDH)Продолжительность: 02:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1972CB620D8BB867CECF10665C675C91D6DC0B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722785   (56722) от 13.05.2024
-
-Суд оштрафовал Microsoft на $242 млн за кражу технологии при создании Cortana
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56722.jpg" />
-</div>
-
-
-###  Подробнее
-
-В минувшую пятницу в Делавэре (США) прошло завершающее заседание суда по иску IPA Technologies, которая обвинила Microsoft в нарушении своих патентов при создании голосового помощника Cortana. После разбирательства присяжные согласились с аргументацией IPA по поводу того, что используемая в Cortana технология распознавания голоса нарушает её патент на программное (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

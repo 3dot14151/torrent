@@ -1,3 +1,84 @@
+###  Публикация: 321096   (755722) от 10.04.2011
+
+Джон Стейнбек | Гроздья гнева (2007) [MP3, Владимир Левашёв]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_755722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Эрнст Стейнбек (1902—1968) американский писатель-прозаик, лауреат Нобелевской премии по литературе (1962). Роман «Гроздья гнева» (1939) принес громкую славу писателю и стал неотъемлемым достоянием мировой литературы. Сила этой книги - сила правды. Роман утверждает правду, он утверждает ее последовательно и смело, отображая жизнь без утайки и без прикрас, такой, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: БиблиофоникаПродолжительность: 22:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEB5151CD34D9379E2B5DA7223E7785D18016707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522856   (755312) от 09.01.2022
+
+Александра Рипли | Скарлетт (2021) [MP3, Наталья Островская]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_755312.jpg" />
+</div>
+
+
+###  Подробнее
+
+История Скарлетт О`Хара и Ретта Батлера оборвалась на полуслове. Но миллионы читательниц всего мира не желали расставаться с полюбившимися героями.
+Тогда Александра Риплей написала своё произведение — роман-продолжение «Cкарлетт», книгу, ставшую знаменитой и популярной.
+Неукротимая Скарлетт и неотразимый Ретт снова любят и страдают, борются с судьбой и надеются на (   Читать дальше...   )Жанр: Зарубежная классическая прозаПродолжительность: 40:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C9A334BEE7C59A01B30AFFB9B26EBAA11DC59BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 781931   (754206) от 29.04.2014
+
+Василий Шукшин | Калина красная (2013) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_754206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киноповесть «Калина красная» относится к тем немногим произведением советской литературы, которым суждено судьбой войти в 21 -й век, а то и вообще остаться в сокровищнице русской литературы, покуда будет жива Россия. Эту повесть Шукшин написал, лежа на больничной койке. Может быть, поэтому в ней на каждой странице чувствует какой-то болезненный надлом.
+Вор-рецидивист (   Читать дальше...   )Жанр: Киноповесть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0746D87AB81D04B36081911329FFE385EACB3A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 322197   (753996) от 11.04.2011
 
 Ян Потоцкий | Рукопись, найденная в Сарагосе (1989) [MP3]
@@ -6,7 +87,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753996.jpg" />
+  <img src="Z:/picture/008/save_picture_753996.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753875.jpg" />
+  <img src="Z:/picture/008/save_picture_753875.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752179.jpg" />
+  <img src="Z:/picture/008/save_picture_752179.jpg" />
 </div>
 
 
@@ -84,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751127.jpg" />
+  <img src="Z:/picture/008/save_picture_751127.jpg" />
 </div>
 
 
@@ -110,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750057.jpg" />
+  <img src="Z:/picture/008/save_picture_750057.jpg" />
 </div>
 
 
@@ -136,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748334.jpg" />
+  <img src="Z:/picture/008/save_picture_748334.jpg" />
 </div>
 
 
@@ -162,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747205.jpg" />
+  <img src="Z:/picture/008/save_picture_747205.jpg" />
 </div>
 
 
@@ -191,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746831.jpg" />
+  <img src="Z:/picture/008/save_picture_746831.jpg" />
 </div>
 
 
@@ -218,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746520.jpg" />
+  <img src="Z:/picture/008/save_picture_746520.jpg" />
 </div>
 
 
@@ -244,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746519.jpg" />
+  <img src="Z:/picture/008/save_picture_746519.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746511.jpg" />
+  <img src="Z:/picture/008/save_picture_746511.jpg" />
 </div>
 
 
@@ -298,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745236.jpg" />
+  <img src="Z:/picture/008/save_picture_745236.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745093.jpg" />
+  <img src="Z:/picture/008/save_picture_745093.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743767.jpg" />
+  <img src="Z:/picture/008/save_picture_743767.jpg" />
 </div>
 
 
@@ -377,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743754.jpg" />
+  <img src="Z:/picture/008/save_picture_743754.jpg" />
 </div>
 
 
@@ -403,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743221.jpg" />
+  <img src="Z:/picture/008/save_picture_743221.jpg" />
 </div>
 
 
@@ -429,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742295.jpg" />
+  <img src="Z:/picture/008/save_picture_742295.jpg" />
 </div>
 
 
@@ -455,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742075.jpg" />
+  <img src="Z:/picture/008/save_picture_742075.jpg" />
 </div>
 
 
@@ -481,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742067.jpg" />
+  <img src="Z:/picture/008/save_picture_742067.jpg" />
 </div>
 
 
@@ -507,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740963.jpg" />
+  <img src="Z:/picture/008/save_picture_740963.jpg" />
 </div>
 
 
@@ -533,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740778.jpg" />
+  <img src="Z:/picture/008/save_picture_740778.jpg" />
 </div>
 
 
@@ -559,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740684.jpg" />
+  <img src="Z:/picture/008/save_picture_740684.jpg" />
 </div>
 
 
@@ -585,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740421.jpg" />
+  <img src="Z:/picture/008/save_picture_740421.jpg" />
 </div>
 
 
@@ -596,84 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:153CA5559CB20642B6270EBB54BC1B3344DCB489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217985   (740174) от 07.04.2018
-
-Иван Бунин | Сборник стихотворений 1887-1917 гг. (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представляется сборник стихотворений Ивана Алексеевича Бунина, написанных в период с 1887 по 1917 г. Стихотворения прочитаны Романом Ильиным, музыкальное сопровождение - Ричард Клейдерман.Жанр: Поэзия, аудиокнига, поэтические чтенияПродолжительность: 00:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848DDD76E2BF93A7E9CB4C94EF8DE4D515F54E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217988   (740057) от 07.04.2018
-
-Иван Бунин | Окаянные Дни (2018) [MP3, Роман Ильин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740057.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Окаянные дни" - последняя из книг, написанных Иваном Алексеевичем на родине, до иммиграции. Повествует о революционных днях 1918-1919 годов. Ярко нарисован образ народа, "борцов", "негодяев" и прочее окружение семьи Бунина в этот период. Четко охарактеризованы события, их моральный и действительный подтекст. С книгой стоит ознакомится (   Читать дальше...   )Жанр: Дневник, романПродолжительность: 04:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C0B3AB8F09B4B3B9372173D5887FB9E47789B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217986   (739996) от 07.04.2018
-
-Александр Солженицын | Один день Ивана Денисовича (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Написанное в 1950—1951 годах, одно из первых знаковых произведений, провозгласивших свободу слова на территории СССР и раскрывших небольшую долю происходивших в финале коммунистического уничтожения населения событий. Разворачиваются они на территории трудового лагеря строгого режима, где-то в Сибири, и рассказывает о них - об одном своем прожитом дне - зек Иван Денисович (   Читать дальше...   )Жанр: Проза, повесть, автобиографияПродолжительность: 04:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8530C8A4C86A69E7B4EEB3473CD7449EAA197D
 ```
 
 https://mybot314.ru/tekegram_catalog/

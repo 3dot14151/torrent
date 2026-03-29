@@ -1,3 +1,82 @@
+###  Публикация: 1274326   (794091) от 06.01.2019
+
+Квартирник НТВ у Маргулиса. Незваные гости (31.12.2018) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_794091.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту новогоднюю ночь телеканал НТВ пригласил всех зрителей на новогодний «Квартирник НТВ у Маргулиса», где выступили очень необычные гости. Музыканты, которых не пригласили на гламурные голубые огоньки, устроили крутую вечеринку, где не нашлось места попсе.
+На рок-квартирнике с живым звуком собрались старые друзья Евгения Маргулиса: Гарик Сукачёв, Юрий Шевчук, Сергей (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 02:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D72000B7D49D0783EEA32E5980400A0F85A39C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509770   (793852) от 13.11.2021
+
+Marilyn Manson: Guns, God and Government (2002) BDRip [H.265/1080p] [10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись последнего концерта в Калифорнии, в Лос-Анджелесе в 2001 году в рамках мирового тура Guns, God and Government World Tour, прошедшего 2000-2001 гг в США, России, Японии, Польше.Производство: США / Marilyn Manson Records Inc.Жанр: Industrial metal, Industrial rock, Alternative metal, Hard rock, Glam rock, Shock rockАктеры: Мэрилин Мэнсон, Джон 5, Джорди Уайт, Мадонна Уэйн Гейси, Джинджер Фиш, Тэмми Фэй Баккер, Duncan BlackПеревод: ОтсутствуетПродолжительность: 01:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A51AD4280237A78FA9BC4503A3D04433C3D5A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490854   (793489) от 23.01.2018
+
+Пикник: 30 Световых лет (2012) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_793489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцатилетний юбилей группы Пикник - хороший повод, чтобы «вспомнить все», а точнее исполнить все те песни, которые составили не только квинтэссенцию творчества Пикника, но и вошли в золотой фонд Русского рока. На юбилейном концерте, состоявшемся в Ледовом дворце, на глазах восьми тысяч зрителей, ожили фантастические персонажи песен Эдмунда Шклярского. Это и Гигант (   Читать дальше...   )Жанр: РокРежиссер: Марат КорчемныйАктеры: Эдмунд Шклярский, Леонид Кирнос, Марат Корчемный, Станислав Шклярский, Вадим СамойловПеревод: ОтсутствуетПродолжительность: 02:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352861D8169A1CA9FA40F810F6211C9058B5215A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386710   (793406) от 30.05.2020
 
 Квартирник НТВ у Маргулиса. Олег Гаркуша (29.05.2020) WEB-DL [H.264/1080p-LQ]
@@ -6,7 +85,7 @@
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793406.jpg" />
+  <img src="Z:/picture/008/save_picture_793406.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792781.jpg" />
+  <img src="Z:/picture/008/save_picture_792781.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ Rick Wakeman - The Six Wives Of Henry VIII, Live At Hampton Court Palace (2009) 
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792657.jpg" />
+  <img src="Z:/picture/008/save_picture_792657.jpg" />
 </div>
 
 
@@ -88,7 +167,7 @@ Hymn - Sarah Brightman in Concert (2018) HDTV [H.264/1080i-LQ]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792118.jpg" />
+  <img src="Z:/picture/008/save_picture_792118.jpg" />
 </div>
 
 
@@ -118,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790298.jpg" />
+  <img src="Z:/picture/008/save_picture_790298.jpg" />
 </div>
 
 
@@ -144,7 +223,7 @@ Bruno Mars: 24K Magic Live at the Apollo (2017) WEB-DL [H.264/1080p-LQ] [EN / EN
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789466.jpg" />
+  <img src="Z:/picture/008/save_picture_789466.jpg" />
 </div>
 
 
@@ -170,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789379.jpg" />
+  <img src="Z:/picture/008/save_picture_789379.jpg" />
 </div>
 
 
@@ -196,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789378.jpg" />
+  <img src="Z:/picture/008/save_picture_789378.jpg" />
 </div>
 
 
@@ -222,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788838.jpg" />
+  <img src="Z:/picture/008/save_picture_788838.jpg" />
 </div>
 
 
@@ -248,7 +327,7 @@ The Witcher 3: Wild Hunt concert (Film Music Festival 2016) WEBRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787918.jpg" />
+  <img src="Z:/picture/008/save_picture_787918.jpg" />
 </div>
 
 
@@ -277,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787287.jpg" />
+  <img src="Z:/picture/008/save_picture_787287.jpg" />
 </div>
 
 
@@ -308,7 +387,7 @@ Labyrinth - Return to Live (2016/(2018) BDRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785301.jpg" />
+  <img src="Z:/picture/008/save_picture_785301.jpg" />
 </div>
 
 
@@ -338,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785271.jpg" />
+  <img src="Z:/picture/008/save_picture_785271.jpg" />
 </div>
 
 
@@ -364,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784913.jpg" />
 </div>
 
 
@@ -390,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784276.jpg" />
 </div>
 
 
@@ -419,7 +498,7 @@ David Gilmour: Remember That Night (2007) BDRip [H.264/1080i]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784175.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784175.jpg" />
 </div>
 
 
@@ -448,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783335.jpg" />
+  <img src="Z:/picture/008/save_picture_783335.jpg" />
 </div>
 
 
@@ -474,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782900.jpg" />
+  <img src="Z:/picture/008/save_picture_782900.jpg" />
 </div>
 
 
@@ -500,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782853.jpg" />
+  <img src="Z:/picture/008/save_picture_782853.jpg" />
 </div>
 
 
@@ -526,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780556.jpg" />
+  <img src="Z:/picture/008/save_picture_780556.jpg" />
 </div>
 
 
@@ -553,7 +632,7 @@ Nana Mizuki - Live Zipangu x Izumo Taisha Dedicated Performance (2017) [H.264/10
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779924.jpg" />
+  <img src="Z:/picture/008/save_picture_779924.jpg" />
 </div>
 
 
@@ -582,7 +661,7 @@ Whitesnake - The Purple Tour Live (2018) BDRip [H.264/720p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779483.jpg" />
 </div>
 
 
@@ -611,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779479.jpg" />
 </div>
 
 
@@ -623,88 +702,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2771A0C430CAB72A776998B123D3C11A98F81DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209126   (779455) от 25.02.2018
-
-Whitesnake - The Purple Tour Live (2018) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779455.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Purple Tour - концертный альбом группы Whitesnake, в который вошли классические хиты группы Whitesnake и Deep Purple времен Дэвида Кавердейла. В данном издании содержатся песни с нескольких студийных альбомов, записанных Дэвидом Ковердейлом в составе Deep Purple, в том числе Burn (1974), Stormbringer (1974) и Come Taste The Band (1975), а также You Fool No One, (   Читать дальше...   )01. Burn
-02. Bad Boys
-03. Love Ain't No Stranger
-04. The Gypsy(   Читать дальше...   )Производство: США, Rhino MusicЖанр: Rock, Hard RockПродолжительность: 01:20:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6C6F3BA23F148C8F53784F66C6DBB3E63914D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209365   (778837) от 02.03.2018
-
-Праздничный концерт ко Дню защитника Отечества (23.02.2018) HDTV [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778837.jpg" />
-</div>
-
-
-###  Подробнее
-
-День защитника Отечества – праздник настоящих мужчин. 23 февраля мы не только вспоминаем героические подвиги предков, но и отдаем дань мужеству и благородству любимых представителей сильного пола. Претерпевший с течением времени множество изменений, этот праздник сохранил свое первоначальное патриотическое настроение, ставшее основой единения граждан разных возрастов (   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: ТВ-шоу, КонцертПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DAEDC6EC99FBB71CBAFCB2320FBD85424D93205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210755   (778491) от 04.03.2018
-
-Квартирник на НТВ у Маргулиса. The Hatters (03.03.2018) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778491.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к ведущему Евгению Маргулису пришла фолк-рок группа «The Hatters». «Шляпники» были основаны в 2016 году в Санкт-Петербурге и уже успели завоевать популярность.
-Юрий Музыченко рассказал, что основной состав своего музыкального коллектива сформировал из театра «Лицедеи». Музыканты поделились историей про первый тур и объяснили, зачем тромбонисту Вадиму Рулёву (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11096659C78BB033D79D0DF8BDA109AB4FF31069
 ```
 
 https://mybot314.ru/tekegram_catalog/

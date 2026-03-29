@@ -1,3 +1,107 @@
+###  Публикация: 1652613   (216943) от 12.08.2023
+
+Гюстав Флобер | Госпожа Бовари (2006) [MP3, Степан Старчиков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она мечтала быть любимой, жить в окружении красоты и блестящего общества. Но взамен судьба преподнесла ей брак с сельским врачом и прозябание в крошечном городишке среди обывателей. Однако находится человек, который кажется Эмме Бовари воплощением её былой мечты. Куда же приведёт её погоня за призраком любви: к счастью или к могиле?Жанр: зарубежная классика, классическая проза, литература 19 векаПродолжительность: 13:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15758FF2E4F79CA3F7F3FC216E773C85AD420635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652617   (216926) от 12.08.2023
+
+Эмиль Золя | Радость жизни (2021) [MP3, Татьяна Виноградова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главная героиня, встречающая в своей жизни лишь неблагодарность, ненависть, корыстолюбие и обман, отвечает окружающим любовью, самоотверженностью, милосердием. Она наделена уникальным качеством – радоваться жизни, такой, какова она есть.Жанр: зарубежная классика, литература 19 векаИздательство: ИДДКПродолжительность: 13:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF6E627C6AF86BF2ED733BD0E954A5BF51914880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1652607   (216892) от 12.08.2023
+
+Кикути Кан | Портрет дамы с жемчугами (2021) [MP3, Сергей Чонишвили]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216892.jpg" />
+</div>
+
+
+###  Подробнее
+
+В силу сложившихся традиций на протяжении веков уделом женщины считались ведение домашнего хозяйства и воспитание детей, а её поведение регламентировалось строгими нормами морали. Особенно ярко это проявлялось в странах Восточной Азии, в том числе и в Японии. Тем удивительнее сюжет романа «Портрет дамы с жемчугами», главная героиня которого решила доказать себе и (   Читать дальше...   )Жанр: классическая прозаПеревод: М. ОгусиИздательство: СОЮЗПродолжительность: 10:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A4EB2973D2545473A42C80088B33C9F93363FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084605   (216711) от 20.12.2016
+
+Андре Моруа | Письма незнакомке (2013) [MP3, Юрий Заборовский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами – лучшее из творческого наследия Моруа, одного из самого известного французского писателя ХХвека. Произведение, воплотившие в себе всю прелесть его тонкого, ироничного таланта постижения человеческой психологии. Парадоксальные, полные тонкого юмора и лиризма, «Письма незнакомке» до сих пор считаются своеобразным «эталоном жанра». Существовала ли таинственная (   Читать дальше...   )Жанр: Классическая прозаИздательство: Нигде не купишьПродолжительность: 05:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BAEDD1FC578831D06965B9846693E5E4B756AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586721   (215810) от 27.10.2022
 
 Александр Островский | Бесприданница. Гроза. Свои люди - сочтёмся. (2006) [MP3, Вадим Цимбалов]
@@ -6,7 +110,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215810.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213529.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212958.jpg" />
+  <img src="Z:/picture/005/save_picture_212958.jpg" />
 </div>
 
 
@@ -89,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211909.jpg" />
+  <img src="Z:/picture/005/save_picture_211909.jpg" />
 </div>
 
 
@@ -117,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211637.jpg" />
+  <img src="Z:/picture/005/save_picture_211637.jpg" />
 </div>
 
 
@@ -143,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210642.jpg" />
+  <img src="Z:/picture/005/save_picture_210642.jpg" />
 </div>
 
 
@@ -169,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209252.jpg" />
 </div>
 
 
@@ -197,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209248.jpg" />
 </div>
 
 
@@ -225,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208848.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208848.jpg" />
 </div>
 
 
@@ -251,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208701.jpg" />
 </div>
 
 
@@ -279,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208585.jpg" />
 </div>
 
 
@@ -305,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207759.jpg" />
 </div>
 
 
@@ -331,7 +435,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206494.jpg" />
 </div>
 
 
@@ -359,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205660.jpg" />
 </div>
 
 
@@ -387,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205371.jpg" />
+  <img src="Z:/picture/005/save_picture_205371.jpg" />
 </div>
 
 
@@ -413,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202406.jpg" />
 </div>
 
 
@@ -441,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_202401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_202401.jpg" />
 </div>
 
 
@@ -470,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197379.jpg" />
+  <img src="Z:/picture/004/save_picture_197379.jpg" />
 </div>
 
 
@@ -498,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197269.jpg" />
+  <img src="Z:/picture/004/save_picture_197269.jpg" />
 </div>
 
 
@@ -524,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197263.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196056.jpg" />
+  <img src="Z:/picture/004/save_picture_196056.jpg" />
 </div>
 
 
@@ -579,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195491.jpg" />
+  <img src="Z:/picture/004/save_picture_195491.jpg" />
 </div>
 
 
@@ -590,117 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37DE4ACD9A68F237D9EAA5F4D29EBE85518E8F20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 113042   (195170) от 25.07.2023
-
-Михаил Булгаков | Записки юного врача (2003) [MP3, Владимир Самойлов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем вашему вниманию рассказы Михаила Афанасьевича Булгакова из его автобиографического цикла "Записки юного врача". Это яркие зарисовки из медицинской практики писателя, проведенной им в Никольской больнице Сычевского уезда Смоленской губернии сразу после окончания университета. Они стали своеобразной "пробой пера" талантливого врача, (   Читать дальше...   )Жанр: Классическая проза, РассказыИздательство: АрдисПродолжительность: 08:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42B62D78D06C53664AEAE02E4440E628ED476287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827877   (193319) от 23.10.2025
-
-Лев Толстой | Крейцерова соната (2022) [MP3, Дарья Павлова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика (АСТ).
-Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
-«Крейцерова соната» (1890 г.) – поначалу запрещенная цензурой за свой «скандальный характер», эта повесть Л.Н. Толстого – о разрушительной силе ревности, которая может повлечь за собой даже убийство…
-(   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Аудиокнига (АСТ)Продолжительность: 03:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7D7EEB4AD90FD4EBFC0E0BEC4CEBEFEF96125F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827895   (193318) от 23.10.2025
-
-Лев Толстой | Отец Сергий (2022) [MP3, Роман Стабуров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика (АСТ).
-Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
-Повесть «Отец Сергий» (1911) – рассказ об искушении, о тайном дьяволе, живущем в каждом из нас и попытке изжить из себя этого дьявола, убежать от него. Очень личная для писателя история, отразившая его представления о вере и искуплении (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Аудиокнига (АСТ)Продолжительность: 02:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A0308C9C09E8758BC659E370CE4A7581E72186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1827917   (193317) от 23.10.2025
-
-Лев Толстой | Смерть Ивана Ильича (2022) [MP3, Роман Стабуров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_193317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Русская классика (АСТ).
-Лев Николаевич Толстой (1828–1910) – великий русский писатель, просветитель и общественный деятель.
-«Смерть Ивана Ильича» (1886 г.) – без преувеличения одно из самых значительных в мировой литературе произведений о смерти, о том, как приближающая, неминуемая кончина может до неузнаваемости преобразить ничем, в общем-то, не примечательного (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Аудиокнига (АСТ)Продолжительность: 03:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFD60B1E3CE206C18373A13281FBAB8DE903AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

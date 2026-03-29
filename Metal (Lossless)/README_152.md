@@ -1,3 +1,90 @@
+###  Публикация: 1059719   (459705) от 05.10.2016
+
+The Heretic - Chemistry For The Soul (2002) [APE|Lossless|image + .cue] <Melodic Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_459705.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.- The ROllercoaster Suite
+2.- Love Is As Dreadful As Death
+3.- Diesel Motor Soul
+4.- Dead Hearts In Living Men(   Читать дальше...   )Жанр: Melodic Technical Death MetalПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:935298C0BFBD4D63B735E1B4A1A448FACD62838A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059700   (459696) от 05.10.2016
+
+Leverage - Circus Colossus (2009) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_459696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise (Instrumental)
+02. Wolf and The Moon
+03. Movie Gods
+04. Worldbeater(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE5E12A8267986773128ED206173C9107E22C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059676   (459691) от 05.10.2016
+
+Symphonity - King Of Persia (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_459691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Of Persia
+02. The Choice
+03. In The Name Of God
+04. Flying(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:06:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B3A055334DE574EB2E622AB2EE7EB1382ED57F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408067   (458419) от 11.09.2020
 
 Axenstar - The Final Requiem (2006) [FLAC|Lossless|image + .cue] <Melodic Power Metal>
@@ -6,7 +93,7 @@ Axenstar - The Final Requiem (2006) [FLAC|Lossless|image + .cue] <Melodic Power 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458419.jpg" />
+  <img src="Z:/picture/008/save_picture_458419.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Protest The Hero - Palimpsest (2020) [FLAC|Lossless|image + .cue] <Progressive M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458415.jpg" />
+  <img src="Z:/picture/008/save_picture_458415.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Illdisposed - Reveal Your Soul For The Dead (2019) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458411.jpg" />
+  <img src="Z:/picture/008/save_picture_458411.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Mastodon - Medium Rarities (2020) Compilation [FLAC|Lossless|WEB-DL|tracks] <Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458406.jpg" />
+  <img src="Z:/picture/008/save_picture_458406.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Winter's Verge - The Ballad of James Tig (2020) [FLAC|Lossless|WEB-DL|tracks] <P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458398.jpg" />
+  <img src="Z:/picture/008/save_picture_458398.jpg" />
 </div>
 
 
@@ -153,7 +240,7 @@ Anathema - Falling Deeper (2011) [FLAC|Lossless]<Post-Rock,Atmospheric Rock,Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458340.jpg" />
+  <img src="Z:/picture/008/save_picture_458340.jpg" />
 </div>
 
 
@@ -179,7 +266,7 @@ Massacra - 3 Albums (1990 - 1992) Reissue, Remastered 2014 [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458050.jpg" />
+  <img src="Z:/picture/008/save_picture_458050.jpg" />
 </div>
 
 
@@ -208,7 +295,7 @@ Arcana XXII - Anthems of Adversity (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458049.jpg" />
+  <img src="Z:/picture/008/save_picture_458049.jpg" />
 </div>
 
 
@@ -237,7 +324,7 @@ Arcana XXII - This Burning Darkness (2002) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458048.jpg" />
+  <img src="Z:/picture/008/save_picture_458048.jpg" />
 </div>
 
 
@@ -266,7 +353,7 @@ Black Earth - 20 Years of Dark Insanity: Japan Tour 2016 (2017) 2CD [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458045.jpg" />
+  <img src="Z:/picture/008/save_picture_458045.jpg" />
 </div>
 
 
@@ -295,7 +382,7 @@ Lord Of The Lost - Swan Songs III (2020) 2xCD [FLAC|Lossless|image + .cue] <Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458004.jpg" />
+  <img src="Z:/picture/008/save_picture_458004.jpg" />
 </div>
 
 
@@ -324,7 +411,7 @@ Lonewolf - Division Hades (2020) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457940.jpg" />
+  <img src="Z:/picture/008/save_picture_457940.jpg" />
 </div>
 
 
@@ -353,7 +440,7 @@ David Readman - Medusa (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457938.jpg" />
+  <img src="Z:/picture/008/save_picture_457938.jpg" />
 </div>
 
 
@@ -382,7 +469,7 @@ Black Earth - Path of the Immortal (2019) Compilation [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457919.jpg" />
+  <img src="Z:/picture/008/save_picture_457919.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Carnation - Chapel Of Abhorrence (2018) [FLAC|Lossless|image + .cue] <Death Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457129.jpg" />
+  <img src="Z:/picture/008/save_picture_457129.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Dream Theater - Live At Budokan (2004) [FLAC|Lossless|tracks + .cue] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457120.jpg" />
+  <img src="Z:/picture/008/save_picture_457120.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Dream Theater & The Octavarium Orchestra - Score (20th Anniversary World Tour) (
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456990.jpg" />
+  <img src="Z:/picture/008/save_picture_456990.jpg" />
 </div>
 
 
@@ -502,7 +589,7 @@ Dream Theater - Images And Words (1992) [FLAC|Lossless|tracks + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456948.jpg" />
+  <img src="Z:/picture/008/save_picture_456948.jpg" />
 </div>
 
 
@@ -531,7 +618,7 @@ Metallica - Live In Lisbon - Altice Arena - Portugal - February 1st (2018) [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456836.jpg" />
+  <img src="Z:/picture/008/save_picture_456836.jpg" />
 </div>
 
 
@@ -560,7 +647,7 @@ Sneglefeber - Sneglefeber (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Do
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456137.jpg" />
+  <img src="Z:/picture/008/save_picture_456137.jpg" />
 </div>
 
 
@@ -589,7 +676,7 @@ KYPCK - Черно (2008) [FLAC|Lossless|image + .cue] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455908.jpg" />
+  <img src="Z:/picture/008/save_picture_455908.jpg" />
 </div>
 
 
@@ -618,7 +705,7 @@ Askog - Varg (Demo) (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455831.jpg" />
+  <img src="Z:/picture/008/save_picture_455831.jpg" />
 </div>
 
 
@@ -646,7 +733,7 @@ Artamene - Ziggurat (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455829.jpg" />
+  <img src="Z:/picture/008/save_picture_455829.jpg" />
 </div>
 
 
@@ -660,93 +747,6 @@ Artamene - Ziggurat (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87A1C2957151BB213007380C763229B50E83BB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569031   (455827) от 11.08.2022
-
-Arthemore - Czlowiek (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (00:01:18)
-02 - 29 (00:04:57)
-03 - Sadny dzien (00:05:14)
-04 - Prosta droga do nikad (00:06:53)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5855820F584567F4D0F47CC053266B5E8AE2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569099   (455825) от 11.08.2022
-
-Askog - Varpnaper (2021) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Svalt (04:20)
-02. Vinter (05:39)
-03. Tid (05:07)
-04. Mеne (07:23)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C00AC4D424CC920BC9E31793F428A2754B2443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569066   (455823) от 11.08.2022
-
-Asgard - Chamane (1998) (EP) [FLAC|Lossless|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chamane (03:09)
-02. The Wheel of Light (04:04)
-03. Images of an Heavenly World (01:28)
-04. Transe (03:58)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6AC4975921C56B02DB70E2B53F3841EFDF4452D
 ```
 
 https://mybot314.ru/tekegram_catalog/

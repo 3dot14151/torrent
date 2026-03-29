@@ -6,7 +6,7 @@ Windows 8.1 Single Language with Update 3 [November 2014] [Ru/En]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931163.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Windows 8.1 Professional WMC with Update 3 [November 2014] [Ru/En]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_931154.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_929855.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Microsoft Windows 10.0.19042.1165, Version 20H2 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923701.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Microsoft Windows 10.0.17763.2114, Version 1809 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923641.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Microsoft Windows 10.0.19042.1165, Version 20H2 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_923441.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Microsoft Windows 10.0.19043.1165, Version 21H1 (Updated August 2021) - Ориг
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914884.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Microsoft Windows 7 SP1 - Оригинальные образы от Microsoft M
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878848.jpg" />
+  <img src="Z:/picture/005/save_picture_878848.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Windows Thin PC SP1 x86 [En] (6.1.7601) + langPatch [Multi/Ru]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872159.jpg" />
+  <img src="Z:/picture/008/save_picture_872159.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866451.jpg" />
+  <img src="Z:/picture/008/save_picture_866451.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866348.jpg" />
+  <img src="Z:/picture/008/save_picture_866348.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866225.jpg" />
+  <img src="Z:/picture/008/save_picture_866225.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866211.jpg" />
+  <img src="Z:/picture/008/save_picture_866211.jpg" />
 </div>
 
 
@@ -355,7 +355,7 @@ Microsoft Windows 10.0.19043.1237, Version 21H1 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866085.jpg" />
+  <img src="Z:/picture/008/save_picture_866085.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ Microsoft Windows 7 Enterprise with SP1 x64 Updated (12.05.2011) Оригина�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859118.jpg" />
+  <img src="Z:/picture/008/save_picture_859118.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ Microsoft Windows 10.0.19043.1237, Version 21H1 (Updated September 2021) - Ор�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857404.jpg" />
+  <img src="Z:/picture/008/save_picture_857404.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы о
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842210.jpg" />
+  <img src="Z:/picture/008/save_picture_842210.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Microsoft Windows 11 IoT Enterprise [10.0.22000.194] - Оригинальные 
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842207.jpg" />
+  <img src="Z:/picture/008/save_picture_842207.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ Windows 8.1 with Bing OEM (x86 x64) 6.3.9600 [En]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837507.jpg" />
+  <img src="Z:/picture/008/save_picture_837507.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ Microsoft Windows 8.1 Pro for Education with Update [Ru]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835745.jpg" />
+  <img src="Z:/picture/008/save_picture_835745.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы о
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834742.jpg" />
+  <img src="Z:/picture/008/save_picture_834742.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Microsoft Windows 7 SP1 Updated (12.05.2011) - Оригинальные обра
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832224.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817642.jpg" />
+  <img src="Z:/picture/008/save_picture_817642.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817631.jpg" />
+  <img src="Z:/picture/008/save_picture_817631.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Microsoft Windows 10.0.19042.1288, Version 20H2 (Updated October 2021) - Ори�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817367.jpg" />
+  <img src="Z:/picture/008/save_picture_817367.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Microsoft Windows 11 [10.0.22000.258], Version 21H2 (Updated October 2021) - О�
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817363.jpg" />
+  <img src="Z:/picture/008/save_picture_817363.jpg" />
 </div>
 
 

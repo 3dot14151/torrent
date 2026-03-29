@@ -6,7 +6,7 @@ Remote Desktop Manager Enterprise 11.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814709.jpg" />
+  <img src="Z:/picture/008/save_picture_814709.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Saijaku Muhai no Bahamut | Undefeated Bahamut Chronicle [2016, TV, 12 эп.] HDT
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814702.jpg" />
+  <img src="Z:/picture/008/save_picture_814702.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814690.jpg" />
+  <img src="Z:/picture/008/save_picture_814690.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ PDF-XChange Editor Plus 8.0.339.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814676.jpg" />
+  <img src="Z:/picture/008/save_picture_814676.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VA - Trance - The Best of Dj's vol.2 (2010) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814647.jpg" />
+  <img src="Z:/picture/008/save_picture_814647.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814637.jpg" />
+  <img src="Z:/picture/008/save_picture_814637.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Commander One Pro Pack 1.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814631.jpg" />
+  <img src="Z:/picture/008/save_picture_814631.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Affinity Photo 1.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814627.jpg" />
+  <img src="Z:/picture/008/save_picture_814627.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ John Paesano - Mass Effect: Andromeda (Original Score) (2017) [FLAC|24/44|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814622.jpg" />
+  <img src="Z:/picture/008/save_picture_814622.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814603.jpg" />
+  <img src="Z:/picture/008/save_picture_814603.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Blocs 1.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814543.jpg" />
+  <img src="Z:/picture/008/save_picture_814543.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814530.jpg" />
+  <img src="Z:/picture/008/save_picture_814530.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ CPUID HWMonitor 1.31 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814512.jpg" />
+  <img src="Z:/picture/008/save_picture_814512.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ Norton Internet Security 22.9.1.12 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814505.jpg" />
+  <img src="Z:/picture/008/save_picture_814505.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Autodesk AutoCAD LT 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814503.jpg" />
+  <img src="Z:/picture/008/save_picture_814503.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814501.jpg" />
+  <img src="Z:/picture/008/save_picture_814501.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814488.jpg" />
+  <img src="Z:/picture/008/save_picture_814488.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ CCleaner 5.04.5151 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814485.jpg" />
+  <img src="Z:/picture/008/save_picture_814485.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814483.jpg" />
+  <img src="Z:/picture/008/save_picture_814483.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814478.jpg" />
+  <img src="Z:/picture/008/save_picture_814478.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Status Quo: Pictures - Live At Montreux (2009) [1080i] Blu-Ray
 >>Архив Музыкального Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814453.jpg" />
+  <img src="Z:/picture/008/save_picture_814453.jpg" />
 </div>
 
 
@@ -573,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814436.jpg" />
+  <img src="Z:/picture/008/save_picture_814436.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814426.jpg" />
+  <img src="Z:/picture/008/save_picture_814426.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814358.jpg" />
+  <img src="Z:/picture/008/save_picture_814358.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814345.jpg" />
+  <img src="Z:/picture/008/save_picture_814345.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Tirex - Своя атмосфера (2013) [MP3|320 кб/с]<Rap / Hip-Hop>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814326.jpg" />
+  <img src="Z:/picture/008/save_picture_814326.jpg" />
 </div>
 
 

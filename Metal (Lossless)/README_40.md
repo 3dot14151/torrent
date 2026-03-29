@@ -1,3 +1,91 @@
+###  Публикация: 1350138   (1003807) от 04.01.2020
+
+Destruction - Born To Perish (2019) Japan [WavPack|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Born To Perish
+02 Inspired By Death
+03 Betrayal
+04 Rotten(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9220ECF2DD9B15F6EF6C36325824A99A200D14E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350121   (1003799) от 04.01.2020
+
+Diablo Swing Orchestra - Pacifisticuffs (2017) [FLAC|Lossless|image + .cue] <Avantgarde, Experimental, Heavy Metal, Swing>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knucklehugs (Arm Yourself With Love) (2:27)
+02. The Age Of Vulture Culture (5:00)
+03. Superhero Jagganath (5:41)
+04. Vision Of The Purblind (1:01)(   Читать дальше...   )Жанр: Avantgarde, Experimental, Heavy Metal, SwingПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734C27FFD88F60D182D6E3933F821326AF054CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201580   (1003733) от 04.01.2020
+
+Monolord - 4 Albums, 1 EP (2014-2019) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monolord - шведская группа из Гётеборга, образованная в 2013 году, исполняющие тягучий Stoner Doom Metal.
+Названы в честь глухого на одно ухо друга, который по их словам жирный и раздражительный как Картман.Список альбомов:
+2014 - Empress Rising
+2015 - Vaenir
+2016 - Lord of Suffering-Die in Haze(   Читать дальше...   )Жанр: Stoner Metal, Doom MetalПродолжительность: 03:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8EAE302085063EA593A832CA67BB01F97627A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487424   (1003614) от 05.08.2021
 
 Witches Town - Black Pestilence (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +94,7 @@ Witches Town - Black Pestilence (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003614.jpg" />
 </div>
 
 
@@ -35,7 +123,7 @@ Attack Of The Rising - Game Changer (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003613.jpg" />
 </div>
 
 
@@ -64,7 +152,7 @@ Trance - Metal Forces (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003350.jpg" />
 </div>
 
 
@@ -93,7 +181,7 @@ Paramaecium - 4 Albums, 1 EP (1993-2004) [FLAC|Lossless|image + .cue] <Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003338.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003338.jpg" />
 </div>
 
 
@@ -122,7 +210,7 @@ Circus Of Rock - Come One, Come All (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003317.jpg" />
 </div>
 
 
@@ -151,7 +239,7 @@ Lacrimosa - 27 albums (1991-2010) [FLAC/APE|Lossless] <Gothic / Symphonic Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003122.jpg" />
 </div>
 
 
@@ -180,7 +268,7 @@ Dark Psychosis - Obsessed by Shadows (2021) [FLAC|Lossless|WEB-DL|tracks] <Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003073.jpg" />
 </div>
 
 
@@ -209,7 +297,7 @@ Diablo Swing Orchestra - The Butcher's Ballroom (2006) Reissue, 2008, MALS [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002984.jpg" />
 </div>
 
 
@@ -238,7 +326,7 @@ Behind The Scenery - Retroviseur (2004) [FLAC|Lossless|image + .cue] <Dark Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002772.jpg" />
 </div>
 
 
@@ -267,7 +355,7 @@ Altaria - Invitation (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002771.jpg" />
 </div>
 
 
@@ -296,7 +384,7 @@ Apocalyptica - Cell-0 (2020) [FLAC|Lossless|WEB-DL|tracks] <Cello Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002335.jpg" />
 </div>
 
 
@@ -325,7 +413,7 @@ Posthum - Like Wildfire (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002324.jpg" />
 </div>
 
 
@@ -354,7 +442,7 @@ Ov Shadows - I Djävulens Avbild (2020) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002323.jpg" />
 </div>
 
 
@@ -383,7 +471,7 @@ Fell Fyre - Devastation And The Dauntless (2020) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002322.jpg" />
 </div>
 
 
@@ -412,7 +500,7 @@ Fell Fyre - Tyranny and Triumph (2021) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002321.jpg" />
 </div>
 
 
@@ -441,7 +529,7 @@ Revel in Flesh - The Hour of the Avenger (2019) [FLAC|Lossless|image + .cue] <De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002313.jpg" />
 </div>
 
 
@@ -470,7 +558,7 @@ Wolfstavar - Im Schatten der Götter (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002081.jpg" />
 </div>
 
 
@@ -499,7 +587,7 @@ Ovvercross - Stuttgart, 1943 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002077.jpg" />
 </div>
 
 
@@ -528,7 +616,7 @@ Kilmara - Across The Realm Of Time (2018) [FLAC|Lossless|image + .cue] <Melodic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002075.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002075.jpg" />
 </div>
 
 
@@ -557,7 +645,7 @@ Eons Enthroned - Into the Arcane (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002074.jpg" />
 </div>
 
 
@@ -586,7 +674,7 @@ Sorceress Of Sin - Constantine (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002073.jpg" />
 </div>
 
 
@@ -615,7 +703,7 @@ Kobra And The Lotus - 7 albums (2009-2019) [FLAC|Lossless|image + .cue | tracks 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001905.jpg" />
 </div>
 
 
@@ -644,7 +732,7 @@ Darkology - Altered Reflections (2009) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001723.jpg" />
 </div>
 
 
@@ -658,93 +746,6 @@ Darkology - Altered Reflections (2009) [FLAC|Lossless|image + .cue] <Power Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F622C80F274DCD67DBBC399A1E6728D411C6ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488841   (1001470) от 13.08.2021
-
-Hordak - The Last European Wolves (2006) Reissue, 2014, GS Productions [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For a New Pagan Age to Come(01:38)
-02. Silvano, senor de los bosques (05:19)
-03. The Last European Wolves (04:24)
-04. Son of the Fatherland (06:40)(   Читать дальше...   )Жанр: Celtiberian Pagan MetalПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB7E034E29BBE89DB00B90E21F9F3897EFA36E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352330   (1001349) от 13.01.2020
-
-Concerto Moon - Ouroboros (2019) [WavPack|Lossless|image + .cue] <Neoclassical Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Change My Heart
-02 Dream Chaser
-03 Surrender
-04 Holy Child(   Читать дальше...   )Жанр: Neoclassical MetalПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC51BD54951B127619B1779B985C8F0888E3EDF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488979   (1001190) от 14.08.2021
-
-Nawather - Kenz Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Oriental Metal, Male Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Treasure Chest
-02. Breath of Jasmin
-03. Money Slave
-04. Falleg(   Читать дальше...   )Жанр: Heavy Oriental Metal, Male Female VocalПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAC10742A52E2D887D87327D0F2F0739E8E380D
 ```
 
 https://mybot314.ru/tekegram_catalog/

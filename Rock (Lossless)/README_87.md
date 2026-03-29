@@ -1,3 +1,148 @@
+###  Публикация: 1562045   (508941) от 09.07.2022
+
+Imagine Dragons - Mercury - Acts 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Electronic, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_508941.jpg" />
+</div>
+
+
+###  Подробнее
+
+15. Bones
+16. Symphony
+17. Sharks
+18. I Don't Like Myself(   Читать дальше...   )Жанр: Indie Rock, Electronic, Alternative RockПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22DD6F4E1F5ECB78E953034BA66BAF596787F535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562663   (508143) от 10.07.2022
+
+DeGarmo & Key - This Ain't Hollywood (1980) Reissue, 2021, Girder Records [FLAC|Lossless|image + .cue] <Soft Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_508143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella, This Ain't Hollywood (3:24)
+02. When He Comes Back (2:46)
+03. You Gave Me All (3:30)
+04. Never Be The Same (2:57)(   Читать дальше...   )Жанр: Soft Rock, AORПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223EE8E61A9D2DAC673335AB725638DAD2064964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562774   (507324) от 11.07.2022
+
+Duster 69 - With Best Regards (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_507324.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Remember
+2. Oppose
+3. Upcoming
+4. 50 Miles(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478A6F7DF7AE06BF8D97FA864BEFB18F0FAD990E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562776   (507236) от 11.07.2022
+
+Obiat - Indian Ocean (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludge, Stoner, Psych, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_507236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulysses
+02. Eyes and Soul
+03. Acid Wake
+04. Nothing Above(   Читать дальше...   )Жанр: Doom, Sludge, Stoner, Psych, Prog RockПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5C91D7A6C85D76B33A37F4A824EC8F7C9AEDDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562765   (507231) от 11.07.2022
+
+Fantasia - Aikamatkaajan unikuva (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_507231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Pilvien takaa (00:04:14)
+02 - Unikuva -Huutokauppa (00:05:52)
+03 - Suihkuliidolla (00:03:41)
+04 - Abra (00:04:11)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1823FDB9947D16BFA22E87CABE560C66CFBEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563703   (503619) от 15.07.2022
 
 Jeff Beck & Johnny Depp - 18 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -6,7 +151,7 @@ Jeff Beck & Johnny Depp - 18 (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503619.jpg" />
+  <img src="Z:/picture/008/save_picture_503619.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Freddie Mercury - In My Defence (1992) [FLAC|Lossless]<Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503598.jpg" />
+  <img src="Z:/picture/008/save_picture_503598.jpg" />
 </div>
 
 
@@ -70,7 +215,7 @@ Chicago - Born for This Moment (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503526.jpg" />
+  <img src="Z:/picture/008/save_picture_503526.jpg" />
 </div>
 
 
@@ -99,7 +244,7 @@ The Cars - Promo Box 6CD [Japan SHM-CD] (2012) [FLAC|Lossless]<Rock, New Wave, P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503244.jpg" />
+  <img src="Z:/picture/008/save_picture_503244.jpg" />
 </div>
 
 
@@ -134,7 +279,7 @@ Pink Floyd - The Wall (1979 (2 × CD, Reissue 1989, Remastered, 24Kt Gold CD, Bo
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502985.jpg" />
+  <img src="Z:/picture/008/save_picture_502985.jpg" />
 </div>
 
 
@@ -169,7 +314,7 @@ Palace - One 4 The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502700.jpg" />
+  <img src="Z:/picture/008/save_picture_502700.jpg" />
 </div>
 
 
@@ -198,7 +343,7 @@ Riverside - Love, Fear And The Time Machine (Limited Edition) (2015) 2CD [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502399.jpg" />
+  <img src="Z:/picture/008/save_picture_502399.jpg" />
 </div>
 
 
@@ -228,7 +373,7 @@ Animal Collective - Centipede Hz (2012) [FLAC|Lossless]<Indie/Experimental rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502358.jpg" />
+  <img src="Z:/picture/008/save_picture_502358.jpg" />
 </div>
 
 
@@ -263,7 +408,7 @@ Quiet Confusion - Magella (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Ston
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501727.jpg" />
+  <img src="Z:/picture/008/save_picture_501727.jpg" />
 </div>
 
 
@@ -292,7 +437,7 @@ BloYaTop - Why Waltz (2012) [FLAC|Lossless]<Blues Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501618.jpg" />
+  <img src="Z:/picture/008/save_picture_501618.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ Aimee Mann - Charmer (2012) [FLAC|Lossless]<Indie/Rock/Folk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501499.jpg" />
+  <img src="Z:/picture/008/save_picture_501499.jpg" />
 </div>
 
 
@@ -362,7 +507,7 @@ Yeasayer - Fragrant World (2012) [FLAC|Lossless]<Indie/Experimental/Psychedelic>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501425.jpg" />
+  <img src="Z:/picture/008/save_picture_501425.jpg" />
 </div>
 
 
@@ -397,7 +542,7 @@ The Flower Kings - Banks of Eden (2012) [FLAC|Lossless]<Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501423.jpg" />
+  <img src="Z:/picture/008/save_picture_501423.jpg" />
 </div>
 
 
@@ -428,7 +573,7 @@ Dinosaur Jr. - I Bet On Sky (2012) [FLAC|Lossless]<Alternative Rock / Indie>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501419.jpg" />
+  <img src="Z:/picture/008/save_picture_501419.jpg" />
 </div>
 
 
@@ -463,7 +608,7 @@ The Darkness - Hot Cakes (Deluxe Edition) (2012) [FLAC|Lossless]<Hard Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501314.jpg" />
+  <img src="Z:/picture/008/save_picture_501314.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ The Brian Jonestown Massacre - Aufheben (2012) [FLAC|Lossless]<Indie Rock / Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501239.jpg" />
+  <img src="Z:/picture/008/save_picture_501239.jpg" />
 </div>
 
 
@@ -533,7 +678,7 @@ Mark Knopfler - BBC Sessions (2019) Unofficial Release [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501212.jpg" />
+  <img src="Z:/picture/008/save_picture_501212.jpg" />
 </div>
 
 
@@ -562,7 +707,7 @@ Gentle Giant - I Lost My Head: The Chrysalis Years 1975-1980 (4CD Box Set) (2012
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501139.jpg" />
+  <img src="Z:/picture/008/save_picture_501139.jpg" />
 </div>
 
 
@@ -588,7 +733,7 @@ Two Door Cinema Club - Beacon (2012) [FLAC|Lossless]<Indie Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501045.jpg" />
+  <img src="Z:/picture/008/save_picture_501045.jpg" />
 </div>
 
 
@@ -623,7 +768,7 @@ Jeff Beck & Johnny Depp - 18 (2022) [FLAC|Lossless|image + .cue] <	Rock, Folk, C
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500580.jpg" />
+  <img src="Z:/picture/008/save_picture_500580.jpg" />
 </div>
 
 
@@ -652,7 +797,7 @@ Dire Straits - Sultans Of Swing the Very Best Of Dire Straits (1998) (2012, SHM-
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500264.jpg" />
+  <img src="Z:/picture/008/save_picture_500264.jpg" />
 </div>
 
 
@@ -672,157 +817,6 @@ Dire Straits - Sultans Of Swing the Very Best Of Dire Straits (1998) (2012, SHM-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D8AF32E0CA8D5E25D83CE40CF68B81B4F5E8AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935329   (499449) от 08.09.2015
-
-VA - Monsters Of Rock Live/Double Album (2005) [APE|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1-01       Roxy Music - 	Virginia Plain
-1-02	REO Speedwagon - 	Keep On Lovin' You
-1-03	Deep Purple -	Smoke On The Water
-1-04	Little Feat - 	 Rag Mama Rag(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42302293831C128CEECC76BE23C8A4CF2EFBA659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541486   (498922) от 02.09.2012
-
-Mark Knopfler - Privateering 2CD (2012) [FLAC|Lossless]<Rock / Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498922.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Redbud Tree
-02. Haul Away
-03. Don't Forget Your Hat
-04. Privateering
-05. Miss You Blues
-06. Corned Beef City
-07. Go, Love
-08. Hot or What
-09. Yon Two Crows(   Читать дальше...   )Жанр: Rock / FolkПродолжительность: 00:45:16 / 00:44:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935436   (498417) от 09.09.2015
-
-VA - Ultimate Rock Anthems Vol.1-2 (2005) [APE|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Rod Stewart -	Street Fighting Man
-02	Bobby Fuller Four -	I Fought The Law
-03	Bay City Rollers -	Bye Bye Baby
-04	Big Country -	Fields Of Fire(   Читать дальше...   )Жанр: RockПродолжительность: 01:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0EFF992B0F26795B58CB6A8CF717C5D0B09FD10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935453   (498401) от 09.09.2015
-
-VA - Rock'n'Roll Collection (2003) [APE|image + .cue]<Rock/Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bill Haley and the Comets - Rock Around The Clock
-02. Jerry Lee Lewis - Great Balls Of Fire
-03. Little Richard - Tutti Fruti
-04. Carl Perkins - Blue Suede Shoes(   Читать дальше...   )Жанр: Rock/Rock'n'RollПродолжительность: 00:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63799BDC29DC27392E8AF99828B37194F2422E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935682   (498354) от 09.09.2015
-
-VA - Legends Of Rock (2005) [APE|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meat Loaf With Cher - "Dead Ringer For Love"
-02. Alice Cooper - "Poison"
-03. Motorhead - "Ace Of Spades"
-04. Nickelback -  "Feelin Way Too Damn Good"(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECDF6CA369A2CB762F14FB7C90ACFD473C0EE8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

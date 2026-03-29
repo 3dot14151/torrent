@@ -1,3 +1,90 @@
+###  Публикация: 1812597   (7680) от 15.08.2025
+
+Martyr - Dark Believer (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7680.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darkness Before Dawn
+2. Dark Believer
+3. Wrath Of The Fallen
+4. Cemetery Symphony(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41E906BBC54E116B04D099F221A0990860A5667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812580   (7664) от 15.08.2025
+
+Unleashed - Fire upon Your Lands (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Left for Dead
+02. A Toast to the Fallen
+03. The Road to Haifa Pier
+04. War Comes Again(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8C9D273CA28EAAA8D8C2C24F2BF24D279B3FE54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1812862   (7448) от 16.08.2025
+
+Incite - Savage New Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lies
+02. Feel This Shit (I'm Fired Up)
+03. Just A Rat
+04. Chucked Off(   Читать дальше...   )Жанр: Thrash, Groove MetalПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2073366B408F8F47415F325E7BCC24284D0621BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1812870   (7425) от 16.08.2025
 
 Arckanum - Fenris Kindir (2013) Limited Edition, Reissue, 2020, Black Metal Store.com [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
@@ -6,7 +93,7 @@ Arckanum - Fenris Kindir (2013) Limited Edition, Reissue, 2020, Black Metal Stor
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7425.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Jonathan Young - 40K HEAVY METAL (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7228.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Throne Of Time - Emperor Of The Universe (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6892.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Black Knight - The Tower (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6890.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Viral - The Merchant (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6605.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Mob Rules - Rise Of The Ruler (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6435.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ GAEREA - Coma (2024) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6409.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6409.jpg" />
 </div>
 
 
@@ -210,7 +297,7 @@ Benefactor Decease - Abnormal Attachments (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6399.jpg" />
 </div>
 
 
@@ -239,7 +326,7 @@ Vindicator - Whispers Of Death (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6397.jpg" />
 </div>
 
 
@@ -268,7 +355,7 @@ Patristic - Catechesis (2025) [FLAC|Lossless|image + .cue] <Black Metal, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6394.jpg" />
 </div>
 
 
@@ -297,7 +384,7 @@ Meshuggah - Immutable (2022) Reissue, Remastered, 2024, Reigning Phoenix Music [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6392.jpg" />
 </div>
 
 
@@ -326,7 +413,7 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6256.jpg" />
 </div>
 
 
@@ -355,7 +442,7 @@ Burning Witches - Inquisition (2025) [FLAC|Lossless|WEB-DL|tracks] <HeavyMetal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6255.jpg" />
 </div>
 
 
@@ -384,7 +471,7 @@ Tómarúm - Ash In Realms Of Stone Icons (2022) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_6242.jpg" />
 </div>
 
 
@@ -413,7 +500,7 @@ Gunslinger - Amped Up (2025) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5808.jpg" />
 </div>
 
 
@@ -442,7 +529,7 @@ Sacred Will - Into the Realm (2025) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5681.jpg" />
 </div>
 
 
@@ -471,7 +558,7 @@ Sacred Will - Sacred Will (2025) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5652.jpg" />
 </div>
 
 
@@ -500,7 +587,7 @@ Helloween - Giants & Monsters (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5345.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5345.jpg" />
 </div>
 
 
@@ -529,7 +616,7 @@ Darker Half - Book Of Fate (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5340.jpg" />
 </div>
 
 
@@ -558,7 +645,7 @@ Vicious Rumors - The Devil's Asylum (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5334.jpg" />
 </div>
 
 
@@ -587,7 +674,7 @@ Unen - Forever Winter (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5328.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5328.jpg" />
 </div>
 
 
@@ -616,7 +703,7 @@ Insania - The Great Apocalypse (2025) Japanese Edition [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4643.jpg" />
 </div>
 
 
@@ -645,7 +732,7 @@ Helloween - Giants & Monsters (2025) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4430.jpg" />
 </div>
 
 
@@ -659,93 +746,6 @@ Giants & Monsters - семнадцатый студийный альбом не�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E01F9896126C3FE3AB4CA51190678738167423EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816630   (4122) от 06.09.2025
-
-Primal Fear - Domination (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Hunter [4:23]
-02 - Destroyer [4:32]
-03 - Far Away [4:20]
-04 - I Am The Primal Fear [5:43](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15E2BCC6D011095F061CE79C2C9BDB0700D9632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816729   (4085) от 06.09.2025
-
-Slipknot - Slipknot (1999) 25th Anniversary Edition, Reissue, Remastered, 2025, Roadrunner Records [FLAC|Lossless|image + .cue] <Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 742617000027 [0:37]
-02 - (sic) [3:20]
-03 - Eyeless [3:57]
-04 - Wait and Bleed [2:28](   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70436A42C34CF456E2175A89E2B5AF8FF0B19345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816704   (4045) от 06.09.2025
-
-Violator - Unholy Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hang The Merchants of Illusion(5:06)
-02. Cult of Death(4:46)
-03. Persecution Personality(5:19)
-04. Destroy the Altar(4:24)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFADDE70898D1B6F5EE6E8F456424EC1115DDD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

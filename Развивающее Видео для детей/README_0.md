@@ -6,7 +6,7 @@
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_942536.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936844.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_926159.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911158.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910675.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_910675.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905947.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901568.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Foxford, Гаяне Курятова | Мнемотехника. Развити�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900050.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899712.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899712.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Foxford, Коллектив авторов | Серия развивающих �
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891899.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_885265.jpg" />
+  <img src="Z:/picture/009/save_picture_885265.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_884355.jpg" />
+  <img src="Z:/picture/008/save_picture_884355.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882619.jpg" />
+  <img src="Z:/picture/005/save_picture_882619.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ InternetUrok | Видеоуроки 4 Класс. Английский язык.
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878174.jpg" />
+  <img src="Z:/picture/005/save_picture_878174.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ InternetUrok | Видеоуроки 3 Класс. Английский язык.
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878173.jpg" />
+  <img src="Z:/picture/005/save_picture_878173.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ InternetUrok | Видеоуроки 2 Класс. Английский язык.
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878171.jpg" />
+  <img src="Z:/picture/005/save_picture_878171.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ InternetUrok | Видеоуроки 5 Класс. Английский язык.
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878169.jpg" />
+  <img src="Z:/picture/005/save_picture_878169.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ InternetUrok | Видеоуроки 6 Класс. Биология. Литера
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878167.jpg" />
+  <img src="Z:/picture/005/save_picture_878167.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ InternetUrok | Видеоуроки 7 Класс. Алгебра. Английс
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878084.jpg" />
+  <img src="Z:/picture/005/save_picture_878084.jpg" />
 </div>
 
 
@@ -534,7 +534,7 @@ InternetUrok | Видеоуроки 9 Класс. Алгебра. Английс
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878082.jpg" />
+  <img src="Z:/picture/005/save_picture_878082.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ InternetUrok | Видеоуроки 8 Класс. Алгебра. Биологи
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878081.jpg" />
+  <img src="Z:/picture/005/save_picture_878081.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ InternetUrok | Видеоуроки 1 Класс. Математика. Окру
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878075.jpg" />
+  <img src="Z:/picture/005/save_picture_878075.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ InternetUrok | Видеоуроки 10 Класс. Алгебра. Англий�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876311.jpg" />
+  <img src="Z:/picture/008/save_picture_876311.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ InternetUrok | Видеоуроки 11 Класс. Алгебра. Биолог�
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876310.jpg" />
+  <img src="Z:/picture/005/save_picture_876310.jpg" />
 </div>
 
 
@@ -679,7 +679,7 @@ Fairy Tale видеокурс. Про пони, мышонка и хвастли
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861629.jpg" />
+  <img src="Z:/picture/008/save_picture_861629.jpg" />
 </div>
 
 
@@ -705,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Развивающее Видео для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858145.jpg" />
+  <img src="Z:/picture/008/save_picture_858145.jpg" />
 </div>
 
 

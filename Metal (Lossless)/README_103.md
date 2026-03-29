@@ -1,3 +1,102 @@
+###  Публикация: 1135124   (682898) от 18.05.2017
+
+Voyager - Ghost Mile (2017) [FLAC|Lossless|tracks] <Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_682898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascension
+02. Misery Is Only Company
+03. Lifeline
+04. The Fragile Serene(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECA393A802F31C7CC95D703045C40C735A9ECF64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 213090   (682736) от 26.06.2010
+
+Ozzy Osbourne - Scream [Japanese Edition] (2010) [FLAC|Lossless]<Heavy Metal/Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_682736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Die (6:07)
+02. Let Me Hear Your Scream (3:26)
+03. Soul Sucker (4:35)
+04. Life Won't Wait (5:07)
+05. Diggin' Me Down (6:04)
+06. Crucify (3:30)
+07. Fearless (3:42)
+08. Time (5:32)
+09. I Want It More (5:37)
+10. Latimer's Mercy (4:27)(   Читать дальше...   )Жанр: Heavy Metal/Hard RockПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506056   (682617) от 08.06.2012
+
+Pain of Salvation - 13 albums (1997-2011) [FLAC/WavPack|Lossless] <Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_682617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road Salt Theme (00:44)
+02. Softly She Cries (04:16)
+03. Conditioned (04:15)
+04. Healing Now (04:29)
+05. To the Shoreline (03:03)
+06. Break Darling Break (Bonus track) (02:22)
+07. Eleven (06:55)
+08. 1979 (02:52)
+09. Of Salt (Bonus track) (02:36)
+10. The Deeper Cut (06:07)(   Читать дальше...   )1997-2011Жанр: Progressive Metal, Progressive RockПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535854   (682590) от 08.03.2022
 
 Spirit Of The Forest - Kingdom Of Despair (2010) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -6,7 +105,7 @@ Spirit Of The Forest - Kingdom Of Despair (2010) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682590.jpg" />
+  <img src="Z:/picture/008/save_picture_682590.jpg" />
 </div>
 
 
@@ -35,7 +134,7 @@ Farseer - Crowned By The Hammer (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682515.jpg" />
+  <img src="Z:/picture/008/save_picture_682515.jpg" />
 </div>
 
 
@@ -64,7 +163,7 @@ Spirit Of The Forest - A Brew Of Lightning And Terror (2007) [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682228.jpg" />
+  <img src="Z:/picture/008/save_picture_682228.jpg" />
 </div>
 
 
@@ -93,7 +192,7 @@ Hollowheart - Hollowheart (2016) [FLAC|Lossless|WEB-DL|tracks] <Love, Gothic Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682156.jpg" />
+  <img src="Z:/picture/008/save_picture_682156.jpg" />
 </div>
 
 
@@ -122,7 +221,7 @@ Darkwater - Human (2019) [FLAC|Lossless|tracks + .cue] <Rock, Progressive Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682085.jpg" />
+  <img src="Z:/picture/008/save_picture_682085.jpg" />
 </div>
 
 
@@ -151,7 +250,7 @@ Rammstein - Liebe Ist Fur Alle Da (2009) [FLAC|Lossless|image + .cue] <Rock, Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681853.jpg" />
+  <img src="Z:/picture/008/save_picture_681853.jpg" />
 </div>
 
 
@@ -180,7 +279,7 @@ Eunomia - The Chronicles Of Eunomia, Part I (2018) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680520.jpg" />
+  <img src="Z:/picture/008/save_picture_680520.jpg" />
 </div>
 
 
@@ -209,7 +308,7 @@ Burial - Relinquished Souls (1993) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680441.jpg" />
+  <img src="Z:/picture/008/save_picture_680441.jpg" />
 </div>
 
 
@@ -238,7 +337,7 @@ In Flames - I, The Mask (2019) Japanese Edition [FLAC|lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680218.jpg" />
+  <img src="Z:/picture/008/save_picture_680218.jpg" />
 </div>
 
 
@@ -267,7 +366,7 @@ Erra - Moments of Clarity (2014) [FLAC|Lossless]<Progressive Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679777.jpg" />
+  <img src="Z:/picture/008/save_picture_679777.jpg" />
 </div>
 
 
@@ -296,7 +395,7 @@ Delain - We Are The Others (2012) Special Edition [FLAC|Lossless]<Symphonic Goth
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678940.jpg" />
+  <img src="Z:/picture/005/save_picture_678940.jpg" />
 </div>
 
 
@@ -331,7 +430,7 @@ Nuclear Revenge - Dawn of the Primitive Age (2021) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678785.jpg" />
+  <img src="Z:/picture/008/save_picture_678785.jpg" />
 </div>
 
 
@@ -360,7 +459,7 @@ Balrog - Gorgon (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678664.jpg" />
+  <img src="Z:/picture/008/save_picture_678664.jpg" />
 </div>
 
 
@@ -389,7 +488,7 @@ Master - Vindictive Miscreant (2018) Reissue, 2021, Awakening Records [FLAC|Loss
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678652.jpg" />
+  <img src="Z:/picture/008/save_picture_678652.jpg" />
 </div>
 
 
@@ -418,7 +517,7 @@ Pallbearer - Heartless (2017) [FLAC|Lossless|tracks + .cue] <Doom Metal, Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678484.jpg" />
+  <img src="Z:/picture/008/save_picture_678484.jpg" />
 </div>
 
 
@@ -447,7 +546,7 @@ Last In Line - II (2019) Japanese Edition [FLAC|lossless|image + .cue] <Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678479.jpg" />
+  <img src="Z:/picture/008/save_picture_678479.jpg" />
 </div>
 
 
@@ -476,7 +575,7 @@ Rammstein - Paris (2017) Live [FLAC|Lossless|image + .cue] <Industrial>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678450.jpg" />
+  <img src="Z:/picture/008/save_picture_678450.jpg" />
 </div>
 
 
@@ -502,7 +601,7 @@ Sabaton - The War to End All Wars (2022) 2CD, Limited Edition, Earbook [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678380.jpg" />
+  <img src="Z:/picture/008/save_picture_678380.jpg" />
 </div>
 
 
@@ -531,7 +630,7 @@ Fear Factory - Demanufacture+Remanufacture (1995) Digipack, 25th Anniversary Rei
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_678114.jpg" />
+  <img src="Z:/picture/005/save_picture_678114.jpg" />
 </div>
 
 
@@ -560,7 +659,7 @@ Tephra - A Modicum Of Truth (2007) [FLAC|Lossless] <Doom Metal, Hardcore, Post-M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677658.jpg" />
+  <img src="Z:/picture/005/save_picture_677658.jpg" />
 </div>
 
 
@@ -595,7 +694,7 @@ Preludiо Аnсеstrаl - Оbliviоn (2018) Japanese Edition [FLAC|Lossless|imag
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677423.jpg" />
+  <img src="Z:/picture/008/save_picture_677423.jpg" />
 </div>
 
 
@@ -624,7 +723,7 @@ Minsk - 3 albums (2005-2009) [FLAC|Lossless] <Post-metal, Sludge, Post-hardcore,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677326.jpg" />
+  <img src="Z:/picture/005/save_picture_677326.jpg" />
 </div>
 
 
@@ -657,7 +756,7 @@ Shrinebuilder ‎– Shrinebuilder (2009) [FLAC|Lossless] <Stoner / Doom Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677183.jpg" />
+  <img src="Z:/picture/005/save_picture_677183.jpg" />
 </div>
 
 
@@ -672,94 +771,6 @@ Shrinebuilder ‎– Shrinebuilder (2009) [FLAC|Lossless] <Stoner / Doom Metal, 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507171   (677049) от 11.06.2012
-
-Isis - 13 albums (1998-2012) [FLAC/APE|Lossless] <Post-Metal, Progressive metal, Sludge, Doom Metal, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_677049.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: (00:40:26)
-01. Carry (06:59)
-02. Hymn (09:31)
-03. Weight (13:29)
-04. The Beginning and the End (10:25)1998-2012Жанр: Post-Metal, Progressive metal, Sludge, Doom Metal, Post-RockПродолжительность: 06:20:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029999   (676792) от 29.06.2016
-
-Masterstroke - Sleep (2007) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transition
-02. Killing Creatures
-03. Turn Away
-04. Under Our Command(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C13D03AE171BE0FBA88A63E3390789F1623C5F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030004   (676791) от 29.06.2016
-
-Starkill - Fires of Life (2013) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal, Melodic Death Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispers of Heresy
-02. Fires of Life
-03. Sword, Spear, Blood, Fire
-04. Below the Darkest Depths(   Читать дальше...   )Жанр: Symphonic Metal, Melodic Death Metal, Power MetalПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EDB88C4B9ADFF69C1AFED35B37D2716D97E8984
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1608660   (236805) от 31.01.2023
+
+Cancervo - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arera [00:04:08]
+02. Herdsman of Grem [00:05:31]
+03. The Cult of Armentarga [00:04:02]
+04. Devil's Coffin [00:05:37](   Читать дальше...   )Жанр: Psychedelic, Stoner, Doom MetalПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0E9A60B686F9A926488B7A2B5EAFBA0394CE47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631271   (236780) от 04.05.2023
+
+Deathstars - Everything Destroys You (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is (3:42)
+02. Midnight Party (3:44)
+03. Anti All (4:05)
+04. Everything Destroys You (3:56)(   Читать дальше...   )Жанр: Industrial Gothic MetalПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09B3A324F5A1035757CA0E29301F70CB4928004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608656   (236778) от 31.01.2023
+
+Destronomer - The Two Horns (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_236778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. March
+02. Bin Diver
+03. Autonaught
+04. Core Fallen(   Читать дальше...   )Жанр: Sludge, Stoner, Doom MetalПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65DA043EDEB79087A519455FF97FC96904DE633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456099   (236756) от 21.03.2021
 
 Arret's Odyssey - Arret's Odyssey (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Heavy Metal>
@@ -6,7 +93,7 @@ Arret's Odyssey - Arret's Odyssey (2021) [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236756.jpg" />
+  <img src="Z:/picture/005/save_picture_236756.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Opera IX - The Gospel (2018) [FLAC|Lossless|image + .cue] <Symphonic Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236615.jpg" />
+  <img src="Z:/picture/005/save_picture_236615.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Crack Jaw - Nightout (1985) Limited Edition, Numbered, Reissue, Remastered, 2015
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236547.jpg" />
+  <img src="Z:/picture/005/save_picture_236547.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Ray Alder - II (2023) [FLAC|Lossless|image + .cue] <Melodic Progressive Metal, P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236514.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Abyss Of Despair - Artificial Soul Projection (2023) [FLAC|Lossless|WEB-DL|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236470.jpg" />
+  <img src="Z:/picture/005/save_picture_236470.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Memorized Dreams - Theater Of Life (2004) [WavPack|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236456.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Forged In Black - Lightning In The Ashes (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_236441.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Axeheart - Through the Seas and Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236427.jpg" />
+  <img src="Z:/picture/005/save_picture_236427.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Dead Wolvs - What Doesn't Kill You (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Ha
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236420.jpg" />
+  <img src="Z:/picture/005/save_picture_236420.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Autumnfall - Bleak (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236419.jpg" />
+  <img src="Z:/picture/005/save_picture_236419.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ The Swarm - Flawed Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236406.jpg" />
+  <img src="Z:/picture/005/save_picture_236406.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Invicti - Songs of conquest (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236352.jpg" />
+  <img src="Z:/picture/005/save_picture_236352.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Depressive Witches - Bad Flask (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236343.jpg" />
+  <img src="Z:/picture/004/save_picture_236343.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Sorcerer - 4 Albums (2015-2020) [FLAC|Lossless|image + .cue] <Epic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236329.jpg" />
+  <img src="Z:/picture/005/save_picture_236329.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Dark Sarah - Attack Of Orym (2023) [FLAC|Lossless|image + .cue] <Symphonic Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236315.jpg" />
+  <img src="Z:/picture/004/save_picture_236315.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Autumn Nostalgie - Ataraxia (2021) [FLAC|Lossless|image + .cue] < Post-Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236314.jpg" />
+  <img src="Z:/picture/005/save_picture_236314.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Astral Moon - Astral Necromancy (2021) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236302.jpg" />
+  <img src="Z:/picture/005/save_picture_236302.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Act of Impalement - Infernal Ordiance (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236297.jpg" />
+  <img src="Z:/picture/005/save_picture_236297.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Astral Moon - Into Solar Abyss (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236276.jpg" />
+  <img src="Z:/picture/005/save_picture_236276.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Helsreach - Helsreach (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Hardco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236262.jpg" />
+  <img src="Z:/picture/005/save_picture_236262.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Hippo - Quiet Pills (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom-Metal, Ex
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236257.jpg" />
+  <img src="Z:/picture/005/save_picture_236257.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Wings Of Destiny - Time (2015) [FLAC|Lossless|image + .cue] <Melodic Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236255.jpg" />
+  <img src="Z:/picture/005/save_picture_236255.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Distillery - I'm Your Nightmare (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_236250.jpg" />
+  <img src="Z:/picture/004/save_picture_236250.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Distillery - I'm Your Nightmare (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A663D8C45CCF7DB26F6DF11512430E9F26433434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610932   (236248) от 09.02.2023
-
-Seum - Double Double (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Torpedo (00:04:49)
-02 - Snow Bird (00:03:08)
-03 - Razorblade Rainbow (00:05:30)
-04 - Toil and Trouble (00:00:35)(   Читать дальше...   )Жанр: Sludge, Stoner MetalПродолжительность: 00:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E97AF6615DF903C32F654FCFC0EE73C23B1AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610844   (236233) от 09.02.2023
-
-Drakwald - Black Moon Falls (2023) [FLAC|Lossless|WEB-DL|tracks] <Pagan, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_236233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Rising (02:26)
-02 - Devouring the Living Sun (05:26)
-03 - Burning Clouds (03:42)
-04 - Storm of Embers (04:36)(   Читать дальше...   )Жанр: Pagan, Melodic Death MetalПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2788744713506A0B03ACF461958299FF780A2E27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641619   (236226) от 23.06.2023
-
-Degrees Of Truth - Alchemists (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_236226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imperfect Concoction
-02. Godless Symphony
-03. Over The Tide
-04. Flightmare(   Читать дальше...   )Жанр: Symphonic, Progressive MetalПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3988C4D644171B93C0209E2B42A9C7A06FC17730
 ```
 
 https://mybot314.ru/tekegram_catalog/

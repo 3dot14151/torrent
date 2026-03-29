@@ -1,3 +1,81 @@
+###  Публикация: 1680000   (132824) от 02.12.2023
+
+Another Day (2023) [Ru/En] (1.0.3) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132824.jpg" />
+</div>
+
+
+###  Подробнее
+
+Another Day — это психологический хоррор, с графикой приближенный к реализму. Иван отправляется в заброшенную больницу города Ольхов, где исчез его брат Толя, после того, как тот стал свидетелем чего-то ужасного, из-за чего перестал выходить на связь.Тип издания: RepackРазработчик: TrivioraGamesЖанр: Adventure (Horror), Puzzle, 1st Person, 3DЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010A65937D0F138C60269BEE1A7B26E37B588027
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681693   (132161) от 04.12.2023
+
+The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Начните путешествие в роли Рика Граймса, что проснулся один в больнице в окружении мертвецов. Собирайте союзников и прокладывайте путь сквозь засилье ходячих в культовых локациях сериала The Walking Dead, среди которых Атланта, ферма семьи Гринов, тюрьма и Вудбери. В переломные моменты выбора вы навсегда будете определять судьбу команды из персонажей сериала. Герои (   Читать дальше...   )Тип издания: RepackРазработчик: Flux GamesЖанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B1C7B417879ED7948816C009DA577ABE04F1AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673848   (130648) от 09.12.2023
+
+Three Minutes To Eight (2023) [Ru/Multi] (0.6.3) License GOG
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Three Minutes To Eight - это интригующая двухмерная адвенчура от независимого разработчика, которая бросает вызов вашему восприятию реальности и держит вас в напряжении. В отличие от любой другой приключенческой игры в стиле пиксель-арт, она погружает вас на место главного героя, которому суждено погибнуть ровно в 07:57 вечера. Однако в этой истории есть нечто большее, (   Читать дальше...   )Тип издания: LicenseРазработчик: Chaosmonger StudioЖанр: Приключение, КвестЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57B508E4043AAF8F81F7D3C147C1201E28EC1D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525885   (128997) от 22.01.2022
 
 Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
@@ -6,7 +84,7 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128997.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128997.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128891.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128811.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ Journey to the Center of the Earth / Путешествие к центру Зе
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127013.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126995.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126842.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126572.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126066.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ Kathy Rain: Director's Cut (2021) [Ru/Multi] (1.0.3.5273) License GOG [Deluxe Ed
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125949.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125815.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125815.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ Peaks of Yore (2023) [En] (1.3.8) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125512.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ Ghost Trick: Phantom Detective (2023) [Ru/Multi] (11038113/dlc) Repack Deceptico
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125488.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ The Imperial Capital Burns - Muv-Luv Alternative Total Eclipse (2016) [Multi] (1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125221.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ Bluey: The Videogame (2023) [Multi] (0.20.4) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124934.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ Submachine: Legacy (2023) [En] (20231015) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124813.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ Lakeview Cabin 2 (2023) [En] (1.01) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124796.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ Colossal Cave (2023) [Ru/Multi] (2.0.224024) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124724.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ Fort Solis (2023) [Ru/Multi] (20231228) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124640.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ Perfect Tides (2022) [En] (2.0.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124578.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ Repurpose (2023) [En] (2.0) Scene Tenoke
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124097.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ London Detective Mysteria / Eikoku Tantei Mysteria (2019) [Multi] (1.6) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124053.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ The Night is Grey (2024) [En] (1.0) Scene SKIDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124023.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ Amatsutsumi (2022) [En] (1.02/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123978.jpg" />
 </div>
 
 
@@ -589,84 +667,6 @@ Amatsutsumi - визуальная новелла в аниме-стилисти
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A8E8AEBE4DC2EFB864913F8714CF35B34EC7C92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690681   (123849) от 08.01.2024
-
-About a Boy (2023) [En] (1.01) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123849.jpg" />
-</div>
-
-
-###  Подробнее
-
-About a Boy – приключенческий квест с набором головоломок "укажи и щелкни", который перенесет вас в мрачное будущем. История игры вращается вокруг маленького мальчика, которому суждено исследовать темный и пустынный город, лишенный человеческой жизни, какой мы ее знаем. Действие игры происходит в далеком будущем и представляет мир, в котором человечество (   Читать дальше...   )Тип издания: LicenseРазработчик: Return 0 Game StudioЖанр: Приключение, Квест, ГоловоломкаЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F35C8FAA8BD3607397FE602F4AB752B6229376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690614   (123845) от 08.01.2024
-
-The Ditzy Demons Are in Love With Me / Boku to Koi Suru Ponkotsu Akuma (2018) [Multi] (1.02/dlc) License GOG [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123845.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Ditzy Demons Are in Love With Me – двухмерная визуальная новелла, выполненная в японском стиле, что отображено в внешности персонажей, и в общей стилистике окружающих пейзажей. Проект представляет собой симулятор свиданий с разнообразными девушками, каждую из них объединяет то, что они милейшие демонические существа самых разных рас. Протагонистом, от лица которого (   Читать дальше...   )Тип издания: LicenseРазработчик: SMILEЖанр: Симулятор, Визуальные новеллыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский, Китайский (традиционный)Язык интерфейса: Английский, Японский, Китайский (традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BA709C3BCB389A5080FA665C62B9F4B6FCC63C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690712   (123838) от 08.01.2024
-
-So Blonde (2008) [En] (1.0) Scene Reloaded
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блондинка в шоке. Бермудские страсти – это игра в жанре point-and-click adventure. На роль главной героини была выбрана Санни Блонд. Она вобрала в себя все стереотипы про избалованных девушек из богатых семей. 17-летнюю барышню не беспокоит ничего кроме собственной внешности. Данная адвенчура также известна под названием So Blonde. По сюжету однажды папа и мама решили (   Читать дальше...   )Тип издания: SceneРазработчик: WizarboxЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0DA566F331020893B32A814A2478456643E6E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

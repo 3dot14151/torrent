@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879109.jpg" />
+  <img src="Z:/picture/005/save_picture_879109.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879085.jpg" />
+  <img src="Z:/picture/005/save_picture_879085.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Aiseesoft HD Video Converter 8.1.18 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879084.jpg" />
+  <img src="Z:/picture/005/save_picture_879084.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ SIV (System Information Viewer) 5.08 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879082.jpg" />
+  <img src="Z:/picture/005/save_picture_879082.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Gilisoft Video Editor 7.2.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879077.jpg" />
+  <img src="Z:/picture/005/save_picture_879077.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Aiseesoft Video Enhancer 1.0.22 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879071.jpg" />
+  <img src="Z:/picture/005/save_picture_879071.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Tipard Video Converter Ultimate 9.0.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879069.jpg" />
+  <img src="Z:/picture/005/save_picture_879069.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879063.jpg" />
+  <img src="Z:/picture/005/save_picture_879063.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SeaMonkey 2.40 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878991.jpg" />
+  <img src="Z:/picture/005/save_picture_878991.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ K-Lite Codec Pack Update 12.0.3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878988.jpg" />
+  <img src="Z:/picture/005/save_picture_878988.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878979.jpg" />
+  <img src="Z:/picture/005/save_picture_878979.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Aiseesoft Total Video Converter 9.0.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878975.jpg" />
+  <img src="Z:/picture/005/save_picture_878975.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Gilisoft Full Disk Encryption 3.7.0 DC 07.03.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878972.jpg" />
+  <img src="Z:/picture/005/save_picture_878972.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Aiseesoft DVD Creator 5.2.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878963.jpg" />
+  <img src="Z:/picture/005/save_picture_878963.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ HDCleaner 2.008 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878935.jpg" />
+  <img src="Z:/picture/005/save_picture_878935.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ JRiver Media Center 28.0.53 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878929.jpg" />
+  <img src="Z:/picture/005/save_picture_878929.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ GeoGebra 6.0.664.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878927.jpg" />
+  <img src="Z:/picture/005/save_picture_878927.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ ScreenToGif 2.33.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878926.jpg" />
+  <img src="Z:/picture/005/save_picture_878926.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878899.jpg" />
+  <img src="Z:/picture/005/save_picture_878899.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878897.jpg" />
+  <img src="Z:/picture/005/save_picture_878897.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - House Vip (24.03.10) [MP3|192/320 kbps]<Electro House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878870.jpg" />
+  <img src="Z:/picture/005/save_picture_878870.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878846.jpg" />
+  <img src="Z:/picture/005/save_picture_878846.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ NirLauncher Package 1.23.51 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878826.jpg" />
+  <img src="Z:/picture/005/save_picture_878826.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Aiseesoft Data Recovery 1.2.30 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878815.jpg" />
+  <img src="Z:/picture/005/save_picture_878815.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ ShareX 13.6.1 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878812.jpg" />
+  <img src="Z:/picture/005/save_picture_878812.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Gilisoft RAMDisk 6.5.0 DC 28.02.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878806.jpg" />
+  <img src="Z:/picture/005/save_picture_878806.jpg" />
 </div>
 
 

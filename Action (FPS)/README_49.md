@@ -1,3 +1,107 @@
+###  Публикация: 1761285   (36826) от 19.11.2024
+
+Half-Life 2 (2004) [Ru/Multi] (Build 16431800/dlc) Repack FitGirl [20th Anniversary Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Half-Life 2 официально исполнилось 20 лет, и по случаю этой круглой даты мы хотим устроить праздник для сообщества игроков, которые наслаждаются игрой (либо открывают её для себя - впервые или заново) с 16 ноября 2004 года. Сохранив атмосферу тревоги, вызова и внутреннего напряжения и добавив новый реализм и интерактивность, Half-Life 2 открывает дверь в мир, в котором (   Читать дальше...   )Тип издания: RepackРазработчик: ValveЖанр: ЭкшеныЯзык озвучки: Русский, Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3399945F15ABBBC6D0807F508D67E0617D00B0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761247   (36790) от 19.11.2024
+
+The Darkness II (2012) [Ru/En] (1.1/dlc) Repack Let'sРlay [Limited Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вдохновленная популярной серией комиксов, выпущенной Top Cow Productions, Inc., The Darkness II — это напряженный шутер от первого лица, который предлагает запутанное и захватывающее повествование о трагедии, современной криминальной драме и сверхъестественном ужасе. Игроки пройдут по жестокому и личному пути Джеки Эстакадо, главы нью-йоркской преступной семьи и (   Читать дальше...   )Тип издания: RepackРазработчик: Digital ExtremesЖанр: ЭкшеныЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB61A08B6AF22FCD5D4D57B7A0A06E81BBF2190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717224   (36706) от 20.11.2024
+
+Sker Ritual (2022) [Ru/Multi] (1.2.0.23982/dlc) Scene Rune
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sker Ritual – фантастический боевик, который можно проходить как в одиночном формате, так и в кооперативе, рассчитанном до четырех реальных пользователей. События происходят на вымышленном острове под названием Скер. Именно здесь идет масштабное вторжение неких таинственных существ из другой реальности, которые называют Тихими или попросту Безмолвными. Это невероятно (   Читать дальше...   )Тип издания: SceneРазработчик: Wales InteractiveЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:553C2BF68FE6E44F0B2B567C56C307C49947B471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719470   (36643) от 21.11.2024
+
+S.T.A.L.K.E.R. Trilogy (2007-2010) [Ru/Multi] (1.0006/1.5.10/1.6.02) Repack Decepticon
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие игры "S.T.A.L.K.E.R.: Зов Припяти" разворачивается после окончания событий игры "S.T.A.L.K.E.R." и уничтожения Стрелком проекта "О-Сознание". Узнав об открытии дороги к центру Зоны, правительство решает провести крупномасштабную военную операцию по взятию ЧАЭС под свой контроль. Операция получает кодовое название "Фарватер". (   Читать дальше...   )Тип издания: RepackРазработчик: GSC Game WorldЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, Английский, УкраинскийЯзык субтитров: Русский, Английский, УкраинскийЯзык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E83B090946F85F7617D81A61E21C5400651D45B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 224710   (36637) от 21.11.2024
 
 Far Cry (2004) [Ru] (1.0) License
@@ -6,7 +110,7 @@ Far Cry (2004) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36637.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ PO'ed: Definitive Edition (2024) [Multi] (1.0.594) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36312.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36304.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack Other s [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35887.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16545043/dlc) Repack dixen18 [20th Annivers
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35882.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ Sniper Ghost Warrior Contracts 2 (2021) [Ru/Multi] (1.02/dlc) Repack Wanterlude 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35779.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ Neckbreak (2019) [Ru/Multi] (1.3) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35772.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ PATHOGEN X (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35465.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ Left 4 Dead (2008) [Ru/Multi] (1.0.4.5) Repack Pioneer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35276.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ Roboquest (2020) [Ru/Multi] (1.5.0-280) Repack FitGirl
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35226.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ Half-Life 2 (2004) [Ru/Multi] (Build 16557524/dlc) Repack Decepticon [20th Anniv
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35189.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ Dementium II HD (2013) [Ru/Multi] (1.266) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35043.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Serious Sam 4 (2020) [Ru/Multi] (1.09/dlc) Repack Wanterlude [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34950.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ World War Z (2019) [Ru/Multi] (2.36/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34931.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ Killing Time: Resurrected (2024) [Multi] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34873.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ Ready or Not (2023) [Multi] (66884/dlc) Scene Rune
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34461.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ Ready or Not (2023) [Ru/Multi] (66884/dlc) Repack FitGirl [LSPD Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34158.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ District Wars / Кровавая Месть (2009) [Ru] (1.0) License Акелл
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34036.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ Trepang2 (2023) [Ru/Multi] (Build 2484/dlc) Repack Let'sРlay [Banger Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34035.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ Battle Shapers (2023) [Ru/Multi] (1.0.0.9952) Repack FitGirl [Original Soundtrac
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34033.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack seleZen
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34010.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack FitGirl [Ultimate Bundle]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33931.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack FitGirl [Ultimate Bundle]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFD8E8E8F2B609D36BB639DCEB8C7A50259B47E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640245   (33316) от 23.12.2024
-
-Anarchy: Wolf's Law / Анархия: Волчьи законы (2023) [Ru/Multi] (0.9.978.1712/dlc) Scene Tenoke
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шутер с видом от первого лица, в котором игрокам предлагается отправиться в опасный и жестокий открытый мир, и выживать там, постоянно отстаивая свое право не пребывание здесь… События игры происходят на просторах огромной промышленной деревушки в вымышленном неназванном регионе, а также, в окрестностях. С виду, это самое обычное место, но на самом деле тут на каждом (   Читать дальше...   )Тип издания: SceneРазработчик: Street's GameЖанр: Экшены, Приключенческие игры, Инди, Симуляторы, СтратегииЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B203C045C171E9A33876BF4FE0EE43F49230A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768006   (33303) от 23.12.2024
-
-Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.22.68871.33/dlc) Repack Let'sРlay [Forges of Corruption Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устройте кровавую бойню, разносите врагов на куски. Вас ждёт ураганная стрельба в стилистике классических шутеров 90-х годов во вселенной Warhammer 40 000. Играйте за отважного космического десантника Малума Каэдо, взявшего на себя смертельно опасную миссию. Вам предстоит отыскать осколок таинственного источника энергии на Грайе: этот мир-кузню вот-вот захватят культисты, (   Читать дальше...   )Тип издания: RepackРазработчик: Auroch DigitalЖанр: Экшены, ИндиЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB10653A0146915FF6551C8915933E76ED6337D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587267   (33216) от 24.12.2024
-
-HROT (2021) [Multi] (1.3) License GOG
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33216.jpg" />
-</div>
-
-
-###  Подробнее
-
-HROT - шутер от первого лица, выступающий настоящей одой по шутерам конца 90-х и начала 00-х годов. Окунитесь в ретро-геймплей, аутентичная атмосфера которого достигается за счет угловатой трехмерной графики и олдскульных механик. История развивается в 1986 году в одной социалистической стране, граничащей с Чехословакией, входящей в состав Советского Союза. Случается (   Читать дальше...   )Тип издания: LicenseРазработчик: SpytihněvЖанр: Шутеры, Экшны, FPPЯзык субтитров: Английский, ЧешскийЯзык интерфейса: Английский, Чешский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5315576BD78F7BD0B28914E5F086E01303C797BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768273   (33202) от 24.12.2024
-
-Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack Pioneer [Ultimate Bundle]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра, где выжить - означает победить. Проект, который приносит реалии того, что было бы, если человечество создало роботов, способных использовать оружие так, как им вздумается. Generation Zero показывает нам Швецию 1980 года. На всей планете случился апокалипсис, а по улицам теперь ходят неизвестные машины, которые уничтожают всё на своём пути. Альтернативная Швеция (   Читать дальше...   )Тип издания: RepackРазработчик: Systemic ReactionЖанр: Экшены, Выживание, ШутерыЯзык озвучки: Английский, ШведскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460A988C9CE5FC78D4A20F0E0A3DF04CB26CD9B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

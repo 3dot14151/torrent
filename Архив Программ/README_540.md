@@ -6,7 +6,7 @@ Telegram Desktop 0.9.44 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777099.jpg" />
+  <img src="Z:/picture/008/save_picture_777099.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Quick Search 5.22.1.68 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777090.jpg" />
+  <img src="Z:/picture/008/save_picture_777090.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Movavi Video Converter 18.2.0 Premium RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777075.jpg" />
+  <img src="Z:/picture/008/save_picture_777075.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ Nikon Capture NX-D 1.4.7 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777068.jpg" />
+  <img src="Z:/picture/008/save_picture_777068.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Stardock Start10 1.11 RePack by Tyran [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777064.jpg" />
+  <img src="Z:/picture/008/save_picture_777064.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777024.jpg" />
+  <img src="Z:/picture/008/save_picture_777024.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Mozilla Firefox 47.0 beta 3 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776960.jpg" />
+  <img src="Z:/picture/008/save_picture_776960.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Cyberfox 46.0.2 for Intel + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776882.jpg" />
+  <img src="Z:/picture/008/save_picture_776882.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Free Studio 6.6.8.505 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776879.jpg" />
+  <img src="Z:/picture/008/save_picture_776879.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Anvir Task Manager 8.0.1 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776878.jpg" />
+  <img src="Z:/picture/008/save_picture_776878.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Sandboxie 5.23.7 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776862.jpg" />
+  <img src="Z:/picture/008/save_picture_776862.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ BurnAware Professional 9.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776846.jpg" />
+  <img src="Z:/picture/008/save_picture_776846.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Cyberfox 46.0.2 for AMD + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776814.jpg" />
+  <img src="Z:/picture/008/save_picture_776814.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Anvir Task Manager 8.0.1 Final RePack (& Portable) by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776802.jpg" />
+  <img src="Z:/picture/008/save_picture_776802.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Opera 51.0.2830.55 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776796.jpg" />
+  <img src="Z:/picture/008/save_picture_776796.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ naps2 5.7.1.42651 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776781.jpg" />
+  <img src="Z:/picture/008/save_picture_776781.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Advanced Installer 14.7 Architect [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776749.jpg" />
+  <img src="Z:/picture/008/save_picture_776749.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Mozilla Firefox ESR 52.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776737.jpg" />
+  <img src="Z:/picture/008/save_picture_776737.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ GOM Player 2.3.2 Build 5251 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776733.jpg" />
+  <img src="Z:/picture/008/save_picture_776733.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ IObit Start Menu 8 4.2.0.2 RePack by Diakov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776714.jpg" />
+  <img src="Z:/picture/008/save_picture_776714.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Sigil 0.9.9 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776712.jpg" />
+  <img src="Z:/picture/008/save_picture_776712.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Dicter 3.81 Portable by yn_nemiroff [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776707.jpg" />
+  <img src="Z:/picture/008/save_picture_776707.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Adobe Audition CC 2018 (11.0.2.2) Portable by XpucT (DC) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776699.jpg" />
+  <img src="Z:/picture/008/save_picture_776699.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ All AVS4YOU Software in 1 Installation Package 3.1.1.131 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776680.jpg" />
+  <img src="Z:/picture/008/save_picture_776680.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ SolidAngle C4DtoA 1.0.13.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776656.jpg" />
+  <img src="Z:/picture/008/save_picture_776656.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ HitmanPro.Alert 3.7.6 Build 737 Repack by sashamitr94 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776634.jpg" />
+  <img src="Z:/picture/008/save_picture_776634.jpg" />
 </div>
 
 

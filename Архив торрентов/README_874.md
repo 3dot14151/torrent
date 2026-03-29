@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848930.jpg" />
+  <img src="Z:/picture/008/save_picture_848930.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iA Writer 3.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848920.jpg" />
+  <img src="Z:/picture/008/save_picture_848920.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ DxO OpticsPro for Photos 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848919.jpg" />
+  <img src="Z:/picture/008/save_picture_848919.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848918.jpg" />
+  <img src="Z:/picture/008/save_picture_848918.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848917.jpg" />
+  <img src="Z:/picture/008/save_picture_848917.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848916.jpg" />
+  <img src="Z:/picture/008/save_picture_848916.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ Audio - Beastmode Sampler (2016) EP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848913.jpg" />
+  <img src="Z:/picture/008/save_picture_848913.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Q-Pow! - We're Only Here For The Party! (2000) [MP3|320 кб/с] <Electronic, Po
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848902.jpg" />
+  <img src="Z:/picture/008/save_picture_848902.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848875.jpg" />
+  <img src="Z:/picture/008/save_picture_848875.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ Combichrist - We Love You (2014) (Deluxe Edition) [FLAC|Lossless]<Industrial, EB
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848869.jpg" />
+  <img src="Z:/picture/008/save_picture_848869.jpg" />
 </div>
 
 
@@ -279,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848862.jpg" />
+  <img src="Z:/picture/008/save_picture_848862.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ Worriedaboutsatan - 3 Albums (2009 - 2016) [FLAC|Lossless|tracks + .cue] <IDM, M
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848850.jpg" />
+  <img src="Z:/picture/008/save_picture_848850.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - Who's Afraid Of 138?! (Mixed By Bryan Kearney & Chris Schweizer) (2017) [MP
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848849.jpg" />
+  <img src="Z:/picture/008/save_picture_848849.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848832.jpg" />
+  <img src="Z:/picture/008/save_picture_848832.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848823.jpg" />
+  <img src="Z:/picture/008/save_picture_848823.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Grand Theft Auto Anthology [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848810.jpg" />
+  <img src="Z:/picture/008/save_picture_848810.jpg" />
 </div>
 
 
@@ -443,7 +443,7 @@ Ad-Aware Free Antivirus+ 11.6.306.7947 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848806.jpg" />
+  <img src="Z:/picture/008/save_picture_848806.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Aeden - Pray (2016) Single [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848801.jpg" />
+  <img src="Z:/picture/008/save_picture_848801.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ MediaInfo 0.7.84 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848799.jpg" />
+  <img src="Z:/picture/008/save_picture_848799.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Maxthon Cloud Browser 4.9.2.600 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848797.jpg" />
+  <img src="Z:/picture/008/save_picture_848797.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ Chrono Plus – Time Tracker & Timesheet with Billing 1.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848796.jpg" />
+  <img src="Z:/picture/008/save_picture_848796.jpg" />
 </div>
 
 
@@ -575,7 +575,7 @@ Yate 3.11.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848795.jpg" />
+  <img src="Z:/picture/008/save_picture_848795.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848794.jpg" />
+  <img src="Z:/picture/008/save_picture_848794.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Dan Sieg - To The Sun (2016) Single [MP3|320 кб/с] <Drum & Bass, Downtempo>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848791.jpg" />
+  <img src="Z:/picture/008/save_picture_848791.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848790.jpg" />
+  <img src="Z:/picture/008/save_picture_848790.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Viscosity 1.6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848789.jpg" />
+  <img src="Z:/picture/008/save_picture_848789.jpg" />
 </div>
 
 

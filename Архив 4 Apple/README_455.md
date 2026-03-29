@@ -1,3 +1,109 @@
+###  Публикация: 1423669   (300752) от 13.11.2020
+
+Screen Snapshot 4.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300752.jpg" />
+</div>
+
+
+###  Подробнее
+
+iSnapshot - это эффективный и простой инструмент для создания снимков экрана, который объединяет управление снимками, комментарии и редактирование. Это позволяет вам быстро создавать различные программные инструкции и учебные пособия.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: SeasoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626CC718B1328B4D43F7FACB5CA08F235CE57336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078425   (300710) от 01.12.2016
+
+Infographics for Pages 3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое Инфографика (Infographics)?
+Справочная иллюстрированная информация, представленная в виде диаграмм, таблиц и графиков. Известно что присутствие инфографики в какой-либо публикации сильно влияет на ее заметность и повышает качество материалов. В бизнесе инфографика может использоваться менеджерами и маркетологами в тех случаях, когда им необходимо представить (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 ноября 2016Разработчик: JumsoftПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F5282E37A0FFDB21B65A407A25993FBD4D73C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078417   (300709) от 01.12.2016
+
+Layouts for Keynote 3.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Layouts for Keynote представляет собой набор из 79 тем, созданных для уникальных слайд-шоу с помощью команды разработчиков Jumsoft.  Каждая тема содержит, по меньшей мере, 20 мастер-слайдов, охватывающих все, начиная от основных макетов до сложных диаграмм и иллюстраций. Все фото слайды имеют медиа-заполнители  и большинство элементов визуализации можно легко редактировать. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 ноября 2016Разработчик: JumsoftПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39BF8959C11C0DE769FFA1081DFADA5F9E3CAB50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078513   (300707) от 01.12.2016
+
+Typinator 7.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Typinator – упрощаем работу с текстом
+Работая за компьютером, пользователь многократно выполняет одну и ту же работу, порой и сам того не замечая. Особенно часто приходится делать повторные действия при наборе обычного текста. Так, например, если сотрудник фирмы общается с клиентами через Интернет, ему необходимо каждый раз использовать шаблонный текст – писать адрес (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Ergonis SoftwareПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F295EDAED0F14365396BBF78D9B55CB6B272067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078685   (300689) от 01.12.2016
 
 Tri-BACKUP Pro 8.0.6 [En]
@@ -6,7 +112,7 @@ Tri-BACKUP Pro 8.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300689.jpg" />
+  <img src="Z:/picture/008/save_picture_300689.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ MyBrushes - Sketch, Paint, Design 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300514.jpg" />
+  <img src="Z:/picture/008/save_picture_300514.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ Sync Folders Pro 4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300469.jpg" />
+  <img src="Z:/picture/008/save_picture_300469.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ MenuBar Stats 3 v3.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300466.jpg" />
+  <img src="Z:/picture/008/save_picture_300466.jpg" />
 </div>
 
 
@@ -118,7 +224,7 @@ Nova 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300464.jpg" />
+  <img src="Z:/picture/008/save_picture_300464.jpg" />
 </div>
 
 
@@ -145,7 +251,7 @@ Mountain Duck 4.3.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300458.jpg" />
+  <img src="Z:/picture/008/save_picture_300458.jpg" />
 </div>
 
 
@@ -174,7 +280,7 @@ Movist Pro 2.4.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300457.jpg" />
+  <img src="Z:/picture/008/save_picture_300457.jpg" />
 </div>
 
 
@@ -202,7 +308,7 @@ Batteries 2.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300455.jpg" />
+  <img src="Z:/picture/008/save_picture_300455.jpg" />
 </div>
 
 
@@ -228,7 +334,7 @@ Find Any File (FAF) 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300453.jpg" />
+  <img src="Z:/picture/008/save_picture_300453.jpg" />
 </div>
 
 
@@ -255,7 +361,7 @@ RapidWeaver 8 v8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300452.jpg" />
+  <img src="Z:/picture/008/save_picture_300452.jpg" />
 </div>
 
 
@@ -283,7 +389,7 @@ xScope 4 v4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300451.jpg" />
+  <img src="Z:/picture/008/save_picture_300451.jpg" />
 </div>
 
 
@@ -309,7 +415,7 @@ Loopback 2.1.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300449.jpg" />
+  <img src="Z:/picture/008/save_picture_300449.jpg" />
 </div>
 
 
@@ -338,7 +444,7 @@ DxO PhotoLab 4 ELITE Edition 4.0.2.45 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300252.jpg" />
+  <img src="Z:/picture/008/save_picture_300252.jpg" />
 </div>
 
 
@@ -366,7 +472,7 @@ DCommander 3 Premium v3.8.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300247.jpg" />
+  <img src="Z:/picture/008/save_picture_300247.jpg" />
 </div>
 
 
@@ -394,7 +500,7 @@ iA Writer 5.6.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300240.jpg" />
+  <img src="Z:/picture/008/save_picture_300240.jpg" />
 </div>
 
 
@@ -420,7 +526,7 @@ Reeder 5 v5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300234.jpg" />
+  <img src="Z:/picture/008/save_picture_300234.jpg" />
 </div>
 
 
@@ -446,7 +552,7 @@ CADintosh X 8.6.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300086.jpg" />
+  <img src="Z:/picture/008/save_picture_300086.jpg" />
 </div>
 
 
@@ -472,7 +578,7 @@ AnyTrans 8.8.0.20201105 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300079.jpg" />
+  <img src="Z:/picture/008/save_picture_300079.jpg" />
 </div>
 
 
@@ -500,7 +606,7 @@ Movavi PDFChef for Mac 2021 v21.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300078.jpg" />
+  <img src="Z:/picture/008/save_picture_300078.jpg" />
 </div>
 
 
@@ -526,7 +632,7 @@ Gestimer 1.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300076.jpg" />
+  <img src="Z:/picture/008/save_picture_300076.jpg" />
 </div>
 
 
@@ -553,7 +659,7 @@ Rhinoceros 6 v6.31.20315 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299942.jpg" />
+  <img src="Z:/picture/008/save_picture_299942.jpg" />
 </div>
 
 
@@ -581,7 +687,7 @@ Capture One 21 Pro Beta 3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299937.jpg" />
+  <img src="Z:/picture/008/save_picture_299937.jpg" />
 </div>
 
 
@@ -593,114 +699,6 @@ Capture One Pro один из самых мощных профессиональ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:034079A9042C92A47E4F05C170714E1BBD36F902
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078514   (299840) от 01.12.2016
-
-TechSmith Snagit 4.0.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Snagit – инструмент для захвата изображений с экрана
-TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30 ноября 2016Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E342C8E053D0471FA37165A2D9599B7F7D47B2A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423650   (299639) от 13.11.2020
-
-Magnet 2.5.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый раз, когда вы хотите скопировать содержимое из одного приложения в другое, сравнивать файлы бок о бок в многозадачном режиме, необходимо сделать так, чтобы все окна были расположены соответственно. Magnet делает этот процесс простым и понятным. Вы щелкаете любое окно в левой, правой, верхней или нижней половине экрана. И путем перетаскивания окон по углам, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: Pavel KozarekПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Голландский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62A0ABCCAD2BF1024B646F54810A5FB8CE5CCECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078519   (299563) от 01.12.2016
-
-LilyView 1.2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299563.jpg" />
-</div>
-
-
-###  Подробнее
-
-LilyView — это лёгкий, поддерживающий мульти-тач жесты просмотрщик изображений, которого вам так не хватало раньше.
-При загрузке какого-нибудь графического файла LilyView отображает его по центру экрана. Примечательно, что программа самостоятельно отслеживает, есть ли другие изображения в той же папке, где была открыта текущая картинка. Если в папке имеется другая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29 ноября 2016Разработчик: Software Ambience Corp.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F084FFD082B52E25724668361CD242F4C7FF22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184698   (299440) от 18.11.2017
-
-iExplorer 4.1.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
-
-iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A986A8368D241EBCFB0A3AF0737946F8CC2B924
 ```
 
 https://mybot314.ru/tekegram_catalog/

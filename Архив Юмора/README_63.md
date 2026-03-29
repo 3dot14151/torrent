@@ -6,7 +6,7 @@
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387372.jpg" />
+  <img src="Z:/picture/008/save_picture_387372.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387370.jpg" />
+  <img src="Z:/picture/008/save_picture_387370.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Comedy Woman (2016.10.28) WEB-DL [H.264/720p-LQ]
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387269.jpg" />
+  <img src="Z:/picture/008/save_picture_387269.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387170.jpg" />
+  <img src="Z:/picture/008/save_picture_387170.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387153.jpg" />
+  <img src="Z:/picture/008/save_picture_387153.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Comedy Woman (2016.10.28) SATRip
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387143.jpg" />
+  <img src="Z:/picture/008/save_picture_387143.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387126.jpg" />
+  <img src="Z:/picture/008/save_picture_387126.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387110.jpg" />
+  <img src="Z:/picture/008/save_picture_387110.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387108.jpg" />
+  <img src="Z:/picture/008/save_picture_387108.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387093.jpg" />
+  <img src="Z:/picture/008/save_picture_387093.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386974.jpg" />
+  <img src="Z:/picture/008/save_picture_386974.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386941.jpg" />
+  <img src="Z:/picture/008/save_picture_386941.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386803.jpg" />
+  <img src="Z:/picture/008/save_picture_386803.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386709.jpg" />
+  <img src="Z:/picture/008/save_picture_386709.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386490.jpg" />
+  <img src="Z:/picture/008/save_picture_386490.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Stand Up (2018.10.07) WEB-DLRip [H.264/720p-LQ] (сезон 6, выпуск 8)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385442.jpg" />
+  <img src="Z:/picture/008/save_picture_385442.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385078.jpg" />
+  <img src="Z:/picture/008/save_picture_385078.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384946.jpg" />
+  <img src="Z:/picture/008/save_picture_384946.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Stand Up (2017.10.15) SATRip (сезон 7, выпуск 5)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384944.jpg" />
+  <img src="Z:/picture/008/save_picture_384944.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384824.jpg" />
+  <img src="Z:/picture/008/save_picture_384824.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383261.jpg" />
+  <img src="Z:/picture/008/save_picture_383261.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383200.jpg" />
+  <img src="Z:/picture/008/save_picture_383200.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383122.jpg" />
+  <img src="Z:/picture/008/save_picture_383122.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383066.jpg" />
+  <img src="Z:/picture/008/save_picture_383066.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Stand Up (2017.10.15) HDTV [H.264/1080i-LQ] (сезон 7, выпуск 5)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383008.jpg" />
+  <img src="Z:/picture/008/save_picture_383008.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382811.jpg" />
+  <img src="Z:/picture/008/save_picture_382811.jpg" />
 </div>
 
 

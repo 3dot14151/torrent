@@ -1,3 +1,82 @@
+###  Публикация: 1548304   (338035) от 26.09.2022
+
+Шоу начинается! / С этого момента время для шоу! / Jigeumbuteo Syotaim! / From Now On, Showtime! (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-16 из 16) FRONDA, HIGH HOPES, SOFTBOX
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Романтическо-детективная комедия о сотрудничестве фокусника, который водит дружбу с призраками, и женщиной-детективом, тоже не обделенной паранормальными способностями.
+Чха Чха Ун – талантливый фокусник. Он известен своими едкими высказываниями и шоу, от которых у зрителей по коже пробегает мороз. Успешность его выступлений объясняется просто: он может видеть призраков, (   Читать дальше...   )Производство: Южная Корея, 	Samhwa NetworksЖанр: комедия, мелодрама, детектив, фэнтезиРежиссер: Ли Хён-минАктеры: Пак Хэ-джин, Чин Ги-джу, Ко Гю-пхиль, Чон Джун-хо, Чон Сог-ён, Пак Со-ён, Ким Джон-хун, Чха Ми-гёнПеревод: многоголосый любительский (FRONDA), двуголосый любительский (HIGH HOPES, SOFTBOX)Язык озвучки: русский, корейскийСубтитры: русскиеПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9389AFEA4DDA333D6CFA3FC393118184CC5340BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257092   (336087) от 30.10.2018
+
+Дьявольская радость / Maseongui gippeum / Devilish joy (2018) HDTVRip [H.264/720p-LQ] (сезон 1, серии 1-16 из 16) SoftBox
+
+>>Зарубежные сериалы
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_336087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гениальный доктор, страдающий потерей кратковременной памяти, влюбляется в бывшую актрису.Производство: Корея ЮжнаяЖанр: мелодрама, комедияРежиссер: Ким Га-рамАктеры: Чхве Джин-хёк, Хоя, Сон Ха-юн, Ли Джу-ён, Ким Мин-сан, Кан Юн-джэ, Чхве Сын-хун, Ким Джи-ён, О Гван-рок, Квон Хёк-су и др.Перевод: Двуголосый закадровый, любительский - SoftBoxПродолжительность: ~01:10:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2A460967C4F32917A01CF958772C1B698ED2D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955465   (331795) от 12.11.2015
+
+Махабхарата / Mahabharat (2013) WEB-DL [H.264/1080p-LQ] (серии 1-267 из 267) Яшодарани даси
+
+>>След.
+>>Азиатские сериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_331795.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре внимания два рода — Пандавы и Кауравы. Они принадлежат к одной династии Куру, но соперничество между ними не знает границ. Род Пандавы олицетворяет в себе светлое, доброе, божественное начало, в то время как род Кауравы — это средоточие зла, зависти и подлости. Соперничество между двумя ветвями одной династии происходит за власть, богатство, владение столицей (   Читать дальше...   )Производство: ИндияЖанр: Семейный, Приключения, Боевик, МелодрамаРежиссер: Амарприт Г.С. Чхабра, Сиддхартх Ананд Кумар, Камал Монга,  Локнат ПандейАктеры: Саурабх Радж Джейн, Шахир Шейх, Пуджа Шарма, Ахам Шарма, Арав Чхоудхари, Тхакур Ануп Сингх, Швета Гаутам, Саянтани Гхош, Вибха Ананд, Лаванья Бхардвадж, Деблина Чаттерджи, Рийя Дипси, Апарна Диксит, Арун Рана, Джаянтика Сенгупта, Shafaq Naaz, Манси Шарма, Нисар Кхан, Пранит Бхатт, Рио Кападиа, Арпит РанкаПеревод: Одноголосый закадровый, профессиональныйОзвучка / Автор перевода: Яшодарани даси / Абхинанда дасЯзык субтитров: Русский, АнглийскийПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94BC76A36B64091E3E8AE8A6F83730033349D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578918   (330650) от 01.10.2022
 
 Сегодняшний вебтун / Oneului weptun / Today's Webtoon (2022) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-16 из 16) SOFTBOX
@@ -6,7 +85,7 @@
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330650.jpg" />
+  <img src="Z:/picture/008/save_picture_330650.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325368.jpg" />
+  <img src="Z:/picture/008/save_picture_325368.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318601.jpg" />
+  <img src="Z:/picture/008/save_picture_318601.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308825.jpg" />
+  <img src="Z:/picture/008/save_picture_308825.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300567.jpg" />
+  <img src="Z:/picture/008/save_picture_300567.jpg" />
 </div>
 
 
@@ -136,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290711.jpg" />
+  <img src="Z:/picture/008/save_picture_290711.jpg" />
 </div>
 
 
@@ -162,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287096.jpg" />
+  <img src="Z:/picture/008/save_picture_287096.jpg" />
 </div>
 
 
@@ -188,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_287037.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287037.jpg" />
 </div>
 
 
@@ -214,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_287035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_287035.jpg" />
 </div>
 
 
@@ -240,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277500.jpg" />
+  <img src="Z:/picture/008/save_picture_277500.jpg" />
 </div>
 
 
@@ -266,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273980.jpg" />
+  <img src="Z:/picture/008/save_picture_273980.jpg" />
 </div>
 
 
@@ -292,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273954.jpg" />
+  <img src="Z:/picture/008/save_picture_273954.jpg" />
 </div>
 
 
@@ -318,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272783.jpg" />
+  <img src="Z:/picture/008/save_picture_272783.jpg" />
 </div>
 
 
@@ -345,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271688.jpg" />
+  <img src="Z:/picture/008/save_picture_271688.jpg" />
 </div>
 
 
@@ -371,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_261305.jpg" />
+  <img src="Z:/picture/005/save_picture_261305.jpg" />
 </div>
 
 
@@ -397,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_257862.jpg" />
+  <img src="Z:/picture/005/save_picture_257862.jpg" />
 </div>
 
 
@@ -423,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255863.jpg" />
+  <img src="Z:/picture/005/save_picture_255863.jpg" />
 </div>
 
 
@@ -449,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255615.jpg" />
+  <img src="Z:/picture/005/save_picture_255615.jpg" />
 </div>
 
 
@@ -475,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_255083.jpg" />
+  <img src="Z:/picture/005/save_picture_255083.jpg" />
 </div>
 
 
@@ -501,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254647.jpg" />
+  <img src="Z:/picture/005/save_picture_254647.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_254550.jpg" />
+  <img src="Z:/picture/005/save_picture_254550.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252218.jpg" />
+  <img src="Z:/picture/004/save_picture_252218.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатские сериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252106.jpg" />
+  <img src="Z:/picture/004/save_picture_252106.jpg" />
 </div>
 
 
@@ -591,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C641513FDD17352E21E88259E7D26434E466E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612774   (252104) от 22.05.2023
-
-Небесный айдол / Священный айдол / Seongseureoun aodol / The Heavenly Idol (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-12 из 12) Softbox, LE-Production
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_252104.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жрец Лембрари обладает самой могущественной божественной силой из когда-либо существовавших. Во время сражения с дьяволом его неожиданно переносят в другой мир, где он оказывается заперт в небольшом общежитии в теле У Ён У.
-У Ён У является членом непопулярной айдол-группы Wild Animal. Группа существует уже несколько лет, но находится на грани распада. Из-за необычного (   Читать дальше...   )Производство: Южная Корея / HIGROUND, Studio Dragon, tvNЖанр: комедия, музыка, фэнтезиРежиссер: Ли Со-юнАктеры: Ким Мин-гю, Ко Бо-гёль, Ли Джан-у, Е Джи-вон, О Джин-сок, Щин Мён-сон, Со Джи-ён, Пак Сан-нам, Пак Чин-су, Ан Сэ-хаПеревод: Двуголосый (Softbox, LE-Production)Язык озвучки: русский, корейскийСубтитры: Русские (Азалии)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FE7B1B3B92E529A3CBDC51F7CDB37BC1C53595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520793   (251805) от 03.06.2023
-
-Игра в кальмара / Ojingeo geim / Squid Game (2021) WEB-DL [H.264/720p] (сезон 1, серии 1-9 из 9) Пифагор
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сон Ги-хун уже немолод, разведён, по уши погряз в долгах и сидит на шее у старенькой матери. Даже выигранные на скачках деньги в его руках долго не задерживаются, и однажды он встречает в метро загадочного незнакомца, который сначала предлагает сыграть в детскую игру, а затем вручает Ги-хуну немалую сумму и визитку. Но радость мужчины сменятся отчаянием, когда он (   Читать дальше...   )Производство: Корея Южная / Siren PicturesЖанр: Триллер, драмаРежиссер: Хван Дон-хёкАктеры: Ли Джон-джэ, Пак Хэ-су, О Ён-су, Чон Хо-ён, Хо Сон-тхэ, Анупам Трипати, Ким Джу-рён, Ви Ха-джун, Ю Сон-джу, Ли Ю-миПеревод: Дублированный (Пифагор)Язык озвучки: Русский, украинский, английский, японский, корейскийСубтитры: Русские (Forced, Full), украинские (Forced, Full), английские (Forced, Full)Продолжительность: ~00:59:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445950F491749F962BCD32152D25BB36A9E3CB4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564890   (249600) от 21.07.2022
-
-Первое кафе Принц / Keopi peurinseu 1-hojeom / The 1st Shop of Coffee Prince (2007) WEBRip [H.264/720p] (сезон 1, серии 1-17 из 17) Мобильное телевидение
-
->>Зарубежные сериалы
->>Азиатские сериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энергичную и жизнерадостную Го Ын Чхан с детства принимают за мальчишку. Платьям и туфлям она предпочитает джинсы, кеды и футболки, хорошо дерется и ест в несколько раз больше крупного мужчины. Энергия ей необходима, чтобы справиться с десятком дел, которыми она занята в течении дня. Но все же той зарплаты, что она получает, оказывается недостаточно, чтобы оплатить (   Читать дальше...   )Производство: Южная Корея / MBC-TV KoreaЖанр: мелодрама, комедияРежиссер: Ли Юн-джонАктеры: Кон Ю, Юн Ын-хе, Ли Сон-гюн, Чхэ Джон-ан, Ким Ён-ок, Пак Вон-сук, Ким Чхан-ван, Ким Джа-ок, Ли Хан-ви, Чхве Иль-хваПеревод: Многоголосый профессиональный (Мобильное телевидение)Язык озвучки: РусскийПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2FF9B7AD8CDA57A83690FD15B8BAC234800CEB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

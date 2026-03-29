@@ -1,3 +1,206 @@
+###  Публикация: 1129900   (718507) от 30.04.2017
+
+The Chainsmokers & Coldplay - Something Just Like This (Remix Pack) (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something Just Like This (Alesso Remix) (4:13)
+ 02. Something Just Like This (R3hab Remix) (2:43)
+ 03. Something Just Like This (Dimitri Vegas & Like Mike Remix) (3:51)
+ 04. Something Just Like This (Don Diablo Remix) (3:51)(   Читать дальше...   )Жанр: Pop, Electropop, HouseПродолжительность: 00:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00D3482A26514A455F31D7F04DC00C5BA16620D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129883   (718503) от 30.04.2017
+
+The Chainsmokers - Memories... Do Not Open (2017) [FLAC|Lossless|tracks + .cue] <Pop, Electropop, House>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The One (2:58)
+ 02. Break Up Every Night (3:28)
+ 03. Bloodstream (3:44)
+ 04. Don't Say (3:48)(   Читать дальше...   )Жанр: Pop, Electropop, HouseПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B27B87E3F990C40EB59F9B56BE7B32CD6862ACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129967   (718425) от 30.04.2017
+
+VA - NRJ Spring Hits (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - весенний сборник (   Читать дальше...   )CD1:
+01. Ofenbach - Be Mine  (2:42)
+02. Petit Biscuit - Sunset Lover  (3:57)
+03. Sean Paul feat. Dua Lipa - No Lie  (3:42)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 03:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC94108D638DB5456CD4242D313C7BBC1B0298E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024361   (718161) от 08.06.2016
+
+Hanne Sorvaag - Featuring (2016) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Country>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_718161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Heart Stopped Talking (feat. Knut Reiersrud) (4:49)
+02. Why I Mess It Up (feat. Amund Maarud) (3:55)
+03. Pа Denne Tiа Her i Fjor (feat. Ole Alexander Mæland, Elle Melle) (3:08)
+04. Better Man (feat. Tobias Steinkjær) (4:33)(   Читать дальше...   )Жанр: Pop, Soft Rock, CountryПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0759FC154D0977FE381129427E9626CD709C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130405   (716527) от 01.05.2017
+
+Viola Valentino - Un Angelo Dal Cielo (1991) Compilation [APE|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Un Angelo Dal Cielo  (03:35) 
+02.  Romantici  (03:53) 
+03.  Arriva Arriva  (04:29) 
+04.  Sotto La Pioggia  (03:32) (   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A7F16B33C32DB57B204A43BD3C01FD4D039DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532204   (716398) от 18.02.2022
+
+VA - The Sun Shines Here (The Roots Of Indie-Pop 1980-1984) (2021) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie Rock, Post-Punk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716398.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1-1 Wah Heat!– Better Scream
+1-2 The Teardrop Explodes– Read It In Books
+1-3 Lori & The Chameleons– The Lonely Spy(   Читать дальше...   )Жанр: Indie Pop, Indie Rock, Post-PunkПродолжительность: 03:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8BA4ED749940F2889A3A26DC2FFFAF5762D7FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024462   (716036) от 09.06.2016
+
+Kaija Koo - Kuka sen opettaa (2014) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_716036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Supernaiset 03:56
+02. Ajoin koko yon 03:41
+03. Kuka sen opettaa 04:21
+04. Silmät kiinni 03:43(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8F6BB00ED8A1DEDFC84DD9BBB7FF48DDBF4FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024558   (716026) от 09.06.2016
 
 Laid Back - Happy Dreamer (2007) [FLAC|Lossless|image + .cue] <Electronic, Pop>
@@ -6,7 +209,7 @@ Laid Back - Happy Dreamer (2007) [FLAC|Lossless|image + .cue] <Electronic, Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716026.jpg" />
+  <img src="Z:/picture/008/save_picture_716026.jpg" />
 </div>
 
 
@@ -35,7 +238,7 @@ Texas - The Conversation (2CD) (2013) Deluxe Edition [FLAC|Lossless]<Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_715012.jpg" />
+  <img src="Z:/picture/005/save_picture_715012.jpg" />
 </div>
 
 
@@ -64,7 +267,7 @@ Michael Larsen - Solang es deine Sehnsucht gibt (1987) [FLAC|Lossless|image + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714488.jpg" />
+  <img src="Z:/picture/008/save_picture_714488.jpg" />
 </div>
 
 
@@ -93,7 +296,7 @@ Jeanne Mas - PH (2017) [FLAC|Lossless|tracks + .cue] <Chanson, Pop, Rock, Female
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714339.jpg" />
+  <img src="Z:/picture/008/save_picture_714339.jpg" />
 </div>
 
 
@@ -122,7 +325,7 @@ Sylvan Esso - What Now (2017) [FLAC|Lossless|tracks + .cue] <Electropop, Indie P
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714329.jpg" />
+  <img src="Z:/picture/008/save_picture_714329.jpg" />
 </div>
 
 
@@ -151,7 +354,7 @@ Matia Bazar - Brivido Caldo (2000) [FLAC|Lossless|tracks] <Pop, Italo-pop, Disco
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714080.jpg" />
+  <img src="Z:/picture/008/save_picture_714080.jpg" />
 </div>
 
 
@@ -180,7 +383,7 @@ Rick Astley - 50 (2016) [FLAC|Lossless|image + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713954.jpg" />
+  <img src="Z:/picture/008/save_picture_713954.jpg" />
 </div>
 
 
@@ -209,7 +412,7 @@ Tom Odell - Wrong Crowd (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Indi
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713951.jpg" />
+  <img src="Z:/picture/008/save_picture_713951.jpg" />
 </div>
 
 
@@ -238,7 +441,7 @@ VA - The Sound Of Summer (2017) Limited Special Edition[FLAC|Lossless|tracks + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713771.jpg" />
+  <img src="Z:/picture/008/save_picture_713771.jpg" />
 </div>
 
 
@@ -269,7 +472,7 @@ Vanessa Mai - Fur Dich (2016) [FLAC|Lossless|image + .cue] <Рор>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713418.jpg" />
+  <img src="Z:/picture/008/save_picture_713418.jpg" />
 </div>
 
 
@@ -298,7 +501,7 @@ Madonna - Platinum Hits '2000 (2000) Unofficial Release [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712851.jpg" />
+  <img src="Z:/picture/008/save_picture_712851.jpg" />
 </div>
 
 
@@ -327,7 +530,7 @@ Femme Schmidt - Raw (2016) [FLAC|Lossless|tracks] <Pop, Female Vocal>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712199.jpg" />
+  <img src="Z:/picture/008/save_picture_712199.jpg" />
 </div>
 
 
@@ -356,7 +559,7 @@ VA - Billboard 1986 - 1989 vol.5 (unknown year) Unofficial Release [APE|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712133.jpg" />
+  <img src="Z:/picture/008/save_picture_712133.jpg" />
 </div>
 
 
@@ -385,7 +588,7 @@ Laid Back - Unfinished Symphonies (1999) [FLAC|Lossless|image + .cue] <Electroni
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712112.jpg" />
+  <img src="Z:/picture/008/save_picture_712112.jpg" />
 </div>
 
 
@@ -414,7 +617,7 @@ Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Di
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711961.jpg" />
+  <img src="Z:/picture/008/save_picture_711961.jpg" />
 </div>
 
 
@@ -443,7 +646,7 @@ Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Los
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711183.jpg" />
+  <img src="Z:/picture/008/save_picture_711183.jpg" />
 </div>
 
 
@@ -472,7 +675,7 @@ The Seekers - The Very Best Of The Seekers (1997) [FLAC|Lossless|image + .cue] <
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711146.jpg" />
+  <img src="Z:/picture/008/save_picture_711146.jpg" />
 </div>
 
 
@@ -501,7 +704,7 @@ ZAYN - Icarus Falls (2018) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711013.jpg" />
+  <img src="Z:/picture/008/save_picture_711013.jpg" />
 </div>
 
 
@@ -530,7 +733,7 @@ Blondie - Pollinator (2017) [FLAC|Lossless|tracks] <Pop Rock, Post Punk, New Wav
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710397.jpg" />
+  <img src="Z:/picture/008/save_picture_710397.jpg" />
 </div>
 
 
@@ -544,208 +747,6 @@ Blondie - Pollinator (2017) [FLAC|Lossless|tracks] <Pop Rock, Post Punk, New Wav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31549BB79693CE687279A67199A956556A51901C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025548   (710184) от 12.06.2016
-
-Paris - You Know Me (2002) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sway (3:22)
-02. Are You Happy (3:13)
-03. Rock My World (3:28)
-04. I Do Believe (Written by Per Gessle) (3:36)(   Читать дальше...   )Жанр: Pop, Soft Rock, CountryПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8353BDC4789846172B32E3A2FF39A754CC64BCE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025699   (710098) от 12.06.2016
-
-Paris Hilton - Paris (2006) [APE|Lossless|image + .cue] <Pop, R'n'B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn It Up    [03:12]
-02. Fightin' Over MeЖанр: Pop, R'n'BПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1708C0BD6D4DF5A8622D365D3CC24266C91E16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025459   (710024) от 12.06.2016
-
-Julio Iglesias - Divorcio (2003) [FLAC|Lossless|image + .cue] <Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Divorcio (04:00)
-02.  Corazon de papel (03:58)
-03.  Criollo soy (03:56)
-04.  Qui ganaste (03:02)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D12523B90CABF2A577D0FE300BC9C3163DB7946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219951   (709768) от 16.04.2018
-
-VA - Now That's What I Call Music! 99 (2018) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709768.jpg" />
-</div>
-
-
-###  Подробнее
-
-И так, 23 марта вышел очередной сборник новинок из топов Великобритании и Ирландии. Здесь действительно собрали всех тех исполнителей, которые занимали верхние строчки таблицы популярности.
-Юбилейный - 100-й выпуск планируется 20 июля 2018 года, так что ждать осталось совсем немного. А теперь наслаждайтесь хорошей музыкой...CD1:
-01. Rudimental featuring Jess Glynne, Macklemore and Dan Caplen - These Days  (3:32)
-02. Dua Lipa 	 - IDGAF   (3:36)
-03. Portugal. The Man - Feel It Still  (2:43)(   Читать дальше...   )Релиз состоялся: 23 марта 2018 г.Жанр: Pop, Rock, DanceПродолжительность: 02:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5073A8FA54CBFB3ADE4C1163CF9C97687F63487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401494   (709394) от 10.08.2020
-
-VA - Happy Acoustic Covers Playlist (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Footloose (03:16)
-02. Nora & Will - Sweet Dreams (Are Made of This) (03:15)
-03. Logan York - I Believe in a Thing Called Love (03:00)
-04. Meg Birch - Shotgun (03:06)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4F2D1DE7775496D6CDE5AC0DE8F90935008747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532884   (708877) от 22.02.2022
-
-Chris Rea - New Light Through Old Windows (1988) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708877.jpg" />
-</div>
-
-
-###  Подробнее
-
-New Light Through Old Windows - первый альбом-компиляция британского певца и автора песен Chris Rea, выпущенный в 1988 году. Альбом не случайно был назван New Light Through Old Windows - Новый свет сквозь старые окна - большинство песен были новыми, перезаписанными версиями старых релизов. Альбом был хорошо встречен во многих странах, и на волне успеха альбома последовал (   Читать дальше...   )01. Let’s Dance (4:16)
-02. Working on It (4:25)
-03. I Can Hear Your Heartbeat (3:24)
-04. Windy Town (4:06)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F888BB4530FBF0F222F63CF67FC14DFCE2A010C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 792527   (708138) от 03.06.2014
-
-VA - Pure... Guitar Heroes (2010) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Pop-Roc>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pure... Guitar Heroes предназначен для уже несколько подготовленного слушателя. Я бы даже сказал для любителя хорошего, забойного, культового поп-рока. Именно такой слушатель получит истинное удовольствие от знаковых, классических гитарных рифов, узнаваемых потому, что они появляются у настоящих героев гитары. На этих четырех дисках золотого рок-н-ролла вы услышите (   Читать дальше...   )01. Boston - More Than a Feeling  (3:30)
-02. Steve Ray Vaughan & Double Trouble - The House Is Rockin'  (2:25)
-03. Johnny Winter - Rock and Roll, Hoochie Koo  (3:33)
-04. Rory Gallagher - Moonchild  (4:47)(   Читать дальше...   )Жанр: Pop, Rock, Pop-RocПродолжительность: 04:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7F05BD3699A979C9F24FFBD05179300E435EC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1225190   (980896) от 28.01.2020
+
+Paul Dianno (Paul Di'Anno) - 15 albums, 23 CD (1986-2019) [FLAC|Lossless|image + .cue | tracks + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его зовут Paul Di'Anno, а иногда Paul Dianno, и даже Paul D'ianno. Но как бы ни писали его фамилию, речь идет об одном и том же человеке. Вокалист (1980-1981) группы Iron Maiden, настоящее имя которого Paul Andrews, с кем связаны первые успехи коллектива: запись успешной демо-кассеты The Soundhouse Tapes, издания первого и второго студийных альбомов, выступление (   Читать дальше...   )--------------------------
+
+01. Wrathchild (Iron Maiden cover) (2:52)
+02. Women In Uniform (Skyhooks cover) (2:57)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock |Продолжительность: 22:15:32 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCA2B80EA7714ECAE47C747031589FEDC8185AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356175   (980558) от 29.01.2020
+
+Darkstar - Marching Into Oblivion (1996) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marching Into Oblivion (5:16)
+02. Confusion On A Grand Scale (4:40)
+03. Darkstar (7:10)
+04. Waiting (3:10)(   Читать дальше...   )Жанр: Instrumental Progressive MetalПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8428E0ED2FF57124FC0CDFAAA5CDBD5222CD98EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356233   (980553) от 29.01.2020
+
+Ark - Ark (1999) Reissue, 2000, Avalon [FLAC|Lossless|image + .cue] <Heavy Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Down (5:27)
+02. Where The Winds Blow (5:06)
+03. The Hunchback Of Notre Dame (8:54)
+04. Singers At The World's Dawn (6:57)(   Читать дальше...   )Жанр: Heavy Metal, Progressive RockПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A14588A49ABC3D40968F87139C74130B0972A222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356030   (980552) от 29.01.2020
 
 Marko Hietala - Pyre of the Black Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock, Heavy Metal>
@@ -6,7 +93,7 @@ Marko Hietala - Pyre of the Black Heart (2020) [FLAC|Lossless|WEB-DL|tracks] <Sy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980552.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Status Minor - Ouroboros (2012) Japan [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980327.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Love Might Kill - 2 Big 2 Fail (2012) Japan [FLAC|Lossless|image + .cue] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980323.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Burning Point - 13 альбомов (2001 - 2015) Discography [APE, FLAC, WavPac
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980247.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ The Shadow Theory - Behind The Black Veil (2010) [FLAC|Lossless|tracks + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979195.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979195.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Sylosis - 3 Альбома (2008-2012) Дискография [FLAC|Lossless]<Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978682.jpg" />
 </div>
 
 
@@ -186,7 +273,7 @@ Nightfall - 5 альбомов (1999 - 2013) [FLAC / APE|Lossless]<Symphonic Bla
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978678.jpg" />
 </div>
 
 
@@ -222,7 +309,7 @@ Cardinal Sin - Spiteful Intents (1996) [WavPack|Lossless|image + .cue] <DeathMet
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978218.jpg" />
 </div>
 
 
@@ -251,7 +338,7 @@ Jorn - Symphonic (2013) [APE|Lossless]<Symphonic / Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977608.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977608.jpg" />
 </div>
 
 
@@ -286,7 +373,7 @@ Devin Townsend - 26 Albums, 8 Compilations & Live, 4 EPs & Promos (1996 - 2019) 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977534.jpg" />
 </div>
 
 
@@ -315,7 +402,7 @@ Bullet For My Valentine - Temper Temper (Deluxe Edition) (2013) [FLAC|Lossless]<
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977306.jpg" />
 </div>
 
 
@@ -341,7 +428,7 @@ Hate - Solarflesh (2013) Limited Edition [FLAC|Lossless]<Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976625.jpg" />
 </div>
 
 
@@ -376,7 +463,7 @@ Evans Blue - 4 Альбома (2006-2012) Дискография [FLAC|Lossless]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975959.jpg" />
 </div>
 
 
@@ -411,7 +498,7 @@ Malevolent Creation - Dead Man's Path (2015) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975793.jpg" />
 </div>
 
 
@@ -440,7 +527,7 @@ Arcturus - Arcturian (2015) 2CD [FLAC|Lossless|image + .cue] <Avant-Garde Black 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975745.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975745.jpg" />
 </div>
 
 
@@ -469,7 +556,7 @@ Metallica - Helping Hands... Live & Acoustic At The Masonic (2019) [FLAC|Lossles
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975452.jpg" />
 </div>
 
 
@@ -495,7 +582,7 @@ Annihilator - Ballistic, Sadistic (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975376.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975376.jpg" />
 </div>
 
 
@@ -524,7 +611,7 @@ Metallica ‎ - ..And Justice For Jason (Limited Edition, Enhanced and recovered
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975280.jpg" />
 </div>
 
 
@@ -553,7 +640,7 @@ Wolfpakk - Discography 5 Releases (2011-2020) [FLAC|image +.cue]< Heavy Metal, H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974120.jpg" />
 </div>
 
 
@@ -582,7 +669,7 @@ Tank - Valley of Tears (2015) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973358.jpg" />
 </div>
 
 
@@ -611,7 +698,7 @@ Axel Rudi Pell - Game Of Sins (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973206.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973206.jpg" />
 </div>
 
 
@@ -640,7 +727,7 @@ Leecher - Deviant (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Gothic Metal,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972707.jpg" />
 </div>
 
 
@@ -669,7 +756,7 @@ Mammoth Storm - Fornjot (2015) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972186.jpg" />
 </div>
 
 
@@ -683,99 +770,6 @@ Mammoth Storm - Fornjot (2015) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2ECA60757CCCC471E08FC2C348481877032A39C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975669   (972112) от 15.01.2016
-
-Rhapsody Of Fire - Into The Legend (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Principio
-02. Distant Sky
-03. Into The Legend
-04. Winter's Rain(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:662D4E51CEC2EE39DC6587D2B30D6737BF23CE25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 167733   (971247) от 19.01.2010
-
-Ayreon - Дискография (1995-2009) [FLAC|Lossless]<Progressive metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day Three: Pain (4:54)
-02. Day Six: Childhood (5:04)
-03. Day Twelve: Trauma (9:24)
-04. Day Sixteen: Loser (4:48)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617254   (970445) от 13.02.2013
-
-Staind - 8 Альбомов (1996-2012) Дискография [FLAC|Lossless] <Alt.Metal | Post-Grunge | Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970445.jpg" />
-</div>
-
-
-###  Подробнее
-
-<<<
-----------------------------------------------------------------------------
-01. Eyes Wide Open (Live From Mohegan Sun)
-02. Falling (Live From Mohegan Sun)
-03. Right Here (Live From Mohegan Sun)
-04. Throwing It All Way (Live From Mohegan Sun)
-05. Spleen (Live From Mohegan Sun)
-06. Fade (Live From Mohegan Sun)
-07. Failing (Live From Mohegan Sun)
-08. So Far Away (Live From Mohegan Sun)(   Читать дальше...   )Тип издания: ДискографияЖанр: Alt.Metal | Post-Grunge | Nu MetalПродолжительность: 00:74:06 >>>
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

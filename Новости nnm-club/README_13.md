@@ -1,3 +1,107 @@
+###  Публикация: 1445696   (1018135) от 01.05.2021
+
+Последний герой. Чемпионы против новичков (2021) SATRip (сезон 3, выпуски 1-13 из 13 + спецвыпуск)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарное реалити "Последний герой" возвращается. Впервые на ТВ-3 16 новых участников отправятся в Африку, на Занзибар. В новом сезоне реалити "Последний герой" изменится все: новый континент, новые испытания и... новые команды. Чемпионы всех сезонов будут противостоять новичкам со всей России. Кому же покорится Африка?Телекомпания: ТВ-3Жанр: Реалити-шоуСубтитры: ОтсутствуютПродолжительность: 1х ~01:36:00  1 x ~ 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621BE3AFEF94F0AA7B6CDD34E7B6A0B4ADEE811C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466768   (1018130) от 01.05.2021
+
+Corona Renderer 6 (Hotfix 2) for 3ds Max 2014-2022 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corona Renderer - это популярный визуализатор для рендеринга в 3ds Max и Cinema 4D. Хорошая альтернатива V-ray-ю.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F6117E7FD0DFB0906D9F6DA1F39029A26339702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466629   (1017990) от 02.05.2021
+
+Минздрав проверит водителей на алкоголизм и наркоманию
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Министерство здравоохранения РФ разработало новый приказ, регулирующий процедуру получения медицинских справок в рамках водительских комиссий. Если врач заметит некие признаки хронического алкоголизма или наркозависимости, следует из документа, он отправит водителя на дополнительные исследования. В приказе не уточняется, что это за признаки. Для водителей, возвращающих (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466967   (1017975) от 02.05.2021
+
+Обезьяна против монстра / Ape vs. Monster (2021) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обезьяна из космоса падает на Землю, случайно задевая мимо проползающую ящерицу, на которую попадают внеземные вещества. В результате столкновения, оба животных мутируют и вырастают до гигантских размеров. Теперь особи видят друг в друге врагов, и чтобы доказать, кто здесь главный, они готовы сразиться не на жизнь, а на смерть.Производство: США / The AsylumЖанр: Боевик, приключения, фантастикаРежиссер: Даниэль ЛускоАктеры: Эрик Робертс, Шейн Хартиган, Кэти Серейка, Р.Дж. Вагнер, Арианна Скотт, Quinn Baker ...Перевод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:26:05Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A149097C8BAACB8F487A9CFB6AFC2373F1F0CEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466718   (1017966) от 02.05.2021
 
 Без жалости / Without Remorse (2021) WEB-DL [H.264/1080p-LQ] [DVO]
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017966.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017966.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017606.jpg" />
 </div>
 
 
@@ -59,7 +163,7 @@ Eador. Imperium / Эадор. Империя (2017) [Ru/Multi] (2.75.1) License 
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017605.jpg" />
 </div>
 
 
@@ -85,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017474.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017322.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ Kingdom Two Crowns (2018) [Ru/Multi] (1.1.10/dlc) Repack Other s [Royal Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017130.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017013.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016981.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016950.jpg" />
 </div>
 
 
@@ -241,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016212.jpg" />
 </div>
 
 
@@ -267,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016003.jpg" />
 </div>
 
 
@@ -293,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015832.jpg" />
 </div>
 
 
@@ -319,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015538.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ Garmin: Дороги России ТОПО 6.36 (FID 3332 + FID 4594) 6.36 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015365.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015365.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.7.16/dlc) Repack W
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015355.jpg" />
 </div>
 
 
@@ -398,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015226.jpg" />
 </div>
 
 
@@ -424,7 +528,7 @@ Adobe Photoshop 2021 22.4.1.211 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015028.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015028.jpg" />
 </div>
 
 
@@ -450,7 +554,7 @@ Windows 10 21H1 (x64) 16in1 +/- Office 2019 by Eagle123 (05.2021) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014874.jpg" />
 </div>
 
 
@@ -476,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014769.jpg" />
 </div>
 
 
@@ -502,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014768.jpg" />
 </div>
 
 
@@ -530,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014710.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014710.jpg" />
 </div>
 
 
@@ -556,7 +660,7 @@ ScienceAlert: Физикам из США удалось превысить ск�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014599.jpg" />
 </div>
 
 
@@ -567,110 +671,6 @@ ScienceAlert: Физикам из США удалось превысить ск�
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471837   (1014567) от 23.05.2021
-
-Windows 10 Enterprise LTSC (x86/x64) 8in1 +/- Office 2019 by Eagle123 (05.2021) [Ru/En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 Enterprise LTSC v1809 17763.1935, включающая в себя 2 русских и 2 английских редакции x86/x64, с обновлениями по 05.2021, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC30E9B7E6A7ED353A6800403B9878D29B045605
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384398   (1014564) от 23.05.2021
-
-Смешарики. Новый сезон (2020-2021) WEB-DLRip [H.264/720p-LQ] (сезон 1, серии 1-49 из 52) [Обновляемая]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений любимых круглых героев в формате 2D. Это трогательные ироничные сюжеты о жизни, близкие и понятные детям и взрослым. Любопытные до всего нового Смешарики будут попадать в неожиданные ситуации или создавать их сами, в характерах персонажей зрители традиционно узнают себя.Производство: Россия | Студия компьютерной анимации "Петербург" / «Рики»Жанр: Мультсериал, Анимация, ДетскийРежиссер: Денис Чернов, Алексей Горбунов, Александра АверьяноваАктеры: Вадим Бочанов, Антон Виноградов, Сергей Мардарь, Владимир Постников, Светлана Письмиченко, Михаил Черняк, Владимир Маслаков, Максим Сергеев, Игорь Яковель, Денис ЧерновПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 00:06:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07741B6D0F69500C005C615671ADAD57567C6EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174399   (1013900) от 27.05.2021
-
-The Evil Within 2 (2017) [Ru/Multi] (1.05/upd4/dlc) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детище Шинджи Миками, The Evil Within 2 - новое слово в жанре survival horror. Детектив Кастелланос потерял в жизни все. Чтобы спасти дочь, он должен спуститься в полные кошмаров глубины STEM.Тип издания: RepackРазработчик: Tango GameworksЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C3FF73A06AC56D78A21D56A4437CAFCC8A1506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214019   (1013735) от 28.05.2021
-
-SYNTHETIK: Legion Rising (2018) [Ru/Multi] (26.1/dlc) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013735.jpg" />
-</div>
-
-
-###  Подробнее
-
-SYNTHETIK - это беспощадный шутер-рогалик в мире, захваченном машинами. Мощное оружие, апгрейды, населённые роботами уровни и тонны веселья ждут героя. Убей их всех, и пусть рефлексы тебя не подведут! 1985 г., в производстве роботов лидирует Kaida Corporation. Сбросив оковы многолетнего гнёта, ИИ корпорации создаёт "Легион машин" и начинает истреблять людей. (   Читать дальше...   )Тип издания: RepackРазработчик: Flow Fire GamesЖанр: Action (Shooter), RoguelikeЯзык субтитров: Русский, Английский, Французский, НемецкийЯзык интерфейса: Русский, Английский, Французский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CA276F654888EFF6B968CB2AD073EFE22BC215
 ```
 
 https://mybot314.ru/tekegram_catalog/

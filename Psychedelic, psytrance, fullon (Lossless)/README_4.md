@@ -6,7 +6,7 @@ Quirk - Quality Control (1999) [FLAC|Lossless|tracks + .cue] <Psy-Trance, Experi
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120647.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Infected Mushroom - REBORN (2024) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Ele
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119672.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - DJ Bim - Matchbox (2024) [FLAC|Lossless|WEB-DL|tracks] <Psy Trance, Goa Tra
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104282.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Stellar Transmissions (Compiled by Fabio Leal) - 2024 [FLAC|Lossless|WEB-DL
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_51582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_51582.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Ital - Rukapillan (2024) [FLAC|Lossless|WEB-DL|tracks] <PsyTrance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39570.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Nukleall - Infinite Echoes (2025) [FLAC|Lossless|WEB-DL|tracks] <Psytrance>
 >>Psychedelic, psytrance, fullon (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4385.jpg" />
 </div>
 
 

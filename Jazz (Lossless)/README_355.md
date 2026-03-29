@@ -1,3 +1,119 @@
+###  Публикация: 1799193   (66471) от 27.05.2025
+
+Anita O'Day - Mello'day (1978) 1992, GNP Crescendo Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Devil Moon [2:58]
+02. Lost in the Stars [3:38]
+03. Meditation [4:33]
+04. You're My Everything [3:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D159C3AFB584C48C209FB42E2B57B0527343FD1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799195   (66469) от 27.05.2025
+
+Sal Salvador - Shades Of Sal Salvador (1956, 1957) 1999, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delighted [4:13]
+02. Two Sleepy People [2:40]
+03. Joe and Me [3:31]
+04. Flamingo [3:21](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:43:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6565F10B3632DFFAA39BC5A9AF81325BDF0142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798722   (66468) от 27.05.2025
+
+Jelly Roll Morton - Last Sessions: The Complete General Recordings (1939, 1940) 1997, Commodore [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sporting House Rag (Perfect Rag) [2:21]
+02. Original Rags [2:51]
+03. The Crave [3:07]
+04. The Naked Dance #2 [2:52](   Читать дальше...   )Жанр: New Orleans Jazz, Piano JazzПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E18EFF97A3421A14C8F2045A7D3D38EA40059A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799313   (66462) от 27.05.2025
+
+Patti Austin - Avant Gershwin (2007) [FLAC|Lossless|tracks + .cue] <Big Band, Contemporary Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture / Gershwin (medley)    [0:12:18.71]
+02. I'll Build a Stairway to Paradise    [0:06:14.03]
+03. Who Cares    [0:06:34.14]
+04. Funny Face    [0:04:01.47](   Читать дальше...   )Жанр: Big Band, Contemporary Jazz, VocalПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:882D694B35D03A4B1A0F2DABBB17339CBC5A0EE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1799374   (66455) от 27.05.2025
 
 Sal Salvador - A Tribute To The Greats (1957) 1999, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -6,7 +122,7 @@ Sal Salvador - A Tribute To The Greats (1957) 1999, Toshiba-EMI [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66455.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Sal Salvador - Sal Salvador (1954) 1991, Toshiba-EMI [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66454.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Al Hirt - Cherry Pink And Apple Blossom Wine (2001) High Definition Jazz [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66453.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Woody Herman - The Fourth Herd & The New World of Woody Herman (1959, 1962) 1995
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66452.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Richard Wyands - The Arrival (1992) DIW Records [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66451.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Lavay Smith & Her Red Hot Skillet Lickers - Miss Smith To You (2009) Fat Note Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66413.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - In Noir We Trust (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66412.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Coffee Funk (Feel the Heat of Acid Jazz Funk) (2025) [FLAC|Lossless|WEB-DL|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66401.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - The Midnighters Vol. III (Last Chapter) (2025) Signora Ward Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66379.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Lowell Hopper - Opposite Direction (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66375.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Donald Byrd - Byrd In Flight (1960) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66351.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Howard Rumsey's Lighthouse All-Stars - Volume 4: Oboe / Flute (1956) 1991, Origi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66299.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Ella Fitzgerald - The Moment Of Truth (1967) 2025, Verve Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66294.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Ronny Smith - Cruisin (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66252.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Nikki Iles & NDR Bigband - Face To Face (2023) Edition Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66226.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Tim Hardin Trio - Light Intelligence Series 2 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66217.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tim Hardin Trio - Light Intelligence Series 3 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66216.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Tim Hardin Trio - Light Intelligence Series 4 (1992) Golden Penguin [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66214.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Kenny Wheeler - Song For Someone (1973) 2004, Psi [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66207.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Renee Rosnes - Renee Rosnes (1988, 1989) 1990, Blue Note [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66155.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Mindi Abair - Based On A True Story (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66124.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Jimmy Scott - Very Truly Yours (1955) Columbia [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66119.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Jimmy Scott - Very Truly Yours (1955) Columbia [FLAC|Lossless|tracks + .cue] <Vo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D0F557E2958243572EF762C7512F5C06DAA3C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801960   (66109) от 14.06.2025
-
-The Swingfield Big Band - Big Band Favorites (2009) 2CD, Reflections [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonlight Serenade [4:06]
-02. I'll Be Seeing You [4:40]
-03. Over the Rainbow [4:45]
-04. Moon River [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9C8ABA120C1E4BF31FC294436745E11D0C9345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802275   (66095) от 15.06.2025
-
-V.A. - Best of BOSSA NOVA COVERS (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 48th St. Collective - Beautiful Things
-02. Amazonics - Heart of Glass
-03. Sarah Menescal - Vogue
-04. Nenei - L'AMOUR DE MA VIE(   Читать дальше...   )Жанр: Bossa Nova, Pop JazzПродолжительность: 01:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE81F5A7F85D0F73126D1FB2C078CF3CE44877F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802247   (66091) от 15.06.2025
-
-Michael Kaeshammer - The Pianist (2015) Self-Released [FLAC|Lossless|tracks + .cue] <Stride, Boogie-Woogie, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicago Breakdown [2:24]
-02. Lands End Parade [3:07]
-03. Stomp [2:54]
-04. Autumn Leaves [3:31](   Читать дальше...   )Жанр: Stride, Boogie-Woogie, Piano JazzПродолжительность: 00:29:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8014EE2606C818F4306ABF1386DFF0D1A69EF56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802480   (66043) от 17.06.2025
-
-The Great Jazz Trio - At The Village Vanguard (1977) 2000, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moose the Mooche [6:11]
-02. Naima [11:40]
-03. Favors [9:31]
-04. 12+12 [9:31]Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCB5DAEC177A4CB64CB6E7C29D36C1E09607E23
 ```
 
 https://mybot314.ru/tekegram_catalog/

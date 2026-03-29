@@ -1,3 +1,107 @@
+###  Публикация: 270997   (971749) от 15.01.2016
+
+NG: Запреты. Изгои общества / Taboo. Outcasts of society (2003) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человек — социальное животное. По всему миру люди формируют сообщества и группы, к которым они принадлежат. Но в любом обществе есть те, кто чувствует себя чужими.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE696F1A5FC1C24E946B619CD5B7AE24249ADFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 224241   (971696) от 15.01.2016
+
+NG: Запреты. Вуду / Taboo. Voodoo (2002) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему вуду запрещено? Возможно, потому, что оно включает такие жуткие обряды, как одержимость и черная магия. Проследите, как вуду обрело разнообразие и стало табу даже у народов, практикующих его.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440517   (970602) от 22.01.2012
+
+NG: Апокалипсис: Вторая мировая война: Развязывание войны / National Geographic: Apocalypse. World War II. The outbreak of war (2009 (эфир от 21.01.2012)) IPTVRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970602.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью редких киноматериалов 1939 года фильм ярко воссоздает события начала войны, включая нападение на Польшу и создание лодзинского гетто.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA11B797D1F177E18463E5E43518D0BEA183E15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 353969   (970584) от 16.01.2016
+
+NG: Запреты. Опознавательные знаки / Taboo. Marks of Identity (2004) SATRip
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый принадлежит к какой-то группе, но некоторые выражают свою принадлежность экстремальным образом. Татуировки, клеймение, растягивание частей тела – все это обозначения своей субкультуры, но у других это может считаться табу.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3D9C7C831FA38CEE258DA9EC152358B6E5D86FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 207269   (970288) от 16.01.2016
 
 NG: Табу: Зарождение эротического кино / Taboo. The Beginning Of Erotic Cinema (2004) DVDRip (2004) DVDRip
@@ -6,7 +110,7 @@ NG: Табу: Зарождение эротического кино / Taboo. Th
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970288.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970115.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969968.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ National Geographic: Расследования авиакатастроф. См
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969600.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969464.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ NG: Расследования авиакатастроф: Посадка на �
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969430.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ BBC: Живой мир: Бегемоты - жизнь в воде / Natural Worl
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968560.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968507.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968440.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ History Channel: Вселенная. Наше место в галактике �
 >>History Channel
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968316.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ BBC: Планеты. Марс / The Planets: Mars (2019) IPTVRip [H.264]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967003.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ NGW: Настоящая чёрная пантера / The Real Black Panther (20
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965961.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ Discovery: Могучие корабли. Кентуки / Mighty Ships. USS Ken
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964754.jpg" />
 </div>
 
 
@@ -345,7 +449,7 @@ BBC: Загадки истории. Мифы и герои / BBC: In Search Of M
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964515.jpg" />
 </div>
 
 
@@ -374,7 +478,7 @@ Discovery: 100 Величайших Открытий / Discovery: 100 Greatest D
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962804.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ BBC: Планеты. Юпитер / Nova: The Planets: Jupiter (2019) IPTVRip [H
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960551.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Discovery. Река забвения / River of No Return (2019) HDTVRip [H.264/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959084.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ BBC: Чудо животного мира / Wonder of Animals (2014) HDTVRip [H.
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958336.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ Discovery. Выжить любой ценой / Ultimate Survival (2006-2011) DV
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955223.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ NG: Забытые персонажи Библии / Lost Face of the Bible (201
 >>Тайны и Загадки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955032.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955032.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955011.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 3
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954539.jpg" />
 </div>
 
 
@@ -569,113 +673,6 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EACC021F2BEDDE8CAB8E3EB068C05AB749D668C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749343   (954529) от 25.01.2014
-
-Discovery: Новый Мир. Мегаполис будущего / Discovery: Next World. Future Megatropolis  (2008) HDTV [H.264/1080i]
-
->>Зарубежные TV-бренды
->>Discovery
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Discovery Channel приглашает совершить запредельное путешествие в третье десятилетие 21 века.
-Посмотрите, как идеи, которые сегодня кажутся смелыми и революционными, воплощаются в обыденные и привычные вещи завтрашнего дня.
-
-Превратится ли Земля в один большой город? В будущем города будут строить за то же время, что сейчас и мосты.(   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E10EA3C6097CA775A7F14FCC0E10E2A451575C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980602   (954527) от 30.01.2016
-
-BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 2]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954527.jpg" />
-</div>
-
-
-###  Подробнее
-
-В тисках времен года (Арктика) / In the Grip of the SeasonsВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8D709E0D987F228FB096B32F5D8A28F77CF144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980652   (954492) от 30.01.2016
-
-BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 4]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голод в море (Океаны) / Hunger at SeaВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75DE97C2BBA6096819DB68E86BF7A8AC1EE61A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980571   (954430) от 30.01.2016
-
-BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 1]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сложнейшие задачи / The Hardest ChallengeВ этом выдающемся документальном сериале в деталях рассмотрены отношения между хищниками и их добычей. Вместо того, чтобы сосредотачиваться на кровавых подробностях охоты, в сериале с беспрецедентной тщательностью исследуются методы, с помощью которых хищники добывают еду, а их добыча старается избежать смерти.Телекомпания: BBC / BBC Worldwide / BBC America / CCTV9 / NDR NaturfilmЖанр: Документальный, научно-познавательный, природа, флора, фаунаПеревод: Двухголосый закадровый, профессиональный (AlexFilm)Озвучка: Владимир Курдов и Наталья ЛанцПродолжительность: 00:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2541775BD5EAAB158BA8DA751350CA28822ED7
 ```
 
 https://mybot314.ru/tekegram_catalog/

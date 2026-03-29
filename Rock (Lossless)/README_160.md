@@ -1,3 +1,145 @@
+###  Публикация: 1600501   (155999) от 28.12.2022
+
+South of Reality - 4 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - South of Reality
+2022 - Lone Star State Of Mind
+2022 - Southland(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 4 CD, 02:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED32C5DF50912B5F83BE83D12D8C344A59A2A157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270564   (155983) от 20.12.2018
+
+Boston - Walk On (1994) [FLAC|Lossless|tracks + .cue] <Arena Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Need Your Love (5:33)
+02.Surrender To Me (5:34)
+03.Livin' For You (4:58)
+04.Walkin' At Night (2:02)(   Читать дальше...   )Жанр: Arena Rock, RockПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDF01C9FA12CCA9B136F65F0BE8709A2127AC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600649   (155966) от 28.12.2022
+
+Popol Ace - Stolen From Time (1975) Reissue, 1990, Polydor [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155966.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bury Me Dead - 5:50
+2. Today Another Day - 5:45
+3. Jester - 3:58
+4. Soft Shoe Dancer - 4:37(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC8BD068CF232335514CFC5EC433E9299292C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600636   (155352) от 28.12.2022
+
+Vinnie Moore - Double Exposure (2022) [FLAC|Lossless|image + .cue] <Classic Rock, Instrumental, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155352.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Гитарист UFO и ALICE COOPER Винни Мур (Vinnie Moore) выпустил новый сольный альбом "Double Exposure" на своем собственном лейбле Mind's Eye Music. Впервые за всю сольную дискографию Винни включил несколько треков с вокалом. В записи участвовали вокалисты Эд Терри (Ed Terry, RAGE AND BEYOND, AMERICAN MAFIA), Кит Слэк (Keith Slack, MSG, MOTHER ROAD), (   Читать дальше...   )01. Vertical Horizon (04:03)
+02. Rise (04:15)
+03. Still Waters Run Deep (05:00)
+04. Paid My Dues (03:41)(   Читать дальше...   )Жанр: Classic Rock, Instrumental, Hard RockПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E629A305F032F5692B9BBD2F0E7B176770D3A432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 795332   (154950) от 25.12.2017
+
+The Beach Boys - The Platinum Collection (2005) 3CD [FLAC|Lossless|tracks + .cue] <Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Rock, Pop-RockПродолжительность: 02:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:141ED3E1B6F4ACE9538FDD5DACE8AA3E4B7521E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086066   (154889) от 23.12.2016
 
 O.N.A. - To Naprawde Juz Koniec 1995-2003 (2003) 2 CD, Compilation [APE|Lossless|tracks + .cue] <Hard Rock, Stoner Rock, Alternative>
@@ -6,7 +148,7 @@ O.N.A. - To Naprawde Juz Koniec 1995-2003 (2003) 2 CD, Compilation [APE|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154889.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154889.jpg" />
 </div>
 
 
@@ -35,7 +177,7 @@ VA - Modern Rock Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154614.jpg" />
 </div>
 
 
@@ -64,7 +206,7 @@ VA - Mix: Rock 'N Lovers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154591.jpg" />
 </div>
 
 
@@ -93,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152806.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152806.jpg" />
 </div>
 
 
@@ -122,7 +264,7 @@ Chris Isaak - Christmas (2004) Target Exclusive Limited Edition [FLAC|Lossless|t
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152666.jpg" />
 </div>
 
 
@@ -151,7 +293,7 @@ Elvis Presley - Ultimate Christmas (2015) Walmart Limited Edition [FLAC|Lossless
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152577.jpg" />
 </div>
 
 
@@ -180,7 +322,7 @@ Billy Idol - Happy Holidays (2006) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152566.jpg" />
 </div>
 
 
@@ -209,7 +351,7 @@ Brian Connolly`s Sweet - Best Of (2008) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152448.jpg" />
 </div>
 
 
@@ -238,7 +380,7 @@ The London Symphony Orchestra - The Power Of Classic Rock (1985) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152379.jpg" />
 </div>
 
 
@@ -267,7 +409,7 @@ Queen - A Kind Of Magic (1986) Japanese Edition [FLAC|Lossless|image + .cue] <Cl
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152215.jpg" />
 </div>
 
 
@@ -296,7 +438,7 @@ John Lennon - 23 albums, 3 Box-sets, 87 CD (1969-2021) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151976.jpg" />
 </div>
 
 
@@ -325,7 +467,7 @@ Rick Wakeman - Piano Vibrations (1971) Reissue, 2003, Voiceprint [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151949.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151949.jpg" />
 </div>
 
 
@@ -354,7 +496,7 @@ Pendragon - Love Over Fear (2020) [FLAC|Lossless|image + .cue] <Progressive Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151782.jpg" />
 </div>
 
 
@@ -383,7 +525,7 @@ Mullett - The Originals Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151230.jpg" />
 </div>
 
 
@@ -412,7 +554,7 @@ Hard Times - Tales From The Wild Cat Place (2021) [FLAC|Lossless|image + .cue] <
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151212.jpg" />
 </div>
 
 
@@ -441,7 +583,7 @@ Neu! - 50! (2022) 5xCD, Compilation,  Box Set, Reissue, 2022, Grönland Records 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150901.jpg" />
 </div>
 
 
@@ -470,7 +612,7 @@ VA - Pink Floyd Tribute (2021) 2xSet [FLAC|Lossless|WEB-DL|tracks] <Psychedelic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150818.jpg" />
 </div>
 
 
@@ -499,7 +641,7 @@ Bryan Adams - Down The Marquee (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150715.jpg" />
 </div>
 
 
@@ -528,7 +670,7 @@ Dire Straits - Brothers In Arms (1984) SACD Hybrid, Remastered, 20th Anniversary
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150230.jpg" />
 </div>
 
 
@@ -557,7 +699,7 @@ The Ancestry Program [TAP] - Mysticeti Ambassadors Part 1 (2021) [FLAC|Lossless|
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149880.jpg" />
 </div>
 
 
@@ -586,7 +728,7 @@ Asia - Live at the Teatro Colegiales, Buenos Aires, Argentina, 2011 (2023) [FLAC
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149438.jpg" />
 </div>
 
 
@@ -600,151 +742,6 @@ Asia - Live at the Teatro Colegiales, Buenos Aires, Argentina, 2011 (2023) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E5B3A5C200C6DF7CACB533941425CC386DC8DAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968817   (149427) от 26.12.2015
-
-Bon Jovi - Have A Nice Day (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have a Nice Day (3:49)
-02. I Want to Be Loved (3:49)
-03. Welcome to Wherever You Are (3:47)
-04. Who Says You Can't Go Home? (4:40)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B827FEED63FAE47AE1DC2B090720C12E7556ABF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969291   (149336) от 26.12.2015
-
-Jethro Tull - Too Old To Rock 'N' Roll: Too Young To Die! (1976) 2CD Box Set, 2015, Chrysalis Records [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude | 00:53
-02. Quiz Kid | 04:03
-03. Crazed Institution | 04:35
-04. Salamander | 02:52(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0663AB427964B16041F2D6D2CD9782FA91CF511
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677673   (149259) от 19.11.2023
-
-Frank Zappa - Over-Nite Sensation (1973) 50th Anniversary, 2023 [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz-Rock, Prog-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Disc 1: Over-Nite Sensation
-Disc 2: Bonus Session Masters / Bonus Vault Sensations
-Disc 3: Live In Hollywood, California, Hollywood Palladium – March 23, 1973(   Читать дальше...   )Жанр: Jazz-Rock, Prog-RockПродолжительность: 4CD: 04:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DA0362A3B5681C83FAD4A3F3D36987086EC3AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968826   (149175) от 26.12.2015
-
-David Bowie - The Rise And Fall Of Ziggy Stardust And The Spiders From Mars (1972) SACD, 2003, EMI [FLAC|Lossless|tracks + .cue] <Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Five Years (4:43)
-02. Soul Love (3:33)
-03. Moonage Daydream (4:39)
-04. Starman (4:13)(   Читать дальше...   )Жанр: GlamПродолжительность: 00:35:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9491CF4F587428EE110BA8D7D22C00C6B92C8C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968840   (149159) от 26.12.2015
-
-Roxy Music - The Best Of Roxy Music (2001) SACD, Compilation, 2003, Virgin [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon (4:16)
-02. More Than This (4:18)
-03. Jealous Guy (4:57)
-04. Over You (3:27)(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, GlamПродолжительность: 01:09:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76CAA1DFD6458EDBFCDC1799B7282531F7C0172
 ```
 
 https://mybot314.ru/tekegram_catalog/

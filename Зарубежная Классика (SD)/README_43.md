@@ -1,3 +1,81 @@
+###  Публикация: 1021748   (717478) от 08.06.2016
+
+Операция начнется после полудня / Olsen-banden overgiver sig aldrig (1979) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уморительная история о похождениях хитроумных мошенников. Главарь банды Ольсен — Эган, отсиживая очередной срок в датской тюрьме, набрался знаний по менеджменту и бизнесу у своего сокамерника. Из полученных знаний он сделал только один вывод: бизнес — это законное мошенничество. Освободившись, он немедленно приступает к делу… Вознамерившись прибрать к рукам крупнейший (   Читать дальше...   )Производство: ДанияЖанр: Комедия, криминалРежиссер: Эрик БаллингАктеры: Ове Спрогёе, Мортен Грунвальд, Поуль Бундгор, Керстен Уолтер, Аксель Стрёбюэ, Оле Эрнст, Бьорн Уатт-Булсен, Питер Стин, Ове Вернер Хансен, Бастер Ларсен, Вера Гебур ...Перевод: Дублированный, любительский одноголосыйСубтитры: ОтсутствуютПродолжительность: 01:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD508011392966205D3C984A613CEB99075BF787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 668784   (717379) от 18.06.2013
+
+Лётчик-испытатель / Test Pilot (1938) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717379.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом фильме всё: и настоящая мужская дружба, и самопожертвование во имя этой дружбы, и настоящая любовь. Кроме того, это лучший фильм об авиации и лётчиках, о скоротечности их жизни по независящим от них причинам и о глубине переживаний жен и подруг каждую минуту осознающих, что неотвратимость потери столь дорогого человека неизбежна, и в то же время нужно жить (   Читать дальше...   )Жанр: ДрамаРежиссер: Виктор ФлемингАктеры: Кларк Гейбл, Мирна Лой, Спенсер Трэйси, Лайонел Бэрримор, Сэмюэл С. Хиндс, Марджори Мэйн, Тед Пирсон, Глория Холден, Луис Джин Хейдт, Вирджиния Грей, Присцилла Лоусон, Клаудия Колман, Артур ЭйлесуортПеревод: Профессиональный (двухголосый, закадровый)Субтитры: нетПродолжительность: 01:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE14E04CF9D569C4969045450E31B2FC7A017ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021981   (717366) от 08.06.2016
+
+Бархатные ручки / Mani di velluto (1979) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_717366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инженер Гвидо изобретает особо прочное стекло, которое позволяет спокойно спать владельцам ювелирных магазинов. Но это изобретение очень не нравится ворам, и они подсылают очаровательную девушку, чтобы завлечь изобретателя в свои ряды. Но неожиданно планы мошенников рушатся, как карточный домик. Девушка влюбляется в неотразимого Гвидо. Некоторые комические выходки (   Читать дальше...   )Производство: ИталияЖанр: КомедияРежиссер: Франко Кастеллано, Джузеппе МоччиаАктеры: Адриано Челентано, Элеонора Джорджи, Джон Шарп, Ольга Карлатос, Джино Сантерколе, Ания Пьерони, Джанкарло Тондинелли, Пиппо Сантонастасо, Джанни Дзулло, Джефри Коплстон, Вальтер Вальди, Сандро Гиани, Пьетро Торди, Серджо Тардиоли, Дино КассиоПеревод: Профессиональный многоголосый, профессиональный двухголосый, профессиональный одноголосыйСубтитры: ОтсутствуютПродолжительность: 01:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD8195A05EB13B40E9880E5DB1522148A4BC925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 669400   (716877) от 18.06.2013
 
 Загнанных лошадей пристреливают, не правда ли? / They Shoot Horses, Don't They? (1969) DVDRip
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716877.jpg" />
+  <img src="Z:/picture/008/save_picture_716877.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716488.jpg" />
+  <img src="Z:/picture/008/save_picture_716488.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716436.jpg" />
+  <img src="Z:/picture/008/save_picture_716436.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716392.jpg" />
+  <img src="Z:/picture/008/save_picture_716392.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716169.jpg" />
+  <img src="Z:/picture/008/save_picture_716169.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715634.jpg" />
+  <img src="Z:/picture/008/save_picture_715634.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715512.jpg" />
+  <img src="Z:/picture/008/save_picture_715512.jpg" />
 </div>
 
 
@@ -188,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715309.jpg" />
+  <img src="Z:/picture/008/save_picture_715309.jpg" />
 </div>
 
 
@@ -214,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715232.jpg" />
+  <img src="Z:/picture/008/save_picture_715232.jpg" />
 </div>
 
 
@@ -240,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715142.jpg" />
+  <img src="Z:/picture/008/save_picture_715142.jpg" />
 </div>
 
 
@@ -266,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714720.jpg" />
+  <img src="Z:/picture/008/save_picture_714720.jpg" />
 </div>
 
 
@@ -292,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714516.jpg" />
+  <img src="Z:/picture/008/save_picture_714516.jpg" />
 </div>
 
 
@@ -318,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713605.jpg" />
+  <img src="Z:/picture/008/save_picture_713605.jpg" />
 </div>
 
 
@@ -344,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713576.jpg" />
+  <img src="Z:/picture/008/save_picture_713576.jpg" />
 </div>
 
 
@@ -370,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713561.jpg" />
+  <img src="Z:/picture/008/save_picture_713561.jpg" />
 </div>
 
 
@@ -396,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713078.jpg" />
+  <img src="Z:/picture/008/save_picture_713078.jpg" />
 </div>
 
 
@@ -422,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712826.jpg" />
+  <img src="Z:/picture/008/save_picture_712826.jpg" />
 </div>
 
 
@@ -448,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712498.jpg" />
+  <img src="Z:/picture/008/save_picture_712498.jpg" />
 </div>
 
 
@@ -474,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711461.jpg" />
+  <img src="Z:/picture/008/save_picture_711461.jpg" />
 </div>
 
 
@@ -500,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711310.jpg" />
+  <img src="Z:/picture/008/save_picture_711310.jpg" />
 </div>
 
 
@@ -526,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709323.jpg" />
+  <img src="Z:/picture/008/save_picture_709323.jpg" />
 </div>
 
 
@@ -552,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708959.jpg" />
+  <img src="Z:/picture/008/save_picture_708959.jpg" />
 </div>
 
 
@@ -578,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708012.jpg" />
+  <img src="Z:/picture/008/save_picture_708012.jpg" />
 </div>
 
 
@@ -589,85 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B523E0C5B1B23B9EE5CDD23AA82C5A752AA482BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217938   (708001) от 17.04.2018
-
-Барабаны долины Махонке / Drums Along the Mohawk (1939) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Время войны за независимость между Англией и американскими колониями. Флаг Соединенных Штатов был усыпан всего лишь 13-ю звездочками. Молодожены Джил и Лана отправляются в приграничный район Долины Махонке перед самым началом революции и войны.
-Переход от обеспеченной, привилегированной жизни к приграничной потребовал от них недюжинной силы и твердости характера. (   Читать дальше...   )Производство: США / 20th Century Fox Film CorporationЖанр: Драма, Мелодрама, Вестерн, ВоенныйРежиссер: Джон ФордАктеры: Клодетт Кольбер, Генри Фонда, Эдна Мэй Оливер, Эдди Коллинз, Джон Кэрредин, Доррис Баудон, Джесси Ральф, Артур Шилдс, Роберт Лоури, Роджер ИмхофПеревод: Двуголосый закадровый (РенТВ)Субтитры: ОтсутствуютПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8BB7E90750E5309903F778D4343497F3A2C725
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022542   (707727) от 13.06.2016
-
-Большая саранча / La grande sauterelle (1967) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спасаясь от киллера, Карл оказывается в Бейруте. Здесь он встречает своего старого приятеля и они вместе готовят очередное ограбление. Но случайно оказавшаяся на пути легкомысленная девица по прозвищу «Длинноногий кузнечик» рушит все планы…Производство: Франция, Германия (ФРГ), Италия / Eichberg-Film GmbH, Franca Film, Socit Nouvelle des tablissements Gaumont (SNEG)Жанр: Драма, Криминал, МелодрамаРежиссер: Жорж ЛотнерАктеры: Мирей Дарк, Харди Крюгер, Жорж Жере, Венантино Венантини, Пепе Апе, Пьер Массими, Марго Троогер, Мино Доро, Морис Биро, Франсис БланшПеревод: Одноголосый закадровый (binjak)Язык субтитров: Русский, французский, английскийПродолжительность: 01:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638D2C56534EE009D420F93E1F6179F2313FF0A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846325   (707508) от 13.06.2016
-
-Удар головой / Coup de tete (1978) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707508.jpg" />
-</div>
-
-
-###  Подробнее
-
-История злоключений Франсуа Перрена, бывшего футболиста, любовные похождения которого обернулись для него тюрьмой. Пройдя через множество недоразумений, Франсуа выручает свою команду и становится героем.Производство: Франция, Gaumont, Societe Francaise de Production (SFP)Жанр: Драма, Комедия, СпортРежиссер: Жан-Жак АнноАктеры: Патрик Деваэр, Френс Дуньяк, Дороти Джемма, Морис Барье, Робер Дальбан,Марио Давид, Юбер Дешам, Дора Долл, Франсуа Дирек, Патрик Флёрем, Мишель Фортен, Жак Франц, Коринн Маршан, Поль Ле Персон, Жан БуизПеревод: Многоголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A0DF57041B8207A3B1B2EA4B6183C558813E53D
 ```
 
 https://mybot314.ru/tekegram_catalog/

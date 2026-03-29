@@ -1,3 +1,166 @@
+###  Публикация: 948083   (411790) от 20.10.2015
+
+Футбол. Чемпионат Германии 2015-16. Bundes Liga. 9 тур. Вердер – Бавария (2015) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Германии 2015-16 Bundes Liga, 9 тур. Вердер – Бавария.Телекомпания: Eurosport 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:58:56 + 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E45AF48E8223BCAD73AF330352E7CAC08A73B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948619   (411615) от 20.10.2015
+
+Время покажет с Петром Толстым (20.10.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разные стороны нашей жизни за последние 20 лет превратились в способы извлечения доходов. Очень часто люди в погоне за прибылью забывают о том, чем они занимаются. В студии программы "Время покажет" обсуждают этическую сторону ритуальных услуг. Инновационные гробы, трендовые лебеди на венках…Этично ли на смерти человека делать бизнес?
+Во второй части программы (   Читать дальше...   )Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B141A588E682964FE004EB2076EEFC17E0DE5BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948683   (411611) от 20.10.2015
+
+Структура Момента (20.10.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ужесточается миграционный кризис в Европе. Все труднее удерживать огромный поток беженцев, появились разговоры о необходимости закрытия границ. На этом фоне в странах Европы все больший вес набирает правая и даже крайне правая политическая риторика. В Швейцарии на парламентских выборах победила правоконсервативная Швейцарская народная партия. В Германии за последнее (   Читать дальше...   )Телекомпания: Первый каналЖанр: Информационно-аналитическая программа, политикаПродолжительность: 01:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:654F52CC12308A66983FAF2CE11C8B35AB739458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948422   (411610) от 20.10.2015
+
+Специальный репортаж. Грузинская мечта (2015.10.19) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чем живёт сегодня Грузия, как сочетаются в ней традиции и современные реалии? К чему привели попытки сближения с Западом, и каковы шансы на улучшение российско-грузинских отношений? Об этом и не только смотрите в очередном выпуске программы "Специальный репортаж "Событий".Телекомпания: ТВЦЖанр: ДокументальныйРежиссер: Дарья ДытынкоПродолжительность: ~ 00:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB39C52A9EC7C320D9CCBE9546963815DB91AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252157   (411314) от 04.10.2018
+
+Футбол. Лига Чемпионов УЕФА 2018-2019. Группа H. 2-й тур. Манчестер Юнайтед (Англия) — Валенсия (Испания) (02.10.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411314.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 октября 2018 года, вторник. 22:00 МСК
+Лига Чемпионов УЕФА 2018-2019.
+Группа H. 2-й тур.
+Манчестер Юнайтед (Манчестер, Англия) — Валенсия (Валенсия, Испания)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5773ED1377C125DC2DE09BB43C332C9FA5BC55E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252153   (411159) от 04.10.2018
+
+Футбол. Лига Чемпионов УЕФА 2018-2019. Группа G. 2-й тур. ЦСКА (Россия) — Реал Мадрид (Испания) (02.10.2018) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411159.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 октября 2018 года, вторник. 22:00 МСК
+Лига Чемпионов УЕФА 2018-2019.
+Группа G. 2-й тур.
+ЦСКА (Москва, Россия) — Реал (Мадрид, Испания)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22469D2F2E8D3B9123829CD9C9B0F86278EF1F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252064   (411156) от 04.10.2018
 
 Футбол. Лига Чемпионов УЕФА 2018-2019. Группа E. 2-й тур. АЕК Афины (Греция) — Бенфика (Португалия) (02.10.2018) WEB-DL [H.264/720p-LQ]
@@ -6,7 +169,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411156.jpg" />
+  <img src="Z:/picture/008/save_picture_411156.jpg" />
 </div>
 
 
@@ -35,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410991.jpg" />
+  <img src="Z:/picture/008/save_picture_410991.jpg" />
 </div>
 
 
@@ -64,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410966.jpg" />
+  <img src="Z:/picture/008/save_picture_410966.jpg" />
 </div>
 
 
@@ -93,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410836.jpg" />
+  <img src="Z:/picture/008/save_picture_410836.jpg" />
 </div>
 
 
@@ -122,7 +285,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410472.jpg" />
+  <img src="Z:/picture/008/save_picture_410472.jpg" />
 </div>
 
 
@@ -149,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410435.jpg" />
+  <img src="Z:/picture/008/save_picture_410435.jpg" />
 </div>
 
 
@@ -181,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410286.jpg" />
+  <img src="Z:/picture/008/save_picture_410286.jpg" />
 </div>
 
 
@@ -210,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410284.jpg" />
+  <img src="Z:/picture/008/save_picture_410284.jpg" />
 </div>
 
 
@@ -239,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410279.jpg" />
+  <img src="Z:/picture/008/save_picture_410279.jpg" />
 </div>
 
 
@@ -266,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410277.jpg" />
+  <img src="Z:/picture/008/save_picture_410277.jpg" />
 </div>
 
 
@@ -295,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410275.jpg" />
+  <img src="Z:/picture/008/save_picture_410275.jpg" />
 </div>
 
 
@@ -324,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410273.jpg" />
+  <img src="Z:/picture/008/save_picture_410273.jpg" />
 </div>
 
 
@@ -353,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410001.jpg" />
+  <img src="Z:/picture/008/save_picture_410001.jpg" />
 </div>
 
 
@@ -382,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409998.jpg" />
+  <img src="Z:/picture/008/save_picture_409998.jpg" />
 </div>
 
 
@@ -411,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409997.jpg" />
+  <img src="Z:/picture/008/save_picture_409997.jpg" />
 </div>
 
 
@@ -440,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409996.jpg" />
+  <img src="Z:/picture/008/save_picture_409996.jpg" />
 </div>
 
 
@@ -469,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409863.jpg" />
+  <img src="Z:/picture/008/save_picture_409863.jpg" />
 </div>
 
 
@@ -498,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409857.jpg" />
+  <img src="Z:/picture/008/save_picture_409857.jpg" />
 </div>
 
 
@@ -527,7 +690,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409821.jpg" />
+  <img src="Z:/picture/008/save_picture_409821.jpg" />
 </div>
 
 
@@ -553,7 +716,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409817.jpg" />
+  <img src="Z:/picture/008/save_picture_409817.jpg" />
 </div>
 
 
@@ -564,165 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8E49AD3643F7589CA3AA64CAEDEC525D15674EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948721   (409814) от 21.10.2015
-
-Обзор. Чемпионат Англии 2015-16. 9 тур. Обзор тура (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор Чемпионата Англии 2015-2016 года.Телекомпания: НТВ+ Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C3CD16F12AB3230BB0EE4BA29F133316FA9CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948857   (409806) от 21.10.2015
-
-Футбол. Лига Чемпионов 2015-16. Группа G. 3 тур. Динамо Киев (Украина) - Челси (Англия) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Групповой этап Лиги Чемпионов Группа G. 3 тур. Динамо Киев (Украина) - Челси (Англия).Телекомпания: НТВ+, Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:00:37 + 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6649671B464B0DC1E706A5E5AC8823101189C0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946954   (409796) от 21.10.2015
-
-Хоккей. НХЛ Сезон 2015-16. Монреаль Канадиенс - Питтсбург Пингвинз(13.10.2015) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Матч регулярного чемпионата NHL сезон 2015-16 (Montreal Canadiens vs. Pittsburgh Penguins) (эфир от 13.10.2015)Телекомпания: ROOT SportsЖанр: СпортПеревод: Двухголосный любительский (А. Жидков, А. Еремиев)Продолжительность: 01:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CFE078E2910A14F1576588D872671220DA69E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413249   (409663) от 03.10.2020
-
-Футбол. Английская Премьер-лига. Чемпионат Англии 2020-2021. 2-й тур. Челси — Ливерпуль (2020) IPTV [H.264/1080p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Английская Премьер-лига. Чемпионат Англии 2020-2021
-20 сентября 2020, воскресенье. 18:30 МСК
-2-й тур
-Челси — Ливерпуль(   Читать дальше...   )Телекомпания: Okko СпортЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 03:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2A5B84BA6A4F68EBB6B885251704072E1EFD32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948846   (409655) от 21.10.2015
-
-Футбол. Лига Чемпионов 2015-16. Группа E. 3 тур. БАТЭ (Беларусь) - Барселона (Испания) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Групповой этап Лиги Чемпионов Группа E. 3 тур. БАТЭ (Беларусь) - Барселона (Испания).Телекомпания: НТВ+, Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46ECC6369CDC2CB085A8915C1B8672342008D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948843   (409653) от 21.10.2015
-
-Футбол. Лига Чемпионов 2015-16. Группа F. 3 тур. Арсенал (Англия) - Бавария (Германия) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Групповой этап Лиги Чемпионов Группа F. 3 тур. Арсенал (Англия) - Бавария (Германия).Телекомпания: НТВ+, Футбол 3 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:54:14 + 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF7B23A00CE66B88FD64E845556D8AFCBAFCC399
 ```
 
 https://mybot314.ru/tekegram_catalog/

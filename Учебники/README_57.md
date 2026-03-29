@@ -1,3 +1,59 @@
+###  Публикация: 934517   (500301) от 07.09.2015
+
+М.В. Немцов | Электротехника [2 книги] (2014) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник создан в соответствии с Федеральным государственным образовательным стандартом по направлению подготовки «Электротехника» (квалификация «бакалавр»).
+Учебник состоит из двух книг. В книге 1 изложены основы теории электрических и магнитных цепей. Дано описание устройств и рабочих свойств трансформаторов. В книге 2 приведены положения основ промышленной электроники, (   Читать дальше...   )Жанр: ЭлектротехникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F286936AE8AEC82DFCF3BA75647E5DE5B4CE937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934293   (500067) от 07.09.2015
+
+МГТУ им. Н. Э. Баумана | Физика в техническом университете [6 книг] (2006-2007) [CHM]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_500067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс для системы открытого образования создан на основе курса лекций, читаемого в течение трех семестров студентам 1 и 2 курсов МГТУ им. Н. Э. Баумана. Программа соответствует требованиям, предъявляемым к курсу физики в техническом университете и ее объем - 390 часов.
+В серию входят следующие учебники:
+1. Физические основы механики (А. М. Афонин)
+2. Физическая термодинамика (   Читать дальше...   )Жанр: ФизикаФормат: CHM
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87D6B0E61A13677CB00FCC5B6262A87968FE7E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934750   (499399) от 08.09.2015
 
 А.В. Леньшин | Бортовые системы и комплексы радиоэлектронного подавления (2014) [DJVU]
@@ -6,7 +62,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499399.jpg" />
+  <img src="Z:/picture/008/save_picture_499399.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499340.jpg" />
+  <img src="Z:/picture/008/save_picture_499340.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499239.jpg" />
+  <img src="Z:/picture/008/save_picture_499239.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498502.jpg" />
+  <img src="Z:/picture/008/save_picture_498502.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498341.jpg" />
+  <img src="Z:/picture/008/save_picture_498341.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497986.jpg" />
+  <img src="Z:/picture/008/save_picture_497986.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497564.jpg" />
+  <img src="Z:/picture/008/save_picture_497564.jpg" />
 </div>
 
 
@@ -191,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497251.jpg" />
+  <img src="Z:/picture/008/save_picture_497251.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497077.jpg" />
+  <img src="Z:/picture/008/save_picture_497077.jpg" />
 </div>
 
 
@@ -245,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497069.jpg" />
+  <img src="Z:/picture/008/save_picture_497069.jpg" />
 </div>
 
 
@@ -272,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496706.jpg" />
+  <img src="Z:/picture/008/save_picture_496706.jpg" />
 </div>
 
 
@@ -298,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496410.jpg" />
+  <img src="Z:/picture/008/save_picture_496410.jpg" />
 </div>
 
 
@@ -324,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496259.jpg" />
+  <img src="Z:/picture/008/save_picture_496259.jpg" />
 </div>
 
 
@@ -351,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495894.jpg" />
+  <img src="Z:/picture/008/save_picture_495894.jpg" />
 </div>
 
 
@@ -377,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495799.jpg" />
+  <img src="Z:/picture/008/save_picture_495799.jpg" />
 </div>
 
 
@@ -404,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495117.jpg" />
+  <img src="Z:/picture/008/save_picture_495117.jpg" />
 </div>
 
 
@@ -431,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493850.jpg" />
+  <img src="Z:/picture/008/save_picture_493850.jpg" />
 </div>
 
 
@@ -457,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493841.jpg" />
+  <img src="Z:/picture/008/save_picture_493841.jpg" />
 </div>
 
 
@@ -484,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493822.jpg" />
+  <img src="Z:/picture/008/save_picture_493822.jpg" />
 </div>
 
 
@@ -510,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493423.jpg" />
+  <img src="Z:/picture/008/save_picture_493423.jpg" />
 </div>
 
 
@@ -536,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493160.jpg" />
+  <img src="Z:/picture/008/save_picture_493160.jpg" />
 </div>
 
 
@@ -563,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493080.jpg" />
+  <img src="Z:/picture/008/save_picture_493080.jpg" />
 </div>
 
 
@@ -589,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492308.jpg" />
+  <img src="Z:/picture/008/save_picture_492308.jpg" />
 </div>
 
 
@@ -615,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492306.jpg" />
+  <img src="Z:/picture/008/save_picture_492306.jpg" />
 </div>
 
 
@@ -627,58 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B223595170FC812E114C8D4846E333F60F173993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565512   (492198) от 24.07.2022
-
-В.В. Свиридов, А.В. Свиридов | Физическая химия (2022) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие полностью соответствует требованиям Федерального государственного стандарта. Оно включает в себя следующие разделы: строение вещества; химическая термодинамика; термодинамическое описание реальных газовых и жидких систем; фазовые превращения и равновесия; электрохимические процессы и равновесия; кинетика и катализ химических реакций. Учебное пособие (   Читать дальше...   )Жанр: ХимияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AAB7A1D3784593DECA832B3F136347A25F5478
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935599   (492011) от 13.09.2015
-
-И.Н. Кузнецов | Рефераты, курсовые и дипломные работы. Методика подготовки и оформления (2012) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492011.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пособии представлена информация, необходимая студенту для выполнения рефератов, курсовых и дипломных работ. Рассмотрен весь процесс подготовки учебных научных работ - от выбора темы до ее защиты. Также в пособии содержатся рекомендации по оформлению всех видов работ в соответствии с требованиями межгосударственного стандарта ГОСТ 7.1-2003. Изложены проблемы, возникающие (   Читать дальше...   )Жанр: Учебная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12C7002D6FBA5E64DFA40FA9D45BD0B36E31437
 ```
 
 https://mybot314.ru/tekegram_catalog/

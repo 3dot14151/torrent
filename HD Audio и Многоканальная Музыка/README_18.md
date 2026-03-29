@@ -1,3 +1,230 @@
+###  Публикация: 1522078   (759783) от 06.01.2022
+
+VA - The Absolute Sound (2017) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Por Una Cabeza (03:27) - Semmy Stahlhammer
+02. Mozart: Le Nozze Di Figaro - Voi Che Sapete (02:57) - Elisabeth Schwarzkopf
+03. Feet Of A Dancer (04:22) - Charlie McGettigan
+04. Amico Mio (04:27) - Sara Indrio(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:58:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41DC17063CE65A38AA207995FF4729EAD837E8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522392   (758525) от 07.01.2022
+
+Александр Розенбаум - Нарисуйте Мне Дом... (1987) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Chanson, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_758525.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Нарисуйте Мне Дом
+А2 Вот Опять Захандрила Дождями Природа
+А3 Дорога На Ваганьково
+А4 Вальс На Лебяжьей Канавке(   Читать дальше...   )Жанр: Chanson, VocalПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7395FFA3B85F4B35EF0A61B6A5B9978631B551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319910   (758235) от 07.01.2022
+
+Mireille Mathieu - Sentimentalement Votre (1977) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop> [обновлен]
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_758235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Silence
+02. Sagapo
+03. Un Oiseau Chante
+04. Amour Defendu(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C42F267380B8FC28765CCAB02736717348C0426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 204208   (757696) от 28.05.2010
+
+Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless]<Alternative Rock, Britpop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_757696.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Electro-Rock, New Wave, SynthpopПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018245   (757465) от 19.05.2016
+
+Mando Diao - Aelita (2014) [LPCM 2.0 96/24|DTS 5.1 96/24|Audio-DVD5|BD-Audio] <Electronic, Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_757465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Saturday 03:22
+02. Rooftop 04:57
+03. Money Doesn't Make You A Man 05:06
+04. Sweet Wet Dreams 04:41(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1C38E4E59F242F14A156FC0D194763CD734471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522655   (756639) от 08.01.2022
+
+Queen Of The Damned OST (2002) hand made [restored, declipped][FLAC 2.0|Lossless|44/16|tracks + .cue] <Stage & Screen, Nu Metal, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный саундтрек к фильму Queen Of The DamnedCD1 - Queen Of The Damned (original score by Richard Gibbs)
+CD2 - Queen Of The Damned (songs by Jonathan Davis)Жанр: Stage & Screen, Nu Metal, Alternative RockПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA11032AC2BC113E20A228B5C04D805E31CA55F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089641   (756572) от 05.02.2019
+
+Metallica - Master Of Puppets (1986) [WavPack 2.0|192/32|image + .cue|Vinil-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_756572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Battery 5:14
+02 Master Of Puppets 8:34
+03 The Thing That Should Not Be 6:36
+04 Welcome Home (Sanitarium) 6:30(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D29BC2D7BE47F2CAF87841F007B6A668FA38004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395360   (755577) от 10.07.2020
+
+Fish - Something In The Air (1992) 45 RPM, Single [FLAC|Lossless|tracks] <Prog Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_755577.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Something In The Air (Teddy Bear Mix)
+(John Keene)
+B1 Something In The Air (Album Mix)
+(John Keene)(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F438428D44C3DCE881E4A56F966E3AA90ABFDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522966   (754943) от 09.01.2022
 
 Aaron Neville - Devotion (2000) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] <Funk/Soul, Pop>
@@ -6,7 +233,7 @@ Aaron Neville - Devotion (2000) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754943.jpg" />
+  <img src="Z:/picture/008/save_picture_754943.jpg" />
 </div>
 
 
@@ -35,7 +262,7 @@ Deep Purple - Turning To Crime (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754827.jpg" />
+  <img src="Z:/picture/008/save_picture_754827.jpg" />
 </div>
 
 
@@ -64,7 +291,7 @@ Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [FLAC 2.0 24/192|traks(Vini
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754029.jpg" />
+  <img src="Z:/picture/008/save_picture_754029.jpg" />
 </div>
 
 
@@ -99,7 +326,7 @@ VA - The Absolute Sound (2016) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical, Fol
 >>SACD-R
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752920.jpg" />
+  <img src="Z:/picture/008/save_picture_752920.jpg" />
 </div>
 
 
@@ -128,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750797.jpg" />
+  <img src="Z:/picture/008/save_picture_750797.jpg" />
 </div>
 
 
@@ -163,7 +390,7 @@ Ozzy Osbourne - Diary Of A Madman (1981) AnTrop Unofficial Release, 1993 [FLAC 2
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749948.jpg" />
+  <img src="Z:/picture/008/save_picture_749948.jpg" />
 </div>
 
 
@@ -192,7 +419,7 @@ Toto - Stranger In Town (Dance Mix) (1984) 12", 45 RPM, Single [FLAC 2.0|192/24|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748532.jpg" />
+  <img src="Z:/picture/008/save_picture_748532.jpg" />
 </div>
 
 
@@ -221,7 +448,7 @@ Toto - Fahrenheit (1987) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748525.jpg" />
+  <img src="Z:/picture/008/save_picture_748525.jpg" />
 </div>
 
 
@@ -250,7 +477,7 @@ Various Artists – Best of Super Audio CD (2002) [DTS 5.1 44.1 /16 | .wav+.cue 
 >>DTS-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747312.jpg" />
+  <img src="Z:/picture/008/save_picture_747312.jpg" />
 </div>
 
 
@@ -280,7 +507,7 @@ Billie Holiday - Billie Holiday (1975) Mono [FLAC 1.0|96/24|image +.cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746922.jpg" />
+  <img src="Z:/picture/008/save_picture_746922.jpg" />
 </div>
 
 
@@ -309,7 +536,7 @@ Lift - Lift (1977) Russian text on labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746920.jpg" />
+  <img src="Z:/picture/008/save_picture_746920.jpg" />
 </div>
 
 
@@ -338,7 +565,7 @@ The Beatles - 1962-1966 (1973) Red Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746507.jpg" />
+  <img src="Z:/picture/008/save_picture_746507.jpg" />
 </div>
 
 
@@ -367,7 +594,7 @@ The Beatles - 1967-1970 (1973) Blue Album [FLAC 2.0|192/24|image +.cue|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746374.jpg" />
+  <img src="Z:/picture/008/save_picture_746374.jpg" />
 </div>
 
 
@@ -396,7 +623,7 @@ Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternat
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745721.jpg" />
+  <img src="Z:/picture/008/save_picture_745721.jpg" />
 </div>
 
 
@@ -422,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743906.jpg" />
+  <img src="Z:/picture/008/save_picture_743906.jpg" />
 </div>
 
 
@@ -457,7 +684,7 @@ Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743627.jpg" />
+  <img src="Z:/picture/008/save_picture_743627.jpg" />
 </div>
 
 
@@ -486,7 +713,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743124.jpg" />
+  <img src="Z:/picture/008/save_picture_743124.jpg" />
 </div>
 
 
@@ -515,7 +742,7 @@ Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742980.jpg" />
+  <img src="Z:/picture/008/save_picture_742980.jpg" />
 </div>
 
 
@@ -529,235 +756,6 @@ Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524431   (741879) от 17.01.2022
-
-Комиссар - Наше Время Пришло (1991) Питон, со вставками Звук [DSD2.0|11,28MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco, Dance, Techno>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741879.jpg" />
-</div>
-
-
-###  Подробнее
-
-[0:35] 01. Студия ПИТОН представляет!
-[5:05] 02. Ты уйдешь
-[3:51] 03. Наше время пришло
-[4:56] 04. Всё изменится(   Читать дальше...   )Жанр: Pop, Disco, Dance, TechnoПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9152FEA6FA7194A80CEAA962B55981D0CC2995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665781   (741424) от 08.06.2013
-
-Slayer - 13 альбомов (1983-2009) 14LP [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slayer — американская метал-группа. Коллектив был основан в 1981 году гитаристами Джеффом Ханнеманом и Керри Кингом в Хаунтингтон Парк, Калифорния. Slayer возглавила музыкальное движение американского трэш-метала после выпуска своего альбома Reign in Blood (1986), который считается лучшим достижением группы и «классикой трэш-метала». Вместе с группами Metallica, (   Читать дальше...   )1. Procession
-2. Sacrifice
-3. Made In Belfast
-4. Warriors Of The Road(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DD796BA825238F446AACC471E3AC304C20DB4E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397404   (740451) от 20.07.2020
-
-VA - Пулсиращи Ноти 3 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740451.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ryan Simmons - Lucky Guy
-A2 Commodores - Nighshift
-A3 Bachman-Turner Overdrive - My Sugaree
-A4 Vegvari Adam, Csepregi Eva - Elso Szerelem(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EFA58768DB0371AAB8611CE71AAF0E67C9359E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397417   (740426) от 20.07.2020
-
-Sky - Masterpieces - The Very Best Of Sky (1984) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Prog Rock, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740426.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Toccata
-A2 Westway
-A3 Fool On The Hill
-A4 Gymnopodie No. 1(   Читать дальше...   )Жанр: Prog Rock, InstrumentalПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566A2DD5A1B85B65F78EE5739A9AA3A81A0E131C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217800   (740002) от 07.04.2018
-
-Жанна Бичевская - Коллекция Винила (1974 - 1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Acoustic, Folk, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acoustic, Folk, BalladПродолжительность: 04:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3DE9AF6A14160BE9E85CA2524BA4935871E3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283387   (739660) от 17.02.2019
-
-B.B. King - Live At San Quentin (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739660.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Introduction By Warden Daniel Vasquez
-A2 B.B. King Intro
-A3 Let The Good Times Roll
-A4 Every Day I Have The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C83FEE1D77283C4544C18EAB51B708F7153E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283365   (739595) от 17.02.2019
-
-Raffaella Carra - Collections (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A far l'amore comincia tu
-02. Felicita Ta Ta
-03. En El Amor Todo Es Empezar (A far l'amore comincia tu/Spanish version)
-04. Million Dollars(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC388BFC1759A326CB1C356478C811ED36EA035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842948   (738705) от 23.01.2022
-
-James Last - Trumpet A Go Go (1966) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 American Patrol
-A2 Wheels
-A3 Granada(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E31FDA0E4EBBEC3AD7FBBECE8CA26784DA9FC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

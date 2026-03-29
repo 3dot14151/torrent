@@ -1,3 +1,35 @@
+###  Публикация: 568464   (975782) от 09.02.2013
+
+Deadlight [Ru/En/Multi6] (Repack/1.0.9249.u.1) 2012 | R.G. Origami
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра Deadlight, — это альтернативный 1986-й, когда мир столкнулся с новой апокалиптической угрозой — загадочной вирусной инфекцией, обращающей людей в «тени», или попросту в зомби. При этом, в отличие от подавляющего большинства подобных проектов, Deadlight, вы не поверите, — пазл-платформер. То есть придётся не столько стрелять, сколько думать.
+
+«1986-й выбран не случайно, — поясняет исполнительный директор студии Рауль Рубио (Raul Rubio). — Это время запомнилось активным освоением космоса и выходом таких фильмов, как Rambo: First Blood и Day of the Dead. Смешайте всё это — и получите уникальную визуальную стилистику».
+
+Перемещаясь по полумёртвому северо-западному побережью Британской Колумбии (Канада) и США, Рэндэлл Уэйн будет искать оружие и других выживших. «Вам не нужно биться за правду или спасать мир, — продолжает г-н Рубио. — Это история Рэндэлла, его проблем, чувств и желаний». Сценарий написан испанским драматургом Антонио Роджано (Antonio Rojano), который вдохновлялся произведениями Стивена Кинга, Джеймса Балларда и Кормака Маккарти.
+
+«Вы поймёте, что в этом мире даже простое действие вроде перехода улицы становится невероятно сложным и опасным», — продолжают девелоперы. Обещана достоверная физическая модель, на которой и будут базироваться головоломки. Созданием «альтернативного мира паранойи и хаоса» занимается команда из 22 человек, прежде работавших в таких компаниях, как Blizzard, Pyro Studios, Sony..(   Читать дальше...   )Тип издания: RepackРазработчик: Tequila WorksЖанр: Arcade (Platform) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский, Испанский, Итальянский, Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE10931CDE8EDB635E8C54C1D60E5E2FF6DCD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357019   (975100) от 02.02.2020
 
 Black Future '88 (2019) [Ru/Multi] (0.45.2) Repack Other s
@@ -6,7 +38,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_975100.jpg" />
 </div>
 
 
@@ -32,7 +64,7 @@ Black Future '88 (2019) [Ru/Multi] (0.45.2) License PLAZA [Collector's Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973999.jpg" />
 </div>
 
 
@@ -58,7 +90,7 @@ Assassin's Creed Chronicles: India / Assassin's Creed Chronicles: Индия (20
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972808.jpg" />
 </div>
 
 
@@ -84,7 +116,7 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972803.jpg" />
 </div>
 
 
@@ -110,7 +142,7 @@ Sonic Lost World (2015) [En] (2.0.0/upd1/dlc) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_972800.jpg" />
 </div>
 
 
@@ -136,7 +168,7 @@ Goat Simulator (2014) [Ru/Multi] (1.4.52198/dlc) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971582.jpg" />
 </div>
 
 
@@ -162,7 +194,7 @@ The Escapists: The Walking Dead (2015) [Ru/Multi] (Build 263) Repack R.G. Мех
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971564.jpg" />
 </div>
 
 
@@ -188,7 +220,7 @@ Indivisible (2019) [Ru/Multi] (40093/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970450.jpg" />
 </div>
 
 
@@ -214,7 +246,7 @@ The Wild Age (2020) [Ru/Multi] (1.02.001) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969294.jpg" />
 </div>
 
 
@@ -240,7 +272,7 @@ Macrotis: A Mother's Journey (2019) [Ru/Multi] (1.3.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968334.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968334.jpg" />
 </div>
 
 
@@ -266,7 +298,7 @@ Guns n Zombies (2014) [Ru/Multi] (1.7/dlc) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965252.jpg" />
 </div>
 
 
@@ -292,7 +324,7 @@ Darkout [En] (L/1.0.2) 2013 | FANiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964849.jpg" />
 </div>
 
 
@@ -318,7 +350,7 @@ The Binding of Isaac: Rebirth (2014) [En] (1.06.0109) SteamRip Let'sРlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964281.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964281.jpg" />
 </div>
 
 
@@ -344,7 +376,7 @@ Generation Streets (2020) [Ru/En] (1.0) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_963873.jpg" />
 </div>
 
 
@@ -370,7 +402,7 @@ Assassin’s Creed Chronicles: India / Assassin's Creed Chronicles: Индия (
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961825.jpg" />
 </div>
 
 
@@ -396,7 +428,7 @@ Florence (2020) [Ru/Multi] (1.0.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959069.jpg" />
 </div>
 
 
@@ -422,7 +454,7 @@ Zombie Driver HD [En/Multi6] (Steam-Rip/1.4.23-20983/DLC) 2012 | R.G. Игром
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958422.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958422.jpg" />
 </div>
 
 
@@ -450,7 +482,7 @@ Crystal Caves (1991) [En] (1.0.0.28043) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956612.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_956612.jpg" />
 </div>
 
 
@@ -476,7 +508,7 @@ Deadlight [En/Ru] (RePack/1.0.9249.0) 2012 | R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954691.jpg" />
 </div>
 
 
@@ -508,7 +540,7 @@ Highly Likely (2020) [Ru/En] (1.0/upd1) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953684.jpg" />
 </div>
 
 
@@ -534,7 +566,7 @@ Space Robinson: Hardcore Roguelike Action (2019) [Ru/Multi] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952020.jpg" />
 </div>
 
 
@@ -560,7 +592,7 @@ Deathtrap (2015) [Ru/Multi] (1.0.6) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951981.jpg" />
 </div>
 
 
@@ -586,7 +618,7 @@ Hypersensitive Bob (2016) [En] (1291928) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951704.jpg" />
 </div>
 
 
@@ -612,7 +644,7 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) SteamRip Let'sPlay
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951661.jpg" />
 </div>
 
 
@@ -638,7 +670,7 @@ The Binding of Isaac: Afterbirth+ (2017) [En] (1.0/dlc) License TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949918.jpg" />
 </div>
 
 
@@ -649,32 +681,6 @@ The Binding of Isaac: Afterbirth — это аддон культового ин
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B0F99DB43C79C4FB25B41F5B289AF479EB0114E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090027   (948395) от 05.01.2017
-
-Sayaka (2017) [En] (1.0) License HI2U
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саяка является одной из лучших профессиональных убийц в Китае. Она родилась в Японии и училась искусству ниндзюцу у своего наставника Хаттори Мусаси. Когда ей было 15 лет вся ее семья была убита членами Якудзы после того, как её отец отказался сотрудничать с ними. К счастью, Саяка в тот момент была далеко от того места где произошел кровавый инцидент. После произошедшей (   Читать дальше...   )Тип издания: LicenseРазработчик: RyuVsCloudЖанр: Action, ArcadeЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D515B1E838F24FC1F220DEE2075DB56C3878E5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ doPDF 11.3.236 Free [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789313.jpg" />
+  <img src="Z:/picture/008/save_picture_789313.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ BlueStacks App Player 4.40.0.1109 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789263.jpg" />
+  <img src="Z:/picture/008/save_picture_789263.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789260.jpg" />
+  <img src="Z:/picture/008/save_picture_789260.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789257.jpg" />
+  <img src="Z:/picture/008/save_picture_789257.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ CrystalDiskInfo 8.12.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789240.jpg" />
+  <img src="Z:/picture/008/save_picture_789240.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ reaConverter Pro 7.686 (Repack & Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789239.jpg" />
+  <img src="Z:/picture/008/save_picture_789239.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Microsoft Edge 96.0.1054.29 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789234.jpg" />
+  <img src="Z:/picture/008/save_picture_789234.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Windows 10 x64 DVD Project Release by StartSoft 01-03 2019 Lite [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789228.jpg" />
+  <img src="Z:/picture/008/save_picture_789228.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ CrystalDiskInfo 8.12.13 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789200.jpg" />
+  <img src="Z:/picture/008/save_picture_789200.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Uranium Backup 9.6.7.7211 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789188.jpg" />
+  <img src="Z:/picture/008/save_picture_789188.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Windows 11 Manager 1.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789181.jpg" />
+  <img src="Z:/picture/008/save_picture_789181.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_789172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_789172.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Amesha Spenta - Amesha Spenta (2011) audiotrauma [FLAC|Lossless|WEB-DL|tracks] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789122.jpg" />
+  <img src="Z:/picture/008/save_picture_789122.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ James Murray - Killing Ghosts (2017) Home Normal [FLAC|Lossless|tracks+.cue] <Am
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789121.jpg" />
+  <img src="Z:/picture/008/save_picture_789121.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Jeroen van Rooij - Building Memories (2015) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789119.jpg" />
+  <img src="Z:/picture/008/save_picture_789119.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789118.jpg" />
+  <img src="Z:/picture/008/save_picture_789118.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Fonica - Ripple (2003) Tomlab [FLAC|Lossless|tracks+.cue] <Abstract, Leftfield, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789117.jpg" />
+  <img src="Z:/picture/008/save_picture_789117.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Endurance - Echoic Architecture (2017) Polar Seas Recordings [FLAC|Lossless|WEB-
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789116.jpg" />
+  <img src="Z:/picture/008/save_picture_789116.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789113.jpg" />
+  <img src="Z:/picture/008/save_picture_789113.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Marcus Fischer - Loss (2017) 12k [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789112.jpg" />
+  <img src="Z:/picture/008/save_picture_789112.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Markus Guentner - Doppelgaenger (2009) Sending Orbs [FLAC|Lossless|tracks+.cue] 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789108.jpg" />
+  <img src="Z:/picture/008/save_picture_789108.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Julien Neto - Le Fumeur De Ciel (2005) Type [FLAC|Lossless|tracks+.cue] <Ambient
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789107.jpg" />
+  <img src="Z:/picture/008/save_picture_789107.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Northaunt - Night Paths (2017) The Last Bleak Days Records [FLAC|Lossless|WEB-DL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789106.jpg" />
+  <img src="Z:/picture/008/save_picture_789106.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789102.jpg" />
+  <img src="Z:/picture/008/save_picture_789102.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789098.jpg" />
+  <img src="Z:/picture/008/save_picture_789098.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Kane Ikin - Sublunar (2012) 12k [FLAC|Lossless|tracks+.cue] <Ambient, Experiment
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789092.jpg" />
+  <img src="Z:/picture/008/save_picture_789092.jpg" />
 </div>
 
 

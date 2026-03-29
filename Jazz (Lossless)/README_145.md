@@ -1,3 +1,132 @@
+###  Публикация: 528482   (571577) от 29.07.2012
+
+Braff Oester Rohrer - The Tide Is In (2001) [FLAC|Lossless]<Bebop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_571577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of Wonderful Things
+02. Mc Braff
+03. Jone's Tones
+04. My Little Suede Shoes
+05. You Don't Know What Love Is
+06. New SongЖанр: BebopПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528489   (571292) от 29.07.2012
+
+Brecker Brothers - Out of the Loop (1994) [FLAC|Lossless]<Jazz-Funk, Jazz-Fusion, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_571292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slang
+02. Evocations
+03. Scrunch
+04. Secret Heart
+05. African Skies
+06. When It Was
+07. Harpoon
+08. The Nightwalker
+09. And Then She WeptЖанр: Jazz-Funk, Jazz-Fusion, Crossover JazzПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043578   (571187) от 17.08.2016
+
+Martin Lechner - Somethin' Old & Somethin' New, Somethin' Else! (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_571187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby Of Birdland
+02. Valerie
+03. The Masquerade Is Over
+04. Ready Or Not(   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A213AEDFF6579E70880A0DA5FCCD76C1636A8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528708   (571163) от 29.07.2012
+
+Brian Simpson - Above The Clouds (2007) [APE|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_571163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Cha Gonna Do?
+02. Juicy
+03. From the Hip
+04. Let's Get Close
+05. One More Time
+06. The Last Kiss
+07. Fiona's Song
+08. Bali Listen
+09. Above the Clouds
+10. Memories Of You(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234465   (571151) от 05.07.2018
 
 Jimmie Lunceford - 1940 - 1941 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -6,7 +135,7 @@ Jimmie Lunceford - 1940 - 1941 (1992) Classics [FLAC|Lossless|tracks + .cue] <Sw
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571151.jpg" />
+  <img src="Z:/picture/008/save_picture_571151.jpg" />
 </div>
 
 
@@ -35,7 +164,7 @@ Kenny Barron Quintet - Concentric Circles (2018) Blue Note [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571147.jpg" />
+  <img src="Z:/picture/008/save_picture_571147.jpg" />
 </div>
 
 
@@ -64,7 +193,7 @@ Take 6 - Iconic (2018) SoNo Recording Group [FLAC|Lossless|tracks + .cue] <Vocal
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570963.jpg" />
+  <img src="Z:/picture/008/save_picture_570963.jpg" />
 </div>
 
 
@@ -93,7 +222,7 @@ Michael Garrick Sextet - Promises (1965) 2008, Vocalion [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570834.jpg" />
+  <img src="Z:/picture/008/save_picture_570834.jpg" />
 </div>
 
 
@@ -122,7 +251,7 @@ The Gerry Mulligan Quartet - What Is There To Say (1959) Remaster, 2014, Sony Mu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570832.jpg" />
+  <img src="Z:/picture/008/save_picture_570832.jpg" />
 </div>
 
 
@@ -151,7 +280,7 @@ Cynthia Tauro - Moments (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570829.jpg" />
+  <img src="Z:/picture/008/save_picture_570829.jpg" />
 </div>
 
 
@@ -180,7 +309,7 @@ Jimmy Raney - Live In Tokyo (1976) 2016, Xanadu Master Edition [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570751.jpg" />
+  <img src="Z:/picture/008/save_picture_570751.jpg" />
 </div>
 
 
@@ -209,7 +338,7 @@ Herbie Hancock - Thrust (1974) 2016, Audio Fidelity [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570719.jpg" />
+  <img src="Z:/picture/008/save_picture_570719.jpg" />
 </div>
 
 
@@ -238,7 +367,7 @@ Shorty Rogers - The Fourth Dimension In Sound (1961) /2014, Warner/[FLAC|tracks+
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570046.jpg" />
+  <img src="Z:/picture/008/save_picture_570046.jpg" />
 </div>
 
 
@@ -267,7 +396,7 @@ Brad Leali - Claus Raible Quartet - D.A.'s Time (2007) [FLAC|Lossless]<Post-Bop,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569567.jpg" />
+  <img src="Z:/picture/008/save_picture_569567.jpg" />
 </div>
 
 
@@ -302,7 +431,7 @@ Jelly-Roll Morton - 1939 - 1940 (1992) Classics [FLAC|Lossless|tracks + .cue] <N
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569496.jpg" />
+  <img src="Z:/picture/008/save_picture_569496.jpg" />
 </div>
 
 
@@ -331,7 +460,7 @@ Boris Frumkin & Sergei Zhilin - Solo In Four Hands (2003) [FLAC|Lossless]<Smooth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569493.jpg" />
+  <img src="Z:/picture/008/save_picture_569493.jpg" />
 </div>
 
 
@@ -360,7 +489,7 @@ Jeremy Pelt - Jeremy Pelt The Artist (2019) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569429.jpg" />
+  <img src="Z:/picture/008/save_picture_569429.jpg" />
 </div>
 
 
@@ -389,7 +518,7 @@ Brad Rambur - Can't Put It Down (2010) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569370.jpg" />
+  <img src="Z:/picture/008/save_picture_569370.jpg" />
 </div>
 
 
@@ -424,7 +553,7 @@ Steve Gadd - Band (2018) BFM Jazz [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Cr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569324.jpg" />
+  <img src="Z:/picture/008/save_picture_569324.jpg" />
 </div>
 
 
@@ -453,7 +582,7 @@ Pepper Adams - Hollywood Quintet Sessions (1957) 2008, Fresh Sound Records[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569267.jpg" />
+  <img src="Z:/picture/008/save_picture_569267.jpg" />
 </div>
 
 
@@ -482,7 +611,7 @@ The Jimmy Giuffre - 3 (1956) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569263.jpg" />
+  <img src="Z:/picture/008/save_picture_569263.jpg" />
 </div>
 
 
@@ -511,7 +640,7 @@ Egberto Gismonti - Em Familia (1981) EMI[FLAC|Lossless|tracks + .cue] <World Fus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569262.jpg" />
+  <img src="Z:/picture/008/save_picture_569262.jpg" />
 </div>
 
 
@@ -540,7 +669,7 @@ Nora McCarthy & The People Of Peace Quintet - Blessings (2016) [FLAC|Lossless|WE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569261.jpg" />
+  <img src="Z:/picture/008/save_picture_569261.jpg" />
 </div>
 
 
@@ -569,7 +698,7 @@ Tara Kannangara - Some Version Of The Truth (2015) [FLAC|Lossless|WEB-DL|tracks]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569258.jpg" />
+  <img src="Z:/picture/008/save_picture_569258.jpg" />
 </div>
 
 
@@ -598,7 +727,7 @@ Reuben Wilson - The Sweet Life (1974) 2006, Groove Merchant[FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569257.jpg" />
+  <img src="Z:/picture/008/save_picture_569257.jpg" />
 </div>
 
 
@@ -627,7 +756,7 @@ Robin McKelle - The Looking Glass (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569106.jpg" />
+  <img src="Z:/picture/008/save_picture_569106.jpg" />
 </div>
 
 
@@ -641,122 +770,6 @@ Robin McKelle - The Looking Glass (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99E6BFE8DB11474D24C333E2B699D393CCD0D284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043892   (569102) от 18.08.2016
-
-Simona Parrinello - Con Alma (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beatrice
-02. Con Alma
-03. Melancholia
-04. Everybody's Song But My Own(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F1938914094F45B8593F8725D48611C8AC1642E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555304   (569070) от 04.06.2022
-
-The Red Mitchell-Harold Land Quintet - Hear Ye! (1961) 1989, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triplin' Awhile [7:48]
-02. Rosie's Spirit [5:28]
-03. Hear Ye! [6:55]
-04. Somara [6:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E371EA6EA0CDB7BBBFD07EC6CDCF3B6009CEF5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555465   (569069) от 04.06.2022
-
-Phil Ranelin - Collected Works (2003 - 2019) 2CD, 2019, Wide Hive Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569069.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Freddie's Groove [8:58]
-02. Horace's Scope [5:27]
-03. This One's for Trane [8:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 02:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9241610CA624E6E6A3097959D2E3CA4282AA78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152141   (569019) от 21.07.2017
-
-Philly Joe Jones - Six Classic Albums (1956 - 1960) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569019.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Blues For Dracula & Drums Around The World:
-01. Blues For Dracula [08:19]
-02. Trick Street [03:54]
-03. Fiesta [10:29](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 04:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6EB4F6014830D8940CBEF756FB4070C7BC8604
 ```
 
 https://mybot314.ru/tekegram_catalog/

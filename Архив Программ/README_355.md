@@ -6,7 +6,7 @@ IrfanView 4.42 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869416.jpg" />
+  <img src="Z:/picture/008/save_picture_869416.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Photoshop Lightroom 6.5 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869415.jpg" />
+  <img src="Z:/picture/008/save_picture_869415.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AIMP 4.01 Build 1705 Final RePack (& Portable) by D!akov (with Bongiovi Acoustic
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869413.jpg" />
+  <img src="Z:/picture/008/save_picture_869413.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Adobe Dreamweaver CC 2015.2 (7884) RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869410.jpg" />
+  <img src="Z:/picture/008/save_picture_869410.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Allegorithmic Substance Painter 2.0.1 build 1105 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869402.jpg" />
+  <img src="Z:/picture/008/save_picture_869402.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ O&O Defrag Professional 19.5 Build 222 RePack (&Portable) by elchupacabra [Ru/En
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869399.jpg" />
+  <img src="Z:/picture/008/save_picture_869399.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ viber 6.6.0.1008 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869392.jpg" />
+  <img src="Z:/picture/008/save_picture_869392.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Form Pilot Office 2.52 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869390.jpg" />
+  <img src="Z:/picture/008/save_picture_869390.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ CCleaner 5.27.5976 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869381.jpg" />
+  <img src="Z:/picture/008/save_picture_869381.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Adobe Acrobat Reader DC 2015.023.20070 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869380.jpg" />
+  <img src="Z:/picture/008/save_picture_869380.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Microsoft Office 2010 Standard 14.0.7166.5000 SP2 RePack by KpoJIuK (2016.03) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869271.jpg" />
+  <img src="Z:/picture/008/save_picture_869271.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft Office 2010 Professional Plus + Visio Pro + Project Pro 14.0.7166.5000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869267.jpg" />
+  <img src="Z:/picture/008/save_picture_869267.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ JetBrains IntelliJ IDEA Ultimate 2016.1 Build #PS-145.258 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869265.jpg" />
+  <img src="Z:/picture/008/save_picture_869265.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ DriverPack Solution 17.4.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869253.jpg" />
+  <img src="Z:/picture/008/save_picture_869253.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Alcohol 120% 2.0.3.9811 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869245.jpg" />
+  <img src="Z:/picture/008/save_picture_869245.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Alcohol 120% 2.0.3.9811 Free Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869238.jpg" />
+  <img src="Z:/picture/008/save_picture_869238.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Adguard 6.1.314.1628 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869229.jpg" />
+  <img src="Z:/picture/008/save_picture_869229.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ BELOFF 2021.09 Minimal (Авторская раздача)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869214.jpg" />
+  <img src="Z:/picture/008/save_picture_869214.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869137.jpg" />
+  <img src="Z:/picture/008/save_picture_869137.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ The Foundry NUKE STUDIO 10.5v2 + HIERO [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869129.jpg" />
+  <img src="Z:/picture/008/save_picture_869129.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Mindjet MindManager 2017 17.1.178 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869126.jpg" />
+  <img src="Z:/picture/008/save_picture_869126.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Adobe Acrobat Pro DC 2015.023.20070 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869041.jpg" />
+  <img src="Z:/picture/008/save_picture_869041.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ Adguard Премиум 6.1.314.1628 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869025.jpg" />
+  <img src="Z:/picture/008/save_picture_869025.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ KMS Tools Portable 21.02.2017 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869003.jpg" />
+  <img src="Z:/picture/008/save_picture_869003.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ save2pc Ultimate 5.5.9.1595 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868981.jpg" />
+  <img src="Z:/picture/008/save_picture_868981.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ ApowerREC 1.4.2.23 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868907.jpg" />
+  <img src="Z:/picture/008/save_picture_868907.jpg" />
 </div>
 
 

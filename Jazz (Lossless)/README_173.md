@@ -1,3 +1,119 @@
+###  Публикация: 1057846   (473304) от 29.09.2016
+
+Masabumi Kikuchi - Susto +2 (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Circle/Line [14:58]
+ 02.City Snow [07:42]
+ 03.Gumbo [10:15]
+ 04.New Native [15:01](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8317FEC39E728BB31B16044C5BE37803E35430F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057721   (473303) от 29.09.2016
+
+Dewa Budjana - Home (2005) Remastered, 2016 [FLAC|Lossless|tracks] <World Fusion,  Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473303.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Temple Island. 6:07
+2. On The Way Home. 6:09
+3. Los Paradise. 5:28
+4. Malacca Bay. 5:25(   Читать дальше...   )Жанр: World Fusion,  Jazz-RockПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4C65B599457DB90B53792CCC5F75FE7B8930E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057487   (473293) от 29.09.2016
+
+Louis Van Dyke - Plays Lennon-McCartney (1970) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Crossover Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Golden Slumbers and Carry That Weight [05:36]
+ 02.She's Leaving Home [04:19]
+ 03.For No One [03:11]
+ 04.Eleanor Rigby [05:43](   Читать дальше...   )Жанр: Crossover Jazz, Jazz-PopПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9773EBCFFE3842D8F1A68C4824F05F272557256C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057837   (473291) от 29.09.2016
+
+Tsuyoshi Yamamoto Trio - Blues For Tee (1974) Remaster, 2014, Think! Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_473291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues for Tee [16:40]
+ 02.I'm Glad There Is You [07:03]
+ 03.Speed Ball Blues [11:36]
+ 04.Broadway [08:21]Жанр: Post-Bop, Piano JazzПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D9F706FF7D72BE2AD0ACE62F3E4B3FF664DA26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406619   (473205) от 04.09.2020
 
 Lionel Hampton - Priceless Jazz Collection (1942 - 1964) 1999, GRP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -6,7 +122,7 @@ Lionel Hampton - Priceless Jazz Collection (1942 - 1964) 1999, GRP Records [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473205.jpg" />
+  <img src="Z:/picture/008/save_picture_473205.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Joe Williams, Carmen McRae & Friends - Blues In My Heart (1979) 2002, Past Perfe
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473197.jpg" />
+  <img src="Z:/picture/008/save_picture_473197.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Dave Grusin, Lee Ritenour, Diane Schuur, Dave Valentin: GRP Live In Session
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472764.jpg" />
+  <img src="Z:/picture/008/save_picture_472764.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ James Morrison - On The Edge (2003) Morrison Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472465.jpg" />
+  <img src="Z:/picture/008/save_picture_472465.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ The Dave Brubeck Quartet - 25th Anniversary Reunion (1976) 1989, Jazz Heritage [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471998.jpg" />
+  <img src="Z:/picture/008/save_picture_471998.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Charles Mingus & Jazz Artists Guild - Newport Rebels (1960) 2001, King Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471992.jpg" />
+  <img src="Z:/picture/008/save_picture_471992.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Dave Brubeck featuring Paul Desmond - St. Louis Blues (1959, 1962) 2003, Jazz Se
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471988.jpg" />
+  <img src="Z:/picture/008/save_picture_471988.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Jimmy Woods - Awakening !! (1961/1962) /1995, OJC/[APE|image+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471636.jpg" />
+  <img src="Z:/picture/008/save_picture_471636.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Gil Evans Orchestra - Giants Of Jazz (1957-1959) /1994, Giants Of Jazz/[FLAC|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471633.jpg" />
+  <img src="Z:/picture/008/save_picture_471633.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Shelly Manne and His Men - Septet and Quintet Sessions 1951-1958 (2008) (3CDs) [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471630.jpg" />
+  <img src="Z:/picture/008/save_picture_471630.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Wynton Kelly - Wynton Kelly! & Kelly Great (1960/1961) /2000, Collectables/[FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471629.jpg" />
+  <img src="Z:/picture/008/save_picture_471629.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Tiffany Austin - Nothing But Soul (2015) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471544.jpg" />
+  <img src="Z:/picture/008/save_picture_471544.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Jazz Cafe: For Lovers (1994) /Blue Bird/[FLAC|tracks+.cue]<Swing, Bop, Cool
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471539.jpg" />
+  <img src="Z:/picture/008/save_picture_471539.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Jeff Palmer - Island Universe (1995) /Soul Note/[APE|image+.cue]<Jazz Fusion, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471523.jpg" />
+  <img src="Z:/picture/008/save_picture_471523.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Orrin Evans - Liberation Blues (2014) Smoke Sessions Records[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471447.jpg" />
+  <img src="Z:/picture/008/save_picture_471447.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Art Blakey And His Jazz Messengers - Chippin' In (1990) [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471435.jpg" />
+  <img src="Z:/picture/008/save_picture_471435.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Lyn Stanley - Potions [from the 50s] (2014) [FLAC|image+.cue]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471345.jpg" />
+  <img src="Z:/picture/008/save_picture_471345.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ David Sanborn - Anything You Want: The Warner-Reprise-Elektra Years 1975-1999 (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470518.jpg" />
+  <img src="Z:/picture/008/save_picture_470518.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ Johnathan Blake - Homeward Bound (2021) Blue Note [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470318.jpg" />
+  <img src="Z:/picture/008/save_picture_470318.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ Eric Reed - Here (2006) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470179.jpg" />
+  <img src="Z:/picture/008/save_picture_470179.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ Lars Jansson - Giving Recieving (2001) [FLAC|Lossless|tracks + .cue] <Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470178.jpg" />
+  <img src="Z:/picture/008/save_picture_470178.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ Tiziana Ghiglioni - So Long Flores (2004) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470161.jpg" />
+  <img src="Z:/picture/008/save_picture_470161.jpg" />
 </div>
 
 
@@ -630,134 +746,6 @@ Tiziana Ghiglioni - So Long Flores (2004) [FLAC|Lossless]<Jazz>
 06. Versailles [08:19]
 07. Overnight Sight [07:12]
 08. Flying Around You [08:29]Жанр: JazzПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548211   (470031) от 17.09.2012
-
-Sarah-Jane Morris - August (2001) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Leave Me This Way [04:26]
-02. I Can't Stand The rain [04:06]
-03. Into My Arms [04:29]
-04. Chelsea Hotel [03:05]
-05. You Can't Put Your Arms Around A Memory [03:16]
-06. Piece Of My Heart [04:21]
-07. Blind Old Friends [04:47]
-08. Move On Up [04:38]
-09. Mercy, Mercy Me [05:01]
-10. Try A Little Tenderness [05:16](   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160927   (469978) от 27.08.2017
-
-Elisabeth Kontomanou - Brewin' the Blues (2008) [FLAC|Lossless|image + .cue] <Vocal Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moanin' Low
-02. Travelin' Light
-03. Crazy He Calls Me
-04. Everything I Have Is Yours(   Читать дальше...   )Жанр: Vocal Jazz, Post-BopПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CB94AB75BD493B3EF161ED94A0C629DB2D1D182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161257   (469900) от 27.08.2017
-
-Robin Grant & The Standard - Good Girl (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brilliant (4:27)
-02. Waking Up (3:44)
-03. Good Girl (3:32)
-04. Enrapture Me (4:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80969F63899C2395473C12E3D09EE2A339D5D8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548081   (469862) от 17.09.2012
-
-VA - Jazz Ballads (1993) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nat King Cole - L.O.V.E.    [2:32]
-02. Julie London - My Heart Belongs To Daddy    [2:40]
-03. Vicky Carr - Can't Take My Eyes Off You    [3:09]
-04. Nancy Wilson - Unchain My Heart    [2:04]
-05. Peggy Lee - Fever    [3:20]
-06. Wayne Newton - Mack The Knife (Live)    [1:59]
-07. Billie Holiday - Blue Moon (Live)    [2:11]
-08. Dinah Washington - I Left My Heart In San Francisco    [2:07]
-09. Sarah Vaughan - I Can't Give You Anything But Love    [3:07]
-10. Nina Simone - Wild Is The Wind    [3:25](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:39
 
 ## Скачать торент
 ```bash

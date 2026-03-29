@@ -6,7 +6,7 @@ Pro Evolution Soccer 2013 [Ru/En] (RePack/1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461741.jpg" />
+  <img src="Z:/picture/008/save_picture_461741.jpg" />
 </div>
 
 
@@ -36,7 +36,7 @@ Torchlight II [En] (L) 2012 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461658.jpg" />
+  <img src="Z:/picture/008/save_picture_461658.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ F1 2012 [Ru] (Repack/1.0) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460154.jpg" />
+  <img src="Z:/picture/008/save_picture_460154.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459721.jpg" />
+  <img src="Z:/picture/008/save_picture_459721.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Dead Rising 2 [En/Ru] (RePack) 2010 | LoL2xD
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459720.jpg" />
+  <img src="Z:/picture/008/save_picture_459720.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ F1 2012 [Ru] (Lossless RePack/1.0) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459509.jpg" />
+  <img src="Z:/picture/008/save_picture_459509.jpg" />
 </div>
 
 
@@ -172,7 +172,7 @@ Torchlight 2 [En] (RePack/1.9.5.1) 2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459508.jpg" />
+  <img src="Z:/picture/008/save_picture_459508.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ Party Hard (2015) [En] (1.0/upd2) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459454.jpg" />
+  <img src="Z:/picture/008/save_picture_459454.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ F1 2012 [Ru] (RePack/1.0) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459420.jpg" />
+  <img src="Z:/picture/008/save_picture_459420.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Torchlight II/2 [En] (P) 2012 | THETA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459417.jpg" />
+  <img src="Z:/picture/008/save_picture_459417.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Torchlight 2/II [En] (RePack/1.9.5.1) 2012 | Audioslave
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459338.jpg" />
+  <img src="Z:/picture/008/save_picture_459338.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ Rocket League (2015) [Ru/Multi] (1.24/dlc) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459288.jpg" />
+  <img src="Z:/picture/008/save_picture_459288.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ Them & Us (2018) [En] (1.0.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458829.jpg" />
+  <img src="Z:/picture/008/save_picture_458829.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Tony Hawk's Pro Skater HD [En] (Repack/1.0.8788.0) 2012 | R.G. Repacker's
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458124.jpg" />
+  <img src="Z:/picture/008/save_picture_458124.jpg" />
 </div>
 
 
@@ -392,7 +392,7 @@ Xotic (L) [En] 2011 | RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457717.jpg" />
+  <img src="Z:/picture/008/save_picture_457717.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Brave: The Video Game [Ru] (RePack/1.0.0.3) 2012 | Fenixx
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457274.jpg" />
+  <img src="Z:/picture/008/save_picture_457274.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Borderlands 2 [Muilti6/-] (RePack) 2012 | Dumu4
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457258.jpg" />
+  <img src="Z:/picture/008/save_picture_457258.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Starpoint Gemini 2 (2014) [Ru/En] (1.8000/dlc) Repack alexalsp
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457187.jpg" />
+  <img src="Z:/picture/008/save_picture_457187.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Vampire: The Masquerade - Shadows of New York (2020) [En] (1.0.0) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457095.jpg" />
+  <img src="Z:/picture/008/save_picture_457095.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ RimWorld (2014) [Ru/Multi] (Alpha 0.12.914) Repack NIK220V
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457078.jpg" />
+  <img src="Z:/picture/008/save_picture_457078.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Pro Evolution Soccer 2013 [Ru/En/Multi6] (Lossless RePack/1.0) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457033.jpg" />
+  <img src="Z:/picture/008/save_picture_457033.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456960.jpg" />
+  <img src="Z:/picture/008/save_picture_456960.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Street Fighter x Tekken [PS3] [PAL] [RUS] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456870.jpg" />
+  <img src="Z:/picture/008/save_picture_456870.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ Takt of Magic [Wii] [NTSC-J] [JPN] (2009)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455524.jpg" />
+  <img src="Z:/picture/008/save_picture_455524.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Tony Hawk's Pro Skater HD [En] (Repack/1.0) 2012 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455068.jpg" />
+  <img src="Z:/picture/008/save_picture_455068.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [En] 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454996.jpg" />
+  <img src="Z:/picture/008/save_picture_454996.jpg" />
 </div>
 
 

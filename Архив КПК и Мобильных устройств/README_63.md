@@ -1,3 +1,29 @@
+###  Публикация: 378690   (503989) от 23.08.2011
+
+Zombieville USA 1.0.4 [En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_503989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zombieville США - одна из самых больших хитов для iPhone, теперь на Android устройств! Эта игра завоевала сердца миллионов игроков по всему миру. Добро пожаловать в Zombieville США! Когда ваш город наводнен ходячими мертвецами,остается только одно - набрать оружия и разносить легионы нежити к чертовой матери. Боритесь за выживание с 18 различными видами оружия! Как (   Читать дальше...   )Тип издания: FreeРелиз состоялся: 21 июня 2011 г.Разработчик: Mika MobileПоддерживаемая ОС: Android 2.1+Жанр: Arcade (Аркада)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933976   (503935) от 03.09.2015
 
 Приложения для Dual SIM устройств под Android
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_503935.jpg" />
+  <img src="Z:/picture/005/save_picture_503935.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503750.jpg" />
+  <img src="Z:/picture/008/save_picture_503750.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503661.jpg" />
+  <img src="Z:/picture/008/save_picture_503661.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503658.jpg" />
+  <img src="Z:/picture/008/save_picture_503658.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Football Scores - 365Scores 12.0.4 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503621.jpg" />
+  <img src="Z:/picture/008/save_picture_503621.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ SmartNews: Local Breaking News 22.7.20 Mod by TryRoom [Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503527.jpg" />
+  <img src="Z:/picture/008/save_picture_503527.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ Easy Notes - Заметки и блокнот 1.1.31.0707 Mod by Apps Store [Ru/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503435.jpg" />
+  <img src="Z:/picture/008/save_picture_503435.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ PowerDirector - Видеоредактор 10.3.0 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503432.jpg" />
+  <img src="Z:/picture/008/save_picture_503432.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ Digitally Imported DI.FM Radio 13.08.15 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503178.jpg" />
+  <img src="Z:/picture/008/save_picture_503178.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Auto Swapping Sim Full v2.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503097.jpg" />
+  <img src="Z:/picture/008/save_picture_503097.jpg" />
 </div>
 
 
@@ -271,7 +297,7 @@ Charge - Icon Pack 2.8 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503096.jpg" />
+  <img src="Z:/picture/008/save_picture_503096.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ CPU-Z V1.15 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503087.jpg" />
+  <img src="Z:/picture/008/save_picture_503087.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ Farming Simulator 16 v1.0.0.6 [Mod Money] [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503083.jpg" />
+  <img src="Z:/picture/008/save_picture_503083.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ AutomateIt Pro v4.1.155 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503012.jpg" />
+  <img src="Z:/picture/008/save_picture_503012.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Battleheart 1.2 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502936.jpg" />
+  <img src="Z:/picture/008/save_picture_502936.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502464.jpg" />
+  <img src="Z:/picture/008/save_picture_502464.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ InShot - Фото и видеоредактор 1.840.1360 Mod by Apps Store [Ru
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501487.jpg" />
+  <img src="Z:/picture/008/save_picture_501487.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ BSPlayer Pro 3.14.238-20220704 Mod by Balatan [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501440.jpg" />
+  <img src="Z:/picture/008/save_picture_501440.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ MAYDAY! Вынужденная посадка v.1.0.18. [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501246.jpg" />
+  <img src="Z:/picture/008/save_picture_501246.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ AR Ruler App v1.7.4 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501182.jpg" />
+  <img src="Z:/picture/008/save_picture_501182.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501169.jpg" />
+  <img src="Z:/picture/008/save_picture_501169.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Edjing Pro – Music DJ Mixer 1.1.2 Build 26 [En] - Диджеинг, ремик
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501162.jpg" />
+  <img src="Z:/picture/008/save_picture_501162.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ Greenify версия: 2.7.1 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500998.jpg" />
+  <img src="Z:/picture/008/save_picture_500998.jpg" />
 </div>
 
 
@@ -614,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500995.jpg" />
+  <img src="Z:/picture/008/save_picture_500995.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Gem Miner: Dig Deeper 1.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500881.jpg" />
+  <img src="Z:/picture/008/save_picture_500881.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Gem Miner: Dig Deeper 1.3 [En]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564347   (500578) от 18.07.2022
-
-Lighting calculations / Расчеты освещения 5.2.2 Mod by Sergey0806 [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lighting calculations / Расчеты освещения - Мощная программа предназначенная для вычисления осветительных расчетов. Внутри содержит люксометр, а также справочник по различным типам ламп и их подключению.Тип издания: ProРелиз состоялся: 18.07.2022Разработчик: Ettore GallinaЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F447DDC8709410ABC4CE4F9B6734125A9211B54F
 ```
 
 https://mybot314.ru/tekegram_catalog/

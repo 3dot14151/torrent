@@ -6,7 +6,7 @@
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523857.jpg" />
+  <img src="Z:/picture/008/save_picture_523857.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Dengeki Moeoh [Scans] [2004-2015, PNG, JPG]
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514752.jpg" />
+  <img src="Z:/picture/008/save_picture_514752.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507839.jpg" />
+  <img src="Z:/picture/008/save_picture_507839.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500117.jpg" />
+  <img src="Z:/picture/008/save_picture_500117.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ Shinyaku Toaru Majutsu no Index | Toaru Majutsu no Index: New Testament | Нек
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491028.jpg" />
+  <img src="Z:/picture/008/save_picture_491028.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ Yotsuba to! / Ёцуба и! [тома 1-15] (1-101 глав) [2003] [manga] [Р
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462825.jpg" />
+  <img src="Z:/picture/008/save_picture_462825.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439731.jpg" />
+  <img src="Z:/picture/008/save_picture_439731.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ Nanatsu No Taizai / The Seven Deadly Sins / Семь смертных грехо
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436599.jpg" />
+  <img src="Z:/picture/008/save_picture_436599.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ Anime Wallpaper (30.09.12) [Wallpapers]
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436036.jpg" />
+  <img src="Z:/picture/008/save_picture_436036.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430967.jpg" />
+  <img src="Z:/picture/008/save_picture_430967.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427952.jpg" />
+  <img src="Z:/picture/008/save_picture_427952.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Kurozuka / Куродзука (2003) [40 гл.][Манга][русский][comp
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_426013.jpg" />
+  <img src="Z:/picture/005/save_picture_426013.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Elfen Lied / Эльфийская песнь (2002) [1-12 том (1-107 гл.)] 
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_423713.jpg" />
+  <img src="Z:/picture/005/save_picture_423713.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399870.jpg" />
+  <img src="Z:/picture/008/save_picture_399870.jpg" />
 </div>
 
 
@@ -384,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390693.jpg" />
+  <img src="Z:/picture/008/save_picture_390693.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390688.jpg" />
+  <img src="Z:/picture/008/save_picture_390688.jpg" />
 </div>
 
 
@@ -445,7 +445,7 @@ Life is Money / Жизнь - это деньги (2011) [1-15 главы] [Ма�
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389859.jpg" />
+  <img src="Z:/picture/008/save_picture_389859.jpg" />
 </div>
 
 
@@ -472,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374357.jpg" />
+  <img src="Z:/picture/008/save_picture_374357.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Calendar 2013 Russian and Japanese Holidays / Календарь 2013 Русск
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372479.jpg" />
+  <img src="Z:/picture/008/save_picture_372479.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Symphonic Rain / Симфония Дождя (L) [Японский / TLWiki patc
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_362538.jpg" />
+  <img src="Z:/picture/005/save_picture_362538.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Bleach / Блич (2001) [1-74 том (1-686)][Манга][Русский] [comp
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337290.jpg" />
+  <img src="Z:/picture/008/save_picture_337290.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Ecchi Wallpapers
 >>Аниме арт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336065.jpg" />
+  <img src="Z:/picture/008/save_picture_336065.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Slayers | Рубаки (1990) [9 томов] [Ранобэ] [Русский] [FB
 >>Ранобэ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328802.jpg" />
+  <img src="Z:/picture/008/save_picture_328802.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Corona Blossom Vol.1: Gift From the Galaxy (2016) [En/Jp] Repack
 >>Визуальные новеллы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310827.jpg" />
+  <img src="Z:/picture/008/save_picture_310827.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Urusei Yatsura / Несносные пришельцы (1978) [3 тома] [Ма
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_303318.jpg" />
+  <img src="Z:/picture/005/save_picture_303318.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Monster Collection / Коллекция монстров (1998) [1-33 гл.] [М
 >>Манга, Манхва, Маньхуа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299753.jpg" />
+  <img src="Z:/picture/008/save_picture_299753.jpg" />
 </div>
 
 

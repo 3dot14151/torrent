@@ -6,7 +6,7 @@ Coming soon 2.82 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702506.jpg" />
+  <img src="Z:/picture/008/save_picture_702506.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Insight (Compiled by Alex Vilator) (2014) [FLAC|Lossless|WEB-DL]<IDM, Downt
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702477.jpg" />
+  <img src="Z:/picture/008/save_picture_702477.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ CoolUtils Total PDF Converter 6.1.0.144 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702455.jpg" />
+  <img src="Z:/picture/008/save_picture_702455.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ ShareX 12.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702441.jpg" />
+  <img src="Z:/picture/008/save_picture_702441.jpg" />
 </div>
 
 
@@ -116,7 +116,7 @@ Forecast Bar 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702438.jpg" />
+  <img src="Z:/picture/008/save_picture_702438.jpg" />
 </div>
 
 
@@ -146,7 +146,7 @@ Lorenzo Montana + Mick Chillage - Deviazoni Cosmiche (2016) [FLAC|Lossless|WEB-D
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702437.jpg" />
+  <img src="Z:/picture/008/save_picture_702437.jpg" />
 </div>
 
 
@@ -175,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702432.jpg" />
+  <img src="Z:/picture/008/save_picture_702432.jpg" />
 </div>
 
 
@@ -204,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702427.jpg" />
+  <img src="Z:/picture/008/save_picture_702427.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702426.jpg" />
+  <img src="Z:/picture/008/save_picture_702426.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702425.jpg" />
+  <img src="Z:/picture/008/save_picture_702425.jpg" />
 </div>
 
 
@@ -291,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702421.jpg" />
+  <img src="Z:/picture/008/save_picture_702421.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Downie 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702420.jpg" />
+  <img src="Z:/picture/008/save_picture_702420.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ AIMP 4.13 Build 1895 DC 07.05.2017 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702413.jpg" />
+  <img src="Z:/picture/008/save_picture_702413.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702383.jpg" />
+  <img src="Z:/picture/008/save_picture_702383.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702368.jpg" />
+  <img src="Z:/picture/008/save_picture_702368.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Aiseesoft Data Recovery 1.0.12 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702339.jpg" />
+  <img src="Z:/picture/008/save_picture_702339.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702333.jpg" />
+  <img src="Z:/picture/008/save_picture_702333.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ shaMankey - 5 Singles (2015-2016) [FLAC|Lossless|WEB-DL|tracks] <Experimental, E
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702319.jpg" />
+  <img src="Z:/picture/008/save_picture_702319.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Ben Gold X Ruben De Ronde - Era Festivus (Remixes) (2016) Single [MP3|320 кб/�
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702315.jpg" />
+  <img src="Z:/picture/008/save_picture_702315.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702313.jpg" />
+  <img src="Z:/picture/008/save_picture_702313.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702312.jpg" />
+  <img src="Z:/picture/008/save_picture_702312.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Adobe AIR 22.0.0.153 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702310.jpg" />
+  <img src="Z:/picture/008/save_picture_702310.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702307.jpg" />
+  <img src="Z:/picture/008/save_picture_702307.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702303.jpg" />
+  <img src="Z:/picture/008/save_picture_702303.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ Scann-Tec - Unyt (2016) Ultimae Records [FLAC|Lossless|WEB-DL|tracks] <Psybient,
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702301.jpg" />
+  <img src="Z:/picture/008/save_picture_702301.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ AnyMP4 Video Converter Ultimate 7.0.32 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702300.jpg" />
+  <img src="Z:/picture/008/save_picture_702300.jpg" />
 </div>
 
 

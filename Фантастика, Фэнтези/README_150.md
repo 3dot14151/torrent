@@ -1,3 +1,57 @@
+###  Публикация: 1031687   (483576) от 31.08.2018
+
+Алекс Каменев | Цикл «Макс Вольф» [4 книги] (2016-2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_483576.jpg" />
+</div>
+
+
+###  Подробнее
+
+Солдатами не рождаются, солдатами становятся. Этот принцип в полной мере использует огромная межзвездная корпорация на одной далекой планете. После потери элитных подразделении наемников, на поверхность враждебного мира вместо них были отправлены бывшие рабы. Получившие минимальные воинские знания и вооруженные легким оружием, они вынуждены там отстаивать чужие интересы, (   Читать дальше...   )Жанр: Фантастический боевик, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B70984AB9E39DC3ED0792481D592DD07DBB61E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938166   (483500) от 17.09.2015
+
+Александр Быченин | Оружейники (2015) [FB2, EPUB]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_483500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман из цикла «Оружейники».
+
+Прощай, альма-матер, здравствуй, взрослая жизнь! Э-э… почти. Осталась сущая мелочь – стажировка. Казалось бы, рутина и формальность. Ан нет. Команда рейдера «Молния», объединение бродячих Оружейников, умудряется вляпаться в приключения даже на пустом месте. Или это я, свежеиспеченный инженер-аналитик Денис Новиков, так на них (   Читать дальше...   )Жанр: Научная фантастика, Космическая фантастикаФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC57239B8D14DA7DBADD49CF48367BCED7D8A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056150   (483424) от 24.09.2016
 
 Дэниель Краус, Гильермо дель Торо | Охотники на троллей (2016) [FB2]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483424.jpg" />
+  <img src="Z:/picture/008/save_picture_483424.jpg" />
 </div>
 
 
@@ -35,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483191.jpg" />
+  <img src="Z:/picture/008/save_picture_483191.jpg" />
 </div>
 
 
@@ -61,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482823.jpg" />
+  <img src="Z:/picture/008/save_picture_482823.jpg" />
 </div>
 
 
@@ -90,7 +144,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481738.jpg" />
+  <img src="Z:/picture/008/save_picture_481738.jpg" />
 </div>
 
 
@@ -118,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481596.jpg" />
+  <img src="Z:/picture/008/save_picture_481596.jpg" />
 </div>
 
 
@@ -147,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481088.jpg" />
+  <img src="Z:/picture/008/save_picture_481088.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481085.jpg" />
+  <img src="Z:/picture/008/save_picture_481085.jpg" />
 </div>
 
 
@@ -200,7 +254,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481072.jpg" />
+  <img src="Z:/picture/008/save_picture_481072.jpg" />
 </div>
 
 
@@ -226,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480938.jpg" />
+  <img src="Z:/picture/008/save_picture_480938.jpg" />
 </div>
 
 
@@ -255,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480768.jpg" />
+  <img src="Z:/picture/008/save_picture_480768.jpg" />
 </div>
 
 
@@ -282,7 +336,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480033.jpg" />
+  <img src="Z:/picture/008/save_picture_480033.jpg" />
 </div>
 
 
@@ -310,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479922.jpg" />
+  <img src="Z:/picture/008/save_picture_479922.jpg" />
 </div>
 
 
@@ -336,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479915.jpg" />
+  <img src="Z:/picture/008/save_picture_479915.jpg" />
 </div>
 
 
@@ -364,7 +418,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479563.jpg" />
+  <img src="Z:/picture/008/save_picture_479563.jpg" />
 </div>
 
 
@@ -392,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479448.jpg" />
+  <img src="Z:/picture/008/save_picture_479448.jpg" />
 </div>
 
 
@@ -421,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479444.jpg" />
+  <img src="Z:/picture/008/save_picture_479444.jpg" />
 </div>
 
 
@@ -449,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479431.jpg" />
+  <img src="Z:/picture/008/save_picture_479431.jpg" />
 </div>
 
 
@@ -476,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479371.jpg" />
+  <img src="Z:/picture/008/save_picture_479371.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479338.jpg" />
+  <img src="Z:/picture/008/save_picture_479338.jpg" />
 </div>
 
 
@@ -531,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479024.jpg" />
+  <img src="Z:/picture/008/save_picture_479024.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478937.jpg" />
+  <img src="Z:/picture/008/save_picture_478937.jpg" />
 </div>
 
 
@@ -585,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478367.jpg" />
+  <img src="Z:/picture/008/save_picture_478367.jpg" />
 </div>
 
 
@@ -612,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478192.jpg" />
+  <img src="Z:/picture/008/save_picture_478192.jpg" />
 </div>
 
 
@@ -638,7 +692,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477988.jpg" />
+  <img src="Z:/picture/008/save_picture_477988.jpg" />
 </div>
 
 
@@ -649,58 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:581FC5D839E32759E127EF2B4710CA9636375CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244792   (477971) от 03.09.2018
-
-Уильям Моррис | Воды Дивных Островов [сборник] (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477971.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уильям Моррис (1834-1896) – английский поэт, писатель, переводчик, художник, дизайнер, издатель, изобретатель и общественный деятель, поистине выдающийся ум и культовая личность Викторианской эпохи. Моррис одним из первых начал работать в жанре фэнтези – на стыке рыцарского романа и волшебной сказки, а знамя писателя позже подхватили Дж. Р.Р. Толкин, К.С. Льюис и (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтези, Классика фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E67C89D91EC8E75C6F32C6BF86E8FDEBCEB9C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938978   (477423) от 20.09.2015
-
-Тед Чан | История твоей жизни [сборник] (2014) [FB2, EPUB]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тед Чан – уникальное явление в современной фантастике, та самая звезда НФ, которую обожают в равной степени и читатели и критики. Он собрал самые престижные премии, включая ЧЕТЫРЕ «Небьюлы», ПЯТЬ «Хьюго» и ЧЕТЫРЕ «Локуса», – причем число созданных им произведений не превышает количества заслуженных им призов. В эту книгу вошло практически все, написанное Чаном, – (   Читать дальше...   )Жанр: Научная фантастика, Социальная фантастикаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB18E2E6BFDB3E602BB7294E7BC26CF22F5B4F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

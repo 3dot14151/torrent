@@ -1,3 +1,82 @@
+###  Публикация: 309272   (842388) от 15.03.2011
+
+Дядюшки-гангстеры / Les tontons flingueurs (1963) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил-был спокойный, не очень удачливый бизнесмен по имени Фернан и не тужил, как говорится. И был у этого парня лучший дружок. Да не простой, а самый главный мафиози.  И вот однажды этот мафиози решил умереть, а перед самой кончиной попросил своего некриминального кореша Фернана присмотреть за своей дочуркой Патрисией, а, заодно уж, и за всей гангстерской империей.
+Фернан воспринял все как надо — он в натуре решил взять все дела в свои твердые руки. Но вот бывшие дружбаны мертвого «короля» вовсе не собирались солидаризоваться с таким дурацким предсмертным волеизъявлением и объявляют войну «наследничку».....…Жанр: комедия, криминалРежиссер: Жорж ЛотнерПеревод: Профессиональный (многоголосый, закадровый)Формат: AVIПродолжительность: 01:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70122A90CC15CE3025DAC2D85E651288E1C2D58C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499372   (842337) от 05.10.2021
+
+Бассейн / La piscine (1969) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жан-Поль и Марианна проводят отпуск на Лазурном берегу в идеальной атмосфере на вилле друзей. Но летняя идиллия прерывается вторжением их друга, бывшего любовника Марианны. Безмятежное состояние героев сменяется обжигающим напряжением, затаённой ревностью, гнетущими намёками и страстями...Производство: Франция, Италия / SNC, Tritone CinematograficaЖанр: драма, мелодрама, криминалРежиссер: Жак ДереАктеры: Ален Делон, Роми Шнайдер, Джейн Биркин, Морис Роне, Поль Кроше, Мэддли Бейми, Сюзи Жаспар, Тьерри Шабер, Стив Экхардт, Рут ПрайсПеревод: Дублированный (к/с им. Горького), авторский (А. Гаврилов)Язык озвучки: Русский, ФранцузскийСубтитры: Русские, французские, английскиеПродолжительность: 02:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB12E916C90B86DBD0669D4502B75B8D57A957A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 771170   (841667) от 30.03.2014
+
+Близкие контакты третьей степени / Close Encounters of the Third Kind (1977) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_841667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сбои в подаче электроэнергии, возвращение из ниоткуда самолетов, исчезнувших в 1945 году, обескураживают ученых. Наименее скептичные люди науки расценивают эти явления, как прямое доказательство существования разумной инопланетной формы жизни. Рой Неари едет в пустыню, где были найдены самолеты, чтобы провести собственное расследование. Ночью его автомобиль застревает (   Читать дальше...   )Производство: СШАЖанр: Фантастика, Драма, ПриключенияРежиссер: Стивен СпилбергАктеры: Ричард Дрейфусс, Франсуа Трюффо, Тери Гарр, Мелинда Диллон, Боб Бэлабан, Уоррен Дж. Кеммерлинг, Робертс Блоссом, Филип Доддс, Кэри Гуффи, Шоун Бишоп, Эдриэнн Кэмпбелл, Джастин Дрейфусс, Лэнс Хенриксен, Мэрилл Коннали, Джордж ДиЧенцо, Эми Дугласс, Александр Локвуд, Джин Динарски, Мэри Гэфри, Норман Бартольд, Йозеф Зоммер, Роджер Эрнест...Перевод: Многоголосый закадровый (профессиональный)Язык субтитров: Русский, АнглийскийПродолжительность: 02:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C705D3D09DEA3955F4021C44AA690DF58A042B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001033   (841592) от 04.04.2016
 
 Вера Круз / Vera Cruz (1954) DVDRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841592.jpg" />
+  <img src="Z:/picture/008/save_picture_841592.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841517.jpg" />
+  <img src="Z:/picture/008/save_picture_841517.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841511.jpg" />
+  <img src="Z:/picture/008/save_picture_841511.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841430.jpg" />
+  <img src="Z:/picture/008/save_picture_841430.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841167.jpg" />
+  <img src="Z:/picture/008/save_picture_841167.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840959.jpg" />
+  <img src="Z:/picture/008/save_picture_840959.jpg" />
 </div>
 
 
@@ -164,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840929.jpg" />
+  <img src="Z:/picture/008/save_picture_840929.jpg" />
 </div>
 
 
@@ -190,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840871.jpg" />
+  <img src="Z:/picture/008/save_picture_840871.jpg" />
 </div>
 
 
@@ -216,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840834.jpg" />
+  <img src="Z:/picture/008/save_picture_840834.jpg" />
 </div>
 
 
@@ -242,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840657.jpg" />
+  <img src="Z:/picture/008/save_picture_840657.jpg" />
 </div>
 
 
@@ -268,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839903.jpg" />
+  <img src="Z:/picture/008/save_picture_839903.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839689.jpg" />
+  <img src="Z:/picture/008/save_picture_839689.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839576.jpg" />
+  <img src="Z:/picture/008/save_picture_839576.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839429.jpg" />
+  <img src="Z:/picture/008/save_picture_839429.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839305.jpg" />
+  <img src="Z:/picture/008/save_picture_839305.jpg" />
 </div>
 
 
@@ -400,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838988.jpg" />
+  <img src="Z:/picture/008/save_picture_838988.jpg" />
 </div>
 
 
@@ -426,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838055.jpg" />
+  <img src="Z:/picture/008/save_picture_838055.jpg" />
 </div>
 
 
@@ -452,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837980.jpg" />
+  <img src="Z:/picture/008/save_picture_837980.jpg" />
 </div>
 
 
@@ -478,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837758.jpg" />
+  <img src="Z:/picture/008/save_picture_837758.jpg" />
 </div>
 
 
@@ -505,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837646.jpg" />
+  <img src="Z:/picture/008/save_picture_837646.jpg" />
 </div>
 
 
@@ -531,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837618.jpg" />
+  <img src="Z:/picture/008/save_picture_837618.jpg" />
 </div>
 
 
@@ -558,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837317.jpg" />
+  <img src="Z:/picture/008/save_picture_837317.jpg" />
 </div>
 
 
@@ -584,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837242.jpg" />
+  <img src="Z:/picture/008/save_picture_837242.jpg" />
 </div>
 
 
@@ -596,87 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:519746E6BF12BC7071FF16AE5E683033CEF4E34D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332838   (836993) от 18.03.2015
-
-Майерлинг / Mayerling (1968) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наследник австро-венгерского трона кронпринц Рудольф — яркая и сложная личность. Женщины, балы, приёмы — за беспечным фасадом кроется тяжкий груз ответственности и неопределённости. В любой момент он может стать императором, а его судьба принадлежит Империи. Рудольф несчастлив в браке.
-Многие дамы хотели бы оказаться рядом с ним, но только баронесса Вечера смогла (   Читать дальше...   )Производство: Франция, ВеликобританияЖанр: Драма, Мелодрама, ИсторическийРежиссер: Теренс ЯнгАктеры: Омар Шариф, Катрин Денев, Джеймс Мейсон, Ава Гарднер, Джеймс Робертсон Джастис, Женевьева Пейдж, Андре Паризи, Иван Десни, Чарльз Миллот, Морис ТейнаПеревод: ДублированныйПродолжительность: 02:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C13E3FD7BDB79EC181405279B420444558FDE11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002779   (836665) от 07.04.2016
-
-Билли-две шляпы / Billy Two Hats (1974) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два молодых человека - один из которых шотландец, а другой выходец из индейского народа по кличке Билли-две шляпы — совершают мелкое ограбление. Но в результате было совершенно непреднамеренное убийство, а сорванный куш составил всего четыреста двадцать долларов. Пытаясь убежать с места преступления, шотландца ранят из ружья. Молодой индеец Билли не оставляет друга (   Читать дальше...   )Производство: США / AlgonquinЖанр: Мелодрама, ВестернРежиссер: Тед КотчеффАктеры: Грегори Пек, Дези Арназ мл., Джек Уорден, Дэвид Хаддлстон, Сиан Барбара Аллен, Джон Пирс, Доун Литтл Скай, Винс Ст. Кир, Генри Медисин ХэтПеревод: Двуголосый закадровый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4F5459415BFAE3024B6F29E1FF90512998B006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194075   (836624) от 21.04.2010
-
-Бинго Бонго / Bingo Bongo (1982) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: КомедияРежиссер: Паскуале Феста Кампаниле / Pasquale Festa CampanileВ ролях: Адриано Челентано, Кароль Буке, Феличе Андреази, Энцо Робутти, Уолтер Д'Амор, Роберто МареллиПеревод: Профессиональный (двухголосый) + Оригинальная дорожка
-
-ФайлФормат: MKVПродолжительность: 01:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00B7E60A7FCD19ED389D1DBEEA9430DF6C09B26
 ```
 
 https://mybot314.ru/tekegram_catalog/

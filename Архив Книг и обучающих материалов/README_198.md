@@ -1,3 +1,30 @@
+###  Публикация: 1085245   (216314) от 20.12.2016
+
+Ирина Фоменкова | Смех для всех (2014) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Ирины Фоменковой включает ее новые юмористические рассказы. Автор то с доброжелательной улыбкой, то с оттенком иронии говорит об обычных проявлениях жизни, призывая читателя не терять чувство юмора в любой, даже самой нестандартной, ситуации.
+Герои ее произведений – люди, которые живут рядом с нами. Через испытания судьбы каждый из них проходит по-своему, но (   Читать дальше...   )Жанр: Юмористическая прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88032E37BC7EA1F4BF13A0D489E5A36BBADDA27C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 588602   (215178) от 13.12.2012
 
 Журнал | Hyundai Motor World (Россия) №4(16) [зима 2012/2013] [PDF]
@@ -6,7 +33,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215178.jpg" />
+  <img src="Z:/picture/005/save_picture_215178.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215163.jpg" />
+  <img src="Z:/picture/005/save_picture_215163.jpg" />
 </div>
 
 
@@ -67,7 +94,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215036.jpg" />
+  <img src="Z:/picture/005/save_picture_215036.jpg" />
 </div>
 
 
@@ -93,7 +120,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214425.jpg" />
+  <img src="Z:/picture/005/save_picture_214425.jpg" />
 </div>
 
 
@@ -119,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214304.jpg" />
+  <img src="Z:/picture/005/save_picture_214304.jpg" />
 </div>
 
 
@@ -145,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214300.jpg" />
+  <img src="Z:/picture/005/save_picture_214300.jpg" />
 </div>
 
 
@@ -173,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214296.jpg" />
+  <img src="Z:/picture/005/save_picture_214296.jpg" />
 </div>
 
 
@@ -201,7 +228,7 @@ Udemy, Константин Крючков | Разработка Telegram бо�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213844.jpg" />
+  <img src="Z:/picture/005/save_picture_213844.jpg" />
 </div>
 
 
@@ -228,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213157.jpg" />
+  <img src="Z:/picture/005/save_picture_213157.jpg" />
 </div>
 
 
@@ -254,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212716.jpg" />
+  <img src="Z:/picture/005/save_picture_212716.jpg" />
 </div>
 
 
@@ -280,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210970.jpg" />
 </div>
 
 
@@ -308,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207540.jpg" />
+  <img src="Z:/picture/005/save_picture_207540.jpg" />
 </div>
 
 
@@ -334,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202991.jpg" />
+  <img src="Z:/picture/004/save_picture_202991.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202934.jpg" />
+  <img src="Z:/picture/004/save_picture_202934.jpg" />
 </div>
 
 
@@ -386,7 +413,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202347.jpg" />
+  <img src="Z:/picture/004/save_picture_202347.jpg" />
 </div>
 
 
@@ -413,7 +440,7 @@ Udemy, Hussein Nasser | Fundamentals of Backend Engineering (2023) WEB-DL [EN / 
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202326.jpg" />
+  <img src="Z:/picture/004/save_picture_202326.jpg" />
 </div>
 
 
@@ -439,7 +466,7 @@ Udemy, Hussein Nasser | Fundamentals of Networking Engineering (2023) WEB-DL [EN
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_200996.jpg" />
+  <img src="Z:/picture/004/save_picture_200996.jpg" />
 </div>
 
 
@@ -465,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200805.jpg" />
+  <img src="Z:/picture/005/save_picture_200805.jpg" />
 </div>
 
 
@@ -491,7 +518,7 @@ Embacy, Артём Кузнецов | Курс верстки на Webflow (2022
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198692.jpg" />
 </div>
 
 
@@ -520,7 +547,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197054.jpg" />
+  <img src="Z:/picture/004/save_picture_197054.jpg" />
 </div>
 
 
@@ -549,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196834.jpg" />
 </div>
 
 
@@ -576,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192235.jpg" />
 </div>
 
 
@@ -604,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191617.jpg" />
 </div>
 
 
@@ -630,7 +657,7 @@ Karpov.courses | Продвинутая аналитика данных (Час�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190751.jpg" />
 </div>
 
 
@@ -656,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190271.jpg" />
 </div>
 
 
@@ -667,32 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2A45BF8629B77D445F7535EE6DEF31C84F2C860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660819   (188773) от 14.09.2023
-
-С.В. Савельев | Возникновение мозга человека. Том 1. Третье издание (2020) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Монография охватывает основные периоды возникновения головного мозга человека. Исследованы причины и эволюционные закономерности развития переднего мозга и неокортекса млекопитающих. Реконструированы морфофункциональные особенности ранней эволюции мозга приматов. Показаны возможные экологические условия и механизмы формирования архетипа организации мозга австралопитеков. (   Читать дальше...   )Жанр: научно-популярная литератураИздательство: ВЕДИФормат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235DBFBDBB9CA4682EBB2FE6FE5F51145089469C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1108971   (860196) от 26.02.2017
+
+Гарфилд: Дилогия / Garfield: Dilogy (2004 - 2006) BDRip [H.265/1080p-LQ]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гарфилд - толстый и ленивый, но очень хитрый и умный кот. Он подшучивает над хозяином, использует других котов в своих целях, а с мышами заключает союз. Хозяин холит и лелеет, кормит вкусно, за проступки не наказывает. В общем, не жизнь у кота, а сказка.Производство: США, Великобритания / 20th Century Fox Film Corporation, Davis Entertainment, Dune EntertainmentЖанр: Комедия, СемейныйРежиссер: Питер Хьюитт, Тим ХиллАктеры: Брекин Мейер, Дженнифер Лав Хьюитт, Стивен Тоболовски, Билл Мюррей, Эван Арнолд, Марк Кристофер Лоуренс, Билли Коннолли, Люси Дэвис, Иан Эберкромби, Джудит Шекони, Тим Карри, Боб Хоскинс, Оливер Мьюрхед, Вероника Алисино, ДжейБи Блэнк, Роджер РисПеревод: ДублированныйЯзык субтитров: РусскийПродолжительность: 01:20:12 | 01:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4E990040DE00A62F29F87268E308446EC70F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400596   (859418) от 25.09.2021
 
 Мой друг мистер Персиваль (Штормовой мальчик) / Storm Boy (2019) BDRemux [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859418.jpg" />
+  <img src="Z:/picture/008/save_picture_859418.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850992.jpg" />
+  <img src="Z:/picture/008/save_picture_850992.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850104.jpg" />
+  <img src="Z:/picture/008/save_picture_850104.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_847081.jpg" />
+  <img src="Z:/picture/009/save_picture_847081.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844646.jpg" />
+  <img src="Z:/picture/008/save_picture_844646.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843256.jpg" />
+  <img src="Z:/picture/008/save_picture_843256.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841668.jpg" />
+  <img src="Z:/picture/008/save_picture_841668.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840775.jpg" />
+  <img src="Z:/picture/008/save_picture_840775.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835034.jpg" />
+  <img src="Z:/picture/008/save_picture_835034.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832693.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825934.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825934.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822260.jpg" />
+  <img src="Z:/picture/008/save_picture_822260.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818579.jpg" />
+  <img src="Z:/picture/008/save_picture_818579.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814892.jpg" />
+  <img src="Z:/picture/008/save_picture_814892.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814812.jpg" />
+  <img src="Z:/picture/008/save_picture_814812.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814803.jpg" />
+  <img src="Z:/picture/008/save_picture_814803.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814801.jpg" />
+  <img src="Z:/picture/008/save_picture_814801.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814623.jpg" />
+  <img src="Z:/picture/008/save_picture_814623.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808820.jpg" />
+  <img src="Z:/picture/008/save_picture_808820.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806844.jpg" />
+  <img src="Z:/picture/008/save_picture_806844.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798107.jpg" />
+  <img src="Z:/picture/008/save_picture_798107.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794785.jpg" />
+  <img src="Z:/picture/008/save_picture_794785.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792671.jpg" />
+  <img src="Z:/picture/008/save_picture_792671.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792183.jpg" />
+  <img src="Z:/picture/008/save_picture_792183.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792180.jpg" />
+  <img src="Z:/picture/008/save_picture_792180.jpg" />
 </div>
 
 
@@ -649,33 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02AF89690731DF7A205AE25F8538C9FA973C4EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989458   (789230) от 13.01.2019
-
-Мэри Поппинс / Mary Poppins (1964) BDRip [H.264/720p-LQ]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семейство Бенкс озабоченно поисками няни для своих детей. И как это бывает только в сказке, она появилась прямо из воздуха, прекрасная, ни на кого не похожая. Как раз такая, какую мечтали бы иметь в своем доме всякие любящие родители.
-У неё не просто цветущий вид. Она не просто лучше всех умеет готовить, ходить по магазинам, одеваться, танцевать и воспитывать детей. (   Читать дальше...   )Производство: США, Walt Disney PicturesЖанр: Комедия, Семейный, Мьюзикл, Фэнтези, АнимацияРежиссер: Роберт СтивенсонАктеры: Джули Эндрюс, Дик Ван Дайк, Дэвид Томлинсон, Глинис Джонс, Гермиона Бадделей, Рита Шоу, Карен Дотрис, Мэттью Гарбер, Эльза Ланчестер, Артур ТричерПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 02:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3822A0A210CEA47F329074C871D289181E014A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

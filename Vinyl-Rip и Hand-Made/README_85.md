@@ -1,3 +1,234 @@
+###  Публикация: 1789497   (68308) от 04.04.2025
+
+Fear Factory - Soul of a New Machine (1992) [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martyr
+02. Leechmaster
+03. Scapegoat
+04. Crisis(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1775CC07957D90414BDE74C7A396FCD909571E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789276   (68303) от 04.04.2025
+
+Nightwish - Elan (2015) (Singles) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sympho Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Elan (Album Version) (04:49)
+02 - Sagan (04:48)
+03 - Elan (Alternative Version) (04:23)
+04 - Elan (Radio Edit) (04:05)Жанр: Sympho Power MetalПродолжительность: 00:18:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF392143174B25ECAA490780A20E5591EBC14111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732437   (68261) от 05.04.2025
+
+Frantic Amber - Studio Albums (3 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frantic Amber — метал-группа с женским вокалом, в состав которой входят участники из четырех разных стран (Швеция, Норвегия, Дания и Япония)2015 - Burning Insight
+2019 - Bellatrix
+2025 - Death Becomes HerЖанр: Melodic Death MetalПродолжительность: 02:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3058D7D8DF78CC841FE566549FD4E2792F885D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789539   (68253) от 05.04.2025
+
+Nightwish - Dark Passion Play (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Poet and the Pendulum
+02. Bye Bye Beautiful
+03. Amaranth
+04. Cadence of Her Last Breath(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A923C525758C4E7ABFEF868315057A498F9C75AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789587   (68231) от 05.04.2025
+
+Ne Obliviscaris - Studio Albums (6 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ne Obliviscaris - австралийская метал-группа из Мельбурна, сформированная в апреле 2003 года.2012 - Portal Of I
+2014 - Citadel
+2015 - Hiraeth (EP)
+2015 - Sarabande To Nihil (EP)Жанр: Extreme Progressive MetalПродолжительность: 04:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33948BD0E0D92516A1CA929615ABD7B2802C3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783158   (68217) от 06.04.2025
+
+Fatal Embrace (Germany) - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fatal Embrace - трэш-метал-группа из Берлина, Германия, образованная в начале 1993 года под названием Nosferatu.2000 - The Ultimate Aggression
+2002 - Legions Of Armageddon
+2006 - Dark Pounding Steel
+2010 - The Empires Of InhumanityЖанр: Thrash MetalПродолжительность: 05:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD947D813C35DC373CEE754CA10FFBE71E514546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789703   (68209) от 06.04.2025
+
+Manowar - Battle Hymns (1982) Reissue, 1987, Liberty [DSD|tracks|Vinyl-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68209.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Death Tone
+A2 Metal Daze
+A3 Fast Taker
+A4 Shell Shock(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2ED05EF6FE0C72B96C9CE05E069E1EE027D524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789640   (68207) от 06.04.2025
+
+Fear Factory - Fear Is the Mindkiller (1993) (EP) [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martyr (Suffer Bastard Mix)
+02. Self Immolation (Vein Tap Mix)
+03. Scapegoat (Pigfuck Mix)
+04. Scumgrief (Deep Dub Trauma Mix)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D44B320084E461C851CC99C60CF820B566F894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789687   (68202) от 06.04.2025
 
 Nightwish - Bye Bye Beautiful (2008) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
@@ -6,7 +237,7 @@ Nightwish - Bye Bye Beautiful (2008) (Single) [FLAC|24/192|image + .cue|Vinyl-Ri
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68202.jpg" />
 </div>
 
 
@@ -34,7 +265,7 @@ Manowar - Defender (1983) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy M
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68196.jpg" />
 </div>
 
 
@@ -61,7 +292,7 @@ Manowar - Into Glory Ride (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68166.jpg" />
 </div>
 
 
@@ -90,7 +321,7 @@ Fear Factory - Demanufacture (1995) Reissue, 2007, Cargo Records [FLAC|24/192|tr
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68144.jpg" />
 </div>
 
 
@@ -119,7 +350,7 @@ Dream Theater - Metropolis Pt. 2: Scenes from a Memory (1999) Reissue, 2025, Rhi
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68120.jpg" />
 </div>
 
 
@@ -148,7 +379,7 @@ Akolyth - Akolyth (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68101.jpg" />
 </div>
 
 
@@ -177,7 +408,7 @@ Daylight Dies - Studio Albums (5 releases) (2000-2012) hand made [restored, decl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68100.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68100.jpg" />
 </div>
 
 
@@ -206,7 +437,7 @@ Nightwish - The Crow, the Owl and the Dove (2012) (Single) [FLAC|24/192|image + 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68096.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68096.jpg" />
 </div>
 
 
@@ -235,7 +466,7 @@ Nightwish - Endless Forms Most Beautiful (2015) [FLAC|24/192|image + .cue|Vinyl-
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68087.jpg" />
 </div>
 
 
@@ -264,7 +495,7 @@ Manowar - Sign of the Hammer (1984)  [FLAC|24/192|tracks|Vinyl-Rip]<Heavy Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68082.jpg" />
 </div>
 
 
@@ -293,7 +524,7 @@ Fear Factory - Obsolete (1998) Reissue, 2018, Roadrunner Records [FLAC|24/192|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68071.jpg" />
 </div>
 
 
@@ -322,7 +553,7 @@ Fear Factory - Digimortal (2001) Reissue, 2007, Roadrunner Records [FLAC|24/192|
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68068.jpg" />
 </div>
 
 
@@ -351,7 +582,7 @@ Elusive (Norway) - Studio Albums (3 releases) (2001-2007) hand made [restored, d
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67998.jpg" />
 </div>
 
 
@@ -379,7 +610,7 @@ Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sym
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67975.jpg" />
 </div>
 
 
@@ -408,7 +639,7 @@ Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Met
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67970.jpg" />
 </div>
 
 
@@ -437,7 +668,7 @@ Macbeth (Germany) - Studio Albums (5 releases) (2006-2020) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67955.jpg" />
 </div>
 
 
@@ -467,7 +698,7 @@ Metallica - Reload (1997) Reissue, 2015, Blackened [FLAC|24/192|tracks|Vinyl-Rip
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67920.jpg" />
 </div>
 
 
@@ -496,7 +727,7 @@ Macbeth (Italy) - Studio Albums (5 releases) (1998-2014) hand made [restored, de
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67888.jpg" />
 </div>
 
 
@@ -510,237 +741,6 @@ Macbeth - проект, родившийся в 1995 году, в Милане, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25051DCFDB15ADED0E3744665FC2153A3EA98249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791208   (67875) от 12.04.2025
-
-Manowar - Sign of the Hammer (1984) Japan [WavPack|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One :
-01. All Men Play On 10
-02. Animals
-03. Thor (The Powerhead)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3377F5E3AADEEB80833FAF0FF89130877AAD1B28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791185   (67870) от 12.04.2025
-
-Fear Factory - Mechanize (2010) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mechanize
-02. Industrial Discipline
-03. Fear Campaign
-04. Powershifter(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C8B00C61D0D2D06DFC19C06398EE8B4230F979
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791955   (67772) от 17.04.2025
-
-Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fighting The World
-02. Blow Your Speakers
-03. Carry On
-04. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52A4B11ABB53EDF7C9CAE2277412FA2AFFBFA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791908   (67768) от 17.04.2025
-
-Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67768.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 You Wanna Love Me • Ты Снова Хочешь Меня Любить
-A2 Everybody Knows • Всем Известно
-A3 Bad Girl • Плохая Девчонка
-A4 I Feel The Heat Of The Night • Я Чувствую Жар Ночи(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D87B9C631605660766791C2BDC4A3E6F87046EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791357   (67762) от 17.04.2025
-
-Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music
-02. Noise
-03. Shoemaker
-04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A9D05148E448F7B57F62B866C2D20A315C7588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791405   (67759) от 17.04.2025
-
-Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67759.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fighting The World
-A2 Blow Your Speakers
-A3 Carry On
-A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EE362D7BB4F8975E2E84D7050B8705647A7EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791931   (67757) от 17.04.2025
-
-Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Damnation Plan - метал-группа из Эспоо, Финляндия, образована в 2004 году.2013 - The Wakening
-2017 - Reality Illusion
-2023 - The New HorizonЖанр: Progressive/Melodic Groove MetalПродолжительность: 02:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1683E08EECD22897B0BC9C3A35ACCEB85624A8BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791741   (67756) от 17.04.2025
-
-Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67756.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1-Eye For An Eye
-A2-No Hope = No Fear
-A3-Bleed
-A4-Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCF9F0D8C0D076FDFEDBBC808DAA98297268B6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

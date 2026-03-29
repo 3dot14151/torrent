@@ -1,3 +1,31 @@
+###  Публикация: 1145037   (619510) от 26.06.2017
+
+Проекты - Motion Array - Glitch Promo Slideshow - 32660 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_619510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glitch Promo Slideshow - это современный шаблон After Effects.
+Изображения/видео со стильным искажающим эффектом и цифровыми переходами. 20 заполнителей для изображений/видео и 20 редактируемых текстовых строк делают его простым в использовании и идеальным шаблоном для множества проектов.
+Легко создайте захватывающее слайд-шоу, презентацию или вступительные видео (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A36054949D1051F10FC1B73D886F1B3E14BEA25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145555   (619507) от 26.06.2017
 
 Проекты - Motion Array - Smile Slideshow - 37222 [AEP]
@@ -6,7 +34,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619507.jpg" />
+  <img src="Z:/picture/008/save_picture_619507.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619486.jpg" />
+  <img src="Z:/picture/008/save_picture_619486.jpg" />
 </div>
 
 
@@ -62,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618735.jpg" />
+  <img src="Z:/picture/008/save_picture_618735.jpg" />
 </div>
 
 
@@ -88,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617674.jpg" />
+  <img src="Z:/picture/008/save_picture_617674.jpg" />
 </div>
 
 
@@ -114,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617647.jpg" />
+  <img src="Z:/picture/008/save_picture_617647.jpg" />
 </div>
 
 
@@ -142,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617591.jpg" />
+  <img src="Z:/picture/008/save_picture_617591.jpg" />
 </div>
 
 
@@ -168,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616946.jpg" />
+  <img src="Z:/picture/008/save_picture_616946.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616631.jpg" />
+  <img src="Z:/picture/008/save_picture_616631.jpg" />
 </div>
 
 
@@ -221,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615325.jpg" />
+  <img src="Z:/picture/008/save_picture_615325.jpg" />
 </div>
 
 
@@ -247,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615324.jpg" />
+  <img src="Z:/picture/008/save_picture_615324.jpg" />
 </div>
 
 
@@ -273,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615319.jpg" />
+  <img src="Z:/picture/008/save_picture_615319.jpg" />
 </div>
 
 
@@ -299,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615318.jpg" />
+  <img src="Z:/picture/008/save_picture_615318.jpg" />
 </div>
 
 
@@ -325,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615317.jpg" />
+  <img src="Z:/picture/008/save_picture_615317.jpg" />
 </div>
 
 
@@ -351,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615316.jpg" />
+  <img src="Z:/picture/008/save_picture_615316.jpg" />
 </div>
 
 
@@ -377,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615315.jpg" />
+  <img src="Z:/picture/008/save_picture_615315.jpg" />
 </div>
 
 
@@ -403,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615311.jpg" />
+  <img src="Z:/picture/008/save_picture_615311.jpg" />
 </div>
 
 
@@ -429,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615310.jpg" />
+  <img src="Z:/picture/008/save_picture_615310.jpg" />
 </div>
 
 
@@ -455,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615271.jpg" />
+  <img src="Z:/picture/008/save_picture_615271.jpg" />
 </div>
 
 
@@ -481,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613874.jpg" />
+  <img src="Z:/picture/008/save_picture_613874.jpg" />
 </div>
 
 
@@ -507,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613753.jpg" />
+  <img src="Z:/picture/008/save_picture_613753.jpg" />
 </div>
 
 
@@ -534,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613657.jpg" />
+  <img src="Z:/picture/008/save_picture_613657.jpg" />
 </div>
 
 
@@ -560,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613435.jpg" />
+  <img src="Z:/picture/008/save_picture_613435.jpg" />
 </div>
 
 
@@ -586,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612542.jpg" />
+  <img src="Z:/picture/008/save_picture_612542.jpg" />
 </div>
 
 
@@ -612,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611669.jpg" />
+  <img src="Z:/picture/008/save_picture_611669.jpg" />
 </div>
 
 
@@ -638,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611535.jpg" />
+  <img src="Z:/picture/008/save_picture_611535.jpg" />
 </div>
 
 
@@ -649,32 +677,6 @@ Glass Slideshow Titles - "стеклянное" слайд-шоу в динам�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4560B936D8B2D6B81DD72221613256F37CA2EDA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230873   (610432) от 15.06.2018
-
-Проекты - VideoHive - Kitten Loft - 14787460 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kitten Loft - шаблон After Effects для оформления ваших семейных фотографий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E644C8C3C99678485EC2AEF8FFBF6934362F9E96
 ```
 
 https://mybot314.ru/tekegram_catalog/

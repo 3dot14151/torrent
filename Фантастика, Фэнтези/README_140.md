@@ -1,3 +1,56 @@
+###  Публикация: 1241252   (521068) от 16.08.2018
+
+Евгений Гузеев | Будь здоров, жмурик (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521068.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Будь здоров, жмурик» – новая литературная работа и четвертая книга Евгения Гузеева. Это рассказ о смерти и жизни – именно в такой последовательности, поскольку события, описанные героем, пережившим смерть, вовсе не кончаются остановкой дыхания и сердца, а имеют продолжение в условиях иного мира – лишенного привычной материи. В этой книге смерть героя им самим и (   Читать дальше...   )Жанр: Попаданцы, Социальная фантастика, Юмористическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:218034D836A62DB46DFF6719FCAD0A6B66AE51D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241219   (521061) от 16.08.2018
+
+Томас Тимайер | Цикл «Хроники искателей миров» [5 книг] (2012-2015) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_521061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о человеке по имени Карл Фридрих Донхаузер, который называл себя сыном великого натуралиста Вильгельма фон Гумбольдта.
+Вместе со своими верными спутниками он не раз наведывался в самые глухие и неисследованные уголки Земли, стирая одно за другим с карты «белые пятна», открывал неведомые миру народы и племена, завязывал дружбу с невероятными существами, (   Читать дальше...   )Жанр: ФэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650AD7A3C58C660311C0A4BA2DC732CEC58211C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534201   (521041) от 12.08.2012
 
 Кристофер Прист |  Лотерея [2007] [FB2][TXT][JAVA (jar+jad)]
@@ -6,7 +59,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521041.jpg" />
+  <img src="Z:/picture/008/save_picture_521041.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520967.jpg" />
+  <img src="Z:/picture/008/save_picture_520967.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520951.jpg" />
+  <img src="Z:/picture/008/save_picture_520951.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520781.jpg" />
+  <img src="Z:/picture/008/save_picture_520781.jpg" />
 </div>
 
 
@@ -112,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520729.jpg" />
+  <img src="Z:/picture/008/save_picture_520729.jpg" />
 </div>
 
 
@@ -138,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520610.jpg" />
+  <img src="Z:/picture/008/save_picture_520610.jpg" />
 </div>
 
 
@@ -164,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520539.jpg" />
+  <img src="Z:/picture/008/save_picture_520539.jpg" />
 </div>
 
 
@@ -192,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520537.jpg" />
+  <img src="Z:/picture/008/save_picture_520537.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520054.jpg" />
+  <img src="Z:/picture/008/save_picture_520054.jpg" />
 </div>
 
 
@@ -244,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519970.jpg" />
+  <img src="Z:/picture/008/save_picture_519970.jpg" />
 </div>
 
 
@@ -273,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519951.jpg" />
+  <img src="Z:/picture/008/save_picture_519951.jpg" />
 </div>
 
 
@@ -307,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519944.jpg" />
+  <img src="Z:/picture/008/save_picture_519944.jpg" />
 </div>
 
 
@@ -342,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519342.jpg" />
+  <img src="Z:/picture/008/save_picture_519342.jpg" />
 </div>
 
 
@@ -368,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519053.jpg" />
+  <img src="Z:/picture/008/save_picture_519053.jpg" />
 </div>
 
 
@@ -401,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518339.jpg" />
+  <img src="Z:/picture/008/save_picture_518339.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518336.jpg" />
+  <img src="Z:/picture/008/save_picture_518336.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518308.jpg" />
+  <img src="Z:/picture/008/save_picture_518308.jpg" />
 </div>
 
 
@@ -482,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518304.jpg" />
+  <img src="Z:/picture/008/save_picture_518304.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518302.jpg" />
+  <img src="Z:/picture/008/save_picture_518302.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518228.jpg" />
+  <img src="Z:/picture/008/save_picture_518228.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518216.jpg" />
+  <img src="Z:/picture/008/save_picture_518216.jpg" />
 </div>
 
 
@@ -588,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518184.jpg" />
+  <img src="Z:/picture/008/save_picture_518184.jpg" />
 </div>
 
 
@@ -616,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518099.jpg" />
+  <img src="Z:/picture/008/save_picture_518099.jpg" />
 </div>
 
 
@@ -642,7 +695,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518089.jpg" />
+  <img src="Z:/picture/008/save_picture_518089.jpg" />
 </div>
 
 
@@ -655,63 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A5C497DE4273DD1EA60C3E9B0CA935E4928D8B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314665   (518087) от 15.07.2019
-
-Гарднер Дозуа (сост.) | Книга магии [сборник] (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Волшебники, чародеи, сверхлюди, обладающие воинственным, а порой и склочным характером и ведущие весьма странный образ жизни…
-Последний сборник Гарднера Дозуа (1947–2018), одного из величайших редакторов и энтузиастов фантастики, расскажет читателю:
-– о Джеке-попрыгунчике, неуловимом грабителе, попавшем в неожиданную ловушку,
-– о последних днях Умирающей земли, – (   Читать дальше...   )Жанр: Зарубежное фэнтези, Книги про волшебниковПеревод: Вера Соломакина, И. Меньшакова, Л. Козлова-Гантман, С. В. РезникФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4E2AB3C26BB7CE80439B65C3BFD6006DE78A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314613   (518083) от 15.07.2019
-
-Роберт А. Сальваторе | Месть железного дворфа (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман трилогии «Кодекс Компаньонов» из цикла о Дзирте До'Урдене.
-
-Воссоединение Компаньонов из Халла было недолгим – они снова разлучены. Друзья оказываются в центре войны, истинные причины и цели которой гораздо серьезнее, чем кто-либо из них может вообразить. Они сражаются за Мифрил Халл, но в действительности на чашу весов положены их собственные души и (   Читать дальше...   )Жанр: ФэнтезиПеревод: Ольга РатниковаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DD30CE027289E79C5C968920717C46ADD14C6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

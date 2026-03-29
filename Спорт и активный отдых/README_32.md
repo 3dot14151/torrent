@@ -1,3 +1,197 @@
+###  Публикация: 1478896   (1009980) от 21.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа A. 3-й тур. Швейцария — Турция (2021) HDT [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года.
+20 июня 2021, воскресенье. 19:00 МСК
+Группа A. 3-й тур.
+Швейцария — Турция(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7C751E97894FF2E50A25EEAF605D74F39F3F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478882   (1009976) от 21.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа A. 3-й тур. Италия — Уэльс (2021) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года.
+20 июня 2021, воскресенье. 19:00 МСК
+Группа A. 3-й тур.
+Италия — Уэльс(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: Русские (отключаемые)Продолжительность: 01:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D486BD634E60F2291FFD06D47FC9ABFF9ECA220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478887   (1009975) от 21.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа A. 3-й тур. Италия — Уэльс (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года.
+20 июня 2021, воскресенье. 19:00 МСК
+Группа A. 3-й тур.
+Италия — Уэльс(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F44BEAD0D85E9094E432279845624838E686ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479062   (1009819) от 22.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Обзор матчей (22.06.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года. Обзор матчей. 3й тур.11й день (22.06.2021)Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941F7E1FED19C00CA73CF1159CC3B412B362A56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479053   (1009812) от 22.06.2021
+
+Футбол. Чемпионат Европы 2020. Групповой этап. Группа B. 3-й тур. Россия - Дания (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Европы по футболу 2020 года. Групповой этап. Группа B. 3-й тур. Россия - Дания. 21 июня 2021, понедельник. 22:00 МСК
+СУДЬЯ Тюрпен Клеман (Улинс, Франция)
+Судья на линии 1: Дано Николя (Франция)
+Судья на линии 2: Гренгор Сириль (Франция)(   Читать дальше...   )Телекомпания: Первый HDЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:145CDBE79FD8705409E2F9B43F15C200DB229422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478975   (1009801) от 22.06.2021
+
+ДТМ 2021. Монца, Гонка 1-2 / DTM 2021. Monza, Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовной чемпионат) — немецкий чемпионат по кузовным гонкам, проводившийся в 1984—1996 годах. В свою очередь, в 2000 году чемпионат возродился как нынешний ДТМ (Deutsche Tourenwagen Masters), ввиду чего старый чемпионат также может называться «старый ДТМ».Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Степан Афонин)Субтитры: ОтсутствуютПродолжительность: 01:33:41 + 01:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BB962518FC0BEDCA0C3A0A8CEE9878B0AC2ED62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478987   (1009791) от 22.06.2021
+
+Формула Е. Сезон 2021. Этап 8-9. Мексика. Квалификация 2, Гонка 1,2 / Formula E. 2021. R8-9. Puebla E-Prix. Quali 2, Race 1,2 (19-20.06.2021) (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009791.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 этап электрической формулы Formula E в Мексика, Пуэбла.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 01:49:14 + 01:42:21 + 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFECE18DFCC57F39425B476C64B6135575E29E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479144   (1009785) от 22.06.2021
 
 Футбол. Чемпионат Европы 2020. Групповой этап. Группа C. 3-й тур. Северная Македония — Нидерланды (2021) HDTV [H.264/1080i-LQ]
@@ -6,7 +200,7 @@
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009785.jpg" />
 </div>
 
 
@@ -35,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009776.jpg" />
 </div>
 
 
@@ -64,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009664.jpg" />
 </div>
 
 
@@ -90,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009660.jpg" />
 </div>
 
 
@@ -119,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009659.jpg" />
 </div>
 
 
@@ -148,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009656.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009656.jpg" />
 </div>
 
 
@@ -177,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009545.jpg" />
 </div>
 
 
@@ -205,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009531.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009531.jpg" />
 </div>
 
 
@@ -234,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009530.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009530.jpg" />
 </div>
 
 
@@ -263,7 +457,7 @@ MotoGP. Этап 09. Гран-при Нидерландов. Квалифика�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009283.jpg" />
 </div>
 
 
@@ -289,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009274.jpg" />
 </div>
 
 
@@ -316,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009244.jpg" />
 </div>
 
 
@@ -344,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009135.jpg" />
 </div>
 
 
@@ -373,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009131.jpg" />
 </div>
 
 
@@ -399,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008975.jpg" />
 </div>
 
 
@@ -428,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008973.jpg" />
 </div>
 
 
@@ -457,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008939.jpg" />
 </div>
 
 
@@ -483,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008938.jpg" />
 </div>
 
 
@@ -512,7 +706,7 @@ MotoGP. Этап 09. Гран-при Нидерландов. Гонка (27.06.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008919.jpg" />
 </div>
 
 
@@ -523,208 +717,6 @@ MotoGP. Этап 09. Гран-при Нидерландов. Гонка (27.06.2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7B0D4A155546B651E476A00D09EC6FF086E5465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480576   (1008823) от 29.06.2021
-
-Футбол. Чемпионат Европы 2020. 1/8 Финала. Франция - Швейцария (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008823.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года. 1/8 Финала. Франция - Швейцария. 28 июня 2021, понедельник. 22:00 МСК
-СУДЬЯ Рапаллини Фернандо (Аргентина)
-Судья на линии 1: Белатти Хуан Пабло (Аргентина)
-Судья на линии 2: Бонфа Диего (Аргентина)(   Читать дальше...   )Телекомпания: Россия 1HDЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CEC4112A404C793FC36C78BF57AAB14B040F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480648   (1008805) от 29.06.2021
-
-НХЛ. Кубок Стэнли 2020-2021. Финал. 1-й матч. Монреаль Канадиенс - Тампа-Бэй Лайтнинг (28.06.2021) WEB-DL [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008805.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 июня 2021, вторник. 03:00 МСК
-Кубок Стэнли. 1-й матч. Стадион: Амали-Арена (Тампа, США), 15 911 зрителей (82% при вместимости 19 500)
-Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Франсис Шаррон (Оттава, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF80E53A506DFADF2E83075A17E634B4142A08E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480904   (1008708) от 30.06.2021
-
-Футбол. Чемпионат Европы 2020. Плей-офф. 1/8 Финала. Франция — Швейцария (2021) HDTV [H.264/1080i]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года.
-28 июня 2021, понедельник. 22:00 МСК
-1/8 Финала.
-Франция — Швейцария(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: Русские (отключаемые)Продолжительность: 02:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364EFE95AD0D98D821F7FE801A4BF6B8FDBC851D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480775   (1008705) от 30.06.2021
-
-Футбол. Чемпионат Европы 2020. 1/8 Финала. Англия - Германия (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года. 1/8 Финала. Англия - Германия. 29 июня 2021, вторник. 19:00 МСК
-СУДЬЯ Маккели Данни (Нидерланды)
-Судья на линии 1: Стеегстра Хессел (Нидерланды)
-Судья на линии 2: де Врис Ян (Нидерланды)(   Читать дальше...   )Телекомпания: Первый HDЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2331B814F630A5006A95A0D19E4A3F451C4E1A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480909   (1008702) от 30.06.2021
-
-Футбол. Чемпионат Европы 2020. Плей-офф. 1/8 Финала. Англия — Германия (2021) HDTV [H.264/1080i]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года.
-29 июня 2021, вторник. 19:00 МСК
-1/8 Финала.
-Англия — Германия(   Читать дальше...   )Телекомпания: Первый канал HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666588D4E478853B6F319F9C0F88BF26AF8AFF2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480752   (1008701) от 30.06.2021
-
-Футбол. Чемпионат Европы 2020. Плей-офф. 1/8 Финала. Хорватия — Испания (2021) HDTV [H.264/1080i]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года.
-28 июня 2021, понедельник. 19:00 МСК
-1/8 Финала.
-Хорватия — Испания(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E68BF32B915892FB2F6B63B3372C74BC5372A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480917   (1008552) от 01.07.2021
-
-Футбол. Чемпионат Европы 2020. Плей-офф. 1/8 Финала. Швеция — Украина (2021) HDTV [H.264/1080i]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года.
-29 июня 2021, вторник. 22:00 МСК
-1/8 Финала.
-Швеция — Украина(   Читать дальше...   )Телекомпания: Россия 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: Русские (отключаемые)Продолжительность: 02:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7668729C02691561C89422549B49A2A98A0AD5E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

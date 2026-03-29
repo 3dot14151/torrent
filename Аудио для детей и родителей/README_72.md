@@ -1,3 +1,84 @@
+###  Публикация: 1541589   (232823) от 03.04.2022
+
+Джанни Родари | Путешествие Голубой стрелы (2006) [MP3, Марианна Шульц]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_232823.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трогательная рождественская сказка Джанни Родари, написанная увлекательно, немного иронично, а местами даже грустно, но в целом добрая и веселая, увлекательно описывает волшебное путешествие игрушечного поезда "Голубая Стрела" и его кукольных пассажиров, сбежавших в рождественскую ночь из игрушечного магазина, чтобы встретиться с полюбившими их детьми. (   Читать дальше...   )Жанр: Детская литература. СказкаПродолжительность: 03:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439C1708298DB8F08A968A60D83E8CA7D4829907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643385   (232682) от 01.07.2023
+
+Гершен Кауфман и др. | Ты сильнее, чем ты думаешь. Гид по твоей самооценке (2021) [MP3, Олеся Массальская]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как объяснить родителям, что ты уже взрослый? Как управлять своим гневом и не поддаваться на провокации? Как разговаривать об эмоциях? Как не робеть перед трудностями?
+
+Книга ответит на все эти вопросы подростка. Научит его принимать ответственность за собственную жизнь, осознавать свои чувства и потребности, быть уверенным в том, что он заслуживает счастливой, насыщенной (   Читать дальше...   )Жанр: воспитание детей, детская психология, зарубежная психология, саморазвитие / личностный ростПеревод: Виктория СтепановаЯзык озвучки: русскийПродолжительность: 03:14:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB11E049288358B64928C10E8570C683C617D89A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646118   (232499) от 13.07.2023
+
+Кун Схобберс, Дейрдре Энтховен | Мой ребенок – геймер (2023) [MP3, Ирина Булекова]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аудиокнига поможет понять ребенка-геймера, наладить с ним отношения и договориться о компромиссах
+Кун Схобберс – первый нидерландский киберспортсмен, добившийся успеха в большом спорте, и бывший ведущий программы «Внутри киберспорта» (Inside Esports). Сейчас он поддерживает родителей детей-геймеров с помощью своей платформы «Родители игры» (Parents of Play).Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 10:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FAB65C4C92C6C84F5C9028329E5989ED29C92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1646113   (232483) от 13.07.2023
 
 Карен Бенке | Пиши ещё! Руководство для начинающего писателя (2022) [MP3, Елена Уфимцева]
@@ -6,7 +87,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_232483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_232483.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231842.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231842.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231348.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ VA - Happy Baby Series: For The New Arrival (1999) [MP3|192 kbps]<Музыка �
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230725.jpg" />
+  <img src="Z:/picture/005/save_picture_230725.jpg" />
 </div>
 
 
@@ -117,7 +198,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230287.jpg" />
 </div>
 
 
@@ -146,7 +227,7 @@ VA -Золотые хиты для детей - (2CD) (2003) [MP3|320 кб/с]<�
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230004.jpg" />
+  <img src="Z:/picture/005/save_picture_230004.jpg" />
 </div>
 
 
@@ -175,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229575.jpg" />
+  <img src="Z:/picture/004/save_picture_229575.jpg" />
 </div>
 
 
@@ -201,7 +282,7 @@ VA - Очарование Детства (2014) 4CD, Мульт Мелодии [
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228413.jpg" />
+  <img src="Z:/picture/005/save_picture_228413.jpg" />
 </div>
 
 
@@ -230,7 +311,7 @@ VA - Песни на стихи А.Барто. Игрушки (2011) [MP3|320 к
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226591.jpg" />
 </div>
 
 
@@ -259,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_226565.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_226565.jpg" />
 </div>
 
 
@@ -288,7 +369,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226401.jpg" />
+  <img src="Z:/picture/005/save_picture_226401.jpg" />
 </div>
 
 
@@ -315,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226228.jpg" />
+  <img src="Z:/picture/005/save_picture_226228.jpg" />
 </div>
 
 
@@ -341,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225845.jpg" />
+  <img src="Z:/picture/005/save_picture_225845.jpg" />
 </div>
 
 
@@ -367,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225794.jpg" />
+  <img src="Z:/picture/005/save_picture_225794.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225727.jpg" />
+  <img src="Z:/picture/005/save_picture_225727.jpg" />
 </div>
 
 
@@ -420,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225691.jpg" />
+  <img src="Z:/picture/005/save_picture_225691.jpg" />
 </div>
 
 
@@ -449,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225647.jpg" />
+  <img src="Z:/picture/005/save_picture_225647.jpg" />
 </div>
 
 
@@ -475,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225588.jpg" />
+  <img src="Z:/picture/005/save_picture_225588.jpg" />
 </div>
 
 
@@ -503,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225579.jpg" />
+  <img src="Z:/picture/005/save_picture_225579.jpg" />
 </div>
 
 
@@ -532,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225409.jpg" />
+  <img src="Z:/picture/005/save_picture_225409.jpg" />
 </div>
 
 
@@ -560,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224743.jpg" />
+  <img src="Z:/picture/005/save_picture_224743.jpg" />
 </div>
 
 
@@ -589,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224440.jpg" />
+  <img src="Z:/picture/005/save_picture_224440.jpg" />
 </div>
 
 
@@ -618,7 +699,7 @@ VA - Jazz For Kids (2022) [MP3|320 Kbps] <Джаз для детей>
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224118.jpg" />
 </div>
 
 
@@ -632,91 +713,6 @@ VA - Jazz For Kids (2022) [MP3|320 Kbps] <Джаз для детей>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBAD09089893094B68E12E7C66173AE50DEFBAC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342473   (223507) от 02.12.2019
-
-VA - Новый Год 2020 (Песни для деток) (2019) [MP3|320 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223507.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Большой детский хор Гостелерадио СССР - Кукляндия (3:34)
-2.Большой детский хор ЦТ и ВР - Заводные игрушки (2:06)
-3.Валентина Толкунова - Кабы не было зимы (2:02)
-4.Ольга Рождественская, ВИА «Добры молодцы» - Снежинка (2:43)(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD3B8A17AB5EA83B0C4D2DC4D860C5220E3425A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167605   (223466) от 19.11.2020
-
-VA - Фантазёры. Новые детские песни (2017) [MP3|320 Kbps] <Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алёна Максимова - Фантазёры
-02. Алёна Максимова - Прыг-скок (Летняя песенка)
-03. Алёна Максимова - Веснянка
-04. Артём Турбин - Розочка(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C47239621CA71DC1FA0FC50FDA588639E84344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513806   (222844) от 30.11.2021
-
-Геннадий Осипов | Дыхание волка (2021) [MP3, Татьяна Николашина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222844.jpg" />
-</div>
-
-
-###  Подробнее
-
-У страха глаза очень велики.
-Однажды тринадцатилетний мальчик столкнулся в лесу нос к носу с оскалившимся матёрым волком. На секунду они встретились взглядами. По спине мальчика пробежал холодок. Угрожающая поза не оставляла сомнений в том, что волк приготовился к  прыжку...Жанр: Детская литератураПродолжительность: 00:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54B1A162A32D1B36B26FD1191146F67928C90544
 ```
 
 https://mybot314.ru/tekegram_catalog/

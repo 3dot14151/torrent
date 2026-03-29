@@ -1,3 +1,108 @@
+###  Публикация: 1287181   (705061) от 06.03.2019
+
+"Матвиенко предложила регулярно замерять индекс счастья россиян."
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_705061.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Спикер Совета Федерации Валентина Матвиенко заявила, что уровень счастья россиян нужно замерять каждый год.Как пишет Интерфакс, эти исследования помогут выяснить насколько люди стали более счастливы в результате действий и решений властей. То есть, организовать своеобразное «министерство счастья».«Так делают Арабские Эмираты. Ведь у них любое решение, которое (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 330981   (704977) от 01.05.2011
+
+Grand Theft Auto: Vice City [Ru/En] (RePack) 2003 | R.G. NoLimits-Team GameS
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать в Город Порока — Vice City, огромный людской муравейник, где есть все: золотые пляжи и зловонные болота, блеск и нищета, дворцы и трущобы. Самый громкий хит года, Vice City позволит вам заглянуть в яркий, полный черного юмора и насилия преступный мир гигантского мегаполиса, чрезвычайно напоминающего Майами. Теперь и у вас есть шанс пройти путь от обычного уличного вышибалы до представителя элиты преступного мира.
+Прибыв в мегаполис, полный соблазнов и наслаждений, главный герой Томми Верчетти теряет все в первой же сделке. Он хочет получить назад свои деньги, но на его пути встают банды байкеров, кубинские гангстеры и продажные политики. Похоже, весь Vice City ополчился против Томми. Остается только одно: отвечать ударом на удар — и, в конце концов, прибрать город к рукам!Тип издания: RepackЖанр: Action (Shooter) / Arcade / Racing (Cars / Motorcycles) / 3D / 3rd PersonЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1084AC6449F9D2193270323BE14B9FD9B9AAE6CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286884   (704689) от 06.03.2019
+
+Android 9 сделали доступным на десятках старых смартфонов
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_704689.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия операционной системы LineageOS делает Android 9 (Pie) доступным на устаревших смартфонах и планшетах, давно переставших получать официальные обновления прошивки. В список поддерживаемых устройств входят около 30 моделей, включая OnePlus One, Google Nexus 6 и несколько вариантов Samsung Galaxy S5 (вышли в 2014-м), Galaxy Tab S2 2016 года релиза, а также (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282271   (704679) от 06.03.2019
+
+Гадалка (2018) SATRip [H.264] (сезон 1, серии 1-16 из 16)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_704679.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета — столичный майор Алексей Потапов и девушка из маленького провинциального городка Люся Некрасова — на первый взгляд, странный тандем, занимающийся расследованием сложных преступлений. Люся — необычная девушка: она видит людей, места, детали преступлений.Производство: Россия / Горад / ВВП АльянсЖанр: детектив, триллерРежиссер: Илья КазанковАктеры: Михаил Пореченков, Екатерина Олькина, Яна Крайнова, Юлия Ауг, Дмитрий Репин, Михаил Парыгин, Владимир Капустин, Василий Бочкарёв, Борис Щербаков, Анна Тараторкина и др.Продолжительность: ~00:46:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3193589BB88B954A4D9DE9C8983C6AB5B1D47B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 638341   (704264) от 24.06.2013
 
 Игра Престолов / Game of Thrones  (3 сезон полный , серии 10) (2013) HDTV 720p (NovaFilm)
@@ -6,7 +111,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_704264.jpg" />
+  <img src="Z:/picture/005/save_picture_704264.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_704263.jpg" />
+  <img src="Z:/picture/005/save_picture_704263.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ Windows 10 PE (x86/x64) v.5.0.2 by Ratiborus [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704248.jpg" />
+  <img src="Z:/picture/008/save_picture_704248.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704240.jpg" />
+  <img src="Z:/picture/008/save_picture_704240.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703978.jpg" />
+  <img src="Z:/picture/005/save_picture_703978.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703971.jpg" />
+  <img src="Z:/picture/005/save_picture_703971.jpg" />
 </div>
 
 
@@ -162,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703702.jpg" />
+  <img src="Z:/picture/005/save_picture_703702.jpg" />
 </div>
 
 
@@ -188,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_703691.jpg" />
+  <img src="Z:/picture/005/save_picture_703691.jpg" />
 </div>
 
 
@@ -214,7 +319,7 @@ AusLogics BoostSpeed 9.0.0.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703408.jpg" />
+  <img src="Z:/picture/008/save_picture_703408.jpg" />
 </div>
 
 
@@ -240,7 +345,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) (x64) RePack by JFK2005 (15.06.2016
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703402.jpg" />
+  <img src="Z:/picture/008/save_picture_703402.jpg" />
 </div>
 
 
@@ -266,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703397.jpg" />
+  <img src="Z:/picture/008/save_picture_703397.jpg" />
 </div>
 
 
@@ -292,7 +397,7 @@ Adobe Premiere Pro 2020 14.3.2.42 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702988.jpg" />
+  <img src="Z:/picture/008/save_picture_702988.jpg" />
 </div>
 
 
@@ -318,7 +423,7 @@ Spellforce 3 (2017) [Ru/Multi] (1.40) Repack xatab
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702831.jpg" />
+  <img src="Z:/picture/008/save_picture_702831.jpg" />
 </div>
 
 
@@ -344,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702773.jpg" />
+  <img src="Z:/picture/008/save_picture_702773.jpg" />
 </div>
 
 
@@ -370,7 +475,7 @@ SUPERAntiSpyware Professional 6.0.1186 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702692.jpg" />
+  <img src="Z:/picture/008/save_picture_702692.jpg" />
 </div>
 
 
@@ -396,7 +501,7 @@ Adobe Media Encoder CC 2017 (v11.1.0) Multilingual Update 2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702290.jpg" />
+  <img src="Z:/picture/008/save_picture_702290.jpg" />
 </div>
 
 
@@ -422,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_702197.jpg" />
+  <img src="Z:/picture/005/save_picture_702197.jpg" />
 </div>
 
 
@@ -448,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702007.jpg" />
+  <img src="Z:/picture/008/save_picture_702007.jpg" />
 </div>
 
 
@@ -474,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_701710.jpg" />
+  <img src="Z:/picture/005/save_picture_701710.jpg" />
 </div>
 
 
@@ -500,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701498.jpg" />
+  <img src="Z:/picture/008/save_picture_701498.jpg" />
 </div>
 
 
@@ -526,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_701104.jpg" />
+  <img src="Z:/picture/005/save_picture_701104.jpg" />
 </div>
 
 
@@ -553,7 +658,7 @@ Kaspersky Internet Security 2020 21.1.15.500 (без KSeC) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701031.jpg" />
+  <img src="Z:/picture/008/save_picture_701031.jpg" />
 </div>
 
 
@@ -565,112 +670,6 @@ Kaspersky Internet Security — это оптимальная защита дл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDBCEFD95FB0AF68F891FCC7827F08DCB0201E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402457   (701028) от 14.08.2020
-
-Windows 7 SP1 х86-x64 by g0dl1ke 20.08.13
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стабильная сборка на базе MSDN windows 7 х86-x64 с интегрированными обновлениями по август 2020 года и полезными твиками, по рекомендациям simplixЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBD7DFBCA284B2BA01A132329396293EC5A16D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287220   (700784) от 08.03.2019
-
-Аквамен / Aquaman (2018) WEBRip [H.264/1080p] [IMAX]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма разворачивается в необъятном и захватывающем подводном мире семи морей, а сюжет знакомит зрителей с историей происхождения получеловека-полуатланта Артура Карри и ключевыми событиями его жизни — теми, что заставят его не только столкнуться с самим собой, но и выяснить, достоин ли он быть тем, кем ему суждено… царем!Производство: Австралия, США / DC Comics, DC Entertainment, Panoramic PicturesЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Джеймс ВанАктеры: Джейсон Момоа, Эмбер Хёрд, Уиллем Дефо, Патрик Уилсон, Николь Кидман, Дольф Лундгрен, Яхья Абдул-Матин II, Темуэра Моррисон, Луди Юэнь, Майкл БичПеревод: Дублированный (iTunes), Многоголосый закадровый (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F5E2B3A08CE82C62B30A1699396EBFBA31A0A56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877755   (700573) от 05.05.2015
-
-Сверхспособности / Сверхсилы / Powers (2015) WEBRip / WEB-DLRip (сезон 1, серии 1-10 из 10) BaibaKo
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет сериала разворачивается в мире, где супергерои живут среди обычных людей. Сотрудники убойного отдела Кристиан Уокер и Дина Пилгрим занимаются защитой простых людей от преступников со сверхспособностями и расследуют дела, в которых замешаны эти супергерои.Производство: СШАЖанр: фантастика, драма, криминалРежиссер: Дэвид Петрарка, Микаэл Саломон, Билл ИглзАктеры: Шарлто Копли, Эдди Иззард, Мишель Форбс, Сьюзэн Хэйард, Ноа Тейлор, Логан Браунинг, Джастис Лик, Эндрю Сенсениг, Адам Годли, Филлип ДеВона и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Anna_Smile, Юлия Котурбаш, Олекса Мельник и Владимир КурдовФормат: AVIПродолжительность: ~00:53:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A0279BBCB971054012462DBECDE4404CF42BDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220664   (700303) от 21.04.2018
-
-Команда МГУ впервые победила на студенческом чемпионате мира по программированию
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_700303.jpg" />
-</div>
-
-
-###  Подробнее
-
-В международном соревновании по программированию победила российская команда из МГУ.
-Призовые места также заняли еще три команды из России: МФТИ, Университет ИТМО и УрФУ
-Команда Московского государственного университета (МГУ) заняла первое место на чемпионате мира по спортивному программированию ACM ICPC (International Collegiate Programming Contest) в Пекине. Команде (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

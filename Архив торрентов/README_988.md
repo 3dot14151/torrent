@@ -6,7 +6,7 @@ PortableApps.com Platform 14.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821182.jpg" />
+  <img src="Z:/picture/008/save_picture_821182.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821178.jpg" />
+  <img src="Z:/picture/008/save_picture_821178.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Downie 2.7.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821172.jpg" />
+  <img src="Z:/picture/008/save_picture_821172.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Duplicate File Finder Pro 6.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821157.jpg" />
+  <img src="Z:/picture/008/save_picture_821157.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ FSNotes 4 v4.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821155.jpg" />
+  <img src="Z:/picture/008/save_picture_821155.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821151.jpg" />
+  <img src="Z:/picture/008/save_picture_821151.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ MediaHuman Youtube Downloader 3.9.9.38 (build 1005) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821149.jpg" />
+  <img src="Z:/picture/008/save_picture_821149.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821145.jpg" />
+  <img src="Z:/picture/008/save_picture_821145.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821108.jpg" />
+  <img src="Z:/picture/008/save_picture_821108.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Freemake Video Converter 4.1.13.99 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821103.jpg" />
+  <img src="Z:/picture/008/save_picture_821103.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Screaming Frog SEO Spider 16.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821102.jpg" />
+  <img src="Z:/picture/008/save_picture_821102.jpg" />
 </div>
 
 
@@ -301,7 +301,7 @@ Kyoufu no Bio Ningen Saishuu Kyoushi / Fearsome Bio Human: The Last Teacher / У
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821077.jpg" />
+  <img src="Z:/picture/008/save_picture_821077.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821072.jpg" />
+  <img src="Z:/picture/008/save_picture_821072.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821068.jpg" />
+  <img src="Z:/picture/008/save_picture_821068.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ iMazing 2.2.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821060.jpg" />
+  <img src="Z:/picture/008/save_picture_821060.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Balsamiq Mockups For Desktop 3.3.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821057.jpg" />
+  <img src="Z:/picture/008/save_picture_821057.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821055.jpg" />
+  <img src="Z:/picture/008/save_picture_821055.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821054.jpg" />
+  <img src="Z:/picture/008/save_picture_821054.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Prison Architect (2015) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821053.jpg" />
+  <img src="Z:/picture/008/save_picture_821053.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821048.jpg" />
+  <img src="Z:/picture/008/save_picture_821048.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ EverWeb (Standalone) 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821038.jpg" />
+  <img src="Z:/picture/008/save_picture_821038.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821036.jpg" />
+  <img src="Z:/picture/008/save_picture_821036.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821034.jpg" />
+  <img src="Z:/picture/008/save_picture_821034.jpg" />
 </div>
 
 
@@ -617,7 +617,7 @@ FontExplorer X Pro 7 v7.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821031.jpg" />
+  <img src="Z:/picture/008/save_picture_821031.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Numi 3.26 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821027.jpg" />
+  <img src="Z:/picture/008/save_picture_821027.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Capture One 20 Pro v13.1.0.159 beta 3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821025.jpg" />
+  <img src="Z:/picture/008/save_picture_821025.jpg" />
 </div>
 
 

@@ -1,3 +1,61 @@
+###  Публикация: 1463856   (1019819) от 22.04.2021
+
+Hardbone - No Frills (2020) [FLAC|Lossless|image + .cue] <Hard Rock, Hard Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bang Goes The Money [0:02:55.35]
+02. Of The Beaten Track [0:03:18.43]
+03. Too Hot [0:04:04.68]
+04. A Man In His Prime [0:03:41.08](   Читать дальше...   )Жанр: Hard Rock, Hard Rock'n'RollПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87E6B194CC3574F55387C917B68F37303D3F71E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464500   (1019804) от 22.04.2021
+
+The Treatment - Waiting For Good Luck (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rat Race
+02. Take It Or Leave It
+03. Lightning In A Bottle
+04. Vampress(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFC2808227301B59943EFF81ED8F6C39E21557E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464505   (1019801) от 22.04.2021
 
 Cactus - Tightrope (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
@@ -6,7 +64,7 @@ Cactus - Tightrope (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019801.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Gilby Clarke - The Gospel Truth (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019661.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Three Seasons - 4 albums (2011-2017) [FLAC|Lossless|tracks + .cue] <Hard Rock, H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019349.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Orianthi - Believe II (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019337.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Cactus | The New Cactus Band - 11 albums, 21CD (1970-2021) [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019207.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Stratus - Throwing Shapes (1985) Reissue, 2008, Krescendo Records [FLAC|Lossless
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019165.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ West Hill - Rock 'n' Bubble (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019163.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Reach - The Promise Of A Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019158.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019158.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Jeff Carlson Band - Yesterday's Gone (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019157.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Dirty Honey - Dirty Honey (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019149.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Europe - 10 Studio Albums, 5 Live, 6 Compilation (1983 - 2021) 34 CD [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019020.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Serpentine - Сirсlе Оf Кnivеs (2015) Japanese Edition [FLAC|Lossless|image
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018986.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Y & T (Yesterday And Today) - 26 albums, 1 Box set, 45 CD (1976-2018) [FLAC|Loss
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018875.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Serpentine - А Тоuсh Оf Неаvеn (2010) Japanese Edition [FLAC|Lossless|i
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018780.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Faithful Grace - A New Era (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018648.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Doogie White - As yet Untitled - Then There Was This (2021) 2xCD, Bonus CD [FLAC
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018446.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Soulkick - No Turning Back (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018264.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Hunter - Hungry Heart (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018251.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018251.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Farcry - Balance (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018247.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018247.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Kreek - Kreek (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018118.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Siggi Schwarz - Тhе Firе Insidе (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018110.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Electric Gypsy - Electric Gypsy (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018106.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Paul Stanley - 3 Albums, 4CD (1978-2021) [FLAC|Lossless|image + .cue] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018088.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Jürgen Blackmore (J.R. Blackmore) - 4 albums (1993-2011) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018014.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Jürgen Blackmore (J.R. Blackmore) - 4 albums (1993-2011) [FLAC|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEE9CFFEC353A66BDFD8A33236F0E10B944302B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304268   (1018009) от 02.05.2021
-
-Adrian Smith & Steve Harris (Iron Maiden) Projects (1989-2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стив Харрис  — британский рок-музыкант, основатель, бессменный бас-гитарист и автор большинства песен (как музыки, так и текстов) легенларной группы Iron Maiden. Он был движущей силой величайшей металлической группы всех времен и народов на протяжении более 35 лет. Живая икона, герой и абсолютный "зверь" баса, стиль игры Стива настолько уникален, что по (   Читать дальше...   )--------------------------
-
-01. City Of Fallen Angels (5:21)
-02. The Burning (5:15)(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock |Продолжительность: 07:05:55 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44A8EBDEB67820A3C0460410D3EF8D5D15EF4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467434   (1017592) от 05.05.2021
-
-Seven Ravens - Barely Hanging On (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wouldn’t Change a Thing (04:21)
-02. Wake Up (05:00)
-03. Keep a Light On (05:19)
-04. Cold (04:09)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02ED65A765ADE3F3E95DF6B5E2B3B5536D219C68
 ```
 
 https://mybot314.ru/tekegram_catalog/

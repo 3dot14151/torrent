@@ -1,3 +1,107 @@
+###  Публикация: 1771894   (71807) от 08.01.2025
+
+Федор Достоевский | Идиот (2009) [MP3, Александр Васильев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федор Михайлович Достоевский – великий русский классик и психолог. В его произведениях неподражаемо реалистично раскрываются ключевые стереотипные характеры общества. Видимо, это общество не только русское, ибо не имел бы всемирного признания гений Достоевского. В романе, пятом по счету написания, Федор Михайлович представляет читателю своеобразное видение явления (   Читать дальше...   )Жанр: Русская классика, романИздательство: Вира-МПродолжительность: 25:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF4BDFC2A386A211226C192A48BDCA3548DB206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771895   (71803) от 08.01.2025
+
+Федор Достоевский | Идиот (2013) [MP3, Александр Андриенко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71803.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Идиот» — роман, в котором Достоевский впервые с подлинной страстью, ярко и полно изобразил положительного героя, каким его представлял. В князе Мышкине соединились одновременно, умиротворенность, граничащая с беспечностью, и невозможность пройти мимо беды ближнего. В «нормальном» обществе людей, одержимых корыстью и разрушительными страстями, князь Мышкин — идиот. (   Читать дальше...   )Жанр: Русская классика, романИздательство: Предание.руПродолжительность: 27:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C9CEB063001AD95FAEA01081169FC216FD142FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771889   (71797) от 08.01.2025
+
+Федор Достоевский | Идиот (2014) [MP3, Владимир Еремин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Князь Мышкин, главный герой знаменитого романа Ф. М. Достоевского «Идиот», несет людям проповедь сострадания, прощения, милосердия и братства. Однако надежды его рушатся: становится убийцей «крестный брат» Рогожин, гибнет «красота» Настасья Филипповна… И все-таки без таких людей, как князь, мир не существует. «Он только прикоснулся к их жизни, – пишет Достоевский. (   Читать дальше...   )Жанр: Русская классика, романИздательство: ИП Сергей ГригорянПродолжительность: 26:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57B13405A7E317A408D5C22B6599D5BE3FC1859
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773849   (71662) от 17.01.2025
+
+Фёдор Достоевский | Село Степанчиково и его обитатели (2024) [MP3, Михаил Богдасаров]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сергей Александрович, столичный студент, узнает, что с семьей его опекуна Ростанева творятся какие-то странные и неприятные вещи. Со свойственной ему самоуверенностью он немедленно решает во всем разобраться, и для того отправляется в поместье. Встречающийся ему по дороге сосед Ростанева рассказывает о вещах столь абсурдных и жутких, что в них и поверить-то сложно. (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: АРДИСПродолжительность: 09:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6737DE79081170F59D6002DCD99D4442EA4E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1773783   (71659) от 17.01.2025
 
 Александр Грибоедов | Горе от ума (1939) [MP3, Василий Качалов, Михаил Тарханов, Иван Москвин и др.]
@@ -6,7 +110,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71659.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71633.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71633.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71631.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71630.jpg" />
 </div>
 
 
@@ -111,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71629.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71625.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71622.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71621.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71620.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71616.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71616.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71611.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71610.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71606.jpg" />
 </div>
 
 
@@ -348,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71605.jpg" />
 </div>
 
 
@@ -375,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71601.jpg" />
 </div>
 
 
@@ -401,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71593.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71590.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71589.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71589.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71584.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71577.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71573.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71570.jpg" />
 </div>
 
 
@@ -570,111 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACF46AC7930BD3098D90B7C4844793987D1BF0A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774146   (71555) от 19.01.2025
-
-Оноре де Бальзак | Блеск и нищета куртизанок (2023) [MP3, Алексей Багдасаров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люсьену удалось попасть в высшие круги общества: теперь он уже не бедный поэт, а протеже аббата Керрера. Однако покровительство не дается даром, и Люсьен вынужден изображать чувства к богатой наследнице и скрывать от всего света свою настоящую любовь. Тем временем страшная тайна аббата Керрера грозит погубить их всех…
-Бальзак искусно и саркастично рисует полную контрастов (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: ЭвербукПродолжительность: 24:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB28EC03B281EC42A75A77AD67C0FDB00DD94B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774130   (71554) от 19.01.2025
-
-Жюль Верн | Вокруг Луны (2021) [MP3, Юрий Гуржий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небывалый эксперимент членов «Пушечного клуба», казалось, увенчался успехом: гигантский снаряд с тремя межпланетными путешественниками внутри вылетел из специально построенной пушки и умчался к Луне. Но вскоре астрономы принесли неприятное известие: по какой-то причине курс снаряда немного изменился, так что поверхности Луны ему теперь не достигнуть, и храбрым первооткрывателям (   Читать дальше...   )Жанр: Зарубежная литература, классикаИздательство: Аудиокнига своими рукамиПродолжительность: 06:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B1FDF47C80B9B729A57A1E07F93CA80186B1BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774138   (71553) от 19.01.2025
-
-Жюль Верн | Мартин Пас (2020) [MP3, Юрий Гуржий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71553.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лима, столица Перуанской республики, 20-е годы XIX века. Сын индейского вождя Мартин Пас влюблен в дочь местного ростовщика Сарру. Ее отец уже подобрал ей более подходящего жениха, но это не остановит гордого потомка инков. Мартину нельзя забывать и о другом — он и его отец руководят скорым восстанием индейцев, которые полны решимости изгнать потомков испанских колонизаторов.Жанр: Зарубежная литература, классикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D923EEAF14B5D273000C9846E8DDDBE4C975A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774135   (71552) от 19.01.2025
-
-Жюль Верн | Вокруг Луны (2023) [MP3, Сергей Демидов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71552.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вокруг Луны» – научно-фантастический роман французского писателя Жюля Верна. Продолжает рассказ о полёте на Луну, начатый в романе «С Земли на Луну прямым путем за 97 часов 20 минут». Описаны приключения трёх путешественников (Импи Барбикен, капитан Николь и Мишель Ардан), облетевших Луну в снаряде, который был запущен из огромной космической пушки.Жанр: Зарубежная литература, классикаИздательство: ИДДКПродолжительность: 06:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA9634FCE904B8C997706BA27EB3E994308676BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

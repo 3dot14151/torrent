@@ -1,3 +1,90 @@
+###  Публикация: 1131794   (705417) от 07.05.2017
+
+Black Autumn - Rivers Of Dead Leaves (2008) [FLAC|Lossless|image + .cue] <Black Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_705417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rivers of Dead Leaves 06:44
+02. A Darkness Profound 05:03
+03. Ashes 05:21
+04. Oath 06:27(   Читать дальше...   )Жанр: Black Metal, Doom MetalПродолжительность: 00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F8E4C138305DDD34BBF65645FA03DD29BBA9E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131849   (705396) от 07.05.2017
+
+Enslaved - The Sleeping Gods - Thorn (2016) [FLAC|Lossless|image + .cue] <Black Metal, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_705396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heimvegen
+02. Alu Misyrki
+03. Synthesis
+04. Nordlys(   Читать дальше...   )Жанр: Black Metal, Viking MetalПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F70FFFC414D382DAC5B19DE8C096828408CEF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131740   (705394) от 07.05.2017
+
+Cry Venom - Vanquish the Demon (2016) Japan, Reissued 2017 [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_705394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude
+02. Wolfsbane
+03. Vanquish the Demon
+04. Second Wind(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5376D1D84177DABE17845252D635A9131CF28239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533290   (705355) от 24.02.2022
 
 Aquilla - Mankind's Odyssey (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -6,7 +93,7 @@ Aquilla - Mankind's Odyssey (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705355.jpg" />
+  <img src="Z:/picture/008/save_picture_705355.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Post Mortal Possession - Valley Of The Starving (2021) [FLAC|Lossless|image + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705353.jpg" />
+  <img src="Z:/picture/008/save_picture_705353.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Diabolic - Supreme Evil (1998) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705350.jpg" />
+  <img src="Z:/picture/008/save_picture_705350.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Hellripper - The Affair Of The Poisons (Reissued-2021) (2020) [FLAC|Lossless|ima
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705161.jpg" />
+  <img src="Z:/picture/008/save_picture_705161.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ VA - A Tribute To Iron Maiden (2017) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704708.jpg" />
+  <img src="Z:/picture/008/save_picture_704708.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Dimmu Borgir - Forces of the Northern Night (2017) [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704602.jpg" />
+  <img src="Z:/picture/008/save_picture_704602.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Warbringer - Weapons Of Tomorrow (2020) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704057.jpg" />
+  <img src="Z:/picture/008/save_picture_704057.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ In This Moment - Mother (2020) [FLAC|Lossless|image + .cue] <Melodic Metalcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703543.jpg" />
+  <img src="Z:/picture/008/save_picture_703543.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Doublegeddon - Geddon Dangerous (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703354.jpg" />
+  <img src="Z:/picture/008/save_picture_703354.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Allegaeon - Damnum (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703344.jpg" />
+  <img src="Z:/picture/008/save_picture_703344.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Jasta - The Lost Chapters (2017) [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702939.jpg" />
+  <img src="Z:/picture/008/save_picture_702939.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Hellyeah - Undeniable (Unden!able) (2016) [FLAC|Lossless|tracks] <Groove Metal, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702169.jpg" />
+  <img src="Z:/picture/008/save_picture_702169.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Dark Funeral - Where Shadows Forever Reign (2016) [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702063.jpg" />
+  <img src="Z:/picture/008/save_picture_702063.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Wolfheart - Wolves Of Karelia (2020) [FLAC|Lossless|image + .cue] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701960.jpg" />
+  <img src="Z:/picture/008/save_picture_701960.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Visions Of Atlantis - The Deep & The Dark Live @ At Symphonic Metal Nights (2019
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701884.jpg" />
+  <img src="Z:/picture/008/save_picture_701884.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Overkill - The Wings Of War (2019) Japanese Edition [FLAC|lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701883.jpg" />
+  <img src="Z:/picture/008/save_picture_701883.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Dio - Angry Machines (1996), Reissue, Remastered, 2020, BMG Records, 2CD [FLAC|L
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701831.jpg" />
+  <img src="Z:/picture/008/save_picture_701831.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Martyr - Planet Metalhead (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701556.jpg" />
+  <img src="Z:/picture/008/save_picture_701556.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Forlorn Citadel / Mirkwood / Spells of Fog - Split (2021) [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701295.jpg" />
+  <img src="Z:/picture/008/save_picture_701295.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Hate - Tremendum (2017) [FLAC|Lossless|tracks + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700994.jpg" />
+  <img src="Z:/picture/008/save_picture_700994.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Silverheart - Forsaken Words (2015) [FLAC|Lossless|tracks] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700508.jpg" />
+  <img src="Z:/picture/008/save_picture_700508.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Bullet - Bite The Bullet (2008) [FLAC|Lossless|tracks] <Heavy Metal, Hard Rock>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700507.jpg" />
+  <img src="Z:/picture/008/save_picture_700507.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ The Unguided - 2 Singles (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699945.jpg" />
+  <img src="Z:/picture/008/save_picture_699945.jpg" />
 </div>
 
 
@@ -655,93 +742,6 @@ The Unguided - 2 Singles (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0B0F9E3CB7E279386DA9D3C40B4871BFF1927BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287870   (699884) от 09.03.2019
-
-Obscura - Illegimitation (2012) [WavPack|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - And All Will Come to an End (2:58)
-02 - Crucified (4:24)
-03 - Fear (4:37)
-04 - Immanent Desaster (6:03)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BB90FD769464BEE776BC94F4CAC0FB017C99D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287840   (699883) от 09.03.2019
-
-Nifelheim - Devil's Force (1998) [FLAC|Lossless|image + .cue] <Black Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Deathstrike From Hell
-02 - The Final Slaughter
-03 - Desecration Of The Dead
-04 - Demonic Evil(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E34E303C842099AF87197CFE777A775C947418C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287872   (699881) от 09.03.2019
-
-Obscura - Omnivium (2011) [WavPack|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Septuagint
-02. Vortex Omnivium
-03. Ocean Gateways
-04. Euclidean Elements(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604376BEDE9FA33E9E5B84E03470E9F1A38F828C
 ```
 
 https://mybot314.ru/tekegram_catalog/

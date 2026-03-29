@@ -6,7 +6,7 @@ Sean Kolton - MechWarrior 5: Mercenaries Digital Deluxe Edition (2019)  [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_166481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_166481.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ John Towner Williams - Звёздные войны: Скайуокер. Восх
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163563.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (202
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_163021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_163021.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Ennio Morricone - The Man And His Music (2002) 2CD, 2005, Warner Classics [MP3|3
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158234.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Maury Laws & Jules Bass - Сумасшедшая вечеринка чудови
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157892.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154081.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Paul Haslinger - Resident Evil: The Final Chapter / Обитель зла: По�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153878.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Imagine Dragons, Thomas Newman - Passengers / Пассажиры (Single) + (Ori
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152101.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Brian Tyler - Far Cry 3 (2012) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150433.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Theodore Shapiro - Collateral Beauty / Призрачная красота (Orig
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148106.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ VA - Cyberpunk 2077- Radio, Vol. 1-3 (2020) OST [MP3|320 Kbps] <Films-Games, Fil
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147210.jpg" />
 </div>
 
 
@@ -331,7 +331,7 @@ Michael Land - Monkey Island 2 Special Edition: LeChuck's Revenge (2010) [MP3|32
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146090.jpg" />
 </div>
 
 
@@ -366,7 +366,7 @@ VA - Асса (1987) [MP3|320 кб/с] <Rock, Soundtrack>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145322.jpg" />
 </div>
 
 
@@ -395,7 +395,7 @@ Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtra
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144648.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144430.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Jed Kurzel - Assassin's Creed / Кредо убийцы (Original Motion Picture
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_144324.jpg" />
 </div>
 
 
@@ -482,7 +482,7 @@ The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136202.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134346.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133526.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_133511.jpg" />
+  <img src="Z:/picture/005/save_picture_133511.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133476.jpg" />
 </div>
 
 
@@ -648,7 +648,7 @@ Kitaro - Toyo's Camera (2009) [FLAC|Lossless|tracks + .cue] <Score, New Age>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132055.jpg" />
 </div>
 
 
@@ -677,7 +677,7 @@ VA - Бременские музыканты (Официальный саунд�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125097.jpg" />
 </div>
 
 
@@ -706,7 +706,7 @@ Ennio Morricone - Il Grande Silenzio / Un Bellissimo Novembre (1968) Reissue, 20
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121727.jpg" />
 </div>
 
 
@@ -735,7 +735,7 @@ VA - Александр Зацепин. 31 июня (2021) [MP3|320 Kbps] <Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119517.jpg" />
 </div>
 
 
@@ -764,7 +764,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107358.jpg" />
 </div>
 
 

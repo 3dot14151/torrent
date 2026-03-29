@@ -1,3 +1,61 @@
+###  Публикация: 1291879   (650691) от 27.03.2019
+
+VA - Caramel Deep House (2019) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650691.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexander Miguel - Contaol (Paul Angelo & Don Argento Remix)
+002. Anatomica - Cold Hard & Sweet
+003. Antrim - Harmony Of The Seas
+004. Beyond Physical & Veytik - Dark Angel (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CF22A5A4DFE237B2B28D7DE8AB8C402A0F0487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540855   (650684) от 31.03.2022
+
+VA - Electric Synthicate Volume 1-4 (2020-2022) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Solstice - The March (4:16)
+02. Advection Stride - The Hawk (3:13)
+03. NightmareOwl - Changes (5:43)
+04. D'Abyss - All My Demons (5:53)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 04:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDFB3C3DE89C5F05A59529945E542EC205F9A02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540843   (650670) от 31.03.2022
 
 Kavinsky - Reborn Extra (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Electro Pop, French House>
@@ -6,7 +64,7 @@ Kavinsky - Reborn Extra (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Electro P
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650670.jpg" />
+  <img src="Z:/picture/008/save_picture_650670.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Guardians Of The Sea (2019) [MP3|320 Kbps] <Drum And Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650616.jpg" />
+  <img src="Z:/picture/008/save_picture_650616.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Tim Gorgeous - Deep House Session Vol.5 (2016) [MP3|320 Kbps] <Deep House, Indie
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649919.jpg" />
+  <img src="Z:/picture/008/save_picture_649919.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ VA - Magic Fire: Trance Progressive (2016) [MP3|320 Kbps] <Progressive Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649916.jpg" />
+  <img src="Z:/picture/008/save_picture_649916.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - Siren Song Trance Vocal (2016) [MP3|320 Kbps] <Vocal Trance, Uplifting Tran
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649819.jpg" />
+  <img src="Z:/picture/008/save_picture_649819.jpg" />
 </div>
 
 
@@ -148,7 +206,7 @@ VA - TOP 100 Club Tracks (2016) [MP3|320 Kbps] <House, Electro House, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649680.jpg" />
+  <img src="Z:/picture/008/save_picture_649680.jpg" />
 </div>
 
 
@@ -177,7 +235,7 @@ VA - Resident Advisor Top 50 Charted Tracks For May (2015) [MP3|320 кб/с]<Hou
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649602.jpg" />
+  <img src="Z:/picture/008/save_picture_649602.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ VA - Chill Acoustic Playlist 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Pia
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649600.jpg" />
+  <img src="Z:/picture/008/save_picture_649600.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ VA - Lounge Cocktails (2013) [MP3|320 кб/с]<Lounge, Jazz>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649485.jpg" />
+  <img src="Z:/picture/008/save_picture_649485.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Hits Cocktail Vol. 8 (2015) [MP3|320 кб/с]<Club, Dance, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649367.jpg" />
+  <img src="Z:/picture/008/save_picture_649367.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ Pet Shop Boys - Golden Disco Hits (2001) [MP3|320 кб/с]<SynthPop, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649065.jpg" />
+  <img src="Z:/picture/008/save_picture_649065.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ VA - House Eclipse: Top100 DJ (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648699.jpg" />
+  <img src="Z:/picture/008/save_picture_648699.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ VA - 3D Django Bass (2017) [MP3|320 Kbps] <Dupstep, Drum & Bass>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648617.jpg" />
+  <img src="Z:/picture/008/save_picture_648617.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Record Super Chart #490 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648602.jpg" />
+  <img src="Z:/picture/008/save_picture_648602.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ VA - Oversensitive: Deep House Set (2018) [MP3|320 Kbps] <Deep House, Electro>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648578.jpg" />
+  <img src="Z:/picture/008/save_picture_648578.jpg" />
 </div>
 
 
@@ -438,7 +496,7 @@ VA - Funky House: Disco Party (2018) [MP3|320 Kbps] <Funry, Disco, House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648485.jpg" />
+  <img src="Z:/picture/008/save_picture_648485.jpg" />
 </div>
 
 
@@ -467,7 +525,7 @@ VA - Amazing Vocal Sound — Summer (2016) [MP3|320 Kbps] <Progressive House, Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648018.jpg" />
+  <img src="Z:/picture/008/save_picture_648018.jpg" />
 </div>
 
 
@@ -496,7 +554,7 @@ VA - Beach Chill Las Salinas. The Ibiza Chill Out Album (2012) [MP3|320 кб/с]
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647914.jpg" />
+  <img src="Z:/picture/008/save_picture_647914.jpg" />
 </div>
 
 
@@ -531,7 +589,7 @@ VA - Sexy Chillout Cafe (2016) [MP3|320 Kbps] <Lounge>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647901.jpg" />
+  <img src="Z:/picture/008/save_picture_647901.jpg" />
 </div>
 
 
@@ -560,7 +618,7 @@ VA - Outline Deep House (2016) [MP3|320 Kbps] <Club, Deep House, Electro House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647900.jpg" />
+  <img src="Z:/picture/008/save_picture_647900.jpg" />
 </div>
 
 
@@ -589,7 +647,7 @@ VA - Trance Is Love - Trance Is  Life (2016) [MP3|320 Kbps] <Trance, Melodic, En
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647776.jpg" />
+  <img src="Z:/picture/008/save_picture_647776.jpg" />
 </div>
 
 
@@ -618,7 +676,7 @@ VA - Options Remake 150 Tracks - JUNE (2016) [MP3|320 Kbps] <House, Dance, Club>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647774.jpg" />
+  <img src="Z:/picture/008/save_picture_647774.jpg" />
 </div>
 
 
@@ -647,7 +705,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647545.jpg" />
+  <img src="Z:/picture/008/save_picture_647545.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ VA - Vocal Trance Seduction Vol 2 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647544.jpg" />
+  <img src="Z:/picture/008/save_picture_647544.jpg" />
 </div>
 
 
@@ -690,67 +748,6 @@ VA - Vocal Trance Seduction Vol 2 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F36CBCD8110D9484FE58C99975F052EB1EC8D3EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905920   (647542) от 07.06.2015
-
-VA - Beatport Top 100 June (2015) [MP3|320 кб/с]<House, Tech House, Deep House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enzo Siffredi - Sometimes
-02. Kollektiv Turmstrasse - Sorry I Am Late
-03. Sonny Fodera, Cervendos, Lauren Faith - High
-04. Yolanda Be Cool, DCUP - Soul Makossa (Money) (Club Mix)(   Читать дальше...   )Жанр: House, Tech House, Deep House, Electro House, Progressive HouseПродолжительность: 09:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B5818BAD159BDE698068DEDC129B43A2D2C6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032189   (647282) от 06.07.2016
-
-VA - Hits of My Soul Vol. 04 (2016) [MP3|320 кб/с]<Dance, DubStep, Electronic>
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник красивой и качественной электронной музыки, разных жанров.
-Его должен услышать каждый кто хочет насладится красотой, нежностью, и атмосферностью.
-Сборник состоит из пятидесяти треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественною музыку.01. Bob Sinclar - Cinderella (She Said Her Name) (Edit Club Mix) (05:59)
-02. Sub Focus & Takura - Coming Closer (03:36)
-03. Galantis - Scruffy-Looking Nerfherder (04:19)
-04. The Flashbulb - Burning The Black And White (03:00)(   Читать дальше...   )Жанр: Dance, DubStep, Electronic, House, Pop, Soundtrack, Trance, TrapПродолжительность: 03:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C675BF18BBE5691019EDE9EACCA476620C1DA302
 ```
 
 https://mybot314.ru/tekegram_catalog/

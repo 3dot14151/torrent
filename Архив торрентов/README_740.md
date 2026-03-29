@@ -6,7 +6,7 @@ EF Commander 20.04 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885202.jpg" />
+  <img src="Z:/picture/005/save_picture_885202.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PDF Expert 2.5.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885200.jpg" />
+  <img src="Z:/picture/005/save_picture_885200.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Movavi Academic 2020 v20.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885189.jpg" />
+  <img src="Z:/picture/005/save_picture_885189.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Avast Clear 20.2.5130.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885186.jpg" />
+  <img src="Z:/picture/005/save_picture_885186.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Google Chrome 80.0.3987.163 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885184.jpg" />
+  <img src="Z:/picture/005/save_picture_885184.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ VA - Tokoloshe Tales (Compiled by Daksinamurti & Gata Freak) - 2010 [MP3|192-320
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885179.jpg" />
+  <img src="Z:/picture/005/save_picture_885179.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Icecream Screen Recorder PRO 6.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885177.jpg" />
+  <img src="Z:/picture/005/save_picture_885177.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Viscosity 1.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885171.jpg" />
+  <img src="Z:/picture/005/save_picture_885171.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885162.jpg" />
+  <img src="Z:/picture/005/save_picture_885162.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Butterfly - Favorite Colors Episode 078 (06.04.2013) [MP3|320 кб/с]<Progressi
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_885154.jpg" />
+  <img src="Z:/picture/008/save_picture_885154.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Butterfly - Favorite Colors Episode 077 (Guest Sky Angel) (30.03.2013) [MP3|320 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_885152.jpg" />
+  <img src="Z:/picture/008/save_picture_885152.jpg" />
 </div>
 
 
@@ -310,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885144.jpg" />
+  <img src="Z:/picture/005/save_picture_885144.jpg" />
 </div>
 
 
@@ -336,7 +336,7 @@ GridinSoft Anti-Malware 3.0.77 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885127.jpg" />
+  <img src="Z:/picture/005/save_picture_885127.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885126.jpg" />
+  <img src="Z:/picture/005/save_picture_885126.jpg" />
 </div>
 
 
@@ -388,7 +388,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885125.jpg" />
+  <img src="Z:/picture/005/save_picture_885125.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Telegram Desktop 2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885084.jpg" />
+  <img src="Z:/picture/005/save_picture_885084.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885067.jpg" />
+  <img src="Z:/picture/005/save_picture_885067.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Serif Affinity Designer 1.8.3.641 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885059.jpg" />
+  <img src="Z:/picture/005/save_picture_885059.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ Auslogics Driver Updater 1.24.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885055.jpg" />
+  <img src="Z:/picture/005/save_picture_885055.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Serif Affinity Photo 1.8.3.641 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885024.jpg" />
+  <img src="Z:/picture/005/save_picture_885024.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ Macrorit Partition Expert 5.3.9 Professional Edition + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885007.jpg" />
+  <img src="Z:/picture/005/save_picture_885007.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Room Arranger 9.5.6.619 Portable by AlekseyPopovv [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885002.jpg" />
+  <img src="Z:/picture/005/save_picture_885002.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ Comedy Баттл. Новый сезон (03.04.2020) WEB-DL [H.264/720p-LQ] (с
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884996.jpg" />
+  <img src="Z:/picture/005/save_picture_884996.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ WorldWide Telescope 5.5.03 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884983.jpg" />
+  <img src="Z:/picture/005/save_picture_884983.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ Sound Studio 3.5.7 [Eng]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_884950.jpg" />
+  <img src="Z:/picture/008/save_picture_884950.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ AnyDesk 5.5.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884928.jpg" />
+  <img src="Z:/picture/005/save_picture_884928.jpg" />
 </div>
 
 

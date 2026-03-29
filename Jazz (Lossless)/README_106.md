@@ -1,3 +1,119 @@
+###  Публикация: 1402976   (696044) от 17.08.2020
+
+Curtis Counce - Four Classic Albums (1953 - 1958) 2016, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_696044.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Variations On A Motive By Bud [3:47]
+02. Wailing Dervish [4:51]
+03. Further Out [2:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FCD20BD298395260C11B42B1214E9A4C766D889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288369   (695937) от 11.03.2019
+
+KAVver. - Losen (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_695937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Losen (5:19)
+02. Charinskiy (5:48)
+03. Asfalt (5:47)
+04. Filya (5:20)Производство: Cuntroll - Cuntroll093Жанр: Dark Jazz, Post Jazz, Post Rock, Kraut Rock, Trip HopПродолжительность: 00:22:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5186444C908940C93248CDD363562C940BE2B5DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288437   (695935) от 11.03.2019
+
+Richard "Groove" Holmes - Onsaya Joy (1975) 2018, Solid Records [FLAC|Lossless|tracks + .cue] <Soul Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_695935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Georgia Brown [6:42]
+02. Onsaya Joy [15:36]
+03. Green Dolphin Street [7:23]
+04. Song for My Father [6:11](   Читать дальше...   )Жанр: Soul Jazz, Jazz-FunkПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84AFA24AAEBD38FCF0CC40DC9C1F11EC3226F6A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288392   (695934) от 11.03.2019
+
+Jarod Bufe - New Spaces (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_695934.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pushing Back the Darkness (06:14)
+2. In the Next Room (05:22)
+3. Begin Again (05:34)
+4. Just Not Him (05:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94898197900989633E75DE49398413E82FE2A4C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288365   (695929) от 11.03.2019
 
 KAVver. - Vv (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip Hop>
@@ -6,7 +122,7 @@ KAVver. - Vv (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Rock, Trip
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695929.jpg" />
+  <img src="Z:/picture/008/save_picture_695929.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Jens Haack - Smokers Lounge (2011) Stunt Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695927.jpg" />
+  <img src="Z:/picture/008/save_picture_695927.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Roxy Coss - Restless Idealism (2016) [FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695925.jpg" />
+  <img src="Z:/picture/008/save_picture_695925.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Chet Baker - Cool Cat (1989) [WavPack|Lossless|image + .cue] <Cool Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695202.jpg" />
+  <img src="Z:/picture/008/save_picture_695202.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Freddie Hubbard - Live In Warsaw (1991) 2001, Past Perfect [APE|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695187.jpg" />
+  <img src="Z:/picture/008/save_picture_695187.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ David “Fathead” Newman - Fathead: Ray Charles Presents David Newman (1958) R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694937.jpg" />
+  <img src="Z:/picture/008/save_picture_694937.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ The Phil Woods Quartet With Gene Quill - Phil Talks With Quill (1957) Remaster, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694936.jpg" />
+  <img src="Z:/picture/008/save_picture_694936.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Lazy - Dirty Martini (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694696.jpg" />
+  <img src="Z:/picture/008/save_picture_694696.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ John Bunch - An English Songbook (2003) Chiaroscuro Records [FLAC|Lossless|image
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694371.jpg" />
+  <img src="Z:/picture/008/save_picture_694371.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Fire! Orchestra - Exit (2013) [FLAC|Lossless|tracks + .cue] <Free Jazz, Free Imp
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694311.jpg" />
+  <img src="Z:/picture/008/save_picture_694311.jpg" />
 </div>
 
 
@@ -294,7 +410,7 @@ The Bobs - Sing The Songs Of... (1991) Reissue [FLAC|Lossless|tracks + .cue] <Vo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694309.jpg" />
+  <img src="Z:/picture/008/save_picture_694309.jpg" />
 </div>
 
 
@@ -323,7 +439,7 @@ Miriam Aida - Come On Home (2008) Connective Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694306.jpg" />
+  <img src="Z:/picture/008/save_picture_694306.jpg" />
 </div>
 
 
@@ -352,7 +468,7 @@ Machito & His Orchestra - Mambo Y Cha Cha Cha: Tea For Two (1950-e) 1993, Saludo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694279.jpg" />
+  <img src="Z:/picture/008/save_picture_694279.jpg" />
 </div>
 
 
@@ -381,7 +497,7 @@ Jan Garbarek Group - It's OK to Listen to the Gray Voice (1985) Reissue [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694199.jpg" />
+  <img src="Z:/picture/008/save_picture_694199.jpg" />
 </div>
 
 
@@ -410,7 +526,7 @@ Macelleria Mobile di Mezzanotte - Funeral Jazz (2015) [FLAC|Lossless|Web-DL|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694198.jpg" />
+  <img src="Z:/picture/008/save_picture_694198.jpg" />
 </div>
 
 
@@ -439,7 +555,7 @@ Frank Sinatra - Frank Sinatra's Greatest Hits Super 2. Vol.1 & Vol.2, recorded 1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694066.jpg" />
+  <img src="Z:/picture/008/save_picture_694066.jpg" />
 </div>
 
 
@@ -465,7 +581,7 @@ Frank Sinatra - New York New York. His Greatest Hits (1989) Unofficial Release [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694059.jpg" />
+  <img src="Z:/picture/008/save_picture_694059.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ Stephane Grappelli - Afternoon In Paris (1971) 1991, MPS Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693548.jpg" />
+  <img src="Z:/picture/008/save_picture_693548.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ Chet Baker - September Song (1990) 2002, M&I Company [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693544.jpg" />
+  <img src="Z:/picture/008/save_picture_693544.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ The Dave Pike Quartet - Pike's Peak (1962) 2016, Sony Music [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693542.jpg" />
+  <img src="Z:/picture/008/save_picture_693542.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ Paul Desmond - Desmond Blue (1961, 1962) 2016, Sony Music [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693438.jpg" />
+  <img src="Z:/picture/008/save_picture_693438.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ Ragan Whiteside - Treblemaker (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693435.jpg" />
+  <img src="Z:/picture/008/save_picture_693435.jpg" />
 </div>
 
 
@@ -624,122 +740,6 @@ Ragan Whiteside - Treblemaker (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76A521C9F2809CE79179B859BBA066F509B0753B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133662   (693431) от 13.05.2017
-
-Art Pepper - The Complete Surf Ride Plus (1951 - 1954) 2CD, 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693431.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Brown Gold [02:24]
-02. The Foolish Things [02:39]
-03. Surf Ride [03:10](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 02:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29136C8109BAFF84D7A694EF6B18987D71FAAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534655   (692470) от 03.03.2022
-
-Buddy Rich - Three Classic Albums Plus (1953 - 1955) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692470.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Monster [11:09]
-02. Sunday [10:50]
-03. A Smooth One [9:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB391CFCB0F29480EAE299CBD6D7D45B44354473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403308   (692443) от 19.08.2020
-
-Humphrey Lyttelton - Four Classic Albums Plus (1950 - 1958) 2010, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692443.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Panama Rag [2:45]
-02. Trouble In Mind [2:58]
-03. Tom Cat Blues [3:03](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 02:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEB4FBE5D3F7F20C10620726AF83A6D225C8510
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403312   (692359) от 19.08.2020
-
-Jeremy Bruger - Moods (2020) Black & Blue [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things Are Coming [4:57]
-02. Time After Time [4:01]
-03. They All Laughed [4:15]
-04. Out Of This World [5:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69870E6D1CEDF89B9EB06006A03B5BAEA8A7D6C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

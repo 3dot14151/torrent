@@ -1,3 +1,83 @@
+###  Публикация: 1120556   (801962) от 31.03.2017
+
+Прот. Владимир Головин | По ту сторону смерти (2017) [RTF, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801962.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной книге собраны ответы отца Владимира Головина на вопросы о жизни после смерти, о том, как нам, православным, относиться к смерти, как молиться за усопших и многие другие, относящиеся к данной теме. Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеФормат: RTF, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A0A780817F5571EFC98B644845C418B228D90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384583   (801684) от 21.05.2020
+
+Монахиня Нина | Солнце Правды. Современный взгляд на Апокалипсис святого Иоанна Богослова (2001) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801684.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга состоит из двух частей. Первая «Солнце Правды» содержит три научно-богословские статьи о Православной вере и, по сути, представляет собой введение к следующей части. Вторая часть является современным толкованием на Апокалипсис св. Иоанна Богослова, основанном на сопоставлении его текстов с другими пророчествами св. Писания о последних временах, а также и на (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92188C84AECB91C0CA1051DD743B6B2BFBAF971F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506127   (801659) от 29.10.2021
+
+А. Солоницын | Ангеловы столпы (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый роман известного писателя Алексея Солоницына повествует о тех священниках, которые вместе со своими помощниками вышли на подвиг спасения детей, оставшихся без отцов и матерей при живых родителях. Создавая приют милосердия, герои романа претерпевают нелёгкие испытания, жертвуя всем, даже жизнью самой во имя Христово, во имя будущего своей любимой Родины.
+
+Но (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CD87B8A4B9F7D8DD22B3A45FBD203C346B537B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 739124   (801621) от 15.01.2018
 
 Иеромонах Тихон (Васильев) и др. | Схиархимандрит Зосима (Сокур). О чем душа скорбит [2-ое изд.] (2013) [PDF]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801621.jpg" />
+  <img src="Z:/picture/008/save_picture_801621.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801241.jpg" />
+  <img src="Z:/picture/008/save_picture_801241.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801237.jpg" />
+  <img src="Z:/picture/008/save_picture_801237.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801222.jpg" />
+  <img src="Z:/picture/008/save_picture_801222.jpg" />
 </div>
 
 
@@ -112,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801167.jpg" />
+  <img src="Z:/picture/008/save_picture_801167.jpg" />
 </div>
 
 
@@ -138,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801129.jpg" />
+  <img src="Z:/picture/008/save_picture_801129.jpg" />
 </div>
 
 
@@ -165,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801089.jpg" />
+  <img src="Z:/picture/008/save_picture_801089.jpg" />
 </div>
 
 
@@ -191,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801085.jpg" />
+  <img src="Z:/picture/008/save_picture_801085.jpg" />
 </div>
 
 
@@ -218,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801079.jpg" />
+  <img src="Z:/picture/008/save_picture_801079.jpg" />
 </div>
 
 
@@ -244,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801051.jpg" />
+  <img src="Z:/picture/008/save_picture_801051.jpg" />
 </div>
 
 
@@ -270,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801027.jpg" />
+  <img src="Z:/picture/008/save_picture_801027.jpg" />
 </div>
 
 
@@ -296,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800643.jpg" />
+  <img src="Z:/picture/008/save_picture_800643.jpg" />
 </div>
 
 
@@ -322,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800600.jpg" />
+  <img src="Z:/picture/008/save_picture_800600.jpg" />
 </div>
 
 
@@ -348,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800556.jpg" />
+  <img src="Z:/picture/008/save_picture_800556.jpg" />
 </div>
 
 
@@ -374,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800469.jpg" />
+  <img src="Z:/picture/008/save_picture_800469.jpg" />
 </div>
 
 
@@ -402,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800443.jpg" />
+  <img src="Z:/picture/008/save_picture_800443.jpg" />
 </div>
 
 
@@ -428,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800248.jpg" />
+  <img src="Z:/picture/008/save_picture_800248.jpg" />
 </div>
 
 
@@ -454,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800193.jpg" />
+  <img src="Z:/picture/008/save_picture_800193.jpg" />
 </div>
 
 
@@ -480,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800105.jpg" />
+  <img src="Z:/picture/008/save_picture_800105.jpg" />
 </div>
 
 
@@ -508,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799619.jpg" />
+  <img src="Z:/picture/008/save_picture_799619.jpg" />
 </div>
 
 
@@ -536,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799460.jpg" />
+  <img src="Z:/picture/008/save_picture_799460.jpg" />
 </div>
 
 
@@ -562,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798830.jpg" />
+  <img src="Z:/picture/008/save_picture_798830.jpg" />
 </div>
 
 
@@ -588,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798720.jpg" />
+  <img src="Z:/picture/008/save_picture_798720.jpg" />
 </div>
 
 
@@ -599,88 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D946AD7F8C979459EB3BE87F291E3614AAB80A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507439   (798473) от 04.11.2021
-
-Валерий Духанин | Знакомство с Православием, или Начало познания духовного мира (2011) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга приоткрывает дверь в мир Православия, знакомит с основами вероучения Русской Православной Церкви. Для того, чтобы искренне верить, жить единой жизнью с Церковью, необходимо знать, понимать, что такое Православие. Эта книга ответит на многие Ваши вопросы. В Кого мы веруем? Как познать Бога? Кто такие святые? Что такое Церковь и церковные Таинства? Для чего (   Читать дальше...   )Жанр: Православие. Религиозно-просветительское изданиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8716093D852B8644F329834B7792F2618CA1A4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507555   (798292) от 05.11.2021
-
-Свято-Серафимо-Саровский мужской монастырь (изд.) | Свято-Серафимо-Саровский мужской монастырь [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798292.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Стяжи дух мирен и тысячи вокруг тебя спасутся" - эти слова преподобного Серафима Саровского определяют главное призвание человека - стать чадом Божиим по благодати, стяжать Божественный дух и сосредоточить его в себе. С этой целью приходят люди в обитель, чтобы через отречение от собственной воли покориться воли Христовой.
-
-На Воронежской земле был основан (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBBF2BF005B1FD8B46FCD6D8F308F72C4170F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507863   (798130) от 06.11.2021
-
-Святитель Иоанн (Максимович) | Царский путь Креста Господня, вводящий в Жизнь Вечную (1996) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие люди часто недоумевают, почему случаются с ними те или иные скорби, и задаются вопросом: зачем они посылаются человеку?
-
-На эти вопросы даёт ясный ответ книга «Царский путь Креста Господня». В ней дан полный анализ скорбей, с которыми встречается человек на пути спасения. Святые отцы глубоко и всесторонне раскрыли значение скорбей, их нравственную сущность (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E20CACE52FCD4ED892794884292B6F97E4B8E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

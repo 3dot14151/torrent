@@ -1,3 +1,29 @@
+###  Публикация: 1741220   (47794) от 05.08.2024
+
+UBOAT (2019) [Ru/Multi] (2024.1) Scene FairLight
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47794.jpg" />
+</div>
+
+
+###  Подробнее
+
+UBOAT – уникальный симулятор управления подводной лодкой во времена Второй мировой войны. Наблюдайте и принимайте прямое участие в жизни немецких подводников в разгар войны, когда в любой момент их убежище может превратиться в место их смерти. Выживайте в открытом мире и контролируйте все процессы, происходящие на субмарине. Ваши подопечные должны быть сытыми и заряженными, (   Читать дальше...   )Тип издания: SceneРазработчик: Deep Water StudioЖанр: Экшены, Ролевые игры, Симуляторы, СтратегииЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Немецкий, Турецкий и другиеЯзык интерфейса: Русский, Английский, Немецкий, Турецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:362DCE3A2A4F38B130E6218E3516D1F705AD7DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741151   (47772) от 05.08.2024
 
 Closer the Distance (2024) [Multi] (1.0) Scene SKIDROW
@@ -6,7 +32,7 @@ Closer the Distance (2024) [Multi] (1.0) Scene SKIDROW
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47772.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47772.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Blockbuster Inc. (2024) [Ru/Multi] (1.8.0) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47707.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ House Flipper 2 (2023) [Ru/Multi] (20240719/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47703.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Truck & Logistics Simulator (2023) [Ru/Multi] (1.02) Scene Rune
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47590.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Contraband Police (2023) [Ru/Multi] (1.0.5.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47505.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Bee Island (2023) [Ru/Multi] (20240805) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47493.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47493.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Zoo Simulator (2024) [Ru/Multi] (1.00.23) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47078.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ My Recycling Center (2024) [Multi] (1.2/dlc) Scene TinyISO
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47001.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ Roots of Pacha (2023) [Ru/Multi] (1.2.0.2) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46985.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ KitHack Model Club (2024) [En] (1.3.1) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46970.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Fishing Adventure (2019) [Ru/Multi] (20230814/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46955.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Pawn Simulator (2024) [Multi] (1.0.2) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46863.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46863.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Crime Scene Cleaner (2024) [Ru/Multi] (1.0.2D) Scene FairLight
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46437.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ Just Crow Things / Вредные вороны (2024) [Ru/Multi] (1.0) Scene Ten
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46408.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ ICARUS (2021) [Ru/Multi] (2.2.16.125988/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46246.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ The Crush House (2024) [Multi] (1.1.9679) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46215.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Tokyo Coffee: Grinding in the Pandemic (2024) [Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46212.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ My Lovely Empress (2024) [Multi] (1.0.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45870.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Outlanders (2023) [Ru/Multi] (20240822/dlc) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45833.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Office Fight (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45666.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Beach Club Simulator 2024 (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45614.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Office Fight (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45515.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Just Xiangqi / Сянци (2024) [Multi] (1.0) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45155.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ People Playground (2019) [En] (1.27.5) License GOG
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45010.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Retail Company Simulator (2024) [Ru/Multi] (1.0.0.4) Scene Tenoke
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44946.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Retail Company Simulator помещает вас в гущу розничног�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F5BA6892F43CDAF7B86DF1EE6223FBC0C0DBEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747056   (44804) от 03.09.2024
-
-Squirrel with a Gun (2024) [Multi] (1.0.2.14) Scene Doge
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Белка, вот тебе пистолет. Ты - самый несносный грызун на районе, и в погоне золотыми желудями ты пойдешь на преступление. В этом шутере-«песочнице» и платформере с головоломками тебе предстоит сражаться зубами, когтями и пулями, чтобы сбежать с секретного подземного объекта и победить Агентов. Узнай, на что способна шальная белка с пистолетом в лапах (достаточно (   Читать дальше...   )Тип издания: SceneРазработчик: Dee Dee Creations LLCЖанр: Экшены, Приключенческие игры, Инди, СимуляторыЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81AAD17770DA45E616DC39C3AB3EF1CF80FD9E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

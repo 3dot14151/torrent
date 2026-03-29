@@ -1,3 +1,55 @@
+###  Публикация: 1473267   (197109) от 12.06.2023
+
+Возвращение с орбиты (1983) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_197109.jpg" />
+</div>
+
+
+###  Подробнее
+
+На орбитальной космической станции из-за метеоритного потока происходит авария, в результате которой командир корабля получает тяжелое ранение. Его необходимо срочно доставить на Землю и продолжить испытания. Сделать это может только экипаж Кузнецова-Мухина, много лет готовившегося к полету...Производство: СССР / Киевская киностудия им. А. П. Довженко, ТО «Радуга»Жанр: ФантастикаРежиссер: Александр СуринАктеры: Юозас Будрайтис, Виталий Соломин, Александр Пороховщиков, Тамара Акулова, Игорь Васильев, Валерий Юрченко, Михаил Чигарёв, Игорь Дмитриев, Галина Долгозвяга, Владимир КостюкСубтитры: ОтсутствуютПродолжительность: 01:24:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5871431FD0D727F1638201A4D5ED2B68B16B598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103946   (196915) от 16.06.2023
+
+Ох, этот ужасный, ужасный телевизор (1990) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_196915.jpg" />
+</div>
+
+
+###  Подробнее
+
+У фотографа Тазо есть почти всё - старая квартира в старом Тбилиси, и дама сердца, и работа, и футбол... Для окончательного счастья не хватает только телевизора. И так уж получилось, что вместо новенькой цветной "Иверии" в телемагазине, он покупает допотопный "ящик" с рук у странного старика, да ещё и по баснословной цене. От злости на себя он (   Читать дальше...   )Производство: СССР, Киностудия Грузия-фильмЖанр: КомедияРежиссер: Темур ПалавандишвилиАктеры: Вахтанг Панчулидзе, Абессалом Лория, Байя Двалишвили, Мамука Кикалейшвили, Елена Асламазишвили, Карло Саканделидзе, Картлос Марадишвили, Руслан Микаберидзе, Мамука Лория, Манана Мачабели, Бадри Какабадзе, Отар Гунцадзе, Шота Схиртладзе, Тимур Гвалиа, Дэви Иванов-Чиковани, Гурам Лордкипанидзе, Гиви Джаджанидзе, Нана Джапаридзе, Зураб Кавтарадзе, Васо Рцхиладзе, Гоги (   Читать дальше...   )Перевод: Профессиональный закадровыйПродолжительность: 01:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F2518286F985CAD827D32D2C8B5DB80BB291E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 422605   (196861) от 18.06.2023
 
 Ринг (1973) DVDRip
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196861.jpg" />
+  <img src="Z:/picture/004/save_picture_196861.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196667.jpg" />
+  <img src="Z:/picture/004/save_picture_196667.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_196324.jpg" />
+  <img src="Z:/picture/004/save_picture_196324.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195855.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195686.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195686.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_195626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_195626.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_195058.jpg" />
+  <img src="Z:/picture/004/save_picture_195058.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194965.jpg" />
+  <img src="Z:/picture/004/save_picture_194965.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194606.jpg" />
+  <img src="Z:/picture/004/save_picture_194606.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194098.jpg" />
+  <img src="Z:/picture/004/save_picture_194098.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_194081.jpg" />
+  <img src="Z:/picture/004/save_picture_194081.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_194030.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193859.jpg" />
+  <img src="Z:/picture/004/save_picture_193859.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193762.jpg" />
+  <img src="Z:/picture/004/save_picture_193762.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_193662.jpg" />
+  <img src="Z:/picture/004/save_picture_193662.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_192789.jpg" />
+  <img src="Z:/picture/004/save_picture_192789.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_192063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_192063.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_191724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_191724.jpg" />
 </div>
 
 
@@ -478,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_191332.jpg" />
+  <img src="Z:/picture/004/save_picture_191332.jpg" />
 </div>
 
 
@@ -504,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_190368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_190368.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189941.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189780.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189136.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188797.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:296974B3CC5B72FE54D73A1C8256298AFF932921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584084   (188680) от 14.11.2022
-
-Это сильнее меня (1973) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Из-за отчима любимой девушки Макар попадает в тюрьму. Таня уходит из дома и устраивается на судоремонтный завод. Серьезные чувства к ней испытывает бригадир и хороший парень Алексей Углов. Она соглашается выйти за него замуж. Однако возвращается Макар, устраивается сварщиком в бригаду Углова и действительные чувства невесты делают Алексея несчастным...Производство: СССР, МосфильмЖанр: МелодрамаРежиссер: Федор ФилипповАктеры: Александр Михайлов, Иван Гаврилюк, Валентина Малявина, Ксения Минина, Юрий Гончаров, Ефим Копелян, Мария Пастухова, Виктор Филиппов, Рамаз Гиоргобиани, Наталья Воробьева, Игорь Янковский, Наталья Гурзо, Борис НовиковПродолжительность: 01:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3209893F8703C98F67472C9145F20241BB2E07B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 264658   (188584) от 14.11.2022
-
-Нежданно - негаданно (1983) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_188584.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти дяди, Жанна Капустина, скромная сотрудница одной из московских сберкасс, получает в наследство огромную коллекцию картин и антиквариата. Жанна обращается за юридической подмощью к нотариусу Илье Петровичу. Но вскоре влюбляется в него.Производство: СССР, МосфильмЖанр: КомедияРежиссер: Геннадий МелконянАктеры: Татьяна Догилева, Юрий Богатырев, Галина Польских, Александр Ширвиндт, Сергей Мартынов, Олег Анофриев, Светлана Петросьянц, Татьяна Ташкова и др.Продолжительность: 01:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE5E7F744857E42BF898BD2A8E490ECC1F7F6668
 ```
 
 https://mybot314.ru/tekegram_catalog/

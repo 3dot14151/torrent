@@ -1,3 +1,133 @@
+###  Публикация: 1471798   (1014851) от 22.05.2021
+
+Вадим Коростылёв | Король Пиф-Паф, или сказка про Ивана-не-Великана (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014851.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли две сказки писателя: «Король Пиф-Паф, или Сказка про Ивана-Не-Великана» и «Кукла Надя и другие». Вадим Коростылёв – король каламбуров, на которых построены его сказки, поэтому его произведения такие задорные и весёлые. Они откроют читателю невиданный сказочный мир и покажут, что смелость, доброта и самоотверженность всегда побеждают злость и хитрость.Жанр: СказкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D74FC743192E6240B983F5D7AA2B5EF4FA3FCD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471842   (1014844) от 22.05.2021
+
+Януш Корчак | Король Матиуш Первый (1993) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старый король тяжело болен и может умереть. В случае его смерти на престол сядет его сын Матиуш. Но Матиуш ещё ребёнок; как он справится с управлением государством?..Жанр: СказкаПеревод: Муза ПавловаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D38DE6F665E5FBA607D3E28691A024DE3ABF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471905   (1014816) от 22.05.2021
+
+Наталья Петрова | Популярная научно-практическая энциклопедия современных знаний. Русские путешественники. Землепроходцы, мореходы, исследователи (2015) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014816.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге «Русские путешественники. Землепроходцы, мореходы, исследователи» рассказано о путешественниках и первооткрывателях, имена которых можно увидеть на карте мира. Среди них Белинсгаузен и Лазарев, Крузенштерн, Беринг, Пржевальский, Миклухо-Маклай, Крашенинников — люди, которые принесли своими путешествиями славу науке. Многие исследователи совершали свои экспедиции (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5B680A22067D8F162F01044B9DC948C0C08452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 738109   (1014813) от 22.05.2021
+
+Дойвбер Левин | Десять вагонов (1933) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для среднего и старшего школьного возраста.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E536A44F955FD372739706758FF11ECC6AC97508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471872   (1014806) от 22.05.2021
+
+Журнал | Светлячок  № 21 (1902) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Журналы для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "Светлячок" предназначался для детей младшего возраста. "Светлячок" имел наибольший тираж среди детских изданий начала ХХ века. Выходил Светлячок в свет два раза в месяц с 1902 по 1920 годы . Основателями и редакторами журнала "Светлячок" были А.А.Федоров-Давыдов и М.Ф.Лидерт.Жанр: Детская проза, СказкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7EE054BB02C48251DBB8036735FAE92C8D39254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471875   (1014801) от 22.05.2021
 
 Журнал | Светлячок  № 22 (1904) [PDF]
@@ -6,7 +136,7 @@
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014801.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014785.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014698.jpg" />
 </div>
 
 
@@ -86,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014685.jpg" />
 </div>
 
 
@@ -112,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Журналы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014678.jpg" />
 </div>
 
 
@@ -138,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014660.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014660.jpg" />
 </div>
 
 
@@ -164,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014657.jpg" />
 </div>
 
 
@@ -190,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014649.jpg" />
 </div>
 
 
@@ -216,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014541.jpg" />
 </div>
 
 
@@ -242,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014525.jpg" />
 </div>
 
 
@@ -268,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014517.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014517.jpg" />
 </div>
 
 
@@ -294,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014400.jpg" />
 </div>
 
 
@@ -320,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014382.jpg" />
 </div>
 
 
@@ -346,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014381.jpg" />
 </div>
 
 
@@ -372,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014357.jpg" />
 </div>
 
 
@@ -398,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014354.jpg" />
 </div>
 
 
@@ -426,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014351.jpg" />
 </div>
 
 
@@ -452,7 +582,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014294.jpg" />
 </div>
 
 
@@ -479,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014258.jpg" />
 </div>
 
 
@@ -506,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014174.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014174.jpg" />
 </div>
 
 
@@ -532,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014045.jpg" />
 </div>
 
 
@@ -545,138 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A1F923430D6E84478C29F2AF85247DBB1EDE09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472979   (1014044) от 27.05.2021
-
-Валерий Медведев | Капитан Соври-Голова или 36 и 9 (1974) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014044.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу вошли рассказы из жизни неудержимого фантазёра Димы Колчанова по прозвищу капитан Соври-голова. Его затеи всегда необычны и изобретательны, но далеко не всегда заканчиваются благополучно и частенько оборачиваются против него самого. Такой уж этот мальчишка – он ни минуты не может усидеть на месте, с ним постоянно что-нибудь приключается!Жанр: детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE4D2B7604CA7BB81C81C86ACAA9630DDFB6ACC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472973   (1014030) от 27.05.2021
-
-Валерий Медведев | Баранкин, будь человеком! (2019) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валерий Владимирович Медведев (1923–1998) – советский и российский писатель, актер, музыкант. Его повесть «Баранкин, будь человеком!», опубликованная в 1962 году, сразу обрела бешеную популярность среди юных читателей. История о том, как обычные школьники – Юра Баранкин и Костя Малинин – превращаются во всевозможных животных и даже в насекомых, поразила детей и взрослых (   Читать дальше...   )Жанр: детская проза, сказкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC06FC59EA90141C7CD25820687541193203FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473025   (1014012) от 27.05.2021
-
-Сергей Михалков | Сказки (1988) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014012.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книгу входят сказки известного советского писателя, Героя Социалистического труда, лауреата Ленинской и государственных премий С. В. Михалкова.Жанр: СказкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1C65E89C94E0F330BF0C14AF556E7E6F40AEBD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473190   (1013849) от 28.05.2021
-
-Андрей Некрасов | Приключения капитана Врунгеля (2017) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013849.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Приключения капитана Врунгеля» - это юмористическая повесть о кругосветном путешествии команды парусной яхты «Беда», которой руководит находчивый и остроумный капитан, способный с лёгкостью найти выход из любой сложной ситуации. Произведение А. Некрасова, ставшее классикой советской детской литературы, проиллюстрировано известным художником А. Елисеевым.Жанр: приключения, юмористическаяФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2225DE1B6789D19055DF4C08C1311BDCF7E7486D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473219   (1013839) от 28.05.2021
-
-Николай Носов | Фантазёры (1969) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти рассказы дарят нам всем очень много хорошего, доброго. И прежде всего они дарят радость смеха, весёлого настроения!
-Есть люди, которые думают, что «весело» и «несерьёзно» — это одно и то же. А ведь это не так. Тем и привлекательны книги Носова, что, радуя, веселя, они в то же время заставляют серьёзно задумываться.
-Книга называется «Фантазёры». Иногда мы с удивлением (   Читать дальше...   )Жанр: детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF831144B7C1B27878B4936FCC023CEA7D7A47BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

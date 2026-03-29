@@ -1,3 +1,107 @@
+###  Публикация: 1311865   (320144) от 17.10.2019
+
+Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Mizantrop1337
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Забудьте всё, что вы знаете о шутерах от первого лица: в Void Bastards вам нужно думать головой, а не просто целиться и стрелять. Вы должны вывести разношерстную толпу космических преступников из Саргассовой туманности. Принимайте решения и думайте куда направиться, что делать и с кем сражаться. Затем стыкуйтесь и вламывайтесь на чужие суда, полные странных и ужасных (   Читать дальше...   )Тип издания: RepackРазработчик: Blue ManchuЖанр: Шутер от первого лицаЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3333B79B464ACC2BEDB2889D70D14F9124B645AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331822   (320036) от 17.10.2019
+
+Project R.I.P. (2019) [Ru/Multi] (1.05) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь изменилась, орды нежити и демонов вышли на поверхность и теперь правят землей. Человеческая раса была вынуждена спрятаться в подземных убежищах ради выживания. Чтобы вернуть контроль над землей, человечество собрало силы и создало небольшие специализированные группы для устранения угрозы под управлением ИИ. Эта разработка называлась Project Rest in Pieces, (   Читать дальше...   )Тип издания: RepackРазработчик: Storming TechЖанр: Action (Horror), RPG, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080831761402534743FE64262EF54D2C04AB1ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075378   (319932) от 22.11.2016
+
+Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кровь (2009) [Ru/Multi] (1.206580) License PLAZA
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремейк культового шутера, разработанный на основе мощного графического движка Serious Engine 3. На заре XXI века человечество сделало невероятное открытие огромного научно-исторического значения. Плохо одно - открытие это ведет к неминуемой гибели планеты. Вся надежда на Крутого Сэма. У героя есть лишь один шанс, чтобы изменить прошлое и спасти человечество.Тип издания: LicenseРазработчик: Croteam и Devolver DigitalЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3366FC23032A5EFE3DF95DD9A084987B2E19B016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582652   (319303) от 29.11.2012
+
+Dark Shadows - Army of Evil [En] (L) 2012 | SKIDROW
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319303.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Dark Shadows: Army of Evil представлен только одиночный режим, разделенный на 19 уровней, на каждом из которых игроки смогут отыскать новый вид оружия. Игроки будут рубить, резать и колоть своих противников, а также бросать в них камни и расстреливать из лука. Разработчики обещают незабываемую мрачную атмосферу, сдобренную специальными «киношными» эффектами вроде трехмерных кровавых брызг. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B852788CF5F98E2B56F06CC6B842C6B66203BCF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582274   (319301) от 29.11.2012
 
 Gun [Ru/En] (RePack) 2005 | R.G. Механики
@@ -6,7 +110,7 @@ Gun [Ru/En] (RePack) 2005 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319301.jpg" />
+  <img src="Z:/picture/008/save_picture_319301.jpg" />
 </div>
 
 
@@ -38,7 +142,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3) License RELOADED [Digital Deluxe Edition
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318432.jpg" />
+  <img src="Z:/picture/008/save_picture_318432.jpg" />
 </div>
 
 
@@ -64,7 +168,7 @@ Prodeus (2022) [Ru/Multi] (1.0.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318163.jpg" />
+  <img src="Z:/picture/008/save_picture_318163.jpg" />
 </div>
 
 
@@ -90,7 +194,7 @@ Kingpin: Life of Crime [Ru] (RePack) 1999 | R.G. ReCoding
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317695.jpg" />
+  <img src="Z:/picture/008/save_picture_317695.jpg" />
 </div>
 
 
@@ -116,7 +220,7 @@ PositronX (2020) [En] (1.0.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317011.jpg" />
+  <img src="Z:/picture/008/save_picture_317011.jpg" />
 </div>
 
 
@@ -142,7 +246,7 @@ Crimson Earth 2 (2017) [En] (2.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316178.jpg" />
+  <img src="Z:/picture/008/save_picture_316178.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ Call of Duty: WWII (2017) [Ru/En] (1.3.1.15989/mp) Repack R.G. Revenants
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316153.jpg" />
+  <img src="Z:/picture/008/save_picture_316153.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ In Sound Mind (2021) [Ru/Multi] (1.016) License GOG [Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315835.jpg" />
+  <img src="Z:/picture/008/save_picture_315835.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ Get Even (2017) [Ru/Multi] (1.0/Upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315597.jpg" />
+  <img src="Z:/picture/008/save_picture_315597.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ NecroVisioN: Lost Company / NecroVisioN: Проклятая рота (2010) [Ru/
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311426.jpg" />
+  <img src="Z:/picture/008/save_picture_311426.jpg" />
 </div>
 
 
@@ -272,7 +376,7 @@ NecroVision (2009) [Ru/En] (1.2) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311293.jpg" />
+  <img src="Z:/picture/008/save_picture_311293.jpg" />
 </div>
 
 
@@ -298,7 +402,7 @@ The Dark Occult (2018) [Ru/Multi] (1.0.8) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311091.jpg" />
+  <img src="Z:/picture/008/save_picture_311091.jpg" />
 </div>
 
 
@@ -324,7 +428,7 @@ Painkiller (2004) [Ru/En/Fr] (1.64_lang_update/dlc) License GOG [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311055.jpg" />
+  <img src="Z:/picture/008/save_picture_311055.jpg" />
 </div>
 
 
@@ -350,7 +454,7 @@ Serious Sam HD: The First Encounter / Крутой Сэм HD: Первая кр�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305972.jpg" />
+  <img src="Z:/picture/008/save_picture_305972.jpg" />
 </div>
 
 
@@ -376,7 +480,7 @@ Serious Sam: The First Encounter / Крутой Сэм: Первая кровь 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304579.jpg" />
+  <img src="Z:/picture/008/save_picture_304579.jpg" />
 </div>
 
 
@@ -402,7 +506,7 @@ Serious Sam: The Second Encounter / Serious Sam. Второе пришестви
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304575.jpg" />
+  <img src="Z:/picture/008/save_picture_304575.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ Agony UNRATED (2018) [Ru/Multi] (1.0/upd1) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304435.jpg" />
+  <img src="Z:/picture/008/save_picture_304435.jpg" />
 </div>
 
 
@@ -454,7 +558,7 @@ Breaking Bones (2016) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303817.jpg" />
+  <img src="Z:/picture/008/save_picture_303817.jpg" />
 </div>
 
 
@@ -480,7 +584,7 @@ One Day For Ched (2012) [En] (1.0.5/dlc) Repack Let'sPlay
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303751.jpg" />
+  <img src="Z:/picture/008/save_picture_303751.jpg" />
 </div>
 
 
@@ -506,7 +610,7 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302570.jpg" />
+  <img src="Z:/picture/008/save_picture_302570.jpg" />
 </div>
 
 
@@ -532,7 +636,7 @@ Homefront [Ru/En] (Rip/1.0.384501) 2011 | R.G. Games
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302151.jpg" />
+  <img src="Z:/picture/008/save_picture_302151.jpg" />
 </div>
 
 
@@ -560,7 +664,7 @@ Radiation Island (2016) [Ru/Multi] (1.0) License HI2U
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301668.jpg" />
+  <img src="Z:/picture/008/save_picture_301668.jpg" />
 </div>
 
 
@@ -571,110 +675,6 @@ Radiation Island — приключенческая игра, где вам пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:652F739BC9D622E022447A1722D8CEDFD4BF8680
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375255   (301517) от 12.11.2020
-
-Genesis Alpha One (2020) [Ru/Multi] (147.8763/dlc) License GOG [Deluxe Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301517.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем мир изнывает от войн, коррупции и ужасной экологии, поэтому влиятельные корпорации разработали программу Genesis в отчаянной попытке спасти человечество. Вам предстоит стать капитаном космического корабля Genesis и отправиться в неизведанные космические глубины с важнейшей задачей. Стройте космические корабли и управляйте ими, производите ресурсы, (   Читать дальше...   )Тип издания: LicenseРазработчик: Radiation BlueЖанр: Экшн, Ролевая игра, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4867FEED2B4EF94E897231A783655C56657005B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184523   (300659) от 17.11.2017
-
-Hollow (2017) [Ru/Multi] (1.0) License PLAZA
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300659.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Hollow вы - один из пилотов, перевозящих ресурсы с корабля «Шахтер-1» на Землю. Однажды вы просыпаетесь в спасательной капсуле, дрейфующей рядом с добывающим комплексом. Вы не помните, кто вы и как вы сюда попали... Все, что осталось в памяти - стыковочный код автопилота для капсульного дока номер 6. Как только вы стыкуетесь с «Шахтером-1», становится ясно: (   Читать дальше...   )Тип издания: LicenseРазработчик: MMEUЖанр: Action, Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37FFE975525C9DC457C8695ABFFF95A59A0A9A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664973   (298993) от 03.12.2014
-
-Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.05/2dlc) Repack R.G. Catalyst
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев. Вам предстоит побывать в грязных салунах, золотых шахтах и многих других местах, где могут укрываться бандиты. (   Читать дальше...   )Тип издания: RePackРазработчик: TechlandЖанр: Action (Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Испанский, Итальянский, Французский, Немецкий, Польский, Бразильский, ЯпонскийЯзык интерфейса: Русский, Английский, Испанский, Итальянский, Французский, Немецкий, Польский, Бразильский, Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61017256AE79ACADD8EF78842E58B45AA9BA549C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184717   (298439) от 18.11.2017
-
-Hollow (2017) [Ru/Multi] (1.0) Repack Other s
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298439.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре Hollow вы - один из пилотов, перевозящих ресурсы с корабля «Шахтер-1» на Землю. Однажды вы просыпаетесь в спасательной капсуле, дрейфующей рядом с добывающим комплексом. Вы не помните, кто вы и как вы сюда попали... Все, что осталось в памяти - стыковочный код автопилота для капсульного дока номер 6. Как только вы стыкуетесь с «Шахтером-1», становится ясно: (   Читать дальше...   )Тип издания: RepackРазработчик: MMEUЖанр: Action, Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879826A00DD2695472BAD59FAD2429CA8498553F
 ```
 
 https://mybot314.ru/tekegram_catalog/

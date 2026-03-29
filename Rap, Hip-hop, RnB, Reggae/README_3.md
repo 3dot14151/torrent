@@ -6,7 +6,7 @@ Snoop Dogg - From Tha Streets 2 Tha Suites (2021) [FLAC|Lossless|Web-DL|tracks] 
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017562.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Ka - Descendants of Cain (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017413.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017087.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017081.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017071.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ BOULEVARD DEPO, Jeembo - ОМОФОР (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016137.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ DMX - Exodus (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013358.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Chillhop Essentials Summer 2021 [FLAC|Lossless|Web-DL|tracks] <ChillHop, Hi
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012992.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Jah Khalib - Collection 6 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ra
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007228.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - 100 Greatest Rap Songs The Greatest Hip-Hop Tracks Ever (2020) [MP3|320 Kbp
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003732.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003252.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Aswad - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Reggae>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002274.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Scylla & Sofiane Pamart - Pleine Lune (2018) [FLAC|Lossless|WEB-DL|tracks] <Fren
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002169.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Scylla & Sofiane Pamart - Pleine Lune 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Fr
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001951.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ ATL - Кривой эфир (2019) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001019.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Eminem - Music To Be Murdered By (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992441.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992441.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - RnB - The Solid Gold Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <RnB, 
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992313.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Eminem - Music To Be Murdered By (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_992312.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Mac Miller - Circles (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Rap>
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991803.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Eminem - Music To Be Murdered By (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL]  <Hip-H
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991687.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_991687.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Lil Wayne - 10 Albums (1999-2011) [MP3|320 kbps]<Rap/Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_986272.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Lisa Fischer - So Intense (2013) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Soul
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_985567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_985567.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ The Weeknd - Beauty Behind the Madness (2015) [MP3|320 кб/с] <R&B, Soul>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971764.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ VA - Reggae Anthology - The Definitive Collection of Federal Records (1964-1982)
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_970551.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ Method Man - The Meth Lab (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967709.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ VA - Black Tracks (2000) [FLAC|Lossless|tracks + .cue] <Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966732.jpg" />
 </div>
 
 

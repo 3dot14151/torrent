@@ -1,3 +1,84 @@
+###  Публикация: 1401439   (709053) от 10.08.2020
+
+Формула Е 2019-2020. 9-й Этап. еПри Берлина II. Гонка / Formula E Championship 2019-2020. Round 09. Berlin E-Prix II. Race (2020) HDTV [H.264/1080i-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_709053.jpg" />
+</div>
+
+
+###  Подробнее
+
+6-й сезон Формула Е 2019-2020 года, чемпионат мира среди автомобилей с электроприводом, признанный Международной автомобильной федерацией (FIA) как самый высший класс электрических гоночных автомобилей с открытыми колесами.
+09 августа 2020, воскресенье. 20:03 МСК
+9-й Этап. еПри Берлина II. Берлин (Германия)
+Кругов:	37(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD6C67057104934D9AC7F54BD5BA639A1B7AD171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401626   (707588) от 11.08.2020
+
+Национальное первенство Великобритании по шоссейно-кольцевым автогонкам БТСС 2020. Брэндс Хэтч, Гонка 1-3 / BTCC. Brands Hatch, Race 1-3 (2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_707588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Великобритании по шоссейно-кольцевым гонкам среди легковых автомобилей (англ. British Touring Car Championship, BTCC) — это национальное туринговое автомобильное первенство, существующее с 1958 года. Серия базируется в Великобритании.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 47:59 + 46:45 + 36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E28BEF6D2CA8DC6749D2F0CF431828BDB0EEAF3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402069   (701720) от 14.08.2020
+
+Формула-Е 2019-2020. Этап 10-11. Германия (Берлин). Гонка 1-2. Formula-E: Berlin E-Prix (12-13.08.2020) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_701720.jpg" />
+</div>
+
+
+###  Подробнее
+
+10-11 этапы электрической формулы Formula E в Германии, Берлине.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:49:14 + 01:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7692FDCA6912CB382B78AF55A965047286EA208B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1402332   (701317) от 14.08.2020
 
 Формула Е 2019-2020. 11-й Этап. еПри Берлина III. Гонка / Formula E Championship 2019-2020. Round 11. Berlin E-Prix III. Race (2020) HDTV [H.264/1080i-LQ]
@@ -6,7 +87,7 @@
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701317.jpg" />
+  <img src="Z:/picture/008/save_picture_701317.jpg" />
 </div>
 
 
@@ -35,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699822.jpg" />
+  <img src="Z:/picture/008/save_picture_699822.jpg" />
 </div>
 
 
@@ -64,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698011.jpg" />
+  <img src="Z:/picture/008/save_picture_698011.jpg" />
 </div>
 
 
@@ -93,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698003.jpg" />
+  <img src="Z:/picture/008/save_picture_698003.jpg" />
 </div>
 
 
@@ -122,7 +203,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697938.jpg" />
+  <img src="Z:/picture/008/save_picture_697938.jpg" />
 </div>
 
 
@@ -151,7 +232,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695940.jpg" />
+  <img src="Z:/picture/008/save_picture_695940.jpg" />
 </div>
 
 
@@ -177,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694276.jpg" />
+  <img src="Z:/picture/008/save_picture_694276.jpg" />
 </div>
 
 
@@ -206,7 +287,7 @@ MotoGP. Этап 01. Гран-при Катара. Квалификация (05.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686576.jpg" />
+  <img src="Z:/picture/008/save_picture_686576.jpg" />
 </div>
 
 
@@ -232,7 +313,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686031.jpg" />
+  <img src="Z:/picture/008/save_picture_686031.jpg" />
 </div>
 
 
@@ -261,7 +342,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684389.jpg" />
+  <img src="Z:/picture/008/save_picture_684389.jpg" />
 </div>
 
 
@@ -290,7 +371,7 @@ MotoGP. Этап 02. Гран-при Индонезии. Гонка (20.03.2022)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663274.jpg" />
+  <img src="Z:/picture/008/save_picture_663274.jpg" />
 </div>
 
 
@@ -316,7 +397,7 @@ MotoGP. Этап 03. Гран-при Аргентины. Гонка (03.04.2022)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642850.jpg" />
+  <img src="Z:/picture/008/save_picture_642850.jpg" />
 </div>
 
 
@@ -342,7 +423,7 @@ MotoGP. Этап 04. Гран-при США. Квалификация (09.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631833.jpg" />
+  <img src="Z:/picture/008/save_picture_631833.jpg" />
 </div>
 
 
@@ -368,7 +449,7 @@ MotoGP. Этап 04. Гран-при США. Гонка (10.04.2022) WEBRip [H.2
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629662.jpg" />
+  <img src="Z:/picture/008/save_picture_629662.jpg" />
 </div>
 
 
@@ -394,7 +475,7 @@ MotoGP. Этап 05. Гран-при Португалии. Квалификац�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607985.jpg" />
+  <img src="Z:/picture/008/save_picture_607985.jpg" />
 </div>
 
 
@@ -420,7 +501,7 @@ MotoGP. Этап 05. Гран-при Португалии. Гонка (24.04.202
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606117.jpg" />
+  <img src="Z:/picture/008/save_picture_606117.jpg" />
 </div>
 
 
@@ -446,7 +527,7 @@ MotoGP. Этап 06. Гран-при Испании. Гонка (01.05.2022) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601001.jpg" />
+  <img src="Z:/picture/008/save_picture_601001.jpg" />
 </div>
 
 
@@ -472,7 +553,7 @@ MotoGP. Этап 07. Гран-при Франции. Квалификация (1
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590704.jpg" />
+  <img src="Z:/picture/008/save_picture_590704.jpg" />
 </div>
 
 
@@ -498,7 +579,7 @@ MotoGP. Этап 07. Гран-при Франции. Гонка (15.05.2022) WEB
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589764.jpg" />
+  <img src="Z:/picture/008/save_picture_589764.jpg" />
 </div>
 
 
@@ -524,7 +605,7 @@ MotoGP. Этап 08. Гран-при Италии. Квалификация (28.
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579021.jpg" />
+  <img src="Z:/picture/008/save_picture_579021.jpg" />
 </div>
 
 
@@ -550,7 +631,7 @@ MotoGP. Этап 09. Гран-при Каталонии. Квалификаци�
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568903.jpg" />
+  <img src="Z:/picture/008/save_picture_568903.jpg" />
 </div>
 
 
@@ -576,7 +657,7 @@ MotoGP. Этап 09. Гран-при Каталонии. Гонка (05.06.2022)
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567346.jpg" />
+  <img src="Z:/picture/008/save_picture_567346.jpg" />
 </div>
 
 
@@ -602,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Авто, Мото
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540342.jpg" />
+  <img src="Z:/picture/008/save_picture_540342.jpg" />
 </div>
 
 
@@ -613,84 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5FFA454C7FA372F9295248C0F3B09E69B933497
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558203   (533904) от 19.06.2022
-
-MotoGP. Этап 10. Гран-при Германии. Квалификация (18.06.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533904.jpg" />
-</div>
-
-
-###  Подробнее
-
-18 июня 2022, суббота. 15:35 МСК. Этап 10, Хоэнштайн-Эрнстталь, Гран-при Германии. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDA0CF5F542FA4B27F92DE80E16DD8F680854CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558258   (533764) от 19.06.2022
-
-MotoGP. Этап 10. Гран-при Германии. Гонка (19.06.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533764.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 июня 2022, воскресенье. 15:00 МСК. Этап 10, Хоэнштайн-Эрнстталь, Гран-при Германии. Гонка (30 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D195AD8B6108FAB952E2A100C7CBFB4D4C6ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559557   (524420) от 25.06.2022
-
-MotoGP. Этап 11. Гран-при Нидерландов. Квалификация (25.06.2022) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524420.jpg" />
-</div>
-
-
-###  Подробнее
-
-25 июня 2022, суббота. 15:10 МСК. Этап 11, Ассен, Гран-при Нидерландов. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19EC3ECCD7B795EBF16E47CB702CB0BDED95936F
 ```
 
 https://mybot314.ru/tekegram_catalog/

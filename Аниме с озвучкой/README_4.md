@@ -1,3 +1,29 @@
+###  Публикация: 1447378   (1031693) от 13.02.2021
+
+Majo no Takkyuubin | Kiki's Delivery Service | Ведьмина служба доставки [1989, Movie] BDRip 1080p HEVC 10-bit raw+rus+eng
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая ведьма Кики по достижении 13 лет должна прожить среди людей определённое время. Вместе с котом Дзидзи она отправляется в город, где знакомится с добрым пекарем, который помогает ей начать собственное дело - экстренную службу доставки. Новая работа знакомит Кики со множеством различных людей и предоставляет возможность обрести новых друзей и совершить массу (   Читать дальше...   )Производство: Япония / Kiki's Delivery Service Production Committee, Nibariki, Nihon Television Network, Studio Ghibli, Tokuma Shoten, Yamato TransportЖанр: аниме, мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Хаяо МиядзакиПеревод: Дублированный, Многоголосый профессиональный, Двуголосый профессиональный, АвторскийЯзык озвучки: Японский, русский, английскийСубтитры: Русские, АнглийскиеПродолжительность: 01:44:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC57B9846241069787B2C2E9F55AF733FDDFDF28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602459   (1031518) от 22.03.2023
 
 Ледяной парень и классная девушка-коллега | Koori Zokusei Danshi to Cool na Douryou Joshi | The Ice Guy and His Cool Female Colleague [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031518.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + Special] BDRip 720p ru
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031494.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031073.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1031073.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Gekijouban Bem: Become Human | Bem Movie: Become Human | Бэм: Стать че
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030909.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030847.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030847.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030399.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1030169.jpg" />
 </div>
 
 
@@ -193,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029959.jpg" />
 </div>
 
 
@@ -220,7 +246,7 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестро�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029950.jpg" />
 </div>
 
 
@@ -246,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029763.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029763.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ Kyou kara Ore wa!! | Сегодня и начну!! [1993, OVA, 10 из 10] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029690.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029561.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1029555.jpg" />
 </div>
 
 
@@ -356,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1028754.jpg" />
 </div>
 
 
@@ -385,7 +411,7 @@ Futari Ecchi / Step Up Love Story / Хроники молодоженов [2002,
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026810.jpg" />
 </div>
 
 
@@ -411,7 +437,7 @@ Erementar Gerad | Elemental Gelade | Воздушные пираты [2005, TV, 
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026579.jpg" />
 </div>
 
 
@@ -438,7 +464,7 @@ Windaria | Once Upon a Time | Виндария [1986, Movie] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026570.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ Shinpi no Sekai El Hazard | El Hazard: The Wanderers | Эль-Хазард: Ст
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026541.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ Le Chevalier D'Eon | Шевалье Д'Эон [2007, TV, 24 эп.] HDTVRip 720p 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026540.jpg" />
 </div>
 
 
@@ -519,7 +545,7 @@ Speed Grapher | Спидграфер [2005, TV, 24 эп.] DVDRip 480p raw+rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026534.jpg" />
 </div>
 
 
@@ -546,7 +572,7 @@ Getbackers: Dakkanya | Get Backers | Агентство по возврату у
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026289.jpg" />
 </div>
 
 
@@ -572,7 +598,7 @@ Death Note | Тетрадь Смерти [2006, TV, 37 из 37] BDRip 1080p raw+
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026274.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025514.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025514.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ Higurashi no Naku Koro ni: Gou / Higurashi: When They Cry - Gou / Когда п�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025507.jpg" />
 </div>
 
 
@@ -650,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024970.jpg" />
 </div>
 
 
@@ -661,33 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19A43A63DDE469D960FE832DDC981FDE48A1C5E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438575   (1024652) от 24.03.2021
-
-История о том, как мальчик из деревни возле финального подземелья перебрался в стартовый город | Tatoeba Last Dungeon [ТВ-1] [2021, TV, 12 из 12] WEB-DL 1080p rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знакомьтесь, это Ллойд — мальчик, живущий в деревушке на окраине королевства. Он мечтает стать солдатом, да вот беда… Ллойд — самый слабый в своей деревне. И все жители наотрез отказываются помочь с этой его мечтой. Наперекор им Ллойд отправляется в столицу.
-Правда, есть одно важное «но»: так получилось, что ни мальчик, ни другие жители деревни не знают, что все (   Читать дальше...   )Производство: Япония, студия Liden FilmsЖанр: Комедия, Приключения, ФэнтезиРежиссер: МигмиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые), Русский (внешние)Продолжительность: 12 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0F1353FC75B8C9C6BF571C7049FDAD1A991B04
 ```
 
 https://mybot314.ru/tekegram_catalog/

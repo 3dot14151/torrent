@@ -1,3 +1,148 @@
+###  Публикация: 1646908   (231944) от 16.07.2023
+
+Lee Small - The Last Man On Earth (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Last Man On Earth (4:51)
+02. Neon Heartbeat (4:30)
+03. Let's Go Together (5:20)
+04. You're Not The Only One (3:47)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40A3D5437D25FC8E82F61521CD412538F9C8579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645161   (231943) от 08.07.2023
+
+John Greenwood - Dark Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Piece of Rosco Vidal (12:08)
+02. Too Late! (06:43)
+03. Too Late! Reprise, introducing The Ocean (02:42)
+04. The Ocean (16:00)(   Читать дальше...   )Жанр: Symphonic Progressive RockПродолжительность: 01:09:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4B81DC93A4FF282BCCFD493F1C9F89ADA2D916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646947   (231907) от 16.07.2023
+
+Steve Lukather - Bridges (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231907.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Far From Over (3:59)
+2. Not My Kind Of People (3:56)
+3. Someone (4:09)
+4. All Forevers Must End (4:20)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36612AD957B5274090DD209FB5F99225C0AD74F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646811   (231870) от 16.07.2023
+
+Strangerland - Echoes from the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whenever It Rains (3:52)
+02. Until My Heart (4:14)
+03. Scent of a Rose (4:45)
+04. Tears in My Eyes (4:08)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD67AC5FEAA7F25DE0210A26A7DECF343CC9176D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635690   (231819) от 27.05.2023
+
+Vermilion Whiskey - Crimson & Stone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Southern Metal, Stoner, Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_231819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson Intro
+02. Down On You
+03. The Get Down
+04. Confidence(   Читать дальше...   )Жанр: Heavy Rock, Southern Metal, Stoner, SludgeПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7CB25311CB7FFFFE76555505ED5CC594028E316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1643346   (231808) от 01.07.2023
 
 The Guess Who - Plein D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock / Classic Rock>
@@ -6,7 +151,7 @@ The Guess Who - Plein D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock / 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231808.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Thread - Thread (1995) 2023, 2xCD [FLAC|Lossless|image + .cue] <Prog Rock, Arena
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231742.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ Big Shot - Big Shot (1992) 2022 [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231722.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Yard Art - Yard Art (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Fema
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231709.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ David Forbes - Tales Of The Past (2023) [FLAC|Lossless|image + .cue] <Melodic Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231693.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ VA - Cottage Brunch (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231625.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Sniff 'n' The Tears - Retrospective (1983) Reissue, 1985, PolyGram [FLAC|Lossles
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231603.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231603.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ VA - Cottage Days (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231574.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ King Crimson - The Condensed 21st Century Guide To King Crimson 1969 - 2003 (200
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231448.jpg" />
 </div>
 
 
@@ -269,7 +414,7 @@ The Parallax Method - Folie a Trois (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231360.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231360.jpg" />
 </div>
 
 
@@ -298,7 +443,7 @@ Renaissance Rock Orchestra - The Ice Age Cometh (2023) [FLAC|Lossless|image + .c
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_231292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_231292.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ Foo Fighters - But Here We Are (2023) [FLAC|Lossless|tracks + .cue] <Alt. Rock, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231156.jpg" />
+  <img src="Z:/picture/004/save_picture_231156.jpg" />
 </div>
 
 
@@ -356,7 +501,7 @@ Various Artists - 80s Finest Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_231103.jpg" />
+  <img src="Z:/picture/004/save_picture_231103.jpg" />
 </div>
 
 
@@ -385,7 +530,7 @@ The Who - Who’s Next : Life House (1971) Remastered, 2022, Universal Music Cat
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230919.jpg" />
 </div>
 
 
@@ -414,7 +559,7 @@ Sonic Taboo - Kind of Venom (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Psych, 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230823.jpg" />
+  <img src="Z:/picture/005/save_picture_230823.jpg" />
 </div>
 
 
@@ -443,7 +588,7 @@ Badfinger - 14 Albums, 21CD (1969-2018) [FLAC|Lossless|image + .cue | tracks + .
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230700.jpg" />
+  <img src="Z:/picture/005/save_picture_230700.jpg" />
 </div>
 
 
@@ -472,7 +617,7 @@ Eloy - Echoes From The Past (2023) [FLAC|Lossless|image + .cue] <Krautrock, Psyc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230622.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ Greg Lake - The Anthology - A Musical Journey (2020) 2xCD [FLAC|Lossless|image +
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_230503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230503.jpg" />
 </div>
 
 
@@ -531,7 +676,7 @@ Damn!Escape - Devil's Friend (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_230136.jpg" />
+  <img src="Z:/picture/005/save_picture_230136.jpg" />
 </div>
 
 
@@ -560,7 +705,7 @@ Magnesis - La Bete du Gevaudan (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229731.jpg" />
+  <img src="Z:/picture/004/save_picture_229731.jpg" />
 </div>
 
 
@@ -589,7 +734,7 @@ Death Destroyer - Death Destroyer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229494.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_229494.jpg" />
 </div>
 
 
@@ -603,151 +748,6 @@ Death Destroyer - Death Destroyer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75C0B97D372796D2598AE08D6D4805B9BDA96D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649389   (229371) от 28.07.2023
-
-Sgt. Splendor - Death Of The Hoochie Koo (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavy Be The Borrowed Crown (4:18)
-02. Death Of The Hoochie Koo (3:27)
-03. Lips Are Movin' (2:42)
-04. Lay Me Back Down (3:32)(   Читать дальше...   )Жанр: Desert RockПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03D7B68DCB967CB6AC83DA19456AC89CAE77F64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649498   (229355) от 28.07.2023
-
-Carlos Lucena - Medium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_229355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 260 Pasos [00:02:36]
-02. El Festin de las Almas Oscuras [00:03:40]
-03. La Fila [00:05:20]
-04. Un Refugio en el Viento [00:03:45](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E25BC909EBAF75CEC930F0016AA4A3D186121E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512853   (229313) от 26.11.2021
-
-Edge Of The Blade - Distant Shores (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Me
-02. Feel The Fire
-03. Angels Fear To Tread
-04. Lonely Too(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53378D3B9FC9BAD734F9BB68E94D263626B8D02D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583471   (229214) от 15.10.2022
-
-Red Usurper - Abandon (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom, Groove>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nomad
-02. Last God
-03. The Calling
-04. Shadows(   Читать дальше...   )Жанр: Sludge, Doom, GrooveПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2474FEA224FEC928A1636D61A2B5F12C71ECD367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583391   (229154) от 15.10.2022
-
-Sudden Deaf - Havoc (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Proto Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_229154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Down [00:04:41]
-02. Mind Control [00:08:00]
-03. Raging Storm [00:05:57]
-04. Headhunter [00:03:54](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Proto MetalПродолжительность: 00:30:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F786712AFCF2DBD5E11A8455A8126D2DFDB706C
 ```
 
 https://mybot314.ru/tekegram_catalog/

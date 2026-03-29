@@ -1,3 +1,112 @@
+###  Публикация: 1305438   (556316) от 31.05.2019
+
+Sketch 55.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch от Bohemian Coding — один из лучших векторных редакторов под macOS!
+Разработка современных приложений немыслима без работы дизайнера, а дизайнеру для работы необходимо соответствующее программное обеспечение. В основном для разработки дизайна используются Adobe Illustrator, Photoshop и другие профессиональные графические редакторы, но есть и специализированные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Bohemian CodingПоддерживаемая ОС: macOS 10.13.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8563DD06562FD6E94DACE70B29092308226B3D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236154   (556199) от 15.07.2018
+
+Lyn 1.9.7.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - просмотрщик и браузер изображений
+Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
+
+Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5A5AA52BF5339AA3F126E901775735EFFF656F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305740   (556115) от 01.06.2019
+
+SteamWorld Quest: Hand of Gilgamech (2019) [Multi/Ru] [macOS Native game]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_556115.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возглавь отряд амбициозных героев в красочном, нарисованном от руки мире, и сражайся в напряженных боях, пользуясь только смекалкой и веером карт. Отважно встречай любую угрозу, создавая собственную колоду из более чем 100 уникальных перфокарт!Тип издания: macOS Native gameРелиз состоялся: 31 мая. 2019Разработчик: Image & Form GamesПоддерживаемая ОС: 10.11Жанр: Приключенческие игры, Ролевые игрыЯзык озвучки: английскийЯзык интерфейса: русский, английский, французский, итальянский +
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE9E9B687C8B4D680963FCFC4CD8513219C03568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305455   (555833) от 03.06.2019
+
+BusyCal 3 v3.6.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_555833.jpg" />
+</div>
+
+
+###  Подробнее
+
+BusyCal - это обновленная версия популярного календаря, отличающегося простотой и удобством, но в то же время обладающего большой функциональностью.
+BusyCal - программа на Mac OS X, которая поможет вам распланировать и следить за вашими делами. Разработчик позиционирует это приложение как "iCal Pro". iCal - одна из лучших программ на Mac от Apple. Однако, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.05.2019Разработчик: BusyCal, LLCПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Итальянский, Французский и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB8E591409F823A8EBA0EFDB5A1BA27FA33437C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305461   (555827) от 03.06.2019
 
 Find Any File (FAF) 1.9.4b4 [Multi]
@@ -6,7 +115,7 @@ Find Any File (FAF) 1.9.4b4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555827.jpg" />
+  <img src="Z:/picture/008/save_picture_555827.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ iTrash 4.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555826.jpg" />
+  <img src="Z:/picture/008/save_picture_555826.jpg" />
 </div>
 
 
@@ -59,7 +168,7 @@ Persecond 1.4.5 (119) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555824.jpg" />
+  <img src="Z:/picture/008/save_picture_555824.jpg" />
 </div>
 
 
@@ -85,7 +194,7 @@ Cinemagraph Pro 2.8.2 (221) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555792.jpg" />
+  <img src="Z:/picture/008/save_picture_555792.jpg" />
 </div>
 
 
@@ -111,7 +220,7 @@ Adguard Premium 2.0.4 (552) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555791.jpg" />
+  <img src="Z:/picture/008/save_picture_555791.jpg" />
 </div>
 
 
@@ -137,7 +246,7 @@ Native Instruments Reaktor 6 v6.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555790.jpg" />
+  <img src="Z:/picture/008/save_picture_555790.jpg" />
 </div>
 
 
@@ -164,7 +273,7 @@ Alfred 4 Powerpack v4.0.1 (1078) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555787.jpg" />
+  <img src="Z:/picture/008/save_picture_555787.jpg" />
 </div>
 
 
@@ -190,7 +299,7 @@ Imperator: Rome (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555772.jpg" />
+  <img src="Z:/picture/008/save_picture_555772.jpg" />
 </div>
 
 
@@ -216,7 +325,7 @@ Adobe Photoshop Lightroom Classic CC 2019 8.3.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555708.jpg" />
+  <img src="Z:/picture/008/save_picture_555708.jpg" />
 </div>
 
 
@@ -242,7 +351,7 @@ PDF Expert 2.4.24 (617) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555707.jpg" />
+  <img src="Z:/picture/008/save_picture_555707.jpg" />
 </div>
 
 
@@ -268,7 +377,7 @@ Weedcraft Inc (2019) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555312.jpg" />
+  <img src="Z:/picture/008/save_picture_555312.jpg" />
 </div>
 
 
@@ -294,7 +403,7 @@ The Sims 4 v1.44.88.1020 (2014) [Eng] [macOS WineSkin]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554615.jpg" />
+  <img src="Z:/picture/008/save_picture_554615.jpg" />
 </div>
 
 
@@ -320,7 +429,7 @@ Europa Universalis IV v.1.28 (2013) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554573.jpg" />
+  <img src="Z:/picture/008/save_picture_554573.jpg" />
 </div>
 
 
@@ -346,7 +455,7 @@ Sketch 51.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554226.jpg" />
+  <img src="Z:/picture/008/save_picture_554226.jpg" />
 </div>
 
 
@@ -373,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553821.jpg" />
+  <img src="Z:/picture/008/save_picture_553821.jpg" />
 </div>
 
 
@@ -399,7 +508,7 @@ Swinsian 2.1.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553735.jpg" />
+  <img src="Z:/picture/008/save_picture_553735.jpg" />
 </div>
 
 
@@ -428,7 +537,7 @@ Mate: Universal Tab Translator 6.0.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553717.jpg" />
+  <img src="Z:/picture/008/save_picture_553717.jpg" />
 </div>
 
 
@@ -456,7 +565,7 @@ CleanMyMac X 4.4.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553702.jpg" />
+  <img src="Z:/picture/008/save_picture_553702.jpg" />
 </div>
 
 
@@ -485,7 +594,7 @@ CleanMyMac 3.9.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553581.jpg" />
+  <img src="Z:/picture/008/save_picture_553581.jpg" />
 </div>
 
 
@@ -514,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553205.jpg" />
+  <img src="Z:/picture/008/save_picture_553205.jpg" />
 </div>
 
 
@@ -540,7 +649,7 @@ Figment v.1.1.5 (2017) [Multi/Ru] [OS X Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553152.jpg" />
+  <img src="Z:/picture/008/save_picture_553152.jpg" />
 </div>
 
 
@@ -566,7 +675,7 @@ Permute 2.2.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552193.jpg" />
+  <img src="Z:/picture/008/save_picture_552193.jpg" />
 </div>
 
 
@@ -578,116 +687,6 @@ Permute: Универсальный конвертер видео, аудио и
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F19A31CC7FA7AAAA0DCC5E3FAE0BF898EC74391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308777   (552148) от 18.06.2019
-
-Mitti 1.5.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mitti - это современное, многофункциональное, но простое в использовании профессиональное программное обеспечение для видеовоспроизведения в театральных, аудиовизуальных шоу, выступлениях и выставках.
-
-Mitti имеет понятный, интуитивно понятный пользовательский интерфейс с легким в освоении и использовании рабочим процессом, современным 64-битным аудио с низкой задержкой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.04.2019Разработчик: ImimotПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DEAF4504C0D7C72ABA7D4B8257B8E77B52D4E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308720   (552142) от 18.06.2019
-
-Polarr Photo Editor Pro 5.5.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Polarr - единственный редактор фотографий, который вам нужен.
-
-Неважно, если вы новичок в области фотографии или профессионала, у Polarr есть все. Новички оценят, что Polarr предлагает расширенные средства автоматического улучшения и сложные фильтры для редактирования всех деталей вашей фотографии. Профессиональные фотографы с нетерпением ждут нашей поддержки слоев, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.06.2019Разработчик: Polarr Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CE6EB339859AD529B1102093F3F907A9D023D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309090   (552061) от 18.06.2019
-
-Adobe Zii 2019 - Universal Patcher v4.3.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 13.06.2019Разработчик: TNTПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B147A2FBEF21963A6E46E7DDB0F53A676A8474BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308724   (552060) от 18.06.2019
-
-Notability 3.0.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярнейшее приложение для создания заметок на iPhone и iPad теперь на Mac!
-
-Notability – мощное средство для ведение заметок, комментированию документов, созданию набросков, записи лекций и много другого. Вы можете делать записи от руки, набирать на клавиатуре, делать аудиозаписи и фотографии. Благодаря iCloud ваши заметки всегда доступны на iPhone, iPad и Mac. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2019Разработчик: Ginger Labs, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F8189F1344C5896C8BE601E71D35FCA73AF36E
 ```
 
 https://mybot314.ru/tekegram_catalog/

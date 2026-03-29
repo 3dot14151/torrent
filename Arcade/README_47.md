@@ -1,3 +1,29 @@
+###  Публикация: 1739305   (48678) от 27.07.2024
+
+Hannah’s Day (2024) [Ru/En] (1.0) Scene Tenoke
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Больше всего на свете Ханна любит три вещи - петь, близких и свой скейтборд. Только вот её родители не в восторге от идеи связать свою жизнь с музыкой… Ну, ничего! Музыка и богатое воображение помогут Ханне преодолеть любые трудности. Проживите этот день вместе с Ханной. Решайте головоломки, найдите своих друзей и зажгите на сцене музыкального фестиваля. Но будьте (   Читать дальше...   )Тип издания: SceneРазработчик: Watt GamesЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9C365B910F2F1E3831A183756C580EB544770C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739286   (48662) от 27.07.2024
 
 Barrhell (2024) [En] (1.0) Scene Tenoke
@@ -6,7 +32,7 @@ Barrhell (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48662.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Champion Shift (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48659.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Nickelodeon All-Star Brawl 2 (2023) [Multi] (1.11.0/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48652.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Pinball FX (2023) [Multi] (1.0.18/dlc) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48505.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Downward (2017) [Multi] (2.0.2) Repack FitGirl [Enhanced Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48502.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Barrhell (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48213.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Hannah’s Day (2024) [Ru/En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48209.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Tomba! (2024) [Multi] (1.0) Scene TiNYiSO [Special Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47982.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ DAISY THE SWIMMER (2024) [Ru/Multi] (1.0.4) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47909.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Neon White (2022) [Ru/Multi] (1.0.740.0) Scene Dinobytes
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47743.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47743.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ Get To The Top (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47683.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47683.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Motordoom (2024) [Ru/Multi] (Build 15256500) Scene TiNYiSO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47499.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ MARS 2120 (2022) [Multi] (1.0.2) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47289.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Scene Rune
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47285.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ Aerial_Knight's We Never Yield (2024) [Multi] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47268.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ Cassette Beasts (2023) [Multi] (1.6.2/dlc) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46971.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (20240621) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46737.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ UFO Taxi (2024) [En] (1.0) Repack FitGirl
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46139.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ Frontiers Reach (2020) [En] (Chapter 3) Scene TinyISO
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45788.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ Super Antonio (2024) [En] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45780.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ Phantom Spark (2024) [Multi] (1.0.0:3004) Repack FitGirl [Deluxe Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45653.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ Golf Club Wasteland / Golf Club Nostalgia (2021) [Ru/Multi] (1582) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45184.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ Action SuperCross (1997) [En] (1.21) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44952.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ Call of Sentinels (2024) [Ru/Multi] (1.0) Scene Tenoke
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44885.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.4/dlc) Repack Wagner
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44854.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.4/dlc) Repack Wagner
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:888CCDCF7874EC6F60325E111E447229CE40A7B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746999   (44803) от 03.09.2024
-
-CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безжалостное сочетание зрелищных визуальных эффектов, взрывоопасного звукового дизайна и умопомрачительного экшна ставит CYGNI в авангард нового поколения игр в жанре shoot 'em up. Бросайтесь в небо, обратившееся в ад, в отчаянной схватке за выживание - в одиночку против врага, превосходящего в живой силе и оружии. Распределяйте энергию между ударными и защитными (   Читать дальше...   )Тип издания: RepackРазработчик: KeelWorksЖанр: Indie, Action, Shooter, ArcadeЯзык озвучки: Английский, Французский, Немецкий, Японский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0055F269A801C1C755EFF50193BBE41BC10D241
 ```
 
 https://mybot314.ru/tekegram_catalog/

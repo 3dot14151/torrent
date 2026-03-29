@@ -1,3 +1,55 @@
+###  Публикация: 541745   (501229) от 31.08.2012
+
+Странное дело.  Великаны. Пропавшая цивилизация (2012.08.31) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_501229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая программа - это отдельный документальный фильм, который расскажет об удивительных и труднообъяснимых явлениях. Раз в неделю, зрители станут свидетелями: аномальных происшествий и загадок, неопознанных летающих объектах и странных существах, а также сверхъестественных способностях человека.В выпуске: Священные книги всех народов рассказывают, что раньше на Земле обитали великаны. Это доказывают редкие и сенсационные археологические находки. Кто жил на планете до нас? Кем были существа пятиметрового роста и можно ли назвать их людьми?Жанр: ТелепередачаПродолжительность: ~ 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2034D29AB563FDBD2C716FC22C6B48ACD3E05DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540988   (501143) от 31.08.2012
+
+Штурм сознания - Кровь потомков (эфир_29.08.2012) (2012) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_501143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сенсационное открытие сделали недавно ученые из американского университета в Вермонте. Оказывается, у человека не 4 группы крови, как мы привыкли думать, а больше. Откуда они берутся, эксперты пока не выяснили, но уже выдвинули невероятную версию: начался новый этап эволюции человечества.Жанр: ДокументальныйПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A94A0D0D176D90E57A4885027E55FAC7564372D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 379888   (501085) от 26.08.2011
 
 Химиотрассы - химический террор мирового правительства (2009) CamRip [EN]
@@ -6,7 +58,7 @@
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501085.jpg" />
+  <img src="Z:/picture/008/save_picture_501085.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498312.jpg" />
+  <img src="Z:/picture/008/save_picture_498312.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497308.jpg" />
+  <img src="Z:/picture/008/save_picture_497308.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496245.jpg" />
+  <img src="Z:/picture/008/save_picture_496245.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496066.jpg" />
+  <img src="Z:/picture/008/save_picture_496066.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493690.jpg" />
+  <img src="Z:/picture/008/save_picture_493690.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490357.jpg" />
+  <img src="Z:/picture/008/save_picture_490357.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486134.jpg" />
+  <img src="Z:/picture/008/save_picture_486134.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484185.jpg" />
+  <img src="Z:/picture/008/save_picture_484185.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483617.jpg" />
+  <img src="Z:/picture/008/save_picture_483617.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482967.jpg" />
+  <img src="Z:/picture/008/save_picture_482967.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481831.jpg" />
+  <img src="Z:/picture/008/save_picture_481831.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481802.jpg" />
+  <img src="Z:/picture/008/save_picture_481802.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479551.jpg" />
+  <img src="Z:/picture/008/save_picture_479551.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478415.jpg" />
+  <img src="Z:/picture/008/save_picture_478415.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475834.jpg" />
+  <img src="Z:/picture/008/save_picture_475834.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474051.jpg" />
+  <img src="Z:/picture/008/save_picture_474051.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473334.jpg" />
+  <img src="Z:/picture/008/save_picture_473334.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473333.jpg" />
+  <img src="Z:/picture/008/save_picture_473333.jpg" />
 </div>
 
 
@@ -508,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472946.jpg" />
+  <img src="Z:/picture/008/save_picture_472946.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_472598.jpg" />
+  <img src="Z:/picture/005/save_picture_472598.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471898.jpg" />
+  <img src="Z:/picture/008/save_picture_471898.jpg" />
 </div>
 
 
@@ -586,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471883.jpg" />
+  <img src="Z:/picture/008/save_picture_471883.jpg" />
 </div>
 
 
@@ -612,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Непознанное и сверхъестественное
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471461.jpg" />
+  <img src="Z:/picture/008/save_picture_471461.jpg" />
 </div>
 
 
@@ -623,59 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D57586BA2355D443B11AFFF48938E2530A90D7B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058208   (471135) от 30.09.2016
-
-Экстрасенсы против детективов (2016.09.30) SATRip (сезон 1, выпуск 5)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грандиозная схватка между интуицией и дедукцией, предчувствием и логикой. Впервые в истории российского телевидения следователи, оперативники и криминалисты МВД сразятся с обладателями паранормальных способностей - шаманами, ведьмами и парапсихологами. По правилам проекта обеим командам предстоит в каждой программе раскрывать реальные преступления. В начале выпуска (   Читать дальше...   )Телекомпания: НТВЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A5BDE95FAF26F6D9C417E3BD99D83A8B9AEDE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058113   (470830) от 30.09.2016
-
-Живая вода (2010) WEB-DLRip[H.264/720p]
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заключительная часть научно-популярной трилогии о малоизученных информационных свойствах воды от телеканала "Россия" и продюсерского центра "Мастерская".
-С того времени, как учёные выдвинули гипотезу о существовании у воды памяти, наука совершила огромный скачок в этой области. Сегодня структурные особенности Н2О используются в медицине, биологии, (   Читать дальше...   )Телекомпания: ТК "Россия", Кинокомпания "Мастерская"Жанр: Документальный, научно-популярныйРежиссер: Анастасия Попова, Марина Дайновец, Александр ПрохоренковПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E6DDD95E10A22F18B6984E4B6DDA14EAA878BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

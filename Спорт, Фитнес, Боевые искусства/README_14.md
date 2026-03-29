@@ -1,3 +1,59 @@
+###  Публикация: 1071301   (361118) от 09.11.2016
+
+Вернер Шлагер, Бернд Гросс | Настольный теннис. Руководство от чемпиона мира (2016) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите показать великолепную игру за теннисным столом и удивить всех?
+
+Книга от чемпиона мира по настольному теннису научит вас всему для этого – хитрым приемам, уникальным тактикам и неповторимому стилю.
+(   Читать дальше...   )Жанр: Спорт, фитнесФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3E55682A7E54FAF430E9A6AF2A8126285F744EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255634   (361007) от 19.10.2018
+
+Ян Цзюньмин | Основы шаолиньского стиля «Белый Журавль»: боевая сила и цигун (1998) [FB2]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_361007.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Основы шаолиньского стиля “Белый Журавль”» — одна из последних книг Мастера Яна.
+В ней автор подводит итог своей тридцатипятилетней практики этого боевого искусства и собственных изысканий в области теории цигун. Это первая книга, переведенная на русский язык, в которой столь подробно разъясняется самая «эзотерическая» сторона китайских боевых искусств — теория (   Читать дальше...   )Жанр: Боевые искусства, СамосовершенствованиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E787747EE5C07629B47C7F23C86BEF12C6DB97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952032   (357561) от 31.10.2015
 
 Юрий Спасокукоцкий | Как построить тело своей мечты. Уроки чемпиона мира по бодибилдингу (2015) [FB2]
@@ -6,7 +62,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357561.jpg" />
+  <img src="Z:/picture/008/save_picture_357561.jpg" />
 </div>
 
 
@@ -33,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351763.jpg" />
+  <img src="Z:/picture/008/save_picture_351763.jpg" />
 </div>
 
 
@@ -59,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351586.jpg" />
+  <img src="Z:/picture/008/save_picture_351586.jpg" />
 </div>
 
 
@@ -85,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349082.jpg" />
+  <img src="Z:/picture/008/save_picture_349082.jpg" />
 </div>
 
 
@@ -112,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348823.jpg" />
+  <img src="Z:/picture/008/save_picture_348823.jpg" />
 </div>
 
 
@@ -138,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346571.jpg" />
+  <img src="Z:/picture/008/save_picture_346571.jpg" />
 </div>
 
 
@@ -164,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346336.jpg" />
+  <img src="Z:/picture/008/save_picture_346336.jpg" />
 </div>
 
 
@@ -190,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336086.jpg" />
+  <img src="Z:/picture/008/save_picture_336086.jpg" />
 </div>
 
 
@@ -216,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329310.jpg" />
+  <img src="Z:/picture/008/save_picture_329310.jpg" />
 </div>
 
 
@@ -242,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327430.jpg" />
+  <img src="Z:/picture/008/save_picture_327430.jpg" />
 </div>
 
 
@@ -268,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325741.jpg" />
+  <img src="Z:/picture/008/save_picture_325741.jpg" />
 </div>
 
 
@@ -294,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323071.jpg" />
+  <img src="Z:/picture/008/save_picture_323071.jpg" />
 </div>
 
 
@@ -321,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322775.jpg" />
+  <img src="Z:/picture/008/save_picture_322775.jpg" />
 </div>
 
 
@@ -347,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322173.jpg" />
+  <img src="Z:/picture/008/save_picture_322173.jpg" />
 </div>
 
 
@@ -373,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321106.jpg" />
+  <img src="Z:/picture/008/save_picture_321106.jpg" />
 </div>
 
 
@@ -399,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320422.jpg" />
+  <img src="Z:/picture/008/save_picture_320422.jpg" />
 </div>
 
 
@@ -425,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318964.jpg" />
+  <img src="Z:/picture/008/save_picture_318964.jpg" />
 </div>
 
 
@@ -451,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315974.jpg" />
+  <img src="Z:/picture/008/save_picture_315974.jpg" />
 </div>
 
 
@@ -477,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315566.jpg" />
+  <img src="Z:/picture/008/save_picture_315566.jpg" />
 </div>
 
 
@@ -504,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312924.jpg" />
+  <img src="Z:/picture/008/save_picture_312924.jpg" />
 </div>
 
 
@@ -530,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311213.jpg" />
+  <img src="Z:/picture/008/save_picture_311213.jpg" />
 </div>
 
 
@@ -558,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310929.jpg" />
+  <img src="Z:/picture/008/save_picture_310929.jpg" />
 </div>
 
 
@@ -584,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309281.jpg" />
+  <img src="Z:/picture/008/save_picture_309281.jpg" />
 </div>
 
 
@@ -610,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305726.jpg" />
+  <img src="Z:/picture/008/save_picture_305726.jpg" />
 </div>
 
 
@@ -621,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:226D9945DDD06066173C1921C05F9711A0700C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185079   (296846) от 19.11.2017
-
-Михаил Завьялов | Бокс. От зала к рингу (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся тренер и президент Национальной лиги профессионального бокса Украины Михаил Завьялов знакомит читателей со всеми аспектами этого вида спорта: от истории его возникновения до современных мировых турниров, от системы подготовки «новичков бокса» до сложнейших тренировочных процессов чемпионов.Жанр: Боевые искусства, БоксФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF3AAAE2E7E6D63AE6A650A15748755205799F01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185084   (296841) от 19.11.2017
-
-Григорий Левенфиш | Книга начинающего шахматиста (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга Григория Левенфиша – признанная классика и, пожалуй, лучший учебник по шахматам для начинающих любого возраста. По ней учились десятки тысяч шахматистов, многие из которых стали гроссмейстерами и чемпионами мира. С помощью этой книги вы сможете увидеть и оценить всю красоту великой игры.Жанр: Спорт, Хобби и ремесла, ШахматыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64A1F11E1FBB816A490697963E89E130F00FD08D
 ```
 
 https://mybot314.ru/tekegram_catalog/

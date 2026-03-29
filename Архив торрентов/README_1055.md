@@ -6,7 +6,7 @@ VMware Workstation 12 Pro 12.5.5 build 5234757 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804897.jpg" />
+  <img src="Z:/picture/008/save_picture_804897.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804831.jpg" />
+  <img src="Z:/picture/008/save_picture_804831.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Volume2 1.1.5.399 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804806.jpg" />
+  <img src="Z:/picture/008/save_picture_804806.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ IObit Uninstaller Pro 6.3.0.18 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804805.jpg" />
+  <img src="Z:/picture/008/save_picture_804805.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Studio 7.6 Build 156767 Network Edition RePack (& Portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804762.jpg" />
+  <img src="Z:/picture/008/save_picture_804762.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Microsoft Windows 10 TP Language Pack build 10049 (x86-x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804757.jpg" />
+  <img src="Z:/picture/008/save_picture_804757.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Scrutiny 10 v10.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804636.jpg" />
+  <img src="Z:/picture/008/save_picture_804636.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Things 3 v3.15.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804635.jpg" />
+  <img src="Z:/picture/008/save_picture_804635.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Wattagio 1.12.10 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804632.jpg" />
+  <img src="Z:/picture/008/save_picture_804632.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Find Any File (FAF) 2.3.2 b2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804629.jpg" />
+  <img src="Z:/picture/008/save_picture_804629.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Things 3 v3.15.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804628.jpg" />
+  <img src="Z:/picture/008/save_picture_804628.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ SILKYPIX Developer Studio Pro 10E v10.0.16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804620.jpg" />
+  <img src="Z:/picture/008/save_picture_804620.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VideoDuke 2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804618.jpg" />
+  <img src="Z:/picture/008/save_picture_804618.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ NetWorker Pro 7.5.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804614.jpg" />
+  <img src="Z:/picture/008/save_picture_804614.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Hex Editor Neo 6.31.00.5980 Ultimate Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804574.jpg" />
+  <img src="Z:/picture/008/save_picture_804574.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ Geekbench 5 v5.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804554.jpg" />
+  <img src="Z:/picture/008/save_picture_804554.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ PhotoSweeper X 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804547.jpg" />
+  <img src="Z:/picture/008/save_picture_804547.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Librarian Pro 7 v7.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804546.jpg" />
+  <img src="Z:/picture/008/save_picture_804546.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Storyist 4 v4.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804545.jpg" />
+  <img src="Z:/picture/008/save_picture_804545.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804544.jpg" />
+  <img src="Z:/picture/008/save_picture_804544.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804519.jpg" />
+  <img src="Z:/picture/008/save_picture_804519.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804518.jpg" />
+  <img src="Z:/picture/008/save_picture_804518.jpg" />
 </div>
 
 
@@ -596,7 +596,7 @@ VA - Uplifting Only Top 15: January (2018) [MP3|320 Kbps] <Trance, Uplifting Tra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804517.jpg" />
+  <img src="Z:/picture/008/save_picture_804517.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ VA - Poland Does It Better (2018) [MP3|320 Kbps] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804515.jpg" />
+  <img src="Z:/picture/008/save_picture_804515.jpg" />
 </div>
 
 
@@ -654,7 +654,7 @@ Cookie 5.7.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804512.jpg" />
+  <img src="Z:/picture/008/save_picture_804512.jpg" />
 </div>
 
 
@@ -683,7 +683,7 @@ Translatium - translator 7.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804502.jpg" />
+  <img src="Z:/picture/008/save_picture_804502.jpg" />
 </div>
 
 

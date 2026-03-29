@@ -6,7 +6,7 @@ Adobe Acrobat XI (v11.0.16) Professional Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772296.jpg" />
+  <img src="Z:/picture/008/save_picture_772296.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Adobe Acrobat Professional DC (v15.16) Multilingual
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772291.jpg" />
+  <img src="Z:/picture/008/save_picture_772291.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Mirillis Splash 2.0.4.0 Premium RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772288.jpg" />
+  <img src="Z:/picture/008/save_picture_772288.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ BitTorrent Pro 7.9.7 Build 42331 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772286.jpg" />
+  <img src="Z:/picture/008/save_picture_772286.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ R-Studio 8.0 Build 164541 Network Edition RePack (& portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772230.jpg" />
+  <img src="Z:/picture/008/save_picture_772230.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Maxthon Browser 5.2.0.1400 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772001.jpg" />
+  <img src="Z:/picture/008/save_picture_772001.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ PrivaZer 3.0.43 Donors version + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771996.jpg" />
+  <img src="Z:/picture/008/save_picture_771996.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Wise Program Uninstaller 2.3.2.133 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771987.jpg" />
+  <img src="Z:/picture/008/save_picture_771987.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Windows Repair (All In One) 3.1.2 Free + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771964.jpg" />
+  <img src="Z:/picture/008/save_picture_771964.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Ant Download Manager PRO 1.7.5 Build 49189 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771924.jpg" />
+  <img src="Z:/picture/008/save_picture_771924.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Mp3tag 2.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771910.jpg" />
+  <img src="Z:/picture/008/save_picture_771910.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Novicorp WinToFlash 0.8.0117 Beta Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771893.jpg" />
+  <img src="Z:/picture/008/save_picture_771893.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ PrivaZer 3.0.43 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771861.jpg" />
+  <img src="Z:/picture/008/save_picture_771861.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Athentech Perfectly Clear + Essentials + WorkBench 3.5.7.1164 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771856.jpg" />
+  <img src="Z:/picture/008/save_picture_771856.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Mozilla Firefox ESR 52.7.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771848.jpg" />
+  <img src="Z:/picture/008/save_picture_771848.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Maxthon Browser 5.2.7.300 beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771824.jpg" />
+  <img src="Z:/picture/008/save_picture_771824.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Initial Audio - Reverse 1.0.3 VST, VST2, VST3 (x86/x64) RETAiL [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771822.jpg" />
+  <img src="Z:/picture/008/save_picture_771822.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ YouTube By Click Premium 2.2.80 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771747.jpg" />
+  <img src="Z:/picture/008/save_picture_771747.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Mozilla Firefox Quantum 59.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771731.jpg" />
+  <img src="Z:/picture/008/save_picture_771731.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Initial Audio - SlowMo 1.0.3 VST, VST2, VST3 (x86/x64) RETAiL [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771716.jpg" />
+  <img src="Z:/picture/008/save_picture_771716.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ FastStone Capture 8.1 Final RePack (& portable) by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771701.jpg" />
+  <img src="Z:/picture/008/save_picture_771701.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Reg Organizer 7.10 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771696.jpg" />
+  <img src="Z:/picture/008/save_picture_771696.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Mozilla Firefox 47.0 beta 5 (x86/x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771609.jpg" />
+  <img src="Z:/picture/008/save_picture_771609.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Registry Life 3.29 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771594.jpg" />
+  <img src="Z:/picture/008/save_picture_771594.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ IObit Uninstaller Pro 8.3.0.13 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771583.jpg" />
+  <img src="Z:/picture/008/save_picture_771583.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Epic Privacy Browser 71.0.3578.98 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771580.jpg" />
+  <img src="Z:/picture/008/save_picture_771580.jpg" />
 </div>
 
 

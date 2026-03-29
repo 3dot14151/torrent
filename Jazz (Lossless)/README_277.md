@@ -1,3 +1,119 @@
+###  Публикация: 1668852   (173248) от 14.10.2023
+
+Joe Pass - Catch Me! (1963) 2003, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling in Love with Love [5:50]
+02. Summertime [6:23]
+03. Mood Indigo [5:08]
+04. Catch Me [3:10](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BE63A5B6321DBF5A86D98C5CDA8C1C3CA74E1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668850   (173227) от 14.10.2023
+
+Joe Pass Meets Tony Rizzi's 5 Guitars - Rose Room (1991) Alfa Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Give You Anything But Love [6:09]
+02. Flying Home [5:10]
+03. I Surrender Dear [4:04]
+04. I've Found a New Baby [4:36](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A378175D2312B3A6119CE1F04E83D3DAACEFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668838   (173189) от 14.10.2023
+
+Joe Pass & Tommy Gumina Trio - Autumn Leaves (1989) 1991, Alfa Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way You Look Tonight [4:39]
+02. Smile [4:21]
+03. Autumn Leaves [3:08]
+04. Teach Me Tonight [3:25](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFD053278F3618C3A6559FBF7581ADEF77A4B6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668841   (173188) от 14.10.2023
+
+Joe Pass & Tommy Gumina - Sentimental Moods (1990) Alfa Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Shining Hour [4:18]
+02. My Ship [3:56]
+03. Once in a While [3:41]
+04. Cavaquino [2:33](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8EC64D36D8CDE8D3BFB62979526A2AB0DF9456A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669099   (173061) от 15.10.2023
 
 Grant Green - First Recordings (1959) 2007, Gambit Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ Grant Green - First Recordings (1959) 2007, Gambit Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173061.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Grant Green - Green Street (1961) 1993, Toshiba-EMI [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173054.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Grant Green - Standards (1961) 1998, Blue Note [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173045.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173045.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Kajgūn(Kajgun) - Collection 4 Releases (2020-2022) [FLAC|Lossless|Web-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172961.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Robert Conti - Comin' On Strong! (1990) Time Is Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172879.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Andre Previn - Four Classic Albums (1957 - 1959) 2CD, 2011, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172877.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ Grant Green - Alive! (1970) 2000, Blue Note [FLAC|Lossless|tracks + .cue] <Jazz-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172874.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ David Hazeltine - The New Classic Trio (2012) Sharp Nine Records [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172681.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ Roland Hanna & George Mraz - Romanesque (2023) Solid Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172677.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ Roland Hanna Trio - Dream (2001) Venus Records [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172676.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172676.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ The Eddie "Lockjaw" Davis-Johnny Griffin Quintet - Tough Tenors (1970) 1988, MPS
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172524.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172524.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ Eddie "Lockjaw" Davis & Johnny Griffin Quintet - The Complete Sessions (1960, 19
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172518.jpg" />
 </div>
 
 
@@ -350,7 +466,7 @@ Grant Green - The Holy Barbarian, St. Louis (1959, 1960) 2012, Uptown Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172513.jpg" />
 </div>
 
 
@@ -379,7 +495,7 @@ Toshiko Akiyoshi - New York Sketch Book (2004) Ninety-One [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172499.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172499.jpg" />
 </div>
 
 
@@ -408,7 +524,7 @@ Clare Fischer - Just Me: Solo Piano Excursions (1995) Concord Jazz [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172361.jpg" />
 </div>
 
 
@@ -437,7 +553,7 @@ Johnny Griffin Quartet + 3 - Dance Of Passion (1993) PolyGram [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172358.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172358.jpg" />
 </div>
 
 
@@ -466,7 +582,7 @@ Eddie "Lockjaw" Davis - The Heavy Hitter (1979) 1998, 32 Jazz [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172351.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172351.jpg" />
 </div>
 
 
@@ -495,7 +611,7 @@ Clare Fischer - Alone Together (1975) 1997, Advance Music [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172350.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172350.jpg" />
 </div>
 
 
@@ -524,7 +640,7 @@ George Mraz In Duet With Roland Hanna - Porgy & Bess (1976) 2020, Octave Lab [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172341.jpg" />
 </div>
 
 
@@ -553,7 +669,7 @@ Erroll Garner - The Complete Savoy Master Takes (1945 - 1949) 2CD, 1998, Savoy J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172148.jpg" />
 </div>
 
 
@@ -582,7 +698,7 @@ Erroll Garner - Now Playing: A Night at the Movies (1964) 2019, Mack Avenue [FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172147.jpg" />
 </div>
 
 
@@ -611,7 +727,7 @@ Kenny Drew Trio - At The Brewhouse (1992) Storyville [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172145.jpg" />
 </div>
 
 
@@ -625,122 +741,6 @@ Kenny Drew Trio - At The Brewhouse (1992) Storyville [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC4C2C341AFF46A81131F4852BB7A8D844EDE42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670275   (172128) от 20.10.2023
-
-VA - 30 Sophisticated, Elegant, Inviting and Harmonious Tunes to Relax (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Touch (4:03)
-02. Chillaxonic - Aurora (5:13)
-03. Kool&Klean - I Smile (5:08)
-04. Chillaxing Jazz Kollektion - Evening Sun (5:24)(   Читать дальше...   )Жанр: Smooth Jazz, Easy Listening, LoungeПродолжительность: 02:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE95AC64B417F14A08F8A8B288994ABE7F644D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670303   (172124) от 20.10.2023
-
-Bill Evans Trio - How My Heart Sings! (1962) 1999, JVC [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How My Heart Sings [5:00]
-02. I Should Care [4:58]
-03. In Your Own Sweet Way (take 1) [7:00]
-04. Walking Up [4:58](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57831353B5A1E1EDB74AB679BCB3D1B775D62639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670574   (171961) от 21.10.2023
-
-Anita O'Day - Live At Mingo's (1979) 2004, Kayo Stereophonic [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Time Goes By [5:04]
-02. Stardust [5:36]
-03. I Didn't Know What Time It Was [4:14]
-04. The Very Thought of You [4:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B900EF64DBC2FFBDB46857FD728CB60345561213
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670558   (171958) от 21.10.2023
-
-Graham Collier Music - Songs For My Father (1970) 2000, DNA Records [APE|Lossless|image + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song One (Seven-Four) [9:33]
-02. Song Two (Ballad) [5:38]
-03. Song Three (Nine-Eight Blues) [7:52]
-04. Song Four (Waltz In Four-Four) [7:24](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 01:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF336EB2E233B4F7C71FE481CE34836D7DADB721
 ```
 
 https://mybot314.ru/tekegram_catalog/

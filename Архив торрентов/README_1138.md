@@ -6,7 +6,7 @@ Blocs 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791833.jpg" />
+  <img src="Z:/picture/008/save_picture_791833.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Backgrounds 7.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791828.jpg" />
+  <img src="Z:/picture/008/save_picture_791828.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791821.jpg" />
+  <img src="Z:/picture/008/save_picture_791821.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Q-Dir 8.34 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791819.jpg" />
+  <img src="Z:/picture/008/save_picture_791819.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791818.jpg" />
+  <img src="Z:/picture/008/save_picture_791818.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Cluster Calendar 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791812.jpg" />
+  <img src="Z:/picture/008/save_picture_791812.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ Glary Utilities Pro 5.143.0.169 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791811.jpg" />
+  <img src="Z:/picture/008/save_picture_791811.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791806.jpg" />
+  <img src="Z:/picture/008/save_picture_791806.jpg" />
 </div>
 
 
@@ -226,7 +226,7 @@ AMA Supercross Championship: Salt Lake City (31.05.2020) WEB-DL [H.264/720p-LQ]
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791805.jpg" />
+  <img src="Z:/picture/008/save_picture_791805.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Advanced Installer 17.1.1 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791804.jpg" />
+  <img src="Z:/picture/008/save_picture_791804.jpg" />
 </div>
 
 
@@ -278,7 +278,7 @@ Viber 13.1.0.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791802.jpg" />
+  <img src="Z:/picture/008/save_picture_791802.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ PrivaZer 4.0.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791800.jpg" />
+  <img src="Z:/picture/008/save_picture_791800.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ QOwnNotes 20.6.0 Build 5746 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791798.jpg" />
+  <img src="Z:/picture/008/save_picture_791798.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ Path Finder 9.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791797.jpg" />
+  <img src="Z:/picture/008/save_picture_791797.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ McAfee Endpoint Security for Mac 10.6.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791790.jpg" />
+  <img src="Z:/picture/008/save_picture_791790.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ ET Music Player Pro 1.1 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791788.jpg" />
+  <img src="Z:/picture/008/save_picture_791788.jpg" />
 </div>
 
 
@@ -434,7 +434,7 @@ Firefox Browser 77.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791783.jpg" />
+  <img src="Z:/picture/008/save_picture_791783.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Viber 13.1.0.56 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791781.jpg" />
+  <img src="Z:/picture/008/save_picture_791781.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Tenorshare iCareFone 6.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791775.jpg" />
+  <img src="Z:/picture/008/save_picture_791775.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Tenorshare UltData 9.2.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791764.jpg" />
+  <img src="Z:/picture/008/save_picture_791764.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791732.jpg" />
+  <img src="Z:/picture/008/save_picture_791732.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Holy State - Demo (2009) [FLAC|Lossless|tracks + .cue] <Punk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791722.jpg" />
+  <img src="Z:/picture/008/save_picture_791722.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ Dropzone 3.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791702.jpg" />
+  <img src="Z:/picture/008/save_picture_791702.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ BestReminder v2019.01.09.09 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791695.jpg" />
+  <img src="Z:/picture/008/save_picture_791695.jpg" />
 </div>
 
 
@@ -651,7 +651,7 @@ DJ Emerson - At The Controls (2018) [MP3|320 Kbps] <Techno, Tech House>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791694.jpg" />
+  <img src="Z:/picture/008/save_picture_791694.jpg" />
 </div>
 
 
@@ -680,7 +680,7 @@ Subtitle Edit 3.5.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791691.jpg" />
+  <img src="Z:/picture/008/save_picture_791691.jpg" />
 </div>
 
 

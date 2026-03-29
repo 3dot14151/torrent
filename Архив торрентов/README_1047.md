@@ -6,7 +6,7 @@ DP Animation Maker 3.3.7 RePack (& Portable) by TryRooM [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806838.jpg" />
+  <img src="Z:/picture/008/save_picture_806838.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.90.4200 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806837.jpg" />
+  <img src="Z:/picture/008/save_picture_806837.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Care 365 Pro 4.58.436 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806833.jpg" />
+  <img src="Z:/picture/008/save_picture_806833.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806831.jpg" />
+  <img src="Z:/picture/008/save_picture_806831.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ AIDA64 Extreme | Engineer | Business | Network Audit 5.90.4200 Final RePack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806828.jpg" />
+  <img src="Z:/picture/008/save_picture_806828.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AdwCleaner 6.045 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806827.jpg" />
+  <img src="Z:/picture/008/save_picture_806827.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ WindowsPlayer 3.5.2.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806825.jpg" />
+  <img src="Z:/picture/008/save_picture_806825.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Avast Internet Security 17.3.2290 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806823.jpg" />
+  <img src="Z:/picture/008/save_picture_806823.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Skype 7.3.0.101 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806799.jpg" />
+  <img src="Z:/picture/008/save_picture_806799.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806797.jpg" />
+  <img src="Z:/picture/008/save_picture_806797.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Free Download Manager 3.9.5 build 1530 Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806791.jpg" />
+  <img src="Z:/picture/008/save_picture_806791.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.90.4200 Final + P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806735.jpg" />
+  <img src="Z:/picture/008/save_picture_806735.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Avast Free Antivirus 17.3.2290 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806734.jpg" />
+  <img src="Z:/picture/008/save_picture_806734.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ Power VapeTools 1.4 [Ru/En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806733.jpg" />
+  <img src="Z:/picture/008/save_picture_806733.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Apple iWork: Keynote 7.1, Numbers 4.1 & Pages 6.1 (upd 27.03.2017) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806732.jpg" />
+  <img src="Z:/picture/008/save_picture_806732.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806723.jpg" />
+  <img src="Z:/picture/008/save_picture_806723.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Movavi Slideshow Maker 2 v2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806722.jpg" />
+  <img src="Z:/picture/008/save_picture_806722.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Kernel Adiutor 0.9.6.10 (Beta) [Ru] - Тонкая настройка касто
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806720.jpg" />
+  <img src="Z:/picture/008/save_picture_806720.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Auslogics Driver Updater 1.5.0.0 DC 02.04.2015 RePack (& Portable) by D!akov [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806687.jpg" />
+  <img src="Z:/picture/008/save_picture_806687.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ Kaspersky Rescue Disk 10.0.20.6 Build 07.05.2010 + USB Tools [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806660.jpg" />
+  <img src="Z:/picture/008/save_picture_806660.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806655.jpg" />
+  <img src="Z:/picture/008/save_picture_806655.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806645.jpg" />
+  <img src="Z:/picture/008/save_picture_806645.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806641.jpg" />
+  <img src="Z:/picture/008/save_picture_806641.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Vit Registry Fix Pro 12.6.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806606.jpg" />
+  <img src="Z:/picture/008/save_picture_806606.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806597.jpg" />
+  <img src="Z:/picture/008/save_picture_806597.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ BusyCal 2021.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806524.jpg" />
+  <img src="Z:/picture/008/save_picture_806524.jpg" />
 </div>
 
 

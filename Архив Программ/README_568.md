@@ -6,7 +6,7 @@ AMD Radeon Software Adrenalin Edition 18.3.3 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765760.jpg" />
+  <img src="Z:/picture/008/save_picture_765760.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ SRWare Iron 65.0.3400.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765718.jpg" />
+  <img src="Z:/picture/008/save_picture_765718.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ ReviverSoft PC Reviver 3.3.5.12 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765715.jpg" />
+  <img src="Z:/picture/008/save_picture_765715.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ K-Lite Codec Pack 14.0.5 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765671.jpg" />
+  <img src="Z:/picture/008/save_picture_765671.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Windows Firewall Control 5.3.0.0 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765643.jpg" />
+  <img src="Z:/picture/008/save_picture_765643.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Revo Uninstaller Pro 3.2.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765637.jpg" />
+  <img src="Z:/picture/008/save_picture_765637.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Wise Care 365 Pro 5.5.5.550 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765430.jpg" />
+  <img src="Z:/picture/008/save_picture_765430.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Mozilla Firefox Quantum ESR 60.5.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765403.jpg" />
+  <img src="Z:/picture/008/save_picture_765403.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Auslogics File Recovery 8.0.22.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765401.jpg" />
+  <img src="Z:/picture/008/save_picture_765401.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Mozilla Firefox Quantum 65.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765400.jpg" />
+  <img src="Z:/picture/008/save_picture_765400.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Calibre 3.38.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765393.jpg" />
+  <img src="Z:/picture/008/save_picture_765393.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Calibre 4.20 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765357.jpg" />
+  <img src="Z:/picture/008/save_picture_765357.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Serato DJ Pro 2.3.6 (2361350) (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765338.jpg" />
+  <img src="Z:/picture/008/save_picture_765338.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Auslogics Disk Defrag Free 8.0.22.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765335.jpg" />
+  <img src="Z:/picture/008/save_picture_765335.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Opera 58.0.3135.53 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765332.jpg" />
+  <img src="Z:/picture/008/save_picture_765332.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WinTools.net Premium 19.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765324.jpg" />
+  <img src="Z:/picture/008/save_picture_765324.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Google Chrome 72.0.3626.81 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765320.jpg" />
+  <img src="Z:/picture/008/save_picture_765320.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Reg Organizer 7.80 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765292.jpg" />
+  <img src="Z:/picture/008/save_picture_765292.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Reg Organizer 7.80 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765291.jpg" />
+  <img src="Z:/picture/008/save_picture_765291.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ BlueStacks App Player 4.215.0.5101 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765280.jpg" />
+  <img src="Z:/picture/008/save_picture_765280.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Wireshark 3.2.5 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765276.jpg" />
+  <img src="Z:/picture/008/save_picture_765276.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ CCleaner 5.29.6033 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765272.jpg" />
+  <img src="Z:/picture/008/save_picture_765272.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ CCleaner 5.29.6033 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765270.jpg" />
+  <img src="Z:/picture/008/save_picture_765270.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ PreSonus - Studio One Professional 4.1.3.50787 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765251.jpg" />
+  <img src="Z:/picture/008/save_picture_765251.jpg" />
 </div>
 
 
@@ -632,7 +632,7 @@ IsMyHdOK 1.64 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765244.jpg" />
+  <img src="Z:/picture/008/save_picture_765244.jpg" />
 </div>
 
 
@@ -658,7 +658,7 @@ VirtualBox 5.1.20 r114628 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765215.jpg" />
+  <img src="Z:/picture/008/save_picture_765215.jpg" />
 </div>
 
 

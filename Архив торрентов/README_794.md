@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870447.jpg" />
+  <img src="Z:/picture/008/save_picture_870447.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870446.jpg" />
+  <img src="Z:/picture/008/save_picture_870446.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ OEM Info Updater 9.1 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870434.jpg" />
+  <img src="Z:/picture/008/save_picture_870434.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870405.jpg" />
+  <img src="Z:/picture/008/save_picture_870405.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Electronic Manifesto 4. Epitaph. The End Chapter (2010) M-Tronic [FLAC|Loss
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870403.jpg" />
+  <img src="Z:/picture/008/save_picture_870403.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870398.jpg" />
+  <img src="Z:/picture/008/save_picture_870398.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Funf D (Fünf D) - Das Signal (2000) [FLAC|Lossless|tracks+.cue] <Psy-Trance, Pr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870392.jpg" />
+  <img src="Z:/picture/008/save_picture_870392.jpg" />
 </div>
 
 
@@ -206,7 +206,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870389.jpg" />
+  <img src="Z:/picture/008/save_picture_870389.jpg" />
 </div>
 
 
@@ -235,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870382.jpg" />
+  <img src="Z:/picture/008/save_picture_870382.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ Hank Williams Jr. - Old School New Rules (2012) [MP3|320 кб/с] <Folk, World, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870380.jpg" />
+  <img src="Z:/picture/008/save_picture_870380.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ QR Factory 2.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870372.jpg" />
+  <img src="Z:/picture/008/save_picture_870372.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870322.jpg" />
+  <img src="Z:/picture/008/save_picture_870322.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ XMedia Recode 3.3.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870318.jpg" />
+  <img src="Z:/picture/008/save_picture_870318.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870312.jpg" />
+  <img src="Z:/picture/008/save_picture_870312.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ oCam Screen Recorder 240.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870311.jpg" />
+  <img src="Z:/picture/008/save_picture_870311.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ QuickTextPaste 3.11 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870307.jpg" />
+  <img src="Z:/picture/008/save_picture_870307.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ USDownloader 1.3.5.9 Portable (19.03.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870306.jpg" />
+  <img src="Z:/picture/008/save_picture_870306.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870282.jpg" />
+  <img src="Z:/picture/008/save_picture_870282.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ ICQ 10.0 build 12015 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870267.jpg" />
+  <img src="Z:/picture/008/save_picture_870267.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870222.jpg" />
+  <img src="Z:/picture/008/save_picture_870222.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870203.jpg" />
+  <img src="Z:/picture/008/save_picture_870203.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ XYplorer 16.50.0200 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870202.jpg" />
+  <img src="Z:/picture/008/save_picture_870202.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Astral Travel Agency (aka Dublicator) - Infinite Range of Awarenesses (2016) [FL
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870200.jpg" />
+  <img src="Z:/picture/008/save_picture_870200.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ CoolUtils Total Audio Converter 5.2.0.145 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870198.jpg" />
+  <img src="Z:/picture/008/save_picture_870198.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870197.jpg" />
+  <img src="Z:/picture/008/save_picture_870197.jpg" />
 </div>
 
 
@@ -691,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870173.jpg" />
+  <img src="Z:/picture/008/save_picture_870173.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809355.jpg" />
+  <img src="Z:/picture/008/save_picture_809355.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Macsome iTunes Converter 2.1.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809298.jpg" />
+  <img src="Z:/picture/008/save_picture_809298.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Shogan - Universe (2017) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809292.jpg" />
+  <img src="Z:/picture/008/save_picture_809292.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809285.jpg" />
+  <img src="Z:/picture/008/save_picture_809285.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Mirror for Sony TV 1.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809281.jpg" />
+  <img src="Z:/picture/008/save_picture_809281.jpg" />
 </div>
 
 
@@ -147,7 +147,7 @@ PhoneRescue 3.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809280.jpg" />
+  <img src="Z:/picture/008/save_picture_809280.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ VA - Psy Trance Festival Anthems Vol.9 (2017) [MP3|320 Kbps] <Trance, Psy-Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809279.jpg" />
+  <img src="Z:/picture/008/save_picture_809279.jpg" />
 </div>
 
 
@@ -202,7 +202,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809272.jpg" />
+  <img src="Z:/picture/008/save_picture_809272.jpg" />
 </div>
 
 
@@ -228,7 +228,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809249.jpg" />
+  <img src="Z:/picture/008/save_picture_809249.jpg" />
 </div>
 
 
@@ -254,7 +254,7 @@ Windows 7 (13in2) Sergei Strelec x86/x64 6.1 (build 7601.24553) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809238.jpg" />
+  <img src="Z:/picture/008/save_picture_809238.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ Microsoft Office 2013 SP1 Professional Plus / Standard + Visio Pro + Project Pro
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809237.jpg" />
+  <img src="Z:/picture/008/save_picture_809237.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Acronis BootDVD 2016 Grub4Dos Edition v.39 (4/19/2016) 13 in 1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809225.jpg" />
+  <img src="Z:/picture/008/save_picture_809225.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809224.jpg" />
+  <img src="Z:/picture/008/save_picture_809224.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809220.jpg" />
+  <img src="Z:/picture/008/save_picture_809220.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Autodesk AutoCAD Plant 3D 2017 HF1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809218.jpg" />
+  <img src="Z:/picture/008/save_picture_809218.jpg" />
 </div>
 
 
@@ -413,7 +413,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4815.1000 RePack by KpoJIuK [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809215.jpg" />
+  <img src="Z:/picture/008/save_picture_809215.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ The Foundry MARI 3.0 v3 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809213.jpg" />
+  <img src="Z:/picture/008/save_picture_809213.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4815.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809210.jpg" />
+  <img src="Z:/picture/008/save_picture_809210.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809207.jpg" />
+  <img src="Z:/picture/008/save_picture_809207.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Level 42 - Level Best (1989) [FLAC|Lossless|image + .cue] <Synthpop, Funk>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809150.jpg" />
+  <img src="Z:/picture/008/save_picture_809150.jpg" />
 </div>
 
 
@@ -546,7 +546,7 @@ Stand Up (2017.03.26) HDTV [H.264/1080i-LQ] (сезон 6, выпуск 6)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809142.jpg" />
+  <img src="Z:/picture/008/save_picture_809142.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ Screenshot Captor 4.20.1 Portable by Kopejkin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809128.jpg" />
+  <img src="Z:/picture/008/save_picture_809128.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ Kaspersky Rescue Disk 10.0.20.6 Build 06.05.2010 [Multi/Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809122.jpg" />
+  <img src="Z:/picture/008/save_picture_809122.jpg" />
 </div>
 
 
@@ -624,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809101.jpg" />
+  <img src="Z:/picture/008/save_picture_809101.jpg" />
 </div>
 
 
@@ -650,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809094.jpg" />
+  <img src="Z:/picture/008/save_picture_809094.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809091.jpg" />
+  <img src="Z:/picture/008/save_picture_809091.jpg" />
 </div>
 
 

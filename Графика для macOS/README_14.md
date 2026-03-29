@@ -1,3 +1,30 @@
+###  Публикация: 244979   (436261) от 12.10.2010
+
+Alien Skin Bokeh 2.0.0.339 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_436261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Alien Skin представила вторую версию Bokeh, плагина для Photoshop, предназначенного для привлечения внимания к определенному объекту на фотографии. При помощи этого дополнения можно добавить на изображение эффект глубины резкости, сделать виньетку или подчеркнуть главный объект другим доступным способом. Особенность плагина в том, что он точно имитирует бокэ (эффект смазывания), который можно получить при помощи настоящих объективов.
+Вторая версия плагина интегрируется с Lightroom, имеет новую систему предварительного просмотра и работает намного быстрее.Разработчик: Alien SkinЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249311   (435880) от 23.09.2018
 
 SILKYPIX Developer Studio Pro 8E 8.0.24.0 [En]
@@ -6,7 +33,7 @@ SILKYPIX Developer Studio Pro 8E 8.0.24.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435880.jpg" />
+  <img src="Z:/picture/008/save_picture_435880.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ Darkroom: Photo & Video Editor 6.0.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433936.jpg" />
+  <img src="Z:/picture/008/save_picture_433936.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Capture One Pro 10 v10.2.105 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432209.jpg" />
+  <img src="Z:/picture/008/save_picture_432209.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ Intensify CK (Pro) 1.2.3 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432142.jpg" />
+  <img src="Z:/picture/008/save_picture_432142.jpg" />
 </div>
 
 
@@ -115,7 +142,7 @@ Raya Pro 2.0 & InstaMask 1.0 fix - panel for Adobe Photoshop [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430039.jpg" />
+  <img src="Z:/picture/008/save_picture_430039.jpg" />
 </div>
 
 
@@ -144,7 +171,7 @@ WaterMarker 2.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429329.jpg" />
+  <img src="Z:/picture/008/save_picture_429329.jpg" />
 </div>
 
 
@@ -172,7 +199,7 @@ Xee 3.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424708.jpg" />
+  <img src="Z:/picture/008/save_picture_424708.jpg" />
 </div>
 
 
@@ -200,7 +227,7 @@ Artstudio Pro 2.3.25 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422969.jpg" />
+  <img src="Z:/picture/008/save_picture_422969.jpg" />
 </div>
 
 
@@ -226,7 +253,7 @@ Photo Mechanic 6 v6.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422411.jpg" />
+  <img src="Z:/picture/008/save_picture_422411.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ onOne Perfect Photo Suite Premium Edition 9.5.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422240.jpg" />
+  <img src="Z:/picture/008/save_picture_422240.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ Imagenomic Plug-in Suite
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421215.jpg" />
+  <img src="Z:/picture/005/save_picture_421215.jpg" />
 </div>
 
 
@@ -306,7 +333,7 @@ Tonality CK (Pro) 1.4.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420172.jpg" />
+  <img src="Z:/picture/008/save_picture_420172.jpg" />
 </div>
 
 
@@ -334,7 +361,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.1.23 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419773.jpg" />
+  <img src="Z:/picture/008/save_picture_419773.jpg" />
 </div>
 
 
@@ -362,7 +389,7 @@ Focus CK (Pro) 1.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417801.jpg" />
+  <img src="Z:/picture/008/save_picture_417801.jpg" />
 </div>
 
 
@@ -388,7 +415,7 @@ Brightly Pro 2.1.7 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417261.jpg" />
+  <img src="Z:/picture/008/save_picture_417261.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ Metadata Converter Pro for Mac 1.6 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417259.jpg" />
+  <img src="Z:/picture/008/save_picture_417259.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ Imagenomic Portraiture 3 for Adobe Lightroom 3.5.2.3520 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415907.jpg" />
+  <img src="Z:/picture/008/save_picture_415907.jpg" />
 </div>
 
 
@@ -466,7 +493,7 @@ Imagenomic Portraiture for Photoshop СС2015.5-СС2019 3.5.2 build 3520 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415897.jpg" />
+  <img src="Z:/picture/008/save_picture_415897.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ GoodTimes 1.3.3 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414467.jpg" />
+  <img src="Z:/picture/008/save_picture_414467.jpg" />
 </div>
 
 
@@ -520,7 +547,7 @@ Apple Aperture 3.6 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413947.jpg" />
+  <img src="Z:/picture/008/save_picture_413947.jpg" />
 </div>
 
 
@@ -546,7 +573,7 @@ Canvas Draw 5 v5.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413194.jpg" />
+  <img src="Z:/picture/008/save_picture_413194.jpg" />
 </div>
 
 
@@ -574,7 +601,7 @@ FX Photo Studio CK (Pro) 3.1.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413162.jpg" />
+  <img src="Z:/picture/008/save_picture_413162.jpg" />
 </div>
 
 
@@ -603,7 +630,7 @@ Photo Batcher 1.2.4 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412248.jpg" />
+  <img src="Z:/picture/008/save_picture_412248.jpg" />
 </div>
 
 
@@ -631,7 +658,7 @@ FilmConvert Pro All Packs 2016 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409069.jpg" />
+  <img src="Z:/picture/008/save_picture_409069.jpg" />
 </div>
 
 
@@ -659,7 +686,7 @@ Imagenomic Professional Suite for Photoshop СС2015.5-СС2019 v1718 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408306.jpg" />
+  <img src="Z:/picture/008/save_picture_408306.jpg" />
 </div>
 
 
@@ -671,33 +698,6 @@ Portraiture -  незаменимый фильтр, который превра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8FC6696F70D67B6C347D9D30CC1DCCE171030EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252618   (407901) от 06.10.2018
-
-Adobe Type Manager Deluxe 4.6.1 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это последняя версия, после которой, к сожалению, поддержка, раздача и т.д. официально уже не осуществляется (с июля 2002-го).
-  Работает с PS, TTF, OTF шрифтами, позволяет создавать наборы шрифтов (внутри программы),  "на лету" включать-выключать шрифты или целые наборы, формировать "shortlist" с превью установленных шрифтов для печати для каждого (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: AdobeПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F0B300E768AAE3B3D5F6D761E3A5B746506079F
 ```
 
 https://mybot314.ru/tekegram_catalog/

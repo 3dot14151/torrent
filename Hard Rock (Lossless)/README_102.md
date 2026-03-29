@@ -1,3 +1,61 @@
+###  Публикация: 1791303   (67867) от 13.04.2025
+
+Smith/Kotzen - Black Light / White Noise (2025) SHM-CD, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muddy Water
+02. White Noise
+03. Black Light
+04. Darkside(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C111FF40D1C55EDF7E5FA10A8A7719C398546A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792392   (67658) от 19.04.2025
+
+The Quill - In Triumph (2006) Remastered and Expanded Edition, 2025, Metalville Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep the Circle Whole [00:03:34]
+02. Yeah [00:03:38]
+03. Slave Master [00:05:02]
+04. Broken Man [00:03:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1E6272288631BD2B9927E7DD18B26F40DC9C98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792493   (67599) от 20.04.2025
 
 Quartz - Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
@@ -6,7 +64,7 @@ Quartz - Six (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Heavy-Metal>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67599.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Soul Seller - Fight Against Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66813.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Sum Of All - Time to leave (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66634.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Barmy Rote - Injustice For All (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66456.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Brother Firetribe - Number One (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66364.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ The Dead Daisies - Lookin' For Trouble (2025) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66310.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Anthems in Ashes - This Affliction (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66295.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Ardbeggar - Dark Horses and Underdogs (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66292.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Sapid Steel - Feel The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66284.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66284.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Freakstorm - Dust Of Glory (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66129.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66129.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Tiffany Kills - World On Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65690.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Joe Stump's Tower Of Babel - Days Of Thunder (2025) [FLAC|Lossless|WEB-DL|tracks
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65510.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Jettblack - Raining Rock (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65082.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Roulette - Go! (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64951.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ In Theory - Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64787.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64787.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Bloody Dice - 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64754.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Nighthawk - Six Three O (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64540.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Rainbow - Down To Earth (1979) Reissue, 2011, 2CD Japan Deluxe Edition, SHM-CD
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63707.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Slade - 43 albums, 2 Box-Sets, 84CD (1969-2024) [FLAC|Lossless|image + .cue | tr
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62626.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Alice Cooper - 53 аlbums, 4 Box Sets, 134 CD (1969-2023) [FLAC|Lossless|image +
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60836.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Judas Priest - Invincible Shield (2024) Japanese Edition [FLAC|Lossless|image + 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60767.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60767.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Steppenwolf (John Kay & Steppenwolf) - 28 albums, 3 Box Sets, 61 CD (1968-2023) 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60177.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Lou Gramm & Projects - 7 albums, 1 Box-set, 14CD (1975-2021)  [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59979.jpg" />
 </div>
 
 
@@ -676,7 +734,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59387.jpg" />
 </div>
 
 
@@ -690,64 +748,6 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08458BB442FDA52FA6BD774B11C12800547BFC8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194389   (59241) от 19.04.2024
-
-Demon - 14 albums, 28 CD (1981-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard'n'Heavy, NWOBHM>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Типичный представитель новой волны британского тяжелого металла, недооцененная группа "Demon" была основана в 1980 году в английском городишке Сток-он-Трент. Зачинателями команды стали бывшие участники "Iron cross" вокалист Дэйв Хилл и гитарист Мэл Спунер. Компанию им составили гитарист из "Hunter" Лес Хант, басист Пол Райли и ударник (   Читать дальше...   )--------------------------
-
-01. Hyperactive (Welcome To The New World) (4:44)
-02. Old England Eyes (5:19)(   Читать дальше...   )Жанр: Hard'n'Heavy, NWOBHM |Продолжительность: 26:23:16 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACC0988835AC8697823D3A980B0AC64940B6F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721367   (57297) от 07.05.2024
-
-XYZ - Take What You Can... Live (1997) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maggie
-02. Take What You Can
-03. Come On 'N Love Me
-04. What Keeps Me Lovin' You(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05080B626D7F1729949CA418BC7A3FC193EA9B40
 ```
 
 https://mybot314.ru/tekegram_catalog/

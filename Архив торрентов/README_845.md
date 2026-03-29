@@ -6,7 +6,7 @@ Smultron 12.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857020.jpg" />
+  <img src="Z:/picture/008/save_picture_857020.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ MiniNote Pro 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857017.jpg" />
+  <img src="Z:/picture/008/save_picture_857017.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Export for iTunes 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857012.jpg" />
+  <img src="Z:/picture/008/save_picture_857012.jpg" />
 </div>
 
 
@@ -89,7 +89,7 @@ Klokki 1.2.0 (build 38) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857007.jpg" />
+  <img src="Z:/picture/008/save_picture_857007.jpg" />
 </div>
 
 
@@ -115,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856996.jpg" />
+  <img src="Z:/picture/008/save_picture_856996.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ VA - Offworld Transmissions Vol. 4 (2014) [MP3|320 кб/с]<Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856980.jpg" />
+  <img src="Z:/picture/008/save_picture_856980.jpg" />
 </div>
 
 
@@ -170,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856962.jpg" />
+  <img src="Z:/picture/008/save_picture_856962.jpg" />
 </div>
 
 
@@ -196,7 +196,7 @@ Battlestation: Harbinger (2016) [Ru/Multi] (1.4.9) Repack АRMENIAC
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856953.jpg" />
+  <img src="Z:/picture/008/save_picture_856953.jpg" />
 </div>
 
 
@@ -222,7 +222,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4312.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856951.jpg" />
+  <img src="Z:/picture/008/save_picture_856951.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ Microsoft Office 2016 Standard 16.0.4312.1000 RePack by KpoJIuK (2016.03) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856950.jpg" />
+  <img src="Z:/picture/008/save_picture_856950.jpg" />
 </div>
 
 
@@ -274,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856919.jpg" />
+  <img src="Z:/picture/008/save_picture_856919.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ MetaProducts Offline Explorer Enterprise 7.4.4572 SR1 Portable by PortableAppZ [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856917.jpg" />
+  <img src="Z:/picture/008/save_picture_856917.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Avast Free Antivirus 17.2.2288 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856910.jpg" />
+  <img src="Z:/picture/008/save_picture_856910.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Avast Internet Security 17.2.2288 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856908.jpg" />
+  <img src="Z:/picture/008/save_picture_856908.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ Process Lasso Pro 9.7.5.42 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856900.jpg" />
+  <img src="Z:/picture/008/save_picture_856900.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ MediaHuman YouTube Downloader 3.9.9.36 (1704) RePack (& Portable) by Dodakaedr [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856887.jpg" />
+  <img src="Z:/picture/008/save_picture_856887.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ iTunes 12.3.3.17 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856828.jpg" />
+  <img src="Z:/picture/008/save_picture_856828.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Adobe Acrobat X Pro 10.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856818.jpg" />
+  <img src="Z:/picture/008/save_picture_856818.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Divine Gate / Божественные врата [2016, TV, 12 из 12] HDTV 72
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856815.jpg" />
+  <img src="Z:/picture/008/save_picture_856815.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Avast Premier 17.2.2288 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856810.jpg" />
+  <img src="Z:/picture/008/save_picture_856810.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856789.jpg" />
+  <img src="Z:/picture/008/save_picture_856789.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856786.jpg" />
+  <img src="Z:/picture/008/save_picture_856786.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ QOwnNotes 20.4.10 Build 5566 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856771.jpg" />
+  <img src="Z:/picture/008/save_picture_856771.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856753.jpg" />
+  <img src="Z:/picture/008/save_picture_856753.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ MemTest86 7.3-4.3.7 Pro Retail [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856700.jpg" />
+  <img src="Z:/picture/008/save_picture_856700.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ DAEMON Tools Pro 8.1.1.0666 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856683.jpg" />
+  <img src="Z:/picture/008/save_picture_856683.jpg" />
 </div>
 
 

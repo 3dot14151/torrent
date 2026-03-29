@@ -1,3 +1,198 @@
+###  Публикация: 1112694   (840991) от 09.03.2017
+
+Футбол. Лига Чемпионов УЕФА 2016-2017. 1/8 финала. Обзор ответных матчей. День 2-й (08.03.2017) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840991.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 марта 2017, среда
+Обзор ответных матчей 1/8 финала Лиги Чемпионов УЕФА 2016-2017.
+День 2-й:
+(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: Русский (Павел Занозин)Продолжительность: 00:25:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F04273DCF1DC60E31246137665942E840BB6E23A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112997   (839301) от 10.03.2017
+
+Футбол. Лига Европы УЕФА 2016/2017. 1/8 финала. 1-й матч. Ростов (Россия) – Манчестер Юнайтед (Англия) (09.03.2017) HDTVRip [H.264/720p-LQ][hand made 50fps][RU,INT]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_839301.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 марта 2017, четверг. 21:00 МСК
+Лига Европы УЕФА 2016/2017. Плей-офф
+1/8 финала. 1-й матч
+(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский,  ИнтершумПродолжительность: 01:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B98EC5F64BCFEFCB16272CD18A9F6E4D00F9F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501060   (838118) от 08.10.2021
+
+Футбол. Лига Наций УЕФА 2020-2021. Лига А. 1/2 финала. Бельгия - Франция (07.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_838118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Наций УЕФА 2020-2021.Лига А. 1/2 финала. Бельгия - Франция (07.10.2021)
+СУДЬЯ Зиберт Даниэль (Германия)
+Судья на линии 1: Зайдель Ян (Германия)
+Судья на линии 2: Байтингер Эдуард (Германия)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, футболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA4395D462B4F20FD68E06D99D89F8287B6E287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501132   (837989) от 08.10.2021
+
+Рыбалка в Липецкой области (2011) SATRip
+
+>>Спорт и активный отдых
+>>Рыбалка и Охота
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_837989.jpg" />
+</div>
+
+
+###  Подробнее
+
+Посидеть с удочкой на берегу пруда летним утром или вечером где-то в российской глубинке — ни с чем не сравнимое удовольствие для каждого рыбыка. Отступают повседневные хлопоты и суета сменяется совершенно другими чувствами. Покой дарит безмятежность окружающей природы, радость приносит каждая удачная поклевка. Станислав Сальников отправился в Липецкую область, где (   Читать дальше...   )Производство: Россия, Russian Travel Guide TV (RTG TV)Жанр: Документальный, природа, путешествия, рыбалкаРежиссер: Олег ПечерскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:26:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB1C812EC0C580774A2B738BF85EC684ED6CE816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501396   (836132) от 09.10.2021
+
+Формула 1. Сезон 2021. Этап 16. Гран-при Турции. Квалификация (09.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_836132.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 октября 2021, суббота. 15:00 МСК
+Этап 16, Арена: Автодром Истанбул Парк (Стамбул, Турция), КвалификацияТелекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7C944A9A293703C8CA9EEC06624B11402988D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309706   (835513) от 19.03.2011
+
+Шахматы видеоуроки от Романа Джинджихашвили / Roman's Lab 100 DVD collection (2000-2010) Screener [EN]
+
+>>Спорт и активный отдых
+>>
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гроссмейстер Роман Джинджихашвили (США, ELO 2550) в доступной форме рассказывает о всех тонкостях различных стадий игры. А еще он снимался в голливудском кино "Searching for Bobby Fischer" (1993) где играл как ни странно, себя. ;)
+.
+ОТСУТСТВУЮТ ВЫПУСКИ Roman's Lab Vol 92 - 98. Если эти выпуски есть - буду благодарен за ссылку и готов добавить в раздачу. Видео сжато, но там в принципе в основном позиции и заказдровое объяснение. Скорость на отдачу у меня 100кб/с так что разумно начинать качать с тех серий, которые вам интересны.Жанр: Спорт, ТелепередачаПеревод: ОтсутствуетПродолжительность: 120:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0EA131A63B90545096F7EE21CC2ECEA9D9748B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501542   (835111) от 10.10.2021
+
+Смешанные единоборства. UFC Fight Night 194: Маккензи Дерн - Марина Родригес / UFC Fight Night 194: Dern vs. Rodriguez. Full Event (09.10.2021) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_835111.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ночь со 9 на 10 октября в городе Энтерпрайз, штат Невада, пройдет турнир по смешанным единоборствам UFC Fight Night 194.
+В главном противостоянии в октагоне сойдутся американка Маккензи Дерн (11–1) и Марина Родригес (14–1–2) из Бразилии.Телекомпания: UFC Fight PassЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:19:48 (Prelims) + 03:30:20 (Main Card)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F84E486A1C04BDFA9EFFC0A386E3EC307F97A4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501444   (834877) от 10.10.2021
 
 Формула 1. Сезон 2021. Этап 16. Гран-при Турции. Квалификация (09.10.2021) HDTVRip [H.264/1080p-LQ] [50fps] F1TV
@@ -6,7 +201,7 @@
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834877.jpg" />
+  <img src="Z:/picture/008/save_picture_834877.jpg" />
 </div>
 
 
@@ -35,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834874.jpg" />
+  <img src="Z:/picture/008/save_picture_834874.jpg" />
 </div>
 
 
@@ -64,7 +259,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Формула 1
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834871.jpg" />
+  <img src="Z:/picture/008/save_picture_834871.jpg" />
 </div>
 
 
@@ -91,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833746.jpg" />
 </div>
 
 
@@ -120,7 +315,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833739.jpg" />
 </div>
 
 
@@ -149,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Единоборства, Бои без правил
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833647.jpg" />
 </div>
 
 
@@ -175,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833540.jpg" />
 </div>
 
 
@@ -204,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_829800.jpg" />
 </div>
 
 
@@ -232,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_828321.jpg" />
 </div>
 
 
@@ -258,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827957.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827957.jpg" />
 </div>
 
 
@@ -287,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_827946.jpg" />
 </div>
 
 
@@ -315,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826811.jpg" />
 </div>
 
 
@@ -341,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826809.jpg" />
 </div>
 
 
@@ -370,7 +565,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826403.jpg" />
 </div>
 
 
@@ -399,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_826329.jpg" />
 </div>
 
 
@@ -427,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Бокс
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825699.jpg" />
 </div>
 
 
@@ -453,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825137.jpg" />
 </div>
 
 
@@ -482,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825134.jpg" />
 </div>
 
 
@@ -508,7 +703,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824764.jpg" />
 </div>
 
 
@@ -522,195 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDFE5714C7DD4745CECC32100EE96C69AA50ADF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502846   (824631) от 16.10.2021
-
-Хоккей. НХЛ 2021-2022. Анахайм Дакс - Миннесота Уайлд (16.10.2021) IPTVRip [H.264/720p-LQ]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. НХЛ 2021-2022. Анахайм Дакс - Миннесота Уайлд (16.10.2021)
-16 октября 2021, суббота. 05:00 МСК
-Судьи: Франсуа Сен-Лорен (Гринфилд Парк, Канада), Кайл Реман (Стеттлер, Канада)
-Стадион: Хонда-центр (Анахайм, США), 11 938 зрителей (68% при вместимости 17 495)Телекомпания: Матч!Жанр: Спорт, хоккейЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60E5D8267EB1F80BB2A36722835B7C1BE33E4CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839199   (824257) от 27.11.2025
-
-НХЛ 2025-2026. Баффало Сэйбрз - Питтсбург Пингвинз (26.11.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824257.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 ноября 2025 четверг 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 543 зрителя (94% при вместимости 18 673)Телекомпания: SNPЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB68304809EBC581CEA05C953BDA602CC2F5F0D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839202   (824254) от 27.11.2025
-
-НХЛ 2025-2026. Виннипег Джетс - Вашингтон Кэпиталз (26.11.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824254.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 ноября 2025 четверг 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 347 зрителей (99% при вместимости 18 573).Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BB4C44C95FB291587BC1058EE6E26D278FEDA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503113   (823168) от 17.10.2021
-
-Хоккей. НХЛ 2021-2022. Чикаго Блэкхокс - Питтсбург Пингвинз (16.10.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823168.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 октября 2021, воскресенье. 02:00 МСК
-Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 420 зрителей (99% при вместимости 18 673)
-Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Кори Сиврет (Милгров, Канада)Телекомпания: AT&TЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5CFAF2D9A2C51B16228644E11DA2ADFADC96345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503061   (823167) от 17.10.2021
-
-Хоккей. НХЛ 2021-2022. Обзор игрового дня / NHL On The Fly (16.10.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. НХЛ 2021/2022. Обзор игрового дня / NHL On The Fly (16.10.2021)Телекомпания: Setanta SportsЖанр: Спорт, хоккейЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55B71DB789800C20BC710289989979033584C60F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503115   (823164) от 17.10.2021
-
-Хоккей. НХЛ 2021-2022. Тампа-Бэй Лайтнинг - Вашингтон Кэпиталз (16.10.2021) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823164.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 октября 2021, воскресенье. 02:00 МСК
-Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Дин Мортон (Питерборо, Канада); Главный судья: Фурман Саут (Сьюикли, США)Телекомпания: NBCS-WSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB87CA66123F74D1778E0E4C6F25F855EE4C2F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503074   (822926) от 17.10.2021
-
-Смешанные единоборства. UFC Fight Night 195: Аспен Лэдд - Норма Дюмонт Виана / UFC Fight Night 195: Ladd vs. Dumont. Prelims & Main Card (16.10.2021) IPTVRip [H.264/1080p-LQ]
-
->>Спорт и активный отдых
->>Единоборства, Бои без правил
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822926.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 октября в Лас-Вегасе (Невада, США) на фирменной арене «UFC APEX» состоялся турнир UFC Fight Night 195. Главным событием которого стал бой в полулегком весе: Аспен Лэдд - Норма Дюмонт Виана. Первоначально, с Дюмонт должна была встретиться Холли Холм, но из-за травмы колена она была вынуждена покинуть кард ивента. На замену в короткие сроки вышла Аспен Лэдд, которая (   Читать дальше...   )Телекомпания: UFC ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DFEFBEBBD25322705470D4A8DD1E248E107E31F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752142.jpg" />
+  <img src="Z:/picture/008/save_picture_752142.jpg" />
 </div>
 
 
@@ -40,7 +40,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_752131.jpg" />
+  <img src="Z:/picture/005/save_picture_752131.jpg" />
 </div>
 
 
@@ -66,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751826.jpg" />
+  <img src="Z:/picture/008/save_picture_751826.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751824.jpg" />
+  <img src="Z:/picture/008/save_picture_751824.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751820.jpg" />
+  <img src="Z:/picture/008/save_picture_751820.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751692.jpg" />
+  <img src="Z:/picture/008/save_picture_751692.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ BBC. Horizon: Война против науки / A War On Science (2006) DVBRi
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750647.jpg" />
+  <img src="Z:/picture/008/save_picture_750647.jpg" />
 </div>
 
 
@@ -198,7 +198,7 @@ BBC: Величайшие явления природы (эпизоды 1-6 из
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750310.jpg" />
+  <img src="Z:/picture/008/save_picture_750310.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ BBC: Суперстая / Swarm: Nature's Incredible Invasions (Megaschwaerme. D
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749819.jpg" />
+  <img src="Z:/picture/008/save_picture_749819.jpg" />
 </div>
 
 
@@ -250,7 +250,7 @@ BBC: Горькое озеро / Bitter Lake (2015) Web-DLRip [H.264/720p] [EN /
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749620.jpg" />
+  <img src="Z:/picture/005/save_picture_749620.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ BBC: Сокрытые миры / Hidden Kingdoms (2014) BDRip [H.264/1080p] (С�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749094.jpg" />
+  <img src="Z:/picture/008/save_picture_749094.jpg" />
 </div>
 
 
@@ -303,7 +303,7 @@ BBC. Horizon: Как дожить до 101 года? / How to live to 101? (2008
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748662.jpg" />
+  <img src="Z:/picture/008/save_picture_748662.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ BBC: Величайшие явления природы / Nature's Great Events 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748586.jpg" />
+  <img src="Z:/picture/008/save_picture_748586.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ BBC: Загадки истории. Век полетов: Легенды мир
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748583.jpg" />
+  <img src="Z:/picture/008/save_picture_748583.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ BBC: Глубина / Deep Blue (2003) [720p]BDRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748582.jpg" />
+  <img src="Z:/picture/008/save_picture_748582.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748153.jpg" />
+  <img src="Z:/picture/008/save_picture_748153.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ BBC: Жизнь на земле / Life on Earth (1979) BDRip [H.264/720p-LQ] (Э
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747488.jpg" />
+  <img src="Z:/picture/008/save_picture_747488.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747055.jpg" />
+  <img src="Z:/picture/008/save_picture_747055.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ BBC: Что такое свет / Light Fantastic (2004)
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746588.jpg" />
+  <img src="Z:/picture/008/save_picture_746588.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746533.jpg" />
+  <img src="Z:/picture/008/save_picture_746533.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745900.jpg" />
+  <img src="Z:/picture/008/save_picture_745900.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ BBC: Свет и Тьма / BBC: Light and Dark (2013) SATRip
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745130.jpg" />
+  <img src="Z:/picture/008/save_picture_745130.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ BBC: Планеты / The Planets (1999) DVDRip (сезон 1, серии 1-8 и
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745124.jpg" />
+  <img src="Z:/picture/008/save_picture_745124.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ BBC: История возникновения лекарств / BBC: Pain, Pus
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743450.jpg" />
+  <img src="Z:/picture/008/save_picture_743450.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743334.jpg" />
+  <img src="Z:/picture/008/save_picture_743334.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ BBC: Тайны тёмной энергии / BBC: The Mysteries of Dark Energy 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743206.jpg" />
+  <img src="Z:/picture/008/save_picture_743206.jpg" />
 </div>
 
 

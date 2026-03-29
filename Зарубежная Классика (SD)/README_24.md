@@ -1,3 +1,81 @@
+###  Публикация: 1105972   (871219) от 20.02.2017
+
+Мистер Питкин: Ранняя пташка / The Early Bird (1965) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_871219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норман работает на старой,забытой Богом,маслобойне,все оборудование которой медленно,но верно приходит в полную негодность. А вокруг,между тем,кипит жизнь-технический прогресс уверенно наступает со всех сторон. И тогда Норман решает во что бы это не стало отстоять свою древнюю маслобойню.Производство: Великобритания, The Rank Organisation Film Productions LtdЖанр: КомедияРежиссер: Роберт ЭшерАктеры: Норман Уисдом, Эдвард Чэпман, Джерри Десмонд, Пэдди О’Нил, Брайан Прингл, Ричард ВернонПеревод: Одноголосый закадровыйСубтитры: НетПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE833FA50C73B0828216C0789F29E0054F3F8310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496594   (871073) от 18.09.2021
+
+Мамочка, нянечка, сыночек и доченька / Mumsy, Nanny, Sonny & Girly (1969) BDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_871073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подростки брат с сестрой любят приводить к себе в особняк, где ещё живут мама и няня, различных людей и играть с ними в игры. А если новые друзья не следуют правилам, то они отправляются к праотцам. Впрочем, даже если они им следуют, в итоге они всё равно отправляются туда же. Но однажды у их очередного друга появляется интересная идея для новой игры.Производство: Великобритания, Brigitte, Fitzroy Films Ltd., Ronald J. Kahn ProductionsЖанр: Ужасы, комедия, криминалРежиссер: Фредди ФрэнсисАктеры: Майкл Брайант, Урсула Хауэллс, Пэт Хейвуд, Ховард Тревор, Ванесса Ховард, Роберт Сванн, Имоджен Хассалл, Майкл Риппер, Хью АрмстронгПеревод: Одноголосый любительский (Олег Воротилин)Субтитры: Русские, английские - отдельными файламиПродолжительность: 01:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:041B428210C0BDEA2FEE85D9EDDDC4A0E0D21CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100458   (871044) от 20.02.2017
+
+Бекет / Becket (1964) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_871044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генрих II окружен завистниками и интриганами. Единственный человек, которому правитель Англии всецело доверяет, — Томас Бекет. Он — слуга и наставник, военный советник и соучастник амурных похождений короля. Чтобы подчинить себе могучего противника — католическую церковь, — Генрих добивается избрания Бекета архиепископом Кентерберийским. Но веселый гуляка, плюющий (   Читать дальше...   )Производство: Великобритания, СШАЖанр: Драма, биография, история, экранизацияРежиссер: Питер ГленвиллАктеры: Ричард Бёртон, Питер О`Тул, Джон Гилгуд, Джино Черви, Паоло Стоппа, Доналд Уолфит, Дэвид Уэстон, Мартита Хант, Памела Браун, Сайн Филлипс ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 02:28:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59F94560BA95F1897D2759FC99D4D4E045B916C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102786   (869826) от 21.02.2017
 
 Долина мести / Vengeance Valley (1950) DVDRip [H.264]
@@ -6,7 +84,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869826.jpg" />
+  <img src="Z:/picture/008/save_picture_869826.jpg" />
 </div>
 
 
@@ -33,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868309.jpg" />
+  <img src="Z:/picture/008/save_picture_868309.jpg" />
 </div>
 
 
@@ -59,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868117.jpg" />
+  <img src="Z:/picture/008/save_picture_868117.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867998.jpg" />
+  <img src="Z:/picture/008/save_picture_867998.jpg" />
 </div>
 
 
@@ -111,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867996.jpg" />
+  <img src="Z:/picture/008/save_picture_867996.jpg" />
 </div>
 
 
@@ -137,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867786.jpg" />
+  <img src="Z:/picture/008/save_picture_867786.jpg" />
 </div>
 
 
@@ -163,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867698.jpg" />
+  <img src="Z:/picture/008/save_picture_867698.jpg" />
 </div>
 
 
@@ -190,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867248.jpg" />
+  <img src="Z:/picture/008/save_picture_867248.jpg" />
 </div>
 
 
@@ -218,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867188.jpg" />
+  <img src="Z:/picture/008/save_picture_867188.jpg" />
 </div>
 
 
@@ -244,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865440.jpg" />
+  <img src="Z:/picture/008/save_picture_865440.jpg" />
 </div>
 
 
@@ -270,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865359.jpg" />
+  <img src="Z:/picture/008/save_picture_865359.jpg" />
 </div>
 
 
@@ -296,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864752.jpg" />
+  <img src="Z:/picture/008/save_picture_864752.jpg" />
 </div>
 
 
@@ -322,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864670.jpg" />
+  <img src="Z:/picture/008/save_picture_864670.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864343.jpg" />
+  <img src="Z:/picture/008/save_picture_864343.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864143.jpg" />
+  <img src="Z:/picture/008/save_picture_864143.jpg" />
 </div>
 
 
@@ -401,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863671.jpg" />
+  <img src="Z:/picture/008/save_picture_863671.jpg" />
 </div>
 
 
@@ -427,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863373.jpg" />
+  <img src="Z:/picture/008/save_picture_863373.jpg" />
 </div>
 
 
@@ -453,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863014.jpg" />
+  <img src="Z:/picture/008/save_picture_863014.jpg" />
 </div>
 
 
@@ -479,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863010.jpg" />
+  <img src="Z:/picture/008/save_picture_863010.jpg" />
 </div>
 
 
@@ -505,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862819.jpg" />
+  <img src="Z:/picture/008/save_picture_862819.jpg" />
 </div>
 
 
@@ -531,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862775.jpg" />
+  <img src="Z:/picture/008/save_picture_862775.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862515.jpg" />
+  <img src="Z:/picture/008/save_picture_862515.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862477.jpg" />
+  <img src="Z:/picture/008/save_picture_862477.jpg" />
 </div>
 
 
@@ -595,85 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1516BD2A7512A91362F10F6969992FE9704791C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994549   (862429) от 23.03.2016
-
-Адела еще не ужинала / Adla jeste nevecerela (1978) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прославленный американский сыщик Ник Картер прибывает в Прагу, чтобы расследовать таинственное исчезновение в семье графини Тумовой. В компании с грубоватым комиссаром пражского угрозыска Ледвиной, Картер выходит на след злодея вырастившего огромный плотоядный цветок Аделу, которым совсем не прочь побаловать свое прожорливое растение не только домашними животными, (   Читать дальше...   )Производство: Чехословакия, Filmov studio BarrandovЖанр: Комедия, Криминал, ДетективРежиссер: Ольдржих ЛипскийАктеры: Михал Дочоломанский, Рудольф Грушинский, Милош Копецки, Вацлав Логниский, Ладислав Пешек, Надя Конвалинкова, Квета Фиалова, Мартин Ружек, Ольга Шоберова, Зденек ДитеПеревод: Многоголосый закадровыйПродолжительность: 01:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94D1E5ABE689108616E1FFE7AC5B908738D362F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994589   (862191) от 23.03.2016
-
-Викинги / The Vikings (1958) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысяча лет назад скандинавские викинги во главе с королем Рагнаром высадились на побережье Англии в надежде захватить вожделенные земли. Движимые жаждой наживы, безжалостные воины опустошали Британские острова, сея смерть и разрушение.
-Эйнар и Эрик были сводными братьями. Первый — сын короля викингов Рагнара, бесстрашный и непобедимый воин, которому не было равных (   Читать дальше...   )Производство: СШАЖанр: Боевик, драма, мелодрама, приключения, военный, история, экранизацияРежиссер: Ричард ФлайшерАктеры: Кирк Дуглас, Тони Кёртис, Эрнест Боргнайн, Джанет Ли, Джеймс Дональд, Александр Нокс, Максин Одли, Фрэнк Тринг, Эйлин Вэй, Эдрик Коннор, Дэнди НиколсПеревод: Дублированный, профессиональный двухголосыйСубтитры: ОтсутствуютПродолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B60AE34C767800D3198484E16DD181F0ED9F56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370727   (861624) от 16.04.2020
-
-Игра в карты по-научному / Lo scopone scientifico (1972) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый год в назначенный день Пеппино и Антония, семейная пара не первой свежести, ждет из-за океана Богатую Старуху. Для них она — единственный шанс разжиться шальными деньгами. Никто не помнит, когда и как это завелось, но Старуха, заядлая картежница, раз в году усаживается за игральный стол с Пеппино и Антонией, одалживая им деньги для игры из собственного кармана (   Читать дальше...   )Производство: Италия / C.I.C., Dino de Laurentiis Cinematografica, Produzione Cinematografiche Inter.Ma.Co.Жанр: Драма, КомедияРежиссер: Луиджи КоменчиниАктеры: Альберто Сорди, Сильвана Мангано, Джозеф Коттен, Бетт Дэвис, Марио Каротенуто, Доменико Модуньо, Антонелла Демаджи, Даниэле Дублино, Франка СканьеттиПеревод: Дублированный, многоголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F48BC644423C200B6112DAA829D153702100B59
 ```
 
 https://mybot314.ru/tekegram_catalog/

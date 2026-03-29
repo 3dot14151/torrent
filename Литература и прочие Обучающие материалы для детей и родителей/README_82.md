@@ -1,3 +1,137 @@
+###  Публикация: 1092583   (938280) от 12.01.2017
+
+Юлия Габазова | Раскраска - Азбука профессий (2016) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Раскраска "Азбука профессий" - классическая раскраска, где каждый лист несет в себе мини-загадку с профессией и полем для прописей на выбранную букву.Жанр: раскраска, прописи.Формат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:072EAB840096005C3AB3661D311D9396A89C6B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984685   (938154) от 09.02.2016
+
+Владимир Антонец | Простые вопросы. Книга, похожая на энциклопедию (2016) [EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_938154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Научные ответы на наивные и простые вопросы о том, как устроен наш мир.
+Как пчелы находят мед? Зачем нужен сон? А деньги? Как летает самолет? А воздушный шар? Как строились египетские пирамиды? Почему мир разноцветный? А небо голубое? Почему у нас пять пальцев? Что такое группа крови?
+Большинство простых и наивных вопросов не имеют простых ответов. Более того, на (   Читать дальше...   )Жанр: Обучение детей, ЭнциклопедияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AB8E58848C8AE55541E44F7431C32A4994012E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984909   (937343) от 10.02.2016
+
+Надежда Калинина | Митя и Миша (1951) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы о детском саде.Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E08B44C56B0D4ECC1DD03726A21D10AB794BC9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984887   (937341) от 10.02.2016
+
+Иван Полуянов | Весна одна (1975) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван Полуянов - автор многих книг о жизни природы. В новой книге он продолжает свою излюбленную тему, с доброй заботливостью хозяина и друга ведет разговор о нашем северном лесе и его обитателях.
+
+Лес в повестях И.Полуянова далеко не идиллический. В нем происходит постоянная борьба за пропитание, за жизнь. На более слабого зверя нападает более сильный хищник. Против (   Читать дальше...   )Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75E771D4CD687BF217B8C3DD66EF5AF1C50342A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984885   (937248) от 10.02.2016
+
+Леонид Прокша | Мальчик-бульбинка (1973) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937248.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошла повесть «Выстрелы над яром», рассказывающая о жизни белорусских ребят 20-х годов, о том, как лучшие из них становились пионерами, и повесть-сказка «Мальчик-бульбинка» — о приключениях весёлого и смелого кукольного мальчика.Жанр: Детская проза, СказкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45B6FC877B51738FF9AD020479413E0DD83DC3CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985027   (937153) от 10.02.2016
 
 Н. Калинина | Летом (1959) [FB2]
@@ -6,7 +140,7 @@
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937153.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_937041.jpg" />
 </div>
 
 
@@ -59,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936887.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936887.jpg" />
 </div>
 
 
@@ -87,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936691.jpg" />
 </div>
 
 
@@ -116,7 +250,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936538.jpg" />
 </div>
 
 
@@ -143,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936205.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_936205.jpg" />
 </div>
 
 
@@ -169,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935771.jpg" />
 </div>
 
 
@@ -195,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Прочие материалы для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935462.jpg" />
 </div>
 
 
@@ -221,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935424.jpg" />
 </div>
 
 
@@ -247,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935418.jpg" />
 </div>
 
 
@@ -273,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935415.jpg" />
 </div>
 
 
@@ -299,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935408.jpg" />
 </div>
 
 
@@ -325,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_935151.jpg" />
 </div>
 
 
@@ -352,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934865.jpg" />
 </div>
 
 
@@ -381,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Настольные игры и Поделки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934853.jpg" />
 </div>
 
 
@@ -408,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934505.jpg" />
 </div>
 
 
@@ -435,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934412.jpg" />
 </div>
 
 
@@ -461,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934125.jpg" />
 </div>
 
 
@@ -487,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934118.jpg" />
 </div>
 
 
@@ -513,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_934041.jpg" />
 </div>
 
 
@@ -541,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_933618.jpg" />
 </div>
 
 
@@ -552,137 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7B75FF3FEC6E9C0C5B6932EFC8D73466BE82325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093697   (933484) от 15.01.2017
-
-Н.В. Чебышев, И.А. Вальцева | Ядовитые животные (2001) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933484.jpg" />
-</div>
-
-
-###  Подробнее
-
-В увлекательной форме, доступным языком авторы, крупные специалисты в этой области, рассказывают о ядовитых животных в морях и океанах и на земной суше. Книга содержит сведения об их образе жизни, повадках, о той опасности, которую представляет контакт человека с ядовитыми животными, и рекомендации, каким образом избежать поражения их ядами и какие меры принять, (   Читать дальше...   )Жанр: ЭнциклопедияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C076CD5BE2B6C8AFB968E3FE0B53E2CF39E9BFE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093690   (933483) от 15.01.2017
-
-Вирджиния Морелл | Эти удивительные животные. Самые неожиданные факты о братьях наших… разумных (2013) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933483.jpg" />
-</div>
-
-
-###  Подробнее
-
-С этой книгой вы окунетесь в удивительный мир животных. Слоны и мыши, дельфины и шимпанзе, кошки и собаки – все они умеют мыслить и способны испытывать различные чувства. Прочитав эту книгу, вы навсегда измените свое отношение к животным, станете добрее и человечнее.Жанр: ЭнциклопедииФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C8C92B2D357010825EC4B9B1DF80E09FA8F33D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364851   (933416) от 05.03.2020
-
-А.Н. Гордиенко | Самураи. Иллюстрированный путеводитель (2018) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кто такие самураи? Чем они жили? Что было в их кодексе чести? Все самое интересное о самураях – в одной книге!
-Оружие, доспехи, правила жизни – настоящий самурай не отступал от своих принципов! Эта книга посвящена жизни и смерти замечательных воинов. Красочные иллюстрации, подробные описания помогут вам воссоздать удивительный мир древней Японии.Жанр: Познавательная литература для детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1684F7FBA3A4CF459D71F086085083E082868F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093702   (933323) от 15.01.2017
-
-Вячеслав Ликсо | Самая большая книга о технике (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая большая книга "Для мальчиков" - это настоящая находка для тех, кто интересуется техникой и желает прослыть знатоком в этой сфере. На страницах издания содержится масса информации по этому вопросу: как и где собирается автомобиль, что представляют собой луноходы и марсоходы, как срабатывает катапультируемое кресло в аварийной ситуации, где "живут" (   Читать дальше...   )Жанр: ЭнциклопедииФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F482AF0F972A7FFBA7EBE547F9FDA9C401614EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093558   (933313) от 15.01.2017
-
-Джеки Силберг | 125 развивающих игр для детей до 1 года (2016) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Подвижные Игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаются веселые и увлекательные игры, стимулирующие развитие мозга детей в самый ответственный период – с рождения и до года. «125 развивающих игр для детей до 1 года» - это веселое и увлекательное собрание разнообразных способов развития возможностей детского мозга, закладывающих основу дальнейшего обучения. В данной книге предлагаются игры, стимулирующие развитие (   Читать дальше...   )Жанр: Детские игрыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B435A893E7B71CE4E3CD415FF9090D01C89F1D85
 ```
 
 https://mybot314.ru/tekegram_catalog/

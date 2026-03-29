@@ -1,3 +1,143 @@
+###  Публикация: 478239   (86619) от 05.04.2012
+
+Сергей Маврин (Маврик) - Дискография (13 CD) (1998-2010) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_86619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рождение [00:01:14]
+02. Моё время [00:05:28]
+03. Моя свобода [00:10:16]
+04. Душа [00:05:54]
+05. Новый день [00:07:50]
+06. Моё небо [00:05:38]
+07. Падшая звезда [00:02:55]
+08. Final [00:02:07]
+09. Show time [00:03:46]
+10. Утоли мои печали [00:05:22]1998-2010Жанр: Heavy MetalФормат: MP3 (tracks)Продолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE022C41847F2FF7B16842D4D4873FE385299474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476672   (85823) от 01.04.2012
+
+Кукрыниксы - Myself (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_85823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SOS
+02. Полжизни
+03. Колокола
+04. Хрустальный мир
+05. Страхи
+06. Как твои дела
+07. Я объявляю войну
+08. Здесь и сейчас
+09. Жизнь бывает разная
+10. Режиссер(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5484C551559DABFFBDDA953E9EB94BEC587BA953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473078   (84291) от 25.03.2012
+
+Ария - Герой асфальта 20 лет дубль 2 в Санкт-Петербурге! (2010) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+ 02. Последний закат
+ 03. Отшельник
+ 04. Колизей
+ 05. Беги за солнцем
+ 06. Крещенье огнем
+ 07. Антихрист
+ 08. Свет былой любви
+ 09. Кровь королей
+ 10. На службе силы зла(   Читать дальше...   )2010Жанр: Heavy MetalПродолжительность: 01:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156D9B8AF85C71A2356DFA9968C87FE4490C12B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472406   (83930) от 23.03.2012
+
+Ногу Свело! - Обратная Сторона Ноги (2011) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сибирская любовь
+02. Московский романс
+03. Идем на восток
+04. Черная-рыжая
+05. 7 планет
+06. Лилипутская любовь
+07. Бензин
+08. Из Алма-Аты
+09. Свинка-свинка
+10. Хару Мамбуру(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469458   (82681) от 17.03.2012
 
 Сергей Бабкин & Classika - STAR'YO (2012) [MP3|320 кб/с]<Rock>
@@ -6,7 +146,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82681.jpg" />
 </div>
 
 
@@ -41,7 +181,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82594.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82594.jpg" />
 </div>
 
 
@@ -76,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81704.jpg" />
 </div>
 
 
@@ -111,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80880.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80880.jpg" />
 </div>
 
 
@@ -146,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80838.jpg" />
 </div>
 
 
@@ -177,7 +317,7 @@ Fort Royal - 4 Альбома (2000-2010) [MP3|128-320 кб/с]<Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80805.jpg" />
 </div>
 
 
@@ -212,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80737.jpg" />
 </div>
 
 
@@ -247,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79271.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79271.jpg" />
 </div>
 
 
@@ -282,7 +422,7 @@ Louna - Время Х (2012) [MP3|320 кб/с]<Alternative Rock / Post-Grunge / 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79069.jpg" />
 </div>
 
 
@@ -317,7 +457,7 @@ Shovellica (Красная плесень) - The Symphony Of The Shovel (2011) [
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78543.jpg" />
 </div>
 
 
@@ -345,7 +485,7 @@ VA - A Tribute to "Чёрный Обелиск" (2012) [MP3|192 кб/с]<Heavy M
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78361.jpg" />
 </div>
 
 
@@ -380,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76709.jpg" />
 </div>
 
 
@@ -415,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76696.jpg" />
 </div>
 
 
@@ -450,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76690.jpg" />
 </div>
 
 
@@ -485,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_74528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_74528.jpg" />
 </div>
 
 
@@ -511,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72910.jpg" />
 </div>
 
 
@@ -546,7 +686,7 @@ Reminor - 2 альбома (2011-2013) [MP3|320 Kbps] <Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71916.jpg" />
 </div>
 
 
@@ -575,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70220.jpg" />
 </div>
 
 
@@ -604,7 +744,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69914.jpg" />
 </div>
 
 
@@ -633,7 +773,7 @@ Surmachina - Хождение за три моря (2025) [MP3|~245 Kbps (V0)] <
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69691.jpg" />
 </div>
 
 
@@ -662,7 +802,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68881.jpg" />
 </div>
 
 
@@ -691,7 +831,7 @@ Neverlove - Nu Glam (2025) [MP3|320 Kbps] <Alternative Rock, Alternative Mrtal>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68433.jpg" />
 </div>
 
 
@@ -705,122 +845,6 @@ Neverlove - Nu Glam (2025) [MP3|320 Kbps] <Alternative Rock, Alternative Mrtal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A758C4D022D8B5A22EBF3777CEE94586B1284B8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789907   (68213) от 06.04.2025
-
-Borssch (Борщ) - Экзистенция (2025) [MP3|320 Kbps] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68213.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Здравствуй,новый день! [00:03:17]
-2. Время очевидных изумлений [00:02:24]
-3. Пророк [00:02:17]
-4. Приказ [00:03:41](   Читать дальше...   )Жанр: PunkПродолжительность: 00:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D394C2A4DA4400D55BAD5A00E2D9951535958BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790148   (68090) от 08.04.2025
-
-Чердакъ - Сказки - Ложь..., Часть 1-2 (2020,2024) [MP3|320 Kbps] <Punk Rock, Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мертвецы [00:03:32]
-02. Вой [00:03:05]
-03. Полуночница [00:04:00]
-04. Музыкант [00:03:53](   Читать дальше...   )Жанр: Punk Rock, Horror PunkПродолжительность: 2 CD, 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334104EAC676A130928EAE665B43A97A0A3C988A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789982   (68089) от 08.04.2025
-
-Otto Dix - Классика (2025) [MP3|320 Kbps] <DarkWave, New Age, Акустика, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аквариус (Акустика) [00:04:23]
-02. Анима (Акустика) [00:05:19]
-03. Глазами бабочек (Акустика) [00:05:40]
-04. Каменный ангел (Акустика) [00:04:10](   Читать дальше...   )Жанр: DarkWave, New Age, Акустика, AlternativeПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8E6A1B6F024A554FD4FB00226D91F2B0824344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790514   (68086) от 09.04.2025
-
-Plen - Состояние ночи (2025) [MP3|320 Kbps] <Emo, Shoegaze, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Листья [00:03:16]
-02. Забирая [00:04:35]
-03. Разруби Луну [00:04:20]
-04. Истерика от бессилия [00:04:00](   Читать дальше...   )Жанр: Emo, Shoegaze, GrungeПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05249E9F71965596C0756A0F8E17C75DAA97FE23
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1424526   (62618) от 18.03.2024
+
+Перевал Дятлова (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-8 из 8 + Фильм о сериале)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62618.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зима 1959 года. Уральские горы. Группа из девяти студентов под руководством Игоря Дятлова отправилась в поход к заснеженным вершинам. Из этого путешествия живым не вернулся никто. Что произошло с туристами? Погибли под снежной лавиной, были убиты местными жителями или беглыми заключенными? Или же их смерть вызвана встречей со сверхъестественным? Это предстоит выяснить (   Читать дальше...   )Производство: Россия / 1 2 3 ПродакшнЖанр: триллер, детективРежиссер: Валерий Федорович, Евгений Никишов, Павел КостомаровАктеры: Пётр Фёдоров, Мария Луговая, Андрей Добровольский, Иван Мулин, Александр Метелкин, Маша Мацель, Ирина Лукина, Максим Емельянов, Егор Бероев, Евгений Антропов и др.Продолжительность: ~00:57:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DA1890F0ADBF8D31CA97695499D3F3E471B7B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707473   (62594) от 18.03.2024
+
+VLC преодолел рубеж в 5 миллиардов загрузок. Разработка VLC 4.0
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект VideoLAN преодолел рубеж в пять миллиардов загрузок видеоплеера VLC, зафиксированных системой сбора статистики, работающей на серверах проекта с февраля 2005 года. Около 4.4 миллиардов загрузок приходится на сборку VLC для платформы Windows, 369 млн - macOS, 245 млн - Android, 71 млн - iOS и 6.7 млн на архив с исходными текстами.Опубликованные данные не учитывают (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707108   (62509) от 19.03.2024
+
+Дева и дракон / Damsel (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Принцессу Элоди из страдающей от неурожаев страны выдают за принца процветающего королевства. Девушка рада спасти свой народ от голода, и жених ей кажется вполне симпатичным, но она даже не подозревает, что ей уготовано место не в спальне принца в качестве законной супруги, а в пасти дракона в качестве ритуальной жертвы.Производство: США, PCMA Productions, Roth/Kirschenbaum FilmsЖанр: фэнтези, боевикРежиссер: Хуан Карлос ФреснадильоАктеры: Милли Бобби Браун, Шохре Агдашлу, Рэй Уинстон, Анджела Бассетт, Брук Картер, Ник Робинсон, Робин Райт, Мило Твоми, Николь Джозеф, Патрис НайамбанаПеревод: Профессиональный многоголосый (Jaskier, LostFilm, TVShows, Red Head Sound, Voice Project Studio), Профессиональный двухголосый (ViruseProject)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (SDH), французские, немецкие, иврит, итальянские, португальские, румынские, испанские, украинские (Forced, Full)Продолжительность: 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AA8080172EF6B63A70BAB1F2FE2D75EC70F8F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707847   (62504) от 19.03.2024
+
+Компания «Протон-ПМ» за год увеличила производство ракетных двигателей на 25%
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62504.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Перми прошло совещание по итогам работы АО «Протон-ПМ» (входит в «НПО Энергомаш» госкорпорации «Роскосмос») в 2023 году и планах на 2024 год, сообщает пресс-служба Правительства Пермского края. Заявлено, что по итогам прошлого года объёмы изготовления ракетных двигателей превысили результаты 2022 года на 25%.В прошлом году «Протон-ПМ» продолжил создавать новые (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708529   (62302) от 21.03.2024
+
+Мастер и Маргарита (2023) WEBRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва, 1930-е годы. Известный писатель на взлёте своей карьеры внезапно оказывается в центре литературного скандала. Спектакль по его пьесе снимают с репертуара, коллеги демонстративно избегают встречи, в считанные дни он превращается в изгоя. Вскоре после этого, он знакомится с Маргаритой, которая становится его возлюбленной и музой. Воодушевлённый ее любовью и (   Читать дальше...   )Производство: Россия / АМЕДИА, Профит, Марс Медиа ЭнтертейнментЖанр: драма, фэнтезиРежиссер: Михаил ЛокшинАктеры: Аугуст Диль, Юлия Снигирь, Евгений Цыганов, Клас Банг, Юрий Колокольников, Алексей Гуськов, Кеша, Юра Борисов, Алексей Розин, Данил СтекловПеревод: Отсутствует (русский)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797C6A66CCE83DBA29978FA18B45D64EEFC1574B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694953   (62300) от 21.03.2024
+
+Властелины воздуха / Masters of the Air (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-9 из 9) HDRezka, LostFilm, TVShows, Red Head Sound, Сербин
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал основан на документальном романе Дональда Л. Миллера, рассказывающем о воздушных боях Второй мировой войны глазами британских и американских военных летчиков. В пяти милях над землей и глубоко в тылу врага одиннадцать человек внутри бомбардировщика, известного как "Летающая крепость", сражаются за свою жизнь с полчищами вражеских немецких истребителей. (   Читать дальше...   )Производство: США / Amblin Television, Apple Studios, Parliament of Owls, PlaytoneЖанр: военный, боевик, историяРежиссер: Кэри Дзёдзи Фукунага, Анна Боден, Райан ФлекАктеры: Каллум Тернер, Энтони Бойл, Остин Батлер, Дарра Коули, Мэтт Гэвэн, Джонас Мур, Дэвид Шилдс, Бен Рэдклифф, Джордан Колсон, Стивен Кэмпбелл МурПеревод: Многоголосый профессиональный (HDRezka Studio, LostFilm, TVShows, Red Head Sound), Авторский (Ю.Сербин)Язык озвучки: русский, английскийСубтитры: Русские (Forced, Full), Украинские, Английские (Full, SDH), ИвритПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE737FD7F0354FA46A2D376B85AD2FD4214FE0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708450   (62203) от 22.03.2024
 
 В этом году выйдет пакет приложений Microsoft Office 2024, которые будут работать без подписки и интернета
@@ -6,7 +162,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62203.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62167.jpg" />
 </div>
 
 
@@ -60,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62090.jpg" />
 </div>
 
 
@@ -86,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62089.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62089.jpg" />
 </div>
 
 
@@ -112,7 +268,7 @@ Windows 11 PRO 23H2 22631.3296 Update 7.1 by Ghost Spectre x64 [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61991.jpg" />
 </div>
 
 
@@ -141,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61985.jpg" />
 </div>
 
 
@@ -167,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61967.jpg" />
 </div>
 
 
@@ -193,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61898.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61898.jpg" />
 </div>
 
 
@@ -219,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61893.jpg" />
 </div>
 
 
@@ -245,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61888.jpg" />
 </div>
 
 
@@ -271,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61879.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61879.jpg" />
 </div>
 
 
@@ -297,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61843.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61843.jpg" />
 </div>
 
 
@@ -325,7 +481,7 @@ Akuyaku Reijou Level 99: Watashi wa Ura Boss Desu ga Maou de wa Arimasen / Зл�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61785.jpg" />
 </div>
 
 
@@ -351,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61777.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61777.jpg" />
 </div>
 
 
@@ -377,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61760.jpg" />
 </div>
 
 
@@ -403,7 +559,7 @@ F-Secure Freedome VPN 2.71.176.0 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61567.jpg" />
 </div>
 
 
@@ -429,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61549.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61549.jpg" />
 </div>
 
 
@@ -455,7 +611,7 @@ F-Secure Freedome VPN 2.71.176.0 RePack by elchupacabra [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61462.jpg" />
 </div>
 
 
@@ -481,7 +637,7 @@ The KMPlayer 4.2.3.10 repack by cuta (build 1) [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61451.jpg" />
 </div>
 
 
@@ -507,7 +663,7 @@ Saijaku Tamer wa Gomi Hiroi no Tabi o Hajimemashita. / The Weakest Tamer Began a
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61371.jpg" />
 </div>
 
 
@@ -518,162 +674,6 @@ Saijaku Tamer wa Gomi Hiroi no Tabi o Hajimemashita. / The Weakest Tamer Began a
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59F7DB9821DE74F72FBB1222A0B6756118A87FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689946   (61361) от 30.03.2024
-
-Mahou Shoujo ni Akogarete | Вoсхищaясь дeвушкaми-вoлшeбницaми | Становясь волшебницей| Gushing Over Magical Girls [2024, TV, 13 из 13] WEBRip 1080p rus+raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утэна Хираги всегда восхищалась девушками-волшебницами и мечтала стать крутой героиней, которая борется со злом. Поэтому когда она встречает существо, утверждающее, что у Утэны есть скрытая магическая сила, тут же решает, что её мечта сбылась. Но всё рушится из-за внезапного поворота событий: она превращается в злодейку! Не заинтересованная в союзе с силами зла, (   Читать дальше...   )Производство: Япония, студия Asahi ProductionЖанр: комедия, фэнтези, эттиРежиссер: Оцуки АцусиЯзык озвучки: Русский закадровый (Dream Cast), (AniDub Online), (AniLibria.TV), (Senkuro)Субтитры: Русские надписи, русские (софтсаб), Multi-4Продолжительность: 13 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA174B8A14E4A3888D0841E2B3921A99CF5A38D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702237   (61355) от 30.03.2024
-
-Созвездие / Constellation (2024) WEB-DL [H.264/720p] (сезон 1, серии 1-8 из 8) LostFilm, NewComers, HDRezka Studio
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается в двух временных линиях. В одной астронавт Джо Эрикссон терпит бедствие на Международной космической станции. В результате аварии система жизнеобеспечения и одна из спасательных капсул оказываются повреждены, и Джо нужно в одиночку, отправив свою команду на Землю, починить капсулу и вернуться самой. В другом временном периоде оправляющаяся (   Читать дальше...   )Производство: США, Великобритания, Франция / Turbine Studios, Haut Et Court TvЖанр: фантастика, триллерРежиссер: Мишель Макларен, Джозеф Седар, Оливер ХиршбигельАктеры: Нуми Рапас, Ребекка Скроггс, Клэр-Хоуп Эшити, Джонатан Бэнкс, Михель Диркс, Джеймс Д’Арси, Davina Coleman, Rosie Coleman, Уильям Кэтлетт, Барбара ЗуковаПеревод: Многоголосый профессиональный (LostFilm, NewComers, HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), английские (Forced, Full, SDH), французские, испанские, немецкие, итальянскиеПродолжительность: ~00:55:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AF8DF5E3A1932D9860E31331B4B26692D85483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710472   (61344) от 30.03.2024
-
-Зафиксировано замедление Гольфстрима
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ученые Университета Мэриленда в США зафиксировали значительное замедление глобальных течений, в том числе Гольфстрима, из-за изменения климата. Результаты исследования опубликованы в журнале Frontiers in Marine Science.Специалисты проанализировали данные об Атлантической меридиональной опрокидывающей циркуляции (AMOC) — системе океанических течений, переносящих тепло (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666315   (61260) от 31.03.2024
-
-Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Шангри-Ла [ТВ-1] [2023, TV, 25 эп.] WebRip 720p raw
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассник Ракуро Хидзутомэ заинтересован только в одном — поиске и прохождении недоработанных и глючных VR-игр. Его игровые навыки не имеют себе равных, и ни одна игра не может быть слишком плохой для него. После прохождения одной особенно убогой игры он решает попробовать что-то новое, «божественную» ААА-игру под названием «Фронтир Шангри-Ла». Начав, он первым (   Читать дальше...   )Производство: студия C2CЖанр: пpиключения, фэнтезиРежиссер: Кубоока ТосиюкиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 25 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D993A6A3A57DD2E3D0F77F458D554A48AB522716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346738   (61041) от 02.04.2024
-
-Ведьмак / The Witcher (2019-2021) WEB-DLRip (сезон 1-2, серии 1-16 из 16) Пифагор
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведьмак Геральт, мутант и убийца чудовищ, изо всех сил старается найти свое место в мире, где люди часто оказываются намного хуже монстров.Производство: Польша, США / NetFlix, Pioneer Stilking Films, Platige Image, Sean Daniel CompanyЖанр: фэнтези, боевик, драма, приключенияРежиссер: Алик Сахаров, Шарлотта Брандстром, Алекс Гарсиа ЛопесАктеры: Генри Кавилл, Фрейя Аллан, Аня Чалотра, Мими Дивени, Анна Шаффер, Бэзил Айденбенц, Ясен Атор, Грэм Мактавиш, Саймон Кэллоу, Лиз КаррПеревод: Дублированный - ПифагорЯзык озвучки: Русский, английскийСубтитры: Русские (форсированные, полные), английские (отдельно)Продолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558133AFE2A4ECB3D437EE3EC35CFF9C0674F25E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712486   (60949) от 03.04.2024
-
-Пенсионер из Липецка задержан за взлом Sony PlayStation 3
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60949.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Липецке задержали 65-летнего пенсионера, который занимался взломом и прошивкой игровых консолей PlayStation. Мужчине грозит крупный штраф или срок в тюрьме.Пенсионер подозревается в незаконном взломе консолей Sony PlayStation 3. По данным правоохранительных органов, Аркадий оказывал услуги по взлому консолей, используя специальное программное обеспечение для обхода (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

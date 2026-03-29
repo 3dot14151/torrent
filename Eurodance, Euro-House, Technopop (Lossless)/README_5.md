@@ -6,7 +6,7 @@ VA - DJ Dance Rarities of the 80s (2016) [FLAC|Lossless|WEB-DL|tracks] <Eurodanc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68942.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68942.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Booka Shade - For Real (2025) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68871.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68871.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Clueless - The Album (1998) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68567.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Don Amore - One More Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ital
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67783.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ La Vania - Singles Collection 5CDs (2000-2004) 1st Italian Press [APE|Lossless|i
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64604.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Gigi D'Agostino - Sound of Love (2024) [FLAC|Lossless|WEB-DL|tracks] <EuroDance,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61379.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61379.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Italo Dance Top Charts (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance, I
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59910.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - 40 Italo Dance Tunes 2014 (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Dance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59823.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59823.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - We Love Italo Dance (vol. 2) (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo Da
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59822.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Fancy - Greatest Hits & Remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodisco,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49316.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Dr. Alban - 2 EP (2024) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop, Reggae, Eurodanc
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44151.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ E-Rotic - Level Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42093.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ E-Rotic - The Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro House, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40916.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40916.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ One Man Sound - It's My Life (2021) [FLAC|Lossless|tracks] <Dance, Eurodance>
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39674.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ VA - Happy New Year Party 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, 
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32850.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32850.jpg" />
 </div>
 
 
@@ -436,7 +436,7 @@ VA - Happy New Year 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-H
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32809.jpg" />
 </div>
 
 
@@ -465,7 +465,7 @@ Gigi D'Agostino, Luca Noise - Total Eclipse (2024) EP [FLAC|Lossless|WEB-DL|trac
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32288.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32288.jpg" />
 </div>
 
 
@@ -494,7 +494,7 @@ Gigi D'Agostino - Gin Lemon E.P. (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo Dan
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_32010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_32010.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ Don Amore - Memories of Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic,
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21326.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ Corona - The Rhythm Of The Night (1995) [FLAC|Lossless|tracks + .cue] <Eurodance
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_19859.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_19859.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Eurythmics - The Greatest Hits (1991) CD, Compilation, Club Edition [FLAC|Lossle
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_18074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_18074.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ VA - Eurobeat Stars Vol. 1-2 (2009) [FLAC|Lossless|WEB-DL|tracks] <Euro Dance/Po
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9221.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ VA - Monster Bass 2025 - Hypertechno Car Music Only [FLAC|Lossless|WEB-DL|tracks
 >>Eurodance, Euro-House, Technopop (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_4280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_4280.jpg" />
 </div>
 
 

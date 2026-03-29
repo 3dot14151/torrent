@@ -1,3 +1,174 @@
+###  Публикация: 1599787   (36441) от 23.11.2024
+
+Милен Фармер / Mylene Farmer. Music Videos (1997) DVDRip [H.264/1080p] [50fps, AI Upscale]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Апскейл клипов Mylene Farmer из сборника  Music Videos Vol.1
+(студия Toutankhamon Polydor Universal):01. Maman a tort 00:03:58
+02. Plus grandir  00:07:32
+03. Libertine  00:10:52
+04. Pourvu qu'elles soient douces (Libertine II) 00:17:51(   Читать дальше...   )Производство: ФранцияЖанр: popРежиссер: Laurent BoutonnatПродолжительность: 01:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265BF2BC8893C2219528F894CD4297EB1CCAFF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762186   (36240) от 24.11.2024
+
+Квартирник у Маргулиса. Wildways (23.11.2024) WEBRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа была основана в 2009 году и изначально носила название Sarah Where Is My Tea. С ростом популярности музыканты задумались о смене названия, и в 2014-м коллектив был переименован в Wildways. На первых порах группа выпускала песни только на английском языке, однако ее третий альбом «Нью скул» вышел полностью на русском. Wildways зарекомендовала себя как коллектив, (   Читать дальше...   )00:00:06  Белым мелом
+00:04:25  Ты и Питер
+00:10:11  Этажи
+00:15:17  Целься(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: поп, рок, металлСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:955D46A079564ABBF423BF234091740DF9BE1F6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664602   (35178) от 05.12.2024
+
+Коньки. Воспоминание о школе (1979) SATRip (Молодежный театр)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои спектакля - школьники 30-х годов. Шестиклассник Вася Петров нашел кошелек с большой суммой денег и отдал его владельцу. Об этом благородном поступке написала газета "Пионерская правда", и в школе очень гордились Васей.
+Но оказалось, что подросток тайком взял из кошелька недостающую сумму, чтобы купить себе коньки...
+Вступительное слово писателя Сергея (   Читать дальше...   )Жанр: Мелодрама, телеспектальАктеры: Вася - Александр Соловьёв,
+Костя - Николай Ферапонтов,
+Рубен - Михаил Кисляров,
+Абрам - Борис Шинкарев,(   Читать дальше...   )Продолжительность: 01:20:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87BE79AC52CAD8CEA095FA43E1DD3BD3E209D1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762820   (35126) от 05.12.2024
+
+Iggy Azalea feat. Charli XCX - Fancy (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fancy (рус. Суперская) — песня австралийской хип-хоп исполнительницы Игги Азалии при участии британской певицы Charli XCX из альбома The New Classic. 17 февраля была выпущена в качестве четвёртого сингла из альбома. Музыкальное видео на песню было снято в Калифорнии, США в конце февраля 2014. Видео является ремейком на американский комедийный фильм Бестолковые. Действие (   Читать дальше...   )Жанр: электро-хоп, электропоп, поп-рэпПродолжительность: 00:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:436C61EA894EC84C8E74CE64E100E6865A824E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 681434   (35072) от 06.12.2024
+
+Уходя, оглянись ... (2 части) (1981) SATRip (МХАТ)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по одноименной пьесе Э. Володарского.
+В основе - спектакль МХАТ (постановка Е. Радомысленского).
+О жизни рабочей семьи Крохиных. Действие охватывает первые послевоенные и 80-е годы.
+Премьера во МХАТе состоялась в 1976 году, на телевидении фильм-спектакль был записан в 1981 году.Жанр: Телеспектакль, драмаРежиссер: Феликс ГлямшинАктеры: Ирина Мирошниченко, Владимир Привальцев, Анастасия Зуева, Борис Щербаков, Михаил Ефремов, Александр Серский, Александр Стриженов, Николай Пеньков, Ольга Барнет, Геннадий Кочкожаров, Анатолий Семёнов, Ксения Минина, Борис Дьяченко, Любовь Мартынова, Анжела Крутикова, Тамара Миронова , Татьяна Бронзова, Николай Скорик, Михаил ЛобановПродолжительность: 01:09:40 + 01:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B58ED5F93F051FCD021CC1E4C1EB8038A13464D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764201   (35033) от 06.12.2024
+
+Skylar Grey feat. Eminem - C'Mon Let Me Ride (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35033.jpg" />
+</div>
+
+
+###  Подробнее
+
+«C’mon Let Me Ride» — песня американской исполнительницы и автора песен Скайлар Грей, выпущенная 11 декабря 2012 года как лид-сингл из её второго студийного альбома Don’t Look Down, 2013 года. Соавторами и продюсерами трека стали Alex Da Kid и Майк Дель Рио, как приглашённый артист выступил рэпер Eminem. Клип на песню был снят в октябре 2012 года и выпущен 11 декабря (   Читать дальше...   )Жанр: электро-поп, поп-рэпПродолжительность: 00:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFD891C18EF4F16E6EAF73A0C91B1265C41B962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764197   (35027) от 06.12.2024
 
 Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
@@ -6,7 +177,7 @@ Ava Max - Kings & Queens (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35027.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35027.jpg" />
 </div>
 
 
@@ -32,7 +203,7 @@ Katy Perry - Roar (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35025.jpg" />
 </div>
 
 
@@ -58,7 +229,7 @@ will.i.am feat. Britney Spears - Scream & Shout (2012) WEB-DLRip [H.265/2160p] [
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35020.jpg" />
 </div>
 
 
@@ -84,7 +255,7 @@ Eminem feat. Juicy WRLD - Godzilla (2020) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35007.jpg" />
 </div>
 
 
@@ -110,7 +281,7 @@ Eminem - Berzerk (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35005.jpg" />
 </div>
 
 
@@ -136,7 +307,7 @@ Taylor Swift - We Are Never Ever Getting Back Together (2012) WEB-DLRip [H.265/2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35002.jpg" />
 </div>
 
 
@@ -162,7 +333,7 @@ Eminem - Rap God (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Ups
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35001.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35001.jpg" />
 </div>
 
 
@@ -188,7 +359,7 @@ Eminem feat. Rihanna - Love The Way You Lie (2010) WEB-DLRip [H.265/2160p] [4K, 
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34990.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34990.jpg" />
 </div>
 
 
@@ -214,7 +385,7 @@ Eminem feat. Rihanna - The Monster (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-b
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34908.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34908.jpg" />
 </div>
 
 
@@ -240,7 +411,7 @@ Hurts - Wonderful Life (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand ma
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34907.jpg" />
 </div>
 
 
@@ -266,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34904.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34904.jpg" />
 </div>
 
 
@@ -292,7 +463,7 @@ Enrique Iglesias feat. Nicole Scherzinger - Heartbeat (2010) WEB-DLRip [H.265/21
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34902.jpg" />
 </div>
 
 
@@ -318,7 +489,7 @@ Calvin Harris feat. Katy Perry, Pharrell Williams, Big Sean - Feels (2017) WEB-D
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34901.jpg" />
 </div>
 
 
@@ -344,7 +515,7 @@ The Weeknd feat. Daft Punk - Starboy (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34896.jpg" />
 </div>
 
 
@@ -370,7 +541,7 @@ Marilyn Manson (2024) WEB-DL [H.264/1080p-LQ]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34895.jpg" />
 </div>
 
 
@@ -398,7 +569,7 @@ Eminem - Survival (2013) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Up
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34885.jpg" />
 </div>
 
 
@@ -424,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34836.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34836.jpg" />
 </div>
 
 
@@ -453,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34471.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34471.jpg" />
 </div>
 
 
@@ -479,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34083.jpg" />
 </div>
 
 
@@ -508,7 +679,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34058.jpg" />
 </div>
 
 
@@ -521,162 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F0DFA5D599A9E8615D7BB12BE3B72E73F4FBC95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766578   (33685) от 19.12.2024
-
-Shakira - Me Enamore (2017) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33685.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Me Enamoré» (в переводе - „Я влюбилась“) - песня колумбийской певицы и автора-исполнителя Шакиры. Песня была выпущена в качестве второго сингла в качестве предваряющего одиннадцатый студийный альбом Шакиры. Музыкальный клип был снят режиссером Хауме де ла Игуана в Барселоне и вышел 12 мая 2017 года.Жанр: Реггетон, рокПродолжительность: 00:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DE3CDDCB3BE0223FA86788EE841F50796E38BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766577   (33684) от 19.12.2024
-
-Katy Perry feat. Snoop Dogg - California Gurls (2010) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33684.jpg" />
-</div>
-
-
-###  Подробнее
-
-«California Gurls» — песня в стиле электропоп, написанная и исполненная американской певицей и автором Кэти Перри. Она стала главным синглом с 3-го её альбома Teenage Dream. Соисполнителем песни стал рэпер Snoop Dogg. Съемки клипа начались 14 мая 2010 года. Премьера состоялась 14 июня 2010 года.Жанр: Диско-поп, фанк-попПродолжительность: 00:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA6E22E50D750086250577FE842F15586754707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766579   (33670) от 19.12.2024
-
-Shakira - Empire (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33670.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Empire» (с англ. — «Империя») — второй сингл колумбийской певицы Шакиры из её десятого студийного альбома Shakira (2014). Официальный клип был выпущен 25 марта 2014 года.Жанр: рокПродолжительность: 00:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E98413038B456FDB6527EDD406207F290CE39B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766573   (33669) от 19.12.2024
-
-Mark Ronson feat. Bruno Mars - Uptown Funk (2014) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33669.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Uptown Funk» (UpTown Funk!) — песня британского автора-исполнителя и продюсера Марка Ронсона при участии американского певца Бруно Марса, изданная 10 ноября 2014 года в качестве первого сингла с его четвёртого студийного альбома Uptown Special на лейбле Sony Music Entertainment. Видеоклип вышел 17 ноября 2014 года, а 19 ноября появился на каналах Vevo и YouTube.Жанр: Фанк, Буги, Minneapolis soundПродолжительность: 00:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5BFF7A3D51C18FFF21C822FD9ED3DDBF995292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766572   (33664) от 19.12.2024
-
-Bruno Mars - 24K Magic (2016) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33664.jpg" />
-</div>
-
-
-###  Подробнее
-
-«24K Magic» («twenty-four karat magic») — песня американского певца Бруно Марса с его третьего одноимённого студийного альбома 24K Magic (2016). Музыкальное видео вышло 7 октября 2016.Жанр: Синтипоп, фанк, диско, R&BПродолжительность: 00:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2DDCD390F84FC9C0EFDDD4BC444F740A817F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766575   (33660) от 19.12.2024
-
-Alicia Keys feat. Nicki Minaj - Girl On Fire (Inferno Version) (2012) WEB-DLRip [H.265/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33660.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Girl on Fire» - песня, записанная американской певицей-песенницей Алишей Киз для ее пятого одноименного студийного альбома. В версию Inferno была включена Ники Минаж, которая написала и исполнила два новых куплета. Видео на версию Inferno было загружено на VEVO 2 ноября 2012 года.Жанр: R&BПродолжительность: 00:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4375468AD041D7CFA987313F10E74FFF226A4B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1143094   (637576) от 17.06.2017
+
+Shorty Rogers - The Wizard of Oz & Other Harold Arlen Songs (1959) 2005, DRG Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Off to See the Wizard [01:21]
+02. Over the Rainbow [03:02]
+03. The Jitterbug [03:18]
+04. The Merry Old Land of Oz [05:36](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005A5AC9AB0922604813DF992B41EB2138FAA3E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228323   (637529) от 31.05.2018
+
+McCoy Tyner Trio - Live at Sweet Basil, Vol. 1 (1989) King [WavPack|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crescent [10:32]
+02. Monk's Dream [9:35]
+03. Darn That Dream [8:18]
+04. Sweet Basil Swing [6:31](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC71609F65CA850DB25C49BCC6E1CCF3FC4AA48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143266   (637483) от 17.06.2017
+
+Zoot Sims - Down Home (1960) 2005, Charly [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jive At Five [05:19]
+02. Doggin' Around [04:39]
+03. Avalon [04:29]
+04. I Cried For You [06:51](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4615D5A56B45E296B64438B6F97A588CBB7E7F10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143263   (637481) от 17.06.2017
+
+Miles Davis - 'Round About Midnight (1957) 2012, Mobile Fidelity Sound Lab [WavPack|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Round Midnight [06:01]
+02. Ah-Leu-Cha [05:58]
+03. All Of You [07:07]
+04. Bye Bye Blackbird [08:00](   Читать дальше...   )Жанр: CoolПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD8B9438955A849790C3ADA267F8F66E1905FE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033795   (636345) от 12.07.2016
 
 Shorty Rogers - Four Classic Albums (1953-1958) 2CD, 2011, Avid Entertainment[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -6,7 +122,7 @@ Shorty Rogers - Four Classic Albums (1953-1958) 2CD, 2011, Avid Entertainment[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636345.jpg" />
+  <img src="Z:/picture/008/save_picture_636345.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Kellylee Evans - Come On (2015) [FLAC|Lossless|tracks] <Pop, Soul, Jazz/Soul Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636281.jpg" />
+  <img src="Z:/picture/008/save_picture_636281.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Janne Schra - Ponzo (2015) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Jazz-Pop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636276.jpg" />
+  <img src="Z:/picture/008/save_picture_636276.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Lady Linn - Keep It a Secret (2016) [FLAC|Lossless|tracks] <Vocal Jazz, Jazz-Pop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636268.jpg" />
+  <img src="Z:/picture/008/save_picture_636268.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Dino Plasmati & LJP Big Band - Matera Encounters (2018) Alfa Music [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636003.jpg" />
+  <img src="Z:/picture/008/save_picture_636003.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Pepper Adams - Four Classic Albums (1956 - 1958) 2CD, 2015, Avid Jazz [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635778.jpg" />
+  <img src="Z:/picture/008/save_picture_635778.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Seamus Blake - Guardians Of The Heart Machine (2019) [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635676.jpg" />
+  <img src="Z:/picture/008/save_picture_635676.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Jorge Pardo - Cafe Latino 25 Aniversario (2012) Nuta Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635519.jpg" />
+  <img src="Z:/picture/008/save_picture_635519.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Lee Konitz - The Complete 1956 Quartets (1956, 1957) 2CD, 2010, American Jazz Cl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634366.jpg" />
+  <img src="Z:/picture/008/save_picture_634366.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Yves Rousseau 4tet - Akasha (2015) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Mod
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634254.jpg" />
+  <img src="Z:/picture/008/save_picture_634254.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Elina Duni - Muza E Zeze (2015) [FLAC|Lossless|WEB-DL]<Contemporary Jazz, Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634181.jpg" />
+  <img src="Z:/picture/008/save_picture_634181.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Anna Sise - Detour Ahead (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634160.jpg" />
+  <img src="Z:/picture/008/save_picture_634160.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Dinah Shore - Dinah's Showtime '44-'47 (1994) Hep Records [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633826.jpg" />
+  <img src="Z:/picture/008/save_picture_633826.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Kenny Drew Trio - Complete Recordings (1953 - 1954) Fresh Sound Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633821.jpg" />
+  <img src="Z:/picture/008/save_picture_633821.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Max Roach - We Insist! Max Roach's Freedom Now Suite (1960) 1986, Candid [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633743.jpg" />
+  <img src="Z:/picture/008/save_picture_633743.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Osie Johnson - Osie's Oasis (1955) Original Jazz Classics [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633396.jpg" />
+  <img src="Z:/picture/008/save_picture_633396.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Jorge Pardo - Huellas (2012) 2CD, Cabra Road [FLAC|Lossless|tracks + .cue] <Ethn
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633395.jpg" />
+  <img src="Z:/picture/008/save_picture_633395.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Members Of The Benny Goodman Orchestra - A Tribute To Benny Goodman (1998) Green
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633392.jpg" />
+  <img src="Z:/picture/008/save_picture_633392.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Jeremy Steig - Fusion (1970) Groove Merchant[APE|Lossless|image + .cue] <Jazz Fu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632676.jpg" />
+  <img src="Z:/picture/008/save_picture_632676.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Bobby Hutcherson - Linger Lane (2012) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632493.jpg" />
+  <img src="Z:/picture/008/save_picture_632493.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Ornette Coleman - New York Is Now! Vol. 1 (2014) [FLAC|Lossless]<Jazz, Avant-Gar
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632488.jpg" />
+  <img src="Z:/picture/008/save_picture_632488.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Ahmad Jamal - I Remember Duke, Hoagy & Strayhorn (1995) [FLAC|Lossless]<Jazz, Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632417.jpg" />
+  <img src="Z:/picture/008/save_picture_632417.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Ahmad Jamal - I Remember Duke, Hoagy & Strayhorn (1995) [FLAC|Lossless]<Jazz, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:212883C69774B877188A0FE57444FA5A4CF1F572
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228899   (632191) от 03.06.2018
-
-Enrico Pieranunzi - Monsieur Claude A Travel with Claude Debussy (2018) Bonsai Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bluemantique [5:32]
-02. Passepied nouveau [4:53]
-03. L'autre ballade [5:38]
-04. Romance [5:04](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2309A16B5CDBCB5E6432F2568F98DFCA4DEE4F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543228   (631834) от 10.04.2022
-
-Louis Armstrong - Classics & Rarities: Milestones Of A Jazz Legend (1927 - 1961) 10CD, 2018, The Intense Media [FLAC|Lossless|tracks + .cue] <Dixieland, Swing, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631834.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - The Louis Armstrong Story Vol.1 & Vol.2:
-01. Muskrat Ramble [2:33]
-02. Heebie Jeebies [2:55]
-03. Gut Bucket Blues [2:43](   Читать дальше...   )Жанр: Dixieland, Swing, Vocal JazzПродолжительность: 12:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119798F2140AD5D4519DB82D8974862FAFF5D7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144031   (631799) от 20.06.2017
-
-Houston Person - All Soul (2005) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Not [06:00]
-02. All Soul [04:28]
-03. Bossa For Baby [05:59]
-04. Wonderland [04:29](   Читать дальше...   )Жанр: Post-Bop, Soul JazzПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3665EC405356BE838413930097A545F1E986E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144027   (631798) от 20.06.2017
-
-Tony Bennett - The Beat Of My Heart (1957) 2017, Sony Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Begin [02:03]
-02. Lullaby of Broadway  [02:28]
-03. Let There Be Love  [02:06]
-04. Love for Sale  [03:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3179161FF8BEC0132CBAC18BFCC69C100B73F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1183690   (303210) от 16.11.2017
+
+Boney M. - Worldmusic for Christmas (2017) 2CD [MP3|320 Kbps] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_303210.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на то, что в Америке у них не было большого успеха, группа Euro-disco Boney M. была европейским феноменом в 70-е годы. После немецкого продюсера Фрэнка Фариана записал сингл «Baby Do You Wanna Bump?» (который был успешным в Голландии и Бельгии), он создал Boney M., чтобы поддержать песню, введя четырех вокалистов из Западной Индии, которые работали в качестве (   Читать дальше...   )01. Oh Christmas Tree
+02. Hark the Herald Angel Sing
+03. Zion's Daughter
+04. Oh Come All Ye Faithful(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5D830192EAE49C924E3F0CB42F6792B38CDBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261582   (303137) от 11.11.2018
 
 Mireille Mathieu - Mes classiques (2018) [MP3|320 Kbps] <Pop, Classical>
@@ -6,7 +35,7 @@ Mireille Mathieu - Mes classiques (2018) [MP3|320 Kbps] <Pop, Classical>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303137.jpg" />
+  <img src="Z:/picture/008/save_picture_303137.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - Nostalgie Disco Fever: Les 50 Plus Grands Titres Disco-Funk ! (2016) [MP3|3
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302423.jpg" />
+  <img src="Z:/picture/008/save_picture_302423.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Ballermann Frühlingsalarm 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301583.jpg" />
+  <img src="Z:/picture/008/save_picture_301583.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ VA - Dance Party 2018 (2018) [MP3|320 Kbps] <Dance, Club, Tropical>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301261.jpg" />
+  <img src="Z:/picture/008/save_picture_301261.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Harold Faltermeyer - Harold F (1988) CD [MP3|320 Kbps] <Electronic, Pop, Synth-p
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300083.jpg" />
+  <img src="Z:/picture/008/save_picture_300083.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Eros Ramazzotti - Eros Duets (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299003.jpg" />
+  <img src="Z:/picture/008/save_picture_299003.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Ballermann Apres Ski Megamix 2020 (2019) [MP3|320 Kbps] <Pop, Schlager>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298947.jpg" />
+  <img src="Z:/picture/008/save_picture_298947.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Sia - Everyday Is Christmas (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298537.jpg" />
+  <img src="Z:/picture/008/save_picture_298537.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Cashmere - Cashmere (1980) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop-
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298141.jpg" />
+  <img src="Z:/picture/008/save_picture_298141.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Lio - 5 Albums (1980-1996) CD [MP3|320 Kbps] <Electronic, Chanson, New Wave, Syn
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298052.jpg" />
+  <img src="Z:/picture/008/save_picture_298052.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Egotrya - Egotrya (1981) [MP3|320 Kbps] <Electronic, Disco, Space Rock>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297012.jpg" />
+  <img src="Z:/picture/008/save_picture_297012.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Total Coelo - I Eat Cannibals & Other Tasty Trax (1996) CD [MP3|320 Kbps] <Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295211.jpg" />
+  <img src="Z:/picture/008/save_picture_295211.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Little Mix - LM5 (2018) Japanese Edition [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295015.jpg" />
+  <img src="Z:/picture/008/save_picture_295015.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Mariah Carey - Caution (2018) [MP3|320 Kbps] <Pop, R&B>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294915.jpg" />
+  <img src="Z:/picture/008/save_picture_294915.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Bjork (Björk) - Utopia (2017) [MP3|320 Kbps] <Electronic, indie, Experimental, 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294902.jpg" />
+  <img src="Z:/picture/008/save_picture_294902.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ ZAZ - Effet Miroir (2018) [MP3|320 Kbps] <Nu Jazz, Chanson, Soul>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294828.jpg" />
+  <img src="Z:/picture/008/save_picture_294828.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Taylor Swift - reputation (2017) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294797.jpg" />
+  <img src="Z:/picture/008/save_picture_294797.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Pop Decades: 00s (2016) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294192.jpg" />
+  <img src="Z:/picture/008/save_picture_294192.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Petra Janu - 12 Famous And Awarded Movie songs (1985) [MP3|192 кб/с]<Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293523.jpg" />
+  <img src="Z:/picture/008/save_picture_293523.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ VA - NOW That’s What I Call Love Songs (2018) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293496.jpg" />
+  <img src="Z:/picture/008/save_picture_293496.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Bernie Paul - Lucky (1987) LP [MP3|320 Kbps] <Electronic, Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291567.jpg" />
+  <img src="Z:/picture/008/save_picture_291567.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ VA - The Hit Factory: Ultimate Collection (2017) 3CD [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291415.jpg" />
+  <img src="Z:/picture/008/save_picture_291415.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Giorgia - Pop Heart (2018) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291412.jpg" />
+  <img src="Z:/picture/008/save_picture_291412.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ VA - I Love ZYX Italo Disco Collection Vol.18 (2014) 3CD [MP3|320 кб/с]<Italo
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290979.jpg" />
+  <img src="Z:/picture/008/save_picture_290979.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Eurielle - Arcadia (2015) [OGG|482-537 кб/с]<Alternative Pop, Contemporary Cl
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290736.jpg" />
+  <img src="Z:/picture/008/save_picture_290736.jpg" />
 </div>
 
 
@@ -716,32 +745,6 @@ Eurielle - Arcadia (2015) [OGG|482-537 кб/с]<Alternative Pop, Contemporary Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D08FF2245C8939F2199807C59FC17EBF285B8196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 732806   (290674) от 10.12.2013
-
-VA - NOW That’s What I Call Club Hits (2013) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Dance, ClubПродолжительность: 03:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142B196822378D0303413E4EECC199ED38B1EA5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

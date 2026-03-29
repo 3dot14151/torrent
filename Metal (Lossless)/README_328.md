@@ -1,3 +1,90 @@
+###  Публикация: 1702403   (115701) от 25.02.2024
+
+Dio - Ronnie's Birthday Show (2019) Reissue, 2024, Smokin' [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus Mary And The Holy Ghost [00:03:34]
+02. Strange Highways [00:06:41]
+03. Don't Talk To Strangers [00:05:48]
+04. Pain [00:03:27](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1BAA52A57FF468CD0DDE65838CE8CD5863CBC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702444   (115669) от 25.02.2024
+
+Avacost - A Peace of the Sky (1993) Reissue 2010, Nudibranch Records [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Peace of the Sky (01:04)
+02. Head Space (05:36)
+03. Never Again (04:13)
+04. Time's Hand (05:55)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4C603B626C34C156D9FF1A1D372FF06387B487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702409   (115666) от 25.02.2024
+
+Blutgott - Drachenkult (Balgeroth Version) (2024) [FLAC|Lossless|WEB-DL|tracks] <Death ‘n’ Roll, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drachen in der Todeszone (Balgeroth Version) 00:03:45
+02. Drachenstahl und Feuer (Balgeroth Version) 00:03:50
+03. Bal (Balgeroth Version) 00:03:33
+04. Der Schrecken der Schlacht (Balgeroth Version) 00:03:05(   Читать дальше...   )Жанр: Death ‘n’ Roll, Black MetalПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EA0E2F38FC0EA6E3F4D6528920D544CCD76005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702713   (115507) от 26.02.2024
 
 From North - Raven Banner (2023) [FLAC|Lossless|image + .cue] <Folk, Viking Metal>
@@ -6,7 +93,7 @@ From North - Raven Banner (2023) [FLAC|Lossless|image + .cue] <Folk, Viking Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115507.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Motorhead - The Lost Tapes - The Collection (Vol. 1-5) (2024) 5CD, (Live) [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115502.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Funeral Winds - Sinister Creed (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115480.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115480.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Dissolving of Prodigy - Gallileous & Wijlen Wij & Dissolving of Prodigy & Panthe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115479.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Eternal Storm - A Giant Bound to Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115475.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Funeral Winds - Nexion Xul - The Cursed Bloodline (2007) [APE|Lossless|image + .
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115473.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Dissolving Of Prodigy & Bigotry - Lamentations of Innocents & Step to the Grave 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115468.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Eternal Storm - From the Ashes (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115465.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Far Beyond - The End of My Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115464.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Dissolving of Prodigy - Stvanice (2008) [FLAC|Lossless|image + .cue] <Doom, Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115462.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115462.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Funeral Winds - The Unheavenly Saviour (2019) Compilation [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115461.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Eternal Storm - Come the Tide (2019) [FLAC|Lossless|image + .cue] <Progressive, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115460.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Dissolving of Prodigy - Louceni se svetem pozemskym (2002) Reissue, 2023, Pařá
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115459.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Funeral Winds - Godslayer Xul (1998) Reissue, 2003, Death To Mankind [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115458.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115458.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Dissolving of Prodigy - Louceni se svetem pozemskym (2002) [FLAC|Lossless|image 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115457.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Funeral Winds - 333 (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115456.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Six Foot Six - The Six Foot Six Project (2018) [FLAC|Lossless|WEB-DL|tracks + .c
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115304.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Anaka - The Oblivion Call (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Groove Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_115152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_115152.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Averoth - Burden of My Life (2010) EP [FLAC|Lossless|tracks] <Melodic Death, Doo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114805.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Believer - Extraction from Mortality (1989) Reissue, 2007, Metal Mind Production
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114646.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Ministry - HOPIUMFORTHEMASSES (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114629.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Toadliquor - Back In The Hole (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114625.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Blood Opera - Songs in the Key of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114615.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Blood Opera - Songs in the Key of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <He
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64E231C802949C05735DA972441D13798B52B94A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703894   (114608) от 02.03.2024
-
-Suicidal Angels - Profane Prayer (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114608.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 When The Lions Die 5:46
-2 Crypts Of Madness 4:22
-3 Purified By Fire 4:45
-4 Deathstalker 4:06(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5C79DB10B740FD1CB7B0DBE5EDE72C9EACC15F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703824   (114607) от 02.03.2024
-
-Believer - Extraction from Mortality (1989) Reissue, 2001, Millenium Eight Records [FLAC|Lossless|image + .cue] <Progressive, Technical Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unite
-02. Vile Hypocrisy
-03. D.O.S. (Desolation Of Sodom)
-04. Tormented(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E57E5E8BE18A98CF7CEB1DFA51CE8654790FB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704192   (114502) от 03.03.2024
-
-Onslaught - Skullcrusher (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Visions of Our Future [00:02:11]
-02. The Black Horse Of Famine [00:01:24]
-03. Thermonuclear Devastation [00:01:30]
-04. Skullcrusher II [00:03:45](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD3502FF81B5CC0A13F415DC2B3461D20ABEF48
 ```
 
 https://mybot314.ru/tekegram_catalog/

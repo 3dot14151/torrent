@@ -1,3 +1,29 @@
+###  Публикация: 1103283   (886911) от 11.02.2017
+
+Бретт Хебел | Идеальное тело за 20 минут (2016) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_886911.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сокращая время тренировок до 20 минут, в течение которых вы работаете на полную мощность, вы активизируете внутренние механизмы сжигания жира. И вот какая штука: этот механизм продолжает работать еще день или два. Я покажу вам, как (и почему) короткие каждодневные занятия помогут изменить ваше тело куда заметнее и за значительно меньший срок, чем традиционные упражнения.» (   Читать дальше...   )Жанр: Аэробика, Фитнес, Здоровье и питаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5336B017353C96B743F2E01DB8FD0DD66720AC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104104   (881602) от 14.02.2017
 
 В.А. Заборова (ред.) | Энергообеспечение и питание в спорте (2011) [DJVU]
@@ -6,7 +32,7 @@
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881602.jpg" />
+  <img src="Z:/picture/005/save_picture_881602.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881350.jpg" />
+  <img src="Z:/picture/005/save_picture_881350.jpg" />
 </div>
 
 
@@ -60,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879920.jpg" />
+  <img src="Z:/picture/005/save_picture_879920.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879601.jpg" />
+  <img src="Z:/picture/005/save_picture_879601.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878693.jpg" />
+  <img src="Z:/picture/005/save_picture_878693.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878439.jpg" />
+  <img src="Z:/picture/005/save_picture_878439.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877907.jpg" />
+  <img src="Z:/picture/005/save_picture_877907.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877903.jpg" />
+  <img src="Z:/picture/005/save_picture_877903.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876402.jpg" />
+  <img src="Z:/picture/005/save_picture_876402.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876398.jpg" />
+  <img src="Z:/picture/005/save_picture_876398.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875243.jpg" />
+  <img src="Z:/picture/005/save_picture_875243.jpg" />
 </div>
 
 
@@ -299,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875241.jpg" />
+  <img src="Z:/picture/005/save_picture_875241.jpg" />
 </div>
 
 
@@ -325,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874882.jpg" />
+  <img src="Z:/picture/005/save_picture_874882.jpg" />
 </div>
 
 
@@ -351,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874511.jpg" />
+  <img src="Z:/picture/005/save_picture_874511.jpg" />
 </div>
 
 
@@ -377,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865834.jpg" />
+  <img src="Z:/picture/008/save_picture_865834.jpg" />
 </div>
 
 
@@ -403,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865541.jpg" />
+  <img src="Z:/picture/008/save_picture_865541.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864065.jpg" />
+  <img src="Z:/picture/008/save_picture_864065.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858560.jpg" />
+  <img src="Z:/picture/008/save_picture_858560.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849911.jpg" />
+  <img src="Z:/picture/008/save_picture_849911.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844860.jpg" />
+  <img src="Z:/picture/008/save_picture_844860.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842938.jpg" />
+  <img src="Z:/picture/008/save_picture_842938.jpg" />
 </div>
 
 
@@ -562,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842863.jpg" />
+  <img src="Z:/picture/008/save_picture_842863.jpg" />
 </div>
 
 
@@ -588,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842625.jpg" />
+  <img src="Z:/picture/008/save_picture_842625.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841176.jpg" />
+  <img src="Z:/picture/008/save_picture_841176.jpg" />
 </div>
 
 
@@ -643,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Спорт, Фитнес, Боевые искусства
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839544.jpg" />
+  <img src="Z:/picture/008/save_picture_839544.jpg" />
 </div>
 
 
@@ -654,35 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08494F0188CA630F05EB6E5C514DDA051C28BF8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003889   (839525) от 05.04.2016
-
-Бретт Стюарт | 50 подтягиваний через 7 недель (2012) [DJVU]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаются проверенные на практике и детально разработанные планы тренировок для людей с любым уровнем подготовки, от новичков, желающих освоить новый вид физических упражнений, до профессионалов фитнеса, подыскивающих самые эффективные варианты силового тренинга.
- Для широкого круга читателей.
-
-Бретт Стюарт | 50 подтягиваний через 7 недель [2012]Жанр: СпортФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46711E379EE43F02B1C0CCAFF5E7C543E4489E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

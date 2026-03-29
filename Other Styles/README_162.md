@@ -1,3 +1,61 @@
+###  Публикация: 969940   (141439) от 30.12.2015
+
+Paul Hardcastle - The Jazzmasters 4 (2003) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valley Of The Harps - 4:03
+02. Feeling Blue - 4:36
+03. Visions of Illusion - 3:49
+04. Lifetime - 4:37(   Читать дальше...   )Жанр: Smooth Jazz, New AgeПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1644967C0DF5F8A0067D7236861458FAD412A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272242   (141160) от 29.12.2018
+
+Die Toten kehren wieder mit dem Wind - Ein Wanderer (2013) [FLAC|Lossless|image + .cue] <Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 	I 	8:48
+02 	II 	8:19
+03 	III 	6:29
+04 	IV 	11:43(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B3DFFE38784F691FAE80EB6E90857A55F6D1AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272451   (140918) от 29.12.2018
 
 Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
@@ -6,7 +64,7 @@ Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140918.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Michael Forster - Christmas Piano Chill (2017) [FLAC|Lossless|WEB-DL|tracks] <In
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140629.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Tykwer/Klimek/Heil - Run Lola Run (Original Motion Picture Soundtrack) (1999) TV
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139596.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139596.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139550.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139535.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Down
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138721.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Eth
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138290.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electroni
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138081.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Philip Wesley - The Magic of Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137794.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137685.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137685.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ VA - Hit Mania 2019 (2018) [MP3|320 Kbps] <Synthpop, Hip Hop, Dancehall>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137620.jpg" />
 </div>
 
 
@@ -328,7 +386,7 @@ Roberto & Bobby Schnitzer - Lifescapes: Spanish Escape (2012) [MP3|320 кб/с]<
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136486.jpg" />
 </div>
 
 
@@ -363,7 +421,7 @@ The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136202.jpg" />
 </div>
 
 
@@ -398,7 +456,7 @@ Oscar Sher - The Classical Spanish Guitar (1996) [MP3|320 кб/с]<Instrumental,
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135636.jpg" />
 </div>
 
 
@@ -433,7 +491,7 @@ Noel Quinlan - 7 albums (1991-2004) [MP3|320 кб/с]<New Age, World, Instrument
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135397.jpg" />
 </div>
 
 
@@ -468,7 +526,7 @@ VA - Shower Songs (2012) [FLAC|Lossless]<Classical Songs>
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_135296.jpg" />
+  <img src="Z:/picture/005/save_picture_135296.jpg" />
 </div>
 
 
@@ -503,7 +561,7 @@ Helen Jane Long - 3 albums (2007-2012) [MP3|320 kbps]<Instrumental, Solo Piano, 
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135189.jpg" />
 </div>
 
 
@@ -532,7 +590,7 @@ Tantric Massage, Erotic Massage Music Ensemble - First Sexual Experience - New A
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135183.jpg" />
 </div>
 
 
@@ -561,7 +619,7 @@ James Last - дискография (1966-2011) [AAC, 320kbps] <Instrumental>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135121.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135121.jpg" />
 </div>
 
 
@@ -590,7 +648,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_134516.jpg" />
+  <img src="Z:/picture/005/save_picture_134516.jpg" />
 </div>
 
 
@@ -625,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134346.jpg" />
 </div>
 
 
@@ -651,7 +709,7 @@ VA - The Orient Collective - Ruh Al-Sahra (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134223.jpg" />
 </div>
 
 
@@ -680,7 +738,7 @@ Terry Oldfield (Ft. Mike Oldfield) - Journey Into Space (2012) [FLAC|Lossless]<N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133923.jpg" />
 </div>
 
 
@@ -715,7 +773,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133526.jpg" />
 </div>
 
 
@@ -735,76 +793,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCD1DE88CF89DDE0D980953C6EF786D4C32891C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594102   (133511) от 26.12.2012
-
-Облачный атлас / Cloud Atlas  (2012) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_133511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude - The Atlas March [1:15]
-02. Cloud Atlas Opening Title [3:47]
-03. Travel To Edinburgh [1:42]
-04. Luisa's Birthmark [3:00]
-05. Cavendish In Distress [1:23]
-06. Papa Song [4:15]
-07. Sloosha's Hollow [2:59]
-08. Sonmi-451 Meets Change [3:34]
-09. Won't Let Go [4:10]
-10. Kesselring [1:54](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C68D2F2AB15B2CC96019BEC4F628AF2DAF0D30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594109   (133476) от 26.12.2012
-
-007: Координаты «Скайфолл» /Skyfall (2012) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133476.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Grand Bazaar, Istanbul [05:16]
- 02. Voluntary Retirement [02:22]
- 03. New Digs [02:32]
- 04. Severine [01:19]
- 05. Brave New World [01:50]
- 06. Shanghai Drive [01:26]
- 07. Jellyfish [03:22]
- 08. Silhouette [00:56]
- 09. Modigliani [01:05]
- 10. Day Wasted [01:31](   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0604024F0C7CC778A5785D21D684A4A56B4FA5B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

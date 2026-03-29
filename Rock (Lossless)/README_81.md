@@ -1,3 +1,148 @@
+###  Публикация: 1307230   (554918) от 10.06.2019
+
+The Head and the Heart - Living Mirage (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_554918.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. See You Through My Eyes (03:54)
+2. Missed Connection (03:15)
+3. People Need a Melody (04:12)
+4. Honeybee (03:16)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A6DF587788C07FC469E75FDF83BCE321454CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307083   (554882) от 10.06.2019
+
+Santana - Africa Speaks (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Latin Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_554882.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Africa Speaks (feat. Buika)[4:48]
+ 2 - Batonga (feat. Buika)[5:43]
+ 3 - Oye Este Mi Canto (feat. Buika)[5:59]
+ 4 - Yo Me Lo Merezco (feat. Buika)[6:13](   Читать дальше...   )Жанр: Classic Rock, Latin RockПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6552C4B22B22C7BEC77563492ADAB3B68101B36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307469   (554861) от 10.06.2019
+
+Mono Inc. - Symphonic: Live (2019) 2CD [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwave, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_554861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to Hell [4:04]
+02. Kein Weg zu weit [4:43]
+03. Long live death [4:23]
+04. If i fail [6:02](   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Alternative RockПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289FD484201ECD3B3BC503E59B8077DF9ECBBEB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236306   (554708) от 16.07.2018
+
+Bon Jovi (Jon Bongiovi) - Hollywood Dreams (2018) Scene [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_554708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Said It Would Last Forever
+02. Open Your Heart
+03. Stringin' A Line
+04. Don't Leave Me Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715B9790DA82B06357BA6BBFA202DE0914A3625B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236299   (554656) от 16.07.2018
+
+Dire Straits - Six Blade Knife: The Magic Of Dire Straits (2018) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_554656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Six Blade Knife
+02. Where Do You Think You're Going
+03. Sultans Of Swing
+04. Brothers In Arms(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF69762B8C1D39410236C530302E3C5A33E0E91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308284   (554142) от 13.06.2019
 
 Queen - Queen On Fire: Live At The Bowl 1982 (The DVD Collection) (2004) [FLAC|Lossless|image + .cue] <Rock, Classic Rock, Hard Rock>
@@ -6,7 +151,7 @@ Queen - Queen On Fire: Live At The Bowl 1982 (The DVD Collection) (2004) [FLAC|L
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554142.jpg" />
+  <img src="Z:/picture/008/save_picture_554142.jpg" />
 </div>
 
 
@@ -34,7 +179,7 @@ Bruce Springsteen - Western Stars (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553926.jpg" />
+  <img src="Z:/picture/008/save_picture_553926.jpg" />
 </div>
 
 
@@ -63,7 +208,7 @@ ZZ Top - Goin' 50 (2019) Compilation, RM. [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553910.jpg" />
+  <img src="Z:/picture/008/save_picture_553910.jpg" />
 </div>
 
 
@@ -92,7 +237,7 @@ LayerZ - Memory Towers (2013) [FLAC|Lossless|tracks + .cue] <Progressive Rock, E
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553622.jpg" />
+  <img src="Z:/picture/008/save_picture_553622.jpg" />
 </div>
 
 
@@ -121,7 +266,7 @@ Faint Signal - Formula (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552941.jpg" />
+  <img src="Z:/picture/008/save_picture_552941.jpg" />
 </div>
 
 
@@ -150,7 +295,7 @@ Archer Nation - Beneath the Dream (2019) LP [FLAC|Lossless|tracks + .cue] <Rock,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552924.jpg" />
+  <img src="Z:/picture/008/save_picture_552924.jpg" />
 </div>
 
 
@@ -179,7 +324,7 @@ The Mamas And The Papas - Greatest Hits (1998) [FLAC|Lossless]<Rock, Folk>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552366.jpg" />
+  <img src="Z:/picture/008/save_picture_552366.jpg" />
 </div>
 
 
@@ -208,7 +353,7 @@ Queen - 40th Anniversary Series (Limited Edition) 35CD, Japan SHM-CD, Remastered
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551706.jpg" />
+  <img src="Z:/picture/008/save_picture_551706.jpg" />
 </div>
 
 
@@ -237,7 +382,7 @@ Eveline's Dust - K. (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551214.jpg" />
+  <img src="Z:/picture/008/save_picture_551214.jpg" />
 </div>
 
 
@@ -266,7 +411,7 @@ Melissa Etheridge - The Medicine Show (2019) [FLAC|Lossless|tracks + .cue] <Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551141.jpg" />
+  <img src="Z:/picture/008/save_picture_551141.jpg" />
 </div>
 
 
@@ -295,7 +440,7 @@ Oklahoma Blues - Tribute To JJ Cale (2010) [FLAC|Lossless|image + .cue] <Blues R
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551023.jpg" />
+  <img src="Z:/picture/008/save_picture_551023.jpg" />
 </div>
 
 
@@ -324,7 +469,7 @@ Rammstein - Sehnsucht (1997) Reissue, 2017, Universal Music Group International 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550968.jpg" />
+  <img src="Z:/picture/008/save_picture_550968.jpg" />
 </div>
 
 
@@ -353,7 +498,7 @@ Black Mountain - Destroyer (2019) [FLAC|Lossless|tracks + .cue] <Psychedelic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550439.jpg" />
+  <img src="Z:/picture/008/save_picture_550439.jpg" />
 </div>
 
 
@@ -382,7 +527,7 @@ Bruce Springsteen - Western Stars (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550348.jpg" />
+  <img src="Z:/picture/008/save_picture_550348.jpg" />
 </div>
 
 
@@ -411,7 +556,7 @@ Rammstein - Reise, Reise (2004) [FLAC|Lossless|tracks + .cue] <Rock, Industrial,
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550159.jpg" />
+  <img src="Z:/picture/008/save_picture_550159.jpg" />
 </div>
 
 
@@ -440,7 +585,7 @@ Erik Norlander - Surreal (2016) [FLAC|Lossless|image + .cue] <Neo-Prog>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549322.jpg" />
+  <img src="Z:/picture/008/save_picture_549322.jpg" />
 </div>
 
 
@@ -469,7 +614,7 @@ VA - Enjoy the Greeks (2004) [FLAC|Lossless|tracks + .cue] <Garage Rock, Psychob
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549260.jpg" />
+  <img src="Z:/picture/008/save_picture_549260.jpg" />
 </div>
 
 
@@ -498,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549172.jpg" />
+  <img src="Z:/picture/008/save_picture_549172.jpg" />
 </div>
 
 
@@ -527,7 +672,7 @@ Smokie - Whose Are These Boots? (1990) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549158.jpg" />
+  <img src="Z:/picture/008/save_picture_549158.jpg" />
 </div>
 
 
@@ -556,7 +701,7 @@ The Jimi Hendrix Experience - Live At Winterland (1987) [WavPack|Lossless|image 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548336.jpg" />
+  <img src="Z:/picture/008/save_picture_548336.jpg" />
 </div>
 
 
@@ -585,7 +730,7 @@ Blackfoot - Southern Native (2016) [FLAC|Lossless|image + .cue] <Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548255.jpg" />
+  <img src="Z:/picture/008/save_picture_548255.jpg" />
 </div>
 
 
@@ -599,151 +744,6 @@ Blackfoot - Southern Native (2016) [FLAC|Lossless|image + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A1E31234940450FAD9C336E529094D1D8961868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047703   (548147) от 31.08.2016
-
-Billy Joel - The Hits (2010) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Loves You Now (2:50)
- 02. Piano Man (5:39)
- 03. The Entertainer (3:40)
- 04. New York State Of Mind (6:03)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339D78E80382BA2CA09139321BF7CF9269377D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238106   (547968) от 28.07.2018
-
-Dave Mason - Dave Mason / Split Coconut (2008) [FLAC|Lossless|image + .cue] <roots rock, blues rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dave Mason (1974):
-01 - Show Me Some Affection
-02 - Get Ahold On Love
-03 - Every Woman(   Читать дальше...   )Жанр: roots rock, blues rockПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D75362BE781FE3292FCD4E61197E72FBFB7598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048017   (547468) от 01.09.2016
-
-Dudley Taft - Skin and Bones (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skin and Bones - 3:58
-02. Lonesome Memphis Blues - 4:02
-03. Ain't Nothing Gonna Stop Us Now - 3:37
-04. Leland Mississippi Blues - 3:40(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DE53631158399802B0BB4F4567ED62D524415F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048043   (547419) от 01.09.2016
-
-Cosmograf - The Unreasonable Silence (2016) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. echo $abduction; (2:20)
-02. This Film Might Change Your Life (9:03)
-03. Plastic Men (6:27)
-04. Arcade Machine (8:37)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAFD9CACA5131CA046D206E5E767E7F29DF3F4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048137   (547407) от 01.09.2016
-
-Jeremiah Johnson Band - Blues Heart Attack (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Reader - 3:45
-02. Room Of Fools - 3:47
-03. Flat Line - 3:19
-04. Get In The Middle - 2:48(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3687D136453A30E14B6C4AAE24D1A57E3A228938
 ```
 
 https://mybot314.ru/tekegram_catalog/

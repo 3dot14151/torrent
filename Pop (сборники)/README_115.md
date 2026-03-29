@@ -1,3 +1,177 @@
+###  Публикация: 1433785   (154063) от 22.12.2020
+
+VA - New Disco 80s Remix (2020) [MP3|320 Kbps] <Disco, New Generation, Remix>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремиксы популярных и горячо обожаемых нами песен прошедшего века 80х годов в релизе "New Disco 80s Remix". Это ностальгия о молодости, о веселых дискотеках и о то что нам дорого, так как признание disco музыки была настолько сильной, что вряд ли хотя бы у одного человека, жившего в 80-е и даже 90-е годы прошедшего века, не сталось хоть каких-нибудь личных (   Читать дальше...   )001. C Da Afro - Coconuts
+002. Mangaboo Feat Rayna - Martina
+003. Phil Disco - Plasma
+004. Bottin - Close Your Eyes(   Читать дальше...   )Жанр: Disco, New Generation, RemixПродолжительность: 09:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC41ED0D6FADAECBEF89736D97FC036F42DEC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270850   (153356) от 21.12.2018
+
+VA - Только хиты тебе в уши (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153356.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Artik & Asti - Невероятно
+002. Little Big - Skibidi
+003. PAKALENA - Зомби
+004. Shawn Mendes, Zedd - Lost In Japan(   Читать дальше...   )Жанр: PopПродолжительность: 05:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD130C6A1406A36C5211E37367287A4BE6104D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270888   (153293) от 21.12.2018
+
+Adele - 100% Adele (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hello
+2. Someone Like You
+3. Send My Love (To Your New Lover)
+4. Water Under The Bridge(   Читать дальше...   )Жанр: PopПродолжительность: 03:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D5F6DEE9864E70777E1A86B9FDFEBB2555A892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825720   (151694) от 17.10.2025
+
+Romantic Dreams - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Your Soul
+ 02 - Start Again
+ 03 - Butterflies Inside My Heart
+ 04 - Inhale the Future, Exhale the Past(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B790363D0F8A37EBE709B10DF968A2DD38F1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271191   (151435) от 22.12.2018
+
+VA - Русское радио Хит-парад Золотой граммофон 21.12.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Денис Клявер - Когда ты станешь большим
+02. #2Маши - Босая
+03. Руки Вверх - К Черту Эту Гордость
+04. Ирина Дубцова - Факт(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD6F8601A6B7688561CE87C298F35E178B798A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825915   (150732) от 18.10.2025
+
+VA - Осень на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabrina Carpenter - Tears (2:40)
+02. Сергей Лазарев - Тут или Там (3:25)
+03. Shouse & Cub Sport - Only You (2:57)
+04. Ava Max - Don’t Click Play (2:28)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5861D27584D065F4383495FBC328A6C930E8EA1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086799   (149457) от 25.12.2016
 
 VA - 100 Самых красивых Новогодних песен (2016) [MP3|320 Kbps] <Pop, Dance, Rock>
@@ -6,7 +180,7 @@ VA - 100 Самых красивых Новогодних песен (2016) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149457.jpg" />
 </div>
 
 
@@ -35,7 +209,7 @@ VA - Covers Mix (2015) [MP3|320 кб/с] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149387.jpg" />
 </div>
 
 
@@ -64,7 +238,7 @@ VA - German Top 100 Single Charts 31.12.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148744.jpg" />
 </div>
 
 
@@ -93,7 +267,7 @@ VA - A Wave Of Positivity: Pop Dance Project (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148674.jpg" />
 </div>
 
 
@@ -122,7 +296,7 @@ VA - Billboard Year End Hot 100 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148636.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148636.jpg" />
 </div>
 
 
@@ -151,7 +325,7 @@ VA - Big Love 20 от Love Radio (18.12.2016)  [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148450.jpg" />
 </div>
 
 
@@ -180,7 +354,7 @@ VA - Начинаем отмечать! №1 (2016) [MP3|256-320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148363.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148363.jpg" />
 </div>
 
 
@@ -209,7 +383,7 @@ VA - Новогодняя Дискотека Руки Вверх 2019! (2018) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148339.jpg" />
 </div>
 
 
@@ -238,7 +412,7 @@ VA - Shazam Хит-парад Russia Top 100 Итоговый 2018 [MP3|320 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148294.jpg" />
 </div>
 
 
@@ -267,7 +441,7 @@ VA - Music for Speed (2021) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148223.jpg" />
 </div>
 
 
@@ -296,7 +470,7 @@ VA - Discolandia Party 2 (2021) [MP3|320 Kbps] <Disco, Electro Disco, Remixes>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148167.jpg" />
 </div>
 
 
@@ -325,7 +499,7 @@ VA - Club Dance Ambience Vol.169 (2018) [MP3|320 Kbps] <Dance, Club, House>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_148015.jpg" />
 </div>
 
 
@@ -354,7 +528,7 @@ VA - Дискотека "Белые розы" В Обработке DJ (2010) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147929.jpg" />
 </div>
 
 
@@ -383,7 +557,7 @@ VA - Zaycev net. Декабрьский Тор 100 (2016) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147864.jpg" />
 </div>
 
 
@@ -412,7 +586,7 @@ VA - Hit Music от Мяу (декабрь 2015) (2015) [MP3|112 - 320 кб/с] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147384.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147384.jpg" />
 </div>
 
 
@@ -441,7 +615,7 @@ VA - Новогодняя сотка 2019 (2018) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146526.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146526.jpg" />
 </div>
 
 
@@ -470,7 +644,7 @@ VA - Русское Радио. Лучшее '2021 (25.12.2021) (2021) [MP3|320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146491.jpg" />
 </div>
 
 
@@ -499,7 +673,7 @@ VA - Новогодние подарки. Лучшие песни (2016) [MP3|32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146408.jpg" />
 </div>
 
 
@@ -528,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145782.jpg" />
 </div>
 
 
@@ -557,7 +731,7 @@ Roxette - 25 Best Songs (2012) [MP3|~245 кб/с]<Pop, Rock>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145661.jpg" />
 </div>
 
 
@@ -571,180 +745,6 @@ Roxette - 25 Best Songs (2012) [MP3|~245 кб/с]<Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97B93C35286A569607E97DB663AD6C388420C7DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087259   (145414) от 28.12.2016
-
-VA - Взрывной Хит-Парад выпуск № 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145414.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Sunsay Feat. Тося - Поезд 3:34
-002.Альбина - Не Со Мной 3:09
-003.N.A.O.M.I. (Наоми) - Надо Бы 3:05
-004.Eric Prydz Feat. Rob Swire - Breathe 3:11(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B180E44F61D8FEFA1773BE28C79677D2A8C800E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087291   (145359) от 28.12.2016
-
-VA - Музыкальные новинки. Only Best Hits № 3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145359.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Bodybangers - Sunglasses At Night 3:56
-002.Регина Тодоренко - Не Обижу 2:58
-003.Drake - Two Birds One Stone 3:59
-004.Таша Белая - Море Пополам 2:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A18A58A85B17C42CB288E47061C061BBCA9AFD99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087288   (145352) от 28.12.2016
-
-VA - Отрывайся с лучшими хитами. Сборник № 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145352.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
-002.Тамерлан & Алена - Потоки Ветра 3:05
-003.Steve Angello & An21 - Last Dance 4:20
-004.Борис Моисеев - Вишни 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8974FB51499C83116B4A02B064F67D40FBCE530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087263   (145334) от 28.12.2016
-
-VA - Танцевальная зима. Выпуск № 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145334.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Pitbull Feat. Steven A. Clark & Ape Drums - Can't Have 3:37
-002.Far East Movement Feat. Yoonmirae & Autolaser - Fighter 4:14
-003.Яна Батаева - Мы Уйдем Вдвоем 3:06
-004.Костя Кирьянов - Под Этим Дождем 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8D85AAA771B664F6233D8608E8D41D9FB73DED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087305   (145321) от 28.12.2016
-
-VA - Музыкальный заряд Выпуск № 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145321.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Нужный Ритм - Незабываемая 3:12
-002.Ласковый Шепот - Не Говори Мне 4:47
-003.Guenta K & Andy Ztoned - Be La La 3:33
-004.Beyonce - Formation 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D513A21F4018016C7F944738859A266A3B76612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087296   (145268) от 28.12.2016
-
-VA - Зимние мега хиты. Русская версия (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145268.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Xana - Красивыи Мужчина 4:00
-002.Aisha - Заново 3:13
-003.Пропаганда - Я Тебя Забываю 2:40
-004.Helena Shadia - О Тебе 3:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A7BBB21AC09925483EC3BC5D65A4F2B5118BD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

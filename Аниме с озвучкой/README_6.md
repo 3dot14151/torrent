@@ -1,3 +1,29 @@
+###  Публикация: 1468319   (1017038) от 08.05.2021
+
+Natsume Yuujinchou | Natsume's Book of Friends | Тетрадь дружбы Нацумэ [ТВ-1] [2008, TV, 13 эп.] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такаси Нацумэ – духовидец. Говоря понятней, он видит то, чего не замечают обычные люди: призраков, богов и бесов. И эта способность отнюдь не делает юношу счастливым. С самого детства Нацумэ был «не такой, как все»: «рассказывал небылицы», «пугался пустого места»... Став старше, он научился ничего никому не рассказывать и не пугаться (по крайней мере, на глазах у (   Читать дальше...   )Производство: Япония, Brains BaseЖанр: Мистика, комедия, драма, сёдзё, мультсериалРежиссер: Такахиро ОмориПеревод: KainЯзык озвучки: Русский, японскийСубтитры: РусскиеПродолжительность: 13 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E71190A81290241B14D49B5D3941BD8E2605E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469242   (1016564) от 11.05.2021
 
 Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Дух леса [2020, TV, 12 из 12] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016564.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Evangelion. 3.33 You Can [Not] Redo | Евангелион. 3.33 Ты (не) И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016507.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Enen no Shouboutai: Ni no Shou | Пламенная бригада пожарн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016344.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Mach Go Go Go | Speed Racer | Гонщик Спиди [1967, TV, 52 из 52] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015282.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Saiyuuki | Alakazam the Great | Путешествие на Запад | Вел�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013988.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Eizouken ni wa Te o Dasuna! | Keep Your Hands Off Eizouken! | Руки проч�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013521.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011272.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Kikou Ryouhei Mellowlink | Armor Hunter Mellowlink | Бронебойщик Ме
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011093.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Air | Высь [2005, TV, 12 эп.] SDTV 720p rus
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010732.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Gekijouban Gintama Kanketsuhen: Yorozuya yo Eien Nare | Gintama: Movie 2 | Ги�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009918.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ UFO Robo Grendizer | Grandizer | Инопланетный робот Гренд�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009502.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009061.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008775.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ Ayashi no Ceres | Ceres: Celestial Legend | Подозрительная Цер�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008225.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Fruits Basket the Final TV-3 | Корзинка фруктов: Финал ТВ-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007953.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita / Я 300 ле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007938.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken / The Slime Diaries: That Time I G
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007657.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Zombie Land Saga Revenge / Зомбиленд. Сага [ТВ-2] [2021, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007654.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Majo Minarai o Sagashite | Looking for Magical Doremi | Дореми: В пои�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007523.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Hyper Police | Гиперполиция [1997, TV, 25 из 25] DVDRip 478p 10-bi
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006577.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ Boys Be... | Мальчишки есть мальчишки [2000, TV, 13 + 1] D
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006572.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Ore dake Haireru Kakushi Dungeon | The Hidden Dungeon Only I Can Enter | Сил�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005975.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ Kamisama ni Natta hi | The Day I Became a God | День, когда я стал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004661.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Ima, Soko ni Iru Boku | Now and Then, Here and There | Здесь и сейча�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004252.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Baki | Баки (ONA-1) [2018, Web, 26 эп.] WEBRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004248.jpg" />
 </div>
 
 
@@ -655,32 +681,6 @@ Baki | Баки (ONA-1) [2018, Web, 26 эп.] WEBRip 720p raw+rus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F323AA4136E8381FB7DD485154A9CEF1AC44C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350081   (1003634) от 04.01.2020
-
-Hikari to Mizu no Daphne | Daphne in the Brilliant Blue | Дафна: Тайна сияющих вод [2004, TV, 24 эп. + 2 SP] DVDRip 480p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003634.jpg" />
-</div>
-
-
-###  Подробнее
-
-В недалеком будущем глобальное потепление превратило Землю в Великий Океан. Люди долго жили в подводных городах-куполах и лишь за 100 лет до начала действия сериала подняли на поверхность гигантские рукотворные острова, где и продолжается жизнь человечества. Федерацией Восьми городов незримо руководит Океанское Агентство, куда мечтает попасть 15-летняя Майя Мидзуки (   Читать дальше...   )Производство: Япония. J.C. StaffЖанр: приключения, комедия, фантастика, эттиРежиссер: Икэхата ТакасиЯзык озвучки: Японский и русскийСубтитры: Русские, АнглийскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1D6E6F4A345DCF9BB07B730F91749151A4FDC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

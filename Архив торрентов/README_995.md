@@ -6,7 +6,7 @@ Filmage Converter-Convert 1.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819600.jpg" />
+  <img src="Z:/picture/008/save_picture_819600.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ SuperDuper! 3.5 beta.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819598.jpg" />
+  <img src="Z:/picture/008/save_picture_819598.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ AnyTrans for iOS 8.9.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819595.jpg" />
+  <img src="Z:/picture/008/save_picture_819595.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Sync Folders Pro 4.5.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819594.jpg" />
+  <img src="Z:/picture/008/save_picture_819594.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ Optimage 3.4.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819593.jpg" />
+  <img src="Z:/picture/008/save_picture_819593.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ MacX MediaTrans 7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819592.jpg" />
+  <img src="Z:/picture/008/save_picture_819592.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ Sam Kidel - Disruptive Muzak (2016) [FLAC|44/24|Lossless|WEB-DL|tracks] <Ambient
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819559.jpg" />
+  <img src="Z:/picture/008/save_picture_819559.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Calibre - Dreamz Dub (2015) EP [FLAC|Lossless|WEB-DL|tracks + .cue] <Drum & Bass
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819556.jpg" />
+  <img src="Z:/picture/008/save_picture_819556.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819554.jpg" />
+  <img src="Z:/picture/008/save_picture_819554.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ Dc Breaks - Bambino / Bad Flow (2016) [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819550.jpg" />
+  <img src="Z:/picture/008/save_picture_819550.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ JPEGmini Pro 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819548.jpg" />
+  <img src="Z:/picture/008/save_picture_819548.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ YouTube Video Downloader PRO 5.4 (20160128) Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819544.jpg" />
+  <img src="Z:/picture/008/save_picture_819544.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819515.jpg" />
+  <img src="Z:/picture/008/save_picture_819515.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ CorelCAD 2021.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819488.jpg" />
+  <img src="Z:/picture/008/save_picture_819488.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ L'Orange - The World Is Still Chaos, But I Feel Better (2021) [FLAC|Lossless|Web
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819486.jpg" />
+  <img src="Z:/picture/008/save_picture_819486.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ The Lucid - The Lucid (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Modern Hard Rock, H
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819485.jpg" />
+  <img src="Z:/picture/008/save_picture_819485.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ FxFactory Pro 7.2.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819479.jpg" />
+  <img src="Z:/picture/008/save_picture_819479.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ IObit Uninstaller Free 11.1.0.18 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819478.jpg" />
+  <img src="Z:/picture/008/save_picture_819478.jpg" />
 </div>
 
 
@@ -493,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_819460.jpg" />
+  <img src="Z:/picture/009/save_picture_819460.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819451.jpg" />
+  <img src="Z:/picture/008/save_picture_819451.jpg" />
 </div>
 
 
@@ -545,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819446.jpg" />
+  <img src="Z:/picture/008/save_picture_819446.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ MiniTube 2.5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819445.jpg" />
+  <img src="Z:/picture/008/save_picture_819445.jpg" />
 </div>
 
 
@@ -598,7 +598,7 @@ GPU-Z 0.8.7 RePack by loginvovchyk [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819437.jpg" />
+  <img src="Z:/picture/008/save_picture_819437.jpg" />
 </div>
 
 
@@ -625,7 +625,7 @@ Xliff Editor 2.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819416.jpg" />
+  <img src="Z:/picture/008/save_picture_819416.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ GrandTotal 6 v6.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819415.jpg" />
+  <img src="Z:/picture/008/save_picture_819415.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ BusyContacts 1.4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819413.jpg" />
+  <img src="Z:/picture/008/save_picture_819413.jpg" />
 </div>
 
 

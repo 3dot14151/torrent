@@ -1,3 +1,159 @@
+###  Публикация: 1363344   (1021058) от 14.04.2021
+
+DreadOut 2 (2020) [Ru/Multi] (1.1.7/dlc) Repack Other s
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021058.jpg" />
+</div>
+
+
+###  Подробнее
+
+DreadOut 2 – приключенческий ужастик от третьего лица, что является продолжением серии DreadOut. Вы будете исследовать маленький городок и разгадывать ужасающие городские легенды. С помощью своего смартфона вам предстоит изгонять призраков. Поглощая энергию духов, вы будете поглощать и их уникальные способности, которые помогут вам в дальнейшем.Тип издания: RepackРазработчик: Digital HappinessЖанр: Adventure (Horror), RPG, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский и другиеЯзык интерфейса: Русский, Английский, Китайский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E7C2946169994907B18F1D82FC639F4C0D35BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471721   (1014734) от 22.05.2021
+
+LEFT ALIVE (2019) [Multi] (1.0) License EMPRESS
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014734.jpg" />
+</div>
+
+
+###  Подробнее
+
+LEFT ALIVE – это новый шутер с элементами выживания, действие которого происходит в 2127 году. Трём главным героям предстоит бороться за существование в охваченном войной городе Ново Слава. Ощутите разницу в силе между человеком и машиной - вам будут противостоять тяжеловооруженные отряды, бронированные транспортные средства и гигантские механоиды.Тип издания: LicenseРазработчик: Square EnixЖанр: Action (Shooter), Survival, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C16234B7B87A4B75DE0A021E4CD3F0B51FD4681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472050   (1014578) от 23.05.2021
+
+LEFT ALIVE (2019) [Multi] (1.03/dlc) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014578.jpg" />
+</div>
+
+
+###  Подробнее
+
+LEFT ALIVE™ – это новый шутер с элементами выживания, действие которого происходит в 2127 году. Трём главным героям предстоит бороться за существование в охваченном войной городе Ново Слава. Ощутите разницу в силе между человеком и машиной: вам будут противостоять тяжеловооруженные отряды, бронированные транспортные средства и гигантские механоиды.Тип издания: RepackРазработчик: Square EnixЖанр: Action (Survival), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Французский и другиеЯзык интерфейса: Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F10474C6AB8AA67A9B0216DC927C51DDE519BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472702   (1014100) от 26.05.2021
+
+BIOMUTANT (2021) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014100.jpg" />
+</div>
+
+
+###  Подробнее
+
+BIOMUTANT® — это игра сочетающая в себе постапокалипсис, кунг-фу и фэнтези. В ней вы сможете использовать ближнего, дальнего боя и способности мутанта. Здесь всюду властвует чума, Дерево жизни иссохло до, а племена распадаются. Исследуйте этот мир и определите его судьбу: сможете ли вы спасти его?Тип издания: LicenseРазработчик: Experiment 101Жанр: Action, Adventure, RPGЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991314E1406A584D87705AA6586784CF0B9C00E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162560   (1013738) от 28.05.2021
+
+The Evil Within (2014) [Ru/Multi] (1.05/dlc) Repack Other s [Complete Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013738.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый проект от создателя легендарной серии Resident Evil Синдзи Миками и талантливой команды разработчиков Tango Gameworks, The Evil Within - настоящее воплощение жанра Survival Horror. Мир перевернется с ног на голову, увлекая вас в коварное хитросплетение интриг и непрекращающуюся череду кошмаров. Сможете ли вы разорвать порочный круг? Расследуя кровавое убийство, (   Читать дальше...   )Тип издания: RepackРазработчик: Tango GameworksЖанр: Action (Survival horror), 3D, 3rd PersonЯзык озвучки: РусскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F42FD54923B7559490E8F41C1EC0DFA0ED543F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475231   (1012318) от 06.06.2021
+
+Tunguska: The Visitation (2021) [En] (1.0) License Fairlight
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живите жизнью охотника на гулей и раскройте тёмные секреты Тунгуски с советских времен. Отправляйтесь в путешествие по пустынным деревням, заброшенным объектам, токсичным болотам и зловещим туннелям в этом survival horror с видом сверху и узнайте правду о таинственном Тунгусском событии 1908 года. По сюжету, главный герой отправляется в крайне рискованное путешествие, (   Читать дальше...   )Тип издания: LicenseРазработчик: Rotorist WorkshopЖанр: Action, Adventure, Survival Horror, Top-DownЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D58391A92AC642312CD20CF69C0121BB405DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476148   (1011755) от 10.06.2021
 
 Ninja Gaiden Σ (Sigma) (2021) [Multi] (1.0) License CODEX [Master Collection]
@@ -6,7 +162,7 @@ Ninja Gaiden Σ (Sigma) (2021) [Multi] (1.0) License CODEX [Master Collection]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011755.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Ninja Gaiden Σ (Sigma) 2 (2021) [Multi] (1.0) License CODEX [Master Collection]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011750.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011750.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Ninja Gaiden 3: Razor's Edge (2021) [Multi] (1.0) License CODEX [Master Collecti
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011732.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Scarlet Nexus (2021) [Ru/Multi] (1.02) Repack SpaceX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008192.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008192.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Shattered - Tale of the Forgotten King (2021) [Ru/Multi] (1.3.00) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1006213.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ BIOMUTANT (2021) [Ru/Multi] (1.5.1/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005953.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Gods Will Fall (2021) [Ru/Multi] (35/dlc) License GOG [Valiant Edition]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005547.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005547.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Gene Rain: Wind Tower (2020) [Multi] (1.0/dlc) Repack Mr_Weegley
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003079.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Alienautics (2019) [En] (1.0) Repack Mr_Weegley
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002631.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Star Wars Battlefront II (2017) [Ru/Multi] (Build 5433720) OriginRip =nemos= [Ce
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1002440.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ REFUGE (2020) [Ru/Multi] (1.0) License HOODLUM
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001203.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Mafia II / Мафия 2 (2011) [Ru] (1.0.0.1/upd5a/dlc) Repack Other s [Director
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000723.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Kane & Lynch Dilogy [Ru/En] (RePack) 2007 - 2010 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000575.jpg" />
 </div>
 
 
@@ -346,7 +502,7 @@ Kane & Lynch Dilogy [Ru/En] (Rip) 2007 - 2010 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1000570.jpg" />
 </div>
 
 
@@ -376,7 +532,7 @@ I Am Alive [Ru/En] (Lossless Repack/1.01) 2012 | R.G. Origami
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_999491.jpg" />
 </div>
 
 
@@ -402,7 +558,7 @@ Driver: San Francisco [Ru/En/Multi10] (L/1.0.04.1114) 2012 | *PROPHET*
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998464.jpg" />
 </div>
 
 
@@ -428,7 +584,7 @@ Prison Break: The Conspiracy / Побег. Теория заговора [Ru/En]
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_998189.jpg" />
 </div>
 
 
@@ -454,7 +610,7 @@ Orcs Must Die Dilogy / Дилогия Бей орков [Ru] (RePack/1.0r14, 1.0
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997102.jpg" />
 </div>
 
 
@@ -482,7 +638,7 @@ Binary Domain [Ru/Multi6] (Lossless RePack/2DLC) 2012 l R.G. Games
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_997087.jpg" />
 </div>
 
 
@@ -512,7 +668,7 @@ Devil May Cry 4 [Ru] (RePack/1.5) 2008 | R.G. REVOLUTiON
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_996800.jpg" />
 </div>
 
 
@@ -528,173 +684,6 @@ Devil May Cry 4 [Ru] (RePack/1.5) 2008 | R.G. REVOLUTiON
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FF9BFA86D8C062ED14B893F2B1C7DB9DA4FC9C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604716   (995965) от 18.01.2013
-
-Lost Planet: Extreme Condition Colonies Edition [Ru/En/Multi9] (L/1.0.1.0) 2007 | *PROPHET*
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая версия популярного фантастического блокбастера с вариантами онлайн-соревнований, уникальными возможностями сетевой игры, боевыми аренами и картами.
-
-На далекой планете Е.Д.Н.III, где царит вечная зима, жизнь и смерть ходят рука об руку. Исконные обитатели планеты, насекомоподобные Акриды, представляют огромную опасность для немногочисленных колонистов - и вместе с тем становятся единственной надеждой на выживание для тех, кто рискует бросить вызов ледяной пустыне. Только Акриды могут дать тепло, столь необходимое человеку - если, конечно, у того хватит смелости вступить в схватку с кровожадными хищниками. С оружием в руках игрокам предстоит пройти двенадцать сюжетных миссий, отыскав новый источник тепловой энергии и превратив забытое богом место в новый дом человечества.
-
-Отважных покорителей Lost Planet ждут новые испытания: поклонникам сетевых баталий игра предложит огромный выбор многопользовательских режимов, персонажей и карт, в том числе созданных эксклюзивно для Lost Planet Colonies. Сражаясь друг против друга, участники будут объединяться в отряды, похищать у конкурентов трофеи или защищать принадлежащую команде Боевую машину (БМ). Кроме того, пользователям впервые разрешат выступить на стороне Акридов, и на собственном опыте узнать, на что способны свирепые хозяева Е.Д.Н.III.(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Shooter) / 3D / 1st Person / 3rd PersonЯзык озвучки: Русский, Английский, Multi8Язык субтитров: Русский, Английский, Multi8Язык интерфейса: Русский, Английский, Multi8
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA538EF6791AF786FB797A93A87ED2247C096909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605963   (995359) от 20.01.2013
-
-Resident Evil 5 / Biohazard 5 [Ru/En/Multi9] (Steam-Rip/1.0) 2009 | R.G. Игроманы
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный солдат Крис Редфилд, известный игрокам по предыдущим частям серии Resident Evil, не оставляет надежды стереть с лица земли следы организации, несколько десятков лет занимающейся разработкой биологического оружия. До сих пор исследования по созданию армии неуязвимых монстров кончались неудачами, однако безумные ученые не потеряли надежды на успех.
-
-Главный герой отправляется в небольшое африканское поселение и обнаруживает сотни людей, пораженных очередным экспериментальным вирусом. Преследуемые жестоким голодом, они нападают на все, что движется. Вирус сделал их тела сильнее, превратив больных в идеальных убийц. Скоро Крису и его напарнице Шеве Аломар предстоит встреча с серьезными соперниками, мало похожими на безмозглых мертвяков. (   Читать дальше...   )Тип издания: Лицензия (Steam-Rip)Жанр: Action (Shooter) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский, Multi9
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96B4144C0AECFE6179A62827364FC9296D00B71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605894   (994955) от 21.01.2013
-
-Grand Theft Auto: Gold Collection [En/Multi5] (Steam-Rip) 2002-2010 | R.G. GameWorks
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия Grand Theft Auto отличается степенью свободы, данной игроку — он сам решает, чем ему заняться. В отличие от большинства игр жанра экшен, которые представляют собой последовательный набор уровней с линейным прохождением, в GTA игрок самостоятельно выбирает, какие миссии ему выполнять. В зависимости от этого отношения с различными организациями могут изменяться. Хотя есть и исключения: последовательность миссий линейна (начиная с GTA 3, это ограничение накладывается сюжетом), а некоторые районы города доступны не с самого начала игры. Большие города в играх доступны для вольного исследования, часто можно встретить здания, в которые можно входить, и дополнительные миссии.
-
-Влияние игр на молодёжь и взрослых сделали GTA «культовыми» играми для многих поклонников, которые ценят качество самих игр, и чувство ностальгии, настроение «старых добрых времён», имеющихся в них. Люди помнят или представляют эпоху, в которой происходят события игры; им нравится музыка, атмосфера, одежда и сленг городов их времени, будь то 1980-е (VC) или начало 1990-х (SA)(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Английский, Multi5Язык интерфейса: Английский, Multi5
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E847A769F22B3CE659D2A1839CB03C8AC27218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606786   (994624) от 22.01.2013
-
-Ninja Blade [Ru/En] (L) 2009
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Место действия игры – футуристический Токио, в котором Кен (над его дизайном трудился Keiji Nakaoka, дизайнер персонажей Lost Planet), протагонист Ninja Blade, сражается за права простых японских самураев. В отличие от Ninja Gaiden II, арсенал главного героя заполняют всего три оружия, между которыми можно переключаться в режиме реального времени: katana (быстрые атаки, которыми можно застать врасплох врага), Souken (двойные мечи, легко заменяют нунчаки в бою) и Taiken ( тяжёлый меч, в основном используется против супостатов с тяжёлой бронёй).
-За годы существования столица Японского государства не раз подвергалась нападениям недругов. Паразиты Carriers, способные превратить в зомби любое живое существо, притаились и ждут своего часа. Усмирять злобных гадов предстоит Кену и его верному клинку (традиционный апгрейд оружия на месте).
-
-(   Читать дальше...   )Тип издания: ЛицензияЖанр: Action (Slasher) / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213464BDF812DA7CBBF4F45622BE2FE64178C6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607405   (994598) от 22.01.2013
-
-TRON: Evolution: The Video Game [Ru/En] (RePack) 2010 | R.G. Revenants
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Захватывающий экшен «ТРОН: Эволюция» позволит вам погрузиться в мир виртуальной реальности, одержать впечатляющие победы с помощью разрушительного светового диска и освоить легендарный светоцикл. Игра раскроет события, предшествующие сюжету нового фильма «Трон: Наследие». Различные удары и комбо-приемы умело сочетаются с невероятной мобильностью персонажа – в передвижении среди башен и небоскребов задействованы элементы паркура. Поклонники сетевых сражений смогут сразиться с умелыми соперниками по Интернету, причем в каждой битве смогут принять участие до десяти человек. (   Читать дальше...   )Тип издания: RepackЖанр: Arcade (Platform) / Racing (Futuristic) / 3D / 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русские, АнглийскиеЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E7D28FE0395D9ED4244F6C42FB5F2D1EC15C94E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607416   (993871) от 24.01.2013
-
-Prison Break: The Conspiracy / Побег. Теория заговора [Ru/En] (L) 2010
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Prison Break – это экшен с видом от третьего лица, создаваемый на основе одноименного телевизионного сериала, известного российским зрителям под названием "Побег". Действие игры разворачивается параллельно событиям первого сезона "Побега". В игре Prison Break вам предстоит управлять человеком по имени Том Пэкстон. Он является агентом так называемой "Компании" - организации, которая подставила Линкольна. Его отправляют в тюрьму для того, чтобы выяснить, зачем Майкл Скофилд попытался ограбить банк. Герою предстоит столкнуться с некоторыми персонажами, которые фигурировали в телесериале, а так же исследовать территорию тюрьмы "Фокс Ривер" и сразиться с противниками. (   Читать дальше...   )Тип издания: ЛицензияЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA862F5185D99F5940CFF469B4557A6F3B9EFCC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

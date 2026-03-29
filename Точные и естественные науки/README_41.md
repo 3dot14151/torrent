@@ -1,3 +1,137 @@
+###  Публикация: 1763894   (35230) от 04.12.2024
+
+Ж. Матьё и др. | Изменение и введение функций в органическом синтезе (1980) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание представляет собой руководство справочного характера, посвященное систематическому изложению методов функционализации органических соединений. Изложены основные методы введения функциональных заместителей в органические молекулы и методы трансформациии функций, уже имеющихся в молекуле.Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB52B741A52FF59E3763269452FA99401188690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764172   (35129) от 05.12.2024
+
+М. Рид, Б. Саймон | Методы современной математической физики [4 книги] (1977 - 1982) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35129.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче четыре тома:
+Том I. Функциональный анализ. 1977
+Том II. Гармонический анализ, самосопряженность. 1978
+Том III. Теория рассеяния. 1982(   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8221AADBD9BA147B9B81EB49F6D436FB60483AD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764221   (34992) от 06.12.2024
+
+Т. Джилкрист, Р. Сторр | Органические реакции и орбитальная симметрия (1976) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена одному из крупнейших достижений в теоретической органической химии - применению концепции орбитальной симметрии к органическим реакциям. То обстоятельство, что книга написана как удобное пособие для студентов, определяет систематическое, методически выдержанное изложение материала в доступной форме. Авторы пользуются лишь наглядными представлениями (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A33A79A2932A1709ACBCE8CA20AAE92D9D067BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764659   (34786) от 08.12.2024
+
+В.А. Дуров, Е.П. Агеев | Термодинамическая теория растворов неэлектролитов (1987) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34786.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем учебном пособии изложены основы термодинамической теории многокомпонентных гомогенных и гетерогенных систем и ее приложения к растворам неэлектролитов. Рассмотрена термодинамическая теория идеальных, бесконечно разбавленных и неидеальных растворов. Даны основы термодинамической теории фазовых равновесий, коллигативных свойств растворов, термодинамической (   Читать дальше...   )Жанр: ХимияИздательство: Издательство Московского университетаФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97EFB26F50F1543674531E3D65263C2C595E9EE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764740   (34785) от 08.12.2024
+
+И.И. Елисеева и др. | Переписи населения в России (2022) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иллюстрированное издание, подготовленное Федеральной службой государственной статистики, содержит подробную историю отечественных переписей населения от древних учетов населения в период татаро-монгольского ига до последней проведенной в 2021 году Всероссийской переписи населения.
+Издание раскрывает непростой путь становления и развития учета населения в России, (   Читать дальше...   )Жанр: История Россия, демография перепись населенияИздательство: РосстатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56C04AC46FF4981E4F138A40D50D8BAF41255E63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764944   (34703) от 09.12.2024
 
 Г. Дуббель | Справочник по математике для инженеров, студентов и преподавателей математики (1936) [PDF]
@@ -6,7 +140,7 @@
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34703.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34703.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34646.jpg" />
 </div>
 
 
@@ -60,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34558.jpg" />
 </div>
 
 
@@ -86,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34538.jpg" />
 </div>
 
 
@@ -112,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34515.jpg" />
 </div>
 
 
@@ -138,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34513.jpg" />
 </div>
 
 
@@ -164,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34511.jpg" />
 </div>
 
 
@@ -190,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34507.jpg" />
 </div>
 
 
@@ -217,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34275.jpg" />
 </div>
 
 
@@ -243,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34082.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34082.jpg" />
 </div>
 
 
@@ -269,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34069.jpg" />
 </div>
 
 
@@ -296,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34066.jpg" />
 </div>
 
 
@@ -325,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33998.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33998.jpg" />
 </div>
 
 
@@ -351,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33996.jpg" />
 </div>
 
 
@@ -377,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33995.jpg" />
 </div>
 
 
@@ -404,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33988.jpg" />
 </div>
 
 
@@ -430,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33872.jpg" />
 </div>
 
 
@@ -457,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33856.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33856.jpg" />
 </div>
 
 
@@ -483,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33781.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33781.jpg" />
 </div>
 
 
@@ -509,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33655.jpg" />
 </div>
 
 
@@ -535,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_33645.jpg" />
 </div>
 
 
@@ -546,138 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0590D90EF310AE5063C7C93A1F1EB0233F77F8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767117   (33479) от 21.12.2024
-
-Н.И. Карякин и др. | Краткий справочник по физике (1969) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник охватывает все основные разделы современной физики и в основном соответствует программе по физике для втузов, но он ни в коей мере не подменяет собой систематического курса физики.Жанр: ФизикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B6EBCCA4E49B4654453E33A15689EBBD65EA9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767094   (33450) от 21.12.2024
-
-Т.И. Темникова | Курс теоретических основ органической химии (1962) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33450.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге освещается современное состояние теоретических проблем органической химии. Рассмотрены представления о химическом строении и свойствах органических веществ, механизмах и направлениях различных реакций, об изомерных превращениях и молекулярных перегруппировках.
-Книга предназначается в качестве учебного пособия для студентов и аспирантов университетов и химико-технологических (   Читать дальше...   )Жанр: ХимияИздательство: Государственное научно-техническое издательство химической литературыФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5951A559FF36C987DA286CD023470CCAAB8B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767105   (33448) от 21.12.2024
-
-А. Барнард | Теоретические основы неорганической химии (1968) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой современный курс неорганической химии повышенного типа. В отличие от существующих учебников по общей и неорганической химии, посвященных в основном изложению фактического материала, в книге Барнарда излагаются теоретические концепции современной неорганической химии, основанные на законах квантовой химии, кристаллохимии и физической химии. (   Читать дальше...   )Жанр: ХимияИздательство: МирФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CF5637DC04D48477906874F9A4AF905F94E81D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766855   (33444) от 21.12.2024
-
-С.М. Стойко | Эталоны природы (1980) [DJVU]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Заповедание - самая древняя и самая совершенная форма охраны природы и ее ресурсов, позволяющая сохранить эталоны естественных экосистем, необходимые для оценки последствий антропогенного влияния на биосферу и разработки конструктивных мероприятий по оптимизации окружающей среды. Заповедные территории - золотой фонд природы, который служит надежному сохранению многочисленных (   Читать дальше...   )Жанр: ПриродоведениеИздательство: Вища ШколаФормат: DJVUКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929B7A38A92469185A39E79350B42EC9EBADD90F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766979   (33440) от 21.12.2024
-
-О.А. Реутов | Теоретические основы органической химии (1964) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_33440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая книга является по существу вторым изданием моно­графии "Теоретические основы органической химии", опубликован­ной в 1956 г. на основе и в развитие курса лекций, читаемого автором в течение ряда лет на химическом факультете Московского универси­тета.
- В книге рассматривается в основном не строение тех или иных классов органических соединений, а (   Читать дальше...   )Жанр: ХимияИздательство: Издательство Московского университетаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED93CC6ACE4340ADDA6732CEDF37EEF52C8B878
 ```
 
 https://mybot314.ru/tekegram_catalog/

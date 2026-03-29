@@ -1,3 +1,119 @@
+###  Публикация: 1076464   (312324) от 26.11.2016
+
+Rolf Kuhn Quintett - Solarius (1964) 2012, Amiga Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Minor Impressions [07:56]
+ 02.Solarius [06:17]
+ 03.Sie gleicht wohl einem Rosenstock [06:25]
+ 04.Mountain Jump [06:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E133DC459CCEB3D88FDC7F41CD6FBA75D808DAFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076789   (312322) от 26.11.2016
+
+Art Blakey And The Jazz Messengers - Not Yet (1988) 2005, JazzIt[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenji's Mood [09:41]
+02. For Heaven Sake [07:25]
+03. Not Yet [06:48]
+04. I'll Never Be The Same [03:49](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DB1E2BE619188F8B8B2A23DEFFDA56A49CC9B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959851   (312267) от 26.11.2015
+
+Touch And Go - I Find You Very Attractive (1999) [FLAC|tracks+.cue]<Latin, Jazzdance, Big Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight To...Number One (3:05)
+02. Big Beat (3:11)
+03. Ecoutez, Repetez (4:36)
+04. Would You...? (3:10)(   Читать дальше...   )Жанр: Latin, Jazzdance, Big BeatПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A8E76FEB3AC1193801DFA457B7B88672DD0F2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260317   (312190) от 07.11.2018
+
+Artie Shaw - The Artie Shaw Story (1936 - 1954) 4CD, 2005, Proper Box [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312190.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Free Wheeling:
+01. The Japanese Sandman [2:31]
+02. One Two, Button Your Shoe [2:50]
+03. There's Frost On The Moon [2:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 05:10:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1DE68BB76D3FB82EA5CAF28AAA8609FD38AE97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260468   (312176) от 07.11.2018
 
 The Oscar Peterson Trio - Affinity (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -6,7 +122,7 @@ The Oscar Peterson Trio - Affinity (2016) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312176.jpg" />
+  <img src="Z:/picture/008/save_picture_312176.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Peter Cincotti - Metropolis (2012) [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312021.jpg" />
+  <img src="Z:/picture/008/save_picture_312021.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Peter Cincotti - Peter Cincotti (2003) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311900.jpg" />
+  <img src="Z:/picture/008/save_picture_311900.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Gordon Brisker Quintet - About Charlie (1986) Discovery Records [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311829.jpg" />
+  <img src="Z:/picture/008/save_picture_311829.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Sammy Davis, Jr. - Sings Just For Lovers (1955) 2006, Universal [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310917.jpg" />
+  <img src="Z:/picture/008/save_picture_310917.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Wild Bill Davison & Eddie Condon's All Stars - Live! 1955 Miami Beach (2004) Sto
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310914.jpg" />
+  <img src="Z:/picture/008/save_picture_310914.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Terence Blanchard - Simply Stated (1992) Columbia [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310908.jpg" />
+  <img src="Z:/picture/008/save_picture_310908.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Karen Souza - Essentials [Japan Edition] (2013) [FLAC|Lossless]<Bossa Nova, Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310905.jpg" />
+  <img src="Z:/picture/008/save_picture_310905.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Elvin Jones - Mr. Jones (1969/1972) 2013, EMI Music[FLAC|tracks+.cue]<Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310422.jpg" />
+  <img src="Z:/picture/008/save_picture_310422.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Tim Garland, Joe Locke, Geoffrey Keezer (Storms/Nocturnes Trio) - Rising Tide (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310123.jpg" />
+  <img src="Z:/picture/008/save_picture_310123.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Stacey Kent - Tenderly (2015) [FLAC|Tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310094.jpg" />
+  <img src="Z:/picture/008/save_picture_310094.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Shirley Scott - Latin Shadows (1966) 1995, MCA Records [WavPack|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309944.jpg" />
+  <img src="Z:/picture/008/save_picture_309944.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Alan Broadbent & Gary Foster - Recorded Live At Maybeck Recital Hall (1993) Conc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309878.jpg" />
+  <img src="Z:/picture/008/save_picture_309878.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Alan Broadbent - Live at Maybeck Recital Hall, Vol.14 (1991) Concord Jazz [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309877.jpg" />
+  <img src="Z:/picture/008/save_picture_309877.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ The Modern Jazz Quartet - The Modern Jazz Quartet Plays for Lovers (2012) [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309724.jpg" />
+  <img src="Z:/picture/008/save_picture_309724.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Harry Verbeke & Rob Agerbeek Quartet - Gibraltar (1979) Remaster, 2015, Solid Re
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309653.jpg" />
+  <img src="Z:/picture/008/save_picture_309653.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Michel Camilo - Michel Camilo (1988) Portrait[FLAC|Lossless|tracks + .cue] <Lati
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309643.jpg" />
+  <img src="Z:/picture/008/save_picture_309643.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Miles Davis - Nefertiti (1988) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309425.jpg" />
+  <img src="Z:/picture/008/save_picture_309425.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Miles Davis - Ballads (1998) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309419.jpg" />
+  <img src="Z:/picture/008/save_picture_309419.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Alice Coltrane - Radha-Krsna Nama Sankirtana (1977) 2002, Warner Bros. Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309080.jpg" />
+  <img src="Z:/picture/008/save_picture_309080.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Sonny Rollins - The Best of Sonny Rollins: The Blue Note Years (1989) Blue Note 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308853.jpg" />
+  <img src="Z:/picture/008/save_picture_308853.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Sonny Rollins & Co. feat. Jim Hall - The Bridge: Complete 1962 Sessions (2013) F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308845.jpg" />
+  <img src="Z:/picture/008/save_picture_308845.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Sonny Rollins & Co. feat. Jim Hall - The Bridge: Complete 1962 Sessions (2013) F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48291053F1D1F7DFB5436C412FCE54750E0C953A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422547   (308571) от 09.11.2020
-
-Diana Krall - This Dream Of You (2020) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Beautiful [4:50]
-02. That's All/Azure-Te [4:05]
-03. Autumn in New York [5:19]
-04. Almost Like Being in Love [3:40](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13C441DE8E491326100AB68AB722965F826DF73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960528   (308056) от 28.11.2015
-
-Ingrid Mapson - Rhythms Of Your Heart (2015) [FLAC|image+.cue]<Vocal Jazz, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On My Own (From Les Miserables) (3:54)
-02. Angel (5:42)
-03. Gold (Feat. Rosemary Siemens) (4:40)
-04. Can't Help Lovin' Dat Man (From Showboat) (Feat. Eli Bennett) (3:11)(   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D47DB63329E01DB6B4D6AE0A1E3AFAD3E8C8F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960386   (308052) от 28.11.2015
-
-Traci Cooper - Stepping Stone (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Is Yet To Come
-02. After The Lovin'
-03. Too Darn Hot
-04. Lilac Wine(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB0C76513AEC5D41551B0C15F444B264ACDAA74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960402   (307987) от 28.11.2015
-
-Christine Pedi - Good To Mama (2015) [FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You're Good To Mama
-02. Thanks A Lot But No Thanks
-03. But Not For Me
-04. A Spoonful Of Sugar(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C10312B97167341BE028B8D07BDFB0E4D14BB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

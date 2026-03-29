@@ -6,7 +6,7 @@ SMPlayer 18.2.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780406.jpg" />
+  <img src="Z:/picture/008/save_picture_780406.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ FastStone Capture 8.8 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780384.jpg" />
+  <img src="Z:/picture/008/save_picture_780384.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ YouTube By Click Premium 2.2.79 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780375.jpg" />
+  <img src="Z:/picture/008/save_picture_780375.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ IsMyLcdOK 3.03 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780370.jpg" />
+  <img src="Z:/picture/008/save_picture_780370.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ mp3DirectCut 2.24 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780361.jpg" />
+  <img src="Z:/picture/008/save_picture_780361.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Easy GIF Animator Pro 7.2.0.60 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780349.jpg" />
+  <img src="Z:/picture/008/save_picture_780349.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Microsoft Office Professional 2003 SP3 (2018.02) RePack by KpoJIuK  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780340.jpg" />
+  <img src="Z:/picture/008/save_picture_780340.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Windows 10 Pro 1709 x86/x64 by kuloymin v12.2 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780321.jpg" />
+  <img src="Z:/picture/008/save_picture_780321.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Windows 7 SP1 Ultimate (x86&x64) [Updates V.11] by YelloSOFT [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780317.jpg" />
+  <img src="Z:/picture/008/save_picture_780317.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ GoodSync Enterprise 10.7.8.8 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780237.jpg" />
+  <img src="Z:/picture/008/save_picture_780237.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ FastStone Capture 8.8 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780217.jpg" />
+  <img src="Z:/picture/008/save_picture_780217.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Soft4Boost Document Converter 5.2.5.735 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780211.jpg" />
+  <img src="Z:/picture/008/save_picture_780211.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Movavi Screen Capture Studio 9.2.1 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780206.jpg" />
+  <img src="Z:/picture/008/save_picture_780206.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ CrystalDiskInfo 7.5.2 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780203.jpg" />
+  <img src="Z:/picture/008/save_picture_780203.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Rainlendar Pro 2.14 Build 155 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780200.jpg" />
+  <img src="Z:/picture/008/save_picture_780200.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ The Bat! Professional 8.2.8 RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780164.jpg" />
+  <img src="Z:/picture/008/save_picture_780164.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ SoftMaker Office Professional 2018 rev 923.0130  RePack (& portable) by KpoJIuK 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780162.jpg" />
+  <img src="Z:/picture/008/save_picture_780162.jpg" />
 </div>
 
 
@@ -455,7 +455,7 @@ cFosSpeed 10.26 Build 2312 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780145.jpg" />
+  <img src="Z:/picture/008/save_picture_780145.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ DriverPack Solution 17.7.73.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780144.jpg" />
+  <img src="Z:/picture/008/save_picture_780144.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Icecream Screen Recorder PRO 5.20.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780096.jpg" />
+  <img src="Z:/picture/008/save_picture_780096.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Wise Video Downloader 2.72.109 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780082.jpg" />
+  <img src="Z:/picture/008/save_picture_780082.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Duplicate File Detective 6.1.62 Enterprise [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780080.jpg" />
+  <img src="Z:/picture/008/save_picture_780080.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ Geek Uninstaller 1.4.5 Build 126 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780055.jpg" />
+  <img src="Z:/picture/008/save_picture_780055.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ CrystalDiskInfo 7.5.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780051.jpg" />
+  <img src="Z:/picture/008/save_picture_780051.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Comodo Internet Security Premium 10.2.0.6514 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780031.jpg" />
+  <img src="Z:/picture/008/save_picture_780031.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Movavi Video Editor 14.Plus 14.3.0  RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780024.jpg" />
+  <img src="Z:/picture/008/save_picture_780024.jpg" />
 </div>
 
 

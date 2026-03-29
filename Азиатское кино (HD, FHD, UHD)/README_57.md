@@ -1,3 +1,133 @@
+###  Публикация: 1563057   (212667) от 12.07.2022
+
+Легенда о Куньлуне (Куньлуньская легенда) / Kun Lun Xu (The Legend of Kun Lun) (2022) WEB-DL [H.265/2160p-LQ] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чжан Вэньфэнь (Тим Пэй) – охотник за сокровищами из секты Фацю, который посвятил свою жизнь поискам отца (Майкл Тун). Тот когда-то отправился в Куньлуньские горы помогать японцам в поисках легендарного затерянного города и не вернулся оттуда, и Вэньфэнь пытается узнать, что с ним случилось. Путь к городу ищет и японка Риоми (Ариэль Ань), которая пытается привлечь (   Читать дальше...   )Производство: Китай, iQIYIЖанр: Боевик, фэнтези, приключениРежиссер: Хай ТаоАктеры: Тим Пэй, Ариэль Ань, Айси Ван, Чжоу Цзюнь, Ян Мин, Уэйз Ли, Майкл Тун, Ван Кань, Сюй ЧжаньвэйПеревод: Авторский (Виктор Береговых)Субтитры: Русские, английские, китайские (хардсаб)Продолжительность: 01:20:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791839FDAAA4FC300C46A32F10BE75CC507B22B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563315   (212603) от 13.07.2022
+
+Слепой меч / Непокорный / Mu Zhong Wu Ren / Blind Sword, Defiant (2022) WEB-DL [H.264/1080p-LQ] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212603.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чэн Сяцзы (Се Мяо) – слепой мастер боевых искусств, зарабатывающий на жизнь ловлей беглых преступников. Во время очередного путешествия он становится свидетелем массового убийства – наследник богатой семьи Юйвэнь вырезает всю семью виноделов, и единственная, кому удается выжить – девушка по имени Ни Янь (Гао Вэймань), которую мерзавец насилует. Сяцзы помогает Ни (   Читать дальше...   )Производство: Китай, iQIYIЖанр: Боевик, приключения, драмаРежиссер: Ян БинцзяАктеры: Се Мяо, Гао Вэймань, Сян Хао, Лю Бэнь, Чжан Ди, Чжан Хаосэнь, Гао И, Лю Цзюнь, Кан СюаньПеревод: Авторский (Виктор Береговых)Субтитры: Китайские (hardsub)Продолжительность: 01:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADA610F3B0ECF4B79F4F953A14E85359BA212A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563413   (212594) от 14.07.2022
+
+Якша: Суровые методы / Yacha / Yaksha: Ruthless Operations (2022) WEBRip [H.264/1080p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_212594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пытаясь выслужиться и вернуться на прежнюю должность, проигравший громкое дело сеульский прокурор Хан Джи-хун отправляется в китайский Шэньян, чтобы составить для корейского ЦРУ отчёт о работе действующей там группы агентов. Сразу же после прибытия принципиальный прокурор оказывается в эпицентре перестрелки и вскоре выясняет, что разведки разных стран пытаются заполучить (   Читать дальше...   )Производство: Южная Корея, Sang Sang Filmm, Sangsang FilmЖанр: Боевик, триллер, криминалРежиссер: Хён НаАктеры: Соль Гён-гу, Пак Хэ-су, Ян Дон-гын, Ли Эль, Чинён, Сон Джэ-рим, Чин Гён, Чи И-су, Щин Мун-сон, Хироюки ИкэутиПеревод: Многоголосый любительский (STEPonee; Head Pack Films; AlphaProject), двухголосый любительский (Pazl Voice)Субтитры: Русские, английские, испанские, французские, украинские, немецкие, португальскиеПродолжительность: 02:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44486AC36C91BC6AC6BE1B20EA6F3D3AD972218A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831203   (212495) от 28.10.2025
+
+Ужасы Токио / Yami Douga (2012) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Антология ужасов в стиле «найденной плёнки», состоящая из нескольких независимых историй. Фильм не имеет единого сквозного сюжета, а вместо этого представляет собой сборник коротких, жутких эпизодов, снятых якобы на любительские камеры. В отличие от многих фильмов ужасов, Yami Douga не полагается на дешёвые трюки или внезапные пугающие моменты. Он создаёт атмосферу (   Читать дальше...   )Производство: ЯпонияЖанр: ужасыРежиссер: Кадзу КодамаАктеры: Кота Такаги, Хадзиме Изуки, Акико НагатаПеревод: Одноголосый любительский (datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064EC56E080F6677CC058227CDA5B66216A0774D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1831206   (212493) от 28.10.2025
+
+Ужасы Токио 2 / Yami Douga 2 (2012) WEB-DL [H.264/1080p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть антология ужасов в стиле «найденной плёнки», состоящая из нескольких независимых историй. Фильм не имеет единого сквозного сюжета, а вместо этого представляет собой сборник коротких, жутких эпизодов, снятых якобы на любительские камеры. В отличие от многих фильмов ужасов, Yami Douga не полагается на дешёвые трюки или внезапные пугающие моменты. Он создаёт (   Читать дальше...   )Производство: ЯпонияЖанр: ужасы, триллерРежиссер: Кадзу КодамаАктеры: Саки Миками, Юта Сасаки, Акико НагатаПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD92B4CDB2119FB732E6A2A40815501349980E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545364   (212456) от 17.07.2022
 
 Битва на озере / Битва при Чосинском водохранилище / Zhang jin hu / Chang jin hu / The Battle at Lake Changjin (2021) BDRip [H.264/720p] [DVO]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212456.jpg" />
+  <img src="Z:/picture/005/save_picture_212456.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212230.jpg" />
+  <img src="Z:/picture/005/save_picture_212230.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211964.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211783.jpg" />
+  <img src="Z:/picture/005/save_picture_211783.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211425.jpg" />
+  <img src="Z:/picture/005/save_picture_211425.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211354.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211225.jpg" />
+  <img src="Z:/picture/005/save_picture_211225.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211186.jpg" />
+  <img src="Z:/picture/005/save_picture_211186.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211136.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211112.jpg" />
+  <img src="Z:/picture/005/save_picture_211112.jpg" />
 </div>
 
 
@@ -266,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211076.jpg" />
 </div>
 
 
@@ -292,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211025.jpg" />
 </div>
 
 
@@ -318,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210869.jpg" />
+  <img src="Z:/picture/005/save_picture_210869.jpg" />
 </div>
 
 
@@ -344,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210635.jpg" />
 </div>
 
 
@@ -370,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_210592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_210592.jpg" />
 </div>
 
 
@@ -396,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210559.jpg" />
+  <img src="Z:/picture/005/save_picture_210559.jpg" />
 </div>
 
 
@@ -422,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210473.jpg" />
+  <img src="Z:/picture/005/save_picture_210473.jpg" />
 </div>
 
 
@@ -448,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210465.jpg" />
+  <img src="Z:/picture/005/save_picture_210465.jpg" />
 </div>
 
 
@@ -474,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210425.jpg" />
+  <img src="Z:/picture/005/save_picture_210425.jpg" />
 </div>
 
 
@@ -500,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210385.jpg" />
+  <img src="Z:/picture/005/save_picture_210385.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210286.jpg" />
+  <img src="Z:/picture/005/save_picture_210286.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9070061E23C08AEBA906B47866B6A2CDFB29B05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570925   (210205) от 19.08.2022
-
-Киллер-хранитель / Киллер: Девчонка должна умереть / Deo killeo: jukeodo doeneun ai / The Killer (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправляясь с подругой в отпуск на остров Чеджу, жена просит И-гана на время их отсутствия присмотреть за 17-летней дочерью подруги Юн-джи. Мужчина не восторге от такой перспективы, поэтому с облегчением разрешает той переночевать у одноклассницы. Но в эту же ночь девушка находит неприятности, И-гану приходится спасать её от местных криминальных элементов, а те в (   Читать дальше...   )Производство: Корея Южная / Ascendio, iHQ, The Contents OnЖанр: Боевик, криминалРежиссер: Чхве Джэ-хунАктеры: Чан Хёк, Ли Со-ён, Ли Сын-джун, Брюс Хан, Ли Чхэ-ён, Пан Ын-джон, Чхве Ги-соп, Чха Тхэ-хён, Сон Хён-джу, Щин Сын-хванПеревод: Дублированный (Lucky Production)Субтитры: ОтсутствуютПродолжительность: 01:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21913D7F7A9101B8A2FDA5D9004EB172C7BAE23C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604216   (210131) от 13.01.2023
-
-Восточные кондоры / Dung fong tuk ying / Eastern condors (1987) BDRemux [H.264/1080p] [Remastered] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда американцы покидали Вьетнам, там был оставлен секретный запас ракет и стратегического оружия, который не обнаружила вьетнамская армия. В 1976 году полковник армии США Лам получает задание уничтожить склад, прежде чем ракеты попадут в руки врага. Он набирает команду из китайских и вьетнамских заключенных. Всем, кто уцелеет, обещана свобода. После десантирования (   Читать дальше...   )Производство: Гонконг, Golden Harvest Company Ltd.Жанр: боевик, триллер, криминалРежиссер: Саммо ХунгАктеры: Саммо Хунг, Юэнь Бяо, Хэйнг С. Нгор, Лам Чин-Ин, Билли Лау, Квок Кюн Чун, Джойс Годензи, Мэн Ян Чи, Чи Чун Ха, Чарли ЧиньПеревод: Авторский (Юрий Живов)Язык озвучки: русский, китайский, английскийСубтитры: Английские (PGS)Продолжительность: 01:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC47090C4AB4B84DC35FDC829BF13A9347F28D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643971   (209775) от 04.07.2023
-
-Во имя чести / Ji jie hao (2007) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209775.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе сюжета лежит реальный случай, который в своём романе "Guan Si" ("Судебный процесс") описал Ян Цзиньюань (Yang Jin-Yuan). Во время Хуайхайского сражения в 1948 году между китайскими коммунистами и войсками Гоминьдана роту капитана Гу Цыди отправляют на передовую - солдаты должны сдерживать атаки превосходящих сил противника, пока не услышат (   Читать дальше...   )Производство: Гонконг, Китай, China Film Co-Production Corporation, Huayi BrothersЖанр: драма, военный, боевик, биография, историяРежиссер: Сяоган ФэнАктеры: Ханьюй Чжан, Чао Ден, Тиффани Тан, Фань Ляо, Баоцян Ван, Цзюнь Ху, Жэнь Цюань, Минг Ху, Ли Найвэнь, Хенг ФуПеревод: профессиональный многоголосыйЯзык озвучки: русский, китайскийСубтитры: русские, английскиеПродолжительность: 02:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87A89104CC3DC5FBB9DB97FD725E08775A7F2211
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572045   (209725) от 25.08.2022
-
-Стальной алхимик: Месть Шрама / Hagane no renkinjutsushi: Kanketsuhen fukushusha suka / Fullmetal Alchemist: The Revenge of Scar (2022) WEB-DL [H.264/1080p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_209725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Элрик еще никогда не сталкивались с таким сильным оппонентом — в этом сиквеле к первому полнометражному фильму им противостоит серийный убийца с большим шрамом на лбу.Производство: Япония, Warner Bros.Жанр: боевик, фэнтези, приключенияРежиссер: Фумихико СориАктеры: Рёсукэ Ямада, Атому Мидзуиси, Цубаса Хонда, Дин Фудзиока, Макэню, Мисако Рэнбуцу, Рюта Сато, Каната Хонго, Синдзи Утияма, Сэиё УтиноПеревод: Многоголосый профессиональный (Jaskier), двухголосый любительский (RealFake)Субтитры: Русские, английские, немецкие, французские, украинские и др.Продолжительность: 02:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C604FC5FEF42034DC8152C799711F7EE9A6E7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644370   (209720) от 05.07.2023
-
-За гранью / Rimiteu (2022) WEB-DL [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209720.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женщина-детектив под прикрытием ищет похищенного ребёнка.Производство: Корея ЮжнаяЖанр: триллер, детектив, криминалРежиссер: Ли Сын-джунАктеры: Ли Джон-хён, Мун Джон-хи, Чин Со-ён, Пак Мён-хун, Чхве Дон-мун, О Мин-сок, Ким Ха-он, Чон Гук-хян, Пак Кён-хе, Лим Чхоль-хёнПеревод: Дублированный (Позитив)Язык озвучки: русский, корейскийСубтитры: ОтсутствуютПродолжительность: 01:23:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CB63E7D7DFD12E8D2EBD97C07C9B2E66083B700
 ```
 
 https://mybot314.ru/tekegram_catalog/

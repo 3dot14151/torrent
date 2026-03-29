@@ -1,3 +1,84 @@
+###  Публикация: 1224214   (667172) от 09.05.2018
+
+Текстуры - Creative Market - Marble Watercolor Texture Big Bundle - 1396179 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_667172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные акварельные текстуры.
+Автор: Clipart Brat Graphics.Формат: JPGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82AA4F62A682C2B3BE5A076F096FAA50012A545C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224119   (667171) от 09.05.2018
+
+Текстуры - Creative Market - 50 luxury gold & marble textures - 1219168 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_667171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные и золотые текстуры с дополнениями.
+Автор: Laras WonderlandФормат: JPGРазрешение файлов: 1715 x 1676 - 5000 x 5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59BE38FCD32528655D5B9B2060F497C0C5770F8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224310   (667123) от 09.05.2018
+
+Текстуры - Creative Market - 20 Marble Overlay Textures - 968444 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_667123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мраморные текстуры для наложения.
+Автор: Texture Hunters.Формат: PNGРазрешение файлов: 4500 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302356BD7F1C4B05F0263F7626A33F393BD098CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224551   (666055) от 10.05.2018
 
 Текстуры - Creative Market - 33 Marble Textures - 100% Vector - 2039711 [AI, EPS, JPG]
@@ -6,7 +87,7 @@
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666055.jpg" />
+  <img src="Z:/picture/008/save_picture_666055.jpg" />
 </div>
 
 
@@ -33,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665934.jpg" />
+  <img src="Z:/picture/008/save_picture_665934.jpg" />
 </div>
 
 
@@ -59,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664777.jpg" />
+  <img src="Z:/picture/008/save_picture_664777.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662877.jpg" />
+  <img src="Z:/picture/008/save_picture_662877.jpg" />
 </div>
 
 
@@ -113,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662832.jpg" />
+  <img src="Z:/picture/008/save_picture_662832.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662818.jpg" />
+  <img src="Z:/picture/008/save_picture_662818.jpg" />
 </div>
 
 
@@ -166,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662760.jpg" />
+  <img src="Z:/picture/008/save_picture_662760.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661822.jpg" />
+  <img src="Z:/picture/008/save_picture_661822.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661820.jpg" />
+  <img src="Z:/picture/008/save_picture_661820.jpg" />
 </div>
 
 
@@ -247,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661806.jpg" />
+  <img src="Z:/picture/008/save_picture_661806.jpg" />
 </div>
 
 
@@ -274,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661804.jpg" />
+  <img src="Z:/picture/008/save_picture_661804.jpg" />
 </div>
 
 
@@ -301,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661786.jpg" />
+  <img src="Z:/picture/008/save_picture_661786.jpg" />
 </div>
 
 
@@ -328,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661783.jpg" />
+  <img src="Z:/picture/008/save_picture_661783.jpg" />
 </div>
 
 
@@ -355,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661782.jpg" />
+  <img src="Z:/picture/008/save_picture_661782.jpg" />
 </div>
 
 
@@ -381,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661777.jpg" />
+  <img src="Z:/picture/008/save_picture_661777.jpg" />
 </div>
 
 
@@ -408,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661774.jpg" />
+  <img src="Z:/picture/008/save_picture_661774.jpg" />
 </div>
 
 
@@ -435,7 +516,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661772.jpg" />
+  <img src="Z:/picture/008/save_picture_661772.jpg" />
 </div>
 
 
@@ -462,7 +543,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661743.jpg" />
+  <img src="Z:/picture/008/save_picture_661743.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661740.jpg" />
+  <img src="Z:/picture/008/save_picture_661740.jpg" />
 </div>
 
 
@@ -516,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661734.jpg" />
+  <img src="Z:/picture/008/save_picture_661734.jpg" />
 </div>
 
 
@@ -543,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661729.jpg" />
+  <img src="Z:/picture/008/save_picture_661729.jpg" />
 </div>
 
 
@@ -570,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660722.jpg" />
+  <img src="Z:/picture/008/save_picture_660722.jpg" />
 </div>
 
 
@@ -597,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660715.jpg" />
+  <img src="Z:/picture/008/save_picture_660715.jpg" />
 </div>
 
 
@@ -608,85 +689,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:659F37268AF7E6084776CCCECD9E8DE371E9AAF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225185   (660710) от 15.05.2018
-
-Текстуры - Creative Market - 50 Gold &Marble Glam Textures - 1278950 [JPG, PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Золотые, серебристые и мраморные текстуры с дополнениями.
-Автор: Laras Wonderland.Формат: JPG, PNGРазрешение файлов: 1000 x 1000 - 5000 x 5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3DCCE6A5F56D87C2B9451B34B685C802750199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225487   (660708) от 15.05.2018
-
-Текстуры - Creative Market - 15 Light Wood Background Textures - 2166816 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры под светлое дерево.Формат: JPGРазрешение файлов: 8000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B437D4DE968F84C68737A4DDEBD537B6F6242A4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225449   (660670) от 15.05.2018
-
-Текстуры - Creative Market - 20 Dark Wood Background Textures - 2166807 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстуры под тёмное дерево.Формат: JPGРазрешение файлов: 8000 x 4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77ADF8E4C5A03895BD5F2538963C07C7F3FB9EC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

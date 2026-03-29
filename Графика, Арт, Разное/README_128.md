@@ -1,3 +1,33 @@
+###  Публикация: 498018   (253665) от 17.05.2012
+
+[Wallpapers] Texture Desktop Wallpapers Pack 6
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_253665.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Texture Desktop Wallpapers Pack 6
+Название: Texture Desktop Wallpapers Pack 6
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3000х2000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD76935A3927E28348D5882763D16C8506CB4B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498016   (253635) от 17.05.2012
 
 [Wallpapers] Minimalism Desktop Wallpapers (17.05.2012)
@@ -6,7 +36,7 @@
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_253635.jpg" />
+  <img src="Z:/picture/005/save_picture_253635.jpg" />
 </div>
 
 
@@ -36,7 +66,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252823.jpg" />
+  <img src="Z:/picture/005/save_picture_252823.jpg" />
 </div>
 
 
@@ -62,7 +92,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252822.jpg" />
+  <img src="Z:/picture/005/save_picture_252822.jpg" />
 </div>
 
 
@@ -88,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252821.jpg" />
+  <img src="Z:/picture/005/save_picture_252821.jpg" />
 </div>
 
 
@@ -119,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Современное изобразительное искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252656.jpg" />
+  <img src="Z:/picture/005/save_picture_252656.jpg" />
 </div>
 
 
@@ -145,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252395.jpg" />
+  <img src="Z:/picture/005/save_picture_252395.jpg" />
 </div>
 
 
@@ -175,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252385.jpg" />
+  <img src="Z:/picture/005/save_picture_252385.jpg" />
 </div>
 
 
@@ -205,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_252381.jpg" />
+  <img src="Z:/picture/005/save_picture_252381.jpg" />
 </div>
 
 
@@ -235,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251870.jpg" />
+  <img src="Z:/picture/004/save_picture_251870.jpg" />
 </div>
 
 
@@ -261,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_251762.jpg" />
+  <img src="Z:/picture/005/save_picture_251762.jpg" />
 </div>
 
 
@@ -287,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251648.jpg" />
+  <img src="Z:/picture/004/save_picture_251648.jpg" />
 </div>
 
 
@@ -320,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251643.jpg" />
+  <img src="Z:/picture/004/save_picture_251643.jpg" />
 </div>
 
 
@@ -346,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251627.jpg" />
+  <img src="Z:/picture/004/save_picture_251627.jpg" />
 </div>
 
 
@@ -372,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_251624.jpg" />
+  <img src="Z:/picture/004/save_picture_251624.jpg" />
 </div>
 
 
@@ -398,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250631.jpg" />
+  <img src="Z:/picture/004/save_picture_250631.jpg" />
 </div>
 
 
@@ -426,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250615.jpg" />
+  <img src="Z:/picture/004/save_picture_250615.jpg" />
 </div>
 
 
@@ -452,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250614.jpg" />
+  <img src="Z:/picture/004/save_picture_250614.jpg" />
 </div>
 
 
@@ -478,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Иконки и аватарки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_250494.jpg" />
+  <img src="Z:/picture/004/save_picture_250494.jpg" />
 </div>
 
 
@@ -504,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_249137.jpg" />
+  <img src="Z:/picture/004/save_picture_249137.jpg" />
 </div>
 
 
@@ -534,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248776.jpg" />
+  <img src="Z:/picture/004/save_picture_248776.jpg" />
 </div>
 
 
@@ -560,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248759.jpg" />
+  <img src="Z:/picture/004/save_picture_248759.jpg" />
 </div>
 
 
@@ -590,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Картинки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248629.jpg" />
+  <img src="Z:/picture/004/save_picture_248629.jpg" />
 </div>
 
 
@@ -616,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_248420.jpg" />
+  <img src="Z:/picture/004/save_picture_248420.jpg" />
 </div>
 
 
@@ -646,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247953.jpg" />
+  <img src="Z:/picture/004/save_picture_247953.jpg" />
 </div>
 
 
@@ -672,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246339.jpg" />
+  <img src="Z:/picture/004/save_picture_246339.jpg" />
 </div>
 
 
@@ -687,36 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A382570561C42DE3BEFE0D1C3DEC84775C18A8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491653   (246332) от 03.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Pack 13
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246332.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Computer Desktop Wallpapers Pack 13
-Название: Computer Desktop Wallpapers Pack 13
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9873B3DDFE4A2171837C34AA5B4036620DE67C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

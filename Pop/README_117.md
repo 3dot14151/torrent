@@ -1,3 +1,351 @@
+###  Публикация: 1532479   (714468) от 19.02.2022
+
+Agnetha Faltskog (ABBA) - 12 Studio Albums + 2 Compilations (1968-2013) Collection, CD [MP3|320 Kbps] <Soft Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агнета Осе Фельтског (род. 5 апреля 1950, Йёнчёпинг) - шведская певица, автор песен, музыкальный продюсер. В 1968 году, выпустив успешную дебютную пластинку, Агнета Фельтског стала известна в родной стране, а мировую славу певице принесло участие в одной из самых успешных групп всех времён - ABBA.Список альбомов:
+1968 - Agnetha Faltskog
+1969 - Agnetha Faltskog Vol. 2
+1970 - Som Jag Ar(   Читать дальше...   )Жанр: Soft Rock, PopПродолжительность: 09:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01AEB8F92EA875CD7C591E0F6C7105D37AD1A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130661   (714339) от 02.05.2017
+
+Jeanne Mas - PH (2017) [FLAC|Lossless|tracks + .cue] <Chanson, Pop, Rock, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Désir en désirs (04:07)
+02. Autre que moi (03:30)
+03. Desperado (02:43)
+04. Demi-tour (03:58)(   Читать дальше...   )Жанр: Chanson, Pop, Rock, Female VocalПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4CD1D8389FBA8477FDECE3D05CFD13EF3A89CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130635   (714329) от 02.05.2017
+
+Sylvan Esso - What Now (2017) [FLAC|Lossless|tracks + .cue] <Electropop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound
+02. The Glow
+03. Die Young
+04. Radio(   Читать дальше...   )Жанр: Electropop, Indie PopПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A7E47077F3CB4CCD208A54F46F08DFF190EB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082050   (714125) от 02.05.2017
+
+Ritual (Jillian Ann) - The Code Album (2015) [MP3|320 Kbps] <Alternative Pop, Ethereal, Symphonic Bass>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Code
+02. The Code (feat. Jillian Ann)
+03. I:Root
+04. La Petite Mort (feat. Jillian Ann)(   Читать дальше...   )Жанр: Alternative Pop, Ethereal, Symphonic BassПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3DC97A6616390B3CAE1FC438D5BAAE75EE08D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025014   (714080) от 10.06.2016
+
+Matia Bazar - Brivido Caldo (2000) [FLAC|Lossless|tracks] <Pop, Italo-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brivido Caldo    04:08
+02. Vorrei Averti Qui    04:15
+03. Non Abbassare Gli Occhi    04:14
+04. Solo Tu    03:33(   Читать дальше...   )Жанр: Pop, Italo-pop, DiscoПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73F6D9D0D02751FD3CCDA09058D19C0BEAABB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219515   (714022) от 14.04.2018
+
+VA - Maxi Disco (1979) LP [MP3|320 Kbps] <Electronic, Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_714022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M - Pop Muzik (5:00)
+02. Amii Stewart - Knock On Wood (6:01)
+03. Ganymed - It Takes Me Higher (4:53)
+04. Patrick Juvet - Lady Night (6:46)(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97F1E15A09CD72D7AA0AC5BB7D6A76E8AA391C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024913   (713954) от 10.06.2016
+
+Rick Astley - 50 (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Singing (3:58)
+02. Angels On My Side (3:36)
+03. Wish Away (3:27)
+04. This Old House (4:31)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC92EDBA7985142F28E6DC235DAF3FCBBE27F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024908   (713951) от 10.06.2016
+
+Tom Odell - Wrong Crowd (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <Indie-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Crowd (4:27)
+02. Magnetised (3:55)
+03. Concrete (3:50)
+04. Constellations (4:35)(   Читать дальше...   )Жанр: Indie-PopПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC0F0EC4D7F86018AF40476737E5E5BDF0DDBFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219459   (713907) от 14.04.2018
+
+The Nolans - 1 Album, 1 Compilation (1978, 1996) [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ирландская поп группа в составе из пяти сестер, которая до 1980 года так и называлась - The Nolan Sisters. Мировую известность получили за хит "I'm In the Mood for Dancing". Выпущенная в декабре 1979 года, песня достигла третьего места в Великобритании в феврале 1980 года и возглавила японские чарты в ноябре 1980 года.01. Something Tells Me (Something's Gonna Happen Tonight) (2:24)
+02. Sailing (4:08)
+03. Don't It Make My Brown Eyes Blue (2:32)
+04. Mull Of Kintyre (4:17)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 02:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532D022F031F86EBE3D8AE0BA83172AD5129DB69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025025   (713835) от 10.06.2016
+
+Willy William - Une Seule Vie (2016) [MP3|320 кб/с] <Dance, Pop, Electro>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Te quiero
+02.Жанр: Dance, Pop, ElectroПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C6EA02D90C53F85D42890C0A8DAA9B1E8CE237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219397   (713771) от 14.04.2018
+
+VA - The Sound Of Summer (2017) Limited Special Edition[FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приближается лето. По всем признакам, в том числе и музыкальным. Из последней командировки предлагаю свой улов.
+Уж не знаю, каким принципом руководствовались составители - скорее всего всем сестрам по серьгам. Уж больно широк спектр исполнителей. Но небольшой и содержательный буклет прикладывается.
+Не знаю как Вам, а у меня в машине уже неделю крутиться... С наступающим (   Читать дальше...   )01. Pharrell Williams - Happy  (3:54)
+02. Marvin Gaye & Kygo - Sexual Healing  (3:07)
+03. Olly Murs feat. Demi Lovato - Up  (3:44)
+04. Mr. Probz - Waves  (3:29)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0681DDFF01F7A8E836171E2BEF2ECA9D6F069DCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219521   (713456) от 14.04.2018
+
+VA - ZYX Italo Disco Spacesynth Collection 1-4 (2014-2018) 8CD, Compilation [MP3|320 Kbps] <Spacesynth, Italo-Disco, Space-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_713456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - Moon Machine (5:34)
+02. Galactic Warriors - Koto Tribute Mix (13:58)
+03. Protonic Storm - Dreamscape (Short Mix) (6:42)
+04. Rygar - Modulation (5:29)(   Читать дальше...   )Жанр: Spacesynth, Italo-Disco, Space-DiscoПродолжительность: 10:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7943D14C8A6E4D991D1ABC1D995A74CA67B1D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025023   (713418) от 10.06.2016
 
 Vanessa Mai - Fur Dich (2016) [FLAC|Lossless|image + .cue] <Рор>
@@ -6,7 +354,7 @@ Vanessa Mai - Fur Dich (2016) [FLAC|Lossless|image + .cue] <Рор>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713418.jpg" />
+  <img src="Z:/picture/008/save_picture_713418.jpg" />
 </div>
 
 
@@ -35,7 +383,7 @@ Sun - Sun Over The Universe (1980) LP [MP3|320 Kbps] <Funk, Soul, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713384.jpg" />
+  <img src="Z:/picture/008/save_picture_713384.jpg" />
 </div>
 
 
@@ -64,7 +412,7 @@ Monk Higgins - Dance To The Disco Sax Of Monk Higgins (1974) LP [MP3|320 Kbps] <
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713374.jpg" />
+  <img src="Z:/picture/008/save_picture_713374.jpg" />
 </div>
 
 
@@ -93,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713045.jpg" />
+  <img src="Z:/picture/008/save_picture_713045.jpg" />
 </div>
 
 
@@ -122,7 +470,7 @@ DiscoBonus - Nothing Is Forever (2017) [FLAC|Lossless|image + .cue] <Italo-Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713008.jpg" />
+  <img src="Z:/picture/008/save_picture_713008.jpg" />
 </div>
 
 
@@ -151,7 +499,7 @@ Donna Summer - Endless Summer (Donna Summers Greatest Hits) (1994) [FLAC|Lossles
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712886.jpg" />
+  <img src="Z:/picture/008/save_picture_712886.jpg" />
 </div>
 
 
@@ -180,7 +528,7 @@ Madonna - Platinum Hits '2000 (2000) Unofficial Release [FLAC|Lossless|image + .
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712851.jpg" />
+  <img src="Z:/picture/008/save_picture_712851.jpg" />
 </div>
 
 
@@ -209,7 +557,7 @@ Will To Power - Spirit Warrior (2004) [MP3|256 Kbps] <Progressive House, Electro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712568.jpg" />
+  <img src="Z:/picture/008/save_picture_712568.jpg" />
 </div>
 
 
@@ -238,7 +586,7 @@ BowLand - Floating Trip (2017) [MP3|320 Kbps] <Alternative Pop, Downtempo, Elect
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712430.jpg" />
+  <img src="Z:/picture/008/save_picture_712430.jpg" />
 </div>
 
 
@@ -267,7 +615,7 @@ Femme Schmidt - Raw (2016) [FLAC|Lossless|tracks] <Pop, Female Vocal>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712199.jpg" />
+  <img src="Z:/picture/008/save_picture_712199.jpg" />
 </div>
 
 
@@ -296,7 +644,7 @@ ESTRADARADA - Дискотека века (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712175.jpg" />
+  <img src="Z:/picture/008/save_picture_712175.jpg" />
 </div>
 
 
@@ -325,7 +673,7 @@ VA - Billboard 1986 - 1989 vol.5 (unknown year) Unofficial Release [APE|Lossless
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712133.jpg" />
+  <img src="Z:/picture/008/save_picture_712133.jpg" />
 </div>
 
 
@@ -354,7 +702,7 @@ Laid Back - Unfinished Symphonies (1999) [FLAC|Lossless|image + .cue] <Electroni
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712112.jpg" />
+  <img src="Z:/picture/008/save_picture_712112.jpg" />
 </div>
 
 
@@ -383,7 +731,7 @@ Electra - Cuando Cuando (1985) LP, Maxi-Single [MP3|320 кб/с] <Electronic, Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712066.jpg" />
+  <img src="Z:/picture/008/save_picture_712066.jpg" />
 </div>
 
 
@@ -395,360 +743,6 @@ Electra - Cuando Cuando (1985) LP, Maxi-Single [MP3|320 кб/с] <Electronic, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D0EDAAB8269711508354147731EF40720BEF18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219644   (711979) от 15.04.2018
-
-Kenny Chesney (Кенни Чесни) - In My Wildest Dreams (1994) Capricorn Records [MP3|320 Kbps] <Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кенни Чесни - американский исполнитель кантри-музыки, один из самых популярных в 2000-2010 годах в своём стиле. Он записал 16 альбомов, 14 из которых сертифицированы как золотые и платиновые по данным RIAA, а 7 альбомов возглавляли национальный хит-парад Billboard 200. Также он является автором более 30 синглов, вошедших в Top 10 списка Hot Country Songs журнала (   Читать дальше...   )01. Whatever It Takes 3:01
-02. Somebody's Callin' 2:36
-03. The Tin Man 3:29
-04. High And Dry 2:58(   Читать дальше...   )Жанр: CountryПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5383E2EEDF1B19BC585ECA4CFA44416D8066905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219611   (711973) от 15.04.2018
-
-Reba McEntire (Риба МакИнтайр) - Reba McEntire (1977) Mercury [MP3|320 Kbps] <Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Риба МакИнтайр (полное имя - Риба Нилл МакИнтайр) - американская кантри певица, автор песен, продюсер и актриса, которая за свою карьеру продала более семидесяти миллионов копий своих альбомов по всему миру. Она выпустила 26 студийных альбомов, выпустила 24 синглов, которые стали №1, 28 альбомов были сертифицированы как Золотые, Платиновые и Мульти-Платиновые по (   Читать дальше...   )01. Glad I Waited Just for You 3:01
-02. One to One 2:41
-03. Angel In Your Arms 2:51
-04. I Don't Want To Be A One Night 3:03(   Читать дальше...   )Жанр: CountryПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629C13E2C40623A29E9CE9D3CD6434424DFE2E87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025062   (711961) от 11.06.2016
-
-Linda Jo Rizzo - Fly Me High (The Album) (2015) [FLAC|Lossless|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Me High    07:20
-02. There's A Fire    05:37
-03. Only One Night    07:34
-04. Heartflash    05:58(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F51BA05FA39EAD68408DDC0CED4B23B1A0B64E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025103   (711952) от 11.06.2016
-
-Giorgio Moroder - Innovisions (1985) [MP3|320 кб/с] <Electronic, Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Time Is Right Time (feat Edie Marlena) (4:08)
-02. My Girl  (feat Joe Esposito) (3:54)
-03. American Dream (feat Paul Engemann) (4:10)
-04. Baby Blue (4:22)(   Читать дальше...   )Жанр: Electronic, Disco, SynthpopПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD09F1E39F0257F4382C04099BC922319C521C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 791977   (711939) от 01.06.2014
-
-Ева Польна - Поёт любовь (2014) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я здесь (intro) - 02.36
-02. Выход - 04.36
-03. Слова - 03.45
-04. Молчание - 03.29
-05. Миражи - 04.28
-06. Не расставаясь - 03.10
-07. Корабли - 04.45
-08. Это не ты - 03.43
-09. Поёт любовь - 03.45
-10. На последнем дыхании - 03.55(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DB7EDDB4BB0039170A5F9C43EC120C83169A69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219711   (711835) от 15.04.2018
-
-Bobby Farrell - Boney M. I Successi (2001) CD [MP3|320 Kbps] <Electronic, Pop, Disco, Ballad>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Carnival Is Over (3:46)
-02. El Lute (4:06)
-03. Somewhere In The World (4:06)
-04. Where Did You Go (3:46)(   Читать дальше...   )Жанр: Electronic, Pop, Disco, BalladПродолжительность: 01:16:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A97D8854F279A4D550EFF65A90AE45EE3A36BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286593   (711339) от 03.03.2019
-
-VA - Best Of Hands Up & Dance Vol.6 (2019) [MP3|320 Kbps] <HandsUp, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Withard & Sonera - Don't Shoot The Messenger (Ti-Mo Remix) 5:16
-02. Clubface - Beautiful Mess (Alex Megane Newdance Remix) 4:51
-03. DJ Restlezz feat. Marry - Herz Voraus (Megastylez Remix) 5:09
-04. Astrak & Euphorizon - Together Against The Storm (DJ Restlezz vs. Tribune Remix) 4:44(   Читать дальше...   )Жанр: HandsUp, Electronic, DanceПродолжительность: 03:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAED92914E20C760D64ED3F22386CE733609F51A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401318   (711320) от 09.08.2020
-
-L.J. Johnson - L.J.'s Love Suite (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Destination Is Love (8:08)
-02. Gambling On Your Love (5:38)
-03. Your Magic Put A Spell On Me (5:46)
-04. 24 Hours A Day (5:47)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D603C386FC2F335D932087CFE69CD1A7E8F8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286551   (711318) от 03.03.2019
-
-Baciotti - Moody Blue Rendez-Vous (1978) LP [MP3|320 Kbps] <Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh So Bad (3:54)
-02. Monte-Carlo (3:22)
-02. Schoop (3:41)
-03. Tell Me (3:21)(   Читать дальше...   )Жанр: Pop Rock, DiscoПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303612B83C858590312880DE208FD14EE9494942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286595   (711303) от 03.03.2019
-
-VA - The Tropical House Of Rio De Janeiro (2019) [MP3|320 Kbps] <House, Indie Dance, Nu-Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D-Tex & Ned Rise - Sex, Drugs & Blasmusik (Bierzelt Version) 7:11
-02. Disco Lounge - I Don't Know (Original Mix) 3:45
-03. Habitat & Malte Kuhn - Smaragd (Original Mix) 5:10
-04. Tony Massera - Jus' Dance (Extended Version) 7:57(   Читать дальше...   )Жанр: House, Indie Dance, Nu-DiscoПродолжительность: 02:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E2321BED14E1B973F926A37EB3D39DF2D57A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286507   (711192) от 03.03.2019
-
-La Velle - Right Now (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Now (5:59)
-02. Black Silver Doll (3:51)
-03. Finally I'm Free (3:02)
-04. He's Alright (3:25)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DEA663AA5260F6336AA85783ADBB09B461E3997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286623   (711183) от 03.03.2019
-
-Kenny Rogers - Ruby Don't Take Your Love To Town (Unknown) Compilation [FLAC|Lossless|image + .cue] <Pop, World, Country>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Ruby Don't Take Your Love To Town
-2.	For The Good Times
-3.	A Stranger In My Place
-4.	Rueben James(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427446A97558438509E862F7F615CA0C50956269
 ```
 
 https://mybot314.ru/tekegram_catalog/

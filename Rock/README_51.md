@@ -1,3 +1,32 @@
+###  Публикация: 1564584   (499661) от 19.07.2022
+
+Carlotta Valdes - Praha (2022) [MP3|320 Kbps] <Prog-Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_499661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alussa(00:05:36)
+02 - Newly Bound(00:03:13)
+03 - La Grande Blance(00:05:22)
+04 - M(00:05:01)(   Читать дальше...   )Жанр: Prog-Metal, Progressive RockПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2105FD14155BE8F216FFF30200A1A2B603316A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564586   (499589) от 19.07.2022
 
 O.A.K. (Oscillazioni Alchemico Kreative) - Lucid Dreaming and the Spectre of Nikola Tesla (2022) [MP3|320 Kbps] <RPI, Progressive Rock>
@@ -6,7 +35,7 @@ O.A.K. (Oscillazioni Alchemico Kreative) - Lucid Dreaming and the Spectre of Nik
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499589.jpg" />
+  <img src="Z:/picture/008/save_picture_499589.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Yes - Yes 50 Live (2019) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499445.jpg" />
+  <img src="Z:/picture/008/save_picture_499445.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Creedence Clearwater Revival - Live at Woodstock (2019) [MP3|320 Kbps] <Rock, Co
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499378.jpg" />
+  <img src="Z:/picture/008/save_picture_499378.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Lowdrive - Roller (2018) [MP3|320 Kbps] <Heavy Stoner Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498593.jpg" />
+  <img src="Z:/picture/008/save_picture_498593.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Regressor - Crescent Spoon (2022) [MP3|320 Kbps] <Progressive Rock, Fusion>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498586.jpg" />
+  <img src="Z:/picture/008/save_picture_498586.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - New Psychedelic Sound - Les Genies Du Rock - LSD (1993) [MP3|320 кб/с]<G
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498506.jpg" />
+  <img src="Z:/picture/008/save_picture_498506.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Rock in Australia - Les Genies du Rock - Rock In Australia (1993) [MP3|320 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498459.jpg" />
+  <img src="Z:/picture/008/save_picture_498459.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Lou Rhodes - 3 альбома (2005-2010) [MP3|320]<folk rock,acoustic,folk>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498114.jpg" />
+  <img src="Z:/picture/008/save_picture_498114.jpg" />
 </div>
 
 
@@ -235,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497755.jpg" />
+  <img src="Z:/picture/008/save_picture_497755.jpg" />
 </div>
 
 
@@ -264,7 +293,7 @@ October Burns Black - Two Worlds Collide (2022) [MP3|320 Kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497727.jpg" />
+  <img src="Z:/picture/008/save_picture_497727.jpg" />
 </div>
 
 
@@ -293,7 +322,7 @@ Sihasin - 2 альбома (2012-2018) [MP3|192-320 Kbps] <Native american, Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496593.jpg" />
+  <img src="Z:/picture/008/save_picture_496593.jpg" />
 </div>
 
 
@@ -322,7 +351,7 @@ Don Ray Band - 3 albums (2009 - 2012) [MP3|320 кб/с]<Blues Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496218.jpg" />
+  <img src="Z:/picture/008/save_picture_496218.jpg" />
 </div>
 
 
@@ -348,7 +377,7 @@ Supasonic Fuzz - Without… (2017) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495007.jpg" />
+  <img src="Z:/picture/008/save_picture_495007.jpg" />
 </div>
 
 
@@ -377,7 +406,7 @@ Donkey Pilots - Serious Men (2017) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494985.jpg" />
+  <img src="Z:/picture/008/save_picture_494985.jpg" />
 </div>
 
 
@@ -406,7 +435,7 @@ Compass - Theory of Tides (2022) [MP3|320 Kbps] <Progressive Rock, Progressive M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494907.jpg" />
+  <img src="Z:/picture/008/save_picture_494907.jpg" />
 </div>
 
 
@@ -435,7 +464,7 @@ Jack White - Entering Heaven Alive (2022) [MP3|320 Kbps] <Blues Rock, Folk Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494906.jpg" />
+  <img src="Z:/picture/008/save_picture_494906.jpg" />
 </div>
 
 
@@ -464,7 +493,7 @@ Workout Music Tv - 40 Ultimate High Octane Tracks to Motivate the Lazy (2018) [M
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494691.jpg" />
+  <img src="Z:/picture/008/save_picture_494691.jpg" />
 </div>
 
 
@@ -493,7 +522,7 @@ Nebula - Transmission From Mothership Earth (2022) [MP3|320 Kbps] <Heavy Rock, S
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494661.jpg" />
+  <img src="Z:/picture/008/save_picture_494661.jpg" />
 </div>
 
 
@@ -522,7 +551,7 @@ God Is An Astronaut - Дискография (2002 - 2010) [MP3|320 kbps]<Post-R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494543.jpg" />
+  <img src="Z:/picture/008/save_picture_494543.jpg" />
 </div>
 
 
@@ -548,7 +577,7 @@ Abbi Walker - Feisty (2015) [MP3|320 кб/с]<Country Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494160.jpg" />
+  <img src="Z:/picture/008/save_picture_494160.jpg" />
 </div>
 
 
@@ -577,7 +606,7 @@ The Beatles - Ремастированная дискография (стере�
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494054.jpg" />
+  <img src="Z:/picture/008/save_picture_494054.jpg" />
 </div>
 
 
@@ -603,7 +632,7 @@ Sitting Bull - Trip Away (1971) Reissue, 2002, Long Hair [MP3|320 Kbps] <Rock, K
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493567.jpg" />
+  <img src="Z:/picture/008/save_picture_493567.jpg" />
 </div>
 
 
@@ -632,7 +661,7 @@ VA - Season Of The Witch (2011) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493040.jpg" />
+  <img src="Z:/picture/008/save_picture_493040.jpg" />
 </div>
 
 
@@ -661,7 +690,7 @@ The Goo Goo Dolls - Chaos In Bloom (2022) [MP3|320 Kbps] <Alternative Rock, Pop-
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492441.jpg" />
+  <img src="Z:/picture/008/save_picture_492441.jpg" />
 </div>
 
 
@@ -690,7 +719,7 @@ VA - Discover More Classic Rock (2020) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491177.jpg" />
+  <img src="Z:/picture/008/save_picture_491177.jpg" />
 </div>
 
 
@@ -704,35 +733,6 @@ VA - Discover More Classic Rock (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D49AFB547629F9D76009E2A43702A162FC26C10B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318861   (490679) от 08.08.2019
-
-Uriah Heep - Sweet Freedom (Live) (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Stars (Live)
-02. Sweet Freedom (Live)
-03. Gypsy (Live)
-04. Drum Solo (Live)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, RockПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F5B7E2C6C9AB86D566D1CA7AF14C4C77115D3AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

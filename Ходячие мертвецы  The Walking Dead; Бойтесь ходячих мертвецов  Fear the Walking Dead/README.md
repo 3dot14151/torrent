@@ -7,7 +7,7 @@ https://t.me/izofen
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024793.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024790.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1024651.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1023715.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022016.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021989.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_994585.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837514.jpg" />
+  <img src="Z:/picture/008/save_picture_837514.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836168.jpg" />
+  <img src="Z:/picture/008/save_picture_836168.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835772.jpg" />
+  <img src="Z:/picture/008/save_picture_835772.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812430.jpg" />
+  <img src="Z:/picture/008/save_picture_812430.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798959.jpg" />
+  <img src="Z:/picture/008/save_picture_798959.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798958.jpg" />
+  <img src="Z:/picture/008/save_picture_798958.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764075.jpg" />
+  <img src="Z:/picture/008/save_picture_764075.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707654.jpg" />
+  <img src="Z:/picture/008/save_picture_707654.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701999.jpg" />
+  <img src="Z:/picture/008/save_picture_701999.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700029.jpg" />
+  <img src="Z:/picture/008/save_picture_700029.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698146.jpg" />
+  <img src="Z:/picture/008/save_picture_698146.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670426.jpg" />
+  <img src="Z:/picture/008/save_picture_670426.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_662156.jpg" />
+  <img src="Z:/picture/005/save_picture_662156.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634810.jpg" />
+  <img src="Z:/picture/008/save_picture_634810.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634804.jpg" />
+  <img src="Z:/picture/008/save_picture_634804.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377906.jpg" />
+  <img src="Z:/picture/008/save_picture_377906.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_374767.jpg" />
+  <img src="Z:/picture/005/save_picture_374767.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365634.jpg" />
+  <img src="Z:/picture/008/save_picture_365634.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_246812.jpg" />
+  <img src="Z:/picture/004/save_picture_246812.jpg" />
 </div>
 
 

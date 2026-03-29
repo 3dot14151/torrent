@@ -1,3 +1,108 @@
+###  Публикация: 1653141   (215547) от 14.08.2023
+
+4K Stogram Pro for Mac 4.6.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215547.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 11.08.2023Разработчик: © 2022 OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0802ECB22E1AB6F5F317A49212400EC3069A9D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653063   (215539) от 14.08.2023
+
+Magic Battery 7.8.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Magic Battery показывает уровень заряда батареи поддерживаемых устройств ввода и наушников, подключенных через Bluetooth, в строке меню. Также поддерживаются внутренние батареи.
+Информация о батарее будет отображаться в строке меню и в главном окне.Тип издания: macOS SoftwareРелиз состоялся: 14.08.2023Разработчик: © 2017-2023 Sascha SimonПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA899CEB2BB515F187AEF76196D9BD74FE69DF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653049   (215525) от 14.08.2023
+
+OmniReader Pro for Mac 2.3.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215525.jpg" />
+</div>
+
+
+###  Подробнее
+
+OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 13.08.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B964FCCF12EC1532551C3D3FA60BA3A7CBB53E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653135   (215506) от 14.08.2023
+
+AYVY 1.21.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215506.jpg" />
+</div>
+
+
+###  Подробнее
+
+С AYVY вы, наконец, можете прекратить поиски красивой, простой, быстрой и удобной программы просмотра мультимедиа. Мы сделали все, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 02.10.2022Разработчик: © 2022-2023 Sergiy LavrykПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDEA51FB4B50E52C473AE7B10030D87BEAF86FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653183   (215407) от 14.08.2023
 
 Smooze Pro 2.0.60 [En]
@@ -6,7 +111,7 @@ Smooze Pro 2.0.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215407.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215407.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ Cardhop 2.2.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215352.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ Energiza Pro for Mac 1.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215302.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ ACDSee Photo Studio 5.0.1017 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215300.jpg" />
+  <img src="Z:/picture/005/save_picture_215300.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ Fig Player - play mp4 mkv mp3 for Mac 1.3.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215290.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215290.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ Live Wallpaper & Themes 4K Pro 17.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215252.jpg" />
 </div>
 
 
@@ -166,7 +271,7 @@ MenuBar Stats 3 v3.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215203.jpg" />
+  <img src="Z:/picture/005/save_picture_215203.jpg" />
 </div>
 
 
@@ -195,7 +300,7 @@ GarageSale 8 v8.0.7 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215189.jpg" />
+  <img src="Z:/picture/005/save_picture_215189.jpg" />
 </div>
 
 
@@ -221,7 +326,7 @@ Permute 3 v3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215180.jpg" />
+  <img src="Z:/picture/005/save_picture_215180.jpg" />
 </div>
 
 
@@ -247,7 +352,7 @@ AudioSwitcher 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215176.jpg" />
+  <img src="Z:/picture/005/save_picture_215176.jpg" />
 </div>
 
 
@@ -273,7 +378,7 @@ goPanel 2 v2.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215172.jpg" />
+  <img src="Z:/picture/005/save_picture_215172.jpg" />
 </div>
 
 
@@ -302,7 +407,7 @@ DaisyDisk 4.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215158.jpg" />
+  <img src="Z:/picture/005/save_picture_215158.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.1.1892 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215148.jpg" />
+  <img src="Z:/picture/005/save_picture_215148.jpg" />
 </div>
 
 
@@ -358,7 +463,7 @@ Hype 4 Pro v4.1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215126.jpg" />
+  <img src="Z:/picture/005/save_picture_215126.jpg" />
 </div>
 
 
@@ -384,7 +489,7 @@ Downie 3 3.9.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215123.jpg" />
+  <img src="Z:/picture/005/save_picture_215123.jpg" />
 </div>
 
 
@@ -410,7 +515,7 @@ Mellel 4 v4.2.5r1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215118.jpg" />
+  <img src="Z:/picture/005/save_picture_215118.jpg" />
 </div>
 
 
@@ -438,7 +543,7 @@ ExpanDrive 7 v7.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215111.jpg" />
+  <img src="Z:/picture/005/save_picture_215111.jpg" />
 </div>
 
 
@@ -466,7 +571,7 @@ NCH VideoPad Pro 8 v8.98 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215091.jpg" />
+  <img src="Z:/picture/005/save_picture_215091.jpg" />
 </div>
 
 
@@ -492,7 +597,7 @@ Mellel 5 v5.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215084.jpg" />
+  <img src="Z:/picture/005/save_picture_215084.jpg" />
 </div>
 
 
@@ -520,7 +625,7 @@ Devonthink Pro Office 3 v3.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215071.jpg" />
+  <img src="Z:/picture/005/save_picture_215071.jpg" />
 </div>
 
 
@@ -546,7 +651,7 @@ Super PhotoCut Pro 2.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214993.jpg" />
+  <img src="Z:/picture/005/save_picture_214993.jpg" />
 </div>
 
 
@@ -572,7 +677,7 @@ Sketch 70.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214884.jpg" />
+  <img src="Z:/picture/005/save_picture_214884.jpg" />
 </div>
 
 
@@ -584,117 +689,6 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8490B06DA5954D2F64C370DCA0F6E22BD1B28CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085458   (214851) от 21.12.2016
-
-Monodraw 1.1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощный художественный редактор ASCII
-ASCII (англ. American Standard Code for Information Interchange - американский стандартный код для обмена информацией) - представляет собой кодировку для представления десятичных цифр, латинского и национального алфавитов, знаков препинания и управляющих символов.
-
-Monodraw позволяет легко создавать изображения из текста (диаграммы, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 20 декабря 2016Разработчик: Helftone LtdПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2A70F5E572B76D11CCDB9FF6401DDEC983374B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243332   (214850) от 17.12.2018
-
-Hitman Снайпер / Hitman Sniper v2.1.33 [Ru/Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суть Hitman: Sniper заключается в том, что вы должны отстреливать различных противников со снайперской винтовки, засев при этом где-то на крыше. В игре будут учитываться не только баллы, но и самые креативные способы выполнения миссий, так что соревноваться в изобретательности можно будет с геймерами со всего мира.Тип издания: ЛицензияРелиз состоялся: октябрь 2014Разработчик: SQUARE ENIX LtdПоддерживаемая ОС: iOS 8.0 + Совместимо с iPhone, iPad и iPod touch.Жанр: ШутерЯзык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642F64E94736B060E816EE1B69EFDFD87F5EF915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085216   (214840) от 21.12.2016
-
-TokenLock 4.70 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональный класс Bluetooth / USB / HotKey Блокировка и разблокировка для вашего Mac ... с кучей опций.
-
-Если вы дорожите своей безопасностью, то должны постоянно думать не только о безопасных каналах и протоколах передачи данных, но и знать, что к включенному компьютеру никто, кроме вас, не имеет физического доступа. Если вы работаете за ноутбуком, то достаточно (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 декабря 2016Разработчик: Map-Pin SoftwareПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D59FD67A3CB930980B55C8D8240ACE9F3FBC60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426465   (214770) от 24.11.2020
-
-Wondershare UniConverter 12.5.0.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare UniConverter - это полный набор инструментов для работы с видео, который позволяет конвертировать, редактировать, улучшать, загружать, записывать, систематизировать, захватывать и просматривать видеофайлы. Конвертируйте видео практически в любой формат видео с 30-кратной скоростью преобразования.
-
-Самое быстрое универсальное решение для развлечений с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.11.2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F08C7CEF74586437116B3ADB185FF3FE06C280
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1832135   (213442) от 30.10.2025
+
+SooRin - Sure Thing (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213442.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD68A12C2B3D549089CEC156AE8EA891DDE30E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832132   (213441) от 30.10.2025
+
+Song HaYea - Why did you love me (2025) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: BalladПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6823238861F36C4BA400B95CB1D3FB12CE3E8ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832119   (213440) от 30.10.2025
+
+Winter (aespa) - Spark (2024) WEBRip [H.265/2160p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: КореяЖанр: KpopПродолжительность: 00:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D3185F76B2FE624335DDF3C2922EBD3C3DD464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1832098   (213439) от 30.10.2025
 
 aespa - Live Tour Synk Parallel Line in Tokyo Dome [Special Edition] (2025) [H.264/1080p] Blu-ray
@@ -6,7 +84,7 @@ aespa - Live Tour Synk Parallel Line in Tokyo Dome [Special Edition] (2025) [H.2
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_213439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_213439.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213351.jpg" />
+  <img src="Z:/picture/005/save_picture_213351.jpg" />
 </div>
 
 
@@ -61,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213176.jpg" />
+  <img src="Z:/picture/005/save_picture_213176.jpg" />
 </div>
 
 
@@ -90,7 +168,7 @@ Eminem & Snoop Dogg - From The D 2 The LBC (2022) WEB-DL [H.264/1080p] <Alternat
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212869.jpg" />
+  <img src="Z:/picture/005/save_picture_212869.jpg" />
 </div>
 
 
@@ -117,7 +195,7 @@ Bollywood: новогодний киноконцерт / Bollywood Mix Video (20
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210238.jpg" />
+  <img src="Z:/picture/005/save_picture_210238.jpg" />
 </div>
 
 
@@ -143,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208922.jpg" />
 </div>
 
 
@@ -169,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206830.jpg" />
+  <img src="Z:/picture/005/save_picture_206830.jpg" />
 </div>
 
 
@@ -198,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206409.jpg" />
+  <img src="Z:/picture/005/save_picture_206409.jpg" />
 </div>
 
 
@@ -227,7 +305,7 @@ Green Day - 21 Guns (2009) BDRip [H.264/1080p-LQ] [handmade Upscale]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_204977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_204977.jpg" />
 </div>
 
 
@@ -253,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201640.jpg" />
+  <img src="Z:/picture/005/save_picture_201640.jpg" />
 </div>
 
 
@@ -279,7 +357,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200255.jpg" />
+  <img src="Z:/picture/005/save_picture_200255.jpg" />
 </div>
 
 
@@ -305,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175293.jpg" />
 </div>
 
 
@@ -334,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_175268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_175268.jpg" />
 </div>
 
 
@@ -363,7 +441,7 @@ SHAMAN – «До самого неба» (2022) WEBRip [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173349.jpg" />
 </div>
 
 
@@ -390,7 +468,7 @@ NO/НЕТ – «Не со мной» (ЧАЙФ Cover) 2022 [H.264/1080p]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173177.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173177.jpg" />
 </div>
 
 
@@ -417,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169851.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169851.jpg" />
 </div>
 
 
@@ -446,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_169408.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_169408.jpg" />
 </div>
 
 
@@ -475,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165522.jpg" />
 </div>
 
 
@@ -501,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165491.jpg" />
 </div>
 
 
@@ -530,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_165059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_165059.jpg" />
 </div>
 
 
@@ -557,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_164283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_164283.jpg" />
 </div>
 
 
@@ -583,7 +661,7 @@ Lulu & the Luvvers - Shout (1964) TVRip [H.264/2160p] [Handmade Upscale AI]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160400.jpg" />
 </div>
 
 
@@ -609,7 +687,7 @@ IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_158901.jpg" />
 </div>
 
 
@@ -620,87 +698,6 @@ IVE – «I Want» (2023) WEB-DL [H.264/2160p] [4K, SDR]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:473B383D80024C899E65FB6028A8F56A5C0C7BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967254   (158448) от 21.12.2015
-
-ЛИГАЛАЙЗ - КАРАВАН (feat. Андрей Гризли, Ika & Art Force Crew) (2015) WEBRip[H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_158448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рэпер Лигалайз, который намерен выпустить первый альбом после десятилетнего перерыва, опубликовал  живописное новое видео «Караван», где главным образом манифестируется собственно его возвращение.Производство: Россия, StarProЖанр: Русский РэпРежиссер: Константин ЧерепковПродолжительность: 00:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4B828BE066F7F6483703CECD9D2FAA29E8915B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582985   (157545) от 13.12.2012
-
-Птаха aka Зануда - Видеография (2008-2011) WebRip, DvdRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rap, Hip-Hop
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CF88BE1FECBE7042DA4A3948B7450CB8FA9B65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588769   (157346) от 13.12.2012
-
-Top Of The Pops 70s (vol.2) (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_157346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slade - Mama Weer All Crazee Now 3:30
-02. Slade - My Baby Left Me (That's All Right) 2:21
-03. Smokey Robinson - Theme From Big Time 2:32
-04. Smokie - Needles And Pins 2:01(   Читать дальше...   )Жанр: Музыка, Rock, Glam RockПродолжительность: 01:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB9C2C05C2A11242E83CF6D0C19277ECFCA2DA79
 ```
 
 https://mybot314.ru/tekegram_catalog/

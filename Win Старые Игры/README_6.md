@@ -1,3 +1,55 @@
+###  Публикация: 1108358   (863792) от 24.02.2017
+
+X-COM: Enforcer (2001) [En] (1.0) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_863792.jpg" />
+</div>
+
+
+###  Подробнее
+
+X-COM – это сверхсекретное боевое подразделение Земли по борьбе с инопланетянами. Место: Америка, начало XXI века. Миссия: ликвидировать представителей внеземной цивилизации. Инопланетные войска вторглись на Землю и терроризируют население. Чтобы отразить зловещую угрозу, один из ученых X-COM создал боевую машину под названием Миротворец, воспользовавшись земными (   Читать дальше...   )Тип издания: LicenseРазработчик: Hasbro InteractiveЖанр: Action (Shooter), Arcade, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7C6F056E1AD9A6BDFFB9919B6AAF1CCC9AD438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108051   (863789) от 24.02.2017
+
+Hidden & Dangerous Anthology (2002-2005) [Ru/En] (1.51/1.12/1.50) License
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_863789.jpg" />
+</div>
+
+
+###  Подробнее
+
+На выбор представляется две кампании: за СССР и Германию. В кампании за СССР, необходимо сделать попытку вырвать из плотного окружения. В кампании за Германию, предстоит выполнить задачу – давшую название самому Expansion Pack. В игре, как уже стало обычным, представлено все достоверное Советское и Германское вооружение и техника тех времен.Тип издания: UnofficialРазработчик: Illusion SoftworksЖанр: Action (Tactical Shooter), Strategy (Tactical), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A790FCF611DA61BD6354165D30B70B182BBBE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108087   (863672) от 24.02.2017
 
 Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
@@ -6,7 +58,7 @@ Hidden & Dangerous 2: Sabre Squadron (2003-2004) [Multi] (1.12) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863672.jpg" />
+  <img src="Z:/picture/008/save_picture_863672.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Command & Conquer: Tiberian Sun + Tiberian Sun: Firestorm [Ru] (P) 1999 - 2000
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862677.jpg" />
+  <img src="Z:/picture/008/save_picture_862677.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Nelly Cootalot: The Fowl Fleet (2016) [En/Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862180.jpg" />
+  <img src="Z:/picture/008/save_picture_862180.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ X-COM: Interceptor (1998) [En] (1.2) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862024.jpg" />
+  <img src="Z:/picture/008/save_picture_862024.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Burn / Пекло (2007) [Ru] (1.0) License
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861963.jpg" />
+  <img src="Z:/picture/008/save_picture_861963.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ Soldier of Fortune: Payback (2007) [En] (1.1) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860902.jpg" />
+  <img src="Z:/picture/008/save_picture_860902.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860187.jpg" />
+  <img src="Z:/picture/008/save_picture_860187.jpg" />
 </div>
 
 
@@ -189,7 +241,7 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859352.jpg" />
+  <img src="Z:/picture/008/save_picture_859352.jpg" />
 </div>
 
 
@@ -215,7 +267,7 @@ Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858531.jpg" />
+  <img src="Z:/picture/008/save_picture_858531.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ Biped (2020) [Ru/Multi] (1.4) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856182.jpg" />
+  <img src="Z:/picture/008/save_picture_856182.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ Baldur's Gate: The Original Saga (1999) [Ru/En] (1.1.4315/1.3.5508/dlc) License 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851399.jpg" />
+  <img src="Z:/picture/008/save_picture_851399.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ Konung Dilogy / Князь Дилогия (1999-2003) [Ru/En] (1.3/1.05) License
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848226.jpg" />
+  <img src="Z:/picture/008/save_picture_848226.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ X-Com Classic Bundle (1994-2001) [En/Multi] (30.03.2016) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848216.jpg" />
+  <img src="Z:/picture/008/save_picture_848216.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ Ultima 9: Ascension (1999) [En] (1.00) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847941.jpg" />
+  <img src="Z:/picture/008/save_picture_847941.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ Gothic / Готика (2001) [Multi] (1.08j/1.08k) License PROPHET
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847761.jpg" />
+  <img src="Z:/picture/008/save_picture_847761.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ Legacy of Kain: Blood Omen 2 (2002) [Multi] (1.0.2hf) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847358.jpg" />
+  <img src="Z:/picture/008/save_picture_847358.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ S.T.A.L.K.E.R.: Shadow of Chernobyl / S.T.A.L.K.E.R.: Тень Чернобыл�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847262.jpg" />
+  <img src="Z:/picture/008/save_picture_847262.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ DX-Ball 2 [En] (L) 1998
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846126.jpg" />
+  <img src="Z:/picture/008/save_picture_846126.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ Castlevania: Lords of Shadow (2013) [Ru] (1.0.2.9upd2) Repack xatab [Ultimate Ed
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845614.jpg" />
+  <img src="Z:/picture/008/save_picture_845614.jpg" />
 </div>
 
 
@@ -501,7 +553,7 @@ Rally Trophy / Ралли Трофи (2001) [Ru] (1.01) License
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841169.jpg" />
+  <img src="Z:/picture/008/save_picture_841169.jpg" />
 </div>
 
 
@@ -527,7 +579,7 @@ Trine (2009) [Multi] (2.12(a)) License GOG [Enchanted Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840943.jpg" />
+  <img src="Z:/picture/008/save_picture_840943.jpg" />
 </div>
 
 
@@ -553,7 +605,7 @@ Blade of Darkness (2001) [Multi] (1.01) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837753.jpg" />
+  <img src="Z:/picture/008/save_picture_837753.jpg" />
 </div>
 
 
@@ -579,7 +631,7 @@ Overlord (2007) [Multi] (1.4/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835789.jpg" />
+  <img src="Z:/picture/008/save_picture_835789.jpg" />
 </div>
 
 
@@ -605,7 +657,7 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835614.jpg" />
+  <img src="Z:/picture/008/save_picture_835614.jpg" />
 </div>
 
 
@@ -616,58 +668,6 @@ Shogo: Mobile Armor Division / Ярость: Восстание на Крону�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2C06CFD0A0F2ECB52ABAECA75D70FF9E085D46E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114146   (834538) от 13.03.2017
-
-Battle Realms (2001) [Multi] (1.0/dlc) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кендзи, изгнанный наследник престола, вынужден бороться за трон Дракона. Действие происходит в безумном мире, погруженном в хаос бесконечными интригами кланов Змея, Волка и Лотоса. Решит ли наш герой покорить растерзанную землю, или же он сможет восстановить гибнущее царство и вернуть ему былую славу? Судьба ждет вас в Battle Realms. Узнайте, что привело к событиям, (   Читать дальше...   )Тип издания: LicenseРазработчик: Liquid Entertainment и Crave EntertainmentЖанр: Strategy (Real-time), 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1067E018080524C99B578EB992C1B790EDA698F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499254   (833099) от 11.10.2021
-
-Blood Omen: Legacy of Kain (1996) [En] (1.0hf) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из самых мрачных игр всех времён, отправляет игроков в эпическое путешествие по готической вселенной, наполненной убийствами, магией и местью. В этом умирающем мире был рождён Каин, аристократ, ничего ещё не подозревающей о своей судьбе. Когда Каин был молод, он отправился в путешествие по Нозготу. Вскоре он был убит бандой разбойников возле деревушки Зиегстурхл. (   Читать дальше...   )Тип издания: LicenseРазработчик: Silicon KnightsЖанр: RPG, Hack'n'slash, Action, AdventureЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A833AB2AA4103E096C900ADD438DC6A4D31AEAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

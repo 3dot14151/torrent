@@ -1,3 +1,61 @@
+###  Публикация: 1560670   (518794) от 01.07.2022
+
+The Warning - Error (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_518794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 404 [00:56]
+02. DISCIPLE [03:40]
+03. CHOKE [03:51]
+04. ANIMOSITY [04:06](   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:092261ED317A3E16D5B3B5807A01552C8A5B9B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241799   (518292) от 19.08.2018
+
+Johnny Gioeli - Deen Castronovo - Set The World On Fire (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_518292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set The World On Fire (3:31)
+ 02. Through (4:06)
+ 03. Who I Am (3:00)
+ 04. Fall Like An Angel (3:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A830232FBEFF07CCA4C0331313EE37C151FF09D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560864   (517793) от 02.07.2022
 
 Crashdiet - Automaton (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
@@ -6,7 +64,7 @@ Crashdiet - Automaton (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517793.jpg" />
+  <img src="Z:/picture/008/save_picture_517793.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Mad Dillon's Deputies - Still Unbreakable (2022) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516797.jpg" />
+  <img src="Z:/picture/008/save_picture_516797.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Led Zeppelin - Hard Zepp (2012) [FLAC|Lossless]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516525.jpg" />
+  <img src="Z:/picture/008/save_picture_516525.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Bon Jovi - Burning Bridges (2015) [FLAC|Lossless|WEB-DL]<Melodic Rock, Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516145.jpg" />
+  <img src="Z:/picture/008/save_picture_516145.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ The Vaticants - Eastern Sunset (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515720.jpg" />
+  <img src="Z:/picture/008/save_picture_515720.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Flatline Feedback - Scraps (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515650.jpg" />
+  <img src="Z:/picture/008/save_picture_515650.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Easy Action - That Makes One (1986) Reissue, Remastered, 2020, Aor Heaven [FLAC|
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515642.jpg" />
+  <img src="Z:/picture/008/save_picture_515642.jpg" />
 </div>
 
 
@@ -210,7 +268,7 @@ Devil's Train - Ashes & Bones (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515640.jpg" />
+  <img src="Z:/picture/008/save_picture_515640.jpg" />
 </div>
 
 
@@ -241,7 +299,7 @@ Sweet Pain - Swallow This (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515636.jpg" />
+  <img src="Z:/picture/008/save_picture_515636.jpg" />
 </div>
 
 
@@ -270,7 +328,7 @@ Judas Priest (1974 — 2005)
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515368.jpg" />
+  <img src="Z:/picture/008/save_picture_515368.jpg" />
 </div>
 
 
@@ -305,7 +363,7 @@ Bon Jovi - Burning Bridges (2015) [FLAC|image+.cue]<Melodic Rock, Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513876.jpg" />
+  <img src="Z:/picture/008/save_picture_513876.jpg" />
 </div>
 
 
@@ -334,7 +392,7 @@ VA - Stairways To The Songbook Of Led Zeppelin - Homage To The Legend (2015) [FL
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513871.jpg" />
+  <img src="Z:/picture/008/save_picture_513871.jpg" />
 </div>
 
 
@@ -363,7 +421,7 @@ Argent - 8 albums, 1 Box-set, 15CD (1969-2022) [FLAC|Lossless|image + .cue] <Cla
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512363.jpg" />
+  <img src="Z:/picture/008/save_picture_512363.jpg" />
 </div>
 
 
@@ -392,7 +450,7 @@ Serpents In Paradise - Temptation (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511541.jpg" />
+  <img src="Z:/picture/008/save_picture_511541.jpg" />
 </div>
 
 
@@ -421,7 +479,7 @@ Led Zeppelin - Studio Discography (1969-1982) 10 Remastered CD /2012, KronStudio
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508218.jpg" />
+  <img src="Z:/picture/008/save_picture_508218.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Drive At Night - Echoes Of An Era (2022) [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508067.jpg" />
+  <img src="Z:/picture/008/save_picture_508067.jpg" />
 </div>
 
 
@@ -476,7 +534,7 @@ Journey - Freedom (2022) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508061.jpg" />
+  <img src="Z:/picture/008/save_picture_508061.jpg" />
 </div>
 
 
@@ -506,7 +564,7 @@ Kiss The Vyper - Hope You Like It (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507230.jpg" />
+  <img src="Z:/picture/008/save_picture_507230.jpg" />
 </div>
 
 
@@ -535,7 +593,7 @@ Blue Goose - Blue Goose (1975) Japanese Edition, 2004, Air Mail Archive [FLAC|Lo
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506223.jpg" />
+  <img src="Z:/picture/008/save_picture_506223.jpg" />
 </div>
 
 
@@ -564,7 +622,7 @@ DIO - Tournado (2010) 3CD, Box Set, Limited Edition) [WavPack|Lossless]<Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503331.jpg" />
+  <img src="Z:/picture/008/save_picture_503331.jpg" />
 </div>
 
 
@@ -593,7 +651,7 @@ Taz Taylor Band - Nocturnal (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502711.jpg" />
+  <img src="Z:/picture/008/save_picture_502711.jpg" />
 </div>
 
 
@@ -622,7 +680,7 @@ VA - The Many Faces Of AC/DC (The Ultimate Tribute to AC/DC) (2012) [WavPack|Los
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500902.jpg" />
+  <img src="Z:/picture/008/save_picture_500902.jpg" />
 </div>
 
 
@@ -650,7 +708,7 @@ Wicked Sensation - Outbreak (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heav
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499592.jpg" />
+  <img src="Z:/picture/008/save_picture_499592.jpg" />
 </div>
 
 
@@ -679,7 +737,7 @@ Gillan - Toolbox (1991) [FLAC|tracks + .cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499466.jpg" />
+  <img src="Z:/picture/008/save_picture_499466.jpg" />
 </div>
 
 
@@ -693,64 +751,6 @@ Gillan - Toolbox (1991) [FLAC|tracks + .cue]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3589BFA02B26D93326BFB1EE84EFCA7E9708666D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565180   (496702) от 22.07.2022
-
-Dreamtide - Drama Dust Dream (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Being Deep
-02. Spin
-03. Around
-04. Ni Dos Ni Agua(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E04D27B5B0D61342BC62F895DB8C1F650FC22D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565164   (496701) от 22.07.2022
-
-Highway Sentinels - The Waiting Fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm A Loser
-02. Face In The Crowd
-03. Afterlife
-04. Love And Hate(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8503618B5A24AA45F700042E50A370893EB573E
 ```
 
 https://mybot314.ru/tekegram_catalog/

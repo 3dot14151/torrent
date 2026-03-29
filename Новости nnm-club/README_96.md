@@ -1,3 +1,113 @@
+###  Публикация: 1522355   (738290) от 24.01.2022
+
+sPlan 8.0 (DC 13.01.2022г) Portable by Lin1980 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738290.jpg" />
+</div>
+
+
+###  Подробнее
+
+sPlan - если Вам нужно программное обеспечение для быстрого и простого проектирования ваших схем? Тогда нет причин пройти мимо sPlan! Независимо от того, хотите ли вы просто набросать небольшую схему, или это более крупный проект, состоящий из множества отдельных листов.
+
+С новой версией sPlan 8.0 появилось множество новых и усовершенствованных функций, которые помогут (   Читать дальше...   )Язык интерфейса: русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0477DF35BCD940F624A06A5074D12551F01431E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313470   (738289) от 24.01.2022
+
+Пространство / Экспансия / The Expanse (2015-2020) BDRip, WEB-DLRip (сезон 1-6, серии 1-62 из 62) Alexfilm
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_738289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через двести лет от дня сегодняшнего некий сыщик, привыкший всё доводить до конца при любых обстоятельствах, в рамках расследования дела об исчезновении молодой женщины оказывается на борту звездолета, капитан которого решает помочь детективу в его непростом деле. Величайший заговор в истории человечества гарантируется, как и его непременное раскрытие.Производство: Канада, США / Alcon Entertainment, Sean Daniel CompanyЖанр: фантастика, триллер, драма, детективРежиссер: Брек Эйснер, Джефф Вулнаф, Терри МакДонафАктеры: Стивен Стрейт, Кэс Анвар, Доминик Типпер, Уэс Чэтэм, Шоре Агдашлу, Фрэнки Адамс, Томас Джейн, Шон Дойл, Флоренс Ванида Фэйвр, Чад Л. Коулмэн и др.Перевод: Многоголосый  закадровый, профессиональный - AlexfilmЯзык озвучки: РусскийСубтитры: русские, английскиеПродолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA6756814413D7E979D0C642CEF33A2AC6A9226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526546   (738000) от 25.01.2022
+
+Свежее обновление Windows 11 заставляет работать в браузере Edge и поисковике Bing
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_738000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Некоторое время назад Microsoft приступила к распространению очередного обновления для Windows 11. Оказалось, что помимо ряда исправлений установка патча изменяет некоторые настройки операционной системы, делая Edge и Bing браузером и поисковиком по умолчанию.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485008   (737975) от 25.01.2022
+
+Кар-Мэн - Вокруг Света (1990) со вставками Студия Gala [DSD2.0|11,28MHz/1bit|image+.cue|Tape-Rip] <Synth-Pop, Electro-Pop, Disco, Dance>
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_737975.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:04] 01. Кар-Мэн - Чио-Чио-Сан (с вставкой интро Gala)
+[4:20] 02. Кар-Мэн - Эй, ухнем
+[4:59] 03. Кар-Мэн - Дели (с вставкой интро Gala)
+[3:59] 04. Кар-Мэн - Знойный Истамбул(   Читать дальше...   )Жанр: Synth-Pop, Electro-Pop, Disco, DanceПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7413F89296E54E6986879705B0EEA1A1B01AC1E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526491   (737953) от 25.01.2022
 
 Снегурочка против всех (2021) WEBRip [H.264/1080p]
@@ -6,7 +116,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737953.jpg" />
+  <img src="Z:/picture/008/save_picture_737953.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737857.jpg" />
+  <img src="Z:/picture/008/save_picture_737857.jpg" />
 </div>
 
 
@@ -61,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737855.jpg" />
+  <img src="Z:/picture/008/save_picture_737855.jpg" />
 </div>
 
 
@@ -87,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737849.jpg" />
+  <img src="Z:/picture/008/save_picture_737849.jpg" />
 </div>
 
 
@@ -113,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737668.jpg" />
+  <img src="Z:/picture/008/save_picture_737668.jpg" />
 </div>
 
 
@@ -139,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737665.jpg" />
+  <img src="Z:/picture/008/save_picture_737665.jpg" />
 </div>
 
 
@@ -167,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737487.jpg" />
+  <img src="Z:/picture/008/save_picture_737487.jpg" />
 </div>
 
 
@@ -194,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736979.jpg" />
+  <img src="Z:/picture/008/save_picture_736979.jpg" />
 </div>
 
 
@@ -222,7 +332,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736977.jpg" />
+  <img src="Z:/picture/008/save_picture_736977.jpg" />
 </div>
 
 
@@ -248,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736456.jpg" />
+  <img src="Z:/picture/008/save_picture_736456.jpg" />
 </div>
 
 
@@ -274,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736455.jpg" />
+  <img src="Z:/picture/008/save_picture_736455.jpg" />
 </div>
 
 
@@ -302,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_736256.jpg" />
+  <img src="Z:/picture/005/save_picture_736256.jpg" />
 </div>
 
 
@@ -328,7 +438,7 @@ Serious Sam: Siberian Mayhem (2022) [Ru/Multi] (Build 610302) Repack Other s
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735752.jpg" />
+  <img src="Z:/picture/008/save_picture_735752.jpg" />
 </div>
 
 
@@ -354,7 +464,7 @@ Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (01.2022) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735275.jpg" />
+  <img src="Z:/picture/008/save_picture_735275.jpg" />
 </div>
 
 
@@ -380,7 +490,7 @@ Kaspersky Free 21.5.11.384 Repack by LcHNextGen (01.02.2022) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734822.jpg" />
+  <img src="Z:/picture/008/save_picture_734822.jpg" />
 </div>
 
 
@@ -406,7 +516,7 @@ Windows 8.1 (x86/x64) 40in1 +/- Office 2021 by Eagle123 (01.2022) [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734821.jpg" />
+  <img src="Z:/picture/008/save_picture_734821.jpg" />
 </div>
 
 
@@ -432,7 +542,7 @@ ACE COMBAT 7: SKIES UNKNOWN (2019) [Ru/Multi] (1.9.1.10/dlc) Repack Other s [Del
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734813.jpg" />
+  <img src="Z:/picture/008/save_picture_734813.jpg" />
 </div>
 
 
@@ -458,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734601.jpg" />
+  <img src="Z:/picture/005/save_picture_734601.jpg" />
 </div>
 
 
@@ -484,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734549.jpg" />
+  <img src="Z:/picture/008/save_picture_734549.jpg" />
 </div>
 
 
@@ -510,7 +620,7 @@ ESET NOD32 Antivirus 7.0.317.4 RePack by SmokieBlahBlah (x86/x64) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734488.jpg" />
+  <img src="Z:/picture/008/save_picture_734488.jpg" />
 </div>
 
 
@@ -536,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734486.jpg" />
+  <img src="Z:/picture/008/save_picture_734486.jpg" />
 </div>
 
 
@@ -562,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_734155.jpg" />
+  <img src="Z:/picture/005/save_picture_734155.jpg" />
 </div>
 
 
@@ -573,113 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528650   (733891) от 03.02.2022
-
-BELOFF 2022 (Авторская раздача)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Универсальный Сборник Программ, распределённых по категориям, с Автоматической Установкой в Операционные Системы Windows. В Сборник дополнительно добавлены Портативные Программы, которые можно будет легко использовать как с Диска и Виртуального Привода, так и с USB-накопителей, включая установку MInstAll и WPI, а также автоматическую установку драйверов с помощью (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A2A8EE3B1D3F669D63FC5ABCC69D43933854EC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787856   (733592) от 23.05.2014
-
-Windows XP SP3 WIM Edition by SmokieBlahBlah 18.05.14 [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная сборка является быстро устанавливающейся заливкой (~10-15 мин), в которую входят 2 редакции Windows XP SP3:
-1) только с .NET Framework 1.1-3.5, VC++ Runtimes, DirectX и RuntimePack
-2) с Office 2003, .NET Framework 1.1-3.5, VC++ Runtimes, DirectX и RuntimePack
-(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2636CBDC3727572D5254BBD7445A4A06D676E2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 762007   (733588) от 23.05.2014
-
-Американцы / The Americans  (2014) WEB-DLRip (Сезон 2, Серия 01-13 (13)) (NewStudio)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733588.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о сложном браке двух агентов КГБ, которые под видом американцев заселяются в пригород Вашингтона сразу после того, как президентом избирают Рейгана. Подставной брак Филлипа и Элизабет с каждым днем становится все более настоящим и эмоциональным, несмотря на эскалацию холодной войны и опасные отношения, которые они должны поддерживать с сетью шпионов и информаторов. (   Читать дальше...   )Жанр: Боевик, триллер, драма, криминалРежиссер: Адам Аркин, Гэвин О’Коннор, Томас ШламмиАктеры: Мэттью Риз, Кери Рассел, Аннет Махендру, Холли Тейлор, Роман Блат, Пол Джуд Летерски, Марми КосикоПеревод: Многоголосый закадровый, профессиональный (NewStudio)Продолжительность: ~00:47:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7A94821DB7F0766DE1F5619148FBC951B8BFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399412   (733248) от 31.07.2020
-
-ABBYY FineReader PDF 15.0.113.3886 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря внутренним разработкам ABBYY в области искусственного интеллекта и современных методов машинного обучения, новый ABBYY FineReader 15 превратился в многофункциональный редактор для решения любых задач с PDF и бумажными документами. Программа позволяет офисным сотрудникам работать с PDF и сканами так же просто и удобно, как с привычными всем текстовыми документами (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F4492177ACBA93A368EDBAFD53D7A4535A04C94
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Princess - 5 albums (2002-2008) [MP3|320 кб/с]<Classical crossover, Violin>
 >>В обработке/Classical Crossover/Neoclassical
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403387.jpg" />
+  <img src="Z:/picture/008/save_picture_403387.jpg" />
 </div>
 
 
@@ -41,7 +41,7 @@ VA - Kopfbezogene Stereophonie "Klassik 1" (1988) 2 Binaural CD[FLAC|Lossless]<C
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402791.jpg" />
+  <img src="Z:/picture/008/save_picture_402791.jpg" />
 </div>
 
 
@@ -77,7 +77,7 @@ J.S. Bach - Goldberg Variations BWW 988 on organ (Elena Barshai) (2007) [FLAC|Lo
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402745.jpg" />
+  <img src="Z:/picture/008/save_picture_402745.jpg" />
 </div>
 
 
@@ -103,7 +103,7 @@ Mozart, Beethoven, Schumann, Schubert, Grieg - Piano Concertos: Svjatoslav Richt
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400789.jpg" />
+  <img src="Z:/picture/008/save_picture_400789.jpg" />
 </div>
 
 
@@ -132,7 +132,7 @@ Giuseppe Verdi - La Forza del destino (1986) 3CD [FLAC|Lossless]<Classical, Roma
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394862.jpg" />
+  <img src="Z:/picture/008/save_picture_394862.jpg" />
 </div>
 
 
@@ -160,7 +160,7 @@ Lindsey Stirling - Lindsey Stirling (Target Exclusive Deluxe Edition) (2013) [FL
 >>В обработке/Classical Crossover/Neoclassical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391525.jpg" />
+  <img src="Z:/picture/008/save_picture_391525.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391505.jpg" />
+  <img src="Z:/picture/008/save_picture_391505.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Wolfgang Amadeus Mozart - Mitridate  (Christophe Rousset & Les Talens Lyriques) 
 >>Вокал (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389249.jpg" />
+  <img src="Z:/picture/008/save_picture_389249.jpg" />
 </div>
 
 
@@ -252,7 +252,7 @@ Hardy Rittner - Brahms - Early Piano Works Vol.2 (2008) [DST 5.1, 2.0 1bit/2822,
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387639.jpg" />
+  <img src="Z:/picture/008/save_picture_387639.jpg" />
 </div>
 
 
@@ -287,7 +287,7 @@ Csaba/Heisser - Johannes Brahms – The Violin Sonatas (2004) [DST 5.0, 2.0 1bit
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387631.jpg" />
+  <img src="Z:/picture/008/save_picture_387631.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Berliner Barock Solisten / Thomas Quasthoff - J.S. Bach - Kantaten BWV 56, 158 &
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387626.jpg" />
+  <img src="Z:/picture/008/save_picture_387626.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Bach Collegium Japan / Masaaki Suzuki - J.S. Bach - Cantatas Vol. 34 (2007) [DST
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387618.jpg" />
+  <img src="Z:/picture/008/save_picture_387618.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ Gerd Zacher - Mendelssohn, Brahms: Organ Works (2006) 2 SACD [DST 5.1, 2.0 1bit/
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387616.jpg" />
+  <img src="Z:/picture/008/save_picture_387616.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ Bach Collegium Japan / Masaaki Suzuki - J.S. Bach - Cantatas Vol. 43 (2008) [DST
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387494.jpg" />
+  <img src="Z:/picture/008/save_picture_387494.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Martin Schmeding - Brahms - Organ Works (2007) [DST 5.1, 2.0 1bit/2822,4kHz |SAC
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387484.jpg" />
+  <img src="Z:/picture/008/save_picture_387484.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Anne Horsch - Brahms - Organ Works (2008) [DST 5.0, 2.0 1bit/2822,4kHz |SACD-R]<
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387337.jpg" />
+  <img src="Z:/picture/008/save_picture_387337.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Virgil Fox - The Bach Gamut: Live in San Fracisco 1976 (2006) [FLAC|Lossless|ima
 >>Концерты (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387287.jpg" />
+  <img src="Z:/picture/008/save_picture_387287.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ Scottish Chamber Orchestra - Brahms – Violin Concerto & Hungarian Dances (2004
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387214.jpg" />
+  <img src="Z:/picture/008/save_picture_387214.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387208.jpg" />
+  <img src="Z:/picture/008/save_picture_387208.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Julia Fischer - J.S. Bach - Sonatas And Partitas For Solo Violin BWV 1001-1006 (
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387205.jpg" />
+  <img src="Z:/picture/008/save_picture_387205.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Wuerttembergische Philharmonie Reutlingen, Jascha Heifetz - Bach, Mozart, Brahms
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387201.jpg" />
+  <img src="Z:/picture/008/save_picture_387201.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Academy Of Ancient Music / Richard Egarr - J.S. Bach - The Six Brandenburg Conce
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387199.jpg" />
+  <img src="Z:/picture/008/save_picture_387199.jpg" />
 </div>
 
 
@@ -708,7 +708,7 @@ Stockholm Baroque Orchestra / Maria Lindal - Dancing Bach (2006) [DST 5.0, 2.0 1
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387194.jpg" />
+  <img src="Z:/picture/008/save_picture_387194.jpg" />
 </div>
 
 
@@ -743,7 +743,7 @@ Brecon Baroque, Rachel Podger - J.S. Bach - Violin Concertos (2010) [DST 5.0, 2.
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387068.jpg" />
+  <img src="Z:/picture/008/save_picture_387068.jpg" />
 </div>
 
 
@@ -778,7 +778,7 @@ Knud Vad - J.S. Bach: Complete Organ Works (2005) Box Set 18SACD [DST 5.1, 2.0|1
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386772.jpg" />
+  <img src="Z:/picture/008/save_picture_386772.jpg" />
 </div>
 
 
@@ -807,7 +807,7 @@ J.S.Bach - Ouvertures (The 4 Orchestral Suites) (Bach Collegium Japan, Masaaki S
 >>Классика (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386482.jpg" />
+  <img src="Z:/picture/008/save_picture_386482.jpg" />
 </div>
 
 

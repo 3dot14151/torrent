@@ -1,3 +1,161 @@
+###  Публикация: 443711   (73144) от 30.01.2012
+
+Заражение / Contagion (2011) BDRip [H.264] [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международная организация врачей совместно с Центром по контролю и профилактике заболеваний США пытается помешать распространению смертельного вируса.Производство: Warner Bros. Pictures, США — ОАЭЖанр: Триллер, ДрамаРежиссер: Стивен СодербергАктеры: Мэтт Дэймон, Марион Котийяр, Джуд Лоу, Гвинет Пэлтроу, Кейт Уинслет, Дженнифер Эль, Лоренс Фишбёрн, Брайан Крэнстон, Джон Хоукс, Санаа ЛэтэнПеревод: Профессиональный (полное дублирование)Субтитры: Русские (полные, форсированные), АнглийскиеПродолжительность: 01:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995D0B5DCDA901248009EE661C2BE7A18A112260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 444070   (73143) от 30.01.2012
+
+NNM-Club в социальных сетях - присоединяйтесь!
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_73143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дорогие друзья.Наш клуб стал не просто большим, а очень большим - и во многом благодаря нашим совместным усилиям, ведь клуб - это мы, а не мы и пользователи. Хотя у нас разные жизни и живём мы порой достаточно далеко друг от друга, но нас связывает уже не один год общее для всех нас - это наш "виртуальный дом", куда каждый заходит в поисках новостей, новинок или просто выговориться.
+(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803658   (65802) от 25.06.2025
+
+Очередное достижение: 1000 релизов от kulemin
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное  достижение: 1000 релизов от kuleminУважаемые одноклубники!Дорогие друзья! Мы отмечаем первое, и очень важное достижение Пользователя. Накануне наш Одноклубник, релизёр литературы (в основном презентации аудиокниг) создал 1000-ю раздачу. Преодолев этот рубеж - он не останавливается, и начинает вторую тысячу. Это довольно весомый вклад в развитие трекера (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 10080   (64451) от 26.01.2012
+
+Владимир Высоцкий  "Сборник Века: Полное собрание сочинений" (DVD 4.3 GB)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Описание: Сборник имеет удобную навигацию и оболочку, содержит фотографии, полное собрание песен (с текстами) и биографию исполнителя. Так же в сборник вошли ремастированные версии песен.
+Диск содержитЖанр: Хорошая музыкаПродолжительность: 16 : 40 : 00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821531   (63880) от 03.10.2025
+
+Очередное достижение: 2000 релизов от ярусс
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередное  достижение: 2000 релизов от яруссУважаемые одноклубники!Дорогие друзья! Мы отмечаем очередное, важное достижение Пользователя. Накануне наш Одноклубник, известный Пользователям в основном как релизёр литературы (презентации аудиокниг) а также видеофильмов - оказался на пороге создания 2050-й раздачи! Преодолев рубеж  в 2000 презентаций - он не останавливается, (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687349   (63779) от 07.03.2024
+
+Матрица / The Matrix (1999) HybridRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь Томаса Андерсона разделена на две части: днём он — самый обычный офисный работник, получающий нагоняи от начальства, а ночью превращается в хакера по имени Нео, и нет места в сети, куда он не смог бы дотянуться. Но однажды всё меняется — герой, сам того не желая, узнаёт страшную правду: всё, что его окружает — не более, чем иллюзия, Матрица, а люди — всего (   Читать дальше...   )Производство: США / Warner Bros., Village Roadshow Pictures, Groucho Film PartnershipЖанр: фантастика, боевикРежиссер: Лана Вачовски, Лилли ВачовскиАктеры: Киану Ривз, Лоуренс Фишборн, Кэрри-Энн Мосс, Хьюго Уивинг, Глория Фостер, Джо Пантолиано, Маркус Чонг, Пол Годдард, Роберт Тэйлор, Джулиэн АрахангаПеревод: Дублированный (Kinoton)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D679AE58856ABC93007E0A6DF22FA0E0BD98E6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491119   (63770) от 07.03.2024
 
 Gumroad, Pierrick Picaut | Alive! Animation course in Blender 2.9 [Chapters 1-9] [Low Quality] (2022) PCRec [EN, RU / EN, RU Sub]
@@ -6,7 +164,7 @@ Gumroad, Pierrick Picaut | Alive! Animation course in Blender 2.9 [Chapters 1-9]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63770.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63770.jpg" />
 </div>
 
 
@@ -33,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63665.jpg" />
 </div>
 
 
@@ -59,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63572.jpg" />
 </div>
 
 
@@ -85,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63464.jpg" />
 </div>
 
 
@@ -111,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63460.jpg" />
 </div>
 
 
@@ -137,7 +295,7 @@ CorelDRAW Graphics Suite 2024 25.0.0.230 (x64) RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63454.jpg" />
 </div>
 
 
@@ -163,7 +321,7 @@ NASA показало послание к внеземному разуму, к�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63361.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63361.jpg" />
 </div>
 
 
@@ -189,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63254.jpg" />
 </div>
 
 
@@ -215,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63249.jpg" />
 </div>
 
 
@@ -241,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63157.jpg" />
 </div>
 
 
@@ -267,7 +425,7 @@ Windows 10 x64 Rus by OneSmiLe [19045.4170]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63148.jpg" />
 </div>
 
 
@@ -296,7 +454,7 @@ XCOM 2: Long War of the Chosen (2021) [Ru/Multi] (1.1.0 HF3) Repack/Mod firstlas
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63142.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63142.jpg" />
 </div>
 
 
@@ -322,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63141.jpg" />
 </div>
 
 
@@ -348,7 +506,7 @@ Microsoft Office 2021 for Mac LTSC v.16.83 VL [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63139.jpg" />
 </div>
 
 
@@ -376,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63039.jpg" />
 </div>
 
 
@@ -403,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63010.jpg" />
 </div>
 
 
@@ -431,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62824.jpg" />
 </div>
 
 
@@ -457,7 +615,7 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.0) Repack FitGirl
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62726.jpg" />
 </div>
 
 
@@ -483,7 +641,7 @@ MInstAll v.10.03.2024 By Andreyonohov (Unpacked) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62722.jpg" />
 </div>
 
 
@@ -509,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62624.jpg" />
 </div>
 
 
@@ -521,162 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11C809D58481E54D803EC1DA7E2F86872821B1E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424526   (62618) от 18.03.2024
-
-Перевал Дятлова (2020) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-8 из 8 + Фильм о сериале)
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима 1959 года. Уральские горы. Группа из девяти студентов под руководством Игоря Дятлова отправилась в поход к заснеженным вершинам. Из этого путешествия живым не вернулся никто. Что произошло с туристами? Погибли под снежной лавиной, были убиты местными жителями или беглыми заключенными? Или же их смерть вызвана встречей со сверхъестественным? Это предстоит выяснить (   Читать дальше...   )Производство: Россия / 1 2 3 ПродакшнЖанр: триллер, детективРежиссер: Валерий Федорович, Евгений Никишов, Павел КостомаровАктеры: Пётр Фёдоров, Мария Луговая, Андрей Добровольский, Иван Мулин, Александр Метелкин, Маша Мацель, Ирина Лукина, Максим Емельянов, Егор Бероев, Евгений Антропов и др.Продолжительность: ~00:57:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DA1890F0ADBF8D31CA97695499D3F3E471B7B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707473   (62594) от 18.03.2024
-
-VLC преодолел рубеж в 5 миллиардов загрузок. Разработка VLC 4.0
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект VideoLAN преодолел рубеж в пять миллиардов загрузок видеоплеера VLC, зафиксированных системой сбора статистики, работающей на серверах проекта с февраля 2005 года. Около 4.4 миллиардов загрузок приходится на сборку VLC для платформы Windows, 369 млн - macOS, 245 млн - Android, 71 млн - iOS и 6.7 млн на архив с исходными текстами.Опубликованные данные не учитывают (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707108   (62509) от 19.03.2024
-
-Дева и дракон / Damsel (2024) WEB-DL [H.264/1080p] [MVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62509.jpg" />
-</div>
-
-
-###  Подробнее
-
-Принцессу Элоди из страдающей от неурожаев страны выдают за принца процветающего королевства. Девушка рада спасти свой народ от голода, и жених ей кажется вполне симпатичным, но она даже не подозревает, что ей уготовано место не в спальне принца в качестве законной супруги, а в пасти дракона в качестве ритуальной жертвы.Производство: США, PCMA Productions, Roth/Kirschenbaum FilmsЖанр: фэнтези, боевикРежиссер: Хуан Карлос ФреснадильоАктеры: Милли Бобби Браун, Шохре Агдашлу, Рэй Уинстон, Анджела Бассетт, Брук Картер, Ник Робинсон, Робин Райт, Мило Твоми, Николь Джозеф, Патрис НайамбанаПеревод: Профессиональный многоголосый (Jaskier, LostFilm, TVShows, Red Head Sound, Voice Project Studio), Профессиональный двухголосый (ViruseProject)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (SDH), французские, немецкие, иврит, итальянские, португальские, румынские, испанские, украинские (Forced, Full)Продолжительность: 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45AA8080172EF6B63A70BAB1F2FE2D75EC70F8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707847   (62504) от 19.03.2024
-
-Компания «Протон-ПМ» за год увеличила производство ракетных двигателей на 25%
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62504.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Перми прошло совещание по итогам работы АО «Протон-ПМ» (входит в «НПО Энергомаш» госкорпорации «Роскосмос») в 2023 году и планах на 2024 год, сообщает пресс-служба Правительства Пермского края. Заявлено, что по итогам прошлого года объёмы изготовления ракетных двигателей превысили результаты 2022 года на 25%.В прошлом году «Протон-ПМ» продолжил создавать новые (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708529   (62302) от 21.03.2024
-
-Мастер и Маргарита (2023) WEBRip [H.264]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62302.jpg" />
-</div>
-
-
-###  Подробнее
-
-Москва, 1930-е годы. Известный писатель на взлёте своей карьеры внезапно оказывается в центре литературного скандала. Спектакль по его пьесе снимают с репертуара, коллеги демонстративно избегают встречи, в считанные дни он превращается в изгоя. Вскоре после этого, он знакомится с Маргаритой, которая становится его возлюбленной и музой. Воодушевлённый ее любовью и (   Читать дальше...   )Производство: Россия / АМЕДИА, Профит, Марс Медиа ЭнтертейнментЖанр: драма, фэнтезиРежиссер: Михаил ЛокшинАктеры: Аугуст Диль, Юлия Снигирь, Евгений Цыганов, Клас Банг, Юрий Колокольников, Алексей Гуськов, Кеша, Юра Борисов, Алексей Розин, Данил СтекловПеревод: Отсутствует (русский)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797C6A66CCE83DBA29978FA18B45D64EEFC1574B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694953   (62300) от 21.03.2024
-
-Властелины воздуха / Masters of the Air (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-9 из 9) HDRezka, LostFilm, TVShows, Red Head Sound, Сербин
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал основан на документальном романе Дональда Л. Миллера, рассказывающем о воздушных боях Второй мировой войны глазами британских и американских военных летчиков. В пяти милях над землей и глубоко в тылу врага одиннадцать человек внутри бомбардировщика, известного как "Летающая крепость", сражаются за свою жизнь с полчищами вражеских немецких истребителей. (   Читать дальше...   )Производство: США / Amblin Television, Apple Studios, Parliament of Owls, PlaytoneЖанр: военный, боевик, историяРежиссер: Кэри Дзёдзи Фукунага, Анна Боден, Райан ФлекАктеры: Каллум Тернер, Энтони Бойл, Остин Батлер, Дарра Коули, Мэтт Гэвэн, Джонас Мур, Дэвид Шилдс, Бен Рэдклифф, Джордан Колсон, Стивен Кэмпбелл МурПеревод: Многоголосый профессиональный (HDRezka Studio, LostFilm, TVShows, Red Head Sound), Авторский (Ю.Сербин)Язык озвучки: русский, английскийСубтитры: Русские (Forced, Full), Украинские, Английские (Full, SDH), ИвритПродолжительность: ~01:00:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE737FD7F0354FA46A2D376B85AD2FD4214FE0AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

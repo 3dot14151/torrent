@@ -1,3 +1,160 @@
+###  Публикация: 946492   (424241) от 14.10.2015
+
+Ягодкин Николай | Стань гением (2015) DVDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_424241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский курс Николая Ягодкина по развитию навыков запоминания, самообучения и работы с большими объемами
+информации.Жанр: Саморазвитие, память, обучениеПродолжительность: 33:02:65
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F4F129537108BE59B656FFF7DACE0BA3F6629C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946494   (424240) от 14.10.2015
+
+Антураж / Entourage (2015) BDRip [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_424240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звезда кино Винс Чейз и его друзья бросают вызов капризному и зачастую жестокому миру Голливуда.Производство: США / Closest to the Hole Productions, Entourage Holdings, Home Box Office (HBO)Жанр: комедияРежиссер: Даг ЭллинАктеры: Кевин Коннолли, Эдриан Гренье, Кевин Диллон, Джерри Феррара, Джереми Пивен, Эммануэль Шрики, Перри Ривз, Рекс Ли, Деби Мейзар, Риз Койро, Марк Уолберг, Майк Тайсон, Тьерри Анри, Билли Боб Торнтон, Ронда РаузиПеревод: Профессиональный (полное дублирование) (Лицензия BD CEE)Язык субтитров: русский (полные + форс.), украинский (полные + форс.), английский (Full + SDH + SDH-Colored)Продолжительность: 01:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27EA6251973FB47F304DD31A30E8AD292CCE90BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946727   (424236) от 14.10.2015
+
+Minecraft: Story Mode Episode 1: The Order of the Stone (2015) [Ru/En] (1.0) License RELOADED
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_424236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Minecraft: Story Mode предлагает отправиться в популярный мир, но уже в виде сюжетного приключения. Проект является не аддоном, а отдельной игрой, где сюжет, как и в других играх Telltale Games, развивается в зависимости от принимаемых игроком решений. Сюжет Minecraft: Story Mode, как сейчас принято, поделен на пять эпизодов, составляющих первый сезон.Тип издания: ЛицензияРазработчик: Mojang и Telltale GamesЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90960B164460193D71285AAD2AB1E6147D356F6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946823   (424234) от 14.10.2015
+
+Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4266.1001 VL (x86) RePack by SPecialiST v15.10 [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_424234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2016 хорошо демонстрирует, как сегодня изменился сам подход к созданию документов и совместной работе с ними. Многие из нас начинают работу на одном компьютере, продолжают её на другом, а демонстрируют на третьем, попутно успевая вносить мелкие правки за ноутбуком, на планшете или даже смартфоне. Поэтому Office 2016 постарались сделать концептуально (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FCB4AB4D0C21DAA1AADF7D77A352079560BA54B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064797   (423350) от 21.10.2016
+
+Ученые выяснили, что количество галактик в нашей Вселенной в 10-20 раз больше, чем было принято считать ранее
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_423350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно результатам последних исследований, количество галактик в доступной для изучения области нашей Вселенной составляет порядка 2 триллионов. И это в 10-20 раз больше, нежели было принято считать ранее. Подавляющее большинство недостающих членов галактического "населения" Вселенной приходится на малые и тусклые скопления звезд, которые сформировались (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 831005   (423317) от 13.10.2014
+
+Profileschool | Калибровка монитора от А до Я (2014) PCRec
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_423317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда время, потраченное на редактирование и пост-обработку фотографий, оказывается потраченным впустую. Например, если монитор некорректно воспроизводит тени и света, мы получаем заведомо искаженные отпечатки, которыми не можем быть удовлетворены сами, или нелестные отзывы от заказчика, чей монитор настроен иначе. В последнем случае важно оказаться правым и иметь (   Читать дальше...   )Жанр: Калибровка монитораПродолжительность: 01:42:50+01:31:23+04:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751EDAD7D7DA1E84D85367A3FEB01F32D43D464B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1166466   (423248) от 17.09.2017
 
 Windows 10 Enterprise 2016 LTSB x64 Release by StartSoft 51-2017 [Multi-Ru]
@@ -6,7 +163,7 @@ Windows 10 Enterprise 2016 LTSB x64 Release by StartSoft 51-2017 [Multi-Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423248.jpg" />
+  <img src="Z:/picture/008/save_picture_423248.jpg" />
 </div>
 
 
@@ -32,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423243.jpg" />
+  <img src="Z:/picture/008/save_picture_423243.jpg" />
 </div>
 
 
@@ -58,7 +215,7 @@ NVIDIA GeForce Desktop 375.57 WHQL + For Notebooks [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423070.jpg" />
+  <img src="Z:/picture/008/save_picture_423070.jpg" />
 </div>
 
 
@@ -84,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423023.jpg" />
+  <img src="Z:/picture/008/save_picture_423023.jpg" />
 </div>
 
 
@@ -110,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_422929.jpg" />
+  <img src="Z:/picture/005/save_picture_422929.jpg" />
 </div>
 
 
@@ -138,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_422924.jpg" />
+  <img src="Z:/picture/005/save_picture_422924.jpg" />
 </div>
 
 
@@ -164,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422816.jpg" />
+  <img src="Z:/picture/008/save_picture_422816.jpg" />
 </div>
 
 
@@ -190,7 +347,7 @@ Stellaris (2016) [Ru/Multi] (1.3/dlc) License CODEX [Galaxy Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422807.jpg" />
+  <img src="Z:/picture/008/save_picture_422807.jpg" />
 </div>
 
 
@@ -216,7 +373,7 @@ VideoHive - RTFX Generator [1000 FX elements] - 19563523 [AEP]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422781.jpg" />
+  <img src="Z:/picture/008/save_picture_422781.jpg" />
 </div>
 
 
@@ -242,7 +399,7 @@ GreedFall (2019) [Ru/Multi] (1.0/dlc) License HOODLUM
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422778.jpg" />
+  <img src="Z:/picture/008/save_picture_422778.jpg" />
 </div>
 
 
@@ -268,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_422577.jpg" />
+  <img src="Z:/picture/005/save_picture_422577.jpg" />
 </div>
 
 
@@ -294,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422296.jpg" />
+  <img src="Z:/picture/008/save_picture_422296.jpg" />
 </div>
 
 
@@ -320,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_422239.jpg" />
+  <img src="Z:/picture/005/save_picture_422239.jpg" />
 </div>
 
 
@@ -348,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421971.jpg" />
+  <img src="Z:/picture/008/save_picture_421971.jpg" />
 </div>
 
 
@@ -374,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421866.jpg" />
+  <img src="Z:/picture/005/save_picture_421866.jpg" />
 </div>
 
 
@@ -400,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_420837.jpg" />
+  <img src="Z:/picture/005/save_picture_420837.jpg" />
 </div>
 
 
@@ -426,7 +583,7 @@ XCOM Enemy Unknown [Xbox 360] [ENG] [Region Free] [LT 3.0/XGD3/14719] (2012)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420619.jpg" />
+  <img src="Z:/picture/008/save_picture_420619.jpg" />
 </div>
 
 
@@ -456,7 +613,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru/En] (RePack) 2012 | R.G
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420584.jpg" />
+  <img src="Z:/picture/008/save_picture_420584.jpg" />
 </div>
 
 
@@ -483,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_420517.jpg" />
+  <img src="Z:/picture/005/save_picture_420517.jpg" />
 </div>
 
 
@@ -509,7 +666,7 @@ BELOFF 2016.10 [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420350.jpg" />
+  <img src="Z:/picture/008/save_picture_420350.jpg" />
 </div>
 
 
@@ -520,162 +677,6 @@ BELOFF 2016.10 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E41FD701BA336F9C62CDFC102161D1BA965CCC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065209   (420338) от 22.10.2016
-
-Полный расколбас / Sausage Party (2016) BDRip [H.264/1080p-LQ] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая анимационная комедия для взрослых о невероятных приключениях еды из супермаркета. Съедобным друзьям предстоит получить ответ на главный вопрос: есть ли жизнь за стенами супермаркета и что же происходит с продуктами после того, как они попадают к людям домой..?Производство: США | Columbia Pictures, Annapurna Pictures, Nitrogen Studios Canada, Point Grey PicturesЖанр: Комедия, Приключения, Для врозлыхРежиссер: Грег Тирнан, Конрад ВернонАктеры: Пётр Иващенко, Татьяна Шитова, Сергей Смирнов, Антон Колесников, Александр Коврижных, Анатолий Пашнин, Анна Киселева, Артем Маликов, Василий Стоноженко, Дарья Новосельцева, Михаил Белякович, Екатерина Виноградова, Сергей Чихачев...Перевод: Дублированный (Чистый звук), Любительский двухголосыйЯзык субтитров: АнглийскиеПродолжительность: 01:28:30Реклама: Без рекламы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66C599EC2418EF8595738FE7566349E43B2F4AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713174   (420337) от 22.10.2016
-
-tinyCam Monitor PRO v7.1.1 [Ru/Multi] - Мобильное видеонаблюдение
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одно из лучших приложений под Android для удаленного видеонаблюдения, управления и записи изображений с сетевых/IP камер, видеосерверов и цифровых видеорегистраторов с CCTV камерами. Мониторьте вашего ребенка, домашних животных, дом, бизнес, трафик и погоду удаленно и безопасно (данные не пересылаются третьим лицам). Рекомендуемое приложение для Google TV. Смотрите (   Читать дальше...   )Тип издания: Пиратка (NO LP or GP Modded needed | Drive backup works!)Релиз состоялся: 21.10.2016Разработчик: Tiny Solutions LLCПоддерживаемая ОС: Android 1.6 +Язык интерфейса: Мульти / Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A404E9BD6A64383F3057CA1F9E34D2DEE5B63DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322237   (420309) от 11.09.2019
-
-Ancestors: The Humankind Odyssey (2019) [Ru/Multi] (1.1) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420309.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ancestors: The Humankind Odyssey — симулятор выживания с видом от третьего лица, придуманный создателем Assassin’s Creed. Исследуйте открытый мир, расширяйте свои владения и развиваете клан, чтобы перейти на следующую ступень эволюции. Отправляйтесь в невероятное путешествие по этапам человеческой эволюции, охватывающее период от 10 до 2 млн лет тому назад. Оно начнётся (   Читать дальше...   )Тип издания: LicenseРазработчик: Panache Digital GamesЖанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94838F40DB80BCFB8AE16074053C4D881FCAB246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324597   (420305) от 11.09.2019
-
-Рейв / Beats (2019) HDRip [AVO]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие в лето 1994 года, время расцвета подпольных рейвов, когда музыка, объявленная вне закона, давала освобождение. Два подростка из маленького шотландского городка отправляются на свою последнюю вечеринку, прежде чем их пути разойдутся навсегда. Последняя битва за дружбу и свободу происходит на фоне зарождения крупнейшего андеграундного молодежного движения, (   Читать дальше...   )Производство: Великобритания, Rosetta ProductionsЖанр: Драма, комедия, криминал, музыкаРежиссер: Брайан УэлшАктеры: Кимбер Клоссон, Мартин Донахи, Брайан Фергюсон, Райан Флетчер, Лора Фрейзер, Рэйчел Джексон, Нил Липер, Лорн МакДональд, Кевин Мэйнс, Ross MannПеревод: Авторский одноголосый - А.Важенин (BadBajo)Субтитры: ОтсутствуютПродолжительность: 01:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78E4CC4A781CF4FBE5212679AEF83027CE8F24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388958   (420150) от 03.10.2011
-
-"Библиотека фантастики" | 2143 томa| 1990-2011 | перезалив 02.10.11 [FB2, DOC]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420150.jpg" />
-</div>
-
-
-###  Подробнее
-
-1990-2011Жанр: Фантастика, боевая фантастикаФормат: FB2, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6586CBF4EF4342441481D6A41D991BC4F44D1399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946934   (419995) от 16.10.2015
-
-Первая в мире полностью роботизированная сельскохозяйственная ферма начнет функционировать в Японии в 2017 году
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_419995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роботы, без сомнения, являются идеальными сельскохозяйственными работниками будущего. В качестве доказательства этому утверждению японская компания Spread занимается сейчас строительством первой в мире фермы по выращиванию салата, работать на которой будут исключительно роботы под управлением специализированных компьютеров. Согласно планам, эта ферма начнет работать (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

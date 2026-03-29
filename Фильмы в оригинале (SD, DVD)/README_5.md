@@ -1,3 +1,29 @@
+###  Публикация: 1553715   (579890) от 28.05.2022
+
+Как получить миллион? / In your wildest dreams (1991) DVD9 [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (SD, DVD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_579890.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Марк мечтает о многом, но более всего его влечет идея легкого богатства и его величество случай предоставляет ему возможность путем компьютерной махинации получить миллион долларов. Однако, вереница событий приводит мальчика к мысли, что груз богатства слишком тяжел и иногда в том, что мечты сбываются нет ничего хорошего.Производство: США, Feature Films for FamiliesЖанр: Драма, СемейныйРежиссер: Брюс НейбарАктеры: Тревор Блэк, Лизе Уилбурн, Сара Шауб, Бретт Палмер, Стив Андерсон, Роберт Нельсон, Джефф Олсон, Marti Tueller, Дара Симпер, Тревор Блэк, Лизе Уилбурн, Сара Шауб, Бретт Палмер, Стив Андерсон, Роберт Нельсон, Джефф Олсон, Marti Tueller, Дара Симпер, Патти Джо Бендер, Пегги Мэтисон, Мэтт Болинг, Энцо Милети, Донре Сэмпсон, Тип Бокселл, Элис Нельсон, Шанталь Хиатт, Джозеф (   Читать дальше...   )Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3B6F9E7DB1C00FDF6C8B58DB9A0D18FDAF66AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 920548   (578785) от 23.07.2015
 
 Национальная Народная Армия / NVA (2005) DVDRip [De / De, Ru Sub]
@@ -6,7 +32,7 @@
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578785.jpg" />
+  <img src="Z:/picture/008/save_picture_578785.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578773.jpg" />
+  <img src="Z:/picture/008/save_picture_578773.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576263.jpg" />
+  <img src="Z:/picture/008/save_picture_576263.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573241.jpg" />
+  <img src="Z:/picture/008/save_picture_573241.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572160.jpg" />
+  <img src="Z:/picture/008/save_picture_572160.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569604.jpg" />
+  <img src="Z:/picture/008/save_picture_569604.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564750.jpg" />
+  <img src="Z:/picture/008/save_picture_564750.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562365.jpg" />
+  <img src="Z:/picture/008/save_picture_562365.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557469.jpg" />
+  <img src="Z:/picture/008/save_picture_557469.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547461.jpg" />
+  <img src="Z:/picture/008/save_picture_547461.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541026.jpg" />
+  <img src="Z:/picture/008/save_picture_541026.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533421.jpg" />
+  <img src="Z:/picture/008/save_picture_533421.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532194.jpg" />
+  <img src="Z:/picture/008/save_picture_532194.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531113.jpg" />
+  <img src="Z:/picture/008/save_picture_531113.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530272.jpg" />
+  <img src="Z:/picture/008/save_picture_530272.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529836.jpg" />
+  <img src="Z:/picture/008/save_picture_529836.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ John Wick: Chapter 3 - Parabellum (2019) HDRip [H.264] [EN / EN Sub]
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522690.jpg" />
+  <img src="Z:/picture/008/save_picture_522690.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517209.jpg" />
+  <img src="Z:/picture/008/save_picture_517209.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515215.jpg" />
+  <img src="Z:/picture/008/save_picture_515215.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514993.jpg" />
+  <img src="Z:/picture/008/save_picture_514993.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_514644.jpg" />
+  <img src="Z:/picture/008/save_picture_514644.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510634.jpg" />
+  <img src="Z:/picture/008/save_picture_510634.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507837.jpg" />
+  <img src="Z:/picture/008/save_picture_507837.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507834.jpg" />
+  <img src="Z:/picture/008/save_picture_507834.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505319.jpg" />
+  <img src="Z:/picture/008/save_picture_505319.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B42B857C669C445C273208895F5212274445EAFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934607   (502241) от 05.09.2015
-
-Девушка и синьор / Una chica y un senor (1974) VHSRip [IT]
-
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь красивой начинающей певицы Ариадны (Орнелла Мути) меняется после того, как она знакомится с преуспевающим адвокатом (Серджо Фантони), который старше её. Он помогает ей найти пропавшую машину и у них начинается бурный роман. Но разница в возрасте и жизненный приоритетах становятся непреодолимым препятствием в их отношениях. Ариадне приходится делать непростой (   Читать дальше...   )Производство: Испания, Impala, Pedro Masó Producciones CinematográficasЖанр: Комедия, МелодрамаРежиссер: Педро МасоАктеры: Орнелла Мути, Серджо Фантони, Эдуардо Фахардо, Эмилио Гутьеррес Каба, Диди Шерман, Луис Варела, Хельга Лине, Пастор Серрадор, Кета Клавер, Рафаэль НаварроПеревод: ОтсутствуетЯзык озвучки: ИтальянскийПродолжительность: 01:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC7AF6E3BB122F0C02DAC2487815AF2518CE8D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

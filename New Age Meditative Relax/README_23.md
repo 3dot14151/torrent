@@ -1,3 +1,32 @@
+###  Публикация: 1260255   (314222) от 06.11.2018
+
+VA - For Women vol. 1-3 (2014-2016) [MP3|320 Kbps] <Ambient, Electronic, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_314222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yakuro - Long Road To Happiness (12:13)
+02. Artur Bayramgalin - The Morning Moon (4:18)
+03. Alexandr Brynskikh - Love Expectation (6:33)
+04. Rainy - Time (3:36)(   Читать дальше...   )Жанр: Ambient, Electronic, Instrumental, New AgeПродолжительность: 05:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12E0F91CA0BC5FD035CE3A1C05C1F8393C39B8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260246   (314050) от 06.11.2018
 
 VA - For Men vol. 1-3 (2014-2016) [MP3|320 Kbps] <Chillout, Electronic, Instrumental, New Age, Space>
@@ -6,7 +35,7 @@ VA - For Men vol. 1-3 (2014-2016) [MP3|320 Kbps] <Chillout, Electronic, Instrume
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314050.jpg" />
+  <img src="Z:/picture/008/save_picture_314050.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - E-Energy vol. 1-16 (2014-2016) [MP3|320 Kbps] <Ambient, Chillout, Instrumen
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311837.jpg" />
+  <img src="Z:/picture/008/save_picture_311837.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Jeff Smart - Super Moon (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310209.jpg" />
+  <img src="Z:/picture/008/save_picture_310209.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Carolyn Southworth - By the Sea (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309289.jpg" />
+  <img src="Z:/picture/008/save_picture_309289.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308863.jpg" />
+  <img src="Z:/picture/008/save_picture_308863.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Pachuly & Friends - Collection (3 альбома) (2003-2013) [MP3|320 CBR ~245 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304167.jpg" />
+  <img src="Z:/picture/008/save_picture_304167.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Tantric Massage Experts - Open New Erotic Feelings of Pleasure and Excitement (2
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304155.jpg" />
+  <img src="Z:/picture/008/save_picture_304155.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ VA - Spa Relaxation Ambient Music, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Bale
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302838.jpg" />
+  <img src="Z:/picture/008/save_picture_302838.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ VA - Mystical Travel (2007) [MP3|320 Kbps] <Native american, Ethnic, World>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301377.jpg" />
+  <img src="Z:/picture/008/save_picture_301377.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Mark Dwane - Astrology (2018) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301079.jpg" />
+  <img src="Z:/picture/008/save_picture_301079.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Astrocolor - Lit Up - Music for Christmas (2015) [MP3|320 кб/с]<New Age, Easy
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299087.jpg" />
+  <img src="Z:/picture/008/save_picture_299087.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ Llewellyn - Ancient Lands (2015) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298919.jpg" />
+  <img src="Z:/picture/008/save_picture_298919.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ VA - Sleep & Massage Music (2019) [MP3|320 Kbps] <New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298743.jpg" />
+  <img src="Z:/picture/008/save_picture_298743.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Silent nook - С.О.М.А (2018) [MP3|320 Kbps] <Trip-Hop, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298681.jpg" />
+  <img src="Z:/picture/008/save_picture_298681.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Sverre Knut Johansen - Antarctica (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298142.jpg" />
+  <img src="Z:/picture/008/save_picture_298142.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Calming Waterfall for Effective Study (2016) [MP3|320 Kbps] <Downtempo, Chi
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294381.jpg" />
+  <img src="Z:/picture/008/save_picture_294381.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Fabrice Tonnellier - Chakras Relaxation (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294263.jpg" />
+  <img src="Z:/picture/008/save_picture_294263.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ VA - Ethereal Dreams, Vol. 1 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambie
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293513.jpg" />
+  <img src="Z:/picture/008/save_picture_293513.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ VA - Ethereal Dreams Vol. 2 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambien
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293504.jpg" />
+  <img src="Z:/picture/008/save_picture_293504.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Llewellyn - Tantric Gold (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293491.jpg" />
+  <img src="Z:/picture/008/save_picture_293491.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Andreas - Magickal Nights (2011) [MP3|320 кб/с]<New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291342.jpg" />
+  <img src="Z:/picture/008/save_picture_291342.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Jean-Michel Jarre - Equinoxe Infinity (2018) [MP3|320 Kbps] <Ambient, New-Age, E
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291079.jpg" />
+  <img src="Z:/picture/008/save_picture_291079.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Gregorian - The Platinum Collection (2017) [MP3|320 Kbps] <New Age, Medieval, Ot
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291022.jpg" />
+  <img src="Z:/picture/008/save_picture_291022.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Karushanti - Celtic Traces (2017) [MP3|320 Kbps] <New Age, Celtic>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289825.jpg" />
+  <img src="Z:/picture/008/save_picture_289825.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Na
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289510.jpg" />
+  <img src="Z:/picture/008/save_picture_289510.jpg" />
 </div>
 
 
@@ -720,35 +749,6 @@ Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Na
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A901E234E9D555F8E4FC0C386DC3D0DC3FF46C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080567   (288471) от 07.12.2016
-
-Nikonn - Effrosyni (2016) [MP3|320 Kbps] <Ambient, Downtempo, Dream Pop>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:15)
-02. Denied (feat. Evelyne) (04:23)
-03. Never (feat. Foko) (04:37)
-04. Take Me Down (feat. Evelyne) (03:30)(   Читать дальше...   )Жанр: Ambient, Downtempo, Dream PopПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE7112861B055E63DCB0169E5BE9CB9B4FBFB03
 ```
 
 https://mybot314.ru/tekegram_catalog/

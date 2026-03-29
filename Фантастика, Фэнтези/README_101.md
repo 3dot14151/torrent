@@ -1,3 +1,57 @@
+###  Публикация: 1034490   (634047) от 13.07.2016
+
+Павел Мешков | Черный корректор (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драконам нельзя верить, с Драконами не стоит вести дела, от Драконов лучше держаться подальше. Но именно они сохраняют баланс между Той Стороной и Этой и всегда делают все за чужой счет. Возможно, иначе нельзя… Но почему счета выставляются обычным браконьерам с острова в дельте Волги? Астраханский портал практически находится под контролем — здесь врага знают в лицо.Жанр: Юмористическое фэнтези, Боевое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FBEE49AFAD0AA5F8658DD2A45B15D733BE1461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034579   (634036) от 13.07.2016
+
+Вероника Орлова, Ульяна Соболева | Позови меня… (2016) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_634036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лия Милантэ – популярная писательница, автор мистических, эротических триллеров. Таинственный уровень Интернета «Тихий дом», тот самый, где таится черная бездна неизвестности и жутких сетевых лабиринтов с мертвыми сайтами, открывает Лие врата в самый настоящий Ад. Потому что после посещения одного из них грани вымысла и реальности для нее полностью стираются.
+
+Нейл (   Читать дальше...   )Жанр: Социальная фантастика, Эротическая литература, Любовно-фантастические романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1708040D2A7E224D845479BCB8CB7D0FC0F2537B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034494   (634031) от 13.07.2016
 
 Евгений Перов | Черные клинки. Небесная сталь (2016) [FB2]
@@ -6,7 +60,7 @@
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634031.jpg" />
+  <img src="Z:/picture/008/save_picture_634031.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633941.jpg" />
+  <img src="Z:/picture/008/save_picture_633941.jpg" />
 </div>
 
 
@@ -62,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633790.jpg" />
+  <img src="Z:/picture/008/save_picture_633790.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633789.jpg" />
+  <img src="Z:/picture/008/save_picture_633789.jpg" />
 </div>
 
 
@@ -114,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633470.jpg" />
+  <img src="Z:/picture/008/save_picture_633470.jpg" />
 </div>
 
 
@@ -142,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633462.jpg" />
+  <img src="Z:/picture/008/save_picture_633462.jpg" />
 </div>
 
 
@@ -168,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633218.jpg" />
+  <img src="Z:/picture/008/save_picture_633218.jpg" />
 </div>
 
 
@@ -194,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633069.jpg" />
+  <img src="Z:/picture/008/save_picture_633069.jpg" />
 </div>
 
 
@@ -221,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633007.jpg" />
+  <img src="Z:/picture/008/save_picture_633007.jpg" />
 </div>
 
 
@@ -249,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632962.jpg" />
+  <img src="Z:/picture/008/save_picture_632962.jpg" />
 </div>
 
 
@@ -275,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632831.jpg" />
+  <img src="Z:/picture/008/save_picture_632831.jpg" />
 </div>
 
 
@@ -301,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632769.jpg" />
+  <img src="Z:/picture/008/save_picture_632769.jpg" />
 </div>
 
 
@@ -327,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632121.jpg" />
+  <img src="Z:/picture/008/save_picture_632121.jpg" />
 </div>
 
 
@@ -353,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631970.jpg" />
+  <img src="Z:/picture/008/save_picture_631970.jpg" />
 </div>
 
 
@@ -379,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631400.jpg" />
+  <img src="Z:/picture/008/save_picture_631400.jpg" />
 </div>
 
 
@@ -408,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631073.jpg" />
+  <img src="Z:/picture/008/save_picture_631073.jpg" />
 </div>
 
 
@@ -436,7 +490,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631065.jpg" />
+  <img src="Z:/picture/008/save_picture_631065.jpg" />
 </div>
 
 
@@ -464,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630050.jpg" />
+  <img src="Z:/picture/008/save_picture_630050.jpg" />
 </div>
 
 
@@ -492,7 +546,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629743.jpg" />
+  <img src="Z:/picture/008/save_picture_629743.jpg" />
 </div>
 
 
@@ -520,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629736.jpg" />
+  <img src="Z:/picture/008/save_picture_629736.jpg" />
 </div>
 
 
@@ -549,7 +603,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629469.jpg" />
+  <img src="Z:/picture/008/save_picture_629469.jpg" />
 </div>
 
 
@@ -577,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629332.jpg" />
+  <img src="Z:/picture/008/save_picture_629332.jpg" />
 </div>
 
 
@@ -603,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629242.jpg" />
+  <img src="Z:/picture/008/save_picture_629242.jpg" />
 </div>
 
 
@@ -631,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629225.jpg" />
+  <img src="Z:/picture/008/save_picture_629225.jpg" />
 </div>
 
 
@@ -644,60 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3AE2C8F4511B4A2436AB3A55A8BC404D6CE82E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144341   (629156) от 21.06.2017
-
-Марьяна Сурикова | Пленница. В оковах магии (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже собственная магическая сила не в состоянии спасти, когда в игру вступают чувства, когда презрение к той, кто ниже по происхождению, вдруг оборачивается губительной одержимостью. Аристократ и плебейка, ректор с сильнейшим магическим даром и обыкновенная целительница, чья сила лишь в том, чтобы спасать жизни других людей. Говорят, любовь не купишь, но что, если (   Читать дальше...   )Жанр: Любовное фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC506FCEB810458AC2936000FD22F5FC99E39B22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144392   (629150) от 21.06.2017
-
-Иэн Бэнкс | Эксцессия (2017) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман из цикла «Культура».
-
-Идиранская война, длившаяся пятьдесят лет и унесшая сотни миллиардов жизней, завершилась несколько веков назад. Культура – содружество продвинутых цивилизаций и искусственных интеллектов, – являясь наиболее мощной силой во Вселенной, опекает более примитивные расы. В числе таких подопечных и обитатели газовых гигантов, известные как Хамы, (   Читать дальше...   )Жанр: Космическая фантастика, Научная фантастика, Социальная фантастикаПеревод: Кирилл ФальковФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF96721FD86647C7F34EF3FA9BF5F543E055A59
 ```
 
 https://mybot314.ru/tekegram_catalog/

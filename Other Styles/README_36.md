@@ -6,7 +6,7 @@ Asian Zen, Soothing Sounds - Harmony of Yoga After Hard Day (2020) [FLAC|Lossles
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824693.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Asian Zen - Peaceful Zen Lullabies (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824690.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824690.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Asian Zen - Fresh Meditation Soundtrack (2020) [FLAC|Lossless|WEB-DL|tracks] <Ne
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824688.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824688.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824481.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Secret Garden - Nocturne The 25th Anniversary Collection (2020) [FLAC|Lossless|W
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824466.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824466.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ New Age, Creative Mind Master, Asian Zen - Home Zen Learning (2020) [FLAC|Lossle
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824465.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824442.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mokadelic - Gomorra: La Serie (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823999.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823999.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Greg Maroney - Moving On (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823996.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Edelis - 12 альбомов, EP & Single (2008 - 2018) [MP3|320 kbps] <New Age,
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823849.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - Just Spice Of Duduk (part 3) (2002) [FLAC|Lossless]<Duduk/Instrumental>
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823550.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Imaginary Tibetan Journey Music Soothing Atmosphere, Namaste Yoga, Deep Med
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822758.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822748.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822748.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Los
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822654.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Alan Menken & VA - Beauty and the Beast / Красавица и чудовище
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822615.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Jim Brickman - The Ultimate Christmas Playlist (2021) [FLAC|Lossless|WEB-DL|trac
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822568.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822476.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Alan Menken & VA - Beauty and the Beast / Красавица и чудовище
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822475.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ VA - Deep Level Yoga Relaxing Sound of Nature, Oriental Massage Yoga (2017) [MP3
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822469.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ VA - Acoustic Covers Playlist (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instru
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822340.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ VA - Latino 2018 [MP3|320 Kbps] <Dancehall, Flamenco, Salsa>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822302.jpg" />
+  <img src="Z:/picture/008/save_picture_822302.jpg" />
 </div>
 
 
@@ -614,7 +614,7 @@ Me and That Man - Songs Of Love And Death (2017) [MP3|320 Kbps] <Country Rock, F
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822217.jpg" />
+  <img src="Z:/picture/008/save_picture_822217.jpg" />
 </div>
 
 
@@ -643,7 +643,7 @@ Richard Clayderman - Tango Passion (1996) [FLAC|Lossless|image + .cue] <Instrume
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821223.jpg" />
+  <img src="Z:/picture/008/save_picture_821223.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ Shiva - Hand Of Fate (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821056.jpg" />
+  <img src="Z:/picture/008/save_picture_821056.jpg" />
 </div>
 
 
@@ -701,7 +701,7 @@ VA - Deep Relaxation and Wellness Playlist (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821050.jpg" />
+  <img src="Z:/picture/008/save_picture_821050.jpg" />
 </div>
 
 
@@ -730,7 +730,7 @@ VA - Tuff Turf: The Original Soundtrack (1985) [MP3|320 Kbps] <Pop Rock, Punk>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820920.jpg" />
+  <img src="Z:/picture/008/save_picture_820920.jpg" />
 </div>
 
 

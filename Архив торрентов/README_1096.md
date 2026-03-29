@@ -6,7 +6,7 @@ DJ MEG - Live @ VK Fest, Record Stage, Russia 2020-05-17 [MP3|320 Kbps] <Progres
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797875.jpg" />
+  <img src="Z:/picture/008/save_picture_797875.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ AnyMP4 Audio Converter for Mac 8.2.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797869.jpg" />
+  <img src="Z:/picture/008/save_picture_797869.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Red Giant Trapcode Suite 14.0.4 RePack by PooShock [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797855.jpg" />
+  <img src="Z:/picture/008/save_picture_797855.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797848.jpg" />
+  <img src="Z:/picture/008/save_picture_797848.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Adobe Audition 2022 (22.0.0.96) Portable by XpucT [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797831.jpg" />
+  <img src="Z:/picture/008/save_picture_797831.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ DCommander 3.8.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797806.jpg" />
+  <img src="Z:/picture/008/save_picture_797806.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ K-Lite Codec Pack Update 15.4.9 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797790.jpg" />
+  <img src="Z:/picture/008/save_picture_797790.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Media Player Classic Home Cinema 1.9.3 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797786.jpg" />
+  <img src="Z:/picture/008/save_picture_797786.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797774.jpg" />
+  <img src="Z:/picture/008/save_picture_797774.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Media Player Classic Home Cinema (MPC-HC) 1.9.3 + portable (unofficial) [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797770.jpg" />
+  <img src="Z:/picture/008/save_picture_797770.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Far Behind - Behind The Loop Radio (001-010) (2019-2020) [MP3|320 Kbps] <Progres
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797764.jpg" />
+  <img src="Z:/picture/008/save_picture_797764.jpg" />
 </div>
 
 
@@ -300,7 +300,7 @@ Ummy Video Downloader 1.10.10.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797756.jpg" />
+  <img src="Z:/picture/008/save_picture_797756.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ YouTube By Click Premium 2.2.129 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797755.jpg" />
+  <img src="Z:/picture/008/save_picture_797755.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ BELOFF [dp] 2020.05.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797748.jpg" />
+  <img src="Z:/picture/008/save_picture_797748.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ VMware Workstation 15 Pro 15.5.2 Build 15785246 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797728.jpg" />
+  <img src="Z:/picture/008/save_picture_797728.jpg" />
 </div>
 
 
@@ -407,7 +407,7 @@ Adobe Acrobat Pro DC 2020.009.20065 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797726.jpg" />
+  <img src="Z:/picture/008/save_picture_797726.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797714.jpg" />
+  <img src="Z:/picture/008/save_picture_797714.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797713.jpg" />
+  <img src="Z:/picture/008/save_picture_797713.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797712.jpg" />
+  <img src="Z:/picture/008/save_picture_797712.jpg" />
 </div>
 
 
@@ -520,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797711.jpg" />
+  <img src="Z:/picture/008/save_picture_797711.jpg" />
 </div>
 
 
@@ -549,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797710.jpg" />
+  <img src="Z:/picture/008/save_picture_797710.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797709.jpg" />
+  <img src="Z:/picture/008/save_picture_797709.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797708.jpg" />
+  <img src="Z:/picture/008/save_picture_797708.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797707.jpg" />
+  <img src="Z:/picture/008/save_picture_797707.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797705.jpg" />
+  <img src="Z:/picture/008/save_picture_797705.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797704.jpg" />
+  <img src="Z:/picture/008/save_picture_797704.jpg" />
 </div>
 
 

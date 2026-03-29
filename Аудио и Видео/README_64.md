@@ -6,7 +6,7 @@ VA - Chilling Winter Best Playlist (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798016.jpg" />
+  <img src="Z:/picture/008/save_picture_798016.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Beach Grooves Maretimo, Vol. 3 - House & Chill Sounds to Groove and Relax (
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798015.jpg" />
+  <img src="Z:/picture/008/save_picture_798015.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - Bar Essentials, Vol. 4 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798014.jpg" />
+  <img src="Z:/picture/008/save_picture_798014.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Lounge Theme (Sofa Grooves), Vol. 1 (2021) [AAC|~309 Kbps] <Lounge, Chill O
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798012.jpg" />
+  <img src="Z:/picture/008/save_picture_798012.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ VA - Beach Grooves Maretimo, Vol. 2 - House & Chill Sounds to Groove and Relax (
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798010.jpg" />
+  <img src="Z:/picture/008/save_picture_798010.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Beach Grooves Maretimo, Vol. 4 - House & Chill Sounds to Groove and Relax (
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798008.jpg" />
+  <img src="Z:/picture/008/save_picture_798008.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ VA - Bar Essentials, Vol. 1 (2018) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798007.jpg" />
+  <img src="Z:/picture/008/save_picture_798007.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ VA - Ski Resort Best Lounge Music Playlist (2021) [AAC|~292 Kbps] <Lounge, Chill
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798003.jpg" />
+  <img src="Z:/picture/008/save_picture_798003.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Beach Grooves Maretimo, Vol. 1 - House & Chill Sounds to Groove and Relax (
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798002.jpg" />
+  <img src="Z:/picture/008/save_picture_798002.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797995.jpg" />
+  <img src="Z:/picture/008/save_picture_797995.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797977.jpg" />
+  <img src="Z:/picture/008/save_picture_797977.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797956.jpg" />
+  <img src="Z:/picture/008/save_picture_797956.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797950.jpg" />
+  <img src="Z:/picture/008/save_picture_797950.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797915.jpg" />
+  <img src="Z:/picture/008/save_picture_797915.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797783.jpg" />
+  <img src="Z:/picture/008/save_picture_797783.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ VA - Notes & Harmonies, Vol. 1 (2021) [AAC|~326 Kbps] <House, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797589.jpg" />
+  <img src="Z:/picture/008/save_picture_797589.jpg" />
 </div>
 
 
@@ -456,7 +456,7 @@ VA - Morning Moods, Vol. 1 (2018) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797566.jpg" />
+  <img src="Z:/picture/008/save_picture_797566.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ VA - Morning Moods, Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797565.jpg" />
+  <img src="Z:/picture/008/save_picture_797565.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Gorky Park - Ballads (2021) [AAC|~339 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797508.jpg" />
+  <img src="Z:/picture/008/save_picture_797508.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Gorky Park - Alternative and Progressive (2021) [AAC|~345 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797505.jpg" />
+  <img src="Z:/picture/008/save_picture_797505.jpg" />
 </div>
 
 
@@ -572,7 +572,7 @@ VA - Italo Disco Legends - Hits & Secret Songs (2021) [AAC|~335 Kbps] <Dance, Di
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797459.jpg" />
+  <img src="Z:/picture/008/save_picture_797459.jpg" />
 </div>
 
 
@@ -601,7 +601,7 @@ Gorky Park - The Best (2021) [AAC|~345 Kbps] <Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797458.jpg" />
+  <img src="Z:/picture/008/save_picture_797458.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ VA - Трибьют t.A.T.u. "200 по встречной" (2021) [AAC|~320 Kbps
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797451.jpg" />
+  <img src="Z:/picture/008/save_picture_797451.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797391.jpg" />
+  <img src="Z:/picture/008/save_picture_797391.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797384.jpg" />
+  <img src="Z:/picture/008/save_picture_797384.jpg" />
 </div>
 
 
@@ -711,7 +711,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797253.jpg" />
+  <img src="Z:/picture/008/save_picture_797253.jpg" />
 </div>
 
 

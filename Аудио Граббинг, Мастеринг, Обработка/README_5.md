@@ -1,3 +1,108 @@
+###  Публикация: 1499526   (847673) от 02.10.2021
+
+Reason RE Synapse Audio Synths 09.2021 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор из трёх инструментов(Obsession, The Legend и Antidote) от Synapse Audio для Reason Rack Extension.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6895726A0703B332C8F7B7BF5B594C24649C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499681   (847670) от 02.10.2021
+
+Reason RE Synapse Audio Effects 09.2021 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Synapse Audio предлагает широкий выбор высококачественных эффект плагинов для расширения стойки, адаптированных для Reason.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C267160D0B81BF911EFA2827CAA2330C697292C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499580   (847669) от 02.10.2021
+
+Tracktion Software & Dawesome Music - Abyss 1.1.3 VSTi3 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мрачный. Яркий. Органичный. Богатый. Вдохновляющий. Быстрый. Наглядный. Мистический. Модулирующий.
+Abyss - это визуальный синтезатор в котором представлены темные вибрирующие дроны, яркие кинематографические пэды и богатые развивающиеся текстуры. С Abyss вы мгновенно найдете вдохновение для своих музыкальных и звуковых проектов!Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2C95D23906D4DD886B5E0C64AE3C3ED2297B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499494   (847582) от 02.10.2021
+
+Reason RE DNA Labs Aquios X4 1.0.2 (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взгляните на рабочую станцию Aquios X4 ROM, основанную на сигналах, оснащенную легендарным звуковым банком, эйфорическими пэдами, безумно футуристическими пилами, модулированными клубными колокольчиками, достойными Голливуда струнными секциями, элегантными и первозданными фортепиано, гигантской кинематографической медью, великолепными ангельскими хорами, пугающими (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F913B594887C8E42CC60A4A7B85F565B6EAA926C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499986   (844548) от 04.10.2021
 
 DJ Swivel - The Sauce 1.2.1 VST3, AAX (x64) [En]
@@ -6,7 +111,7 @@ DJ Swivel - The Sauce 1.2.1 VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844548.jpg" />
+  <img src="Z:/picture/008/save_picture_844548.jpg" />
 </div>
 
 
@@ -34,7 +139,7 @@ DS Audio - Tantra 2.0.0 VST, VST3, AAX (x64) RePack by VR [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844534.jpg" />
+  <img src="Z:/picture/008/save_picture_844534.jpg" />
 </div>
 
 
@@ -60,7 +165,7 @@ uJAM - Virtual Guitarist IRON2 1.0.0.525 VSTi, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844162.jpg" />
+  <img src="Z:/picture/008/save_picture_844162.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ Image-Line Deckadance 2.43 DVS Edition [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843539.jpg" />
+  <img src="Z:/picture/008/save_picture_843539.jpg" />
 </div>
 
 
@@ -113,7 +218,7 @@ Acon Digital - DeVerberate 3 3.0.3 VST, VST3, AAX (x86/x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842347.jpg" />
+  <img src="Z:/picture/008/save_picture_842347.jpg" />
 </div>
 
 
@@ -139,7 +244,7 @@ Output - Movement 1.1.1 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841194.jpg" />
+  <img src="Z:/picture/008/save_picture_841194.jpg" />
 </div>
 
 
@@ -165,7 +270,7 @@ Sound Normalizer 7.6 RePack by вовава [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841104.jpg" />
+  <img src="Z:/picture/008/save_picture_841104.jpg" />
 </div>
 
 
@@ -191,7 +296,7 @@ Raising Jake Studios - SideMinder ME2 1.0.1 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831829.jpg" />
 </div>
 
 
@@ -217,7 +322,7 @@ Raising Jake Studios - SideMinder ZL 1.0.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831826.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831826.jpg" />
 </div>
 
 
@@ -243,7 +348,7 @@ Unison - Drum Monkey 1.0.150 VSTi, VSTi3, AAX (x64) + Library RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821099.jpg" />
+  <img src="Z:/picture/008/save_picture_821099.jpg" />
 </div>
 
 
@@ -270,7 +375,7 @@ PSPaudioware - PSP InfiniStrip 1.0.3 VST, VST3, AAX x86 x64 Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815292.jpg" />
+  <img src="Z:/picture/008/save_picture_815292.jpg" />
 </div>
 
 
@@ -297,7 +402,7 @@ Rob Papen - RoCoder 1.0.0 VST, VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814075.jpg" />
+  <img src="Z:/picture/008/save_picture_814075.jpg" />
 </div>
 
 
@@ -324,7 +429,7 @@ XLN Audio - XO 1.2.8 STANDALONE, VSTi, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814070.jpg" />
+  <img src="Z:/picture/008/save_picture_814070.jpg" />
 </div>
 
 
@@ -350,7 +455,7 @@ Steinberg - WaveLab Elements 11.0.10 eXTended (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811834.jpg" />
+  <img src="Z:/picture/008/save_picture_811834.jpg" />
 </div>
 
 
@@ -377,7 +482,7 @@ Steinberg - Cubase Elements 11.0.40 eXTended [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811538.jpg" />
+  <img src="Z:/picture/008/save_picture_811538.jpg" />
 </div>
 
 
@@ -403,7 +508,7 @@ Tokyo Dawn Records - Molot GE 1.0.4 VST, VST3, AAX Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810424.jpg" />
+  <img src="Z:/picture/008/save_picture_810424.jpg" />
 </div>
 
 
@@ -430,7 +535,7 @@ Tokyo Dawn Records - Kotelnikov GE 1.6.4 VST, VST3, AAX Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810352.jpg" />
+  <img src="Z:/picture/008/save_picture_810352.jpg" />
 </div>
 
 
@@ -456,7 +561,7 @@ Tokyo Dawn Records - OD DeEdger 1.2.7 VST, VST3, AAX Retail [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810212.jpg" />
+  <img src="Z:/picture/008/save_picture_810212.jpg" />
 </div>
 
 
@@ -483,7 +588,7 @@ Devious Machines & UrsaDSP - Boost 1.5.5 VST3, AAX (x64) [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810209.jpg" />
+  <img src="Z:/picture/008/save_picture_810209.jpg" />
 </div>
 
 
@@ -509,7 +614,7 @@ Focusrite - FAST Plugins Bundle 1.1.1 VST, VST3, AAX (x64) RePack by R2R [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806144.jpg" />
+  <img src="Z:/picture/008/save_picture_806144.jpg" />
 </div>
 
 
@@ -535,7 +640,7 @@ Baby Audio - TAIP 1.0.1 VST, VST3, AAX (x86/x64) RePack by FLARE [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801517.jpg" />
+  <img src="Z:/picture/008/save_picture_801517.jpg" />
 </div>
 
 
@@ -562,7 +667,7 @@ SIR Audio Tools - StandardCLIP 1.5.058 VST, VST3, AAX [En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801516.jpg" />
+  <img src="Z:/picture/008/save_picture_801516.jpg" />
 </div>
 
 
@@ -574,112 +679,6 @@ StandardCLIP был разработан для максимально (   Чи
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDD453DECEEF6DB9ACD0616DD887290874A1F89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385220   (799919) от 23.05.2020
-
-Toontrack - EZbass v1.0.0 STANDALONE, VSTi, VSTi3, AAX x64 [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы с гордостью представляем первое на рынке басовое программное обеспечение такого рода. Тот, который выходит за рамки традиционной библиотеки сэмплов, чтобы обеспечить не только первозданный звук, но и фундаментальные функции, которые без особых усилий позволяют добавлять басы в ваши песни.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750E2470866AA528ED63389E41349574EB3410B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506624   (799449) от 01.11.2021
-
-HOFA - IQ-DeEsser 1.0.6 VST, VST3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799449.jpg" />
-</div>
-
-
-###  Подробнее
-
-HOFA IQ-DeEsser - это новый инструмент для редактирования сибилянтами и другими высокочастотными шумами в вокале или во всем миксе. Благодаря специализированному и очень естественному распознаванию голоса, IQ-DeEsser очень прост в использовании и еще более интуитивно понятен.
-Более того, инновационный режим BUS-Mode позволяет с исключительной точностью управлять (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FED13350B6C0524260DAC96A7E5B9271821A436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506983   (799059) от 02.11.2021
-
-D16 Group - Fazortan 2 2.1.1 VST, AAX [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fazortan является мощным эффектом фазера. Он предоставляет невероятную гибкость обработки, при этом создавая магическое аналоговое звучание. Он не является копией какого-либо прибора из 70-х или 80-х - он содержит в себе опыт десятилетий в конструировании фазеров.
-Вторая версия представляет собой переработанную эмуляцию схем фазового сдвига с полным прохождением, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292B8B120FB411F63340C895D49B4A010F612309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273980   (798695) от 04.01.2019
-
-AudioGrail 7.11.2.216 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798695.jpg" />
-</div>
-
-
-###  Подробнее
-
-AudioGrail (ранее K-MP3) - это швейцарский армейский нож для всего, что связано с аудиофайлами (MP3, MPC, OGG ...). Он может очень легко переименовать и сменить теги (теги: информация, такая как имя исполнителя, альбом, название трека) ваши файлы автоматически. Он также может анализировать качество, организовывать файлы в вашей системе, находить дубликаты файлов (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB3D333E79491B1468DEF3E2B872394FD5EA93B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1583041   (123888) от 08.01.2024
+
+Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | Восхождение Героя щита [ТВ-2] [2022, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наофуми Иватани — самый обычный, ничем не примечательный студент. Точнее, он был им — ровно до тех пор, пока его вместе с ещё тремя юношами не призвали в иной мир. Мелромарк нуждается в героях, ведь грядут «волны» — страшные катаклизмы, которые сметут всё живое на своём пути. Казалось бы, теперь-то Наофуми заживёт, вот только... Мало того, что стал Героем Щита и (   Читать дальше...   )Производство: Kinema Citrus, Dr. MovieЖанр: приключения, фэнтезиРежиссер: Дзимбо МасатоЯзык озвучки: Японский, русский (AniLibria, AniFilm, Crunchyroll, JAM Club)Субтитры: Русские (Crunchyroll, SovetRomantica, Alvakarp)Продолжительность: 13 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60874EC3BCA734C55D8F053070B362ECF74BB9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411675   (123364) от 12.01.2024
 
 Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel World Rhapsody | Марш смерти в рапсодию параллельного мирa [2018, TV, 12 из 12] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123364.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Mi | Эта глупая свин
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123119.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122996.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Shingeki no Kyojin: The Final Season | Attack on Titan The Final Season | Ата
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122472.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_122429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_122429.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Huo Feng Liao Yuan | The Ravages of Time | Огненный феникс опа�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121737.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121579.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Fate/Apocrypha | Судьба: Апокриф [2017, TV, 25 из 25] BDRip 1080p
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120641.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120641.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120584.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Riki-Ou 2: Horobi no Ko | Riki-Oh 2: Child Of Destruction | Рики-О 2: Ди�
 >>Аниме с озвучкой (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120509.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120318.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120286.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120286.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [ТВ-1] [2023, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120171.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119846.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119846.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация безр�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119239.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ Ars no Kyojuu | Ars no Kyojuu | Гигантский зверь Арса [2023, 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119131.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118991.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta | Моя 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118804.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118785.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ Buta no Liver wa Kanetsu Shiro | Свинину надо было жарить |
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118717.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118353.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ Go-Toubun no Hanayome~ | The Quintessential Quintuplets | Пять невест:
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117824.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ Shuumatsu no Walkure II | Shuumatsu no Walkure II | Повесть о конце
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117726.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ Idol Densetsu Eriko | Легендарный айдол Эрико [1989-1990, T
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117222.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ Hyoujin: Blades of the Guardians | Biao Ren: Blades of the Guardians | Клин�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116057.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ Hyoujin: Blades of the Guardians | Biao Ren: Blades of the Guardians | Клин�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5E6917AB9401C193A1FE1CCAA71E08DC2F2290C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701889   (116040) от 23.02.2024
-
-Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 из 1] BDRip 1080p HEVC 10-bit raw+rus+eng
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мадокс-01 - новейшая разработка японского ВПК, боевой универсальный доспех, способный единолично противостоять слаженным действиям танкового взвода или небольшого объединённого формирования в городских условиях, а в перспективе, быть может, и заменить их. Но по стечению обстоятельств - в суматохе случайной аварии при транспортировке из военного полигона - Мадокс (   Читать дальше...   )Производство: AIC, Artmic / アートミックЖанр: приключения, фантастика, мехаРежиссер: Арамаки СиндзиПеревод: Костин ТимофейЯзык озвучки: японский, русский, английскийСубтитры: русские, английскиеПродолжительность: 45 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E416065C9FE394582F4C574C869DDB8D70D1049
 ```
 
 https://mybot314.ru/tekegram_catalog/

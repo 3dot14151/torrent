@@ -6,7 +6,7 @@ Kevin Crawford - Carrying the Tune (2012) [FLAC|Lossless|tracks + .cue] <Traditi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484104.jpg" />
+  <img src="Z:/picture/008/save_picture_484104.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Shantel - Viva Diaspora (2015) [FLAC|Lossless|WEB-DL]<Ethnopop, Balkan Pop, Elec
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483741.jpg" />
+  <img src="Z:/picture/008/save_picture_483741.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Blackmore's Night - All Our Yesterdays (2015) [FLAC|Lossless|WEB-DL]<Folk Rock, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481605.jpg" />
+  <img src="Z:/picture/008/save_picture_481605.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Rome - The Lone Furrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Post-indus
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479142.jpg" />
+  <img src="Z:/picture/008/save_picture_479142.jpg" />
 </div>
 
 
@@ -123,7 +123,7 @@ VA - Brazil 70: After Tropicalia: New Directions in Brazilian Music in the 1970s
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469888.jpg" />
+  <img src="Z:/picture/008/save_picture_469888.jpg" />
 </div>
 
 
@@ -152,7 +152,7 @@ Paco De Lucia - Flamenco Virtuoso (2008) [FLAC|Lossless]<Flamenco>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469389.jpg" />
+  <img src="Z:/picture/008/save_picture_469389.jpg" />
 </div>
 
 
@@ -187,7 +187,7 @@ The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Count
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466395.jpg" />
+  <img src="Z:/picture/008/save_picture_466395.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Blackmore's Night - All Our Yesterdays (2015) [FLAC|image+.cue]<Folk Rock, Rock,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462056.jpg" />
+  <img src="Z:/picture/008/save_picture_462056.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ Gipsy Kings - Greatest Hits (1994) /Japan/ [FLAC (tracks+cue)|Lossless]<Flamenco
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457417.jpg" />
+  <img src="Z:/picture/008/save_picture_457417.jpg" />
 </div>
 
 
@@ -280,7 +280,7 @@ Irene Kelley - These Hills (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457400.jpg" />
+  <img src="Z:/picture/008/save_picture_457400.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ Garmarna - сборник, 7 альбомов (1993-2016) [FLAC|Lossless|tracks]
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455439.jpg" />
+  <img src="Z:/picture/008/save_picture_455439.jpg" />
 </div>
 
 
@@ -338,7 +338,7 @@ VA - Лучшие цыганские песни конца ХХ века - Ал�
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451029.jpg" />
+  <img src="Z:/picture/008/save_picture_451029.jpg" />
 </div>
 
 
@@ -367,7 +367,7 @@ Dark Territory - Libera Me (2005) [FLAC|Lossless|image + .cue] <Gothic, Medieval
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450981.jpg" />
+  <img src="Z:/picture/008/save_picture_450981.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ The Corrs - 3 альбома - 5CD (2001-2007) [FLAC|Lossless]<Pop rock, Celtic,
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_447728.jpg" />
+  <img src="Z:/picture/005/save_picture_447728.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Watkins Family Hour - Vol. II (2022) [FLAC|Lossless|tracks + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431765.jpg" />
+  <img src="Z:/picture/008/save_picture_431765.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ Fleet Foxes - Shore (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie Rock>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429613.jpg" />
+  <img src="Z:/picture/008/save_picture_429613.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ Sufjan Stevens - The Ascension (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, 
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427477.jpg" />
+  <img src="Z:/picture/008/save_picture_427477.jpg" />
 </div>
 
 
@@ -518,7 +518,7 @@ Leonard Cohen - You Want It Darker (2016) [FLAC|Lossless|image + .cue] <Folk, Ro
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420820.jpg" />
+  <img src="Z:/picture/008/save_picture_420820.jpg" />
 </div>
 
 
@@ -547,7 +547,7 @@ Fleur (Flёur) - Штормовое предупреждение (2014) [FLAC|tr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420108.jpg" />
+  <img src="Z:/picture/008/save_picture_420108.jpg" />
 </div>
 
 
@@ -576,7 +576,7 @@ Jesse Cook - 2 альбома (2005 & 2012) [FLAC|Lossless]<Jazz, Flamenco, Guit
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_418852.jpg" />
+  <img src="Z:/picture/005/save_picture_418852.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ LeAnn Rimes - You Light Up My Life (1997) [FLAC|Lossless|tracks] <Country, Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414881.jpg" />
+  <img src="Z:/picture/008/save_picture_414881.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Olivia Newton-John - If Not For You (1971) 1993, Reissue [FLAC|Lossless]<Country
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411196.jpg" />
+  <img src="Z:/picture/008/save_picture_411196.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ Stu Larsen - Marigold (2020) [FLAC|Lossless|tracks + .cue] <Folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406805.jpg" />
+  <img src="Z:/picture/008/save_picture_406805.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Ashla Taylor - Truth Is... (2017) EP [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_403148.jpg" />
+  <img src="Z:/picture/008/save_picture_403148.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Stephanie Quayle - Love The Way You See Me (2017) [FLAC|Lossless|tracks] <Countr
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401516.jpg" />
+  <img src="Z:/picture/008/save_picture_401516.jpg" />
 </div>
 
 
@@ -756,7 +756,7 @@ Fleur (Flёur) - Волшебство (2003) [FLAC|Lossless|tracks] <Folk, Cardi
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397607.jpg" />
+  <img src="Z:/picture/008/save_picture_397607.jpg" />
 </div>
 
 

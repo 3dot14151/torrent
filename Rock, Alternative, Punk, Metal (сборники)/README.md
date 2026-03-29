@@ -1,4 +1,149 @@
 https://t.me/izofen
+###  Публикация: 1861683   (1062777) от 
+
+Сплин best (1994-2025) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062777.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:37] . 01-Звери
+[5:36] . 02-Сказка (remake 1994)
+[5:05] . 03-Что ты будешь делать?
+[3:24] . 04-Нечего делать внутри(   Читать дальше...   )Жанр: rockПродолжительность: 04:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4F4A9656BCA7F1F60742F84E3ED1A6C01E0642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861212   (1062599) от 
+
+Мумий Тролль best (1985-2022) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062599.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:20] . 001-Алло, попс!
+[2:32] . 002-Девушки эмансипэ
+[3:54] . 003-Кассетный мальчик
+[2:58] . 004-Делай меня точно(   Читать дальше...   )Жанр: rockПродолжительность: 08:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E859BC9B168A0CC68E1C533B16BEBB931436BC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861518   (1062435) от 
+
+VA - Classic Rock Hits (2026) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062435.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aerosmith - Dream On (4:27)
+002. Fleetwood Mac - Go Your Own Way (2004 Remaster) (3:43)
+003. Tom Petty - Don't Do Me Like That (2:41)
+004. Eagles - Hotel California (2013 Remaster) (6:31)(   Читать дальше...   )Жанр: RockПродолжительность: 18:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F62341D78ABB239CFD82DA5EFCA53D6AED0BD8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860861   (1062329) от 
+
+7Б - best (2001-2025) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062329.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:17] . 01-Кино
+[4:23] . 02-Молодые ветра
+[3:28] . 03-Осень
+[4:43] . 04-Знаю! Будет!(   Читать дальше...   )Жанр: rockПродолжительность: 06:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AFB3F7F9B710CE07C6F0EBB8315F72FE79BDB80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860632   (1062027) от 
+
+Мумий Тролль best (1985-2022) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062027.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:20] . 001-Алло, попс!
+[2:32] . 002-Девушки эмансипэ
+[3:54] . 003-Кассетный мальчик
+[2:58] . 004-Делай меня точно(   Читать дальше...   )Жанр: rockПродолжительность: 08:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16BCFE6E71AB08ABEC135791DB31F7A29CB29431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859613   (1061264) от 
 
 VA - Russian Rock 2017-2018 (2017-2018) [MP3|320 Kbps] <rock>
@@ -7,7 +152,7 @@ VA - Russian Rock 2017-2018 (2017-2018) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061264.jpg" />
+  <img src="Z:/picture/005/save_picture_1061264.jpg" />
 </div>
 
 
@@ -36,7 +181,7 @@ Dave Stewart - Compilation (1990-2025) [MP3|320 Kbps] <Pop rock, Soft rock, New 
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060485.jpg" />
+  <img src="Z:/picture/009/save_picture_1060485.jpg" />
 </div>
 
 
@@ -65,7 +210,7 @@ VA - Russian Rock 2019-2020  [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058796.jpg" />
+  <img src="Z:/picture/005/save_picture_1058796.jpg" />
 </div>
 
 
@@ -94,7 +239,7 @@ Bryan Adams - Compilation (1980-2026) [MP3|320 Kbps] <Soft rock, Pop rock, Arena
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057663.jpg" />
+  <img src="Z:/picture/005/save_picture_1057663.jpg" />
 </div>
 
 
@@ -123,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056283.jpg" />
+  <img src="Z:/picture/005/save_picture_1056283.jpg" />
 </div>
 
 
@@ -152,7 +297,7 @@ Muse - Compilation (1999-2025) [MP3|320 Kbps] <Alternative, Space rock, Electron
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055857.jpg" />
+  <img src="Z:/picture/005/save_picture_1055857.jpg" />
 </div>
 
 
@@ -181,7 +326,7 @@ VA - Road Trip Rock Rhythms (2024) [MP3|320 Kbps] <Rock, Punk, Alternative, Prog
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055853.jpg" />
+  <img src="Z:/picture/005/save_picture_1055853.jpg" />
 </div>
 
 
@@ -210,7 +355,7 @@ VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054605.jpg" />
+  <img src="Z:/picture/005/save_picture_1054605.jpg" />
 </div>
 
 
@@ -239,7 +384,7 @@ VA - Russian Rock 2025 (2025) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054347.jpg" />
+  <img src="Z:/picture/005/save_picture_1054347.jpg" />
 </div>
 
 
@@ -268,7 +413,7 @@ VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053202.jpg" />
+  <img src="Z:/picture/005/save_picture_1053202.jpg" />
 </div>
 
 
@@ -297,7 +442,7 @@ VA - No name compilation part 43 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052783.jpg" />
+  <img src="Z:/picture/005/save_picture_1052783.jpg" />
 </div>
 
 
@@ -326,7 +471,7 @@ VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Ro
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052261.jpg" />
+  <img src="Z:/picture/005/save_picture_1052261.jpg" />
 </div>
 
 
@@ -355,7 +500,7 @@ VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|32
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050927.jpg" />
+  <img src="Z:/picture/005/save_picture_1050927.jpg" />
 </div>
 
 
@@ -384,7 +529,7 @@ Erik Gronwall - Voice Of Rock - Compilation (2009-2025) [MP3|320 Kbps] <Hard roc
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050368.jpg" />
+  <img src="Z:/picture/005/save_picture_1050368.jpg" />
 </div>
 
 
@@ -413,7 +558,7 @@ The Black Keys - Compilation (2002-2025) [MP3|320 Kbps] <Garage rock, Blues rock
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049778.jpg" />
+  <img src="Z:/picture/005/save_picture_1049778.jpg" />
 </div>
 
 
@@ -442,7 +587,7 @@ VA - Solo Projects From Ария (1985-2025) [MP3|320 Kbps] <Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047231.jpg" />
+  <img src="Z:/picture/005/save_picture_1047231.jpg" />
 </div>
 
 
@@ -471,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046814.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046814.jpg" />
 </div>
 
 
@@ -500,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046666.jpg" />
 </div>
 
 
@@ -529,7 +674,7 @@ Gov't Mule - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046323.jpg" />
 </div>
 
 
@@ -558,7 +703,7 @@ VA - Blues & Rock part  15 Compilation (2023) [MP3|320 Kbps] <Blues & Rock>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045995.jpg" />
 </div>
 
 
@@ -587,7 +732,7 @@ VA - Music For You vol. 27 (2023) [MP3|320 Kbps] <Metal, Rock, Other>
 >>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044953.jpg" />
 </div>
 
 
@@ -601,151 +746,6 @@ VA - Music For You vol. 27 (2023) [MP3|320 Kbps] <Metal, Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76327E2918956351ECFDED71DF6D00E3C499EA31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606484   (1044373) от 22.01.2023
-
-VA - Classic Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Petty And The Heartbreakers - American Girl (3:34)
-02. The Doors - Roadhouse Blues (4:03)
-03. Whitesnake - Here I Go Again 87 (4:35)
-04. Foreigner - Cold as Ice (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E3F83387861325EFE670F9D215465164A36413
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607133   (1044129) от 25.01.2023
-
-VA - Music For You vol. 28 (2023) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rush - Xanadu (11:06)
- 02. Ashra - Midnight On Mars (06:56)
- 03. Renaissance - Opening Out (04:16)
- 04. Galahad - Empires Never Last (09:06)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 03:42:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34FEDC02318465F65C9CE4A145694E641E373FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607975   (1043553) от 31.01.2023
-
-Laura Cox - Compilation (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Fire
-02. So Long
-03. The Australian Way
-04. One Big Mess(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1736954F147A5112310443E849B26B147EFCD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607787   (1043521) от 31.01.2023
-
-VA - Now That's What I Call A Love Song (4CD) (2023) [MP3|320 Kbps] <Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043521.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01. George Michael – I Can’t Make You Love Me 5:21
-02. Ed Sheeran – Thinking Out Loud 4:42(   Читать дальше...   )Жанр: RockПродолжительность: 05:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F414D40D62672BCCF68C7BA2ADD03D9A5403D294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609102   (1043327) от 02.02.2023
-
-Airbourne - Hellfire (2023) 2CD Compilation [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thin The Blood [03:29]
-02. Runnin' Wild [03:38]
-03. Stand and Deliver [05:06]
-04. It’s Never Too Loud For Me [03:24](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:22:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B7B577A1BDF789B1C78560EECD08653FC5EB63
 ```
 
 https://mybot314.ru/tekegram_catalog/

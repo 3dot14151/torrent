@@ -1,3 +1,29 @@
+###  Публикация: 1334123   (296471) от 28.10.2019
+
+Брюс / Bruce (2019) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_296471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картина рассказывает историю художника по имени Брюс, который упорно пытается подавить свой собственный талант. Как-то раз он встретил собственную личность в форме семидесяти килограммового воображаемого друга.Производство: США / Christopher Bayon FilmsЖанр: КомедияРежиссер: Phebe SzatmariАктеры: Christopher Bayon, Энтони Гуерино, Evan Altshuler, Kimberly Apadula, Evgeniy Azov, Веллингтон Барриентос, Wellington Barrientos, Chris Bayon, Joanna Bradley, Lauren BrickmanПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:09:33Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEAEE169B8501F3327BEDDC003E6241F6D3C3D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262553   (294712) от 15.11.2018
 
 Тигр / Tiger (2018) WEB-DLRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294712.jpg" />
+  <img src="Z:/picture/008/save_picture_294712.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294684.jpg" />
+  <img src="Z:/picture/008/save_picture_294684.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294664.jpg" />
+  <img src="Z:/picture/008/save_picture_294664.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294534.jpg" />
+  <img src="Z:/picture/008/save_picture_294534.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294525.jpg" />
+  <img src="Z:/picture/008/save_picture_294525.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294510.jpg" />
+  <img src="Z:/picture/008/save_picture_294510.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294507.jpg" />
+  <img src="Z:/picture/008/save_picture_294507.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294468.jpg" />
+  <img src="Z:/picture/008/save_picture_294468.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294436.jpg" />
+  <img src="Z:/picture/008/save_picture_294436.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293321.jpg" />
+  <img src="Z:/picture/008/save_picture_293321.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293314.jpg" />
+  <img src="Z:/picture/008/save_picture_293314.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293306.jpg" />
+  <img src="Z:/picture/008/save_picture_293306.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293303.jpg" />
+  <img src="Z:/picture/008/save_picture_293303.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293300.jpg" />
+  <img src="Z:/picture/008/save_picture_293300.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292893.jpg" />
+  <img src="Z:/picture/008/save_picture_292893.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292878.jpg" />
+  <img src="Z:/picture/008/save_picture_292878.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292792.jpg" />
+  <img src="Z:/picture/008/save_picture_292792.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292785.jpg" />
+  <img src="Z:/picture/008/save_picture_292785.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292783.jpg" />
+  <img src="Z:/picture/008/save_picture_292783.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292688.jpg" />
+  <img src="Z:/picture/008/save_picture_292688.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292682.jpg" />
+  <img src="Z:/picture/008/save_picture_292682.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292563.jpg" />
+  <img src="Z:/picture/008/save_picture_292563.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292557.jpg" />
+  <img src="Z:/picture/008/save_picture_292557.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291383.jpg" />
+  <img src="Z:/picture/008/save_picture_291383.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291215.jpg" />
+  <img src="Z:/picture/008/save_picture_291215.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9FAF6F3D2DBD8CDC1EE8D431AEB30D125AC2A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185540   (290770) от 22.11.2017
-
-6:66 вечера / 6:66 P.M. (2017) HDTVRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съемочная группа реалити-шоу проводит расследование о паронормальных явлениях в загадочном доме, но все становится ужасающей реальностью, когда их начинает преследовать призрак серийного убийцы.Производство: США / Code 3 Films, Full Auto FilmsЖанр: Ужасы, КомедияРежиссер: Джим КлокАктеры: Джим Клок, Чад Риджли, Отем Федеричи, Майкл Буономо, Робин Ф. Бекер, Скотт Буркхардт, Майк КапоцциПеревод: Двуголосый закадровый, любительский (RecentFilms)Субтитры: отсутствуютПродолжительность: 01:22:08Реклама: присутствуют аудио, текстовые и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49DAF3006BBCE8913B6F84379823A87591A87B82
 ```
 
 https://mybot314.ru/tekegram_catalog/

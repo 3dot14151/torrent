@@ -6,7 +6,7 @@ BookReader 5.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807978.jpg" />
+  <img src="Z:/picture/008/save_picture_807978.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nik Complete 4 Collection by DxO v4.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807962.jpg" />
+  <img src="Z:/picture/008/save_picture_807962.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Ember 1.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807836.jpg" />
+  <img src="Z:/picture/008/save_picture_807836.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ Paste 2.2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807492.jpg" />
+  <img src="Z:/picture/008/save_picture_807492.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ RapidWeaver 7.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807483.jpg" />
+  <img src="Z:/picture/008/save_picture_807483.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ One Chat - All in one Messenger 3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807479.jpg" />
+  <img src="Z:/picture/008/save_picture_807479.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Folx Pro 5.2.13682 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807349.jpg" />
+  <img src="Z:/picture/008/save_picture_807349.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ Luminar 1.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807340.jpg" />
+  <img src="Z:/picture/008/save_picture_807340.jpg" />
 </div>
 
 
@@ -233,7 +233,7 @@ Unclutter 2.1.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807333.jpg" />
+  <img src="Z:/picture/008/save_picture_807333.jpg" />
 </div>
 
 
@@ -262,7 +262,7 @@ Ummy Video Downloader 1.53 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807226.jpg" />
+  <img src="Z:/picture/008/save_picture_807226.jpg" />
 </div>
 
 
@@ -289,7 +289,7 @@ DCommander 3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807225.jpg" />
+  <img src="Z:/picture/008/save_picture_807225.jpg" />
 </div>
 
 
@@ -317,7 +317,7 @@ Tales from the Borderlands: Episode 1-2. Zer0 Sum + Atlas Mugged (2015) [Ru/En] 
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807077.jpg" />
+  <img src="Z:/picture/008/save_picture_807077.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ macOS Server 5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806959.jpg" />
+  <img src="Z:/picture/008/save_picture_806959.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Apple MainStage 3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806958.jpg" />
+  <img src="Z:/picture/008/save_picture_806958.jpg" />
 </div>
 
 
@@ -400,7 +400,7 @@ Apple iWork: Keynote 7.1, Numbers 4.1 & Pages 6.1 (upd 27.03.2017) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806732.jpg" />
+  <img src="Z:/picture/008/save_picture_806732.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ Movavi Slideshow Maker 2 v2.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806722.jpg" />
+  <img src="Z:/picture/008/save_picture_806722.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ BusyCal 2021.4.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806524.jpg" />
+  <img src="Z:/picture/008/save_picture_806524.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Project Office Pro 8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806520.jpg" />
+  <img src="Z:/picture/008/save_picture_806520.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ SuperDuper! 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806518.jpg" />
+  <img src="Z:/picture/008/save_picture_806518.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ SSH Config Editor Pro 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806516.jpg" />
+  <img src="Z:/picture/008/save_picture_806516.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ AnyGo 5.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806438.jpg" />
+  <img src="Z:/picture/008/save_picture_806438.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ PDF to Word&Document Converter 6.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806435.jpg" />
+  <img src="Z:/picture/008/save_picture_806435.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ TechSmith Snagit 2021.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806434.jpg" />
+  <img src="Z:/picture/008/save_picture_806434.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Easy Data Transform 1.21.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806433.jpg" />
+  <img src="Z:/picture/008/save_picture_806433.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Wondershare PDFelement Pro 8.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806432.jpg" />
+  <img src="Z:/picture/008/save_picture_806432.jpg" />
 </div>
 
 
@@ -687,7 +687,7 @@ Music Tag Editor 2 v5.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806402.jpg" />
+  <img src="Z:/picture/008/save_picture_806402.jpg" />
 </div>
 
 

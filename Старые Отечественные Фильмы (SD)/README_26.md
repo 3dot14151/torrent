@@ -1,3 +1,55 @@
+###  Публикация: 1524203   (746372) от 14.01.2022
+
+Иванов катер (1972) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746372.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тесном кубрике катера, капитаном которого давно ходит Иван Бурлаков и где матросом работает Еленка, вовсе не в шутку называемая им женой, появляется новый работник - помощник капитана Сергей. Внешне энергичный и открытый, он быстро добивается любви Еленки. И также быстро - увольнения Ивана...Производство: СССР, Киностудия им. М. ГорькогоЖанр: драмаРежиссер: Марк ОсепьянАктеры: Петр Вельяминов, Валентина Талызина, Афанасий Кочетков, Игорь Пушкарев, Евгений Лебедев, Владлен Паулус, Степан Крылов, Антонина Богданова, Вера Ивлева, Владимир СергиенкоСубтитры: ОтсутствуютПродолжительность: 01:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C107A5830A6BE1F262C3026F57C12E0DED250CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282085   (746313) от 11.02.2019
+
+Улица молодости (1958) DVBRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746313.jpg" />
+</div>
+
+
+###  Подробнее
+
+На месте старой окраины - новостройка. Сюда прибывает большая группа выпускников ремесленного училища. Заводила и душа группы - веселый плотник Иван (Владимир Земляникин). Демобилизовавшегося из армии Сергея Назаренко выдвигают в комсорги. Вскоре на стройку прибывает группа девушек из села - и начинается интересная жизнь: сплачивается молодежный коллектив, зарождаются (   Читать дальше...   )Производство: СССР / Одесская киностудияЖанр: ДрамаРежиссер: Феликс МиронерАктеры: Владимир Земляникин, Любовь Стриженова, Николай Ключнев, Инга Будкевич, Лев Борисов, Сергей Курилов, Павел Волков, Александр Лебедев, Николай Сморчков, Евгений ТетеринПродолжительность: 01:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA52A6748D6B393B04CC89C8E73312B0E801D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282289   (744705) от 12.02.2019
 
 Незаконченный ужин (1979) DVBRip [H.264]
@@ -6,7 +58,7 @@
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744705.jpg" />
+  <img src="Z:/picture/008/save_picture_744705.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743894.jpg" />
+  <img src="Z:/picture/008/save_picture_743894.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743674.jpg" />
+  <img src="Z:/picture/008/save_picture_743674.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743549.jpg" />
+  <img src="Z:/picture/008/save_picture_743549.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742266.jpg" />
+  <img src="Z:/picture/008/save_picture_742266.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742138.jpg" />
+  <img src="Z:/picture/008/save_picture_742138.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742133.jpg" />
+  <img src="Z:/picture/008/save_picture_742133.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742054.jpg" />
+  <img src="Z:/picture/008/save_picture_742054.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_741943.jpg" />
+  <img src="Z:/picture/005/save_picture_741943.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741431.jpg" />
+  <img src="Z:/picture/008/save_picture_741431.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740855.jpg" />
+  <img src="Z:/picture/008/save_picture_740855.jpg" />
 </div>
 
 
@@ -294,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740853.jpg" />
+  <img src="Z:/picture/008/save_picture_740853.jpg" />
 </div>
 
 
@@ -320,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740850.jpg" />
+  <img src="Z:/picture/008/save_picture_740850.jpg" />
 </div>
 
 
@@ -346,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740845.jpg" />
+  <img src="Z:/picture/008/save_picture_740845.jpg" />
 </div>
 
 
@@ -372,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740839.jpg" />
+  <img src="Z:/picture/008/save_picture_740839.jpg" />
 </div>
 
 
@@ -398,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740838.jpg" />
+  <img src="Z:/picture/008/save_picture_740838.jpg" />
 </div>
 
 
@@ -424,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740753.jpg" />
+  <img src="Z:/picture/008/save_picture_740753.jpg" />
 </div>
 
 
@@ -450,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740199.jpg" />
+  <img src="Z:/picture/008/save_picture_740199.jpg" />
 </div>
 
 
@@ -476,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740129.jpg" />
+  <img src="Z:/picture/008/save_picture_740129.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740117.jpg" />
+  <img src="Z:/picture/008/save_picture_740117.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740114.jpg" />
+  <img src="Z:/picture/008/save_picture_740114.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740064.jpg" />
+  <img src="Z:/picture/008/save_picture_740064.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740062.jpg" />
+  <img src="Z:/picture/008/save_picture_740062.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737622.jpg" />
+  <img src="Z:/picture/008/save_picture_737622.jpg" />
 </div>
 
 
@@ -618,59 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BEA8DF4882B784D8091C4A7C13581671BEBB58A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526748   (737288) от 27.01.2022
-
-Осенние сны (1987) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737288.jpg" />
-</div>
-
-
-###  Подробнее
-
-В белорусской деревеньке Вешки осталось только трое стариков. Добрая Ганна потеряла на войне мужа и троих детей. Правда, остался еще один сын, но жизнь у него не сложилась - сидит в тюрьме. От сварливого Микиты дети давно сбежали в город. Трудолюбивый Василь тоже давно живет один. Единственный сын лишь изредка шлет отцу письма из далеких краев. У мужиков на все на (   Читать дальше...   )Производство: СССР / БеларусьфильмЖанр: ДрамаРежиссер: Игорь ДобролюбовАктеры: Сергей Плотников, Галина Макарова, Борис Новиков, Александр Лабуш, Александр ТимошкинСубтитры: ОтсутствуютПродолжительность: 01:20:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B9F7E09FFBA59A77CB754AF18F1B74853EEAD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787332   (736670) от 17.05.2014
-
-Последнее дело комиссара Берлаха (2 серии) (1972) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двухсерийный политический детектив по мотивам повести Фридриха Дюренматта "Подозрение".
-Комисар полиции Берлах (Николай Симонов) в послевоенной Швейцарии разыскивает скрывающихся нацистских преступников. Узнав, что под вымышленным именем одной из клиник руководит бывший врач-нацист, тяжело больной Берлах определяется туда на лечение...Жанр: Драма, триллер, детективРежиссер: Василий ЛевинАктеры: Николай Симонов, Андрей Попов, Николай Волков старший, Светлана Коркошко, Николай Гринько, Ева Мурниеце, Людмила Войнова-Крутикова, Артур Димитерс, Волдемар Акуратерс, Александр Бениаминов, Улдис Ваздикс, Игорь Варпа, Лидия Пупуре, Вольдемар Дудиньш, Раиса Лунёва, Арис Розенталь, Паул БуткевичПродолжительность: 01:02:28 + 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B706E008302F229DDD12F0AA03F414609FD0DD22
 ```
 
 https://mybot314.ru/tekegram_catalog/

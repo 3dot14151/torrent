@@ -6,7 +6,7 @@
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_410216.jpg" />
+  <img src="Z:/picture/008/save_picture_410216.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_408246.jpg" />
+  <img src="Z:/picture/008/save_picture_408246.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407858.jpg" />
+  <img src="Z:/picture/008/save_picture_407858.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390299.jpg" />
+  <img src="Z:/picture/008/save_picture_390299.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388800.jpg" />
+  <img src="Z:/picture/008/save_picture_388800.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387621.jpg" />
+  <img src="Z:/picture/008/save_picture_387621.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379213.jpg" />
+  <img src="Z:/picture/008/save_picture_379213.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ History Channel. Президенты на войне / Presidents at War (2019)
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376597.jpg" />
+  <img src="Z:/picture/008/save_picture_376597.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ History Channel. Президенты на войне / Presidents at War (2019)
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376593.jpg" />
+  <img src="Z:/picture/008/save_picture_376593.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376375.jpg" />
+  <img src="Z:/picture/008/save_picture_376375.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376326.jpg" />
+  <img src="Z:/picture/008/save_picture_376326.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375215.jpg" />
+  <img src="Z:/picture/008/save_picture_375215.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372589.jpg" />
+  <img src="Z:/picture/008/save_picture_372589.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370686.jpg" />
+  <img src="Z:/picture/008/save_picture_370686.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367328.jpg" />
+  <img src="Z:/picture/008/save_picture_367328.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_360848.jpg" />
+  <img src="Z:/picture/008/save_picture_360848.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_359860.jpg" />
+  <img src="Z:/picture/008/save_picture_359860.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353427.jpg" />
+  <img src="Z:/picture/008/save_picture_353427.jpg" />
 </div>
 
 
@@ -484,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349831.jpg" />
+  <img src="Z:/picture/008/save_picture_349831.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347663.jpg" />
+  <img src="Z:/picture/008/save_picture_347663.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344499.jpg" />
+  <img src="Z:/picture/008/save_picture_344499.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344393.jpg" />
+  <img src="Z:/picture/008/save_picture_344393.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342214.jpg" />
+  <img src="Z:/picture/008/save_picture_342214.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339750.jpg" />
+  <img src="Z:/picture/008/save_picture_339750.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339522.jpg" />
+  <img src="Z:/picture/008/save_picture_339522.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Личности в истории
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338859.jpg" />
+  <img src="Z:/picture/008/save_picture_338859.jpg" />
 </div>
 
 

@@ -1,3 +1,119 @@
+###  Публикация: 1696631   (119441) от 03.02.2024
+
+Время Сов - 2 Albums (2019-2024) [MP3|320 Kbps] <Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Среди Песков (05:53)
+02. Маяк (04:20)
+03. Скелеты В Шкафу (03:18)
+04. Проклятие Полной Луны (Рассвет) (06:25)(   Читать дальше...   )Жанр: Rock, Female-VocalПродолжительность: 01:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E56D1B82524AC5A3CFEFDDEC89BDFC482C8544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697621   (118306) от 10.02.2024
+
+Рок-мюзикл Пирамида - Акт I. Пламя жизни (2023) [MP3|320 Kbps] <Rock, Musical, Opera>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Менас и Гелос, сыновья правителя Гипербореи, готовятся ко Дню Назначения — судьбоносному ритуалу, который определит, кто из них удостоится чести получить титул наследника престола. Каждый из них должен усердно учиться, чтобы быть готовым перенять от отца важнейшее знание рода правителей — высшую магию Пламени Жизни. С помощью этих чар государь может влиять на жизненную (   Читать дальше...   )01. Увертюра [2:31]
+02. Пламя жизни [4:59]
+03. Тайные знания [3:43]
+04. Западня [3:46](   Читать дальше...   )Жанр: Rock, Musical, OperaПродолжительность: 03:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B482AF1EFDD9458E6126F55F2FD0B6911AEDEB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697608   (118293) от 10.02.2024
+
+Джоконда - Последний закон (2024) [MP3|320 Kbps] <Symphonic Rock, Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тёмные времена [1:40]
+02. Последний закон [4:46]
+03. Трикстер [4:37]
+04. Страдивари [5:06](   Читать дальше...   )Жанр: Symphonic Rock, Symphonic Metal, Female VocalПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7EB08189941B60280BDD1F7ECE5D4592DAC8F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699015   (118129) от 11.02.2024
+
+VA - Митьковские песни. На море танки грохотали (1997) [MP3|320 Kbps] <Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. С. Чиграков - На поле танки грохотали
+02. Александр Ф. Скляр - Молодой моряк
+03. Б. Гребенщиков - Лейся песня
+04. В. Бутусов - По морям-по волнам(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB950A3CC461B4E642161A8FA5647A27CEAF5BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698910   (118122) от 11.02.2024
 
 Год Змеи - Рио и Токио (2024) [MP3|320 Kbps] <Alternative Rock, Post-Grunge>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118122.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118092.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118092.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117503.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117232.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114939.jpg" />
 </div>
 
 
@@ -153,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114172.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114172.jpg" />
 </div>
 
 
@@ -182,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113228.jpg" />
 </div>
 
 
@@ -211,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112488.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112488.jpg" />
 </div>
 
 
@@ -240,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112022.jpg" />
 </div>
 
 
@@ -269,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111886.jpg" />
 </div>
 
 
@@ -298,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111885.jpg" />
 </div>
 
 
@@ -327,7 +443,7 @@ The Papriks - Хиты на лопате (2020) [MP3|320 Kbps] <Ska, Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111792.jpg" />
 </div>
 
 
@@ -356,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111485.jpg" />
 </div>
 
 
@@ -385,7 +501,7 @@ Amalgama - Mastermind (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111248.jpg" />
 </div>
 
 
@@ -414,7 +530,7 @@ Pale Revenant - Гибель Солнца (2024) [MP3|320 Kbps] <Metalcore>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110993.jpg" />
 </div>
 
 
@@ -443,7 +559,7 @@ The Architect - Savage Rhythms (2024) [MP3|320 Kbps] <Nu Metal, Alt. Metal, Hard
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110992.jpg" />
 </div>
 
 
@@ -472,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110583.jpg" />
 </div>
 
 
@@ -501,7 +617,7 @@ soundlea - Юность под землёй (2024) [MP3|320 Kbps] <Indie Rock, S
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110226.jpg" />
 </div>
 
 
@@ -530,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110110.jpg" />
 </div>
 
 
@@ -559,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109800.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109800.jpg" />
 </div>
 
 
@@ -588,7 +704,7 @@ Hexe - Дурак (2024) [MP3|320 Kbps] <Alternative>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109783.jpg" />
 </div>
 
 
@@ -617,7 +733,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109775.jpg" />
 </div>
 
 
@@ -631,122 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD1CEEA94A55CBFFE371ED9FECCEE41EA43B3D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723547   (109475) от 16.05.2024
-
-Planeta Vina - Космический Mусорг (2024) [MP3|320kbps] <Post-Grunge, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Света [00:02:28]
-02. Мы скажем вам нет [00:03:21]
-03. Радость повсюду [00:03:33]
-04. Их не остановить [00:03:07](   Читать дальше...   )Жанр: Post-Grunge, Stoner RockПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A3346F5062A7264B0BDB6749F6991FD4FDC16F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744455   (105231) от 23.08.2024
-
-Ze Fish - Душевнородной (2024) [MP3|320 Kbps] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Моя Жизнь [00:03:28]
-02 - Поздно умирать молодым [00:02:46]
-03 - Собирайся, поехали! [00:03:50]
-04 - Море [00:03:00](   Читать дальше...   )Жанр: Pop Rock, Ska, PunkПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:538ABF0D270B2C979263ED985077F503B8DD57F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744467   (105210) от 23.08.2024
-
-Blind Ivy - Satcitananda (2024) [MP3|320 Kbps] <Metalcore, Groove Metal, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro [00:00:49]
-02 - The Point Of No Return [00:04:52]
-03 - In Your Blood [00:03:48]
-04 - Enemy Is Here [00:03:17](   Читать дальше...   )Жанр: Metalcore, Groove Metal, Female VocalsПродолжительность: 00:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:262894C1C1FDEF6311E74475F87B3D3307EC8C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744459   (105055) от 26.08.2024
-
-Hardy - Мир криминала (2024) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Пуля-дура (аудио) [00:05:29]
-02 - На всех парусах (аудио) [00:06:56]
-03 - Звериная душа (аудио) [00:07:27]
-04 - Всё та же злость (аудио) [00:04:01](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8DF043AC17963F14830C8FCFC7FE53A3190E70F
 ```
 
 https://mybot314.ru/tekegram_catalog/

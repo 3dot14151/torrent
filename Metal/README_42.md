@@ -6,7 +6,7 @@ Reptilian Death - The Dawn Of Consummation And Emergence (2013) [MP3|320 Kbps] <
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684341.jpg" />
+  <img src="Z:/picture/008/save_picture_684341.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Nargaroth - Era of Threnody (2017) [MP3|320 Kbps] <Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684339.jpg" />
+  <img src="Z:/picture/008/save_picture_684339.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Doro - Strong and Proud (2016) Live [MP3|320 кб/с] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684302.jpg" />
+  <img src="Z:/picture/008/save_picture_684302.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Limbonic Art - Spectre Abysm (2017) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684232.jpg" />
+  <img src="Z:/picture/008/save_picture_684232.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Danzig - 12Albums+2Live+EP (1988-2010) [MP3|320 kbps]<Heavy Metal/Hard Rock/Indu
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_682644.jpg" />
+  <img src="Z:/picture/005/save_picture_682644.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679700.jpg" />
+  <img src="Z:/picture/008/save_picture_679700.jpg" />
 </div>
 
 
@@ -183,7 +183,7 @@ Widow - Carved In Stone (2016) [MP3|320 Kbps] <Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678609.jpg" />
+  <img src="Z:/picture/008/save_picture_678609.jpg" />
 </div>
 
 
@@ -212,7 +212,7 @@ Ghost - Impera (2022) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678536.jpg" />
+  <img src="Z:/picture/008/save_picture_678536.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Megadeth - Warheads On Foreheads (2019) 3CD, Compilation [MP3|320 Kbps] <Heavy M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678154.jpg" />
+  <img src="Z:/picture/008/save_picture_678154.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Amorphis - Legacy Of Time (2018) Promo CD [MP3|320 Kbps] <Melodic Death Metal, P
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677292.jpg" />
+  <img src="Z:/picture/008/save_picture_677292.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Parkway Drive - Reverence (2018) [MP3|320 кб/с]<Metalcore, Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677131.jpg" />
+  <img src="Z:/picture/008/save_picture_677131.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Dimmu Borgir - Eonian (2018) [MP3|320 Kbps] <Symphonic Black Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677022.jpg" />
+  <img src="Z:/picture/008/save_picture_677022.jpg" />
 </div>
 
 
@@ -357,7 +357,7 @@ Circle Of Contempt - Structures For Creation (2016) [MP3|320 Kbps] <Progressive 
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676674.jpg" />
+  <img src="Z:/picture/008/save_picture_676674.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ Stahlmann - Kinder der Sehnsucht (2019) [MP3|320 Kbps] <Neue Deutsche Harte>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676586.jpg" />
+  <img src="Z:/picture/008/save_picture_676586.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ Battle Beast - No More Hollywood Endings (2019) [MP3|320 Kbps] <Melodic Power Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676323.jpg" />
+  <img src="Z:/picture/008/save_picture_676323.jpg" />
 </div>
 
 
@@ -444,7 +444,7 @@ Motley Crue - The Dirt Soundtrack (2019) [MP3|320 Kbps] <Glam Metal, Hard Rock>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676193.jpg" />
+  <img src="Z:/picture/008/save_picture_676193.jpg" />
 </div>
 
 
@@ -473,7 +473,7 @@ Cellar Darling - 2 Альбома (2017-2019) [MP3|320 кб/с]<Folk-Metal, Fema
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675951.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ Reactory - Heavy (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675009.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Mental Coma - Fragments Of Democracy (2016) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675007.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_675007.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Dramatica - Fall Of Tyranny (2016) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674812.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Omen - Hammer Damage (2016) [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674803.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674803.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Samsas Traum - Leben bedeutet kampfen (2013) 2CD, Compilation [MP3|320 кб/с]<
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674652.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674652.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ Chelsea Grin - Self Inflicted (2016) [MP3|320 Kbps] <Deathcore>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674571.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ Lanfear - The Code Inherited (2016) [MP3|320 Kbps] <Progressive Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674563.jpg" />
 </div>
 
 
@@ -703,7 +703,7 @@ Lacrimosa - Zeitreise (2019) 2CD [MP3|320 Kbps] <Symphonic Gothic Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674071.jpg" />
+  <img src="Z:/picture/008/save_picture_674071.jpg" />
 </div>
 
 
@@ -732,7 +732,7 @@ Gojira - Magma (2016) [MP3|320 Kbps] <Progressive Metal, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673923.jpg" />
+  <img src="Z:/picture/008/save_picture_673923.jpg" />
 </div>
 
 

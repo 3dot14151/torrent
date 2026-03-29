@@ -1,3 +1,55 @@
+###  Публикация: 1461214   (1022026) от 08.04.2021
+
+Тихоокеанский рубеж: Тёмная зона / Pacific Rim: The Black (2021)  WEBRip (сезон 1, серии 1-7 из 7) NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давным-давно из морских пучин восстали гигантские чудовища, но встретили сопротивление егерей — специально разработанных роботов. Время прошло. Теперь монстры наводнили Австралию, и жителям всего континента приходится эвакуироваться. Два подростка — брат с сестрой Тейлор и Хейли — остались, чтобы найти пропавших родителей. Они обнаруживают старого егеря и учатся (   Читать дальше...   )Производство: США, Австралия / Legendary PicturesЖанр: мультфильм, фантастика, боевикРежиссер: Хироки Хаяси, Джэ Хонг КимАктеры: Гидеон Адлон, Кэлам Уорси, Эрика Линдбек, Виктория Грэйс, Энди МакФи, Александра МакДональд, Джейсон Спайсэк, Леонардо Нам, Камрин ДжонсПеревод: Многоголосый профессиональный (NewStation)Субтитры: отсутствуютПродолжительность: ~00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B9B4B66021CA25F6EB4C4D74B6AF993316F7FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461779   (1021509) от 11.04.2021
+
+Мадагаскар: Маленькие и дикие / Madagascar: A Little Wild (2020) WEB-DLRip [H.264/1080p-LQ] (сезон 1, серии 1 - 6 из 6) Flarrow Films
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультсериал рассказывает о приключениях мадагаскарских героев, льва Алекса, зебры Мартина, гиппопотама Глории и жирафа Мелмана в те времена, когда они были ещё детьми в нью-йоркском зоопарке....Производство: США / DreamWorks AnimationЖанр: мультфильм, мюзикл, комедия, приключения, семейныйРежиссер: Erik Kling, Robert Briggs, Крэйг ДжорджПеревод: Многоголосый профессиональный (Flarrow Films)Субтитры: русские (хардсаб на песни), русскиеПродолжительность: 6x 00:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF09125413CEF4DF8616E5DE67FC9054783187E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 886082   (1019171) от 25.04.2021
 
 Том и Джерри. Полная коллекция / Tom And Jerry. Classic Collection (1940-1967) DVDRip (158 серий) [H.264]
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019171.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018367.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018132.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017400.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017397.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017349.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017216.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016983.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016962.jpg" />
 </div>
 
 
@@ -241,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016699.jpg" />
 </div>
 
 
@@ -267,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016555.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016555.jpg" />
 </div>
 
 
@@ -293,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015844.jpg" />
 </div>
 
 
@@ -319,7 +371,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015600.jpg" />
 </div>
 
 
@@ -345,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015569.jpg" />
 </div>
 
 
@@ -371,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014759.jpg" />
 </div>
 
 
@@ -397,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014742.jpg" />
 </div>
 
 
@@ -423,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014490.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014490.jpg" />
 </div>
 
 
@@ -449,7 +501,7 @@ LEGO Ниндзяго: Мастера кружитцу / Lego Ninjago: Masters o
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1014430.jpg" />
 </div>
 
 
@@ -475,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1012463.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010927.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010472.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010451.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010451.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1010431.jpg" />
 </div>
 
 
@@ -606,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009518.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009518.jpg" />
 </div>
 
 
@@ -617,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F699D65FCE61894F9FADA585F37BB7E5AA605F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481107   (1008393) от 02.07.2021
-
-Вселенная Стивена / Steven Universe (2013-2020) WEB-DL [H.264/1080p] (сезон 1-6, серии 1-180 из 180)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультфильм повествует о Стивене - Пухлом мальчике с тяжёлой судьбой. Он совсем недавно попал в команду кристальных самоцветов, каждый из которых символизирует свой камень. Гранат, Аметист и Жемчуг. Они дали клятву оберегать землю от любых угроз и опасностей, и теперь Стивену предстоит учиться использовать свои магические силы, в чем ему будут помогать верные друзья (   Читать дальше...   )Производство: США / Cartoon NetworkЖанр: Комедия, Музыкальный, Приключения, Рисованная анимацияРежиссер: Йен Джонс-Кварти, Джозеф Д. Джонстон, Кэт МоррисПеревод: Дублированный (Пифагор, SDI Media), Профессиональный многоголосый (Yet Another Studio), Любительский одноголосый (PoKaZh Studios)Язык озвучки: Русский, АнглийскийСубтитры: Русские, Английские (выборочно по сезонам см. Медиаинфо)Продолжительность: ~00:22:30 (~00:11:30, одной серии)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE86CA2195AB28ADFE0E4A5B51086A7263D3384D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482131   (1007681) от 07.07.2021
-
-Том и Джерри в Нью-Йорке / Tom and Jerry in New York (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-7 из 7) TVShows
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спин-офф полнометражного фильма 2021 года «Том и Джерри». Двое самых знаменитых в мире «заклятых друзей» Том и Джерри заселяются в роскошный нью-йоркский отель «Royal Gate» и, разумеется, устраивают безумный хаос по всему городу. К их приключениям присоединятся бульдог Спайк и кот Бутч.Производство: США / Cartoon Network Studios, Renegade Animation, Turner Entertainment, Warner Bros. AnimationЖанр: Минисериал, КомедияРежиссер: Даррел Ван СиттерсАктеры: Грэй Гриффин, Стефен Стэнтон, Рик Зефф, Джои Д’Аурия, Сэм Квасман, Кэти Ли, Дайан Мишель, Дэниэл Росс, Лесли Дэвид Бэйкер, Флула БоргПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: ~00:21:30 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752F5B97BD129AA99E5658A2B5F5EFB523A1CB58
 ```
 
 https://mybot314.ru/tekegram_catalog/

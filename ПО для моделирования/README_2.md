@@ -1,3 +1,82 @@
+###  Публикация: 1122853   (786424) от 07.04.2017
+
+ArCon Eleco Professional 2012.01 [De]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_786424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа ArCon Eleco +2012 предназначена для профессионального дизайна, проектирования и трехмерной визуализации.
+ArCon представляет собой ультрасовременный инструмент для строительства, и поэтому он так популярен среди тех, кто хочет создать, усовершенствовать либо изменить окружающее пространство. Ведь теперь можно увидеть конечный результат уже на стадии проектирования, (   Читать дальше...   )Язык интерфейса: Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505CC0425EF32FC79CECB075341223BCF41253C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205567   (783426) от 10.02.2018
+
+NewTek Lightwave 3D 2018.0.1 Build 3064 + Content [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_783426.jpg" />
+</div>
+
+
+###  Подробнее
+
+LightWave 3D сочетает в себе продвинутую визуализацию с мощным, интуитивно понятным моделированием и средствами анимации . Инструменты, которые могут стоить больших затрат в других профессиональных 3D приложениях, здесь уже входят в комплект поставки. LightWave используются во всем мире, как полное 3D решение для производства художественного фильма и телевизионных (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4E30B3CEBD7E4CF489757E29AEF71AA3E3133A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206213   (782405) от 13.02.2018
+
+Next Limit RealFlow 10.1.2.0162 + Plugins [En]
+
+>>Мультимедиа и Графика
+>>ПО для моделирования
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782405.jpg" />
+</div>
+
+
+###  Подробнее
+
+RealFlow - это отраслевой стандарт для моделирования жидкости, быстрый и простой в использовании, он совместим со всеми основными 3D платформами для создания как безупречно крупных потоков, так и мелких потоков жидкостей быстро и легко! Программа лидер на мировом рынке в создании жидкостей и их анимации.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3705606E7A540580055640DEC372DB1EA00240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209074   (779560) от 24.02.2018
 
 Pilgway 3D-Coat 4.8.10 [Multi/Ru]
@@ -6,7 +85,7 @@ Pilgway 3D-Coat 4.8.10 [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779560.jpg" />
 </div>
 
 
@@ -33,7 +112,7 @@ Lightmap HDRLightStudio Carbon 5.5.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778926.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ Mixamo Fuse Character Creator 1.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778131.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ Flora3D 2014.06.14 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777853.jpg" />
 </div>
 
 
@@ -111,7 +190,7 @@ Reallusion CrazyTalk Animator 3.22.2426.1 Pipeline + Resource Pack [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774008.jpg" />
+  <img src="Z:/picture/008/save_picture_774008.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ Autodesk Mudbox 2019 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772637.jpg" />
+  <img src="Z:/picture/008/save_picture_772637.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ Itoo Forest Pack Pro 6.3.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769275.jpg" />
+  <img src="Z:/picture/008/save_picture_769275.jpg" />
 </div>
 
 
@@ -189,7 +268,7 @@ Snap To Floor 1.3 for Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765947.jpg" />
+  <img src="Z:/picture/008/save_picture_765947.jpg" />
 </div>
 
 
@@ -215,7 +294,7 @@ MaxToC4D 3.4 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740516.jpg" />
+  <img src="Z:/picture/008/save_picture_740516.jpg" />
 </div>
 
 
@@ -241,7 +320,7 @@ DropToSlate 1.29 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_735353.jpg" />
+  <img src="Z:/picture/008/save_picture_735353.jpg" />
 </div>
 
 
@@ -267,7 +346,7 @@ Guruware Ivy generator 0.976b [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731358.jpg" />
+  <img src="Z:/picture/008/save_picture_731358.jpg" />
 </div>
 
 
@@ -294,7 +373,7 @@ Remograph Remo 3D v2.1 [Английский]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_725644.jpg" />
+  <img src="Z:/picture/005/save_picture_725644.jpg" />
 </div>
 
 
@@ -320,7 +399,7 @@ E-on Vue xStream 2016 R2 Build 104398 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719994.jpg" />
+  <img src="Z:/picture/008/save_picture_719994.jpg" />
 </div>
 
 
@@ -346,7 +425,7 @@ Nevercenter Silo Professional 2.5.3 (x64) [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719233.jpg" />
+  <img src="Z:/picture/008/save_picture_719233.jpg" />
 </div>
 
 
@@ -372,7 +451,7 @@ RappaTools 3.41 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715862.jpg" />
+  <img src="Z:/picture/008/save_picture_715862.jpg" />
 </div>
 
 
@@ -398,7 +477,7 @@ E-on PlantFactory Producer 2016 R2 Build 104398 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714047.jpg" />
+  <img src="Z:/picture/008/save_picture_714047.jpg" />
 </div>
 
 
@@ -424,7 +503,7 @@ Anatomy360 - Male and Female Bundle 5.4.1 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692735.jpg" />
+  <img src="Z:/picture/008/save_picture_692735.jpg" />
 </div>
 
 
@@ -450,7 +529,7 @@ Topowire 1.0 For Cinema 4D [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691052.jpg" />
+  <img src="Z:/picture/008/save_picture_691052.jpg" />
 </div>
 
 
@@ -476,7 +555,7 @@ Syflex 1.0 for Cinema 4D R20 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689796.jpg" />
+  <img src="Z:/picture/008/save_picture_689796.jpg" />
 </div>
 
 
@@ -502,7 +581,7 @@ Reeper 2.03 For Cinema 4D [Multi/Ru]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688933.jpg" />
+  <img src="Z:/picture/008/save_picture_688933.jpg" />
 </div>
 
 
@@ -528,7 +607,7 @@ VisiCon 1.1 SE [русский]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_665625.jpg" />
+  <img src="Z:/picture/005/save_picture_665625.jpg" />
 </div>
 
 
@@ -554,7 +633,7 @@ ArchvizTools - Backdrop Generator 1.0 [En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662018.jpg" />
+  <img src="Z:/picture/008/save_picture_662018.jpg" />
 </div>
 
 
@@ -580,7 +659,7 @@ CrazyTalk 7.32.3114.1 Pro + Custom Content Packs Repack by Kindly [Ru/En]
 >>ПО для моделирования
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658393.jpg" />
+  <img src="Z:/picture/008/save_picture_658393.jpg" />
 </div>
 
 
@@ -591,88 +670,6 @@ CrazyTalk — новая обновленная и улучшенная верс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F16F15F7FC016D544BCB644EA169C280A780FC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906746   (643235) от 09.06.2015
-
-Anim8or 0.9.8.0 Portable [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для 3D моделирования и анимации. При таком малом объеме предоставляет возможности, сравнимые с профессиональными программами моделирования и анимации. Интерфейс не совсем привычен для тех, кто раньше работал с профессиональными программами, придется повозится с освоением. Из недостатков можно отметить не полную поддержку кириллических шрифтов (например, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CC4ACDE9E068B479988B2218934F2009159E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522960   (620126) от 14.07.2012
-
-MultiTexture Map 1.0.2 для 3DS Max 9, 2008, 2009, 2010, 2011, 2012, 2013 x86/x64 [Eng]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_620126.jpg" />
-</div>
-
-
-###  Подробнее
-
-MultiTexture Map представляет собой плагин для 3DS Max, который загружает несколько растровых текстур и назначает их случайным (random) образом либо по объектам, либо по ID материала. Позволяет изменять настройки гаммы, цветового тона и насыщенности случайным образом.
-Плагин совместим со Scanline, Vray, Brazil и FinalRender. MentalRay в настоящее время не поддерживается.
-
-Незаменимая вещь для работы с текстуризацией полов, плитки, массивов объектов, листвы деревьев и т.п.Название программы: MultiTexture MapЯзык интерфейса: Eng
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038101   (607782) от 27.07.2016
-
-Nitro4D NitroBlast 2.0.2 for Cinema 4D  [En]
-
->>Мультимедиа и Графика
->>ПО для моделирования
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый плагин для гидроразрыва от создателя Thrausi и Catastrophe теперь полностью автоматический , Nitroblast написан с нуля, чтобы быть быстрее, больше , мощнее и лучше со всех точек зрения , чем предыдущие плагины для гидроразрыва .
-Несмотря на то что этот плагин на много мощней предыдущих , он был разработан с простым в использовании интерфейсом . Особенности (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F088B0D420FC1B0222A77CD15CA2C2DA4272D604
 ```
 
 https://mybot314.ru/tekegram_catalog/

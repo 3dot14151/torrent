@@ -1,3 +1,125 @@
+###  Публикация: 549345   (463032) от 20.09.2012
+
+Sally Night - Love For Sale (2012) [FLAC|Lossless]<Jazz, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funny Valentine [04:25]
+02. Love For Sale [04:04]
+03. Wisper Not [02:50]
+04. Angel Eyes [04:52]
+05. It's Alright With Me [03:57]
+06. Black Coffee [06:16]
+07. Tendery [04:10]
+08. Just You Just Me [02:19]
+09. Bossa Medley [06:06]
+10. The Lady Is A Tramp [03:51](   Читать дальше...   )Жанр: Jazz, VocalПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941027   (463012) от 27.09.2015
+
+Jacky Terrasson - Take This (2015) /Universal/[FLAC|tracks+.cue]<Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Kiff [03:38]
+02.Un Poco Loco [04:18]
+03.Take Five (Take 1) [05:16]
+04.Come Together [03:28](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC160248444A13523DE47A00696ED9A8C001DBE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941205   (462998) от 27.09.2015
+
+Herb Alpert - Come Fly With Me (2015) [FLAC|tracks|WEB-DL]<Smooth Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_462998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Fly With Me (2:38)
+02. Blue Skies (3:36)
+03. Got A Lot Of Livin' To Do (3:01)
+04. Cheeky (3:22)(   Читать дальше...   )Жанр: Smooth Jazz, PopПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FF1B0D659A61886D5C507B81E16204F7706115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407549   (462888) от 09.09.2020
+
+Lena Horne - The Young Star (1941 - 1944) 2002, BMG [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_462888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stormy Weather [3:25]
+02. What Is This Thing Called Love? [2:43]
+03. Ill Wind (You're Blowin' Me No Good) [2:33]
+04. The Man I Love [3:23](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3F7862FCDC1BC9FD9132DAF1204EAA8802B421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549496   (462868) от 20.09.2012
 
 VA - Smooth Jazz Hits for Lovers (2012) [FLAC|Lossless]<Jazz>
@@ -6,7 +128,7 @@ VA - Smooth Jazz Hits for Lovers (2012) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462868.jpg" />
+  <img src="Z:/picture/008/save_picture_462868.jpg" />
 </div>
 
 
@@ -41,7 +163,7 @@ Martin Denny - The Exotic Sounds of Martin Denny (1996) 2CD /Capitol Records/[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462861.jpg" />
+  <img src="Z:/picture/008/save_picture_462861.jpg" />
 </div>
 
 
@@ -70,7 +192,7 @@ Rufus Harley - King / Queens (1970) /2013, Warner/[FLAC|tracks+.cue]<Post-Bop, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462859.jpg" />
+  <img src="Z:/picture/008/save_picture_462859.jpg" />
 </div>
 
 
@@ -99,7 +221,7 @@ June Christy with The Lou Levy Sextet - Impromptu (1977) 1992, Discovery Records
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462767.jpg" />
+  <img src="Z:/picture/008/save_picture_462767.jpg" />
 </div>
 
 
@@ -128,7 +250,7 @@ Bob Berg - Back Roads (1991) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462765.jpg" />
+  <img src="Z:/picture/008/save_picture_462765.jpg" />
 </div>
 
 
@@ -157,7 +279,7 @@ Tessa Souter - Nights Of Key Largo (2008) Venus Records [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462750.jpg" />
+  <img src="Z:/picture/008/save_picture_462750.jpg" />
 </div>
 
 
@@ -186,7 +308,7 @@ Duke Ellington - An Intimate Piano Session (1969 - 1972) 2017, Storyville [FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462749.jpg" />
+  <img src="Z:/picture/008/save_picture_462749.jpg" />
 </div>
 
 
@@ -215,7 +337,7 @@ Alexis Cole & Bucky Pizzarelli - A Beautiful Friendship (2015) [FLAC|image+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462727.jpg" />
+  <img src="Z:/picture/008/save_picture_462727.jpg" />
 </div>
 
 
@@ -244,7 +366,7 @@ Freddie Fox - Limitless (2020) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462595.jpg" />
+  <img src="Z:/picture/008/save_picture_462595.jpg" />
 </div>
 
 
@@ -273,7 +395,7 @@ T-Square - Yes, No (1988) Sony Music[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462278.jpg" />
+  <img src="Z:/picture/008/save_picture_462278.jpg" />
 </div>
 
 
@@ -302,7 +424,7 @@ Papik & Le Lune - Liberi (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461959.jpg" />
+  <img src="Z:/picture/008/save_picture_461959.jpg" />
 </div>
 
 
@@ -331,7 +453,7 @@ Harry Babasin And Bob Enevoldsen - Jazz In Hollywood (1954, 1955) 1997, Nocturne
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461956.jpg" />
+  <img src="Z:/picture/008/save_picture_461956.jpg" />
 </div>
 
 
@@ -360,7 +482,7 @@ V.A. - You're My Everything Endless Love Sweet Tunes Pleasure Playlist (2022) [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461941.jpg" />
+  <img src="Z:/picture/008/save_picture_461941.jpg" />
 </div>
 
 
@@ -389,7 +511,7 @@ J.J. Johnson & Nat Adderley - Yokohama Concert (1977) 2CD, 1997, Pablo Records [
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461571.jpg" />
+  <img src="Z:/picture/008/save_picture_461571.jpg" />
 </div>
 
 
@@ -418,7 +540,7 @@ Marius Neset - Golden Xplosion! (2011) Edition Records [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461511.jpg" />
+  <img src="Z:/picture/008/save_picture_461511.jpg" />
 </div>
 
 
@@ -447,7 +569,7 @@ Masabumi Kikuchi Trio - Sunrise (2009) 2012, ECM Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461509.jpg" />
+  <img src="Z:/picture/008/save_picture_461509.jpg" />
 </div>
 
 
@@ -476,7 +598,7 @@ Opa - Goldenwings (1976) /1996, BMG Ariola/ [FLAC|tracks+.cue]<World Fusion, Eth
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460291.jpg" />
+  <img src="Z:/picture/008/save_picture_460291.jpg" />
 </div>
 
 
@@ -505,7 +627,7 @@ Paul Quinichette - On The Sunny Side (1957) /1996, OJC/ [FLAC|tracks+.cue]<Mains
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460290.jpg" />
+  <img src="Z:/picture/008/save_picture_460290.jpg" />
 </div>
 
 
@@ -534,7 +656,7 @@ Elvin Jones - In Europe (1991) /2005, Enja/ [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460289.jpg" />
+  <img src="Z:/picture/008/save_picture_460289.jpg" />
 </div>
 
 
@@ -562,7 +684,7 @@ Karin & Mike Kelleher - Melange (2015) [FLAC|image+.cue]<Vocal Jazz, Classical>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460288.jpg" />
+  <img src="Z:/picture/008/save_picture_460288.jpg" />
 </div>
 
 
@@ -591,7 +713,7 @@ VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 1 (2020) [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_460230.jpg" />
+  <img src="Z:/picture/008/save_picture_460230.jpg" />
 </div>
 
 
@@ -620,7 +742,7 @@ Patti Austin And James Morrison - Ella & Louis (2017) 2CD, ABC Jazz [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459927.jpg" />
+  <img src="Z:/picture/008/save_picture_459927.jpg" />
 </div>
 
 
@@ -634,122 +756,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:783EE4E82C84407440BD1B0796FACC23B7282A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059891   (459437) от 05.10.2016
-
-Level 42 - Standing In The Light (1983) [FLAC|Lossless|image + .cue] <Jazz-Rock, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Micro-Kid (4:44)
-02. The Sun Goes Down (Living It Up) (4:15)
-03. Out Of Sight, Out Of Mind (5:12)
-04. Dance On Heavy Weather (4:27)(   Читать дальше...   )Жанр: Jazz-Rock, Jazz-FunkПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246D7A5C35915D2E665539875966F6979DF0F257
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162395   (459273) от 01.09.2017
-
-Wayne Shorter - Joy Ryder (1988) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy Ryder (6:39)
-02. Cathay (6:25)
-03. Over Shadow Hill Way (6:03)
-04. Anthem (4:20)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9519F25E16441AE1DEC29B57302719E79F2AA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162400   (459271) от 01.09.2017
-
-Weather Report - Heavy Weather (1977) Remaster, 1991, Columbia [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birdland (5:59)
-02. A Remark You Made (6:52)
-03. Teen Town (2:53)
-04. Harlequin (4:00)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69ABD9B89302244B911CF5E58F094ED630669411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246797   (459243) от 12.09.2018
-
-Art Blakey & The Jazz Messengers - Live At Sweet Basil (1985) 2015, King Record [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jodi [12:28]
-02. Blues March [12:20]
-03. Mr. Babe [12:00]
-04. Moanin' [10:57]Жанр: Hard BopПродолжительность: 00:47:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30840F72CC62A3D361A291028FF1614F5594647
 ```
 
 https://mybot314.ru/tekegram_catalog/

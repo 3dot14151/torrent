@@ -1,4 +1,84 @@
 https://t.me/izofen
+###  Публикация: 1861269   (1062593) от 
+
+Татьяна Мужицкая, Михаил Лабковский и др. | Зоопарк в твоей голове. 25 психологических синдромов, которые мешают нам жить (2023) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в мире путеводитель по психологическим синдромам. В него вошли статьи как про всем известные синдромы, вроде самозванца, отличника и спасателя, так и про те, о которых редко можно прочитать в открытых источниках. Например, о синдроме сбитого летчика, пустого гнезда, мачехи принцессы или уточки. Авторы статей – популярные российские психологи: Татьяна Мужицкая, (   Читать дальше...   )Жанр: Практическая психологияИздательство: ЭксмоФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4319D29449EEC84F47041654CD465A38BBFA651A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861315   (1062527) от 
+
+Татьяна Мужицкая, Майя Богданова и др. | Зоопарк в твоей голове 2.0. Еще 25 психологических синдромов, которые мешают нам жить (2024) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая часть нашумевшего путеводителя по психологическим синдромам!
+«Зоопарк в твоей голове» вошел в ТОП самых продаваемых книг в категории нон-фикшн по версии Forbes и занял призовое место в номинации «Книга года».
+«Зоопарк в твоей голове 2.0» – целый парад синдромов, описание которых вы не найдете в учебниках психиатрии и справочниках по психологии. О них нам рассказывают (   Читать дальше...   )Жанр: Практическая психологияИздательство: БомбораФормат: PDF, FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5227220D5DCFC54CCA19DD53F141D0F11BFF719A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860982   (1062242) от 
+
+Андрей Миллиардов | Сила привычек. Как формировать полезные привычки, которые остаются (2025) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это вдохновляющее и глубоко практическое руководство по созданию устойчивых изменений в жизни. Основанная на научных открытиях и реальных примерах, книга раскрывает, как привычки формируются, почему одни из них исчезают, а другие становятся частью нашей личности, и как осознанно выстраивать повседневные ритуалы, которые действительно работают. Эта книга поможет вам (   Читать дальше...   )Жанр: Нон-фикшн. Литература по саморазвитиюИздательство: СамиздатФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF560339452AA00B6137D596250A64E6C17F3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860025   (1061642) от 
 
 Антон Сорвачев | Матриархальный код (2026) [FB2, FB3, PDF, EPUB, MOBI, TXT, RTF]
@@ -7,7 +87,7 @@ https://t.me/izofen
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061642.jpg" />
+  <img src="Z:/picture/005/save_picture_1061642.jpg" />
 </div>
 
 
@@ -36,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061499.jpg" />
+  <img src="Z:/picture/005/save_picture_1061499.jpg" />
 </div>
 
 
@@ -62,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061496.jpg" />
+  <img src="Z:/picture/005/save_picture_1061496.jpg" />
 </div>
 
 
@@ -89,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061492.jpg" />
+  <img src="Z:/picture/005/save_picture_1061492.jpg" />
 </div>
 
 
@@ -115,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060973.jpg" />
+  <img src="Z:/picture/005/save_picture_1060973.jpg" />
 </div>
 
 
@@ -141,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060076.jpg" />
+  <img src="Z:/picture/009/save_picture_1060076.jpg" />
 </div>
 
 
@@ -168,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060046.jpg" />
+  <img src="Z:/picture/009/save_picture_1060046.jpg" />
 </div>
 
 
@@ -197,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060041.jpg" />
+  <img src="Z:/picture/009/save_picture_1060041.jpg" />
 </div>
 
 
@@ -223,7 +303,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059479.jpg" />
+  <img src="Z:/picture/009/save_picture_1059479.jpg" />
 </div>
 
 
@@ -250,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1059473.jpg" />
+  <img src="Z:/picture/009/save_picture_1059473.jpg" />
 </div>
 
 
@@ -276,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059178.jpg" />
+  <img src="Z:/picture/005/save_picture_1059178.jpg" />
 </div>
 
 
@@ -302,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059088.jpg" />
+  <img src="Z:/picture/005/save_picture_1059088.jpg" />
 </div>
 
 
@@ -328,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057660.jpg" />
+  <img src="Z:/picture/005/save_picture_1057660.jpg" />
 </div>
 
 
@@ -354,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057653.jpg" />
+  <img src="Z:/picture/005/save_picture_1057653.jpg" />
 </div>
 
 
@@ -380,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057304.jpg" />
+  <img src="Z:/picture/005/save_picture_1057304.jpg" />
 </div>
 
 
@@ -406,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056811.jpg" />
+  <img src="Z:/picture/005/save_picture_1056811.jpg" />
 </div>
 
 
@@ -432,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056756.jpg" />
+  <img src="Z:/picture/005/save_picture_1056756.jpg" />
 </div>
 
 
@@ -461,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056753.jpg" />
+  <img src="Z:/picture/005/save_picture_1056753.jpg" />
 </div>
 
 
@@ -487,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1056713.jpg" />
+  <img src="Z:/picture/005/save_picture_1056713.jpg" />
 </div>
 
 
@@ -513,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055904.jpg" />
+  <img src="Z:/picture/005/save_picture_1055904.jpg" />
 </div>
 
 
@@ -541,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055901.jpg" />
+  <img src="Z:/picture/005/save_picture_1055901.jpg" />
 </div>
 
 
@@ -567,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055359.jpg" />
+  <img src="Z:/picture/005/save_picture_1055359.jpg" />
 </div>
 
 
@@ -593,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055357.jpg" />
+  <img src="Z:/picture/005/save_picture_1055357.jpg" />
 </div>
 
 
@@ -606,85 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:930F4FC4ACE6F6ADC5557B99DC9CB90AB5340BF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850372   (1054367) от 28.01.2026
-
-Эстанислао Бахрах | Эффективное мышление. Настрой свой мозг на счастье и продуктивность (2022) [PDF, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга призвана развенчать мифы о человеческом мозге, показать, сколько еще неизведанного перед нами, и научить быть более творческими. Из нее вы узнаете об одной из самых ценных способностей нашего мозга – воображать несуществующее и генерировать новые идеи. Книга развеивает все предрассудки, касающиеся функционирования мозга, и демонстрирует, как работают скрытые (   Читать дальше...   )Жанр: Саморазвитие / личностный ростПеревод: с исп. Е. КуприяновойИздательство: MИФФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE6D43E074F7ED1A11176CD130942BCDCB381051
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850200   (1054306) от 26.01.2026
-
-Лука Маццучелли | 86 400 секунд. Как управлять драгоценной валютой, которая лежит у нас на жизненном счету и обнуляется каждую ночь (2025) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054306.jpg" />
-</div>
-
-
-###  Подробнее
-
-У каждого из нас есть ровно 86 400 секунд в сутках. Вопрос в том, как их потратить, чтобы вечером не сожалеть об очередном бесцельно прожитом дне…
-Если вы чувствуете, что время ускользает сквозь пальцы, а жизнь состоит из рутины и бегства за чужими целями, — эта книга для вас. В ней Лука Маццучелли, психолог, психотерапевт и коуч с многолетним опытом, расскажет, (   Читать дальше...   )Жанр: Саморазвитие, Тайм-менеджментИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57FF582A1F6DD34D6BDD95F2AED0B9C8C886081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850199   (1054305) от 26.01.2026
-
-М.А. Сухинина | Квантовая психология. Ключи к твоей реальности (2025) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все мы хотя бы однажды слышали, что мысли материальны. Давайте проверим это! Никаких сложных теорий и многолетних медитаций, потребуется лишь немного времени, концентрация и знания, как это сделать. Вам повезло – последний компонент у вас в руках, вам же остается только открыть эту книгу. Что Вас ждет внутри? Теория квантовой психологии: что это на самом деле, откуда (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC412F1E8E15F9531842A1147647D251A29F897B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1756237   (26747) от 23.02.2025
+
+Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to World`s Strongest Season 3 | Арифурэта: Сильнейший ремесленник в мире [ТВ-3] [2024, TV, 16 из 16] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_26747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение приключений Хадзиме Нагумо, третий сезон!
+Семнадцатилетний Хадзиме Нагумо — типичный отаку. Его жизнь состоит из ночных посиделок за играми и мирного сна за партой во время школьных занятий. Но однажды всё меняется: Хадзиме вместе со всем своим классом попадает в параллельный фэнтезийный мир. Там их встречают как героев и немедленно выдают квест: спасти (   Читать дальше...   )Производство: Япония, студия asreadЖанр: приключения, фэнтези, исекай, эттиРежиссер: Иванага АкираЯзык озвучки: Русский закадровый (Dream Cast), (TVShows), (AniLibria.TV), (SHIZA Project), (KoeKak)Субтитры: Русские надписи, русские (софтсаб), Multi-6Продолжительность: 16 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B426AD3503A7275BD26EBCE645F31A366BF12D61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782677   (26051) от 01.03.2025
 
 Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Парень? [2024, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw+rus
@@ -6,7 +33,7 @@ Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Паре�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_26051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_26051.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25941.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ Kikansha no Mahou wa Tokubetsu Desu | A Returner's Magic Should Be Special | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25662.jpg" />
 </div>
 
 
@@ -86,7 +113,7 @@ Isekai Shoukan wa Nidome Desu | Summoned to Another World for a Second Time | П
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25646.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Gekijouban Spy x Family Code: White | Spy x Family Code: White | Семья шп
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25642.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_25614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_25614.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka V | DanMachi V | В по
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25385.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25325.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ Beyblade Burst Super King | Beyblade Burst Sparking | Бейблэйд Взры�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_25224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_25224.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24974.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24974.jpg" />
 </div>
 
 
@@ -274,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24972.jpg" />
 </div>
 
 
@@ -300,7 +327,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24622.jpg" />
 </div>
 
 
@@ -326,7 +353,7 @@ S Rank Monster no Behemoth Dakedo, Neko to Machigawarete Elf Musume no Pet to Sh
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24436.jpg" />
 </div>
 
 
@@ -352,7 +379,7 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki 2 | How a Realist Hero Rebuilt the King
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_24413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_24413.jpg" />
 </div>
 
 
@@ -378,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_24315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24315.jpg" />
 </div>
 
 
@@ -405,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23996.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23996.jpg" />
 </div>
 
 
@@ -431,7 +458,7 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi | Истoрия o сл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23925.jpg" />
 </div>
 
 
@@ -457,7 +484,7 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta | Kura-Kon | Я жени
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23789.jpg" />
 </div>
 
 
@@ -483,7 +510,7 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23329.jpg" />
 </div>
 
 
@@ -509,7 +536,7 @@ Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23315.jpg" />
 </div>
 
 
@@ -535,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23292.jpg" />
 </div>
 
 
@@ -561,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_23287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23287.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23267.jpg" />
 </div>
 
 
@@ -615,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23259.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23259.jpg" />
 </div>
 
 
@@ -642,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23258.jpg" />
 </div>
 
 
@@ -654,34 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC7F2D1F1DE047654CB5297AB2921628CA90D6FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772460   (23164) от 29.03.2025
-
-Безымянная память [ТВ-2] | Безымянное воспоминание [ТВ-2] | Unnamed Memory Act.2 [2025, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23164.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великой колдунье Тинаше наконец удалось разрушить проклятие, наложенное на принца Оскара. Ну а Оскар, в свою очередь, сумел растопить её сердце, и они сыграли свадьбу с благословения жителей Фарсаса.
-Однако совсем скоро их идиллия прерывается. Оскар случайно активирует магическую сферу и переносится на прошлое целых четыреста лет.
-Зная, какая страшная трагедия произошла (   Читать дальше...   )Производство: Япония / Студия EngiЖанр: приключения, романтика, фэнтезиРежиссер: Миура КадзуяЯзык озвучки: Русский (AniLibria.TV); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D36BC9B46021A9F462BE00846CB120B58767690
 ```
 
 https://mybot314.ru/tekegram_catalog/

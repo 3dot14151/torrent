@@ -1,3 +1,29 @@
+###  Публикация: 1478901   (1009918) от 21.06.2021
+
+Gekijouban Gintama Kanketsuhen: Yorozuya yo Eien Nare | Gintama: Movie 2 | Гинтама (фильм второй) [2013, Movie] BDRip 1080p raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интересно, что бы случилось, если бы Белого Демона никогда не существовало? В один прекрасный день мир сошёл с ума, и теперь Эдо ввергнут в настоящий хаос. Гинтоки Саката отныне живёт в альтернативной реальности, будущем, в котором ему места не нашлось. Но что же случилось с Ёродзуей? А с остальными? Но важнее всего: кто за всем этим стоит? Похоже, Гинтоки снова (   Читать дальше...   )Производство: Япония, SunriseЖанр: Комедия, приключения, полнометражныйРежиссер: Ёити ФудзитаЯзык озвучки: Русский, японскийПродолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D51831BB99385AEF8C331DA9AC6231096D41087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463174   (1009061) от 27.06.2021
 
 Полное погружение: что, если лучшая RPG с полным погружением будет хуже реальности? | Kyuukyoku Shinka Shita Full Dive RPG ga Genjitsu yori mo Kusogee Datt [2021, TV, 12 из 12] WEB-DL 1080p rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009061.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009061.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1008775.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Fruits Basket the Final TV-3 | Корзинка фруктов: Финал ТВ-
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007953.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007953.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita / Я 300 ле
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007938.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Tensura Nikki: Tensei Shitara Slime Datta Ken / The Slime Diaries: That Time I G
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007657.jpg" />
 </div>
 
 
@@ -142,7 +168,7 @@ Zombie Land Saga Revenge / Зомбиленд. Сага [ТВ-2] [2021, TV, 12 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007654.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ Majo Minarai o Sagashite | Looking for Magical Doremi | Дореми: В пои�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1007523.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ Ore dake Haireru Kakushi Dungeon | The Hidden Dungeon Only I Can Enter | Сил�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005975.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1005975.jpg" />
 </div>
 
 
@@ -223,7 +249,7 @@ Kamisama ni Natta hi | The Day I Became a God | День, когда я стал
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004661.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1004661.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ Zoku Natsume Yuujinchou | Тетрадь дружбы Нацумэ [ТВ-2] [200
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003510.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003510.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ Mushishi Tokubetsu Hen: Hihamu Kage | Мастер Муси: Тень, погл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1003509.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ Tales of Vesperia: The First Strike | Сказания Весперии: Пер�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001102.jpg" />
 </div>
 
 
@@ -328,7 +354,7 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001077.jpg" />
 </div>
 
 
@@ -354,7 +380,7 @@ Overlord II | Повелитель [ТВ-2] [2018, TV, 13 ep] BDRip 1080p raw+ru
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984294.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_984294.jpg" />
 </div>
 
 
@@ -380,7 +406,7 @@ Bougyaku Sareta Tamashii no Jukyou | Corpse Party: Tortured Souls | Вечери
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_966920.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ Heisei Tanuki Gassen Ponpoko | Pom Poko | Помпоко: Война танук�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965824.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ Shoujo Shuumatsu Ryokou | Girls' Last Tour | Девушки в Последне�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965822.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965822.jpg" />
 </div>
 
 
@@ -460,7 +486,7 @@ Kill la Kill | Убей или Умри [2011, TV, 24 ep + SP] BDRip 1080p 10-bi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965821.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ Mirai Nikki | The Future Diary | Дневник Будущего [2011, TV, 26 e
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965819.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ Cross Ange: Tenshi to Ryuu no Rondo | Cross Ange: Rondo of Angel and Dragon | К
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962793.jpg" />
 </div>
 
 
@@ -539,7 +565,7 @@ Netoge no Yome wa Onnanoko ja Nai to Omotta? | And You Thought There Is Never a 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961638.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_961638.jpg" />
 </div>
 
 
@@ -566,7 +592,7 @@ Zero kara Hajimeru Mahou no Sho | Grimoire of Zero | Книга Магии дл�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_960289.jpg" />
 </div>
 
 
@@ -592,7 +618,7 @@ Gekijouban Soushuuhen Overlord | Overlord: Fushisha no Ou & Shikkoku no Eiyuu | 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958951.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ Haiyore! Nyaruko-san W | Ползучий Хаос! Няруко-Сан [ТВ-2]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951929.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951929.jpg" />
 </div>
 
 
@@ -644,7 +670,7 @@ Haiyore! Nyaruko-san F | Ползучий Хаос! Няруко-Сан [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951921.jpg" />
 </div>
 
 
@@ -656,32 +682,6 @@ Haiyore! Nyaruko-san F | Ползучий Хаос! Няруко-Сан [ТВ-1]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBBB67AF8D2C9283912A3D006ADDD313383F3BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362095   (950452) от 22.02.2020
-
-Girls und Panzer: Kore ga Hontou no Anzio-sen Desu! | Девушки и Танки: Настоящая Битва за Анцио! [2014, OVA] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950452.jpg" />
-</div>
-
-
-###  Подробнее
-
-OVA, сюжет которой рассказывает о битве против старшей школы Анцио. Хронологически, это 8-ой эпизод TV-сериала.Производство: Actas, ЯпонияЖанр: ПриключенияРежиссер: Мидзусима ЦутомуОзвучка: Одноголосая закадроваяСубтитры: ПолныеПродолжительность: 37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A76FAC130106A9DDAE8FA408DF5957CF36A920
 ```
 
 https://mybot314.ru/tekegram_catalog/

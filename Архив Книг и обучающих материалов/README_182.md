@@ -1,3 +1,29 @@
+###  Публикация: 1169569   (276868) от 30.11.2017
+
+Подшивка журналов | The MagPi (2017) [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_276868.jpg" />
+</div>
+
+
+###  Подробнее
+
+The MagPi - о различных поделках и экспериментах с применением миникомпьютера Raspberry Pi.Жанр: Компьютерные журналыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA22784077FF0D49C1DE95A317292A93D0991C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082453   (276834) от 13.12.2016
 
 Сергей Лукьяненко и др. | Затерянный дозор. Лучшая фантастика 2017 [сборник] (2016) [MP3]
@@ -6,7 +32,7 @@
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276834.jpg" />
+  <img src="Z:/picture/008/save_picture_276834.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276800.jpg" />
+  <img src="Z:/picture/008/save_picture_276800.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Clint Richardson | Подкасты (2010-2018) [MP3] [En]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276461.jpg" />
+  <img src="Z:/picture/008/save_picture_276461.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Patrick Jordan | Подкасты (2017-2018) [MP3] [En]
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276420.jpg" />
+  <img src="Z:/picture/008/save_picture_276420.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276224.jpg" />
+  <img src="Z:/picture/008/save_picture_276224.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275996.jpg" />
+  <img src="Z:/picture/008/save_picture_275996.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275985.jpg" />
+  <img src="Z:/picture/008/save_picture_275985.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275921.jpg" />
+  <img src="Z:/picture/008/save_picture_275921.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275915.jpg" />
+  <img src="Z:/picture/008/save_picture_275915.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274798.jpg" />
+  <img src="Z:/picture/008/save_picture_274798.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274777.jpg" />
+  <img src="Z:/picture/008/save_picture_274777.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_274636.jpg" />
+  <img src="Z:/picture/008/save_picture_274636.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273865.jpg" />
+  <img src="Z:/picture/008/save_picture_273865.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273817.jpg" />
+  <img src="Z:/picture/008/save_picture_273817.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273726.jpg" />
+  <img src="Z:/picture/008/save_picture_273726.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Udemy | Python разработка - с нуля до профессионал�
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273249.jpg" />
+  <img src="Z:/picture/008/save_picture_273249.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273094.jpg" />
+  <img src="Z:/picture/008/save_picture_273094.jpg" />
 </div>
 
 
@@ -458,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272865.jpg" />
+  <img src="Z:/picture/008/save_picture_272865.jpg" />
 </div>
 
 
@@ -486,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272662.jpg" />
+  <img src="Z:/picture/008/save_picture_272662.jpg" />
 </div>
 
 
@@ -513,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272583.jpg" />
+  <img src="Z:/picture/008/save_picture_272583.jpg" />
 </div>
 
 
@@ -540,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272569.jpg" />
+  <img src="Z:/picture/008/save_picture_272569.jpg" />
 </div>
 
 
@@ -567,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272460.jpg" />
+  <img src="Z:/picture/008/save_picture_272460.jpg" />
 </div>
 
 
@@ -593,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272288.jpg" />
+  <img src="Z:/picture/008/save_picture_272288.jpg" />
 </div>
 
 
@@ -620,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_272014.jpg" />
+  <img src="Z:/picture/008/save_picture_272014.jpg" />
 </div>
 
 
@@ -646,7 +672,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271851.jpg" />
+  <img src="Z:/picture/008/save_picture_271851.jpg" />
 </div>
 
 
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:769DDF49D99635987A31C4FD7F73BBD25434B435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273313   (271497) от 25.12.2010
-
-Журнал | Друг собак [декабрь 2010] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271497.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Друг, журнал для тех, кто любит собак» издается с 1990 года. На страницах журнала: описание различных пород собак, советы по уходу и дрессировке той или иной породы, отчеты о проводимых выставках, статьи, посвященные здоровью четвероногих друзей, о лечении и профилактике заболеваний.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BB1161A33455C5CBE5B2764FB544DBE13D63851
 ```
 
 https://mybot314.ru/tekegram_catalog/

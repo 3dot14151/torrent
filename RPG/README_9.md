@@ -1,3 +1,237 @@
+###  Публикация: 989808   (914558) от 23.02.2016
+
+Tales of Zestiria (2015) [Ru/Multi] (1.4.0.0/dlc) Repack R.G. Catalyst
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_914558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не отступайте от того, к чему стремитесь! В эпоху войн и политических распрей вам предстоит принять бремя пастыря и сражаться с тьмой, чтобы защитить мир от зла и воссоединить людей и серафимов. Вместе с Lailah, Lady of the Lake, охраняющей Sacred Blade, и лучшим другом Mikleo Sorey вскоре узнает о появлении некой могучей силы, пока остающейся в тени.Тип издания: RepackРазработчик: BANDAI NAMCO Studio Inc.Жанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42274C1369DB97CE070535144161166A1B7D1D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097775   (911590) от 28.01.2017
+
+KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack MaggotFreddy
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рыцари за Работой - игра, предоставляющая игроку право выбора жанра, в котором он хотел бы играть: RTS или RPG. В богатой и красочной среде, основанной на древнеславянском мире, обогащенной большой долей юмора и фэнтезийности, игроку предстоит столкнуться с волшебниками, доблестными рыцарями, гномами, великанами и даже могущественными драконами.Тип издания: RepackРазработчик: Reality PumpЖанр: Strategy, RPGЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E970DA93C0BA8D8D23A95D06DE1D4A35F628AA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072789   (909660) от 29.01.2017
+
+Tyranny (2016) [Ru/En] (1.0.4.0048/dlc) Repack R.G. Revenants
+
+>>След.
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909660.jpg" />
+</div>
+
+
+###  Подробнее
+
+В игре Tyranny великая битва между добром и злом уже завершилась: силы зла под командованием Владыки Кироса победили. Безжалостные армии Владыки держат в подчинении весь мир, а жители разрушенного войной королевства привыкают к новому порядку..Тип издания: RepackРазработчик: Obsidian EntertainmentЖанр: RPG, Isometric, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3B6A4E572CDC3D641D5F095F3D69BF9FB9D9A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990768   (909266) от 26.02.2016
+
+We Are The Dwarves (2016) [Ru/Multi] (1.0) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет игры повествует о трёх гномах-астронавтах, которые отправились за новым Солнцем для своих соплеменников. Только вместо космического корабля у них механический бур, которым они прокладывают путь в земной тверди. А роль Солнца в их мире играет волшебные камни, источающие магический свет. В зависимости от стиля игрока, персонажи могут либо вступить в открытый (   Читать дальше...   )Тип издания: LicenseРазработчик: Whale Rock GamesЖанр: Action, Adventure, Indie, RPG, StrategyЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAA2789C3B749FDAAE03C776D9B46C928CD2822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490855   (908190) от 26.08.2021
+
+Sword of the Necromancer (2021) [Multi] (2.0.0) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dungeon-crawler Action RPG с элементами roguelike, где Вы можете оживлять побеждённых врагов, чтобы они сражались на Вашей стороне. Превратите своих врагов в союзников, используя запрещённые силы меча некроманта и помогите Таме достичь глубин подземелья, чтобы получить силу, которая смогла бы вернуть Коко из мёртвых. Соберите небольшую армию монстров, вооружитесь (   Читать дальше...   )Тип издания: LicenseРазработчик: Grimorio of GamesЖанр: RPG, Dungeon Crawl, Action, RoguelikeЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Японский, Испанский, Французский и другиеЯзык интерфейса: Английский, Японский, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CFE64AA12E675C017313EA48311D4AF8895F0A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991574   (905663) от 28.02.2016
+
+Torchlight (2009) [Ru/En] (1.15) Repack R.G. Origami
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький шахтерский городок Сумеречный охвачен ужасом. Каждую ночь штольни и подземелья выплескивают на поверхность несметные орды ужасающих монстров. Добыча бесценного магического минерала, Эмбера, под угрозой. Какие силы стоят за срывом работ, что заставляет тварей уничтожать все живое на своем пути? В поисках ответов вам предстоит совершить невероятно опасное (   Читать дальше...   )Тип издания: RepackРазработчик: Runic GamesЖанр: RPG (Rogue, Action), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42430BC09A4FED84CD67F052BC36CFB3945E58ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369030   (904544) от 22.03.2020
+
+NEO Scavenger (2014) [En] (1.15) License GOG
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904544.jpg" />
+</div>
+
+
+###  Подробнее
+
+NEO Scavenger – это игра, где вы должны протянуть на разоренной земле достаточно долго для того, чтобы вам хватило времени понять, кто вы. Каждый ход – это решение, куда идти, где найти припасы и как справиться с проблемами, которые вас поджидают. С каждой минутой ваш желудок пустеет, жажда усиливается, мышцы устают, а температура тела падает в стылом осеннем воздухе. (   Читать дальше...   )Тип издания: LicenseРазработчик: Blue Bottle GamesЖанр: Ролевая игра, Пошаговая, RoguelikeЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BC141F6420D7C1F674945D73440C7925CAD37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369025   (904537) от 22.03.2020
+
+The Surge 2 (2019) [Ru/Multi] (1.40405.1/dlc) License GOG [Premium Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попав в загадочную бурю, ваш самолёт терпит крушение на окраине Джерико. Несколько недель спустя вы приходите в себя в заброшенной городской тюрьме. Закованные в броню солдаты следят за соблюдением военного положения, роботы вышли из-под контроля, а над городом зреет страшная нанитовая буря… Сражайтесь с многочисленными врагами в жестоких и бескомпромиссных боях, (   Читать дальше...   )Тип издания: LicenseРазработчик: Deck13Жанр: Экшены, Ролевые игрыЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BEA6E4FFDD0D9CAEF7664206592B4627601845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099536   (904245) от 01.02.2017
+
+Sea Dogs / Корсары: Проклятие дальних морей (2000) [Ru/En] (1.061) License GOG
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработанные московской компанией «Акелла» - «Корсары» - первая полностью трехмерная игра созданная по мотивам пиратских приключений. Мир игры представлен огромным архипелагом, состоящим из почти двух дюжин островов. На некоторых островах находятся колонии, принадлежащие Англии, Франции или Испании, на других хозяйничают безжалостные пираты.Тип издания: LicenseРазработчик: АкеллаЖанр: Naval, RPG, 3D, 3rd Person, Privateer, TraderЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0193C3DFEC3CB58C86627483D062D0B647A2D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492316   (903426) от 29.08.2021
 
 Baldo: The Guardian Owls (2021) [Ru/Multi] (7256917) License DOGE
@@ -6,7 +240,7 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (7256917) License DOGE
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903426.jpg" />
 </div>
 
 
@@ -32,7 +266,7 @@ Cthulhu Saves Christmas (2019) [En] (2.02) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903041.jpg" />
 </div>
 
 
@@ -58,7 +292,7 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902642.jpg" />
 </div>
 
 
@@ -84,7 +318,7 @@ The Sorceress (2017) [En] (1.0) License PLAZA
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902572.jpg" />
 </div>
 
 
@@ -110,7 +344,7 @@ The Elder Scrolls V: Skyrim (2016) [Ru/Multi] (1.4.2.0.8) SteamRip Let'sPlay [Sp
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900664.jpg" />
 </div>
 
 
@@ -136,7 +370,7 @@ Trulon: The Shadow Engine (2016) [Ru/Multi] (1.0) License FANiSO
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900273.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900273.jpg" />
 </div>
 
 
@@ -162,7 +396,7 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898689.jpg" />
 </div>
 
 
@@ -188,7 +422,7 @@ Fae Tactics (2020) [Multi] (1.010) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898487.jpg" />
 </div>
 
 
@@ -214,7 +448,7 @@ Cosmic Star Heroine (2017) [En] (1.19) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898437.jpg" />
 </div>
 
 
@@ -240,7 +474,7 @@ Icewind Dale (2001) [Ru/En] (1.061/1.42/dlc) License GOG [Complete]
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897008.jpg" />
 </div>
 
 
@@ -266,7 +500,7 @@ Ultimate ADOM - Caverns of Chaos (2021) [Multi] (1.0.0.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893400.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893400.jpg" />
 </div>
 
 
@@ -292,7 +526,7 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891956.jpg" />
 </div>
 
 
@@ -318,7 +552,7 @@ The Forgotten City (2021) [Ru/Multi] (1.2.1) License GOG [Digital Collector's Ed
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_891722.jpg" />
 </div>
 
 
@@ -344,7 +578,7 @@ Disgaea PC: Digital Dood Edition (2016) [En/Multi] (1.0.3) Repack АRMENIAC
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890706.jpg" />
 </div>
 
 
@@ -370,7 +604,7 @@ Shadowrun: Hong Kong (2015) [Ru/En] (3.0.8) License GOG [Extended Edition Deluxe
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890214.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_890214.jpg" />
 </div>
 
 
@@ -396,7 +630,7 @@ Neverwinter Nights: Enhanced Edition (2018) [Ru/En] (80.8193.9/dlc) Repack xatab
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889683.jpg" />
+  <img src="Z:/picture/005/save_picture_889683.jpg" />
 </div>
 
 
@@ -422,7 +656,7 @@ Little King's Story (2016) [En/Multi] (1.0/09.02.2017) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888617.jpg" />
+  <img src="Z:/picture/005/save_picture_888617.jpg" />
 </div>
 
 
@@ -433,240 +667,6 @@ Little King's Story (2016) [En/Multi] (1.0/09.02.2017) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9C8C7D14D4F65A1DB4D713CD4506DC1C112E5A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371774   (887939) от 01.04.2020
-
-Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s) Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Operencia: The Stolen Sun – это красивая фэнтезийная RPG игра, которая вобрала в себя все лучшее из классических ролевых игр от первого лица в жанре Dungeon Crawl, воплотив старый добрый пошаговый геймплей в современном оформлении. В основе сюжета лежит рассказ о похищенном солнечном короле и группе из четырех воинов, которые вознамерились его освободить. Соберите (   Читать дальше...   )Тип издания: RepackРазработчик: Zen StudiosЖанр: Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F890165892D230333258A9A9554BA9C17B9ED84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494861   (885348) от 09.09.2021
-
-Arboria (2021) [En] (1.0.0.1055) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Исследуйте генерируемые в реальном времени подземелья в роли воина-Йотуна, преодолевайте препятствия, используя различные приспособления, уничтожайте врагов с помощью симбиотического оружия и развивайте мутации, чтобы становиться сильнее. Когда Великое Древо поразила болезнь, племя йотунов начало приходить в упадок. В Ваших руках судьба Избранного, которому суждено (   Читать дальше...   )Тип издания: LicenseРазработчик: DreamplantЖанр: RPG, Action, RoguelikeЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C1A74083A8BD247C3E25DB1DFC0C4C20C9D3A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494793   (885324) от 09.09.2021
-
-Encased: A Sci-Fi Post-Apocalyptic RPG (2021) [Ru/Multi] (1.0.906.0546/dlc) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885324.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой классической ролевой игре, использующей вид сверху, вам предстоит сражаться с врагами, исследовать опасные пустоши, развивать своего персонажа и служить одной из сторон, ведущих борьбу за контроль над разоренными территориями, отрезанными от остального мира после чудовищной катастрофы. Вы начинаете игру в одном из пяти подразделений корпорации CRONUS - так (   Читать дальше...   )Тип издания: RepackРазработчик: Dark Crystal GamesЖанр: Adventure (Top-Down), RPG, Strategy, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038E35420D07BEF50F2151A6B5F03C81BCD729E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372433   (884662) от 03.04.2020
-
-Tales of Berseria (2017) [Ru/Multi] (1.48.00#193/dlc) Repack xatab
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884662.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о борьбе эмоций и разума... В Tales of Berseria вы отправитесь в путешествие в поисках себя. Станьте Велвет — в прошлом любящей и доброй девушкой, в сердце которой теперь пылает ненависть. Все изменилось, когда с ней случилась ужасная трагедия, произошедшая за три года до начала действия игры Tales of Berseria. Велвет присоединяется к команде пиратов и путешествует (   Читать дальше...   )Тип издания: RepackРазработчик: BANDAI NAMCO Studios Inc.Жанр: Экшены, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8D84A81B852AFF43537CC0E168FE05E2C6465A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372407   (884572) от 03.04.2020
-
-Operencia: The Stolen Sun (2020) [Ru/Multi] (1.3.0.21540s/dlc) Repack Other s
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Operencia: The Stolen Sun включает в себя всё то, что вы любите в классических играх от первого лица в стиле dungeon crawler и улучшает опыт от олдскульных пошаговых RPG благодаря новым возможностям. Соберите команду запоминающихся персонажей и отправьтесь в путешествие по миру, основанному на мифологиии Центральной Европы, где история переплетается с легендами. (   Читать дальше...   )Тип издания: RepackРазработчик: Zen StudiosЖанр: RPG, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B34985D4E9562357E228E495D37EC3671039765
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495012   (884069) от 10.09.2021
-
-Terrain of Magical Expertise (2021) [Ru/Multi] (7310529) License CODEX
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая ролевая игра с нелинейным сюжетом, оригинальными пошаговыми сражениями и QTE-вставками. Ваш персонаж – игрок вымышленной MMORPG, которая стала популярной во время пандемии (тоже вымышленной, конечно), когда люди сидели дома и играли в игры. Terrain of Magical Expertise вдохновлена популярным анимационным веб-сериалом (не переживайте, не обязательно (   Читать дальше...   )Тип издания: LicenseРазработчик: NEO-C Productions L.L.CЖанр: jRPG, Tactical, AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Китайский (упрощённый)Язык интерфейса: Русский, Английский, Китайский (упрощённый)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D058DB50879D90117674DDAA1995C4C1AD32D64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495113   (881966) от 11.09.2021
-
-Final Fantasy IV (2021) [Ru/Multi] (1.0) License Fairlight
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальная Final Fantasy IV возвращается с новой графикой и звуком в пиксельном 2D-переиздании! Переработанное 2D-издание четвертой игры знаменитой серии Final Fantasy! Нестареющая история, дополненная чарующей графикой в стиле ретро. Вся прелесть оригинала в сочетании с улучшенным управлением. Королевство Барон отправляет элитный воздушный отряд Красные Крылья (   Читать дальше...   )Тип издания: LicenseРазработчик: Square EnixЖанр: jRPGЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8455D0B543376B60E52A2EE08664840ECFB08509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313788   (881300) от 05.04.2020
-
-Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0151/dlc) Repack Other s
-
->>След.
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881300.jpg" />
-</div>
-
-
-###  Подробнее
-
-На ваш родной город напали орки и вы находите себе компанию из троих таких же героев. Вы прячетесь в неизвестном лесу. Вдруг перед вами появляется колдунья, показывает дом неподалеку и утверждает, будто может дать вам еду, воду и кров. Однако, когда вы оказываетесь внутри, она исчезает. Перед входом вы замечаете, что на самом деле это пещера. Затем вы узнаете, что (   Читать дальше...   )Тип издания: RepackРазработчик: HexGameStudioЖанр: Adventure, RPG, Strategy, 3DЯзык озвучки: Английский, КитайскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708A8F719558E32C1CA9AD1D728932842A8969FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373376   (879711) от 06.04.2020
-
-The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst [Deluxe Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгие годы зло таилось во мраке. И теперь оно решило выйти на свет. Кто же сразится с ним, если не вы? Эпическое приключение на 50+ часов, 350 озвученных персонажей, Режим Ностальгии для фанатов жанра и более 100 фоновых музыкальных произведений!Тип издания: RepackРазработчик: inXile EntertainmentЖанр: Ролевая игра, Пошаговая, ФэнтезиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:548B379366EC013E9E1F8F9FD3550C94BD544DEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

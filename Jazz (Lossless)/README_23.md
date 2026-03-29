@@ -1,3 +1,119 @@
+###  Публикация: 972264   (982080) от 06.01.2016
+
+VA - Broadcaster presents Weekend Jazz (2002) Tamura Shigeru[FLAC|image+.cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Night And Day - Kei Kabayashi [02:14]
+02.All Of Me - Carol Sloane [03:59]
+03.Tenderly - Johnny Hartman [03:22]
+04.Have You Met Miss Jones - Sarah Vaughan [02:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A4F56464FAE3CA63E3FB0ACA1BB11E2ABBAEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972760   (982079) от 06.01.2016
+
+Sonny Stitt & Don Patterson - Brothers-4 (1969) Remaster, 2001, Prestige[FLAC|tracks+.cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Brothers-4 [08:57]
+ 02.Creepin' Home [06:55]
+ 03.Alexander's Ragtime Band [08:31]
+ 04.Walk On By [08:39](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF9F867BDFAA5DE2581BB48A308FB100E0AAB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972349   (982077) от 06.01.2016
+
+Sonny Fortune - Serengeti Minstrel (1977) Remaster, 2013, Warner[FLAC|tracks+.cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bacchanal [05:44]
+ 02.The Afro-Americans [07:27]
+ 03.There’s Nothing Smart About Being Stupid [06:51]
+ 04.Not All Dreams Are Real [05:56](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B77B2A0F4ACC91EE365B3249CF7EAF15427633B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972592   (982066) от 06.01.2016
+
+Ike Quebec - Heavy Soul (1961) 1995, Planet[FLAC|tracks+.cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_982066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Acquitted [05:44]
+ 02.Just One More Chance [05:55]
+ 03.Que's Dilemma [04:35]
+ 04.Brother Can You Spare A Dime [05:30](   Читать дальше...   )Жанр: Mainstream Jazz, Hard BopПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949E32EEA158D66F9208242EF7CD711BB9FB6971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 741823   (981835) от 04.01.2014
 
 V.A. - Jazz And Floyd (2013) [FLAC|Lossless]<Jazz>
@@ -6,7 +122,7 @@ V.A. - Jazz And Floyd (2013) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981835.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Various Artists - The Art Of The Ballad (The Best of Mapleshade) (1999) [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981677.jpg" />
 </div>
 
 
@@ -70,7 +186,7 @@ Bruce Ackley Trio - The Hearing (1998) Avant [FLAC|Lossless|tracks + .cue] <Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981213.jpg" />
 </div>
 
 
@@ -99,7 +215,7 @@ Leon Thomas With Oliver Nelson - In Berlin 1970 (2002) BMG [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981157.jpg" />
 </div>
 
 
@@ -128,7 +244,7 @@ Louis Armstrong - African Dreams 1960 - 1962 (2000) 2CD, Milan [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981154.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981154.jpg" />
 </div>
 
 
@@ -157,7 +273,7 @@ Billie Holiday - The Essential Collection, 2CD (2007)  [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981110.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981110.jpg" />
 </div>
 
 
@@ -186,7 +302,7 @@ Brian Culbertson - Colors of Love Tour (Live in Las Vegas) (2019) [FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981107.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981107.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ Talisha Karrer - Jazz Covers Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981098.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_981098.jpg" />
 </div>
 
 
@@ -244,7 +360,7 @@ Masabumi Kikuchi, Masahiko Togashi, Gary Peacock - Poesy: The Man Who Keeps Wash
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980839.jpg" />
 </div>
 
 
@@ -273,7 +389,7 @@ Coleman Hawkins - Night Hawk (1960) Remaster, 2003, Original Jazz Classics[FLAC|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980838.jpg" />
 </div>
 
 
@@ -302,7 +418,7 @@ Chico Hamilton - Peregrinations (1975) Remaster, 2013, EMI Music[FLAC|tracks+.cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980773.jpg" />
 </div>
 
 
@@ -331,7 +447,7 @@ VA - Jazz Masterpieces Remixed (2015) [FLAC|tracks] <Jazz, Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980704.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980704.jpg" />
 </div>
 
 
@@ -360,7 +476,7 @@ Dave's True Story - 4 albums (1993-2005) [APE|Lossless|image + .cue] <Jazz, Fema
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980671.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Benny Goodman - At The Tivoli 1981 (1996) MasterTone [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980569.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ John Coltrane - A John Coltrane Retrospective: The Impulse! Years 1961 - 1967 (1
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980554.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ Jazzamor - Things We Do For Love (Instrumentals) (2013) [FLAC|Lossless|WEB-DL]<A
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980375.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ J. J. Johnson - Blue Trombone (1957) Remaster, 2014, Sony Music[FLAC|tracks+.cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980333.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980333.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Coleman Hawkins - Sirius (1966) 2003, Planet[FLAC|tracks+.cue] <Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980332.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980332.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Art Blakey And The Jazz Messengers - Buhaina (1973) Remaster, 2014, Universal[FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980331.jpg" />
 </div>
 
 
@@ -563,7 +679,7 @@ Howard Alden, Lloyd Ellis, Cal Collins - Famous Door: Ace Guitarists (1976/1978/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980321.jpg" />
 </div>
 
 
@@ -592,7 +708,7 @@ Johnny Griffin & Art Taylor Quartet - The Jamfs Are Coming! (1975/1977) Remaster
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_980319.jpg" />
 </div>
 
 
@@ -620,7 +736,7 @@ Jack Wilson - Something Personal (1966) Remaster, 2015, Universal[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_979323.jpg" />
 </div>
 
 
@@ -634,122 +750,6 @@ Jack Wilson - Something Personal (1966) Remaster, 2015, Universal[FLAC|tracks+.c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42B4D56113B35589ADB082E46FDD203778019D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973653   (979320) от 09.01.2016
-
-Bobby Timmons - Soul Time (1960) 2004, Planet[FLAC|tracks+.cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Soul Time [06:25]
- 02.So Tired [06:18]
- 03.The Touch Of Your Lips [04:17]
- 04.S'posin' [05:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B741D71A67EC297C084AEB763EEA22DD71D47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973712   (979314) от 09.01.2016
-
-Miles Davis - Water Babies (1967-1968) 2002, Columbia[FLAC|tracks+.cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Water Babies [05:08]
- 02.Capricorn [08:30]
- 03.Sweet Pea [08:03]
- 04.Two Faced [18:03](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D6CA72A9B55C500BD738269DD2F2FED02C7E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356332   (979196) от 30.01.2020
-
-Paquito D'Rivera & The United Nation Orchestra - Live at Manchester Craftsmen's Guild (1997) MCG Jazz [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Latin Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tocache [5:36]
-02. King of Cancun [6:33]
-03. Puerto Padre [7:55]
-04. Recife's Blues [4:51](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Latin Jazz, Post-BopПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD6687A23C1343F040BA37F109E252DD95DF2372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356334   (979191) от 30.01.2020
-
-Benny Goodman - The Best of Benny Goodman And His Orchestra 1956 - 1957 (1990) Curb Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Misbehavin' [3:28]
-02. Stompin' at the Savoy [3:18]
-03. Let's Dance [2:17]
-04. When I Grow Too Old to Dream [3:27](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F03E9091889974E247A3026D3EE3B72C7FD11DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

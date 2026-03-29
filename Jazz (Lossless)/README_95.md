@@ -1,3 +1,119 @@
+###  Публикация: 1776701   (735459) от 02.02.2025
+
+Don Patterson - The Genius Of The B-3 (1972) 1991, Muse Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_735459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesse Jackson [7:23]
+02. Theme from the Odd Couple [8:37]
+03. Lori [7:14]
+04. Theme from Love Story [9:59](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAFE5FECABD6F93D1FDDCCD6B76E32EBFD15ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528050   (735404) от 31.01.2022
+
+Trummy Young - 1944 - 1946 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Trombone Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_735404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood [3:35]
+02. Talk Of The Town [4:32]
+03. Good'n Groovy [3:04]
+04. Rattle And Roll [2:55](   Читать дальше...   )Жанр: Swing, Big Band, Trombone JazzПродолжительность: 01:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C8B3017A7465EAD4E9B55C911C55C34E71AE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528309   (734983) от 01.02.2022
+
+Artie Shaw - 1941 - 1942 (2001) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Time The Dream's On Me [3:34]
+02. Blues In The Night [3:15]
+03. Nocturne [3:36]
+04. Rockin' Chair [3:10](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C2C10B314A2AF4B3A7A3D1ED7F7706000792D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1398837   (734806) от 28.07.2020
+
+Dave Brubeck - The Definitive Dave Brubeck on Fantasy, Concord Jazz, and Telarc (1942 - 2004) 2010, 2CD, Concord [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_734806.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. I Found a New Baby [1:38]
+02. The Way You Look Tonight [3:04]
+03. (Back Home Again In) Indiana [2:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Piano JazzПродолжительность: 02:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0D1DB584192B259288C91AB5F45D68231E7FBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398835   (734803) от 28.07.2020
 
 Vince Guaraldi - The Complete Warner Bros.-Seven Arts Recordings (1968 - 1969) 2018, 2CD, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -6,7 +122,7 @@ Vince Guaraldi - The Complete Warner Bros.-Seven Arts Recordings (1968 - 1969) 2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734803.jpg" />
+  <img src="Z:/picture/008/save_picture_734803.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Count Basie - Live At The Savoy (1954) 1989, LaserLight [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734467.jpg" />
+  <img src="Z:/picture/008/save_picture_734467.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Artie Shaw - 1945 - 1946 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734028.jpg" />
+  <img src="Z:/picture/008/save_picture_734028.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Count Basie And His Orchestra - Swingin' At The Chatterbox (1937) 2001, Stardust
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733586.jpg" />
+  <img src="Z:/picture/008/save_picture_733586.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Artie Shaw - 1951 - 1954 (2006) Classics [FLAC|Lossless|tracks + .cue] <Swing, B
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733178.jpg" />
+  <img src="Z:/picture/008/save_picture_733178.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Kenny Barron & Mark Sherman - Interplay (2015) Chesky Records [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732970.jpg" />
+  <img src="Z:/picture/008/save_picture_732970.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ John Lewis & The American Jazz Orchestra - Ellington Masterpieces (1989) EastWes
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732969.jpg" />
+  <img src="Z:/picture/008/save_picture_732969.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Lizz Wright - Fellowship (2010) [FLAC|Lossless]<Vocal Jazz, Gospel>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732809.jpg" />
+  <img src="Z:/picture/008/save_picture_732809.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - Male Jazz Singers: Milestones Of Jazz Legends (1952 - 1962) 10CD, 2017, The
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732734.jpg" />
+  <img src="Z:/picture/008/save_picture_732734.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Eric Alexander - Dead Center (2004) HighNote [FLAC|Lossless|tracks + .cue] <Post
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732233.jpg" />
+  <img src="Z:/picture/008/save_picture_732233.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Kenny Barron - Sunset To Dawn (1973) 1990 [WavPack|Lossless|image + .cue] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732227.jpg" />
+  <img src="Z:/picture/008/save_picture_732227.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Charles Mingus - Complete 1945-1949 West Coast Recordings (2001) Jazz Factory [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732221.jpg" />
+  <img src="Z:/picture/008/save_picture_732221.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Miles Davis - Collectors' Items (1953, 1956) 2004, Prestige [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732219.jpg" />
+  <img src="Z:/picture/008/save_picture_732219.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Jeff Lorber Fusion - Prototype (2017) [FLAC|Lossless|tracks + .cue] <Smooth-Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732162.jpg" />
+  <img src="Z:/picture/008/save_picture_732162.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Chet Baker - The Trumpet Artistry Of Chet Baker (1955) 2018, Universal [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732158.jpg" />
+  <img src="Z:/picture/008/save_picture_732158.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Ambrose Akinmusire - Origami Harvest (2018) [FLAC|Lossless|tracks + .cue] <Conte
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732157.jpg" />
+  <img src="Z:/picture/008/save_picture_732157.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Tethered Moon - Plays Jimi Hendrix+ (1998) Media Rings [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732152.jpg" />
+  <img src="Z:/picture/008/save_picture_732152.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Stan Kenton - Artistry In Bossa Nova (1963) Remaster, 2013, Universal[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732102.jpg" />
+  <img src="Z:/picture/008/save_picture_732102.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ VA - Jazz For Lovers Volume 2 (1993) [APE|Lossless|image + .cue] <Jazz, Blues, S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732085.jpg" />
+  <img src="Z:/picture/008/save_picture_732085.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Low Kick Collective - Kafka (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Fut
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731865.jpg" />
+  <img src="Z:/picture/008/save_picture_731865.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Kenny Barron Quartet - Invitation (1991) [WavPack|Lossless|image + .cue] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731160.jpg" />
+  <img src="Z:/picture/008/save_picture_731160.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Univer
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731157.jpg" />
+  <img src="Z:/picture/008/save_picture_731157.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Univer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:828223038A621EBB4D12FEEF17DF68733A5B2FED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127655   (731155) от 22.04.2017
-
-Valery Ponomarev & Feelin's (2006) Монолит [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Valery Ponomarev [01:14]
-02. Feelin's (I) [04:35]
-03. Cat Dancing on the Piano [04:53]
-04. Take 7 [03:56](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAFC6E9430C19673E81B0D889603095583F6A5B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127600   (731154) от 22.04.2017
-
-Kenny Barron - Sambao (1992) [WavPack|Lossless|image + .cue] <Latin Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731154.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sambao (6:21)
-2. Yalelel (5:51)
-3. Bacchanal (6:38)
-4. Belem (5:43)(   Читать дальше...   )Жанр: Latin Jazz, Post-BopПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E5D8BDAA64649508C2115F0CF27D81468F9400
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127673   (731153) от 22.04.2017
-
-Kahil El'Zabar's Ritual Trio - Africa N' da Blues (2000) Delmark Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ka-Real (Take 2) [12:39]
-02. Africanos / Latinos [09:53]
-03. Miles' Mode [07:22]
-04. Autumn Leaves [11:27](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2377EA61F65D6DF52E0B70FDD4E6439C1EF554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284021   (731104) от 19.02.2019
-
-Pat Flowers - 1945 - 1947 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Not For Me [3:09]
-02. Ain't Misbehavin' [2:39]
-03. Blue Danube [3:03]
-04. Bach Prelude And Fugue [2:27](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5918154C2CE914F2BD30710D77DFA4B08F4CF3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

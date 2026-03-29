@@ -1,3 +1,90 @@
+###  Публикация: 1674872   (160662) от 07.11.2023
+
+Necrophagia - The Divine Art Of Torture (2003) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blaspheme The Body
+02.  Upon Frayed Lips Of Silence
+03.  Parasite Eve
+04.  Maim Attraction(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36L52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E249E29CD2152E84013C53ADA12BAAFF3AFE4DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674854   (160654) от 07.11.2023
+
+Angel Dust - Border Of Reality (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Border Of Reality
+02. No More Faith
+03. Nightmare
+04. Centuries(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B0C7698CA6D14929429F6C4241EF6336CFD72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674864   (160648) от 07.11.2023
+
+Red Harvest - Cold Dark Matter (2000) Promo CD [APE|Lossless|image + .cue] <Industrial Metal, Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omnipotent
+02. Last Call
+03. Absolut Dunkel:heit
+04. Cold Dark Matter(   Читать дальше...   )Жанр: Industrial Metal, Death Metal, Thrash MetalПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F56C75C3BF3C33F446B51BAA6B2252B3DD0F3DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1675119   (160476) от 08.11.2023
 
 Eisbrecher - Antikorper (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
@@ -6,7 +93,7 @@ Eisbrecher - Antikorper (2006) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160476.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160476.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Eisbrecher - Leider / Vergissmeinnicht (2006) [FLAC|Lossless|image + .cue] <Indu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160473.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Eisbrecher - Eisbrecher (2004) [FLAC|Lossless|image + .cue] <Industrial Gothic M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160469.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Battle Born - Battle Born (2020) EP [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160467.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160467.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Eisbrecher - Sunde (2008) [FLAC|Lossless|image + .cue] <Industrial Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160465.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Eisbrecher - Eiszeit (2010) [FLAC|Lossless|image + .cue] <Industrial Gothic Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160464.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Eisbrecher - Eiskalt (2011) 2CD [FLAC|Lossless|image + .cue] <Industrial Gothic 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160461.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160461.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Mayhem - De Mysteriis Dom Sathanas Alive (2016) [FLAC|Lossless|image + .cue] <Bl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160457.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160457.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Eisbrecher - Zehn Jahre Kalt (2014) [FLAC|Lossless|image + .cue] <Industrial Got
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160454.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Tarja - Dark Christmas (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160393.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160393.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Protean Shield - Protean Shield (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Hea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160293.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Dawnrider - Fate Is Calling (Pt. 1) (2005) [FLAC|Lossless|image + .cue] <Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160292.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Adastra - Death Or Domination (2008) [APE|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160225.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Naglfar - Cerecloth (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160216.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Wolfsbane - Massive Noise Injection (1993) Japanese Edition [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160212.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160212.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Lacuna Coil - Comalies XX (2002) 2xCD, Reissue, 2022, Century Media [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_160128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_160128.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Artery Eruption - Gouging Out Eyes of Mutilated Infants (2005) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159972.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159972.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Belial - Wisdom of Darkness (1992) EP [APE|Lossless|image + .cue] <Black, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159971.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159971.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Belial - Wisdom of Darkness (1992) Reissue 2010, Galgenstrang Productions [FLAC|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159968.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Artery Eruption - Artery Eruption & Mangled Atrocity (2004) Split [FLAC|Lossless
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159965.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Seven Witches - Xiled To Infinity And One (2002) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159962.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Seven Witches - Amped (2005) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159958.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Seven Witches - Passage To The Other Side (2003) [FLAC|Lossless|image + .cue] <H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_159954.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Seven Witches - Passage To The Other Side (2003) [FLAC|Lossless|image + .cue] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6479DDA416B402E7A3EC53DA9B59AA9DE5BB2100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675678   (159952) от 10.11.2023
-
-Moonlight Agony - Echoes Of A Nightmare (2004) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into Darkness
-02. Icy Plains
-03. Echoes Of A Nightmare
-04. Ceremony(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D57DC5775353770143DB41D42D10AFAC10DC52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675685   (159950) от 10.11.2023
-
-Seven Witches - Year Of The Witch (2004) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metal Asylum
-02. Year Of The Witch
-03. Fires Below
-04. Cries Of The Living(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838A2FBA8300828BAC1A0CBD6F983B9458260A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675682   (159948) от 10.11.2023
-
-Moonlight Agony - Silent Waters (2007) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_159948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving Solitude
-02. You Betrayed Me
-03. Soulless
-04. Through The Desert Storm(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A960739BD3E262A881D50D2BF035667432202457
 ```
 
 https://mybot314.ru/tekegram_catalog/

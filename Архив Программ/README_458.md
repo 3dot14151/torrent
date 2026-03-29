@@ -6,7 +6,7 @@ WireGuard VPN 0.5.1 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803996.jpg" />
+  <img src="Z:/picture/008/save_picture_803996.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Design
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803978.jpg" />
+  <img src="Z:/picture/008/save_picture_803978.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Folder Guard Pro 18.1.0.2425 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803977.jpg" />
+  <img src="Z:/picture/008/save_picture_803977.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Mp3tag 2.77 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803967.jpg" />
+  <img src="Z:/picture/008/save_picture_803967.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ ICQ 10.0 build 12056 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803966.jpg" />
+  <img src="Z:/picture/008/save_picture_803966.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ SideFx Houdini FX 15.0.416 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803964.jpg" />
+  <img src="Z:/picture/008/save_picture_803964.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803931.jpg" />
+  <img src="Z:/picture/008/save_picture_803931.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ MEmu 7.2.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803909.jpg" />
+  <img src="Z:/picture/008/save_picture_803909.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ K-Lite Codec Pack 15.4.8 Mega/Full/Standard/Basic + Update [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803908.jpg" />
+  <img src="Z:/picture/008/save_picture_803908.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Skype 8.60.0.76 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_803907.jpg" />
+  <img src="Z:/picture/005/save_picture_803907.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Microsoft Windows and Office ISO Download Tool 8.37.0.143 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803899.jpg" />
+  <img src="Z:/picture/008/save_picture_803899.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Windows 10 (v21h1) x64 HSL/PRO by KulHunter v6 (esd) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803865.jpg" />
+  <img src="Z:/picture/008/save_picture_803865.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ FPS Monitor 5400 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803864.jpg" />
+  <img src="Z:/picture/008/save_picture_803864.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.50.5800 Final Repack (& P
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803857.jpg" />
+  <img src="Z:/picture/008/save_picture_803857.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Microsoft Office 2016-2021 LTSC Professional Plus / Standard + Visio + Project 1
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803846.jpg" />
+  <img src="Z:/picture/008/save_picture_803846.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ MKVToolnix 9.1.0 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803715.jpg" />
+  <img src="Z:/picture/008/save_picture_803715.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ AutoPlay Menu Builder 8.0 build 2450 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803622.jpg" />
+  <img src="Z:/picture/008/save_picture_803622.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ USDownloader 1.3.5.9 Portable (30.03.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803548.jpg" />
+  <img src="Z:/picture/008/save_picture_803548.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ AutoHideMouseCursor 2.04 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803537.jpg" />
+  <img src="Z:/picture/008/save_picture_803537.jpg" />
 </div>
 
 
@@ -511,7 +511,7 @@ PointerStick 2.61 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803432.jpg" />
+  <img src="Z:/picture/008/save_picture_803432.jpg" />
 </div>
 
 
@@ -537,7 +537,7 @@ Balabolka 2.11.0.601 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803422.jpg" />
+  <img src="Z:/picture/008/save_picture_803422.jpg" />
 </div>
 
 
@@ -563,7 +563,7 @@ Blackmagic Design Fusion 8.0 Build 18 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803419.jpg" />
+  <img src="Z:/picture/008/save_picture_803419.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ Baidu Antivirus 2015 5.8.0.150821 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803322.jpg" />
+  <img src="Z:/picture/008/save_picture_803322.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ KMS Tools Portable 24.04.2016 by Ratiborus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803315.jpg" />
+  <img src="Z:/picture/008/save_picture_803315.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ MediaInfo 0.7.94 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803282.jpg" />
+  <img src="Z:/picture/008/save_picture_803282.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ KLS Backup 2015 Professional 8.4.4.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803279.jpg" />
+  <img src="Z:/picture/008/save_picture_803279.jpg" />
 </div>
 
 

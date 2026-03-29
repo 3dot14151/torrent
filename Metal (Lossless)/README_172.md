@@ -1,3 +1,90 @@
+###  Публикация: 1575490   (375487) от 10.09.2022
+
+Kalmah - Seventh Swamphony (2013) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_375487.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Seventh Swamphony
+2. Deadfall
+3. Pikemaster
+4. Hollo(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A5C90335F43E17F3E807DC50FDA48E5D415191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254149   (375133) от 13.10.2018
+
+Craft - 5 Albums (2000 - 2018) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_375133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Craft - Шведский метал - блэк коллектив, начинал свой темный путь еще в 1994-м году под вывеской Nocta (смена названия на нынешнее произошла лишь через несколько лет, в 1998-м). Парни записали свою первую демоленту в 1996-м, но по неким причинам она так и не увидела свет.Список альбомов:
+2000 - Total Soul Rape
+2002 - Terror Propaganda
+2005 - Fuck The Universe(   Читать дальше...   )Жанр: Black MetalПродолжительность: 03:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB955DB328E5A5AA34F4606F7575F18A51C7F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1254350   (375130) от 13.10.2018
+
+Dragony - Masters of the Multiverse (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_375130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flame of Tar Valon (5:57)
+ 02. If It Bleeds We Can Kill It (4:32)
+ 03. Grey Wardens (4:31)
+ 04. Defenders (5:10)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D524DBD0417D0E00D65826EEC301625946F06BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069196   (373990) от 04.11.2016
 
 Seven - Freedom Call (2011) [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -6,7 +93,7 @@ Seven - Freedom Call (2011) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373990.jpg" />
+  <img src="Z:/picture/008/save_picture_373990.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ FireLake - Radioactive (2014) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373770.jpg" />
+  <img src="Z:/picture/008/save_picture_373770.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Mordor - Nothing... (Demo) (1992) Reissue, 2016, Witching Hour Productions [FLAC
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373373.jpg" />
+  <img src="Z:/picture/008/save_picture_373373.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Steel Engraved - Steel Engraved (2019) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373370.jpg" />
+  <img src="Z:/picture/008/save_picture_373370.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Darkness - First Class Violence (2018) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373336.jpg" />
+  <img src="Z:/picture/008/save_picture_373336.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Stormwitch - Bound To The Witch (2018) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373260.jpg" />
+  <img src="Z:/picture/008/save_picture_373260.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Dream Theater - Lost Not Forgotten Archives: Live in Berlin, 2019 (2022) 2xCD [F
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373243.jpg" />
+  <img src="Z:/picture/008/save_picture_373243.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Amaranthe - Manifest (2020) Bonus Version, 2022, Nuclear Blast [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373233.jpg" />
+  <img src="Z:/picture/008/save_picture_373233.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Ossuaire - Premiers Chants (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372622.jpg" />
+  <img src="Z:/picture/008/save_picture_372622.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Arctos - Beyond the Grasp of Mortal Hands (2019) [FLAC|Lossless|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372621.jpg" />
+  <img src="Z:/picture/008/save_picture_372621.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Degraey - Chrysalis (2016) [FLAC|Lossless|image + .cue] <Post Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372619.jpg" />
+  <img src="Z:/picture/008/save_picture_372619.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Degraey - Reveries (2019) [FLAC|Lossless|WEB-DL|tracks] <Post Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372616.jpg" />
+  <img src="Z:/picture/008/save_picture_372616.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Töxik Waltz (Toxik Waltz) - Declassified (2016) [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372445.jpg" />
+  <img src="Z:/picture/008/save_picture_372445.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Emyn Muil - Afar Angathfark (2020) [FLAC|Lossless|image + .cue] <Epic Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372020.jpg" />
+  <img src="Z:/picture/008/save_picture_372020.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Enslaved - Utgard (2020) [FLAC|Lossless|image + .cue] <Black Metal, Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372014.jpg" />
+  <img src="Z:/picture/008/save_picture_372014.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Medda (Robert Pessagno) - 4 Albums (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Al
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372009.jpg" />
+  <img src="Z:/picture/008/save_picture_372009.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Necrophobic - Dawn Of The Damned (2020) 2xCD [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372008.jpg" />
+  <img src="Z:/picture/008/save_picture_372008.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Woslom - Time To Rise (2010) 2014 Reissue [FLAC|Lossless|image + .cue] <Thrash M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371698.jpg" />
+  <img src="Z:/picture/008/save_picture_371698.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Myrsky - Tuonelalle (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370968.jpg" />
+  <img src="Z:/picture/008/save_picture_370968.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Pneuma Hagion - Demiurge (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370966.jpg" />
+  <img src="Z:/picture/008/save_picture_370966.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Noussommes - Noussommes (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370964.jpg" />
+  <img src="Z:/picture/008/save_picture_370964.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Nurez - Nachtlied (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370962.jpg" />
+  <img src="Z:/picture/008/save_picture_370962.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Tortured Saint - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370957.jpg" />
+  <img src="Z:/picture/008/save_picture_370957.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Tortured Saint - 2 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14C7A674F9A4A634B151D4612FE434A4A4659A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575909   (370955) от 12.09.2022
-
-Necroplanet - Negative Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dead Planet (01:37)
-02 - Birth of Isolation (06:52)
-03 - Negative Space (06:03)
-04 - Echoes of Sentience (06:45)(   Читать дальше...   )Жанр: Black, Doom MetalПродолжительность: 00:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1758D03AE5AE860040DD83AA4B6141ADDB3E8C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575927   (370953) от 12.09.2022
-
-Phrenesy - Fears Apocalypse (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Fears Apocalypse (04:44)
-02 - Bring It On (03:27)
-03 - Fuck The Pain (04:11)
-04 - Lost Generation (03:30)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365CAD7FDD5D1783CFF1FE4656EF4A8AEA46002C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575871   (370951) от 12.09.2022
-
-Mordor - Prayer To... (1993) Reissue, 1996, Arctic Serenades [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. False Prayer (06:19)
-02. Why Me? (05:58)
-03. There's Nothing Left (04:50)
-04. Ice Bound (05:58)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316FA7F22891390959A7593897341F76FC5CCB3B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1007031   (825170) от 13.04.2016
+
+Танцы. Битва сезонов (2016.04.09) WEB-DLRip [H.264/720p-LQ] (Выпуск 3)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_825170.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 марта в 19:30 на телеканале ТНТ стартует новое шоу – «ТАНЦЫ. Битва сезонов». Лучшие участники двух сезонов самого масштабного танцевального проекта страны встретятся лицом к лицу на одной сцене. Мы все так давно этого ждали! Борьба развернется за приз в 3 000 000 рублей и звание – «Лучший из лучших танцоров страны». Наставники шоу Егор Дружинин и Мигель сформируют (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EDF78905DBC47C337CC20BE007F37A930D9C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116194   (824570) от 19.03.2017
 
 Танцуют все! (2017.03.19) SATRip (сезон 1, выпуск 1)
@@ -6,7 +32,7 @@
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_824570.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_824570.jpg" />
 </div>
 
 
@@ -34,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823039.jpg" />
 </div>
 
 
@@ -63,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823035.jpg" />
 </div>
 
 
@@ -89,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_822948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822948.jpg" />
 </div>
 
 
@@ -115,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821331.jpg" />
+  <img src="Z:/picture/008/save_picture_821331.jpg" />
 </div>
 
 
@@ -144,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821299.jpg" />
+  <img src="Z:/picture/008/save_picture_821299.jpg" />
 </div>
 
 
@@ -170,7 +196,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821138.jpg" />
+  <img src="Z:/picture/008/save_picture_821138.jpg" />
 </div>
 
 
@@ -196,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821061.jpg" />
+  <img src="Z:/picture/008/save_picture_821061.jpg" />
 </div>
 
 
@@ -222,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819547.jpg" />
+  <img src="Z:/picture/008/save_picture_819547.jpg" />
 </div>
 
 
@@ -249,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819010.jpg" />
+  <img src="Z:/picture/008/save_picture_819010.jpg" />
 </div>
 
 
@@ -275,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816927.jpg" />
+  <img src="Z:/picture/008/save_picture_816927.jpg" />
 </div>
 
 
@@ -303,7 +329,7 @@ Gwen Stefani's: Ты создаешь дух Рождества / Gwen Stefani's
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815513.jpg" />
+  <img src="Z:/picture/008/save_picture_815513.jpg" />
 </div>
 
 
@@ -329,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815335.jpg" />
+  <img src="Z:/picture/008/save_picture_815335.jpg" />
 </div>
 
 
@@ -355,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815206.jpg" />
+  <img src="Z:/picture/008/save_picture_815206.jpg" />
 </div>
 
 
@@ -381,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815057.jpg" />
+  <img src="Z:/picture/008/save_picture_815057.jpg" />
 </div>
 
 
@@ -407,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813477.jpg" />
+  <img src="Z:/picture/008/save_picture_813477.jpg" />
 </div>
 
 
@@ -433,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811918.jpg" />
+  <img src="Z:/picture/008/save_picture_811918.jpg" />
 </div>
 
 
@@ -459,7 +485,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811478.jpg" />
+  <img src="Z:/picture/008/save_picture_811478.jpg" />
 </div>
 
 
@@ -487,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810356.jpg" />
+  <img src="Z:/picture/008/save_picture_810356.jpg" />
 </div>
 
 
@@ -516,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810339.jpg" />
+  <img src="Z:/picture/008/save_picture_810339.jpg" />
 </div>
 
 
@@ -542,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809035.jpg" />
+  <img src="Z:/picture/008/save_picture_809035.jpg" />
 </div>
 
 
@@ -569,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808223.jpg" />
+  <img src="Z:/picture/008/save_picture_808223.jpg" />
 </div>
 
 
@@ -598,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807044.jpg" />
+  <img src="Z:/picture/008/save_picture_807044.jpg" />
 </div>
 
 
@@ -624,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805983.jpg" />
+  <img src="Z:/picture/008/save_picture_805983.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805560.jpg" />
+  <img src="Z:/picture/008/save_picture_805560.jpg" />
 </div>
 
 
@@ -662,32 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC3BA57BD0B8608233E67F81312935859E1CDEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010043   (805356) от 23.04.2016
-
-Танцы. Битва сезонов (2016.04.23) SATRip (Выпуск 5)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805356.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 марта в 19:30 на телеканале ТНТ стартует новое шоу – «ТАНЦЫ. Битва сезонов». Лучшие участники двух сезонов самого масштабного танцевального проекта страны встретятся лицом к лицу на одной сцене. Мы все так давно этого ждали! Борьба развернется за приз в 3 000 000 рублей и звание – «Лучший из лучших танцоров страны». Наставники шоу Егор Дружинин и Мигель сформируют (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8736B8444C261E4383E9201433C2B01179D7A74A
 ```
 
 https://mybot314.ru/tekegram_catalog/

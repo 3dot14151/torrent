@@ -1,3 +1,119 @@
+###  Публикация: 1369140   (903810) от 23.03.2020
+
+Fataland - Выпей Вина! (2020) [MP3|320 Kbps] <Hardcore, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Белок [00:01:09]
+02 Биткоин [00:03:19]
+03 Просто Я Люблю 0.5 [00:01:59]
+04 Илонмаск [00:02:46](   Читать дальше...   )Жанр: Hardcore, PunkПродолжительность: 00:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2880603AC72B2AFB4550AE7D7F090E6CA7A625B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991754   (903759) от 29.02.2016
+
+Слот - Septima (2016) [MP3|320 кб/с] <Alternative Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Septima – это музыкальный интервал размером в семь нот. Это настоящий диссонанс, образующий вихрь из музыкальных стилей и направлений, который бурлит в котле под названием Слот!01. Реинкарнация
+02. Мочит, как хочет!
+03. Русская душа
+04. Ctrl+Z(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 00:53:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC951B1151E42BB48CBD5D71CBDB4E516756CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369461   (902110) от 24.03.2020
+
+Arctic Rain - Point of no return / Точка невозврата (2020) [MP3|320 Kbps] <Post-Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Судьба [00:03:39]
+02. Кто я [00:04:13]
+03. Забытые сны [00:03:37]
+04. Тьма и свет [00:04:43](   Читать дальше...   )Жанр: Post-Hardcore, MetalcoreПродолжительность: 00:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0669E82E8F32A8E301B15B173CF55F1294D8E7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100018   (901590) от 03.02.2017
+
+Филипп Вейс - Сны разной ритмичности (2012) [MP3|320 kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На уровне чувств (3:17)
+02. Бессонница (3:10)
+03. Город мостов (4:17)
+04. Танго цвета индиго (3:55)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CD6BC011BB320FFFC27D8348177F1340940157A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100255   (901322) от 03.02.2017
 
 Обе две - Мальчик (2017) EP [MP3|320 Kbps] <Indie Rock>
@@ -6,7 +122,7 @@
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901322.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901322.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Scang - Сам себе враг (2000) [MP3|192 кб/с] <Альтернати�
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901041.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900769.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Ai Mori - 57 Covers track (2019-2021) [MP3|192-320 Kbps] <Alternative, Rock, Pun
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900673.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900598.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900423.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900337.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Sordid Clot - 3 albums (2006-2013) [MP3|320 Kbps] <Death Metal, Goregrind>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899944.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899919.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899796.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899796.jpg" />
 </div>
 
 
@@ -292,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899682.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899682.jpg" />
 </div>
 
 
@@ -318,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899183.jpg" />
 </div>
 
 
@@ -347,7 +463,7 @@ VA - Союз. Rock 3 (2017) [MP3|320 Kbps] <Rock, Punk Rock>
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899039.jpg" />
 </div>
 
 
@@ -376,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898740.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898740.jpg" />
 </div>
 
 
@@ -405,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898433.jpg" />
 </div>
 
 
@@ -434,7 +550,7 @@ Zoebeast - 2 albums, 3 demos, 2 EP (2003-2015) [MP3|192-320 Kbps] <Death Metal, 
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898026.jpg" />
 </div>
 
 
@@ -463,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897820.jpg" />
 </div>
 
 
@@ -489,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897720.jpg" />
 </div>
 
 
@@ -518,7 +634,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897595.jpg" />
 </div>
 
 
@@ -544,7 +660,7 @@ Animal ДжаZ - Не Твоя Смерть (2016) Single [MP3|320 кб/с] <Roc
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897276.jpg" />
 </div>
 
 
@@ -571,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896973.jpg" />
 </div>
 
 
@@ -600,7 +716,7 @@ Holdaar - Где Не Место Рабу (2013) [MP3|320 Kbps] <Folk Acoustic B
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896923.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896923.jpg" />
 </div>
 
 
@@ -614,122 +730,6 @@ Holdaar - Где Не Место Рабу (2013) [MP3|320 Kbps] <Folk Acoustic B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E4A0BBBA3D31BB075F004F1FE90D2CAEC58B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370502   (896909) от 27.03.2020
-
-Wine Red - Сквозь горизонты (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сквозь километры [03:53]
-02. Манифест [02:59]
-03. Ночной полёт [03:48]
-04. Дорогая [03:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95695D14D3245841CA51AC7426724D7AE03990BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992832   (896866) от 04.03.2016
-
-Звери - Страха нет (2016) [MP3|320 кб/с] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Муха (02:28)
-02. Страха нет (03:52)
-03. Элвис (03:41)
-04. Настя (03:31)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D798410A002E232D31507BDCD83D179E2136D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370443   (896855) от 27.03.2020
-
-Рви Меха - Оркестр! - Сильная & независимая (2020) [MP3|320 Kbps] <Ska, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_896855.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мы с тобою
-2. Ипотека & алименты
-3. Валера
-4. Сильная & независимая(   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17934C181D9B498249F32E49085F21E04D8EF9FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993659   (895014) от 05.03.2016
-
-Порнофильмы - Русская Мечта. Часть 2 (2016) [MP3|320 кб/с] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вторая часть альбома «Русская Мечта» изначально задумывалась иной, но в процессе работы было принято внести некоторые изменения в предполагаемую концепцию пластинки. Тем не менее, заданное первой частью альбома направление прослеживается – каждая композиция рассказывает историю об устройстве современного российского общества и жизни человека. Таким образом, этот (   Читать дальше...   )01. Нищих убивай!
-02. Роди мне 1000 детей!
-03. Не доверяйте правительству! (feat. Лёха Никонов)
-04. Велосипед(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8676C1B8935C41A398830A60932F9308CDA41B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

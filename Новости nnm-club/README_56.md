@@ -1,3 +1,110 @@
+###  Публикация: 1108112   (862354) от 25.02.2017
+
+TRAPPIST-1 - карликовая звезда, имеющая систему из восьми планет, размеры семи из которых сопоставимы с размером Земли
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_862354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Международная группа ученых-астрономов объявила об обнаружении семи экзопланет, размеры которых сопоставимы с размером Земли и которые вращаются вокруг красной карликовой звезды. Согласно имеющимся данным, на поверхности всех семи планет системы звезды TRAPPIST-1 вода может находиться в жидком виде, но лишь орбиты трех планет находятся в области, где остальные условия (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108845   (862018) от 25.02.2017
+
+Navicat Premium 11.2.15 [En]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_862018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Navicat Premium - программа от PremiumSoft™ CyberTech Ltd, которая была создана для администрирования баз данных, вы сможете без проблем подключаться и работать с MySQL, SQLite, Oracle и прочими другими БД, причем делать это можно одновременно, то есть подключаться сразу ко всем в одном окне.  Из этого следует, что если вам приходится работать с разными БД, этот процесс (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E61380F98A90366DA953FE4732E70667540BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998747   (861973) от 23.03.2016
+
+Владимир Жибров | мощный старт NYSE (2015) PCRec [H.264]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_861973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что даст вам этот тренинг:
+
+Во-первых, вы станете стабильно зарабатывать на NYSE, как минимум, по 200-500 долларов в день
+Во-вторых, вы получаете готовую систему и пошаговое руководство, которые многократно доказали свою эффективность.(   Читать дальше...   )Жанр: ТрейдингПродолжительность: 06:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F7318C6676E607D7384E65AE5BA171952F96B7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999780   (861849) от 23.03.2016
+
+Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_861849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанский, французскийПродолжительность: 02:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F912BE3E992F71EC4933F205535361D055EE8A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999569   (861835) от 23.03.2016
 
 Выживший / The Revenant (2015) WEB-DLRip [H.264]
@@ -6,7 +113,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861835.jpg" />
+  <img src="Z:/picture/008/save_picture_861835.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ Nexus: The Jupiter Incident Remastered (2016) [Ru/Multi] (1.02) License SKIDROW
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861825.jpg" />
+  <img src="Z:/picture/008/save_picture_861825.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861822.jpg" />
+  <img src="Z:/picture/008/save_picture_861822.jpg" />
 </div>
 
 
@@ -85,7 +192,7 @@ Acronis True Image 2017 20.0.8029 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861779.jpg" />
+  <img src="Z:/picture/008/save_picture_861779.jpg" />
 </div>
 
 
@@ -111,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861771.jpg" />
+  <img src="Z:/picture/008/save_picture_861771.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861768.jpg" />
+  <img src="Z:/picture/008/save_picture_861768.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861284.jpg" />
+  <img src="Z:/picture/008/save_picture_861284.jpg" />
 </div>
 
 
@@ -189,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_860977.jpg" />
+  <img src="Z:/picture/005/save_picture_860977.jpg" />
 </div>
 
 
@@ -215,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860883.jpg" />
+  <img src="Z:/picture/008/save_picture_860883.jpg" />
 </div>
 
 
@@ -241,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860280.jpg" />
+  <img src="Z:/picture/008/save_picture_860280.jpg" />
 </div>
 
 
@@ -267,7 +374,7 @@ Company of Heroes (2013) [Ru] (2.700.2.42) Repack xatab [Complete Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860278.jpg" />
+  <img src="Z:/picture/008/save_picture_860278.jpg" />
 </div>
 
 
@@ -293,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860089.jpg" />
+  <img src="Z:/picture/008/save_picture_860089.jpg" />
 </div>
 
 
@@ -319,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860085.jpg" />
+  <img src="Z:/picture/008/save_picture_860085.jpg" />
 </div>
 
 
@@ -345,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_859963.jpg" />
+  <img src="Z:/picture/005/save_picture_859963.jpg" />
 </div>
 
 
@@ -371,7 +478,7 @@ Jonas Schmedtmann | The Complete JavaScript Course 2020: Build Real Projects! (2
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859852.jpg" />
+  <img src="Z:/picture/008/save_picture_859852.jpg" />
 </div>
 
 
@@ -398,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859727.jpg" />
+  <img src="Z:/picture/008/save_picture_859727.jpg" />
 </div>
 
 
@@ -424,7 +531,7 @@ Journey to the Savage Planet (2020) [Ru/Multi] (53043/dlc) Repack xatab (обн�
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859720.jpg" />
+  <img src="Z:/picture/008/save_picture_859720.jpg" />
 </div>
 
 
@@ -450,7 +557,7 @@ Adobe Photoshop 2021 22.5.1.441 (x64) RePack by SanLex [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859228.jpg" />
+  <img src="Z:/picture/008/save_picture_859228.jpg" />
 </div>
 
 
@@ -476,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859226.jpg" />
+  <img src="Z:/picture/008/save_picture_859226.jpg" />
 </div>
 
 
@@ -502,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859116.jpg" />
+  <img src="Z:/picture/008/save_picture_859116.jpg" />
 </div>
 
 
@@ -528,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859114.jpg" />
+  <img src="Z:/picture/008/save_picture_859114.jpg" />
 </div>
 
 
@@ -554,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858617.jpg" />
+  <img src="Z:/picture/008/save_picture_858617.jpg" />
 </div>
 
 
@@ -565,110 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99ADA17FDFAABE671A97860DD9932B8A662D24FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000304   (858614) от 25.03.2016
-
-Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRemux [H.264/1080p] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный (чистый звук)Язык субтитров: английскийПродолжительность: 02:18:06Реклама: Удалил 5 вставок голосовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F01EA8A0D5F96531CA31EB5E678383EAFA2C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000320   (858613) от 25.03.2016
-
-Trackmania® Turbo (2016) [Ru/Multi] (1.0) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trackmania Turbo – новая часть в серии аркадных гонок Trackmania, в которой вас ждут сотни новых испытаний. В игре доступно 200 головокружительных трасс, 4 неповторимых гоночных мира с уникальным геймплеем, а также великолепный конструктор, который позволит создать бесконечное количество уникальных трасс. Вы также сможете стать участником игрового сообщества и получить (   Читать дальше...   )Тип издания: LicenseРазработчик: NadeoЖанр: Arcade, Racing, Cars, 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский (отдельно), Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFAC86850B727C3698D8D330E450614A93771C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000257   (858609) от 25.03.2016
-
-Звёздные войны: Пробуждение силы / Star Wars: Episode VII - The Force Awakens (2015) BDRip [H.264] [Line]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через тридцать лет после гибели Дарта Вейдера и Императора галактика по-прежнему в опасности. Государственное образование Первый Орден во главе с их таинственным верховным лидером Сноуком и его правой рукой Кайло Реном идёт по стопам Империи, пытаясь захватить всю власть. В это нелёгкое время судьба сводит юную девушку Рей и бывшего штурмовика Первого Ордена Финна (   Читать дальше...   )Производство: США, Bad Robot, Lucasfilm Ltd., Truenorth ProductionsЖанр: фантастика, фэнтези, боевик, приключенияРежиссер: Джей Джей АбрамсАктеры: Джон Бойега, Дэйзи Ридли, Оскар Айзек, Адам Драйвер, Донал Глисон, Харрисон Форд, Марк Хэмилл, Кэрри Фишер, Макс фон Сюдов, Энди Серкис, Лупита Нионго, Энтони ДэниелсПеревод: Дублированный (чистый звук)Язык субтитров: английскийПродолжительность: 02:18:06Реклама: Удалил 5 вставок голосовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CC096DA9F638C35552864EBD3A817D2B06C3953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109414   (858538) от 27.02.2017
-
-Cent Browser 2.4.2.19 + Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cent Browser - является усовершенствованной версией браузера Chromium, которая объединяет множество полезных функций, таких как прокрутка панели вкладок, жесты мышью, супер перетаскивание и управление поведением вкладок. Это делает веб-серфинг более удобным и комфортным.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F46B0CA762F16FC7DEF1B3BEBD38B735E8C98B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1699127   (47910) от 04.08.2024
+
+Sousou no Frieren | Frieren: Beyond Journey's End | Провожающая в последний путь Фрирен [2023, TV, 28 из 28] BDRip 1080p HEVC 10-bit raw+rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владыка Тьмы повержен, и вместе с тем подошло к концу путешествие героя Химмеля и его отряда. Шли годы, все они разбрелись кто куда, но только эльфийке-долгожительнице Фрирен десятилетия показались мгновением, и однажды на её плечи легла тяжесть осознания того, что людской век ужасно скоротечен. В конце концов эльфийка решает во чтобы то ни стало исполнить предсмертные (   Читать дальше...   )Производство: студия Madhouse / マッドハウスЖанр: приключения, фэнтезиРежиссер: Сайто КэйитироЯзык озвучки: Японский, русский (AniLibria, Studio Band, AniPlague)Субтитры: Русские (Crunchyroll, YakuSub Studio), английские (Crunchyroll)Продолжительность: 28 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC99B9810539FEC2AB5602DA6477F2FBDB91B509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741985   (47375) от 09.08.2024
 
 Isekai wa Smartphone to Tomo ni. | In Another World With My Smartphone | В другом мире со смартфоном [2017, TV, 12] BDRip 1080p raw+rus
@@ -6,7 +32,7 @@ Isekai wa Smartphone to Tomo ni. | In Another World With My Smartphone | В др
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_47375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_47375.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Jaku Chara Tomozaki-kun | Bottom-tier Character Tomozaki | Низкоуровн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46790.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46599.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Okashi na Tensei | Sweet Reincarnation | Сладкая Реинкарнация
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46590.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Isekai Suicide Squad | Отряд самоубийц: Исекай [2024, TV, 10
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46406.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Vampire Dormitory | Общежитие вампиров [2024, TV, 12 эп.] WEB
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_46194.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_46194.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ Lycoris Recoil | LycoReco | Ликорис Рикойл [2022, TV, 13 из 13] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45691.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ Zhandou Wang: Jufeng Zhan Hun 6 | Infinity Nado 6 | Инфинити Надо 6 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45456.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Terminator Zero | Терминатор Зеро [2024, Web, 08 из 08] WEBRip 1
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_45009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_45009.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44970.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_44220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_44220.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ Maou Gun Saikyou no Majutsushi wa Ningen Datta | Сильнейшим магом
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43845.jpg" />
 </div>
 
 
@@ -324,7 +350,7 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43747.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43747.jpg" />
 </div>
 
 
@@ -350,7 +376,7 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Беззабот
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43707.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43707.jpg" />
 </div>
 
 
@@ -376,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43536.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43436.jpg" />
 </div>
 
 
@@ -429,7 +455,7 @@ Date A Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 из 12] B
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_43337.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_43337.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42911.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42911.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42780.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42780.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Isekai Yururi Kikou: Kosodate Shinagara Boukensha Shimasu | Iseyuru | Прикл
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42776.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42698.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42698.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Madougushi Dahlia wa Utsumukanai | Dahlia in Bloom | Maгичecкaя peмecлeн
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42674.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42674.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42672.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42672.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42551.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42551.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnat
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42425.jpg" />
 </div>
 
 
@@ -653,32 +679,6 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49F65C28949240C42E543B8ADE69E4307FA8F4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737332   (42041) от 29.09.2024
-
-Любовь неделима между близнецами | Koi wa Futago de Warikirenai | Love Is Indivisible by Twins [2024, TV, 12 из 12] WEBRip 1080p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_42041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы когда-нибудь фантазировали об отношениях с близнецами, то вы как раз по адресу! Главный герои истории, парень по имени Джун, с самого детства дружит с двумя очаровательными соседками, близняшками Руми и Наори. Несмотря на идентичные гены, девочки абсолютно не похожи друг на друга. Старшая, Руми, с виду пацанка пацанкой, но на самом деле очень нежная и заботливая. (   Читать дальше...   )Производство: Япония / Студия Roll2, Cre-pЖанр: Романтика, школаРежиссер: Наканиси МотокиЯзык озвучки: Русский (Kazoku Project), (Dream Cast); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C6BC7838DC396799CABEE9F0BE411BFEF02056
 ```
 
 https://mybot314.ru/tekegram_catalog/

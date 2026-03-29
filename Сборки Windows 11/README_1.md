@@ -1,3 +1,56 @@
+###  Публикация: 1825955   (150678) от 18.10.2025
+
+Microsoft® Windows® 11 Pro-Home Optim Lite x64 25H2 RU by OVGorskiy 10.2025
+
+>>ОС Windows
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150678.jpg" />
+</div>
+
+
+###  Подробнее
+
+оптимизированная облегчённая (LITE) сборка на основе оригинального образа новой версии операционной системы Windows 11 x64 (64 бит.) 25H2 от Microsoft  Профессиональная и Домашняя. В сборке произведена оптимизация системы для более комфортной работы с ней. Из системы удалены все плиточные приложения, кроме магазина MicrosoftStore и кодеков. Удалена в оптимальном режиме (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5D2DC18043DDC48E0523C39027FC1EE1715BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679021   (138716) от 24.11.2023
+
+Windows 11 Pro 23H2 (x64) +/- Office 2021 by xCOrei2 (22.11.2023) [RU]
+
+>>След.
+>>Сборки Windows 11
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная сборка основана на оригинальном образе MSDN и включает в себя редакцию Windows 11 Pro с русским интерфейсом (если требуются другие языки их дополнительно можно установить).
+Установлены последние обновления, удалены некоторые ненужные приложения, а также приложения которые сильно нагружают систему. После установки с помощью "Windows Postinstall Manager (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68734A893005F20E4995978B32A080B6A497FBCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824699   (136948) от 15.10.2025
 
 Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.6899 [Ru]
@@ -6,7 +59,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.6899 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136948.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136948.jpg" />
 </div>
 
 
@@ -35,7 +88,7 @@ Windows 11 Pro/Ent by OneSmiLe 25H2 build 26200.6899 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136801.jpg" />
 </div>
 
 
@@ -64,7 +117,7 @@ Microsoft® Windows® 11 Professional VL x64 25H2 RU by OVGorskiy 10.2025
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136752.jpg" />
 </div>
 
 
@@ -90,7 +143,7 @@ Windows 11 23H2 (22631.3007) x64 (3in1) by Brux [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123368.jpg" />
 </div>
 
 
@@ -116,7 +169,7 @@ Windows 11 (v25h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98575.jpg" />
 </div>
 
 
@@ -145,7 +198,7 @@ Windows 11 (v25h2) x64 PRO by KulHunter v1 (esd) [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_98573.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_98573.jpg" />
 </div>
 
 
@@ -174,7 +227,7 @@ Microsoft® Windows® 11 x64 Ru 25H2 4in1 Upd 10.2025 by OVGorskiy [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63965.jpg" />
 </div>
 
 
@@ -200,7 +253,7 @@ Windows 11 Pro х64 Version 25H2 Build 26200.6584 by Igors_VL [RU]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63884.jpg" />
 </div>
 
 
@@ -226,7 +279,7 @@ Windows 11 4in1 Version 24H2 (x64) Elgujakviso Edition (v.05.10.24) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41227.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41227.jpg" />
 </div>
 
 
@@ -253,7 +306,7 @@ Windows 11 24H2 (26100.2314) (x64) by Sergei Strelec [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_37147.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_37147.jpg" />
 </div>
 
 
@@ -280,7 +333,7 @@ Windows 11, 23H2 (22631.5039) 36in1 (x64) by adguard (v25.03.12) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23793.jpg" />
 </div>
 
 
@@ -306,7 +359,7 @@ Windows 11, 24H2 [26100.3775] 38in1 (x64) by adguard (v25.04.09) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21503.jpg" />
 </div>
 
 
@@ -332,7 +385,7 @@ Windows 11, 23H2 (22631.5189) 36in1 (x64) by adguard (v25.04.09) [Ru/En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21474.jpg" />
 </div>
 
 
@@ -358,7 +411,7 @@ Windows 11 PRO 23H2 22631.5335 Update 19 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17469.jpg" />
 </div>
 
 
@@ -387,7 +440,7 @@ Windows 11 3in1 x64 24Н2 (build 26100.4652) by ivandubskoj 09.07.2025 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11885.jpg" />
 </div>
 
 
@@ -413,7 +466,7 @@ Windows 11 (v24h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8340.jpg" />
 </div>
 
 
@@ -442,7 +495,7 @@ Windows 11 (v24h2) x64 PRO by KulHunter v3 (esd) [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8315.jpg" />
 </div>
 
 
@@ -471,7 +524,7 @@ Microsoft® Windows® 11 x64 Ru 24H2 4in1 Upd 08.2025 by OVGorskiy [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7601.jpg" />
 </div>
 
 
@@ -497,7 +550,7 @@ Windows 11 24H2 Lite (26100.4946) x64 by Bruxer [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_7575.jpg" />
 </div>
 
 
@@ -523,7 +576,7 @@ Windows 11 PRO 24H2 26100.4946 Update 18 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_5479.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_5479.jpg" />
 </div>
 
 
@@ -552,7 +605,7 @@ Windows 11 Pro/Ent LTSC by OneSmiLe 24H2 build 26100.6584 [Ru]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3543.jpg" />
 </div>
 
 
@@ -581,7 +634,7 @@ Windows 11 PRO 24H2 26100.6584 Update 19 by Ghost Spectre [En]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_3069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_3069.jpg" />
 </div>
 
 
@@ -610,7 +663,7 @@ Windows 11 Pro х64 Version 24H2 Build 26100.6584 by Igors_VL [RU]
 >>Сборки Windows 11
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_418.jpg" />
 </div>
 
 

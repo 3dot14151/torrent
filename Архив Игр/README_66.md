@@ -6,7 +6,7 @@
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289556.jpg" />
+  <img src="Z:/picture/008/save_picture_289556.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ Shadow Tactics: Blades of the Shogun (2016) [Multi] (1.0.8f) License FLT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289470.jpg" />
+  <img src="Z:/picture/008/save_picture_289470.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289370.jpg" />
+  <img src="Z:/picture/008/save_picture_289370.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.48) License PLAZA [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287599.jpg" />
+  <img src="Z:/picture/008/save_picture_287599.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Wolfenstein II (2017) [Ru/Multi] (1.0/u4) License CODEX [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287297.jpg" />
+  <img src="Z:/picture/008/save_picture_287297.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Assassin’s Creed IV/4: Black Flag / Assassin's Creed IV/4: Чёрный фла
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286788.jpg" />
+  <img src="Z:/picture/008/save_picture_286788.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Spider-Man: Web of Shadows [Ru/En] (RePack) 2008| [TrJ-VoRoN]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283524.jpg" />
+  <img src="Z:/picture/008/save_picture_283524.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ The Beast Inside (2019) [Ru/Multi] (1.03) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283453.jpg" />
+  <img src="Z:/picture/008/save_picture_283453.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Road Redemption (2017) [Ru/Multi] (20171123) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283363.jpg" />
+  <img src="Z:/picture/008/save_picture_283363.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ This War of Mine (2014) [Ru/Multi] (4.0.0/dlc) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282654.jpg" />
+  <img src="Z:/picture/008/save_picture_282654.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ WWE 2K15 (2014) [PS3] USA (4.50) [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282460.jpg" />
+  <img src="Z:/picture/008/save_picture_282460.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Starpoint Gemini [En] (L) 2010 | TRiViUM
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282015.jpg" />
+  <img src="Z:/picture/008/save_picture_282015.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Blood & Gold: Caribbean! (2015) [Ru/En] (1.0) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281503.jpg" />
+  <img src="Z:/picture/008/save_picture_281503.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280081.jpg" />
+  <img src="Z:/picture/008/save_picture_280081.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ The Cursed Forest (2015) [Ru/En] (0.7.3) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_278797.jpg" />
+  <img src="Z:/picture/008/save_picture_278797.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276779.jpg" />
+  <img src="Z:/picture/008/save_picture_276779.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Fallout: New Vegas (2012) [Ru] (1.4.0.525/dlc) Repack xatab [Ultimate Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276681.jpg" />
+  <img src="Z:/picture/008/save_picture_276681.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2012) [Ru/Multi] (
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276677.jpg" />
+  <img src="Z:/picture/008/save_picture_276677.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ A Story About My Uncle (2014) [Multi] (3717) SteamRip Let'sPlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276012.jpg" />
+  <img src="Z:/picture/008/save_picture_276012.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License CODEX [Episode 1-5]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275414.jpg" />
+  <img src="Z:/picture/008/save_picture_275414.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (1.2.2.57.4328/dlc) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273377.jpg" />
+  <img src="Z:/picture/008/save_picture_273377.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273318.jpg" />
+  <img src="Z:/picture/008/save_picture_273318.jpg" />
 </div>
 
 
@@ -589,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271315.jpg" />
+  <img src="Z:/picture/008/save_picture_271315.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Titan Quest Anniversary Edition (2016) [Ru/Multi] (1.49) License PLAZA [patch]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_271055.jpg" />
+  <img src="Z:/picture/008/save_picture_271055.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_270234.jpg" />
+  <img src="Z:/picture/008/save_picture_270234.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Warsow [En] (L) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269449.jpg" />
 </div>
 
 

@@ -1,3 +1,58 @@
+###  Публикация: 1557935   (213250) от 18.06.2022
+
+Udemy, Зоя Теммерман | 3Д моделирование в SketchUp (2020) PCRec [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_213250.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы получаете четкий и пошаговый алгоритм действий.
+Мы изучаем «инструменты программы».
+Функции и возможности SketchUp.
+7 подробных видео уроков, проектирование с нуля.(   Читать дальше...   )Производство: UdemyЖанр: 3D-моделированиеЯзык озвучки: РусскийПродолжительность: 02:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68EE740B4C02249AD6E47023CF5472B85F7D0260
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604627   (210008) от 14.01.2023
+
+Александр Терехов | Путь к комфортному дому (2015) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_210008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из каких материалов строить Дом? Какие сделать перекрытия в коттедже? Сроки строительства дома? Как удешевить строительство дома? Какой приобрести Проект? Может проектировать самому? С кем строить? Критерии выбора Подрядчика? А как их контролировать? Где взять нормы расхода? Как избежать не нужных затрат? Можно уменьшить затраты на организацию строительства? Сократить (   Читать дальше...   )Жанр: ВебинарыЯзык озвучки: РусскийПродолжительность: 09:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109E60260C1913409B260C2E9781BF78BC0FC644
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1648078   (208397) от 21.07.2023
 
 Hudozhnik Online, Полина Абдулаева | Основы керамики (2022) WEB-DL [RU]
@@ -6,7 +61,7 @@ Hudozhnik Online, Полина Абдулаева | Основы керамик�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208397.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Garden Group, Ксения Мезенцева | Ландшафтный диза�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_208000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_208000.jpg" />
 </div>
 
 
@@ -63,7 +118,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207959.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207959.jpg" />
 </div>
 
 
@@ -91,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207892.jpg" />
 </div>
 
 
@@ -120,7 +175,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_207790.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_207790.jpg" />
 </div>
 
 
@@ -149,7 +204,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_206426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_206426.jpg" />
 </div>
 
 
@@ -178,7 +233,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205743.jpg" />
+  <img src="Z:/picture/005/save_picture_205743.jpg" />
 </div>
 
 
@@ -207,7 +262,7 @@ ArchDialog | 99 летних вебинаров для дизайнеров ин
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205156.jpg" />
+  <img src="Z:/picture/004/save_picture_205156.jpg" />
 </div>
 
 
@@ -236,7 +291,7 @@ AMS³, Надежда Бейнер | Электрика в Archicad (2022) WEB-D
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203814.jpg" />
+  <img src="Z:/picture/004/save_picture_203814.jpg" />
 </div>
 
 
@@ -263,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_203439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_203439.jpg" />
 </div>
 
 
@@ -290,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203222.jpg" />
+  <img src="Z:/picture/004/save_picture_203222.jpg" />
 </div>
 
 
@@ -316,7 +371,7 @@ AMS³, Надежда Бейнер | Видеокурс оформление п�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203108.jpg" />
+  <img src="Z:/picture/004/save_picture_203108.jpg" />
 </div>
 
 
@@ -345,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203079.jpg" />
+  <img src="Z:/picture/004/save_picture_203079.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202935.jpg" />
+  <img src="Z:/picture/004/save_picture_202935.jpg" />
 </div>
 
 
@@ -403,7 +458,7 @@ Archicad-Master, Алексей Зиновьев | 5 способов созда
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201445.jpg" />
+  <img src="Z:/picture/005/save_picture_201445.jpg" />
 </div>
 
 
@@ -432,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200847.jpg" />
+  <img src="Z:/picture/005/save_picture_200847.jpg" />
 </div>
 
 
@@ -461,7 +516,7 @@ Forms&Stones, Г. Сафиулина, Е. Салтыков | Учебный ку
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200520.jpg" />
+  <img src="Z:/picture/005/save_picture_200520.jpg" />
 </div>
 
 
@@ -489,7 +544,7 @@ Mikulishnadesign, Наталья Мандругина | Эстетика инт�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200142.jpg" />
+  <img src="Z:/picture/005/save_picture_200142.jpg" />
 </div>
 
 
@@ -518,7 +573,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199845.jpg" />
+  <img src="Z:/picture/005/save_picture_199845.jpg" />
 </div>
 
 
@@ -547,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198578.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198578.jpg" />
 </div>
 
 
@@ -576,7 +631,7 @@ my_revit | Оформление чертежей (2023) WEB-DL [AD] [RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198574.jpg" />
 </div>
 
 
@@ -604,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198299.jpg" />
 </div>
 
 
@@ -632,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198269.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198269.jpg" />
 </div>
 
 
@@ -660,7 +715,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197642.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197642.jpg" />
 </div>
 
 
@@ -674,63 +729,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3349B806ECCDE7F25CE8EA33D4AC48B41D4DA8D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637724   (197414) от 05.06.2023
-
-Archtutors, Андрей Кузьменко | Научитесь проектировать деревянные дома в Revit architecture (2021) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пройдя курс, вы получите подробный алгоритм моделирования и сборки сооружений из дерева в соответствии с реальностью монтажных работ. Все технологии, вложенные в этот курс, были успешно реализованы на практике, таким образом вы получаете только качественные знания с осязаемым результатом.
-
-Если у вас уже есть опыт работы в Revit, пройдя этот курс вы сможете значительно (   Читать дальше...   )Производство: ArchtutorsЖанр: ДизайнЯзык озвучки: РусскийПродолжительность: 06:38:07Реклама: Наложение на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C7419DB58954654A6EE7AC347A41B6BF4A8940F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645207   (196020) от 08.07.2023
-
-Runn.consulting, Николай Русанов | Умный дом как бизнес. Уровень 1. Частный подрядчик (2023) WEB-DL [AD] [RU]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн-курс, который научит вас эффективно работать с системами домашней автоматизации.
-Курс подходит вам, если:Есть желание выйти на новый уровень — стать инсталляционной компанией или подрядчиком высокого класса
-Объём и стоимость заказов нужно увеличить
-Результат не всегда радует клиента(   Читать дальше...   )Производство: Runn.consultingЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 04:17:53Реклама: Наложения на видео
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE0A49D05E48E50CD5DE03A830A489798FD270B
 ```
 
 https://mybot314.ru/tekegram_catalog/

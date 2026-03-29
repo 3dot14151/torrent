@@ -1,3 +1,143 @@
+###  Публикация: 1194875   (153944) от 26.12.2017
+
+Люси Доусон | Кто прислал мне письмо? (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Завтра Софи исполнится 40 лет.
+Однако она во многом до сих пор ведет себя как девочка: отправляясь спать одна, оставляет включенным свет в ванной и ложится так, чтобы видеть открытой дверь. В ночь накануне своего юбилея Софи внезапно просыпается в полнейшей темноте и с ужасом обнаруживает прямо напротив кровати незнакомого человека.
+Он достает из кармана письмо и (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4AE4C96A74977499805F49C5E80CC4069DE99D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434184   (153516) от 23.12.2020
+
+Найо Марш | Заклятие древних маори. Последний занавес [сборник] (2020) [EPUB]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инспектор Родерик Аллейн – аристократ, интеллектуал и лучший детектив Скотленд-Ярда – приехал отдохнуть на тихий новозеландский курорт инкогнито.
+Там можно подлечиться грязевыми ваннами, восстановить душевный покой, пообщаться с симпатичными людьми – такова, по крайней мере, официальная версия пребывания Родерика в Новой Зеландии.
+Однако мирный отдых иностранного (   Читать дальше...   )Жанр: Классические детективыФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C68813A1268ECCA1F78149D6A55CB61B250690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194911   (153452) от 26.12.2017
+
+Луиза Пенни | Природа зверя (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман «Природа зверя» продолжает серию расследований старшего инспектора Армана Гамаша. Этот обаятельный персонаж создан пером Луизы Пенни, единственного в мире пятикратного лауреата премии Агаты Кристи.
+
+Не проходит и дня, чтобы девятилетний Лоран Лепаж не сочинил какую-нибудь фантастическую историю – о вторжении марсиан, громадной пушке, крылатых монстрах, увиденных (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9AF5BBC1AFE6F5B1AE7B497A39C0F6170ECF93C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194905   (153438) от 26.12.2017
+
+Блейк Крауч | День закрытых дверей [сборник] (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед вами – вторая и третья части трилогии «Эндрю Томас», начавшейся с романа-бестселлера «Пустошь. Дом страха».
+
+Несколько лет назад знаменитый писатель триллеров Эндрю Томас попал в жуткий переплет – на его приусадебном участке были найдены тела изуверски убитых людей, и все улики указывали на него. Доказать свою невиновность Эндрю не мог, поэтому, спасаясь от (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2DF9AD194403A9B9DCE3D7911B7529B71E087F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194818   (153352) от 26.12.2017
+
+Роберт Харрис | Конклав (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор бестселлеров «Энигма» и «Фатерлянд» на этот раз предлагает нам крутой детектив, в котором людское честолюбие бросает вызов власти Господней.
+
+Умирает папа римский, и на его место претендуют несколько кандидатов. Организовать и провести конклав по выбору нового папы поручено Якопо Ломели, декану Коллегии кардиналов. Выбор труден, не каждый из претендующих на (   Читать дальше...   )Жанр: Зарубежные детективы, Современные детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5864705E42C43427A1D3C2F66ED229ED733EF643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968538   (153326) от 24.12.2015
 
 Алексей Макеев, Николай Леонов | Приговор полковника Гурова (2015) [FB2]
@@ -6,7 +146,7 @@
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153326.jpg" />
 </div>
 
 
@@ -32,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152885.jpg" />
 </div>
 
 
@@ -59,7 +199,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152834.jpg" />
 </div>
 
 
@@ -86,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152532.jpg" />
 </div>
 
 
@@ -115,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152137.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152137.jpg" />
 </div>
 
 
@@ -143,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151881.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151881.jpg" />
 </div>
 
 
@@ -169,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151664.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151664.jpg" />
 </div>
 
 
@@ -195,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151648.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151648.jpg" />
 </div>
 
 
@@ -223,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151640.jpg" />
 </div>
 
 
@@ -251,7 +391,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151569.jpg" />
 </div>
 
 
@@ -277,7 +417,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151433.jpg" />
 </div>
 
 
@@ -303,7 +443,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151411.jpg" />
 </div>
 
 
@@ -329,7 +469,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151159.jpg" />
 </div>
 
 
@@ -355,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151068.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151068.jpg" />
 </div>
 
 
@@ -381,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150827.jpg" />
 </div>
 
 
@@ -408,7 +548,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150308.jpg" />
 </div>
 
 
@@ -434,7 +574,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_150215.jpg" />
 </div>
 
 
@@ -462,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149979.jpg" />
 </div>
 
 
@@ -488,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149865.jpg" />
 </div>
 
 
@@ -516,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149761.jpg" />
 </div>
 
 
@@ -542,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_149289.jpg" />
 </div>
 
 
@@ -553,142 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44731473E191F3974445960EC1C2C823DC6AECAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519560   (148320) от 24.12.2021
-
-Луиза Пенни | Все дьяволы здесь (2020) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старший инспектор Гамаш #16.
-Роман «Все дьяволы здесь» продолжает серию расследований старшего инспектора Армана Гамаша. Этот обаятельный персонаж создан пером Луизы Пенни, единственного в мире многократного лауреата премии Агаты Кристи.
-На этот раз инспектору предстоит раскрыть преступный заговор в Париже – Городе света. Ничто не предвещало беды в этот чудесный (   Читать дальше...   )Жанр: Детективы, Полицейский детективПеревод: Григорий КрыловФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6A21D1401B3B29079879EAFE0E6D1221543361
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087094   (148147) от 26.12.2016
-
-Фрэнсис Броуди | Убить до заката (2016) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарриет и Остин, принеся отцу обед на работу, обнаружили его мертвым – и в страхе убежали. Однако когда подоспела помощь взрослых, тело исчезло… Что же на самом деле произошло?
-Поначалу полиция не верит детям и считает, что их отец Этан просто сбежал, бросив семью. Однако жена Этана не согласна с этой версией и решает обратиться за помощью к частному детективу Кейт (   Читать дальше...   )Жанр: Зарубежные детективы, Исторические детективы, Классические детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD00CBE19BD468A42C0670EB319051C9A0E3772A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677987   (147076) от 20.11.2023
-
-Юзуки Асако | Масло (2023) [EPUB]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналистка Рика загорается идеей написать серию статей о Манако Кадзии — женщине, которую подозревают в вымогательстве и убийствах собственных поклонников. Она окружала мужчин заботой и любовью, кормила домашней едой, жила на их деньги… а потом они умирали. Но общественность удивляют не столько сами преступления, сколько внешность убийцы: ее полнота никак не вяжется (   Читать дальше...   )Жанр: Детектив, Ужасы, МистикаПеревод: Полина ГулёнокИздательство: РИПОЛ классикФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457CE32F1EA5B2DD97CA59CE4C842B397347B8AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272017   (147050) от 25.12.2018
-
-Александр Тамоников | Время мертвых (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственный в своем роде Музей смерти расположен на территории городского крематория г. Новосибирска. За внешней торжественностью и спокойствием этого необычного заведения кроется множество нерассказанных историй и неразгаданных тайн. Об этом – новый роман А. Тамоникова.
-
-Необычный посетитель привлек внимание работников Музея смерти. Незнакомец регулярно приходил (   Читать дальше...   )Жанр: Современные детективыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2F66306CC7DF7499578292A41F3D9AD9A5D6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434986   (145961) от 27.12.2020
-
-Люси Кларк | Пропавший без вести (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джейкоб и Марли – лучшие друзья, каждое лето проводившие вместе на тихой отмели. Но однажды мальчики попадают в беду, и из моря возвращается только один из них – Джейкоб.
-Теперь, на седьмую годовщину этого страшного события, бесследно исчезает уже сам Джейкоб. Полиция ведет поиски. На свет извлекаются старые тайны, ревностно оберегавшиеся местными жителями. Мать (   Читать дальше...   )Жанр: Детективы, ТриллерПеревод: Марина СтрепетоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387696E4AD3683E1758E8D1E039CA0BD958C1101
 ```
 
 https://mybot314.ru/tekegram_catalog/

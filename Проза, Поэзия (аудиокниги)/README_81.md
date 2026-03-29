@@ -1,3 +1,58 @@
+###  Публикация: 965427   (226096) от 14.12.2015
+
+Харпер Ли | Пойди поставь сторожа (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_226096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение легендарного романа Харпер Ли «Убить пересмешника…»
+…Непростые тридцатые годы остались в прошлом. На смену им пришли «золотые» пятидесятые. Выросли дети, состарились взрослые. Повзрослевшая Джин-Луиза возвращается в родной город навестить больного отца. Но что ждет ее там? Как изменились те, с кем прошло ее детство?..
+Роман «Убить пересмешника» мгновенно (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 07:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA936044F83F5AF07089C93DC752E49316A9A9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342234   (225859) от 01.12.2019
+
+Петр Сажин | Сирень (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_225859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война подарила чешской девушке и советскому офицеру- танкисту любовь.
+Трудные послевоенные годы развели два любящих сердца по разным странам. Долгие годы обстоятельства мешали им встретиться вновь. Но сохраняя верность и своё чувство они через много лет вновь смогли обрести друг другаЖанр: прозаПродолжительность: 07:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04AE5BBEB1253714475B9D6E7FB8BF634C32213D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342335   (225568) от 01.12.2019
 
 Василь Быков | Круглянский мост (2014) [MP3]
@@ -6,7 +61,7 @@
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225568.jpg" />
+  <img src="Z:/picture/005/save_picture_225568.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225226.jpg" />
+  <img src="Z:/picture/005/save_picture_225226.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225116.jpg" />
+  <img src="Z:/picture/005/save_picture_225116.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225065.jpg" />
+  <img src="Z:/picture/005/save_picture_225065.jpg" />
 </div>
 
 
@@ -110,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223220.jpg" />
 </div>
 
 
@@ -136,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_223116.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_223116.jpg" />
 </div>
 
 
@@ -162,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222811.jpg" />
+  <img src="Z:/picture/005/save_picture_222811.jpg" />
 </div>
 
 
@@ -188,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222700.jpg" />
+  <img src="Z:/picture/005/save_picture_222700.jpg" />
 </div>
 
 
@@ -215,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222602.jpg" />
+  <img src="Z:/picture/005/save_picture_222602.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222057.jpg" />
+  <img src="Z:/picture/005/save_picture_222057.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221383.jpg" />
+  <img src="Z:/picture/005/save_picture_221383.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221331.jpg" />
+  <img src="Z:/picture/005/save_picture_221331.jpg" />
 </div>
 
 
@@ -321,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220750.jpg" />
+  <img src="Z:/picture/005/save_picture_220750.jpg" />
 </div>
 
 
@@ -347,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220338.jpg" />
+  <img src="Z:/picture/005/save_picture_220338.jpg" />
 </div>
 
 
@@ -374,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219109.jpg" />
+  <img src="Z:/picture/005/save_picture_219109.jpg" />
 </div>
 
 
@@ -400,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219103.jpg" />
+  <img src="Z:/picture/005/save_picture_219103.jpg" />
 </div>
 
 
@@ -426,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219031.jpg" />
+  <img src="Z:/picture/005/save_picture_219031.jpg" />
 </div>
 
 
@@ -452,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218997.jpg" />
+  <img src="Z:/picture/005/save_picture_218997.jpg" />
 </div>
 
 
@@ -480,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218908.jpg" />
+  <img src="Z:/picture/005/save_picture_218908.jpg" />
 </div>
 
 
@@ -506,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218773.jpg" />
+  <img src="Z:/picture/005/save_picture_218773.jpg" />
 </div>
 
 
@@ -532,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218287.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218287.jpg" />
 </div>
 
 
@@ -559,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217296.jpg" />
+  <img src="Z:/picture/005/save_picture_217296.jpg" />
 </div>
 
 
@@ -586,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217118.jpg" />
+  <img src="Z:/picture/005/save_picture_217118.jpg" />
 </div>
 
 
@@ -612,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217111.jpg" />
+  <img src="Z:/picture/005/save_picture_217111.jpg" />
 </div>
 
 
@@ -623,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B1DB57CFE37049996316B1F68EE607E53FEB28B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084732   (217103) от 20.12.2016
-
-Александр Милн | Двое (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман «Двое» – «взрослая» книга автора «Винни-Пуха» и «Баллады о королевском бутерброде». Это очень английская и очень милновская книга о любви и о том, как скромный сельский житель Реджинальд Уэллард неожиданно для всех – и для себя самого – написал замечательный роман.Жанр: РоманПродолжительность: 07:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B3CCC43C0B8D397E6DA20CE4DAE2CD2B5E1905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084566   (217068) от 20.12.2016
-
-Джеки Коллинз | Голливудские жены (2010) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217068.jpg" />
-</div>
-
-
-###  Подробнее
-
-С шокирующей откровенностью знаменитая Джеки Коллинз открывает ослепительный мир Голливуда, мир известных актеров и начинающих актрис, рассказывает об их восхождении к успеху, об их любовных связях и супружеских изменах. Их судьбы так тесно и так неожиданно переплетены, что они подчас и сами не подозревают, какую роль играют в жизни друг друга. Но, как и полагается (   Читать дальше...   )Жанр: Зарубежная прозаПродолжительность: 30:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAA06DDEE3CFF20492489EB8400D78E263A0A04
 ```
 
 https://mybot314.ru/tekegram_catalog/

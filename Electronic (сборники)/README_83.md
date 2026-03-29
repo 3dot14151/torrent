@@ -1,3 +1,61 @@
+###  Публикация: 1026049   (708131) от 13.06.2016
+
+VA - Coffee Break: Sensational Chillout Selection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_708131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonoric Academy - Under Dress - Water Mix
+02. Interior Beats - Green Blink - Nigh O' Phonic Mix
+03. Ther Contact Project - Your Temptations - Red Flowers Mix
+04. Makina Jane - 2 Much - Rain Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020DC69295D7F0260E0BE4B05445E64D229AE954
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025965   (708129) от 13.06.2016
+
+VA - Club Music Times Planet (2016) [MP3|253-320 кб/с] <Hands Up, Dancecore, Funky, Progressive, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_708129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Jump Feat. Gretha Ellis And The Bleach - Sikania (J-Art Mix) 02:52
+02. After Sunrise - Under The Sun 07:18
+03. Illusion - Together (Extended) 04:02
+04. Heath Liquid - Party People (Clubmix) 05:26(   Читать дальше...   )Жанр: Hands Up, Dancecore, Funky, Progressive, HouseПродолжительность: 08:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DC084764F65BECEB7ECC0A32B99FC6FF8A21F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287023   (707357) от 05.03.2019
 
 VA - Beach Sound: The Velvet Jungle (2019) [MP3|320 Kbps] <Drum And Bass, Jungle, Bass>
@@ -6,7 +64,7 @@ VA - Beach Sound: The Velvet Jungle (2019) [MP3|320 Kbps] <Drum And Bass, Jungle
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707357.jpg" />
+  <img src="Z:/picture/008/save_picture_707357.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Divine Lotys: Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707336.jpg" />
+  <img src="Z:/picture/008/save_picture_707336.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ VA - Extra Lounge (episode 8) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707306.jpg" />
+  <img src="Z:/picture/008/save_picture_707306.jpg" />
 </div>
 
 
@@ -94,7 +152,7 @@ VA - Club Dance Ambience Vol.107 (2017) [MP3|256-320 Kbps] <Club House, Vocal Ho
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707082.jpg" />
+  <img src="Z:/picture/008/save_picture_707082.jpg" />
 </div>
 
 
@@ -123,7 +181,7 @@ VA - Romantic Deep House (2014) [MP3|320 кб/с]<Deep House>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706432.jpg" />
+  <img src="Z:/picture/008/save_picture_706432.jpg" />
 </div>
 
 
@@ -152,7 +210,7 @@ VA - Лучшая клубная сотня 13 (2011) [MP3|160-320 kbps]<Dance, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706211.jpg" />
+  <img src="Z:/picture/008/save_picture_706211.jpg" />
 </div>
 
 
@@ -187,7 +245,7 @@ VA - Deep Session (2018) [MP3|320 Kbps] <Deep House, Nu Disco>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706188.jpg" />
+  <img src="Z:/picture/008/save_picture_706188.jpg" />
 </div>
 
 
@@ -216,7 +274,7 @@ VA - Deep House Collection vol.166 (2018) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706097.jpg" />
+  <img src="Z:/picture/008/save_picture_706097.jpg" />
 </div>
 
 
@@ -245,7 +303,7 @@ VA - Deep House Session (Vol. 2) (2018) [MP3|320 Kbps] <Deep House, Electronic>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706094.jpg" />
+  <img src="Z:/picture/008/save_picture_706094.jpg" />
 </div>
 
 
@@ -274,7 +332,7 @@ VA - Trip to Ibiza 2014 - House Set For V.I.P (2016) [MP3|256-320 кб/с] <Tech
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706054.jpg" />
+  <img src="Z:/picture/008/save_picture_706054.jpg" />
 </div>
 
 
@@ -303,7 +361,7 @@ VA - Vocal Trance Collection Vol.11 (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705997.jpg" />
+  <img src="Z:/picture/008/save_picture_705997.jpg" />
 </div>
 
 
@@ -332,7 +390,7 @@ VA - Red Sea Gruves (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705521.jpg" />
+  <img src="Z:/picture/008/save_picture_705521.jpg" />
 </div>
 
 
@@ -361,7 +419,7 @@ VA - Deep House Collection Vol.119 (2017) [MP3|320 Kbps] <Deep House, Club House
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705080.jpg" />
+  <img src="Z:/picture/008/save_picture_705080.jpg" />
 </div>
 
 
@@ -390,7 +448,7 @@ VA - Record Super Chart № 187 (2011) [MP3|320 kbps]<House, Trance, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704288.jpg" />
+  <img src="Z:/picture/008/save_picture_704288.jpg" />
 </div>
 
 
@@ -425,7 +483,7 @@ VA - Hits of My Soul Vol. 34 (2018) [MP3|320 кб/с]<Trap>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704192.jpg" />
+  <img src="Z:/picture/008/save_picture_704192.jpg" />
 </div>
 
 
@@ -457,7 +515,7 @@ VA - Trip to Ibiza 2014 - Soulful Deep-House. Volume 1: by Day (2016) [MP3|320 �
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704073.jpg" />
+  <img src="Z:/picture/008/save_picture_704073.jpg" />
 </div>
 
 
@@ -486,7 +544,7 @@ VA - Beatport Top 100 Trance April (2017) [MP3|320 Kbps] <Trance, Progressive Tr
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703032.jpg" />
+  <img src="Z:/picture/008/save_picture_703032.jpg" />
 </div>
 
 
@@ -515,7 +573,7 @@ VA - Record Super Chart #485 (2017) [MP3|320 Kbps] <House, Club, Dance>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702827.jpg" />
+  <img src="Z:/picture/008/save_picture_702827.jpg" />
 </div>
 
 
@@ -544,7 +602,7 @@ VA - Music For Sports Games Vol 2 (2017) [MP3|256-320 Kbps] <Club, Dance, Pop>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702826.jpg" />
+  <img src="Z:/picture/008/save_picture_702826.jpg" />
 </div>
 
 
@@ -573,7 +631,7 @@ VA - Beatport Top 100 House April (2017) [MP3|320 Kbps] <House, Progressive Hous
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702746.jpg" />
+  <img src="Z:/picture/008/save_picture_702746.jpg" />
 </div>
 
 
@@ -602,7 +660,7 @@ VA - Beatport Top 100 Downloads April (2017) [MP3|320 Kbps] <House, Deep House, 
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702742.jpg" />
+  <img src="Z:/picture/008/save_picture_702742.jpg" />
 </div>
 
 
@@ -631,7 +689,7 @@ VA - Lounge At The Seashore 14 (by Alex3107) (2014) [MP3|320 кб/с]<Lounge, Ch
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702564.jpg" />
+  <img src="Z:/picture/008/save_picture_702564.jpg" />
 </div>
 
 
@@ -660,7 +718,7 @@ VA - Flash Party Line DJ (2016) [MP3|320 кб/с] <House, Future House, Bigroom>
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702513.jpg" />
+  <img src="Z:/picture/008/save_picture_702513.jpg" />
 </div>
 
 
@@ -689,7 +747,7 @@ VA - Trip to Ibiza 2014. Chill Out (2016) [MP3|320 кб/с] <Chill Out, Downtemp
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702504.jpg" />
+  <img src="Z:/picture/008/save_picture_702504.jpg" />
 </div>
 
 
@@ -703,64 +761,6 @@ VA - Trip to Ibiza 2014. Chill Out (2016) [MP3|320 кб/с] <Chill Out, Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8FA7ADCA3CCD134BDFFC919FF356169D0C7F254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220599   (702459) от 20.04.2018
-
-VA - Trance Treasures: Pacific Legendary Sounds (2018) [MP3|320 Kbps] <Progressive, Electro, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло уже больше половины весны, но на улице по-прежнему прохладно. Отлично согреться и взбодриться поможет музыкальная подборка «Trance Treasures: Pacific Legendary Sounds» – свежий музыкальный сборник коммерческого формата для любителей качественного транса.001. Late Night Alumni - Montage (Mitiska Extended Signature Mix)
-002. Miroslav Vrlik - Second Reset (Original Mix)
-003. Bukat - Free Character (Original Mix)
-004. FRAM! feat. ANGE - Limits (Mix-Roman Remix)(   Читать дальше...   )Жанр: Progressive, Electro, TranceПродолжительность: 09:56:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD2763B201476BE94819612E8F16266452A513C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220703   (702454) от 20.04.2018
-
-VA - Take On The Best Of Vocal Synthwave 2 (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Dreamwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LANights - Voice Don't Stop Voice (Gertrudda Synthmix Edit) (5:55)
-02. Kalax feat. Player One - Not Alone (5:16)
-03. Jenny feat. NightStop - Moonlight Bubblebath (Gertrudda Fanmix Edit) (7:05)
-04. Timecop1983 feat. By An Ion - Falling Apart (The New Division Remix) (5:06)(   Читать дальше...   )Жанр: Synthwave, Retrosynth, DreamwaveПродолжительность: 03:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74BB5F3DA476AD007ED52DAF997BC68BFA8A938C
 ```
 
 https://mybot314.ru/tekegram_catalog/

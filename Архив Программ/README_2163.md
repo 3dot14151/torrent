@@ -1,3 +1,293 @@
+###  Публикация: 1730275   (53210) от 15.06.2024
+
+JetBrains RubyMine 2024.1.3 Repack by Sitego [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53210.jpg" />
+</div>
+
+
+###  Подробнее
+
+RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
+Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA62D965B7A295C4C8B37170AC5E10AAB4CD0028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730417   (53192) от 15.06.2024
+
+CherryTree 1.1.3.0 (x64) + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53192.jpg" />
+</div>
+
+
+###  Подробнее
+
+CherryTree - функциональная программа, которая позволит вам без проблем вести разного уровня сложности заметки. Из плюсов можно отметить наличие Русской поддержки, подхватывается автоматически после запуска. Вы сможете создавать иерархическую структуру заметом, имеется подсветка синтаксиса, все ваши записи вы сможете защитить паролем, также вы сможете импортировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0463280225B71D04086A4B77D6D036ADC59DE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730413   (53187) от 15.06.2024
+
+Process Lasso Pro 14.1.1.16 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57D9939B6A71F8423F09AA3716EA4B9092BF8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730490   (53175) от 16.06.2024
+
+AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.30.6900 RePack (&Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53175.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIDA64 - утилита является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AAA8E99B3FA3DA91B32A664EE084A83C2E86927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730638   (53141) от 16.06.2024
+
+Multi Commander Full Edition 14.0 Build 3016 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Multi Commander - мощный многооконный менеджер файлов, являющийся отличной альтернативой стандартному проводнику Windows. При работе с файлами используется удобный двухпанельный вид, что обеспечивает простоту и доступность эффективного и быстрого управления файлами в повседневной деятельности.
+Кроме стандартного набора функциональных возможностей файлового менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88BE5DBA2877ACC99C392A3FCB7D896FD3DB9710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730501   (53131) от 16.06.2024
+
+Internet Download Manager 6.42 Build 11 RePack by elchupacabra (16.06.2024) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C39420A740FC4B8252A2BCC2C940E29D8EB3F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730548   (53118) от 16.06.2024
+
+O&O DiskImage Professional 19.1 Build 146 RePack by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53118.jpg" />
+</div>
+
+
+###  Подробнее
+
+O&O DiskImage Professional позволяет создавать резервные копии всего компьютера или отдельных файлов в любое время - даже когда компьютер используется. В случае утери персональных данных, они могут быть легко восстановлены с помощью всего нескольких кликов - даже когда система Windows не запускается. Программа поддерживает работу с SSD-дисками и новейшими системами (   Читать дальше...   )Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DCD3F58888105EC1568344A18BD97AC55C1EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730543   (53113) от 16.06.2024
+
+Free Download Manager 6.23.0.5756 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Free Download Manager - кроссплатформенный менеджер загрузок, позволяющий удобно и централизованно управлять загрузкой файлов из интернета. Программа поддерживает перехват загрузок из браузеров Chrome, Firefox, Edge и Safari, скачивание торрентов, а также скачивание онлайн-видео с YouTube и других потоковых сервисов.
+Многопоточная загрузка файлов позволяет скачивать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC68F836632ECDB1C7F9A8E546EF5BB900A52317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730545   (53104) от 16.06.2024
+
+Sigil 2.2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sigil — программа представляет собой мощный редактор электронных книг в формате EPUB, позволяющий не только редактировать, но также создавать собственные электронные книги с собственным дизайном. Множество полезных функций, возможность настройки параметров конфигурации приложения делают данное программное обеспечение достаточно эффективным при работе с электронными (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41590DDDBFEDB093B851C32463CFB7E7982A84E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730642   (53096) от 16.06.2024
+
+OpenNumismat 1.9.9 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53096.jpg" />
+</div>
+
+
+###  Подробнее
+
+OpenNumismat является удобным и надежным приложением, предназначенным для коллекционеров монет и нумизматов, для создания нумизматической коллекции.
+С OpenNumismat вы сможете организовывать и управлять коллекцией монет: создавать подробный каталог ваших монет, списки нужного и проданного, просматривать статистику вашей коллекции.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4711EAF1960558595859D00771E62E069A40B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730634   (53087) от 16.06.2024
+
+Tablacus Explorer 24.6.16 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tablacus Explorer - удобный в работе и простой в использовании файловый менеджер, позволяющий работать с двумя, либо четырьмя панелями, с возможностью создавать нужное количество вкладок на каждой. Tablacus Explorer дублирует все стандартные функции Проводника для работы с папками и файлами, дополняя их удобным представлением. Благодаря утилите процессы копирования, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE5C58DC6CD6F2EF50E3882FB74EF0FA50628E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730511   (53083) от 16.06.2024
 
 iFind Data Recovery 9.1.2.0 RePack (& Portable) by elchupacabra [Multi]
@@ -6,7 +296,7 @@ iFind Data Recovery 9.1.2.0 RePack (& Portable) by elchupacabra [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53083.jpg" />
 </div>
 
 
@@ -34,7 +324,7 @@ Adobe Photoshop 2024 25.9.1.626 Full (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53069.jpg" />
 </div>
 
 
@@ -60,7 +350,7 @@ Reg Organizer 9.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53057.jpg" />
 </div>
 
 
@@ -86,7 +376,7 @@ Adobe Photoshop 2024 25.9.1.626 Light (x64) Portable by 7997 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53049.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53049.jpg" />
 </div>
 
 
@@ -112,7 +402,7 @@ ZD Soft Screen Recorder 11.7.7.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53039.jpg" />
 </div>
 
 
@@ -138,7 +428,7 @@ Freemake Video Converter 4.1.13.178 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53034.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53034.jpg" />
 </div>
 
 
@@ -164,7 +454,7 @@ Soft Organizer Pro 9.50 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53020.jpg" />
 </div>
 
 
@@ -190,7 +480,7 @@ Helium Music Manager Premium 17.1.151.0 (x64) RePack (& Portable) by elchupacabr
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53016.jpg" />
 </div>
 
 
@@ -216,7 +506,7 @@ ActivePresenter Pro Edition 9.1.5 (x64) RePack (& Portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53013.jpg" />
 </div>
 
 
@@ -242,7 +532,7 @@ EditPlus 6.0.0 build 0632 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53011.jpg" />
 </div>
 
 
@@ -268,7 +558,7 @@ Telegram Desktop 5.1.7 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53010.jpg" />
 </div>
 
 
@@ -296,7 +586,7 @@ PotPlayer 240509 (1.7.22233) (unofficial) Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53009.jpg" />
 </div>
 
 
@@ -322,7 +612,7 @@ High-Logic FontCreator Professional Edition 15.0.0.2987 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52988.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52988.jpg" />
 </div>
 
 
@@ -348,7 +638,7 @@ Microsoft Visual Studio 2019 Enterprise 16.11.37 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52987.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52987.jpg" />
 </div>
 
 
@@ -374,7 +664,7 @@ Microsoft Visual Studio 2022 Enterprise 17.10.2 (Offline Cache) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52982.jpg" />
 </div>
 
 
@@ -385,300 +675,6 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:402FE9E0D465AC3F1186B3F939FAF20559D7F974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730955   (52969) от 18.06.2024
-
-Psiphon 3 build 183 (17.06.2024) Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52969.jpg" />
-</div>
-
-
-###  Подробнее
-
-Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры.
-
-Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A214D14A0CF0C60D626493EB168512C40F14FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730708   (52964) от 18.06.2024
-
-Windows 10 Enterprise LTSC 2021 21H2 19044.4529 (Updated June 2024) by FaTaL [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52964.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборки основаны на официальных образах MICROSOFT MSDN (дата выпуска: ноябрь 2021):
-ru-ru_windows_10_enterprise_ltsc_2021_x86_dvd_cdf355eb.iso
-ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
-(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B75AB9BFAB7937EED6F24004377225ECF2295C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730855   (52963) от 18.06.2024
-
-Reg Organizer 9.45 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E117C1666FE267CA752627D144281B3A903AFE43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730850   (52948) от 18.06.2024
-
-JetBrains PyCharm Professional 2024.1.3 Repack by Sitego [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52948.jpg" />
-</div>
-
-
-###  Подробнее
-
-JetBrains PyCharm Professional – это мощная и многофункциональная интегрированная среда разработки, предназначенная для работы с языком программирования Python. Она разработана компанией JetBrains, которая также создала такие продукты, как IntelliJ IDEA, RubyMine и WebStorm. PyCharm включает в себя все необходимые инструменты для быстрой и эффективной разработки (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5EB239941218FD3A19A86C9AA053A09BCC7F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730860   (52947) от 18.06.2024
-
-AIMP 5.30 Build 2555 RePack (& Portable) by elchupacabra (Extended + Standard) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52947.jpg" />
-</div>
-
-
-###  Подробнее
-
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B291C04A7D7844A53B590ADF3BAB252465587396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730996   (52932) от 18.06.2024
-
-Avidemux 2.8.2 Nightly (r240531) + Portable (x64) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52932.jpg" />
-</div>
-
-
-###  Подробнее
-
-Avidemux - небольшой, простой редактор для работы с видео, который может использоваться как для обработки и редактирования видео, так и для конвертирования видеофайлов из одного формата в другой. Возможна работа со всеми наиболее популярными видеоформатами, включая AVI, совместимые с DVD MPEG файлы, MP4 и ASF. С помощью Avidemux можно производить базовые операции (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797E0FDE866BC4D4BB5BAD62F88CC9F794419BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731004   (52930) от 18.06.2024
-
-PotPlayer 240618 (1.7.22260) (unofficial) Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52930.jpg" />
-</div>
-
-
-###  Подробнее
-
-PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, позволяет назначать и изменять горячие клавиши, записывать воспроизводимый звук в отдельный файл, подключать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C80896D9060294A3933499D2D8E31EF26A5962F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731026   (52926) от 18.06.2024
-
-Media Player Classic - Black Edition (MPC-BE) 1.7.2 Stable RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic - Black Edition (MPC-BE) – универсальный проигрыватель аудио- и видеофайлов для операционной системы Windows. Этот проект имеет свою независимую разработку на базе оригинального кода «Media Player Classic» и «Media Player Classic - Home Cinema». Плеер имеет внушительный набор аудио-видео фильтров, который позволяет ему воспроизводить практически (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2523230EB1F870A3A8C58C76084A7CCAAD1F78D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730938   (52914) от 18.06.2024
-
-LibreWolf 127.0-1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox является одним из лучших браузеров. Тем не менее некоторые пользователи с недоверием относятся ко встроенным в продукт Mozilla службам телеметрии.
-Многие пользователи предпочитают, чтобы браузер по умолчанию был настроен на максимальную конфиденциальность и безопасность, хотя Firefox все же предлагает мощные возможности для настройки.
-LibreWolf как раз решает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A6572B6F800549F719CA348B816252F468945C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730956   (52911) от 18.06.2024
-
-WinSCP 6.3.4 Build 14955 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52911.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinSCP, это FTP и SFTP клиент с открытым исходным кодом для Windows систем, который поддерживает старый протокол SCP. Он обеспечивает безопасное передачу данных и файлов между разными компьютерами и позволяет использовать защищенный своего рода «туннель».
-При помощи WinSCP можно соединиться с сервером SSH (Secure Shell) по протоколу SFTP (SSH File Transfer Protocol) (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28ED57006651EA042CFB90A0B435000D33DB85A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731024   (52910) от 18.06.2024
-
-Media Player Classic Home Cinema (MPC-HC) 2.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Media Player Classic Home Cinema – удобный во всех планах мультимедийный проигрыватель. Он построен на базе классического плеера Media Player Classic и одного из лучших наборов медиа-кодеков ffdshow, и благодаря этому может проигрывать многие форматы видео и аудио файлов без установки внешних кодеков. Этот плеер имеет большое количество различных функциональных возможностей: (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2107E7A58555A1529DEAB81B3A0894D4B1C1C16
 ```
 
 https://mybot314.ru/tekegram_catalog/

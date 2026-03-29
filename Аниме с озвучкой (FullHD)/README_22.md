@@ -1,3 +1,29 @@
+###  Публикация: 1830525   (220797) от 30.10.2025
+
+Покинув группу А-ранга, я направился со своими бывшими учениками в глубины лабиринта | A-Rank Party wo Ridatsu shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu wo Mezasu | Глубины лабиринта [ТВ-1 ...
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220797.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом мире авантюрист — популярная и востребованная профессия. Да, она связана с риском для жизни, но зато можно вести трансляцию того, как ты покоряешь лабиринт или убиваешь монстров. Юк Фелдио тоже авантюрист, до недавнего времени входивший в известный отряд «Пика грома». До недавнего, потому что покинул группу. Почему? Устал, что им помыкают, обделяют при распределении (   Читать дальше...   )Производство: Bandai Namco PicturesЖанр: Экшен, Приключения, Фэнтези, РомантикаРежиссер: Katsumi OnoПеревод: Deep, CrunchyrollЯзык озвучки: Русский (DEEP, Anistar)Субтитры: Русские, АнглийскиеПродолжительность: 24 эп. по 24 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:439C599980FDC52BAB37275C0CEFD0E88AADBFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343092   (217165) от 06.12.2019
 
 Elfen Lied | Эльфийская песнь [2004, TV, 13 из 13 + спешл] BDRip 1080p 10-bit rus
@@ -6,7 +32,7 @@ Elfen Lied | Эльфийская песнь [2004, TV, 13 из 13 + спешл]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217165.jpg" />
+  <img src="Z:/picture/005/save_picture_217165.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Drifters | Скитальцы [2016, TV, 12 из 12] BDRip 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216394.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ Denpa Kyoushi | Ultimate Otaku Teacher | Он - сильнейший учите�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213267.jpg" />
+  <img src="Z:/picture/005/save_picture_213267.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ Gekijouban One Piece: Stampede | Ван-Пис: Фильм четырнадца�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213259.jpg" />
+  <img src="Z:/picture/005/save_picture_213259.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213200.jpg" />
+  <img src="Z:/picture/005/save_picture_213200.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ One Piece: Heart of Gold | Ван-Пис: Золотое сердце [2016, Spe
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213164.jpg" />
+  <img src="Z:/picture/005/save_picture_213164.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ One Piece Film: Gold | Ван-Пис: Фильм тринадцатый [2016, M
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213125.jpg" />
+  <img src="Z:/picture/005/save_picture_213125.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213070.jpg" />
+  <img src="Z:/picture/005/save_picture_213070.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213002.jpg" />
+  <img src="Z:/picture/005/save_picture_213002.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212985.jpg" />
+  <img src="Z:/picture/005/save_picture_212985.jpg" />
 </div>
 
 
@@ -272,7 +298,7 @@ Spriggan | Спригган [2022, Web, 06 эп.] WEB-DL 1080p raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212981.jpg" />
+  <img src="Z:/picture/005/save_picture_212981.jpg" />
 </div>
 
 
@@ -298,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212926.jpg" />
+  <img src="Z:/picture/005/save_picture_212926.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212770.jpg" />
+  <img src="Z:/picture/005/save_picture_212770.jpg" />
 </div>
 
 
@@ -357,7 +383,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212675.jpg" />
+  <img src="Z:/picture/005/save_picture_212675.jpg" />
 </div>
 
 
@@ -387,7 +413,7 @@ Summer Pockets | Карманы лета [2025, TV, 26 эп.] WEBRip 1080p raw+r
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_212543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_212543.jpg" />
 </div>
 
 
@@ -413,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212542.jpg" />
+  <img src="Z:/picture/005/save_picture_212542.jpg" />
 </div>
 
 
@@ -439,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212381.jpg" />
+  <img src="Z:/picture/005/save_picture_212381.jpg" />
 </div>
 
 
@@ -465,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212370.jpg" />
+  <img src="Z:/picture/005/save_picture_212370.jpg" />
 </div>
 
 
@@ -492,7 +518,7 @@ Makai Toshi Shinjuku | Demon City Shinjuku | Синдзюку - город-ад 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212368.jpg" />
+  <img src="Z:/picture/005/save_picture_212368.jpg" />
 </div>
 
 
@@ -518,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_212366.jpg" />
+  <img src="Z:/picture/005/save_picture_212366.jpg" />
 </div>
 
 
@@ -544,7 +570,7 @@ Rokka no Yuusha | Rokka: Braves of the Six Flowers | Герои шести цв�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_211914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_211914.jpg" />
 </div>
 
 
@@ -570,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_211758.jpg" />
+  <img src="Z:/picture/005/save_picture_211758.jpg" />
 </div>
 
 
@@ -597,7 +623,7 @@ Midara na Ao-chan wa Benkyou ga Dekinai | Ao-chan Can't Study! | Похотли�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210968.jpg" />
+  <img src="Z:/picture/005/save_picture_210968.jpg" />
 </div>
 
 
@@ -623,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210836.jpg" />
+  <img src="Z:/picture/005/save_picture_210836.jpg" />
 </div>
 
 
@@ -651,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210825.jpg" />
+  <img src="Z:/picture/005/save_picture_210825.jpg" />
 </div>
 
 
@@ -667,34 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E32366FBC9DA270BA3BDF796B6904366AAF0244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569161   (210745) от 11.08.2022
-
-Детективное агентство Хаматора [ТВ-2] | Хаматора: Ответ | Reply Hamatora | Re: Hamatora [2014, TV, 12 из 12] BDRip 1080p HEVC 10-bit Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_210745.jpg" />
-</div>
-
-
-###  Подробнее
-
-История, облаченная шоком и тайной, продолжается. Казалось бы, инцидент в Иокогаме мог стать причиной закрытия «Хаматоры», но наши герои не сдаются. Еще быстрее, еще сильнее, еще интереснее! Так, и только так! За эти 3 месяца восстание стихло, герои постепенно вернулись к обычной жизни, Хадзимэ стала частью «Minimum Holder PI duo», работая теперь от имени Найса. (   Читать дальше...   )Производство: Япония / Студия LercheЖанр: Приключения, детектив, мистикаРежиссер: Киси СэйдзиЯзык озвучки: Русский двухголосый закадровый, Японский
-- (внешним файлом) Eladiel & Zendos (жен & муж) (Onibaku)Субтитры: Русские (софтсаб полные/надписи)
-- (внешним файлом) (YakuSub Studio): Nika_Elrik (перевод), Doflein (редакция), Helge (оформление)Продолжительность: 12 серий по 24 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C56075E559F394B45F400F6EF6DD1A3BFDD10E
 ```
 
 https://mybot314.ru/tekegram_catalog/

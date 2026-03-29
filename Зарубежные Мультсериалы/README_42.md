@@ -1,3 +1,55 @@
+###  Публикация: 1553944   (230668) от 07.06.2022
+
+Отмена / Undone (2022) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8)  NewStation
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_230668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжет расскажет о девочке, которая после автомобильной аварии получила возможность перемещаться во времени и пространстве. Она пытается использовать свои способности, чтобы спасти давно умершего отца.Производство: США, Amazon Studios, Minnow Mountain, Submarine, Tornante CompanyЖанр: Мультфильм, фэнтези, драмаРежиссер: Хиско ХулсингПеревод: Многоголосый профессиональный (NewStation)Присутствует ненормативная лексика!Субтитры: русские, английские, арабские, датские, немецкие, испанские, финские, французские, ивритские, индонезийские, итальянские, корейские, японские, норвежские, голландские, польские, португальские, шведские, тамильские, тайские, турецкие, китайскиеПродолжительность: ~00:22:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A591F306EAE9D12A1BFED2D6D1FE93BC43E341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1832979   (230318) от 31.10.2025
+
+Отель Хазбин / Hazbin Hotel (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-2 из 8) Jaskier (обновляемая)
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_230318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ад страдает от перенаселения и сам решает эту проблему, регулярно истребляя своих граждан. Принцесса Ада Чарли хочет найти альтернативное решение без массовой бойни. Она открывает отель, чтобы грешники исправились и попали в Рай. Преданный партнёр и лучшая подруга Чарли, Вегги, и их первый клиент, звезда фильмов для взрослых Энджел Даст, поддерживают её мнение. Но (   Читать дальше...   )Производство: Филлипины, США / A24, Amazon MGM Studios, Bento Box EntertainmentЖанр: мультфильм, мюзикл, фэнтези, драма, комедияРежиссер: Вивьенн МедраноАктеры: Эрика Хенингсен, Стефани Беатрис, Blake Roman, Алекс Брайтман, Кит Дэвид, Кимико Гленн, Алекс Ньюэлл, Патрик Стамп, Лиз Колэуэй, Кевин Дель АгильяПеревод: Многоголосый профессиональный (Jaskier)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C3E432E5A4658B7C508C884CCD2FB458367B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463791   (228360) от 26.11.2021
 
 Солнечные противоположности / Solar Opposites (2021) WEB-DLRip (сезон 2, серии 1-9 из 9) NewStation
@@ -6,7 +58,7 @@
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228360.jpg" />
+  <img src="Z:/picture/005/save_picture_228360.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228061.jpg" />
+  <img src="Z:/picture/005/save_picture_228061.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228039.jpg" />
+  <img src="Z:/picture/005/save_picture_228039.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225610.jpg" />
+  <img src="Z:/picture/005/save_picture_225610.jpg" />
 </div>
 
 
@@ -112,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224236.jpg" />
+  <img src="Z:/picture/005/save_picture_224236.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223623.jpg" />
+  <img src="Z:/picture/005/save_picture_223623.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223420.jpg" />
+  <img src="Z:/picture/005/save_picture_223420.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223073.jpg" />
+  <img src="Z:/picture/005/save_picture_223073.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222953.jpg" />
+  <img src="Z:/picture/005/save_picture_222953.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221216.jpg" />
+  <img src="Z:/picture/005/save_picture_221216.jpg" />
 </div>
 
 
@@ -270,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221214.jpg" />
+  <img src="Z:/picture/005/save_picture_221214.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220969.jpg" />
+  <img src="Z:/picture/005/save_picture_220969.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220419.jpg" />
+  <img src="Z:/picture/005/save_picture_220419.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220396.jpg" />
+  <img src="Z:/picture/005/save_picture_220396.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220271.jpg" />
+  <img src="Z:/picture/005/save_picture_220271.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219787.jpg" />
+  <img src="Z:/picture/005/save_picture_219787.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219721.jpg" />
+  <img src="Z:/picture/005/save_picture_219721.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218477.jpg" />
+  <img src="Z:/picture/005/save_picture_218477.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218340.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218314.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218314.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_218091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_218091.jpg" />
 </div>
 
 
@@ -557,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217272.jpg" />
+  <img src="Z:/picture/005/save_picture_217272.jpg" />
 </div>
 
 
@@ -583,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216630.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216630.jpg" />
 </div>
 
 
@@ -609,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216583.jpg" />
 </div>
 
 
@@ -620,58 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23BE0AA2CC85B0C04A7EB9FCC5BD80842483223E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269942   (216512) от 16.12.2018
-
-Новое шоу Дятла Вуди / The New Woody Woodpecker Show (1999-2000) DVBRip [H.264] (Сезоны 1-3, Серий 53 из 53)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вуди Вудпекер, самый известный в мире забавный дятел, возвращается. И вместе с ним - его заразительный смех и компания его уморительных друзей. Они участвуют в девяти новых фантастически увлекательных мультипликационных историях.Производство: СШАЖанр: Приключения, КомедияРежиссер: Джефф Нимой, Чарльз ШнайдерПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 53x ~00:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8353A03984E86AA7020DD5C42D7384E7031FE4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514267   (216167) от 03.12.2021
-
-Аватар: Легенда об Аанге / Avatar: The Last Airbender (2005-2008) BDRip [H.265/1080p] [10-bit] (сезон 1-3, серии 1-61 из 61) Арт Дубляж
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир разделен на четыре народа: Водные племена, королевство Земли, Воздушные кочевники и Огненная нация. Представители каждого народа обладают способностями управления своей стихией и именуют себя магами Воды, Земли, Воздуха или Огня. Только Аватар является властелином всех четырех стихий. Его роль заключается в поддержке баланса между народами и сохранении мирового (   Читать дальше...   )Производство: США / Nickelodeon Animation StudiosЖанр: мультфильм, фэнтези, боевикРежиссер: Джанкарло Вольпе, Этан Сполдинг, Лорен МакмалленАктеры: Ди Брэдли Бейкер, Зак Тайлер, Мэй Уитман, Джек Де Сена, Данте Баско, Джесси Флауер, Мако, Грэй Гриффин, Андре Сольюццо, Крикет Ли и др.Перевод: ДублированныйЯзык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6D2949A7AE14185E92FFCC509112D0E18CA69C
 ```
 
 https://mybot314.ru/tekegram_catalog/

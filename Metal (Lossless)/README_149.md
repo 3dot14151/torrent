@@ -1,3 +1,90 @@
+###  Публикация: 940223   (469332) от 24.09.2015
+
+Love Lies Bleeding - S.I.N. (2001) [FLAC|image +.cue]<Atmospheric Black Metal / Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_469332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ante-Persistence I
+02. Ante-Persistence II
+03. Frygt Og Baeven
+04. Bringer of Redemption(   Читать дальше...   )Жанр: Atmospheric Black Metal / Doom MetalПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A07504570E053DAF7AF1E9DBE1E77B1D051EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940244   (469329) от 24.09.2015
+
+Love Lies Bleeding - Behold My Vain Sacrifice (2000) [FLAC|image +.cue]<Atmospheric Black Metal / Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_469329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Who Didn't Want to Be
+02. The Flowers of Nevermore
+03. Virtue's Dusk
+04. I Drown in Existence(   Читать дальше...   )Жанр: Atmospheric Black Metal / Doom MetalПродолжительность: 01:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3685AE62907B1CBF94B0986C982156637A9F124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567872   (468135) от 05.08.2022
+
+Abhorer - Zygotical Sabbatory Anabapt (1996) [APE|Lossless|image + .cue] <Black Metal, Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_468135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invoking Nana Sahib, Satyrical Goat of Mendes (1:01)
+02. Concubinal Celibatic Myrmidonian Whores (3:59)
+03. Abandonment of Chastity (3:06)
+04. Hymeneal Altar of Messianic Salacitation (4:45)(   Читать дальше...   )Жанр: Black Metal, Death Metal, Thrash MetalПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720FE93F39151763CFF1AE3E9C1EEF39DB662593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567819   (468134) от 05.08.2022
 
 Abscess - Bourbon, Blood And Butchery (2013) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -6,7 +93,7 @@ Abscess - Bourbon, Blood And Butchery (2013) [FLAC|Lossless|image + .cue] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468134.jpg" />
+  <img src="Z:/picture/008/save_picture_468134.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Abscess - Dawn Of Inhumanity (2010) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468133.jpg" />
+  <img src="Z:/picture/008/save_picture_468133.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Martyr - Feeding The Abscess (2006) [FLAC|Lossless|image + .cue] <Technical Deat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468132.jpg" />
+  <img src="Z:/picture/008/save_picture_468132.jpg" />
 </div>
 
 
@@ -90,7 +177,7 @@ Reternity - Cosmic Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468129.jpg" />
+  <img src="Z:/picture/008/save_picture_468129.jpg" />
 </div>
 
 
@@ -119,7 +206,7 @@ Nightmare - Live Hard, Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468128.jpg" />
+  <img src="Z:/picture/008/save_picture_468128.jpg" />
 </div>
 
 
@@ -148,7 +235,7 @@ Sin Isomer - Burst Into Isomer (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467645.jpg" />
+  <img src="Z:/picture/008/save_picture_467645.jpg" />
 </div>
 
 
@@ -177,7 +264,7 @@ Vampire - Vampire & Cimmerian Shade EP (2014) [FLAC|Lossless|image + .cue] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467642.jpg" />
+  <img src="Z:/picture/008/save_picture_467642.jpg" />
 </div>
 
 
@@ -206,7 +293,7 @@ Sacrosanct - Recesses for the Depraved (1991) [APE|Lossless|image + .cue] <Progr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467640.jpg" />
+  <img src="Z:/picture/008/save_picture_467640.jpg" />
 </div>
 
 
@@ -235,7 +322,7 @@ Svartsyn - In Death (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467636.jpg" />
+  <img src="Z:/picture/008/save_picture_467636.jpg" />
 </div>
 
 
@@ -264,7 +351,7 @@ Taberah - Sinner's Lament (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467634.jpg" />
+  <img src="Z:/picture/008/save_picture_467634.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Humanitas Error Est - Human Pathomorphism (2016) [FLAC|Lossless|image + .cue] <B
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467596.jpg" />
+  <img src="Z:/picture/008/save_picture_467596.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Secret Sphere - The Nature Of Time (2017) Japan [FLAC|Lossless|image + .cue] <Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467594.jpg" />
+  <img src="Z:/picture/008/save_picture_467594.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Masterplan - PumpKings (2017) Japan[FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467589.jpg" />
+  <img src="Z:/picture/008/save_picture_467589.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Signum Regis - Decennium Primum (2017) Japan [FLAC|Lossless|image + .cue] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467585.jpg" />
+  <img src="Z:/picture/008/save_picture_467585.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Suicidal Angels - Years of Aggression (2019) [FLAC|Lossless|WEB-DL|tracks] <Thra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467270.jpg" />
+  <img src="Z:/picture/008/save_picture_467270.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ HammerFall - Dominion (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467253.jpg" />
+  <img src="Z:/picture/008/save_picture_467253.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Angelus Apatrida - Clockwork (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466586.jpg" />
+  <img src="Z:/picture/008/save_picture_466586.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ Necromantia - Chthonic Years / Demo Collection (2018) 2CD [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466304.jpg" />
+  <img src="Z:/picture/008/save_picture_466304.jpg" />
 </div>
 
 
@@ -522,7 +609,7 @@ Ars Goetia - Anachoreta (2007) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466109.jpg" />
+  <img src="Z:/picture/008/save_picture_466109.jpg" />
 </div>
 
 
@@ -551,7 +638,7 @@ Voracious Scourge - In Death (2020) [FLAC|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466108.jpg" />
+  <img src="Z:/picture/008/save_picture_466108.jpg" />
 </div>
 
 
@@ -580,7 +667,7 @@ Artical - Illusion X (2013) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466107.jpg" />
+  <img src="Z:/picture/008/save_picture_466107.jpg" />
 </div>
 
 
@@ -609,7 +696,7 @@ Age Of Agony - The Dark Conquers All (Demo) (2003) [FLAC|Lossless|tracks] <Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466106.jpg" />
+  <img src="Z:/picture/008/save_picture_466106.jpg" />
 </div>
 
 
@@ -638,7 +725,7 @@ Zubrowska - Family Vault (2005) [FLAC|Lossless|image + .cue] <Brutal Deathcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466105.jpg" />
+  <img src="Z:/picture/008/save_picture_466105.jpg" />
 </div>
 
 
@@ -652,93 +739,6 @@ Zubrowska - Family Vault (2005) [FLAC|Lossless|image + .cue] <Brutal Deathcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DCAF19CB7F6F3D64827DCFEEDE4280894CFC08F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568074   (466024) от 06.08.2022
-
-Temperance - Diamanti (2021) [FLAC|Lossless|image + .cue] <Modern Heavy Metal, Male Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure Life Unfolds (5:06)
-02. Breaking the Rules of Heavy Metal (4:43)
-03. Diamanti (4:32)
-04. Black is My Heart (4:06)(   Читать дальше...   )Жанр: Modern Heavy Metal, Male Female VocalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0940F366CC86D8B2E2F7EFF6229D8DE092B6A0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568023   (466011) от 06.08.2022
-
-Moonlight Haze - Animus (2022) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Nothing
-02. It's Insane
-03. Kintsugi
-04. Animus(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6F149952A040681940326F9B2E468F218CEA7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 50609   (465856) от 07.09.2020
-
-Metallica - Reload (1997) [APE|Lossless|image + .cue] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuel (4:30)
-02. The Memory Remains (4:39)
-03. Devil's Dance (5:19)
-04. The Unforgiven II (6:36)(   Читать дальше...   )Жанр: MetalПродолжительность: 01:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FE91CA89B1EBE50F1B652C90CC635CD84F2C65
 ```
 
 https://mybot314.ru/tekegram_catalog/

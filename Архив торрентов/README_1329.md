@@ -6,7 +6,7 @@ SketchUp Pro 2019 v19.0.684 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754835.jpg" />
+  <img src="Z:/picture/008/save_picture_754835.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VN v1.34.12 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754810.jpg" />
+  <img src="Z:/picture/008/save_picture_754810.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Зарубежные клубные новинки vol.2 (2011) [MP3|320 kb
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754806.jpg" />
+  <img src="Z:/picture/008/save_picture_754806.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Advanced IP Scanner 2.4.2601 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754790.jpg" />
+  <img src="Z:/picture/008/save_picture_754790.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ VA - Ancient Sacred Knowledge (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psy
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754774.jpg" />
+  <img src="Z:/picture/008/save_picture_754774.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754768.jpg" />
+  <img src="Z:/picture/005/save_picture_754768.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754760.jpg" />
+  <img src="Z:/picture/008/save_picture_754760.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Mozilla Thunderbird 52.7.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754759.jpg" />
+  <img src="Z:/picture/008/save_picture_754759.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Pale Moon 27.8.3 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754757.jpg" />
+  <img src="Z:/picture/005/save_picture_754757.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Mozilla Thunderbird 52.7.0 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754752.jpg" />
+  <img src="Z:/picture/008/save_picture_754752.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Watercolor Studio Pro 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754748.jpg" />
+  <img src="Z:/picture/008/save_picture_754748.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Ruler App v2.1.4 [Ru/En]  - Линейка в вашем смартфоне ил
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754717.jpg" />
+  <img src="Z:/picture/008/save_picture_754717.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Dash 4.6.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754700.jpg" />
+  <img src="Z:/picture/008/save_picture_754700.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ Sketch 53 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754693.jpg" />
+  <img src="Z:/picture/008/save_picture_754693.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Process Lasso Pro 9.0.0.442 RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754594.jpg" />
+  <img src="Z:/picture/005/save_picture_754594.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Q-Dir 6.98.1 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754593.jpg" />
+  <img src="Z:/picture/008/save_picture_754593.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Ilan Eshkeri - Centurion(Центурион) (2009/2010) [MP3|320 kbps]<Soundtra
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754551.jpg" />
+  <img src="Z:/picture/005/save_picture_754551.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754537.jpg" />
+  <img src="Z:/picture/008/save_picture_754537.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ Maxthon Browser 5.2.0.2000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754472.jpg" />
+  <img src="Z:/picture/008/save_picture_754472.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ StartIsBack++ 2.6.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754463.jpg" />
+  <img src="Z:/picture/008/save_picture_754463.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754457.jpg" />
+  <img src="Z:/picture/008/save_picture_754457.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Various - Tuttosanremo '83 (2 LP) (1983) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Chan
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754409.jpg" />
+  <img src="Z:/picture/008/save_picture_754409.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ IObit Smart Defrag 2.0.1 [Rus/Multi] [UnaTTended Install]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754398.jpg" />
+  <img src="Z:/picture/005/save_picture_754398.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ RarmaRadio 2.61 [Rus/Multi] [UnaTTended Install]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_754391.jpg" />
+  <img src="Z:/picture/005/save_picture_754391.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ AIDA64 Extreme | Engineer | Business Edition | Network Audit 5.97.4600 Final ReP
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754382.jpg" />
+  <img src="Z:/picture/008/save_picture_754382.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Advanced System Font Changer 1.1.1.31 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754377.jpg" />
+  <img src="Z:/picture/008/save_picture_754377.jpg" />
 </div>
 
 

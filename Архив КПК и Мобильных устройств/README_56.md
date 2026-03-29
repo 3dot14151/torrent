@@ -1,3 +1,29 @@
+###  Публикация: 778078   (569988) от 17.08.2016
+
+Link2SD Plus v3.4.2 - перенос установленных приложений на карту памяти (16.04.2014) <Ru/Multi>
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_569988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа позволяет переносить на SD карту только те приложения, которые пользователь выберет. Т.е. в отличие от скрипта app2sd не переностит всю папку /data/app, а только выбранные apk. Управление приложениями осуществляется в самой программе. Для переноса apk на SD карту памяти - выделяем его и выбираем пункт Create link. Также есть возможность выбирать переносить (   Читать дальше...   )Разработчик: Bulent AkpinarЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71419BA898F9A17037439846FF68A858E2B21ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921185   (569794) от 28.07.2015
 
 Банда Ольсена: Коллекция / Olsen banden: The Collection (1969-1998) HDRip [H.264] (Серии 1-14 из 15) [MP4|960х576]
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569794.jpg" />
+  <img src="Z:/picture/008/save_picture_569794.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Motivation - Каждый день v3.8.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568611.jpg" />
+  <img src="Z:/picture/008/save_picture_568611.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ I am — ежедневные аффирмации v4.3.2 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568597.jpg" />
+  <img src="Z:/picture/008/save_picture_568597.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Go Translator Premium v1.47 [Ru/Multi] - для мгновенного пере�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566709.jpg" />
+  <img src="Z:/picture/008/save_picture_566709.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566134.jpg" />
+  <img src="Z:/picture/008/save_picture_566134.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565675.jpg" />
+  <img src="Z:/picture/008/save_picture_565675.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565150.jpg" />
+  <img src="Z:/picture/008/save_picture_565150.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565138.jpg" />
+  <img src="Z:/picture/008/save_picture_565138.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565051.jpg" />
+  <img src="Z:/picture/008/save_picture_565051.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565021.jpg" />
+  <img src="Z:/picture/008/save_picture_565021.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ Sms Parser Full v3.2.2 [Ru/Multi] - обработка USSD запросов и 
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564911.jpg" />
+  <img src="Z:/picture/008/save_picture_564911.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ The Simpsons: Tapped Out 4.16.2 [Ru] MegaMod
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564248.jpg" />
+  <img src="Z:/picture/008/save_picture_564248.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564153.jpg" />
+  <img src="Z:/picture/008/save_picture_564153.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564150.jpg" />
+  <img src="Z:/picture/008/save_picture_564150.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Shift Schedule - График Работы v10.8.01.b [Ru] - График раб
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562960.jpg" />
+  <img src="Z:/picture/008/save_picture_562960.jpg" />
 </div>
 
 
@@ -400,7 +426,7 @@ Fast Pro for Facebook 3.6.2 [Ru/Multi] - Приложение для Facebook
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562629.jpg" />
+  <img src="Z:/picture/008/save_picture_562629.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562575.jpg" />
+  <img src="Z:/picture/008/save_picture_562575.jpg" />
 </div>
 
 
@@ -453,7 +479,7 @@ Lingvist - Languages in 200h 1.1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562529.jpg" />
+  <img src="Z:/picture/008/save_picture_562529.jpg" />
 </div>
 
 
@@ -481,7 +507,7 @@ Hotspot Shield VPN for Android 3.7.7 [Ru/Multi] - Прокси и VPN для And
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562191.jpg" />
+  <img src="Z:/picture/008/save_picture_562191.jpg" />
 </div>
 
 
@@ -507,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561488.jpg" />
+  <img src="Z:/picture/008/save_picture_561488.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ Android Delete History PRO 1.5 (rus) - Удаление историй [Прог
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_560320.jpg" />
+  <img src="Z:/picture/005/save_picture_560320.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ Dolphin Browser HD 8.7.0 Final - Браузер /обновлено 03.08.12/[П
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_560218.jpg" />
+  <img src="Z:/picture/005/save_picture_560218.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ Astro Player 1.154 (Unlocked)  - Медиа-плеер [Программа](Andr
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_560128.jpg" />
+  <img src="Z:/picture/005/save_picture_560128.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_560113.jpg" />
+  <img src="Z:/picture/005/save_picture_560113.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559398.jpg" />
+  <img src="Z:/picture/008/save_picture_559398.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE2CDD9100CE162867C210C089EA82B7A3864D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 363652   (558997) от 19.07.2011
-
-Silent hill 1,2,3 / (2007-2009) [240x320] <Ru>
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_558997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра представляет собой квест от первого лица на мобильном телефоне. Сюжет вращается вокруг сестры Алессы — Карен, которая тридцать лет назад жила в приюте Сайлент Хилла. Повествование в игре ведётся от лица трёх персонажей(Бен, Мун, Карен), которые были в приюте во время ночной резни и остались живы. Место действия всей игры — приют Сайлент Хилла, куда все персонажи (   Читать дальше...   )Язык интерфейса: Русский, Французский, Немецкий, Итальянский, Испанский, Португальский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

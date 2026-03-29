@@ -1,3 +1,115 @@
+###  Публикация: 1706367   (113662) от 12.03.2024
+
+Михаил Волконский | Слуга императора Павла (2011) [MP3, Маргарита Иванова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям. «Русский Дюма», так называли его современники, написал более двадцати исторических романов и повестей.
+Роман «Слуга императора Павла» посвящен рассказу о попытке предотвратить заговор и спасти Павла.
+Прочитано (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Нигде не купишьПродолжительность: 08:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B625C3F6F2F471D0ACA08CCB6F719141C5E6600E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706370   (113641) от 12.03.2024
+
+Михаил Волконский | Две жизни (2011) [MP3, Маргарита Иванова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113641.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Исторический авантюрный роман.
+Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям. «Русский Дюма», так называли его современники, написал более двадцати исторических романов и повестей.
+Роман «Две жизни» вводит слушателя в полную тайн и мистики атмосферу (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий романИздательство: Нигде не купишьПродолжительность: 08:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D9C6BF05AFEC0D9D30213B75F308CF23FFA134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706365   (113620) от 12.03.2024
+
+Михаил Волконский | Горсть бриллиантов (2015) [MP3, Маргарита Иванова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113620.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Николаевич Волконский (1860–1917), князь, русский писатель и драматург, получивший признание благодаря своим историческим и пародийным произведениям. «Русский Дюма», так называли его современники, написал более двадцати исторических романов и повестей.
+Рассказ-быль «Горсть бриллиантов» повествует о том, как молодой человек, простодушный и чистый сердцем дворянин (   Читать дальше...   )Жанр: Русская литература, классика, историко–приключенческий рассказ-быльИздательство: Нигде не купишьПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6623F0556181C655D5372BF6C07E0B7FB01B1F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706626   (113530) от 13.03.2024
+
+Давид Самойлов | Поэтические страницы (2009) [MP3, Михаил Козаков]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Давид Самойлов (1920–1990) – русский советский поэт, переводчик.
+Стихи читает Михаил Козаков со своими комментариями. Песни на стихи исполняет Анастасия Модестова в сопровождении флейты и гитары.
+
+«Мне снился сон...» – музыкально-поэтическая композиция на стихи Давида Самойлова, которую мы с певицей Анастасией Модестовой предлагаем Вашему вниманию.(   Читать дальше...   )Жанр: Русская литература, классика, поэзияИздательство: АудиокнигаПродолжительность: 01:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135F9F42141FC9DF3021D9290DC8009DD936F7F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707203   (113372) от 15.03.2024
 
 Николай Карамзин | Бедная Лиза. Письма русского путешественника (2006) [MP3, Лидия Леликова, Сергей Фёдоров]
@@ -6,7 +118,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113372.jpg" />
 </div>
 
 
@@ -34,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113346.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113346.jpg" />
 </div>
 
 
@@ -62,7 +174,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_113071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113071.jpg" />
 </div>
 
 
@@ -89,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112958.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112958.jpg" />
 </div>
 
 
@@ -117,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112939.jpg" />
 </div>
 
 
@@ -145,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112713.jpg" />
 </div>
 
 
@@ -172,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112575.jpg" />
 </div>
 
 
@@ -200,7 +312,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112512.jpg" />
 </div>
 
 
@@ -228,7 +340,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112511.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112511.jpg" />
 </div>
 
 
@@ -256,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112509.jpg" />
 </div>
 
 
@@ -284,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112291.jpg" />
 </div>
 
 
@@ -312,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112042.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112042.jpg" />
 </div>
 
 
@@ -341,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111918.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111918.jpg" />
 </div>
 
 
@@ -368,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111872.jpg" />
 </div>
 
 
@@ -395,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111820.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111820.jpg" />
 </div>
 
 
@@ -421,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111819.jpg" />
 </div>
 
 
@@ -448,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111783.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111783.jpg" />
 </div>
 
 
@@ -475,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111295.jpg" />
 </div>
 
 
@@ -502,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109446.jpg" />
 </div>
 
 
@@ -530,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109216.jpg" />
 </div>
 
 
@@ -559,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109215.jpg" />
 </div>
 
 
@@ -586,7 +698,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109186.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109186.jpg" />
 </div>
 
 
@@ -598,116 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE91A4942FA404DEA9090219936B255B94E43D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724841   (109171) от 21.05.2024
-
-Уильям Шекспир | Гамлет (2007) [MP3, Юрий Лазарев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Школьная библиотека.
-Уильям Шекспир (1564–1616) – английский драматург, поэт эпохи Возрождения. В мировой истории – несомненно, самый знаменитый и значимый драматург, оказавший огромное влияние на развитие всего театрального искусства. Произведения Шекспира и сегодня не сходят с театральных подмостков всего мира.
-«Школьная библиотека» знакомит своих слушателей (   Читать дальше...   )Жанр: Зарубежная литература, классика, трагедияИздательство: АудиокнигаПродолжительность: 03:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DE37CE2DCDA9A9997D0ABDD38BD8561E3C51C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725214   (109061) от 23.05.2024
-
-П.И. Мельников-Печерский | Повести и рассказы (2011) [MP3, Светлана Репина]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Андрей Печерский (П.И. Мельников) родился в Нижнем Новгороде в дворянской семье. После Нижегородской гимназии учился на словесном факультете Казанского университета. Работал учителем в Пермской губернии, в Перми, в Нижнем Новгороде. Много ездил по Предуралью, посещал заводы, пристани, села. В 1839 году в журнале «Отечественные записки» напечатал свой первый литературный (   Читать дальше...   )Жанр: Русская литература, классика, повесть, рассказИздательство: Нигде не купишьПродолжительность: 14:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:772B9975F470C2CC243DD15FD21ECE68A8AD5E45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725376   (109036) от 24.05.2024
-
-Эрих Мария Ремарк | На западном фронте без перемен (2024) [MP3, Роман Ильин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109036.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Это рассказ о немецких мальчишках, которые под действием патриотической пропаганды идут на войну, не зная о том, что впереди их ждет не слава героев, а инвалидность и смерть…
-Каждый день войны уносит жизни чьих-то отцов, сыновей, а газеты тем временем бесстрастно сообщают: «На Западном фронте без перемен»…
-Эта книга – не обвинение, не исповедь. Это попытка (   Читать дальше...   )Жанр: Исторический военный романИздательство: Аудиокнига своими рукамиПродолжительность: 07:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235E62020F88D520CA9686F61B7D402096FE9E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726797   (108656) от 30.05.2024
-
-Теодор Драйзер | Гений (Книги 1-3) (2011) [MP3, Станислав Иванов, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_108656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика.
-Теодор Драйзер (1871–1945) американский писатель, журналист и общественный деятель. Яркий представитель американского течения натурализма и критического реализма. Мировую славу ему принесла трилогия «Титан», «Стоик» и «Финансист», а вершиной творчества стала «Американская трагедия».
-Герой романа «Гений», талантливый художник Юджин (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 10:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB97D76488085A0C7E89FBAD3F655ACE82558D88
 ```
 
 https://mybot314.ru/tekegram_catalog/

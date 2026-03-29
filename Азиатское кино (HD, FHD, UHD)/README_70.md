@@ -1,3 +1,133 @@
+###  Публикация: 1676472   (157559) от 13.11.2023
+
+До встречи (Буду ждать, пока ты не придёшь) / Bu Jian Bu San / Be There Or Be Square (1998) BDRip [H.264/720p] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_157559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герои этого фильма - китайцы, одержимые мечтой стать американцами. Симпатичный, но непутёвый Лю Юань приезжает в Лос-Анджелес из Пекина и встречает довольно холодный приём. Попытки получить работу и приспособиться к американской действительности оборачиваются для него постоянными проблемами - на его пути встают злоумышленники и извращенцы. В лице его новой знакомой (   Читать дальше...   )Производство: Китай, Beijing Film Studio, Forbidden City Films, Sleiman/Tyrol FilmsЖанр: комедия, мелодрамаРежиссер: Сяоган ФэнАктеры: Гэ Ю, Сюй Фань, Бобби С. КингПеревод: любительский многоголосыйЯзык озвучки: русский, китайскийСубтитры: русские (Амет Кемалидинов), английскиеПродолжительность: 01:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445486FA4FFDABA67043C90A3070841F32BA073E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600351   (156584) от 27.12.2022
+
+Корабль в Пусан / Neukdaesanyang / Project Wolf Hunting (2022) WEB-DL [H.264/1080p] [Локализованная версия]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Арестованных на Филиппинах корейских преступников экстрадируют в пусанский порт на грузовом судне. Хотя конвой обеспечивают опытные оперативники, бандитам удаётся освободиться и устроить бунт на корабле, но в процессе все участники противостояния сталкиваются с неожиданным ужасом.Производство: Корея Южная / Cheum Film, Contents GЖанр: боевик, ужасы, криминалРежиссер: Ким Хон-сонАктеры: Со Ин-гук, Чан Дон-юн, Сон Дон-иль, Пак Хо-сан, Чон Со-мин, Ко Чхан-сок, Чан Ён-нам, Сон Джон-хак, Ли Сон-ук, Хон Джи-юнПеревод: Дублированный (Paragraph Media)Язык озвучки: Русский, КорейскийСубтитры: РусскиеПродолжительность: 01:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFCF9562ACC129C74FDF957A9289439F1C41F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600400   (156505) от 27.12.2022
+
+Децибел / Desibel / Decibel (2022) WEB-DL [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Командиру военно-морского флота звонит аноним, и утверждает, что заложил бомбы в местах скопления людей, в том числе на футбольном стадионе и в аквапарке. Заряды представляют собой «звуковые бомбы», которые взорвутся, когда уровень окружающего звука превысит 100 децибел. Эта террористическая атака происходит после инцидента, произошедшего год назад на подводной лодке, (   Читать дальше...   )Производство: Южная Корея, East Dream Synopex, Megabox Plus MЖанр: боевик, триллер, детективРежиссер: Хван Ин ХоАктеры: Ким Рэ-вон, Ли Джон-сок, Чон Сан-хун, Пак Пён-ын, Ли Сан-хи, Чо Даль-хван, Чха Ын-у, Ли Мин-ги, Хан Мин-ёп, У Джи-хёнПеревод: Авторский (Ю. Сербин)Язык озвучки: русский, корейскийСубтитры: английскиеПродолжительность: 01:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5032D2FB1BC911306FBA8417CF2FF0B4023AE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433508   (156139) от 21.12.2020
+
+Авангард: Арктические волки / Ji xian feng / Vanguard (2020) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они берутся за задания, которые другим не под силу. Когда международный синдикат наемников похищает известного бизнесмена, единственным шансом на его спасение становится лихая команда «Авангард», не имеющая равных в мастерстве и дерзости.Производство: Китай /  China Film (Shanghai) International Media Co., China Film Group Corporation (CFGC), Epitome CapitalЖанр: Боевик, криминалРежиссер: Стэнли ТунАктеры: Джеки Чан, Ян Ян, Ай Лунь, Сюй Жохань, Мия Муци, Чжу Чжэнтин, Джексон Лоу, Эйад Хурани, Дзавад Рамезани, Десмонд ЭлдриджПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D910E9014D2718F6A52559296D744BDBEB874F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433511   (155953) от 21.12.2020
+
+Авангард: Арктические волки / Ji xian feng / Vanguard (2020) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они берутся за задания, которые другим не под силу. Когда международный синдикат наемников похищает известного бизнесмена, единственным шансом на его спасение становится лихая команда «Авангард», не имеющая равных в мастерстве и дерзости.Производство: Китай /  China Film (Shanghai) International Media Co., China Film Group Corporation (CFGC), Epitome CapitalЖанр: Боевик, криминалРежиссер: Стэнли ТунАктеры: Джеки Чан, Ян Ян, Ай Лунь, Сюй Жохань, Мия Муци, Чжу Чжэнтин, Джексон Лоу, Эйад Хурани, Дзавад Рамезани, Десмонд ЭлдриджПеревод: Дублированный (iTunes)Субтитры: Русские (Forced, Full), Английские (Full)Продолжительность: 01:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623821DE6D7A1FB9B5F9557659A7E33F4BD11314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433509   (155691) от 21.12.2020
 
 Авангард: Арктические волки / Ji xian feng / Vanguard (2020) BDRip [H.264/1080p]
@@ -6,7 +136,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155691.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155691.jpg" />
 </div>
 
 
@@ -32,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155505.jpg" />
 </div>
 
 
@@ -58,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154632.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154632.jpg" />
 </div>
 
 
@@ -84,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154617.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154617.jpg" />
 </div>
 
 
@@ -110,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154492.jpg" />
 </div>
 
 
@@ -136,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154180.jpg" />
 </div>
 
 
@@ -162,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153507.jpg" />
 </div>
 
 
@@ -188,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153421.jpg" />
 </div>
 
 
@@ -214,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153323.jpg" />
 </div>
 
 
@@ -240,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153300.jpg" />
 </div>
 
 
@@ -267,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153118.jpg" />
 </div>
 
 
@@ -293,7 +423,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152860.jpg" />
 </div>
 
 
@@ -319,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152765.jpg" />
 </div>
 
 
@@ -345,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152626.jpg" />
 </div>
 
 
@@ -371,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152568.jpg" />
 </div>
 
 
@@ -397,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152561.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152561.jpg" />
 </div>
 
 
@@ -423,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152446.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152446.jpg" />
 </div>
 
 
@@ -449,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152418.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152418.jpg" />
 </div>
 
 
@@ -475,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152014.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152014.jpg" />
 </div>
 
 
@@ -501,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151946.jpg" />
 </div>
 
 
@@ -527,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_151406.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_151406.jpg" />
 </div>
 
 
@@ -538,136 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:638AE5BC260F3232C633D29669D90FDA733F6BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194836   (150950) от 27.12.2017
-
-Красотка / Pichi garu (2017) HDTVRip [H.264/720p-LQ] [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старшеклассница Момо Адати выглядит как настоящая бунтарка, но на самом деле она — наивная и милая девушка. Ещё со средней школы она тайно влюблена в одноклассника Тодзи. Между тем, девушкой интересуется самый популярный парень школы — Каири Окаясу. А тут ещё лучший друг Момо — Саэ — ревнует её к Тодзи и пытается препятствовать их общению. Девушка должна как-то распутать (   Читать дальше...   )Производство: Япония / Office CrescendoЖанр: Мелодрама, комедияРежиссер: Кодзи СинтокуАктеры: Мидзуки Ямамото, Кэи Иноо, Макэню Арата, Мэй Нагано ...Перевод: Любительский двухголосый (РГ "XDUB DORAMA")Субтитры: Японские (хардсаб)Продолжительность: 01:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2436BA473B82878691C480CBF377E4E3C26F145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601349   (150791) от 31.12.2022
-
-Флаг в тумане / Kiri-no-hata / Sweet revenge / Flag in the Mist (1977) BDRip [H.264/720p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девушка приезжает в Токио с острова Кюсю к знаменитому адвокату, чтобы он спас её брата от несправедливого обвинения в убийстве. К сожалению, у неё нет денег, которые обычно просит адвокат за подобную работу. Само дело также представляется безнадёжным.Производство: Япония / Hori Kikaku Productions, Toho CompanyЖанр: детектив, драма, криминалРежиссер: Кацуми НисикаваАктеры: Момоэ Ямагути, Томокадзу Миура, Рэнтаро Микуни, Хироси Сэкигути, Харуко Като, Идзуми Хара, Рэндзи Исибаси, Томико Исии, Рюносукэ Канэда, Миюки КодзимаПеревод: Двуголосый любительский (Head Pack Films)Язык озвучки: русский, японскийСубтитры: английские, русскиеПродолжительность: 01:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F50736F369793254CD4B0C7AF3F28C81162AA1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677287   (150582) от 17.11.2023
-
-Воины будущего / Bian zhong ren: you ling zhan ji / Mutant Ghost Wargirl (2022) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_150582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Количество мутантов, созданных для боев в битве завтрашнего дня, увеличивается со неимоверной скоростью. Международный альянс безопасности начинает борьбу с преступностью среди мутантов. Спецагент У Цинцин отправляется на задание в клинику, где создаются чудовища.Производство: Китай | «Error 404»Жанр: фантастика, боевикРежиссер: Лю БиньцзеАктеры: Мия Муци, Минсюань Ли, Лю Бэйгэ, Цуй Чжэньчжэнь, Го Цзыхэн, Му Фэнбинь, На Шанг, Ху Цзинъюнь, Юньчжэнь ЦзэнПеревод: Дублированный (Leff Sound)Язык озвучки: Русский, КитайскийСубтитры: РусскиеПродолжительность: 01:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF7308EC9B3403C4F6608EFB7C8A1AA82B80DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738682   (149435) от 26.12.2013
-
-Гоемон / Goemon (2009) BDRip [720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_149435.jpg" />
-</div>
-
-
-###  Подробнее
-
-1582 год. Великий Ода Нобунага пал от руки своего некогда верного вассала Мицухидэ Акечи. Но и его судьба была предрешена - Тойотоми Хидэёси взял власть в стране в свои руки. Он провёл чёткую грань между самураями и крестьянами, в результате чего пропасть между богатыми и бедными стала как никогда шире. Но 15 лет спустя в стране появился человек, который встал на (   Читать дальше...   )Производство: ЯпонияЖанр: Фантастика, БоевикРежиссер: Казуаки КирияАктеры: Йосуке Егучи, Такао Осава, Рёко Хиросуэ, Джан Канаме, Гори, Микидзиро Хира, Масато Ибу, Тетсуджи Тамаяма, Хашиношуке Накамура, Эйджи ОкудаПеревод: Двуголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 02:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:011DF8E99810530C30DE8D60A699D448147ABE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677792   (148675) от 19.11.2023
-
-Самый длинный день Японии / Nihon no ichiban nagai hi / Japan s Longest Day (1967) BDRip [H.264/720p] [AVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_148675.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 августа 1945 года японский народ столкнулся с угрозой полного поражения. Миллионы солдат и гражданских лиц погибли, остальные страдали от голода, японские города были превращены в груды обломков, два из них испарились под взрывами атомных бомб. Правительство зашло в тупик, некоторые министры призывали к капитуляции, другие же утверждали, что честь требует принять (   Читать дальше...   )Производство: Япония, Toho CompanyЖанр: драма, военный, историяРежиссер: Кихачи ОкамотоАктеры: Сэйдзи Миягути, Рокко Тоура, Тисю Рю, Со Ямамура, Тосиро Мифунэ, Йошио Косуги, Такаси Симура, Эцуши Такахаши, Такао Иноэ, Тадао НакамаруПеревод: авторскийЯзык озвучки: русский, японскийСубтитры: английские, японские хардсабы (надписи)Продолжительность: 02:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC4F8102BBD4EFFCE8A53E2917352F5E7B5C5A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

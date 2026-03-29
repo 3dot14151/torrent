@@ -1,3 +1,119 @@
+###  Публикация: 1426836   (185552) от 26.11.2020
+
+Chet Baker & Dick Twardzik Quartet - Chet & Dick (1955, 1956) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_185552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rondette [2:13]
+02. Piece Caprice [5:14]
+03. Mid-Forte [3:11]
+04. Re-Search [5:03](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A692C9820EB110DEED5CBEAB5677A42FA5B42C60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664479   (185464) от 26.09.2023
+
+Akiko Grace - New York Style (2003) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_185464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jump (6:35)
+02. Chromazone (5:10)
+03. Greensleeves (6:36)
+04. Smile (5:15)(   Читать дальше...   )Жанр: Smooth Jazz, ExperimentalПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65C9B0C2544A059EF684701C7982369EB0811825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664498   (184944) от 27.09.2023
+
+James Moody - 1949-1950 (2001) Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laura (3:21)
+02. Car Rider (3:01)
+03. Three Bop Mice - Parts 1 & 2 (5:44)
+04. I'm in the Mood for Groovin' (2:42)(   Читать дальше...   )Жанр: BopПродолжительность: 01:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3AE1E35B46B86E1F8074DBCE892700588C565B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664656   (184938) от 27.09.2023
+
+Robert Lakatos Trio - So In Love (2005) Atelier Sawano [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So in Love [4:51]
+02. Like Someone in Love [3:54]
+03. Allemande [4:22]
+04. Zingaro (Retrato em Branco e Preto) [4:51](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BFA3D3D9E83ED1D3AE33F74D33E66BE9FDCE395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664506   (184914) от 27.09.2023
 
 James Moody - Moody And The Brass Figures (1966) 2004, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -6,7 +122,7 @@ James Moody - Moody And The Brass Figures (1966) 2004, Original Jazz Classics [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184914.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184914.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Maya - Love Potion No. 9 (2005) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184844.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184844.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Maya - Kiss of Fire (2006) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184789.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184789.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Maya - Maya (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184774.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184774.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Anat Fort Trio - Colour (2019) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184620.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Jackie McLean - Eight Classic Albums (1957 - 1961) 4CD, 2012, Real Gone Jazz [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184604.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Brother Jack McDuff - Down Home Style (1969) 1997, Blue Note [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184567.jpg" />
+  <img src="Z:/picture/004/save_picture_184567.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Swinging Classics (2006) [FLAC|Lossless|tracks + .cue] <Jazz, Classical>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_184395.jpg" />
+  <img src="Z:/picture/004/save_picture_184395.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Ralph Burns - Bijou (1955) 1999, Original Jazz Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184071.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184071.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Kenny Drew Trio With Clark Terry - Serenity (1978) 1988, Alfa Records [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184031.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Winifred Atwell - The Winifred Atwell Collection (1994) BMG Australia [FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_184016.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_184016.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Lori Williams - Behind the Smiles (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183895.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183895.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Kenny Dorham - Jerome Kern Showboat (1960) 1990, Bainbridge Records [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_183577.jpg" />
+  <img src="Z:/picture/004/save_picture_183577.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Asako Toki - Standards (2004) LD&K [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183336.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sadao Watanabe - Dedicated To Charlie Parker (1969) 1989, Denon [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183329.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Asako Toki - Standards Gift (2005) LD&K [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183324.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183324.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Steve Turre - Fire And Ice (1988) Stash [WavPack|Lossless|image + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183220.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183220.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Annette Lowman - Movies Memories (1992) Le Chant du Monde [APE|Lossless|image + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183217.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183217.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Nicholas Payton - Relaxin' With Nick (2019) 2CD, Smoke Sessions Records [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183187.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Candy Dulfer - We Never Stop (2022) [FLAC|Lossless|image + .cue] <Jazz-Funk>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_183038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_183038.jpg" />
 </div>
 
 
@@ -587,7 +703,7 @@ Fred Hersch & Esperanza Spalding - Alive At The Village Vanguard (2018) 2023, Pa
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182590.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182590.jpg" />
 </div>
 
 
@@ -616,7 +732,7 @@ Ron Carter - Parade (1979) 2000, Original Jazz Classics [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182574.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_182574.jpg" />
 </div>
 
 
@@ -630,122 +746,6 @@ Ron Carter - Parade (1979) 2000, Original Jazz Classics [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E208036BD2E3B4069F3962EAFB571EDB51D6F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665353   (182531) от 30.09.2023
-
-Michael Wolff - Portraiture, The Blues Period (1998) Fuel 2000 [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_182531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blues Period [6:02]
-02. Sonnymoon for Two [5:57]
-03. On Green Dolphin Street [6:33]
-04. Round Midnight [5:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECADB89658C0C3A899626651D2E8FD98908FBF5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593090   (181984) от 25.11.2022
-
-Charlie Christian & Benny Goodman - 1939 - 1941 (1992) Jazz Roots [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Home [3:16]
-02. Till Tom Special [3:02]
-03. AC-DC Current [2:48]
-04. Seven Come Eleven [2:46](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:55:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA8D530A9694858A36E2A0C42865053241F5278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592821   (181966) от 25.11.2022
-
-Cecil Alexander - Introducing (2022) Heartcore Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bright Green [6:09]
-02. Shug [4:24]
-03. Till Then [4:30]
-04. 9th Round [4:58](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 00:54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950650CF2508ECA135866081C7AD92961352579E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593179   (181787) от 25.11.2022
-
-Papik - Enjoy The Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_181787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Say It (feat. Alan Scaffardi)
-02. Enjoy The Ride (feat. Walter Ricci)
-03. La Vita E' Piu' Bella Cosi' (feat. Rosalia De Souza)
-04. Adventure Of A Lifetime (feat. Alan Scaffardi)(   Читать дальше...   )Жанр: Jazz, Pop JazzПродолжительность: 00:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EF923E39A312306451A60FACE3F33AB0F583BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

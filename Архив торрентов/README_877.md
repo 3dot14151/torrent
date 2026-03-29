@@ -6,7 +6,7 @@ ROEHSOFT RAM Expander (SWAP) 3.52 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848408.jpg" />
+  <img src="Z:/picture/008/save_picture_848408.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848406.jpg" />
+  <img src="Z:/picture/008/save_picture_848406.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848405.jpg" />
+  <img src="Z:/picture/008/save_picture_848405.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Dropzone 3 v3.8.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848346.jpg" />
+  <img src="Z:/picture/008/save_picture_848346.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848344.jpg" />
+  <img src="Z:/picture/008/save_picture_848344.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Capture One 20 Pro v13.1.0.133 beta 1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848333.jpg" />
+  <img src="Z:/picture/008/save_picture_848333.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ PhoneClean Pro 4.0.6 (20160331) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848327.jpg" />
+  <img src="Z:/picture/008/save_picture_848327.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ NVIDIA Inspector 1.9.7.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848318.jpg" />
+  <img src="Z:/picture/008/save_picture_848318.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ OmniFocus Pro 2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848316.jpg" />
+  <img src="Z:/picture/008/save_picture_848316.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848309.jpg" />
+  <img src="Z:/picture/008/save_picture_848309.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ Windows 10 PE (x64) v.4.5 by Ratiborus [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848307.jpg" />
+  <img src="Z:/picture/008/save_picture_848307.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Stand Up (2017.03.05) SATRip (сезон 6, выпуск 3)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848285.jpg" />
+  <img src="Z:/picture/008/save_picture_848285.jpg" />
 </div>
 
 
@@ -322,7 +322,7 @@ Tanida Demo Builder 11.0.19.0 RePack by 78Sergey [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848283.jpg" />
+  <img src="Z:/picture/008/save_picture_848283.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848277.jpg" />
+  <img src="Z:/picture/008/save_picture_848277.jpg" />
 </div>
 
 
@@ -374,7 +374,7 @@ PDF24 Creator 9.1.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848262.jpg" />
+  <img src="Z:/picture/008/save_picture_848262.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Unite 3 v3.0.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848260.jpg" />
+  <img src="Z:/picture/008/save_picture_848260.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Trojan Killer 2.1.22 RePack (& portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848252.jpg" />
+  <img src="Z:/picture/008/save_picture_848252.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Aiseesoft HD Video Converter 9.2.26 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848251.jpg" />
+  <img src="Z:/picture/008/save_picture_848251.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ qBittorrent 4.2.4 Portable by PortableApps + Themes [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848250.jpg" />
+  <img src="Z:/picture/008/save_picture_848250.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ MAGIX Sequoia 13.0.0.22 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848221.jpg" />
+  <img src="Z:/picture/008/save_picture_848221.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848214.jpg" />
+  <img src="Z:/picture/008/save_picture_848214.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848212.jpg" />
+  <img src="Z:/picture/008/save_picture_848212.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ ProtonMail - Encrypted Email v1.2.4 [Ru/En] - КрупнейшиЙ в мире �
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848211.jpg" />
+  <img src="Z:/picture/008/save_picture_848211.jpg" />
 </div>
 
 
@@ -609,7 +609,7 @@ Opera 68.0.3618.56 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848186.jpg" />
+  <img src="Z:/picture/008/save_picture_848186.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Freemake Video Converter 4.1.11.17 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848184.jpg" />
+  <img src="Z:/picture/008/save_picture_848184.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ Wise Registry Cleaner Pro 10.3.1.690 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848183.jpg" />
+  <img src="Z:/picture/008/save_picture_848183.jpg" />
 </div>
 
 

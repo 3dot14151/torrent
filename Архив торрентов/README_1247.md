@@ -6,7 +6,7 @@ Adobe Shockwave Player 12.3.2.202 (Full/Slim) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773095.jpg" />
+  <img src="Z:/picture/008/save_picture_773095.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773090.jpg" />
+  <img src="Z:/picture/008/save_picture_773090.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773081.jpg" />
+  <img src="Z:/picture/008/save_picture_773081.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FastStone Capture 8.1 Final + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773065.jpg" />
+  <img src="Z:/picture/008/save_picture_773065.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773054.jpg" />
+  <img src="Z:/picture/008/save_picture_773054.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ A Rose in the Twilight (2017) [En/Ja] (1.0.0.0) License SKIDROW
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773052.jpg" />
+  <img src="Z:/picture/008/save_picture_773052.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Futuremark 3DMark 2.3.3693 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773044.jpg" />
+  <img src="Z:/picture/008/save_picture_773044.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ WinToUSB Enterprise 3.5 Release 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773039.jpg" />
+  <img src="Z:/picture/008/save_picture_773039.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Futuremark 3DMark 2.3.3693 Professional Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773038.jpg" />
+  <img src="Z:/picture/008/save_picture_773038.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ LensFlare Studio 6.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773021.jpg" />
+  <img src="Z:/picture/008/save_picture_773021.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Pale Moon 28.3.1 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773013.jpg" />
+  <img src="Z:/picture/008/save_picture_773013.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ FastStone Image Viewer v6.9 Corporate + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773007.jpg" />
+  <img src="Z:/picture/008/save_picture_773007.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Zoner Photo Studio X 19.1809.2.93 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773006.jpg" />
+  <img src="Z:/picture/008/save_picture_773006.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ FastStone Photo Resizer 4.0 + Portable [En/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773003.jpg" />
+  <img src="Z:/picture/008/save_picture_773003.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772984.jpg" />
+  <img src="Z:/picture/008/save_picture_772984.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ TeamViewer Free 11.0.59461 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772983.jpg" />
+  <img src="Z:/picture/008/save_picture_772983.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Icecream Image Resizer 1.43 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772982.jpg" />
+  <img src="Z:/picture/008/save_picture_772982.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ Dropshare 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772979.jpg" />
+  <img src="Z:/picture/008/save_picture_772979.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ IP Scanner Pro 3.48 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772978.jpg" />
+  <img src="Z:/picture/008/save_picture_772978.jpg" />
 </div>
 
 
@@ -507,7 +507,7 @@ Anvir Task Manager 8.1.0 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772977.jpg" />
+  <img src="Z:/picture/008/save_picture_772977.jpg" />
 </div>
 
 
@@ -533,7 +533,7 @@ Syrian - Alternate And Remixed .02 (2016) [MP3|320 кб/с] <Synthpop, Futurepop
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772975.jpg" />
+  <img src="Z:/picture/008/save_picture_772975.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ Doo - Get Things Done 1.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772974.jpg" />
+  <img src="Z:/picture/008/save_picture_772974.jpg" />
 </div>
 
 
@@ -591,7 +591,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772973.jpg" />
+  <img src="Z:/picture/008/save_picture_772973.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ AVG AntiVirus 2016 16.71.7596 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772967.jpg" />
+  <img src="Z:/picture/008/save_picture_772967.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Mountain Duck 4.0.0 (build 16759) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772962.jpg" />
+  <img src="Z:/picture/008/save_picture_772962.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Allavsoft Video Downloader Converter 3.22.7.7474 RePack (& Portable) by elchupac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772961.jpg" />
+  <img src="Z:/picture/008/save_picture_772961.jpg" />
 </div>
 
 

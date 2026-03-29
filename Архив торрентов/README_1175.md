@@ -6,7 +6,7 @@ Cookie 5.5.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785677.jpg" />
+  <img src="Z:/picture/008/save_picture_785677.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gadboa - Trance5x (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785676.jpg" />
+  <img src="Z:/picture/008/save_picture_785676.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Cookie 5.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785675.jpg" />
+  <img src="Z:/picture/008/save_picture_785675.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Uplifting Only Top 15 April (2017) [MP3|320 Kbps] <Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785672.jpg" />
+  <img src="Z:/picture/008/save_picture_785672.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Solarstone - .---- (2017) [MP3|~245 Kbps|image + .cue] <Progressive Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785664.jpg" />
+  <img src="Z:/picture/008/save_picture_785664.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Tasmania. Этап 2. 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785657.jpg" />
+  <img src="Z:/picture/008/save_picture_785657.jpg" />
 </div>
 
 
@@ -177,7 +177,7 @@ Virgin Australia Supercars Championship. Сезон 2017. Tasmania. Этап 2. 
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785656.jpg" />
+  <img src="Z:/picture/008/save_picture_785656.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ SkyLab Studio 2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785653.jpg" />
+  <img src="Z:/picture/008/save_picture_785653.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ Yep 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785652.jpg" />
+  <img src="Z:/picture/008/save_picture_785652.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - edge 2 (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Hip Hop, Rap, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785649.jpg" />
+  <img src="Z:/picture/008/save_picture_785649.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785644.jpg" />
+  <img src="Z:/picture/008/save_picture_785644.jpg" />
 </div>
 
 
@@ -316,7 +316,7 @@ Espresso 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785641.jpg" />
+  <img src="Z:/picture/008/save_picture_785641.jpg" />
 </div>
 
 
@@ -343,7 +343,7 @@ PhotoSweeper X 3.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785630.jpg" />
+  <img src="Z:/picture/008/save_picture_785630.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785629.jpg" />
+  <img src="Z:/picture/008/save_picture_785629.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Future Islands - The Far Field (2017) Japanese Edition [FLAC|Lossless|tracks + .
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785623.jpg" />
+  <img src="Z:/picture/008/save_picture_785623.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ VA - Authentic Steyoyoke #009 (Mixed by Rauschhaus) (2017) [MP3|320 Kbps] <Techn
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785619.jpg" />
+  <img src="Z:/picture/008/save_picture_785619.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ K-Lite Codec Pack Update 13.0.6 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785612.jpg" />
+  <img src="Z:/picture/008/save_picture_785612.jpg" />
 </div>
 
 
@@ -481,7 +481,7 @@ Yaroslav Kulikov - My Story (2017) [FLAC|Lossless|WEB|tracks] <Breaks>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785601.jpg" />
+  <img src="Z:/picture/008/save_picture_785601.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785598.jpg" />
+  <img src="Z:/picture/008/save_picture_785598.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Escape Lizards (2017) [En] (0.2.6305.534) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785586.jpg" />
+  <img src="Z:/picture/008/save_picture_785586.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Stick Figure - 2 Альбома (2008, 2009) [FLAC|Lossless|tracks + .cue] <Regg
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785579.jpg" />
+  <img src="Z:/picture/008/save_picture_785579.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785562.jpg" />
+  <img src="Z:/picture/008/save_picture_785562.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785559.jpg" />
+  <img src="Z:/picture/008/save_picture_785559.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Ashampoo Burning Studio 18.0.4.15 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785556.jpg" />
+  <img src="Z:/picture/008/save_picture_785556.jpg" />
 </div>
 
 
@@ -672,7 +672,7 @@ SamDrivers 17.4.12 LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785549.jpg" />
+  <img src="Z:/picture/008/save_picture_785549.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Dr.Web Security Space 11.0.5.4100 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785547.jpg" />
+  <img src="Z:/picture/008/save_picture_785547.jpg" />
 </div>
 
 

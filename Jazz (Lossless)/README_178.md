@@ -1,3 +1,119 @@
+###  Публикация: 1568945   (455800) от 11.08.2022
+
+Donald Fagen - Donald Fagen's The Nightfly Live (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Jazz, Jazz Rock, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I.G.Y. (05:26)
+02. Green Flower Street (04:11)
+03. Ruby Baby (04:48)
+04. Maxine (03:46)(   Читать дальше...   )Жанр: Jazz, Jazz Rock, PopПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDD6FEB387AA7C0144F1CDBA7BC93A3612C0BDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408413   (455773) от 12.09.2020
+
+Gregory Porter - All Rise (2020) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concorde
+02. Dad Gone Thing
+03. Revival Song
+04. If Love Is Overrated(   Читать дальше...   )Жанр: Vocal Jazz, SoulПродолжительность: 01:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D1BAF914FE2D66AAB77242788EFBBA97107375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060459   (455302) от 07.10.2016
+
+Al Jarreau - All Fly Home (1978) [FLAC|Lossless|image + .cue] <Soul-Jazz, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thinkin' About It Too (3:18)
+02. I'm Home (5:18)
+03. Brite 'N' Sunny Babe (3:28)
+04. I Do (4:22)(   Читать дальше...   )Жанр: Soul-Jazz, Smooth JazzПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D94F29AC56A9A846C65E287A39B76B7B2019CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162867   (455135) от 03.09.2017
+
+Bud Freeman - Chicago / Austin High School Jazz In Hi-Fi (1957) 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_455135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. China Boy [02:32]
+02. Sugar [02:38]
+03. Lisa [03:02]
+04. Nobody's Sweetheart [03:21](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6C822C18037C307001231D547E3578096E954D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162870   (455133) от 03.09.2017
 
 June Christy And The Stan Kenton Orchestra - The Complete Studio Recordings (1945 - 1951) 1994, Collectors' Choise Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -6,7 +122,7 @@ June Christy And The Stan Kenton Orchestra - The Complete Studio Recordings (194
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455133.jpg" />
+  <img src="Z:/picture/008/save_picture_455133.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Will Davis Trio - Have Mood Will Call... (1959) 2017, Warner [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455117.jpg" />
+  <img src="Z:/picture/008/save_picture_455117.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Diana Horta Popoff - Amor de Verdade (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455111.jpg" />
+  <img src="Z:/picture/008/save_picture_455111.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Red Rodney - Then And Now (1992) Chesky Records [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454932.jpg" />
+  <img src="Z:/picture/008/save_picture_454932.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Norah Jones - Day Breaks (Deluxe Edition) (2016) [FLAC|Lossless|image + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454823.jpg" />
+  <img src="Z:/picture/008/save_picture_454823.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Tony Bennett & Diana Krall - Love Is Here To Stay (2018) [FLAC|Lossless|WEB-DL|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454638.jpg" />
+  <img src="Z:/picture/008/save_picture_454638.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Stanley Cowell - Juneteenth (2014) 2015, Vision Fugitive [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454028.jpg" />
+  <img src="Z:/picture/008/save_picture_454028.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Stanley Cowell Trio - Bright Passion (1993) SteepleChase [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454026.jpg" />
+  <img src="Z:/picture/008/save_picture_454026.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Stanley Cowell - Are You Real? (2014) SteepleChase [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454025.jpg" />
+  <img src="Z:/picture/008/save_picture_454025.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Stanley Cowell Trio - Close To You Alone (1990) DIW [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454023.jpg" />
+  <img src="Z:/picture/008/save_picture_454023.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Stanley Cowell - Reminiscent: plus A Xmas Suite (2015) SteepleChase [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454022.jpg" />
+  <img src="Z:/picture/008/save_picture_454022.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ The Bill Evans Trio featuring Stan Getz - But Beautiful (1974) /1996, Oldis/[FLA
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453997.jpg" />
+  <img src="Z:/picture/008/save_picture_453997.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Jeff Lorber - Chuck Loeb - Everette Harp - Jazz Funk Soul (2014) [FLAC|Lossless]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453939.jpg" />
+  <img src="Z:/picture/008/save_picture_453939.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Phil Bodner - Once More With Feeling! (1960 - 1970) 2006, Arbors Records [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453833.jpg" />
+  <img src="Z:/picture/008/save_picture_453833.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Katica Illenyi - The Jazzy Violin(Inspired by Stephane Grappelli) (2007) [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453397.jpg" />
+  <img src="Z:/picture/008/save_picture_453397.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ BWB (Norman Brown - Kirk Whalum - Rick Braun) - BWB (2016) [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453395.jpg" />
+  <img src="Z:/picture/008/save_picture_453395.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ John Hicks - In The Mix (1994) Landmark Records [FLAC|Lossless|tracks + .cue] <H
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452988.jpg" />
+  <img src="Z:/picture/008/save_picture_452988.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Enrico Intra Trio - Jazz In Studio (1957, 1962) 2008, Rearward [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452987.jpg" />
+  <img src="Z:/picture/008/save_picture_452987.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Ahmed Abdul-Malik, Ray Nance, Seldon Powell - Spellbound (1964) 2013, Real Gone 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452879.jpg" />
+  <img src="Z:/picture/008/save_picture_452879.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Joey Alexander - Joey.Monk.Live! (2017) Motema [FLAC|Lossless|tracks + .cue] <Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452878.jpg" />
+  <img src="Z:/picture/008/save_picture_452878.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Joey Alexander - Eclipse (2018) Motema [FLAC|Lossless|tracks + .cue] <Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452875.jpg" />
+  <img src="Z:/picture/008/save_picture_452875.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Scott Hamilton - Moon Mist (2018) Blau Records [FLAC|Lossless|image + .cue] <Mai
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452865.jpg" />
+  <img src="Z:/picture/008/save_picture_452865.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Scott Hamilton - Moon Mist (2018) Blau Records [FLAC|Lossless|image + .cue] <Mai
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B00888B70C827E88BF1A75CCB74FD296DAE0595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322017   (452596) от 27.08.2019
-
-Charles Mingus - Mingus Ah Um (1959) 2019, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Hard Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Git It in Your Soul [7:29]
-02. Goodbye Pork Pie Hat [4:54]
-03. Boogie Stop Shuffle [3:48]
-04. Self-Portrait in Three Colors [3:12](   Читать дальше...   )Жанр: Hard Bop, Avant-Garde JazzПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BFB0D6F621979A6D05D2CC957D5E729B4C8695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705193   (452011) от 29.09.2013
-
-VA - Party Jazz (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Armstrong & The All Stars - I Like This Kind Of Party (2:36)
-02. Louis Jordan - House Party (2:51)
-03. James Brown - Ain't Nobody Here But Us Chickens (2:58)
-04. Manny Corchado & His Orchestra feat. Tito Jimenez - Pow Wow (3:35)(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69FBCB61B0B4A9604041EB2ADD859D0C778E95D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705204   (452006) от 29.09.2013
-
-VA - Black Power (2009) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Jazz-Funk, Delta Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oscar Brown Jr.Forty - Acres And A Mule   (3:24)
-02.  Ray Charles - Lift Every Voice And Sing   (3:09)
-03.  Les McCann - Compared To What?   (2:33)
-04.  John Lee Hooker - The Motor City Is Burning   (2:51)(   Читать дальше...   )Жанр: Jazz, Jazz-Funk, Delta BluesПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F0D486D868FCF691E77FF58342C1A582128C24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569459   (451897) от 13.08.2022
-
-Jacques Loussier Trio - Plays Debussy (2000) Telarc [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clair de Lune [8:04]
-02. Prelude a l'Apres-Midi d'Un Faune, L 87 [10:48]
-03. Two Arabesques No. 1 in E [6:24]
-04. La Fille Aux Cheveux de Lin [4:44](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F4E309B70B46750A83059569B105C5DD5B1963
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1109076   (860112) от 26.02.2017
+
+forma.8 (2017) [Ru/Multi] (1.0) License SKIDROW
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_860112.jpg" />
+</div>
+
+
+###  Подробнее
+
+forma.8 — уникальная вариация на тему приключенческого боевика в жанре Metroidvania с впечатляющей графикой и огромным миром, который можно исследовать. Ваш игровой персонаж — небольшой исследовательский зонд forma.8, оказавшийся в полном одиночестве на поверхности далекой планеты. Потеряв связь с товарищами в результате несчастного случая, вам нужно выжить — найти (   Читать дальше...   )Тип издания: LicenseРазработчик: MixedBag SrlЖанр: Arcade, Action, AdventureЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03FAA06CE7841D8AFEA91EA4911915A4F8FB427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498144   (859352) от 25.09.2021
 
 Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
@@ -6,7 +32,7 @@ Battle Engine Aquila (2003) [Multi] (0.9.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859352.jpg" />
+  <img src="Z:/picture/008/save_picture_859352.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Digger for Windows [En] (L) 1998
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857694.jpg" />
+  <img src="Z:/picture/008/save_picture_857694.jpg" />
 </div>
 
 
@@ -62,7 +88,7 @@ Subterrain (2016) [Ru/Multi] (1.0.5.8) SteamRip Аnimanyak
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856823.jpg" />
+  <img src="Z:/picture/008/save_picture_856823.jpg" />
 </div>
 
 
@@ -88,7 +114,7 @@ WWE 2K16 (2016) [En/Multi] (1.0/dlc) Repack VickNet
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854984.jpg" />
+  <img src="Z:/picture/008/save_picture_854984.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ Ben and Ed: Bencalypse (2015) [En] (1.2.2) License HI2U
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853513.jpg" />
+  <img src="Z:/picture/008/save_picture_853513.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Niffelheim (2018) [Ru/Multi] (1.0.011.1/1.2.010.1/1.3.001.31/dlc) Repack Other s
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851257.jpg" />
+  <img src="Z:/picture/008/save_picture_851257.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Niffelheim (2018) [Ru/Multi] (1.3.001.31/dlc) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851122.jpg" />
+  <img src="Z:/picture/008/save_picture_851122.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Blue Sheep (2016) [En] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846435.jpg" />
+  <img src="Z:/picture/008/save_picture_846435.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ DX-Ball 2 [En] (L) 1998
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846126.jpg" />
+  <img src="Z:/picture/008/save_picture_846126.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Blue Sheep (2016) [En] (1.0) Repack R.G. Механики
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842501.jpg" />
+  <img src="Z:/picture/008/save_picture_842501.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Pixel Privateers (2017) [En] (1.0.1) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842459.jpg" />
+  <img src="Z:/picture/008/save_picture_842459.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Ultimate Marvel vs. Capcom 3 (2017) [Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842439.jpg" />
+  <img src="Z:/picture/008/save_picture_842439.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ The Treasures of Montezuma 4 / Сокровища Монтесумы 4 (2013) [R
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842201.jpg" />
+  <img src="Z:/picture/008/save_picture_842201.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ ClusterTruck (2016) [En] (1.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840987.jpg" />
+  <img src="Z:/picture/008/save_picture_840987.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Trine (2009) [Multi] (2.12(a)) License GOG [Enchanted Edition]
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840943.jpg" />
+  <img src="Z:/picture/008/save_picture_840943.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ Lara Croft GO (2016) [Ru/Multi] (1.0) License CODEX
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840876.jpg" />
+  <img src="Z:/picture/008/save_picture_840876.jpg" />
 </div>
 
 
@@ -427,7 +453,7 @@ Trackmania® Turbo (2016) [Ru/Multi] (2016-03-23_18_29) Repack VickNet
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839179.jpg" />
+  <img src="Z:/picture/008/save_picture_839179.jpg" />
 </div>
 
 
@@ -454,7 +480,7 @@ Hotline Miami 2: Wrong Number (2015) [Ru/Multi] (1.01i) Repack R.G. Games
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838476.jpg" />
+  <img src="Z:/picture/008/save_picture_838476.jpg" />
 </div>
 
 
@@ -482,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833794.jpg" />
 </div>
 
 
@@ -508,7 +534,7 @@ Gone Viral (2021) [Multi] (1.01) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833449.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833449.jpg" />
 </div>
 
 
@@ -534,7 +560,7 @@ Out of Line (2021) [Ru/Multi] (1.0.1.2) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833090.jpg" />
 </div>
 
 
@@ -560,7 +586,7 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License CPY
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832928.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832928.jpg" />
 </div>
 
 
@@ -586,7 +612,7 @@ Where is my Brain!? (2017) [Ru/Multi] (1.0) License PLAZA
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831368.jpg" />
 </div>
 
 
@@ -612,7 +638,7 @@ Immortal Planet (2017) [En] (16620/upd3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830755.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830755.jpg" />
 </div>
 
 
@@ -638,7 +664,7 @@ Adventure Time: Finn and Jake Investigations (2015) [En/Multi] (1.0) License REL
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830185.jpg" />
 </div>
 
 
@@ -649,32 +675,6 @@ Adventure Time: Финн и Джейк ведут следствие — нов�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2FD1E562DE0A43DA508EE04F3055C7DDA80B9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006473   (828296) от 11.04.2016
-
-Caravanserail (2016) [Ru/Multi] (1.0) Repack DARKSiDERS
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Caravanserail - это аркадная торговая стратегия в духе Pirates!, в которой игроки управляют караванами, покупая, продавая и устанавливая свои цены на товары.Тип издания: RepackРазработчик: Jerome BodinЖанр: Strategy, ArcadeЯзык озвучки: -/-Язык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C26C4E46AF3F66482DB100FC718767493064138F
 ```
 
 https://mybot314.ru/tekegram_catalog/

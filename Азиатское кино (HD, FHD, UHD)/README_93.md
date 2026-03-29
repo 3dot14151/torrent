@@ -1,3 +1,136 @@
+###  Публикация: 1817924   (2996) от 13.09.2025
+
+Чистый японец / Истинный японец / Pure Japanese (2022) BDRip [H.264/720p] [JP / RU Sub]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2996.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актер боевиков Дайсукэ Татэиси после несчастного случая на съёмочной площадке стал замкнутым и нелюдимым. Однажды он знакомится со старшеклассницей Аюми. Её с дедушкой преследуют китайский брокер и якудза из-за участка земли, на котором они живут. Дайсукэ решает помочь девушке...Производство: Япония / Bridgehead, ThefoolЖанр: драмаРежиссер: Даиси МацунагаАктеры: Дин Фудзиока, Адзю Макита, Тэцуя Бэссё, Тэцу Ватанабэ, Дзюн Мураками, Даити Канэко, Рютаро Ниномия, Рон Мидзума, Боб Судзуки, Такаюки Судзуки, Кюсаку СимадаПеревод: субтитрамиЯзык озвучки: японскийСубтитры: русские (Gyarandu)Продолжительность: 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B08D5813F571AC8E08F29C80B2D207B3D17015E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569609   (2537) от 16.09.2025
+
+Герой / Ying xiong / Hero (2002) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2537.jpg" />
+</div>
+
+
+###  Подробнее
+
+III в. до н. э. Ван (царь) Цинь Шихуан завоевывает соседние царства, «собирая земли» Поднебесной воедино. Опасаясь убийц, подосланных враждебными царствами, Шихуан не подпускает к себе никого ближе 20 шагов. Но вот во дворце появляется герой без имени, и ему оказана честь подойти ближе прочих. Он ее заслужил, устранив трех самых опасных убийц, поклявшихся добыть (   Читать дальше...   )Производство: Китай, Гонконг / Beijing New Picture Film, China Film Co-Production, EDKO Film Ltd.Жанр: фэнтези, боевик, драма, детективРежиссер: Чжан ИмоуАктеры: Джет Ли, Тони Люн Чу-вай, Мэгги Чун, Чжан Цзыи, Донни Йен, Чэнь Даомин, Лю Чжунъюань, Чжэн Тяньюн, Цинь ЯньПеревод: Многоголосый профессиональный (ОРТ, Пирамида)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57E7A8E537FECD34141D25FB9889E498E948BB18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818722   (2188) от 18.09.2025
+
+Стрела. Абсолютное оружие / Choi-jong-byeong-gi Hwal / War of the Arrows (2011) BDRip [AV1/1080p] [10-bit] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2188.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1636 году полчища маньчжуров пришли на земли государства Чосон, неся с собой смерть и разорение. Во время нападения на одну из деревень враги взяли в плен Ча Ин, юную сестру лучника Нам И, и ее жениха Со Гуна. Отважный герой решает во что бы то ни стало отыскать родных и спасти их от незавидной доли рабов в чужой стране. С этой целью он, повесив на спину свой верный (   Читать дальше...   )Производство: Корея Южная / Dasepo Club, DCG PlusЖанр: боевик, историяРежиссер: Ким Хан МинАктеры: Пак Хэ Иль, Рю Сын Рён, Ким Му Ёль, Мун Чхэ Вон, Ли Хан Ви, Ким Гу Тхэк, Ли Кён Ён, Пак Ки Ун, Ли Сын Чжун, Ли Чжэ ГуПеревод: Любительский двухголосый (Green Tea)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 02:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CEDC57528B70A32DCD7D54ED5FBFA20F4F8C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818905   (2015) от 19.09.2025
+
+Тигр / Daeho (2015) BDRip [AV1/1080p-LQ] [10-bit] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_2015.jpg" />
+</div>
+
+
+###  Подробнее
+
+1925 год, времена японской оккупации в Корее. Любитель тигриных шкур, японский военный министр, приказывает схватить свирепого «Короля всех тигров Кореи». Понимая всю опасность задания, охотники обращаются к бывшему товарищу, некогда величайшему охотнику страны. Тот отказывается помочь, однако его сын после ссоры с отцом вступает в ряды охотников.Производство: Южная Корея/ Next Entertainment WorldЖанр: драма, триллер, историяРежиссер: Пак Хун-джонАктеры: Чхве Мин Сик, Чон Ман Сик, Хон-Фа Ким, Ким Сан Хо, Юнь Ву Ли, Ра Ми Ран, Хьюн Сын-мин, Ю-Бин Сун, Рен ОсугиПеревод: Многоголосый профессиональный (HDrezka Studio)Язык озвучки: РусскийGeneral
+Unique ID                   : 258102158281745380242092941226136937333 (0xC22CAAE38BD0A6061B2F662BE3E9A375)
+Complete name               : G:\Тигр (2015) (AV1).mkv
+Format                      : Matroska(   Читать дальше...   )Субтитры: Русские, английскиеПродолжительность: 02:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823AE46D1DB4ED058D1C545E8145D22BBEEFE5DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818856   (1887) от 20.09.2025
+
+11 мятежников / 11 no Zokugun / 11 Rebels (2024) BDRip [H.264/1080p] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1887.jpg" />
+</div>
+
+
+###  Подробнее
+
+На фоне ожесточённых сражений войны Босин группа из самураев и преступников оказывается вовлечённой в отчаянную защиту крепости. Их судьбы переплетаются с интересами клана Сибата, сёгуната Токугавы и новой правительственной армии, ведомой Сацума и Тёсю. Обречённые на смерть, эти воины вступают в последнюю битву, где честь, предательство и борьба за выживание сплетаются (   Читать дальше...   )Производство: Япония / K2 Pictures, ToeiЖанр: история, боевик, драмаРежиссер: Кадзуя СираисиАктеры: Такаюки Ямада, Таига Накано, Рихо Саяси, Укон Оноэ, Садао Абэ, Хироко Андо, Кодаи Асака, Ван Барр мл., Сэидзи Тихара, Alfie CoyПеревод: Авторский (Александр Смирнов)Язык озвучки: Русский, ЯпонскийСубтитры: Японские (SDH), Английские, КитайскиеПродолжительность: 02:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BDB28F3050D72E492787E04B813F0790560267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630840   (1529) от 22.09.2025
 
 Весна, лето, осень, зима... и снова весна / Bom yeoreum gaeul gyeoul geurigo bom / Spring, Summer, Fall, Winter... And Spring (2003) WEB-DL [H.264/1080p] [MVO]
@@ -6,7 +139,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1529.jpg" />
 </div>
 
 
@@ -33,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_1008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_1008.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_885.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_885.jpg" />
 </div>
 
 
@@ -86,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_861.jpg" />
 </div>
 
 
@@ -112,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_785.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_785.jpg" />
 </div>
 
 
@@ -138,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_610.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_610.jpg" />
 </div>
 
 
@@ -164,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_592.jpg" />
 </div>
 
 
@@ -190,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_569.jpg" />
 </div>
 
 
@@ -216,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_89.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_89.jpg" />
 </div>
 
 

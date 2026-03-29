@@ -1,3 +1,119 @@
+###  Публикация: 1266776   (269227) от 03.12.2018
+
+Wilbur Harden & John Coltrane - Tanganyika Strut (1958) 1991, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tanganyika Strut [9:57]
+02. B.J. [4:33]
+03. Anedac [5:12]
+04. Once in a While [9:22]Жанр: Hard BopПродолжительность: 00:29:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9364B878C027B2A53BCD489C893C8BB1CF7336C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266784   (269226) от 03.12.2018
+
+Matt Belsante - Nice 'n' Easy (2018) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nice 'n' Easy [4:13]
+02. Cheek to Cheek [4:42]
+03. Since I Fell for You [4:22]
+04. There Will Never Be Another You [4:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E827EF2F95C8DD940696226727F98CCBDA2D2964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266788   (269225) от 03.12.2018
+
+Harry Connick, Jr. & Kelli O'Hara - Songs From Thou Shalt Not (2006) Columbia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Musical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, My Dear (Something's Gone Wrong) [4:19]
+02. Can't We Tell [4:01]
+03. Such Love [5:50]
+04. I Like Love More [3:07](   Читать дальше...   )Жанр: Vocal Jazz, MusicalПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C85D94D32771232C05F1E2A0A0C6F94B0FC7F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338632   (269015) от 16.11.2019
+
+Junior Mance - Three Classic Albums Plus 1959 - 1961 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269015.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. A Smooth One [3:31]
+02. Miss Jackie's Delight [3:56]
+03. Whisper Not [4:23](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Piano JazzПродолжительность: 02:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40F4E29FBBDAD21785989856B40A129BFD2C969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338646   (269013) от 16.11.2019
 
 Jay Thomas & The Cantaloupes - The Art of Jazz: Live At SAM (2015) McVouty Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -6,7 +122,7 @@ Jay Thomas & The Cantaloupes - The Art of Jazz: Live At SAM (2015) McVouty Recor
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269013.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Jazzmeia Horn - A Social Call (2017) Prestige [FLAC|Lossless|tracks + .cue] <Voc
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269012.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269012.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Jazzmeia Horn - Love & Liberation (2019) Concord Jazz [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269010.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269010.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ David Liebman, Eric Ineke, Mario Laginha Quintet - Is Seeing Believing? (2016) D
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_269008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_269008.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Eliane Elias - Love Stories (2019) Concord Jazz [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268979.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268979.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bobby Timmons - Six Classic Albums (1957 - 1962) 4CD, 2013, Real Gone Jazz [FLAC
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_268926.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_268926.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Carmell Jones - Jay Hawk Talk 1965 (2014) Universal [FLAC|Lossless|image + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268242.jpg" />
+  <img src="Z:/picture/008/save_picture_268242.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Count Basie And Lester Young - Classic 1936-1947 Studio Sessions (2016) 8CD, Mos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268228.jpg" />
+  <img src="Z:/picture/008/save_picture_268228.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Nick Brignola - What It Takes (1991) Reservoir [FLAC|Lossless|tracks + .cue] <Ha
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268112.jpg" />
+  <img src="Z:/picture/008/save_picture_268112.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Nick Brignola - All Business (1999) Reservoir [FLAC|Lossless|tracks + .cue] <Har
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268110.jpg" />
+  <img src="Z:/picture/008/save_picture_268110.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ The Larry Goldings Trio - Moonbird (1999) Palmetto Records [FLAC|Lossless|image 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_268100.jpg" />
+  <img src="Z:/picture/008/save_picture_268100.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Jeff Baker - Phrases (2018) OA2 Records [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267905.jpg" />
+  <img src="Z:/picture/008/save_picture_267905.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Aldo Romano - Melodies En Noir & Blanc (2017) Le Triton [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267142.jpg" />
+  <img src="Z:/picture/008/save_picture_267142.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Count Basie And His Orchestra - 88 Basie Street (1983) 1994, Original Jazz Class
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267139.jpg" />
+  <img src="Z:/picture/008/save_picture_267139.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Sinne Eeg - Waiting For Dawn (2007) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267132.jpg" />
+  <img src="Z:/picture/008/save_picture_267132.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ The Orchestra of Mirrored Reflections - Best (2019) [FLAC|Lossless|Web-DL|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267123.jpg" />
+  <img src="Z:/picture/008/save_picture_267123.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Yojo - Abduction (2016) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, Pos
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267115.jpg" />
+  <img src="Z:/picture/008/save_picture_267115.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Sinne Eeg - Dreams (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_267103.jpg" />
+  <img src="Z:/picture/008/save_picture_267103.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Dexter Gordon - Those Were The Days 1967 - 1971 (2014) Boundee [FLAC|Lossless|im
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_266998.jpg" />
+  <img src="Z:/picture/008/save_picture_266998.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Bunny Berigan - 1937 - 1938 (1994) Classics [FLAC|Lossless|image + .cue] <Swing,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266737.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Art Van Damme - State Of Art (1967 - 1970) 2000, MPS [FLAC|Lossless|image + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266735.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Nicki Parrott - Moon River (2008) [FLAC|Lossless]<Mainstream Jazz, Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266615.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_266615.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Nicki Parrott - Moon River (2008) [FLAC|Lossless]<Mainstream Jazz, Vocal Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190963   (266037) от 11.12.2017
-
-Billy Eckstine And His Orchestra - Mr. B (1962) 1998, Ember Records [FLAC|Lossless|image + .cue] <Bop, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_266037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Wait And Pray [03:07]
-02. Opus X [02:41]
-03. Good Jelly Blues [02:34]
-04. I Stay In The Mood For You [02:45](   Читать дальше...   )Жанр: Bop, Big Band, Vocal JazzПродолжительность: 00:27:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDCF2F67B4FAE056C4D8AE56991F474F41A0C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267509   (265811) от 07.12.2018
-
-Beegie Adair & Monica Ramey - Some Enchanted Christmas (2018) [FLAC|Lossless|tracks+ .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Happy Holiday
-02 - The Christmas Song
-03 - The Christmas Waltz
-04 - Jingle Bells(   Читать дальше...   )Жанр: Vocal Jazz
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505369DC88DC68B7EC7D90F14003FA243E0754F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339374   (265370) от 20.11.2019
-
-Hank Mobley - No Room For Squares 1963 (1989) Blue Note Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Room for Squares [7:00]
-02. No Room for Squares (alternate take) [6:48]
-03. Three Way Split [7:52]
-04. Comin' Back [6:25](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3E602513C4B9C4D6575BB0E0A5FCFA857B4177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339604   (265368) от 20.11.2019
-
-George Mraz - My Foolish Heart (1995) Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_265368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice in Wonderland [5:46]
-02. Sunday's Song [6:31]
-03. Picturesque [5:36]
-04. Passion Flower [6:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB84452FF6AD55ED2E03D101794B1A111DB9CF33
 ```
 
 https://mybot314.ru/tekegram_catalog/

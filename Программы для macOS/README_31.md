@@ -1,3 +1,137 @@
+###  Публикация: 644277   (868779) от 16.04.2013
+
+iWork 09.3 (2012) [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_868779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет iWork — это популярный офисный пакет для компьютеров Macintosh, который работает под управлением операционной системы Mac OS X. В него входят три приложения: текстовый процессор Pages, электронные таблицы Numbers и редактор презентаций Keynote.
+
+Состав раздачи: Pages 09 v4.3 (1048)
+Numbers 09 v2.3 (554)(   Читать дальше...   )Тип издания: MacOS X softwareРелиз состоялся: 04 декабря 2012Разработчик: iTunes S.a.r.l.  Apple Inc.Поддерживаемая ОС: OS X Lion 10.7.4Язык интерфейса: Русский, Китайский, Датский, Голландский, Английский, Финский, Французский, Немецкий, Итальянский, Японский, Корейский, Норвежский, Польский, Португальский, Испанский, Шведский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375090   (868470) от 12.04.2020
+
+Tipard PDF to Word Converter for Mac 3.1.26 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_868470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tipard PDF to Word Converter - это простой и быстрый способ конвертировать PDF документы в Word и RTF форматы с продвинутой технологией OCR. Программа сохраняет первоначальный текст, изображения, формы и расположения в документах, обладает простым, интуитивно понятным интерфейсом и большой скоростью конвертации. Так-же программа помогает повторно использовать содержание (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Tipard StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E379CDD61150D5E37C8343335FA90A07DD37ED30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497124   (868266) от 20.09.2021
+
+LogRabbit 1.8 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_868266.jpg" />
+</div>
+
+
+###  Подробнее
+
+LogRabbit - это незаменимое приложение просмотра logcat для разработчиков Android.
+Сэкономьте время и упростите работу с журналами устройств Android.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2019Разработчик: Chris WilsonПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A79BEDCFADAB44D936986FD329B3A75220E6FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497131   (868262) от 20.09.2021
+
+TuneBoto Amazon Music Converter 2 v2.4.0 [Multi]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_868262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучший Amazon Music Converter для преобразования всех треков, альбомов и плейлистов Amazon в MP3, AAC, WAV, FLAC или AIFF.Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: TuneBoto Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BBB491EE65C1BDCB821A3726143FD756834581F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497001   (868134) от 20.09.2021
+
+Adobe Zii 2021 - Universal Patcher 6.1.6 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_868134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией практически всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 13.09.2021Разработчик: TNTПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D0B20782373560DA5C50D4971FA08D053EA7283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496993   (868012) от 20.09.2021
 
 Path Finder 10 v10.2 [Multi/Ru]
@@ -6,7 +140,7 @@ Path Finder 10 v10.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868012.jpg" />
+  <img src="Z:/picture/008/save_picture_868012.jpg" />
 </div>
 
 
@@ -32,7 +166,7 @@ Joyoshare Audio Recorder 1.1.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867199.jpg" />
+  <img src="Z:/picture/008/save_picture_867199.jpg" />
 </div>
 
 
@@ -58,7 +192,7 @@ Joyoshare Media Cutter 3.2.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867120.jpg" />
+  <img src="Z:/picture/008/save_picture_867120.jpg" />
 </div>
 
 
@@ -84,7 +218,7 @@ Smart Trash 3.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866680.jpg" />
+  <img src="Z:/picture/008/save_picture_866680.jpg" />
 </div>
 
 
@@ -110,7 +244,7 @@ Valentina Studio Pro 11.4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866671.jpg" />
+  <img src="Z:/picture/008/save_picture_866671.jpg" />
 </div>
 
 
@@ -136,7 +270,7 @@ OnTime PRO 3.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866669.jpg" />
+  <img src="Z:/picture/008/save_picture_866669.jpg" />
 </div>
 
 
@@ -162,7 +296,7 @@ TuneBoto Amazon Video Downloader 1.4.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866668.jpg" />
+  <img src="Z:/picture/008/save_picture_866668.jpg" />
 </div>
 
 
@@ -188,7 +322,7 @@ TunePat Amazon Video Downloader 1.4.0 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866662.jpg" />
+  <img src="Z:/picture/008/save_picture_866662.jpg" />
 </div>
 
 
@@ -214,7 +348,7 @@ Satellites 1.4 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866661.jpg" />
+  <img src="Z:/picture/008/save_picture_866661.jpg" />
 </div>
 
 
@@ -240,7 +374,7 @@ TunePat Amazon Music Converter 2 v2.4.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866598.jpg" />
+  <img src="Z:/picture/008/save_picture_866598.jpg" />
 </div>
 
 
@@ -267,7 +401,7 @@ Tunepat Tidal Media Downloader 1.4.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866465.jpg" />
+  <img src="Z:/picture/008/save_picture_866465.jpg" />
 </div>
 
 
@@ -293,7 +427,7 @@ TunePat Spotify Converter 1.5.0 [Multi]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866460.jpg" />
+  <img src="Z:/picture/008/save_picture_866460.jpg" />
 </div>
 
 
@@ -320,7 +454,7 @@ WinZip Mac Pro 9 v9.0.5554 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866350.jpg" />
+  <img src="Z:/picture/008/save_picture_866350.jpg" />
 </div>
 
 
@@ -347,7 +481,7 @@ Templates Bundle for iWork - Templates Guru 5.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866234.jpg" />
+  <img src="Z:/picture/008/save_picture_866234.jpg" />
 </div>
 
 
@@ -376,7 +510,7 @@ Pixellu SmartAlbums 2 v2.0.24 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866093.jpg" />
+  <img src="Z:/picture/008/save_picture_866093.jpg" />
 </div>
 
 
@@ -405,7 +539,7 @@ SketchUp Pro 2021.1.2 v21.1.331 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866077.jpg" />
+  <img src="Z:/picture/008/save_picture_866077.jpg" />
 </div>
 
 
@@ -431,7 +565,7 @@ Allavsoft Video Downloader Converter 3.22.4.7405 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865622.jpg" />
+  <img src="Z:/picture/008/save_picture_865622.jpg" />
 </div>
 
 
@@ -457,7 +591,7 @@ Ultra Character Map 2.1.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865615.jpg" />
+  <img src="Z:/picture/008/save_picture_865615.jpg" />
 </div>
 
 
@@ -483,7 +617,7 @@ MindNode 2.4.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864274.jpg" />
+  <img src="Z:/picture/008/save_picture_864274.jpg" />
 </div>
 
 
@@ -512,7 +646,7 @@ Easy Markdown 1.8.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864017.jpg" />
+  <img src="Z:/picture/008/save_picture_864017.jpg" />
 </div>
 
 
@@ -540,7 +674,7 @@ Shortcut Bar 2.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863883.jpg" />
+  <img src="Z:/picture/008/save_picture_863883.jpg" />
 </div>
 
 
@@ -552,145 +686,6 @@ Shortcut Bar - невероятно удобное приложение, с ег
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:437F3CFD42AE55060A8EC4EF575956A235295697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375890   (863760) от 15.04.2020
-
-Haptic Touch Bar 2.4.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшое приложение, которое сделает использование панели Touch Bar на новых MacBook Pro гораздо удобнее.
-
-Наделавшая много шума сенсорная панель в ноутбуках Apple — это, несомненно, большой шаг вперёд и улучшение пользовательского опыта, но всё же есть одна вещь, которой ей очень не хватает. Думаю, все догадались, что речь о чётком тактильном отклике, который был (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: BopsoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:149EC89D4BFE0154DCFB2BB2E365085E42831660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497792   (863071) от 23.09.2021
-
-Chronicle Pro 9.8.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_863071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вам приходится часто оплачивать счета, то - Chronicle будет незаменимым помощником. Программа дает Вам душевное спокойствие, с ее помощью Вы никогда не пропустите нужный платеж.
-Даже если вы используете другие приложение для учета Ваших финансов, Вы оцените помощь Chronicle . Просроченные платежи могут нанести ущерб вашей кредитной истории, что приведет к повышению (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.09.2021Разработчик: © LittleFin LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473B8BB56721141F5BAED4CF49D544CE32EF836A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497691   (862963) от 23.09.2021
-
-MediaHuman Youtube Downloader 3.9.9.61 [Multi/Ru]
-
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862963.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Downloader - удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
-
-• Закачка нескольких файлов одновременно
-• Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.09.2021Разработчик: MediaHumanПоддерживаемая ОС: OS X 10.6 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9D9E88F0ECD7F389B18489CE89D4A4B133F862
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999799   (862941) от 23.03.2016
-
-Tyme2 v1.1.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tyme - Следим за своим временем
-Элегантное и простое решение отслеживания времени для фрилансеров
-Tyme это простое в использовании приложение для отслеживания времени для фрилансеров, небольших компаний и тех, кто хочет сохранить обзор своего рабочего времени. С Tyme вы сможете увидеть разложенный на уровни весь процесс работы над проектами и тем самым, контролировать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 марта 2016Разработчик: Lars GerckensПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский и Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E1C1728EEE763A7ABB8D5970E13ECC63A5D606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999774   (862852) от 23.03.2016
-
-Lingon X 2.3.5 [Multi]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lingon X  - автоматический запуск приложений и сценариев
-Lingon позволяет визуально создавать файлы автозагрузки, которые используются для запуска приложений и скриптов автоматически при загрузке Mac OS X. Список всех программ выносится в таблицу, где его удобно редактировать. Тут же отображается статус каждой программы: чем она занимается, работает ли в данный момент (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 февраля 2016Разработчик: Peter Borg Apps ABПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Немецкий  и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AFD26C8678EDFE0917C2204818672F06D4776F
 ```
 
 https://mybot314.ru/tekegram_catalog/

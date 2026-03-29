@@ -1,3 +1,30 @@
+###  Публикация: 1409305   (447140) от 16.09.2020
+
+С. Иванова (сост.) | Запеканки в мультиварке (2014) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запеканки и мультиварка созданы друг для друга: идеальная форма, идеальные блюда без подгоревших корочек. В этой книге вы найдете сладкие и острые, мясные, рыбные и овощные, легкие и сытные запеканки.
+«Маленькие хитрости» раскроют секреты всевозможных сочетаний продуктов. Соусы и подливы – важные дополнения к этому блюду, также предложены в ней. Манные и рисовые (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4489361E269DB47EA0344FE3CB5AC513B5A464D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409308   (447136) от 16.09.2020
 
 С. Иванова (сост.) | 365 рецептов. Готовим вкусную рыбу (2014) [PDF]
@@ -6,7 +33,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447136.jpg" />
+  <img src="Z:/picture/008/save_picture_447136.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444183.jpg" />
+  <img src="Z:/picture/008/save_picture_444183.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443955.jpg" />
+  <img src="Z:/picture/008/save_picture_443955.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442946.jpg" />
+  <img src="Z:/picture/008/save_picture_442946.jpg" />
 </div>
 
 
@@ -110,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442929.jpg" />
+  <img src="Z:/picture/008/save_picture_442929.jpg" />
 </div>
 
 
@@ -138,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442796.jpg" />
+  <img src="Z:/picture/008/save_picture_442796.jpg" />
 </div>
 
 
@@ -165,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442778.jpg" />
+  <img src="Z:/picture/008/save_picture_442778.jpg" />
 </div>
 
 
@@ -191,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442775.jpg" />
+  <img src="Z:/picture/008/save_picture_442775.jpg" />
 </div>
 
 
@@ -217,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442657.jpg" />
+  <img src="Z:/picture/008/save_picture_442657.jpg" />
 </div>
 
 
@@ -243,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440433.jpg" />
+  <img src="Z:/picture/008/save_picture_440433.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438772.jpg" />
+  <img src="Z:/picture/008/save_picture_438772.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438744.jpg" />
+  <img src="Z:/picture/008/save_picture_438744.jpg" />
 </div>
 
 
@@ -323,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437713.jpg" />
+  <img src="Z:/picture/008/save_picture_437713.jpg" />
 </div>
 
 
@@ -349,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435988.jpg" />
+  <img src="Z:/picture/008/save_picture_435988.jpg" />
 </div>
 
 
@@ -375,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435681.jpg" />
+  <img src="Z:/picture/008/save_picture_435681.jpg" />
 </div>
 
 
@@ -401,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435674.jpg" />
+  <img src="Z:/picture/008/save_picture_435674.jpg" />
 </div>
 
 
@@ -427,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435637.jpg" />
+  <img src="Z:/picture/008/save_picture_435637.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435504.jpg" />
+  <img src="Z:/picture/008/save_picture_435504.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435499.jpg" />
+  <img src="Z:/picture/008/save_picture_435499.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435467.jpg" />
+  <img src="Z:/picture/008/save_picture_435467.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435267.jpg" />
+  <img src="Z:/picture/008/save_picture_435267.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431551.jpg" />
+  <img src="Z:/picture/008/save_picture_431551.jpg" />
 </div>
 
 
@@ -588,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428007.jpg" />
+  <img src="Z:/picture/008/save_picture_428007.jpg" />
 </div>
 
 
@@ -616,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427152.jpg" />
+  <img src="Z:/picture/008/save_picture_427152.jpg" />
 </div>
 
 
@@ -644,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425792.jpg" />
+  <img src="Z:/picture/008/save_picture_425792.jpg" />
 </div>
 
 
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9590DEE7CEDC3E09E707ABA46E5F9A1C5458CF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064906   (423181) от 21.10.2016
-
-Инна Метельская-Шереметьева | Кулинарная книга оптимистки. Домашние рецепты и вкусные истории (2016) [FB2]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423181.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди множества авторских кулинарных книг эта стоит особняком, потому что она на них ничуть не похожа! А еще вы совершенно точно, начав ее читать (не удивляйтесь – это именно книга для чтения в первую очередь), не сможете оторваться. И гарантированно нагуляете себе аппетит, потому что Инна Метельская-Шереметьева не просто великолепно готовит и с бесшабашным азартом (   Читать дальше...   )Жанр: КулинарияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79415CD9EA2767EB88CD4397496D12458024C45
 ```
 
 https://mybot314.ru/tekegram_catalog/

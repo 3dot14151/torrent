@@ -1,3 +1,162 @@
+###  Публикация: 958218   (321104) от 22.11.2015
+
+Roger Waters - The Wall (2014) BDRip [H.265/1080p-LQ] [PR]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_321104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет собой уникальный сплав реставрированных концертных съемок, документальной хроники, анимационных фрагментов и самых передовых технологий визуального изображения и спец-эффектов, Роджер Уотерс также включил кадры из своей автобиографии.01. In the Flesh?
+02. The Thin Ice
+03. Another Brick in the Wall Part 1
+04. The Happiest Days of Our Lives(   Читать дальше...   )Производство: ВеликобританияЖанр: Mузыка, концерт, документальныйРежиссер: Шон Эванс, Роджер УотерсАктеры: Роджер Уотерс, Дэйв Килминстер, Сноуи Уайт, Г.И. Смит, Джон Кэрин, Гарри Уотерс, Грэхэм Броад, Робби Выкофф, Джон Джойс, Пэт ЛеннонПеревод: ОтсутствуетЯзык субтитров: Английский, Японский, Французский, Испанский, Португальский, Итальянский, Немецкий, Голландский, Болгарский, Китайский, Чешский, Датский, Финский, Греческий, Венгерский, Корейский, Норвежский, Польский, Русский, Шведский, ТурецкийПродолжительность: 02:12:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C23CDBEF96BA4AEE478BC7F73AFE54F97AEC8917
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582080   (320966) от 29.11.2012
+
+Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RAP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7FED1E461A19167FA026B379E996836EE95CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582075   (320949) от 29.11.2012
+
+Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROCK
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F1476174D2BDDAD5DB5716E9E8C63ED5EDC4E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582084   (320760) от 29.11.2012
+
+Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A3D105C6AA69C363A8B4918CF9D95BDCCFC2A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582054   (320737) от 29.11.2012
+
+Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РОР
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159E69C1F90089C959CF41549FBDADF2EB55D9C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582072   (320526) от 29.11.2012
+
+The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROCK
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DB0D33991B8D8A719C5E5EDBBB790B252F1F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 582089   (320380) от 29.11.2012
 
 Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
@@ -6,7 +165,7 @@ Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320380.jpg" />
+  <img src="Z:/picture/008/save_picture_320380.jpg" />
 </div>
 
 
@@ -32,7 +191,7 @@ Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319004.jpg" />
+  <img src="Z:/picture/008/save_picture_319004.jpg" />
 </div>
 
 
@@ -61,7 +220,7 @@ Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318906.jpg" />
+  <img src="Z:/picture/008/save_picture_318906.jpg" />
 </div>
 
 
@@ -90,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318764.jpg" />
+  <img src="Z:/picture/008/save_picture_318764.jpg" />
 </div>
 
 
@@ -116,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318373.jpg" />
+  <img src="Z:/picture/008/save_picture_318373.jpg" />
 </div>
 
 
@@ -142,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Опера, Балет, Мюзиклы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318227.jpg" />
+  <img src="Z:/picture/008/save_picture_318227.jpg" />
 </div>
 
 
@@ -168,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318079.jpg" />
+  <img src="Z:/picture/008/save_picture_318079.jpg" />
 </div>
 
 
@@ -194,7 +353,7 @@ Katy Perry - MTV UNplugged (2009) HDTVRip
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318028.jpg" />
+  <img src="Z:/picture/008/save_picture_318028.jpg" />
 </div>
 
 
@@ -223,7 +382,7 @@ Riverdance - The Show 2002 (2002) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318014.jpg" />
+  <img src="Z:/picture/008/save_picture_318014.jpg" />
 </div>
 
 
@@ -251,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317919.jpg" />
+  <img src="Z:/picture/008/save_picture_317919.jpg" />
 </div>
 
 
@@ -277,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317908.jpg" />
+  <img src="Z:/picture/008/save_picture_317908.jpg" />
 </div>
 
 
@@ -303,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317487.jpg" />
+  <img src="Z:/picture/008/save_picture_317487.jpg" />
 </div>
 
 
@@ -333,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317479.jpg" />
+  <img src="Z:/picture/008/save_picture_317479.jpg" />
 </div>
 
 
@@ -362,7 +521,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316603.jpg" />
+  <img src="Z:/picture/008/save_picture_316603.jpg" />
 </div>
 
 
@@ -391,7 +550,7 @@ Alizee - En concert (2004) DVDRip [hand made 60fps]
 >>Концерты (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316599.jpg" />
+  <img src="Z:/picture/008/save_picture_316599.jpg" />
 </div>
 
 
@@ -420,7 +579,7 @@ Motley Crue - The End.Live in Los Angeles.2015 (2016) DVD5
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315679.jpg" />
+  <img src="Z:/picture/008/save_picture_315679.jpg" />
 </div>
 
 
@@ -450,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315360.jpg" />
+  <img src="Z:/picture/008/save_picture_315360.jpg" />
 </div>
 
 
@@ -476,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_314973.jpg" />
+  <img src="Z:/picture/005/save_picture_314973.jpg" />
 </div>
 
 
@@ -502,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_314972.jpg" />
+  <img src="Z:/picture/005/save_picture_314972.jpg" />
 </div>
 
 
@@ -528,7 +687,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыкальные клипы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314869.jpg" />
+  <img src="Z:/picture/008/save_picture_314869.jpg" />
 </div>
 
 
@@ -539,186 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DBE23CB8B673DE6DADE675B2798432DB2466215
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582457   (314866) от 01.12.2012
-
-Дорога без возврата (2012) SATRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сцены фильма-мюзикла "Дорога без возврата", снятого группой "ESSE" на основе сценической постановки рок-оперы по мотивам Саги A. Сапковского "Ведьмак"
- Фильм-мюзикл «Дорога без возврата» - это мюзикл о любви и предательстве, жажде власти и стремлении к жизни, ценности свободы, и необходимости борьбы за неё . За 120 минут мы постарались рассказать зрителям о войне и жестокости, о любви и преданности, о героике и мистике, о вневременных ценностях и презрении их. Этот фильм рассчитан на широкую аудиторию, его могут смотреть — и любители рок-музыки, фэнтези, и просто интересующиеся новым в музыке и рок-опере.
-
-Информация о фильме-мюзикле "Дорога без возврата" авторах мюзикла и исполнителях ролей, группе ESSE и рок-опере по мотивам саги "Ведьмак" ждет Вас на официальном сайте группы "ESSE" http://esse-online.com
- Подробнее о фильме-мюзикле
-http://esse-online.com/tag/film-myuzikl-doroga-bez-vozvrata/1."Пророчество Итлины"
-2."Ласточка"
-3."Эсси"
-4."Геральт"
-5."Шаэрраведд"
-6."Йеннифэр"
-7."Башня Чайки"
-8."Час презрения" Внимание! Видеоряд насыщен хроникой, эмоциональными кадрами и сценами, и видео не рекомендуется к просмотру эмоционально возбудимым людям и детям.
-9."Это зря"
-10."Единорог"(   Читать дальше...   )Жанр: МюзиклРежиссер: Евгений ПронинАктеры: Вячеслав Майер, Людмила Дымкова, Дарья Пронина, Юрий Скляр, Михаил Папченков, Мария Осадчая, Константин Ильин, Ольга Струкова, Олег ГончаровПеревод: Отсутствует (оригинал)Продолжительность: 14 серий по   00:05:00-00:15:00 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95BB8392E9312D5D7D9CD463B4CCBA595BD35717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181660   (314633) от 11.11.2017
-
-СЛОТ - #REDLIVE (2017) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314633.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 февраля 2016 года в клубе «RED» состоялась презентация одной из самых успешных работ группы – альбома «Septima». Выступление, где прозвучали все главные песни этого релиза, а также нетленные СЛОТ-хиты, было запечатлено на видео и теперь выходит на DVD и в цифровой аудио версии. Огненная энергетика и безудержный драйв с тяжёлыми гитарными риффами, хлёсткими речитативами (   Читать дальше...   )1. Реинкарнация
-2. Доска
-3. Лего
-4. Мочит, как хочет!(   Читать дальше...   )Производство: РоссияЖанр: AlternativeСубтитры: НетПродолжительность: 01:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F62A63D4C738144B1DD3F7D64FFC2547B0B2E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182434   (314216) от 11.11.2017
-
-Ленинград / Вояж (2017) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая группа «Ленинград» и ее лидер, любитель крепкого словца Сергей Шнуров, представили клип к композиции "Вояж"Производство: РоссияЖанр: Rock, SkaПродолжительность: 00:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C63562C8C127F9B53309060F366E5FB5129D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182274   (314087) от 11.11.2017
-
-Сборник клипов - Philizz "Back To The 90s" (episode 7) (2017) WEB-DLRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник клипов "Back To The 90s" - фирменный видеомикс от голландского ви-джея Philizz. Серия видеомиксов популярных клипов 90-х годов - седьмая часть, заключительная. Энергичная танцевальная музыка в стиле Eurodance, Techno и Hardcore. Танцуем под легендарную музыку 90-х!
-- Разбивка по трекам отсутствует.Ramirez – El Gallinero
-The Prodigy – Out Of Space
-Captain Jack – Captain Jack
-JX – You Belong To Me(   Читать дальше...   )Жанр: Pop, Club, Dance, Video-MegamixПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF8F1F4E573D33FD9A55B0E4E9061568C5B6C5DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259899   (314045) от 06.11.2018
-
-Юбилейный вечер поэта Михаила Гуцериева (2018.11.04) HDTV [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314045.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь своего юбилея Михаил Гуцериев приглашает телезрителей на творческий праздник. В этот вечер на Кремлевской сцене прозвучат самые популярные песни, которые были написаны поэтом в разные годы его творчества: "Вишнёвые розы", "Мы боимся любить", "Неделимые", "Осенняя любовь", "Я скучаю по нам по прежним", "Любовь-отрава", (   Читать дальше...   )01 Николай Басков и Игорь Николаев - Вишневая любовь
-02 Алла Пугачева - Не звони
-03 Алла Пугачева - Тянет сердце руки
-04 Филипп Киркоров - Химера(   Читать дальше...   )Телекомпания: НТВЖанр: ТВ-шоу, концертСубтитры: ОтсутствуютПродолжительность: 01:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE02CE1315E53D94F6B86EC8DA7494C23228377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332437   (313894) от 20.10.2019
-
-Квартирник НТВ у Маргулиса. Группа Грот (19.10.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313894.jpg" />
-</div>
-
-
-###  Подробнее
-
-К Евгению Маргулису пришла рэп-команда «Грот». Омичи Виталий Евсеев и Дмитрий Геращенко создали группу в 2009 году и сразу же выпустили дебютный EP «Никто, кроме нас». Он вызвал мощнейший резонанс, а группа в одночасье стала популярной. В 2019 году команда празднует юбилей — 10 лет на сцене. В разговоре с ведущим они вспомнили самые интересные истории из творческой (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF656B47EB6FFE5072552ED6687B0D1F85306E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

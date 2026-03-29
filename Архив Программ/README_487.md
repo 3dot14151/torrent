@@ -6,7 +6,7 @@ Wise Care 365 Pro 6.1.2.596 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794839.jpg" />
+  <img src="Z:/picture/008/save_picture_794839.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ HWiNFO 7.15 Build 4615 Beta Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794838.jpg" />
+  <img src="Z:/picture/008/save_picture_794838.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Ventoy 1.0.60 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794825.jpg" />
+  <img src="Z:/picture/008/save_picture_794825.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ CoolUtils Total Outlook Converter 4.1.0.323 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794760.jpg" />
+  <img src="Z:/picture/008/save_picture_794760.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ SIV (System Information Viewer) 5.61 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794756.jpg" />
+  <img src="Z:/picture/008/save_picture_794756.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Audacity 3.1.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794754.jpg" />
+  <img src="Z:/picture/008/save_picture_794754.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Ashampoo UnInstaller 11.00.11 Portable by Jooseng [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794753.jpg" />
+  <img src="Z:/picture/008/save_picture_794753.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ FreeTube 0.15.1 Beta + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794733.jpg" />
+  <img src="Z:/picture/008/save_picture_794733.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ PrivaZer 3.0.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794724.jpg" />
+  <img src="Z:/picture/008/save_picture_794724.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Mozilla Firefox Quantum 58.0 Portable by PortableAppZ [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794674.jpg" />
+  <img src="Z:/picture/008/save_picture_794674.jpg" />
 </div>
 
 
@@ -270,7 +270,7 @@ NVCleanstall 1.12.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794661.jpg" />
+  <img src="Z:/picture/008/save_picture_794661.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ QTranslate 5.7.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794644.jpg" />
+  <img src="Z:/picture/008/save_picture_794644.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ Total Commander 10.00 (07.11.2021) Portable by MiG [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794622.jpg" />
+  <img src="Z:/picture/008/save_picture_794622.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4997.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794594.jpg" />
+  <img src="Z:/picture/008/save_picture_794594.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Windows 11 Enterprise 21H2 x64 Rus by OneSmiLe [22000.318]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794591.jpg" />
+  <img src="Z:/picture/008/save_picture_794591.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Slimjet 9.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794572.jpg" />
+  <img src="Z:/picture/008/save_picture_794572.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ PrivaZer 3.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794565.jpg" />
+  <img src="Z:/picture/008/save_picture_794565.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5215.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794527.jpg" />
+  <img src="Z:/picture/008/save_picture_794527.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ SamDrivers 18.0 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794518.jpg" />
+  <img src="Z:/picture/008/save_picture_794518.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Microsoft Office 2013 SP1 Standard 15.0.4997.1000 (2018.01) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794512.jpg" />
+  <img src="Z:/picture/008/save_picture_794512.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794502.jpg" />
+  <img src="Z:/picture/008/save_picture_794502.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ Skype 7.23.0.105 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794500.jpg" />
+  <img src="Z:/picture/008/save_picture_794500.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Save From Clipboard 0.99 Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794497.jpg" />
+  <img src="Z:/picture/008/save_picture_794497.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Ashampoo Photo Commander 14.0.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794448.jpg" />
+  <img src="Z:/picture/008/save_picture_794448.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Macrium Reflect v 7.2.4942 x64 Home [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794425.jpg" />
+  <img src="Z:/picture/008/save_picture_794425.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ IObit Smart Defrag Pro 5.0.2.769 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794421.jpg" />
+  <img src="Z:/picture/008/save_picture_794421.jpg" />
 </div>
 
 

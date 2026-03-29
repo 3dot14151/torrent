@@ -1,3 +1,318 @@
+###  Публикация: 990863   (909422) от 26.02.2016
+
+Проекты - VideoHive - Cowboy Style Opener [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_909422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу в стиле дикого запада.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A08CC7A3F623ACD965589E3808503C1F5071D18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368660   (908694) от 20.03.2020
+
+Проекты - VideoHive - Dark Crystal – 23104951 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908694.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Dark Crystal» - это модный и современный шаблон After Effects. Профессионально анимированные с чистой текстовой анимацией. Хорошо подходит для самых разных целей, таких как презентации, церемонии награждения, слайд-шоу, продукты, промо, фотосессии и видеоролики о моде. Создайте потрясающее и модное слайд-шоу и ослепите свою аудиторию.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35CE6FA347BA8758F49954F8F4E65E603DDC39A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368510   (908691) от 20.03.2020
+
+Проекты - VideoHive - Black with Gold - 23144791 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908691.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Black with Gold» - это модный и современный шаблон After Effects. Профессионально анимированные с чистой текстовой анимацией. Хорошо подходит для самых разных целей, таких как презентации, церемонии награждения, слайд-шоу, продукты, промо, фотосессии и видеоролики о моде.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EFF3BC55493045131FCAA606243EB0711182BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368602   (908685) от 20.03.2020
+
+Проекты - VideoHive - Promo Platinum - 20446596 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908685.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Promo PLatinum» - это модный и современный шаблон After Effects. Хорошо подходит для самых разных целей, таких как презентации, церемонии награждения, продукты, промо, фотосессии и модные видео. Создайте потрясающее и модное слайд-шоу и ослепите свою аудиторию.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5F877571A676BB2DB6F57C523595002179EBFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368651   (908583) от 20.03.2020
+
+Проекты - VideoHive - Glass Opener – 21538208 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908583.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Glass Opener» - это модный и современный шаблон After Effects. Профессионально анимированные с чистой текстовой анимацией. Легко редактируется и настраивается. Хорошо подходит для самых разных целей, таких как презентации, церемонии награждения, слайд-шоу, продукты, промо, фотосессии и видеоролики о моде. Создайте потрясающее и модное слайд-шоу и ослепите свою аудиторию.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A4C7F568BB1C2BB6C670294521471182BFACD07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368650   (908506) от 20.03.2020
+
+Проекты - VideoHive - The Old Memories - Film Projector - 21808328 [PRPROJ]
+
+>>Проекты
+>>Трейлеры (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908506.jpg" />
+</div>
+
+
+###  Подробнее
+
+«The Old Memories - Film Projector» - стильный элегантный проект для создания винтажного вступительного ролика собранного в стиле "по волнам воспоминаний".
+Многие оценят по достоинству.Формат: PRPROJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B459A92ADB12758A3F8343FFBD8EB3F46E13154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368514   (908445) от 20.03.2020
+
+Проекты - EasyEdit Pro - Covid 19 Awareness Free Graphics Pack [AEP, AI, PSD]
+
+>>Проекты
+>>Разное (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908445.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Covid 19 Awareness Free Graphics Pack» - стильный элегантный проект для создания промо ролика посвященного вирусу Covid 19. Осведомленность о вирусе - это первое, что нам нужно, чтобы сохранить спокойствие и предотвратить распространение Covid-19. Именно поэтому был создан специальный пакет, который поможет вам очень быстро создавать разный информационный контент. (   Читать дальше...   )Формат: AEP, AI, PSD
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D697146419B3B1C89DBB39DC81BA5C4179467B48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368496   (908441) от 20.03.2020
+
+Проекты - VideoHive - Fireworks Logo & Titles - 26055600 [AEP]
+
+>>Проекты
+>>Элементы (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908441.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Fireworks Logo & Titles» - стильный элегантный пакет из 30 фейерверков в 10 категориях с возможностью создания из него логотипа и текстовой вставки.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6BAD1F51E80070D003B853CCD2728CD4D0234CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491662   (908326) от 26.08.2021
+
+Проекты - VideoHive - Emoji Happy Birthday - 33554697 [AEP, MOGRT]
+
+>>Проекты
+>>Детские (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908326.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Emoji Happy Birthday» - шаблон для создания слайд-шоу на День рождения. Добавьте своё изображение или видео, отредактируйте текст и наслаждайтесь результатом!Формат: AEP, MOGRT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62BDDFA54EBA8371EC85067743DFF22607888B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368619   (908300) от 20.03.2020
+
+Проекты - VideoHive - Brush History Slideshow / Retro Vintage Opener / Old Memories Photo Album / World War - 25721640 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908300.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Brush History Slideshow / Retro Vintage Opener / Old Memories Photo Album / World War» - отличный проект для вашего уникального исторического слайд-шоу, трейлера к фильму или вступление.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A81D76422DB4C63E5D0B989C164238673E058EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098660   (908272) от 30.01.2017
+
+Проекты - VideoHive - Stylish Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stylish Slideshow - кинематографическое слайд-шоу, идеально подходит для вступительного ролика, ТВ-шоу, фото/видео слайд-шоу или любого вида презентации. Уникальный, современный, минималистичный дизайн с эффектом параллакса слоев.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066BACB34D334A5C3CAA5182C4545D0B2E5EE31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098681   (908212) от 30.01.2017
+
+Проекты - VideoHive - The Slideshow - 19015222 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908212.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Slideshow - простое энергичное слайд-шоу с большим количеством заполнителей.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3130D36306DE220112BDC8E09F553F1CCBB27455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098650   (908118) от 30.01.2017
 
 Проекты - VideoHive - Retro King - 18953460 [AEP]
@@ -6,7 +321,7 @@
 >>Титры (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908118.jpg" />
 </div>
 
 
@@ -32,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908062.jpg" />
 </div>
 
 
@@ -58,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908046.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908046.jpg" />
 </div>
 
 
@@ -84,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907993.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907993.jpg" />
 </div>
 
 
@@ -110,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907991.jpg" />
 </div>
 
 
@@ -136,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907977.jpg" />
 </div>
 
 
@@ -162,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907976.jpg" />
 </div>
 
 
@@ -188,7 +503,7 @@ Videohive - 101 Project Pack for After Effects Vol.1-4 [Multi]
 >>Разное (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907849.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907849.jpg" />
 </div>
 
 
@@ -216,7 +531,7 @@ VideoHive - Women's Day - 4183865 [AEP]
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907832.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907832.jpg" />
 </div>
 
 
@@ -242,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907711.jpg" />
 </div>
 
 
@@ -268,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907568.jpg" />
 </div>
 
 
@@ -295,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Презентации (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907567.jpg" />
 </div>
 
 
@@ -322,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Праздничные (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_907491.jpg" />
 </div>
 
 
@@ -349,7 +664,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906522.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906522.jpg" />
 </div>
 
 
@@ -360,323 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A5198C9EDE0B6856A5B4A5C50B27CF9E21693DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368840   (906519) от 21.03.2020
-
-Проекты - VideoHive - Watercolor Parallax Slideshow - 18391004 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906519.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Watercolor Parallax» - Красивое слайд-шоу с эффектами акварельного параллакса.  Высококачественный шаблон хорошо структурированный с вниманием к деталям! Идеально подходит для фото презентаций, эпических слайд-шоу, хронологических фото-шоу, ретро-портфолио и др.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85514EDD9FF55D68ED13083B8D60DF288CB7D337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099204   (906286) от 31.01.2017
-
-Проекты - VideoHive - Slideshow - 16267043 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slideshow - проект для создания фото\видео галереи из ваших фотографий или видео. Проект позволяет создать 4 варианта слайд-шоу с разной длительностью и разным числом заполнителей (Short 1:10 - 11 place, Medium 2:05 - 22 place, Long 3:00 - 33 place, Extra long 3:53 - 44 place).Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03D9B77C7327E6163C9AE2CB1EB12D40705656C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099095   (906176) от 31.01.2017
-
-Проекты - VideoHive - Dynamic Opener - 19311547 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Opener - элегантный проект для начала вашего фильма, или рекламы в динамическом стиле. Обучение включено.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE26D9FAF499E974A611025B66A63B76EAE057C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099187   (906174) от 31.01.2017
-
-Проекты - VideoHive - Inspire Cinematic Slideshow | Opener - 19303304 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906174.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inspire Cinematic Slideshow | Opener - кинематографическое слайд-шоу с последовательностью названий. Вы можете использовать его с вашим логотипом или текстом, изображениями или видео с публикацией на Youtube, Facebook, Vimeo или Twitter. А также вы можете создать видеоальбом, фильм про летнее путешествие или приключения в туристическом туре. Создайте свой элегантный (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB3FF82194B7309359CF7645201726761638409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099068   (906168) от 31.01.2017
-
-Проекты - VideoHive - Colorful Logo - 19310908 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красочный и красивый проект для демонстрации Вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8CEC547F1949BBB7BF3BB61CD1078B52753BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098892   (906163) от 31.01.2017
-
-Проекты - Проект ProShow Producer - Just 4 Kids [PSH]
-
->>Проекты
->>Детские (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детский проект от grandpaJanek.
-Проект может быть использован в авторском решении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
-Превью (авторский ролик) - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E611A83B6F045031DF85D1ACE0C019556E44C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099171   (906043) от 31.01.2017
-
-Проекты - VideoHive - Particles | Trailer Titles - 19302426 [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Particles | Trailer Titles - красивая анимация титров для создания трейлера или вступительного ролика к вашему основному фильму.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9771F15389FE331055ACA707B5323880473850DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098763   (906042) от 31.01.2017
-
-Проекты - VideoHive - Particle Motion - Photo Animation Particular Effects - 19279865 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Particle Motion - Photo Animation Particular Effects - От Автора: - "хотите увидеть как движение создает анимацию частиц непосредственно на ваших фотографиях - создайте дым, пыль, песок, блестки, искры и многое другое! Использование плагина Trapcode Particular является профессиональным инструментарием движения частиц с 14 категориями уникальных анимационных (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D502719BA0FCD05CEE1DBE622DA754D6D8B7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 866841   (905886) от 06.02.2015
-
-Проекты - VideoHive - World Map - 10052401 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905886.jpg" />
-</div>
-
-
-###  Подробнее
-
-World Map - проект мировая карта.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC61761843C591E4D0928296FDCDE2E3E1B71E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991653   (905853) от 28.02.2016
-
-Проекты - RocketStock - Archive [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Archive - это высокоэнергичное слайд-шоу. Этот проект, лучший способ усиления восприятия для Вашего следующего видео или проекта.
-Проект содержит 25 заполнителей для фото или видео материала и 15 титров. Он включает в себя модульную разметку, и поэтому вы можете перемещать, удалять, или изменять момент запуска сцен.
-Легко настроить цвета и отключить функции, такие (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49C3186C1C44ED6E790ECC8201579F4D162E911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991144   (905777) от 28.02.2016
-
-Проекты - VideoHive - The Universe [AEP]
-
->>Проекты
->>Титры (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстовый проект для создания промо-ролика в космическо-фантастическом стиле.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE44A97FFBE7D9F16B4EBB4E876143205976DF78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991331   (905765) от 28.02.2016
-
-Проекты - Проект ProShow Producer - Animated Square [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект создан в PSP-6. В этой презентации представлен пакет переходов Animated Square. Проект может быть использован в оригинальном исполнении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов. Превью, пакет переходов и саундтрек - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A69A09569B153BC93B4185D2365DCAB388C80FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

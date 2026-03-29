@@ -1,3 +1,396 @@
+###  Публикация: 1396880   (744012) от 17.07.2020
+
+Звуковые библиотеки - SoundMorph - Steampunk Weapons [WAV]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_744012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steampunk Weapons - новейшая звуковая библиотека. От Автора: "Мы смешали старое с новым, чтобы сделать эту уникально разнообразную коллекцию оружия. Комбинируя современные методы записи с металлом, ржавыми предметами и синтезом, если вам нужно больше оружия, которое нарушает форму традиционного оружия, это коллекция для вас!"Формат: WAV
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:761D9D551319EAA72BD87C026E2693BB8150FE22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020817   (743568) от 27.05.2016
+
+Экшены - CreativeMarket - Crows Dispersion Action - 665776 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743568.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crows Dispersion - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50D9C1B52557C161D6D169CA8DCF502879751E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282679   (743495) от 13.02.2019
+
+Шрифты - Creative Market - Atlantis Heart - 921756 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт Atlantis Heart Brush - это аутентичный стиль каллиграфии, подходящий для дизайна, дизайна элементов, свадьбы, различных мероприятий, футболок, логотипов, значков, наклеек и так далее.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B79CDA3122066AA29D4B6A98033A73138D58CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020825   (743454) от 27.05.2016
+
+Экшены - CreativeMarket - Dreaming - Twirl Paint Action - 650491 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreaming - Twirl Paint - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50BF094BF99559EB933528853D51AE6A29A58A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020818   (743447) от 27.05.2016
+
+Экшены - CreativeMarket - Birds Dispersion Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Birds Dispersion - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CF2262FBEB3CABFA60E1A45FDF2541811C5BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282750   (743402) от 13.02.2019
+
+NNM-Club Sound Cleaner Collection from Teacher
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитель. Старейшина движения и организатор группы Sound cleaner в Клубе.
+Эксклюзивная коллекция музыкальных треков и звуковых эффектов AudioJungle и не только к проектам After Effects. Избранное.Формат: WAV, MP3, AAC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694D64F3226A144846BFDB351596756BBF352C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282680   (743401) от 13.02.2019
+
+Шрифты - Creative Market - Beauty Heart - 760020 [TTF, OTF, EPS, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это шрифт выполненный вручную, рисунки в комплекте с натуральными кистями ручной работы и имеют современный винтажный стиль, стиль каллиграфии с кистью Beauty Heart Script. Подходит для дизайна, дизайна элементов, свадьбы, футболок, логотипа, значков и т.д.Формат: TTF, OTF, EPS, PNG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:332D6844BA44F41FB26FC1834295B5C9FABC3CDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282681   (743392) от 13.02.2019
+
+Шрифты - Creative Market - BLACKHAWK Brush Font - 772377 [TTF, OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743392.jpg" />
+</div>
+
+
+###  Подробнее
+
+BLACKHAWK - это стильный уличный шрифт насыщенный энергией. Идеально подходит для логотипов, надписей на одежды, упаковок продуктов, флаеров и так далее.Формат: TTF, OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3228A29FFE457D061572073E5B3960D7140A02FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020969   (743218) от 27.05.2016
+
+Экшены - GraphicRiver -  Realistic Painting Action [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Realistic Painting - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF129C2EF4BE5301131B56184275920412DF9E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020985   (743213) от 27.05.2016
+
+Экшены - GraphicRiver - Gouache Painting - 16135141 [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gouache Painting - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AD7D2281A8402745C8F1AC603D2352CD724451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020834   (743110) от 27.05.2016
+
+Экшены - CreativeMarket - Pro Cartoon Oil Painting effect v.3 - 464118 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pro Cartoon Oil Painting - этот набор действий был разработан для фотографов и графических дизайнеров.
+Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDD713486AF75703D0226FA10B9F399287E01848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020974   (743106) от 27.05.2016
+
+Экшены - GraphicRiver - Creative Retouch - 11538758 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Creative Retouch - превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17970BE376B2DD0A8CD5192C15D4452AAE5DF31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020679   (743105) от 27.05.2016
+
+Экшены - CreativeMarket - HDR Reactor panel - 599270 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743105.jpg" />
+</div>
+
+
+###  Подробнее
+
+HDR Reactor panel -  быстро превратит ваши фотографии в HDR эффект художественных работ.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596F5258327A6234A0407169358D64A026F3D2B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020957   (743034) от 27.05.2016
+
+Экшены - GraphicRiver -  Glamour Oil Retouching Photoshop Action - 15884950 [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_743034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glamour Oil Retouching - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01699CB942764BBAD669D3469489CF9345FBE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217364   (742957) от 04.04.2018
+
+Растровый клипарт - Creative Market - 150 Shells Bundle (isolated objects) - 2350525 [TIF]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_742957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт ракушки
+150 ракушек в смарт-объекте с возможностью редактировать тениФормат: TIFРазрешение файлов: 2000x2000-6000x6000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A114E89B047C6DB72C2748778D8052967FB42ACF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397131   (742639) от 18.07.2020
 
 Векторный клипарт - Happy Valentine's Day romantic decorative illustrations 43 [EPS]
@@ -6,7 +399,7 @@
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742639.jpg" />
+  <img src="Z:/picture/008/save_picture_742639.jpg" />
 </div>
 
 
@@ -34,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742638.jpg" />
+  <img src="Z:/picture/008/save_picture_742638.jpg" />
 </div>
 
 
@@ -62,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742632.jpg" />
+  <img src="Z:/picture/008/save_picture_742632.jpg" />
 </div>
 
 
@@ -90,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742629.jpg" />
+  <img src="Z:/picture/008/save_picture_742629.jpg" />
 </div>
 
 
@@ -116,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742606.jpg" />
+  <img src="Z:/picture/008/save_picture_742606.jpg" />
 </div>
 
 
@@ -145,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Звуковые библиотеки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742598.jpg" />
+  <img src="Z:/picture/008/save_picture_742598.jpg" />
 </div>
 
 
@@ -174,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742567.jpg" />
+  <img src="Z:/picture/008/save_picture_742567.jpg" />
 </div>
 
 
@@ -202,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742560.jpg" />
+  <img src="Z:/picture/008/save_picture_742560.jpg" />
 </div>
 
 
@@ -231,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742554.jpg" />
+  <img src="Z:/picture/008/save_picture_742554.jpg" />
 </div>
 
 
@@ -257,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742274.jpg" />
+  <img src="Z:/picture/008/save_picture_742274.jpg" />
 </div>
 
 
@@ -285,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742220.jpg" />
+  <img src="Z:/picture/008/save_picture_742220.jpg" />
 </div>
 
 
@@ -296,402 +689,6 @@ Freshwater - красивый декоративный шрифт для Ваш�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9387BD4B89F5D89082EF3715820CCD20BCC8B4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217487   (742122) от 05.04.2018
-
-Векторный клипарт - Vector Fruits Collection #8 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Фруктовая коллекция
-25 AI + previewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87915412B7A2D6A7C89BFD2341293CA2121E5119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282846   (742117) от 14.02.2019
-
-Шрифты - Creative Market - Its Marison Brieny - 2264694 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Its Marison Brieny - современный фирменный шрифт, идеально подходящий для вашего следующего проекта. Marison Brieny отлично подходит для свадьбы, мероприятий, приглашений, меню заголовков, логотипов, поздравительной открытки и многое другое.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E228D1EC4658AFB59EABECED143AECE499E3AC21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282844   (742114) от 14.02.2019
-
-Шрифты - Creative Market - Chocolate Heart Script Font - 399552 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742114.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chocolate Heart - Красивый и элегантный шрифт для Вашего творчества. Подойдет для дизайна, свадьбы, надписей на футболках, логотипов, значков, наклеек, флаеров и многое другое.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C77A4D1653ACC4C72B1CD6EBF23791E4BCB5F5F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021067   (742066) от 28.05.2016
-
-Экшены - GraphicRiver - Pixel Exposure [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pixel Exposure - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3DA8A5C8BDA469B6F310581BAA9FB0420A0E00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217702   (742020) от 05.04.2018
-
-Текстуры - Creative Market - Huge Gold foil Textures Bundle - 2343142 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используйте эти текстуры для своего бизнеса, интернет-магазина, брендинга, веб-дизайна, электронных книг, логотипов, графики, приглашений, дизайна упаковки ... дай волю своему творчествуФормат: JPGРазрешение файлов: 2000x3000-4000x6000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C32A2B76FB1F5CE6DF310775AED68232014C7227
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282988   (741994) от 14.02.2019
-
-Шрифты - Fontfabric - Noah [OTF, TTF, EOT, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные варианты шрифтов из семейства Noah в 4 вариациях. Материал раздается с официальной документацией.
-Поддержка кириллицы: Есть
-Разработчики: Svet Simov, Radomir Tinkov, Stan PartalevФормат: OTF, TTF, EOT, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794AC1704918276B521FA4FE30B125AC32AADE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282894   (741985) от 14.02.2019
-
-Футажи - Lost in Space - fractal animation 3 [MP4]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третья часть моей коллекции.. Космос... футажи фракталы.. мне лично пригодилось, вдруг кому ещё сгодится..Формат: MP4Разрешение файлов: 1280х720, 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05310B90A86AA4F2C3202FC9A70EB3D3A2ECD7CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021074   (741959) от 28.05.2016
-
-Экшены - GraphicRiver - Polygons Exposure [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Polygons Exposure - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B910083FEA8875402D323235303918B8084998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021062   (741954) от 28.05.2016
-
-Экшены - GraphicRiver - Modern Lines 1 / Photoshop action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Lines 1 - данный экшен хорошо подойдёт для оформления рекламной продукции.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACCD7D181A21ABCD36DB2C0E9783757A59C90AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020990   (741951) от 28.05.2016
-
-Экшены - GraphicRiver - Modern Glamour Effect Actions - 16170169 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Glamour Effect - экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCBE4E2C3028AF0FDB920600862DFF6056EA685D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021219   (741797) от 28.05.2016
-
-Экшены - GraphicRiver - Real Oil Painting Photoshop Action CS3+ [ATN, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D8EB03220085E9A798417F018FEE62A3951F281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217484   (741789) от 05.04.2018
-
-Фоны и наложения - Creative Market - 525 Rain, Snow, Lightning Overlays - 2341676 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Второй пакет моей коллекции эксклюзивных цифровых визуальных эффектов (новый и уникальный контент здесь, никогда не был включен в прошлые продукты), изолирован на черном фоне, всего 525 оверлей. Огромный размер изображений и разнообразие этих текстур и элементов дает возможность использовать их разными способами. Используйте их в качестве наложений для вашей фотографии, (   Читать дальше...   )Формат: JPGРазрешение файлов: 5000x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AA4A5A0C243BF7F62C23389DE89AAF95227CA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021224   (741726) от 28.05.2016
-
-Экшены - GraphicRiver - Real Watercolor Painting Photoshop Action [ATN, ABR]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Real Watercolor Painting - очень реалистичный эффект акварельной живописи без каких-либо навыков в рисовании, всего 1 клик и Ваш фотоснимок преобразился.
-Превосходный экшен для Вашего творчества. Многие оценят его по достоинству.Формат: ATN, ABR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34763006F71D5472B742E4E79482C35C72C9B8C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021265   (741713) от 28.05.2016
-
-Экшены - GraphicRiver - Retouching Photoshop Action 4 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один щелчок, чтобы применить удивительные эффекты на своем фото.
-Полностью настраиваемый и прост в использовании.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05D6C042AA3728950DF34A429274CC1A664FFD4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217499   (741708) от 05.04.2018
-
-Фоны и наложения - Creative Market - 575 Fire, Smoke, Fog Overlays - 2204960 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это первый пакет моей коллекции цифровых визуальных эффектов наложений, изолированных на черном фоне, всего 575 наложений. Огромный размер изображений и разнообразие этих текстур и элементов дает возможность использовать их разными способами. Используйте их в качестве наложений для вашей фотографии, цифрового искусства, презентации продукта, как декоративного элемента, (   Читать дальше...   )Формат: JPGРазрешение файлов: 5000x5000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA19ECB448561B8CEEA535689E3CD8138E1AD794
 ```
 
 https://mybot314.ru/tekegram_catalog/

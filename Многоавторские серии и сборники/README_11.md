@@ -1,3 +1,108 @@
+###  Публикация: 824556   (730243) от 22.04.2017
+
+Книжная серия | Сибириада [98 книг. Обновляемая] (2006-2017) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_730243.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сибириада» — серия книг издательства «Вече». "Богатство России прирастать будет Сибирью…" - эти знаменитые слова, наверное, знает каждый. Огромный край русские первопроходцы осваивали более трехсот лет. Множество великих открытий связано с ним и много отважных людей сложило головы на его просторах. Серия романов, посвященных истории освоения Сибирского (   Читать дальше...   )Жанр: Исторические приключенияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FDEB8EAFC1481B1B6776D746B51D847A2927D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 860162   (730212) от 31.05.2016
+
+Книжная серия | Азбука - бестселлер [105 книг. Обновляемая] (2012-2016) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_730212.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство «Азбука» было основано в Санкт-Петербурге в 1995 году. Сегодня это крупнейшее издательство Санкт-Петербурга и Северо-Западного региона в области художественной литературы, входящее в число трех основных издательских компаний России. «Азбука» ежегодно выпускает более 100 книжных серий и отдельных издательских проектов общим тиражом более 10 миллионов (   Читать дальше...   )Жанр: Проза, Современная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1A21929540DACB8141937F8E0D6319E0842375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 893201   (729135) от 01.06.2016
+
+Книжная подборка | Интеллектуальный бестселлер + подсерии [352 книги. Обновляемая] (2006-2015) [FB2]
+
+>>След.
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_729135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия «Интеллектуальный бестселлер» основана издательством «Эксмо» в 2006 году. В ней издают в основном не просто бестселлеры, а шедевры современных зарубежных авторов совершенно разных жанров — от триллеров и фантастики до философских романов и сборников рассказов (Морис Дрюон, Рэй Брэдбери, Колин Маккалоу, например). Все книги, включенные в серию, несомненно, заслуживают (   Читать дальше...   )Жанр: Современная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0B5EDC6FE7D961346C2978C2DBADBAEC2F54FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 807484   (726851) от 03.06.2016
+
+Книжная серия | Звезды новой фантастики [24 книги. Обновляемая] (2014-2016) [FB2]
+
+>>След.
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726851.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2014 году издательство Азбука приступило к изданию серии книг под названием «Звезды новой фантастики» в которой публикуются современные произведения зарубежных авторов в стиле "научная фантастика".
+Книги данной серии имеют высококачественную суперобложку, на клапанах которой имеется фотография автора, краткая информация о нём, ближайшие планы по выпуску (   Читать дальше...   )Жанр: Научная фантастика, Космическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45309E20242A89C7F2812134ACE7229C655EB44F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212562   (723853) от 14.02.2022
 
 Книжная серия | MustRead – Прочесть всем! [15 книг] (2013-2022) [FB2] [Обновляемая]
@@ -6,7 +111,7 @@
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723853.jpg" />
+  <img src="Z:/picture/008/save_picture_723853.jpg" />
 </div>
 
 
@@ -33,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723619.jpg" />
+  <img src="Z:/picture/008/save_picture_723619.jpg" />
 </div>
 
 
@@ -59,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722090.jpg" />
+  <img src="Z:/picture/008/save_picture_722090.jpg" />
 </div>
 
 
@@ -87,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719690.jpg" />
+  <img src="Z:/picture/008/save_picture_719690.jpg" />
 </div>
 
 
@@ -114,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717355.jpg" />
+  <img src="Z:/picture/008/save_picture_717355.jpg" />
 </div>
 
 
@@ -140,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716057.jpg" />
+  <img src="Z:/picture/008/save_picture_716057.jpg" />
 </div>
 
 
@@ -169,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713202.jpg" />
+  <img src="Z:/picture/008/save_picture_713202.jpg" />
 </div>
 
 
@@ -196,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710631.jpg" />
+  <img src="Z:/picture/008/save_picture_710631.jpg" />
 </div>
 
 
@@ -224,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707212.jpg" />
+  <img src="Z:/picture/008/save_picture_707212.jpg" />
 </div>
 
 
@@ -251,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704634.jpg" />
+  <img src="Z:/picture/008/save_picture_704634.jpg" />
 </div>
 
 
@@ -279,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700973.jpg" />
+  <img src="Z:/picture/008/save_picture_700973.jpg" />
 </div>
 
 
@@ -307,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700172.jpg" />
+  <img src="Z:/picture/008/save_picture_700172.jpg" />
 </div>
 
 
@@ -334,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700074.jpg" />
+  <img src="Z:/picture/008/save_picture_700074.jpg" />
 </div>
 
 
@@ -360,7 +465,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699463.jpg" />
+  <img src="Z:/picture/008/save_picture_699463.jpg" />
 </div>
 
 
@@ -388,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695750.jpg" />
+  <img src="Z:/picture/008/save_picture_695750.jpg" />
 </div>
 
 
@@ -417,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691892.jpg" />
+  <img src="Z:/picture/008/save_picture_691892.jpg" />
 </div>
 
 
@@ -444,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690761.jpg" />
+  <img src="Z:/picture/008/save_picture_690761.jpg" />
 </div>
 
 
@@ -470,7 +575,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689063.jpg" />
+  <img src="Z:/picture/008/save_picture_689063.jpg" />
 </div>
 
 
@@ -496,7 +601,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687149.jpg" />
+  <img src="Z:/picture/008/save_picture_687149.jpg" />
 </div>
 
 
@@ -523,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685922.jpg" />
+  <img src="Z:/picture/008/save_picture_685922.jpg" />
 </div>
 
 
@@ -551,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680081.jpg" />
+  <img src="Z:/picture/008/save_picture_680081.jpg" />
 </div>
 
 
@@ -579,7 +684,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678288.jpg" />
+  <img src="Z:/picture/008/save_picture_678288.jpg" />
 </div>
 
 
@@ -592,111 +697,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49F11DE79C9B3BFF67B576C97F57C1F242178C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546089   (676777) от 17.05.2015
-
-Книжная серия | Библиотека пародии и юмора (6 книг) [1993-2004] [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека пародии и юмора - приколы над известными литературными героями, пародии, шутки и анекдоты.Жанр: ЮморФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71744D43AD2C8E53927D3247342017851BB3B865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761436   (671571) от 01.07.2016
-
-Книжная серия | Спецназ [689 книг] (2003-2013) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы серии"Спецназ " - бывшие кадровые офицеры, имевшие опыт работы в спецподразделениях российской армии и принимавшие участие в боевых операциях в зонах военных конфликтов, пропагандирующие патриотизм и уважение к Российской армии, поднимающие престиж профессии военного.Жанр: Боевик, детектив, приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0727FFE0D07BAD86CC7AF7F9C9466E9A1A956985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339156   (668215) от 19.05.2011
-
-Библиотека "Океан Жизни и Берега Cмерти мира Фэнтези" в 452 томах [fb2+txt]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_668215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ФэнтезиФормат: fb2+txt
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339020   (668135) от 19.05.2011
-
-Библиотека "Тёмное фэнтези" (Dark Fantasy) 152 тома [FB2, txt]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_668135.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник книг фэнтези.
-Традиционное Dark Fantasy строится по классическим фэнтезийным канонам, но, в отличие от классического, где основу сюжета составляет борьба Добра со Злом, в тёмном фэнтези Зло уже победило, и его проявления воспринимаются как дело обычное. События тёмного фэнтези происходят в суровом, жестоком и мрачном мире, где положительные герои ведут борьбу только за то, чтобы он окончательно не стал адом. Основной идеей жанра часто можно назвать противостояние «малого» и «большого» Зла. Авторы книг в этом жанре буквально шокируют читателя выписанной с особенным старанием атмосферой гнетущего мрака и полной безнадёжности.Формат: FB2, txt
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

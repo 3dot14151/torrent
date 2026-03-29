@@ -1,3 +1,32 @@
+###  Публикация: 946384   (426481) от 13.10.2015
+
+Jean-Michel Jarre - Electronica 1: The Time Machine (2015) [MP3|320 кб/с]<Ambient, New age, Electronic>
+
+>>След.
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_426481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean-Michel Jarre & Boys Noize – The Time Machine
+02. Jean-Michel Jarre & M83 – Glory
+03. Jean-Michel Jarre & Air – Close Your Eyes
+04. Jean-Michel Jarre & Vince Clarke – Automatic, Pt. 1(   Читать дальше...   )Жанр: Ambient, New age, ElectronicПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF51425921B8C9EADDC285A483D5E4B00A369CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946683   (425156) от 14.10.2015
 
 Hans Christian - Nanda Devi (2015) [MP3|320 кб/с]<New Age, Meditation>
@@ -6,7 +35,7 @@ Hans Christian - Nanda Devi (2015) [MP3|320 кб/с]<New Age, Meditation>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425156.jpg" />
+  <img src="Z:/picture/008/save_picture_425156.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Anima - Temple of the Heart (2010) [MP3|320 Kbps] <New Age, Native American Flut
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424051.jpg" />
+  <img src="Z:/picture/008/save_picture_424051.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Deosil - A Drop of Eternity (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421906.jpg" />
+  <img src="Z:/picture/008/save_picture_421906.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Bernward Koch - Remembering (2015) [MP3|320 кб/с]<New Age, Piano>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417967.jpg" />
+  <img src="Z:/picture/008/save_picture_417967.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Deuter - Sрасе (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417208.jpg" />
+  <img src="Z:/picture/008/save_picture_417208.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Prabodhi - 2 albums (1989, 1991) [MP3|320 кб/с]<New age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414738.jpg" />
+  <img src="Z:/picture/008/save_picture_414738.jpg" />
 </div>
 
 
@@ -185,7 +214,7 @@ Gomer Edwin Evans - The Very Best Of Angel Dreams (2015) [MP3|320 кб/с]<New A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411399.jpg" />
+  <img src="Z:/picture/008/save_picture_411399.jpg" />
 </div>
 
 
@@ -214,7 +243,7 @@ Liquid Bloom - 2 альбома (2007-2015) [MP3|320 кб/с]<Shamanic, Trance, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411106.jpg" />
+  <img src="Z:/picture/008/save_picture_411106.jpg" />
 </div>
 
 
@@ -243,7 +272,7 @@ VA - Spa Relaxation Ambient Music Vol 1 (2016) [MP3|320 Kbps] <Downtempo, Balear
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409753.jpg" />
+  <img src="Z:/picture/008/save_picture_409753.jpg" />
 </div>
 
 
@@ -272,7 +301,7 @@ Magna Canta - Deep Spirits (2000) [MP3|320 Kbps] <New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409750.jpg" />
+  <img src="Z:/picture/008/save_picture_409750.jpg" />
 </div>
 
 
@@ -301,7 +330,7 @@ Enigma - The Screen Behind The Mirror (2000) [OGG Vorbis|485 Kbps] <New Age, Amb
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407453.jpg" />
+  <img src="Z:/picture/008/save_picture_407453.jpg" />
 </div>
 
 
@@ -330,7 +359,7 @@ Trace Bundy - 4 albums (2000-2012) [MP3|320 kbps]<New age, Instrumental, Folk, A
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404633.jpg" />
+  <img src="Z:/picture/008/save_picture_404633.jpg" />
 </div>
 
 
@@ -365,7 +394,7 @@ Daridan - Listen To Beautiful Music II (2012) [MP3|320 кб/с]<New age, Instrum
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402849.jpg" />
+  <img src="Z:/picture/008/save_picture_402849.jpg" />
 </div>
 
 
@@ -400,7 +429,7 @@ Bernward Koch - Filled With Light (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400578.jpg" />
+  <img src="Z:/picture/008/save_picture_400578.jpg" />
 </div>
 
 
@@ -429,7 +458,7 @@ Klaus Schonning - Kaleidoscope (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400521.jpg" />
+  <img src="Z:/picture/008/save_picture_400521.jpg" />
 </div>
 
 
@@ -458,7 +487,7 @@ Medwyn Goodall - Stepping Stones (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400505.jpg" />
+  <img src="Z:/picture/008/save_picture_400505.jpg" />
 </div>
 
 
@@ -487,7 +516,7 @@ Jean-Michel Jarre - Original Album Classics 5CD (2017) Remastered [MP3|320 Kbps]
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400314.jpg" />
+  <img src="Z:/picture/008/save_picture_400314.jpg" />
 </div>
 
 
@@ -516,7 +545,7 @@ Johannes Linstead - Azul (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399481.jpg" />
+  <img src="Z:/picture/008/save_picture_399481.jpg" />
 </div>
 
 
@@ -545,7 +574,7 @@ Oystein Sevag - 2 albums (2010, 2012) [MP3|320 кб/с]<New age, Jazz>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399015.jpg" />
+  <img src="Z:/picture/008/save_picture_399015.jpg" />
 </div>
 
 
@@ -580,7 +609,7 @@ The Daydream - 10 albums (2001-2012) [MP3|320 кб/с]<New Age, Neoclassical, In
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397662.jpg" />
+  <img src="Z:/picture/008/save_picture_397662.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Delerium - Music Box Opera (2012) [MP3|320 кб/с]<New Age, Ambient, Chillout, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396850.jpg" />
+  <img src="Z:/picture/008/save_picture_396850.jpg" />
 </div>
 
 
@@ -650,7 +679,7 @@ Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_391971.jpg" />
+  <img src="Z:/picture/005/save_picture_391971.jpg" />
 </div>
 
 
@@ -684,7 +713,7 @@ Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391239.jpg" />
+  <img src="Z:/picture/008/save_picture_391239.jpg" />
 </div>
 
 
@@ -713,7 +742,7 @@ Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389699.jpg" />
+  <img src="Z:/picture/008/save_picture_389699.jpg" />
 </div>
 
 
@@ -742,7 +771,7 @@ Medwyn Goodall - The Goddess of Machu Picchu (2019) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387183.jpg" />
+  <img src="Z:/picture/008/save_picture_387183.jpg" />
 </div>
 
 
@@ -756,34 +785,6 @@ Medwyn Goodall - The Goddess of Machu Picchu (2019) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC5BB6C5C4806541BACE5A27AA860E72CC491D92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326244   (386993) от 19.09.2019
-
-Wychazel - Ashram (2019) [MP3|320 Kbps] <New Age, Mantra>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashram (15:04)
-02. Realms of Rebirth (11:22)
-03. Samsara (20:34)Жанр: New Age, MantraПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91F0CEF73A117E2EE5EA58D4747EBE535358D0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

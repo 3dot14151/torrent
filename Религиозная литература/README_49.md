@@ -1,3 +1,84 @@
+###  Публикация: 1141430   (650434) от 10.06.2017
+
+С. Милов (сост.) | Призывай непрестанно Бога. По творениям преподобного Исаака Сирина (2014) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данная работа представляет собой сборник изречений преподобного Исаака Сирина о молитве, взятых из его подвижнических слов. В своих творениях святой Исаак ясно показывает, что суть подвига и опора жизни христианина - молитва - устремление души к Богу, а в идеале - Богообщение. Молитва зажигает любовь и достигает в совершенном христианине безмерности, исполняя его (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A8B8AB6155529E1B0C90675195D8DB5A602C23A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141428   (650430) от 10.06.2017
+
+Скиния (изд.) | Святой Пантелеимон великомученик и целитель (1996) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Святой Пантелеимон великомученик и целитель. Его жизнь, мученическая кончина и чудотворения, бывшие после его кончины. Изложено по руководству Четьих-Миней Святителя Димитрия Ростовского.
+
+Святой Пантелеимон почитается как покровитель воинов и одновременно как всемилостивый целитель.
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B347A0FC1F6B048FEDA231A848082FEA96E6CCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141502   (650429) от 10.06.2017
+
+Галина Калинина (сост.) | Загробная жизнь и бессмертие души. Свидетельства и факты (2014) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_650429.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Загробная жизнь и бессмертие души" - книга, в которой рассматриваются различные аспекты смерти и посмертного бытия человеческой души. С позиций Православия в книге объясняется вера в бессмертие души, рассказывается об обрядах, которыми сопровождает Церковь смерть человека, о том, как помочь своим умершим близким, чтобы облегчить их посмертное существование, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEAA88EB0A67A2C697D0B7C2480B41C87B3B9639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227209   (650404) от 24.05.2018
 
 Издательство Францисканцев (изд.) | Общее наставление к Римскому Миссалу (2008) [PDF, DJVU]
@@ -6,7 +87,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650404.jpg" />
+  <img src="Z:/picture/008/save_picture_650404.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650397.jpg" />
+  <img src="Z:/picture/008/save_picture_650397.jpg" />
 </div>
 
 
@@ -60,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650282.jpg" />
+  <img src="Z:/picture/008/save_picture_650282.jpg" />
 </div>
 
 
@@ -88,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649822.jpg" />
+  <img src="Z:/picture/008/save_picture_649822.jpg" />
 </div>
 
 
@@ -114,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649371.jpg" />
+  <img src="Z:/picture/008/save_picture_649371.jpg" />
 </div>
 
 
@@ -140,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649196.jpg" />
+  <img src="Z:/picture/008/save_picture_649196.jpg" />
 </div>
 
 
@@ -168,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648019.jpg" />
+  <img src="Z:/picture/008/save_picture_648019.jpg" />
 </div>
 
 
@@ -194,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647773.jpg" />
+  <img src="Z:/picture/008/save_picture_647773.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646925.jpg" />
+  <img src="Z:/picture/008/save_picture_646925.jpg" />
 </div>
 
 
@@ -249,7 +330,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646838.jpg" />
+  <img src="Z:/picture/008/save_picture_646838.jpg" />
 </div>
 
 
@@ -275,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646726.jpg" />
+  <img src="Z:/picture/008/save_picture_646726.jpg" />
 </div>
 
 
@@ -303,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645156.jpg" />
+  <img src="Z:/picture/008/save_picture_645156.jpg" />
 </div>
 
 
@@ -329,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644723.jpg" />
+  <img src="Z:/picture/008/save_picture_644723.jpg" />
 </div>
 
 
@@ -357,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644718.jpg" />
+  <img src="Z:/picture/008/save_picture_644718.jpg" />
 </div>
 
 
@@ -385,7 +466,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644382.jpg" />
+  <img src="Z:/picture/008/save_picture_644382.jpg" />
 </div>
 
 
@@ -411,7 +492,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644105.jpg" />
+  <img src="Z:/picture/008/save_picture_644105.jpg" />
 </div>
 
 
@@ -437,7 +518,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644029.jpg" />
+  <img src="Z:/picture/008/save_picture_644029.jpg" />
 </div>
 
 
@@ -463,7 +544,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643904.jpg" />
+  <img src="Z:/picture/008/save_picture_643904.jpg" />
 </div>
 
 
@@ -489,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643812.jpg" />
+  <img src="Z:/picture/008/save_picture_643812.jpg" />
 </div>
 
 
@@ -515,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643499.jpg" />
+  <img src="Z:/picture/008/save_picture_643499.jpg" />
 </div>
 
 
@@ -543,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643426.jpg" />
+  <img src="Z:/picture/008/save_picture_643426.jpg" />
 </div>
 
 
@@ -573,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643324.jpg" />
+  <img src="Z:/picture/008/save_picture_643324.jpg" />
 </div>
 
 
@@ -601,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643307.jpg" />
+  <img src="Z:/picture/008/save_picture_643307.jpg" />
 </div>
 
 
@@ -612,91 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D3D791F33AFDE78F1ED420A230C3A98253EDE0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518538   (643210) от 03.07.2012
-
-Никодим Святогорец, Макарий Нотарас | Добротолюбие (5 томов) [2004] [DOC]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник аскетических творений отцов IV-XV вв., составленный святителем Макарием, митрополитом Коринфским и отредактированный преподобным Никодимом Святогорцем, впервые был издан на греческом языке в 1782 г.
-Греческое слово "Добротолюбие" (Фιλοκαλια) означает любовь к прекрасному, возвышенному, доброму, любовь к красоте. Красота имеется ввиду духовная, которой приобщается христианин в результате следования наставлениям отцов-подвижников, собранным в этом сборнике. Полностью название сборника звучало как "Добротолюбие священных трезвомудрецов, собранное из святых и богоносных отцов наших, в котором, через деятельную и созерцательную нравственную философию, ум очищается, просвещается и совершенствуется".
-На славянский язык греческое "Добротолюбие" было переведено преподобным Паисием Величковским, а позднее большую работу по переводу сборника на разговорный русский язык осуществил святитель Феофан Затворник (в миру Георгий Васильевич Говоров).
-Настоящее (   Читать дальше...   )Перевод: Паисий ВеличковскийФормат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B46B42F420F49473FBAB2790132CDF88A11301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227789   (643148) от 28.05.2018
-
-Красная Горка (изд.) | Цветник духовный. Назидательные мысли и добрые советы, выбранные из творений мужей мудрых и святых (2014) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемый вниманию боголюбивых читателей «Цветник духовный» есть собрание назидательных мыслей и добрых советов, извлечённых из трудов весьма многих учёных мужей и писателей, преимущественно из творений святых Отцев и Учителей Церкви.
-
-Между авторами выписок в Цветнике читатель всего чаще встретит имена духовных богомудрых мужей: свт. Иоанна Златоустого, свт. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BD65E2EA13BB1345E47559FB220329B4E399A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292126   (643078) от 31.03.2019
-
-Иеромонах Симон (Безкровный) (ред.-сост.) | Послушники Царства Небесного [Рукопись, найденная на чердаке] (2018) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643078.jpg" />
-</div>
-
-
-###  Подробнее
-
-История настоящего сборника весьма загадочна. Почивший на Афоне в 2014 году русский иеромонах И. во время посещения одной пустыни на Святой Горе принес оттуда зачитанную общую тетрадь, в которой и были записаны эти повествования.
-
-Основой рассказов являются реальные события из духовной жизни «алчущих и жаждущих правды» (Мф. 5:6). В них собрано духовное богатство (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167180181BCA66E29C69FF63834EF8E5ED2DB26B
 ```
 
 https://mybot314.ru/tekegram_catalog/

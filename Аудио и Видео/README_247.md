@@ -6,7 +6,7 @@
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222465.jpg" />
+  <img src="Z:/picture/005/save_picture_222465.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222440.jpg" />
+  <img src="Z:/picture/005/save_picture_222440.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Halo 4: Идущий к рассвету / Halo 4: Forward Unto Dawn (2012) BDRi
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222364.jpg" />
+  <img src="Z:/picture/005/save_picture_222364.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222099.jpg" />
+  <img src="Z:/picture/005/save_picture_222099.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221758.jpg" />
+  <img src="Z:/picture/005/save_picture_221758.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221257.jpg" />
+  <img src="Z:/picture/005/save_picture_221257.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Roxette - Joyride (30th Anniversary Edition) (2021) [AAC|~351 Kbps] <Pop, Rock>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221165.jpg" />
+  <img src="Z:/picture/005/save_picture_221165.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221030.jpg" />
+  <img src="Z:/picture/005/save_picture_221030.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Cassetter - Entropy (2020) [AAC|~357 Kbps] <Cyberpunk, Synthwave>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220961.jpg" />
+  <img src="Z:/picture/005/save_picture_220961.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Cassetter - Entropy (Instrumentals) (2020) [AAC|~359 Kbps] <Cyberpunk, Synthwave
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220910.jpg" />
+  <img src="Z:/picture/005/save_picture_220910.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ VA - One Jazzy Night, vol. 2: Best of Smooth Jazz Music (2019) [AAC|~326 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220852.jpg" />
+  <img src="Z:/picture/005/save_picture_220852.jpg" />
 </div>
 
 
@@ -305,7 +305,7 @@ VA - One Jazzy Night, vol. 1: Best of Smooth Jazz Music (2018) [AAC|~319 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220819.jpg" />
+  <img src="Z:/picture/005/save_picture_220819.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ VA - One Jazzy Night, vol. 3: Best of Smooth Jazz Music (2020) [AAC|~322 Kbps] <
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_220788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_220788.jpg" />
 </div>
 
 
@@ -363,7 +363,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220732.jpg" />
+  <img src="Z:/picture/005/save_picture_220732.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220490.jpg" />
+  <img src="Z:/picture/005/save_picture_220490.jpg" />
 </div>
 
 
@@ -418,7 +418,7 @@ Grand Funk - Phoenix (1972) 1973, Capitol Records, Japan [ALAC|2.0 24/48|tracks]
 >>Музыка Lossless (ALAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220398.jpg" />
+  <img src="Z:/picture/005/save_picture_220398.jpg" />
 </div>
 
 
@@ -447,7 +447,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220390.jpg" />
+  <img src="Z:/picture/005/save_picture_220390.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220368.jpg" />
+  <img src="Z:/picture/005/save_picture_220368.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220333.jpg" />
+  <img src="Z:/picture/005/save_picture_220333.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ VA - Cyberpunk 2077 - Original Score EP (2020) [AAC|~331 Kbps] <Soundtrack>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220073.jpg" />
+  <img src="Z:/picture/005/save_picture_220073.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219341.jpg" />
+  <img src="Z:/picture/005/save_picture_219341.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Synth Replicants - Fairy Tales (2020) [AAC|~325 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219310.jpg" />
+  <img src="Z:/picture/005/save_picture_219310.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219301.jpg" />
+  <img src="Z:/picture/005/save_picture_219301.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Synth Replicants - Continents (2019) [AAC|~322 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219290.jpg" />
+  <img src="Z:/picture/005/save_picture_219290.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Synth Replicants - Concert in Cyberspace (2019) [AAC|~305 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219241.jpg" />
+  <img src="Z:/picture/005/save_picture_219241.jpg" />
 </div>
 
 
@@ -697,7 +697,7 @@ Synth Replicants - Goodbye to the Moon (2019) [AAC|~328 Kbps] <Electronic>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219225.jpg" />
+  <img src="Z:/picture/005/save_picture_219225.jpg" />
 </div>
 
 

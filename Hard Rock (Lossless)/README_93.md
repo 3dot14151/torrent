@@ -1,3 +1,61 @@
+###  Публикация: 1708122   (113054) от 20.03.2024
+
+The Crows - Ready When You Are (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_113054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Fall Down (3:53)
+02. I Should've Known (2:51)
+03. Scorcher (3:30)
+04. Forever (4:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08D8D4FDC185D0884FA32DF4472E9B2928B33C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710489   (112628) от 27.03.2024
+
+Brother Cane - 3 Albums (1993 - 1998) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brother Cane - американская рок-группа, выпустившая три альбома в 1990-х годах. Основанная в Алабаме в 1990 году певцом и гитаристом Damon Johnson и басистом Glenn Maxey, состав дополнили гитарист Roman Glick и барабанщик Scott Collier. Одноименный дебютный альбом группы вышел в 1993 году и после некоторых изменений в составе за этим последовали Seeds в 1995 году (   Читать дальше...   )Список альбомов:
+1993 Brother Cane
+1995 Seeds
+1998 WishpoolЖанр: Hard RockПродолжительность: 02:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5983BAD6509C9DC433DF8640191B4C7FE89672F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1823043   (112386) от 09.10.2025
 
 Stoner Kings - Hive Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner Hard Rock>
@@ -6,7 +64,7 @@ Stoner Kings - Hive Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112386.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112386.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Kelly Holbert - Early Dog (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112093.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Life Hypothesis - Overdue to Evolve (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112069.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Ten Throne - Desolate Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112067.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Toby Vetter - Illusions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112066.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112066.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Circle Of Friends - Cherokee Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111875.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Red Dragon Cartel - Patina (2018) Japanese Edition [FLAC|Lossless|image + .cue] 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111786.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111786.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Saracen - Heroes, Saints & Fools (1981) Reissue, 1992, TRC Records [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111782.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Ainigma - Diluvium (1973) 2006 Reissue, Garden Of Delights [FLAC|Lossless|image 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111757.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111757.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Rush - A Farewell To Kings (1977) 40th Anniversary Deluxe Edition, 2017, Island 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111749.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111640.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Secta - Panzer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111540.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ The Dead Daisies - Resurrected, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111474.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Whitecross - Fear No Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111168.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Junkyard Drive - Look At Me Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111155.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|image + .cue] <Melodi
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111123.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ L.a. Guns - Black Diamonds (2024) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111084.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Lyndsy Says - Lindsy Says (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111058.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Billy Morrison - The Morrison Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111054.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Strom - En Orkan Pa Var Sida (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110969.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ UFO - Covenant + Sharks (1995-2002) 3xCD, Reissue, Remastered, 2024, HNE [FLAC|L
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110931.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110931.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Lee Aaron - Tattoo Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110860.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Athena's Revenge - Wisdom & Warfare (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110581.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Sleazy Town - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110486.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Sleazy Town - Unfinished Business (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1492F951374A7D69E403F94342B5E784D1E7537A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719880   (110484) от 01.05.2024
-
-Eve To Adam - Locked and Reloaded (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Post Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Locked and Loaded (3:44)
-02. Immortal (3:25)
-03. Bender (3:22)
-04. Straightjacket Supermodel (3:38)(   Читать дальше...   )Жанр: Hard Rock, Post GrungeПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC26F735D6D2AADA3C8B0967FFFEE8AFE6B0F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720648   (110269) от 04.05.2024
-
-Ozzy Osbourne - Live at Budokan (2002) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Know
-02. That I Never Had
-03. Believer
-04. Junkie(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A7188B7B2594E5EAFB3626C40C60F21132F078
 ```
 
 https://mybot314.ru/tekegram_catalog/

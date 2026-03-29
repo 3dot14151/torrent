@@ -1,3 +1,82 @@
+###  Публикация: 906583   (625421) от 18.06.2015
+
+Сто тысяч долларов на солнце / Cent mille dollars au soleil (1964) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой городок в Северной Африке. В компанию по грузоперевозкам, где работает Рокко, прибывает новый трейлер с таинственным грузом, который должен уйти в Нигерию. Для этой миссии хозяин фирмы «Папаша Кастальяно» по прозвищу «Свекла» нанимает человека с фальшивым паспортом и подозрительной репутацией — Джона Штайнера.Производство: Франция, ИталияЖанр: Боевик, комедия, приключенияРежиссер: Анри ВернёйАктеры: Жан-Поль Бельмондо, Лино Вентура, Реджинальд Кернан, Бернар Блие, Андреа Паризи, Жер Фроэб, Анн-Мари Коффине, Дуду Бабе, Пьер Мира, Генри Ламбер, Кристиан БрокарПеревод: Профессиональный многоголосыйПродолжительность: 02:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057BE640763FCFF14FC884D56161D5C1A0366D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144280   (625258) от 23.06.2017
+
+Мстители / The Revengers (1972) DVDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_625258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран гражданской войны, а ныне фермер Джон Бенедикт, вернувшись с охоты домой, обнаруживает, что его жену и детей убила банда безжалостных негодяев. Бенедикт собирает отряд из шести осуждённых и устремляется в погоню, желая отмщения. Но вскоре он понимает, что его новые «друзья» непредсказуемы и опасны не менее чем те, кого они ищут. Выполнят ли они задание, или (   Читать дальше...   )Производство: США, Мексика / Cinema Center Films, Estudios Churubusco Azteca S.A.Жанр: ВестернРежиссер: Дэниэл МаннАктеры: Уильям Холден, Эрнест Боргнайн, Вуди Строуд, Роже Анен, Райнхард Колльдехофф, Хорхе Луке, Хорхе Мартинес де Ойос, Сьюзен Хэйуорд, Артур Ханникат, Уоррен Вэндерс, Ларри ПеннеллПеревод: Авторский (С. Визгунов)Субтитры: ОтсутствуютПродолжительность: 01:43:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC7292138786AE839B8D469EB7DAE164E8FFE47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521254   (624524) от 12.07.2012
+
+Вздымающийся ад / The Towering Inferno (1974) HDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_624524.jpg" />
+</div>
+
+
+###  Подробнее
+
+В роковую ночь группа несчастных гостей остается отрезанной страшным пожаром на верхних этажах громадного небоскреба. Архитектор здания, ставший вынужденным узником своего творения, пытается помочь шефу пожарных спасти людей.
+Фильм снят на основе документальных (   Читать дальше...   )Производство: СШАЖанр: Триллер, Драма, КатастрофаРежиссер: Джон Гиллермин, Ирвин АлленАктеры: Стив МакКуин, Пол Ньюман, Уильям Холден, Фэй Данауэй, Фред Астер, Сьюзэн Блэйкли, Ричард Чемберлен, Дженнифер Джонс, О. Дж. Симпсон, Роберт Вон, Роберт Вагнер, Сьюзэн ФлэннериПеревод: Многоголосый закадровыйПродолжительность: 02:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3735B85FE2100840A844455D7850024D2C4BE2E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033578   (624478) от 18.07.2016
 
 Увольнение в город / On the Town (1949) BDRip [H.264]
@@ -6,7 +85,7 @@
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624478.jpg" />
+  <img src="Z:/picture/008/save_picture_624478.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624291.jpg" />
+  <img src="Z:/picture/008/save_picture_624291.jpg" />
 </div>
 
 
@@ -58,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623838.jpg" />
+  <img src="Z:/picture/008/save_picture_623838.jpg" />
 </div>
 
 
@@ -84,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623800.jpg" />
+  <img src="Z:/picture/008/save_picture_623800.jpg" />
 </div>
 
 
@@ -110,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623481.jpg" />
+  <img src="Z:/picture/008/save_picture_623481.jpg" />
 </div>
 
 
@@ -137,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623415.jpg" />
+  <img src="Z:/picture/008/save_picture_623415.jpg" />
 </div>
 
 
@@ -163,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623341.jpg" />
+  <img src="Z:/picture/008/save_picture_623341.jpg" />
 </div>
 
 
@@ -191,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623337.jpg" />
+  <img src="Z:/picture/008/save_picture_623337.jpg" />
 </div>
 
 
@@ -217,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623299.jpg" />
+  <img src="Z:/picture/008/save_picture_623299.jpg" />
 </div>
 
 
@@ -243,7 +322,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623283.jpg" />
+  <img src="Z:/picture/008/save_picture_623283.jpg" />
 </div>
 
 
@@ -270,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622652.jpg" />
+  <img src="Z:/picture/008/save_picture_622652.jpg" />
 </div>
 
 
@@ -296,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621787.jpg" />
+  <img src="Z:/picture/008/save_picture_621787.jpg" />
 </div>
 
 
@@ -322,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621785.jpg" />
+  <img src="Z:/picture/008/save_picture_621785.jpg" />
 </div>
 
 
@@ -349,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621741.jpg" />
+  <img src="Z:/picture/008/save_picture_621741.jpg" />
 </div>
 
 
@@ -375,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621662.jpg" />
+  <img src="Z:/picture/008/save_picture_621662.jpg" />
 </div>
 
 
@@ -402,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621650.jpg" />
+  <img src="Z:/picture/008/save_picture_621650.jpg" />
 </div>
 
 
@@ -429,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621607.jpg" />
+  <img src="Z:/picture/008/save_picture_621607.jpg" />
 </div>
 
 
@@ -456,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621588.jpg" />
+  <img src="Z:/picture/008/save_picture_621588.jpg" />
 </div>
 
 
@@ -483,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621567.jpg" />
+  <img src="Z:/picture/008/save_picture_621567.jpg" />
 </div>
 
 
@@ -509,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621212.jpg" />
+  <img src="Z:/picture/008/save_picture_621212.jpg" />
 </div>
 
 
@@ -538,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620430.jpg" />
+  <img src="Z:/picture/008/save_picture_620430.jpg" />
 </div>
 
 
@@ -564,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619498.jpg" />
+  <img src="Z:/picture/008/save_picture_619498.jpg" />
 </div>
 
 
@@ -590,7 +669,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618991.jpg" />
+  <img src="Z:/picture/008/save_picture_618991.jpg" />
 </div>
 
 
@@ -601,85 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E39B64BCB8DF50996EC109D4216C83766495EAE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034895   (618990) от 21.07.2016
-
-Нежный капкан / The Tender Trap (1955) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарли Ридер — успешный театральный агент. Не менее успешен он и в отношениях с девушками. Его многочисленные подружки приходят и уходят, готовят и убирают для него. Однажды на прослушивании он встречает актрису и певицу Джули Гиллис — девушку, которая живет строго по плану. Согласно плану, она должна выйти замуж, бросить сцену и воспитывать детей уже к 22 годам. (   Читать дальше...   )Производство: США / Metro-Goldwyn-Mayer (MGM)Жанр: Мьюзикл, Мелодрама, КомедияРежиссер: Чарльз УолтерсАктеры: Фрэнк Синатра, Дебби Рейнолдс, Дэвид Уэйн, Селест Холм, Джарма Льюис, Лола Олбрайт, Кэролин Джонс, Ховард Ст. Джон, Джои Фэй, Том ХелморПеревод: Профессиональный (одноголосый закадровый), BBC Saint-PetersburgЯзык субтитров: Русский, английскийПродолжительность: 01:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFAFC53D07850D690807319C848CC3E18F24A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 220705   (617942) от 22.07.2010
-
-Нефтедобытчицы / Les petroleuses (1971) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617942.jpg" />
-</div>
-
-
-###  Подробнее
-
-События этого необычного комедийного вестерна разворачиваются в 1880 году во французском поселении в американском штате Нью-Мексико. Белокурая Луиза занимает особый статус в штате, она командует женской бандой, в которой, кроме нее еще четыре ее сестры. На этот раз им приглянулся земельный участок с неистощимыми запасами нефти. Но у этой территории уже имелись хозяева - жгучая брюнетка крепко держащаяся в седле и к тому же превосходно владеющая кольтом фермерша Мари, а также ее четыре брата. Противоборство двух группировок привело к большому переполоху в маленьком городке, но, как и положено, в хорошем вестерне, все закончилось счастливым концом.Жанр: Вестерн, КомедияРежиссер: Кристиан-Жак / Christian-JaqueАктеры: Бриджитт Бардо, Клаудия Кардинале, Ги Казариль, Майкл Джей Поллард, Пэтти Шепард, Мишлин ПрельПеревод: Профессиональный (двухголосый закадровый) "Светла"+ ОригиналПродолжительность: 01:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EE9C336B5F7C55D3C4B7326D020750F5AC50729
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907269   (617913) от 22.06.2015
-
-Тайна Санта-Виттории / The Secret of Santa Vittoria (1969) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Санта-Виттория — маленький итальянский городок, жители которого пытаются радоваться жизни вопреки всем невзгодам. Недотепа Итало Бомболини неожиданно становится мэром, но его прогоняет из дома собственная жена. Итальянский фашизм пал, но вот-вот в город войдут немецкие оккупанты…
-Каждый новый день ставит новые задачи и новые трудности перед героями, но они с мужеством (   Читать дальше...   )Производство: США / Stanley Kramer ProductionsЖанр: Драма, Комедия, ВоенныйРежиссер: Стэнли КрамерАктеры: Энтони Куинн, Анна Маньяни, Вирна Лизи, Харди Крюгер, Серджо Франчи, Ренато Рашель, Джанкарло Джаннини, Патриция Вальтурри, Эдуардо Чианнелли, Леопольдо ТриестеПеревод: Многоголосый закадровый, 5-й канал С.-ПетербургСубтитры: ОтсутствуютПродолжительность: 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B61454891658C505F892459051A3A73D6E11EC02
 ```
 
 https://mybot314.ru/tekegram_catalog/

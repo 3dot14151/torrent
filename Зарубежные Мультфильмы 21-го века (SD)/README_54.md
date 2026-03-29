@@ -1,3 +1,108 @@
+###  Публикация: 1696492   (119555) от 03.02.2024
+
+Орион и Тьма / Orion and the Dark (2024) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик Орион панически боится высоты, домашних животных, но больше всего — темноты. Однажды Темнота сама приходит к Ориону и отправляется с ним в ночное путешествие, чтобы доказать свою безобидность.Производство: Франция, США, DreamWorks Animation, Mikros AnimationЖанр: мультфильм, фэнтези, комедия, детектив, приключения, семейныйРежиссер: Шон ЧэрмэтцАктеры: Пол Уолтер Хаузер, Натасия Деметриу, Карла Гуджино, Джейкоб Тремблей, Анджела Бассетт, Колин Хэнкс, Вернер Херцог, Айк Баринхолц, Нат Факсон, Апарна НанчерлаПеревод: Дублированный (Videofilm Ltd. Netflix)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) - отдельноПродолжительность: 01:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29BA78D4E747D1DAA3AE1B15D63296BE1EE3B98A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698842   (118190) от 11.02.2024
+
+Ученик тигра / The Tiger's Apprentice (2024) WEB-DL [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118190.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре сюжета — обычный мальчик Том, которого против его воли втягивают в опасный мир, когда его эксцентричная бабушка, с которой он живет в китайском квартале Сан-Франциско, оказывается хранительницей яйца феникса. После того как бабушка погибает в битве и уносится в повозке с призраками, Том вынужден учиться у маловероятного наставника — тигра мистера Ху — чтобы (   Читать дальше...   )Производство: США, Paramount Animation, Jane Startz Productions, The Monk StudioЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Раман Хуэй, Чон Ён-док, Пол УотлингАктеры: Генри Голдинг, Брэндон Су Ху, Люси Лью, Сандра О, Мишель Йео, Бовэнь Ян, Леа Льюис, Кхенг Хуа Тан, Шерри Кола, Дебора С. КрэйгПеревод: Многоголосый профессиональный (NewStudio)Субтитры: русские (full (AI)), английские (SDH)Продолжительность: 01:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00972867166F114CFE9F8CD12B778A26D6DA3846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699011   (118179) от 11.02.2024
+
+Вака – заколдованный воин / Mini Shijie Zhi Juexing / Mini World: Powers Awaken (2022) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вака — сын героя. После битвы со злобными демонами Пустоты его отец запечатал их в Кристалл Истока. Прошло много лет, кристалл был утерян, а отец Ваки покинул этот мир. Но зло не дремлет, демоны вновь угрожают миру, и теперь только Вака со своими друзьями сможет их остановить. Они путешествуют по запретным землям, подземному миру и параллельной вселенной, сражаясь (   Читать дальше...   )Производство: Китай / Shenzhen Starup Cultural CreationЖанр: мультфильм, фэнтези, боевик, приключенияРежиссер: Син СюйхуэйАктеры: Меган Спенсер, Дилан Маккиннон, Том Кутзее, Джона Доллери, Софи Кирш, Тара Макферсон, Стефан ван дер ВегтеПеревод: Дублированный (Leff Sound)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A355148DB1B5EE5209B632B9B2E1BA89B54C9DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719612   (110539) от 30.04.2024
+
+Пушистые спасатели: Новая команда / Combat Wombat: Back 2 Back (2023) WEB-DLRip [звук с TS]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_110539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мэгги стала настоящим супергероем. Но с тех пор, когда она впервые надела маску, преступность в городе практически исчезла. Теперь ей то и дело приходится раздавать автографы, считать налоги и участвовать в разных шоу.
+Такая жизнь слишком скучна для супергероя, но однажды злой гений решил захватить город, в котором все слишком уж расслабились. Теперь Мэгги и ее новая (   Читать дальше...   )Производство: Австралия / Like A Photon Creative, Screen AustraliaЖанр: мультфильмРежиссер: Рикард Куссо, Таня ВенсанАктеры: Дебора Мэйлман, Дэвид Уэнэм, Эд Оксенбульд, Марк Коулз Смит, Элизабет Каллен, Дэн Брумм, Грант ДеньерПеревод: Дублированный (Велес) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E0982BD3E1FDFA31963CAA6CFE32142FCFE839
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722110   (109833) от 10.05.2024
 
 Марс Экспресс / Mars Express (2023) WEB-DLRip [H.264] [звук с TS]
@@ -6,7 +111,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_109833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_109833.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_102633.jpg" />
+  <img src="Z:/picture/005/save_picture_102633.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102445.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102445.jpg" />
 </div>
 
 
@@ -85,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102036.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102036.jpg" />
 </div>
 
 
@@ -111,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102029.jpg" />
 </div>
 
 
@@ -137,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_91258.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_91258.jpg" />
 </div>
 
 
@@ -163,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_88370.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_88370.jpg" />
 </div>
 
 
@@ -189,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87874.jpg" />
 </div>
 
 
@@ -215,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_87696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_87696.jpg" />
 </div>
 
 
@@ -241,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84585.jpg" />
 </div>
 
 
@@ -268,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_84567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84567.jpg" />
 </div>
 
 
@@ -294,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83478.jpg" />
 </div>
 
 
@@ -320,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82138.jpg" />
 </div>
 
 
@@ -346,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81808.jpg" />
 </div>
 
 
@@ -372,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79595.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79595.jpg" />
 </div>
 
 
@@ -398,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79583.jpg" />
 </div>
 
 
@@ -424,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78450.jpg" />
 </div>
 
 
@@ -450,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77933.jpg" />
 </div>
 
 
@@ -478,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77801.jpg" />
 </div>
 
 
@@ -504,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77442.jpg" />
 </div>
 
 
@@ -530,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_72924.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_72924.jpg" />
 </div>
 
 
@@ -557,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63736.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63736.jpg" />
 </div>
 
 
@@ -568,110 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78D8129D119D771407B97ACCC922349B984398EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711614   (61190) от 31.03.2024
-
-Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) WEB-DLRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение приключений легендарного Воина Дракона, его верных друзей и наставника.Производство: США, Китай / DreamWorks Animation, DreamWorks, Universal PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи Куан, Ронни Чиэн, Лори Тань ЧиннПеревод: дублированный (RHS)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90AFA8D15E5898A066B6805375988CB54D109CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711597   (61167) от 31.03.2024
-
-Кунг-фу Панда 4 / Kung Fu Panda 4 (2024) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61167.jpg" />
-</div>
-
-
-###  Подробнее
-
-По готовится стать духовным лидером своей Долины Мира, но ему также нужен кто-то, кто займет его место Воина Дракона. Таким образом, он будет обучать нового практикующего кунг-фу для этого места и столкнется со злодеем по имени Хамелеон, который вызывает злодеев из прошлого.Производство: США, Китай / DreamWorks Animation, DreamWorks SKG, Universal PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Майк Митчелл, Стефани СтайнАктеры: Джек Блэк, Аквафина, Виола Дэвис, Дастин Хоффман, Брайан Крэнстон, Джеймс Хун, Иэн Макшейн, Ке Хюи, Куан Ронни Чиэн, Лори Тань ЧиннПеревод: Дублированный (Red Head Sound)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:29:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAE9BA904BE4C05299F119B1A949E560AD17E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 101327   (60217) от 10.04.2024
-
-Мухнем на луну / Fly Me to the Moon (2008) DVDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечты о звездах и путешествиях к далеким космическим галактикам будоражат не только людские умы. Оказывается, ничто человеческое не чуждо и… мухам. Три отважные мушки тайком пробираются на космический корабль. Их ждет полный невероятных приключений полет на Луну...Режиссер: Бен СтассенАктеры: Тим Карри, Роберт Патрик, Келли Рипа, Базз Алдрин, Тревор Ганьон, Филип Болден, Николетт Шеридан, Эд Бегли мл.Перевод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A3379C303C574D5239F8AB640FCB95CAC3533C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716541   (59525) от 16.04.2024
-
-Беовульф / Beowulf (2007) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм основан на древнеанглийской эпической поэме " Беовульф "... В 507 году Беовульф, храбрый воин, прибывает на корабле в земли датского короля Хротгара, чтобы помочь ему избавиться от страшного монстра, по ночам убивающего датчан. Беовульфу удаётся победить чудовище голыми руками. Однако радость победы длится недолго, ибо у поверженного Гренделя есть (   Читать дальше...   )Производство: США, Великобритания / ImageMovers, Paramount Pictures, Shangri-La EntertainmentЖанр: фэнтези, боевик, приключения, мультфильмРежиссер: Роберт ЗемекисАктеры: Рэй Уинстон, Энтони Хопкинс, Робин Райт, Джон Малкович, Криспин Гловер, Брендан Глисон, Анджелина Джоли, Костас Мэндилор, Пол Бэйкер, Джон Билезикджян, Род Д. Харбор, Брайс Мартин, Сонье Фортаг, Шарисс Бэйкер-Бернар, Шарлотта СолтПеревод: дублированный, профессиональный многоголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские ( BD RUS; Киномания / Позитив), английскиеПродолжительность: 01:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05BABCC037C9023FABBF6B5AD4CD14EEB9107B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

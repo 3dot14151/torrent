@@ -1,3 +1,55 @@
+###  Публикация: 1797883   (17778) от 19.05.2025
+
+Nicki LaFoille | Трикотажное ноу-хау + толстовка с капюшоном (2025) WEBRip [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уютный свитшот — необходимая вещь для прохладной погоды, и этот уникальный узор сочетает в себе функциональность и стиль с карманами и профессиональными деталями, такими как люверсы, воротник-хомут и отделочная строчка. Никки ЛаФойл расскажет вам обо всех различных видах трикотажных тканей, от основ терминологии до процента растяжения и советов по шитью. Затем получите (   Читать дальше...   )Жанр: РукоделиеЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 02:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71459EA0E1E42211376FF88EA0F5E22B46AB419A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798022   (17765) от 19.05.2025
+
+Sara Bendrick | Выходные в саду (2021) WEBRip [EN, RU]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Готовы немного замарать руки? Ландшафтный дизайнер Сара Бендрик познакомит вас с восемью стильными пейзажами на этом мастер-классе по садовому дизайну для начинающих.Жанр: СадоводствоЯзык озвучки: Английский, Русский (Отдельная дорожка, перевод - AI)Продолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3EFDB693E87C6FC89483B72DC62AB2697E8E2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798035   (17694) от 20.05.2025
 
 Craig Olson | Стрижка овец (2020) WEBRip [EN, RU]
@@ -6,7 +58,7 @@ Craig Olson | Стрижка овец (2020) WEBRip [EN, RU]
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17694.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17694.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Robin Miller | Давай устроим поздний завтрак (2024) WE
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17692.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Katie Workman & Robin Miller | Готовим в будние вечера (2024
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17583.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ ZJ Humbach | Организация идеальной студии для ши�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_17380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_17380.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15156.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15156.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13397.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13397.jpg" />
 </div>
 
 

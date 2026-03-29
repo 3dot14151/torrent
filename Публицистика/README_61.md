@@ -1,3 +1,85 @@
+###  Публикация: 1329430   (352372) от 05.10.2019
+
+Н. В. Васильев | 60 лет борьбы за 8-ми часовой рабочий день (1917) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вопрос о 8-ми часовом рабочем дне — это один из вопросов, волнующих нас всех в настоящее время. Настоящая книжка представит интерес для товарищей рабочих и работниц, знакомя их с упорной борьбой их товарищей за границей вот уже в течение 60 лет за постепенное завоевание ими 8-ми часового рабочего дня.Жанр: История, политология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4972F4416B8CEEB6AE7B12BF19E15ABC02128F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329434   (352255) от 05.10.2019
+
+П. М. Кожаный | Рабочее жилище и быт (1924) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Господа капиталисты очень мало беспокоятся о том, что их „рабочая скотина" несет колоссальные жертвы благодаря невыносимым жилищным условиям.
+
+Рабочее население с трудом находит себе кров в современных капиталистических городах. Оно ютится или в хибарках на окраинах, не имеющих ни освещения, ни тротуаров, ни хороших путей сообщения, или в многоэтажных домах (   Читать дальше...   )Жанр: История, политология, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB8B93ECB49E96CABD29E272DF511672E2EF611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329471   (352130) от 05.10.2019
+
+Михаил Таратута | Русские и американцы. Про них и про нас, таких разных (2019) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_352130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга о том, что делает нас русскими, а американцев – американцами. Чем мы отличаемся друг от друга в восприятии мира и себя? Как думаем и как реагируем на происходящее? И что сделало нас такими, какие мы есть?
+
+Известный журналист-международник Михаил Таратута провел в США 12 лет. Его программа «Америка с Михаилом Таратутой» во многом открывала нам эту страну. (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5373170D111241B0AACF0FC59713A276396A7022
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952792   (351667) от 03.11.2015
 
 Сергей Михайлов и др. | Солнечная "Массандра" (1975) [DJVU]
@@ -6,7 +88,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351667.jpg" />
+  <img src="Z:/picture/008/save_picture_351667.jpg" />
 </div>
 
 
@@ -32,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351481.jpg" />
+  <img src="Z:/picture/008/save_picture_351481.jpg" />
 </div>
 
 
@@ -58,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351475.jpg" />
+  <img src="Z:/picture/008/save_picture_351475.jpg" />
 </div>
 
 
@@ -84,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351288.jpg" />
+  <img src="Z:/picture/008/save_picture_351288.jpg" />
 </div>
 
 
@@ -110,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351112.jpg" />
+  <img src="Z:/picture/008/save_picture_351112.jpg" />
 </div>
 
 
@@ -136,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350961.jpg" />
+  <img src="Z:/picture/008/save_picture_350961.jpg" />
 </div>
 
 
@@ -162,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350492.jpg" />
+  <img src="Z:/picture/008/save_picture_350492.jpg" />
 </div>
 
 
@@ -190,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349617.jpg" />
+  <img src="Z:/picture/008/save_picture_349617.jpg" />
 </div>
 
 
@@ -216,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347848.jpg" />
+  <img src="Z:/picture/008/save_picture_347848.jpg" />
 </div>
 
 
@@ -244,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347773.jpg" />
+  <img src="Z:/picture/008/save_picture_347773.jpg" />
 </div>
 
 
@@ -270,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347770.jpg" />
+  <img src="Z:/picture/008/save_picture_347770.jpg" />
 </div>
 
 
@@ -298,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347598.jpg" />
+  <img src="Z:/picture/008/save_picture_347598.jpg" />
 </div>
 
 
@@ -324,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346815.jpg" />
+  <img src="Z:/picture/008/save_picture_346815.jpg" />
 </div>
 
 
@@ -350,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345993.jpg" />
+  <img src="Z:/picture/008/save_picture_345993.jpg" />
 </div>
 
 
@@ -378,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345918.jpg" />
+  <img src="Z:/picture/008/save_picture_345918.jpg" />
 </div>
 
 
@@ -406,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345790.jpg" />
+  <img src="Z:/picture/008/save_picture_345790.jpg" />
 </div>
 
 
@@ -432,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345651.jpg" />
+  <img src="Z:/picture/008/save_picture_345651.jpg" />
 </div>
 
 
@@ -460,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345497.jpg" />
+  <img src="Z:/picture/008/save_picture_345497.jpg" />
 </div>
 
 
@@ -488,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345354.jpg" />
+  <img src="Z:/picture/008/save_picture_345354.jpg" />
 </div>
 
 
@@ -514,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344444.jpg" />
+  <img src="Z:/picture/008/save_picture_344444.jpg" />
 </div>
 
 
@@ -541,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344397.jpg" />
+  <img src="Z:/picture/008/save_picture_344397.jpg" />
 </div>
 
 
@@ -567,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342513.jpg" />
+  <img src="Z:/picture/008/save_picture_342513.jpg" />
 </div>
 
 
@@ -594,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342348.jpg" />
+  <img src="Z:/picture/008/save_picture_342348.jpg" />
 </div>
 
 
@@ -605,87 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B0BEDA40BEE20D3A757A3FEBA05446C0CB642A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180112   (342245) от 03.11.2017
-
-Елена Семёнова | Украина: русофобия, репрессии, геноцид. Материалы для будущего трибунала (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга является первой попыткой обобщить преступления русофобского режима, установившегося на Украине в результате февральского переворота 2014 года. Майдан, Одесса, преступления против Церкви и её служителей, геноцид мирного населения Донбасса, военные преступления, включая применение запрещённых видов оружия, террор в отношении жителей оккупированных территорий, (   Читать дальше...   )Жанр: История; Политика; СоциологияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD25CF830F293F009239BB6F6657F4E4F76584D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419220   (342184) от 27.10.2020
-
-Н. Ф. Рыдванов | Бедствие миллионов: Безработица в мире капитала (1983) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Безработица. Фактически она стала «образом жизни» для десятков миллионов отверженных в капиталистическом обществе. Она несет трудящимся материальные лишения, профессиональную дисквалификацию, зачастую моральную и психологическую деградацию, личную драму для каждого «лишнего» человека.
-
-Потерять работу в любое время может любой из категории наемных работников — от (   Читать дальше...   )Жанр: История, экономика, политология, социология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E8B8AE7A40EE6451CAF9748DCB55CBA31DDC54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954350   (342018) от 07.11.2015
-
-Анатоль Ливен | Анатомия американского национализма (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из характерных черт внешней политики США последнего времени – противоречивое на первый взгляд сочетание агрессивного экспансионизма с не менее агрессивной ксенофобией. Книга британского политолога Анатоля Ливена, объясняющая этот парадокс, вызвала в американском истеблишменте эффект разорвавшейся бомбы.
-Автор подверг беспристрастному критическому анализу одну (   Читать дальше...   )Жанр: Публицистика, обществоФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EED2E5603AB7015176A077C28B85ACB450913B
 ```
 
 https://mybot314.ru/tekegram_catalog/

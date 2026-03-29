@@ -1,3 +1,58 @@
+###  Публикация: 1040593   (586098) от 05.08.2016
+
+Microsoft Windows 10 Multiple Editions 10.0.14393 Version 1607 - Оригинальные образы от Microsoft MSDN [Ukr]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_586098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB7E24293B6E759A4F229EBD876F42ADA37A217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918870   (584655) от 17.07.2015
+
+Recovery USB-Flash for DELL 3542 / Windows 8.1 (х64) [Ru]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_584655.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче содержится образ USB-Recovery флешки, USB_Recovery_Dell_3542_W81.tib,
+записанный на ноутбуке Dell Inspiron 3542-4019 с помощью программы Dell BаckUp and Recovery
+Образ флешки создан программой Acronis True Image Home 2013.
+Служит для восстановления ноутбука до заводских настроек.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A601DAEF4D4380B8EE3ED6C459CF099D5028BA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918577   (584653) от 17.07.2015
 
 Recovery DVD for Asus K43E / Windows 7 Home Basic (х64) [Multi/Ru]
@@ -6,7 +61,7 @@ Recovery DVD for Asus K43E / Windows 7 Home Basic (х64) [Multi/Ru]
 >>Windows OEM Recovery СD/DVD
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584653.jpg" />
+  <img src="Z:/picture/008/save_picture_584653.jpg" />
 </div>
 
 
@@ -34,7 +89,7 @@ Microsoft Windows 10 Enterprise 2016 LTSB 10.0.14393 Version 1607 (x64) [En] WZT
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582122.jpg" />
+  <img src="Z:/picture/008/save_picture_582122.jpg" />
 </div>
 
 
@@ -60,7 +115,7 @@ Microsoft Windows 10 Enterprise 2016 LTSB 10.0.14393 Version 1607 - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579039.jpg" />
+  <img src="Z:/picture/008/save_picture_579039.jpg" />
 </div>
 
 
@@ -86,7 +141,7 @@ Microsoft Windows 10 Enterprise N 2016 LTSB 10.0.14393 Version 1607 - Ориги
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579036.jpg" />
+  <img src="Z:/picture/008/save_picture_579036.jpg" />
 </div>
 
 
@@ -112,7 +167,7 @@ Microsoft Windows 10 Enterprise 2016 LTSB 10.0.14393 Version 1607 - Оригин
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579033.jpg" />
+  <img src="Z:/picture/008/save_picture_579033.jpg" />
 </div>
 
 
@@ -138,7 +193,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x86-x64) WZT [En]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578592.jpg" />
+  <img src="Z:/picture/008/save_picture_578592.jpg" />
 </div>
 
 
@@ -164,7 +219,7 @@ Microsoft Hyper-V Server 2012 R2 9600.16384 (130821-1623) [Ru/En]
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578563.jpg" />
+  <img src="Z:/picture/008/save_picture_578563.jpg" />
 </div>
 
 
@@ -190,7 +245,7 @@ Microsoft Windows 10 Home Single Language 10.0.10240 RTM (x86-x64) WZT [En]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578562.jpg" />
+  <img src="Z:/picture/008/save_picture_578562.jpg" />
 </div>
 
 
@@ -216,7 +271,7 @@ Microsoft Windows 10 Enterprise 10.0.10240 RTM (x86-x64) WZT [En]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578558.jpg" />
+  <img src="Z:/picture/008/save_picture_578558.jpg" />
 </div>
 
 
@@ -242,7 +297,7 @@ Microsoft Windows 10 10.0.15063.413 Version 1703 (Updated June 2017) - Ориг�
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573830.jpg" />
+  <img src="Z:/picture/008/save_picture_573830.jpg" />
 </div>
 
 
@@ -268,7 +323,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x86-x64) WZT [Ru]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573022.jpg" />
+  <img src="Z:/picture/008/save_picture_573022.jpg" />
 </div>
 
 
@@ -294,7 +349,7 @@ Microsoft Windows Server 2012 R2 VL with Update 3 - Оригинальные о�
 >>Оригинальные версии Windows Server
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571192.jpg" />
+  <img src="Z:/picture/008/save_picture_571192.jpg" />
 </div>
 
 
@@ -320,7 +375,7 @@ Microsoft Windows Embedded 8.1 Enterprise x86 with Update 3 - Оригиналь
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569527.jpg" />
+  <img src="Z:/picture/008/save_picture_569527.jpg" />
 </div>
 
 
@@ -346,7 +401,7 @@ Microsoft Windows Embedded 8.1 Enterprise x64 with Update 3 - Оригиналь
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569510.jpg" />
+  <img src="Z:/picture/008/save_picture_569510.jpg" />
 </div>
 
 
@@ -372,7 +427,7 @@ Microsoft Windows 10 Pro-Home + Single Language 10.0.10240 [Ru]
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567781.jpg" />
+  <img src="Z:/picture/008/save_picture_567781.jpg" />
 </div>
 
 
@@ -398,7 +453,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565935.jpg" />
+  <img src="Z:/picture/008/save_picture_565935.jpg" />
 </div>
 
 
@@ -424,7 +479,7 @@ Microsoft Windows 10 N - Оригинальные образы от Microsoft MS
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565927.jpg" />
+  <img src="Z:/picture/008/save_picture_565927.jpg" />
 </div>
 
 
@@ -450,7 +505,7 @@ Microsoft Windows 10 Enterprise 10.0.10240 - Оригинальные образ
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565917.jpg" />
+  <img src="Z:/picture/008/save_picture_565917.jpg" />
 </div>
 
 
@@ -476,7 +531,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565915.jpg" />
+  <img src="Z:/picture/008/save_picture_565915.jpg" />
 </div>
 
 
@@ -502,7 +557,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x64) WZT [He]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565908.jpg" />
+  <img src="Z:/picture/008/save_picture_565908.jpg" />
 </div>
 
 
@@ -528,7 +583,7 @@ Microsoft Windows 10 Pro-Home 10.0.10240 RTM (x86) WZT [He]
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562193.jpg" />
+  <img src="Z:/picture/008/save_picture_562193.jpg" />
 </div>
 
 
@@ -554,7 +609,7 @@ Microsoft Windows 10 - Оригинальные образы от Microsoft MSDN
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560292.jpg" />
+  <img src="Z:/picture/008/save_picture_560292.jpg" />
 </div>
 
 
@@ -580,7 +635,7 @@ Microsoft Windows 10 Pro - Оригинальные образы от Microsoft 
 >>Музей Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558518.jpg" />
+  <img src="Z:/picture/008/save_picture_558518.jpg" />
 </div>
 
 
@@ -606,7 +661,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Оригинальные версии Windows
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556764.jpg" />
+  <img src="Z:/picture/008/save_picture_556764.jpg" />
 </div>
 
 
@@ -619,59 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C4E3C7B8CECA30DE870BF35C98A6F37CF494B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153935   (556640) от 28.07.2017
-
-Microsoft Windows 10 10.0.15063.483 Version 1703 (Updated July 2017) - Оригинальные образы от Microsoft VLSC [Ru]
-
->>ОС Windows
->>Музей Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 10 — операционная система для персональных компьютеров, разработанная корпорацией Microsoft в рамках семейства Windows NT. После Windows 8 система получила номер 10, минуя 9. Система призвана стать единой для разных устройств, таких как персональные компьютеры, планшеты, смартфоны, консоли Xbox One и пр. Доступна единая платформа разработки и единый магазин (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB20220CABCD43EC4E71A2A3474428126C32D352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1308367   (553872) от 14.06.2019
-
-Windows 10 (74in2) Sergei Strelec x86/x64 1809 (build 17763.557) [Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образы Windows 10 с интегрированными обновлениями по 13.06.2019
-Интегрированы только обновления исключительно средствами DISM.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DA4995EAAD74561A0A0F6025386D12EED6A4E31
 ```
 
 https://mybot314.ru/tekegram_catalog/

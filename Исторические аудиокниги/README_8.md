@@ -1,3 +1,55 @@
+###  Публикация: 1107491   (865903) от 23.02.2017
+
+Дмитрий Волкогонов | Лев Троцкий. Политический портрет (2011) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лев Троцкий погиб более полувека назад от руки сталинского агента. Но что же такого было в этом "герое - революции", оракуле и пророке "мирового пожара", что делало его, давно бежавшего из СССР, по - прежнему опасным для Сталина? Почему соперничество двух вождей большевизма приняло столь трагический оттенок и имело столь страшные последствия для (   Читать дальше...   )Жанр: ИсторияПродолжительность: 16:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A68A6B492B57DC08BF5F274F2A0EB27B2CCCC059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 303172   (865280) от 02.03.2011
+
+Екатерина II Великая | Записки императрицы Екатерины Второй [1991] [MP3, Лилия Пилькевич]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_865280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сколько бы ни было написано об этой императрице, наверное, навсегда останется ЗАГАДКА ЕКАТЕРИНЫ. Ибо во второй половине 18 века на троне в России оказалась женщина, не имевшая никаких прав на престол, да к тому же - свергнувшая мужа, законного государя, да к тому же - иноземка. И не просто «оказалась», а пребывала на нем 34 года...Жанр: Исторические мемуарыПродолжительность: 08:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0694824A93F842F18003559E63EC8CCE97EBD953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999243   (864719) от 22.03.2016
 
 Николай Нозиков | Русские кругосветные мореплаватели (2013) [MP3]
@@ -6,7 +58,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864719.jpg" />
+  <img src="Z:/picture/008/save_picture_864719.jpg" />
 </div>
 
 
@@ -33,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862856.jpg" />
+  <img src="Z:/picture/008/save_picture_862856.jpg" />
 </div>
 
 
@@ -61,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862846.jpg" />
+  <img src="Z:/picture/008/save_picture_862846.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862844.jpg" />
+  <img src="Z:/picture/008/save_picture_862844.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858551.jpg" />
+  <img src="Z:/picture/008/save_picture_858551.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858467.jpg" />
+  <img src="Z:/picture/008/save_picture_858467.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858368.jpg" />
+  <img src="Z:/picture/008/save_picture_858368.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857501.jpg" />
+  <img src="Z:/picture/008/save_picture_857501.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857252.jpg" />
+  <img src="Z:/picture/008/save_picture_857252.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855628.jpg" />
+  <img src="Z:/picture/008/save_picture_855628.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855400.jpg" />
+  <img src="Z:/picture/008/save_picture_855400.jpg" />
 </div>
 
 
@@ -296,7 +348,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855067.jpg" />
+  <img src="Z:/picture/008/save_picture_855067.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853745.jpg" />
+  <img src="Z:/picture/008/save_picture_853745.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853647.jpg" />
+  <img src="Z:/picture/008/save_picture_853647.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853597.jpg" />
+  <img src="Z:/picture/008/save_picture_853597.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852106.jpg" />
+  <img src="Z:/picture/008/save_picture_852106.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851250.jpg" />
+  <img src="Z:/picture/008/save_picture_851250.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851032.jpg" />
+  <img src="Z:/picture/008/save_picture_851032.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850307.jpg" />
+  <img src="Z:/picture/008/save_picture_850307.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850289.jpg" />
+  <img src="Z:/picture/008/save_picture_850289.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850004.jpg" />
+  <img src="Z:/picture/008/save_picture_850004.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849898.jpg" />
+  <img src="Z:/picture/008/save_picture_849898.jpg" />
 </div>
 
 
@@ -589,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849524.jpg" />
+  <img src="Z:/picture/008/save_picture_849524.jpg" />
 </div>
 
 
@@ -616,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849523.jpg" />
+  <img src="Z:/picture/008/save_picture_849523.jpg" />
 </div>
 
 
@@ -627,58 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EBC38E6400DF51B7D8E89712D9157A05749E832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110924   (848666) от 05.03.2017
-
-Леонид Бородин | Царица смуты (2014) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марии Мнишек, одной из героинь русского «смутного времени» 17 в. (параллели которого с сегодняшней России у Бородина вполне отчетливы), посвящена историческая повесть Царица Смуты (1996)... Преисполненный неуемной злобы, сотворил сатана степи ногайские, чтобы опорочить великие творения Господа. Только он, хулитель Имени Святого, мог раскатать по тверди земной эту (   Читать дальше...   )Жанр: Исторический романПродолжительность: 11:20:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F106E17F79E5F6684E2E6F3729BC2AD6FDDE83E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499568   (847820) от 02.10.2021
-
-Говард Роберт | Ястребы востока (сборник) (2021) [MP3, Олег Семилетов]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кормак Фицжоффри родился на земле, где балом правили насилие и кровь. Но он смог выжить. Странствующий воин, наемник и мститель. Немного у него друзей, и тот, кто причинит им вред, рискует не дожить до рассвета… Кормак хочет освободить своего суверена из лап врагов, и для этого ему нужно найти выкуп. Причем выкуп королевский. В этом ему может помочь местный царек-разбойник. (   Читать дальше...   )Жанр: Исторические приключения, Классика приключенческой литературыПродолжительность: 10:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF871933BE39078E9DAF2FA9ED948710C2CC4574
 ```
 
 https://mybot314.ru/tekegram_catalog/

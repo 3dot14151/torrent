@@ -1,3 +1,29 @@
+###  Публикация: 1555372   (570246) от 03.06.2022
+
+За мечтой / For the Dream (2022) WEBRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Экстрим
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_570246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бен Грэви сделал карьеру на быстрых поездках на серфинге и роликах для фан-базы. Он путешественник, всегда улыбающийся и распространяющий позитив и хорошее настроение, но бывают и у него серьёзные трудности. Это документальный фильм о его жизни.Производство: СШАЖанр: Документальный, спортРежиссер: Sean DavisПеревод: Одноголосый любительский (Pazl Voice)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0D1C690E2E092D6FADA081286CA3FA1C138BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303294   (563401) от 26.05.2019
 
 Жизненные циклы / Life Cycles (2010) BDRemux [H.264/1080p]
@@ -6,7 +32,7 @@
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563401.jpg" />
+  <img src="Z:/picture/008/save_picture_563401.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563093.jpg" />
+  <img src="Z:/picture/008/save_picture_563093.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517961.jpg" />
+  <img src="Z:/picture/008/save_picture_517961.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_501567.jpg" />
+  <img src="Z:/picture/008/save_picture_501567.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ Cамые сильные люди на Земле / The Redeemed and the Dominan
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499521.jpg" />
+  <img src="Z:/picture/008/save_picture_499521.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ Degrees North / Degrees North (2015) WEBRip [EN]
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488021.jpg" />
+  <img src="Z:/picture/008/save_picture_488021.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454493.jpg" />
+  <img src="Z:/picture/008/save_picture_454493.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423380.jpg" />
+  <img src="Z:/picture/008/save_picture_423380.jpg" />
 </div>
 
 
@@ -217,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421039.jpg" />
+  <img src="Z:/picture/008/save_picture_421039.jpg" />
 </div>
 
 
@@ -243,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412374.jpg" />
+  <img src="Z:/picture/008/save_picture_412374.jpg" />
 </div>
 
 
@@ -269,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409567.jpg" />
+  <img src="Z:/picture/008/save_picture_409567.jpg" />
 </div>
 
 
@@ -295,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397667.jpg" />
+  <img src="Z:/picture/008/save_picture_397667.jpg" />
 </div>
 
 
@@ -321,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366345.jpg" />
+  <img src="Z:/picture/008/save_picture_366345.jpg" />
 </div>
 
 
@@ -347,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_366170.jpg" />
+  <img src="Z:/picture/008/save_picture_366170.jpg" />
 </div>
 
 
@@ -373,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337683.jpg" />
+  <img src="Z:/picture/008/save_picture_337683.jpg" />
 </div>
 
 
@@ -399,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337414.jpg" />
+  <img src="Z:/picture/008/save_picture_337414.jpg" />
 </div>
 
 
@@ -425,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314734.jpg" />
+  <img src="Z:/picture/008/save_picture_314734.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239965.jpg" />
+  <img src="Z:/picture/004/save_picture_239965.jpg" />
 </div>
 
 
@@ -478,7 +504,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238402.jpg" />
+  <img src="Z:/picture/005/save_picture_238402.jpg" />
 </div>
 
 
@@ -504,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238187.jpg" />
+  <img src="Z:/picture/004/save_picture_238187.jpg" />
 </div>
 
 
@@ -532,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238132.jpg" />
+  <img src="Z:/picture/004/save_picture_238132.jpg" />
 </div>
 
 
@@ -558,7 +584,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_237921.jpg" />
+  <img src="Z:/picture/004/save_picture_237921.jpg" />
 </div>
 
 
@@ -584,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_233210.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_233210.jpg" />
 </div>
 
 
@@ -610,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_228758.jpg" />
+  <img src="Z:/picture/005/save_picture_228758.jpg" />
 </div>
 
 
@@ -636,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Экстрим
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_213805.jpg" />
+  <img src="Z:/picture/005/save_picture_213805.jpg" />
 </div>
 
 
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A333CA04D0E742F6579B66C681E2268BC3CA220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645539   (209375) от 09.07.2023
-
-Скотт Линдгрен: покорить поток / The River Runner (2021) WEB-DL [H.264/1080p] [EN / RU, EN Sub]
-
->>Спорт и активный отдых
->>Экстрим
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209375.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой этого документального фильма хочет стать первым, кто сплавится на каяке по четырем великим рекам, берущим начало на священной тибетской горе Кайлас.Производство: СШАЖанр: документальный, каякинг, экстримРежиссер: Раш СтерджесПеревод: субтитрыЯзык озвучки: английскийСубтитры: русские, английскиеПродолжительность: 01:25:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C06BEFB937671351806B62615A0397ED5B378E
 ```
 
 https://mybot314.ru/tekegram_catalog/

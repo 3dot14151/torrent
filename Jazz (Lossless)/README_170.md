@@ -1,3 +1,119 @@
+###  Публикация: 1244217   (484209) от 31.08.2018
+
+Urbie Green - East Coast Jazz, Vol.6 (1955) 2001, Bethlehem [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mutation [3:12]
+02. On Green Dolphin Street [3:34]
+03. Just One of Those Things [4:21]
+04. How About You? [2:49](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1138BA5FBEDDFE417C5FFEB502A8B649019EEB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159427   (484164) от 20.08.2017
+
+The Gil Evans Orchestra & Sting - In Perugia (1987) 2CD, 2006, Jazz Door [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484164.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Up From The Skies [09:57]
+02. Strange Fruit [07:19]
+03. Shadows In The Rain [06:10](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0FC5ECA86FAD5E6634198136DB18872FEA2A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938225   (484067) от 17.09.2015
+
+Earl Hines - Lionel Hampton Presents: Earl Fatha Hines - St. Louis Blues (1977) /1993, Aurophon/[WavPack|image+.cue]<Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Earl's Pearl [05:19]
+02.If It's True [05:51]
+03.Rosetta [04:06]
+04.One Night In Trinidad [03:26](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 00:36:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8272FCAF45E68C4BB3EAE32B3F61210E02B1CD86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938222   (484066) от 17.09.2015
+
+Bill Evans - Re: Person I Knew (1974) /2012, Universal/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz, Modal Music, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_484066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Re: Person I Knew [05:21]
+02.Sugar Plum [08:16]
+03.Alfie [04:58]
+04.T.T.T. [05:32](   Читать дальше...   )Жанр: Post-Bop, Piano Jazz, Modal Music, CoolПродолжительность: 00:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C707762BB17DAA72A0328EB740430BA7A61094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405496   (483694) от 30.08.2020
 
 Jason Marsalis - Music Update (2008) ELM Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -6,7 +122,7 @@ Jason Marsalis - Music Update (2008) ELM Records [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483694.jpg" />
+  <img src="Z:/picture/008/save_picture_483694.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ George Cables Trio - Skylark (1995) 1996, SteepleChase [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483692.jpg" />
+  <img src="Z:/picture/008/save_picture_483692.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Bobby Hutcherson - Wise One (2009) [FLAC|Lossless]<Jazz, Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483125.jpg" />
+  <img src="Z:/picture/008/save_picture_483125.jpg" />
 </div>
 
 
@@ -98,7 +214,7 @@ Bill Evans - 3 Essential Albums (1963 - 1967) 3CD, Universal, 2018 [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482840.jpg" />
+  <img src="Z:/picture/008/save_picture_482840.jpg" />
 </div>
 
 
@@ -127,7 +243,7 @@ The Uptown String Quartet - Just Wait A Minute! (1992) Bluemoon [FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482448.jpg" />
+  <img src="Z:/picture/008/save_picture_482448.jpg" />
 </div>
 
 
@@ -156,7 +272,7 @@ Jheena Lodwick - 4 альбома (2002 - 2007) [APE/FLAC|Lossless]<Jazz, Vocal>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482415.jpg" />
+  <img src="Z:/picture/008/save_picture_482415.jpg" />
 </div>
 
 
@@ -193,7 +309,7 @@ Ray Charles & Count Basie Orchestra - Ray Sings Basie Swings (2006) Universal [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482203.jpg" />
+  <img src="Z:/picture/008/save_picture_482203.jpg" />
 </div>
 
 
@@ -222,7 +338,7 @@ Duke Ellington - Black Beauty (1924-1954) 2CD, 2005, Le Chant Du Monde[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482137.jpg" />
+  <img src="Z:/picture/008/save_picture_482137.jpg" />
 </div>
 
 
@@ -251,7 +367,7 @@ Natalie Cole - As Time Goes By (Single, 1993) /Elektra/[FLAC|tracks+.cue]<Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482093.jpg" />
+  <img src="Z:/picture/008/save_picture_482093.jpg" />
 </div>
 
 
@@ -279,7 +395,7 @@ Andrea Motis - Emotional Dance (2017) Universal [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482085.jpg" />
+  <img src="Z:/picture/008/save_picture_482085.jpg" />
 </div>
 
 
@@ -308,7 +424,7 @@ Optimystica Orchestra - Иду Налегке (2010) EP [FLAC|Lossless|Web-DL|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481887.jpg" />
+  <img src="Z:/picture/008/save_picture_481887.jpg" />
 </div>
 
 
@@ -337,7 +453,7 @@ Optimystica Orchestra - Полубоги Вина (2005) [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481880.jpg" />
+  <img src="Z:/picture/008/save_picture_481880.jpg" />
 </div>
 
 
@@ -366,7 +482,7 @@ Kid Ory's Creole Jazz Band - Tailgate! (1944, 1945) 2007, Membran Music [FLAC|Lo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481496.jpg" />
+  <img src="Z:/picture/008/save_picture_481496.jpg" />
 </div>
 
 
@@ -395,7 +511,7 @@ Charlie Biddle - In Good Company (1996) Justin Time [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481347.jpg" />
+  <img src="Z:/picture/008/save_picture_481347.jpg" />
 </div>
 
 
@@ -424,7 +540,7 @@ Michel Petrucciani - Best Of - 3CD (2009) [FLAC|Lossless]<Post-Bop, Piano Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480622.jpg" />
+  <img src="Z:/picture/008/save_picture_480622.jpg" />
 </div>
 
 
@@ -458,7 +574,7 @@ Art Blakey & The Jazz Messengers - feat. Wynton Marsalis (1980) 1988, Fortune [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480543.jpg" />
+  <img src="Z:/picture/008/save_picture_480543.jpg" />
 </div>
 
 
@@ -487,7 +603,7 @@ Ariel Pocock - Touchstone (2015) Justin Time Records [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480232.jpg" />
+  <img src="Z:/picture/008/save_picture_480232.jpg" />
 </div>
 
 
@@ -516,7 +632,7 @@ Jaki Byard - Freedom Together! (1966) /1997, OJC/ [FLAC|tracks+.cue]<Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480106.jpg" />
+  <img src="Z:/picture/008/save_picture_480106.jpg" />
 </div>
 
 
@@ -545,7 +661,7 @@ Phillip Bent - The Pressure (1993) /GRP Records/[FLAC|image+.cue]<Smooth, Pop-Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480092.jpg" />
+  <img src="Z:/picture/008/save_picture_480092.jpg" />
 </div>
 
 
@@ -574,7 +690,7 @@ Bill Carrothers - Home Row (2008) Pirouet [FLAC|Lossless|image + .cue] <Post-Bop
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480085.jpg" />
+  <img src="Z:/picture/008/save_picture_480085.jpg" />
 </div>
 
 
@@ -603,7 +719,7 @@ Gil Evans - Live At The Public Theater New York 1980, Vol. I and II (1994) 2CD, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480081.jpg" />
+  <img src="Z:/picture/008/save_picture_480081.jpg" />
 </div>
 
 
@@ -632,7 +748,7 @@ Noemi Nuti - Nice to Meet You (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480007.jpg" />
+  <img src="Z:/picture/008/save_picture_480007.jpg" />
 </div>
 
 
@@ -646,122 +762,6 @@ Noemi Nuti - Nice to Meet You (2015) [FLAC|tracks|WEB-DL]<Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71780854F2484390B8DF4A6D35AA3DB397604943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938515   (479995) от 19.09.2015
-
-Charles Lloyd - Nirvana (1968) /2014, Sony Music/ [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Island Blues [03:28]
-02.Carcara [01:47]
-03.Long Time, Baby [02:14]
-04.East Of The Sun (And West Of The Moon) [05:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15519395BD5967870E0B5643278D6D981AFFE72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938786   (479877) от 19.09.2015
-
-Frank Sinatra - The Voice (1955) /1994, Columbia/[FLAC|image+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Don't Know Why (I Just Do) [02:51]
-02.Try A Little Tenderness [03:04]
-03.(I Don't Stand) A Ghost Of A Chance [03:16]
-04.Paradise [02:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B84B3CC9A2F12E2F23941AA56F71EBC4201F622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938767   (479875) от 19.09.2015
-
-John Pizzarelli - Midnight McCartney (2015) [FLAC|Lossless|WEB-DL]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silly Love Songs
-02. My Love
-03. Heart Of The Country
-04. Coming Up (feat. John Pizzarelli)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625FF24C9D5624D73887FA1A7878FC6C16F4F50C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056733   (479728) от 26.09.2016
-
-Reinhard Flatischler - Megadrums Live (1988) Puls productions[APE|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Megadrums (traditional) [05:59]
- 02.Dialog (traditional) [03:21]
- 03.Dasotmori Live [10:07]
- 04.The Call [18:15]Жанр: World Fusion, Ethnic JazzПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BE3ADAB9DE190D438DC6CCB7302DC6AEC91557
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 1103409   (178992) от 03.12.2020
+
+Эдуард Успенский и др | Радионяня: Смешные рассказы (2002) [WavPack]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178992.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Радионяня» — образовательная программа для младших школьников на всесоюзном радио в 1970-х—1980-х годов. Выходила в эфир в первое воскресенье месяца. Впервые вышла в эфир 1 января 1970 года.01. Вступление ~ Рассказ «Слава Ивана Козловского» (07:04)
+02. Песня «Хлопай-топай» (03:39)
+03. Рассказ «Шиворот-навыворот» (05:12)
+04. Песня «Ай-ай-ай» (01:15)(   Читать дальше...   )Жанр: РадиоспектакльПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED943A8A94D9B2609561A63740EA5A85A3A894E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127073   (178985) от 03.12.2020
+
+Бенедикт Сарнов, Станислав Рассадин | В стране литературных героев (2017) [MP3]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178985.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бриллиант в ряду детских радиошедевров "Радионяня", "Клуб знаменитых капитанов", "КОАПП", "Морские вести" и др. Для всех, кто любит детей и литературу.Жанр: Цикл передач для детей о литературеПродолжительность: 09:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6E011EADECDAB0AA084BD87A54601D57BDF02C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550891   (178897) от 03.12.2020
+
+Volker Rosin - Alle Kinder tanzen (2012) [MP3|320 kbps] <Детские танцевальные песни на немецком языке>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_178897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tschu Tschu Wah - Die Eisenbahn
+02. Tanze Wie Du Bist
+03. Auf Dem Rummelplatz
+04. Es Wird Schon Wieder Gut(   Читать дальше...   )Жанр: Детские танцевальные песни на немецком языкеПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FE767201700FB32AF4A42BF3CC597DA06F90EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072716   (178144) от 04.12.2020
 
 Астрид Линдгрен | Малыш и Карлсон. Карлсон вернулся (2002) [MP3]
@@ -6,7 +90,7 @@
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178144.jpg" />
+  <img src="Z:/picture/005/save_picture_178144.jpg" />
 </div>
 
 
@@ -32,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_178055.jpg" />
+  <img src="Z:/picture/005/save_picture_178055.jpg" />
 </div>
 
 
@@ -61,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177977.jpg" />
+  <img src="Z:/picture/005/save_picture_177977.jpg" />
 </div>
 
 
@@ -88,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_177916.jpg" />
+  <img src="Z:/picture/005/save_picture_177916.jpg" />
 </div>
 
 
@@ -117,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_175655.jpg" />
+  <img src="Z:/picture/005/save_picture_175655.jpg" />
 </div>
 
 
@@ -143,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175643.jpg" />
+  <img src="Z:/picture/004/save_picture_175643.jpg" />
 </div>
 
 
@@ -169,7 +253,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_175181.jpg" />
+  <img src="Z:/picture/004/save_picture_175181.jpg" />
 </div>
 
 
@@ -195,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174613.jpg" />
 </div>
 
 
@@ -221,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_174546.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_174546.jpg" />
 </div>
 
 
@@ -247,7 +331,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174537.jpg" />
+  <img src="Z:/picture/004/save_picture_174537.jpg" />
 </div>
 
 
@@ -273,7 +357,7 @@ VA - Русская народная колыбельная песня (2001) [M
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174100.jpg" />
+  <img src="Z:/picture/004/save_picture_174100.jpg" />
 </div>
 
 
@@ -302,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174079.jpg" />
+  <img src="Z:/picture/004/save_picture_174079.jpg" />
 </div>
 
 
@@ -329,7 +413,7 @@ VA - Новогодний утренник. Сборник детских пес
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_174062.jpg" />
+  <img src="Z:/picture/004/save_picture_174062.jpg" />
 </div>
 
 
@@ -358,7 +442,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_173219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_173219.jpg" />
 </div>
 
 
@@ -384,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172749.jpg" />
 </div>
 
 
@@ -413,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172730.jpg" />
 </div>
 
 
@@ -442,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172140.jpg" />
 </div>
 
 
@@ -470,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_172115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_172115.jpg" />
 </div>
 
 
@@ -496,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171947.jpg" />
 </div>
 
 
@@ -524,7 +608,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171944.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171944.jpg" />
 </div>
 
 
@@ -552,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171825.jpg" />
 </div>
 
 
@@ -579,7 +663,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171807.jpg" />
 </div>
 
 
@@ -605,7 +689,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_171799.jpg" />
 </div>
 
 
@@ -617,88 +701,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:394AE19CA99A1E651E40AF1A36A9F7751F6ED4FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671139   (171597) от 23.10.2023
-
-Тамара Крюкова | Гордячка (2012) [MP3, Наталья Михеева]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_171597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Чтение вслух – для всей семьи.
-Тамара Шамильевна Крюкова – современная детская писательница, член Союза писателей России с 1997 года, лауреат первой премии Международного общественного благотворительного фонда «Русская культура» за возрождение литературы для подростков России. Автор известных произведений – «Хрустальный ключ», «Дом вверх дном», «Чудеса не (   Читать дальше...   )Жанр: Русская литература для детей, роман-сказкаИздательство: Говорящая книгаПродолжительность: 06:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B60EBFF9B5472E12CC6D481B30F88DBCB02B81FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435789   (170965) от 19.10.2025
-
-Кир Булычёв | Путешествие Алисы (2007) [MP3, Дмитрий Колыго и др.]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Лучшее – детям.
-Кир Булычёв (1934–2003) – советский писатель-фантаст, учёный-востоковед, сценарист.
-Слушая эти диски, вы узнаете о приключениях маленькой девочки Алисы - участницы необычайных путешествий, произошедших в XXI веке.
-Вместе с девочкой из будущего и ее друзьями вы отправитесь в самое настоящее космическое путешествие и попробуете спасти цивилизацию (   Читать дальше...   )Жанр: Русская литература для детей, фантастическая повестьИздательство: Аудиокнига (АСТ)Продолжительность: 11:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2B11ABC16C1054147631542B3500C33715FE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128419   (170593) от 10.12.2020
-
-Юрий Олеша | Три толстяка (2009) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_170593.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Школьная библиотека" предлагает вам послушать роман-сказку о приключениях отважных друзей. Здесь вы не найдете чудес и волшебников, без которых обычно не обходятся сказочные истории, но все же это сказка. Почему? Да потому, что писатель рассказывает о серьезных событиях так красочно, ярко, что нам не страшно, а весело! Вы услышите о стране, которой правили (   Читать дальше...   )Жанр: Сказка, детская литератураПродолжительность: 05:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F6F6CF959366D3F25F3E142B1EA54C3398A598
 ```
 
 https://mybot314.ru/tekegram_catalog/

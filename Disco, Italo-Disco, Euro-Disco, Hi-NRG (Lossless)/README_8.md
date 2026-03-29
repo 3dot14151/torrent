@@ -6,7 +6,7 @@ Fancy - Get Your Kicks (1985) [FLAC|Lossless]<Italo Disco, Disco> Первый �
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771783.jpg" />
+  <img src="Z:/picture/008/save_picture_771783.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Robin Gibb, Barry Gibb, Andy Gibb - 14 Albums (1970 - 2012) Collection Hits [FLA
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771544.jpg" />
+  <img src="Z:/picture/008/save_picture_771544.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Boney M. - The Best Of 10 Years. Non Stop-Digital Remix (2002) Mixed, Reissue, U
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768341.jpg" />
+  <img src="Z:/picture/008/save_picture_768341.jpg" />
 </div>
 
 
@@ -90,7 +90,7 @@ A La Carte - Nonstop 56 Hits (1989) 2CD Box Set, Reissue 2006 [FLAC|Lossless|ima
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766965.jpg" />
+  <img src="Z:/picture/008/save_picture_766965.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ Ottawan - The Very Best Of Ottawan (1992) [FLAC|Lossless|tracks + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765253.jpg" />
+  <img src="Z:/picture/008/save_picture_765253.jpg" />
 </div>
 
 
@@ -148,7 +148,7 @@ Fancy - Flames Of Love (1988) [FLAC|Lossless]<Italo Disco, Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761936.jpg" />
+  <img src="Z:/picture/008/save_picture_761936.jpg" />
 </div>
 
 
@@ -174,7 +174,7 @@ VA - Discomax (Mixed by A & A Mixmasters) (2012) Partially Mixed, Limited Editio
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753362.jpg" />
+  <img src="Z:/picture/008/save_picture_753362.jpg" />
 </div>
 
 
@@ -203,7 +203,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 5 (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749799.jpg" />
+  <img src="Z:/picture/008/save_picture_749799.jpg" />
 </div>
 
 
@@ -232,7 +232,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749798.jpg" />
+  <img src="Z:/picture/008/save_picture_749798.jpg" />
 </div>
 
 
@@ -261,7 +261,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 6 (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749790.jpg" />
+  <img src="Z:/picture/008/save_picture_749790.jpg" />
 </div>
 
 
@@ -290,7 +290,7 @@ VA - ZYX Italo Disco: Hits & Rarities Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749789.jpg" />
+  <img src="Z:/picture/008/save_picture_749789.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Boney M. - Dance Remixes '99 (1999) [APE|Lossless|image + .cue] <Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745899.jpg" />
+  <img src="Z:/picture/008/save_picture_745899.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ Piano Fantasia - Best of Collector: Piano Fantasia (Le meilleur des annees 80) (
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745440.jpg" />
+  <img src="Z:/picture/008/save_picture_745440.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ VA - Radio Italia Summer Hits (2 CD) (2015) [FLAC|Lossless|image + .cue] <Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745223.jpg" />
+  <img src="Z:/picture/008/save_picture_745223.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Vincent International - Retro 2 (The 2nd Album) (2022) [FLAC|Lossless|image + .c
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736402.jpg" />
+  <img src="Z:/picture/008/save_picture_736402.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Savage - Love And Rain (2020) [FLAC|Lossless|image + .cue] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_733087.jpg" />
+  <img src="Z:/picture/008/save_picture_733087.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ V.A. - The Best Projects Of Axel Breitung (ex. Silent Circle) (2004) [FLAC|Lossl
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_729355.jpg" />
+  <img src="Z:/picture/005/save_picture_729355.jpg" />
 </div>
 
 
@@ -490,7 +490,7 @@ Blue Talking - Forever Fantasy (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725081.jpg" />
+  <img src="Z:/picture/008/save_picture_725081.jpg" />
 </div>
 
 
@@ -519,7 +519,7 @@ Dario Silver (Mirko Hirsch) - Electric Heartbeat (2017) [FLAC|Lossless|WEB-DL|tr
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725072.jpg" />
+  <img src="Z:/picture/008/save_picture_725072.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ Dschinghis Khan - Moskau - Das Neue Best Of Album (2018) [FLAC|Lossless|WEB-DL|t
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723023.jpg" />
+  <img src="Z:/picture/008/save_picture_723023.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Modern Boots - The Best Of Modern Boots (2019) [FLAC|Lossless|WEB-DL|tracks] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720945.jpg" />
+  <img src="Z:/picture/008/save_picture_720945.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Tam Harrow - Incredible Idiot (2015) Limited Edition [FLAC|Lossless|image + .cue
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720545.jpg" />
+  <img src="Z:/picture/008/save_picture_720545.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ Tom Hooker - Back In Time (2017) 2CD, Limited Edition [FLAC|Lossless|image + .cu
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720463.jpg" />
+  <img src="Z:/picture/008/save_picture_720463.jpg" />
 </div>
 
 
@@ -664,7 +664,7 @@ Den Harrow - The 12'' Collection 1984-1987 (2015) 2CD, Limited Edition [FLAC|Los
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720332.jpg" />
+  <img src="Z:/picture/008/save_picture_720332.jpg" />
 </div>
 
 
@@ -693,7 +693,7 @@ VA - Italo Disco 80 Legends, Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719016.jpg" />
+  <img src="Z:/picture/008/save_picture_719016.jpg" />
 </div>
 
 
@@ -722,7 +722,7 @@ VA - Italo Disco 80 Legends, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718849.jpg" />
+  <img src="Z:/picture/008/save_picture_718849.jpg" />
 </div>
 
 

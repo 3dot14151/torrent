@@ -1,3 +1,29 @@
+###  Публикация: 1063545   (428047) от 19.10.2016
+
+Смерть в кино (1990) IPTVRip [H.264] [MP4|696x572@744x572]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_428047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уже построены декорации, но творческой группы еще нет. Тогда сторож сдает пристройки «дикарям». Затевается застолье. В пик веселья появляются оператор и помощник режиссера, которые втайне от всех снимают гулянку. Спровоцировав ссору, мастерски разыгрывают убийство. За расследование берется сам сторож — бывший сотрудник НКВД. Подозревается каждый. Но жертвой его дотошных (   Читать дальше...   )Производство: СССР / Cinebridge, МосфильмЖанр: КриминалРежиссер: Константин ХудяковАктеры: Анатолий Ромашин, Ирина Розанова, Иван Бортник, Владислав Галкин, Леонид Каневский, Мария Константинова, Александр Парра, Андрей Сергеев, Елена Шанина, Юлия РомашинаПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DDE981249EB683F75F6D3DCCB6CD89C07087D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477460   (427981) от 04.10.2012
 
 [Программа] (Android 2.1+) SCleaner 0.7.2 /обновлено 03.10.12/
@@ -6,7 +32,7 @@
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_427981.jpg" />
+  <img src="Z:/picture/005/save_picture_427981.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427915.jpg" />
+  <img src="Z:/picture/008/save_picture_427915.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ RockPlayer Universal FULL 1.7.6 (rus) - Видео плеер (02.10.2012)
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_427875.jpg" />
+  <img src="Z:/picture/005/save_picture_427875.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427575.jpg" />
+  <img src="Z:/picture/008/save_picture_427575.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ AntiSquad Tactics Premium 2.03 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426710.jpg" />
+  <img src="Z:/picture/008/save_picture_426710.jpg" />
 </div>
 
 
@@ -139,7 +165,7 @@ Vivaldi for Android 5.4.2760.26 [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425511.jpg" />
+  <img src="Z:/picture/008/save_picture_425511.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Practical English Usage 1.0.9 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424822.jpg" />
+  <img src="Z:/picture/008/save_picture_424822.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424555.jpg" />
+  <img src="Z:/picture/008/save_picture_424555.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423783.jpg" />
+  <img src="Z:/picture/008/save_picture_423783.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423626.jpg" />
+  <img src="Z:/picture/008/save_picture_423626.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423622.jpg" />
+  <img src="Z:/picture/008/save_picture_423622.jpg" />
 </div>
 
 
@@ -297,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422405.jpg" />
+  <img src="Z:/picture/008/save_picture_422405.jpg" />
 </div>
 
 
@@ -323,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421469.jpg" />
+  <img src="Z:/picture/008/save_picture_421469.jpg" />
 </div>
 
 
@@ -349,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420560.jpg" />
+  <img src="Z:/picture/008/save_picture_420560.jpg" />
 </div>
 
 
@@ -375,7 +401,7 @@ Garmin: City Navigator North America NT 2016.20 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419993.jpg" />
+  <img src="Z:/picture/008/save_picture_419993.jpg" />
 </div>
 
 
@@ -401,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419991.jpg" />
+  <img src="Z:/picture/008/save_picture_419991.jpg" />
 </div>
 
 
@@ -430,7 +456,7 @@ Infernus: Verse 1.0.3 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_418431.jpg" />
+  <img src="Z:/picture/005/save_picture_418431.jpg" />
 </div>
 
 
@@ -456,7 +482,7 @@ Infernus: Verse 2 1.5 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_418428.jpg" />
+  <img src="Z:/picture/005/save_picture_418428.jpg" />
 </div>
 
 
@@ -485,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_418141.jpg" />
+  <img src="Z:/picture/005/save_picture_418141.jpg" />
 </div>
 
 
@@ -511,7 +537,7 @@ VLast NEXT - музыка ВКонтакте v4.8.7 [Ru] (Авторская р�
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418026.jpg" />
+  <img src="Z:/picture/008/save_picture_418026.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Find a Panda / Найди Панду v1.0.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417977.jpg" />
+  <img src="Z:/picture/008/save_picture_417977.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ ClickMe 0.7.9 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417875.jpg" />
+  <img src="Z:/picture/008/save_picture_417875.jpg" />
 </div>
 
 
@@ -590,7 +616,7 @@ mSecure Password Manager 4.0.4.004 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417811.jpg" />
+  <img src="Z:/picture/008/save_picture_417811.jpg" />
 </div>
 
 
@@ -618,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417730.jpg" />
+  <img src="Z:/picture/008/save_picture_417730.jpg" />
 </div>
 
 
@@ -647,7 +673,7 @@ Russian Rider v0.9 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416840.jpg" />
+  <img src="Z:/picture/008/save_picture_416840.jpg" />
 </div>
 
 
@@ -658,32 +684,6 @@ Russian Rider v0.9 [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B9B52E501B235E020F8C5D6FA0BE2388DF67BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063534   (416018) от 24.10.2016
-
-Дестини включает радио / Destiny Turns on the Radio (1995) WEB-DLRip [H.264] [MP4|1024x576]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джулиан Годдард бежит из тюрьмы и сразу направляется в Лас-Вегас, где надеется найти свою любовь Люсиль и, возможно, друга Торо с деньгами, из-за которых он и сел в тюрьму. Но Люсиль живет с хозяином казино, а друг бормочет о Дьяволе, вместе с которым деньги исчезли в ночную грозу на дне пересохшего теперь бассейна. Если бы Торо знал, что подвез Джулиана в Лас-Вегас (   Читать дальше...   )Производство: США / Rysher Entertainment, Savoy PicturesЖанр: Фэнтези,  Комедия, КриминалРежиссер: Джек БэранАктеры: Дилан МакДермотт, Нэнси Трэвис, Джеймс ЛеГрос, Квентин Тарантино, Джеймс Белуши, Джанет Кэрролл, Дэвид Кросс, Ричард Эдсон, Боб Голдтуэйт, Бэрри Шебака Хенли, Лиза Джейн Перски, Сара Триггер, Трейси УолтерПеревод: Многоголосый закадровый - (НТВ+), Одноголосый закадровый - (Андрей Гаврилов)Язык субтитров: АнглийскийПродолжительность: 01:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F592801AF5766FFD40A402BC4DBE77BAB011A6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

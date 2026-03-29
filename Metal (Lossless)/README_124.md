@@ -1,3 +1,90 @@
+###  Публикация: 1555519   (569064) от 04.06.2022
+
+The Algorithm - Data Renaissance (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,  Math Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_569064.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Segmentation Fault
+2. Interrupt Handler
+3. Decompilation
+4. Readonly(   Читать дальше...   )Жанр: Progressive Metal,  Math Metal, ElectronicПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C9BBF26FBD0FA8572BD950AB90B991755DC5315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555533   (569056) от 04.06.2022
+
+We are many we are legion - Parallelism (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Brass Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_569056.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Parallelism
+2. Hey Maniac
+3. I Am
+4. Die with me(   Читать дальше...   )Жанр: Progressive Metalcore, Brass Metal, ExperimentalПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC7BC95288685D89A0F79BC83DC64AEBA982BA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151951   (569040) от 21.07.2017
+
+Avernus - ...of the Fallen (1997) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_569040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Blood Gathers Frost	04:39
+02.	If I Could Exist	05:22
+03.	By Love's Will...Chaos	05:53
+04.	Rennissance	03:24(   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2059AE8346962E10381974CBFF7C1E08A76DE8DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151953   (568992) от 21.07.2017
 
 Belef - Infection Purification (2005) [APE|Lossless|image + .cue] <Black Metal>
@@ -6,7 +93,7 @@ Belef - Infection Purification (2005) [APE|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568992.jpg" />
+  <img src="Z:/picture/008/save_picture_568992.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ White Skull - Will of the Strong (2017) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568984.jpg" />
+  <img src="Z:/picture/008/save_picture_568984.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Sаbаtоn - Тhе Lаst Stаnd (2016) Limitеd Еditiоn [FLAC|Lossless|image +
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568935.jpg" />
+  <img src="Z:/picture/008/save_picture_568935.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Battlelore - The Return Of The Shadow (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568909.jpg" />
+  <img src="Z:/picture/008/save_picture_568909.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Anvil - Impact Is Imminent (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568905.jpg" />
+  <img src="Z:/picture/008/save_picture_568905.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Evergrey - A Heartless Portrait - The Orphean Testament (2022) [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568893.jpg" />
+  <img src="Z:/picture/008/save_picture_568893.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Edguy - Monuments (2017) 2CD [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568822.jpg" />
+  <img src="Z:/picture/008/save_picture_568822.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ The Oklahoma Kid - Tangerine Tragic (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568751.jpg" />
+  <img src="Z:/picture/008/save_picture_568751.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Desert - Never Regret (2015) [FLAC|image+.cue]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568229.jpg" />
+  <img src="Z:/picture/008/save_picture_568229.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ High on Fire - Luminiferous (2015) [FLAC|tracks+.cue]<Stoner Metal/Sludge Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568212.jpg" />
+  <img src="Z:/picture/008/save_picture_568212.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Fractal Gates - The Light That Shines (2018) [FLAC|Lossless|image + .cue] <Melod
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567952.jpg" />
+  <img src="Z:/picture/008/save_picture_567952.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Houwitser - Death... But Not Buried (1998) [FLAC|Lossless|image + .cue] <Brutal 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567506.jpg" />
+  <img src="Z:/picture/008/save_picture_567506.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Fatal Embrace - Slaughter To Survive (2015) [FLAC|Lossless|image + .cue] <Thrash
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567460.jpg" />
+  <img src="Z:/picture/008/save_picture_567460.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Dampf - The Arrival (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567359.jpg" />
+  <img src="Z:/picture/008/save_picture_567359.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Blood Red Throne - Union Of Flesh And Machine (2016) [FLAC|Lossless|tracks + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567293.jpg" />
+  <img src="Z:/picture/008/save_picture_567293.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Darklands - Darklands (1998) [FLAC|Lossless|image + .cue] <Gothic Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566004.jpg" />
+  <img src="Z:/picture/008/save_picture_566004.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ The Heretic Order - Evil Rising (2018) [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566003.jpg" />
+  <img src="Z:/picture/008/save_picture_566003.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Subterranean Masquerade - Suspended Animation Dreams (2005) [FLAC|Lossless|image
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565789.jpg" />
+  <img src="Z:/picture/008/save_picture_565789.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Islander - Power Under Control (2016) [FLAC|Lossless|image + .cue] <Alt.Metal, R
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565657.jpg" />
+  <img src="Z:/picture/008/save_picture_565657.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Powerized ‎ - The Mirror's Eye (2018) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565561.jpg" />
+  <img src="Z:/picture/008/save_picture_565561.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ The Healing - Elevate (2016) EP [FLAC|Lossless|tracks + .cue] <Progressive Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565556.jpg" />
+  <img src="Z:/picture/008/save_picture_565556.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Heavenwood - The Tarot Of The Bohemians [Pt.1] (2016) [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565543.jpg" />
+  <img src="Z:/picture/008/save_picture_565543.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Sinister - Dark Memorials (2015) Limited Edition [FLAC|Lossless|image + .cue] <D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565533.jpg" />
+  <img src="Z:/picture/008/save_picture_565533.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Sinister - Dark Memorials (2015) Limited Edition [FLAC|Lossless|image + .cue] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02FC8E35BC65C40835CFAD0BE7CD7F1B3C3C4191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044457   (565488) от 20.08.2016
-
-Russian Circles - Guidance (2016) [FLAC|Lossless|tracks + .cue] <Post-Rock, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asa
-02. Vorel
-03. Mota
-04. Afrika(   Читать дальше...   )Жанр: Post-Rock, Post-MetalПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB967831F2645C5BFCB3662C3FD02FB65D05D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555781   (565364) от 06.06.2022
-
-Unearth - III: In the Eyes of Fire (2006) [FLAC|Lossless|image + .cue] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.This Glorious Nightmare 04:20
-02.Giles 03:56
-03.March of the Mutes 03:58
-04.Sanctity of Brothers 03:26(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95D3FD82E63CDB01D843F231D8BE895C5E42095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555783   (565349) от 06.06.2022
-
-Raging Fury - Grotesque Masked Krusher (2019) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Demonic Beast Front 08:06
-02. Die Machine 05:57
-03. Cain Rose Up 03:51
-04. The Braizor 09:57(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55BF572145EE6B64E6AF37F758BB951141769D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

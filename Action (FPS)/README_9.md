@@ -1,3 +1,83 @@
+###  Публикация: 1120219   (802842) от 30.03.2017
+
+Narcosis (2017) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_802842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Попробуйте выжить в беспросветных глубинах Тихого океана.
+Оказавшись на дне океана почти без света и инструментов, промышленный водолаз отчаянно борется за жизнь — подняться на поверхность надо прежде, чем кончится кислород и наступит безумие.
+Эта история выживания рассказана от первого лица изнутри «ходячего гроба» — суперсовременного скафандра весом в полтонны, (   Читать дальше...   )Тип издания: RepackРазработчик: Honor Code, Inc.Жанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E129E0608355C7017955CCEDDE1004F4F2B95746
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505773   (802223) от 28.10.2021
+
+Agony Unrated (2018) [Ru/Multi] (1.0.0) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_802223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Agony – это приключенческий хоррор c видом от первого лица от польской компании MadMind Studio. В состав команды разработчиков входят ветераны индустрии, успевшие поработать над такими знаковыми проектами как The Witcher 3: Wild Hunt и Tom Clancy’s The Division.Тип издания: LicenseРазработчик: Madmind StudioЖанр: Экшн, Приключение, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B191A3C0F876ED25EB95790809558FBAC61271F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199156   (801402) от 15.01.2018
+
+DOOM (2016) [Ru/En] (6.66/upd8) Rip xatab
+
+>>След.
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_801402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огромный исследовательский комплекс Объединенной аэрокосмической корпорации на Марсе заполонили кровожадные демоны, готовящиеся покорить наш мир. И только один человек стоит у них на пути... DOOM возвращается. Легендарная игра, определившая саму суть жанра шутеров, снова с нами. Жестокий, агрессивный, бескомпромиссный и очень кровавый боевик разрабатывается силами (   Читать дальше...   )Тип издания: RipРазработчик: id Software и Certain AffinityЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554CC2B5585A7DBD8C70C61EAD835FCA5DC0913D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384653   (801320) от 21.05.2020
 
 Neversong (2020) [Ru/Multi] (1.0) License GOG (обновляемая)
@@ -6,7 +86,7 @@ Neversong (2020) [Ru/Multi] (1.0) License GOG (обновляемая)
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801320.jpg" />
+  <img src="Z:/picture/008/save_picture_801320.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ Call of Duty: Black Ops (2010) [Ru] (0.305-05.125430.1/dlc) Repack Other s [Coll
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800795.jpg" />
+  <img src="Z:/picture/008/save_picture_800795.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ The Persistence (2020) [Ru/Multi] (1.0HF) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800736.jpg" />
+  <img src="Z:/picture/008/save_picture_800736.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ George (2021) [En] (1.0rls) License SKIDROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800729.jpg" />
+  <img src="Z:/picture/008/save_picture_800729.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ The Persistence (2020) [Ru/Multi] (1.0/HotFix) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800694.jpg" />
+  <img src="Z:/picture/008/save_picture_800694.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ Gold Rush: The Game (2017) [Ru/Multi] (1.5.1.11018/dlc) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800524.jpg" />
+  <img src="Z:/picture/008/save_picture_800524.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ Kona (2017) [Multi] (1.0/upd1) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799956.jpg" />
+  <img src="Z:/picture/008/save_picture_799956.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ Ziggurat (2014) [Ru/Multi] (2018-05-08) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799877.jpg" />
+  <img src="Z:/picture/008/save_picture_799877.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ Singularity (2010) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799706.jpg" />
+  <img src="Z:/picture/008/save_picture_799706.jpg" />
 </div>
 
 
@@ -240,7 +320,7 @@ Ziggurat 2 (2021) [Ru/Multi] (2019.4.31.12409535) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798913.jpg" />
+  <img src="Z:/picture/008/save_picture_798913.jpg" />
 </div>
 
 
@@ -266,7 +346,7 @@ Syndrome (2016) [Ru/Multi] (1.06f) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798566.jpg" />
+  <img src="Z:/picture/008/save_picture_798566.jpg" />
 </div>
 
 
@@ -292,7 +372,7 @@ Distorted World (2021) [Ru/En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798202.jpg" />
+  <img src="Z:/picture/008/save_picture_798202.jpg" />
 </div>
 
 
@@ -318,7 +398,7 @@ Deep Rock Galactic (2020) [Ru/Multi] (1.35.63118/dlc) License CODEX [Season 01: 
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798043.jpg" />
+  <img src="Z:/picture/008/save_picture_798043.jpg" />
 </div>
 
 
@@ -344,7 +424,7 @@ Get Even (2017) [Ru/En] (1.0/u1) Repack xatab
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797847.jpg" />
+  <img src="Z:/picture/008/save_picture_797847.jpg" />
 </div>
 
 
@@ -370,7 +450,7 @@ Death Slayer V (2021) [En] (1.0) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797827.jpg" />
+  <img src="Z:/picture/008/save_picture_797827.jpg" />
 </div>
 
 
@@ -396,7 +476,7 @@ STRAFE (2017) [Ru/Multi] (23.05.2020/dlc) License GOG [Gold Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797062.jpg" />
+  <img src="Z:/picture/008/save_picture_797062.jpg" />
 </div>
 
 
@@ -422,7 +502,7 @@ Fossilfuel (2021) [En] (1.07/dlc) License PLAZA
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795360.jpg" />
+  <img src="Z:/picture/008/save_picture_795360.jpg" />
 </div>
 
 
@@ -448,7 +528,7 @@ Panacea: Last Will (2018) [Ru/En] (1.0) License PLAZA [Chapter 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794666.jpg" />
+  <img src="Z:/picture/008/save_picture_794666.jpg" />
 </div>
 
 
@@ -474,7 +554,7 @@ Bright Memory: Infinite (2021) [Ru/Multi] (1.0) License CODEX
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794533.jpg" />
+  <img src="Z:/picture/008/save_picture_794533.jpg" />
 </div>
 
 
@@ -500,7 +580,7 @@ Panacea: Last Will (2018) [Ru/En] (1.0) Repack Other s [Chapter 1]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794531.jpg" />
+  <img src="Z:/picture/008/save_picture_794531.jpg" />
 </div>
 
 
@@ -526,7 +606,7 @@ Tiny Tina's Assault on Dragon Keep: A Wonderlands One-shot Adventure (2021) [Mul
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793531.jpg" />
+  <img src="Z:/picture/008/save_picture_793531.jpg" />
 </div>
 
 
@@ -552,7 +632,7 @@ Skin Witch (2020) [Ru/Multi] (1.0.2) Repack Other s
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793160.jpg" />
+  <img src="Z:/picture/008/save_picture_793160.jpg" />
 </div>
 
 
@@ -578,7 +658,7 @@ PREY (2017) [Ru/Multi] (10966486/dlc) Repack Other s [Digital Deluxe Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793124.jpg" />
+  <img src="Z:/picture/008/save_picture_793124.jpg" />
 </div>
 
 
@@ -589,84 +669,6 @@ PREY (2017) [Ru/Multi] (10966486/dlc) Repack Other s [Digital Deluxe Edition]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E1DACC75827173EB8468DD465FAF8102DB652A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201343   (792649) от 24.01.2018
-
-Borderlands 2 (2013) [Ru] (1.8.4/dlc) License PLAZA [Game of the Year Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792649.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наступает новая пора в духе «стреляй-собирай»! В команде с тремя Охотниками за Хранилищем встретьтесь лицом к лицу с целым миром тварей, психов и злым гением — Красавчиком Джеком. Заводите друзей, снаряжайте их пушками из гигантского арсенала и отправляйтесь с напарниками сражаться плечом к плечу в поисках мести и искупления грехов на неизведанных еще территориях (   Читать дальше...   )Тип издания: LicenseРазработчик: Gearbox Software, Aspyr (Mac & Linux)Жанр: Action (Shooter), RPG, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E014A62F0021A272D112F1056156095A5A1B40A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509791   (792557) от 14.11.2021
-
-Beyond Enemy Lines (2021) [En] (2.1.0) License SKIDROW [Remastered Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792557.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир близок к ядерному апокалипсису, советская сепаратистская группировка захватила контрольную микросхему военного спутника. Это ваша работа - восстановить чип! Оснащенный современным оружием и оборудованием, вы действуете в абсолютной секретности как одинокий волк далеко за пределами линии врага.Тип издания: LicenseРазработчик: Enigma Entertainment, Polygon ArtЖанр: Action (FPS)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E83F5114B83E6A1478D0C44E98C90192C97E9556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509837   (792555) от 14.11.2021
-
-E.Y.E: Divine Cybermancy (2021) [En] (1.01) License GOG [Single-Player Edition]
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792555.jpg" />
-</div>
-
-
-###  Подробнее
-
-В роли члена странного секретного общества E.Y.E, вы просыпаетесь после сражения, в котором были убиты ваши напарники. E.Y.E — вооруженное подразделение Secreta Secretorum, пытающееся бороться с могущественной Федерацией — коалицией нескольких миров и планет, управляемых жестоким диктатором. Еще больше усложняют обстановку внутренние конфликты в E.Y.E между сторонами (   Читать дальше...   )Тип издания: LicenseРазработчик: Streum On StudioЖанр: Экш, От первого лица, Ролевая, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B22B46971DF4908050A4753B20A18E3A100587C
 ```
 
 https://mybot314.ru/tekegram_catalog/

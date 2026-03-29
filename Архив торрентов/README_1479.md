@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717217.jpg" />
+  <img src="Z:/picture/008/save_picture_717217.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Zoner Photo Studio Professional 17 Build 9 DC 27.04.2015 RePack by KpoJIuK [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717206.jpg" />
+  <img src="Z:/picture/008/save_picture_717206.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Display Driver Uninstaller 15.1.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717201.jpg" />
+  <img src="Z:/picture/008/save_picture_717201.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ Ashampoo Snap 10.0.6 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717173.jpg" />
+  <img src="Z:/picture/008/save_picture_717173.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Ashampoo Driver Updater 1.2.0.49468 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717167.jpg" />
+  <img src="Z:/picture/008/save_picture_717167.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717166.jpg" />
+  <img src="Z:/picture/008/save_picture_717166.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Macrium Reflect 7.1.2963 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717161.jpg" />
+  <img src="Z:/picture/008/save_picture_717161.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Eon Timer 2.8.2 (build 978) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717111.jpg" />
+  <img src="Z:/picture/008/save_picture_717111.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717100.jpg" />
+  <img src="Z:/picture/008/save_picture_717100.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717097.jpg" />
+  <img src="Z:/picture/008/save_picture_717097.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ Q-Dir 8.69 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717095.jpg" />
+  <img src="Z:/picture/008/save_picture_717095.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ JetBrains WebStorm 10.0.2 Build #WS-141.728 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717088.jpg" />
+  <img src="Z:/picture/008/save_picture_717088.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Video Thumbnails Maker Platinum 6.5.0.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717087.jpg" />
+  <img src="Z:/picture/008/save_picture_717087.jpg" />
 </div>
 
 
@@ -356,7 +356,7 @@ MyLanViewer 4.18.7 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717084.jpg" />
+  <img src="Z:/picture/008/save_picture_717084.jpg" />
 </div>
 
 
@@ -382,7 +382,7 @@ World of Tanks Mods (2015) [Ru] (18.5) Mod Jove [Extended] [Сборка мод�
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717077.jpg" />
+  <img src="Z:/picture/008/save_picture_717077.jpg" />
 </div>
 
 
@@ -408,7 +408,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717076.jpg" />
+  <img src="Z:/picture/008/save_picture_717076.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Permute 3 v3.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717069.jpg" />
+  <img src="Z:/picture/008/save_picture_717069.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ SPlayerX 4.0.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717068.jpg" />
+  <img src="Z:/picture/008/save_picture_717068.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Affinity Photo Beta 1.7.0 (111) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717066.jpg" />
+  <img src="Z:/picture/008/save_picture_717066.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717062.jpg" />
+  <img src="Z:/picture/008/save_picture_717062.jpg" />
 </div>
 
 
@@ -542,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717061.jpg" />
+  <img src="Z:/picture/008/save_picture_717061.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717060.jpg" />
+  <img src="Z:/picture/008/save_picture_717060.jpg" />
 </div>
 
 
@@ -600,7 +600,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717059.jpg" />
+  <img src="Z:/picture/008/save_picture_717059.jpg" />
 </div>
 
 
@@ -629,7 +629,7 @@ Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.5023.
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717037.jpg" />
+  <img src="Z:/picture/008/save_picture_717037.jpg" />
 </div>
 
 
@@ -655,7 +655,7 @@ Microsoft Office 2013 SP1 Standard 15.0.5023.1000 (2018.04) RePack by KpoJIuK [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717035.jpg" />
+  <img src="Z:/picture/008/save_picture_717035.jpg" />
 </div>
 
 
@@ -681,7 +681,7 @@ Microsoft Office Professional 2003 SP3 (2018.04) RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717029.jpg" />
+  <img src="Z:/picture/008/save_picture_717029.jpg" />
 </div>
 
 

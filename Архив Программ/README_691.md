@@ -6,7 +6,7 @@ Cockos - REAPER 5.972 + Portable (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701074.jpg" />
+  <img src="Z:/picture/008/save_picture_701074.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Mirillis Splash 2.6.1.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701072.jpg" />
+  <img src="Z:/picture/008/save_picture_701072.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ AOMEI Partition Assistant Technician Edition 8.1.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701067.jpg" />
+  <img src="Z:/picture/008/save_picture_701067.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Blackmagic Design DaVinci Resolve Studio 15.3.0.008 RePack by KpoJIuK + Componen
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701064.jpg" />
+  <img src="Z:/picture/008/save_picture_701064.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ AlReader v2.5.100925 [Русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_701044.jpg" />
+  <img src="Z:/picture/005/save_picture_701044.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701043.jpg" />
+  <img src="Z:/picture/008/save_picture_701043.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ Adobe Photoshop 2020 21.2.2.289 (x64) RePack by SanLex [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701038.jpg" />
+  <img src="Z:/picture/008/save_picture_701038.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.5032.1000 VL (x86)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701022.jpg" />
+  <img src="Z:/picture/008/save_picture_701022.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Corel VideoStudio Ultimate 2022 25.0.0.373 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700983.jpg" />
+  <img src="Z:/picture/008/save_picture_700983.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ ScrollNavigator 5.6.0 RePack by KpoJIuK [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700959.jpg" />
+  <img src="Z:/picture/008/save_picture_700959.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ AOMEI Partition Assistant Technician Edition 8.1.0 (Repack & Portable) by elchup
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700931.jpg" />
+  <img src="Z:/picture/008/save_picture_700931.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ MSI Afterburner 4.6.0 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700930.jpg" />
+  <img src="Z:/picture/008/save_picture_700930.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ FlashBoot 2.1f + Portable  [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_700916.jpg" />
+  <img src="Z:/picture/005/save_picture_700916.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ Parkdale 2.95 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700866.jpg" />
+  <img src="Z:/picture/008/save_picture_700866.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ Unchecky 0.3.7.5 beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700860.jpg" />
+  <img src="Z:/picture/008/save_picture_700860.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ V-Ray Next 4.10.02 for 3ds Max 2013-2019 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700802.jpg" />
+  <img src="Z:/picture/008/save_picture_700802.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ PDF-XChange Viewer Pro 2.5.322.0 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700770.jpg" />
+  <img src="Z:/picture/008/save_picture_700770.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ K-Lite Codec Pack Update 13.1.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700769.jpg" />
+  <img src="Z:/picture/008/save_picture_700769.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Comodo Dragon 57.0.2987.92 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700722.jpg" />
+  <img src="Z:/picture/008/save_picture_700722.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ Slimjet 14.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700717.jpg" />
+  <img src="Z:/picture/008/save_picture_700717.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Wise Disk Cleaner 9.47.663 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700709.jpg" />
+  <img src="Z:/picture/008/save_picture_700709.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ ActivePresenter Professional Edition 7.2.3 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700640.jpg" />
+  <img src="Z:/picture/008/save_picture_700640.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ K-Lite Codec Pack Update 14.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700634.jpg" />
+  <img src="Z:/picture/008/save_picture_700634.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ PDF-XChange Viewer Pro 2.5.322.0 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700633.jpg" />
+  <img src="Z:/picture/008/save_picture_700633.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ PDF-XChange Editor Plus 6.0.322.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700625.jpg" />
+  <img src="Z:/picture/008/save_picture_700625.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ DriverPack Solution 15.5 + Драйвер-Паки 15.04.5 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700591.jpg" />
+  <img src="Z:/picture/008/save_picture_700591.jpg" />
 </div>
 
 

@@ -6,7 +6,7 @@ Visions of Morpheus - Lost Within (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124178.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Armik - Spanish Lover / Illuminate (2021/2022) [FLAC 24/96|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123809.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123809.jpg" />
 </div>
 
 
@@ -63,7 +63,7 @@ Ryan Adams - Sword and Stone (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123651.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ Cobra Kraft - The Baptism of Pedro del Zorro (2023) [FLAC 24/96|Lossless|WEB-DL|
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123647.jpg" />
 </div>
 
 
@@ -121,7 +121,7 @@ Mountain Gators Band - Lemmings (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blue
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123643.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123643.jpg" />
 </div>
 
 
@@ -150,7 +150,7 @@ Ryan Adams - Prisoners (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123626.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123626.jpg" />
 </div>
 
 
@@ -179,7 +179,7 @@ Klipa Trio - Miatanu (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123625.jpg" />
 </div>
 
 
@@ -208,7 +208,7 @@ Ryan Adams - Heatwave (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123621.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123621.jpg" />
 </div>
 
 
@@ -237,7 +237,7 @@ Layla Zoe - Back to the Spirit of 66 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123387.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Masterdark - In the Dark (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <gothiс, 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123301.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy 560 (2024) [FLAC 24/44.1|Lossl
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123279.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123279.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Magnum - Here Comes The Rain (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melod
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123265.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Liva - Ecce Mundus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123262.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Ryan Adams - Star Sign (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123256.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ Sodom - 1982 (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal, Expe
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123255.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Ryan Adams - 1985 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123254.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123254.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.1 (2023) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123248.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123248.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.2 (2023) [FLAC
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123246.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123246.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ Athemon - Athemon (2022) Reissue, 2024, Athemon [FLAC 24/44.1|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123242.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123242.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123125.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123125.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Exit Eden - Femmes Fatales (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphon
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123111.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123111.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ Russell - Guns (Jack Russell, Tracii Guns) - Medusa (2024) [FLAC 24/44.1|Lossles
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123091.jpg" />
 </div>
 
 
@@ -640,7 +640,7 @@ Neal Morse - The Restoration - Joseph: Part Two (2024) [FLAC 24/48|Lossless|WEB-
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123086.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ The Grandmaster - Black Sun (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123070.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123070.jpg" />
 </div>
 
 
@@ -698,7 +698,7 @@ Ryujin - RYUJIN (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Metal, Melodic Death
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123064.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123064.jpg" />
 </div>
 
 
@@ -727,7 +727,7 @@ Alluvial - Death Is But A Door (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123050.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123050.jpg" />
 </div>
 
 

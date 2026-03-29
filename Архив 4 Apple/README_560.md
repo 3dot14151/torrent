@@ -1,3 +1,107 @@
+###  Публикация: 1652830   (216334) от 13.08.2023
+
+DJ Mix Pads 2 - Remix Version 5.5.21 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216334.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ Mix Pads 2 - Remix Version - это уникальное приложение для музыкантов, которая включает все необходимое для создания битов.Тип издания: macOS SoftwareРелиз состоялся: 03.08.2023Разработчик: © 2023 Music Paradise, LLCПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263CA24D33DD9A7A84989045914888AADB6B1539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270053   (216305) от 17.12.2018
+
+SnippetsLab 1.8.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшите свою производительность вместо с SnippetsLab. SnippetsLab — это простой в использовании менеджер фрагментов кода. Он позволяет вам структурировано и организованно хранить сниппеты, легко находить нужные, а также синхронизировать их между устройствами через iCloud. Интерфейс SnippetsLab минималистичен и оптимизирован для OS X Yosemite.Тип издания: macOS SoftwareРелиз состоялся: 16.12.2018Разработчик: Renfei SongПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4903E74CEC7412B80EFD68403DCB8179CE4066C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269998   (216269) от 17.12.2018
+
+KCNcrew Pack 12.15.18 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216269.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.12.2018Разработчик: iSerialПоддерживаемая ОС: macOS 10.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE4FF4724C5F6BE1C3B1193D29A71DC94DE5B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270035   (216244) от 17.12.2018
+
+Permute 3 v3.0.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Permute - очень простой видео конвертер с минимальными настройками и поддержкой drag & drop. Просто перетащите исходный файл на окно программы, выберите профиль (XBox, Apple TV, iPhone и т.д.) и нажмите кнопку "Start", все остальное программа сделает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 15.12.2018Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B3B16D54C80A8F2BEEEAB36A40E9016400E1832
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085024   (216243) от 20.12.2016
 
 Duplicate File Finder Pro 4.2 [En]
@@ -6,7 +110,7 @@ Duplicate File Finder Pro 4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216243.jpg" />
 </div>
 
 
@@ -35,7 +139,7 @@ iTrash 4.1.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_216235.jpg" />
+  <img src="Z:/picture/005/save_picture_216235.jpg" />
 </div>
 
 
@@ -61,7 +165,7 @@ EdgeView 2 v2.510 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216216.jpg" />
 </div>
 
 
@@ -87,7 +191,7 @@ Dash 4.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216203.jpg" />
 </div>
 
 
@@ -113,7 +217,7 @@ NeoFinder Business 7.3.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216180.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216180.jpg" />
 </div>
 
 
@@ -139,7 +243,7 @@ Beyond Compare 4.1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216095.jpg" />
 </div>
 
 
@@ -168,7 +272,7 @@ Swinsian 2.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216093.jpg" />
 </div>
 
 
@@ -194,7 +298,7 @@ Devonthink Pro Office 2.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216058.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216058.jpg" />
 </div>
 
 
@@ -220,7 +324,7 @@ All to MP3 Audio Converter 3.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216051.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216051.jpg" />
 </div>
 
 
@@ -246,7 +350,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.9.23 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_216033.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_216033.jpg" />
 </div>
 
 
@@ -273,7 +377,7 @@ Tipard Blu-ray Converter for Mac 9.2.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216029.jpg" />
 </div>
 
 
@@ -299,7 +403,7 @@ Movavi Screen Capture 4 v4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215964.jpg" />
 </div>
 
 
@@ -328,7 +432,7 @@ Wondershare Filmora 9.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215941.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215941.jpg" />
 </div>
 
 
@@ -354,7 +458,7 @@ Mirror for Sony TV 3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215913.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215913.jpg" />
 </div>
 
 
@@ -383,7 +487,7 @@ Disk Drill Enterprise 3.1.769 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215818.jpg" />
 </div>
 
 
@@ -410,7 +514,7 @@ Blocs 3.0.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215813.jpg" />
 </div>
 
 
@@ -439,7 +543,7 @@ CleanMyMac X 4.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215769.jpg" />
 </div>
 
 
@@ -467,7 +571,7 @@ EdgeView 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215618.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215618.jpg" />
 </div>
 
 
@@ -493,7 +597,7 @@ Default Folder X 6.0 b2 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215600.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215600.jpg" />
 </div>
 
 
@@ -519,7 +623,7 @@ RAW Power 3.4.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215588.jpg" />
 </div>
 
 
@@ -546,7 +650,7 @@ Permute 3 v.3.10.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215572.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215572.jpg" />
 </div>
 
 
@@ -572,7 +676,7 @@ Iridient Developer for Mac 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_215554.jpg" />
 </div>
 
 
@@ -583,111 +687,6 @@ Iridient Developer - мощное приложение для обработки
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CEAC03079FA8881FC54DDFA60D964051ECCD944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653141   (215547) от 14.08.2023
-
-4K Stogram Pro for Mac 4.6.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215547.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 11.08.2023Разработчик: © 2022 OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0802ECB22E1AB6F5F317A49212400EC3069A9D73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653063   (215539) от 14.08.2023
-
-Magic Battery 7.8.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Magic Battery показывает уровень заряда батареи поддерживаемых устройств ввода и наушников, подключенных через Bluetooth, в строке меню. Также поддерживаются внутренние батареи.
-Информация о батарее будет отображаться в строке меню и в главном окне.Тип издания: macOS SoftwareРелиз состоялся: 14.08.2023Разработчик: © 2017-2023 Sascha SimonПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA899CEB2BB515F187AEF76196D9BD74FE69DF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653049   (215525) от 14.08.2023
-
-OmniReader Pro for Mac 2.3.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215525.jpg" />
-</div>
-
-
-###  Подробнее
-
-OmniReader - полифункциональное приложение для чтения книг с простым и красивым интерфейсом и хорошим опытом чтения.Тип издания: macOS SoftwareРелиз состоялся: 13.08.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B964FCCF12EC1532551C3D3FA60BA3A7CBB53E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653135   (215506) от 14.08.2023
-
-AYVY 1.21.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_215506.jpg" />
-</div>
-
-
-###  Подробнее
-
-С AYVY вы, наконец, можете прекратить поиски красивой, простой, быстрой и удобной программы просмотра мультимедиа. Мы сделали все, что вам нужно.Тип издания: macOS SoftwareРелиз состоялся: 02.10.2022Разработчик: © 2022-2023 Sergiy LavrykПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDEA51FB4B50E52C473AE7B10030D87BEAF86FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

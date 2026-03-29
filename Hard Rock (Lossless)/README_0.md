@@ -1,3 +1,61 @@
+###  Публикация: 1842751   (1048902) от 16.12.2025
+
+Dangerous Toys - Industry & Seduction : Demolition (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1048902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dangerous Toys - рок-группа из Austin, Texas, известная своими часто юмористическими текстами была основана в 1987 году. Группа выпустила четыре полноформатных альбома и один концертный альбом, прежде чем неофициально распалась на рубеже тысячелетий. Банда добилась успеха в мейнстриме со своим дебютным альбомом Dangerous Toys (1989), который получил золотой статус (   Читать дальше...   )01. Rock Shock Cowboy (4:23)
+02. Come Out Swinging (3:03)
+03. Rattle My Cage (3:36)
+04. Rhapsody In Barbed Wire (3:24)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1559614DFC34FE3B79E78EC0D05BF577F91481C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841970   (1048409) от 13.12.2025
+
+Lynch Mob - Dancing With The Devil (2025) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_1048409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом Dancing with the Devil, созданный легендарным гитаристом George Lynch и его группой Lynch Mob, представляет собой смелое и бескомпромиссное завершение музыкальной карьеры, ставящее точку в славной главе истории американского хард-рока. Этот альбом знаменует собой окончательное прощание группы, после завершения всех гастролей и концертной деятельности, - достойный (   Читать дальше...   )01. Dancing With the Devil (4:30)
+02. Pictures of the Dead (3:20)
+03. Saints and Sinners (3:10)
+04. Lift Up Your Soul (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C771E2A1122F4785AEFFF7E71AD66B75E032AE89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840113   (1047000) от 03.12.2025
 
 Stryper - The Greatest Gift Of All (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -6,7 +64,7 @@ Stryper - The Greatest Gift Of All (2025) [FLAC|Lossless|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1047000.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1047000.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Lynch Mob - Dancing With The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046631.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Buckcherry - Black Butterfly (2008) Deluxe, 2025, Endurance Music Group [FLAC 16
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046613.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046613.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ AC&DC - From Down Under (1980) 1990, Unofficial Release [FLAC|Lossless|image + .
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046571.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046571.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Joe Riley - The Axeman Unleashed (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046443.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Broken Silence - Discerning The Times (1995) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046355.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Sammy Hagar & The Circle - Crazy Times (2022) 2xCD, Japanese Edition [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046341.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Innocent - Innocent (1997) Japanese Edition, Reissue, 1998, meldac Corporation [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046318.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Steele - Steele (1996) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046266.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046266.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ N.Y. Fury - I Want It All (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046255.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Loud House - Tonight Only (1995) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046223.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ Legacy - Legacy (1998) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046222.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ Hilljack - Hilljack (1997) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046221.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Beggars & Thieves - Beggars & Thieves (1990) Japanese Edition [FLAC|Lossless|ima
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046216.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046216.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Falcon - Mystery (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic H
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046215.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046215.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Legend - Legend (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046149.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046149.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ Ignition - Ignition (2003) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046145.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046145.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Euler - Lurking in the Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046090.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Allison - One (1993) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045869.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Number Nine - Guilty (1997) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045865.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045865.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Chuck Wright's Sheltering Sky - Chuck Wright's Sheltering Sky (2022) [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045513.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Jared James Nichols - Jared James Nichols (2023) [FLAC|Lossless|WEB-DL|tracks] <
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045385.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045385.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Shylock - Shylock (1999) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045230.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Oslo - Don't Turn Your Back (1991) Reissue, Remastered, 2022, Metallic Blue Reco
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045228.jpg" />
 </div>
 
 
@@ -687,64 +745,6 @@ Oslo - Don't Turn Your Back (1991) Reissue, Remastered, 2022, Metallic Blue Reco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C3F3C4C1050290B9ECA17C211CD5E08BE608C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604790   (1045223) от 15.01.2023
-
-Bad Sister - Where Will You Go (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lose Or Win (4:19)
-02. Feels Like Lov (3:51)
-03. Bright Lights (4:20)
-04. Don't Need Me (4:39)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D5167F154D1F906D5497B7E95D9489E928F6BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164389   (1045130) от 15.01.2023
-
-The Sweet (Sweet) - 38 albums, 3 Box-sets, 78CD (1971-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Glam Rock, Classic Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sweet (до 1974 года The Sweet) — британская рок-группа, образовавшаяся в Лондоне, Англия, в 1968 году. Первую известность The Sweet получили в начале 1970-х годов благодаря серии бабблгам-синглов, затем — на своём творческом пике — стали частью британского глэм-рок-движения; наконец, утяжелили звук и приблизились к хард-роковому звучанию. Альбомы Sweet не становились (   Читать дальше...   )--------------------------
-
-01. Blockbuster! (3:14)
-02. Fox On The Run (3:24)(   Читать дальше...   )Жанр: Glam Rock, Classic Rock, Pop Rock |Продолжительность: 3d 1:23:23 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DF9B66FF3C3379108F9C2BEC7215298CC463B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

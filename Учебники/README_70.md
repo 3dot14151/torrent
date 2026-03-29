@@ -1,3 +1,59 @@
+###  Публикация: 577750   (354850) от 20.11.2012
+
+В.Д. Черненко | Высшая математика в примерах и задачах: Учебное пособие для вузов. [2003] [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_354850.jpg" />
+</div>
+
+
+###  Подробнее
+
+т.1 содержит краткий теоретический материал по определителям и матрицам, системам линейных уравнений, векторной и линейной алгебре, аналитической геометрии на плоскости и в пространстве, функциям и вычислению, пределов, дифференциальному исчислению функций одной и нескольких переменных, приложениям дифференциального исчисления к геометрии, неопределенному и определенному интегралам и приложениям определенного интеграла к задачам геометрии, механики и физики, а также большое количество примеров, иллюстрирующих основные методы решения.
+
+т. 2 содержит краткий теоретический материал по рядам Фурье, двойным, тройным, криволинейным, поверхностным интегралам и их приложениям к задачам геометрии, механики и физики, векторному анализу, функциям комплексных переменных, операционному исчислению и методам интегрирования уравнений в частных производных, а также большое количество примеров, иллюстрирующих основные методы решения.
+
+т. 3 содержит краткий теоретический материал по тензорному исчислению, численным методам высшего (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8C114A1723BCF95CBEE48A0CCE2D98A2FA955F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256660   (354030) от 22.10.2018
+
+Л.А. Алимов, В.В. Воронин | Строительные материалы (2012) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_354030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник создан в соответствии с требованиями Федерального государственного образовательного стандарта по направлению «Строительство» (квалификация «бакалавр»). Изложены основы строительного материаловедения, строение и свойства строительных материалов: природных каменных, теплоизоляционных, гидроизоляционных, металлов, стекла, полимеров. Показаны перспективы дальнейшего (   Читать дальше...   )Жанр: Строительство, ремонтФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F403A7729F7FCF175F01F54E42BDACF4255179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256481   (353727) от 22.10.2018
 
 В.Г. Зелевинский | Квантовая физика [3 тома] (2014-2015) [PDF]
@@ -6,7 +62,7 @@
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353727.jpg" />
+  <img src="Z:/picture/008/save_picture_353727.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353409.jpg" />
+  <img src="Z:/picture/008/save_picture_353409.jpg" />
 </div>
 
 
@@ -58,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353323.jpg" />
+  <img src="Z:/picture/008/save_picture_353323.jpg" />
 </div>
 
 
@@ -84,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352824.jpg" />
+  <img src="Z:/picture/008/save_picture_352824.jpg" />
 </div>
 
 
@@ -111,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351964.jpg" />
+  <img src="Z:/picture/008/save_picture_351964.jpg" />
 </div>
 
 
@@ -137,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351275.jpg" />
+  <img src="Z:/picture/008/save_picture_351275.jpg" />
 </div>
 
 
@@ -163,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351108.jpg" />
+  <img src="Z:/picture/008/save_picture_351108.jpg" />
 </div>
 
 
@@ -189,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350817.jpg" />
+  <img src="Z:/picture/008/save_picture_350817.jpg" />
 </div>
 
 
@@ -215,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_350343.jpg" />
+  <img src="Z:/picture/008/save_picture_350343.jpg" />
 </div>
 
 
@@ -241,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349771.jpg" />
+  <img src="Z:/picture/008/save_picture_349771.jpg" />
 </div>
 
 
@@ -267,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_349301.jpg" />
+  <img src="Z:/picture/008/save_picture_349301.jpg" />
 </div>
 
 
@@ -293,7 +349,7 @@ C.А. Борминский | Электротехника и электрони�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348986.jpg" />
+  <img src="Z:/picture/008/save_picture_348986.jpg" />
 </div>
 
 
@@ -320,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347751.jpg" />
+  <img src="Z:/picture/008/save_picture_347751.jpg" />
 </div>
 
 
@@ -347,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346810.jpg" />
+  <img src="Z:/picture/008/save_picture_346810.jpg" />
 </div>
 
 
@@ -373,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345591.jpg" />
+  <img src="Z:/picture/008/save_picture_345591.jpg" />
 </div>
 
 
@@ -403,7 +459,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345289.jpg" />
+  <img src="Z:/picture/008/save_picture_345289.jpg" />
 </div>
 
 
@@ -433,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344510.jpg" />
+  <img src="Z:/picture/008/save_picture_344510.jpg" />
 </div>
 
 
@@ -459,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344453.jpg" />
+  <img src="Z:/picture/008/save_picture_344453.jpg" />
 </div>
 
 
@@ -485,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344434.jpg" />
+  <img src="Z:/picture/008/save_picture_344434.jpg" />
 </div>
 
 
@@ -511,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344122.jpg" />
+  <img src="Z:/picture/008/save_picture_344122.jpg" />
 </div>
 
 
@@ -538,7 +594,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342162.jpg" />
+  <img src="Z:/picture/008/save_picture_342162.jpg" />
 </div>
 
 
@@ -564,7 +620,7 @@ C.Е. Ерошенко и др. | Проектирование оборудов�
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341999.jpg" />
+  <img src="Z:/picture/008/save_picture_341999.jpg" />
 </div>
 
 
@@ -590,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341800.jpg" />
+  <img src="Z:/picture/008/save_picture_341800.jpg" />
 </div>
 
 
@@ -617,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Учебники
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341675.jpg" />
+  <img src="Z:/picture/008/save_picture_341675.jpg" />
 </div>
 
 
@@ -628,60 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CEF7760FBFC58FBDF9A83C1DAAA2C8265274F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180547   (340014) от 04.11.2017
-
-В. Яворский, Г. Яворская | Введение в информационные технологии (2010) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Использование современных информационных технологий в сфере управления обеспечивает повышение качества экономической информации, её точности, объективности, оперативности, решает проблемы развития информатизаций общества и всей жизнедеятельности в стране.
-Целью данного пособия является обучение современным информационным технологиям, использованию достоверной информации, (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E4B37EF91784D7E238CB7C9DCBB21B2E832847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180533   (339876) от 04.11.2017
-
-А.Т. Хроленко, А.В. Денисов | Современные информационные технологии для гуманитария. Практическое руководство (2018) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как повысить свой профессиональный уровень с помощью различных форм дистанционного обучения, образовательных порталов и сайтов, как использовать компьютерные технологии в научно-исследовательской работе, как организовать информационную поддержку труда гуманитария — ответы на эти вопросы дает практическое руководство.
-Для студентов, аспирантов и преподавателей гуманитарных (   Читать дальше...   )Жанр: Компьютерная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5A67047AF9180C708F870239A13EA5E55315C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744145.jpg" />
+  <img src="Z:/picture/008/save_picture_744145.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744135.jpg" />
+  <img src="Z:/picture/008/save_picture_744135.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ TinkerTool System 6.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744128.jpg" />
+  <img src="Z:/picture/008/save_picture_744128.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Slimjet 27.0.3.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744081.jpg" />
+  <img src="Z:/picture/008/save_picture_744081.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744078.jpg" />
+  <img src="Z:/picture/008/save_picture_744078.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ PrivaZer 4.0.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744070.jpg" />
+  <img src="Z:/picture/008/save_picture_744070.jpg" />
 </div>
 
 
@@ -167,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744040.jpg" />
+  <img src="Z:/picture/008/save_picture_744040.jpg" />
 </div>
 
 
@@ -193,7 +193,7 @@ Microsoft Edge 84.0.522.40 (Chromium) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744017.jpg" />
+  <img src="Z:/picture/008/save_picture_744017.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744002.jpg" />
+  <img src="Z:/picture/008/save_picture_744002.jpg" />
 </div>
 
 
@@ -248,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744001.jpg" />
+  <img src="Z:/picture/008/save_picture_744001.jpg" />
 </div>
 
 
@@ -277,7 +277,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744000.jpg" />
+  <img src="Z:/picture/008/save_picture_744000.jpg" />
 </div>
 
 
@@ -306,7 +306,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_743999.jpg" />
+  <img src="Z:/picture/005/save_picture_743999.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743997.jpg" />
+  <img src="Z:/picture/008/save_picture_743997.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ Smokie - Bright Lights & Back Alleys (1983) [FLAC 2.0 24/192|traks(Vinil-Rip)]<S
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743984.jpg" />
+  <img src="Z:/picture/008/save_picture_743984.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ WhatsApp 2.2029.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743972.jpg" />
+  <img src="Z:/picture/008/save_picture_743972.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ MEGAsync 4.3.3 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743971.jpg" />
+  <img src="Z:/picture/008/save_picture_743971.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Java SE Development Kit 14.0.2 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743963.jpg" />
+  <img src="Z:/picture/008/save_picture_743963.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Calibre 4.21.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743960.jpg" />
+  <img src="Z:/picture/008/save_picture_743960.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_743958.jpg" />
+  <img src="Z:/picture/005/save_picture_743958.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743954.jpg" />
+  <img src="Z:/picture/008/save_picture_743954.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Permute 2.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743943.jpg" />
+  <img src="Z:/picture/008/save_picture_743943.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ iSoftPhone Pro 4.1010 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743941.jpg" />
+  <img src="Z:/picture/008/save_picture_743941.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Damian Fink - Dancetronic (2016) [MP3|320 кб/с] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743939.jpg" />
+  <img src="Z:/picture/008/save_picture_743939.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Omni Recover 3 v3.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743935.jpg" />
+  <img src="Z:/picture/008/save_picture_743935.jpg" />
 </div>
 
 
@@ -669,7 +669,7 @@ aText 2.40.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743934.jpg" />
+  <img src="Z:/picture/008/save_picture_743934.jpg" />
 </div>
 
 
@@ -695,7 +695,7 @@ SyncBird Pro 3.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743928.jpg" />
+  <img src="Z:/picture/008/save_picture_743928.jpg" />
 </div>
 
 

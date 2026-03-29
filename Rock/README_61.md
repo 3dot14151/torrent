@@ -1,3 +1,32 @@
+###  Публикация: 949170   (379372) от 22.10.2015
+
+Rod Stewart - Another Country (2015) Deluxe Edition [MP3|320 кб/с]<Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_379372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is
+ 02. Please
+ 03. Walking In The Sunshine
+ 04. Love And Be Loved(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531AF1189176A409399EC704F5EC34B0EEFD30C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575142   (379347) от 08.09.2022
 
 Stratovarius - Episode (1996) Reissue, 2002, Victor [OGG Vorbis|485 Kbps] <Rock>
@@ -6,7 +35,7 @@ Stratovarius - Episode (1996) Reissue, 2002, Victor [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379347.jpg" />
+  <img src="Z:/picture/008/save_picture_379347.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Handwrist - Green Tourist (2016) [MP3|320 Kbps] <Psychedelic, Post-Rock, Progres
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378450.jpg" />
+  <img src="Z:/picture/008/save_picture_378450.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Ariel Pink's Haunted Graffiti - Mature Themes (2012) [MP3|320 кб/с]<Psychedel
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378423.jpg" />
+  <img src="Z:/picture/008/save_picture_378423.jpg" />
 </div>
 
 
@@ -99,7 +128,7 @@ VA - MOJO Presents. Let It Be. Revisited (tribute) (2010) [MP3|320 кб/с]<Clas
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377416.jpg" />
+  <img src="Z:/picture/008/save_picture_377416.jpg" />
 </div>
 
 
@@ -128,7 +157,7 @@ VA - Mojo presents. Return To The Dark Side Of The Moon (2011) [MP3|320 кб/с]
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377338.jpg" />
+  <img src="Z:/picture/008/save_picture_377338.jpg" />
 </div>
 
 
@@ -157,7 +186,7 @@ Wired Ways - Wired Ways (2022) [MP3|320 Kbps] <Retro Prog, Classic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377201.jpg" />
+  <img src="Z:/picture/008/save_picture_377201.jpg" />
 </div>
 
 
@@ -186,7 +215,7 @@ Northern Revival - Modification (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Sludg
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377200.jpg" />
+  <img src="Z:/picture/008/save_picture_377200.jpg" />
 </div>
 
 
@@ -215,7 +244,7 @@ Stratovarius - Visions (1997) Remastered, 1997, T&T [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377199.jpg" />
+  <img src="Z:/picture/008/save_picture_377199.jpg" />
 </div>
 
 
@@ -244,7 +273,7 @@ High Tone Son of a Bitch - Live At The Hallowed Halls (2022) [MP3|320 Kbps] <Hea
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377198.jpg" />
+  <img src="Z:/picture/008/save_picture_377198.jpg" />
 </div>
 
 
@@ -273,7 +302,7 @@ Skid Row - The Gang's All Here (2022) [MP3|320 Kbps] <Hard Rock, Glam Metal>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377003.jpg" />
+  <img src="Z:/picture/008/save_picture_377003.jpg" />
 </div>
 
 
@@ -302,7 +331,7 @@ KMFDM - Hyena (2022) [MP3|320 Kbps] <Progressive Rock, Industrial Rock, Electro-
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377002.jpg" />
+  <img src="Z:/picture/008/save_picture_377002.jpg" />
 </div>
 
 
@@ -331,7 +360,7 @@ Weddings - Book of Spells (2022) [MP3|320 Kbps] <Heavy Psych, Stoner, Grunge>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376997.jpg" />
+  <img src="Z:/picture/008/save_picture_376997.jpg" />
 </div>
 
 
@@ -360,7 +389,7 @@ Abrams - In The Dark (2022) [MP3|320 Kbps] <Stoner Rock, Heavy Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376992.jpg" />
+  <img src="Z:/picture/008/save_picture_376992.jpg" />
 </div>
 
 
@@ -389,7 +418,7 @@ Scream Of The Butterfly - 2 Albums (2020-2022) [MP3|320 Kbps] <Heavy Stoner Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376916.jpg" />
+  <img src="Z:/picture/008/save_picture_376916.jpg" />
 </div>
 
 
@@ -418,7 +447,7 @@ Jimmy Barnes - The Rhythm And The Blues (2009) [MP3|320 кб/с]<Rock | Soul | B
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376231.jpg" />
+  <img src="Z:/picture/008/save_picture_376231.jpg" />
 </div>
 
 
@@ -453,7 +482,7 @@ Stratovarius - Destiny (1998) [OGG Vorbis|485 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375485.jpg" />
+  <img src="Z:/picture/008/save_picture_375485.jpg" />
 </div>
 
 
@@ -482,7 +511,7 @@ Slade - The Hucknall Miners' Welfare Club (2022) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375398.jpg" />
+  <img src="Z:/picture/008/save_picture_375398.jpg" />
 </div>
 
 
@@ -511,7 +540,7 @@ Slade - Alive! At Reading (2022) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375387.jpg" />
+  <img src="Z:/picture/008/save_picture_375387.jpg" />
 </div>
 
 
@@ -540,7 +569,7 @@ Slade - The New Victoria (2022) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375224.jpg" />
+  <img src="Z:/picture/008/save_picture_375224.jpg" />
 </div>
 
 
@@ -569,7 +598,7 @@ Weary Eyes - How To Leave Places (2015) [MP3|320 кб/с]<Post Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375119.jpg" />
+  <img src="Z:/picture/008/save_picture_375119.jpg" />
 </div>
 
 
@@ -598,7 +627,7 @@ Suzi Quatro - Suzi Quatro (1973) [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375088.jpg" />
+  <img src="Z:/picture/008/save_picture_375088.jpg" />
 </div>
 
 
@@ -627,7 +656,7 @@ Flash the Readies - Kayos (2016) [MP3|320 Kbps] <Progressive Rock, Post-Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373958.jpg" />
+  <img src="Z:/picture/008/save_picture_373958.jpg" />
 </div>
 
 
@@ -656,7 +685,7 @@ Queen - On Air (2016) Live [MP3|320 Kbps] <Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373544.jpg" />
+  <img src="Z:/picture/008/save_picture_373544.jpg" />
 </div>
 
 
@@ -685,7 +714,7 @@ Stratovarius - Twilight Time (1992) Remastered, 1993, Victor [OGG Vorbis|485 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373364.jpg" />
+  <img src="Z:/picture/008/save_picture_373364.jpg" />
 </div>
 
 
@@ -714,7 +743,7 @@ VA - Running with Rock!!! 2018 Session [MP3|320 Kbps] <Rock, Miscellaneous>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373185.jpg" />
+  <img src="Z:/picture/008/save_picture_373185.jpg" />
 </div>
 
 
@@ -728,35 +757,6 @@ VA - Running with Rock!!! 2018 Session [MP3|320 Kbps] <Rock, Miscellaneous>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B0C871F22C966434FFDF91CAA3D0B5AE1050A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950280   (372576) от 25.10.2015
-
-Cold Blood - The Best Of Cold Blood (1995) [MP3|320 кб/с]<Jazz-Rock, Funky Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Want To Make Love To You (05:15)
-02. I'm A Good Woman (03:38)
-03. Let Me Down Easy (04:51)
-04. You Got Me Hummin' (05:46)(   Читать дальше...   )Жанр: Jazz-Rock, Funky BluesПродолжительность: 01:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFC27B242D1211FDED874110DE485DF2D7EB927
 ```
 
 https://mybot314.ru/tekegram_catalog/

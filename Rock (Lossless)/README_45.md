@@ -1,3 +1,148 @@
+###  Публикация: 1510957   (789729) от 19.11.2021
+
+Robert Plant & Alison Krauss - Raise The Roof (2021) [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quattro (World Drifts In)
+02. The Price Of Love
+03. Go Your Way
+04. Trouble With My Lover(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:502EEA77C8EE2285D1A18D620AEE0A46875067DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510905   (789700) от 19.11.2021
+
+Sting - The Bridge (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rushing Water (03:18)
+ 02. If It's Love (03:14)
+ 03. The Book of Numbers (03:19)
+ 04. Loving You (04:24)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01AF7941BE1B730439CE8979E55B7D70427F15E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511138   (789650) от 19.11.2021
+
+Rod Stewart - The Tears Of Hercules (2021) [FLAC|Lossless|tracks + .cue] <Pop Rock, Melodic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Time
+02. Gabriella
+03. All My Days
+04. Some Kind Of Wonderful(   Читать дальше...   )Жанр: Pop Rock, Melodic Rock, Blues RockПродолжительность: 00:44:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8EAAA880DF5DD722E53F47D1B6BBCA1FF02C4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202552   (789521) от 30.01.2018
+
+Jerry Goodman - Violin Fantasy (2016) [FLAC|Lossless|tracks + .cue] <Instrumental Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Sandman (4:23)
+ 02. In The Realm On The Netherworld (3:27)
+ 03. Dream Weaver (Altermate Mix) with Nektar (3:36)
+ 04. Baba O'Riley (Alternative Mix) (4:22)(   Читать дальше...   )Жанр: Instrumental Rock, Symphonic RockПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCAF63F9BE556012CC785077C1DFC5EEE000CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275905   (789490) от 13.01.2019
+
+Locate S,1 - Healing Contest (2018) [FLAC|Lossless|WEB-DL|tracks] <Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_789490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owe It 2 The Girls
+02. Manrico's Abyss
+03. 1 800 Capital C
+04. From The Nun(   Читать дальше...   )Жанр: Art RockПродолжительность: 00:33:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F8F4DA4A92CFD1B840D82C785D96EF0B4DF604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275877   (789392) от 13.01.2019
 
 Toto - Old Is New (2018) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
@@ -6,7 +151,7 @@ Toto - Old Is New (2018) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789392.jpg" />
+  <img src="Z:/picture/008/save_picture_789392.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ Booth And The Bad Angel - Booth And The Bad Angel (1996) [FLAC|Lossless|tracks] 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788670.jpg" />
+  <img src="Z:/picture/008/save_picture_788670.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ The Cardigans - First Band On The Moon (1996) [FLAC|Lossless|tracks + .cue] <Pop
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788635.jpg" />
+  <img src="Z:/picture/008/save_picture_788635.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ Blackmore's Night - Secret Voyage (2008) [FLAC|Lossless|tracks + .cue] <Folk Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788585.jpg" />
+  <img src="Z:/picture/008/save_picture_788585.jpg" />
 </div>
 
 
@@ -122,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788414.jpg" />
+  <img src="Z:/picture/008/save_picture_788414.jpg" />
 </div>
 
 
@@ -151,7 +296,7 @@ New Candys - Bleeding Magenta (2017) [FLAC|Lossless|tracks + .cue] <Psychedelic 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788177.jpg" />
+  <img src="Z:/picture/008/save_picture_788177.jpg" />
 </div>
 
 
@@ -180,7 +325,7 @@ Blackmore's Night - All Our Yesterdays (2015) Deluxe Edition [FLAC|Lossless|trac
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788139.jpg" />
+  <img src="Z:/picture/008/save_picture_788139.jpg" />
 </div>
 
 
@@ -209,7 +354,7 @@ Peter Gabriel - Us (1993) [FLAC|Lossless|tracks + .cue] <Pop Rock, Art Rock, Dow
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788128.jpg" />
+  <img src="Z:/picture/008/save_picture_788128.jpg" />
 </div>
 
 
@@ -238,7 +383,7 @@ Pink Floyd - Meddle (1971) 2011, Reissue, Remastered, EMI [FLAC|Lossless|tracks 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788118.jpg" />
+  <img src="Z:/picture/008/save_picture_788118.jpg" />
 </div>
 
 
@@ -267,7 +412,7 @@ Sting - The Bridge (2021) Japan Edition [FLAC|Lossless|tracks + .cue] <Pop, Rock
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787830.jpg" />
+  <img src="Z:/picture/008/save_picture_787830.jpg" />
 </div>
 
 
@@ -296,7 +441,7 @@ King Crimson - Music Is Our Friend (2021) [FLAC|Lossless|WEB-DL|tracks] <Progres
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787373.jpg" />
+  <img src="Z:/picture/008/save_picture_787373.jpg" />
 </div>
 
 
@@ -327,7 +472,7 @@ Beth Hart - Live At The Royal Albert Hall (2018) 2CD [FLAC|Lossless|tracks + .cu
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787223.jpg" />
+  <img src="Z:/picture/008/save_picture_787223.jpg" />
 </div>
 
 
@@ -356,7 +501,7 @@ VA - Imagine: John Lennon 75th Birthday Concert (Live) (2019) [FLAC|Lossless|tra
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787212.jpg" />
+  <img src="Z:/picture/008/save_picture_787212.jpg" />
 </div>
 
 
@@ -385,7 +530,7 @@ Jeff Wayne - The War of the Worlds (1986) 2xCD, Reissue, Remastered [FLAC|Lossle
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787190.jpg" />
+  <img src="Z:/picture/008/save_picture_787190.jpg" />
 </div>
 
 
@@ -414,7 +559,7 @@ Bonnie Tyler - 3 Original Classics Box Set (1992) [FLAC|Lossless|image + .cue]<P
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787104.jpg" />
+  <img src="Z:/picture/008/save_picture_787104.jpg" />
 </div>
 
 
@@ -443,7 +588,7 @@ Deep Purple - Turning to Crime (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Roc
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787090.jpg" />
+  <img src="Z:/picture/008/save_picture_787090.jpg" />
 </div>
 
 
@@ -472,7 +617,7 @@ The Shocking Blue - Castle Master Collection (1990) [FLAC|Lossless|tracks + .cue
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787084.jpg" />
+  <img src="Z:/picture/008/save_picture_787084.jpg" />
 </div>
 
 
@@ -501,7 +646,7 @@ Bay City Rollers - Best Of (1994) Series Music Reflexion [FLAC|Lossless|image + 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787012.jpg" />
+  <img src="Z:/picture/008/save_picture_787012.jpg" />
 </div>
 
 
@@ -530,7 +675,7 @@ John Paul Jones - 5 albums, 7 CD (1985-2010) [FLAC|Lossless|image + .cue] <Prog 
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786984.jpg" />
+  <img src="Z:/picture/008/save_picture_786984.jpg" />
 </div>
 
 
@@ -559,7 +704,7 @@ VA - Rock Legends vol.1: All-Time Greatest Rock Ballads (1995) Unofficial Releas
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786974.jpg" />
+  <img src="Z:/picture/008/save_picture_786974.jpg" />
 </div>
 
 
@@ -588,7 +733,7 @@ Brian Eno - Here Come The Warm Jets (1973) Remastered 2004 [FLAC|Lossless|tracks
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786891.jpg" />
+  <img src="Z:/picture/008/save_picture_786891.jpg" />
 </div>
 
 
@@ -602,151 +747,6 @@ Brian Eno - Here Come The Warm Jets (1973) Remastered 2004 [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5DF40B0957DDFC66803C6DEBBCA837B525BBC03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388031   (786890) от 05.06.2020
-
-The Boo Radleys - Giant Steps (1993) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hang Suspended (3:57)
-02. Upon 9th And Fairchild (4:51)
-03. Wish I Was Skinny (3:38)
-04. Leaves And Sand (4:26)(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F312F1CD2CE115559FF187040FBA0EE2A4D14B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388020   (786887) от 05.06.2020
-
-Todd Rundgren - Something / Anything? (1972) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рундгрен выступил продюсером «Something/Anything?», играл на всех инструментах, исполнил все вокальные партии в 19 треках из 25 и написал все песни за исключением двух в попурри и «Dust In The Wind». В результате вышел альбом, поднявший Рундгрена на вершину, как в коммерческом, так и творческом плане. «Hello It's Me» - одна из серии великолепных баллад, украсивших (   Читать дальше...   )Part 3 - The Kid Gets Heavy:
-
-01. Black Maria (5:20)
-02. One More Day (No Word) (3:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F59419B98857540F3F6FB66AA8329C196A0D287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388148   (786881) от 05.06.2020
-
-Elvis Costello - Brutal Youth (1994) [FLAC|Lossless|tracks + .cue] <Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pony St. (3:25)
-02. Kinder Murder (3:26)
-03. 13 Steps Lead Down (3:20)
-04. This Is Hell (4:27)(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C347AC943EB3DAC8B8B6F367BA005216CAA3EE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388168   (786858) от 05.06.2020
-
-Rocket From The Crypt - Scream, Dracula, Scream! (1995) [FLAC|Lossless|tracks + .cue] <Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Middle (1:02)
-02. Born in '69 (2:17)
-03. On A Rope (2:54)
-04. Young Livers (2:54)(   Читать дальше...   )Жанр: Rock, Rock & RollПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA02497F9B6ECC52F4EF1AB74AD47EA0FF92CAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123343   (786352) от 08.04.2017
-
-The Beach Boys - The Pet Sounds Sessions (1997) 4 x CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Pop, Surf>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786352.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Beach Boys («Бич Бойз») — американская рок-группа, известность которой первоначально принесли их ранние песни о пляжах, море и сёрфинге, однако, изменив звучание, они первыми выпустили в 1966 году концептуальный альбом «Pet Sounds», оказавшийся, по мнению многих специалистов, переломным в контексте развития рок-музыки 1960-х гг. The Beach Boys наряду с The Rolling (   Читать дальше...   )Список альбомов:
-CD1 - The Stereo Mix, Sessions, Part 1
-CD2 - Sessions, Part Two
-CD3 - Stack-O-Vocals(   Читать дальше...   )Жанр: Rock, Pop, SurfПродолжительность: 04:16:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9C77A70FAF4198170BB37C088CB90E26266024
 ```
 
 https://mybot314.ru/tekegram_catalog/

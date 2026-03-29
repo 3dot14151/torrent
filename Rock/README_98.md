@@ -1,3 +1,38 @@
+###  Публикация: 466133   (81453) от 11.03.2012
+
+ZZ Top - The Best Blues & Ballads (2001) [MP3|320 кб/с]<Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro By Ross Mitchell (0:24)
+02. 36-22-36 (2:32)
+03. Blue Jean Blues (4:39)
+04. 2000 Blues (4:24)
+05. A Food Your Stocking (4:11)
+06. Apologies To Pearly (2:43)
+07. Brown Sugar (5:17)
+08. Old Man (3:29)
+09. Cover Your Rig (5:45)
+10. Just Got Back From Baby's (4:09)(   Читать дальше...   )2001Жанр: Rock, BluesПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72841F63A088F1D4A1E951B7E9655FF34664DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 464928   (80980) от 09.03.2012
 
 Status Quo - Gold (2005) [MP3|320 кб/с]<Rock>
@@ -6,7 +41,7 @@ Status Quo - Gold (2005) [MP3|320 кб/с]<Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_80980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_80980.jpg" />
 </div>
 
 
@@ -41,7 +76,7 @@ Elvis Presley - ELVIS GOLD - The Very Best Of The KING (1995) [MP3|320 kbps]<Roc
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77775.jpg" />
 </div>
 
 
@@ -76,7 +111,7 @@ UFO - Seven Deadly (2012), Too Hot To Handle: The Very Best Of UFO (2012) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77055.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77055.jpg" />
 </div>
 
 
@@ -111,7 +146,7 @@ Chris Norman & Suzi Quatro - Stumblin' In (1978-1979) (Singles Maxi 2009) [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_76771.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_76771.jpg" />
 </div>
 
 
@@ -141,7 +176,7 @@ Big One - Pink floyd Show (2006) [MP3|320 Kbps] <Rock, Alt Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71893.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71893.jpg" />
 </div>
 
 
@@ -170,7 +205,7 @@ Blood, Sweat & Tears - Sweet Dreams (Live Amsterdam 1970) (2025) [MP3|320 Kbps] 
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71670.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71670.jpg" />
 </div>
 
 
@@ -199,7 +234,7 @@ Elvis Costello - King Of America & Other Realms (2024) Super Deluxe, Remaster, 2
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71669.jpg" />
 </div>
 
 
@@ -228,7 +263,7 @@ The Borstal Boys - Time Bomb (2025) [MP3|320 Kbps] <Classic Rock, Rock'n'Roll, B
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71635.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71635.jpg" />
 </div>
 
 
@@ -257,7 +292,7 @@ Steve Booker - Dreamworld (серия "Другие восьмидесятые")
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71583.jpg" />
 </div>
 
 
@@ -286,7 +321,7 @@ Fat Mattress - How Can I Live? Complete Recordings (2025) [MP3|320 Kbps] <Psyche
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71421.jpg" />
 </div>
 
 
@@ -315,7 +350,7 @@ Joe Satriani, Eric Johnson, Steve Vai - G3 Reunion Live (2025) [MP3|320 Kbps] <I
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71388.jpg" />
 </div>
 
 
@@ -344,7 +379,7 @@ Simple Minds - Once Upon A Time (1985) Super Deluxe, Remaster, 2015,  UMC [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71201.jpg" />
 </div>
 
 
@@ -373,7 +408,7 @@ Grateful Dead - Greatest Hits Live Broadcast Collection (2025) [MP3|320 Kbps] <R
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69022.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69022.jpg" />
 </div>
 
 
@@ -402,7 +437,7 @@ Tina Turner - Private Dancer (1984) 40th Anniversary Edition, 2025, Rhino [MP3|3
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68892.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68892.jpg" />
 </div>
 
 
@@ -431,7 +466,7 @@ White Willow - Signal to Noise (2006) Remastered, 2025, Karisma Records [MP3|320
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68439.jpg" />
 </div>
 
 
@@ -460,7 +495,7 @@ Outlasted - Universal Human Desire (2025) [MP3|320 Kbps] <Melodic Rock, AOR>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68430.jpg" />
 </div>
 
 
@@ -489,7 +524,7 @@ Tarzen - 2 Albums (1984,1989) Remaster, 2025, Metallic Blue Records [MP3|320 Kbp
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68352.jpg" />
 </div>
 
 
@@ -518,7 +553,7 @@ Metamorphosis - 6 Albums, 1 EP (2002-2021) [ MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_68335.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_68335.jpg" />
 </div>
 
 
@@ -547,7 +582,7 @@ Projekt JU - In alle Ewigkeit (2025) [MP3|320kbps] <Gothic Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67475.jpg" />
 </div>
 
 
@@ -576,7 +611,7 @@ Cosmic Cathedral - Deep Water (2025) [MP3|320 Kbps] <Progressive Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67473.jpg" />
 </div>
 
 
@@ -605,7 +640,7 @@ Francis Rossi - The Way We Were Vol. 1 (2025) [MP3|320 Kbps] <Pop Rock>
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_67104.jpg" />
 </div>
 
 
@@ -634,7 +669,7 @@ The Cure - Mixes Of A Lost World (2025) [MP3|320 Kbps] <Alternative Rock, Pop Ro
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66187.jpg" />
 </div>
 
 
@@ -663,7 +698,7 @@ Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordi
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66166.jpg" />
 </div>
 
 
@@ -692,7 +727,7 @@ Neil Young - Talkin to the Trees (2025) [MP3|320 Kbps] <Country Rock, Roots Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_66047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66047.jpg" />
 </div>
 
 
@@ -721,7 +756,7 @@ Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [MP3|320 Kbps] <Rock
 >>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65983.jpg" />
 </div>
 
 
@@ -735,35 +770,6 @@ Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [MP3|320 Kbps] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A67DDD6C2E807D5B0F35EF7021675483FE8519AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802708   (65975) от 19.06.2025
-
-Samsara Blues Experiment - 3 Albums (2011-2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Birth [00:10:58]
-02. Massive Passive [00:06:00]
-03. Southern Sunset [00:06:46]
-04. End of Forever [00:07:55](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner MetalПродолжительность: 3 CD, 02:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A4E3FA8F8CBAE8D2FCCEB46F5D1E80A19A4518
 ```
 
 https://mybot314.ru/tekegram_catalog/

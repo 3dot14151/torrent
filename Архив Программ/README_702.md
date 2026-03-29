@@ -6,7 +6,7 @@
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695362.jpg" />
+  <img src="Z:/picture/008/save_picture_695362.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ iZotope - RX 7 Post Production Suite 3.02 STANDALONE, RTAS, VST, VST3, AAX RePac
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695354.jpg" />
+  <img src="Z:/picture/008/save_picture_695354.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Advanced SystemCare Pro 8.2.0.797 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695256.jpg" />
+  <img src="Z:/picture/008/save_picture_695256.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ FonePaw Video Converter Ultimate 2.1.0 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695130.jpg" />
+  <img src="Z:/picture/008/save_picture_695130.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ RobotSoft Automatic Mouse and Keyboard 5.2.5.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695104.jpg" />
+  <img src="Z:/picture/008/save_picture_695104.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Nero 2015 Plus RePack by MKN (08-05-2015) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695100.jpg" />
+  <img src="Z:/picture/008/save_picture_695100.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ ESET Endpoint Security 6.1.2227.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695078.jpg" />
+  <img src="Z:/picture/008/save_picture_695078.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ SamDrivers 15.5 - Сборник драйверов для Windows [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695067.jpg" />
+  <img src="Z:/picture/008/save_picture_695067.jpg" />
 </div>
 
 
@@ -206,6 +206,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133380   (695038) от 12.05.2017
+
+Process Lasso Pro 9.0.0.340 Final RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_695038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70546308A205EFE0DF8AF1D7D1A6853E1313B9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221426   (695021) от 24.04.2018
 
 R-Studio 8.7 Build 170939 Network Edition [Multi/Ru]
@@ -214,7 +240,7 @@ R-Studio 8.7 Build 170939 Network Edition [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695021.jpg" />
+  <img src="Z:/picture/008/save_picture_695021.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ Aiseesoft Video Converter Ultimate 9.2.38 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695020.jpg" />
+  <img src="Z:/picture/008/save_picture_695020.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ LibreOffice 6.0.3 Stable Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695017.jpg" />
+  <img src="Z:/picture/008/save_picture_695017.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ Comfy File Recovery 4.1 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695012.jpg" />
+  <img src="Z:/picture/008/save_picture_695012.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ Mole`s Smart Version Patch Constructor 2.2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694963.jpg" />
+  <img src="Z:/picture/008/save_picture_694963.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ PDF-XChange Viewer Pro 2.5.322.3 Full / Lite RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694958.jpg" />
+  <img src="Z:/picture/008/save_picture_694958.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ ClipGrab 3.6.5 RePack & Portable by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694951.jpg" />
+  <img src="Z:/picture/008/save_picture_694951.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ DesktopOK 4.69 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694946.jpg" />
+  <img src="Z:/picture/008/save_picture_694946.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Comfy Photo Recovery 4.7 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694933.jpg" />
+  <img src="Z:/picture/008/save_picture_694933.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Telegram Desktop 1.2.17 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694900.jpg" />
+  <img src="Z:/picture/008/save_picture_694900.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Comfy Partition Recovery 2.8 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694888.jpg" />
+  <img src="Z:/picture/008/save_picture_694888.jpg" />
 </div>
 
 
@@ -503,7 +529,7 @@ SamDrivers 17.5  LAN [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694867.jpg" />
+  <img src="Z:/picture/008/save_picture_694867.jpg" />
 </div>
 
 
@@ -529,7 +555,7 @@ VLC Media Player 2.2.5.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694864.jpg" />
+  <img src="Z:/picture/008/save_picture_694864.jpg" />
 </div>
 
 
@@ -555,7 +581,7 @@ VLC Media Player 2.2.5.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694859.jpg" />
+  <img src="Z:/picture/008/save_picture_694859.jpg" />
 </div>
 
 
@@ -581,7 +607,7 @@ Alternate File Shredder 1.900 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694835.jpg" />
+  <img src="Z:/picture/008/save_picture_694835.jpg" />
 </div>
 
 
@@ -607,7 +633,7 @@ VLC Media Player 3.0.2 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694825.jpg" />
+  <img src="Z:/picture/008/save_picture_694825.jpg" />
 </div>
 
 
@@ -633,7 +659,7 @@ CCleaner 5.42.6495 Business | Professional | Technician Edition RePack (& Portab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694819.jpg" />
+  <img src="Z:/picture/008/save_picture_694819.jpg" />
 </div>
 
 
@@ -644,32 +670,6 @@ CCleaner - утилита для чистки мусора в операцион
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBB82D06CCEBFC19CD27BD024F03F7A5B8ACD38F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221438   (694789) от 24.04.2018
-
-ESET Internet Security 11.1.54.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694789.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET Internet Security - комплексное антивирусное решение, которое совмещает максимальную защиту и минимальное воздействие на систему. Расширенные технологии используют интеллектуальные методы для предотвращения атак вирусами, троянами, шпионским ПО, червями, рекламных ПО, руткитами и другим видами угроз, при этом не снижая системную производительность и не прерывая (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7DA74F1576634C336CE783563D7E0FC96A3F7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

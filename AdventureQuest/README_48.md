@@ -1,3 +1,83 @@
+###  Публикация: 1040069   (306542) от 23.10.2019
+
+Layers of Fear (2016) [Ru/Multi] (1.1.1/dlc) Repack Other s [Masterpiece Edition]
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Layers of Fear – психоделический хоррор с запутанным сюжетом и странным игровым миром. Игрокам предлагается управлять художником, который мечтает закончить шедевр всей своей жизни. Исследуйте гигантский особняк викторианской эпохи, в котором комнаты, кажется, живут своей жизнью. Разум творца играет с ним злые шутки, пространство полнится видениями и таинственными (   Читать дальше...   )Тип издания: RepackРазработчик: Bloober Team SAЖанр: Adventure (Horror), 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A382CC17B7CFA4747C1F1F387306907CAA82A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259159   (306537) от 09.11.2018
+
+Dread of Laughter (2018) [En] (1.0/upd4) License PLAZA
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главной героиней игры является девушка по имени Кэтрин Барнетт (Catheryn Barnett). Она живет на загородной ферме. Все хорошо до поры до времени – в один прекрасный вечер она осознает, что у нее нет никакой связи с внешним миром, а вокруг ее дома бродит маньяк. С этого момента ее единственной задачей является выживание.Тип издания: LicenseРазработчик: Icy North GamesЖанр: Adventure (Horror), 1st Person, 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D2203681C2FD9D988715D9241742127960AC06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 266683   (305804) от 05.12.2010
+
+Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды [Ru] (RePack) 2010 | R.G. World Games
+
+>>След.
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любому сыщику порой хочется как следует отдохнуть от громких дел и опасных расследований. Шерлок Холмс наслаждался крепчайшим табаком, Филипп Марлоу предпочитал добротный шотландский виски. В отличие от этих грандов детективного жанра, юная Нэнси Дрю решила попросту сменить обстановку и отправиться в Японию. Но даже здесь, среди модных магазинчиков, цветущей сакуры и старинных построек, ее ожидают новые зловещие тайны.
+
+Темные воды несут проклятье! Традиционный рёкан «Хиэй» прослыл самым страшным местом во всей округе. Местные жители предпочитают обходить гостиницу стороной. Впрочем, Нэнси Дрю уверена – разгадка очень близка! В поисках ответов ей предстоит прогуляться по Киото, как следует изучить окрестности и погрузиться в самый настоящий водоворот приключений. Но разобраться в этой тайне знаменитой девушке-детективу удастся только с вашей помощью!Тип издания: RePackРазработчик: Her InteractiveЖанр: AdventureЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AF8BBD316472D666F9773ED4DA8680C186F1553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 266655   (305799) от 05.12.2010
 
 Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. ReCoding [Dilogy / Дилогия]
@@ -6,7 +86,7 @@ Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. ReCoding [Dilogy / Дило�
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305799.jpg" />
+  <img src="Z:/picture/008/save_picture_305799.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ The Park (2015) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304946.jpg" />
+  <img src="Z:/picture/008/save_picture_304946.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ The Moment Of Silence / Момент истины [Ru] (L) 2005
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304708.jpg" />
+  <img src="Z:/picture/008/save_picture_304708.jpg" />
 </div>
 
 
@@ -85,7 +165,7 @@ Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303936.jpg" />
+  <img src="Z:/picture/008/save_picture_303936.jpg" />
 </div>
 
 
@@ -111,7 +191,7 @@ Quern - Undying Thoughts (2016) [Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303815.jpg" />
+  <img src="Z:/picture/008/save_picture_303815.jpg" />
 </div>
 
 
@@ -137,7 +217,7 @@ Layers of Fear (2016) [Ru/Multi] (1.1.1) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303800.jpg" />
+  <img src="Z:/picture/008/save_picture_303800.jpg" />
 </div>
 
 
@@ -163,7 +243,7 @@ Obscure II (Obscure: The Aftermath) (2008) [Ru] (1.215294/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303729.jpg" />
+  <img src="Z:/picture/008/save_picture_303729.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.0.1
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302753.jpg" />
+  <img src="Z:/picture/008/save_picture_302753.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.2) License CODEX
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301657.jpg" />
+  <img src="Z:/picture/008/save_picture_301657.jpg" />
 </div>
 
 
@@ -241,7 +321,7 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0.0.1/2017.6.29.321) Rep
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300828.jpg" />
+  <img src="Z:/picture/008/save_picture_300828.jpg" />
 </div>
 
 
@@ -267,7 +347,7 @@ Norman's Night In (2019) [En] (1.0) License TiNYiSO
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300611.jpg" />
+  <img src="Z:/picture/008/save_picture_300611.jpg" />
 </div>
 
 
@@ -293,7 +373,7 @@ TSIOQUE (2018) [En/De/Pl] (1.0.5.3) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300375.jpg" />
+  <img src="Z:/picture/008/save_picture_300375.jpg" />
 </div>
 
 
@@ -319,7 +399,7 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295132.jpg" />
+  <img src="Z:/picture/008/save_picture_295132.jpg" />
 </div>
 
 
@@ -345,7 +425,7 @@ Among the Sleep (2014) [Ru/Multi] (3.0.1) License GOG [Enhanced Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294696.jpg" />
+  <img src="Z:/picture/008/save_picture_294696.jpg" />
 </div>
 
 
@@ -371,7 +451,7 @@ Perception (2017) [Ru/Multi] (1.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294690.jpg" />
+  <img src="Z:/picture/008/save_picture_294690.jpg" />
 </div>
 
 
@@ -397,7 +477,7 @@ The Room Three (2018) [Ru/Multi] (1.0) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294470.jpg" />
+  <img src="Z:/picture/008/save_picture_294470.jpg" />
 </div>
 
 
@@ -423,7 +503,7 @@ Centralia: Homecoming (2019) [Ru/Multi] (1.8/dlc) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294344.jpg" />
+  <img src="Z:/picture/008/save_picture_294344.jpg" />
 </div>
 
 
@@ -449,7 +529,7 @@ Subnautica (2018) [Ru/Multi] (61056) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294340.jpg" />
+  <img src="Z:/picture/008/save_picture_294340.jpg" />
 </div>
 
 
@@ -475,7 +555,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294334.jpg" />
+  <img src="Z:/picture/008/save_picture_294334.jpg" />
 </div>
 
 
@@ -501,7 +581,7 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd6) Repack Other s
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294321.jpg" />
+  <img src="Z:/picture/008/save_picture_294321.jpg" />
 </div>
 
 
@@ -527,7 +607,7 @@ Tales of Monkey Island: Collector's Edition / Tales of Monkey Island: Колле
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293378.jpg" />
+  <img src="Z:/picture/008/save_picture_293378.jpg" />
 </div>
 
 
@@ -553,7 +633,7 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack xatab
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292559.jpg" />
+  <img src="Z:/picture/008/save_picture_292559.jpg" />
 </div>
 
 
@@ -579,7 +659,7 @@ Slender: The Arrival (2013) [Ru/En] (2.0) Repack R.G. Механики
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292317.jpg" />
+  <img src="Z:/picture/008/save_picture_292317.jpg" />
 </div>
 
 
@@ -590,85 +670,6 @@ Slender: The Arrival - профессиональный ремейк жутко�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9368C0B56FBEE8917FBC5C59F85286E3CC6A9C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027652   (291405) от 05.12.2016
-
-Between Me and The Night (2016) [Ru/Multi] (1.12) Repack R.G. Механики
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Between Me and The Night — из тех игр, что донельзя дуальна: добро против зла, здравомыслие против безумия, день против ночи. Смена времени суток — одна из ключевых особенностей здешнего геймплея. Днем игроку предстоит исследовать плавающий дом, попутно решая головоломки и получая доступ к новым комнатам. Это позволит улучшить свои навыки, которые обязательно пригодятся (   Читать дальше...   )Тип издания: RepackРазработчик: RainDance LXЖанр: AdventureЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8465A2F14E0F3161B2F3500F2CCA9D802934F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241363   (290939) от 17.11.2018
-
-Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приглашаем вас полное чудес анимационное царство, в котором самые обычные предметы обретают собственную жизнь. Найдите дорогу домой, разгадав тайны забывчиков и покорив магические силы.Тип издания: RepackРазработчик: ThroughLine GamesЖанр: Adventure, Quest, IndieЯзык озвучки: АнглийскийЯзык субтитров: Русский, Немецкий и другиеЯзык интерфейса: Русский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3143637E375D15CCCF70B40961032104C431255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142232   (290638) от 22.11.2017
-
-Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack Other s [Episodes 1-5]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tales from the Borderlands – эпизодическое приключение от Telltale Games. Местом действия выступает мир Borderlands, где игроку встретятся новые персонажи.
-События Tales from the Borderlands развиваются после сюжетных перипетий Borderlands 2, а сама история рассказывается от лица двух персонажей (Райс и Фиона), что позволяет взглянуть на происходящее с двух различных (   Читать дальше...   )Тип издания: RepackРазработчик: Telltale GamesЖанр: Adventure, Action, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D3686255E79707F60803027BE0A3265E073D88
 ```
 
 https://mybot314.ru/tekegram_catalog/

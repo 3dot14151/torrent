@@ -1,3 +1,235 @@
+###  Публикация: 1704402   (114361) от 04.03.2024
+
+Deep Purple - Дым над водой. Архив популярной музыки 8 (1987) [FLAC 24/192|Lossless|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Black Night
+02. Fireball
+03. Space Truckin'(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0B97578B507A2B7FA2C3FDAE59E9C857FB1EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704215   (114350) от 04.03.2024
+
+Black Sabbath - Sabotage (1975) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+01 - Hole In The Sky.
+02 - Don't Start (Too Late).
+03 - Meglomania.(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:134DA743B3E5EA056A658A993E824857432432C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704306   (114347) от 04.03.2024
+
+Creedence Clearwater Revival - Бродячий оркестр. Архив популярной музыки 3 (1988) [FLAC 24/96|Lossless|tracks] <Blues-Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - На углу. - Down On The Corner. (J.C.Fogerty). Запись 1969 г.
+02 - Хлопковые поля. - Cotton Fields. (H.Ledbetter). Запись 1969 г.
+03 - Счастливый наследник. - Fortunate Son. (J.C.Fogerty) Запись 1969 г.(   Читать дальше...   )Жанр: Blues-Rock, Classic RockПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0EDD3DB65BD7823C32CAF16928EDE16D79CBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704412   (114345) от 04.03.2024
+
+Dire Straits - Communique (1979) 1992 [FLAC 24/192|Lossless|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A.
+01 - Once Upon A Time In The West
+02 - News
+03 - Where Do You Think You're Going?(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0184865B738942EBFE389D32E8EFE0C87AB21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704406   (114335) от 04.03.2024
+
+Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC 24/192|Lossless|tracks] <Pop, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Будь готов встретить любовь. Gettin' Ready For Love. (T.Show-F.Golde)
+02 - Ты получил это. You Got It. (J.Ragovoy-L.Laurie)
+03 - Бэби, это я. Baby It's Me. (D.Dann-C.Smith)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4EBB4911A66D40EF8F0AEB5334F6439C66E785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704139   (114329) от 04.03.2024
+
+Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime: Timeless Instrumental Collection of Dixieland Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birth Of The Dixieland Music (3:34)
+02. Happy Serenity (3:12)
+03. Break with Jazz (3:29)
+04. Timeless Vintage Coffee (3:35)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FB11EFCA4798DCB97043CD4DBF2572C8D921C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704154   (114322) от 04.03.2024
+
+Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dope 'n Roll (4:21)
+02. Day Of The Living Dead (4:07)
+03. Electric Fire (2:48)
+04. Brain Dead (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE39BFEC5906347A05429D79ED854A81E21AA71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704168   (114320) от 04.03.2024
+
+Caravan Palace - Gangbusters Melody Club (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114320.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. MAD (2:47)
+2. Mirrors (3:41)
+3. 81 Specials (3:56)
+4. Raccoons (3:27)(   Читать дальше...   )Жанр: swingПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF885EBB7B33FC835D384B3D321703A979D5E5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704212   (114316) от 04.03.2024
 
 Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
@@ -6,7 +238,7 @@ Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks]
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114316.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114316.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Observers - The Age of the Machine Entities (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114315.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114315.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ Malted Milk - 1975 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114312.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Sarah L King - Fire Horse (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Voca
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114310.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114310.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Solitude Aeturnus - Hour of Despair (2024) Deluxe Edition [FLAC 24/44.1|Lossless
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114309.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ Max Cruise - Nights at Sunset Beach (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114306.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114306.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Timo Lassy and Jukka Eskola - Nordic Stew (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114305.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114305.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Van Morrison - The Legendary Bang Sessions (1994) Remaster, 2024, Charly Digital
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114304.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114304.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Odd Chap - Collaborations (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114301.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114301.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ AC/DC - Powerage (1978) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114299.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114297.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Calming Jazz Relax Academy - Instrumental Meditation: Calm Mindfulness Session w
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114296.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114296.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Mortifer - Euthanasia (1993) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114295.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Hunter Francis - Daggermouth (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114293.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114293.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ Max Magro and the Wolfgang - Commit a Crime (2024) [FLAC 24/48|Lossless|WEB-DL|t
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114283.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114283.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ AC/DC - Flick of the Switch (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Ro
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114235.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ AC/DC - Fly On The Wall (1985)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114232.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114232.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Alan Parsons - From The New World (2022) [WavPack|Lossless|image + .cue] <Sympho
 >>DVD-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_114230.jpg" />
 </div>
 
 
@@ -513,236 +745,6 @@ Alan Parsons - From The New World (2022) [WavPack|Lossless|image + .cue] <Sympho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A115C75641B796FA2CE016C9D5CE8B5F938D0BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704596   (114200) от 05.03.2024
-
-Московский камерный оркестр, Р. Баршай - J.S.Bach - Brandenburgische Konzerte BWV 1048, 1049 (И. С. Бах - Бранденбургские концерты №3, 4) (1958) [FLAC 24/96|Lossless|tracks] <Classical, Concerto ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114200.jpg" />
-</div>
-
-
-###  Подробнее
-
-сторона 1
-Бранденбургский концерт № 3, соль мажор
-01. Часть: Аллегро
-02. Часть: Аллегро(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A388896F1208DC7B6D063A92FB140D23AA9D05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704530   (114158) от 05.03.2024
-
-AC/DC - For Those About To Rock (We Salute You) (1981) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "For Those About to Rock (We Salute You)"
-02. "I Put the Finger on You"
-03. "Let's Get It Up"
-04. "Inject the Venom"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4BB87989B200E364DA2B4AC3BAD71652DCE1772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704602   (114155) от 05.03.2024
-
-VA - Музыкальный телетайп 4 (1988) [FLAC 24/192|Lossless|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Людвиг Ван Бетховен - Соната №14. Часть 1 - Adagio sostenuto (Генрих Нейгауз, ф-но)Жанр: ClassicalПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DC3CF8925ED6984013B5E8180F046325C8CCA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704593   (114153) от 05.03.2024
-
-Гос. симф. оркестр СССР, Л. Гинзбург - J.S.Bach - Die Brandenburgische Konzerte BWV 1046 (И. С. Бах - Бранденбургский концерт №1) (1955) [FLAC 24/96|Lossless|tracks] <Classical, Concerto>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01.  I. Адажио
-02.  II. Адажио
-Сторона 2:(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2898F71AA5B058AB7CC23CD2F10CD370AE39EC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704674   (114152) от 05.03.2024
-
-Kid Colling Cartel - Living On The Wild Side (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living On The Wild Side (3:13)
-02. Cold Blooded (3:39)
-03. Step Out Of Line (3:08)
-04. Long Way To Go (4:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031B54656433AD95FD9C3746F4D2A50A6BA59A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704613   (114149) от 05.03.2024
-
-Duran Duran - Liberty (1990) 1992 [FLAC 24/192|Lossless|tracks] <Electronic, New Wave, Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1.
-01.Violence Of Summer (Love's Taking Over)
-02.Liberty
-03.Hot Head(   Читать дальше...   )Жанр: Electronic, New Wave, SynthpopПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B0338FA0BE02B97BBC4303B65333763CE2B661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704526   (114145) от 05.03.2024
-
-AC/DC - Highway To Hell (1979)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Highway to Hell"
-02. "Girls Got Rhythm"
-03. "Walk All Over You"
-04. "Touch Too Much"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936989504FE8B4A6356EFFE26742EEAFB578B022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704738   (114144) от 05.03.2024
-
-Nadir - Standing at the Cosmic Horizon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning
-02. Enigma
-03. Dead by First Light
-04. Lost Dogmatic Space New Order(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7BE8D7FB3BC2729AF833921E978E6F448368FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

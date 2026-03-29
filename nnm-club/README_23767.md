@@ -1,22 +1,25 @@
-###  Публикация: 1715968   (111454) от 13.04.2024
+###  Публикация: 1709170   (112871) от 23.03.2024
 
-Сибирская Благозвонница | Соборование. Таинство исцеления (2019) [PDF, FB2, EPUB, MOBI, TXT]
+VA - Trance Fusion Vol. 01 (2024) [MP3|320 Kbps] <Trance>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111454.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Над больными в Православной Церкви совершается одно из семи церковных таинств – Соборование, или Елеосвящение. Также, по установившейся традиции, это таинство совершается почти во всех православных храмах во время Великого поста. О том, что такое Соборование, кто может приступать к нему и как часто это следует делать, а также как к нему готовиться и что делать с (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
+01. Seraphin - Across The Odyssey (Original Mix) [3:20]
+02. Cadeya - Take Me Here (Extended Mix) [5:51]
+03. 3rdWave - Utara (Extended Mix) [6:23]
+04. Andre Wildenhues - Seven Days One week (Extended Mix) [5:32](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D30E1D511721905E682DFB4E3397C1B1EBB8ACFE
+magnet:?xt=urn:btih:0651E2DE6ADA3924CDA767D5E81274C1330E6B10
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,157 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715963   (111453) от 13.04.2024
+###  Публикация: 1709181   (112870) от 23.03.2024
 
-Сибирская Благозвонница | Краткое изложение избранных правил святых апостолов, Вселенских и Поместных Соборов и святых отцов (2016) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемое издание представляет собой подборку церковных правил святых апостолов, святых Вселенских и Поместных Соборов и святых отцов Православной Церкви. Эти избранные древние правила призваны помочь ознакомлению широкого читателя с каноническим наследием Вселенского Православия, чтобы получить твердые представления об основах церковной жизни.Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B01D5C560CDEC20C83F5EACD68067FAC9C525A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715761   (111452) от 13.04.2024
-
-PhotoRoom v4.9.2 b1356 Mod by Mixroot [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 11.04.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D6B8DF4BCF192624F3B945EFB14A584AFB31B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715767   (111451) от 13.04.2024
-
-KineMaster - Video Editor & Maker v7.4.7.32377.GP Mod by Shadow_Patcher [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скачайте KineMaster и испытайте лучшие возможности редактирования видео! Это легко благодаря мощным инструментам редактирования, эксклюзивным функциям и библиотеке ресурсов, которые можно использовать, чтобы оживить свои видео!Тип издания: PremiumРелиз состоялся: 12.04.2024Разработчик: KineMaster, Video Editor Experts GroupПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA26D1891F92D71EC0C42191050153368B416F0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716016   (111450) от 13.04.2024
-
-Black Country Communion - Red Sun; Stay Free (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Sun (6:33)
-02. Stay Free (4:30)Жанр: Hard RockПродолжительность: 00:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343CFEC41204F36086AEC6AEDDF9CB8EA90DA51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715966   (111449) от 13.04.2024
-
-А.Н. Афанасьев, А.Н. Толстой, И. Карнаухова | Большая книга о Бабе Яге (2011) [MP3, Александр Андриенко]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия: Лучшее – детям.
-Баба-Яга – костяная нога... Кто не знает эту героиню многих русских народных сказок, которая живет в лесу, в избушке на курьих ножках, и летает по свету в ступе, заметая свой след помелом! Любит она похищать маленьких детей и всякие пакости людям учинять, но, случается, и помогает добрым молодцам в беде: то дорогу нужную укажет, то совет дельный (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: АудиокнигаПродолжительность: 01:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023AABBEF030081671B1A40A5DEFC95C5D735873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715780   (111448) от 13.04.2024
-
-Журнал | Психология и Я №04 (157) (апрель 2024) [PDF]
+Журнал | Лечащий Врач (том 27) №3 (2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для тех, кто любит жизнь, стремится к гармонии с окружающим миром и с самим собой. Главная тема каждого номера – взаимоотношения между мужчиной и женщиной, родителями и детьми. С помощью профессиональных психологов и жизненного опыта самих читателей Вы найдете ответы на сложные жизненные вопросы. В каждом номере Вас ждут советы и рекомендации, которые помогут (   Читать дальше...   )Жанр: ПсихологияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+Журнал «Лечащий Врач» - профессиональное медицинское издание. Новости медицинского и фармацевтического рынков, научно-практические статьи для врачей общей практике, терапевтов, педиатров, узких специалистов. Постоянные рубрики, адресованные руководителям медучреждений, преподавателям, студентам медвузов.Жанр: Медицинский научно-практический журналИздательство: ООО "Издательство "Открытые системы"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D32D2DD316FBE7655C2325213D75A315ACF9DDE7
+magnet:?xt=urn:btih:9935D9B04113F78704BB520452402BC920C4C7BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -182,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715725   (111447) от 13.04.2024
+###  Публикация: 1709167   (112869) от 23.03.2024
 
-Пятеро на одного (06.04.2024) WEBRip [H.264/720p-LQ]
+Лето сокола / Der Sommer des Falken / The Summer of the Hawk (1988) DVDRip [АVO]
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111447.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:59
+Рик приезжает на лето из Берлина к дедушке в горы и собирается учиться запускать воздушных змеев. Замкнутый городской мальчик знакомится с деревенской девочкой Мари, ребята становятся друзьями, и начинаются неожиданные приключения. Жадный и бессовестный Женри покушается на гнездо сокола, которого Мари считает своим другом. Рик и Мари решаются любой ценой помешать (   Читать дальше...   )Производство: Германия (ФРГ) / Atlas Film, Topas Film, Westdeutscher Rundfunk (WDR)Жанр: приключенияРежиссер: Аренд АгтеАктеры: Riad Al-Sammarraie, Фолькер Брандт, Janos Crecelius, Mirko Festini, Альфред Грубер, Christian Hannoschöck, Рудольф Хисель, Хайди Йошко, Хайнц Каммер, Hamdy KhalefПеревод: Авторский (Юрий Муравский)Язык озвучки: Русский, НемецкийСубтитры: ОтсутствуютПродолжительность: 01:42:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:906923A8B783E6202143A039006B80BEC32F4CA6
+magnet:?xt=urn:btih:12C792486A34E23CA008628F7E7CC55FC0521956
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -208,137 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715828   (111446) от 13.04.2024
+###  Публикация: 1709104   (112868) от 23.03.2024
 
-PdfX 1.0.8 Mod by Garant68 [En/Es]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111446.jpg" />
-</div>
-
-
-###  Подробнее
-
-PdfX - это новое приложение, которое позволяет конвертировать PDF файлы в различные форматы, редактировать PDF, разделять PDF, комбинировать PDF и многое другое! Вы можете загрузить любой документ в формате PDF и никаких технических знаний не потребуется! Приложение автоматически преобразует его содержимое в желаемый формат.Тип издания: AdFreeРелиз состоялся: 15.08.2023Разработчик: Ipsilon Developments IncПоддерживаемая ОС: Android 5.1+Язык интерфейса: Английский и Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B09C69897F7B7744843CA6288D15ECEDC4ECDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715861   (111445) от 13.04.2024
-
-VA - Monday Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coldplay - The Scientist (5:10)
-02. Benson Boone - In the Stars (3:36)
-03. Gorillaz - On Melancholy Hill (3:54)
-04. Bruno Mars - When I Was Your Man (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9338CF0A0635BD2CD3FA384F89E99194B09CFF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715846   (111444) от 13.04.2024
-
-Живая еда с Сергеем Малозёмовым (13.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молочные коктейли: есть ли в них польза молока и лучше ли они газировки, для кого делают гигантские молочные коктейли и сколько в них сахара?
- Почему крабы стоят так дорого? Есть ли мясо краба в консервах и крабовых палочках и каков на вкус крабовый тирамису?
- Почему сладости делают нас менее привлекательными? Как мир захватила эпидемия ожирения? И зачем во Франции (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D46283E41FDC018C7AC8CEF92526F7FC830D2FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715809   (111443) от 13.04.2024
-
-VA - Country Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zach Bryan - Blue (3:39)
-02. Michael Marcagi - Scared to Start (2:40)
-03. Mason Ramsey - Blue Over You (4:06)
-04. Blake Shelton - Go Ahead and Break My Heart (feat. Gwen Stefani) (4:24)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 01:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63BAB5CF4161764FAC1074A347272E6C8F461C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715798   (111442) от 13.04.2024
-
-Журнал | Домашние цветы №4 (199) (апрель 2024) [PDF]
+Журнал | SALON-interior №04 (302) (2024) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для настоящих любителей комнатных цветов. На страницах издания вы узнаете как добиться более быстрого и пышного цветения, защитить любимые растения от болезней и вредителей, размножить наиболее простым и эффективным способом. Своим личным опытом выращивания и ухода за цветами делятся цветоводы-любители и профессионалы — кандидаты и доктора биологических наук.Жанр: ЦветоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+Авторитетный российский журнал по архитектуре и дизайну представляет на своих страницах все новое, уникальное, эксклюзивное, что создается в стране и мире, помогая читателям всегда быть в курсе современных тенденций архитектуры и дизайна. События, мировые выставки, обзоры аксессуаров, исторические здания, интервью с мировыми звездами, ландшафтные и флористические (   Читать дальше...   )Жанр: Архитектура, дизайн, строительствоИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:500B02166C6BEB076081E54BBDD645385A4E50FD
+magnet:?xt=urn:btih:51093ED1BA78517C38D2B63ADA10C4036B53579C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,80 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715959   (111441) от 13.04.2024
+###  Публикация: 1709124   (112867) от 23.03.2024
 
-Сибирская Благозвонница | О церковных свечах и лампадах (2016) [PDF, FB2, EPUB, MOBI, TXT]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Церковная свеча – символ нашего духовного союза с Церковью. Свечи есть знак добровольной жертвы Богу и храму Его, выражение готовности человека к послушанию Богу (мягкость воска) и символ стремления к обожению, превращению в новую тварь (горение свечи). Свеча есть также свидетельство веры, причастности человека к Божественному свету, она знаменует собой теплоту и (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F0690149249701A0BFE99A5D5A24918DF84265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715784   (111440) от 13.04.2024
-
-Armin van Buuren - Feel Again, Pt. 2 (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Techno, Progressive Trance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Electronic, Techno, Progressive TranceПродолжительность: 02:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1065ADB6E692A5666DB3857FFCD3EA6CB51DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715741   (111439) от 13.04.2024
-
-Shadows Of Steel - Twilight II (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+Menhir - Thuringia (1999) Reissue, 2003, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111439.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Call Of Shadows
-02. Broken Mirror
-03. Shine
-04. Power Of Dreams(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:00:00
+01. Intro
+02. Die Kelten
+03. Schwertes Bruder
+04. Thuringia(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:38:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5DAF218DE0D2A75BEC7C8F8671267BD58E7D446
+magnet:?xt=urn:btih:DE1A686D15A5E2B41E430FF06FB089DA9133D644
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,28 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715830   (111438) от 13.04.2024
+###  Публикация: 1709127   (112866) от 23.03.2024
 
-Alex O'Rion - Nostalgia (2024) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+Menhir - Ziuwari (2001) [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111438.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alex O'Rion – Elephant
-02. Alex O'Rion – Dank Farrik
-03. Alex O'Rion – Vale
-04. Alex O'Rion – Cellar Door(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:17:26
+01. Wotans Runenlied
+02. Die Letzte Schlacht
+03. Herminafrieds Klage
+04. Das Verborgene Reich(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:38:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A278B618B84F445E4880F372C9584594D3532AF7
+magnet:?xt=urn:btih:C7C3D9CE6EA202C54BBA2926342E90CB33681463
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,25 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715763   (111437) от 13.04.2024
+###  Публикация: 1709019   (112865) от 23.03.2024
 
-Лига городов (2024) WEBRip [H.264/720p] (сезон 2, выпуск 10)
+Menhir - Die ewigen Steine (1997) Reissue, 2003, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 
->>Юмор (ТВ)
->>ПостКВН
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Лига городов» – новый юмористический проект телеканала ТНТ и компании АМиК, в котором команды будут бороться за звание Чемпиона сезона и приз в 10 миллионов рублей. Одержать победу в серьезной юмористической схватке коллективам помогут наставники, гуру юмора – Сергей Светлаков, Марина Кравец, Алексей Щербаков и Артем Калайджян. Каждый из них отберет под свое крыло (   Читать дальше...   )Производство: Россия | «АМИК», «ТНТ»Жанр: Юмор, комедия, играСубтитры: ОтсутствуютПродолжительность: 00:56:50
+01. Menhir
+02. Winter
+03. Die Auserwählten
+04. Warrior Of The North(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:40:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90FE59D87A94BD3CF7697E40723F66409DCE5DD5
+magnet:?xt=urn:btih:BE289EC30BDD87699AF61729382D15E57023C424
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,26 +192,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715988   (111436) от 13.04.2024
+###  Публикация: 1709025   (112864) от 23.03.2024
 
-Сундук удачи / Chest of Fortune (1914) WEBRip [H.264/720p-LQ]
+Menhir - Buchonia (1998) EP Reissue, 2004, Perverted Taste [FLAC|Lossless|image + .cue] <Pagan Black Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111436.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Романтически-драматическая история парня, который во время гражданской войны (США) остался сиротой и даже не знал из какой он семьи. А вот папаша его возлюбленной, руку своей дочери готов отдать только молодому человеку из приличной семьи (что это такое?). А тут еще соперник интригует...
-Ну, такой себе фильм, не шедевр. И копия с дефектами.Производство: США, Kalem CompanyЖанр: короткометражный, драма, немое киноРежиссер: нет сведенийАктеры: Джир Остин, Джон Мэкин, Джордж Холлистер мл., Джеймс Б. Росс, Хелен Линдрот, Генри Халлам, Дорис Холлистер, Гай Кумбс, Маргарит Коуртот, Harry F. MillardeПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:25:16
+01. Sonnenwende
+02. Germanenkunst
+03. Buchonia
+04. FalkenburgsteinЖанр: Pagan Black MetalПродолжительность: 00:20:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5BC46D6547D5E704676A6566075744A4EC329E1
+magnet:?xt=urn:btih:30DC3A6B58A88C25D9B9EA2686509D6A34D1A2D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,28 +221,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715768   (111435) от 13.04.2024
+###  Публикация: 1709186   (112863) от 23.03.2024
 
-Joel Ross - Nublues (2024) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Timpul Întâilor
+A2 În Vieliștea Uitării
+B1 Descânt
+B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708837   (112862) от 23.03.2024
+
+Aktarum - Game of Trolls (2014) EP [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Opening Game [1:11]
+02 - Game of Trolls [4:12]
+03 - Light up the Torches [4:51]
+04 - Troll Forever [5:54](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:608992ECB61E606A86C57483F67729D6D52F3A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708926   (112861) от 23.03.2024
+
+Sidney Bechet - Hold Tight (1938 - 1946) 1989, Jazz & Jazz [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Early [3:57]
-02. Equinox [8:38]
-03. Mellowdee [11:13]
-04. Chant [2:38](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:08:13
+01. He May Be Your Man [2:48]
+02. Jack, I'm Mellow [2:47]
+03. My Unusal Man [2:49]
+04. Uncle Joe [2:37](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 00:47:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47EE75C67B34795C5FD309074166DFBA9D4DFE62
+magnet:?xt=urn:btih:CDA547C10AD63F993F7E9DEDEC79EAB627C8A2D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,28 +308,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715771   (111434) от 13.04.2024
+###  Публикация: 1709183   (112860) от 23.03.2024
 
-Jo Stafford - It Had to Be You: Lost Radio Recordings (1950 - 1951) 2017, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112860.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jind De Tronuri
+A2 Flăcărarii
+B1 E-an-na
+B2 Calea Roților De Foc(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626709864ED2E064B0F7A13053F129C6FDBDDD1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709016   (112859) от 23.03.2024
+
+Aktarum - Ragnatroll (2018) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Troll Feast [4:21]
+02 - Trolls in the Fog [4:47]
+03 - Council of Trolls [4:28]
+04 - Troll Bard [4:48](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82000C7BCA0A4BBEC86BDAAA227B75E517886131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709033   (112858) от 23.03.2024
+
+Aktarum - Trollvengers (2022) 2024 Reissue, Troll Studios  [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Folk Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Tale of Trolls [1:41]
+02 - The Blood of Trolls [4:22]
+03 - In the Name of Trolls [4:17]
+04 - TrollVengers [5:23](   Читать дальше...   )Жанр: Black Metal, Folk Metal, MetalПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6DA11C1A9EACBAC8B1906C80D65CE080802C34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708930   (112857) от 23.03.2024
+
+VA - Just Jazz! & The Complete Triple Play Stereo Sessions (1962) 2009, Jazz Beat [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. It Had to Be You [2:47]
-02. Nevertheless (I'm in Love with You) [2:51]
-03. Ain't Misbehavin' [2:37]
-04. I'll Get By (As Long as I Have You) [2:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:28
+01. Moten Swing [4:16]
+02. Out of Nowhere [4:05]
+03. Groovin' High [3:15]
+04. Autumn Leaves [4:37](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 01:15:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14C3D4091F83C380E653DD1B929785F08C145DFC
+magnet:?xt=urn:btih:A6B25C6E996911C22F30F00BCA4127DE8C5D5000
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,28 +424,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715770   (111433) от 13.04.2024
+###  Публикация: 1709056   (112856) от 23.03.2024
 
-Tal Farlow - Second Set (1956) 1998, Tokuma [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+Sonny Clark - The Complete Blue Note Sessions (1957 - 1962) 6СD, 2023, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. All the Things You Are [9:24]
-02. I Remember You [14:14]
-03. Yesterdays [11:17]
-04. Let's Do It [10:43]Жанр: Bop, CoolПродолжительность: 00:45:38
+01. Somethin' Special [6:24]
+02. Deep in a Dream [6:47]
+03. Melody for C [7:49]
+04. Eric Walks [5:43](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 06:38:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:205DA5C62AEE59B9BDD2DFDCC542B70DDA44F526
+magnet:?xt=urn:btih:7C22941C53A70B0008D5B4EAD740359C76EA1615
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,15 +453,70 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716021   (111432) от 13.04.2024
+###  Публикация: 1709109   (112855) от 23.03.2024
 
-Сто к одному (13.04.2024) WEBRip [H.264/1080p]
+Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks|Vinyl-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mars Within (Intro)
+02. Abduction
+03. Soul Intruders
+04. Kill Devil Hill(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D096B08FC05D3CBF574BEBF6C6693AA225CEAF88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709094   (112854) от 23.03.2024
+
+Пятеро на одного (23.03.2024) WEBRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:083E8DE82E52B373CFC7EE9497DF7CC245B63BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709162   (112853) от 23.03.2024
+
+Сто к одному (23.03.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112853.jpg" />
 </div>
 
 
@@ -613,11 +525,11 @@ https://mybot314.ru/tekegram_catalog/
 "О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
 Потому что сколько людей, столько и мнений.
 
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Музей космонавтики" против команды "Пора в космос"Язык озвучки: РусскийПродолжительность: 00:39:14
+А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Стоп! Снято!" против команды "Новые клоуны"Язык озвучки: РусскийПродолжительность: 00:39:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1A1F46D675FFCFE4D92C54F6EFA81D8E5D60601
+magnet:?xt=urn:btih:94821FA8F2541846668078D3CE7EF4C1339EE180
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,26 +537,166 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715998   (111431) от 13.04.2024
+###  Публикация: 1709141   (112852) от 23.03.2024
 
-Графиня де Сегюр | Волшебные сказки (2011) [MP3, Татьяна Телегина]
+Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Heavy Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Almanac — неоклассическая метал-группа из Германии, основанная в 2015 году гитаристом, продюсером и композитором белорусского происхождения Виктором Смольским.2016 - Tsar
+2017 - Kingslayer
+2020 - Rush Of Death
+& Victor Smolski solo albumsЖанр: Power/Heavy/Progressive MetalПродолжительность: 05:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709416   (112850) от 24.03.2024
+
+Privacy Eraser Free 6.5 Build 4875 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C14F2E2E5552EE871DBD9B052CF9833C85EFFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709371   (112849) от 24.03.2024
+
+Waveshaper - A Void Hope (2024) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme (2:14)
+02. Intro (2:40)
+03. Longing (2:47)
+04. Compassion (3:32)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48B863491CE1DF26F233FDB98E3D1F6950C573D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709374   (112848) от 24.03.2024
+
+Steve Howell & The Mighty Men - 99 1/2 Won't Do (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm a Little Mixed Up (3:18)
+02. 99 1/2 (3:40)
+03. San Francisco (4:12)
+04. Don't Let Me Be Misunderstood (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:453C3095B281CE2CA44BD51CB1C2836B714A07B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709289   (112847) от 24.03.2024
+
+Татьяна Хитрова | Твой последний врач (2022) [MP3, Юлия Рудина]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патологоанатомы многим представляются хладнокровными людьми, отпускающими мрачные шутки во время разрезания очередного трупа, а патологоанатомическое отделение – темным склепом, где царит гнетущая атмосфера. Но, слушая книгу «Твой последний врач», вы поразитесь тому, насколько мифы об этой профессии далеки от правды. Это рассказ начинающего врача-патологоанатома (   Читать дальше...   )Жанр: Популярно об медицинеИздательство: БОМБОРАПродолжительность: 08:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5337FFCAE70B9845A247ACB61D1B2C1F0F1F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709350   (112846) от 24.03.2024
+
+Лазарь Лагин | Старик Хоттабыч (2020) [MP3, Иван Литвинов]
 
 >>Аудио для детей и родителей
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111431.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Аудиосказка для детей и не только.
-Графиня де Сегюр (урождённая Софья Ростопчина) (1799–1874 гг.) – одна из известных и читаемых детских писательниц Франции. Книги графини вышли общим тиражом свыше 20 миллионов экземпляров и остаются популярными в наши дни. Часть произведений экранизирована. В России её сказки и романы были широко известны и регулярно (   Читать дальше...   )Жанр: Детская литература, классика, сказкаИздательство: МедиаКнигаПродолжительность: 03:43:00
+Серия/Цикл: Сокращенная версия.
+Книга детства бабушек и дедушек, мам и пап очень интересна и новому поколению читателей: мальчик Волька неожиданно становится обладателем таинственной бутылки, в которую был много лет назад заключен волшебный джинн Хоттабыч. Занимательные и весёлые приключения начинаются, как только джинн обретает свободу и начинает творить чудеса (   Читать дальше...   )Жанр: Русская литература для детей, классика, повесть-сказкаИздательство: ЭксмоПродолжительность: 03:26:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DE76934211BF28FD8417153F4CD05BE188ECA16
+magnet:?xt=urn:btih:86C28DBA9773AF4EFEDF09FA5E21DA4A555DC55B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -652,54 +704,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716009   (111430) от 13.04.2024
+###  Публикация: 1709084   (112845) от 24.03.2024
 
-Too Close To Touch - For Keeps (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
+Ильин Роман - Дж. Берк, Дж. Ван Хьюзен. Платье в горошек и лунный свет (2024) [FLAC 16/44.1|Lossless|tracks] <contemporary, скрипка, фортепиано>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика
+>>Камерная (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_112845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Novocaine [4:56]
-02 - Disappear [4:03]
-03 - Hurt Reynolds [3:31]
-04 - Hopeless [3:58](   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:30:29
+1. Дж. Берк, Дж. Ван Хьюзен. Платье в горошек и лунный светЖанр: contemporary, скрипка, фортепианоПродолжительность: 00:03:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2FA93EF3FF6579809B26F2E17DD952451FC5981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715979   (111429) от 13.04.2024
-
-Slash - Oh Well feat. Chris Stapleton (2024) Single [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Well feat. Chris Stapleton (4:34)Жанр: RockПродолжительность: 00:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29CB8E75B3F037E66E7F820E2105CC771A3CCB07
+magnet:?xt=urn:btih:6F23E95821560DB5785D9BA8907E758BC72E34F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

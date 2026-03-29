@@ -1,3 +1,109 @@
+###  Публикация: 1332065   (308943) от 22.10.2019
+
+Элай / Eli (2019) WEB-DL [H.264/1080p-LQ] [EN / RU, EN, FRA etc. Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_308943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальчик, страдающий от аутоиммунного заболевания, обнаруживает, что его дом не так безопасен, как он полагал.Производство: США, Intrepid Pictures, Bellevue Productions, Paramount PlayersЖанр: УжасыРежиссер: Киран ФойАктеры: Келли Райлли, Сэди Синк, Макс Мартини, Лили Тейлор, Чарли Шотуэлл, Джаред Банкенс, Денин Тайлер, Катя Гомез, Натаниэл Вулси, Паркер ЛовейнПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские, английские, испанские, французские, немецкие и другиеПродолжительность: 01:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39F918DFE0FE08AC48EC88FC08DBB954F3CF0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183632   (306978) от 14.11.2017
+
+Бюро человечества / The Humanity Bureau (2017) WEB-DL [H.264/1080p-LQ] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306978.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отдалённом будущем американское правительство утвердило секретную программу, по которой бедных, необразованных и неугодных стране людей сначала высылают в колонию, а затем уничтожают. Одно из таких дел попадает в руки агента. Проникшись симпатией к одинокой матери и её сыну, он решает помочь им бежать.Производство: Канада, Minds Eye Entertainment, Bridgegate Pictures, VMI WorldwideЖанр: Боевик, ФантастикаРежиссер: Роб В. КингАктеры: Николас Кейдж, Сара Линд, Хью Диллон, Виселос Реон Шеннон, Джейкоб Дейвис, Лорни Кардинал, Джетт Клине, Дэвид Ловгрен, Лео Фафард, Курт Макс РунтеПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFF0289B75D0B10A400AF706EF57C090E50344F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959991   (306847) от 28.11.2015
+
+Сильно любимая / Much Loved (2015) WEBRip [H.265/720p-LQ] [AR / FR Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_306847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает о жизни проституток в Марракеше, где правохранительные органы разъедает коррупция, а женщины вынуждены выполнять любые прихоти богатых иностранцев, например выходцев из Саудовской Аравии.
+
+Фильм был отмечен призом на Каннском кинофестивале, но именно после этого в Марокко картину запретили. Власти решили, что она "подрывает моральные устои (   Читать дальше...   )Производство: Франция, Марокко, Les Films du Nouveau MondeЖанр: ДрамаРежиссер: Набиль АюшАктеры: Лубна Абидар, Асма Лазрак, Дэнни Бу ШебелПеревод: ОтсутствуетЯзык озвучки: АрабскийЯзык субтитров: ФранцузскийПродолжительность: 03:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45565EAA4330FC1C3C28CF0A8189A6F6BDB6A2F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261148   (305034) от 10.11.2018
+
+Мертвецы / Dead Men  (2018) BDRemux [H.264/1080p] [EN / Ger Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_305034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается на Диком Западе, где царит беззаконие. Это история о молодом парне, который должен отомстить за смерть отца, защитить племя апачей и вернуть землю и золото, принадлежащие ему по праву.Производство: США / Catch the Sun, Saddlecreek FilmsЖанр: боевик, вестернРежиссер: Ройстон ИннесАктеры: Рик Мэддокс, Аарон Марчиняк, Шоун Парсонс, Саша Хиггинс, Джим Фрайфогель, Ретт Суонсон, Крэйг Хенсли, Мариса Куинн, Джон Дж. Гонсалес, Джо СаензПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: немецкиеПродолжительность: 02:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC153FB3A8108C86F881066D8D647CE502539538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184236   (303042) от 16.11.2017
 
 Пляжные крысы / Beach Rats  (2017) BDRemux [H.264/1080p] [EN / EN Sub]
@@ -6,7 +112,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303042.jpg" />
+  <img src="Z:/picture/008/save_picture_303042.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302543.jpg" />
+  <img src="Z:/picture/008/save_picture_302543.jpg" />
 </div>
 
 
@@ -58,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300882.jpg" />
+  <img src="Z:/picture/008/save_picture_300882.jpg" />
 </div>
 
 
@@ -84,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300575.jpg" />
+  <img src="Z:/picture/008/save_picture_300575.jpg" />
 </div>
 
 
@@ -110,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300526.jpg" />
+  <img src="Z:/picture/008/save_picture_300526.jpg" />
 </div>
 
 
@@ -136,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298632.jpg" />
+  <img src="Z:/picture/008/save_picture_298632.jpg" />
 </div>
 
 
@@ -162,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298354.jpg" />
+  <img src="Z:/picture/008/save_picture_298354.jpg" />
 </div>
 
 
@@ -188,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298135.jpg" />
+  <img src="Z:/picture/008/save_picture_298135.jpg" />
 </div>
 
 
@@ -214,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296937.jpg" />
+  <img src="Z:/picture/008/save_picture_296937.jpg" />
 </div>
 
 
@@ -240,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296774.jpg" />
+  <img src="Z:/picture/008/save_picture_296774.jpg" />
 </div>
 
 
@@ -266,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296608.jpg" />
+  <img src="Z:/picture/008/save_picture_296608.jpg" />
 </div>
 
 
@@ -292,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296578.jpg" />
+  <img src="Z:/picture/008/save_picture_296578.jpg" />
 </div>
 
 
@@ -318,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295894.jpg" />
+  <img src="Z:/picture/008/save_picture_295894.jpg" />
 </div>
 
 
@@ -344,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294703.jpg" />
+  <img src="Z:/picture/008/save_picture_294703.jpg" />
 </div>
 
 
@@ -370,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294687.jpg" />
+  <img src="Z:/picture/008/save_picture_294687.jpg" />
 </div>
 
 
@@ -396,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294020.jpg" />
+  <img src="Z:/picture/008/save_picture_294020.jpg" />
 </div>
 
 
@@ -422,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292753.jpg" />
+  <img src="Z:/picture/008/save_picture_292753.jpg" />
 </div>
 
 
@@ -448,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292513.jpg" />
+  <img src="Z:/picture/008/save_picture_292513.jpg" />
 </div>
 
 
@@ -475,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290883.jpg" />
+  <img src="Z:/picture/008/save_picture_290883.jpg" />
 </div>
 
 
@@ -501,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290820.jpg" />
+  <img src="Z:/picture/008/save_picture_290820.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290745.jpg" />
+  <img src="Z:/picture/008/save_picture_290745.jpg" />
 </div>
 
 
@@ -554,7 +660,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290629.jpg" />
+  <img src="Z:/picture/008/save_picture_290629.jpg" />
 </div>
 
 
@@ -565,110 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CB4398655ABB354E28E98392AB3F53BBB2A3FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185575   (290628) от 22.11.2017
-
-Сделано в Америке / American Made (2017) WEB-DL [H.264/1080p-LQ] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_290628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он был самым юным пилотом Боинга 747 в США, а уже через несколько лет стал одним из богатейших людей в Америке. Его стиль жизни был столь же экстремальным, как и его бизнес. Закрытые приемы, роскошные блондинки, крутые тачки и рисковые сделки. Он обладал талантом делать деньги из воздуха.Производство: США, Universal Pictures, Cross Creek Pictures, Imagine EntertainmentЖанр: Боевик, Биография, КомедияРежиссер: Даг ЛайманАктеры: Том Круз, Донал Глисон, Сара Райт, Джесси Племонс, Калеб Лэндри Джонс, Лола Кёрк, Джейма Мейс, Алехандро Эдда, Бенито Мартинес, Э. Роджер МитчеллПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (Forced)Продолжительность: 01:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598311426DD7CFACF2F7F5550E3F647E3EEB8AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263097   (289402) от 18.11.2018
-
-Маленькая Италия / Little Italy  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родители Лео, как и родители Никки, приехали в Канаду из Италии и открыли здесь свою пиццерию. Между двумя ресторанами и двумя семьями устанавливается ожесточенная конкуренция. Тем временем между Лео и Никки, вопреки всему, завязывается роман.Производство: Канада, США / Firsttake EntertainmentЖанр: мелодрама, комедияРежиссер: Дональд ПитриАктеры: Хейден Кристенсен, Эмма Робертс, Алисса Милано, Дэнни Айелло, Андреа Мартин, Джейн Сеймур, Гэри Басараба, Адам Феррара, Васант Саранга, Линда Кэш, Амрит КаурПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3A5FC9CC5772D6F7A8E6B06DC1AA81C14A475F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263119   (289399) от 18.11.2018
-
-Мара. Пожиратель снов / Mara  (2018) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289399.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кейт Фуллер приписана к расследованию убийства мужчины, которого, как считает полиция, задушила во сне собственная жена. В качестве свидетеля проходит восьмилетняя дочь убитого, Софи. Все дальше углубляясь в это дело, Кейт узнает о существовании древнего демона, убивающего своих жертв во сне. Она испытывает те же чудовищные симптомы и кошмары, поэтому сон становится (   Читать дальше...   )Производство: Великобритания, США / Moon River Studios, Grodnik /Aloe Productions, Aloe Entertainment, A Brighter Headache, Digital Ignition Entertainment, Mann Made Films, Room 101, Synchronicity EntertainmentЖанр: ужасы, триллер, криминалРежиссер: Клайв ТонгАктеры: Ольга Куриленко, Крэйг Конуэй, Хавьер Ботет, Рози Феллнер, Лэнс Э. Николс, Маккензи Имсэнд, Тед Джонсон, Митч Икинс, Мелисса Болона, Маркус В. Уэзерсби, Дэнди Баррет, Ребекка АдамсПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: английские, испанскиеПродолжительность: 01:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FB4C3F3BDD70494A8ECC6231B71FC947890B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963205   (288725) от 07.12.2015
-
-Молли Мун и волшебная книга гипноза / Molly Moon and the Incredible Book of Hypnotism  (2015) BDRip [H.264/720p] [EN]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молли Мун - сирота. Она живет в Хардвикском приюте, где властвует ужасная мисс Гадкинс. Злобная старуха всячески унижает и притесняет девочку, старшие ребята дразнят ее, учителя ругают за несобранность - в общем, жизнь маленькой Молли сложно назвать счастливой. Но однажды в руки Молли Мун попадает таинственная старинная книга по гипнозу, и жизнь девочки в одночасье (   Читать дальше...   )Производство: Великобритания, Amber Entertainment, Lipsync ProductionsЖанр: семейныйРежиссер: Кристофер Н. РоулиАктеры: Рэффи Кэссиди, Эмили Уотсон, Доминик Монахэн, Джоан Коллинз, Селия Имри, Энн-Мэри Дафф, Сэди Фрост, Бен Миллер, Лесли Мэнвилл, Гари Кемп, Омид Джалили, Шонн ГрегориПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFEE3CE198B402949F51634FE0B3AD2DE6C50CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Download Master 6.12.4.1555 RePack (&Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730623.jpg" />
+  <img src="Z:/picture/008/save_picture_730623.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ The Foundry NUKE STUDIO + HIERO 11.3v2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730616.jpg" />
+  <img src="Z:/picture/008/save_picture_730616.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Everything 1.4.1.935 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730613.jpg" />
+  <img src="Z:/picture/008/save_picture_730613.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730597.jpg" />
+  <img src="Z:/picture/008/save_picture_730597.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ VSO ConvertXtoDVD 7.0.0.31 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730596.jpg" />
+  <img src="Z:/picture/008/save_picture_730596.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Nvidia DriverPack v.418.99 RePack by CUTA [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730589.jpg" />
+  <img src="Z:/picture/008/save_picture_730589.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Bandicam 4.3.4.1503 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730585.jpg" />
+  <img src="Z:/picture/008/save_picture_730585.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ CoolUtils Total Image Converter 7.1.130 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730561.jpg" />
+  <img src="Z:/picture/008/save_picture_730561.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ AVG Remover 1.0.1.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730559.jpg" />
+  <img src="Z:/picture/008/save_picture_730559.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Opera 37.0.2178.54 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730549.jpg" />
+  <img src="Z:/picture/008/save_picture_730549.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ AIMP 4.02 Build 1721 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730544.jpg" />
+  <img src="Z:/picture/008/save_picture_730544.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Reg Organizer 8.85 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730533.jpg" />
+  <img src="Z:/picture/008/save_picture_730533.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Whale Browser 3.13.131.27 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730521.jpg" />
+  <img src="Z:/picture/008/save_picture_730521.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ RAM Saver Professional 22.1 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730514.jpg" />
+  <img src="Z:/picture/008/save_picture_730514.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ MAGIX Samplitude Pro X6 Suite 17.2.0.21610 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730510.jpg" />
+  <img src="Z:/picture/008/save_picture_730510.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730499.jpg" />
+  <img src="Z:/picture/008/save_picture_730499.jpg" />
 </div>
 
 
@@ -423,7 +423,7 @@ Techsmith Snagit 13.1.2 Build 7933 Portable by punsh [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730498.jpg" />
+  <img src="Z:/picture/008/save_picture_730498.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ AdwCleaner 5.119 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730467.jpg" />
+  <img src="Z:/picture/008/save_picture_730467.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Acronis Disk Director 12 Build 12.5.163 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730448.jpg" />
+  <img src="Z:/picture/008/save_picture_730448.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ ICE Book Reader Professional 9.5.0 + Lang Pack + Skin Pack [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730441.jpg" />
+  <img src="Z:/picture/008/save_picture_730441.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Opera Developer 39.0.2245.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730432.jpg" />
+  <img src="Z:/picture/008/save_picture_730432.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Futuremark 3DMark 2.22.7336 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730396.jpg" />
+  <img src="Z:/picture/008/save_picture_730396.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ uTorrent 3.5.5 Build 46200 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730395.jpg" />
+  <img src="Z:/picture/008/save_picture_730395.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ XnView 2.40 | Minimal | Standard | Extended + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730362.jpg" />
+  <img src="Z:/picture/008/save_picture_730362.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ MakeMKV 1.10.5 Beta [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730355.jpg" />
+  <img src="Z:/picture/008/save_picture_730355.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2015 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730349.jpg" />
+  <img src="Z:/picture/008/save_picture_730349.jpg" />
 </div>
 
 

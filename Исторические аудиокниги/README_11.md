@@ -1,3 +1,56 @@
+###  Публикация: 1010964   (797612) от 26.04.2016
+
+Мартин Линдау | Борджиа (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европа, начало ХVI века, эпоха хаоса и красоты. В Италии правит Папа Римский Александр VI, отец двух сыновей: герцога Гольдийского – Борджиа и жестокого и коварного Цезаря Борджиа, а так же красавицы – дочери Лукреции. Эпоха возрождения много потеряла бы в своей красочности и выразительности, если бы на фоне ее не было такой фигуры как Цезарь Борджиа: он одновременно (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 25:24:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D1205C83790AB6210AEA5B056754413488DC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011267   (797024) от 27.04.2016
+
+Константин Масальский | Осада Углича (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_797024.jpg" />
+</div>
+
+
+###  Подробнее
+
+В повести "Осада Углича" рассказывается о неудачной попытке поляков захватить русский город Углич в период Смутного времени.
+Константин Масальский — популярный русский писатель середины XIX века — был широко известен как автор многочисленных исторических романов. Его роман «Стрельцы» воссоздает перед нами события конца XVII и начала XVIII веков, времена (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 02:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A2099D9F2430B7980AFD1D7E9C763846FD0367
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200337   (796267) от 20.01.2018
 
 Александр Фетисов, Алексей Щавелев | Викинги. Между Скандинавией и Русью (2017) [MP3]
@@ -6,7 +59,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796267.jpg" />
+  <img src="Z:/picture/008/save_picture_796267.jpg" />
 </div>
 
 
@@ -32,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795774.jpg" />
+  <img src="Z:/picture/008/save_picture_795774.jpg" />
 </div>
 
 
@@ -58,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795513.jpg" />
+  <img src="Z:/picture/008/save_picture_795513.jpg" />
 </div>
 
 
@@ -84,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794718.jpg" />
+  <img src="Z:/picture/008/save_picture_794718.jpg" />
 </div>
 
 
@@ -113,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793426.jpg" />
+  <img src="Z:/picture/008/save_picture_793426.jpg" />
 </div>
 
 
@@ -139,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792782.jpg" />
+  <img src="Z:/picture/008/save_picture_792782.jpg" />
 </div>
 
 
@@ -165,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791303.jpg" />
+  <img src="Z:/picture/008/save_picture_791303.jpg" />
 </div>
 
 
@@ -191,7 +244,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790767.jpg" />
+  <img src="Z:/picture/008/save_picture_790767.jpg" />
 </div>
 
 
@@ -218,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790750.jpg" />
+  <img src="Z:/picture/008/save_picture_790750.jpg" />
 </div>
 
 
@@ -245,7 +298,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789509.jpg" />
+  <img src="Z:/picture/008/save_picture_789509.jpg" />
 </div>
 
 
@@ -271,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788144.jpg" />
+  <img src="Z:/picture/008/save_picture_788144.jpg" />
 </div>
 
 
@@ -297,7 +350,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786577.jpg" />
+  <img src="Z:/picture/008/save_picture_786577.jpg" />
 </div>
 
 
@@ -323,7 +376,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785385.jpg" />
+  <img src="Z:/picture/008/save_picture_785385.jpg" />
 </div>
 
 
@@ -349,7 +402,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785309.jpg" />
+  <img src="Z:/picture/008/save_picture_785309.jpg" />
 </div>
 
 
@@ -377,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785001.jpg" />
+  <img src="Z:/picture/008/save_picture_785001.jpg" />
 </div>
 
 
@@ -404,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784761.jpg" />
 </div>
 
 
@@ -430,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784355.jpg" />
 </div>
 
 
@@ -456,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784249.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784249.jpg" />
 </div>
 
 
@@ -483,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784078.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_784078.jpg" />
 </div>
 
 
@@ -509,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783492.jpg" />
+  <img src="Z:/picture/008/save_picture_783492.jpg" />
 </div>
 
 
@@ -535,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782476.jpg" />
+  <img src="Z:/picture/008/save_picture_782476.jpg" />
 </div>
 
 
@@ -561,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_782131.jpg" />
 </div>
 
 
@@ -587,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781920.jpg" />
 </div>
 
 
@@ -613,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781412.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_781412.jpg" />
 </div>
 
 
@@ -625,60 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E73D837A137396DDA7B07B1A24092A88DA9D10C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206996   (781280) от 16.02.2018
-
-Сухбат Афлатуни | Поклонение волхвов (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый роман известного прозаика и поэта Евгения Абдуллаева, пишущего под псевдонимом Сухбат Афлатуни, охватывает огромный период в истории России: от середины 19-го века до наших дней – и рассказывает историю семьи Триярских, родоначальник которой, молодой архитектор прогрессивных взглядов, Николай, был близок к революционному кружку Петрашевского и тайному обществу (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 36:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D7963B50AEE5AAAF9418E5809812B8419DE89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200931   (781178) от 14.05.2010
-
-Виктор Татарский | Крах Барбароссы. Документы истории [2010] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторский цикл передач "Крах Барбароссы. Документы истории" на волнах "Радио России" в дни празднования 65-летия Победы.
-Восьмисерийный радиоспектакль построен на реальных документах - памятниках Второй мировой - письмах, дневниках, официальных материалах военного времени. В том числе фрагментах речей дипломатов и политиков - идеологов той войны. Читает автор Виктор Татарский.
-Разнообразие материала, представленного в передаче, позволяет вдумчивому слушателю расширить свой исторический кругозор и самостоятельно сделать выводы о прошлом.Жанр: История
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

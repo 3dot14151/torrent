@@ -6,7 +6,7 @@ ReviverSoft Registry Reviver 4.19.4.4 RePack (& Portable) by TryRooM  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763975.jpg" />
+  <img src="Z:/picture/008/save_picture_763975.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ FastStone Capture 8.9 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763971.jpg" />
+  <img src="Z:/picture/008/save_picture_763971.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ FastStone Capture 8.9 Final RePack (& Portable) by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763945.jpg" />
+  <img src="Z:/picture/008/save_picture_763945.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Telegram Desktop 1.2.14 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763938.jpg" />
+  <img src="Z:/picture/008/save_picture_763938.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Driver Easy Pro 5.6.1.14162 RePack (& Portable) by elchupacabra  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763937.jpg" />
+  <img src="Z:/picture/008/save_picture_763937.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Opera 52.0.2871.30 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763935.jpg" />
+  <img src="Z:/picture/008/save_picture_763935.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NetLimiter 4.0.33.0 Enterprise [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763933.jpg" />
+  <img src="Z:/picture/008/save_picture_763933.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Android Studio 3.0.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763931.jpg" />
+  <img src="Z:/picture/008/save_picture_763931.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Skype 7.41.32.101 by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763901.jpg" />
+  <img src="Z:/picture/008/save_picture_763901.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Revo Uninstaller Pro 3.2.1 RePack (& portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763847.jpg" />
+  <img src="Z:/picture/008/save_picture_763847.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ EASEUS Partition Master 12.9 Technician Edition RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763843.jpg" />
+  <img src="Z:/picture/008/save_picture_763843.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ Magic Soft 2010 v22.05  [русский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763789.jpg" />
+  <img src="Z:/picture/008/save_picture_763789.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Advanced Installer 17.2 RePack by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763724.jpg" />
+  <img src="Z:/picture/008/save_picture_763724.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ eM Client Pro 8.0.2820 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763685.jpg" />
+  <img src="Z:/picture/008/save_picture_763685.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ BELOFF [dp] 2020.06.4 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763674.jpg" />
+  <img src="Z:/picture/008/save_picture_763674.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763670.jpg" />
+  <img src="Z:/picture/008/save_picture_763670.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ Telegram Desktop 1.5.10 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763655.jpg" />
+  <img src="Z:/picture/008/save_picture_763655.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Privacy Eraser Free 4.47.0 Build 2768 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763651.jpg" />
+  <img src="Z:/picture/008/save_picture_763651.jpg" />
 </div>
 
 
@@ -485,7 +485,7 @@ BestReminder v2019.02.01.11 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763641.jpg" />
+  <img src="Z:/picture/008/save_picture_763641.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Mozilla Thunderbird 60.5.0 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763640.jpg" />
+  <img src="Z:/picture/008/save_picture_763640.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ GridinSoft Anti-Malware 4.1.52.4980 RePack & Portable by 9649 (05.07.2020) [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763637.jpg" />
+  <img src="Z:/picture/008/save_picture_763637.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ WinASO Registry Optimizer 5.6.1.0 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763525.jpg" />
+  <img src="Z:/picture/008/save_picture_763525.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ Calibre 3.39.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763515.jpg" />
+  <img src="Z:/picture/008/save_picture_763515.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Skype 8.38.0.138 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763514.jpg" />
+  <img src="Z:/picture/008/save_picture_763514.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Paint.NET 4.3.6 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763448.jpg" />
+  <img src="Z:/picture/008/save_picture_763448.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ HiBit Uninstaller 2.7.30 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763439.jpg" />
+  <img src="Z:/picture/008/save_picture_763439.jpg" />
 </div>
 
 

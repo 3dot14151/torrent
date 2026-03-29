@@ -6,7 +6,7 @@ Eminem - Kamikaze (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483755.jpg" />
+  <img src="Z:/picture/008/save_picture_483755.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Eminem - Kamikaze (2018) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483753.jpg" />
+  <img src="Z:/picture/008/save_picture_483753.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ ATL - Карма x Кома (2016) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481280.jpg" />
+  <img src="Z:/picture/008/save_picture_481280.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ The Maytals - The Best Of The Maytals (2016) 2CD, Compilation [MP3|320 Kbps] <Re
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479394.jpg" />
+  <img src="Z:/picture/008/save_picture_479394.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478168.jpg" />
+  <img src="Z:/picture/008/save_picture_478168.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Stephan Pie - Не паникуй! (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473190.jpg" />
+  <img src="Z:/picture/008/save_picture_473190.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ DK - SYNONIM (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473080.jpg" />
+  <img src="Z:/picture/008/save_picture_473080.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473074.jpg" />
+  <img src="Z:/picture/008/save_picture_473074.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ L'One - Гравитация (2016) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468323.jpg" />
+  <img src="Z:/picture/008/save_picture_468323.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Pra(Killa'Gramm) - 39 ROOTS (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466549.jpg" />
+  <img src="Z:/picture/008/save_picture_466549.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465900.jpg" />
+  <img src="Z:/picture/008/save_picture_465900.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Beyonce (Beyoncé) - Renaissance (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <R&B, Pop
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463812.jpg" />
+  <img src="Z:/picture/008/save_picture_463812.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Jahmal TGK - Superda (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463314.jpg" />
+  <img src="Z:/picture/008/save_picture_463314.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Young Thug - So Much Fun (2019) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461077.jpg" />
+  <img src="Z:/picture/008/save_picture_461077.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455443.jpg" />
+  <img src="Z:/picture/008/save_picture_455443.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Apollo Brown & Skyzoo - The Easy Truth (2016) [FLAC|Lossless|tracks] <Hip Hop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453220.jpg" />
+  <img src="Z:/picture/008/save_picture_453220.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Kaisa - K.M.K. (2010) Bonus Edition [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450631.jpg" />
+  <img src="Z:/picture/008/save_picture_450631.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ VA - Chillhop Essentials - Fall (2016) [FLAC|Lossless|Web-DL|tracks] <Instrument
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448214.jpg" />
+  <img src="Z:/picture/008/save_picture_448214.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ The Platters - The Original Platters The Very Best Of (1987) [MP3|192 kbps]<Rhyt
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447615.jpg" />
+  <img src="Z:/picture/008/save_picture_447615.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ Sagath - Тёмное добро (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443279.jpg" />
+  <img src="Z:/picture/008/save_picture_443279.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443153.jpg" />
+  <img src="Z:/picture/008/save_picture_443153.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443141.jpg" />
+  <img src="Z:/picture/008/save_picture_443141.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440455.jpg" />
+  <img src="Z:/picture/008/save_picture_440455.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ Ka - The Night's Gambit (2013) [FLAC|Lossless|tracks + .cue] <Hip Hop, Conscious
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431216.jpg" />
+  <img src="Z:/picture/008/save_picture_431216.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Juicy J - Stay Trippy (2013) Best Buy Exclusive [FLAC|Lossless|tracks + .cue] <H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430476.jpg" />
+  <img src="Z:/picture/008/save_picture_430476.jpg" />
 </div>
 
 
@@ -728,7 +728,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430038.jpg" />
+  <img src="Z:/picture/008/save_picture_430038.jpg" />
 </div>
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1167299   (419071) от 19.09.2017
+
+Moto Racer 2 (1998) [Multi] (1.0) License GOG
+
+>>Win Старые Игры
+>>Racing
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_419071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сначала была Moto Racer – незабываемая, динамичная гоночная игра, о которой можно было только мечтать. Потом вышла Moto Racer 2: ее создатели взяли все хорошее из предыдущей игры серии и сделали еще лучше! Еще больше удовольствия со множеством нововведений. Обширный выбор трасс (целых 32!), потрясающая анимация при игре от третьего лица, а отличный вид от первого (   Читать дальше...   )Тип издания: LicenseРазработчик: Delphine SoftwareЖанр: Гонки, Экшн, РаллиЯзык озвучки: Английский, Немецкий, Испанский, Французский и другиеЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB593E2C20E7FFE3656B9C3CA38AAF89A9EEDA78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325486   (411767) от 15.09.2019
+
+Call of Juarez: Bound in Blood (2009) [Multi] (1.1.0.0) License GOG
+
+>>Win Старые Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_411767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Америка горит в Гражданской войне, Север наступает на пятки Югу, Геттисберг уже совсем скоро, но участники конфликта еще об этом не знают. Братья МакКоллы сражаются на стороне Конфедерации. Под командованием полковника Барнсби они, по мере сил, дают отпор Союзу, но решают дезертировать, когда узнают, что их родная ферма в Джорджии разграблена. В желании вернуть потерянное (   Читать дальше...   )Тип издания: LicenseРазработчик: TechlandЖанр: Шутер, Экшн, FPPЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADADFA6B8ADAB4817B3F050EF26303F8A622C72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413024   (411174) от 02.10.2020
 
 Pendragon (2020) [En] (1.2.13) License GOG
@@ -6,7 +58,7 @@ Pendragon (2020) [En] (1.2.13) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411174.jpg" />
+  <img src="Z:/picture/008/save_picture_411174.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Big Buck Hunter Arcade (2016) [En] (5.3.6) License PLAZA
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411080.jpg" />
+  <img src="Z:/picture/008/save_picture_411080.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Konami Collector's Series: Castlevania & Contra (2002) [En] (1.0) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409222.jpg" />
+  <img src="Z:/picture/008/save_picture_409222.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Star Wars: Battlefront (2004) [En] (1.3.7.4) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406969.jpg" />
+  <img src="Z:/picture/008/save_picture_406969.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406264.jpg" />
+  <img src="Z:/picture/008/save_picture_406264.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Psi-Ops: The Mindgate Conspiracy / Psi-Ops: Врата разума [Ru/En] (ReP
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405676.jpg" />
+  <img src="Z:/picture/008/save_picture_405676.jpg" />
 </div>
 
 
@@ -164,7 +216,7 @@ Second Sight [Ru/En] (RePack) 2005 | R.G. Механики
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405391.jpg" />
+  <img src="Z:/picture/008/save_picture_405391.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ Simon the Sorcerer 3D (2002) [Ru/En] (2.0) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_404662.jpg" />
+  <img src="Z:/picture/008/save_picture_404662.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_402151.jpg" />
+  <img src="Z:/picture/008/save_picture_402151.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ Spirit of Excalibur [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398038.jpg" />
+  <img src="Z:/picture/008/save_picture_398038.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ Dark Heart of Uukrul [En] (RePack) 1989 | RG games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397858.jpg" />
+  <img src="Z:/picture/008/save_picture_397858.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ Kingdom at War [En] (RePack) 1992 | RG Games/Pilotus
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_396863.jpg" />
+  <img src="Z:/picture/005/save_picture_396863.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ Darkspyre [En] (RePack) 1990 | RG Games/Pilotus
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395900.jpg" />
+  <img src="Z:/picture/008/save_picture_395900.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ Worms: Armageddon [Ru/En/Multi9] (RePack/3.6.31.2b) 1999 | R.G. GraSe Team
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395504.jpg" />
+  <img src="Z:/picture/008/save_picture_395504.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ Neverending Story 2 [En] (RePack) 1991 | RG games/Pilotus
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390715.jpg" />
+  <img src="Z:/picture/008/save_picture_390715.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ Jim Power in "Mutant Planet" [En] (RePack) 1993
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390058.jpg" />
+  <img src="Z:/picture/008/save_picture_390058.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война Миров
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_388887.jpg" />
+  <img src="Z:/picture/008/save_picture_388887.jpg" />
 </div>
 
 
@@ -454,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386775.jpg" />
+  <img src="Z:/picture/008/save_picture_386775.jpg" />
 </div>
 
 
@@ -480,7 +532,7 @@ Beltion: Beyond Ritual / Бельтион: Свод Равновесия (2009) 
 >>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384892.jpg" />
+  <img src="Z:/picture/008/save_picture_384892.jpg" />
 </div>
 
 
@@ -506,7 +558,7 @@ Mortal Kombat Trilogy (1996) [En] (1.0hf) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383150.jpg" />
+  <img src="Z:/picture/008/save_picture_383150.jpg" />
 </div>
 
 
@@ -532,7 +584,7 @@ Advent Rising (2005) [En] (1.0) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381952.jpg" />
+  <img src="Z:/picture/008/save_picture_381952.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ Enclave (2003) [Multi] (1.0.0.1) License PROPHET
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381938.jpg" />
+  <img src="Z:/picture/008/save_picture_381938.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ CyberMage: Darklight Awakening [En] (RePack) 1995 | dimonstrer
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_380580.jpg" />
+  <img src="Z:/picture/008/save_picture_380580.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ Wings of Honour / Крылья отваги [Ru] (P) 2003
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_377689.jpg" />
+  <img src="Z:/picture/005/save_picture_377689.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ Wings of Honour / Крылья отваги [Ru] (P) 2003
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164418   (376909) от 12.10.2018
-
-Darkstone (1999) [En/Ge/Fr] (1.0.5b) License GOG
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376909.jpg" />
-</div>
-
-
-###  Подробнее
-
-На мир упала мрачная тень ужасного дракона. Жители деревень превращаются в камень. Армии скелетов, рои ос и неуклюжие огры бродят повсюду. Зло распространяется как лесной пожар. Только вы можете положить этому конец! По всему королевству разбросаны семь огромных древних кристаллов. Собранные вместе, они могут пробудить силу Сферы. Без нее у вас нет надежды сокрушить (   Читать дальше...   )Тип издания: LicenseРазработчик: Delphine Software InternationalЖанр: Action, RPG, 3DЯзык озвучки: Английский, Немецкий, ФранцузскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED7C79A13BB9675DC96A0C03B7AE71136CEDA87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058931   (376753) от 12.10.2018
-
-Master of Orion 3 / Master of Orion 3: Престол Галактики (2003) [Ru/En] (1.2.5 (19644)) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сектор галактики пережил страшные потрясения. Цивилизации достигали зенита и теряли свое величие. Разгорались грандиозные войны и заканчивались, не оставляя следа... Космос живёт по своему времени, одна секунда которого - бесконечные столетия для гуманоидного разума. Но от бурного прошлого остались тайны, которые хранит безмолвная тьма.Тип издания: LicenseРазработчик: Quicksilver SoftwareЖанр: Strategy (Turn-based, Grand Strategy)Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E498028156CF8DCD5550E8BBB286B6CB638B5620
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,118 @@
+###  Публикация: 1802454   (66058) от 17.06.2025
+
+Иван Бунин | Дело корнета Елагина (Радиоспектакль) (1991) [MP3, Борис Улитин, Анатолий Петров и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека. Литературный сериал.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Рассказ Ивана Бунина «Дело корнета Елагина» (1926)написан на основе реального уголовного дела об убийстве русским офицером Бартеневым польской актрисы Висновской.
+Впервые напечатано в газете «Возрождение», (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D68798A5A0E20C29F18EB17261AE2AE5C47735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802478   (66056) от 17.06.2025
+
+Иван Бунин | Господин из Сан-Франциско (2002) [MP3, Игорь Дмитриев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека. Литературный сериал.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Рассказ-притча И.А. Бунина «Господин из Сан-Франциско» был написан в 1915 году и впервые опубликован в этом же году в сборнике «Слово».
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636EB81973B951DC051BE2E0674952ED4372DA09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802455   (66053) от 17.06.2025
+
+Иван Бунин | Дело корнета Елагина (2024) [MP3, Дмитрий Креминский]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_66053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Писательскому перу Ивана Бунина всегда была присуща реалистическая манера. Когда речь шла об увядающей деревне, он создавал живописные картины гибели; когда речь шла о любви – картины радости и света.
+В «Деле корнета Елагина» (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ООО «Эвербук»Продолжительность: 01:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A689BA0C5F73C69ED52C48193D91F78DF82B7612
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803108   (65921) от 21.06.2025
+
+Александр Куприн | Ночная фиалка (Инсценировка) (1992) [MP3, Игорь Дмитриев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека. Малая проза.
+Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
+«Ночная фиалка» – рассказ А.И. Куприна, написанный им во время эмиграции в Париже (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E09233C02B0F642BE8538F598335EF26E1F8253A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1803948   (65751) от 26.06.2025
 
 Пантелеймон Романов | И смех, и слёзы (Радиоспектакль) (1991) [MP3, Геннадий Богачёв, Иван Краско и др.]
@@ -6,7 +121,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65751.jpg" />
 </div>
 
 
@@ -34,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65727.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65727.jpg" />
 </div>
 
 
@@ -63,7 +178,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65557.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65557.jpg" />
 </div>
 
 
@@ -92,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65554.jpg" />
 </div>
 
 
@@ -120,7 +235,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65539.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65539.jpg" />
 </div>
 
 
@@ -147,7 +262,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65507.jpg" />
 </div>
 
 
@@ -176,7 +291,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65395.jpg" />
 </div>
 
 
@@ -203,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65394.jpg" />
 </div>
 
 
@@ -230,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65340.jpg" />
 </div>
 
 
@@ -258,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65189.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65189.jpg" />
 </div>
 
 
@@ -284,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_65011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_65011.jpg" />
 </div>
 
 
@@ -313,7 +428,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64965.jpg" />
 </div>
 
 
@@ -339,7 +454,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64954.jpg" />
 </div>
 
 
@@ -367,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64939.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64939.jpg" />
 </div>
 
 
@@ -393,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64896.jpg" />
 </div>
 
 
@@ -421,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64877.jpg" />
 </div>
 
 
@@ -449,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64873.jpg" />
 </div>
 
 
@@ -475,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64693.jpg" />
 </div>
 
 
@@ -502,7 +617,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64680.jpg" />
 </div>
 
 
@@ -531,7 +646,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_64673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_64673.jpg" />
 </div>
 
 
@@ -560,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63902.jpg" />
 </div>
 
 
@@ -586,7 +701,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63878.jpg" />
 </div>
 
 
@@ -598,119 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A598363B8148533DF12A2D861E86E652FC64DD63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 321835   (63836) от 06.03.2024
-
-Эрнст Теодор Амадей Гофман | Песочный человек (2004) [MP3, Олег Фёдоров]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эрнст Теодор Амадей Гофман (1776–1822) – немецкий писатель-романтик, композитор и художник, один из основоположников сказочной фантастики.
-В повести «Песочный человек» её герой Натанаэль – одержим паническим страхом перед внешним миром, и эта миробоязнь постепенно приобретает болезненный, по сути, клинический характер. Невеста Натанаэля Клара пытается образумить (   Читать дальше...   )Жанр: Зарубежная литература, классика, условно-фантастическая повестьИздательство: Вира-М (аудио)Продолжительность: 01:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF32242B584A1E1F06502505A065376063B893D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372548   (63763) от 07.03.2024
-
-Оскар Уайльд | Саломея (Радиоспектакль) (2010) [MP3, Ольга Остроумова, Валентин Гафт и др.]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Театр у микрофона. Из фондов «Радио России».
-Оскар Уайльд (1854–1900) – ирландский писатель и поэт.
-Радиоспектакль по одноименной драме «Саломея» английского писателя Оскара Уайльда. «Саломея» Уайльда – возрождение поэтической драмы больших страстей, в которой любовь неотделима от смерти…
-Сюжет драмы основан на библейском рассказе о гибели Иоанна Крестителя.(   Читать дальше...   )Жанр: Зарубежная литература, классика, драмаИздательство: Радио РоссииПродолжительность: 01:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC71CFDADDF5DE828E44D86ECE4835CBA31E758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372403   (63758) от 07.03.2024
-
-Оскар Уайльд | Портрет Дориана Грея (2006) [MP3, Юрий Доронин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика (АСТ).
-Перед вами – лучшее из творческого наследия великого Оскара Уайльда, произведение, дающее наиболее полное представление о его ярком, многогранном таланте.
-Единственный роман Уайльда – это история человека, сделавшего смыслом своего существования поиски новых, все более изощренных ощущений и впечатлений.
-Следуя по избранному (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Аудиокнига (АСТ)Продолжительность: 10:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFDB4F50239300D01233BD591692C6674E52CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372546   (63747) от 07.03.2024
-
-Оскар Уайльд | Саломея (2005) [MP3, Екатерина Семёнова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63747.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Зарубежная классика.
-Драма «Саломея» была написана основоположником западноевропейского декаданса Уайльдом в 1892 году специально для великой французской актрисы Сары Бернар. Премьера с ее участием состоялась в Париже в 1896 году, но вскоре постановка была запрещена французской цензурой.
-В основу драмы Уайльдом был положен библейский миф о Саломее – падчерице (   Читать дальше...   )Жанр: Зарубежная литература, классика, драмаИздательство: Студия «АРДИС»Продолжительность: 01:27:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDDD7137C6BC8C10F789EEA3BAEE60A2D20675F
 ```
 
 https://mybot314.ru/tekegram_catalog/

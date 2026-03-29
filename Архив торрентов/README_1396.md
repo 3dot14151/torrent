@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737436.jpg" />
+  <img src="Z:/picture/008/save_picture_737436.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737434.jpg" />
+  <img src="Z:/picture/008/save_picture_737434.jpg" />
 </div>
 
 
@@ -60,7 +60,7 @@ System Toolkit 5.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737414.jpg" />
+  <img src="Z:/picture/008/save_picture_737414.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ NetWorker Pro 8.2.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737413.jpg" />
+  <img src="Z:/picture/008/save_picture_737413.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ BusyContacts 1.6.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737412.jpg" />
+  <img src="Z:/picture/008/save_picture_737412.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Screen Wonders 2.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737409.jpg" />
+  <img src="Z:/picture/008/save_picture_737409.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Disk PLUS 1.72 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737402.jpg" />
+  <img src="Z:/picture/008/save_picture_737402.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Mirror for Philips TV 2.7.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737401.jpg" />
+  <img src="Z:/picture/008/save_picture_737401.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Ftp-Serv 8.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737398.jpg" />
+  <img src="Z:/picture/008/save_picture_737398.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ SILKYPIX Developer Studio Pro 11E 11.0.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737397.jpg" />
+  <img src="Z:/picture/008/save_picture_737397.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Exposure X7 v7.1.1.162  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737396.jpg" />
+  <img src="Z:/picture/008/save_picture_737396.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Tipard Mac Video Enhancer 9.1.32 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737394.jpg" />
+  <img src="Z:/picture/008/save_picture_737394.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ Pocket cleaner Pro 1.5.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737387.jpg" />
+  <img src="Z:/picture/008/save_picture_737387.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ start 5.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737385.jpg" />
+  <img src="Z:/picture/008/save_picture_737385.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ Exposure X7 Bundle v7.1.0.90 [EN]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737382.jpg" />
+  <img src="Z:/picture/008/save_picture_737382.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ HiBit Uninstaller 2.7.45 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737381.jpg" />
+  <img src="Z:/picture/008/save_picture_737381.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Firefox Browser ESR 91.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737379.jpg" />
+  <img src="Z:/picture/008/save_picture_737379.jpg" />
 </div>
 
 
@@ -459,7 +459,7 @@ Audio Hijack 3.8.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737373.jpg" />
+  <img src="Z:/picture/008/save_picture_737373.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ Mozilla Thunderbird 91.5.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737372.jpg" />
+  <img src="Z:/picture/008/save_picture_737372.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Chromium 97.0.4692.99 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737367.jpg" />
+  <img src="Z:/picture/008/save_picture_737367.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ KiCad 6.0.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737364.jpg" />
+  <img src="Z:/picture/008/save_picture_737364.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ Firefox Browser 96.0.3 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_737363.jpg" />
+  <img src="Z:/picture/005/save_picture_737363.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Whale Browser 3.12.129.46 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737342.jpg" />
+  <img src="Z:/picture/008/save_picture_737342.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Luminar Neo 0.9.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737341.jpg" />
+  <img src="Z:/picture/008/save_picture_737341.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Auslogics Registry Cleaner Pro 9.2.0.1 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737336.jpg" />
+  <img src="Z:/picture/008/save_picture_737336.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Opera 83.0.4254.27 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737333.jpg" />
+  <img src="Z:/picture/008/save_picture_737333.jpg" />
 </div>
 
 

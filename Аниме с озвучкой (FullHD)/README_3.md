@@ -1,3 +1,29 @@
+###  Публикация: 1462457   (1021191) от 14.04.2021
+
+Рок-шоу! | Show by Rock!! Mashumairesh!! [2020, TV, 12 из 12] WEBRip 1080p rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сиан — талантливая гитаристка, она мечтает играть в школьной группе, но не в силах побороть свою стеснительность, и ее, конечно, никто не замечает. Но однажды повседневность нарушает невероятное приключение, которое изменит её жизнь. Ее затянет в причудливый виртуальный мир музыкальной игры, где ей придётся победить свои страхи и сразиться со злом.Производство: Япония, студия Kamikaze Douga / 神風動画Жанр: комедия, музыкальныйРежиссер: Сон Сон ХиЯзык озвучки: Русский закадровый (Wakanim.tv)Субтитры: Русские надписи (неотключаемые)Продолжительность: 12 эпизодов по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248AEED36B5442543B93B69298B1C60F8188E1C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462440   (1021171) от 14.04.2021
 
 Гяру и динозавр | Gal to Kyouryuu | Gal & Dino [TV-1] [2020, TV, 12 из 12] WEBRip 1080p rus
@@ -6,7 +32,7 @@
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021171.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021171.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Yuukoku no Moriarty | Moriarty the Patriot | Патриот Мориарти [ч
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021057.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021057.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Domestic na Kanojo | Домашняя девушка [2019, TV, 12 из 12] BDRi
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020758.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020758.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Sankarea | Санка Рэа [2012, TV, 12 эп. + 1 SP +2 OVA] BDRip 1080p 10-b
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020591.jpg" />
 </div>
 
 
@@ -111,7 +137,7 @@ Btooom! | Взрыв! [2012, TV 12 из 12] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020434.jpg" />
 </div>
 
 
@@ -137,7 +163,7 @@ Rosario to Vampire | Розарио + Вампир [TV1 + TV2] [2008, TV, 26 э�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020399.jpg" />
 </div>
 
 
@@ -163,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020252.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020252.jpg" />
 </div>
 
 
@@ -189,7 +215,7 @@ Kanata no Astra | Astra Lost in Space | Астра, затерянная в ко
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019932.jpg" />
 </div>
 
 
@@ -215,7 +241,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-2] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019443.jpg" />
 </div>
 
 
@@ -241,7 +267,7 @@ Ansatsu Kyoushitsu | Assassination Classroom | Класс убийц [ТВ-1] [2
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019440.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019440.jpg" />
 </div>
 
 
@@ -267,7 +293,7 @@ Ishuzoku Reviewers | Interspecies Reviewers | Межвидовые реценз�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019209.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019209.jpg" />
 </div>
 
 
@@ -293,7 +319,7 @@ Enen no Shouboutai | Пламенная бригада пожарных [ТВ-1]
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019193.jpg" />
 </div>
 
 
@@ -319,7 +345,7 @@ Obsolete (2020) | Устаревший (2020) [2020, Web, 6 из 6] BDRip 1080p 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018708.jpg" />
 </div>
 
 
@@ -345,7 +371,7 @@ Obsolete | Устаревший [2019, Web, 6 из 6] BDRip 1080p 10-bit raw+rus
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018689.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1018689.jpg" />
 </div>
 
 
@@ -371,7 +397,7 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p HEVC 
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017882.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017882.jpg" />
 </div>
 
 
@@ -397,7 +423,7 @@ Omoi, Omoware, Furi, Furare | Love Me, Love Me Not | Любит - не люби�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017868.jpg" />
 </div>
 
 
@@ -423,7 +449,7 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka III | Danmachi III | М�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017330.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017330.jpg" />
 </div>
 
 
@@ -449,7 +475,7 @@ Natsume Yuujinchou | Natsume's Book of Friends | Тетрадь дружбы Н�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017038.jpg" />
 </div>
 
 
@@ -475,7 +501,7 @@ Somali to Mori no Kamisama | Somali and the Forest Spirit | Сомали и Ду
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016564.jpg" />
 </div>
 
 
@@ -501,7 +527,7 @@ Evangelion. 3.33 You Can [Not] Redo | Евангелион. 3.33 Ты (не) И�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016507.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016507.jpg" />
 </div>
 
 
@@ -527,7 +553,7 @@ Enen no Shouboutai: Ni no Shou | Пламенная бригада пожарн�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016344.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1016344.jpg" />
 </div>
 
 
@@ -553,7 +579,7 @@ Mach Go Go Go | Speed Racer | Гонщик Спиди [1967, TV, 52 из 52] BDR
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015282.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015282.jpg" />
 </div>
 
 
@@ -579,7 +605,7 @@ Eizouken ni wa Te o Dasuna! | Keep Your Hands Off Eizouken! | Руки проч�
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1013521.jpg" />
 </div>
 
 
@@ -605,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011272.jpg" />
 </div>
 
 
@@ -631,7 +657,7 @@ Kikou Ryouhei Mellowlink | Armor Hunter Mellowlink | Бронебойщик Ме
 >>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011093.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1011093.jpg" />
 </div>
 
 
@@ -642,32 +668,6 @@ Kikou Ryouhei Mellowlink | Armor Hunter Mellowlink | Бронебойщик Ме
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5859C46BA670614DCAD4035928D3A12654F315FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478901   (1009918) от 21.06.2021
-
-Gekijouban Gintama Kanketsuhen: Yorozuya yo Eien Nare | Gintama: Movie 2 | Гинтама (фильм второй) [2013, Movie] BDRip 1080p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интересно, что бы случилось, если бы Белого Демона никогда не существовало? В один прекрасный день мир сошёл с ума, и теперь Эдо ввергнут в настоящий хаос. Гинтоки Саката отныне живёт в альтернативной реальности, будущем, в котором ему места не нашлось. Но что же случилось с Ёродзуей? А с остальными? Но важнее всего: кто за всем этим стоит? Похоже, Гинтоки снова (   Читать дальше...   )Производство: Япония, SunriseЖанр: Комедия, приключения, полнометражныйРежиссер: Ёити ФудзитаЯзык озвучки: Русский, японскийПродолжительность: 01:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D51831BB99385AEF8C331DA9AC6231096D41087
 ```
 
 https://mybot314.ru/tekegram_catalog/

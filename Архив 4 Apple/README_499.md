@@ -1,3 +1,109 @@
+###  Публикация: 1457230   (243027) от 25.03.2021
+
+Paletter 4 v4.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_243027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самым сложным в дизайне может быть просто выбор цвета. Палитра призвана облегчить вам жизнь, помогая открывать и создавать красивые цветовые комбинации.Тип издания: macOS SoftwareРелиз состоялся: 24.03.2021Разработчик: Toys, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E81147C61F174553BE99C4F5BBB3A2C86BF7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540317   (243026) от 29.03.2022
+
+Stats 2.7.10 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_243026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © 2022 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10B760A4842452FB243DB2FC1E03530FE6A429A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457366   (243020) от 25.03.2021
+
+Exposure Software Blow Up 3 v3.1.4.379 ARM [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_243020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Exposure Software Blow Up плагин для Adobe Photoshop, Elements и Lightroom. Blow Up производит увеличение до 3600% без появления ступенчатых артефактов и свечений. Высококачественное изменение размеров изображений, лучшее чем бикубическая интерполяция и при изменении размера изображения, сохраняет гладкие четкие края и линии.
+Blow Up работает с Photoshop, Elements, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B590F0BCE6498115FC1B6CB6B606635A4AF4BD8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540403   (243017) от 29.03.2022
+
+Dropzone 4 Pro v4.3.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_243017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropzone - удобная утилита для автоматизация рутинных действий.
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © 2022 Aptonic LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8086DA7E7F3EBCB43962EF95EABAEF79A3C0F87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624181   (243010) от 04.04.2023
 
 Alfred PowerPack 5.1 Pre-release [En]
@@ -6,7 +112,7 @@ Alfred PowerPack 5.1 Pre-release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243010.jpg" />
+  <img src="Z:/picture/005/save_picture_243010.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Amadine 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_243006.jpg" />
+  <img src="Z:/picture/005/save_picture_243006.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Stacks 4 (RapidWeaver plugin) v4.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242998.jpg" />
+  <img src="Z:/picture/005/save_picture_242998.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ n-Track Studio Suite 9.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242975.jpg" />
+  <img src="Z:/picture/005/save_picture_242975.jpg" />
 </div>
 
 
@@ -113,7 +219,7 @@ Valentina Studio Pro 12.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242970.jpg" />
+  <img src="Z:/picture/005/save_picture_242970.jpg" />
 </div>
 
 
@@ -139,7 +245,7 @@ Exposure Software Snap Art 4 v4.1.3.371 ARM  [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242968.jpg" />
+  <img src="Z:/picture/005/save_picture_242968.jpg" />
 </div>
 
 
@@ -165,7 +271,7 @@ EdgeView 3 v3.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242963.jpg" />
+  <img src="Z:/picture/005/save_picture_242963.jpg" />
 </div>
 
 
@@ -191,7 +297,7 @@ Chaos Control Premium 1.13 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242961.jpg" />
+  <img src="Z:/picture/005/save_picture_242961.jpg" />
 </div>
 
 
@@ -219,7 +325,7 @@ Disk Space Analyzer Pro 4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242958.jpg" />
+  <img src="Z:/picture/005/save_picture_242958.jpg" />
 </div>
 
 
@@ -246,7 +352,7 @@ EazyDraw 10.8.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242956.jpg" />
+  <img src="Z:/picture/005/save_picture_242956.jpg" />
 </div>
 
 
@@ -272,7 +378,7 @@ BusyCal 3 v3.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242951.jpg" />
+  <img src="Z:/picture/005/save_picture_242951.jpg" />
 </div>
 
 
@@ -299,7 +405,7 @@ Cardhop 2.0.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242943.jpg" />
+  <img src="Z:/picture/005/save_picture_242943.jpg" />
 </div>
 
 
@@ -326,7 +432,7 @@ Art Text 4.0.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242925.jpg" />
+  <img src="Z:/picture/005/save_picture_242925.jpg" />
 </div>
 
 
@@ -353,7 +459,7 @@ App Tamer 2 v2.7.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242895.jpg" />
+  <img src="Z:/picture/005/save_picture_242895.jpg" />
 </div>
 
 
@@ -379,7 +485,7 @@ Path Finder 10 v10.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242894.jpg" />
+  <img src="Z:/picture/005/save_picture_242894.jpg" />
 </div>
 
 
@@ -405,7 +511,7 @@ SimpleMind Pro 1.28.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242879.jpg" />
+  <img src="Z:/picture/005/save_picture_242879.jpg" />
 </div>
 
 
@@ -432,7 +538,7 @@ Export for iTunes 1.9.74 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242874.jpg" />
+  <img src="Z:/picture/005/save_picture_242874.jpg" />
 </div>
 
 
@@ -458,7 +564,7 @@ Fireplace Live HD + Screensaver 4.0.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242865.jpg" />
+  <img src="Z:/picture/005/save_picture_242865.jpg" />
 </div>
 
 
@@ -484,7 +590,7 @@ MediaInfo 22.03 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242724.jpg" />
+  <img src="Z:/picture/005/save_picture_242724.jpg" />
 </div>
 
 
@@ -510,7 +616,7 @@ TunesKit AceMovi Video Editor 3.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242723.jpg" />
+  <img src="Z:/picture/005/save_picture_242723.jpg" />
 </div>
 
 
@@ -536,7 +642,7 @@ TG Pro (Temperature Gauge Pro) 2.80 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242708.jpg" />
+  <img src="Z:/picture/005/save_picture_242708.jpg" />
 </div>
 
 
@@ -563,7 +669,7 @@ Chaotica 2.2.2 Beta [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242680.jpg" />
+  <img src="Z:/picture/005/save_picture_242680.jpg" />
 </div>
 
 
@@ -574,117 +680,6 @@ Chaotica - это приложение фрактального искусств
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EF7AABFD856AE28721F66E6D950D6B7AA129A44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457721   (242631) от 26.03.2021
-
-Bootstrap Studio 5.6.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bootstrap Studio - это мощное настольное приложение для проектирования и создания прототипов сайтов.
-Оно поставляется с большим количеством встроенных компонентов, которые можно перетаскивать для создания адаптивных веб-страниц. Приложение построено на основе чрезвычайно популярной платформы Bootstrap и экспортирует чистый и семантический HTML.
-Bootstrap Studio обладает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2021Разработчик: BootstrapstudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD5ED9CD5FA82FF345A5067C4B8A0354BAEE33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362626   (242624) от 24.02.2020
-
-FileAssistant 2.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко и быстро находить, копировать, вырезать, удалять файлы на Mac
-Вы не хотите тратить свое время, чтобы искать нужный файл на вашем Mac, не так ли? Вы не хотите , чтобы хранились дубликаты файлов на вашем Mac, не так ли? Просто скачайте FileAssistant, это поможет вм легко управлять файлами на Mac.
-
-Вы можете свободно перетаскивать или добавлять файлы / папки из (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: DoYourDataПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040D5309EA0DC61638DF33D81BB9169389DAC29E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541563   (242617) от 03.04.2022
-
-Audio Hijack 4.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audio Hijack - отличное решение для аудио записи на macOS с любого источника звука - Skype, голосовой чат, клиента VoIP, DVD (если есть устройство), микрофона и т.д.
-В новой итерации утилита Audio Hijack получила совершенно новый блочный интерфейс, набор шаблонов для настройки записи, поддержку нескольких источников звука для одной сессии, специальные фильтры для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.04.2022Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.14.4 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:134913D3251E15DB093A3E9C3E05EE0382D632BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628111   (242574) от 21.04.2023
-
-Duplicate File Finder Pro 7.0.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate File Finder - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
-Функция Drag & drop и столько папок, сколько вы хотите, затем нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатами файлов по категориям: изображения, видео, музыки, архивы, документы и пр. Это очень легко, чтобы увидеть, сколько места занимает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.04.2023Разработчик: © 2023 NektonyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0F127940E4C99BBECDD1C7DDB4107B8CEBFBFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

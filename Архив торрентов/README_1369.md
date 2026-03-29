@@ -6,7 +6,7 @@ The KMPlayer 4.2.2.42 repack by cuta (build 1) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743779.jpg" />
+  <img src="Z:/picture/008/save_picture_743779.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Windows 10 Pro VL x64 v.2004.19041.388 2in1 July 2020 by Generation2 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743776.jpg" />
+  <img src="Z:/picture/008/save_picture_743776.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Principle 6 v6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743766.jpg" />
+  <img src="Z:/picture/008/save_picture_743766.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Clearview X 3.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743765.jpg" />
+  <img src="Z:/picture/008/save_picture_743765.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Viwizard Spotify Music Converter for Mac 2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743762.jpg" />
+  <img src="Z:/picture/008/save_picture_743762.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ PCDJ DEX 3 v3.17.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743758.jpg" />
+  <img src="Z:/picture/008/save_picture_743758.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Dato 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743755.jpg" />
+  <img src="Z:/picture/008/save_picture_743755.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Jozef Van Wissem & Jim Jarmusch - An Attempt to Draw Aside the Veil (2019) [FLAC
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743751.jpg" />
+  <img src="Z:/picture/008/save_picture_743751.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Blocs 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743748.jpg" />
+  <img src="Z:/picture/008/save_picture_743748.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ Photo Supreme 4.3.3.1949 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743747.jpg" />
+  <img src="Z:/picture/008/save_picture_743747.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Mozilla Firefox Quantum ESR 60.5.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743744.jpg" />
+  <img src="Z:/picture/008/save_picture_743744.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Mozilla Firefox Quantum 65.0.1 Portable by PortableApps [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743742.jpg" />
+  <img src="Z:/picture/008/save_picture_743742.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743741.jpg" />
+  <img src="Z:/picture/008/save_picture_743741.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743695.jpg" />
+  <img src="Z:/picture/008/save_picture_743695.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ CoolUtils Total Image Converter 7.1.128 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743692.jpg" />
+  <img src="Z:/picture/008/save_picture_743692.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ EASEUS Partition Master 14.5 Unlimited Edition RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743682.jpg" />
+  <img src="Z:/picture/008/save_picture_743682.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ Windows 7 Home - Ultimate (x86/x64) UpdPack7R2 by ProDarks (20.7.15)
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743651.jpg" />
+  <img src="Z:/picture/008/save_picture_743651.jpg" />
 </div>
 
 
@@ -460,7 +460,7 @@ ThunderSoft GIF to Video Converter 4.1.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743646.jpg" />
+  <img src="Z:/picture/008/save_picture_743646.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ KCNcrew Pack 01-15-22 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743644.jpg" />
+  <img src="Z:/picture/008/save_picture_743644.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Luminar Neo 0.9.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743640.jpg" />
+  <img src="Z:/picture/008/save_picture_743640.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ WeatherShot v6.2.0 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743639.jpg" />
+  <img src="Z:/picture/008/save_picture_743639.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ Capture One 22 Pro [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743638.jpg" />
+  <img src="Z:/picture/008/save_picture_743638.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ iStatistica 5.1.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743637.jpg" />
+  <img src="Z:/picture/008/save_picture_743637.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ ThunderSoft Video to GIF Converter 3.6.0 (Repack & Portable) by elchupacabra [Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743633.jpg" />
+  <img src="Z:/picture/008/save_picture_743633.jpg" />
 </div>
 
 
@@ -647,7 +647,7 @@ File & Image Uploader 8.1.8 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743630.jpg" />
+  <img src="Z:/picture/008/save_picture_743630.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743626.jpg" />
+  <img src="Z:/picture/008/save_picture_743626.jpg" />
 </div>
 
 

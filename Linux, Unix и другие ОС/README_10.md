@@ -1,3 +1,57 @@
+###  Публикация: 1020004   (746485) от 25.05.2016
+
+OSGeo-Live 9.5 (Дистрибутив для географов, картографов, кризисного управления) [i386, amd64] 2xDVD, 1xVM
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746485.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлен очередной релиз OSGeo-Live — живого диска в виде DVD, образа для записи на USB-носитель и образа для виртуальной машины. Основан на Linux-дистрибутиве Lubuntu текущей LTS версии. Также может быть установлен на жесткий диск. Содержит обновленное до актуальных версий открытое/свободное ПО для работы с пространственными данными (ГИС, СУБД, веб-картография (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E4DBACC89EC17DAE517E2740C81AE90C840E98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020008   (746244) от 25.05.2016
+
+Q4OS 1.4.10 (Легкий дистрибутив) [Trinity - форк KDE 3.5] [i386, i686pae, amd64] 4xCD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_746244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Q4OS - дистрибутив операционной системы Linux, созданный как альтернатива классическому Windows XP, предоставляющий знакомый интерфейс, удобную систему установки программ, простоту и скорость работы. Также система удобна для серверов и виртуальных облаков по причине низких требований к железу.
+
+Система базируется на Debian и использует в качестве графической оболочки (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE5D9C1273A392742F71A699A691531DE62F5296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216690   (744360) от 03.04.2018
 
 BackBox Linux v5.1 [Аудит безопасности, хакинг] 2xDVD [i386, amd64]
@@ -6,7 +60,7 @@ BackBox Linux v5.1 [Аудит безопасности, хакинг] 2xDVD [i3
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744360.jpg" />
+  <img src="Z:/picture/008/save_picture_744360.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ DaVinci Resolve for Linux 17.4.3 Build 10 [amd64] (run, deb)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743432.jpg" />
+  <img src="Z:/picture/008/save_picture_743432.jpg" />
 </div>
 
 
@@ -60,7 +114,7 @@ Debian GNU/Linux 8.0 Jessie RC3 (Testing, 20.04.2015) [amd64] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742981.jpg" />
+  <img src="Z:/picture/008/save_picture_742981.jpg" />
 </div>
 
 
@@ -88,7 +142,7 @@ Debian GNU/Linux 8.0 Jessie RC3 (Testing, 20.04.2015) [i386] 3xDVD
 >>ОС *Nix (Alpha, Beta, RC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742913.jpg" />
+  <img src="Z:/picture/008/save_picture_742913.jpg" />
 </div>
 
 
@@ -116,7 +170,7 @@ Calculate Linux 14.16 [i686] 2xCD, 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741829.jpg" />
+  <img src="Z:/picture/008/save_picture_741829.jpg" />
 </div>
 
 
@@ -144,7 +198,7 @@ Calculate Linux 14.16 [x86-64] 2xCD, 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741662.jpg" />
+  <img src="Z:/picture/008/save_picture_741662.jpg" />
 </div>
 
 
@@ -172,7 +226,7 @@ BlackArch Linux 2015.04.08 [i686, x86-64] 2xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741576.jpg" />
+  <img src="Z:/picture/008/save_picture_741576.jpg" />
 </div>
 
 
@@ -200,7 +254,7 @@ ArchBang Linux 2015.03.28 (Легкий дистрибутив) [i686, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741444.jpg" />
+  <img src="Z:/picture/008/save_picture_741444.jpg" />
 </div>
 
 
@@ -228,7 +282,7 @@ OSGeo-Live 10.5 (Дистрибутив для географов, картог�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740605.jpg" />
+  <img src="Z:/picture/008/save_picture_740605.jpg" />
 </div>
 
 
@@ -254,7 +308,7 @@ Sabayon 14.05 [x86] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738598.jpg" />
+  <img src="Z:/picture/008/save_picture_738598.jpg" />
 </div>
 
 
@@ -282,7 +336,7 @@ Sabayon 14.05 [amd64] 4xDVD, 1xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738593.jpg" />
+  <img src="Z:/picture/008/save_picture_738593.jpg" />
 </div>
 
 
@@ -310,7 +364,7 @@ Kali Linux 2021.4a (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит б�
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738007.jpg" />
+  <img src="Z:/picture/008/save_picture_738007.jpg" />
 </div>
 
 
@@ -336,7 +390,7 @@ Edubuntu 14.04 LTS [x86, x86-64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737147.jpg" />
+  <img src="Z:/picture/008/save_picture_737147.jpg" />
 </div>
 
 
@@ -364,7 +418,7 @@ Lubuntu 14.04 LTS [x86, x86-64] 4xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737030.jpg" />
+  <img src="Z:/picture/008/save_picture_737030.jpg" />
 </div>
 
 
@@ -390,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_733303.jpg" />
+  <img src="Z:/picture/005/save_picture_733303.jpg" />
 </div>
 
 
@@ -417,7 +471,7 @@ GeckoLinux "Rolling" edition 999.200729.0 [amd64] 7xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732834.jpg" />
+  <img src="Z:/picture/008/save_picture_732834.jpg" />
 </div>
 
 
@@ -443,7 +497,7 @@ ROSA Desktop Fresh R9 KDE 4 [i586, x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729374.jpg" />
+  <img src="Z:/picture/008/save_picture_729374.jpg" />
 </div>
 
 
@@ -469,7 +523,7 @@ Sabayon 16.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728469.jpg" />
+  <img src="Z:/picture/008/save_picture_728469.jpg" />
 </div>
 
 
@@ -497,7 +551,7 @@ Kubuntu 15.04 Vivid Vervet (KDE 5.x) [x86, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725112.jpg" />
+  <img src="Z:/picture/008/save_picture_725112.jpg" />
 </div>
 
 
@@ -525,7 +579,7 @@ Xubuntu 15.04 Vivid Vervet (Легкий дистрибутив) [i386, amd64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725061.jpg" />
+  <img src="Z:/picture/008/save_picture_725061.jpg" />
 </div>
 
 
@@ -555,7 +609,7 @@ Lubuntu 15.04 Vivid Vervet (Легкий дистрибутив) [i386, amd64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725059.jpg" />
+  <img src="Z:/picture/008/save_picture_725059.jpg" />
 </div>
 
 
@@ -583,7 +637,7 @@ Debian GNU/Linux 10.5.0 + nonfree Buster [amd64] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724983.jpg" />
+  <img src="Z:/picture/008/save_picture_724983.jpg" />
 </div>
 
 
@@ -611,7 +665,7 @@ Debian GNU/Linux 10.5.0 + nonfree Buster [i386] 4xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724858.jpg" />
+  <img src="Z:/picture/008/save_picture_724858.jpg" />
 </div>
 
 
@@ -639,7 +693,7 @@ Debian Edu - Skolelinux 10.5.0 Buster [Linux для школы] [i386, x86-64] 2
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722734.jpg" />
+  <img src="Z:/picture/008/save_picture_722734.jpg" />
 </div>
 
 
@@ -650,62 +704,6 @@ Debian Edu, также известный как Skolelinux, является д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8809286008D945F56DA3EA30D5C6B535E7226066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023892   (722032) от 06.06.2016
-
-Debian GNU/Linux 8.5.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722032.jpg" />
-</div>
-
-
-###  Подробнее
-
-На зеркалах, с опозданием на сутки по отношению к объявленной дате, стали размещать четвертое обновление стабильного выпуска Debian 8 (кодовое имя "jessie"). Это обновление в основном содержит исправления проблем безопасности стабильного выпуска, а также несколько корректировок серьёзных проблем. Рекомендации по безопасности опубликованы отдельно и указываются (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25245CD7CEBBBAFEC143B54C8E1E177CDEC30D25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892974   (717085) от 27.04.2015
-
-BackBox Linux 4.2 (Анализ безопасности, хакинг) [i386, amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда разработчиков BackBox Linux представляет новый стабильный релиз специализированного дистрибутива GNU/Linux, предназначенного для проведения пен-тестов и оценки безопасности компьютерных систем. Дистрибутив теперь базируется на Ubuntu 14.04.2.
-
-Дистрибутив базируется на Ubuntu - ядро Linix kernel 3.16, и включает в себя ядро Linux 3.16 (u)EFI mode, Ruby 2.1, инсталлятор LVM + disk encryption.
-
-Как и раньше, в предыдущих релизах дистрибутива, исправлены обнаруженные баги, улучшена производительность, улучшено (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4391D34066D3B6FA4414DDEA59135F6578B7DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

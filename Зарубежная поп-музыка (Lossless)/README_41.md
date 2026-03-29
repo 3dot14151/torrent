@@ -1,3 +1,211 @@
+###  Публикация: 1142991   (637478) от 17.06.2017
+
+Modestia Aparte - Historias sin Importancia (1991) [FLAC|Lossless|tracks + .cue] <Spanish Pop/Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_637478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dos Amigos (03:45)
+02 Tómate una Copa (03:36)
+03 Trapos Sucios, Platos Rotos y Algunas Fotos (04:24)
+04 Como te Mueves (04:15)(   Читать дальше...   )Жанр: Spanish Pop/RockПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3256CF9C3F1B6955AB75941BB1FA249FAA579A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542465   (636859) от 07.04.2022
+
+ABBA - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Day Before You Came
+02. Take A Chance On Me
+03. Money, Money, Money
+04. The Piper(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F1089809F92CFE1B35A3B29C67B9E2F0FC9347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033796   (636129) от 12.07.2016
+
+VA - Woman In Love (1983) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_636129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Brown - Stop
+02. Elaine Page & Barbara Dickson - I Know Him So Well
+03. Terence Trent D'Arby - Suddenly You Crossed My Heart
+04. Timmy T. - One More Try(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:303D992444B9037C155D971212A103EB284CDD04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908044   (635959) от 13.06.2015
+
+Giorgio Moroder – Deja Vu (2015) [FLAC|Lossless|WEB-DL]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4 U with Love [2:36]
+02. Deja vu (feat. Sia) [3:20]
+03. Diamonds (feat. Charli XCX) [3:31]
+04. Don't Let Go (feat. Mikky Ekko) [4:30](   Читать дальше...   )Жанр: PopПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745BFFBF7C362FCBE16BE69E2739F9615FCEFFF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293490   (635667) от 04.04.2019
+
+Tori Kelly - Hiding Place (2018) [FLAC|Lossless|tracks + .cue] <Pop, Gospel>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masterpiece (feat. Lecrae) (04:45)
+02. Help Us To Love (feat. The Hamiltones) (03:46)
+03. Sunday (03:36)
+04. Just As Sure (feat. Jonathan McReynolds) (05:30)(   Читать дальше...   )Жанр: Pop, GospelПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A5702013685D42AB8F548CC618AC93D4A2D9D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293579   (635365) от 04.04.2019
+
+Arabesque - Greatest Hits Volume 2 (1993) Unofficial Release [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In For A Penny, In For A Pound
+02. The Hero Of My Lofe
+03. Indio Boy
+04. Billy's Barbeque(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27A32EEA493E525D1857C645E5B385B6786F4C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517552   (635060) от 07.07.2012
+
+Flo Rida - Wild Ones (2012) [FLAC|Lossless]<Pop, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_635060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whistle
+02. Wild Ones (feat. Sia)
+03. Let It Roll
+04. Good Feeling
+05. In My Mind, Pt. 2 (feat. Georgi Kay)
+06. Sweet Spot (feat. Jennifer Lopez)
+07. Thinking Of You
+08. I Cry
+09. Run (feat. RedFoo of LMFAO)Жанр: Pop, Dance, R&BПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CBA0061B8FB95ECDF51893E54D41A7F6A33143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908317   (633990) от 14.06.2015
 
 Marie Fredriksson - I En Tid Som Var (1996) [FLAC|image + .cue]<Pop, Pop-Rock>
@@ -6,7 +214,7 @@ Marie Fredriksson - I En Tid Som Var (1996) [FLAC|image + .cue]<Pop, Pop-Rock>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633990.jpg" />
+  <img src="Z:/picture/008/save_picture_633990.jpg" />
 </div>
 
 
@@ -35,7 +243,7 @@ Jon Secada – Heart, Soul & A Voice (1994) [APE|Lossless|image + .cue] <RPop Ro
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_632590.jpg" />
+  <img src="Z:/picture/008/save_picture_632590.jpg" />
 </div>
 
 
@@ -64,7 +272,7 @@ Weyes Blood - Titanic Rising (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631858.jpg" />
+  <img src="Z:/picture/008/save_picture_631858.jpg" />
 </div>
 
 
@@ -93,7 +301,7 @@ Kim Wilde - The Singles Collection 1981-1993 (1993) Japan Edition [FLAC|image + 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629746.jpg" />
+  <img src="Z:/picture/008/save_picture_629746.jpg" />
 </div>
 
 
@@ -122,7 +330,7 @@ VA - Summer Wedding 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629526.jpg" />
+  <img src="Z:/picture/008/save_picture_629526.jpg" />
 </div>
 
 
@@ -151,7 +359,7 @@ Kany Garcia - Limonada (2016) [FLAC|Lossless|WEB-DL|tracks] <Latin Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628668.jpg" />
+  <img src="Z:/picture/008/save_picture_628668.jpg" />
 </div>
 
 
@@ -180,7 +388,7 @@ VA - Come and Get It: The Best of Apple Records (2010) Remaster [FLAC|Lossless|t
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628527.jpg" />
+  <img src="Z:/picture/008/save_picture_628527.jpg" />
 </div>
 
 
@@ -210,7 +418,7 @@ Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track]
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628525.jpg" />
+  <img src="Z:/picture/008/save_picture_628525.jpg" />
 </div>
 
 
@@ -236,7 +444,7 @@ Lena - Only Love, L (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628361.jpg" />
+  <img src="Z:/picture/008/save_picture_628361.jpg" />
 </div>
 
 
@@ -265,7 +473,7 @@ Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628251.jpg" />
+  <img src="Z:/picture/008/save_picture_628251.jpg" />
 </div>
 
 
@@ -294,7 +502,7 @@ Lana Del Rey - Lust for Life (2017) [FLAC|Lossless|image + .cue] <Pop, Indie Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627943.jpg" />
+  <img src="Z:/picture/008/save_picture_627943.jpg" />
 </div>
 
 
@@ -323,7 +531,7 @@ Neil Sedaka - The Real... Neil Sedaka (The Ultimate Collection) (2014) 3CD [FLAC
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627491.jpg" />
+  <img src="Z:/picture/008/save_picture_627491.jpg" />
 </div>
 
 
@@ -352,7 +560,7 @@ All Time Low - Last Young Renegade (2017) [FLAC|Lossless|tracks + .cue] <Pop Roc
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627489.jpg" />
+  <img src="Z:/picture/008/save_picture_627489.jpg" />
 </div>
 
 
@@ -381,7 +589,7 @@ Katy Perry - Witness (Japanese Deluxe Edition) (2017) [FLAC|Lossless|tracks + .c
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627234.jpg" />
+  <img src="Z:/picture/008/save_picture_627234.jpg" />
 </div>
 
 
@@ -410,7 +618,7 @@ Dicte - Perfume (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626710.jpg" />
+  <img src="Z:/picture/008/save_picture_626710.jpg" />
 </div>
 
 
@@ -439,7 +647,7 @@ Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626505.jpg" />
+  <img src="Z:/picture/008/save_picture_626505.jpg" />
 </div>
 
 
@@ -468,7 +676,7 @@ Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, 
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626115.jpg" />
+  <img src="Z:/picture/008/save_picture_626115.jpg" />
 </div>
 
 
@@ -497,7 +705,7 @@ Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626003.jpg" />
+  <img src="Z:/picture/008/save_picture_626003.jpg" />
 </div>
 
 
@@ -526,7 +734,7 @@ Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626002.jpg" />
+  <img src="Z:/picture/008/save_picture_626002.jpg" />
 </div>
 
 
@@ -540,206 +748,6 @@ Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9B554833FFAAA455846A61A8B57E7355DDF7700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543788   (625656) от 13.04.2022
-
-VA - Super Italo Made in Spain, 2CD (2019) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rakel Project - Estas En Mi CorazonЖанр: Italo-Disco, Euro-DiscoПродолжительность: 2CD, 02:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0763D64F06DDBEC16759EBDBEA56D13C4AAB97BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144668   (625359) от 23.06.2017
-
-Timecop1983 - Lovers (part I) EP (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Retrowave, Synthpop, Dreamwave>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Home (Prologue)
-02. Lovers (feat. Seawaves)
-03. Come Back
-04. Waiting(   Читать дальше...   )Жанр: 80's Retrowave, Synthpop, DreamwaveПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7B6AFDCF0ABC5D14D176D7064B38C592414E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294883   (624122) от 10.04.2019
-
-Billy - I'm Not Ok (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Don't Break Me (3:36)
- 02. Not Over You (3:57)
- 03. Odds Are Against Us (4:00)
- 04. California High (4:27)(   Читать дальше...   )Жанр: Pop, Electro, DowntempoПродолжительность: 00:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D487866B7F7A7C49E51F29ABC4032616A7E4F53E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909994   (623296) от 19.06.2015
-
-Скрябін (Скрябин) - Дякую люди (Останній запис) (2015) 2CD Live [FLAC|image+.cue]<Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кинули
-02. Танець пінгвіна
-03. Мам (6:50)
-04. Годинник(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 02:23:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EA813E48DC9D92DADFC4CADA4121A75E1F8699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229700   (622529) от 08.06.2018
-
-Isabelle Boulay - En verite (2017) [FLAC|44.1kHz/24bit|Lossless|WEB-DL|tracks|] <French Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mon amour (la supplique) (3:25)
- 02. Tout sera pardonne (2:38)
- 03. Won't Catch Me Cryin' (4:11)
- 04. La route avec lui (4:08)(   Читать дальше...   )Жанр: French Pop, ChansonПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1E944378924A4F72A6A0F27337749EB3D5739B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295109   (622509) от 11.04.2019
-
-Goodnight Suzie - Boombox (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redheads & Scorpios (04:08)
-02. Wannabe Hipster (02:40)
-03. Sunkissed (02:58)
-04. Boombox (03:01)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07D4A128837CAE1306BB67349349B030D194606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295004   (622052) от 11.04.2019
-
-Billie Eilish - When We All Fall Asleep, Where Do We Go? (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. !!!!!!! (00:13)
-02. Bad Guy (03:14)
-03. Xanny (04:03)
-04. You Should See Me in a Crown (03:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C97AF17BB46B3B3BC24463C0D1EC4FFB9D3FD67
 ```
 
 https://mybot314.ru/tekegram_catalog/

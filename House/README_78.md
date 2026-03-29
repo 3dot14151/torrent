@@ -1,3 +1,119 @@
+###  Публикация: 1761642   (103003) от 23.11.2024
+
+Sultan + Shepard - Circle In Time: The Trilogy (2024) [MP3|320 Kbps] <EDM, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_103003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murmur [00:04:15]
+02. I'll Be Here [00:04:52]
+03. Back Through You [00:05:19]
+04. Cloud Lifter [00:04:22](   Читать дальше...   )Жанр: EDM, Progressive HouseПродолжительность: 3 CD, 03:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8525970B3D3B20EB4E4CFAA46F1405143B48F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764094   (102775) от 05.12.2024
+
+VA - Future Sounds. EDM 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - My Focus Is You (03:52)
+02. TEKTRONIC - Romdom (03:00)
+03. MaxRiven - Loveparade (02:24)
+04. JLUIS - Paradise (03:06)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FD422BACFD464E63E7621D2D427A62D78BD24F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764120   (102770) от 05.12.2024
+
+VA - Gaming Music 2024: EDM For Players (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MaxRiven - Loveparade (02:24)
+02. Lorenz Koin - Adrenaline (02:05)
+03. JLUIS & Teknova - Fast Love (02:26)
+04. Gash & Cee-Mon - Feels Like Home (02:00)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C5D865190480C534E30F6649D6A4DA02E34E2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764103   (102763) от 05.12.2024
+
+VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 3 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pierpaolo Cricenti & Kekko DMC - Love Don't Let Me Go (Aux In Re-Edit Mix) (07:39)
+02. KARMIN SHIFF, JULIANA PASINI & Kryz Santana - Ole Ola (I'm From Brazil) (New York Brazil Mix) (03:09)
+03. B.A. Lance - Summer (A Tribute To Calvin Harris) (Radio Mix) (03:38)
+04. Mikee Introna - Get It All (03:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11E30A29AC34C36B222BA0A8669C35B2210B73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764364   (102737) от 06.12.2024
 
 VA - Winter Vibes Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Club>
@@ -6,7 +122,7 @@ VA - Winter Vibes Deep House (2024) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102737.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 4 (2024) [MP3
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102731.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102731.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Anjunadeep The Yearbook 2024 (2024) [MP3|320 Kbps] <Progressive House, Melo
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102730.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102730.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - Christmas Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP3|320 
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102709.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Christmas Dance Party 2024-2025 (Best of Dance, House & Electro) (2024) [MP
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102708.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ VA - Ibiza Winter 2025 (Deep-House Smoothies from the Heart) (2024) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_102706.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_102706.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Deep Focus (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101564.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ VA - Pretty Little Deep-House Friends, Vol. 4 (2024) [MP3|320 Kbps] <House, Deep
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101532.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - The Best Of Suanda Dance 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101453.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ VA - Black Hole House Music 12-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101355.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ VA - Ibiza Winter 2025 (Dance Snowflakes From The Heart) (2024) [MP3|320 Kbps] <
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101323.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ VA - The Remixes Chapter 1 (2024) [MP3|320 Kbps] <House, Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101291.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ VA - Weekend Dance Tunes (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101202.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101202.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Arcade Alchemy - 1 hour Beast Mode On Hard-hitting Gym Beats for Strength (2024)
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101201.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ VA - Festive Season (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Te
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_101199.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_101199.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ VA - DANCE CUBE 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100668.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100668.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ VA - Best Melodic & Progressive House 2024 (2024) [MP3|320 Kbps] <Progressive Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100650.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100650.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ VA - Dancefloor Matrix 2012 (2012) [MP3|320 кб/с]<Club, House, Dance, Trance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_100464.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_100464.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Various Artists - Hitzone 61 (2012) [MP3|320 кб/с]<Club, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99867.jpg" />
 </div>
 
 
@@ -569,7 +685,7 @@ Black Box - Dreamland (1990) [APE|Lossless]<Euro House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99223.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99223.jpg" />
 </div>
 
 
@@ -603,7 +719,7 @@ Morgan Page - In The Air (2012) [MP3|320 кб/с]<Progressive House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_99023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_99023.jpg" />
 </div>
 
 
@@ -638,7 +754,7 @@ VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_97244.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_97244.jpg" />
 </div>
 
 
@@ -658,146 +774,6 @@ VA - Swedish House Album (2012) [MP3|~245 кб/с (V0)]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1513E762128A87881843EF7A86CA77F660D7C372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465103   (96043) от 09.03.2012
-
-AFFKT - Punto 0 (2012) [MP3|320 кб/с]<Minimal,Tech House,Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_96043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Affkt - Intro Feat Truffle (Original Mix) (02:08)
-02. Affkt - Bruminha (Original Mix) (04:26)
-03. Affkt & Mathias Kaden - Kadenzaffkt (Original Mix) (05:55)
-04. Affkt - Wichy Interlude (Original Mix) (00:26)
-05. Affkt - Vainilla & Guayaba (Original Mix) (02:44)
-06. Affkt - Grandiosa (Original Mix) (04:28)
-07. Affkt & dOP - El Flautista (Original Mix) (04:40)
-08. Affkt & Sutja Gutierrez - Nuvo (05:54)
-09. Affkt & Analog People In A Dig - Bonaire (06:06)
-10. Affkt - Joyvan Interlude (Original Mix) (00:22)(   Читать дальше...   )2012Жанр: Minimal,Tech House,Deep HouseПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E597C66839AA0E9D031D80E72769FDEE8D05928C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464461   (95955) от 08.03.2012
-
-VA - Clubbin 2012 Vol. 1 (2012) [MP3|~224 кб/с ]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_95955.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sandro Silva & Quintino - Epic (3:30)
- 2. Eric Van Kleef ft Stanford - Wanna Funk (Melvin Reese Mix) (3:24)
- 3. Mr. Jean Louis - Sensuelle (The Cube Guys Remix) (4:14)
- 4. The Cube Guys & Luciana - Jump (Club Mix) (3:59)
- 5. Sophie Ellis-Bextor - Starlight (The Cube Guys Remix) (4:29)
- 6. JoeySuki - Zomp (3:44)
- 7. Lucien Foort - Massive Passive (4:41)
- 8. Nicky Romero - Generation 303 (4:58)
- 9. Major Lazer ft The Partysquad - Original Don (3:59)
- 10. Ian Carey & Rosette ft Timbaland & Brasco - Amnesia (Firebeatz Remix) (6:00)(   Читать дальше...   )Продолжительность: 01:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681803F08310128FB01E507FAD0C355E4936311D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459789   (94976) от 29.02.2012
-
-Nina Kraviz - Nina Kraviz (2012) [MP3|320 кб/с]<Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking In The Night (feat. Hard Ton)
-02. Aus (feat. King Aus On The Mic)
-03. Ghetto Kraviz
-04. Taxi Talk
-05. False Attraction
-06. Working
-07. Choices
-08. Love Or Go
-09. Best Friend
-10. 4 Ben(   Читать дальше...   )2012Жанр: Deep House, Tech HouseПродолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A22D47BDF8629BF86C054B065806A59CD06E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455347   (94634) от 26.02.2012
-
-Twenty 4 Seven - The Reason (2012) [MP3|320 kbps]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_94634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruud van Rijen Radio Mix (03:07)
-02. Clubcrew Radio Edit (03:05)
-03. Clubcrew Extended (04:30)
-04. Instatic Remix (05:50)
-05. Clubcrew Rmx (05:37)
-06. DJ E.B. Smallz remix (04:18)
-07. DJ E.B Smallz & Tropic S. Remix (04:18)
-08. DJ Jan Gruijters Remix (05:25)
-09. Pieter Limburg Candlelight (03:22)
-10. Instrumental (03:09)2012Жанр: HouseПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB8B3C5EE06C68999E8667AF1F5941816EDC86B
 ```
 
 https://mybot314.ru/tekegram_catalog/

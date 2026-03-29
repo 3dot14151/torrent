@@ -1,3 +1,57 @@
+###  Публикация: 1644983   (209480) от 07.07.2023
+
+Ubuntu*Pack 20.04 LikeWin (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B61A7C6B027DB6F46B8BE9F63E1D40D5B585FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645160   (209429) от 08.07.2023
+
+Ubuntu*Pack 20.04 DDE (май 2023) [amd64] 1xDVD
+
+>>Linux, Unix и другие ОС
+>>Сборки ОС Linux
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дистрибутив предназначен для домашнего и офисного использования по принципу "установил и забыл". Содержит все необходимые пользовательские приложения, включая пакеты локализации, программы для воспроизведения фильмов и музыки, работы с документами (MS Office, PDF и др.), графическими файлами, работы в Интернете и т.д.
+ИнтерфейсЯзык интерфейса: Мультиязычный (русский присутствует)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C7E1E6CED482CFF50F2BFCF92E94438647A2D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582801   (206132) от 11.10.2022
 
 Parrot Security OS 5.1 [Хакинг, аудит, безопасность] 1xDVD 5.1 [amd64] 1xDVD
@@ -6,7 +60,7 @@ Parrot Security OS 5.1 [Хакинг, аудит, безопасность] 1xDV
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206132.jpg" />
+  <img src="Z:/picture/005/save_picture_206132.jpg" />
 </div>
 
 
@@ -32,7 +86,7 @@ Network Security Toolkit (NST 36 SVN:13232) 36-13232 [x86 x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205995.jpg" />
+  <img src="Z:/picture/005/save_picture_205995.jpg" />
 </div>
 
 
@@ -58,7 +112,7 @@ Zorin OS 18 Pro 18.0 [X86_64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205667.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205667.jpg" />
 </div>
 
 
@@ -86,7 +140,7 @@ Kali Linux 2022.3 [amd64, i386, arm] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205387.jpg" />
+  <img src="Z:/picture/005/save_picture_205387.jpg" />
 </div>
 
 
@@ -112,7 +166,7 @@ MxUntu 20.04 [x64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202340.jpg" />
+  <img src="Z:/picture/004/save_picture_202340.jpg" />
 </div>
 
 
@@ -141,7 +195,7 @@ Openmediavault (Shaitan) 6.0.24 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200098.jpg" />
+  <img src="Z:/picture/005/save_picture_200098.jpg" />
 </div>
 
 
@@ -169,7 +223,7 @@ Ubuntu*Pack 22.04 (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199862.jpg" />
+  <img src="Z:/picture/005/save_picture_199862.jpg" />
 </div>
 
 
@@ -196,7 +250,7 @@ Ubuntu*Pack 22.04 Cinnamon (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199749.jpg" />
+  <img src="Z:/picture/005/save_picture_199749.jpg" />
 </div>
 
 
@@ -223,7 +277,7 @@ Ubuntu*Pack 22.04 Budgie (март 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199729.jpg" />
+  <img src="Z:/picture/005/save_picture_199729.jpg" />
 </div>
 
 
@@ -250,7 +304,7 @@ TrueNAS SCALE 22.12.2 [x64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199658.jpg" />
+  <img src="Z:/picture/005/save_picture_199658.jpg" />
 </div>
 
 
@@ -277,7 +331,7 @@ Fedora 38 Workstation Server Spins [x86_64] 12xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199502.jpg" />
+  <img src="Z:/picture/005/save_picture_199502.jpg" />
 </div>
 
 
@@ -304,7 +358,7 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199121.jpg" />
+  <img src="Z:/picture/005/save_picture_199121.jpg" />
 </div>
 
 
@@ -332,7 +386,7 @@ Kali Linux 2023.1 [amd64, i386, arm64] 8xDVD, 3xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199112.jpg" />
+  <img src="Z:/picture/005/save_picture_199112.jpg" />
 </div>
 
 
@@ -358,7 +412,7 @@ Debian Edu - Skolelinux 11.7.0 Bullseye + nonfree [Linux для школы] [i38
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_199068.jpg" />
+  <img src="Z:/picture/005/save_picture_199068.jpg" />
 </div>
 
 
@@ -384,7 +438,7 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_199054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_199054.jpg" />
 </div>
 
 
@@ -412,7 +466,7 @@ Rider 2023.1.2 [x64] (tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198317.jpg" />
 </div>
 
 
@@ -440,7 +494,7 @@ BricsCAD Ultimate 23.2.04-1 [x64] (rpm,deb,tar.gz)
 >>*Nix. Программы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_198312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_198312.jpg" />
 </div>
 
 
@@ -466,7 +520,7 @@ UncomOS 2023.03.13-desktop [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_197950.jpg" />
+  <img src="Z:/picture/004/save_picture_197950.jpg" />
 </div>
 
 
@@ -493,7 +547,7 @@ OpenVMS 9.2 [amd64] 1xDVD
 >>Другие ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197492.jpg" />
 </div>
 
 
@@ -519,7 +573,7 @@ openSUSE Leap 15.5 [x86_64] 4xDVD, 2xCD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197285.jpg" />
 </div>
 
 
@@ -546,7 +600,7 @@ Red Hat Enterprise Linux 9.2 [x86-64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_197230.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_197230.jpg" />
 </div>
 
 
@@ -572,7 +626,7 @@ Ubuntu*Pack 20.04 GNOME (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196087.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196087.jpg" />
 </div>
 
 
@@ -599,7 +653,7 @@ Ubuntu*Pack 20.04 Cinnamon (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196048.jpg" />
 </div>
 
 
@@ -626,7 +680,7 @@ Ubuntu*Pack 20.04 Budgie (май 2023) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196030.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196030.jpg" />
 </div>
 
 
@@ -638,58 +692,6 @@ Ubuntu*Pack 20.04 Budgie (май 2023) [amd64] 1xDVD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7284B450A1A2FA9CDC3A8F4158824950E91394D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650672   (194848) от 03.08.2023
-
-Kali Linux 2023.2 [amd64, i386, arm64] 8xDVD, 3xCD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194848.jpg" />
-</div>
-
-
-###  Подробнее
-
-30 мая 2023 состоялся релиз обновления дистрибутива Kali Linux 2023.2, предназначенного для тестирования систем на предмет наличия уязвимостей, проведения аудита, анализа остаточной информации и выявления последствий атак злоумышленников.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272EF1FF7E4130FC541624AE5CC42E764C495792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653753   (194149) от 17.08.2023
-
-AltLinux 8 СП [amd64] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_194149.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Альт СП» («Альт 8 СП») — дистрибутив операционной системы для серверов и рабочих станций со встроенными программными средствами защиты информации, сертифицированный ФСТЭК России (обозначение программного изделия — ЛКНВ.11100-01).
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891552B57EA36117B9FB3FB12BD05E2DA7512E9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

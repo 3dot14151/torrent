@@ -6,7 +6,7 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 эп.] BDrip
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748159.jpg" />
+  <img src="Z:/picture/008/save_picture_748159.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ PrivaZer 3.0.64 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748148.jpg" />
+  <img src="Z:/picture/008/save_picture_748148.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748140.jpg" />
+  <img src="Z:/picture/008/save_picture_748140.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Pepakura Designer 4.1.3 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748134.jpg" />
+  <img src="Z:/picture/008/save_picture_748134.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748124.jpg" />
+  <img src="Z:/picture/008/save_picture_748124.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748123.jpg" />
+  <img src="Z:/picture/008/save_picture_748123.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ UltraUXThemePatcher 3.8.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748119.jpg" />
+  <img src="Z:/picture/008/save_picture_748119.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ MAGIX Independence Pro 3.6.0 STANDALONE, VSTi (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748099.jpg" />
+  <img src="Z:/picture/008/save_picture_748099.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Navicat Premium 16.0.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_748088.jpg" />
+  <img src="Z:/picture/005/save_picture_748088.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748080.jpg" />
+  <img src="Z:/picture/008/save_picture_748080.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Readiris Corporate 15.2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748077.jpg" />
+  <img src="Z:/picture/008/save_picture_748077.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748070.jpg" />
+  <img src="Z:/picture/008/save_picture_748070.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ AMD Radeon Software Crimson Edition 16.5.3 Hotfix [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748062.jpg" />
+  <img src="Z:/picture/008/save_picture_748062.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ WizTree 3.28 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748056.jpg" />
+  <img src="Z:/picture/008/save_picture_748056.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ StartIsBack++ 2.8 StartIsBack+ 1.7.6 StartIsBack 2.1.2 RePack by elchupacabra  [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748052.jpg" />
+  <img src="Z:/picture/008/save_picture_748052.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748012.jpg" />
+  <img src="Z:/picture/008/save_picture_748012.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ Ant Download Manager Pro 2.5.1 акция (Giveaway) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747993.jpg" />
+  <img src="Z:/picture/008/save_picture_747993.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ OCCT 10.0.6 Final Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747989.jpg" />
+  <img src="Z:/picture/008/save_picture_747989.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ Bootstrap Studio 5.9.0 RePack (& Portable) by xetrin [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747988.jpg" />
+  <img src="Z:/picture/008/save_picture_747988.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Jump Desktop (RDP, VNC, Fluid) 8.8.28 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747987.jpg" />
+  <img src="Z:/picture/008/save_picture_747987.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ XYplorer 22.70.0000 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747984.jpg" />
+  <img src="Z:/picture/008/save_picture_747984.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Wise Care 365 Pro 6.1.7.604 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747981.jpg" />
+  <img src="Z:/picture/008/save_picture_747981.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Perfectly Clear WorkBench 4.0.1.2222 RePack (& Portable) by elchupacabra [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747977.jpg" />
+  <img src="Z:/picture/008/save_picture_747977.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ BurnAware Professional 9.2 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747975.jpg" />
+  <img src="Z:/picture/008/save_picture_747975.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Zoom Player MAX 12 Build 1200 Final RePack by D!akov [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747968.jpg" />
+  <img src="Z:/picture/008/save_picture_747968.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Lumo (2016) [Ru/Multi] (1.05.18) License CODEX
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747960.jpg" />
+  <img src="Z:/picture/008/save_picture_747960.jpg" />
 </div>
 
 

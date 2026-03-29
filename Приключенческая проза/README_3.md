@@ -1,3 +1,30 @@
+###  Публикация: 1155359   (533220) от 03.08.2017
+
+Михаил Зуев-Ордынец | Желтый тайфун (1928) [PDF, DJVU]
+
+>>Художественная литература
+>>Приключенческая проза
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_533220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Ефимович Зуев-Ордынец — один из зачинателей советской приключенческой литературы. Много путешествовал по стране, что нашло отражение в его книгах. Его перу принадлежат многие приключенческие и исторические книги о Средней Азии, о русских колониях в Северной Америке, о пугачевщине на Урале, и др.
+Основное произведение М. Зуева-Ордынца — фантастико-приключенческий (   Читать дальше...   )Жанр: Приключения, беллетристикаФормат: PDF - скан + OCR с ошибками, Djvu - отсканированные страницы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AF55F1C143919A037631ACFC148B5158F7294B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052917   (527204) от 15.09.2016
 
 Владимир Прасолов | Золото Удерея (2013) [FB2, DJVU]
@@ -6,7 +33,7 @@
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527204.jpg" />
+  <img src="Z:/picture/008/save_picture_527204.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512329.jpg" />
+  <img src="Z:/picture/008/save_picture_512329.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493714.jpg" />
+  <img src="Z:/picture/008/save_picture_493714.jpg" />
 </div>
 
 
@@ -88,7 +115,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492163.jpg" />
+  <img src="Z:/picture/008/save_picture_492163.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490107.jpg" />
+  <img src="Z:/picture/008/save_picture_490107.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_490084.jpg" />
+  <img src="Z:/picture/008/save_picture_490084.jpg" />
 </div>
 
 
@@ -166,7 +193,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488602.jpg" />
+  <img src="Z:/picture/008/save_picture_488602.jpg" />
 </div>
 
 
@@ -192,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452575.jpg" />
+  <img src="Z:/picture/008/save_picture_452575.jpg" />
 </div>
 
 
@@ -218,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450810.jpg" />
+  <img src="Z:/picture/008/save_picture_450810.jpg" />
 </div>
 
 
@@ -244,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_446856.jpg" />
+  <img src="Z:/picture/005/save_picture_446856.jpg" />
 </div>
 
 
@@ -270,7 +297,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436456.jpg" />
+  <img src="Z:/picture/008/save_picture_436456.jpg" />
 </div>
 
 
@@ -296,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435669.jpg" />
+  <img src="Z:/picture/008/save_picture_435669.jpg" />
 </div>
 
 
@@ -322,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427465.jpg" />
+  <img src="Z:/picture/008/save_picture_427465.jpg" />
 </div>
 
 
@@ -348,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423084.jpg" />
+  <img src="Z:/picture/008/save_picture_423084.jpg" />
 </div>
 
 
@@ -374,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_420121.jpg" />
+  <img src="Z:/picture/008/save_picture_420121.jpg" />
 </div>
 
 
@@ -403,7 +430,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406032.jpg" />
+  <img src="Z:/picture/008/save_picture_406032.jpg" />
 </div>
 
 
@@ -429,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_405468.jpg" />
+  <img src="Z:/picture/008/save_picture_405468.jpg" />
 </div>
 
 
@@ -455,7 +482,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399591.jpg" />
+  <img src="Z:/picture/008/save_picture_399591.jpg" />
 </div>
 
 
@@ -481,7 +508,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391627.jpg" />
+  <img src="Z:/picture/008/save_picture_391627.jpg" />
 </div>
 
 
@@ -507,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390598.jpg" />
+  <img src="Z:/picture/008/save_picture_390598.jpg" />
 </div>
 
 
@@ -533,7 +560,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_386828.jpg" />
+  <img src="Z:/picture/008/save_picture_386828.jpg" />
 </div>
 
 
@@ -559,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385631.jpg" />
+  <img src="Z:/picture/008/save_picture_385631.jpg" />
 </div>
 
 
@@ -586,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373917.jpg" />
+  <img src="Z:/picture/008/save_picture_373917.jpg" />
 </div>
 
 
@@ -612,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373806.jpg" />
+  <img src="Z:/picture/008/save_picture_373806.jpg" />
 </div>
 
 
@@ -638,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Приключенческая проза
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372435.jpg" />
+  <img src="Z:/picture/008/save_picture_372435.jpg" />
 </div>
 
 
@@ -650,34 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C0DAC288594E3DB922894F018CF56C90F24DC16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576710   (362704) от 17.11.2012
-
-Кристофер Дж. Сэнсом "Приключения Мэтью Шардлейка" [2005-2010] [FB2]
-
->>Художественная литература
->>Приключенческая проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_362704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристофер Сэнсом стал известен благодаря своей серии про Мэтью Шардлейка, происходящей в царствование Генриха VIII в 16 веке, которое ознаменовалось бунтами, церковной реформацией и многочисленными казнями еретиков и мятежников, как подлинных, так и мнимых (поклонники называют серию "Tudor mysterie").
-
- Первоначально Шардлейк работает на Томаса Кромвеля (   Читать дальше...   )Издательство: Эксмо, ДоминоФормат: FB2Качество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E21ACCA686A4058E4D6584DA389A279CA3345F
 ```
 
 https://mybot314.ru/tekegram_catalog/

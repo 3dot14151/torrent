@@ -1,3 +1,107 @@
+###  Публикация: 1393082   (62891) от 15.03.2024
+
+BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and back (2019) DVBRip [H.264] (фильмы 1-2)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62891.jpg" />
+</div>
+
+
+###  Подробнее
+
+8 дней, 3 часа, 18 минут и 35 секунд. Это общая продолжительность космической миссии «Аполлон-11». Миссии, которая позволила человечеству ступить на поверхность Луны и тем самым полностью изменить взгляд на наше место во Вселенной. Но каково было на самом деле тем трём мужчинам в высокотехнологичной «консервной банке»? Что они чувствовали и обсуждали на протяжении (   Читать дальше...   )Производство: США, British Broadcasting Corporation (BBC)Жанр: Документальный, научно-популярный, космосРежиссер: Энтони ФилипсонУчастники: Филипп Ральф, Патрик Кеннеди, Джек Тарлтон, Руфус РайтПеревод: Одноголосый закадровый, профессиональный (Видеофильм-ТВ)Субтитры: отсутствуютПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8BFBE7F163C1FBBDF51C4B451BC86BB0C53676C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419338   (62816) от 16.03.2024
+
+BBC: Доминик Монаган и дикие существа / Wild Things with Dominic Monaghan (2012) SATRip (Сезон 1, серии 1-8 из 8)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перед ними трепещут самые мужественные сердца. Они неустрашимы и безжалостны. Против них бессильно оружие. Их боятся люди и звери, и только отважный Доминик Монаган решился бросить им вызов и встретиться с ними лицом к лицу. В программе «Доминик Монаган и самые дикие существа» популярный киноактер отправляется в путешествие, чтобы рассказать о самых крупных, опасных (   Читать дальше...   )Производство: Великобритания, Канада, BBC America, A Cream and Wildfire TV ProductionsЖанр: Документальный, природа, флора, фаунаРежиссер: Брэд Бру, Пол КилбэкУчастники: Доминик МонаганПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 8 х ~ 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81EF442ED815B3366B8F82B323FEF98DDA9243D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130536   (62809) от 16.03.2024
+
+BBC: Гении современного мира / Genius Of The Modern World (2016) HDTVRip [H.264/720p-LQ] (Серии 1-3 из 3) (Обновляемая)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62809.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 век - эпоха бурных потрясений, время перемен в промышленности, науке и политике. Но самое главное - в мировоззрении. Это была пора смелых и рискованных идей, ознаменовавших возникновение нового мира. У его истоков стояли великие умы: Карл Маркс, Фридрих Ницше и Зигмунд Фрейд. Они жили в эпоху, когда рушились старые реалии, низвергались существующие режимы, а наука (   Читать дальше...   )Производство: Великобритания, ВВС Open University Partnership, Religion & Ethics Production SalfordЖанр: Документальный, история, исследованияРежиссер: Роб ГоулингУчастники: Историк Бетани ХьюзПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: английскиеПродолжительность: ~00:58:38 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CC6C244C27DAB600A79EE13756D86FB4FAB662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256107   (62789) от 16.03.2024
+
+BBC: Гении древнего мира / Genius Ancient World (2015) WEB-DL [H.264/1080p-LQ] (Серии 1-3 из 3)
+
+>>Зарубежные TV-бренды
+>>BBC
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Со времен зарождения цивилизации человечество подчинялось силам природы и прихотям богов. Но две с половиной тысячи лет назад человечество пережило глубокую трансформацию. Нам открылись новые возможности, когда разум взял верх над религией и суевериями. По всему миру произошли сдвиги, возникло амбициозное видение безграничных возможностей человека. Это движение возглавили (   Читать дальше...   )Производство: Великобритания, BBC Open University Production Centre, BBC Religion & Ethics Production SalfordЖанр: Документальный, история, исследованияРежиссер: Роб КоулингУчастники: Беттани ХьюзПеревод: Одноголосый закадровый, профессиональный (SDI-Media)Субтитры: АнглийскиеПродолжительность: 3 x ~00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3149C3ABBFD4A7BFEDED188FFBADCC2B418BA625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111112   (62788) от 16.03.2024
 
 BBC: Дикая Патагония / Wild Patagonia (2015) HDTVRip [H.264/720p] (серии 1-3 из 3)
@@ -6,7 +110,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) HDTVRip [H.264/720p] 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62788.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ BBC. Порядок и хаос. Силы, которые управляют В�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62713.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ BBC: Какого пола твой мозг? / Is Your Brain Male Or Female? (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62692.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62692.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ BBC: История мира с Эндрю Марром / Andrew Marr's History 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62680.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62680.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62582.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62582.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ BBC: Дуб - искусство выживания / Oak Tree: Nature's Greates
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62497.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62497.jpg" />
 </div>
 
 
@@ -163,7 +267,7 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62481.jpg" />
 </div>
 
 
@@ -189,7 +293,7 @@ BBC: Город под водой. Павлопетри / City Beneath the Waves
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62475.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62475.jpg" />
 </div>
 
 
@@ -215,7 +319,7 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62421.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62410.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ Discovery: Экспедиция в Арктику / Expedition to the Edge (2020
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62371.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ BBC: Духи ягуара / Spirits of the Jaguar (1996) DVDRemux (серии 1
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62369.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62369.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ BBC: Есть, голодать, жить дольше / Eat, Fast and Live Long
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62364.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62354.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62354.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ BBC: Живой мир / BBC: Natural World (2009-2014) HDTV [H.264/1080i-LQ] (7
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62190.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ BBC: Мир природы - Горы тропических дождей / Natu
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61737.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ BBC: Мир природы. Исландия: Дикая жизнь / Natural Wo
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61640.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61640.jpg" />
 </div>
 
 
@@ -452,7 +556,7 @@ BBC: Мир природы. Ошибки природы / Natural World. Natures
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61563.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61563.jpg" />
 </div>
 
 
@@ -479,7 +583,7 @@ BBC: По странам и континентам. Дикая Австрала�
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61562.jpg" />
 </div>
 
 
@@ -505,7 +609,7 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61556.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61556.jpg" />
 </div>
 
 
@@ -531,7 +635,7 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61319.jpg" />
 </div>
 
 
@@ -558,7 +662,7 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRemux [H.264/1080p]
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61318.jpg" />
 </div>
 
 
@@ -569,110 +673,6 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRemux [H.264/1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2E87D1241097C4C59B3322D1621D0D37C98CD05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228432   (61247) от 31.03.2024
-
-BBC: Истоки жизни (Первая жизнь с Дэвидом Аттенборо) / First Life (David Attenborough's First Life) (2010) BDRemux [VC-1/1080i] (Серии 1-2 из 2) [AVO]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61247.jpg" />
-</div>
-
-
-###  Подробнее
-
-От побережья Ньюфаундленда, окутанного туманом, до пустынь Северной Америки и тропических джунглей Квинсленда Дэвид Аттенборо в фильме "Первая жизнь" ищет доказательство в окаменелостях и животных невероятного периода истории Земли полмиллиарда лет назад, когда животные впервые появились в океанах. От первых глаз, которые видели, до первых хищников, которые (   Читать дальше...   )Производство: Великобритания, An Atlantic Production, BBC, Discovery Channel, Australian Broadcasting CorporationЖанр: Документальный, научно-познавательныйРежиссер: Мартин УильямсУчастники: Дэвид Аттенборо, Хэйзел Бартон, Бернард Деньян, Филип Донохью, Гай Нарбонне, Жан-Бернар Карон, Джастин МаршаллПеревод: Одноголосый закадровый, авторский (В.Курдов)Субтитры: Русские, АнглийскиеПродолжительность: 2 х ~ 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB857B08B9F7305C19B85308800C3B282DDC34A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116166   (61156) от 01.04.2024
-
-BBC: Реальная история научной фантастики / The Real History of Science Fiction (2014) HDTVRip [H.264/720p] (Серии 1-4 из 4)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепный 4-х-серийный проект посвящен истории научной фантастики. Смотрите фильм, где каждая серия посвящена основным темам: роботам, инопланетянам, космосу и путешествиям во времени. Те, кто стоял у истоков жанра научной фантастики, расскажут зрителям, как создавался вымышленный мир, поражающий реалистичностью, логичностью и научной обоснованностью. Вместе с (   Читать дальше...   )Производство: Великобритания, США, Arts ProductionЖанр: Документальный, кинематографРежиссер: Бен Саутвелл, Энди Мозе, Роберт МёрфиУчастники: Джон Карпентер, Артур Кларк, Ричард Дрейфус, Рутгер Хауэр, Джон Лэндис, Эдвард Джеймс Олмос, Дэвид Теннант, Айзек Азимов, Скотт Бакула, Вероника Картрайт, Питер Койот, Джо Данте, Роланд Эмерих, Боб Гейл, Урсула Ле Гуин, Кристофер Ллойд, Николас Мейер, Хэйли Джоэл Осмент, Пол Верховен, Питер УэллерПеревод: Многоголосый закадровый 24 ДОКПродолжительность: эпизоды по ~00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010EF03A1C3D16B9D3690600FBF837E7E9E55120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133551   (61137) от 01.04.2024
-
-BBC: Мир природы. Очковые медведи: Лесные тени / Natural World. Spectacled Bears: Shadows of the Forest (2008) HDTVRip [H.264/720p-LQ]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61137.jpg" />
-</div>
-
-
-###  Подробнее
-
-До недавнего времени обитающий высоко в лесах Анд южноафриканский очковый медведь считался существом пугливым, к тому же строгим вегетарианцем. Однако местные фермеры свидетельствуют об их нападениях на скот. Мнения кардинально расходятся, многие уверены, что помимо насекомых этот медведь ничего мясного в пищу не употребляет. Мы отправляемся в Анды, чтобы раз и навсегда (   Читать дальше...   )Производство: Великобритания, BBCЖанр: Документальный, научно-популярныйРежиссер: Фергюс Били, Ангел Гарсия-РохоПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: ОтсутствуютПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBD25AA908E28CC5A75EAA2C1B86FE299EE6B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315812   (61131) от 01.04.2024
-
-BBC: Революции: Идеи, изменившие мир / Revolutions: Ideas That Changed The World (2019) HDTVRip [H.264/1080p-LQ] (серии 6 из 6)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автомобиль. Самолет. Смартфон. Ракета. Робот. Телескоп. Мы принимаем эти устройства как данность, а ведь каждое из них — это наивысшее достижение человеческого гения, и история каждого из них берет начало в глубокой древности. На протяжении тысячелетий они развивались в результате случайностей, упорного труда, озарений и чудес. Все они возникли как попытка людей (   Читать дальше...   )Производство: Великобритания, Bigger Bang for PBS, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, научно-популярныйРежиссер: Шон СмитУчастники: Кен Берд, Белал Сабир, Патрик СтюартПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~ 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3EC5A4A6A3A077E907E8AAF053E3B7AD8593B82
 ```
 
 https://mybot314.ru/tekegram_catalog/

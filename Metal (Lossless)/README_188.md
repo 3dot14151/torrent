@@ -1,3 +1,90 @@
+###  Публикация: 1423353   (300760) от 13.11.2020
+
+Vernissage - Intensiv (1998) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Augenzeugen
+02. Pathetic
+03. Hypocrite
+04. Cold Surprise(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474216546BE95F3736C794F37C884E2771B51F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423340   (300759) от 13.11.2020
+
+Valley's Eve - Prodigia (1997) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escape
+02. Stigmata
+03. Self Proclaimed Messiah
+04. Ulterior Quest(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3145572D124A8577204653F4EA823F15B245B890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423356   (300756) от 13.11.2020
+
+Versital - A New Millennium (1999) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_300756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Light Disappears
+02. You Can't Kill Me
+03. A New Millennium
+04. Come Back To Me(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F5CBCEB16C548C45E9DA48BD591836A6DA51F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184718   (299436) от 18.11.2017
 
 Black Reaper - Blood Moon Rising (2017) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -6,7 +93,7 @@ Black Reaper - Blood Moon Rising (2017) [FLAC|Lossless|image + .cue] <Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299436.jpg" />
+  <img src="Z:/picture/008/save_picture_299436.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Peshmerga - Murderous Acts of Cruelty (2010) [FLAC|Lossless|image + .cue] <Bruta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299134.jpg" />
+  <img src="Z:/picture/008/save_picture_299134.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Dragon - Horde of Gog + Horda Goga (1989+1990) Remastered, 2008 [FLAC|Lossless|i
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299133.jpg" />
+  <img src="Z:/picture/008/save_picture_299133.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Revenge - From Hell (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299130.jpg" />
+  <img src="Z:/picture/008/save_picture_299130.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ For All We Know - For All We Know (2011) [FLAC|Lossless|image + .cue] <Melodic P
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299129.jpg" />
+  <img src="Z:/picture/008/save_picture_299129.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ For All We Know - Take Me Home (2017) [FLAC|Lossless|image + .cue] <Melodic Prog
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299124.jpg" />
+  <img src="Z:/picture/008/save_picture_299124.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Searing Meadow - Corroding From Inside (2005) [WavPack|Lossless|image + .cue] <M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299123.jpg" />
+  <img src="Z:/picture/008/save_picture_299123.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Stravaganzza - Su Historia (2009) 4CD [FLAC|Lossless|image + .cue] <Symphonic Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299122.jpg" />
+  <img src="Z:/picture/008/save_picture_299122.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Dysrhythmia - Test of Submission (2012) [FLAC|Lossless|image + .cue] <Instrument
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299121.jpg" />
+  <img src="Z:/picture/008/save_picture_299121.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Night Verses - Into The Vanishing Light (2016) [FLAC|Lossless|image + .cue] <Exp
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299117.jpg" />
+  <img src="Z:/picture/008/save_picture_299117.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Peer Gunt - Years On The Road (1990) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299116.jpg" />
+  <img src="Z:/picture/008/save_picture_299116.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Fit for an Autopsy - The Sea of Tragic Beasts (2019) [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298960.jpg" />
+  <img src="Z:/picture/008/save_picture_298960.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Accept - Russian Roulette (1986) Japanese Edition /2009, Epic/ [FLAC|image +.cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298717.jpg" />
+  <img src="Z:/picture/008/save_picture_298717.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Dwarrowdelf - Evenstar (2020) [FLAC|Lossless|image + .cue] <Epic Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298163.jpg" />
+  <img src="Z:/picture/008/save_picture_298163.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Unheilig - Rares Gold (2017) 2CD [FLAC|Lossless|image + .cue] <Gothic Metal, Ind
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297437.jpg" />
+  <img src="Z:/picture/008/save_picture_297437.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Item - Outlife (2009) [FLAC|Lossless|image + .cue] <Metalcore>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296930.jpg" />
+  <img src="Z:/picture/008/save_picture_296930.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Crisix - From Blue To Black (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296398.jpg" />
+  <img src="Z:/picture/008/save_picture_296398.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Wayd - Ghostwalk (2007) [FLAC|Lossless|image + .cue] <Prog Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296172.jpg" />
+  <img src="Z:/picture/008/save_picture_296172.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ World Of Silence - Window Of Heaven (1996) [FLAC|Lossless|image + .cue] <Progres
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296168.jpg" />
+  <img src="Z:/picture/008/save_picture_296168.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Virgin Snatch - Act Of Grace (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296163.jpg" />
+  <img src="Z:/picture/008/save_picture_296163.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Cro-Mags - In The Beginning (2020) [FLAC|Lossless|image + .cue] <Hardcore, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296025.jpg" />
+  <img src="Z:/picture/008/save_picture_296025.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Wolf Spider - Hue Of Evil (1991) (2009 remaster) [FLAC|Lossless|image + .cue] <T
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296024.jpg" />
+  <img src="Z:/picture/008/save_picture_296024.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Dark Sarah - The Puzzle (2016) [FLAC|Lossless|image + .cue] <Symphonic, Power, N
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295996.jpg" />
+  <img src="Z:/picture/008/save_picture_295996.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Dark Sarah - The Puzzle (2016) [FLAC|Lossless|image + .cue] <Symphonic, Power, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2158D58BB1600DF9DE8E2650EAFA4940F8FE45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961534   (294833) от 04.12.2015
-
-Motorhead - Overkill (1979) [FLAC|tracks+.cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overkill (5:12)
-02. Stay Clean (2:42)
-03. (I Won't) Pay Your Price (2:57)
-04. I'll Be Your Sister (2:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F82FCEFD4C8969CF29E8D1D398BADCC5B21E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185330   (293739) от 21.11.2017
-
-Logos - Plan Mundial Para La Destruccion (2006) [APE|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viaje a la realidad
-02. Darse cuenta
-03. Sólo una vez más
-04. Esclavos de sus mentes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B044C7E2145408A01CF75B8CD3DE68CBE46EA145
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262783   (293524) от 16.11.2018
-
-Wolverine - Machina Viva (2016) [FLAC|Lossless|image + .cue] <Progressive Metal, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bedlam Overture (14:40)
-02. Machina (5:17)
-03. Pile of Ash (ES-335 version) (4:18)
-04. Our Last Goodbye (7:44)(   Читать дальше...   )Жанр: Progressive Metal, Prog RockПродолжительность: 01:08:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BE0D3B2D4B0897E7475EECCD471400B2B9D3AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

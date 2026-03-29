@@ -1,3 +1,101 @@
+###  Публикация: 1233229   (578187) от 01.07.2018
+
+Melodius Deite - Episode III: The Archangels and the Olympians (2018) Japan [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_578187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exordium
+02. Saint Michael
+03. Saint Raguel
+04. Saint Raphael(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:11;36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735F4A3B7A0F3AF142A4D01852CF7DD2CB3A8D30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527726   (577184) от 26.07.2012
+
+Atlantyca - To Nowhere And Beyond (2012) [FLAC|Lossless]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_577184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Impulse (5:01)
+02. Standard Man (6:13)
+03. Nowhere And Beyond (3:44)
+04. Beyond Infinite (4:37)
+05. Eternity (5:14)
+06. Time After Time (4:50)
+07. My Road (4:36)
+08. cEvilisation (4:06)
+09. Underworlds (9:00)Жанр: Progressive MetalПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527075   (576924) от 26.07.2012
+
+Sodom - 30 Years Sodomized (2012) [FLAC|Lossless]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_576924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sodom— немецкий музыкальный коллектив из Гельзенкирхена, образованный в 1982 году и исполняющий музыку в стиле трэш-метал. Sodom принадлежат к пионерам и одним из наиболее успешных классиков немецкой экстремальной металической сцены наравне с Kreator и Destruction. Весьма экстремальная манера игры музыкантов, в значительной степени отличающаяся от игры своих современников. Группа повлияла на огромное количество трэш-дэт и в особенности блэк-метал групп конца 1980-х — начала 1990-х годов.01. Gathering Of Minds (4:18)
+02.  Unwanted Youth (3:33)
+03.  Scum (5:09)
+04.  Tombstone (3:56)
+05.  Warlike Conspiracy (2:50)
+06.  Spiritual Demise (2:53)
+07.  Book Burning (2:36)
+08.  Minejumper (3:11)
+09.  Genocide (4:49)
+10.  Where Angels Die (4:48)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303070   (576458) от 19.05.2019
 
 Possessed - Revelations Of Oblivion (2019) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
@@ -6,7 +104,7 @@ Possessed - Revelations Of Oblivion (2019) [FLAC|Lossless|image + .cue] <Thrash,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576458.jpg" />
+  <img src="Z:/picture/008/save_picture_576458.jpg" />
 </div>
 
 
@@ -35,7 +133,7 @@ Aversio Humanitatis - Abandonment Ritual (2011) 2012, Self Mutilation Services, 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576363.jpg" />
+  <img src="Z:/picture/008/save_picture_576363.jpg" />
 </div>
 
 
@@ -64,7 +162,7 @@ Asmodai - Welcome to My Nightmare (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575787.jpg" />
+  <img src="Z:/picture/008/save_picture_575787.jpg" />
 </div>
 
 
@@ -93,7 +191,7 @@ Testament - Dark Roots Of Earth (2012) Deluxe Edition [FLAC|Lossless]<Thrash Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_574890.jpg" />
+  <img src="Z:/picture/005/save_picture_574890.jpg" />
 </div>
 
 
@@ -128,7 +226,7 @@ Azaxul - The Saints Impale (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574511.jpg" />
+  <img src="Z:/picture/008/save_picture_574511.jpg" />
 </div>
 
 
@@ -157,7 +255,7 @@ Magistarium - War For All And All For Won (2019) [FLAC|Lossless|WEB-DL|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574164.jpg" />
+  <img src="Z:/picture/008/save_picture_574164.jpg" />
 </div>
 
 
@@ -186,7 +284,7 @@ Magistarium - Dreamlord Opera (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574022.jpg" />
+  <img src="Z:/picture/008/save_picture_574022.jpg" />
 </div>
 
 
@@ -215,7 +313,7 @@ Visions Of Atlantis - 11 Studio Albums (2002-2022) 11xCD [FLAC|Lossless|image + 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573908.jpg" />
+  <img src="Z:/picture/008/save_picture_573908.jpg" />
 </div>
 
 
@@ -245,7 +343,7 @@ The Path Of Dark Salvation - Contritum Animarum (2022) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573902.jpg" />
+  <img src="Z:/picture/008/save_picture_573902.jpg" />
 </div>
 
 
@@ -274,7 +372,7 @@ Manowar - Greatest Hits (2012) 2CD [FLAC|image+.cue]<Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573428.jpg" />
+  <img src="Z:/picture/008/save_picture_573428.jpg" />
 </div>
 
 
@@ -303,7 +401,7 @@ Asylum - Psalms of Paralysis (2017) [FLAC|Lossless|tracks + .cue] <Technical Dea
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573026.jpg" />
+  <img src="Z:/picture/008/save_picture_573026.jpg" />
 </div>
 
 
@@ -332,7 +430,7 @@ Loudness - Single Collection 1981-2012 (2012) 2CD [WV|Lossless|image + .cue] <He
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572907.jpg" />
+  <img src="Z:/picture/008/save_picture_572907.jpg" />
 </div>
 
 
@@ -360,7 +458,7 @@ Morcrof - De Pessimism Philosophiam Et Dogma Nihilistic (2022) [FLAC|Lossless|WE
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572532.jpg" />
+  <img src="Z:/picture/008/save_picture_572532.jpg" />
 </div>
 
 
@@ -389,7 +487,7 @@ Okera - A Beautiful Dystopia (2012) [FLAC|Lossless]<Death Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571564.jpg" />
+  <img src="Z:/picture/008/save_picture_571564.jpg" />
 </div>
 
 
@@ -421,7 +519,7 @@ Ancestors - In Dreams And Time (2012) [FLAC|Lossless]<Doom Metal/Progressive Roc
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571488.jpg" />
+  <img src="Z:/picture/008/save_picture_571488.jpg" />
 </div>
 
 
@@ -452,7 +550,7 @@ Crimson Shadows - Glory On The Battlefield (2012) [FLAC|Lossless]<Melodic Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571393.jpg" />
+  <img src="Z:/picture/008/save_picture_571393.jpg" />
 </div>
 
 
@@ -485,7 +583,7 @@ Denial Fiend - They Rise (2007) [FLAC|Lossless|image + .cue] <Death Metal, Thras
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571298.jpg" />
+  <img src="Z:/picture/008/save_picture_571298.jpg" />
 </div>
 
 
@@ -514,7 +612,7 @@ Black Majesty - Stargazer (2012) [FLAC|Lossless]<Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571288.jpg" />
+  <img src="Z:/picture/008/save_picture_571288.jpg" />
 </div>
 
 
@@ -549,7 +647,7 @@ Hibria - XX (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571188.jpg" />
+  <img src="Z:/picture/008/save_picture_571188.jpg" />
 </div>
 
 
@@ -578,7 +676,7 @@ Equilibrium - Armageddon (2016) Limited Edition 2CD [FLAC|Lossless|image + .cue]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570810.jpg" />
+  <img src="Z:/picture/008/save_picture_570810.jpg" />
 </div>
 
 
@@ -607,7 +705,7 @@ Soilwork - Death Resonance (2016) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570807.jpg" />
+  <img src="Z:/picture/008/save_picture_570807.jpg" />
 </div>
 
 
@@ -636,7 +734,7 @@ Aoratos - Gods Without Name (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569500.jpg" />
+  <img src="Z:/picture/008/save_picture_569500.jpg" />
 </div>
 
 
@@ -665,7 +763,7 @@ Thornhill - Heroine (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Pro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569066.jpg" />
+  <img src="Z:/picture/008/save_picture_569066.jpg" />
 </div>
 
 
@@ -679,93 +777,6 @@ Thornhill - Heroine (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3989A594F33C9A44DD2A75E74CE7364605256450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555519   (569064) от 04.06.2022
-
-The Algorithm - Data Renaissance (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal,  Math Metal, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569064.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Segmentation Fault
-2. Interrupt Handler
-3. Decompilation
-4. Readonly(   Читать дальше...   )Жанр: Progressive Metal,  Math Metal, ElectronicПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9BBF26FBD0FA8572BD950AB90B991755DC5315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555533   (569056) от 04.06.2022
-
-We are many we are legion - Parallelism (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Brass Metal, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569056.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Parallelism
-2. Hey Maniac
-3. I Am
-4. Die with me(   Читать дальше...   )Жанр: Progressive Metalcore, Brass Metal, ExperimentalПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC7BC95288685D89A0F79BC83DC64AEBA982BA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151951   (569040) от 21.07.2017
-
-Avernus - ...of the Fallen (1997) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Blood Gathers Frost	04:39
-02.	If I Could Exist	05:22
-03.	By Love's Will...Chaos	05:53
-04.	Rennissance	03:24(   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2059AE8346962E10381974CBFF7C1E08A76DE8DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

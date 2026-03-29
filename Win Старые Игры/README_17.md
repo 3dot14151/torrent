@@ -1,3 +1,59 @@
+###  Публикация: 536948   (513226) от 19.08.2012
+
+The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG games/Pilotus
+
+>>Win Старые Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513226.jpg" />
+</div>
+
+
+###  Подробнее
+
+...Несколько тысяч лет назад Глава Богов и Священник Дьяволов боролись вожесточенной борьбе. И в результате этого Армагеддона пострадали обе стороны. С тех пор Глава Богов заморожен и превращен в Замороженный Марс.
+ Только пять реликвий: Священный Посох, Меч Тьмы, Снежный Лук и Перчатка Жизни, собранные вместе, смогут спасти мир...
+Отряд героев (Берссеркер, Рыцарь, Лучник и Женщина-Воин), которые поклялись найти реликвии, должен пройти через Заброшенные Земли: Мир Железа, Мир Лесов, Мир Тьмы и Ледяной храм, чтобы объединить реликвии и объединить Заброшенные земли!Тип издания: RePackЖанр: action-rpgЯзык озвучки: -/-Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826A0E4E894AD737394999FBE4BDB030EE2F5F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536945   (513193) от 19.08.2012
+
+State of War / Военное положение [Ru/En] (RePack) 2001 | RG Games/Pilotus
+
+>>Win Старые Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_513193.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 год. Объединенная Федерация Континентов создает глобальную оборонительную систему "Супермозг". Сверхмощная программа искусственного интеллекта контролирует 22 военные базы, в полной боевой готовности ожидающие своего часа в малонаселенных зонах земного шара. И все было хорошо. До того момента, пока влиятельной секте Бехо-Сунн не вздумалось захватить власть над всей планетой...
+"Военное положение" - новая стратегия в реальном времени: ваша задача - раздавить воинствующих фанатиков и в освободить военные базы, которые должны защищать людей, а не уничтожать их.
+(   Читать дальше...   )Тип издания: RePackЖанр: Стратегия в реальном времениЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536919   (512117) от 20.08.2012
 
 Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
@@ -6,7 +62,7 @@ Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512117.jpg" />
+  <img src="Z:/picture/008/save_picture_512117.jpg" />
 </div>
 
 
@@ -32,7 +88,7 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Origami
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511155.jpg" />
+  <img src="Z:/picture/008/save_picture_511155.jpg" />
 </div>
 
 
@@ -62,7 +118,7 @@ eXtinction / Тотальное истребление [Ru] (L) 2003
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509064.jpg" />
+  <img src="Z:/picture/008/save_picture_509064.jpg" />
 </div>
 
 
@@ -88,7 +144,7 @@ Painkiller / Painkiller: Крещёный кровью (2004) [Ru] (1.64) Licens
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508618.jpg" />
+  <img src="Z:/picture/008/save_picture_508618.jpg" />
 </div>
 
 
@@ -114,7 +170,7 @@ Pilot Brothers / Братья Пилоты: По следам полосатог
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507777.jpg" />
+  <img src="Z:/picture/008/save_picture_507777.jpg" />
 </div>
 
 
@@ -140,7 +196,7 @@ Kane and Lynch: Dead Men (2007) [Multi] (1.0.0.129) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505892.jpg" />
+  <img src="Z:/picture/008/save_picture_505892.jpg" />
 </div>
 
 
@@ -166,7 +222,7 @@ Terminal Velocity (1995) [En] (1.2) License GOG
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505797.jpg" />
+  <img src="Z:/picture/008/save_picture_505797.jpg" />
 </div>
 
 
@@ -192,7 +248,7 @@ Kane and Lynch: Dead Men / Kane and Lynch: Смертники (2007) [Ru] Licens
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_505145.jpg" />
+  <img src="Z:/picture/008/save_picture_505145.jpg" />
 </div>
 
 
@@ -218,7 +274,7 @@ True Crime Дилогия [Ru/En] (RePack) 2004-2006 | Mailchik
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504062.jpg" />
+  <img src="Z:/picture/008/save_picture_504062.jpg" />
 </div>
 
 
@@ -244,7 +300,7 @@ Pontifex 2 / Bridge Construction Set [En] (L/1.30) 2002
 >>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502920.jpg" />
+  <img src="Z:/picture/008/save_picture_502920.jpg" />
 </div>
 
 
@@ -270,7 +326,7 @@ Theme Park (1994) [Multi] (1.0) License GOG
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502122.jpg" />
+  <img src="Z:/picture/008/save_picture_502122.jpg" />
 </div>
 
 
@@ -296,7 +352,7 @@ Atlantis 2: Beyond Atlantis / Атлантида 2 (1999) [Multi] (1.0) License 
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500269.jpg" />
+  <img src="Z:/picture/008/save_picture_500269.jpg" />
 </div>
 
 
@@ -322,7 +378,7 @@ Traffic Giant / Транспортный гигант (2001) [Ru/En] (1.0) Unoff
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496573.jpg" />
+  <img src="Z:/picture/008/save_picture_496573.jpg" />
 </div>
 
 
@@ -348,7 +404,7 @@ Peter Jackson's King Kong (2005) [Ru/Multi] (1.0.0.1) Repack R.G. Механик
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491507.jpg" />
+  <img src="Z:/picture/008/save_picture_491507.jpg" />
 </div>
 
 
@@ -374,7 +430,7 @@ Pirates of the Caribbean: At World's End / Пираты Карибского м�
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_485399.jpg" />
+  <img src="Z:/picture/008/save_picture_485399.jpg" />
 </div>
 
 
@@ -400,7 +456,7 @@ Real Myst (2000) [En] (1.11) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483656.jpg" />
+  <img src="Z:/picture/008/save_picture_483656.jpg" />
 </div>
 
 
@@ -426,7 +482,7 @@ Clay Dreams / Пластилиновый Сон (2002) [Ru] (1.0) License
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483297.jpg" />
+  <img src="Z:/picture/008/save_picture_483297.jpg" />
 </div>
 
 
@@ -452,7 +508,7 @@ TRON 2.0 [Ru/En] (Repack/1.042) 2003 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475553.jpg" />
+  <img src="Z:/picture/008/save_picture_475553.jpg" />
 </div>
 
 
@@ -478,7 +534,7 @@ Clive Barker's Jericho [Ru/En] (RePack/1.0) 2007 | R.G. Element Arts
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475425.jpg" />
+  <img src="Z:/picture/008/save_picture_475425.jpg" />
 </div>
 
 
@@ -504,7 +560,7 @@ I.G.I. Дилогия [Ru/En] (Rip/RePack/1.0-1.2) 2000-2003 | R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471103.jpg" />
+  <img src="Z:/picture/008/save_picture_471103.jpg" />
 </div>
 
 
@@ -530,7 +586,7 @@ Clive Barker's Undying [Ru/En] (Repack) 2001 | R.G. Механики
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471093.jpg" />
+  <img src="Z:/picture/008/save_picture_471093.jpg" />
 </div>
 
 
@@ -556,7 +612,7 @@ Lords of the Realm 3 / Властители земель 3 (2004) [Ru/En] (1.01)
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463599.jpg" />
+  <img src="Z:/picture/008/save_picture_463599.jpg" />
 </div>
 
 
@@ -582,7 +638,7 @@ New York Race / Погоня за 5 элементом [Ru] (L) 2001
 >>Racing
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461886.jpg" />
+  <img src="Z:/picture/008/save_picture_461886.jpg" />
 </div>
 
 
@@ -608,7 +664,7 @@ Blade Runner (1997) [Multi] (1.0.1016) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461527.jpg" />
+  <img src="Z:/picture/008/save_picture_461527.jpg" />
 </div>
 
 
@@ -619,58 +675,6 @@ Blade Runner (1997) [Multi] (1.0.1016) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756ABF6EB675588AEC8CBDDA47ACE6E51DAE9F9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162141   (458741) от 01.09.2017
-
-Wizards and Warriors (2000) [En] (1.0) License
-
->>Win Старые Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пусть сюжет Wizards & Warriors не делает каких-то неожиданных поворотов, пусть каждое слово и каждый мотив вселенских злодеев уже выучены назубок, эта RPG готова удивлять и радовать даже самых матёрых поклонников жанра.Тип издания: LicenseРазработчик: Heuristic ParkЖанр: RPG, 3D, 1st PersonЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825D4D3FAA4A3BDE5F86FC6BDF06C7FDFCB14255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102045   (458682) от 12.09.2018
-
-Blitzkrieg Anthology / Антология Блицкриг (2005) [Ru/En/Ge] (1.2.2 XPLAY (А)/dlc) License GOG
-
->>Win Старые Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_458682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приготовьтесь к войне и воспользуйтесь изящным искусством стратегии, чтобы сокрушить противника! Не важно, предпочитаете ли вы сложные планы или грубую силу: «Антология Блицкриг» предоставит вам уникальную возможность продемонстрировать ваш полководческий талант. Наносите хирургически точные удары с помощью танков и авиации, чтобы обескровить противника и сделать (   Читать дальше...   )Тип издания: LicenseРазработчик: Nival InteractiveЖанр: Strategy (Real-time), IsometricЯзык озвучки: Русский, Английский, НемецкийЯзык субтитров: Русский, Английский, НемецкийЯзык интерфейса: Русский, Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C62CF71A5FB0A2EA8B56E756BD448D26F3C224C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

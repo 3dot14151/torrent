@@ -6,7 +6,7 @@
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853022.jpg" />
+  <img src="Z:/picture/008/save_picture_853022.jpg" />
 </div>
 
 
@@ -34,7 +34,7 @@ Piezo 1.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853015.jpg" />
+  <img src="Z:/picture/008/save_picture_853015.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ A Better Finder Attributes 7 v7.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853014.jpg" />
+  <img src="Z:/picture/008/save_picture_853014.jpg" />
 </div>
 
 
@@ -88,7 +88,7 @@ NetWorker Pro 7.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853013.jpg" />
+  <img src="Z:/picture/008/save_picture_853013.jpg" />
 </div>
 
 
@@ -114,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852928.jpg" />
+  <img src="Z:/picture/008/save_picture_852928.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852919.jpg" />
+  <img src="Z:/picture/008/save_picture_852919.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ Adobe Premiere Pro 2020 14.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852909.jpg" />
+  <img src="Z:/picture/008/save_picture_852909.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_852904.jpg" />
+  <img src="Z:/picture/009/save_picture_852904.jpg" />
 </div>
 
 
@@ -219,7 +219,7 @@ Concealer 1.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852893.jpg" />
+  <img src="Z:/picture/008/save_picture_852893.jpg" />
 </div>
 
 
@@ -245,7 +245,7 @@ PhotoMill X 2.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852892.jpg" />
+  <img src="Z:/picture/008/save_picture_852892.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ Airtool 2 v2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852889.jpg" />
+  <img src="Z:/picture/008/save_picture_852889.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ Easy Screen Recorder 4.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852888.jpg" />
+  <img src="Z:/picture/008/save_picture_852888.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ AnyTrans for iOS 8.9.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852885.jpg" />
+  <img src="Z:/picture/008/save_picture_852885.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ iVI Video Converter 4 v4.746 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852884.jpg" />
+  <img src="Z:/picture/008/save_picture_852884.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ TechSmith Snagit 2021.4.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852880.jpg" />
+  <img src="Z:/picture/008/save_picture_852880.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ balenaEtcher for macOS 1.6.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852878.jpg" />
+  <img src="Z:/picture/008/save_picture_852878.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ DVD-Cloner 2021 v8.30.725 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852739.jpg" />
+  <img src="Z:/picture/008/save_picture_852739.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852737.jpg" />
+  <img src="Z:/picture/008/save_picture_852737.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ SecuritySpy 5 v5.3.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852736.jpg" />
+  <img src="Z:/picture/008/save_picture_852736.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Opera GX 79.0.4143.73 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852726.jpg" />
+  <img src="Z:/picture/008/save_picture_852726.jpg" />
 </div>
 
 
@@ -541,7 +541,7 @@ LDPlayer 4.0.66 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852725.jpg" />
+  <img src="Z:/picture/008/save_picture_852725.jpg" />
 </div>
 
 
@@ -569,7 +569,7 @@ File & Image Uploader 8.1.5 + Skins [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852724.jpg" />
+  <img src="Z:/picture/008/save_picture_852724.jpg" />
 </div>
 
 
@@ -595,7 +595,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852716.jpg" />
+  <img src="Z:/picture/008/save_picture_852716.jpg" />
 </div>
 
 
@@ -621,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852702.jpg" />
+  <img src="Z:/picture/008/save_picture_852702.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ SeaMonkey 2.53.9.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852642.jpg" />
+  <img src="Z:/picture/008/save_picture_852642.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ Paint.NET 4.3.1 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852639.jpg" />
+  <img src="Z:/picture/008/save_picture_852639.jpg" />
 </div>
 
 

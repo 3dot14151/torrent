@@ -1,3 +1,55 @@
+###  Публикация: 700127   (620851) от 20.07.2016
+
+Горбатые киты. Из огня в лёд / Humpbacks. From Fire to Ice (2008) BDRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_620851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самка горбатого кита и ее детеныш... Это рассказ о них. Повесть о первом годе жизни новорожденного кита. У детеныша есть 12 месяцев, чтобы узнать премудрости жизни, 12 месяцев, чтобы научиться выживать в этом полном опасностей подводном мире. Мы проследуем за самками и детенышами горбатых китов во время сезонной миграции через северную часть Тихого океана - от вулканов, (   Читать дальше...   )Жанр: Документальный, видовой, научно-познавательный, исследования, природа, флора, фаунаПеревод: Одноголосый закадровый (профессиональный)Продолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D8E304A1DC94C15EEC09C72CE58E1CE210EA3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097705   (617876) от 27.06.2017
+
+Эхо джунглей / Echoes from the Jungle (2006) SATRip (серии 1-11 из 13)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_617876.jpg" />
+</div>
+
+
+###  Подробнее
+
+35 летний опыт, отмеченный многочисленными наградами, три года изнурительного и кропотливого исследования дикой природы Индии увенчали грандиозные усилия известных режиссеров Нареша и Раджеша Беди мировым успехом созданного ими документального сериала «Эхо джунглей».Производство: ИндияЖанр: Документальный, природа, флора, фаунаРежиссер: Раджеш БедиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 11 x ~00:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1C1AB9AA162498DB67B92A8F0265B3E90046CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910993   (617808) от 22.06.2015
 
 NG. Анаконда: Тихий убийца / Anaconda: Silent Killer (2014) HDTVRip [H.264/720p]
@@ -6,7 +58,7 @@ NG. Анаконда: Тихий убийца / Anaconda: Silent Killer (2014) H
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617808.jpg" />
+  <img src="Z:/picture/008/save_picture_617808.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617168.jpg" />
+  <img src="Z:/picture/008/save_picture_617168.jpg" />
 </div>
 
 
@@ -59,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615853.jpg" />
+  <img src="Z:/picture/008/save_picture_615853.jpg" />
 </div>
 
 
@@ -87,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615401.jpg" />
+  <img src="Z:/picture/008/save_picture_615401.jpg" />
 </div>
 
 
@@ -113,7 +165,7 @@ NG: Исследование. Столкновение с астероидом. 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615093.jpg" />
+  <img src="Z:/picture/008/save_picture_615093.jpg" />
 </div>
 
 
@@ -139,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614556.jpg" />
+  <img src="Z:/picture/008/save_picture_614556.jpg" />
 </div>
 
 
@@ -165,7 +217,7 @@ BBC: Мир природы. Смертоносные змеи Индии / The N
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611273.jpg" />
+  <img src="Z:/picture/008/save_picture_611273.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ Nat Geo Wild: Дикая Иберия / Wild Iberia [сезон 1 серии 1-4
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610547.jpg" />
+  <img src="Z:/picture/008/save_picture_610547.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609791.jpg" />
+  <img src="Z:/picture/008/save_picture_609791.jpg" />
 </div>
 
 
@@ -244,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607242.jpg" />
+  <img src="Z:/picture/008/save_picture_607242.jpg" />
 </div>
 
 
@@ -271,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606956.jpg" />
+  <img src="Z:/picture/008/save_picture_606956.jpg" />
 </div>
 
 
@@ -297,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602855.jpg" />
+  <img src="Z:/picture/008/save_picture_602855.jpg" />
 </div>
 
 
@@ -323,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601983.jpg" />
+  <img src="Z:/picture/008/save_picture_601983.jpg" />
 </div>
 
 
@@ -349,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601673.jpg" />
+  <img src="Z:/picture/008/save_picture_601673.jpg" />
 </div>
 
 
@@ -375,7 +427,7 @@ Nat Geo Wild: Дикая Венеция / Wildes Venedig / Wild Venice (2014) HD
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600940.jpg" />
+  <img src="Z:/picture/008/save_picture_600940.jpg" />
 </div>
 
 
@@ -401,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600885.jpg" />
+  <img src="Z:/picture/008/save_picture_600885.jpg" />
 </div>
 
 
@@ -427,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597909.jpg" />
+  <img src="Z:/picture/008/save_picture_597909.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597667.jpg" />
+  <img src="Z:/picture/008/save_picture_597667.jpg" />
 </div>
 
 
@@ -479,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597306.jpg" />
+  <img src="Z:/picture/008/save_picture_597306.jpg" />
 </div>
 
 
@@ -505,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595832.jpg" />
+  <img src="Z:/picture/008/save_picture_595832.jpg" />
 </div>
 
 
@@ -531,7 +583,7 @@ Nat Geo Wild: Дикая Америка: Гризли против белого 
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595529.jpg" />
+  <img src="Z:/picture/008/save_picture_595529.jpg" />
 </div>
 
 
@@ -558,7 +610,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594727.jpg" />
+  <img src="Z:/picture/008/save_picture_594727.jpg" />
 </div>
 
 
@@ -584,7 +636,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593303.jpg" />
+  <img src="Z:/picture/008/save_picture_593303.jpg" />
 </div>
 
 
@@ -610,7 +662,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592752.jpg" />
+  <img src="Z:/picture/008/save_picture_592752.jpg" />
 </div>
 
 
@@ -621,58 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E9A779A96F088B38BDCEA5A7DBD17A9425D69EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551422   (590144) от 15.05.2022
-
-Один дикий день / One Wild Day (2017) WEB-DL [H.264/1080p] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590144.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире природы каждые сутки - это экстремальные приключения... Каждая минута ввергает всё живое в пучину опасностей. В этой программе мы проведем сутки в разных уголках девственной природы нашей планеты. Мы увидим как животные в определенное время суток побеждают в поединке за жизнь. Одни оживают в лучах дневного света, другие в ходе эволюции научились выживать в (   Читать дальше...   )Производство: Великобритания, An Offsrping Films ProductionsЖанр: документальный, природа, флора, фаунаРежиссер: Анвар МамонПеревод: дублированный (SDI Media)Субтитры: английскиеПродолжительность: 3x ~00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711399A36D947894A32A5F7E948B5A4084417D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551858   (588956) от 18.05.2022
-
-Окаванго. Поток жизни / Okavango. A Flood of Life (2021) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм раскрывает невероятную историю дельты Окаванго. Снятый в течение полного цикла сезонов, он раскрывает отношения - как людей, так и животных - на земле, где присутствие или отсутствие воды меняет все.Производство: Великобритания, Natural History Film Unit, Icon Films, NHKЖанр: документальный, природа, флора, фаунаРежиссер: Брэд БестелинкПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E19E819741E09FA5A07D4F01F5D67EFA9D9DF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

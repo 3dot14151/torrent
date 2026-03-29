@@ -1,3 +1,31 @@
+###  Публикация: 1365888   (919739) от 13.03.2020
+
+Александр Шишонин | Секреты здоровых суставов и позвоночника (2018) DVDRip [H.264]
+
+>>След.
+>>Здоровье и Спорт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Методика, готовая прийти в каждый дом! Немного усилий и дисциплины — и Вы сможете самостоятельно
+победить заболевания,даже если проживаете в местности,жутко удаленной от современных медучреждений!
+Бытует мнение, что наши суставы, в том числе и позвоночник, стареют и изнашиваются. Кто-то даже утверждает, что после 50 лет суставы разрушаются и их невозможно восстановить, (   Читать дальше...   )Производство: Академия компьютерных знанийЖанр: Медицина, гимнастика, здоровьеПродолжительность: ~3:23:42 суммарного времени
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CAA0EFE5824F9365D5F3105C4DF0094A88674E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096411   (918835) от 24.01.2017
 
 Billy Blanks | 12 best tai-bo fat burning workouts (2017) HDTVRip [H.264/720p-LQ] [EN]
@@ -6,7 +34,7 @@ Billy Blanks | 12 best tai-bo fat burning workouts (2017) HDTVRip [H.264/720p-LQ
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918835.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918835.jpg" />
 </div>
 
 
@@ -33,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918285.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918285.jpg" />
 </div>
 
 
@@ -59,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918213.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918213.jpg" />
 </div>
 
 
@@ -85,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_916658.jpg" />
 </div>
 
 
@@ -113,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_912818.jpg" />
 </div>
 
 
@@ -139,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911890.jpg" />
 </div>
 
 
@@ -167,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911742.jpg" />
 </div>
 
 
@@ -193,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911130.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_911130.jpg" />
 </div>
 
 
@@ -219,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_908002.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ BeFiT | Intensity Fitness Series (2017) HDTVRip [H.264/720p-LQ] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895681.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895681.jpg" />
 </div>
 
 
@@ -272,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888350.jpg" />
+  <img src="Z:/picture/005/save_picture_888350.jpg" />
 </div>
 
 
@@ -298,7 +326,7 @@ Barre3 (2019) WEB-DL [H.264/720p-LQ] (31 Серия) [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886761.jpg" />
+  <img src="Z:/picture/005/save_picture_886761.jpg" />
 </div>
 
 
@@ -324,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870710.jpg" />
+  <img src="Z:/picture/008/save_picture_870710.jpg" />
 </div>
 
 
@@ -350,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870617.jpg" />
+  <img src="Z:/picture/008/save_picture_870617.jpg" />
 </div>
 
 
@@ -376,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867578.jpg" />
+  <img src="Z:/picture/008/save_picture_867578.jpg" />
 </div>
 
 
@@ -405,7 +433,7 @@ Patrick Goudeau's | Lean Hot Body (2010) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858785.jpg" />
+  <img src="Z:/picture/008/save_picture_858785.jpg" />
 </div>
 
 
@@ -431,7 +459,7 @@ Mike Chang's | Insane Home Fat Loss Review (2012) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858650.jpg" />
+  <img src="Z:/picture/008/save_picture_858650.jpg" />
 </div>
 
 
@@ -457,7 +485,7 @@ Patrick Goudeau's | Extreme Calorie Burn (2011) DVDRip [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857052.jpg" />
+  <img src="Z:/picture/008/save_picture_857052.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848100.jpg" />
+  <img src="Z:/picture/008/save_picture_848100.jpg" />
 </div>
 
 
@@ -509,7 +537,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842688.jpg" />
+  <img src="Z:/picture/008/save_picture_842688.jpg" />
 </div>
 
 
@@ -538,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842195.jpg" />
+  <img src="Z:/picture/008/save_picture_842195.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840708.jpg" />
+  <img src="Z:/picture/008/save_picture_840708.jpg" />
 </div>
 
 
@@ -593,7 +621,7 @@ Mark Lauren | Bodyweight Training (2012) DVDRip [H.264] [EN]
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837718.jpg" />
+  <img src="Z:/picture/008/save_picture_837718.jpg" />
 </div>
 
 
@@ -619,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837465.jpg" />
+  <img src="Z:/picture/008/save_picture_837465.jpg" />
 </div>
 
 
@@ -648,7 +676,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835932.jpg" />
+  <img src="Z:/picture/008/save_picture_835932.jpg" />
 </div>
 
 
@@ -662,33 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD675DE35E4807B08E83D94902D061B64CA2F7E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147308   (827471) от 06.05.2020
-
-Shaun T | CIZE - The End of Exercize Deluxe (2015) HDTVRip [H.264/720p-LQ] [EN]
-
->>Обучающие видеоматериалы
->>Здоровье и Спорт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забудьте все, что пугало Вас в тренировках. Ведь начиная с этого дня тренировки будут не обязанностью, а потребностью.
-Благодаря Шону Ти всего за 4 недели, Вы танцуя улучшите свою форму! Расслабьтесь и обучитесь самым горячим профессионально поставленным танцевальным тренировкам. Вы будете так поглощены оттачиванием движений и выкладываться по-полной, что забудете, (   Читать дальше...   )Производство: США / BeachBody.comЖанр: ФитнесПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 06:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:602AD9EF391C8675E592D31C9186D6289913F672
 ```
 
 https://mybot314.ru/tekegram_catalog/

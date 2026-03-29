@@ -6,7 +6,7 @@ Internet Download Manager 6.39 Build 5 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817778.jpg" />
+  <img src="Z:/picture/008/save_picture_817778.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CPU-Z 1.98.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817647.jpg" />
+  <img src="Z:/picture/008/save_picture_817647.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wise Care 365 Pro 5.9.2.584 RePack (& Portable) by 9649 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817645.jpg" />
+  <img src="Z:/picture/008/save_picture_817645.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Textify 1.8.7 RePack by AlexYar Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817641.jpg" />
+  <img src="Z:/picture/008/save_picture_817641.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ WinTools.net Premium 21.9.0 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817633.jpg" />
+  <img src="Z:/picture/008/save_picture_817633.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ USDownloader 1.3.5.9 Portable (17.04.2016) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817607.jpg" />
+  <img src="Z:/picture/008/save_picture_817607.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ XMedia Recode 3.3.0.9 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817596.jpg" />
+  <img src="Z:/picture/008/save_picture_817596.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Soft4Boost Document Converter 5.1.9.709 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817574.jpg" />
+  <img src="Z:/picture/008/save_picture_817574.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Comodo Dragon 60.0.3112.115 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817569.jpg" />
+  <img src="Z:/picture/008/save_picture_817569.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Futuremark 3DMark 2.20.7290 Professional Edition RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817508.jpg" />
+  <img src="Z:/picture/008/save_picture_817508.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ AIDA64 Extreme / Engineer / Business / Network Audit 6.50.5800 RePack (&Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817498.jpg" />
+  <img src="Z:/picture/008/save_picture_817498.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Reg Organizer 7.35 Portable by Kopejkin [En/Ua]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817451.jpg" />
+  <img src="Z:/picture/008/save_picture_817451.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Anvir Task Manager 9.2.1 Final + Portable [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817445.jpg" />
+  <img src="Z:/picture/008/save_picture_817445.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ GoodSync Enterprise 10.11.8.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817389.jpg" />
+  <img src="Z:/picture/008/save_picture_817389.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ MediaHuman YouTube Downloader 3.9.9.38 (1005) RePack (& Portable) by TryRooM [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817382.jpg" />
+  <img src="Z:/picture/008/save_picture_817382.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ VidCoder 5.18 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817379.jpg" />
+  <img src="Z:/picture/008/save_picture_817379.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ SRWare Iron 81.0.4200.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817376.jpg" />
+  <img src="Z:/picture/008/save_picture_817376.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ Ashampoo WinOptimizer 18.00.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817370.jpg" />
+  <img src="Z:/picture/008/save_picture_817370.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ CCleaner 5.86.9258 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817360.jpg" />
+  <img src="Z:/picture/008/save_picture_817360.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ AdwCleaner 5.112 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817325.jpg" />
+  <img src="Z:/picture/008/save_picture_817325.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Media Player Codec Pack 4.4.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817321.jpg" />
+  <img src="Z:/picture/008/save_picture_817321.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ SpotOnTheMouse 2.6.0 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817303.jpg" />
+  <img src="Z:/picture/008/save_picture_817303.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ AIMP 4.02 Build 1711 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817300.jpg" />
+  <img src="Z:/picture/008/save_picture_817300.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Debut Video Capture Pro 4.09 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817295.jpg" />
+  <img src="Z:/picture/008/save_picture_817295.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Wondershare Video Converter Ultimate 10.2.1 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817285.jpg" />
+  <img src="Z:/picture/008/save_picture_817285.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Tipard PDF Converter Platinum 3.0.22 [Eng+Rus] + Portable [Rus]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817266.jpg" />
+  <img src="Z:/picture/008/save_picture_817266.jpg" />
 </div>
 
 

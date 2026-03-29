@@ -1,3 +1,139 @@
+###  Публикация: 1169933   (401505) от 29.09.2017
+
+App Cleaner Pro 4.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просмотр установленных приложений и удалить пакет файлов для полного удаления.
+App Cleaner - Лучшее приложение для удаления файлов приложения службы на Mac OS X и деинсталляции приложений *.
+
+* Некоторые приложения не могут быть удалены, поскольку они требуют прав администратора. В этом случае, переключиться на Finder и удалите файл приложения в обычном порядке.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2017Разработчик: NektonyПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BB35E502E1885F7798F19F492A649446695C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169750   (401465) от 29.09.2017
+
+Trim Enabler Pro 4.1.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401465.jpg" />
+</div>
+
+
+###  Подробнее
+
+По умолчанию в ОС от Apple существует поддержка TRIM только для твердотельных накопителей самого же Apple. Trim Enabler призван исправить это досадное недоразумение и активировать TRIM для большинства существующих SSD. С Trim вы сможете добавить эту особенность к вашему Mac, просто нажмите на переключатель.
+Приложение снабжено несколькими полезными функциями вроде (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.09.2017Разработчик: Oskar GrothПоддерживаемая ОС: macOS 10.9 или выщеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DAE33C09FAF649A411CBC026FC0A022F1D83598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169890   (401423) от 29.09.2017
+
+OmniPlan Pro 3.7.3 [Multi/Ru]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omni Group славится своими качественными программами для Mac. OmniPlan не стало исключением. Это приложение позволяет пользователям подробно планировать отдельные задания какого-то проекта или мероприятия. Некоторые люди предпочитают иметь визуальное представление своих идей, и именно для них разработано это приложение. Оно поможет набросать весь проект в виде схем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.09.2017Разработчик: The Omni GroupПоддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FCA35EE18A2180821EDAAE3ED910D5DD49F67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169959   (401329) от 29.09.2017
+
+Passport Photo 1.5 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_401329.jpg" />
+</div>
+
+
+###  Подробнее
+
+С помощью этого приложения Вы можете мгновенно отформатировать фотографии для паспорта, распечатать или сохранить их. В приложение включены шаблоны для паспортных фотографий из 100 стран мира, на которых вы можете отрегулировать центральное расположение по горизонтали и высоту головы, а так же яркость, контрастность, насыщенность и баланс цветопередачи.Тип издания: macOS SoftwareРелиз состоялся: 27.09.2017Разработчик: vsmedia.deПоддерживаемая ОС: macOS 10.7 или вышеЯзык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A17F82F807CD0A3BDAF590409EA385C2D752493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170073   (400606) от 30.09.2017
+
+iRamDisk 3.6.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_400606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cамая функциональная программа для создание RAM-диска из свободного объема оперативной памяти. Поддерживает создание и управление более чем одним диском, автоматическое выполнением команд, автоматическое монтирование, скрытную работу, защиту дисков.
+
+Главное отличие от всех прочих решений — присутствует защита рамдиска от размонтирования в случае сна или падения (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.09.2017Разработчик: Michaël ParrotПоддерживаемая ОС: macOS 10.6.6 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC4C3A175AE02130A2037A10180BCDAFC8BEB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169913   (400596) от 30.09.2017
 
 TokenLock 4.72.9124 [En]
@@ -6,7 +142,7 @@ TokenLock 4.72.9124 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400596.jpg" />
+  <img src="Z:/picture/008/save_picture_400596.jpg" />
 </div>
 
 
@@ -34,7 +170,7 @@ Audio Record Pro 3.4.5 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400451.jpg" />
+  <img src="Z:/picture/008/save_picture_400451.jpg" />
 </div>
 
 
@@ -60,7 +196,7 @@ CrossOver 16.2.5 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400317.jpg" />
+  <img src="Z:/picture/008/save_picture_400317.jpg" />
 </div>
 
 
@@ -88,7 +224,7 @@ PhotoStack for Instagram 3.7.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399411.jpg" />
+  <img src="Z:/picture/008/save_picture_399411.jpg" />
 </div>
 
 
@@ -117,7 +253,7 @@ DxO OpticsPro Elite 11.4.3 (build 71) [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_399361.jpg" />
+  <img src="Z:/picture/008/save_picture_399361.jpg" />
 </div>
 
 
@@ -143,7 +279,7 @@ Mail Act-On 4.1.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398688.jpg" />
+  <img src="Z:/picture/008/save_picture_398688.jpg" />
 </div>
 
 
@@ -169,7 +305,7 @@ Virus Scanner Plus 3.10 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398633.jpg" />
+  <img src="Z:/picture/008/save_picture_398633.jpg" />
 </div>
 
 
@@ -195,7 +331,7 @@ QuartzCode 1.58.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397766.jpg" />
+  <img src="Z:/picture/008/save_picture_397766.jpg" />
 </div>
 
 
@@ -221,7 +357,7 @@ Flux 7.1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_397612.jpg" />
+  <img src="Z:/picture/008/save_picture_397612.jpg" />
 </div>
 
 
@@ -247,7 +383,7 @@ AirStreamer - for Apple TV 1.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396615.jpg" />
+  <img src="Z:/picture/008/save_picture_396615.jpg" />
 </div>
 
 
@@ -276,7 +412,7 @@ TripMode 2.1.0 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395700.jpg" />
+  <img src="Z:/picture/008/save_picture_395700.jpg" />
 </div>
 
 
@@ -304,7 +440,7 @@ Duplicates Expert 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394847.jpg" />
+  <img src="Z:/picture/008/save_picture_394847.jpg" />
 </div>
 
 
@@ -331,7 +467,7 @@ H265 Converter Pro 3.1.1 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394667.jpg" />
+  <img src="Z:/picture/008/save_picture_394667.jpg" />
 </div>
 
 
@@ -357,7 +493,7 @@ QuartzCode 1.59.0 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394158.jpg" />
+  <img src="Z:/picture/008/save_picture_394158.jpg" />
 </div>
 
 
@@ -383,7 +519,7 @@ Download Buddy 1.8.5 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394093.jpg" />
+  <img src="Z:/picture/008/save_picture_394093.jpg" />
 </div>
 
 
@@ -409,7 +545,7 @@ Records - Database & Organizer 1.5.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394046.jpg" />
+  <img src="Z:/picture/008/save_picture_394046.jpg" />
 </div>
 
 
@@ -435,7 +571,7 @@ MP4tools 3.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393945.jpg" />
+  <img src="Z:/picture/008/save_picture_393945.jpg" />
 </div>
 
 
@@ -464,7 +600,7 @@ MKVtools 3.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393929.jpg" />
+  <img src="Z:/picture/008/save_picture_393929.jpg" />
 </div>
 
 
@@ -492,7 +628,7 @@ Boris RED 5.1.5.1161 x64
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_393439.jpg" />
+  <img src="Z:/picture/005/save_picture_393439.jpg" />
 </div>
 
 
@@ -518,7 +654,7 @@ AVITools 3.6.6 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_393040.jpg" />
+  <img src="Z:/picture/008/save_picture_393040.jpg" />
 </div>
 
 
@@ -544,7 +680,7 @@ Priime Styles 1.5 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391957.jpg" />
+  <img src="Z:/picture/008/save_picture_391957.jpg" />
 </div>
 
 
@@ -556,147 +692,6 @@ Priime обладает более чем 100 фотографическими �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11109F67A1C41C6F623E4F162FEF0A6DB0A9ADB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173082   (391156) от 10.10.2017
-
-sdspeed 3.2.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_391156.jpg" />
-</div>
-
-
-###  Подробнее
-
-sdspeed - Программное обеспечение для проверки целостности карты флэш-памяти SD
-sdspeed является единственным продуктом, который измеряют чтения и записи скорости и тестирования каждый бит карты памяти SD вы можете доверять без "конфликта интересов".
-
-Вы ищете тест скорости SD карты на Mac, как проверить скорость карты памяти, SD Card Speed Test, тест флэш-карты (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 марта 2017Разработчик: Michael MustunПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE445157C7F7916E31D8A88F69FE774D7B56D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173310   (390474) от 11.10.2017
-
-Wondershare Data Recovery 6.2.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восстановление утерянных фотографий, видео, документов, электронных писем и архивных файлов с любого жесткого диска Mac или внешнего жесткого диска, IPod, USB диска, SD карты, цифрового фотоаппарата, мобильного телефона и MP3/MP4-плеера в результате случайного удаления, форматирования, вирусной инфекции, неправильной эксплуатации, неожиданного отключения питания (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2017Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: OS X 10.6.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5640F215268110286C5BBB2FF402E787EF2FB0B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173404   (390402) от 11.10.2017
-
-Wallpaper Wizard 2.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выбирайте из сотен  изображений для рабочего стола в формате HD, и приложение будет устанавливать новый фон каждую неделю, день или час. Наконец, вы можете избавить себя от просеивания изображений Google - с помощью Wallpaper Wizard 2, у вас будет достаточно свежих обоев для всей вашей жизни Mac.
-
-Wallpaper Wizard - Более 25 000 обоев, все изображения в формате 4K (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2017Разработчик: MacPaw Inc.Поддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8162336C3C92CD06899435F1858E39B6DF3767D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173340   (390359) от 11.10.2017
-
-FileMaker Pro 16 Advanced 16.0.3.302 [Multi]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_390359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создавайте индивидуальные приложения для своего бизнеса
-FileMaker Pro — это мощное и удобное программное обеспечение для создания пользовательских приложений, беспрепятственно работающих на iPad, iPhone, Windows, Mac и в браузерах.
-
-Легко создавайте собственные пользовательские приложения, соответствующие уникальным и постоянно меняющимся потребностям вашего бизнеса. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: октябрь 2017Разработчик: FileMaker, Inc.Поддерживаемая ОС: OS X 10.11 или вышеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:824F6851577AF48D6D3EC959924F655F47EC791B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173580   (389645) от 12.10.2017
-
-PDF Expert 2.2.11 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389645.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert - лучший редактор файлов PDF
-PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
-
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11 октября 2017Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0000BD5E6C43ACAC08827BFB751F27E8452CF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

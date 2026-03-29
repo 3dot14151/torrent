@@ -1,3 +1,90 @@
+###  Публикация: 1465209   (240318) от 25.04.2021
+
+Power Quest - Master Of Illusion (2008) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cemetery Gates
+02. Human Machine
+03. Civilised?
+04. Kings Of Eternity(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD963F85786D1877A1AE0EB032FEE9F6EFA8E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634232   (240317) от 19.05.2023
+
+Roadwolf - Midnight Lightning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Run (3:10)
+02. Midnight Lightning (5:34)
+03. Mark of The Devil (6:36)
+04. Supernatural (4:06)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE5535F39ADA730A75AF861B33219C33CD98B28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552610   (240312) от 22.05.2022
+
+Luminous Vault - Animate the Emptiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_240312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Invoke Radiant Gleam (00:05:19)
+02 - Incarnate Flame Arise (00:06:20)
+03 - Divine Transduction (00:06:32)
+04 - Regeneration (00:04:38)(   Читать дальше...   )Жанр: Industrial Black MetalПродолжительность: 00:35:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDB43ADD02ACC9F2F175DBD9B5D7AB2F85B17B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552815   (240305) от 22.05.2022
 
 Teenage Slaves Of Satan - Poison Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Stoner Rock, Experimental>
@@ -6,7 +93,7 @@ Teenage Slaves Of Satan - Poison Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240305.jpg" />
+  <img src="Z:/picture/004/save_picture_240305.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Primal Fear - I Will Be Gone (2021) EP [FLAC|Lossless|image + .cue] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240296.jpg" />
+  <img src="Z:/picture/004/save_picture_240296.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Power Quest - Sixth Dimension (2017) Japanese Edition [FLAC|Lossless|image + .cu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240287.jpg" />
+  <img src="Z:/picture/004/save_picture_240287.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Saxon - More Inspirations (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240276.jpg" />
+  <img src="Z:/picture/004/save_picture_240276.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ The Cross - Act II: Walls of the Forgotten (2022) [FLAC|Lossless|WEB-DL|tracks] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240271.jpg" />
+  <img src="Z:/picture/004/save_picture_240271.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Evergrey - Escape Of The Phoenix (2021) [FLAC|Lossless|image + .cue] <Progressiv
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240265.jpg" />
+  <img src="Z:/picture/004/save_picture_240265.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Azeroth - II (2008) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240261.jpg" />
+  <img src="Z:/picture/004/save_picture_240261.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Lust Witch - Hands Of Filth (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Death, Doom
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240251.jpg" />
+  <img src="Z:/picture/004/save_picture_240251.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Luteoks - Barely True Norwegian Black Metal (2023) [FLAC|Lossless|WEB-DL|tracks]
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240244.jpg" />
+  <img src="Z:/picture/004/save_picture_240244.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Vesuvian - Emergence (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Melodic De
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240215.jpg" />
+  <img src="Z:/picture/004/save_picture_240215.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Montagne - Black Waterfall (2020) [FLAC|Lossless|WEB-DL|tracks] <Post-Metal, Atm
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240188.jpg" />
+  <img src="Z:/picture/004/save_picture_240188.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Giant - Born Again Dead Again (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240173.jpg" />
+  <img src="Z:/picture/004/save_picture_240173.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Red Raven Chaos - Chaos to My Eyes (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240133.jpg" />
+  <img src="Z:/picture/004/save_picture_240133.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Excalion - Once Upon a Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic-Power-
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240124.jpg" />
+  <img src="Z:/picture/004/save_picture_240124.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Megaloceros - Megalophobia (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240057.jpg" />
+  <img src="Z:/picture/004/save_picture_240057.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Maze of Sothoth - Extirpated Light (2023) [FLAC|Lossless|WEB-DL|tracks] <Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240045.jpg" />
+  <img src="Z:/picture/004/save_picture_240045.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Kneipenterroristen - Infiziert (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240021.jpg" />
+  <img src="Z:/picture/004/save_picture_240021.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Icxitonttli - Terra Existence (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240007.jpg" />
+  <img src="Z:/picture/004/save_picture_240007.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Arrival Of Autumn - Kingdom Undone (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239980.jpg" />
+  <img src="Z:/picture/004/save_picture_239980.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Immortal - War Against All (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239975.jpg" />
+  <img src="Z:/picture/004/save_picture_239975.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Perc3ption - Reason and Faith (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive,
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239959.jpg" />
+  <img src="Z:/picture/004/save_picture_239959.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Torch - Reignited (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239958.jpg" />
+  <img src="Z:/picture/004/save_picture_239958.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Rexoria - Imperial Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Pow
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239956.jpg" />
+  <img src="Z:/picture/004/save_picture_239956.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Rexoria - Imperial Dawn (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Pow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78547047492DC9F1D8C39FCEFAAF3B83C5D250A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621595   (239948) от 25.03.2023
-
-Hanging Garden - The Garden (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Garden [00:06:24]
-02. The Four Winds [00:03:55]
-03. The Construct [00:03:26]
-04. The Song of Spring [00:05:10](   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216D73072A1A8A723D6BC591EFDC11BCC144817D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635422   (239945) от 25.05.2023
-
-DeVicious - Code Red (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready for Love (4:53)
-02. Highway to the Stars (4:21)
-03. Madhouse (4:26)
-04. Stuck in Paradise (4:34)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCECBC02ABEE8A7A6F79791DECD03357B20A0655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637522   (239944) от 04.06.2023
-
-Bloodgutter - Death Mountain (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katabatic Death Wind
-02. Rot Awaits
-03. Artillery Supremacy
-04. Torture Sacrifice(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CADC8778C580BE25219C84D1C3E3A344F76DEE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345193.jpg" />
+  <img src="Z:/picture/008/save_picture_345193.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344105.jpg" />
+  <img src="Z:/picture/008/save_picture_344105.jpg" />
 </div>
 
 
@@ -62,7 +62,7 @@ Jelly Roll - Self Medicated (2020) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-H
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_341916.jpg" />
+  <img src="Z:/picture/008/save_picture_341916.jpg" />
 </div>
 
 
@@ -91,7 +91,7 @@ VA - Reggae Gold 2017 [MP3|320 Kbps] <Reggae, Ska, Dub>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337365.jpg" />
+  <img src="Z:/picture/008/save_picture_337365.jpg" />
 </div>
 
 
@@ -120,7 +120,7 @@ Busta Rhymes - Extinction Level Event 2: The Wrath of God (2020) [FLAC|Lossless|
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335610.jpg" />
+  <img src="Z:/picture/008/save_picture_335610.jpg" />
 </div>
 
 
@@ -149,7 +149,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_333021.jpg" />
+  <img src="Z:/picture/008/save_picture_333021.jpg" />
 </div>
 
 
@@ -178,7 +178,7 @@ Noize MC - Voyager-2 (2022) Live at Stadium [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331831.jpg" />
+  <img src="Z:/picture/008/save_picture_331831.jpg" />
 </div>
 
 
@@ -207,7 +207,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331751.jpg" />
+  <img src="Z:/picture/008/save_picture_331751.jpg" />
 </div>
 
 
@@ -236,7 +236,7 @@ Coolio - The Collection (2012) Compilation [FLAC|Lossless|WEB-DL|tracks] <Hip-Ho
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_331666.jpg" />
+  <img src="Z:/picture/008/save_picture_331666.jpg" />
 </div>
 
 
@@ -265,7 +265,7 @@ Noize MC - Voyager-2 (2022) Live [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop, Ro
 >>Rap, Hip-hop отечественный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330654.jpg" />
+  <img src="Z:/picture/008/save_picture_330654.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330037.jpg" />
+  <img src="Z:/picture/008/save_picture_330037.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Public Enemy - What You Gonna Do When The Grid Goes Down? (2020) [FLAC|Lossless|
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321891.jpg" />
+  <img src="Z:/picture/008/save_picture_321891.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ Shiny Radio ft. DJ ERIK - The Remixplate (2017) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319091.jpg" />
+  <img src="Z:/picture/008/save_picture_319091.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ L'One - Автолюбитель (2015) EP [MP3|320 кб/с]<Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318873.jpg" />
+  <img src="Z:/picture/008/save_picture_318873.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316423.jpg" />
+  <img src="Z:/picture/008/save_picture_316423.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ Pra(Killa'Gramm) - Рэп этот (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314872.jpg" />
+  <img src="Z:/picture/008/save_picture_314872.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Alai Oli - Sad Princess (2019) [MP3|320 Kbps] <Reggae, Alternative Rock>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313647.jpg" />
+  <img src="Z:/picture/008/save_picture_313647.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313536.jpg" />
+  <img src="Z:/picture/008/save_picture_313536.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ The Weeknd - Starboy (2016) [MP3|320 Kbps] <R&B>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313012.jpg" />
+  <img src="Z:/picture/008/save_picture_313012.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313009.jpg" />
+  <img src="Z:/picture/008/save_picture_313009.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Noize MC - No Comments (2018) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311409.jpg" />
+  <img src="Z:/picture/008/save_picture_311409.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310936.jpg" />
+  <img src="Z:/picture/008/save_picture_310936.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Rihanna - 7 Albums + 6 Singles (2005-2010) [FLAC|Lossless] <R'n'B>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310459.jpg" />
+  <img src="Z:/picture/008/save_picture_310459.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Black Eyed Peas - The Beginning (2010) [FLAC|Lossless]<Hip-hop, Pop>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303767.jpg" />
+  <img src="Z:/picture/008/save_picture_303767.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302167.jpg" />
+  <img src="Z:/picture/008/save_picture_302167.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ ST - ПОЭТ ДУЭТ (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301355.jpg" />
+  <img src="Z:/picture/008/save_picture_301355.jpg" />
 </div>
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1610850   (244144) от 09.02.2023
+
+Russkaja - No One is Illegal (2019) [FLAC|Lossless|WEB-DL|tracks] <Gypsy Punk, Ska-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Love Revolution (00:03:48)
+02 - Druschba (You're Not Alone) (00:03:15)
+03 - No One Is Illegal (00:03:37)
+04 - Here is the News (Papa's Got a Brand New Pigbag) (00:03:46)(   Читать дальше...   )Жанр: Gypsy Punk, Ska-PunkПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8920C3EB5E3771BC579D7844CC545C908634059C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610874   (244114) от 09.02.2023
 
 Colorsfade - Built From The Wreckage (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock>
@@ -6,7 +35,7 @@ Colorsfade - Built From The Wreckage (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_244114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_244114.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Narrow Head - Moments of Clarity (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock,
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243715.jpg" />
+  <img src="Z:/picture/004/save_picture_243715.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Call Me Karizma - Francis (2022) 2023, Deluxe Edition [FLAC|Lossless|WEB-DL|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243229.jpg" />
+  <img src="Z:/picture/004/save_picture_243229.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Exit North - Book of Romance and Dust (2018) [FLAC|Lossless|WEB-DL|tracks] <Alte
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_243144.jpg" />
+  <img src="Z:/picture/004/save_picture_243144.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Self Deception - You Are Only As Sick As Your Secrets (2023) [FLAC|Lossless|WEB-
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242851.jpg" />
+  <img src="Z:/picture/005/save_picture_242851.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242821.jpg" />
+  <img src="Z:/picture/005/save_picture_242821.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Klangstof - The Noise You Make Is Silent (2020) [FLAC|Lossless|WEB-DL|tracks] <I
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_242578.jpg" />
+  <img src="Z:/picture/005/save_picture_242578.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Acres - Burning Throne (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242434.jpg" />
+  <img src="Z:/picture/004/save_picture_242434.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Blueprint's - Organic Life Hazards (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242417.jpg" />
+  <img src="Z:/picture/004/save_picture_242417.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Axty - Unbreakable (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242215.jpg" />
+  <img src="Z:/picture/004/save_picture_242215.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Ghostblade - Machine Made God (2023) [FLAC|Lossless|WEB-DL|tracks] <Metallic Har
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242207.jpg" />
+  <img src="Z:/picture/004/save_picture_242207.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ August Burns Red - Guardians (2020) [FLAC|Lossless|tracks] <Progressive Metalcor
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242175.jpg" />
+  <img src="Z:/picture/004/save_picture_242175.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ PeroPero - Massive Tales of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-Gar
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242110.jpg" />
+  <img src="Z:/picture/004/save_picture_242110.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Aiden Malacaria - Inferno (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metalc
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241997.jpg" />
+  <img src="Z:/picture/004/save_picture_241997.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Otherwise - Gawdzillionaire (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Mod
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241774.jpg" />
+  <img src="Z:/picture/004/save_picture_241774.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ The Twilight Sad - It Won/t Be Like This All The Time (2019) [FLAC|Lossless|trac
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241757.jpg" />
+  <img src="Z:/picture/004/save_picture_241757.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Story of the Year - Tear Me To Pieces (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241662.jpg" />
+  <img src="Z:/picture/004/save_picture_241662.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Suicide Silence - Remember... You Must Die (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241502.jpg" />
+  <img src="Z:/picture/004/save_picture_241502.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Paloma Faith ‎ - Do You Want the Truth or Something Beautiful? (2009) [FLAC|Lo
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241492.jpg" />
+  <img src="Z:/picture/004/save_picture_241492.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Dream Awake - Enigma (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Altern
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241396.jpg" />
+  <img src="Z:/picture/004/save_picture_241396.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Fall Out Boy - So Much (For) Stardust (2023) [FLAC|Lossless|tracks + .cue] <Pop 
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240788.jpg" />
+  <img src="Z:/picture/004/save_picture_240788.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ And Hell Followed With - Quietus (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240739.jpg" />
+  <img src="Z:/picture/004/save_picture_240739.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Reflections - The Fantasy Effect (2022) Redux [FLAC|Lossless|WEB-DL|tracks] <Alt
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240732.jpg" />
+  <img src="Z:/picture/004/save_picture_240732.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ Us in Motion - Death Poems (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Po
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240718.jpg" />
+  <img src="Z:/picture/004/save_picture_240718.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Saviour - Shine & Fade (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progre
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240704.jpg" />
+  <img src="Z:/picture/004/save_picture_240704.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Saviour - Shine & Fade (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F311B0DF7DA9B76D9C4DD36A6B101C0568A0DDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549092   (240696) от 06.05.2022
-
-Nest of Plagues - To Kill A God (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240696.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Message From Us
-2. Helion
-3. Unimprint
-4. Heredity(   Читать дальше...   )Жанр: Alternative, Metalcore, ElectronicПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E5AD50AE7C22FF4B7E7DA9AAC52527845514E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714512.jpg" />
+  <img src="Z:/picture/008/save_picture_714512.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Space Engineers (2019) [Ru/Multi] (1.189.039) Repack xatab
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714506.jpg" />
+  <img src="Z:/picture/008/save_picture_714506.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Microsoft Visual C++ 2005-2008-2010-2012-2013-2017 Redistributable Package Hybri
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714505.jpg" />
+  <img src="Z:/picture/008/save_picture_714505.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ The KMPlayer 4.2.2.22 repack by cuta (build 2) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714500.jpg" />
+  <img src="Z:/picture/008/save_picture_714500.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714499.jpg" />
+  <img src="Z:/picture/008/save_picture_714499.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714492.jpg" />
+  <img src="Z:/picture/008/save_picture_714492.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ VA - Wet and Hot Chill Beatz (2017) [MP3|320 Kbps] <Chillout, Downtempo, House,>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714491.jpg" />
+  <img src="Z:/picture/008/save_picture_714491.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714490.jpg" />
+  <img src="Z:/picture/008/save_picture_714490.jpg" />
 </div>
 
 
@@ -224,7 +224,7 @@ Elian West - Progressive Trance Collection Vol 9 (2017) [MP3|320 Kbps] <Trance, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714485.jpg" />
+  <img src="Z:/picture/008/save_picture_714485.jpg" />
 </div>
 
 
@@ -253,7 +253,7 @@ PullTube 0.9.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714481.jpg" />
+  <img src="Z:/picture/008/save_picture_714481.jpg" />
 </div>
 
 
@@ -282,7 +282,7 @@ Desktop Calendar 2.3.99.5464 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714478.jpg" />
+  <img src="Z:/picture/008/save_picture_714478.jpg" />
 </div>
 
 
@@ -308,7 +308,7 @@ WinTools.net Premium 22.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714475.jpg" />
+  <img src="Z:/picture/008/save_picture_714475.jpg" />
 </div>
 
 
@@ -334,7 +334,7 @@ IObit Driver Booster Pro 9.2.0.177 RePack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714466.jpg" />
+  <img src="Z:/picture/008/save_picture_714466.jpg" />
 </div>
 
 
@@ -360,7 +360,7 @@ Macrorit Data Wiper 4.8.1 Unlimited Edition RePack (& Portable) by elchupacabra 
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714465.jpg" />
+  <img src="Z:/picture/008/save_picture_714465.jpg" />
 </div>
 
 
@@ -386,7 +386,7 @@ WinToUSB Technician 6.5.2.0 Release 1 RePack (& Portable) by elchupacabra [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714464.jpg" />
+  <img src="Z:/picture/008/save_picture_714464.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714451.jpg" />
+  <img src="Z:/picture/008/save_picture_714451.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714449.jpg" />
+  <img src="Z:/picture/008/save_picture_714449.jpg" />
 </div>
 
 
@@ -464,7 +464,7 @@ Windows Vista Ultimate SP2 x64 2019 6.0.6002 by Burnoutman [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714440.jpg" />
+  <img src="Z:/picture/008/save_picture_714440.jpg" />
 </div>
 
 
@@ -491,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714438.jpg" />
+  <img src="Z:/picture/008/save_picture_714438.jpg" />
 </div>
 
 
@@ -517,7 +517,7 @@ Allavsoft Video Downloader Converter 3.14.4.6330 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714429.jpg" />
+  <img src="Z:/picture/008/save_picture_714429.jpg" />
 </div>
 
 
@@ -543,7 +543,7 @@ Tap Forms Organizer 5.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714428.jpg" />
+  <img src="Z:/picture/008/save_picture_714428.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ Airmail 3.2.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714424.jpg" />
+  <img src="Z:/picture/008/save_picture_714424.jpg" />
 </div>
 
 
@@ -599,7 +599,7 @@ ChronoSync 4.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714412.jpg" />
+  <img src="Z:/picture/008/save_picture_714412.jpg" />
 </div>
 
 
@@ -627,7 +627,7 @@ iThoughtsX 5.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714371.jpg" />
+  <img src="Z:/picture/008/save_picture_714371.jpg" />
 </div>
 
 
@@ -653,7 +653,7 @@ Wolfsheim - Find You're Here / Find You're Gone (2003) Maxi-Single, Limited Edit
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714346.jpg" />
+  <img src="Z:/picture/008/save_picture_714346.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ SteerMouse 5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714342.jpg" />
+  <img src="Z:/picture/008/save_picture_714342.jpg" />
 </div>
 
 

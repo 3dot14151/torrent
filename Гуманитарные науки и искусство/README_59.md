@@ -1,3 +1,29 @@
+###  Публикация: 912219   (609017) от 27.06.2015
+
+Йосеф Кац | Таллин. Любовь и смерть в старом городе (2014) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_609017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Таллинская любовь сдержанна и немногословна. Она обращена не к настоящему, а к прошлому. Она вплетена в ткань улиц и площадей. Она может показаться наивной и провинциальной, но никогда - фальшивой и пошлой. Возвышенная и приземленная, романтическая и бесхитростная, платоническая и самая что ни на есть плотская, пребывающая в нескончаемом поединке со своими противниками (   Читать дальше...   )Жанр: ИсторияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90EE74FF64D3D743F57F507446353E3EB602AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912552   (609014) от 27.06.2015
 
 О. А. Корнилов | Жемчужины китайской фразеологии (2005) [DJVU]
@@ -6,7 +32,7 @@
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609014.jpg" />
+  <img src="Z:/picture/008/save_picture_609014.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609013.jpg" />
+  <img src="Z:/picture/008/save_picture_609013.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609012.jpg" />
+  <img src="Z:/picture/008/save_picture_609012.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609009.jpg" />
+  <img src="Z:/picture/008/save_picture_609009.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608934.jpg" />
+  <img src="Z:/picture/008/save_picture_608934.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608929.jpg" />
+  <img src="Z:/picture/008/save_picture_608929.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608916.jpg" />
+  <img src="Z:/picture/008/save_picture_608916.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608913.jpg" />
+  <img src="Z:/picture/008/save_picture_608913.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608835.jpg" />
+  <img src="Z:/picture/008/save_picture_608835.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608785.jpg" />
+  <img src="Z:/picture/008/save_picture_608785.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608761.jpg" />
+  <img src="Z:/picture/008/save_picture_608761.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608696.jpg" />
+  <img src="Z:/picture/008/save_picture_608696.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608695.jpg" />
+  <img src="Z:/picture/008/save_picture_608695.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608586.jpg" />
+  <img src="Z:/picture/008/save_picture_608586.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607723.jpg" />
+  <img src="Z:/picture/008/save_picture_607723.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607714.jpg" />
+  <img src="Z:/picture/008/save_picture_607714.jpg" />
 </div>
 
 
@@ -426,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607238.jpg" />
+  <img src="Z:/picture/008/save_picture_607238.jpg" />
 </div>
 
 
@@ -452,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607137.jpg" />
+  <img src="Z:/picture/008/save_picture_607137.jpg" />
 </div>
 
 
@@ -480,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607135.jpg" />
+  <img src="Z:/picture/008/save_picture_607135.jpg" />
 </div>
 
 
@@ -506,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607091.jpg" />
+  <img src="Z:/picture/008/save_picture_607091.jpg" />
 </div>
 
 
@@ -533,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607085.jpg" />
+  <img src="Z:/picture/008/save_picture_607085.jpg" />
 </div>
 
 
@@ -559,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606548.jpg" />
+  <img src="Z:/picture/008/save_picture_606548.jpg" />
 </div>
 
 
@@ -585,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606457.jpg" />
+  <img src="Z:/picture/008/save_picture_606457.jpg" />
 </div>
 
 
@@ -611,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605574.jpg" />
+  <img src="Z:/picture/008/save_picture_605574.jpg" />
 </div>
 
 
@@ -639,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605362.jpg" />
+  <img src="Z:/picture/008/save_picture_605362.jpg" />
 </div>
 
 
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7939B5EE2898C50A377B8BF74321DE0635D1C2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913567   (605354) от 29.06.2015
-
-А. Д. Михайлов | Средневековые легенды и западноевропейские литературы (2006) [FB2, EPUB]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_605354.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой книге собраны работы, посвященные некоторым легендам Средневековья. На сложных путях от мифа к литературе, по крайней мере, в рамках средневековой культуры, всевозможным легендам принадлежит доминирующая роль. Включенные в эту книгу исследования преследуют каждый раз одну и ту же цель – выявить пути формирования средневековых легенд, особенности их функционирования (   Читать дальше...   )Жанр: Культурология, ЯзыкознаниеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45DE74B8316539CB6D87DBCF290F4AD26483B6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

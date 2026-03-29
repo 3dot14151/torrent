@@ -6,7 +6,7 @@ KeePass Password Safe 2.49 + Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882179.jpg" />
+  <img src="Z:/picture/005/save_picture_882179.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882172.jpg" />
+  <img src="Z:/picture/005/save_picture_882172.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ CoolUtils Total PDF Converter 6.1.0.279 RePack (& portable) by elchupacabra [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882163.jpg" />
+  <img src="Z:/picture/005/save_picture_882163.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882155.jpg" />
+  <img src="Z:/picture/005/save_picture_882155.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ UCam Ultra Camera 6.0.9.031116 [Ru] - Камера
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882130.jpg" />
+  <img src="Z:/picture/005/save_picture_882130.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_882112.jpg" />
+  <img src="Z:/picture/008/save_picture_882112.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882110.jpg" />
+  <img src="Z:/picture/005/save_picture_882110.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Poweramp Skins [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882100.jpg" />
+  <img src="Z:/picture/005/save_picture_882100.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ WinSnap 5.2.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882099.jpg" />
+  <img src="Z:/picture/005/save_picture_882099.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ MacX Video Converter Pro 6.5.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882096.jpg" />
+  <img src="Z:/picture/005/save_picture_882096.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ Coolutils Total Outlook Converter Pro 5.1.1.475 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882092.jpg" />
+  <img src="Z:/picture/005/save_picture_882092.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ TinyWall 2.1.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882091.jpg" />
+  <img src="Z:/picture/005/save_picture_882091.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Tor Browser Bundle 10.5.6 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882089.jpg" />
+  <img src="Z:/picture/005/save_picture_882089.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Vivaldi 2.11.1811.52 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882078.jpg" />
+  <img src="Z:/picture/005/save_picture_882078.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ VA - 1000% Romantic Jazz (2002) 5 CD, Vol.1 [MP3|256 кб/с]<Classic Jazz>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882065.jpg" />
+  <img src="Z:/picture/005/save_picture_882065.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ AnyTrans for Android 7 v7.3.0 (build 20200402) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882033.jpg" />
+  <img src="Z:/picture/005/save_picture_882033.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Pano2VR Pro 6.1.4 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881993.jpg" />
+  <img src="Z:/picture/005/save_picture_881993.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881982.jpg" />
+  <img src="Z:/picture/005/save_picture_881982.jpg" />
 </div>
 
 
@@ -495,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881981.jpg" />
+  <img src="Z:/picture/005/save_picture_881981.jpg" />
 </div>
 
 
@@ -524,7 +524,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881980.jpg" />
+  <img src="Z:/picture/005/save_picture_881980.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ VA - Essential Guide: Progressive Trance Vol.11 (2017) [MP3|320 Kbps] <Trance, P
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881979.jpg" />
+  <img src="Z:/picture/005/save_picture_881979.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Leaf 5.0.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881976.jpg" />
+  <img src="Z:/picture/005/save_picture_881976.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ Stormtide - Wrath Of An Empire (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Symp
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881974.jpg" />
+  <img src="Z:/picture/005/save_picture_881974.jpg" />
 </div>
 
 
@@ -639,7 +639,7 @@ Serial Box + SerialSeeker-1.3.3-AE (03.2010+1.3.3) [En] (2010)
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881957.jpg" />
+  <img src="Z:/picture/005/save_picture_881957.jpg" />
 </div>
 
 
@@ -665,7 +665,7 @@ VA - Progessive Trance Transition (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881898.jpg" />
+  <img src="Z:/picture/005/save_picture_881898.jpg" />
 </div>
 
 
@@ -694,7 +694,7 @@ Downie 2.7.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881897.jpg" />
+  <img src="Z:/picture/005/save_picture_881897.jpg" />
 </div>
 
 

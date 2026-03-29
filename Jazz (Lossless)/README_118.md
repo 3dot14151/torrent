@@ -1,3 +1,119 @@
+###  Публикация: 1225962   (658046) от 18.05.2018
+
+Takao Uematsu - Straight Ahead (1977) 2010, Art Union [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_658046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Fire [07:50]
+02. Mysterious Jump [08:32]
+03. Fancy Free [02:34]
+04. Afro Blue [05:17](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B426FCD83321F01C8A9C75124BF1160A247AE2B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903380   (657986) от 31.05.2015
+
+Joyce Elaine Yuille - Welcome to My World (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_657986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow the Sun
+02. Come with Me
+03. Too Soon You're Old
+04. Late I Rise(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76D64F52819FAD1D6E887A37FB99BA5F5F9D696B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903520   (657861) от 31.05.2015
+
+V.A. - Cafe Del Mar - Jazz 2 (2014) [FLAC|Lossless]<Lounge, Jazzy, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_657861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Middleton - Return To Atlantis
+02. Jakatta - The Other World
+03. Jonny Trunk - Zeus
+04. Vono Box - Teddy Acapulco(   Читать дальше...   )Жанр: Lounge, Jazzy, Easy ListeningПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34E71A91894085433A435AA2D1347FB43D28BE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226149   (657139) от 19.05.2018
+
+Jack Teagarden - 1941 - 1943 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_657139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Eyes [03:21]
+02. Prelude In C Sharp Minor [03:22]
+03. Chicks Is Wonderful [03:22]
+04. Blues To The Lonely [03:02](   Читать дальше...   )Жанр: Swing, Big Band, Vocal JazzПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4201272EAB563EE9C2943E5F05529C30BCEABAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226230   (657138) от 19.05.2018
 
 Curtis Peagler & The Modern Jazz Disciples - Disciples Blues (1959, 1960) 2001, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -6,7 +122,7 @@ Curtis Peagler & The Modern Jazz Disciples - Disciples Blues (1959, 1960) 2001, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657138.jpg" />
+  <img src="Z:/picture/008/save_picture_657138.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Francesca Palamidessi - In Other Words I Am Three (2015) [FLAC|Lossless|WEB-DL]<
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657094.jpg" />
+  <img src="Z:/picture/008/save_picture_657094.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Dave Holland Big Band - What Goes Around (2002) [FLAC|Lossless]<Jazz, Post-Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657090.jpg" />
+  <img src="Z:/picture/008/save_picture_657090.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Milt Jackson & Coleman Hawkins - Bean Bags (2012) [FLAC|Lossless]<Jazz, Mainstre
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657089.jpg" />
+  <img src="Z:/picture/008/save_picture_657089.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Dave Brubeck - Interchanges '54 (1991) [FLAC|Lossless|tracks + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657080.jpg" />
+  <img src="Z:/picture/008/save_picture_657080.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Hubert Laws - Say It With Silence (1978) 2016, Sony Music [FLAC|Lossless|image +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657076.jpg" />
+  <img src="Z:/picture/008/save_picture_657076.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ The Bud DeTar Big Band - Live At S.U.N.Y. Brockport (1999) Self Released [FLAC|L
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657006.jpg" />
+  <img src="Z:/picture/008/save_picture_657006.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Tubby Hayes & Paul Gonsalves - Change of Setting (1965) 2016, Harkit Records [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657005.jpg" />
+  <img src="Z:/picture/008/save_picture_657005.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Harry Connick, Jr. - Occasion (2005) Par Media Music [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657004.jpg" />
+  <img src="Z:/picture/008/save_picture_657004.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Franck Avitabile - Short Stories (2006) Dreyfus Jazz [FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657003.jpg" />
+  <img src="Z:/picture/008/save_picture_657003.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Duke Ellington - Duke Ellington At The Bal Masque (1958) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656887.jpg" />
+  <img src="Z:/picture/008/save_picture_656887.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Johnny Hammond - Gears (1975) [FLAC|tracks+.cue]<Jazz-Funk, Soul Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656886.jpg" />
+  <img src="Z:/picture/008/save_picture_656886.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Mel Torme & Cleo Laine - Nothing Without You (1992) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_656009.jpg" />
+  <img src="Z:/picture/005/save_picture_656009.jpg" />
 </div>
 
 
@@ -389,7 +505,7 @@ Mike Cuozzo - Mighty Mike (1955) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655985.jpg" />
+  <img src="Z:/picture/008/save_picture_655985.jpg" />
 </div>
 
 
@@ -418,7 +534,7 @@ Don Friedman Quartet - Dreams And Explorations (1964) 1998, Original Jazz Classi
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655984.jpg" />
+  <img src="Z:/picture/008/save_picture_655984.jpg" />
 </div>
 
 
@@ -447,7 +563,7 @@ Jimmy Giuffre - The Four Brothers Sound (1958) 2013, Warner [FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655977.jpg" />
+  <img src="Z:/picture/008/save_picture_655977.jpg" />
 </div>
 
 
@@ -476,7 +592,7 @@ Dizzy Gillespie And The Mitchell Ruff Duo - In Concert (1972) 2017, Solid Record
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655957.jpg" />
+  <img src="Z:/picture/008/save_picture_655957.jpg" />
 </div>
 
 
@@ -505,7 +621,7 @@ Dave Brubeck - The Quartet (1958, 1974) 1985, Nippon Columbia [FLAC|Lossless|tra
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655944.jpg" />
+  <img src="Z:/picture/008/save_picture_655944.jpg" />
 </div>
 
 
@@ -534,7 +650,7 @@ Cleo Laine & Johnny Dankworth - The Collection (2002) [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_655927.jpg" />
+  <img src="Z:/picture/005/save_picture_655927.jpg" />
 </div>
 
 
@@ -569,7 +685,7 @@ Nina Simone - The Real... Nina Simone (2013) 3CD [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655880.jpg" />
+  <img src="Z:/picture/008/save_picture_655880.jpg" />
 </div>
 
 
@@ -598,7 +714,7 @@ Mimi Terris - Flytta Hemifran (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655690.jpg" />
+  <img src="Z:/picture/008/save_picture_655690.jpg" />
 </div>
 
 
@@ -627,7 +743,7 @@ Red Holloway - Coast To Coast (2003) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655687.jpg" />
+  <img src="Z:/picture/008/save_picture_655687.jpg" />
 </div>
 
 
@@ -641,122 +757,6 @@ Red Holloway - Coast To Coast (2003) [FLAC|Lossless]<Jazz, Mainstream Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDB572E200BF5256ABE0D55FD4655106BCFEEA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140673   (654989) от 07.06.2017
-
-Trio Hein Van Der Gaag - To The Point (1986) 2016, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ecaroh [04:35]
-02. The More I See You [09:24]
-03. Lament For Edda [05:26]
-04. Blues For Carla [05:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E27CD182D79231AE76AB509C11DC4D0A1897FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140675   (654987) от 07.06.2017
-
-Alexander Fisher (Александр Фишер) - Three Question Marks (2005) Austro Mechana [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiphopation [05:51]
-02. Yes No Yes No [05:41]
-03. Wienkorso [05:17]
-04. Peace [10:32](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 01:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBCA64C69D847492597BFD265B529D439E5782C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140745   (654986) от 07.06.2017
-
-Harry Allen - The King (1962) 2008, Nagel-Heyer [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Deed I Do [9:29]
-02 Close Your Eyes [9:51]
-03 But Beautiful [5:32]
-04 The King [9:41](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:19:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313637D16E774DEC2020B7E9AF27610E7D9A133F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140783   (654984) от 07.06.2017
-
-Bob Alberti Quartet Featuring Harry Allen - Everything I Love (1998) Dolphin Recordings [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's De-Lovely [3:51]
-02. Guess I'll Hang My Tears Out to Dry [7:21]
-03. You'd Be So Nice to Come Home To [3:11]
-04. Ev'rything I Love [4:17](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F7C86A47EBBE595F711BD53D016550288E4657
 ```
 
 https://mybot314.ru/tekegram_catalog/

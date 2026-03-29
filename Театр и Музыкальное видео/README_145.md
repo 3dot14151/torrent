@@ -1,3 +1,168 @@
+###  Публикация: 303920   (49272) от 22.07.2024
+
+Ария: Герой асфальта - 20 лет (2008) DVD9+DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49272.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это выступление стало апогеем масштабного тура "Герой Асфальта: 20 лет", посвященного двадцатилетию легендарного альбома королей отечественного металла. На сцену вместе с бывшими коллегами вышли Валерий Кипелов и Сергей Маврин. Так что данный релиз – это не просто «юбилейный» концерт великой группы, а возможность стать обладателем эксклюзивного свидетельства (   Читать дальше...   )Жанр: Heavy MetalФормат: DVD VideoКачество: DVD9Продолжительность: 01:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB850747D6D2355CC22B1962E7C7B7F3419FF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 323337   (49271) от 22.07.2024
+
+Швейк во Второй Мировой войне (1969) DVDRip (Ленком)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль в постановке М.Захарова снят по одноименной сатирической пьесе Б.Брехта. Автор антивоенной комедии представил неунывающего солдата Швейка во второй мировой войне как воплощение народной мудрости. Швейк – отнюдь не проныра и саботажник, а воплощение здравого смысла. Хотя сил на активную борьбу у него недостаточно, бравый солдат исподволь сопротивляется (   Читать дальше...   )Жанр: ТелеспектакльРежиссер: Марк Захаров, Алина КазьминаВ ролях: З.Высоковский, Н.Защипина, С.Мишулин, М.Державин, Т.Егорова, С.Тарасова,Г.Менглет, Р.Ткачук, А.Папанов, О.Солюс, А.Овечкин, В.Ушаков.Формат: AVIПродолжительность: 02:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFCEECA7AB064E5CE767939803DE7EDE00069A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 411668   (49255) от 22.07.2024
+
+Рори Галлахер - Ирландский тур 1974 (Фильм Тони Палмера) / Rory Gallagher - Irish Tour 1974 (A Film by Tony Palmer) (2010) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ремастированный (2011 Strange Music Ltd.) музыкально-документальный фильм об ирландском туре 1974 года Rory Gallagher и его группы.
+
+Прежде всего - это фильм. Выступления Рори поданы как некая составляющая его жизни, он отдаёт всего себя на сцене и немыслимая энергия охватывает зрителей в зале и нас. Никаких постановочных кадров, съёмка практически с рук оператора (   Читать дальше...   )Жанр: МузыкаРежиссер: Tony PalmerАктеры: Rory Gallaher, Lou Marin, Rod de’Ath, Gerry McAvoyПеревод: ОтсутствуетЯзык: АнглийскийПродолжительность: 01:23:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:513CF1B70D25A047A954600685694C64A3CFC549
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 399164   (49246) от 22.07.2024
+
+Janis Joplin / The Kozmic Blues (2007) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дже́нис Лин Джо́плин — американская рок-певица, выступавшая сначала в составе Big Brother and the Holding Company, затем в Kozmic Blues Band и Full Tilt Boogie Band. Джоплин, выпустившая лишь четыре студийных альбома (один из которых — посмертный релиз), считаетсяLive 1970 Various Locations Canada
+01. Cry Baby
+02. No More Cane
+03. Throwing A Party(   Читать дальше...   )Жанр: BluesПродолжительность: 01:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7AC5BE149D04BF34E101A6E5F3203ADBF8C7A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 110746   (49244) от 22.07.2024
+
+Шут Балакирев / Шут Балакирев (2002) DVD
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шут, в понимании Горина, — это не просто остроумный лицедей, это — всеобщий любимец, вобравший в себя оптимизм народа, его отвагу и веселую удаль. Иногда его Шуты обретали черты борцов, романтиков и героев. Впрочем, как все живые люди, они переживали периоды мучительных раздумий и сомнений в избранном пути.
+Балакирев, может быть, и не обладает романтическим дерзанием (   Читать дальше...   )Жанр: Драма, КомедияРежиссер: Марк ЗахаровАктеры: Сергей Фролов, Олег Янковский, Александра Захарова, Николай Караченцов, Александр Збруев, Юрий Колычев, Татьяна Кравченко, Александр Лазарев-мл., Олеся Железняк, Людмила Артемьева, Людмила Поргина, Игорь ФокинПеревод: ОригинальныйПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901809A2C684FDA0482D1DF473043CB3937FC6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 48948   (49243) от 22.07.2024
+
+Шут Балакирев (2002) DVDRip (Спектакль)
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюжетные коллизии трагикомедии основаны на событиях Петровской
+эпохи - времени великих преобразований и реформ в России, в центре
+которых - реальные исторические персонажи: Петр Первый, Екатерина,
+Меншиков.(   Читать дальше...   )Жанр: Спектакль, ТрагикомедияРежиссер: Марк Захаров, Николай СкуйбинАктеры: Сергей Фролов, Олег Янковский, Александра Захарова и Николай КараченцовПеревод: ОригинальныйПродолжительность: 2:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C224A7863902BC5134A34C02F1A546E0483EC0D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 207343   (49239) от 22.07.2024
 
 Дженис Джоплин "Дженис" / Janis Joplin "Janis" (1974) DVD5
@@ -6,7 +171,7 @@
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49239.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49239.jpg" />
 </div>
 
 
@@ -35,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49234.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49234.jpg" />
 </div>
 
 
@@ -64,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49228.jpg" />
 </div>
 
 
@@ -90,7 +255,7 @@ George Thorogood And The Destroyers / 30th Anniversary Tour: Live (2004) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49226.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49226.jpg" />
 </div>
 
 
@@ -119,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49224.jpg" />
 </div>
 
 
@@ -145,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49222.jpg" />
 </div>
 
 
@@ -174,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49218.jpg" />
 </div>
 
 
@@ -201,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49170.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49170.jpg" />
 </div>
 
 
@@ -228,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49168.jpg" />
 </div>
 
 
@@ -254,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49167.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49167.jpg" />
 </div>
 
 
@@ -281,7 +446,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49165.jpg" />
 </div>
 
 
@@ -307,7 +472,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49151.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49151.jpg" />
 </div>
 
 
@@ -333,7 +498,7 @@ Supertramp - Live in Paris '79 (2012) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49148.jpg" />
 </div>
 
 
@@ -362,7 +527,7 @@ Whitesnake - Made In Japan (2013) DVD9
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49143.jpg" />
 </div>
 
 
@@ -391,7 +556,7 @@ Marc Bolan And T.Rex - "Born To Boogie" (2005) 2xDVD9 (Special Edition)
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49140.jpg" />
 </div>
 
 
@@ -420,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49136.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49136.jpg" />
 </div>
 
 
@@ -446,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49134.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49134.jpg" />
 </div>
 
 
@@ -474,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49133.jpg" />
 </div>
 
 
@@ -500,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Театр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49132.jpg" />
 </div>
 
 
@@ -526,7 +691,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49119.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49119.jpg" />
 </div>
 
 
@@ -542,178 +707,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE0ECE7B931242E44AC8F7C7A7377D8CE9F33362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 104230   (49103) от 23.07.2024
-
-Iggy Pop - Live At The Avenue B / Iggy Pop - Live At The Avenue B (2005) DVD
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tracklist:
-1.No Shit
-2.Nazi Girlfriend
-3.Espanol(   Читать дальше...   )Жанр: МузыкаРежиссер: Iggy PopАктеры: Iggy PopПеревод: ОригинальныйПродолжительность: 01:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5341E0E800E9AB11AF88C476C4B5347C8C4DA4FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 260669   (48961) от 25.07.2024
-
-Bon Jovi - Greatest Hits The Ultimate Video Collection (2010) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник лучших видео клипов и концертных выступлений группы, включая последний хит What Do You Got?Видео:
-01 Livin' On A Prayer
-02 You Give Love A Bad Name
-03 In These Arms(   Читать дальше...   )Жанр: RockПеревод: ОригинальныйПродолжительность: 04:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEC203FAB0E2F4781CDDC0CB21A5C536BF72A1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172514   (48955) от 25.07.2024
-
-Этот фантастический мир. Выпуск 10: «Знак Саламандры» (1984) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инсценированы фрагменты рассказов Р.Брэдбери "451° по Фаренгейту" и Э.Лудвига "Маленький преступник".
-...У людей, живущих в будущем, есть удобные машины, послушные роботы, красивые дома. Нет в этих домах только книг. Книги объявлены врагами, подлежащими истреблению...Жанр: Фильм-спектакльРежиссер: Тамара ПавлюченкоАктеры: Леонид Каюров, Юрий Яковлев, Юрий Богатырев, Ольга Гобзева, Ян Хвилер, Лев Иванов, Вацлав Дворжецкий, Ирина КорытниковаПеревод: ОригинальныйПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51EC5BC965BE4713E5898E9097253B5CA7976D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439709   (48941) от 25.07.2024
-
-Часы с кукушкой (1978) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48941.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная редакция литературно-драматических программ ЦТ.
-Телеспектакль по пьесе Леонида Филатова.
-
-Представьте себе: вы сидите, уткнувшись в телевизор, а жена каждый вечер пилит и пилит вас: "Скучно живем, ни театра, ни кино, ни концертов, даже в гости не ходим, да и к нам - никто...". Чем это может закончиться? Понятно чем: является однажды в дом полуночный (   Читать дальше...   )Жанр: комедия, спектакльРежиссер: Сергей ЕвлахишвилиПродолжительность: 01:03:28
-
-Качество видео и звука: TVRip
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047A22915BB13FE52C2A18E96050A0C6A7A231A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457104   (48937) от 25.07.2024
-
-Элегия / Театр Советской Армии (1978) SATRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевариант легендарной постановки Центрального театра Советской Армии
-(14 лет не сходившей с афишы театра) по одноименной пьесе Павла Павловского в постановке Михаила Буткевича.
-
-Необыкновенная игра великолепного актерского дуэта Людмилы Касаткиной и Андрея Попова. История взаимоотношений выдающейся русской актрисы Марии Гавриловны Савиной и великого русского писателя (   Читать дальше...   )Жанр: драма, спектакльРежиссер: Михаил БуткевичПродолжительность: 01:02:47 + 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A7CCF9E9F9C0087301F099FDEB1F2CC4A3B0A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 172521   (48928) от 25.07.2024
-
-Этот фантастический мир. Выпуск 11: «Случай с полковником Дарвином» (1985) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инсценированы фрагменты рассказов Р.Шекли "Бунт спасательной лодки" и Р.Брэдбери "Ржавчина".
-Полковника ВВС, бывшего астронавта Грега Дарвина навещает его старый приятель, Джонни. Разговорившись, Грег открывает Джонни тайну из своего прошлого. Во время службы в космической разведке Дарвин вместе с другим астронавтом, Диком, был отправлен с секретной (   Читать дальше...   )Жанр: Фильм-спектакльРежиссер: Тамара ПавлюченкоАктеры: Эдуард Марцевич, Роман Козак, Виталий Коняев, Леонид Каюров, Наталья Негода, Евгений Хорошевцев, Наталья НазароваПеревод: ОригинальныйПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688E64754F5EFE5DAEAF048E5C28E0721276B03E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer S
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795367.jpg" />
+  <img src="Z:/picture/008/save_picture_795367.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ IObit Smart Defrag 5.0.2.769 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795350.jpg" />
+  <img src="Z:/picture/008/save_picture_795350.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 50.0.2661.94 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795336.jpg" />
+  <img src="Z:/picture/008/save_picture_795336.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Advanced SystemCare Ultimate 11.0.1.59 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795328.jpg" />
+  <img src="Z:/picture/008/save_picture_795328.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Advanced SystemCare Pro 11.1.0.198 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795323.jpg" />
+  <img src="Z:/picture/008/save_picture_795323.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Alien Skin Exposure X3 Bundle 3.0.6.184 Revision 39264 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795317.jpg" />
+  <img src="Z:/picture/008/save_picture_795317.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795306.jpg" />
+  <img src="Z:/picture/008/save_picture_795306.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Total Commander 10.0 MAX-Pack 2021.11.10 by Mellomann [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795299.jpg" />
+  <img src="Z:/picture/008/save_picture_795299.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795297.jpg" />
+  <img src="Z:/picture/008/save_picture_795297.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ Adobe Photoshop 2021 22.5.3.561 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795287.jpg" />
+  <img src="Z:/picture/008/save_picture_795287.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Adobe After Effects 2022 22.0.1.2 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795285.jpg" />
+  <img src="Z:/picture/008/save_picture_795285.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ VirtualBox 5.0.20 r106931 Final + Extension Pack [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795249.jpg" />
+  <img src="Z:/picture/008/save_picture_795249.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795245.jpg" />
+  <img src="Z:/picture/008/save_picture_795245.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ XYplorer 20.90.0500 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795235.jpg" />
+  <img src="Z:/picture/008/save_picture_795235.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Opera GX 68.0.3618.142 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795233.jpg" />
+  <img src="Z:/picture/008/save_picture_795233.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ TogetherShare Data Recovery 7.1 Professional (акция "Comss") [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795228.jpg" />
+  <img src="Z:/picture/008/save_picture_795228.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ MAGIX Sound Forge Pro 14.0 Build 65 (x86/x64) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795227.jpg" />
+  <img src="Z:/picture/008/save_picture_795227.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ WinSCP 5.17.6 Build 10516 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795223.jpg" />
+  <img src="Z:/picture/008/save_picture_795223.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ VirtualBox 5.0.20 Build 106931 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795210.jpg" />
+  <img src="Z:/picture/008/save_picture_795210.jpg" />
 </div>
 
 
@@ -503,7 +503,7 @@ WinPE 10 Sergei Strelec (x64) 2016.04.28 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795208.jpg" />
+  <img src="Z:/picture/008/save_picture_795208.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ CCleaner 5.17.5590 Slim [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795203.jpg" />
+  <img src="Z:/picture/008/save_picture_795203.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Sleipnir 6.4.6.4000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795201.jpg" />
+  <img src="Z:/picture/008/save_picture_795201.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ Comodo Internet Security Premium 8.2.0.5027 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795181.jpg" />
+  <img src="Z:/picture/008/save_picture_795181.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795172.jpg" />
+  <img src="Z:/picture/008/save_picture_795172.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ Adobe Photoshop Lightroom 6.5.1 Portable by PortableWares [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795169.jpg" />
+  <img src="Z:/picture/008/save_picture_795169.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ Acronis True Image 2016 19.0.6569 BootCD [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795162.jpg" />
+  <img src="Z:/picture/008/save_picture_795162.jpg" />
 </div>
 
 

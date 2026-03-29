@@ -6,7 +6,7 @@ Photo Mechanic 6 v6.0 build 4538 (51e5663) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822182.jpg" />
+  <img src="Z:/picture/008/save_picture_822182.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ uTorrent 3.5.5 Build 45628 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822181.jpg" />
+  <img src="Z:/picture/008/save_picture_822181.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tor Browser Bundle 9.0.10 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822176.jpg" />
+  <img src="Z:/picture/008/save_picture_822176.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822130.jpg" />
+  <img src="Z:/picture/008/save_picture_822130.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822126.jpg" />
+  <img src="Z:/picture/008/save_picture_822126.jpg" />
 </div>
 
 
@@ -141,7 +141,7 @@ CrystalDiskInfo 7.5.1 RePack (& Portable) by NEO [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822122.jpg" />
+  <img src="Z:/picture/008/save_picture_822122.jpg" />
 </div>
 
 
@@ -169,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822116.jpg" />
+  <img src="Z:/picture/008/save_picture_822116.jpg" />
 </div>
 
 
@@ -195,7 +195,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822115.jpg" />
+  <img src="Z:/picture/008/save_picture_822115.jpg" />
 </div>
 
 
@@ -221,7 +221,7 @@ NVIDIA GeForce Desktop 378.92 WHQL + For Notebooks [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822071.jpg" />
+  <img src="Z:/picture/008/save_picture_822071.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822068.jpg" />
+  <img src="Z:/picture/008/save_picture_822068.jpg" />
 </div>
 
 
@@ -273,7 +273,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822061.jpg" />
+  <img src="Z:/picture/008/save_picture_822061.jpg" />
 </div>
 
 
@@ -299,7 +299,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822060.jpg" />
+  <img src="Z:/picture/008/save_picture_822060.jpg" />
 </div>
 
 
@@ -327,7 +327,7 @@ Microsoft Windows 10 Pro Technical Preview 10.0.10041 (x86, x64) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822035.jpg" />
+  <img src="Z:/picture/008/save_picture_822035.jpg" />
 </div>
 
 
@@ -353,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822001.jpg" />
+  <img src="Z:/picture/008/save_picture_822001.jpg" />
 </div>
 
 
@@ -379,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821962.jpg" />
+  <img src="Z:/picture/008/save_picture_821962.jpg" />
 </div>
 
 
@@ -405,7 +405,7 @@ Corel PaintShop Pro X9 Ultimate 19.2.0.7 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821957.jpg" />
+  <img src="Z:/picture/008/save_picture_821957.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821948.jpg" />
+  <img src="Z:/picture/008/save_picture_821948.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821947.jpg" />
+  <img src="Z:/picture/008/save_picture_821947.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821944.jpg" />
+  <img src="Z:/picture/008/save_picture_821944.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Adguard для Android Premium 2.9.37 beta [Ru/Multi]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821940.jpg" />
+  <img src="Z:/picture/008/save_picture_821940.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ VA - D Trance 50 (2010) [MP3|32-320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821878.jpg" />
+  <img src="Z:/picture/008/save_picture_821878.jpg" />
 </div>
 
 
@@ -561,7 +561,7 @@ VA - Super Trance 2010 [MP3|128-320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821877.jpg" />
+  <img src="Z:/picture/008/save_picture_821877.jpg" />
 </div>
 
 
@@ -587,7 +587,7 @@ Various Artists - Credo In Unum Deum (2006) [MP3|320 kbps] <Industrial, Neo-Clas
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821862.jpg" />
+  <img src="Z:/picture/008/save_picture_821862.jpg" />
 </div>
 
 
@@ -622,7 +622,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821814.jpg" />
+  <img src="Z:/picture/008/save_picture_821814.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821813.jpg" />
+  <img src="Z:/picture/008/save_picture_821813.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821802.jpg" />
+  <img src="Z:/picture/008/save_picture_821802.jpg" />
 </div>
 
 

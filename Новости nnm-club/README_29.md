@@ -1,3 +1,107 @@
+###  Публикация: 980378   (955593) от 29.01.2016
+
+Ad-Aware Free Antivirus+ 11.10.767.8917 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ad-Aware Free Antivirus+ - бесплатный антивирус, использующий технологии Bitdefender, легендарный антишпион Ad-Aware и веб-защиту для обнаружения и блокировки всех видов вредоносных программ и онлайн-угроз. Бесплатный антивирус в реальном времени следит за активными процессами, изменением реестра, сетевой активностью, загрузками и посещаемыми веб-сайтами.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EA703756F4A73950B3883BC816E305B94F30E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980542   (955464) от 29.01.2016
+
+XSplit Broadcaster 2.7.1512.2130 [Multi/Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955464.jpg" />
+</div>
+
+
+###  Подробнее
+
+XSplit Broadcaster - Программа для организации онлайн трансляций. Используется в основном для захвата игр на экране, перекодировку и мгновенную отправку в интернет вещательные сервисы, такие как justin.tv (twitch.tv), own3d.tv, им подобные, а также запись прямо к себе на компьютер.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2BC1EF18E79F25955632B11533B4AE47E58D788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980191   (955457) от 29.01.2016
+
+Resident Evil Zero HD: Remaster / Resident Evil 0 HD: Remaster (2016) [PS3] [JAP] 4.76 [Repack] [Ru] | Russian Studio Video 7
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Resident Evil Zero HD Remaster является переизданием вышедшей ранее на GameCube и Wii игры Resident Evil Zero. Сюжет рассказывает о событиях, произошедших еще до Resident Evil, а главными героями выступают Ребекка Чемберс и Билли Коэн. Игровой процесс позволяет в любое время сменять персонажа, находящегося под вашим непосредственным контролем.Тип издания: RepackРазработчик: CAPCOM CO., LTD.Жанр: ХоррорЯзык озвучки: Английский, ЯпонскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78912ABC074F0891318542D3836EC2EE1E2CA73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980059   (955451) от 29.01.2016
+
+Грешник (2014) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Владу было 5 лет, его мать убили, и в ее смерти всю последующие годы он винит отца. На 20-ую годовщину трагедии юноша решает расставить точки над «i» и собрать всех родственников. В процессе поиска и встреч с ними Влад выясняет факты, которые меняют все…Производство: РоссияЖанр: ДрамаРежиссер: Дмитрий КонстантиновАктеры: Андрей Смоляков, Евгений Антропов, Любовь Новикова (II), Дмитрий Куличков, Дарья Урсуляк, Дмитрий Мухамадеев, Мария Болонкина, Владимир Капустин, Владимир Виноградов, Иван Дремач, Александр ГородискийПеревод: Не требуется (язык русский)Субтитры: ОтсутствуютПродолжительность: 01:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28532F030CF32A4E62FD517731AE474BD41FFFC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361265   (955308) от 19.02.2020
 
 Очередное достижение: 1000 релизов от Lancelof!!!
@@ -6,7 +110,7 @@
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955308.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955308.jpg" />
 </div>
 
 
@@ -34,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955295.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955295.jpg" />
 </div>
 
 
@@ -60,7 +164,7 @@ Kerio Control Software Appliance 9.3.4 build 3795 [i386] 1xCD [Multi]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955128.jpg" />
 </div>
 
 
@@ -86,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955122.jpg" />
 </div>
 
 
@@ -112,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955091.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955091.jpg" />
 </div>
 
 
@@ -138,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954717.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954717.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954371.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953922.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953922.jpg" />
 </div>
 
 
@@ -217,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953921.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953921.jpg" />
 </div>
 
 
@@ -243,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953812.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953812.jpg" />
 </div>
 
 
@@ -269,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953808.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953808.jpg" />
 </div>
 
 
@@ -295,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953793.jpg" />
 </div>
 
 
@@ -321,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953792.jpg" />
 </div>
 
 
@@ -347,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953791.jpg" />
 </div>
 
 
@@ -373,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953775.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ Windows 10 x64 Pro for Workstations v1909 build 18363.657 by Zosma [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953658.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953658.jpg" />
 </div>
 
 
@@ -428,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953646.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953646.jpg" />
 </div>
 
 
@@ -455,7 +559,7 @@ Lords Of The Fallen (2014) [Ru/Multi] (1.6/dlc) RePack =nemos=
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953182.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953182.jpg" />
 </div>
 
 
@@ -481,7 +585,7 @@ Grand Theft Auto: Anthology / Антология Grand Theft Auto [Ru/En/Multi7]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953122.jpg" />
 </div>
 
 
@@ -509,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952569.jpg" />
 </div>
 
 
@@ -535,7 +639,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952372.jpg" />
 </div>
 
 
@@ -563,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952371.jpg" />
 </div>
 
 
@@ -574,110 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7616D12AFD93353E38E16CBE9A82F6AA5332728D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361951   (951902) от 21.02.2020
-
-Достать ножи / Knives Out (2019) BDRip [H.264/720p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951902.jpg" />
-</div>
-
-
-###  Подробнее
-
-На следующее утро после празднования 85-летия известного автора криминальных романов Харлана Тромби виновника торжества находят мёртвым. На лицо — явное самоубийство, но полиция по протоколу опрашивает всех присутствующих в особняке членов семьи, хотя, в этом деле больше заинтересован частный детектив Бенуа Блан. Тем же утром он получил конверт с наличными от неизвестного (   Читать дальше...   )Производство: США / Lionsgate, Media Rights Capital, T-StreetЖанр: Детектив, Комедия, Драма, КриминалРежиссер: Райан ДжонсонАктеры: Дэниэл Крэйг, Ана де Армас, Крис Эванс, Джейми Ли Кёртис, Майкл Шеннон, Дон Джонсон, Тони Коллетт, Лакит Стэнфилд, Кристофер ПламмерПеревод: Дублированный (iTunes)Субтитры: Русские (Full, Forced)Продолжительность: 02:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED123E1FB82195387F7C97CFC8F5C90C392B9D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066881   (951384) от 03.01.2017
-
-Subsistence (2016) [En] (020117) Repack Other s
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Subsistence — это песочница от первого лица в открытом мире на выживание. Сражайтесь и пытайтесь построить свою базу! Защищайте себя от диких животных и других персонажей в агрессивной игровой среде. Развивайте технологии, улучшайте и создавайте предметы и оружие. Выращивайте сельскохозяйственные культуры, разводите мелких животных, совершенствуйте имеющиеся ресурсы, (   Читать дальше...   )Тип издания: RepackРазработчик: ColdGamesЖанр: Action (Survival), 3D, 1st PersonЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EACB2081ED5AF707F2256234D744068F69D6977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089434   (951382) от 03.01.2017
-
-Unreal Tournament 2004 (2004) [En] (3369-128.29/dlc) License GOG [Editor's Choice Edition]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unreal Tournament 2004 - культовая компьютерная игра в жанре шутера от первого лица. Является продолжением серии Unreal, мультиплеерную ветку которой начала Unreal Tournament, выпущенная в 2000 году, и двумя годами позже продолжила Unreal Tournament 2003. UT2004, как и предшественники, фокусировался на многопользовательских сражениях и довел без того практически (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital Extremes и Epic GamesЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DC82873181C6DB0ED60842A5C884D406821790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088243   (951375) от 03.01.2017
-
-Windows XP SP3 RUS VL+ Быстрая установка из ESD v1 [Ru] by yahoo00
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951375.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче загрузочный образ диска с WinPE 7 и сжатый в ESD образ системы Windows XP SP3 RUS VL. Windows XP SP3 RUS VL основан на оригинальном образе MSDN и обновлен по декабрь так как применён твик от Windows Embedded POSReady 2009 и возможно дальнейшее обновление. Инегрированы популярные драйверы SATA/SCSI/RAID и в WinPE и в Windows XP что позволяет работать с широким (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:301BF359135E053A7E73E41F9CE4F194E6836D6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

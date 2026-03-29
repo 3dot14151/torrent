@@ -1,3 +1,90 @@
+###  Публикация: 1523480   (751669) от 11.01.2022
+
+Cryonic Temple - Blood, Guts & Glory (2003) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_751669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morphine Dreams
+02. Mercenaries Of Metal - The Quest Pt. I
+03. Inquisition - The Quest Pt. II
+04. Swords And Diamonds(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C44DFA9B9C8BF5B8035C8051EC49568D8CE21A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216258   (751462) от 30.03.2018
+
+Lowbrow - Victims at Play (1999) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_751462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flesh Parade
+02. Victims At Play
+03. Non Descript
+04. Done In(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7304DA6EE8CB2F1803288BA761D1AF56F9D14F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216256   (751365) от 30.03.2018
+
+13 Rituals - Rituals Of Punishment (2009) [APE|Lossless|image + .cue] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_751365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abatement
+02. Blackout
+03. Rituals Of Punishment
+04. Blackout (live)Жанр: DeathcoreПродолжительность: 00:13:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:932800DC4D30FD0839D59EE1521929ECB030A512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216259   (751364) от 30.03.2018
 
 Diabolicum - The Dark Blood Rising (2001) [APE|Lossless|image + .cue] <Industrial Black Metal>
@@ -6,7 +93,7 @@ Diabolicum - The Dark Blood Rising (2001) [APE|Lossless|image + .cue] <Industria
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751364.jpg" />
+  <img src="Z:/picture/008/save_picture_751364.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Illegal Operation - Digital Hero (2002) [APE|Lossless|image + .cue] <Industrial 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751363.jpg" />
+  <img src="Z:/picture/008/save_picture_751363.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Tobias Sammet's Avantasia - More Moonglow - The Rock Hard EP (2019) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_750012.jpg" />
+  <img src="Z:/picture/008/save_picture_750012.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Converge - Axe To Fall (2009) [FLAC|Lossless|image + .cue] <Chaotic Hardcore, Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_750001.jpg" />
+  <img src="Z:/picture/005/save_picture_750001.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Xenos - The Dawn Of Ares (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749993.jpg" />
+  <img src="Z:/picture/008/save_picture_749993.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Pitch Shifter - Desensitized (1993) [APE|Lossless|image + .cue] <Industrial Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749581.jpg" />
+  <img src="Z:/picture/005/save_picture_749581.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Eleine - Until The End (Japanese Edition) (2018) [FLAC|lossless|image + .cue] <S
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749572.jpg" />
+  <img src="Z:/picture/005/save_picture_749572.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Leprous - Malina (2017) [FLAC|Lossless|image + .cue] <Progressive Rock, Progress
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749567.jpg" />
+  <img src="Z:/picture/005/save_picture_749567.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Earthstream - Earth Scream (2018) [FLAC|Lossless|image + .cue] <Melodic Death Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749434.jpg" />
+  <img src="Z:/picture/008/save_picture_749434.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Sentenced - Buried Alive (2006) 2CD German Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748687.jpg" />
+  <img src="Z:/picture/008/save_picture_748687.jpg" />
 </div>
 
 
@@ -293,7 +380,7 @@ Savior From Anger - Temple Of Judgment (2016) [FLAC|Lossless|image + .cue] <Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748654.jpg" />
+  <img src="Z:/picture/008/save_picture_748654.jpg" />
 </div>
 
 
@@ -322,7 +409,7 @@ Illnath - Second Skin Of Harlequin (2006) [FLAC|Lossless|image + .cue] <Sympho M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748571.jpg" />
+  <img src="Z:/picture/008/save_picture_748571.jpg" />
 </div>
 
 
@@ -351,7 +438,7 @@ Phlebotomized - Immense Intense Suspense / Skycontact (2014) Compilation, Reissu
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748508.jpg" />
+  <img src="Z:/picture/008/save_picture_748508.jpg" />
 </div>
 
 
@@ -380,7 +467,7 @@ Cauldron - New Gods (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748363.jpg" />
+  <img src="Z:/picture/008/save_picture_748363.jpg" />
 </div>
 
 
@@ -409,7 +496,7 @@ Infestdead - JesuSatan (1999) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747935.jpg" />
+  <img src="Z:/picture/008/save_picture_747935.jpg" />
 </div>
 
 
@@ -438,7 +525,7 @@ Mortification - Blood World (1994) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747934.jpg" />
+  <img src="Z:/picture/008/save_picture_747934.jpg" />
 </div>
 
 
@@ -467,7 +554,7 @@ Mortification - Hammer of God (1999) [APE|Lossless|image + .cue] <Death Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747933.jpg" />
+  <img src="Z:/picture/008/save_picture_747933.jpg" />
 </div>
 
 
@@ -496,7 +583,7 @@ God Dethroned - Ravenous (2001) [APE|Lossless|image + .cue] <Blackened Death Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747932.jpg" />
+  <img src="Z:/picture/008/save_picture_747932.jpg" />
 </div>
 
 
@@ -525,7 +612,7 @@ Eidolon - Coma Nation (2002) [FLAC|Lossless|image + .cue] <Speed Metal, Power Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747931.jpg" />
+  <img src="Z:/picture/008/save_picture_747931.jpg" />
 </div>
 
 
@@ -554,7 +641,7 @@ Corruptedl - El Mundo Frio (2005) [FLAC|Lossless|image + .cue] <Sludge Doom Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747930.jpg" />
+  <img src="Z:/picture/008/save_picture_747930.jpg" />
 </div>
 
 
@@ -580,7 +667,7 @@ Pitch Shifter - Submit (1992) [APE|Lossless|image + .cue] <Industrial Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747929.jpg" />
+  <img src="Z:/picture/008/save_picture_747929.jpg" />
 </div>
 
 
@@ -609,7 +696,7 @@ Airborn - Lizаrd Secrets: Part Оne - Lаnd Оf The Living (2018) Japanese Edit
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747921.jpg" />
+  <img src="Z:/picture/008/save_picture_747921.jpg" />
 </div>
 
 
@@ -638,7 +725,7 @@ Alestorm - Curse of the Crystal Coconut (2020) [FLAC|Lossless|image + .cue] <Fol
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746927.jpg" />
+  <img src="Z:/picture/008/save_picture_746927.jpg" />
 </div>
 
 
@@ -652,93 +739,6 @@ Alestorm - Curse of the Crystal Coconut (2020) [FLAC|Lossless|image + .cue] <Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05238B9C6B6E17021EDDEF9BE91F32571D1FC0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281962   (746713) от 11.02.2019
-
-Sacrosanct - Necropolis (2018) [FLAC|Lossless|image + .cue] <Progressive Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746713.jpg" />
-</div>
-
-
-###  Подробнее
-
-[8:13] 01 - The New Age Of Fear
-[5:13] 02 - My Last White Light
-[6:33] 03 - The Grim Sleeper
-[7:03] 04 - Only One God(   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD0C854E7732C1C6BEAE0E07EC2CC8D1FBE9D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282044   (746701) от 11.02.2019
-
-Afterlife - Breaking Point (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacrifice (03:17)
-02. Throat (03:16)
-03. P.S.A. (03:27)
-04. Giving Back the Pain (03:11)(   Читать дальше...   )Жанр: Metalcore, Nu MetalПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55AABB7180E90C95B9227DABF1A22CD0641D96A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524198   (746635) от 14.01.2022
-
-Burn The Priest - Legion: XX (2018) [FLAC|Lossless|image + .cue] <Groove Metal, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inherit the Earth
-02. Honey Bucket
-03. Kerosene
-04. Kill Yourself(   Читать дальше...   )Жанр: Groove Metal, HardcoreПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593E2C4D2A4333221994CF0C213FF227CB70CE92
 ```
 
 https://mybot314.ru/tekegram_catalog/

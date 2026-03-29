@@ -1,3 +1,168 @@
+###  Публикация: 1052478   (528251) от 14.09.2016
+
+Футбол. Лига Чемпионов 2016-2017. 1-й тур. День №1. Все голы (13.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все голы матчей Лиги Чемпионов за 13 сентября 2016 года.Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 00:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454FAF2FA2107348907CB4E7E594210A5DC66623
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052443   (528250) от 14.09.2016
+
+Футбол. Лига Чемпионов 2016-2017. Группа B. 1-й тур. Динамо (Киев, Украина) - Наполи (Италия) (13.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528250.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 сентября 2016, вторник. 21:45 МСК
+Группа B. 1-й тур
+
+Стадион: НСК Олимпийский (Киев, Украина) , 35 137 зрителей (50 % при вместимости 70 050)(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Сергей Дерябкин)Продолжительность: 01:53:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2698CD38F896489012ACC37219C03B3635BD46D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052448   (528248) от 14.09.2016
+
+Футбол. Лига Чемпионов 2016-2017. 1-й тур. День №1. Обзор матчей (13.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей Лиги Чемпионов за 13 сентября 2016 года.Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Кирилл Дементьев)Продолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E79875CCF06935BEB282AE7F100075A33BFA37A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052439   (528247) от 14.09.2016
+
+Футбол. Лига Чемпионов 2016-2017. Группа C. 1-й тур. Барселона (Испания) - Селтик (Шотландия) (13.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528247.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 сентября 2016, вторник. 21:45 МСК
+Группа C. 1-й тур
+
+Стадион: Камп Ноу (Барселона, Испания) , 73 290 зрителей (74 % при вместимости 99 354)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Роман Трушечкин)Продолжительность: 01:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB750FCEEB23F065AB375C37361913EF637EFF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052358   (528243) от 14.09.2016
+
+Открытая студия. Терроризм: лицом к лицу  (13.09.2016) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528243.jpg" />
+</div>
+
+
+###  Подробнее
+
+МВД Дагестана представит младшего лейтенанта полиции Магомеда Нурбагандова к государственной награде. Посмертно. Он был убит боевиками в июле. Расправу террористы снимали на видео. Перед расстрелом от полицейского требовали оставить послание сослуживцам – попросить их бросить службу и уйти из правоохранительных органов. Магомед Нурбагандов не подчинился и просто (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4304E438940CFA872BE74737DFA77CA9C134605
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052433   (528197) от 14.09.2016
+
+Футбол. Лига Чемпионов 2016-2017. Группа D. 1-й тур. Бавария (Германия) - Ростов (Россия) (13.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_528197.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 сентября 2016, вторник. 21:45 МСК
+Группа D. 1-й тур
+
+Стадион: Альянц-Арена (Мюнхен, Германия) , 70 000 зрителей (93 % при вместимости 75 000)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Сергей Кривохарченко, Роман Гутцайт)Продолжительность: 01:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B7CF91867868DFA38D48F3DEF46C92E62B317F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313092   (528170) от 07.07.2019
 
 Футбол. Кубок Америки 2019. 1/2 Финала. Бразилия — Аргентина (2019) IPTVRip [H.264/1080p-LQ]
@@ -6,7 +171,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528170.jpg" />
+  <img src="Z:/picture/008/save_picture_528170.jpg" />
 </div>
 
 
@@ -35,7 +200,7 @@ Moto GP. Сезон 2017. Monster Energy Grand Prix Ceske Republiky. Этап 10
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527668.jpg" />
+  <img src="Z:/picture/008/save_picture_527668.jpg" />
 </div>
 
 
@@ -61,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527379.jpg" />
+  <img src="Z:/picture/008/save_picture_527379.jpg" />
 </div>
 
 
@@ -87,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527377.jpg" />
+  <img src="Z:/picture/008/save_picture_527377.jpg" />
 </div>
 
 
@@ -116,7 +281,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526767.jpg" />
+  <img src="Z:/picture/008/save_picture_526767.jpg" />
 </div>
 
 
@@ -145,7 +310,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526766.jpg" />
+  <img src="Z:/picture/008/save_picture_526766.jpg" />
 </div>
 
 
@@ -174,7 +339,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526765.jpg" />
+  <img src="Z:/picture/008/save_picture_526765.jpg" />
 </div>
 
 
@@ -203,7 +368,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526764.jpg" />
+  <img src="Z:/picture/008/save_picture_526764.jpg" />
 </div>
 
 
@@ -232,7 +397,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526739.jpg" />
+  <img src="Z:/picture/008/save_picture_526739.jpg" />
 </div>
 
 
@@ -261,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526738.jpg" />
+  <img src="Z:/picture/008/save_picture_526738.jpg" />
 </div>
 
 
@@ -290,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526735.jpg" />
+  <img src="Z:/picture/008/save_picture_526735.jpg" />
 </div>
 
 
@@ -318,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526729.jpg" />
+  <img src="Z:/picture/008/save_picture_526729.jpg" />
 </div>
 
 
@@ -347,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526660.jpg" />
+  <img src="Z:/picture/008/save_picture_526660.jpg" />
 </div>
 
 
@@ -376,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526484.jpg" />
+  <img src="Z:/picture/008/save_picture_526484.jpg" />
 </div>
 
 
@@ -402,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526456.jpg" />
+  <img src="Z:/picture/008/save_picture_526456.jpg" />
 </div>
 
 
@@ -431,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526452.jpg" />
+  <img src="Z:/picture/008/save_picture_526452.jpg" />
 </div>
 
 
@@ -460,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526163.jpg" />
+  <img src="Z:/picture/008/save_picture_526163.jpg" />
 </div>
 
 
@@ -489,7 +654,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526162.jpg" />
+  <img src="Z:/picture/008/save_picture_526162.jpg" />
 </div>
 
 
@@ -518,7 +683,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526161.jpg" />
+  <img src="Z:/picture/008/save_picture_526161.jpg" />
 </div>
 
 
@@ -547,7 +712,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526159.jpg" />
+  <img src="Z:/picture/008/save_picture_526159.jpg" />
 </div>
 
 
@@ -561,173 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43EE17A7502B0D0055EE773A6C053C0B85AD7132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053180   (526158) от 17.09.2016
-
-Футбол. Лига Европы 2016-2017. Группа A. 1-й тур. Заря (Украина) - Фенербахче (Турция) (15.09.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526158.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 сентября 2016, четверг. 20:00 МСК
-Группа A. 1-й тур
-
-Стадион: Черноморец (Одесса, Украина) , вместимость: 34164(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Владислав Батурин)Продолжительность: 01:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4476C978E84EA87868BA6F2092DEDAEDD3B8CDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053250   (526156) от 17.09.2016
-
-Формула 1. Гран-При Сингапура. 2-я практика (2016.09.16) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526156.jpg" />
-</div>
-
-
-###  Подробнее
-
-16 сентября 2016 года.
-Этап 15. Гран-при Сингапура.
-Арена: Городская трасса Марина Бей (Сингапур)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 01:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:762FE4A1BE3F83642274072355E6091341602FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053524   (526154) от 17.09.2016
-
-Формула 1. Гран-При Сингапура. 3-я практика (2016.09.17) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526154.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 сентября 2016 года.
-Этап 15. Гран-при Сингапура.
-Арена: Городская трасса Марина Бей (Сингапур)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF29E0982FDBA373D88FC6B8A33272E7BD015699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053572   (526117) от 17.09.2016
-
-Формула 1. Гран-При Сингапура. 3-я практика (2016.09.17) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526117.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 сентября 2016 года.
-Этап 15. Гран-при Сингапура.
-Арена: Городская трасса Марина Бей (Сингапур)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E316D0EE08B537619C3C6E6955269A877B2262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370031   (526091) от 31.07.2011
-
-Формула 1: Гран-При Венгрии (Хунгароринг). Гонка. (2011) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Венгерский Гран При, в этом году отмечающий четвертьвековой юбилей присутствия в календаре Формулы 1, уже давно имеет образ «негламурного Монако». Руль здесь нужно крутить не меньше, чем в княжестве, а вот с яхтами и мировыми знаменитостями всё куда хуже – из всех достопримечательностей можно вспомнить разве что аквапарк, выстроенный несколько лет назад рядом с автодромом. (   Читать дальше...   )Телекомпания: Россия, Спорт 1Жанр: Спорт, АвтоспортПродолжительность: 02:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C212C51ED9493EFCE3B7FC5AD18B9816ABCC728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053604   (526087) от 17.09.2016
-
-Формула 1. Гран-При Сингапура. Квалификация (2016.09.17) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526087.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 сентября 2016 года.
-Этап 15. Гран-при Сингапура.
-Арена: Городская трасса Марина Бей (Сингапур)Телекомпания: Матч Арена HDЖанр: СпортПродолжительность: 01:21:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8053425A8676F2688FA74798439E1E3FC9F1879D
 ```
 
 https://mybot314.ru/tekegram_catalog/

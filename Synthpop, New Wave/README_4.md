@@ -6,7 +6,7 @@ Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705069.jpg" />
+  <img src="Z:/picture/008/save_picture_705069.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ VA - Night City Tribute - The Songs of Secret Service (2018) [MP3|320 Kbps] <Syn
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_704320.jpg" />
+  <img src="Z:/picture/008/save_picture_704320.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Stars Crusaders - Welcome To Hydra (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702825.jpg" />
+  <img src="Z:/picture/008/save_picture_702825.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Aivo - Infinite Path (2022) [MP3|320 Kbps] <Synthwave, Sovietwave, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697525.jpg" />
+  <img src="Z:/picture/008/save_picture_697525.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Lo-Fi Electronic - The Best Of (2020) [MP3|320 Kbps] <Synthpop, Ambient>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697524.jpg" />
+  <img src="Z:/picture/008/save_picture_697524.jpg" />
 </div>
 
 
@@ -143,6 +143,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027954   (692958) от 21.06.2016
+
+TourdeForce - 4 Albums (2007-2014) [MP3|320 кб/с] <Electronic, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_692958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Christian Ryder, фронтмен и "мозг" итальянского проекта TourdeForce, умеет трансформировать свою музыку в нечто уникальное и неповторимое, создавая композиции на высоком уровне, "попадающие в цель" - демонстрируя это все и на новом альбоме "Jedem Das Seine". TourdeForce "созрел", он теперь гордо стоит на electro-сцене, предлагая (   Читать дальше...   )Список альбомов:
+01. 2007 - Omnes Feriunt, Ultima Necat
+02. 2010 - Colours In Life
+03. 2011 - Leaving Colours(   Читать дальше...   )Жанр: Electronic, SynthpopПродолжительность: 03:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2A00981B3596911B7721D5E88FD95961DD9B0A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133815   (692954) от 13.05.2017
 
 Andromeda Dreams - 2 Albums (2015, 2016) [MP3|320 Kbps] <Electronic, Disco, 80's, Synthwave, Retrowave>
@@ -151,7 +180,7 @@ Andromeda Dreams - 2 Albums (2015, 2016) [MP3|320 Kbps] <Electronic, Disco, 80's
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692954.jpg" />
+  <img src="Z:/picture/008/save_picture_692954.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ Ari Mason - 2 альбома + EP (2014, 2016) [MP3|200 -320 Kbps] <Synthpop, Da
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690995.jpg" />
+  <img src="Z:/picture/008/save_picture_690995.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Kebu - Perplexagon (2016) [MP3|320 кб/с] <Electronic, Ambient, Spacesynth>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682119.jpg" />
+  <img src="Z:/picture/008/save_picture_682119.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Erasure - World Be Gone (2017) [MP3|320 Kbps] <Synthpop, New-Wave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680806.jpg" />
+  <img src="Z:/picture/008/save_picture_680806.jpg" />
 </div>
 
 
@@ -270,7 +299,7 @@ Waveshaper - 12 Releases (2013-2018) [MP3|320 Kbps] <Electronic, Synthwave, Retr
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677129.jpg" />
+  <img src="Z:/picture/008/save_picture_677129.jpg" />
 </div>
 
 
@@ -299,7 +328,7 @@ Omnimar - Poison (2017) [MP3|320 Kbps] <Synth-pop, Synthwave, Darkwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676721.jpg" />
+  <img src="Z:/picture/008/save_picture_676721.jpg" />
 </div>
 
 
@@ -328,7 +357,7 @@ Twisted Destiny - 3 Albums (2012-2016) [MP3|320 Kbps] <Electronic, Synthpop, Fut
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674425.jpg" />
+  <img src="Z:/picture/008/save_picture_674425.jpg" />
 </div>
 
 
@@ -357,7 +386,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669480.jpg" />
+  <img src="Z:/picture/008/save_picture_669480.jpg" />
 </div>
 
 
@@ -386,7 +415,7 @@ Kraftwerk - 3-D: The Catalogue (2017) 8CD Box Set, Deluxe Edition [MP3|320 Kbps]
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667645.jpg" />
+  <img src="Z:/picture/008/save_picture_667645.jpg" />
 </div>
 
 
@@ -415,7 +444,7 @@ Nightstop - Dancing Killer (2017) [MP3|320 Kbps] <Electronic, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659104.jpg" />
+  <img src="Z:/picture/008/save_picture_659104.jpg" />
 </div>
 
 
@@ -444,7 +473,7 @@ Nickolay Fedorenko - Magic Multiverse: Best of 2011-2017 (2022) [MP3|320 Kbps] <
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657218.jpg" />
+  <img src="Z:/picture/008/save_picture_657218.jpg" />
 </div>
 
 
@@ -473,7 +502,7 @@ Moskwa TV - 3 Albums (1985-1991) [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653940.jpg" />
+  <img src="Z:/picture/008/save_picture_653940.jpg" />
 </div>
 
 
@@ -502,7 +531,7 @@ Pet Shop Boys - Ultimate (2010) [MP3|192-320 kbps]<Pop, Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650814.jpg" />
+  <img src="Z:/picture/008/save_picture_650814.jpg" />
 </div>
 
 
@@ -531,7 +560,7 @@ Analogue-X - Imaginary (2019) [MP3|320 Kbps] <Synthpop>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650602.jpg" />
+  <img src="Z:/picture/008/save_picture_650602.jpg" />
 </div>
 
 
@@ -560,7 +589,7 @@ Boys Brigade - Boys Brigade (1983) [MP3|320 Kbps] <Electronic, New Wave, Pop-Roc
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641998.jpg" />
+  <img src="Z:/picture/008/save_picture_641998.jpg" />
 </div>
 
 
@@ -589,7 +618,7 @@ Wolf and Raven - Lair of the Dragon (2018) [MP3|320 Kbps] <Synthpop, Synthwave, 
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635659.jpg" />
+  <img src="Z:/picture/008/save_picture_635659.jpg" />
 </div>
 
 
@@ -618,7 +647,7 @@ Chris van Buren - Hope and Destiny (2016) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635658.jpg" />
+  <img src="Z:/picture/008/save_picture_635658.jpg" />
 </div>
 
 
@@ -647,7 +676,7 @@ Chris van Buren - Tierra Del Fuego (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635657.jpg" />
+  <img src="Z:/picture/008/save_picture_635657.jpg" />
 </div>
 
 
@@ -676,7 +705,7 @@ Wolf and Raven - Renegades (2016) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635506.jpg" />
+  <img src="Z:/picture/008/save_picture_635506.jpg" />
 </div>
 
 
@@ -705,7 +734,7 @@ VA - Pure Synthwave Vol. 1 (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Outrun,
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635497.jpg" />
+  <img src="Z:/picture/008/save_picture_635497.jpg" />
 </div>
 
 
@@ -719,35 +748,6 @@ VA - Pure Synthwave Vol. 1 (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Outrun,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:864273FD6762FC1A6067233326F07B1231FC78DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543607   (629248) от 11.04.2022
-
-NeoSpace - Flying to the Stars (2022) [MP3|320 Kbps] <Spacesynth, Synthwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_629248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Departure (6:45)
-02. Flying to the Stars (6:18)
-03. Virtu or Fama (5:24)
-04. Collision Course (5:46)(   Читать дальше...   )Жанр: Spacesynth, SynthwaveПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1F78D669E092F89F24C1322A292F19277D6EF2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

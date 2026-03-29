@@ -1,3 +1,61 @@
+###  Публикация: 959904   (312408) от 26.11.2015
+
+Deep Purple - The Battle Rages On… (1993) [FLAC|tracks+.cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_312408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Battle Rages On (5:57)
+02. Lick It Up (4:00)
+03. Anya (6:32)
+04. Talk About Love (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334CBE5B8E9037C00807BE45F8AB72A4F67E9D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076690   (311888) от 26.11.2016
+
+Sixx: A.M. - Prayers For The Blessed Vol.2 (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_311888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barbarians 05:11
+02. We Will Not Go Quietly 04:21
+03. Wolf At Your Door 04:10
+04. Maybe It's Time 04:22(   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8285B7C889FCD61828896F68C4C9B4D181BEB5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1332297   (311804) от 21.10.2019
 
 Tony Mills - Beyond The Law (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -6,7 +64,7 @@ Tony Mills - Beyond The Law (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311804.jpg" />
+  <img src="Z:/picture/008/save_picture_311804.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tito & Tarantula - 8 albums, 10CD (1997-2019) [FLAC|Lossless|image + .cue, track
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311145.jpg" />
+  <img src="Z:/picture/008/save_picture_311145.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Taskaha - Taskaha (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310901.jpg" />
+  <img src="Z:/picture/008/save_picture_310901.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) [FLAC|Lossless|image + .cu
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310807.jpg" />
+  <img src="Z:/picture/008/save_picture_310807.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Whitesnake - Love Songs (2020 Remix) (2020) [FLAC|Lossless|image + .cue] <Hard R
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310708.jpg" />
+  <img src="Z:/picture/008/save_picture_310708.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ AC/DC - Power Up (2020) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310435.jpg" />
+  <img src="Z:/picture/008/save_picture_310435.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Ken Hensley (pre Uriah Heep) - The Gods: 2 альбома, 3CD, Toe Fat: 2 ал�
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310372.jpg" />
+  <img src="Z:/picture/008/save_picture_310372.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Tony Carey - Wilder Westen Inclusive (Original-Soundtrack Zur TV-Serie) (1988) [
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310318.jpg" />
+  <img src="Z:/picture/008/save_picture_310318.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Billy Gibbons And The BFG's - Perfectamundo (2015) [FLAC|image + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310087.jpg" />
+  <img src="Z:/picture/008/save_picture_310087.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Last Temptation - Last Temptation (2019) [FLAC|Lossless|tracks + .cue] <Hard Roc
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_309727.jpg" />
+  <img src="Z:/picture/008/save_picture_309727.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Tony Carey - For You: Best Of 1988 - 1990 (1993)  [FLAC|Lossless|image + .cue]<C
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308893.jpg" />
+  <img src="Z:/picture/008/save_picture_308893.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ S.O.T.O. - Origami (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308695.jpg" />
+  <img src="Z:/picture/008/save_picture_308695.jpg" />
 </div>
 
 
@@ -354,7 +412,7 @@ AC/DC - Rock Or Bust (2014) [FLAC|Lossless]<Hard Rock, Aussie Rock, Heavy Metal,
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308359.jpg" />
+  <img src="Z:/picture/008/save_picture_308359.jpg" />
 </div>
 
 
@@ -383,7 +441,7 @@ Asia - Classic Asia - The Universal Masters Collection (2001) [FLAC|tracks+.cue]
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307835.jpg" />
+  <img src="Z:/picture/008/save_picture_307835.jpg" />
 </div>
 
 
@@ -412,7 +470,7 @@ Guns N’ Roses - Appetite for Destruction (1987) [FLAC|tracks+.cue]<Hard Rock, 
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307726.jpg" />
+  <img src="Z:/picture/008/save_picture_307726.jpg" />
 </div>
 
 
@@ -441,7 +499,7 @@ Dio - The Last In Line (1984) 24 KT + Gold CD /2012, Audio Fidelity/ [FLAC|Lossl
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_307549.jpg" />
+  <img src="Z:/picture/005/save_picture_307549.jpg" />
 </div>
 
 
@@ -470,7 +528,7 @@ WolveSpirit - Discography: 5 Studio Albums, 1 EP, 7 CD (2011-2018) [FLAC|Lossles
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307455.jpg" />
+  <img src="Z:/picture/008/save_picture_307455.jpg" />
 </div>
 
 
@@ -499,7 +557,7 @@ Nazareth - Greatest Hits (1996) [FLAC|tracks+.cue]<Hard Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307417.jpg" />
+  <img src="Z:/picture/008/save_picture_307417.jpg" />
 </div>
 
 
@@ -528,7 +586,7 @@ Cannon - 5 Albums (1988-2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard'n'
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305572.jpg" />
+  <img src="Z:/picture/008/save_picture_305572.jpg" />
 </div>
 
 
@@ -557,7 +615,7 @@ Deep Purple - The Collection (1997) [FLAC|Lossless]<Hard Rock, Classic Rock>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305289.jpg" />
+  <img src="Z:/picture/008/save_picture_305289.jpg" />
 </div>
 
 
@@ -586,7 +644,7 @@ Roth Brock Project - Roth Brock Project (2016) [FLAC|lossless|image + .cue] <Mel
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304829.jpg" />
+  <img src="Z:/picture/008/save_picture_304829.jpg" />
 </div>
 
 
@@ -615,7 +673,7 @@ Angelica - All I Am (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Fem
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304285.jpg" />
+  <img src="Z:/picture/008/save_picture_304285.jpg" />
 </div>
 
 
@@ -644,7 +702,7 @@ Alice Cooper - Raise The Dead Live From Wacken (2014) [FLAC|Lossless]<Hard Rock/
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304131.jpg" />
+  <img src="Z:/picture/008/save_picture_304131.jpg" />
 </div>
 
 
@@ -673,7 +731,7 @@ Crystal Ball - 2020 (2CD) (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_303542.jpg" />
+  <img src="Z:/picture/008/save_picture_303542.jpg" />
 </div>
 
 
@@ -684,64 +742,6 @@ Crystal Ball - 2020 (2CD) (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:878605A5334356D136AF7249D6A2991DA6983651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333789   (301458) от 26.10.2019
-
-Road To Ruin - Road To Ruin (2007) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Only One (3:53)
-02. Pale Rider (5:12)
-03. Face Of An Angel (4:28)
-04. Pleasure And Pain (5:10)(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33897002548AF517A1406FDC720E5F9A55A92273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961237   (301326) от 01.12.2015
-
-Reece (ex.Accept) - Universal Language (2009) [FLAC|image+.cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before A Die 4:42
-02. All The Way 4:40
-03. Flying Too Close To The Flame 3:50
-04. Fantasy Man 3:30(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632960661E6079E0C575F85BFCD710A907DE3110
 ```
 
 https://mybot314.ru/tekegram_catalog/

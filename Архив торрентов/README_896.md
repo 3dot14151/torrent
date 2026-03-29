@@ -6,7 +6,7 @@ YouTube By Click Premium 2.2.127 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842989.jpg" />
+  <img src="Z:/picture/008/save_picture_842989.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ USDownloader 1.3.5.9 Portable (26.04.2020) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842987.jpg" />
+  <img src="Z:/picture/008/save_picture_842987.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ PDF Shaper Professional 10.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842983.jpg" />
+  <img src="Z:/picture/008/save_picture_842983.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842982.jpg" />
+  <img src="Z:/picture/008/save_picture_842982.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ TACFIT Timer Pro 1.0 [En]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842978.jpg" />
+  <img src="Z:/picture/008/save_picture_842978.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ HDCleaner 1.292 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842973.jpg" />
+  <img src="Z:/picture/008/save_picture_842973.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ NoteBurner iTunes DRM Audio Converter 2.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842963.jpg" />
+  <img src="Z:/picture/008/save_picture_842963.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Torch Browser 69.2.0.1704 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842962.jpg" />
+  <img src="Z:/picture/008/save_picture_842962.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842950.jpg" />
+  <img src="Z:/picture/008/save_picture_842950.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842942.jpg" />
+  <img src="Z:/picture/008/save_picture_842942.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ ReviverSoft PC Reviver 2.6.3.2 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842928.jpg" />
+  <img src="Z:/picture/008/save_picture_842928.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ StarCrawlers (2015) [En] (b.6) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842917.jpg" />
+  <img src="Z:/picture/008/save_picture_842917.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Simple VHD Manager 1.2 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842914.jpg" />
+  <img src="Z:/picture/008/save_picture_842914.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ ORPALIS PaperScan Professional 3.0.103 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842909.jpg" />
+  <img src="Z:/picture/008/save_picture_842909.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Wondershare UniConverter 11.6.6.21 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842906.jpg" />
+  <img src="Z:/picture/008/save_picture_842906.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842905.jpg" />
+  <img src="Z:/picture/008/save_picture_842905.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ Internet Download Manager 6.37 Build 11 RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842893.jpg" />
+  <img src="Z:/picture/008/save_picture_842893.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ SUMo Pro 5.10.16.455 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842891.jpg" />
+  <img src="Z:/picture/008/save_picture_842891.jpg" />
 </div>
 
 
@@ -477,7 +477,7 @@ Sidify Apple Music Converter 1.5.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842887.jpg" />
+  <img src="Z:/picture/008/save_picture_842887.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ SQL Dynamite 2.5.1.4 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842882.jpg" />
+  <img src="Z:/picture/008/save_picture_842882.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842881.jpg" />
+  <img src="Z:/picture/008/save_picture_842881.jpg" />
 </div>
 
 
@@ -556,7 +556,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842870.jpg" />
+  <img src="Z:/picture/008/save_picture_842870.jpg" />
 </div>
 
 
@@ -582,7 +582,7 @@ Stand Up (2016.04.03) SATRip (сезон 4, выпуск 6)
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842868.jpg" />
+  <img src="Z:/picture/008/save_picture_842868.jpg" />
 </div>
 
 
@@ -608,7 +608,7 @@ Flowjob - Party Trap (2011) [MP3|320 kbps] <Psytrance, Progressive>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842857.jpg" />
+  <img src="Z:/picture/008/save_picture_842857.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Elevated Mix - Control Change EP (2011) [MP3|320 kbps] <Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842855.jpg" />
+  <img src="Z:/picture/008/save_picture_842855.jpg" />
 </div>
 
 
@@ -676,7 +676,7 @@ R-Studio 7.8 Build 161189 Network Edition RePack (& portable) by elchupacabra [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842850.jpg" />
+  <img src="Z:/picture/008/save_picture_842850.jpg" />
 </div>
 
 

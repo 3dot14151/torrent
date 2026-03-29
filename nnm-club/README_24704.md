@@ -1,22 +1,50 @@
-###  Публикация: 1790877   (67985) от 11.04.2025
+###  Публикация: 1785370   (69361) от 15.03.2025
 
-Текстуры - DizzyArtStudio - Creative Fabrica - Maroon Iridescent Leopard Print Textures [JPG]
+Daff Moon Phase (Фазы Луны) v3.45 Mod by shv7net [Ru/En]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение показывает текущую фазу Луны, фазы Луны на любой месяц, и другую информацию о Луне, Солнце и восьми планетах солнечной системы в реальном времени. Программа позволяет посмотреть положение светил на простейшей небесной сфере, которую можно поворачивать на произвольный угол!
+Изображение фазы Луны с высокой точностью соответствует реальному для данного момента (   Читать дальше...   )Тип издания: ModРелиз состоялся: 15.03.2025Разработчик: Evgeny FedorischenkoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E4DCC7122E049B6660C7C18F0BB9A7354CED6B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785226   (69360) от 15.03.2025
+
+Шрифты - Pepper Type - MyFonts - Ruberoid [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67985.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Леопардовые текстуры.Формат: JPGРазрешение файлов: 3600 x 3601 - 3601 x 3601
+Шрифт c кириллицей 19 стилей.
+Разработчик: Pepper TypeФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB9C211DC013DF659429EDFAB4856403DBD5231C
+magnet:?xt=urn:btih:6AB44E16676E2B18711C484EA18A1B4C9570F024
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +52,52 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790870   (67984) от 11.04.2025
+###  Публикация: 1785289   (69359) от 15.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Mexican Knitted Flowers Seamless Pattern [JPG]
+Picture Bird - Bird Identifier v2.9.32 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Picture Bird позволяет легко распознать птиц вокруг вас по фото. Загрузите или сделайте фото птицы, и распознайте ее в считанные секунды. Узнайте названия разных птиц, информацию о каждом виде и многое другое!Тип издания: PremiumРелиз состоялся: 13.03.2025Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C636EBC5C9B29C7DA4027AC6F1C31C313FC0143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785230   (69358) от 15.03.2025
+
+Шрифты - Pepper Type - MyFonts - Mazzard Soft [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 Бесшовных цветочных узоров - Мексиканский трикотаж.Формат: JPGРазрешение файлов: 3600 x 3600
+Шрифт c кириллицей 54 стиля.
+Разработчик: Pepper TypeФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1A664FB15A1FCDAB659DDB4864BC2C555B7BE583
+magnet:?xt=urn:btih:8E6F9FCD30803CED0DEC34804CAD93EEED09D990
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790858   (67983) от 11.04.2025
+###  Публикация: 1785409   (69357) от 15.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Black & Gold Art Deco Patterns [JPG]
+Роберт Шекли | Безымянная гора (2020) [MP3, Puffin Сafe]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67983.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чёрно-золотые узоры в стиле арт-деко.Формат: JPGРазрешение файлов: 3600 x 3600
+Несколько тысяч рабочих и сотни единиц тяжелой техники занимается терраформингом очередной безымянной планеты, предназначенной для осврения. На их пути гигантская гора, судьба которой — стать портом или заливом согласно проекта. Но уже который день странные совпадения не позволяют приступить к сносу горы. Может быть в этом виноваты погодные условия, а может быть (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:36:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE24D7E261071AF96D429B45F8086947074CED47
+magnet:?xt=urn:btih:B850CCA5944ECF4A4ABB4BBC270B2804C859F406
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,57 +131,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790814   (67982) от 11.04.2025
+###  Публикация: 1785149   (69356) от 15.03.2025
 
-The Man-Eating Tree - Night Verses (2025) [MP3|320 Kbps] <Atmospheric Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Night Verses [00:01:03]
-02 - Days under the Dark [00:07:40]
-03 - Seer [00:04:40]
-04 - These Traces [00:05:12](   Читать дальше...   )Жанр: Atmospheric Gothic MetalПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A3DE5286952E7675E745AF2CCDDBE357C4AE84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790689   (67981) от 11.04.2025
-
-Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [MP3|320 Kbps] <House, Electro House, Dance-pop>
+VA - The World Series Of Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>House
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. New New New (Avicii Remix Edit) [00:03:06]
-02. Lala Song (Tocadisco Remix) [00:05:35]
-03. Love You No More (Chuckie Remix) [00:05:41]
-04. What A Wonderful World (Greg Cerrone Remix) [00:03:03](   Читать дальше...   )Жанр: House, Electro House, Dance-popПродолжительность: 00:51:00
+01. Jaron Inc. vs. Wavetraxx - Summerbreeze (Jaron Inc. Mix) [3:43]
+02. Marc Dawn - Expander (Flutlicht Remix) [6:52]
+03. Green Court feat. De/Vision - Shining (Tiësto Mix) [9:23]
+04. Human Force - Sun Rising High (Reysan Khan Vocal Trance Mix) [5:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D5B9011DAE30460216681B69AF17FF02ED6669E
+magnet:?xt=urn:btih:89FD22999CCDAB528CF8240A6F170A594A8856B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +160,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790854   (67980) от 11.04.2025
+###  Публикация: 1785257   (69355) от 15.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pink Scandinavian Flowers Digital Papers [JPG]
+Шрифты - Creative Market - Trend Polaroid - Font Duo - 290816968 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров из цветов.Формат: JPGРазрешение файлов: 3600 x 3600
+Trend Polaroid — это современный дуэтный шрифт, сочетающий в себе элегантность утонченного шрифта с засечками и смелый, резкий стиль классического шрифта. Вечный шрифт с засечками и мягкий, насыщенный символами шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4D1612B489363B742149C9B663D5A63CE1D4650
+magnet:?xt=urn:btih:A7B3AB18DDCE896BD1D04E047C931A50D74FE46C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,54 +188,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790844   (67979) от 11.04.2025
+###  Публикация: 1785202   (69354) от 15.03.2025
 
-Растровый клипарт - sugamiart - Creative Fabrica - Free Valentine Glitter Digital Paper [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатная цифровая бумага с розовым блеском на день Святого Валентина.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CEDE8FF0CA30E0EDEB1E9E8DCE98CA21C77040
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790906   (67978) от 11.04.2025
-
-Magnolia Park - Vamp (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, Metalcore, Electronic>
+Jon Anderson - Perpetual Change (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67978.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pain [00:03:26]
-02. Shadow Talk [00:02:58]
-03. Cult [00:03:06]
-04. The Screams [00:03:13](   Читать дальше...   )Жанр: Alt. Metal, Metalcore, ElectronicПродолжительность: 00:36:21
+01. Yours Is No Disgrace (Live) [00:09:56]
+02. Perpetual Change (Live) [00:09:31]
+03. Close To The Edge (Live) [00:18:23]
+04. Heart Of The Sunrise (Live) [00:11:43](   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:04:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40D26E4627ACD39DCD0318EAFCC389CF204C3787
+magnet:?xt=urn:btih:8AAAC46320638E53AF00E081617FB95B6CEE730E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -215,25 +217,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790845   (67977) от 11.04.2025
+###  Публикация: 1785399   (69353) от 15.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Tropical Leaves Seamless Patterns [JPG]
+Шрифты - Creative Market - Romantic History - 288202552 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67977.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных тропических узоров (орнаментов).Формат: JPGРазрешение файлов: 3600 x 3600
+Romantic History — это вневременной шрифт, черпающий вдохновение в классическом римском стиле, зародившемся в эпоху Древнего Рима между I и IV веками нашей эры. Этот созданный вручную шрифт демонстрирует красоту традиционной типографики с ее естественными формами засечек и изящными изгибами, напоминающими каллиграфию плоским пером.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:980FCC2AEBD3E4C6A9320096DA0005AF1B319E1A
+magnet:?xt=urn:btih:877BF38BFD664526123889D48F6C84487F385082
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,28 +245,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790907   (67976) от 11.04.2025
+###  Публикация: 1785433   (69352) от 15.03.2025
 
-VA - Armin van Buuren - A State Of Trance 1220 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Opeth - Pale Communion (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Rains Will Come
+02. Cusp Of Eternity
+03. Moon Above, Sun Below
+04. Elysian Woes(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73294D495F94F4F9FF190B6CFDBA342543D35C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785363   (69351) от 15.03.2025
+
+Шрифты - Creative Market - Podrich - Timeless Logo Font - 290897290 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Podrich — элегантный вневременной шрифт с засечками для логотипа, вызывающий утонченность, классику и чувство изысканной роскоши. Он отличается значительным контрастом между толстыми и тонкими штрихами, что повышает читаемость и придает роскошный вид.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68F24E4A67F7C3EC10C054364EF6D74B1711CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785216   (69350) от 15.03.2025
+
+Sub Zero Project - Tomorrowland Friendship Mix (2025-03-13) [MP3|320 Kbps] <Hard Dance>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67976.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Above & Beyond ft. Zoë Johnston - Quicksand (Don't Go)
-02. Mitiska & Midnite Amity & Mully - Say It
-03. Nora En Pure - Memories (Progressive Pick)
-04. AVIRA & Ennea ft. Rubicini - Ring Ring(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:59
+01. Sub Zero Project ft. Bryant Powell - Refuse To Speak
+02. Brennan Heart & Wildstylez - Lose My Mind (Sub Zero Project Remix)
+03. Sub Zero Project & Rebelion - Save Me
+04. Max Enforcer - Lost In Paradise(   Читать дальше...   )Жанр: Hard DanceПродолжительность: 00:59:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCFF8144651D2BB6FDE799F1D1BD6F04AFA929FA
+magnet:?xt=urn:btih:1B592E1D0EAE6844597201E051F2DCF2E1A0E462
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,300 +331,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790932   (67975) от 11.04.2025
+###  Публикация: 1785294   (69349) от 15.03.2025
 
-Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music
-02. Noise
-03. Shoemaker
-04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F40D7463340ACB4CC674DB740EFF55E5027CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790847   (67974) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Abstract Groovy Flowers Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67974.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 бесшовных узоров (орнаментов) в виде цветов.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B2A295CB050C6BC6FC5366117544613C84703B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790853   (67973) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Soft Pastel Flowers Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67973.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 Бесшовных узоров из цветов.Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:766FC570E45834389A65581CFCE0506CE656B44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790852   (67972) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Spring Floral Fruits Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67972.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 Бесшовных узоров из весенних цветов и фруктов (сгенерированных AI).Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C06627087EBAB2F5D418D1AA5F278083F2166C6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790939   (67971) от 11.04.2025
-
-VA - ЖЖ Was Here [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marmion - Schoneberg (Marmion remix)
-02. X-Cabs - Neuro 99
-03. Silverblue - Do U Know
-04. Vincent De Moor - Flowtation(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF6B69280155587F7E82DC863251097F6B8B085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790902   (67970) от 11.04.2025
-
-Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood Of My Enemy
-02. Each Dawn I Die
-03. Kill With Power
-04. Hail To England(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD689E523DCE48849A86356F3737C82E714E1BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790864   (67969) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Pastel Mixed Media Flowers Digital Paper [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67969.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 бесшовных узоров цветов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D889BF8E68F5AD83904BFE9BF4E4EF4DCEB7BCB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790859   (67968) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Citrus Fruits Seamless Patterns [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67968.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 бесшовных узоров из летних цитрусовых фруктов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F942DB4479E5FEAE94AFC0FA8C9C5919938D9D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790851   (67967) от 11.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Vintage Beige Plaid Digital Papers [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67967.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 цифровых листов бумаги в винтажную бежевую клетку (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE1B7B0E93D68C377EA9628758FB818521B472C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790990   (67966) от 11.04.2025
-
-Haven - Turn It Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ready to Rock (3:09)
-02. Over the Edge (5:11)
-03. Turn It Up (3:42)
-04. Rebel of the World (3:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC4FB70EE011B3F701D6918C2F17C90CC4AEE87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790737   (67965) от 11.04.2025
-
-Revenge - Night Danger (2025) [FLAC|Lossless|WEB-DL|tracks] <Speed, Heavy Metal>
+Death Angel - The Enigma Years (1987 - 1990) (2020) Box Set, Compilation, Reissue, Remastered [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67965.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Black Sight (00:04:59)
-02 - Night Danger (00:05:25)
-03 - The Hammers Fall (00:04:23)
-04 - Soldiers Heart (00:03:44)(   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:37:50
+Disc 1 - The Ultra-Violence:
+01. Thrashers
+02. Evil Priest
+03. Voracious Souls(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 04:10:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:594F1DC2ACCFB1222D1CE13A5DD0B5213847D6AA
+magnet:?xt=urn:btih:B86FEE6F2B16650715A1ABA6B9ED51CBF78D5AAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -571,25 +360,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790850   (67964) от 11.04.2025
+###  Публикация: 1785274   (69348) от 15.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Winter Shabby Chic Digital Papers [JPG]
+Шрифты - Creative Market - Klase - Cyberpunk Font - 286313411 [OTF, TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных цветочных узоров в зимнем стиле (созданы искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Шрифт Klase Cyberpunk содержит более 250 глифов. Альтернативные символы были разделены на несколько функций Open Type, таких как Swash, Stylistic Sets, Stylistic Alternates и Ligature.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58A4AB48955F31417C1503DFB216180CEBCA72D2
+magnet:?xt=urn:btih:3232F88A34A77EC1CD8F24E50007ED03BE35BF5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -597,25 +388,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790860   (67963) от 11.04.2025
+###  Публикация: 1785209   (69347) от 15.03.2025
 
-Растровый клипарт - Pattern Universe - Creative Fabrica - Red Green & Gold Seamless Patterns [JPG]
+Шрифты - Christoph Ulherr - MyFonts - Flacon [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67963.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров красно-зелёно-золотого цветов (сгенерированных искусственным интеллектом).Формат: JPGРазрешение файлов: 3600 x 3600
+Шрифт без кириллицы.
+Разработчик: Christoph UlherrФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3BD3A9FC27E8E997A85682D3F32631EDEE89FBCA
+magnet:?xt=urn:btih:B96C514918535AF567F1229F01AA8823DE24D601
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -623,26 +415,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790976   (67962) от 11.04.2025
+###  Публикация: 1785259   (69346) от 15.03.2025
 
-НХЛ 2024-2025. Каролина Харрикейнз - Вашингтон Кэпиталз (10.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Шрифты - Ergibi - WAVE BLOCK [OTF, TTF]
 
->>Спорт и активный отдых
->>Хоккей
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 апреля 2025, пятница. 02:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Митч Даннинг (Текумсе, Канада); Линейный: Жонатан Дешам (Труа-Ривьер, Канада); Линейный: Райан Джексон (Пуэнт-Клер, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:14:21
+WAVE BLOCK — это сырой и энергичный шрифт, созданный с помощью реалистичных мазков кисти, которые придают вашим проектам грубый, нарисованный вручную вид.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9564EE51519B3C093E5AB01F701BA607B85F843
+magnet:?xt=urn:btih:D851241CADE5BC0796EA488D368308797C611FAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,27 +443,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790946   (67961) от 11.04.2025
+###  Публикация: 1785316   (69345) от 15.03.2025
 
-Lev Kushnir Quartet - Stars Fell On Samotlor (2001) 2024, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+Чудеса случаются / Горчичное семя / The Girl Who Believes in Miracles (2021) BDRip [H.264]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67961.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Loves You Porgy / It Ain't Necessarily So [15:03]
-02. One Finger Snap / You Don't Know What Love Is [17:43]
-03. There Is No Greater Love [7:24]Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:11
+12-летняя Сара Хопкинс самый обычный ребёнок. Но однажды во время поездки к своему дедушке она заявляет, что видела Иисуса на берегу реки. После этого видения Сара способна исцелять животных и людей. Вскоре все местные жители и даже пресса хотят узнать как можно больше об этой маленькой девочке, которая может творить чудеса...Производство: США / 120dB Films, Gerson Productions, The Mustard Seed ProductionЖанр: драма, семейныйРежиссер: Рич КорреллАктеры: Мира Сорвино, Остин Джонсон, Кевин Сорбо, Питер Койот, Бёрджесс Дженкинс, Томми Роуз, Стефани Куд, Пол-Микель Уильямс, Люк Хармон, Коллин ПлэйсПеревод: дублированный (Moygolos)Язык озвучки: русский, английскийСубтитры: русские (на места без перевода), английскиеПродолжительность: 01:39:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA1B2A041353D26E20114B81F8FE07FDF1E66CF4
+magnet:?xt=urn:btih:E1DCA4FF617CAEC8F48243FA569631FF862AFE67
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,28 +469,253 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790929   (67960) от 11.04.2025
+###  Публикация: 1785413   (69344) от 15.03.2025
 
-Headcrasher - Nothing Will Remain (1989) 2 x CD, Reissue, , 2017, Punishment 18 Records, Special Edition [FLAC|Lossless|image + .cue] <Thrash, Speed Metal>
+VA - Exx Underground Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_67960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1 - Nothing Will Remain:
-01. Intro 01:23
-02. Blood from the Sky 05:05
-03. Live or Die (W.C.W.C.) 03:50(   Читать дальше...   )Жанр: Thrash, Speed MetalПродолжительность: 01:20:39
+01. RoelBeat & Max & Dana - Voice Of Stress (Extended Mix) [6:04]
+02. Steve Levi - DoomTak (Original Mix) [6:45]
+03. Airsand & TuraniQa - Ahora (Extended Mix) [5:26]
+04. Lakshmi & YARDi - Ritual (Original Mix) [6:03](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 04:17:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEF4EEF86DD6A28EE56149E0FE2E06F662C5961C
+magnet:?xt=urn:btih:BB7D94DC4A98AF14BA74C82F5849253164E60A23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785424   (69343) от 15.03.2025
+
+VA - Exx Boundless Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sander Wilder - Wanderlust (Original Mix) [5:28]
+02. Monolythe & This Confussion - The Grid (Original Mix) [6:06]
+03. Bromo - Net Krasiva (Original Mix) [2:36]
+04. Sergio T & Otherview feat. Jimbo - The World Is Mine (Original Mix) [2:59](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375887B68B301E8500206B87210D4502E77B9E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785328   (69342) от 15.03.2025
+
+Karen Cheryl - Etonnamment Romantique  Best Of (2025) Remastered [FLAC 24/96|Lossless|WEB-DL|tracks] <Disco, Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La marche des machos (04:17)
+02. Chante pour nous Mama (03:17)
+03. Les nouveaux romantiques (03:23)
+04. Oh ! Cheri Cheri... (03:31)(   Читать дальше...   )Жанр: Disco, Electronic, PopПродолжительность: 03:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF41D47F9DD122827C62176FDA7D4D592D7EEC95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785206   (69341) от 15.03.2025
+
+Manntra - Titans (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Industrial Metal, Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ceremony [0:57]
+02 - Titans [2:53]
+03 - Teuta [3:33]
+04 - The Heart Of The Storm [4:24](   Читать дальше...   )Жанр: Industrial Metal, Folk MetalПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C1991D820A8A03B4BE8F621CAAE3F58D65095E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785174   (69340) от 15.03.2025
+
+Журнал | Делаем сами №5 (578) (март 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69340.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDE9368555C67226031EA7E4A562D367EF92410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785266   (69339) от 15.03.2025
+
+Electrical Cost / Стоимость электроэнергии v6.1.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Расчет теоретических расходов в соответствии с потреблением энергии бытовой техникой. С помощью программы вы легко сможете посчитать нагрузки, возможность отправки созданного шаблона на другие устройства.Тип издания: ModРелиз состоялся: 14.03.2025Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD9A143ADDFBE5DBA2329904861D29D451E2FF14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784963   (69338) от 15.03.2025
+
+The Hot Rod Gang - Can U Dig It? (40th Anniversary) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Rock & Roll, Rockabilly, Rhythm & Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can U Dig It? [00:04:00]
+02. Two Hearts [00:04:04]
+03. The Man He Used To be [00:03:42]
+04. Boogie Woogie Country Girl [00:03:10](   Читать дальше...   )Жанр: Rock, Rock & Roll, Rockabilly, Rhythm & BluesПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF00FC673F8F1E8C17A6FD61F1C046333C733EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785327   (69337) от 15.03.2025
+
+Екатерина II Великая | Записки Екатерины II. Избранные главы (1992) [MP3, Роза Балашова]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека.
+Екатерина II (1729–1796) – российская императрица. Урожденная немецкая принцесса София Августа Фредерика Ангальт-Цербстская.
+Долгое время «Собственноручные записки» императрицы Екатерины II хранились под грифом «Особой секретности», наложенным на них ее сыном, императором Павлом. Однако он разрешил своему близкому другу, князю Александру (   Читать дальше...   )Жанр: Русская литература, исторические мемуары, повестьИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 03:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A75EAD165372872C41E5752D5DBDE8F6BEDB4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785376   (69336) от 15.03.2025
+
+Екатерина Дашкова | Записки княгини Дашковой. Избранные главы (1992) [MP3, Валентина Панина]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Звучащая библиотека.
+Екатерина Романовна Дашкова (1743–1810) – государственный деятель Российской империи, одна из самых заметных личностей русского Просвещения, писатель и педагог.
+Многолетняя подруга и сподвижница императрицы Екатерины II, сыгравшая значительную роль в восшествии последней на престол в 1762 году.
+Читает Заслуженная артистка РСФСР Валентина (   Читать дальше...   )Жанр: Русская литература, исторические мемуарыИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 03:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7BB377454D9F153AB9F6F0382B885500793E2C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

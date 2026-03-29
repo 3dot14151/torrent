@@ -1,3 +1,56 @@
+###  Публикация: 1582567   (320777) от 10.10.2022
+
+Дикий юг / Wild South (2019) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых живописных, необыкновенных и красочных уголков планеты – западное побережье Южной Африки. Место, где встречаются два океана – теплый Индийский и холодный Атлантический. Удивительное сочетание бескрайней пустыни, высоких гор, водопадов и каньонов. Поистине космические пейзажи. Потрясающие редкие животные. Всё это в увлекательном фильме "Дикий юг".Производство: Турция, Happy Film Entertainment, Yerli FilmЖанр: документальный, природа, флора, фаунаРежиссер: Бурак ДогансойсалПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6270F9725850B86E23A3D52B2531745D1E883C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421283   (319629) от 04.11.2020
+
+Дикая территория / Неизведанные горизонты / Undiscovered Vistas (2018) UHDTVRip [H.264/1080p] (сезон 1, серии 1-3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319629.jpg" />
+</div>
+
+
+###  Подробнее
+
+По всему миру находится множество малоизвестных, захватывающих дух природных условий. Познакомьтесь с этими областями выдающейся природной красоты, их дикой природой и уникальными историческими силами, которые их формируют.
+imdbПроизводство: США / Blue Ant Media, Canada Media FundЖанр: Документальный, Природа, Флора, ФаунаПеревод: Одноголосый профессиональныйПродолжительность: 3 х ~ 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67537C256729318991833580A4DA26F111D6D1B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1420452   (319621) от 04.11.2020
 
 Дикая долина / Untamed Valley (2017) UHDTVRip [H.264/1080p-LQ] (серии 1-3 из 3) [PR]
@@ -6,7 +59,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319621.jpg" />
+  <img src="Z:/picture/008/save_picture_319621.jpg" />
 </div>
 
 
@@ -33,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319544.jpg" />
+  <img src="Z:/picture/008/save_picture_319544.jpg" />
 </div>
 
 
@@ -59,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313660.jpg" />
+  <img src="Z:/picture/008/save_picture_313660.jpg" />
 </div>
 
 
@@ -85,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_313047.jpg" />
+  <img src="Z:/picture/008/save_picture_313047.jpg" />
 </div>
 
 
@@ -111,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311639.jpg" />
+  <img src="Z:/picture/008/save_picture_311639.jpg" />
 </div>
 
 
@@ -137,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311226.jpg" />
+  <img src="Z:/picture/008/save_picture_311226.jpg" />
 </div>
 
 
@@ -163,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310704.jpg" />
+  <img src="Z:/picture/008/save_picture_310704.jpg" />
 </div>
 
 
@@ -189,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_310496.jpg" />
+  <img src="Z:/picture/008/save_picture_310496.jpg" />
 </div>
 
 
@@ -215,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308876.jpg" />
+  <img src="Z:/picture/008/save_picture_308876.jpg" />
 </div>
 
 
@@ -241,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308425.jpg" />
+  <img src="Z:/picture/008/save_picture_308425.jpg" />
 </div>
 
 
@@ -267,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305940.jpg" />
+  <img src="Z:/picture/008/save_picture_305940.jpg" />
 </div>
 
 
@@ -293,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_305147.jpg" />
+  <img src="Z:/picture/008/save_picture_305147.jpg" />
 </div>
 
 
@@ -319,7 +372,7 @@ Nat Geo Wild: Хоаниб - секреты слонов пустыни / Secret
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_302632.jpg" />
+  <img src="Z:/picture/008/save_picture_302632.jpg" />
 </div>
 
 
@@ -345,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301062.jpg" />
+  <img src="Z:/picture/008/save_picture_301062.jpg" />
 </div>
 
 
@@ -371,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_301000.jpg" />
+  <img src="Z:/picture/008/save_picture_301000.jpg" />
 </div>
 
 
@@ -397,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300988.jpg" />
+  <img src="Z:/picture/008/save_picture_300988.jpg" />
 </div>
 
 
@@ -423,7 +476,7 @@ BBC: Как вырастить планету / BBC: How to grow a Planet [01-03
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300916.jpg" />
+  <img src="Z:/picture/008/save_picture_300916.jpg" />
 </div>
 
 
@@ -449,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_300779.jpg" />
+  <img src="Z:/picture/008/save_picture_300779.jpg" />
 </div>
 
 
@@ -475,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299793.jpg" />
+  <img src="Z:/picture/008/save_picture_299793.jpg" />
 </div>
 
 
@@ -501,7 +554,7 @@ Nat Geo Wild: Лягушка-монстр / Monster Frog (2014) HDTVRip [H.264/7
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_299572.jpg" />
+  <img src="Z:/picture/008/save_picture_299572.jpg" />
 </div>
 
 
@@ -527,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295701.jpg" />
+  <img src="Z:/picture/008/save_picture_295701.jpg" />
 </div>
 
 
@@ -553,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294771.jpg" />
+  <img src="Z:/picture/008/save_picture_294771.jpg" />
 </div>
 
 
@@ -579,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_293137.jpg" />
+  <img src="Z:/picture/008/save_picture_293137.jpg" />
 </div>
 
 
@@ -605,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289774.jpg" />
+  <img src="Z:/picture/008/save_picture_289774.jpg" />
 </div>
 
 
@@ -616,58 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BD9661CD2D7462507F1B97211479A6E1B5308EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335299   (289576) от 01.11.2019
-
-Чудеса Африки / Afrikas Naturwunder - Ein Tag wie kein anderer (2018) IPTVRip [H.264] (сезон 1, эпизод 264)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потрясающие съемки, организованные по последнему слову техники, покажут дикую природу в ее первозданном виде. Путешественники, ученые, эксперты расскажут о различных животных, населяющих этот жаркий край, об их местах обитания и повадках.Производство: Terra Mater Factual StudiosЖанр: Документальный, Природа, ФаунаРежиссер: Susanne LummerАктеры: Mathias KahlerПеревод: Одноголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE1323471BF3BBEC1D2DDBA211EC1CA3F0A3D3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263605   (287819) от 19.11.2018
-
-Земля медведей / Land of the Bears (Terre des ours) (2013) BDRemux [H.264/1080p] [Custom]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм рассказывающий о жизни медведей от самого младенчества, до перехода во взрослую жизнь, где никто и никогда больше будет помогать выжить в суровые и долгие зимы. Фильм пестрит прекрасными пейзажами нетронутой и девственной природы в различные времена года, где каждый сезон манит своей неповторимой красотой. В картине покажут жизнь одной семьи (   Читать дальше...   )Производство: Франция, Cameron l Pace Group, Centre National de la Cinématographie (CNC), Les films en vrac, Nature Pictures, Orange StudioЖанр: Документальный, видовой, природа, флора, фаунаРежиссер: Гийом ВенсанПеревод: ДублированныйСубтитры: Русские, французскиеПродолжительность: 01:26:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368BD8C52475BA9FAA42D47577E49BA9366B6599
 ```
 
 https://mybot314.ru/tekegram_catalog/

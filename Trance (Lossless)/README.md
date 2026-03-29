@@ -7,7 +7,7 @@ VA - A State of Trance: 25 Years - Official Anthem Collection (2026) [FLAC|Lossl
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058731.jpg" />
+  <img src="Z:/picture/005/save_picture_1058731.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Above & Beyond - Bigger Than All Of Us (Extended Mixes) (2026) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052411.jpg" />
+  <img src="Z:/picture/005/save_picture_1052411.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [FLAC
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048604.jpg" />
+  <img src="Z:/picture/008/save_picture_1048604.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Ночной клуб Vol. 1&2 (1999) [FLAC|Lossless|tracks + .cue] <Trance
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045804.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045357.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ VA - Дискотека 2000 (1999) [FLAC|Lossless|tracks + .cue] <Trance, House
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045263.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Ecoboy - Neo Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Trans-core>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042625.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1042625.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Starsplash - Back By Popular Demand (2004) [FLAC|Lossless|image + .cue] <Trance,
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041118.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ VA - Vocal Trance 2021 (2020) [FLAC|Lossless|tracks] <Trance, Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040818.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040818.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - The Sound of 2023 Mix 4: Kuala Lumpur (2023) [FLAC|Lossless|WEB-DL|tracks] 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1037845.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ VA - The Sound of 2023 Mix 5: Dubai (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035321.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1035321.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ VA - Talla 2Xlc - Carpe Diem 2CD (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034906.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1034906.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - Forest Prog (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Forest>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021793.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021793.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Chicane - Everything We Had to Leave Behind (2021) [FLAC|Lossless|WEB-DL|tracks]
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019450.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ Above & Beyond - The Club Instrumentals (2021) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019274.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1019274.jpg" />
 </div>
 
 
@@ -438,7 +438,7 @@ ilan Bluestone - Impulse (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017197.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1017197.jpg" />
 </div>
 
 
@@ -467,7 +467,7 @@ Solarstone - Electronic Architecture 4 (2021) [FLAC|Lossless|tracks] <Dance, Pro
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015733.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1015733.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ VA - Female Vocal Trance 2021 [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009411.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1009411.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Bobina - 15 Years: The Best Of, Vol. 1 (2019) Compilation [FLAC|Lossless|WEB-DL|
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001599.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1001599.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ ATB - All The Best (2012) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_983362.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ John Askew - 2 Albums , 10 Compilations (2005 - 2015) [FLAC|Lossless|CD-WEB|trac
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969168.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_969168.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ VA - Planet Dream Vol. 1 (1998) 2CD [FLAC|Lossless|tracks + .cue] <Trance, Euro 
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968760.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968760.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ VA - Euphonic 300 (Compiled and mixed by Kyau & Albert) (2019) [FLAC|Lossless|WE
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_967312.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ VA - Best Of Vocal Trance 2016 (2016) [FLAC|tracks|WEB-DL]<Trance, Vocal Trance>
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964465.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_964465.jpg" />
 </div>
 
 
@@ -699,7 +699,7 @@ Ultra SKM - Southern Shaman (2020) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Tran
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959401.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_959401.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - Dark Sessions Radio 014 (Mixed by Oberon) (2016) [FLAC|Lossless|WEB-DL|trac
 >>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951619.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951619.jpg" />
 </div>
 
 

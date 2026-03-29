@@ -1,3 +1,83 @@
+###  Публикация: 1499350   (849410) от 01.10.2021
+
+Кролик Питер 2 / Peter Rabbit 2: The Runaway (2021) DVD5 [Custom]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_849410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение истории маленького и непоседливого кролика по имени Питер. Беатрис, Томас и крольчата, наконец, находят общий язык и начинают спокойную и размеренную жизнь за городом. Однако Питеру это совсем не по нраву: его мятежная душа требует приключений, и он отправляется на их поиски в большой город, туда, где его проделки уж точно оценят по достоинству. Тем временем, (   Читать дальше...   )Производство: США, Австралия, Индия / Columbia Pictures CorporationЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Уилл ГлакАктеры: Джеймс Корден, Роуз Бирн, Донал Глисон, Дэвид Ойелоуо, Марго Робби, Элизабет Дебики, Айми Хорн, Колин Муди, Ленни Джеймс, Хейли ЭтвеллПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624E3AE20CB2C1EB105F381B4491DF922B0A6A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 876888   (848812) от 11.03.2015
+
+Феи: Легенда о чудовище / Tinker Bell and the Legend of the NeverBeast (2014) HDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_848812.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анимационная сказка расскажет удивительную историю о веселой и талантливой фее Фауне, которая убеждена в том, что о книге нельзя судить по ее обложке, впрочем, как и о животном по его клыкам, поэтому она дружит с таинственным существом громадных размеров из Нетландии по прозвищу Чудовище.
+
+В это время группа волшебных фей разведки не настолько уверены в этом страшном (   Читать дальше...   )Производство: США | DisneyToon Studios, Prana StudiosЖанр: мультфильм, фэнтези, приключения, семейныйРежиссер: Стив ЛотерПеревод: Дублированный (iTunes Russia)Продолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB530956DECC3F5BBA470ACCC575E031C4CABBF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499503   (847363) от 02.10.2021
+
+Тайна парка развлечений / Boonie Bears: The Wild Life (2021) WEB-DLRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_847363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Медведи снова в деле. Они приезжают в загадочный парк развлечений, где их ждут невероятные приключения, весёлые розыгрыши и, конечно же, аттракционы. Медведи найдут новых друзей и вместе с ними раскроют тайну парка.Производство: Китай / Fantawild Animation, HG Entertainment, Sunac Culture, Lianrui PicturesЖанр: Мультфильм, Комедия, Фантастика, ПриключенияРежиссер: Дин ЛянАктеры: Чжан Вэй, Чжан Бинцзюнь, Тань СяоПеревод: Дублированный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FDDEC9837E45C5BED727AE92E4B740F41BC5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499506   (847361) от 02.10.2021
 
 Супер Пёс и Турбо Кот / StarDog and TurboCat (2019) HDRip
@@ -6,7 +86,7 @@
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847361.jpg" />
+  <img src="Z:/picture/008/save_picture_847361.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846976.jpg" />
+  <img src="Z:/picture/008/save_picture_846976.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846852.jpg" />
+  <img src="Z:/picture/008/save_picture_846852.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846701.jpg" />
+  <img src="Z:/picture/008/save_picture_846701.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845889.jpg" />
+  <img src="Z:/picture/008/save_picture_845889.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844983.jpg" />
+  <img src="Z:/picture/008/save_picture_844983.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_844569.jpg" />
+  <img src="Z:/picture/008/save_picture_844569.jpg" />
 </div>
 
 
@@ -189,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843856.jpg" />
+  <img src="Z:/picture/008/save_picture_843856.jpg" />
 </div>
 
 
@@ -215,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843845.jpg" />
+  <img src="Z:/picture/008/save_picture_843845.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843438.jpg" />
+  <img src="Z:/picture/008/save_picture_843438.jpg" />
 </div>
 
 
@@ -271,7 +351,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842782.jpg" />
+  <img src="Z:/picture/008/save_picture_842782.jpg" />
 </div>
 
 
@@ -297,7 +377,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842685.jpg" />
+  <img src="Z:/picture/008/save_picture_842685.jpg" />
 </div>
 
 
@@ -323,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842662.jpg" />
+  <img src="Z:/picture/008/save_picture_842662.jpg" />
 </div>
 
 
@@ -349,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842590.jpg" />
+  <img src="Z:/picture/008/save_picture_842590.jpg" />
 </div>
 
 
@@ -375,7 +455,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842338.jpg" />
+  <img src="Z:/picture/008/save_picture_842338.jpg" />
 </div>
 
 
@@ -401,7 +481,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842171.jpg" />
+  <img src="Z:/picture/008/save_picture_842171.jpg" />
 </div>
 
 
@@ -429,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841443.jpg" />
+  <img src="Z:/picture/008/save_picture_841443.jpg" />
 </div>
 
 
@@ -455,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841255.jpg" />
+  <img src="Z:/picture/008/save_picture_841255.jpg" />
 </div>
 
 
@@ -481,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840952.jpg" />
+  <img src="Z:/picture/008/save_picture_840952.jpg" />
 </div>
 
 
@@ -507,7 +587,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840689.jpg" />
+  <img src="Z:/picture/008/save_picture_840689.jpg" />
 </div>
 
 
@@ -533,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839478.jpg" />
+  <img src="Z:/picture/008/save_picture_839478.jpg" />
 </div>
 
 
@@ -559,7 +639,7 @@ My Little Pony: Новое поколение / My Little Pony: A New Generation
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839475.jpg" />
+  <img src="Z:/picture/008/save_picture_839475.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839466.jpg" />
+  <img src="Z:/picture/008/save_picture_839466.jpg" />
 </div>
 
 
@@ -596,85 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0992BB708BC3CB1CC09FB78F4AD46005B88A0750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379561   (839074) от 29.04.2020
-
-Сержант Стабби: Американский герой / Sgt. Stubby: An American Hero (2018) BDRip [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правдивая история о собаке-сержанте по кличке Стабби, получившей звание и награды за подвиги на Первой мировой войне. Бездомный голодающий щенок попал в добрые руки молодого солдата и стал членом его полка. Вместе со своей армейской семьёй пёс Стабби отправился на французский фронт, где участвовал в боях, спасал раненых и ловил шпионов.Производство: Ирландия, Франция / Fun Academy Media GroupЖанр: Мультфильм, приключения, семейный, военный, историяПеревод: Многоголосый профессиональный (HDrezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0A79234EA00996597429979E8D83040B400261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002981   (835927) от 07.04.2016
-
-Хороший динозавр / The Good Dinosaur (2015) BDRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835927.jpg" />
-</div>
-
-
-###  Подробнее
-
-По сюжету динозавры не вымерли, а эволюционировали в разумных существ и живут и здравствуют на Земле.
-А вот люди остались на довольно примитивной стадии развития. Фильм расскажет историю дружбы динозавра и маленького мальчика.Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Анимация, фэнтези, комедия, приключения, семейныйРежиссер: Питер СонАктеры: Джеффри Райт, Фрэнсис МакДорманд, Малиа Нипай-Падилья, Райан Типл, Джек МакГроу, Маркус Скрибнер, Рэймонд Очоа, Джек Брайт, Питер Сон, Стив ЗанПеревод: ДублированныйСубтитры: отсутствуютПродолжительность: 01:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510B45F353C04F255084721FDDA0EDB086E03A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652362   (835657) от 04.05.2013
-
-Пираты! Банда неудачников / The Pirates! Band of Misfits (2012) BDRip [H.264] [UKR, ENG]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Экранизация первой книги из серии романов писателя Гидеона Дефо, рассказывающих о банде незадачливых пиратов. В первой части пираты прибывают в Лондон, где знакомятся с молодым Чарльзом Дарвином и говорящим шимпанзе по имени Мистер Бобо, а также столкнутся с врагами, которые хотят их уничтожить.Жанр: мультфильм, приключения, семейныйРежиссер: Питер Лорд, Джефф НьюиттПеревод: ДублированныйПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BAB6B8B89E84C52E76460AAA8AB3056DC4894E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

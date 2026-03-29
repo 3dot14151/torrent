@@ -1,3 +1,118 @@
+###  Публикация: 1263599   (288262) от 19.11.2018
+
+Gabriel Amato - Parodi (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parodi (Original Mix)                                           [08:41]
+02. Parodi (Spacebeat Remix)                                        [08:31]
+03. Simbal (Original Mix)                                           [08:00]
+04. Simbal (Paul Sawyer Remix)                                      [08:06](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1264ECA5B86EDD5E9EB95BCF995F7EA7302123E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263594   (288258) от 19.11.2018
+
+Eli Spiral - Sol One (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sol One (Original Mix)                                          [08:35]
+02. Sol One (Magnovis Remix)                                        [07:46]
+03. Sol One (Willscape Remix)                                       [07:44]Жанр: Progressive HouseПродолжительность: 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B021CBD29E21C813F117358A74AAF7FED9D2BCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263468   (288129) от 19.11.2018
+
+VA - Dub Techno Moments VA (2018) GOS Music Studio [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno, Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_288129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volunteer - Selfreflection (13:26)
+ 02. Atimpuri - A@4 (Specdub Chillout Rmx) (04:58)
+ 03. Tender H - Prism (05:53)
+ 04. Substak - Vici (05:15)(   Читать дальше...   )Жанр: Dub Techno, Ambient, Techno, Minimal, Tech HouseПродолжительность: 02:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81A3ED328FEA4192C804F62A996E30F4F7692895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335458   (287890) от 02.11.2019
+
+Peel Seamus - Susurro (2019) Delsin Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Detroit Techno, Techno Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_287890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valve POD (03:02)
+ 02. Absence In Reality (02:09)
+ 03. Strawberry Hills (04:00)
+ 04. Black Mesa (02:31)(   Читать дальше...   )Жанр: Techno, Detroit Techno, Techno AmbientПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB89316825FDAED658C10B92E37C96BAFB051B77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963573   (287445) от 08.12.2015
 
 VA - Live in South Beach (Mixed by John Digweed) (2015) [FLAC|Lossless|WEB-DL]<Minimal, Progressive House, Tech House>
@@ -6,7 +121,7 @@ VA - Live in South Beach (Mixed by John Digweed) (2015) [FLAC|Lossless|WEB-DL]<M
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_287445.jpg" />
+  <img src="Z:/picture/008/save_picture_287445.jpg" />
 </div>
 
 
@@ -35,7 +150,7 @@ VA - A Guy In Buenos Aires (Mixed by Guy Mantzur) - 2016 [FLAC|Lossless|WEB-DL|t
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286630.jpg" />
+  <img src="Z:/picture/008/save_picture_286630.jpg" />
 </div>
 
 
@@ -64,7 +179,7 @@ VA - 3xA Mixed Series VI (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286538.jpg" />
+  <img src="Z:/picture/008/save_picture_286538.jpg" />
 </div>
 
 
@@ -93,7 +208,7 @@ VA - Alpine Grooves, Vol. 8 (Kristallhutte) (2016) [FLAC|Lossless|WEB-DL|tracks]
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286432.jpg" />
+  <img src="Z:/picture/008/save_picture_286432.jpg" />
 </div>
 
 
@@ -122,7 +237,7 @@ VA - A 40 Track Compilation : Edinburgh (2016) [FLAC|Lossless|WEB-DL|tracks] <Pr
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284889.jpg" />
+  <img src="Z:/picture/008/save_picture_284889.jpg" />
 </div>
 
 
@@ -151,7 +266,7 @@ DREDDD - Pain Deluxe (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Minimal>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284728.jpg" />
+  <img src="Z:/picture/008/save_picture_284728.jpg" />
 </div>
 
 
@@ -180,7 +295,7 @@ Sebastian Mullaert - A place called • Inkonst (2019) Kontra Musik [FLAC|Lossle
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284727.jpg" />
+  <img src="Z:/picture/008/save_picture_284727.jpg" />
 </div>
 
 
@@ -209,7 +324,7 @@ UHF - Flight To Anywhere EP (2019) Gladio Operations [FLAC|Lossless|Vinyl|tracks
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_284550.jpg" />
+  <img src="Z:/picture/008/save_picture_284550.jpg" />
 </div>
 
 
@@ -238,7 +353,7 @@ VA - In The Mix 007 (Airwave Progressive Sessions) (2018) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282891.jpg" />
+  <img src="Z:/picture/008/save_picture_282891.jpg" />
 </div>
 
 
@@ -267,7 +382,7 @@ Parra for Cuva - Paspatou (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chil
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_282883.jpg" />
+  <img src="Z:/picture/008/save_picture_282883.jpg" />
 </div>
 
 
@@ -296,7 +411,7 @@ SMX - Hinterland EP (2018) Blank Mind [FLAC|Lossless|WEB-DL|tracks] <Techno, Amb
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281242.jpg" />
+  <img src="Z:/picture/008/save_picture_281242.jpg" />
 </div>
 
 
@@ -325,7 +440,7 @@ Hardwell - United We Are Remixed (Extended Mixes) (2015) [FLAC|Lossless|WEB-DL]<
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280782.jpg" />
+  <img src="Z:/picture/008/save_picture_280782.jpg" />
 </div>
 
 
@@ -354,7 +469,7 @@ VA - Mixmag Germany Presents Kittball (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280754.jpg" />
+  <img src="Z:/picture/008/save_picture_280754.jpg" />
 </div>
 
 
@@ -383,7 +498,7 @@ Opus III - Guru Mother (1994) [APE|Lossless]<Vocal House, Ambient, Electronica>
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_280522.jpg" />
+  <img src="Z:/picture/008/save_picture_280522.jpg" />
 </div>
 
 
@@ -409,7 +524,7 @@ VA - From Disko to Disko (Winter 2018 Compilation) (2018) [FLAC|Lossless|WEB-DL|
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279167.jpg" />
+  <img src="Z:/picture/008/save_picture_279167.jpg" />
 </div>
 
 
@@ -438,7 +553,7 @@ Maruv - Black Water (2018) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Pop, R'
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277664.jpg" />
+  <img src="Z:/picture/008/save_picture_277664.jpg" />
 </div>
 
 
@@ -467,7 +582,7 @@ VA - Best Of Deep House Vol.06 (2017) [FLAC|Lossless|WEB-DL|tracks] <House,Deep 
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_277385.jpg" />
+  <img src="Z:/picture/008/save_picture_277385.jpg" />
 </div>
 
 
@@ -496,7 +611,7 @@ Caim - Flaneur (2018) Caim Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, El
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276607.jpg" />
+  <img src="Z:/picture/008/save_picture_276607.jpg" />
 </div>
 
 
@@ -525,7 +640,7 @@ Jan Blomqvist - Disconnected (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, D
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276491.jpg" />
+  <img src="Z:/picture/008/save_picture_276491.jpg" />
 </div>
 
 
@@ -554,7 +669,7 @@ Matt Darey - Wolf (Extended DJ Mixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_276142.jpg" />
+  <img src="Z:/picture/008/save_picture_276142.jpg" />
 </div>
 
 
@@ -583,7 +698,7 @@ VA - Anjunadeep 08 (Mixed by James Grant & Jody Wisternoff) (2016) [FLAC|Lossles
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275795.jpg" />
+  <img src="Z:/picture/008/save_picture_275795.jpg" />
 </div>
 
 
@@ -612,7 +727,7 @@ VA - Creativeness #1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hous
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_275003.jpg" />
+  <img src="Z:/picture/008/save_picture_275003.jpg" />
 </div>
 
 
@@ -626,122 +741,6 @@ VA - Creativeness #1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15A730F216F8245F6AA35E8EB27BFE41360CF23E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188640   (273748) от 03.12.2017
-
-VA - Tag Und Nacht (2016) Total Black [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phase Fatale - Totale (06:11)
-02. Blush Response - Scalebound (05:25)
-03. Stärker - Stark (06:14)
-04. SΛRIN - E.C.M. (04:20)(   Читать дальше...   )Жанр: Techno, Industrial, ExperimentalПродолжительность: 00:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D310AB6D1CD337C76328C1622F50221A4A632B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333686   (273717) от 11.11.2019
-
-Sansibar - Targeted Individuals (2019) FTP [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Programming (06:04)
- 02. Technology (03:47)
- 03. My Mind (05:02)
- 04. Meri (08:00)(   Читать дальше...   )Жанр: Electro, IDM, BreaksПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59757107369CF977CC370AF5C2FCD41202D5B136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337600   (273707) от 11.11.2019
-
-Grum - Deep State (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Progressive Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep State [02:17]
-02. Stay (feat. Natalie Shay) [08:12]
-03. Lose Control [05:38]
-04. Tomorrow (feat. Dom Youdan) [05:09](   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1431F4A9BF46AB579D916D169585D5B46D7CA19A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188635   (273687) от 03.12.2017
-
-Stärker (Stärker) - Substrate (2017) Hospital Productions [FLAC|Lossless|WEB-DL|tracks] <Techno, Industrial, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_273687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pedestal (06:48)
-02. Core (06:04)
-03. Theorem (06:55)
-04. Nether (06:54)Жанр: Techno, Industrial, ExperimentalПродолжительность: 00:26:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EE033BD8A92AC1430A74225A473417EEF382E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

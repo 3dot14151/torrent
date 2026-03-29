@@ -1,3 +1,138 @@
+###  Публикация: 1453935   (1026456) от 13.03.2021
+
+Дмитрий Романов | Курс Data Science и нейронные сети на Python (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Станьте Middle AI разработчиком за 7 месяцев и реализуйте собственный нейросетевой проект!Производство: Дмитрий РомановЖанр: Нейронные сетиПродолжительность: 15:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA101ABFE3A649CBE81DDE2FB5B73EE3CE44708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454419   (1026331) от 14.03.2021
+
+Udemy, Ervis Trupja | The Complete Guide to ASP.NET Core (.NET 5) Web API  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-API - это интерфейс прикладного программирования для Интернета. С помощью веб-API вы получаете доступ ко всем функциям HTTP, таким как URI, заголовки запроса / ответа, форматирование контента и т. Д.
+Этот курс научит вас всему, что вам нужно знать для создания личных или коммерческих приложений с использованием веб-API Asp.Net Core (.NET 5) в качестве среды разработки. (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 04:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BDD2A1F0A66733F2796C6F77E590722C19771A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454221   (1026314) от 14.03.2021
+
+Udemy, Maher Haddad | VLAN on MikroTik with LABS (RouterOS & SwOS) (2020) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настройка VLAN на продуктах MikroTik может быть проблемой. Существуют разные способы создания VLAN, и конфигурация отличается от продукта MikroTik к другому.
+По этой причине я создал этот курс, чтобы показать вам все возможные способы создания VLAN на продуктах MikroTik. Это будет включать настройку VLAN на RouterBoards с использованием RouterOS, на коммутаторах (   Читать дальше...   )Производство: UdemyЖанр: АдминистрированиеЯзык озвучки: АнглийскийПродолжительность: 02:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:797CEA1142E281390380799096D632D679F5F546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453506   (1026313) от 14.03.2021
+
+Udemy, Aviral Mishra | Complete Electronics Hardware Design Course 2021  (2021) PCRec [En / En Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Я разделил этот курс на 4 основных раздела:
+1-й раздел - это выбор каждого компонента, входящего в схему.
+2-й раздел - схематическое проектирование путем чтения таблиц данных.
+3-й стек 4L / 6L / 8L / 12L, планирование и выполнение компонентов.(   Читать дальше...   )Производство: UdemyЖанр: ЭлектроникаЯзык озвучки: АнглийскийПродолжительность: 22:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9CC9C31024BFC1D2048E000E1A1F6A564EF9886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454589   (1026193) от 15.03.2021
+
+Дегтярев Александр | Основы программирования на JavaScript. Условия (2021) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение курса по основам JavaScript для абсолютных новичков, где основной уклон сделан на "условия". Уроки имеют минимум теории, и каждый урок строится на задании, которое обучающийся должен выполнить сам, просто посмотрев на текущий код с использованием логического мышления.Жанр: Обучающее видеоПродолжительность: 01:06:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1700B8662A700A77D34ABD837D41029547FB17F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454715   (1026086) от 16.03.2021
 
 Udemy, Hardware Academy  | The Complete Electronics Course 2020: Analog Hardware Design (2020) PCRec [En / En Sub]
@@ -6,7 +141,7 @@ Udemy, Hardware Academy  | The Complete Electronics Course 2020: Analog Hardware
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026086.jpg" />
 </div>
 
 
@@ -32,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026076.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026076.jpg" />
 </div>
 
 
@@ -58,7 +193,7 @@ Udemy, BackSpace Academy | Amazon Web Services (AWS) Certified - 4 Certification
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025897.jpg" />
 </div>
 
 
@@ -87,7 +222,7 @@ AreaWeb, Михаил Протасевич | PHP — из блондинки в 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025873.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025873.jpg" />
 </div>
 
 
@@ -113,7 +248,7 @@ AreaWeb, Михаил Протасевич | Laravel 8 — лучший PHP фр
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025867.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025867.jpg" />
 </div>
 
 
@@ -139,7 +274,7 @@ ProfIT | Степанцев Альберт | Вуду регулярных вы�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025699.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025699.jpg" />
 </div>
 
 
@@ -166,7 +301,7 @@ Udemy, Fadi Nouh и др. | NodeJs: Build The Complete E-Commerce Web API [2021]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025604.jpg" />
 </div>
 
 
@@ -195,7 +330,7 @@ Udemy, Frank Ako | PHP 5 and 7 & SQL Queries with MySQL database hands on  (2021
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025585.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025585.jpg" />
 </div>
 
 
@@ -221,7 +356,7 @@ UralSOFT | Видеокурс Создание сборки Windows 8 UralSOFT (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025568.jpg" />
 </div>
 
 
@@ -250,7 +385,7 @@ Udemy, Igor Ovchinnikov | Project Management With MS Project - Scheduling Master
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025554.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025554.jpg" />
 </div>
 
 
@@ -278,7 +413,7 @@ UralSOFT | Видеокурс Создание сборки Windows 7 UralSOFT (
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025550.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025550.jpg" />
 </div>
 
 
@@ -307,7 +442,7 @@ Udemy, Andrei Dumitrescu | Linux Administration: Build 5 Hands-On Linux Projects
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025545.jpg" />
 </div>
 
 
@@ -335,7 +470,7 @@ Udemy, TCM Security, Heath Adams | Practical Ethical Hacking - The Complete Cour
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025541.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025541.jpg" />
 </div>
 
 
@@ -362,7 +497,7 @@ Udemy, Andrei Dumitrescu | Ethical Hacking and Network Security from Scratch 202
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025536.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025536.jpg" />
 </div>
 
 
@@ -388,7 +523,7 @@ Udemy, Edwin Diaz | PHP MVC Framework CodeIgniter Tutorial for Beginners Project
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025388.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025388.jpg" />
 </div>
 
 
@@ -416,7 +551,7 @@ Udemy, Anton Golosnichenko | Vanilla JavaScript [2021] - создаем клон
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025387.jpg" />
 </div>
 
 
@@ -444,7 +579,7 @@ Udemy, Andrei Neagoie и др. | JavaScript Web Projects: 20 Projects to Build Y
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025383.jpg" />
 </div>
 
 
@@ -471,7 +606,7 @@ Udemy, Anton Golosnichenko | Vanilla JavaScript с нуля на практик�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025356.jpg" />
 </div>
 
 
@@ -498,7 +633,7 @@ Infostart, Николай Бондаренко | 1С:Предприятие дл
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025341.jpg" />
 </div>
 
 
@@ -525,7 +660,7 @@ TalkPython, Michael Kennedy | Building Data-Driven Web Apps with Pyramid and SQL
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025260.jpg" />
 </div>
 
 
@@ -551,7 +686,7 @@ Udemy, Abhishek CSEPracticals и др. | Part A - Networking Projects - Implemen
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025256.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1025256.jpg" />
 </div>
 
 
@@ -563,141 +698,6 @@ Udemy, Abhishek CSEPracticals и др. | Part A - Networking Projects - Implemen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EA238E5906043D284B48E68393355EFF4662B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456002   (1025253) от 21.03.2021
-
-TalkPython, Michael Kennedy | Building Data-Driven Web Apps with Flask and SQLAlchemy (2019) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из областей, в которой Python действительно выделяется, - это создание чистых и мощных веб-приложений. После того, как вы освоите основы языка, этот курс научит вас всему, что нужно для создания современных веб-приложений, управляемых данными, на Python с помощью веб-фреймворка Flask.Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 09:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24DEE82366B758313F67D0ADE140714ADBC91F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456257   (1025242) от 21.03.2021
-
-Udemy, Abhishek CSEPracticals и др. | Part B - Networking Projects - Implement TCP/IP Stack in C  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в часть B серии курсов по разработке стека TCP / IP. Это продолжение Части A, в которой мы реализовали псевдо-стек TCP / IP, работающий в виртуализированной топологии.
-В этом курсе мы будем внедрять более продвинутые и дополнительные функции в наш стек Pseudo TCP / IP и постараемся придать ему более реалистичный вид.
-Мы продолжим с того места, где (   Читать дальше...   )Производство: UdemyЖанр: Администрирование, программированиеЯзык озвучки: АнглийскийПродолжительность: 07:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE2201CEB13DB04DEAB2BFC71B2435B2DAECD6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455994   (1025229) от 21.03.2021
-
-TalkPython, Michael Kennedy | Async Techniques and Examples in Python Course (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025229.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поддержка асинхронного и параллельного программирования в Python сильно недооценена. В этом курсе вы изучите весь спектр параллельных API Python. Мы начнем с рассмотрения новых и эффективных ключевых слов async и await вместе с базовым модулем: asyncio. Затем мы перейдем к потокам Python для распараллеливания старых операций и многопроцессорности для операций, связанных (   Читать дальше...   )Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 05:01:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639A2E3C7AEB6990D23E6422D8E32987D2D60B12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455985   (1025217) от 21.03.2021
-
-TalkPython, Michael Kennedy и др. | #100DaysOfCode in Python Course (2020) PCRec [En]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025217.jpg" />
-</div>
-
-
-###  Подробнее
-
-# 100DaysOfCode в Python - ваш идеальный компаньон, чтобы выдержать 100 дней работы над кодом и добиться успеха. Этот курс представляет собой видеоурок, состоящий из 1 части, и проекты, состоящие из 2 частей. Вы будете поражены тем, сколько технологий и библиотек Python вы узнаете на этом пути. Присоединяйтесь к курсу и приступайте к работе.
-100 дней кода - это не (   Читать дальше...   )Производство: TalkPythonЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 17:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA36DFAA1794D961CE93B83A2ECDAC5B763D5750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456166   (1025213) от 21.03.2021
-
-Udemy, Robert Petras | SwiftUI Masterclass 2021 - iOS 14 App Development & Swift 5  (2021) PCRec [En / En Sub]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Важное замечание перед записью на этот мастер-класс!
-Создание 50-часового курса с высококачественной производственной ценностью занимает много времени. Я не хочу заставлять вас ждать, поэтому я решил выпустить первую половину содержания до того, как закончу публикацию оставшихся лекций.
-Курс SwiftUI Masterclass, выпуск 2021 года, уже длится более 24 часов, и к концу (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 24:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC0112E0C1BD4E0ECD8C3EE197CB4515440E5DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

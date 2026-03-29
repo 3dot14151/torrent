@@ -1,3 +1,119 @@
+###  Публикация: 938515   (479995) от 19.09.2015
+
+Charles Lloyd - Nirvana (1968) /2014, Sony Music/ [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Island Blues [03:28]
+02.Carcara [01:47]
+03.Long Time, Baby [02:14]
+04.East Of The Sun (And West Of The Moon) [05:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:34:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15519395BD5967870E0B5643278D6D981AFFE72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938786   (479877) от 19.09.2015
+
+Frank Sinatra - The Voice (1955) /1994, Columbia/[FLAC|image+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I Don't Know Why (I Just Do) [02:51]
+02.Try A Little Tenderness [03:04]
+03.(I Don't Stand) A Ghost Of A Chance [03:16]
+04.Paradise [02:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B84B3CC9A2F12E2F23941AA56F71EBC4201F622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938767   (479875) от 19.09.2015
+
+John Pizzarelli - Midnight McCartney (2015) [FLAC|Lossless|WEB-DL]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silly Love Songs
+02. My Love
+03. Heart Of The Country
+04. Coming Up (feat. John Pizzarelli)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:625FF24C9D5624D73887FA1A7878FC6C16F4F50C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056733   (479728) от 26.09.2016
+
+Reinhard Flatischler - Megadrums Live (1988) Puls productions[APE|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_479728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Megadrums (traditional) [05:59]
+ 02.Dialog (traditional) [03:21]
+ 03.Dasotmori Live [10:07]
+ 04.The Call [18:15]Жанр: World Fusion, Ethnic JazzПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BE3ADAB9DE190D438DC6CCB7302DC6AEC91557
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056743   (479722) от 26.09.2016
 
 Ray Anderson - It Just So Happens (1987) Enja[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
@@ -6,7 +122,7 @@ Ray Anderson - It Just So Happens (1987) Enja[FLAC|Lossless|tracks + .cue] <Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479722.jpg" />
+  <img src="Z:/picture/008/save_picture_479722.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Joshua Redman & Brad Mehldau - Nearness (2011) 2016, Nonesuch Records[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479717.jpg" />
+  <img src="Z:/picture/008/save_picture_479717.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Earl Bostic - Four Classic Albums (1950 - 1958) 2CD, 2016, Avid Jazz [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479417.jpg" />
+  <img src="Z:/picture/008/save_picture_479417.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Abdullah Ibrahim - The Balance (2019) Gearbox Records [FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479416.jpg" />
+  <img src="Z:/picture/008/save_picture_479416.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Monty Alexander - Live at Maybeck Recital Hall, Vol.40 (1994) 1995, Concord Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479390.jpg" />
+  <img src="Z:/picture/008/save_picture_479390.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Norah Jones - Late Night Jones (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Contempo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479268.jpg" />
+  <img src="Z:/picture/008/save_picture_479268.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Herb Ellis - The Early Years (1956 - 1965) 4CD, 2020, Enlightenment [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478643.jpg" />
+  <img src="Z:/picture/008/save_picture_478643.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Muhal Richard Abrams - Afrisong (1975) 2009, Candid [FLAC|Lossless|tracks + .cue
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478258.jpg" />
+  <img src="Z:/picture/008/save_picture_478258.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Bob James - All Around The Town (2008) 2CD, KOCH Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478254.jpg" />
+  <img src="Z:/picture/008/save_picture_478254.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Jessica Molaskey - Portraits of Joni (2017) Ghostlight Records [FLAC|Lossless|tr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478165.jpg" />
+  <img src="Z:/picture/008/save_picture_478165.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Marlena - My Heart to Yours (2015) [FLAC|Lossless]<Vocal Jazz, Pop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478156.jpg" />
+  <img src="Z:/picture/008/save_picture_478156.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ The John Young Trio - A Touch Of Pepper (1962) /2013, Universal/ [FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478154.jpg" />
+  <img src="Z:/picture/008/save_picture_478154.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Kaempfert Plays Kaempfert - The Original (2011) [FLAC|tracks|WEB-DL]<Jazz-Pop, E
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478153.jpg" />
+  <img src="Z:/picture/008/save_picture_478153.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Amber Rock Association - Amber Rock (2015) [FLAC|Lossless|WEB-DL]<Jazz, Easy Lis
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478151.jpg" />
+  <img src="Z:/picture/008/save_picture_478151.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ John Carter & Bobby Bradford - Mosaic Select 36 (1969/1971/1972/1979) 3CD /2010,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478149.jpg" />
+  <img src="Z:/picture/008/save_picture_478149.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Dizzy Gillespie - Have Trumpet, Will Excite! (1959) /2015, Poll Winners Records/
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478148.jpg" />
+  <img src="Z:/picture/008/save_picture_478148.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ John Coltrane - Stellar Regions (1967) /2015, Universal/ [FLAC|tracks+.cue]<Avan
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478146.jpg" />
+  <img src="Z:/picture/008/save_picture_478146.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Karrin Allyson - Many A New Day Karrin Allyson Sings Rodgers & Hammerstein (2015
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478144.jpg" />
+  <img src="Z:/picture/008/save_picture_478144.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Rose Room - The High Life (2015) [FLAC|tracks|WEB-DL]<Jazz, Swing, Gypsy>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478025.jpg" />
+  <img src="Z:/picture/008/save_picture_478025.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Nils - Alley Cat (2015) [FLAC|Lossless]<Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477923.jpg" />
+  <img src="Z:/picture/008/save_picture_477923.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Art Blakey And The Jazz Messengers - Reflections In Blue (1978) Remaster, 2015, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477721.jpg" />
+  <img src="Z:/picture/008/save_picture_477721.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Iiro Rantala, Lars Danielsson, Peter Erskine - How Long Is Now? (2016) [FLAC|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477714.jpg" />
+  <img src="Z:/picture/008/save_picture_477714.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Iiro Rantala, Lars Danielsson, Peter Erskine - How Long Is Now? (2016) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22F11608792E225A94520DDC4D3BF28942976E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057064   (477713) от 27.09.2016
-
-Max Roach, Clifford Brown Quintet - Brownie Lives! (Live At Basin Street And In Concert At Carnegie Hall) 2005 [WavPack|Lossless|image + .cue] <Jazz, Hard bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477713.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Waltz Hot (7:44)
-2. I Feel A Song Comin' On (5:17)
-3. What's New (3:19)
-4. Daahoud (5:23)(   Читать дальше...   )Жанр: Jazz, Hard bopПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31505189B09FDCFB9A46C6B0F724AEB5FBE7EDC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057080   (477604) от 27.09.2016
-
-Billie Holiday - Lady In Satin (1958, 1959) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477604.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Lady In Satin:
-01.I'm a Fool to Want You [03:30]
-02.For Heaven's Sake [03:31]
-03.You Don't Know What Love Is [03:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6207B2F4D7396BCF4383ECDBE2850F49863E2101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406204   (477600) от 02.09.2020
-
-Lionel Hampton - Just Jazz (1947) 1990, MCA [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Dust [15:16]
-02. One O'Clock Jump [8:06]
-03. The Man I Love [13:50]
-04. Oh, Lady Be Good [7:09]Жанр: SwingПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB78CE065717D59B34F0DE7F59824BF377731116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057138   (477515) от 27.09.2016
-
-Nina Simone - 16 Top Tracks (1967-1971) 1988, BMG Music[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ain't Got No--I Got Life [02:16]
- 02.I Loves You Porgy [03:30]
- 03.Take My Hand Precious Lord [01:41]
- 04.To Love Somebody [02:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA2A353DFA6DB2A274E59469B3BE42421A8228C
 ```
 
 https://mybot314.ru/tekegram_catalog/

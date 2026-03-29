@@ -1,3 +1,114 @@
+###  Публикация: 1075521   (320595) от 22.11.2016
+
+Algoriddim djay Pro 1.4.2 (Complete FX Pack) [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Algoriddim djay Pro – это программа для управления и микширования музыкальной коллекции.
+Ее особенностью является наличие двух реалистичных виртуальных интерактивных вертушек, а также возможность записывать и передавать музыку через сеть Bonjour на подключенные к сети компьютеры с установленной программой. Программа поддерживает все основные форматы файлов, включая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 ноября 2016Разработчик: Algoriddim GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9AD7AC01086EF90CCAFDBD424427315FCFBDE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075449   (320102) от 22.11.2016
+
+iStat Menus 5.31 (705) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_320102.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat Menus 5 — лучшее приложение для контроля работы Mac
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем.
+
+Первым хочется пожелать и дальше наслаждаться работой, а вот вторым стоит обратить внимание на крупное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 ноября 2016Разработчик: BjangoПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Русский?!, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B29ED6F40F08D18A434293273E38BD4958ED366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421344   (319961) от 04.11.2020
+
+EagleFiler 1.9 [Multi/Ri]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319961.jpg" />
+</div>
+
+
+###  Подробнее
+
+EagleFiler - приложение, позволяющая собирать, организовывать и архивировать почту, веб-страницы, текстовые документы, изображения, PDF другие файлы из различных источников. Все файлы можно организовывать по папкам, добавлять к ним комментарии и заметки, прописывать тэги. А для безопасности всю эту библиотеку файлов можно зашифровать.
+
+EagleFiler позволяет создавать, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.10.2020Разработчик: C-Command Software, LLC.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC930F599F0D3460C3AB2A46128300BE09BEF81C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421372   (319960) от 04.11.2020
+
+Find Any File (FAF) 2.1.2b7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_319960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2020Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C751F0A2BBD1CFFFD4316AE7125A0FD09587B404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421380   (319958) от 04.11.2020
 
 iCollections 6 v6.6 [Multi]
@@ -6,7 +117,7 @@ iCollections 6 v6.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319958.jpg" />
+  <img src="Z:/picture/008/save_picture_319958.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ GrandTotal 6 v6.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319957.jpg" />
+  <img src="Z:/picture/008/save_picture_319957.jpg" />
 </div>
 
 
@@ -60,7 +171,7 @@ Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.0.1885 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319919.jpg" />
+  <img src="Z:/picture/008/save_picture_319919.jpg" />
 </div>
 
 
@@ -88,7 +199,7 @@ Allavsoft Video Downloader Converter 3.23.0.7610 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319917.jpg" />
+  <img src="Z:/picture/008/save_picture_319917.jpg" />
 </div>
 
 
@@ -114,7 +225,7 @@ Amadeus Pro 2.8.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319914.jpg" />
+  <img src="Z:/picture/008/save_picture_319914.jpg" />
 </div>
 
 
@@ -140,7 +251,7 @@ SpamSieve 2.9.40 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319912.jpg" />
+  <img src="Z:/picture/008/save_picture_319912.jpg" />
 </div>
 
 
@@ -168,7 +279,7 @@ DMG Canvas 3.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319908.jpg" />
+  <img src="Z:/picture/008/save_picture_319908.jpg" />
 </div>
 
 
@@ -194,7 +305,7 @@ Nevercenter CameraBag Pro 2020.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319898.jpg" />
+  <img src="Z:/picture/008/save_picture_319898.jpg" />
 </div>
 
 
@@ -220,7 +331,7 @@ iTrash 5 v5.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319897.jpg" />
+  <img src="Z:/picture/008/save_picture_319897.jpg" />
 </div>
 
 
@@ -246,7 +357,7 @@ FontLab 7 v7.2.0.7608 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319895.jpg" />
+  <img src="Z:/picture/008/save_picture_319895.jpg" />
 </div>
 
 
@@ -274,7 +385,7 @@ Export for iTunes 2.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319894.jpg" />
+  <img src="Z:/picture/008/save_picture_319894.jpg" />
 </div>
 
 
@@ -300,7 +411,7 @@ SideNotes 1.2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319891.jpg" />
+  <img src="Z:/picture/008/save_picture_319891.jpg" />
 </div>
 
 
@@ -326,7 +437,7 @@ Zoc Terminal 8.01.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319804.jpg" />
+  <img src="Z:/picture/008/save_picture_319804.jpg" />
 </div>
 
 
@@ -352,7 +463,7 @@ Exposure Software Eye Candy 7 v7.2.3.143 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319798.jpg" />
+  <img src="Z:/picture/008/save_picture_319798.jpg" />
 </div>
 
 
@@ -378,7 +489,7 @@ Total Video Converter Pro 4.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319707.jpg" />
+  <img src="Z:/picture/008/save_picture_319707.jpg" />
 </div>
 
 
@@ -404,7 +515,7 @@ iStat Menus 6 v6.50 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319693.jpg" />
+  <img src="Z:/picture/008/save_picture_319693.jpg" />
 </div>
 
 
@@ -431,7 +542,7 @@ Boom 2 v1.6.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319630.jpg" />
+  <img src="Z:/picture/008/save_picture_319630.jpg" />
 </div>
 
 
@@ -457,7 +568,7 @@ PhoneClean Pro 5.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319616.jpg" />
+  <img src="Z:/picture/008/save_picture_319616.jpg" />
 </div>
 
 
@@ -484,7 +595,7 @@ SuperDuper! 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319333.jpg" />
+  <img src="Z:/picture/008/save_picture_319333.jpg" />
 </div>
 
 
@@ -510,7 +621,7 @@ MediaHuman YouTube Downloader 3.9.8.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319330.jpg" />
+  <img src="Z:/picture/008/save_picture_319330.jpg" />
 </div>
 
 
@@ -539,7 +650,7 @@ Paste 1.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319273.jpg" />
+  <img src="Z:/picture/008/save_picture_319273.jpg" />
 </div>
 
 
@@ -567,7 +678,7 @@ iMazing 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319212.jpg" />
+  <img src="Z:/picture/008/save_picture_319212.jpg" />
 </div>
 
 
@@ -579,115 +690,6 @@ iMazing: отличная альтернатива iTunes
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C82F84BB336E5FC3259684C18D8147FABB19866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182060   (319206) от 09.11.2017
-
-Winclone Pro 6.1.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита Winclone. Или как проще всего клонировать Windows на Mac.
-По непонятным причинам стандартная Дисковая утилита не работает с Windows разделами на macOS: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования разделов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.11.2017Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7B8EA16A94B249784571FC1C96580F97CF78FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959060   (319120) от 23.11.2015
-
-SmartAlbums 2.0.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы: теперь легко
-SmartAlbums является революционным программным обеспечением, которое позволит создавать фотоальбомы быстро и весело! Простота установки, экономя время и творчество!
-
-Экспериментируйте с дизайном, перемешайте и размещайте фотографии ... Используйте готовые шаблоны или используйте возможность создать свой собственный. SmartAlbum, создан фотографами (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 12 ноября 2015Разработчик: PIXELLUПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86C4665A3395081884CA8C0F1011ED07BB2CA04F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959055   (318999) от 23.11.2015
-
-Aurora HDR Pro 1.0.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aurora HDR Pro, идеально подходит для фотографов всех уровней, обеспечивает полный набор самых современных инструментов для HDR фотографии. Это один из наиболее полных и мощных приложений HDR в мире. Совместный проект Macphun и Trey  Ratcliff, одного из выдающихся в мире в области  HDR фотографии с более чем 14 миллионов поклонников. Аврора HDR может помочь фотографам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 ноября 2015Разработчик: MacPhun SoftwareПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC0A66A19D3F2F8FC107FD400DB64762E16635E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259664   (318939) от 04.11.2018
-
-TG Pro (Temperature Gauge Pro) 2.33 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318939.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2018Разработчик: Tunabelly SoftwareПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71ECED1A596954D429092582C6EB779F2284C5DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

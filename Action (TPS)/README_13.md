@@ -1,3 +1,159 @@
+###  Публикация: 1210038   (778892) от 01.03.2018
+
+Oni / Они (2001) [Ru/En] (1.0/1.3AE) Repack R.G. Механики
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сочетание боевых искусств востока, сюжета и графики в стиле аниме, и фантастически красивых пейзажей мегаполиса XXI века – эта игра не оставит равнодушным никого. Настоящий шок! Новая эпоха в жанре экшн от 3-его лица. Год 2032. Ты – секретный агент спецслужб по имени Коноко. Твоя задача – уничтожить криминальный синдикат, угрожающий благополучию всей планеты.Тип издания: RepackРазработчик: Bungie SoftwareЖанр: Action (Shooter), Arcade (Fighting), 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE65F23274D935425CB1E4D246A4E93910B5BEA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211056   (778022) от 05.03.2018
+
+Assassin's Creed: Revelations / Assassin’s Creed: Откровения (2011) [Ru/Multi] (1.03/dlc) Repack xatab [Gold Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда одержана победа и враги покоятся в земле, что делать дальше? Где искать новую цель и сам смысл существования? В поисках ответов на эти вопросы мастер-ассасин Эцио Аудиторе отправляется на восток, на родину своего великого предка Альтаира, где ищет следы утерянной библиотеки ордена Ассасинов. Это полное опасностей путешествие обещает быть полным открытий и откровений.Тип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CED77417F392C5CCE6FED012270171C9F0C2C30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211274   (777688) от 06.03.2018
+
+Assassin’s Creed III / Assassin's Creed 3 (2012) [Ru/Multi] (1.06/dlc) Repack xatab
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777688.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы – ассасин Коннор, поклявшийся сохранить свободу и безопасность своего народа и своей страны. Для этого вам придется отправиться на охоту за своими врагами в огромный, открытый и совершенно реалистичный мир. В жестокой погоне вы пустите в ход все свои смертоносные навыки, перебираясь с оживленных городских улиц на поля кровавых сраженияТип издания: RepackРазработчик: Ubisoft MontrealЖанр: Action, 3D, 3rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2B8A9359E806545B92DAAD845CE29FCDE582E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211527   (777388) от 07.03.2018
+
+Brutal Legend (2013) [Multi] (1.0) License GOG
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777388.jpg" />
+</div>
+
+
+###  Подробнее
+
+На вашем экране оживет красочный, причудливый мир Brütal Legend, где полно хромированного металла, кожи, рокеров, эпической музыки, огнедышаших и утыканных пирсингом чудищ, горных кряжей из гитарных усилителей и многого другого. Отправляйтесь вместе с Эдди в разрушительное путешествие с топором, гитарой и толпами послушных слуг – навстречу эпическим битвам музыкальных (   Читать дальше...   )Тип издания: LicenseРазработчик: Double Fine ProductionsЖанр: Action, 3D, 3rd PersonЯзык озвучки: Английский, Немецкий, Французский, ИспанскийЯзык субтитров: Английский, Немецкий, Французский, Итальянский и другиеЯзык интерфейса: Английский, Немецкий, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C8AD12B1C9E3CC849BB35E6FD0B70867597D58B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548445   (777003) от 05.05.2016
+
+Grand Theft Auto 4 (2010) [Ru/En] (1.0.7.0/1.1.2) Repack R.G. Games [Complete Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_777003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Байкерский клуб «Пропащие» — разношерстная банда воров, убийц и торговцев наркотиками, признающая лишь собственные правила, которые ставят согласие в братстве выше закона. У президента клуба Билли Грея с жизненными приоритетами все просто: байки, выпивка, женщины, наркотики. Второй человек в банде, Джонни Клебитц, чувствует, что дни свободы и бесшабашного веселья (   Читать дальше...   )Тип издания: RePackРазработчик: Rockstar NorthЖанр: Action (Shooter), Racing, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00CEFC66DF47282B29980FFA372B25D02768C8CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211707   (776998) от 08.03.2018
+
+Senran Kagura Peach Beach Splash (2018) [Multi] (1.00) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_776998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senran Kagura: Peach Beach Splash - соревновательный шутер с видом от третьего лица про красивых девиц в бикини. Вооружившись водяным пистолетом, вам предстоит выступить против других подруг в разнообразных режимах с возможностью одновременной игры до 10 человек. Среди вооружения присутствуют различные водометалки, пистолеты, водные снайперские винтовки и даже водопулемёт (   Читать дальше...   )Тип издания: LicenseРазработчик: TamsoftЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Японский и другиеЯзык интерфейса: Английский, Японский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCEF8C3EC18A3CFDC0FEA6EC7296F3A00D54AAFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212538   (775580) от 12.03.2018
 
 Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.1.0) Repack =nemos= [Ultimate HD Edition]
@@ -6,7 +162,7 @@ Resident Evil 4 / Biohazard 4 (2014) [Ru/Multi] (1.1.0) Repack =nemos= [Ultimate
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775580.jpg" />
+  <img src="Z:/picture/008/save_picture_775580.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Forgotten Realms: Demon Stone (2004) [Ru/En] (1.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775565.jpg" />
+  <img src="Z:/picture/008/save_picture_775565.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Devil May Cry HD Collection (2018) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774873.jpg" />
+  <img src="Z:/picture/008/save_picture_774873.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Daymare: 1998 (2019) [Ru/Multi] (10545) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772431.jpg" />
+  <img src="Z:/picture/008/save_picture_772431.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Conan Exiles (2018) [Ru/Multi] (1.0.0.230672/25565) Repack xatab [Barbarian Edit
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770280.jpg" />
+  <img src="Z:/picture/008/save_picture_770280.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Watch Dogs / Watch_Dogs (2014) [Ru/En] (1.06.329/dlc) Repack xatab [Digital Delu
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767974.jpg" />
+  <img src="Z:/picture/008/save_picture_767974.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Haydee (2016) [Ru/Multi] (1.09.1) SteamRip Let'sPlay
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765940.jpg" />
+  <img src="Z:/picture/008/save_picture_765940.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Attack on Titan 2 - A.O.T.2 (2018) [Multi] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765624.jpg" />
+  <img src="Z:/picture/008/save_picture_765624.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Grand Theft Auto 4: Episodes from Liberty City [Ru] (L) 2010
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765496.jpg" />
+  <img src="Z:/picture/008/save_picture_765496.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Assault Gunners HD Edition (2018) [Multi] (1.0) License PLAZA
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764779.jpg" />
+  <img src="Z:/picture/008/save_picture_764779.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Solstice Chronicles: MIA (2017) [Ru/Multi] (1.03) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764136.jpg" />
+  <img src="Z:/picture/008/save_picture_764136.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Nanoui (2018) [En] (1.0.1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763890.jpg" />
+  <img src="Z:/picture/008/save_picture_763890.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ Legacy of Kain: Soul Reaver (1999) [Ru/En] (1.2) Repack Vasy@n
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763123.jpg" />
+  <img src="Z:/picture/008/save_picture_763123.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ Rune Classic / Руна (2000) [Ru/Multi] (1.10/dlc) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761032.jpg" />
+  <img src="Z:/picture/008/save_picture_761032.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Mars Taken (2018) [En] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761024.jpg" />
+  <img src="Z:/picture/008/save_picture_761024.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Absolver (2017) [Ru/Multi] (1.15.307/dlc) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761018.jpg" />
+  <img src="Z:/picture/008/save_picture_761018.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Shadwen (2016) [En/Multi] (1.0.0) License RELOADED
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760597.jpg" />
+  <img src="Z:/picture/008/save_picture_760597.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Smashing the Battle (2016) [En/Multi] (1.05) Repack АRMENIAC
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760500.jpg" />
+  <img src="Z:/picture/008/save_picture_760500.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Resident Evil Revelations 2 (2015) [Ru/En] (5.0/dlc) Repack =nemos= [Episode 1-4
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758702.jpg" />
+  <img src="Z:/picture/008/save_picture_758702.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Absolver (2017) [Ru/Multi] (1.29/dlc) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_749591.jpg" />
+  <img src="Z:/picture/005/save_picture_749591.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Absolver — одиночные и сетевые многопользовате
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC819817DE46D494EB3C53791AFC2633B12E4C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019514   (749476) от 23.05.2016
-
-POSTAL Redux (2016) [En] (1.1.0) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749476.jpg" />
-</div>
-
-
-###  Подробнее
-
-POSTAL Redux – римейк классической игры, где пользователю предлагается вжиться в роль безумного Чувака в не менее безумном мире. Кроме улучшенной графики, звуков, диалогов и осовремененного геймплея, POSTAL Redux содержит новый режим под названием Rampage Mode. В нем игроку нужно набрать как можно больше очков, совершая цепочки убийств и используя креативный подход (   Читать дальше...   )Тип издания: RepackРазработчик: Running With ScissorsЖанр: Arcade (Shoot'em up), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F728974650FEA21B197D3282E6D556CFD5ACF509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019562   (749472) от 23.05.2016
-
-Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/dlc) License PROPHET [Complete Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой Lost Planet 3 — пилот Джим Пейтон, принявший рискованное, но выгодное деловое предложение компании «Нео Венус Конструкции» (НЕВЕК). Вылетев с Земли на планету Э.Д.Н. III, которую компания подготавливает к колонизации, Джим присоединяется к товарищам-первопроходцам на базе Корониса. Там он приступает к исследованию территории и сбору образцов термальной энергииТип издания: LicenseРазработчик: Spark UnlimitedЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36D9E771322E30D4ED542F01C4CA6E65DFD7E17C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019848   (747876) от 24.05.2016
-
-Alekhine's Gun (2016) [Ru/Multi] (1.02) License CODEX
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шпионский экшен расскажет о судьбе бывшего полковника КГБ Алёхина, ставшего шпионом ЦРУ. Действие игры проходит в самый разгар Холодной Войны между СССР и США, и двойной агент Алехин оказывается втянутым в грязные дела разведок обеих стран.Тип издания: LicenseРазработчик: Maximum GamesЖанр: Action, Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5A86ED20B1B1DF09521CD8A1571DDC247B40980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019881   (747728) от 24.05.2016
-
-Alekhine's Gun (2016) [Ru/Multi] (1.02) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот шпионский экшен расскажет о судьбе бывшего полковника КГБ Алёхина, ставшего шпионом ЦРУ. Действие игры проходит в самый разгар Холодной Войны между СССР и США, и двойной агент Алехин оказывается втянутым в грязные дела разведок обеих стран.Тип издания: RepackРазработчик: Maximum GamesЖанр: Action, Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA33345B0290EB8C573271B6A9E70D31E1136A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523620   (747623) от 13.01.2022
-
-Shadow of the Tomb Raider (2018) [Ru/En] (1.0.458.0/dlc) Repack CoD - MW2 [Definitive Edition]
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откройте для себя последнюю главу о превращении Лары Крофт в расхитительницу гробниц. В игре Ларе предстоит пробраться через смертоносные джунгли и жуткие гробницы и пережить свой самый темный час. Спасая мир от апокалипсиса, предсказанного майя, она пройдет немало испытаний и выполнит свое предназначение, став настоящей расхитительницей гробниц.Тип издания: RepackРазработчик: Eidos-Montréal, Crystal Dynamics, Nixxes softwareЖанр: Action, Adventure, 3D, 3'rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3285A2A28D9816FA561BA381A11672431F3AD7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216695   (747473) от 01.04.2018
-
-Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747473.jpg" />
-</div>
-
-
-###  Подробнее
-
-1989 год. Развалины инкского храма в глубине джунглей. Эрнесто Крус только что прикончил последнего бандита. Можно перевести дух и полюбоваться россыпью тел на древних камнях, затем рывок до самолета DEA – и домой!.. Но домой он так и не попал. Родственникам сообщили, что Эрнесто скончался от передозировки. Две недели спустя его сын Томми, также агент DEA, попадает (   Читать дальше...   )Тип издания: LicenseРазработчик: Deadline GamesЖанр: Экшн, От третьего лица, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADAD0AF984CF00CA73215250EB19F60FE8E05A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ MovieSherlock 5.9.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746786.jpg" />
+  <img src="Z:/picture/008/save_picture_746786.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Hiren's BootCD 13.2 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746778.jpg" />
+  <img src="Z:/picture/008/save_picture_746778.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Wallpaper Engine 1.3.19 RePack by xetrin [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746763.jpg" />
+  <img src="Z:/picture/008/save_picture_746763.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Opera 69.0.3686.77 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746762.jpg" />
+  <img src="Z:/picture/008/save_picture_746762.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Google Chrome 84.0.4147.89 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746755.jpg" />
+  <img src="Z:/picture/008/save_picture_746755.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Google Chrome 84.0.4147.89 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746750.jpg" />
+  <img src="Z:/picture/008/save_picture_746750.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Sketch 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746726.jpg" />
+  <img src="Z:/picture/008/save_picture_746726.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746721.jpg" />
+  <img src="Z:/picture/008/save_picture_746721.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746720.jpg" />
+  <img src="Z:/picture/008/save_picture_746720.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746716.jpg" />
+  <img src="Z:/picture/008/save_picture_746716.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ SQLPro Studio 1.0.405 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746715.jpg" />
+  <img src="Z:/picture/008/save_picture_746715.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ RightFont 5 v5.3.2 (2319) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746714.jpg" />
+  <img src="Z:/picture/008/save_picture_746714.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746712.jpg" />
+  <img src="Z:/picture/008/save_picture_746712.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746711.jpg" />
+  <img src="Z:/picture/008/save_picture_746711.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ iClip - Clipboard Recorder & ClipArt Manager 5.2.6b8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746707.jpg" />
+  <img src="Z:/picture/008/save_picture_746707.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ WindowSwitcher 0.37 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746704.jpg" />
+  <img src="Z:/picture/008/save_picture_746704.jpg" />
 </div>
 
 
@@ -440,7 +440,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746703.jpg" />
+  <img src="Z:/picture/008/save_picture_746703.jpg" />
 </div>
 
 
@@ -469,7 +469,7 @@ Invisor - Media File Inspector 3.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746700.jpg" />
+  <img src="Z:/picture/008/save_picture_746700.jpg" />
 </div>
 
 
@@ -498,7 +498,7 @@ Android Studio 4.0.1 Build #AI-193.6911.18.40.6626763 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746649.jpg" />
+  <img src="Z:/picture/008/save_picture_746649.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ The Foundry Modo 14.0v2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746646.jpg" />
+  <img src="Z:/picture/008/save_picture_746646.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Adobe Flash Player 32.0.0.403 (Adobe Runtimes AllInOne 14.07.2020) RePack by elc
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746643.jpg" />
+  <img src="Z:/picture/008/save_picture_746643.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ Best Service - Halls of Fame 3 Complete Edition 3.1.7 VST, VST3, AAX (x86/x64) [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746619.jpg" />
+  <img src="Z:/picture/008/save_picture_746619.jpg" />
 </div>
 
 
@@ -606,7 +606,7 @@ Audirvana Plus 2.5.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746606.jpg" />
+  <img src="Z:/picture/008/save_picture_746606.jpg" />
 </div>
 
 
@@ -635,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746555.jpg" />
+  <img src="Z:/picture/008/save_picture_746555.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ E-Mantra - Tartarus (2019) [FLAC|Lossless|WEB-DL|tracks] <Goa Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746548.jpg" />
+  <img src="Z:/picture/008/save_picture_746548.jpg" />
 </div>
 
 
@@ -690,7 +690,7 @@ Auslogics BoostSpeed 10.0.22.0 DC 30.01.2019 RePack (& Portable) by KpoJIuK [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746543.jpg" />
+  <img src="Z:/picture/008/save_picture_746543.jpg" />
 </div>
 
 

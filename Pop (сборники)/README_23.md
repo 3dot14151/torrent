@@ -1,3 +1,58 @@
+###  Публикация: 309310   (842534) от 15.03.2011
+
+VA - Кино Шлягер Часть 2 (2011) [MP3|256 kbps]<Pop/Soundtrack>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_842534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/SoundtrackПродолжительность: 05:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098AABFE6DD30CBBED0F8520383064BA6778D8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500388   (840949) от 06.10.2021
+
+VA - Осень на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (Vadim Adamov & Hardphol) (3:11)
+02. Shouse - Love Tonight (HUBBA MRK Extended Remix) (4:34)
+03. Ed Sheeran - Bad Habits (Camp Kubrick Cover) (4:11)
+04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3D56CAA77C826577ADEA933696C3F41EC13B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309840   (840913) от 16.03.2011
 
 Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance >
@@ -6,7 +61,7 @@ Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840913.jpg" />
+  <img src="Z:/picture/008/save_picture_840913.jpg" />
 </div>
 
 
@@ -32,7 +87,7 @@ VA - Как Это Было. Хиты 80-х от Ретро Fm (2010) [MP3|256 k
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840700.jpg" />
+  <img src="Z:/picture/008/save_picture_840700.jpg" />
 </div>
 
 
@@ -58,7 +113,7 @@ VA - Как Это Было. Популярные Хиты 80-Х 90-Х. Выпу
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840659.jpg" />
+  <img src="Z:/picture/008/save_picture_840659.jpg" />
 </div>
 
 
@@ -84,7 +139,7 @@ VA - На волне позитива. Сборник № 4 (2017) [MP3|256 Kbps
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840210.jpg" />
+  <img src="Z:/picture/008/save_picture_840210.jpg" />
 </div>
 
 
@@ -113,7 +168,7 @@ VA - Положительный заряд от Хит FM выпуск № 2 (20
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840208.jpg" />
+  <img src="Z:/picture/008/save_picture_840208.jpg" />
 </div>
 
 
@@ -142,7 +197,7 @@ VA - Лучшая дискотека от Европы Плюс выпуск №
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840119.jpg" />
+  <img src="Z:/picture/008/save_picture_840119.jpg" />
 </div>
 
 
@@ -171,7 +226,7 @@ VA - Отдыхаем с лучшими хитами. Звездная тусо�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840113.jpg" />
+  <img src="Z:/picture/008/save_picture_840113.jpg" />
 </div>
 
 
@@ -200,7 +255,7 @@ VA - Megahits Best Of (2016) [MP3|320 кб/с] <Pop, Dance, Club>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840097.jpg" />
+  <img src="Z:/picture/008/save_picture_840097.jpg" />
 </div>
 
 
@@ -229,7 +284,7 @@ VA - Весна пришла. Лучшие хиты. Версия № 11 (2017) 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840024.jpg" />
+  <img src="Z:/picture/008/save_picture_840024.jpg" />
 </div>
 
 
@@ -258,7 +313,7 @@ VA - Танцевальная вечеринка Хит FM. Сборник № 3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840012.jpg" />
+  <img src="Z:/picture/008/save_picture_840012.jpg" />
 </div>
 
 
@@ -287,7 +342,7 @@ VA - Хиты в тачку. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839871.jpg" />
+  <img src="Z:/picture/008/save_picture_839871.jpg" />
 </div>
 
 
@@ -316,7 +371,7 @@ VA - Unknown 80's (part V) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839650.jpg" />
+  <img src="Z:/picture/008/save_picture_839650.jpg" />
 </div>
 
 
@@ -345,7 +400,7 @@ Va - СуперДискотЭКА 90-х Русский (2011) [MP3|256 kbps]<Dis
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839251.jpg" />
+  <img src="Z:/picture/008/save_picture_839251.jpg" />
 </div>
 
 
@@ -371,7 +426,7 @@ VA - Мегахит 200 Франция (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839112.jpg" />
+  <img src="Z:/picture/008/save_picture_839112.jpg" />
 </div>
 
 
@@ -397,7 +452,7 @@ VA - Shazam Хит-парад Russia Top 100 Апрель (2020) [MP3|320 Kbps] 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838926.jpg" />
+  <img src="Z:/picture/008/save_picture_838926.jpg" />
 </div>
 
 
@@ -426,7 +481,7 @@ VA - Молодежный хитовый бум. Выпуск № 6 (2017) [MP3|
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838635.jpg" />
+  <img src="Z:/picture/008/save_picture_838635.jpg" />
 </div>
 
 
@@ -455,7 +510,7 @@ VA - German Top 50 Official Dance Charts 10.03.2017 (2017) [MP3|320 Kbps] <Pop ,
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838630.jpg" />
+  <img src="Z:/picture/008/save_picture_838630.jpg" />
 </div>
 
 
@@ -484,7 +539,7 @@ VA - German Top 100 Single Charts 10.03. (2017) [MP3|320 Kbps] <Pop , Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838418.jpg" />
+  <img src="Z:/picture/008/save_picture_838418.jpg" />
 </div>
 
 
@@ -513,7 +568,7 @@ VA - Только хиты. Русский сборник от Хит fm вып�
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838313.jpg" />
+  <img src="Z:/picture/008/save_picture_838313.jpg" />
 </div>
 
 
@@ -542,7 +597,7 @@ VA - Весенний Популярный Русский Хит (2016) [MP3|256
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838185.jpg" />
+  <img src="Z:/picture/008/save_picture_838185.jpg" />
 </div>
 
 
@@ -571,7 +626,7 @@ VA - Горячая Дискотека По-Заявкам (2016) [MP3|256-320 �
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838064.jpg" />
+  <img src="Z:/picture/008/save_picture_838064.jpg" />
 </div>
 
 
@@ -600,7 +655,7 @@ VA - Звездный Суперхит 50/50 (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837908.jpg" />
+  <img src="Z:/picture/008/save_picture_837908.jpg" />
 </div>
 
 
@@ -626,7 +681,7 @@ VA - Radio Record present: Progressive House (2011) [MP3|256 kbps]<Club, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_837895.jpg" />
+  <img src="Z:/picture/009/save_picture_837895.jpg" />
 </div>
 
 
@@ -652,7 +707,7 @@ VA - Hits Cocktail vol.2 (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835174.jpg" />
+  <img src="Z:/picture/008/save_picture_835174.jpg" />
 </div>
 
 
@@ -666,64 +721,6 @@ VA - Hits Cocktail vol.2 (2017) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A1E28C6B4C0E21EBC7EF8EAD2EB2722CE587AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113991   (835103) от 13.03.2017
-
-VA - Radio Top Music FM - February (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_835103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) (4:11)
-02. Егор Крид - Мало так мало (3:06)
-03. Steve Aoki & Louis Tomlinson - Just Hold On (Original Mix) (3:19)
-04. Matthew Koma - Kisses Back (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC721A91C125028006425997CB04F74F3BC067CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501155   (835035) от 10.10.2021
-
-VA - Top 100: Deluxe Disco Party (2021) [MP3|320 Kbps] <Disco, Dance, Remastering>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835035.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ltg Long Travel Groove - Lost My Funk
-002. Flamingo Pier - Last Call
-003. Jackie Stoudemire - Flying High
-004. Rudy's Midnight Machine - La Cadenza(   Читать дальше...   )Жанр: Disco, Dance, RemasteringПродолжительность: 09:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C921131B5D32A77FB81098100C10E5D51E0D1CBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

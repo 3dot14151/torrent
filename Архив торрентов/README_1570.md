@@ -1,3 +1,61 @@
+###  Публикация: 1133404   (695278) от 12.05.2017
+
+Баскетбол. НБА 2016-2017. Восток. 1/4 Финала. 5-й матч. Торонто Рэпторс – Милуоки Бакс (24.04.2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_695278.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 апреля 2017, вторник. 02:00 МСК
+НБА 2016-2017. Восточная конференция. Плей-офф. Первый раунд
+1/4 Финала. 5-й матч
+Торонто Рэпторс – Милуоки Бакс(   Читать дальше...   )Телекомпания: TSNЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87774DA9F982204852861A63BA2351DD32F0B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133415   (695277) от 12.05.2017
+
+Баскетбол. НБА 2016-2017. Запад. 1/4 Финала. 5-й матч. Сан-Антонио Спёрс – Мемфис Гриззлиз (25.04.2017) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_695277.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 апреля 2017, среда. 04:00 МСК
+НБА 2016-2017. Западная конференция. Плей-офф. Первый раунд
+1/4 Финала. 5-й матч
+Сан-Антонио Спёрс – Мемфис Гриззлиз(   Читать дальше...   )Телекомпания: Fox SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F31EF64350FA6F55BDBCB45D2DD275E4F2DD22FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133418   (695276) от 12.05.2017
 
 Баскетбол. НБА 2016-2017. Запад. 1/4 Финала. 5-й матч. Хьюстон Рокетс – Оклахома-Сити Тандер (25.04.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -6,7 +64,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695276.jpg" />
+  <img src="Z:/picture/008/save_picture_695276.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695275.jpg" />
+  <img src="Z:/picture/008/save_picture_695275.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695274.jpg" />
+  <img src="Z:/picture/008/save_picture_695274.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695273.jpg" />
+  <img src="Z:/picture/008/save_picture_695273.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695272.jpg" />
+  <img src="Z:/picture/008/save_picture_695272.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695271.jpg" />
+  <img src="Z:/picture/008/save_picture_695271.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695251.jpg" />
+  <img src="Z:/picture/008/save_picture_695251.jpg" />
 </div>
 
 
@@ -206,7 +264,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695205.jpg" />
+  <img src="Z:/picture/008/save_picture_695205.jpg" />
 </div>
 
 
@@ -235,7 +293,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695204.jpg" />
+  <img src="Z:/picture/008/save_picture_695204.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Trance Anthems Vol.3 (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695203.jpg" />
+  <img src="Z:/picture/008/save_picture_695203.jpg" />
 </div>
 
 
@@ -293,7 +351,7 @@ VA - Uplifting Only Top 15: May (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695199.jpg" />
+  <img src="Z:/picture/008/save_picture_695199.jpg" />
 </div>
 
 
@@ -322,7 +380,7 @@ iGallery Pro — Best Instagram Uploader 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695196.jpg" />
+  <img src="Z:/picture/008/save_picture_695196.jpg" />
 </div>
 
 
@@ -351,7 +409,7 @@ PatterNodes 1.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695193.jpg" />
+  <img src="Z:/picture/008/save_picture_695193.jpg" />
 </div>
 
 
@@ -380,7 +438,7 @@ VA - Global DJ Broadcast: Top 20 May (2017) [MP3|320 Kbps] <Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695190.jpg" />
+  <img src="Z:/picture/008/save_picture_695190.jpg" />
 </div>
 
 
@@ -409,7 +467,7 @@ BitTorrent - Torrent Downloads 3.2 [Ru]
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695178.jpg" />
+  <img src="Z:/picture/008/save_picture_695178.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ NASCAR. Xfinity Series 2018. My Bariatric Solutions 300 (07.04.2018) HDTVRip [H.
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695140.jpg" />
+  <img src="Z:/picture/008/save_picture_695140.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ TaskPaper 3.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695136.jpg" />
+  <img src="Z:/picture/008/save_picture_695136.jpg" />
 </div>
 
 
@@ -494,7 +552,7 @@ TouchCopy 16.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695131.jpg" />
+  <img src="Z:/picture/008/save_picture_695131.jpg" />
 </div>
 
 
@@ -523,7 +581,7 @@ FonePaw Video Converter Ultimate 2.1.0 RePack by вовава [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695130.jpg" />
+  <img src="Z:/picture/008/save_picture_695130.jpg" />
 </div>
 
 
@@ -549,7 +607,7 @@ Direct Message for Instagram Pro 4.1.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695128.jpg" />
+  <img src="Z:/picture/008/save_picture_695128.jpg" />
 </div>
 
 
@@ -577,7 +635,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695123.jpg" />
+  <img src="Z:/picture/008/save_picture_695123.jpg" />
 </div>
 
 
@@ -603,7 +661,7 @@ RobotSoft Automatic Mouse and Keyboard 5.2.5.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695104.jpg" />
+  <img src="Z:/picture/008/save_picture_695104.jpg" />
 </div>
 
 
@@ -629,7 +687,7 @@ Nero 2015 Plus RePack by MKN (08-05-2015) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695100.jpg" />
+  <img src="Z:/picture/008/save_picture_695100.jpg" />
 </div>
 
 
@@ -655,7 +713,7 @@ Happy Dance Collection[Wii] [NTSC-J] [Jaр] (2008)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695060.jpg" />
+  <img src="Z:/picture/008/save_picture_695060.jpg" />
 </div>
 
 
@@ -666,58 +724,6 @@ Happy Dance Collection[Wii] [NTSC-J] [Jaр] (2008)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A74F1FE24FC1A505F290BACE888BED49C5ECC06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133561   (695045) от 12.05.2017
-
-Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.05.12) WEB-DL [H.264/720p-LQ] (сезон 2, выпуск 18)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695045.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Импровизация» — это новое непредсказуемое комедийное шоу от Comedy Club Production. В нём нет сценария и всё, происходящее на сцене, придумывается участниками на ходу. Под управлением ведущего Павла Воли четыре комика и один звездный гость оказываются в самых странных ситуациях — и выбираются из них с юмором. Прежде, чем попасть на экран, четыре участника «Импровизации» (   Читать дальше...   )Телекомпания: ТНТЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: ~ 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D744CE09E336C9EAF6C76BBAD7C3DD61084426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132097   (695044) от 12.05.2017
-
-Слишком близко к дому / Too Close to Home (2016) WEBRip [H.264] (сезон 2, серии 1-8 из 8) ColdFilm [MP4|720x400] [AD]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695044.jpg" />
-</div>
-
-
-###  Подробнее
-
-История молодой женщины скромного воспитания, умудрившуюся пробиться на политическую сцену в Вашингтоне. Когда Анна покидает свой дом в трейлерном парке, она рвёт все связи с прошлым, с родными и друзьями. Её новые богатые друзья в Вашингтоне ничего не подозревают о прошлом Анны до тех пор, пока она не попадает в крупный политический скандал, что вынуждает её искать (   Читать дальше...   )Производство: США / Tyler Perry StudiosЖанр: драмаРежиссер: Тайлер ПерриАктеры: Брук Энн Смит, Брэд Бенедикт, Даниэль Савре, Бритт Джордж, Келли Салливан, Брок О’Херн, Энни Трэш и др.Перевод: Двуголосый закадровый, любительский - ColdfilmПродолжительность: ~00:43:00 серияРеклама: присутствуют аудио и видео вставки рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C4083C267932788D4D35142FCB63DA86D078C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

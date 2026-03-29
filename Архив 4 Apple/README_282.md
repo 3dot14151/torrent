@@ -1,3 +1,112 @@
+###  Публикация: 1028966   (686766) от 24.06.2016
+
+Script Debugger 5.0.11 (706) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Script Debugger предлагает пользователям всё, что необходимо для быстрого создания авторских скриптов AppleScript. Ни одна из утилит не сравнится с Script Debugger в быстроте и простоте создания, редактирования и отладки скриптов AppleScript. Встроенный браузер Dictionary предлагает пользователю больше информации, чем любая другая утилита.
+
+Редактор полностью поддерживает (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 13 июня 2016Разработчик: Late Night Software LtdПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D248806A43C0191BA848C3614295F1A81986584F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028885   (686765) от 24.06.2016
+
+iA Writer 3.2.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686765.jpg" />
+</div>
+
+
+###  Подробнее
+
+iA Writer — фон, шрифт и курсор
+Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23 июня 2016Разработчик: Information Architects Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA7E61867FDA3E8E38039E0E5F2367C6C9176937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289581   (686755) от 16.03.2019
+
+KCNcrew Pack 15-3-19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686755.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.03.2019Разработчик: iSerialПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A2CB501A15A5E942DEFBEADCA3EA62C690E18CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222269   (686740) от 28.04.2018
+
+Luminar 2018 v1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_686740.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
+
+Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Macphun SoftwareПоддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0653FD787FBBB676F4737734ADBE8DB56248D4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028915   (686656) от 24.06.2016
 
 VirtualHostX 7.1.6 & Hostbuddy 1.0.3 [En]
@@ -6,7 +115,7 @@ VirtualHostX 7.1.6 & Hostbuddy 1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686656.jpg" />
+  <img src="Z:/picture/008/save_picture_686656.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ FilePane 1.9.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686649.jpg" />
+  <img src="Z:/picture/008/save_picture_686649.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ Movavi Photo Editor 4 v4.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686524.jpg" />
+  <img src="Z:/picture/008/save_picture_686524.jpg" />
 </div>
 
 
@@ -86,7 +195,7 @@ Keka 1.1.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686122.jpg" />
+  <img src="Z:/picture/008/save_picture_686122.jpg" />
 </div>
 
 
@@ -113,7 +222,7 @@ Beauty Retouch Panel v 3.0, 3.1 and Pixel Juggler v2 for Photoshop [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685940.jpg" />
+  <img src="Z:/picture/008/save_picture_685940.jpg" />
 </div>
 
 
@@ -141,7 +250,7 @@ Instastack for Instagram 1.83 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685638.jpg" />
+  <img src="Z:/picture/008/save_picture_685638.jpg" />
 </div>
 
 
@@ -170,7 +279,7 @@ DjVu Reader Pro 2.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685566.jpg" />
+  <img src="Z:/picture/008/save_picture_685566.jpg" />
 </div>
 
 
@@ -198,7 +307,7 @@ QLab Pro 3.1.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685342.jpg" />
+  <img src="Z:/picture/008/save_picture_685342.jpg" />
 </div>
 
 
@@ -226,7 +335,7 @@ Cookie 5.5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685218.jpg" />
+  <img src="Z:/picture/008/save_picture_685218.jpg" />
 </div>
 
 
@@ -255,7 +364,7 @@ Hazel 4.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685216.jpg" />
+  <img src="Z:/picture/008/save_picture_685216.jpg" />
 </div>
 
 
@@ -281,7 +390,7 @@ Perfectly Clear Plugin for Photoshop and Lightroom 2.0.1.16 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685090.jpg" />
+  <img src="Z:/picture/008/save_picture_685090.jpg" />
 </div>
 
 
@@ -309,7 +418,7 @@ Data Guardian 3.3.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685079.jpg" />
+  <img src="Z:/picture/008/save_picture_685079.jpg" />
 </div>
 
 
@@ -335,7 +444,7 @@ Light Fall (2018) [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_685047.jpg" />
+  <img src="Z:/picture/008/save_picture_685047.jpg" />
 </div>
 
 
@@ -363,7 +472,7 @@ beaTunes 4.6.15 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684973.jpg" />
+  <img src="Z:/picture/008/save_picture_684973.jpg" />
 </div>
 
 
@@ -392,7 +501,7 @@ Audio Hijack 3.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684972.jpg" />
+  <img src="Z:/picture/008/save_picture_684972.jpg" />
 </div>
 
 
@@ -420,7 +529,7 @@ BATTLETECH  v. 270b DLC [En] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684930.jpg" />
+  <img src="Z:/picture/008/save_picture_684930.jpg" />
 </div>
 
 
@@ -448,7 +557,7 @@ Sierra Cache Cleaner 11.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684864.jpg" />
+  <img src="Z:/picture/008/save_picture_684864.jpg" />
 </div>
 
 
@@ -476,7 +585,7 @@ TG Pro (Temperature Gauge Pro) 2.20 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684855.jpg" />
+  <img src="Z:/picture/008/save_picture_684855.jpg" />
 </div>
 
 
@@ -503,7 +612,7 @@ Hollow Knight – Lifeblood v 1.3.1.5 [Multi/Ru] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684822.jpg" />
+  <img src="Z:/picture/008/save_picture_684822.jpg" />
 </div>
 
 
@@ -531,7 +640,7 @@ Capture Gif 1.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684664.jpg" />
+  <img src="Z:/picture/008/save_picture_684664.jpg" />
 </div>
 
 
@@ -560,7 +669,7 @@ BusyContacts 1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684647.jpg" />
+  <img src="Z:/picture/008/save_picture_684647.jpg" />
 </div>
 
 
@@ -588,7 +697,7 @@ BusyCal 3.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684644.jpg" />
+  <img src="Z:/picture/008/save_picture_684644.jpg" />
 </div>
 
 
@@ -600,118 +709,6 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0888EAE75996A5170FA20A20E4BDA51AD33A7070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135053   (684584) от 17.05.2017
-
-Direct Message for Instagram Pro 4.1.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684584.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправка и получение прямых сообщений для Instagram с вашего Mac. Первое и единственное приложение для Mac, которые может это сделать!
-
-Примечание: Аккаунт Instagram требуется для использования этого приложения. Если его у вас нет, пожалуйста, зарегистрируйтесь из Instagram приложения на вашем смартфоне.Тип издания: macOS SoftwareРелиз состоялся: 17 мая 2017Разработчик: ThinkTime CreationsПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEA4A4CC5978A45E080193E7639A91E9A711B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029103   (684550) от 25.06.2016
-
-Fluid Browser 1.2.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684550.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fluid Browser - Создан для многозадачности
-Fluid  представляет собой «плаваующий» браузер, построенный для просмотра ваших любимых страниц с медиаконтентом, как Netflix, Youtube и Hulu прямо рядом с вашей работой. Fluid работает так же, как любой другой браузер, но со своими отличительными особенностями …
-
-Fluid находится поверх открытых приложений и может быть легко (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 24 июня 2016Разработчик: Defy Marketing LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E66A2E0E561CCDF368543CE3B1B1FCA173814EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029101   (684420) от 25.06.2016
-
-Murus Pro 1.4.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький и удобный PF сетевого брандмауэра, что позволяет настроить сложные сети с простыми и интуитивно понятными действиями.
-
-Некоторое время назад OS X поставляется с двумя брандмауэрами по умолчанию установлены, IPFW и IPFW 2. Несмотря на то, что IPFW работал блестяще, с выходом OS X 10.7, все версии OS X перешли на OpenBSD PF (сокращенно Packet Filter ) решение, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: июнь 2016Разработчик: murus.itПоддерживаемая ОС: OS X 10.9.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A8ED7658B66BE3C1AE464D6FD17BBD06DB3472D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029242   (684418) от 25.06.2016
-
-1Blocker - Block ads, tracking scripts, anything 1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1Blocker - блокировка рекламы
-Не поиск и отсеивание рекламы является целью деятельности данной системы, но мониторинг веб-активности конкретной рабочей станции в целом. В составе 1Blocker более 7000 предактивированных отдельных механизмов и блокираторов, нацеленных на персональных противников. В роли таковых выступают скрипты, всплывающие объявления, роботы аналитических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09.06.2016Разработчик: Salavat KhanovПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C469381282521DEB62B475DC2D2B811926D2B71
 ```
 
 https://mybot314.ru/tekegram_catalog/

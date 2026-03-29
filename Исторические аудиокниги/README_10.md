@@ -1,3 +1,55 @@
+###  Публикация: 1007195   (819546) от 16.04.2016
+
+Георгий Вернадский | Русская история (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_819546.jpg" />
+</div>
+
+
+###  Подробнее
+
+Г.В. Вернадский, крупнейший историк русского зарубежья, один из основателей евразийства, в 1927 году написал для студентов американских университетов учебник по русской истории, который дорабатывал, включая новейшие материалы, вплоть до 1969 г. Книга выдержала множество переизданий на иностранных языках. В последней редакции охватывается период с Древней Руси до (   Читать дальше...   )Жанр: ИсторияПродолжительность: 27:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C719F89FFFE6C3C3ECE01BC1CD7DB9C3010C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196817   (818768) от 05.01.2018
+
+Виктор Земсков | Сталин и народ. Почему не было восстания (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Исторические аудиокниги
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_818768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из главных тем в советской истории – отношение народа к И.В. Сталину. Почему народ поддерживал его, несмотря на жесткую политику в отношении крестьянства, на репрессии, на тяжелые потери в Великой Отечественной войне? Историки либерального толка объясняют это «рабской психологией» русского народа, его привычкой обожествлять верховного правителя. Автор данной (   Читать дальше...   )Жанр: Общая историяПродолжительность: 09:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2C50F7B407198813340C56CDDEE92DF403DE80A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007895   (817751) от 17.04.2016
 
 Василий Ян | Александр Македонский. Огни на курганах (2016) [MP3]
@@ -6,7 +58,7 @@
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817751.jpg" />
+  <img src="Z:/picture/008/save_picture_817751.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817740.jpg" />
+  <img src="Z:/picture/008/save_picture_817740.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817604.jpg" />
+  <img src="Z:/picture/008/save_picture_817604.jpg" />
 </div>
 
 
@@ -85,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817450.jpg" />
+  <img src="Z:/picture/008/save_picture_817450.jpg" />
 </div>
 
 
@@ -111,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817442.jpg" />
+  <img src="Z:/picture/008/save_picture_817442.jpg" />
 </div>
 
 
@@ -137,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817372.jpg" />
+  <img src="Z:/picture/008/save_picture_817372.jpg" />
 </div>
 
 
@@ -163,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815706.jpg" />
+  <img src="Z:/picture/008/save_picture_815706.jpg" />
 </div>
 
 
@@ -190,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814009.jpg" />
+  <img src="Z:/picture/008/save_picture_814009.jpg" />
 </div>
 
 
@@ -216,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813741.jpg" />
+  <img src="Z:/picture/008/save_picture_813741.jpg" />
 </div>
 
 
@@ -242,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813449.jpg" />
+  <img src="Z:/picture/008/save_picture_813449.jpg" />
 </div>
 
 
@@ -268,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811627.jpg" />
+  <img src="Z:/picture/008/save_picture_811627.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809786.jpg" />
+  <img src="Z:/picture/008/save_picture_809786.jpg" />
 </div>
 
 
@@ -322,7 +374,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808392.jpg" />
+  <img src="Z:/picture/008/save_picture_808392.jpg" />
 </div>
 
 
@@ -348,7 +400,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807821.jpg" />
+  <img src="Z:/picture/008/save_picture_807821.jpg" />
 </div>
 
 
@@ -374,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806287.jpg" />
+  <img src="Z:/picture/008/save_picture_806287.jpg" />
 </div>
 
 
@@ -400,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805479.jpg" />
+  <img src="Z:/picture/008/save_picture_805479.jpg" />
 </div>
 
 
@@ -426,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805477.jpg" />
+  <img src="Z:/picture/008/save_picture_805477.jpg" />
 </div>
 
 
@@ -453,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804197.jpg" />
+  <img src="Z:/picture/008/save_picture_804197.jpg" />
 </div>
 
 
@@ -481,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804193.jpg" />
+  <img src="Z:/picture/008/save_picture_804193.jpg" />
 </div>
 
 
@@ -507,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802429.jpg" />
+  <img src="Z:/picture/008/save_picture_802429.jpg" />
 </div>
 
 
@@ -534,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801928.jpg" />
+  <img src="Z:/picture/008/save_picture_801928.jpg" />
 </div>
 
 
@@ -560,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801701.jpg" />
+  <img src="Z:/picture/008/save_picture_801701.jpg" />
 </div>
 
 
@@ -588,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801243.jpg" />
+  <img src="Z:/picture/008/save_picture_801243.jpg" />
 </div>
 
 
@@ -614,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Исторические аудиокниги
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797622.jpg" />
+  <img src="Z:/picture/008/save_picture_797622.jpg" />
 </div>
 
 
@@ -627,59 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF9BCB389E886256E6541B8330F319C844BE5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010964   (797612) от 26.04.2016
-
-Мартин Линдау | Борджиа (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европа, начало ХVI века, эпоха хаоса и красоты. В Италии правит Папа Римский Александр VI, отец двух сыновей: герцога Гольдийского – Борджиа и жестокого и коварного Цезаря Борджиа, а так же красавицы – дочери Лукреции. Эпоха возрождения много потеряла бы в своей красочности и выразительности, если бы на фоне ее не было такой фигуры как Цезарь Борджиа: он одновременно (   Читать дальше...   )Жанр: Исторические приключенияПродолжительность: 25:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D1205C83790AB6210AEA5B056754413488DC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011267   (797024) от 27.04.2016
-
-Константин Масальский | Осада Углича (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Исторические аудиокниги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797024.jpg" />
-</div>
-
-
-###  Подробнее
-
-В повести "Осада Углича" рассказывается о неудачной попытке поляков захватить русский город Углич в период Смутного времени.
-Константин Масальский — популярный русский писатель середины XIX века — был широко известен как автор многочисленных исторических романов. Его роман «Стрельцы» воссоздает перед нами события конца XVII и начала XVIII веков, времена (   Читать дальше...   )Жанр: Историческая прозаПродолжительность: 02:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A2099D9F2430B7980AFD1D7E9C763846FD0367
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1269461   (219218) от 15.12.2018
+
+Конрад и Мишель: Если бы слова могли убивать / Conrad & Michelle: If Words Could Kill (2018) HDTVRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_219218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман двух подростков, Конрада и Мишель, заканчивается трагедией. Парень совершает самоубийство, девушка осуждается за непредумышленное убийство — ведь именно она подтолкнула парня свести счёты с жизнью.Производство: США / PeaceOut ProductionsЖанр: ДрамаРежиссер: Стивен ТолкинАктеры: Белла Торн, Остин П. МакКензи, Пола Маршалл, Lydia Meredith, Sienna Novikov, Родни Роулэнд, Мишель Борт, Кортни, Дитц, Келли Ламор Уилсон, Альфа ТриветтПеревод: Двуголосый закадровый, любительский LakeFilmsСубтитры: отсутствуютПродолжительность: 01:19:11Реклама: Присутствуют вставки видео рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D635B36FE828CAC701FD5B6EEC22D747A0DC6191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343133   (219210) от 05.12.2019
 
 Треугольник Шаста / The Shasta Triangle (2019) WEBRip [MVO] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219210.jpg" />
+  <img src="Z:/picture/005/save_picture_219210.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219208.jpg" />
+  <img src="Z:/picture/005/save_picture_219208.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219025.jpg" />
+  <img src="Z:/picture/005/save_picture_219025.jpg" />
 </div>
 
 
@@ -84,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218984.jpg" />
+  <img src="Z:/picture/005/save_picture_218984.jpg" />
 </div>
 
 
@@ -110,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218976.jpg" />
+  <img src="Z:/picture/005/save_picture_218976.jpg" />
 </div>
 
 
@@ -136,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218846.jpg" />
+  <img src="Z:/picture/005/save_picture_218846.jpg" />
 </div>
 
 
@@ -162,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218837.jpg" />
+  <img src="Z:/picture/005/save_picture_218837.jpg" />
 </div>
 
 
@@ -188,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218567.jpg" />
+  <img src="Z:/picture/005/save_picture_218567.jpg" />
 </div>
 
 
@@ -214,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218503.jpg" />
+  <img src="Z:/picture/005/save_picture_218503.jpg" />
 </div>
 
 
@@ -240,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217327.jpg" />
+  <img src="Z:/picture/005/save_picture_217327.jpg" />
 </div>
 
 
@@ -266,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_217084.jpg" />
+  <img src="Z:/picture/005/save_picture_217084.jpg" />
 </div>
 
 
@@ -292,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_216609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_216609.jpg" />
 </div>
 
 
@@ -318,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215735.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215735.jpg" />
 </div>
 
 
@@ -344,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_215709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_215709.jpg" />
 </div>
 
 
@@ -370,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215609.jpg" />
+  <img src="Z:/picture/005/save_picture_215609.jpg" />
 </div>
 
 
@@ -396,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215585.jpg" />
+  <img src="Z:/picture/005/save_picture_215585.jpg" />
 </div>
 
 
@@ -422,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215442.jpg" />
+  <img src="Z:/picture/005/save_picture_215442.jpg" />
 </div>
 
 
@@ -448,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215413.jpg" />
+  <img src="Z:/picture/005/save_picture_215413.jpg" />
 </div>
 
 
@@ -474,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215236.jpg" />
+  <img src="Z:/picture/005/save_picture_215236.jpg" />
 </div>
 
 
@@ -500,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215165.jpg" />
+  <img src="Z:/picture/005/save_picture_215165.jpg" />
 </div>
 
 
@@ -526,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215121.jpg" />
+  <img src="Z:/picture/005/save_picture_215121.jpg" />
 </div>
 
 
@@ -552,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215048.jpg" />
+  <img src="Z:/picture/005/save_picture_215048.jpg" />
 </div>
 
 
@@ -578,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215019.jpg" />
+  <img src="Z:/picture/005/save_picture_215019.jpg" />
 </div>
 
 
@@ -604,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214973.jpg" />
+  <img src="Z:/picture/005/save_picture_214973.jpg" />
 </div>
 
 
@@ -630,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214905.jpg" />
+  <img src="Z:/picture/005/save_picture_214905.jpg" />
 </div>
 
 
@@ -641,32 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE13FDE4D0524E742983B2394B52AFCDE96D207F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270034   (214893) от 17.12.2018
-
-Рома / Roma (2018) WEBRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_214893.jpg" />
-</div>
-
-
-###  Подробнее
-
-История мексиканской семьи среднего класса, живущей в начале 1970-х годов. Отец редко бывает дома, мать воспитывает четырех детей, опираясь на помощь двух служанок из Индии. Судьбу героев переламывают студенческие волнения во время католического праздника 10 июня 1971 года, когда демонстранты были расстреляны солдатами.Производство: Мексика, США / Esperanto Filmoj, Participant MediaЖанр: ДрамаРежиссер: Альфонсо КуаронАктеры: Ялица Апарисио, Марина Де Тавира, Диего Кортина Отри, Карлос Перальта, Марко Граф, Даниэла Демеса, Нэнси Гарсия, Диего Ди Корт, Латин Ловер, Фернандо ГредиагаПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 02:14:57Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3EAC86C39C25AE6B82D802212B5597DF3453A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

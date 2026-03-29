@@ -1,3 +1,83 @@
+###  Публикация: 1252913   (387575) от 07.10.2018
+
+К. Л. Воропаева | "Священные книги" и кто их написал (1959) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387575.jpg" />
+</div>
+
+
+###  Подробнее
+
+В антирелигиозных очерках рассказано об истории создания "священных книг" - Библии, Корана и Талмуда - и их использовании эксплуататорскими классами в реакционных целях.Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08C4F9283B52C4826C93F397341AC21225AB6FAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252919   (387463) от 07.10.2018
+
+П. Е. Сердюков (ред.) | Отрекаюсь и разоблачаю. О религии и нравах ее служителей (1961) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387463.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем сборнике напечатаны с некоторыми редакционными сокращениями статьи, опубликованные в 1959 - 1961 годах в областных и районных газетах, в которых наглядно, на фактах, ярко показывается реакционная сущность религиозных вероучений и церковная жизнь служителей религии.
+
+Этот сборник поможет лицам, изучающим основы научного атеизма, а также пропагандистам (   Читать дальше...   )Жанр: История, политология, религиоведениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D8917B0256CF9B50B6FC7E1E37510654CABC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326237   (387439) от 19.09.2019
+
+Н.Ю. Плотникова | Русское партесное многоголосие конца XVII - первой половины XVIII века. Службы Божии Василия Титова: Исследование и публикация (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_387439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследование и публикация посвящены крупным литургическим циклам В. Титова, выдающегося мастера партесного стиля конца XVII — начала XVIII века. Первое полное издание шести Служб Божиих на 3, 4 и 8 голосов демонстрирует богатство творческих замыслов композитора, своеобразие его композиционных идей, гармонического и полифонического мышления. Публикация осуществлена (   Читать дальше...   )Жанр: Православие. Научное изданиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C231CC1524AE370936D2A4B7883FE32B5F6876A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326248   (387316) от 19.09.2019
 
 Протоиерей Фёдор Бородин | Сотвори любовь. Как вырастить счастливого ребёнка (2018) [PDF, FB2]
@@ -6,7 +86,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_387316.jpg" />
+  <img src="Z:/picture/008/save_picture_387316.jpg" />
 </div>
 
 
@@ -32,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_385198.jpg" />
+  <img src="Z:/picture/008/save_picture_385198.jpg" />
 </div>
 
 
@@ -58,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383764.jpg" />
+  <img src="Z:/picture/008/save_picture_383764.jpg" />
 </div>
 
 
@@ -84,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383753.jpg" />
+  <img src="Z:/picture/008/save_picture_383753.jpg" />
 </div>
 
 
@@ -110,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383197.jpg" />
+  <img src="Z:/picture/008/save_picture_383197.jpg" />
 </div>
 
 
@@ -136,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_383005.jpg" />
+  <img src="Z:/picture/008/save_picture_383005.jpg" />
 </div>
 
 
@@ -162,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382924.jpg" />
+  <img src="Z:/picture/008/save_picture_382924.jpg" />
 </div>
 
 
@@ -188,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_382606.jpg" />
+  <img src="Z:/picture/008/save_picture_382606.jpg" />
 </div>
 
 
@@ -214,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381870.jpg" />
+  <img src="Z:/picture/008/save_picture_381870.jpg" />
 </div>
 
 
@@ -243,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381776.jpg" />
+  <img src="Z:/picture/008/save_picture_381776.jpg" />
 </div>
 
 
@@ -269,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381768.jpg" />
+  <img src="Z:/picture/008/save_picture_381768.jpg" />
 </div>
 
 
@@ -295,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381620.jpg" />
+  <img src="Z:/picture/008/save_picture_381620.jpg" />
 </div>
 
 
@@ -321,7 +401,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381458.jpg" />
+  <img src="Z:/picture/008/save_picture_381458.jpg" />
 </div>
 
 
@@ -347,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381320.jpg" />
+  <img src="Z:/picture/008/save_picture_381320.jpg" />
 </div>
 
 
@@ -373,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381070.jpg" />
+  <img src="Z:/picture/008/save_picture_381070.jpg" />
 </div>
 
 
@@ -399,7 +479,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_381068.jpg" />
+  <img src="Z:/picture/008/save_picture_381068.jpg" />
 </div>
 
 
@@ -425,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379616.jpg" />
+  <img src="Z:/picture/008/save_picture_379616.jpg" />
 </div>
 
 
@@ -451,7 +531,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379512.jpg" />
+  <img src="Z:/picture/008/save_picture_379512.jpg" />
 </div>
 
 
@@ -477,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379180.jpg" />
+  <img src="Z:/picture/008/save_picture_379180.jpg" />
 </div>
 
 
@@ -503,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379078.jpg" />
+  <img src="Z:/picture/008/save_picture_379078.jpg" />
 </div>
 
 
@@ -529,7 +609,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379070.jpg" />
+  <img src="Z:/picture/008/save_picture_379070.jpg" />
 </div>
 
 
@@ -557,7 +637,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378659.jpg" />
+  <img src="Z:/picture/008/save_picture_378659.jpg" />
 </div>
 
 
@@ -585,7 +665,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377697.jpg" />
+  <img src="Z:/picture/008/save_picture_377697.jpg" />
 </div>
 
 
@@ -598,84 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF770A88B33E7746AEAD3EC71117679ADBC88063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254145   (377521) от 12.10.2018
-
-Иван Васильевич Попов | Труды по патрологии [2 книги] (2004 - 2005) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые после многих лет незаслуженного забвения отдельным изданием выходят в свет труды И.В.Попова по патрологии. В 1 том его сочинений вошли исследования о Макарии Египетском, Афанасии Александрийском, иконийском епископе Амфилохии, пиктавийском епископе Иларии, отдельные заметки о Дионисии Ареопагите Иоанне Златаусте, Тертуллиане, Дионисии Александрийксом (Великом). (   Читать дальше...   )Жанр: ПатристикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5CE7CD33F8B775F28B348BA8B0C2C2CB220282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253974   (377516) от 12.10.2018
-
-Иван Васильевич Попов | Труды по патрологии [2 книги] (2004 - 2005) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Впервые после многих лет незаслуженного забвения отдельным изданием выходят в свет труды И.В.Попова по патрологии. В 1 том его сочинений вошли исследования о Макарии Египетском, Афанасии Александрийском, иконийском епископе Амфилохии, пиктавийском епископе Иларии, отдельные заметки о Дионисии Ареопагите Иоанне Златаусте, Тертуллиане, Дионисии Александрийксом (Великом). (   Читать дальше...   )Жанр: ПатристикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8C01684636999873EA59E0175F82BCBA4DCDA3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243300   (377380) от 12.10.2018
-
-Трифонов Печенгский монастырь (изд.) | Беседы великих русских старцев. О Православной вере, спасении души и различных вопросах духовной жизни. (2003) [DJVU, PDF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ПравославиеФормат: DJVU, PDF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61857580EBC02D65AB26586411E13211D2A2E334
 ```
 
 https://mybot314.ru/tekegram_catalog/

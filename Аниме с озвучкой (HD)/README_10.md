@@ -1,3 +1,29 @@
+###  Публикация: 1072163   (351329) от 13.11.2016
+
+Monogatari Series: Second Season / Истории, сезон второй [2013, TV, 23] HDTVRip 720р rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (HD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_351329.jpg" />
+</div>
+
+
+###  Подробнее
+
+То, о чем предупреждали провидцы, свершилось – Арараги-гарем окончательно сложился в серьезный женский коллектив, спаянный общей целью и высокой миссией! Второй сезон неповторимых «Историй» дает возможность лучше познакомиться с каждой из незаурядных девушек, окружающих «братца Коёми», ближе узнать их достоинства и недостатки и понять, почему одни неплохие вроде (   Читать дальше...   )Производство: ЯпонияЖанр: мистикаРежиссер: Симбо АкиюкиПеревод: AleX_MytH, DJATOM, Evafan, Reaper, Xellos SlayerЯзык субтитров: ОтсутствуютПродолжительность: 23 серии по 25 минут
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CA0EAEF67137C51C8C404F9593A69AD7EFDE6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 885418   (348293) от 04.11.2015
 
 Owari no Seraph / Seraph of the End: Vampire Reign / Последний Серафим (ТВ-1) [2014, TV, 12 ep + 9 SP] BDRip Hi10p 720p Raw+Rus x6(ext)
@@ -6,7 +32,7 @@ Owari no Seraph / Seraph of the End: Vampire Reign / Последний Сера
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348293.jpg" />
+  <img src="Z:/picture/008/save_picture_348293.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ Tokyo Ghoul A / Токийский гуль [ТВ-2] [2014, TV, 12 ep] BDRip Hi1
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_348265.jpg" />
+  <img src="Z:/picture/008/save_picture_348265.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_345106.jpg" />
+  <img src="Z:/picture/008/save_picture_345106.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ Blade and Soul / Blade & Soul / Клинок и Душа [2014, TV, 13 ep + 7 SP
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343689.jpg" />
+  <img src="Z:/picture/008/save_picture_343689.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ Ikkitousen: Xtreme Xecutor / Школьные войны (сезон четве�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336331.jpg" />
+  <img src="Z:/picture/008/save_picture_336331.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ Summer Time Rendering | Summer Time Rendering | Летнее время [2022, T
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328577.jpg" />
+  <img src="Z:/picture/008/save_picture_328577.jpg" />
 </div>
 
 
@@ -165,7 +191,7 @@ Mahou Sensou / Magical Warfare / Магическая война [2014, TV, 12 e
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_327178.jpg" />
+  <img src="Z:/picture/008/save_picture_327178.jpg" />
 </div>
 
 
@@ -191,7 +217,7 @@ Sidonia no Kishi: Daikyuu Wakusei Seneki / Knights of Sidonia: Battle for Planet
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324418.jpg" />
+  <img src="Z:/picture/008/save_picture_324418.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Gedo Senki / Tales from Earthsea / Сказания Земноморья [2006] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321859.jpg" />
+  <img src="Z:/picture/008/save_picture_321859.jpg" />
 </div>
 
 
@@ -244,7 +270,7 @@ Gangsta. / Гангстеры. [2015, TV, 12 ep] HDTV 720p Raw+Rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320662.jpg" />
+  <img src="Z:/picture/008/save_picture_320662.jpg" />
 </div>
 
 
@@ -270,7 +296,7 @@ Tamayomi | Тамаёми [2020, TV, 12 из 12] WEBRip 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319170.jpg" />
+  <img src="Z:/picture/008/save_picture_319170.jpg" />
 </div>
 
 
@@ -296,7 +322,7 @@ Eizouken ni wa Te o Dasuna! | Руки прочь от киноклуба! [2020
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317008.jpg" />
+  <img src="Z:/picture/008/save_picture_317008.jpg" />
 </div>
 
 
@@ -322,7 +348,7 @@ One Piece / Ван-Пис [1999, TV, 741-948] HDTV 720p rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_317003.jpg" />
+  <img src="Z:/picture/008/save_picture_317003.jpg" />
 </div>
 
 
@@ -348,7 +374,7 @@ Carole & Tuesday / Кэрол и Тьюсдей [2019, TV, 24 из 24] WEBRip 72
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315593.jpg" />
+  <img src="Z:/picture/008/save_picture_315593.jpg" />
 </div>
 
 
@@ -374,7 +400,7 @@ Strike Witches Gekijouban / Штурмовые ведьмы (фильм) [2012] 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311571.jpg" />
+  <img src="Z:/picture/008/save_picture_311571.jpg" />
 </div>
 
 
@@ -402,7 +428,7 @@ Meitantei Conan | Detective Conan | Детектив Конан. Фильмы и
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311266.jpg" />
+  <img src="Z:/picture/008/save_picture_311266.jpg" />
 </div>
 
 
@@ -428,7 +454,7 @@ Triage X / Искусственный отбор [2015, TV, 10 ep] BDRip Hi10p 7
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_308995.jpg" />
+  <img src="Z:/picture/008/save_picture_308995.jpg" />
 </div>
 
 
@@ -455,7 +481,7 @@ Tears to Tiara / Слёзы Тиары / Расколотая Тиара [2009, 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_307407.jpg" />
+  <img src="Z:/picture/008/save_picture_307407.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Dragon Ball Super | Драгон Болл Супер [2015, TV, 46 из 131 эп
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_304570.jpg" />
+  <img src="Z:/picture/008/save_picture_304570.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ Sunohara-sou no Kanrinin-san / Госпожа заведующая общежи�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_289610.jpg" />
+  <img src="Z:/picture/008/save_picture_289610.jpg" />
 </div>
 
 
@@ -537,7 +563,7 @@ Seitokai Yakuindomo* / Члены Школьного совета (ТВ-2) [2014
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_288189.jpg" />
+  <img src="Z:/picture/008/save_picture_288189.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_286903.jpg" />
+  <img src="Z:/picture/008/save_picture_286903.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 720p raw+rus
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_285226.jpg" />
+  <img src="Z:/picture/008/save_picture_285226.jpg" />
 </div>
 
 
@@ -616,7 +642,7 @@ Ingress: The Animation | Ингресс [2018, ONA, 11 эпизодов] WEBRip 
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_283844.jpg" />
+  <img src="Z:/picture/008/save_picture_283844.jpg" />
 </div>
 
 
@@ -642,7 +668,7 @@ Inou Battle wa Nichijou-kei no Naka de / Inou Battle / Супербои в по�
 >>Аниме с озвучкой (HD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_281511.jpg" />
+  <img src="Z:/picture/008/save_picture_281511.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ Inou Battle wa Nichijou-kei no Naka de / Inou Battle / Супербои в по�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D648ED39A3230ECCF13CA74A786519EA78F7008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062289   (279803) от 11.12.2016
-
-Haikyuu!! Karasuno Koukou vs Shiratorizawa Gakuen Koukou / Волейбол!! Старшая Карасуно против академии Сираторидзава [ТВ-3] [2016, TV, 10 ep] WEB-DL 720p Raw+Rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_279803.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-летний Сёё Хината увидел по телевизору несколько матчей – и влюбился в волейбол. Три года парень работал на свою мечту – и в последний год средней школы смог собрать команду и вывести ее на настоящий турнир. А там, понятно, новичков, набранных «с бору по сосенке», побили в первом же круге, причем жуткий разгром им устроил, чуть ли не в одиночку, гениальный плеймейкер (   Читать дальше...   )Жанр: спорт, комедия, повседневностьРежиссер: Мицунака СусумуПеревод: AOS TeamСубтитры: ASS, Встроенные, Полные | Надписи «AOS Team»Формат: MKVПродолжительность: 10 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCC0B453E12BE0136C195F2E8ECE3555691160FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

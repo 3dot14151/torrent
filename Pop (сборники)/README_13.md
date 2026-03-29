@@ -1,3 +1,61 @@
+###  Публикация: 1095789   (922784) от 22.01.2017
+
+VA - Дискотека зимних дорог. Индустрия поп музыки Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922784.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анастасия Спиридонова - Колыбельная Медведицы 2:06
+002. Alex Milano Feat. Денис Раско - Двигай 2:40
+003. Лайк.А - Красиво 3:30
+004. Анилла - Во Сне 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC6469181F0CECB77569ACC257F173FC4613E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095835   (922719) от 22.01.2017
+
+VA - Radio Italia Love (2017) [MP3|320 Kbps] <Italy Pop, Vocal>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922719.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+ 1. Ho creduto a me - Laura Pausini
+ 2. Potremmo ritornare - Tiziano Ferro
+ 3. Assenzio - J-AX & Fedez feat. Stash & Levante(   Читать дальше...   )Жанр: Italy Pop, VocalПродолжительность: 01:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5227922951567EEE5C5292D48D30E1A2B2A757D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988257   (922455) от 19.02.2016
 
 VA - Музыка Хорошего Настроения (2016) [MP3|256 kbps] <Pop>
@@ -6,7 +64,7 @@ VA - Музыка Хорошего Настроения (2016) [MP3|256 kbps] <P
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922455.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ VA - Танцевальная тусовка (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922426.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922426.jpg" />
 </div>
 
 
@@ -61,7 +119,7 @@ VA - Sweet Caramel: Pop Dance Eurobeat (2020) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_922349.jpg" />
 </div>
 
 
@@ -90,7 +148,7 @@ VA - Музыка В Машину. Лучшие Хиты (2016) [MP3|256 kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921897.jpg" />
 </div>
 
 
@@ -119,7 +177,7 @@ VA - Бомба года  хитов (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921861.jpg" />
 </div>
 
 
@@ -145,7 +203,7 @@ VA - Новички в попсе Vol 2 (2020) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921749.jpg" />
 </div>
 
 
@@ -174,7 +232,7 @@ VA - Попсовый Драйв Весны (2013) [MP3|256 кб/с]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_921487.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ VA - За Рулем. Хиты Зимы. Зарубежный (2017) [MP3|256-32
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920861.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ VA - Звезды в шоке 50/50 (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920716.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920716.jpg" />
 </div>
 
 
@@ -264,7 +322,7 @@ VA - Вечеринка в разгаре (2011) [MP3|256 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920620.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920620.jpg" />
 </div>
 
 
@@ -290,7 +348,7 @@ VA - XXL Супер Союз 2 50/50 (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920601.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920601.jpg" />
 </div>
 
 
@@ -316,7 +374,7 @@ VA - Крутые 90е (2011) [MP3|128 kbps]<Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_920352.jpg" />
 </div>
 
 
@@ -342,7 +400,7 @@ VA - German Top 100 Single Charts 13.03.2020 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919144.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919144.jpg" />
 </div>
 
 
@@ -371,7 +429,7 @@ VA - Bossa Nova: Bossa Nostra (2016) [MP3|320 кб/с] <Latin, Dance, Folk, Spai
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919088.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_919088.jpg" />
 </div>
 
 
@@ -400,7 +458,7 @@ VA - 100-ка популярных хитов (2016) [MP3|256 kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918932.jpg" />
 </div>
 
 
@@ -429,7 +487,7 @@ VA - Диско 80 от Виталия 72 часть 2 (1983-1988) [MP3|203-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918679.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918679.jpg" />
 </div>
 
 
@@ -458,7 +516,7 @@ VA - Диско 80 от Виталия 72 часть 1 (1981-1989) [MP3|204-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918678.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918678.jpg" />
 </div>
 
 
@@ -487,7 +545,7 @@ VA - The Collection 30 Years Ago From Ovvod7 (1986) (60 CD) (2020) [MP3|192-320 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_918513.jpg" />
 </div>
 
 
@@ -516,7 +574,7 @@ VA - Отрывайся с лучшими хитами. Версия № 10 (201
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917797.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917797.jpg" />
 </div>
 
 
@@ -545,7 +603,7 @@ VA - Полный отрыв. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917792.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917792.jpg" />
 </div>
 
 
@@ -574,7 +632,7 @@ VA - Лучшие зимние хиты года. Сборник № 7 (2017) [M
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917751.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917751.jpg" />
 </div>
 
 
@@ -603,7 +661,7 @@ VA - Axe Bahia 2017 (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917647.jpg" />
 </div>
 
 
@@ -632,7 +690,7 @@ VA - Звездная вечеринка. Зарядись хитами Выпу
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917545.jpg" />
 </div>
 
 
@@ -661,7 +719,7 @@ VA - Автозвук. Отборный зимний хит. Часть № 2 (2
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917375.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_917375.jpg" />
 </div>
 
 
@@ -675,64 +733,6 @@ VA - Автозвук. Отборный зимний хит. Часть № 2 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB8013F283B0C9EA67EA0733E95995E85E7BEB8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367378   (917301) от 15.03.2020
-
-VA - Radio MFM: Dance Hit Radio [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. The Weeknd - Blinding Lights
-03. Ally Brooke - No Good
-04. Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B85048B13A602EBCCF51283AE99B0211C97F460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367384   (916696) от 15.03.2020
-
-VA - Radio DFM: Top D-Chart [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_916696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artik & Asti - Девочка танцуй (DJ Prezzplay & Kolya Dark Remix) 4:10
-02. Billie Eilish - Everything I Wanted (Kolya Dark & Alex Shik Radio Edit) 3:59
-03. The Weeknd - Blinding Lights 3:22
-04. Макс Барских - Лей не жалей (Lavrushkin & Max Roven Remix) 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F35AA85FB97ED5E083391B91FDC51AFE952D647
 ```
 
 https://mybot314.ru/tekegram_catalog/

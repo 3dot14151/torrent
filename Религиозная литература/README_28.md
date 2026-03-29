@@ -1,3 +1,81 @@
+###  Публикация: 1009436   (808241) от 22.04.2016
+
+И. Шпицберг | Святой Василий Грязнов. Защита подмосковных акул текстильной промышленности (1929) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_808241.jpg" />
+</div>
+
+
+###  Подробнее
+
+В популярной брошюре рассказано об использовании культа святого Василия Грязнова фабрикантами-текстильщиками дореволюционной России для удержания рабочих в повиновении.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638F6605D4154D366B997649487491C6E8972AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778297   (808188) от 17.04.2014
+
+Иероним Стридонский (пер.) | Вульгата [Перевод Библии на латынь] (1997) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_808188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот перевод Библии на латинский язык сделан по той причине, что до IV века не было совершенного перевода. Старая латинская Библия была переведена с древнегреческого языка. Блаженный Иероним начал его в 382 году по поручению папы  Дамаса I (366—84). Блаженный Иероним не стал редактировать старый текст, а сделал новый перевод с языков оргинала. Иероним брал уроки древнееврейского (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFF5F33BA02ADE66B09C55AD993E19025FF9B91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504971   (808076) от 25.10.2021
+
+К.Н. Сильченков | Новая заповедь (1999) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_808076.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящий сборник вошли произведения Константина Николаевича Сильченкова (1869 † 1903), опубликованные им в разные годы в периодических изданиях. Читатель найдёт здесь и сочинения истолковательного характера, и статьи на нравственно-богословские темы, и произведения церковно-исторического направления. Заинтересует современного читателя статья, посвящённая вопросу (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDC61AD9E30FD97FB4D4C5C636850774BA86E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118707   (807598) от 28.03.2017
 
 Ю. А. Григорович | Религия и доходы крестьянского хозяйства (1927) [DJVU]
@@ -6,7 +84,7 @@
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807598.jpg" />
+  <img src="Z:/picture/008/save_picture_807598.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807487.jpg" />
+  <img src="Z:/picture/008/save_picture_807487.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807482.jpg" />
+  <img src="Z:/picture/008/save_picture_807482.jpg" />
 </div>
 
 
@@ -84,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806370.jpg" />
+  <img src="Z:/picture/008/save_picture_806370.jpg" />
 </div>
 
 
@@ -110,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806074.jpg" />
+  <img src="Z:/picture/008/save_picture_806074.jpg" />
 </div>
 
 
@@ -136,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806072.jpg" />
+  <img src="Z:/picture/008/save_picture_806072.jpg" />
 </div>
 
 
@@ -162,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806065.jpg" />
+  <img src="Z:/picture/008/save_picture_806065.jpg" />
 </div>
 
 
@@ -189,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805762.jpg" />
+  <img src="Z:/picture/008/save_picture_805762.jpg" />
 </div>
 
 
@@ -216,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805739.jpg" />
+  <img src="Z:/picture/008/save_picture_805739.jpg" />
 </div>
 
 
@@ -242,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805620.jpg" />
+  <img src="Z:/picture/008/save_picture_805620.jpg" />
 </div>
 
 
@@ -268,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805612.jpg" />
+  <img src="Z:/picture/008/save_picture_805612.jpg" />
 </div>
 
 
@@ -294,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805495.jpg" />
+  <img src="Z:/picture/008/save_picture_805495.jpg" />
 </div>
 
 
@@ -320,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804456.jpg" />
+  <img src="Z:/picture/008/save_picture_804456.jpg" />
 </div>
 
 
@@ -348,7 +426,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804455.jpg" />
+  <img src="Z:/picture/008/save_picture_804455.jpg" />
 </div>
 
 
@@ -374,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803649.jpg" />
+  <img src="Z:/picture/008/save_picture_803649.jpg" />
 </div>
 
 
@@ -400,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803563.jpg" />
+  <img src="Z:/picture/008/save_picture_803563.jpg" />
 </div>
 
 
@@ -429,7 +507,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803454.jpg" />
+  <img src="Z:/picture/008/save_picture_803454.jpg" />
 </div>
 
 
@@ -455,7 +533,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803277.jpg" />
+  <img src="Z:/picture/008/save_picture_803277.jpg" />
 </div>
 
 
@@ -481,7 +559,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803273.jpg" />
+  <img src="Z:/picture/008/save_picture_803273.jpg" />
 </div>
 
 
@@ -507,7 +585,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802946.jpg" />
+  <img src="Z:/picture/008/save_picture_802946.jpg" />
 </div>
 
 
@@ -535,7 +613,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802438.jpg" />
+  <img src="Z:/picture/008/save_picture_802438.jpg" />
 </div>
 
 
@@ -563,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801979.jpg" />
+  <img src="Z:/picture/008/save_picture_801979.jpg" />
 </div>
 
 
@@ -589,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801964.jpg" />
+  <img src="Z:/picture/008/save_picture_801964.jpg" />
 </div>
 
 
@@ -600,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:590743B0E3F3024B1F56E1321D927B9C5C261AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120556   (801962) от 31.03.2017
-
-Прот. Владимир Головин | По ту сторону смерти (2017) [RTF, FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801962.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге собраны ответы отца Владимира Головина на вопросы о жизни после смерти, о том, как нам, православным, относиться к смерти, как молиться за усопших и многие другие, относящиеся к данной теме. Издание рассчитано на широкий круг православных читателей.Жанр: ПравославиеФормат: RTF, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A0A780817F5571EFC98B644845C418B228D90F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384583   (801684) от 21.05.2020
-
-Монахиня Нина | Солнце Правды. Современный взгляд на Апокалипсис святого Иоанна Богослова (2001) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга состоит из двух частей. Первая «Солнце Правды» содержит три научно-богословские статьи о Православной вере и, по сути, представляет собой введение к следующей части. Вторая часть является современным толкованием на Апокалипсис св. Иоанна Богослова, основанном на сопоставлении его текстов с другими пророчествами св. Писания о последних временах, а также и на (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92188C84AECB91C0CA1051DD743B6B2BFBAF971F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506127   (801659) от 29.10.2021
-
-А. Солоницын | Ангеловы столпы (2011) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801659.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый роман известного писателя Алексея Солоницына повествует о тех священниках, которые вместе со своими помощниками вышли на подвиг спасения детей, оставшихся без отцов и матерей при живых родителях. Создавая приют милосердия, герои романа претерпевают нелёгкие испытания, жертвуя всем, даже жизнью самой во имя Христово, во имя будущего своей любимой Родины.
-
-Но (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CD87B8A4B9F7D8DD22B3A45FBD203C346B537B
 ```
 
 https://mybot314.ru/tekegram_catalog/

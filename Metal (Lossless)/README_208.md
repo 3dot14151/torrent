@@ -1,3 +1,90 @@
+###  Публикация: 1617210   (242065) от 06.03.2023
+
+Majesties - Vast Reaches Unclaimed (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Yearning, Alive [00:04:24]
+02. The World Unseen [00:03:43]
+03. Our Gracious Captors [00:03:51]
+04. Verdant Paths To Radiance [00:03:30](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D2AC2C332A8A6108A8C205DA1F71133897647F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635238   (242057) от 24.05.2023
+
+Helestios - Road to Ecstasy (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_242057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanctuary (4:55)
+02. In Cage (3:15)
+03. Cycles (4:10)
+04. Fight (3:32)(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7B11D555903E3C99B9190ECC8B76F50A4A7ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458624   (242041) от 30.03.2021
+
+Dead Animal Assembly Plant - Bring Out The Dead (2021) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_242041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cemetery Slums [00:01:47]
+02. A Violent Breed [00:04:12]
+03. The Ghost of Friedrich Nietzsche [00:04:25]
+04. Colors Under Attack [00:03:59](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61554EF801906F6398460E3E46B82322AADA103A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544481   (242017) от 16.04.2022
 
 Shaman - Rescue (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power Metal>
@@ -6,7 +93,7 @@ Shaman - Rescue (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242017.jpg" />
+  <img src="Z:/picture/004/save_picture_242017.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Dynazty - The Dark Delight (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242007.jpg" />
+  <img src="Z:/picture/004/save_picture_242007.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Powerwolf - Interludium (2023) 3xCD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_242005.jpg" />
+  <img src="Z:/picture/004/save_picture_242005.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Adorned Brood - Noor (2008) [FLAC|Lossless|image + .cue] <Folk Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241972.jpg" />
+  <img src="Z:/picture/004/save_picture_241972.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ This White Mountain - Finality (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241962.jpg" />
+  <img src="Z:/picture/004/save_picture_241962.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Aara - Triade III: Nyx (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241952.jpg" />
+  <img src="Z:/picture/004/save_picture_241952.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Section Brain - Hospital of Death (1993) [FLAC|Lossless|image + .cue] <Technical
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241942.jpg" />
+  <img src="Z:/picture/004/save_picture_241942.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Wrack - Altare der Verganglichkeit (2023) [FLAC|Lossless|WEB-DL|tracks] <Black M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241922.jpg" />
+  <img src="Z:/picture/004/save_picture_241922.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Walk With Titans - Olympian Dystopia (2023) [FLAC|Lossless|WEB-DL|tracks] <Power
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_241909.jpg" />
+  <img src="Z:/picture/005/save_picture_241909.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Benighted - Obscene Repressed (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241888.jpg" />
+  <img src="Z:/picture/004/save_picture_241888.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Abandon All - Far Away (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241878.jpg" />
+  <img src="Z:/picture/004/save_picture_241878.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ All Wasted - Burn With Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241875.jpg" />
+  <img src="Z:/picture/004/save_picture_241875.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Primitai - The Line Of Fire (2010) [FLAC|Lossless|image + .cue] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241864.jpg" />
+  <img src="Z:/picture/004/save_picture_241864.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Soliton - Cyclical Denial (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic, Technic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241863.jpg" />
+  <img src="Z:/picture/004/save_picture_241863.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Phoenix Rising - Fire & Ashes - Acta Est Fabula (2021) [FLAC|Lossless|WEB-DL|tra
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241853.jpg" />
+  <img src="Z:/picture/004/save_picture_241853.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Whipworm - Gozer (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Death, Thrash Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241796.jpg" />
+  <img src="Z:/picture/004/save_picture_241796.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Primitai - The Calling (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241781.jpg" />
+  <img src="Z:/picture/004/save_picture_241781.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Adversor - Portrait of a Wasteland (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241768.jpg" />
+  <img src="Z:/picture/004/save_picture_241768.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Smogg - Grim (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241766.jpg" />
+  <img src="Z:/picture/004/save_picture_241766.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Abysmal Dawn - Nightmare Frontier (2022) EP [FLAC|Lossless|image + .cue] <Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241761.jpg" />
+  <img src="Z:/picture/004/save_picture_241761.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Radiant - Written By Life (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241751.jpg" />
+  <img src="Z:/picture/004/save_picture_241751.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Bog Monkey - Hollow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241729.jpg" />
+  <img src="Z:/picture/004/save_picture_241729.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ As Light Dies - The Laniakea Architecture vol. II (2023) [FLAC|Lossless|WEB-DL|t
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241715.jpg" />
+  <img src="Z:/picture/004/save_picture_241715.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ As Light Dies - The Laniakea Architecture vol. II (2023) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D77270517A234642993BC7ECD82948F69CAB7FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628900   (241699) от 25.04.2023
-
-Afraid of Destiny - Contra Omnes (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric, Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Abyss (03:57)
-02 - Anti (07:54)
-03 - Ramblin' (09:27)
-04 - Breath (06:04)(   Читать дальше...   )Жанр: Atmospheric, Depressive Black MetalПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C260D8A957AF34F4E5A6DEF2287677D2F9BADB75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546564   (241694) от 24.04.2022
-
-Domkraft - Seeds (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Seeds (00:09:15)
-02 - Perpetuator (00:08:43)
-03 - Into Orbit (00:05:12)
-04 - Dawn Of Man (00:04:44)(   Читать дальше...   )Жанр: Psychedelic Sludge MetalПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F5673E596992C905AD2E7AB9C2E33C1FCED0C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625517   (241690) от 10.04.2023
-
-Vita Imana - VI (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_241690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Coltan (03:46)
-02 - Virtual (03:59)
-03 - Espiral (03:31)
-04 - Ishtar (con Leo Jimenez) (06:02)(   Читать дальше...   )Жанр: Groove MetalПродолжительность: 00:53:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57CAE8EABC1C049C1DD87EAD73BAEFD8C8B17C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,159 @@
+###  Публикация: 1019514   (749476) от 23.05.2016
+
+POSTAL Redux (2016) [En] (1.1.0) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749476.jpg" />
+</div>
+
+
+###  Подробнее
+
+POSTAL Redux – римейк классической игры, где пользователю предлагается вжиться в роль безумного Чувака в не менее безумном мире. Кроме улучшенной графики, звуков, диалогов и осовремененного геймплея, POSTAL Redux содержит новый режим под названием Rampage Mode. В нем игроку нужно набрать как можно больше очков, совершая цепочки убийств и используя креативный подход (   Читать дальше...   )Тип издания: RepackРазработчик: Running With ScissorsЖанр: Arcade (Shoot'em up), IsometricЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F728974650FEA21B197D3282E6D556CFD5ACF509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019562   (749472) от 23.05.2016
+
+Lost Planet 3 (2013) [Ru/Multi] (1.0.10246/dlc) License PROPHET [Complete Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_749472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой Lost Planet 3 — пилот Джим Пейтон, принявший рискованное, но выгодное деловое предложение компании «Нео Венус Конструкции» (НЕВЕК). Вылетев с Земли на планету Э.Д.Н. III, которую компания подготавливает к колонизации, Джим присоединяется к товарищам-первопроходцам на базе Корониса. Там он приступает к исследованию территории и сбору образцов термальной энергииТип издания: LicenseРазработчик: Spark UnlimitedЖанр: Action (Shooter), 3D, 1st Person, 3rd PersonЯзык озвучки: Английский, Французский, Немецкий, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36D9E771322E30D4ED542F01C4CA6E65DFD7E17C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019848   (747876) от 24.05.2016
+
+Alekhine's Gun (2016) [Ru/Multi] (1.02) License CODEX
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шпионский экшен расскажет о судьбе бывшего полковника КГБ Алёхина, ставшего шпионом ЦРУ. Действие игры проходит в самый разгар Холодной Войны между СССР и США, и двойной агент Алехин оказывается втянутым в грязные дела разведок обеих стран.Тип издания: LicenseРазработчик: Maximum GamesЖанр: Action, Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A86ED20B1B1DF09521CD8A1571DDC247B40980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019881   (747728) от 24.05.2016
+
+Alekhine's Gun (2016) [Ru/Multi] (1.02) Repack Other s
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шпионский экшен расскажет о судьбе бывшего полковника КГБ Алёхина, ставшего шпионом ЦРУ. Действие игры проходит в самый разгар Холодной Войны между СССР и США, и двойной агент Алехин оказывается втянутым в грязные дела разведок обеих стран.Тип издания: RepackРазработчик: Maximum GamesЖанр: Action, Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA33345B0290EB8C573271B6A9E70D31E1136A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523620   (747623) от 13.01.2022
+
+Shadow of the Tomb Raider (2018) [Ru/En] (1.0.458.0/dlc) Repack CoD - MW2 [Definitive Edition]
+
+>>След.
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откройте для себя последнюю главу о превращении Лары Крофт в расхитительницу гробниц. В игре Ларе предстоит пробраться через смертоносные джунгли и жуткие гробницы и пережить свой самый темный час. Спасая мир от апокалипсиса, предсказанного майя, она пройдет немало испытаний и выполнит свое предназначение, став настоящей расхитительницей гробниц.Тип издания: RepackРазработчик: Eidos-Montréal, Crystal Dynamics, Nixxes softwareЖанр: Action, Adventure, 3D, 3'rd PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3285A2A28D9816FA561BA381A11672431F3AD7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216695   (747473) от 01.04.2018
+
+Total Overdose: A Gunslinger's Tale in Mexico (2005) [En] (1.00) License GOG
+
+>>Win Старые Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_747473.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989 год. Развалины инкского храма в глубине джунглей. Эрнесто Крус только что прикончил последнего бандита. Можно перевести дух и полюбоваться россыпью тел на древних камнях, затем рывок до самолета DEA – и домой!.. Но домой он так и не попал. Родственникам сообщили, что Эрнесто скончался от передозировки. Две недели спустя его сын Томми, также агент DEA, попадает (   Читать дальше...   )Тип издания: LicenseРазработчик: Deadline GamesЖанр: Экшн, От третьего лица, СовременностьЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ADAD0AF984CF00CA73215250EB19F60FE8E05A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216805   (747263) от 01.04.2018
 
 Mafia II / Мафия 2 (2011)  [Ru/Multi] (1.0.0.1/upd5/dlc) License GOG [Director’s Cut]
@@ -6,7 +162,7 @@ Mafia II / Мафия 2 (2011)  [Ru/Multi] (1.0.0.1/upd5/dlc) License GOG [Direc
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747263.jpg" />
+  <img src="Z:/picture/008/save_picture_747263.jpg" />
 </div>
 
 
@@ -32,7 +188,7 @@ Mafia / Мафия (2002) [Ru/Multi] (1.3.16073) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747256.jpg" />
+  <img src="Z:/picture/008/save_picture_747256.jpg" />
 </div>
 
 
@@ -58,7 +214,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [En/Multi] (1.0) Licen
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745921.jpg" />
+  <img src="Z:/picture/008/save_picture_745921.jpg" />
 </div>
 
 
@@ -84,7 +240,7 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [En/Multi] (1.0/upd1) 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744422.jpg" />
+  <img src="Z:/picture/008/save_picture_744422.jpg" />
 </div>
 
 
@@ -110,7 +266,7 @@ Assassin’s Creed (2008) [Ru/En] (1.02) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744347.jpg" />
+  <img src="Z:/picture/008/save_picture_744347.jpg" />
 </div>
 
 
@@ -136,7 +292,7 @@ Devil May Cry 4 (2015) [Ru/Multi] (1.0/dlc) Repack R.G. Catalyst [Special Editio
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742961.jpg" />
+  <img src="Z:/picture/008/save_picture_742961.jpg" />
 </div>
 
 
@@ -162,7 +318,7 @@ Goat Simulator: Waste of Space (2016) [Ru/Multi] (1.3.58280/dlc) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742874.jpg" />
+  <img src="Z:/picture/008/save_picture_742874.jpg" />
 </div>
 
 
@@ -188,7 +344,7 @@ Phoning Home (2017) [Ru/Multi] (1.4.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742100.jpg" />
+  <img src="Z:/picture/008/save_picture_742100.jpg" />
 </div>
 
 
@@ -214,7 +370,7 @@ Shadow Man Remastered (2021) [Ru/Multi] (1.4) License GOG
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741877.jpg" />
+  <img src="Z:/picture/008/save_picture_741877.jpg" />
 </div>
 
 
@@ -240,7 +396,7 @@ Outbreak: The Nightmare Chronicles (2018) [En] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741710.jpg" />
+  <img src="Z:/picture/008/save_picture_741710.jpg" />
 </div>
 
 
@@ -266,7 +422,7 @@ Resident Evil 2 Remake / Biohazard RE:2 (2019) [Ru/Multi] (1.0/dlc) Repack R.G. 
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740657.jpg" />
+  <img src="Z:/picture/008/save_picture_740657.jpg" />
 </div>
 
 
@@ -292,7 +448,7 @@ Metal Gear Solid V: Ground Zeroes (2014) [Ru/Multi] (1.005) Repack xatab
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740529.jpg" />
+  <img src="Z:/picture/008/save_picture_740529.jpg" />
 </div>
 
 
@@ -318,7 +474,7 @@ The Crows Eye (2017) [Ru/Multi] (1.0) Repack Other s
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736295.jpg" />
+  <img src="Z:/picture/008/save_picture_736295.jpg" />
 </div>
 
 
@@ -344,7 +500,7 @@ The Evil Within (2015) [Ru/Multi] (27.05.2016/dlc) License PROPHET [Complete Edi
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732299.jpg" />
+  <img src="Z:/picture/008/save_picture_732299.jpg" />
 </div>
 
 
@@ -370,7 +526,7 @@ Apocalypse: Party's Over (2016) [En/Pt] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730279.jpg" />
+  <img src="Z:/picture/008/save_picture_730279.jpg" />
 </div>
 
 
@@ -396,7 +552,7 @@ Elite vs. Freedom (2016) [Eng] (1.0) License HI2U
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730219.jpg" />
+  <img src="Z:/picture/008/save_picture_730219.jpg" />
 </div>
 
 
@@ -422,7 +578,7 @@ Remothered: Tormented Fathers (2018) [Ru/Multi] (1.5.1) Repack R.G. Catalyst
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729458.jpg" />
+  <img src="Z:/picture/008/save_picture_729458.jpg" />
 </div>
 
 
@@ -448,7 +604,7 @@ Yakuza Kiwami (2019) [En/Jp] (1.0) License CODEX
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729455.jpg" />
+  <img src="Z:/picture/008/save_picture_729455.jpg" />
 </div>
 
 
@@ -474,7 +630,7 @@ Saints Row: The Third (2011) [Ru/Multi] (1.0.0.1/dlc) License GOG [The Full Pack
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729295.jpg" />
+  <img src="Z:/picture/008/save_picture_729295.jpg" />
 </div>
 
 
@@ -500,7 +656,7 @@ Saints Row IV (2013) [Ru/Multi] (1.0.6.1/dlc) License GOG [Game of the Century E
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728103.jpg" />
+  <img src="Z:/picture/008/save_picture_728103.jpg" />
 </div>
 
 
@@ -511,162 +667,6 @@ Saints Row IV (2013) [Ru/Multi] (1.0.6.1/dlc) License GOG [Game of the Century E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF1DAAC4E1B3786322FC3365B7E1C867DE8C83E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022741   (726884) от 03.06.2016
-
-Senran Kagura: Shinovi Versus (2016) [En/Ja] (1.0) License SKIDROW
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Senran Kagura: Shinovi Versus — это новая экшен игра от Японской студии XSEED Games, которая рассказывает о девушках-ниндзя (Шиноби) и имеет множество комбо и супер атак, при которых одежда врагов и самих героинь разрывается на маленькие клочья. В игре представлено 20 уникальных Шиноби-войнов, каждый из которых имеет свое собственное уникальное оружие, технику ведения (   Читать дальше...   )Тип издания: LicenseРазработчик: TamsoftЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: ЯпонскийЯзык субтитров: АнглийскийЯзык интерфейса: Японский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ADF96F6003108FB73DF6B47657060DA1F57C1E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399613   (726132) от 01.08.2020
-
-Blades of Time (2012) [Ru/Multi] (1.0/dlc) License GOG [Limited Edition]
-
->>Win Старые Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726132.jpg" />
-</div>
-
-
-###  Подробнее
-
-Аюми - бесстрашная охотница за сокровищами. Она великолепно вооружена и необычайно прекрасна. В поисках ценных трофеев девушка отправляется на таинственный и, конечно же, полный опасностей остров. Как выяснилось, это место богато не только сокровищами - оно буквально пропитано гнетущей магией Хаоса. А очень скоро Аюми поймет, что остров скрывает множество древних (   Читать дальше...   )Тип издания: LicenseРазработчик: Gaijin EntertainmentЖанр: Экшн, Ролевая игра, ФэнтезиЯзык озвучки: Русский, Английский, Французский, Испанский и другиеЯзык субтитров: Русский, Английский, Французский, Испанский и другиеЯзык интерфейса: Русский, Английский, Французский, Испанский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DDD12D4C1ADAF868F40311421D4C7BF5CED90A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216502   (722832) от 09.04.2018
-
-Mafia III / Мафия 3 (2016) [Ru/Multi] (1.090.0/dlc) License GOG
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во Вьетнаме Линкольн Клэй понял одно: семья - это не те, с кем ты вырос, а те, за кого ты готов умереть. Но когда итальянская мафия наносит удар в спину черной преступной группировке, когда-то заменившей Линкольну семью, он создает новую семью на руинах старой и принимается мстить, жестоко и умело. Если собрать правильных людей и не бояться замарать руки, можно подняться (   Читать дальше...   )Тип издания: LicenseРазработчик: Hangar 13Жанр: Action (Shooter), Racing (Cars), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252A8BA942E9DCAA8D001EB2EB0B6C0BA224690D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218730   (720909) от 10.04.2018
-
-Extinction (2018) [Multi] (1.0) Repack Other s [Deluxe Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720909.jpg" />
-</div>
-
-
-###  Подробнее
-
-По легенде они — Ravenii, наступающие орды кровожадных чудовищ ростом 45 метров, желающих истребить человечество. Вы — один из последних Стражей мира, солдат по имени Avil, обученный воевать с полчищами Ravenii. Уничтожайте великанов, защищайте города и помогайте беженцам. Враги нападают с земли и воздуха, так что нужно быстро определять стратегию. Для этого в игре (   Читать дальше...   )Тип издания: RepackРазработчик: Iron GalaxyЖанр: Action, Adventure, 3DЯзык озвучки: АнглийскийЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED867680B605A292DBFC98B422BC2C907AD78807
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218863   (718985) от 11.04.2018
-
-The Last Hope: Atomic Bomb - Crypto War (2018) [En] (1.0) License PLAZA
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718985.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжающаяся борьба между бандитами, террористами и президентом Джоном Трампом (John Trump) теперь переключилась на криптовалютность. Ваша миссия, хотя и не так просто, как может показаться, заключается в том, чтобы найти криптовалютные фермы и уничтожить их, тем самым положить конец этой бессмысленной войне раз и навсегда!Тип издания: LicenseРазработчик: Atomic Fabrik, Cristian ManolachiЖанр: Action (Shooter), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1166EE8B82E5915E742D0AD1D258BE161B396A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263567   (716269) от 28.02.2019
-
-Sunset Overdrive (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
-
->>След.
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunset Overdrive — это площадка для всех постапокалиптических возможностей. Прыгайте, скользите и бегайте по стенам Сансет-сити, пользуясь смертоносным и необычным арсеналом. Полная свобода, уникальное оружие, изменяемые умения — все это полностью переформатирует жанр шутеров и создает большое и циничное приключение.Тип издания: RepackРазработчик: Insomniac Games, Blind Squirrel GamesЖанр: 3rd Person, Action, ShooterЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7B5164157F1916B2FAD270A0D7F8B9B38B9649
 ```
 
 https://mybot314.ru/tekegram_catalog/

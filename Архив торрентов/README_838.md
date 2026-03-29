@@ -6,7 +6,7 @@ Chromium 81.0.4044.113 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858910.jpg" />
+  <img src="Z:/picture/008/save_picture_858910.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858904.jpg" />
+  <img src="Z:/picture/008/save_picture_858904.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Archiver 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858901.jpg" />
+  <img src="Z:/picture/008/save_picture_858901.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858900.jpg" />
+  <img src="Z:/picture/008/save_picture_858900.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Genghis Khan - Greatest Hits (1980) Compilation, 1992, Victor [FLAC|Lossless|ima
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858899.jpg" />
+  <img src="Z:/picture/008/save_picture_858899.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VueScan Pro 9.5.71 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858898.jpg" />
+  <img src="Z:/picture/008/save_picture_858898.jpg" />
 </div>
 
 
@@ -168,7 +168,7 @@ VA - Odyssey: The Complete Paul King Collection Vol.4 (2017) [MP3|320 Kbps] <Har
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858897.jpg" />
+  <img src="Z:/picture/008/save_picture_858897.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ Dism++ 10.1.23.1 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858895.jpg" />
+  <img src="Z:/picture/008/save_picture_858895.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858892.jpg" />
+  <img src="Z:/picture/008/save_picture_858892.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858886.jpg" />
+  <img src="Z:/picture/008/save_picture_858886.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_858881.jpg" />
+  <img src="Z:/picture/009/save_picture_858881.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858868.jpg" />
+  <img src="Z:/picture/008/save_picture_858868.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Android Studio 1.5.1 Build #AI-141.2456560 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858861.jpg" />
+  <img src="Z:/picture/008/save_picture_858861.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858859.jpg" />
+  <img src="Z:/picture/008/save_picture_858859.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858858.jpg" />
+  <img src="Z:/picture/008/save_picture_858858.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858857.jpg" />
+  <img src="Z:/picture/008/save_picture_858857.jpg" />
 </div>
 
 
@@ -432,7 +432,7 @@ SolveigMM Video Splitter 5.2.1603.25 Business Edition + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858855.jpg" />
+  <img src="Z:/picture/008/save_picture_858855.jpg" />
 </div>
 
 
@@ -458,7 +458,7 @@ Villagers (2016) [Ru/Multi] (1.004) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858854.jpg" />
+  <img src="Z:/picture/008/save_picture_858854.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ AdminPE10 1.3 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858853.jpg" />
+  <img src="Z:/picture/008/save_picture_858853.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858850.jpg" />
+  <img src="Z:/picture/008/save_picture_858850.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858849.jpg" />
+  <img src="Z:/picture/008/save_picture_858849.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858809.jpg" />
+  <img src="Z:/picture/008/save_picture_858809.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ Glary Utilities Pro 5.140.0.166 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858808.jpg" />
+  <img src="Z:/picture/008/save_picture_858808.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Adguard 2.4.6.766 nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858807.jpg" />
+  <img src="Z:/picture/008/save_picture_858807.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ PDFCreator 4.0.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858799.jpg" />
+  <img src="Z:/picture/008/save_picture_858799.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858796.jpg" />
+  <img src="Z:/picture/008/save_picture_858796.jpg" />
 </div>
 
 

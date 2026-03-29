@@ -1,3 +1,29 @@
+###  Публикация: 1309450   (550855) от 19.06.2019
+
+25 км/час / 25 km/h (2018) BDRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_550855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два брата воссоединяются на похоронах собственного отца спустя долгие годы. Разные судьбы, разные истории соприкасаются в один момент и начинают творить чудеса. Отправляясь в путешествие на мотоциклах, братья признают свои ошибки и пытаются начать жизнь заново.Производство: Германия / Traumfabrik Babelsberg, Sunny Side Up, Studio Babelsberg, Mythos FilmЖанр: Драма, комедия, приключенияРежиссер: Маркус ГоллерАктеры: Ларс Айдингер, Бьярне Медел, Сандра Хюллер, Франка Потенте, Александра Мария Лара, Йелла Хаазе, Йордис Трибель, Вотан Вильке Мёринг, Курд Бергер, Мартин БрамбахПеревод: Многоголосый профессиональный («Синема УС»)Субтитры: ОтсутствуютПродолжительность: 01:52:23Реклама: Присутствуют вставки текстовой и видео рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EDF1D25DAE3E5EB1105EFAD6BD756B6344791BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047278   (549775) от 29.08.2016
 
 Море деревьев / The Sea of Trees (2015) BDRip [H.264/1080p] [AD]
@@ -6,7 +32,7 @@
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549775.jpg" />
+  <img src="Z:/picture/008/save_picture_549775.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549693.jpg" />
+  <img src="Z:/picture/008/save_picture_549693.jpg" />
 </div>
 
 
@@ -58,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549567.jpg" />
+  <img src="Z:/picture/008/save_picture_549567.jpg" />
 </div>
 
 
@@ -86,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549478.jpg" />
+  <img src="Z:/picture/008/save_picture_549478.jpg" />
 </div>
 
 
@@ -112,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_549477.jpg" />
+  <img src="Z:/picture/008/save_picture_549477.jpg" />
 </div>
 
 
@@ -138,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548633.jpg" />
+  <img src="Z:/picture/008/save_picture_548633.jpg" />
 </div>
 
 
@@ -164,7 +190,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547079.jpg" />
+  <img src="Z:/picture/008/save_picture_547079.jpg" />
 </div>
 
 
@@ -190,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546918.jpg" />
+  <img src="Z:/picture/008/save_picture_546918.jpg" />
 </div>
 
 
@@ -216,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545444.jpg" />
+  <img src="Z:/picture/008/save_picture_545444.jpg" />
 </div>
 
 
@@ -242,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544147.jpg" />
+  <img src="Z:/picture/008/save_picture_544147.jpg" />
 </div>
 
 
@@ -268,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544145.jpg" />
+  <img src="Z:/picture/008/save_picture_544145.jpg" />
 </div>
 
 
@@ -294,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544139.jpg" />
+  <img src="Z:/picture/008/save_picture_544139.jpg" />
 </div>
 
 
@@ -320,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544137.jpg" />
+  <img src="Z:/picture/008/save_picture_544137.jpg" />
 </div>
 
 
@@ -346,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543190.jpg" />
+  <img src="Z:/picture/008/save_picture_543190.jpg" />
 </div>
 
 
@@ -372,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543176.jpg" />
+  <img src="Z:/picture/008/save_picture_543176.jpg" />
 </div>
 
 
@@ -398,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540086.jpg" />
+  <img src="Z:/picture/008/save_picture_540086.jpg" />
 </div>
 
 
@@ -424,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538688.jpg" />
+  <img src="Z:/picture/008/save_picture_538688.jpg" />
 </div>
 
 
@@ -450,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538562.jpg" />
+  <img src="Z:/picture/008/save_picture_538562.jpg" />
 </div>
 
 
@@ -476,7 +502,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538471.jpg" />
+  <img src="Z:/picture/008/save_picture_538471.jpg" />
 </div>
 
 
@@ -502,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538341.jpg" />
+  <img src="Z:/picture/008/save_picture_538341.jpg" />
 </div>
 
 
@@ -528,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538011.jpg" />
+  <img src="Z:/picture/008/save_picture_538011.jpg" />
 </div>
 
 
@@ -554,7 +580,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537808.jpg" />
+  <img src="Z:/picture/008/save_picture_537808.jpg" />
 </div>
 
 
@@ -580,7 +606,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537790.jpg" />
+  <img src="Z:/picture/008/save_picture_537790.jpg" />
 </div>
 
 
@@ -606,7 +632,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537679.jpg" />
+  <img src="Z:/picture/008/save_picture_537679.jpg" />
 </div>
 
 
@@ -632,7 +658,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537670.jpg" />
+  <img src="Z:/picture/008/save_picture_537670.jpg" />
 </div>
 
 
@@ -643,32 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01E60E18E6A47F37D097303B92C3F9F4C4001545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312115   (536083) от 02.07.2019
-
-В полном расцвете / In Full Bloom (2018) BDRip [H.264/720p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит вскоре после окончания Второй Мировой войны - два боксера из противоположных миров, США и Японии, сходятся в боксёрском поединке, где на кону не только спортивный титул, но и честь страны. Однако, нечистые на руку боссы якудза пытаются повлиять на исход поединка, наплевав из эгоистичных побуждений на код чести своих предков.Производство: Япония, США / Winery Productions, Bleiberg Entertainment, Cinesia PicturesЖанр: Боевик, драма, криминалРежиссер: Реза Гассеми, Адам ВилласенорАктеры: Tyler Wood, Yusuke Ogasawara, Хироюки Ватанабэ, Тимоти В. Мерфи, Стефани Эстес, Хидетоши Имура, Сю Сакимото, Френсис Поло, Хазуки Като, Син СимидзуПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:26:53Реклама: Присутствует баннер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652396A4E2EAB80A7F091355BB1742D7C392CA62
 ```
 
 https://mybot314.ru/tekegram_catalog/

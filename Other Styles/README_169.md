@@ -1,3 +1,64 @@
+###  Публикация: 471044   (83360) от 20.03.2012
+
+VA - Русская плясовая (2012) [MP3|320 кб/с]<folk/dance/instrumental>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: folk/dance/instrumentalПродолжительность: 06:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC57F6485DD00661DB4E54EB43629161E41EB41B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470587   (83357) от 20.03.2012
+
+Sonic Symphony - (4CD) (2009-2012) [MP3|320 кб/с]<Trailer music,Soundtrack, Instrumental, Chor.>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - God of Thunder
+ 02 - Incredible Machines
+ 03 - Rebirth of a Legend
+ 04 - Rebirth Remix
+ 05 - Rise of a Hero
+ 06 - Warhammer
+ 07 - Guardian Angel
+ 08 - Limitless
+ 09 - Grand Design
+ 10 - Dark Force Rising(   Читать дальше...   )Жанр: Orchestral - Electronic - DramaПродолжительность: 00:33:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44A8893E22327219CBD73947863553AC8378133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468910   (83309) от 20.03.2012
 
 John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
@@ -6,7 +67,7 @@ John Williams - Star Wars The Complete Score (2008) [MP3|320 кб/с]<Score>
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_83309.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_83309.jpg" />
 </div>
 
 
@@ -41,7 +102,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82728.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82728.jpg" />
 </div>
 
 
@@ -76,7 +137,7 @@ Sherlock - Original Television Soundtrack Music From Series One (2012) [MP3|~256
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82515.jpg" />
 </div>
 
 
@@ -111,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_82403.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_82403.jpg" />
 </div>
 
 
@@ -146,7 +207,7 @@ VA - Любимые мелодии Советского кино (2012) [MP3|320
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81860.jpg" />
 </div>
 
 
@@ -181,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81834.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81834.jpg" />
 </div>
 
 
@@ -216,7 +277,7 @@ Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_81362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_81362.jpg" />
 </div>
 
 
@@ -251,7 +312,7 @@ VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_79120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_79120.jpg" />
 </div>
 
 
@@ -286,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78964.jpg" />
 </div>
 
 
@@ -321,7 +382,7 @@ Fleur (Flёur) - Пробуждение (2012) [MP3|320 кб/с]<Cardiowave, Roc
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_78208.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_78208.jpg" />
 </div>
 
 
@@ -356,7 +417,7 @@ Ronan Hardiman - Michael Flatley's Lord Of The Dance (1996) [MP3|320 кб/с]<Ce
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77954.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77954.jpg" />
 </div>
 
 
@@ -391,7 +452,7 @@ Future World Music - Дискография (2004-2007) [MP3|192-320 kbps]<Trail
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_77829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_77829.jpg" />
 </div>
 
 
@@ -417,7 +478,7 @@ Alan Silvestri & VA - Назад в будущее / Back To The Future (1985) [
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_75868.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_75868.jpg" />
 </div>
 
 
@@ -452,7 +513,7 @@ VA - The Orient Collective: Sacred Nomads (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71902.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71902.jpg" />
 </div>
 
 
@@ -481,7 +542,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71805.jpg" />
 </div>
 
 
@@ -510,7 +571,7 @@ VA - Country Soft (2025) [FLAC|Lossless|WEB-DL|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71684.jpg" />
 </div>
 
 
@@ -539,7 +600,7 @@ VA - The Orient Collective: Eastern Bloom (2025) [FLAC|Lossless|WEB-DL|tracks] <
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71481.jpg" />
 </div>
 
 
@@ -568,7 +629,7 @@ VA - The Orient Collective: Golden Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_71414.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_71414.jpg" />
 </div>
 
 
@@ -597,7 +658,7 @@ VA - The Orient Collective: Dunes & Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] 
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70947.jpg" />
 </div>
 
 
@@ -626,7 +687,7 @@ VA - The Orient Collective: Echoes Beyond Borders (2025) [FLAC|Lossless|WEB-DL|t
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70769.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70769.jpg" />
 </div>
 
 
@@ -655,7 +716,7 @@ John Williams - Film Music of John Williams (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70629.jpg" />
 </div>
 
 
@@ -683,7 +744,7 @@ VA - The Orient Collective: Caravan Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks]
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_70118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_70118.jpg" />
 </div>
 
 
@@ -712,7 +773,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69940.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69940.jpg" />
 </div>
 
 
@@ -744,7 +805,7 @@ Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69538.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69538.jpg" />
 </div>
 
 
@@ -758,64 +819,6 @@ Greg Mancol - Chill Passion (2016) [MP3|320 Kbps] <New Age, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45AC6480469B3CC604B74E223BAB228A4A31754C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784720   (69537) от 12.03.2025
-
-Greg Mancol - Time For Relax (2018) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams Of Peace (4:44)
-02. Like In The Water (3:38)
-03. Regret (3:16)
-04. Conversation With Echo (4:41)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8AFE46D1FD01058DA764F1B135DAD6FD2635642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785163   (69266) от 16.03.2025
-
-Armik - Gitano Amor (2025) [MP3|320 Kbps] <Flamenco, Instrumental, Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gitano Amor (04:18)
-02. Tears In Paradise (04:56)
-03. Libertad (04:00)
-04. Intro To Donatella (03:05)(   Читать дальше...   )Жанр: Flamenco, Instrumental, GuitarПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4A6D8858000C293BCA6689E3ED24B92E6615FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

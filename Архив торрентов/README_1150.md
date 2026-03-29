@@ -6,7 +6,7 @@ Brightlight - Belief (2018) [MP3|320 Kbps] <Psy-Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789915.jpg" />
+  <img src="Z:/picture/008/save_picture_789915.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ LogTail 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789908.jpg" />
+  <img src="Z:/picture/008/save_picture_789908.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Multitouch 1.8.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789902.jpg" />
+  <img src="Z:/picture/008/save_picture_789902.jpg" />
 </div>
 
 
@@ -92,7 +92,7 @@ DiskDigger 1.20.9.2699 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789897.jpg" />
+  <img src="Z:/picture/008/save_picture_789897.jpg" />
 </div>
 
 
@@ -118,7 +118,7 @@ Toji no Miko / Жрицы с мечами [2018, TV, 3 из 24] HDTV 720p raw
 >>Архив Аниме
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789881.jpg" />
+  <img src="Z:/picture/008/save_picture_789881.jpg" />
 </div>
 
 
@@ -144,7 +144,7 @@ Taking Back Sunday - Twenty (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Alternat
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789873.jpg" />
+  <img src="Z:/picture/008/save_picture_789873.jpg" />
 </div>
 
 
@@ -173,7 +173,7 @@ Arturia - Pigments 1.1.0.29 VSTi, VSTi3, AAX (x86/x64) RePack by VR [EN]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789872.jpg" />
+  <img src="Z:/picture/008/save_picture_789872.jpg" />
 </div>
 
 
@@ -200,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789867.jpg" />
+  <img src="Z:/picture/008/save_picture_789867.jpg" />
 </div>
 
 
@@ -229,7 +229,7 @@ Scherlokk - Files finder 4 v4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789865.jpg" />
+  <img src="Z:/picture/008/save_picture_789865.jpg" />
 </div>
 
 
@@ -255,7 +255,7 @@ DiskDigger 1.20.9.2699 RePack by вовава [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789864.jpg" />
+  <img src="Z:/picture/008/save_picture_789864.jpg" />
 </div>
 
 
@@ -281,7 +281,7 @@ aText 2.40 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789863.jpg" />
+  <img src="Z:/picture/008/save_picture_789863.jpg" />
 </div>
 
 
@@ -307,7 +307,7 @@ Tidy Up 5 v5.4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789860.jpg" />
+  <img src="Z:/picture/008/save_picture_789860.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789858.jpg" />
+  <img src="Z:/picture/008/save_picture_789858.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ Nektar Technology - Bolt 1.0.0  VSTi, VSTi3 (x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789855.jpg" />
+  <img src="Z:/picture/008/save_picture_789855.jpg" />
 </div>
 
 
@@ -389,7 +389,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789849.jpg" />
+  <img src="Z:/picture/008/save_picture_789849.jpg" />
 </div>
 
 
@@ -415,7 +415,7 @@ System Toolkit 4.2.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789847.jpg" />
+  <img src="Z:/picture/008/save_picture_789847.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Dropzone 4 Pro v4.2.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789843.jpg" />
+  <img src="Z:/picture/008/save_picture_789843.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ VA - 80s Chart Hits - Extended Versions Vol.3 (2018) 2CD [MP3|320 Kbps] <Synthpo
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789836.jpg" />
+  <img src="Z:/picture/008/save_picture_789836.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ Mp3tag 2.86 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789834.jpg" />
+  <img src="Z:/picture/008/save_picture_789834.jpg" />
 </div>
 
 
@@ -523,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789820.jpg" />
+  <img src="Z:/picture/008/save_picture_789820.jpg" />
 </div>
 
 
@@ -551,7 +551,7 @@ Principle 6 v6.14 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789813.jpg" />
+  <img src="Z:/picture/008/save_picture_789813.jpg" />
 </div>
 
 
@@ -577,7 +577,7 @@ Blackmagic Design Fusion Studio 17.4.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789808.jpg" />
+  <img src="Z:/picture/008/save_picture_789808.jpg" />
 </div>
 
 
@@ -603,7 +603,7 @@ Audiobook Builder 2.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789799.jpg" />
+  <img src="Z:/picture/008/save_picture_789799.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Permute 3 v3.0.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789786.jpg" />
+  <img src="Z:/picture/008/save_picture_789786.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789779.jpg" />
+  <img src="Z:/picture/008/save_picture_789779.jpg" />
 </div>
 
 
@@ -685,7 +685,7 @@ Mozilla Firefox Quantum 58.0.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789768.jpg" />
+  <img src="Z:/picture/008/save_picture_789768.jpg" />
 </div>
 
 

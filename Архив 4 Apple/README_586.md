@@ -1,3 +1,109 @@
+###  Публикация: 1429067   (177468) от 05.12.2020
+
+Macgo Mac Blu-ray Player Pro 3.3.20 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_177468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macgo Mac Blu-ray Player - это один из лучших (если не сказать - лучший) проигрывателей для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в macOS. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.12.2020Разработчик: MacgoПоддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18367444492ACC83CDA8774609F5CB4CDAD11D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594842   (177447) от 02.12.2022
+
+Dropzone 4 Pro v.4.5.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dropzone - удобная утилита для автоматизация рутинных действий.
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.11.2022Разработчик: © 2022 Aptonic LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BF0D997B39C4E33B40C564A92F31BD397775EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594882   (177432) от 02.12.2022
+
+DropDMG 3.6.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
+Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2022Разработчик: © 2002–2022 C-Command Software, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Голландский, Датский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37299C41EFC7B4B6506A2B556340EEC7FC5C49F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594829   (177400) от 02.12.2022
+
+Task Office 8.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подключите все свои календари к Task Office. Двусторонняя синхронизация работает с Apple iCal, Google Calendar, Exchange, Yahoo, Outlook и другими. После того как вы настроите соединение, все будет обновляться автоматически.Тип издания: macOS SoftwareРелиз состоялся: 01.12.2022Разработчик: © 2015 – 2022 by DK ConsultingПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA13DA0E1EC0EBBE6FB0951FADEF1985F1D7971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594847   (177398) от 02.12.2022
 
 Art Text 4 v.4.2.0 [En]
@@ -6,7 +112,7 @@ Art Text 4 v.4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177398.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ Money Pro - Personal Finance 2.8.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177380.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177380.jpg" />
 </div>
 
 
@@ -60,7 +166,7 @@ Path Finder 2147 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177364.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177364.jpg" />
 </div>
 
 
@@ -86,7 +192,7 @@ Geekbench 5 v.5.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177343.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177343.jpg" />
 </div>
 
 
@@ -114,7 +220,7 @@ iNet Network Scanner 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_177318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_177318.jpg" />
 </div>
 
 
@@ -141,7 +247,7 @@ HistoryInFilm 1.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176903.jpg" />
+  <img src="Z:/picture/005/save_picture_176903.jpg" />
 </div>
 
 
@@ -167,7 +273,7 @@ DrawOutX 2.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176900.jpg" />
+  <img src="Z:/picture/005/save_picture_176900.jpg" />
 </div>
 
 
@@ -194,7 +300,7 @@ RSS Button for Safari 1.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176892.jpg" />
+  <img src="Z:/picture/005/save_picture_176892.jpg" />
 </div>
 
 
@@ -221,7 +327,7 @@ Middle 1.5.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176886.jpg" />
+  <img src="Z:/picture/005/save_picture_176886.jpg" />
 </div>
 
 
@@ -247,7 +353,7 @@ Mic Drop 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176878.jpg" />
+  <img src="Z:/picture/005/save_picture_176878.jpg" />
 </div>
 
 
@@ -273,7 +379,7 @@ iNet Network Scanner 2.7.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176843.jpg" />
+  <img src="Z:/picture/005/save_picture_176843.jpg" />
 </div>
 
 
@@ -301,7 +407,7 @@ Nova 10.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176829.jpg" />
+  <img src="Z:/picture/005/save_picture_176829.jpg" />
 </div>
 
 
@@ -328,7 +434,7 @@ PullTube 1.8.4.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176827.jpg" />
+  <img src="Z:/picture/005/save_picture_176827.jpg" />
 </div>
 
 
@@ -354,7 +460,7 @@ SimpleMind Pro 1.27.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176818.jpg" />
+  <img src="Z:/picture/005/save_picture_176818.jpg" />
 </div>
 
 
@@ -382,7 +488,7 @@ Principle 6 v.6.27 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176792.jpg" />
+  <img src="Z:/picture/005/save_picture_176792.jpg" />
 </div>
 
 
@@ -408,7 +514,7 @@ Affinity Photo 1.10.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176787.jpg" />
+  <img src="Z:/picture/005/save_picture_176787.jpg" />
 </div>
 
 
@@ -434,7 +540,7 @@ Affinity Photo 2 v.2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176740.jpg" />
+  <img src="Z:/picture/005/save_picture_176740.jpg" />
 </div>
 
 
@@ -460,7 +566,7 @@ Barcode 2.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176730.jpg" />
+  <img src="Z:/picture/005/save_picture_176730.jpg" />
 </div>
 
 
@@ -488,7 +594,7 @@ Affinity Publisher 2 v.2.0.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_176712.jpg" />
+  <img src="Z:/picture/005/save_picture_176712.jpg" />
 </div>
 
 
@@ -515,7 +621,7 @@ Luminar Neo 1.5.1 Intl [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176669.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176669.jpg" />
 </div>
 
 
@@ -541,7 +647,7 @@ ACDSee Photo Studio 9 v.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176628.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176628.jpg" />
 </div>
 
 
@@ -568,7 +674,7 @@ Wondershare Filmora 11 v.11.7.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_176611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_176611.jpg" />
 </div>
 
 
@@ -579,112 +685,6 @@ Wondershare Filmora 11 v.11.7.7 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAFFBEAB7F405D08CBD145B1839C2AF9C98637A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429724   (176083) от 07.12.2020
-
-Multitouch 1.20.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легко добавлять жесты в macOS с Multitouch!
-
-Multitouch позволяет связать пользовательское действие с определенным магическим трекпадом или магическим жестом мыши. Например, нажатие на три пальца может выполнить вставку. Улучшите свой рабочий процесс, выполнив сочетания клавиш, контролируя вкладки своего браузера, выполняя средний щелчок мышью и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 06.12.2020Разработчик: Brass Monkery LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63D0D370E9A325E554174486B01909E695F87E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429826   (176082) от 07.12.2020
-
-VideoTag 1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176082.jpg" />
-</div>
-
-
-###  Подробнее
-
-VideoTag - сделайте вашу библиотеку TV / iTunes наглядной и потрясающей. Пометьте свои файлы mp4 / m4v метаданными и сделайте так, чтобы ваш телевизор или медиатека iTunes великолепно выглядели на всех ваших устройствах. Просто перетащите видеофайл из Finder или из TV / iTunes, и VideoTag быстро загрузит высококачественные метаданные с themoviedb.org. Вы можете выбрать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Bitfield AB.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и Шведский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3448E2D61053F5A9559CE60651360D7BFB124F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429729   (176079) от 07.12.2020
-
-ProFind 1.8.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176079.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAD07DF114E3825985B464038D48CB84EFF1032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429814   (176077) от 07.12.2020
-
-PullTube 1.6.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_176077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загрузка видео размещённым на YouTube или Vimeo, в том числе целые плейлисты, сохраняя исходный формат или извлечение только аудио. Обмен видео через интернет хостинг сервисов, таких как YouTube или Vimeo является обычной практикой, но потоковое содержимое не может работать должным образом, если у вас есть медленное подключение к интернету.Тип издания: macOS SoftwareРелиз состоялся: 07.12.2020Разработчик: MyMixAppsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1140F35B03DFF766356ACE47F9FA616CCEC63597
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1028313   (690976) от 22.06.2016
+
+Футбол. Чемпионат Европы 2016. Группа C. 3-й тур. Северная Ирландия - Германия (21.06.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690976.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 июня 2016, вторник. 19:00 МСК
+Группа C. 3-й тур.
+
+Стадион: Парк де Пренс (Париж, Франция) , 44 125 зрителей (91 % при вместимости 48 713)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Константин Генич, Нобель Арустамян)Продолжительность: 01:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4FD2DB306057E656C2FE9231B9539849457B1BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028324   (690975) от 22.06.2016
+
+Футбол. Чемпионат Европы 2016. Группа D. 3-й тур. Хорватия - Испания (21.06.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690975.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 июня 2016, вторник. 22:00 МСК
+Группа D. 3-й тур.
+
+Стадион: Матмут-Атлантик (Бордо, Франция) , 37 245 зрителей (87 % при вместимости 43 000)(   Читать дальше...   )Телекомпания: Первый HDЖанр: СпортЯзык озвучки: Русский (Виктор Гусев)Продолжительность: 01:48:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F613F806E5622CA45166B0332268AB194999CBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028246   (690974) от 22.06.2016
+
+Футбол. Чемпионат Европы 2016. Группа C. 3-й тур. Северная Ирландия - Германия (21.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690974.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 июня 2016, вторник. 19:00 МСК
+Группа C. 3-й тур
+
+Стадион: Парк де Пренс (Париж, Франция) , вместимость: 48713(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Константин Генич, Нобель Арустамян) / ИнтершумПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97966048923245482EC383F69BE7748A9E5312AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028329   (690973) от 22.06.2016
+
+Футбол. Чемпионат Европы 2016. Группа D. 3-й тур. Чехия - Турция (21.06.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690973.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 июня 2016, вторник. 22:00 МСК
+Группа D. 3-й тур.
+
+Стадион: Феликс Болар (Ланс, Франция) , 32 836 зрителей (80 % при вместимости 41 233)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Александр Шмурнов, Сергей Кривохарченко) / ИнтершумПродолжительность: 01:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1815228AE1AC699E5A4735CC355733B9ACE1ED56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028312   (690972) от 22.06.2016
+
+Футбол. Чемпионат Европы 2016. Группа C. 3-й тур. Украина - Польша (21.06.2016) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_690972.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 июня 2016, вторник. 19:00 МСК
+Группа C. 3-й тур.
+
+Стадион: Велодром (Марсель, Франция) , 58 874 зрителя (87 % при вместимости 67 394)(   Читать дальше...   )Телекомпания: Россия HDЖанр: СпортЯзык озвучки: Русский (Илья Казаков)Продолжительность: 01:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385D7DC26FA3003E40C63B844E935ED024D418FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028311   (690970) от 22.06.2016
 
 Футбол. Чемпионат Европы 2016. Группа D. 3-й тур. Хорватия - Испания (21.06.2016) HDTVRip [H.264/720p-LQ]
@@ -6,7 +151,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690970.jpg" />
+  <img src="Z:/picture/008/save_picture_690970.jpg" />
 </div>
 
 
@@ -35,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690864.jpg" />
+  <img src="Z:/picture/008/save_picture_690864.jpg" />
 </div>
 
 
@@ -64,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690607.jpg" />
+  <img src="Z:/picture/008/save_picture_690607.jpg" />
 </div>
 
 
@@ -93,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690581.jpg" />
+  <img src="Z:/picture/008/save_picture_690581.jpg" />
 </div>
 
 
@@ -120,7 +265,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690414.jpg" />
+  <img src="Z:/picture/008/save_picture_690414.jpg" />
 </div>
 
 
@@ -146,7 +291,7 @@ MTV Movie Awards 2012. Церемония награждения (2012) SATRip
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689831.jpg" />
+  <img src="Z:/picture/008/save_picture_689831.jpg" />
 </div>
 
 
@@ -172,7 +317,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689664.jpg" />
+  <img src="Z:/picture/008/save_picture_689664.jpg" />
 </div>
 
 
@@ -201,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689578.jpg" />
+  <img src="Z:/picture/008/save_picture_689578.jpg" />
 </div>
 
 
@@ -230,7 +375,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689577.jpg" />
+  <img src="Z:/picture/008/save_picture_689577.jpg" />
 </div>
 
 
@@ -259,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689576.jpg" />
+  <img src="Z:/picture/008/save_picture_689576.jpg" />
 </div>
 
 
@@ -288,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689575.jpg" />
+  <img src="Z:/picture/008/save_picture_689575.jpg" />
 </div>
 
 
@@ -317,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689574.jpg" />
+  <img src="Z:/picture/008/save_picture_689574.jpg" />
 </div>
 
 
@@ -346,7 +491,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689573.jpg" />
+  <img src="Z:/picture/008/save_picture_689573.jpg" />
 </div>
 
 
@@ -375,7 +520,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689572.jpg" />
+  <img src="Z:/picture/008/save_picture_689572.jpg" />
 </div>
 
 
@@ -404,7 +549,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689571.jpg" />
+  <img src="Z:/picture/008/save_picture_689571.jpg" />
 </div>
 
 
@@ -433,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689443.jpg" />
+  <img src="Z:/picture/008/save_picture_689443.jpg" />
 </div>
 
 
@@ -459,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689367.jpg" />
+  <img src="Z:/picture/008/save_picture_689367.jpg" />
 </div>
 
 
@@ -485,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689045.jpg" />
+  <img src="Z:/picture/008/save_picture_689045.jpg" />
 </div>
 
 
@@ -514,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688979.jpg" />
+  <img src="Z:/picture/008/save_picture_688979.jpg" />
 </div>
 
 
@@ -540,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688950.jpg" />
+  <img src="Z:/picture/008/save_picture_688950.jpg" />
 </div>
 
 
@@ -569,7 +714,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688948.jpg" />
+  <img src="Z:/picture/008/save_picture_688948.jpg" />
 </div>
 
 
@@ -582,151 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:965A195A53EEA24846ADCDA82E9FB51E8D72494D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028548   (688867) от 23.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа F. 3-й тур. Венгрия - Португалия (22.06.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688867.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июня 2016, среда. 19:00 МСК
-Группы F. 3-й тур.
-
-Стадион: Стад де Люмьер (Лион, Франция) , 55 514 зрителей (93 % при вместимости 59 500)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Денис Казанский, Роман Трушечкин)Продолжительность: 01:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47AC5ABE4EC8FF6227677C7BE6A56A9D86C8ED63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028613   (688866) от 23.06.2016
-
-Футбол. Кубок Америки 2016. 1/2 финала. США - Аргентина (21.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688866.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июня 2016, среда. 04:00 МСК
-1/2 финала
-
-Стадион: Релиант (Хьюстон, США) , вместимость: 71500(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Минин, Керимов)Продолжительность: 02:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4CC2D132CB5FE0FC0EBF6AE0F867853AFCE560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028602   (688852) от 23.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа F. 3-й тур. Исландия - Австрия (22.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688852.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июня 2016, среда. 19:00 МСК
-Группа F. 3-й тур
-
-Стадион: Стад де Франс (Сен-Дени, Франция) , 68 714 зрителей (86 % при вместимости 80 000)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Шмельков, Шмурнов, Генич)Продолжительность: 02:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FB6492301AB44C43BBF5F33EA19B6C85AFCA25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028599   (688849) от 23.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа E. 3-й тур. Италия - Ирландия (22.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688849.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июня 2016, среда. 22:00 МСК
-Группа E. 3-й тур
-
-Стадион: Пьер-Моруа (Вильнёв-д'Аск, Франция) , вместимость: 50186(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Сергей Кривохарченко, Нобель Арустамян)Продолжительность: 02:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983C86D4094443355BC2157294C64F708316B1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028532   (688755) от 23.06.2016
-
-Футбол. Чемпионат Европы 2016. Группа E. 3-й тур. Италия - Ирландия (22.06.2016) HDTV [H.264/1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688755.jpg" />
-</div>
-
-
-###  Подробнее
-
-22 июня 2016, среда. 22:00 МСК
-Группа E. 3-й тур
-Стадион:  Пьер-Моруа (Вильнёв-д'Аск, Франция) , вместимость: 50186
-Главный судья:  Овидиу Хацеган (Арад, Румыния)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: русский (Артем Шмельков (превью), Нобель Арустамян, Сергей Кривохарченко)Продолжительность: 02:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28EF67297FF7F7957A39BDB76AF4A2DDD2119FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

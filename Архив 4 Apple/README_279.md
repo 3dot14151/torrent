@@ -1,3 +1,29 @@
+###  Публикация: 1133996   (691542) от 14.05.2017
+
+SteerMouse 5.1 R2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_691542.jpg" />
+</div>
+
+
+###  Подробнее
+
+SteerMouse — продвинутый драйвер для USB и Bluetooth мышек, позволяющий присваивать их кнопкам дополнительные функции. Обладатели Mighty Mouse, а также манипуляторов от сторонних изготовителей могут увеличить производительность работы, используя новые возможности мышки: переключение приложений, нажатие горячих клавиш, быстрое наведение курсора на кнопки и многие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27 апреля 2017Разработчик: plentycomПоддерживаемая ОС: macOS 10.6  +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C24781CB8AEB8E7C919B74714A18D1A199340EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133998   (691540) от 14.05.2017
 
 Default Folder X 5.1.5 [Multi]
@@ -6,7 +32,7 @@ Default Folder X 5.1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691540.jpg" />
+  <img src="Z:/picture/008/save_picture_691540.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ BlueHarvest 6.4.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691416.jpg" />
+  <img src="Z:/picture/008/save_picture_691416.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ IINA 0.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691412.jpg" />
+  <img src="Z:/picture/008/save_picture_691412.jpg" />
 </div>
 
 
@@ -79,6 +105,32 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 835676   (691386) от 10.05.2015
+
+Dreamfall Chapters SE Reborn v.2.0.22 (2014) [Ru/En] [OS X Wineskin]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_691386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamfall Chapters Book One: Reborn — продолжение приключенческой игры Dreamfall, вышедшей в 2006 году. Chapters — это 3D-приключение, выполненное в жанре point-and-click квеста. Игроки могут переключаться между тремя персонажами и двумя мирами — Arcadia и Stark — которые существуют параллельно под присмотром Стража. Первый из миров — мир магии и хаоса, основанный (   Читать дальше...   )Тип издания: OS X WineskinРелиз состоялся: 2014Разработчик: Red Thread Games и Blink StudiosПоддерживаемая ОС: 10.9+Жанр: AdventureЯзык озвучки: English, German.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753E521D69B188B4635EE6F1648CDCEC92DB189C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134084   (691171) от 14.05.2017
 
 Coda 2.6.5 [En]
@@ -87,7 +139,7 @@ Coda 2.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691171.jpg" />
+  <img src="Z:/picture/008/save_picture_691171.jpg" />
 </div>
 
 
@@ -114,7 +166,7 @@ Blocs 2.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691165.jpg" />
+  <img src="Z:/picture/008/save_picture_691165.jpg" />
 </div>
 
 
@@ -143,7 +195,7 @@ PDF Expert 2.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691131.jpg" />
+  <img src="Z:/picture/008/save_picture_691131.jpg" />
 </div>
 
 
@@ -172,7 +224,7 @@ MacX Video Converter Pro 6.0.4 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691077.jpg" />
+  <img src="Z:/picture/008/save_picture_691077.jpg" />
 </div>
 
 
@@ -199,7 +251,7 @@ Dying Light: The Following Enhanced Edition (2015) [Multi] [macOS Native game]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690957.jpg" />
+  <img src="Z:/picture/008/save_picture_690957.jpg" />
 </div>
 
 
@@ -225,7 +277,7 @@ UctoX 2 v2.9.2 U2B [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690858.jpg" />
+  <img src="Z:/picture/008/save_picture_690858.jpg" />
 </div>
 
 
@@ -253,7 +305,7 @@ Oka Unarchiver PRO 2.1.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690851.jpg" />
+  <img src="Z:/picture/008/save_picture_690851.jpg" />
 </div>
 
 
@@ -280,7 +332,7 @@ Music Tag Editor Pro 6.1.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690849.jpg" />
+  <img src="Z:/picture/008/save_picture_690849.jpg" />
 </div>
 
 
@@ -308,7 +360,7 @@ TransData: Internet Data Speed 2.8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690847.jpg" />
+  <img src="Z:/picture/008/save_picture_690847.jpg" />
 </div>
 
 
@@ -334,7 +386,7 @@ Omni Recover 3 v3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690846.jpg" />
+  <img src="Z:/picture/008/save_picture_690846.jpg" />
 </div>
 
 
@@ -361,7 +413,7 @@ Cover Desk 1.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690845.jpg" />
+  <img src="Z:/picture/008/save_picture_690845.jpg" />
 </div>
 
 
@@ -390,7 +442,7 @@ Priime Styles 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690765.jpg" />
+  <img src="Z:/picture/008/save_picture_690765.jpg" />
 </div>
 
 
@@ -417,7 +469,7 @@ NCH DreamPlan Plus 7.21 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690741.jpg" />
+  <img src="Z:/picture/008/save_picture_690741.jpg" />
 </div>
 
 
@@ -446,7 +498,7 @@ SoundSource 5.3.10 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690739.jpg" />
+  <img src="Z:/picture/008/save_picture_690739.jpg" />
 </div>
 
 
@@ -473,7 +525,7 @@ MaxCommander 2.4.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690731.jpg" />
+  <img src="Z:/picture/008/save_picture_690731.jpg" />
 </div>
 
 
@@ -502,7 +554,7 @@ Color UI 2.2.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690727.jpg" />
+  <img src="Z:/picture/008/save_picture_690727.jpg" />
 </div>
 
 
@@ -528,7 +580,7 @@ uDock 3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690725.jpg" />
+  <img src="Z:/picture/008/save_picture_690725.jpg" />
 </div>
 
 
@@ -554,7 +606,7 @@ Permute 3 v3.8.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690721.jpg" />
+  <img src="Z:/picture/008/save_picture_690721.jpg" />
 </div>
 
 
@@ -580,7 +632,7 @@ Comic Life 3 v3.5.19 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690719.jpg" />
+  <img src="Z:/picture/008/save_picture_690719.jpg" />
 </div>
 
 
@@ -599,6 +651,35 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028432   (690658) от 22.06.2016
+
+Blocs 2.0.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_690658.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простой способ создания красивых сайтов.
+Blocs избавляет от необходимости написания кода вручную, что означает — каждый может создавать веб-сайты. Blocs  генерирует хорошее качество кода без лишних или встроенных стилей. Blocs  обеспечивает новый уровень работы и помогает Вам сосредоточиться  на  визуальном создании веб-сайтов.
+
+Кодирование без программирования - Вам (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 22 июня 2016Разработчик: BlocsAppПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59AC8A018E604754ADACA2A64F94795D383CC309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534916   (690634) от 04.03.2022
 
 Omni Toolbox 1.1.0 [En]
@@ -607,7 +688,7 @@ Omni Toolbox 1.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690634.jpg" />
+  <img src="Z:/picture/008/save_picture_690634.jpg" />
 </div>
 
 
@@ -618,89 +699,6 @@ Omni Toolbox - это обширный набор инструментов дл�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95146D36AE510134CD7CB90AE32EDAB2239C3911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534913   (690616) от 04.03.2022
-
-Fix My iPhone 2.0.8 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fix My iPhone — это инструмент для восстановления системы iOS. Устраняет все известные неисправности на  вашем iPhone:
-• Зависший на логотипе Apple
-• Черный / зависший экран
-• Ошибки обновления / восстановления iTunes и более 50+ сбоев обновления iOS 15(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.03.2022Разработчик: © 2022 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AF8298B9F4BBCED79EE1CCEE115C52933FE1AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028377   (690543) от 22.06.2016
-
-TG Pro (Temperature Gauge Pro) 2.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690543.jpg" />
-</div>
-
-
-###  Подробнее
-
-TG Pro — контроль температуры и вентиляторов вашего Mac.
-Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июня 2016Разработчик: Tunabelly SoftwareПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF88EC0C954CEA799BFE53AC412888AA5269387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028322   (690542) от 22.06.2016
-
-Remotix VNC & RDP 4.0.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690542.jpg" />
-</div>
-
-
-###  Подробнее
-
-Remotix это быстрый, удобный и безопасный VNC и RDP клиент для удаленного доступа к компьютерам
-Туннелирование SSH, VNC и RDP. Синхронизация буфера обмена: картинки, RTF, HTML. Удаленный доступ к Mac OS X, Windows и Linux. Не нужна установка ПО на удаленный компьютер. Поддержка Apple Screen Sharing, RDP и VNC. Доступ к Мак через интернет через Back to My Mac. Передача (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 21 июня 2016Разработчик: Nulana LTDПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065F3B321C574C8589744DF5AA43801943A0FEA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

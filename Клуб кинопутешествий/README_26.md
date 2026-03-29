@@ -1,3 +1,55 @@
+###  Публикация: 910755   (618311) от 22.06.2015
+
+Альпы с высоты: Северные Альпы / Die Alpen von oben. Von Salzburg zum Knigssee (2011) BDRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_618311.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам предстоит увидеть Альпы от Словении до Швейцарии. Вас ждет путешествие по наиболее известной горной цепи Европы. Вы сможете оценить удивительно разнообразные ландшафты, узнаете об исторических достопримечательностях и современных видах экстремального спорта, посетите уединенные горные обители и познакомитесь с чрезвычайно гостеприимными местными жителями.Телекомпания: ARTE, Bayerischer Rundfunk, Vidicom Media ProductionsЖанр: ДокументальныйРежиссер: Кристиан Стивенхофер, Петер Барделе, Лиза ЭдерПеревод: Двухголосый  закадровый, профессиональныйПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1FF872E0362CEFE5632636C1A22F140D946F835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911331   (618032) от 22.06.2015
+
+Альпы с высоты: Северные Альпы /  Die Alpen von oben: Nordalpen (2011) BDRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_618032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вас ждет путешествие по самому известному горному хребту в Европе, Альпам. Вы сможете оценить удивительно разнообразные ландшафты, узнаете об исторических достопримечательностях и современных видах экстремального спорта, посетите уединенные горные обители и познакомитесь с чрезвычайно гостеприимными местными жителями.Жанр: ДокументальныйРежиссер: Кристиан Стивенхофер, Петер Барделе, Лиза ЭдерПеревод: Двухголосый закадровый, профессиональныйПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79B055E3E80860C8BD47A7EBE42B36922B0A41BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911090   (617805) от 22.06.2015
 
 Орел и решка. Сезон №10. Выпуск №20. Юбилейный сезон: Севилья (2015.06.21) SATRip
@@ -6,7 +58,7 @@
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617805.jpg" />
+  <img src="Z:/picture/008/save_picture_617805.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616066.jpg" />
+  <img src="Z:/picture/008/save_picture_616066.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615295.jpg" />
+  <img src="Z:/picture/008/save_picture_615295.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615171.jpg" />
+  <img src="Z:/picture/008/save_picture_615171.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_614946.jpg" />
+  <img src="Z:/picture/005/save_picture_614946.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614590.jpg" />
+  <img src="Z:/picture/008/save_picture_614590.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613838.jpg" />
+  <img src="Z:/picture/008/save_picture_613838.jpg" />
 </div>
 
 
@@ -191,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613828.jpg" />
+  <img src="Z:/picture/008/save_picture_613828.jpg" />
 </div>
 
 
@@ -217,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613434.jpg" />
+  <img src="Z:/picture/008/save_picture_613434.jpg" />
 </div>
 
 
@@ -243,7 +295,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613425.jpg" />
+  <img src="Z:/picture/008/save_picture_613425.jpg" />
 </div>
 
 
@@ -269,7 +321,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613243.jpg" />
+  <img src="Z:/picture/008/save_picture_613243.jpg" />
 </div>
 
 
@@ -295,7 +347,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611897.jpg" />
+  <img src="Z:/picture/008/save_picture_611897.jpg" />
 </div>
 
 
@@ -321,7 +373,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611883.jpg" />
+  <img src="Z:/picture/008/save_picture_611883.jpg" />
 </div>
 
 
@@ -347,7 +399,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611061.jpg" />
+  <img src="Z:/picture/008/save_picture_611061.jpg" />
 </div>
 
 
@@ -373,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609630.jpg" />
+  <img src="Z:/picture/008/save_picture_609630.jpg" />
 </div>
 
 
@@ -399,7 +451,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609626.jpg" />
+  <img src="Z:/picture/008/save_picture_609626.jpg" />
 </div>
 
 
@@ -425,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609625.jpg" />
+  <img src="Z:/picture/008/save_picture_609625.jpg" />
 </div>
 
 
@@ -451,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609621.jpg" />
+  <img src="Z:/picture/008/save_picture_609621.jpg" />
 </div>
 
 
@@ -477,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609610.jpg" />
+  <img src="Z:/picture/008/save_picture_609610.jpg" />
 </div>
 
 
@@ -503,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609457.jpg" />
+  <img src="Z:/picture/008/save_picture_609457.jpg" />
 </div>
 
 
@@ -529,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609372.jpg" />
+  <img src="Z:/picture/008/save_picture_609372.jpg" />
 </div>
 
 
@@ -555,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608830.jpg" />
+  <img src="Z:/picture/008/save_picture_608830.jpg" />
 </div>
 
 
@@ -581,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608236.jpg" />
+  <img src="Z:/picture/008/save_picture_608236.jpg" />
 </div>
 
 
@@ -607,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607987.jpg" />
+  <img src="Z:/picture/008/save_picture_607987.jpg" />
 </div>
 
 
@@ -618,58 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBAF9B7B7E385FEF9F1E6DE0AEC74AE84418665E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546264   (607842) от 23.04.2022
-
-Корни и кроны. По городам и весям / Des Racines et des Ailes. Des Racines & des Ailes (2017-2019) DVB (часть 6, серии 1-20 из 20) [FR / RU Sub]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Французский документальный цикл в виде тележурнала "Корни и кроны / По городам и весям" создан Патриком де Каролисом / Patrick de Carolis и Патриком Шарлем / Patrick Charles в 1997 году. Выходит дважды в квартал по каналу France 3 с ретрансляцией по TV5. Патрик де Каролис вел программу до 2005 года, когда он был избран Президентом France Télévisions, (   Читать дальше...   )Производство: Франция, France 3 Production Lille, Infotainment ChinaЖанр: документально-познавательный, путешествияРежиссер: Патрик Шарль, Жан-Люк ОрабонаПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (перевод Е.Пичугиной, И.Безлюдной, Éclair Group), , английские, французские, немецкие, нидерландские, румынские - (IDX+SUB); английские, французские - (SRT)Продолжительность: 40:05:09 (20x ~02:00:00)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72CBDEA22E7487B10DE60BB7BAE8AC4741E9B1EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546206   (607684) от 23.04.2022
-
-Как река становится морем. Гаронна / Au Bout c'est la Mer. Garonne (2020) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гаронна - шестая по длине река Франции, берет свое начало в центральных Пиренеях. Будучи бурным горным потоком, она быстро спускается по пиренейским склонам. Первые 50 километров своего пути река проходит по территории Испании.Гаронна выступает естественной границей между двумя крупными государствами Западной Европы - Испанией и Францией, после чего река спускается (   Читать дальше...   )Производство: Франция, France television, Step by Step producionЖанр: документальный, познавательный, путешествияРежиссер: Вильям ЖаффеПеревод: двуголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5911143FDF9A15272063A62E18B6525A9B00AC09
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,81 @@
+###  Публикация: 1318737   (465109) от 21.08.2019
+
+Александр Исаевич Солженицын | Собрание сочинений в 30 томах [20 томов] (2007-2017) [PDF]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_465109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Исаевич Солженицын (1918–2008) — советский и российский писатель, драматург, публицист, поэт, общественный и политический деятель, живший и работавший в СССР, Швейцарии, США и России. Лауреат Нобелевской премии по литературе (1970). Помимо художественных литературных произведений, затрагивающих, как правило, острые общественно-политические вопросы, получил (   Читать дальше...   )Жанр: Классическая литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0490FA74429CB829AAA33A7EED5F8DD64B459E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406861   (463988) от 08.09.2020
+
+Галина Чередий | Сборник произведений [18 книг] (2015-2018) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_463988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ты смотришь на меня голодными глазами. Кого ты видишь? Что раглядываешь так жадно? Тебе бросается в глаза моя высокая грудь? Тонкая талия? Роскошная… да — да, именно роскошная задница? Или эти длинные умопомрачительные ноги, которыми я охвачу тебя во время…? Изящные пальцы, что будут ласкать твой..? Может, пухлые губы, которые ты уже представляешь на своем..?Жанр: Эротическая литература, Любовно-фантастические романыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D74A3BE1482456AA90075EC5E90575EC43951F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 703294   (462497) от 24.09.2013
+
+Борис Пастернак | Полное собрание сочиненийв в 11-ти томах (2003-2005) [DJVU]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_462497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Борис Леонидович Пастернак (1890—1960) — выдающийся русский поэт, прозаик, переводчик, лауреат Нобелевской премии по литературе (1958). Полное собрание сочинений составлено сыном поэта Евгением Борисовичем и его женой Еленой Владимировной и максимально приближено к академическому. В нём впервые опубликован весь объём собранного за 40 лет архивного материала, касающегося (   Читать дальше...   )Жанр: Поэзия, Проза, ПублицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3B50319508B100ACCF90A069AB3E56459FB2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406854   (462193) от 09.09.2020
 
 Артур Таболов | Сборник произведений [4 книги] (2007-2020) [FB2]
@@ -6,7 +84,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462193.jpg" />
+  <img src="Z:/picture/008/save_picture_462193.jpg" />
 </div>
 
 
@@ -32,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461905.jpg" />
+  <img src="Z:/picture/008/save_picture_461905.jpg" />
 </div>
 
 
@@ -58,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461847.jpg" />
+  <img src="Z:/picture/008/save_picture_461847.jpg" />
 </div>
 
 
@@ -85,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459038.jpg" />
+  <img src="Z:/picture/008/save_picture_459038.jpg" />
 </div>
 
 
@@ -113,7 +191,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457152.jpg" />
+  <img src="Z:/picture/008/save_picture_457152.jpg" />
 </div>
 
 
@@ -141,7 +219,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456699.jpg" />
+  <img src="Z:/picture/008/save_picture_456699.jpg" />
 </div>
 
 
@@ -167,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454775.jpg" />
+  <img src="Z:/picture/008/save_picture_454775.jpg" />
 </div>
 
 
@@ -196,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454656.jpg" />
+  <img src="Z:/picture/008/save_picture_454656.jpg" />
 </div>
 
 
@@ -224,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449280.jpg" />
+  <img src="Z:/picture/008/save_picture_449280.jpg" />
 </div>
 
 
@@ -250,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447227.jpg" />
+  <img src="Z:/picture/008/save_picture_447227.jpg" />
 </div>
 
 
@@ -276,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447037.jpg" />
+  <img src="Z:/picture/008/save_picture_447037.jpg" />
 </div>
 
 
@@ -302,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442549.jpg" />
+  <img src="Z:/picture/008/save_picture_442549.jpg" />
 </div>
 
 
@@ -328,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435786.jpg" />
+  <img src="Z:/picture/008/save_picture_435786.jpg" />
 </div>
 
 
@@ -354,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429468.jpg" />
+  <img src="Z:/picture/008/save_picture_429468.jpg" />
 </div>
 
 
@@ -380,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429449.jpg" />
+  <img src="Z:/picture/008/save_picture_429449.jpg" />
 </div>
 
 
@@ -406,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429444.jpg" />
+  <img src="Z:/picture/008/save_picture_429444.jpg" />
 </div>
 
 
@@ -432,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429382.jpg" />
+  <img src="Z:/picture/008/save_picture_429382.jpg" />
 </div>
 
 
@@ -458,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429232.jpg" />
+  <img src="Z:/picture/008/save_picture_429232.jpg" />
 </div>
 
 
@@ -485,7 +563,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429216.jpg" />
+  <img src="Z:/picture/008/save_picture_429216.jpg" />
 </div>
 
 
@@ -511,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429175.jpg" />
+  <img src="Z:/picture/008/save_picture_429175.jpg" />
 </div>
 
 
@@ -538,7 +616,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422906.jpg" />
+  <img src="Z:/picture/008/save_picture_422906.jpg" />
 </div>
 
 
@@ -564,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422838.jpg" />
+  <img src="Z:/picture/008/save_picture_422838.jpg" />
 </div>
 
 
@@ -590,7 +668,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_422287.jpg" />
+  <img src="Z:/picture/008/save_picture_422287.jpg" />
 </div>
 
 
@@ -603,85 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51C290FC350AB73A3C938B4BAF93C36B958DE0FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 247583   (421554) от 19.10.2010
-
-Роман Артемьев | Сборник книг (28 томов) [2009-2010] [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421554.jpg" />
-</div>
-
-
-###  Подробнее
-
-ФАНТАСТИКА ...Горьки плоды войны. Человечество, разделившееся на жителей нашей планеты и псионов; мир, чуть оправившийся в последствии Вторжения чужаков... Казалось, что становление целительства и улучшение пси-технологий даст возможность нашей цивилизации поменяться и окрепнуть. Однако сейчас, после утраты совместного недруга, старая неприязнь народов возвратилась в мир, а выход в свет жителей нашей планеты со сверхспособностями веселит лишь немногих.
-И по улицам солидных мегаполисов прогуливаются загадочные создания, одержимые мыслью истребить всех псионов на планете. Настали увесистые деньки, деньки, вынудившие снова взяться за орудие в борьбе с новеньким, хитрым и беспощадным недругом: загадочной третьей силой...Формат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012581   (418187) от 23.10.2016
-
-Ольга Грейгъ | Собрание сочинений [21 книга] (2008-2016) [FB2]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ольга Ивановна Грейгъ - родилась в РФ на Урале, на родине предков; затем семья переехала в Белоруссию. Окончила белорусский университет; филолог. Журналист, писатель. Имеет членский билет Союза писателей СССР, Союза писателей Беларуси. А также членский билет МАПП — Международной ассоциации писателей и публицистов (Authors and Publicists International Association). (   Читать дальше...   )Жанр: История, Военная История, Биографии и Мемуары, Тайны и ЗагадкиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA5267AB3C980FB4B1E63DFCDAFF52575E73E88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395441   (417790) от 04.10.2011
-
-Иван Андреевич Крылов | Полное собрание сочинений в 3-х томах + Полное собрание басен [1945] [PDF]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее издание Полного собрания сочинений великого русского писателя-баснописца Ивана Андреевича Крылова осуществляется по постановлению Совета Народных Комиссаров СССР от 15 июля 1944 г. При жизни И.А.Крылова собрания его сочинений не издавалось. Многие прозаические произведения, пьесы и стихотворения оставались затерянными в периодических изданиях конца XVIII (   Читать дальше...   )Издательство: Государственное издательство художественной литературыФормат: PDFКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2203FAE1291E9E91B19CE5A8D50C3D0C006A6470
 ```
 
 https://mybot314.ru/tekegram_catalog/

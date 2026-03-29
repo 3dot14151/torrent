@@ -1,3 +1,109 @@
+###  Публикация: 1423848   (297871) от 14.11.2020
+
+Lyn 2.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_297871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 10.11.2020Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.12.6+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB047B354E485B47B8D0D9DD511B689AC84B95A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423698   (297855) от 14.11.2020
+
+TechSmith Snagit 2021.0.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_297855.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.11.2020Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C59E4AC612FD717692053D7994B2A2DFA676D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423695   (297749) от 14.11.2020
+
+Rhinoceros 7 v7.1.20314 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_297749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быть эффективным дизайнером сегодня, значит использовать наукоемкие инструменты. Важно быстро развивать свои проекты и качественно доносить их до каждого, от продукта исследований, разработки, маркетинга до производства или строительного процесса.
+
+Начинаете с эскиза, рисования, физической модели, сканированных данных, или только идеи - Rhino предоставляет инструменты (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.11.2020Разработчик: Robert McNeel & Associates (McNeel)Поддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F22E9CF5461272F1136DB963A6C514E5F7C1414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423709   (297739) от 14.11.2020
+
+Tuneskit Spotify Converter 2.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_297739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный и умный инструмент для преобразования музыки Spotify для загрузки песен, плейлистов, альбомов, исполнителей Spotify, а также для преобразования любой дорожки из Spotify в обычные MP3, M4A, AAC, WAV, M4B, FLAC для любого музыкального проигрывателя, такого как iPod, Zune, Creative Zen и т. д.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA65465A66F30C5BD235C6E054E6D93D17A4B613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423755   (297738) от 14.11.2020
 
 Compressor 4.5 [Multi]
@@ -6,7 +112,7 @@ Compressor 4.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297738.jpg" />
+  <img src="Z:/picture/008/save_picture_297738.jpg" />
 </div>
 
 
@@ -32,7 +138,7 @@ Fenetre 0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297443.jpg" />
+  <img src="Z:/picture/008/save_picture_297443.jpg" />
 </div>
 
 
@@ -61,7 +167,7 @@ CopyClip 2 - Clipboard Manager 2 v2.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297284.jpg" />
+  <img src="Z:/picture/008/save_picture_297284.jpg" />
 </div>
 
 
@@ -89,7 +195,7 @@ Memory Clean 3 v1.0.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297152.jpg" />
+  <img src="Z:/picture/008/save_picture_297152.jpg" />
 </div>
 
 
@@ -117,7 +223,7 @@ Final Cut Pro 10.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297059.jpg" />
+  <img src="Z:/picture/008/save_picture_297059.jpg" />
 </div>
 
 
@@ -145,7 +251,7 @@ Multitouch 1.7.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297021.jpg" />
+  <img src="Z:/picture/008/save_picture_297021.jpg" />
 </div>
 
 
@@ -173,7 +279,7 @@ Tap Forms Organizer 5 v5.3.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297020.jpg" />
+  <img src="Z:/picture/008/save_picture_297020.jpg" />
 </div>
 
 
@@ -201,7 +307,7 @@ TextMate 2.0 rc-17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297014.jpg" />
+  <img src="Z:/picture/008/save_picture_297014.jpg" />
 </div>
 
 
@@ -229,7 +335,7 @@ SoftRAID 5.7.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296968.jpg" />
+  <img src="Z:/picture/008/save_picture_296968.jpg" />
 </div>
 
 
@@ -258,7 +364,7 @@ Macsome iTunes Converter 2.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296961.jpg" />
+  <img src="Z:/picture/008/save_picture_296961.jpg" />
 </div>
 
 
@@ -285,7 +391,7 @@ Amadeus Pro 2.6.2 (2221) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296931.jpg" />
+  <img src="Z:/picture/008/save_picture_296931.jpg" />
 </div>
 
 
@@ -311,7 +417,7 @@ Cisdem OCRWizard 4.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296929.jpg" />
+  <img src="Z:/picture/008/save_picture_296929.jpg" />
 </div>
 
 
@@ -337,7 +443,7 @@ DxO PhotoLab 2 ELITE Edition 2.3.3 (build 47) CR2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296928.jpg" />
+  <img src="Z:/picture/008/save_picture_296928.jpg" />
 </div>
 
 
@@ -365,7 +471,7 @@ Posterino 3 v3.6.5 (3082) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296926.jpg" />
+  <img src="Z:/picture/008/save_picture_296926.jpg" />
 </div>
 
 
@@ -393,7 +499,7 @@ ScreenFloat 1.5.17 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296920.jpg" />
+  <img src="Z:/picture/008/save_picture_296920.jpg" />
 </div>
 
 
@@ -422,7 +528,7 @@ CADintosh X 8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296919.jpg" />
+  <img src="Z:/picture/008/save_picture_296919.jpg" />
 </div>
 
 
@@ -448,7 +554,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296885.jpg" />
+  <img src="Z:/picture/008/save_picture_296885.jpg" />
 </div>
 
 
@@ -475,7 +581,7 @@ MiniTube 2.5.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296875.jpg" />
+  <img src="Z:/picture/008/save_picture_296875.jpg" />
 </div>
 
 
@@ -502,7 +608,7 @@ Watercolor Studio Pro 1.4.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296813.jpg" />
+  <img src="Z:/picture/008/save_picture_296813.jpg" />
 </div>
 
 
@@ -528,7 +634,7 @@ Disk Drill Media Recovery 3.6.920 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296778.jpg" />
+  <img src="Z:/picture/008/save_picture_296778.jpg" />
 </div>
 
 
@@ -556,7 +662,7 @@ PhoneClean Pro 4.0.1 (20151202) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296728.jpg" />
+  <img src="Z:/picture/008/save_picture_296728.jpg" />
 </div>
 
 
@@ -582,7 +688,7 @@ Hands Off! 4.4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296650.jpg" />
+  <img src="Z:/picture/008/save_picture_296650.jpg" />
 </div>
 
 
@@ -594,118 +700,6 @@ Hands Off! - контроль доступа в Интернет
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A54C8A744CCE7AD2E7582524B7AA3F270CE75353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334284   (296582) от 28.10.2019
-
-Moom 3.2.16 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобная утилита для быстрого изменения размера окон и их положения в Mac OS X. Добавляет новые возможности зелёной кнопки ресайза окон в Файндэр.
-
-Необходимо отметить, прозрачный pop-up идеально вписывается в идеологию новой операционной системы. Внутри небольшого окошка находятся пять пиктограмм отображающих предстоящие изменения положения окна. Шестой значок позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.10.2019Разработчик: Many TricksПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D13259F751890C534ACCB1467806528261403C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961950   (296552) от 03.12.2015
-
-Acronis True Image 2016 (2.0.6038) [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296552.jpg" />
-</div>
-
-
-###  Подробнее
-
-Acronis True Image 2016 for Mac
-Надежное резервное копирование и восстановление всей системы - электронной почты, музыки, фотографий, видеозаписей, документов, личных настроек, закладок и всех приложений. Надежное и защищенное резервное копирование, максимально интегрированное с облаком Acronis Cloud.
-
-Теперь вы решаете, где, когда и как сохранять свои данные. Используйте (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 декабря 2015Разработчик: Acronis International GmbHПоддерживаемая ОС: OS X 10.9.5 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E11126526D7B835138C2E5533B811D44BCB84E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962087   (296551) от 03.12.2015
-
-Movist 1.4.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудиовыход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 декабря 2015Разработчик: MovistПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Русский, Английский, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C4339D198FB38DA1487D46215BF3530BE4B9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961955   (296549) от 03.12.2015
-
-Autopano Giga 4.2.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296549.jpg" />
-</div>
-
-
-###  Подробнее
-
-Autopano Giga — программа, позволяющая объединять несколько фотоснимков с частичным перекрытием в большой панорамный снимок.
-В отличие от многих популярных программ, применяемых для склейки панорам, здесь склейка происходит в полностью автоматическом режиме с  использованием собственных алгоритмов SIFT и RANSAC, производящих склейку намного быстрее и точнее, есть (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 декабря 2015Разработчик: Kolor SARLПоддерживаемая ОС: OS X 10.9.5+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0A1AC7C9A682EA106234661A1687127C2868843
 ```
 
 https://mybot314.ru/tekegram_catalog/

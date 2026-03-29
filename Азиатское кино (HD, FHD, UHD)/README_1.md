@@ -1,3 +1,107 @@
+###  Публикация: 1603773   (1045550) от 11.01.2023
+
+Настоящая легенда / Su Qi-er / True Legend (2010) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Су, генерал в армии принца, устал от войн и покидает пост на самом взлете, оставив вместо себя своего сводного брата Юаня. Вместе с женой, родной сестрой Юаня, Су перебирается в провинцию, где вскоре у них рождается сын. Но Юань на самом деле уже давно и люто ненавидит семью Су, отец которого когда-то убил его собственного отца, и все эти годы изучал смертоносную (   Читать дальше...   )Производство: Китай, EDKO Film Ltd., Focus Features, Shanghai Film GroupЖанр: фэнтези, боевик, драмаРежиссер: Юэнь У-ПинАктеры: Винсент Чжао, Чжоу Сюнь, Энди Он, Го Сяодун, Джей Чоу, Мишель Йео, Фэн Сяоган, Дэвид Кэрредин, Кунг Ле, Гордон ЛюПеревод: ДублированныйЯзык озвучки: Русский, китайскийСубтитры: Английские (PGS)Продолжительность: 01:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91F3F6FB02779818CE862458118B3FBD9EE1A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604459   (1045375) от 13.01.2023
+
+Великолепный мясник / Lin Shi Rong / The Magnificent Butcher (1979) BDRemux [H.264/1080p] [Remastered] [AVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из учеников знаменитого Вонга Фей-Хунга, мясник по имени Лам Ка-Винг, постоянно влипает в разные неприятности, хотя его вины в этом обычно нет. Вот и на этот раз проблемы устраивает сын мастера кунгфу из соседней школы, отнявший силой жену брата Лам Ка-Винга. Вонг Фей-Хунг уезжает из города по делам и если бы не «залетный» учитель боевых искусств, не сносить (   Читать дальше...   )Производство: Гонконг, Golden Harvest Company Ltd.Жанр: боевик, комедия, драмаРежиссер: Юэнь У-ПинАктеры: Саммо Хун, Куань Такхин, Юэнь Бяо, Вэй Пай, Фань Мэйшэн, Чун Фат, Ли Хой-Сан, Фун Хак-Он, Кики Чен, Джин ТэнгПеревод: Авторский (Сергей Кузнецов)Язык озвучки: русский, китайский, английскийСубтитры: Английские (PGS)Продолжительность: 01:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF81B024732E40181AA974A6E04E93B757E543C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596836   (1045353) от 13.01.2023
+
+Чрезвычайная ситуация / Bisangseoneon / Emergency Declaration (2021) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045353.jpg" />
+</div>
+
+
+###  Подробнее
+
+На борту забитого до отказа авиалайнера, совершающего рейс на Гавайи, таинственно погибает один из пассажиров. Вскоре воздушное судно охватывает хаос: все больше людей поражено неизвестной болезнью. Оперативный штаб пытается добиться посадки, но аэропорты не принимают зараженный рейс. Горючее на исходе, и теперь обреченный самолет может спасти лишь чудо.Производство: Южная Корея / C-JeS Entertainment, Magnum9, Showbox EntertainmentЖанр: триллер, драмаРежиссер: Хан Джэ-римАктеры: Ли Бён-хон, Сон Кан-хо, Чон До-ён, Ким Нам-гиль, Им Щи-ван, Ким Со-джин, Ким Бо-мин, Пак Хэ-джун, Хён Бон-щик, У Ми-хваПеревод: Дублированный (Кириллица)Язык озвучки: русский, корейский, английскийСубтитры: русские (forced, full), английскиеПродолжительность: 02:20:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFED3C6FC896E19E301466128C5EBD5D841AA447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604505   (1045316) от 14.01.2023
+
+Рай Сусаки: Район красных фонарей / Suzaki Paradaisu: Akashingo / Suzaki Paradise: Red Light (1956) WEB-DL [H.264/1080p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цутаэ покинула дом терпимости и решила начать новую жизнь с Ёсидзи, но он потерял работу и не может придумать, как им жить дальше. Пытаясь выкрутиться из неприятностей парочка оказывается возле района красных фонарей, где их отношениям предстоит пройти проверку на прочность.Производство: Япония / Nikkatsu CorporationЖанр: драмаРежиссер: Юдзо КавасимаАктеры: Митиё Аратама, Юкико Тодороки, Сэидзабуро Кавадзу, Тацуя Михаси, Идзуми Асикава, Синсукэ Маки, Норико Кацура, Фудэко Танака, Кэндзиро Уэмура, Кёдзо ФуюкиПеревод: Одноголосый любительский (Shaman)Язык озвучки: русский, японскийСубтитры: русские, английские, португальские, турецкиеПродолжительность: 01:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1062952504AAE91224BD5FAF1B9C47E1DD7C62FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604829   (1045183) от 15.01.2023
 
 Дом / Hausu / House (1977) BDRemux [H.264/1080p] [VO]
@@ -6,7 +110,7 @@
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045183.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045169.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045169.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045044.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045044.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045035.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045035.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044805.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044805.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044587.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044587.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044425.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044405.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044405.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044340.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044267.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044207.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044118.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1044002.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043866.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043866.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043819.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043788.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043788.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043732.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043732.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043726.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043722.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043718.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043718.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043708.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043708.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043605.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1043605.jpg" />
 </div>
 
 
@@ -563,112 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B3F7F26B8AA5F5F76E6901A7E506F0D07AB0AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608590   (1043532) от 31.01.2023
-
-Ода Нобунага / Fuunji Oda Nobunaga / Lucky Adventurer Oda Nobunaga (1959) WEB-DL [H.264/1080p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043532.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти старого князя в Овари, главой клана становится его сын - Ода Нобунага. Нобунага довольно беспечный молодой человек, ведущий, так сказать разгульный образ жизни, а всеми делами управляет за него "дедушка" Хирате Масахидэ. Однако враг не дремлет: соседний князь Имагава Ёсимото, обладающий значительной силой и завышенными амбициями, стремится (   Читать дальше...   )Производство: Япония / Toei CompanyЖанр: драма, историяРежиссер: Тосикадзу КоноАктеры: Kyoko Mitsui, Кацуо Накамура, Кинносукэ Накамура, Эитаро Синдо, Рюносукэ Цукигата, Эидзиро ЯнагиПеревод: Одноголосый любительский (Shaman)Язык озвучки: русский, японскийСубтитры: английские, русские (forced-Song)Продолжительность: 01:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2249462CD126337A607C5786B468AAC16F870C4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608777   (1043507) от 31.01.2023
-
-Поварское Кунг-фу / Gong fu chu shen / Kung fu Chefs (2009) BDRemux [H.264/1080p] [DVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деревенский повар Бин обучает молодого для поединка с главным поваром в Имперском дворце за звание старшего повара.Производство: Китай / My Way Film Co, Brilliant Emperor ProductionЖанр: боевик, комедияРежиссер: Кен ИпАктеры: Саммо Хун, Ванесс У, Черри Ин, Аи Каго, Тимми Хун, Лам Цзэ-Чун, Луис Фань, Брюс Люн, Син Юй, Джерри УПеревод: Двуголосый профессиональныйЯзык озвучки: русский, китайский, английскийСубтитры: китайские (PGS), английские (PGS)Продолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FCDC63DC3101D00F247611C0C415B2155E39CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 838567   (1042713) от 02.01.2021
-
-Звонок 2 / Ringu 2 (1999) BDRip [720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042713.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смертоносная пленка снова затягивает в свои сети доверчивых людей. Зловещий призрак из телевизора, Садако Имамура, возвращается! Перед вами — продолжение мегахита японского кинопроката «Звонок», одной из самых страшных кинокартин всех времен.
-
-На этот раз главным персонажем становится девушка погибшего в первой части репортера. Она пытается выйти на след того, что (   Читать дальше...   )Производство: Japan / Kadokawa Shoten Publishing Co., Ring 2 Production Group, Asmik Ace EntertainmentЖанр: ужасыРежиссер: Хидео НакатаАктеры: Мики Накатани, Хитоми Сато, Кёко Фукада, Фумиё Кохината, Кендзиро Ишимару, Юрэй Янаги, Рикия Отака, Ёити Нумата, Масако, Мивако КадзиПеревод: авторский (одноголосый закадровый)Язык субтитров: русские, английскиеПродолжительность: 01:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F702C0EA70022B8AEB03BE205D7B24BAF65868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610202   (1042652) от 06.02.2023
-
-Один день / One Day / Eoneunal (2017) WEBRip [H.264/1080p] ViruseProject [MVO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042652.jpg" />
-</div>
-
-
-###  Подробнее
-
-После смерти жены следователь из страхового агентства Кан-су медленно и мучительно возвращается к трудовым будням. Начальник даёт ему задание побыстрее разобраться с делом слепой женщины Ми-со, попавшей в аварию. Кан-су приходит в больницу, чтобы проверить лежащую в коме клиентку, и встречает её же живой и невредимой. Точнее, её дух, который способен видеть и слышать (   Читать дальше...   )Производство: Корея Южная / Invent StoneЖанр: драма, фэнтезиРежиссер: Ли Юн-гиАктеры: Ким Нам-гиль, Чхон У-хи, Чон Сон-гён, Лим Хва-ён, Пак Хи-бон, Чон Сун-вон, Ким Джон-хён, Ли Су-ин, Ли Сын-ён, Чон Ю-рим и др.Перевод: Профессиональный (многоголосый, закадровый) (ViruseProject)Язык озвучки: Русский, корейскийСубтитры: Русские, английские, японскиеПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE6160B08BA7CC46503D85B71A9C0F56788E98B
 ```
 
 https://mybot314.ru/tekegram_catalog/

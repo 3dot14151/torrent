@@ -6,7 +6,7 @@ VA - Second Envizion (2009) [FLAC|Lossless|tracks+.cue] <IDM, Abstract, Glitch, 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786395.jpg" />
+  <img src="Z:/picture/008/save_picture_786395.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SkyLab Studio 2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786394.jpg" />
+  <img src="Z:/picture/008/save_picture_786394.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Oceans of Slumber - Winter (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786387.jpg" />
+  <img src="Z:/picture/008/save_picture_786387.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786386.jpg" />
+  <img src="Z:/picture/008/save_picture_786386.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786384.jpg" />
+  <img src="Z:/picture/008/save_picture_786384.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ VueScan Pro 9.5.73 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786372.jpg" />
+  <img src="Z:/picture/008/save_picture_786372.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786371.jpg" />
+  <img src="Z:/picture/008/save_picture_786371.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786369.jpg" />
+  <img src="Z:/picture/008/save_picture_786369.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ USDownloader 1.3.5.9 Portable (08.04.2017) [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786367.jpg" />
+  <img src="Z:/picture/008/save_picture_786367.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ SQL Dynamite 2.1.2.2 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786361.jpg" />
+  <img src="Z:/picture/008/save_picture_786361.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ Tap 1.5 F [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786358.jpg" />
+  <img src="Z:/picture/008/save_picture_786358.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786353.jpg" />
+  <img src="Z:/picture/008/save_picture_786353.jpg" />
 </div>
 
 
@@ -330,7 +330,7 @@ Paws for Trello 2.1.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786347.jpg" />
+  <img src="Z:/picture/008/save_picture_786347.jpg" />
 </div>
 
 
@@ -359,7 +359,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786343.jpg" />
+  <img src="Z:/picture/008/save_picture_786343.jpg" />
 </div>
 
 
@@ -385,7 +385,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786337.jpg" />
+  <img src="Z:/picture/008/save_picture_786337.jpg" />
 </div>
 
 
@@ -411,7 +411,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786335.jpg" />
+  <img src="Z:/picture/008/save_picture_786335.jpg" />
 </div>
 
 
@@ -437,7 +437,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786320.jpg" />
+  <img src="Z:/picture/008/save_picture_786320.jpg" />
 </div>
 
 
@@ -463,7 +463,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786306.jpg" />
+  <img src="Z:/picture/008/save_picture_786306.jpg" />
 </div>
 
 
@@ -489,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786296.jpg" />
+  <img src="Z:/picture/008/save_picture_786296.jpg" />
 </div>
 
 
@@ -515,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786292.jpg" />
+  <img src="Z:/picture/008/save_picture_786292.jpg" />
 </div>
 
 
@@ -544,7 +544,7 @@ Total Video Converter Pro 4.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786287.jpg" />
+  <img src="Z:/picture/008/save_picture_786287.jpg" />
 </div>
 
 
@@ -571,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786286.jpg" />
+  <img src="Z:/picture/008/save_picture_786286.jpg" />
 </div>
 
 
@@ -597,7 +597,7 @@ VueScan Pro 9.5.73 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786279.jpg" />
+  <img src="Z:/picture/008/save_picture_786279.jpg" />
 </div>
 
 
@@ -623,7 +623,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786278.jpg" />
+  <img src="Z:/picture/008/save_picture_786278.jpg" />
 </div>
 
 
@@ -649,7 +649,7 @@ foobar2000 1.3.15 Stable + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786277.jpg" />
+  <img src="Z:/picture/008/save_picture_786277.jpg" />
 </div>
 
 
@@ -675,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786274.jpg" />
+  <img src="Z:/picture/008/save_picture_786274.jpg" />
 </div>
 
 

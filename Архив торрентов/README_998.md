@@ -6,7 +6,7 @@ TechSmith Camtasia 2021.0.12 (Build 33438) RePack by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819088.jpg" />
+  <img src="Z:/picture/008/save_picture_819088.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ CyberLink PowerDirector Ultimate 20.0.2204.0 (x64) [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819085.jpg" />
+  <img src="Z:/picture/008/save_picture_819085.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Motion 5.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819082.jpg" />
+  <img src="Z:/picture/008/save_picture_819082.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Compressor 4.6 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819076.jpg" />
+  <img src="Z:/picture/008/save_picture_819076.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ IObit Uninstaller Pro 11.1.0.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819075.jpg" />
+  <img src="Z:/picture/008/save_picture_819075.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ AstroPilot - Promo Live​-​set for Tree of Life 2013 (2017) AstroPilot Music 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819058.jpg" />
+  <img src="Z:/picture/008/save_picture_819058.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819049.jpg" />
+  <img src="Z:/picture/008/save_picture_819049.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Wise Program Uninstaller 2.1.5.114 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819047.jpg" />
+  <img src="Z:/picture/008/save_picture_819047.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Audirvana Plus 3.2.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819045.jpg" />
+  <img src="Z:/picture/008/save_picture_819045.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819039.jpg" />
+  <img src="Z:/picture/008/save_picture_819039.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ Nina Simone - Feeling Good: The Very Best Of Nina Simone (1994) [MP3|320 kbps] <
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819022.jpg" />
+  <img src="Z:/picture/008/save_picture_819022.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ PT Photo Editor Pro Edition 3.2 RePack (& Portable) by 78Sergey-Dinis124 [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819009.jpg" />
+  <img src="Z:/picture/008/save_picture_819009.jpg" />
 </div>
 
 
@@ -326,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819001.jpg" />
+  <img src="Z:/picture/008/save_picture_819001.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818997.jpg" />
+  <img src="Z:/picture/008/save_picture_818997.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818996.jpg" />
+  <img src="Z:/picture/008/save_picture_818996.jpg" />
 </div>
 
 
@@ -404,7 +404,7 @@ ORPALIS PaperScan Professional 3.0.108 RePack (& Portable) by elchupacabra [Mult
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818988.jpg" />
+  <img src="Z:/picture/008/save_picture_818988.jpg" />
 </div>
 
 
@@ -430,7 +430,7 @@ FileBot 4.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818987.jpg" />
+  <img src="Z:/picture/008/save_picture_818987.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ NirLauncher Package 1.23.21 Portable [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818974.jpg" />
+  <img src="Z:/picture/008/save_picture_818974.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Epic Privacy Browser 80.0.3987.87 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818973.jpg" />
+  <img src="Z:/picture/008/save_picture_818973.jpg" />
 </div>
 
 
@@ -510,7 +510,7 @@ IObit Uninstaller Pro 9.5.0.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818971.jpg" />
+  <img src="Z:/picture/008/save_picture_818971.jpg" />
 </div>
 
 
@@ -536,7 +536,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818947.jpg" />
+  <img src="Z:/picture/008/save_picture_818947.jpg" />
 </div>
 
 
@@ -562,7 +562,7 @@ ESET NOD32 Internet Security 15.0.16.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818920.jpg" />
+  <img src="Z:/picture/008/save_picture_818920.jpg" />
 </div>
 
 
@@ -588,7 +588,7 @@ Final Cut Pro 10.6.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818918.jpg" />
+  <img src="Z:/picture/008/save_picture_818918.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ AIDA64 Extreme /Engineer / Business / Network Audit 6.50.5800 RePack (& Portable
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818915.jpg" />
+  <img src="Z:/picture/008/save_picture_818915.jpg" />
 </div>
 
 
@@ -641,7 +641,7 @@ Mothergunship (2018) [Ru/Multi] (1.0.980.195/dlc) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818911.jpg" />
+  <img src="Z:/picture/008/save_picture_818911.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ Aiseesoft Burnova 1.3.8 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818871.jpg" />
+  <img src="Z:/picture/008/save_picture_818871.jpg" />
 </div>
 
 

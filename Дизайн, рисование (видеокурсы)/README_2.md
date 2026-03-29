@@ -1,3 +1,30 @@
+###  Публикация: 1438127   (1041340) от 07.01.2021
+
+Sean Fowler | Zbrush 4R8: Hard Surface Sculpting for all Levels (2017) PCRec
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041340.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом курсе вы получите твердые знания всех новых инструментов скульптинга твердотельной поверхности, которые появились в Zbrush 4r8s. В качестве примера мы создадим модель фантастического шлема по всем производственным стандартам СG индустрии.
+Вы увидите как быстро создаются сложные элементы детализации, при этом будет использован режим Live Booleans. В результате (   Читать дальше...   )Производство: UdemyЖанр: СкульптингПродолжительность: 10:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1781AF9610550934780DFBF81A61B4D74E21FE69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438029   (1041275) от 07.01.2021
 
 Eric keller | Introduction to the UV Toolkit in Autodesk Maya 2018 (2018) PCRec [En, Ru]
@@ -6,7 +33,7 @@ Eric keller | Introduction to the UV Toolkit in Autodesk Maya 2018 (2018) PCRec 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041275.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041275.jpg" />
 </div>
 
 
@@ -32,7 +59,7 @@ CGMA, Vidya Vinnakota др. | Intro to Production Modeling (2019) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041267.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1041267.jpg" />
 </div>
 
 
@@ -58,7 +85,7 @@ John Lynch | Houdini 17 Masterclass: Advanced Vellum Workflows (2019) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040821.jpg" />
 </div>
 
 
@@ -84,7 +111,7 @@ Joe Mandia | Animating with Maya for Games and More (2012) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040542.jpg" />
 </div>
 
 
@@ -112,7 +139,7 @@ Victory 3D, Corazon Bryant | Полное руководство по созда
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040423.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ Ari Danesh | Houdini Projects: Terrain Generation (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040323.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040323.jpg" />
 </div>
 
 
@@ -169,7 +196,7 @@ Delano Athias | Getting Started with MEL in Maya (2014) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040083.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040083.jpg" />
 </div>
 
 
@@ -197,7 +224,7 @@ Nicolas Garilhe | Armor Creation in ZBrush (2015) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040024.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1040024.jpg" />
 </div>
 
 
@@ -223,7 +250,7 @@ CG Cookie, Chunck Trafagander | Давайте создадим снеговик
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039782.jpg" />
 </div>
 
 
@@ -249,7 +276,7 @@ CG Fast Track | Основы Blender 2.82 части 1-3 / Blender Fundamentals 
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039753.jpg" />
 </div>
 
 
@@ -278,7 +305,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039709.jpg" />
 </div>
 
 
@@ -306,7 +333,7 @@ Michael Rigley | Design for Production: Animation (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039512.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039512.jpg" />
 </div>
 
 
@@ -332,7 +359,7 @@ Jonathan Lampel | Creating Plants in Blender (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039504.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039504.jpg" />
 </div>
 
 
@@ -361,7 +388,7 @@ Jonathan Hamilton | Painting with Ambient occlusion (2016) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039492.jpg" />
 </div>
 
 
@@ -388,7 +415,7 @@ Chung Kan | 3D Creature Modeling for Production (2015) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039491.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039491.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ Kent Trammell | Short Film Character Production in Blender (2013) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039450.jpg" />
 </div>
 
 
@@ -442,7 +469,7 @@ James Paick | Environment Design 1 James Paick (2012) PCRec [En, Ru]
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039434.jpg" />
 </div>
 
 
@@ -468,7 +495,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039433.jpg" />
 </div>
 
 
@@ -495,7 +522,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039423.jpg" />
 </div>
 
 
@@ -523,7 +550,7 @@ Blender Cloud | Процедурный шейдинг в Blender 2.8 и 2.9 / Pr
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039250.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039250.jpg" />
 </div>
 
 
@@ -549,7 +576,7 @@ Michael Rigley | Design for Production: Workflow (2017) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039038.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1039038.jpg" />
 </div>
 
 
@@ -575,7 +602,7 @@ Adam Swaab | Houdini Particles (2018) PCRec
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038952.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038952.jpg" />
 </div>
 
 
@@ -601,7 +628,7 @@ CG Cookie, Kent Trammell, Jonathan Lampel | Основы шейдинга в Ble
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038754.jpg" />
 </div>
 
 
@@ -628,7 +655,7 @@ CG Cookie, Kent Trammell | Шейдинг кожи в Cycles в Blender 2.69 / S
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038752.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038752.jpg" />
 </div>
 
 
@@ -655,7 +682,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038749.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1038749.jpg" />
 </div>
 
 
@@ -666,32 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBBB041AD4DC744501BF3A069F9D9F1F9B5F3C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440611   (1038739) от 17.01.2021
-
-James Paick | Vehicle/Mech Design Workshops (2011) PCRec [En, Ru]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот урок посвящен созданию транспортного средства и дизайну научно-фантастического механизма / робота, используемого для визуальной разработки в виде игрушки, а также для игр и киноиндустрии. Процесс включает в себя создание и иллюстрирование различных транспортных средств и механизмов / роботов, используя научные исследования, цифровое и традиционное рисование (   Читать дальше...   )Производство: CGMAЖанр: Создание видеоЯзык озвучки: Английский, РусскийПродолжительность: 04:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C67FDB5B15D4A3793EE4CD8A1688D9B7ED4DFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

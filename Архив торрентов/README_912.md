@@ -6,7 +6,7 @@ Windows Firewall Control 4.9.5.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839520.jpg" />
+  <img src="Z:/picture/008/save_picture_839520.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Flashover Recordings Miami Sampler (17.03.2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839494.jpg" />
+  <img src="Z:/picture/008/save_picture_839494.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - TranceClass 001 (unmixed tracks) (2011) [MP3|320 kbps]<Trance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839493.jpg" />
+  <img src="Z:/picture/008/save_picture_839493.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ VA - Black Hole Miami Sampler (17.03.2011) [MP3|320 kbps]<Trance, Progressive Tr
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839492.jpg" />
+  <img src="Z:/picture/008/save_picture_839492.jpg" />
 </div>
 
 
@@ -119,7 +119,7 @@ VA - Hits 2011 (16.03.2011) [MP3|~199 kbps]<Dance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839489.jpg" />
+  <img src="Z:/picture/008/save_picture_839489.jpg" />
 </div>
 
 
@@ -145,7 +145,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839488.jpg" />
+  <img src="Z:/picture/008/save_picture_839488.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ Teknical Ikon - 3089 AC (2011) [MP3|~195 kbps] <Full On, Psytrance>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839487.jpg" />
+  <img src="Z:/picture/008/save_picture_839487.jpg" />
 </div>
 
 
@@ -205,7 +205,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839486.jpg" />
+  <img src="Z:/picture/008/save_picture_839486.jpg" />
 </div>
 
 
@@ -231,7 +231,7 @@ VA - High Contrast Presents Miami Trance 2011 (17.03.2011) [MP3|320 kbps]<Trance
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839483.jpg" />
+  <img src="Z:/picture/008/save_picture_839483.jpg" />
 </div>
 
 
@@ -257,7 +257,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839481.jpg" />
+  <img src="Z:/picture/008/save_picture_839481.jpg" />
 </div>
 
 
@@ -283,7 +283,7 @@ Apache OpenOffice 4.1.11 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839480.jpg" />
+  <img src="Z:/picture/008/save_picture_839480.jpg" />
 </div>
 
 
@@ -309,7 +309,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839470.jpg" />
+  <img src="Z:/picture/008/save_picture_839470.jpg" />
 </div>
 
 
@@ -335,7 +335,7 @@ IObit Driver Booster Pro 8.7.0.529 RePack (& Portable) by Dodakaedr [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839464.jpg" />
+  <img src="Z:/picture/008/save_picture_839464.jpg" />
 </div>
 
 
@@ -361,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Мультфильмов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839461.jpg" />
+  <img src="Z:/picture/008/save_picture_839461.jpg" />
 </div>
 
 
@@ -387,7 +387,7 @@ Comic Life 3.5.16 (v36563) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839460.jpg" />
+  <img src="Z:/picture/008/save_picture_839460.jpg" />
 </div>
 
 
@@ -414,7 +414,7 @@ Photo Editor 6 Movavi v6.4.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839457.jpg" />
+  <img src="Z:/picture/008/save_picture_839457.jpg" />
 </div>
 
 
@@ -442,7 +442,7 @@ Chromium 81.0.4044.129 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839456.jpg" />
+  <img src="Z:/picture/008/save_picture_839456.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ Rhinoceros 6 v6.25.20114 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839453.jpg" />
+  <img src="Z:/picture/008/save_picture_839453.jpg" />
 </div>
 
 
@@ -496,7 +496,7 @@ Cockos REAPER 6.09 (x86/x64) RePack (& Portable) by xetrin [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839449.jpg" />
+  <img src="Z:/picture/008/save_picture_839449.jpg" />
 </div>
 
 
@@ -522,7 +522,7 @@ Glary Disk Cleaner 5.0.1.206 RePack (& Portable) by Dodakaedr [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839448.jpg" />
+  <img src="Z:/picture/008/save_picture_839448.jpg" />
 </div>
 
 
@@ -548,7 +548,7 @@ XYplorer 20.90.0300 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839438.jpg" />
+  <img src="Z:/picture/008/save_picture_839438.jpg" />
 </div>
 
 
@@ -574,7 +574,7 @@ Serviio Pro 1.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839437.jpg" />
+  <img src="Z:/picture/008/save_picture_839437.jpg" />
 </div>
 
 
@@ -602,7 +602,7 @@ DjVu To PDF Converter 1.0 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839436.jpg" />
+  <img src="Z:/picture/008/save_picture_839436.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ JetBrains PyCharm Professional 2016.1 Build #PY-145.260 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839423.jpg" />
+  <img src="Z:/picture/008/save_picture_839423.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ WinTools.net Premium 17.3.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839416.jpg" />
+  <img src="Z:/picture/008/save_picture_839416.jpg" />
 </div>
 
 
@@ -682,7 +682,7 @@ Google Chrome 57.0.2987.98 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839409.jpg" />
+  <img src="Z:/picture/008/save_picture_839409.jpg" />
 </div>
 
 

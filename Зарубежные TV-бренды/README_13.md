@@ -1,3 +1,107 @@
+###  Публикация: 186065   (905897) от 28.02.2016
+
+Discovery: Понимание: Пещеры / Understanding: Caves (1998) TVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пещеры - удивительная экосистема, живущая по законам, отличным от многих других пространств на Земле...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175412   (905756) от 28.02.2016
+
+Discovery: В мире машин: Трансатлантические испытания (состязания) 9 серий / Mean Machines: Transatlantic Challenge (2007) TVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощные машины с той и другой стороны Атлантики соревнуются между собой в торможении, скорости и маневренности. Какая машина станет победителем?Жанр: Документальный, ТелепередачаПродолжительность: 00:22:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 61294   (905728) от 28.02.2016
+
+Discovery: Поля сражений. Борьба с немецкими субмаринами / Battlefield. The War Against The U-Boats (2005) TVRip
+
+>>Зарубежные TV-бренды
+>>Discovery
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подлодки должны были стать для немцев тем оружием, которое в случае успешного применения против Атлантических конвоев Союзников позволило бы ввергнуть Великобританию в экономическую блокаду и поставило ее на колени. Таким и были планы руководства фашисткой Германии, и необходимо признать, что в осуществлении своего плана они достигли определенных успехов. Борьба (   Читать дальше...   )Жанр: ДокументалистикаРежиссер: DiscoveryПеревод: Русский переводПродолжительность: 1 часть 00.46.32 X 2 часть 00.46.35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 292923   (905080) от 08.02.2011
+
+Современные чудеса. Технические новинки / Modern Marvels. Novelties (2002) SATRip
+
+>>Зарубежные TV-бренды
+>>Интересно обо всем
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Торжество изобретательности, научной мысли и воображения – «Современные Чудеса» с присущей им легкостью и остроумием представляют увлекательные истории ученых, мечтателей и прагматиков, стоящих за созданием повседневных вещей, технологическими прорывами и настоящими рукотворными чудесами. Как получается кино? Кто изобрел телефон? Способны ли компьютеры думать? Отдавая (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E99A2BBC23C202AA90203AE8860275D4EA82D6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 292948   (905025) от 08.02.2011
 
 Современные чудеса. Камуфляж / Modern Marvels. Camouflage (2002) SATRip
@@ -6,7 +110,7 @@
 >>Интересно обо всем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905025.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904909.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904909.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ NG: Осушить океан. Бермудский треугольник / Dra
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904602.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904602.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ NG: Чудеса инженерии: Панамский канал / Big Bigger 
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904417.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904417.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904356.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904356.jpg" />
 </div>
 
 
@@ -137,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904340.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_904340.jpg" />
 </div>
 
 
@@ -164,7 +268,7 @@ PBS. Снежные макаки Японии / Snow Monkeys (2014) BDRip [H.264
 >>PBS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903855.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903855.jpg" />
 </div>
 
 
@@ -190,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903224.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903224.jpg" />
 </div>
 
 
@@ -216,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903124.jpg" />
 </div>
 
 
@@ -242,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_903097.jpg" />
 </div>
 
 
@@ -268,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902981.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_902981.jpg" />
 </div>
 
 
@@ -294,7 +398,7 @@ Discovery: Почему? Вопросы мироздания. Можем ли м
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900413.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900413.jpg" />
 </div>
 
 
@@ -320,7 +424,7 @@ BBC: Путешествие человека / The Incredible Human Journey   (2
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_900193.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_900193.jpg" />
 </div>
 
 
@@ -346,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Доисторический мир
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899833.jpg" />
 </div>
 
 
@@ -372,7 +476,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899663.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_899663.jpg" />
 </div>
 
 
@@ -399,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_898746.jpg" />
 </div>
 
 
@@ -425,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897845.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897845.jpg" />
 </div>
 
 
@@ -451,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Discovery
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897325.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_897325.jpg" />
 </div>
 
 
@@ -477,7 +581,7 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_896013.jpg" />
 </div>
 
 
@@ -503,7 +607,7 @@ BBC: Охота на гравитационные волны / The hunt for grav
 >>BBC
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895853.jpg" />
 </div>
 
 
@@ -529,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Мега-Проекты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_895483.jpg" />
 </div>
 
 
@@ -555,7 +659,7 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 >>National Geographic
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893394.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_893394.jpg" />
 </div>
 
 
@@ -566,110 +670,6 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3550B8007BC87CE7F2C95939D662AF78B7905685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371161   (893307) от 29.03.2020
-
-Хлоп! Наука о пузырях / Pop! The Science of Bubbles (2013) WEB-DL [H.264/1080p]
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пузыри... Для большинства людей - это всего лишь детская забава. Но для науки - это мощнейший инструмент: они объясняют, как работает наша планета, как устроена солнечная система, как работает световая волна. Они помогают океану дышать! Влияют на поведение животных. И даже... создают вкус шампанского. Добро пожаловать в удивительный мир пузырей!Производство: Великобритания, Furnace, British Broadcasting Corporation (BBC)Жанр: Документальный, познавательный, научно-популярныйРежиссер: Пол СенПеревод: Двуголосый закадровый, профессиональныйСубтитры: АнглийскиеПродолжительность: 00:59:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FB0D1FD581A2EB99A21FC91E45DAFDA1D09A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370911   (893278) от 29.03.2020
-
-NG. Звездное выживание с Беаром Гриллсом / Running Wild Bear Grylls (2019) HDTVRip [H.264/1080p] (сезон 5, серии 10 из 10)
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специалист по выживанию Беар Гриллс возвращается в дикую природу в новом сезоне своего приключенческого сериала вместе с популярными голливудскими знаменитостями, от супергероев Марвел, до отмеченных различными премиями звезд шоу-бизнеса. Раз в неделю каждый новый гость Беара отправляется вместе с ним в путешествие по самым экстремальным природным ландшафтам в мире. (   Читать дальше...   )Производство: США, Великобритания, Bear Grylls Ventures, Electus, National Geographic ChannelЖанр: Документальный, реалити-шоу, выживание, путешествия, экстримРежиссер: Беар Гриллс, Дилберт ШупманПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 10 x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB078B9D5BF34A9C91BB058F1666E8B585438254
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370872   (893241) от 29.03.2020
-
-Строительство гигантов / Building Giants (2019) HDTVRip [H.264/1080p-LQ] (сезон 2, серии 1-8 из 8)
-
->>Зарубежные TV-бренды
->>Интересно обо всем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся сериал об инженерах, которые построили восемь самых невероятных конструкций в мире, представляющих собой новое поколение инженерных чудес света. Они более амбициозны и более продвинуты, чем все, что было раньше.Производство: Великобритания, Windfall Films, Science ChannelЖанр: Документальный, познавательный, научно-популярныйРежиссер: Тимоти КларксонУчастники: Эрлин Хэтфилд, Аври Мартин, Джулиан БарраттПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 8 x ~00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA328C4DB0B21CA74071081CB4F4A56E99A02447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102016   (892787) от 08.02.2017
-
-N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
-
->>Зарубежные TV-бренды
->>National Geographic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Смерть. Она восхищает. Она пугает. И те, кто с нею сталкивался, и кому удалось ее избежать на время, смотрят на мир уже совсем другими глазами. Что с нами происходит, когда мы умираем? Что поджидает человека в этом коридоре пути между жизнью и - смертью? И действительно ли мы умираем, когда наше сердце останавливается навсегда?Телекомпания: США, National Geographic ExplorerЖанр: Документальный, научно-популярныйРежиссер: Марк МаннуччиПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0A4D15186CEDD9F5CD619588C59798157A5FA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

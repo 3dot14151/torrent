@@ -1,3 +1,113 @@
+###  Публикация: 1540485   (652535) от 30.03.2022
+
+iStat Menus 6 v6.62 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652535.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.03.2022Разработчик: © 2022 Bjango Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7291B91F0F32349D2872B938911E16D1BFB6D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291583   (652490) от 26.03.2019
+
+Morph Age Pro 4.3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652490.jpg" />
+</div>
+
+
+###  Подробнее
+
+Morph Age Pro мощный инструмент для высококачественного морфинга и варпинга(деформации) цифровых изображений и видеофрагментов для Mac OS X.
+Результаты работы с программой могут быть сохранены в виде видеоролика. Программа позволяет плавно регулировать изменения изображения с помощью направляющих кривых. Версия PRO может работать с видео, в то время как стандартная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: март 2019Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:859705E20EC3EEF0E37BFECC6A2BA4862E44BB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291792   (652484) от 26.03.2019
+
+Elmedia Player Pro 7.2.1 (1778) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8854B6A38581F5E0B07A8556401B000FCE5E757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141134   (652455) от 09.06.2017
+
+iExplorer 4.1.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_652455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
+
+iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июня 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF664D1E64CEA6CB41C42EAF77C9261960C7767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141324   (652453) от 09.06.2017
 
 OverPicture for Safari 1.3 [En]
@@ -6,7 +116,7 @@ OverPicture for Safari 1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652453.jpg" />
+  <img src="Z:/picture/008/save_picture_652453.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ AnyTrans for iOS 8.9.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652435.jpg" />
+  <img src="Z:/picture/008/save_picture_652435.jpg" />
 </div>
 
 
@@ -59,7 +169,7 @@ Mirror for Samsung TV 3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652400.jpg" />
+  <img src="Z:/picture/008/save_picture_652400.jpg" />
 </div>
 
 
@@ -88,7 +198,7 @@ SyncMate Expert 6.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652319.jpg" />
+  <img src="Z:/picture/008/save_picture_652319.jpg" />
 </div>
 
 
@@ -116,7 +226,7 @@ Photo Mechanic 6 6.0 (build 2725) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652256.jpg" />
+  <img src="Z:/picture/008/save_picture_652256.jpg" />
 </div>
 
 
@@ -142,7 +252,7 @@ Find Any File 1.9.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652192.jpg" />
+  <img src="Z:/picture/008/save_picture_652192.jpg" />
 </div>
 
 
@@ -169,7 +279,7 @@ OmniGraffle Pro 7 v7.10.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651889.jpg" />
+  <img src="Z:/picture/008/save_picture_651889.jpg" />
 </div>
 
 
@@ -195,7 +305,7 @@ Adobe Illustrator CC2019 v23.0.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651875.jpg" />
+  <img src="Z:/picture/008/save_picture_651875.jpg" />
 </div>
 
 
@@ -223,7 +333,7 @@ Charles Web Debugging Proxy 3.11.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651486.jpg" />
+  <img src="Z:/picture/008/save_picture_651486.jpg" />
 </div>
 
 
@@ -251,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651326.jpg" />
+  <img src="Z:/picture/008/save_picture_651326.jpg" />
 </div>
 
 
@@ -277,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651097.jpg" />
+  <img src="Z:/picture/008/save_picture_651097.jpg" />
 </div>
 
 
@@ -303,7 +413,7 @@ Waltr 1.5.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650920.jpg" />
+  <img src="Z:/picture/008/save_picture_650920.jpg" />
 </div>
 
 
@@ -330,7 +440,7 @@ Boom 2 v1.2 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650815.jpg" />
+  <img src="Z:/picture/008/save_picture_650815.jpg" />
 </div>
 
 
@@ -357,7 +467,7 @@ Swinsian 1.10.13 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650802.jpg" />
+  <img src="Z:/picture/008/save_picture_650802.jpg" />
 </div>
 
 
@@ -384,7 +494,7 @@ Art Text 4.1.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650754.jpg" />
+  <img src="Z:/picture/008/save_picture_650754.jpg" />
 </div>
 
 
@@ -411,7 +521,7 @@ Image Resizer – Resize Photos 2.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650753.jpg" />
+  <img src="Z:/picture/008/save_picture_650753.jpg" />
 </div>
 
 
@@ -438,7 +548,7 @@ Find Any File (FAF) 2.3.3b8 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650749.jpg" />
+  <img src="Z:/picture/008/save_picture_650749.jpg" />
 </div>
 
 
@@ -465,7 +575,7 @@ Pillars of Eternity. Hero Edition v. 1.0.6 (0591) (2015) [Multi/Ru] [OS X Native
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650715.jpg" />
+  <img src="Z:/picture/008/save_picture_650715.jpg" />
 </div>
 
 
@@ -491,7 +601,7 @@ AirMail Pro 5 v5.5.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650681.jpg" />
+  <img src="Z:/picture/008/save_picture_650681.jpg" />
 </div>
 
 
@@ -518,7 +628,7 @@ Audio Hijack 4.0.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650668.jpg" />
+  <img src="Z:/picture/008/save_picture_650668.jpg" />
 </div>
 
 
@@ -545,7 +655,7 @@ Xversion 1.3.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650613.jpg" />
+  <img src="Z:/picture/008/save_picture_650613.jpg" />
 </div>
 
 
@@ -573,7 +683,7 @@ Wondershare UniConverter 13.6.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650591.jpg" />
+  <img src="Z:/picture/008/save_picture_650591.jpg" />
 </div>
 
 
@@ -585,112 +695,6 @@ Wondershare UniConverter - это полный набор инструменто
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B58C2FF65E40B37A33070959247FF61E6508E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291854   (650485) от 27.03.2019
-
-Live Home 3D Pro 3.5.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
-
-Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2019Разработчик: Belight Software, Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3B72542027DE99EB966DB736DACA955ED1ED7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540857   (650483) от 31.03.2022
-
-Luminar Neo 1.0.4 U2B [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы когда-нибудь хотели добиться большего с помощью своих изображений? Luminar Neo - это инновационный редактор изображений, основанный на технологиях AI будущего, который упрощает сложные процедуры редактирования и позволяет создателям воплощать в жизнь свои самые смелые идеи. И наслаждайся этим.Тип издания: macOS SoftwareРелиз состоялся: 29.03.2022Разработчик: © 2010 - 2022 Skylum ®Поддерживаемая ОС: macOS 10.14.6+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CB1CAFDF44829D160C116F1000BC144FC28B66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540869   (650479) от 31.03.2022
-
-Wondershare Filmora Х 11.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650479.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный видеоредактор, содержащий все необходимые инструменты для редактирования видео. В вашем распоряжении все необходимые инструменты для создания фильма с использованием нужных вам титров, плюс вы сможете добавлять большое количество встроенных фильтров и эффектов переходов, есть возможность работать со звуковыми дорожками, в целом все как в остальных редакторах. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.03.2022Разработчик: © 2022 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3A2E229700F13A6CC86094990AAC0DB46734D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540689   (650471) от 31.03.2022
-
-TunesKit iPhone Unlocker 1.1.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650471.jpg" />
-</div>
-
-
-###  Подробнее
-
-TunesKit iPhone Unlocker предназначен для того, чтобы избавить вас от проблем, связанных с различными сценариями, включая отключение iPhone после множества неудачных попыток, разбитый или не отвечающий экран вашего iPhone, неработающий Touch ID и многое другое. Таким образом, вы можете восстановить полный доступ к своему iPhone, iPad и iPod touch.Тип издания: macOS SoftwareРелиз состоялся: 10.02.2022Разработчик: © 2022 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7252835CFA4E19031DFF446769FC4D7AF02FBCA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

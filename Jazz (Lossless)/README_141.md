@@ -1,3 +1,119 @@
+###  Публикация: 1553190   (583808) от 24.05.2022
+
+Sarah Vaughan - The Roulette Years, Vols. 1-2 (1960 - 1964) 1991, Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_583808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Time We Say Goodbye [2:27]
+02. Great Day [2:13]
+03. Just in Time [2:21]
+04. You Stepped Out of a Dream [2:19](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED244966432DB782DA215B79CDB2BC386A57C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553242   (583761) от 24.05.2022
+
+David Linx - Be My Guest: The Duos Project (2021) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_583761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letter to Trevor (with Trevor Baldwin) (3:51)
+02. Hunter (with Or Solomon) (4:02)
+03. Pagina de Dor (with Hamilton De Holanda) (4:29)
+04. Close to You (with Magic Malik) (4:03)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDBCEE732B6F3E9B7C2BD4B9DD05C02A11E6EB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553193   (583754) от 24.05.2022
+
+Glenn Miller - Moonlight Serenade (1939 - 1944) 2000, Past Perfect [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_583754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Mood [3:35]
+02. Sunrise Serenade [3:25]
+03. The Jumpin' Jive [2:33]
+04. Moonlight Serenade [3:25](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C7E72EC03A521BE40CFC11E8651E60973CE37E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553194   (583753) от 24.05.2022
+
+Rhoda Scott - Anthology (1972, 1973) 2011, Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Soul-Jazz, Organ Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_583753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moanin' [3:09]
+02. Fire and Brimstone [3:27]
+03. Shiny Stockings [5:05]
+04. My Funny Valentine [4:13](   Читать дальше...   )Жанр: Post-Bop, Soul-Jazz, Organ JazzПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205BA1D67BF550A68F271087E48CD4758BB7CAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810422   (583481) от 05.08.2014
 
 Ella Fitzgerald, Count Basie, Joe Williams - One O'clock Jump (1999) [FLAC|Lossless]<Jazz, Vocal Jazz, Swing, Big Band>
@@ -6,7 +122,7 @@ Ella Fitzgerald, Count Basie, Joe Williams - One O'clock Jump (1999) [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583481.jpg" />
+  <img src="Z:/picture/008/save_picture_583481.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Don Wilkerson - The Texas Twister (1960) 2001, Original Jazz Classics[FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583463.jpg" />
+  <img src="Z:/picture/008/save_picture_583463.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Steve Hooks - No More Rock and Roll (2015) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583458.jpg" />
+  <img src="Z:/picture/008/save_picture_583458.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Phil Dwyer & Don Thompson - Look For The Silver Lining (2013) Triplet Records [F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583384.jpg" />
+  <img src="Z:/picture/008/save_picture_583384.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ John Coltrane - Blue Train (2007) 10CD Box Set [APE|Lossless|image + cue]<Jazz, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_583257.jpg" />
+  <img src="Z:/picture/005/save_picture_583257.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Freddie Hubbard - Red Clay (1970) 1987, CBS [APE|Lossless|image + .cue] <Hard Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582968.jpg" />
+  <img src="Z:/picture/008/save_picture_582968.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Brad Mehldau - Jacob's Ladder (2022) [FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582960.jpg" />
+  <img src="Z:/picture/008/save_picture_582960.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Chick Webb & Ella Fitzgerald - The Complete Chick Webb & Ella Fitzgerald Decca S
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582958.jpg" />
+  <img src="Z:/picture/008/save_picture_582958.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ Rhoda Scott - Lady All Stars (2022) Sunset Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582820.jpg" />
+  <img src="Z:/picture/008/save_picture_582820.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Mike Pachelli - electricite (2007) [FLAC|Lossless|image + .cue] <Avant Garde Jaz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582612.jpg" />
+  <img src="Z:/picture/008/save_picture_582612.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Don Pullen - Richard's Tune (1975) 2014, Delmark Records[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582608.jpg" />
+  <img src="Z:/picture/008/save_picture_582608.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Mike Pachelli - Simplicity (2006) [FLAC|Lossless|image + .cue] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582544.jpg" />
+  <img src="Z:/picture/008/save_picture_582544.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Mike Pachelli - A Jazzy Little Christmas (2009) [FLAC|Lossless|image + .cue] <Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582538.jpg" />
+  <img src="Z:/picture/008/save_picture_582538.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Tiny Grimes & J.C. Higginbotham - Callin' The Blues (1958) 1994, Original Jazz C
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582530.jpg" />
+  <img src="Z:/picture/008/save_picture_582530.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Paul Brown & Friends - White Sand (2007) [FLAC|Lossless|tracks + .cue] <Smooth J
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582472.jpg" />
+  <img src="Z:/picture/008/save_picture_582472.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Aldo Romano - Il Piacere (1978) 2001, Universal [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582316.jpg" />
+  <img src="Z:/picture/008/save_picture_582316.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Zoot Sims Plays Johnny Mandel - Quietly There (1984) [FLAC|tracks+.cue]<Jazz, Ma
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581994.jpg" />
+  <img src="Z:/picture/008/save_picture_581994.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Blue Mitchell - The Complete Blue Note Blue Mitchell Sessions (1963 - 1967) 4CD,
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581875.jpg" />
+  <img src="Z:/picture/008/save_picture_581875.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Paul Hardcastle - The Chill Lounge Volume 3 (2015) [FLAC|Lossless]<Nu Jazz, Loun
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581861.jpg" />
+  <img src="Z:/picture/008/save_picture_581861.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ Count Basie and his orchestra - Breakfast Dance And Barbecue (2001) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581614.jpg" />
+  <img src="Z:/picture/008/save_picture_581614.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Art Blakey - Dig That Beat (1959,1960,1961) 3CD, 2012, Not Now Music[FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581569.jpg" />
+  <img src="Z:/picture/008/save_picture_581569.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Chick Corea, Joe Farrell, Frank Foster, Gene Perla, Elvin Jones - The John Coltr
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581124.jpg" />
+  <img src="Z:/picture/008/save_picture_581124.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ Chick Corea, Joe Farrell, Frank Foster, Gene Perla, Elvin Jones - The John Coltr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D089DA1E21E9749775BA140959E3B925385B0F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919942   (581121) от 21.07.2015
-
-Keith Jarret - The Carnegie Hall Concert (2006) [FLAC|image +.cue]<Jazz, Avant-Garde Jazz, Modern Creative, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part VI (06:51)
-02. Part VII (08:35)
-03. Part VIII (05:20)
-04. Part IX (08:26)(   Читать дальше...   )Жанр: Jazz, Avant-Garde Jazz, Modern Creative, Free ImprovisationПродолжительность: 01:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6815566B5FA40380FC3A30D0D2B6C2D3FD6EF3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920100   (581051) от 21.07.2015
-
-Shakatak - The Magic Of Shakatak (2015) [FLAC|Lossless]<Smooth jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin' In The UK
-02. Night Birds
-03. Don't Say That Again
-04. After Midnight(   Читать дальше...   )Жанр: Smooth jazzПродолжительность: 01:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D70C3AC34057082DCC417AC017457811AEBE4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811220   (580707) от 08.08.2014
-
-Count Basie & Oscar Peterson - The Two Great Albums: The Timekeepers & Night Rider (1998) [FLAC|Lossless]<Jazz, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Rider [12:35]
-02. Memories Of You [04:56]
-03. Sweet Lorraine [07:04]
-04. It's Wonderful World [03:20](   Читать дальше...   )Жанр: Jazz, Mainstream Jazz, Piano JazzПродолжительность: 01:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599E1E01BADDFDFB8CC8426A7552A53B1DAF9D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042061   (580657) от 11.08.2016
-
-George Howard - Personal (1997) MCA Records[FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Want You For Myself [05:30]
- 02.Shower You With Love [05:02]
- 03.Uptown [06:49]
- 04.You And Me [06:12](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6A52E71542FCCD3A56CCB148A10941B5B3B092E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 667310   (221377) от 20.11.2020
+
+VA - Sweet Saxophone (2000) 3 CD [FLAC|Lossless|image + .cue] <Pop, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_221377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите погрузиться в атмосферу неги и удовольствия и захватить с собой любимую девушку, то этот дисксет для вас. Саксофон обладает магическим сексуальным (уж извините за каламбур) притяжением. Испытайте на себе и убедитесь в этом.CD-1
+1. Caeptn Coock - Auch Matrosen Haben Heimweh (2:58)
+2. Bill Anderson - My Happyness (2:24)
+3. Billy Vaughn - Morgen (2:29)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 02:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8CFBFC8BC97DEC78A809584E35D641650086A77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342774   (221373) от 04.12.2019
+
+Amure (Alexey Khatsko) - Geo (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_221373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1-01. Birds (6:49)
+1-02. Fall in love (5:10)
+1-03. After the rain (6:19)
+1-04. Inspiration (5:28)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 02:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAFB477885A7B964656228CFE2F5874D8CE0887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269285   (221207) от 14.12.2018
 
 Хелависа - Люцифераза (2018) Deluxe Edition [MP3|320 Kbps] <Folk, Folk Rock>
@@ -6,7 +64,7 @@
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221207.jpg" />
+  <img src="Z:/picture/005/save_picture_221207.jpg" />
 </div>
 
 
@@ -35,7 +93,7 @@ Tom Barabas - Sedona Suite (1992) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_221064.jpg" />
+  <img src="Z:/picture/005/save_picture_221064.jpg" />
 </div>
 
 
@@ -64,7 +122,7 @@ Faith Hill - It Matters To Me (1995) Warner W2 45872 [FLAC|Lossless|image + .cue
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220574.jpg" />
+  <img src="Z:/picture/005/save_picture_220574.jpg" />
 </div>
 
 
@@ -93,7 +151,7 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220505.jpg" />
+  <img src="Z:/picture/005/save_picture_220505.jpg" />
 </div>
 
 
@@ -122,7 +180,7 @@ Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220326.jpg" />
+  <img src="Z:/picture/005/save_picture_220326.jpg" />
 </div>
 
 
@@ -151,7 +209,7 @@ Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёз
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_220260.jpg" />
+  <img src="Z:/picture/005/save_picture_220260.jpg" />
 </div>
 
 
@@ -180,7 +238,7 @@ Rezodrone - Gods Of Metal Ragnarock (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, E
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_220165.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_220165.jpg" />
 </div>
 
 
@@ -209,7 +267,7 @@ Enigma - MCMXC a.D. (1990) [FLAC|Lossless|tracks + .cue] <Abstract, Ambient>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219992.jpg" />
+  <img src="Z:/picture/005/save_picture_219992.jpg" />
 </div>
 
 
@@ -238,7 +296,7 @@ Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Sound
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219897.jpg" />
+  <img src="Z:/picture/005/save_picture_219897.jpg" />
 </div>
 
 
@@ -267,7 +325,7 @@ Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Sound
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219871.jpg" />
+  <img src="Z:/picture/005/save_picture_219871.jpg" />
 </div>
 
 
@@ -296,7 +354,7 @@ Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных го
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219716.jpg" />
+  <img src="Z:/picture/005/save_picture_219716.jpg" />
 </div>
 
 
@@ -325,7 +383,7 @@ KamaSutra - Kama Sutra Erotic Massage (2011) [MP3|320 кб/с]<New Age, Relax>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219712.jpg" />
+  <img src="Z:/picture/005/save_picture_219712.jpg" />
 </div>
 
 
@@ -360,7 +418,7 @@ Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soun
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219693.jpg" />
+  <img src="Z:/picture/005/save_picture_219693.jpg" />
 </div>
 
 
@@ -389,7 +447,7 @@ Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных го
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219619.jpg" />
+  <img src="Z:/picture/005/save_picture_219619.jpg" />
 </div>
 
 
@@ -418,7 +476,7 @@ Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soun
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219577.jpg" />
+  <img src="Z:/picture/005/save_picture_219577.jpg" />
 </div>
 
 
@@ -447,7 +505,7 @@ Two Steps From Hell - Two Steps From Heaven/SkyWorld (2012) /WEB/ [FLAC (tracks)
 >>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219534.jpg" />
+  <img src="Z:/picture/005/save_picture_219534.jpg" />
 </div>
 
 
@@ -482,7 +540,7 @@ Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acou
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_219500.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_219500.jpg" />
 </div>
 
 
@@ -511,7 +569,7 @@ Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse 2CD Box Set (2004) Original 
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219468.jpg" />
+  <img src="Z:/picture/005/save_picture_219468.jpg" />
 </div>
 
 
@@ -540,7 +598,7 @@ Danheim - Runagaldr (2018) [MP3|320 Kbps] <Nordic Folk, Dark Folk>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_219420.jpg" />
+  <img src="Z:/picture/005/save_picture_219420.jpg" />
 </div>
 
 
@@ -569,7 +627,7 @@ Tom Barabas - Piano Impressions (1994) [FLAC|Lossless|tracks + .cue] <New Age, P
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218822.jpg" />
+  <img src="Z:/picture/005/save_picture_218822.jpg" />
 </div>
 
 
@@ -598,7 +656,7 @@ Tom Barabas - Magic In December (1991) [FLAC|tracks + cue] <New Age, Piano>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218815.jpg" />
+  <img src="Z:/picture/005/save_picture_218815.jpg" />
 </div>
 
 
@@ -627,7 +685,7 @@ Tom Barabas - It s A New Life (1998) Remaster, 2004, ТМЕ/Правительс
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218798.jpg" />
+  <img src="Z:/picture/005/save_picture_218798.jpg" />
 </div>
 
 
@@ -656,7 +714,7 @@ Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_218761.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_218761.jpg" />
 </div>
 
 
@@ -685,7 +743,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218716.jpg" />
+  <img src="Z:/picture/005/save_picture_218716.jpg" />
 </div>
 
 
@@ -699,64 +757,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1856F99DA2281C58B3129FA198B09D32B86D8349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241967   (218549) от 15.12.2018
-
-VA - Александр Зацепин Золотая коллекция (2003) [FLAC|Lossless]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Этот мир придуман не нами [02:38]
-02. Всё было [03:19]
-03. Помоги мне [04:38]
-04. Одиссей [02:38](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B50A2358922CCC798F9BA62DB22C9DFA07FE903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084587   (218480) от 19.12.2016
-
-VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_218480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Justin Timberlake, Gwen Stefani, Ron Funches - Hair Up (02:59)
-02. Justin Timberlake - CAN'T STOP THE FEELING! (03:58)
-03. Anna Kendrick, Gwen Stefani, James Corden, Ron Funches, Walt Dohrn, Caroline Hjelt, Aino Jawo, Kunal Nayyar - Move Your Feet / D.A.N.C.E. / It's A Sunshine Day (02:37)
-04. Anna Kendrick - Get Back Up Again (02:46)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:05:22 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDEEACC5CAF91E196BEE5FCB9D2248F4630003F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1693787   (121442) от 22.01.2024
+
+Michael Messer & Chaz Jankel - Mostly We Drive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway Train (4:22)
+02. Slow Down Billy (4:05)
+03. Mostly We Drive (5:23)
+04. It Doesn't Matter (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBBE6DBC54F3DE12E387FCFEFBFEAF6B4D51A761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693854   (121440) от 22.01.2024
+
+Lazarus Dream - Lifeline (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dead End Symphony (00:06:26)
+02 - Don't Look Down (00:04:45)
+03 - Mind Like A Windmill (00:04:51)
+04 - Freedoom (00:05:21)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C07E85A422C89CD70D5DEDF451A7402C4E65CCE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693961   (121291) от 23.01.2024
+
+Rhino Bucket - Studio Albums (7 releases) (1990-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rhino Bucket — американская хард-рок-группа из Ван-Найс, Лос-Анджелес, образованная в 1988 году. Звучание группы часто сравнивают со звучанием AC/DC.1990 - Rhino Bucket
+1992 - Get Used To It
+1994 - Pain
+2006 - And Then It Got UglyЖанр: Hard RockПродолжительность: 05:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693460   (121290) от 23.01.2024
+
+Restaurant Jazz Music Collection, Jazz Ambiental para Hotels - Dining in Jazz Harmony Jazz Background Grooves for the Hotel Restaurant (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Cozy Inn (4:40)
+02. Morning Brunch (2:59)
+03. Jazz for Boutique Hotels (2:57)
+04. Cocktail Cafe (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CEBD112FFA7530459A95B60986BFF2063AE6A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693455   (121289) от 23.01.2024
+
+Jazz Guitar Club, Jazz Guitar Music Zone - Sunset Guitar Session Smooth Guitar Jazz for Chill and Relax (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Higher (6:18)
+02. Big Dreams (3:37)
+03. Inspiring me (3:29)
+04. Should We Try (4:03)(   Читать дальше...   )Жанр: Jazz, Chill Out, Smooth JazzПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E1009A58993739F60529D7AC73F41443DB89FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693456   (121284) от 23.01.2024
+
+Lounge Cafe, Classical Jazz Guitar Club - Hotel Café Guitar Jazz BGM (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly Higher (6:18)
+02. Big Dreams (3:37)
+03. Inspiring me (3:29)
+04. Should We Try (4:03)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A939B178CF18E2A7FBC3514D580D4CB2B647DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694159   (121281) от 23.01.2024
+
+Dragonforce - Astro Warrior Anthem (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astro Warrior Anthem [00:06:50]
+02. Doomsday Party (feat. Elize Ryd) [00:05:15]
+03. Power of the Triforce [00:03:53]
+04. Doomsday Party [00:05:14]Жанр: Power MetalПродолжительность: 00:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49898CF6FE0AC4CD526150D86B57EA73F4387584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693178   (121279) от 23.01.2024
+
+Cafe Piano Music Collection, Relaxation Jazz Music Ensemble - Tea Café: Relaxing Jazz Ambience (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Cafe (3:02)
+02. Chill Jazz Sessions (3:39)
+03. Afternoon Tea (4:37)
+04. Jazz in the Night (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BE9CAEC2DB5C40402A2D9834C32E55FBFF4F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693466   (121257) от 23.01.2024
 
 Romantic Candlelight Dinner Jazz Zone, Romantic Jazz Music Club - Evening Dinner For Two Romantic Unforgetable Moments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
@@ -6,7 +238,7 @@ Romantic Candlelight Dinner Jazz Zone, Romantic Jazz Music Club - Evening Dinner
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121257.jpg" />
 </div>
 
 
@@ -35,7 +267,7 @@ Sexy Lovers Music Collection, Sensual Lounge Music Universe - Make Me Wait Slow 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121153.jpg" />
 </div>
 
 
@@ -64,7 +296,7 @@ VA - Sexy & Noir Smooth Exquisite Sax Jazz Music, Soft BGM in Cozy Bar Ambience 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121133.jpg" />
 </div>
 
 
@@ -93,7 +325,7 @@ Nicola Tedescoli - Ephemeral Melodies (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121123.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121123.jpg" />
 </div>
 
 
@@ -122,7 +354,7 @@ Ozgur (Özgür) Hazar - Way Back Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121120.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121120.jpg" />
 </div>
 
 
@@ -151,7 +383,7 @@ VA - Fais-moi attendre Musique de piano sensuelle avec des sons érotiques (2024
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121117.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121117.jpg" />
 </div>
 
 
@@ -180,7 +412,7 @@ Tyrannosaurus Rex - A Beard Of Stars (1970) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121115.jpg" />
 </div>
 
 
@@ -209,7 +441,7 @@ Gotsu Totsu Kotsu - Studio Albums (6 releases) (2009-2023) hand made [restored, 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121114.jpg" />
 </div>
 
 
@@ -238,7 +470,7 @@ Luca Quattrocchi - Saxophone Bliss (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121113.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121113.jpg" />
 </div>
 
 
@@ -267,7 +499,7 @@ VA - Cherry on Top Smooth Late Night Saxophone Jazz for Delightful Moments and P
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121106.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121106.jpg" />
 </div>
 
 
@@ -296,7 +528,7 @@ Carnivore - Retaliation (1987) [WavPack|24/96|image + .cue|Vinyl-Rip] <Speed, Th
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121103.jpg" />
 </div>
 
 
@@ -325,7 +557,7 @@ Akkerhaugen Raid - Red Filipino Viper (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121102.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121102.jpg" />
 </div>
 
 
@@ -354,7 +586,7 @@ Carnivore - Carnivore (1995)[FLAC|24/96|tracks|Vinyl-Rip]  <Speed, Thrash Metal,
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121101.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121101.jpg" />
 </div>
 
 
@@ -383,7 +615,7 @@ Dead by April - The Affliction (2024) [FLAC 16/44.1, 24/48|Lossless|WEB-DL|track
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120982.jpg" />
 </div>
 
 
@@ -412,7 +644,7 @@ The New Day - Subtronic Symbiosis (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120956.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120956.jpg" />
 </div>
 
 
@@ -441,7 +673,7 @@ Dead Poet Society - Fission (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt.Rock
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120951.jpg" />
 </div>
 
 
@@ -470,7 +702,7 @@ Caligula's Horse - Charcoal Grace (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120950.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120950.jpg" />
 </div>
 
 
@@ -499,7 +731,7 @@ Ian Moss - Rivers Run Dry (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_120946.jpg" />
 </div>
 
 
@@ -513,238 +745,6 @@ Ian Moss - Rivers Run Dry (Deluxe Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5BB133CE03848C25CE7FB6047B5C2717D084C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694442   (120932) от 25.01.2024
-
-Ethan Iverson - Technically Acceptable (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conundrum (1:31)
-02. Victory is Assured (Alla Breve) (2:39)
-03. Technically Acceptable (4:19)
-04. Who Are You, Really? (3:25)(   Читать дальше...   )Жанр: Jazz Fusion, Contemporary JazzПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE8EF0EF447AF0DE7F02EEE7996442DF17C18533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558932   (120862) от 26.01.2024
-
-White Skull - Studio Albums (12 releases) (1995-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120862.jpg" />
-</div>
-
-
-###  Подробнее
-
-White Skull — итальянская пауэр/хэви-метал группа, образованная в 1988 году.1995 - I Won'T Burn Alone
-1997 - Embittered
-1999 - Tales from the North
-2000 - Public Glory, Secret AgonyЖанр: Heavy/Power MetalПродолжительность: 10:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C416370A2455DA8462BA1DADD4EA3593E7C1F17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694657   (120814) от 26.01.2024
-
-Bon Jovi - Bon Jovi (1984) Deluxe Edition, 2024, UMG Recordings, Inc. [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway (3:52)
-02. Roulette (4:41)
-03. She Don't Know Me (4:02)
-04. Shot Through The Heart (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1B5E390542E2F570FC618ECB65201F7CC7AC22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694651   (120799) от 26.01.2024
-
-Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Stay Alive [00:03:46]
-02 Z0mbie [00:03:11]
-03 Jic Boi [00:02:58]
-04 Black Star [00:04:00](   Читать дальше...   )Жанр: Nu-Metal, Industrial MetalПродолжительность: 00:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AA173B8BA7C78514785241100BA7D4C898EFE7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694642   (120797) от 26.01.2024
-
-Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overdrive [00:03:58]
-02. Stone Heart [00:04:42]
-03. Blame It on Me [00:03:33]
-04. I’m on Your Side [00:05:07](   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33903A65BC0E5CB3F2E1BDB391AE3117F07B973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694659   (120788) от 26.01.2024
-
-LP (Laura Pergolizzi) - Love Lines (2023) Deluxe Version, 2024, BMG Rights Management (US) LLC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop rock, alternative rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden (3:27)
-02. Wild (3:01)
-03. Dayglow (3:31)
-04. Long Goodbye (4:23)(   Читать дальше...   )Жанр: Pop rock, alternative rockПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F377CE74B9669AF7EB5DE18D570B70FCA3ECBD1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694658   (120770) от 26.01.2024
-
-The Gems - Phoenix (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora - Interlude (1:34)
-02. Queens (3:12)
-03. Send Me To The Wolves (3:10)
-04. Domino (3:07)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1150679ECC9E8959B7C63C72850EA9AB130008B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694570   (120769) от 26.01.2024
-
-Faith Circus - Bum In The Sun (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_120769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind Dancer (4:14)
-02. Bum In The Sun (3:36)
-03. Larger Than Life (4:12)
-04. Seven Mountain High (5:05)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6EAF8B96F920E6F6582072FB9804A8B01C2F3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

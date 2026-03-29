@@ -6,7 +6,7 @@ The Bat! Voyager 9.1.16.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858790.jpg" />
+  <img src="Z:/picture/008/save_picture_858790.jpg" />
 </div>
 
 
@@ -33,7 +33,7 @@ SRWare Iron 56.0.2950.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858786.jpg" />
+  <img src="Z:/picture/008/save_picture_858786.jpg" />
 </div>
 
 
@@ -59,7 +59,7 @@ Bandicam 3.0.3.1025 Portable by KloneB@DGuY [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858748.jpg" />
+  <img src="Z:/picture/008/save_picture_858748.jpg" />
 </div>
 
 
@@ -85,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858745.jpg" />
+  <img src="Z:/picture/008/save_picture_858745.jpg" />
 </div>
 
 
@@ -111,7 +111,7 @@ AdminPE 3.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858744.jpg" />
+  <img src="Z:/picture/008/save_picture_858744.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Piriform CCleaner Professional Plus 5.16.5551 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858742.jpg" />
+  <img src="Z:/picture/008/save_picture_858742.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858736.jpg" />
+  <img src="Z:/picture/008/save_picture_858736.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Microsoft .NET Framework 4.6.2 Preview [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858734.jpg" />
+  <img src="Z:/picture/008/save_picture_858734.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858733.jpg" />
+  <img src="Z:/picture/008/save_picture_858733.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858732.jpg" />
+  <img src="Z:/picture/008/save_picture_858732.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ darktable 3.0.2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858685.jpg" />
+  <img src="Z:/picture/008/save_picture_858685.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Athentech Perfectly Clear Complete 3.10.0.1783 RePack (& Portable) by elchupacab
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858681.jpg" />
+  <img src="Z:/picture/008/save_picture_858681.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ Loaris Trojan Remover 3.1.25.1470 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858680.jpg" />
+  <img src="Z:/picture/008/save_picture_858680.jpg" />
 </div>
 
 
@@ -347,7 +347,7 @@ The Bat! Voyager 9.1.16.1 Portable by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858672.jpg" />
+  <img src="Z:/picture/008/save_picture_858672.jpg" />
 </div>
 
 
@@ -373,7 +373,7 @@ The Bat! Professional 9.1.16 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858670.jpg" />
+  <img src="Z:/picture/008/save_picture_858670.jpg" />
 </div>
 
 
@@ -399,7 +399,7 @@ Auslogics Disk Defrag Free 7.1.2.0 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858666.jpg" />
+  <img src="Z:/picture/008/save_picture_858666.jpg" />
 </div>
 
 
@@ -425,7 +425,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858659.jpg" />
+  <img src="Z:/picture/008/save_picture_858659.jpg" />
 </div>
 
 
@@ -451,7 +451,7 @@ VA - Record Super Chart № 180 (2011) [MP3|320 kbps]<House, Electro House, Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_858642.jpg" />
+  <img src="Z:/picture/009/save_picture_858642.jpg" />
 </div>
 
 
@@ -486,7 +486,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858627.jpg" />
+  <img src="Z:/picture/008/save_picture_858627.jpg" />
 </div>
 
 
@@ -512,7 +512,7 @@ Autodesk AutoCAD 2017 N.52.0.0 (x86) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858618.jpg" />
+  <img src="Z:/picture/008/save_picture_858618.jpg" />
 </div>
 
 
@@ -538,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858575.jpg" />
+  <img src="Z:/picture/008/save_picture_858575.jpg" />
 </div>
 
 
@@ -568,7 +568,7 @@ The Bat! Professional 9.1.16 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858563.jpg" />
+  <img src="Z:/picture/008/save_picture_858563.jpg" />
 </div>
 
 
@@ -594,7 +594,7 @@ PDF-XChange PRO 8.0.337.0 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858557.jpg" />
+  <img src="Z:/picture/008/save_picture_858557.jpg" />
 </div>
 
 
@@ -620,7 +620,7 @@ LosslessCut 3.20.1 Portable (x64) Pre-release [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858549.jpg" />
+  <img src="Z:/picture/008/save_picture_858549.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Athentech Perfectly Clear WorkBench 3.10.0.1783 RePack (& Portable) by elchupaca
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858548.jpg" />
+  <img src="Z:/picture/008/save_picture_858548.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ CCleaner Browser 80.1.3902.165 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858544.jpg" />
+  <img src="Z:/picture/008/save_picture_858544.jpg" />
 </div>
 
 

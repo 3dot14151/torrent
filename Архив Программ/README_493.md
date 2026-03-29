@@ -6,7 +6,7 @@ Aiseesoft Video Converter Ultimate 9.2.36 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792166.jpg" />
+  <img src="Z:/picture/008/save_picture_792166.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ GeoGebra 6.0.675.0 Classic + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792136.jpg" />
+  <img src="Z:/picture/008/save_picture_792136.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ BWMeter 8.0.0 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792128.jpg" />
+  <img src="Z:/picture/008/save_picture_792128.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Aiseesoft Video Converter Ultimate 9.2.36 RePack (&Portable) by Manshet [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792114.jpg" />
+  <img src="Z:/picture/008/save_picture_792114.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Maxthon Browser 5.1.6.1000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792111.jpg" />
+  <img src="Z:/picture/008/save_picture_792111.jpg" />
 </div>
 
 
@@ -137,7 +137,7 @@ Google Chrome 64.0.3282.119 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792110.jpg" />
+  <img src="Z:/picture/008/save_picture_792110.jpg" />
 </div>
 
 
@@ -163,7 +163,7 @@ Glary Utilities Pro 5.176.0.204 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792085.jpg" />
+  <img src="Z:/picture/008/save_picture_792085.jpg" />
 </div>
 
 
@@ -189,7 +189,7 @@ Mozilla Thunderbird 91.3.1 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792077.jpg" />
+  <img src="Z:/picture/008/save_picture_792077.jpg" />
 </div>
 
 
@@ -215,7 +215,7 @@ Mirillis Action! 4.23.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792075.jpg" />
+  <img src="Z:/picture/008/save_picture_792075.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Adobe Flash Player 32.0.0.114 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792071.jpg" />
+  <img src="Z:/picture/008/save_picture_792071.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Adobe Acrobat Reader DC 2019.010.20069 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792055.jpg" />
+  <img src="Z:/picture/008/save_picture_792055.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Movavi Video Converter 18.1.1 Premium RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792054.jpg" />
+  <img src="Z:/picture/008/save_picture_792054.jpg" />
 </div>
 
 
@@ -320,7 +320,7 @@ Google Chrome 64.0.3282.119 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792047.jpg" />
+  <img src="Z:/picture/008/save_picture_792047.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Ashampoo Slideshow Studio HD 4.0.8.9 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792046.jpg" />
+  <img src="Z:/picture/008/save_picture_792046.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ IObit Driver Booster Pro 5.2.0.686 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792041.jpg" />
+  <img src="Z:/picture/008/save_picture_792041.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ Ashampoo Music Studio 7.0.2.4 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792040.jpg" />
+  <img src="Z:/picture/008/save_picture_792040.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ System Ninja 3.2.1  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792039.jpg" />
+  <img src="Z:/picture/008/save_picture_792039.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Alcohol 120% 2.0.3.10121 Retail [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792035.jpg" />
+  <img src="Z:/picture/008/save_picture_792035.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ K-Lite Codec Pack Update 16.5.5 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792026.jpg" />
+  <img src="Z:/picture/008/save_picture_792026.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ OpenMPT 1.29.14.00 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792025.jpg" />
+  <img src="Z:/picture/008/save_picture_792025.jpg" />
 </div>
 
 
@@ -529,7 +529,7 @@ Ultimaker Cura 4.12.0 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792024.jpg" />
+  <img src="Z:/picture/008/save_picture_792024.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ BurnAware Professional 14.9 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792023.jpg" />
+  <img src="Z:/picture/008/save_picture_792023.jpg" />
 </div>
 
 
@@ -581,7 +581,7 @@ GPU Caps Viewer 1.54.0.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792022.jpg" />
+  <img src="Z:/picture/008/save_picture_792022.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Privacy Eraser Free 5.17.2 Build 4078 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792019.jpg" />
+  <img src="Z:/picture/008/save_picture_792019.jpg" />
 </div>
 
 
@@ -634,7 +634,7 @@ Honeyview 5.42 Build 5943 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792018.jpg" />
+  <img src="Z:/picture/008/save_picture_792018.jpg" />
 </div>
 
 
@@ -661,7 +661,7 @@ GPU Shark 0.25.0.0 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792015.jpg" />
+  <img src="Z:/picture/008/save_picture_792015.jpg" />
 </div>
 
 

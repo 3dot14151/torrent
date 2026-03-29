@@ -6,7 +6,7 @@ Just Before Dawn - An Army at Dawn (2020) [MP3|320 Kbps] <Old School Death Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240270.jpg" />
+  <img src="Z:/picture/004/save_picture_240270.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Lankester Merrin - Upon the Forgotten (2021) [MP3|320 Kbps] <Heavy Metal, Female
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_240076.jpg" />
+  <img src="Z:/picture/004/save_picture_240076.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Resistance - Skulls Of My Enemy (2022) [MP3|320 Kbps] <Power, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239860.jpg" />
+  <img src="Z:/picture/004/save_picture_239860.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Shadow of Everest - Where Giants Die (2022) [MP3|320 Kbps] <Progressive Metal, G
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239804.jpg" />
+  <img src="Z:/picture/004/save_picture_239804.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Black Hawk - Soulkeeper (2023) [MP3|320 Kbps] <Heavy Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239733.jpg" />
+  <img src="Z:/picture/004/save_picture_239733.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Terrifier - Trample the Weak, Devour the Dead (2023) [MP3|320 Kbps] <Thrash Meta
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239726.jpg" />
+  <img src="Z:/picture/004/save_picture_239726.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ The Silent Rage - Nuances Of Life (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239702.jpg" />
+  <img src="Z:/picture/004/save_picture_239702.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Swan Valley Heights - Terminal Forest (2023) [MP3|320 Kbps] <Stoner, Doom Metal,
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239638.jpg" />
+  <img src="Z:/picture/004/save_picture_239638.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Coffinborn - Cadaveric Retribution (2023) [MP3|320 Kbps] <Death Metal, Oldschool
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239431.jpg" />
+  <img src="Z:/picture/004/save_picture_239431.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Son of Sam - And The Monster Awoke... (2021) [MP3|320 Kbps] <Heavy Metal, Melodi
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239230.jpg" />
+  <img src="Z:/picture/004/save_picture_239230.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Excelsis - Bluetmond (2020) [MP3|320 Kbps] <Folk Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239224.jpg" />
+  <img src="Z:/picture/004/save_picture_239224.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ For Giants - There, There (2021) [MP3|320 Kbps] <Progressive Metal, Djent, Instr
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_239061.jpg" />
+  <img src="Z:/picture/004/save_picture_239061.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Sithu Aye - Senpai III (2021) [MP3|320 Kbps] <Progressive Metal, Instrumental>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_239010.jpg" />
+  <img src="Z:/picture/005/save_picture_239010.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ Skinner - The Dark Design (2023) [MP3|320 Kbps] <Heavy Metal, Power Metal, Thras
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238858.jpg" />
+  <img src="Z:/picture/005/save_picture_238858.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ Unbounded Terror - Echoes of Despair (2022) [Mp3|320 kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238750.jpg" />
+  <img src="Z:/picture/005/save_picture_238750.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Rammstein - Zeit (2022) [MP3|320 Kbps] <NDH, Industrial Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238697.jpg" />
+  <img src="Z:/picture/005/save_picture_238697.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ Gloryhammer - Return to the Kingdom of Fife (2023) [MP3|320 Kbps] <Symphonic Pow
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238574.jpg" />
+  <img src="Z:/picture/004/save_picture_238574.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Hexed - Pagans Rising (2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238503.jpg" />
+  <img src="Z:/picture/005/save_picture_238503.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ Tankard - Pavlov's Dawgs (2022) [MP3|320 Kbps] <Hard Rock, Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238486.jpg" />
+  <img src="Z:/picture/005/save_picture_238486.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Tyrant - The Lowest Level (2022) [MP3|320 Kbps] <Thrash Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238479.jpg" />
+  <img src="Z:/picture/005/save_picture_238479.jpg" />
 </div>
 
 
@@ -586,7 +586,7 @@ Rage - Spreading the Plague (2022) EP [MP3|320 Kbps] <Heavy Metal, Power Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_238405.jpg" />
+  <img src="Z:/picture/005/save_picture_238405.jpg" />
 </div>
 
 
@@ -615,7 +615,7 @@ Bloodgutter - Death Mountain (2023) [MP3|320 Kbps] <Death Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238260.jpg" />
+  <img src="Z:/picture/004/save_picture_238260.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Moribund Dawn - Dark Mysteries Of Time & Eternity (2022) [MP3|320 Kbps] <Black M
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238242.jpg" />
+  <img src="Z:/picture/004/save_picture_238242.jpg" />
 </div>
 
 
@@ -673,7 +673,7 @@ Tons - 3 Albums (2012-2022) [MP3|320 Kbps] <Sludge Doom Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238238.jpg" />
+  <img src="Z:/picture/004/save_picture_238238.jpg" />
 </div>
 
 
@@ -702,7 +702,7 @@ Feed the Wolves - Age of Fire (2023) [MP3|320 Kbps] <Power, Groove Metal>
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238232.jpg" />
+  <img src="Z:/picture/004/save_picture_238232.jpg" />
 </div>
 
 
@@ -731,7 +731,7 @@ Fortress of Empyrean - Synchronized Demise (2023) [MP3|320 Kbps] <Progressive Me
 >>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_238225.jpg" />
+  <img src="Z:/picture/004/save_picture_238225.jpg" />
 </div>
 
 

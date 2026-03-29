@@ -1,3 +1,136 @@
+###  Публикация: 1520365   (143747) от 27.12.2021
+
+Diagrams 2.2.3 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143747.jpg" />
+</div>
+
+
+###  Подробнее
+
+Diagrams - это редактор диаграмм для Mac, который помогает вам лучше понять ваши конструкции и процессы с помощью визуализации. Его доступный дизайн, чистый интерфейс, четкий визуальный стиль и оптимизированное взаимодействие с холстом позволяют создавать красивые диаграммы и в кратчайшие сроки интегрировать их в свои рабочие процессы.Тип издания: macOS SoftwareРелиз состоялся: 27.12.2021Разработчик: © 2020-2021 Structured Path GmbHПоддерживаемая ОС: macOS 10.15.2+Язык интерфейса: Английский, Немецкий и Китайский (упрощенный)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:156426C2BE5480AF8D9F6FFCA846AE4D5F77EECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272270   (143493) от 27.12.2018
+
+Paragon Hard Disk Manager for Mac 1.3.873 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paragon Hard Disk Manager for Mac® - это идеальное решение для управления системой и данными Вашего Mac. Надежное резервное копирование, гибкие функции восстановления, быстрое управление разделами, гарантированное затирание данных и многое другое - все, что нужно для Вашего Mac!
+Резервное копирование и восстановление на базе технологии Paragon Snapshot for Mac  (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: Paragon Technologie GmbH.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5708DBB8325AD7B7FB1971192705759E1FC886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348681   (143222) от 28.12.2019
+
+Polarr Photo Editor Pro 5.10.8 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Polarr - единственный редактор фотографий, который вам нужен.
+
+Неважно, если вы новичок в области фотографии или профессионала, у Polarr есть все. Новички оценят, что Polarr предлагает расширенные средства автоматического улучшения и сложные фильтры для редактирования всех деталей вашей фотографии. Профессиональные фотографы с нетерпением ждут нашей поддержки слоев, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.12.2019Разработчик: Polarr Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B79A8B5D4AE8D8C8E69939AC80BE6CCC772D19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678633   (143209) от 22.11.2023
+
+ON1 Photo RAW 2024 v.18.0.4.14762  [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143209.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 Photo RAW включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями и многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.11.2023Разработчик: © 2023 ON1, Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5295154C8FE37FAF0360AA54883F79556A7C7F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272662   (143022) от 28.12.2018
+
+PhotoLinker 3.5.15 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_143022.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoLinker обеспечивает беспрецедентный уровень интерактивности карты, GPS-трека и фото-тегов, делая аннотацию фотографий привлекательным проектом, а не ужасной рутинной работой. Независимо от того, геотегируются ли ваши фотографии с помощью PhotoLinker или автоматически с помощью вашей камеры, PhotoLinker позволяет вам взаимодействовать с вашими фотографиями и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: Early Innovations, LLCПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский, Испанский, Итальянский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDACBD9D1A51F97D67CDDF671A0A79CBCA44634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1272480   (142994) от 28.12.2018
 
 Perfect Diet Tracker 3.10.3 [En]
@@ -6,7 +139,7 @@ Perfect Diet Tracker 3.10.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142994.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142994.jpg" />
 </div>
 
 
@@ -32,7 +165,7 @@ Net Worth Pro 2 v3.4.2 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142801.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142801.jpg" />
 </div>
 
 
@@ -59,7 +192,7 @@ Zee Timer 7.5 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142722.jpg" />
 </div>
 
 
@@ -85,7 +218,7 @@ Typing 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142593.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142593.jpg" />
 </div>
 
 
@@ -111,7 +244,7 @@ NCH DreamPlan Plus 8.61 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142591.jpg" />
 </div>
 
 
@@ -140,7 +273,7 @@ UltraCompare 23.1.0.30 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142535.jpg" />
 </div>
 
 
@@ -166,7 +299,7 @@ Firetask | Task List & Planner 4.8.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142509.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142509.jpg" />
 </div>
 
 
@@ -193,7 +326,7 @@ Task Calendar 1.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142448.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142448.jpg" />
 </div>
 
 
@@ -219,7 +352,7 @@ JixiPix Premium Pack 1.2.11 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142395.jpg" />
 </div>
 
 
@@ -245,7 +378,7 @@ AnyMP4 iOS Toolkit for Mac 9.1.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142383.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142383.jpg" />
 </div>
 
 
@@ -271,7 +404,7 @@ GraphicConverter 11 v11.5.5 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142341.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142341.jpg" />
 </div>
 
 
@@ -297,7 +430,7 @@ AnyMP4 Android Data Recovery for Mac 2.1.16 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142318.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142318.jpg" />
 </div>
 
 
@@ -323,7 +456,7 @@ ScreenFloat-Better Screenshots 1.5.20 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142302.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142302.jpg" />
 </div>
 
 
@@ -351,7 +484,7 @@ PhoneRescue for iOS on Mac 4.2.6 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142190.jpg" />
 </div>
 
 
@@ -377,7 +510,7 @@ Magoshare Data Recovery Professional 4.5 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142020.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142020.jpg" />
 </div>
 
 
@@ -403,7 +536,7 @@ Free 2.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_142008.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_142008.jpg" />
 </div>
 
 
@@ -429,7 +562,7 @@ Live Home 3D Pro Edition 4.8.3 [Multi/Ru]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141897.jpg" />
 </div>
 
 
@@ -456,7 +589,7 @@ Adobe Muse CC 2017.0.1 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141864.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141864.jpg" />
 </div>
 
 
@@ -483,7 +616,7 @@ Adobe Dreamweaver CC 2017 (17.0.1) [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141839.jpg" />
 </div>
 
 
@@ -510,7 +643,7 @@ OmniPlan Pro 3 v3.10.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141773.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141773.jpg" />
 </div>
 
 
@@ -536,7 +669,7 @@ Symantec Endpoint Protection 4.3.1 RU1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141148.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141148.jpg" />
 </div>
 
 
@@ -547,140 +680,6 @@ Symantec Endpoint Protection - это клиент-серверное решен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1328FBC38431094945BBD087CD3E573CA5D44E29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272802   (141116) от 29.12.2018
-
-WidsMob Viewer 2.10 (1266)[Multi/Ru]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_141116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть ли способ просмотреть все изображения в одной папке на Mac? Как просмотреть несколько фотографий с быстрой вкоростью? Как выбрать и экспортировать нужные фотографии? Для того, чтобы иметь приятный опыт работы с фотографиями, WidsMob Viewer может быть решением, которое необходимо принять во внимание.Тип издания: macOS SoftwareРелиз состоялся: декабрь 2018Разработчик: WidsMob Technology Co., LimitedПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45849B87D82A9B17FFF7D72660232FA34A6CD2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520649   (140970) от 29.12.2021
-
-Easy App Locker Pro for Mac 1.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Easy App Locker - это приложение для защиты конфиденциальности, которое использует расширенные алгоритмы безопасности, какие обеспечивают непреодолимую безопасность ваших конфиденциальных данных и блокируют несанкционированный доступ к вашим личным приложениям.
-Easy App Locker может защитить паролем отдельные приложения на вашем Mac. Сохраняйте конфиденциальность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2021Разработчик: © 2021 Moneyplant TechnologiesПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956B8B58460AFCFC72E4D8B5320D753377044A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520662   (140907) от 29.12.2021
-
-Scrollow 1.7.0 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scrollow позволяет управлять различными параметрами системы (громкость, яркость экрана, подсветка клавиатуры) и управлять мультимедиа (переключение треков, воспроизведение и пауза), не касаясь функциональных клавиш или используя Touch Bar. Просто используйте жесты прокрутки вверху экрана или на значке в строке меню приложения.Тип издания: macOS SoftwareРелиз состоялся: 28.12.2021Разработчик: © 2021 Nikita ZubkovПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F2AD3B12C3FBB038F609AFF996A7180848A5CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520648   (140851) от 29.12.2021
-
-Duplicate Finder and Cleaner for Mac 1.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate Finder and Cleaner - это суперсовременный инструмент для удаления дубликатов и похожих файлов даже в большом объеме хранилища на вашем Mac. Этот привлекательный инструмент работает с несколькими библиотеками фотографий, резервными копиями iPhone на Mac, а также с файлами с жестких дисков и внешних хранилищ.
-Duplicate Finder и Cleaner помогут вам избавиться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2021Разработчик: © 2021 Moneyplant TechnologiesПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CCC0FD901D55541B34BDD189FAB11AE8A26F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520651   (140839) от 29.12.2021
-
-Fashion Art 1.3.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложение Fashion Art предназначено для создания модных эскизов и концепций со стильными шаблонами и элементами дизайна, которые уже есть в приложении. Вы можете создавать модные дизайны без каких-либо усилий.
-Включает готовые футболки, формы одежды, макеты, элементы дизайна, коллекции форм. Всего 23 Коллекции форм, более 500 элементов.
-В Fashion Art есть инструменты, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.12.2021Разработчик: © Bluetail TeamПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00176B3105A094D2E8287801FB2410027EFD872
 ```
 
 https://mybot314.ru/tekegram_catalog/

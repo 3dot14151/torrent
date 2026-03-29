@@ -1,3 +1,160 @@
+###  Публикация: 764275   (562604) от 21.08.2016
+
+Android Weather & Clock Widget v3.9.0.2 Ad-Free и v5.9.0.2 Free + Mod [Ru/Multi] - быстрый и точный прогноз погоды
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562604.jpg" />
+</div>
+
+
+###  Подробнее
+
+Android Weather & Clock Widget, быстрый и точный прогноз приложение, оно предоставляет подробную Погода для всех городов мира, он ищет ваш адрес и быстро находит городов, а также предоставляет текущую температуру, текущее состояние погоды, влажности и скорости и направления ветра, кроме того, пять , за десять дней и прогноз почасовая погода. Android-Погода, на (   Читать дальше...   )Тип издания: Free / Ad-Free / ModРелиз состоялся: 20.08.2016Разработчик: © Devexpert.netПоддерживаемая ОС: Android 2.2+Язык интерфейса: Мульти / Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1D88070EFE530D370551E92B8E5D4F4618A0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 896160   (562218) от 01.08.2015
+
+Освобожденная Европа (2015) SATRip (Серии 1-10 из 10)
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сентября 1939 года внезапным нападением нацистской Германии на Польшу началась Вторая мировая война. В течение двух лет коричневая чума поглотила Европу почти полностью. Флаги со свастикой развевались от Норвегии до греческих островов. 22 июня 1941 года Германия нарушила договор о ненападении, начав военные действия против СССР.
+На стороне Германии против СССР (   Читать дальше...   )Телекомпания: Беларусь, ОНТЖанр: Документальный, война, историяПродолжительность: 10 х ~ 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C4B3A75A40DB9F44F6BAD8ADAD0D91579B3A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923880   (562214) от 01.08.2015
+
+Красотки в бегах / Hot Pursuit (2015) BDRip [1080p] [Line]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562214.jpg" />
+</div>
+
+
+###  Подробнее
+
+История об офицере полиции и заключенной, которые волей судьбы оказываются в бегах в Техасе.Производство: США, Warner Bros. Pictures, New Line Cinema, Metro-Goldwyn-Mayer (MGM), Pacific StandardЖанр: Боевик, Комедия, КриминалРежиссер: Энн ФлетчерАктеры: Риз Уизерспун, София Вергара, Мэттью Дель Негро, Майкл Мосли, Роберт Казински, Ричард Т. Джонс, Бенни Нивз, Майкл Рэй Эскамиллья, Хоакин Косио, Джон Кэрролл ЛинчПеревод: Дублированный (Чистый звук)Продолжительность: 01:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A76EE802C7DFB47638B872E688AD8F4372C8707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923534   (562213) от 01.08.2015
+
+Убрать из друзей / Unfriended (2015) WEB-DL [H.264/720p-LQ]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный вечер после школы. К скайпу влюбленных Блэр и Митча подключаются друзья — Адам, Джес, Кен и Вэл… и кто-то седьмой с ником Billy227. Все уверены, что это компьютерный глюк, пока неизвестный не начинает им писать. Билли хочет знать, кто выложил в Сеть скандальное видео с их одноклассницей Лорой Барнс, из-за которого девушка покончила с собой. И он готов выяснить (   Читать дальше...   )Производство: США, Россия, Bazelevs Production, Blumhouse ProductionsЖанр: Ужасы, ТриллерРежиссер: Леван ГабриадзеАктеры: Шелли Хенниг, Моусес Сторм, Рени Олстэд, Уилл Пельтц, Джейкоб Высоцки, Кортни, Хэлверсон, Хезер Соссамэн, Мэттью Борер, Мики Ривер, Кэл БарнсПеревод: Дублированный (iTunes)Продолжительность: 01:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DE1F8617F32188DAEBE7D19FC54650CBB4E09F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923525   (562189) от 01.08.2015
+
+Adobe After Effects CC 2015 (v13.5.1) RUS/ENG Update 1
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe After Effects CC 2015 - популярная программа для редактирования видео и динамических изображений, создания композиций, различных эффектов и анимации. Наиболее часто ее используют для обработки видеоматериалов (постпродакшн), создания музыкальных клипов, рекламных роликов, анимации, титров, а также множества других элементов, для которых необходимы цифровые (   Читать дальше...   )Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE5D80679F29C32D4ECB691424183708579E79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530092   (562183) от 02.08.2012
+
+Грызущий ногти / Nailbiter (2012) DVDRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_562183.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования семья Магуров, состоящая из матери алкоголички Жанет и ее трех дочерей, которые следуют в аэропорт за отцом семейства, прибывшем из-за границы. Ухудшившаяся погода и грозящий торнадо заставляют их укрыться в подземном убежище. Вскоре они обнаруживают, что там еще кто-то есть...Жанр: УжасыРежиссер: Патрик РиАктеры: Джейсон Коффман, Том Сонрой, Мишель Дэвидсон, Йен Демпси, Бен Джеффри, Зейн МартинПеревод: Одноголосый закадровый, любительский (den904)Продолжительность: 01:21:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F07D7646F21BF1A9ACD5E62E2F117210A3E43D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525254   (562176) от 02.08.2012
 
 Huawei 3G Modem Software 16.3.45.9.143 (9.05.2012) [Ru]
@@ -6,7 +163,7 @@ Huawei 3G Modem Software 16.3.45.9.143 (9.05.2012) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_562176.jpg" />
+  <img src="Z:/picture/008/save_picture_562176.jpg" />
 </div>
 
 
@@ -37,7 +194,7 @@ Amlab.me | Свадебный университет (2017) [H.264/1080p-LQ]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561765.jpg" />
+  <img src="Z:/picture/008/save_picture_561765.jpg" />
 </div>
 
 
@@ -64,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561272.jpg" />
+  <img src="Z:/picture/008/save_picture_561272.jpg" />
 </div>
 
 
@@ -90,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561142.jpg" />
+  <img src="Z:/picture/008/save_picture_561142.jpg" />
 </div>
 
 
@@ -117,7 +274,7 @@ Microsoft Office 2013-2016 C2R Install 5.9.9 Full | Lite by Ratiborus [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560925.jpg" />
+  <img src="Z:/picture/008/save_picture_560925.jpg" />
 </div>
 
 
@@ -143,7 +300,7 @@ CyberLink PowerDVD Ultra 16.0.2011.60 RePack by qazwsxe [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560758.jpg" />
+  <img src="Z:/picture/008/save_picture_560758.jpg" />
 </div>
 
 
@@ -169,7 +326,7 @@ Microsoft Office 2016 Pro Plus + Visio Pro + Project Pro 16.0.4405.1000 VL (x86)
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560752.jpg" />
+  <img src="Z:/picture/008/save_picture_560752.jpg" />
 </div>
 
 
@@ -195,7 +352,7 @@ Final Fantasy XIII (2009) [PS3] [USA] 2.80 [Unofficial] [En/Ru] R.G. RED
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560307.jpg" />
+  <img src="Z:/picture/008/save_picture_560307.jpg" />
 </div>
 
 
@@ -221,7 +378,7 @@ DriverPack Solution 15.8 + Драйвер-Паки 15.08.0 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560298.jpg" />
+  <img src="Z:/picture/008/save_picture_560298.jpg" />
 </div>
 
 
@@ -247,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560297.jpg" />
+  <img src="Z:/picture/008/save_picture_560297.jpg" />
 </div>
 
 
@@ -273,7 +430,7 @@ Victoria 4.56b SSD Portable [En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_560015.jpg" />
+  <img src="Z:/picture/008/save_picture_560015.jpg" />
 </div>
 
 
@@ -299,7 +456,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_559410.jpg" />
+  <img src="Z:/picture/005/save_picture_559410.jpg" />
 </div>
 
 
@@ -326,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559239.jpg" />
+  <img src="Z:/picture/008/save_picture_559239.jpg" />
 </div>
 
 
@@ -353,7 +510,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559082.jpg" />
+  <img src="Z:/picture/008/save_picture_559082.jpg" />
 </div>
 
 
@@ -379,7 +536,7 @@ Inside (2016) [Ru/Multi] (5.0.4.29787) License CONSPIR4CY
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558883.jpg" />
+  <img src="Z:/picture/008/save_picture_558883.jpg" />
 </div>
 
 
@@ -405,7 +562,7 @@ Pinnacle Studio Ultimate 20.0.1.10084 (x86) RePack by PooShock [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558879.jpg" />
+  <img src="Z:/picture/008/save_picture_558879.jpg" />
 </div>
 
 
@@ -431,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_558772.jpg" />
+  <img src="Z:/picture/005/save_picture_558772.jpg" />
 </div>
 
 
@@ -457,7 +614,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_558498.jpg" />
+  <img src="Z:/picture/005/save_picture_558498.jpg" />
 </div>
 
 
@@ -483,7 +640,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558358.jpg" />
+  <img src="Z:/picture/008/save_picture_558358.jpg" />
 </div>
 
 
@@ -509,7 +666,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557872.jpg" />
+  <img src="Z:/picture/008/save_picture_557872.jpg" />
 </div>
 
 
@@ -520,162 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1115177BDCD78AECB575F7DE46B678DD3FE0A212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045598   (557582) от 24.08.2016
-
-Resonic Player 0.7.6b build 1267 + Portable [En]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Resonic - это ультра-быстрый, маленький и портативный проигрыватель музыки без плейлистов и медиатеки, с хорошим звуком и настраиваемой визуализацией анализа аудиосигнала. Resonic создан, чтобы быть молниеносным, надежным и делать свою работу исключительно практично и без наворотов. Благодоря встроенному в интерфейс файловому браузеру пользователю будет удобно ориентироваться (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2632E696A9BCA3CA2B6BA9158A63F6719E78460C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153324   (557546) от 27.07.2017
-
-Меч короля Артура / King Arthur: Legend of the Sword (2017) BDRemux [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой Артур околачивается на окраинах Лондиниума со своей бандой. Своим происхождением он совершенно не дорожит и не интересуется. Так он живёт до момента, когда судьба сводит его с волшебным мечом Экскалибуром. После этого Артур кардинально меняется — влюбляется, присоединяется к движению сопротивления и объединяет вокруг себя людей, чтобы свергнуть тирана Вортигерна, (   Читать дальше...   )Производство: США, Safehouse Pictures, Village Roadshow Pictures, Warner Bros. PicturesЖанр: Фэнтези, Боевик, Драма, ПриключенияРежиссер: Гай РичиАктеры: Чарли Ханнэм, Астрид Берже-Фрисби, Джуд Лоу, Джимон Хонсу, Эрик Бана, Эйдан Гиллен, Фредди Фокс, Крэйг МакГинли, Том Ву, Кингсли Бен-АдирПеревод: Дублированный (iTunes)Субтитры: Русские (Full, Forced), Украинские (Forced), Английские (Full, SDH)Продолжительность: 02:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CD01E5BF61355858C6F870AB4AC9DDE90E0235
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153504   (557545) от 27.07.2017
-
-Холодное танго (2017) WEB-DL [H.264/1080p-LQ]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Он чудом избежал смерти, чтобы вернуться в дом, где родился. В дом, в котором теперь живет любовь всей его жизни. Но надежда на счастье оборачивается страшным открытием. Его возлюбленная — дочь его врага.Производство: Россия, Кинокомпания «Слон»Жанр: Мелодрама, Военный, ДрамаРежиссер: Павел ЧухрайАктеры: Юлия Пересильд, Риналь Мухаметов, Карина Каграманян, Сергей Гармаш, Елисей Никандров, Ася Громова, Моника Санторо, Валерия Ткаченко, Андрюс Бялобжескис, Мария МалиновскаяПеревод: Не требуется (русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B47FF1F0857967F02F12C12DFEA6BFF555B2015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112346   (557544) от 27.07.2017
-
-LEGO Worlds (2017) [Ru/Multi] (1.0/dlc) License CODEX
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557544.jpg" />
-</div>
-
-
-###  Подробнее
-
-LEGO® Worlds — это скопление миров, сделанных полностью из блоков LEGO. Все миры можно свободно менять и населять моделями из LEGO. Создавайте всё, что придёт вам в голову: строить можно по одному блоку или при помощи масштабных ландшафтных инструментов, которые позволят вам сделать целые горные хребты или усеять мир тропическими островами.Тип издания: LicenseРазработчик: TT Games ,	Traveller's TalesЖанр: Strategy (Real-time), 3D, AdventureЯзык озвучки: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E931CFE382D75A2E3C877541D3B9DB77CFE55C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045616   (557436) от 24.08.2016
-
-Windows Self-Healing Tool не исправляет проблемы с Windows 10 и может принести больше вреда, чем пользы
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_557436.jpg" />
-</div>
-
-
-###  Подробнее
-
-С релизом юбилейного обновления Windows 10 Anniversary Update пользователи по всему миру столкнулись с рядом проблем, начиная от зависания систем и заканчивая выходом из строя веб-камер. Немудрено, что многие сразу же бросились на поиски утилит для исправления неполадок. Пользователям, ищущим подходящую программу, стоит обходить стороной Windows Self-Healing Tool, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045810   (557417) от 24.08.2016
-
-Соседи. На тропе войны 2 / Neighbors 2: Sorority Rising (2016) BDRip [H.264/1080p]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557417.jpg" />
-</div>
-
-
-###  Подробнее
-
-На этот раз в дом по соседству с Маком и Келли въезжает университетский женский клуб. Чтобы разобраться с новыми соседями, которые не дают им покоя, Мак и Келли решают обратиться за помощью к их бывшему врагу — Тедди Сандерсу.Производство: США, Good Universe, Point Grey PicturesЖанр: КомедияРежиссер: Николас СтоллерАктеры: Сет Роген, Зак Эфрон, Роуз Бирн, Клои Грэйс Моретц, Айк Баринхолц, Кирси Клемонс, Дэйв Франко, Джеррод Кармайкл, Кристофер Минц-Плассе, Бини ФелдштейнПеревод: Дублированный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17A96B81690ACECEFDACEC286757195446D5566
 ```
 
 https://mybot314.ru/tekegram_catalog/

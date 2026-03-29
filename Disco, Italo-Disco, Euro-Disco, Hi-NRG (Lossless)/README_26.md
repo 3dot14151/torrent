@@ -6,7 +6,7 @@ Gazebo - Maxi & Singles Collection Part 2 (2023) Compilation [FLAC|Lossless|imag
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62128.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ Gazebo - Maxi & Singles Collection Part 1 (2023) Compilation [FLAC|Lossless|imag
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62118.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62118.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Mike Mareen - The Maxi-Singles Collection Part 3 (2023) Compilation, Remastered 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62021.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ Alan Barry - Maxi & Singles Collection (2023) Compilation [FLAC|Lossless|image +
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61811.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ Cherry Laine - The Singles Collection - Projects, Versions & New (2023) Compilat
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61804.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_61804.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Arabesque - 40th Anniversary Best (2017) Japan [FLAC|Lossless|tracks + .cue] <Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_60011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_60011.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ Modern Heroes - Magic-The 1st Album (2024) [FLAC|Lossless|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_59292.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_59292.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ Mildlife - Chorus (2024) [FLAC|Lossless|WEB-DL|tracks] <cosmic disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58759.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58759.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Various Artists - ZYX Italo Disco Remastered (2024) [FLAC|Lossless|WEB-DL|tracks
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58163.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58163.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ VA - Italo Disco Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_58025.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_58025.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ Boney M - Hit Story (2010) 4CD Set Sony Music [FLAC|Lossless]<Disco / Pop>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57566.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57566.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ Bisquit - The Ultimate Singles Collection (2003) Limited Edition, Unofficial Rel
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_57191.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_57191.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ VA - The Best of Italo Disco, Vol. 1 (2010) [FLAC|Lossless|WEB-DL|tracks] <Disco
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_56450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_56450.jpg" />
 </div>
 
 
@@ -383,7 +383,7 @@ VA - Fulltime Production Disco Classic, Vol. 1 (2013) [FLAC|Lossless|WEB-DL|trac
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55938.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55938.jpg" />
 </div>
 
 
@@ -412,7 +412,7 @@ VA - Disco Club Hits & Secret Tracks Of The 80's And 90's (2021) [FLAC|Lossless|
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_55917.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_55917.jpg" />
 </div>
 
 
@@ -441,7 +441,7 @@ Silver Convention - Get Up & Boogie: The Worldwide Singles (2024) [FLAC|Lossless
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54776.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54776.jpg" />
 </div>
 
 
@@ -470,7 +470,7 @@ VA - Sabadell Sound Megamixes (2024) [FLAC|Lossless|tracks + .cue] <Italo-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_54236.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_54236.jpg" />
 </div>
 
 
@@ -499,7 +499,7 @@ Marc Korn x Semitoo x Abrissgebeat - Crying At The Discoteque (Extended Mix) (20
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53726.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53726.jpg" />
 </div>
 
 
@@ -525,7 +525,7 @@ Discotron - Last Night A DJ Saved My Life (2017) [FLAC|Lossless|tracks] <Nu-Disc
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53645.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53645.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ V.A. - ZYX Italo Disco Spacesynth Collection 10 (2024) [FLAC|Lossless|WEB-DL|tra
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53502.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53502.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ VA - Sabadell Sound 2 - The Ultimate Collection (2024) 2xCD, Compilation [FLAC|L
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_53222.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_53222.jpg" />
 </div>
 
 
@@ -612,7 +612,7 @@ Chillymouse - You're My Love, You're My Life (Jason Parker X Bootmasters remix) 
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_52896.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_52896.jpg" />
 </div>
 
 
@@ -638,7 +638,7 @@ Victoria Nordmann - Best Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49711.jpg" />
 </div>
 
 
@@ -667,7 +667,7 @@ VA - ZYX Italo Disco Dub Versions (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Di
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_49173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_49173.jpg" />
 </div>
 
 
@@ -696,7 +696,7 @@ Mflex Sounds - Shining Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco,
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48474.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48474.jpg" />
 </div>
 
 
@@ -725,7 +725,7 @@ VA - Italo Disco Dance Party Collection Part 1 (2023) [FLAC|Lossless|tracks] <It
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_48298.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_48298.jpg" />
 </div>
 
 

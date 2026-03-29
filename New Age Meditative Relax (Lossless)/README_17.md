@@ -1,3 +1,32 @@
+###  Публикация: 1044814   (561671) от 22.08.2016
+
+Ancient Legacy - New Age Armenia II (2003) [FLAC|Lossless|image + .cue] <New Age, International>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_561671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Siroun Es Hokiag  04:19
+02.  Vartani Mor Vokhbe  05:50
+03.  Oror  04:12
+04.  Alakiaz  02:03(   Читать дальше...   )Жанр: New Age, InternationalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C82C5ECC4944E3C8F99778F709AE42225E3BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045020   (561253) от 22.08.2016
 
 Jean Michel Jarre - Magnetic Fields (1981) Remastered, 2014, Sony Music [FLAC|Lossless|image + .cue]<Electronic, Instrumental, New Age>
@@ -6,7 +35,7 @@ Jean Michel Jarre - Magnetic Fields (1981) Remastered, 2014, Sony Music [FLAC|Lo
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561253.jpg" />
+  <img src="Z:/picture/008/save_picture_561253.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ Enya - The Magic Of Enya (2016) Chinese Dragon Music [FLAC|Lossless|tracks + .cu
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561005.jpg" />
+  <img src="Z:/picture/008/save_picture_561005.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ Laura Sullivan - The Modern Romantic: New Relaxing Classical Piano Music (2016) 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557945.jpg" />
+  <img src="Z:/picture/008/save_picture_557945.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Mystica - Best Of Gregorian Voices: Parts 1-4 (2016) [FLAC|Lossless|tracks] <New
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557723.jpg" />
+  <img src="Z:/picture/008/save_picture_557723.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ Blue Stone - Pandora's Box (2011) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556845.jpg" />
+  <img src="Z:/picture/008/save_picture_556845.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ Gomer Edwin Evans - Sensual Moods: Soulful Music for Erotic Moments (2014) [FLAC
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556838.jpg" />
+  <img src="Z:/picture/008/save_picture_556838.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ David Arkenstone - Barcelona Nights (2015) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556836.jpg" />
+  <img src="Z:/picture/008/save_picture_556836.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Yulia Monastyrenko - 140 Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556087.jpg" />
+  <img src="Z:/picture/008/save_picture_556087.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Hummingbird - This Sacred Love (2011) [FLAC|Lossless|WEB-DL|tracks] <New Age, Re
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552355.jpg" />
+  <img src="Z:/picture/008/save_picture_552355.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ Nigel Stanford (John Stanford) - Discography (1999-2017) [FLAC|Lossless|tracks +
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550380.jpg" />
+  <img src="Z:/picture/008/save_picture_550380.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ Era - Arielle Dombasle By Era (2013) [FLAC|Lossless]<New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546333.jpg" />
+  <img src="Z:/picture/008/save_picture_546333.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Angels of Hope (An Angelic Compilation) (2016) [FLAC|Lossless|tracks] <New 
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540515.jpg" />
+  <img src="Z:/picture/008/save_picture_540515.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Jean Michel Jarre - The Best Of (2015) 2CD [FLAC|Lossless|image + .cue] <Electro
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535661.jpg" />
+  <img src="Z:/picture/008/save_picture_535661.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Joga Dass - Die Erzengel (2007) [WavPack|image+.cue]<Meditative, Chakraphon-Musi
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_531620.jpg" />
+  <img src="Z:/picture/008/save_picture_531620.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ Kevin Kern - When I Remember (2016) [FLAC|Lossless|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530789.jpg" />
+  <img src="Z:/picture/008/save_picture_530789.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ Jim Brickman - Soothe, Vol. 1. Music To Quiet Your Mind and Soothe Your World (2
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529249.jpg" />
+  <img src="Z:/picture/008/save_picture_529249.jpg" />
 </div>
 
 
@@ -470,7 +499,7 @@ Jim Brickman - Soothe, Vol. 2: Sleep (2016) [FLAC|Lossless|tracks] <New Age, Pia
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529208.jpg" />
+  <img src="Z:/picture/008/save_picture_529208.jpg" />
 </div>
 
 
@@ -499,7 +528,7 @@ Karunesh - Sun Within (2016) [FLAC|Lossless|tracks] <World Fusion, New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527912.jpg" />
+  <img src="Z:/picture/008/save_picture_527912.jpg" />
 </div>
 
 
@@ -528,7 +557,7 @@ Oliver Scheffner - Mystic Healing Harmony (2017) [FLAC|Lossless|WEB-DL|tracks] <
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527646.jpg" />
+  <img src="Z:/picture/008/save_picture_527646.jpg" />
 </div>
 
 
@@ -557,7 +586,7 @@ Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <N
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526077.jpg" />
+  <img src="Z:/picture/008/save_picture_526077.jpg" />
 </div>
 
 
@@ -586,7 +615,7 @@ Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525966.jpg" />
+  <img src="Z:/picture/008/save_picture_525966.jpg" />
 </div>
 
 
@@ -615,7 +644,7 @@ Era - The Best Of (2004 - 2013) [FLAC|Lossless] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524847.jpg" />
+  <img src="Z:/picture/008/save_picture_524847.jpg" />
 </div>
 
 
@@ -644,7 +673,7 @@ Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521322.jpg" />
+  <img src="Z:/picture/008/save_picture_521322.jpg" />
 </div>
 
 
@@ -673,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521071.jpg" />
+  <img src="Z:/picture/008/save_picture_521071.jpg" />
 </div>
 
 
@@ -702,7 +731,7 @@ Bernward Koch - Tree Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515531.jpg" />
+  <img src="Z:/picture/008/save_picture_515531.jpg" />
 </div>
 
 
@@ -716,35 +745,6 @@ Bernward Koch - Tree Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52416231708C722DB98A66106F0FF173738ABD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315395   (513818) от 19.07.2019
-
-Karunesh (Карунеш) - The Way of the Heart (2005) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanderer [6:28]
- 02. Spirits Of The Forest [5:57]
- 03. Call Of The Unknown [6:15]
- 04. Beyond The Horizon [6:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EE41514E200CFA5F6EF57EBB17061A60937A64
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,110 @@
 https://t.me/izofen
+###  Публикация: 1861624   (1062931) от 
+
+EZ CD Audio Converter 12.4.0.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062931.jpg" />
+</div>
+
+
+###  Подробнее
+
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D311823FE9A63F5885B3545932790E28F28DD109
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861420   (1062492) от 
+
+Helium Music Manager Premium 18.0.706.0 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_1062492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Helium Music Manager - многофункциональный музыкальный каталогизатор, дающий возможность систематизировать Вашу музыкальную коллекцию. Представляет из себя одновременно редактор тегов и имён файлов по тегам, музыкальную базу-каталог и создатель плейлистов по ней. Так же, есть возможность создания отчётов по коллекции и быстрый поиск по базе. Немаловажными плюсами (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D8C91DAF3E536DB3A5A82617371C86C427D5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860966   (1062255) от 
+
+MediaHuman Audio Converter 2.3 (0312) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062255.jpg" />
+</div>
+
+
+###  Подробнее
+
+MediaHuman Audio Converter - бесплатный аудио конвертер, позволяющий конвертировать музыку в большинство популярных форматов. Поддерживает следующие форматы: WMA, MP3, AAC, AC-3, WAV, FLAC, OGG, AIFF и Apple Loseless.
+
+Не содержит ничего лишнего и имеет простой интуитивно понятный пользовательский интерфейс. Использует последние версии кодеков, что гарантирует высокое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943B435310F9A12F3244B6E3B9F39C53D4525A64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861108   (1062143) от 
+
+Cockos REAPER 7.66 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6CBBFF40EC8052195BE64C662C51DF9094DDA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860030   (1061566) от 
 
 Serato DJ Pro Suite 4.0.4 [Multi]
@@ -7,7 +113,7 @@ Serato DJ Pro Suite 4.0.4 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1061566.jpg" />
+  <img src="Z:/picture/005/save_picture_1061566.jpg" />
 </div>
 
 
@@ -33,7 +139,7 @@ FL Studio Producer Edition 25.2.5.5319 All Plugins Edition + Addons + FLEX Pack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060848.jpg" />
+  <img src="Z:/picture/005/save_picture_1060848.jpg" />
 </div>
 
 
@@ -59,7 +165,7 @@ XRecode 3 1.179 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/009/save_picture_1060274.jpg" />
+  <img src="Z:/picture/009/save_picture_1060274.jpg" />
 </div>
 
 
@@ -85,7 +191,7 @@ Ocenaudio 3.17.3 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059888.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059888.jpg" />
 </div>
 
 
@@ -111,7 +217,7 @@ Serato DJ Pro Suite 4.0.3 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059401.jpg" />
+  <img src="Z:/picture/005/save_picture_1059401.jpg" />
 </div>
 
 
@@ -137,7 +243,7 @@ XRecode 3 1.178 Repack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059217.jpg" />
+  <img src="Z:/picture/005/save_picture_1059217.jpg" />
 </div>
 
 
@@ -163,7 +269,7 @@ GoldWave 7.04 RePack (& Portable) by TryRooM [Ru/En]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058199.jpg" />
+  <img src="Z:/picture/005/save_picture_1058199.jpg" />
 </div>
 
 
@@ -189,7 +295,7 @@ Ocenaudio 3.17.2 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057987.jpg" />
+  <img src="Z:/picture/005/save_picture_1057987.jpg" />
 </div>
 
 
@@ -215,7 +321,7 @@ Mp3tag 3.33.1 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055988.jpg" />
+  <img src="Z:/picture/005/save_picture_1055988.jpg" />
 </div>
 
 
@@ -241,7 +347,7 @@ FabFilter - Total Bundle 2026.01.15 VST, VST 3, AAX, CLAP (x64) RePack by Team V
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054813.jpg" />
+  <img src="Z:/picture/005/save_picture_1054813.jpg" />
 </div>
 
 
@@ -267,7 +373,7 @@ Adobe Audition 2026 26.0.0.56 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054056.jpg" />
+  <img src="Z:/picture/005/save_picture_1054056.jpg" />
 </div>
 
 
@@ -293,7 +399,7 @@ Adobe Audition 2026 26.0.0.56 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053739.jpg" />
+  <img src="Z:/picture/005/save_picture_1053739.jpg" />
 </div>
 
 
@@ -319,7 +425,7 @@ Mp3tag 3.33 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053536.jpg" />
+  <img src="Z:/picture/005/save_picture_1053536.jpg" />
 </div>
 
 
@@ -345,7 +451,7 @@ Adobe Audition 2025 25.6.4.2 RePack by KpoJIuK [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052566.jpg" />
+  <img src="Z:/picture/005/save_picture_1052566.jpg" />
 </div>
 
 
@@ -371,7 +477,7 @@ Adobe Audition 2025 25.6.4.2 (x64) Portable by 7997 [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052358.jpg" />
+  <img src="Z:/picture/005/save_picture_1052358.jpg" />
 </div>
 
 
@@ -397,7 +503,7 @@ Ocenaudio 3.17.1 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052309.jpg" />
+  <img src="Z:/picture/005/save_picture_1052309.jpg" />
 </div>
 
 
@@ -423,7 +529,7 @@ FL Studio Producer Edition 25.2.3.5171 All Plugins Edition + Addons + FLEX Pack 
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051817.jpg" />
+  <img src="Z:/picture/005/save_picture_1051817.jpg" />
 </div>
 
 
@@ -449,7 +555,7 @@ Serato DJ Pro Suite 4.0.1 [Multi]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051236.jpg" />
+  <img src="Z:/picture/005/save_picture_1051236.jpg" />
 </div>
 
 
@@ -475,7 +581,7 @@ EZ CD Audio Converter 12.4.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051219.jpg" />
+  <img src="Z:/picture/005/save_picture_1051219.jpg" />
 </div>
 
 
@@ -501,7 +607,7 @@ Ocenaudio 3.16.5 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051205.jpg" />
+  <img src="Z:/picture/005/save_picture_1051205.jpg" />
 </div>
 
 
@@ -527,7 +633,7 @@ Audacity 3.7.7 + Portable [Multi/Ru]
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048746.jpg" />
+  <img src="Z:/picture/008/save_picture_1048746.jpg" />
 </div>
 
 
@@ -553,7 +659,7 @@ discoDSP - Discovery Pro 7.5 STANDALONE, VSTi, VSTi 3, AAX (x86/x64) Repack by d
 >>Аудио Граббинг, Мастеринг, Обработка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046017.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1046017.jpg" />
 </div>
 
 
@@ -564,113 +670,6 @@ Discovery Pro обладает еще более высоким качество
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4DEFB341AE1531985307AE7F971BC360C0408E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602636   (1046003) от 06.01.2023
-
-Auburn Sounds - Panagement 2 2.5.1 (FULL) VST, VST3, AAX (x86/x64) Retail [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auburn Sounds Panagement 2 — плагин для управления стереополем с бинауральной обработкой.
-Студия Auburn Sounds анонсировала выход крупного обновления плагина для управления стереопространством Auburn Sounds Panagement 2. По словам компании, первая версия инструмента когда-то спасла студию от банкротства, поэтому на обновлённую версию руководство Auburn Sounds возлагает (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:067BEF72B522F7EC5F169033FFF1BFB0F9EC0B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602865   (1045935) от 07.01.2023
-
-u-he - MFM2 2.5.0 VST, VST 3, AAX (x86/x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045935.jpg" />
-</div>
-
-
-###  Подробнее
-
-MFM2 — это наш первоклассный плагин цифровой задержки. Вы можете создать что угодно, от тонкого текстурированного эха до мощной пространственной реверберации, от диких тональных шагов на пэде до ритмической деконструкции трека ударных. Как обычная задержка, MFM2 уже предлагает как можно больше контроля и вдохновения, в то время как расширенные функции в версии 2.5 (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F991EE5509F901DC25A36A6772B2203EB6DA19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603863   (1045579) от 11.01.2023
-
-Ircam Lab - The Snail 1.4.1 STANDALONE, VST 3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045579.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Snail — это высокоточный анализатор частотной области, обеспечивающий интуитивно понятное представление звуков на основе гамм и нот, выровненных в спектрально активных зонах.
-Этот плагин предлагает новый способ настройки и анализа инструмента чрезвычайно точным способом. Он отображает интонацию и визуализирует музыку и звуки таким образом, что это может помочь (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EBC5ECAF6492FAD34FC7ECCCFB32354474AC9AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603880   (1045577) от 11.01.2023
-
-Nomad Factory - 80s Spaces 2.1.0 VST, VST3, AAX (x64) [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nomad Factory, Plugivery и MoReVox объединились, чтобы предоставить вам лучший плагин реверберации «80’s Vibe». Разработка 80-х Spaces была инициирована генеральным директором Plugivery Эриком Нолотом и покойным другом Берни Торелли из Nomad Factory.
-Spaces 80-х «волшебным образом» имитирует типичные ревербераторы и блоки космических эффектов, используемые легендарными (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC5971535C6A56D8ADDDD721002FCDA42EA9B7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

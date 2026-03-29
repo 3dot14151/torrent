@@ -1,3 +1,119 @@
+###  Публикация: 1089628   (950766) от 04.01.2017
+
+Pat Martino - Remember: A Tribute To Wes Montgomery (2006) Blue Note[FLAC|Lossless|tracks + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Four On Six [06:03]
+ 02.Groove Yard [05:55]
+ 03.Full House [07:03]
+ 04.Heart Strings [06:52](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE9872FFCF029B24E2E5B31D759DA0E7E87494C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089773   (950654) от 04.01.2017
+
+VA - A Groovy Kind of Sax (1995) авторская раздача [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новогодние каникулы - благодатное время для того, чтоб ещё раз порыться в своей коллекции. И порою "находишь" диски о которых уже и подзабылось. Из таких "забытых" и этот диск (будут ещё несколько из этой серии), выпущенный в далеком 1995 году сублейблом Demon Music Group и купленных по случаю на Юноне. К сожалению, издатель привел в буклете только (   Читать дальше...   )01. A Groovy Kind of Love  (2:57)
+02. Arthur's Theme (The Best That You Can Do)  (3:48)
+03. Misty  (4:18)
+04. My Cherie Amour  (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B680F361CD0DA6D81682DFA948E319C2F895740E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089577   (950436) от 04.01.2017
+
+Ben Webster & Dexter Gordon - Swiss Radio Days Jazz Series: Baden 1972, vol.10 (1998) TCB[FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Some Other Blues [09:51]
+ 02.In A Mellow Tone [08:09]
+ 03.Blues in F [09:45]
+ 04.Sunday [07:04](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4238F9236ECE486019D6A6FED49C76437F006427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981931   (950186) от 02.02.2016
+
+Shorty Rogers - Courts The Count (1954) Remaster, 2014, Sony Music[FLAC|tracks+.cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jump For Me [04:01]
+ 02.Topsy [03:22]
+ 03.It's Sand, Man [03:01]
+ 04.Basie Eyes [03:27](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71F91672919FB313140CCBC299EE0D84B56C9698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981952   (950143) от 02.02.2016
 
 Gary Bartz - Shadows (1991) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop>
@@ -6,7 +122,7 @@ Gary Bartz - Shadows (1991) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950143.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950143.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Deborah Brown - Jazz 4 Jazz (1988) Remaster, 2015, Timeless Records[FLAC|tracks+
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950138.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950138.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Simply dinner jazz (2008) 4CD [FLAC|Lossless]<Jazz, Smooth Jazz, Contempora
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_950023.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_950023.jpg" />
 </div>
 
 
@@ -94,7 +210,7 @@ Jack McDuff - Crash!: featuring Kenny Barrell (1963) 1993, ArsNova[FLAC|Lossless
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949300.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949300.jpg" />
 </div>
 
 
@@ -123,7 +239,7 @@ Ken Peplowski Quartet - When You Wish Upon A Star (2007) Venus Records[FLAC|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949166.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_949166.jpg" />
 </div>
 
 
@@ -152,7 +268,7 @@ Dizzy Gillespie - Salt Peanuts (2009) 10CD[FLAC|Lossless]<Jazz, Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948666.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948666.jpg" />
 </div>
 
 
@@ -181,7 +297,7 @@ Lalo Schifrin - The Bossa Nova & Latin Albums (1955-1962) 2CD, 2015, Malanga Mus
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948477.jpg" />
 </div>
 
 
@@ -210,7 +326,7 @@ Lee Wiley - Live On Stage (1944-1945) 2008, Audiophile Records[FLAC|image+.cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948460.jpg" />
 </div>
 
 
@@ -239,7 +355,7 @@ Konstantin Klashtorni - Kool & Klean (Volume VI) (2016) [FLAC|Lossless|image + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948349.jpg" />
 </div>
 
 
@@ -268,7 +384,7 @@ Mazzoll & Arhythmic Perfektion - Out Out To Lunch (1994) 1996, Jazz S.C.[APE|Los
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947724.jpg" />
 </div>
 
 
@@ -297,7 +413,7 @@ The 3 Souls featuring Sonny Cox - Soul Sounds (1965) Remaster, 1997, Universal[F
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947723.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947723.jpg" />
 </div>
 
 
@@ -326,7 +442,7 @@ Irvin Rochlin Trio - Quirine (1980) Remaster, 2016, Solid Records[FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947722.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947722.jpg" />
 </div>
 
 
@@ -355,7 +471,7 @@ Jack McDuff - The Re-Entry (1988) 2005, Savoy Jazz[FLAC|Lossless|tracks + .cue] 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947721.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947721.jpg" />
 </div>
 
 
@@ -384,7 +500,7 @@ Duke Jordan Trio - Two Loves (1973) 1990, SteepleChase[FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947719.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947719.jpg" />
 </div>
 
 
@@ -413,7 +529,7 @@ The Eureka Brass Band Of New Orleans - Jazz At Preservation Hall I (1962) Remast
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947693.jpg" />
 </div>
 
 
@@ -442,7 +558,7 @@ McCoy Tyner Trio - Infinity (1995) 2004, Impulse![FLAC|tracks+.cue] <Post-Bop>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947592.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947592.jpg" />
 </div>
 
 
@@ -471,7 +587,7 @@ Art Farmer - The Summer Knows (1976) Remaster, 2015, Universal[FLAC|tracks+.cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947185.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947185.jpg" />
 </div>
 
 
@@ -500,7 +616,7 @@ Wes Montgomery - One Night In Indy (1959) 2016, Resonance Records[FLAC|tracks+.c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947105.jpg" />
 </div>
 
 
@@ -529,7 +645,7 @@ Konstantin Klashtorni - Groove Jazz N Chill #1 (2011) [FLAC|Lossless|image + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947005.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_947005.jpg" />
 </div>
 
 
@@ -558,7 +674,7 @@ JazzItaliano - Live at Casa del Jazz (2006 - 2010) 41x2 CD [FLAC|Lossless]<Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946869.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946869.jpg" />
 </div>
 
 
@@ -584,7 +700,7 @@ Duke Jordan - Flight to Jordan (1961) 2011, Blue Note[FLAC|Lossless|tracks + .cu
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946183.jpg" />
 </div>
 
 
@@ -613,7 +729,7 @@ Duke Jordan Trio - Lover Man (1975) 1992, SteepleChase[FLAC|Lossless|tracks + .c
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946178.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_946178.jpg" />
 </div>
 
 
@@ -627,122 +743,6 @@ Duke Jordan Trio - Lover Man (1975) 1992, SteepleChase[FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:116DC35D31479739E4EC4870FBA91C70EB31FFAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090671   (946173) от 07.01.2017
-
-Joey DeFrancesco - The Philadelphia Connection: A Tribute to Don Patterson (1998) 2002, High Note[FLAC|Lossless|tracks + .cue] <Post-Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.S'Bout Time [06:32]
- 02.Perdido [07:12]
- 03.Opus De Don [06:48]
- 04.The Good Life [08:29](   Читать дальше...   )Жанр: Post-Bop, Soul JazzПродолжительность: 00:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3E3741A55826D9F889939A6BD1D6F194043FA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090656   (946168) от 07.01.2017
-
-Richard "Groove" Holmes - Groovin' With Groove (1972-1974) 2003, Groove Merchant[FLAC|Lossless|tracks + .cue] <Soul-Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Go Away Little Girl [05:34]
- 02.Young And Foolish [04:25]
- 03.It's Impossible [04:57]
- 04.You've Got It Bad [05:25](   Читать дальше...   )Жанр: Soul-Jazz, Jazz-FunkПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F376A920CF1C3B1D8C6E32AEE7686E36B41DF9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983024   (945639) от 05.02.2016
-
-Lee Wiley - West Of The Moon (1956) 2007, BMG[FLAC|image+.cue] <Vocal Jazz, Traditional Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You're A Sweetheart [02:55]
- 02.This Is New [02:56]
- 03.You Must Have Been A Beautiful Baby [02:59]
- 04.Who Can I Turn To Now? [03:52](   Читать дальше...   )Жанр: Vocal Jazz, Traditional PopПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:127D4DDE61271E38105609ABC3354BE5FDE0F7F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983013   (945638) от 05.02.2016
-
-Ronnie Foster - Two Headed Freap (1972) Remaster, 2014, Universal[FLAC|tracks+.cue] <Jazz-Funk, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Chunky [04:54]
- 02.Drowning In The Sea Of Love [04:08]
- 03.The Two Headed Freap [04:23]
- 04.Summer Song [05:21](   Читать дальше...   )Жанр: Jazz-Funk, Soul-JazzПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457A2C28995040B9EBF8C9C07CC8CA97666A7E88
 ```
 
 https://mybot314.ru/tekegram_catalog/

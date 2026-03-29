@@ -1,3 +1,64 @@
+###  Публикация: 588534   (157375) от 13.12.2012
+
+Ravi Shankar, Yehudi Menuhin - Shankar: Sitar Concertos and Other Works (2005) 2CD [FLAC|Lossless]<Classical, Jazz, Indian Subcontinent Traditions, Raga>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_157375.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Raga Puriya Kalyan [11:48]
+2. Sawara Kakali for sitar, violin & tabla (based on Raga Tilang) [08:49]
+Concerto for sitar & orchestra No. 2 ("Raga Mala, a Garland of Ragas")
+3. I. Lalit (Presto) [16:36]
+4. II. Bairagi (Moderato) [08:11]
+5. III. Yaman Kalyan (Moderato) [14:32]
+6. IV. Mian ki Malhar (Allegro) [12:46]Жанр: Classical, Jazz, Indian Subcontinent Traditions, RagaПродолжительность: 01:12:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433454   (156856) от 21.12.2020
+
+Giovanni (Giovanni Marradi) - Promises (1993) [FLAC|Lossless|tracks + .cue] <New Age, Easy Listening, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Giovanni Marradi (17.04.1952) родился в Италии, учился в Бейруте. Путешествуя, объездил всю Европу и Ближний Восток. После иммиграции в Америку он играл небольшие концерты в Калифорнии. Набравшись смелости, он приехал в Лас-Вегас и попросился выступить в Caesar's Palace (казино и отель). Удивительно, но ему пошли навстречу. А что более удивительно, на одном из выступлений (   Читать дальше...   )01. Never Again (5:03)
+02. Janet's Dream (4:33)
+03. Voices (3:18)
+04. Thoughts (3:40)(   Читать дальше...   )Жанр: New Age, Easy Listening, Instrumental, PianoПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84C8F3C045B204FC97E030D472585C0EBB29586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1433644   (156813) от 21.12.2020
 
 Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
@@ -6,7 +67,7 @@ Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156813.jpg" />
 </div>
 
 
@@ -35,7 +96,7 @@ Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack,
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156695.jpg" />
 </div>
 
 
@@ -64,7 +125,7 @@ VA - Christmas Hits 2020 (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
 >>Other
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_156392.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_156392.jpg" />
 </div>
 
 
@@ -93,7 +154,7 @@ Rammstein - Klavier (2015) Piano Version [MP3|320 кб/с] <Acoustic, Piano>
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155713.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155713.jpg" />
 </div>
 
 
@@ -122,7 +183,7 @@ Clint Mansell Performed By Kronos Quartet And Mogwai ‎– Фонтан / The F
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155701.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155701.jpg" />
 </div>
 
 
@@ -152,7 +213,7 @@ Ukrainia - Shadow Era (2017) [MP3|320 Kbps] <Folk Rock>
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155477.jpg" />
 </div>
 
 
@@ -181,7 +242,7 @@ Francis Goya - The Best World Instrumental Hits (2009) 2CD [APE|Lossless|image +
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_155299.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_155299.jpg" />
 </div>
 
 
@@ -210,7 +271,7 @@ Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154854.jpg" />
 </div>
 
 
@@ -239,7 +300,7 @@ Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, M
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154753.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154753.jpg" />
 </div>
 
 
@@ -268,7 +329,7 @@ Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154696.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154696.jpg" />
 </div>
 
 
@@ -297,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154584.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154584.jpg" />
 </div>
 
 
@@ -326,7 +387,7 @@ Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossle
 >>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154231.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154231.jpg" />
 </div>
 
 
@@ -355,7 +416,7 @@ Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New 
 >>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154211.jpg" />
 </div>
 
 
@@ -384,7 +445,7 @@ Kari Arnett - Midwestern Skyline (2015) [FLAC|Lossless|tracks] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154176.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154176.jpg" />
 </div>
 
 
@@ -413,7 +474,7 @@ Pistol Annies - Hell on Heels (2011) [FLAC|Lossless|tracks + .cue] <Country>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154104.jpg" />
 </div>
 
 
@@ -442,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154081.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154081.jpg" />
 </div>
 
 
@@ -471,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154031.jpg" />
 </div>
 
 
@@ -500,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Instrumental
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_154009.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_154009.jpg" />
 </div>
 
 
@@ -529,7 +590,7 @@ Paul Haslinger - Resident Evil: The Final Chapter / Обитель зла: По�
 >>OST
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153878.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153878.jpg" />
 </div>
 
 
@@ -558,7 +619,7 @@ Gilead - Medieval Groove (2017) [FLAC|Lossless|image + .cue] <Medieval folk>
 >>Folk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153877.jpg" />
 </div>
 
 
@@ -587,7 +648,7 @@ Kenio Fuke - Spirit Of Nature (2012) [FLAC|image + .cue|WEB-DL] <New Age, Piano,
 >>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_153264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_153264.jpg" />
 </div>
 
 
@@ -616,7 +677,7 @@ Dario Marianelli - Kubo and the Two Strings / Кубо. Легенда о сам
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152861.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152861.jpg" />
 </div>
 
 
@@ -645,7 +706,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152362.jpg" />
 </div>
 
 
@@ -674,7 +735,7 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 >>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152233.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_152233.jpg" />
 </div>
 
 
@@ -688,64 +749,6 @@ Johann Johannsson - Arrival / Прибытие (Original Motion Picture Soundtra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A51471FB6A3264CD8454FD045287AA35AB18F41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195052   (152123) от 27.12.2017
-
-O. D. Davey - Some Waking Woman (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk, Indie>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Some Waking Woman
-02. Every Rebel Campaign
-03. Two Fingers Flicked
-04. The Way Home(   Читать дальше...   )Жанр: Folk, IndieПродолжительность: 00:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25BC670FBFD57D05950E4D176796BDEE26A7A119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 738521   (152114) от 25.12.2013
-
-Юрий Пашалы - Для влюблённых... в аккордеон. Музыка для души (2007) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_152114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Брызги шампанского (А.М. Люкери) (3:26)
-02. Домино (Плане-Ферари) (3:05)
-03. Тико-тико (З. Эбрю) (4:42)
-04. Танго любви (А. Пьяццола) (5:20)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1B6899F2EA71917DC87E98DC6AB30319897A8CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

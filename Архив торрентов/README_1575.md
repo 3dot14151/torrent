@@ -1,3 +1,190 @@
+###  Публикация: 1534586   (694373) от 02.03.2022
+
+GrandTotal 7 v7.3 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_694373.jpg" />
+</div>
+
+
+###  Подробнее
+
+GrandTotal представляет собой приложение для создания счет-фактур и оценки, основанные на ваших собственных шаблонах.
+Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
+GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 02.03.2022Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB10F7E287EDB2A261604A797ACEEB94C59F4E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534583   (694368) от 02.03.2022
+
+SiteSucker Pro 4.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694368.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 02.03.2022Разработчик: © 2021 Richard CraniskyПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A9616E9C2A48C7DB8E54569ED66846097EB9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534470   (694365) от 02.03.2022
+
+Noir – Dark Mode for Safari 2022.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Noir — это расширение для Safari, которое автоматически добавляет темный режим на каждый посещаемый вами веб-сайт.
+Это делает просмотр веб-страниц ночью намного лучше. С Noir вы больше никогда не будете ослеплены яркими веб-сайтами.
+И результаты тоже выглядят великолепно. Noir создает собственный темный стиль для каждого посещаемого вами веб-сайта на основе цветов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.02.2022Разработчик: © 2021-2022 Jeffrey KuikenПоддерживаемая ОС: macOS 12.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FC3D66FED1168B4E52332D77A1F3FBF0376889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534604   (694363) от 02.03.2022
+
+Dato 3.3.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
+Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.03.2022Разработчик: © Sindre SorhusПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBEABC884CC776E909DFD2EBCAF381E4F95D2891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534480   (694362) от 02.03.2022
+
+SILKYPIX Developer Studio Pro 11 11.0.3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694362.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro 11 — это последняя версия высококачественного программного обеспечения для обработки RAW из серии SILKYPIX, впервые выпущенная в 2004 году. Этот продукт включает в себя первые в своем роде усовершенствования механизма обработки RAW и включает новую технологию демозаики, которая позволяет выражения разрешения определения. Таким образом, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.03.2022Разработчик: © 2022, Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3902E39D520221B30C95079D46B4471333B38F75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027747   (694298) от 20.06.2016
+
+Soft4Boost Any Audio Record 4.9.9.403 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатная утилита, которая позволяет записывать звуковые данные с различных источников, таких как микрофон, виниловые пластинки, аудио CD, видеоигры, интернет-радиопередачи, программы типа Real Player и Skype.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4A54F3064C5074C3E649576E9603DDD6636484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027762   (694296) от 20.06.2016
+
+Набор обновлений UpdatePack-XPSP3-Rus Live 16.6.20 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_694296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор обновлений для Windows XP SP3 Rus x86. Ключевой особенностью набора является наличие тех же обновлений, какие содержит UpdatePack-XPSP3-Rus. Дополнительно включены обновления тех продуктов, которые являются частью операционной системы: Windows Media Player 9-11 и Internet Explorer 6-8, а также исправления ошибок локализации. Возможна установка полных версий (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E932535DCD63943B0C592C0B8FEA3DFE70350B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027745   (694289) от 20.06.2016
 
 Soft4Boost AMPlayer 3.8.5.299 [Multi/Ru]
@@ -6,7 +193,7 @@ Soft4Boost AMPlayer 3.8.5.299 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694289.jpg" />
+  <img src="Z:/picture/008/save_picture_694289.jpg" />
 </div>
 
 
@@ -32,7 +219,7 @@ Process Lasso Pro 8.9.8.12 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694286.jpg" />
+  <img src="Z:/picture/008/save_picture_694286.jpg" />
 </div>
 
 
@@ -58,7 +245,7 @@ Soft4Boost PC Win Booster Free 9.3.9.563 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694281.jpg" />
+  <img src="Z:/picture/008/save_picture_694281.jpg" />
 </div>
 
 
@@ -84,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694278.jpg" />
+  <img src="Z:/picture/008/save_picture_694278.jpg" />
 </div>
 
 
@@ -113,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694274.jpg" />
+  <img src="Z:/picture/008/save_picture_694274.jpg" />
 </div>
 
 
@@ -142,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694273.jpg" />
+  <img src="Z:/picture/008/save_picture_694273.jpg" />
 </div>
 
 
@@ -171,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694268.jpg" />
+  <img src="Z:/picture/008/save_picture_694268.jpg" />
 </div>
 
 
@@ -197,7 +384,7 @@ Autorun Organizer 4.43 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694260.jpg" />
+  <img src="Z:/picture/008/save_picture_694260.jpg" />
 </div>
 
 
@@ -223,7 +410,7 @@ Path Finder 2123 U2B [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694248.jpg" />
+  <img src="Z:/picture/008/save_picture_694248.jpg" />
 </div>
 
 
@@ -249,7 +436,7 @@ App Tamer 2 v2.7.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694247.jpg" />
+  <img src="Z:/picture/008/save_picture_694247.jpg" />
 </div>
 
 
@@ -275,7 +462,7 @@ Reg Organizer 8.86 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694244.jpg" />
+  <img src="Z:/picture/008/save_picture_694244.jpg" />
 </div>
 
 
@@ -301,7 +488,7 @@ One Commander 3.4.40.1 Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694243.jpg" />
+  <img src="Z:/picture/008/save_picture_694243.jpg" />
 </div>
 
 
@@ -327,7 +514,7 @@ IcoFX 3.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694241.jpg" />
+  <img src="Z:/picture/008/save_picture_694241.jpg" />
 </div>
 
 
@@ -353,7 +540,7 @@ iNet Network Scanner 2.8.60 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694240.jpg" />
+  <img src="Z:/picture/008/save_picture_694240.jpg" />
 </div>
 
 
@@ -380,7 +567,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694235.jpg" />
+  <img src="Z:/picture/008/save_picture_694235.jpg" />
 </div>
 
 
@@ -406,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694233.jpg" />
+  <img src="Z:/picture/008/save_picture_694233.jpg" />
 </div>
 
 
@@ -432,7 +619,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694224.jpg" />
+  <img src="Z:/picture/008/save_picture_694224.jpg" />
 </div>
 
 
@@ -458,7 +645,7 @@ HoudahSpot 4 v4.4.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694197.jpg" />
+  <img src="Z:/picture/008/save_picture_694197.jpg" />
 </div>
 
 
@@ -487,7 +674,7 @@ Artstudio Pro 2.0.19 (243) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694194.jpg" />
+  <img src="Z:/picture/008/save_picture_694194.jpg" />
 </div>
 
 
@@ -498,198 +685,6 @@ Artstudio Pro 2.0.19 (243) [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:367221984B65B689C44149015D29136C0929B4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288585   (694193) от 12.03.2019
-
-Elmedia Player Pro 7.2 (1765)[Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
-
-Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2019Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Голландский, Испанский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A671743E731FFDDC54E2A3C8F079E6D86404498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288524   (694191) от 12.03.2019
-
-Биатлон. Чемпионат Мира 2019. Эстерсунд (Швеция). Мужчины. Спринт 10 км (2019) WEB-DL [H.264/1080p-LQ] [EN]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694191.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 марта 2019 года, суббота. 18:30 МСК
-53-й Чемпионат Мира по биатлону 2019 года. Эстерсунд (Швеция)
-Мужчины. Спринт 10 км (полная трансляция)
-Церемония награждения на "Медаль Плаза"(   Читать дальше...   )Телекомпания: Eurovision SportsЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED3DFA40E1B664C189634A19275F9E4F28011FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288597   (694189) от 12.03.2019
-
-Awesome Mails Pro 3 v3.30 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда для того, чтобы достучаться к руководству, перед обращением нужно проявить немного фантазии. Приложение Awesome Mails Pro Edition позволяет создавать необычные почтовые сообщения с фотографиями, ссылками и неординарным оформлением.
-
-Awesome Mails Pro (был Awesome Mails) - дизайнерское приложение для создания профессиональных бюллетеней был разработан, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2019Разработчик: Aidaluu Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A9E27EA252E64A8C401B392DD3B55ADF8B50B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288691   (694187) от 12.03.2019
-
-Jah Wobble - The Legend Lives On... Jah Wobble In Betrayal (1980) Reissue, 1990, Caroline Blue Plate [FLAC|Lossless|tracks + .cue] <Dub>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betrayal (4:55)
- 02. Beat the Drum for Me (4:03)
- 03. Blueberry Hill (4:18)
- 04. Not Another (3:15)(   Читать дальше...   )Жанр: DubПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077D3988D0DED8796D32EF1FA70F1B4E19784855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027812   (694175) от 20.06.2016
-
-On1 Photo 10.5.0.2943 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полнофункциональный редактор фотографий, работающий как подключаемый модуль к Adobe Photoshop и Lightroom, или как отдельное приложение. Просматривайте и управляйте своими снимками по месту их хранения: на локальных, внешних и сетевых дисках, или в облачном сервисе. 10 версия оснащена необходимыми инструментами для управления и обратимого редактирования фотографий (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB7FAAB6F6A33F0C5FFFF23E8E7BAA056FDD583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027579   (694168) от 20.06.2016
-
-Подшивка журналов | The Weathering Magazine (2012-2016) [PDF] [EN, RU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал о технике "везеринга" для моделистов.Жанр: МоделизмФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4F5ECE4899B225A7BBE6C904E8EBF4342C5AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027907   (694167) от 20.06.2016
-
-Freemake Video Converter 4.1.9.18 RePack by CUTA [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94F693452F1D0C5D4B614605EE80E5BBFCB4BCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

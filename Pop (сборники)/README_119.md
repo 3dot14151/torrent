@@ -1,3 +1,195 @@
+###  Публикация: 1682856   (130835) от 09.12.2023
+
+VA - Музыка для машины Vol.50 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malik Harris - Sticks & Stones (00:03:27)
+02. Sasha Lopez Feat. & Elianne - Fashionista (00:02:50)
+03. Vasco Rossi - Gli Sbagli Che Fai (00:04:16)
+04. Тайпан Feat. & Li Za - С Тобой (00:02:19)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:39:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A25B1ECC75FC58BF8CA91FB8B00504FA03E4A87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524836   (130439) от 18.01.2022
+
+VA - The Top 100 Most Played꞉ Pop (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_130439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Easy On Me
+02. GAYLE - abcdefu
+03. Walker Hayes - Fancy Like
+04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 05:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:001C231E7CECF8FA3311CA65109B110BF0211375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489980   (129871) от 01.05.2012
+
+VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129871.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Glamour - Хищница (3:31)
+2. Елена Терлеева - Немая Любовь (4:01)
+3. Анжелика Агурбаш - Это Любовь (3:07)
+4. Саша Зверева & El Ray - Как прежде (3:42)
+5. Вика Дайнеко - Сотри его из memory (Radu Sirbu remix) (3:02)
+6. Никита - Бессонница (2:46)
+7. Настя Любимова и DJ Haipa - Чужая Я (Radio Edit) (3:34)
+8. Кристина Орбакайте - Птица-обида (3:07)
+9. Vanguarde - Gimme Gimme Gimme (Abba) (3:24)
+10. Quest Pistols - Ты так красива (DJ Vengerov remix) (3:12)2012Жанр: PopПродолжительность: 06:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8923AD2F0B746E79CB97C62BBD6B942A89087B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490368   (129747) от 01.05.2012
+
+VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129747.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Martin Silence Feat. Kika - Me And You
+002 Авраам Руссо - Нелюбимая
+003 Freaky Boys - Take Me Away (Extended Mix)
+004 Dan Balan - Люби
+005 Professor Green Feat. Emeli Sande - Read All About It (Cahill Dub Mix)
+006 Дилайс - Нежно-Нежно
+007 Grooves Featflip Da Scrip - Make Noize (Club Mix)
+008 Бурановские Бабушки - Party
+009 Silent Circle - 1 More Night
+010 Nity feat. DJ Vestero - Улыбнись2012Жанр: PopПродолжительность: 06:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:895CDA71D4DCCA649394CA92CDC7624D4949F515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525468   (129291) от 21.01.2022
+
+VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ber, Charlie Oriain - Meant To Be (2:46)
+02. Jenna Raine - see you later (ten years) (3:08)
+03. Alec Benjamin - Older (3:12)
+04. Will Linley - miss me (when you're gone) (3:06)(   Читать дальше...   )Жанр: Pop, ChilloutПродолжительность: 04:45:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EB8DFB4E417C328FE501F0AD88BF8DDEFCFFDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488989   (129098) от 27.04.2012
+
+VA - Моя Прекрасная Леди (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стас Пьеха - Моя прекрасная леди
+02. Аслан Гусейнов - Боже мой
+03. T-Killah feat. Настя Кочеткова - Над землей
+04. Эльдар Далгатов - Милая
+05. Инфинити - Я так скучаю
+06. Дмитрий Колдун - Падал снег
+07. Верка Сердючка - Смайлик
+08. Сергей Солнцев - Чудеса бывают
+09. Анастасия Приходько - По волнам
+10. Митя Фомин - Не манекен (feat. Кристина Орса)2012Жанр: PopПродолжительность: 06:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764562329C13134AB7EC28B98D67B144DED5852B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 489005   (129079) от 27.04.2012
 
 VA - Весенняя волна хитов к празднику (2012) [MP3|256 кб/с]<Pop>
@@ -6,7 +198,7 @@ VA - Весенняя волна хитов к празднику (2012) [MP3|25
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129079.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129079.jpg" />
 </div>
 
 
@@ -41,7 +233,7 @@ VA - German Top 100 Single Charts 08.12.2023 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128742.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128742.jpg" />
 </div>
 
 
@@ -70,7 +262,7 @@ LOBODA - This is LOBODA (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128268.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128268.jpg" />
 </div>
 
 
@@ -99,7 +291,7 @@ VA - Музыка для машины Vol.53 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127827.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127827.jpg" />
 </div>
 
 
@@ -128,7 +320,7 @@ VA - Музыка для машины Vol.52 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127799.jpg" />
 </div>
 
 
@@ -157,7 +349,7 @@ VA - Музыка для машины Vol.54 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127478.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127478.jpg" />
 </div>
 
 
@@ -186,7 +378,7 @@ Emma Peters - Compilation (2023) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127265.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127265.jpg" />
 </div>
 
 
@@ -215,7 +407,7 @@ Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop, Alternative Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126762.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126762.jpg" />
 </div>
 
 
@@ -244,7 +436,7 @@ VA - Музыка для машины Vol.58 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126659.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126659.jpg" />
 </div>
 
 
@@ -273,7 +465,7 @@ VA - Свежий Русский Хит от ALEXnROCK часть 14 (2023) [MP3
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126545.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126545.jpg" />
 </div>
 
 
@@ -302,7 +494,7 @@ VA - Музыка для машины Vol.60 (2023) [MP3|320 Kbps] <Pop, Dance, 
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_126015.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_126015.jpg" />
 </div>
 
 
@@ -331,7 +523,7 @@ VA - Vocal Morning Lounge Mix (2025) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_125838.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_125838.jpg" />
 </div>
 
 
@@ -360,7 +552,7 @@ VA - Disco Holiday 70-80's (2024) [MP3|320 Kbps] <Electronic, Pop, Rock, Disco>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124946.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124946.jpg" />
 </div>
 
 
@@ -389,7 +581,7 @@ VA - Лучшие песни Love Radio за 2023 год (2024) [MP3|320 Kbps] <
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_124291.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_124291.jpg" />
 </div>
 
 
@@ -418,7 +610,7 @@ VA - German Top 100 Single Charts 19.01.2024 [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_121907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_121907.jpg" />
 </div>
 
 
@@ -447,7 +639,7 @@ VA - Зима на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_119395.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_119395.jpg" />
 </div>
 
 
@@ -476,7 +668,7 @@ VA - Hot songs to make out to (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_118634.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_118634.jpg" />
 </div>
 
 
@@ -505,7 +697,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117492.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117492.jpg" />
 </div>
 
 
@@ -534,7 +726,7 @@ VA - Winter Ukrainian Calm Songs (2024) [MP3|320 Kbps] <Pop>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_117303.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_117303.jpg" />
 </div>
 
 
@@ -563,7 +755,7 @@ Paloma Faith - Compilation (2024) [MP3|320 Kbps] <Pop, Soul,>
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_116907.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_116907.jpg" />
 </div>
 
 
@@ -577,180 +769,6 @@ Paloma Faith - Compilation (2024) [MP3|320 Kbps] <Pop, Soul,>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80CAEEEDFB791CA45F1C9B34A489ED659AE726D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702375   (114903) от 01.03.2024
-
-VA - Ласковый Май в инструментальных версиях (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_114903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Podgornov - В этот майский вечер (Instrumental) (5:26)
-02. P.A.N.D.A. beats - Розовый вечер (Instrumental) (4:19)
-03. Блокбастер и Оленька - 100 тысяч белых роз (Blokbaster Remix) (3:24)
-04. Владимир Шурочкин - Случайная слеза (Instrumental) (5:45)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DAFEA8596460F9B34F09CC227AF26D1B9F77CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711060   (112058) от 04.04.2024
-
-VA - Bohemian Soul (2024) [MP3|320 Kbps] <Rhythm And Blues, Soul>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_112058.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ushеr & Рhееlz – Ruin
-002. Сосо Jоnеs – Dоublе Bасk
-003. Muni Lоng – Mаdе Fоr Mе
-004. Tylа – Truth Оr Dаrе(   Читать дальше...   )Жанр: Rhythm And Blues, SoulПродолжительность: 10:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7117ACA27BD8E087602CB09C60B8E331D78BD87A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718600   (110683) от 28.04.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Whispers - And The Beat Goes On (Dario Caminita Revibe) (6:09)
-02. Delegation - Put A Little Love On Me (Dario Caminita Revibe) (5:55)
-03. Chic feat. Sugarhill Gang - Good Times (Dario Caminita Revibe) (8:37)
-04. Lipps Inc. - Funkytown (Dario Caminita Revibe) (5:47)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF7551008F6289A5413BB7E96282340348D1B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718365   (110677) от 28.04.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 01 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylvester - You Make Me Feel (Dario Caminita Revibe) (5:19)
-02. Earth, Wind & Fire - September (Dario Caminita Revibe) (5:00)
-03. Bee Gees - You Should Be Dancing (Dario Caminita Revibe) (5:08)
-04. Kool & The Gang - Celebration (Dario Caminita Revibe) (4:56)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:53:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8151E2DA0873F4BDD1EE1668C0DBFCD0BD10E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718587   (110659) от 28.04.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 02 (2021) [MP3|320 Kbps] <Disco, Dance, Hi-NRG>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barry White - You're The First, The Last, My Everything (Dario Caminita Revibe) (6:29)
-02. The Trammps - Disco Inferno (Dario Caminita Revibe) (6:27)
-03. Bee Gees - Night Fever (Dario Caminita Revibe) (4:49)
-04. Michael Jackson - Don't Stop 'til You Get Enough (Dario Caminita Revibe) (6:06)(   Читать дальше...   )Жанр: Disco, Dance, Hi-NRGПродолжительность: 01:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E253834986C6ACF5ECD67C2FA1A4118AB1F6A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719787   (110442) от 02.05.2024
-
-VA - Dario Caminita: Classic Revibes Collection Vol. 06 (2022) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_110442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Summer - I Feel Love (Dario Caminita Revibe) (7:56)
-02. Patrick Hernandez - Born To Be Alive (Dario Caminita Revibe) (4:23)
-03. Electric Light Orchestra - Last Train To London (Dario Caminita Revibe) (4:26)
-04. Double - The Captain Of Her Heart (Dario Caminita Revibe) (5:03)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 01:30:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD261111B520647C27971E33BBA17B411A57DBC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

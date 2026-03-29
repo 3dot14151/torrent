@@ -1,3 +1,68 @@
+###  Публикация: 487723   (90537) от 24.04.2012
+
+Linux UsefulPack 12.04 (L) [Русский] (2012)[x86 + amd64]
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_90537.jpg" />
+</div>
+
+
+###  Подробнее
+
+На диске представлены:
+- интересные программы, отсутствующих в стандартных репозиториях Linux-дистрибутивов;
+- видеоуроки, руководства по работе в Linux, а также электронные версии популярных бесплатных журналов и книг посвященных тематике СПО и Linux.
+
+Программы снабжены штатным установщиком или поставляются в виде бинарных сборок в архивах.
+
+Что из представленного на диске может вас заинтересовать:
+- необходимый материал для обучения работы с системой на русском языке;
+- для тех кто любит антивирусы "как на Windows" (с проверкой файлов на лету) есть антивирусы имеющие графический интерфейс;
+- скрипт PlayOnLinux для запуска "Компас 3D";(   Читать дальше...   )Название программы: Linux UsefulPackЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473650   (84598) от 26.03.2012
+
+DraftSight V1R1.4 beta [x86] (rpm, deb)
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_84598.jpg" />
+</div>
+
+
+###  Подробнее
+
+DraftSight дает возможность профессиональным пользователям САПР, студентам и преподавателям создавать, редактировать и просматривать файлы CAD-файлы в форматах DWG и DXF. Программа распространяется бесплатно.
+
+Для загрузки доступны deb- и rpm-пакеты, собранные для 32-разрядных систем (размер пакета 68 Мб). Из дистрибутивов поддерживаются Ubuntu, Debian, Fedora, openSUSE и Mandriva. По функциональности Linux-версия ничем не отличается от ранее доступных сборок для Windows и Mac OS X. Для бесплатной поддержки пользователей DraftSight на сайте компании организовано специальное online-сообщество, в котором в формате социальной сети общаются инженеры, дизайнеры и архитекторы, использующие САПР DraftSight в своей практике.
+
+Развивающая продукт компания Dassault Systèmes находится на рынке систем 3D/2D-моделирования с 1981 года. По задумке создателей, продукт DraftSight должен стать первой профессиональной бесплатной системой 2D-проектирования, предоставляющей набор инструментов на уровне AutoCAD и способной просматривать (   Читать дальше...   )Язык интерфейса: Русский присутствует
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784994   (69468) от 14.03.2025
 
 ALT Linux 8 СП C9F2 [i586, amd64] 6xDVD
@@ -6,7 +71,7 @@ ALT Linux 8 СП C9F2 [i586, amd64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69468.jpg" />
 </div>
 
 
@@ -32,7 +97,7 @@ ALT Linux 8 СП C10F1 [amd64] 3xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69459.jpg" />
 </div>
 
 
@@ -58,7 +123,7 @@ ALT Linux 8 СП C9F1 [i686, amd64] 6xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_69450.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_69450.jpg" />
 </div>
 
 
@@ -84,7 +149,7 @@ ZVirt 4.4 [amd64] 2xDVD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63927.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63927.jpg" />
 </div>
 
 
@@ -110,7 +175,7 @@ Arch Linux 2024.02.01 [i386/amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63257.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63257.jpg" />
 </div>
 
 
@@ -136,7 +201,7 @@ Whonix Xfce 17.1.3.1 (образ для VirtualBox) [x64]
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_63029.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_63029.jpg" />
 </div>
 
 
@@ -164,7 +229,7 @@ Ubuntu*Pack 20.04 LikeWin (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62980.jpg" />
 </div>
 
 
@@ -191,7 +256,7 @@ Ubuntu*Pack 20.04 Cinnamon (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62970.jpg" />
 </div>
 
 
@@ -218,7 +283,7 @@ Ubuntu*Pack 20.04 GNOME (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62969.jpg" />
 </div>
 
 
@@ -245,7 +310,7 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62962.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62962.jpg" />
 </div>
 
 
@@ -272,7 +337,7 @@ Ubuntu*Pack 20.04 (март 2024) [amd64] 1xDVD
 >>Сборки ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62951.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62951.jpg" />
 </div>
 
 
@@ -299,7 +364,7 @@ EndeavourOS Galileo-Neo-2024.01.25 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62905.jpg" />
 </div>
 
 
@@ -325,7 +390,7 @@ Qubes OS 4.2.0 [x64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62870.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62870.jpg" />
 </div>
 
 
@@ -353,7 +418,7 @@ Kodachi Linux 8.27 [x64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62819.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62819.jpg" />
 </div>
 
 
@@ -381,7 +446,7 @@ SystemRescue 11.00 [amd64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62583.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62583.jpg" />
 </div>
 
 
@@ -409,7 +474,7 @@ Clonezilla Live (stable) 3.1.2-9 [i686, i686-pae, amd64] 3xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62577.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62577.jpg" />
 </div>
 
 
@@ -437,7 +502,7 @@ Debian 12.5 [i386, amd64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62498.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62498.jpg" />
 </div>
 
 
@@ -466,7 +531,7 @@ CentOS 9 Stream [x86_64 / aarch64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62486.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62486.jpg" />
 </div>
 
 
@@ -493,7 +558,7 @@ Fedora 39 Workstation / Server / Spins / Atomic [x86_64] 19xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62485.jpg" />
 </div>
 
 
@@ -520,7 +585,7 @@ MX Linux 23.2 [i386 / AMD64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62477.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62477.jpg" />
 </div>
 
 
@@ -548,7 +613,7 @@ openmediavault 7.0-32 [x86_64] 1xCD
 >>Специализированные ОС
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62473.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62473.jpg" />
 </div>
 
 
@@ -575,7 +640,7 @@ Ubuntu 23.10.1 (Mantic Minotaur) [amd64] 1xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62469.jpg" />
 </div>
 
 
@@ -602,7 +667,7 @@ Red Hat Enterprise Linux 9.3 [x86_64] 2xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62455.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62455.jpg" />
 </div>
 
 
@@ -630,7 +695,7 @@ SparkyLinux 7.3 / 2024.02 Rolling Edition [x86_64] 5xDVD
 >>ОС Linux
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62452.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_62452.jpg" />
 </div>
 
 
@@ -642,59 +707,6 @@ SparkyLinux - это полнофункциональная операционн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:782F27F494EF6CE5E66FC855E44EC5D6C17EF4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708084   (62449) от 19.03.2024
-
-Rocky Linux 9.3 [x86_64] 3xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_62449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rocky Linux — дистрибутив Linux, разработанный Rocky Enterprise Software Foundation. Предполагается, что это будет полный бинарно-совместимый выпуск, использующий исходный код операционной системы Red Hat Enterprise Linux (RHEL). Цель проекта — предоставить корпоративную операционную систему производственного уровня, поддерживаемую сообществом. Rocky Linux, наряду (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4299EEEFA61E76B2BC4949C2306261B609DA9B01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709415   (61945) от 24.03.2024
-
-KDE neon 6.0.2 [x86_64] 1xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_61945.jpg" />
-</div>
-
-
-###  Подробнее
-
-KDE Neon - дистрибутив Linux, который создан командой KDE. Он основан на Ubuntu LTS и предоставляет новейшие версии KDE Plasma Desktop и KDE приложений. КDE Neon разрабатывается как стабильная и актуальная платформа, которая включает в себя последние обновления и исправления безопасности для пользователей KDE.
-Но, в отличие от Kubuntu, которая в LTS версиях содержит (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F30CFF968BE65C6A0C071CA4B829330EB190BF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

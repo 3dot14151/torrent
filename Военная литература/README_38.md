@@ -1,3 +1,29 @@
+###  Публикация: 708671   (428757) от 09.10.2013
+
+Главное Артиллерийское Управление Красной Армии | Японский ручной пулемет обр. 1922 г. (1942) [DJVU]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_428757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая Памятка по обращению с японским ручным пулеметом обр. 1922 г (Тип 11) предназначена для изучения устройства материальной части и правил боевой эксплуатации.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D57421FC4106A5C2A364EFFCEAC6942031C15E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164511   (428145) от 15.09.2017
 
 Книжная серия | «Вся правда о войне» [6 книг] (2013-2015) [FB2, EPUB]
@@ -6,7 +32,7 @@
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428145.jpg" />
+  <img src="Z:/picture/008/save_picture_428145.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428009.jpg" />
+  <img src="Z:/picture/008/save_picture_428009.jpg" />
 </div>
 
 
@@ -61,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427336.jpg" />
+  <img src="Z:/picture/008/save_picture_427336.jpg" />
 </div>
 
 
@@ -87,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427303.jpg" />
+  <img src="Z:/picture/008/save_picture_427303.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426757.jpg" />
+  <img src="Z:/picture/008/save_picture_426757.jpg" />
 </div>
 
 
@@ -141,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_426283.jpg" />
+  <img src="Z:/picture/008/save_picture_426283.jpg" />
 </div>
 
 
@@ -168,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425067.jpg" />
+  <img src="Z:/picture/008/save_picture_425067.jpg" />
 </div>
 
 
@@ -195,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424654.jpg" />
+  <img src="Z:/picture/008/save_picture_424654.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424440.jpg" />
+  <img src="Z:/picture/008/save_picture_424440.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424271.jpg" />
+  <img src="Z:/picture/008/save_picture_424271.jpg" />
 </div>
 
 
@@ -276,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424095.jpg" />
+  <img src="Z:/picture/008/save_picture_424095.jpg" />
 </div>
 
 
@@ -302,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_424000.jpg" />
+  <img src="Z:/picture/005/save_picture_424000.jpg" />
 </div>
 
 
@@ -332,7 +358,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423908.jpg" />
+  <img src="Z:/picture/008/save_picture_423908.jpg" />
 </div>
 
 
@@ -358,7 +384,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423790.jpg" />
+  <img src="Z:/picture/008/save_picture_423790.jpg" />
 </div>
 
 
@@ -384,7 +410,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_423122.jpg" />
+  <img src="Z:/picture/008/save_picture_423122.jpg" />
 </div>
 
 
@@ -410,7 +436,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421882.jpg" />
+  <img src="Z:/picture/005/save_picture_421882.jpg" />
 </div>
 
 
@@ -445,7 +471,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_421881.jpg" />
+  <img src="Z:/picture/005/save_picture_421881.jpg" />
 </div>
 
 
@@ -471,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419606.jpg" />
+  <img src="Z:/picture/008/save_picture_419606.jpg" />
 </div>
 
 
@@ -497,7 +523,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_419215.jpg" />
+  <img src="Z:/picture/008/save_picture_419215.jpg" />
 </div>
 
 
@@ -524,7 +550,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_418255.jpg" />
+  <img src="Z:/picture/008/save_picture_418255.jpg" />
 </div>
 
 
@@ -550,7 +576,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417909.jpg" />
+  <img src="Z:/picture/008/save_picture_417909.jpg" />
 </div>
 
 
@@ -576,7 +602,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417906.jpg" />
+  <img src="Z:/picture/008/save_picture_417906.jpg" />
 </div>
 
 
@@ -602,7 +628,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_417390.jpg" />
+  <img src="Z:/picture/005/save_picture_417390.jpg" />
 </div>
 
 
@@ -629,7 +655,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417353.jpg" />
+  <img src="Z:/picture/008/save_picture_417353.jpg" />
 </div>
 
 
@@ -655,7 +681,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415832.jpg" />
+  <img src="Z:/picture/008/save_picture_415832.jpg" />
 </div>
 
 
@@ -668,32 +694,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FBC15B41C094C6A4E8FBCD8C59E17914EC384C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412636   (415462) от 30.09.2020
-
-Книжная серия | История казачества [28 книг] (2006-2014) [PDF, DJVU, FB2]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_415462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия «История казачества» расскажет читателям о жизни российского казачества. Авторами книг являются известные казачьи историки-эмигранты и наши современники. Каждая книга серии — увлекательный рассказ о подвигах и героях казачества, о быте и традициях Тихого Дона, Вольной Кубани, Грозного Терека и других казачьих областей.Жанр: История, Военная историяФормат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE890E7DE7DC2A0BCA6772DB20F4935BE1CA2B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

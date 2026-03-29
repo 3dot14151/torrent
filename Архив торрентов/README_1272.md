@@ -6,7 +6,7 @@ Wondershare Video Converter Ultimate 10.2.3.163 RePack by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768071.jpg" />
+  <img src="Z:/picture/008/save_picture_768071.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Deliver 2.6.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768070.jpg" />
+  <img src="Z:/picture/008/save_picture_768070.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ VA - Spectra Of Trance Vol.2 (Mixed by Guest  DJ Daniel Kandi) (2017) [MP3|320 K
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768067.jpg" />
+  <img src="Z:/picture/008/save_picture_768067.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768065.jpg" />
+  <img src="Z:/picture/008/save_picture_768065.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ CloudTV 3.8.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768060.jpg" />
+  <img src="Z:/picture/008/save_picture_768060.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768056.jpg" />
+  <img src="Z:/picture/008/save_picture_768056.jpg" />
 </div>
 
 
@@ -166,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768055.jpg" />
+  <img src="Z:/picture/008/save_picture_768055.jpg" />
 </div>
 
 
@@ -192,7 +192,7 @@ Movavi Screen Capture Studio 9.3.0 RePack (& Portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768045.jpg" />
+  <img src="Z:/picture/008/save_picture_768045.jpg" />
 </div>
 
 
@@ -218,7 +218,7 @@ Xara Designer Pro X 15.0.0.52427 (64bit) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768039.jpg" />
+  <img src="Z:/picture/008/save_picture_768039.jpg" />
 </div>
 
 
@@ -244,7 +244,7 @@ Reg Organizer 8.10 beta 2 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768038.jpg" />
+  <img src="Z:/picture/008/save_picture_768038.jpg" />
 </div>
 
 
@@ -271,7 +271,7 @@ Microsoft Visual C++ 2017 Redistributable Package 14.13.26020 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768034.jpg" />
+  <img src="Z:/picture/008/save_picture_768034.jpg" />
 </div>
 
 
@@ -297,7 +297,7 @@ Bandicam 4.1.2.1385 RePack (& portable) by TryRooM  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768031.jpg" />
+  <img src="Z:/picture/008/save_picture_768031.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768005.jpg" />
+  <img src="Z:/picture/008/save_picture_768005.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768003.jpg" />
+  <img src="Z:/picture/008/save_picture_768003.jpg" />
 </div>
 
 
@@ -377,7 +377,7 @@ Image Viewer 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768001.jpg" />
+  <img src="Z:/picture/008/save_picture_768001.jpg" />
 </div>
 
 
@@ -403,7 +403,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767992.jpg" />
+  <img src="Z:/picture/008/save_picture_767992.jpg" />
 </div>
 
 
@@ -429,7 +429,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767990.jpg" />
+  <img src="Z:/picture/008/save_picture_767990.jpg" />
 </div>
 
 
@@ -457,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767988.jpg" />
+  <img src="Z:/picture/008/save_picture_767988.jpg" />
 </div>
 
 
@@ -483,7 +483,7 @@ Microsoft Windows 10 Insider Preview build 17115 (Redstone 4) x64 [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767980.jpg" />
+  <img src="Z:/picture/008/save_picture_767980.jpg" />
 </div>
 
 
@@ -509,7 +509,7 @@ Adobe Photoshop CC 2018 (19.1.2) x86-x64 Portable by punsh (with Plugins) [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767978.jpg" />
+  <img src="Z:/picture/008/save_picture_767978.jpg" />
 </div>
 
 
@@ -535,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767944.jpg" />
+  <img src="Z:/picture/008/save_picture_767944.jpg" />
 </div>
 
 
@@ -564,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767938.jpg" />
+  <img src="Z:/picture/008/save_picture_767938.jpg" />
 </div>
 
 
@@ -590,7 +590,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767935.jpg" />
+  <img src="Z:/picture/008/save_picture_767935.jpg" />
 </div>
 
 
@@ -616,7 +616,7 @@ Moto GP. Сезон 2017. Termas de Rio Hondo. Этап 2. Гонка (9.04.2017
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767934.jpg" />
+  <img src="Z:/picture/008/save_picture_767934.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Юмора
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767930.jpg" />
+  <img src="Z:/picture/008/save_picture_767930.jpg" />
 </div>
 
 
@@ -668,7 +668,7 @@ Process Lasso Pro 9.0.0.290 Final RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767927.jpg" />
+  <img src="Z:/picture/008/save_picture_767927.jpg" />
 </div>
 
 

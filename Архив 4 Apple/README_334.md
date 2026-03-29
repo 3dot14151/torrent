@@ -1,3 +1,113 @@
+###  Публикация: 1308777   (552148) от 18.06.2019
+
+Mitti 1.5.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mitti - это современное, многофункциональное, но простое в использовании профессиональное программное обеспечение для видеовоспроизведения в театральных, аудиовизуальных шоу, выступлениях и выставках.
+
+Mitti имеет понятный, интуитивно понятный пользовательский интерфейс с легким в освоении и использовании рабочим процессом, современным 64-битным аудио с низкой задержкой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.04.2019Разработчик: ImimotПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEAF4504C0D7C72ABA7D4B8257B8E77B52D4E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308720   (552142) от 18.06.2019
+
+Polarr Photo Editor Pro 5.5.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Polarr - единственный редактор фотографий, который вам нужен.
+
+Неважно, если вы новичок в области фотографии или профессионала, у Polarr есть все. Новички оценят, что Polarr предлагает расширенные средства автоматического улучшения и сложные фильтры для редактирования всех деталей вашей фотографии. Профессиональные фотографы с нетерпением ждут нашей поддержки слоев, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.06.2019Разработчик: Polarr Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CE6EB339859AD529B1102093F3F907A9D023D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309090   (552061) от 18.06.2019
+
+Adobe Zii 2019 - Universal Patcher v4.3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Zii - это небольшая и замечательная утилита, которая помогает вам забыть обо всех проблемах с регистрацией всех существующих продуктов Adobe.Тип издания: macOS SoftwareРелиз состоялся: 13.06.2019Разработчик: TNTПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B147A2FBEF21963A6E46E7DDB0F53A676A8474BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1308724   (552060) от 18.06.2019
+
+Notability 3.0.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_552060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярнейшее приложение для создания заметок на iPhone и iPad теперь на Mac!
+
+Notability – мощное средство для ведение заметок, комментированию документов, созданию набросков, записи лекций и много другого. Вы можете делать записи от руки, набирать на клавиатуре, делать аудиозаписи и фотографии. Благодаря iCloud ваши заметки всегда доступны на iPhone, iPad и Mac. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.06.2019Разработчик: Ginger Labs, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Мультиязычный, включая русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F8189F1344C5896C8BE601E71D35FCA73AF36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1309042   (551982) от 18.06.2019
 
 Blocs 3.3.0 [En]
@@ -6,7 +116,7 @@ Blocs 3.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551982.jpg" />
+  <img src="Z:/picture/008/save_picture_551982.jpg" />
 </div>
 
 
@@ -34,7 +144,7 @@ SMART Utility 3.2.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551968.jpg" />
+  <img src="Z:/picture/008/save_picture_551968.jpg" />
 </div>
 
 
@@ -61,7 +171,7 @@ Luminar 3 v3.1.1 (3789) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551898.jpg" />
+  <img src="Z:/picture/008/save_picture_551898.jpg" />
 </div>
 
 
@@ -89,7 +199,7 @@ DjVu Reader Pro 2.2.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551887.jpg" />
+  <img src="Z:/picture/008/save_picture_551887.jpg" />
 </div>
 
 
@@ -117,7 +227,7 @@ Adguard Premium 2.0.6 (559) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551710.jpg" />
+  <img src="Z:/picture/008/save_picture_551710.jpg" />
 </div>
 
 
@@ -143,7 +253,7 @@ Airmail 3 v3.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551482.jpg" />
+  <img src="Z:/picture/008/save_picture_551482.jpg" />
 </div>
 
 
@@ -171,7 +281,7 @@ Spillo 1.8.5 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551243.jpg" />
+  <img src="Z:/picture/008/save_picture_551243.jpg" />
 </div>
 
 
@@ -200,7 +310,7 @@ Clearview 1.9.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551171.jpg" />
+  <img src="Z:/picture/008/save_picture_551171.jpg" />
 </div>
 
 
@@ -227,7 +337,7 @@ Fileloupe - Media Browser 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551011.jpg" />
+  <img src="Z:/picture/008/save_picture_551011.jpg" />
 </div>
 
 
@@ -254,7 +364,7 @@ Flume Pro 2.8.5 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550628.jpg" />
+  <img src="Z:/picture/008/save_picture_550628.jpg" />
 </div>
 
 
@@ -281,7 +391,7 @@ SnapMotion 4.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550542.jpg" />
+  <img src="Z:/picture/008/save_picture_550542.jpg" />
 </div>
 
 
@@ -310,7 +420,7 @@ Audirvana 3.5.12 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550541.jpg" />
+  <img src="Z:/picture/008/save_picture_550541.jpg" />
 </div>
 
 
@@ -336,7 +446,7 @@ GlueMotion 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550540.jpg" />
+  <img src="Z:/picture/008/save_picture_550540.jpg" />
 </div>
 
 
@@ -364,7 +474,7 @@ Cardhop 1.3.0 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550536.jpg" />
+  <img src="Z:/picture/008/save_picture_550536.jpg" />
 </div>
 
 
@@ -392,7 +502,7 @@ KCNcrew Pack 15-6-19 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550454.jpg" />
+  <img src="Z:/picture/008/save_picture_550454.jpg" />
 </div>
 
 
@@ -418,7 +528,7 @@ Typinator 8 v8.0.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550447.jpg" />
+  <img src="Z:/picture/008/save_picture_550447.jpg" />
 </div>
 
 
@@ -447,7 +557,7 @@ ExactScan Pro 19.4.24 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550444.jpg" />
+  <img src="Z:/picture/008/save_picture_550444.jpg" />
 </div>
 
 
@@ -473,7 +583,7 @@ Transmit 5 v5.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550345.jpg" />
+  <img src="Z:/picture/008/save_picture_550345.jpg" />
 </div>
 
 
@@ -499,7 +609,7 @@ Browserism 2.2.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550263.jpg" />
+  <img src="Z:/picture/008/save_picture_550263.jpg" />
 </div>
 
 
@@ -526,7 +636,7 @@ Zoc Terminal 7.23.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550248.jpg" />
+  <img src="Z:/picture/008/save_picture_550248.jpg" />
 </div>
 
 
@@ -552,7 +662,7 @@ Paintstorm Studio 2.40.1 (build1806190) [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550246.jpg" />
+  <img src="Z:/picture/008/save_picture_550246.jpg" />
 </div>
 
 
@@ -578,7 +688,7 @@ CorelCAD 2019.5 (build 19.1.1.2035) [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550240.jpg" />
+  <img src="Z:/picture/008/save_picture_550240.jpg" />
 </div>
 
 
@@ -589,117 +699,6 @@ CorelCAD 2019 - интуитивный интерфейс и полный наб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E9C3F2F5C2EC4E8B90B7E1CF808235B8237AC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047076   (550187) от 29.08.2016
-
-Qbserve 1.45 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отслеживание рабочего времени с комфортом.
-Qbserve в автоматическом режиме отслеживает время потраченное на работу и  помогает повысить производительность.  Qbserve обнаруживает деятельность автоматически с постоянно расширяющейся базой данных (более 5500 сайтов , приложений и игр ) .
-
-Qbserve дает мгновенные ответы на вопросы о том, как вы проводите свое время за (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 августа 2016Разработчик: QotoQotПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:374F86A3C17812EA31B7109255D8F992BEEE23C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047083   (550176) от 29.08.2016
-
-CalendarPro for Google 2.2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Организация никогда не была такой простой !! Вы никогда не пропустите любое важное событие!!
-CalendarPro for Google - приложение календарь-Google с интуитивным дизайном. Программа имеет простой и аккуратный внешний вид с высоким быстродействием и надежностью.
-
-CalendarPro for Google успешно оптимизированный Google Calendar и впишется в ваши нативные приложения. CalendarPro (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 26 августа 2016Разработчик: AppEaseПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC0D64368118E4F6D2A7D780534189C8E4FEB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309459   (550163) от 20.06.2019
-
-Wondershare PDFelement Pro 7.0.1.2255 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550163.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: июнь 2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D63B0DA05CE3B13083D38D7D22897492F38AB26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309222   (550153) от 20.06.2019
-
-Affinity Designer 1.7.1.1 [Multi/Ru]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессиональное приложение для графического дизайна для Mac.
-Affinity Designer — самое быстрое, удобное и точное программное обеспечение для векторного графического дизайна на современном рынке. Работаете ли вы с графикой для создания рекламных материалов, веб-сайтов, значков, дизайна пользовательского интерфейса или же просто любите создавать крутые концептуальные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2019Разработчик: Serif (Europe) LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Мультиязычный, включая русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4462DC4F362CD7D4B565D8CAD506F89549F4C5A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

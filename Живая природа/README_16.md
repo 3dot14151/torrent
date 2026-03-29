@@ -1,3 +1,55 @@
+###  Публикация: 1131394   (706482) от 06.05.2017
+
+Секреты подземной жизни / Secret Life Underground (2015) HDTVRip [H.264/720p-LQ] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_706482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жизнь подземных обитателей полностью скрыта от наших глаз. На глубине всего нескольких метров, прямо под нашими ногами располагается таинственное царство. На сегодняшний день удалось изучить лишь малую часть разнообразных обитателей почвы. Предполагается, что примерно 70% подземных живых организмов до сих пор неизвестны науке. Зрители совершат захватывающее путешествие (   Читать дальше...   )Жанр: Документальный, фауна, флораРежиссер: Винсент АмороПеревод: Одноголосый закадровый, профессиональный (SDI Media)Продолжительность: 00:51:37 + 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7006F70402E9A63B507CDCD958F478E46293EBCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025755   (705963) от 14.06.2016
+
+Лучший друг человека / The Wonder of Dogs (2013) HDTVRip [H.264/720p] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_705963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кинологи рассказывают о больших собаках и маленьких, о служебных и декоративных, о мохнатых и бесшерстных. Мы узнаем, почему один вид животных отличается таким невероятным множеством форм и размеров. Ни одно из наземных животных не демонстрирует такого разнообразия, как собаки. Трудно поверить, что датский дог и чихуахуа принадлежат к одному виду.Телекомпания: Великобритания, British Broadcasting Corporation (BBC), Open University, The Windfall Films, The Open Universitety and For National Geographic ChannelЖанр: Документальный, животные, познавательныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F04FF75762E1440063ACB7D1CA10AF43CCF9F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 703238   (705589) от 14.06.2016
 
 Коралловый риф: Подводный мир Египта / Adventure coral reef: Under the sea of Egypt (2007) BDRip [H.264/720p]
@@ -6,7 +58,7 @@
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705589.jpg" />
+  <img src="Z:/picture/008/save_picture_705589.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705092.jpg" />
+  <img src="Z:/picture/008/save_picture_705092.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703577.jpg" />
+  <img src="Z:/picture/008/save_picture_703577.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703536.jpg" />
+  <img src="Z:/picture/008/save_picture_703536.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700977.jpg" />
+  <img src="Z:/picture/008/save_picture_700977.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697272.jpg" />
+  <img src="Z:/picture/008/save_picture_697272.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696285.jpg" />
+  <img src="Z:/picture/008/save_picture_696285.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695659.jpg" />
+  <img src="Z:/picture/008/save_picture_695659.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695347.jpg" />
+  <img src="Z:/picture/008/save_picture_695347.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695120.jpg" />
+  <img src="Z:/picture/008/save_picture_695120.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695117.jpg" />
+  <img src="Z:/picture/008/save_picture_695117.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694246.jpg" />
+  <img src="Z:/picture/008/save_picture_694246.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693143.jpg" />
+  <img src="Z:/picture/008/save_picture_693143.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692387.jpg" />
+  <img src="Z:/picture/008/save_picture_692387.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690274.jpg" />
+  <img src="Z:/picture/008/save_picture_690274.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688522.jpg" />
+  <img src="Z:/picture/008/save_picture_688522.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687210.jpg" />
+  <img src="Z:/picture/008/save_picture_687210.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687096.jpg" />
+  <img src="Z:/picture/008/save_picture_687096.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686575.jpg" />
+  <img src="Z:/picture/008/save_picture_686575.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684710.jpg" />
+  <img src="Z:/picture/008/save_picture_684710.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ NG: Властелины бездны / Diving With Aliens (2004) DVDRip
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_683571.jpg" />
+  <img src="Z:/picture/008/save_picture_683571.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682244.jpg" />
+  <img src="Z:/picture/008/save_picture_682244.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_674754.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Живая природа
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672139.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672139.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA6C31E71F5F6E34F876610BEF322FCA472EEBAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215394   (671366) от 02.07.2010
-
-Страсти по насекомым 2. Жизнь на одном дереве / Insectia 2. Life in a Single Tree (2000) HDTVRip (серия 8 из 13)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_671366.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снятый по строгим научным стандартам, сериал "Страсти по насекомым" один из самых лучших образовательных фильмов по энтомологии - науке, изучающей насекомых. Несомненно, заслуга в этом выдающегося популяризатора и прекрасного рассказчика Джорджа Броссара. После пятнадцатилетней карьеры нотариуса в возрасте 38 лет Броссар оставляет это скучное занятие и (   Читать дальше...   )Производство: Франция, Pixcom, Cineteve, La CinquiemeЖанр: Документальный, природа, энтомологияРежиссер: Герман ГутерресПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:22:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136692   (670772) от 24.05.2017
-
-Невидимая природа: Растения под микроскопом/ Invisible Nature (2012) HDTVRip [H.264/1080p-LQ] (Серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670772.jpg" />
-</div>
-
-
-###  Подробнее
-
-Существует огромное количество снимков растений, сделанных при помощи электронного микроскопа, но еще ни разу их не снимали на камеру с таким мощным увеличением. При помощи этих уникальных съемок мы узнаем о том, как выживают, адаптируются и эволюционируют различные растения. Со стороны они кажутся пассивными, однако мы даже не подозреваем о многочисленных процессах, (   Читать дальше...   )Производство: Франция, Mona Lisa ProductionЖанр: Документальный, научно-познавательныйРежиссер: Тьерри БерродПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: АнглийскиеПродолжительность: 00:50:45+00:51:31+00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1A7BAC9B12B0743632EC88261B1AC624C6D5B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

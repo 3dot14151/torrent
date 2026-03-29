@@ -1,3 +1,55 @@
+###  Публикация: 1785635   (24374) от 17.03.2025
+
+Castlevania Dominus Collection (2024) [Multi] (1.003.000) Repack Let'sРlay
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_24374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Три невероятных приключенческих экшена из серии Castlevania впервые возвращаются на ваши экраны! Вместе с тремя приключенческими экшенами из серии Castlevania дебютирует и Haunted Castle Revisited - переосмысление самой первой Castlevania для игровых автоматов, в которую также можно сыграть в оригинальном формате! Откройте для себя вселенную Castlevania заново благодаря (   Читать дальше...   )Тип издания: RepackРазработчик: KONAMIЖанр: Экшены, Ролевые игрыЯзык субтитров: Английский, Французский, Итальянский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Итальянский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42E8E08414D8C61B44D3A2C220DFD69A15B93BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631922   (23919) от 22.03.2025
+
+Curse of the Sea Rats (2023) [Ru/Multi] (1.5.7) License GOG
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_23919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Curse of the Sea Rats - двумерная метроидвания, рассказывающая настоящую пиратскую историю об отважных боевых крысах. Как шутят разработчики игры, приключенческая игра с элементами крысоидвании. История начинается в тот момент, когда ведьма-пиратка превращает весь экипаж корабля в крыс. Теперь героям необходимо отправиться в насыщенное событиями приключение, чтобы (   Читать дальше...   )Тип издания: LicenseРазработчик: Petoons StudioЖанр: Экшны, ПлатформерЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB01B57E3A4BEB8BC3E67946F286AFCF9CC9E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786722   (23875) от 22.03.2025
 
 Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1f) Repack seleZen
@@ -6,7 +58,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1f) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23875.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23875.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Curse of the Sea Rats (2023) [Ru/Multi] (1.5.7) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23639.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23639.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ ENDER MAGNOLIA: Bloom in the Mist (2025) [Ru/Multi] (1.1.1.22380) Repack Let'sР
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23398.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23398.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2/dlc) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23253.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23253.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1h) Repack Wanterlude
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_23062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_23062.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ Twilight Monk (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22955.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22955.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22936.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22936.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Rain World (2017) [Ru/Multi] (1.10.1/dlc) Repack FitGirl [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22897.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Inayah - Life after Gods (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22891.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Afterimage (2023) [Ru/Multi] (1.2.1/dlc) Repack Let'sРlay [Deluxe Edition]
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22884.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Star of Providence / Monolith (2017) [Multi] (1.2/dlc) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22782.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22782.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Somber Echoes (2025) [Ru/Multi] (22449) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22754.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22754.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Bio Prototype (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22677.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.1.2) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_22329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_22329.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack seleZen
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21986.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ The Making of Karateka (2023) [Multi] (1.1) License GOG
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21925.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21925.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Funko Fusion (2024) [Ru/Multi] (2.6.3.152571/dlc) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21901.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_21901.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ SNOW BROS. 2 SPECIAL (2025) [Ru/Multi] (1.0) Scene Tenoke
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21653.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21653.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ SNOW BROS. 2 SPECIAL (2025) [Ru/Multi] (1.0) Repack FitGirl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21624.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21624.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.2f) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21483.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21483.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack Let'sРl
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21276.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21276.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Nikoderiko: The Magical World (2024) [Ru/Multi] (Build 18097949) Repack FitGirl 
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21255.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21255.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Koira (2025) [Ru/Multi] (1.0.7/dlc) Repack Let'sРlay
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21141.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21141.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.1.0/dlc) Repack Fi
 >>Action/Arcade/Platformer (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21122.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21122.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Skelethrone: The Chronicles of Ericona – в этом достаточно не
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CAA11D973EA2BEF4E3DD5393EB5CEF0774F125D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792137   (21106) от 17.04.2025
-
-30XX (2023) [Ru/Multi] (1.3.5/dlc) Repack Pioneer
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21106.jpg" />
-</div>
-
-
-###  Подробнее
-
-30XX сочетает в себе четкое управление и плавное движение, которые полюбились в экшн-прыгалках, таких как Mega Man X, мультиплеер современных "рогаликов" (Binding of Isaac, Enter the Gungeon, Dead Cells и т. д.) и совместная игра в одном великолепном пакете. Пробудившись через тысячу лет, ты обнаружишь, что мир, который в тебе нуждался, исчез, навсегда (   Читать дальше...   )Тип издания: RepackРазработчик: Batterystaple GamesЖанр: Экшены, ИндиЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E6784E270A1B8EC50C2A75C2F6C749447C0184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764610   (21085) от 18.04.2025
-
-Magenta Horizon - Neverending Harvest (2024) [Ru/Multi] (1.0.15) Repack Let'sРlay
-
->>Win Игры
->>Action/Arcade/Platformer (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_21085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magenta Horizon от соло-разработчика Маддисона Бека - это динамичный 2D-платформер с боевкой, вдохновленной стильными слэшерами. Играя за Жнеца из загробного мира, доведите свои навыки до совершенства, чтобы расправиться с ордами демонов и грозными боссами на пути к своей цели. Испытайте свое мастерство, используя богатые, стильные и выразительные боевые возможности!Тип издания: RepackРазработчик: Maddison Baek (Hellfire Railway Interactive)Жанр: Экшены, Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Корейский, Бразильский (Португальский)Язык интерфейса: Русский, Английский, Корейский, Бразильский (Португальский)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39013E5F59916D2AB6224378B5F5E81307E21811
 ```
 
 https://mybot314.ru/tekegram_catalog/

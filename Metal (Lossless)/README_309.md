@@ -1,3 +1,90 @@
+###  Публикация: 1271731   (147761) от 25.12.2018
+
+Abnormal Thought Patterns - Altered States Of Consciousness (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distortions of Perception (4:33)
+02. Nocturnal Haven (9:52)
+03. Blindsight (4:06)
+04. Synesthesia (6:03)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACB9CC2CD97EE94742B9E0034EC66CDBF6AA34C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271741   (147743) от 25.12.2018
+
+Embryo - Embryo (2015) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. An Awkward Attempt
+02. The Pursuit of Silence
+03. Manipulate My Consciousness
+04. Insane Lucidity(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63476E7D1A7ABB4B62B10F5017E9C646DF2DA27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519707   (147156) от 25.12.2021
+
+Ad Infinitum - Chapter II - Legacy (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reinvented
+02. Unstoppable
+03. Inferno
+04. Your Enemy(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC9A3D361EBBF19881E6B661E3E2888F54B7313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1435081   (146485) от 27.12.2020
 
 Psychonaut 4 - 5 Albums, 3 Splits, 1 Single (2011-2020) [FLAC|Lossless|tracks] <Depressive Suicidal Black Metal, Post-Black metal>
@@ -6,7 +93,7 @@ Psychonaut 4 - 5 Albums, 3 Splits, 1 Single (2011-2020) [FLAC|Lossless|tracks] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146485.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146485.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Cradle Of Filth - Cruelty And The Beast (Re-Mistressed) (1998) Reissue, Remaster
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146367.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146367.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Terromania - Nyctophobic (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Doom Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146289.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146289.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Patriarchs in Black - My Veneration (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146280.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146280.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Jernlov - Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Christian
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146277.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146277.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Lacuna Coil - Black Anima (2019) Limited Edition [FLAC|Lossless|image + .cue] <A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146218.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146218.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ Jag Panzer - Decade of the Nail-Spiked Bat (2003) Compilation, re-recorded, Cent
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146190.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ King - Fury and Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal, Melodic Black
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146159.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146159.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Manilla Road - Spiral Castle (2002) Remaster, 2023, GoldenCore Records [FLAC|Los
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146152.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Olathia - The Forest Witch (2023) [FLAC|Lossless|WEB-DL|tracks] <Power/Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146026.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_146026.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Sidious - Revealed in Profane Splendour (2014) [FLAC|Lossless|image + .cue] <Sym
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145995.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145995.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Planet Rain - The Fundamental Principles (2014) [FLAC|Lossless|image + .cue] <Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145986.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Kampfar - Profan (2015) [FLAC|Lossless|image + .cue] <Pagan Metal, Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145980.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Exotheria - Angels Are Calling (2015) [FLAC|Lossless|image + .cue] <Progressive 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145964.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145964.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ In Memory - LaKrima (2015) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145947.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145947.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Even The Trees - If Only Everyday Could Be Like This (2018) [FLAC|Lossless|track
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145932.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145932.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Ghost Machinery - Evil Undertow (2015) [FLAC|Lossless|image + .cue] <Power Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145919.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145919.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Phlebotomized - Deformation Of Humanity (2019) [FLAC|Lossless|Web-DL|tracks] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145897.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145897.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ Mastercastle - Last Desire (2010) [FLAC|Lossless|image + .cue] <Power Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145890.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145890.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Slechtvalk - A Forlorn Throne (2010) [FLAC|Lossless|image + .cue] <Viking Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145860.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145860.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Motorhead (Motörhead) - Another Perfect Day (40th Anniversary) (1983) Deluxe Ed
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145799.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145799.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Imperia - Tears Of Silence (2015) [FLAC|Lossless|image + .cue] <Symphonic Gothic
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145744.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145744.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Wintersun - Wintersun (Japanese Edition) (2004) [FLAC|Lossless]<Epic Metal, Melo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_145567.jpg" />
 </div>
 
 
@@ -664,93 +751,6 @@ Wintersun - Wintersun (Japanese Edition) (2004) [FLAC|Lossless]<Epic Metal, Melo
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969450   (145068) от 28.12.2015
-
-Circle II Circle - Reign of Darkness (2015) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_145068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Over-Underture
-02.Victim of the Night
-03.Untold Dreams
-04.It's All Over(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E0C995C2C3F95656480D5E5C7B61ACAFD3EAED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678545   (144368) от 22.11.2023
-
-Inferen - Inferen (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Invocation
-03 - Pestilenza
-04 - Guerra(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDBD2B2826A49D80F7F8EA056C53C19C25BA632F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678704   (144336) от 22.11.2023
-
-Juggernaut - Ground Zero Conflict (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_144336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taking Life To Save Life (05:23)
-02. Shadows Of Reality (05:15)
-03. Free Words To Fight (03:46)
-04. Lost In Collapse (04:39)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:33:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B224FCDB9EFEA13C348D5889B41019E36626426B
 ```
 
 https://mybot314.ru/tekegram_catalog/

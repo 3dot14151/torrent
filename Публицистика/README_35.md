@@ -1,3 +1,84 @@
+###  Публикация: 1290341   (648630) от 28.03.2019
+
+Владимир Фурзиков | Иван... Грозный? Трагедия великой личности (2016) [DOC]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заключительные Главы 7 и Заключение из книги Фурзикова «Иван Грозный. Трагедия великой личности. Исследование природы власти».
+В книге рассматриваются выдающиеся личности нашей и зарубежной истории, необычные и малоизвестные факты, «законы власти» на примерах с незапамятных времен и до нашего времени.
+Можно ли назвать их законами? Я не знаю.
+Может быть так: люди (   Читать дальше...   )Жанр: публицистикаФормат: DOC
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42A931306A1BC3CACB62B6A207B2B26EC53158D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227345   (648356) от 25.05.2018
+
+Эдуард Лимонов | Сводка новостей. Путин – отец, Макрон – сын, Собчак – дочь (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_648356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эдуард Лимонов считает себя человеком действия, а не литератором. Потому статьи его всегда остры и даже резки. Самые важные мировые проблемы: выборы, войны, теракты – никогда не проходят мимо его внимания.Жанр: Публицистика, Современное политическое положениеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775056F6E5F54A4AC63F790D1F4A1EB767FB167D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032129   (647767) от 06.07.2016
+
+Дмитрий Володихин | Патриарх Гермоген (2015) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_647767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патриарх Гермоген - одна из ключевых фигур нашей истории. В эпоху Великой Смуты начала XVII века, когда Московская держава едва не исчезла с карты мира, именно его воля помогла удержать российскую государственность от окончательного краха. И очень может быть, что ни Первого, ни Второго земских ополчений, ни освобождения Москвы от поляков, ни восшествия на престол (   Читать дальше...   )Жанр: Православие, Жития Святых и священнослужителейФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2F4592A46031531E1990AB4589C26683758AE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905900   (647693) от 07.06.2015
 
 Ф. П. Шиллер | Фридрих Шиллер. Жизнь и творчество (1955) [DJVU]
@@ -6,7 +87,7 @@
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647693.jpg" />
+  <img src="Z:/picture/008/save_picture_647693.jpg" />
 </div>
 
 
@@ -32,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647437.jpg" />
+  <img src="Z:/picture/008/save_picture_647437.jpg" />
 </div>
 
 
@@ -58,7 +139,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647433.jpg" />
+  <img src="Z:/picture/008/save_picture_647433.jpg" />
 </div>
 
 
@@ -86,7 +167,7 @@ lee | Книга вибраций (2016) [PDF, EPUB]
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647384.jpg" />
+  <img src="Z:/picture/008/save_picture_647384.jpg" />
 </div>
 
 
@@ -112,7 +193,7 @@ lee | Как материализовать мысли (2016) [PDF, EPUB]
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647380.jpg" />
+  <img src="Z:/picture/008/save_picture_647380.jpg" />
 </div>
 
 
@@ -138,7 +219,7 @@ lee | Инструкция к реальности (2015) [PDF, EPUB]
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647261.jpg" />
+  <img src="Z:/picture/008/save_picture_647261.jpg" />
 </div>
 
 
@@ -164,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645422.jpg" />
+  <img src="Z:/picture/008/save_picture_645422.jpg" />
 </div>
 
 
@@ -193,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645315.jpg" />
+  <img src="Z:/picture/008/save_picture_645315.jpg" />
 </div>
 
 
@@ -220,7 +301,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645135.jpg" />
+  <img src="Z:/picture/008/save_picture_645135.jpg" />
 </div>
 
 
@@ -246,7 +327,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645078.jpg" />
+  <img src="Z:/picture/008/save_picture_645078.jpg" />
 </div>
 
 
@@ -272,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644990.jpg" />
+  <img src="Z:/picture/008/save_picture_644990.jpg" />
 </div>
 
 
@@ -299,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644988.jpg" />
+  <img src="Z:/picture/008/save_picture_644988.jpg" />
 </div>
 
 
@@ -325,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644851.jpg" />
+  <img src="Z:/picture/008/save_picture_644851.jpg" />
 </div>
 
 
@@ -351,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644594.jpg" />
+  <img src="Z:/picture/008/save_picture_644594.jpg" />
 </div>
 
 
@@ -379,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643376.jpg" />
+  <img src="Z:/picture/008/save_picture_643376.jpg" />
 </div>
 
 
@@ -407,7 +488,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643180.jpg" />
+  <img src="Z:/picture/008/save_picture_643180.jpg" />
 </div>
 
 
@@ -433,7 +514,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643079.jpg" />
+  <img src="Z:/picture/008/save_picture_643079.jpg" />
 </div>
 
 
@@ -459,7 +540,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641613.jpg" />
+  <img src="Z:/picture/008/save_picture_641613.jpg" />
 </div>
 
 
@@ -485,7 +566,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641521.jpg" />
+  <img src="Z:/picture/008/save_picture_641521.jpg" />
 </div>
 
 
@@ -512,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641481.jpg" />
+  <img src="Z:/picture/008/save_picture_641481.jpg" />
 </div>
 
 
@@ -540,7 +621,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641299.jpg" />
+  <img src="Z:/picture/008/save_picture_641299.jpg" />
 </div>
 
 
@@ -568,7 +649,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641276.jpg" />
+  <img src="Z:/picture/008/save_picture_641276.jpg" />
 </div>
 
 
@@ -594,7 +675,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641171.jpg" />
+  <img src="Z:/picture/008/save_picture_641171.jpg" />
 </div>
 
 
@@ -605,86 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E16ACC889DCDC565FAD91C84D5C8CE0626CCF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227874   (641080) от 29.05.2018
-
-О. А. Феофанов | Шпионаж ради бизнеса (1965) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подкуп? Шантаж? Нож в спину сопернику? Пожалуйста! Промышленный шпион к услугам бизнесмена. И небескорыстно, конечно. Он не гнушается ничем: будет рыться в мусорных корзинах конкурента и выслеживать его с любовницей; украдет промышленные секреты и продаст их; скомпрометирует соперника и получит за это гонорар.
-
-Мораль? Этика? В мире, где все измеряется долларом, (   Читать дальше...   )Жанр: История, политология, экономика, журналистика, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E145F1DCD641AA69E0231859951D4B5FCBA48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293131   (641046) от 01.04.2019
-
-К. Н. Беркова | Вольтер (1931) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вольтер появился в кипучей атмосфере ломки старого и брожения новых революционных идей. По своему социальному происхождению, по своей изумительной одаренности, по своему боевому темпераменту, он как нельзя более подходил к роли вождя просветительного движения и пропагандиста новых доктрин. „Философия XVIII в., — говорит Тэн, — нуждается в писателе, который всеми (   Читать дальше...   )Жанр: История, философия, публицистикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6300748EF941DB54A1DA384E788F494D9583CB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033129   (639701) от 10.07.2016
-
-Сэм Харрис | Конец веры. Религия, террор и будущее разума (2011) [EPUB, FB2, MOBI]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта знаменитая книга – блестящий анализ борьбы разума и религии в современном мире. Автор демонстрирует, сколь часто в истории мы отвергали доводы разума в пользу религиозной веры – даже если эта вера порождала лишь зло и бедствия. Предостерегая против вмешательства организованной религии в мировую политику, Харрис, опираясь на доводы нейропсихологии, философии и (   Читать дальше...   )Жанр: Публицистика, обществоФормат: EPUB, FB2, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40CF51230CD6EB60C83EF689F549C37B6698BE26
 ```
 
 https://mybot314.ru/tekegram_catalog/

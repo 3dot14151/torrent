@@ -6,7 +6,7 @@ Aiseesoft 4K Converter 8.0.12 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878797.jpg" />
+  <img src="Z:/picture/005/save_picture_878797.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878789.jpg" />
+  <img src="Z:/picture/005/save_picture_878789.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ DriverEasy Professional 4.9.15.21942 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878757.jpg" />
+  <img src="Z:/picture/005/save_picture_878757.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Chromium 51.0.2676.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878685.jpg" />
+  <img src="Z:/picture/005/save_picture_878685.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878664.jpg" />
+  <img src="Z:/picture/005/save_picture_878664.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878587.jpg" />
+  <img src="Z:/picture/005/save_picture_878587.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878584.jpg" />
+  <img src="Z:/picture/005/save_picture_878584.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Adblock Plus 2.7.2 for Mozilla Firefox [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878578.jpg" />
+  <img src="Z:/picture/005/save_picture_878578.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878577.jpg" />
+  <img src="Z:/picture/005/save_picture_878577.jpg" />
 </div>
 
 
@@ -241,7 +241,7 @@ SQLPro Studio 2020.35 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878550.jpg" />
+  <img src="Z:/picture/005/save_picture_878550.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ Butler 4.3.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878548.jpg" />
+  <img src="Z:/picture/005/save_picture_878548.jpg" />
 </div>
 
 
@@ -293,7 +293,7 @@ TurboCollage 7 v7.0.12 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878545.jpg" />
+  <img src="Z:/picture/005/save_picture_878545.jpg" />
 </div>
 
 
@@ -319,7 +319,7 @@ Image Enhance Pro 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878544.jpg" />
+  <img src="Z:/picture/005/save_picture_878544.jpg" />
 </div>
 
 
@@ -345,7 +345,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878538.jpg" />
+  <img src="Z:/picture/005/save_picture_878538.jpg" />
 </div>
 
 
@@ -371,7 +371,7 @@ Adblock Plus 1.11 for Google Chrome / Opera / Safari [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878529.jpg" />
+  <img src="Z:/picture/005/save_picture_878529.jpg" />
 </div>
 
 
@@ -397,7 +397,7 @@ Simon Patterson - Open Up 001 - 162 (2013-2016) [MP3|320 кб/с] <Trance, Tech 
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878523.jpg" />
+  <img src="Z:/picture/005/save_picture_878523.jpg" />
 </div>
 
 
@@ -426,7 +426,7 @@ DxO Photo Software Suite 3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878506.jpg" />
+  <img src="Z:/picture/005/save_picture_878506.jpg" />
 </div>
 
 
@@ -452,7 +452,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878503.jpg" />
+  <img src="Z:/picture/005/save_picture_878503.jpg" />
 </div>
 
 
@@ -478,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878500.jpg" />
+  <img src="Z:/picture/005/save_picture_878500.jpg" />
 </div>
 
 
@@ -504,7 +504,7 @@ SUMo Pro 5.10.13.449 + Portable (SharewareOnSale) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878493.jpg" />
+  <img src="Z:/picture/005/save_picture_878493.jpg" />
 </div>
 
 
@@ -530,7 +530,7 @@ Machine Rox - Discography 20 Releases (2008-2019) [MP3|320 Kbps] <EBM, Industria
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878491.jpg" />
+  <img src="Z:/picture/005/save_picture_878491.jpg" />
 </div>
 
 
@@ -559,7 +559,7 @@ Soft4Boost Document Converter 6.2.7.447 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878487.jpg" />
+  <img src="Z:/picture/005/save_picture_878487.jpg" />
 </div>
 
 
@@ -585,7 +585,7 @@ RegCool 1.116 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878483.jpg" />
+  <img src="Z:/picture/005/save_picture_878483.jpg" />
 </div>
 
 
@@ -611,7 +611,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878476.jpg" />
+  <img src="Z:/picture/005/save_picture_878476.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Soft4Boost AMPlayer 5.6.5.289 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878468.jpg" />
+  <img src="Z:/picture/005/save_picture_878468.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ PrivaZer 3.0.96.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878456.jpg" />
+  <img src="Z:/picture/005/save_picture_878456.jpg" />
 </div>
 
 

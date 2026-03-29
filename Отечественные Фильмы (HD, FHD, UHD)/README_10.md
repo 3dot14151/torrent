@@ -1,3 +1,134 @@
+###  Публикация: 1193805   (1022900) от 03.04.2021
+
+Иваны, помнящие родство: Гудбай, Америка (2017) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студия «Red Pepper Film» представляет новый кино-проект, состоящий из серии короткометражных фильмов о России. Сюжет фильма избирался открытым конкурсом сценариев, без каких-либо ограничений желающих участвовать. Реальная история москвички Яны Тодерика, о приключениях её друга кубинца в уральской глубинке. Молодой парень, отец которого был советским офицером служившим (   Читать дальше...   )Производство: Россия | «Red Pepper Film»Жанр: Короткометражный, драмаРежиссер: Иван СоснинАктеры: Закария Аль-Язиди, Наталья Цыганкова Иван Савинов, Ксения Дралова, Игорь Кожевин, Полина Саверченко, Евгений Кондратенко, Владимир Кочуров, Александ Волхонский, Кирилл Верхозин, Дмитрий МишинПродолжительность: 00:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43467514DB0115CBBBF983C289FF10F817C020AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459381   (1022891) от 03.04.2021
+
+Вдова (2020) BDRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодно в лесах на севере Ленинградской области пропадает более 300 человек. Известны случаи, когда тела пропавших находят посреди леса – полностью обнаженными, без каких-либо следов насильственной смерти.
+Во время учений команда волонтеров-спасателей получает сообщение о потерявшемся в окрестном лесу мальчике. Отправившись на поиски, они находят раздетую женщину (   Читать дальше...   )Производство: Россия / Central Partnership Productions, QS FilmsЖанр: ужасыРежиссер: Иван МининАктеры: Виктория Потемина, Анастасия Грибова, Маргарита Бычкова, Илья Агапов, Алексей Анискин, Константин Нестерко, Олег ЧугуновПеревод: Не требуетсяСубтитры: Русские (forced)Продолжительность: 01:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7C26228F4238D3F864E212553ED5A2917764182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459680   (1022889) от 03.04.2021
+
+Я свободен (2019) WEBRip [H.264/720p] [PR]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022889.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семнадцатилетний Артем приезжает в лагерь на берегу моря между сменами, чтобы спрятаться от проблем и тяжелых воспоминаний прошлого. Но вместо желанного одиночества молчаливого героя встречают странные обитатели лагеря, с которыми он вынужден общаться. Вереница случайных (или совсем неслучайных?) событий должна либо сломать, либо излечить героя.Производство: Россия / Киностудия им. М. ГорькогоЖанр: ДрамаРежиссер: Илья СеверовАктеры: Глеб Калюжный, Евгений Ковылин, Григорий Верник, Ангелина Загребина, Анастасия Крупнова, Давид Мелконян, Алексей Булатов, Сергей Чабанчук, Лидия Емельяненко, Арсений ОрловПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 01:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B3DD83CB0BBD9A5BC876874BDDA8D6A2BC3A4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460161   (1022791) от 04.04.2021
+
+Известный режиссер (2020) WEBRip [H.264/720p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студенты театрального факультета решают позвонить известному режиссеру. На их удивление он отвечает взаимностью и даже назначает встречу. Ребята хотят сниматься в кино, а что хочет известный режиссер?Производство: РоссияЖанр: Короткометражный, комедияРежиссер: Артем КурганскийАктеры: Вячеслав Государев, Александр Лепихов, Сергей Померанцев, Артем Курганский, Ольга ДерябинаСубтитры: ОтсутствуютПродолжительность: 00:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F970B6B6FDBDD47472D97597396E66A916D966A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1460151   (1022780) от 04.04.2021
+
+Зеркало Гезелла (2019) WEBRip [H.264/1080p-LQ]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лида - стареющий театральный режиссёр. Она ставит пьесу о трагических последствиях любовной интрижки уважаемого главы семейства. На пробы, прямо в красивую, похожую на музей квартиру, с большим опозданием приходит молодая девица Яна. Яна – идеальное воплощение любовницы: наглая, развязная, вызывающе сексуальная. В ходе проб неприязнь Лиды к актрисе неожиданно перерастает (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Элина КурбатоваАктеры: Ольга Дроздова, Анфиса Черных, Екатерина Бэккер, Тамара Асатиани, Виктория Сидорова, Илья Древнов, Екатерина СтроговаСубтитры: ОтсутствуютПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA9FF09CB1E23CBE12FD273F58DE7365AC946B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460290   (1022506) от 05.04.2021
 
 Светлячок (2021) WEBRip [H.264/1080p-LQ] [PR]
@@ -6,7 +137,7 @@
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022506.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022506.jpg" />
 </div>
 
 
@@ -32,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022435.jpg" />
 </div>
 
 
@@ -58,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022425.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022425.jpg" />
 </div>
 
 
@@ -85,7 +216,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022196.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022196.jpg" />
 </div>
 
 
@@ -111,7 +242,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022077.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022077.jpg" />
 </div>
 
 
@@ -137,7 +268,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022069.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022069.jpg" />
 </div>
 
 
@@ -163,7 +294,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022063.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022063.jpg" />
 </div>
 
 
@@ -189,7 +320,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1022047.jpg" />
 </div>
 
 
@@ -215,7 +346,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021920.jpg" />
 </div>
 
 
@@ -241,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021853.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021853.jpg" />
 </div>
 
 
@@ -267,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021839.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021839.jpg" />
 </div>
 
 
@@ -293,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021833.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021833.jpg" />
 </div>
 
 
@@ -319,7 +450,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021829.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021829.jpg" />
 </div>
 
 
@@ -346,7 +477,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021746.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021746.jpg" />
 </div>
 
 
@@ -372,7 +503,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021737.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021737.jpg" />
 </div>
 
 
@@ -398,7 +529,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021724.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021724.jpg" />
 </div>
 
 
@@ -424,7 +555,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021695.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021695.jpg" />
 </div>
 
 
@@ -450,7 +581,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021671.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021671.jpg" />
 </div>
 
 
@@ -476,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021003.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1021003.jpg" />
 </div>
 
 
@@ -502,7 +633,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020984.jpg" />
 </div>
 
 
@@ -528,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020960.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1020960.jpg" />
 </div>
 
 
@@ -539,136 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:003E8FC9CFD8ADD24CA2D60D84F93A5A4B90AD0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462663   (1020895) от 15.04.2021
-
-Понаехали (2020) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей никогда не знал отца, но однажды в порванном кармане старого пиджака он обнаруживает его фото, и узнает что тот живет на Кавказе. И вместо запланированной поездки в Испанию семья Алексея оказывается на кавказских просторах. Отпуск и поиск отца становятся настоящим приключением для Алексея и его близких — смешным, нелепым, иногда немного опасным, и точно незабываемым.Производство: Россия / Сторм Синема, Стриж & CoMediaЖанр: Комедия, приключенияРежиссер: Султан ХажирокоАктеры: Семён Стругачев, Елена Бирюкова, Артём Башенин, Светлана Егорова, Анатолий Дзиваев, Эльдар Иразиев, Халил Мусаев, Хаджимурад Набиев, Омар Алибутаев, Грант ПалагаевПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:20:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65CBF7A26CA82E5FD3F6F6E7BD736E89A065B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462858   (1020792) от 16.04.2021
-
-Ты у меня одна (1993) WEBRip [H.264/720p]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший боксер, а ныне — рядовой инженер, Евгений Тимошин получает возможность изменить свою жизнь к лучшему. Его зовет с собой в Америку молодая, красивая, богатая женщина, которая с детства в него влюблена. Но Тимошин любит свою жену, и никогда не мечтал об Америке…Производство: Россия / Astur Company, Informpresservice, ЛенфильмЖанр: ДрамаРежиссер: Дмитрий АстраханАктеры: Александр Збруев, Марина Неёлова, Светлана Рябова, Марк Горонок, Мария Лобачева, Ксения Морозова, Виктор Гоголев, Ирина Мазуркевич, Александр Лыков, Артур ВахаСубтитры: ОтсутствуютПродолжительность: 01:35:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE32F0918F4F2741A08444261BFB7F957A8C7C17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462699   (1020717) от 16.04.2021
-
-Калашников (2020) BDRip [H.264/720p] [GER Transfer] [PR]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020717.jpg" />
-</div>
-
-
-###  Подробнее
-
-Калашников. Все знают эту фамилию, но не все знают, какой долгий и тернистый путь прошел парень-самоучка, чтобы в 28 создать легендарное оружие АК-47, которое по сей день является символом оружейной мысли нашего времени.Производство: Россия / RB ProductionЖанр: Биография, ИсторияРежиссер: Константин БусловАктеры: Юрий Борисов, Ольга Лерман, Артур Смольянинов, Эльдар Калимулин, Виталий Хаев, Валерий Баринов, Анатолий Лобоцкий, Алексей Вертков, Дмитрий Богдан, Максим БитюковПеревод: Не требуетсяСубтитры: Русские (Forced, Full)Продолжительность: 01:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC4145D96AF8554CF548299B77F0AA6C6EAE6180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463116   (1020642) от 17.04.2021
-
-Анпакинг (2020) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Короткометражный фильм рассказывает о недалёком будущем, в котором появился новый вид деятельности — иммуноблоггинг. Люди, у которых иммунитет "класса А+" или выше, могут зарегистрироваться в качестве иммунодоноров — и продавать свои антитела всем желающим. Некоторые делают из этого целое шоу, ведут подкасты и делают обзоры и анпакинги новых пакетов сезонных (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, фантастика, биопанкРежиссер: Вячеслав ПоповАктеры: Джаннет Двойненкова, Владимир СавиловСубтитры: ОтсутствуютПродолжительность: 00:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE484A5A3F9023A39D7331FF0C9F4C8BB278F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463402   (1020414) от 18.04.2021
-
-#c_училища (2020) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная студентка Танька из рабочего района влюбляется в преподавателя – интеллигентного Сережу, мечтающего уехать в Москву от серости провинциального города. Сережа поздно понимает, что за девушка перед ним, и что его мечтам уже не суждено сбыться.Производство: Россия / Студия Павла ЛунгинаЖанр: ДрамаРежиссер: Анна СаяннаяАктеры: Анастасия Куимова, Василий Михайлов, Иван Макаревич, Антон Момот, Александр Числов, Елена МорозоваПеревод: Не требуется (Русский) iTunesСубтитры: ОтсутствуютПродолжительность: 01:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C7305F6DF7F923C5DD335BBC001A4D2D33F5FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

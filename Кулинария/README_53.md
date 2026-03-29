@@ -1,3 +1,29 @@
+###  Публикация: 1267915   (229046) от 09.12.2018
+
+Евгений Сулес | Мир виски и виски мира (2017) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/004/save_picture_229046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство виски – искусство, которому, по самым скромным подсчетам, уже половина тысячи лет. Но и потребление виски – не меньшее искусство. Поэтому энциклопедические данные о виски в книге известного эксперта и писателя Евгения Сулеса приправлены личными историями любви к этому напитку и людям, размышлениями и «лирическими отступлениями». Здесь важна атмосфера (   Читать дальше...   )Жанр: Алкогольные напитки, Интересные фактыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA04CE8A7EFF587471F9639C82A511C7C763346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341756   (228828) от 29.11.2019
 
 Зоряна Ивченко | Быстрые домашние десерты (2017) [PDF]
@@ -6,7 +32,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_228828.jpg" />
+  <img src="Z:/picture/004/save_picture_228828.jpg" />
 </div>
 
 
@@ -32,7 +58,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227737.jpg" />
+  <img src="Z:/picture/005/save_picture_227737.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227692.jpg" />
+  <img src="Z:/picture/005/save_picture_227692.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227640.jpg" />
+  <img src="Z:/picture/005/save_picture_227640.jpg" />
 </div>
 
 
@@ -114,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227601.jpg" />
+  <img src="Z:/picture/005/save_picture_227601.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227436.jpg" />
+  <img src="Z:/picture/005/save_picture_227436.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227425.jpg" />
+  <img src="Z:/picture/005/save_picture_227425.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227417.jpg" />
+  <img src="Z:/picture/005/save_picture_227417.jpg" />
 </div>
 
 
@@ -221,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_227357.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_227357.jpg" />
 </div>
 
 
@@ -248,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227281.jpg" />
+  <img src="Z:/picture/005/save_picture_227281.jpg" />
 </div>
 
 
@@ -274,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_227026.jpg" />
+  <img src="Z:/picture/005/save_picture_227026.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_226030.jpg" />
+  <img src="Z:/picture/005/save_picture_226030.jpg" />
 </div>
 
 
@@ -327,7 +353,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_225661.jpg" />
+  <img src="Z:/picture/005/save_picture_225661.jpg" />
 </div>
 
 
@@ -353,7 +379,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224921.jpg" />
+  <img src="Z:/picture/005/save_picture_224921.jpg" />
 </div>
 
 
@@ -379,7 +405,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224540.jpg" />
+  <img src="Z:/picture/005/save_picture_224540.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224500.jpg" />
+  <img src="Z:/picture/005/save_picture_224500.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224282.jpg" />
+  <img src="Z:/picture/005/save_picture_224282.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_224153.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_224153.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_224046.jpg" />
+  <img src="Z:/picture/005/save_picture_224046.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223714.jpg" />
+  <img src="Z:/picture/005/save_picture_223714.jpg" />
 </div>
 
 
@@ -536,7 +562,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_223346.jpg" />
+  <img src="Z:/picture/005/save_picture_223346.jpg" />
 </div>
 
 
@@ -563,7 +589,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222840.jpg" />
+  <img src="Z:/picture/005/save_picture_222840.jpg" />
 </div>
 
 
@@ -589,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222827.jpg" />
+  <img src="Z:/picture/005/save_picture_222827.jpg" />
 </div>
 
 
@@ -615,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222699.jpg" />
+  <img src="Z:/picture/005/save_picture_222699.jpg" />
 </div>
 
 
@@ -641,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222685.jpg" />
+  <img src="Z:/picture/005/save_picture_222685.jpg" />
 </div>
 
 
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB346999A0EE049D5FFC1D3E343C0840E952E79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269048   (222496) от 13.12.2018
-
-Максим Рыбаков | О чем мечтают мужчины. Уютные рецепты домашней кулинарии на весь год (2018) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_222496.jpg" />
-</div>
-
-
-###  Подробнее
-
-О чем мечтают мужчины? Конечно, о вкусной еде, приготовленной любимой женщиной. Но кто лучше, чем мужчина – профессиональный повар расскажет о том, какие рецепты сведут вашего возлюбленного с ума? Шеф-повар ресторанов русской кухни в Суздале, победитель Всероссийского кулинарного чемпионата Chef a la russe Максим Рыбаков с легкостью импровизирует с трендами по мотивам (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900BE01FB71FC9FA0BD916159013E57BB24A5665
 ```
 
 https://mybot314.ru/tekegram_catalog/

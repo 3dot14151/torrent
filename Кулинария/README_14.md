@@ -1,3 +1,30 @@
+###  Публикация: 1109571   (857161) от 28.02.2017
+
+Е.А. Авдеева | Карманная поваренная книжка (1859) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_857161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана удивительно живым и образным языком, рассчитана она на людей среднего достатка.
+Для "Карманной поваренной книги" автор бережно выбирала наиболее интересные блюда, бытовавшие в разных областях России.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98672F38DD4C940463D113BF7A86482620A024E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109568   (857150) от 28.02.2017
 
 Е.А. Авдеева | Карманная поваренная книга [Две книги] (1846, 1870) [PDF]
@@ -6,7 +33,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857150.jpg" />
+  <img src="Z:/picture/008/save_picture_857150.jpg" />
 </div>
 
 
@@ -33,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857050.jpg" />
+  <img src="Z:/picture/008/save_picture_857050.jpg" />
 </div>
 
 
@@ -62,7 +89,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855560.jpg" />
+  <img src="Z:/picture/008/save_picture_855560.jpg" />
 </div>
 
 
@@ -90,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855559.jpg" />
+  <img src="Z:/picture/008/save_picture_855559.jpg" />
 </div>
 
 
@@ -116,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855551.jpg" />
+  <img src="Z:/picture/008/save_picture_855551.jpg" />
 </div>
 
 
@@ -143,7 +170,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855550.jpg" />
+  <img src="Z:/picture/008/save_picture_855550.jpg" />
 </div>
 
 
@@ -170,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855548.jpg" />
+  <img src="Z:/picture/008/save_picture_855548.jpg" />
 </div>
 
 
@@ -198,7 +225,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855540.jpg" />
+  <img src="Z:/picture/008/save_picture_855540.jpg" />
 </div>
 
 
@@ -225,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855482.jpg" />
+  <img src="Z:/picture/008/save_picture_855482.jpg" />
 </div>
 
 
@@ -252,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855481.jpg" />
+  <img src="Z:/picture/008/save_picture_855481.jpg" />
 </div>
 
 
@@ -280,7 +307,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855480.jpg" />
+  <img src="Z:/picture/008/save_picture_855480.jpg" />
 </div>
 
 
@@ -307,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855479.jpg" />
+  <img src="Z:/picture/008/save_picture_855479.jpg" />
 </div>
 
 
@@ -334,7 +361,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855478.jpg" />
+  <img src="Z:/picture/008/save_picture_855478.jpg" />
 </div>
 
 
@@ -360,7 +387,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855401.jpg" />
+  <img src="Z:/picture/008/save_picture_855401.jpg" />
 </div>
 
 
@@ -387,7 +414,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855395.jpg" />
+  <img src="Z:/picture/008/save_picture_855395.jpg" />
 </div>
 
 
@@ -414,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855394.jpg" />
+  <img src="Z:/picture/008/save_picture_855394.jpg" />
 </div>
 
 
@@ -440,7 +467,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855328.jpg" />
+  <img src="Z:/picture/008/save_picture_855328.jpg" />
 </div>
 
 
@@ -466,7 +493,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855321.jpg" />
+  <img src="Z:/picture/008/save_picture_855321.jpg" />
 </div>
 
 
@@ -492,7 +519,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855317.jpg" />
+  <img src="Z:/picture/008/save_picture_855317.jpg" />
 </div>
 
 
@@ -518,7 +545,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855111.jpg" />
+  <img src="Z:/picture/008/save_picture_855111.jpg" />
 </div>
 
 
@@ -544,7 +571,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853785.jpg" />
+  <img src="Z:/picture/008/save_picture_853785.jpg" />
 </div>
 
 
@@ -570,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853756.jpg" />
+  <img src="Z:/picture/008/save_picture_853756.jpg" />
 </div>
 
 
@@ -597,7 +624,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853738.jpg" />
+  <img src="Z:/picture/008/save_picture_853738.jpg" />
 </div>
 
 
@@ -623,7 +650,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853734.jpg" />
+  <img src="Z:/picture/008/save_picture_853734.jpg" />
 </div>
 
 
@@ -650,7 +677,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853733.jpg" />
+  <img src="Z:/picture/008/save_picture_853733.jpg" />
 </div>
 
 
@@ -661,33 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3597F261EDEC41D3BFB6A0CABDB44B1EFB4D5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110260   (853732) от 02.03.2017
-
-Александр Вьяр | Повар королевский или Новая поварня [в трёх частях] (1816) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая поваренная книга приспешная и кондитерская для всех состояний, с показанием сервирования стола от 20-ти до 60-ти и больше блюд и наставлением для приготовления разных снедей.
-Сочинённая на французском языке и переведённая с последнего издания.Жанр: Кулинария, РаритетФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A29D2AFDD57DED115C152D6AF1B6CC6C7A8D2D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

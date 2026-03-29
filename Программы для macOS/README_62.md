@@ -1,3 +1,140 @@
+###  Публикация: 1128893   (726361) от 26.04.2017
+
+Lyn 1.8.9 [Multi/Ru]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - просмотрщик и браузер изображений
+Легкий, быстрй и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров.
+
+Lyn поддерживает все популярные графические форматы такие как JPEG, TIFF, JPEG 2000, PNG, TGA, RAW, HDR, OpenEXR, PPM, анимированный GIF и любой другой формат изображения, поддерживаемый Mac (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 апреля 2017Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.7.4 +Язык интерфейса: Русский, Английский, Итальянский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F7C737E0043E68D40314FEED21904C77685FDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128921   (726346) от 26.04.2017
+
+DoYourData Super Eraser for Mac 5.0 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726346.jpg" />
+</div>
+
+
+###  Подробнее
+
+DoYourData Super Eraser предлагает безопасное решение по удалению информации для пользователей Mac, помогая навсегда уничтожить данные без возможности восстановления.
+Приложение навсегда удалит выбранные файлы/папки, полностью отформатирует жесткий диск (если требуется) или медиа носитель. Программа также навсегда сотрет информацию об удаленных/утерянных данных и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.04.2017Разработчик: Do Your DataПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A6EFD58A4B886DDE3000E5A2C38FE9F1965AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023141   (726232) от 04.06.2016
+
+PhotoDesk for Instagram 4.0.0 [Multi]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Instagram - простой и элегантный способ поделиться своими фотографиями с друзьями.
+Приложение PhotoDesc привносит часть функциональности Instagram прямо на ваш Mac и практически все, что вы можете делать в Instagram на своем iPhone, вы можете делать в PhotoDesc на своем Mac.
+
+PhotoDesk позволяет вам просматривать, получать новости и уведомления, сохранять изображения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 мая 2016Разработчик: Benedikt TerhechteПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF79876425666FCB66BB41E107A2C7C6051FB84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530912   (726010) от 13.02.2022
+
+ZBrush 2022.0.5 [En]
+
+>>Программы для macOS
+>>CAD, 3D, ПО для специалистов для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_726010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pixologic ZBrush - программа для трёхмерного моделирования, созданная компанией Pixologic. Созданный с уникальным неповторимым интерфейсом, ZBrush предлагает наиболее продвинутые технологии для художников. ZBrush создает множество возможностей творить и вдохновляет творческий процесс. Возможность создавать с помощью скульптинга модели с миллионами полигонов в ZBrush (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.02.2022Разработчик: © 2022 Pixologic Inc.Поддерживаемая ОС: macOS X 10.11 or newerЯзык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55FC5A7A4E0A9120A9996632E1DC7F18228FE0CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399846   (725236) от 02.08.2020
+
+Clockey 2.0.2d [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_725236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clockey 2 - менеджер часов в мировом формате, который позволяет вам добавлять время из любого часового пояса в строку меню. Он имеет чистый и элегантный дизайн, который позволяет легко управлять вашими часами.Тип издания: macOS SoftwareРелиз состоялся: 10.05.2020Разработчик: NICE APPS.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373CB9697299C373F2CCB69101A71A3773F7DA8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399859   (725228) от 02.08.2020
 
 Nice Timer 3 3.2.0d [En]
@@ -6,7 +143,7 @@ Nice Timer 3 3.2.0d [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_725228.jpg" />
+  <img src="Z:/picture/008/save_picture_725228.jpg" />
 </div>
 
 
@@ -32,7 +169,7 @@ QuickPhotos for Google 1.1.7 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724837.jpg" />
+  <img src="Z:/picture/008/save_picture_724837.jpg" />
 </div>
 
 
@@ -59,7 +196,7 @@ SILKYPIX Developer Studio Pro 11 11.0.3.0 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724691.jpg" />
+  <img src="Z:/picture/008/save_picture_724691.jpg" />
 </div>
 
 
@@ -85,7 +222,7 @@ Dictionaries 1.3 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724614.jpg" />
+  <img src="Z:/picture/008/save_picture_724614.jpg" />
 </div>
 
 
@@ -111,7 +248,7 @@ WebSitePainter 3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724516.jpg" />
+  <img src="Z:/picture/008/save_picture_724516.jpg" />
 </div>
 
 
@@ -140,7 +277,7 @@ MainMenu Pro 3.5.2 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724275.jpg" />
+  <img src="Z:/picture/008/save_picture_724275.jpg" />
 </div>
 
 
@@ -166,7 +303,7 @@ Super MP3 Converter 6.2.25 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724232.jpg" />
+  <img src="Z:/picture/008/save_picture_724232.jpg" />
 </div>
 
 
@@ -194,7 +331,7 @@ Xilisoft Audio Converter Pro 6.5.3 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724195.jpg" />
+  <img src="Z:/picture/008/save_picture_724195.jpg" />
 </div>
 
 
@@ -220,7 +357,7 @@ Jaksta Media Recorder 2.0.0 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724086.jpg" />
+  <img src="Z:/picture/008/save_picture_724086.jpg" />
 </div>
 
 
@@ -247,7 +384,7 @@ Framer Studio v89 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724082.jpg" />
+  <img src="Z:/picture/008/save_picture_724082.jpg" />
 </div>
 
 
@@ -274,7 +411,7 @@ Affinity Publisher 1.8.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723062.jpg" />
+  <img src="Z:/picture/008/save_picture_723062.jpg" />
 </div>
 
 
@@ -301,7 +438,7 @@ Affinity Photo 1.8.4 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722949.jpg" />
+  <img src="Z:/picture/008/save_picture_722949.jpg" />
 </div>
 
 
@@ -327,7 +464,7 @@ Final Draft 11 v11.1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722864.jpg" />
+  <img src="Z:/picture/008/save_picture_722864.jpg" />
 </div>
 
 
@@ -355,7 +492,7 @@ Pixologic ZBrush 2018 [Multi]
 >>CAD, 3D, ПО для специалистов для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722840.jpg" />
+  <img src="Z:/picture/008/save_picture_722840.jpg" />
 </div>
 
 
@@ -381,7 +518,7 @@ Phawuo 3.0.1 [En]
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722791.jpg" />
+  <img src="Z:/picture/008/save_picture_722791.jpg" />
 </div>
 
 
@@ -407,7 +544,7 @@ VLC media player for Mac 3.0.11.1 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722544.jpg" />
+  <img src="Z:/picture/008/save_picture_722544.jpg" />
 </div>
 
 
@@ -433,7 +570,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722395.jpg" />
+  <img src="Z:/picture/008/save_picture_722395.jpg" />
 </div>
 
 
@@ -461,7 +598,7 @@ Day One 2 Journal + Notes 2.1.8 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722160.jpg" />
+  <img src="Z:/picture/008/save_picture_722160.jpg" />
 </div>
 
 
@@ -488,7 +625,7 @@ MoneyWiz 2.3.3 [Multi/Ru]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722034.jpg" />
+  <img src="Z:/picture/008/save_picture_722034.jpg" />
 </div>
 
 
@@ -515,7 +652,7 @@ Alarmey 2 v2.0.3d [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721421.jpg" />
+  <img src="Z:/picture/008/save_picture_721421.jpg" />
 </div>
 
 
@@ -544,7 +681,7 @@ Todoey 2: menu bar checklists v2.0.6d [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721413.jpg" />
+  <img src="Z:/picture/008/save_picture_721413.jpg" />
 </div>
 
 
@@ -555,144 +692,6 @@ Todoey 2: menu bar checklists v2.0.6d [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:209D16ED6BC34BACF135DE6B0177F5E6E860E7FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400387   (721295) от 04.08.2020
-
-Alfred 4 Powerpack 4.1.1 (build1170) [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721295.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаунчер приложений для macOS. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
-
-Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш Alt+Space (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.08.2020Разработчик: Running with Crayons LtdПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE8DADE0CB2A2A0649FFB592BFA184B3DFC8AD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400312   (721289) от 04.08.2020
-
-Kingpin Private Browser 1.3.22 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721289.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kingpin browser — полнофункциональный браузер в режиме инкогнито и adblock всегда включаемым. Он не запоминает историю, пароли или cookies.
-Браузер использует поисковик Yandex в качестве дефолта (может быть изменен на Google или DuckDuckGo в параметрах настройки). Браузер может использоваться для просмотра информации деликатного характера, покупок онлайн и банковского (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.08.2020Разработчик: Kingpin Private BrowserПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EAD92B6D535B9BEE8B3176E14B2D9C7B7C6A29E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285515   (721071) от 26.02.2019
-
-SkyLab Studio 2.5 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721071.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вдохновленный своей собственной любовью к красивому небу».
-SkyLab Studio - изменит ваше представление о небе на фотографии.
-Представьте себе ошеломляющее небо на ваших фотографиях с этим инновационным новым приложением.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: февраль 2019Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CBAF8D59FE40472B162F4E78D273082FD94CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218610   (721040) от 10.04.2018
-
-Motion 5.4.1 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анимация для Final Cut. Создавайте великолепные титры, переходы, эффекты и многое другое в приложении Motion.  Cмарт-шаблоны Motion позволяют мгновенно настраивать графические элементы в процессе видеомонтажа.  Простые в использовании инструменты анимации для создания зрелищных переходов, эффектов и титров. Motion — отличное дополнение к Final Cut Pro.
-
-Главное преимущество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Apple Inc.Поддерживаемая ОС: macOS 10.13.2+Язык интерфейса: Английский, Французский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDF2D0B47690183BCF098590223FDB8332D8AD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285339   (720957) от 26.02.2019
-
-Clearview 2.2.0 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clearview - приложение для удобного чтения электронных книг на вашем Mac, которое работает с такими форматами, как PDF, EPUB, CHM, и MOBI. В процессе чтения вы можете добавлять аннотации, ставить закладки и использовать поиск по тексту. Чтобы добавить книги в вашу библиотеку - просто перетащите содержащую их папку в окно программы и вся информация будет быстро импортирована (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.02.2019Разработчик: Canoe SoftwareПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AA8DE5E1F32E1A6C21C73E364670D398F68F44
 ```
 
 https://mybot314.ru/tekegram_catalog/

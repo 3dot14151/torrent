@@ -6,7 +6,7 @@
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795545.jpg" />
+  <img src="Z:/picture/008/save_picture_795545.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ VA - Sex Lounge: Music for Making Love - Les Musiques de l'Amour (2002) [AAC|~32
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795542.jpg" />
+  <img src="Z:/picture/008/save_picture_795542.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795538.jpg" />
+  <img src="Z:/picture/008/save_picture_795538.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795530.jpg" />
+  <img src="Z:/picture/008/save_picture_795530.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795499.jpg" />
+  <img src="Z:/picture/008/save_picture_795499.jpg" />
 </div>
 
 
@@ -142,7 +142,7 @@ VA - Sex and the Lounge (Sensual Smooth Lounge Music for Massage or Love Making)
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795491.jpg" />
+  <img src="Z:/picture/008/save_picture_795491.jpg" />
 </div>
 
 
@@ -171,7 +171,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795386.jpg" />
+  <img src="Z:/picture/008/save_picture_795386.jpg" />
 </div>
 
 
@@ -197,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795378.jpg" />
+  <img src="Z:/picture/008/save_picture_795378.jpg" />
 </div>
 
 
@@ -223,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795242.jpg" />
+  <img src="Z:/picture/008/save_picture_795242.jpg" />
 </div>
 
 
@@ -249,7 +249,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795217.jpg" />
+  <img src="Z:/picture/008/save_picture_795217.jpg" />
 </div>
 
 
@@ -275,7 +275,7 @@ VA - Deep House Relief, Vol. 2: Best of Chill & Deep Atmospheric House Music (20
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795016.jpg" />
+  <img src="Z:/picture/008/save_picture_795016.jpg" />
 </div>
 
 
@@ -304,7 +304,7 @@ VA - Deep House Relief, Vol. 3: Best of Chill & Deep Atmospheric House Music (20
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795015.jpg" />
+  <img src="Z:/picture/008/save_picture_795015.jpg" />
 </div>
 
 
@@ -333,7 +333,7 @@ VA - Quiet Day: Chillout Your Mind (2021) [AAC|~327 Kbps] <Lounge, Chill Out, Do
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795014.jpg" />
+  <img src="Z:/picture/008/save_picture_795014.jpg" />
 </div>
 
 
@@ -362,7 +362,7 @@ VA - Deep House Relief, Vol. 4: Best of Chill & Deep Atmospheric House Music (20
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795011.jpg" />
+  <img src="Z:/picture/008/save_picture_795011.jpg" />
 </div>
 
 
@@ -391,7 +391,7 @@ VA - Deep House Relief, Vol. 1: Best of Chill & Deep Atmospheric House Music (20
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795007.jpg" />
+  <img src="Z:/picture/008/save_picture_795007.jpg" />
 </div>
 
 
@@ -420,7 +420,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794952.jpg" />
+  <img src="Z:/picture/008/save_picture_794952.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794816.jpg" />
+  <img src="Z:/picture/008/save_picture_794816.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794810.jpg" />
+  <img src="Z:/picture/008/save_picture_794810.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794626.jpg" />
+  <img src="Z:/picture/008/save_picture_794626.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794369.jpg" />
+  <img src="Z:/picture/008/save_picture_794369.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественное видео для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794363.jpg" />
+  <img src="Z:/picture/008/save_picture_794363.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794336.jpg" />
+  <img src="Z:/picture/008/save_picture_794336.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794104.jpg" />
+  <img src="Z:/picture/008/save_picture_794104.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ Kylie Minogue - DISCO: Guest List Edition (2021) [AAC|~334 Kbps] <Pop>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794079.jpg" />
+  <img src="Z:/picture/008/save_picture_794079.jpg" />
 </div>
 
 
@@ -660,7 +660,7 @@ Schiller - Epic (Deluxe) (2021) [AAC|~308 Kbps] <Chill Out, Downtempo, Ambient>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794038.jpg" />
+  <img src="Z:/picture/008/save_picture_794038.jpg" />
 </div>
 
 
@@ -689,7 +689,7 @@ Taylor Swift - Red (Taylor's Version) (2021) [AAC|~320 Kbps] <Pop, Country>
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793982.jpg" />
+  <img src="Z:/picture/008/save_picture_793982.jpg" />
 </div>
 
 

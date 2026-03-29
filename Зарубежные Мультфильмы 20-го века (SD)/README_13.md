@@ -1,3 +1,31 @@
+###  Публикация: 548785   (457263) от 22.09.2012
+
+Аладдин и король разбойников / Aladdin and the King of Thieves (1995) DVD5
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_457263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все жители Аграбы дружно готовятся к величайшему празднику — вот-вот состоится долгожданная свадьба Аладдина и принцессы Жасмин! Но сначала нашему герою придется остановить легендарную шайку сорока разбойников — ведь они хотят похитить свадебный подарок — всевидящего Оракула, с помощью которого злодеи хотят отыскать и прибрать к своим рукам все сокровища мира.
+
+Аладдину (   Читать дальше...   )Жанр: Детский, ПриключенияРежиссер: Тэд СтоунсПеревод: Авторский закадровый одноголосый (Живов)Субтитры: Английский, ГреческийПродолжительность: 01:18:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6469B3035FB74868350BA68D4D98D47A5494829A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 36903   (452921) от 12.08.2022
 
 Новые приключения Белоснежки / Happily Ever After (1989) DVDRip
@@ -6,7 +34,7 @@
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452921.jpg" />
+  <img src="Z:/picture/008/save_picture_452921.jpg" />
 </div>
 
 
@@ -32,7 +60,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451567.jpg" />
+  <img src="Z:/picture/008/save_picture_451567.jpg" />
 </div>
 
 
@@ -58,7 +86,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451415.jpg" />
+  <img src="Z:/picture/008/save_picture_451415.jpg" />
 </div>
 
 
@@ -84,7 +112,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450847.jpg" />
+  <img src="Z:/picture/008/save_picture_450847.jpg" />
 </div>
 
 
@@ -112,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450037.jpg" />
+  <img src="Z:/picture/008/save_picture_450037.jpg" />
 </div>
 
 
@@ -138,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448604.jpg" />
+  <img src="Z:/picture/008/save_picture_448604.jpg" />
 </div>
 
 
@@ -166,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448581.jpg" />
+  <img src="Z:/picture/008/save_picture_448581.jpg" />
 </div>
 
 
@@ -194,7 +222,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447033.jpg" />
+  <img src="Z:/picture/008/save_picture_447033.jpg" />
 </div>
 
 
@@ -220,7 +248,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446547.jpg" />
+  <img src="Z:/picture/008/save_picture_446547.jpg" />
 </div>
 
 
@@ -246,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446521.jpg" />
+  <img src="Z:/picture/008/save_picture_446521.jpg" />
 </div>
 
 
@@ -274,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443449.jpg" />
+  <img src="Z:/picture/008/save_picture_443449.jpg" />
 </div>
 
 
@@ -300,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442115.jpg" />
+  <img src="Z:/picture/008/save_picture_442115.jpg" />
 </div>
 
 
@@ -326,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434576.jpg" />
+  <img src="Z:/picture/008/save_picture_434576.jpg" />
 </div>
 
 
@@ -352,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432884.jpg" />
+  <img src="Z:/picture/008/save_picture_432884.jpg" />
 </div>
 
 
@@ -378,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425539.jpg" />
+  <img src="Z:/picture/008/save_picture_425539.jpg" />
 </div>
 
 
@@ -404,7 +432,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416157.jpg" />
+  <img src="Z:/picture/008/save_picture_416157.jpg" />
 </div>
 
 
@@ -430,7 +458,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409852.jpg" />
+  <img src="Z:/picture/008/save_picture_409852.jpg" />
 </div>
 
 
@@ -456,7 +484,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407661.jpg" />
+  <img src="Z:/picture/008/save_picture_407661.jpg" />
 </div>
 
 
@@ -483,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407005.jpg" />
+  <img src="Z:/picture/008/save_picture_407005.jpg" />
 </div>
 
 
@@ -510,7 +538,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406999.jpg" />
+  <img src="Z:/picture/008/save_picture_406999.jpg" />
 </div>
 
 
@@ -536,7 +564,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406918.jpg" />
+  <img src="Z:/picture/008/save_picture_406918.jpg" />
 </div>
 
 
@@ -564,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_406530.jpg" />
+  <img src="Z:/picture/008/save_picture_406530.jpg" />
 </div>
 
 
@@ -590,7 +618,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_400444.jpg" />
+  <img src="Z:/picture/008/save_picture_400444.jpg" />
 </div>
 
 
@@ -617,7 +645,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398923.jpg" />
+  <img src="Z:/picture/008/save_picture_398923.jpg" />
 </div>
 
 
@@ -643,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398920.jpg" />
+  <img src="Z:/picture/008/save_picture_398920.jpg" />
 </div>
 
 
@@ -654,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52425BDB033E86AE2DEC5A4EED5B4E6BA8B99AE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569981   (389663) от 05.11.2012
-
-Земля до начала времен / The Land Before Time (1988-2007) DVDRip (13 фильмов)
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_389663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда нога человека еще не ступала на Землю. То было время извергающихся вулканов, громадных землетрясений и ужасных катаклизмов. Наша планета тогда была населена удивительными и странными существами.
-Герой этого мультика, очаровательный бронтозаврик Крошки-Ножки, отправился на поиски легендарной Великой Долины, где по слухам можно неплохо подкрепиться. (   Читать дальше...   )Жанр: мультфильм, приключения, семейныйПеревод: Дублированный / Многоголосый закадровый, профессиональный (Первый фильм)Субтитры: нетФормат: AVIПродолжительность: ~15:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0803792F3E41BC12E64E3307520FD4BEFF9FC0B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

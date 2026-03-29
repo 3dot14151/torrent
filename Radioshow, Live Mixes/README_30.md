@@ -1,3 +1,61 @@
+###  Публикация: 1761659   (36572) от 21.11.2024
+
+HI-LO & Space 92 - Mixmag Crane Sessions, Amsterdam Dance Event, Netherlands (2023-10-19) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HI-LO & Space 92 vs. The Prodigy - Genesis vs. Smack My Bitch Up (HI-LO Mashup)
+02. NG Rezonance & Jason Nawty - Madame (Space 92 Edit) w/Daft Punk - Technologic (Space 92 Edit)
+03. Creeds vs. Peggy Gou vs. HI-LO & Space 92 - Push Up vs. (It Goes Like) Nanana vs. Mercury (Oliver Heldens Mashup)
+04. HI-LO & Space 92 - ORION(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB4F1D322E1873C554B3878C26456A090AB71A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761677   (36568) от 21.11.2024
+
+Space 92 - Live @ Drumcode, Awakenings, Gashouder, ADE, Netherlands (2024-10-17) [MP3|320 Kbps] <Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space 92 - Robot
+02. Jose Bonetto - Within
+03. Layton Giordani - New Generation (Space 92 Remix)
+04. TimiR & Franco Smith - Nasty(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3725B69BD73F9CE694520DE58859CF5D00FBB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761639   (36552) от 21.11.2024
 
 Frank Walker - Live @ Mainstage, Veld Music Festival, Canada (2024-08-03) [MP3|320 Kbps] <Dance, Electro Pop, Mashup>
@@ -6,7 +64,7 @@ Frank Walker - Live @ Mainstage, Veld Music Festival, Canada (2024-08-03) [MP3|3
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36552.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36552.jpg" />
 </div>
 
 
@@ -34,7 +92,7 @@ RetroVision - More Bass More Good, ADE, Netherlands (2024-10-18) [MP3|320 Kbps] 
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36469.jpg" />
 </div>
 
 
@@ -63,7 +121,7 @@ VA - Armin van Buuren - A State Of Trance 1200 (Vinyl Special) (2024) [MP3|320 K
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36453.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36453.jpg" />
 </div>
 
 
@@ -92,7 +150,7 @@ VA - Tomorrowland Brasil (2024) [MP3|320 Kbps] <Techno, Melodic House, Trance>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36086.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36086.jpg" />
 </div>
 
 
@@ -121,7 +179,7 @@ CERERA - CERERA pres Echo Of The Universe #022 Live @Zig Zag 25 Years 14 02 (202
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36084.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36084.jpg" />
 </div>
 
 
@@ -150,7 +208,7 @@ Korolova - Live @ Bali, Indonesia (2024-11-22) [MP3|320 Kbps] <Progressive House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_36031.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_36031.jpg" />
 </div>
 
 
@@ -179,7 +237,7 @@ VA - Amsterdam Music Festival, Johan Cruijff ArenA, Netherlands (2024-10-19) [MP
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35319.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35319.jpg" />
 </div>
 
 
@@ -205,7 +263,7 @@ David Guetta - Live @ Château de Chambord, France (2024-06-29) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35204.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35204.jpg" />
 </div>
 
 
@@ -234,7 +292,7 @@ GOODBOYS - GOODBOYS Pres. LINKED (001-006) (2023-2024) [MP3|320 Kbps] <Progressi
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_35128.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_35128.jpg" />
 </div>
 
 
@@ -263,7 +321,7 @@ VA - Armin van Buuren - A State Of Trance 1207 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31371.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31371.jpg" />
 </div>
 
 
@@ -292,7 +350,7 @@ Markus Schulz - Global DJ Broadcast World Tour (DPRTMNT Toronto, Canada) (2025-0
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_31048.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_31048.jpg" />
 </div>
 
 
@@ -321,7 +379,7 @@ VA - Armin van Buuren - A State Of Trance 1209 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_29903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_29903.jpg" />
 </div>
 
 
@@ -350,7 +408,7 @@ Tiesto - Live @ Quasar Stage, Coachella Festival Weekend 1, United States (2025-
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21237.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21237.jpg" />
 </div>
 
 
@@ -379,7 +437,7 @@ Vintage Culture - Live @ DNA Art Car, Arena Open Camboriu, Brazil (2025-03-02) [
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21211.jpg" />
 </div>
 
 
@@ -408,7 +466,7 @@ DJ Suhov - Fantazia Mix (2004) Promo CD [MP3|image+*.CUE|320 Kbps] <House>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21203.jpg" />
 </div>
 
 
@@ -437,7 +495,7 @@ VA - Armin van Buuren - A State Of Trance 1221 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_21013.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_21013.jpg" />
 </div>
 
 
@@ -466,7 +524,7 @@ VA - Tomorrowland Winter (2025) [MP3|320 Kbps] <Trance, Tech House, Techno>
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_20903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_20903.jpg" />
 </div>
 
 
@@ -495,7 +553,7 @@ VA - So you... (Mixed and compiled by Kaatée) (2022) [MP3|320 Kbps] <Deep House
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19654.jpg" />
 </div>
 
 
@@ -524,7 +582,7 @@ VA - Armin van Buuren - A State Of Trance 1223 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_19560.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_19560.jpg" />
 </div>
 
 
@@ -553,7 +611,7 @@ VA - Ori Uplift - Uplifting Only Episode 652 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16443.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16443.jpg" />
 </div>
 
 
@@ -582,7 +640,7 @@ VA - Armin van Buuren - A State Of Trance 1237 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_16442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_16442.jpg" />
 </div>
 
 
@@ -611,7 +669,7 @@ VA - Armin van Buuren - A State Of Trance 1228 (2025) [MP3|320 Kbps] <Trance, Pr
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15472.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15472.jpg" />
 </div>
 
 
@@ -640,7 +698,7 @@ VA - Ori Uplift - Uplifting Only Episode 643 (2025) [MP3|320 Kbps] <Trance, Upli
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_15442.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_15442.jpg" />
 </div>
 
 
@@ -669,7 +727,7 @@ ARTY - Live @ Audio (San Francisco, United States) (2025-05-24) [MP3|320 Kbps] <
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14720.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14720.jpg" />
 </div>
 
 
@@ -683,64 +741,6 @@ ARTY - Live @ Audio (San Francisco, United States) (2025-05-24) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9217FCD63EF317AFC6578EB2858E6B8365E9024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804058   (13266) от 27.06.2025
-
-VA - Ori Uplift - Uplifting Only Episode 646 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rowan van Beckhoven – Conjunction (Intro Mix)
-02. Dmitriy Kuznetsov – Elven Wind (Fan Favorite (644))
-03. REX.W – Mongke Tengri (Pre-Release Pick)
-04. Calvin O’Commor – Goodbye To The Future(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C66A0B97BD0D77D008863FFCA9428C90CE17C76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804056   (13251) от 27.06.2025
-
-VA - Armin van Buuren - A State Of Trance 1231 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. JAI RYU – Let It Be For Love (Tune Of The Week)
-02. Armin van Buuren & Natalie Gioia – Freedom’s Call
-03. Lycii – The Fall
-04. Beatsole – Rain (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDAB000BD69A1C1D8AD5F4B291A2FB8B643FCC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

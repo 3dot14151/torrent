@@ -1,3 +1,90 @@
+###  Публикация: 1209002   (779619) от 24.02.2018
+
+Алиса Вокс - Новая Алиса Вокс (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_779619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Новая
+02. Нить
+03. Фейерверк
+04. Не хочу(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0BE65AAB1ADED865A9D5F8D8D6DCD488C1F0021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210184   (778959) от 01.03.2018
+
+Александр Малинин - Любовь жива (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778959.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Любовь жива
+2. Шоу
+3. Слова
+4. Счастье моё(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0397463EDBC5273944E586FD8AF9CE00F8AE96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210587   (778678) от 03.03.2018
+
+Балаган Лимитед - Счастливые (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Провинция (3:10)
+02. Счастливая (3:25)
+03. Полюби (3:46)
+04. Мама (feat. Стас Сорока) (3:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD1F9FB6FAC80880BA8CA5397A7D791452618DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210823   (778505) от 04.03.2018
 
 Алёна Апина - Давай так (2018) [MP3|320 Kbps] <Pop>
@@ -6,7 +93,7 @@
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778505.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778505.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Grivina - Я хочу (2018) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_778105.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Plazma - Newer Again (2004) [MP3|320 Kbps] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777821.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777821.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777779.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777779.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777631.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_777631.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776468.jpg" />
+  <img src="Z:/picture/008/save_picture_776468.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ VA - Первый дачный, Vol.2 (2016) [MP3|320 кб/с] <Pop>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771064.jpg" />
+  <img src="Z:/picture/008/save_picture_771064.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770230.jpg" />
+  <img src="Z:/picture/008/save_picture_770230.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770157.jpg" />
+  <img src="Z:/picture/008/save_picture_770157.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768641.jpg" />
+  <img src="Z:/picture/008/save_picture_768641.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ ESTRADARADA - Дискотека Века (2017) [MP3|320 Kbps] <Pop, Dance>
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765184.jpg" />
+  <img src="Z:/picture/008/save_picture_765184.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764232.jpg" />
+  <img src="Z:/picture/008/save_picture_764232.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763650.jpg" />
+  <img src="Z:/picture/008/save_picture_763650.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763638.jpg" />
+  <img src="Z:/picture/008/save_picture_763638.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763423.jpg" />
+  <img src="Z:/picture/008/save_picture_763423.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763065.jpg" />
+  <img src="Z:/picture/008/save_picture_763065.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_762983.jpg" />
+  <img src="Z:/picture/008/save_picture_762983.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761496.jpg" />
+  <img src="Z:/picture/008/save_picture_761496.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757806.jpg" />
+  <img src="Z:/picture/008/save_picture_757806.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756831.jpg" />
+  <img src="Z:/picture/008/save_picture_756831.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749816.jpg" />
+  <img src="Z:/picture/008/save_picture_749816.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749204.jpg" />
+  <img src="Z:/picture/008/save_picture_749204.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ US Global DJ's - Back In The USSR (2008) Compilation [MP3|320 Kbps] <Pop, Electr
 >>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747847.jpg" />
+  <img src="Z:/picture/008/save_picture_747847.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ US Global DJ's - Back In The USSR (2008) Compilation [MP3|320 Kbps] <Pop, Electr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48CDE78FEE44D28B3D7BD597DC3036BCB3A1F742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216753   (747708) от 01.04.2018
-
-Сергей Лазарев (Sergey Lazarev) - The One (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Put Out The Fire
-02. Eat You Up
-03. Going Under
-04. Deep Blue(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB20EE5B4964EE74944C03CB0D70CA820960350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282687   (743611) от 13.02.2019
-
-Вельвет - Тонкая красная линия (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743611.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Сердце моё
-3. Тонкая красная линия
-4. Не молчи(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A11F6C02412725BAFB8E5860D22FEC61576FC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397532   (739829) от 21.07.2020
-
-Балаган Лимитед - Ремиксы (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739829.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вася-Василёк (Remix)
-2. Чтоб тебя
-3. Ой там на гори
-4. Атия-атия(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBCEE11CE94088DE37AC878ACDC42FBAC263A11
 ```
 
 https://mybot314.ru/tekegram_catalog/

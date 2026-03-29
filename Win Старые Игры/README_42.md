@@ -1,3 +1,55 @@
+###  Публикация: 1801817   (14783) от 13.06.2025
+
+I Was an Atomic Mutant! / Убойные будни (2003) [Ru] (1.0) License Акелла
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14783.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой игре, вдохновлённой фильмами о монстрах 50-х годов, вы сможете примерить на себя роль атомного мутанта, который будет уничтожать людей и их города. I was an Atomic Mutant! - это захватывающий 3D-экшн, в котором вы становитесь гигантским монстром, способным разрушать города и сражаться с крошечными военными силами, посланными, чтобы остановить вас.Тип издания: LicenseРазработчик: Canopy GamesЖанр: Arcade, 3DЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2DBEA1736BD3AA631CF6CB010642AEE04BE44D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072683   (14676) от 14.06.2025
+
+Creatures: Village (2004) [En] (1.11) License GOG
+
+>>Win Старые Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14676.jpg" />
+</div>
+
+
+###  Подробнее
+
+Норны - сообразительные фантастические существа. Вам предстоит заботится о них, играть с ними и исследовать гигантский мир Деревни Норнов, где вас ожидает знакомство с местной фауной и противостояние с подлыми эттинами и заразными гренделями. Приключения начинаются!Тип издания: LicenseРазработчик: Gameware DevelopmentЖанр: Logic, Virtual petsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5FF802CE6ACB8FC9B5D7A2B7A32DEDA10D8562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802188   (14532) от 15.06.2025
 
 Warhammer 40,000: Rites of War (1999) [En] (1.1) License GOG
@@ -6,7 +58,7 @@ Warhammer 40,000: Rites of War (1999) [En] (1.1) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14532.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14532.jpg" />
 </div>
 
 
@@ -32,7 +84,7 @@ Warhammer 40.000: Dawn of War (2004) [Ru] (1.51/dlc) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_14347.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_14347.jpg" />
 </div>
 
 
@@ -58,7 +110,7 @@ Voyage: Journey to the Moon (2005) [Multi] (1.04) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13874.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13874.jpg" />
 </div>
 
 
@@ -84,7 +136,7 @@ BioShock Dilogy (2007-2010) [Ru] (1.1/1.5.0.019/dlc) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13637.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13637.jpg" />
 </div>
 
 
@@ -110,7 +162,7 @@ Warhammer 40.000: Dawn of War – Dark Crusade (2006) [Ru] (1.20) Repack EXROW
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13614.jpg" />
 </div>
 
 
@@ -136,7 +188,7 @@ VVVVVV (2010) [Ru/Multi] (2.4.3) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13528.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13528.jpg" />
 </div>
 
 
@@ -162,7 +214,7 @@ Star Wars: Rebellion (1998) [Multi] (1.0) License GOG
 >>Strategy (RTS/TBS/Grand)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13520.jpg" />
 </div>
 
 
@@ -188,7 +240,7 @@ Warhammer: Shadow of the Horned Rat (1995) [En] (1.0) License GOG
 >>Strategy Tactical (RTS/TBS/Wargame)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13410.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13410.jpg" />
 </div>
 
 
@@ -214,7 +266,7 @@ Painkiller (2004) [Ru] (1.64/dlc) Repack EXROW [Black Edition]
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13221.jpg" />
 </div>
 
 
@@ -240,7 +292,7 @@ Far Cry (2004) [Ru] (1.40) Repack EXROW
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13219.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13219.jpg" />
 </div>
 
 
@@ -266,7 +318,7 @@ Manhunt (2004) [Ru] (1.1) Repack EXROW
 >>Action (TPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13203.jpg" />
 </div>
 
 
@@ -292,7 +344,7 @@ Warhammer 40,000: Fire Warrior (2003) [Multi] (1.50) License GOG
 >>Action (FPS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13187.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13187.jpg" />
 </div>
 
 
@@ -318,7 +370,7 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_13155.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_13155.jpg" />
 </div>
 
 
@@ -344,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11766.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11766.jpg" />
 </div>
 
 
@@ -370,7 +422,7 @@ Star Trucker (2024) [Ru/Multi] (1.0.67.0/dlc) Repack Let'sРlay [Deluxe Bundle]
 >>Simulation (Flight/Space)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_11011.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_11011.jpg" />
 </div>
 
 
@@ -396,7 +448,7 @@ X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_10503.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_10503.jpg" />
 </div>
 
 
@@ -422,7 +474,7 @@ Mortal Kombat 4 (1997) [En] (2.1) License GOG
 >>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9794.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9794.jpg" />
 </div>
 
 
@@ -448,7 +500,7 @@ Myst (1999) [Multi] (2.0.5) License GOG [Masterpiece Edition]
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9614.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9614.jpg" />
 </div>
 
 
@@ -474,7 +526,7 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9606.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9606.jpg" />
 </div>
 
 
@@ -500,7 +552,7 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9581.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9581.jpg" />
 </div>
 
 
@@ -526,7 +578,7 @@ OpenSCP (2025) [Ru/En] (01.05) Repack/Mod AndyFox
 >>AddOn/DLC/Mod для Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_9368.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_9368.jpg" />
 </div>
 
 
@@ -552,7 +604,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8693.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8693.jpg" />
 </div>
 
 
@@ -578,7 +630,7 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8460.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8460.jpg" />
 </div>
 
 
@@ -604,7 +656,7 @@ Emergency: Fighters for Life (1998) [En] (1.0) License
 >>Strategy (Manage/Busin)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_8133.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_8133.jpg" />
 </div>
 
 
@@ -615,58 +667,6 @@ Emergency-игра, представляющая собой RTS, где вы б�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:572D4A68458F254768D5EA0C91D65CDC34EB5704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 414862   (7006) от 19.08.2025
-
-Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | Pilotus
-
->>Win Старые Игры
->>Strategy (Manage/Busin)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_7006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какой он, идеальный парк развлечений? Один скажет, что там не должно быть очередей, другой пожелает бесплатного мороженного, а для третьего главное - зелёные насаждения. Словом, сколько людей, столько мнений. И только с одним утверждением едва ли кто поспорит: парк аттракционов без американских горок - не парк аттракционов вовсе! Попробуйте свои силы в качестве дизайнера, (   Читать дальше...   )Тип издания: RePackРазработчик: Chris Sawyer ProductionsЖанр: Экономический симуляторЯзык озвучки: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D66AD1E9A390DF53097F9AA35C708A145B1E161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635814   (6218) от 24.08.2025
-
-The Blackwell Deception (2011) [En] (3.5) License GOG
-
->>Win Старые Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_6218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медиум начинает собственное расследование чреды загадочных убийств в Blackwell Deception. Игрок отправится в приключение вместе с героиней, чтобы разгадать мистическую загадку. В игре органично сочетается олдскульный стиль с косметическим апдейтом современной версии, атмосферу которым добавляет музыка и продуманные диалоги.Тип издания: LicenseРазработчик: Wadjet Eye GamesЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9879DF79EE44E130A257B2BE5010A64BDE2FAB7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

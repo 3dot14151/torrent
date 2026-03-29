@@ -6,7 +6,7 @@ GPU Caps Viewer 1.34.1.0 + Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800485.jpg" />
+  <img src="Z:/picture/008/save_picture_800485.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AIMP 4.13 Build 1890 Final RePack (& Portable) by D!akov (with DFX Audio Enhance
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800471.jpg" />
+  <img src="Z:/picture/008/save_picture_800471.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ KLS Backup 2015 Professional 8.4.4.3 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800464.jpg" />
+  <img src="Z:/picture/008/save_picture_800464.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ AIMP 4.13 Build 1890 Final RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800462.jpg" />
+  <img src="Z:/picture/008/save_picture_800462.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ EagleGet 2.0.4.21 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800461.jpg" />
+  <img src="Z:/picture/008/save_picture_800461.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ pdfFactory Pro 6.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800380.jpg" />
+  <img src="Z:/picture/008/save_picture_800380.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Ashampoo Burning Studio 18.0.3.6 DC 30.03.2017 RePack (& Portable) by KpoJIuK [M
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800373.jpg" />
+  <img src="Z:/picture/008/save_picture_800373.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800369.jpg" />
+  <img src="Z:/picture/008/save_picture_800369.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Privacy Eraser Free 4.32.5 Build 2481 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800365.jpg" />
+  <img src="Z:/picture/008/save_picture_800365.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Desktop Ponies 1.61 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800313.jpg" />
+  <img src="Z:/picture/008/save_picture_800313.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ FinePrint 9.11 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800308.jpg" />
+  <img src="Z:/picture/008/save_picture_800308.jpg" />
 </div>
 
 
@@ -294,7 +294,7 @@ Maxthon Browser 5.1.5.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800295.jpg" />
+  <img src="Z:/picture/008/save_picture_800295.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ VideoSolo Video Converter Ultimate 1.0.12 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800292.jpg" />
+  <img src="Z:/picture/008/save_picture_800292.jpg" />
 </div>
 
 
@@ -348,7 +348,7 @@ XnConvert 1.76 + portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800290.jpg" />
+  <img src="Z:/picture/008/save_picture_800290.jpg" />
 </div>
 
 
@@ -375,7 +375,7 @@ Glary Utilities Pro 5.142.0.168 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800270.jpg" />
+  <img src="Z:/picture/008/save_picture_800270.jpg" />
 </div>
 
 
@@ -401,7 +401,7 @@ Slimjet 17.0.6.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800227.jpg" />
+  <img src="Z:/picture/008/save_picture_800227.jpg" />
 </div>
 
 
@@ -427,7 +427,7 @@ Cent Browser 3.1.5.52 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800222.jpg" />
+  <img src="Z:/picture/008/save_picture_800222.jpg" />
 </div>
 
 
@@ -453,7 +453,7 @@ Mozilla Thunderbird 68.8.1 Final [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800209.jpg" />
+  <img src="Z:/picture/008/save_picture_800209.jpg" />
 </div>
 
 
@@ -479,7 +479,7 @@ Chromium 83.0.4103.61 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800191.jpg" />
+  <img src="Z:/picture/008/save_picture_800191.jpg" />
 </div>
 
 
@@ -505,7 +505,7 @@ VidCoder 2.63 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800139.jpg" />
+  <img src="Z:/picture/008/save_picture_800139.jpg" />
 </div>
 
 
@@ -531,7 +531,7 @@ Cent Browser 3.1.5.52 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800136.jpg" />
+  <img src="Z:/picture/008/save_picture_800136.jpg" />
 </div>
 
 
@@ -557,7 +557,7 @@ Brave Browser 1.9.72 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800125.jpg" />
+  <img src="Z:/picture/008/save_picture_800125.jpg" />
 </div>
 
 
@@ -583,7 +583,7 @@ CudaText 1.101.0.0 Portable + addons [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800122.jpg" />
+  <img src="Z:/picture/008/save_picture_800122.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ PhotoLine 22.02 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800120.jpg" />
+  <img src="Z:/picture/008/save_picture_800120.jpg" />
 </div>
 
 
@@ -637,7 +637,7 @@ Martinic - AX73 1.0.2 VSTi (x86/x64) RePack by R2R [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800093.jpg" />
+  <img src="Z:/picture/008/save_picture_800093.jpg" />
 </div>
 
 
@@ -663,7 +663,7 @@ Autodesk AutoCAD Mechanical 2018 x86-x64 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800073.jpg" />
+  <img src="Z:/picture/008/save_picture_800073.jpg" />
 </div>
 
 

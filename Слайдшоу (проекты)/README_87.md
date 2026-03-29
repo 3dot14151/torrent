@@ -1,3 +1,30 @@
+###  Публикация: 961569   (298552) от 02.12.2015
+
+Проекты - Pond5 - Drops Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_298552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9708AB5AF98822384BBFE4E5FE2F4EB8F8C183E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184689   (298543) от 18.11.2017
 
 Проекты - Проект ProShow Producer - Cycle of Life [PSH]
@@ -6,7 +33,7 @@
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298543.jpg" />
+  <img src="Z:/picture/008/save_picture_298543.jpg" />
 </div>
 
 
@@ -34,7 +61,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298542.jpg" />
+  <img src="Z:/picture/008/save_picture_298542.jpg" />
 </div>
 
 
@@ -60,7 +87,7 @@ VideoHive - Winter Slideshow - 13336191 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298481.jpg" />
+  <img src="Z:/picture/008/save_picture_298481.jpg" />
 </div>
 
 
@@ -87,7 +114,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_298356.jpg" />
+  <img src="Z:/picture/008/save_picture_298356.jpg" />
 </div>
 
 
@@ -114,7 +141,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_297671.jpg" />
+  <img src="Z:/picture/008/save_picture_297671.jpg" />
 </div>
 
 
@@ -140,7 +167,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296876.jpg" />
+  <img src="Z:/picture/008/save_picture_296876.jpg" />
 </div>
 
 
@@ -167,7 +194,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296789.jpg" />
+  <img src="Z:/picture/008/save_picture_296789.jpg" />
 </div>
 
 
@@ -194,7 +221,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296752.jpg" />
+  <img src="Z:/picture/008/save_picture_296752.jpg" />
 </div>
 
 
@@ -220,7 +247,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296640.jpg" />
+  <img src="Z:/picture/008/save_picture_296640.jpg" />
 </div>
 
 
@@ -247,7 +274,7 @@ VideoHive - History Slide 2 - 21193470 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296570.jpg" />
+  <img src="Z:/picture/008/save_picture_296570.jpg" />
 </div>
 
 
@@ -273,7 +300,7 @@ VideoHive - Slideshow - 24890674 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296568.jpg" />
+  <img src="Z:/picture/008/save_picture_296568.jpg" />
 </div>
 
 
@@ -299,7 +326,7 @@ VideoHive - Vintage Photo Slideshow - 23438454 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296564.jpg" />
+  <img src="Z:/picture/008/save_picture_296564.jpg" />
 </div>
 
 
@@ -325,7 +352,7 @@ VideoHive - Old Photo Slideshow - 21970603 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_296481.jpg" />
+  <img src="Z:/picture/008/save_picture_296481.jpg" />
 </div>
 
 
@@ -351,7 +378,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295470.jpg" />
+  <img src="Z:/picture/008/save_picture_295470.jpg" />
 </div>
 
 
@@ -379,7 +406,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_295153.jpg" />
+  <img src="Z:/picture/008/save_picture_295153.jpg" />
 </div>
 
 
@@ -406,7 +433,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294834.jpg" />
+  <img src="Z:/picture/008/save_picture_294834.jpg" />
 </div>
 
 
@@ -433,7 +460,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_294496.jpg" />
+  <img src="Z:/picture/008/save_picture_294496.jpg" />
 </div>
 
 
@@ -460,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292786.jpg" />
+  <img src="Z:/picture/008/save_picture_292786.jpg" />
 </div>
 
 
@@ -486,7 +513,7 @@ VideoHive - Road To Victory - 24953172 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292680.jpg" />
+  <img src="Z:/picture/008/save_picture_292680.jpg" />
 </div>
 
 
@@ -512,7 +539,7 @@ VideoHive - Water Color Promo - 24780150 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292679.jpg" />
+  <img src="Z:/picture/008/save_picture_292679.jpg" />
 </div>
 
 
@@ -539,7 +566,7 @@ VideoHive - Golden Waves Luxury Slideshow - 23259551 [AEP]
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292677.jpg" />
+  <img src="Z:/picture/008/save_picture_292677.jpg" />
 </div>
 
 
@@ -566,7 +593,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292643.jpg" />
+  <img src="Z:/picture/008/save_picture_292643.jpg" />
 </div>
 
 
@@ -593,7 +620,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_292636.jpg" />
+  <img src="Z:/picture/008/save_picture_292636.jpg" />
 </div>
 
 
@@ -620,7 +647,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291601.jpg" />
+  <img src="Z:/picture/008/save_picture_291601.jpg" />
 </div>
 
 
@@ -646,7 +673,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Слайдшоу (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291569.jpg" />
+  <img src="Z:/picture/008/save_picture_291569.jpg" />
 </div>
 
 
@@ -657,34 +684,6 @@ Ink Photos Slideshow - качественное слайд-шоу с приме�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F828BF4D4030665218A769C7CE13B849D67AAC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185725   (291021) от 22.11.2017
-
-Проекты - Проект ProShow Producer - Underwater [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_291021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект от grandpaJanek. Подводный мир с его флорой и фауной.
-Проект может быть использован в авторском решении, либо набором стилей для самостоятельного творчества. Очень простой в редактировании, обычная замена файлов.
-Превью (авторский ролик) - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D62FCD9D0E4572553C62E70EE778A861FF512A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

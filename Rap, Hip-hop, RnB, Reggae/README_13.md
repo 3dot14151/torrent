@@ -6,7 +6,7 @@
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775034.jpg" />
+  <img src="Z:/picture/008/save_picture_775034.jpg" />
 </div>
 
 
@@ -35,7 +35,7 @@ SERPO & DJ MTR - На осколки (2017) EP [MP3|320 Kbps] <Hip-Hop, Reggae, 
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773441.jpg" />
+  <img src="Z:/picture/008/save_picture_773441.jpg" />
 </div>
 
 
@@ -64,7 +64,7 @@ Rag'n'Bone Man - Human (2017) [MP3|320 kbps] <R'n'B, Soul, Indie>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772904.jpg" />
+  <img src="Z:/picture/008/save_picture_772904.jpg" />
 </div>
 
 
@@ -93,7 +93,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772232.jpg" />
+  <img src="Z:/picture/008/save_picture_772232.jpg" />
 </div>
 
 
@@ -122,7 +122,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765875.jpg" />
+  <img src="Z:/picture/008/save_picture_765875.jpg" />
 </div>
 
 
@@ -151,7 +151,7 @@ Toni Braxton - Sex & Cigarettes (2018) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
 >>RnB, Reggae (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763927.jpg" />
+  <img src="Z:/picture/008/save_picture_763927.jpg" />
 </div>
 
 
@@ -180,7 +180,7 @@ MATRANG - DA (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763517.jpg" />
+  <img src="Z:/picture/008/save_picture_763517.jpg" />
 </div>
 
 
@@ -209,7 +209,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763169.jpg" />
+  <img src="Z:/picture/008/save_picture_763169.jpg" />
 </div>
 
 
@@ -238,7 +238,7 @@ Down Low - The 4th Level (2001) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763069.jpg" />
+  <img src="Z:/picture/008/save_picture_763069.jpg" />
 </div>
 
 
@@ -267,7 +267,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760184.jpg" />
+  <img src="Z:/picture/008/save_picture_760184.jpg" />
 </div>
 
 
@@ -296,7 +296,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760041.jpg" />
+  <img src="Z:/picture/008/save_picture_760041.jpg" />
 </div>
 
 
@@ -323,7 +323,7 @@ Toni Braxton - Sex & Cigarettes (2018) Target Exclusive Edition [MP3|320 Kbps] <
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759532.jpg" />
+  <img src="Z:/picture/008/save_picture_759532.jpg" />
 </div>
 
 
@@ -352,7 +352,7 @@ The Weeknd - Dawn FM (Explicit) (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <R'n'B, Po
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758250.jpg" />
+  <img src="Z:/picture/008/save_picture_758250.jpg" />
 </div>
 
 
@@ -381,7 +381,7 @@ Die Antwoord - Suck on This (2016) [MP3|320 кб/с] <Hip-Hop, Electronic>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757180.jpg" />
+  <img src="Z:/picture/008/save_picture_757180.jpg" />
 </div>
 
 
@@ -410,7 +410,7 @@ VA - 100 Hits The Best R&B Album (2018) [MP3|320 Kbps] <RnB, Soul>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755997.jpg" />
+  <img src="Z:/picture/008/save_picture_755997.jpg" />
 </div>
 
 
@@ -439,7 +439,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754473.jpg" />
+  <img src="Z:/picture/008/save_picture_754473.jpg" />
 </div>
 
 
@@ -468,7 +468,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_754467.jpg" />
+  <img src="Z:/picture/008/save_picture_754467.jpg" />
 </div>
 
 
@@ -497,7 +497,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752635.jpg" />
+  <img src="Z:/picture/008/save_picture_752635.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ FACE - SLIME (2019) [MP3|320 Kbps] <Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751613.jpg" />
+  <img src="Z:/picture/008/save_picture_751613.jpg" />
 </div>
 
 
@@ -555,7 +555,7 @@ Migos - Culture III (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Trap>
 >>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749894.jpg" />
+  <img src="Z:/picture/008/save_picture_749894.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ Alai Oli - Alice (2018) [MP3|320 Kbps] <Reggae, Alternative Rock>
 >>RnB, Reggae
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_749203.jpg" />
+  <img src="Z:/picture/008/save_picture_749203.jpg" />
 </div>
 
 
@@ -613,7 +613,7 @@ Pappa Bear - What's My Name? (1998) [MP3|320 Kbps] <Rap>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747716.jpg" />
+  <img src="Z:/picture/008/save_picture_747716.jpg" />
 </div>
 
 
@@ -642,7 +642,7 @@ Eminem & The Beatles - 8 Mile And Abbey: Eminem Meets The Beatles (2014) Mixtape
 >>Rap, Hip-hop, RnB, Reggae (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747504.jpg" />
+  <img src="Z:/picture/008/save_picture_747504.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Miyagi & Andy Panda - YAMAKASI (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742479.jpg" />
+  <img src="Z:/picture/008/save_picture_742479.jpg" />
 </div>
 
 
@@ -700,7 +700,7 @@ VA - Pornhub Valentine's Day Album (2019) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 >>Rap, Hip-hop зарубежный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740857.jpg" />
+  <img src="Z:/picture/008/save_picture_740857.jpg" />
 </div>
 
 
@@ -729,7 +729,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Rap, Hip-hop отечественный
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732311.jpg" />
+  <img src="Z:/picture/008/save_picture_732311.jpg" />
 </div>
 
 

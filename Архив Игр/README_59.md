@@ -6,7 +6,7 @@ Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378721.jpg" />
+  <img src="Z:/picture/008/save_picture_378721.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Eat This! [En] (L) 1997
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_377762.jpg" />
+  <img src="Z:/picture/005/save_picture_377762.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ World in Conflict Complete Edition [Ru] (ReЗack) 2009 | RepackUA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377570.jpg" />
+  <img src="Z:/picture/008/save_picture_377570.jpg" />
 </div>
 
 
@@ -86,7 +86,7 @@ Owlboy (2016) [En] (1.0) License GOG [Collector's Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377481.jpg" />
+  <img src="Z:/picture/008/save_picture_377481.jpg" />
 </div>
 
 
@@ -112,7 +112,7 @@ Call of Duty: Black Ops 2 [Ru] (L) 2012 [Без таблетки]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_377287.jpg" />
+  <img src="Z:/picture/008/save_picture_377287.jpg" />
 </div>
 
 
@@ -138,7 +138,7 @@ Victor Vran (2015) [Ru/Multi] (2.04/dlc) Repack R.G. Catalyst
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376704.jpg" />
+  <img src="Z:/picture/008/save_picture_376704.jpg" />
 </div>
 
 
@@ -164,7 +164,7 @@ Mystery of the Earl (P) [En] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376359.jpg" />
+  <img src="Z:/picture/008/save_picture_376359.jpg" />
 </div>
 
 
@@ -190,7 +190,7 @@ Good Intentions (P) [En] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376358.jpg" />
+  <img src="Z:/picture/008/save_picture_376358.jpg" />
 </div>
 
 
@@ -216,7 +216,7 @@ Cities: Skylines (2015) [Ru/Multi] (1.9.0-f5/dlc) License RELOADED [Deluxe Editi
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375860.jpg" />
+  <img src="Z:/picture/008/save_picture_375860.jpg" />
 </div>
 
 
@@ -242,7 +242,7 @@ Darkness Ahead (2016) [En] (1.0) License PLAZA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_375194.jpg" />
+  <img src="Z:/picture/008/save_picture_375194.jpg" />
 </div>
 
 
@@ -268,7 +268,7 @@ Sleeping Dogs - Limited Edition [Ru] (RePack/ 1.7.424719 + DLC) 2012 l YelloSOFT
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374772.jpg" />
+  <img src="Z:/picture/008/save_picture_374772.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Haunted Domains (P) [En] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_374143.jpg" />
+  <img src="Z:/picture/008/save_picture_374143.jpg" />
 </div>
 
 
@@ -321,7 +321,7 @@ DeathSpank [En] (RePack) 2010 | R.G. ReCoding
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373417.jpg" />
+  <img src="Z:/picture/008/save_picture_373417.jpg" />
 </div>
 
 
@@ -349,7 +349,7 @@ Shaun White Skateboarding [Wii] [PAL] [Multi 5] (2010)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373305.jpg" />
+  <img src="Z:/picture/008/save_picture_373305.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ Zombie Driver [Ru] (P) 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373176.jpg" />
+  <img src="Z:/picture/008/save_picture_373176.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон Разума [Ru] (RePack) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373175.jpg" />
+  <img src="Z:/picture/008/save_picture_373175.jpg" />
 </div>
 
 
@@ -431,7 +431,7 @@ The Unholy war [PS1] [RUS] [NTSC] (1998)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372781.jpg" />
+  <img src="Z:/picture/008/save_picture_372781.jpg" />
 </div>
 
 
@@ -462,7 +462,7 @@ Madden NFL 13 [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372593.jpg" />
+  <img src="Z:/picture/008/save_picture_372593.jpg" />
 </div>
 
 
@@ -488,7 +488,7 @@ WRC 3: FIA World Rally Championship [PS3] [ENG] [PAL] [FULL] [3.41/3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372489.jpg" />
+  <img src="Z:/picture/008/save_picture_372489.jpg" />
 </div>
 
 
@@ -514,7 +514,7 @@ Call of Duty Black Ops 2: Digital Deluxe Edition [Ru] (Rip/1.0.0.1) 2012 l Dange
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372473.jpg" />
+  <img src="Z:/picture/008/save_picture_372473.jpg" />
 </div>
 
 
@@ -540,7 +540,7 @@ RUINER (2017) [Ru/Multi] (1.06) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372108.jpg" />
+  <img src="Z:/picture/008/save_picture_372108.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Dark Sector (2009) [Ru] (1.0) Repack Other s
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371730.jpg" />
+  <img src="Z:/picture/008/save_picture_371730.jpg" />
 </div>
 
 
@@ -592,7 +592,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370803.jpg" />
+  <img src="Z:/picture/008/save_picture_370803.jpg" />
 </div>
 
 
@@ -618,7 +618,7 @@ Craft The World (2014) [Ru/Multi] (1.3.005) Unofficial ALiAS
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370348.jpg" />
+  <img src="Z:/picture/008/save_picture_370348.jpg" />
 </div>
 
 
@@ -644,7 +644,7 @@ Persona 4 ARENA [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370126.jpg" />
+  <img src="Z:/picture/008/save_picture_370126.jpg" />
 </div>
 
 
@@ -670,7 +670,7 @@ F1 Race Stars [En/Multi7] (RePack/1.0.0.0) 2012 | R.G. ILITA
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370079.jpg" />
+  <img src="Z:/picture/008/save_picture_370079.jpg" />
 </div>
 
 

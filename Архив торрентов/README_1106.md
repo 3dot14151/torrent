@@ -6,7 +6,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796438.jpg" />
+  <img src="Z:/picture/008/save_picture_796438.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796437.jpg" />
+  <img src="Z:/picture/008/save_picture_796437.jpg" />
 </div>
 
 
@@ -61,7 +61,7 @@ Cyberfox 52.6.0 for AMD + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796428.jpg" />
+  <img src="Z:/picture/008/save_picture_796428.jpg" />
 </div>
 
 
@@ -87,7 +87,7 @@ CoolUtils PDF Combine 5.1.0.115 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796426.jpg" />
+  <img src="Z:/picture/008/save_picture_796426.jpg" />
 </div>
 
 
@@ -113,7 +113,7 @@ Vivaldi 1.13.1008.44 Stable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796415.jpg" />
+  <img src="Z:/picture/008/save_picture_796415.jpg" />
 </div>
 
 
@@ -139,7 +139,7 @@ Allavsoft Video Downloader Converter 3.15.4.6594 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796409.jpg" />
+  <img src="Z:/picture/008/save_picture_796409.jpg" />
 </div>
 
 
@@ -165,7 +165,7 @@ DJ Feel - TranceMission (25-04-2016) [MP3|320 кб/с] <Trance, Progressive Tran
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796401.jpg" />
+  <img src="Z:/picture/008/save_picture_796401.jpg" />
 </div>
 
 
@@ -194,7 +194,7 @@ Algoriddim djay Pro 1.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796397.jpg" />
+  <img src="Z:/picture/008/save_picture_796397.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Boinx FotoMagico 5.0.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796395.jpg" />
+  <img src="Z:/picture/008/save_picture_796395.jpg" />
 </div>
 
 
@@ -247,7 +247,7 @@ Joe Ford - Let It Out (2016) EP [MP3|320 кб/с] <Drum & Bass>
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796392.jpg" />
+  <img src="Z:/picture/008/save_picture_796392.jpg" />
 </div>
 
 
@@ -276,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796390.jpg" />
+  <img src="Z:/picture/008/save_picture_796390.jpg" />
 </div>
 
 
@@ -302,7 +302,7 @@ MediaHuman YouTube Downloader 3.9.8.20 (1901) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796386.jpg" />
+  <img src="Z:/picture/008/save_picture_796386.jpg" />
 </div>
 
 
@@ -328,7 +328,7 @@ Cyberfox 52.6.0 for Intel + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796379.jpg" />
+  <img src="Z:/picture/008/save_picture_796379.jpg" />
 </div>
 
 
@@ -354,7 +354,7 @@ Vivaldi 1.13.1008.44 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796371.jpg" />
+  <img src="Z:/picture/008/save_picture_796371.jpg" />
 </div>
 
 
@@ -380,7 +380,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796363.jpg" />
+  <img src="Z:/picture/008/save_picture_796363.jpg" />
 </div>
 
 
@@ -409,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796359.jpg" />
+  <img src="Z:/picture/008/save_picture_796359.jpg" />
 </div>
 
 
@@ -435,7 +435,7 @@ Mozilla Firefox 46.0 (Яндекс-версия) [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796356.jpg" />
+  <img src="Z:/picture/008/save_picture_796356.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796354.jpg" />
+  <img src="Z:/picture/008/save_picture_796354.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796353.jpg" />
+  <img src="Z:/picture/008/save_picture_796353.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Free Studio 6.6.7.426 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796351.jpg" />
+  <img src="Z:/picture/008/save_picture_796351.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ EagleFiler 1.9.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796348.jpg" />
+  <img src="Z:/picture/008/save_picture_796348.jpg" />
 </div>
 
 
@@ -566,7 +566,7 @@ Scrutiny 10 v10.4.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796347.jpg" />
+  <img src="Z:/picture/008/save_picture_796347.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ aText 2.39.3 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796346.jpg" />
+  <img src="Z:/picture/008/save_picture_796346.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Athentech Perfectly Clear WorkBench for Mac 4 v4.0.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796344.jpg" />
+  <img src="Z:/picture/008/save_picture_796344.jpg" />
 </div>
 
 
@@ -646,7 +646,7 @@ Kaleidoscope 3.1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796340.jpg" />
+  <img src="Z:/picture/008/save_picture_796340.jpg" />
 </div>
 
 
@@ -674,7 +674,7 @@ CheckBook Pro 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796339.jpg" />
+  <img src="Z:/picture/008/save_picture_796339.jpg" />
 </div>
 
 

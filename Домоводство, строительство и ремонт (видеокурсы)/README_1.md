@@ -1,3 +1,57 @@
+###  Публикация: 609756   (990764) от 28.01.2013
+
+НТВ плюс | Квартирный вопрос -"Мега-пак" [вып. 2006-2007г.г.] SATRip [Обновляемый]
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_990764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Передача «Квартирный вопрос» существует уже много лет. За это время ее создатели и участники смогли помочь многим людям разобраться в дебрях ремонта. Все, кого интересует эта проблема, сегодня могут смотреть старые и новые выпуски передачи онлайн в любое удобное время.
+
+Суть происходящего на экране в том, что берется обычная квартира, дом или дача самых обычных людей. (   Читать дальше...   )Жанр: ОбучающийПродолжительность: 0 ч 45 мин 15,84 с
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F59DA01EAF7D4D469D27CC5B6166EAE81DD24F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616889   (973185) от 11.02.2013
+
+А.Ф. Хисамутдинов | Обрезка виноградных кустов и посадка саженцев [2012] DVD5
+
+>>Обучающие видеоматериалы
+>>Домоводство, строительство и ремонт (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973185.jpg" />
+</div>
+
+
+###  Подробнее
+
+А.Ф. Хисамутдинов – специалист в области агротехники, прививки и восстановления виноградников, старший научный сотрудник лаборатории агротехники ГНУ ВНИИВиВ им. Я.И. Потапенко Россельхозакадемии, кандидат сельскохозяйственных наук, представляет учебный фильм для начинающих виноградарей и дачников «Обрезка виноградных кустов и посадка саженцев». В фильме показаны обрезка нескольких видов наиболее часто встречающихся на приусадебном участке формировок – веерной, двуплечего кордона, длиннорукавной, малой чашевидной и беседочной, рассказано об основных принципах обрезки, даны практические рекомендации. Показаны способы подготовки привитых и корнесобственных саженцев к посадке, продемонстрирован наиболее простой вариант посадки. Съемки выполнены в г. Новочеркасск ростовской области.Жанр: учебныйПродолжительность: 02: 00 :19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6EA64CAD995D4B7E1BA1A0C1E39C7B1CF5BF2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617470   (973054) от 11.02.2013
 
 НТВ плюс | Квартирный вопрос -"Мега-пак" [вып. 2011-2012г.г.] SATRip
@@ -6,7 +60,7 @@
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973054.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973054.jpg" />
 </div>
 
 
@@ -34,7 +88,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906421.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_906421.jpg" />
 </div>
 
 
@@ -63,7 +117,7 @@ ArchiCAD-Master, Пушкарёв Александр | Интерактивны�
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905019.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_905019.jpg" />
 </div>
 
 
@@ -92,7 +146,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901629.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_901629.jpg" />
 </div>
 
 
@@ -118,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887358.jpg" />
+  <img src="Z:/picture/005/save_picture_887358.jpg" />
 </div>
 
 
@@ -147,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886377.jpg" />
+  <img src="Z:/picture/005/save_picture_886377.jpg" />
 </div>
 
 
@@ -173,7 +227,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882153.jpg" />
+  <img src="Z:/picture/005/save_picture_882153.jpg" />
 </div>
 
 
@@ -201,7 +255,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870819.jpg" />
+  <img src="Z:/picture/008/save_picture_870819.jpg" />
 </div>
 
 
@@ -230,7 +284,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869952.jpg" />
+  <img src="Z:/picture/008/save_picture_869952.jpg" />
 </div>
 
 
@@ -257,7 +311,7 @@ Cornacchia | Cornacchia\ Декорирование ткани (2015) PCRec [H.2
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869813.jpg" />
+  <img src="Z:/picture/008/save_picture_869813.jpg" />
 </div>
 
 
@@ -283,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864460.jpg" />
+  <img src="Z:/picture/008/save_picture_864460.jpg" />
 </div>
 
 
@@ -312,7 +366,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864459.jpg" />
+  <img src="Z:/picture/008/save_picture_864459.jpg" />
 </div>
 
 
@@ -341,7 +395,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862414.jpg" />
+  <img src="Z:/picture/008/save_picture_862414.jpg" />
 </div>
 
 
@@ -370,7 +424,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852312.jpg" />
+  <img src="Z:/picture/008/save_picture_852312.jpg" />
 </div>
 
 
@@ -399,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850977.jpg" />
+  <img src="Z:/picture/008/save_picture_850977.jpg" />
 </div>
 
 
@@ -426,7 +480,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832529.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832529.jpg" />
 </div>
 
 
@@ -452,7 +506,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830765.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_830765.jpg" />
 </div>
 
 
@@ -478,7 +532,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823739.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_823739.jpg" />
 </div>
 
 
@@ -504,7 +558,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808007.jpg" />
+  <img src="Z:/picture/008/save_picture_808007.jpg" />
 </div>
 
 
@@ -532,7 +586,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807420.jpg" />
+  <img src="Z:/picture/008/save_picture_807420.jpg" />
 </div>
 
 
@@ -558,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805697.jpg" />
+  <img src="Z:/picture/008/save_picture_805697.jpg" />
 </div>
 
 
@@ -587,7 +641,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804800.jpg" />
+  <img src="Z:/picture/008/save_picture_804800.jpg" />
 </div>
 
 
@@ -616,7 +670,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800543.jpg" />
+  <img src="Z:/picture/008/save_picture_800543.jpg" />
 </div>
 
 
@@ -642,7 +696,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Домоводство, строительство и ремонт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793085.jpg" />
+  <img src="Z:/picture/008/save_picture_793085.jpg" />
 </div>
 
 
@@ -654,61 +708,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9599DF7FA73B944E78E1B33AC30258225EC3EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982108   (785506) от 12.04.2017
-
-Сергей Домогацкий | Как экономить на строительстве (2015) PCRec [H.264, PDF]
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Практическое пособие по строительству собственного дома для начинающих и не только. Современные застройщики в погоне за прибылью пренебрегают нормами экологичности и энергосбережения. В итоге, порой, мы за свои деньги получаем не только холодный, а еще и вредный для проживания дом. Не экономьте на себе и своем здоровье! Экономьте на строительстве, опираясь на опыт (   Читать дальше...   )Жанр: СтроительствоПродолжительность: 00:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4885D843C79EE77767C5EA8A14784BD95BF5803D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521689   (764180) от 03.01.2022
-
-Monecle, Вилена Малая | Пошив сумок с нуля до результата [Тариф Базовый] (2021) WEB-DL
-
->>Обучающие видеоматериалы
->>Домоводство, строительство и ремонт (видеокурсы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Онлайн курс по пошиву сумок.
-Сошьете 12 различных сумок по готовым выкройкам.
-Узнаете нюансы пошива и крепления отдельных деталей.
-Научитесь вшивать карманы, клапаны и другие детали несколькими способами.Производство: MonecleЖанр: ШитьёПродолжительность: 18:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4610F3F4D9C620C737914B0F3CCE60E6F2BAED2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

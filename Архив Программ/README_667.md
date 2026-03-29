@@ -6,7 +6,7 @@ CCleaner 5.90.9443 Free / Professional / Business / Technician Edition RePack (&
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714298.jpg" />
+  <img src="Z:/picture/008/save_picture_714298.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Anthemion Jutoh 1.30 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_714271.jpg" />
+  <img src="Z:/picture/005/save_picture_714271.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Registry Life 3.29 DC 09.06.16 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714239.jpg" />
+  <img src="Z:/picture/008/save_picture_714239.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Viber 6.7.2.9 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714235.jpg" />
+  <img src="Z:/picture/008/save_picture_714235.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Blumentals Screensaver Factory Enterprise 7.1.0.66 RePack by вовава [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714224.jpg" />
+  <img src="Z:/picture/008/save_picture_714224.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ uTorrent 3.5.5 Build 46206 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714214.jpg" />
+  <img src="Z:/picture/008/save_picture_714214.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Soft Organizer 5.11 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714136.jpg" />
+  <img src="Z:/picture/008/save_picture_714136.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Novicorp WinToFlash Professional 1.8.0000 Final RePack (& portable) by KpoJIuK [
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714129.jpg" />
+  <img src="Z:/picture/008/save_picture_714129.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ Skype 7.35.32.102 RePack (& portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714112.jpg" />
+  <img src="Z:/picture/008/save_picture_714112.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Google Chrome 58.0.3029.96 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714044.jpg" />
+  <img src="Z:/picture/008/save_picture_714044.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Viber 6.7.2.9 Final Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714041.jpg" />
+  <img src="Z:/picture/008/save_picture_714041.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Internet Download Manager 6.28 Build 9 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714038.jpg" />
+  <img src="Z:/picture/008/save_picture_714038.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ MInstAll Portable-Soft 01.05.2017 by Bombokot [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714033.jpg" />
+  <img src="Z:/picture/008/save_picture_714033.jpg" />
 </div>
 
 
@@ -346,7 +346,7 @@ Insofta Cover Commander 5.5.1 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714027.jpg" />
+  <img src="Z:/picture/008/save_picture_714027.jpg" />
 </div>
 
 
@@ -372,7 +372,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713991.jpg" />
+  <img src="Z:/picture/008/save_picture_713991.jpg" />
 </div>
 
 
@@ -398,7 +398,7 @@ YouTube Video Downloader PRO 5.7 (20160511) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713988.jpg" />
+  <img src="Z:/picture/008/save_picture_713988.jpg" />
 </div>
 
 
@@ -424,7 +424,7 @@ MCS Drivers Disk v.12.3.0.1180 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713938.jpg" />
+  <img src="Z:/picture/008/save_picture_713938.jpg" />
 </div>
 
 
@@ -450,7 +450,7 @@ Kinza Browser 4.6.1 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713906.jpg" />
+  <img src="Z:/picture/008/save_picture_713906.jpg" />
 </div>
 
 
@@ -476,7 +476,7 @@ save2pc Ultimate 5.5.4.1575 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713900.jpg" />
+  <img src="Z:/picture/008/save_picture_713900.jpg" />
 </div>
 
 
@@ -502,7 +502,7 @@ Soft Organizer 5.11 RePacK by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713805.jpg" />
+  <img src="Z:/picture/008/save_picture_713805.jpg" />
 </div>
 
 
@@ -528,7 +528,7 @@ GoodSync Enterprise 10.8.5.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713789.jpg" />
+  <img src="Z:/picture/008/save_picture_713789.jpg" />
 </div>
 
 
@@ -554,7 +554,7 @@ YTD Video Downloader PRO 5.9.5 RePack (& Portable) by ZVSRus [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713786.jpg" />
+  <img src="Z:/picture/008/save_picture_713786.jpg" />
 </div>
 
 
@@ -580,7 +580,7 @@ Maxthon Browser 5.2.1.3000 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713782.jpg" />
+  <img src="Z:/picture/008/save_picture_713782.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ Insofta Cover Commander 5.5.1 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713778.jpg" />
+  <img src="Z:/picture/008/save_picture_713778.jpg" />
 </div>
 
 
@@ -633,7 +633,7 @@ DVDFab 9.1.9.8 Final RePack (& Portable) by elchupacabra [Ru/En] [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713764.jpg" />
+  <img src="Z:/picture/008/save_picture_713764.jpg" />
 </div>
 
 
@@ -659,7 +659,7 @@ MediaHuman YouTube Downloader 3.9.8.23 (2903) RePack (& Portable) by ZVSRus [Ru/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713637.jpg" />
+  <img src="Z:/picture/008/save_picture_713637.jpg" />
 </div>
 
 

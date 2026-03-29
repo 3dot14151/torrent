@@ -1,3 +1,110 @@
+###  Публикация: 1678095   (147823) от 20.11.2023
+
+KCNcrew Pack 11-15-23 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147823.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под macOS с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется.Тип издания: macOS SoftwareРелиз состоялся: 15.11.2023Разработчик: © 2005-2022 KCNcrewПоддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D3A3803220F9EC8ED33610B9FCD1766E73ED52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678012   (147704) от 20.11.2023
+
+TG Pro (Temperature Gauge Pro) 2.88 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147704.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.11.2023Разработчик: © 2023 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16E7B6D8800E87D1A419528DC4DB6F0B6359D0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1678210   (147693) от 20.11.2023
+
+Mac FoneLab Android Data Recovery 3.2.16 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147693.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы случайно удалили и потеряли данные на телефоне Android? Попробуйте это быстрое, мощное и простое в использовании средство восстановления файлов Mac FoneLab Android Data Recovery. Оно позволяет восстанавливать утерянные удаленные контакты, сообщения, историю звонков, фото, музыку, видео и документы на телефонах Android. С помощью этого восстановления данных Android (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.11.203Разработчик: © 2023 FoneLab Studio.Поддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FAB7E362236330F3F7445BC6FECCD9FA8966425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1347923   (147678) от 25.12.2019
+
+Mac DVDRipper Pro 8.0.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита Mac DVDRipper Pro, позволяющая копировать содержимое дисков DVD на жесткий диск для последующего воспроизведения без использования оптического носителя.
+
+По словам разработчиков, при воспроизведении медиа с жесткого диска пользователь сможет избежать лишних царапин на оптическом носителе, отложить просмотр диска, взятого в прокате, сделать резервную копию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2019Разработчик: DVDSuki Software Inc.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B5863456A8C607ED660CD6D6BB4EBD1BCABFB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678165   (147665) от 20.11.2023
 
 Permute 3 v.3.11.2 [Multi/Ru]
@@ -6,7 +113,7 @@ Permute 3 v.3.11.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147665.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147665.jpg" />
 </div>
 
 
@@ -32,7 +139,7 @@ UltraEdit 20.00.0.9 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147662.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147662.jpg" />
 </div>
 
 
@@ -58,7 +165,7 @@ Postbox 6 v6.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147604.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147604.jpg" />
 </div>
 
 
@@ -84,7 +191,7 @@ Wattagio 1.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147598.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147598.jpg" />
 </div>
 
 
@@ -110,7 +217,7 @@ Sublime Text 4.0 Build 4166 Dev for Mac [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147580.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147580.jpg" />
 </div>
 
 
@@ -137,7 +244,7 @@ AweEraser 4.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147579.jpg" />
 </div>
 
 
@@ -163,7 +270,7 @@ PeakHour 4 v4.1.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147567.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147567.jpg" />
 </div>
 
 
@@ -191,7 +298,7 @@ ON1 Photo RAW 2024 v.18.0.4.14758  [Multi/Ru] [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147543.jpg" />
 </div>
 
 
@@ -217,7 +324,7 @@ Focus Matrix Pro 1.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147534.jpg" />
 </div>
 
 
@@ -243,7 +350,7 @@ MacFamilyTree 8 v8.3.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147481.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147481.jpg" />
 </div>
 
 
@@ -271,7 +378,7 @@ Modern Combat 4: Zero Hour [4.3+jailbreak]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147459.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147459.jpg" />
 </div>
 
 
@@ -297,7 +404,7 @@ Pixelmator 3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147444.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147444.jpg" />
 </div>
 
 
@@ -323,7 +430,7 @@ AnyTrans for Android 6.4.1 (build 20181220 ) [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147437.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147437.jpg" />
 </div>
 
 
@@ -349,7 +456,7 @@ Downie 4 v.4.6.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147348.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147348.jpg" />
 </div>
 
 
@@ -377,7 +484,7 @@ Topaz Photo AI for Mac 2.1.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147339.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147339.jpg" />
 </div>
 
 
@@ -403,7 +510,7 @@ Geekbench 5 v5.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147331.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147331.jpg" />
 </div>
 
 
@@ -432,7 +539,7 @@ TG Pro (Temperature Gauge Pro) 2.64 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147329.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147329.jpg" />
 </div>
 
 
@@ -459,7 +566,7 @@ DxO PhotoLab 7 ELITE Edition 7.1.1 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147327.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147327.jpg" />
 </div>
 
 
@@ -486,7 +593,7 @@ Movavi PDF Editor 3.0.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147317.jpg" />
 </div>
 
 
@@ -512,7 +619,7 @@ ForkLift 4 v.4.0.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147313.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147313.jpg" />
 </div>
 
 
@@ -538,7 +645,7 @@ UniConverter 11.6.2.7 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147225.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147225.jpg" />
 </div>
 
 
@@ -566,7 +673,7 @@ BetterDisplay Pro for Mac 2.0.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147207.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_147207.jpg" />
 </div>
 
 
@@ -577,117 +684,6 @@ BetterDisplay — поистине замечательный инструмен
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F2FB0ABEA7B9751524690C73DEC43383346D806
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519809   (147127) от 25.12.2021
-
-Colibri 2.0.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нативный Lossless Audio проигрыватель, созданный на основе технологии BASS.
-Colibri поддерживает воспроизведение всех популярных форматов без потерь, использует только небольшое количество вычислительной мощности и предлагает чистый и интуитивно понятный пользовательский интерфейс.Тип издания: macOS SoftwareРелиз состоялся: 25.12.2021Разработчик: © 2021 Gabor HargitaiПоддерживаемая ОС: macOS 10.10 или новееЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD3EFD0C7BE342B9F7434FEC5287EDC09E616AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519722   (147102) от 25.12.2021
-
-Beyond Compare 4 v4.4.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_147102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальность цифровых файлов - они копятся. И у пользователей, как правило, скапливаются одни и те же файлы снова и снова. Так как же вы узнаете, что два огромных файла действительно одинаковые, прежде чем удалить один из них?
-Есть один инструмент, который поможет вам устранять дубликаты, объединять изменения из нескольких источников и поддерживать синхронизацию каталогов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.12.2021Разработчик: © 2021 Scooter Software, Inc.Поддерживаемая ОС: Mac OS X 10.11 или вышеЯзык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DE525E62DDABFE48269117B40CB0140DC7E60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589721   (146972) от 15.12.2012
-
-[AppStore] Batman: Arkham City Game of the Year Edition [Native]
-
->>След.
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не меняя обкатанной формулы, Rocksteady ударила ногой и выбила двери, соединявшие кусочки открытых уровней. Аркхем-сити — город в городе, резервация для преступников, созданная профессором Хьюго Стрейнджем с одобрения экс-начальника тюрьмы, пересевшего в кресло мэра. По меркам современных «песочниц» пространство тесновато, зато берет за душу отменной проработкой деталей. Снег падает на грязные улицы, заброшенную сталеплавильную фабрику, обветшавшую церковь и бесполезный музей, но тает в полете, не успевая скрыть горы мусора и кровь на асфальте.
-
-Отрезанные от сияющих огней мегаполиса ледяной водой и пулеметными вышками, злодеи замышляют гнусности. Банды Пингвина, Джокера и Двуликого делят сферы влияния, Ядовитый Плющ свила уютное гнездышко в бывшем отеле, маньяк Виктор Заз опять похищает людей, громила Бейн ищет емкости с драгоценным препаратом «TITAN», снайпер-убийца Дедшот исполняет «заказы», и лишь Календарный Человек скучает в подвале… Пусть Стрейндж — злой гений, раскусивший личину Бэтмена, он совершил фатальную (   Читать дальше...   )Релиз состоялся: 2012Тип издания: MacOS X gameЖанр: Action / 3D / 3rd Person / StealthЯзык интерфейса: Русский, Английский, Французский, Немецкий, Итальянский, Польский, Португальский, Испанский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087437   (146860) от 27.12.2016
-
-URL Manager Pro 4.5 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_146860.jpg" />
-</div>
-
-
-###  Подробнее
-
-URL Manager Pro  - менеджер закладок для браузеров
-URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mozilla, Netscape, iCab и Camino браузеров, с мгновенным доступом как из меню браузера, так и из любого приложении через системное меню.
-
-Приложение полностью контролирует и управляет закладками: копирование между браузерами, редактирование, удаление, поиск (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26 декабря 2016Разработчик: Alco BlomПоддерживаемая ОС: macOS 10.6.9 +Язык интерфейса: Английский, Итальянский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0B606EE8B57553EF27D23285AA24F8B71CC070
 ```
 
 https://mybot314.ru/tekegram_catalog/

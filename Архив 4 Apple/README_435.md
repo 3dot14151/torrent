@@ -1,3 +1,113 @@
+###  Публикация: 1330237   (338331) от 11.10.2019
+
+iStat Menus 6 v6.40 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338331.jpg" />
+</div>
+
+
+###  Подробнее
+
+iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
+Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.10.2019Разработчик: Bjango Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B868A60F76FBD8BDF15A97C80D903372D0871C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074413   (338100) от 19.11.2016
+
+Luminar 1.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_338100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Luminar является первым в мире редактором фотографий, который адаптируется к вашему стилю и уровню квалификации. Luminar делает сложное редактирование легким и приятным. Luminar основан на последних технологиях фото-обработки команды Macphun с более чем 10-летним опытом разработки, удостоенного наградами и любимым миллионами.
+
+Адаптивный интерфейс, который вдохновляет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2016Разработчик: Macphun SoftwareПоддерживаемая ОС: OS X 10.10.5 +Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A761B48DC70C4A9DEAC30B85611AEF5523B46872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074337   (337976) от 19.11.2016
+
+Airmail 3.2.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
+
+По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 17 ноября 2016Разработчик: Bloop S.R.LПоддерживаемая ОС: Mac OS X 10.8 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910AC5DB442742F0C4E250165921A8F71105E55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419766   (337916) от 29.10.2020
+
+PatterNodes 2 v2.3.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_337916.jpg" />
+</div>
+
+
+###  Подробнее
+
+PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
+Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.10.2020Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804FF97CFE73ED23692C015CA0D593E2E4BF2BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419694   (337915) от 29.10.2020
 
 Color Wheel 4.7 [Multi/Rus]
@@ -6,7 +116,7 @@ Color Wheel 4.7 [Multi/Rus]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337915.jpg" />
+  <img src="Z:/picture/008/save_picture_337915.jpg" />
 </div>
 
 
@@ -32,7 +142,7 @@ File List Export 2.4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337914.jpg" />
+  <img src="Z:/picture/008/save_picture_337914.jpg" />
 </div>
 
 
@@ -60,7 +170,7 @@ Export for iTunes 2.1.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337913.jpg" />
+  <img src="Z:/picture/008/save_picture_337913.jpg" />
 </div>
 
 
@@ -86,7 +196,7 @@ Grid 1.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337911.jpg" />
+  <img src="Z:/picture/008/save_picture_337911.jpg" />
 </div>
 
 
@@ -112,7 +222,7 @@ MacBreakZ 5 v5.40 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337910.jpg" />
+  <img src="Z:/picture/008/save_picture_337910.jpg" />
 </div>
 
 
@@ -138,7 +248,7 @@ Omni Recover 2.9.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337909.jpg" />
+  <img src="Z:/picture/008/save_picture_337909.jpg" />
 </div>
 
 
@@ -166,7 +276,7 @@ Find Any File 1.9.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337892.jpg" />
+  <img src="Z:/picture/008/save_picture_337892.jpg" />
 </div>
 
 
@@ -194,7 +304,7 @@ Downie 4 v4.1.8 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337815.jpg" />
+  <img src="Z:/picture/008/save_picture_337815.jpg" />
 </div>
 
 
@@ -222,7 +332,7 @@ PopClip 2020.10 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337811.jpg" />
+  <img src="Z:/picture/008/save_picture_337811.jpg" />
 </div>
 
 
@@ -250,7 +360,7 @@ Allegorithmic Substance Alchemist 2020.3.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337810.jpg" />
+  <img src="Z:/picture/008/save_picture_337810.jpg" />
 </div>
 
 
@@ -276,7 +386,7 @@ Artlantis 2020.2 v9.0.2.23232 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337809.jpg" />
+  <img src="Z:/picture/008/save_picture_337809.jpg" />
 </div>
 
 
@@ -302,7 +412,7 @@ ExpanDrive 7 v7.6.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337806.jpg" />
+  <img src="Z:/picture/008/save_picture_337806.jpg" />
 </div>
 
 
@@ -330,7 +440,7 @@ JPEG SILKYPIX Photography 10 v10.2.8.1
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337804.jpg" />
+  <img src="Z:/picture/008/save_picture_337804.jpg" />
 </div>
 
 
@@ -356,7 +466,7 @@ Permute 3 v3.5.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337799.jpg" />
+  <img src="Z:/picture/008/save_picture_337799.jpg" />
 </div>
 
 
@@ -382,7 +492,7 @@ Be Focused Pro - Focus Timer 2.0.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337697.jpg" />
+  <img src="Z:/picture/008/save_picture_337697.jpg" />
 </div>
 
 
@@ -411,7 +521,7 @@ Sketch 69.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337686.jpg" />
+  <img src="Z:/picture/008/save_picture_337686.jpg" />
 </div>
 
 
@@ -438,7 +548,7 @@ Geekbench 4.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337643.jpg" />
+  <img src="Z:/picture/008/save_picture_337643.jpg" />
 </div>
 
 
@@ -467,7 +577,7 @@ Capture One 21 Pro Beta 2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337546.jpg" />
+  <img src="Z:/picture/008/save_picture_337546.jpg" />
 </div>
 
 
@@ -494,7 +604,7 @@ TinkerTool System 4.4 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337346.jpg" />
+  <img src="Z:/picture/008/save_picture_337346.jpg" />
 </div>
 
 
@@ -521,7 +631,7 @@ Readiris Corporate 17.4 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337249.jpg" />
+  <img src="Z:/picture/008/save_picture_337249.jpg" />
 </div>
 
 
@@ -548,7 +658,7 @@ ScreenFlow 5.0.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337022.jpg" />
+  <img src="Z:/picture/008/save_picture_337022.jpg" />
 </div>
 
 
@@ -577,7 +687,7 @@ Script Debugger 7 v7.0.9 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336855.jpg" />
+  <img src="Z:/picture/008/save_picture_336855.jpg" />
 </div>
 
 
@@ -590,116 +700,6 @@ Script Debugger предлагает пользователям всё, что �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D2D181B5F58C0231F3A75A84F583BC23469B45D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330681   (336854) от 12.10.2019
-
-Fenetre 0.7.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Держите окно открытым, всегда поверх всего остального.
-Картинка в картинке теперь доступно на вашем Mac.
-Fenêtre позволяет визуализировать видео, изображение, файл или веб-сайт.
-(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2019Разработчик: Yoann MoinetПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE0A3F50607AE6C4E2BEBC7240F276D50C8BD3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330632   (336852) от 12.10.2019
-
-DropDMG 3.5.8 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый простой способ для создания собственного образа диска в среде macOS - DropDMG.
-Это очень простая, но весьма функциональная утилита для создания образов формата .dmg, .img, .smi, .sitx, .tar или .zip. Если вам требуется создать один из перечисленных выше видов контейнеров, а вы не хотите или не знаете как осуществить это с помощью Disk Utility и других вспомогательных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.10.2019Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Голландский, Датский и д.р.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0B2198DB28B5E7E477747D336284E33FF52AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330644   (336851) от 12.10.2019
-
-Studies 1.7.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Studies - это приложение, чтобы помочь вам освоить ваши исследования - какими бы они ни были - на MacOS и IOS. Есть Studies для Mac, iPhone и IPad, и они прекрасно синхронизируются с помощью ICloud. Начало учебы в классе с Studies для Mac, продолжить в автобусе домой с Studies для iPhone, и закончить на диване с Studies для IPad.
-
-Некоторые вещи в жизни просто должны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: The Mental FacultyПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B635054DFD0BE8AD0B2FF1AEF43A0D8EAFFEFAD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330672   (336850) от 12.10.2019
-
-Tri-BACKUP Pro 9 v9.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_336850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автоматическая защита и сохранение резервных копий ваших документов, файлов и информации с жестких дисков с помощью Tri-BACKUP. Выбор предопределенного действия или планирование периодической операции, такой как резервное копирование диска, синхронизацию папок или дисков и даже дренирование временных кэшей и папок или автоматический запуск сценариев или приложений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: TRI-EDREПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799DAA3B87DCDC85F2FE9F51361CD6E39A09993F
 ```
 
 https://mybot314.ru/tekegram_catalog/

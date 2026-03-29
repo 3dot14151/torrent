@@ -1,3 +1,108 @@
+###  Публикация: 660218   (759856) от 28.05.2013
+
+Call of Juarez: Gunslinger (2013) [Ru/En] (1.0/u1/DLC) RePack R.G. Origami
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Call of Juarez The Gunslinger перенесет вас на просторы легендарного Дикого Запада - место, где царит неповторимая атмосфера беззакония и жестокости. Вживайтесь в роль безжалостного охотника за головами, отыщите и пристрелите самых отъявленных негодяев. Вам предстоит побывать в грязных салунах, золотых шахтах и многих других местах, где могут укрываться бандиты. (   Читать дальше...   )Тип издания: RePackРазработчик: TechlandЖанр: Action (Shooter) / 3D / 1st/3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D709D93EF0F3B524CAAFB66404FA033082BB701C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522162   (759629) от 06.01.2022
+
+Купе номер 6 (2021) WEBRip [H.264/1080p]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Студентка из Финляндии садится в поезд Москва-Мурманск, пытаясь сбежать от своей таинственной московской любви. По воле случая ей приходится разделить долгую поездку и тесное купе с грубоватым русским шахтером. Нечаянное соседство помогает обоим пассажирам купе номер шесть осознать своё одиночество и тоску по человеческим отношениям.Производство: Финляндия, Эстония, Россия, Германия / 	Elokuvayhtiö Oy Aamu, Кинокомпания CTBЖанр: драма, мелодрамаРежиссер: Юхо КуосманенАктеры: Юра Борисов, Сейди Хаарла, Динара Друкарова, Дмитрий Беленихин, Юлия Ауг, Валентина Бодягина, Денис Пьянов, Василий Зинькевич, Галина ПетроваПеревод: Не требуется (язык озвучки - русский)Субтитры: ОтсутствуютПродолжительность: 01:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE501997849B6FCEBC2B0483F1D9250E64439DAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340019   (759627) от 06.01.2022
+
+Побег из тюрьмы: Коллекция / Prison Break: Collection (2005 - 2009) BDRip 720p [Все сезоны + Финальный побег]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_759627.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Final Break - это полнометражный фильм с независимым сюжетом. События повествуют о тех 3ех (6ти? 9ти?) месяцах, которые авторы сериала пропустили в конце финальной серии.Жанр: боевик, драмаРежиссер: Брэд Тернер /Brad Turner/В ролях: Вентворт Миллер /Wentworth Miller/, Доминик Пёрселл /Dominic Purcell/, Сара Уэйн Кэллиc /Sarah Wayne Callies/, Амори Ноласко /Amaury Nolasco/, Роберт Неппер /Robert Knepper/, Рокмонд Дамбер /Rockmond Dunbar/, Уэйд Уильямс /Wade Williams/, Маршалл Олмэн /Marshall Allman/, Пол Адельштейн /Paul Adelstein/, Питер Стормаре /Peter Stormare/, Робин Танни /Robin Tunney/Перевод: * профессиональный (многоголосый, закадровый) С.Р.И.
+ * профессиональный (многоголосый, закадровый) NovaFilmСубтитры: русские, английскиеФормат: MKVПродолжительность: 01:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:451EB761C1EA4F9320862630137E749E0A720E90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214946   (759460) от 25.03.2018
+
+Участники рынка блокчейна оценили потери российской экономики от ICO
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_759460.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2018 году российская экономика может потерять $1–1,5 млрд, которые привлекут на ICO (Initial Coin Offering — форма привлечения инвестиций на базе криптовалют) проекты с российскими корнями, следует из проекта доклада (есть у “Ъ”), готовящегося РАКИБ (Российская ассоциация криптовалют и блокчейна). Чтобы сохранить деньги в экономике, РАКИБ предлагает ускорить легализацию (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191389   (759354) от 25.03.2018
 
 Total Commander 9.12 Podarok Edition + Lite [Ru/Uk]
@@ -6,7 +111,7 @@ Total Commander 9.12 Podarok Edition + Lite [Ru/Uk]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759354.jpg" />
+  <img src="Z:/picture/008/save_picture_759354.jpg" />
 </div>
 
 
@@ -32,7 +137,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759351.jpg" />
+  <img src="Z:/picture/008/save_picture_759351.jpg" />
 </div>
 
 
@@ -58,7 +163,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759234.jpg" />
+  <img src="Z:/picture/008/save_picture_759234.jpg" />
 </div>
 
 
@@ -84,7 +189,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759232.jpg" />
+  <img src="Z:/picture/008/save_picture_759232.jpg" />
 </div>
 
 
@@ -110,7 +215,7 @@ Painkiller Антология [Ru] (Lossless RePack) 2004-2011 | R.G. Catalyst
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759231.jpg" />
+  <img src="Z:/picture/008/save_picture_759231.jpg" />
 </div>
 
 
@@ -136,7 +241,7 @@ Windows lwgame nCore v.2.5 OBT Rus 2010  [Только русский]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_759156.jpg" />
+  <img src="Z:/picture/005/save_picture_759156.jpg" />
 </div>
 
 
@@ -171,7 +276,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758968.jpg" />
+  <img src="Z:/picture/005/save_picture_758968.jpg" />
 </div>
 
 
@@ -197,7 +302,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758700.jpg" />
+  <img src="Z:/picture/008/save_picture_758700.jpg" />
 </div>
 
 
@@ -223,7 +328,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758618.jpg" />
+  <img src="Z:/picture/005/save_picture_758618.jpg" />
 </div>
 
 
@@ -249,7 +354,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758307.jpg" />
+  <img src="Z:/picture/008/save_picture_758307.jpg" />
 </div>
 
 
@@ -276,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758304.jpg" />
+  <img src="Z:/picture/008/save_picture_758304.jpg" />
 </div>
 
 
@@ -304,7 +409,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758262.jpg" />
+  <img src="Z:/picture/005/save_picture_758262.jpg" />
 </div>
 
 
@@ -330,7 +435,7 @@ Kerish Doctor 2019 4.70 DC 31.01.2019 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758066.jpg" />
+  <img src="Z:/picture/008/save_picture_758066.jpg" />
 </div>
 
 
@@ -356,7 +461,7 @@ PCRADIO 6.0.2 Premium RePack (& Portable) by elchupacabra [Ru/En]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_758059.jpg" />
+  <img src="Z:/picture/005/save_picture_758059.jpg" />
 </div>
 
 
@@ -382,7 +487,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_757679.jpg" />
+  <img src="Z:/picture/005/save_picture_757679.jpg" />
 </div>
 
 
@@ -408,7 +513,7 @@ Windows 10 Pro 1709 x86/x64 by kuloymin v12.5 (esd) [Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757671.jpg" />
+  <img src="Z:/picture/008/save_picture_757671.jpg" />
 </div>
 
 
@@ -437,7 +542,7 @@ Adobe Muse CC 2015.1.2.44 RePack by KpoJIuK [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757079.jpg" />
+  <img src="Z:/picture/008/save_picture_757079.jpg" />
 </div>
 
 
@@ -463,7 +568,7 @@ https://mybot314.ru/tekegram_catalog/
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756957.jpg" />
+  <img src="Z:/picture/008/save_picture_756957.jpg" />
 </div>
 
 
@@ -489,7 +594,7 @@ Adobe Acrobat Pro DC 2015.016.20039 [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756950.jpg" />
+  <img src="Z:/picture/008/save_picture_756950.jpg" />
 </div>
 
 
@@ -515,7 +620,7 @@ Resident Evil / Biohazard HD Remaster (2015) [Ru/Multi] (1.1.0) Repack West4it
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756715.jpg" />
+  <img src="Z:/picture/008/save_picture_756715.jpg" />
 </div>
 
 
@@ -541,7 +646,7 @@ Age of Empires (2019) [Ru/Multi] (38862) Repack xatab [Definitive Edition]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756713.jpg" />
+  <img src="Z:/picture/008/save_picture_756713.jpg" />
 </div>
 
 
@@ -567,7 +672,7 @@ NVIDIA GeForce Desktop 418.81 WHQL + For Notebooks + DCH [Multi/Ru]
 >>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756571.jpg" />
+  <img src="Z:/picture/008/save_picture_756571.jpg" />
 </div>
 
 
@@ -578,110 +683,6 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4301CBFD60C7011C26036D4E727BE356AAB2CBF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280815   (756435) от 05.02.2019
-
-Обойти блокировку Android-смартфона можно звонком по Skype
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Недавно обнаруженная уязвимость в Skype для Android может быть использована злоумышленниками для обхода экрана блокировки на смартфонах, работающих под управлением Android. Она позволяет просматривать фотографии, контакты и даже запускать браузер, получая доступ к сайтам с введёнными пользователем паролями.19-летний специалист по безопасности из Косово Флориан Кунушевци (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262286   (756407) от 05.02.2019
-
-Devil May Cry HD Collection (2018) [Ru/Multi] (1.0) Rip R.G. Revenants
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярные стильные экшены Devil May Cry, Devil May Cry 2 и Devil May Cry 3 Special Edition возвращаются в составе особой коллекции! Станьте Данте, величайшим охотником на демонов, и вместе с очаровательными персонажами, среди которых Триш, Леди и Люсия, насладитесь невероятными боевиками в разрешении 1920 x 1080 (FullHD) при 60 кадрах в секунду!Тип издания: RipРазработчик: CapcomЖанр: Action (Slasher), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Испанский и другиеЯзык интерфейса: Русский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2076F95B5B2D81EE59841C785E90CFF41A73A911
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660767   (756130) от 30.05.2013
-
-(Linux) Counter-Strike: Source (2013) [Ru] SteamRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Counter-Strike: Source — многопользовательский командный тактический шутер от первого лица, разработанный компаниями Valve и Turtle Rock Studios. Это римейк Counter-Strike, модификации 1999 года для игры Half-Life. Построенная на движке Source игра была выпущена в 2004 году изначально в комплекте с Half-Life 2, однако позже появились и специальные, отдельные издания (   Читать дальше...   )Тип издания: SteamRipРазработчик: ValveЖанр: Action/FPSЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFD3FC10051623C317A921730720B710F9B624F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 492575   (756126) от 30.05.2013
-
-Подшивка журналов | Фотомастерская (2004-2013) [PDF +CD] +Спецвыпуски [PDF +DVD] [Обновлено 30.05.2013]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_756126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Фотомастерская» пишет о том, что можно сделать с фотографией после съемки. В нём есть всё: современные методы и программы обработки фотографий, портфолио ведущих цифровых художников и ретушеров, советы по работе с техникой, от съёмки и калибровки до печати. Одним словом, всё, что касается работы с готовым изображением.Формат: PDF
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

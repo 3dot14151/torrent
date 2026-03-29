@@ -1,3 +1,289 @@
+###  Публикация: 1191441   (264422) от 13.12.2017
+
+XYplorer 18.60 RePack (& Portable) by TryRooM  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264422.jpg" />
+</div>
+
+
+###  Подробнее
+
+XYplorer - удобный мультивкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA74AEB743E519FD88DF9B2B4031C9AEE7CC318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191289   (264333) от 13.12.2017
+
+ACDSee Photo Studio Ultimate 2018 v11.1 Build 1272 Portable by Alz50 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264333.jpg" />
+</div>
+
+
+###  Подробнее
+
+ACDSee Photo Studio Ultimate 2018 сочетает в себе поддержку слоев, поддержку GPU-ускорения обработки изображений, поддержку прозрачности со всеми функциями регулировки изображений из режима редактирования. ACDSee - функциональная программа, рассчитанная как на профессиональных фотографов, так и на любителей. ACDSee позволяет работать с цифровыми фотографиями, RAW-изображениями (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A3387570B80B824C1BCAC0D2029719B90AE177
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191433   (264317) от 13.12.2017
+
+Adobe Photoshop Lightroom Classic CC 2018 7.1.0.10 (x64) [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C67940E6E59213E2E1966D40E3447C8A36DC581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340058   (264260) от 22.11.2019
+
+Auslogics Registry Cleaner Pro 8.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Registry Cleaner поможет вам избавиться от ошибок в реестре, удалить неиспользуемые ключи. Реестр Windows - один из самых важных и в тоже время самый уязвимый компонент системы. Каждый раз, когда вы устанавливаете или удаляете программы, в реестре создаются ключи, которые могут там оставаться и приводить к системным сбоям, зависаниям и нестабильной работе (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24215D9998F969D7C766CD18D9BE9013EF9FF117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340068   (264259) от 22.11.2019
+
+Light Image Resizer 6.0.0.20 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9740BD504E4CE6FAC8BCEB1B58239A1E65F7DE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340056   (264254) от 22.11.2019
+
+Auslogics Disk Defrag Pro 9.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Pro - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579E4896EB7C41565D0084A5E2F7C120CD9AAF49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340071   (264253) от 22.11.2019
+
+Calibre 4.4.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685CD7E4C2EC948C7F29CA867D649055807F53BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340159   (264251) от 22.11.2019
+
+PrivaZer 3.0.82 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264251.jpg" />
+</div>
+
+
+###  Подробнее
+
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5319C54CCCC275564342316FC95DA287335663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340115   (264249) от 22.11.2019
+
+Soft Organizer Pro 7.50 RePacK by KpoJIuK [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC9464EE1F822F516C7D8A4F2F954E334EFD0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340057   (264235) от 22.11.2019
+
+Auslogics Duplicate File Finder 8.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Duplicate File Finder поможет Вам избавиться от ненужных дубликатов. С помощью этой бесплатной программы Вы сможете очистить до 50% дополнительного пространства на жестком диске! Сколько абсолютно одинаковых файлов хранится на Вашем компьютере? Вы, возможно, удивитесь, как много места они занимают. Файлы-дубликаты могут накапливаться вследствие повседневного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E254B3E953E7B9DB836F2085BD803FF1472881F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340055   (264234) от 22.11.2019
+
+Auslogics BoostSpeed Pro 11.2.0.3 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84387CBBF4681A32E237361F891838F6705F0C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340174   (264221) от 22.11.2019
 
 Auslogics Windows Slimmer 2.2.0.3 RePack (& Portable) by elchupacabra [Ru/En]
@@ -6,7 +292,7 @@ Auslogics Windows Slimmer 2.2.0.3 RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264221.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264221.jpg" />
 </div>
 
 
@@ -32,7 +318,7 @@ FastStone Capture 9.3 Corporate RePack (& Portable) by TryRooM [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264203.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264203.jpg" />
 </div>
 
 
@@ -58,7 +344,7 @@ Wondershare Filmora 9.2.11.6 (x64) Repack (& Portable) by elchupacabra [Multi/Ru
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264201.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264201.jpg" />
 </div>
 
 
@@ -84,7 +370,7 @@ AnyDesk 5.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264190.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264190.jpg" />
 </div>
 
 
@@ -110,7 +396,7 @@ Softany WinCHM Pro 5.19 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264132.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264132.jpg" />
 </div>
 
 
@@ -136,7 +422,7 @@ PrivaZer 3.0.35 + Portable  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264131.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264131.jpg" />
 </div>
 
 
@@ -162,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264124.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264124.jpg" />
 </div>
 
 
@@ -188,7 +474,7 @@ Waterfox 56.0.1 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264114.jpg" />
 </div>
 
 
@@ -214,7 +500,7 @@ Display Driver Uninstaller 17.0.8.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264105.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264105.jpg" />
 </div>
 
 
@@ -240,7 +526,7 @@ TurbulenceFD v1.0 build 1425 Repack by soyv4 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264103.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264103.jpg" />
 </div>
 
 
@@ -266,7 +552,7 @@ R-Studio 8.5 Build 170097 Network Edition RePack (& portable) by KpoJIuK  [Multi
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264099.jpg" />
 </div>
 
 
@@ -292,7 +578,7 @@ TreeSize Free 4.1.1 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264095.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264095.jpg" />
 </div>
 
 
@@ -318,7 +604,7 @@ Wondershare Video Converter Ultimate 10.1.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264090.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264090.jpg" />
 </div>
 
 
@@ -344,7 +630,7 @@ AMD Radeon Software Adrenalin Edition 17.12.1 WHQL [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264074.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264074.jpg" />
 </div>
 
 
@@ -370,7 +656,7 @@ AutoRuns 13.81 Portable  [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264072.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_264072.jpg" />
 </div>
 
 
@@ -381,294 +667,6 @@ AutoRuns - утилита для контроля автозагрузки пр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDF6646999590A9D98A1077DD5CE377971619474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191579   (264060) от 14.12.2017
-
-SamDrivers 17.13 - Сборник драйверов для Windows [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник драйверов от SamLab.ws для всех 32-х и 64-битных операционных систем Windows, начиная от Windows 2000 и до Windows 10 RS3 включая серверные платформы. В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специализированные утилиты: DriverPack Solution 16.17.6 / DriverPack Solution (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29D6D45787212DD07C2B466ECBC38287C6700099
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191449   (264057) от 14.12.2017
-
-Adobe Bridge CC 2018 v8.0.1.282 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Bridge CC 2018 - организационная программа, предназначение которой связать части Creative Cloud вместе, используя интерфейс, похожий на файловый менеджер, который был в ранних версиях Adobe Photoshop. Он доступен практически из всех прочих приложений Creative Cloud. Adobe Bridge CC 2018 упростит вашу работу и поможет поддерживать порядок. Adobe Bridge CC 2018 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E03AD0BFB69A03D34056E44CAF9CCE50A65594A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191690   (264047) от 14.12.2017
-
-Adobe Animate CC and Mobile Device Packaging CC 2018 18.0.1.115  RePack by KpoJIuK  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe Animate CC 2018, пришедший на смену Flash Professional - это мощная среда для создания анимации и мультимедийного контента. Позволяет создавать выразительные интерактивные проекты, которые отображаются в превосходном качестве на настольных компьютерах и различных устройствах, в том числе планшетных ПК и смартфонах, а также на телеэкранах. Adobe Animate CC 2018 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D2D9D5C570893DE326F0C9440FA76739E3EC51B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191570   (264033) от 14.12.2017
-
-Maxon CINEMA 4D Studio R19.024 Portable by soyv4 [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_264033.jpg" />
-</div>
-
-
-###  Подробнее
-
-MAXON CINEMA 4D R19 - простая в использовании профессиональная программа для 3D-визуализации, при помощи которой даже начинающие пользователи смогут создавать высококачественные анимации с использованием 3D-CAD моделей. Программный продукт содержит множество инструментов для анимации персонажей, работы с волосами и имитации одежды, предлагает несколько источников (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA20A95D85B93428814DB572CFB851524EE1CB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340407   (263996) от 23.11.2019
-
-Allavsoft Video Downloader Converter 3.21.0.7265 RePack (& Portable) by elchupacabra [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115E6AEFA646454E945DEB38080638C15BF885AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340389   (263967) от 23.11.2019
-
-Loaris Trojan Remover 3.1.2.240 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Loaris Trojan Remover - средство удаления вредоносного ПО, среди которых есть троянские программы, интернет-черви, рекламные и шпионские программы. Утилита предназначена для удаления угроз с Вашего компьютера, когда постоянная антивирусная защита не в состоянии обнаружить или полностью удалить их. Очень часто антивирусные решения хороши в обнаружении вредоносных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8720DC3196AB1D00EB2FAA6CCD280CCAE38A5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340309   (263959) от 23.11.2019
-
-Paint.NET 4.2.6 Final + Plugins Portable by Punsh [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paint.NET - Простой, но мощный и удобный редактор графики. Позиционируется как отличная замена стандартному MS Paint из поставки Windows. Поддерживаемые форматы: BMP, IPEG, PNG, TIF, GIF, TGA и собственный формат PDN. Основные возможности: работы со слоями, применение эффектов, работа со сканером и камерой, коррекция красных глаз, масштабирование от 1% до 3200%. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF9E518876E3E48D8E23891B024043D69E92589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340245   (263951) от 23.11.2019
-
-Microsoft Visual Studio 2019 Professional 16.3.8 (Offline Cache, Unofficial) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Visual Studio Professional 2019 - полный набор инструментов, с помощью которых процесс реализации инновационных замыслов разработчика легко воплощается в жизнь. Visual Studio предоставляет минимальный функционал, при помощи которого можно создавать уникальные программные продукты.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4684AAE262139B5712C58B5B4949B9F2C1E0AD77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340408   (263947) от 23.11.2019
-
-Athentech Perfectly Clear WorkBench 3.9.0.1699 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Athentech Perfectly Clear WorkBench может работать отдельно или как плагин для Photoshop и Lightroom.
-Позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
-Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069F72AE4BF077B555D9978DB072AAABD05DA5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340247   (263931) от 23.11.2019
-
-Microsoft Visual Studio 2019 Community 16.3.8 (Offline Cache, Unofficial) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55828C995CC5CD762974658B1A8D92036932CEE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340242   (263910) от 23.11.2019
-
-Microsoft Visual Studio 2019 Enterprise 16.3.8 (Offline Cache, Unofficial) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_263910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E7F4337438CEE636E9EADBA1A3777383B6FC49
 ```
 
 https://mybot314.ru/tekegram_catalog/

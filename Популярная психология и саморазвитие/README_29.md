@@ -1,3 +1,82 @@
+###  Публикация: 1381566   (822374) от 09.05.2020
+
+Сирил Норткот Паркинсон | Законы Паркинсона (2007) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сирил Норткот Паркинсон хорошо известен читателям как первооткрыватель законов, не менее знаменитых, чем законы Ньютона и Архимеда. Юмор, гениальная изобретательность и парадоксальность мышления сделали его книгу одной из самых популярных в XX веке, не теряющей своей актуальности и в веке XXI. Законы Паркинсона адресованы «подросткам, учителям, авторам пособий по (   Читать дальше...   )Жанр: психологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63328A947EFE896CC1E308DE1FEBC5F87DCEEEB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381954   (822365) от 09.05.2020
+
+Анна Калантерная | Автор жизни. Как создавать успешный жизненный сценарий (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_822365.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге концентрат личного опыта и авторских методик Анны Калантерной, которые помогают выйти из круговорота нищеты, безнадежности, зависимых отношений и стать Автором Собственной Жизни. Анна не дает инструкций, а делится инструментами. Возьмите и перепишите собственную судьбу так, как этого хотите именно вы.
+«Ни родители, ни правительство, ни кто-то посторонний (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CEAB8CDE12766762694B4A04FF343C2277551FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116650   (822248) от 20.03.2017
+
+Дона Маркова, Энджи Макартур | Коллективный разум. Как извлечь максимум из интеллектуального разнообразия, которое вас окружает (2016) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_822248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы живем во времена больших перемен. Сейчас мир постепенно начинает жить по законам коллективного мышления, которое не ограничивается категориями анализа проблемы и поиска рациональных решений. Нам приходится мыслить по-новому, мыслить совместно. За последние несколько лет нейрофизиологи сделали несколько важных открытий, касающихся человеческого мозга и способных (   Читать дальше...   )Жанр: Психология, БизнесФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC99FE6F3FD32F90C69B83CE9CF27F1E582CE68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382034   (822180) от 09.05.2020
 
 Оскар Хартманн | Просто делай! Делай просто! (2019) [PDF]
@@ -6,7 +85,7 @@
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822180.jpg" />
+  <img src="Z:/picture/008/save_picture_822180.jpg" />
 </div>
 
 
@@ -32,7 +111,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820313.jpg" />
+  <img src="Z:/picture/008/save_picture_820313.jpg" />
 </div>
 
 
@@ -59,7 +138,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819456.jpg" />
+  <img src="Z:/picture/008/save_picture_819456.jpg" />
 </div>
 
 
@@ -85,7 +164,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819238.jpg" />
+  <img src="Z:/picture/008/save_picture_819238.jpg" />
 </div>
 
 
@@ -113,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819165.jpg" />
+  <img src="Z:/picture/008/save_picture_819165.jpg" />
 </div>
 
 
@@ -139,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819089.jpg" />
+  <img src="Z:/picture/008/save_picture_819089.jpg" />
 </div>
 
 
@@ -167,7 +246,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819079.jpg" />
+  <img src="Z:/picture/008/save_picture_819079.jpg" />
 </div>
 
 
@@ -195,7 +274,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816633.jpg" />
+  <img src="Z:/picture/008/save_picture_816633.jpg" />
 </div>
 
 
@@ -221,7 +300,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816597.jpg" />
+  <img src="Z:/picture/008/save_picture_816597.jpg" />
 </div>
 
 
@@ -250,7 +329,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816183.jpg" />
+  <img src="Z:/picture/008/save_picture_816183.jpg" />
 </div>
 
 
@@ -276,7 +355,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815560.jpg" />
+  <img src="Z:/picture/008/save_picture_815560.jpg" />
 </div>
 
 
@@ -302,7 +381,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815437.jpg" />
+  <img src="Z:/picture/008/save_picture_815437.jpg" />
 </div>
 
 
@@ -328,7 +407,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815309.jpg" />
+  <img src="Z:/picture/008/save_picture_815309.jpg" />
 </div>
 
 
@@ -355,7 +434,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815294.jpg" />
+  <img src="Z:/picture/008/save_picture_815294.jpg" />
 </div>
 
 
@@ -383,7 +462,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814928.jpg" />
+  <img src="Z:/picture/008/save_picture_814928.jpg" />
 </div>
 
 
@@ -410,7 +489,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814798.jpg" />
+  <img src="Z:/picture/008/save_picture_814798.jpg" />
 </div>
 
 
@@ -436,7 +515,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_814573.jpg" />
+  <img src="Z:/picture/008/save_picture_814573.jpg" />
 </div>
 
 
@@ -462,7 +541,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813379.jpg" />
+  <img src="Z:/picture/008/save_picture_813379.jpg" />
 </div>
 
 
@@ -490,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813343.jpg" />
+  <img src="Z:/picture/008/save_picture_813343.jpg" />
 </div>
 
 
@@ -518,7 +597,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813200.jpg" />
+  <img src="Z:/picture/008/save_picture_813200.jpg" />
 </div>
 
 
@@ -546,7 +625,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812984.jpg" />
+  <img src="Z:/picture/008/save_picture_812984.jpg" />
 </div>
 
 
@@ -572,7 +651,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812953.jpg" />
+  <img src="Z:/picture/008/save_picture_812953.jpg" />
 </div>
 
 
@@ -599,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811976.jpg" />
+  <img src="Z:/picture/008/save_picture_811976.jpg" />
 </div>
 
 
@@ -611,86 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14488FE8B277BDA1DD43272ABF2D69945A286466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504612   (811695) от 23.10.2021
-
-Грег МакКеон | Без усилий. Пусть главное станет проще (2021) [EPUB, PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор бестселлера «Эссенциализм. Путь к простоте» предлагает новое вдохновляющее руководство по достижению ваших целей. Если вы тратите силы на бессмысленные дела и никак не успеваете завершить то, что действительно важно, эта книга поможет вам вырваться из этого цикла. В этой книге собраны практические советы о том, как сделать главные дела самыми простыми, чтобы (   Читать дальше...   )Жанр: Личная эффективность, Саморазвитие / личностный рост, Тайм-менеджментПеревод: Дарья Смирнова, Мария СухотинаФормат: EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEEBE3F45F628080D556F381602A2818941FE5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118726   (810737) от 26.03.2017
-
-Вишен Лакьяни | Код экстраординарности. 10 нестандартных способов добиться впечатляющих успехов (2017) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если не можете выиграть, меняйте правила. Не можете изменить правила – не обращайте на них внимания. Эта книга бросает вызов устоявшимся представлениям о работе, бизнесе, дружбе, постановке целей, осознанности, счастье и смысле.
-Вишен Лакьяни, основатель компании Mindvalley одного из крупнейших разработчиков приложений для личностного роста с годовым оборотом примерно (   Читать дальше...   )Жанр: Зарубежная прикладная и научно-популярная литература, Зарубежная психология, Личностный ростФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAC680E43EC7FE7C32F6B0E160D70DE1BE7D7852
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383679   (809979) от 16.05.2020
-
-Екатерина Корзун | Stop love. Разлюбить за сто дней, или когда нужно расстаться (2020) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если вы никак не можете разлюбить? Как пережить расставание с любимым человеком? Как избавиться от душевной боли? Что делать, если вас бросили? Нужно ли прощать измену?
-Если вы не можете ответить на эти вопросы, книга «STOP LOVE. Разлюбить за сто дней, или Когда нужно расстаться» – для вас. Здесь собраны самые лучшие практические упражнения. Выполнив (   Читать дальше...   )Жанр: Практическая психологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71AEF44DEC76D113F4F6DFE3675F36066645A704
 ```
 
 https://mybot314.ru/tekegram_catalog/

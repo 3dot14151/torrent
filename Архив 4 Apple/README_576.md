@@ -1,3 +1,114 @@
+###  Публикация: 1660246   (189827) от 12.09.2023
+
+Mactracker 7.12.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mactracker предоставляет подробную информацию о каждом компьютере Apple Macintosh когда-либо сделанных, в том числе таких элементов, как скорость процессора, памяти, оптических приводов, графических карт, поддерживаемых версий ОС, и расширения возможностей.
+Также имеется информация о ранних системах Apple, мышей Apple, клавиатурах, дисплеях, принтерах, сканерах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2001 - 2022 Ian PageПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B08CB3AB22536EA9E9E4567BD6221A5D1D0BDA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659882   (189798) от 12.09.2023
+
+Omni Recover 3.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189798.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omni Recover для macOS позволяет восстанавливать удаленные сообщения, фотографии, чаты WhatsApp и многое другое, независимо от того, на какой стадии ваши данные.
+Не имеет значения по какой причине, но данные iPhone уязвимы для внезапных и случайных бедствий iOS. Например, удаление фотографий на iPhone является постоянным, и когда вы нажимаете для удаления потока (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2023 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE8E60EB0CFD59A0A49EAB419456C05E4D44240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660335   (189785) от 12.09.2023
+
+Downie 4 v.4.6.27 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 12.09.2023Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12.6 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410D0F91E3D0EFE987609F89E83D6CC9C8CAACFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659883   (189750) от 12.09.2023
+
+Fix My iPhone 2.4.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fix My iPhone — это инструмент для восстановления системы iOS. Устраняет все известные неисправности на  вашем iPhone:
+• Зависший на логотипе Apple
+• Черный / зависший экран
+• Ошибки обновления / восстановления iTunes и более 50+ сбоев обновления iOS 15(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.09.2023Разработчик: © 2023 MiniCreoПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F612D8FA6A3F4DD104D2F4E644716977C8CD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660356   (189711) от 12.09.2023
 
 ForkLift 4 v.4.0 U2B [En]
@@ -6,7 +117,7 @@ ForkLift 4 v.4.0 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189711.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189711.jpg" />
 </div>
 
 
@@ -32,7 +143,7 @@ Infuse PRO 7.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189697.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189697.jpg" />
 </div>
 
 
@@ -58,7 +169,7 @@ GoodTask 7.6.0 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189434.jpg" />
 </div>
 
 
@@ -85,7 +196,7 @@ HoudahSpot 6 v.6.1.5 U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189432.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189432.jpg" />
 </div>
 
 
@@ -113,7 +224,7 @@ Soulver 3 v.3.9 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189429.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189429.jpg" />
 </div>
 
 
@@ -140,7 +251,7 @@ Dash 7.1.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189415.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189415.jpg" />
 </div>
 
 
@@ -166,7 +277,7 @@ OmniGraffle Pro 7.21.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189399.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189399.jpg" />
 </div>
 
 
@@ -192,7 +303,7 @@ Widgetter - Desktop Widgets for Mac 1.16.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189382.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189382.jpg" />
 </div>
 
 
@@ -220,7 +331,7 @@ Canary Mail 4.17 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189381.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189381.jpg" />
 </div>
 
 
@@ -246,7 +357,7 @@ Cycling'74 Max 8.5.6 + RNBO U2B [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189377.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189377.jpg" />
 </div>
 
 
@@ -272,7 +383,7 @@ Capture One 23 Enterprise 16.2.4.34 [En/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189353.jpg" />
 </div>
 
 
@@ -298,7 +409,7 @@ Geekbench 6 v.6.2.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189352.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189352.jpg" />
 </div>
 
 
@@ -326,7 +437,7 @@ ProPresenter 7.14 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189297.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189297.jpg" />
 </div>
 
 
@@ -354,7 +465,7 @@ Magic Battery 7.9.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189272.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189272.jpg" />
 </div>
 
 
@@ -381,7 +492,7 @@ Capture One 23 Pro 16.2.4.34 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_189183.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_189183.jpg" />
 </div>
 
 
@@ -408,7 +519,7 @@ Integrity Pro 12.7.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188992.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188992.jpg" />
 </div>
 
 
@@ -434,7 +545,7 @@ Scrutiny 12.7.10 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188991.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188991.jpg" />
 </div>
 
 
@@ -461,7 +572,7 @@ Dropshare 5 v.5.37 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188989.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188989.jpg" />
 </div>
 
 
@@ -488,7 +599,7 @@ EdgeView 4.3.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188986.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188986.jpg" />
 </div>
 
 
@@ -514,7 +625,7 @@ Screens 4 v.4.12.12 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188984.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188984.jpg" />
 </div>
 
 
@@ -540,7 +651,7 @@ Debit & Credit Premium 6.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188982.jpg" />
 </div>
 
 
@@ -567,7 +678,7 @@ Default Folder X 6.0 b5 Pre-Release [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188980.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_188980.jpg" />
 </div>
 
 
@@ -578,112 +689,6 @@ Default Folder X - Расширяет функциональные возмож�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B4C22A393E6B1809D9A81C6B9FC5C6C32D32611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661340   (188955) от 14.09.2023
-
-4K YouTube to MP3 Pro for Mac 4.12.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188955.jpg" />
-</div>
-
-
-###  Подробнее
-
-4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 14.09.2023Разработчик: © 2023 Open Media OOO.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A527EEBEE06C4D29E08A972C20005DE65E6EFAB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661103   (188951) от 14.09.2023
-
-Loopback 2.3.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синхронизация аудио между приложениями на вашем Mac.
-Создание виртуальных звуковых устройств, чтобы взять звук от приложений и аудио устройств ввода, а затем отправить его к аудио приложению обработки. Loopback дает вам силу студии микшерного пульта, прямо на вашем компьютере. Настройка виртуального звукового устройства из нескольких источников легко. Просто добавьте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.09.2023Разработчик: © 2022 Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский, Немецкий, Французский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228A63F7FEB3AE7ACA9FE90B307F5A8EE232FDFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661227   (188948) от 14.09.2023
-
-WiFiRadar Pro 3.9.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188948.jpg" />
-</div>
-
-
-###  Подробнее
-
-WiFi Radar Pro позволяет контролировать ваши локальные сети, выявлять и использовать проблемы в вашей домашней, небольшой офисной или корпоративной сети. Утилита оказывает в помощи выбора полезной информации о производительности вашей сети.Тип издания: macOS SoftwareРелиз состоялся: 12.09.2023Разработчик: © 2023 iyfbodnПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DBE6A592E0C2FC2107E7418369E590F364E198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661275   (188936) от 14.09.2023
-
-Upscayl for Mac 2.8.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_188936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Масштабирование изображений становится все более доступным с каждым днем, и теперь у нас есть приложения, которые упрощают этот процесс до такой степени, что каждый может сделать это за пару кликов.
-Upscayl — это кроссплатформенное приложение с открытым исходным кодом, которое подходит для большинства сценариев. Оно не предлагает много возможностей настройки, но (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.09.2023Разработчик: © 2023  UpscaylПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:371391DF33CBC43B53BEB528B7339ADD4B0D0C83
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1734246   (107157) от 02.07.2024
+
+VA - DJ Hits Vol. 133 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ex-It - I want it all
+02. Spice Girls - Say you'll be there
+03. Robin Cook - I want let the sun go down on me
+04. N-Sync - I want you back(   Читать дальше...   )Жанр: Electronic, Euro House, EurodanceПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791BBA62932960F83E09C42AD66B03FC17787837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734374   (107152) от 03.07.2024
 
 VA - NOW That's What I Call A Summer Party (2024)  4CD [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
@@ -6,7 +35,7 @@ VA - NOW That's What I Call A Summer Party (2024)  4CD [MP3|320 Kbps] <Pop, Rock
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107152.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107152.jpg" />
 </div>
 
 
@@ -35,7 +64,7 @@ VA - DJ Hits Vol. 140 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Euro
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107097.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107097.jpg" />
 </div>
 
 
@@ -64,7 +93,7 @@ VA - Hot Girl Summer 2024 (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_107067.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_107067.jpg" />
 </div>
 
 
@@ -93,7 +122,7 @@ Fem Snabba - Pupiller (серия "Другие восьмидесятые") (19
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106973.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106973.jpg" />
 </div>
 
 
@@ -122,7 +151,7 @@ VA - DJ Hits 141 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106837.jpg" />
 </div>
 
 
@@ -151,7 +180,7 @@ VA - 100 Hits Pop Essentials (2017) Box Set: 5CD [OGG Vorbis|480 Kbps] <Rock, Fu
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106649.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106649.jpg" />
 </div>
 
 
@@ -180,7 +209,7 @@ VA - Italia - Dance Music From Italy (1989) [OGG Vorbis|480 Kbps] <Electronic, I
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106611.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106611.jpg" />
 </div>
 
 
@@ -209,7 +238,7 @@ Charles Fauna - L I M B O (2024) [MP3|320 Kbps] <Pop>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106542.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106542.jpg" />
 </div>
 
 
@@ -238,7 +267,7 @@ Bugatti And Musker - 2 Albums (1981, 1982) [MP3|320 Kbps] <Electronic, Funk/Soul
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106487.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106487.jpg" />
 </div>
 
 
@@ -267,7 +296,7 @@ VA - Dance Zone Level 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106423.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106423.jpg" />
 </div>
 
 
@@ -296,7 +325,7 @@ VA - Twelve Inch Eighties Can You Feel It (2016) 3 CD [OGG Vorbis|480 Kbps] <Ele
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106349.jpg" />
 </div>
 
 
@@ -325,7 +354,7 @@ VA - Crazy Disco Show Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro Hous
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106317.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106317.jpg" />
 </div>
 
 
@@ -354,7 +383,7 @@ Wild Cherry - 4 Albums (1976-1979) Collection LP [MP3|320 Kbps] <Rock, Funk, Dis
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106312.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106312.jpg" />
 </div>
 
 
@@ -383,7 +412,7 @@ Engelbert Humperdinck - Forgotten Promises 1967-1975 (2021) [MP3|320 Kbps] <Trad
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106135.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106135.jpg" />
 </div>
 
 
@@ -412,7 +441,7 @@ VA - Now Yearbook Extra '90 3 x CD, Compilation, Collectors Edition (2024) [MP3|
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106041.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106041.jpg" />
 </div>
 
 
@@ -441,7 +470,7 @@ VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 K
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_106039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_106039.jpg" />
 </div>
 
 
@@ -467,7 +496,7 @@ La Banda Salsa - Viva La Salsa (1976) LP [MP3|320 Kbps] <Latin, Funk Soul, Salsa
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105326.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105326.jpg" />
 </div>
 
 
@@ -496,7 +525,7 @@ VA - DJ Hits Vol. 2 New '97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105080.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105080.jpg" />
 </div>
 
 
@@ -525,7 +554,7 @@ VA - DJ Hits 14 (1997) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Eurodance>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105053.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105053.jpg" />
 </div>
 
 
@@ -554,7 +583,7 @@ Then Jerico - 4 Albums: Before The Future: 1984-1989 (2024) [MP3|320 Kbps] <New 
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_105021.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_105021.jpg" />
 </div>
 
 
@@ -583,7 +612,7 @@ VA - DJ Hits 170 (1996) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104905.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104905.jpg" />
 </div>
 
 
@@ -612,7 +641,7 @@ VA - DJ Hits Vol. 18 New (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro Hou
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104899.jpg" />
 </div>
 
 
@@ -641,7 +670,7 @@ VA - DJ Hits Vol. 275 (1997) [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Euro Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104811.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104811.jpg" />
 </div>
 
 
@@ -670,7 +699,7 @@ VA - DJ 301 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104810.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104810.jpg" />
 </div>
 
 
@@ -699,7 +728,7 @@ VA - DJ Hits Vol. 174 (1996) [OGG Vorbis|480 Kbps] <Electronic, Europop, Euro Ho
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_104807.jpg" />
 </div>
 
 
@@ -713,35 +742,6 @@ VA - DJ Hits Vol. 174 (1996) [OGG Vorbis|480 Kbps] <Electronic, Europop, Euro Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31056EA663B19E1C39B40EA6D8871F27F76095E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747681   (104714) от 06.09.2024
-
-David Hasselhoff - 2 Albums (1989-1990) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_104714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is Everybody Happy
-02. Lonely Is The Night
-03. Je T'Aime Means I Love You
-04. Sheitered Heart(   Читать дальше...   )Жанр: PopПродолжительность: 01:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83216A82BDAD7389C9606FC096BEA3D4CE25C7BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

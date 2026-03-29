@@ -6,7 +6,7 @@ AIMP 4.60 Build 2180 (17.05.2020) RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807563.jpg" />
+  <img src="Z:/picture/008/save_picture_807563.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Batch It Ultra 3.9896 [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807518.jpg" />
+  <img src="Z:/picture/008/save_picture_807518.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Bigasoft Video Downloader Pro 3.14.1.6285 RePack by вовава [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807480.jpg" />
+  <img src="Z:/picture/008/save_picture_807480.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Uninstall Tool 3.4.5 Build 5432 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807465.jpg" />
+  <img src="Z:/picture/008/save_picture_807465.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ CyberLink PowerDVD Ultra 20.0.1519.62 RePack by Lisabon [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807432.jpg" />
+  <img src="Z:/picture/008/save_picture_807432.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Namo WebEditor 9.0.0 RETAIL [Английский]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807377.jpg" />
+  <img src="Z:/picture/008/save_picture_807377.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ LibreOffice 4.4.2 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807312.jpg" />
+  <img src="Z:/picture/008/save_picture_807312.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ Rufus 2.8 (Build 886) Final Portable by PortableApps [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807310.jpg" />
+  <img src="Z:/picture/008/save_picture_807310.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ ReviverSoft PC Reviver 2.8.1.2 RePack by Manshet [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807304.jpg" />
+  <img src="Z:/picture/008/save_picture_807304.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Autodesk AutoCAD P&ID 2017 HF1 RUS-ENG
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807292.jpg" />
+  <img src="Z:/picture/008/save_picture_807292.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ Internet Download Manager 6.28 Build 3 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807224.jpg" />
+  <img src="Z:/picture/008/save_picture_807224.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Bigasoft Video Downloader Pro 3.14.1.6285 [Multi]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807222.jpg" />
+  <img src="Z:/picture/008/save_picture_807222.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ save2pc Ultimate 5.4.8 Build 1563 RePack by вовава [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807218.jpg" />
+  <img src="Z:/picture/008/save_picture_807218.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807212.jpg" />
+  <img src="Z:/picture/008/save_picture_807212.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ Wise Care 365 Pro 3.59.319 Final + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807203.jpg" />
+  <img src="Z:/picture/008/save_picture_807203.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ Torch Browser 39.0.0.9329 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807202.jpg" />
+  <img src="Z:/picture/008/save_picture_807202.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Microsoft Office 2016 Professional Plus + Visio Pro + Project Pro 16.0.4366.1000
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807180.jpg" />
+  <img src="Z:/picture/008/save_picture_807180.jpg" />
 </div>
 
 
@@ -448,7 +448,7 @@ ACDSee Pro 9.2 Build 524 RePack by KpoJIuK [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807174.jpg" />
+  <img src="Z:/picture/008/save_picture_807174.jpg" />
 </div>
 
 
@@ -474,7 +474,7 @@ Microsoft Office 2016 Standard 16.0.4366.1000 RePack by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807173.jpg" />
+  <img src="Z:/picture/008/save_picture_807173.jpg" />
 </div>
 
 
@@ -500,7 +500,7 @@ ReviverSoft PC Reviver 2.16.0.20 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807107.jpg" />
+  <img src="Z:/picture/008/save_picture_807107.jpg" />
 </div>
 
 
@@ -526,7 +526,7 @@ Cacheman 10.10.6.0 Repack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807104.jpg" />
+  <img src="Z:/picture/008/save_picture_807104.jpg" />
 </div>
 
 
@@ -552,7 +552,7 @@ WinCatalog 2017 17.04 RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807100.jpg" />
+  <img src="Z:/picture/008/save_picture_807100.jpg" />
 </div>
 
 
@@ -578,7 +578,7 @@ MediaHuman YouTube Downloader 3.9.8.10 (2203) [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807096.jpg" />
+  <img src="Z:/picture/008/save_picture_807096.jpg" />
 </div>
 
 
@@ -604,7 +604,7 @@ Cacheman 10.10.0.5 Portable by punsh [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807092.jpg" />
+  <img src="Z:/picture/008/save_picture_807092.jpg" />
 </div>
 
 
@@ -630,7 +630,7 @@ Geek Uninstaller 1.3.3.46 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807090.jpg" />
+  <img src="Z:/picture/008/save_picture_807090.jpg" />
 </div>
 
 
@@ -656,7 +656,7 @@ Wise Care 365 Pro 3.59.319 Final RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807088.jpg" />
+  <img src="Z:/picture/008/save_picture_807088.jpg" />
 </div>
 
 

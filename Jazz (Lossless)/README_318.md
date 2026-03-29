@@ -1,3 +1,119 @@
+###  Публикация: 1714071   (111759) от 08.04.2024
+
+Dick Noel - A Time for Love (1978) 2007, SSJ [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Time for Love [4:24]
+02. The Girl Next Door [5:33]
+03. Emily [4:17]
+04. My One and Only Love [4:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6ABC329504B29B921CD9B65590EC47C3246F0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714379   (111730) от 09.04.2024
+
+Pat Martino - We'll Be Together Again (1976) 1990, Breaktime [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Road (Olee, Variations and Song, Open Road) [16:00]
+02. Lament [5:04]
+03. We'll Be Together Again [5:05]
+04. You Don't Know What Love Is [4:46](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3638C1C4B0D8A7EB18BF3B7F933471C4B813F1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714377   (111728) от 09.04.2024
+
+Kenny Burrell - Moon And Sand (1979) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Latin Jazz, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moon and Sand [6:30]
+02. My Ship [6:37]
+03. For Once in My Life [4:23]
+04. U.M.M.G. [3:01](   Читать дальше...   )Жанр: Latin Jazz, Mainstream Jazz, Guitar JazzПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C552D6D5FDA144C253CB795453A49C35C3C65E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714382   (111719) от 09.04.2024
+
+Chris Connor - Sings Lullabys of Birdland (1956) 2007, Victor Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby of Birdland [2:23]
+02. What Is There to Say [2:54]
+03. Try a Little Tenderness [3:05]
+04. Spring Is Here [2:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D76761384FB677759CFD6B0FA8CFE7ECF6F4F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714768   (111673) от 10.04.2024
 
 Keely Smith - Little Girl Blue, Little Girl New (1963) 2017, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
@@ -6,7 +122,7 @@ Keely Smith - Little Girl Blue, Little Girl New (1963) 2017, Real Gone Music [FL
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111673.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111673.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Harold Alexander - Are You Ready? (1971) 2018, Solid Records [FLAC|Lossless|trac
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111654.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111654.jpg" />
 </div>
 
 
@@ -63,7 +179,7 @@ Jo Stafford - Jo + Jazz (1960) 2004, Corinthian [FLAC|Lossless|tracks + .cue] <V
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111651.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111651.jpg" />
 </div>
 
 
@@ -92,7 +208,7 @@ Lolly Allen - Coming Home (2016) 2019, OA2 Records [FLAC|Lossless|tracks + .cue]
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111609.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111609.jpg" />
 </div>
 
 
@@ -121,7 +237,7 @@ Dorothy Donegan - Sophisticated Lady (1980) 1991, Ornament [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111591.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111591.jpg" />
 </div>
 
 
@@ -150,7 +266,7 @@ Keely Smith - The Essential Capitol Collection (1950-e - 1960-e) 2007, Capitol R
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111588.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111588.jpg" />
 </div>
 
 
@@ -179,7 +295,7 @@ VA - Voices From The New Cool Vol. 2 (Nu Jazz Crooners & Female Jazz Singers) (2
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111564.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111564.jpg" />
 </div>
 
 
@@ -208,7 +324,7 @@ Papik - Cocktail Mina Vol.3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Acid 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111558.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111558.jpg" />
 </div>
 
 
@@ -237,7 +353,7 @@ VA - Relaxing Evening Jazz Chill out Playlist (2024) [FLAC|Lossless|WEB-DL|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111543.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111543.jpg" />
 </div>
 
 
@@ -266,7 +382,7 @@ VA - Greatest Feel-Good Intimate Jazz Tunes to Unwind (2024) [FLAC|Lossless|WEB-
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111535.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111535.jpg" />
 </div>
 
 
@@ -295,7 +411,7 @@ VA - Superb Soothing & Inviting Lounge Chill Out Playlist (2024) [FLAC|Lossless|
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111534.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111534.jpg" />
 </div>
 
 
@@ -324,7 +440,7 @@ VA - Sexy Feel-Good Intimate Lounge Relaxing Tracks to Chill (2024) [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111533.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111533.jpg" />
 </div>
 
 
@@ -353,7 +469,7 @@ VA - Italian Jazzy Mix for Restaurant (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111525.jpg" />
 </div>
 
 
@@ -382,7 +498,7 @@ James Carter - Layin' In The Cut (2000) Atlantic [FLAC|Lossless|tracks + .cue] <
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111523.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111523.jpg" />
 </div>
 
 
@@ -411,7 +527,7 @@ Anita O'Day - 1950 - 1952 (2003) Classics [FLAC|Lossless|image + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111520.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111520.jpg" />
 </div>
 
 
@@ -440,7 +556,7 @@ Anita O'Day - 1945 - 1950 (2002) Classics [FLAC|Lossless|image + .cue] <Vocal Ja
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111519.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111519.jpg" />
 </div>
 
 
@@ -469,7 +585,7 @@ Jeff Gaeth - Pecking Order (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111515.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111515.jpg" />
 </div>
 
 
@@ -498,7 +614,7 @@ VA - Jazz - ruhig und entspannt (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111513.jpg" />
 </div>
 
 
@@ -527,7 +643,7 @@ Halie Loren - Dreams Lost and Found (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111456.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111456.jpg" />
 </div>
 
 
@@ -556,7 +672,7 @@ Joel Ross - Nublues (2024) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Co
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111435.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111435.jpg" />
 </div>
 
 
@@ -585,7 +701,7 @@ Jo Stafford - It Had to Be You: Lost Radio Recordings (1950 - 1951) 2017, Real G
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111434.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111434.jpg" />
 </div>
 
 
@@ -614,7 +730,7 @@ Tal Farlow - Second Set (1956) 1998, Tokuma [FLAC|Lossless|tracks + .cue] <Bop, 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111433.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_111433.jpg" />
 </div>
 
 
@@ -628,122 +744,6 @@ Tal Farlow - Second Set (1956) 1998, Tokuma [FLAC|Lossless|tracks + .cue] <Bop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:205DA5C62AEE59B9BDD2DFDCC542B70DDA44F526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716092   (111379) от 14.04.2024
-
-Keely Smith - The Intimate Keely Smith (1964) 2016, Real Gone Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody Loves Me [4:09]
-02. As Long as He Needs Me [2:28]
-03. Blame It on My Youth [2:56]
-04. He Needs Me [2:42](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8547208331CBE7F899FB0490D6696C1E9E12BA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716086   (111378) от 14.04.2024
-
-Steve Davis - Crossfire (1997) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Then and Now [8:22]
-02. From the Inside Out [7:38]
-03. Peacekeeper [6:42]
-04. Old Folks [9:57](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17837C0BAB81E021CD683161ACBD62F7B6D074F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716199   (111367) от 14.04.2024
-
-Stacey Kent - The Summer We Crossed Europe In The Rain (The Kazuo Ishiguro / Jim Tomlinson Songbook) (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish I Could Go Travelling Again
-02. The Changing Lights
-03. So Romantic
-04. The Ice Hotel(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54869A34C2D306FB15A34612F7FF2025FAC30FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716351   (111361) от 15.04.2024
-
-Randy Brecker & Mats Holmquist - Together (2018) Mama Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_111361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Million Circumstances [9:13]
-02. Summer and Winter [7:17]
-03. Never Let Me Go [8:50]
-04. Windows [9:11](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 01:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96066E133C58227CF69B5FDE678A604424C578A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

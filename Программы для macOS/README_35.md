@@ -1,3 +1,140 @@
+###  Публикация: 1379241   (840976) от 28.04.2020
+
+liquivid Video Deflickering 1.4.1 [En/Rus]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840976.jpg" />
+</div>
+
+
+###  Подробнее
+
+liquivid Video Deflickering - это простое в использовании приложение, которое уменьшает или полностью удаляет мерцание на видео.
+Мерцание является результатом непоследовательной экспозиции видеокадров и может появляться в видеозаписи отдельных временных промежутков или в случае записи при определенных условиях освещения (например, при использовании пульсирующих источников (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.03.2020Разработчик: Razvan ChisuПоддерживаемая ОС: masOS 10.11+Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B00223F2D8C51E262C302E237F56E957FC8FEDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379395   (840853) от 28.04.2020
+
+Macsome Spotify Downloader 1.0.3 [Multi/Ru]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Spotify Downloader для Mac - это профессиональный Music Converter, Audio Downloader и Recorder, который может конвертировать все музыкальные файлы и плейлисты Spotify в MP3, AAC, FLAC и WAV и разблокировать Spotify, так что вы можете воспроизводить преобразованные треки на Sony PSP, Sony Walkman, iRiver, общий MP3-плеер и так далее.Тип издания: macOS SoftwareРелиз состоялся: 27.04.2020Разработчик: Macsome Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B05E15C5319AE593DA3DA7922343FD349FEA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 878820   (840263) от 16.03.2015
+
+Esko Studio Web 14 + Visualizer 14.0.1 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840263.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачем работать в плоском мире, если упаковка объемна? Studio — это уникальный набор средств трехмерного проектирования упаковки, разработанный специально для профессиональных дизайнеров-графиков.
+
+Studio поможет создавать более качественную графику. С помощью Studio и дизайнер, рассматривающий различные идеи оформления, и оператор допечатной подготовки, проверяющий (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2015Разработчик: ESKOПоддерживаемая ОС: 10.7.+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C80EE114D45E7A202665FB437C65377C437D1D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004324   (840103) от 05.04.2016
+
+iNet Network Scanner 2.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840103.jpg" />
+</div>
+
+
+###  Подробнее
+
+iNet предоставляет Вам информацию о сети к которой подключен ваш Mac . Удобный дизайн позволяет даже неопытным пользователям, получить полную информацию о вашей локальной сети.
+iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh . Для большинства (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 марта 2016Разработчик: BananaGlueПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34283FB7D2FEA9E1975CB353694C7E9B8CD6FB4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004146   (840007) от 05.04.2016
+
+ePub Metadata Editor 1.0.5 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_840007.jpg" />
+</div>
+
+
+###  Подробнее
+
+ePub Metadata Editor - Редактировать метаданные электронных книг в формате EPUB.
+
+С ePub Metadata Editor легко просматривать и изменять метаданные электронных книг в формате EPUB. Просто перетащите файл EPUB на главное окно или на значок в Док.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2014Разработчик: Sixty Four, LLCПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E111E26CCE9B648A4C41AD830FA67DECF3101A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004209   (839177) от 05.04.2016
 
 JetBrains WebStorm 2016.1.1 [En]
@@ -6,7 +143,7 @@ JetBrains WebStorm 2016.1.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839177.jpg" />
+  <img src="Z:/picture/008/save_picture_839177.jpg" />
 </div>
 
 
@@ -32,7 +169,7 @@ Hazel 3.3.8 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838308.jpg" />
+  <img src="Z:/picture/008/save_picture_838308.jpg" />
 </div>
 
 
@@ -58,7 +195,7 @@ Reflect Studio 2.4 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838298.jpg" />
+  <img src="Z:/picture/008/save_picture_838298.jpg" />
 </div>
 
 
@@ -86,7 +223,7 @@ Paprika Recipe Manager 2.2.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838050.jpg" />
+  <img src="Z:/picture/008/save_picture_838050.jpg" />
 </div>
 
 
@@ -115,7 +252,7 @@ Mirror for Samsung TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837942.jpg" />
+  <img src="Z:/picture/008/save_picture_837942.jpg" />
 </div>
 
 
@@ -144,7 +281,7 @@ Topaz ReMask Prime 1.0.1 [En]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837750.jpg" />
+  <img src="Z:/picture/008/save_picture_837750.jpg" />
 </div>
 
 
@@ -172,7 +309,7 @@ SimpleMind Full 1.12.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836782.jpg" />
+  <img src="Z:/picture/008/save_picture_836782.jpg" />
 </div>
 
 
@@ -200,7 +337,7 @@ iStatistica 1.2 [Multi/Ru]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836672.jpg" />
+  <img src="Z:/picture/008/save_picture_836672.jpg" />
 </div>
 
 
@@ -229,7 +366,7 @@ FileSalvage 9.1 (3.0) [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836607.jpg" />
+  <img src="Z:/picture/008/save_picture_836607.jpg" />
 </div>
 
 
@@ -258,7 +395,7 @@ VLC media player 2.2.2 [Multi/Ru]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836160.jpg" />
+  <img src="Z:/picture/008/save_picture_836160.jpg" />
 </div>
 
 
@@ -284,7 +421,7 @@ CCleaner Professional Edition for Mac 1.12.339 [En/Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836040.jpg" />
+  <img src="Z:/picture/008/save_picture_836040.jpg" />
 </div>
 
 
@@ -311,7 +448,7 @@ PullTube 0.9.8 [En]
 >>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835232.jpg" />
+  <img src="Z:/picture/008/save_picture_835232.jpg" />
 </div>
 
 
@@ -340,7 +477,7 @@ Mirror for Philips TV 1.4.1 [En]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835166.jpg" />
+  <img src="Z:/picture/008/save_picture_835166.jpg" />
 </div>
 
 
@@ -369,7 +506,7 @@ Day One 2.0.4 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834364.jpg" />
+  <img src="Z:/picture/008/save_picture_834364.jpg" />
 </div>
 
 
@@ -396,7 +533,7 @@ Capture One Pro 9.1.1 [Multi/Ru]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833920.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833920.jpg" />
 </div>
 
 
@@ -423,7 +560,7 @@ SEO Checker 1.3 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833157.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_833157.jpg" />
 </div>
 
 
@@ -452,7 +589,7 @@ Resume Templates for Pages 2016 v2.1 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832469.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_832469.jpg" />
 </div>
 
 
@@ -480,7 +617,7 @@ DirEqual 3.8.3 [Multi]
 >>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831910.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831910.jpg" />
 </div>
 
 
@@ -507,7 +644,7 @@ WidsMob HDR 2.13 [Multi]
 >>Графика для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831903.jpg" />
 </div>
 
 
@@ -533,7 +670,7 @@ Clearview 2.3.6 [En]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831900.jpg" />
 </div>
 
 
@@ -560,7 +697,7 @@ Aquarium HD Screensaver 3.3.0 [Multi]
 >>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831813.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_831813.jpg" />
 </div>
 
 
@@ -571,140 +708,6 @@ Aquarium HD Screensaver 3.3.0 [Multi]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D214EEBDB5D7A4639FDCF5A2E6E18E3C8C7DD1C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501950   (831741) от 12.10.2021
-
-Topaz DeNoise AI for Mac 3.3.3 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снимайте в любом месте при любом освещении без оговорок. Устраните шум и восстановите четкие детали на ваших изображениях с помощью первого инструмента для подавления шума - DeNoise AI. Вы можете быть удивлены полученными результатами.Тип издания: macOS SoftwareРелиз состоялся: 08.10.2021Разработчик: Topaz Labs.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B0958243C9FB78E53BBF2E00D21D99C0C0475C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114625   (831591) от 15.03.2017
-
-Wondershare Video Converter Ultimate 5.7.3 [Multi]
-
->>Программы для macOS
->>Аудио и видео редакторы для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Converter Ultimate — конвертирование, редактирование, улучшение, скачивание, запись, организация, захват видеосигнала и воспроизведения любого видео на своём Mac.
-
-Самое быстрое универсальное решение для развлечений с цифровым видео. Скачивайте видео на сверхвысокой скорости одним нажатием мыши! А ещё оцените мощь универсального медиа-плеера, встроенного видео-редактора, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 14 марта 2017Разработчик: WondershareПоддерживаемая ОС: Mac OS X 10.7+Язык интерфейса: Английский, Немецкий, Французский, Итальянский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FDBB826E2826E592FC8D19B5400AC3C2016F015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502139   (830390) от 13.10.2021
-
-TextFridge 1.3.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830390.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextFridge позволяет хранить множество текстов, которые вам часто приходится писать. (Хранить до 150 текстов)Тип издания: macOS SoftwareРелиз состоялся: 12.10.2021Разработчик: Guy MarandonПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2083E6570BA7D6A3B94C2B3851A51AEE110C8C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006010   (830281) от 10.04.2016
-
-Disk Drill Entreprise 2.4.441 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disk Drill - восстановление информации без помощи специалистов
-Disk Drill - программа, предназначенная для восстановления удалённых файлов с жесткого диска Вашего компьютера Mac, внешних HDD, USB флеш-накопителей, карт памяти и других носителей информации. Одна из важнейших особенностей программы - поддержка всех файловых систем, а именно: HFS/HFS+, FAT16/FAT32, (   Читать дальше...   )Тип издания: Mac OS X softwareРелиз состоялся: 01 апреля 2016Разработчик: CleverFilesПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский, Польский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:207A078CC6555BAD7CA327F51D90EECBEFE05BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502141   (830212) от 13.10.2021
-
-TextMate 2 v2.0.23 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830212.jpg" />
-</div>
-
-
-###  Подробнее
-
-TextMate для Mac OS - Отличный редактор программного кода и простых текстов. С помощью TextMate вы сможете обрабатывать скрипты, создавать макросы, интерактивно заполнять поля, проверять программный код на ошибки, подсвечивать код десятков языков программирования. Удобно реализована работа с множеством файлов, навигация и поиск по ним.
-Быстро растущее сообщество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.04.2021Разработчик: MacroMates Ltd.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3487B9A2CA061420CAB5711391B1314F438962
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -6,7 +6,7 @@ iZotope - Neutron Advanced 2.01.3071 VST, VST3, RTAS, AAX (x86/x64) [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707786.jpg" />
+  <img src="Z:/picture/008/save_picture_707786.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ AOMEI Backupper Technician Plus 4.1.0 (16.04.2018) RePack by KpoJIuK  [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707784.jpg" />
+  <img src="Z:/picture/008/save_picture_707784.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Tipard Video Converter Ultimate 9.0.22 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707759.jpg" />
+  <img src="Z:/picture/008/save_picture_707759.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ YouTube Video Downloader PRO 5.7 (20160511) Portable by PortableAppC [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707729.jpg" />
+  <img src="Z:/picture/008/save_picture_707729.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ Chromium 84.0.4147.105 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707683.jpg" />
+  <img src="Z:/picture/008/save_picture_707683.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Reg Organizer 8.11 Final RePack (& Portable) by KpoJluk [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707674.jpg" />
+  <img src="Z:/picture/008/save_picture_707674.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Microsoft Windows 7 (x86-5in1 x64-4in1 DVD5) update 15.04.2018 by 1Pawel [Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707673.jpg" />
+  <img src="Z:/picture/008/save_picture_707673.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Boris FX Sapphire Plug-ins 11.0.2 x64 fo Adobe CC RePack by pooshock [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707662.jpg" />
+  <img src="Z:/picture/008/save_picture_707662.jpg" />
 </div>
 
 
@@ -220,7 +220,7 @@ Radiocent 3.5.0.88 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707630.jpg" />
+  <img src="Z:/picture/008/save_picture_707630.jpg" />
 </div>
 
 
@@ -246,7 +246,7 @@ UC Browser 5.6.13108.1008 Portable by Sitego [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707618.jpg" />
+  <img src="Z:/picture/008/save_picture_707618.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ Microsoft Edge 84.0.522.58 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707582.jpg" />
+  <img src="Z:/picture/008/save_picture_707582.jpg" />
 </div>
 
 
@@ -298,7 +298,7 @@ Autorun Organizer 4.42 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707575.jpg" />
+  <img src="Z:/picture/008/save_picture_707575.jpg" />
 </div>
 
 
@@ -324,7 +324,7 @@ PassMark PerformanceTest 10.0 Build 1008 RePack (& Portable) by elchupacabra [Mu
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707526.jpg" />
+  <img src="Z:/picture/008/save_picture_707526.jpg" />
 </div>
 
 
@@ -350,7 +350,7 @@ Reg Organizer 8.51 RePack (& Portable) by TryRooM [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707519.jpg" />
+  <img src="Z:/picture/008/save_picture_707519.jpg" />
 </div>
 
 
@@ -376,7 +376,7 @@ RarmaRadio Pro 2.70.3 Portable by portable-rus [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707512.jpg" />
+  <img src="Z:/picture/008/save_picture_707512.jpg" />
 </div>
 
 
@@ -402,7 +402,7 @@ Microsoft Office 2007 Enterprise + Visio Pro + Project Pro SP3 12.0.6743.5000 Re
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707490.jpg" />
+  <img src="Z:/picture/008/save_picture_707490.jpg" />
 </div>
 
 
@@ -428,7 +428,7 @@ VSO ConvertXtoDVD 5.3.0.2 Final Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707474.jpg" />
+  <img src="Z:/picture/008/save_picture_707474.jpg" />
 </div>
 
 
@@ -454,7 +454,7 @@ YTD Video Downloader PRO 5.9.18.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707408.jpg" />
+  <img src="Z:/picture/008/save_picture_707408.jpg" />
 </div>
 
 
@@ -480,7 +480,7 @@ Opera 70.0.3728.106 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707407.jpg" />
+  <img src="Z:/picture/008/save_picture_707407.jpg" />
 </div>
 
 
@@ -506,7 +506,7 @@ Complete Internet Repair 5.2.3.4120 RePack (& Portable) by elchupacabra [Multi/R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707403.jpg" />
+  <img src="Z:/picture/008/save_picture_707403.jpg" />
 </div>
 
 
@@ -532,7 +532,7 @@ Microsoft Office 2007 Standard SP3 12.0.6743.5000 RePack by KpoJIuK (2016.06) [R
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707218.jpg" />
+  <img src="Z:/picture/008/save_picture_707218.jpg" />
 </div>
 
 
@@ -558,7 +558,7 @@ Adobe Photoshop CC 2015.1.2 (20160113.r.355) RePack by KpoJIuK (13.06.2016) [Mul
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707204.jpg" />
+  <img src="Z:/picture/008/save_picture_707204.jpg" />
 </div>
 
 
@@ -584,7 +584,7 @@ iZotope RX 5 Advanced Audio Editor 5.01.184 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707191.jpg" />
+  <img src="Z:/picture/008/save_picture_707191.jpg" />
 </div>
 
 
@@ -610,7 +610,7 @@ DVDFab 9.1.9.9 Final RePack (& Portable) by elchupacabra [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707170.jpg" />
+  <img src="Z:/picture/008/save_picture_707170.jpg" />
 </div>
 
 
@@ -636,7 +636,7 @@ Core Temp 1.16 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707167.jpg" />
+  <img src="Z:/picture/008/save_picture_707167.jpg" />
 </div>
 
 
@@ -662,7 +662,7 @@ Hekasoft Backup & Restore 0.94 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707134.jpg" />
+  <img src="Z:/picture/008/save_picture_707134.jpg" />
 </div>
 
 

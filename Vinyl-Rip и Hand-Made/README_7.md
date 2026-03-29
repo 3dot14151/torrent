@@ -1,3 +1,240 @@
+###  Публикация: 973683   (978127) от 10.01.2016
+
+VA - Blues & Ballads 2 (1996) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Pop, Cover>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valery - I Will Always Love You
+02. Power Band - Now I Know What Made Otis Blue
+03. Bill Power - Streets Of Philadelphia
+04. Jackie Moore - Why(   Читать дальше...   )Жанр: Pop, CoverПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FC4B473CF5E93F11827BE9F0B3A10C63FA29A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973397   (978125) от 10.01.2016
+
+Dana International - The Album (1998) [FLAC 2.0|16/44,1 |image+.cue (Vinyl-Rip)] <Euro House>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diva
+02. Cinque Milla (Remix)
+03. Maganuna (Remix)
+04. Qu'est Que C'est? (Remix)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF85AAC73B9E8EDFB901EAB0191411010D3F11DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972986   (978123) от 10.01.2016
+
+Ансамбль (Вокальный квартет) Аккорд (1964) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_978123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В дороге
+02. МустафаЖанр: PopПродолжительность: 00:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB6D34B1A3435F6784CDD64BB3529566B1AE85D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973432   (977974) от 10.01.2016
+
+Наутилус Помпилиус - 3 альбома (1988-1991) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC60A5BA2BB088F7C4F3A85FAD05C0E0ADF6D6F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616296   (976088) от 09.02.2013
+
+U2 - Achtung Baby (1991) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_976088.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Zoo Station 4:30
+A2. Even Better Than the Real Thing 4:04
+A3. One 3:54
+A4. Until The End Of The World 5:31
+A5. Who's Gonna Ride Your Wild Horses 4:31
+A6. So Cruel 4:21
+B1. The Fly 4:38
+B2. Mysterious Ways 3:42
+B3. Tryin' to Throw Your Arms Around the World 4:37
+B4. Ultraviolet (Light My Way) 4:40(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743561   (974369) от 09.01.2014
+
+Patricia Kaas - Mademoiselle Chante... (1988) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_974369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mon Mec A Moi   (4:20)
+02.  Venus Des Abribus   (3:55)
+03.  D'Allemagne   (4:25)
+04.  Des Mensonges En Musique   (4:18)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4569D68A1729E88EBF9C677A6815528BCCFFE8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974946   (973279) от 14.01.2016
+
+Максим Леонидов - Проплывая Над Городом (1997) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Rock & Roll, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973279.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Видение
+A2	(В Её Глазах) Хали-Гали
+A3	Девочка С Карибских Берегов
+A4	Дождь(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DBF7039DE6573EEC563F9086F6E36F72D8AEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617097   (973019) от 11.02.2013
+
+Queen - 13 Студийных альбомов + Mr. Bad Guy, Barcelona (1973-1992) [FLAC 2.0 24/192|image + .cue|tracks (Vinyl-Rip)]<Classic Rock>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_973019.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Barcelona 5:40
+A2. La Japonaise 4:50
+A3. The Fallen Priest 5:47
+A4. Ensueno 4:21
+B1. The Golden Boy 6:06
+B2. Guide Me Home 2:40
+B3. How Can I Go On 4:02
+B4. Overture Piccante 6:43Жанр: Classic RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336438EA30105DCE5C9EB29D9EE3EDC5049C727D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975609   (971775) от 15.01.2016
 
 Iron Maiden - The Number Of The Beast (1982) Reissue, 1987, Fame [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
@@ -6,7 +243,7 @@ Iron Maiden - The Number Of The Beast (1982) Reissue, 1987, Fame [FLAC 2.0 24/96
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971775.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_971775.jpg" />
 </div>
 
 
@@ -35,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968655.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968655.jpg" />
 </div>
 
 
@@ -61,7 +298,7 @@ David Bowie - Blackstar (2016) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Experimental 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_968525.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_968525.jpg" />
 </div>
 
 
@@ -90,7 +327,7 @@ The Alan Parsons Project - The Turn Of A Friendly Card (1980) [FLAC 2.0|96/24|im
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965548.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_965548.jpg" />
 </div>
 
 
@@ -119,7 +356,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962043.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_962043.jpg" />
 </div>
 
 
@@ -148,7 +385,7 @@ Deep Purple - The House Of Blue Light (Дом голубого света) (1987
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_958184.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_958184.jpg" />
 </div>
 
 
@@ -177,7 +414,7 @@ George Harrison - My Sweet Lord / Isn’t It A Pity (1970) [FLAC 2.0 24/96|track
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_957828.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_957828.jpg" />
 </div>
 
 
@@ -206,7 +443,7 @@ Scorpions - Taken By Force (1977) [Vinyl Rip 24Bit/96kHz]<Classic Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955211.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955211.jpg" />
 </div>
 
 
@@ -235,7 +472,7 @@ Scorpions - Sting In The Tail (2010) [Vinyl Rip 24Bit/192kHz]<Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955140.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955140.jpg" />
 </div>
 
 
@@ -264,7 +501,7 @@ Deep Purple - 7 альбомов (1970-1990) VinylRip 24 bit/96 kHz [FLAC]<Hard 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955127.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_955127.jpg" />
 </div>
 
 
@@ -293,7 +530,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954562.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954562.jpg" />
 </div>
 
 
@@ -322,7 +559,7 @@ Deep Purple - Burn (1974) 1976, Warner Bros. [FLAC 2.0|192/24|image + .cue|Vinyl
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954372.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_954372.jpg" />
 </div>
 
 
@@ -351,7 +588,7 @@ VA - RETROспектива, часть I: Эстрадные оркестры (1
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953579.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_953579.jpg" />
 </div>
 
 
@@ -380,7 +617,7 @@ U.D.O. (UDO) - Mean Machine (1988), RCA [FLAC 2.0|192/24|image + cue|Vinyl-Rip] 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952709.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_952709.jpg" />
 </div>
 
 
@@ -409,7 +646,7 @@ Deep Purple - Fireball (1971) [FLAC 2.0|96/24|image|Vinyl-Rip]<Hard Rock>
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951243.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_951243.jpg" />
 </div>
 
 
@@ -438,7 +675,7 @@ Triumvirat - 3LP (1975-1978) [FLAC 2.0|192/24|Lossless|image + .cue|Vinyl-Rip] <
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948933.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948933.jpg" />
 </div>
 
 
@@ -467,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948647.jpg" />
 </div>
 
 
@@ -496,7 +733,7 @@ VA - RETROспектива, часть III: Эстрадные оркестры 
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948575.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_948575.jpg" />
 </div>
 
 
@@ -510,238 +747,6 @@ VA - RETROспектива, часть III: Эстрадные оркестры 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84F4C7F50EB9BAA08B435D8DF13429EF11BEBCB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089961   (948567) от 05.01.2017
-
-VA - RETROспектива, часть IV: Эстрадные оркестры IV (1939-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эстрадный оркестр ВР п.у. Б. П. Карамышева - Я миланец (медленный фокстрот)
-02. Эстрадный оркестр ВР п.у. Б. П. Карамышева - Любопытство (мамбо-бегин)
-03. Инструментальное трио - Доброй ночи (фокстрот)
-04. Инструментальное трио - Маленькая мельница (фокстрот)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74FC521C0E5B5E509B7017D8E7D7430E9CFA2FD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089953   (948549) от 05.01.2017
-
-Chris Rea - 9 Albums (1979-1989) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948549.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Road To Hell (Part I)
-A2 The Road To Hell (Part II)
-A3 You Must Be Evil
-A4 Texas(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 07:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAB54180658E49682BA09E4CE562340867C4279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974553   (948484) от 05.01.2017
-
-Константин Никольский - Музыкант (Лучшие песни) (2015) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip)  <Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Зеркало мира
-02 - Один взгляд назад
-03 - Музыкант
-04 - Я сам из тех(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2743DB71521680C4B2496053C2ACDF6ACCB75877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090476   (947206) от 06.01.2017
-
-Annie Lennox - Diva (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947206.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Why (4:54)
-A2. Walking on Broken Glass (4:13)
-A3. Precious (5:10)
-A4. Stay by Me (6:26)(   Читать дальше...   )Производство: Not On Label - ДRT 1008Жанр: PopПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F90EFB35DE2E7ADE63B7B4637B29FD79445BDAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859025   (947050) от 12.01.2015
-
-Phil Collins - ...But Seriously (1989)  Incomplete version /1992, DRT/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947050.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. That's Just The Way It Is (5:21)
-A2. Do You Remember? (4:36)
-A3. Something Happened On The Way To Heaven (4:53)
-A4. I Wish It Would Rain Down (5:26)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83C0E242383563370901987D24639BC1F65DDE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090723   (945504) от 07.01.2017
-
-VA - RETROспектива, часть V: Эстрадные оркестры V (1929-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01  Гос. эстрад. орк. п.у. Л. Утесова - Быстрый вальс (вальс)
-02. Гос. эстрад. орк. п.у. Л. Утесова - Бальная полька (танец)
-03. Дух. орк. МО СССР п.у. Г. Ф. Запорожца - Над волнами (вальс)
-04. Эстрад. орк. ВР п.у. Б. П. Карамышева - Оборванные струны (старинный вальс)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64EC1438CFF672E72B126F86D5C54F55209E3FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983407   (943614) от 06.02.2016
-
-Black Sabbath - Группа Блэк Саббат (1989) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Hard Rock, Psychedelic Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Black Sabbath · Черная суббота  6:16
-2. N.I.B. · Эн.Ай.Би.  6:04
-3. Behind The Wall Of Sleep · За стеной сна  3:40(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Heavy MetalПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F7CA1DFB055F827D8A4D5B3632AE2936C4CE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983450   (943612) от 06.02.2016
-
-Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Down To The Waterline
-02 - Water Of Love
-03 - Setting Me Up
-04 - Six Blade Knife(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB81131B695136D0A311CD203087858A122DDC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

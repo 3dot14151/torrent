@@ -1,3 +1,107 @@
+###  Публикация: 1585456   (211689) от 22.10.2022
+
+Ужасающий 2 / Terrifier 2 (2022) WEB-DL [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_211689.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этот Хэллоуин в городке округа Майлз снова пробуждается зло: клоун Арт возвращается после воскрешения из мертвых. Чтобы остановить его, девушке с братом предстоит раскрыть секрет Арта и понять, из какого мира он пришел.Производство: США / Dark Age Cinema, Fuzz on the Lens ProductionsЖанр: ужасыРежиссер: Дэмиен ЛеонеАктеры: Дэвид Ховард Торнтон, Дженна Кэнелл, Лорен ЛаВера, Катрин Коркоран, Саманта Скаффиди, Фелисса Роуз, Кэти Магуайр, Гриффин Сантопьетро, Кэйси Хартнет, Kailey HymanПеревод: отсутствуетЯзык озвучки: английскийСубтитры: отсутствуютПродолжительность: 02:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83ECBB1A1893D560B45EBB1C21B4D13232728CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572341   (209633) от 26.08.2022
+
+Время для себя / Me Time (2022) WEB-DL [H.264/1080p] [EN / RU, UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает об отце, который впервые за много лет находит время для себя, пока его жена и дети отсутствуют. Он воссоединяется с другом для диких выходных.Производство: США / 5150 Action, Hartbeat ProductionsЖанр: комедияРежиссер: Джон ГамбургАктеры: Марк Уолберг, Кевин Харт, Луис Херардо Мендес, Реджина Холл, Джимми О. Ян, Джон Эймос, Таж Моури, Анна Мария Хорсфорд, Эндрю Сантино, Карло РотаПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, украинские, английские и др.Продолжительность: 01:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595823267B66C219FB1AE11D6ED7BEF001BE0139
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644992   (209609) от 07.07.2023
+
+Родители в законе / The Out-Laws (2023) WEB-DL [H.264/1080p] [EN / RU, UKR, EN, Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда банк, которым управляет Оуэн, грабят за несколько дней до его свадьбы, все улики указывают в одном невероятно неудобном направлении: на его будущих родственников.Производство: США / Happy Madison ProductionsЖанр: боевик, мелодрама, комедия, криминалРежиссер: Тайлер СпинделАктеры: Адам Дивайн, Пирс Броснан, Эллен Баркин, Нина Добрев, Майкл Рукер, Пурна Джаганнатан, Ричард Кайнд, Джули Хэгерти, Блейк Андерсон, Лорен ЛапкусПеревод: отсутствуетЯзык озвучки: английскийСубтитры: русские, украинские, английские (SDH) и др.Продолжительность: 01:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFEABF8863DFBFFF31B710D94ED605804B3294C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572336   (209601) от 26.08.2022
+
+Самаритянин / Samaritan (2022) WEB-DL [H.264/1080p] [EN / RU, UKR, EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="Z:/picture/005/save_picture_209601.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 лет спустя после эпической битвы, в которой супергерой Самаритянин уничтожил суперзлодея и пропал без вести. Через два десятилетия парнишка с окраины знакомится со стариком, живущим в доме напротив. Вскоре мальчик осознает, что пожилой мужчина — тот самый пропавший супергерой, а причина его исчезновения оказывается поистине шокирующей.Производство: США / Balboa Productions, Metro-Goldwyn-Mayer (MGM)Жанр: фантастика, фэнтези, боевик, драмаРежиссер: Джулиус ЭйвериАктеры: Сильвестр Сталлоне, Джейвон Уолтон, Пилу Асбек, Даша Поланко, София Татум, Мойзес Ариас, Мартин Старр, Jared Odrick, Майкл Аарон Миллиган, Генри Дж. СандерсПеревод: отсутствуетЯзык озвучки: английскийСубтитры: Русские, украинские, английские и др.Продолжительность: 01:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9829A98692BA60A11488171BDB2AAEE5D83AE104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1645136   (209468) от 08.07.2023
 
 Инициированные / Los Iniciados / The Initiated (2023) WEB-DL [H.264/1080p] [SPA / RU, SPA, EN, Sub]
@@ -6,7 +110,7 @@
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_209468.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_209468.jpg" />
 </div>
 
 
@@ -32,7 +136,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208667.jpg" />
+  <img src="Z:/picture/005/save_picture_208667.jpg" />
 </div>
 
 
@@ -58,7 +162,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208542.jpg" />
+  <img src="Z:/picture/005/save_picture_208542.jpg" />
 </div>
 
 
@@ -84,7 +188,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208314.jpg" />
+  <img src="Z:/picture/005/save_picture_208314.jpg" />
 </div>
 
 
@@ -110,7 +214,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_208187.jpg" />
+  <img src="Z:/picture/005/save_picture_208187.jpg" />
 </div>
 
 
@@ -136,7 +240,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207390.jpg" />
+  <img src="Z:/picture/005/save_picture_207390.jpg" />
 </div>
 
 
@@ -162,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207285.jpg" />
+  <img src="Z:/picture/005/save_picture_207285.jpg" />
 </div>
 
 
@@ -188,7 +292,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207160.jpg" />
+  <img src="Z:/picture/005/save_picture_207160.jpg" />
 </div>
 
 
@@ -214,7 +318,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_207112.jpg" />
+  <img src="Z:/picture/005/save_picture_207112.jpg" />
 </div>
 
 
@@ -240,7 +344,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206652.jpg" />
+  <img src="Z:/picture/005/save_picture_206652.jpg" />
 </div>
 
 
@@ -266,7 +370,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206560.jpg" />
+  <img src="Z:/picture/005/save_picture_206560.jpg" />
 </div>
 
 
@@ -292,7 +396,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206342.jpg" />
+  <img src="Z:/picture/005/save_picture_206342.jpg" />
 </div>
 
 
@@ -318,7 +422,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_206320.jpg" />
+  <img src="Z:/picture/005/save_picture_206320.jpg" />
 </div>
 
 
@@ -344,7 +448,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205907.jpg" />
+  <img src="Z:/picture/005/save_picture_205907.jpg" />
 </div>
 
 
@@ -370,7 +474,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_205573.jpg" />
+  <img src="Z:/picture/005/save_picture_205573.jpg" />
 </div>
 
 
@@ -396,7 +500,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_205084.jpg" />
+  <img src="Z:/picture/004/save_picture_205084.jpg" />
 </div>
 
 
@@ -422,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_204343.jpg" />
+  <img src="Z:/picture/004/save_picture_204343.jpg" />
 </div>
 
 
@@ -448,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203614.jpg" />
+  <img src="Z:/picture/004/save_picture_203614.jpg" />
 </div>
 
 
@@ -474,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203478.jpg" />
+  <img src="Z:/picture/004/save_picture_203478.jpg" />
 </div>
 
 
@@ -500,7 +604,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_203117.jpg" />
+  <img src="Z:/picture/004/save_picture_203117.jpg" />
 </div>
 
 
@@ -526,7 +630,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_202089.jpg" />
+  <img src="Z:/picture/004/save_picture_202089.jpg" />
 </div>
 
 
@@ -552,7 +656,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201735.jpg" />
+  <img src="Z:/picture/005/save_picture_201735.jpg" />
 </div>
 
 
@@ -563,110 +667,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:999818DD9D7FCBF2DE27177B237D32D02F0EAD03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617752   (201599) от 09.03.2023
-
-Триплексоголик / xxxHOLiC (2022) BDRip [H.264/1080p] [JP / RU Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кимихиро Ватануки обладает особой способностью видеть аякаси (призраков). Однажды бабочка приводит его в таинственный магазин, торгующий исполнением желаний. Там он встречает хозяйку магазина Итихару Юко (Фамилия и Имя не настоящие). Она говорит ему, что исполнит его желание за соразмерную плату в отношении самого драгоценного для него...Производство: Япония / Asmik Ace, Hachinoji, ShochikuЖанр: фэнтези, мистика, триллерРежиссер: Мика НинагаваАктеры: Рюносукэ Камики, Ко Сибасаки, Хокуто Мацумура, Тина Тамасиро, Сюри, Даоко, Серена Мотола, Нанасэ Нисино, Сакурако Охара, Тэнка ХасимотоПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские (отдельно)Продолжительность: 01:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B592019BAD2F92C7A37693D2306B7C5FAF3D53BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602711   (201579) от 09.03.2023
-
-Падающая звезда / Nagareboshi / Shooting Star (2021) HDTVRip [MPEG-2/1080i] [JP / RU, JP Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_201579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хосино Нацко закрывает пансионат «Хосюкан» в связи с непопулярностью данного формата гостиниц. Её муж уходит на собрание ассоциации жителей. Тогда она видела его в последний раз... На сорок девятый день перед ней возникает из ниоткуда девушка назвавшаяся «Юмэно Мари». Юная особа предложила вдове исполнить четыре её желания. Первым невысказанным желанием Нацко было (   Читать дальше...   )Производство: Япония, NHKЖанр: фантастика, мелодрамаРежиссер: Коно КэйтаАктеры: Мацудзака Кэйко, Куросима Юина, Тайра Юна, Кирияма Акито, Хории Арата, Окавара Мэгуми, Ёкояма Рё, Вакабаяси Гэнта, Оми Тосинори, Фунакоси ЭйитироПеревод: ОтсутствуетЯзык озвучки: ЯпонскийСубтитры: Русские (отдельно), Японские (ASS, отдельно)Продолжительность: 01:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48FBB846E812A1DE28605320EA3361BD99A2754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621016   (200893) от 24.03.2023
-
-Патхан / Pathaan (2023) WEBRip [H.265/1080p] [10-bit] [Hindi / RU, EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200893.jpg" />
-</div>
-
-
-###  Подробнее
-
-Индийский шпион берется за лидера группы наемников, у которых есть гнусные планы напасть на его родину.Производство: Индия, Yash Raj Films Pvt. Ltd.Жанр: боевик, приключения, драма, триллерРежиссер: Сиддхарт АнандАктеры: Шах Рукх Кхан, Джон Абрахам, Дипика Падукон, Димпл Кападиа Ашутош Рана, Салман Кхан, Вираф Патель, Шаджи Чаудхари и др.Перевод: отсутствуетЯзык озвучки: ХиндиСубтитры: русские, английские (SDH, Full)Продолжительность: 02:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE11702C8D0CC0CE8D468A6FE365C5DD749C52B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623107   (200468) от 31.03.2023
-
-Крид 3 / Creed III (2023) WEB-DL [H.264/1080p] [EN / EN Sub]
-
->>Зарубежное кино
->>Фильмы в оригинале (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_200468.jpg" />
-</div>
-
-
-###  Подробнее
-
-На свободу после длительного тюремного заключения выходит друг детства Крида и бывший вундеркинд бокса Дэмиан «Дама» Андерсон, который горит желанием доказать, что заслуживает своего шанса на ринге. Чтобы свести счеты, Донни должен поставить на карту свое будущее, ведь Дэмиану нечего терять.Производство: США / Metro-Goldwyn-Mayer (MGM), Chartoff-Winkler Productions, GlickmaniaЖанр: драма, спортРежиссер: Майкл Б. ДжорданАктеры: Майкл Б. Джордан, Тесса Томпсон, Джонатан Мэйджерс, Вуд Харрис, Филисия Рашад, Майла Дэвис-Кент, Хосе Бенавидез, Селенис Лейва, Флориан Мунтяну, Тадеус Дж. МиксонПеревод: отсутствуетЯзык озвучки: английскийСубтитры: английские (forced, SDH), французские и др.Продолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4BAA64F356B0208419A11F3ECEE7FDE4D29BA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

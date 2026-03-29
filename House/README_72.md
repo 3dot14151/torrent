@@ -1,3 +1,119 @@
+###  Публикация: 1272916   (141445) от 29.12.2018
+
+VA - Happy New Year Party 2019 (2018) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teknova - Ievan Polkka 2K18 (Melbourne Bounce Mix) 03:22
+02. FLGTT - Por Que No 2K19 (Radio Edit) 03:26
+03. MaxRiven - Moonlight Shadow (Original Mix) 03:37
+04. Turbotronic - Move That Body (Original Mix) 04:03(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63886F6F4CD055C4CFD09A8CA9A4A39C22DA4A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088194   (141125) от 30.12.2016
+
+VA - Workout After Xmas 2016 (2016) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_141125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Virility Ex - Unwrap 03:15
+02. Wunkeris - Cover 03:22
+03. Zucker - Schooling 03:41
+04. Troy Mandalon - Rethink 03:07(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E114431A37A03B8F61B9BD742E8253FB3A09919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088408   (140940) от 30.12.2016
+
+VA - Hardcore Bodybuilding Music 2016 (2016) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saber Wolf - Sacri [00:02:17]
+02. Sources - Just [00:03:14]
+03. Stereofield - Trans [00:03:14]
+04. Qamil Stello - Lead [00:02:48](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25EC2B9DA72EC722AC16CC63E76C92D8C6AA5E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195707   (140905) от 30.12.2017
+
+VA - Sunshine Dance 9 (2017) [MP3|320 Kbps] <House, Euro-House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vyto  -  Back (Radio Edit)  2:37
+02.  Dr. Beat  -  Helena (Radio Edit)  2:58
+03.  Deep Spirit  -  Lonely 2K16 (Club Edit)  3:25
+04.  Cliff Wedge  -  No One Like U (Radio Edit)  3:46(   Читать дальше...   )Жанр: House, Euro-House, DanceПродолжительность: 02:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC1F1A83035FF38CD99CDA7E9C9ECED55940A2BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195697   (140891) от 30.12.2017
 
 VA - International Sports Collective 7 (2017) [MP3|320 Kbps] <House, Euro-House, Vocal House>
@@ -6,7 +122,7 @@ VA - International Sports Collective 7 (2017) [MP3|320 Kbps] <House, Euro-House,
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_140891.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_140891.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ VA - Addicted 2 House, Vol. 30 (2018) [MP3|320 Kbps] <House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139807.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139807.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ VA - Deep Dark and Sexy Vol.1: Finest Deep and Elektro House (2016) [MP3|320 Kbp
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_139173.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_139173.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ VA - 5 Years Of Futura Groove Records (2018) [MP3|320 Kbps] <House, Tech House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_138059.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_138059.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ VA - Classic Car Dance Hits 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_137883.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_137883.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ FaraoN - 20 Hits Dance Music Collection (2025) [MP3|320 Kbps] <House, Deep House
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_136970.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_136970.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ VA - Xmas Night Party (2012) [MP3|320 кб/с]<Funky, Club House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135684.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135684.jpg" />
 </div>
 
 
@@ -215,7 +331,7 @@ VA - Progressive House Vol.2 (2012) [MP3|320 кб/с]<Progressive House, Club Ho
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_135677.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_135677.jpg" />
 </div>
 
 
@@ -250,7 +366,7 @@ VA - Dance Hits Winter Selection (2023) [MP3|320 Kbps] <Dance, Club, House, Elec
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134886.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134886.jpg" />
 </div>
 
 
@@ -279,7 +395,7 @@ VA - Ministry of Sound - The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, Hou
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_134501.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_134501.jpg" />
 </div>
 
 
@@ -308,7 +424,7 @@ VA - Housepital's Secret Club Weapons Vol.1 (2012) [MP3|320 кб/с]<Funky, Club
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133764.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133764.jpg" />
 </div>
 
 
@@ -343,7 +459,7 @@ VA - Jazzy Market (2010) [MP3|320 kbps] <Tech House, Deep House>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133228.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133228.jpg" />
 </div>
 
 
@@ -372,7 +488,7 @@ VA - The Best Of House 2023 Part 4 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133109.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133109.jpg" />
 </div>
 
 
@@ -401,7 +517,7 @@ VA - The Best Of House 2023 Part 3 (2023) [MP3|320 Kbps] <Dance, Club, House, El
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133099.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133099.jpg" />
 </div>
 
 
@@ -430,7 +546,7 @@ VA - Bass Boosted Car Music (2023) [MP3|320 Kbps] <Dance, Club, House, Electroni
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_133002.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_133002.jpg" />
 </div>
 
 
@@ -459,7 +575,7 @@ VA - Housepital's Secret Club Weapons Vol.2 (2012) [MP3|320 кб/с]<Progressive
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_132837.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_132837.jpg" />
 </div>
 
 
@@ -494,7 +610,7 @@ VA - Dance The Annual 2024 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129899.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129899.jpg" />
 </div>
 
 
@@ -523,7 +639,7 @@ VA - 50 DJ Tracks 2024 Vol. 1 (2023) [MP3|320 Kbps] <House, Dance, Club, Electro
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_129872.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_129872.jpg" />
 </div>
 
 
@@ -552,7 +668,7 @@ VA - Fresh Dance 2025 - The Future Hits (2025) [MP3|320 Kbps] <Dance, Club, Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128982.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128982.jpg" />
 </div>
 
 
@@ -581,7 +697,7 @@ VA - Magic Deep-House, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128969.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128969.jpg" />
 </div>
 
 
@@ -610,7 +726,7 @@ VA - Sirup Amsterdam 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hous
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_128968.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_128968.jpg" />
 </div>
 
 
@@ -639,7 +755,7 @@ VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Dance>
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127967.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_127967.jpg" />
 </div>
 
 
@@ -653,122 +769,6 @@ VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30DA5D2DB24398564D5FECFECD1BD7585043AC9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684693   (127619) от 16.12.2023
-
-VA - Christmas Party 2023-2024 (Best of Dance, EDM, House & Electro) (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stephan F - The Real One [03:09]
-02. MaxRiven - Back To The 2000s [02:27]
-03. Turbotronic - Thank You [03:08]
-04. Real Nam - Closer [02:33](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5194605E7B8E7363CA8BA0206843F224C6111C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684482   (127614) от 16.12.2023
-
-VA - Armada Music Year Mix 2023 [MP3|320 Kbps] <House, Progressive House, Dance, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Schilder - Shatterproof (Original Mix) [2:29]
-02. Tensnake & DRAMA - Rooftop (Extended Mix) [4:58]
-03. Andrea Oliva & Black Circle - Resonance (Extended Mix) [6:41]
-04. AMÉMÉ feat. Notre Dame - Runaway (Club Mix) [5:49](   Читать дальше...   )Жанр: House, Progressive House, Dance, ElectronicПродолжительность: 06:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575E121A6D13C4935B0A7AEEC9BB4DBA8225E055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684338   (127589) от 16.12.2023
-
-VA - Black Hole House Music 12-23 (2023) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dsnt Matter - Overused (Extended Mix) [5:05]
-02. Dirkie Coetzee & Deeper Calling - Starship Orion (Extended Mix) [5:56]
-03. HALIENE - Forgive You Anyway (NIO Remix) [3:30]
-04. Ginchy - Leading You (Extended Mix) [5:47](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:22:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B35804A03BFC4AF86CDFB52506052F3585182A25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684804   (127387) от 17.12.2023
-
-VA - Clubbing 2024 (2023) [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_127387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta - I’m Good (Blue) (2:55)
-02. noonoouri - Dominoes (2:40)
-03. Griff - Vertigo (2:59)
-04. Robin Schulz - Sweet Goodbye (2:37)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48B0A0DF8C9053320D65E83AA03A9C84482EBA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

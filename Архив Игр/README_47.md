@@ -6,7 +6,7 @@ Trine 2 + DCL [Ru/En/Multi14] (RePack/1.18) 2011 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482494.jpg" />
+  <img src="Z:/picture/008/save_picture_482494.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Endless Space - Emperor Special Edition [Ru/En/Multi3] (Lossless Repack/1.0.16) 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482231.jpg" />
+  <img src="Z:/picture/008/save_picture_482231.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Minecraft (RePack/12w36a) [Ru/Multi56] 2012 | R.G. Dev1l
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482226.jpg" />
+  <img src="Z:/picture/008/save_picture_482226.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ Minecraft (L/12w36a) [Ru/Multi56] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482225.jpg" />
+  <img src="Z:/picture/008/save_picture_482225.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ I Am Alive [Ru] (RePack/1.0) 2012 | SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482149.jpg" />
+  <img src="Z:/picture/008/save_picture_482149.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Minecraft (Server/12w36a) [En] 2012
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482148.jpg" />
+  <img src="Z:/picture/008/save_picture_482148.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ Saints Row: The Third [Ru/En/Multi9] (RePack/1.0.0.1) 2011 l SHARINGAN
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482147.jpg" />
+  <img src="Z:/picture/008/save_picture_482147.jpg" />
 </div>
 
 
@@ -191,7 +191,7 @@ Kingdoms of Amalur: Reckoning + 10 DLC [Ru/En] (Repack/1.0.0.2) 2012 | DangeSeco
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482026.jpg" />
+  <img src="Z:/picture/008/save_picture_482026.jpg" />
 </div>
 
 
@@ -217,7 +217,7 @@ Magicka 2 (2015) [Ru/Multi] (1.1.0.0/dlc) Repack R.G. Механики
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481300.jpg" />
+  <img src="Z:/picture/008/save_picture_481300.jpg" />
 </div>
 
 
@@ -243,7 +243,7 @@ Pro Evolution Soccer 2016 (2015) [Ru/En] (1.0) License RELOADED
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481138.jpg" />
+  <img src="Z:/picture/008/save_picture_481138.jpg" />
 </div>
 
 
@@ -269,7 +269,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478350.jpg" />
+  <img src="Z:/picture/008/save_picture_478350.jpg" />
 </div>
 
 
@@ -295,7 +295,7 @@ Dear Esther / Дорогая Эстер [Ru/En] (Lossless Repack/1.0r14) 2012 | 
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478220.jpg" />
+  <img src="Z:/picture/008/save_picture_478220.jpg" />
 </div>
 
 
@@ -325,7 +325,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478052.jpg" />
+  <img src="Z:/picture/008/save_picture_478052.jpg" />
 </div>
 
 
@@ -351,7 +351,7 @@ Mass Effect Трилогия [Ru] (RePack) 2008-2012 | DangeSecond
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477813.jpg" />
+  <img src="Z:/picture/008/save_picture_477813.jpg" />
 </div>
 
 
@@ -378,7 +378,7 @@ Freelancer [Ru/En] (L) 2003
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476593.jpg" />
+  <img src="Z:/picture/008/save_picture_476593.jpg" />
 </div>
 
 
@@ -406,7 +406,7 @@ Batman: Arkham City Game of the Year Edition + 6 DLC [Ru/En] (RePack) 2012 | Sas
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475554.jpg" />
+  <img src="Z:/picture/008/save_picture_475554.jpg" />
 </div>
 
 
@@ -433,7 +433,7 @@ Counter Strike 1.6 [Ru/En] (No-Steam) 2012 | keepe
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475418.jpg" />
+  <img src="Z:/picture/008/save_picture_475418.jpg" />
 </div>
 
 
@@ -461,7 +461,7 @@ PAYDAY: The Heist (2011) [Ru/En] (1.21.0/dlc) Repack Mizantrop1337
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474921.jpg" />
+  <img src="Z:/picture/008/save_picture_474921.jpg" />
 </div>
 
 
@@ -487,7 +487,7 @@ Better Late Than DEAD (2015) [Ru/Multi] (0.12.0 Alpha) Repack Let'sРlay
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474724.jpg" />
+  <img src="Z:/picture/008/save_picture_474724.jpg" />
 </div>
 
 
@@ -513,7 +513,7 @@ Craft of Gods / Ремесло богов (L) [Multi4+] 2010
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474689.jpg" />
+  <img src="Z:/picture/008/save_picture_474689.jpg" />
 </div>
 
 
@@ -539,7 +539,7 @@ Sanctum: Collection [Ru] (RePack/1.4.16365/8 DLC) 2011 | R.G. Element Arts
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473631.jpg" />
+  <img src="Z:/picture/008/save_picture_473631.jpg" />
 </div>
 
 
@@ -565,7 +565,7 @@ Darksiders 2: Death Lives [Ru/En] (Repack/u3) 2012 | R.G. Shift
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473452.jpg" />
+  <img src="Z:/picture/008/save_picture_473452.jpg" />
 </div>
 
 
@@ -593,7 +593,7 @@ Turmoil (2016) [En/Multi] (1.0/u30) License GOG
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472507.jpg" />
+  <img src="Z:/picture/008/save_picture_472507.jpg" />
 </div>
 
 
@@ -619,7 +619,7 @@ Reigns (2016) [Ru/Multi] (1.23/dlc) License GOG [Collector's Edition]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472484.jpg" />
+  <img src="Z:/picture/008/save_picture_472484.jpg" />
 </div>
 
 
@@ -645,7 +645,7 @@ The Long Dark  (2014) [Ru/Multi] (365) Repack Ученик_77
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472385.jpg" />
+  <img src="Z:/picture/008/save_picture_472385.jpg" />
 </div>
 
 
@@ -671,7 +671,7 @@ Free Running [English] [PAL] (2009) [Wii]
 >>Архив Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471517.jpg" />
+  <img src="Z:/picture/008/save_picture_471517.jpg" />
 </div>
 
 

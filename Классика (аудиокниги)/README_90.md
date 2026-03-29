@@ -1,3 +1,112 @@
+###  Публикация: 379893   (42364) от 26.09.2024
+
+Михаил Лермонтов | С небом гордая вражда (2011) [MP3, Леонид Кареев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_42364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Юрьевич Лермонтов (1814–1841) – великий русский поэт и прозаик, один из самых значимых представителей русской литературы ХIХ века.
+Моноспектакль «С небом гордая вражда», по произведениям Михаила Юрьевича Лермонтова в исполнении Леонида Ивановича Кареева – едва ли не первая попытка представить слушателю истинный, неискаженный облик поэта, истинную, а не общеизвестную (   Читать дальше...   )Жанр: Русская литература, классика, поэзия, историческое исследованиеИздательство: МедиаКнигаПродолжительность: 01:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8D7FC1C92DB8C1ED1C2F742D83A239C283C54C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380983   (41860) от 01.10.2024
+
+Даниэль Дефо | Робинзон Крузо (2008) [MP3, Александр Андриенко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41860.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Школьная библиотека.
+Даниэль Дефо (1660–1731) – английский романист, журналист и памфлетист, автор около четырехсот сочинений, в том числе журнальных статей, трактатов, проектов, биографий, книги путевых заметок, создатель первого классического приключенческого романа «Робинзон Крузо».
+Легенда мировой приключенческой литературы, не устаревшая и не утратившая (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: Аудиокнига (АСТ)Продолжительность: 12:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A5B4EBC52633260B85F043A56D2457EF34FFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 381006   (41838) от 01.10.2024
+
+Даниэль Дефо | Счастливая куртизанка или Роксана (2006) [MP3, Инна Сытник]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даниэль Дефо (1660–1731) – английский романист, журналист и памфлетист, автор около четырехсот сочинений, в том числе журнальных статей, трактатов, проектов, биографий, книги путевых заметок, создатель первого классического приключенческого романа «Робинзон Крузо».
+«Счастливая куртизанка, или Роксана» – последний роман Даниэля Дефо, открыл тему женщины-авантюристки, (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романПеревод: Татьяна ЛитвиноваИздательство: БиблиофоникаПродолжительность: 15:19:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE8203508AEE8CF1DDD9AD551DF0914E83FECF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752641   (41773) от 01.10.2024
+
+Даниэль Дефо | Дневник чумного года (2021) [MP3, Иван Забелин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даниэль Дефо (1660–1731) – знаменитый английский писатель и публицист рубежа XVII-XVIII вв., чьи произведения до сих пор остаются самыми читаемыми и любимыми по всему миру.
+Роман «Дневник чумного года» – своего рода страшная антиутопия, потрясшая современников холодной и даже немного чёрной ироничностью. Перед читателем предстаёт дневник очевидца Чумы и всех её страшных (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 09:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9AA4733ED6A52566634CB89B00F07A71111F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752639   (41768) от 01.10.2024
 
 Даниэль Дефо | Дальнейшие приключения Робинзона Крузо (2012) [MP3, Пётр Таганов]
@@ -6,7 +115,7 @@
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41768.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41768.jpg" />
 </div>
 
 
@@ -33,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41521.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41521.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41362.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41362.jpg" />
 </div>
 
 
@@ -88,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_41047.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_41047.jpg" />
 </div>
 
 
@@ -114,7 +223,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40430.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40430.jpg" />
 </div>
 
 
@@ -142,7 +251,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40424.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40424.jpg" />
 </div>
 
 
@@ -170,7 +279,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40390.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40390.jpg" />
 </div>
 
 
@@ -199,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40387.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40387.jpg" />
 </div>
 
 
@@ -228,7 +337,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40355.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40355.jpg" />
 </div>
 
 
@@ -255,7 +364,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40353.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40353.jpg" />
 </div>
 
 
@@ -284,7 +393,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40349.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40349.jpg" />
 </div>
 
 
@@ -312,7 +421,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40264.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40264.jpg" />
 </div>
 
 
@@ -340,7 +449,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40263.jpg" />
 </div>
 
 
@@ -369,7 +478,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40262.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40262.jpg" />
 </div>
 
 
@@ -396,7 +505,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40260.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40260.jpg" />
 </div>
 
 
@@ -425,7 +534,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40115.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40115.jpg" />
 </div>
 
 
@@ -452,7 +561,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40114.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40114.jpg" />
 </div>
 
 
@@ -479,7 +588,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40104.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40104.jpg" />
 </div>
 
 
@@ -506,7 +615,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39903.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39903.jpg" />
 </div>
 
 
@@ -534,7 +643,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39900.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39900.jpg" />
 </div>
 
 
@@ -562,7 +671,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39884.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39884.jpg" />
 </div>
 
 
@@ -590,7 +699,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39877.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_39877.jpg" />
 </div>
 
 
@@ -603,117 +712,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E65320F438C39426EF263EE5C92D4FF7FBF16053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364906   (39618) от 22.10.2024
-
-Кнут Гамсун | Виктория (2004) [MP3, Авангард Леонтьев]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист. Лауреат Нобелевской премии по литературе за 1920 год.
-Роман «Виктория» история о сильной не случившейся любви, где переплелись честь и гордыня, болезнь и смерть. И где любовь осталась единственной, мучительной, но неповторимой ценностью…Жанр: Зарубежная литература, классика, романПродолжительность: 02:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE571F1161153A29C52660E6F64EA285F26959F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364912   (39616) от 22.10.2024
-
-Кнут Гамсун | Рабы любви (2007) [MP3, Александр Бордуков, Алексей Золотницкий]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Союз классика.
-Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист. Лауреат Нобелевской премии по литературе за 1920 год.
- «Рабы любви» – произведения вдохновенного певца природы и любви, тонкого психолога, мастерски воспроизводящего мир душевных переживаний человека, вот уже более ста лет по-прежнему волнуют и привлекают людские сердца.Жанр: Зарубежная литература, классика, рассказ, новеллаИздательство: Издательский дом «Союз»Продолжительность: 03:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225AB0558EDA5AD53850C20B2355FEF2088D7B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 364910   (39612) от 22.10.2024
-
-Кнут Гамсун | Голод (2004) [MP3, Ирина Ерисанова]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: XX век. Зарубежная проза.
-Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист. Лауреат Нобелевской премии по литературе 1920 года.
-«Голод» – роман о молодом человеке из провинции, который мечтает стать писателем. Уверенный в собственной гениальности, он предпочитает страдать от нищеты, чем отказаться от амбиций. Больной душой и телом (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Юргис БалтрушайтисИздательство: Студия «АРДИС»Продолжительность: 06:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885527AA6F50E51FE69B06B6DDDB8FE27E564FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756617   (39582) от 22.10.2024
-
-Кнут Гамсун | Плоды земли (2023) [MP3, Сергей Дидок]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_39582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кнут Гамсун (1859–1952) – норвежский прозаик, драматург, поэт, публицист.
-«Плоды земли» – роман, за который он получил Нобелевскую премию по литературе в 1920 году. Роман начинается с того, что в лес приходит человек по имени Исаак, который начинает обустраивать в нём своё новое жильё. Вскоре к нему присоединяется девушка Ингер. Вместе с Исааком они занимаются хозяйством, (   Читать дальше...   )Жанр: Зарубежная литература, классика, романПеревод: Ксения ЖихареваИздательство: ИДДКПродолжительность: 15:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597F9474F8D95537A8834EE130E076A84A768A5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

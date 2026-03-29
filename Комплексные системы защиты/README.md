@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1861875   (1062783) от 
+
+ESET Endpoint Antivirus / ESET Endpoint Security 12.1.2076.1 RePack by KpoJIuK [Multi/Ru]
+
+>>Безопасность
+>>Комплексные системы защиты
+
+<div id="header" align="center">
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1062783.jpg" />
+</div>
+
+
+###  Подробнее
+
+ESET Endpoint Security — это комплексное решение для обеспечения безопасности, являющееся результатом долгих усилий, направленных на достижение оптимального сочетания максимальной степени защиты с минимальным влиянием на производительность компьютера. Современные технологии, основанные на применении искусственного интеллекта, способны превентивно противодействовать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B56FDAF0E2B11795D223344AF69F122A1E0F5896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849774   (1053631) от 24.01.2026
 
 ESET Endpoint Antivirus / ESET Endpoint Security 12.1.2076.0 RePack by KpoJIuK [Multi/Ru]
@@ -7,7 +33,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.1.2076.0 RePack by KpoJIuK [
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053631.jpg" />
+  <img src="Z:/picture/005/save_picture_1053631.jpg" />
 </div>
 
 
@@ -33,7 +59,7 @@ Kaspersky 21.8.5.452 Standard (TR) Online Installer [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045540.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1045540.jpg" />
 </div>
 
 
@@ -59,7 +85,7 @@ Kaspersky Total Security 21.3.10.391 (Web Installer) [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027825.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027825.jpg" />
 </div>
 
 
@@ -85,7 +111,7 @@ Kaspersky Internet Security 21.3.10.391 (Web Installer) [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027824.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027824.jpg" />
 </div>
 
 
@@ -113,7 +139,7 @@ Kaspersky Internet Security 21.3.10.391 (без KSeC) [Ru/En]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027791.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1027791.jpg" />
 </div>
 
 
@@ -140,7 +166,7 @@ Kaspersky Security Cloud 21.3.10.391 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026039.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1026039.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ Norton Security Deluxe 22.20.1.69 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977336.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_977336.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ Norton 360 22.20.2.57 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887920.jpg" />
+  <img src="Z:/picture/005/save_picture_887920.jpg" />
 </div>
 
 
@@ -218,7 +244,7 @@ Dr.Web Security Space 12.0.4.8300 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_874206.jpg" />
+  <img src="Z:/picture/005/save_picture_874206.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ Norton Security 22.21.8.62 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872461.jpg" />
+  <img src="Z:/picture/008/save_picture_872461.jpg" />
 </div>
 
 
@@ -273,7 +299,7 @@ ESET NOD32 Smart Security Premium 15.0.16.0 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818909.jpg" />
+  <img src="Z:/picture/008/save_picture_818909.jpg" />
 </div>
 
 
@@ -300,7 +326,7 @@ Avira Antivirus Pro 2018 15.0.34.17 [Ru/En]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818512.jpg" />
+  <img src="Z:/picture/008/save_picture_818512.jpg" />
 </div>
 
 
@@ -326,7 +352,7 @@ Kaspersky 21.5.11.384 Standard (Technical Release) [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737213.jpg" />
+  <img src="Z:/picture/008/save_picture_737213.jpg" />
 </div>
 
 
@@ -352,7 +378,7 @@ ESET Smart Security Premium 11.1.54.0 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694646.jpg" />
+  <img src="Z:/picture/008/save_picture_694646.jpg" />
 </div>
 
 
@@ -378,7 +404,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654474.jpg" />
+  <img src="Z:/picture/008/save_picture_654474.jpg" />
 </div>
 
 
@@ -405,7 +431,7 @@ ESET Smart Security 10.1.219.1 Final [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559080.jpg" />
+  <img src="Z:/picture/008/save_picture_559080.jpg" />
 </div>
 
 
@@ -431,7 +457,7 @@ AVG Internet Security 2016 16.131.7924 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363238.jpg" />
+  <img src="Z:/picture/008/save_picture_363238.jpg" />
 </div>
 
 
@@ -457,7 +483,7 @@ ZoneAlarm Extreme Security NextGen 3.3.407.0 (Web installer) (акция Comss) 
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/004/save_picture_247415.jpg" />
+  <img src="Z:/picture/004/save_picture_247415.jpg" />
 </div>
 
 
@@ -483,7 +509,7 @@ Kaspersky World of Tanks Edition 16.0.1.445 (f) [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_215042.jpg" />
+  <img src="Z:/picture/005/save_picture_215042.jpg" />
 </div>
 
 
@@ -509,7 +535,7 @@ ESET NOD32 Internet Security 19.0.11.0 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_205715.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_205715.jpg" />
 </div>
 
 
@@ -535,7 +561,7 @@ Kaspersky Plus Web installer 21.13.5.506 [Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/003/save_picture_196647.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/003/save_picture_196647.jpg" />
 </div>
 
 
@@ -561,7 +587,7 @@ Avast Premium Security 23.11.6090 [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_123235.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_123235.jpg" />
 </div>
 
 
@@ -587,7 +613,7 @@ ESET Endpoint Antivirus / ESET Endpoint Security 12.1.2057.3 RePack by KpoJIuK [
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/001/save_picture_41004.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/001/save_picture_41004.jpg" />
 </div>
 
 
@@ -613,7 +639,7 @@ Dr.Web Security Space 12.0.7.7111 Beta [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_40657.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_40657.jpg" />
 </div>
 
 
@@ -640,7 +666,7 @@ Comodo Internet Security Premium 12.3.4.8162 Final  [Multi/Ru]
 >>Комплексные системы защиты
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_34263.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/002/save_picture_34263.jpg" />
 </div>
 
 
@@ -651,32 +677,6 @@ Comodo Internet Security - бесплатное комплексное реше�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ACC7260A2508494AB0CBD2E09050A532DA2215C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771023   (31965) от 05.01.2025
-
-Kaspersky Small Office Security 21.19.7.527 [Ru]
-
->>Безопасность
->>Комплексные системы защиты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/002/save_picture_31965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaspersky Small Office Security обеспечивает комплексную защиту от различных видов информационных угроз, сетевых и мошеннических атак, а также спама. Для решения задач комплексной защиты в составе Kaspersky Small Office Security предусмотрены различные функции и компоненты защиты.Каждый тип угроз обрабатывается отдельным компонентом защиты. Вы можете включать и выключать (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD1B81FE8FC0EAAE7C81CA603098750F58396448
 ```
 
 https://mybot314.ru/tekegram_catalog/

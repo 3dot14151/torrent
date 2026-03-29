@@ -6,7 +6,7 @@ K-Lite Codec Pack Update 14.1.1 [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706095.jpg" />
+  <img src="Z:/picture/008/save_picture_706095.jpg" />
 </div>
 
 
@@ -32,7 +32,7 @@ Chromium 68.0.3399.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706084.jpg" />
+  <img src="Z:/picture/008/save_picture_706084.jpg" />
 </div>
 
 
@@ -58,7 +58,7 @@ Google Chrome 66.0.3359.117 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706083.jpg" />
+  <img src="Z:/picture/008/save_picture_706083.jpg" />
 </div>
 
 
@@ -84,7 +84,7 @@ GreenCloud Printer Pro 7.8.4 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706081.jpg" />
+  <img src="Z:/picture/008/save_picture_706081.jpg" />
 </div>
 
 
@@ -110,7 +110,7 @@ QQ Browser 10.0.972 Portable by Cento8 [Ru/Cn]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705992.jpg" />
+  <img src="Z:/picture/008/save_picture_705992.jpg" />
 </div>
 
 
@@ -136,7 +136,7 @@ Google Chrome 66.0.3359.117 Stable + Enterprise [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705989.jpg" />
+  <img src="Z:/picture/008/save_picture_705989.jpg" />
 </div>
 
 
@@ -162,7 +162,7 @@ YTD Video Downloader PRO 5.9.6 (20180315) RePack by вовава [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705983.jpg" />
+  <img src="Z:/picture/008/save_picture_705983.jpg" />
 </div>
 
 
@@ -188,7 +188,7 @@ oCam 280.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705974.jpg" />
+  <img src="Z:/picture/008/save_picture_705974.jpg" />
 </div>
 
 
@@ -214,7 +214,7 @@ SIV (System Information Viewer) 5.10 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705952.jpg" />
+  <img src="Z:/picture/008/save_picture_705952.jpg" />
 </div>
 
 
@@ -240,7 +240,7 @@ Opera 38.0.2220.31 Stable Portable by PortableAppZ [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705951.jpg" />
+  <img src="Z:/picture/008/save_picture_705951.jpg" />
 </div>
 
 
@@ -266,7 +266,7 @@ WSUS Offline Update 11.2.2 Portable [En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705897.jpg" />
+  <img src="Z:/picture/008/save_picture_705897.jpg" />
 </div>
 
 
@@ -292,7 +292,7 @@ Microsoft Windows and Office ISO Download Tool 6.02 Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705888.jpg" />
+  <img src="Z:/picture/008/save_picture_705888.jpg" />
 </div>
 
 
@@ -318,7 +318,7 @@ Aiseesoft Video Converter Ultimate 9.0.20 RePack (& Portable) by TryRooM [Multi/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705877.jpg" />
+  <img src="Z:/picture/008/save_picture_705877.jpg" />
 </div>
 
 
@@ -344,7 +344,7 @@ Glary Utilities Pro 5.53.0.74 RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705865.jpg" />
+  <img src="Z:/picture/008/save_picture_705865.jpg" />
 </div>
 
 
@@ -370,7 +370,7 @@ IObit Smart Defrag Pro 5.1.0.788 Final [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705778.jpg" />
+  <img src="Z:/picture/008/save_picture_705778.jpg" />
 </div>
 
 
@@ -396,7 +396,7 @@ oCam Screen Recorder 280.0 Portable by CheshireCat [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705776.jpg" />
+  <img src="Z:/picture/008/save_picture_705776.jpg" />
 </div>
 
 
@@ -422,7 +422,7 @@ Ad-Aware Free Antivirus+ 11.11.898.9090 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705766.jpg" />
+  <img src="Z:/picture/008/save_picture_705766.jpg" />
 </div>
 
 
@@ -449,7 +449,7 @@ Autorun Organizer 4.42 RePack (& Portable) by elchupacabra [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705686.jpg" />
+  <img src="Z:/picture/008/save_picture_705686.jpg" />
 </div>
 
 
@@ -475,7 +475,7 @@ Opera 38.0.2220.31 Stable RePack (& Portable) by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705677.jpg" />
+  <img src="Z:/picture/008/save_picture_705677.jpg" />
 </div>
 
 
@@ -501,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705666.jpg" />
+  <img src="Z:/picture/008/save_picture_705666.jpg" />
 </div>
 
 
@@ -527,7 +527,7 @@ Wise Disk Cleaner 10.3.1.782 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705610.jpg" />
+  <img src="Z:/picture/008/save_picture_705610.jpg" />
 </div>
 
 
@@ -553,7 +553,7 @@ Opera 70.0.3728.106 Portable by Cento8 [Ru/En]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705605.jpg" />
+  <img src="Z:/picture/008/save_picture_705605.jpg" />
 </div>
 
 
@@ -579,7 +579,7 @@ IObit Smart Defrag Pro 5.1.0.788 RePack by D!akov [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705599.jpg" />
+  <img src="Z:/picture/008/save_picture_705599.jpg" />
 </div>
 
 
@@ -605,7 +605,7 @@ Hotspot Shield Elite 5.20.23 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705598.jpg" />
+  <img src="Z:/picture/008/save_picture_705598.jpg" />
 </div>
 
 
@@ -631,7 +631,7 @@ ScreenPresso Pro 1.6.4.0 + Portable [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705597.jpg" />
+  <img src="Z:/picture/008/save_picture_705597.jpg" />
 </div>
 
 
@@ -657,7 +657,7 @@ Wondershare Filmora 7.3.0.8 [Multi/Ru]
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705592.jpg" />
+  <img src="Z:/picture/008/save_picture_705592.jpg" />
 </div>
 
 

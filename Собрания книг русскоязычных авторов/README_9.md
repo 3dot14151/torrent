@@ -1,3 +1,86 @@
+###  Публикация: 1358293   (683809) от 07.03.2022
+
+Анатолий Дроздов | Собрание сочинений [38 книг] (2003-2022) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_683809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатолий Фёдорович Дроздов  – белорусский писатель-фантаст.
+
+Родился 4 мая 1955 г. в г. Чаусы Могилёвской области в семье служащих. В 1972 г. после окончании средней школы переехал в Минск, где поступил на вечерний факультет Минского политехнического института. Работал слесарем-инструментальщиком на Минском авторемонтном заводе. В 1973–1975 гг. служил в пограничных (   Читать дальше...   )Жанр: Космическая фантастика, Героическая фантастика, Детективная фантастика, Социальная фантастика, Боевое фэнтези, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD5E49BEDECD7C6C7CFDF441ED0B79BC013BE401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222992   (680567) от 01.05.2018
+
+Владимир Василенко | Собрание сочинений [10 книг] (2006-2018) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_680567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Василенко о себе:
+Родился, вырос и до сих пор живу в небольшом посёлке – пригороде Новосибирска. На работу езжу в город. А работ сменил уже немало. Дольше всего (2 года) трудился журналистом в областной ежедневной газете. Помимо этого подвизался в различных смежных областях – реклама, PR, сценарии для компьютерных игр…
+
+Сочинять всякие истории начал лет (   Читать дальше...   )Жанр: Боевая фантастика, Боевое фэнтези, ЛитРПГФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9661F4769243253C9B69D6B248FD7B5D89EB471E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508617   (678792) от 10.06.2012
+
+Юрий Карлович Олеша | Собрание сочинений (1928-2008) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_678792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский советский прозаик, поэт, драматург. Родился 19 февраля (3 марта) 1899 в Елисаветграде. Отец, обедневший польский дворянин, был акцизным чиновником. Благодаря матери атмосфера в семье была проникнута духом католицизма. В 1902 семья переехала в Одессу. В воспоминаниях Олеша писал: «В Одессе я научился считать себя близким к Западу. В детстве я жил как бы в (   Читать дальше...   )Жанр: Художественная проза, мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F08509EFDF3EEB00DC6B587BA84D61C03962DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030730   (672062) от 01.07.2016
 
 Леонид Николаевич Андреев | Полное собрание сочинений и писем в 23-х томах [4 тома] (2007-2014) [PDF, DJVU]
@@ -6,7 +89,7 @@
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672062.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/006/save_picture_672062.jpg" />
 </div>
 
 
@@ -33,7 +116,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671567.jpg" />
+  <img src="Z:/picture/008/save_picture_671567.jpg" />
 </div>
 
 
@@ -59,7 +142,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668712.jpg" />
+  <img src="Z:/picture/008/save_picture_668712.jpg" />
 </div>
 
 
@@ -85,7 +168,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664054.jpg" />
+  <img src="Z:/picture/008/save_picture_664054.jpg" />
 </div>
 
 
@@ -114,7 +197,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661897.jpg" />
+  <img src="Z:/picture/008/save_picture_661897.jpg" />
 </div>
 
 
@@ -143,7 +226,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_660059.jpg" />
+  <img src="Z:/picture/008/save_picture_660059.jpg" />
 </div>
 
 
@@ -169,7 +252,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657899.jpg" />
+  <img src="Z:/picture/008/save_picture_657899.jpg" />
 </div>
 
 
@@ -197,7 +280,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657856.jpg" />
+  <img src="Z:/picture/008/save_picture_657856.jpg" />
 </div>
 
 
@@ -225,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657380.jpg" />
+  <img src="Z:/picture/008/save_picture_657380.jpg" />
 </div>
 
 
@@ -252,7 +335,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657373.jpg" />
+  <img src="Z:/picture/008/save_picture_657373.jpg" />
 </div>
 
 
@@ -279,7 +362,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656359.jpg" />
+  <img src="Z:/picture/008/save_picture_656359.jpg" />
 </div>
 
 
@@ -307,7 +390,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656228.jpg" />
+  <img src="Z:/picture/008/save_picture_656228.jpg" />
 </div>
 
 
@@ -333,7 +416,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655287.jpg" />
+  <img src="Z:/picture/008/save_picture_655287.jpg" />
 </div>
 
 
@@ -361,7 +444,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653739.jpg" />
+  <img src="Z:/picture/008/save_picture_653739.jpg" />
 </div>
 
 
@@ -387,7 +470,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653619.jpg" />
+  <img src="Z:/picture/008/save_picture_653619.jpg" />
 </div>
 
 
@@ -416,7 +499,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651249.jpg" />
+  <img src="Z:/picture/008/save_picture_651249.jpg" />
 </div>
 
 
@@ -443,7 +526,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651026.jpg" />
+  <img src="Z:/picture/008/save_picture_651026.jpg" />
 </div>
 
 
@@ -469,7 +552,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651019.jpg" />
+  <img src="Z:/picture/008/save_picture_651019.jpg" />
 </div>
 
 
@@ -495,7 +578,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650904.jpg" />
+  <img src="Z:/picture/008/save_picture_650904.jpg" />
 </div>
 
 
@@ -522,7 +605,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650702.jpg" />
+  <img src="Z:/picture/008/save_picture_650702.jpg" />
 </div>
 
 
@@ -548,7 +631,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650148.jpg" />
+  <img src="Z:/picture/008/save_picture_650148.jpg" />
 </div>
 
 
@@ -576,7 +659,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649251.jpg" />
+  <img src="Z:/picture/008/save_picture_649251.jpg" />
 </div>
 
 
@@ -602,7 +685,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647160.jpg" />
+  <img src="Z:/picture/008/save_picture_647160.jpg" />
 </div>
 
 
@@ -613,84 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C3CC8ECA1563782309C39EF294918B22FFC887A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032958   (641600) от 09.07.2016
-
-Надежда Александровна Тэффи | Собрание сочинений в 5-ти томах [5 томов] (2011) [PDF, FB2, DJVU]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Надежда Александровна Тэффи (Лохвицкая, в замужестве Бучинская; 1872—1952) — блестящая русская писательница, начавшая свой творческий путь со стихов и газетных фельетонов и оставившая наряду с А. Аверченко, И. Буниным и другими яркими представителями русской эмиграции значительное литературное наследие. Произведения Тэффи, весёлые и грустные, всегда остроумны и беззлобны, (   Читать дальше...   )Жанр: Классическая литератураФормат: PDF, FB2, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED67E16B08EE70CE220B88E24EE951E69F601742
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032942   (641499) от 09.07.2016
-
-Алексей Николаевич Толстой | Собрание сочинений в 10-ти томах [10 томов] (1958-1961) [DJVU]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Огромный художественный опыт А. Н. Толстого, яркий путь восхождения к вершинам мастерства в полной мере сохранили своё значение в настоящее время. А. Н. Толстым представлен в нашей литературе тип художника, занятого разработкой больших общественных вопросов. В своих произведениях автор проводит исследование общества и человеческой души; поднимает темы родины, патриотизма, (   Читать дальше...   )Жанр: Классическая литератураИздательство: ГослитиздатФормат: DJVUКачество: Хороший скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6511C0F4D2742BBAB0D9A62B5117F71251293D7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033270   (639699) от 10.07.2016
-
-Михаил Михайлович Зощенко | Собрание сочинений в 3-х томах [3 тома] (1986-1987) [DJVU]
-
->>Художественная литература
->>Собрания книг русскоязычных авторов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Михаил Михайлович Зощенко (1894—1958) занимает своё особое место в советской литературе как непревзойдённый рассказчик, создавший комический образ героя-обывателя, героя-мещанина с острым сатирическим звучанием. И не случайно его правдивые произведения оценивались часто партийными кругами как «клевета на советскую действительность».Жанр: Классическая литератураФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:647594F223F89D8EBDA302857267D06C3DA53F17
 ```
 
 https://mybot314.ru/tekegram_catalog/

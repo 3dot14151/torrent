@@ -1,3 +1,87 @@
+###  Публикация: 1566752   (478649) от 31.07.2022
+
+A Feast For Lampreys - Graveyard Abyss (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Boiling Gardens (00:05:09)
+02 - A God Without Remorse (00:05:00)
+03 - Secrets and Slime Eels (00:02:32)
+04 - Of Urchins and Worms (00:05:23)(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1A232B5C4F2C6049279A130EF590A4653F3744
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566813   (478648) от 31.07.2022
+
+Abstract Dream - A Vision Among The Stars (2021) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Night Is Falling Asleep (00:01:18)
+02 - Abstract Dream (00:13:48)
+03 - A Journey To The Unknown (00:14:15)
+04 - Hidden Dimensions (00:05:26)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D17CDB3D8C72196CFA0A38586D772FF43AA371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566808   (478647) от 31.07.2022
+
+Alcoholator - Escape from Reality (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_478647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IntroЖанр: Thrash MetalПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA87941329FFC9654BF3C2638474696BB4EFAFDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566918   (478645) от 31.07.2022
 
 Alcoholator - Coma (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -6,7 +90,7 @@ Alcoholator - Coma (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478645.jpg" />
+  <img src="Z:/picture/008/save_picture_478645.jpg" />
 </div>
 
 
@@ -35,7 +119,7 @@ Einherjer - North Star (2021) [FLAC|Lossless|image + .cue] <Black Metal, Folk Me
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478642.jpg" />
+  <img src="Z:/picture/008/save_picture_478642.jpg" />
 </div>
 
 
@@ -66,7 +150,7 @@ Crystal Gates - Torment & Wonder: The Ways Of The Lonely Ones (2022) [FLAC|Lossl
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478638.jpg" />
+  <img src="Z:/picture/008/save_picture_478638.jpg" />
 </div>
 
 
@@ -95,7 +179,7 @@ Lacrimosa - Revolution (2012) [FLAC|Lossless]<Symphonic Gothic Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478380.jpg" />
+  <img src="Z:/picture/008/save_picture_478380.jpg" />
 </div>
 
 
@@ -130,7 +214,7 @@ Doro - Calling The Wild (2000) 2CD, Reissue, 2010, Steamhammer [FLAC|Lossless|im
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478189.jpg" />
+  <img src="Z:/picture/008/save_picture_478189.jpg" />
 </div>
 
 
@@ -159,7 +243,7 @@ The Ugly - Thanatology (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478179.jpg" />
+  <img src="Z:/picture/008/save_picture_478179.jpg" />
 </div>
 
 
@@ -188,7 +272,7 @@ Diaboli - Wiking Division (2015) [FLAC|image+.cue]<Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478028.jpg" />
+  <img src="Z:/picture/008/save_picture_478028.jpg" />
 </div>
 
 
@@ -217,7 +301,7 @@ TesseracT - Polaris (2015) [FLAC|tracks+.cue]<Progressive Math Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477910.jpg" />
+  <img src="Z:/picture/008/save_picture_477910.jpg" />
 </div>
 
 
@@ -246,7 +330,7 @@ Self-Hatred - Theia (2016) [FLAC|Lossless|image + .cue] <Death Doom Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477723.jpg" />
+  <img src="Z:/picture/008/save_picture_477723.jpg" />
 </div>
 
 
@@ -275,7 +359,7 @@ Distant Past - Rise Of The Fallen (2016) [FLAC|Lossless|image + .cue] <Heavy Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_477719.jpg" />
+  <img src="Z:/picture/008/save_picture_477719.jpg" />
 </div>
 
 
@@ -304,7 +388,7 @@ Nova Enterprise - The Everlasting Paradox Of Spacetime (2022) [FLAC|Lossless|WEB
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476520.jpg" />
+  <img src="Z:/picture/008/save_picture_476520.jpg" />
 </div>
 
 
@@ -333,7 +417,7 @@ Crises - Broken Glass (1998) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476518.jpg" />
+  <img src="Z:/picture/008/save_picture_476518.jpg" />
 </div>
 
 
@@ -362,7 +446,7 @@ Mordred - The Dark Parade (2021) Japanese Edition [FLAC|Lossless|image + .cue] <
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476510.jpg" />
+  <img src="Z:/picture/008/save_picture_476510.jpg" />
 </div>
 
 
@@ -391,7 +475,7 @@ Ephel Duath - Phormula (2000) [FLAC|Lossless|image + .cue] <Black Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476277.jpg" />
+  <img src="Z:/picture/008/save_picture_476277.jpg" />
 </div>
 
 
@@ -420,7 +504,7 @@ Handful of Hate - You will bleed (2009) [FLAC|Lossless|image + .cue] <Black Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476276.jpg" />
+  <img src="Z:/picture/008/save_picture_476276.jpg" />
 </div>
 
 
@@ -449,7 +533,7 @@ Beastcraft - The Infernal Gospels of Primitive Devil Worship (2017) [FLAC|Lossle
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476275.jpg" />
+  <img src="Z:/picture/008/save_picture_476275.jpg" />
 </div>
 
 
@@ -478,7 +562,7 @@ Pyracanda - Thorns (1992) [FLAC|Lossless|image + .cue] <Thrash Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476274.jpg" />
+  <img src="Z:/picture/008/save_picture_476274.jpg" />
 </div>
 
 
@@ -507,7 +591,7 @@ Num Skull - Ritually Abused (1988) [FLAC|Lossless|image + .cue] <Thrash Metal, D
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476272.jpg" />
+  <img src="Z:/picture/008/save_picture_476272.jpg" />
 </div>
 
 
@@ -536,7 +620,7 @@ Vio-lence - 3 Albums (1988-1993) Discography, 4 CD, Reissues 1997, 2005 [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476178.jpg" />
+  <img src="Z:/picture/008/save_picture_476178.jpg" />
 </div>
 
 
@@ -565,7 +649,7 @@ Metal Allegiance - Metal Allegiance (2015) [FLAC|Lossless|WEB-DL]<Thrash / Heavy
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475799.jpg" />
+  <img src="Z:/picture/008/save_picture_475799.jpg" />
 </div>
 
 
@@ -594,7 +678,7 @@ Overtures - Strangers In Paradise (2016) [FLAC|Lossless|image + .cue] <Melodic H
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475470.jpg" />
+  <img src="Z:/picture/008/save_picture_475470.jpg" />
 </div>
 
 
@@ -623,7 +707,7 @@ Avandra - Descender (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475283.jpg" />
+  <img src="Z:/picture/008/save_picture_475283.jpg" />
 </div>
 
 
@@ -652,7 +736,7 @@ Delain - Apocalypse & Chill (2020) Limited Edition [FLAC|Lossless|image + .cue] 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475034.jpg" />
+  <img src="Z:/picture/008/save_picture_475034.jpg" />
 </div>
 
 
@@ -666,93 +750,6 @@ Delain - Apocalypse & Chill (2020) Limited Edition [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6327CD7AAC417E2EC0E36B7107B313F3F1D6F5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567364   (474548) от 02.08.2022
-
-Turbo - Tozsamosc (2004) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Powitanie
-02. Ach! Nie badz taki smialy
-03. Wszystko bedzie OK
-04. Kawaleria Szatana II(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5358DB5C86541093B3966644F086F41E27892B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567345   (474543) от 02.08.2022
-
-Mordred - The Noise Years (2021) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Thrash Metal, Funk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474543.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Fool's Game (1989):
-01. State Of Mind
-02. Spectacle Of Fear
-03. Every Day's A Holiday(   Читать дальше...   )Жанр: Thrash Metal, Funk MetalПродолжительность: 02:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:795A780DA199B7D82976307D97A6AB1BD03C3386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547318   (473733) от 15.09.2012
-
-Dio - Singles Box Set (2012) Anthology [FLAC|Lossless]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of Rock 'N' Roll (Live at Intermission, 1986)
-02. Rainbow In The Dark (Live at Intermission, 1986)
-03. Sacred Heart (Live at Intermission, 1986)
-04. Time To Burn (Live at Intermission, 1986)(   Читать дальше...   )Жанр: Heavy Metal |Продолжительность: 03:31:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

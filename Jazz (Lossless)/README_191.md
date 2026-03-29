@@ -1,3 +1,119 @@
+###  Публикация: 1167713   (415094) от 21.09.2017
+
+The Dick Morrissey Quartet - Here And Now And Sounding Good! (1966) 1995, Norma [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_415094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Off The Wagon [08:21]
+02. Corpus [07:05]
+03. Don't Fall Over The Bridge [04:18]
+04. Sunday Lunch [08:05](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:39:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B43CC9A3FD693E5688AC8158063424E0D389A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066276   (414948) от 25.10.2016
+
+Carmen McRae - Something to Swing About (1959) 1989, Warner[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Three Little Words [01:55]
+ 02.I Couldn't Care Less [02:27]
+ 03.That's for Me [02:50]
+ 04.(How Little It Matters) How Little We Know [02:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:29:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F5569910BD6ADFE02E0649E97962A23F76C9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066336   (414944) от 25.10.2016
+
+June Christy - Gone For The Day And Fair And Warmer (1957) 1998, Capitol[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's So Peaceful In The Country [04:23]
+ 02.When The Sun Comes Out [03:12]
+ 03.It's A Most Unusual Day [02:24]
+ 04.Interlude [04:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:09:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B51488FC7D11AB090CBFD6EF1CE378C58BE7315A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572753   (414918) от 30.08.2022
+
+Roy Eldridge - Swingin' On The Town (1960) 1999, Verve [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_414918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossa Nova [2:47]
+02. The Way You Look Tonight [2:26]
+03. Sweet Sue, Just You [2:29]
+04. I've Got a Crush on You [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F779000C4942EF57602395B019DB1CFEC129D450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572893   (414917) от 30.08.2022
 
 The Jones Brothers - Keepin' Up With The Joneses (1958) 1999, Verve [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Mainstream Jazz>
@@ -6,7 +122,7 @@ The Jones Brothers - Keepin' Up With The Joneses (1958) 1999, Verve [FLAC|Lossle
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414917.jpg" />
+  <img src="Z:/picture/008/save_picture_414917.jpg" />
 </div>
 
 
@@ -35,7 +151,7 @@ Sadao Watanabe - Open Road (1973) 2CD, 2000, SME Records [FLAC|Lossless|tracks +
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414916.jpg" />
+  <img src="Z:/picture/008/save_picture_414916.jpg" />
 </div>
 
 
@@ -64,7 +180,7 @@ Nat King Cole - Unforgettable (1954) 2007, Collectors' Choice Music[FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414771.jpg" />
+  <img src="Z:/picture/008/save_picture_414771.jpg" />
 </div>
 
 
@@ -93,7 +209,7 @@ Anders Widmark Trio - Psalmer (1997) Kaza [FLAC|Lossless|tracks + .cue] <Post-Bo
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414681.jpg" />
+  <img src="Z:/picture/008/save_picture_414681.jpg" />
 </div>
 
 
@@ -122,7 +238,7 @@ Betty Carter - Whatever Happened To Love? (1982) 1989, Verve Records [FLAC|Lossl
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414676.jpg" />
+  <img src="Z:/picture/008/save_picture_414676.jpg" />
 </div>
 
 
@@ -151,7 +267,7 @@ Bill Evans Trio - At the Village Vanguard August 17 (1967) 2004, 2CD, Verve Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413835.jpg" />
+  <img src="Z:/picture/008/save_picture_413835.jpg" />
 </div>
 
 
@@ -180,7 +296,7 @@ Bill Evans Trio - At the Village Vanguard August 18 (1967) 2004, 2CD, Verve Reco
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413829.jpg" />
+  <img src="Z:/picture/008/save_picture_413829.jpg" />
 </div>
 
 
@@ -209,7 +325,7 @@ Donny McCaslin - Seen From Above (2000) Arabesque Jazz [FLAC|Lossless|tracks + .
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413516.jpg" />
+  <img src="Z:/picture/008/save_picture_413516.jpg" />
 </div>
 
 
@@ -238,7 +354,7 @@ VA - The Newport Jazz Festival All-Stars & Bern Concert '89 (1990) Concord Jazz 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_413515.jpg" />
+  <img src="Z:/picture/008/save_picture_413515.jpg" />
 </div>
 
 
@@ -267,7 +383,7 @@ Bill Leslie - Diggin' the Chicks (1962) 2004, Universal [FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412903.jpg" />
+  <img src="Z:/picture/008/save_picture_412903.jpg" />
 </div>
 
 
@@ -296,7 +412,7 @@ Terry Gibbs - Hootenanny My Way (1963) 2017, Solid Records [FLAC|Lossless|tracks
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412899.jpg" />
+  <img src="Z:/picture/008/save_picture_412899.jpg" />
 </div>
 
 
@@ -325,7 +441,7 @@ Johnny Smith - Plays Jimmy Van Heusen (1955) 2017, Warner [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412896.jpg" />
+  <img src="Z:/picture/008/save_picture_412896.jpg" />
 </div>
 
 
@@ -354,7 +470,7 @@ Deborah Franciose - Gypsy Heart (1993) North Star Records [FLAC|Lossless|tracks 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412807.jpg" />
+  <img src="Z:/picture/008/save_picture_412807.jpg" />
 </div>
 
 
@@ -383,7 +499,7 @@ Ernie Andrews - Jump For Joy (2003) HighNote [FLAC|Lossless|tracks + .cue] <Voca
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412805.jpg" />
+  <img src="Z:/picture/008/save_picture_412805.jpg" />
 </div>
 
 
@@ -412,7 +528,7 @@ Anders Widmark Trio - Visor (2010) Blue Records [FLAC|Lossless|tracks + .cue] <P
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412803.jpg" />
+  <img src="Z:/picture/008/save_picture_412803.jpg" />
 </div>
 
 
@@ -441,7 +557,7 @@ Masahiko Satoh featuring Eddie Gomez And Steve Gadd - As If... (1985) Denon [APE
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412532.jpg" />
+  <img src="Z:/picture/008/save_picture_412532.jpg" />
 </div>
 
 
@@ -470,7 +586,7 @@ Duke Ellington - Reminiscing In Tempo (1928-1960) 1991, Columbia[FLAC|Lossless|t
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412403.jpg" />
+  <img src="Z:/picture/008/save_picture_412403.jpg" />
 </div>
 
 
@@ -499,7 +615,7 @@ Ike Quebec - Swing Hi Swing Lo (1944-1946) 1999, Disconforme[FLAC|Lossless|track
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412400.jpg" />
+  <img src="Z:/picture/008/save_picture_412400.jpg" />
 </div>
 
 
@@ -528,7 +644,7 @@ Nat King Cole - 10th Anniversary (1955) 2007, Collectors' Choice Music[FLAC|Loss
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412398.jpg" />
+  <img src="Z:/picture/008/save_picture_412398.jpg" />
 </div>
 
 
@@ -557,7 +673,7 @@ June Christy - Sings The Standards (1956-2001) 2002, EMI[FLAC|Lossless|tracks + 
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412394.jpg" />
+  <img src="Z:/picture/008/save_picture_412394.jpg" />
 </div>
 
 
@@ -586,7 +702,7 @@ Louis Armstrong - Collected (1920-e - 1960-e) 2018, 3CD, Universal [FLAC|Lossles
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411910.jpg" />
+  <img src="Z:/picture/008/save_picture_411910.jpg" />
 </div>
 
 
@@ -615,7 +731,7 @@ Mitchel Forman - Harvest Song (1997) /Jazzline/[FLAC|image+.cue]<Jazz Fusion, Po
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411789.jpg" />
+  <img src="Z:/picture/008/save_picture_411789.jpg" />
 </div>
 
 
@@ -629,122 +745,6 @@ Mitchel Forman - Harvest Song (1997) /Jazzline/[FLAC|image+.cue]<Jazz Fusion, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A69C1E1CCD5CAA85BBAA36665CF5C68A3A500217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948334   (411788) от 20.10.2015
-
-Ray Bryant - Trio (1956) /2014, Sony Music/[FLAC|tracks+.cue]<Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cubano Chant [03:07]
- 02.Off Shore [03:57]
- 03.Well, You Needn't [03:19]
- 04.Cry Me A River [03:52](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379BCA055470FBF14180D86181B5ABDBE69A7410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948604   (411612) от 20.10.2015
-
-Johnny "Hammond" Smith Trio plus Seldon Powell - Black Coffee (1962) /2012, Universal/[FLAC|tracks+.cue]<Soul-Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Black Coffee [04:20]
- 02.Monterey Theme [03:08]
- 03.I Remember Clifford [04:19]
- 04.Far Away Places [07:17](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09C5CEFDD0EFEBA4FDFE1ADBE66984B9120F656C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948255   (411605) от 20.10.2015
-
-Scott Hamilton - plays with The Dany Doriz Caveau De La Huchette Orchestra (2014) /Fremeaux & Associes/[FLAC|tracks+.cue]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Slipped Disc [04:25]
- 02.Dropsy [05:14]
- 03.Cotton Tail [04:35]
- 04.Amen [07:39](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A76F9848C97FD274527123F5A15C76637F1D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948328   (411604) от 20.10.2015
-
-Johnny Hammond - Gambler's Life (1974) /2013, King Records/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_411604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Gambler's Life [06:03]
- 02.Rhodesian Thoroughfare [06:21]
- 03.This Year's Dream [06:25]
- 04.Star Borne [08:21](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hammond OrganПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E33B4DF130B8E0235D949A59D25454B5D3552D
 ```
 
 https://mybot314.ru/tekegram_catalog/

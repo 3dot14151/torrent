@@ -1,3 +1,168 @@
+###  Публикация: 1320699   (466933) от 20.08.2019
+
+Художественная гимнастика. Чемпионат Европы 2019. Баку (Азербайджан). День 3-й (2019) WEBRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466933.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 мая 2019 года
+35-й Чемпионат Европы по художественной гимнастике 2019 года. Баку (Азербайджан)
+День 3-й:
+Сениорки:  Личное первенство. Квалификация (булавы и лента)(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 07:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EB4B8DABEF645E788BCF1E3D234BF1DB323DFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320700   (466923) от 20.08.2019
+
+Художественная гимнастика. Чемпионат Европы 2019. Баку (Азербайджан). День 4-й (2019) WEB-DLRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466923.jpg" />
+</div>
+
+
+###  Подробнее
+
+19 мая 2019 года
+35-й Чемпионат Европы по художественной гимнастике 2019 года. Баку (Азербайджан)
+День 4-й:
+1. Юниорки: Группы. Финалы в отдельных видах упражнения(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 04:09:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184A07FA0F8676B8B52AB57AFADFBABD5CDE1650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548844   (466911) от 18.09.2012
+
+Рестлинг / WWE Night Of Champions (2012) HDTVRip [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Night Of Champions - одно из PPV на WWE.Жанр: СпортПеревод: Многоголосый закадровый, любительскийПродолжительность: 02:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA77AE388574FDBDAE2F0689CA4B724C3E29ACF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548847   (466882) от 18.09.2012
+
+Рестлинг / WWE Night Of Champions (Preshow) (2012) HDTVRip [H.264]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Night Of Champions - одно из PPV на WWE.Жанр: СпортПеревод: Двуголосый закадровый, любительскийПродолжительность: 00:27:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2F5D38442E359B97B4E173AFAF452419FCC620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407287   (466717) от 07.09.2020
+
+Национальное первенство Германии по шоссейно-кольцевым автогонкам ДТМ 2020. Ассен, Гонка 1-2 / DTM. Assen, Race 1-2 (2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deutsche Tourenwagen-Meisterschaft (DTM, ДТМ; Немецкий кузовной чемпионат) — немецкий чемпионат по кузовным гонкам, проводившийся в 1984—1996 годах. В свою очередь, в 2000 году чемпионат возродился как нынешний ДТМ (Deutsche Tourenwagen Masters), ввиду чего старый чемпионат также может называться «старый ДТМ».Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:29:16 + 01:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7549727C1CEF98EE8C5D733E7A1CAC825359C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058733   (466623) от 02.10.2016
+
+Хоккей. КХЛ 2016-2017. Сибирь (Новосибирск) - Трактор (Челябинск) (27.09.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_466623.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 сентября 2016, вторник. 15:30 МСК
+КХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: ЛДС «Сибирь» (Новосибирск, Россия), 7400 зрителей (100 % при вместимости 7400)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26BD2B99351AA6A1FD811E7B7D8B95EE957B05A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057998   (466622) от 02.10.2016
 
 Мини-футбол (Футзал). Чемпионат мира-2016. 1/2 финала. Аргентина - Португалия (28.09.2016) WEB-DL [H.264/720p-LQ]
@@ -6,7 +171,7 @@
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466622.jpg" />
+  <img src="Z:/picture/008/save_picture_466622.jpg" />
 </div>
 
 
@@ -35,7 +200,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466621.jpg" />
+  <img src="Z:/picture/008/save_picture_466621.jpg" />
 </div>
 
 
@@ -64,7 +229,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466584.jpg" />
+  <img src="Z:/picture/008/save_picture_466584.jpg" />
 </div>
 
 
@@ -93,7 +258,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466447.jpg" />
+  <img src="Z:/picture/008/save_picture_466447.jpg" />
 </div>
 
 
@@ -121,7 +286,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465974.jpg" />
+  <img src="Z:/picture/008/save_picture_465974.jpg" />
 </div>
 
 
@@ -149,7 +314,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465749.jpg" />
+  <img src="Z:/picture/008/save_picture_465749.jpg" />
 </div>
 
 
@@ -176,7 +341,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465707.jpg" />
+  <img src="Z:/picture/008/save_picture_465707.jpg" />
 </div>
 
 
@@ -205,7 +370,7 @@ Nascar Xfinity Series-2017, Этап 23 - Johnsonville 180 (2017) WEB-DL [H.264/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465698.jpg" />
+  <img src="Z:/picture/008/save_picture_465698.jpg" />
 </div>
 
 
@@ -233,7 +398,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465669.jpg" />
+  <img src="Z:/picture/008/save_picture_465669.jpg" />
 </div>
 
 
@@ -262,7 +427,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465591.jpg" />
+  <img src="Z:/picture/008/save_picture_465591.jpg" />
 </div>
 
 
@@ -288,7 +453,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465569.jpg" />
+  <img src="Z:/picture/008/save_picture_465569.jpg" />
 </div>
 
 
@@ -318,7 +483,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465567.jpg" />
+  <img src="Z:/picture/008/save_picture_465567.jpg" />
 </div>
 
 
@@ -346,7 +511,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465566.jpg" />
+  <img src="Z:/picture/008/save_picture_465566.jpg" />
 </div>
 
 
@@ -374,7 +539,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465565.jpg" />
+  <img src="Z:/picture/008/save_picture_465565.jpg" />
 </div>
 
 
@@ -404,7 +569,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465564.jpg" />
+  <img src="Z:/picture/008/save_picture_465564.jpg" />
 </div>
 
 
@@ -431,7 +596,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465178.jpg" />
+  <img src="Z:/picture/008/save_picture_465178.jpg" />
 </div>
 
 
@@ -461,7 +626,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465068.jpg" />
+  <img src="Z:/picture/008/save_picture_465068.jpg" />
 </div>
 
 
@@ -487,7 +652,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465067.jpg" />
+  <img src="Z:/picture/008/save_picture_465067.jpg" />
 </div>
 
 
@@ -513,7 +678,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465061.jpg" />
+  <img src="Z:/picture/008/save_picture_465061.jpg" />
 </div>
 
 
@@ -539,7 +704,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464862.jpg" />
+  <img src="Z:/picture/008/save_picture_464862.jpg" />
 </div>
 
 
@@ -550,175 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49711F7BDF866A51529AEEAED1B770AC2BA321D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941008   (464754) от 26.09.2015
-
-Обзор. Кубок Английской Лиги 2015-2016. 3-й раунд. Обзор матчей. (2015) HDTVRip [H.264] [En]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обзор матчей 3-го раунда Кубка Английской Лиги 2015-2016.Телекомпания: Channel 5 UKЖанр: Спорт, ТелепередачаПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59A043A94B4D2B62BCF3840D12AE5780118294C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549081   (464537) от 19.09.2012
-
-Рестлинг / WWE Monday Night RAW 17.09.2012 (2012) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464537.jpg" />
-</div>
-
-
-###  Подробнее
-
-1,008-й выпуск Monday Night RAWЖанр: СпортПеревод: Двуголосый закадровый, любительский
-Валентин Нарчук и Сергей ПерышкинПродолжительность: 02:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B2EE748CA41C9897989A256D3BC39949EC04BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058350   (464477) от 03.10.2016
-
-Футбол. Лига Чемпионов 2016-2017. Группа B. 2-й тур. Бешикташ (Турция) – Динамо К (Украина) (28.09.2016) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464477.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 сентября 2016, среда. 21:45 МСК
-Лига Чемпионов 2016-2017. Групповой этап
-Группа B. 2-й тур
-(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4254FCB7DE891DB2EA92F41A39E0CFCBAE18EB02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058537   (464281) от 03.10.2016
-
-Футбол. Лига Европы 2016-2017. Группа I. 2-й тур. Шальке 04 (Германия) – Ред Булл Зальцбург (Австрия) (29.09.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464281.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 сентября 2016, четверг. 20:00 МСК
-Лига Европы 2016-2017. Групповой этап
-Группа I. 2-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Мельников)Продолжительность: 01:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE26D7EB593F802967A0C1A9E2F8C8A131FE40E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246334   (463705) от 10.09.2018
-
-Футбол. Лига Наций УЕФА 2018-2019. Лига D. Группа 2. 1-й тур. Люксембург — Молдавия (08.09.2018) IPTVRip [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463705.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 сентября 2018 года, суббота. 21:45 МСК
-Лига Наций УЕФА 2018-2019. Групповой турнир
-Лига D. Группа 2. 1-й тур. Люксембург — Молдавия
-Стадион: Жози Бартель (Люксембург, Люксембург), вместимость: 8054(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9515093D7EA0F6F61742400CA991DC926D2D022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246338   (463704) от 10.09.2018
-
-Футбол. Лига Наций УЕФА 2018-2019. Лига A. Группа 2. 1-й тур. Швейцария — Исландия (08.09.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463704.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 сентября 2018 года, суббота. 19:00 МСК
-Лига Наций УЕФА 2018-2019. Групповой турнир
-Лига A. Группа 2. 1-й тур. Швейцария — Исландия
-Стадион: Кибунпарк (AFG-Арена) (Санкт-Галлен, Швейцария), вместимость: 19694(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD57FC04EB19A8D4E4057D7B0BE972263715A1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

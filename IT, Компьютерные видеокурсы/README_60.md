@@ -1,3 +1,139 @@
+###  Публикация: 528731   (452914) от 12.08.2022
+
+А. Севастьянов | Сброс пароля администратора в Windows [2011] PCRec
+
+>>След.
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_452914.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данном видеоуроке, рассмотрим пример сброса пароля администратора в Windows, что позволит выполнить вход в систему с привилегированными правами.Жанр: Обучающее видеоПродолжительность: 00:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E01468873D86D823D36A7CA28A31ABD1F33D6BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409005   (450753) от 14.09.2020
+
+Специалист | Введение в DevOps: инфраструктура как код, использование Docker и Kubernetes (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_450753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс предназначен для инженеров DevOps и системных администраторов, желающих освоить принципы и технологии Infrastructure as a Code для автоматизации развертывания и управления IT инфраструктурой предприятия.Жанр: ПрограммированиеПродолжительность: 19:02:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90E9FD3D32336361C27E816D203B6A10927D5B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061158   (447755) от 10.10.2016
+
+Lynda.com | Основы программирования: объектно-ориентированное проектирование (2012) [RU / EN, EN Sub] PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_447755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большинство современных языков программирования, таких как Java, C#, Ruby и Python, являются объектно-ориентированными, что помогает группировать отдельные биты кода в сложные согласованные приложения. Однако сама по себе объектная ориентация — не язык, это комплекс идей и концепций.
+
+Саймон Аллардайс с радостью ознакомит вас с терминами ООП — словечками наподобие (   Читать дальше...   )Производство: Lynda.comЖанр: Объектно-ориентированное проектированиеЯзык субтитров: АнглийскийПродолжительность: 03:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599F9D0A33F8722FB51B1364FA1F33077252B87D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409234   (446845) от 16.09.2020
+
+[Interview Espresso] Aaron Jack | Парсинг с помощью JavaScript / Web Scrape Anything With JavaScript (2020) PCRec [En]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_446845.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 проектов из реальной жизни. Проекты включают в себя Twitter-бота, парсера объявлений о вакансиях, парсера цен на акции, Intagram, сканеры Reddit и многое другое.
+
+40+ обучающих видео
+В обучающих видео ничего не пропущено, мы расскажем о настройке всего (да, даже Node JS, API и редактора кода) и покажем вам * настоящее * программирование методом проб и ошибок.Производство: Interview EspressoЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 06:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEFBEC74ECAF04BFCDED12D8FA5CC80D459E865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409237   (446659) от 16.09.2020
+
+Специалист | Java. Уровень 3. Разработка серверного программного обеспечения на Java EE (2020) PCRec
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_446659.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современная разработка — это сложный и многоуровневый процесс, который делится на две части: клиентскую (frontend) и серверную (backend). Для разработки серверного программного обеспечения используются платформа Java Enterprise Edition (Java EE).
+Платформа Java EE (Jakarta EE) содержит набор взаимосвязанных технологий, которые существенно сокращают стоимость и сложность (   Читать дальше...   )Жанр: ПрограммированиеПродолжительность: 27:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876498D0C4353744708543109F1B133AC44956AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409453   (444809) от 17.09.2020
 
 Laracasts | Skills (2020) PCRec [En]
@@ -6,7 +142,7 @@ Laracasts | Skills (2020) PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444809.jpg" />
+  <img src="Z:/picture/008/save_picture_444809.jpg" />
 </div>
 
 
@@ -35,7 +171,7 @@ ITVDN | Тестирование ASP.NET Core MVC приложений (2020) PC
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444637.jpg" />
+  <img src="Z:/picture/008/save_picture_444637.jpg" />
 </div>
 
 
@@ -63,7 +199,7 @@ Oleg Lav | Загрузка  WinPE 10-8 Sergei Strelec с жесткого ди�
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438678.jpg" />
+  <img src="Z:/picture/008/save_picture_438678.jpg" />
 </div>
 
 
@@ -91,7 +227,7 @@ Jeffrey Way | Perfect Workflow in Sublime Text 2 [2012] PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438173.jpg" />
+  <img src="Z:/picture/008/save_picture_438173.jpg" />
 </div>
 
 
@@ -119,7 +255,7 @@ ITVDN | React Essential (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437727.jpg" />
+  <img src="Z:/picture/008/save_picture_437727.jpg" />
 </div>
 
 
@@ -147,7 +283,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436987.jpg" />
+  <img src="Z:/picture/008/save_picture_436987.jpg" />
 </div>
 
 
@@ -176,7 +312,7 @@ Lynda.com | Trapcode Particular Essential Training [Sep 27, 2012] PCRec [En]
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435694.jpg" />
+  <img src="Z:/picture/008/save_picture_435694.jpg" />
 </div>
 
 
@@ -202,7 +338,7 @@ NFP | Цикл вебинаров «Переход с 1С:УПП на 1С:ERP» 
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435659.jpg" />
+  <img src="Z:/picture/008/save_picture_435659.jpg" />
 </div>
 
 
@@ -229,7 +365,7 @@ ITVDN | STL - стандартная библиотека шаблонов. Те
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435648.jpg" />
+  <img src="Z:/picture/008/save_picture_435648.jpg" />
 </div>
 
 
@@ -256,7 +392,7 @@ ITVDN | SQL Essential (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435638.jpg" />
+  <img src="Z:/picture/008/save_picture_435638.jpg" />
 </div>
 
 
@@ -283,7 +419,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435489.jpg" />
+  <img src="Z:/picture/008/save_picture_435489.jpg" />
 </div>
 
 
@@ -312,7 +448,7 @@ ITVDN | ASP.NET Core SignalR (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435488.jpg" />
+  <img src="Z:/picture/008/save_picture_435488.jpg" />
 </div>
 
 
@@ -339,7 +475,7 @@ ITVDN | Django Starter (2019) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433298.jpg" />
+  <img src="Z:/picture/008/save_picture_433298.jpg" />
 </div>
 
 
@@ -365,7 +501,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433289.jpg" />
+  <img src="Z:/picture/008/save_picture_433289.jpg" />
 </div>
 
 
@@ -391,7 +527,7 @@ HTML Academy | Интенсивный онлайн-курс «Продвинут
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431999.jpg" />
+  <img src="Z:/picture/008/save_picture_431999.jpg" />
 </div>
 
 
@@ -420,7 +556,7 @@ ITVDN | Решение практических задач на C++ (2020) PCRec
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431283.jpg" />
+  <img src="Z:/picture/008/save_picture_431283.jpg" />
 </div>
 
 
@@ -447,7 +583,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431256.jpg" />
+  <img src="Z:/picture/008/save_picture_431256.jpg" />
 </div>
 
 
@@ -476,7 +612,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431233.jpg" />
+  <img src="Z:/picture/008/save_picture_431233.jpg" />
 </div>
 
 
@@ -502,7 +638,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429297.jpg" />
+  <img src="Z:/picture/008/save_picture_429297.jpg" />
 </div>
 
 
@@ -531,7 +667,7 @@ https://mybot314.ru/tekegram_catalog/
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429022.jpg" />
+  <img src="Z:/picture/008/save_picture_429022.jpg" />
 </div>
 
 
@@ -557,7 +693,7 @@ Java Course | Java EE. Профессиональная разработка (20
 >>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_428451.jpg" />
+  <img src="Z:/picture/008/save_picture_428451.jpg" />
 </div>
 
 
@@ -568,139 +704,6 @@ Java Course | Java EE. Профессиональная разработка (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4EF02A5FC0B16E6E9218BE9435A1D2DF8F721FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166091   (427881) от 15.09.2017
-
-ITVDN | Программирование на платформе UWP (2017) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный курс состоит из двух частей – теории и практики. В теоретической части вы познакомитесь с историей, описанием и предназначением той или иной части технологии или ее составляющей. На практических занятиях, для явной визуализации функциональности части технологии, вы узнаете о главных свойствах и методах, а также рассмотрите примеры.Производство: ITVDNЖанр: Программирование, Windows, UwpПродолжительность: 13:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FA54CD45A14E0D0AD4A20619FA83282DE416611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166085   (427749) от 15.09.2017
-
-ITVDN | Swift Starter (2017) PCRec [H.264/1080p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_427749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс Swift starter состоит из 9 уроков, в которых показывается основные инструменты и подходы при разработке приложений под iOS. Несмотря на то, что курс рассчитан на начинающих разработчиков в нем даются основы построения адаптивных пользовательских интерфейсов, работы с сетью и базами данных, а эти три компонента и являются одними из ключевых при создании мобильных (   Читать дальше...   )Производство: ITVDNЖанр: Программирование, Ios, SwiftПродолжительность: 08:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:651A1F3E8EB1AC09FA6E3E0C02EEBDAB3BB608FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324443   (424994) от 09.09.2019
-
-MonsterLessons | Разработка интернет-магазина на React/Redux (2019) PCRec [H.264/720p-LQ]
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424994.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом курсе мы разработаем интернет магазин мобильных телефонов на React и Redux. Этот курс полностью сфокусирован на быстром и глубоком погружении в создание реальных приложений на React и Redux. Мы начнем с нуля и шаг за шагом создадим реальное и законченное приложение. Вы поймете как правильно структурировать приложение, создавать переиспользуемые React компоненты (   Читать дальше...   )Производство: MonsterLessonsЖанр: программирование, JavaScript, React, ReduxПродолжительность: 03:32:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56113B25F3C7ECB31977B2F1657DCF125C887304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411838   (424962) от 26.09.2020
-
-[Udemy] Дмитрий Якушев | Excel 2016 Мастер формул (2017) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы уже научились ячейки цветом красить и даже ВПР умеете писать.
-Вы пытались изучать по книжкам, но не хватает человеческого объяснения.
-Вы менеджер, экономист, финансист, бухгалтер, руководитель, аналитик... и бОльшую часть времени проводите, анализируя информацию в Excel/
-Разберём 9 тем, связанных с формулами, решим более 70 практических задач, максимально приближенных (   Читать дальше...   )Производство: UdemyЖанр: MS OfficeПродолжительность: 01:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB82878D44A414E9AED66CB2BA9619043C88B16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411754   (424806) от 26.09.2020
-
-[ITVDN] Гнатюк Владислав | C# асинхронное программирование (2020) PCRec
-
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курс «C# Асинхронное программирование» будет полезен как начинающим разработчикам, так и опытным программистам, желающим улучшить уже имеющиеся знания об актуальных на сегодня технологиях создания асинхронного кода. На данном курсе будет углублённо рассмотрено само понятие асинхронности и современные приемы организации асинхронного выполнения участков кода на языке (   Читать дальше...   )Производство: ITVDNЖанр: ПрограммированиеПродолжительность: 20:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1868351D44E1E1041633ED60CEE913347167D60
 ```
 
 https://mybot314.ru/tekegram_catalog/

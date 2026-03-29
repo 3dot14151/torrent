@@ -1,3 +1,90 @@
+###  Публикация: 1858354   (1060271) от 10.03.2026
+
+John West - Earth Maker (2002) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_1060271.jpg" />
+</div>
+
+
+###  Подробнее
+
+John Michael West (29.10.1964) американский вокалист, наиболее известный как ведущий вокалист группы Artension и бывший ведущий вокалист группы Royal Hunt. West выпустил шесть сольных альбома под своим именем, в создании которых принимали участие самые разные музыканты. Первые два выдержаны в стиле неоклассического метала с множеством продолжительных инструментальных (   Читать дальше...   )01. Soul Of The Beast (6:38)
+02. When Worlds Collide (5:03)
+03. Sleep Of The Dead (3:31)
+04. Stand, Sentinel (7:45)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A18E5D0AA2E2EEFE2AE0FE49FB6DC38212A29D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858392   (1060234) от 10.03.2026
+
+Axe Dragger - Axe Dragger (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_1060234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axe Dragger (3:27)
+ 02. Give You The Rope (3:21)
+ 03. Fight Another Day (3:53)
+ 04. Iron Rider (3:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D97FFF6C2CA1766ABACD87FBEF412767C0C7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1858138   (1060167) от 08.03.2026
+
+Karelian Warcry - Veripellot (2026) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Z:/picture/009/save_picture_1060167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mielen rutto
+02. Joukkohauta
+03. Veripellot
+04. Horisontit(   Читать дальше...   )Жанр: Black Metal, Death MetalПродолжительность: 00:49:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22483187EFB096B10DF827A61402EB0D26054F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857883   (1060028) от 07.03.2026
 
 Triumpher - 3 Albums (2023-2026) [FLAC|Lossless|WEB-DL|tracks] <Epic heavy metal, Power metal>
@@ -6,7 +93,7 @@ Triumpher - 3 Albums (2023-2026) [FLAC|Lossless|WEB-DL|tracks] <Epic heavy metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1060028.jpg" />
+  <img src="Z:/picture/005/save_picture_1060028.jpg" />
 </div>
 
 
@@ -35,7 +122,7 @@ Sanctity - Road to Bloodshed (2007) Japanese Edition [FLAC|Lossless|image + .cue
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059854.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059854.jpg" />
 </div>
 
 
@@ -64,7 +151,7 @@ Zed Yago - At The Edge Of The World (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059622.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059622.jpg" />
 </div>
 
 
@@ -93,7 +180,7 @@ Chalice - Divine Spear (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059569.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059569.jpg" />
 </div>
 
 
@@ -122,7 +209,7 @@ Nefarious Grime - Death Is Immortal (2026)  [FLAC|Lossless|WEB-DL|tracks] <Gothi
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059568.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059568.jpg" />
 </div>
 
 
@@ -151,7 +238,7 @@ Kotipelto - Waiting For The Dawn (2002) [FLAC|Lossless|image + .cue] <Power Meta
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059513.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059513.jpg" />
 </div>
 
 
@@ -180,7 +267,7 @@ An Abstract Illusion - The Sleeping City (2025) [FLAC|Lossless|WEB-DL|tracks] <A
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1059463.jpg" />
+  <img src="https://e1db7d79-7bae-4908-9711-ef6cfe9f79e8.tunnel4.com/picture_torrent/007/save_picture_1059463.jpg" />
 </div>
 
 
@@ -209,7 +296,7 @@ Templar - Conquering Swords (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059360.jpg" />
+  <img src="Z:/picture/005/save_picture_1059360.jpg" />
 </div>
 
 
@@ -238,7 +325,7 @@ Nerve Star - White Hot (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059204.jpg" />
+  <img src="Z:/picture/005/save_picture_1059204.jpg" />
 </div>
 
 
@@ -267,7 +354,7 @@ Jari Lindholm - Trajectories (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059095.jpg" />
+  <img src="Z:/picture/005/save_picture_1059095.jpg" />
 </div>
 
 
@@ -296,7 +383,7 @@ Evig Natt - Vaketimen (2026) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Death 
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1059076.jpg" />
+  <img src="Z:/picture/005/save_picture_1059076.jpg" />
 </div>
 
 
@@ -325,7 +412,7 @@ Cryptic Shift - Overspace & Supertime (2026) [FLAC|Lossless|WEB-DL|tracks] <Tech
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058976.jpg" />
+  <img src="Z:/picture/005/save_picture_1058976.jpg" />
 </div>
 
 
@@ -354,7 +441,7 @@ Gladenfold - Soulbound (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058882.jpg" />
+  <img src="Z:/picture/005/save_picture_1058882.jpg" />
 </div>
 
 
@@ -383,7 +470,7 @@ Morgion - Among Majestic Ruin (1996) [FLAC|Lossless|image + .cue] <Doom, Death M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058751.jpg" />
+  <img src="Z:/picture/005/save_picture_1058751.jpg" />
 </div>
 
 
@@ -412,7 +499,7 @@ Pro-Pain - Foul Taste Of Freedom (1992) Reissue, 2005, Candlelight Records USA [
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058668.jpg" />
+  <img src="Z:/picture/005/save_picture_1058668.jpg" />
 </div>
 
 
@@ -441,7 +528,7 @@ Anata - The Infernal Depths of Hatred (1998) 2001, Reissued, CD-Maximum [FLAC|Lo
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058667.jpg" />
+  <img src="Z:/picture/005/save_picture_1058667.jpg" />
 </div>
 
 
@@ -470,7 +557,7 @@ Shards Of A Lost World - Eclipsis (2025) [FLAC|Lossless|image + .cue] <Black Met
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058589.jpg" />
+  <img src="Z:/picture/005/save_picture_1058589.jpg" />
 </div>
 
 
@@ -499,7 +586,7 @@ Orbital Strike - Fear And Pride (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Po
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058475.jpg" />
+  <img src="Z:/picture/005/save_picture_1058475.jpg" />
 </div>
 
 
@@ -528,7 +615,7 @@ We All Rise - The Beginning Of The End (2026) [FLAC|Lossless|WEB-DL|tracks] <Gro
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058348.jpg" />
+  <img src="Z:/picture/005/save_picture_1058348.jpg" />
 </div>
 
 
@@ -557,7 +644,7 @@ Throes of Dawn - Our Voices Shall Remain (2016) [FLAC|Lossless|image + .cue] <Pr
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058003.jpg" />
+  <img src="Z:/picture/005/save_picture_1058003.jpg" />
 </div>
 
 
@@ -586,7 +673,7 @@ Morgion - Rabid Decay (1991) (Demo) Reissue, 1997, Self-released [FLAC|Lossless|
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1058002.jpg" />
+  <img src="Z:/picture/005/save_picture_1058002.jpg" />
 </div>
 
 
@@ -615,7 +702,7 @@ Slik Helvetika - Walk Through Fire (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057959.jpg" />
+  <img src="Z:/picture/005/save_picture_1057959.jpg" />
 </div>
 
 
@@ -644,7 +731,7 @@ Aeon Gods - Reborn To Light (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Powe
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057887.jpg" />
+  <img src="Z:/picture/005/save_picture_1057887.jpg" />
 </div>
 
 
@@ -658,93 +745,6 @@ Aeon Gods - Reborn To Light (2026) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Powe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:449AF0285B30BFF6D55256DF6310C55727138424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854928   (1057645) от 20.02.2026
-
-Eternal Winter - Cosmic Blood, Cosmic Grail (2026) [FLAC|Lossless|WEB-DL|tracks] <Epic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Initiation (6:08)
-02. Templum Esoterika (5:11)
-03. Ancient Rite of Death and Honor (6:17)
-04. Cosmic Blood, Cosmic Grail (4:14)(   Читать дальше...   )Жанр: Epic Power MetalПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659737F70F4114D7D39DC1EB8D4B9AF81D554929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854536   (1057594) от 18.02.2026
-
-Avulsed - Phoenix Cryptobiosis (2025) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limbs Regeneration
-02. Lacerate To Dominate
-03. Blood Monolith
-04. Unrotted(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F505EE5AF8D531E78693B0FB8EA81E6A7D9DCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854573   (1057535) от 19.02.2026
-
-Asagraum - Potestas Magicum Diaboli (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1057535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transformation (04:59)
-02. Black Triangle Temple (05:21)
-03. Leviathan (05:52)
-04. Gospel Of Ignition (06:20)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC73E00DF8176C5890BDB20624D9EA3D8336E9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

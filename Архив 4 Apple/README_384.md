@@ -1,3 +1,112 @@
+###  Публикация: 1249865   (431201) от 25.09.2018
+
+Elmedia Video Player Pro 6.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2018Разработчик: Eltima LLCПоддерживаемая ОС: MacOS 10.9 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F913457A67B63E35D69CB22C609DDCD192582B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249778   (431189) от 25.09.2018
+
+BlueHarvest 7.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431189.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlueHarvest - утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
+
+Данная программа будет полезна для тех, кто любит включенную опцию показа скрытых и системных файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Ross TullochПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский, Испанский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E61101DEC7345B13FC1EAFBCD0BF778F29DAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249692   (431047) от 25.09.2018
+
+Winclone Pro 7 v7.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утилита Winclone 7. Или как проще всего клонировать Windows на Mac.
+По непонятным причинам стандартная Дисковая утилита не работает с Windows разделами на macOS: ошибки во время создания или восстановления образа не дают завершить процесс, из-за чего утилита становится бесполезной при работе с Boot Camp разделами. Такая всемирно известная утилита для клонирования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: Twocanoes Software, Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D47F6FA2778122BB334A927677202770F7A655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249881   (431034) от 25.09.2018
+
+Paste 2.4.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="Z:/picture/008/save_picture_431034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работает – притаившись в фоном режиме системы и, следит за историей скопированных данных. Готов в любой момент предоставить на выбор нужный фрагмент из истории буфера обмена. Таким образом, упрощает работу пользователя в период подготовки любого материала из массы скопированной информации. Сохраняет все, что вы когда-либо скопировали и позволяет восстановить содержимое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: WirelessheadsПоддерживаемая ОС: macOS 10.12.2 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA0C8ABAD14EC920FD789479E4D3B0ECF203303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249888   (430902) от 25.09.2018
 
 Things 3.7.1 [Multi/Ru]
@@ -6,7 +115,7 @@ Things 3.7.1 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430902.jpg" />
+  <img src="Z:/picture/008/save_picture_430902.jpg" />
 </div>
 
 
@@ -34,7 +143,7 @@ SuperDuper! 2.9.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430583.jpg" />
+  <img src="Z:/picture/008/save_picture_430583.jpg" />
 </div>
 
 
@@ -60,7 +169,7 @@ Feeder 3.3.2 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430368.jpg" />
+  <img src="Z:/picture/008/save_picture_430368.jpg" />
 </div>
 
 
@@ -88,7 +197,7 @@ DropDMG 3.4.3 [Multi]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430364.jpg" />
+  <img src="Z:/picture/008/save_picture_430364.jpg" />
 </div>
 
 
@@ -115,7 +224,7 @@ Timing 1.7.5 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430251.jpg" />
+  <img src="Z:/picture/008/save_picture_430251.jpg" />
 </div>
 
 
@@ -142,7 +251,7 @@ PullTube 1.5.6 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430087.jpg" />
+  <img src="Z:/picture/008/save_picture_430087.jpg" />
 </div>
 
 
@@ -168,7 +277,7 @@ Timemator 2.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430066.jpg" />
+  <img src="Z:/picture/008/save_picture_430066.jpg" />
 </div>
 
 
@@ -194,7 +303,7 @@ DSLR Assistant 3.5.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_430063.jpg" />
+  <img src="Z:/picture/008/save_picture_430063.jpg" />
 </div>
 
 
@@ -223,7 +332,7 @@ ProFind 1.8.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429992.jpg" />
+  <img src="Z:/picture/008/save_picture_429992.jpg" />
 </div>
 
 
@@ -249,7 +358,7 @@ MediaHuman Youtube Downloader 3.9.9.45 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429987.jpg" />
+  <img src="Z:/picture/008/save_picture_429987.jpg" />
 </div>
 
 
@@ -278,7 +387,7 @@ MacCleanse 9.0.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429982.jpg" />
+  <img src="Z:/picture/008/save_picture_429982.jpg" />
 </div>
 
 
@@ -304,7 +413,7 @@ Movavi Screen Capture 3 v3.2 [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429867.jpg" />
+  <img src="Z:/picture/008/save_picture_429867.jpg" />
 </div>
 
 
@@ -333,7 +442,7 @@ Clipboard Manager 2.3.8 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429856.jpg" />
+  <img src="Z:/picture/008/save_picture_429856.jpg" />
 </div>
 
 
@@ -361,7 +470,7 @@ NoteList 4 v.4.3.3 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429852.jpg" />
+  <img src="Z:/picture/008/save_picture_429852.jpg" />
 </div>
 
 
@@ -388,7 +497,7 @@ Dropzone 4 Pro v.4.4.6 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429851.jpg" />
+  <img src="Z:/picture/008/save_picture_429851.jpg" />
 </div>
 
 
@@ -415,7 +524,7 @@ TextMan 1.7 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429848.jpg" />
+  <img src="Z:/picture/008/save_picture_429848.jpg" />
 </div>
 
 
@@ -441,7 +550,7 @@ Studies 1.7.11 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429837.jpg" />
+  <img src="Z:/picture/008/save_picture_429837.jpg" />
 </div>
 
 
@@ -469,7 +578,7 @@ MacPilot 12.0 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429835.jpg" />
+  <img src="Z:/picture/008/save_picture_429835.jpg" />
 </div>
 
 
@@ -496,7 +605,7 @@ Debookee 7 v7.5.1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429833.jpg" />
+  <img src="Z:/picture/008/save_picture_429833.jpg" />
 </div>
 
 
@@ -522,7 +631,7 @@ Aiseesoft DVD Creator 5.2.18 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429832.jpg" />
+  <img src="Z:/picture/008/save_picture_429832.jpg" />
 </div>
 
 
@@ -548,7 +657,7 @@ Adguard 2.5.0 (887) Nightly [Multi/Ru]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429827.jpg" />
+  <img src="Z:/picture/008/save_picture_429827.jpg" />
 </div>
 
 
@@ -574,7 +683,7 @@ Airflow 3.1.9u1 [En]
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429825.jpg" />
+  <img src="Z:/picture/008/save_picture_429825.jpg" />
 </div>
 
 
@@ -585,112 +694,6 @@ Airflow 3.1.9u1 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02792B26A484EFC8276081246F57C809F81F9E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571721   (429752) от 23.08.2022
-
-Sublime Merge Build 2077 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sublime Merge - клиент системы контроля версий, который сочетает в себе знакомый интерфейс редактора кода и функции Git, например: возможность контролировать слияние версий, искать выбранные коммиты или просматривать историю изменений.Тип издания: macOS SoftwareРелиз состоялся: 22.08.2022Разработчик: © 2022 Sublime HQПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCB42100ECFD97541C2ABDF2BF03326D68E5885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411241   (429745) от 24.09.2020
-
-Wondershare DVD Creator 6.1.4.10 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wondershare DVD Creator - программа для создания нового DVD из всех популярных видео-форматов.
-Основные возможности: создание DVD с полноценными меню и субтитрами; выбор из имеющихся пред настроек или собственная настройка параметров видео - битрейта, фреймрейда, качества и других параметров DVD, поддержка NTSC и PAL, поддержка соотношений картинки 4:3 и 16:9, предварительный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.09.2020Разработчик: Wondershare Software Co., LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60EC14637AC2D4B1322BB800B679FAF074EB083B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411145   (429743) от 24.09.2020
-
-QLab Pro 4 v4.6.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429743.jpg" />
-</div>
-
-
-###  Подробнее
-
-QLab - Мощный инструмент для создания и проведения мульмедийным шоу, который поможет управлять звуком, видео и MIDI из единого рабочего пространства. QLab предназначена не для простых презентаций, а для мультимедийных шоу, театра и других развлекательных мероприятий и обладает отличным функционалом.Тип издания: macOS SoftwareРелиз состоялся: 22.09.2020Разработчик: Figure 53, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCABE554C62900A4217BB2FEA9A3F11493199D08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411192   (429735) от 24.09.2020
-
-Wondershare Recoverit 9.0.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный набор для восстановления данных (ранее Wondershare Data Recovery).
-Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 23.09.2020Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3DBE24643F8EA428E14D306402987BC47884AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
